@@ -88,4 +88,4 @@ Wang Lin se retira calmement. L'épée de fer et les lignes rouges qui l'entoura
 
 « Très familier... » Wang Lin s'arrêta brusquement, comme si un coup de tonnerre avait explosé dans son esprit. Ses yeux s'écarquillèrent et il prit une grande inspiration. Il s'en souvenait!
 
-Sur la planète Suzaku, à l'intérieur du Tombeau de Suzaku, il avait vu cette même épée de fer, seule la disposition de la rouille différait! Cette épée avait été emportée par le messager de Tuo Sen. L'extase qui s'était lue sur le visage du messager était une image que Wang Lin n'avait jamais oubliée!
+Sur la planète Suzaku, à l'intérieur du Tombeau Zhu Que, il avait vu cette même épée de fer, seule la disposition de la rouille différait! Cette épée avait été emportée par le messager de Tuo Sen. L'extase qui s'était lue sur le visage du messager était une image que Wang Lin n'avait jamais oubliée!

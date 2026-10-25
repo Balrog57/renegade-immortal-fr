@@ -50,7 +50,7 @@ Cette majesté pouvait faire passer n'importe quel cultivateur pour une simple f
 
 « Qui est-il, au juste...? » songea Wang Lin.
 
-De toutes les statues qu'il avait vues de sa vie, seule celle de l'Empereur Céleste Qing Lin dans la Terre des Esprits Démoniaques pouvait briser l'esprit d'un homme. Bien que cette statue n'ait pas démantelé son esprit, Wang Lin avait le sentiment vague que la statue de Qing Lin n'était qu'une fourmi face à celle-ci!
+De toutes les statues qu'il avait vues de sa vie, seule celle de l'Empereur Céleste Qing Lin dans la Terre Yao Ling pouvait briser l'esprit d'un homme. Bien que cette statue n'ait pas démantelé son esprit, Wang Lin avait le sentiment vague que la statue de Qing Lin n'était qu'une fourmi face à celle-ci!
 
 La statue ne représentait qu'un homme d'âge moyen ordinaire. L'homme regardait vers le haut avec une expression sereine; aucune émotion ne transparaissait.
 

@@ -8,17 +8,17 @@ slug: aneantissement-total
 ---
 Le regard de Wang Lin était glacial. Il jeta un coup d'œil à Qian Kun et demanda: « Le Bossu Meng est-il votre ancêtre? »
 
-Le corps de Qian Kun trembla. S'il avait eu le moindre doute auparavant, celui-ci s'évanouit instantanément à l'audition de cette question. Il fallait dire que le nom de Meng Qingfan, du Palais Enchanté du Roi Poison, était tristement célèbre dans la Mer des Démons. Les cultivateurs ordinaires, que ce soit en sa présence ou dans son dos, l'appelaient respectueusement Senior Meng chaque fois qu'ils évoquaient Meng Qingfan.
+Le corps de Qian Kun trembla. S'il avait eu le moindre doute auparavant, celui-ci s'évanouit instantanément à l'audition de cette question. Il fallait dire que le nom de Meng Qingfan, du Palais Enchanté du Roi Poison, était tristement célèbre dans la Mer Xiu Mo. Les cultivateurs ordinaires, que ce soit en sa présence ou dans son dos, l'appelaient respectueusement Senior Meng chaque fois qu'ils évoquaient Meng Qingfan.
 
-Même ceux de sa génération l'appelaient au moins le Maître du Palais Meng. Outre sa culture au stade de la Formation de l'Âme, presque au sommet de la Mer des Démons, il possédait des techniques de poison redoutables. Ses attaques empoisonnées étaient presque impossibles à parer: insipides et incolores. Nombreux étaient ceux qui avaient succombé à ces poisons avant même de comprendre ce qui leur arrivait.
+Même ceux de sa génération l'appelaient au moins le Maître du Palais Meng. Outre sa culture au stade de la Formation de l'Âme, presque au sommet de la Mer Xiu Mo, il possédait des techniques de poison redoutables. Ses attaques empoisonnées étaient presque impossibles à parer: insipides et incolores. Nombreux étaient ceux qui avaient succombé à ces poisons avant même de comprendre ce qui leur arrivait.
 
-À cela s'ajoutait la personnalité excentrique de Meng Qingfan. Un seul mot de travers, et il pouvait anéantir votre secte tout entière. Il y eut autrefois une secte dans la Mer des Démons qui, bien que dépourvue d'experts en Formation de l'Âme, comptait plusieurs experts au stade avancé de l'Âme Naissante, ce qui en faisait l'une des plus puissantes de la région.
+À cela s'ajoutait la personnalité excentrique de Meng Qingfan. Un seul mot de travers, et il pouvait anéantir votre secte tout entière. Il y eut autrefois une secte dans la Mer Xiu Mo qui, bien que dépourvue d'experts en Formation de l'Âme, comptait plusieurs experts au stade avancé de l'Âme Naissante, ce qui en faisait l'une des plus puissantes de la région.
 
 Le disciple de l'un des experts de l'Âme Naissante de cette secte avait croisé le Bossu Meng. Non seulement il ignorait son identité, mais il s'était permis de se moquer de lui.
 
 Cette nuit-là, Meng Qingfan pénétra seul dans la secte. Deux heures plus tard, lorsqu'il en repartit, les 3 456 membres de l'organisation — disciples internes, externes, travailleurs et même ces experts de l'Âme Naissante au stade avancé — étaient tous morts.
 
-Lorsque Meng Qingfan tuait, il aimait laisser une explication derrière lui. C’est ainsi que tout le monde finit par connaître ses actes. En conséquence, la cruauté de Meng Qingfan suffisait à faire pâlir quiconque dans la Mer des Démons.
+Lorsque Meng Qingfan tuait, il aimait laisser une explication derrière lui. C’est ainsi que tout le monde finit par connaître ses actes. En conséquence, la cruauté de Meng Qingfan suffisait à faire pâlir quiconque dans la Mer Xiu Mo.
 
 Seuls quelques rares individus osaient l'appeler le Bossu Meng. Après avoir entendu les paroles de Wang Lin, Qian Kun fut plus que jamais convaincu de ses soupçons.
 
@@ -92,7 +92,7 @@ Wang Lin prit le jade, l'examina avec son Sens Divin, puis reporta son attention
 
 Une amertume envahit le cœur de Yun Fei. Elle réalisa que ce simple morceau de jade ne suffirait pas à ébranler Wang Lin. Son esprit s'activa rapidement: « Senior, junior a grandi dans la ville de Qi Lin et possède une demeure de rang Terre là-bas. Junior connaît également très bien la ville, si senior a des besoins particuliers, junior pourra aider. » Craignant que Wang Lin ne connaisse pas les rouages de la cité, elle poursuivit: « Senior, saviez-vous que si un cultivateur n'a pas de statut de résident à Qi Lin, il ne peut y séjourner que trois jours? Au-delà, chaque jour coûte dix pierres spirituelles de faible qualité. Même ainsi, on ne peut rester que dix jours de plus. Mais junior possède un statut de résidente. Si junior vous guide, senior pourra séjourner à Qi Lin sans limite de temps. »
 
-« De plus, junior connaît parfaitement cette Mer des Démons, les emplacements des cités et la force des cultivateurs, car c'était sa fonction au Palais Enchanté. On pourrait dire que rien de la Mer des Démons n'échappe à junior. Si junior n'avait pas été pourchassée par Qian Kun dans un état de panique, junior ne serait jamais venue dans les Étoiles Brisées du Chaos. »
+« De plus, junior connaît parfaitement cette Mer Xiu Mo, les emplacements des cités et la force des cultivateurs, car c'était sa fonction au Palais Enchanté. On pourrait dire que rien de la Mer Xiu Mo n'échappe à junior. Si junior n'avait pas été pourchassée par Qian Kun dans un état de panique, junior ne serait jamais venue dans les Étoiles Brisées du Chaos. »
 
 Après avoir débité tout cela d'un seul trait, elle regarda nerveusement Wang Lin.
 

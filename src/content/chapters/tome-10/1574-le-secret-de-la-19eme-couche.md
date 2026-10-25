@@ -7,7 +7,7 @@ en: Chapter 1574 - The Secret at the 19th Layer
 slug: le-secret-de-la-19eme-couche
 ---
 
-Le repaire du Clan du Tatouage n'avait guère disparu lors des bouleversements de la planète Suzaku. Au fil des années, il était devenu l'endroit le plus mystérieux de la planète. Les cultivateurs venaient souvent y explorer les profondeurs. Ces dernières décennies, alors que des cultivateurs étrangers arrivaient sur la planète Suzaku, beaucoup s'étaient aventurés dans ce gouffre profond, pour finalement n'y trouver rien. Personne ne parvenait à atteindre la couche la plus profonde.
+Le repaire du Clan Fu Wen n'avait guère disparu lors des bouleversements de la planète Suzaku. Au fil des années, il était devenu l'endroit le plus mystérieux de la planète. Les cultivateurs venaient souvent y explorer les profondeurs. Ces dernières décennies, alors que des cultivateurs étrangers arrivaient sur la planète Suzaku, beaucoup s'étaient aventurés dans ce gouffre profond, pour finalement n'y trouver rien. Personne ne parvenait à atteindre la couche la plus profonde.
 
 Wang Lin et le fou apparurent instantanément à l'extérieur du trou. Wang Lin regarda l'ouverture et s'apprêta à y pénétrer. Cependant, le fou derrière lui était réticent et se mit à rugir contre lui.
 
@@ -21,9 +21,9 @@ En voyant Wang Lin partir, l'excitation envahit le visage du fou. Il s'enfuit au
 
 « Ces trois petites filles ne voulaient pas dire leurs noms à ce roi. Leurs expressions étaient vraiment étranges tout à l'heure. Haha, si ce roi les retrouve, elles me donneront certainement leurs noms! » Le fou paraissait extrêmement fier alors qu'il disparaissait à l'horizon.
 
-Wang Lin s'était rendu de nombreuses fois sur les terres du Clan du Tatouage par le passé; il en connaissait donc parfaitement les lieux. Se souvenant de l'entrée de chaque niveau, il traversa rapidement les différentes couches. En chemin, il ne marqua aucun arrêt. Il apparaissait souvent dans une couche, puis disparaissait pour réapparaître à l'entrée de la suivante. Bientôt, il atteignit la 16ème couche.
+Wang Lin s'était rendu de nombreuses fois sur les terres du Clan Fu Wen par le passé; il en connaissait donc parfaitement les lieux. Se souvenant de l'entrée de chaque niveau, il traversa rapidement les différentes couches. En chemin, il ne marqua aucun arrêt. Il apparaissait souvent dans une couche, puis disparaissait pour réapparaître à l'entrée de la suivante. Bientôt, il atteignit la 16ème couche.
 
-La 16ème couche abritait treize cercueils ornés de tatouages scintillants. Ces treize cercueils étaient disposés en cercle autour d'un bassin noir, dégageant une aura glaciale qui se répandait dans toute la zone. Les cercueils étaient tels que Wang Lin les avait déjà vus: ils exhalaient un froid mortel. Les cadavres qui reposaient à l'intérieur étaient les ancêtres du Clan du Tatouage.
+La 16ème couche abritait treize cercueils ornés de tatouages scintillants. Ces treize cercueils étaient disposés en cercle autour d'un bassin noir, dégageant une aura glaciale qui se répandait dans toute la zone. Les cercueils étaient tels que Wang Lin les avait déjà vus: ils exhalaient un froid mortel. Les cadavres qui reposaient à l'intérieur étaient les ancêtres du Clan Fu Wen.
 
 L'entrée de la 17ème couche se trouvait dans le bassin noir. Wang Lin scruta le bassin et repéra un sceau. Ce sceau ne pouvait être brisé que par des cultivateurs de niveau Yang Corporel ou supérieur. À l'époque, Wang Lin n'avait pu entrer lui-même et avait dû compter sur la force de Da Tou.
 
@@ -41,7 +41,7 @@ C'était ici que Wang Lin avait absorbé une étrange essence avec l'aide du vie
 
 En observant la flamme, Wang Lin constata que l'essence qu'elle contenait était bien trop instable et chaotique. C'était comme si quelqu'un l'avait créée de force; elle ne présentait aucun attrait pour lui.
 
-« La dernière couche... Que cache-t-elle exactement? Yun Quezi a dit qu'une partie de l'âme de l'ancêtre du Clan du Tatouage se trouvait dans la 19ème couche... » Les yeux de Wang Lin s'illuminèrent. « Cependant, l'ancêtre du Clan du Tatouage est la fille du Souverain, et elle fut scellée par Qing Lin dans la Terre des Esprits Démoniaques. Il est impossible que son âme soit ici! »
+« La dernière couche... Que cache-t-elle exactement? Yun Quezi a dit qu'une partie de l'âme de l'ancêtre du Clan Fu Wen se trouvait dans la 19ème couche... » Les yeux de Wang Lin s'illuminèrent. « Cependant, l'ancêtre du Clan Fu Wen est la fille du Souverain, et elle fut scellée par Qing Lin dans la Terre Yao Ling. Il est impossible que son âme soit ici! »
 
 Wang Lin leva la main droite et saisit la flamme. L'essence à l'intérieur de la flamme entra en éruption comme pour résister, mais sa puissance était désormais insignifiante face à Wang Lin. Il pressa sans pitié, et la flamme s'effondra dans un fracas. La lumière sembla se diffuser dans la pièce, dissipant les fantômes qui se cachaient dans les recoins.
 
@@ -55,7 +55,7 @@ Seul le Wang Lin d'aujourd'hui pouvait accomplir cela. Autrefois, ce sceau aurai
 
 Sous le regard attentif de Wang Lin, il aperçut vaguement un reflet doré dans le cercle: une énergie céleste extrêmement bien dissimulée!
 
-« Ce tatouage... n'est pas une chose que le Clan du Tatouage pourrait posséder! » Alors qu'il fixait ce dernier symbole, Wang Lin prit une profonde inspiration et ses pupilles se rétractèrent. Ce tatouage ne dégageait aucune aura, mais son Sens Divin percevait clairement la pression intérieure.
+« Ce tatouage... n'est pas une chose que le Clan Fu Wen pourrait posséder! » Alors qu'il fixait ce dernier symbole, Wang Lin prit une profonde inspiration et ses pupilles se rétractèrent. Ce tatouage ne dégageait aucune aura, mais son Sens Divin percevait clairement la pression intérieure.
 
 « C'est la pression de la lignée céleste! » En ressentant cette aura, Wang Lin recula de quelques pas. Ses yeux brillèrent et il leva sa main droite qui rayonnait d'or. L'énergie céleste de son corps se concentra au bout de son doigt, et il pointa le dernier tatouage.
 
@@ -67,4 +67,4 @@ L'aura familière était celle de l'Ancien Ye Mo! À l'instant où il la perçut
 
 « L'œil gauche a été arraché par la flèche de Li Guang et a disparu dans l'espace. Il y a une aura ancienne ici... Se pourrait-il que la 19ème couche soit l'endroit où l'œil gauche de Ye Mo est scellé?! » Le cœur de Wang Lin se mit à battre la chamade.
 
-« Cela doit être cela. Cet endroit contient à la fois la puissance de la lignée céleste et l'aura ancienne. À part l'œil gauche emporté par la flèche, il n'y a rien d'autre! Cet œil ne possédait pas initialement le pouvoir de la lignée céleste, mais la flèche de Li Guang qui l'a blessé en était dotée. En conséquence, les deux ont fusionné. Cette fusion est semblable à mon propre corps: elle génère une force de rejet. J'ignore ce que le Clan du Tatouage a fait pour transformer cette force de rejet en un sceau, mais grâce à cela, personne d'autre au monde n'a découvert que l'œil gauche de l'Ancien Ye Mo se trouve réellement ici!! »
+« Cela doit être cela. Cet endroit contient à la fois la puissance de la lignée céleste et l'aura ancienne. À part l'œil gauche emporté par la flèche, il n'y a rien d'autre! Cet œil ne possédait pas initialement le pouvoir de la lignée céleste, mais la flèche de Li Guang qui l'a blessé en était dotée. En conséquence, les deux ont fusionné. Cette fusion est semblable à mon propre corps: elle génère une force de rejet. J'ignore ce que le Clan Fu Wen a fait pour transformer cette force de rejet en un sceau, mais grâce à cela, personne d'autre au monde n'a découvert que l'œil gauche de l'Ancien Ye Mo se trouve réellement ici!! »

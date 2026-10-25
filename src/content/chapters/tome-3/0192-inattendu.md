@@ -34,13 +34,13 @@ Wang Lin fronça les sourcils et fixa Dou Mu. Juste au moment où il allait parl
 
 L'expression de Dou Mu resta sereine, dénuée de toute émotion.
 
-Le cœur de Wang Lin sombra. Il fixa Dou Mu et articula lentement: « Pour quitter la Terre du Dieu Ancien. »
+Le cœur de Wang Lin sombra. Il fixa Dou Mu et articula lentement: « Pour quitter la Terre Gu Shen. »
 
 Un grand cultivateur au visage rouge dit en fronçant les sourcils: « Dou Mu, tu es toujours aussi bavard. Petit gars, laisse-moi te dire les choses: dès que le sceau de Tuo Sen sera levé, tout le monde ici mourra. Lui sera le seul à partir. »
 
 « À l'époque, nous sommes arrivés à onze sur cette planète sauvage. Nous avions initialement prévu d'y établir une résidence. Mais nous ne nous attendions pas à découvrir que ce lieu recelait l'aura d'un Dieu Ancien. Après quelques investigations, nous avons rencontré un cultivateur nommé Tuo Sen à l'extérieur du corps du Dieu Ancien. Sa culture était extrêmement puissante. Même en unissant nos forces, nous n'étions pas de taille face à lui. » La voix du vieil homme aux cheveux roux était sonore et il parlait très vite. Dès qu'il eut fini, un autre cultivateur leva la tête et dit d'un ton lugubre:
 
-« Ce Tuo Sen ne nous a pas tués, mais nous a invités avec une sincérité extrême à entrer dans cette Terre du Dieu Ancien. Cet homme comprenait parfaitement ce lieu; il connaissait presque à fond les trois essais et les six voies qu'il renfermait. Selon lui, il avait l'œil sur cette terre du Dieu Ancien depuis fort longtemps, mais, hélas, il était resté bloqué à la porte du dernier niveau. »
+« Ce Tuo Sen ne nous a pas tués, mais nous a invités avec une sincérité extrême à entrer dans cette Terre Gu Shen. Cet homme comprenait parfaitement ce lieu; il connaissait presque à fond les trois essais et les six voies qu'il renfermait. Selon lui, il avait l'œil sur cette terre du Dieu Ancien depuis fort longtemps, mais, hélas, il était resté bloqué à la porte du dernier niveau. »
 
 « Il nous a invités à franchir ce niveau ensemble. Bien que les chances qu'une transmission existe dans le corps du Dieu Ancien fussent infimes, la tentation était trop grande. Certes, nous ne pouvions le vaincre, mais nous avions une formation d'épées conjointe que nous n'avions pas encore utilisée; une fois déployée, nous étions sûrs de l'emporter même contre lui. Cependant, son usage nous ferait perdre une immense partie de notre culture. »
 
@@ -56,7 +56,7 @@ Un grand cultivateur au visage rouge dit en fronçant les sourcils: « Dou Mu, t
 
 « Tuo Sen était terrifiant. Ces milliers de couches de sceaux, il a trouvé en peu de temps le moyen de les rompre. Ces sceaux étaient en réalité autant de fragments de conscience du Dieu Ancien Tu Si. Il les a arrachés de force et en a implanté un en chacun de nous dix. »
 
-« Depuis, pendant d'innombrables années, tous les mille ans, des cultivateurs venaient parfois ici. Ils étaient tous capturés par lui et se voyaient disperser des fragments de sceau dans le corps. Mais à chaque fois, il laissait finalement s'échapper une personne, qui parvenait à fuir la Terre du Dieu Ancien grâce à diverses coïncidences, pour que d'autres reviennent la fois suivante. »
+« Depuis, pendant d'innombrables années, tous les mille ans, des cultivateurs venaient parfois ici. Ils étaient tous capturés par lui et se voyaient disperser des fragments de sceau dans le corps. Mais à chaque fois, il laissait finalement s'échapper une personne, qui parvenait à fuir la Terre Gu Shen grâce à diverses coïncidences, pour que d'autres reviennent la fois suivante. »
 
 « À mesure que le nombre de cultivateurs augmentait, les sceaux sur Tuo Sen diminuaient. Heureusement, les nouveaux arrivants différaient de nous: leur culture était si médiocre qu'elle ne suffisait pas à fusionner avec un fragment; il fallait souvent plusieurs personnes pour en partager un. Cela rendait la levée des sceaux de Tuo Sen de plus en plus lente. »
 

@@ -8,7 +8,7 @@ slug: comprendre-la-vérité
 ---
 Maître Yi Chen semblait avoir atteint une certaine illumination. Il tenait sa coupe de vin sans la reposer pendant un long moment.
 
-« Le frère Wang fait-il référence au Système Stellaire de Luotian lorsqu'il évoque les familles cultivatrices? » Maître Yi Long afficha un air d'intérêt. Après que Wang Lin eut acquiescé, Maître Yi Long poursuivit: « En parlant du Système Stellaire de Luotian, ils sont en effet bien différents. Il est stupéfiant qu'ils aient pu progresser autant en se concentrant sur les familles cultivatrices. Si l'Alliance de la Culture ne me l'avait pas dit, je ne l'aurais pas cru. »
+« Le frère Wang fait-il référence au Système Stellaire de Luotian lorsqu'il évoque les familles cultivatrices? » Maître Yi Long afficha un air d'intérêt. Après que Wang Lin eut acquiescé, Maître Yi Long poursuivit: « En parlant du Système Stellaire de Luotian, ils sont en effet bien différents. Il est stupéfiant qu'ils aient pu progresser autant en se concentrant sur les familles cultivatrices. Si l'Alliance Xiu Zhen ne me l'avait pas dit, je ne l'aurais pas cru. »
 
 « La bataille de Luotian contre l'Alliance au nord a contraint cette dernière à battre en retraite. Leur puissance ne doit pas être sous-estimée. »
 
@@ -46,7 +46,7 @@ Une fois que les paroles de Maître Yi Xing eurent dissipé le brouillard dans s
 
 « Combiné à ce qu'il a dit sur les changements de climat, cela signifie que la personne dont il avait peur était Tian Yunzi. La personne qui l'a rendu ainsi était probablement aussi Tian Yunzi! »
 
-« C'est la véritable raison pour laquelle il m'a demandé de quitter la Secte du Destin Céleste! » Wang Lin se leva soudainement, joignit les mains en signe de respect envers les trois frères Chen et déclara: « Trois compagnons cultivateurs, j'ai une affaire urgente à régler, je ne vous dérangerai plus! » Après avoir parlé, il attrapa Xu Liguo et le jeta dans son sac. Puis, d'un pas, il disparut.
+« C'est la véritable raison pour laquelle il m'a demandé de quitter la Secte Tian Yun! » Wang Lin se leva soudainement, joignit les mains en signe de respect envers les trois frères Chen et déclara: « Trois compagnons cultivateurs, j'ai une affaire urgente à régler, je ne vous dérangerai plus! » Après avoir parlé, il attrapa Xu Liguo et le jeta dans son sac. Puis, d'un pas, il disparut.
 
 Les trois frères Chen restèrent profondément perplexes. Après avoir réfléchi un instant, ils ne purent en trouver la raison.
 

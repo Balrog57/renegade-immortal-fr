@@ -42,7 +42,7 @@ Après une profonde inspiration, les yeux de Wang Lin brillèrent d'une lueur in
 
 Dans un éclat de lumière dorée, une énergie spirituelle céleste emplit l'air, et un pavillon de la taille d'une paume apparut dans la main de Wang Lin. Même à cet instant, le cœur de Wang Lin s'emballa et une excitation fébrile illumina son regard lorsqu'il posa les yeux sur l'objet.
 
-« Si l'on me demandait quelle a été ma plus grande récolte dans le Royaume Céleste du Tonnerre, ce serait celle-ci! Le Pavillon des Collections! » Wang Lin se lécha les lèvres. Il avait craint de le sortir après l'avoir obtenu, car il était tout simplement trop précieux!
+« Si l'on me demandait quelle a été ma plus grande récolte dans le Royaume Céleste du Tonnerre, ce serait celle-ci! Le Pavillon Cang Jue! » Wang Lin se lécha les lèvres. Il avait craint de le sortir après l'avoir obtenu, car il était tout simplement trop précieux!
 
 « Combien de sorts célestes se cachent là-dedans... » Les yeux de Wang Lin étaient remplis d'excitation, mais il parvint à la réprimer un instant plus tard.
 
@@ -52,7 +52,7 @@ Wang Lin réprima son désir avant de prendre une profonde inspiration et de ran
 
 Puis, il sortit un sac de rechange et y plaça le pavillon. Il ouvrit sa chemise, incisa son torse et y inséra le sac. La blessure se referma rapidement sous l'effet de son énergie originelle.
 
-« De cette façon, personne ne saura où se trouve le Pavillon des Collections! » Wang Lin toucha sa poitrine en affichant un sourire.
+« De cette façon, personne ne saura où se trouve le Pavillon Cang Jue! » Wang Lin toucha sa poitrine en affichant un sourire.
 
 Il portait encore plusieurs sacs de rangement remplis de jades célestes. La quantité de jades était phénoménale, tous obtenus dans le Royaume Céleste du Tonnerre.
 
@@ -62,7 +62,7 @@ Après près de deux mois, Wang Lin organisa les fruits de son voyage dans le Ro
 
 La grenouille tonitruante au sol roula des yeux et bondit avec fracas, suivant la bête moustique.
 
-Lorsqu'ils approchèrent de la zone résidentielle du Clan des Immortels Élus, les yeux de Wang Lin se plissèrent. Il vit que tous étaient agenouillés sur la grande place, y compris les femmes et les enfants.
+Lorsqu'ils approchèrent de la zone résidentielle du Clan Xian Xuan, les yeux de Wang Lin se plissèrent. Il vit que tous étaient agenouillés sur la grande place, y compris les femmes et les enfants.
 
 Au centre de la place se trouvait une plateforme en bois de dix mètres de large. Une personne y était allongée: c'était Ta Shan!
 
@@ -74,7 +74,7 @@ On pouvait dire que Ta Shan fut le premier à résister, mais la conséquence fu
 
 Il avait tenu deux mois, mais aujourd'hui, il avait atteint son terme et ne pouvait plus survivre.
 
-À côté de Ta Shan, l'ancêtre du Clan des Immortels Élus était accablé de chagrin. Deux traînées de larmes coulaient sur ses joues.
+À côté de Ta Shan, l'ancêtre du Clan Xian Xuan était accablé de chagrin. Deux traînées de larmes coulaient sur ses joues.
 
 Le vieil homme murmura doucement: « Petit-fils... » Il ne l'avait pas appelé ainsi depuis bien longtemps.
 
@@ -83,7 +83,7 @@ L'entourage était plongé dans un silence total, mais une puissante tristesse i
 « Ta Shan... »
 « Ta Shan... »
 
-Des murmures s'élevèrent progressivement de la part des membres du clan. Ces voix fusionnèrent pour ne former qu'un seul cri, représentant l'âme entière du Clan des Immortels Élus.
+Des murmures s'élevèrent progressivement de la part des membres du clan. Ces voix fusionnèrent pour ne former qu'un seul cri, représentant l'âme entière du Clan Xian Xuan.
 
 « Ta Shan... »
 
@@ -126,6 +126,6 @@ Une voix après l'autre, jusqu'à ce que cela forme une véritable tempête!
 
 Tandis qu'il méditait, Wang Lin regarda Ta Shan. Après un long moment, il murmura: « Je peux faire en sorte qu'il ne meure pas! »
 
-Bien que sa voix fût douce, lorsqu'elle atteignit les oreilles des membres du Clan des Immortels Élus, et particulièrement celles du vieil homme, leurs corps tremblèrent. Les yeux de ce dernier s'emplirent d'espoir et il marcha vers Wang Lin. Il s'agenouilla à 33 mètres de lui, les larmes coulant sur ses joues: « Bienfaiteur, est-ce vrai? »
+Bien que sa voix fût douce, lorsqu'elle atteignit les oreilles des membres du Clan Xian Xuan, et particulièrement celles du vieil homme, leurs corps tremblèrent. Les yeux de ce dernier s'emplirent d'espoir et il marcha vers Wang Lin. Il s'agenouilla à 33 mètres de lui, les larmes coulant sur ses joues: « Bienfaiteur, est-ce vrai? »
 
 Wang Lin réfléchit un instant et répondit lentement: « J'en suis sûr à 50 %! Cependant, si mon sort réussit, bien que Ta Shan ne meure pas, il deviendra une marionnette sans conscience. S'il parvient à la retrouver, cela dépendra de lui seul. »

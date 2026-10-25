@@ -32,7 +32,7 @@ Le deuxième à être projeté fut le Grand Empyréen Wu Feng. Il affichait un s
 
 Le troisième à s'envoler fut le Grand Empyréen Jiu Di. Il fronça les sourcils en quittant la lumière dorée. D'un revers de manche, il fit disparaître l'éclat doré.
 
-« Wang Lin, ce vieil homme attendra ta réponse au Mont de l'Empereur! » Le Grand Empyréen Jiu Di se sentait plutôt impuissant. Sa main droite plongea dans le vide et il disparut avec l'Exalté Empyréen Hai Zi.
+« Wang Lin, ce vieil homme attendra ta réponse au Mont Di! » Le Grand Empyréen Jiu Di se sentait plutôt impuissant. Sa main droite plongea dans le vide et il disparut avec l'Exalté Empyréen Hai Zi.
 
 Tout cela se produisit en un éclair. Les trois Grands Empyréens avaient été contraints de battre en retraite face à l'action démente de Shuangzi.
 

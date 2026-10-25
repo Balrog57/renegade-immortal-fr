@@ -98,9 +98,9 @@ Toutefois, comparée à sa propre vie, cette pierre de jade n'était rien. Les y
 
 Liu Jinbiao continuait de se prosterner, terrifié par Wang Lin, implorant sa grâce.
 
-« Cette pierre de jade est trop troublante. Huit simples centipèdes ont pu cultiver jusqu'au stade proche du Briseur du Nirvana! Ce Liu Jinbiao a pu agir à sa guise dans la Mer des Nuages. Il a trompé d'innombrables personnes sans jamais être démasqué! » Wang Lin prit une profonde inspiration. Il ne voulait plus entendre les lamentations de Liu Jinbiao. D'un revers de manche, il envoya immédiatement l'homme dans son espace de stockage.
+« Cette pierre de jade est trop troublante. Huit simples centipèdes ont pu cultiver jusqu'au stade proche du Briseur du Nirvana! Ce Liu Jinbiao a pu agir à sa guise dans la Mer Yun. Il a trompé d'innombrables personnes sans jamais être démasqué! » Wang Lin prit une profonde inspiration. Il ne voulait plus entendre les lamentations de Liu Jinbiao. D'un revers de manche, il envoya immédiatement l'homme dans son espace de stockage.
 
-« Le crime de cet homme ne mérite effectivement pas la mort. Il a trompé autrui pendant des années, mais cela ne me concerne pas. Cependant, il a tenté de duper la Secte de l'Origine, il doit donc recevoir une légère punition! Xu Liguo, tu te plains toujours de ta solitude, je te donne donc cet homme. Donne-lui une bonne leçon ou deux! » Le sens divin de Wang Lin se posa sur Xu Liguo, qui ne s'était pas manifesté depuis longtemps.
+« Le crime de cet homme ne mérite effectivement pas la mort. Il a trompé autrui pendant des années, mais cela ne me concerne pas. Cependant, il a tenté de duper la Secte Gui Yuan, il doit donc recevoir une légère punition! Xu Liguo, tu te plains toujours de ta solitude, je te donne donc cet homme. Donne-lui une bonne leçon ou deux! » Le sens divin de Wang Lin se posa sur Xu Liguo, qui ne s'était pas manifesté depuis longtemps.
 
 Xu Liguo était déprimé et maudissait en son cœur depuis cent ans. Les beautés lui manquaient, et il pensait surtout aux méfaits qu'il avait commis à Luotian; il aspirait constamment à les revivre.
 

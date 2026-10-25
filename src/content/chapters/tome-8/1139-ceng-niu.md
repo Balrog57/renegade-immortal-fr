@@ -8,19 +8,19 @@ slug: ceng-niu
 ---
 Alors que Wang Lin marchait lentement à travers la jungle, de petits serpents se glissaient dans la boue. Il aperçut également des crapauds de la taille d'un poing bondissant entre la fange et l'eau; ils semblaient apprécier la pluie.
 
-Wang Lin avait le sentiment que tout était étrange depuis son entrée dans la Mer des Nuages. Ignorant où il se trouvait, il commença à songer tandis qu'il progressait dans la boue.
+Wang Lin avait le sentiment que tout était étrange depuis son entrée dans la Mer Yun. Ignorant où il se trouvait, il commença à songer tandis qu'il progressait dans la boue.
 
 Il était venu ici pour échapper à Tuo Sen, mais avec la puissance de ce dernier, celui-ci pourrait aisément briser la barrière entre les deux systèmes stellaires. Il semblait que le moment venu, il n'aurait plus aucun endroit où se cacher.
 
-« Plutôt que de fuir sans cesse, je dois établir une assise dans la Mer des Nuages dès que possible. Une fois que mon corps original aura surmonté les Trois Épreuves et les Sept Calamités, je réfléchirai alors à un chemin pour l'avenir... » Wang Lin baissa les yeux vers ses jambes sous sa taille; une pointe d'inquiétude perçait dans son regard.
+« Plutôt que de fuir sans cesse, je dois établir une assise dans la Mer Yun dès que possible. Une fois que mon corps original aura surmonté les Trois Épreuves et les Sept Calamités, je réfléchirai alors à un chemin pour l'avenir... » Wang Lin baissa les yeux vers ses jambes sous sa taille; une pointe d'inquiétude perçait dans son regard.
 
-« Le plus important est de me fondre dans la Mer des Nuages en adoptant l'identité d'un cultivateur de cette région... » Wang Lin leva les yeux vers la pluie tombante. Tout comme la neige de l'Alliance qui se mêlait à l'averse, il devait lui aussi opérer cette fusion.
+« Le plus important est de me fondre dans la Mer Yun en adoptant l'identité d'un cultivateur de cette région... » Wang Lin leva les yeux vers la pluie tombante. Tout comme la neige de l'Alliance qui se mêlait à l'averse, il devait lui aussi opérer cette fusion.
 
 Au fil de sa progression, son corps rétrécit graduellement et ses cheveux devinrent lentement noirs. Son apparence changea légèrement pour ressembler à celle d'un érudit ordinaire et pauvre. Il finit par sortir de la jungle pluvieuse.
 
 La saison des pluies sur le continent de Mo Luo durait plusieurs mois. Ce n'est que lorsque la terre serait totalement saturée d'humidité, que les os des gens commenceraient à souffrir et que l'odeur de rouille imprégnerait l'air, que la pluie s'arrêterait enfin.
 
-Qu'il s'agisse de cultivateurs ou de mortels, tous sur le continent de Mo Luo étaient accoutumés à cela. Les cultivateurs se consacraient soit à une culture en méditation fermée durant cette saison, soit quittaient le continent pour chasser les bêtes féroces. Cependant, pendant ces mois pluvieux, presque tous les membres de l'unique secte du continent, la Secte de l'Origine, sortaient sous l'averse pour se diriger vers la zone septentrionale.
+Qu'il s'agisse de cultivateurs ou de mortels, tous sur le continent de Mo Luo étaient accoutumés à cela. Les cultivateurs se consacraient soit à une culture en méditation fermée durant cette saison, soit quittaient le continent pour chasser les bêtes féroces. Cependant, pendant ces mois pluvieux, presque tous les membres de l'unique secte du continent, la Secte Gui Yuan, sortaient sous l'averse pour se diriger vers la zone septentrionale.
 
 Des rayons de lumière emplissaient le ciel, semblant tracer un chemin à travers la pluie. Pour quiconque regardait depuis le sol, la scène ressemblait à une pluie de météores.
 
@@ -36,7 +36,7 @@ Lorsque les villageois revenaient, leurs familles sortaient toutes les accueilli
 
 Cependant, lorsque les villageois de l'Eau du Nord revinrent de la jungle cette fois-ci, en plus des sacs de crapauds, ils ramenèrent également un homme. C'était un jeune homme très ordinaire, à l'allure très mince. Semblant incapable de supporter le froid, il portait l'imperméable qu'un villageois lui avait offert. Il se tenait là, silencieux, l'expression étrange. Une pointe de mélancolie et de nostalgie émanait de lui tandis qu'il contemplait silencieusement le village devant lui.
 
-« Petit frère Ceng, voici notre Village de l'Eau du Nord. Tu peux vivre ici quelque temps jusqu'à la fin de la saison des pluies. Ensuite, tu n'auras qu'à suivre le sentier de montagne pour rejoindre la Cité du Printemps. » Un homme corpulent en imperméable passa le sac de crapauds à un autre et sourit à Wang Lin.
+« Petit frère Ceng, voici notre Village de l'Eau du Nord. Tu peux vivre ici quelque temps jusqu'à la fin de la saison des pluies. Ensuite, tu n'auras qu'à suivre le sentier de montagne pour rejoindre la Cité Chun. » Un homme corpulent en imperméable passa le sac de crapauds à un autre et sourit à Wang Lin.
 
 Wang Lin esquissa un sourire, joignit les mains et exprima sa gratitude.
 
@@ -64,7 +64,7 @@ Si le temps continuait de passer et qu'il pouvait oublier la menace de Tuo Sen, 
 
 Il aimait cette existence paisible et appréciait la joie de vivre du village. Pourtant, Wang Lin savait que ce genre de vie n'était qu'un bref éclat de soleil au milieu de la saison des pluies: elle allait bientôt disparaître.
 
-Les cultivateurs de la Secte de l'Origine arrivèrent dans la partie nord du continent de Mo Luo. Ils cherchèrent sans relâche, et emmenèrent un à un les mortels aptes à la culture. Certains étaient jeunes, d'autres d'âge mûr. Quant aux anciens aux cheveux blancs, ils les examinèrent également, mais aucun n'était qualifié. Même s'il y en avait eu, à cet âge ils ne pourraient rien accomplir avant de mourir.
+Les cultivateurs de la Secte Gui Yuan arrivèrent dans la partie nord du continent de Mo Luo. Ils cherchèrent sans relâche, et emmenèrent un à un les mortels aptes à la culture. Certains étaient jeunes, d'autres d'âge mûr. Quant aux anciens aux cheveux blancs, ils les examinèrent également, mais aucun n'était qualifié. Même s'il y en avait eu, à cet âge ils ne pourraient rien accomplir avant de mourir.
 
 Ce jour-là, un cultivateur arriva au Village de l'Eau du Nord. Il paraissait n'avoir pas plus de vingt ans, mais il se trouvait déjà au stade de l'Établissement des Fondations. À son âge et avec un tel niveau de culture, il pouvait être considéré comme un prodige parmi la jeune génération.
 
@@ -90,6 +90,6 @@ Les villageois furent stupéfaits. Ils saisirent rapidement leurs enfants et se 
 
 Dans la nuit pluvieuse, Wang Lin marchait en tête et Zhao Yu suivait derrière. Ce dernier n'était plus confus, mais il semblait avoir perdu son âme.
 
-Les activités de la Secte de l'Origine durèrent près d'un mois, et ils rassemblèrent 31 mortels de la partie nord du continent de Mo Luo. Parmi eux, 17 étaient des adolescents et les autres des jeunes adultes. Tous furent envoyés à la Secte de l'Origine dans l'est du continent de Mo Luo, pour s'installer dans le bassin entouré d'une chaîne de montagnes circulaire.
+Les activités de la Secte Gui Yuan durèrent près d'un mois, et ils rassemblèrent 31 mortels de la partie nord du continent de Mo Luo. Parmi eux, 17 étaient des adolescents et les autres des jeunes adultes. Tous furent envoyés à la Secte Gui Yuan dans l'est du continent de Mo Luo, pour s'installer dans le bassin entouré d'une chaîne de montagnes circulaire.
 
-Les quatre Grands Anciens de la Secte de l'Origine accordèrent une grande importance à ces 31 individus, qui furent répartis entre eux. Parmi les sept personnes choisies par la seule femme de l'ordre, la Grande Ancienne Lu Yanfei, se trouvait un jeune homme nommé Ceng Niu, originaire du Village de l'Eau du Nord.
+Les quatre Grands Anciens de la Secte Gui Yuan accordèrent une grande importance à ces 31 individus, qui furent répartis entre eux. Parmi les sept personnes choisies par la seule femme de l'ordre, la Grande Ancienne Lu Yanfei, se trouvait un jeune homme nommé Ceng Niu, originaire du Village de l'Eau du Nord.

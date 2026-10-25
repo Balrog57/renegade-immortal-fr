@@ -6,21 +6,21 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1081 - Dream of Ancient Times
 slug: reve-des-temps-anciens
 ---
-À cet instant précis, des rayons de lumière apparurent au sein de l'espace infini. Ces éclats étaient d'une rapidité fulgurante et traversèrent le ciel déchiré pour s'engouffrer dans la Terre des Esprits Démoniaques.
+À cet instant précis, des rayons de lumière apparurent au sein de l'espace infini. Ces éclats étaient d'une rapidité fulgurante et traversèrent le ciel déchiré pour s'engouffrer dans la Terre Yao Ling.
 
 Un être céleste, imprégné d'une immense énergie spirituelle céleste, menait la charge! Derrière lui, de nombreux autres êtres célestes avaient également ouvert la voie par le massacre. Une multitude de cultivateurs de l'Alliance arrivèrent et encerclèrent la zone.
 
-Pour l'Alliance des Cultivateurs, qu'il s'agisse des Quatre Sectes Divines, de Tian Yunzi ou de l'Ancien Démon Ta Jia, tous étaient des ennemis! Même ces êtres célestes ne voulaient pas que Qing Lin s'éveille; ils préféraient que l'ancien démon occupe son corps.
+Pour l'Alliance Xiu Zhen, qu'il s'agisse des Quatre Sectes Divines, de Tian Yunzi ou de l'Ancien Démon Ta Jia, tous étaient des ennemis! Même ces êtres célestes ne voulaient pas que Qing Lin s'éveille; ils préféraient que l'ancien démon occupe son corps.
 
 Cependant, l'ancien démon était un être qu'ils devaient impérativement éliminer!
 
 La renommée de Qing Lin suffisait à terrifier les restes des êtres célestes. Même le Seigneur Céleste qui menait l'assaut avait autrefois témoigné un immense respect envers Qing Lin; il n'osait même pas nourrir la moindre pensée de rébellion.
 
-Pourtant, ces êtres célestes avaient été vénérés durant d'innombrables années grâce à l'Alliance des Cultivateurs, et aucun d'entre eux ne voulait renoncer à ses acquis pour retourner au passé.
+Pourtant, ces êtres célestes avaient été vénérés durant d'innombrables années grâce à l'Alliance Xiu Zhen, et aucun d'entre eux ne voulait renoncer à ses acquis pour retourner au passé.
 
 Par conséquent, ils refusaient le réveil de Qing Lin! L'ancien démon devait mourir!
 
-« Formez la formation! » Dès qu'ils pénétrèrent dans la Terre des Esprits Démoniaques, l'ancien Seigneur Céleste poussa un rugissement. Les cultivateurs de l'Alliance formèrent rapidement des sceaux. Alors qu'une énergie originelle infinie emplissait le ciel, neuf épées géantes et étincelantes apparurent!
+« Formez la formation! » Dès qu'ils pénétrèrent dans la Terre Yao Ling, l'ancien Seigneur Céleste poussa un rugissement. Les cultivateurs de l'Alliance formèrent rapidement des sceaux. Alors qu'une énergie originelle infinie emplissait le ciel, neuf épées géantes et étincelantes apparurent!
 
 Ces neuf épées colossales flottèrent dans les airs, encerclant une zone de cinquante kilomètres.
 
@@ -36,7 +36,7 @@ Sous la force du choc, la colonne s'écrasa en un tas de gravats. Une épaisse c
 
 Wang Lin bondit dans les airs et chargea Tian Yunzi.
 
-L'apparition soudaine de l'Alliance des Cultivateurs et le sortilège de Wang Lin captèrent l'attention de Tian Yunzi. Son expression devint extrêmement sombre; utilisant son trident, il repoussa Mu Bingmei en criant: « Puisque tu cherches la mort, je vais exaucer ton vœu! »
+L'apparition soudaine de l'Alliance Xiu Zhen et le sortilège de Wang Lin captèrent l'attention de Tian Yunzi. Son expression devint extrêmement sombre; utilisant son trident, il repoussa Mu Bingmei en criant: « Puisque tu cherches la mort, je vais exaucer ton vœu! »
 
 Mu Bingmei hésita un instant, mais la voix glaciale de Wang Lin retentit aussitôt: « Je n'ai pas besoin de ton aide!!! Quant à la pilule d'autrefois, je trouverai le moyen de te le rendre plusieurs fois! Quant au fait de m'avoir sauvé la vie, j'aurai sûrement l'occasion de te le rembourser plusieurs fois également! »
 
@@ -68,7 +68,7 @@ Mais avant qu'il n'ait pu achever son geste, une paume gigantesque descendit du 
 
 Les grondements de tonnerre continuèrent de résonner tandis que la terre tremblait violemment. Après l'impact du premier poing, une paire de pieds colossaux s'abattit au sol dans un bruit sourd.
 
-Simultanément, un changement inimaginable se produisit dans l'espace surplombant la Terre des Esprits Démoniaques. Le ciel gronda et un vortex immense apparut, tournant à une vitesse prodigieuse.
+Simultanément, un changement inimaginable se produisit dans l'espace surplombant la Terre Yao Ling. Le ciel gronda et un vortex immense apparut, tournant à une vitesse prodigieuse.
 
 Ce vortex était vaste et sans limites, engloutissant toutes les planètes de la zone. Des scènes d'un réalisme saisissant commencèrent à se manifester.
 
@@ -94,7 +94,7 @@ Au sol, d'innombrables cultivateurs raffineurs de Qi s'agitaient, mais ils étai
 
 Ce champ de bataille était d'une démesure absolue. Le vortex parmi les étoiles ne montrait qu'un infime fragment du conflit!
 
-Soudain, tous ceux qui se trouvaient dans la Terre des Esprits Démoniaques remarquèrent que celle-ci avait disparu...
+Soudain, tous ceux qui se trouvaient dans la Terre Yao Ling remarquèrent que celle-ci avait disparu...
 
 Tout ce qu'ils connaissaient s'était évanoui; ils avaient été projetés au cœur même de la bataille. Le paysage environnant était d'un réalisme terrifiant!
 
@@ -110,7 +110,7 @@ Un grondement tonnerre accompagna son passage; ses ailes étaient comme des lame
 
 Lorsque l'Ancien Démon Ta Jia vit cela, la terreur se lut dans ses yeux.
 
-« Les temps primordiaux!! Serait-ce un champ de bataille primordial? » haleta le vieil homme du Royaume du Vide Brillant.
+« Les temps primordiaux!! Serait-ce un champ de bataille primordial? » haleta le vieil homme du Royaume Kun Xu.
 
 C'était là le trésor salvateur que le dieu ancien 8 étoiles avait laissé au sein du bouclier de lumière azur. Le sort de survie d'un dieu ancien 8 étoiles ne pouvait être une simple formalité!
 

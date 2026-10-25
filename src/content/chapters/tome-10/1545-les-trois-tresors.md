@@ -102,7 +102,7 @@ Les deux se contemplèrent un moment avant qu'une tête ne surgisse du second ra
 
 Wang Lin lança un dernier regard au fou avant de se détourner et de s'éloigner dans la distance. Avec Xu Liguo, qui possédait un niveau de culture décent, et Liu Jinbiao, qui excellait à lire les visages et les humeurs, ce fou devrait être en sécurité sur cette planète protégée.
 
-Il pouvait donc être serein. Il chargea alors droit vers le siège de l'Alliance de Culture!
+Il pouvait donc être serein. Il chargea alors droit vers le siège de l'Alliance Xiu Zhen!
 
 « Senior Frère Qing Shui, Wang Lin arrive! »
 

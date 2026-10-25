@@ -52,9 +52,9 @@ Cette rune avait été imprimée sur la terre par un sortilège et occupait la m
 
 En voyant ce gravier s'envoler et disparaître, Wang Lin eut l'impression d'être frappé par la foudre. Il fixa l'endroit où les débris s'éparpillaient et fut saisi de stupeur! La raison de son intuition étrange venait de lui apparaître!
 
-Ce continent sauvage était parfaitement immobile! Les continents de la Mer des Nuages n'étaient pas stationnaires, mais dérivaient lentement à travers l'espace. Ce mouvement était si lent qu'il était difficile à détecter, mais il était bien réel. Les mortels ne le percevraient jamais, mais une fois un certain niveau de culture atteint, on pouvait vaguement le ressentir en s'apaisant.
+Ce continent sauvage était parfaitement immobile! Les continents de la Mer Yun n'étaient pas stationnaires, mais dérivaient lentement à travers l'espace. Ce mouvement était si lent qu'il était difficile à détecter, mais il était bien réel. Les mortels ne le percevraient jamais, mais une fois un certain niveau de culture atteint, on pouvait vaguement le ressentir en s'apaisant.
 
-Wang Lin n'était pas un cultivateur natif de la Mer des Nuages. Son ancien système stellaire était composé de planètes et non de continents flottants. Par conséquent, cette différence lui apparut avec une clarté absolue. Un cultivateur local aurait pu facilement passer à côté de ce détail.
+Wang Lin n'était pas un cultivateur natif de la Mer Yun. Son ancien système stellaire était composé de planètes et non de continents flottants. Par conséquent, cette différence lui apparut avec une clarté absolue. Un cultivateur local aurait pu facilement passer à côté de ce détail.
 
 « Un continent sauvage immobile... » Les yeux de Wang Lin brillèrent.
 
@@ -78,7 +78,7 @@ Une fissure aux sept couleurs apparut là où se trouvait auparavant le centre d
 
 « C'est donc ça! » haleta le garçon en fixant la faille, surexcité. Ses traits étaient déjà déformés par l'émotion, et sous l'effet de cette excitation, son visage devint proprement terrifiant.
 
-« Quel coup d'éclat! » L'homme robuste, Chen Tianjun de la Secte de la Bête de Bataille, observa Cang Songzi avant de reporter son regard sur la fissure aux sept couleurs.
+« Quel coup d'éclat! » L'homme robuste, Chen Tianjun de la Secte Yi Shou, observa Cang Songzi avant de reporter son regard sur la fissure aux sept couleurs.
 
 « Ce continent sauvage n'était pas censé être ici. Jadis, je suis passé par là par accident au moment même où la fissure est apparue. Par la suite, pour la dissimuler, j'ai déplacé un continent pour la recouvrir afin que les étrangers ne la trouvent pas! » expliqua Cang Songzi avec une pointe de fierté dans la voix.
 

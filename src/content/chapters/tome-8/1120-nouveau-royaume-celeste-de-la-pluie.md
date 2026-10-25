@@ -22,7 +22,7 @@ Hu Juan, qui s'était redressée en se mordant la lèvre inférieure, regardait 
 
 Qing Lin esquissa un léger sourire tout en observant attentivement ce couple, ses deux disciples, et dit doucement: « Vous avez travaillé dur durant toutes ces années... »
 
-« Maître! » Le corps de Wang Wei trembla violemment et deux larmes coulèrent de ses yeux. Il avait attendu d'innombrables années le réveil de Qing Lin. Pour que ce moment advienne, il avait vécu pendant de longues années dans la Terre des Esprits Démoniaques. Tout cela n'avait qu'un seul but: témoigner sa gratitude à Qing Lin pour l'avoir accepté comme disciple!
+« Maître! » Le corps de Wang Wei trembla violemment et deux larmes coulèrent de ses yeux. Il avait attendu d'innombrables années le réveil de Qing Lin. Pour que ce moment advienne, il avait vécu pendant de longues années dans la Terre Yao Ling. Tout cela n'avait qu'un seul but: témoigner sa gratitude à Qing Lin pour l'avoir accepté comme disciple!
 
 Wang Wei n'oublierait jamais qu'il n'était alors qu'un simple et peu célèbre raffineur de Qi. C'était son maître qui lui avait offert une nouvelle vie, la chance d'atteindre les sommets de la culture, et une existence empreinte de bonheur.
 

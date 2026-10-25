@@ -28,7 +28,7 @@ L'autre femme, Liu Mei, était également entrée dans le cœur de Wang Lin, mai
 
 Le cœur de Wang Lin était mort et fut lacéré par autrui. Il était impuissant... il valait mieux s'oublier mutuellement.
 
-Le départ de Li Qianmei et l'étalage de ses cheveux bleus révélèrent son identité. Dans toute la Mer des Nuages, elle était la seule à posséder une telle chevelure.
+Le départ de Li Qianmei et l'étalage de ses cheveux bleus révélèrent son identité. Dans toute la Mer Yun, elle était la seule à posséder une telle chevelure.
 
 Elle n'était pas obligée de le faire, mais elle l'avait fait.
 
@@ -52,11 +52,11 @@ Le lettré en blanc qui connaissait Wang Lin dit doucement: « 5 000 jades céle
 
 L'Ancien de la Secte des Sorts Dao, assis sur l'une des tablettes à l'avant, déclara calmement: « 10 000 jades célestes! »
 
-Personne d'autre n'enchérissait pour cette pierre. Hormis quelques cultivateurs puissants, la plupart la jugeaient sans valeur. Cependant, plus tôt, lorsque Wang Lin avait remis ses objets à la Secte du Jade Précieux, tout le monde avait pu clairement voir la forme de ces deux trésors.
+Personne d'autre n'enchérissait pour cette pierre. Hormis quelques cultivateurs puissants, la plupart la jugeaient sans valeur. Cependant, plus tôt, lorsque Wang Lin avait remis ses objets à la Secte Bao Yu, tout le monde avait pu clairement voir la forme de ces deux trésors.
 
 Tous savaient que cette pierre de montagne appartenait à Wang Lin.
 
-Dépenser seulement 10 000 jades célestes pour se lier d'amitié avec Wang Lin était un prix que ces cultivateurs étaient prêts à payer. Dans la Mer des Nuages, 10 000 jades célestes n'était pas une somme dérisoire.
+Dépenser seulement 10 000 jades célestes pour se lier d'amitié avec Wang Lin était un prix que ces cultivateurs étaient prêts à payer. Dans la Mer Yun, 10 000 jades célestes n'était pas une somme dérisoire.
 
 L'expression de Wang Lin resta neutre tandis que sa main droite traçait un sceau; une restriction s'élança vers la pierre de montagne. Elle se posa sur le rocher et une ondulation résonna avant de disparaître. Une aura ancienne se propagea soudainement depuis la pierre.
 
@@ -80,7 +80,7 @@ Un silence absolu tomba sur l'assemblée. Personne d'autre n'osa enchérir et, f
 
 Bien que cette pierre de montagne fût rare, elle n'avait provoqué qu'un léger remous lors de l'enchère. Cependant, le choc suscité par l'objet suivant dépassa tout ce que Wang Lin pouvait imaginer.
 
-« Ce trésor est une armure! » L'Ancien de la Secte du Jade Précieux prit une profonde inspiration, une pointe de doute et d'excitation dans les yeux. Il agita sa main droite et un amas de gaz noir apparut, laissant deviner la forme vague d'une armure à l'intérieur.
+« Ce trésor est une armure! » L'Ancien de la Secte Bao Yu prit une profonde inspiration, une pointe de doute et d'excitation dans les yeux. Il agita sa main droite et un amas de gaz noir apparut, laissant deviner la forme vague d'une armure à l'intérieur.
 
 Dès l'apparition de ce gaz noir, les expressions de certains cultivateurs changèrent et ils se figèrent. Parmi eux figuraient le vieil homme au visage balafré, le lettré en blanc et sa compagnie.
 
@@ -108,7 +108,7 @@ L'Ancien de la Secte des Sorts Dao joignit les mains vers Wang Lin: « Collègue
 
 Sa question plongea immédiatement l'assemblée dans le silence. Tous les regards se tournèrent vers Wang Lin.
 
-Wang Lin restait calme en contemplant l'armure démoniaque. Il n'avait pas imaginé que cet objet serait lié à la Secte Divine. Un intérêt marqué pour la Secte Divine de la Mer des Nuages naquit dans son cœur.
+Wang Lin restait calme en contemplant l'armure démoniaque. Il n'avait pas imaginé que cet objet serait lié à la Secte Divine. Un intérêt marqué pour la Secte Divine de la Mer Yun naquit dans son cœur.
 
 Wang Lin dit simplement: « Je ne veux que des cristaux d'origine. »
 
@@ -136,4 +136,4 @@ Le jeune homme en jaune fronça les sourcils: « 18 000 cristaux d'origine! »
 
 « 3... 30 000 cristaux d'origine! » La sueur perla sur le front d'Ouyang Long.
 
-« Tu n'es qu'un membre de la Secte du Jade Précieux de rang 5; d'où sors-tu autant de cristaux d'origine?! » Le jeune homme en jaune se leva et foudroya Ouyang Long du regard. Une intention meurtrière brilla dans ses yeux, ayant reconnu l'identité d'Ouyang Long.
+« Tu n'es qu'un membre de la Secte Bao Yu de rang 5; d'où sors-tu autant de cristaux d'origine?! » Le jeune homme en jaune se leva et foudroya Ouyang Long du regard. Une intention meurtrière brilla dans ses yeux, ayant reconnu l'identité d'Ouyang Long.

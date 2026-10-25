@@ -84,7 +84,7 @@ Le visage de Wang Lin était pâle, mais ses yeux demeuraient calmes. Alors que 
 
 La Bête des Limbes apparut, ouvrant soudainement les yeux pour révéler une froideur et une cruauté sans nom. Alors que le Daoïste s'approchait, elle dévora!
 
-Une fois la gueule de la Bête des Limbes ouverte, elle engloutissait toute vie. Quelques disciples de la Secte des Sept Dao parvinrent à s'extirper de la mer de feu, mais dès qu'ils entrevirent la scène, ils furent aspirés dans la gueule de la bête.
+Une fois la gueule de la Bête des Limbes ouverte, elle engloutissait toute vie. Quelques disciples de la Secte Qi Dao parvinrent à s'extirper de la mer de feu, mais dès qu'ils entrevirent la scène, ils furent aspirés dans la gueule de la bête.
 
 Même une partie de la mer de feu suspendue dans le ciel fut dévorée par la créature.
 

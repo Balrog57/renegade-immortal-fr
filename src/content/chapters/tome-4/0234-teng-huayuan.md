@@ -8,7 +8,7 @@ slug: teng-huayuan
 ---
 Deux jours plus tard, un jeune homme enveloppé d'une aura maléfique fixait le sol couvert de végétation d'un regard glacial.
 
-Cet individu était le cultivateur qui s'était précipité ici depuis Huo Fen. Si quelqu'un savait que ce jeune homme n'avait mis que quelques mois pour voyager de Huo Fen à la Mer des Démons, il en serait horrifié. La distance entre Huo Fen et la Mer des Démons était immense.
+Cet individu était le cultivateur qui s'était précipité ici depuis Huo Fen. Si quelqu'un savait que ce jeune homme n'avait mis que quelques mois pour voyager de Huo Fen à la Mer Xiu Mo, il en serait horrifié. La distance entre Huo Fen et la Mer Xiu Mo était immense.
 
 Même Duanmu Ji, le Seigneur Démon des Huit Extrêmes, avec sa culture de la Formation de l'Âme, avait dû utiliser un ancien réseau de transfert. Il avait un jour déclaré que s'il devait voler, il lui faudrait des centaines d'années pour y parvenir.
 
@@ -28,7 +28,7 @@ Le continent Kong, l'un des six principaux continents de la planète Suzaku.
 
 On trouvait d'innombrables pays de culture dans le continent Kong, mais la plupart étaient des nations de rang 1 ou 2, avec quelques-unes de rang 3 et très peu de rang 4. Après tout, les ressources sur ce continent étaient bien trop pauvres.
 
-À la frontière du continent Kong et de la Mer des Démons se trouvait une petite ville frontalière. Cette ville n'était pas très grande. La personne la plus puissante y était seulement au stade de la Formation du Noyau. Dans cette ville, il y avait un ancien réseau de transfert.
+À la frontière du continent Kong et de la Mer Xiu Mo se trouvait une petite ville frontalière. Cette ville n'était pas très grande. La personne la plus puissante y était seulement au stade de la Formation du Noyau. Dans cette ville, il y avait un ancien réseau de transfert.
 
 Ce réseau s'illumina soudainement et bientôt, la silhouette de Wang Lin en sortit.
 

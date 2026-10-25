@@ -15,7 +15,7 @@ Le visage de Treize était empreint de honte; il regarda le drapeau qu'il tenait
 
 Le temps s'écoula rapidement, et un mois passa en un clin d'œil. Tous les hommes du village, entièrement armés, partirent dans une nuit noire comme l'encre. Ouyang Hua et Treize menaient l'avant-garde, conduisant tout le monde directement vers la grotte.
 
-Wang Lin ne les suivit pas et n'utilisa même pas son sens divin. C'était une épreuve pour eux; s'ils échouaient, cela signifiait qu'ils n'étaient pas qualifiés, et Wang Lin partirait alors vers la Cité de l'Ancien Démon pour chercher d'autres opportunités.
+Wang Lin ne les suivit pas et n'utilisa même pas son sens divin. C'était une épreuve pour eux; s'ils échouaient, cela signifiait qu'ils n'étaient pas qualifiés, et Wang Lin partirait alors vers la Cité Gu Yao pour chercher d'autres opportunités.
 
 Cinq jours plus tard, alors que Wang Lin cultivait dans les profondeurs de la vallée, il ouvrit les yeux. Bientôt, des bruits assourdissants parvinrent de loin: une longue file de personnes se précipitait vers la vallée en suivant le sentier sinueux.
 
@@ -67,10 +67,10 @@ Tout le monde connaissait désormais la règle de Wang Lin: pour obtenir les cha
 
 Quiconque accomplissait l'une de ces tâches recevait le chant du quatrième stade. Quant au cinquième, les exigences étaient encore plus strictes. À ce jour, seul Ouyang Hua avait rempli les conditions pour le quatrième stade. Même Treize n'avait raffiné que sept drapeaux; la difficulté résidait dans les âmes primaires. Jusqu'à présent, il n'en possédait que deux, et la seconde était l'Ancien du village ennemi qu'il avait raffiné six mois auparavant!
 
-Par conséquent, l'appel à attaquer d'autres tribus se fit de plus en plus pressant. Seules les incursions contre d'autres clans pouvaient rapporter des cristaux démoniaques, des âmes primaires et une grande quantité de fragments d'âme. Il faut dire que les prédictions d'Ouyang Hua s'étaient réalisées: tous les 5 000 ans, lorsque les étrangers arrivaient, ils apportaient un bain de sang à la Terre des Esprits Démoniaques.
+Par conséquent, l'appel à attaquer d'autres tribus se fit de plus en plus pressant. Seules les incursions contre d'autres clans pouvaient rapporter des cristaux démoniaques, des âmes primaires et une grande quantité de fragments d'âme. Il faut dire que les prédictions d'Ouyang Hua s'étaient réalisées: tous les 5 000 ans, lorsque les étrangers arrivaient, ils apportaient un bain de sang à la Terre Yao Ling.
 
 C'est grâce à l'arrivée de Wang Lin que cette vallée était passée d'un village paisible à un foyer d'agressivité, cherchant sans cesse à envahir les tribus voisines pour obtenir des chants de niveau supérieur. Tandis que le cri de guerre résonnait avec force, une nouvelle croisade commença enfin!
 
 Cette fois, l'âge ou le sexe n'importaient plus. Hormis quelques-uns restés pour s'occuper des enfants, presque tous les villageois partirent. Ils ne frappèrent pas un seul point, mais se divisèrent en trois groupes pour attaquer trois tribus différentes. C'était la seule façon de satisfaire leurs besoins, car s'ils avaient attaqué la même tribu, il n'y aurait eu aucun moyen de partager équitablement les cristaux et les âmes primaires!
 
-Personne sur la Terre des Esprits Démoniaques ne remarqua qu'une force était en train de croître, car personne ne daignait inspecter ces tribus perdues dans les terres désolées. Même les étrangers ne choisirent pas de s'installer parmi les tribus comme Wang Lin l'avait fait; ils étaient tous partis dans différents pays pour y obtenir des statuts variés. Afin d'obtenir des exploits militaires et un ancien démon, ils déclenchèrent un bain de sang qui allait durer cinq cents ans!
+Personne sur la Terre Yao Ling ne remarqua qu'une force était en train de croître, car personne ne daignait inspecter ces tribus perdues dans les terres désolées. Même les étrangers ne choisirent pas de s'installer parmi les tribus comme Wang Lin l'avait fait; ils étaient tous partis dans différents pays pour y obtenir des statuts variés. Afin d'obtenir des exploits militaires et un ancien démon, ils déclenchèrent un bain de sang qui allait durer cinq cents ans!

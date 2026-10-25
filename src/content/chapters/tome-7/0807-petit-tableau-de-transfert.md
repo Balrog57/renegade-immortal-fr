@@ -34,9 +34,9 @@ Ta Shan afficha une expression amère et murmura: « Dans mon enfance, j'entenda
 
 « Même aujourd'hui, moi, Ta Shan, je ne crois toujours pas à l'existence des immortels. S'ils existaient vraiment, pourquoi nous auraient-ils oubliés pendant tant d'années... »
 
-Wang Lin réfléchit en silence. Lorsqu'il avait entendu le vieil homme affirmer qu'ils étaient le Clan des Immortels Élus, il avait eu une intuition.
+Wang Lin réfléchit en silence. Lorsqu'il avait entendu le vieil homme affirmer qu'ils étaient le Clan Xian Xuan, il avait eu une intuition.
 
-« Le Clan des Immortels Élus... Le Clan des Immortels Délaissés... Un choix fait pour abandonner... »
+« Le Clan Xian Xuan... Le Clan Xian Yi... Un choix fait pour abandonner... »
 
 « Dites-moi, existe-t-il des immortels dans ce monde? Êtes-vous un immortel? » Ta Shan leva la tête et fixa Wang Lin. Sa voix était très basse, mais son impact était plus puissant qu'un rugissement.
 
@@ -114,7 +114,7 @@ Ta Shan en fut extrêmement choqué. Il fixa la porte, le cuir chevelu engourdi 
 
 « Qu'est-ce que c'est que ça?! »
 
-« L'esprit du Fourneau Yin Mystérieux! » L'ancêtre du Clan des Immortels Élus essuya le sang au coin de sa bouche, affichant une expression complexe.
+« L'esprit du Fourneau Yin Mystérieux! » L'ancêtre du Clan Xian Xuan essuya le sang au coin de sa bouche, affichant une expression complexe.
 
 Le visage de Wang Lin était sombre lorsqu'il s'assit. « Vous deux, partez. Ne laissez personne approcher à moins de 330 mètres d'ici! »
 
@@ -122,7 +122,7 @@ Le vieil homme réfléchit silencieusement. Après un instant, il inclina respec
 
 Wang Lin fixa la porte. En voyant le vieil homme l'ouvrir, il avait clairement vu ce dernier utiliser la plante entre ses sourcils pour tracer une rune; c'était manifestement sa rune de vie.
 
-Tout en réfléchissant, Wang Lin frappa sa sacoche de stockage. Lorsqu'il était encore sur la planète Suzaku, il avait récupéré de nombreux crânes du Clan des Immortels Délaissés. Dans un éclat de lumière, plusieurs crânes apparurent devant lui.
+Tout en réfléchissant, Wang Lin frappa sa sacoche de stockage. Lorsqu'il était encore sur la planète Suzaku, il avait récupéré de nombreux crânes du Clan Xian Yi. Dans un éclat de lumière, plusieurs crânes apparurent devant lui.
 
 Chaque crâne portait une rune complexe. Après les avoir examinés de près, Wang Lin les rangea. Puis, ses yeux brillèrent et il leva le regard vers le ciel.
 

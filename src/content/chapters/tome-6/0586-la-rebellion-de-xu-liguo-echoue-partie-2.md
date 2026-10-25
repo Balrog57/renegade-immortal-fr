@@ -26,7 +26,7 @@ Xu Liguo étant d'un naturel craintif, il s'était montré extrêmement prudent.
 
 Initialement, il faisait preuve d'une immense fierté, mais il avait sous-estimé la suspicion et l'esprit calculateur de Wang Lin, permettant à ce dernier de percer ses mensonges.
 
-« Hélas, si j'avais su que cela finirait ainsi... » Xu Liguo secoua la tête et s'enfuit de plus belle. Sa vitesse était telle qu'il était sur le point de s'échapper de la Cité du Démon Céleste. Il se retourna pour regarder en direction de la capitale impériale, une lueur de solennité dans les yeux.
+« Hélas, si j'avais su que cela finirait ainsi... » Xu Liguo secoua la tête et s'enfuit de plus belle. Sa vitesse était telle qu'il était sur le point de s'échapper de la Cité Tian Yao. Il se retourna pour regarder en direction de la capitale impériale, une lueur de solennité dans les yeux.
 
 « Adieu, ma bien-aimée petite beauté! Un jour, je reviendrai te retrouver! » Ce type, même à cet instant, ne pensait qu'à sa petite beauté, oubliant totalement son petit frère, la lame noire...
 

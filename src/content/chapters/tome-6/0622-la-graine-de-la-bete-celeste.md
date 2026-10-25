@@ -96,7 +96,7 @@ En contemplant ces innombrables filaments, les yeux de Wang Lin s'illuminèrent 
 
 Bien que les cultivateurs alentour n'eussent aucune idée de ce qu'il entendait par là, le visage du vieil homme changea une fois de plus. Il s'exclama: « Tu le sais! »
 
-Wang Lin avait eu l'impression d'avoir déjà vu cela lorsqu'il avait aperçu ces fils bleus à l'intérieur de Sun Yunshan. En y réfléchissant, il s'agissait clairement de la nourriture pour bêtes célestes qu'il avait rencontrée dans le Royaume Céleste lorsqu'il était entré dans cette grotte avec un disciple de la Secte de l'Épée Da Luo! Il n'en avait pas parlé à Sun Yunshan.
+Wang Lin avait eu l'impression d'avoir déjà vu cela lorsqu'il avait aperçu ces fils bleus à l'intérieur de Sun Yunshan. En y réfléchissant, il s'agissait clairement de la nourriture pour bêtes célestes qu'il avait rencontrée dans le Royaume Céleste lorsqu'il était entré dans cette grotte avec un disciple de la Secte Da Luo Jian! Il n'en avait pas parlé à Sun Yunshan.
 
 Le vieil homme ne se souciait guère de savoir comment Wang Lin pouvait reconnaître cela. Même après avoir obtenu cette nourriture, il n'avait pas réussi à la contrôler totalement. En la déchaînant ainsi, il agissait par pur désespoir. Normalement, avec sa culture au milieu du stade Ascendant, il n'aurait pas dû en arriver là. Cependant, il traversait des difficultés dont il ne pouvait parler, ce qui expliquait son comportement.
 
@@ -106,7 +106,7 @@ Des centaines de fils bleus se précipitèrent vers Wang Lin.
 
 Wang Lin n'était pas étranger à cette scène. Autrefois, il avait affronté une armée de nourriture pour bêtes célestes des centaines, voire des milliers de fois plus vaste. Ici, il n'y en avait pas même un millier, il n'avait donc aucune nervosité.
 
-Il frappa son sac de stockage et un drapeau d'âme apparut dans sa main. Ayant déjà des doutes avant de venir, il était préparé. Il agita le drapeau et le qilin qu'il avait obtenu à la Secte de l'Affinement de l'Âme apparut!
+Il frappa son sac de stockage et un drapeau d'âme apparut dans sa main. Ayant déjà des doutes avant de venir, il était préparé. Il agita le drapeau et le qilin qu'il avait obtenu à la Secte Lian Hun apparut!
 
 Bien que cette bête ne soit que l'âme d'un qilin, elle possédait encore une part de son héritage. En apparaissant, elle poussa un rugissement. Son corps trembla et sa tête massive se fixa instantanément sur la nourriture pour bêtes célestes qui fonçait sur lui.
 

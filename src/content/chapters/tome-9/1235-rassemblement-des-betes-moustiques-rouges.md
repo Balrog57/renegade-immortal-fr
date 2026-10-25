@@ -36,7 +36,7 @@ Les regards de ces créatures se fixèrent tous sur le roi moustique de Wang Lin
 
 Les yeux de Wang Lin s'illuminèrent. Il avait déjà remarqué une particularité chez les bêtes moustiques du Royaume Céleste du Vent. Bien que féroces, elles contenaient une part d'énergie spirituelle céleste en leur sein. Cela s'expliquait aisément par leur longue présence dans ce royaume, l'énergie céleste s'étant naturellement accumulée en elles.
 
-Mais ce qui attira véritablement l'attention de Wang Lin fut la puissance de ces moustiques rouges. Il en avait déjà vu dans la Terre des Esprits Démoniaques, mais, en raison de leur environnement, ils n'étaient pas très vigoureux. Ici, pourtant, chaque bête moustique était l'égale d'un cultivateur du stade Scruteur du Nirvana.
+Mais ce qui attira véritablement l'attention de Wang Lin fut la puissance de ces moustiques rouges. Il en avait déjà vu dans la Terre Yao Ling, mais, en raison de leur environnement, ils n'étaient pas très vigoureux. Ici, pourtant, chaque bête moustique était l'égale d'un cultivateur du stade Scruteur du Nirvana.
 
 Certaines des rares bêtes moustiques rouge foncé étaient même l'équivalent de cultivateurs au stade avancé du Scruteur du Nirvana!
 

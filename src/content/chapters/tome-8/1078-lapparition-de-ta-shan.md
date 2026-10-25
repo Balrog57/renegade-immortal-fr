@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1078 - Ta Shan Appears
 slug: lapparition-de-ta-shan
 ---
-Il existait un domaine extrêmement étrange au sein de ce système stellaire. C'était une étendue sans limites, l'une des terres interdites de l'Alliance de la Culture.
+Il existait un domaine extrêmement étrange au sein de ce système stellaire. C'était une étendue sans limites, l'une des terres interdites de l'Alliance Xiu Zhen.
 
 Sa singularité résidait dans le fait que, de loin, il ressemblait à un pays des merveilles illusoire. Des arbres perçaient le ciel et l'herbe s'étendait à perte de vue; au premier regard, l'ensemble semblait d'un artifice absolu.
 
@@ -14,7 +14,7 @@ Cette magnifique jungle, qui aurait dû exister sur une planète, flottait simpl
 
 Une dense énergie d'origine de l'attribut Bois emplissait le domaine stellaire, formant une brume verdâtre qui enveloppait le lieu et y persistait depuis des éternités...
 
-Tout cultivateur s'en approchant verrait son énergie d'origine stagner, et certains la verraient même disparaître sans laisser de trace. Même l'Alliance de la Culture craignait cet endroit, ce qui en avait fait une zone interdite.
+Tout cultivateur s'en approchant verrait son énergie d'origine stagner, et certains la verraient même disparaître sans laisser de trace. Même l'Alliance Xiu Zhen craignait cet endroit, ce qui en avait fait une zone interdite.
 
 Seuls quelques vieux monstres ayant vécu depuis des éons conservaient des souvenirs vagues de ce lieu imprégné de brume verte. Bien que ces souvenirs fussent flous, ils ne les avaient pas oubliés.
 
@@ -32,7 +32,7 @@ Un instant plus tard, plusieurs silhouettes jaillirent de la lumière émeraude.
 
 Les neuf anciens de la Secte Divine du Dragon Azure se regardèrent sans longtemps hésiter. L'un des trois anciens en tête hocha respectueusement la tête: « Nous obéirons aux ordres de l'Empereur Divin de l'Oiseau Vermillon! »
 
-Quant à ce qui se tramait dans la Terre des Esprits Démoniaques, grâce à l'autodestruction de l'un des six anciens de la Secte Divine de l'Oiseau Vermillon, Wang Lin avait pu échapper à Tian Yunzi. Ses yeux étaient injectés de sang et une douleur fulgurante lui transperçait le cœur en raison de ses blessures.
+Quant à ce qui se tramait dans la Terre Yao Ling, grâce à l'autodestruction de l'un des six anciens de la Secte Divine de l'Oiseau Vermillon, Wang Lin avait pu échapper à Tian Yunzi. Ses yeux étaient injectés de sang et une douleur fulgurante lui transperçait le cœur en raison de ses blessures.
 
 Au loin, les cinq autres anciens de la Secte Divine de l'Oiseau Vermillon arrivèrent trop tard pour porter secours. Ils n'étaient pas au sommet du stade de Briseur du Nirvana; la plupart se situaient aux premiers ou milieux stades, et ils peinaient déjà à affronter l'Ancien Démon Ta Jia. Le moindre instant d'inattention les exposait à de graves blessures.
 
@@ -92,7 +92,7 @@ Tian Yunzi marqua un temps d'arrêt. Malgré son apparente sérénité, la force
 
 Il leva sa main droite, prêt à porter un coup fatal.
 
-Mais à cet instant précis, une intention de meurtre fulgurante jaillit des profondeurs de la Terre des Esprits Démoniaques. Le sol explosa et une ombre couverte de tatouages surgit des entrailles de la terre.
+Mais à cet instant précis, une intention de meurtre fulgurante jaillit des profondeurs de la Terre Yao Ling. Le sol explosa et une ombre couverte de tatouages surgit des entrailles de la terre.
 
 Cette silhouette était plusieurs fois plus rapide que Tian Yunzi. Elle fendit l'air comme un éclair de tonnerre, tandis qu'un rugissement lugubre déchirait le monde:
 

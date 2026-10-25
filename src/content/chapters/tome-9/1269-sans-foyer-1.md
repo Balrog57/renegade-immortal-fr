@@ -10,29 +10,29 @@ Wang Lin flottait dans les airs et commença à réfléchir. La clé de sa survi
 
 Ce changement prit Wang Lin au dépourvu. Il était perplexe, et un léger sentiment d'inquiétude l'envahissait.
 
-« La chance de survie est liée à ce jade, mais maintenant que le jade et la Perle Défiant le Ciel ont disparu, comment puis-je résoudre ce problème? » Wang Lin fronça les sourcils alors qu'il retournait à la Secte de l'Origine.
+« La chance de survie est liée à ce jade, mais maintenant que le jade et la Perle Défiant le Ciel ont disparu, comment puis-je résoudre ce problème? » Wang Lin fronça les sourcils alors qu'il retournait à la Secte Gui Yuan.
 
-À l'intérieur de la Secte de l'Origine, Lu Yanfei et les autres attendaient Wang Lin. Ils saluèrent immédiatement Wang Lin à son arrivée, mais celui-ci, plongé dans ses pensées, se contenta d'un mince hochement de tête.
+À l'intérieur de la Secte Gui Yuan, Lu Yanfei et les autres attendaient Wang Lin. Ils saluèrent immédiatement Wang Lin à son arrivée, mais celui-ci, plongé dans ses pensées, se contenta d'un mince hochement de tête.
 
 Le jade que Liu Jinbiao avait envoyé était devenu un simple morceau de pierre, dépourvu de l'aura d'un cultivateur Briseur du Nirvana. Ce jade était sans artifice; Liu Jinbiao n'avait fait qu'infuser l'aura des centipèdes à l'objet, lui conférant une véritable aura de Briseur du Nirvana sans en révéler la moindre faille.
 
 Maintenant que les huit centipèdes étaient morts, l'aura s'était évanouie et le jade n'était plus qu'un objet ordinaire.
 
-Lu Yanfei regarda Wang Lin et dit doucement: « Grand Oncle-Maître, ma Secte de l'Origine a tout organisé; nous pouvons partir à tout moment. »
+Lu Yanfei regarda Wang Lin et dit doucement: « Grand Oncle-Maître, ma Secte Gui Yuan a tout organisé; nous pouvons partir à tout moment. »
 
-Wang Lin réfléchit en silence en contemplant la Secte de l'Origine. Il éprouvait encore une certaine affection pour ce lieu. C'était ici qu'il avait passé ses premiers temps dans la Mer des Nuages et là qu'il avait forgé son identité.
+Wang Lin réfléchit en silence en contemplant la Secte Gui Yuan. Il éprouvait encore une certaine affection pour ce lieu. C'était ici qu'il avait passé ses premiers temps dans la Mer Yun et là qu'il avait forgé son identité.
 
 Après un moment de réflexion, Wang Lin dit lentement: « Partez tous les premiers, j'ai encore d'autres affaires à régler. Si l'occasion se présente, je vous retrouverai dans une région de rang 7. »
 
-Une pointe de tristesse passa dans les yeux de Lu Yanfei, mais elle comprit qu'avec le niveau de culture de Wang Lin, il ne pourrait jamais rester au sein de la modeste Secte de l'Origine. Elle ne s'attendait simplement pas à ce qu'il parte si tôt.
+Une pointe de tristesse passa dans les yeux de Lu Yanfei, mais elle comprit qu'avec le niveau de culture de Wang Lin, il ne pourrait jamais rester au sein de la modeste Secte Gui Yuan. Elle ne s'attendait simplement pas à ce qu'il parte si tôt.
 
-Se mordant la lèvre inférieure, Lu Yanfei s'inclina respectueusement devant Wang Lin. Elle voulut dire quelque chose, mais finit par se taire. En poussant un soupir intérieur, elle prit les membres de la Secte de l'Origine et partit par le réseau de transfert.
+Se mordant la lèvre inférieure, Lu Yanfei s'inclina respectueusement devant Wang Lin. Elle voulut dire quelque chose, mais finit par se taire. En poussant un soupir intérieur, elle prit les membres de la Secte Gui Yuan et partit par le réseau de transfert.
 
-Chaque membre de la Secte de l'Origine s'inclina respectueusement devant Wang Lin avant de s'en aller.
+Chaque membre de la Secte Gui Yuan s'inclina respectueusement devant Wang Lin avant de s'en aller.
 
-En regardant les disciples de la Secte de l'Origine s'éloigner, Wang Lin prit une profonde inspiration. Il s'assit sur la place déserte et leva les yeux vers le ciel d'un regard glacial!
+En regardant les disciples de la Secte Gui Yuan s'éloigner, Wang Lin prit une profonde inspiration. Il s'assit sur la place déserte et leva les yeux vers le ciel d'un regard glacial!
 
-« Chaque futur que j'ai entrevu n'a mené qu'à la mort. Même si je rejoins la Secte de l'Origine dans la région de rang 7, il en sera de même. Même si je m'échappe maintenant, le résultat sera identique! Moi, Wang Lin, j'ai passé ma vie entière en tant que cultivateur défiant le ciel. Puisqu'aucun chemin n'existe, alors je devrai lutter pour en tracer un! »
+« Chaque futur que j'ai entrevu n'a mené qu'à la mort. Même si je rejoins la Secte Gui Yuan dans la région de rang 7, il en sera de même. Même si je m'échappe maintenant, le résultat sera identique! Moi, Wang Lin, j'ai passé ma vie entière en tant que cultivateur défiant le ciel. Puisqu'aucun chemin n'existe, alors je devrai lutter pour en tracer un! »
 
 « Cultivateur de la troisième étape... Si je ne succombe pas à cette calamité, un jour, je ferai fléchir les cultivateurs de la troisième étape devant moi! » Les yeux de Wang Lin devinrent encore plus sombres.
 

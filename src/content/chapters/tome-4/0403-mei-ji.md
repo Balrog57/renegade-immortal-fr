@@ -18,7 +18,7 @@ Xu Liguo possédait une intelligence que les âmes errantes n'avaient pas. Le fa
 
 La personnalité de Xu Liguo était celle d'un poltron, mais il pouvait aussi se montrer indomptable. Dans l'ensemble, cela faisait de lui un démon très complexe. Le fait qu'il supplie ainsi Wang Lin de libérer cette âme rendit ce dernier prudent.
 
-« Intéressant! » Les yeux de Wang Lin s'illuminèrent. Après avoir réfléchi un instant, il parvint à deviner ce qui s'était produit. L'ancêtre du Clan des Démons Géants avait dû utiliser l'âme enfermée dans la roue pour tenter Xu Liguo. C'est pourquoi Xu Liguo y pensait encore, même après être revenu auprès de lui.
+« Intéressant! » Les yeux de Wang Lin s'illuminèrent. Après avoir réfléchi un instant, il parvint à deviner ce qui s'était produit. L'ancêtre du Clan Ju Mo avait dû utiliser l'âme enfermée dans la roue pour tenter Xu Liguo. C'est pourquoi Xu Liguo y pensait encore, même après être revenu auprès de lui.
 
 Après avoir observé la roue un moment, il sortit l'épée céleste. Dès que l'épée apparut, Xu Liguo surgit également. Il poussa un hurlement, fixant la roue d'un regard ardent.
 
@@ -26,7 +26,7 @@ Xu Liguo s'exclama rapidement: « Maître, c'est la roue du trésor! Une âme es
 
 Wang Lin demanda calmement: « Comment sais-tu qu'une âme se trouve dans cette roue? »
 
-« L'ancêtre du Clan des Démons Géants l'a appelée... Maître, libérez-la vite! » L'expression de Xu Liguo devint extrêmement anxieuse.
+« L'ancêtre du Clan Ju Mo l'a appelée... Maître, libérez-la vite! » L'expression de Xu Liguo devint extrêmement anxieuse.
 
 Wang Lin regarda Xu Liguo et demanda: « Quel est le niveau de culture de cette âme? »
 
@@ -110,7 +110,7 @@ L'expression de Wang Lin resta imperturbable. Sans même regarder les fragments 
 
 Ses yeux retrouvèrent leur clarté. Cette fois, c'était sa peur de Wang Lin qui l'emporta sur le charme de la femme.
 
-Il jura intérieurement, le visage défait. Pourquoi avait-il attaqué ce fléau? Bravo, maintenant tout le mérite qu'il avait acquis en tuant l'ancêtre du Clan des Démons Géants s'était envolé.
+Il jura intérieurement, le visage défait. Pourquoi avait-il attaqué ce fléau? Bravo, maintenant tout le mérite qu'il avait acquis en tuant l'ancêtre du Clan Ju Mo s'était envolé.
 
 Plus Xu Liguo y pensait, plus il bouillonnait de rage, et finit par hurler à la femme: « Espèce de coquine, c'est ta faute si tu m'as charmé! »
 

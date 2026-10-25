@@ -20,9 +20,9 @@ Sans laisser de trace, cela signifie aussi, d'un autre côté, qu'ils sont parto
 
 Le démon extraterritorial pénètre dans le corps, active le feu du Dao du cultivateur pour consumer son âme originelle, s'emparant ainsi de sa vie et ruinant sa voie. Aux yeux des anciens cultivateurs, ces démons étaient terrifiants. S'ils commettaient une seule erreur en les laissant entrer, ils seraient ruinés à jamais.
 
-À mesure que les anciens cultivateurs s'éteignaient et que l'Alliance de la Culture prenait le relais, les récits sur les démons extraterritoriaux disparurent, remplacés par des analyses logiques et des calculs rationnels.
+À mesure que les anciens cultivateurs s'éteignaient et que l'Alliance Xiu Zhen prenait le relais, les récits sur les démons extraterritoriaux disparurent, remplacés par des analyses logiques et des calculs rationnels.
 
-L'Alliance de la Culture réfutait l'existence de ces démons. Elle soutenait plutôt qu'il s'agissait d'un idéal démoniaque né au sein du corps même de l'individu. Cet idéal démoniaque, étant en contradiction avec ce que le cultivateur comprend des Cieux, provoquait un déséquilibre. Le Yin et le Yang ne circulaient plus correctement et le cœur de Dao devenait instable, engendrant une illusion qui affectait l'esprit.
+L'Alliance Xiu Zhen réfutait l'existence de ces démons. Elle soutenait plutôt qu'il s'agissait d'un idéal démoniaque né au sein du corps même de l'individu. Cet idéal démoniaque, étant en contradiction avec ce que le cultivateur comprend des Cieux, provoquait un déséquilibre. Le Yin et le Yang ne circulaient plus correctement et le cœur de Dao devenait instable, engendrant une illusion qui affectait l'esprit.
 
 C'est précisément ce qui venait d'arriver à Wang Lin. Son désir irrépressible de retourner sur la planète Suzaku était l'apogée de son idéal démoniaque. Si cela avait persisté, Wang Lin se serait réveillé par lui-même, mais le délai aurait pu être court ou extrêmement long.
 
@@ -30,7 +30,7 @@ L'apparition des soldats démons et de leur énergie spirituelle démoniaque ava
 
 Il n'hésita pas une seconde. L'énergie spirituelle démoniaque jaillit du cristal démoniaque et se propagea rapidement dans son corps. Lorsque cette énergie entra en collision avec l'énergie spirituelle céleste, elle créa un vortex, né de la fusion des deux forces.
 
-Pour les cultivateurs venus de l'extérieur de la Terre des Esprits Démoniaques, l'énergie spirituelle démoniaque servait de substitut au jade céleste. Fusionnée à l'énergie spirituelle céleste, elle peut en accroître la puissance.
+Pour les cultivateurs venus de l'extérieur de la Terre Yao Ling, l'énergie spirituelle démoniaque servait de substitut au jade céleste. Fusionnée à l'énergie spirituelle céleste, elle peut en accroître la puissance.
 
 Wang Lin ne les avait pas encore fusionnées, attendant le moment opportun. Cette capacité de fusion était précisément ce qui lui avait permis de dévorer l'énergie spirituelle des six soldats démons.
 

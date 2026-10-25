@@ -44,7 +44,7 @@ Cette figure était floue, imprégnée d'une énergie démoniaque. Cette essence
 
 « J'ai raffiné ce démon pendant trois réincarnations et, au fil d'innombrables années, j'ai recueilli l'intention maléfique de 3,6 milliards d'êtres malveillants. Il a déjà acquis une intelligence et peut être considéré comme un esprit démoniaque! »
 
-« Dans mon Clan du Dao Antique, il existe une tablette démoniaque qui absorbe la puissance de la vénération. C'est l'une de mes trois armes les plus puissantes! »
+« Dans mon Clan Dao Gu, il existe une tablette démoniaque qui absorbe la puissance de la vénération. C'est l'une de mes trois armes les plus puissantes! »
 
 « Grâce à elle, vous pourrez créer un sceau afin que vos souvenirs ne soient ni endommagés ni perdus lors de votre réincarnation. Ainsi, une fois que vous serez tous éveillés, vos souvenirs seront intégralement restaurés! »
 

@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1382 - Old Friend
 slug: vieux-ami
 ---
-« Jeune Empereur! » Lorsque le Patriarche du Clan du Dragon Blindé entendit cela, ce fut comme si un marteau lui avait frappé la poitrine. Son visage devint livide en regardant Wang Lin, ses yeux emplis de choc et d'amertume.
+« Jeune Empereur! » Lorsque le Patriarche du Clan Long Jia entendit cela, ce fut comme si un marteau lui avait frappé la poitrine. Son visage devint livide en regardant Wang Lin, ses yeux emplis de choc et d'amertume.
 
-Il n'était pas le seul. À ses côtés, le jeune maître du Clan du Dragon Blindé était également pâle. Son esprit tremblait et il restait hébété par l'incrédulité.
+Il n'était pas le seul. À ses côtés, le jeune maître du Clan Long Jia était également pâle. Son esprit tremblait et il restait hébété par l'incrédulité.
 
 Les yeux de Wang Lin s'illuminèrent. Son expression ne changea pas, et son regard froid balaya le messager.
 
@@ -26,7 +26,7 @@ Les yeux du Patriarche du Dragon Blindé se remplirent de désespoir alors qu'il
 
 Tout en parlant, il leva soudainement la tête et tendit la main vers son fils. Le jeune maître fut surpris et poussa immédiatement un cri déchirant. Son père saisit son corps et y injecta de l'énergie originelle. Un grondement tonitruant résonna alors que tous ses méridiens étaient détruits, ainsi que son âme originelle. Sa culture était anéantie et il était redevenu un simple mortel!
 
-Une douleur intense déchira le corps du jeune maître du Clan du Dragon Blindé. Il cracha du sang, le visage livide. Le monde autour de lui se déforma alors que toute sa puissance s'échappait de son corps, et il perdit connaissance sous la violence de la souffrance.
+Une douleur intense déchira le corps du jeune maître du Clan Long Jia. Il cracha du sang, le visage livide. Le monde autour de lui se déforma alors que toute sa puissance s'échappait de son corps, et il perdit connaissance sous la violence de la souffrance.
 
 Le Patriarche du Dragon Blindé s'agenouilla et supplia amèrement: « Seigneur Jeune Empereur, mon fils a perdu sa culture et ne pourra plus jamais cultiver. Il ne sera plus une menace pour vous. Je vous en conjure, Jeune Empereur, ayez pitié et laissez-le vivre! »
 
@@ -40,23 +40,23 @@ La pilule fondit instantanément dans sa bouche, se transformant en un feu noir 
 
 La planète de culture entière sombra dans le silence. De nombreux témoins assistaient à la scène, tremblant d'effroi. Le Grand Empereur était ici comme un dieu, et personne n'osait défier ses ordres!
 
-Les membres du Clan du Dragon Blindé, pétris de peur, baissèrent la tête.
+Les membres du Clan Long Jia, pétris de peur, baissèrent la tête.
 
 « Un cultivateur du quatrième Fléau Céleste dans le Royaume Intérieur peut passer pour un homme d'exception, et même dans le Royaume Extérieur, il peut être Ancien d'un grand clan, à un rang élevé! Mais dans cette Terre Déchue, on avale une pilule empoisonnée et on meurt sans hésiter... Cela montre à quel point le Grand Empereur est puissant... La raison pour laquelle il a envoyé cette pilule au Patriarche du Dragon Blindé était de me donner un avertissement indirect. »
 
-La mort du Patriarche du Dragon Blindé signifiait que l'affaire était close. L'homme d'âge mûr sourit et joignit les mains devant Wang Lin: « Le Clan du Dragon Blindé ne peut rester sans chef. Je demande au Jeune Empereur de désigner un nouveau leader. »
+La mort du Patriarche du Dragon Blindé signifiait que l'affaire était close. L'homme d'âge mûr sourit et joignit les mains devant Wang Lin: « Le Clan Long Jia ne peut rester sans chef. Je demande au Jeune Empereur de désigner un nouveau leader. »
 
 Les yeux de Wang Lin s'illuminèrent, mais son expression demeura impassible. Sa main droite pointa négligemment vers un jeune homme au stade du Scruteur du Nirvana au loin, et il dit: « Lui, alors. »
 
 Le jeune homme tremblait encore à cause de la mort du patriarche et des paroles du messager. Il fut stupéfait lorsque Wang Lin le désigna, mais son sentiment passa instantanément de l'enfer à l'ascension vers les cieux!
 
-Ce changement était si brutal qu'il ne put réagir immédiatement. Il n'était pas le plus puissant du Clan du Dragon Blindé; sans accidents de parcours, il n'aurait jamais été patriarche et serait, au mieux, devenu un Ancien.
+Ce changement était si brutal qu'il ne put réagir immédiatement. Il n'était pas le plus puissant du Clan Long Jia; sans accidents de parcours, il n'aurait jamais été patriarche et serait, au mieux, devenu un Ancien.
 
-Cependant, à l'instant même où Wang Lin le désignait, une vague d'émotion immense l'envahit. Son corps tremblait et ses yeux brillèrent d'extase. Il se leva avec enthousiasme, fit un pas en avant et joignit respectueusement les mains: « Merci... Merci, Jeune Empereur! Désormais, le Clan du Dragon Blindé suivra tous vos ordres, même si vous ordonnez la destruction du clan! Ce cadet... »
+Cependant, à l'instant même où Wang Lin le désignait, une vague d'émotion immense l'envahit. Son corps tremblait et ses yeux brillèrent d'extase. Il se leva avec enthousiasme, fit un pas en avant et joignit respectueusement les mains: « Merci... Merci, Jeune Empereur! Désormais, le Clan Long Jia suivra tous vos ordres, même si vous ordonnez la destruction du clan! Ce cadet... »
 
 Wang Lin agita la main pour l'interrompre. Il dit lentement: « Apportez-moi toutes vos Pilules d'Effondrement du Dragon, vos Cristaux de Mutation de Feu Déchaîné et vos marionnettes. Je les veux tous. »
 
-Le jeune homme hocha rapidement la tête. Au-delà de ces trésors, même si Wang Lin avait exigé l'âme originelle des membres du clan, il n'aurait pas hésité à les lui livrer. Devenir le patriarche du Clan du Dragon Blindé était une chance inouïe pour lui!
+Le jeune homme hocha rapidement la tête. Au-delà de ces trésors, même si Wang Lin avait exigé l'âme originelle des membres du clan, il n'aurait pas hésité à les lui livrer. Devenir le patriarche du Clan Long Jia était une chance inouïe pour lui!
 
 À cet instant, il avait déjà oublié la mort de son prédécesseur. Plongé dans l'excitation, il ne cherchait plus qu'à flatter Wang Lin.
 
@@ -94,7 +94,7 @@ Un groupe de cultivateurs traversait la Terre Déchue. Ils étaient près de mil
 
 Cet homme portait des vêtements somptueux; c'était un vieillard dont l'apparence était ordinaire, mais l'expression extrêmement sombre.
 
-« Seigneur Tan Lang, la planète du Clan du Scorpion Noir n'est pas loin! Nous avons découvert que le Cadavre de Scorpion de Dix Mille Ans que vous recherchez se trouve probablement là-bas! »
+« Seigneur Tan Lang, la planète du Clan An Xie n'est pas loin! Nous avons découvert que le Cadavre de Scorpion de Dix Mille Ans que vous recherchez se trouve probablement là-bas! »
 
 Le vieillard au centre, d'un air arrogant, hocha la tête. Il dit fièrement: « Très bien. Si cela s'avère vrai, vous en tirerez tous profit! »
 

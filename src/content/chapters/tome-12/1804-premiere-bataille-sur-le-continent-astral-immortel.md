@@ -8,7 +8,7 @@ slug: première-bataille-sur-le-continent-astral-immortel
 ---
 Suivant le regard du jeune homme, l'homme d'âge moyen aperçut la colonne de feu au fond de la grotte, et ses pupilles se rétractèrent soudainement.
 
-Il possédait déjà une essence et se trouvait au stade avancé du Vide Spirituel. Au sein de la Secte du Dragon Bleu, il dominait beaucoup de monde et n'était inférieur qu'à une seule personne. Même sur l'ensemble du continent Taureau Céleste, il figurait parmi les plus puissants.
+Il possédait déjà une essence et se trouvait au stade avancé du Vide Spirituel. Au sein de la Secte Cang Long, il dominait beaucoup de monde et n'était inférieur qu'à une seule personne. Même sur l'ensemble du continent Taureau Céleste, il figurait parmi les plus puissants.
 
 À l'instant où il vit la colonne de feu, il distingua vaguement une silhouette enveloppée de flammes portant un cercueil sur le dos. L'homme d'âge moyen sentit une aura menaçante émaner de là, faisant trembler son cœur.
 
@@ -18,7 +18,7 @@ Sachant qu'il possédait lui-même un haut niveau de culture et ne ressentant au
 
 N'étant pas loin du feu, il franchit la distance en une seule enjambée. Sa bulle protectrice entra en contact avec les flammes dans un bruit de craquement. Le feu sembla être repoussé, lui ouvrant ainsi un passage.
 
-« Quels cultivateurs sauvages ont osé s'introduire dans ma Secte du Dragon Bleu? Si je ne vous transforme pas en marionnettes, nous deviendrons la risée du continent Taureau Céleste! » L'homme d'âge moyen fit un autre pas et son corps se retrouva à moitié dans les flammes. Le feu rageait, mais il ne parvenait pas à briser la bulle qui entourait son corps.
+« Quels cultivateurs sauvages ont osé s'introduire dans ma Secte Cang Long? Si je ne vous transforme pas en marionnettes, nous deviendrons la risée du continent Taureau Céleste! » L'homme d'âge moyen fit un autre pas et son corps se retrouva à moitié dans les flammes. Le feu rageait, mais il ne parvenait pas à briser la bulle qui entourait son corps.
 
 Cependant, à ce moment précis, Wang Lin ouvrit soudainement les yeux et un regard glacial jaillit. L'expression de l'homme d'âge moyen changea radicalement lorsqu'il sentit une aura terrifiante jaillir de l'homme aux cheveux blancs au cœur du feu.
 
@@ -34,7 +34,7 @@ Sous les yeux des dizaines de milliers de cultivateurs à l'extérieur, l'homme 
 
 « Qui êtes-vous?! » hurla immédiatement l'homme d'âge moyen.
 
-Cette scène soudaine choqua non seulement tous les disciples de la Secte du Dragon Bleu, mais aussi les deux anciens qui s'étaient transformés en dragons. Le maître de Xu Yun écarquilla les yeux, remplis d'incrédulité.
+Cette scène soudaine choqua non seulement tous les disciples de la Secte Cang Long, mais aussi les deux anciens qui s'étaient transformés en dragons. Le maître de Xu Yun écarquilla les yeux, remplis d'incrédulité.
 
 « Qui est donc dans cette grotte?! Même l'Ancien Zhao, au stade avancé du Vide Spirituel, a été instantanément repoussé et gravement blessé?! »
 
@@ -86,15 +86,15 @@ Si l'Ancêtre s'emportait, il pourrait simplement le transformer en une statue d
 
 « Nous ne pouvons pas le laisser s'échapper avant le retour de l'Ancêtre. S'il part, nous ne pourrons pas supporter sa colère! » Pensant cela, l'homme d'âge moyen serra les dents et poussa un rugissement.
 
-« Li Changtian, Sun Mengde, Han Xin, cet homme va s'enfuir! Ne le laissez pas partir, sinon l'Ancêtre sera furieux, et vous en connaissez les conséquences! Tous les disciples de la Secte du Dragon Bleu, interrompez la Formation de l'Eau Céleste et activez le Murmure du Dao! » Tout en parlant, l'homme d'âge moyen réprima ses blessures et chargea. Derrière lui, le visage du vieil homme aux cheveux blancs changea également; il serra les dents et s'élança à son tour.
+« Li Changtian, Sun Mengde, Han Xin, cet homme va s'enfuir! Ne le laissez pas partir, sinon l'Ancêtre sera furieux, et vous en connaissez les conséquences! Tous les disciples de la Secte Cang Long, interrompez la Formation de l'Eau Céleste et activez le Murmure du Dao! » Tout en parlant, l'homme d'âge moyen réprima ses blessures et chargea. Derrière lui, le visage du vieil homme aux cheveux blancs changea également; il serra les dents et s'élança à son tour.
 
 Simultanément, les deux dragons dans les nuages se tordirent pour reprendre une forme humaine, un homme et une femme. Pensant à la terreur que représentait l'Ancêtre, ils déployèrent toute leur puissance de culture pour charger vers la grotte en contrebas.
 
-Les quatre Grands Anciens de la Secte du Dragon Bleu, quatre cultivateurs du troisième pas, allaient tenter d'empêcher Wang Lin de partir!
+Les quatre Grands Anciens de la Secte Cang Long, quatre cultivateurs du troisième pas, allaient tenter d'empêcher Wang Lin de partir!
 
 Sur ordre de l'homme d'âge moyen, les dizaines de milliers de disciples abandonnèrent la Formation de l'Eau Céleste. Leurs mains formèrent des sceaux et ils commencèrent tous à murmurer. Les incantations de ces milliers de personnes résonnèrent dans le ciel.
 
-Le Sort du Murmure du Dao était une technique de la Secte de la Grande Âme. La Secte du Dragon Bleu entretenant des liens très étroits avec elle, la Secte de la Grande Âme lui avait confié ce sort qui devint l'art de formation de la secte!
+Le Sort du Murmure du Dao était une technique de la Secte Da Hun. La Secte Cang Long entretenant des liens très étroits avec elle, la Secte Da Hun lui avait confié ce sort qui devint l'art de formation de la secte!
 
 Si l'on écoutait attentivement, on n'entendrait que deux mots répétés par ces milliers de disciples: « Dao » et « Âme »!
 

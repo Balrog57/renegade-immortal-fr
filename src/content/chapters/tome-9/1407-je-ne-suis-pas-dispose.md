@@ -70,7 +70,7 @@ Après un long moment, il les rouvrit et murmura pour lui-même: « Je vais y je
 
 Le temps s'écoula lentement. Un jour, deux jours... En un clin d'œil, quatre jours passèrent.
 
-Durant ces quatre jours, Li Muwan ne revint pas. Wang Lin resta au sommet de la montagne, dans l'attente. Comme dans ses souvenirs, lorsque Li Muwan l'avait attendu au sein de la Secte du Ciel Nuageux, n'ayant pour compagnie que la musique mélancolique de la cithare, en espérant son retour.
+Durant ces quatre jours, Li Muwan ne revint pas. Wang Lin resta au sommet de la montagne, dans l'attente. Comme dans ses souvenirs, lorsque Li Muwan l'avait attendu au sein de la Secte Yun Tian, n'ayant pour compagnie que la musique mélancolique de la cithare, en espérant son retour.
 
 Wang Lin ne pratiqua aucune culture durant ces quatre jours, se contentant de contempler le ciel en attendant.
 

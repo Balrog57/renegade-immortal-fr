@@ -28,7 +28,7 @@ Après avoir réfléchi un instant, Wang Lin fit glisser sa main sur le miroir d
 
 L'animal fut déconcerté, mais poussa rapidement quelques cris de rage. La moustique fixa Wang Lin, sa bouche redevenant rouge. Cependant, elle n'osa pas l'attaquer. Après un court instant, elle fit demi-tour pour s'enfuir.
 
-Un éclair passa dans les yeux de Wang Lin et il lança: « Tu comptes fuir? » Sur ces mots, il agita la main droite et un petit drapeau apparut dans sa paume. Une puissante intention meurtrière émanait de l'objet. C'était le drapeau de restriction d'attribut unique. Il s'agissait du trésor le plus puissant de Wang Lin; même lui n'osait pas le raffiner jusqu'au premier niveau de complétion, car si le drapeau atteignait ce stade, la rétribution divine frapperait et, sans la protection du brouillard de la Mer des Démons, il y avait de fortes chances que l'artefact soit réduit en poussière.
+Un éclair passa dans les yeux de Wang Lin et il lança: « Tu comptes fuir? » Sur ces mots, il agita la main droite et un petit drapeau apparut dans sa paume. Une puissante intention meurtrière émanait de l'objet. C'était le drapeau de restriction d'attribut unique. Il s'agissait du trésor le plus puissant de Wang Lin; même lui n'osait pas le raffiner jusqu'au premier niveau de complétion, car si le drapeau atteignait ce stade, la rétribution divine frapperait et, sans la protection du brouillard de la Mer Xiu Mo, il y avait de fortes chances que l'artefact soit réduit en poussière.
 
 En conséquence, il s'était arrêté à 98 groupes de restrictions.
 
@@ -44,7 +44,7 @@ Bien que Wang Lin ait été extrêmement prudent en n'utilisant que 20 % de la p
 
 La moustique gisait sur la main de Wang Lin, le corps couvert de multiples blessures. Elle saignait un sang pourpre, son proboscis était fissuré et ses yeux devenaient troubles. La bête moustique était à l'article de la mort.
 
-L'expression de Wang Lin resta impassible. Il mordit son doigt et laissa tomber une goutte de sang entre les yeux de la créature. Ensuite, il sortit quelques pilules de la Secte du Ciel Nuageux et les administra à la bête.
+L'expression de Wang Lin resta impassible. Il mordit son doigt et laissa tomber une goutte de sang entre les yeux de la créature. Ensuite, il sortit quelques pilules de la Secte Yun Tian et les administra à la bête.
 
 Après avoir ingéré les pilules, le corps de la bête secoua violemment, libérant des vagues de poussière grise. Lentement, ses blessures se refermèrent et même la fissure sur son proboscis disparut. Peu après, elle retrouva une pleine santé et s'envola de la main de Wang Lin. Elle effectua quelques cercles autour de lui en émettant de faibles sifflements impuissants.
 
@@ -68,4 +68,4 @@ Wang Lin bondit et se posa sur le dos de la bête. Il lui envoya un message par 
 
 Wang Lin sentait le vent violent fouetter son visage. Il était évident qu'après avoir dévoré tous les noyaux, non seulement le corps de la bête moustique avait grandi, mais sa vitesse s'était également accrue.
 
-Wang Lin enviait le bateau de Qiu Siping. Bien qu'il puisse créer des tornades avec de petites bêtes prises à la Terre du Dieu Ancien, elles n'étaient pas aussi véloces. Mais désormais, avec cette bête moustique comme monture, il était plus rapide que l'embarcation de Qiu Siping. Même comparée à sa propre vitesse de vol, elle n'avait rien à lui envier.
+Wang Lin enviait le bateau de Qiu Siping. Bien qu'il puisse créer des tornades avec de petites bêtes prises à la Terre Gu Shen, elles n'étaient pas aussi véloces. Mais désormais, avec cette bête moustique comme monture, il était plus rapide que l'embarcation de Qiu Siping. Même comparée à sa propre vitesse de vol, elle n'avait rien à lui envier.

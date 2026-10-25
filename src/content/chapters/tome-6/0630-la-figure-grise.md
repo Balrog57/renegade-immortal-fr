@@ -26,7 +26,7 @@ Il fonçait vers la Vallée Démoniaque, au centre de la capitale!
 
 La première étape consistait à briser l'écran démoniaque entourant la capitale. La deuxième consistait à s'approcher à moins de 165 mètres de l'ancien démon pour emprunter son aura et invoquer l'ombre de sang de Bei Luo. La troisième était de pénétrer dans le repaire de l'ancien démon pour s'emparer de l'objet où était logé le Sens Divin de ce dernier!
 
-Wang Lin n'avait pas le loisir de regarder le combat entre les deux anciens démons dans l'écran démoniaque du ciel. Il se déplaça tel un éclair et pénétra dans la terre sacrée du Pays du Démon de Feu: la Vallée Démoniaque!
+Wang Lin n'avait pas le loisir de regarder le combat entre les deux anciens démons dans l'écran démoniaque du ciel. Il se déplaça tel un éclair et pénétra dans la terre sacrée du Pays Huo Yao: la Vallée Démoniaque!
 
 La Vallée Démoniaque était d'un calme absolu. Dans les profondeurs de la vallée se dressait une statue gigantesque, saturée d'énergie spirituelle démoniaque. Des quantités massives de cette énergie s'élevaient vers le ciel, rejoignant le corps de l'ancien démon pour l'aider dans son combat contre Bei Luo.
 
@@ -56,7 +56,7 @@ Le ciel fut recouvert d'énergie de l'épée, déchiquetant l'énergie spirituel
 
 Les symboles tracés par l'avatar de l'ancien démon brillèrent intensément. De fins éclairs les reliaient pour former un filet, empêchant l'énergie de l'épée de Ling Tianhou de progresser.
 
-Cependant, l'ancien démon du Pays du Démon de Feu utilisait la majeure partie de son sens divin dans le combat contre Bei Luo; cet avatar qu'il avait laissé ici n'équivalait qu'à un cultivateur de la fin du stade Ascendant. Sans l'énergie de l'épée de Ling Tianhou, la bataille aurait été sans espoir. Mais avec elle, Wang Lin était invincible!
+Cependant, l'ancien démon du Pays Huo Yao utilisait la majeure partie de son sens divin dans le combat contre Bei Luo; cet avatar qu'il avait laissé ici n'équivalait qu'à un cultivateur de la fin du stade Ascendant. Sans l'énergie de l'épée de Ling Tianhou, la bataille aurait été sans espoir. Mais avec elle, Wang Lin était invincible!
 
 L'énergie de l'épée s'élança en libérant un éclat doré éblouissant. Dès que l'énergie toucha les symboles, ceux-ci s'effondrèrent un à un.
 

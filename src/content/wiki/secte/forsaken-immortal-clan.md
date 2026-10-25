@@ -10,14 +10,14 @@ sections: ["{\"heading\":\"Rang de Cultivation\",\"body\":\"Les chamans à sept 
 
 ## Description
 
-Le **Clan de l'Immortel Banni** (Forsaken Immortal Clan) est un clan du **Système Stellaire de l'Alliance** et de la **Planète Suzaku**, étroitement lié au **Clan du Tatouage** (Tattoo Clan). Sa méthode de cultivation repose sur des tatouages noirs dont le nombre détermine la puissance du membre.
+Le **Clan de l'Immortel Banni** (Forsaken Immortal Clan) est un clan du **Système Stellaire de l'Alliance** et de la **Planète Suzaku**, étroitement lié au **Clan Fu Wen** (Tattoo Clan). Sa méthode de cultivation repose sur des tatouages noirs dont le nombre détermine la puissance du membre.
 
 Les membres du clan se divisent en deux catégories: les **chamans** et les **guerriers**. La marque de feuille sur leur front leur permet, à un certain stade, d'atteindre la **Deuxième Étape** de cultivation sans posséder de Domaine de Cultivateur — une caractéristique commune à la plupart des cultivateurs du Royaume Extérieur (Outer Realm).
 
 ### Fiche signalétique
 
 - **Nom:** Clan de l'Immortel Banni (Forsaken Immortal Clan)
-- **Origine:** Branche du Clan du Tatouage créée par Tuo Sen
+- **Origine:** Branche du Clan Fu Wen créée par Tuo Sen
 - **Méthode de cultivation:** Tatouages noirs (nombre = puissance)
 - **Types de membres:** Chamans, Guerriers
 - **Marque:** Feuille sur le front (permet la 2ème Étape sans Domaine)

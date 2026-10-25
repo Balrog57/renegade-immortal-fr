@@ -58,7 +58,7 @@ Simultanément, la foudre fulmina dans son œil droit. Le symbole électrique s'
 
 « Désormais, votre clan est privé du droit d'user de la foudre en ma présence! »
 
-Sa voix était sombre, mais empreinte d'une majesté absolue. C'était une sentence, une loi dictée avec la détermination nécessaire pour sceller un clan entier. C'était comme s'il reprenait le contrôle qui avait été autrefois cédé au Clan du Tonnerre Dispersé!
+Sa voix était sombre, mais empreinte d'une majesté absolue. C'était une sentence, une loi dictée avec la détermination nécessaire pour sceller un clan entier. C'était comme s'il reprenait le contrôle qui avait été autrefois cédé au Clan Shan Lei!
 
 La figure illusoire trembla et se désintégra en une foudre infinie. Contre toute attente, elle se transforma en déferlante électrique qui s'abattit sur le jeune homme. Des craquements stridents résonnèrent alors que le corps du garçon s'effondrait instantanément pour ne devenir que cendres. Son âme originelle fut ligotée par les éclairs. Lorsque Wang Lin se retourna, toute la foudre et le tonnerre furent absorbés par lui. L'âme originelle du jeune homme fut également aspirée dans l'œil droit de Wang Lin.
 
@@ -88,11 +88,11 @@ En voyant cela, le jeune homme marqué par le feu sombra dans la folie, ses yeux
 
 Aussitôt, le corps du garçon trembla violemment, la terreur dans ses yeux étant indescriptible. Il poussa un cri déchirant alors que le feu explosait de l'intérieur de son propre corps, le consumant lui-même!
 
-En tant que membre du Clan des Moineaux de Feu, il avait été accompagné par les flammes toute sa vie. Il n'aurait jamais pu imaginer qu'un jour, ce feu le trahirait! L'élément qu'il avait toujours contrôlé librement l'avait totalement trahi, comme s'il venait de rencontrer son véritable maître!
+En tant que membre du Clan Huo Que, il avait été accompagné par les flammes toute sa vie. Il n'aurait jamais pu imaginer qu'un jour, ce feu le trahirait! L'élément qu'il avait toujours contrôlé librement l'avait totalement trahi, comme s'il venait de rencontrer son véritable maître!
 
 Ses cris misérables résonnèrent tandis que son corps se changeait en cendres. Cependant, alors que son corps était réduit en poussière et que son âme originelle brûlait encore, il lança une incantation.
 
-« En tant que membre du Clan des Moineaux de Feu, j'invoque l'esprit ancestral! »
+« En tant que membre du Clan Huo Que, j'invoque l'esprit ancestral! »
 
 Au moment où sa voix résonna, son âme originelle s'effondra. Les éclats de lumière se transformèrent en feu pour donner naissance à l'illusion d'un Oiseau Vermillon! Cet oiseau était noir et enveloppé d'une aura d'hostilité pure. Il ne ressemblait même pas à un véritable Oiseau Vermillon; il tenait davantage d'un oiseau de feu à la taille démesurée!
 

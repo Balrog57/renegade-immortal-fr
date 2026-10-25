@@ -84,15 +84,15 @@ Ce n'était pas la première fois qu'il obtenait une telle goutte dans sa vie; c
 
 Cependant, la goutte qu'il tenait là dépassait de loin ce que Tian Yunzi lui avait donné. Il était impossible de les comparer; c'était comme comparer la lune éclatante à une luciole!
 
-« Cette goutte d'essence aquatique est le troisième cadeau que je t'ai préparé. J'ai raffiné 99 rivières dans le Continent du Fleuve Céleste et je l'ai nourrie dans le corps de nombreux cultivateurs possédant des essences aquatiques, puis je l'ai extraite de leur corps. Je ne sais pas si ton essence sera complète après l'avoir absorbée, mais même si ce n'est pas le cas, elle ne sera qu'à un cheveu de l'aboutissement... »
+« Cette goutte d'essence aquatique est le troisième cadeau que je t'ai préparé. J'ai raffiné 99 rivières dans le Continent Tian He et je l'ai nourrie dans le corps de nombreux cultivateurs possédant des essences aquatiques, puis je l'ai extraite de leur corps. Je ne sais pas si ton essence sera complète après l'avoir absorbée, mais même si ce n'est pas le cas, elle ne sera qu'à un cheveu de l'aboutissement... »
 
-« J'espère que ces trois cadeaux te plairont. J'espère que tu protégeras ma Secte de la Grande Âme... et que tu permettras à mes descendants de retourner sur le Continent Central! »
+« J'espère que ces trois cadeaux te plairont. J'espère que tu protégeras ma Secte Da Hun... et que tu permettras à mes descendants de retourner sur le Continent Central! »
 
 Les yeux de Wang Lin s'illuminèrent. Une fois la voix antique disparue de son esprit, il saisit la goutte d'eau. Elle était d'une importance vitale pour lui!
 
 Tenant la goutte d'essence, Wang Lin y projeta son Sens Divin. Après une inspection minutieuse, il fut convaincu qu'il n'y avait aucun problème. Ses yeux brillèrent tandis qu'il levait la tête, son regard semblant transpercer la grotte.
 
-« Si j'en ai la capacité, je protégerai la Secte de la Grande Âme à l'avenir! » Alors que les paroles de Wang Lin résonnaient, un coup de tonnerre fit trembler l'extérieur de la Secte de la Grande Âme.
+« Si j'en ai la capacité, je protégerai la Secte Da Hun à l'avenir! » Alors que les paroles de Wang Lin résonnaient, un coup de tonnerre fit trembler l'extérieur de la Secte Da Hun.
 
 Tandis que le grondement se propageait, de nombreux cultivateurs furent ébranlés. L'Ancien Taureau Vert se redressa brusquement, les yeux grands ouverts. Son cœur fut secoué et ses pupilles se contractèrent alors qu'il fixait l'orage tonitruant au-dehors.
 
@@ -100,7 +100,7 @@ Tandis que le grondement se propageait, de nombreux cultivateurs furent ébranl�
 
 Pendant que le tonnerre grondait, Wang Lin leva la main gauche et forma un sceau. Une pression écrasante émana de son corps et enveloppa la montagne.
 
-« Corps véritable d'essence, protège-moi! » La voix de Wang Lin résonna dans toute la Secte de la Grande Âme. Sa main droite traça un sceau et les flammes de la montagne en fusion se rassemblèrent devant sa grotte pour former son corps véritable d'essence, puis il s'assit.
+« Corps véritable d'essence, protège-moi! » La voix de Wang Lin résonna dans toute la Secte Da Hun. Sa main droite traça un sceau et les flammes de la montagne en fusion se rassemblèrent devant sa grotte pour former son corps véritable d'essence, puis il s'assit.
 
 Au même moment, les yeux de Fan Shanmeng s'illuminèrent et elle leva le regard vers le sommet de la montagne embrasée. On ignorait ce qu'elle pensait.
 

@@ -18,7 +18,7 @@ Cependant, il restait les essences éthérées, telles que le karma, la vie et l
 
 La raison pour laquelle il y avait si peu de cultivateurs du Vide Arcanique — à peine une douzaine parmi des millions, voire davantage — résidait dans la difficulté d'obtenir une essence éthérée.
 
-Si l'on possédait déjà une essence éthérée lors du franchissement de la Porte du Vide, le goulot d'étranglement du stade du Vide Arcanique serait bien plus facile à surmonter. Cependant, trop peu de personnes avaient atteint la troisième étape avec une essence éthérée. Par conséquent, ils devaient soit en voler une, soit en comprendre une.
+Si l'on possédait déjà une essence éthérée lors du franchissement de la Porte Kong, le goulot d'étranglement du stade du Vide Arcanique serait bien plus facile à surmonter. Cependant, trop peu de personnes avaient atteint la troisième étape avec une essence éthérée. Par conséquent, ils devaient soit en voler une, soit en comprendre une.
 
 Bien qu'il soit difficile de compléter une essence après avoir atteint la troisième étape, au fil des âges innombrables, de nombreux êtres étranges et des génies avaient tenté l'expérience. Ils finirent par élaborer une méthode.
 
@@ -50,27 +50,27 @@ Lorsque Situ Nan et les milliers de cultivateurs arrivèrent, ils découvrirent 
 
 Wang Lin avançait et ils le suivaient. Bien qu'une vaste distance les séparât, Wang Lin était tel une épée menant la charge. Tous les autres n'avaient d'autre choix que de le suivre!
 
-Wang Lin quitta la Rivière Invoquée. Après avoir déterminé qu'aucun cultivateur du Royaume Extérieur ne subsistait, il pénétra dans la Mer des Nuages tandis que les près de 50 000 têtes poussaient des hurlements lugubres!
+Wang Lin quitta la Rivière Invoquée. Après avoir déterminé qu'aucun cultivateur du Royaume Extérieur ne subsistait, il pénétra dans la Mer Yun tandis que les près de 50 000 têtes poussaient des hurlements lugubres!
 
-La Mer des Nuages était à l'origine le front de guerre, et une multitude de cultivateurs des deux camps y avaient péri. Dès son entrée, Wang Lin eut l'impression d'entendre les cris d'innombrables fantômes.
+La Mer Yun était à l'origine le front de guerre, et une multitude de cultivateurs des deux camps y avaient péri. Dès son entrée, Wang Lin eut l'impression d'entendre les cris d'innombrables fantômes.
 
 Il ferma les yeux. Après un instant de sensation, il les rouvrit, révélant un regard chargé d'une intention meurtrière. Il avança, les 50 000 têtes flottant derrière lui; une scène proprement terrifiante.
 
-« 50 000 têtes suffisent pour former la formation de la Vie et de la Mort! » Tandis que Wang Lin traversait la Mer des Nuages, plus de la moitié des continents flottants d'autrefois avaient été déchirés et effondrés.
+« 50 000 têtes suffisent pour former la formation de la Vie et de la Mort! » Tandis que Wang Lin traversait la Mer Yun, plus de la moitié des continents flottants d'autrefois avaient été déchirés et effondrés.
 
-Les continents restants étaient occupés par une masse de cultivateurs du Royaume Extérieur installés là depuis longtemps. La Mer des Nuages étant la ligne de front, il ne restait presque plus de cultivateurs du Royaume Intérieur; tous avaient péri.
+Les continents restants étaient occupés par une masse de cultivateurs du Royaume Extérieur installés là depuis longtemps. La Mer Yun étant la ligne de front, il ne restait presque plus de cultivateurs du Royaume Intérieur; tous avaient péri.
 
-Toute la Mer des Nuages était devenue le territoire du Royaume Extérieur!
+Toute la Mer Yun était devenue le territoire du Royaume Extérieur!
 
-Le Sens Divin de Wang Lin se déploya et enveloppa instantanément la Mer des Nuages. Tout ce qui s'y trouvait apparut clairement dans son esprit. En contemplant cette étrangère Mer des Nuages, la colère de Wang Lin rugit comme une tempête.
+Le Sens Divin de Wang Lin se déploya et enveloppa instantanément la Mer Yun. Tout ce qui s'y trouvait apparut clairement dans son esprit. En contemplant cette étrangère Mer Yun, la colère de Wang Lin rugit comme une tempête.
 
-Il ne dissimula nullement son Sens Divin, utilisant au contraire une méthode impérieuse pour signifier à tous les cultivateurs du Royaume Extérieur de la Mer des Nuages qu'il était arrivé.
+Il ne dissimula nullement son Sens Divin, utilisant au contraire une méthode impérieuse pour signifier à tous les cultivateurs du Royaume Extérieur de la Mer Yun qu'il était arrivé.
 
 Sur les continents, les cultivateurs du Royaume Extérieur s'éveillèrent lorsqu'ils ressentirent le Sens Divin de Wang Lin. Ils levèrent les yeux vers le ciel, stupéfaits, tandis qu'un pressentiment funeste grandissait dans leurs cœurs.
 
-Le Sens Divin de Wang Lin était comme une tempête balayant la Mer des Nuages, tel un lourd gourdin frappant au cœur de chaque cultivateur du Royaume Extérieur.
+Le Sens Divin de Wang Lin était comme une tempête balayant la Mer Yun, tel un lourd gourdin frappant au cœur de chaque cultivateur du Royaume Extérieur.
 
-Au plus profond de la Mer des Nuages se trouvait une planète rare. C'était autrefois la planète de la Secte Brise-Ciel, mais elle n'était plus que ruines. D'innombrables algues bleues et violettes y poussaient, atteignant environ 1 000 pieds de hauteur. De loin, on aurait dit que la planète avait poussé des poils.
+Au plus profond de la Mer Yun se trouvait une planète rare. C'était autrefois la planète de la Secte Brise-Ciel, mais elle n'était plus que ruines. D'innombrables algues bleues et violettes y poussaient, atteignant environ 1 000 pieds de hauteur. De loin, on aurait dit que la planète avait poussé des poils.
 
 La planète entière était recouverte par ces algues. Au centre de cette étendue végétale se trouvaient d'immenses branches de plusieurs centaines de pieds d'épaisseur, et là trônait une fleur géante et violette!
 
@@ -78,7 +78,7 @@ La fleur mesurait plus de 10 000 pieds de haut, et il était évident que les al
 
 Le bourgeon floral était circulaire et vaguement transparent; une femme y était assise. Elle était d'une grande beauté et portait une robe bleue. Assise là, elle cultivait.
 
-L'aura d'un cultivateur du Vide du Nirvana au stade intermédiaire émanait du bourgeon. Lorsque l'aura de Wang Lin balaya la Mer des Nuages, la femme à l'intérieur du bourgeon ouvrit les yeux.
+L'aura d'un cultivateur du Vide du Nirvana au stade intermédiaire émanait du bourgeon. Lorsque l'aura de Wang Lin balaya la Mer Yun, la femme à l'intérieur du bourgeon ouvrit les yeux.
 
 Son regard était empreint de choc. À l'instant où ses yeux s'ouvrirent, les algues infinies de la planète s'agitèrent.
 

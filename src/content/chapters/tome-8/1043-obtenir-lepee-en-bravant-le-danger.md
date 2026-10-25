@@ -24,7 +24,7 @@ Compte tenu de sa personnalité, Wang Lin ne prendrait naturellement aucun risqu
 
 Après un bref instant de lutte intérieure, le regard de Wang Lin se fit résolu. La richesse s'acquiert au péril de sa vie. S'il partait maintenant, bien qu'il soit en sécurité, il manquerait l'opportunité de saisir cette épée.
 
-De plus, il se trouvait dans la Grotte de l'Empereur Céleste. S'il ne la prenait pas à l'instant, il lui serait peut-être très difficile d'y revenir un jour. Wang Lin n'était pas disposé à repartir les mains vides après avoir découvert un tel trésor.
+De plus, il se trouvait dans la Grotte Xian Di. S'il ne la prenait pas à l'instant, il lui serait peut-être très difficile d'y revenir un jour. Wang Lin n'était pas disposé à repartir les mains vides après avoir découvert un tel trésor.
 
 Une fois sa décision prise, Wang Lin leva les yeux vers le puits. De là, il pouvait voir que l'ouverture était scellée par des glaciers massifs et compacts, ne laissant passer que quelques sentiers étroits et sinueux.
 

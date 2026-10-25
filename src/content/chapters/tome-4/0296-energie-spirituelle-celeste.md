@@ -33,7 +33,7 @@ La vitesse du cultivateur aux robes vertes était fulgurante. Lorsqu'il réalisa
 
 Wang Lin l'ignora. Ce cultivateur de robes vertes possédait le même niveau de culture que lui, au début du stade de la Formation de l'Âme. Il ne le considérait nullement comme une menace et se contenta d'estimer le temps qu'il lui restait avant l'arrivée de l'individu tout en poursuivant son raffinage.
 
-Voyant que Wang Lin non seulement ne s'arrêtait pas, mais accélérait même le processus de raffinage, le cultivateur aux robes vertes hurla avec rage: « Cette zone a été découverte par ma Secte de l'Épée Da Luo il y a 3 000 ans! Si tu ne t'arrêtes pas immédiatement, la Secte de l'Épée Da Luo viendra te réclamer des comptes! »
+Voyant que Wang Lin non seulement ne s'arrêtait pas, mais accélérait même le processus de raffinage, le cultivateur aux robes vertes hurla avec rage: « Cette zone a été découverte par ma Secte Da Luo Jian il y a 3 000 ans! Si tu ne t'arrêtes pas immédiatement, la Secte Da Luo Jian viendra te réclamer des comptes! »
 
 La voix du cultivateur parvenait de loin. Bien que Wang Lin n'en saisît qu'une partie, il en comprit l'essentiel. Il eut un ricanement méprisant. Comment tout pouvait-il déjà appartenir à quelqu'un, surtout une chose comme l'énergie spirituelle céleste? Les propos de cet homme étaient proprement ridicules.
 
@@ -43,7 +43,7 @@ Le visage de ce dernier changea radicalement; il craignait par-dessus tout cette
 
 La vitesse de l'attaque fut fulgurante. En percutant la boule de foudre, le qi d'épée la coupa en deux, projetant les fragments de chaque côté et créant deux cratères d'où s'échappait une fumée blanche.
 
-Le visage du cultivateur aux robes vertes rougit légèrement alors qu'il réprimait le sang qui lui montait à la gorge. Cette épée, une arme spirituelle de rang suprême, était l'une des sept épées précieuses de la Secte de l'Épée Da Luo. Contre un adversaire plus faible, il aurait pu la contrôler aisément; même contre un égal, il aurait pu l'éliminer par la seule puissance du qi contenu dans la lame.
+Le visage du cultivateur aux robes vertes rougit légèrement alors qu'il réprimait le sang qui lui montait à la gorge. Cette épée, une arme spirituelle de rang suprême, était l'une des sept épées précieuses de la Secte Da Luo Jian. Contre un adversaire plus faible, il aurait pu la contrôler aisément; même contre un égal, il aurait pu l'éliminer par la seule puissance du qi contenu dans la lame.
 
 Cependant, le Crapaud du Tonnerre avait une puissance comparable à celle d'un cultivateur au sommet du stade intermédiaire de la Formation de l'Âme. Bien que la boule de foudre ne possédât pas de domaine, elle n'était pas une chose qu'un cultivateur ordinaire pouvait simplement contrer. Il s'agissait d'une technique d'attaque unique accordée au crapaud par le ciel. Ainsi, le cultivateur ne pouvait que tout miser sur cette attaque, au risque de se blesser lui-même pour l'emporter.
 
@@ -51,9 +51,9 @@ Grâce à l'aide du Crapaud du Tonnerre, Wang Lin acheva enfin le raffinage de l
 
 Sous cette tablette de pierre se cachait l'un des yeux de la formation. Bien que celle-ci fût brisée depuis longtemps, elle demeurait active. Au fil du temps, elle continuait à rassembler l'énergie spirituelle céleste jusqu'à produire un mince filet d'énergie pure.
 
-La Secte de l'Épée Da Luo avait dû placer cette tablette ici par crainte que d'autres ne la découvrent. À chaque ouverture de la Porte Céleste, ils envoyaient quelqu'un pour récolter l'énergie spirituelle céleste. S'ils n'avaient utilisé aucune restriction mais seulement une tablette, c'est parce qu'ils craignaient d'attirer l'attention. Peu importe la perfection d'une formation, elle laisse toujours des traces, et il existe toujours des cultivateurs de rang céleste capables de les déceler. Finalement, ils avaient opté pour une simple tablette sans aucune restriction afin de rendre la découverte plus difficile.
+La Secte Da Luo Jian avait dû placer cette tablette ici par crainte que d'autres ne la découvrent. À chaque ouverture de la Porte Céleste, ils envoyaient quelqu'un pour récolter l'énergie spirituelle céleste. S'ils n'avaient utilisé aucune restriction mais seulement une tablette, c'est parce qu'ils craignaient d'attirer l'attention. Peu importe la perfection d'une formation, elle laisse toujours des traces, et il existe toujours des cultivateurs de rang céleste capables de les déceler. Finalement, ils avaient opté pour une simple tablette sans aucune restriction afin de rendre la découverte plus difficile.
 
-Wang Lin ricana en plaçant sa main droite sur l'orifice et pressa violemment. Des craquements résonnèrent alors que l'œil de la formation était brisé; elle ne pourrait plus jamais être utilisée. Puisqu'il avait déjà offensé la Secte de l'Épée Da Luo en dérobant leur énergie, il valait mieux détruire cet œil pour les empêcher de revenir récolter davantage et de forger des cultivateurs encore plus puissants.
+Wang Lin ricana en plaçant sa main droite sur l'orifice et pressa violemment. Des craquements résonnèrent alors que l'œil de la formation était brisé; elle ne pourrait plus jamais être utilisée. Puisqu'il avait déjà offensé la Secte Da Luo Jian en dérobant leur énergie, il valait mieux détruire cet œil pour les empêcher de revenir récolter davantage et de forger des cultivateurs encore plus puissants.
 
 Le cultivateur aux robes vertes fixa Wang Lin. Il poussa un rugissement et le pointa du doigt. L'épée se tourna vers Wang Lin et un qi d'épée, deux fois plus imposant que le précédent, s'abattit du ciel comme pour fendre les cieux en deux.
 
@@ -73,4 +73,4 @@ L'expression de Wang Lin resta impassible. Cette épée était singulière et po
 
 Enveloppé par le drapeau de restriction, la vitesse de Wang Lin était prodigieuse. La distance qui le séparait du cultivateur aux robes vertes se réduisit rapidement. Le visage de ce dernier était livide. Il utilisa à nouveau sa technique secrète et sa vitesse augmenta considérablement. Arrivé au point où il avait atterri, il forma rapidement un sceau. En voyant la formation apparaître, il se détendit légèrement. Une fois à l'intérieur de la formation, il pourrait rejoindre un autre fragment. Les fragments étaient légion, et celui qui le poursuivait ne pourrait jamais le rattraper.
 
-Il ricana: « Attends donc! Cette fois, quatre membres de ma Secte de l'Épée Da Luo sont entrés dans le Royaume Céleste. Je ne suis que le moins puissant des quatre. Une fois que j'aurai retrouvé mes frères aînés, nos épées s'abattront ensemble et nous te tuerons. Tu ne pourras jamais quitter le Royaume Céleste! »
+Il ricana: « Attends donc! Cette fois, quatre membres de ma Secte Da Luo Jian sont entrés dans le Royaume Céleste. Je ne suis que le moins puissant des quatre. Une fois que j'aurai retrouvé mes frères aînés, nos épées s'abattront ensemble et nous te tuerons. Tu ne pourras jamais quitter le Royaume Céleste! »

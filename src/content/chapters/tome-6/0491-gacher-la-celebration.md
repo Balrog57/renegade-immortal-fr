@@ -16,7 +16,7 @@ Non seulement lui, mais le Deuxième Frère à ses côtés affichait également 
 
 Les yeux de Bai Wei brillèrent d'une lueur mystérieuse; il prit une petite gorgée de son vin et esquissa un léger sourire. Quant à la Quatrième Sœur qui avait emprisonné Wang Lin, elle resta parfaitement calme, sans bouger d'un pouce.
 
-Le Deuxième Frère de la Division Pourpre, un homme d'âge moyen, chargea en hurlant: « Aujourd'hui est la grande célébration de ma Secte du Destin Céleste! Quiconque osera gâcher cette fête sera tué sans poser de questions! » Il condamna Wang Lin avant même que celui-ci ne puisse parler. Tout en criant, sa main forma un sceau et il tonna: « Pouvoir de la terre! »
+Le Deuxième Frère de la Division Pourpre, un homme d'âge moyen, chargea en hurlant: « Aujourd'hui est la grande célébration de ma Secte Tian Yun! Quiconque osera gâcher cette fête sera tué sans poser de questions! » Il condamna Wang Lin avant même que celui-ci ne puisse parler. Tout en criant, sa main forma un sceau et il tonna: « Pouvoir de la terre! »
 
 À la suite de ses paroles, une lumière jaune et terreuse apparut dans sa main. Elle se transforma immédiatement en une vaste nuée de sable qui, tel un essaim d'abeilles, dépassa de loin sa vitesse et s'élança vers l'aura violette venant de l'est.
 
@@ -36,7 +36,7 @@ L'expression de l'homme d'âge moyen changea et il cria: « Septième Frère, c'
 
 Wang Lin garda un visage impassible en observant les cultivateurs environnants. Tous les regardaient d'un air glacial, et aucun ne semblait avoir l'intention d'intervenir.
 
-« Cultivateurs, aujourd'hui est la compétition pour ma Division Pourpre. Si des étrangers osent s'interposer, ne blâmez pas ma Secte du Destin Céleste si nous en tirons les conséquences à l'avenir! » Tandis que Wang Lin parlait froidement, il fit un pas en avant et pressa son index droit vers l'homme d'âge moyen.
+« Cultivateurs, aujourd'hui est la compétition pour ma Division Pourpre. Si des étrangers osent s'interposer, ne blâmez pas ma Secte Tian Yun si nous en tirons les conséquences à l'avenir! » Tandis que Wang Lin parlait froidement, il fit un pas en avant et pressa son index droit vers l'homme d'âge moyen.
 
 Ce dernier recula précipitamment. Il avait déjà souffert de cette flamme démoniaque par le passé, et la simple vue de celle-ci lui fit immédiatement l'envie de fuir.
 
@@ -46,13 +46,13 @@ Wang Lin ne daigna même jeter un regard à Zhao Xingsha. Il fit un geste du doi
 
 « Une flamme démoniaque! » Des membres de diverses sectes, rompus à ces phénomènes, furent capables d'identifier immédiatement cette flamme.
 
-« La Secte du Destin Céleste prône le suivi des désirs personnels, il n'est donc pas surprenant que l'un de ses membres puisse utiliser la flamme démoniaque. Cependant, cet individu est totalement inconnu; je n'avais jamais su qu'une telle personne existait au sein de la Division Pourpre! »
+« La Secte Tian Yun prône le suivi des désirs personnels, il n'est donc pas surprenant que l'un de ses membres puisse utiliser la flamme démoniaque. Cependant, cet individu est totalement inconnu; je n'avais jamais su qu'une telle personne existait au sein de la Division Pourpre! »
 
 « J'ai entendu le cultivateur Zhao l'appeler Septième Frère. Se pourrait-il que ce soit le septième disciple de la Division Pourpre? Mais Sun Yun n'était-il pas aussi le septième frère de la Division Pourpre?! »
 
 Diverses discussions s'élevèrent dans la foule.
 
-La flamme démoniaque jaillit et chargea directement l'homme d'âge moyen. L'expression de Zhao Xingsha se durcit; sa main forma un sceau et il murmura: « Le Mantra Ciel-Terre de la Liberté! »
+La flamme démoniaque jaillit et chargea directement l'homme d'âge moyen. L'expression de Zhao Xingsha se durcit; sa main forma un sceau et il murmura: « Le Mantra Da Zi Zai Tian Di! »
 
 À la suite de ses paroles, des anneaux de lumière blanche jaillirent de la main droite de Zhao Xingsha. Ces cercles s'étendirent rapidement pour encercler la flamme.
 

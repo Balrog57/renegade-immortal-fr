@@ -12,7 +12,7 @@ Alors que Wang Lin avançait, presque tous les cultivateurs des planètes qu’i
 
 Ces clameurs exprimaient l'enthousiasme et les attentes que tous les membres de la Secte Divine de l'Oiseau Vermillon avaient nourris pendant d'innombrables années.
 
-De plus en plus de cultivateurs suivaient Wang Lin. En particulier, les plus jeunes le regardaient avec une profonde révérence. À mesure qu'il progressait, toujours plus de membres de la Secte de l'Oiseau Vermillon se mettaient en marche derrière lui.
+De plus en plus de cultivateurs suivaient Wang Lin. En particulier, les plus jeunes le regardaient avec une profonde révérence. À mesure qu'il progressait, toujours plus de membres de la Secte Zhu Que se mettaient en marche derrière lui.
 
 « Maître! » Un cri enthousiaste s'éleva parmi les membres de la Secte, faisant marquer un temps d'arrêt à Wang Lin. Lei Ji et Da Tou volèrent rapidement vers lui.
 
@@ -33,9 +33,9 @@ Les rugissements tonitruants qui résonnèrent remplacèrent tout autre son dans
 
 La planète principale finale de la Secte Divine de l'Oiseau Vermillon était également celle où se trouvait Ren Tao. À cet instant, en entendant les membres de la secte acclamer son rival à ses côtés, son expression devint encore plus sombre. Il fixa Wang Lin d'un regard venimeux.
 
-Près de lui, Liao Yun regardait Ren Tao avec dédain. Il s'élança dans les airs vers Wang Lin, qui était entouré d'une foule immense, et dit respectueusement: « Liao Yun salue le Divin Empereur! » Il était empreint de révérence. Personne ne connaissait mieux Wang Lin que ceux qui s'étaient rendus sur la Terre des Esprits Démoniaques, et il en faisait partie.
+Près de lui, Liao Yun regardait Ren Tao avec dédain. Il s'élança dans les airs vers Wang Lin, qui était entouré d'une foule immense, et dit respectueusement: « Liao Yun salue le Divin Empereur! » Il était empreint de révérence. Personne ne connaissait mieux Wang Lin que ceux qui s'étaient rendus sur la Terre Yao Ling, et il en faisait partie.
 
-Le sortilège de Wang Lin avait suscité l'admiration totale de ceux qui avaient été témoins de ses exploits sur la Terre des Esprits Démoniaques!
+Le sortilège de Wang Lin avait suscité l'admiration totale de ceux qui avaient été témoins de ses exploits sur la Terre Yao Ling!
 
 Feng Shan hésita un instant avant de s'envoler également pour saluer Wang Lin aux côtés de Liao Yun.
 
@@ -57,21 +57,21 @@ Le front de Ren Tao était couvert de sueur et les yeux de tous étaient rivés 
 
 Les trois vieillards derrière Ren Tao firent un pas en avant pour l'entourer, puis ils fixèrent les divers anciens parmi la foule.
 
-« Ren Tao, oses-tu?! Allez-vous tous les trois vous opposer ouvertement au commandement du vieil empereur? » Un grand homme s'avança de la foule. C'était l'un des anciens du stade Briseur du Nirvana qui s'était trouvé sur la Terre des Esprits Démoniaques.
+« Ren Tao, oses-tu?! Allez-vous tous les trois vous opposer ouvertement au commandement du vieil empereur? » Un grand homme s'avança de la foule. C'était l'un des anciens du stade Briseur du Nirvana qui s'était trouvé sur la Terre Yao Ling.
 
 « Ancien Zhou, les lois de ma Secte Divine de l'Oiseau Vermillon stipulent que lorsqu'un Divin Empereur transmet son titre au suivant, tous les membres ont le droit de contester sa position. N'est-ce pas vrai? »
 
 « Idiot téméraire! » Un éclair de froideur passa dans les yeux de l'Ancien Zhou. Il ricana mais n'intervint pas et recula de quelques pas.
 
-Non seulement ce vieil homme, mais à cet instant, parmi la multitude, ceux qui avaient été sur la Terre des Esprits Démoniaques regardaient Ren Tao avec moquerie. Certains le regardaient même avec pitié.
+Non seulement ce vieil homme, mais à cet instant, parmi la multitude, ceux qui avaient été sur la Terre Yao Ling regardaient Ren Tao avec moquerie. Certains le regardaient même avec pitié.
 
-Sous ces regards, l'esprit de Ren Tao ne put s'empêcher de vaciller. Il avait beaucoup entendu parler des prouesses de Wang Lin sur la Terre des Esprits Démoniaques trois ans auparavant, mais il n'y avait pas cru.
+Sous ces regards, l'esprit de Ren Tao ne put s'empêcher de vaciller. Il avait beaucoup entendu parler des prouesses de Wang Lin sur la Terre Yao Ling trois ans auparavant, mais il n'y avait pas cru.
 
 En cet instant, il voyait clairement que Wang Lin n'était qu'au sommet du stade Scruteur du Nirvana, ce qui le confortait dans son scepticisme. Il s'apprêtait à parler quand, soudain, le regard glacial de Wang Lin se verrouilla sur lui.
 
 Dès que ce regard tomba sur lui, le corps de Ren Tao trembla et un frisson l'envahit le cœur. Même les yeux des trois anciens derrière lui se plissèrent.
 
-« Si tu me défies, tu n'auras aucune chance de survie. En es-tu toujours décidé? » La voix de Wang Lin était calme, mais empreinte d'une intention glaciale. Tous ceux qui avaient connu la Terre des Esprits Démoniaques ressentirent un froid dans leur poitrine.
+« Si tu me défies, tu n'auras aucune chance de survie. En es-tu toujours décidé? » La voix de Wang Lin était calme, mais empreinte d'une intention glaciale. Tous ceux qui avaient connu la Terre Yao Ling ressentirent un froid dans leur poitrine.
 
 Ils n'avaient jamais oublié ce pouvoir qui déchirait les ténèbres de la nuit et ce poing capable de briser le firmament lors du Rêve des Temps Anciens.
 

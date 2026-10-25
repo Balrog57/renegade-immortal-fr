@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1024 - She, the Buried Celestial
 slug: elle-la-celeste-enterree
 ---
-« J'ai déjà attendu votre arrivée pendant très longtemps... J'ai sacrifié ma chair et mon sang aux anciens. Mon âme se muera en néant. Je deviendrai l'âme du Diable Ancien. Moi, le diable dispersé issu de la division de l'Ancien Diable Ta Jia, je dissipe mes pensées démoniaques pour emprunter la puissance de l'objet sacré du Clan du Tatouage afin d'ouvrir le Bassin Funéraire Céleste! »
+« J'ai déjà attendu votre arrivée pendant très longtemps... J'ai sacrifié ma chair et mon sang aux anciens. Mon âme se muera en néant. Je deviendrai l'âme du Diable Ancien. Moi, le diable dispersé issu de la division de l'Ancien Diable Ta Jia, je dissipe mes pensées démoniaques pour emprunter la puissance de l'objet sacré du Clan Fu Wen afin d'ouvrir le Bassin Funéraire Céleste! »
 
 Ce diable dispersé en armure afficha un sourire étrange tandis que sa voix résonnait. Puis, il leva le pied et l'abattit avec impitoyabilité!
 
@@ -42,7 +42,7 @@ Son âme originelle s'échappa de la brume de sang, terrifiée. Cependant, d'inn
 
 Même ses cris déchirants semblèrent être engloutis par le vortex et s'évanouir dans le néant.
 
-Wang Lin ressentit également cette force inimaginable. Heureusement, ayant vécu longtemps dans les profondeurs de la Terre des Esprits Démoniaques où régnait une aspiration similaire, il ne fut pas déstabilisé. Tandis que la force l'enveloppait, il fit circuler son énergie originelle autour de son corps et frappa le sol avec rage!
+Wang Lin ressentit également cette force inimaginable. Heureusement, ayant vécu longtemps dans les profondeurs de la Terre Yao Ling où régnait une aspiration similaire, il ne fut pas déstabilisé. Tandis que la force l'enveloppait, il fit circuler son énergie originelle autour de son corps et frappa le sol avec rage!
 
 Une immense quantité de flammes jaillit de son pied pour le repousser. Bien que les flammes fussent absorbées dès leur apparition, le corps de Wang Lin fut propulsé à une centaine de pieds de hauteur.
 
@@ -58,7 +58,7 @@ Ce rugissement portait en lui quelque chose qui bouleversa l'esprit de tous! Aus
 
 Ces tatouages étaient d'un rouge sang profond, certains encore reliés à des lambeaux de chair. C'était comme si quelqu'un venait de les arracher brutalement des corps de leurs propriétaires.
 
-À la vue de ces marques, Wang Lin inspira brusquement. Il reconnut immédiatement qu'il s'agissait des tatouages primordiaux du Clan des Immortels Délaissés!
+À la vue de ces marques, Wang Lin inspira brusquement. Il reconnut immédiatement qu'il s'agissait des tatouages primordiaux du Clan Xian Yi!
 
 Une silhouette vague émergea lentement des profondeurs du vortex, portée par le rugissement et les tatouages. À mesure que la forme s'élevait, une aura monstrueuse et maléfique se manifesta!
 

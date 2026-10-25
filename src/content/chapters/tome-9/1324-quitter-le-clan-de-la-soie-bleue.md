@@ -1,6 +1,6 @@
 ---
 n: 1324
-title: Quitter le Clan de la Soie Bleue
+title: Quitter le Clan Lan Si
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1324 - Leaving the Blue Silk Clan
@@ -34,7 +34,7 @@ Les étoiles brillaient alors que Wang Lin flottait dans le vide, se remémorant
 
 Après un long moment, Wang Lin réprima cette pensée. Il regarda silencieusement en direction du Mont Bleu. Il semblait vaguement apercevoir Li Qianmei et Lanmeng Daozun.
 
-Il afficha un regard complexe avant de laisser échapper un soupir. Puis, se transformant en un rayon de lumière, il s'envola vers les confins du Clan de la Soie Bleue!
+Il afficha un regard complexe avant de laisser échapper un soupir. Puis, se transformant en un rayon de lumière, il s'envola vers les confins du Clan Lan Si!
 
 Avant de quitter le territoire, des ondulations apparurent sous les pieds de Wang Lin et il fusionna avec le monde, disparaissant sans laisser de trace. Les ondulations se propagèrent très loin avant de s'estomper progressivement dans le domaine stellaire.
 
@@ -44,7 +44,7 @@ Au moment de son départ, sur le Mont Bleu, Lanmeng Daozun jouait encore de la c
 
 Wang Lin utilisa la Déformation Spatiale pour fusionner avec le monde et, après quelques respirations, des ondulations apparurent quelque part dans le Système Stellaire Antique. Une distorsion émanait de ces ondulations, comme si une silhouette était sur le point de s'y manifester.
 
-Une femme en blanc flottait étrangement dans le vide, à l'extérieur des ondulations. On ignorait quand elle était apparue; c'était comme si elle se trouvait aux abords du Clan de la Soie Bleue l'instant d'avant, et qu'au souffle suivant, elle était déjà là.
+Une femme en blanc flottait étrangement dans le vide, à l'extérieur des ondulations. On ignorait quand elle était apparue; c'était comme si elle se trouvait aux abords du Clan Lan Si l'instant d'avant, et qu'au souffle suivant, elle était déjà là.
 
 Elle contemplait calmement les ondulations, attendant la figure qui devait en sortir.
 
@@ -96,17 +96,17 @@ Alors qu'elle inspirait, les étoiles du dieu ancien apparurent entre les sourci
 
 Cependant, à cet instant précis, l'hébétude dans les yeux de Wang Lin disparut, remplacée par une clarté limpide!
 
-« Monde! » Un monde surgit tel un vent glacial, et une onde jaillit du corps de Wang Lin. Une lumière noire se propagea depuis lui! Le Monde du Vent et de la Pluie, contenant les Flammes Joss de Wang Lin, explosa!
+« Monde! » Un monde surgit tel un vent glacial, et une onde jaillit du corps de Wang Lin. Une lumière noire se propagea depuis lui! Le Monde Hu Feng Huan Yu, contenant les Flammes Joss de Wang Lin, explosa!
 
-La femme en blanc était trop proche. Tandis que la lueur fantomatique scintillait, le Monde du Vent et de la Pluie s'étendit soudainement sur 10 000 pieds. La femme ne put que reculer sous la force de cette expansion! Son expression changea brusquement!
+La femme en blanc était trop proche. Tandis que la lueur fantomatique scintillait, le Monde Hu Feng Huan Yu s'étendit soudainement sur 10 000 pieds. La femme ne put que reculer sous la force de cette expansion! Son expression changea brusquement!
 
-Simultanément, la fumée dorée se contracta dès l'expansion du Monde du Vent et de la Pluie. La femme n'en absorba aucune particule; tout retourna dans les étoiles du dieu ancien de Wang Lin!
+Simultanément, la fumée dorée se contracta dès l'expansion du Monde Hu Feng Huan Yu. La femme n'en absorba aucune particule; tout retourna dans les étoiles du dieu ancien de Wang Lin!
 
 Une lueur sanguine monstrueuse jaillit alors que l'Épée de Sang tournait autour de Wang Lin. Elle perça la main de jade qui le retenait. La main se brisa et Wang Lin se libéra.
 
 Tout ce qui venait de se produire faisait partie du plan de Wang Lin. Il voulait connaître l'identité de cette femme et ses intentions! Ce n'est qu'en sachant tout cela qu'il pourrait l'affronter avec calme! Plus important encore, il avait pris ce risque pour confirmer la conjecture qu'il avait formulée dès le premier regard!
 
-Bien que la femme en blanc ait été repoussée de 10 000 pieds par le Monde du Vent et de la Pluie, une lueur de froideur traversa ses yeux. Elle agita la main droite et une gigantesque fissure spatiale se déchira dans le vide. Cette faille semblait prête à dévorer tout ce qui se trouvait sur son passage et fonça vers Wang Lin.
+Bien que la femme en blanc ait été repoussée de 10 000 pieds par le Monde Hu Feng Huan Yu, une lueur de froideur traversa ses yeux. Elle agita la main droite et une gigantesque fissure spatiale se déchira dans le vide. Cette faille semblait prête à dévorer tout ce qui se trouvait sur son passage et fonça vers Wang Lin.
 
 Elle avança également!
 

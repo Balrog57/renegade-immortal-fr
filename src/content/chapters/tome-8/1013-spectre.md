@@ -21,7 +21,7 @@ Cet endroit était recouvert de sable noir et l'horizon semblait infini. Un vent
 
 Wang Lin regarda le ciel tout en se tenant debout dans le sable noir, l'expression sombre.
 
-Son sens divin s'était déjà déployé, mais ce même sens divin, qui pouvait aisément couvrir la totalité de la Terre des Esprits Démoniaques, ne parvenait pas à trouver les limites de cet espace. Wang Lin était la seule personne présente dans sa portée sensorielle. Il semblait que tous ceux qui étaient entrés avaient été dispersés, et qu'il serait très difficile de se retrouver.
+Son sens divin s'était déjà déployé, mais ce même sens divin, qui pouvait aisément couvrir la totalité de la Terre Yao Ling, ne parvenait pas à trouver les limites de cet espace. Wang Lin était la seule personne présente dans sa portée sensorielle. Il semblait que tous ceux qui étaient entrés avaient été dispersés, et qu'il serait très difficile de se retrouver.
 
 Tout en réfléchissant, Wang Lin s'éleva dans les airs. Cependant, après n'avoir flotté que cent pieds, son expression changea; il sentit une menace imminente descendre d'en haut. Il atterrit sans hésiter et un rayon de lumière bleue jaillit de son œil droit pour se transformer en un bouclier de lumière azur.
 

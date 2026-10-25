@@ -60,11 +60,11 @@ Peu après, des fissures apparurent sur le mille-pattes de 8 000 pieds et un aut
 
 En utilisant cette étrange méthode, le mille-pattes continuait de muer et de rétrécir, mais sa vitesse augmentait de façon effrénée.
 
-Wang Lin progressait rapidement à travers le Royaume du Brouillard des Bêtes du Chaos, l'Empreinte de l'Esprit Guerrier lui ouvrant la voie, se rapprochant progressivement de la région de rang 8. En chemin, il croisa de nombreuses bêtes féroces qui tentèrent de l'entraver, mais son massacre et l'Empreinte de l'Esprit Guerrier finirent par les briser. Il se déplaçait avec une célérité extrême dans la brume.
+Wang Lin progressait rapidement à travers le Royaume Luan Shou Wu, l'Empreinte de l'Esprit Guerrier lui ouvrant la voie, se rapprochant progressivement de la région de rang 8. En chemin, il croisa de nombreuses bêtes féroces qui tentèrent de l'entraver, mais son massacre et l'Empreinte de l'Esprit Guerrier finirent par les briser. Il se déplaçait avec une célérité extrême dans la brume.
 
 Plus il restait dans cette brume, plus Wang Lin sentait que cet endroit était singulier. Plus il passait de temps ici, plus les bêtes féroces s'accumulaient, rendant toute sortie extrêmement difficile à moins d'une récupération complète.
 
-Wang Lin mit près de quatre jours pour atteindre la lisière du Royaume du Brouillard des Bêtes du Chaos. Une fois dehors, il atteindrait la région de rang 8! Cependant, à cet instant, Wang Lin se retourna et pointa sa main droite vers l'Empreinte de l'Esprit Guerrier. Celle-ci bougea soudainement pour apparaître devant lui.
+Wang Lin mit près de quatre jours pour atteindre la lisière du Royaume Luan Shou Wu. Une fois dehors, il atteindrait la région de rang 8! Cependant, à cet instant, Wang Lin se retourna et pointa sa main droite vers l'Empreinte de l'Esprit Guerrier. Celle-ci bougea soudainement pour apparaître devant lui.
 
 Simultanément, sans hésiter, Wang Lin forma un sceau et le dirigea vers l'Empreinte. Le sceau qu'il avait placé pour stopper l'absorption d'énergie originelle s'effondra, et l'objet commença à absorber l'énergie avec frénésie.
 
@@ -90,7 +90,7 @@ En s'élançant, la lumière bleue vacilla et se métamorphosa en un immense Ois
 
 Le mille-pattes poussa immédiatement un rugissement; sa partie supérieure se redressa telle un serpent pour faire face à l'Oiseau Vermillon. Le feu autour de lui se condensa frénétiquement pour former une force monstrueuse à l'extérieur de son corps, avant de percuter l'oiseau qui approchait à grande vitesse.
 
-Un grondement assourdissant résonna à travers le Royaume du Brouillard des Bêtes du Chaos, et le sens des bêtes de plusieurs spécimens de rang 12 se dirigea instantanément vers ce point. Cependant, à cet instant précis, une aura d'une puissance telle qu'elle choqua même Wang Lin émana des profondeurs du Royaume et supprima les autres bêtes de rang 12!
+Un grondement assourdissant résonna à travers le Royaume Luan Shou Wu, et le sens des bêtes de plusieurs spécimens de rang 12 se dirigea instantanément vers ce point. Cependant, à cet instant précis, une aura d'une puissance telle qu'elle choqua même Wang Lin émana des profondeurs du Royaume et supprima les autres bêtes de rang 12!
 
 Le fracas fut céleste lorsque les deux feux entrèrent en collision. L'Oiseau Vermillon poussa un cri chargé de regret avant de se replier dans le corps de Wang Lin. Dès son retour, Wang Lin s'envola au loin.
 

@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 119 - Soul Awakens
 slug: leveil-de-lame
 ---
-Les déchirures spatiales sur le champ de bataille étranger résultent des innombrables batailles qui s'y déroulent depuis des myriades d'années. À présent au bord de l'effondrement, cet endroit se serait déjà écroulé et réduit au néant si l'Alliance de Culture ne le consolidait pas de temps à autre par de grands sortilèges.
+Les déchirures spatiales sur le champ de bataille étranger résultent des innombrables batailles qui s'y déroulent depuis des myriades d'années. À présent au bord de l'effondrement, cet endroit se serait déjà écroulé et réduit au néant si l'Alliance Xiu Zhen ne le consolidait pas de temps à autre par de grands sortilèges.
 
 De l'autre côté des déchirures spatiales s'étend une mer d'étoiles sans limites, un lieu saturé d'énergies violentes et peuplé d'innombrables créatures mystérieuses.
 
@@ -20,11 +20,11 @@ Un point lumineux apparut soudainement dans la déchirure spatiale et s'y mit à
 
 Le temps passa lentement. Après une durée indéterminée, ce point lumineux continua de dériver dans l'espace. Ce feu d'âme montrait des signes de dissipation. Le temps s'écoulait, et la lumière restait très ténue; il ne subsistait plus qu'une petite flamme du feu d'âme.
 
-Un jour, une ombre gigantesque flotta soudainement vers la lumière. À y regarder de plus près, cette ombre était un cadavre imposant. Ce corps semblait être celui d'un membre du Clan des Diables Géants. Cependant, si l'on observait attentivement le front de ce corps, on n'y voyait pas un marteau, mais une hache.
+Un jour, une ombre gigantesque flotta soudainement vers la lumière. À y regarder de plus près, cette ombre était un cadavre imposant. Ce corps semblait être celui d'un membre du Clan Ju Mo. Cependant, si l'on observait attentivement le front de ce corps, on n'y voyait pas un marteau, mais une hache.
 
 Une hache noire!
 
-Si des membres du Clan des Diables Géants se trouvaient ici, ils reconnaîtraient instantanément que cette hache désignait un Diable ancestral de leur clan, autrement dit un Diable de la haute Antiquité.
+Si des membres du Clan Ju Mo se trouvaient ici, ils reconnaîtraient instantanément que cette hache désignait un Diable ancestral de leur clan, autrement dit un Diable de la haute Antiquité.
 
 Au moment où le corps toucha la lumière, un filet de fumée s'en échappa. Cette fumée se changea en une créature illusoire dotée de deux cornes sur la tête et, animée par un regard avide, bondit vers la lumière. Il s'agissait d'une espèce mystérieuse propre à l'intérieur des failles spatiales: elle dévorait tout, qu'il s'agisse de cadavres, de trésors magiques ou d'âmes.
 

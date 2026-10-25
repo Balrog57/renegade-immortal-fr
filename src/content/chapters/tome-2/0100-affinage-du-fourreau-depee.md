@@ -26,7 +26,7 @@ Un cadavre d'homme nu, colossal, flottait dans les airs. Comparé à lui, Wang L
 
 Wang Lin était stupéfait. Il déploya son sens divin pour observer la scène et resta interdit. Ce corps avait été délibérément laissé là par quelqu'un: il servait de nutriment aux plantes vert pourpre.
 
-Il était désormais évident que si la Secte des Cadavres possédait une énergie Yin de qualité Terre Yin, la réponse se trouvait dans ces végétaux.
+Il était désormais évident que si la Secte Shi Yin possédait une énergie Yin de qualité Terre Yin, la réponse se trouvait dans ces végétaux.
 
 Même l'évolution de la Perle Défiant le Ciel devait être liée à ces plantes. Wang Lin sentit que cet endroit était profondément anormal, car dès son entrée, un sentiment de danger l'avait envahi.
 
@@ -42,11 +42,11 @@ Malgré cela, son sens divin brisa l'obstacle et regagna promptement son corps e
 
 Il n'osa pas explorer de nouveau et se mit immédiatement à respirer pour apaiser l'énergie Yin dans son corps. Après un long moment, il ouvrit lentement les yeux, regarda les orifices dans la paroi avec une peur persistante et garda le silence.
 
-Le temps passa lentement et, en un clin d'œil, Wang Lin était déjà resté quatre jours à la Secte des Cadavres. Durant ces quatre jours, hormis l'exploration souterraine de son sens divin il y a trois jours, il ne s'était pas déplacé. Il avait passé tout ce temps à collecter du liquide spirituel Yin grâce à la perle. Au cours de cette période, la perle était passée de deux feuilles à trois.
+Le temps passa lentement et, en un clin d'œil, Wang Lin était déjà resté quatre jours à la Secte Shi Yin. Durant ces quatre jours, hormis l'exploration souterraine de son sens divin il y a trois jours, il ne s'était pas déplacé. Il avait passé tout ce temps à collecter du liquide spirituel Yin grâce à la perle. Au cours de cette période, la perle était passée de deux feuilles à trois.
 
 Selon les calculs de Wang Lin, le nombre total de feuilles devrait être identique à celui des nuages précédents, soit dix au total. Il savait aussi, par expérience, que chaque nouvelle feuille prendrait plus de temps que la précédente. S'il continuait ainsi, il lui faudrait des années pour achever l'élément Bois.
 
-Mais la Secte des Cadavres n'était pas un lieu où il pouvait s'attarder. Il décida d'explorer à nouveau cet endroit afin de trouver un moyen d'y introduire son corps physique. S'il parvenait à obtenir une partie de ces plantes, il était certain que la perle évoluerait bien plus vite.
+Mais la Secte Shi Yin n'était pas un lieu où il pouvait s'attarder. Il décida d'explorer à nouveau cet endroit afin de trouver un moyen d'y introduire son corps physique. S'il parvenait à obtenir une partie de ces plantes, il était certain que la perle évoluerait bien plus vite.
 
 Cependant, le danger était vraiment immense, et Wang Lin hésitait un peu.
 

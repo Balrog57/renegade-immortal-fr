@@ -54,7 +54,7 @@ Alors qu'il reculait, une froideur traversa le regard de la femme en robe bleue.
 
 Elle observa le champ de bataille. L'Alliance se trouvait actuellement dans une position défavorable! Cependant, elle ne paniqua pas, car elle savait que ce n'était pas là la véritable bataille. Ce n'était qu'un prélude!
 
-Levant sa main de jade, elle forma un sceau, pointa le vide et murmura: « Invoquez le Royaume de la Prison des Cadavres! »
+Levant sa main de jade, elle forma un sceau, pointa le vide et murmura: « Invoquez le Royaume Hai Yu! »
 
 Sitôt ses mots prononcés, une formation gigantesque de cinquante kilomètres de large apparut silencieusement dans le vide devant elle! Cette formation, suspendue à l'envers, tournait rapidement. Un gaz violet et noir en s'échappait, et soudain, une chaîne pourpre tomba de l'intérieur de la formation.
 
@@ -72,7 +72,7 @@ Ce cadavre était entouré de multiples chaînes. Celles qui pendaient plus tôt
 
 Ce cadavre n'avait pas été formé naturellement, mais raffiné à partir d'innombrables restes par un sortilège. Au sein de l'Alliance, on l'appelait un « cadavre raffiné »!
 
-Cet objet était créé par le Royaume de la Prison des Cadavres, la Secte des Cadavres fournissant les corps. En des dizaines de milliers d'années, seuls dix-huit en avaient été créés! Chaque cadavre possédait une culture équivalente à celle d'un cultivateur Scruteur du Nirvana au stade avancé!
+Cet objet était créé par le Royaume Hai Yu, la Secte Shi Yin fournissant les corps. En des dizaines de milliers d'années, seuls dix-huit en avaient été créés! Chaque cadavre possédait une culture équivalente à celle d'un cultivateur Scruteur du Nirvana au stade avancé!
 
 Le premier cadavre raffiné qui apparut secoua les chaînes de son corps et poussa un rugissement. Ce cri pouvait pénétrer le corps pour affecter directement l'âme originelle.
 

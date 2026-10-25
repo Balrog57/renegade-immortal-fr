@@ -20,21 +20,21 @@ Le Grand Ancien fut projeté en arrière par ce fracas assourdissant et cracha d
 
 « Le tonnerre se divise en six types: le Tonnerre Céleste, le Tonnerre Terrestre, le Tonnerre Originel, le Tonnerre Magnétique, le Tonnerre du Dao et le Tonnerre Spirituel! Que tous les types apparaissent! » rugit-il, et six éclairs d'environ mille pieds d'épaisseur jaillirent de sa marque de clan, semblables à des colonnes reliant le ciel et la terre!
 
-Le Ciel était le firmament étoilé, et le Tonnerre Céleste était une planète de culture! Il avait été formé par un sort secret du Clan du Tonnerre Dispersé!
+Le Ciel était le firmament étoilé, et le Tonnerre Céleste était une planète de culture! Il avait été formé par un sort secret du Clan Shan Lei!
 
 Le Tonnerre Terrestre représentait l'innombrable poussière et les fragments de planètes. Ils avaient été raffinés par un rite sacrificiel pour se transformer en tonnerre!
 
 Le Tonnerre Originel était le plus simple. Un cultivateur devait rassembler l'énergie originelle avec une ferveur folle jusqu'à ce qu'il brise son âme originelle. Au moment de sa mort, un trou noir capable d'absorber une énergie originelle infinie apparaîtrait. Tel était le prix pour créer le Tonnerre Originel!
 
-Quant au Tonnerre Magnétique, il existait des zones spéciales dans l'espace contenant une force magnétique si puissante qu'elle rendait tous les trésors et sorts inutiles. Le Clan du Tonnerre Dispersé utilisait une méthode unique pour faire naître un éclair de tonnerre tous les 3 000 ans. C'était le Tonnerre Magnétique!
+Quant au Tonnerre Magnétique, il existait des zones spéciales dans l'espace contenant une force magnétique si puissante qu'elle rendait tous les trésors et sorts inutiles. Le Clan Shan Lei utilisait une méthode unique pour faire naître un éclair de tonnerre tous les 3 000 ans. C'était le Tonnerre Magnétique!
 
-Le Tonnerre du Dao était rare dans le Système Stellaire Antique. L'ancêtre du Clan du Tonnerre Dispersé avait massacré des êtres dans le Royaume Intérieur pour en récolter l'intention du Dao, puis l'avait raffinée en Tonnerre du Dao!
+Le Tonnerre du Dao était rare dans le Système Stellaire Antique. L'ancêtre du Clan Shan Lei avait massacré des êtres dans le Royaume Intérieur pour en récolter l'intention du Dao, puis l'avait raffinée en Tonnerre du Dao!
 
 Ces six types de tonnerre différents l'entourèrent et formèrent un vortex géant devant lui. Il poussa ce vortex et chargea en avant!
 
 Lorsque l'Empreinte de l'Esprit Guerrier entra en collision avec le vortex, des craquements stridents résonnèrent. De nombreuses fissures apparurent sur la paume avant que celle-ci ne s'effondre. Les marques du Daoïste Esprit Dispersé ne faisaient pas le poids non plus et se voyaient repoussées.
 
-« Je veux voir comment vous deux allez résister aux six tonnerres divins que mon Clan du Tonnerre Dispersé a amassés. Mourez! Après vous avoir tués, je massacrerai les dix millions de vies ici pour apaiser ma colère. J'anéantirai la plupart des cultivateurs de ce lieu pour garantir à mon clan dix mille ans de tranquillité! »
+« Je veux voir comment vous deux allez résister aux six tonnerres divins que mon Clan Shan Lei a amassés. Mourez! Après vous avoir tués, je massacrerai les dix millions de vies ici pour apaiser ma colère. J'anéantirai la plupart des cultivateurs de ce lieu pour garantir à mon clan dix mille ans de tranquillité! »
 
 Le Grand Ancien rugit comme un fou en projetant les six tonnerres divins vers l'avant. Wang Lin et le Daoïste Esprit Dispersé reculaient sans cesse. Les yeux de Wang Lin s'illuminèrent pendant sa retraite, et il lança: « C'est là votre confiance à 70 %?! »
 
@@ -66,21 +66,21 @@ Toutefois, Wang Lin et le Daoïste Esprit Dispersé étaient tous deux extrêmem
 
 « Il n'est pas assez blessé! Si nous parvenons à le frapper une fois de plus, je pourrai le tuer! » rugit le Daoïste Esprit Dispersé. Le moment était critique et il se souciait peu que le Grand Ancien l'entende.
 
-Les yeux de Wang Lin s'illuminèrent. La silhouette lumineuse qui le protégeait était sur le point de céder, et si elle se brisait, il n'aurait plus aucune défense. Cela signifierait sa défaite! Il n'avait plus le temps de réfléchir. Le regard de Wang Lin devint résolu et, d'une simple pensée, il activa le Monde du Vent et de la Pluie!
+Les yeux de Wang Lin s'illuminèrent. La silhouette lumineuse qui le protégeait était sur le point de céder, et si elle se brisait, il n'aurait plus aucune défense. Cela signifierait sa défaite! Il n'avait plus le temps de réfléchir. Le regard de Wang Lin devint résolu et, d'une simple pensée, il activa le Monde Hu Feng Huan Yu!
 
 « Je vais te faire confiance une fois de plus! » pensa Wang Lin avec détermination. Blesser le Grand Ancien n'était pas aisé, car ses sorts étaient trop puissants; il parvenait à les tenir tous deux sans être désavantagé. De plus, il disposait de sorts qu'il pouvait utiliser au prix de sa propre vie, offrant des possibilités infinies.
 
 S'ils avaient été en dehors des 7 Millions de Mondes et que le Grand Ancien avait été prêt à sacrifier mille ans de vie, Wang Lin n'aurait certainement pas été son égal.
 
-« Pour le blesser maintenant, je dois utiliser les Flammes Joss! Les Flammes Joss sont toxiques et inutiles pour moi, mais elles peuvent servir à tuer! » Songea Wang Lin rapidement avant d'activer le Monde du Vent et de la Pluie. Son sens divin se propagea et une voix puissante résonna dans ce monde:
+« Pour le blesser maintenant, je dois utiliser les Flammes Joss! Les Flammes Joss sont toxiques et inutiles pour moi, mais elles peuvent servir à tuer! » Songea Wang Lin rapidement avant d'activer le Monde Hu Feng Huan Yu. Son sens divin se propagea et une voix puissante résonna dans ce monde:
 
 « Vous tous qui avez été tués par moi, adorez-moi et devenez mes disciples. Au prix de vos âmes, consacrez-vous aux Flammes Joss. Rassemblez-les pour moi! »
 
-Alors que le sens divin de Wang Lin s'étendait, d'immenses quantités de Flammes Joss jaillirent des têtes des innombrables âmes, qui n'étaient pas entrées dans le cycle de la réincarnation, au sein du Monde du Vent et de la Pluie! Beaucoup d'âmes s'effondrèrent, se sacrifiant pour libérer ces flammes.
+Alors que le sens divin de Wang Lin s'étendait, d'immenses quantités de Flammes Joss jaillirent des têtes des innombrables âmes, qui n'étaient pas entrées dans le cycle de la réincarnation, au sein du Monde Hu Feng Huan Yu! Beaucoup d'âmes s'effondrèrent, se sacrifiant pour libérer ces flammes.
 
 Ceux possédant un haut niveau de culture produisaient une grande quantité de Flammes Joss, mais aucun ne pouvait égaler l'ancienne concubine céleste. Les flammes qu'elle dégageait représentaient une bonne part du total!
 
-Wang Lin rassembla ces Flammes Joss à travers le Monde du Vent et de la Pluie et les condensa en une sphère!
+Wang Lin rassembla ces Flammes Joss à travers le Monde Hu Feng Huan Yu et les condensa en une sphère!
 
 Les flammes tourbillonnaient frénétiquement à l'intérieur, dégageant une pression infinie.
 
@@ -92,11 +92,11 @@ Wang Lin savait que le temps pressait. Tandis que les flammes s'accumulaient, un
 
 La puissance des Flammes Joss était celle que maîtrisaient les cultivateurs de la troisième étape. Au moment de l'explosion, le monde trembla, les couches de l'espace se désintégrèrent et les six tonnerres divins vibrèrent violemment.
 
-La majeure partie de la sphère se dissipa, mais au moment même de sa disparition, Wang Lin lança une volonté démente dans le Monde du Vent et de la Pluie:
+La majeure partie de la sphère se dissipa, mais au moment même de sa disparition, Wang Lin lança une volonté démente dans le Monde Hu Feng Huan Yu:
 
 « Détruisez les âmes, offrez les Flammes Joss!! »
 
-Alors que sa voix résonnait, une multitude d'âmes dans le Monde du Vent et de la Pluie explosèrent. Elles se transformèrent en une masse colossale de Flammes Joss qui bombardèrent le Grand Ancien.
+Alors que sa voix résonnait, une multitude d'âmes dans le Monde Hu Feng Huan Yu explosèrent. Elles se transformèrent en une masse colossale de Flammes Joss qui bombardèrent le Grand Ancien.
 
 Le vortex des six tonnerres s'effondra et les flammes restantes chargèrent l'ennemi. Simultanément, l'attaque du Daoïste Esprit Dispersé devint plus intense encore.
 

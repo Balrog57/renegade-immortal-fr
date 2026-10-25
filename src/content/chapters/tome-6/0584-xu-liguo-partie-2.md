@@ -50,11 +50,11 @@ Dans sa rage, elle s'élança hors du sol, prête à charger et à réduire cet 
 
 Après tout, l'Empereur Démon lui avait ordonné de rester discrète pendant quelques jours et de ne pas apparaître lors de la compétition des généraux démons, sous peine d'être envoyée au lac du dragon.
 
-Pensant cela, l'Épée de l'Empereur laissa échapper quelques chants d'épées frustrés, la pointe de sa lame dirigée vers la Porte du Démon Céleste. Après une longue lutte intérieure, elle finit par se transformer en une jeune fille d'environ vingt ans. Son corps entier était cristallin et ses traits d'une grande beauté. En atterrissant, elle commença immédiatement à donner des coups de pied dans le vide; à chaque mouvement, un éclair d'énergie d'épée jaillissait.
+Pensant cela, l'Épée de l'Empereur laissa échapper quelques chants d'épées frustrés, la pointe de sa lame dirigée vers la Porte Tian Yao. Après une longue lutte intérieure, elle finit par se transformer en une jeune fille d'environ vingt ans. Son corps entier était cristallin et ses traits d'une grande beauté. En atterrissant, elle commença immédiatement à donner des coups de pied dans le vide; à chaque mouvement, un éclair d'énergie d'épée jaillissait.
 
 De nombreuses parties du pavillon furent détruites, car ce n'était qu'en causant ces dégâts que sa colère s'apaisait un peu. Soudain, elle roula des yeux, une idée en tête.
 
-« L'Empereur Démon interdit à l'Épée de l'Empereur de sortir, mais je suis l'esprit de l'épée, alors cela devrait aller... Ça devrait être bon... D'accord, je n'attaquerai pas. Je vais juste jeter un coup d'œil à ce "casse-croûte" répugnant et mémoriser son aura pour le retrouver plus facilement. Oui, ça ne devrait poser aucun problème... » La jeune fille cligna des yeux avant de s'envoler du pavillon pour charger directement vers la Porte du Démon Céleste.
+« L'Empereur Démon interdit à l'Épée de l'Empereur de sortir, mais je suis l'esprit de l'épée, alors cela devrait aller... Ça devrait être bon... D'accord, je n'attaquerai pas. Je vais juste jeter un coup d'œil à ce "casse-croûte" répugnant et mémoriser son aura pour le retrouver plus facilement. Oui, ça ne devrait poser aucun problème... » La jeune fille cligna des yeux avant de s'envoler du pavillon pour charger directement vers la Porte Tian Yao.
 
 Alors qu'elle approchait de la place de trente-trois kilomètres de côté, son corps se mua en néant et elle se posa sur le toit du palais qui faisait face à la place pour observer la scène.
 

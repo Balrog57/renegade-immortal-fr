@@ -74,7 +74,7 @@ Désormais, il était confiant de pouvoir affronter un Grand Empyréen Dao Yi au
 
 « Si je veux élever mon niveau de culture, la prochaine étape est le véritable corps d'essence de tonnerre de massacre... » Wang Lin observa son véritable corps d'essence de tonnerre de massacre, ses yeux brillant d'une lueur étrange.
 
-« Quant aux éléments nécessaires pour parachever ce corps... Le Maître... Il m'a emmené dans de nombreux lieux à travers le clan Ancien et a réuni suffisamment d'objets... » Wang Lin soupira et détourna le regard. Son regard semblait transpercer les murs, s'étendre vers la montagne arrière du Temple de l'Ancien Dao, pour atteindre le vieil homme qui n'était plus jeune.
+« Quant aux éléments nécessaires pour parachever ce corps... Le Maître... Il m'a emmené dans de nombreux lieux à travers le clan Ancien et a réuni suffisamment d'objets... » Wang Lin soupira et détourna le regard. Son regard semblait transpercer les murs, s'étendre vers la montagne arrière du Temple Dao Gu, pour atteindre le vieil homme qui n'était plus jeune.
 
 Après un long moment, Wang Lin rompit sa contemplation. Il avait décidé de ne pas sortir de sa méditation tant que son niveau de culture n'aurait pas augmenté. Il devait s'élever non seulement pour surmonter le Grand Empyréen Song Tian, mais aussi pour ne plus craindre le Grand Empyréen Gu Dao.
 

@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1175 - Member of the God Secte
 slug: membre-du-secteur-divin
 ---
-Le visage de l'homme d'âge moyen était pâle et il affichait une expression amère en regardant Wang Lin s'approcher. Il réfléchit un instant, puis joignit les mains. « Shang Qi, de la Secte de la Collection Démoniaque, salue le camarade cultivateur. »
+Le visage de l'homme d'âge moyen était pâle et il affichait une expression amère en regardant Wang Lin s'approcher. Il réfléchit un instant, puis joignit les mains. « Shang Qi, de la Secte Mo Cong, salue le camarade cultivateur. »
 
 Wang Lin ne parla pas et observa froidement l'homme devant lui. Cet individu se situait au stade intermédiaire du Briseur du Nirvana. Wang Lin s'était toujours demandé s'il serait capable de combattre un expert de ce niveau après avoir fusionné avec son corps original.
 
-L'expression de l'homme d'âge moyen devint plus amère encore. Il poussa un soupir et joignit à nouveau les mains. « Il y a deux jours, Wu Qing a été expulsé de la Secte de la Collection Démoniaque. Ses paroles et ses actes lui appartenaient en propre, sans aucun lien avec notre Secte. Il a osé provoquer votre excellence de la Secte Divine; c'est sa propre faute s'il est mort! »
+L'expression de l'homme d'âge moyen devint plus amère encore. Il poussa un soupir et joignit à nouveau les mains. « Il y a deux jours, Wu Qing a été expulsé de la Secte Mo Cong. Ses paroles et ses actes lui appartenaient en propre, sans aucun lien avec notre Secte. Il a osé provoquer votre excellence de la Secte Divine; c'est sa propre faute s'il est mort! »
 
 Wang Lin resta silencieux, le regard toujours glacial. Plus il agissait ainsi, plus il incarnait l'identité d'un membre de la Secte Divine, de ces êtres qui contemplent le monde avec arrogance! Une simple secte de rang 6 était insignifiant aux yeux d'un membre de la Secte Divine!
 
@@ -24,9 +24,9 @@ L'homme d'âge moyen marqua une pause, puis tendit à nouveau la main pour sorti
 
 « Il y a également neuf Pilules de Mort de Séparation de l'Âme de rang 8... »
 
-La voix de Wang Lin était calme, mais elle dégageait une majesté naturelle lorsqu'il déclara lentement: « Je ne poursuivrai plus l'offense de Wu Qing à mon égard, mais cela ne suffit pas à effacer l'offense de la Secte de la Collection Démoniaque. »
+La voix de Wang Lin était calme, mais elle dégageait une majesté naturelle lorsqu'il déclara lentement: « Je ne poursuivrai plus l'offense de Wu Qing à mon égard, mais cela ne suffit pas à effacer l'offense de la Secte Mo Cong. »
 
-Cette aura n'était pas celle d'un cultivateur ordinaire. Même un expert du Briseur du Nirvana ne pourrait dégager une telle présence, à moins d'être le chef d'une secte puissante. Wang Lin avait été autrefois l'Empereur Divin de la Secte Divine de l'Oiseau Vermillon. Il n'avait nul besoin de forcer les choses; il lui suffisait de se remémorer la Secte de l'Oiseau Vermillon pour manifester naturellement cette majesté.
+Cette aura n'était pas celle d'un cultivateur ordinaire. Même un expert du Briseur du Nirvana ne pourrait dégager une telle présence, à moins d'être le chef d'une secte puissante. Wang Lin avait été autrefois l'Empereur Divin de la Secte Divine de l'Oiseau Vermillon. Il n'avait nul besoin de forcer les choses; il lui suffisait de se remémorer la Secte Zhu Que pour manifester naturellement cette majesté.
 
 L'homme d'âge moyen eut un sourire désabusé et sortit deux pilules enrobées de cire. Il regarda Wang Lin et dit amèrement: « Deux pilules de rang 10. C'est ma limite. »
 
@@ -36,7 +36,7 @@ L'homme d'âge moyen ne répondit rien et sortit un sac de son espace de stockag
 
 Ce n'est qu'une fois Wang Lin parti que le visage de l'homme d'âge moyen se décomposa. Une rage presque monstrueuse bouillonnait en lui.
 
-« Wu Qing, je t'avais dit de ne pas provoquer cet homme, mais tu n'as pas écouté! Tu méritais ta mort! Mais tu as impliqué la Secte de la Collection Démoniaque... Cet homme était inopinément un membre de la Secte Divine, ah! »
+« Wu Qing, je t'avais dit de ne pas provoquer cet homme, mais tu n'as pas écouté! Tu méritais ta mort! Mais tu as impliqué la Secte Mo Cong... Cet homme était inopinément un membre de la Secte Divine, ah! »
 
 Au sommet d'un pic montagneux à l'est de Peng Lai, les yeux de Li Qianmei brillaient d'une lueur étrange. Après une longue réflexion silencieuse, elle murmura doucement: « La Secte Divine? Cela fait de nombreuses années que les membres de la Secte Divine n'ont pas quitté la région de rang 9. Seuls les disciples de l'élite peuvent utiliser l'Empreinte de l'Esprit Guerrier. Comment pourraient-ils être autorisés à quitter la Secte Divine si facilement... La première paume de cet homme était très étrange. J'ignore quel sort est assez tyrannique pour contrôler l'énergie originelle de la sorte. On aurait dit une empreinte d'esclave! »
 
@@ -44,11 +44,11 @@ Wang Lin ne volait pas à une vitesse excessive tandis qu'il traversait le ciel 
 
 À l'arrivée de Wang Lin, tous ces cultivateurs affichèrent des expressions complexes et s'écartèrent sur son passage. Ils le regardaient avec une pointe de crainte. Aucun des cultivateurs présents n'était faible, et ce qui venait de se produire les avait profondément ébranlés.
 
-Cette paume gigantesque était frappante. Dans la Mer des Nuages, presque tout le monde savait que cette attaque si reconnaissable était le sort suprême de la Secte Divine: l'Empreinte de l'Esprit Guerrier! Même ceux qui étaient sceptiques ne nourrissaient plus aucun doute après avoir vu la puissance de cette technique.
+Cette paume gigantesque était frappante. Dans la Mer Yun, presque tout le monde savait que cette attaque si reconnaissable était le sort suprême de la Secte Divine: l'Empreinte de l'Esprit Guerrier! Même ceux qui étaient sceptiques ne nourrissaient plus aucun doute après avoir vu la puissance de cette technique.
 
 Parmi les cultivateurs des sectes de rang 6, leurs Anciens sortirent tous pour saluer Wang Lin. Cang Songzi le regarda de loin avec un sourire pour masquer son choc. Il semblait vouloir engager la conversation.
 
-L'expression de Wang Lin était sereine, mais il ricana intérieurement. Il joignit les mains en guise de politesse alors qu'il traversait la foule pour regagner son auberge. Dans le monde de la culture, la force commande le respect. Wang Lin avait prouvé qu'il pouvait aisément terrasser un expert au stade précoce du Briseur du Nirvana et qu'il maîtrisait l'Empreinte de l'Esprit Guerrier. Désormais, personne dans la région de rang 5 n'oserait le provoquer. Même la Secte du Jade Précieux n'osait le blâmer pour la destruction de la moitié de la ville.
+L'expression de Wang Lin était sereine, mais il ricana intérieurement. Il joignit les mains en guise de politesse alors qu'il traversait la foule pour regagner son auberge. Dans le monde de la culture, la force commande le respect. Wang Lin avait prouvé qu'il pouvait aisément terrasser un expert au stade précoce du Briseur du Nirvana et qu'il maîtrisait l'Empreinte de l'Esprit Guerrier. Désormais, personne dans la région de rang 5 n'oserait le provoquer. Même la Secte Bao Yu n'osait le blâmer pour la destruction de la moitié de la ville.
 
 Une fois de retour à l'auberge, Wang Lin compta son butin. En plus de ce que l'homme d'âge moyen lui avait remis, il y avait les innombrables objets provenant de l'espace de stockage de Wu Qing. Après avoir tout inspecté, Wang Lin sortit la plume rouge. En la tenant dans sa main, une flamme apparut dans son œil gauche. La flamme vacilla et sembla entrer en résonance avec l'énergie originelle du feu contenue dans la plume.
 

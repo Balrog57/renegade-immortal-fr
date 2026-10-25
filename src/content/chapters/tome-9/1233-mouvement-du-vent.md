@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1233 - Movement of Wind
 slug: mouvement-du-vent
 ---
-Après s'être extrait du Royaume du Brouillard des Bêtes du Chaos, Wang Lin pénétra dans la région de rang 8. Un éclair de joie traversa son regard alors qu'il se retournait vers la brume; il venait de ressentir l'aura d'une bête de rang 13.
+Après s'être extrait du Royaume Luan Shou Wu, Wang Lin pénétra dans la région de rang 8. Un éclair de joie traversa son regard alors qu'il se retournait vers la brume; il venait de ressentir l'aura d'une bête de rang 13.
 
 C’était précisément cette aura qui l'avait poussé à renoncer à tuer le mille-pattes. Après tout, sa priorité absolue était désormais d'atteindre le Royaume Céleste du Vent!
 
-« Il y a une raison bien réelle à la renommée de ce Royaume du Brouillard des Bêtes du Chaos! » Après une brève réflexion, Wang Lin s'élança dans les airs.
+« Il y a une raison bien réelle à la renommée de ce Royaume Luan Shou Wu! » Après une brève réflexion, Wang Lin s'élança dans les airs.
 
 Une fois entré dans la région de rang 8, Wang Lin cessa d'agir avec autant d'arrogance. Il savait que cette zone regorgeait de vieux monstres. L'Ancien qui observait son combat dans la brume en était manifestement un.
 
@@ -42,7 +42,7 @@ Les réseaux de transfert construits dans chaque branche ne pouvaient être acti
 
 Cela faisait déjà deux heures que Lu Yanfei se tenait là. Elle scrutait sans cesse le ciel, espérant revoir cette silhouette. Elle avait attendu dix ans, cinquante ans, cent ans... mais même à présent, cet homme ne s'était toujours pas manifesté.
 
-Après un long moment, la terre trembla et une lumière éclatante jaillit de la Secte de l'Origine. Une immense quantité d'énergie d'origine commença à s'accumuler au sein de la secte, mais rien de tout cela n'attira l'attention de Lu Yanfei. Elle se mordit la lèvre inférieure et fixa le ciel, les yeux emplis de tristesse.
+Après un long moment, la terre trembla et une lumière éclatante jaillit de la Secte Gui Yuan. Une immense quantité d'énergie d'origine commença à s'accumuler au sein de la secte, mais rien de tout cela n'attira l'attention de Lu Yanfei. Elle se mordit la lèvre inférieure et fixa le ciel, les yeux emplis de tristesse.
 
 « Pourquoi... Tu avais promis, tu avais dit que tu viendrais... »
 
@@ -58,9 +58,9 @@ Alors que les trois frères aînés de Lu Yanfei se tenaient près du réseau de
 
 Lorsque Lu Yanfei arriva, chacun pénétra dans la formation. Au moment où celle-ci s'activa et les téléporta vers la Secte Éternelle dans la région de rang 8, une larme cristalline roula sur la joue de Lu Yanfei.
 
-« Quand tu reviendras, peut-être découvriras-tu que la Secte de l'Origine... n'existe plus... »
+« Quand tu reviendras, peut-être découvriras-tu que la Secte Gui Yuan... n'existe plus... »
 
-Simultanément, dans la région de rang 9, après l'abattage de vagues successives de bêtes féroces à l'extérieur de la faille, la marée de bêtes semblait s'être apaisée. Cela permit aux cultivateurs de la Mer des Nuages de jouir d'un moment de répit.
+Simultanément, dans la région de rang 9, après l'abattage de vagues successives de bêtes féroces à l'extérieur de la faille, la marée de bêtes semblait s'être apaisée. Cela permit aux cultivateurs de la Mer Yun de jouir d'un moment de répit.
 
 Parmi eux, Li Qianmei, aux cheveux bleus, était le centre de toutes les attentions. Elle essuya le sang des bêtes sur son épée; la fatigue se lisait sur son visage, mais son calme restait intact.
 
@@ -90,7 +90,7 @@ Une fois ses mots prononcés, elle leva le pied et avança sans aucune hésitati
 
 Le silence retomba sur la salle.
 
-« Pourquoi dois-tu être si résolue? Y a-t-il une chose plus importante que de faire face à la marée de bêtes et de veiller à ce que la Mer des Nuages demeure pure? » La voix trahissait une pointe de colère.
+« Pourquoi dois-tu être si résolue? Y a-t-il une chose plus importante que de faire face à la marée de bêtes et de veiller à ce que la Mer Yun demeure pure? » La voix trahissait une pointe de colère.
 
 « Il y a une chose qui m'importe bien plus que tout ce que vous venez de dire! » lança Li Qianmei en s'éloignant progressivement.
 
@@ -98,15 +98,15 @@ Ce n'est que bien longtemps après le départ de Li Qianmei qu'un soupir retenti
 
 « Puisque tu es si déterminée, prends mon jade et utilise le réseau de téléportation. Cela te fera gagner du temps. » À ces mots, une douce lumière jaillit de la Secte Démon pour venir se poser dans la main de Li Qianmei.
 
-Li Qianmei saisit le jade et regarda vers l'horizon. Elle murmura: « Après avoir disparu pendant cent ans, il devrait apparaître pour aider la Secte de l'Origine lors de la compétition... Viendra-t-il...? »
+Li Qianmei saisit le jade et regarda vers l'horizon. Elle murmura: « Après avoir disparu pendant cent ans, il devrait apparaître pour aider la Secte Gui Yuan lors de la compétition... Viendra-t-il...? »
 
-Dans la Mer des Nuages, un continent sauvage flottait dans la brume, enveloppé d'un froid extrême. C’était comme si toute vie était condamnée à y être figée.
+Dans la Mer Yun, un continent sauvage flottait dans la brume, enveloppé d'un froid extrême. C’était comme si toute vie était condamnée à y être figée.
 
 Sur le côté est de ce continent sauvage, dans une grotte creusée au flanc d'une montagne, Mu Bingmei était assise. Ses yeux s'ouvraient parfois pour contempler cette terre étrange. Son regard était empreint de solitude et de nostalgie.
 
-Ses blessures étaient graves. Pour guérir, il lui faudrait un temps considérable; elle n'avait donc d'autre choix que d'attendre. À son arrivée, elle avait sorti un ancien jade du Royaume du Vide Brillant, un objet que seule la Sainte de chaque génération pouvait posséder.
+Ses blessures étaient graves. Pour guérir, il lui faudrait un temps considérable; elle n'avait donc d'autre choix que d'attendre. À son arrivée, elle avait sorti un ancien jade du Royaume Kun Xu, un objet que seule la Sainte de chaque génération pouvait posséder.
 
-Tout en cultivant, Mu Bingmei repensait souvent à sa vie. Son existence était monotone, presque entièrement consumée dans le Royaume du Vide Brillant. Ses moments de bonheur consistaient à se remémorer ses expériences passées, comme si elle observait une autre vie.
+Tout en cultivant, Mu Bingmei repensait souvent à sa vie. Son existence était monotone, presque entièrement consumée dans le Royaume Kun Xu. Ses moments de bonheur consistaient à se remémorer ses expériences passées, comme si elle observait une autre vie.
 
 Liu Mei était l'existence la plus singulière parmi ses avatars, et cela n'était dû qu'à une seule personne. Parfois, Mu Bingmei ne savait plus si elle était Liu Mei ou Mu Bingmei...
 
@@ -116,7 +116,7 @@ En y songeant, des larmes coulèrent aux coins de ses yeux. Cependant, ces larme
 
 Après un temps indéterminé, une voix douce parvint de l'extérieur de la grotte et pénétra dans son esprit. Elle fut tirée de ses pensées, mais elle ne fut pas surprise, comme si elle l'avait attendu.
 
-« La personne à l'intérieur est-elle la Sainte du Royaume du Vide Brillant, la Grande Sœur Mu Bingmei? »
+« La personne à l'intérieur est-elle la Sainte du Royaume Kun Xu, la Grande Sœur Mu Bingmei? »
 
 Mu Bingmei répondit doucement: « Je vous en prie, entrez. »
 
@@ -130,6 +130,6 @@ Cette femme nommée Wang Shanshan était très féminine. Après avoir sorti que
 
 Un soupçon d'amertume marqua le sourire de Mu Bingmei, qui resta silencieuse.
 
-« Grande Sœur Mu, la grande compétition des sectes de rang 8 de mon Système Stellaire de la Mer des Nuages approchera bientôt. Puisque cela se situe sur la route de la Secte Divine, nous devrions y aller ensemble. La Jeune Sœur sort rarement, et je n'ai pas envie de rentrer si tôt. »
+« Grande Sœur Mu, la grande compétition des sectes de rang 8 de mon Système Stellaire de la Mer Yun approchera bientôt. Puisque cela se situe sur la route de la Secte Divine, nous devrions y aller ensemble. La Jeune Sœur sort rarement, et je n'ai pas envie de rentrer si tôt. »
 
 Mu Bingmei regarda la femme devant elle et acquiesça d'un signe de tête.

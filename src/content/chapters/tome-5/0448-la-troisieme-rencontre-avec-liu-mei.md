@@ -102,11 +102,11 @@ Une autre explosion tellurique secoua le monde. La lance, telle un dragon féroc
 
 Bien que le paon fût toujours magnifique, ses couleurs s'étaient ternies. Le visage de Liu Mei était blême lorsqu'elle murmura: « Ce trésor n'est ni un pseudo-trésor céleste, ni un trésor céleste... il est très étrange! »
 
-Alors qu'il rejetait sa lance, Wang Lin recula promptement et tendit la main; soudain, une bannière de dix mètres de haut apparut dans sa paume. Il ne voulait plus perdre de temps; il comptait tuer cette femme avec ce drapeau d'âme pour entrer dans la section intérieure du Tombeau de Suzaku.
+Alors qu'il rejetait sa lance, Wang Lin recula promptement et tendit la main; soudain, une bannière de dix mètres de haut apparut dans sa paume. Il ne voulait plus perdre de temps; il comptait tuer cette femme avec ce drapeau d'âme pour entrer dans la section intérieure du Tombeau Zhu Que.
 
 À l'instant où la bannière se manifesta, la froideur dans le regard de Liu Mei s'intensifia. Elle fixa le drapeau d'âme et murmura: « Je ne m'attendais pas à ce que le Senior Du Tian te remette réellement le drapeau d'âme du milliard d'âmes. Cependant, Wang Lin, je savais déjà que tu la possédais, sans quoi je n'aurais pas choisi de t'attendre sur cet autel. »
 
-« J'ai été la deuxième personne à entrer dans le Tombeau de Suzaku, et voici le champ de bataille que j'ai choisi pour nous deux. Si tu décides d'utiliser le drapeau d'âme, je détruirai l'autel. Il faudra plusieurs jours pour qu'il se reforme, ce qui te retardera considérablement. »
+« J'ai été la deuxième personne à entrer dans le Tombeau Zhu Que, et voici le champ de bataille que j'ai choisi pour nous deux. Si tu décides d'utiliser le drapeau d'âme, je détruirai l'autel. Il faudra plusieurs jours pour qu'il se reforme, ce qui te retardera considérablement. »
 
 Wang Lin la fixa d'un regard glacial. Situ Nan lui avait déjà expliqué la nature de cet autel. Il avait été créé par la première génération de Suzaku dans le but de téléporter les gens. Une fois que le Cristal de Planète de Culture s'ouvrirait, l'autel serait enveloppé par le pouvoir mystérieux du cristal et acquerrait des capacités supplémentaires.
 

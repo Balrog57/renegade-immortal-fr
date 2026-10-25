@@ -88,7 +88,7 @@ Maître Yan Leizi cracha du sang et se retira précipitamment. Ses yeux étaient
 
 « Wang Lin!!! C'est Wang Lin!!! » Il avait clairement vu ses cheveux blancs et sa robe blanche. Il ne pourrait jamais oublier la silhouette de Wang Lin!
 
-Lie Yunzi cracha également du sang en reculant, terrifié. Il était celui qui avait le plus interagi avec Wang Lin, notamment lors de leur dernière rencontre à la Secte de l'Oiseau Vermillon, où il avait été acculé par ce dernier. Ce souvenir était gravé dans son esprit!
+Lie Yunzi cracha également du sang en reculant, terrifié. Il était celui qui avait le plus interagi avec Wang Lin, notamment lors de leur dernière rencontre à la Secte Zhu Que, où il avait été acculé par ce dernier. Ce souvenir était gravé dans son esprit!
 
 Il réalisa immédiatement que l'homme en blanc était Wang Lin. Il resta abasourdi, incapable de prononcer un seul mot!
 
@@ -102,7 +102,7 @@ Il y avait aussi Xiang Yundong, de la famille Xiang. Son visage était livide. I
 
 « Senior, la culture de cette personne... » Xiang Yundong réprima sa peur et s'adressa à Maître Lu Fu.
 
-L'expression de Maître Lu Fu devint plus sombre encore alors qu'il contemplait les majestueux nuages de tonnerre s'étendant à travers le système stellaire. Après un long silence, il dit lentement: « Wang Lin... Ce vieil homme s'en souvient. Je l'ai rencontré autrefois, dans la Terre de l'Ancien Dieu au sein du système stellaire de l'Alliance... »
+L'expression de Maître Lu Fu devint plus sombre encore alors qu'il contemplait les majestueux nuages de tonnerre s'étendant à travers le système stellaire. Après un long silence, il dit lentement: « Wang Lin... Ce vieil homme s'en souvient. Je l'ai rencontré autrefois, dans la Terre Gu Shen au sein du système stellaire de l'Alliance... »
 
 Un éclair de complexité traversa le regard de Maître Lu Fu, puis il s'enfonça dans les profondeurs du vortex.
 

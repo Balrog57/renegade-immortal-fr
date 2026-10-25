@@ -24,7 +24,7 @@ Cette scène terrifia tant Xu Liguo qu'il retourna immédiatement auprès de Wan
 
 Wang Lin demanda d'un ton grave: « Qui êtes-vous? »
 
-La femme regarda Wang Lin et répondit lentement: « Parmi les cultivateurs, on m'appelait Mei Ji, et au sein du Clan des Immortels Délaissés, je suis la troisième ancêtre! »
+La femme regarda Wang Lin et répondit lentement: « Parmi les cultivateurs, on m'appelait Mei Ji, et au sein du Clan Xian Yi, je suis la troisième ancêtre! »
 
 Les yeux de Wang Lin s'illuminèrent et il déclara calmement: « Ainsi, c'est l'honorable troisième ancêtre. Ce junior a été impoli de s'introduire ici sans permission; il prend congé. » Sur ces mots, il commença à reculer.
 
@@ -54,7 +54,7 @@ Wang Lin regarda la femme et dit: « Je n'ai utilisé que 10 % de mon énergie s
 
 Il n'avait aucune confiance face à cette femme. Après tout, elle représentait une existence comparable à un cultivateur Ascendant. Même blessée, elle disposait encore de nombreux moyens. Elle ne ressemblait en rien à ces chamans à huit feuilles que Wang Lin pouvait facilement éliminer grâce à son âme Ascendante.
 
-La femme esquissa un léger sourire. Elle regarda Wang Lin comme s'il était son amant et laissa échapper un rire provocateur. « Je ne cherche pas à t'imposer quoi que ce soit, je veux seulement partager le printemps avec toi. Pourquoi me tenir ainsi à distance? D'ailleurs, le Cimetière des Immortels compte 19 couches au total. Une fois que tu auras dépassé cette grande sœur, tu pourras découvrir le secret du pouvoir de tatouage de mon Clan des Immortels Délaissés. Plus important encore, il est gardé par le fragment d'âme du premier ancêtre de mon clan. Tu possèdes l'Étendard de l'Âme d'un Milliard; ne veux-tu pas aller récupérer le fragment d'âme du premier ancêtre... »
+La femme esquissa un léger sourire. Elle regarda Wang Lin comme s'il était son amant et laissa échapper un rire provocateur. « Je ne cherche pas à t'imposer quoi que ce soit, je veux seulement partager le printemps avec toi. Pourquoi me tenir ainsi à distance? D'ailleurs, le Cimetière des Immortels compte 19 couches au total. Une fois que tu auras dépassé cette grande sœur, tu pourras découvrir le secret du pouvoir de tatouage de mon Clan Xian Yi. Plus important encore, il est gardé par le fragment d'âme du premier ancêtre de mon clan. Tu possèdes l'Étendard de l'Âme d'un Milliard; ne veux-tu pas aller récupérer le fragment d'âme du premier ancêtre... »
 
 Wang Lin la dévisagea. Sa voix était glaciale: « Je vous accorde trois respirations. Que je parte ou que je me batte dépend de vous! »
 
@@ -138,7 +138,7 @@ Les deux parchemins identiques étaient séparés par plusieurs centaines de mè
 
 À la onzième couche, l'expression de la troisième ancêtre changea radicalement.
 
-« L'Atlas des Bêtes Tatouées... Pourquoi cet homme possède-t-il le trésor de mon Clan des Immortels Délaissés?! Serait-ce un objet qu'un ancêtre aurait laissé à l'extérieur?! » Les yeux de la femme s'illuminèrent et elle murmura: « Rentrez! »
+« L'Atlas des Bêtes Tatouées... Pourquoi cet homme possède-t-il le trésor de mon Clan Xian Yi?! Serait-ce un objet qu'un ancêtre aurait laissé à l'extérieur?! » Les yeux de la femme s'illuminèrent et elle murmura: « Rentrez! »
 
 Dès qu'elle prononça ce mot, le parchemin aux dix points trembla. Le dragon et le tigre se transformèrent en deux tatouages brillant d'une lumière noire et volèrent vers le rouleau.
 

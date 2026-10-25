@@ -64,7 +64,7 @@ Le temps s'écoula et l'aube approcha. Les soldats étaient restés de garde pre
 
 Wang Lin hocha la tête sans mot dire, continuant de boire.
 
-Le temps fila jusqu'à l'aurore. L'obscurité se dissipa et le soleil commença à poindre dans le ciel. Wang Lin et le vieux général avaient bu tout au long de la nuit. Wang Lin lui raconta ses périples sur le Continent Astral Immortel: le Continent du Taureau Céleste, le Continent du Démon Vert, la cité ancestrale... Il évoqua même tout ce qui s'était passé au sein du clan Ancien.
+Le temps fila jusqu'à l'aurore. L'obscurité se dissipa et le soleil commença à poindre dans le ciel. Wang Lin et le vieux général avaient bu tout au long de la nuit. Wang Lin lui raconta ses périples sur le Continent Astral Immortel: le Continent Tian Niu, le Continent Lu Mo, la cité ancestrale... Il évoqua même tout ce qui s'était passé au sein du clan Ancien.
 
 Lorsqu'il mentionna avoir trouvé les fragments de l'âme de Li Muwan, des larmes coulèrent. Et quand il parla de l'assassinat de l'Empereur Dao Antique et du prix d'une vie payé pour la grâce de son maître, son visage s'assombrit.
 

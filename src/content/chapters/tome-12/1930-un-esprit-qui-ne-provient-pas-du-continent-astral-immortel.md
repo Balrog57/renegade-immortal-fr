@@ -26,11 +26,11 @@ Par ce geste, les 97 images rémanentes fusionnèrent avec le corps de Wang Lin,
 
 Le doigt apparut et pointa vers l'Exalté Empyréen Hai Zi!
 
-Il y a 50 ans, Wang Lin avait revêtu son armure d'âme et avait attaqué avec 98 sorts simultanés. Il avait alors fait reculer en catastrophe l'ancêtre de la Secte du Dao Démoniaque, le forçant à utiliser la robe dao salvatrice que le Grand Empyréen Dao Yi lui avait donnée.
+Il y a 50 ans, Wang Lin avait revêtu son armure d'âme et avait attaqué avec 98 sorts simultanés. Il avait alors fait reculer en catastrophe l'ancêtre de la Secte Dao Mo, le forçant à utiliser la robe dao salvatrice que le Grand Empyréen Dao Yi lui avait donnée.
 
 Même le Sens Divin du Grand Empyréen Dao Yi avait dû intervenir pour repousser le coup dévastateur de Wang Lin!
 
-Aujourd'hui, Wang Lin avait défié des adversaires en combat pendant les 50 dernières années, avait assimilé pleinement la puissance soudainement acquise au Temple du Scorpion et en avait pris le contrôle total. Même sans l'armure d'âme, il pouvait vaincre de nombreux Exaltés Empyréens. Même face à l'ancêtre de la Secte du Dao Démoniaque, Wang Lin pourrait l'emporter sans porter son armure!
+Aujourd'hui, Wang Lin avait défié des adversaires en combat pendant les 50 dernières années, avait assimilé pleinement la puissance soudainement acquise au Temple Lü Mo Xie et en avait pris le contrôle total. Même sans l'armure d'âme, il pouvait vaincre de nombreux Exaltés Empyréens. Même face à l'ancêtre de la Secte Dao Mo, Wang Lin pourrait l'emporter sans porter son armure!
 
 Il était déjà extrêmement puissant et n'avait plus rien à voir avec l'homme d'il y a 50 ans. Désormais, après avoir revêtu l'armure d'âme et utilisé l'Art Magique Rapide pour fusionner 98 sorts en un seul, sa puissance était bien supérieure à celle de jadis!
 
@@ -104,7 +104,7 @@ Cependant, le sceau entourant l'arbre brilla intensément alors que le fragment 
 
 Dès que la moitié fut libérée, les yeux de Wang Lin brillèrent d'un éclat plus intense encore. C'était comme si un fragment similaire dans ses propres yeux était sur le point de jaillir.
 
-« Comment l'Arbre de la Mer Montagneuse peut-il posséder un fragment de l'Épée de l'Ancêtre Céleste?! » Au cours des 50 dernières années, Wang Lin avait délibérément recherché les objets que le vieil homme du Temple du Scorpion du Démon Vert avait injectés dans son corps. Après tout, pour maîtriser son propre corps, il devait comprendre l'origine de ces substances.
+« Comment l'Arbre de la Mer Montagneuse peut-il posséder un fragment de l'Épée de l'Ancêtre Céleste?! » Au cours des 50 dernières années, Wang Lin avait délibérément recherché les objets que le vieil homme du Temple Lü Mo Xie avait injectés dans son corps. Après tout, pour maîtriser son propre corps, il devait comprendre l'origine de ces substances.
 
 La rumeur disait que l'Épée de l'Ancêtre Céleste avait été brisée lors de la bataille contre le Démon Scorpion Vert par la queue du scorpion. Pourtant, Wang Lin avait entendu pas moins de dix légendes différentes à ce sujet!
 
@@ -118,7 +118,7 @@ Ces pensées traversèrent l'esprit de Wang Lin et il hésita.
 
 Depuis le début, 15 souffles s'étaient écoulés. Wang Lin, le regard déterminé, recula de plusieurs pas et ne fit pas bouger son corps original. Au lieu de cela, son Corps Véritable d'Essence de Tonnerre s'élança vers le fragment. Il chargea et saisit directement l'objet!
 
-« Le Temple du Scorpion du Démon Vert possédait également un sceau, mais ce n'était pas un problème majeur. Cependant, celui-ci est différent... Mais la richesse se trouve dans le danger, je ne peux repartir les mains vides! » Le Corps Véritable d'Essence de Tonnerre tendit la main et empoigna le fragment d'épée.
+« Le Temple Lü Mo Xie possédait également un sceau, mais ce n'était pas un problème majeur. Cependant, celui-ci est différent... Mais la richesse se trouve dans le danger, je ne peux repartir les mains vides! » Le Corps Véritable d'Essence de Tonnerre tendit la main et empoigna le fragment d'épée.
 
 Au moment même où sa main droite saisit l'objet, la force de scellement de l'Arbre de la Mer Montagneuse explosa!
 

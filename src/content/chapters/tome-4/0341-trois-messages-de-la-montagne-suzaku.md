@@ -46,7 +46,7 @@ Curieux, le vieil homme Hu scruta la vallée et aperçut une pagode. Au pied de 
 
 Le jeune homme tenta plusieurs fois de progresser, mais ne parvint pas à pénétrer plus de cinq kilomètres au sein de la barrière. Son expression était troublée et, finalement, il joignit les mains et déclara: « Je suis Feng Yushan de Suzaku. Je souhaite saluer le cultivateur Ceng Niu! »
 
-« Ceng Niu! » Les yeux du vieil homme Hu devinrent graves. Il était sous le choc. Son regard se posa instinctivement sur le corps momifié au pied de la pagode. Rien n'était étonnant à ce qu'il soit si bouleversé. Le nom de Ceng Niu était devenu légendaire dans la Mer des Démons, et les récits à son sujet semblaient ne jamais finir.
+« Ceng Niu! » Les yeux du vieil homme Hu devinrent graves. Il était sous le choc. Son regard se posa instinctivement sur le corps momifié au pied de la pagode. Rien n'était étonnant à ce qu'il soit si bouleversé. Le nom de Ceng Niu était devenu légendaire dans la Mer Xiu Mo, et les récits à son sujet semblaient ne jamais finir.
 
 Une rumeur disait qu'il avait été secrètement entraîné par Suzaku et qu'il serait l'héritier du titre de Suzaku. Autrement, comment expliquer que Suzaku n'ait pas réagi avec son habituelle arrogance après qu'il eut arraché un bras à Hongdie?
 
@@ -66,7 +66,7 @@ L'homme à ses côtés laissa transparaître une pointe de respect dans son rega
 
 La belle femme murmura doucement: « Je me demande quel lien unit ce Ceng Niu à Chu... »
 
-À l'instant même où elle prononça ces mots, le vieil homme Hu réfléchit un instant et ordonna: « Annulez l'ordre d'envoyer quelqu'un à la Secte du Ciel Nuageux. »
+À l'instant même où elle prononça ces mots, le vieil homme Hu réfléchit un instant et ordonna: « Annulez l'ordre d'envoyer quelqu'un à la Secte Yun Tian. »
 
 Xu Luo fut surpris, mais acquiesça aussitôt.
 
@@ -86,7 +86,7 @@ Une série de craquements retentit au sein de cette main. Le front de Feng Yusha
 
 Une voix calme émana de la vallée: « La date! »
 
-Feng Yushan répondit précipitamment: « Dans trois mois, sur l'Autel du Ciel de la Montagne de l'Ouest, au pays de Suzaku! »
+Feng Yushan répondit précipitamment: « Dans trois mois, sur l'Autel du Ciel de la Montagne Xi, au pays de Suzaku! »
 
 « Comment saviez-vous que j'étais ici? » Bien que la voix de Wang Lin fût sereine, elle laissait filtrer une pointe d'intention meurtrière.
 

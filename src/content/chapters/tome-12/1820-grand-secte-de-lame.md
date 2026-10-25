@@ -1,38 +1,38 @@
 ---
 n: 1820
-title: "Secte de la Grande Âme"
+title: "Secte Da Hun"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1820 - Great Soul Secte
 slug: grand-secte-de-lame
 ---
-La Secte de la Grande Âme était situé au cœur d'une chaîne de montagnes dont les sommets perçaient les nuages. La montagne dégageait une lueur rouge, telle une montagne en flammes.
+La Secte Da Hun était situé au cœur d'une chaîne de montagnes dont les sommets perçaient les nuages. La montagne dégageait une lueur rouge, telle une montagne en flammes.
 
 Des ondulations résonnaient autour du massif. Ces vibrations semblaient contenir une force d'âme, et d'innombrables silhouettes cachées paraissaient laisser échapper des rugissements silencieux en son sein.
 
-Cet endroit était l'une des deux sectes les plus puissantes du Continent du Taureau Céleste: la Secte de la Grande Âme!
+Cet endroit était l'une des deux sectes les plus puissantes du Continent Tian Niu: la Secte Da Hun!
 
 Une neige verdâtre tombait sur la Montagne Céleste. Elle recouvrait le corps et les cheveux de Wang Lin, ainsi que le sol. Il restait immobile au milieu des flocons.
 
-D'ici, la Secte de la Grande Âme ne semblait pas très éloigné, mais même en volant, il faudrait plusieurs jours pour l'atteindre. Si la distance paraissait si courte, outre la hauteur de la Montagne Céleste, c'était parce que les ondulations émanant de la Secte de la Grande Âme créaient un décalage visuel.
+D'ici, la Secte Da Hun ne semblait pas très éloigné, mais même en volant, il faudrait plusieurs jours pour l'atteindre. Si la distance paraissait si courte, outre la hauteur de la Montagne Céleste, c'était parce que les ondulations émanant de la Secte Da Hun créaient un décalage visuel.
 
-Après un long moment, Wang Lin ferma les yeux et déploya son Sens Divin. Il perçut vaguement la principale veine de feu terrestre sous la Secte de la Grande Âme. Celle-ci se ramifiait en d'innombrables branches qui s'étendaient à travers tout le Continent du Taureau Céleste.
+Après un long moment, Wang Lin ferma les yeux et déploya son Sens Divin. Il perçut vaguement la principale veine de feu terrestre sous la Secte Da Hun. Celle-ci se ramifiait en d'innombrables branches qui s'étendaient à travers tout le Continent Tian Niu.
 
-Une volonté de feu prodigieuse résidait dans cette veine principale. Cette volonté n'autorisait personne à l'envahir, et ce n'était qu'au sein même de la Secte de la Grande Âme qu'elle faiblissait considérablement.
+Une volonté de feu prodigieuse résidait dans cette veine principale. Cette volonté n'autorisait personne à l'envahir, et ce n'était qu'au sein même de la Secte Da Hun qu'elle faiblissait considérablement.
 
-La veine principale émergeait des profondeurs au niveau de la Secte de la Grande Âme. On pourrait dire que ce n'était pas tant la secte qui importait, mais plutôt que la montagne elle-même constituait la principale veine de feu terrestre s'étendant à la surface.
+La veine principale émergeait des profondeurs au niveau de la Secte Da Hun. On pourrait dire que ce n'était pas tant la secte qui importait, mais plutôt que la montagne elle-même constituait la principale veine de feu terrestre s'étendant à la surface.
 
-Ce n'était pas une œuvre humaine, mais le fruit de l'évolution de la nature. On ne pouvait que dire que la Secte de la Grande Âme avait choisi un emplacement extrêmement judicieux.
+Ce n'était pas une œuvre humaine, mais le fruit de l'évolution de la nature. On ne pouvait que dire que la Secte Da Hun avait choisi un emplacement extrêmement judicieux.
 
-Une puissante vague de vitalité pulsait au sein de la Secte de la Grande Âme. D'un simple balayage, Wang Lin repéra pas moins de 100 000 cultivateurs dans cette chaîne de montagnes infinie.
+Une puissante vague de vitalité pulsait au sein de la Secte Da Hun. D'un simple balayage, Wang Lin repéra pas moins de 100 000 cultivateurs dans cette chaîne de montagnes infinie.
 
 Cent mille cultivateurs représentaient un nombre colossal, pourtant, cachés dans les replis des montagnes, on ne trouvait aucune trace d'eux.
 
 De nombreuses auras d'essence extrêmement puissantes émanaient des montagnes; elles appartenaient à des cultivateurs de la troisième étape.
 
-« La Secte de la Grande Âme du Continent Astral Immortel... Elle est en effet très puissante. Une seule secte suffit à balayer le Monde des Grottes. » Wang Lin observa la scène avec calme tout en réfléchissant.
+« La Secte Da Hun du Continent Astral Immortel... Elle est en effet très puissante. Une seule secte suffit à balayer le Monde des Grottes. » Wang Lin observa la scène avec calme tout en réfléchissant.
 
-Sans son véritable corps d'essence de feu, Wang Lin n'aurait pas provoqué un tel colosse. Cependant, la principale veine de feu terrestre sous la Secte de la Grande Âme était bien trop importante pour lui. Même s'il devait arracher les dents d'un tigre, il devait tenter sa chance.
+Sans son véritable corps d'essence de feu, Wang Lin n'aurait pas provoqué un tel colosse. Cependant, la principale veine de feu terrestre sous la Secte Da Hun était bien trop importante pour lui. Même s'il devait arracher les dents d'un tigre, il devait tenter sa chance.
 
 Durant ces derniers jours, il avait absorbé de nombreuses veines enfantines. L'essence de feu dans son corps avait atteint un seuil critique et ne serait plus affectée par ces petites veines.
 
@@ -40,23 +40,23 @@ Il s'était déjà préparé à cela. Après tout, c'était comparable à la con
 
 À moins de pouvoir dévorer des pilules de qualité supérieure, telle que la volonté de cette principale veine de feu terrestre!
 
-Wang Lin ferma légèrement les yeux et son corps flotta silencieusement depuis la Montagne Céleste vers l'avant, sans le moindre bruit, en direction de la Secte de la Grande Âme.
+Wang Lin ferma légèrement les yeux et son corps flotta silencieusement depuis la Montagne Céleste vers l'avant, sans le moindre bruit, en direction de la Secte Da Hun.
 
 Tout en avançant, son corps clignotait. Il franchissait de grandes distances comme s'il se téléportait.
 
-Après plusieurs heures, Wang Lin parcourut le chemin qui aurait pris plusieurs jours à des cultivateurs et arriva à la chaîne de montagnes abritant la Secte de la Grande Âme. Ici, les fluctuations de la puissance d'âme devenaient encore plus fortes et denses. Des forces cachées empêchaient Wang Lin de pénétrer.
+Après plusieurs heures, Wang Lin parcourut le chemin qui aurait pris plusieurs jours à des cultivateurs et arriva à la chaîne de montagnes abritant la Secte Da Hun. Ici, les fluctuations de la puissance d'âme devenaient encore plus fortes et denses. Des forces cachées empêchaient Wang Lin de pénétrer.
 
-« Malheureusement, je ne peux pas sortir la Voile Fantôme de mon espace de stockage; sinon, j'aurais pu emprunter sa puissance pour infiltrer la Secte de la Grande Âme. » Wang Lin s'arrêta et contempla les montagnes non loin de là. Il fixa la montagne rouge et poussa un soupir.
+« Malheureusement, je ne peux pas sortir la Voile Fantôme de mon espace de stockage; sinon, j'aurais pu emprunter sa puissance pour infiltrer la Secte Da Hun. » Wang Lin s'arrêta et contempla les montagnes non loin de là. Il fixa la montagne rouge et poussa un soupir.
 
 Son aura avait été totalement dissimulée et il ressemblait désormais à un mortel. Après s'être assis, il ferma les yeux et commença à attendre.
 
 Dès qu'il s'assit, son corps devint flou et se mua en une traînée de fumée qui flotta dans l'air.
 
-Une secte telle que la Secte de la Grande Âme possédait une formation extrêmement puissante autour de son territoire. Quiconque n'était pas un disciple serait immédiatement détecté dès qu'il toucherait la formation.
+Une secte telle que la Secte Da Hun possédait une formation extrêmement puissante autour de son territoire. Quiconque n'était pas un disciple serait immédiatement détecté dès qu'il toucherait la formation.
 
 S'il voulait entrer, il devait attendre qu'un disciple passe et provoque une fluctuation dans la formation.
 
-Un cultivateur ordinaire choisirait peut-être de fusionner avec le corps d'un disciple de la Secte de la Grande Âme pour entrer, mais cela présentait des inconvénients. Bien que l'idée semble séduisante, le fait que le nom de la secte contienne le mot « Âme » signifiait qu'ils possédaient une compréhension profonde de l'âme.
+Un cultivateur ordinaire choisirait peut-être de fusionner avec le corps d'un disciple de la Secte Da Hun pour entrer, mais cela présentait des inconvénients. Bien que l'idée semble séduisante, le fait que le nom de la secte contienne le mot « Âme » signifiait qu'ils possédaient une compréhension profonde de l'âme.
 
 Autrement, ils n'auraient pu créer un sort d'illusion multicouche.
 
@@ -76,11 +76,11 @@ Il n'était pas anxieux. Il avait assez de temps et de patience pour observer ca
 
 Durant ces sept jours, la formation ondula près de 1 000 fois au passage des disciples. Wang Lin remarqua lentement que les fluctuations différaient selon l'identité des disciples.
 
-Au cours de ces dix jours, Wang Lin avait observé plus de 1 000 disciples différents de la Secte de la Grande Âme. Il nota certaines particularités physiques propres à la secte.
+Au cours de ces dix jours, Wang Lin avait observé plus de 1 000 disciples différents de la Secte Da Hun. Il nota certaines particularités physiques propres à la secte.
 
 Par exemple, leurs âmes. Si l'âme de chaque disciple était une flamme, alors cette flamme était si robuste qu'elle ne fluctuait que très peu.
 
-Pendant ces dix jours, Wang Lin n'avait toujours rien entrepris. Il continua d'observer pendant dix jours supplémentaires. Ce jour-là, alors qu'un disciple de la Secte de la Grande Âme pénétrait dans la formation, la fumée en laquelle Wang Lin s'était transformé s'élança brusquement.
+Pendant ces dix jours, Wang Lin n'avait toujours rien entrepris. Il continua d'observer pendant dix jours supplémentaires. Ce jour-là, alors qu'un disciple de la Secte Da Hun pénétrait dans la formation, la fumée en laquelle Wang Lin s'était transformé s'élança brusquement.
 
 Cette fumée était invisible et apparut instantanément aux côtés du corps du disciple. La formation ondula lors de l'entrée du disciple, et Wang Lin s'y glissa au même moment.
 
@@ -90,7 +90,7 @@ Ce n'est que lorsque le disciple, sorti de la formation, s'envola vers les monta
 
 Son intrusion n'avait causé aucun changement dans la formation ou, pour être plus précis, tous les changements avaient été masqués par les ondulations provoquées par l'entrée dudit disciple.
 
-La fumée de Wang Lin se déplaça silencieusement à travers les montagnes. Il croisa de nombreux disciples de la Secte de la Grande Âme. Tous passèrent près de lui sans qu'aucun ne remarque sa présence.
+La fumée de Wang Lin se déplaça silencieusement à travers les montagnes. Il croisa de nombreux disciples de la Secte Da Hun. Tous passèrent près de lui sans qu'aucun ne remarque sa présence.
 
 Wang Lin était extrêmement prudent et s'arrêtait souvent en dérivant. Il progressait lentement vers les profondeurs de la chaîne de montagnes, en direction de la montagne rouge. Plus il approchait, plus il ressentait puissamment la principale veine de feu terrestre.
 
@@ -108,7 +108,7 @@ Il se déplaçait à la même vitesse que le Sens Divin: l'un s'étendait tandis
 
 Toutefois, ce Sens Divin se propageait comme un éventail dont la montagne rouge était le centre. Wang Lin pouvait l'éviter pour l'instant, mais il ne tarderait pas à être détecté.
 
-Alors que le Sens Divin balayait la zone, des ondulations résonnèrent à travers la formation de la Secte de la Grande Âme et celle-ci se scella. Cette scène choqua Wang Lin.
+Alors que le Sens Divin balayait la zone, des ondulations résonnèrent à travers la formation de la Secte Da Hun et celle-ci se scella. Cette scène choqua Wang Lin.
 
 « Me suis-je fait repérer? » Wang Lin n'eut pas le temps de réfléchir alors que le Sens Divin se rapprochait de lui. Il recula, mais il semblait ne plus avoir nulle part où se cacher. Il vola vers les trois rayons de lumière qui venaient de loin.
 
@@ -118,6 +118,6 @@ Au moment où Wang Lin pénétra dans l'homme, le Sens Divin passa.
 
 Il ne s'attarda pas, mais balaya directement la distance. Après avoir couvert toute la chaîne de montagnes, il se dissipa lentement. Une fois le Sens Divin dispersé, la formation cessa de sceller la zone et reprit son fonctionnement normal.
 
-« Ce n'est pas que j'ai été découvert, c'est simplement que la Secte de la Grande Âme a pour habitude d'avoir un puissant cultivateur en alerte qui déploie périodiquement son Sens Divin... » Wang Lin se rassembla à l'intérieur du corps de l'homme et forma un vortex entouré de restrictions.
+« Ce n'est pas que j'ai été découvert, c'est simplement que la Secte Da Hun a pour habitude d'avoir un puissant cultivateur en alerte qui déploie périodiquement son Sens Divin... » Wang Lin se rassembla à l'intérieur du corps de l'homme et forma un vortex entouré de restrictions.
 
 Tandis que Wang Lin réfléchissait, la femme à ses côtés le réprimanda: « Pourquoi restes-tu là debout? Si nous sommes en retard pour livrer le Fruit de la Division de l'Âme aux Senior Sisters, nous serons punis! »

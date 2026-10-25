@@ -26,9 +26,9 @@ Sa vision se brouilla et il revit ces centaines d'années de vie. Lui, utilisant
 
 « Grand Céleste Jin Biao, immortel impérissable! Voilà qui est bien. À l'avenir, vous crierez tous ainsi. Le nom de ce vieil homme est Liu; désormais, je m'appellerai Liu Jinbiao. Quel nom impérieux! »
 
-« Une fois devenu un céleste, même les poulets et les chiens peuvent s'élever vers les cieux! Haha, j'ai créé cela moi-même. Avec ça, je deviendrai célèbre sur tout le Continent du Grand Sage et je ferai fortune! »
+« Une fois devenu un céleste, même les poulets et les chiens peuvent s'élever vers les cieux! Haha, j'ai créé cela moi-même. Avec ça, je deviendrai célèbre sur tout le Continent Da Sheng et je ferai fortune! »
 
-« Ah, il vaut mieux ne pas rester ici trop longtemps. Le mieux est de partir pour le Continent du Grand Sage… »
+« Ah, il vaut mieux ne pas rester ici trop longtemps. Le mieux est de partir pour le Continent Da Sheng… »
 
 « Ce céleste s'est réincarné et a naturellement pris l'apparence d'un enfant. Comment des mortels comme vous pourraient-ils comprendre cela? »
 
@@ -90,7 +90,7 @@ Liu Jinbiao hésita, puis murmura: « Maître, dans mes souvenirs de cette vie, 
 
 « Oh? » Wang Lin s'arrêta brusquement et fixa Liu Jinbiao. « Où l'as-tu rencontré? »
 
-« Euh… Je n'avais pas encore retrouvé mes souvenirs à ce moment-là. Sur le Continent de l'Eau Céleste, dans le Continent de l'Est, j'ai vu un bandit de montagne à l'allure extrêmement féroce qui prétendait s'appeler Xu Liguo. À l'époque, j'étais assez connu dans la région… Oh, pas si célèbre, pas si célèbre. »
+« Euh… Je n'avais pas encore retrouvé mes souvenirs à ce moment-là. Sur le Continent Tian Shui, dans le Continent de l'Est, j'ai vu un bandit de montagne à l'allure extrêmement féroce qui prétendait s'appeler Xu Liguo. À l'époque, j'étais assez connu dans la région… Oh, pas si célèbre, pas si célèbre. »
 
 « Il m'a invité à monter sur la montagne, presque comme pour me servir, et m'a demandé de lui indiquer une voie vers l'immortalité. Je lui ai donné quelques pistes au hasard et lui ai dit de se rendre vers le Continent Central… » En parlant, Liu Jinbiao devint visiblement embarrassé.
 
@@ -110,7 +110,7 @@ Liu Jinbiao et Situ Nan ne se connaissaient pas vraiment. Au plus profond de ses
 
 Accompagné de Liu Jinbiao, Wang Lin vola vers la Secte Dong Lin.
 
-La Secte Dong Lin, première secte du Continent du Grand Sage et l'une des neuf sectes et treize factions. Elle était toujours très mystérieuse, et les étrangers connaissaient rarement ses secrets.
+La Secte Dong Lin, première secte du Continent Da Sheng et l'une des neuf sectes et treize factions. Elle était toujours très mystérieuse, et les étrangers connaissaient rarement ses secrets.
 
 Wang Lin s'était déjà rendu à la Secte Dong Lin dans l'illusion du monde des cavernes. À cet instant, il approchait de la secte. En observant la terre en dessous, les montagnes de la Secte Dong Lin lui semblèrent vaguement familières.
 

@@ -46,9 +46,9 @@ La bête laissa échapper quelques autres rugissements de rage avant de redeveni
 
 Wang Lin réapparut dans une veine spirituelle située à plus de mille mètres de là, où les minerais spirituels répandaient un éclat cristallin. Il fronça légèrement les sourcils en jetant un regard vers l'endroit où se trouvait le brouillard noir.
 
-« Ce n'est pas un Qilin, mais il est similaire au Qilin que possédait Ling Tianhou dans le Royaume Céleste. Ce petit drapeau doré doit être un trésor de la Secte de l'Affinement de l'Âme. Cette bête est à la fois la gardienne du drapeau et l'une des âmes qu'il renferme. »
+« Ce n'est pas un Qilin, mais il est similaire au Qilin que possédait Ling Tianhou dans le Royaume Céleste. Ce petit drapeau doré doit être un trésor de la Secte Lian Hun. Cette bête est à la fois la gardienne du drapeau et l'une des âmes qu'il renferme. »
 
-« Il semble que la méthode de fabrication des drapeaux d'âmes de la Secte de l'Affinement de l'Âme soit étroitement liée aux anciennes restrictions d'âmes. Seulement, j'ignore quelles sont les méthodes exactes. » Les yeux de Wang Lin brillèrent tandis qu'il réfléchissait.
+« Il semble que la méthode de fabrication des drapeaux d'âmes de la Secte Lian Hun soit étroitement liée aux anciennes restrictions d'âmes. Seulement, j'ignore quelles sont les méthodes exactes. » Les yeux de Wang Lin brillèrent tandis qu'il réfléchissait.
 
 « La puissance de cette bête est comparable à celle d'un cultivateur au stade initial de la Formation de l'Âme. Ma culture n'est pas encore rétablie, je ne suis donc pas pressé de la capturer. » Wang Lin médita encore un peu avant de retourner à sa culture.
 
@@ -128,4 +128,4 @@ Wang Lin regarda ce fragment, puis tourna son regard vers Guo Dongjian. « Où a
 
 Guo Dongjian soupira intérieurement. En voyant Wang Lin utiliser le vortex d'âmes, il avait déjà renoncé à toute résistance.
 
-« Frère aîné Qing Mu, félicitations pour être la troisième personne de la Montagne de l'Affinement de l'Âme à maîtriser le vortex d'âmes. Quant au fragment de l'Âme Naissante, je l'ai échangé avec Su Jinshi de la Montagne de l'Extraction de l'Âme contre un drapeau de cent âmes contenant neuf cents âmes. »
+« Frère aîné Qing Mu, félicitations pour être la troisième personne de la Montagne de l'Affinement de l'Âme à maîtriser le vortex d'âmes. Quant au fragment de l'Âme Naissante, je l'ai échangé avec Su Jinshi de la Montagne Chou Po de l'Âme contre un drapeau de cent âmes contenant neuf cents âmes. »

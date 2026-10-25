@@ -114,4 +114,4 @@ Il tendit sa main droite desséchée et saisit la flèche!
 
 Son corps trembla, puis il leva lentement la tête pour regarder Wang Lin. Il prit la parole d'une voix calme et rauque:
 
-« Le rugissement provenant du pouvoir emprunté au Tombeau Antique, bloquant mon armée de cultivateurs antiques lors de la bataille de la Mer des Nuages... Wang Lin, nous nous revoyons... Ce vieil homme est le Souverain... »
+« Le rugissement provenant du pouvoir emprunté au Tombeau Antique, bloquant mon armée de cultivateurs antiques lors de la bataille de la Mer Yun... Wang Lin, nous nous revoyons... Ce vieil homme est le Souverain... »

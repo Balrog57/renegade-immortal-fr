@@ -11,7 +11,7 @@ Au cœur du brouillard violet, les yeux de Tan Lang s'entrouvrirent, laissant é
 
 « Bien que ces étranges bêtes démoniaques soient effectivement très puissantes, tant que mes Sept Aiguilles Magiques les contrôlent, elles ne pourront pas m'échapper! Maîtriser cette bête reine, c'est maîtriser tout le troupeau! Ce groupe de bêtes est bien trop singulier. Si je parvenais à les utiliser convenablement, même lorsque le vieil homme Ling Tianhou arrivera, j'aurai de quoi négocier avec lui! » Une pointe d'orgueil brillait dans le regard de Tan Lang.
 
-Depuis son entrée dans l'Abîme des Marées, il avait commencé à élaborer ses propres plans. L'un d'eux nécessitait l'intégration d'une formation. Cependant, il était soudainement tombé sur les bêtes moustiques. D'abord surpris, il en fut ensuite extatique.
+Depuis son entrée dans l'Abîme Chao Xi, il avait commencé à élaborer ses propres plans. L'un d'eux nécessitait l'intégration d'une formation. Cependant, il était soudainement tombé sur les bêtes moustiques. D'abord surpris, il en fut ensuite extatique.
 
 Tan Lang n'avait jamais eu de demeure fixe; il dérivait sans cesse parmi les étoiles, suivant la trace des trésors. C’était de là que venait le dicton: « Tan Lang ne va pas là où il n'y a pas de trésor ».
 
@@ -25,7 +25,7 @@ D'innombrables moustiques étaient regroupés en une masse dense autour de la pl
 
 Il préférait affronter l'ennemi qui le traquait plutôt que de faire face à ces bêtes terrifiantes.
 
-En voyant les bêtes moustiques dans les fissures de l'Abîme des Marées, une idée lui vint immédiatement à l'esprit. Il envoya alors avec précaution son trésor de vie, les Sept Aiguilles Magiques, en utilisant son sens divin pour les guider délicatement dans la fissure.
+En voyant les bêtes moustiques dans les fissures de l'Abîme Chao Xi, une idée lui vint immédiatement à l'esprit. Il envoya alors avec précaution son trésor de vie, les Sept Aiguilles Magiques, en utilisant son sens divin pour les guider délicatement dans la fissure.
 
 Toutes les bêtes moustiques étaient en hibernation. Le cœur de Tan Lang nourrissait toujours une crainte envers elles depuis leur dernière rencontre. Il se faisait extrêmement prudent, craignant de les réveiller.
 
@@ -33,19 +33,19 @@ Il finit par localiser la bête reine des moustiques. Lorsque les aiguilles tran
 
 C’est à ce moment précis que le groupe de Chen Long fut soudainement piégé par les moustiques! Quant au brouillard violet, c'était aussi l'élément le plus crucial du plan de Tan Lang!
 
-Tan Lang observa les disciples de la Secte de l'Épée Da Luo et ricana intérieurement.
+Tan Lang observa les disciples de la Secte Da Luo Jian et ricana intérieurement.
 
-« Parmi les disciples du vieil homme Ling Tianhou, à part Chen Long, tous ne sont que des déchets! Depuis mon arrivée dans la Terre des Esprits Démoniaques, je suis venu seul trois fois dans l'Abîme des Marées. J'ai enfin déterminé que ce brouillard violet renferme le jeton qui a attiré le regard de Ling Tianhou et de Tian Yunzi!
+« Parmi les disciples du vieil homme Ling Tianhou, à part Chen Long, tous ne sont que des déchets! Depuis mon arrivée dans la Terre Yao Ling, je suis venu seul trois fois dans l'Abîme Chao Xi. J'ai enfin déterminé que ce brouillard violet renferme le jeton qui a attiré le regard de Ling Tianhou et de Tian Yunzi!
 
-« Cependant, ce jeton est un peu étrange. D'après mes observations, il n'apparaît qu'à certains moments et semble nécessiter des sacrifices... » Le regard de Tan Lang balaya indistinctement les disciples de la Secte de l'Épée Da Luo, y compris Chen Long.
+« Cependant, ce jeton est un peu étrange. D'après mes observations, il n'apparaît qu'à certains moments et semble nécessiter des sacrifices... » Le regard de Tan Lang balaya indistinctement les disciples de la Secte Da Luo Jian, y compris Chen Long.
 
 « Si je n'étais pas inquiet de l'énergie d'épée qui réside dans leurs corps, j'aurais déjà capturé ces cinq petits. Je les aurais alors amenés à se sacrifier volontairement, au lieu de les garder piégés ici pendant cent ans à attendre qu'ils succombent à l'anxiété! »
 
-Wang Lin, debout sur l'épée céleste, s'approchait lentement du brouillard violet depuis l'autre côté. Peu après, il détecta la brume au loin. Ce brouillard était si dense qu'il en paraissait presque solide. Il bloquait totalement le passage; à moins de le traverser, ils ne pourraient atteindre la sortie du Pays du Démon de Feu.
+Wang Lin, debout sur l'épée céleste, s'approchait lentement du brouillard violet depuis l'autre côté. Peu après, il détecta la brume au loin. Ce brouillard était si dense qu'il en paraissait presque solide. Il bloquait totalement le passage; à moins de le traverser, ils ne pourraient atteindre la sortie du Pays Huo Yao.
 
 « Wang Lin, mon sens divin d'épée ne peut toujours pas pénétrer ce brouillard violet. Il est très étrange, mais tu peux être rassuré: les personnes piégées à l'intérieur ne peuvent pas te détecter avec leur sens divin », transmit la voix de Zhou Yi depuis l'intérieur de l'épée céleste.
 
-Wang Lin hocha la tête et commença à réfléchir. La pression qui le poussait vers le haut depuis l'Abîme des Marées était constante. Il devait activer l'énergie spirituelle céleste en lui pour se stabiliser.
+Wang Lin hocha la tête et commença à réfléchir. La pression qui le poussait vers le haut depuis l'Abîme Chao Xi était constante. Il devait activer l'énergie spirituelle céleste en lui pour se stabiliser.
 
 Il fixa le brouillard violet en fronçant les sourcils. À cet instant, des ondulations parcoururent son sac de rangement. Il divisa une partie de son sens divin pour vérifier le sac et vit immédiatement la bête moustique. Elle était agitée, ses yeux brillant d'une lueur rougeâtre.
 
@@ -76,7 +76,7 @@ Alors qu'il volait, Zhou Yi envoya soudainement un message par sens divin:
 
 À cet instant précis, le vieil homme assis au centre ouvrit soudainement les yeux. Un éclat aigu s'en échappa tandis qu'il hurlait: « Quel est ce cultivateur? Ce vieil homme s'appelle Tan Lang! »
 
-Le cri de Tan Lang fit changer brusquement d'expression les disciples de la Secte de l'Épée Da Luo, qui se levèrent d'un bond. Cependant, Chen Long resta immobile, un éclat mystérieux dans le regard. Si l'on regardait de plus près, on y devinerait une pointe de joie!
+Le cri de Tan Lang fit changer brusquement d'expression les disciples de la Secte Da Luo Jian, qui se levèrent d'un bond. Cependant, Chen Long resta immobile, un éclat mystérieux dans le regard. Si l'on regardait de plus près, on y devinerait une pointe de joie!
 
 Zhou Yi ramena le sens divin de Wang Lin et disparut dans la brume. L'expression de Tan Lang était mécontente et il laissa échapper un reniflement froid. Il frappa son sac de rangement, mais après avoir hésité, il ne sortit aucun trésor magique.
 
@@ -92,9 +92,9 @@ Cependant, bien que celle de Tan Lang soit limitée au sommet du stade Ascendant
 
 Zhou Yi ramena le sens divin de Wang Lin et ils retrouvèrent leurs corps respectifs.
 
-« Parmi les six, cinq sont des disciples de la Secte de l'Épée Da Luo, et le dernier... s'appelle Tan Lang! » Wang Lin n'en dit pas plus sur lui.
+« Parmi les six, cinq sont des disciples de la Secte Da Luo Jian, et le dernier... s'appelle Tan Lang! » Wang Lin n'en dit pas plus sur lui.
 
-« La Secte de l'Épée Da Luo! Oui, je me demande pourquoi cela me semble si familier... La Secte de l'Épée Da Luo!! Wang Lin, que comptes-tu faire? » La voix froide de Zhou Yi résonna depuis l'épée céleste.
+« La Secte Da Luo Jian! Oui, je me demande pourquoi cela me semble si familier... La Secte Da Luo Jian!! Wang Lin, que comptes-tu faire? » La voix froide de Zhou Yi résonna depuis l'épée céleste.
 
 Wang Lin réfléchit un instant et répondit: « Senior, ne trouvez-vous pas cela étrange... Le niveau de culture de ce Tan Lang est très élevé, et tous les disciples de Ling Tianhou possèdent une parcelle de son énergie d'épée. Je sais aussi qu'ils ont disparu il y a environ cent ans. En tenant compte de tout cela, je suis sûr à quatre-vingts pour cent que, s'ils n'ont pas été piégés ici pendant un siècle, ils doivent avoir une raison de rester!
 

@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 205 - The Nascent Soul within Gui Xi
 slug: lame-naissante-au-sein-de-gui-xi
 ---
-Dans la Mer des Démons, on ne pouvait apercevoir la lune; seules quelques éclats de lumière lunaire perçaient à travers l'épais brouillard. Mais pour les cultivateurs, ces faibles lueurs suffisaient à leur servir de guide.
+Dans la Mer Xiu Mo, on ne pouvait apercevoir la lune; seules quelques éclats de lumière lunaire perçaient à travers l'épais brouillard. Mais pour les cultivateurs, ces faibles lueurs suffisaient à leur servir de guide.
 
 Après avoir quitté la grotte, Yun Fei se dirigea rapidement vers une porte gravée dans la montagne qui entourait la ville. En franchissant le passage, elle s'arrêta et vit quelqu'un en sortir. Cette personne portait des vêtements noirs et une cape; son corps semblait entièrement enveloppé de tissu.
 
@@ -56,7 +56,7 @@ L'homme pensa: « C'est bel et bien une restriction antique! », mais son expres
 
 Yun Fei hésita un instant et murmura: « Aîné, la junior ne peut vous le dire. Pourrait-on plutôt échanger une fournée de pilules? »
 
-L'homme réfléchit un moment avant de secouer la tête. Il déclara: « Si tu ne me le dis pas, je ne lèverai rien. Sache qu'au sein de la Mer des Démons, peu peuvent briser cette restriction. Réfléchis-y. »
+L'homme réfléchit un moment avant de secouer la tête. Il déclara: « Si tu ne me le dis pas, je ne lèverai rien. Sache qu'au sein de la Mer Xiu Mo, peu peuvent briser cette restriction. Réfléchis-y. »
 
 Le visage de Yun Fei se troubla. Après une longue réflexion, elle finit par dire: « Très bien. Je demande d'abord à l'Aîné de lever la restriction. Si vous réussissez, alors je vous le dirai. »
 
@@ -76,7 +76,7 @@ Puis, l'ombre se tourna vers Yun Fei et aspira une grande bouffée d'air. Les ye
 
 Tout cela se produisit à une vitesse fulgurante, presque en un clin d'œil. L'âme de Yun Fei venait d'être capturée.
 
-En vérité, dès qu'elle avait foulé le chemin en forme de dragon, son destin était scellé. Seule la mort l'attendait. Si elle avait écouté Wang Lin et attendu patiemment qu'il quitte la Mer des Démons, elle aurait eu une chance de survivre.
+En vérité, dès qu'elle avait foulé le chemin en forme de dragon, son destin était scellé. Seule la mort l'attendait. Si elle avait écouté Wang Lin et attendu patiemment qu'il quitte la Mer Xiu Mo, elle aurait eu une chance de survivre.
 
 Simultanément, le corps de la bête s'étendit pour envelopper celui de Yun Fei. Un sac de rangement, un fourneau à pilules et un noyau doré d'un or pâle furent emportés par la créature alors qu'elle s'apprêtait à partir.
 
@@ -156,7 +156,7 @@ Des craquements se firent entendre et, dans un fracas, le bois explosa. L'éclai
 
 Le corps de ce dernier trembla et ses yeux devinrent troubles, mais après avoir recraché du sang, son regard redevint clair, bien que désormais empreint d'une terreur pure. Sans dire un mot, il fit volte-face pour s'enfuir.
 
-Wang Lin laissa échapper un son de surprise. Cet homme n'était pas mort sous l'assaut de son âme du Royaume Ji. Cela le surprit réellement, car la seule autre fois où cela était arrivé, c'était à la périphérie de la Mer des Démons face à un individu nommé Shang Guan Mo, qui avait utilisé un morceau de jade mystérieux pour s'échapper.
+Wang Lin laissa échapper un son de surprise. Cet homme n'était pas mort sous l'assaut de son âme du Royaume Ji. Cela le surprit réellement, car la seule autre fois où cela était arrivé, c'était à la périphérie de la Mer Xiu Mo face à un individu nommé Shang Guan Mo, qui avait utilisé un morceau de jade mystérieux pour s'échapper.
 
 Les yeux de Wang Lin brillèrent d'intérêt. Il poursuivit Qiu Siping comme l'éclair et apparut devant lui.
 

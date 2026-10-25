@@ -72,7 +72,7 @@ Dans la nuit pluvieuse, il prenait parfois une gorgée de vin. Sa marche n'étai
 
 Dans le ciel au nord de la capitale, l'homme âgé en robe taoïste qui avait utilisé le sort de recherche s'éloignait, l'expression sombre. Les sept autres qui le suivaient paraissaient légèrement fatigués.
 
-Ils avaient déjà fouillé de nombreux endroits cette nuit, sans rien trouver. Clairement, l'individu ayant anéanti le Clan du Tonnerre Dispersé n'était pas là.
+Ils avaient déjà fouillé de nombreux endroits cette nuit, sans rien trouver. Clairement, l'individu ayant anéanti le Clan Shan Lei n'était pas là.
 
 « Ancien, une foule immense s'est rassemblée dans ce domaine stellaire, mais personne n'a rien trouvé. Peut-être que cet homme n'est pas ici... »
 
@@ -106,7 +106,7 @@ Wang Lin n'aurait pas pris le risque inutile de tuer l'Ancien en robe taoïste, 
 
 « C'est bien ce à quoi je m'attendais, le Système Stellaire Antique a commencé des recherches minutieuses... Le Grand Maître Yun Luo du Conseil Souverain... Son sort est capable de calculer ma position... » Les yeux de Wang Lin brillèrent. Grâce à ces souvenirs, il apprit non seulement l'existence de la traque lancée par le Système Stellaire Antique, mais aussi tous les dispositifs qu'ils avaient déployés dans ce domaine stellaire.
 
-Avec un ricanement, Wang Lin agita la main et une âme originelle apparut dans sa paume. C'était celle du Grand Ancien du Clan du Tonnerre Dispersé. Ses yeux étaient clos et il était à l'agonie!
+Avec un ricanement, Wang Lin agita la main et une âme originelle apparut dans sa paume. C'était celle du Grand Ancien du Clan Shan Lei. Ses yeux étaient clos et il était à l'agonie!
 
 « Les cinq autres types de tonnerre qui complètent l'ensemble, mis à part le Tonnerre Spirituel, doivent être obtenus via l'âme originelle du Grand Ancien! Lorsqu'il utilisa les six types de tonnerre, ils ne provenaient pas de son corps, il les invoquait. Bien qu'ils se soient dissipés, ils n'ont pas été détruits et peuvent être invoqués à nouveau! Malheureusement, il existe neuf types de tonnerre et ce n'est pas encore complet... Je me demande si le fait de parfaire mon tatouage de tonnerre me permettra de franchir les étapes du Fléau Céleste et d'atteindre la troisième étape en tant que cultivateur du tonnerre! »
 

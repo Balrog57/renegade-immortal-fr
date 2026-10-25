@@ -42,9 +42,9 @@ Wang Lin agita la main droite et la lumière dorée se dissipa.
 
 Maître Fu Fengzi poussa un soupir et dit respectueusement: « Je me souviendrai de la clémence du Compagnon Cultivateur Wang! J'ai été imprudent en nourrissant l'espoir vain d'un peu de chance, et la perte de mon bras droit m'a fait voir clair en toute chose. Moi, Maître Fu Fengzi, je jure par mon Dao que cela ne se reproduira pas une seconde fois! »
 
-Bien qu'il ait admis sa défaite face à Wang Lin, il nourrissait toujours une rancœur. À l'origine, il avait décidé de se rebeller dans la Terre des Esprits Démoniaques.
+Bien qu'il ait admis sa défaite face à Wang Lin, il nourrissait toujours une rancœur. À l'origine, il avait décidé de se rebeller dans la Terre Yao Ling.
 
-Cependant, après avoir constaté la puissance de la Nuit Brisée et appris qu'il s'agissait d'un sort auto-créé, ses paroles venaient du fond du cœur : il renonça à ces pensées. Il allait désormais se concentrer sur son évasion de la Terre des Esprits Démoniaques pour retrouver sa liberté.
+Cependant, après avoir constaté la puissance de la Nuit Brisée et appris qu'il s'agissait d'un sort auto-créé, ses paroles venaient du fond du cœur : il renonça à ces pensées. Il allait désormais se concentrer sur son évasion de la Terre Yao Ling pour retrouver sa liberté.
 
 Quant à savoir si ce sort avait réellement été créé par Wang Lin, il ne s'en soucia pas outre mesure. Avec sa culture et son expérience, il pouvait en deviner les indices; il estimait que 80 % des paroles de Wang Lin étaient vraies.
 
@@ -54,7 +54,7 @@ De plus, après avoir reçu la clémence deux fois, Maître Fu Fengzi savait qu'
 
 Wang Lin regarda calmement Maître Fu Fengzi. Ils étaient tous deux des hommes sensés, il n'était donc pas nécessaire de multiplier les avertissements. Il se contenta de hocher la tête et laissa l'affaire derrière lui.
 
-« Compagnon Cultivateur Wang, d'après ce que je sais des vieux monstres de la planète Tian Yun, la Terre des Esprits Démoniaques devrait bientôt s'ouvrir. Cela pourrait arriver dans quelques mois, ou au plus tard dans une demi-année. Nous n'avons pas beaucoup de temps. Je suis gravement blessé et dois me retirer en culture fermée; je ne vous dérangerai donc pas davantage. » Désormais résolu à aider Wang Lin, Maître Fu Fengzi commença progressivement à envisager ce qui pourrait se passer dans la Terre des Esprits Démoniaques.
+« Compagnon Cultivateur Wang, d'après ce que je sais des vieux monstres de la planète Tian Yun, la Terre Yao Ling devrait bientôt s'ouvrir. Cela pourrait arriver dans quelques mois, ou au plus tard dans une demi-année. Nous n'avons pas beaucoup de temps. Je suis gravement blessé et dois me retirer en culture fermée; je ne vous dérangerai donc pas davantage. » Désormais résolu à aider Wang Lin, Maître Fu Fengzi commença progressivement à envisager ce qui pourrait se passer dans la Terre Yao Ling.
 
 Après avoir salué Wang Lin, Maître Fu Fengzi retourna à son palais pour commencer sa culture.
 

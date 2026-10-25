@@ -36,7 +36,7 @@ Après avoir songé encore un moment, Wang Lin soupira de nouveau avant de quitt
 
 Pays de Xue Yu.
 
-À l'intérieur du Temple de la Glace Sacrée, dans un palais entièrement taillé dans des cristaux de glace, siégeait un homme d'âge moyen à l'apparence extrêmement ordinaire. Devant lui se trouvait un service à thé rouge sombre.
+À l'intérieur du Temple Bing Xue, dans un palais entièrement taillé dans des cristaux de glace, siégeait un homme d'âge moyen à l'apparence extrêmement ordinaire. Devant lui se trouvait un service à thé rouge sombre.
 
 À ses côtés se tenaient deux personnes, un homme et une femme, tous deux aux cheveux d'un blanc immaculé.
 
@@ -72,11 +72,11 @@ L'homme d'âge moyen hocha la tête: « Comment pourrais-je ignorer quelqu'un qu
 
 La vieille femme inclina respectueusement la tête et ne dit plus rien.
 
-L'homme d'âge moyen prit une autre gorgée et poursuivit lentement: « Ce n'est pas encore le moment de l'exécuter. Nous devrons attendre la fin de son combat contre Hongdie. À ce moment-là, qu'il gagne ou qu'il perde, j'agirai personnellement pour le tuer. Cet homme est aussi très doué pour la fuite. J'ai reçu des nouvelles de mes alliés du Clan des Démons Géants selon lesquelles leur boussole stellaire pourrait également être en sa possession. Avec ce compas, une fois qu'il aura ouvert une faille spatiale pour entrer dans le vide, personne, si ce n'est un cultivateur au stade avancé de la Transformation de l'Âme, ne pourra le rattraper. »
+L'homme d'âge moyen prit une autre gorgée et poursuivit lentement: « Ce n'est pas encore le moment de l'exécuter. Nous devrons attendre la fin de son combat contre Hongdie. À ce moment-là, qu'il gagne ou qu'il perde, j'agirai personnellement pour le tuer. Cet homme est aussi très doué pour la fuite. J'ai reçu des nouvelles de mes alliés du Clan Ju Mo selon lesquelles leur boussole stellaire pourrait également être en sa possession. Avec ce compas, une fois qu'il aura ouvert une faille spatiale pour entrer dans le vide, personne, si ce n'est un cultivateur au stade avancé de la Transformation de l'Âme, ne pourra le rattraper. »
 
 La vieille femme fronça les sourcils et demanda: « Que voulez-vous dire par là, Maître de secte? »
 
-L'homme d'âge moyen répondit d'un ton neutre: « Si nous voulons le tuer, nous devons réussir du premier coup. Si j'interviens maintenant, il s'échappera à coup sûr. Ainsi, dès que le combat commencera, je déploierai une formation pour l'empêcher de déchirer l'espace, et je solliciterai également l'aide du Clan des Démons Géants. Avec deux cultivateurs au stade de la Transformation de l'Âme, peu importe sa puissance, il ne reste qu'un cultivateur de la Formation de l'Âme. Si j'agis, je m'assurerai de réussir! »
+L'homme d'âge moyen répondit d'un ton neutre: « Si nous voulons le tuer, nous devons réussir du premier coup. Si j'interviens maintenant, il s'échappera à coup sûr. Ainsi, dès que le combat commencera, je déploierai une formation pour l'empêcher de déchirer l'espace, et je solliciterai également l'aide du Clan Ju Mo. Avec deux cultivateurs au stade de la Transformation de l'Âme, peu importe sa puissance, il ne reste qu'un cultivateur de la Formation de l'Âme. Si j'agis, je m'assurerai de réussir! »
 
 Le respect sur le visage de la vieille femme s'intensifia.
 
@@ -98,7 +98,7 @@ Zhou Ru avait maintenant dix ans. La petite fille avait beaucoup grandi, mais so
 
 Ses explorations couvraient presque toutes les chaînes de montagnes environnantes. Malgré sa petite taille, elle était très audacieuse. Les tigres et les bêtes sauvages étaient constamment harcelés par elle.
 
-Bien sûr, avec ses capacités, il lui était impossible d'effrayer réellement ces prédateurs. Tie Yan était arrivé quatre ans auparavant; il était sur le point d'atteindre le stade de la Formation de l'Âme. Cependant, ne pouvant franchir cette étape au sein de la Secte du Ciel Nuageux, il avait décidé de tout abandonner pour suivre Wang Lin.
+Bien sûr, avec ses capacités, il lui était impossible d'effrayer réellement ces prédateurs. Tie Yan était arrivé quatre ans auparavant; il était sur le point d'atteindre le stade de la Formation de l'Âme. Cependant, ne pouvant franchir cette étape au sein de la Secte Yun Tian, il avait décidé de tout abandonner pour suivre Wang Lin.
 
 Grâce à sa présence, la petite Zhou Ru était devenue très arrogante et passait ses journées à s'amuser.
 

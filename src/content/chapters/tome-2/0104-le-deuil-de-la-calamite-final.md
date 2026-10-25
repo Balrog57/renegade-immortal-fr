@@ -8,7 +8,7 @@ slug: le-deuil-de-la-calamite-final
 ---
 Wang Lin n'avait jamais ressenti une telle sensation auparavant. C'était une douleur si vive qu'il avait envie de s'arracher le cœur. C'était comme si tout le sang de son corps avait été instantanément vidé. Des vagues de vertiges assaillirent sa tête.
 
-Wang Lin endurait cette douleur imprévue tout en courant à perdre haleine. Il se retourna et vit que les trois poursuivants étaient toujours sur ses talons. Ses yeux devinrent glacials lorsqu'il changea de direction pour filer en vol sur son épée vers la zone de rassemblement de la Secte des Cadavres.
+Wang Lin endurait cette douleur imprévue tout en courant à perdre haleine. Il se retourna et vit que les trois poursuivants étaient toujours sur ses talons. Ses yeux devinrent glacials lorsqu'il changea de direction pour filer en vol sur son épée vers la zone de rassemblement de la Secte Shi Yin.
 
 Quatre faisceaux de lumière traversèrent rapidement la Vallée Jue Ming.
 
@@ -114,7 +114,7 @@ Quinze minutes plus tard, Teng Huayuan sortit de la maison. D'un geste de sa mai
 
 Teng Huayuan ricana sinistrement et pointa l'image du doigt.
 
-Quant à Wang Lin, sous l'effet d'une sensation d'horreur inexplicable, il fuyait, ses trois poursuivants sur les talons, vers le lieu de rassemblement de la Secte des Cadavres. Soudain, une douleur sans précédent lui frappa la poitrine, comme si un souffle lui était arraché; il poussa un gémissement, trébucha, tomba à demi à genoux et cracha un jet de sang.
+Quant à Wang Lin, sous l'effet d'une sensation d'horreur inexplicable, il fuyait, ses trois poursuivants sur les talons, vers le lieu de rassemblement de la Secte Shi Yin. Soudain, une douleur sans précédent lui frappa la poitrine, comme si un souffle lui était arraché; il poussa un gémissement, trébucha, tomba à demi à genoux et cracha un jet de sang.
 
 La douleur! Une douleur inimaginable! Une douleur indescriptible!
 

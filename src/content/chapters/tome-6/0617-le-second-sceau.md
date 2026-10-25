@@ -6,9 +6,9 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 617 - The Second Seal
 slug: le-second-sceau
 ---
-Wang Lin réfléchissait. Plus il séjournait dans la Terre des Esprits Démoniaques, plus tout devenait étrange. D'abord, ce fut le tableau de Huang Long. Ensuite, les deux Mo Fei qui étaient parfaitement identiques. Enfin, cet homme imposant dont l'apparence ressemblait étrangement à celle de Ling Tianhou.
+Wang Lin réfléchissait. Plus il séjournait dans la Terre Yao Ling, plus tout devenait étrange. D'abord, ce fut le tableau de Huang Long. Ensuite, les deux Mo Fei qui étaient parfaitement identiques. Enfin, cet homme imposant dont l'apparence ressemblait étrangement à celle de Ling Tianhou.
 
-Le regard de Wang Lin vacilla et il murmura pour lui-même: « Tian Yunzi suit la volonté des cieux. S'il insiste pour que je vienne ici, c'est qu'il a ses propres motifs... De plus, lorsque j'étais sur la planète Tian Yun, Bai Wei avait souligné qu'une grande majorité des disciples de Tian Yunzi âgés de plus de dix mille ans avaient disparu. J'ignore si la disparition de ces aînés a un lien avec cette Terre des Esprits Démoniaques. »
+Le regard de Wang Lin vacilla et il murmura pour lui-même: « Tian Yunzi suit la volonté des cieux. S'il insiste pour que je vienne ici, c'est qu'il a ses propres motifs... De plus, lorsque j'étais sur la planète Tian Yun, Bai Wei avait souligné qu'une grande majorité des disciples de Tian Yunzi âgés de plus de dix mille ans avaient disparu. J'ignore si la disparition de ces aînés a un lien avec cette Terre Yao Ling. »
 
 Wang Lin toucha son sac de rangement et ses yeux devinrent glacials. Il pensa: « Tant que je serai assez fort, peu importe l'étrangeté de ce lieu, cela ne pourra affecter mon cœur de dao! »
 
@@ -16,7 +16,7 @@ Wang Lin ferma les yeux tandis que son âme originelle continuait de graver son 
 
 Par ailleurs, à mesure que la Tribu de l'Affinement de l'Âme s'accroissait, de plus en plus de personnes commençaient à cultiver le sortilège de raffinage des âmes. Comme il s'agissait d'un ancien champ de bataille, le lieu regorgeait de fragments d'âmes. Bien que la plupart fussent enfouis profondément sous terre, l'expansion de la Tribu de l'Affinement de l'Âme entraînait le creusement de vastes excavations. La culture au fond de ces fosses était devenue une méthode unique pour pratiquer le sortilège de raffinage des âmes.
 
-Ceci n'était qu'une des méthodes. L'autre consistait à se rendre au Pays du Démon de Feu pour absorber les âmes de tous les soldats démons décédés.
+Ceci n'était qu'une des méthodes. L'autre consistait à se rendre au Pays Huo Yao pour absorber les âmes de tous les soldats démons décédés.
 
 Toutefois, seuls ceux ayant déjà obtenu un certain succès dans leur culture étaient qualifiés pour s'y rendre. Quiconque souhaitait tenter l'aventure seul devait être personnellement évalué par Ouyang Hua avant d'en recevoir la permission.
 
@@ -42,7 +42,7 @@ Le sortilège de vent, de pluie, de tonnerre et de foudre utilisé par le vieill
 
 Wang Lin était confiant quant à l'ouverture du second sceau. Cependant, après avoir analysé la foudre, il réalisa que si le second sceau était levé, le piège à bêtes s'effondrerait sous la force de la créature!
 
-Le piège à bêtes lui avait été confié dans la Terre de l'Ancien Dieu par un ancien cultivateur sous les ordres de Tuo Sen, en guise de paiement pour son aide. Cet objet s'était révélé très utile à Wang Lin au cours de ces centaines d'années, particulièrement pour le Char de Guerre Divinx, car il lui permettait d'utiliser le char même lorsque son niveau de culture n'était pas assez élevé!
+Le piège à bêtes lui avait été confié dans la Terre Gu Shen par un ancien cultivateur sous les ordres de Tuo Sen, en guise de paiement pour son aide. Cet objet s'était révélé très utile à Wang Lin au cours de ces centaines d'années, particulièrement pour le Char de Guerre Divinx, car il lui permettait d'utiliser le char même lorsque son niveau de culture n'était pas assez élevé!
 
 Mais maintenant que le niveau de culture de Wang Lin avait augmenté et que davantage de sceaux étaient ouverts, cet objet ne pouvait plus contrôler l'esprit de la bête!
 
@@ -90,11 +90,11 @@ Les deux symboles de sang volèrent rapidement et furent captés par la main gau
 
 L'âme originelle de Wang Lin retourna dans son corps. Il ouvrit les yeux et fixa la bête.
 
-À cet instant, quelque part à des milliers de kilomètres de là, à la frontière entre le Pays du Démon de Feu et le Pays du Démon d'Or.
+À cet instant, quelque part à des milliers de kilomètres de là, à la frontière entre le Pays Huo Yao et le Pays Jin Yao.
 
 Le lieu était une vaste chaîne de montagnes. Un miasme emplissait ces montagnes toute l'année, faisant de cet endroit un territoire que ni l'un ni l'autre des pays démoniaques ne contrôlait. Au cœur du miasme se trouvait une cité blanche. Pour être plus précis, il s'agissait d'un château entouré de murs de pierre blanche de 33 mètres de haut. L'intérieur du château dégageait une aura mystérieuse.
 
-Soudain, une ombre noire vola rapidement à travers le miasme. En flottant dans les airs, l'ombre se mit à genoux et dit respectueusement: « Salutations, Ancêtre. J'ai trouvé l'emplacement de Wang Lin, celui qui avait disparu de la capitale du Pays du Démon Céleste il y a vingt ans! »
+Soudain, une ombre noire vola rapidement à travers le miasme. En flottant dans les airs, l'ombre se mit à genoux et dit respectueusement: « Salutations, Ancêtre. J'ai trouvé l'emplacement de Wang Lin, celui qui avait disparu de la capitale du Pays Tian Yao il y a vingt ans! »
 
 Un silence pesant régna dans le château avant qu'une voix sinistre ne s'en échappe: « Quel est son niveau de culture actuel? »
 

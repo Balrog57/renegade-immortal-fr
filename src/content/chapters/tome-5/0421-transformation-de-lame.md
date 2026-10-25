@@ -12,7 +12,7 @@ Il savait que Du Tian avait amassé une grande quantité de jades célestes, mai
 
 En les découvrant maintenant, il ne put s'empêcher d'être frappé par la stupeur.
 
-« Ce minuscule sac contient plus de cent fois la quantité de jades célestes que j'ai obtenue du Royaume Céleste... Pas étonnant que cette Secte de l'Affinement de l'Âme ait compté, au fil de ces dizaines de milliers d'années, autant de cultivateurs au stade de la Transformation de l'Âme. »
+« Ce minuscule sac contient plus de cent fois la quantité de jades célestes que j'ai obtenue du Royaume Céleste... Pas étonnant que cette Secte Lian Hun ait compté, au fil de ces dizaines de milliers d'années, autant de cultivateurs au stade de la Transformation de l'Âme. »
 
 Les yeux de Wang Lin s'illuminèrent. Il secoua le sac, et une multitude de jades célestes l'entoura immédiatement. En un instant, la grotte fut saturée d'une riche énergie spirituelle céleste.
 
@@ -78,7 +78,7 @@ Le parfum s'échappa de la grotte, faisant briller les yeux de Du Tian. Un écla
 
 Il exécuta un sceau manuel, et une lumière noire enveloppa immédiatement la grotte pour empêcher la fragrance de se propager.
 
-« Le parfum issu de la première étape de la Transformation de l'Âme attire des bêtes démoniaques puissantes et des âmes féroces qui cherchent à posséder ce corps. Cependant, ma Secte de l'Affinement de l'Âme est l'ancêtre de ceux qui contrôlent les âmes; si ces âmes ne viennent pas, tant mieux, mais si elles osent se présenter, elles seront absorbées par le Étendard de l'Âme, ce qui lui fera un petit renfort. »
+« Le parfum issu de la première étape de la Transformation de l'Âme attire des bêtes démoniaques puissantes et des âmes féroces qui cherchent à posséder ce corps. Cependant, ma Secte Lian Hun est l'ancêtre de ceux qui contrôlent les âmes; si ces âmes ne viennent pas, tant mieux, mais si elles osent se présenter, elles seront absorbées par le Étendard de l'Âme, ce qui lui fera un petit renfort. »
 
 « Je ne crains pas non plus les bêtes. La formation de protection de la Secte peut les tenir à distance. Aucune bête capable de me faire reculer n'a encore été repérée sur toute la planète Suzaku. »
 
@@ -116,7 +116,7 @@ Du Tian hurla: « Vortex d'Âme! » Le fragment d'âme poussa un cri de terreur 
 
 Une force de succion impétueuse émana du vortex, entraînant le fragment d'âme doré et pourpre vers son centre.
 
-Du Tian esquissa un sourire, mais à cet instant précis, un fracas assourdissant retentit provenant de la formation de protection de la Secte de l'Affinement de l'Âme. La formation trembla avant de s'effondrer totalement.
+Du Tian esquissa un sourire, mais à cet instant précis, un fracas assourdissant retentit provenant de la formation de protection de la Secte Lian Hun. La formation trembla avant de s'effondrer totalement.
 
 Le tonnerre de cette explosion résonna dans toute la secte. Même les trois montagnes principales furent secouées, des pans entiers de roche s'effondrant tandis que des fissures béantes apparaissaient, terrifiant les disciples.
 

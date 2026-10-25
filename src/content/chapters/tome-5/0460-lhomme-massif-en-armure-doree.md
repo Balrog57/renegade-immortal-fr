@@ -24,15 +24,15 @@ Une série de grondements retentit et les fissures s'élargirent rapidement.
 
 Yun Quezi cria avec force: « Attaquez! »
 
-Les deux membres du Clan des Immortels Délaissés s'élancèrent aussitôt dans les airs pour attaquer la porte.
+Les deux membres du Clan Xian Yi s'élancèrent aussitôt dans les airs pour attaquer la porte.
 
 À ce moment, les yeux du vieil homme virèrent au rouge et il afficha un sourire méprisant. Il se leva d'un bond, pointa plusieurs fois la main dans le vide et déclara à voix basse: « Avarice, ignorance... »
 
-Dès qu'il prononça ces mots, les deux membres du Clan des Immortels Délaissés qui attaquaient commencèrent soudainement à trembler. Leurs yeux émettaient une lueur démoniaque tandis que des auras verte et violette jaillissaient de leurs corps.
+Dès qu'il prononça ces mots, les deux membres du Clan Xian Yi qui attaquaient commencèrent soudainement à trembler. Leurs yeux émettaient une lueur démoniaque tandis que des auras verte et violette jaillissaient de leurs corps.
 
 Le vieil homme ordonna alors: « Explosez! »
 
-Dans deux fracas successifs, les deux membres du Clan des Immortels Délaissés explosèrent, et l'onde de choc percuta la porte.
+Dans deux fracas successifs, les deux membres du Clan Xian Yi explosèrent, et l'onde de choc percuta la porte.
 
 En voyant ce sort, Wang Lin le reconnut immédiatement comme étant la Formule des Démons Célestes des Six Désirs, la technique du Seigneur Démon des Six Désirs.
 

@@ -46,11 +46,11 @@ Dans la Cité Ancestrale, il n'existait qu'une seule secte: celle dont était is
 
 La secte était dirigée par les Empereurs Célestes. Chaque génération d'Empereur Céleste gagnait la loyauté de la secte. Une fois que leur lignage s'éveillait et qu'ils héritaient du titre de Grand Empyréen des Huit Extrêmes, ils pouvaient changer le nom de la secte.
 
-L'Empereur Céleste de cette génération, Lian Daozhen, avait renommé cette mystérieuse secte: la Secte du Dao! Le maître de cette génération était l'actuel Enseignant Impérial, Shang Daoxuan!
+L'Empereur Céleste de cette génération, Lian Daozhen, avait renommé cette mystérieuse secte: la Secte Dao Mo! Le maître de cette génération était l'actuel Enseignant Impérial, Shang Daoxuan!
 
 La culture de ce Shang Daoxuan était impénétrable et son pouvoir de divination stupéfiant. À lui seul, il était capable de résister à la puissance combinée des trois Enseignants Impériaux du clan ancien.
 
-Nul ne connaissait l'emplacement exact de la Secte du Dao; depuis les temps anciens, seuls quelques rares individus l'avaient découvert. Cependant, aucun secret au monde ne peut résister au passage du temps. Après d'innombrables années, les spéculations étaient légion.
+Nul ne connaissait l'emplacement exact de la Secte Dao Mo; depuis les temps anciens, seuls quelques rares individus l'avaient découvert. Cependant, aucun secret au monde ne peut résister au passage du temps. Après d'innombrables années, les spéculations étaient légion.
 
 Certains prétendaient que la secte était située dans un vide se superposant à la Cité Ancestrale.
 
@@ -72,7 +72,7 @@ Le Mont Empereur!
 
 Une montagne, un homme, un Grand Empyréen Jiu Di; ensemble, ils faisaient en sorte que la Cité Ancestrale entière, le palais et des millions de montagnes semblent étouffer sous leur présence.
 
-Concernant la mystérieuse Secte du Dao, beaucoup supposaient que sa raison d'être était de contenir le Mont Empereur, qui semblait lui-même opprimer le pouvoir impérial!
+Concernant la mystérieuse Secte Dao Mo, beaucoup supposaient que sa raison d'être était de contenir le Mont Empereur, qui semblait lui-même opprimer le pouvoir impérial!
 
 C'était une structure de pouvoir interne à la Cité Ancestrale que peu d'étrangers connaissaient aussi en détail; seuls les Grands Empyréens pouvaient en percevoir clairement les rouages. Après avoir passé un an dans la Secte Yang Pourpre, Wang Lin souhaitait se rendre à la Cité Ancestrale. Le Grand Empyréen Shuangzi avait utilisé le sort de fusion d'âmes pour extraire ses souvenirs de la cité afin de les transmettre à Wang Lin.
 
@@ -108,7 +108,7 @@ C'était avec de telles pensées qu'il était venu.
 
 Le vent cinglait son corps et la neige barrait sa route. Au crépuscule de ce jour, Wang Lin arriva devant la porte orientale. Comparé à cette cité orgueilleuse, il n'était qu'une minuscule fourmi.
 
-Contrairement aux cités mortelles, il n'y avait aucune garde à la porte. C'était la Cité Ancestrale, avec ses deux Grands Empyréens et la mystérieuse Secte du Dao. Même Xuan Luo n'oserait s'y aventurer sans raison; seuls des êtres comme Gu Dao en auraient le courage.
+Contrairement aux cités mortelles, il n'y avait aucune garde à la porte. C'était la Cité Ancestrale, avec ses deux Grands Empyréens et la mystérieuse Secte Dao Mo. Même Xuan Luo n'oserait s'y aventurer sans raison; seuls des êtres comme Gu Dao en auraient le courage.
 
 Au crépuscule, le ciel était gris. Tandis que le vent et la neige soufflaient, Wang Lin franchit la porte orientale. Son pied toucha le sol à l'intérieur de la Cité Ancestrale.
 

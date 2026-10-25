@@ -8,11 +8,11 @@ slug: li-qianmei
 ---
 Un seul coup de pied suffit pour tuer une bête de rang 8. Bien qu'une telle créature puisse combattre un cultivateur au sommet du stade Purificateur du Nirvana, elle était incapable d'utiliser des trésors; elle ne pouvait employer que les lois qu'elle maîtrisait sous forme de sorts. Cependant, cela restait une bête de rang 8!
 
-Même dans la Mer des Nuages, un cultivateur capable d'éliminer instantanément une bête de rang 8 était suffisamment puissant pour figurer parmi les plus grands experts!
+Même dans la Mer Yun, un cultivateur capable d'éliminer instantanément une bête de rang 8 était suffisamment puissant pour figurer parmi les plus grands experts!
 
 Li Xiangdong et ses compagnons contemplèrent la scène avec stupéfaction. Ils avaient l'impression que ce Grand Oncle-Maître, qu'ils n'avaient jamais vu auparavant, était empreint de mystère et de majesté. Bien qu'ils aient eu des doutes sur l'identité de Wang Lin, ils choisirent de les ignorer sans la moindre hésitation.
 
-« Avec un cultivateur aussi puissant au sein de ma Secte de l'Origine, il ne sera qu'une question de temps avant que celle-ci ne domine la région de rang 5! » À l'exception de Lu Yanfei, Li Xiangdong et les deux anciens se regardèrent, l'esprit exalté!
+« Avec un cultivateur aussi puissant au sein de ma Secte Gui Yuan, il ne sera qu'une question de temps avant que celle-ci ne domine la région de rang 5! » À l'exception de Lu Yanfei, Li Xiangdong et les deux anciens se regardèrent, l'esprit exalté!
 
 S'ils avaient su que Wang Lin avait tué un cultivateur Briseur du Nirvana de la région de rang 6, ils en auraient été encore plus choqués.
 
@@ -28,7 +28,7 @@ En un instant, Wang Lin les traqua au-delà des limites du continent de Mo Luo. 
 
 Ce carnage dura le temps qu'un bâton d'encens se consume avant de s'estomper progressivement. Finalement, plus aucune bête féroce ne se trouvait dans un rayon de plus de 100 000 kilomètres du continent de Mo Luo. Les rares survivantes gardèrent en elles le souvenir terrifiant d'un être qu'elles ne pourraient jamais oublier: un cultivateur sur le continent de Mo Luo qui était semblable à un dieu.
 
-La barrière protectrice entourant le continent de Mo Luo fut réparée et tout sembla revenir à la normale, comme si rien n'avait changé. Pourtant, le choc ressenti par les cultivateurs de la Secte de l'Origine demeurait intact.
+La barrière protectrice entourant le continent de Mo Luo fut réparée et tout sembla revenir à la normale, comme si rien n'avait changé. Pourtant, le choc ressenti par les cultivateurs de la Secte Gui Yuan demeurait intact.
 
 À cet instant, devant la cour des herbes de la cour sud, Li Xiangdong, Lu Yanfei et les deux autres anciens se tenaient là. Bien qu'ils fussent présents depuis un long moment, ils ne manifestaient aucune impatience.
 
@@ -54,13 +54,13 @@ Bien que la sixième étoile fût encore incertaine, elle permettait de déchaî
 
 Un sourire apparut au coin de ses lèvres. Wang Lin laissa son corps original dans les profondeurs du continent pour continuer à absorber l'énergie originelle et entamer la formation de son Serpent aux yeux de lune. Il quitta le sous-sol pour réapparaître dans la demeure de la cour.
 
-Il poussa un profond soupir, l'humeur sereine. La réussite de cette épreuve par son corps original allait considérablement accroître sa puissance dans la Mer des Nuages. En combinant son avatar et son corps originel, tuer un cultivateur Briseur du Nirvana au stade initial ne serait plus aussi complexe qu'auparavant!
+Il poussa un profond soupir, l'humeur sereine. La réussite de cette épreuve par son corps original allait considérablement accroître sa puissance dans la Mer Yun. En combinant son avatar et son corps originel, tuer un cultivateur Briseur du Nirvana au stade initial ne serait plus aussi complexe qu'auparavant!
 
 « Cependant, l'écart entre les stades initial, intermédiaire, avancé et sommet du Briseur du Nirvana est immense. Je ne sais pas si je pourrai rivaliser avec des cultivateurs Briseur du Nirvana de stade intermédiaire une fois mon corps originel et mon avatar fusionnés! » Les yeux de Wang Lin brillèrent alors qu'il poussait la porte pour sortir.
 
 Dès que Wang Lin apparut, une brise légère effleura son visage, procurant un grand confort. La barrière ayant été réactivée, le ciel était d'un bleu pur parsemé de nuages blancs.
 
-En observant les herbes dans la cour, Wang Lin prit une décision: il consacrerait quelque temps à augmenter son niveau de culture en utilisant l'alchimie unique de la Mer des Nuages.
+En observant les herbes dans la cour, Wang Lin prit une décision: il consacrerait quelque temps à augmenter son niveau de culture en utilisant l'alchimie unique de la Mer Yun.
 
 Tout en réfléchissant, le regard de Wang Lin se posa sur les cinq personnes à l'extérieur, et il dit calmement: « Vous pouvez entrer. »
 
@@ -80,7 +80,7 @@ Tandis que la région de rang 6 s'agitait, la nouvelle concernant le jade et la 
 
 Des éclats de lumière jaillirent des régions de rang 7 et 8 vers le continent sauvage scellé de la région de rang 5.
 
-Le brouillard d'étoiles dans les profondeurs de la Mer des Nuages était extrêmement dense, au point qu'un cultivateur Briseur du Nirvana ne pouvait étendre son Sens Divin que sur 500 pieds. S'aventurer dans ce brouillard sans préparation revenait à marcher à l'aveugle, avec un risque immense de s'égarer.
+Le brouillard d'étoiles dans les profondeurs de la Mer Yun était extrêmement dense, au point qu'un cultivateur Briseur du Nirvana ne pouvait étendre son Sens Divin que sur 500 pieds. S'aventurer dans ce brouillard sans préparation revenait à marcher à l'aveugle, avec un risque immense de s'égarer.
 
 Les bêtes féroces les plus puissantes résidaient ici. Certaines utilisaient même des sorts pour fusionner leur corps avec la brume afin de comprendre les lois. Si aucun cultivateur ne les provoquait, elles n'attaquaient pas de leur propre initiative.
 
@@ -88,7 +88,7 @@ Comparées à elles, les rares planètes de culture situées dans le brouillard 
 
 Pourtant, la puissance contenue au sein de ces quelques planètes était capable de faire trembler les cieux. Même ces bêtes redoutables les craignaient et n'osaient s'en approcher.
 
-C'était la région de rang 9 de la Mer des Nuages!
+C'était la région de rang 9 de la Mer Yun!
 
 Sept planètes de culture étaient disposées selon la formation de la Grande Ourse à la lisière de la région de rang 9. Cela créait une couche de protection autour d'elles, les rendant indissociables.
 
@@ -98,7 +98,7 @@ Ce bâtiment était une statue représentant un cultivateur pointant le ciel, co
 
 La prairie était plongée dans un silence absolu, seuls quelques petits êtres spirituels y apparaissaient parfois pour jouer avant de disparaître au loin. Après un long moment, un rayon de lumière approcha de l'horizon.
 
-Une femme se trouvait à l'intérieur de ce rayon. Elle était magnifique, mais arborait une couleur de cheveux singulière: une chevelure d'un bleu profond. Dans toute la Mer des Nuages, une seule personne possédait cette parure!
+Une femme se trouvait à l'intérieur de ce rayon. Elle était magnifique, mais arborait une couleur de cheveux singulière: une chevelure d'un bleu profond. Dans toute la Mer Yun, une seule personne possédait cette parure!
 
 Il s'agissait de Li Qianmei, de la Secte Brise-Ciel de rang 9!
 
@@ -108,7 +108,7 @@ Puis, toute la Secte Brise-Ciel consacra ses efforts à sa progression. Après p
 
 Après 500 ans d'entraînement extérieur, elle devint la plus jeune cultivatrice Briseur du Nirvana de la Secte Brise-Ciel! À ce jour, après plus de 1 200 ans de culture, elle avait atteint le stade avancé du Briseur du Nirvana.
 
-Dans la Mer des Nuages, le nom de « Li Qianmei » était une légende!
+Dans la Mer Yun, le nom de « Li Qianmei » était une légende!
 
 « La disciple Li Qianmei salue l'Ancêtre! » La lumière se dissipa, révélant la beauté de la femme.
 

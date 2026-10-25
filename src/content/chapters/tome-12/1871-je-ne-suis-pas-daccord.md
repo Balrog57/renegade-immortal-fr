@@ -24,7 +24,7 @@ C'était un ordre indiscutable dans les terres célestes. Il durait depuis d'inn
 
 Une fois transgressé, c'était une vie qui tombait, une secte qui périssait, voire un continent entier qui s'effondrait!
 
-L'ordre stipulait que, sauf si la survie même des cultivateurs du continent était en jeu, nul n'était autorisé à blesser les âmes des bêtes d'outre-ciel qui y étaient scellées! Avec l'invasion du Continent du Démon Vert, cette directive s'était toutefois assouplie.
+L'ordre stipulait que, sauf si la survie même des cultivateurs du continent était en jeu, nul n'était autorisé à blesser les âmes des bêtes d'outre-ciel qui y étaient scellées! Avec l'invasion du Continent Lu Mo, cette directive s'était toutefois assouplie.
 
 Yan Luan désirait naturellement une telle opportunité. Xu Dongde la convoit également, tout comme les trois cultivateurs au début de la Tribulation du Vide, mais ils ne pouvaient rivaliser avec Lu Wenran. Même si ce dernier était blessé, compte tenu de ses contributions durant cette guerre, ils ne pouvaient rien dire.
 
@@ -100,7 +100,7 @@ Le vieil homme nommé Zhou sourit amèrement intérieurement. Il serra les dents
 
 « Le Taureau Céleste ne sort pas... Je demande aux chers aînés de libérer leurs âmes originelles pour m'aider à faire venir l'âme! » Après avoir parlé, le vieil homme toucha son front et son âme originelle s'en échappa. Elle vola vers le vortex pour saisir la chaîne.
 
-Sous le regard rouge et menaçant de Lu Wenran, les trois cultivateurs au stade initial de la Tribulation du Vide issus des sectes proches de la Prairie de l'Extrême Ciel s'assirent et fermèrent les yeux. Ils se sentaient impuissants alors que leurs âmes originelles s'envolaient pour prêter main-forte au vieil homme Zhou.
+Sous le regard rouge et menaçant de Lu Wenran, les trois cultivateurs au stade initial de la Tribulation du Vide issus des sectes proches de la Prairie Ji Tian s'assirent et fermèrent les yeux. Ils se sentaient impuissants alors que leurs âmes originelles s'envolaient pour prêter main-forte au vieil homme Zhou.
 
 « Ancien Yan Luan, Ancien Dongde! » lança Lu Wenran d'un ton glacial.
 

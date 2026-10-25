@@ -106,7 +106,7 @@ Cependant, juste au moment où il s'évanouissait, une ride se forma à proximit
 
 Elle fronça légèrement les sourcils et, d'un pas, disparut à son tour en fusionnant avec le monde pour poursuivre Wang Lin!
 
-Pendant ce temps, dans le Domaine de l'Est, sur une planète rouge sang, se dressait un immense temple ancestral où un « Yao » empreint d'une aura meurtrière était gravé sur un arbre géant de trente-trois mètres de haut, à côté.
+Pendant ce temps, dans le Domaine Dong, sur une planète rouge sang, se dressait un immense temple ancestral où un « Yao » empreint d'une aura meurtrière était gravé sur un arbre géant de trente-trois mètres de haut, à côté.
 
 Un vieil homme était assis à l'intérieur du temple. Ses sourcils étaient recourbés et d'un rouge écarlate.
 

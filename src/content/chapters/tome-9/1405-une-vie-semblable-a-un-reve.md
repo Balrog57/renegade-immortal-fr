@@ -44,7 +44,7 @@ Quant à Miaoyin Daozun, il était allongé sur un nuage, les yeux plissés, lai
 
 Lanmeng Daozun observa calmement Wang Lin et soupira intérieurement.
 
-« En si peu de temps, cet enfant a réussi à détruire le Clan du Tonnerre Dispersé et s'est également lié profondément aux Terres Déchues. Je l'ai vraiment sous-estimé... En tant que l'un des cinq maîtres, j'ai la responsabilité de garder le Système Stellaire Antique, mais l'affaire entre lui et Yue Er... » Lanmeng Daozun regarda sa fille d'un regard complexe.
+« En si peu de temps, cet enfant a réussi à détruire le Clan Shan Lei et s'est également lié profondément aux Terres Déchues. Je l'ai vraiment sous-estimé... En tant que l'un des cinq maîtres, j'ai la responsabilité de garder le Système Stellaire Antique, mais l'affaire entre lui et Yue Er... » Lanmeng Daozun regarda sa fille d'un regard complexe.
 
 « Je peux ignorer le Conseil Souverain, et même si le Souverain sort de sa culture méditative, je pourrai refuser, mais... que ferai-je si Meng Er vient? Que devrai-je faire... » En pensant à son épouse, Lanmeng Daozun ressentit une piqûre au cœur. Il ne pourrait jamais oublier cette année où sa femme sembla mourir et devint une étrangère.
 

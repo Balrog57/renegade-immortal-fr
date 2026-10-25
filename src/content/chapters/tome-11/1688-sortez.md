@@ -82,7 +82,7 @@ Ce domaine stellaire était alors parcouru d'innombrables déchirures d'où éma
 
 L'aura du Royaume Céleste Antique émanait de l'intérieur, suivie de rires déments. Des silhouettes dorées émergèrent de la brèche!
 
-Ces figures étaient également des anciens Célestes. Ils étaient tous des disciples de la Secte des Sept Dao, mais ils n'étaient plus loyaux au Souverain Céleste aux Sept Couleurs, mais aux concubines! Plus précisément, ils étaient dévoués à la partenaire de dao que le Souverain avait abandonnée pour sauver sa propre vie!
+Ces figures étaient également des anciens Célestes. Ils étaient tous des disciples de la Secte Qi Dao, mais ils n'étaient plus loyaux au Souverain Céleste aux Sept Couleurs, mais aux concubines! Plus précisément, ils étaient dévoués à la partenaire de dao que le Souverain avait abandonnée pour sauver sa propre vie!
 
 Sans l'ordre de cette partenaire de dao, ils n'auraient pas suivi les commandements des sept concubines. On pourrait dire que c'était là l'une des causes profondes de la grande guerre du monde caverne!
 
@@ -96,7 +96,7 @@ Ils ne reconnurent pas Wang Lin. Bien que sa culture fût profonde, ils ne le co
 
 « Nous pouvons enfin sortir! »
 
-« Puisque nous sommes là, les quatre généraux doivent aussi être sortis. Tuez! Tuez-les pour obtenir l'héritage du Dao et nous pourrons fonder une nouvelle Secte des Sept Dao! »
+« Puisque nous sommes là, les quatre généraux doivent aussi être sortis. Tuez! Tuez-les pour obtenir l'héritage du Dao et nous pourrons fonder une nouvelle Secte Qi Dao! »
 
 « Non seulement nous devons les tuer, mais nous devons anéantir toute vie dans ce monde caverne. Ce n'est qu'ainsi que nous pourrons rouvrir cette caverne! »
 
@@ -104,7 +104,7 @@ Les Célestes dorés s'élancèrent en rugissant. L'un d'eux afficha une express
 
 « Espèce de misérable cultivateur, tu as la malchance de te trouver devant notre porte. Ce Céleste va t'absorber pour faire de toi des Flammes Joss! »
 
-« Simple cultivateur du Continent Astral Immortel, vulgaire disciple de la Secte des Sept Dao, oses-tu te prétendre un Céleste?! » Wang Lin ouvrit les yeux et une lumière dorée en jaillit.
+« Simple cultivateur du Continent Astral Immortel, vulgaire disciple de la Secte Qi Dao, oses-tu te prétendre un Céleste?! » Wang Lin ouvrit les yeux et une lumière dorée en jaillit.
 
 Cette lueur dorée était issue de la condensation de la puissance d'une goutte de sang du Corps Céleste Immortel. Cette lumière contenait une lignée céleste d'une pureté absolue!
 

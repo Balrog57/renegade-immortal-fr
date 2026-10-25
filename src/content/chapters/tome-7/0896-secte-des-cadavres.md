@@ -1,6 +1,6 @@
 ---
 n: 896
-title: Secte des Cadavres
+title: Secte Shi Yin
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 896 - Corpse Secte
@@ -90,15 +90,15 @@ Les cultivateurs acceptèrent ses remerciements avec respect et célérité.
 
 Une fois les choses réglées, le Sens Divin de Wang Lin se projeta aux alentours; il constata qu'il n'y avait plus personne de la planète Feng Luan sur place. Il se tourna vers le vieillard agenouillé et dit: « Je vous laisse gérer les affaires ici. Je reviendrai dans quelques jours! » Le regard de Wang Lin était froid. Il avait appris énormément de cette femme de la planète Feng Luan, et il y avait désormais des comptes à régler.
 
-« Planète Feng Luan, Secte des Cadavres... Vous osez songer à nuire aux descendants de ma famille Wang? Ne me reprochez pas mon absence de pitié! » Les yeux de Wang Lin étaient saturés d'intention meurtrière. Cette fois, il était véritablement furieux!
+« Planète Feng Luan, Secte Shi Yin... Vous osez songer à nuire aux descendants de ma famille Wang? Ne me reprochez pas mon absence de pitié! » Les yeux de Wang Lin étaient saturés d'intention meurtrière. Cette fois, il était véritablement furieux!
 
-Grâce aux souvenirs de la femme, Wang Lin savait qu'elle était bel et bien l'un des sept phénix. Cependant, elle était aussi un membre de la Secte des Cadavres envoyée ici pour occuper le poste de Grand Ancien. Elle avait le même rang que Sun Tai, mais son niveau de culture était bien plus élevé.
+Grâce aux souvenirs de la femme, Wang Lin savait qu'elle était bel et bien l'un des sept phénix. Cependant, elle était aussi un membre de la Secte Shi Yin envoyée ici pour occuper le poste de Grand Ancien. Elle avait le même rang que Sun Tai, mais son niveau de culture était bien plus élevé.
 
-La Secte des Cadavres. Wang Lin avait appris certains secrets sur elle par Sun Tai avant sa mort. L'une de leurs tâches consistait à collecter le ressentiment pour nourrir les esprits vengeurs.
+La Secte Shi Yin. Wang Lin avait appris certains secrets sur elle par Sun Tai avant sa mort. L'une de leurs tâches consistait à collecter le ressentiment pour nourrir les esprits vengeurs.
 
-D'après les souvenirs de la femme, Wang Lin comprit que dans la Grande Dynastie Wang, presque chaque ville abritait des membres de la Secte des Cadavres. C'était comme un immense filet jeté sur la dynastie, engendrant et récoltant constamment du ressentiment pour nourrir ces esprits.
+D'après les souvenirs de la femme, Wang Lin comprit que dans la Grande Dynastie Wang, presque chaque ville abritait des membres de la Secte Shi Yin. C'était comme un immense filet jeté sur la dynastie, engendrant et récoltant constamment du ressentiment pour nourrir ces esprits.
 
-Ce que Wang Lin allait faire, c'était d'anéantir ces gens. Mais il ne s'arrêterait pas à la Grande Dynastie Wang; il allait déraciner la Secte des Cadavres de la planète Suzaku. Et même sans ce qui était arrivé à ses descendants, il comptait rendre visite à la Secte elle-même. Ce cadavre géant et ce faible Sens Divin étaient autant de choses qui attisaient sa curiosité.
+Ce que Wang Lin allait faire, c'était d'anéantir ces gens. Mais il ne s'arrêterait pas à la Grande Dynastie Wang; il allait déraciner la Secte Shi Yin de la planète Suzaku. Et même sans ce qui était arrivé à ses descendants, il comptait rendre visite à la Secte elle-même. Ce cadavre géant et ce faible Sens Divin étaient autant de choses qui attisaient sa curiosité.
 
 Il ignorait simplement si ce corps de Démon Géant subsistait encore après des centaines d'années.
 

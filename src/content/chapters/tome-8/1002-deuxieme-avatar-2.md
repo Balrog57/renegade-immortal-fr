@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1002 - Second Avatar (2)
 slug: deuxieme-avatar-2
 ---
-« Si j'avais eu cent ans de plus, j'aurais pu achever le Sortilège de la Division Démoniaque… Malheureusement, ce sens démoniaque est trop faible et le corps principal a été dévoré. Ce sens démoniaque est comme un arbre sans racines et pourrait se dissiper à tout moment… Le Pays du Démon des Nuages s'est effondré et la Tour du Démon n'existe plus, je ne peux pas rester! Je n'ose pas pénétrer dans un autre pays démon pour absorber l'énergie démoniaque… »
+« Si j'avais eu cent ans de plus, j'aurais pu achever le Sortilège de la Division Démoniaque… Malheureusement, ce sens démoniaque est trop faible et le corps principal a été dévoré. Ce sens démoniaque est comme un arbre sans racines et pourrait se dissiper à tout moment… Le Pays Yun Yao s'est effondré et la Tour Yao n'existe plus, je ne peux pas rester! Je n'ose pas pénétrer dans un autre pays démon pour absorber l'énergie démoniaque… »
 
 Ce sens démoniaque volait prudemment vers l'avant; cependant, il était bien trop faible et pouvait être anéanti à tout instant.
 
@@ -66,13 +66,13 @@ En regardant la statue de pierre devant lui, il avait l'impression qu'elle ne fa
 
 « Cependant, c'est un fragment de sens démoniaque. S'il dispose d'assez d'énergie démoniaque, il grandira et atteindra le niveau d'un démon ancien… » Les yeux de Wang Lin brillèrent. Il savait qu'il ne pouvait pas précipiter les choses et qu'il devait agir avec patience.
 
-Après avoir donné ses instructions à la Secte de l'Affinement de l'Âme, Wang Lin ne prit pas la statue avec lui. Au lieu de cela, il posa des restrictions puissantes et ordonna à la Secte de l'Affinement de l'Âme de continuer à l'adorer.
+Après avoir donné ses instructions à la Secte Lian Hun, Wang Lin ne prit pas la statue avec lui. Au lieu de cela, il posa des restrictions puissantes et ordonna à la Secte Lian Hun de continuer à l'adorer.
 
 « Ce deuxième avatar est une graine. Pour l'instant, il ne me sert à rien, mais une fois qu'il aura grandi… » Une lueur d'anticipation brilla dans les yeux de Wang Lin. Puis son corps vacilla et il disparut.
 
-Bien que le Pays du Démon Céleste ait remporté la bataille contre le Pays du Démon de Feu des centaines d'années auparavant, leurs pertes avaient été trop lourdes. Aujourd'hui encore, après tous ces siècles, leur population était bien moindre qu'autrefois.
+Bien que le Pays Tian Yao ait remporté la bataille contre le Pays Huo Yao des centaines d'années auparavant, leurs pertes avaient été trop lourdes. Aujourd'hui encore, après tous ces siècles, leur population était bien moindre qu'autrefois.
 
-Même la capitale du Pays du Démon Céleste, autrefois si prospère, n'était plus aussi animée qu'à l'arrivée de Wang Lin, sans pour autant être désolée.
+Même la capitale du Pays Tian Yao, autrefois si prospère, n'était plus aussi animée qu'à l'arrivée de Wang Lin, sans pour autant être désolée.
 
 On trouvait encore des boutiques le long des rues, mais peu de passants. Les rares piétons ne jetaient que quelques regards furtifs aux échoppes avant de repartir rapidement.
 

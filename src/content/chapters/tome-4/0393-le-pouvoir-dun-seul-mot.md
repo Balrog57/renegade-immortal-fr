@@ -62,7 +62,7 @@ En ce jour, sur cette même rue, Wang Lin apparut. En contemplant ce passage fam
 
 Après un long moment, ses yeux emplis de mélancolie, il repartit.
 
-À l'intérieur du Palais de la Neige et de la Glace, Li Yuanfeng était en pleine culture lorsqu'il ouvrit soudainement les yeux. Son regard s'illumina alors qu'il levait la tête vers l'extérieur du palais.
+À l'intérieur du Palais Bing Xue, Li Yuanfeng était en pleine culture lorsqu'il ouvrit soudainement les yeux. Son regard s'illumina alors qu'il levait la tête vers l'extérieur du palais.
 
 « Li Yuanfeng! » Dans la cour devant le palais, le vent hurlant faisait voler la neige.
 
@@ -76,7 +76,7 @@ Deux années ne sont rien pour les cultivateurs. Réussir une telle progression 
 
 À cet instant précis, trois personnes apparurent entre Li Yuanfeng et Wang Lin. C'étaient tous des êtres très âgés: deux hommes et une femme.
 
-L'un des Anciens s'écria: « Tu as beaucoup de cran pour oser envahir le Palais de la Neige et de la Glace de mon Xue Yu! »
+L'un des Anciens s'écria: « Tu as beaucoup de cran pour oser envahir le Palais Bing Xue de mon Xue Yu! »
 
 « Ceng Niu! » Les yeux de la vieille femme devinrent froids alors qu'elle fixait Wang Lin.
 

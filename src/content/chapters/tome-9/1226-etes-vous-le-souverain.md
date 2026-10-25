@@ -100,7 +100,7 @@ Bien que gravement blessé, dès qu'il toucha terre, Wang Lin repartit aussitôt
 
 Le trident était planté dans l'annulaire, offrant une opportunité à Wang Lin, mais s'il abandonnait maintenant, tout cela aurait été vain!
 
-Il n'y avait eu qu'une seule autre fois où Wang Lin avait été aussi désespéré. La première fut son combat contre Tian Yunzi dans la Terre des Esprits Démoniaques. C'était la deuxième fois en près de 2 000 ans de culture!
+Il n'y avait eu qu'une seule autre fois où Wang Lin avait été aussi désespéré. La première fut son combat contre Tian Yunzi dans la Terre Yao Ling. C'était la deuxième fois en près de 2 000 ans de culture!
 
 Une aura tragique émanait du corps de Wang Lin. Son visage était livide et, malgré ses blessures graves, son intention de combat ne faiblissait pas. Au contraire, elle semblait... encore plus féroce!
 
@@ -116,4 +116,4 @@ Même cette existence mystérieuse, restée imperturbable durant d'innombrables 
 
 « Êtes-vous le Souverain du Domaine Extérieur? » Wang Lin s'élança dans les airs pour charger l'annulaire.
 
-« Ce vieil homme est issu du Clan de la Soie Bleue du Système Stellaire Antique, Lanmeng Daozun! »
+« Ce vieil homme est issu du Clan Lan Si du Système Stellaire Antique, Lanmeng Daozun! »

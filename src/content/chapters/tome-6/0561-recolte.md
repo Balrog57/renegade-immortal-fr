@@ -106,7 +106,7 @@ Il avait mis trois jours pour modifier le réseau, mais trente jours pour y ajou
 
 Une explosion de lumière rouge sang se produisit sur le Mont Gu, à 500 kilomètres du camp militaire, et Wang Lin apparut!
 
-La lumière aveuglante du soleil frappa ses yeux. Il observa les environs avec la sensation d'être venu d'un autre monde. Les contours lointains de la Cité de l'Ancien Démon semblaient inchangés depuis son départ.
+La lumière aveuglante du soleil frappa ses yeux. Il observa les environs avec la sensation d'être venu d'un autre monde. Les contours lointains de la Cité Gu Yao semblaient inchangés depuis son départ.
 
 Wang Lin prit une profonde inspiration, se changea en un rayon de lumière et chargea vers le camp militaire. Sa vitesse étant bien plus grande qu'auparavant, il ne lui fallut que peu de temps pour s'en approcher!
 

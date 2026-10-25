@@ -54,7 +54,7 @@ Quand Wang Lin devait être prudent, il l'était toujours au plus haut point. C'
 
 « Extraire l'os du corps de ce Serpent aux yeux de lune peut être considéré comme l'un des trois moments les plus dangereux de ma vie. » Les yeux de Wang Lin s'illuminèrent, sa vigilance redoublant encore.
 
-Dans la Terre des Dieux Anciens, il comptait sur sa ruse. Dans le Royaume Céleste de la Pluie, sur sa prudence. Dans la Terre des Esprits Démoniaques, sur sa résolution.
+Dans la Terre Gu Shen, il comptait sur sa ruse. Dans le Royaume Céleste de la Pluie, sur sa prudence. Dans la Terre Yao Ling, sur sa résolution.
 
 Il suivit l'os et progressa. Après un long moment, Wang Lin s'arrêta soudainement. Ses yeux brillèrent intensément alors qu'il fixait l'os devant lui.
 
@@ -82,7 +82,7 @@ Tout en contemplant la montagne fusionnée avec l'os du Serpent aux yeux de lune
 
 « Tan Lang! » lâcha Wang Lin, le visage sombre.
 
-Il avait déjà vu cette montagne, dans la Terre des Esprits Démoniaques. C'était le trésor que Tan Lang avait sorti et dont il avait extrait l'âme de la montagne pour attaquer.
+Il avait déjà vu cette montagne, dans la Terre Yao Ling. C'était le trésor que Tan Lang avait sorti et dont il avait extrait l'âme de la montagne pour attaquer.
 
 « Ils m'ont bel et bien poursuivi! » Les yeux de Wang Lin brillèrent. Il n'était plus pressé d'extraire l'os du Serpent aux yeux de lune.
 

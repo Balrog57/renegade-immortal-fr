@@ -64,6 +64,6 @@ Il regarda Li Muwan avec une légère surprise et dit: « Sœur cadette, tu ne m
 
 Le regard de Li Muwan devint encore plus glacial. Elle fixa l'homme tout en contenant la poussée du Sens Divin qui menaçait de déborder de son corps. Elle lâcha, d'un ton glacial et sans détour: « Sun Zhenwei, penses-tu vraiment qu'avec ta culture au stade avancé de la Formation du Noyau, tu puisses m'arrêter? Si tu ne t'écartes pas immédiatement, ta sœur cadette sera impolie! »
 
-L'homme afficha un sourire empreint de douceur: « Sœur cadette, nous sommes dans la Secte du Ciel Nuageux. Comment oserais-je te barrer le passage? Dis-moi, où vas-tu? Je serais ravi de t'accompagner. »
+L'homme afficha un sourire empreint de douceur: « Sœur cadette, nous sommes dans la Secte Yun Tian. Comment oserais-je te barrer le passage? Dis-moi, où vas-tu? Je serais ravi de t'accompagner. »
 
 À ce moment précis, Wang Lin atteignit le patio sud. Il fixa le brouillard blanc qui enveloppait les lieux, le visage absolument impassible.

@@ -10,11 +10,11 @@ Après que Sun Yunshan eut fini de parler, un rayon de lumière violette se pré
 
 Wang Lin sourit légèrement et joignit les mains. « J'ai pris un peu de retard sur le chemin. Je ne pensais pas que frère Sun m'attendrait. »
 
-Sun Yunshan rit et dit: « Ce n'est rien. Je comptais me rendre dans la Mer des Esprits Démoniaques de l'Est hier, mais j'ai appris que frère Wang était celui que Tian Yunzi avait choisi pour y aller. Après réflexion, j'ai décidé d'attendre quelques jours pour que nous puissions partir ensemble. Ne serait-ce pas agréable ? »
+Sun Yunshan rit et dit: « Ce n'est rien. Je comptais me rendre dans la Mer Yao Ling hier, mais j'ai appris que frère Wang était celui que Tian Yunzi avait choisi pour y aller. Après réflexion, j'ai décidé d'attendre quelques jours pour que nous puissions partir ensemble. Ne serait-ce pas agréable ? »
 
 Wang Lin lui adressa un sourire chaleureux: « Merci de votre considération. » Sur ce, il reporta son regard sur les personnes entourant Sun Yunshan.
 
-Sun Yunshan rit. « Ces trois sont les Anciens de la Secte Xuan Yuan chargés de ma sécurité, car ma culture ne peut rivaliser avec celle de frère Wang. Ah, si ce n'était pas l'ordre de mon père, je ne me rendrais pas dans la Mer des Esprits Démoniaques de l'Est. »
+Sun Yunshan rit. « Ces trois sont les Anciens de la Secte Xuan Yuan chargés de ma sécurité, car ma culture ne peut rivaliser avec celle de frère Wang. Ah, si ce n'était pas l'ordre de mon père, je ne me rendrais pas dans la Mer Yao Ling. »
 
 Wang Lin sourit. « Frère Sun est plein d'humour! »
 
@@ -52,13 +52,13 @@ Les ondulations durèrent la moitié d'un bâton d'encens avant de s'estomper.
 
 Au moment où l'arc-en-ciel fendit le ciel, la jeune fille restée près de la matrice afficha une pointe de fierté. Sa main droite effleura son sac de rangement et un jade apparut dans sa paume.
 
-« Hmph, si vous refusez que je vienne, je n'aurai qu'à vous suivre en secret! J'ai dérobé le Jade de Transfert Guidé de mon père; avec lui, je peux vous rattraper. Peut-être trouverai-je même des trésors dans la Mer de l'Est! »
+« Hmph, si vous refusez que je vienne, je n'aurai qu'à vous suivre en secret! J'ai dérobé le Jade de Transfert Guidé de mon père; avec lui, je peux vous rattraper. Peut-être trouverai-je même des trésors dans la Mer Dong! »
 
 Dès que le jade apparut, il libéra une lumière blanche qui enveloppa instantanément la jeune fille. Dans un éclair, son corps se mua en un filament de lumière blanche et fusionna avec l'arc-en-ciel.
 
 ***
 
-À l'est de la planète Tian Yun, au seuil de la Mer des Esprits Démoniaques de l'Est.
+À l'est de la planète Tian Yun, au seuil de la Mer Yao Ling.
 
 Il ne restait que trois jours avant l'ouverture!
 
@@ -68,7 +68,7 @@ Après tout, ce phénomène ne se produisait qu'une fois tous les 5 000 ans, ce 
 
 Si l'on n'est pas capable d'atteindre le stade Yin et Yang et de franchir la première étape, sa longévité ne peut s'élever et l'on ne peut espérer vivre 5 000 ans.
 
-Même les vieux monstres qui apparaissaient rarement étaient présents devant la Mer des Esprits Démoniaques de l'Est. Certains venaient seuls, d'autres étaient accompagnés de leurs disciples. Chacun d'eux s'octroyait de force une place, avec une grande arrogance.
+Même les vieux monstres qui apparaissaient rarement étaient présents devant la Mer Yao Ling. Certains venaient seuls, d'autres étaient accompagnés de leurs disciples. Chacun d'eux s'octroyait de force une place, avec une grande arrogance.
 
 Mais plus ils se montraient imposants, moins les gens osaient les offenser.
 
@@ -84,7 +84,7 @@ Ces lueurs créèrent une pression écrasante, comme si une tempête titanesque 
 
 Elle murmura doucement: « Le Saint de l'Épée... »
 
-Les lueurs venues du lointain se métamorphosèrent en d'anciennes épées qui n'étaient en réalité que des flux d'énergie d'épée, empreints d'une majesté céleste. À leur approche, tous les cultivateurs aux abords de l'entrée de la Mer des Esprits Démoniaques de l'Est s'écartèrent précipitamment.
+Les lueurs venues du lointain se métamorphosèrent en d'anciennes épées qui n'étaient en réalité que des flux d'énergie d'épée, empreints d'une majesté céleste. À leur approche, tous les cultivateurs aux abords de l'entrée de la Mer Yao Ling s'écartèrent précipitamment.
 
 Cette scène était bien plus grandiose que celle de n'importe quel autre vieux monstre arrivé jusque-là.
 
@@ -102,7 +102,7 @@ Tous les habitants de la planète Tian Yun savaient que le Saint de l'Épée Lin
 
 Bien que Tian Yunzi ait toujours eu une longueur d'avance, le Saint de l'Épée n'avait jamais cédé et ne cessait de lui tenir tête.
 
-Tian Yunzi possédait les Sept Disciples du Destin Céleste, tandis qu'il avait formé les Douze Épées de la Secte de l'Épée Da Luo!
+Tian Yunzi possédait les Sept Disciples du Destin Céleste, tandis qu'il avait formé les Douze Épées de la Secte Da Luo Jian!
 
 Les Sept Disciples du Destin Céleste détenaient des héritages de sorts célestes, alors que les Douze Épées étaient protégées par des esprits de bêtes démoniaques.
 
@@ -110,7 +110,7 @@ Les Sept Disciples du Destin Céleste détenaient des héritages de sorts céles
 
 L'expression de Ling Tianhou était très sombre. Normalement, il ne serait pas venu si tôt, mais ce voyage était crucial pour lui. En regardant la mer d'objets flottants, un air de nostalgie l'envahit.
 
-En ce temps-là, à son retour du Royaume Céleste, cet esprit d'épée l'avait poursuivi. Ce qui l'avait le plus stupéfait était l'immense puissance dudit esprit. Finalement, il avait réussi à l'attirer ici et à utiliser un sort spécial pour le piéger dans la Mer des Esprits Démoniaques de l'Est.
+En ce temps-là, à son retour du Royaume Céleste, cet esprit d'épée l'avait poursuivi. Ce qui l'avait le plus stupéfait était l'immense puissance dudit esprit. Finalement, il avait réussi à l'attirer ici et à utiliser un sort spécial pour le piéger dans la Mer Yao Ling.
 
 Cette fois-ci, il comptait utiliser la force de la marée pour entraîner l'esprit d'épée dans les profondeurs abyssales de la mer, afin qu'il n'en ressortît jamais.
 
@@ -140,4 +140,4 @@ Pour échapper à Situ Nan, il s'était réfugié ici afin de retrouver son viei
 
 « Comment as-tu pu être si gravement blessé? » Le Saint de l'Épée vit immédiatement que les blessures de Tan Lang n'étaient pas encore cicatrisées.
 
-Les yeux de Tan Lang brillaient d'une lueur spectrale lorsqu'il répondit lentement: « C'est une longue histoire. Je suis allé à la Secte de l'Épée Da Luo pour te chercher. Quand j'ai appris que tu étais ici, je me suis précipité, car je voulais t'offrir une opportunité inouïe! Si nous nous alliions, tu pourras enfin surpasser ce vieux fou de Tian Yunzi! »
+Les yeux de Tan Lang brillaient d'une lueur spectrale lorsqu'il répondit lentement: « C'est une longue histoire. Je suis allé à la Secte Da Luo Jian pour te chercher. Quand j'ai appris que tu étais ici, je me suis précipité, car je voulais t'offrir une opportunité inouïe! Si nous nous alliions, tu pourras enfin surpasser ce vieux fou de Tian Yunzi! »

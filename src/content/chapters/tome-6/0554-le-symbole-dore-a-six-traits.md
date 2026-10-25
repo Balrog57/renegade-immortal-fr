@@ -6,9 +6,9 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 554 - The Six Stroke Golden Symbol
 slug: le-symbole-dore-a-six-traits
 ---
-« La rumeur prétend que toute la Terre des Esprits Démoniaques était la grotte d'un empereur céleste. Cet endroit aurait-il également pu être créé par lui? » Wang Lin réfléchit un instant et observa les environs. Il cessa de s'interroger pour se calmer et se consacrer à la compréhension de son domaine.
+« La rumeur prétend que toute la Terre Yao Ling était la grotte d'un empereur céleste. Cet endroit aurait-il également pu être créé par lui? » Wang Lin réfléchit un instant et observa les environs. Il cessa de s'interroger pour se calmer et se consacrer à la compréhension de son domaine.
 
-Le domaine de la vie et de la mort s'était déjà fusionné avec son corps avant qu'il n'entre dans la Terre des Esprits Démoniaques. À présent, son cœur était immergé dans son domaine. Sa main gauche était la vie, sa main droite était la mort, et entre les deux coulait le Fleuve de l'Éternité.
+Le domaine de la vie et de la mort s'était déjà fusionné avec son corps avant qu'il n'entre dans la Terre Yao Ling. À présent, son cœur était immergé dans son domaine. Sa main gauche était la vie, sa main droite était la mort, et entre les deux coulait le Fleuve de l'Éternité.
 
 Bien qu'immergé dans son domaine, la vigilance de Wang Lin ne faiblissait jamais. Il maintenait une partie de son sens divin circulant autour de lui; si Yao Xixue tentait le moindre mouvement, il serait capable de le détecter instantanément.
 

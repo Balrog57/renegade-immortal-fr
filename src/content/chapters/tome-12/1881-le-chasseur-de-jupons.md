@@ -14,7 +14,7 @@ L'expression de Wang Lin était calme. Après avoir appris que le premier, le de
 
 « Ce jade contient l'emplacement exact du réseau de transfert et peut activer la formation trois fois. J'espère que tu seras rapide, Compagnon Cultivateur. J'ai encore une autre tâche à accomplir, je dois donc te faire mes adieux! » Ouyang Zhen semblait anxieux. Après avoir joint les mains en signe de salut devant Wang Lin, il partit.
 
-Ouyang Zhen était venu et repartit aussi vite qu'il était apparu, mais Wang Lin percevait la tension qui habitait les cultivateurs du Continent du Taureau Céleste en cette guerre. Après un moment de réflexion, Wang Lin baissa les yeux vers le jade.
+Ouyang Zhen était venu et repartit aussi vite qu'il était apparu, mais Wang Lin percevait la tension qui habitait les cultivateurs du Continent Tian Niu en cette guerre. Après un moment de réflexion, Wang Lin baissa les yeux vers le jade.
 
 Au sol, plusieurs rayons de lumière jaillirent, révélant Yan Luan et les autres cultivateurs de la Tribulation du Vide. Ils restaient silencieux.
 
@@ -24,19 +24,19 @@ Après un long moment, Wang Lin rangea le jade et regarda Yan Luan et sa compagn
 
 « Adieu! » Le regard de Wang Lin balaya Yan Luan et, sans hésitation, il fit demi-tour. Des ondulations résonnèrent sous ses pas tandis que sa silhouette disparaissait.
 
-Wang Lin était parti avec une grande décontraction. Il n'appartenait pas au Continent du Taureau Céleste; son arrivée ou son départ n'avait donc que peu d'importance. Tel le vent, il ne laisserait peut-être aucune trace après son passage.
+Wang Lin était parti avec une grande décontraction. Il n'appartenait pas au Continent Tian Niu; son arrivée ou son départ n'avait donc que peu d'importance. Tel le vent, il ne laisserait peut-être aucune trace après son passage.
 
 Yan Luan et ses compagnons fixèrent l'endroit où Wang Lin avait disparu, les traits empreints de complexité, pendant la durée d'un demi-bâton d'encens. Ces mois de coexistence avaient été difficiles à oublier; c'était une expérience qu'ils garderaient en mémoire pour le reste de leur vie.
 
-Le lendemain du départ de Wang Lin, tous les cultivateurs accompagnant Yan Luan sortirent du palais souterrain et quittèrent la Prairie de l'Extrême Ciel, abandonnant les lieux pour se diriger vers l'endroit indiqué par Ouyang Zhen, en plus d'un millier de traînées de lumière.
+Le lendemain du départ de Wang Lin, tous les cultivateurs accompagnant Yan Luan sortirent du palais souterrain et quittèrent la Prairie Ji Tian, abandonnant les lieux pour se diriger vers l'endroit indiqué par Ouyang Zhen, en plus d'un millier de traînées de lumière.
 
 La défense du troisième méridien du Taureau Céleste était terminée.
 
-La Secte Gui Yi était l'une des deux puissances majeures du Continent du Taureau Céleste, ainsi que l'une des neuf sectes et treize factions du Continent de l'Est. Bien qu'elle ne fût pas la plus forte, elle n'était pas pour autant la plus faible.
+La Secte Gui Yi était l'une des deux puissances majeures du Continent Tian Niu, ainsi que l'une des neuf sectes et treize factions du Continent de l'Est. Bien qu'elle ne fût pas la plus forte, elle n'était pas pour autant la plus faible.
 
-L'ensemble de la Secte Gui Yi occupait une vaste portion du Continent du Taureau Céleste. Ses pics interminables abritaient d'innombrables édifices antiques et dégageaient un sentiment de mystère indicible sous la brume. La secte était structurée en plusieurs anneaux concentriques qui semblaient former un vortex gigantesque couvrant une zone infinie.
+L'ensemble de la Secte Gui Yi occupait une vaste portion du Continent Tian Niu. Ses pics interminables abritaient d'innombrables édifices antiques et dégageaient un sentiment de mystère indicible sous la brume. La secte était structurée en plusieurs anneaux concentriques qui semblaient former un vortex gigantesque couvrant une zone infinie.
 
-À l'instar de la Secte de la Grande Âme, la Secte Gui Yi comptait une multitude de disciples. Une telle institution regroupait de nombreux cultivateurs puissants.
+À l'instar de la Secte Da Hun, la Secte Gui Yi comptait une multitude de disciples. Une telle institution regroupait de nombreux cultivateurs puissants.
 
 À des dizaines de milliers de kilomètres de la Secte Gui Yi, une explosion de lumière illumina le ciel. Ce changement soudain attira immédiatement l'attention de la secte, et des dizaines de rayons de lumière volèrent vers la formation.
 
@@ -50,9 +50,9 @@ Lorsque la silhouette de Wang Lin devint parfaitement nette, les cultivateurs vi
 
 « Nous saluons le Messager du Taureau Céleste! Puis-je demander de quel méridien vous émanez, Messager? Et de quelle secte? » L'homme d'âge moyen, si froid quelques instants plus tôt, devint immédiatement poli. Les cultivateurs alentour joignirent également leurs mains avec empressement.
 
-Ils éprouvaient un respect profond pour un Messager du Taureau Céleste capable de garder l'un des méridiens. Bien qu'ils constatassent que le niveau de culture de Wang Lin n'était pas élevé, ils pensaient, comme Ouyang Zhen, qu'une telle personne devait posséder quelque chose d'extraordinaire pour pouvoir repousser l'attaque du Continent du Démon Vert.
+Ils éprouvaient un respect profond pour un Messager du Taureau Céleste capable de garder l'un des méridiens. Bien qu'ils constatassent que le niveau de culture de Wang Lin n'était pas élevé, ils pensaient, comme Ouyang Zhen, qu'une telle personne devait posséder quelque chose d'extraordinaire pour pouvoir repousser l'attaque du Continent Lu Mo.
 
-« Secte de la Grande Âme, Wang Lin. Troisième méridien du Taureau Céleste, Prairie de l'Extrême Ciel. » Wang Lin leur adressa un salut respectueux.
+« Secte Da Hun, Wang Lin. Troisième méridien du Taureau Céleste, Prairie Ji Tian. » Wang Lin leur adressa un salut respectueux.
 
 « Noble Messager, je vous en prie! Le Maître de la secte a envoyé un ordre: tous les messagers doivent se rendre au grand hall. » L'homme d'âge moyen leva la main pour accueillir Wang Lin.
 
@@ -66,7 +66,7 @@ Ce changement soudain attira l'attention de Wang Lin et des autres cultivateurs.
 
 Peu après, l'apparence de la femme se précisa. Elle portait des vêtements violets. Elle paraissait jeune et d'une grande beauté, dégageant une sérénité qui lui donnait l'allure d'une déesse. Sur le côté droit de son visage gracieux figurait également un tatouage du Taureau Céleste. Loin de ternir sa beauté, ce tatouage lui conférait une aura mystérieuse.
 
-« Ta Jia de la Secte Xiu Sheng. Sixième méridien du Taureau Céleste, Chaîne de Montagnes de la Mer Azure », dit doucement la femme en balayant l'assemblée du regard. Son regard s'arrêta un instant sur Wang Lin, mais elle resta impassible.
+« Ta Jia de la Secte Xiu Sheng. Sixième méridien du Taureau Céleste, Chaîne de Montagnes Cang Ming », dit doucement la femme en balayant l'assemblée du regard. Son regard s'arrêta un instant sur Wang Lin, mais elle resta impassible.
 
 En voyant cette femme, les yeux de Wang Lin se plissèrent. Il l'observa attentivement, sentant une familiarité qu'il n'arrivait pas à identifier. Ta Jia fronça légèrement les sourcils sous ce regard et lui jeta un coup d'œil calme.
 
@@ -96,6 +96,6 @@ Ou plutôt, il fixait ce qui se trouvait derrière elle! Il fixait Wang Lin aux 
 
 Wang Lin le vit également!
 
-Ta Jia fut stupéfaite par le changement radical du jeune homme. Elle savait qui il était, connaissait son identité et sa réputation sur le Continent du Taureau Céleste. Par le passé, elle l'avait vu de loin dans la foule, sa silhouette altière dominant ciel et terre, mais elle ne l'avait jamais vu manifester une telle émotion.
+Ta Jia fut stupéfaite par le changement radical du jeune homme. Elle savait qui il était, connaissait son identité et sa réputation sur le Continent Tian Niu. Par le passé, elle l'avait vu de loin dans la foule, sa silhouette altière dominant ciel et terre, mais elle ne l'avait jamais vu manifester une telle émotion.
 
 Après avoir été surprise un instant, Ta Jia tourna inconsciemment la tête pour regarder la silhouette qui lui avait inspiré tant de dégoût.

@@ -26,7 +26,7 @@ Si le doigt de Xue Zu avait porté son coup, Wang Lin était certain que la gard
 
 Les yeux de Xue Zu étaient empreints d'une intention meurtrière alors qu'il levait les yeux vers le ciel: « Il te reste deux phrases! » Il voulait véritablement tuer Wang Lin sur-le-champ, puis procéder à une recherche d'âme pour découvrir la localisation de Yao Xixue.
 
-Cependant, il ne pouvait s'empêcher d'être prudent. Il savait que Wang Lin était extrêmement rusé, décisif et impitoyable. Autrement, comment ce gamin aurait-il pu provoquer un tel chaos dans la Terre des Esprits Démoniaques? Tous ces vieux monstres, lui y compris, avaient été manipulés par ce jeune homme, pour finalement ne pouvoir que regarder, impuissants, sa disparition dans le vortex.
+Cependant, il ne pouvait s'empêcher d'être prudent. Il savait que Wang Lin était extrêmement rusé, décisif et impitoyable. Autrement, comment ce gamin aurait-il pu provoquer un tel chaos dans la Terre Yao Ling? Tous ces vieux monstres, lui y compris, avaient été manipulés par ce jeune homme, pour finalement ne pouvoir que regarder, impuissants, sa disparition dans le vortex.
 
 « Cet individu est venu avec un clone, il n'a donc naturellement pas peur que je le tue. Une fois qu'il sera mort, son vrai corps attaquera immédiatement Xixue! La Pilule de l'Âme Sanguine n'est pas sans défauts... »
 

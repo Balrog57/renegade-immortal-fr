@@ -12,9 +12,9 @@ Il sortit de la porte de l'autel et s'éleva dans les airs. Sa silhouette n'éta
 
 Wang Lin flottait dans les airs, et à ses côtés se trouvait le papillon apparu après l'activation du Char de Guerre Divin. Le papillon battait doucement des ailes pour maintenir sa suspension.
 
-Les membres du Clan des Immortels Élus, empreints de prudence, reculèrent tout en fixant l'homme d'âge moyen. Les yeux de Ta Shan étaient glacials lorsqu'il fit un pas en avant et cria: « Qui est cet homme?! »
+Les membres du Clan Xian Xuan, empreints de prudence, reculèrent tout en fixant l'homme d'âge moyen. Les yeux de Ta Shan étaient glacials lorsqu'il fit un pas en avant et cria: « Qui est cet homme?! »
 
-Le regard de l'homme en bleu se détacha de Ta Shan pour balayer les membres du Clan des Immortels Élus. Son attention finit par se poser sur Wang Lin, et son expression devint sérieuse.
+Le regard de l'homme en bleu se détacha de Ta Shan pour balayer les membres du Clan Xian Xuan. Son attention finit par se poser sur Wang Lin, et son expression devint sérieuse.
 
 « Tu n'es pas de ce monde. D'où viens-tu?! »
 
@@ -36,7 +36,7 @@ C'était comme s'il avait rencontré son ennemi naturel. Peu importe sa propre f
 
 Un pressentiment terrifiant l'assaillit tandis que son esprit vacillait. C'était comme si l'adversaire n'avait besoin que d'une seule pensée pour provoquer son effondrement immédiat.
 
-Ta Shan n'avait jamais ressenti une telle sensation de sa vie. Pourtant, dès qu'elle apparut, ce fut comme si elle avait toujours été là, gravée dans l'essence même de tous les membres du Clan des Immortels Élus.
+Ta Shan n'avait jamais ressenti une telle sensation de sa vie. Pourtant, dès qu'elle apparut, ce fut comme si elle avait toujours été là, gravée dans l'essence même de tous les membres du Clan Xian Xuan.
 
 Il ne pouvait pas résister! Le corps de Ta Shan tremblait. Lorsque le regard de l'homme en bleu se posa sur lui, il ressentit même l'impulsion de s'agenouiller pour l'adorer. Cependant, par dignité, Ta Shan serra les dents et lutta contre ce sentiment qui émanait de son âme et des tatouages de son corps.
 
@@ -56,13 +56,13 @@ Comme si le corps de Ta Shan avait été frappé par un poing invisible, des bru
 
 Ta Shan lutta pour se redresser. Ses yeux brillaient d'un éclat meurtrier et indomptable lorsqu'il hurla: « Qui es-tu?! »
 
-À cet instant, non seulement Ta Shan, mais tous les membres du Clan des Immortels Élus retinrent leur souffle en fixant l'homme. Ce qui venait de se produire était trop étrange pour être accepté par la raison.
+À cet instant, non seulement Ta Shan, mais tous les membres du Clan Xian Xuan retinrent leur souffle en fixant l'homme. Ce qui venait de se produire était trop étrange pour être accepté par la raison.
 
 Le visage de l'Ancien devint livide alors qu'il contemplait l'homme en bleu. Il sembla se souvenir de quelque chose et son corps se mit à trembler.
 
 Le regard de l'homme en bleu était froid, teinté d'une pointe de fierté, lorsqu'il déclara calmement: « Être céleste! Pourquoi ne vous êtes-vous pas encore agenouillés?! »
 
-L'Ancien du Clan des Immortels Élus laissa échapper un sourire amer. À cet instant, il ne doutait plus des paroles de l'homme. Il se remémora la façon dont les ancêtres décrivaient leur excitation et leur respect lorsqu'ils rencontraient un être céleste dans les archives.
+L'Ancien du Clan Xian Xuan laissa échapper un sourire amer. À cet instant, il ne doutait plus des paroles de l'homme. Il se remémora la façon dont les ancêtres décrivaient leur excitation et leur respect lorsqu'ils rencontraient un être céleste dans les archives.
 
 Il n'y avait aucun doute sur l'identité de cet individu. « Dès que vous les rencontrerez, vous saurez », c'étaient là les mots laissés par les ancêtres du clan.
 
@@ -70,7 +70,7 @@ Le vieil homme n'avait pas compris auparavant; il avait confondu cette excitatio
 
 « Je ne peux m'empêcher d'être ému... Je ne peux m'empêcher d'être respectueux... » Le vieil homme esquissa un sourire pitoyable et s'agenouilla au sol en murmurant: « Cet humble serviteur salue le Haut Céleste. »
 
-Il n'était pas le seul à s'agenouiller. Les cœurs des autres membres du Clan des Immortels Élus tremblèrent sous le regard de l'homme d'âge moyen. Une force intérieure les obligeait à la soumission. Même s'ils devaient mourir, même si leurs âmes se brisaient, ils étaient condamnés à céder!
+Il n'était pas le seul à s'agenouiller. Les cœurs des autres membres du Clan Xian Xuan tremblèrent sous le regard de l'homme d'âge moyen. Une force intérieure les obligeait à la soumission. Même s'ils devaient mourir, même si leurs âmes se brisaient, ils étaient condamnés à céder!
 
 Un par un, les membres du clan s'agenouillèrent et baissèrent la tête.
 
@@ -82,17 +82,17 @@ Des bruits d'explosions émanaient de son corps et le sang jaillissait de partou
 
 Wang Lin fronça les sourcils en observant la scène. Il put en tirer de nombreuses informations.
 
-« Que ce soit le Clan des Immortels Élus ou celui des Immortels Délaissés, il est évident que les deux sont des esclaves des êtres célestes. L'empreinte d'esclave condamne toutes les générations futures à la servitude! »
+« Que ce soit le Clan Xian Xuan ou celui des Immortels Délaissés, il est évident que les deux sont des esclaves des êtres célestes. L'empreinte d'esclave condamne toutes les générations futures à la servitude! »
 
 « C'est une empreinte d'esclavage placée sur l'héritage d'un clan, tout comme pour la famille de Li Yuan... » Si ce n'était pour l'affaire de Li Yuan, Wang Lin n'aurait pas pu percevoir l'ampleur de la situation.
 
 À cet instant, il comprenait tout.
 
-« L'empreinte est fusionnée avec les tatouages des membres du Clan des Immortels Élus. Elle est extrêmement tyrannique et bien plus puissante que celle utilisée sur la famille de Li Yuan. Après tout, celle de Li Yuan ne faisait éprouver de la vénération qu'envers un seul être céleste. »
+« L'empreinte est fusionnée avec les tatouages des membres du Clan Xian Xuan. Elle est extrêmement tyrannique et bien plus puissante que celle utilisée sur la famille de Li Yuan. Après tout, celle de Li Yuan ne faisait éprouver de la vénération qu'envers un seul être céleste. »
 
 « Mais cette empreinte est différente. Il est fort probable qu'elle les force à s'agenouiller devant tous les êtres célestes. Ce n'est plus de la manipulation, c'est un asservissement total. Cela fait du clan entier une propriété des êtres célestes! »
 
-« De plus, puisqu'il y a des membres du Clan des Immortels Délaissés sur la planète Suzaku, il est évident qu'ils sont bien nombreux! » Les yeux de Wang Lin devinrent graves alors qu'une idée audacieuse germait en lui.
+« De plus, puisqu'il y a des membres du Clan Xian Yi sur la planète Suzaku, il est évident qu'ils sont bien nombreux! » Les yeux de Wang Lin devinrent graves alors qu'une idée audacieuse germait en lui.
 
 « Il est probable qu'il y a d'innombrables années, avant l'effondrement du Royaume Céleste, il existait un clan très puissant, capable de défier les êtres célestes. Cependant, ils furent finalement vaincus. Il est même possible que les quatre Royaumes Célestes se soient unis pour lancer un sortilège si puissant qu'il a transformé toutes les générations futures de ce clan en esclaves éternels! » Wang Lin ne put que pousser un soupir intérieur en voyant les membres du clan trembler et s'agenouiller au sol.
 
@@ -114,7 +114,7 @@ Les yeux de l'homme s'illuminèrent, mais il ne chercha pas à provoquer Wang Li
 
 À l'ouverture de la porte, des volutes de brouillard noir jaillirent, se transformant en hideuses créatures de brume. L'ombre de la femme qui se trouvait dans le fourneau apparut également, mais elle ne franchit pas le seuil; elle se contenta de fixer froidement Wang Lin.
 
-Dès l'apparition des bêtes de brume, les expressions des membres du Clan des Immortels Élus changèrent. Toutefois, la force de l'empreinte d'esclave les empêchait de se relever. C'était un instinct auquel ils ne pouvaient opposer aucune résistance.
+Dès l'apparition des bêtes de brume, les expressions des membres du Clan Xian Xuan changèrent. Toutefois, la force de l'empreinte d'esclave les empêchait de se relever. C'était un instinct auquel ils ne pouvaient opposer aucune résistance.
 
 Les créatures de brume prirent forme et ouvrirent brusquement leurs yeux, tandis que de stridents cris retentissaient. Leurs regards froids brillèrent intensément alors que l'homme en bleu pointait le sol du doigt.
 

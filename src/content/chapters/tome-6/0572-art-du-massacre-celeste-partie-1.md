@@ -8,7 +8,7 @@ slug: art-du-massacre-celeste-partie-1
 ---
 Une musique joyeuse, empreinte d'une profonde tristesse, parvint aux oreilles de Wang Lin. Cela le fit hésiter un instant, mais il ne se retourna pas et continua son chemin.
 
-Il était minuit, la pleine lune trônait dans le ciel, et sa lumière enveloppait la Cité du Démon Céleste comme un fin voile de soie.
+Il était minuit, la pleine lune trônait dans le ciel, et sa lumière enveloppait la Cité Tian Yao comme un fin voile de soie.
 
 Deux silhouettes apparurent devant le manoir Mo, puis disparurent dans un éclair de fumée. Elles s'élancèrent vers la Prison Hong. Les deux étaient extrêmement rapides, survolant les divers bâtiments et rues de la ville avant d'arriver promptement devant l'enceinte de la prison.
 
@@ -160,7 +160,7 @@ L'homme nommé Xu laissa paraître une pointe d'admiration: « Aidez-moi à tuer
 
 « Si je parviens réellement à achever ma culture du massacre, alors j'accepterai votre condition! », répondit Wang Lin d'une voix sereine, sans tout dévoiler.
 
-« Suivez-moi! » L'homme nommé Xu afficha un sourire sinistre et se détourna. « Les prisons de la Prison Hong ne sont qu'une façade. Le véritable rôle des quatre prisons de la Cité du Démon Céleste est de fournir l'intention meurtrière nécessaire à l'épée de l'Empereur Démon! C'est pourquoi vous devez descendre au fond de la prison. C'est là seulement que vous pourrez véritablement comprendre le cœur du tueur! »
+« Suivez-moi! » L'homme nommé Xu afficha un sourire sinistre et se détourna. « Les prisons de la Prison Hong ne sont qu'une façade. Le véritable rôle des quatre prisons de la Cité Tian Yao est de fournir l'intention meurtrière nécessaire à l'épée de l'Empereur Démon! C'est pourquoi vous devez descendre au fond de la prison. C'est là seulement que vous pourrez véritablement comprendre le cœur du tueur! »
 
 Wang Lin suivit l'homme et quitta la zone pour entamer une nouvelle descente. Les marches semblaient interminables. Ils croisèrent de nombreux prisonniers, mais l'homme nommé Xu ne s'arrêta pas et passa devant eux sans un regard.
 

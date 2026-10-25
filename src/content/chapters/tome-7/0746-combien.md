@@ -32,7 +32,7 @@ Le vieil homme esquissa un sourire malicieux et tendit la main. En un instant, u
 
 Une seule pression fit pâlir Wang Lin; il constata qu'il était totalement incapable de bouger. C'était comme si un sort d'immobilisation avait été lancé sur lui. Il ne pouvait que regarder la main du vieil homme s'approcher.
 
-Ses yeux brillèrent intensément et, alors que la main de l'ancien se refermait sur lui, il se mordit la langue. Plutôt que de recracher le sang, il avala l'essence sanguine et activa le sort d'évasion qu'il avait appris jadis d'un expert en fuite dans la Terre des Esprits Démoniaques. Grâce à la puissance céleste de l'essence sanguine, un cycle interne s'était déjà formé dans son corps.
+Ses yeux brillèrent intensément et, alors que la main de l'ancien se refermait sur lui, il se mordit la langue. Plutôt que de recracher le sang, il avala l'essence sanguine et activa le sort d'évasion qu'il avait appris jadis d'un expert en fuite dans la Terre Yao Ling. Grâce à la puissance céleste de l'essence sanguine, un cycle interne s'était déjà formé dans son corps.
 
 Sous l'impulsion de ce cycle, son corps se détendit et disparut en un éclair. Il réapparut à une certaine distance et s'échappa sans même regarder en arrière.
 

@@ -1,6 +1,6 @@
 ---
 n: 1840
-title: "La Prairie de l'Extrême Ciel"
+title: "La Prairie Ji Tian"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1840 - Extreme Sky Prairie
@@ -30,9 +30,9 @@ Cependant, ce mouvement n'affaiblit pas son aura; au contraire, il la rendit plu
 
 « Je me demande ce que l'Ancien Wang souhaite demander... » L'expression de Yan Luan était solennelle. Elle ressentait une peur viscérale envers Wang Lin.
 
-« Je ne connais pas bien le Continent du Taureau Céleste. Connaissez-vous un endroit où l'on trouve beaucoup d'eau... idéalement un océan gigantesque! » dit Wang Lin, sa voix rappelant le frottement de deux os secs.
+« Je ne connais pas bien le Continent Tian Niu. Connaissez-vous un endroit où l'on trouve beaucoup d'eau... idéalement un océan gigantesque! » dit Wang Lin, sa voix rappelant le frottement de deux os secs.
 
-« De l'eau... Il ne cultive pas un sort, il absorbe l'essence d'eau! » Les yeux de Yan Luan s'illuminèrent; elle avait immédiatement compris. Elle prit une profonde inspiration et, après un instant, répondit: « Entre le Continent du Taureau Céleste et le Continent du Démon Vert se trouve une mer intérieure infinie. Il faut environ neuf mois pour l'atteindre... »
+« De l'eau... Il ne cultive pas un sort, il absorbe l'essence d'eau! » Les yeux de Yan Luan s'illuminèrent; elle avait immédiatement compris. Elle prit une profonde inspiration et, après un instant, répondit: « Entre le Continent Tian Niu et le Continent Lu Mo se trouve une mer intérieure infinie. Il faut environ neuf mois pour l'atteindre... »
 
 « Comment puis-je m'y rendre? » Une lueur spectrale brilla dans les yeux de Wang Lin.
 
@@ -50,13 +50,13 @@ Ce n'est que lorsque Wang Lin fut parti que Fan Shanmeng put se détendre. L'ima
 
 Yan Luan resta là, pensive, avant de pousser un long soupir. Elle n'avait inséré aucune fausse information dans le jade et avait été parfaitement honnête. Sans plus accorder d'attention à Fan Shanmeng, elle s'envola vers sa grotte.
 
-Quant à Wang Lin, après avoir quitté la Secte de la Grande Âme, il fit un pas et des ondulations résonnèrent dans l'espace avant qu'il ne disparaisse. Il se fondit dans le monde et partit sans laisser de trace.
+Quant à Wang Lin, après avoir quitté la Secte Da Hun, il fit un pas et des ondulations résonnèrent dans l'espace avant qu'il ne disparaisse. Il se fondit dans le monde et partit sans laisser de trace.
 
-Dans une rare prairie du Continent du Taureau Céleste, à cent mille kilomètres de la Secte de la Grande Âme, des ondulations parcoururent le ciel et Wang Lin en sortit. Son corps ressemblait toujours à celui d'un cadavre desséché alors qu'il contemplait la terre. De nombreuses grottes parsemaient cette prairie infinie; il était évident que de nombreux cultivateurs marginaux y résidaient.
+Dans une rare prairie du Continent Tian Niu, à cent mille kilomètres de la Secte Da Hun, des ondulations parcoururent le ciel et Wang Lin en sortit. Son corps ressemblait toujours à celui d'un cadavre desséché alors qu'il contemplait la terre. De nombreuses grottes parsemaient cette prairie infinie; il était évident que de nombreux cultivateurs marginaux y résidaient.
 
 La raison pour laquelle tant de cultivateurs marginaux vivaient ici était la densité de l'énergie céleste émanant de l'herbe. Bien qu'elle ne puisse rivaliser avec celle de certaines montagnes, elle n'en demeurait pas moins puissante.
 
-« La Prairie de l'Extrême Ciel... Selon le jade de Yan Luan, une fois arrivé ici, il faudra encore six mois pour atteindre la mer intérieure qui relie au Continent du Démon Vert... » Wang Lin réfléchit tout en s'élançant rapidement.
+« La Prairie Ji Tian... Selon le jade de Yan Luan, une fois arrivé ici, il faudra encore six mois pour atteindre la mer intérieure qui relie au Continent Lu Mo... » Wang Lin réfléchit tout en s'élançant rapidement.
 
 Sur le Continent Astral Immortel, même en ayant compris cette technique grâce à la puissance de son avatar, il ne pouvait pas utiliser la Distorsion Spatiale de manière répétée sur de très longues distances. Sur de courtes distances, comme lorsqu'il s'était éloigné de la Montagne Céleste, cela ne posait aucun problème, mais là, il venait de traverser près de trois mois de voyage en un instant; il lui faudrait donc du temps avant de pouvoir l'utiliser à nouveau.
 
@@ -76,9 +76,9 @@ Après sept jours, alors que la prairie touchait presque à sa fin, Wang Lin sen
 
 C'est alors qu'une voix lugubre retentit derrière lui:
 
-« Camarade cultivateur démoniaque, tu arrives sur ma Prairie de l'Extrême Ciel et tu penses pouvoir repartir aussi tranquillement? »
+« Camarade cultivateur démoniaque, tu arrives sur ma Prairie Ji Tian et tu penses pouvoir repartir aussi tranquillement? »
 
-« Pourquoi perdre ton temps à discuter avec lui? Nous l'avons suivi pour voir s'il n'était qu'un simple voyageur ou s'il avait des alliés ici, dans la Prairie de l'Extrême Ciel. Maintenant que nous savons qu'il ne fait que passer, laisse ta bête et ce vieil homme t'épargnera! » Une autre voix, empreinte d'une aura dominante, surgit devant Wang Lin. Si celui-ci refusait, les conséquences seraient funestes.
+« Pourquoi perdre ton temps à discuter avec lui? Nous l'avons suivi pour voir s'il n'était qu'un simple voyageur ou s'il avait des alliés ici, dans la Prairie Ji Tian. Maintenant que nous savons qu'il ne fait que passer, laisse ta bête et ce vieil homme t'épargnera! » Une autre voix, empreinte d'une aura dominante, surgit devant Wang Lin. Si celui-ci refusait, les conséquences seraient funestes.
 
 Alors que ces paroles résonnaient, le monde derrière Wang Lin se déforma et un bras gigantesque et noir apparut dans le ciel. Il descendit à travers les nuages pour s'abattre sur lui. Ce bras semblait chargé d'une force colossale qui convergeait vers Wang Lin.
 

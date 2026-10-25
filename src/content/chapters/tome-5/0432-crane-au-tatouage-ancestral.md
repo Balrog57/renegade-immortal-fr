@@ -90,7 +90,7 @@ Bien que tout cela puisse sembler avoir duré longtemps, l'action s'était déro
 
 Wang Lin volait comme un éclair. Devant lui, le visage du chaman à huit feuilles était livide tandis qu'il serrait les dents pour tenter de fuir.
 
-Il était à l'origine un chaman à huit feuilles au service du cinquième ancêtre. Même au sein du Clan des Immortels Délaissés, il occupait une position très élevée. Durant cette guerre, d'innombrables cultivateurs étaient morts par sa main.
+Il était à l'origine un chaman à huit feuilles au service du cinquième ancêtre. Même au sein du Clan Xian Yi, il occupait une position très élevée. Durant cette guerre, d'innombrables cultivateurs étaient morts par sa main.
 
 Un mois plus tôt, il avait été gravement blessé par un cultivateur du pays de Suzaku de la fin du stade de la Transformation de l'Âme. Après avoir frôlé la mort, il avait été renvoyé ici pour se rétablir. Cependant, il ne s'attendait pas à ce qu'un autre cultivateur de la Transformation de l'Âme surgisse pendant sa convalescence.
 
@@ -122,7 +122,7 @@ Le cadavre s'effondra au sol.
 
 La main droite de Wang Lin pointa le crâne. Après un instant, il fronça les sourcils et murmura: « Pas d'âme? »
 
-Au moment où il avait tranché la tête, il avait activé une technique de la Secte de l'Affinement de l'Âme censée garantir que l'âme reste prisonnière du crâne sans se dissiper.
+Au moment où il avait tranché la tête, il avait activé une technique de la Secte Lian Hun censée garantir que l'âme reste prisonnière du crâne sans se dissiper.
 
 Il réfléchit un instant en observant le crâne, puis d'un revers de main, il enveloppa l'objet d'un feu fantomatique. Dans un sifflement, la tête du vieil homme fut rapidement raffinée.
 

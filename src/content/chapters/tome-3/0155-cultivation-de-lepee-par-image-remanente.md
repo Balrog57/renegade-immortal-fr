@@ -16,7 +16,7 @@ Wang Lin le dévisagea, puis saisit Li Muwan et recula de cent pieds supplément
 
 La lumière sombre au fond des yeux du dragon s'intensifia, et un épais anneau d'énergie spirituelle se propagea rapidement de la tête vers le bas. Le corps de Jie Donglei trembla à mesure que l'énergie s'écoulait, et une expression de douleur marqua ses traits.
 
-Peu à peu, sa souffrance s'accentua et son corps gonflé commença à se rétrécir. À la fin, haletant, il se retrouva à demi agenouillé sur la tête du dragon. Il semblait avoir vieilli de plusieurs décennies d'un coup. Levant la tête, il dit d'une voix faible: « Ce vieil homme admet sa défaite. Désormais, je suis prêt à suivre vos ordres. C'est le commandement du chef de la Secte de la Lutte contre le Mal. » Les mains tremblantes, il sortit un jeton triangulaire rouge-violet de la taille d'une paume et parvint à grand-peine à y insuffler un peu d'énergie spirituelle; le jeton se mit aussitôt à flotter lentement vers l'avant.
+Peu à peu, sa souffrance s'accentua et son corps gonflé commença à se rétrécir. À la fin, haletant, il se retrouva à demi agenouillé sur la tête du dragon. Il semblait avoir vieilli de plusieurs décennies d'un coup. Levant la tête, il dit d'une voix faible: « Ce vieil homme admet sa défaite. Désormais, je suis prêt à suivre vos ordres. C'est le commandement du chef de la Secte Dou Xie. » Les mains tremblantes, il sortit un jeton triangulaire rouge-violet de la taille d'une paume et parvint à grand-peine à y insuffler un peu d'énergie spirituelle; le jeton se mit aussitôt à flotter lentement vers l'avant.
 
 Les yeux de Wang Lin scintillèrent. Il regarda Jie Donglei, puis le jeton, et soudain ses pupilles se contractèrent; sans un mot, il tira Li Muwan en arrière de plusieurs dizaines de pieds.
 
@@ -48,25 +48,25 @@ Jie Donglei avait sacrifié son noyau d'épée pour ce coup final. On pouvait co
 
 Avec la mort de Jie Donglei, Mu Nan et Mu Bei furent les plus ravis. Réalisant promptement la situation, ils s'agenouillèrent devant Wang Lin: « Félicitations, chef de secte! »
 
-Shang Guanmo maudit intérieurement ces deux frères pour leur impudence, mais il s'élança rapidement vers Wang Lin pour s'incliner: « Félicitations, Maître, pour votre accession au rang de chef de la Secte de la Lutte contre le Mal. »
+Shang Guanmo maudit intérieurement ces deux frères pour leur impudence, mais il s'élança rapidement vers Wang Lin pour s'incliner: « Félicitations, Maître, pour votre accession au rang de chef de la Secte Dou Xie. »
 
-Les dix anciens de la Secte de la Lutte contre le Mal qui formaient la formation d'épée rengainèrent leurs armes. Un malaise pesait sur eux. Après un court instant de réflexion, ils s'inclinèrent tous devant Wang Lin. Leur intention était limpide.
+Les dix anciens de la Secte Dou Xie qui formaient la formation d'épée rengainèrent leurs armes. Un malaise pesait sur eux. Après un court instant de réflexion, ils s'inclinèrent tous devant Wang Lin. Leur intention était limpide.
 
 Quant aux dizaines de milliers de disciples de la formation du dragon, la majeure partie de leur énergie spirituelle avait été consumée par Jie Donglei. Ils luttaient pour se tenir debout tout en regardant le mot « Punir » d'un rouge sanglant et accueillaient Wang Lin à grands cris.
 
-Wang Lin ne ressentit aucune joie face au trépas de Jie Donglei. Au contraire, il éprouva un sentiment d'impuissance. Dans le monde de la culture, il n'y a ni bien ni mal; seule règne la loi de la jungle. Pour survivre, il devait anéantir tout ce qui menaçait son existence. Il imaginait que s'il n'était pas venu ici en personne, il aurait dû faire face aux représailles incessantes de la Secte de la Lutte contre le Mal.
+Wang Lin ne ressentit aucune joie face au trépas de Jie Donglei. Au contraire, il éprouva un sentiment d'impuissance. Dans le monde de la culture, il n'y a ni bien ni mal; seule règne la loi de la jungle. Pour survivre, il devait anéantir tout ce qui menaçait son existence. Il imaginait que s'il n'était pas venu ici en personne, il aurait dû faire face aux représailles incessantes de la Secte Dou Xie.
 
-Pour se protéger, il devait faire comprendre à tous qu'il était un être avec lequel on ne jouait pas et que toute provocation entraînerait des conséquences funestes. La première démonstration de puissance de Wang Lin dans la Mer des Démons s'achevait ainsi.
+Pour se protéger, il devait faire comprendre à tous qu'il était un être avec lequel on ne jouait pas et que toute provocation entraînerait des conséquences funestes. La première démonstration de puissance de Wang Lin dans la Mer Xiu Mo s'achevait ainsi.
 
 Cette démonstration fut un succès éclatant. Du moins, dans un rayon d'un million de lieues autour de la ville de Nan Dou, nul n'ignorait que Wang Lin avait fait couler une mer de sang et dressé une montagne de cadavres. Cela suffit à dissuader quiconque de convoiter l'ordre d'exécution.
 
 Contemplant les dizaines de milliers de disciples prosternés devant lui, Wang Lin tourna son regard vers la mer intérieure et songea: « Teng Huayuan, pour me venger, que je sois immortel ou démon, tant que ma puissance grandit, qu'importe si je deviens un roi démon?! »
 
-Il esquissa un sourire glacial en fixant Shang Guanmo. « À partir d'aujourd'hui, vous êtes le chef de la Secte de la Lutte contre le Mal », déclara Wang Lin.
+Il esquissa un sourire glacial en fixant Shang Guanmo. « À partir d'aujourd'hui, vous êtes le chef de la Secte Dou Xie », déclara Wang Lin.
 
 Shang Guanmo fut stupéfait. Il s'apprêtait à répliquer, mais face à la froideur du regard de Wang Lin, il se tut et hocha la tête.
 
-« Préparez-moi une chambre. Je vais entrer en culture de méditation intensive. » Wang Lin saisit Li Muwan et s'envola vers la Secte de la Lutte contre le Mal.
+« Préparez-moi une chambre. Je vais entrer en culture de méditation intensive. » Wang Lin saisit Li Muwan et s'envola vers la Secte Dou Xie.
 
 La chambre fut rapidement préparée. Il s'agissait du lieu de retraite que Jie Donglei s'était fait construire, situé dans la tête du dragon. Wang Lin s'assit en tailleur et regarda Li Muwan, dont l'expression était complexe, puis dit: « Une fois ma méditation terminée, je te ramènerai chez toi. D'ici là, tu es libre de faire ce que tu souhaites. » Sur ces mots, il ferma les yeux pour se plonger dans sa culture.
 

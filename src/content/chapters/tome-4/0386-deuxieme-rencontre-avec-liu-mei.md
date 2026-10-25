@@ -42,9 +42,9 @@ Un homme et un drapeau avaient commencé à se voler mutuellement des fragments 
 
 Parmi ces fragments, il y avait des âmes fortes et faibles. Durant cette période, Wang Lin en trouva une qui se trouvait au début du stade de l'Âme Naissante et l'utilisa comme âme principale.
 
-Peu de fragments de niveau Âme Naissante apparaissaient; seulement deux ou trois par an. Chaque fois que l'un d'eux surgissait, les meilleurs disciples de la Secte de l'Affinement de l'Âme se livraient bataille pour s'en emparer.
+Peu de fragments de niveau Âme Naissante apparaissaient; seulement deux ou trois par an. Chaque fois que l'un d'eux surgissait, les meilleurs disciples de la Secte Lian Hun se livraient bataille pour s'en emparer.
 
-Les paroles de Guo Dongjian avaient fait réfléchir Wang Lin. C'était exactement ce qu'il avait pensé: les disciples de la Montagne de l'Extraction de l'Âme extrayaient les âmes des corps pour les sceller dans leurs drapeaux. Il décida qu'il devait trouver le moment opportun pour s'approprier la méthode de production des drapeaux de la Montagne de l'Extraction de l'Âme et l'étudier.
+Les paroles de Guo Dongjian avaient fait réfléchir Wang Lin. C'était exactement ce qu'il avait pensé: les disciples de la Montagne Chou Po de l'Âme extrayaient les âmes des corps pour les sceller dans leurs drapeaux. Il décida qu'il devait trouver le moment opportun pour s'approprier la méthode de production des drapeaux de la Montagne Chou Po de l'Âme et l'étudier.
 
 Quant au vortex d'âme, c'était l'une des trois techniques du manuel. Les trois techniques étaient: condensation, vortex d'âme et sacrifice de sang.
 
@@ -52,11 +52,11 @@ La condensation était plutôt simple. Bien qu'il n'y ait que dix jades au Somme
 
 Le vortex d'âme était une technique très rare, du moins au sein de la Montagne de l'Affinement de l'Âme. Elle exigeait au moins un niveau de culture Âme Naissante pour être apprise, mais tous les cultivateurs de ce stade ne pouvaient pas la maîtriser. Par exemple, Guo Dongjian n'avait toujours pas réussi à l'apprendre. Une fois activée, cette technique absorbait une quantité massive d'âmes. Que ce soit pour le combat ou pour le vol d'âmes, elle était extrêmement puissante.
 
-La dernière technique était le sacrifice de sang. Son usage multipliait par plusieurs la puissance du drapeau d'âmes. Elle expliquait pour un tiers pourquoi la Secte de l'Affinement de l'Âme comptait si peu de disciples tout en étant aussi renommée. Cependant, cette technique était très difficile à cultiver. Même la plupart des disciples au stade avancé de l'Âme Naissante ne parvenaient pas à l'apprendre.
+La dernière technique était le sacrifice de sang. Son usage multipliait par plusieurs la puissance du drapeau d'âmes. Elle expliquait pour un tiers pourquoi la Secte Lian Hun comptait si peu de disciples tout en étant aussi renommée. Cependant, cette technique était très difficile à cultiver. Même la plupart des disciples au stade avancé de l'Âme Naissante ne parvenaient pas à l'apprendre.
 
 Wang Lin agita la main et le vortex d'âme disparut. Il sortit un drapeau d'âmes qui absorba instantanément une grande quantité de fragments d'âme.
 
-L'expression de Guo Dongjian devint très disgracieuse. Il lui avait fallu des années de travail acharné pour rassembler ce drapeau d'âmes, et il venait d'être volé ainsi. Après un soupir, il ne put que sourire amèrement. C'était la loi de la Secte de l'Affinement de l'Âme. Il était venu ici pour voler le drapeau de Wang Lin, mais c'est le sien qui lui avait été dérobé. Il soupira de nouveau, salua Wang Lin d'un geste des mains et partit, l'esprit sombre.
+L'expression de Guo Dongjian devint très disgracieuse. Il lui avait fallu des années de travail acharné pour rassembler ce drapeau d'âmes, et il venait d'être volé ainsi. Après un soupir, il ne put que sourire amèrement. C'était la loi de la Secte Lian Hun. Il était venu ici pour voler le drapeau de Wang Lin, mais c'est le sien qui lui avait été dérobé. Il soupira de nouveau, salua Wang Lin d'un geste des mains et partit, l'esprit sombre.
 
 Wang Lin plaça l'Âme Naissante qu'il venait de capturer dans son drapeau d'âmes. Celle-ci commença bientôt à lutter contre l'Âme Naissante déjà présente. Wang Lin ne regarda plus le drapeau; il savait que le vainqueur deviendrait la nouvelle âme principale et que le perdant deviendrait le subordonné du gagnant.
 

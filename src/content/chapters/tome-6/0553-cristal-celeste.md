@@ -98,7 +98,7 @@ Wang Lin avait expérimenté les tableaux de transfert trop souvent pour être d
 
 Cela signifiait que quelqu'un avait placé un point de transmission à l'endroit désigné par Yao Xixue. Il suffisait d'activer ce point de transmission pour atteindre ce lieu depuis n'importe où.
 
-Cependant, il était évident qu'il fallait se trouver à l'intérieur de la Terre des Esprits Démoniaques pour que le transfert réussisse.
+Cependant, il était évident qu'il fallait se trouver à l'intérieur de la Terre Yao Ling pour que le transfert réussisse.
 
 Après le bref inconfort dû au tableau de transfert, Wang Lin vit des traînées de sang défiler rapidement sous ses pieds, formant une sorte de formation sanglante.
 

@@ -20,7 +20,7 @@ Wang Lin bondit. Il saisit le jade et le projeta dans son sac de rangement.
 
 Tout cela s'était produit avec une rapidité fulgurante; on aurait pu comparer cet acte à un coup de foudre. Simultanément, les deux autres cultivateurs avaient broyé leurs jades. Une fumée rose apparut et se propagea en vagues dans les environs.
 
-Dès que les cercueils transportés par les disciples de la Secte des Cadavres entrèrent en contact avec la fumée rose, des bruits de grattements s'élevèrent de l'intérieur. C'était comme si des personnes gisaient dans ces cercueils et en grattaient les parois avec leurs ongles.
+Dès que les cercueils transportés par les disciples de la Secte Shi Yin entrèrent en contact avec la fumée rose, des bruits de grattements s'élevèrent de l'intérieur. C'était comme si des personnes gisaient dans ces cercueils et en grattaient les parois avec leurs ongles.
 
 Quant aux disciples de l'Établissement des Fondations, ils semblaient tous frappés par une technique de contention; ils étaient totalement incapables de bouger.
 
@@ -28,7 +28,7 @@ Après avoir broyé leurs jades, les deux cultivateurs du dernier stade de l'Ét
 
 Ils disparurent dans l'ouverture en un éclair, puis la porte se dissipa en de multiples éclats de lumière dorée avant de s'évanouir sans laisser de trace.
 
-Wang Lin ne prononça pas un mot. Il recula rapidement tout en observant les disciples de la Secte des Cadavres, plongé dans ses réflexions.
+Wang Lin ne prononça pas un mot. Il recula rapidement tout en observant les disciples de la Secte Shi Yin, plongé dans ses réflexions.
 
 Les bruits de grattements devinrent plus assourdissants, jusqu'à ce que l'un des cercueils se brise et qu'une paire de mains griffues d'un noir de jais en jaillisse, suivie d'un bruit de respiration lourde.
 
@@ -50,11 +50,11 @@ Cependant, toutes ne réagirent pas ainsi. Environ un tiers des marionnettes sor
 
 Wang Lin était stupéfait devant ce spectacle. Toutes les marionnettes qui avaient pris l'apparence de leurs maîtres possédaient une culture proche du dernier stade de l'Établissement des Fondations. Wang Lin fixa ces dix et quelques monstres, le cuir chevelu engourdi par la terreur, tout en reculant lentement.
 
-Des cris retentirent bientôt dans cette direction. Toutes les marionnettes ayant revêtu la forme de leurs maîtres se jetèrent sur les disciples restants de la Secte des Cadavres.
+Des cris retentirent bientôt dans cette direction. Toutes les marionnettes ayant revêtu la forme de leurs maîtres se jetèrent sur les disciples restants de la Secte Shi Yin.
 
 Le sang et les membres volaient dans les airs. Wang Lin fit volte-face et s'enfuit sans un mot.
 
-Après avoir parcouru une grande distance, Wang Lin s'arrêta à la lisière d'une jungle. Il avait le sentiment d'avoir enfin découvert la véritable férocité de la Secte des Cadavres. S'il n'avait pas empêché ce cultivateur de broyer le jade, il serait devenu la nourriture de ces créatures.
+Après avoir parcouru une grande distance, Wang Lin s'arrêta à la lisière d'une jungle. Il avait le sentiment d'avoir enfin découvert la véritable férocité de la Secte Shi Yin. S'il n'avait pas empêché ce cultivateur de broyer le jade, il serait devenu la nourriture de ces créatures.
 
 Wang Lin eut un rire froid dans son cœur. Il savait que la Vallée Jue Ming était extrêmement dangereuse, car les sectes orthodoxes et démoniaques y étaient toutes rassemblées pour la compétition visant à obtenir le droit d'accéder au champ de bataille étranger. Wang Lin ne voulait pas s'immiscer dans ces troubles; il comptait trouver la sortie pour quitter cet endroit. Pour l'instant, il voulait simplement trouver des lieux imprégnés d'un Yin extrême pour se consacrer à une culture en porte close et devenir plus fort.
 
@@ -66,13 +66,13 @@ Alors qu'il était absorbé par ses pensées, Wang Lin recula brusquement. Une l
 
 « Petit garnement, tu esquives vite! » Un jeune homme vêtu de luxueux habits sortit lentement de l'ombre. Après avoir inspecté Wang Lin, il demanda: « De quelle secte es-tu? »
 
-Wang Lin répondit froidement: « Secte des Cadavres. »
+Wang Lin répondit froidement: « Secte Shi Yin. »
 
-Le jeune homme élégamment vêtu fut surpris. Il demanda: « Secte des Cadavres? La rumeur prétend que tous les disciples de cette secte transportent un cercueil. Où est le tien? »
+Le jeune homme élégamment vêtu fut surpris. Il demanda: « Secte Shi Yin? La rumeur prétend que tous les disciples de cette secte transportent un cercueil. Où est le tien? »
 
 Wang Lin le fixa en fronçant les sourcils.
 
-Le jeune homme laissa échapper un reniflement méprisant. Il pointa un doigt vers Wang Lin et une lueur noire apparut dans sa main: « Peu importe que tu sois de la Secte des Cadavres ou non. Remets-moi ton sac de rangement. »
+Le jeune homme laissa échapper un reniflement méprisant. Il pointa un doigt vers Wang Lin et une lueur noire apparut dans sa main: « Peu importe que tu sois de la Secte Shi Yin ou non. Remets-moi ton sac de rangement. »
 
 Une lueur glaciale passa dans les yeux de Wang Lin. Il déploya son Sens Divin et découvrit que trois autres personnes se cachaient dans la jungle. Sans dire un mot, il recula de quelques pas.
 

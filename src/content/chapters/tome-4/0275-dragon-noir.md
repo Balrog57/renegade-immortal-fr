@@ -12,7 +12,7 @@ Dans un rugissement tonnerre, toutes les déchirures situées dans un rayon de 5
 
 Des tours de glace descendirent du gouffre, l'une après l'autre.
 
-Les cultivateurs de Xue Yu différaient grandement de ceux des autres pays de culture. À l'instar du Clan des Démons Géants, ils ne possédaient pas de multiples sectes; ils formaient un seul et même clan.
+Les cultivateurs de Xue Yu différaient grandement de ceux des autres pays de culture. À l'instar du Clan Ju Mo, ils ne possédaient pas de multiples sectes; ils formaient un seul et même clan.
 
 À Xue Yu, une fois qu'un cultivateur atteignait le stade de l'Âme Naissante, il pouvait manifester un géant de glace à partir de son Âme Naissante pour mener le combat. C'était là un symbole de son rang.
 

@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1920 - I Won’t Die, You Won’t die !"
 slug: je-ne-mourrai-pas-tu-ne-mourras-pas
 ---
-Après avoir fusionné le Dao avec son corps, un coup de poing ou un coup de pied pouvait contenir une multitude de sorts. C'était la manière la plus puissante pour un Exalté Empyréen de manifester sa puissance. L'ancêtre de la Secte du Dao Démoniaque pouvait fusionner 27 sorts au sein de son poing; une force suffisante pour anéantir n'importe quel cultivateur de rang inférieur à l'Exalté Empyréen.
+Après avoir fusionné le Dao avec son corps, un coup de poing ou un coup de pied pouvait contenir une multitude de sorts. C'était la manière la plus puissante pour un Exalté Empyréen de manifester sa puissance. L'ancêtre de la Secte Dao Mo pouvait fusionner 27 sorts au sein de son poing; une force suffisante pour anéantir n'importe quel cultivateur de rang inférieur à l'Exalté Empyréen.
 
 La clé résidait dans le nombre de sorts pouvant être fusionnés, et non dans la diversité de ces derniers. Certains Exaltés Empyréens ne possédaient peut-être pas des dizaines de sorts différents, mais ils pouvaient en fusionner des dizaines d'un même type pour atteindre une puissance de combat similaire.
 
@@ -42,7 +42,7 @@ Cette Charge du Taureau Céleste pouvait parfaitement manifester la puissance em
 
 Les 98 corps levèrent tous les mains, formant des cornes sur leurs têtes. Dans un rugissement continu qui résonna, ils chargèrent en avant!
 
-La terre trembla et le ciel se mua en vide. La lumière du soleil de l'après-midi s'effondra et se dissipa, et les seules choses subsistant au monde étaient l'ancêtre de la Secte du Dao Démoniaque, son trou noir et les 98 Wang Lin!
+La terre trembla et le ciel se mua en vide. La lumière du soleil de l'après-midi s'effondra et se dissipa, et les seules choses subsistant au monde étaient l'ancêtre de la Secte Dao Mo, son trou noir et les 98 Wang Lin!
 
 Les 98 clones se dissipèrent jusqu'à ce qu'un seul corps ne subsiste. Celui-ci laissa échapper un rugissement fracassant après avoir déclenché 98 Charges du Taureau Céleste consécutives!
 
@@ -60,9 +60,9 @@ Si cette scène était une peinture, elle deviendrait un trésor inestimable à 
 
 Les 27 sorts à l'intérieur du trou noir furent pulvérisés. Le trou noir lui-même trembla et se désintégra sous l'impact!
 
-L'effondrement du trou noir fit marquer une pause à la tête géante du Taureau Céleste, mais cela ne put l'arrêter. Le Taureau Céleste chargea droit sur l'ancêtre de la Secte du Dao Démoniaque.
+L'effondrement du trou noir fit marquer une pause à la tête géante du Taureau Céleste, mais cela ne put l'arrêter. Le Taureau Céleste chargea droit sur l'ancêtre de la Secte Dao Mo.
 
-Tout se passa à une vitesse fulgurante. À l'instant même où le trou noir s'effondra, la corne du Taureau Céleste atteignit l'ancêtre de la Secte du Dao Démoniaque.
+Tout se passa à une vitesse fulgurante. À l'instant même où le trou noir s'effondra, la corne du Taureau Céleste atteignit l'ancêtre de la Secte Dao Mo.
 
 L'expression du vieil homme aux cheveux roux changea brusquement. Ses yeux trahirent une rare trace de choc et il recula précipitamment.
 
@@ -86,7 +86,7 @@ Le vieil homme aux cheveux roux battit en retraite. Alors que l'ombre du second 
 
 Cette robe était un présent du Grand Empyréen Dao Yi. En des moments cruciaux, elle pouvait sauver une vie!
 
-Dès que l'aura du Grand Empyréen se manifesta, une ombre vague apparut devant l'ancêtre de la Secte du Dao Démoniaque. Cette silhouette était formée par un fragment du Sens Divin du Grand Empyréen Dao Yi.
+Dès que l'aura du Grand Empyréen se manifesta, une ombre vague apparut devant l'ancêtre de la Secte Dao Mo. Cette silhouette était formée par un fragment du Sens Divin du Grand Empyréen Dao Yi.
 
 Cette figure surgit soudainement et bloqua la Charge du Taureau Céleste. Puis, elle pivota brusquement pour asséner un coup de poing à l'attaque!
 
@@ -96,7 +96,7 @@ Lorsque l'ombre du Taureau disparut, Wang Lin fut projeté en arrière sur mille
 
 « Grand Empyréen Dao Yi!! »
 
-« Salutations, Grand Empyréen Dao Yi!! » Derrière l'ombre indistincte, l'ancêtre de la Secte du Dao Démoniaque joignit immédiatement les mains et s'inclina respectueusement devant la silhouette.
+« Salutations, Grand Empyréen Dao Yi!! » Derrière l'ombre indistincte, l'ancêtre de la Secte Dao Mo joignit immédiatement les mains et s'inclina respectueusement devant la silhouette.
 
 L'ombre, initialement floue, finit par révéler clairement la figure qu'elle abritait.
 
@@ -110,7 +110,7 @@ Le sol fracassé était également immobile. Une partie de la surface était dé
 
 Cette scène fit se contracter les pupilles de Wang Lin. Il sentit même son propre rythme cardiaque ralentir sous l'effet de cette aura étrange, comme si son cœur allait s'arrêter, à l'instar du reste du monde.
 
-Le plus frappant était le sang que l'ancêtre de la Secte du Dao Démoniaque avait craché. Il aurait dû s'écraser au sol, mais il flottait désormais dans les airs.
+Le plus frappant était le sang que l'ancêtre de la Secte Dao Mo avait craché. Il aurait dû s'écraser au sol, mais il flottait désormais dans les airs.
 
 « Est-ce là la puissance d'un Grand Empyréen... Ce n'est qu'un fragment de Sens Divin laissé sur la robe... Et pourtant, ce simple fragment exerce une pression telle que le monde et tout ce qui s'y trouve n'osent plus bouger! »
 

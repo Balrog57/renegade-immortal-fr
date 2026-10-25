@@ -6,13 +6,13 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1880 - Top Secret Plan!"
 slug: plan-top-secret
 ---
-Durant ces sept jours, le palais souterrain resta plongé dans un silence de mort. Même lorsqu'ils sortaient, les cultivateurs conservaient inconsciemment le silence. Dans cette atmosphère feutrée, certains quittèrent prudemment le palais pour remonter à la surface. En découvrant la Prairie de l'Extrême Ciel, qui semblait avoir été totalement bouleversée, ils restèrent stupéfaits.
+Durant ces sept jours, le palais souterrain resta plongé dans un silence de mort. Même lorsqu'ils sortaient, les cultivateurs conservaient inconsciemment le silence. Dans cette atmosphère feutrée, certains quittèrent prudemment le palais pour remonter à la surface. En découvrant la Prairie Ji Tian, qui semblait avoir été totalement bouleversée, ils restèrent stupéfaits.
 
 Se remémorant les trois phrases que Wang Lin avait prononcées avant de se retirer en méditation, ceux qui contemplaient les changements radicaux de la prairie ressentirent une vague de terreur. Cela prouvait que les paroles de Wang Lin étaient toutes vraies.
 
-De plus, il ne restait plus un seul cultivateur du Continent du Démon Vert sur la Prairie de l'Extrême Ciel. Les mots de Wang Lin résonnaient dans le cœur de chacun.
+De plus, il ne restait plus un seul cultivateur du Continent Lu Mo sur la Prairie Ji Tian. Les mots de Wang Lin résonnaient dans le cœur de chacun.
 
-Yan Luan arriva également à la surface et observa les environs, une profonde crainte dans le regard. Son niveau de culture étant élevé, elle pouvait percevoir ce que les autres ne voyaient pas: du point de vue de sa perception, une empreinte de paume gigantesque marquait la Prairie de l'Extrême Ciel! Mais comme on se trouvait à l'intérieur de cette empreinte, on la négligeait facilement.
+Yan Luan arriva également à la surface et observa les environs, une profonde crainte dans le regard. Son niveau de culture étant élevé, elle pouvait percevoir ce que les autres ne voyaient pas: du point de vue de sa perception, une empreinte de paume gigantesque marquait la Prairie Ji Tian! Mais comme on se trouvait à l'intérieur de cette empreinte, on la négligeait facilement.
 
 « Un massacre d’une violence inouïe a eu lieu ici il y a sept jours... », songea silencieusement Yan Luan.
 
@@ -20,13 +20,13 @@ Xu Dongde se tenait aux côtés de Yan Luan, le regard complexe parcourant l'hor
 
 « Cet Ancien Wang va bientôt s'élever vers les cieux. Je crains que dans quelques années, nous ne devions plus l'aborder qu'avec un immense respect », soupira Xu Dongde.
 
-Sept jours passèrent, puis plus d'une demi-lune. Près d'un mois s'était écoulé depuis le massacre. Durant cette période, certains cultivateurs s'étaient dispersés vers les confins de la Prairie de l'Extrême Ciel pour vérifier s'il restait des survivants du Continent du Démon Vert. Mais en fin de compte, ils ne trouvèrent rien.
+Sept jours passèrent, puis plus d'une demi-lune. Près d'un mois s'était écoulé depuis le massacre. Durant cette période, certains cultivateurs s'étaient dispersés vers les confins de la Prairie Ji Tian pour vérifier s'il restait des survivants du Continent Lu Mo. Mais en fin de compte, ils ne trouvèrent rien.
 
 Tout était conforme à ce que Wang Lin avait prédit avant sa méditation: hormis quelques rares rescapés, tous les autres étaient morts.
 
-Bien que la flamme de la guerre brûlât toujours sur le Continent du Taureau Céleste, une paix rare régnait sur la Prairie de l'Extrême Ciel. Aucune nouvelle directive ne provenant ni de la Secte de la Grande Âme, ni de la Secte Gui Yi, personne ne pouvait partir; ils n'avaient d'autre choix que de garder le troisième méridien.
+Bien que la flamme de la guerre brûlât toujours sur le Continent Tian Niu, une paix rare régnait sur la Prairie Ji Tian. Aucune nouvelle directive ne provenant ni de la Secte Da Hun, ni de la Secte Gui Yi, personne ne pouvait partir; ils n'avaient d'autre choix que de garder le troisième méridien.
 
-Bien que les jours fussent monotones, la situation devenait intéressante dès qu'un cultivateur dénichait un trésor brisé sur la prairie. De plus en plus de cultivateurs s'aventuraient hors de leurs bases pour chercher les reliques et les objets laissés par les défunts du Continent du Démon Vert. Cependant, la grande majorité d'entre eux avait été détruite par le sort de Wang Lin. Même ceux qui subsistaient étaient pour la plupart brisés, bien que certains conservassent une certaine valeur malgré leur état.
+Bien que les jours fussent monotones, la situation devenait intéressante dès qu'un cultivateur dénichait un trésor brisé sur la prairie. De plus en plus de cultivateurs s'aventuraient hors de leurs bases pour chercher les reliques et les objets laissés par les défunts du Continent Lu Mo. Cependant, la grande majorité d'entre eux avait été détruite par le sort de Wang Lin. Même ceux qui subsistaient étaient pour la plupart brisés, bien que certains conservassent une certaine valeur malgré leur état.
 
 Cette existence était plaisante pour les cultivateurs: point de massacre, point de mort, et parce qu'ils avaient combattu côte à côte, ils se sentaient familiers les uns aux autres, bien qu'ils fussent des étrangers.
 
@@ -38,13 +38,13 @@ Le temps reprit sa course inexorable. Un mois, deux mois, trois mois. Durant ces
 
 Un jour, alors que quelques centaines de cultivateurs formaient un petit marché sur la prairie pour échanger leurs trouvailles et leurs propres biens, un grondement sourd retentit au loin. Ce bruit soudain fit pâlir leurs visages. Ils se levèrent d'un bond, la légèreté des trois derniers mois s'effaçant devant une expression solennelle.
 
-Le grondement ne provenait pas de la Prairie de l'Extrême Ciel, mais de bien plus loin. Bien qu'il eût parcouru une distance inconnue, il plongea le monde dans une pénombre oppressante. Le tumulte se propagea instantanément au-dessus d'eux, dégageant une aura de sang et de férocité que l'on ne pouvait voir, mais que l'on ressentait viscéralement.
+Le grondement ne provenait pas de la Prairie Ji Tian, mais de bien plus loin. Bien qu'il eût parcouru une distance inconnue, il plongea le monde dans une pénombre oppressante. Le tumulte se propagea instantanément au-dessus d'eux, dégageant une aura de sang et de férocité que l'on ne pouvait voir, mais que l'on ressentait viscéralement.
 
 Les centaines de cultivateurs furent saisis d'effroi. Ils ignoraient la cause de ce fracas. Certains aperçurent vaguement, à l'horizon du monde, un Taureau Céleste couvert de sang poussant un rugissement de détresse. Ce grondement qui ébranlait la terre était le cri du Taureau Céleste; s'il persistait, c'était parce que la créature semblait fuir dans la douleur.
 
 Toutefois, moins de quelques dizaines de cultivateurs avaient pu entrevoir confusément cette scène; parmi ces centaines de personnes, tous restèrent silencieux.
 
-Alors que le rugissement balayait les lieux, il enveloppa toute la Prairie de l'Extrême Ciel. Dans le palais souterrain, les cultivateurs ouvrirent les yeux, le visage transfiguré par l'inquiétude. Ils se précipitèrent tous à la surface pour scruter le ciel.
+Alors que le rugissement balayait les lieux, il enveloppa toute la Prairie Ji Tian. Dans le palais souterrain, les cultivateurs ouvrirent les yeux, le visage transfiguré par l'inquiétude. Ils se précipitèrent tous à la surface pour scruter le ciel.
 
 Les expressions de Yan Luan et de ses compagnons changèrent également lorsqu'ils émergèrent du palais. Ils jetèrent un regard vers la grotte de Wang Lin avant de courir vers la surface.
 
@@ -60,7 +60,7 @@ Le cœur de Wang Lin trembla. Entendant le grondement sourd, il leva les yeux ve
 
 Il était évident que cette personne, tout comme Wang Lin, avait été reconnue par le Taureau Céleste et qu'elle avait reçu pour mission de garder l'un des sept méridiens.
 
-Wang Lin observa cet homme traverser un massacre après l'autre. Finalement, celui-ci fut frappé neuf fois de suite par une main rouge descendue du ciel. L'armure de l'individu s'effondra et il rendit l'âme. La main rouge trembla puis se métamorphosa en un vieil homme aux cheveux roux. Ce dernier arborait une expression sombre et se tenait dans les airs tel le souverain des cieux et de la terre, vénéré par tous les cultivateurs du Continent du Démon Vert en contrebas!
+Wang Lin observa cet homme traverser un massacre après l'autre. Finalement, celui-ci fut frappé neuf fois de suite par une main rouge descendue du ciel. L'armure de l'individu s'effondra et il rendit l'âme. La main rouge trembla puis se métamorphosa en un vieil homme aux cheveux roux. Ce dernier arborait une expression sombre et se tenait dans les airs tel le souverain des cieux et de la terre, vénéré par tous les cultivateurs du Continent Lu Mo en contrebas!
 
 Wang Lin ne pouvait ressentir son aura à travers ces visions, mais le fait que ce vieil homme ait tué un porteur d'armure de l'âme signifiait que sa culture était monstrueuse!
 
@@ -72,9 +72,9 @@ Il fallut plusieurs heures pour que ce rugissement violent ne se dissipe dans le
 
 Au cours des deux mois suivants, les cultivateurs ne furent plus du tout détendus, mais au contraire extrêmement tendus. En effet, le rugissement d'il y a deux mois s'était répété deux fois supplémentaires! Ces trois rugissements, faibles mais puissants, accablèrent le cœur de chacun sous une pression croissante.
 
-Le septième jour suivant ces deux mois, un rayon de lumière fonça vers la Prairie de l'Extrême Ciel depuis le Continent du Taureau Céleste. Le rayon atteignit rapidement le dessus du palais souterrain et se mua en un vieil homme vêtu de noir, dont l'état paraissait pitoyable. Cet homme n'appartenait pas à la Secte de la Grande Âme, il venait de la Secte Gui Yi!
+Le septième jour suivant ces deux mois, un rayon de lumière fonça vers la Prairie Ji Tian depuis le Continent Tian Niu. Le rayon atteignit rapidement le dessus du palais souterrain et se mua en un vieil homme vêtu de noir, dont l'état paraissait pitoyable. Cet homme n'appartenait pas à la Secte Da Hun, il venait de la Secte Gui Yi!
 
-« Habitants du troisième méridien de la Prairie de l'Extrême Ciel, obéissez à cet ordre! Je viens sous le commandement de la Secte de la Grande Âme et de la Secte Gui Yi. Quittez immédiatement ces lieux et repliez-vous à cinq cent mille kilomètres pour vous rassembler au Mont Tian Luan. Quelqu'un vous y attendra. Suivez l'ordre et partez sans tarder! »
+« Habitants du troisième méridien de la Prairie Ji Tian, obéissez à cet ordre! Je viens sous le commandement de la Secte Da Hun et de la Secte Gui Yi. Quittez immédiatement ces lieux et repliez-vous à cinq cent mille kilomètres pour vous rassembler au Mont Tian Luan. Quelqu'un vous y attendra. Suivez l'ordre et partez sans tarder! »
 
 « Propriétaire de l'armure de l'âme du troisième méridien, ce vieil homme, Ouyang Zhen, sollicite une rencontre! » Le vieil homme se tenait dans le ciel, l'air anxieux, mais n'oubliait pas de rester respectueux. Après tout, celui qui possédait l'armure de l'âme méritait les honneurs!
 
@@ -82,4 +82,4 @@ Alors qu'il joignait les mains, Wang Lin ouvrit soudainement les yeux dans le pa
 
 En voyant Wang Lin, le vieil homme fut stupéfait. Il ne s'attendait manifestement pas à ce que le détenteur de l'armure ait un niveau de culture aussi bas, mais il n'osa point le mépriser. Après tout, avoir été capable de protéger cet endroit prouvait que Wang Lin possédait quelque chose d'exceptionnel.
 
-« Les premier, deuxième et septième méridiens du Taureau Céleste ont été détruits par le Continent du Démon Vert. Trois propriétaires d'armures de l'âme sont tombés... Ouyang est venu sur ordre pour informer le propriétaire de l'armure du troisième méridien qu'il doit utiliser une formation de téléportation pour retourner immédiatement à la Secte Gui Yi en vue d'un plan top secret! »
+« Les premier, deuxième et septième méridiens du Taureau Céleste ont été détruits par le Continent Lu Mo. Trois propriétaires d'armures de l'âme sont tombés... Ouyang est venu sur ordre pour informer le propriétaire de l'armure du troisième méridien qu'il doit utiliser une formation de téléportation pour retourner immédiatement à la Secte Gui Yi en vue d'un plan top secret! »

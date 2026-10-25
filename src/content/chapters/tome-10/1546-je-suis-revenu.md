@@ -34,9 +34,9 @@ Une légère odeur de sang flottait encore dans l'air, témoignant de la tragéd
 
 Trois traînées de lumière fusaient au loin. La première appartenait à un cultivateur du Royaume Intérieur. C'était un vieil homme au visage livide qui crachait sans cesse du sang, mais son expression restait féroce.
 
-Derrière lui suivaient deux cultivateurs du Royaume Extérieur arborant des marques distinctes entre les sourcils. L'un appartenait au Clan des Moineaux de Feu et l'autre au Clan du Loup Céleste!
+Derrière lui suivaient deux cultivateurs du Royaume Extérieur arborant des marques distinctes entre les sourcils. L'un appartenait au Clan Huo Que et l'autre au Clan Feng Tian Lang!
 
-Les deux affichaient des visages sombres et une intention cruelle. Le cultivateur du Clan des Moineaux de Feu ricana et agita la main droite. Une flamme jaillit entre ses sourcils.
+Les deux affichaient des visages sombres et une intention cruelle. Le cultivateur du Clan Huo Que ricana et agita la main droite. Une flamme jaillit entre ses sourcils.
 
 « Maître Yan Leizi, vous êtes entré ici plusieurs fois. Croyez-vous que cet endroit appartienne à votre Royaume Intérieur? Nous vous avons laissé filer les dernières fois, mais cette fois, vous resterez ici! »
 
@@ -46,7 +46,7 @@ Les yeux de Maître Yan Leizi étaient empreints de folie. Ses mains formèrent 
 
 Un fracas de tonnerre retentit et, tandis que l'impact se propageait, Maître Yan Leizi cracha du sang. Il utilisa l'énergie du choc pour charger follement vers l'avant. Les fragments derrière lui furent consumés par la mer de flammes et trois d'entre eux s'effondrèrent, mais les restants suivirent Maître Yan Leizi.
 
-« Si le vice-doyen du Conseil Souverain, Tianzhao Shangshi, n'avait pas conclu d'accord avec votre Royaume Intérieur pour cesser tout combat, croyez-vous encore que le Royaume du Vide Brillant vous appartiendrait?! » Le membre du Clan du Loup Céleste afficha un mépris manifeste. Il agita la main droite et un fantôme de loup vert, haut de milliers de pieds, apparut pour bondir sur Maître Yan Leizi.
+« Si le vice-doyen du Conseil Souverain, Tianzhao Shangshi, n'avait pas conclu d'accord avec votre Royaume Intérieur pour cesser tout combat, croyez-vous encore que le Royaume Kun Xu vous appartiendrait?! » Le membre du Clan Feng Tian Lang afficha un mépris manifeste. Il agita la main droite et un fantôme de loup vert, haut de milliers de pieds, apparut pour bondir sur Maître Yan Leizi.
 
 Les deux cultivateurs du Système Stellaire Antique étaient tous deux au sommet du stade de Briseur du Nirvana, tout comme l'actuel Maître Yan Leizi. Le fait qu'il puisse encore tenir était la preuve de sa puissance.
 
@@ -58,23 +58,23 @@ Des grondements tonitruants se firent entendre alors que les fragments explosaie
 
 La voix de Maître Yan Leizi était empreinte de tristesse et ses yeux brillaient de folie. Il savait que tant qu'il parviendrait à s'échapper, ces deux-là ne le poursuivraient plus. Après tout, une fois hors de cette zone, il n'y aurait plus de failles spatiales pour entraver ses mouvements et il pourrait utiliser la courbure spatiale. Même s'ils le poursuivaient, ils hésiteraient à le faire.
 
-Toutefois, il était encore à une certaine distance de la limite de la zone. Maître Yan Leizi serra les dents et recula de toutes ses forces. Le cultivateur du Clan des Moineaux de Feu et celui du Clan du Loup Céleste franchirent l'onde de choc de l'effondrement et se rapprochèrent inexorablement.
+Toutefois, il était encore à une certaine distance de la limite de la zone. Maître Yan Leizi serra les dents et recula de toutes ses forces. Le cultivateur du Clan Huo Que et celui du Clan Feng Tian Lang franchirent l'onde de choc de l'effondrement et se rapprochèrent inexorablement.
 
-« Ridicule. Oubliez Maître Hong Shan et Maître Nan Yunzi, mais qu'en est-il du soi-disant Seigneur du Royaume Scellé? Cet homme a simplement eu de la chance et a sacrifié sa vie. Il est manifestement mort, et pourtant vous persistez à dire qu'il est seulement porté disparu! » Une haine profonde brûlait dans les yeux du cultivateur du Clan des Moineaux de Feu. Il laissa échapper un reniflement méprisant et ses mains formèrent un sceau. Un oiseau de feu noir apparut derrière lui en poussant un cri.
+« Ridicule. Oubliez Maître Hong Shan et Maître Nan Yunzi, mais qu'en est-il du soi-disant Seigneur du Royaume Scellé? Cet homme a simplement eu de la chance et a sacrifié sa vie. Il est manifestement mort, et pourtant vous persistez à dire qu'il est seulement porté disparu! » Une haine profonde brûlait dans les yeux du cultivateur du Clan Huo Que. Il laissa échapper un reniflement méprisant et ses mains formèrent un sceau. Un oiseau de feu noir apparut derrière lui en poussant un cri.
 
-« Le Seigneur du Royaume Scellé est déjà mort, vous le savez mieux que quiconque! S'il était vivant, pourquoi n'est-il pas apparu lors des deuxième et troisième batailles? Pourquoi n'est-il pas intervenu quand Maître Hong Shan était piégé? "Seigneur du Royaume Scellé"... ce n'est qu'un nom usurpé; aux yeux de ce vieil homme, il n'est qu'un enfant! » Les paroles du membre du Clan du Loup Céleste étaient tranchantes. Sa main droite traça un sceau et des poils verts poussèrent soudainement sur tout son bras droit!
+« Le Seigneur du Royaume Scellé est déjà mort, vous le savez mieux que quiconque! S'il était vivant, pourquoi n'est-il pas apparu lors des deuxième et troisième batailles? Pourquoi n'est-il pas intervenu quand Maître Hong Shan était piégé? "Seigneur du Royaume Scellé"... ce n'est qu'un nom usurpé; aux yeux de ce vieil homme, il n'est qu'un enfant! » Les paroles du membre du Clan Feng Tian Lang étaient tranchantes. Sa main droite traça un sceau et des poils verts poussèrent soudainement sur tout son bras droit!
 
-L'expression de Maître Yan Leizi s'assombrit alors qu'il reculait, mais il éclata d'un rire sauvage. Il pointa le cultivateur du Clan des Moineaux de Feu du doigt et sourit férocement: « Ridicule? Il a tué l'ancêtre de votre clan en un instant devant plus de 100 000 cultivateurs du Royaume Extérieur! Avez-vous entendu les cris de douleur de votre ancêtre avant qu'il ne meure?! »
+L'expression de Maître Yan Leizi s'assombrit alors qu'il reculait, mais il éclata d'un rire sauvage. Il pointa le cultivateur du Clan Huo Que du doigt et sourit férocement: « Ridicule? Il a tué l'ancêtre de votre clan en un instant devant plus de 100 000 cultivateurs du Royaume Extérieur! Avez-vous entendu les cris de douleur de votre ancêtre avant qu'il ne meure?! »
 
-L'intention meurtrière dans les yeux du cultivateur du Clan des Moineaux de Feu devint monstrueuse. C'était la douleur même qui déchirait tout leur clan!
+L'intention meurtrière dans les yeux du cultivateur du Clan Huo Que devint monstrueuse. C'était la douleur même qui déchirait tout leur clan!
 
-« Et vous, du Clan du Loup Céleste, votre ancêtre est l'esclave du Seigneur du Royaume Scellé. Bien qu'il se soit enfui, y a-t-il un seul jour où il n'est pas terrifié? Un seul jour où il ne tremble pas de peur? »
+« Et vous, du Clan Feng Tian Lang, votre ancêtre est l'esclave du Seigneur du Royaume Scellé. Bien qu'il se soit enfui, y a-t-il un seul jour où il n'est pas terrifié? Un seul jour où il ne tremble pas de peur? »
 
-Le visage du cultivateur du Clan du Loup Céleste changea radicalement. Les poils verts sur son bras s'allongèrent jusqu'à recouvrir la majeure partie de son torse. Son bras droit se métamorphosa soudainement en une tête de loup gigantesque!
+Le visage du cultivateur du Clan Feng Tian Lang changea radicalement. Les poils verts sur son bras s'allongèrent jusqu'à recouvrir la majeure partie de son torse. Son bras droit se métamorphosa soudainement en une tête de loup gigantesque!
 
-« Va retrouver ton Seigneur du Royaume Scellé dans les enfers! » Dans un rugissement, le cultivateur du Clan du Loup Céleste agita brusquement la main droite. Un hurlement de loup terrifiant résonna et son bras droit se détacha de son corps, se transformant en un loup géant qui fonça sur Maître Yan Leizi!
+« Va retrouver ton Seigneur du Royaume Scellé dans les enfers! » Dans un rugissement, le cultivateur du Clan Feng Tian Lang agita brusquement la main droite. Un hurlement de loup terrifiant résonna et son bras droit se détacha de son corps, se transformant en un loup géant qui fonça sur Maître Yan Leizi!
 
-Simultanément, le cultivateur du Clan des Moineaux de Feu poussa un rugissement. L'oiseau de feu noir laissa échapper un sifflement tandis qu'une mer monstrueuse de flammes noires l'enveloppait. Il chargea vers Maître Yan Leizi à une vitesse fulgurante, aux côtés du loup géant.
+Simultanément, le cultivateur du Clan Huo Que poussa un rugissement. L'oiseau de feu noir laissa échapper un sifflement tandis qu'une mer monstrueuse de flammes noires l'enveloppait. Il chargea vers Maître Yan Leizi à une vitesse fulgurante, aux côtés du loup géant.
 
 Tout cela se produisit en un instant. Maître Yan Leizi esquissa un sourire amer et abandonna toute idée de fuite. La folie s'empara de son regard et une bravoure héroïque déferla sur lui!
 

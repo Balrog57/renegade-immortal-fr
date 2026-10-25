@@ -38,7 +38,7 @@ L'Empereur Céleste resta silencieux un instant, songeant à ces révélations. 
 
 « Tous les temples sont prêts à réveiller les esprits scellés dans leurs continents respectifs. Au prix de leur éveil, la force qui retient la tête de l'Ancêtre Céleste en ces lieux serait ébranlée, et alors seul l'Ancêtre Céleste lui-même pourrait la contenir. Vous auriez été contraint d'hériter de sa puissance, sous peine de voir tout le clan céleste sombrer dans le chaos! Et une fois que vous auriez tenté d'absorber ce pouvoir, vous auriez dû lever le sceau sur mon clan! » parla doucement Hai Zi.
 
-« Comme le Temple du Scorpion Démon Vert... » Les pupilles de l'Empereur Céleste se rétractèrent.
+« Comme le Temple Lu Mo Xie... » Les pupilles de l'Empereur Céleste se rétractèrent.
 
 Hai Zi acquiesça.
 
@@ -60,9 +60,9 @@ Les yeux de l'Empereur Céleste s'illuminèrent. « Wang Lin... Wang Lin... Puis
 
 « L'ancêtre du Clan Dao Wang n'avait diviné qu'une période approximative où quelqu'un sortirait d'un monde de grottes. Il ne pouvait prédire ni l'identité de cette personne, ni le monde concerné. Nous ne pouvions qu'attendre. » Jiu Di secoua la tête.
 
-« Le génie du Clan Dao Wang a créé la Secte de la Grande Âme sur le Continent du Taureau Céleste car la divination prédisait que Wang Lin y apparaîtrait. Ainsi, la première étape consistait à entrer en contact avec lui! » L'Empereur Céleste était perspicace et identifia immédiatement l'essentiel.
+« Le génie du Clan Dao Wang a créé la Secte Da Hun sur le Continent Tian Niu car la divination prédisait que Wang Lin y apparaîtrait. Ainsi, la première étape consistait à entrer en contact avec lui! » L'Empereur Céleste était perspicace et identifia immédiatement l'essentiel.
 
-L'Empereur Céleste leva les yeux et sa voix résonna comme le tonnerre: « Cependant, je me demande si l'ancêtre de la Secte de la Grande Âme savait que ce Wang Lin mourrait ici même, dans ce palais interdit, en guise de prix pour la levée du sceau du Clan Dao Wang.
+L'Empereur Céleste leva les yeux et sa voix résonna comme le tonnerre: « Cependant, je me demande si l'ancêtre de la Secte Da Hun savait que ce Wang Lin mourrait ici même, dans ce palais interdit, en guise de prix pour la levée du sceau du Clan Dao Wang.
 
 « Jiu Di, vous avez utilisé Wang Lin pour attirer le Grand Empyréen Shuangzi ici. Autrement, à vous trois seuls, vous n'auriez pas eu assez de puissance pour me contraindre à tenter d'absorber la force de l'Ancêtre Céleste!
 
@@ -102,11 +102,11 @@ L'Empereur Céleste sombra dans une profonde réflexion.
 
 Au sol, à l'intérieur de l'œil droit terne de la tête de l'Ancêtre Céleste, les yeux de Wang Lin s'illuminèrent tandis qu'il dissimulait son aura. Il avait tout entendu. Ce voyage au palais avait été semé d'embûches. Wang Lin en avait pressenti une partie, mais pas la totalité.
 
-« Le Très Respecté Taureau Vert de la Secte de la Grande Âme m'a dit de revenir dans 300 ans pour monter au dernier étage... Le fondateur de la Secte de la Grande Âme m'a laissé quelque chose...
+« Le Très Respecté Taureau Vert de la Secte Da Hun m'a dit de revenir dans 300 ans pour monter au dernier étage... Le fondateur de la Secte Da Hun m'a laissé quelque chose...
 
-« L'ancêtre de la Secte de la Grande Âme, le génie du Clan Dao Wang. Après m'avoir utilisé pour lever le sceau sur leur clan, que me laissera-t-il... » Wang Lin affichait une expression complexe.
+« L'ancêtre de la Secte Da Hun, le génie du Clan Dao Wang. Après m'avoir utilisé pour lever le sceau sur leur clan, que me laissera-t-il... » Wang Lin affichait une expression complexe.
 
-« Il est apparu sur le Continent du Taureau Céleste et a fondé la Secte de la Grande Âme juste pour m'attendre... Peut-être devais-je mourir selon ses plans... Mais s'il avait diviné ma mort au palais, pourquoi me laisser un présent dans le pavillon, et pourquoi attendre 300 ans?
+« Il est apparu sur le Continent Tian Niu et a fondé la Secte Da Hun juste pour m'attendre... Peut-être devais-je mourir selon ses plans... Mais s'il avait diviné ma mort au palais, pourquoi me laisser un présent dans le pavillon, et pourquoi attendre 300 ans?
 
 « Vous m'avez utilisé et comploté contre moi à chaque étape... Vous avez calculé mon arrivée, je suppose que vous avez aussi calculé ma personnalité. Comment pourrais-je laisser passer cela?! » Wang Lin songea en silence et soupira. Un choc puissant retentit à l'extérieur alors que la tête de l'Ancêtre Céleste s'élevait dans les airs.
 

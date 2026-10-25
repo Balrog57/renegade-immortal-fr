@@ -48,7 +48,7 @@ Wang Lin n'avait aucun intérêt pour cette culture, mais certaines techniques l
 
 Il prit un deuxième jade. Son contenu le fit sourire. Une seule technique y était enregistrée: la pseudo-Technique d'Évasion Terrestre.
 
-Cette technique faisait partie des Cinq Techniques d'Évasion Élémentaires. Ces dernières étaient extrêmement célèbres : à l'époque antique, on les célébrait comme de grands pouvoirs divins. Même aujourd'hui, depuis la destruction de l'ancien monde de la culture et l'apparition de l'Alliance de Culture, les Cinq Techniques d'Évasion Élémentaires restaient rarissimes, et la renommée de leur pouvoir n'en était que plus mystérieuse.
+Cette technique faisait partie des Cinq Techniques d'Évasion Élémentaires. Ces dernières étaient extrêmement célèbres : à l'époque antique, on les célébrait comme de grands pouvoirs divins. Même aujourd'hui, depuis la destruction de l'ancien monde de la culture et l'apparition de l'Alliance Xiu Zhen, les Cinq Techniques d'Évasion Élémentaires restaient rarissimes, et la renommée de leur pouvoir n'en était que plus mystérieuse.
 
 Cependant, les Cinq Techniques d'Évasion Élémentaires étaient si célèbres que d'innombrables branches en avaient dérivé. La plupart se paraient du nom des Cinq Techniques d'Évasion Élémentaires alors que, comparées aux véritables, elles n'en avaient que l'apparence superficielle.
 
@@ -106,7 +106,7 @@ Le lettré d'âge moyen ne s'en sentit pas gêné. Il regarda la femme avec tend
 
 Voyant que le silence s'était installé, l'homme nommé Song dit: « Peu importe. J'espère que l'apparition des bêtes de feu ne fera pas céder les sceaux. Faisons ce que nous faisons d'ordinaire et scellons les volcans dont nous avons la charge. »
 
-La même scène se déroula à la Secte Luo He, à la Secte Démoniaque et à la Secte des Cadavres. Les résultats furent sensiblement les mêmes, et tous les cultivateurs de l'Âme Naissante de Huo Fen s'attelèrent au scellement des volcans.
+La même scène se déroula à la Secte Luo He, à la Secte Démoniaque et à la Secte Shi Yin. Les résultats furent sensiblement les mêmes, et tous les cultivateurs de l'Âme Naissante de Huo Fen s'attelèrent au scellement des volcans.
 
 Soudain, dans tout le pays de Huo Fen, on put voir divers cultivateurs de l'Âme Naissante de différentes sectes planer autour des volcans pour les sceller. Les fluctuations d'énergie spirituelle devinrent également plus violentes ces derniers jours.
 

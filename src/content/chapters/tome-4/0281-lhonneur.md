@@ -74,7 +74,7 @@ Sa voix était chargée d'un ressentiment désormais gravé dans ses os.
 
 Après avoir observé le jeune homme, le regard de Wang Lin se posa sur le vieillard.
 
-Le jeune homme barrait la vue de Wang Lin. Il l'observa un instant, puis, après une courte réflexion, il s'agenouilla brusquement. Il se mordit la lèvre inférieure jusqu'au sang et dit, avec un sourire amer: « Je vous en prie, ne tuez pas mon maître, tuez-moi à sa place! Je suis le chef junior de la Secte de l'Encre d'Eau. Si vous me capturez et me ramenez, vous serez certainement récompensés. Laissez mon maître partir, et je vous suivrai volontiers. Si vous refusez, vous n'obtiendrez que mon cadavre. »
+Le jeune homme barrait la vue de Wang Lin. Il l'observa un instant, puis, après une courte réflexion, il s'agenouilla brusquement. Il se mordit la lèvre inférieure jusqu'au sang et dit, avec un sourire amer: « Je vous en prie, ne tuez pas mon maître, tuez-moi à sa place! Je suis le chef junior de la Secte Shui Mo. Si vous me capturez et me ramenez, vous serez certainement récompensés. Laissez mon maître partir, et je vous suivrai volontiers. Si vous refusez, vous n'obtiendrez que mon cadavre. »
 
 Bien que le regard de Wang Lin fût calme, son cœur fut légèrement ému. Il fixa lentement le jeune homme, puis le vieil homme, avant de demander doucement: « Pourquoi vouloir échanger votre vie contre celle de votre maître? »
 
@@ -84,7 +84,7 @@ Le jeune homme resta silencieux un long moment avant de répondre avec amertume:
 
 Le jeune homme fut surpris, mais ses yeux s'illuminèrent d'espoir et d'excitation. Il se releva aussitôt auprès de son maître: « Maître, vous... vous êtes réveillé! »
 
-Wang Lin observa le vieil homme. Il joignit les mains et dit: « Ce disciple salue le Senior de la Secte de l'Encre d'Eau. »
+Wang Lin observa le vieil homme. Il joignit les mains et dit: « Ce disciple salue le Senior de la Secte Shui Mo. »
 
 Le vieillard toussa plusieurs fois, ses traits devenant encore plus livides. Grâce au domaine de la vie et de la mort de Wang Lin, il percevait clairement l'épaisse aura de mort qui entourait le vieil homme. Il touchait à sa fin.
 

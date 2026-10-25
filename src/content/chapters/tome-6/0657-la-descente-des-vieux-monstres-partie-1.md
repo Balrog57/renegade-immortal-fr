@@ -104,7 +104,7 @@ Plusieurs mois passèrent avant que la fluctuation ne réapparaisse, pour ne tro
 
 « La femme dans le parchemin est probablement très puissante, mais elle est prisonnière de ce parchemin; je crains qu'elle n'ait jamais eu la moindre chance de s'échapper. Cependant, autrefois, dans les ruines de l'héritage immortel, elle avait absorbé la bête-talisman du Troisième Ancêtre et avait acquis une certaine puissance. »
 
-« Je ne l'ai pas inspectée, alors au fil des ans, elle a appris trop de mes secrets. À moins que ce ne soit dû aux circonstances particulières de l'Abîme des Marées, je crains qu'elle n'ait jamais parlé. Elle aurait plutôt attendu patiemment de recouvrer ses forces. »
+« Je ne l'ai pas inspectée, alors au fil des ans, elle a appris trop de mes secrets. À moins que ce ne soit dû aux circonstances particulières de l'Abîme Chao Xi, je crains qu'elle n'ait jamais parlé. Elle aurait plutôt attendu patiemment de recouvrer ses forces. »
 
 « Si je garde un tel danger à mes côtés, cela finira par me nuire! Elle doit avoir des intentions cachées! »
 
@@ -118,11 +118,11 @@ Il prit une grande inspiration et frappa son sac de rangement. La formation des 
 
 « La famille Xiang sur la planète Dong Lin... Même si cette famille n'a aucun lien avec cette femme, je devrais pouvoir trouver des indices sur son identité. Puisqu'elle prétend que l'ancêtre de sa lignée peut ressusciter Wan Er, cela vaut la peine de vérifier. Sans ce parchemin qui me suit, même en me rendant dans le système de Luotian, personne ne saura que je possède la perle défiant le ciel. »
 
-« Après tout, cette Terre des Esprits Démoniaques est saturée de dangers, et Tian Yunzi et sa suite peuvent surgir à tout moment. Une fois qu'ils seront là, notre rencontre sera inévitable. Face à des cultivateurs dont le niveau de culture dépasse mon imagination, je serai impuissant. »
+« Après tout, cette Terre Yao Ling est saturée de dangers, et Tian Yunzi et sa suite peuvent surgir à tout moment. Une fois qu'ils seront là, notre rencontre sera inévitable. Face à des cultivateurs dont le niveau de culture dépasse mon imagination, je serai impuissant. »
 
 Alors qu'il s'élevait, le regard de Wang Lin se fit glacial.
 
-« Cependant, puisque ce dernier jeton est entre mes mains, ils ne pourront pas pénétrer dans la véritable grotte sans moi. Même s'ils viennent sur la Terre des Esprits Démoniaques, cela sera inutile. Et même s'ils apprennent par Tan Lang que je possède le jeton, il sera trop tard. Je serai déjà parti pour le système de Luotian! »
+« Cependant, puisque ce dernier jeton est entre mes mains, ils ne pourront pas pénétrer dans la véritable grotte sans moi. Même s'ils viennent sur la Terre Yao Ling, cela sera inutile. Et même s'ils apprennent par Tan Lang que je possède le jeton, il sera trop tard. Je serai déjà parti pour le système de Luotian! »
 
 « Une fois que mon niveau de culture aura atteint un point où je pourrai traiter d'égal à égal avec Tian Yunzi et ses compagnons, alors je pourrai revenir et percer le secret de cette grotte! »
 

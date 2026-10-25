@@ -1,6 +1,6 @@
 ---
 n: 1350
-title: "Bataille au Clan du Tonnerre Dispersé! (4)"
+title: "Bataille au Clan Shan Lei! (4)"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: "Chapter 1350 - Battle at the Scatter Thunder Clan! (4)"
@@ -40,7 +40,7 @@ Tandis que les grondements tonitruants résonnaient, la sphère de l'Ancien se c
 
 Tout cela se produisit en un instant. Alors que les deux hommes compressaient le tonnerre, un changement titanesque survint. Le monde sembla se déchirer en deux, chaque moitié étant attirée vers l'un d'eux!
 
-Deux forces de tonnerre distinctes jaillirent soudainement de cette faille mondiale! Ce que détenait l'Ancien en chef du Clan du Tonnerre Dispersé était le tonnerre éternel, l'essence du tonnerre descendue du ciel et de la terre il y a d'innombrables éons!
+Deux forces de tonnerre distinctes jaillirent soudainement de cette faille mondiale! Ce que détenait l'Ancien en chef du Clan Shan Lei était le tonnerre éternel, l'essence du tonnerre descendue du ciel et de la terre il y a d'innombrables éons!
 
 Les yeux de l'Ancien brillèrent d'une lueur étrange et il bondit soudainement. Il chargea Wang Lin avec le tonnerre compressé 5 000 000 de fois!
 
@@ -60,7 +60,7 @@ De la même manière, possédant tous deux une résistance naturelle à l'élect
 
 Un fracas assourdissant se propagea et l'espace environnant commença à s'effondrer violemment. Des fissures spatiales apparurent et le lac de tonnerre trembla. La collision des deux sphères généra une onde de choc inimaginable!
 
-Cette onde se répandit comme des vagues déchaînées! L'impact fit jaillir le tonnerre dans toutes les directions, affectant immédiatement les seize planètes de culture du Clan du Tonnerre Dispersé!
+Cette onde se répandit comme des vagues déchaînées! L'impact fit jaillir le tonnerre dans toutes les directions, affectant immédiatement les seize planètes de culture du Clan Shan Lei!
 
 D'innombrables morts et blessés furent causés par ce tumulte!
 
@@ -68,7 +68,7 @@ L'onde de choc fit bouillonner le lac de tonnerre et l'étendit vers l'extérieu
 
 Plusieurs planètes de culture situées non loin du Clan furent touchées; la pluie de tonnerre s'abattit sur elles!
 
-Ce fut comme un effondrement se propageant furieusement au sein du Clan du Tonnerre Dispersé. Cette déflagration était si puissante qu'elle attira immédiatement l'attention de nombreux cultivateurs puissants dans le Système Stellaire Antique!
+Ce fut comme un effondrement se propageant furieusement au sein du Clan Shan Lei. Cette déflagration était si puissante qu'elle attira immédiatement l'attention de nombreux cultivateurs puissants dans le Système Stellaire Antique!
 
 Certains cultivateurs de la troisième étape remarquèrent ce changement colossal!
 
@@ -82,7 +82,7 @@ En ce moment critique, voyant l'onde de choc approcher, Wang Lin ne songeait pas
 
 Alors que la seconde onde de choc arrivait, les mains de Wang Lin formèrent un sceau et pointèrent vers l'avant. Des rayons de lumière jaillirent soudainement au milieu du chaos!
 
-Ces rayons contenaient du tonnerre, des éclairs, de la lumière stellaire, une lumière d'anéantissement, la lumière informe issue des innombrables fissures spatiales, et même la lumière provenant des planètes et des cultivateurs lointains du Clan du Tonnerre Dispersé!
+Ces rayons contenaient du tonnerre, des éclairs, de la lumière stellaire, une lumière d'anéantissement, la lumière informe issue des innombrables fissures spatiales, et même la lumière provenant des planètes et des cultivateurs lointains du Clan Shan Lei!
 
 Plus important encore, une lumière émanait du talisman des 7 Millions de Mondes dans son espace de stockage. Ces lueurs se rassemblèrent frénétiquement autour de Wang Lin, formant soudainement une immense silhouette lumineuse!
 
@@ -110,12 +110,12 @@ Les ondes réfléchies se précipitèrent vers lui, fusionnant avec l'onde de ch
 
 Une crise de vie ou de mort, qu'il n'avait pas connue depuis fort longtemps, surgit soudainement dans son cœur. Il n'eut pas le temps de réfléchir avant que les ondes ne l'engloutissent complètement!
 
-Un grondement tonitruant résonna à travers le monde et ne s'apaisa pas pendant un long moment. Wang Lin utilisa le Monde du Vent et de la Pluie tout en battant en retraite.
+Un grondement tonitruant résonna à travers le monde et ne s'apaisa pas pendant un long moment. Wang Lin utilisa le Monde Hu Feng Huan Yu tout en battant en retraite.
 
 Cependant, à cet instant précis, un rugissement assourdissant chargé d'une colère infinie éclata. Lorsque l'impact se dissipa, une silhouette enveloppée d'un tonnerre éternel apparut!
 
-C'était l'Ancien en chef du Clan du Tonnerre Dispersé, mais il était plus puissant qu'auparavant. Son aura colossale formait une tempête autour de lui; il était infiniment proche de la troisième étape!
+C'était l'Ancien en chef du Clan Shan Lei, mais il était plus puissant qu'auparavant. Son aura colossale formait une tempête autour de lui; il était infiniment proche de la troisième étape!
 
 Ses vêtements étaient en lambeaux et un trou percé par l'épée de sang marquait sa poitrine. Une fissure barrait la marque entre ses sourcils, causée par le Royaume Ji. Son corps était couvert de blessures dues à l'essence de tonnerre de Wang Lin, et son âme originelle était également endommagée par les ondes de choc!
 
-« Tu es mort! Avec ma vitalité infinie du cinquième Fléau Céleste, au nom du Saint Tonnerre Éternel dont je suis l'esclave... j'ouvre le Royaume du Tonnerre Antique et j'invoque, des éons passés... le Dragon du Tonnerre Antique!!! »
+« Tu es mort! Avec ma vitalité infinie du cinquième Fléau Céleste, au nom du Saint Tonnerre Éternel dont je suis l'esclave... j'ouvre le Royaume Tai Gu Lei et j'invoque, des éons passés... le Dragon du Tonnerre Antique!!! »

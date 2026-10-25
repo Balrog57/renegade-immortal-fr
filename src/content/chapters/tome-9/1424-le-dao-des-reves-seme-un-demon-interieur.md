@@ -16,9 +16,9 @@ Briser la nuit du ciel et de la terre, faire couler la lumière des années, rev
 
 Le troisième sort de Wang Lin fut compris après qu'il eut été gravement blessé lors de son combat contre le Shui Daozi. À la frontière de la mort, Wang Lin était entré, avec l'aide du Seigneur du Royaume Scellé, dans le mystérieux Royaume du Dao à l'intérieur de la Perle Défiant le Ciel. Même aujourd'hui, il n'était pas certain de ce qu'était réellement ce Royaume du Dao!
 
-À l'intérieur du Royaume du Dao, deux sorts apparurent dans l'esprit de Wang Lin. Le premier, issu de la Terre des Esprits Démoniaques, était le sort qui avait gravement blessé Tian Yunzi et plus encore le Démon Ancien, le sort salvateur d'un Dieu Ancien à 8 étoiles: le Rêve des Temps Anciens!
+À l'intérieur du Royaume du Dao, deux sorts apparurent dans l'esprit de Wang Lin. Le premier, issu de la Terre Yao Ling, était le sort qui avait gravement blessé Tian Yunzi et plus encore le Démon Ancien, le sort salvateur d'un Dieu Ancien à 8 étoiles: le Rêve des Temps Anciens!
 
-Le second était le tout premier sort de Dao qu'il avait rencontré: le sort Dao Dispersé utilisé par le vieil homme du Clan de l'Extermination des Sceaux dans le Royaume aux Sept Couleurs!
+Le second était le tout premier sort de Dao qu'il avait rencontré: le sort Dao Dispersé utilisé par le vieil homme du Clan Feng Mie dans le Royaume aux Sept Couleurs!
 
 Ces deux sorts étaient extrêmement puissants et s'étaient profondément gravés dans la mémoire de Wang Lin!
 
@@ -28,7 +28,7 @@ Le Rêve des Temps Anciens était un sort de Dieu Ancien; il ne pouvait donc pas
 
 Pourtant, ce sort était tout simplement trop magnifique. Normalement, Wang Lin n'aurait pas été capable de le comprendre, mais en s'appuyant sur le Royaume du Dao, il avait fait preuve d'une persévérance et d'une ténacité sans faille pour fusionner les deux en un seul: le Dao du Rêve!
 
-Autrefois, à l'extérieur de la faille de la Secte Démon dans la Mer des Nuages, Wang Lin n'avait fait qu'un bref essai sur l'Ancien Fléau Céleste, qui avait failli voir son cœur de Dao s'effondrer sans même s'en apercevoir. Si Wang Lin ne le lui avait pas fait remarquer après coup, le cœur de Dao de cet Ancien se serait effondré, entraînant sa mort!
+Autrefois, à l'extérieur de la faille de la Secte Démon dans la Mer Yun, Wang Lin n'avait fait qu'un bref essai sur l'Ancien Fléau Céleste, qui avait failli voir son cœur de Dao s'effondrer sans même s'en apercevoir. Si Wang Lin ne le lui avait pas fait remarquer après coup, le cœur de Dao de cet Ancien se serait effondré, entraînant sa mort!
 
 Le Dao du Rêve, bien que son nom paraisse complexe, était en réalité une forme de démon intérieur!
 
@@ -52,7 +52,7 @@ La flamme de la taille d'un ongle entre ses sourcils brilla avec une violence ac
 
 « Grand Frère, ne dors pas tout le temps, tu avais promis de jouer avec moi aujourd'hui... » « Grand Frère, Grand Frère... »
 
-Dans le Système Stellaire de la Mer des Nuages, dans un village mortel sur un continent flottant, une fillette de sept ou huit ans boudait en poussant un garçon endormi à côté d'elle.
+Dans le Système Stellaire de la Mer Yun, dans un village mortel sur un continent flottant, une fillette de sept ou huit ans boudait en poussant un garçon endormi à côté d'elle.
 
 « Petite Lan, laisse-moi dormir encore un peu. Hier soir, je suis allé avec Petit Tiger et les autres voler des œufs chez les Xu, je suis épuisé... »
 

@@ -12,9 +12,9 @@ Wang Lin s'en souciait peu. Il observa les alentours et partit silencieusement c
 
 Lu Wenran ricana intérieurement, son regard balayant le dos de Wang Lin.
 
-« Pour le bien de la Secte de la Grande Âme, je me suis éloigné de ma secte, je suis resté dans la Mer des Pilules et j'ai pris l'apparence d'un cultivateur errant afin d'attirer l'attention du Continent du Démon Vert. Je suis resté là pendant plus de mille ans... »
+« Pour le bien de la Secte Da Hun, je me suis éloigné de ma secte, je suis resté dans la Mer Dan et j'ai pris l'apparence d'un cultivateur errant afin d'attirer l'attention du Continent Lu Mo. Je suis resté là pendant plus de mille ans... »
 
-« Tout cela pour que le Continent du Démon Vert ne soupçonne rien et envahisse le Continent du Taureau Céleste, comme l'avait prévu l'Ancien Ancêtre... J'ai tout sacrifié, et pourtant l'Ancien Ancêtre ne m'a pas transmis le sortilège d'illusion multicouche complet. Quelles qualifications a-t-il pour le détenir?! »
+« Tout cela pour que le Continent Lu Mo ne soupçonne rien et envahisse le Continent Tian Niu, comme l'avait prévu l'Ancien Ancêtre... J'ai tout sacrifié, et pourtant l'Ancien Ancêtre ne m'a pas transmis le sortilège d'illusion multicouche complet. Quelles qualifications a-t-il pour le détenir?! »
 
 Lu Wenran ricana de nouveau dans son cœur. Soudain, Wang Lin se retourna et croisa son regard.
 
@@ -28,15 +28,15 @@ Une fois les discussions terminées, les trois vieillards invitèrent Lu Wenran 
 
 Les six membres s'avancèrent vers les palais au loin en souriant. Lu Wenran agissait de même, comme s'il avait oublié l'existence même de Wang Lin.
 
-Une fois les six disparus, les membres des autres sectes se dispersèrent. Dès l'arrivée des partisans de la Secte de la Grande Âme, la formation entourant la Prairie du Ciel Extrême s'activa pleinement.
+Une fois les six disparus, les membres des autres sectes se dispersèrent. Dès l'arrivée des partisans de la Secte Da Hun, la formation entourant la Prairie Ji Tian s'activa pleinement.
 
-À l'activation de la formation, un grondement de tonnerre retentit. Une barrière d'énergie large de 10 000 kilomètres s'étendit à travers la Prairie du Ciel Extrême, s'étirant bien au-delà.
+À l'activation de la formation, un grondement de tonnerre retentit. Une barrière d'énergie large de 10 000 kilomètres s'étendit à travers la Prairie Ji Tian, s'étirant bien au-delà.
 
-Simultanément, les cultivateurs de la Secte de la Grande Âme et de la Secte Gui Yi arrivèrent aux six autres méridiens du Taureau Céleste restants. Leur arrivée déclencha également les formations entourant ces méridiens.
+Simultanément, les cultivateurs de la Secte Da Hun et de la Secte Gui Yi arrivèrent aux six autres méridiens du Taureau Céleste restants. Leur arrivée déclencha également les formations entourant ces méridiens.
 
 Ainsi, lorsque les sept méridiens furent activés, la barrière géante se déploya sur l'ensemble des sites.
 
-Au total, sept barrières apparurent, se connectant pour former un rempart titanesque protégeant le Continent du Taureau Céleste de la Mer des Pilules!
+Au total, sept barrières apparurent, se connectant pour former un rempart titanesque protégeant le Continent Tian Niu de la Mer Dan!
 
 Cette barrière, érigée par plus de 100 000 cultivateurs, possédait une épaisseur de 10 000 kilomètres. Ce n'était pas un obstacle qu'un cultivateur ordinaire pourrait franchir; même un être comme l'Illustre Taureau Vert aurait des difficultés à la traverser!
 
@@ -44,15 +44,15 @@ On pourrait dire que c'était presque impossible! Car au-delà de la puissance i
 
 Ces sept méridiens étaient activés à pleine puissance pour la première fois depuis leur création; ils joueraient un rôle vital.
 
-Outre ces sept méridiens, soixante-douze veines terrestres étaient gardées par les membres de la Secte de la Grande Âme, de la Secte Gui Yi et de petites sectes. Ces veines stimulaient sans cesse cette terre et rassemblaient une énergie céleste infinie pour soutenir les sept méridiens du Taureau Céleste!
+Outre ces sept méridiens, soixante-douze veines terrestres étaient gardées par les membres de la Secte Da Hun, de la Secte Gui Yi et de petites sectes. Ces veines stimulaient sans cesse cette terre et rassemblaient une énergie céleste infinie pour soutenir les sept méridiens du Taureau Céleste!
 
-Tout cela visait la défense, mais comment la Secte de la Grande Âme aurait-elle pu se préparer durant tant d'années uniquement pour défendre? Un autre groupe de cultivateurs était chargé de l'offensive et des massacres!
+Tout cela visait la défense, mais comment la Secte Da Hun aurait-elle pu se préparer durant tant d'années uniquement pour défendre? Un autre groupe de cultivateurs était chargé de l'offensive et des massacres!
 
 D'innombrables grottes entouraient les palais souterrains où résidaient les cultivateurs rassemblés. Un sentiment oppressant pesait sur le cœur de chacun: ils savaient qu'une guerre monumentale allait éclater.
 
-Si les cultivateurs du Continent du Démon Vert voulaient briser la barrière, ils devraient détruire les sept méridiens. Pour ce faire, ils enverraient une armée massive pour les assiéger.
+Si les cultivateurs du Continent Lu Mo voulaient briser la barrière, ils devraient détruire les sept méridiens. Pour ce faire, ils enverraient une armée massive pour les assiéger.
 
-Bientôt, le ciel serein de la Prairie du Ciel Extrême serait obscurci par les cultivateurs du Continent du Démon Vert.
+Bientôt, le ciel serein de la Prairie Ji Tian serait obscurci par les cultivateurs du Continent Lu Mo.
 
 Yan Luan choisit également d'entrer en culture fermée afin de maintenir son niveau à son apogée. Xu Dongde et Lu Wenran firent de même, mais ils optèrent pour un palais plutôt qu'une grotte. Après tout, leur statut élevé faisait d'eux la dernière force de défense.
 
@@ -60,7 +60,7 @@ En réalité, quatre autres personnes parmi les 10 000 cultivateurs se trouvaien
 
 Le temps passa tandis que Wang Lin restait assis calmement dans sa petite grotte. De nombreuses grottes l'entouraient, dont une occupée par un vieil homme qui ne reconnut pas Wang Lin après sa guérison, bien que ce dernier l'ait identifié.
 
-Ce vieil homme était celui qui avait discuté avec Wang Lin dans la Prairie du Ciel Extrême. N'étant manifestement pas au stade de la Tribulation du Vide, il ne pouvait accéder aux palais et devait se contenter d'une grotte extérieure.
+Ce vieil homme était celui qui avait discuté avec Wang Lin dans la Prairie Ji Tian. N'étant manifestement pas au stade de la Tribulation du Vide, il ne pouvait accéder aux palais et devait se contenter d'une grotte extérieure.
 
 En vérité, compte tenu de son identité, Wang Lin aurait pu choisir un palais s'il l'avait souhaité, mais cela ne l'intéressait pas. Il préférait la tranquillité de cet endroit plutôt que de subir les murmures et les regards indiscrets s'il avait occupé un palais.
 
@@ -70,29 +70,29 @@ Il sortit également la restriction du compas et la déploya sur la prairie. Cet
 
 Les jours défilèrent sans compter. Hormis les bruits sourds de la culture, un silence de mort régnait entre les palais et les grottes.
 
-Soudain, Wang Lin ouvrit les yeux. À l'instant même, le compas devant lui trembla. Une ligne verte apparut brusquement en bordure de la carte de la Prairie du Ciel Extrême.
+Soudain, Wang Lin ouvrit les yeux. À l'instant même, le compas devant lui trembla. Une ligne verte apparut brusquement en bordure de la carte de la Prairie Ji Tian.
 
 Cette ligne était composée d'innombrables points verts qui se multipliaient à vue d'œil.
 
-« Ils arrivent! » Les yeux de Wang Lin brillèrent en fixant le compas. Il allait ainsi remplir les trois conditions imposées par la Secte de la Grande Âme. Ensuite, il quitterait ces lieux pour rejoindre Dong Lin et le Clan du Dao Antique!
+« Ils arrivent! » Les yeux de Wang Lin brillèrent en fixant le compas. Il allait ainsi remplir les trois conditions imposées par la Secte Da Hun. Ensuite, il quitterait ces lieux pour rejoindre Dong Lin et le Clan Dao Gu!
 
-Alors que Wang Lin percevait l'arrivée des cultivateurs du Continent du Démon Vert, Lu Wenran ouvrit les yeux, le regard glacial.
+Alors que Wang Lin percevait l'arrivée des cultivateurs du Continent Lu Mo, Lu Wenran ouvrit les yeux, le regard glacial.
 
-« Compagnons de culture, les envahisseurs du Continent du Démon Vert sont là! » Sa voix résonna à travers le complexe de palais.
+« Compagnons de culture, les envahisseurs du Continent Lu Mo sont là! » Sa voix résonna à travers le complexe de palais.
 
 L'aura de méditation se dissipa et tous les cultivateurs présents ouvrirent les yeux.
 
 Les quelques experts de la Tribulation du Vide, tels que Yan Luan et Xu Dongde, perçurent l'approche de l'ennemi, et une intention meurtrière envahit l'air.
 
-Un hurlement terrifiant déchira le ciel de la Prairie du Ciel Extrême. Plus de 10 000 cultivateurs survolaient la plaine, occultant le ciel autrefois radieux!
+Un hurlement terrifiant déchira le ciel de la Prairie Ji Tian. Plus de 10 000 cultivateurs survolaient la plaine, occultant le ciel autrefois radieux!
 
 Parmi cette légion, six individus étaient les plus rapides.
 
-Ces six guerriers comprenaient quatre hommes et deux femmes. Somptueusement vêtus, leur niveau de culture représentait le sommet du Continent du Démon Vert! Les deux vieillards dégageant une aura de Tribulation du Vide au stade intermédiaire étaient les deux plus puissants de cette armée de 10 000 cultivateurs.
+Ces six guerriers comprenaient quatre hommes et deux femmes. Somptueusement vêtus, leur niveau de culture représentait le sommet du Continent Lu Mo! Les deux vieillards dégageant une aura de Tribulation du Vide au stade intermédiaire étaient les deux plus puissants de cette armée de 10 000 cultivateurs.
 
 Les quatre autres se situaient au stade initial de la Tribulation du Vide.
 
-Ils chargèrent en tête, suivis par le reste de l'armée qui couvrait le ciel de la Prairie du Ciel Extrême. Une intention meurtrière se propagea telle une nuée noire sur toute la région.
+Ils chargèrent en tête, suivis par le reste de l'armée qui couvrait le ciel de la Prairie Ji Tian. Une intention meurtrière se propagea telle une nuée noire sur toute la région.
 
 « Frère Zhang, unissons nos forces pour tester la puissance des sept méridiens du Taureau Céleste! » lança l'un des vieillards du stade intermédiaire avec un sourire.
 
@@ -106,11 +106,11 @@ Une lueur sombre sembla déchirer le ciel, et trois épées volantes apparurent.
 
 Les trois épées foncèrent aux côtés du géant.
 
-Mais alors que les épées et le colosse approchaient, un brouillard infini jaillit de la Prairie du Ciel Extrême. Cette brume sombre enveloppa la majeure partie de la plaine et continua sa progression.
+Mais alors que les épées et le colosse approchaient, un brouillard infini jaillit de la Prairie Ji Tian. Cette brume sombre enveloppa la majeure partie de la plaine et continua sa progression.
 
 Un rugissement sourd de taureau émana de la brume. Rapidement, ce brouillard massif prit la forme d'un Taureau Céleste, qui poussa un cri assourdissant vers le géant et les trois épées.
 
-Alors que l'écho du rugissement se propageait, le Taureau Céleste explosa soudainement. Le brouillard se propagea avec une rapidité fulgurante vers les cultivateurs du Continent du Démon Vert!
+Alors que l'écho du rugissement se propageait, le Taureau Céleste explosa soudainement. Le brouillard se propagea avec une rapidité fulgurante vers les cultivateurs du Continent Lu Mo!
 
 Simultanément, dans les profondeurs de la terre, Lu Wenran, l'expression grave, poussa un cri de ralliement:
 
@@ -118,8 +118,8 @@ Simultanément, dans les profondeurs de la terre, Lu Wenran, l'expression grave,
 
 Sur cet ordre, sept rayons de lumière jaillirent, Lu Wenran à leur tête. Ils disparurent dans la brume.
 
-En surface, le brouillard enveloppa totalement les cultivateurs du Continent du Démon Vert. Aussitôt, les près de 10 000 combattants restés sous terre s'élancèrent à leur tour.
+En surface, le brouillard enveloppa totalement les cultivateurs du Continent Lu Mo. Aussitôt, les près de 10 000 combattants restés sous terre s'élancèrent à leur tour.
 
 La grande bataille venait de commencer!
 
-Wang Lin faisait partie de ce groupe. Calme, il se fondit instantanément dans la brume. Celle-ci entraverait les cultivateurs du Continent du Démon Vert en obstruant leur Sens Divin et leur énergie céleste; cependant, pour ceux du Continent du Taureau Céleste, le brouillard s'insérerait dans leurs corps pour les nourrir!
+Wang Lin faisait partie de ce groupe. Calme, il se fondit instantanément dans la brume. Celle-ci entraverait les cultivateurs du Continent Lu Mo en obstruant leur Sens Divin et leur énergie céleste; cependant, pour ceux du Continent Tian Niu, le brouillard s'insérerait dans leurs corps pour les nourrir!

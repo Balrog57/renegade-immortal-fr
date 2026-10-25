@@ -47,7 +47,7 @@ Mais la série ne s'arrêta pas là. Dès qu'il eut achevé Nuit Brisée et Temp
 « Montagnes S’Effondrent, Terres S'Écroulent! »
 « Lune Noire, Ciel Dégagé! »
 
-Alors qu'il agitait sa manche, deux lunes noires apparurent aux côtés des deux soleils brillants, créant un contraste d'ombres. Lu Wenran fut alors pris dans le sort de la Secte de la Lune Noire.
+Alors qu'il agitait sa manche, deux lunes noires apparurent aux côtés des deux soleils brillants, créant un contraste d'ombres. Lu Wenran fut alors pris dans le sort de la Secte Yin Yue.
 
 Les fracas du tonnerre se succédèrent. Lu Wenran luttait contre les Empreintes de l'Esprit Guerrier tout en étant brûlé par les Ombrelles Brûlantes du Royaume et frappé par la puissance de Nuit Brisée. Alors que le temps commençait à s'inverser, un rugissement de colère retentit et tous les sorts de Wang Lin s'effondrèrent.
 
@@ -95,7 +95,7 @@ Les cultivateurs environnants étaient stupéfaits, le cœur rempli de peur et d
 
 « Il assassine l'Ancien Wang sous nos yeux. Il tuera certainement tout le monde ici pour étouffer l'affaire! »
 
-« Il n'a plus aucune retenue. S'il obtient l'armure de l'âme, je crains qu'il ne nous massacre tous pour rejeter la faute sur le Continent du Démon Vert! »
+« Il n'a plus aucune retenue. S'il obtient l'armure de l'âme, je crains qu'il ne nous massacre tous pour rejeter la faute sur le Continent Lu Mo! »
 
 Les plus de mille cultivateurs au sol fixaient Lu Wenran avec effroi. Même certains qui avaient initialement choisi son camp ressentaient un profond regret.
 

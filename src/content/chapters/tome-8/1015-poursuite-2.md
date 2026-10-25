@@ -18,7 +18,7 @@ Une fois le sens divin retiré, Wang Lin leva la tête pour scruter l'horizon. S
 
 Lorsqu'on traverse ce désert, particulièrement en l'absence de soleil ou de lune, il est facile de perdre la notion du temps. Si Wang Lin n'avait pas été habitué depuis longtemps à la solitude, il serait devenu fou ici.
 
-Comparée à la solitude qui régnait en ces lieux, ses décennies de culture ou le siècle passé dans la Terre de l'Ancien Dieu étaient bien plus éprouvantes. La solitude actuelle n'était, en vérité, rien de spécial.
+Comparée à la solitude qui régnait en ces lieux, ses décennies de culture ou le siècle passé dans la Terre Gu Shen étaient bien plus éprouvantes. La solitude actuelle n'était, en vérité, rien de spécial.
 
 Tandis qu'il marchait, sa silhouette disparut progressivement au loin, comme si sa silhouette pouvait révéler la solitude qui habitait son cœur.
 

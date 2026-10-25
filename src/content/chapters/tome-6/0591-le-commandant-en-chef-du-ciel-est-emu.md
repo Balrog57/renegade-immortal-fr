@@ -44,7 +44,7 @@ Son visage devint rouge et il lui fallut quelques instants avant de retrouver so
 
 Voyant cela, l'homme en armure dorée fut un peu rassuré et un rictus réapparut sur ses lèvres. Il pensa: « Cet enfant ne pourra jamais atteindre les quinze coups; il n'en est qu'au neuvième et atteint déjà ses limites. Je peux affirmer que dix est son maximum! »
 
-Le silence tomba sur les environs. Personne n'osait plus parler après l'écho de la neuvième résonance sur la place. Ce résultat surpassait celui du premier général démoniaque, Mo Fei, et tous savaient qu'à partir de ce jour, le nom de « Wang Lin » brillerait dans le Pays du Démon Céleste!
+Le silence tomba sur les environs. Personne n'osait plus parler après l'écho de la neuvième résonance sur la place. Ce résultat surpassait celui du premier général démoniaque, Mo Fei, et tous savaient qu'à partir de ce jour, le nom de « Wang Lin » brillerait dans le Pays Tian Yao!
 
 Il faut dire que l'Empereur Démon se souciait peu de l'origine des gens. Le Commandant Céleste n'était-il pas lui aussi un cultivateur?!
 
@@ -128,7 +128,7 @@ Puis, il leva sa main droite et toucha délicatement le tambour démoniaque!
 
 *Dong!* La onzième résonance jaillit du tambour.
 
-À cet instant, une aura de mélancolie se propagea depuis l'instrument. Elle résonna sur toute la place, s'étendant au point d'affecter la Cité du Démon Céleste!
+À cet instant, une aura de mélancolie se propagea depuis l'instrument. Elle résonna sur toute la place, s'étendant au point d'affecter la Cité Tian Yao!
 
 La tristesse contenue dans l'écho du tambour était semblable à celle d'une musique de cithare; elle bouleversait les cœurs!
 

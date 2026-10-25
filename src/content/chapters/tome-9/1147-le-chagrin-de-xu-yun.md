@@ -26,21 +26,21 @@ Cette dernière poussa un rugissement et s'élança dès que les autres âmes di
 
 Un éclair de lumière bleue jaillit. L'âme au Yin extrême sembla percuter une plaque de fer et fut repoussée dans un rugissement. Wang Lin l'ignora totalement, sa main gauche formant de nouvelles restrictions sur le drapeau doré. Il la scella complètement avant de la ranger.
 
-« Non seulement la méthode pour élever ce Yin extrême est erronée, mais elle est aussi incomplète. Puisque cela appartenait à Lu Di, il doit y avoir d'autres indices au sein de la Secte du Dao Pourpre. » Après une courte réflexion, Wang Lin ramassa le flacon pourpre.
+« Non seulement la méthode pour élever ce Yin extrême est erronée, mais elle est aussi incomplète. Puisque cela appartenait à Lu Di, il doit y avoir d'autres indices au sein de la Secte Zi Dao. » Après une courte réflexion, Wang Lin ramassa le flacon pourpre.
 
 Ce flacon de jade était légèrement chaud et formait un cycle autonome en son sein. Une force du ciel et de la terre y circulait, tournant sans fin comme éternelle. Le sens divin de Wang Lin enveloppa l'objet. Sous son influence, le flacon devint lentement transparent, révélant clairement trois pilules qui tournaient lentement au rythme de la force du ciel et de la terre.
 
 Les trois pilules étaient de taille similaire et émettaient toutes une lueur pourpre. Au cœur de chacune, une âme de flamme féroce rugissait sourdement.
 
-Après avoir retiré son sens divin, le regard de Wang Lin se posa sur le troisième objet: un bâton d'encens de la taille d'un bras de nourrisson. Il n'était pas étranger à cet article. Dans l'Alliance, il l'avait vu dans les souvenirs de la bête moustique. Les cultivateurs de la Mer des Nuages utilisaient cet encens pour confondre les bêtes moustiques et les détourner des Quatre Sectes Divines.
+Après avoir retiré son sens divin, le regard de Wang Lin se posa sur le troisième objet: un bâton d'encens de la taille d'un bras de nourrisson. Il n'était pas étranger à cet article. Dans l'Alliance, il l'avait vu dans les souvenirs de la bête moustique. Les cultivateurs de la Mer Yun utilisaient cet encens pour confondre les bêtes moustiques et les détourner des Quatre Sectes Divines.
 
-Le temps s'écoula lentement et la saison des pluies s'estompa, laissant le soleil régner sur le continent de Mo Luo. Wang Lin semblait s'être accoutumé à la vie au sein de la Secte de l'Origine et passait tout son temps à étudier l'alchimie.
+Le temps s'écoula lentement et la saison des pluies s'estompa, laissant le soleil régner sur le continent de Mo Luo. Wang Lin semblait s'être accoutumé à la vie au sein de la Secte Gui Yuan et passait tout son temps à étudier l'alchimie.
 
 Xu Yun se montrait très respectueuse envers cet homme nommé Ceng Niu qui vivait à ses côtés. Bien que Wang Lin ne l'ait pas encore avoué, l'intuition féminine de Xu Yun lui murmurait que Ceng Niu n'était autre que l'homme aux cheveux blancs.
 
 Chaque fois qu'elle songeait à la silhouette de Wang Lin et à la grâce de ce seul doigt, elle se sentait tendue. À cet instant, elle observait Wang Lin avec perplexité.
 
-« Ceci est de l'Herbe Ning Sui. C'est un ingrédient pour la création de pilules. La plupart des pilules de ma Secte de l'Origine nécessitent cela... » Lorsqu'un cultivateur de la Mer des Nuages atteignait un certain niveau de culture, il acquérait une compréhension certaine de l'alchimie, étroitement liée aux méthodes de la Mer des Nuages. Ce qui la déconcertait, c'était que Ceng Niu semblait ignorer tout ce qui était pourtant considéré comme du bon sens.
+« Ceci est de l'Herbe Ning Sui. C'est un ingrédient pour la création de pilules. La plupart des pilules de ma Secte Gui Yuan nécessitent cela... » Lorsqu'un cultivateur de la Mer Yun atteignait un certain niveau de culture, il acquérait une compréhension certaine de l'alchimie, étroitement liée aux méthodes de la Mer Yun. Ce qui la déconcertait, c'était que Ceng Niu semblait ignorer tout ce qui était pourtant considéré comme du bon sens.
 
 Pour que Wang Lin puisse affiner des pilules, il devait d'abord mémoriser les noms et les propriétés de toutes les herbes. Certaines plantes qu'il connaissait de l'Alliance portaient des noms différents ici; Xu Yun était donc devenue la cible privilégiée des interrogations de Wang Lin.
 
@@ -50,9 +50,9 @@ L'expression de Wang Lin restait froide et calme. Il avait utilisé un temps tr�
 
 Wang Lin inspecta les alentours et demanda: « Y a-t-il de la Fleur de Brume? » Le jade qu'il avait vu dans le temple taoïste indiquait que pour affiner une Pilule de Séparation de l'Âme de rang 6 ou supérieur, outre l'âme d'une bête féroce, trois herbes encore plus cruciales étaient nécessaires. L'une d'elles était la Fleur de Brume.
 
-« La Fleur de Brume ne pousse que sur les continents sauvages enveloppés par le brouillard stellaire des domaines stellaires extérieurs. La rumeur veut que plus le brouillard est dense, plus on trouve de Fleurs de Brume. Dans la Secte de l'Origine, je n'en connais que trois exemplaires séchés, et ils sont tous chez l'Oncle-Maître Li. » Après avoir expliqué cela, Xu Yun ajouta:
+« La Fleur de Brume ne pousse que sur les continents sauvages enveloppés par le brouillard stellaire des domaines stellaires extérieurs. La rumeur veut que plus le brouillard est dense, plus on trouve de Fleurs de Brume. Dans la Secte Gui Yuan, je n'en connais que trois exemplaires séchés, et ils sont tous chez l'Oncle-Maître Li. » Après avoir expliqué cela, Xu Yun ajouta:
 
-« Le talent alchimique de l'Oncle-Maître Li est considéré comme inégalé dans toute la Secte de l'Origine. »
+« Le talent alchimique de l'Oncle-Maître Li est considéré comme inégalé dans toute la Secte Gui Yuan. »
 
 Wang Lin hocha la tête et cessa de prêter attention à Xu Yun. Au lieu de cela, il rassembla quelques herbes selon la méthode d'alchimie qu'il gardait en mémoire et retourna dans sa demeure.
 
@@ -82,7 +82,7 @@ Le feu du monde obéissait à sa volonté. À cet instant, des flammes blanches 
 
 Le regard de Wang Lin demeura calme tandis qu'il tendait la main droite. Les herbes en suspension se séparèrent en plusieurs groupes: une partie fut mise de côté, l'autre fut projetée dans la boule de feu.
 
-C'était la première fois que Wang Lin affinait une pilule dans la Mer des Nuages. Bien qu'il ne s'agisse que d'une pilule de rang 3, il se montrait extrêmement sérieux. Il fixa la sphère de feu et son regard en perça l'intimité.
+C'était la première fois que Wang Lin affinait une pilule dans la Mer Yun. Bien qu'il ne s'agisse que d'une pilule de rang 3, il se montrait extrêmement sérieux. Il fixa la sphère de feu et son regard en perça l'intimité.
 
 Les herbes fondirent rapidement au cœur de la flamme, se transformant en poussière. Cependant, grâce au contrôle du feu de Wang Lin, elles ne devinrent pas cendres mais commencèrent à fusionner. Elles absorbèrent les attributs médicinaux uniques les unes des autres pour s'unir.
 

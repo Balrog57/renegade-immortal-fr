@@ -58,9 +58,9 @@ D'un simple geste de la main, il avait tué un homme, ne laissant qu'un trou bé
 
 Certains commencèrent même à observer Wang Lin avec perplexité. Le visage de ce dernier leur semblait étrangement familier, comme s'ils l'avaient déjà croisé.
 
-Derrière l'une des plateformes flottantes au loin, une jeune fille en rouge observait la scène d'un regard timoré. C'était la femme du Clan de l'Extermination des Sceaux qui n'avait plus qu'une seule vie devant elle!
+Derrière l'une des plateformes flottantes au loin, une jeune fille en rouge observait la scène d'un regard timoré. C'était la femme du Clan Feng Mie qui n'avait plus qu'une seule vie devant elle!
 
-Elle avait été séparée de l'homme robuste de l'Estimé Clan du Loup Céleste. Ce dernier avait été envoyé dans une zone inconnue, tandis que la jeune fille avait été projetée au même endroit que Wang Lin.
+Elle avait été séparée de l'homme robuste de l'Estimé Clan Feng Tian Lang. Ce dernier avait été envoyé dans une zone inconnue, tandis que la jeune fille avait été projetée au même endroit que Wang Lin.
 
 L'expression de Wang Lin restait calme alors qu'il faisait un pas en avant. Il arriva bientôt devant une plateforme flottante d'environ 10 000 pieds de large. Une tête gigantesque trônait sur la plateforme, les yeux ouverts, empreints de colère et de regret. Un immense trou béait entre ses sourcils; sa marque avait été arrachée par quelqu'un.
 

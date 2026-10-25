@@ -40,7 +40,7 @@ Chaque fois qu'un cultivateur succombait à la loi du temps, une aura invisible 
 
 À mesure que les cultivateurs mouraient, toujours plus d'auras pénétraient le dragon de sang. Bientôt, la glace bleue qui recouvrait la créature commença à se briser. C'était comme si une vie nouvelle était injectée dans le dragon tandis que la glace craquait.
 
-Les huit rois de la Secte des Cadavres n'étaient nullement affectés par cette loi du temps. Ils progressaient, de plus en plus près, vers le dragon de sang!
+Les huit rois de la Secte Shi Yin n'étaient nullement affectés par cette loi du temps. Ils progressaient, de plus en plus près, vers le dragon de sang!
 
 Dans la direction opposée, Maître Yan Leizi suivait respectueusement le vieil homme en noir. Bien que ce dernier ne semblât pas se déplacer rapidement, chaque pas qu'il faisait donnait l'impression que le vide se contractait sous lui. C'était comme si cette distance infinie n'était plus qu'un pouce de long...
 
@@ -66,7 +66,7 @@ Une voix glaciale émana du vortex et se propagea lentement à travers le vide.
 
 Cette arrogance méprisait la loi et dédaignait les cieux. Pourtant, Maître Yan Leizi ne trouva pas ces paroles insolentes... La puissance de la lance manifestée hors de la planète Suzaku prouvait que cet individu était plus que qualifié pour une telle arrogance!
 
-Les huit rois de la Secte des Cadavres s'arrêtèrent tous, fixant le vortex au loin tout en réfléchissant silencieusement. Cependant, bientôt, des lueurs fantomatiques et divers degrés d'avidité apparurent dans leurs yeux.
+Les huit rois de la Secte Shi Yin s'arrêtèrent tous, fixant le vortex au loin tout en réfléchissant silencieusement. Cependant, bientôt, des lueurs fantomatiques et divers degrés d'avidité apparurent dans leurs yeux.
 
 Wang Lin entendit également ce rugissement. Son corps s'immobilisa et il leva les yeux, son regard révélant une détermination inflexible. Peu importe la puissance de l'ennemi ou la difficulté du chemin, tant que Tuo Sen voudrait tuer Wang Lin, il ne céderait jamais!
 
@@ -74,11 +74,11 @@ Wang Lin entendit également ce rugissement. Son corps s'immobilisa et il leva l
 
 Dans ce vide, il n'y avait pas que les quelques personnes proches du centre à avoir survécu. Certains Briseurs de Nirvana, ayant résisté à la loi du temps, se rapprochaient silencieusement de ce lieu depuis toutes les directions. Quant aux autres cultivateurs restés dans les autres épreuves, à l'extérieur du vide, ils échappèrent heureusement à la loi du temps et survivirent.
 
-Il existait un autre endroit en dehors de ce vide. Il se situait dans un lieu qui n'appartenait pas à la Terre de l'Ancien Dieu parce que... c'était la Terre de l'Ancien Dieu elle-même...
+Il existait un autre endroit en dehors de ce vide. Il se situait dans un lieu qui n'appartenait pas à la Terre Gu Shen parce que... c'était la Terre Gu Shen elle-même...
 
-Cela pouvait sembler contradictoire, mais c'était un fait. La planète Suzaku n'était que l'entrée de la Terre de l'Ancien Dieu. Il s'agissait d'une faille spatiale qui n'appartenait pas à cet espace, une faille extrêmement vaste, assez grande pour contenir le corps gigantesque d'un dieu ancien à 8 étoiles!
+Cela pouvait sembler contradictoire, mais c'était un fait. La planète Suzaku n'était que l'entrée de la Terre Gu Shen. Il s'agissait d'une faille spatiale qui n'appartenait pas à cet espace, une faille extrêmement vaste, assez grande pour contenir le corps gigantesque d'un dieu ancien à 8 étoiles!
 
-Que ce soit le vide ou les épreuves, tout se trouvait, en réalité, à l'intérieur du corps du dieu ancien... Tout comme en ce moment même: que ce soit Wang Lin, les huit rois de la Secte des Cadavres ou le vieil homme en noir, ils se trouvaient tous dans la poitrine du dieu ancien.
+Que ce soit le vide ou les épreuves, tout se trouvait, en réalité, à l'intérieur du corps du dieu ancien... Tout comme en ce moment même: que ce soit Wang Lin, les huit rois de la Secte Shi Yin ou le vieil homme en noir, ils se trouvaient tous dans la poitrine du dieu ancien.
 
 Dans cette faille spatiale silencieuse où le corps du dieu ancien reposait depuis des éons, si l'on agrandissait d'innombrables fois la quatrième des huit étoiles ternes situées entre les sourcils du dieu ancien, on verrait, tout au fond, une personne assise en tailleur!
 

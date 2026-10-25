@@ -8,9 +8,9 @@ slug: esprit-effraye
 ---
 « L'implication de Ling Tianhou en me révélant autant de secrets et en m'aidant est d'établir une bonne relation avec moi... Je crains que la raison principale ne soit le fait que je fasse partie de la Série de l'Oiseau Vermillon... Et qu'une partie de tout cela n'ait pour but que de me rassurer! » L'expression de Wang Lin était calme, mais dans son cœur, il réfléchissait lentement à tout cela.
 
-Après que Ling Tianhou eut pénétré dans la tour, les dizaines de milliers de disciples de la Secte de l'Épée Da Luo se tournèrent vers Wang Lin. Ce dernier était habitué à ce genre d'attention. Son sens divin se propagea calmement dans toutes les directions telle une tempête.
+Après que Ling Tianhou eut pénétré dans la tour, les dizaines de milliers de disciples de la Secte Da Luo Jian se tournèrent vers Wang Lin. Ce dernier était habitué à ce genre d'attention. Son sens divin se propagea calmement dans toutes les directions telle une tempête.
 
-Le sens divin d'un cultivateur au stade initial du Scruteur du Nirvana n'était pas une chose que ces disciples de la Secte de l'Épée Da Luo pouvaient supporter. D'un seul balayage de son sens divin, les expressions de tous les disciples changèrent radicalement; ils regardèrent Wang Lin avec un profond respect dans les yeux.
+Le sens divin d'un cultivateur au stade initial du Scruteur du Nirvana n'était pas une chose que ces disciples de la Secte Da Luo Jian pouvaient supporter. D'un seul balayage de son sens divin, les expressions de tous les disciples changèrent radicalement; ils regardèrent Wang Lin avec un profond respect dans les yeux.
 
 Wang Lin demanda calmement: « Où ce vieil homme peut-il séjourner? »
 

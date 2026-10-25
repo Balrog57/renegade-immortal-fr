@@ -11,13 +11,13 @@ Wang Lin regarda la femme et demanda calmement: « Pourquoi? »
 
 Une intention meurtrière envahit le visage de la femme qui répondit froidement: « Il n'y a aucune raison. Vous pouvez vivre n'importe où, sauf ici! »
 
-Les yeux de Wang Lin s'illuminèrent alors qu'il contemplait le Pavillon des Nuages Pourpres. Après une courte réflexion, il recula de quelques pas, s'assit, les yeux fermés, et commença à cultiver.
+Les yeux de Wang Lin s'illuminèrent alors qu'il contemplait le Pavillon Zi Yun. Après une courte réflexion, il recula de quelques pas, s'assit, les yeux fermés, et commença à cultiver.
 
 Wang Lin n'était pas d'humeur à chercher querelle. Il était venu sur la planète Tian Yun pour trouver un endroit paisible où pratiquer sa culture; il n'avait donc aucune envie de créer une animosité avec quelqu'un pour une simple demeure.
 
-La situation ici était quelque peu complexe. Après avoir réfléchi un instant, il comprit que tout cela devait être lié à ce Pavillon des Nuages Pourpres.
+La situation ici était quelque peu complexe. Après avoir réfléchi un instant, il comprit que tout cela devait être lié à ce Pavillon Zi Yun.
 
-Voyant Wang Lin s'asseoir, la femme fronça les sourcils et lança froidement: « Vous ne pouvez pas rester là non plus. Il vous est interdit de faire le moindre pas dans un rayon de 50 kilomètres autour du Pavillon des Nuages Pourpres. Maintenant, partez! »
+Voyant Wang Lin s'asseoir, la femme fronça les sourcils et lança froidement: « Vous ne pouvez pas rester là non plus. Il vous est interdit de faire le moindre pas dans un rayon de 50 kilomètres autour du Pavillon Zi Yun. Maintenant, partez! »
 
 Wang Lin leva soudain la tête et une intention meurtrière traversa son regard. Cette femme n'était qu'au stade initial de la Transformation de l'Âme; Wang Lin ne la considérait donc pas comme une menace.
 
@@ -27,25 +27,25 @@ Peu après, Wang Lin détourna les yeux, se leva et s'éloigna.
 
 Ce n'est que lorsque sa silhouette disparut de sa vue qu'une brise souffla et que la femme sentit son dos être trempé de sueur froide.
 
-Elle se mordilla la lèvre inférieure. Le regard abattu, elle sortit du Pavillon des Nuages Pourpres. Elle s'assit à ses côtés, fixa le ciel d'un air absent et murmura: « Senior frère Sun Yun, tant que ta sœur junior est ici, personne ne te remplacera, personne! »
+Elle se mordilla la lèvre inférieure. Le regard abattu, elle sortit du Pavillon Zi Yun. Elle s'assit à ses côtés, fixa le ciel d'un air absent et murmura: « Senior frère Sun Yun, tant que ta sœur junior est ici, personne ne te remplacera, personne! »
 
-Sur une magnifique falaise située à 50 kilomètres du Pavillon des Nuages Pourpres, Wang Lin s'arrêta. Il agita la main et une épée volante apparut. L'épée vola vers la paroi rocheuse et, peu après, une grotte fut formée.
+Sur une magnifique falaise située à 50 kilomètres du Pavillon Zi Yun, Wang Lin s'arrêta. Il agita la main et une épée volante apparut. L'épée vola vers la paroi rocheuse et, peu après, une grotte fut formée.
 
 Wang Lin rangea l'épée volante et entra. Après avoir posé plusieurs restrictions, il s'assit et poussa un soupir. Ses yeux brillaient d'une lueur méditative.
 
-« L'atmosphère de la Secte du Destin Céleste est étrange. Je n'ai pas entièrement franchi les trois épreuves et pourtant ce Zhao Xingsha m'a appelé "frère junior" en prétendant que Tian Yunzi m'avait assigné le Pavillon des Nuages Pourpres.
+« L'atmosphère de la Secte Tian Yun est étrange. Je n'ai pas entièrement franchi les trois épreuves et pourtant ce Zhao Xingsha m'a appelé "frère junior" en prétendant que Tian Yunzi m'avait assigné le Pavillon Zi Yun.
 
 « Et maintenant, ce pavillon est gardé par une femme qui refuse que quiconque s'en approche...
 
-« Tout cela est enveloppé d'un brouillard que je ne parviens pas à percer. Je dois trouver un moyen de voir clair dans tout cela, et surtout comprendre l'histoire qui se cache derrière le Pavillon des Nuages Pourpres! »
+« Tout cela est enveloppé d'un brouillard que je ne parviens pas à percer. Je dois trouver un moyen de voir clair dans tout cela, et surtout comprendre l'histoire qui se cache derrière le Pavillon Zi Yun! »
 
-La Secte du Destin Céleste était très calme tard dans la nuit. Hormis les quelques disciples de garde, tous les autres étaient en pleine culture.
+La Secte Tian Yun était très calme tard dans la nuit. Hormis les quelques disciples de garde, tous les autres étaient en pleine culture.
 
 Wang Lin ouvrit les yeux au milieu de la nuit, se leva et sortit de la grotte qu'il avait lui-même créée. Ses yeux s'illuminèrent tandis qu'il inspectait les environs, puis, d'un pas, il se transforma en une fumée noire et disparut.
 
-Le Pavillon des Nuages Pourpres ressemblait à une bête endormie gisant au loin. À cet instant, un pan de fumée noire pénétra dans l'édifice.
+Le Pavillon Zi Yun ressemblait à une bête endormie gisant au loin. À cet instant, un pan de fumée noire pénétra dans l'édifice.
 
-Le Pavillon des Nuages Pourpres comptait trois étages. Wang Lin apparut au premier étage. Le mobilier environnant était très simple, mais au lieu de paraître ordinaire, il dégageait une sensation de pureté rafraîchissante.
+Le Pavillon Zi Yun comptait trois étages. Wang Lin apparut au premier étage. Le mobilier environnant était très simple, mais au lieu de paraître ordinaire, il dégageait une sensation de pureté rafraîchissante.
 
 Après avoir fait le tour, Wang Lin monta au deuxième étage. On y trouvait un lit et quelques coussins d'assise. Une peinture de montagnes et de rivières était accrochée au mur, et à côté d'elle était posée une épée antique. Tout cela semblait tout à fait banal.
 
@@ -53,13 +53,13 @@ La troisième pièce était une chambre secrète dédiée à la culture. Le plaf
 
 Wang Lin ne trouva rien d'anormal dans ce lieu.
 
-Le temps passa lentement et, en un clin d'œil, Wang Lin était déjà installé dans la Division Pourpre de la Secte du Destin Céleste depuis une demi-lunaison.
+Le temps passa lentement et, en un clin d'œil, Wang Lin était déjà installé dans la Division Pourpre de la Secte Tian Yun depuis une demi-lunaison.
 
 Durant cette période, personne ne vint le chercher. Même les autres disciples lui lançaient des regards étranges et l'évitaient comme s'il était un fléau. Tian Yunzi ne l'avait jamais convoqué; c'était comme si Tian Yunzi l'avait oublié.
 
 Personne n'osait approcher à moins de 5 kilomètres de sa grotte, comme s'il s'agissait d'une zone interdite. Pendant ce temps, Zhao Xingsha semblait avoir disparu; il ne se montra plus jamais.
 
-Cette femme apparaissait chaque jour devant le Pavillon des Nuages Pourpres au lever du soleil. Elle fixait l'édifice d'un regard vide durant toute la journée, et cela faisait maintenant un demi-mois qu'elle répétait ce rituel quotidiennement.
+Cette femme apparaissait chaque jour devant le Pavillon Zi Yun au lever du soleil. Elle fixait l'édifice d'un regard vide durant toute la journée, et cela faisait maintenant un demi-mois qu'elle répétait ce rituel quotidiennement.
 
 Si cela continuait ainsi, Wang Lin n'y verrait aucun inconvénient. Pouvoir cultiver sans être importuné était très apaisant. Cependant, l'après-midi du dix-septième jour, alors que Wang Lin cultivait dans sa grotte, il fronça soudain les sourcils et regarda vers l'extérieur.
 
@@ -127,4 +127,4 @@ Là-bas, le second Ancien fut repoussé, affichant une expression amère. Il res
 
 « Petit-fils, reste tranquille pour ton grand-père Xu. Si tu oses bouger d'un seul pouce, je te découperai un morceau! »
 
-Wang Lin regarda calmement l'Ancien et dit lentement: « Puisque cet endroit refuse que je reste discret, je vais me montrer un peu et devenir quelqu'un d'impérieux! Maintenant, dites-moi: qui vivait dans le Pavillon des Nuages Pourpres auparavant? »
+Wang Lin regarda calmement l'Ancien et dit lentement: « Puisque cet endroit refuse que je reste discret, je vais me montrer un peu et devenir quelqu'un d'impérieux! Maintenant, dites-moi: qui vivait dans le Pavillon Zi Yun auparavant? »

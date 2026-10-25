@@ -22,7 +22,7 @@ Sur ces mots, il fit un pas et chargea vers le palais où se trouvait Wang Lin.
 
 Si Situ Nan n'était pas allé vers Wang Lin, le Maître Fu Fengzi ne serait pas apparu. Ce dernier était déjà blessé, il n'aurait donc jamais aidé les trois frères Chen. Cependant, maintenant que Situ Nan s'approchait de Wang Lin, il se sentait obligé d'agir!
 
-Les cultivateurs de son niveau voient la plupart des choses avec détachement. Pourtant, après plusieurs rencontres avec Wang Lin, ses sentiments étaient complexes. Wang Lin l'avait laissé partir à deux reprises. Bien que ce ne fût que pour obtenir son aide dans la Terre des Esprits Démoniaques, c'était lui qui avait eu tort au départ, il n'éprouvait donc aucune rancune.
+Les cultivateurs de son niveau voient la plupart des choses avec détachement. Pourtant, après plusieurs rencontres avec Wang Lin, ses sentiments étaient complexes. Wang Lin l'avait laissé partir à deux reprises. Bien que ce ne fût que pour obtenir son aide dans la Terre Yao Ling, c'était lui qui avait eu tort au départ, il n'éprouvait donc aucune rancune.
 
 Par conséquent, s'il n'intervenait pas maintenant, cela serait déraisonnable. Les yeux du Maître Fu Fengzi s'illuminèrent et il renonça à soigner ses propres blessures. Alors que Situ Nan se trouvait à moins de cinq kilomètres du palais de Wang Lin, le Maître Fu Fengzi apparut devant lui.
 

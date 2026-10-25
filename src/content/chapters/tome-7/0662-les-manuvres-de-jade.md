@@ -16,7 +16,7 @@ Le reniflement froid de cet individu se propagea sur toute la planète et atteig
 
 La silhouette de Wang Lin apparut dans une plaine de la partie nord de la planète. Il leva la tête vers le ciel et songea: « Un Ascendant au stade intermédiaire et deux cultivateurs Ascendants au stade initial. Ce système stellaire de Luotian est intéressant. Une énergie spirituelle si riche, pourtant cette planète de culture n'abrite que trois puissances, et chacune ne possède qu'un seul cultivateur Ascendant. »
 
-« Si cette planète Ran Yun avait fait partie de l'Alliance de Culture, je crains qu'elle n'ait été pillée, conquise par un vieux monstre du deuxième échelon, ou qu'un pays de culture de rang 6 ne s'y soit installé. Il est impossible qu'une telle planète ne compte que trois Ascendants au sein du système stellaire de l'Alliance. »
+« Si cette planète Ran Yun avait fait partie de l'Alliance Xiu Zhen, je crains qu'elle n'ait été pillée, conquise par un vieux monstre du deuxième échelon, ou qu'un pays de culture de rang 6 ne s'y soit installé. Il est impossible qu'une telle planète ne compte que trois Ascendants au sein du système stellaire de l'Alliance. »
 
 Tandis que Wang Lin réfléchissait, son aura commença à se rétracter. En un clin d'œil, sa présence Ascendante disparut pour ne laisser paraître que celle d'un cultivateur de la Formation du Noyau au stade avancé.
 

@@ -20,7 +20,7 @@ Ling Tianhou rit et répondit: « Ce vieil homme a vu de telles choses se produi
 
 Sans attendre que Ling Tianhou finisse sa phrase, une voix antique résonna à travers le monde.
 
-« Ling Tianhou, tu parles trop! Je peux tout endurer de ta part, mais tu ne peux interférer sans raison dans les affaires de ma Secte du Destin Céleste. Si tu ne t'en vas pas d'ici trois respirations, ne blâme pas ce vieil homme de te forcer personnellement à partir! »
+« Ling Tianhou, tu parles trop! Je peux tout endurer de ta part, mais tu ne peux interférer sans raison dans les affaires de ma Secte Tian Yun. Si tu ne t'en vas pas d'ici trois respirations, ne blâme pas ce vieil homme de te forcer personnellement à partir! »
 
 Ling Tianhou roula des yeux, laissa échapper un renâclement froid et cria: « Tian Yunzi, crois-tu que moi, le Saint de l'Épée, je te crains? Si tu veux te battre, battons-nous; je veux voir à quel point ta puissance a augmenté! »
 
@@ -74,7 +74,7 @@ Alors qu'il était plongé dans cette pensée, le corps de Wang Lin trembla comm
 
 Ce n'est pas que Tian Yunzi ne se soit jamais trompé auparavant. Il y avait une signification profonde derrière l'enseignement de l'Art du Massacre Céleste. C'était la première fois qu'il plaçait en moi une amorce, comme le jour de l'Extrême Yang lors de la naissance de Bai Wei!
 
-Dans le passé, Tian Yunzi était une existence parfaite qui ne pouvait commettre d'erreur! Cependant, dans la Terre des Esprits Démoniaques, grâce à l'aide involontaire de l'ancien démon, j'ai pu découvrir la faille de l'Art du Massacre Céleste! Cela a causé une légère déviation dans le plan de Tian Yunzi!
+Dans le passé, Tian Yunzi était une existence parfaite qui ne pouvait commettre d'erreur! Cependant, dans la Terre Yao Ling, grâce à l'aide involontaire de l'ancien démon, j'ai pu découvrir la faille de l'Art du Massacre Céleste! Cela a causé une légère déviation dans le plan de Tian Yunzi!
 
 Puis, le Démon Dispersé est apparu et a une fois de plus perturbé ses desseins. Finalement, j'ai pu percer le karma de l'Art du Massacre Céleste et j'ai résolument renoncé à cette puissante énergie de massacre!
 

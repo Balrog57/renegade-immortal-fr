@@ -72,7 +72,7 @@ Il avait déjà perdu la notion du temps. Il ignorait depuis combien de temps il
 
 « Je crains que le Maître ne puisse plus attendre. S'il est retourné au clan Dao Antique, alors une fois que j'atteindrai le Continent Astral Immortel, je devrai compter sur moi-même... » Les yeux de Wang Lin brillèrent d'une détermination farouche.
 
-« Ce n'est pas un problème. Autrefois, j'ai quitté la planète Suzaku seul pour explorer le Vide Brillant. Puis je suis passé du Vide Brillant à Luotian, puis à la Mer des Nuages. Plus tard, j'ai rejoint le Système d'Étoiles Anciennes par mes propres moyens. Maintenant, je me rendrai également seul sur le Continent Astral Immortel, ce n'est qu'une formalité! »
+« Ce n'est pas un problème. Autrefois, j'ai quitté la planète Suzaku seul pour explorer le Vide Brillant. Puis je suis passé du Vide Brillant à Luotian, puis à la Mer Yun. Plus tard, j'ai rejoint le Système d'Étoiles Anciennes par mes propres moyens. Maintenant, je me rendrai également seul sur le Continent Astral Immortel, ce n'est qu'une formalité! »
 
 « D'un autre côté, je dois rapidement augmenter mon niveau de culture sur le Continent Astral Immortel... Il y a aussi la Secte Dong Lin que je dois visiter. Si je peux entrer dans le Bassin Dong Lin... » À cette pensée, le cœur de Wang Lin s'emballa. On pouvait dire qu'il brûlait d'envie d'entrer dans le Bassin Dong Lin!
 
@@ -86,7 +86,7 @@ Un an, deux ans, trois ans...
 
 Trois années passèrent lentement tandis que Wang Lin se remémorait le passé. Le Roi Moustique avait beaucoup ralenti, mais il avait finalement mené Wang Lin à la lisière du vide. Ils étaient très proches de la sortie.
 
-Cette issue n'était peut-être pas l'endroit où Xuan Luo attendait, mais un lieu que le Roi Moustique avait suivi en se basant sur ses vagues souvenirs. Cet endroit pourrait mener au Continent du Taureau Céleste ou à un autre lieu encore. Il pourrait même se situer dans les trente-six États de l'ancien pays.
+Cette issue n'était peut-être pas l'endroit où Xuan Luo attendait, mais un lieu que le Roi Moustique avait suivi en se basant sur ses vagues souvenirs. Cet endroit pourrait mener au Continent Tian Niu ou à un autre lieu encore. Il pourrait même se situer dans les trente-six États de l'ancien pays.
 
 Durant ces trois années, Wang Lin concentra toute sa culture sur Li Muwan. Sous sa protection, elle était en parfaite sécurité.
 

@@ -74,7 +74,7 @@ Il était très difficile pour une femme de survivre dans le chaos de Luotian ap
 
 Beaucoup convoitaient sa beauté, et beaucoup lui avaient promis de l'aider dans sa culture. Pour une femme vulnérable, survivre sans subir d'humiliations était ardu, tant son éclat attirait les convoitises.
 
-Elle ressemblait à Lu Feiyan de la Secte de l'Origine, mais elle était plus décidée encore: elle avait personnellement détruit sa propre beauté pour empêcher quiconque de la convoiter!
+Elle ressemblait à Lu Feiyan de la Secte Gui Yuan, mais elle était plus décidée encore: elle avait personnellement détruit sa propre beauté pour empêcher quiconque de la convoiter!
 
 Une beauté est souvent née sous une mauvaise étoile, et peut-être qu'en se privant de cette beauté, le malheur l'abandonnerait.
 

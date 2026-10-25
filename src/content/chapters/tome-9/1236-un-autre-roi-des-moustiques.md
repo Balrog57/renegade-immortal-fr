@@ -12,7 +12,7 @@ Peut-être était-ce dû à la présence massive de bêtes-moustiques qui empêc
 
 Cependant, ce qui le fit progressivement froncer les sourcils était que de moins en moins de nuées de moustiques étaient portées par le vent. Il devait souvent voler pendant plusieurs heures avant de repérer un autre essaim.
 
-C'était un phénomène très anormal. Si le Royaume Céleste du Vent ne comptait qu'un tel nombre de bêtes-moustiques, il serait impossible que les cultivateurs de la Mer des Nuages s'arrêtent à ses portes et changent d'expression dès que l'on évoquait ce lieu.
+C'était un phénomène très anormal. Si le Royaume Céleste du Vent ne comptait qu'un tel nombre de bêtes-moustiques, il serait impossible que les cultivateurs de la Mer Yun s'arrêtent à ses portes et changent d'expression dès que l'on évoquait ce lieu.
 
 Ce jour-là, Wang Lin flottait dans les airs et scruta les profondeurs du Royaume Céleste du Vent. Durant ses deux jours d'observation, il avait remarqué que la plupart des bêtes-moustiques du royaume étaient rassemblées dans la partie intérieure. Quant aux nuages de brume rouge qu'il avait vus jusqu'à présent, le vent les avait soufflés depuis la région intérieure, ce qui expliquait leur faible densité.
 

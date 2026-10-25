@@ -48,7 +48,7 @@ Les deux petites filles à ses côtés clignèrent des yeux et se levèrent auss
 
 Des larmes coulèrent des yeux de Tan Lang tandis que son cou était saisi par cette petite main et qu'elle disparaissait de la pièce de pierre.
 
-Sur le Continent du Grand Sage, le corps de Wang Lin était resté assis dans la grotte pendant qu'il participait à l'Épreuve Empyrée. Le dragon marin avait beaucoup rétréci et se prélassait paresseusement. Liu Jinbiao sautillait autour du corps du dragon. Parfois, il touchait délicatement certains points, d'autres fois il grattait certaines zones comme pour apaiser une démangeaison.
+Sur le Continent Da Sheng, le corps de Wang Lin était resté assis dans la grotte pendant qu'il participait à l'Épreuve Empyrée. Le dragon marin avait beaucoup rétréci et se prélassait paresseusement. Liu Jinbiao sautillait autour du corps du dragon. Parfois, il touchait délicatement certains points, d'autres fois il grattait certaines zones comme pour apaiser une démangeaison.
 
 Le dragon marin plissait les yeux, semblant très confortablement installé. Il laissait même échapper quelques grognements en tordant son corps.
 

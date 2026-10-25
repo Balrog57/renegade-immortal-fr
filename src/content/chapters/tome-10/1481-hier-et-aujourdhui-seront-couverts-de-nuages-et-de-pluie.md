@@ -84,7 +84,7 @@ Xie Qing fixa silencieusement l'endroit où Wang Lin s'était volatilisé. Il s'
 
 Hier comme aujourd'hui, la pluie tombe sur Hengyun; ses gouttes, tombées des neuf cieux, se sont changées en épée. Le vieil ami s'éloigne peu à peu. Il y avait la pluie pour l'accompagner, il y avait un disciple agenouillé... Il y avait une dette de gratitude.
 
-Sur la planète Qing Ling, le Clan des Immortels Élus était parti depuis longtemps. Ils n'avaient laissé aucune trace, comme s'ils n'étaient jamais venus.
+Sur la planète Qing Ling, le Clan Xian Xuan était parti depuis longtemps. Ils n'avaient laissé aucune trace, comme s'ils n'étaient jamais venus.
 
 Wang Lin était parti.
 

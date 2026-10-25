@@ -70,9 +70,9 @@ Il ignorait quand il reverrait son parrain, mais cette habitude ne le quitta jam
 
 Le temps passa lentement, et cette habitude devint un secret.
 
-Outre cela, durant ces trente années, il n'oublia pas l'ordre de Wang Lin. Il avait dépêché de nombreux experts puissants à Ville de la Pierre Noire pour protéger secrètement une femme nommée Song Zhi.
+Outre cela, durant ces trente années, il n'oublia pas l'ordre de Wang Lin. Il avait dépêché de nombreux experts puissants à Ville Hei Shi pour protéger secrètement une femme nommée Song Zhi.
 
-Après plus d'un siècle, Song Zhi n'était plus la même et portait les marques du temps. Elle ignorait que le seigneur de Ville de la Pierre Noire et d'innombrables experts agissaient ainsi pour elle.
+Après plus d'un siècle, Song Zhi n'était plus la même et portait les marques du temps. Elle ignorait que le seigneur de Ville Hei Shi et d'innombrables experts agissaient ainsi pour elle.
 
 En un éclair, vingt années supplémentaires passèrent. Cinquante ans après l'entrée de Wang Lin dans le temple ancestral, une cérémonie grandiose fut organisée au sein des Anciens Shi.
 

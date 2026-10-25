@@ -58,19 +58,19 @@ Dans le Royaume Céleste, seuls ceux atteignant le rang du Seigneur Céleste pou
 
 Zhou Yi laissa échapper un soupir. Puis son corps devint flou et il pénétra dans l'épée céleste.
 
-« Je peux sentir l'aura du précédent esprit d'épée des Épées Célestes de la Pluie au fond de l'Abîme des Marées. Voici mon troisième cadeau pour toi. Allons-y! » L'épée céleste dans laquelle se trouvait Zhou Yi brilla et plongea vers les profondeurs de l'abîme.
+« Je peux sentir l'aura du précédent esprit d'épée des Épées Célestes de la Pluie au fond de l'Abîme Chao Xi. Voici mon troisième cadeau pour toi. Allons-y! » L'épée céleste dans laquelle se trouvait Zhou Yi brilla et plongea vers les profondeurs de l'abîme.
 
 Wang Lin remit Xu Liguo, qui était toujours dans un état second, absorbant l'héritage, à l'intérieur de l'épée céleste et poursuivit Zhou Yi.
 
 « L'aura du précédent esprit d'épée des Épées Célestes de la Pluie? Pourrait-il... pourrait-il s'agir de la Richesse?! » Le cœur de Wang Lin trembla.
 
-Zhou Yi menait la marche, et avec son énergie d'épée qui fendait l'air, tous les obstacles s'écartaient. Ils arrivèrent directement au fond de l'Abîme des Marées. L'endroit consistait en un immense corridor débouchant sur un gouffre noir et sans fin. Il était si profond que même le Sens Divin ne pouvait en atteindre le fond.
+Zhou Yi menait la marche, et avec son énergie d'épée qui fendait l'air, tous les obstacles s'écartaient. Ils arrivèrent directement au fond de l'Abîme Chao Xi. L'endroit consistait en un immense corridor débouchant sur un gouffre noir et sans fin. Il était si profond que même le Sens Divin ne pouvait en atteindre le fond.
 
 De légers courants d'aspiration émanaient du trou géant. Bien qu'ils fussent ténus, ils étaient constants.
 
 Debout sur le sentier au bord de la faille, une petite quantité de terre roula vers l'abîme et fut aspirée dans le gouffre profond.
 
-Wang Lin prit une profonde inspiration en contemplant l'abîme. Avec sa perspicacité habituelle, il devina presque immédiatement que la phase de marée se produisant au-delà de la Mer de l'Est était causée par ce gouffre profond.
+Wang Lin prit une profonde inspiration en contemplant l'abîme. Avec sa perspicacité habituelle, il devina presque immédiatement que la phase de marée se produisant au-delà de la Mer Dong était causée par ce gouffre profond.
 
 Dans son esprit, il semblait voir l'éruption du gouffre créer une force d'aspiration inimaginable tous les 5 000 ans. Puis, via un canal mystérieux, cette force se manifestait dans le ciel étoilé extérieur et aspirait d'innombrables choses, qu'elle attirait de force jusqu'ici.
 

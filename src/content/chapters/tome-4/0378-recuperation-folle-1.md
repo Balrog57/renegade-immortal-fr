@@ -18,7 +18,7 @@ Après un très long moment, il ouvrit les yeux, laissant transparaître un rega
 
 « Quelle puissance dévastatrice dans cette foudre! Elle contenait de l'énergie spirituelle céleste. Même si j'ai réussi à en réduire la puissance de moitié avant qu'elle ne me frappe, elle a tout de même causé de telles blessures. »
 
-Li Yuanfeng avait tenté de tuer Wang Lin pendant que Sun Tai et l'ancêtre du Clan des Démons Géants se livraient combat. Cependant, il avait été frappé par la foudre de Sun Tai et avait dû déployer force et adresse pour enfin s'échapper.
+Li Yuanfeng avait tenté de tuer Wang Lin pendant que Sun Tai et l'ancêtre du Clan Ju Mo se livraient combat. Cependant, il avait été frappé par la foudre de Sun Tai et avait dû déployer force et adresse pour enfin s'échapper.
 
 Il n'avait atteint le début de la Transformation de l'Âme qu'en y étant poussé de force par une technique secrète, avec l'aide du pays de Suzaku. Il n'avait aucun espoir de progresser davantage de toute sa vie.
 
@@ -28,9 +28,9 @@ Li Yuanfeng était plus puissant que les cultivateurs au sommet du dernier stade
 
 « Je ne sais pas si Ceng Niu est mort ou non. Même s'il est toujours en vie, mon domaine de thé n'est pas une chose que l'on peut briser aisément. » Li Yuanfeng ricana, le regard glacial.
 
-« Cette junior, Hongdie, a annoncé qu'elle entrerait en retraite de culture pour cent ans. À sa sortie, elle sera certainement une cultivatrice de la Transformation de l'Âme. Mais à ce moment-là, ma propre durée de vie aura expiré et cela n'aura plus d'importance. Pourquoi l'ancêtre du Clan des Démons Géants voulait-il le corps de Ceng Niu? C'est très étrange! Se pourrait-il qu'il y ait quelque chose que j'ignore... » Li Yuanfeng réfléchit un instant, sans toutefois parvenir à en deviner la raison.
+« Cette junior, Hongdie, a annoncé qu'elle entrerait en retraite de culture pour cent ans. À sa sortie, elle sera certainement une cultivatrice de la Transformation de l'Âme. Mais à ce moment-là, ma propre durée de vie aura expiré et cela n'aura plus d'importance. Pourquoi l'ancêtre du Clan Ju Mo voulait-il le corps de Ceng Niu? C'est très étrange! Se pourrait-il qu'il y ait quelque chose que j'ignore... » Li Yuanfeng réfléchit un instant, sans toutefois parvenir à en deviner la raison.
 
-À l'intérieur de Pilu, parmi les nombreuses montagnes occupées par les disciples extérieurs de la Secte de l'Affinement de l'Âme, Wang Lin s'éveilla de sa culture.
+À l'intérieur de Pilu, parmi les nombreuses montagnes occupées par les disciples extérieurs de la Secte Lian Hun, Wang Lin s'éveilla de sa culture.
 
 « Le sommet du dernier stade de l'Établissement des Fondations! »
 

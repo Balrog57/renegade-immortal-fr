@@ -8,13 +8,13 @@ slug: chemin-etroit
 ---
 Sa culture, au sommet du stade intermédiaire du Scruteur du Nirvana, se changea en une immense énergie originelle qui balaya la planète Da Luo comme une tempête. Un vortex se forma, prenant Wang Lin pour centre. Ce vortex hurlait en enveloppant la planète entière.
 
-Soudain, chaque disciple de la Secte de l'Épée Da Luo eut l'impression qu'une montagne s'abattait sur lui. Leur énergie spirituelle commença à circuler d'elle-même pour résister; c'était comme s'ils ne pourraient pas survivre sans cet effort.
+Soudain, chaque disciple de la Secte Da Luo Jian eut l'impression qu'une montagne s'abattait sur lui. Leur énergie spirituelle commença à circuler d'elle-même pour résister; c'était comme s'ils ne pourraient pas survivre sans cet effort.
 
 De loin, on pouvait voir un vortex déchaîné au-dessus de la planète Da Luo. Wang Lin se tenait au cœur du tourbillon, ses cheveux flottant au vent. Les mains derrière le dos, il leva la tête vers les cieux.
 
 Ses yeux brillaient intensément, comme s'ils contenaient l'éclatante voûte étoilée.
 
-Ce regard plongea dans les yeux des disciples de la Secte de l'Épée Da Luo, et pour eux, il apparut comme une existence éternelle!
+Ce regard plongea dans les yeux des disciples de la Secte Da Luo Jian, et pour eux, il apparut comme une existence éternelle!
 
 Wang Lin restait simplement immobile. Il contemplait calmement le ciel et méditait sereinement sur ce qui habitait son cœur.
 
@@ -36,7 +36,7 @@ Wang Lin fit un pas et quitta la planète Da Luo.
 
 Il mit fin à ses pensées et ne s'attarda plus sur cette affaire. Puis, se transformant en un rayon de lumière, il s'élança dans les profondeurs de l'espace.
 
-« Le complot de Tian Yunzi a échoué, il n'est donc plus nécessaire de rester sur la planète Da Luo. Maintenant, je dois faire des préparatifs pour me rendre vers la Terre des Esprits Démoniaques! Je contrôle l'une des quatre grottes, je peux donc emmener plusieurs personnes! » Tandis que Wang Lin volait, diverses pensées traversèrent son esprit.
+« Le complot de Tian Yunzi a échoué, il n'est donc plus nécessaire de rester sur la planète Da Luo. Maintenant, je dois faire des préparatifs pour me rendre vers la Terre Yao Ling! Je contrôle l'une des quatre grottes, je peux donc emmener plusieurs personnes! » Tandis que Wang Lin volait, diverses pensées traversèrent son esprit.
 
 Wang Lin n'utilisant pas la Distorsion Spatiale, il volait néanmoins à bonne allure, filant comme un rayon de lumière à travers l'espace. Quelques heures plus tard, il aperçut une planète abandonnée.
 
@@ -76,7 +76,7 @@ Wang Lin atterrit sur le dos de Lei Ji et s'assit. Da Tou suivit Wang Lin et se 
 
 Wang Lin pointa la main droite vers l'avant et Lei Ji chargea dans un rugissement. Tout au long du voyage, Wang Lin resta calme, bien qu'il fût impossible d'éviter de croiser des cultivateurs appartenant à la planète Tian Yun. Effrayés par la stature de Lei Ji, ils s'écartaient tous sur leur passage. Personne n'osait leur barrer la route.
 
-« Quel vieux monstre possède un membre aussi imposant du Clan des Démons Géants comme monture?! »
+« Quel vieux monstre possède un membre aussi imposant du Clan Ju Mo comme monture?! »
 
 « Ce cultivateur assis là me semble familier; je crois l'avoir déjà vu quelque part... »
 

@@ -24,11 +24,11 @@ Il se sentait extrêmement fier à cet instant, pensant que son maître se souci
 
 Le tourbillon d'âmes errantes était immense, et les spectateurs sur la plateforme l'observaient avec fascination. L'un d'eux portait une attention toute particulière. Ses yeux s'illuminèrent tandis qu'un symbole de hache apparaissait et disparaissait sur son front.
 
-Cet homme était également un membre du Clan des Démons Géants venu de Suzaku. Il identifia Wang Lin en un instant et resta plongé dans ses réflexions.
+Cet homme était également un membre du Clan Ju Mo venu de Suzaku. Il identifia Wang Lin en un instant et resta plongé dans ses réflexions.
 
 Parmi les personnes présentes sur la plateforme, un homme d'âge moyen vêtu d'un manteau gris se distinguait. Ses yeux étaient sombres, son nez légèrement aquilin, et son visage affichait un air sombre. Il fixa Wang Lin et fit un pas vers lui.
 
-Le membre du Clan des Démons Géants observa cet homme sans dire un mot, affichant plutôt une expression moqueuse. À ses yeux, le niveau de culture de cet individu n'atteignait même pas le stade de la Formation de l'Âme; il n'était qu'au stade avancé de l'Âme Naissante, à son apogée. Tenter d'ôter la vie d'un cultivateur de la Formation de l'Âme avec un tel niveau revenait à frapper un rocher avec un œuf.
+Le membre du Clan Ju Mo observa cet homme sans dire un mot, affichant plutôt une expression moqueuse. À ses yeux, le niveau de culture de cet individu n'atteignait même pas le stade de la Formation de l'Âme; il n'était qu'au stade avancé de l'Âme Naissante, à son apogée. Tenter d'ôter la vie d'un cultivateur de la Formation de l'Âme avec un tel niveau revenait à frapper un rocher avec un œuf.
 
 L'homme au manteau gris s'avança prudemment vers les âmes errantes. Il commença à psalmodier et une sphère de flammes noires se forma dans sa paume. Dès l'apparition de cette flamme noire, une vague de chaleur se propagea dans l'air.
 
@@ -64,11 +64,11 @@ Sa chair se désintégra lentement pour ne laisser qu'un squelette, tandis que l
 
 Les yeux de Wang Lin brillèrent d'une lueur particulière. Sous son commandement, les âmes environnantes revinrent vers lui et disparurent dans son front.
 
-À cet instant, l'homme du Clan des Démons Géants laissa échapper un rire. Il fit quelques pas en avant et demanda: « Cher compagnon de culture, que s'est-il passé pour que vous en arriviez à un tel état, au point qu'un simple cultivateur de l'Âme Naissante ose convoiter votre personne? »
+À cet instant, l'homme du Clan Ju Mo laissa échapper un rire. Il fit quelques pas en avant et demanda: « Cher compagnon de culture, que s'est-il passé pour que vous en arriviez à un tel état, au point qu'un simple cultivateur de l'Âme Naissante ose convoiter votre personne? »
 
 Wang Lin le regarda et répondit calmement: « Un fragment du royaume céleste s'est effondré. »
 
-L'homme fut stupéfait, puis il rit amèrement en se rendant compte qu'il disait une évidence. Il regarda Wang Lin avec une admiration non feinte: « Cher compagnon, quiconque peut réchapper d'un tel effondrement n'est pas un être ordinaire. Je vous admire sincèrement! Je suis Chi Hu, du Clan des Démons Géants. Quel est votre nom? »
+L'homme fut stupéfait, puis il rit amèrement en se rendant compte qu'il disait une évidence. Il regarda Wang Lin avec une admiration non feinte: « Cher compagnon, quiconque peut réchapper d'un tel effondrement n'est pas un être ordinaire. Je vous admire sincèrement! Je suis Chi Hu, du Clan Ju Mo. Quel est votre nom? »
 
 Wang Lin secoua la tête et dit: « Ce n'était que de la chance. Mon nom est Ceng Niu! » En repensant à l'effondrement du fragment, il ne put s'empêcher d'être saisi par la peur. S'il n'avait pas avalé imprudemment le cristal d'énergie céleste, il serait déjà mort.
 
@@ -78,7 +78,7 @@ Wang Lin fut surpris et secoua silencieusement la tête.
 
 Chi Hu resta pensif un long moment. Le seul pays de culture de haut rang possédant une famille nommée Ceng était Tianhun. Bien que Ceng Niu ne l'admette pas, Chi Hu ne croyait pas qu'il ait acquis sa culture par ses propres moyens; il soupçonnait qu'il s'agissait d'un disciple central formé par l'un des pays de rang 5. Autrement, s'il venait d'un pays de rang 4, il l'aurait forcément reconnu.
 
-Le Clan des Démons Géants étant lui-même un pays de culture de rang 4, ils connaissaient parfaitement les génies de leurs pairs. Après cette réflexion, son attitude envers Wang Lin changea notablement, bien qu'il ne le laissa paraître compte tenu de son niveau de culture.
+Le Clan Ju Mo étant lui-même un pays de culture de rang 4, ils connaissaient parfaitement les génies de leurs pairs. Après cette réflexion, son attitude envers Wang Lin changea notablement, bien qu'il ne le laissa paraître compte tenu de son niveau de culture.
 
 Chi Hu hésita, puis demanda avec retenue: « Frère Ceng, me permettriez-vous de m'approcher pour discuter? »
 

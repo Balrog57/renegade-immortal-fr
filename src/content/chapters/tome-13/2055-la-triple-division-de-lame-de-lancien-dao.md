@@ -94,7 +94,7 @@ Ji Du se tenait près de la fenêtre de sa chambre, le regard perdu dans le loin
 
 « Parrain... » murmura Ji Du. Sa femme lui prit la main et le regarda avec tendresse.
 
-Au même instant, sur la Montagne de l'Origine, Song Tian sortit de sa méditation en retraite, les mains derrière le dos. Il regarda en direction de la cité impériale.
+Au même instant, sur la Montagne Yuan Shi, Song Tian sortit de sa méditation en retraite, les mains derrière le dos. Il regarda en direction de la cité impériale.
 
 « Avec son niveau de culture, il choisira certainement de diviser complètement son âme dès la première fois, donc cela ne sera pas court... Peu importe. Lors de sa précédente retraite, j'ai agi à deux reprises contre lui. Bien que j'aie reconnu Ji Du comme empereur par la suite, je l'avais offensé le premier... Et depuis son arrivée, il n'a pas cherché à me tenir rigueur de cela... Je le protégerai durant sa première division en guise de réparation. » Song Tian s'élança dans les airs et disparut. Il réapparut devant le temple ancestral et s'assit, tournant le dos à l'édifice.
 

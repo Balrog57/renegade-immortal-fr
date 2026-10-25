@@ -14,21 +14,21 @@ Quoi qu'il en soit, cela n'entraverait en rien l'ascension de la réputation de 
 
 La Sélection des Anciens Délaissés, qui avait été interrompue, reprit son cours, mais plus rien de tout cela ne concernait Wang Lin.
 
-Dans les Terres Déchues, la planète abandonnée où se trouvaient Liu Jinbiao et Xu Liguo avait été minutieusement fouillée par les membres du Clan des Moineaux de Feu.
+Dans les Terres Déchues, la planète abandonnée où se trouvaient Liu Jinbiao et Xu Liguo avait été minutieusement fouillée par les membres du Clan Huo Que.
 
-Pour le Clan des Moineaux de Feu, l'épreuve qui se déroulait sur la Planète du Grand Empereur représentait une opportunité inespérée.
+Pour le Clan Huo Que, l'épreuve qui se déroulait sur la Planète du Grand Empereur représentait une opportunité inespérée.
 
-En fouillant avec soin, le Clan des Moineaux de Feu finit par trouver Liu Jinbiao, qui était en culture fermée dans la partie la plus profonde de la planète, ainsi que son protecteur, Xu Liguo.
+En fouillant avec soin, le Clan Huo Que finit par trouver Liu Jinbiao, qui était en culture fermée dans la partie la plus profonde de la planète, ainsi que son protecteur, Xu Liguo.
 
-Après un combat acharné, Liu Jinbiao fut capturé et secrètement extrait des Terres Déchues pour être présenté à l'ancêtre du Clan des Moineaux de Feu, qui l'attendait à l'extérieur.
+Après un combat acharné, Liu Jinbiao fut capturé et secrètement extrait des Terres Déchues pour être présenté à l'ancêtre du Clan Huo Que, qui l'attendait à l'extérieur.
 
 L'expression de Liu Jinbiao était sombre et il restait totalement silencieux. Pourtant, il dégageait l'aura d'un maître de sa génération; une aura invisible propre à celui qui a exercé le pouvoir durant de longues années et qui pourrait tuer dix mille personnes d'un seul mot.
 
-Lorsque Liu Jinbiao fut amené hors des Terres Déchues, l'ancêtre du Clan des Moineaux de Feu, qui était resté prudemment en retrait sans oser entrer, afficha un regard d'extase.
+Lorsque Liu Jinbiao fut amené hors des Terres Déchues, l'ancêtre du Clan Huo Que, qui était resté prudemment en retrait sans oser entrer, afficha un regard d'extase.
 
-Il fit un pas en avant, ignorant les salutations du Clan des Moineaux de Feu, et sa paume droite se transforma en feu pour frapper directement Liu Jinbiao!
+Il fit un pas en avant, ignorant les salutations du Clan Huo Que, et sa paume droite se transforma en feu pour frapper directement Liu Jinbiao!
 
-L'expression de Liu Jinbiao ne trahit aucune panique; ses yeux brillaient d'un regard ancestral tandis qu'il fixait froidement l'ancêtre du Clan des Moineaux de Feu!
+L'expression de Liu Jinbiao ne trahit aucune panique; ses yeux brillaient d'un regard ancestral tandis qu'il fixait froidement l'ancêtre du Clan Huo Que!
 
 Ce regard d'une sérénité glaciale fit trembler l'esprit de l'ancêtre!
 
@@ -36,19 +36,19 @@ Ce regard d'une sérénité glaciale fit trembler l'esprit de l'ancêtre!
 
 Dans un froid renâclement, la main droite de l'ancêtre s'abattit sur le corps de Liu Jinbiao. Le feu s'engouffra en lui, mais après que les flammes eurent balayé son corps, l'ancêtre fronça les sourcils.
 
-Liu Jinbiao ricana: « Petit Clan des Moineaux de Feu, vous m'attaquez par surprise alors que ce vieil homme est gravement blessé... Tout comme vos ancêtres, vous n'êtes que de simples clowns! »
+Liu Jinbiao ricana: « Petit Clan Huo Que, vous m'attaquez par surprise alors que ce vieil homme est gravement blessé... Tout comme vos ancêtres, vous n'êtes que de simples clowns! »
 
 Les yeux de l'ancêtre s'illuminèrent et une partie de ses doutes se dissipa. En examinant le corps de Liu Jinbiao, il constata qu'il n'y avait pas eu une grande quantité de feu à l'intérieur. Bien que les paroles de Liu Jinbiao aient apaisé une partie de son scepticisme, ce n'était pas suffisant. Il agita la main droite et une blessure apparut sur le bras droit de Liu Jinbiao, laissant couler une quantité importante de sang.
 
 L'ancêtre recueillit ce sang et le condensa en une sphère. Après l'avoir senti, la joie illumina son regard et, après une légère hésitation, il le dévora.
 
-Lorsque le sang atteignit son estomac, il se mua en une puissante force de feu qui explosa à l'intérieur de son corps. Une illusion apparut immédiatement derrière l'ancêtre du Clan des Moineaux de Feu.
+Lorsque le sang atteignit son estomac, il se mua en une puissante force de feu qui explosa à l'intérieur de son corps. Une illusion apparut immédiatement derrière l'ancêtre du Clan Huo Que.
 
 Un oiseau de feu déploya ses ailes et poussa un long cri; devant lui se trouvait un Oiseau Vermillon plus petit. Ce dernier semblait gravement blessé et flou. Après une brève lutte, l'oiseau de feu dévora l'Oiseau Vermillon.
 
 Une fois sa proie consommée, les flammes entourant l'oiseau de feu jaillirent et il commença à se métamorphoser, devenant de plus en plus semblable à l'Oiseau Vermillon originel.
 
-« Magnifique! C'est bel et bien un Oiseau Vermillon!! » L'ancêtre du Clan des Moineaux de Feu était transporté par l'extase. Il rit tandis que sa main droite se posait sur la tête de Liu Jinbiao.
+« Magnifique! C'est bel et bien un Oiseau Vermillon!! » L'ancêtre du Clan Huo Que était transporté par l'extase. Il rit tandis que sa main droite se posait sur la tête de Liu Jinbiao.
 
 Le niveau de culture de l'ancêtre étant extrêmement élevé, il restait naturellement prudent et méfiant. Après plusieurs tests, bien qu'il en soit convaincu, il utilisa tout de même le sort de recherche d'âme.
 
@@ -56,11 +56,11 @@ Le niveau de culture de l'ancêtre étant extrêmement élevé, il restait natur
 
 Des souvenirs défilèrent dans son esprit et, un instant plus tard, l'ancêtre afficha un sourire satisfait. Malgré quelques doutes persistants, cet homme était indubitablement le sixième Oiseau Vermillon.
 
-D'un revers de manche, il emmena Liu Jinbiao. En un éclair, ils disparurent sans laisser de trace, utilisant un sort puissant pour ramener Liu Jinbiao au quartier général du Clan des Moineaux de Feu.
+D'un revers de manche, il emmena Liu Jinbiao. En un éclair, ils disparurent sans laisser de trace, utilisant un sort puissant pour ramener Liu Jinbiao au quartier général du Clan Huo Que.
 
 Au moment où l'ancêtre emmenait Liu Jinbiao, Wang Lin, qui était assis près du lac où le Vieux Oiseau Vermillon pêchait le dragon, ouvrit soudainement les yeux, et son regard brilla d'une intensité vive.
 
-« Le Dao de la tromperie de Liu Jinbiao est réellement brillant; même l'ancêtre du Clan des Moineaux de Feu s'est fait avoir... Maintenant, je dois me préparer et attendre que Liu Jinbiao soit conduit dans la terre sainte du Clan! » Les yeux de Wang Lin étincelèrent tandis qu'il formait des sceaux, des restrictions entourant son corps.
+« Le Dao de la tromperie de Liu Jinbiao est réellement brillant; même l'ancêtre du Clan Huo Que s'est fait avoir... Maintenant, je dois me préparer et attendre que Liu Jinbiao soit conduit dans la terre sainte du Clan! » Les yeux de Wang Lin étincelèrent tandis qu'il formait des sceaux, des restrictions entourant son corps.
 
 De plus en plus de restrictions apparurent jusqu'à former une formation complète autour de lui. Cette formation avait la capacité de téléporter Wang Lin par une méthode spéciale.
 
@@ -120,4 +120,4 @@ Wang Lin resta interdit un instant, fixant le Vieux Oiseau Vermillon. Laissant s
 
 L'Ancien poussa intérieurement un long soupir de soulagement. Il avait placé tous ses espoirs en Wang Lin. Voyant ce dernier acquiescer, il toussa et reprit: « Le sort de ce vieil homme ne peut déployer toute sa puissance que s'il est utilisé par quelqu'un ayant préservé le Yang de son âme originelle. Ce n'est pas par penchant particulier. Je ne te donnerai rien sans contrepartie, je vais t'enseigner un sort! »
 
-« C'est l'un des trois sorts les plus puissants de mon Clan de l'Oiseau Vermillon. Il fut transmis par l'Ancien Souverain Céleste. Bien que ton Yang d'âme originelle soit brisé, tu peux tout de même le pratiquer. Ce sort est si puissant qu'il brûlera ta durée de vie; ne l'utilise donc pas avec légèreté, mais il sera capable de te sauver la vie! »
+« C'est l'un des trois sorts les plus puissants de mon Clan Zhu Que. Il fut transmis par l'Ancien Souverain Céleste. Bien que ton Yang d'âme originelle soit brisé, tu peux tout de même le pratiquer. Ce sort est si puissant qu'il brûlera ta durée de vie; ne l'utilise donc pas avec légèreté, mais il sera capable de te sauver la vie! »

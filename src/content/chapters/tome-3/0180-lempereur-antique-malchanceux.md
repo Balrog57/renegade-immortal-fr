@@ -132,9 +132,9 @@ Il n'était pas comme le Seigneur Démon des Six Désirs, Duanmu ou Bossu Meng. 
 
 À l'époque, le Seigneur Démon des Six Désirs et les autres n'étaient que des juniors à ses yeux. Sans sa blessure grave après sa fuite, comment ces trois pourraient-ils encore être en vie aujourd'hui?
 
-Pendant 1000 ans, il s'était rétabli dans la Mer des Démons et avait commencé à approfondir ses connaissances sur les restrictions afin de tenter de nouveau l'essai. Durant ce millénaire, il avait pu recouvrer toute sa culture, mais sans pouvoir la faire progresser. Après une analyse minutieuse, il estimait que ses blessures d'autrefois avaient endommagé ses fondations. À moins de trouver un trésor céleste, sa culture resterait à jamais bloquée.
+Pendant 1000 ans, il s'était rétabli dans la Mer Xiu Mo et avait commencé à approfondir ses connaissances sur les restrictions afin de tenter de nouveau l'essai. Durant ce millénaire, il avait pu recouvrer toute sa culture, mais sans pouvoir la faire progresser. Après une analyse minutieuse, il estimait que ses blessures d'autrefois avaient endommagé ses fondations. À moins de trouver un trésor céleste, sa culture resterait à jamais bloquée.
 
-Par conséquent, l'idée de retourner dans la Terre de l'Ancien Dieu l'excitait d'autant plus. Seul ici il pouvait trouver ces trésors célestes; avec un peu de chance, après avoir franchi les quatre épreuves et être entré dans le corps de l'Ancien Dieu, il obtiendrait une Pilule de Transformation de l'Âme et deviendrait d'un bond un expert de la Transformation de l'Âme. Alors tous ses sacrifices seraient récompensés mille fois.
+Par conséquent, l'idée de retourner dans la Terre Gu Shen l'excitait d'autant plus. Seul ici il pouvait trouver ces trésors célestes; avec un peu de chance, après avoir franchi les quatre épreuves et être entré dans le corps de l'Ancien Dieu, il obtiendrait une Pilule de Transformation de l'Âme et deviendrait d'un bond un expert de la Transformation de l'Âme. Alors tous ses sacrifices seraient récompensés mille fois.
 
 À cette fin, il avait résolument abandonné la culture pour se consacrer entièrement à l'étude des restrictions, changeant même d'identité pour entrer successivement dans plusieurs sectes célèbres pour leur maîtrise des restrictions et y étudier cet art de manière systématique.
 

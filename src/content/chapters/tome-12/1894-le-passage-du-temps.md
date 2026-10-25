@@ -74,13 +74,13 @@ La sixième année, la septième, la huitième... Le dépérissement s'étendit 
 
 La neuvième année, la dixième... Son corps était enseveli sous une masse compacte de scorpions et ne ressemblait plus qu'à un sac d'os dépourvu de toute substance. On aurait dit que sa carcasse s'effondrerait au moindre souffle de vent, mais Wang Lin attendait toujours!
 
-Dix ans! Il avait attendu dans l'espace vert pendant dix ans. Durant cette décennie, il ignorait tout de ce qui se passait à l'extérieur: la bataille entre le Continent du Démon Vert et le Continent du Taureau Céleste se poursuivait-elle encore, ou était-elle terminée?
+Dix ans! Il avait attendu dans l'espace vert pendant dix ans. Durant cette décennie, il ignorait tout de ce qui se passait à l'extérieur: la bataille entre le Continent Lu Mo et le Continent Tian Niu se poursuivait-elle encore, ou était-elle terminée?
 
 Pendant ces dix années, l'âme originelle de Wang Lin ne contrôlait pas son corps; elle restait dissimulée sous la protection de la Perle Défiant le Ciel. Il misait tout sur sa capacité d'endurance!
 
-Ce qui soutenait sa foi était son sens de l'analyse. Ce vieil homme en robe verte était manifestement un mortel, et pourtant Wang Lin ressentait une terreur profonde à son sujet. Cet homme avait réussi à faire agir avec politesse le Maître de la Secte du Dao Démoniaque; si Wang Lin faisait un mouvement imprudent, il s'exposerait à un grand danger.
+Ce qui soutenait sa foi était son sens de l'analyse. Ce vieil homme en robe verte était manifestement un mortel, et pourtant Wang Lin ressentait une terreur profonde à son sujet. Cet homme avait réussi à faire agir avec politesse le Maître de la Secte Dao Mo; si Wang Lin faisait un mouvement imprudent, il s'exposerait à un grand danger.
 
-Il y avait trop de secrets inconnus au sein du Temple du Scorpion Vert. Surtout, puisque l'homme était un mortel, sa longévité ne pouvait être infinie!
+Il y avait trop de secrets inconnus au sein du Temple Lu Mo Xie. Surtout, puisque l'homme était un mortel, sa longévité ne pouvait être infinie!
 
 La compétition consistait en une joute de patience!
 

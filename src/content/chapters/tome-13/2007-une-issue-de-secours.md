@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: "Chapter 2007 - Back up!"
 slug: une-issue-de-secours
 ---
-« Le prince Ji Du est très rusé... L'image sur son jade est presque identique à la mienne, elle permet de me reconnaître au premier coup d'œil. Cela signifie que lorsqu'il m'a vu à Ville de la Pierre Noire, ses soupçons étaient déjà éveillés!
+« Le prince Ji Du est très rusé... L'image sur son jade est presque identique à la mienne, elle permet de me reconnaître au premier coup d'œil. Cela signifie que lorsqu'il m'a vu à Ville Hei Shi, ses soupçons étaient déjà éveillés!
 
 « Mais il les a si bien dissimulés que même moi, je ne l'ai pas remarqué. » Wang Lin prit le jade et fixa Ji Du. Le visage de ce dernier affichait toujours un profond respect, mais il était désormais pâle et couvert de sueur.
 
@@ -24,7 +24,7 @@ En entendant cela, le prince Ji Du se détendit légèrement. Son geste précéd
 
 « Cependant, même alors, mon père et le Grand Empyréen Song Tian n'étaient pas certains que l'Ascendant Empyréen aux cheveux blancs du clan céleste, Wang Lin, fût la même personne que le disciple du Grand Empyréen Xuan Luo.
 
-« Moi-même, je ne m'en suis rendu compte qu'après avoir vu Senior à Ville de la Pierre Noire. Il s'avère que Senior est bel et bien le disciple du Grand Empyréen Xuan Luo! » Ji Du transpirait de plus belle en parlant avec précipitation. Devant Wang Lin, il ressentait une pression immense, plus écrasante encore que celle qu'il éprouvait face à son père; elle était comparable à celle du Grand Empyréen Song Tian.
+« Moi-même, je ne m'en suis rendu compte qu'après avoir vu Senior à Ville Hei Shi. Il s'avère que Senior est bel et bien le disciple du Grand Empyréen Xuan Luo! » Ji Du transpirait de plus belle en parlant avec précipitation. Devant Wang Lin, il ressentait une pression immense, plus écrasante encore que celle qu'il éprouvait face à son père; elle était comparable à celle du Grand Empyréen Song Tian.
 
 La femme derrière lui pâlit en entendant ces révélations. Ses yeux étaient empreints d'incrédulité. Toutefois, si elle était autorisée à rester, c'était qu'elle jouissait manifestement de la confiance de Ji Du.
 
@@ -54,7 +54,7 @@ Wang Lin s'arrêta et se retourna pour contempler le prince. Ses yeux révélèr
 
 « Qui vous a dit que si vous me rencontriez, vous devriez être prêt à vous agenouiller pour m'inciter à rester!
 
-« Et qui vous a prédit que vous me croiseriez à Ville de la Pierre Noire? » Wang Lin ne croyait pas à la coïncidence. Autrement, ce prince ne serait pas en train de s'humilier ainsi. Quelqu'un l'avait prévenu!
+« Et qui vous a prédit que vous me croiseriez à Ville Hei Shi? » Wang Lin ne croyait pas à la coïncidence. Autrement, ce prince ne serait pas en train de s'humilier ainsi. Quelqu'un l'avait prévenu!
 
 Et cette personne devait être quelqu'un en qui le prince avait une confiance telle qu'il suivrait ses directives aveuglément!
 

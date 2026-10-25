@@ -8,21 +8,21 @@ slug: la-cupidite-disparue
 ---
 Wang Lin se frotta les tempes, pris d'une migraine.
 
-Tandis qu'il hésitait, la nouvelle se répandit: un individu nommé Wang avait déclenché le feu terrestre, brûlé la Secte du Dragon Bleu, éveillé l'âme de la branche de la veine de feu, balayé des dizaines de milliers de cultivateurs, massacré des milliers de ses disciples, et gravement blessé quatre Anciens, détruisant au passage les corps de trois d'entre eux et les bras d'un quatrième.
+Tandis qu'il hésitait, la nouvelle se répandit: un individu nommé Wang avait déclenché le feu terrestre, brûlé la Secte Cang Long, éveillé l'âme de la branche de la veine de feu, balayé des dizaines de milliers de cultivateurs, massacré des milliers de ses disciples, et gravement blessé quatre Anciens, détruisant au passage les corps de trois d'entre eux et les bras d'un quatrième.
 
-La Secte du Dragon Bleu était enragée. Ils lancèrent tous leurs disciples dans une recherche effrénée. De nombreuses sectes se gaussèrent de cette affaire, n'ayant que peu d'estime pour la Secte du Dragon Bleu. Cependant, face au niveau de culture de Du Qing et à ses liens avec la Secte de la Grande Âme, elles préférèrent s'en tenir à distance.
+La Secte Cang Long était enragée. Ils lancèrent tous leurs disciples dans une recherche effrénée. De nombreuses sectes se gaussèrent de cette affaire, n'ayant que peu d'estime pour la Secte Cang Long. Cependant, face au niveau de culture de Du Qing et à ses liens avec la Secte Da Hun, elles préférèrent s'en tenir à distance.
 
-Constater l'immense perte subie par la Secte du Dragon Bleu — la mort de milliers de disciples et les blessures graves de quatre Anciens — leur procurait à tous une joie secrète. Quant à leur coopération pour la traque de l'individu mystérieux, elle n'était que de façade.
+Constater l'immense perte subie par la Secte Cang Long — la mort de milliers de disciples et les blessures graves de quatre Anciens — leur procurait à tous une joie secrète. Quant à leur coopération pour la traque de l'individu mystérieux, elle n'était que de façade.
 
 Pourtant, certaines sectes coopérèrent pleinement pour traquer Wang Lin.
 
-Le Continent du Taureau Céleste était tout simplement trop vaste. Même une nouvelle aussi sensationnelle ne se répandit pas très loin; elle ne fit que déferler sur une seule région. Quant aux grandes sectes comme la Secte Gui Yi ou la Secte de la Grande Âme, elles prêtaient rarement attention à de tels événements.
+Le Continent Tian Niu était tout simplement trop vaste. Même une nouvelle aussi sensationnelle ne se répandit pas très loin; elle ne fit que déferler sur une seule région. Quant aux grandes sectes comme la Secte Gui Yi ou la Secte Da Hun, elles prêtaient rarement attention à de tels événements.
 
-Plusieurs jours passèrent sans qu'aucune piste n'apparaisse. La colère de l'ancêtre de la Secte du Dragon Bleu, Du Qing, ne fit que croître. Il sortit lui-même et balaya la région de son Sens Divin, mais ne trouva rien non plus. Après tout, le Continent du Taureau Céleste était bien trop immense! Si une personne voulait se cacher, la trouver revenait à chercher une aiguille dans un océan.
+Plusieurs jours passèrent sans qu'aucune piste n'apparaisse. La colère de l'ancêtre de la Secte Cang Long, Du Qing, ne fit que croître. Il sortit lui-même et balaya la région de son Sens Divin, mais ne trouva rien non plus. Après tout, le Continent Tian Niu était bien trop immense! Si une personne voulait se cacher, la trouver revenait à chercher une aiguille dans un océan.
 
-La montagne où se trouvait Wang Lin fut balayée par le Sens Divin des disciples de la Secte du Dragon Bleu. Cependant, en raison de leur éloignement et des restrictions extraordinaires que Wang Lin avait mises en place, ils ne décelèrent aucune anomalie. À moins que Du Qing ne vienne en personne, nul ne pourrait rien découvrir. Mais bien qu'il fût furieux, sans localisation précise à explorer, il était peu probable qu'il se déplace personnellement.
+La montagne où se trouvait Wang Lin fut balayée par le Sens Divin des disciples de la Secte Cang Long. Cependant, en raison de leur éloignement et des restrictions extraordinaires que Wang Lin avait mises en place, ils ne décelèrent aucune anomalie. À moins que Du Qing ne vienne en personne, nul ne pourrait rien découvrir. Mais bien qu'il fût furieux, sans localisation précise à explorer, il était peu probable qu'il se déplace personnellement.
 
-Au fil du temps, les recherches de la Secte du Dragon Bleu ne faiblirent pas; elles devinrent plus intenses encore.
+Au fil du temps, les recherches de la Secte Cang Long ne faiblirent pas; elles devinrent plus intenses encore.
 
 Wang Lin s'en aperçut alors qu'il réfléchissait à la manière d'ouvrir son espace de stockage pour en extraire ses trésors.
 
@@ -88,7 +88,7 @@ Il répéta l'opération plusieurs fois jusqu'à ce qu'il maîtrise parfaitement
 
 « Pourtant, ce Tan Lang est très étrange. Il est l'un des fragments d'âme du Souverain Céleste aux Sept Couleurs, tout comme Qing Shui et Situ, mais pourquoi n'a-t-il pas eu besoin de se réincarner comme eux pour quitter le monde caverneux?... Même avec l'aide de ce Grand Empyréen, Xuan Luo est également intervenu... Cette affaire demeure inexplicable. » Cette question tourmentait Wang Lin depuis longtemps sans qu'il ne puisse en trouver la réponse.
 
-« Peu importe, je saurai peut-être en plus lors de notre rencontre. Y réfléchir davantage est vain. Je dois d'abord régler le problème du feu terrestre et de mon essence de feu. Du Qing de la Secte du Dragon Bleu n'est pas faible; s'il vient à ma rencontre, la bataille sera féroce! »
+« Peu importe, je saurai peut-être en plus lors de notre rencontre. Y réfléchir davantage est vain. Je dois d'abord régler le problème du feu terrestre et de mon essence de feu. Du Qing de la Secte Cang Long n'est pas faible; s'il vient à ma rencontre, la bataille sera féroce! »
 
 « Je viens d'arriver sur le Continent Astral Immortel et je ne souhaite pas attirer trop l'attention, mais il semble que je doive désormais me montrer un peu plus flamboyant pour asseoir ma position! » Une lueur froide traversa le regard de Wang Lin.
 
@@ -96,4 +96,4 @@ Dans la capitale impériale du Continent Central des Célestes se dressait un pa
 
 Dans la grande salle trônait un immense siège de dragon sur lequel siégeait un homme d'âge moyen vêtu d'une robe impériale aux neuf dragons. Cet homme avait les yeux clos, comme plongé dans un rêve léthargique, mais il finit par les ouvrir. Ses pupilles brillaient comme des soleils et l'aura de son sang noble se propagea, dégageant une pression inimaginable.
 
-« L'enseignant impérial a prédit que la disparition de Dao Fei ne serait pas fatale et qu'elle apporterait la fortune... Désormais, son aura est apparue dans le Cimetière de Dieu, ramenons-le donc... Tiens, il y a une femme à ses côtés... » Les yeux de l'homme en robe impériale brillèrent et sa main droite s'élança vers le vide devant lui.
+« L'enseignant impérial a prédit que la disparition de Dao Fei ne serait pas fatale et qu'elle apporterait la fortune... Désormais, son aura est apparue dans le Cimetière Gu Shen, ramenons-le donc... Tiens, il y a une femme à ses côtés... » Les yeux de l'homme en robe impériale brillèrent et sa main droite s'élança vers le vide devant lui.

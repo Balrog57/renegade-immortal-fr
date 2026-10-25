@@ -8,7 +8,7 @@ slug: une-rencontre
 ---
 Sur son lit de mort, il se remémora les paroles de l'érudit anonyme prononcées des centaines d'années auparavant. Ces mots semblaient hanter son esprit jusqu'à ce que sa vie s'éteigne et qu'il devienne l'âme principale du drapeau des âmes.
 
-Son sens divin se déploya une dernière fois à l'instant de son trépas, embrassant toute la Secte de l'Affinement de l'Âme. Il aperçut un homme qui s'était enfui d'un lieu lointain pour se fondre parmi la foule de ceux qui désiraient entrer dans la Secte. Un homme d'apparence tout à fait ordinaire.
+Son sens divin se déploya une dernière fois à l'instant de son trépas, embrassant toute la Secte Lian Hun. Il aperçut un homme qui s'était enfui d'un lieu lointain pour se fondre parmi la foule de ceux qui désiraient entrer dans la Secte. Un homme d'apparence tout à fait ordinaire.
 
 À cet instant, le sens divin de Nian Tian trembla comme jamais auparavant. Il fut stupéfait de découvrir que cet homme était l'érudit qu'il avait interrogé des siècles plus tôt!
 

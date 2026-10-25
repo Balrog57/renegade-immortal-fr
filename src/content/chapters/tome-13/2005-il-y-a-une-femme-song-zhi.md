@@ -104,7 +104,7 @@ Le vieil homme sourit amèrement et hocha la tête.
 
 Wang Lin demanda avec désinvolture: « C'est assez intrigant. En a-t-on déjà choisi une? »
 
-« Cette fois, sous la conduite du prince Ji Du, nous avons parcouru six pays et sélectionné trois femmes. La dernière se trouve à Ville de la Pierre Noire. Après cela, nous retournerons au Dao Antique. » Le vieil homme répondit promptement, n'osant rien lui cacher. Il frappa rapidement le diable ancien sous ses pieds.
+« Cette fois, sous la conduite du prince Ji Du, nous avons parcouru six pays et sélectionné trois femmes. La dernière se trouve à Ville Hei Shi. Après cela, nous retournerons au Dao Antique. » Le vieil homme répondit promptement, n'osant rien lui cacher. Il frappa rapidement le diable ancien sous ses pieds.
 
 Le corps du diable ancien trembla et, dans un effet d'ondulation, deux magnifiques femmes en sortirent. Leurs yeux étaient emplis de peur lorsqu'elles s'inclinèrent devant Wang Lin.
 

@@ -16,19 +16,19 @@ Il existait même une infime fraction d'anciens dieux qui affrontaient leur prem
 
 Quant à la troisième épreuve et aux trois derniers cataclysmes, ils représentaient l'ultime défi qu'un ancien dieu puisse affronter. Quant à leur nature exacte, Tu Si l'ignorait.
 
-Les souvenirs de Tu Si ne contenaient rien concernant une première épreuve survenant à cinq étoiles. Chaque fois que Wang Lin y pensait, il souriait avec amertume. L'arrivée précoce de sa première épreuve était liée à son corps d'ancien dieu incomplet et au fait qu'il avait trop puisé dans ses pouvoirs d'ancien dieu dans la Terre des Esprits Démoniaques.
+Les souvenirs de Tu Si ne contenaient rien concernant une première épreuve survenant à cinq étoiles. Chaque fois que Wang Lin y pensait, il souriait avec amertume. L'arrivée précoce de sa première épreuve était liée à son corps d'ancien dieu incomplet et au fait qu'il avait trop puisé dans ses pouvoirs d'ancien dieu dans la Terre Yao Ling.
 
 Tout cela fit de lui le premier ancien dieu à subir la première épreuve dès cinq étoiles.
 
 L'épreuve qu'un ancien dieu de 8 étoiles avait franchie sans difficulté représentait pour Wang Lin une question de vie ou de mort.
 
-La première épreuve consistait en une destruction corporelle continue. Autrefois, au sein de la Secte Divine de l'Oiseau Vermillon, la moitié inférieure de Wang Lin n'était plus que des os noirs. Désormais, après son arrivée dans le Système Stellaire de la Mer des Nuages, cela s'était intensifié: tout ce qui se trouvait sous sa poitrine était devenu osseux.
+La première épreuve consistait en une destruction corporelle continue. Autrefois, au sein de la Secte Divine de l'Oiseau Vermillon, la moitié inférieure de Wang Lin n'était plus que des os noirs. Désormais, après son arrivée dans le Système Stellaire de la Mer Yun, cela s'était intensifié: tout ce qui se trouvait sous sa poitrine était devenu osseux.
 
 Ce n'était que le début, l'avènement de la première épreuve. Le corps continuerait à se désagréger jusqu'à ce qu'il ne reste plus ni chair ni sang. Alors, la première épreuve prendrait fin et les deux cataclysmes approcheraient.
 
 En l'absence de changement, son corps original mourrait sans aucun doute. Heureusement, Wang Lin avait obtenu le sang du cœur de Tu Si, ce qui lui donnait une chance de lutter.
 
-Le corps original reposait profondément sous terre, sous la Secte de l'Origine. Il n'y avait plus aucune trace de chair ou de sang; seuls les os subsistaient.
+Le corps original reposait profondément sous terre, sous la Secte Gui Yuan. Il n'y avait plus aucune trace de chair ou de sang; seuls les os subsistaient.
 
 Un mince film de couleur sang enveloppait les ossements. En regardant attentivement, on pouvait voir une infime quantité de sang circuler entre ce film et les os.
 
@@ -40,7 +40,7 @@ Le temps passa lentement et, en un clin d'œil, trois jours s'écoulèrent. Dura
 
 Au cours de ces trois jours, la taille du corps original avait décuplé!
 
-À cet instant, sous la Secte de l'Origine, un squelette de cent pieds de haut reposait calmement. Des éclats de lumière sanglante jaillissaient tandis que le sang sous le film circulait plus rapidement.
+À cet instant, sous la Secte Gui Yuan, un squelette de cent pieds de haut reposait calmement. Des éclats de lumière sanglante jaillissaient tandis que le sang sous le film circulait plus rapidement.
 
 Après trois jours supplémentaires, le squelette de Wang Lin finit sa croissance pour atteindre plus de 3 000 pieds de hauteur. La faible quantité de sang circulait toujours dans les os, chacun étant plus épais qu'un homme. Cependant, le flux sanguin ralentit jusqu'à finir par se dissiper.
 
@@ -92,7 +92,7 @@ Durant cette demi-lune, tout le continent de Mo Luo put entendre les grondements
 
 Les mortels du continent étaient terrifiés, ne comprenant pas ce qui se passait. Ils ne pouvaient que s'agenouiller et prier pour que les dieux ne soient pas en colère.
 
-Les cultivateurs de la Secte de l'Origine accordèrent une importance capitale à cet événement. Ils envoyèrent toute la secte pour enquêter. Ces bruits ressemblaient à des rugissements, et chaque fois qu'ils atteignaient leurs oreilles, ils ne pouvaient s'empêcher d'être ébranlés.
+Les cultivateurs de la Secte Gui Yuan accordèrent une importance capitale à cet événement. Ils envoyèrent toute la secte pour enquêter. Ces bruits ressemblaient à des rugissements, et chaque fois qu'ils atteignaient leurs oreilles, ils ne pouvaient s'empêcher d'être ébranlés.
 
 Li Xiangdong et Lu Yanfei, accompagnés de deux autres Anciens, flottaient dans les airs en observant la terre. Grâce à leur niveau de culture, ils sentaient clairement l'origine de ces rugissements.
 

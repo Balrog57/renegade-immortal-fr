@@ -82,13 +82,13 @@ La voix mélancolique de Wang Lin se propagea à travers les étoiles. Sa triste
 
 Durant ce court laps de temps d'un demi-mois, un bain de sang avait éclaté dans le Système Stellaire de l'Alliance. Depuis la zone ouest du système, l'armée des cultivateurs Luotian ravageait tout sur son passage. Sous les assauts des Luotian, les planètes de culture tombaient une à une et les cultivateurs qui y résidaient battaient en retraite.
 
-C'était comme si la fin du monde était arrivée. Ce qui était étrange, c'est que l'Alliance de Culture ne bougeait pas. Ils ne semblaient nullement inquiets, comme s'ils se contentaient d'observer la scène depuis la lisière.
+C'était comme si la fin du monde était arrivée. Ce qui était étrange, c'est que l'Alliance Xiu Zhen ne bougeait pas. Ils ne semblaient nullement inquiets, comme s'ils se contentaient d'observer la scène depuis la lisière.
 
 Le camp Luotian était très suspicieux et ne parvenait pas à déterminer l'attitude de l'Alliance. Même Yan Leizi et ses compagnons étaient rongés par le doute.
 
 Si la même chose s'était produite dans le Système Stellaire de Luotian, le Temple Céleste du Tonnerre aurait immédiatement organisé une contre-attaque. Ils n'auraient jamais laissé à l'adversaire la chance de prendre pied pour se rétablir!
 
-Non seulement l'Alliance de Culture restait silencieuse, mais aucune planète de culture de rang 7 ou supérieur ne s'était manifestée. Toutes les planètes occupées par les cultivateurs Luotian étaient de rang 6; et la moitié des planètes de rang 7 semblait avoir disparu : ils n'arrivaient pas à en trouver.
+Non seulement l'Alliance Xiu Zhen restait silencieuse, mais aucune planète de culture de rang 7 ou supérieur ne s'était manifestée. Toutes les planètes occupées par les cultivateurs Luotian étaient de rang 6; et la moitié des planètes de rang 7 semblait avoir disparu : ils n'arrivaient pas à en trouver.
 
 Cette situation singulière troublait davantage les cultivateurs Luotian. En apparence, le camp Luotian semblait triomphant. Cependant, devoir faire face à l'inconnu sans pouvoir anticiper les mouvements de l'adversaire rendait tous les vieux monstres du Système Stellaire de Luotian profondément mal à l'aise.
 

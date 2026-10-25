@@ -92,7 +92,7 @@ Selon les principes de la culture, nul ne peut recevoir d'aide extérieure pour 
 
 Cependant, atteindre ce stade est si ardu que des pilules capables de défier le ciel, telles que la Pilule d'Établissement des Fondations, furent créées. Aujourd'hui, après tant de temps, très peu de personnes parviennent à l'Établissement des Fondations sans l'aide d'une telle pilule.
 
-Bien que cela contrevienne aux lois célestes, l'Alliance de la Culture a décrété que les cieux étant morts, il était naturel de les défier. Avec le passage des âges, les hommes n'en ont plus cherché les fondements.
+Bien que cela contrevienne aux lois célestes, l'Alliance Xiu Zhen a décrété que les cieux étant morts, il était naturel de les défier. Avec le passage des âges, les hommes n'en ont plus cherché les fondements.
 
 Une fois l'Établissement des Fondations atteint, le corps devient plus apte à absorber l'énergie spirituelle et peut en contenir davantage. Pourtant, un nouveau goulot d'étranglement finit toujours par apparaître.
 

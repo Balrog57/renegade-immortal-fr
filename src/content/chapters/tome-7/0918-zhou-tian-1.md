@@ -60,7 +60,7 @@ Cependant, il fut incapable d'émettre le moindre son, car son corps s'effondra 
 
 Un cultivateur de ce niveau était véritablement insignifiant face à Wang Lin!
 
-Tout comme dans la Terre des Esprits Démoniaques, lorsque le Démon Dispersé pouvait faire s'effondrer le corps de Wang Lin par un simple grognement glacial; le Wang Lin d'aujourd'hui avait atteint le niveau que possédait alors le Démon Dispersé!
+Tout comme dans la Terre Yao Ling, lorsque le Démon Dispersé pouvait faire s'effondrer le corps de Wang Lin par un simple grognement glacial; le Wang Lin d'aujourd'hui avait atteint le niveau que possédait alors le Démon Dispersé!
 
 L'âme originelle de l'homme d'âge moyen s'échappa et commença à se dissiper. Alors qu'elle était sur le point de s'éteindre, une voix doucereuse et glaçante émana du vide:
 

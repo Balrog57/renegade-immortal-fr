@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1578 - Heavenly Change!"
 slug: changement-celeste
 ---
-« Le 18e niveau du Clan du Tatouage ne se situe pas dans les profondeurs de la planète Suzaku, mais dans le Champ de Bataille Extérieur! » Wang Lin s'approcha du mur et y pressa sa main droite. Des craquements résonnèrent tandis que les fissures se rejoignaient et que le mur s'effondrait, révélant une brèche.
+« Le 18e niveau du Clan Fu Wen ne se situe pas dans les profondeurs de la planète Suzaku, mais dans le Champ de Bataille Extérieur! » Wang Lin s'approcha du mur et y pressa sa main droite. Des craquements résonnèrent tandis que les fissures se rejoignaient et que le mur s'effondrait, révélant une brèche.
 
 Wang Lin se tint dans l'ouverture. Devant lui se déployait le Champ de Bataille Extérieur!
 
@@ -75,7 +75,7 @@ Il rétracta lentement son sens divin jusqu'à ce qu'il soit de nouveau contenu 
 Wang Lin avait découvert trop de choses lors de ce retour sur la planète Suzaku. Ces révélations étaient accablantes et rendaient sa planète natale plus étrangère que jamais.
 
 « Hongdie n'est pas morte... »
-« Le 19e niveau du Clan du Tatouage scellait la flèche de Li Guang... »
+« Le 19e niveau du Clan Fu Wen scellait la flèche de Li Guang... »
 « Le Champ de Bataille Extérieur d'autrefois n'était qu'une zone restreinte, et il existe un monde bien plus vaste au-delà. Il s'avère que tout cela fait partie de la porte... »
 
 Wang Lin s'assit au sommet d'une montagne sur la planète Suzaku. Il faisait face au vent hurlant qui fouettait ses cheveux et ses vêtements, le regard tourmenté.
@@ -102,7 +102,7 @@ Un coup de tonnerre éclata et plusieurs éclairs reliant le ciel et la terre d�
 
 Observant les nuages noirs tourbillonnants, Wang Lin prit une profonde inspiration, envahi par un sentiment d'irritation inexplicable. Il fronça les sourcils et réprima les découvertes qu'il venait de faire sur la planète Suzaku. Pour l'instant, il devait raffiner la force de rejet en lui et porter à leur plénitude ses essences de vie et de mort, de karma, et de vrai et de faux!
 
-Il affinerait ensuite l'épée d'essence de massacre que Qing Shui lui avait donnée et utiliserait ses six essences pour atteindre le Dao, briser la Porte du Vide et devenir un expert du troisième pas!
+Il affinerait ensuite l'épée d'essence de massacre que Qing Shui lui avait donnée et utiliserait ses six essences pour atteindre le Dao, briser la Porte Kong et devenir un expert du troisième pas!
 
 Wang Lin se leva pour partir. Derrière lui, les nuages tourbillonnants s'engouffrèrent comme si un dieu du massacre se cachait en leur sein, le fixant du regard. Il voulait le dévorer et le détruire, tout comme l'oiseau.
 

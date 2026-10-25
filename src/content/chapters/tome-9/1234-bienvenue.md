@@ -104,7 +104,7 @@ De l'instant où la brume avait expulsé les bêtes jusqu'à leur retour et leur
 
 « Son apparition était-elle un hasard, ou... les géantes bêtes-moustiques sont-elles venues pour le saluer? »
 
-Chacun échangea des regards chargés de terreur. Ils ne pouvaient oublier ce qu'ils venaient de voir. Pour les cultivateurs de la Mer des Nuages, la puissance des bêtes-moustiques occupant le Royaume Céleste du Vent était incontestée. Même la Secte Divine n'était pas certaine de pouvoir reprendre le contrôle du Royaume Céleste du Vent. Ils avaient autrefois dépêché un groupe de puissants cultivateurs, mais ils avaient tous échoué et personne n'en était revenu vivant.
+Chacun échangea des regards chargés de terreur. Ils ne pouvaient oublier ce qu'ils venaient de voir. Pour les cultivateurs de la Mer Yun, la puissance des bêtes-moustiques occupant le Royaume Céleste du Vent était incontestée. Même la Secte Divine n'était pas certaine de pouvoir reprendre le contrôle du Royaume Céleste du Vent. Ils avaient autrefois dépêché un groupe de puissants cultivateurs, mais ils avaient tous échoué et personne n'en était revenu vivant.
 
 Plus important encore, il était impossible de domestiquer ces bêtes géantes. Quelle que fût la méthode employée, elle avait toujours échoué. Avec le temps, cette caractéristique était devenue une vérité universelle.
 

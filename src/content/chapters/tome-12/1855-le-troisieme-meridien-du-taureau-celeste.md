@@ -6,17 +6,17 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1855 - Heavenly Bull’s Third Meridian
 slug: le-troisieme-meridien-du-taureau-celeste
 ---
-Qu'il s'agisse des sept méridiens ou des disciples résidant dans la Mer des Pilules, tous n'étaient que des pions placés par la Secte de la Grande Âme!
+Qu'il s'agisse des sept méridiens ou des disciples résidant dans la Mer Dan, tous n'étaient que des pions placés par la Secte Da Hun!
 
-Si la Secte de la Grande Âme l'avait voulu, la Mer des Pilules n'aurait pas été si facilement raffinée! Bien que le Continent du Démon Vert fût puissant, il ne pouvait égaler le premier ancêtre de la Secte de la Grande Âme en matière de divination!
+Si la Secte Da Hun l'avait voulu, la Mer Dan n'aurait pas été si facilement raffinée! Bien que le Continent Lu Mo fût puissant, il ne pouvait égaler le premier ancêtre de la Secte Da Hun en matière de divination!
 
 Car ce premier ancêtre appartenait à la même lignée que l'actuel Maître Impérial. Un héritier du Dao issu des temps anciens!
 
-L'Illustre Taureau Vert n'avait pas seulement offert un jade à Wang Lin, mais à quatre anciens au total au sein de la Secte de la Grande Âme!
+L'Illustre Taureau Vert n'avait pas seulement offert un jade à Wang Lin, mais à quatre anciens au total au sein de la Secte Da Hun!
 
 Après avoir rangé le jade, Wang Lin se leva et épousseta ses vêtements avant de sortir calmement de la montagne. À l'instant où il franchit le seuil, la mer de feu de la montagne se rassembla derrière lui pour former son corps véritable d'essence de feu. Celui-ci fusionna lentement avec son propre corps avant de disparaître.
 
-D'un seul pas, Wang Lin se changea en un rayon de lumière et vola vers l'entrée de la Secte de la Grande Âme.
+D'un seul pas, Wang Lin se changea en un rayon de lumière et vola vers l'entrée de la Secte Da Hun.
 
 Derrière lui, un autre éclat lumineux fonçait lui aussi vers l'entrée.
 
@@ -28,7 +28,7 @@ L'homme d'âge mûr fixa Wang Lin d'un regard profond et déclara lentement: « 
 
 Wang Lin atterrit calmement et soutint le regard de l'homme.
 
-« L'Ancien Lu m'est peu familier. » Durant son séjour à la Secte de la Grande Âme, Wang Lin avait une certaine idée de la plupart des anciens, à l'exception de ces vieux monstres. Mais c'était la première fois qu'il rencontrait cet homme.
+« L'Ancien Lu m'est peu familier. » Durant son séjour à la Secte Da Hun, Wang Lin avait une certaine idée de la plupart des anciens, à l'exception de ces vieux monstres. Mais c'était la première fois qu'il rencontrait cet homme.
 
 « Hehe, j'étais posté dans un lieu reculé sur ordre de l'Ancêtre et je ne suis revenu que récemment; il est donc naturel que l'Ancien Wang ne me connaisse pas. » L'homme d'âge mûr sourit.
 
@@ -44,15 +44,15 @@ Wang Lin observa les trois individus. Le plus faible d'entre eux se situait au d
 
 Avec ces trois personnes, ils constituaient déjà une force redoutable. Comparé à eux, la culture de Wang Lin au sommet du Vide Spirituel ne pouvait véritablement rivaliser.
 
-Tandis que Wang Lin les observait, les deux autres, hormis Yan Luan, l'étudiaient également. Durant cette période, Wang Lin avait acquis une certaine renommée au sein de la Secte de la Grande Âme.
+Tandis que Wang Lin les observait, les deux autres, hormis Yan Luan, l'étudiaient également. Durant cette période, Wang Lin avait acquis une certaine renommée au sein de la Secte Da Hun.
 
-Xu Dongde regarda Wang Lin et pensa intérieurement: « Quelqu'un capable d'accéder aux septième et huitième étages du Pavillon des Écritures de l'Âme ne peut être sous-estimé! »
+Xu Dongde regarda Wang Lin et pensa intérieurement: « Quelqu'un capable d'accéder aux septième et huitième étages du Pavillon Cang Hun ne peut être sous-estimé! »
 
-« Cet homme a quitté la Mer des Pilules en toute sécurité et a également provoqué l'explosion prématurée de la Mer des Pilules. Je ne peux le juger sur les seules apparences... De plus, sa capacité à revenir si rapidement de la Mer des Pilules est tout aussi prodigieuse! » Lu Wenran observait Wang Lin. Lui aussi était revenu de la Mer des Pilules, mais grâce au Bateau Nuageux du premier ancêtre que possédait l'Oncle-Maître Meng. C'était l'un des trésors les plus mystérieux du premier ancêtre, et sa vitesse était inimaginable.
+« Cet homme a quitté la Mer Dan en toute sécurité et a également provoqué l'explosion prématurée de la Mer Dan. Je ne peux le juger sur les seules apparences... De plus, sa capacité à revenir si rapidement de la Mer Dan est tout aussi prodigieuse! » Lu Wenran observait Wang Lin. Lui aussi était revenu de la Mer Dan, mais grâce au Bateau Nuageux du premier ancêtre que possédait l'Oncle-Maître Meng. C'était l'un des trésors les plus mystérieux du premier ancêtre, et sa vitesse était inimaginable.
 
-« Bien, puisque tout le monde est présent, notre mission consiste à nous rendre au troisième méridien du Taureau Céleste pour parer à l'invasion du Continent du Démon Vert. Ce voyage sera une lutte entre la vie et la mort, et l'imprévisible sera la règle... Soyez tous sur vos gardes! » Lu Wenran prit une profonde inspiration et joignit les mains en signe de respect envers les trois autres.
+« Bien, puisque tout le monde est présent, notre mission consiste à nous rendre au troisième méridien du Taureau Céleste pour parer à l'invasion du Continent Lu Mo. Ce voyage sera une lutte entre la vie et la mort, et l'imprévisible sera la règle... Soyez tous sur vos gardes! » Lu Wenran prit une profonde inspiration et joignit les mains en signe de respect envers les trois autres.
 
-Wang Lin garda le silence. Yan Luan et Xu Dongde ne dirent rien non plus, se contentant d'un signe de tête. Les quatre quittèrent rapidement la Secte de la Grande Âme.
+Wang Lin garda le silence. Yan Luan et Xu Dongde ne dirent rien non plus, se contentant d'un signe de tête. Les quatre quittèrent rapidement la Secte Da Hun.
 
 De nombreuses autres équipes, semblables à la leur, quittaient également la secte. Toutes avaient reçu l'ordre de l'Ancêtre de monter la garde en divers points stratégiques!
 
@@ -78,43 +78,43 @@ Sentant qu'il avait dépassé les bornes, Lu Wenran sourit. Il cessa de poser de
 
 Le groupe resta silencieux tout au long du trajet. Après sept jours, Lu Wenran agita sa manche et sortit un jade. Après l'avoir examiné attentivement, il pointa le sol du doigt.
 
-« C'est ici. Cet endroit est un réseau de transfert créé par le premier ancêtre de notre Secte de la Grande Âme. Il permet de téléporter les individus à proximité du troisième méridien. On ne peut pas l'utiliser à la légère, mais j'ai reçu l'autorisation de l'Ancêtre pour nous y conduire. » Sur ces mots, Lu Wenran s'élança vers le bas.
+« C'est ici. Cet endroit est un réseau de transfert créé par le premier ancêtre de notre Secte Da Hun. Il permet de téléporter les individus à proximité du troisième méridien. On ne peut pas l'utiliser à la légère, mais j'ai reçu l'autorisation de l'Ancêtre pour nous y conduire. » Sur ces mots, Lu Wenran s'élança vers le bas.
 
 Une montagne se dressait en contrebas. Selon les indications du jade, Lu Wenran pénétra dans une vallée nichée au cœur des monts, et le groupe de Wang Lin le suivit.
 
 Un instant plus tard, une onde de pression jaillit de la vallée, accompagnée d'un grondement monstrueux. Une lumière éblouissante éclata, persistant durant une heure avant de se dissiper.
 
-La vallée était vide. À la Prairie du Ciel Extrême, située à plusieurs mois de voyage, l'espace se distordit et les nuages tourbillonnèrent. Dans un éclat de lumière aveuglant, le groupe des quatre apparut un à un.
+La vallée était vide. À la Prairie Ji Tian, située à plusieurs mois de voyage, l'espace se distordit et les nuages tourbillonnèrent. Dans un éclat de lumière aveuglant, le groupe des quatre apparut un à un.
 
-Une fois la lumière dissipée, Wang Lin tourna le regard vers la Secte de la Grande Âme, l'expression grave.
+Une fois la lumière dissipée, Wang Lin tourna le regard vers la Secte Da Hun, l'expression grave.
 
 « Ce réseau de transfert est d'une grande profondeur... » Wang Lin n'était pas surpris que le Continent Astral Immortel possède des réseaux de transfert. Le continent était trop vaste; sans eux, les voyages prendraient un temps infini.
 
 « Je me demande s'il existe des réseaux entre les continents. Et même si c'est le cas, ils doivent être extrêmement difficiles à activer! »
 
-Le jade que tenait Lu Wenran se brisa après usage. Bien que Wang Lin ignorât quelle énergie était contenue dans ce jade pour permettre l'activation d'un tel réseau, il était certain que la Secte de la Grande Âme n'en possédait pas beaucoup!
+Le jade que tenait Lu Wenran se brisa après usage. Bien que Wang Lin ignorât quelle énergie était contenue dans ce jade pour permettre l'activation d'un tel réseau, il était certain que la Secte Da Hun n'en possédait pas beaucoup!
 
 C'était précisément la raison pour laquelle ces réseaux n'étaient utilisés qu'en cas de nécessité absolue. Une telle consommation de ressources était un fardeau que même une secte ne pouvait supporter trop souvent.
 
-En vérité, les spéculations de Wang Lin étaient exactes. La Secte de la Grande Âme possédait bien ces réseaux de transfert, mais chaque activation coûtait des ressources inimaginables. Malgré sa richesse, la secte ne pouvait se permettre de les activer plus d'une centaine de fois en dix mille ans!
+En vérité, les spéculations de Wang Lin étaient exactes. La Secte Da Hun possédait bien ces réseaux de transfert, mais chaque activation coûtait des ressources inimaginables. Malgré sa richesse, la secte ne pouvait se permettre de les activer plus d'une centaine de fois en dix mille ans!
 
-Lorsqu'ils apparurent, le crépuscule tombait. Le soleil doré baignait l'herbe d'une lumière qui conférait à la Prairie du Ciel Extrême une beauté singulière.
+Lorsqu'ils apparurent, le crépuscule tombait. Le soleil doré baignait l'herbe d'une lumière qui conférait à la Prairie Ji Tian une beauté singulière.
 
-« Voici l'emplacement du troisième méridien. La Secte de la Grande Âme y a établi un palais souterrain. Les cultivateurs des sectes voisines et les cultivateurs errants de la région devraient être ici. » Après avoir parlé, Lu Wenran s'avança et disparut dans le sol.
+« Voici l'emplacement du troisième méridien. La Secte Da Hun y a établi un palais souterrain. Les cultivateurs des sectes voisines et les cultivateurs errants de la région devraient être ici. » Après avoir parlé, Lu Wenran s'avança et disparut dans le sol.
 
 Yan Luan et Xu Dongde suivirent son mouvement. Wang Lin réfléchit un instant avant de disparaître lui aussi sous terre.
 
 Les quatre progressèrent rapidement en sous-sol jusqu'à découvrir une immense caverne creusée à une profondeur incalculable. Plus qu'une grotte, il s'agissait d'un vaste complexe de palais!
 
-L'ensemble était protégé par plusieurs couches de restrictions. Sans leur statut d'Anciens de la Secte de la Grande Âme et leurs jetons d'accès, pénétrer ici aurait été presque impossible.
+L'ensemble était protégé par plusieurs couches de restrictions. Sans leur statut d'Anciens de la Secte Da Hun et leurs jetons d'accès, pénétrer ici aurait été presque impossible.
 
-Près de 10 000 cultivateurs occupaient ce complexe. Il s'agissait principalement de membres des sectes environnantes ou de cultivateurs errants locaux qui, ayant reçu les ordres de la Secte de la Grande Âme, s'étaient précipités sur les lieux.
+Près de 10 000 cultivateurs occupaient ce complexe. Il s'agissait principalement de membres des sectes environnantes ou de cultivateurs errants locaux qui, ayant reçu les ordres de la Secte Da Hun, s'étaient précipités sur les lieux.
 
 À peine le groupe de Wang Lin fut-il arrivé qu'un rire chaleureux retentit depuis les palais. Trois éclats de lumière convergèrent, révélant trois vieillards qui saluèrent d'un geste de la main.
 
 « Frère Lu, cela fait mille ans que nous ne nous sommes pas vus. Vous voilà enfin! »
 
-« Frère Zhou, dès réception de l'ordre de l'Ancêtre, je me suis hâté de venir. Heureusement qu'aucun cultivateur du Continent du Démon Vert n'est encore arrivé. » Lu Wenran sourit en rencontrant le vieil homme et ils commencèrent à discuter.
+« Frère Zhou, dès réception de l'ordre de l'Ancêtre, je me suis hâté de venir. Heureusement qu'aucun cultivateur du Continent Lu Mo n'est encore arrivé. » Lu Wenran sourit en rencontrant le vieil homme et ils commencèrent à discuter.
 
 Les deux autres anciens saluèrent Yan Luan et Xu Dongde avec politesse, semblant les connaître déjà.
 
@@ -122,7 +122,7 @@ En revanche, les trois vieillards se contentèrent d'un simple signe de tête po
 
 L'expression de Wang Lin resta impassible. Le niveau de culture des trois vieillards était remarquable. Deux d'entre eux étaient au milieu du stade du Vide Arcanique, et le vieil homme nommé Zhou, qui conversait avec Lu Wenran, avait une culture légèrement supérieure, autour de six ou sept Tribulations Arcaniques, soit l'équivalent de Du Qing.
 
-« Vous connaissez déjà Yan Luan et l'Ancien Xu. Voici l'Ancien Wang, qui vient de rejoindre notre Secte de la Grande Âme. Il est venu nous prêter main-forte contre le Continent du Démon Vert! » Lu Wenran désigna Wang Lin pour le présenter.
+« Vous connaissez déjà Yan Luan et l'Ancien Xu. Voici l'Ancien Wang, qui vient de rejoindre notre Secte Da Hun. Il est venu nous prêter main-forte contre le Continent Lu Mo! » Lu Wenran désigna Wang Lin pour le présenter.
 
 De nombreux membres d'autres sectes se trouvaient à proximité et regardaient Lu Wenran et son groupe avec respect.
 

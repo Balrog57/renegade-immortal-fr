@@ -1,6 +1,6 @@
 ---
 n: 140
-title: La Mer des Démons
+title: La Mer Xiu Mo
 book: 2
 bookTitle: The Bloody Image of Cultivation
 en: Chapter 140 - Sea of Devils
@@ -74,21 +74,21 @@ Après avoir attendu un moment dans la forêt dense, la personne qui arriva n'é
 
 La main droite de Wang Lin bougea et le jade vola rapidement vers lui. Il vérifia l'objet avec son Sens Divin avant de le ranger. Puis, prenant une profonde inspiration, il s'enfonça sous terre et disparut prestement.
 
-Une fois les trois fragments de la carte fusionnés, Wang Lin comprit que Huo Fen appartenait au continent Zhou Wu. Un lieu nommé la Mer des Démons se trouvait entre celui-ci et le continent où résidait Zhao.
+Une fois les trois fragments de la carte fusionnés, Wang Lin comprit que Huo Fen appartenait au continent Zhou Wu. Un lieu nommé la Mer Xiu Mo se trouvait entre celui-ci et le continent où résidait Zhao.
 
-S'il voulait retourner à Zhao, il devrait traverser cette Mer des Démons, réputée être peuplée de cultivateurs démoniaques.
+S'il voulait retourner à Zhao, il devrait traverser cette Mer Xiu Mo, réputée être peuplée de cultivateurs démoniaques.
 
-La carte ne contenait que quelques détails sur la Mer des Démons. Elle indiquait simplement qu'il s'agissait d'un lieu extrêmement périlleux où même les cultivateurs de l'Âme Naissante n'osaient s'y aventurer à la légère.
+La carte ne contenait que quelques détails sur la Mer Xiu Mo. Elle indiquait simplement qu'il s'agissait d'un lieu extrêmement périlleux où même les cultivateurs de l'Âme Naissante n'osaient s'y aventurer à la légère.
 
-La carte précisait également que la Mer des Démons n'était plus une véritable mer. Dans l'Antiquité, un puissant cultivateur avait fait évaporer l'océan pour éliminer son ennemi.
+La carte précisait également que la Mer Xiu Mo n'était plus une véritable mer. Dans l'Antiquité, un puissant cultivateur avait fait évaporer l'océan pour éliminer son ennemi.
 
-Depuis lors, la Mer des Démons était perpétuellement plongée dans le brouillard; il serait donc plus juste de parler d'une mer de brume. Les créatures qui y vivaient s'étaient adaptées à cette atmosphère.
+Depuis lors, la Mer Xiu Mo était perpétuellement plongée dans le brouillard; il serait donc plus juste de parler d'une mer de brume. Les créatures qui y vivaient s'étaient adaptées à cette atmosphère.
 
 Par ailleurs, en raison de la nature particulière de ce brouillard, celui-ci se transformait en eau de mer une fois par an, pendant un mois, avant de redevenir brume.
 
-Du fait de cet environnement hostile, les ressources étaient rares, les veines spirituelles peu nombreuses et les meurtres monnaie courante. Tout cela faisait de la Mer des Démons un refuge pour les cultivateurs démoniaques. Même les criminels des nations de culture les plus puissantes, traqués par leurs propres royaumes, s'échappaient vers la Mer des Démons.
+Du fait de cet environnement hostile, les ressources étaient rares, les veines spirituelles peu nombreuses et les meurtres monnaie courante. Tout cela faisait de la Mer Xiu Mo un refuge pour les cultivateurs démoniaques. Même les criminels des nations de culture les plus puissantes, traqués par leurs propres royaumes, s'échappaient vers la Mer Xiu Mo.
 
-C'est de là que venait son nom. Quant à son véritable nom, personne ne s'en souvenait plus. La Mer des Démons était un lieu chaotique et désordonné. Très peu de cultivateurs non démoniaques acceptaient de s'y aventurer.
+C'est de là que venait son nom. Quant à son véritable nom, personne ne s'en souvenait plus. La Mer Xiu Mo était un lieu chaotique et désordonné. Très peu de cultivateurs non démoniaques acceptaient de s'y aventurer.
 
 Wang Lin assimilait les informations contenues dans le jade tout en utilisant la technique d'évasion tellurique. Il s'arrêta brusquement lorsqu'il détecta, par son Sens Divin, deux épées volantes fendant le ciel. Celle de tête appartenait à une jeune femme au visage pâle et paniqué. Son corps semblait sur le point de s'effondrer.
 
@@ -120,7 +120,7 @@ Le jeune homme dirigea ses épées pour attaquer le sol. Il afficha un sourire m
 
 Bien qu'il fût un cultivateur de la Formation du Noyau, il n'était pas spécialisé dans la vitesse. Face à l'épée volante ordinaire d'un cultivateur de l'Établissement des Fondations, il aurait pu poursuivre sans peine, mais face à une technique d'évasion des cinq éléments, réputée pour sa vitesse, sa faiblesse fut aussitôt exposée. Plus il poursuivait, plus l'écart entre lui et Wang Lin se creusait.
 
-Le visage de Wang Lin était sombre tandis qu'il jetait un regard impitoyable vers Li Muwan. Le cœur de celle-ci battait la chamade. Elle savait qu'elle l'avait entraîné dans sa chute. Elle mordit sa lèvre et dit rapidement: « Cet homme est un Ancien de la Secte de Double Culture de Xuan Wu. Il a appris que je possédais une Pilule du Ciel Lointain. C'est pourquoi il n'a pas hésité à déroger à son rang pour venir me poursuivre. »
+Le visage de Wang Lin était sombre tandis qu'il jetait un regard impitoyable vers Li Muwan. Le cœur de celle-ci battait la chamade. Elle savait qu'elle l'avait entraîné dans sa chute. Elle mordit sa lèvre et dit rapidement: « Cet homme est un Ancien de la Secte Shuang Xiu de Xuan Wu. Il a appris que je possédais une Pilule du Ciel Lointain. C'est pourquoi il n'a pas hésité à déroger à son rang pour venir me poursuivre. »
 
 Sans attendre la fin de ses explications, les yeux de Wang Lin s'illuminèrent: « Tu possèdes une Pilule du Ciel Lointain? »
 
@@ -128,7 +128,7 @@ Le regard de Wang Lin terrifia Li Muwan. Elle était une personne très intellig
 
 Après tout, ils étaient tous deux originaires de Huo Fen; tomber entre ses mains était préférable à celle de ce cultivateur de la Formation du Noyau. Pensant cela, elle ajouta immédiatement: « Je n'ai pas de Pilule du Ciel Lointain achevée, seulement un produit semi-complet... » Ses yeux s'embuèrent alors qu'elle percevait le regard peu amical de Wang Lin et expliqua précipitamment: « Aucune des pilules de la Secte Luo He n'est complète; elles sont toutes dans un état semi-fini. Cependant, il ne faut qu'une heure de raffinage pour la rendre parfaite. C'est parce qu'une fois la Pilule du Ciel Lointain achevée, elle est impossible à stocker. Elle doit être consommée dans l'année, sinon son efficacité diminue drastiquement. »
 
-L'esprit de Wang Lin tourna à toute vitesse. Il avait initialement prévu de faire un détour pour atteindre la Mer des Démons, mais désormais, tenant la main délicate de Li Muwan, il chargea vers la frontière de Huo Fen.
+L'esprit de Wang Lin tourna à toute vitesse. Il avait initialement prévu de faire un détour pour atteindre la Mer Xiu Mo, mais désormais, tenant la main délicate de Li Muwan, il chargea vers la frontière de Huo Fen.
 
 Wang Lin avait deux options. La première consistait à retourner à l'Union de Huo Fen. De nombreux cultivateurs puissants s'y trouvaient, elle n'était pas loin, et ils seraient en sécurité dès leur arrivée. Cependant, sans même parler de savoir si ce jeune homme de la Formation du Noyau de Xuan Wu les laisserait s'enfuir dans cette direction, une fois arrivés à la montagne, si Li Muwan changeait d'avis, il lui serait très difficile d'obtenir la pilule.
 
@@ -166,7 +166,7 @@ La véritable technique d'évasion des cinq éléments est légendaire. Elle exi
 
 Quant à la consommation d'énergie spirituelle... pour être honnête, c'était la dernière chose dont Wang Lin se souciait.
 
-Wang Lin utilisa la technique d'évasion tellurique pendant trois jours consécutifs pour traverser Huo Fen avec Li Muwan. Les bêtes de feu se rapprochaient et leurs rugissements étaient désormais audibles. À la frontière de Huo Fen, il émergea du sol. Il observa la Mer des Démons, puis se tourna vers Li Muwan, au visage pâle et épuisé, et demanda: « Es-tu certaine de pouvoir achever le raffinage de la pilule avant que les bêtes ne nous rattrapent? »
+Wang Lin utilisa la technique d'évasion tellurique pendant trois jours consécutifs pour traverser Huo Fen avec Li Muwan. Les bêtes de feu se rapprochaient et leurs rugissements étaient désormais audibles. À la frontière de Huo Fen, il émergea du sol. Il observa la Mer Xiu Mo, puis se tourna vers Li Muwan, au visage pâle et épuisé, et demanda: « Es-tu certaine de pouvoir achever le raffinage de la pilule avant que les bêtes ne nous rattrapent? »
 
 À ce stade, Li Muwan craignait Wang Lin du plus profond de son âme. Elle était désormais convaincue que la cible des bêtes de feu était l'homme devant elle. Pourquoi ignoreraient-elles l'Union de Huo Fen pour ne le traquer que lui? De plus, les bêtes semblaient nourrir une haine profonde envers ce personnage.
 
@@ -182,38 +182,38 @@ Wang Lin fronça les sourcils. Le temps pressait, pourtant cette fille semblait 
 
 Le cœur de Li Muwan tressaillit en voyant le froncement de sourcils de Wang Lin. Elle mordilla sa lèvre et dit d'une voix tremblante: « Se... Senior, le temps est trop court pour produire une pilule parfaite, mais... je peux raffiner des pilules. Je connais presque toutes les recettes de la Secte Luo He et j'ai mémorisé de nombreuses formules anciennes. Tant que j'ai les matériaux, je peux les raffiner. »
 
-Wang Lin fut surpris et la dévisagea un instant, avant de voir la lueur rouge approcher. Il saisit Li Muwan et chargea vers la Mer des Démons.
+Wang Lin fut surpris et la dévisagea un instant, avant de voir la lueur rouge approcher. Il saisit Li Muwan et chargea vers la Mer Xiu Mo.
 
 Li Muwan ignorait que ses paroles avaient réellement tenté Wang Lin. Aux yeux de Wang Lin, elle était devenue un véritable four à pilules ambulant. En l'utilisant judicieusement, son niveau de culture pourrait progresser considérablement.
 
 Wang Lin avait eu cette idée en lisant le journal de vie de Sun Youcai.
 
-La Mer des Démons était immense, semblable à une cavité gigantesque. On aurait pu l'appeler un bassin colossal, bien que celui-ci contienne de nombreuses chaînes de montagnes. Il n'y avait aucun arbre, mais une multitude de plantes étranges. En remontant leur lignée, on découvrirait qu'elles provenaient de la flore marine antique.
+La Mer Xiu Mo était immense, semblable à une cavité gigantesque. On aurait pu l'appeler un bassin colossal, bien que celui-ci contienne de nombreuses chaînes de montagnes. Il n'y avait aucun arbre, mais une multitude de plantes étranges. En remontant leur lignée, on découvrirait qu'elles provenaient de la flore marine antique.
 
-La saison où Wang Lin entra dans la Mer des Démons était celle où le brouillard était le plus dense. Peu après, ce brouillard se transformerait en eau, avant de redevenir brume un mois plus tard.
+La saison où Wang Lin entra dans la Mer Xiu Mo était celle où le brouillard était le plus dense. Peu après, ce brouillard se transformerait en eau, avant de redevenir brume un mois plus tard.
 
-Wang Lin entraîna Li Muwan dans l'épais brouillard. Son corps gracieux tremblait alors qu'elle murmurait: « Se... Senior, c'est la Mer des Démons! »
+Wang Lin entraîna Li Muwan dans l'épais brouillard. Son corps gracieux tremblait alors qu'elle murmurait: « Se... Senior, c'est la Mer Xiu Mo! »
 
 Wang Lin répondit froidement: « Je le sais! »
 
 Li Muwan soupira intérieurement et ne dit plus un mot.
 
-Dès leur entrée dans la Mer des Démons, des éclats d'énergie yin glaciale pénétrèrent leurs corps. Cette sensation, absente depuis si longtemps, redonna de l'énergie à Wang Lin; il ne s'attendait pas à trouver de l'énergie yin glaciale ici, ce qui le réjouit.
+Dès leur entrée dans la Mer Xiu Mo, des éclats d'énergie yin glaciale pénétrèrent leurs corps. Cette sensation, absente depuis si longtemps, redonna de l'énergie à Wang Lin; il ne s'attendait pas à trouver de l'énergie yin glaciale ici, ce qui le réjouit.
 
-Comparée à Huo Fen, la Mer des Démons était comme un bloc de glace, créant un contraste saisissant. C'était la première fois que Li Muwan venait ici. Les légendes qu'elle avait entendues lui revinrent en mémoire, rendant son visage plus pâle encore.
+Comparée à Huo Fen, la Mer Xiu Mo était comme un bloc de glace, créant un contraste saisissant. C'était la première fois que Li Muwan venait ici. Les légendes qu'elle avait entendues lui revinrent en mémoire, rendant son visage plus pâle encore.
 
 Wang Lin s'arrêta au milieu du brouillard. Là, la brume n'était pas trop épaisse et la limite de Huo Fen était visible. Il vit le nuage rouge approcher, mais une fois les bêtes de feu arrivées à la frontière, aucune ne la franchit. Elles ne purent que pousser de longs rugissements de colère, sans avancer d'un pas.
 
-Peu à peu, de plus en plus de bêtes s'assemblèrent, mais aucune n'entra dans la Mer des Démons. C'était comme si une faille invisible les en empêchait.
+Peu à peu, de plus en plus de bêtes s'assemblèrent, mais aucune n'entra dans la Mer Xiu Mo. C'était comme si une faille invisible les en empêchait.
 
 Après un long moment, une bête de feu finit par charger, mais dès qu'elle toucha le brouillard, elle poussa un cri de douleur atroce. Son corps se rétracta brusquement en dégageant des volutes de fumée blanche et sa peau passa rapidement du rouge au gris. La scène ressemblait à un charbon ardent jeté dans l'eau glacée.
 
 Voyant cela, Wang Lin fut rassuré. Selon son plan, même si les bêtes tentaient de charger, les créatures et les cultivateurs locaux les arrêteraient.
 
-La Mer des Démons était aussi vaste que plusieurs milliers de Huo Fen. Sur la carte du jade, l'écart ne se voyait guère, mais la notice consacrée à la Mer des Démons soulignait clairement cette différence d'échelle.
+La Mer Xiu Mo était aussi vaste que plusieurs milliers de Huo Fen. Sur la carte du jade, l'écart ne se voyait guère, mais la notice consacrée à la Mer Xiu Mo soulignait clairement cette différence d'échelle.
 
 Vu l'immensité du lieu, si Wang Lin s'y cachait, il serait difficile pour les bêtes de le trouver.
 
 Wang Lin s'élança, saisit Li Muwan — son four à pilules ambulant — et plongea rapidement le long du brouillard. Son Sens Divin du Royaume Ji se déploya pour surveiller les environs avec vigilance.
 
-Il devait se créer une grotte et atteindre la Formation du Noyau le plus vite possible. Ce n'est qu'une fois ce stade atteint, devenant le premier cultivateur sous le niveau de l'Âme Naissante, qu'il aurait la pleine confiance nécessaire pour survivre dans la Mer des Démons.
+Il devait se créer une grotte et atteindre la Formation du Noyau le plus vite possible. Ce n'est qu'une fois ce stade atteint, devenant le premier cultivateur sous le niveau de l'Âme Naissante, qu'il aurait la pleine confiance nécessaire pour survivre dans la Mer Xiu Mo.

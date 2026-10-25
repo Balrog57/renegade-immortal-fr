@@ -8,31 +8,31 @@ slug: xu-liguo
 ---
 Wang Lin prit une profonde inspiration et lança un coup de poing avec retenue. Bien que le geste fût empreint de douceur, il fit bouger la figure du Dieu Ancien derrière lui. La silhouette leva également son poing et projeta un coup simultané.
 
-Le poing de l'ancêtre du Clan des Démons Géants arriva rapidement et percuta celui de Wang Lin.
+Le poing de l'ancêtre du Clan Ju Mo arriva rapidement et percuta celui de Wang Lin.
 
 Boum! Boum! Boum!
 
-Le visage de l'ancêtre du Clan des Démons Géants pâlit tandis qu'il crachait une large bouchée de sang, son corps s'affaiblissant. Sans la moindre hésitation, il frappa son sac de rangement, faisant apparaître l'épée céleste. Son expression devint féroce lorsqu'il hurla: « Wang Lin, accepte ta mort! » Puis, il projeta l'épée céleste et la pointa du doigt.
+Le visage de l'ancêtre du Clan Ju Mo pâlit tandis qu'il crachait une large bouchée de sang, son corps s'affaiblissant. Sans la moindre hésitation, il frappa son sac de rangement, faisant apparaître l'épée céleste. Son expression devint féroce lorsqu'il hurla: « Wang Lin, accepte ta mort! » Puis, il projeta l'épée céleste et la pointa du doigt.
 
-Le corps de Wang Lin fut projeté en arrière comme une météorite. Tout son bras droit était douloureux et engourdi; il avait totalement perdu toute sensation dans ce membre. La force combinée du corps de l'ancêtre du Clan des Démons Géants et de l'énergie spirituelle céleste lui infligea de lourds dommages, faisant passer son corps d'un géant d'une trentaine de mètres à sa taille normale, bien que ses yeux brillaient toujours intensément.
+Le corps de Wang Lin fut projeté en arrière comme une météorite. Tout son bras droit était douloureux et engourdi; il avait totalement perdu toute sensation dans ce membre. La force combinée du corps de l'ancêtre du Clan Ju Mo et de l'énergie spirituelle céleste lui infligea de lourds dommages, faisant passer son corps d'un géant d'une trentaine de mètres à sa taille normale, bien que ses yeux brillaient toujours intensément.
 
-Au moment où l'épée céleste apparut, un gaz noir s'en échappa, prenant la forme de Xu Liguo. Le visage de l'ancêtre du Clan des Démons Géants était féroce lorsqu'il cria: « Tranche! »
+Au moment où l'épée céleste apparut, un gaz noir s'en échappa, prenant la forme de Xu Liguo. Le visage de l'ancêtre du Clan Ju Mo était féroce lorsqu'il cria: « Tranche! »
 
 À l'instant même où il prononça ce mot, une puissante énergie d'épée, comme pour fendre le ciel et la terre, se rassembla sur l'arme céleste et fondit sur Wang Lin.
 
 Xu Liguo laissa échapper un rugissement et hurla: « Wang Lin, je viens me venger! »
 
-L'ancêtre du Clan des Démons Géants afficha un rictus féroce et rugit: « Wang Lin, regarde ce vieil homme utiliser ton propre trésor pour te tuer! »
+L'ancêtre du Clan Ju Mo afficha un rictus féroce et rugit: « Wang Lin, regarde ce vieil homme utiliser ton propre trésor pour te tuer! »
 
-Wang Lin esquissa un sourire moqueur. Loin de se dérober, il pointa l'épée céleste du doigt. Soudain, l'épée fit demi-tour et frappa l'ancêtre du Clan des Démons Géants avec la rapidité de la foudre.
+Wang Lin esquissa un sourire moqueur. Loin de se dérober, il pointa l'épée céleste du doigt. Soudain, l'épée fit demi-tour et frappa l'ancêtre du Clan Ju Mo avec la rapidité de la foudre.
 
 L'ancêtre fut stupéfait et son expression changea radicalement. L'énergie d'épée était déjà sur lui; il était trop tard pour esquiver, et ne put que reculer de justesse.
 
-L'énergie d'épée frappa et, dans une éclaboussure de sang, le bras gauche de l'ancêtre du Clan des Démons Géants fut tranché net. Il laissa échapper un gémissement misérable en reculant précipitamment, laissant derrière lui une traînée de sang.
+L'énergie d'épée frappa et, dans une éclaboussure de sang, le bras gauche de l'ancêtre du Clan Ju Mo fut tranché net. Il laissa échapper un gémissement misérable en reculant précipitamment, laissant derrière lui une traînée de sang.
 
 « Xu Liguo!!!! Ce vieil homme va extraire ton âme, te sceller dans le feu Yang et te raffiner vivant!!! »
 
-La haine qui habitait l'ancêtre du Clan des Démons Géants pouvait briser les cieux, et sa colère pouvait engloutir la terre. Il poussa un rugissement de rage tout en s'éloignant rapidement.
+La haine qui habitait l'ancêtre du Clan Ju Mo pouvait briser les cieux, et sa colère pouvait engloutir la terre. Il poussa un rugissement de rage tout en s'éloignant rapidement.
 
 Il n'avait d'autre choix que de battre en retraite, car il n'avait pas achevé sa possession et avait dû consacrer toute son énergie spirituelle céleste à ce coup de poing. Wang Lin l'avait alors accueilli avec un coup d'une puissance égale à la sienne, aggravant ainsi ses blessures.
 
@@ -42,11 +42,11 @@ Xu Liguo éclata immédiatement de rire et cria: « Petit morveux, peu importe t
 
 Une fois ses paroles achevées, il se tourna rapidement vers Wang Lin avec un sourire: « Maître, qu'en dites-vous? Comment ai-je été? Ai-je bien agi cette fois? »
 
-Wang Lin laissa filtrer un léger sourire. Il s'avança, saisit l'épée céleste, puis chargea vers l'ancêtre du Clan des Démons Géants en disant: « Tu as bien agi. Une fois cet homme tué, je t'emmènerai sur le champ de bataille étranger pour que tu puisses absorber les âmes errantes et accroître ta puissance spirituelle. »
+Wang Lin laissa filtrer un léger sourire. Il s'avança, saisit l'épée céleste, puis chargea vers l'ancêtre du Clan Ju Mo en disant: « Tu as bien agi. Une fois cet homme tué, je t'emmènerai sur le champ de bataille étranger pour que tu puisses absorber les âmes errantes et accroître ta puissance spirituelle. »
 
-Xu Liguo fut instantanément transporté par la joie. Durant ces deux dernières années, il avait été tenté; après tout, l'ancêtre du Clan des Démons Géants avait été bon envers lui. Cependant, chaque fois qu'il songeait à la façon dont Wang Lin traitait les âmes errantes ainsi que les Numéros 2 et 3, son cœur frissonnait et il renonçait aussitôt à trahir son maître.
+Xu Liguo fut instantanément transporté par la joie. Durant ces deux dernières années, il avait été tenté; après tout, l'ancêtre du Clan Ju Mo avait été bon envers lui. Cependant, chaque fois qu'il songeait à la façon dont Wang Lin traitait les âmes errantes ainsi que les Numéros 2 et 3, son cœur frissonnait et il renonçait aussitôt à trahir son maître.
 
-À ses yeux, Wang Lin suivait une voie sanglante; tous ceux qui s'étaient opposés à lui avaient été exécutés sans exception. Il sentait que cet ancêtre du Clan des Démons Géants ne ferait pas exception, il devait donc choisir le bon camp pour éviter le désastre.
+À ses yeux, Wang Lin suivait une voie sanglante; tous ceux qui s'étaient opposés à lui avaient été exécutés sans exception. Il sentait que cet ancêtre du Clan Ju Mo ne ferait pas exception, il devait donc choisir le bon camp pour éviter le désastre.
 
 En ce moment, il se sentait très fier et pensa: « Ton grand-père Xu est toujours le plus malin. On dirait bien que j'ai pris la bonne décision. À l'avenir, ce démon me verra certainement sous un nouveau jour. »
 
@@ -54,11 +54,11 @@ Pensant à la bonté dont l'ancêtre avait fait preuve à son égard, il ne put 
 
 Surtout lorsqu'il pensa à cette petite fée, son cœur se serra: « Ne t'inquiète pas, petite sœur fée, je te sauverai certainement de la mer de feu! »
 
-Une autre raison pour laquelle Xu Liguo avait trahi l'ancêtre sans la moindre hésitation, outre sa peur paralysante de Wang Lin, était l'âme de Feng Luan. En interagissant avec elle, il lui avait personnellement promis de la sauver des griffes de l'ancêtre du Clan des Démons Géants.
+Une autre raison pour laquelle Xu Liguo avait trahi l'ancêtre sans la moindre hésitation, outre sa peur paralysante de Wang Lin, était l'âme de Feng Luan. En interagissant avec elle, il lui avait personnellement promis de la sauver des griffes de l'ancêtre du Clan Ju Mo.
 
-Se remémorant cela, il dit rapidement à Wang Lin: « Maître, ce vieux bougre du Clan des Démons Géants possède un trésor en forme de roue dans son sac, qui contient une âme scellée. Une fois que tu auras terrassé ce vieux débris, tu devras sauver cette âme. »
+Se remémorant cela, il dit rapidement à Wang Lin: « Maître, ce vieux bougre du Clan Ju Mo possède un trésor en forme de roue dans son sac, qui contient une âme scellée. Une fois que tu auras terrassé ce vieux débris, tu devras sauver cette âme. »
 
-Wang Lin acquiesça. Il se déplaça comme l'éclair, l'épée céleste à la main, pour poursuivre l'ancêtre du Clan des Démons Géants.
+Wang Lin acquiesça. Il se déplaça comme l'éclair, l'épée céleste à la main, pour poursuivre l'ancêtre du Clan Ju Mo.
 
 L'ancêtre continuait de rugir. La majeure partie de sa rage était dirigée contre Xu Liguo. Durant ces deux dernières années, il avait traité ce dernier avec égard et lui avait même offert l'âme scellée de la luxure, mais au final, Xu Liguo l'avait tout de même trahi.
 
@@ -66,9 +66,9 @@ L'ancêtre continuait de rugir. La majeure partie de sa rage était dirigée con
 
 Les yeux de Wang Lin s'illuminèrent. Il leva la main et abattit l'épée céleste sans hésiter. Un rayon d'énergie d'épée jaillit soudainement de la lame.
 
-L'ancêtre du Clan des Démons Géants esquiva l'attaque et continua sa fuite. Bientôt, il atteignit la bordure orientale du territoire du clan. Arrivé là, il s'arrêta brusquement et fit volte-face. Il frappa son sac de rangement d'un coup sec, et un bâton noir apparut. Il agita l'objet, faisant jaillir des flammes noires, puis le bâton se transforma soudainement en une torche.
+L'ancêtre du Clan Ju Mo esquiva l'attaque et continua sa fuite. Bientôt, il atteignit la bordure orientale du territoire du clan. Arrivé là, il s'arrêta brusquement et fit volte-face. Il frappa son sac de rangement d'un coup sec, et un bâton noir apparut. Il agita l'objet, faisant jaillir des flammes noires, puis le bâton se transforma soudainement en une torche.
 
-« Wang Lin, cet endroit sera ta tombe! Ton corps servira à ma prochaine possession! » hurla l'ancêtre du Clan des Démons Géants avant de brandir la torche.
+« Wang Lin, cet endroit sera ta tombe! Ton corps servira à ma prochaine possession! » hurla l'ancêtre du Clan Ju Mo avant de brandir la torche.
 
 Dans un fracas assourdissant, les 3,3 kilomètres environnants se transformèrent soudainement en une mer de feu.
 
@@ -100,20 +100,20 @@ D'un mouvement de la bannière, plusieurs milliers de fragments d'âmes s'envol�
 
 « Détruisez! » Les yeux de Wang Lin devinrent glacials. Les milliers de fragments d'âmes poussèrent des gémissements fantomatiques. Sous le commandement de Li Yuanfeng, âme principale de la Transformation de l'Âme, ils chargèrent tous la bête de flammes noires qui venait de s'extraire de l'onde de choc.
 
-Une fois cela fait, Wang Lin tourna son regard vers l'ancêtre du Clan des Démons Géants. Il ne croyait pas qu'un cultivateur au début du stade de la Transformation de l'Âme ne possède que ces quelques techniques. L'ancêtre devait cacher un atout majeur, et il y avait forcément une raison pour qu'il s'arrête en ce lieu précis.
+Une fois cela fait, Wang Lin tourna son regard vers l'ancêtre du Clan Ju Mo. Il ne croyait pas qu'un cultivateur au début du stade de la Transformation de l'Âme ne possède que ces quelques techniques. L'ancêtre devait cacher un atout majeur, et il y avait forcément une raison pour qu'il s'arrête en ce lieu précis.
 
 L'ancêtre prit une profonde inspiration. Ses deux mains formèrent un sceau, faisant apparaître une empreinte gigantesque devant lui. Dans un rugissement, il projeta cette empreinte vers le ciel. Celle-ci se fragmenta rapidement en d'innombrables empreintes plus petites avant de disparaître.
 
-Simultanément, l'ancêtre bougea. Il s'agenouilla dans les airs et s'inclina face au firmament. Puis, il cria: « Le 67e membre de la lignée du Clan des Démons Géants demande à récupérer le trésor laissé par notre ancêtre fondateur pour conjurer la calamité qui menace mon clan! »
+Simultanément, l'ancêtre bougea. Il s'agenouilla dans les airs et s'inclina face au firmament. Puis, il cria: « Le 67e membre de la lignée du Clan Ju Mo demande à récupérer le trésor laissé par notre ancêtre fondateur pour conjurer la calamité qui menace mon clan! »
 
 À l'instant où il eut fini de parler, le ciel s'obscurcit et le sol se mit à trembler dans tout le territoire du clan.
 
-Sur la frontière orientale du Clan des Démons Géants se dressait une montagne immense, la plus haute du pays. De loin, elle semblait percer les cieux. À cet instant précis, la montagne se fendit en deux et une hache gigantesque, émettant une lueur rouge, s'éleva lentement dans le ciel.
+Sur la frontière orientale du Clan Ju Mo se dressait une montagne immense, la plus haute du pays. De loin, elle semblait percer les cieux. À cet instant précis, la montagne se fendit en deux et une hache gigantesque, émettant une lueur rouge, s'éleva lentement dans le ciel.
 
 L'ancêtre afficha un respect qu'il n'avait jamais montré auparavant. Il tendit la main et la hache géante vint se loger dans sa paume.
 
 Instantanément, des éclairs rouges jaillirent de l'arme et enveloppèrent le corps de l'ancêtre. Ses cheveux se mirent à flotter sans vent, et une aura puissante, totalement inédite jusqu'alors, émana de lui.
 
-« Wang Lin, lorsque mon clan s'est établi sur cette planète, notre ancêtre fondateur utilisa cette hache pour fendre le ciel et la terre et se rendre chez le Clan des Immortels Délaissés. Là-bas, il tua deux chamans à neuf feuilles pour garantir au Clan des Démons Géants le droit de vivre ici! Aujourd'hui, bien que l'ancêtre fondateur soit toujours porté disparu, sa hache est toujours là! »
+« Wang Lin, lorsque mon clan s'est établi sur cette planète, notre ancêtre fondateur utilisa cette hache pour fendre le ciel et la terre et se rendre chez le Clan Xian Yi. Là-bas, il tua deux chamans à neuf feuilles pour garantir au Clan Ju Mo le droit de vivre ici! Aujourd'hui, bien que l'ancêtre fondateur soit toujours porté disparu, sa hache est toujours là! »
 
-Wang Lin observa la hache rouge dans la main de l'ancêtre. Il ne put s'empêcher de penser au corps qui reposait sous la Secte des Cadavres, à Zhao.
+Wang Lin observa la hache rouge dans la main de l'ancêtre. Il ne put s'empêcher de penser au corps qui reposait sous la Secte Shi Yin, à Zhao.

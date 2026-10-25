@@ -14,7 +14,7 @@ Les souvenirs infinis et le choc furent tels que chacun regarda Wang Lin avec un
 
 Il était devenu célèbre en une seule bataille!
 
-À cet instant précis, tout le monde connaissait désormais la Secte de l'Origine et son Lu Zihao!
+À cet instant précis, tout le monde connaissait désormais la Secte Gui Yuan et son Lu Zihao!
 
 Le ressentiment dans le cœur de Feng Hai s'était effondré. Il fut violemment dissipé par la stupeur qui l'envahissait, et il n'osa plus laisser les pensées révoltées lui traverser l'esprit comme auparavant. Il avait personnellement vu la Nuit Brisée et le Temps qui s'écoule, et cela lui avait fait dresser les poils sur la peau. Il savait que si l'un de ces sorts avait été dirigé contre lui, il serait sans aucun doute mort!
 
@@ -30,9 +30,9 @@ Tout cela rendait Wang Lin encore plus impénétrable et mystérieux aux yeux de
 
 Presque tout le monde était convaincu que Wang Lin n'avait pas encore montré toute l'étendue de ses pouvoirs et qu'il lui restait encore quelques atouts cachés!
 
-Wang Lin représentait la Secte de l'Origine. Après cet événement, une chose se répandit à travers la Mer des Nuages:
+Wang Lin représentait la Secte Gui Yuan. Après cet événement, une chose se répandit à travers la Mer Yun:
 
-Les gens préféreraient traverser le Monde de la Brume Animale plutôt que de provoquer la Secte de l'Origine!
+Les gens préféreraient traverser le Monde Shou Wu plutôt que de provoquer la Secte Gui Yuan!
 
 Le Maître de la Secte Éternelle poussa un soupir. Bien qu'il ait surestimé la force de Wang Lin, il était, en fin de compte, resté bien en deçà de la réalité. Que ce soit ce doigt, l'extraction de l'âme planétaire, la Nuit Brisée ou le sort temporel utilisé à la fin, tout cela suffisait à démontrer la puissance de Wang Lin.
 
@@ -48,13 +48,13 @@ Ce qui importait, c'est qu'elle avait quitté la Secte Démon pour voir une seul
 
 Mu Bingmei se mordit la lèvre inférieure. Chaque fois qu'elle voyait Wang Lin, il était totalement différent. Cependant, elle ne pensait pas qu'il changerait à ce point lors de cette rencontre fortuite.
 
-Pourtant, Mu Bingmei comprenait que rien de tout cela n'avait de lien avec elle. Elle savait qu'en se disant adieu dans le Royaume du Vide Brillant, ils étaient devenus des étrangers. Même s'ils se croisaient, ils ne feraient que passer l'un à côté de l'autre.
+Pourtant, Mu Bingmei comprenait que rien de tout cela n'avait de lien avec elle. Elle savait qu'en se disant adieu dans le Royaume Kun Xu, ils étaient devenus des étrangers. Même s'ils se croisaient, ils ne feraient que passer l'un à côté de l'autre.
 
 Il semblait que leur destin était d'être ni familiers, ni inconnus. Ce sentiment d'indifférence entre eux existerait pour toujours.
 
 Nul ne réalisa que Wang Shanshan, de la Secte Divine, avait un éclat étrange dans les yeux en fixant Wang Lin. Elle sortit délicatement une pierre de jade et enregistra tout ce dont elle avait été témoin. Puis, elle pressa le jade qui disparut dans sa main.
 
-Par cette méthode singulière, Wang Shanshan transmit tout ce qu'elle avait vu à son maître de la Secte Divine. Elle l'avait fait sans préméditation; elle voulait simplement montrer un génie de la Mer des Nuages à son mentor. Elle pensait même que celui-ci chercherait certainement à recruter cet homme au sein de la Secte Divine après avoir vu cela!
+Par cette méthode singulière, Wang Shanshan transmit tout ce qu'elle avait vu à son maître de la Secte Divine. Elle l'avait fait sans préméditation; elle voulait simplement montrer un génie de la Mer Yun à son mentor. Elle pensait même que celui-ci chercherait certainement à recruter cet homme au sein de la Secte Divine après avoir vu cela!
 
 Cependant, elle n'aurait jamais pu imaginer l'immense onde de choc qui serait déclenchée lorsque son maître verrait ce qui était gravé dans ce petit morceau de jade!
 
@@ -68,11 +68,11 @@ Le visage de Wang Lin était extrêmement pâle, mais il resta calme. Joignant l
 
 Wang Lin sourit et joignit les mains, mais garda le silence.
 
-Le vieil homme aux cheveux blancs regarda le Maître de la Secte Éternelle et dit doucement: « Avec le Confrère Lu appartenant à la Secte de l'Origine, il serait inapproprié qu'ils restent dans la région de rang 5. »
+Le vieil homme aux cheveux blancs regarda le Maître de la Secte Éternelle et dit doucement: « Avec le Confrère Lu appartenant à la Secte Gui Yuan, il serait inapproprié qu'ils restent dans la région de rang 5. »
 
 En tant que Grand Ancien de la Secte Éternelle, il s'était consacré à la culture sans jamais se soucier des affaires mondaines. Le fait qu'il demande la promotion d'une secte démontrait sa volonté de se lier d'amitié avec Wang Lin et de compenser leur tentative de le tester et de lui donner une leçon.
 
-Le Maître de la Secte Éternelle sourit et hocha la tête. « L'Ancien Liu a raison. Le Confrère Lu vient de la Secte de l'Origine, il serait donc déplacé qu'ils demeurent dans la région de rang 5. Confrère Lu, que diriez-vous de transférer la Secte de l'Origine vers la région de rang 7? »
+Le Maître de la Secte Éternelle sourit et hocha la tête. « L'Ancien Liu a raison. Le Confrère Lu vient de la Secte Gui Yuan, il serait donc déplacé qu'ils demeurent dans la région de rang 5. Confrère Lu, que diriez-vous de transférer la Secte Gui Yuan vers la région de rang 7? »
 
 L'expression de Wang Lin resta neutre tandis qu'il joignait les mains en souriant. « Si vous faites cela, je vous en remercie tous les deux. »
 

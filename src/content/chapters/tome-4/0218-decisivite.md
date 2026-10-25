@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 218 - Decisiveness
 slug: decisivite
 ---
-Au sein de la Secte du Ciel Nuageux, la plupart des cultivateurs de l'Âme Naissante se trouvaient dans la secte extérieure, bien qu'il en fût encore quelques-uns dans la secte intérieure. Cependant, la majorité d'entre eux se consacraient à l'alchimie et se livraient rarement au combat.
+Au sein de la Secte Yun Tian, la plupart des cultivateurs de l'Âme Naissante se trouvaient dans la secte extérieure, bien qu'il en fût encore quelques-uns dans la secte intérieure. Cependant, la majorité d'entre eux se consacraient à l'alchimie et se livraient rarement au combat.
 
 C'était le cas du seul cultivateur de l'Âme Naissante du patio sud, qui se trouvait actuellement dans la chambre secrète souterraine du patio sud, au plus près du feu terrestre, et utilisait son propre feu d'Âme Naissante ainsi que le feu terrestre pour raffiner un lot de pilules destinées à augmenter son niveau de culture.
 
@@ -54,9 +54,9 @@ Wang Lin fronça les sourcils et répondit froidement: « Je ne te donnerai que 
 
 Cheng Xian serra les dents et lâcha: « Gongsun Tong, du patio oriental! C'est elle qui est responsable de tout cela. Cette garce ne s'est approchée de moi que pour mon Grand Singe et mon Deuxième Singe. »
 
-Wang Lin réfléchit un instant. « Ces deux singes t'appartiennent? » Sa question était subtile. Dans la Secte du Ciel Nuageux, de nombreux animaux spirituels étaient destinés à l'alchimie. Si tel était le cas, les agissements de Gongsun Tong n'étaient pas totalement injustifiables.
+Wang Lin réfléchit un instant. « Ces deux singes t'appartiennent? » Sa question était subtile. Dans la Secte Yun Tian, de nombreux animaux spirituels étaient destinés à l'alchimie. Si tel était le cas, les agissements de Gongsun Tong n'étaient pas totalement injustifiables.
 
-Cheng Xian acquiesça: « Je vois ce que l'Aîné veut dire. Ces deux singes ne sont pas des bêtes de la Secte du Ciel Nuageux. Je les avais déjà obtenus avant d'entrer dans la secte et je les y ai amenés. Selon les règles de la secte, ces deux bêtes m'appartiennent en propre. »
+Cheng Xian acquiesça: « Je vois ce que l'Aîné veut dire. Ces deux singes ne sont pas des bêtes de la Secte Yun Tian. Je les avais déjà obtenus avant d'entrer dans la secte et je les y ai amenés. Selon les règles de la secte, ces deux bêtes m'appartiennent en propre. »
 
 Wang Lin demanda calmement: « Ainsi, cette Gongsun Tong s'est approchée de toi pour réclamer ces singes. Pour lui plaire, tu les lui as donnés, n'est-ce pas? »
 
@@ -98,7 +98,7 @@ Wang Lin esquissa un sourire amer et demanda: « Pourquoi faut-il que tu agisses
 
 La main droite de l'homme s'immobilisa net. Son visage se décomposa à nouveau. La sensation que Wang Lin dégageait était trop étrange; bien qu'il n'en fût manifestement qu'au stade avancé de la Formation du Noyau, la pression qu'il exerçait était comparable à celle d'un cultivateur de l'Âme Naissante.
 
-Il n'avait aucun doute: si sa main touchait son sac, Wang Lin l'exécuterait instantanément. Des perles de sueur apparurent sur son front alors qu'il balbutiait: « Puisque ce frère est un ancien ami de la sœur cadette Li, vous êtes donc un ami de la Secte du Ciel Nuageux. Comment oserais-je être impoli? Ce frère m'a mal compris. »
+Il n'avait aucun doute: si sa main touchait son sac, Wang Lin l'exécuterait instantanément. Des perles de sueur apparurent sur son front alors qu'il balbutiait: « Puisque ce frère est un ancien ami de la sœur cadette Li, vous êtes donc un ami de la Secte Yun Tian. Comment oserais-je être impoli? Ce frère m'a mal compris. »
 
 Li Muwan regardait Wang Lin. Elle avait mille choses à lui dire, mais aucun mot ne pouvait franchir ses lèvres. Après un moment de réflexion, elle demanda: « Possèdes-tu toujours ce morceau de jade? »
 
@@ -116,7 +116,7 @@ Wang Lin détourna la tête, refusant de croiser le regard de Li Muwan. Après u
 
 Le cœur de Li Muwan se serra. Elle esquissa un sourire éphémère en regardant le dos de Wang Lin. Ce sourire, pour quiconque l'observait, ressemblait clairement à des pleurs silencieux.
 
-« L'ancêtre fondateur de la Secte du Ciel Nuageux veut que je forme un couple de culture avec cet homme. Auparavant, j'avais des raisons de refuser, mais aujourd'hui, je n'ai plus aucune raison... Si tu es encore dans le pays de Chu dans trois mois, j'espère que tu viendras assister à la cérémonie de double culture... »
+« L'ancêtre fondateur de la Secte Yun Tian veut que je forme un couple de culture avec cet homme. Auparavant, j'avais des raisons de refuser, mais aujourd'hui, je n'ai plus aucune raison... Si tu es encore dans le pays de Chu dans trois mois, j'espère que tu viendras assister à la cérémonie de double culture... »
 
 Les pas de Wang Lin tremblèrent aussitôt. Des pensées complexes l'envahirent et il resta silencieux. Les yeux de Li Muwan brillaient d'espoir en attendant sa réponse.
 

@@ -1,6 +1,6 @@
 ---
 n: 1352
-title: "Bataille au Clan du Tonnerre Dispersé! (6)"
+title: "Bataille au Clan Shan Lei! (6)"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: "Chapter 1352 - Battle at the Scatter Thunder Clan ! (6)"
@@ -76,7 +76,7 @@ Dès que le fil doré fut lancé, il s'étendit indéfiniment! Mille pieds, dix 
 
 Cette ligne dorée s'étirait à l'infini et trancha directement la tempête qui entourait Wang Lin. L'orage gronda une dernière fois avant de s'effondrer immédiatement!
 
-Lors de cet effondrement, les âmes des huit anciens dragons de tonnerre furent scindées en deux, poussant des cris funèbres. Elles commencèrent à se dissiper, prêtes à retourner dans le Royaume du Tonnerre Antique, disparu depuis longtemps!
+Lors de cet effondrement, les âmes des huit anciens dragons de tonnerre furent scindées en deux, poussant des cris funèbres. Elles commencèrent à se dissiper, prêtes à retourner dans le Royaume Tai Gu Lei, disparu depuis longtemps!
 
 Les yeux du Grand Ancien étaient emplis d'une terreur monstrueuse. Dès l'apparition de la ligne dorée, il recula précipitamment mais fut tout de même atteint. Il cracha immédiatement du sang en s'enfuyant et s'écria: « Ceci!! Ceci!! Le Fouet de Scellement des Âmes des Dix Mille Mondes a été emporté autrefois. Il n'aurait jamais dû réapparaître dans ce monde!! »
 
@@ -92,7 +92,7 @@ Cependant, cette figure qui l'avait tant terrifié s'effondra lorsque le mystér
 
 « Ils sont déjà partis, ils ont pris le fouet et sont partis. Pourquoi le trésor de leur chef réapparaît-il ainsi, et entre ses mains?! À moins que... à moins que ce ne soit l'esprit de l'Ancêtre qui agisse, envoyant cet homme ici pour me remettre le Fouet de Scellement des Âmes des Dix Mille Mondes!!! » Le Grand Ancien fut envahi par une cupidité sans fin.
 
-Wang Lin n'avait pas le temps de se soucier des pensées du Grand Ancien. À ce moment, ses yeux émettaient une lueur étrange. Son cœur battait la chamade alors qu'il observait les huit âmes d'anciens dragons de tonnerre déchirées qui étaient sur le point de se dissiper et de retourner au Royaume du Tonnerre Antique.
+Wang Lin n'avait pas le temps de se soucier des pensées du Grand Ancien. À ce moment, ses yeux émettaient une lueur étrange. Son cœur battait la chamade alors qu'il observait les huit âmes d'anciens dragons de tonnerre déchirées qui étaient sur le point de se dissiper et de retourner au Royaume Tai Gu Lei.
 
 « Ce sont des anciens dragons de tonnerre. Bien qu'ils ne soient que des âmes, ce sont de véritables anciens dragons de tonnerre. Autrefois, je n'en avais dévoré que la moitié. Je ne peux pas laisser passer cette opportunité! »
 

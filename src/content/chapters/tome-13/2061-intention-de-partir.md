@@ -106,9 +106,9 @@ Avec un sourire, Wang Lin se retourna et fit un pas vers le vide. Il disparut de
 
 Wang Lin était parti.
 
-Il quitta Shi Antique et tourna son regard vers le clan céleste, en direction de la Secte des Sept Dao. Après une courte réflexion, il se mit en route vers la cité impériale du Dao Antique qu'il avait quittée deux siècles plus tôt.
+Il quitta Shi Antique et tourna son regard vers le clan céleste, en direction de la Secte Qi Dao. Après une courte réflexion, il se mit en route vers la cité impériale du Dao Antique qu'il avait quittée deux siècles plus tôt.
 
-Dans cette cité, personne à part Xuan Luo n'avait remarqué son arrivée. Dans les montagnes arrières du Temple du Dao Antique, Wang Lin vit Xuan Luo dans la demeure où il avait séjourné autrefois.
+Dans cette cité, personne à part Xuan Luo n'avait remarqué son arrivée. Dans les montagnes arrières du Temple Dao Gu, Wang Lin vit Xuan Luo dans la demeure où il avait séjourné autrefois.
 
 Le disciple et le maître restèrent silencieux un long moment avant que Xuan Luo ne sourie.
 
@@ -118,7 +118,7 @@ Le disciple et le maître restèrent silencieux un long moment avant que Xuan Lu
 
 Wang Lin retrouva dans cette maison la chaleur d'il y a deux cents ans. Il avait oublié qu'il était un être aussi puissant que Gu Dao. À ses yeux, Xuan Luo restait son maître et lui, le disciple.
 
-Wang Lin resta dans les montagnes arrières du Temple du Dao Antique pendant trois ans.
+Wang Lin resta dans les montagnes arrières du Temple Dao Gu pendant trois ans.
 
 Ces trois années furent une expérience spirituelle lui permettant de maîtriser son immense montée en puissance. Il resta aux côtés de Xuan Luo car ce dernier avait renoncé à sa réincarnation. Après trois ans, Wang Lin s'inclina devant Xuan Luo, puis se retourna et s'envola vers le ciel.
 

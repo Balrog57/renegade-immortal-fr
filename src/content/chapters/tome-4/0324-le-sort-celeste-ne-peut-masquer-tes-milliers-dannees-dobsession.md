@@ -54,7 +54,7 @@ Cependant, alors qu'il s'apprêtait à la saisir, une autre personne surgit de l
 
 « Haha, Ling Tianhou, moi, Tian Mozi, ne suis pas gourmand. Parmi les quatre épées célestes, je n'en prendrai qu'une seule! Adieu! » Il s'agissait de l'érudit d'âge moyen. Il était arrivé avant le vieil homme et s'était caché dans la foule; il venait de dérober l'épée céleste en un seul mouvement.
 
-« Tian Mozi! Tu oses me voler? Attends donc! Ta planète, Tian Mo, sera anéantie par ma Secte de l'Épée Da Luo! »
+« Tian Mozi! Tu oses me voler? Attends donc! Ta planète, Tian Mo, sera anéantie par ma Secte Da Luo Jian! »
 
 Le vieil homme savait que Tian Mozi était le plus rapide de sa génération. Incapable de le rattraper, il ne put que le regarder s'éloigner.
 

@@ -1,6 +1,6 @@
 ---
 n: 1640
-title: La Secte des Sept Dao
+title: La Secte Qi Dao
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1640 - Seven Dao Secte
@@ -36,19 +36,19 @@ Cette légende affirmait que les neuf soleils du Continent Astral Immortel étai
 
 La légende disait que neuf était la limite. On racontait que si un dixième soleil apparaissait, le Continent Astral Immortel subirait des calamités sans fin!
 
-Le vieil homme était né sur ce continent. En grandissant, il avait rejoint une secte nommée la Secte des Sept Dao!
+Le vieil homme était né sur ce continent. En grandissant, il avait rejoint une secte nommée la Secte Qi Dao!
 
-Les maîtres de la Secte des Sept Dao étaient un couple de pratiquants du Dao. L'un d'eux était l'être de la statue aux sept couleurs, appelé le Souverain Céleste aux Sept Couleurs!
+Les maîtres de la Secte Qi Dao étaient un couple de pratiquants du Dao. L'un d'eux était l'être de la statue aux sept couleurs, appelé le Souverain Céleste aux Sept Couleurs!
 
 Sa culture était mystérieuse; il avait fondé sa propre secte et rassemblé une multitude de disciples. Au cours des innombrables dizaines de milliers d'années écoulées depuis la fondation de la secte, celle-ci avait traversé d'innombrables crises. Mais finalement, le couple du Dao parvenait toujours à désamorcer le danger, et ils finirent par devenir célèbres dans toute la région.
 
-Avec le temps, le vieil homme finit par devenir l'un des Cent Soldats Célestes, un expert puissant de la Secte des Sept Dao!
+Avec le temps, le vieil homme finit par devenir l'un des Cent Soldats Célestes, un expert puissant de la Secte Qi Dao!
 
 Il n'était surpassé que par l'Oiseau Vermillon, le Dragon Azure, le Tigre Blanc et la Tortue Noire. Son statut était immense, et il pouvait obtenir toutes les techniques de culture et pilules spirituelles qu'il désirait.
 
 Jusqu'au jour où...
 
-Dans les souvenirs du vieil homme, une lumière aveuglante jaillit de l'extérieur de la Secte des Sept Dao. Une aura qui le terrifia lui-même enveloppa les terres.
+Dans les souvenirs du vieil homme, une lumière aveuglante jaillit de l'extérieur de la Secte Qi Dao. Une aura qui le terrifia lui-même enveloppa les terres.
 
 Sous cette pression, deux soleils qui n'auraient jamais dû apparaître de nuit se manifestèrent devant le vieil homme pétrifié.
 
@@ -58,7 +58,7 @@ Accablé par une peur indicible, il entendit des grondements et des rugissements
 
 L'instant avant de sombrer dans l'inconscience, il sentit le maître de la secte et son partenaire du Dao charger vers le point de collision des deux soleils.
 
-Ce n'est que plusieurs jours plus tard que le vieil homme se réveilla. Il constata avec amertume que sa culture avait chuté de plusieurs niveaux. Quelques mois plus tard, le maître de la Secte des Sept Dao revint seul. Bien que son expression fût sombre, ses yeux brillaient d'une lueur intense.
+Ce n'est que plusieurs jours plus tard que le vieil homme se réveilla. Il constata avec amertume que sa culture avait chuté de plusieurs niveaux. Quelques mois plus tard, le maître de la Secte Qi Dao revint seul. Bien que son expression fût sombre, ses yeux brillaient d'une lueur intense.
 
 Le Souverain Céleste aux Sept Couleurs ne mentionna jamais la disparition de sa partenaire du Dao. Au lieu de cela, il emmena certains de ses disciples, plusieurs concubines impériales célestes, les cent soldats et les quatre généraux dans une grotte. Il scella l'entrée en y apposant d'innombrables sceaux. Il utilisa même des trésors que le vieil homme n'avait jamais vus pour verrouiller la grotte. En raison des fissures sur le cristal, les souvenirs devinrent fragmentés, brisés comme des éclats de verre.
 
@@ -84,7 +84,7 @@ La suite fut une rupture dans la mémoire; Wang Lin ne put voir ce qui suivit. C
 
 Dans ce fragment, il vit une bataille chaotique. Mais tout était flou, rendant impossible l'identification des participants. Il ne pouvait distinguer que les cent gardes, les quatre généraux et plusieurs concubines impériales attaquant trois individus!
 
-Ces trois êtres étaient totalement indistincts derrière une lumière dorée aveuglante. La bataille dura longtemps, causant de nombreux morts. L'un des trois libéra alors une puissante lueur dorée en riant. Il balaya les membres de la Secte des Sept Dao et chargea vers une porte de pierre.
+Ces trois êtres étaient totalement indistincts derrière une lumière dorée aveuglante. La bataille dura longtemps, causant de nombreux morts. L'un des trois libéra alors une puissante lueur dorée en riant. Il balaya les membres de la Secte Qi Dao et chargea vers une porte de pierre.
 
 « Ce Roi est venu en personne! Petit Souverain aux Sept Couleurs, tu n'es toujours pas sorti pour te prosterner devant moi! » Le rire de l'homme enveloppé de lumière dorée résonna, mais l'esprit de Wang Lin frémit à l'écoute de cette voix.
 
@@ -98,14 +98,14 @@ Tout en réfléchissant, l'expression de Wang Lin se fit sombre. Ces souvenirs a
 
 « Je connais l'Ancien Ye Mo et j'avais déjà quelques spéculations sur l'arrivée du fou... De plus, la femme en argent a affirmé que ce n'était pas elle qui avait ouvert la porte. Cette porte pourrait-elle être celle par laquelle le fou est entré... »
 
-« Le résultat de cette guerre fut la perte de raison et la démence du fou... Le Royaume Céleste Antique devint une ruine, et les vestiges de la Secte des Sept Dao se sont tous retirés en culture isolée. »
+« Le résultat de cette guerre fut la perte de raison et la démence du fou... Le Royaume Céleste Antique devint une ruine, et les vestiges de la Secte Qi Dao se sont tous retirés en culture isolée. »
 
-« Le maître de la grotte, le maître de la Secte des Sept Dao, le Souverain Céleste aux Sept Couleurs, a également été gravement blessé... J'ignore si cela est vrai. Si c'est le cas, alors ce pour quoi ils se battaient était peut-être le prétendu Dao Céleste, ou la Perle Défiant le Ciel... Quel est le lien entre la Perle Défiant le Ciel et le Dao Céleste? »
+« Le maître de la grotte, le maître de la Secte Qi Dao, le Souverain Céleste aux Sept Couleurs, a également été gravement blessé... J'ignore si cela est vrai. Si c'est le cas, alors ce pour quoi ils se battaient était peut-être le prétendu Dao Céleste, ou la Perle Défiant le Ciel... Quel est le lien entre la Perle Défiant le Ciel et le Dao Céleste? »
 
 « La Perle Défiant le Ciel fait partie d'un trésor de boussole, il est donc peu probable qu'elle soit le Dao Céleste lui-même... Qu'est-ce que c'est, et d'où vient-elle? »
 
 Wang Lin fronça les sourcils, le regard brillant.
 
-« De plus, j'ai appris du Clan du Tonnerre Dispersé que des années après la guerre, un groupe de mystérieux cultivateurs étrangers était apparu dans le Royaume Extérieur. Le Fouet Kunji était l'une de leurs armes... »
+« De plus, j'ai appris du Clan Shan Lei que des années après la guerre, un groupe de mystérieux cultivateurs étrangers était apparu dans le Royaume Extérieur. Le Fouet Kunji était l'une de leurs armes... »
 
 « Qui sont ces gens? » Wang Lin avait le sentiment diffus d'avoir levé un voile et de se rapprocher de la vérité sur ce qui s'était produit il y a des éons.

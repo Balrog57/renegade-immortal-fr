@@ -10,7 +10,7 @@ Après que Wang Lin eut parlé, son pied se posa sur la 14e marche. À cet insta
 
 C'était la 15e marche!
 
-Le monde trembla et les innombrables cultivateurs de la Secte de la Grande Âme observèrent la scène. Lorsqu'ils virent Wang Lin franchir la 15e marche, il en prit une autre!
+Le monde trembla et les innombrables cultivateurs de la Secte Da Hun observèrent la scène. Lorsqu'ils virent Wang Lin franchir la 15e marche, il en prit une autre!
 
 C'était la 16e marche!
 
@@ -20,15 +20,15 @@ Les essences éthérées n'étaient pas affectées par le Continent Astral Immor
 
 « Ma volonté a percé le monde des grottes et le Continent Astral Immortel. Je suis le premier à quitter le monde des grottes! Même s'il s'agit de la volonté d'un cultivateur au milieu du stade de la Tribulation du Vide, quelles sont vos qualifications pour me forcer à reculer?! » L'essence véritable et fausse de Wang Lin explosa devant lui. Son corps n'était plus qu'une illusion et, alors qu'il changeait rapidement, il atteignit la 18e marche!
 
-Cette scène fut vue par tous les disciples de la Secte de la Grande Âme et fit trembler leurs cœurs. En voyant cela, le visage de Yan Luan devint instantanément livide.
+Cette scène fut vue par tous les disciples de la Secte Da Hun et fit trembler leurs cœurs. En voyant cela, le visage de Yan Luan devint instantanément livide.
 
-Même les vieux monstres de la Secte de la Grande Âme, d'ordinaire en culture retirée, sortirent pour observer la scène de leurs propres yeux.
+Même les vieux monstres de la Secte Da Hun, d'ordinaire en culture retirée, sortirent pour observer la scène de leurs propres yeux.
 
 « Ma volonté ne peut être détruite par la rétribution divine. J'ai repris mon propre destin des mains de la rétribution divine. Je suis venu sur le Continent Astral Immortel non pas pour me soumettre, mais pour me maîtriser moi-même! Je suis venu sur le Continent Astral Immortel non pas pour obéir, mais pour marcher au-dessus des cieux! » Les yeux de Wang Lin brillèrent tandis que son essence karmique jaillissait. Son pied se posa sur la 19e marche et il pénétra au septième étage!
 
-Au moment où son pied toucha le sol, l'illusion surplombant la Secte de la Grande Âme brilla intensément. Autour d'eux, tout était silencieux. Tous les disciples de la secte levèrent les yeux vers l'illusion avec respect.
+Au moment où son pied toucha le sol, l'illusion surplombant la Secte Da Hun brilla intensément. Autour d'eux, tout était silencieux. Tous les disciples de la secte levèrent les yeux vers l'illusion avec respect.
 
-Les forts sont respectés, peu importe où ils se trouvent. Wang Lin avait utilisé sa propre puissance pour signifier à tous les membres de la Secte de la Grande Âme qu'il pouvait accéder au septième étage!
+Les forts sont respectés, peu importe où ils se trouvent. Wang Lin avait utilisé sa propre puissance pour signifier à tous les membres de la Secte Da Hun qu'il pouvait accéder au septième étage!
 
 Tous ceux qui n'avaient pas une bonne opinion de lui tremblèrent intérieurement et restèrent incapables de prononcer un mot pendant un long moment.
 
@@ -36,11 +36,11 @@ Tous ceux qui n'avaient pas une bonne opinion de lui tremblèrent intérieuremen
 
 Au même instant, au Pic du Ciel Vert, l'Estimé Taureau Vert réfléchissait. Il était toujours assis là, sans avoir levé les yeux, mais son regard était grave.
 
-« Il... est réellement entré au septième étage... L'Ancêtre avait prédit que cet homme entrerait au septième étage dans trois ans, au huitième dans 30 ans et au neuvième dans 300 ans afin d'apporter la plus grande fortune à ma Secte de la Grande Âme! »
+« Il... est réellement entré au septième étage... L'Ancêtre avait prédit que cet homme entrerait au septième étage dans trois ans, au huitième dans 30 ans et au neuvième dans 300 ans afin d'apporter la plus grande fortune à ma Secte Da Hun! »
 
 « Maintenant... tout a changé... »
 
-Lorsque Wang Lin pénétra dans le septième étage du Pavillon des Écritures de l'Âme, il se retourna pour regarder Yan Luan, dont le visage était pâle. D'un revers de manche, il fit voler vers lui l'épée de sang et le parapluie bleu.
+Lorsque Wang Lin pénétra dans le septième étage du Pavillon Cang Hun, il se retourna pour regarder Yan Luan, dont le visage était pâle. D'un revers de manche, il fit voler vers lui l'épée de sang et le parapluie bleu.
 
 « Yan Luan, je prends le parapluie! »
 
@@ -70,7 +70,7 @@ Wang Lin ne répondit pas immédiatement et prit un instant pour réfléchir.
 
 « Cet objet est la raison pour laquelle je peux invoquer le neuvième Ancêtre avec l'Origine de la Fantaisie de l'Âme. Avec cela, tu pourras également invoquer le neuvième Ancêtre avec l'Origine de la Fantaisie de l'Âme! »
 
-« Tant que tu parviens à entrer au huitième étage, tu peux le prendre! Es-tu prêt à parier?! » La voix de Yan Luan était perçante et résonna dans tout le Pavillon des Écritures de l'Âme.
+« Tant que tu parviens à entrer au huitième étage, tu peux le prendre! Es-tu prêt à parier?! » La voix de Yan Luan était perçante et résonna dans tout le Pavillon Cang Hun.
 
 Les pas de Wang Lin s'arrêtèrent alors qu'il ressentait les fluctuations d'âme provenant du sixième étage. Il manquait actuellement de trésors. S'il voulait asseoir sa position sur le Continent Astral Immortel, outre sa propre force, les trésors étaient essentiels.
 
@@ -100,7 +100,7 @@ En entendant les paroles de Wang Lin, Yan Luan commença à ressentir un regret 
 
 « D'accord, je parie avec toi! Je ne crois pas que tu puisses franchir le septième et le huitième étage d'affilée! » Yan Luan serra les dents.
 
-Wang Lin rit et, d'un revers de manche, se dirigea vers l'escalier menant au huitième étage. L'esprit de Wang Lin et l'avatar dans le vide formèrent une connexion. Cette liaison ignorait toutes les restrictions de la Secte de la Grande Âme et même les innombrables barrières du Pavillon des Écritures de l'Âme. Même les lois du Continent Astral Immortel ne pouvaient entraver la puissance qui affluait vers lui.
+Wang Lin rit et, d'un revers de manche, se dirigea vers l'escalier menant au huitième étage. L'esprit de Wang Lin et l'avatar dans le vide formèrent une connexion. Cette liaison ignorait toutes les restrictions de la Secte Da Hun et même les innombrables barrières du Pavillon Cang Hun. Même les lois du Continent Astral Immortel ne pouvaient entraver la puissance qui affluait vers lui.
 
 Les yeux de Wang Lin brillèrent et, en sept pas, il atteignit l'escalier du huitième étage. D'un seul mouvement, il avança.
 
@@ -108,9 +108,9 @@ Les yeux de Wang Lin brillèrent et, en sept pas, il atteignit l'escalier du hui
 
 Au moment où le pied de Wang Lin toucha les marches, les nombreux cultivateurs à l'extérieur s'apprêtaient à se disperser. Mais leurs cœurs tremblèrent et ils levèrent tous les yeux. Même les expressions des vieux monstres changèrent!
 
-L'illusion avait disparu du ciel de la Secte de la Grande Âme, mais à cet instant précis, un escalier encore plus vaste et plus éclatant apparut soudainement!
+L'illusion avait disparu du ciel de la Secte Da Hun, mais à cet instant précis, un escalier encore plus vaste et plus éclatant apparut soudainement!
 
-Cet escalier menait au huitième étage du Pavillon des Écritures de l'Âme!
+Cet escalier menait au huitième étage du Pavillon Cang Hun!
 
 La silhouette de Wang Lin réapparut sur les marches. Cette chevelure blanche choqua l'esprit de tous.
 
@@ -120,7 +120,7 @@ La silhouette de Wang Lin réapparut sur les marches. Cette chevelure blanche ch
 
 Un tumulte éclata alors que les anciens en culture retirée tournaient tous leurs regards avec des expressions graves. Au Pic du Ciel Vert, l'Estimé Taureau Vert ne put plus maintenir son calme. Il se leva, son expression changeant sans cesse; il ne pouvait plus cacher le choc qui agitait son cœur.
 
-« Il va au huitième étage!! Atteindre le septième étage avec trois ans d'avance est une chose, mais entrer au huitième étage 30 ans prématurément est... » L'Ancien ne savait pas si cela serait bénéfique ou néfaste pour la Secte de la Grande Âme. Cependant, ce décalage par rapport à la divination de l'Ancêtre originel lui causait un profond malaise.
+« Il va au huitième étage!! Atteindre le septième étage avec trois ans d'avance est une chose, mais entrer au huitième étage 30 ans prématurément est... » L'Ancien ne savait pas si cela serait bénéfique ou néfaste pour la Secte Da Hun. Cependant, ce décalage par rapport à la divination de l'Ancêtre originel lui causait un profond malaise.
 
 Au sixième étage, Yan Luan ne pouvait ni entrer dans le septième, ni voir les changements qui s'y produisaient. Même son Sens Divin ne pouvait y pénétrer, mais avec son niveau de culture, elle possédait ses propres méthodes.
 

@@ -6,13 +6,13 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 612 - Second Origin Soul
 slug: seconde-ame-originelle
 ---
-Au Lac du Dragon, à la lisière de la Cité du Démon Céleste!
+Au Lac Long Tan, à la lisière de la Cité Tian Yao!
 
-Une légion de soldats démons gardait le Lac du Dragon tout au long de l'année. De nombreux experts cachés de la capitale passaient également leur temps à s'y cultiver. Peu importe l'ampleur des événements, tant qu'ils ne visaient pas directement le Lac du Dragon, ils n'intervenaient jamais.
+Une légion de soldats démons gardait le Lac Long Tan tout au long de l'année. De nombreux experts cachés de la capitale passaient également leur temps à s'y cultiver. Peu importe l'ampleur des événements, tant qu'ils ne visaient pas directement le Lac Long Tan, ils n'intervenaient jamais.
 
 Grâce à la puissante énergie spirituelle démoniaque qui imprégnait les lieux, même la tribulation divine d'il y a dix ans n'avait causé aucun dommage ici.
 
-Les eaux du Lac du Dragon étaient saturées d'énergie spirituelle démoniaque, abritant un autre monde en leurs profondeurs. Un voile de cette même énergie bloquait l'accès à une grotte souterraine.
+Les eaux du Lac Long Tan étaient saturées d'énergie spirituelle démoniaque, abritant un autre monde en leurs profondeurs. Un voile de cette même énergie bloquait l'accès à une grotte souterraine.
 
 Au sein de cette grotte trônait une statue. Entièrement noire, elle ressemblait trait pour trait à l'Ancien Démon. À cet instant, une lueur démoniaque émanait de ses yeux.
 
@@ -64,7 +64,7 @@ Wang Lin marqua une pause, puis tapota son sac de rangement pour en sortir la pa
 
 « Je souhaite trouver un esprit d'épée. Cette tour contient son sens divin. Je demande l'aide de l'Ancien Démon pour le localiser. »
 
-L'Ancien Démon déploya son sens divin et déclara: « Aucune présence de cet esprit d'épée n'est perceptible dans mon Pays du Démon Céleste. Quant au reste, je l'ignore. La Terre des Esprits Démoniaques est bien trop vaste pour que je puisse le fouiller entièrement. Si vous parvenez à m'aider à capturer un démon, je serai en mesure de lancer un sort de recherche à grande échelle après l'avoir absorbé. Pour l'instant, ma force actuelle ne me le permet pas. Si vous possédez la tour de l'Ancien Diable, vous pouvez également déployer votre sens divin. »
+L'Ancien Démon déploya son sens divin et déclara: « Aucune présence de cet esprit d'épée n'est perceptible dans mon Pays Tian Yao. Quant au reste, je l'ignore. La Terre Yao Ling est bien trop vaste pour que je puisse le fouiller entièrement. Si vous parvenez à m'aider à capturer un démon, je serai en mesure de lancer un sort de recherche à grande échelle après l'avoir absorbé. Pour l'instant, ma force actuelle ne me le permet pas. Si vous possédez la tour de l'Ancien Diable, vous pouvez également déployer votre sens divin. »
 
 Wang Lin rétracta la pagode et hocha la tête. Puis, pointant l'homme encerclé de cristal pourpre, il dit: « Je veux cet homme! »
 
@@ -76,21 +76,21 @@ Les yeux de Wang Lin brillèrent et il acquiesça. « Je souhaite pénétrer dan
 
 Wang Lin esquissa un léger sourire. « Très bien, mais il me sera difficile d'y parvenir seul. »
 
-« À partir d'aujourd'hui, vous êtes mon messager. Votre identité surpasse désormais celle de l'Empereur Démon. Mon Pays du Démon Céleste entamera officiellement la guerre contre le Pays du Démon de Feu pour vous soutenir. Une fois que vous aurez atteint la source démoniaque dans la capitale du Pays du Démon de Feu, n'oubliez pas l'incantation que je vous ai transmise! »
+« À partir d'aujourd'hui, vous êtes mon messager. Votre identité surpasse désormais celle de l'Empereur Démon. Mon Pays Tian Yao entamera officiellement la guerre contre le Pays Huo Yao pour vous soutenir. Une fois que vous aurez atteint la source démoniaque dans la capitale du Pays Huo Yao, n'oubliez pas l'incantation que je vous ai transmise! »
 
-Wang Lin joignit les mains et saisit dans le vide, de la main droite, l'homme prisonnier du cristal. Il fit un pas et quitta le Lac du Dragon. En un instant, il disparut sans laisser de trace.
+Wang Lin joignit les mains et saisit dans le vide, de la main droite, l'homme prisonnier du cristal. Il fit un pas et quitta le Lac Long Tan. En un instant, il disparut sans laisser de trace.
 
 S'il avait demandé à l'Ancien Démon de chercher Zhou Yi et de lui permettre d'accéder à l'héritage, c'était parce que l'Ancien Démon avait déjà énormément fait pour lui. S'il s'était comporté comme s'il n'avait plus aucune requête, l'Ancien Démon aurait pu douter de sa sincérité.
 
 Ces deux demandes étaient réellement des choses qu'il souhaitait obtenir, et non de simples prétextes pour gagner du temps. De cette manière, l'Ancien Démon conserverait sa patience!
 
-Wang Lin surgit du vide à 5 000 kilomètres de la Cité du Démon Céleste. Il observa le cristal dans sa main avant de le ranger dans son sac.
+Wang Lin surgit du vide à 5 000 kilomètres de la Cité Tian Yao. Il observa le cristal dans sa main avant de le ranger dans son sac.
 
 « Cet homme doit avoir un lien avec le Saint de l'Épée Ling Tianhou. Il pourrait s'avérer utile à l'avenir! » Un air pensif traversa le regard de Wang Lin. Il fit un nouveau pas et utilisa le sort de grande téléportation.
 
 Wang Lin continua ses sauts spatiaux, visant l'endroit où Zi Shu avait péri. Il refusait d'abandonner si facilement et devait vérifier par lui-même; après tout, l'énergie d'épée de Ling Tianhou était un trésor inestimable!
 
-Le sort de grande téléportation était un grand pouvoir divin. Après plusieurs utilisations, Wang Lin pénétra dans le Pays du Démon de Feu.
+Le sort de grande téléportation était un grand pouvoir divin. Après plusieurs utilisations, Wang Lin pénétra dans le Pays Huo Yao.
 
 Zi Shu était mort dans une jungle où la plupart des plantes avaient dépéri. Des débris et des cadavres en décomposition jonchaient le sol. Après tout, plusieurs mois s'étaient écoulés.
 
@@ -122,4 +122,4 @@ L'expression de l'homme changea radicalement et il recula de plusieurs pas. Il j
 
 « Votre jeune frère d'apprentissage? » L'homme en armure n'était autre que Wang Lin. Après sa téléportation, il avait vu cet homme s'extasier devant le corps de Zi Shu.
 
-« Bien sûr qu'il est mon frère d'apprentissage. Nous sommes des disciples de la Secte He Yun. Cet homme s'appelait Zhou Qu, et moi je suis Teng Yun. Nous étions venus ensemble dans la Terre des Esprits Démoniaques. Il y a un mois, nous nous sommes séparés. Je n'aurais jamais cru qu'il serait tué! Si ce n'était pas pour l'objet de suivi de la secte qu'il portait et qui émet cette lueur dorée, je ne l'aurais jamais retrouvé aujourd'hui. » Teng Yun affichait une expression empreinte d'une profonde tristesse.
+« Bien sûr qu'il est mon frère d'apprentissage. Nous sommes des disciples de la Secte He Yun. Cet homme s'appelait Zhou Qu, et moi je suis Teng Yun. Nous étions venus ensemble dans la Terre Yao Ling. Il y a un mois, nous nous sommes séparés. Je n'aurais jamais cru qu'il serait tué! Si ce n'était pas pour l'objet de suivi de la secte qu'il portait et qui émet cette lueur dorée, je ne l'aurais jamais retrouvé aujourd'hui. » Teng Yun affichait une expression empreinte d'une profonde tristesse.

@@ -6,23 +6,23 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1831 - Soul Eye Dao Thunder!"
 slug: le-tonnerre-du-dao-de-lil-de-lame
 ---
-Au sein de la Secte de la Grande Âme, la montagne où se trouvait Wang Lin était tout à fait unique. Elle brûlait sans cesse et le feu ne s'éteignait jamais, pourtant aucune fumée n'en émanait. Le monde environnant semblait se distordre sous l'effet de la chaleur, donnant à tout ce qui entourait la montagne l'apparence d'une illusion.
+Au sein de la Secte Da Hun, la montagne où se trouvait Wang Lin était tout à fait unique. Elle brûlait sans cesse et le feu ne s'éteignait jamais, pourtant aucune fumée n'en émanait. Le monde environnant semblait se distordre sous l'effet de la chaleur, donnant à tout ce qui entourait la montagne l'apparence d'une illusion.
 
 La montagne était si brûlante que quiconque s'en approchait était couvert de sueur; un pas de plus, et on aurait eu l'impression que son propre sang bouillonnait.
 
-Wang Lin n'avait conservé que trois grottes dans la Montagne du Filon de Feu, ayant détruit toutes les autres. À cet instant, il était le seul occupant de cette montagne.
+Wang Lin n'avait conservé que trois grottes dans la Montagne Yan Mai, ayant détruit toutes les autres. À cet instant, il était le seul occupant de cette montagne.
 
 Il était assis à l'intérieur de la grotte qui appartenait autrefois à Yan Luan. Son corps véritable apparut et fusionna lentement avec la montagne, comme s'il ne faisait plus qu'un avec elle.
 
 Wang Lin cultiva un instant avant d'ouvrir les yeux, dont le regard brillait d'un éclat intense.
 
-« Secte de la Grande Âme... » Wang Lin retourna sa main droite et une pierre de jade violette apparut. Ce jade dégageait une aura antique mêlée à une trace de décomposition.
+« Secte Da Hun... » Wang Lin retourna sa main droite et une pierre de jade violette apparut. Ce jade dégageait une aura antique mêlée à une trace de décomposition.
 
 « Le Dao de l'Œil de l'Âme... La personne que je connaissais et qui excellait dans la divination était Tian Yunzi! Qing Lin possédait également un sort de Dao similaire... Ce sort était extrêmement efficace pour la divination. À l'époque, j'avais emprunté l'avatar de Tian Yunzi pour diviner, ce qui m'avait sauvé de nombreuses crises de vie ou de mort... »
 
 « Désormais, avec le Dao de l'Œil de l'Âme, je dois l'apprendre; sinon, il me sera difficile d'évoluer sur le continent Astral Immortel... Plus important encore, cela m'aidera à me dissimuler et rendra mon destin bien plus difficile à calculer pour autrui... » Songea Wang Lin tandis que son sens divin pénétrait dans le jade qu'il tenait.
 
-Cependant, à cet instant précis, Wang Lin leva soudainement les yeux. La Montagne du Filon de Feu avait fusionné avec son corps véritable; on pouvait dire que la montagne était devenue son propre corps. Il sentit clairement une femme s'avancer vers elle.
+Cependant, à cet instant précis, Wang Lin leva soudainement les yeux. La Montagne Yan Mai avait fusionné avec son corps véritable; on pouvait dire que la montagne était devenue son propre corps. Il sentit clairement une femme s'avancer vers elle.
 
 La femme s'arrêta au pied de la montagne. Après un moment d'hésitation, elle s'inclina et sa voix douce et charmante résonna:
 
@@ -42,7 +42,7 @@ Dans la grotte, Wang Lin ouvrit les yeux. Il contempla le jade dans sa main et r
 
 « 4,9 milliards d'inscriptions... Chaque inscription doit être gravée dans l'âme après un certain laps de temps... 100 000 pour une petite maîtrise, 2,7 milliards pour un niveau intermédiaire, et 4,9 milliards pour la maîtrise totale... »
 
-« Ce sort est très étrange. Il est facile à apprendre, mais progresser devient extrêmement ardu. Plus on s'avance dans ce sort, plus les inscriptions deviennent complexes et plus leur gravure dans l'âme est longue! Est-ce cela le Dao de l'Œil de l'Âme de la Secte de la Grande Âme... » Wang Lin songea avec une expression troublée.
+« Ce sort est très étrange. Il est facile à apprendre, mais progresser devient extrêmement ardu. Plus on s'avance dans ce sort, plus les inscriptions deviennent complexes et plus leur gravure dans l'âme est longue! Est-ce cela le Dao de l'Œil de l'Âme de la Secte Da Hun... » Wang Lin songea avec une expression troublée.
 
 « Selon les indications du jade, ce sort ne demande que trois jours d'apprentissage au début. En trois jours, pour peu que la culture ait atteint la troisième étape, neuf personnes sur dix peuvent graver 100 000 inscriptions dans leur âme... »
 
@@ -98,14 +98,14 @@ Après une longue réflexion, Wang Lin ne parvenait toujours pas à oublier le v
 
 « Cette affaire est trop étrange... Cependant, ce Dao de l'Œil de l'Âme peut effectivement percevoir les changements du futur. Une fois que ce petit être de l'âme se sera reposé quelque temps, je pourrai peut-être l'utiliser pour retrouver Situ, Qing Shui, Li Qianmei et les autres... » Wang Lin songea tout en réprimant le choc dans son cœur. Fort de sa culture et de ses expériences, il était capable de maîtriser même des événements cataclysmiques pour retrouver son calme.
 
-« Trois jours se sont écoulés... Je me demande ce que l'Ancien Taureau Vert a préparé pour moi... Il a aussi dit que je pouvais entrer dans le Pavillon des Écritures de l'Âme pour choisir un sort... » Les yeux de Wang Lin s'illuminèrent. Il songea à l'illusion multicouche de la Secte de la Grande Âme, ainsi qu'au sort qu'Yan Luan avait utilisé pour invoquer l'âme de l'ancêtre de la secte.
+« Trois jours se sont écoulés... Je me demande ce que l'Ancien Taureau Vert a préparé pour moi... Il a aussi dit que je pouvais entrer dans le Pavillon Cang Hun pour choisir un sort... » Les yeux de Wang Lin s'illuminèrent. Il songea à l'illusion multicouche de la Secte Da Hun, ainsi qu'au sort qu'Yan Luan avait utilisé pour invoquer l'âme de l'ancêtre de la secte.
 
 Après avoir mûri sa décision, Wang Lin sortit de la grotte. Il se tint sur la montagne et vit immédiatement Fan Shanmeng, qui paraissait extrêmement affaiblie.
 
-Elle était toujours là. En voyant Wang Lin, son visage exprima une émotion complexe. Alors qu'elle s'apprêtait à parler, Wang Lin passa devant elle sans un mot et quitta la Montagne du Filon de Feu.
+Elle était toujours là. En voyant Wang Lin, son visage exprima une émotion complexe. Alors qu'elle s'apprêtait à parler, Wang Lin passa devant elle sans un mot et quitta la Montagne Yan Mai.
 
 « Toi!! » Une pointe de colère brilla dans les yeux de Fan Shanmeng, mais elle la réprima. Elle fixa la silhouette de Wang Lin qui s'éloignait, puis se calma et continua d'attendre.
 
 Elle n'avait nulle part ailleurs où aller...
 
-Wang Lin se transforma en un rayon de lumière et se dirigea vers les profondeurs de la Secte de la Grande Âme. Le jade que l'Ancien Taureau Vert lui avait confié pour franchir les restrictions contenait une carte de tous les sommets de la secte. Il savait désormais exactement où se trouvait le Pic du Ciel Vert.
+Wang Lin se transforma en un rayon de lumière et se dirigea vers les profondeurs de la Secte Da Hun. Le jade que l'Ancien Taureau Vert lui avait confié pour franchir les restrictions contenait une carte de tous les sommets de la secte. Il savait désormais exactement où se trouvait le Pic du Ciel Vert.

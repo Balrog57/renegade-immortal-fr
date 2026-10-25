@@ -12,17 +12,17 @@ Bien que l'apparence de Wang Zhuo soit celle d'un vieil homme, Wang Lin fut capa
 
 Le cœur de Wang Zhuo était empli de chagrin. Tout au long du périple, plus de la moitié de leur groupe d'une douzaine de personnes avait péri. Il avait vécu ce genre de batailles presque quotidiennement et sentait l'ombre de la mort s'étendre de plus en plus.
 
-Les pays environnants avaient tous succombé; ils étaient soit détruits, soit devenus des vassaux du Clan des Immortels Délaissés.
+Les pays environnants avaient tous succombé; ils étaient soit détruits, soit devenus des vassaux du Clan Xian Yi.
 
-Les pays de culture de rang 3 n'étaient pas le principal champ de bataille pour le Clan des Immortels Délaissés; ils n'étaient que des terrains d'entraînement pour leurs membres les plus faibles.
+Les pays de culture de rang 3 n'étaient pas le principal champ de bataille pour le Clan Xian Yi; ils n'étaient que des terrains d'entraînement pour leurs membres les plus faibles.
 
 Le pays de Suzaku ne se souciait guère des pays de culture de rang 3. Au début, ils n'envoyaient que quelques cultivateurs au stade initial de la Formation de l'Âme, mais à mesure que la guerre faisait rage, ils retirèrent tous leurs émissaires et abandonnèrent totalement ces pays de rang 3.
 
 Aux yeux du pays de Suzaku, les cultivateurs de l'Âme Naissante étaient tout simplement trop faibles.
 
-Wang Zhuo laissa échapper un sourire amer en regardant un autre membre de sa secte mourir. Il observa les quatre membres du Clan des Immortels Délaissés qui, possédant clairement la puissance de cultivateurs au stade avancé de la Formation du Noyau, ne les tuaient pas, mais se contentaient de les pourchasser.
+Wang Zhuo laissa échapper un sourire amer en regardant un autre membre de sa secte mourir. Il observa les quatre membres du Clan Xian Yi qui, possédant clairement la puissance de cultivateurs au stade avancé de la Formation du Noyau, ne les tuaient pas, mais se contentaient de les pourchasser.
 
-À ce moment précis, une météorite traversa le ciel, dégageant une aura terrifiante. Les quatre membres du Clan des Immortels Délaissés furent frappés de stupeur et regardèrent immédiatement dans cette direction.
+À ce moment précis, une météorite traversa le ciel, dégageant une aura terrifiante. Les quatre membres du Clan Xian Yi furent frappés de stupeur et regardèrent immédiatement dans cette direction.
 
 En un instant, la météorite disparut et un homme aux longs cheveux flottants, vêtu de blanc, apparut, parcourant la distance en quelques pas seulement.
 
@@ -46,7 +46,7 @@ Wang Lin observa d'un regard impassible les autres membres de la secte de Wang Z
 
 Wang Lin demanda: « Où allez-vous? »
 
-L'homme qui possédait la graine spirituelle était un vieil homme. Son corps tremblait sous le regard de Wang Lin lorsqu'il répondit: « Environ dix d'entre nous, des juniors, avons été envoyés au pays voisin pour les aider. Cependant, ils ont perdu face au Clan des Immortels Délaissés, alors nous tentons de nous frayer un chemin vers Zhao. »
+L'homme qui possédait la graine spirituelle était un vieil homme. Son corps tremblait sous le regard de Wang Lin lorsqu'il répondit: « Environ dix d'entre nous, des juniors, avons été envoyés au pays voisin pour les aider. Cependant, ils ont perdu face au Clan Xian Yi, alors nous tentons de nous frayer un chemin vers Zhao. »
 
 Wang Lin frappa son sac de rangement. Un jade s'en échappa et il y injecta une fraction de son domaine. Il le lança au vieil homme en disant: « Prenez ce jade. Il vous protégera jusqu'à ce que vous atteigniez Zhao. Partez. »
 
@@ -92,7 +92,7 @@ Wang Zhuo hésita un instant, puis demanda: « Vous… à quel niveau de culture
 
 « Le temps passe si vite... Je me souviens encore de notre époque à la Secte Heng Yue… hélas… » soupira Wang Zhuo.
 
-Les yeux de Wang Lin s'illuminèrent et il demanda: « Wang Zhuo, que s'est-il passé sur la planète Suzaku ces dernières années? Comment le Clan des Immortels Délaissés est-il apparu ici? »
+Les yeux de Wang Lin s'illuminèrent et il demanda: « Wang Zhuo, que s'est-il passé sur la planète Suzaku ces dernières années? Comment le Clan Xian Yi est-il apparu ici? »
 
 Wang Zhuo fut surpris et demanda: « Vous l'ignorez? »
 
@@ -104,25 +104,25 @@ Pas sur la planète Suzaku… Cela signifiait que le niveau de culture de Wang L
 
 Wang Zhuo prit une profonde inspiration et raconta à Wang Lin tout ce qu'il savait.
 
-L'expression de Wang Lin resta calme, mais son esprit était en tumulte. Le Clan des Immortels Délaissés avait envahi les lieux, et presque tous les pays de culture de rang 3 étaient tombés.
+L'expression de Wang Lin resta calme, mais son esprit était en tumulte. Le Clan Xian Yi avait envahi les lieux, et presque tous les pays de culture de rang 3 étaient tombés.
 
 Les pays de culture de rang 4 n'étaient pas non plus en sécurité. Le pays de Suzaku résistait de toutes ses forces, mais il était toujours repoussé.
 
-La Secte des Cadavres soutenait pleinement le Clan des Immortels Délaissés, et cinq pays de culture de rang 4 avaient trahi Suzaku.
+La Secte Shi Yin soutenait pleinement le Clan Xian Yi, et cinq pays de culture de rang 4 avaient trahi Suzaku.
 
-Le Clan des Immortels Délaissés occupait déjà la moitié de la planète Suzaku.
+Le Clan Xian Yi occupait déjà la moitié de la planète Suzaku.
 
-Wang Zhuo ajouta: « La rumeur dit que le Clan des Immortels Délaissés a envoyé neuf individus, et l'identité de cinq d'entre eux a déjà été révélée. Il en reste quatre, mais nul ne sait qui ils sont. Ils doivent provenir de pays de culture de rang 5 ou supérieur et occuper probablement des positions très élevées. »
+Wang Zhuo ajouta: « La rumeur dit que le Clan Xian Yi a envoyé neuf individus, et l'identité de cinq d'entre eux a déjà été révélée. Il en reste quatre, mais nul ne sait qui ils sont. Ils doivent provenir de pays de culture de rang 5 ou supérieur et occuper probablement des positions très élevées. »
 
 Wang Lin réfléchit. Il n'aurait jamais imaginé qu'en si peu de temps, un tel bouleversement puisse se produire.
 
-« La Secte de l'Affinement de l'Âme… » Wang Lin prit une profonde inspiration. Il devait retourner rapidement à la Secte de l'Affinement de l'Âme pour voir si les choses y avaient changé.
+« La Secte Lian Hun… » Wang Lin prit une profonde inspiration. Il devait retourner rapidement à la Secte Lian Hun pour voir si les choses y avaient changé.
 
-Les informations de Wang Zhuo n'étaient que des rumeurs et non des faits avérés, il ne pouvait donc rien savoir de la Secte de l'Affinement de l'Âme.
+Les informations de Wang Zhuo n'étaient que des rumeurs et non des faits avérés, il ne pouvait donc rien savoir de la Secte Lian Hun.
 
 Wang Zhuo marqua une pause et demanda lentement: « Wang Lin, pouvez-vous retourner à Zhao et le sauver du péril? »
 
-« De plus, notre famille Wang a encore des descendants vivant à Zhao. Ces dernières années, je me suis secrètement occupé d'eux. J'espérais que les mortels ne seraient pas mêlés à la guerre, mais pendant mon absence, j'ai appris que le Clan des Immortels Délaissés recherchait des mortels possédant des racines spirituelles. Je crains qu'un enfant de la famille Wang n'ait une racine spirituelle et n'attire l'attention du Clan. Hélas, je ne suis pas rentré chez moi depuis de nombreuses années, j'ignore donc si quelqu'un de tel profil existe parmi les miens. »
+« De plus, notre famille Wang a encore des descendants vivant à Zhao. Ces dernières années, je me suis secrètement occupé d'eux. J'espérais que les mortels ne seraient pas mêlés à la guerre, mais pendant mon absence, j'ai appris que le Clan Xian Yi recherchait des mortels possédant des racines spirituelles. Je crains qu'un enfant de la famille Wang n'ait une racine spirituelle et n'attire l'attention du Clan. Hélas, je ne suis pas rentré chez moi depuis de nombreuses années, j'ignore donc si quelqu'un de tel profil existe parmi les miens. »
 
 Planète Suzaku, pays de Zhao, une nuit pluvieuse.
 

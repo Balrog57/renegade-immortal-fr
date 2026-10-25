@@ -12,13 +12,13 @@ Lorsque le Daoïste Esprit Dispersé vit Wang Lin, il fut stupéfait. Lors de la
 
 Maintenant qu'ils avaient quitté les 7 Millions de Mondes, Wang Lin était capable d'invoquer toute cette foudre. Les grondements tonitruants de ce tonnerre dansant le frappèrent une fois de plus de stupeur.
 
-L'expression de Wang Lin demeurait indifférente alors qu'il se rapprochait inexorablement de la formation défensive entourant les seize planètes du Clan du Tonnerre Dispersé.
+L'expression de Wang Lin demeurait indifférente alors qu'il se rapprochait inexorablement de la formation défensive entourant les seize planètes du Clan Shan Lei.
 
 Tandis qu'il chargeait, le puissant lac de tonnerre qui l'entourait rugit et les éclairs à l'intérieur jaillirent violemment. La formation défensive du Clan apparut soudainement devant lui.
 
 La formation engendrée par les seize planètes émettait une lumière verte qui encerclait les mondes. À mesure que Wang Lin approchait, il percevait le crépitement de cette lueur qui passait d'un état illusoire à une consistance presque tangible.
 
-Cette lumière verte se solidifia telle une coquille d'œuf protégeant le Clan du Tonnerre Dispersé!
+Cette lumière verte se solidifia telle une coquille d'œuf protégeant le Clan Shan Lei!
 
 Une fois cette barrière brisée, le Clan serait mis à nu devant Wang Lin!
 
@@ -30,7 +30,7 @@ Les étoiles de son Dieu Ancien tournoyaient entre ses sourcils et ses bras se g
 
 C'était comme si l'on redressait un miroir pour le présenter au monde entier!
 
-Les pupilles du Daoïste Esprit Dispersé se rétractèrent; il recula inconsciemment de quelques pas, fixant Wang Lin avec horreur. Il n'était pas le seul: les membres du Clan du Tonnerre Dispersé savaient depuis longtemps qu'un ennemi redoutable approchait. Tous les cultivateurs du Fléau Céleste étaient sortis de la terre sainte pour contempler Wang Lin.
+Les pupilles du Daoïste Esprit Dispersé se rétractèrent; il recula inconsciemment de quelques pas, fixant Wang Lin avec horreur. Il n'était pas le seul: les membres du Clan Shan Lei savaient depuis longtemps qu'un ennemi redoutable approchait. Tous les cultivateurs du Fléau Céleste étaient sortis de la terre sainte pour contempler Wang Lin.
 
 En le voyant, leurs esprits tremblèrent et leurs visages se décomposèrent!
 
@@ -114,6 +114,6 @@ Les yeux des membres du Clan étaient injectés de sang alors qu'ils se précipi
 
 Tout cela parce qu'ils refusaient d'admettre la défaite de leur chef. Ils étaient convaincus qu'une fois l'Ancien revenu, le Clan serait hors de danger!
 
-Le Grand Ancien était le pilier spirituel de tout le Clan du Tonnerre Dispersé!
+Le Grand Ancien était le pilier spirituel de tout le Clan Shan Lei!
 
-Wang Lin ricana. Tandis que le dragon avançait, il agita sa main droite et le Fouet Kunji apparut. Le fouet doré se déroula, révélant une âme originelle brisée. C'était l'âme du Grand Ancien du Clan du Tonnerre Dispersé!!!
+Wang Lin ricana. Tandis que le dragon avançait, il agita sa main droite et le Fouet Kunji apparut. Le fouet doré se déroula, révélant une âme originelle brisée. C'était l'âme du Grand Ancien du Clan Shan Lei!!!

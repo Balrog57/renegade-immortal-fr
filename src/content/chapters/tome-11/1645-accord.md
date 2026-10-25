@@ -34,7 +34,7 @@ Le visage du Général Tigre Blanc se crispa, mais il resta silencieux.
 
 « Je fais abstraction de ce qui se passe dans la Terre Déchue. Aujourd'hui, je suis venu pour conclure un accord avec vous, Senior », déclara calmement Wang Lin.
 
-« L'Ancien Royaume Céleste, ou ce que l'on appelle le cœur de la grotte du Souverain Céleste aux Sept Couleurs, abrite les disciples blessés de la Secte des Sept Dao. Ce sont eux, les soi-disant Célestes, les cultivateurs de l'Ancien Royaume Céleste.
+« L'Ancien Royaume Céleste, ou ce que l'on appelle le cœur de la grotte du Souverain Céleste aux Sept Couleurs, abrite les disciples blessés de la Secte Qi Dao. Ce sont eux, les soi-disant Célestes, les cultivateurs de l'Ancien Royaume Céleste.
 
 « Si je décidais de déployer toute ma puissance, quelles seraient mes chances, selon vous, de tuer tout le monde ici avant qu'ils ne guérissent et de transformer cet Ancien Royaume Céleste en un royaume mort? » Les paroles de Wang Lin étaient posées, mais elles firent froncer les sourcils des quatre généraux.
 
@@ -54,7 +54,7 @@ La Tortue Noire, qui était restée muette jusqu'alors, médita un instant avant
 
 « Vous êtes les anciens Célestes de l'Ancien Royaume Céleste. Je veux que vous quittiez cet endroit, que vous vous frayiez un chemin vers le Royaume Extérieur par le massacre et que vous mettiez fin à la guerre! » Les yeux de Wang Lin s'illuminèrent en parlant.
 
-L'Oiseau Vermillon réfléchit et murmura: « Le Royaume Extérieur possède également son propre Ancien Royaume Céleste... On y trouve des membres de la Secte des Sept Dao qui servent les concubines impériales célestes, et ils ne sont pas aussi blessés que vous. S'ils n'en sont pas sortis ces dernières années, c'est parce que bien que l'Ancien Royaume Céleste soit divisé en deux, un lien profond les unit toujours. Si nous ouvrions la porte pour quitter l'Ancien Royaume Céleste, ils pourraient également en sortir. À ce moment-là, la guerre entre les Royaumes Intérieur et Extérieur s'intensifierait. Cela pourrait même détruire cette grotte! »
+L'Oiseau Vermillon réfléchit et murmura: « Le Royaume Extérieur possède également son propre Ancien Royaume Céleste... On y trouve des membres de la Secte Qi Dao qui servent les concubines impériales célestes, et ils ne sont pas aussi blessés que vous. S'ils n'en sont pas sortis ces dernières années, c'est parce que bien que l'Ancien Royaume Céleste soit divisé en deux, un lien profond les unit toujours. Si nous ouvrions la porte pour quitter l'Ancien Royaume Céleste, ils pourraient également en sortir. À ce moment-là, la guerre entre les Royaumes Intérieur et Extérieur s'intensifierait. Cela pourrait même détruire cette grotte! »
 
 Wang Lin agita ses manches et trancha froidement: « Ils ne pourront jamais sortir de l'Ancien Royaume Céleste du Royaume Extérieur! »
 
@@ -92,7 +92,7 @@ Les quatre méditèrent en silence en échangeant des regards. L'hésitation s'i
 
 « Je vous donne un jour pour décider! » Wang Lin fit volte-face et s'éloigna. Il s'arrêta à 10 000 pieds, s'assit sur la terre dévastée et ferma les yeux.
 
-Il ignora leurs débats. En vérité, Wang Lin poursuivait un autre objectif, son véritable but. Au-delà de résoudre la guerre entre les deux royaumes, la raison pour laquelle il était prêt à leur acheter trois ans de tranquillité et à vouloir que les membres de la Secte des Sept Dao partent, était qu'ils trouvent le Souverain Céleste!
+Il ignora leurs débats. En vérité, Wang Lin poursuivait un autre objectif, son véritable but. Au-delà de résoudre la guerre entre les deux royaumes, la raison pour laquelle il était prêt à leur acheter trois ans de tranquillité et à vouloir que les membres de la Secte Qi Dao partent, était qu'ils trouvent le Souverain Céleste!
 
 Wang Lin avait de nombreuses spéculations sur ce mystérieux Souverain Céleste, mais aucune preuve. Il ignorait quelle était la relation exacte entre le Daoïste aux Sept Couleurs et le Souverain Céleste.
 

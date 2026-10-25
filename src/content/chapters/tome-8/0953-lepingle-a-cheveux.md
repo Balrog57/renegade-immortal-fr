@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 953 - Hairpin
 slug: lepingle-a-cheveux
 ---
-Ce corps pourpre était le Maître du Royaume de la Boucherie!
+Ce corps pourpre était le Maître du Royaume Sha Lu!
 
 Son visage était livide, du sang s'écoulait du coin de sa bouche et ses yeux étaient empreints d'effroi.
 
@@ -24,7 +24,7 @@ Wang Lin s'était déjà préparé à ouvrir son troisième œil et à utiliser 
 
 La brume pourpre tourbillonnait dans le ciel avant de se contracter rapidement en une sphère de la taille d'un poing qui flotta dans la main de Qing Shui. Près de lui flottait également une épingle à cheveux pourpre sculptée d'un phénix.
 
-Le regard que Qing Shui posa sur l'épingle contenait une pointe de tendresse. Pourtant, lorsqu'il tourna les yeux vers les cultivateurs du Royaume de la Boucherie, cette douceur disparut. Ses yeux ne reflétaient plus que l'indifférence alors qu'il descendait vers eux.
+Le regard que Qing Shui posa sur l'épingle contenait une pointe de tendresse. Pourtant, lorsqu'il tourna les yeux vers les cultivateurs du Royaume Sha Lu, cette douceur disparut. Ses yeux ne reflétaient plus que l'indifférence alors qu'il descendait vers eux.
 
 « Un lieu que moi, Qing Shui, je décide de massacrer ne laissera aucun survivant! »
 
@@ -36,7 +36,7 @@ Alors qu'il tendait le doigt, une voix lugubre s'échappa de la bouche de Qing S
 
 « Sortilège céleste: Effondrement des Montagnes! »
 
-À peine eut-il parlé que le Royaume de la Boucherie trembla et que six montagnes colossales apparurent de nulle part. Chacune d'elles culminait à plus de six kilomètres de haut et, dès leur apparition, elles dégagèrent une pression écrasante.
+À peine eut-il parlé que le Royaume Sha Lu trembla et que six montagnes colossales apparurent de nulle part. Chacune d'elles culminait à plus de six kilomètres de haut et, dès leur apparition, elles dégagèrent une pression écrasante.
 
 Au moment où Qing Shui prononça l'incantation, les six montagnes scintillèrent et fusionnèrent en une seule. Elles devinrent un mont unique, indiscernable d'une véritable montagne!
 
@@ -48,17 +48,17 @@ La terre trembla comme lors de l'armageddon.
 
 Des nappes de poussière empoisonnée recouvrirent le monde, donnant à l'horizon l'apparence de ruines absolues.
 
-Des vagues de magma jaillirent du sommet de la montagne. Le Royaume de la Boucherie fut instantanément saturé d'une chaleur infinie et d'une aura destructrice.
+Des vagues de magma jaillirent du sommet de la montagne. Le Royaume Sha Lu fut instantanément saturé d'une chaleur infinie et d'une aura destructrice.
 
 Ce magma portait en lui le pouvoir de détruire tout ce qui existe!
 
-Les cultivateurs du Royaume de la Boucherie dont la culture était insuffisante furent frappés par la poussière toxique. Ils poussèrent des cris alors que leurs corps se flétrissaient et se dissipaient dans le vide.
+Les cultivateurs du Royaume Sha Lu dont la culture était insuffisante furent frappés par la poussière toxique. Ils poussèrent des cris alors que leurs corps se flétrissaient et se dissipaient dans le vide.
 
 Certains luttèrent au sein du magma, mais la température était trop élevée. Même en utilisant des sorts ou des trésors, il leur était presque impossible de s'échapper!
 
 La fissure que l'homme aux cheveux violets avait ouverte s'effondra immédiatement sous l'effet du sortilège. Il recula, le visage livide. Bien qu'il fût au stade initial du Briseur du Nirvana et qu'il eût utilisé un trésor brisé du Pseudo-Vide du Nirvana, il ne faisait pas le poids face à Qing Shui. À cet instant, une seule pensée l'habitait: s'enfuir le plus vite possible!
 
-« Malheureusement, je suis le seul cultivateur Briseur du Nirvana dans le Royaume de la Boucherie et la plupart des cultivateurs du Purificateur du Nirvana se trouvent au quartier général de l'Alliance. Sinon, avec suffisamment d'aide, j'aurais pu utiliser la formation des 99 épées. Pourtant, je crains que même cette formation ne puisse résister à ce sortilège! »
+« Malheureusement, je suis le seul cultivateur Briseur du Nirvana dans le Royaume Sha Lu et la plupart des cultivateurs du Purificateur du Nirvana se trouvent au quartier général de l'Alliance. Sinon, avec suffisamment d'aide, j'aurais pu utiliser la formation des 99 épées. Pourtant, je crains que même cette formation ne puisse résister à ce sortilège! »
 
 Quant à Huan Xuzi, son visage pâlit et il renonça à combattre Wang Lin. Voyant Wang Lin le poursuivre, il jura et projeta les neuf épées derrière lui. Il savait que Wang Lin était attiré par ces armes et espérait s'en servir pour le distraire.
 
@@ -68,11 +68,11 @@ Le regard de Qing Shui révéla une intention meurtrière monstrueuse; il tendit
 
 À l'instant même, les flammes et le magma qui jaillissaient se mirent à bouillonner avant d'être projetés vers le ciel.
 
-Dans ce processus, ils s'effondrèrent soudainement pour créer une onde de choc inimaginable qui se propagea dans tout le Royaume de la Boucherie. Plus de dix cultivateurs furent frappés par les flammes et le magma; incapables de résister, ils furent instantanément réduits en cendres.
+Dans ce processus, ils s'effondrèrent soudainement pour créer une onde de choc inimaginable qui se propagea dans tout le Royaume Sha Lu. Plus de dix cultivateurs furent frappés par les flammes et le magma; incapables de résister, ils furent instantanément réduits en cendres.
 
 Qing Shui hurla une nouvelle fois: « Second effondrement! »
 
-Le Royaume de la Boucherie entier trembla et le grand sommet s'effondra brusquement. Un flux infini de magma et de flammes jaillit aussitôt.
+Le Royaume Sha Lu entier trembla et le grand sommet s'effondra brusquement. Un flux infini de magma et de flammes jaillit aussitôt.
 
 « Troisième effondrement! » La main de Qing Shui traça un sceau et pointa la montagne lointaine!
 
@@ -88,7 +88,7 @@ Même l'énergie originelle de Huan Xuzi se dissipa, laissant apparaître une te
 
 L'homme aux cheveux violets esquissa un sourire amer. Il cessa de résister et regarda Qing Shui d'un regard complexe. Il savait que Qing Shui ne cherchait pas encore à les achever; sans quoi, ils seraient déjà morts dans la brume pourpre.
 
-Tous les édifices du Royaume de la Boucherie fondirent, ne laissant aucune trace de leur existence!
+Tous les édifices du Royaume Sha Lu fondirent, ne laissant aucune trace de leur existence!
 
 Wang Lin contemplait la scène, stupéfait. Il n'aurait jamais pu imaginer que cet Effondrement des Montagnes recelait une telle puissance!
 
@@ -100,9 +100,9 @@ Qing Shui agita ses manches et 88 rayons de lumière argentée jaillirent du mag
 
 Wang Lin saisit la sphère d'argent et la rangea dans son sac.
 
-Qing Shui vacilla et se mua en un vent noir pour saisir Huan Xuzi et le cultivateur aux cheveux violets. Puis, d'un pas impitoyable, il déclencha l'effondrement final du Royaume de la Boucherie.
+Qing Shui vacilla et se mua en un vent noir pour saisir Huan Xuzi et le cultivateur aux cheveux violets. Puis, d'un pas impitoyable, il déclencha l'effondrement final du Royaume Sha Lu.
 
-Le Royaume de la Boucherie avait été édifié au sein d'une fissure spatiale du Royaume Céleste de la Pluie. Maintenant que l'espace se dérobait, le royaume était dévoré par le vide.
+Le Royaume Sha Lu avait été édifié au sein d'une fissure spatiale du Royaume Céleste de la Pluie. Maintenant que l'espace se dérobait, le royaume était dévoré par le vide.
 
 Un immense vortex apparut sous les pieds de Qing Shui et son corps s'y enfonça. Il adressa un signe de tête à Wang Lin et dit d'une voix lente: « J'ai encore d'autres affaires à régler. Xu Mu, après notre séparation aujourd'hui, nul ne sait quand nous nous reverrons. Prends... prends soin de toi! » Sur ces mots, il disparut dans le vortex avec Huan Xuzi et le cultivateur aux cheveux violets.
 

@@ -60,7 +60,7 @@ Ce palais était immense, bien plus vaste que n'importe quel pavillon. Vu de l'e
 
 Au pied du palais, en levant les yeux, on pouvait réaliser l'ampleur colossale du palais. Il y avait une ouverture dans la porte; bien que étroite, elle permettait à dix personnes d'entrer simultanément.
 
-Wang Lin se déplaça avec la rapidité de l'éclair. Lorsqu'il fut à portée, il pénétra directement par la porte et s'engouffra dans le palais situé au premier étage de la Grotte de l'Empereur Céleste!
+Wang Lin se déplaça avec la rapidité de l'éclair. Lorsqu'il fut à portée, il pénétra directement par la porte et s'engouffra dans le palais situé au premier étage de la Grotte Xian Di!
 
 À l'instant où Wang Lin entra, il fut momentanément saisi de stupeur.
 

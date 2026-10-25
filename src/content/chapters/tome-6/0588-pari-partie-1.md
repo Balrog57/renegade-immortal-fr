@@ -46,7 +46,7 @@ En plein vol, ses deux doigts formèrent une lame. À cet instant, toute l'éner
 
 Le tambour noir s'enfonça légèrement, mais de façon infime. Sitôt enfoncé, il rebondit aussitôt.
 
-Un son sourd retentit dans les cieux. Il se propagea sur la place, résonna dans toute la cité impériale et affecta même une partie de la Cité du Démon Céleste.
+Un son sourd retentit dans les cieux. Il se propagea sur la place, résonna dans toute la cité impériale et affecta même une partie de la Cité Tian Yao.
 
 Au moment où le tambour sonna, Yu Sen ressentit une force inimaginable émanant de l'instrument. Cette puissance lui transperçait le corps.
 
@@ -90,7 +90,7 @@ Cet homme portait une armure et un masque hideux dissimulait son visage. Ses lon
 
 « Le Général démon Mo Fei... il y a 300 ans, il était le numéro un des généraux démons! »
 
-« Cet homme a passé la majeure partie de sa vie à la frontière. On dit que la tête de Mo Fei vaut une fortune aux yeux du Pays du Démon de Feu! »
+« Cet homme a passé la majeure partie de sa vie à la frontière. On dit que la tête de Mo Fei vaut une fortune aux yeux du Pays Huo Yao! »
 
 « La culture de ce Mo Fei est très mystérieuse. Jusqu'à présent, on ne l'a jamais vu utiliser que le sort du Grand Disque Rotatif. Je suis convaincu qu'il peut faire sonner le tambour au moins cinq fois! »
 
@@ -118,7 +118,7 @@ Mo Fei ne s'arrêta pas. Il avança encore de trois mètres et décocha un nouve
 
 *Dong!*
 
-Les trois premiers coups retentirent comme les rugissements de bêtes ancestrales résonnant dans le ciel de la Cité du Démon Céleste. Les échos du tambour semblaient infinis. Certains spectateurs, manquant d'énergie spirituelle démoniaque, en furent frappés par des blessures internes.
+Les trois premiers coups retentirent comme les rugissements de bêtes ancestrales résonnant dans le ciel de la Cité Tian Yao. Les échos du tambour semblaient infinis. Certains spectateurs, manquant d'énergie spirituelle démoniaque, en furent frappés par des blessures internes.
 
 Après le troisième coup, Mo Fei marqua une pause, sentant une force inimaginable jaillir du tambour vers lui. Il fit un pas de plus et se dressa tel un roc immuable au milieu de vagues déchaînées.
 

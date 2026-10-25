@@ -6,17 +6,17 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 631 - Its Companion
 slug: son-compagnon
 ---
-En un clin d'œil, plusieurs mois passèrent. La bataille au sein du Pays du Démon de Feu avait considérablement évolué et le Pays du Démon Céleste avait retiré ses troupes. La guerre, qui avait duré près d'un siècle, s'achevait dans le dévorement mutuel des anciens démons.
+En un clin d'œil, plusieurs mois passèrent. La bataille au sein du Pays Huo Yao avait considérablement évolué et le Pays Tian Yao avait retiré ses troupes. La guerre, qui avait duré près d'un siècle, s'achevait dans le dévorement mutuel des anciens démons.
 
-L'ancien démon Bei Luo acheva sa première dévoration et fusionna avec l'âme résiduelle de l'ancien démon du Pays du Démon de Feu. Ayant atteint un état de puissance suprême, il n'avait plus besoin du sang de Wang Lin pour prendre forme et pouvait désormais partir par lui-même.
+L'ancien démon Bei Luo acheva sa première dévoration et fusionna avec l'âme résiduelle de l'ancien démon du Pays Huo Yao. Ayant atteint un état de puissance suprême, il n'avait plus besoin du sang de Wang Lin pour prendre forme et pouvait désormais partir par lui-même.
 
-Wang Lin était assis en position de lotus, les yeux clos, au sein du Lac du Dragon près de la capitale du Pays du Démon Céleste. Son visage était impassible.
+Wang Lin était assis en position de lotus, les yeux clos, au sein du Lac Long Tan près de la capitale du Pays Tian Yao. Son visage était impassible.
 
 Lorsqu'il avait touché l'os, il était entré dans un état mystérieux. Après que Bei Luo eut dévoré l'âme de l'autre ancien démon, il utilisa un sort pour amener Wang Lin ici.
 
 Le temps s'écoula et plusieurs mois supplémentaires passèrent. Ce jour-là, Wang Lin ouvrit les yeux.
 
-Au moment où ses paupières s'ouvrirent, un éclat vif jaillit de ses pupilles. Son aura actuelle était bien différente de celle qu'il arborait avant de se rendre au Pays du Démon de Feu. Il ressemblait désormais davantage à un érudit mortel. On aurait dit qu'aucune énergie spirituelle céleste ne résidait plus en lui, le faisant paraître comme une personne ordinaire.
+Au moment où ses paupières s'ouvrirent, un éclat vif jaillit de ses pupilles. Son aura actuelle était bien différente de celle qu'il arborait avant de se rendre au Pays Huo Yao. Il ressemblait désormais davantage à un érudit mortel. On aurait dit qu'aucune énergie spirituelle céleste ne résidait plus en lui, le faisant paraître comme une personne ordinaire.
 
 Pourtant, un parfum émanait de son corps, dégageant une sensation de raffinement.
 
@@ -36,7 +36,7 @@ Wang Lin ferma les yeux et demanda calmement: « Qui? »
 
 « Sun Yun... » Wang Lin ouvrit les yeux. Après une courte réflexion, il déclara: « Senior Ancien Démon, il reste une dernière clause dans notre accord! »
 
-Une bourrasque de vent démoniaque surgit du Lac du Dragon, formant un vortex vert. Elle balaya la zone et disparut devant Wang Lin, révélant un jeune homme au physique profondément démoniaque.
+Une bourrasque de vent démoniaque surgit du Lac Long Tan, formant un vortex vert. Elle balaya la zone et disparut devant Wang Lin, révélant un jeune homme au physique profondément démoniaque.
 
 Le trait le plus frappant chez cet individu était ses yeux verts et maléfiques. Ils émettaient une lueur sinistre qui lui donnait un aspect très étrange. Une fois apparu, il regarda Wang Lin avant de sourire: « Naturellement, je n'aurais pas oublié ma promesse. Pendant que tu étais en pleine compréhension, j'ai utilisé un sort pour retrouver le corps du sens divin provenant de la pagode. »
 
@@ -44,27 +44,27 @@ Tout en parlant, le jeune homme agita nonchalamment la main. Des éclats de lumi
 
 L'image représentait un immense gouffre. Vu d'en haut, il ressemblait à une gigantesque faille dans le sol. Des volutes de gaz noir en jaillissaient par intermittence. L'impact de ces émanations faisait vaciller l'image elle-même.
 
-« Cet endroit est appelé l'Abîme des Marées par vous, les cultivateurs. L'aura de ton ami se trouve là-dedans! Il n'existe que six entrées vers l'Abîme des Marées. Rends-toi à celle du Pays du Démon de l'Eau; c'est la plus proche de ton ami! »
+« Cet endroit est appelé l'Abîme Chao Xi par vous, les cultivateurs. L'aura de ton ami se trouve là-dedans! Il n'existe que six entrées vers l'Abîme Chao Xi. Rends-toi à celle du Pays Shui Yao; c'est la plus proche de ton ami! »
 
-Wang Lin fixa l'image. Après réflexion, il demanda: « Qu'est-ce que cet Abîme des Marées exactement? »
+Wang Lin fixa l'image. Après réflexion, il demanda: « Qu'est-ce que cet Abîme Chao Xi exactement? »
 
 Le jeune homme hésita un instant avant de répondre: « Il existe certains endroits dans l'espace où celui-ci s'effondre d'innombrables fois. Un tunnel menant vers l'inconnu se forme en ces lieux, car l'espace y est perpétuellement compressé. Une force de succion inimaginable règne à l'intérieur du tunnel.
 
-L'Abîme des Marées est un tel endroit. »
+L'Abîme Chao Xi est un tel endroit. »
 
 L'Ancien Démon Bei Luo n'en dit pas plus, et Wang Lin ne demanda rien de plus. Il sentait que Bei Luo lui cachait bien des choses. Cependant, si Bei Luo refusait de parler, il serait vain d'insister.
 
 Gardant son calme, Wang Lin demanda lentement: « S'il y a six entrées, en est-il de même pour les sorties? »
 
-Le jeune homme esquissa un sourire légèrement démoniaque. Il répondit: « Il n'y a qu'une seule sortie, et elle se trouve dans le Pays du Démon de Feu! » Tout en parlant, sa main droite saisit l'image, qui s'effondra alors. Cependant, il rassembla tous les éclats de lumière pour les transformer en un cristal de la taille d'un doigt. Il fit ensuite un geste pour le lancer vers Wang Lin.
+Le jeune homme esquissa un sourire légèrement démoniaque. Il répondit: « Il n'y a qu'une seule sortie, et elle se trouve dans le Pays Huo Yao! » Tout en parlant, sa main droite saisit l'image, qui s'effondra alors. Cependant, il rassembla tous les éclats de lumière pour les transformer en un cristal de la taille d'un doigt. Il fit ensuite un geste pour le lancer vers Wang Lin.
 
-« Prends ceci. Ton sens divin pourra y pénétrer et emprunter ma vue pour observer tout ce qui se trouve dans l'Abîme des Marées! Considère cela comme un présent pour avoir honoré notre accord! »
+« Prends ceci. Ton sens divin pourra y pénétrer et emprunter ma vue pour observer tout ce qui se trouve dans l'Abîme Chao Xi! Considère cela comme un présent pour avoir honoré notre accord! »
 
 Wang Lin saisit le cristal, joignit les mains et dit: « Je vous remercie infiniment, Senior Ancien Démon. »
 
 Le jeune homme sourit et secoua la tête. Il dit: « C'est moi qui devrais te remercier. Tu devrais partir; je dois me consacrer à une culture en isolement pendant un certain temps. »
 
-Wang Lin se leva et fit un pas en avant. Il disparut complètement, quittant le Lac du Dragon.
+Wang Lin se leva et fit un pas en avant. Il disparut complètement, quittant le Lac Long Tan.
 
 Le jeune homme fixa la direction prise par Wang Lin, ses yeux brillant d'un éclat maléfique.
 
@@ -84,9 +84,9 @@ Si l'Ancien Diable Ta Jia et moi avons pu survivre jusqu'ici, alors un dieu anci
 
 Cependant, si je peux résister à cette tentation, je ne sais pas si l'Ancien Diable Ta Jia en sera capable... »
 
-L'Abîme des Marées était une partie très mystérieuse de la Terre des Esprits Démoniaques. C'était la source de la phase de marée à l'extérieur. Au fil des millénaires, d'innombrables trésors magiques, pierres spirituelles et bêtes spirituelles avaient été aspirés dans la Terre des Esprits Démoniaques pour finir ici.
+L'Abîme Chao Xi était une partie très mystérieuse de la Terre Yao Ling. C'était la source de la phase de marée à l'extérieur. Au fil des millénaires, d'innombrables trésors magiques, pierres spirituelles et bêtes spirituelles avaient été aspirés dans la Terre Yao Ling pour finir ici.
 
-À cet instant, au plus profond de l'Abîme des Marées, s'étendait une vaste étendue de brume noire. Plusieurs individus étaient assis sur un terrain découvert de 330 mètres de large au cœur de cette obscurité.
+À cet instant, au plus profond de l'Abîme Chao Xi, s'étendait une vaste étendue de brume noire. Plusieurs individus étaient assis sur un terrain découvert de 330 mètres de large au cœur de cette obscurité.
 
 L'un d'eux était un homme d'âge moyen. Il était très beau, mais son visage trahissait une nature insidieuse. Par intermittence, il dégageait une aura d'ambition dévorante.
 
@@ -102,7 +102,7 @@ L'homme d'âge moyen était Tan Lang!
 
 Il laissa échapper un reniflement froid: « C'est moi qui ai sous-estimé cet endroit. Toutes les bêtes ici ont été aspirées de l'immensité de l'espace, puis renforcées par la force mystérieuse des lieux. Il est naturel que des créatures puissantes apparaissent ici. »
 
-À ce moment, un disciple de la Secte de l'Épée Da Luo, resté silencieux jusqu'alors, prit la parole: « Senior Tan Lang, ces bêtes sont trop nombreuses et chacune d'elles est extrêmement féroce. Normalement, ces espèces sont très célèbres, mais bien que j'y aie longuement réfléchi, je ne parviens pas à me rappeler de quel type de créatures il s'agit. »
+À ce moment, un disciple de la Secte Da Luo Jian, resté silencieux jusqu'alors, prit la parole: « Senior Tan Lang, ces bêtes sont trop nombreuses et chacune d'elles est extrêmement féroce. Normalement, ces espèces sont très célèbres, mais bien que j'y aie longuement réfléchi, je ne parviens pas à me rappeler de quel type de créatures il s'agit. »
 
 Cet homme occupait une position singulière; il semblait que tous les autres disciples gravitaient autour de lui.
 

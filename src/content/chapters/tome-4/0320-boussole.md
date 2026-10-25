@@ -26,7 +26,7 @@ Wang Lin savait que ce qui venait de se passer était extrêmement dangereux. S'
 
 Wang Lin retourna rapidement vers la boussole stellaire.
 
-« Frère Ceng, ce Sun Tai est le Grand Ancien de la Secte des Cadavres. Vous devrez être prudent à l'avenir. » Chi Hu avait vu ce qui venait de se passer et le statut de Wang Lin augmenta dans son esprit. En tant que jeune maître du Clan des Démons Géants, au lieu de se faire des ennemis, il cherchait à se lier d'amitié avec des héros.
+« Frère Ceng, ce Sun Tai est le Grand Ancien de la Secte Shi Yin. Vous devrez être prudent à l'avenir. » Chi Hu avait vu ce qui venait de se passer et le statut de Wang Lin augmenta dans son esprit. En tant que jeune maître du Clan Ju Mo, au lieu de se faire des ennemis, il cherchait à se lier d'amitié avec des héros.
 
 Tout au long de leur voyage, Wang Lin avait fait preuve autant d'esprit que de détermination. Sa culture était également impressionnante, ce qui donnait envie à Chi Hu de devenir l'ami de Wang Lin.
 
@@ -52,7 +52,7 @@ Wang Lin resta immobile et ne dit mot.
 
 Wang Lin regarda nonchalamment la boussole et dit: « Frère Chi Hu, n'avez-vous apporté qu'une seule boussole stellaire? »
 
-Chi Hu eut un sourire amer. « Frère Ceng, la boussole stellaire est un trésor très rare. Même dans tout le Suzaku, il y en a peu. Notre Clan des Démons Géants n'en possédait qu'une depuis notre arrivée sur cette planète, mais je l'ai brisée par ma faute. Quand je rentrerai, je serai certainement puni par une retraite en isolement. »
+Chi Hu eut un sourire amer. « Frère Ceng, la boussole stellaire est un trésor très rare. Même dans tout le Suzaku, il y en a peu. Notre Clan Ju Mo n'en possédait qu'une depuis notre arrivée sur cette planète, mais je l'ai brisée par ma faute. Quand je rentrerai, je serai certainement puni par une retraite en isolement. »
 
 Wang Lin sourit calmement et dit: « Frère Chi Hu, bien que nous ne nous connaissions pas depuis longtemps, nous avons traversé la vie et la mort ensemble. Je ne vous mentirai pas: je peux réparer cette boussole stellaire. »
 

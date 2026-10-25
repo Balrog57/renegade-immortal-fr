@@ -8,7 +8,7 @@ slug: les-sept-jetons
 ---
 Il y avait un total de sept jetons. Wang Lin en avait obtenu deux de la part de Li Shan, un de la Secte Piao Miao, un de la Secte He Huan et un de la Secte Xuan Dao. Au total, il en possédait cinq.
 
-En faisant abstraction de celui appartenant à la Secte des Cadavres, il en restait encore un.
+En faisant abstraction de celui appartenant à la Secte Shi Yin, il en restait encore un.
 
 Wang Lin réfléchit un moment. Il avait déjà cherché auprès de toutes les sectes de la Vallée Jue Ming, mais il n'avait toujours pas trouvé le dernier jeton. Bien sûr, cela n'excluait pas que quelqu'un puisse en avoir caché un quelque part. Il ne s'encombrerait pas à le chercher; après tout, avec cinq des sept jetons en sa possession, sa place sur le champ de bataille étranger était déjà assurée.
 

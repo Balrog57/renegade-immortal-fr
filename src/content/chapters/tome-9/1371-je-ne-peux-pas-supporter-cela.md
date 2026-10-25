@@ -14,31 +14,31 @@ Lorsqu'il était arrivé ici, Wang Lin avait laissé Zhong Dahong sortir pour re
 
 « De plus, je n'ai rien trouvé concernant l'Ordre du Système Stellaire Antique, vous pouvez donc être rassuré, Maître. »
 
-Après avoir libéré Zhong Dahong, Wang Lin avait utilisé un sort pour sonder son cœur. Après tout, ayant détruit le Clan du Tonnerre Dispersé, il ne pouvait ignorer les intentions que Zhong Dahong aurait pu nourrir.
+Après avoir libéré Zhong Dahong, Wang Lin avait utilisé un sort pour sonder son cœur. Après tout, ayant détruit le Clan Shan Lei, il ne pouvait ignorer les intentions que Zhong Dahong aurait pu nourrir.
 
-Cependant, ce qui surprit Wang Lin fut le fait que Zhong Dahong n'éprouvait presque aucun sentiment envers le Clan du Tonnerre Dispersé. De son point de vue, le clan ne l'avait jamais aidé et, à cause des cristaux de tonnerre, il devait constamment leur offrir des tributs. Dans ses jeunes années, il s'était élevé par ses propres moyens jusqu'à son niveau de culture actuel, et ayant vu la cruauté dont les membres du clan faisaient preuve les uns envers les autres, il n'avait éprouvé aucune loyauté.
+Cependant, ce qui surprit Wang Lin fut le fait que Zhong Dahong n'éprouvait presque aucun sentiment envers le Clan Shan Lei. De son point de vue, le clan ne l'avait jamais aidé et, à cause des cristaux de tonnerre, il devait constamment leur offrir des tributs. Dans ses jeunes années, il s'était élevé par ses propres moyens jusqu'à son niveau de culture actuel, et ayant vu la cruauté dont les membres du clan faisaient preuve les uns envers les autres, il n'avait éprouvé aucune loyauté.
 
-Par conséquent, lorsqu'il apprit qu'il pouvait devenir plus fort en suivant Wang Lin, il choisit de quitter le Clan du Tonnerre Dispersé sans l'ombre d'une hésitation.
+Par conséquent, lorsqu'il apprit qu'il pouvait devenir plus fort en suivant Wang Lin, il choisit de quitter le Clan Shan Lei sans l'ombre d'une hésitation.
 
-Bien que le Clan du Tonnerre Dispersé ait été détruit, de nombreux membres avaient quitté le clan au fil des âges pour s'installer ailleurs. Il n'était donc pas surprenant que certains apparaissent dans la Terre Déchue.
+Bien que le Clan Shan Lei ait été détruit, de nombreux membres avaient quitté le clan au fil des âges pour s'installer ailleurs. Il n'était donc pas surprenant que certains apparaissent dans la Terre Déchue.
 
 Wang Lin demanda doucement: « Une marionnette? »
 
 Zhong Dahong, tout excité, répondit promptement: « Maître, cette marionnette est très coûteuse ici et elle est faite de matériaux inconnus. Elle peut manifester la puissance d'un cultivateur normal et possède même un sens divin. C'est une merveille! »
 
-L'expression de Wang Lin resta imperturbable. Il était intéressé par la marionnette. Après un court instant de réflexion, il demanda lentement: « Y a-t-il des nouvelles concernant le Clan des Moineaux de Feu? »
+L'expression de Wang Lin resta imperturbable. Il était intéressé par la marionnette. Après un court instant de réflexion, il demanda lentement: « Y a-t-il des nouvelles concernant le Clan Huo Que? »
 
-« Il n'y a pas beaucoup de membres du Clan des Moineaux de Feu ici, et je n'en ai rencontré aucun sur cette planète. Cependant, d'après mes informations, ils sont principalement regroupés sur une planète aux attributs de feu à proximité. Quant aux détails précis, ce petit ne les maîtrise pas encore tout à fait, mais je devrais y voir clair bientôt. » Zhong Dahong martela sa poitrine en parlant.
+« Il n'y a pas beaucoup de membres du Clan Huo Que ici, et je n'en ai rencontré aucun sur cette planète. Cependant, d'après mes informations, ils sont principalement regroupés sur une planète aux attributs de feu à proximité. Quant aux détails précis, ce petit ne les maîtrise pas encore tout à fait, mais je devrais y voir clair bientôt. » Zhong Dahong martela sa poitrine en parlant.
 
 Les yeux de Wang Lin brillèrent d'un éclat imperceptible. Bien que son essence de tonnerre fût complète, les éclairs qui l'accompagnaient étaient encore imparfaits. Il était toutefois confiant dans sa capacité à corriger cela. S'il se trouvait toujours dans le Système Stellaire Antique, c'était pour son essence de feu!
 
-Afin de parfaire son essence de feu et d'éveiller à nouveau l'Oiseau Vermillon, il devait absorber une énergie ignée d'un niveau suffisamment élevé. Le Clan des Moineaux de Feu était le premier choix de Wang Lin, et il n'avait pas l'intention de les laisser filer si facilement.
+Afin de parfaire son essence de feu et d'éveiller à nouveau l'Oiseau Vermillon, il devait absorber une énergie ignée d'un niveau suffisamment élevé. Le Clan Huo Que était le premier choix de Wang Lin, et il n'avait pas l'intention de les laisser filer si facilement.
 
-Cependant, il ne bénéficierait pas de la même chance qu'avec le Clan du Tonnerre Dispersé, où l'aide lui avait facilité la traversée des obstacles. Il n'était pas non plus réaliste de tenter de s'infiltrer dans le Clan des Moineaux de Feu pour en atteindre le cœur.
+Cependant, il ne bénéficierait pas de la même chance qu'avec le Clan Shan Lei, où l'aide lui avait facilité la traversée des obstacles. Il n'était pas non plus réaliste de tenter de s'infiltrer dans le Clan Huo Que pour en atteindre le cœur.
 
-Wang Lin avait initialement envisagé cette option, mais il était désormais traqué par l'ensemble du Système Stellaire Antique. Il était fort probable que les poursuivants arrivent avant même qu'il ne puisse pénétrer au sein du Clan des Moineaux de Feu.
+Wang Lin avait initialement envisagé cette option, mais il était désormais traqué par l'ensemble du Système Stellaire Antique. Il était fort probable que les poursuivants arrivent avant même qu'il ne puisse pénétrer au sein du Clan Huo Que.
 
-Pourtant, une méthode étrange traversa l'esprit de Wang Lin. S'il réussissait, il pourrait complètement dévorer le feu du Clan des Moineaux de Feu!
+Pourtant, une méthode étrange traversa l'esprit de Wang Lin. S'il réussissait, il pourrait complètement dévorer le feu du Clan Huo Que!
 
 « Zhong Dahong, prends mes pilules et achète une marionnette. » Après avoir pesé sa décision, Wang Lin agita la main droite, faisant apparaître trois pilules. Un parfum exquis emplit la grotte. Zhong Dahong fixa les pilules en déglutissant avec difficulté avant de les recevoir respectueusement.
 
@@ -90,7 +90,7 @@ Initialement suspicieux, le vieillard, voyant la facilité avec laquelle le maî
 
 « Plus tôt, le Grand Frère Zhang a mentionné les marionnettes et je suis retourné en informer le Maître. Il est intéressé par l'achat d'une... Grand Frère Zhang sait que je suis nouveau ici et peu familier des lieux. J'espère que vous pourrez m'aider pour cela, et une fois la chose réglée, je saurai vous remercier. » Les yeux de Zhong Dahong s'illuminèrent alors qu'il souriait au vieillard.
 
-Après avoir entendu cela, le vieillard hésita et murmura: « Frère Zhong, ces marionnettes ne sont pas faciles à acquérir... Sur la planète principale, ce serait simple, mais ici, le Clan du Scorpion Noir contrôle le commerce des marionnettes. Ils sont extrêmement dominants et les prix sont plusieurs fois plus élevés. Es-tu sûr de vouloir acheter? »
+Après avoir entendu cela, le vieillard hésita et murmura: « Frère Zhong, ces marionnettes ne sont pas faciles à acquérir... Sur la planète principale, ce serait simple, mais ici, le Clan An Xie contrôle le commerce des marionnettes. Ils sont extrêmement dominants et les prix sont plusieurs fois plus élevés. Es-tu sûr de vouloir acheter? »
 
 Voyant Zhong Dahong acquiescer, le vieillard réfléchit un instant avant de serrer les dents: « Très bien, je t'y emmènerai! »
 
@@ -146,7 +146,7 @@ Le jeune homme semblait absorber la puissance de la statue pendant sa culture. �
 
 L'homme s'inclina puis disparut.
 
-Zhong Dahong et le vieil homme quittèrent précipitamment la ville. Dans le ciel, le vieillard sourit amèrement: « Petit Frère Zhong, le Clan du Scorpion Noir est extrêmement tyrannique, personne sur cette planète n'ose les provoquer. Nous avons eu de la chance de pouvoir échanger cette marionnette. Si... » Il ne put achever sa phrase, ses pupilles se contractant alors qu'il fixait l'horizon.
+Zhong Dahong et le vieil homme quittèrent précipitamment la ville. Dans le ciel, le vieillard sourit amèrement: « Petit Frère Zhong, le Clan An Xie est extrêmement tyrannique, personne sur cette planète n'ose les provoquer. Nous avons eu de la chance de pouvoir échanger cette marionnette. Si... » Il ne put achever sa phrase, ses pupilles se contractant alors qu'il fixait l'horizon.
 
 Zhong Dahong trembla, le cuir chevelu engourdi par la peur. Sans hésiter, il s'élança pour fuir.
 
@@ -154,9 +154,9 @@ Un reniflement froid retentit et, peu après, deux rayons de lumière noire jail
 
 L'autre rayon rattrapa Zhong Dahong et frappa son dos. Un souffle noir monta sur son visage; il cracha du sang et s'enfuit, l'âme ébranlée par la terreur.
 
-L'homme d'âge moyen du Clan du Scorpion Noir apparut et regarda froidement la direction de la fuite de Zhong Dahong. Il fit volte-face, saisit le vieillard inconscient et retourna vers le hall principal du clan.
+L'homme d'âge moyen du Clan An Xie apparut et regarda froidement la direction de la fuite de Zhong Dahong. Il fit volte-face, saisit le vieillard inconscient et retourna vers le hall principal du clan.
 
-Le visage de Zhong Dahong était d'une pâleur extrême. Cette épreuve lui avait appris que cet endroit était bien plus dangereux que le Clan du Tonnerre Dispersé.
+Le visage de Zhong Dahong était d'une pâleur extrême. Cette épreuve lui avait appris que cet endroit était bien plus dangereux que le Clan Shan Lei.
 
 « Les pilules ont attiré trop l'attention, hélas... J'ai mal agi. Non seulement j'ai blessé le Compagnon Cultivateur Zhang, mais j'ai failli provoquer une catastrophe. » Zhong Dahong vola à toute vitesse vers la grotte de Wang Lin.
 
@@ -194,7 +194,7 @@ Zhong Dahong prit une profonde inspiration, une intention meurtrière brillant d
 
 Tous les cultivateurs de la planète ressentirent un tremblement dans leur âme. Le ciel changea de couleur, la terre trembla et les nuages se dispersèrent!
 
-En un instant, Wang Lin avait conduit Zhong Dahong jusqu'à la ville en ruine. Il relâcha sa prise pour laisser Zhong Dahong flotter à ses côtés. Ce dernier, surexcité, pointa la cité du doigt: « Maître, le Clan du Scorpion Noir est là! »
+En un instant, Wang Lin avait conduit Zhong Dahong jusqu'à la ville en ruine. Il relâcha sa prise pour laisser Zhong Dahong flotter à ses côtés. Ce dernier, surexcité, pointa la cité du doigt: « Maître, le Clan An Xie est là! »
 
 Les yeux de Wang Lin brillaient comme des torches alors qu'il contemplait la ville en contrebas.
 
@@ -208,7 +208,7 @@ Dans le hall principal, l'homme d'âge moyen était assis tandis que le vieil ho
 
 L'homme d'âge moyen ouvrit les yeux avec effroi et cracha du sang. Il se leva d'un bond.
 
-Non seulement lui, mais tous les cultivateurs du Clan du Scorpion Noir en pleine culture dans la tour s'éveillèrent sous le choc. Même le jeune homme au deuxième étage trembla, le visage blême. La voix avait pénétré la terre pour frapper directement le sanctuaire, faisant vibrer toute la structure.
+Non seulement lui, mais tous les cultivateurs du Clan An Xie en pleine culture dans la tour s'éveillèrent sous le choc. Même le jeune homme au deuxième étage trembla, le visage blême. La voix avait pénétré la terre pour frapper directement le sanctuaire, faisant vibrer toute la structure.
 
 Trois respirations passèrent en un éclair et la main droite de Wang Lin s'abattit. Des grondements tonitruants éclatèrent alors qu'une quantité infinie d'éclairs convergeait de toutes les directions, formant un gigantesque filet de foudre qui s'abattit sur la ville.
 

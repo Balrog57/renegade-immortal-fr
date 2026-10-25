@@ -6,21 +6,21 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1054 - Forcing Master Void
 slug: forcer-le-maitre-du-vide
 ---
-« L'Alliance de Culture... » Wang Wei regarda froidement le Maître du Vide en secouant la tête. « Quelle prétention. »
+« L'Alliance Xiu Zhen... » Wang Wei regarda froidement le Maître du Vide en secouant la tête. « Quelle prétention. »
 
-Hu Juan sourit et observa le Maître du Vide avec désinvolture. Elle et son mari n'avaient jamais accordé beaucoup d'importance à l'Alliance de Culture. Ce n'était pas que le Maître Zhong Xuan ou l'Alliance fussent faibles, mais leur propre statut, à eux deux, leur donnait une fierté légitime. Surtout Wang Wei, dont l'orgueil était connu de tous dans le Royaume Céleste à l'époque.
+Hu Juan sourit et observa le Maître du Vide avec désinvolture. Elle et son mari n'avaient jamais accordé beaucoup d'importance à l'Alliance Xiu Zhen. Ce n'était pas que le Maître Zhong Xuan ou l'Alliance fussent faibles, mais leur propre statut, à eux deux, leur donnait une fierté légitime. Surtout Wang Wei, dont l'orgueil était connu de tous dans le Royaume Céleste à l'époque.
 
 Cependant, après d'innombrables années de changements, la personnalité de Wang Wei s'était faite plus discrète et ne se révélait plus aussi facilement. Mais cette fierté ancrée dans ses os n'était pas une chose que le temps pouvait effacer.
 
-Wang Wei et Hu Juan étaient les disciples de l'être le plus puissant du Royaume Céleste, l'Empereur Céleste Qing Lin. Ils étaient déjà célèbres lorsque le Royaume Céleste existait encore et que l'Alliance de Culture n'était même pas née; ils n'étaient alors qu'un groupe de cultivateurs de bas niveau du Bas Monde.
+Wang Wei et Hu Juan étaient les disciples de l'être le plus puissant du Royaume Céleste, l'Empereur Céleste Qing Lin. Ils étaient déjà célèbres lorsque le Royaume Céleste existait encore et que l'Alliance Xiu Zhen n'était même pas née; ils n'étaient alors qu'un groupe de cultivateurs de bas niveau du Bas Monde.
 
-Même l'ancien démon Bei Luo esquissa un sourire, ses yeux empreints de dérision. En tant qu'ancien démon, il méprisait naturellement cette Alliance de Culture qui n'était qu'une organisation récente. Il était déjà célèbre dans le monde extérieur alors que le royaume scellé appartenait encore au Royaume Céleste.
+Même l'ancien démon Bei Luo esquissa un sourire, ses yeux empreints de dérision. En tant qu'ancien démon, il méprisait naturellement cette Alliance Xiu Zhen qui n'était qu'une organisation récente. Il était déjà célèbre dans le monde extérieur alors que le royaume scellé appartenait encore au Royaume Céleste.
 
-De plus, bien qu'il ait été piégé dans la Terre des Esprits Démoniaques durant toutes ces années, il avait beaucoup appris sur l'Alliance de Culture grâce aux cultivateurs qui venaient ici. En réalité, il en connaissait les détails mieux que la plupart des gens.
+De plus, bien qu'il ait été piégé dans la Terre Yao Ling durant toutes ces années, il avait beaucoup appris sur l'Alliance Xiu Zhen grâce aux cultivateurs qui venaient ici. En réalité, il en connaissait les détails mieux que la plupart des gens.
 
 « Votre frère aîné, le Maître Zhong Xuan, était déjà un homme redoutable avant l'effondrement du Royaume Céleste et était considéré comme l'un des plus puissants cultivateurs. Lors de l'effondrement, il fut parmi les premiers, aux côtés de l'Empereur Divin du Dragon Azure des Quatre Sectes Divines, à risquer sa vie pour piller le Royaume Céleste.
 
-« En fin de compte, il utilisa une méthode inconnue pour s'emparer de la majeure partie des héritages du Royaume Céleste, et ce n'est qu'alors que l'Alliance de Culture fut établie! Moi, Bei Luo, j'admire réellement un tel homme, mais vous... » Bei Luo secoua la tête, le regard moqueur.
+« En fin de compte, il utilisa une méthode inconnue pour s'emparer de la majeure partie des héritages du Royaume Céleste, et ce n'est qu'alors que l'Alliance Xiu Zhen fut établie! Moi, Bei Luo, j'admire réellement un tel homme, mais vous... » Bei Luo secoua la tête, le regard moqueur.
 
 L'expression du Maître du Vide devint sombre. Leurs regards l'irritaient profondément, mais il réprima sa colère. Il pointa Wang Lin du doigt et déclara: « J'ai un différend personnel avec ce cadet. Puisque vous, autres cultivateurs, êtes intervenus, je vais laisser cette affaire de côté pour l'instant. Je promets de ne pas causer de problèmes à ce junior tant que nous resterons dans cette grotte. Je présume que vous êtes ici pour collaborer afin d'atteindre l'étage suivant. Pourquoi gâcher l'ambiance? Si cela compromet nos chances de progresser, cela n'en vaudra pas la peine. »
 
@@ -88,7 +88,7 @@ Elle retint brusquement son geste. Évitant instinctivement le regard de Wang Li
 
 Le visage du Maître du Vide devint livide. Si la situation s'était arrêtée là, ce n'aurait pas été si grave, mais ce qui le plongea dans l'angoisse fut de voir Wang Wei se lever à son tour. Ce dernier chargea et mena une attaque en tenaille avec Bei Luo, encerclant totalement le Maître du Vide.
 
-Voyant que Wang Wei allait frapper, le Maître du Vide poussa un cri désespéré: « Si vous, cultivateurs, ne prenez pas part à cette affaire, je ne prendrai rien dans cette Grotte de l'Empereur Céleste et je vous aiderai à briser tous les sceaux de ce lieu! »
+Voyant que Wang Wei allait frapper, le Maître du Vide poussa un cri désespéré: « Si vous, cultivateurs, ne prenez pas part à cette affaire, je ne prendrai rien dans cette Grotte Xian Di et je vous aiderai à briser tous les sceaux de ce lieu! »
 
 Les yeux de Wang Wei se plissèrent, tout comme ceux de Bei Luo qui marquaient un temps d'arrêt.
 

@@ -50,7 +50,7 @@ Le temps sembla ralentir. La main droite de Wang Lin percuta sa tête, et son cr
 
 Au milieu de cette destruction, Wang Lin sembla voir l'instant où Xuan Luo apparut pour la première fois dans le monde des grottes. Il sembla retourner dans sa ville natale et revivre le passé.
 
-Tout s'arrêta instantanément au moment où Wang Lin sortit du Temple de l'Empereur Dao Antique, poussé par la rage.
+Tout s'arrêta instantanément au moment où Wang Lin sortit du Temple de l'Empereur Dao Gu, poussé par la rage.
 
 L'assistance regarda avec incrédulité le corps de Wang Lin exploser en un amas de chair et de sang. Il s'était autodétruit juste avant l'arrivée de Xuan Luo.
 

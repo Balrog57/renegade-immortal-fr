@@ -8,9 +8,9 @@ slug: chacun-ses-propres-complots
 ---
 Le corps véritable d'essence de tonnerre fixa froidement Wang Lin, tandis qu'un grondement tonitruant résonnait dans l'espace. Il bougea soudainement et abattit sa main vers lui. D'innombrables éclairs jaillirent en direction de Wang Lin, le submergeant avec une rapidité fulgurante.
 
-Wang Lin resta assis là, levant les yeux vers son corps véritable d'essence de tonnerre qui l'écrasait impitoyablement. Son expression était sombre; désormais qu'il était réveillé, l'image du maître de la Secte du Dao Démoniaque s'imposa dans son esprit.
+Wang Lin resta assis là, levant les yeux vers son corps véritable d'essence de tonnerre qui l'écrasait impitoyablement. Son expression était sombre; désormais qu'il était réveillé, l'image du maître de la Secte Dao Mo s'imposa dans son esprit.
 
-La formation même de ce corps véritable et ce changement soudain devaient être liés au maître de la Secte du Dao Démoniaque. Wang Lin percevait même vaguement son aura émaner de l'essence de tonnerre.
+La formation même de ce corps véritable et ce changement soudain devaient être liés au maître de la Secte Dao Mo. Wang Lin percevait même vaguement son aura émaner de l'essence de tonnerre.
 
 « Il m'a capturé... non pas pour me tuer ou me blesser... mais pour s'emparer de mon essence de tonnerre et m'aider à former mon propre corps véritable d'essence de tonnerre... Son but... n'est pas de me supprimer, mais d'utiliser ce corps pour plonger mon esprit dans le chaos et l'effacer totalement! »
 
@@ -24,13 +24,13 @@ Il se retira temporairement pour laisser le corps véritable d'essence de tonner
 
 C'était la seule méthode que Wang Lin ait conçue pour résister face à une telle scène incroyable.
 
-Le tonnerre grondait dans cet espace verdâtre et d'innombrables éclairs jaillissaient du corps véritable. En s'approchant, il se désintégra en une multitude de foudres qui pénétrèrent le corps de Wang Lin. Sous la volonté du maître de la Secte du Dao Démoniaque, l'énergie balaya Wang Lin pour effacer son esprit et tout ce qu'il était.
+Le tonnerre grondait dans cet espace verdâtre et d'innombrables éclairs jaillissaient du corps véritable. En s'approchant, il se désintégra en une multitude de foudres qui pénétrèrent le corps de Wang Lin. Sous la volonté du maître de la Secte Dao Mo, l'énergie balaya Wang Lin pour effacer son esprit et tout ce qu'il était.
 
 Le temps s'étira, et un mois passa en un éclair. Le tonnerre entourant Wang Lin finit par se dissiper jusqu'à disparaître totalement. Il restait là, immobile, sans aucune fluctuation d'âme ou de culture. Même sa vitalité semblait presque éteinte. Il ressemblait à un mort-vivant.
 
 Un puissant Sens Divin balaya Wang Lin avant de s'éloigner lentement.
 
-Au même moment, à l'extérieur du bâtiment du scorpion, le maître de la Secte du Dao Démoniaque ouvrit ses yeux fatigués. Il contempla le temple et ses paroles résonnèrent doucement: « Ji Si, sa conscience, son esprit et ses souvenirs ont été entièrement effacés. Son corps est maintenant vide. Vous pouvez vérifier; si vous êtes satisfait, ce Maître de Secte va partir. »
+Au même moment, à l'extérieur du bâtiment du scorpion, le maître de la Secte Dao Mo ouvrit ses yeux fatigués. Il contempla le temple et ses paroles résonnèrent doucement: « Ji Si, sa conscience, son esprit et ses souvenirs ont été entièrement effacés. Son corps est maintenant vide. Vous pouvez vérifier; si vous êtes satisfait, ce Maître de Secte va partir. »
 
 À ces mots, un bruit de toux provint de l'espace vert. Un vieil homme vêtu d'une robe verte apparut dans cet espace par une méthode inconnue. Derrière lui, les deux Messagers du Démon Vert le suivaient de près pour assurer sa garde.
 
@@ -40,31 +40,31 @@ Son bras droit était terrifiant, couvert d'une pilosité verdâtre. C'était un
 
 Au moment où sa main pressa le crâne de Wang Lin, une infime fluctuation émana de l'esprit de ce dernier, protégé par la Perle Défiant le Ciel. Cependant, grâce à la protection de la Perle, aucun intrus ne put la détecter.
 
-« Le maître de la Secte du Dao Démoniaque n'est pas encore parti... Ce n'est pas le moment de résister... Attendons encore un peu! » Les remous dans le cœur de Wang Lin se calmèrent lentement.
+« Le maître de la Secte Dao Mo n'est pas encore parti... Ce n'est pas le moment de résister... Attendons encore un peu! » Les remous dans le cœur de Wang Lin se calmèrent lentement.
 
 Après un long moment, la main se retira et une voix rauque s'éleva de la bouche du vieil homme en vert.
 
 « Vous pouvez partir. Une fois que le Seigneur Démon Vert sera ressuscité, vous recevrez ce qui vous a été promis! »
 
-À l'extérieur du bâtiment du scorpion, les yeux du maître de la Secte du Dao Démoniaque brillèrent d'une lueur étrange. Il jeta un dernier regard au temple avant de disparaître.
+À l'extérieur du bâtiment du scorpion, les yeux du maître de la Secte Dao Mo brillèrent d'une lueur étrange. Il jeta un dernier regard au temple avant de disparaître.
 
 Ce n'est qu'une fois le maître parti que le vieil homme en robe verte contempla Wang Lin avec une excitation manifeste.
 
 « La famille de ce vieil homme a attendu si longtemps... Des générations de mortels ont servi de Ji Si pendant des dizaines de milliers d'années, jusqu'à ce qu'apparaisse enfin un corps venu d'au-delà du ciel, semblable à celui du Seigneur Démon Vert! »
 
-« Seul un corps de ce genre peut être possédé par le Seigneur Démon Vert pour lui permettre de renaître!! Cependant, la volonté du maître de la Secte du Dao Démoniaque doit être effacée du corps véritable d'essence de tonnerre... » murmura l'homme en fixant Wang Lin avec exaltation. Sa voix résonna dans l'espace vert, empreinte d'une étrange folie.
+« Seul un corps de ce genre peut être possédé par le Seigneur Démon Vert pour lui permettre de renaître!! Cependant, la volonté du maître de la Secte Dao Mo doit être effacée du corps véritable d'essence de tonnerre... » murmura l'homme en fixant Wang Lin avec exaltation. Sa voix résonna dans l'espace vert, empreinte d'une étrange folie.
 
 L'esprit de Wang Lin demeurait dissimulé sous la protection de la Perle Défiant le Ciel. Il sentait que cette crise n'était pas un combat pour la survie, mais une immense fortune qui faisait bondir son cœur!
 
 Le vieil homme en robe verte tremblait. Sa lignée avait attendu ce jour durant des dizaines de milliers d'années, de génération en génération. Il prit une profonde inspiration et mordit le bout de son doigt. Une goutte de sang vert jaillit et vint se poser entre les sourcils de Wang Lin.
 
-À l'instant où la goutte de sang toucha son front, une ondulation verte parcourut l'espace. La vague se propagea, et la volonté du maître de la Secte du Dao Démoniaque — qu'elle fût intentionnelle ou accidentelle — disparut complètement.
+À l'instant où la goutte de sang toucha son front, une ondulation verte parcourut l'espace. La vague se propagea, et la volonté du maître de la Secte Dao Mo — qu'elle fût intentionnelle ou accidentelle — disparut complètement.
 
 Le corps véritable formé par le tonnerre ne portait plus la volonté d'aucun autre être. Wang Lin n'avait plus qu'à y projeter sa propre volonté pour l'occuper. Pourtant, pour une fortune encore plus grande, il résista à cette tentation.
 
 Après un long moment, une étincelle de sagesse brilla dans les yeux du vieil homme. Il n'avait pas besoin de prononcer ces mots devant Wang Lin: tout cela n'était qu'un test!
 
-Le fait d'avoir obtenu le titre de Ji Si du Temple du Scorpion du Démon Vert avec un corps mortel prouvait sa grande intelligence. Il ne croirait pas aveuglément ce qu'il voyait et remettrait tout en question.
+Le fait d'avoir obtenu le titre de Ji Si du Temple Lü Mo Xie avec un corps mortel prouvait sa grande intelligence. Il ne croirait pas aveuglément ce qu'il voyait et remettrait tout en question.
 
 Il avait d'abord utilisé ses paroles, puis effacé la volonté du maître de la Secte du corps de tonnerre. Il tentait de provoquer Wang Lin pour voir si son esprit avait été totalement anéanti.
 
@@ -88,7 +88,7 @@ Une violente crise de vie ou de mort s'empara de son cœur. Malgré sa détermin
 
 Dans un fracas tonitruant, les deux sorts des messagers percutèrent le corps de Wang Lin. Cependant, au moment de l'impact, une onde de lumière verte ondula et repoussa les deux assaillants.
 
-Cette ondulation verte avait été générée par le sang frais que Ji Si avait extrait. Son sang avait dispersé la volonté du maître de la Secte du Dao Démoniaque et semblait avoir disparu, mais c'était en réalité un atout qu'il avait gardé pour éprouver Wang Lin!
+Cette ondulation verte avait été générée par le sang frais que Ji Si avait extrait. Son sang avait dispersé la volonté du maître de la Secte Dao Mo et semblait avoir disparu, mais c'était en réalité un atout qu'il avait gardé pour éprouver Wang Lin!
 
 Ce n'est qu'à ce moment que le vieil homme en robe verte se détendit complètement et éclata d'un rire sonore. Cependant, dans son hilarité, il commença à tousser violemment.
 

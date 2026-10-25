@@ -30,7 +30,7 @@ Sur ces mots, une intention meurtrière traversa son regard avant qu'il ne ferme
 
 « Bien que cet homme semble être au stade avancé de la Transformation de l'Âme, il dégage un sentiment mystérieux. Les gens ordinaires ne pourraient pas le détecter; seuls ceux qui ont atteint le stade Ascendant peuvent clairement le ressentir... Cet homme n'est pas de la planète Suzaku! » Yun Quezi regarda une dernière fois l'homme âgé avant de détourner les yeux. Il observa ensuite la porte géante et médita silencieusement.
 
-Grâce à sa compréhension du Tombeau de Suzaku, il avait été profondément choqué tout au long de son voyage. C'était totalement différent de ce que le précédent Suzaku lui avait décrit.
+Grâce à sa compréhension du Tombeau Zhu Que, il avait été profondément choqué tout au long de son voyage. C'était totalement différent de ce que le précédent Suzaku lui avait décrit.
 
 Ces formes de vie étaient clairement façonnées par le pouvoir mystérieux du Cristal de la Planète de Culture. D'après ses souvenirs, le précédent Suzaku lui avait dit que ces formes de vie n'apparaissaient que dans la partie intérieure du Cristal de la Planète de Culture.
 
@@ -48,7 +48,7 @@ Un autre cultivateur arriva également. Il portait une robe bleue ainsi qu'un ma
 
 Deux heures plus tard, trois rayons de lumière traversèrent le ciel en direction du sommet, mais alors qu'ils approchaient, toute la montagne spirituelle trembla. La porte fut également secouée violemment et de nouvelles fissures apparurent sur sa surface.
 
-À cet instant, non seulement la montagne spirituelle vacillait, mais c'était tout le Tombeau de Suzaku qui tremblait.
+À cet instant, non seulement la montagne spirituelle vacillait, mais c'était tout le Tombeau Zhu Que qui tremblait.
 
 Comme lors du premier incident, une immense quantité de terre s'effondra dans le néant et de nombreuses failles apparurent partout. Le ciel subissait le même sort; des effondrements se produisaient en tous points.
 
@@ -56,11 +56,11 @@ Les trois rayons de lumière n'atteignirent jamais la montagne spirituelle, car 
 
 Cette secousse fut plus longue que la précédente; elle dura trente respirations avant de cesser. Durant ce temps, toute la section extérieure s'effondra dans un vide rempli de failles mortelles.
 
-Certains cultivateurs tentaient encore d'entrer dans le Tombeau de Suzaku au pied du mont Suzaku, mais tous ceux qui s'aventuraient à l'intérieur étaient instantanément tués par les failles.
+Certains cultivateurs tentaient encore d'entrer dans le Tombeau Zhu Que au pied du mont Suzaku, mais tous ceux qui s'aventuraient à l'intérieur étaient instantanément tués par les failles.
 
-Graduellement, de plus en plus de personnes tentèrent l'approche, comme si le Tombeau de Suzaku avait perdu la restriction qui en empêchait l'accès. Mais après un moment, certains réalisèrent que quelque chose n'allait pas. La situation devint si étrange que plus personne n'osa franchir ce passage. À leurs yeux, ce passage était devenu une bête démoniaque dévorant les cultivateurs. Quiconque y pénétrait était voué à la mort.
+Graduellement, de plus en plus de personnes tentèrent l'approche, comme si le Tombeau Zhu Que avait perdu la restriction qui en empêchait l'accès. Mais après un moment, certains réalisèrent que quelque chose n'allait pas. La situation devint si étrange que plus personne n'osa franchir ce passage. À leurs yeux, ce passage était devenu une bête démoniaque dévorant les cultivateurs. Quiconque y pénétrait était voué à la mort.
 
-Sur la montagne spirituelle au centre du Tombeau de Suzaku, les fissures sur la porte s'accentuèrent et certaines finirent par se rejoindre.
+Sur la montagne spirituelle au centre du Tombeau Zhu Que, les fissures sur la porte s'accentuèrent et certaines finirent par se rejoindre.
 
 Une fois les secousses terminées, les yeux de Yun Quezi s'illuminèrent alors qu'il fixait la porte. Il activa l'énergie spirituelle céleste et agita sa main droite. Une immense empreinte de main apparut soudainement pour frapper la porte.
 

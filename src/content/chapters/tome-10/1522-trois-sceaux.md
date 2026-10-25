@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1522 - Three Seals!"
 slug: trois-sceaux
 ---
-Des années plus tard, un cultivateur ayant participé à la première bataille de la Mer des Nuages passa d'un faible niveau de Scruteur du Nirvana à celui de cultivateur du Premier Ciel du Fléau Céleste. Il était désormais l'Ancien principal d'une petite secte dans la Mer des Nuages.
+Des années plus tard, un cultivateur ayant participé à la première bataille de la Mer Yun passa d'un faible niveau de Scruteur du Nirvana à celui de cultivateur du Premier Ciel du Fléau Céleste. Il était désormais l'Ancien principal d'une petite secte dans la Mer Yun.
 
 Il était qualifié pour enseigner le Dao et, lors de l'une de ses conférences, un disciple lui demanda ce qu'était la gloire!
 
@@ -18,13 +18,13 @@ Il répondit ainsi:
 
 « À cet instant, la gloire n'est qu'une illusion. Peu de gens peuvent être habités par la gloire face à la mort... Mais autrefois, un homme prononça une phrase qui changea tout... Il nous fit connaître ce qu'était la véritable gloire... Je me souviens encore de cette phrase, c'est quelque chose que je n'oublierai jamais. Chaque fois que j'y pense, j'ai l'impression d'être revenu sur les lieux et mon sang se met à bouillir... »
 
-Les yeux de Wang Lin étaient injectés de sang alors qu'il reculait. Il avait tout vu, la folie des cultivateurs de la Mer des Nuages. Il voyait des visages se remémorer le passé avec nostalgie et ressentait une aura indescriptible.
+Les yeux de Wang Lin étaient injectés de sang alors qu'il reculait. Il avait tout vu, la folie des cultivateurs de la Mer Yun. Il voyait des visages se remémorer le passé avec nostalgie et ressentait une aura indescriptible.
 
 « Tuez! Tuez! Tuez! Tuez! » Wang Lin fit soudain volte-face et chargea dans l'armée ennemie. Il leva la main gauche et une flamme monstrueuse jaillit vers l'avant. Tous les cultivateurs du Royaume Extérieur qui barraient son chemin périrent!
 
 Il agita la main droite et le tonnerre gronda à travers le monde. Un tonnerre incessant dévora les cultivateurs du Royaume Extérieur!
 
-Son environnement était saturé de cultivateurs du Royaume Extérieur. Wang Lin s'était détaché des troupes de la Mer des Nuages pour plonger au cœur de l'armée ennemie. Ses yeux étaient rouges de sang à force de tuer; il ne savait plus combien d'ennemis il avait abattus!
+Son environnement était saturé de cultivateurs du Royaume Extérieur. Wang Lin s'était détaché des troupes de la Mer Yun pour plonger au cœur de l'armée ennemie. Ses yeux étaient rouges de sang à force de tuer; il ne savait plus combien d'ennemis il avait abattus!
 
 Il savait seulement que tous les cultivateurs autour de lui étaient ses adversaires!
 
@@ -34,11 +34,11 @@ Une lumière sanglante jaillit, et l'épée de sang enveloppa Wang Lin, fauchant
 
 Ces trois cultivateurs flottaient dans les airs, disposés en triangle. Leurs mains formèrent des sceaux et ils commencèrent à incanter!
 
-« En tant que descendant du Clan de l'Extermination des Sceaux, j'offre ma vie pour invoquer le sortilège du clan afin de sceller toute son énergie originelle! Scellement! »
+« En tant que descendant du Clan Feng Mie, j'offre ma vie pour invoquer le sortilège du clan afin de sceller toute son énergie originelle! Scellement! »
 
-« En tant que descendant du Clan de l'Extermination des Sceaux, j'offre ma vie pour invoquer le sortilège du clan afin de sceller toute sa vitalité! Scellement! »
+« En tant que descendant du Clan Feng Mie, j'offre ma vie pour invoquer le sortilège du clan afin de sceller toute sa vitalité! Scellement! »
 
-« En tant que descendant du Clan de l'Extermination des Sceaux, j'offre ma vie pour invoquer le sortilège du clan afin de sceller toute sa force physique! Scellement! »
+« En tant que descendant du Clan Feng Mie, j'offre ma vie pour invoquer le sortilège du clan afin de sceller toute sa force physique! Scellement! »
 
 Alors que trois voix résonnaient simultanément, trois rayons de lumière jaillirent de leurs sourcils. Ces lumières portaient une pression infinie et foncèrent sur Wang Lin!
 
@@ -48,9 +48,9 @@ Il n'y avait aucune technique complexe, tout résidait dans le nombre d'envahiss
 
 Sur ce champ de bataille, tous les sorts devenaient rudimentaires: il ne fallait que tuer, tuer et encore tuer!
 
-Les trois sceaux du Clan de l'Extermination des Sceaux hurlèrent à travers l'espace et percutèrent instantanément Wang Lin. Les sceaux de ce clan étaient irrésistibles!
+Les trois sceaux du Clan Feng Mie hurlèrent à travers l'espace et percutèrent instantanément Wang Lin. Les sceaux de ce clan étaient irrésistibles!
 
-Si leurs sceaux pouvaient être stoppés, le Clan de l'Extermination des Sceaux ne compterait pas parmi les étranges clans des temps antiques!
+Si leurs sceaux pouvaient être stoppés, le Clan Feng Mie ne compterait pas parmi les étranges clans des temps antiques!
 
 Wang Lin poussa un rugissement. À l'instant où les trois sceaux arrivèrent, il projeta un coup de poing de la main droite. Le coup fendit l'air dans un hurlement et un immense poing fantomatique apparut. Il traversa les sceaux sans les affecter. Au moment précis où les trois sceaux atteignirent Wang Lin, le poing fantomatique percuta les trois figures violettes!
 
@@ -84,7 +84,7 @@ Wang Lin ayant perdu toute force, son corps ne pouvait plus flotter et commença
 
 Dans un fracas de tonnerre, Wang Lin fut frappé par d'innombrables objets précieux. Bien qu'il n'ait plus sa culture, son corps restait puissant. Sous l'impact de ces assauts, il cracha du sang!
 
-« Clan de l'Extermination des Sceaux! » rugit Wang Lin alors que son énergie originelle scellée, sa vitalité et son pouvoir de Dieu Ancien tentaient de jaillir des sceaux pour briser l'emprise!
+« Clan Feng Mie! » rugit Wang Lin alors que son énergie originelle scellée, sa vitalité et son pouvoir de Dieu Ancien tentaient de jaillir des sceaux pour briser l'emprise!
 
 Les grondements continuèrent tandis que des milliers d'épées volantes s'abattaient sur lui. Des bruits de craquements retentirent et Wang Lin cracha à nouveau du sang, mais un éclair de froideur passa dans ses yeux!
 
@@ -108,9 +108,9 @@ Sous ce bombardement incessant, les blessures de Wang Lin se multipliaient, mais
 
 « Quel genre de corps possède-t-il? C'est terrifiant! »
 
-Non seulement les cultivateurs du Royaume Extérieur étaient stupéfaits, mais ceux de la Mer des Nuages l'étaient tout autant. En revoyant cette scène si choquante, ils se remémorèrent l'identité de Wang Lin!
+Non seulement les cultivateurs du Royaume Extérieur étaient stupéfaits, mais ceux de la Mer Yun l'étaient tout autant. En revoyant cette scène si choquante, ils se remémorèrent l'identité de Wang Lin!
 
-À cet instant, tous les cultivateurs de la Mer des Nuages furent pris d'une frénésie folle. Ils voulaient se précipiter pour protéger Wang Lin!
+À cet instant, tous les cultivateurs de la Mer Yun furent pris d'une frénésie folle. Ils voulaient se précipiter pour protéger Wang Lin!
 
 La force physique de Wang Lin ne fit pas que choquer le Royaume Extérieur; elle intensifia leur soif de sang. Chacun utilisa toute sa culture pour lancer ses sorts les plus puissants. Le domaine stellaire entier en fut ébranlé!
 

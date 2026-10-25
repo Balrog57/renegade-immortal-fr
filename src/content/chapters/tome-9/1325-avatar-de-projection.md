@@ -34,19 +34,19 @@ Le visage de la femme était pâle et une intention meurtrière remplissait ses 
 
 C'était là sa conjecture. Pour la confirmer, il n'avait pas cherché à fuir, mais avait décidé de combattre la femme en blanc! Si cette personne était réellement une cultivatrice du troisième pas, même en utilisant la Déformation Spatiale, il lui serait difficile de s'échapper. En revanche, si elle ne l'était pas, alors lui, Wang Lin, n'était pas non plus quelqu'un que l'on pouvait provoquer impunément!
 
-« Tu n'es qu'un simple avatar de projection sans corps physique. Tu voulais absorber ma "divinité" et tu as même utilisé une illusion pour prendre l'apparence de mon être cher. Pour cela, tu dois mourir! » Wang Lin fit un pas en avant et agita la main après avoir parlé. Le Monde du Vent et de la Pluie se déploya soudainement sur dix mille pieds. Les âmes de combat s'élancèrent des fragments et chargèrent la femme en blanc!
+« Tu n'es qu'un simple avatar de projection sans corps physique. Tu voulais absorber ma "divinité" et tu as même utilisé une illusion pour prendre l'apparence de mon être cher. Pour cela, tu dois mourir! » Wang Lin fit un pas en avant et agita la main après avoir parlé. Le Monde Hu Feng Huan Yu se déploya soudainement sur dix mille pieds. Les âmes de combat s'élancèrent des fragments et chargèrent la femme en blanc!
 
 L'expression de la femme était sombre. Elle devait admettre qu'elle avait sous-estimé les capacités de Wang Lin. Elle ne l'avait rencontré que par accident et pensait avoir un plan infaillible. Cependant, elle n'avait pas imaginé qu'il la remarquerait dès leur première rencontre, ni qu'à leur second affrontement, elle serait en position de faiblesse!
 
-« Malheureusement, mon corps originel ne peut pas venir; sinon... » Une lueur de froideur passa dans ses yeux. Pourtant, à cet instant, elle vit les âmes de combat à l'intérieur du Monde du Vent et de la Pluie, et son expression changea une fois de plus!
+« Malheureusement, mon corps originel ne peut pas venir; sinon... » Une lueur de froideur passa dans ses yeux. Pourtant, à cet instant, elle vit les âmes de combat à l'intérieur du Monde Hu Feng Huan Yu, et son expression changea une fois de plus!
 
 « Ceci... Ceci est... » Tandis qu'elle était stupéfaite, d'innombrables âmes se précipitèrent pour l'encercler. Une aura blanc laiteux les enveloppait alors qu'elles commençaient leur assaut.
 
 Des grondements tonitruants résonnèrent et la femme en blanc recula rapidement. Ses mains formèrent prestement un sceau et elle tendit la main vers le vide. Une lumière noire apparut dans sa paume et scintilla frénétiquement.
 
-« Lumière de Destruction Spirituelle! » Un éclair d'intention meurtrière traversa son regard lorsqu'elle agita la main. Juste au moment où la lumière noire fonçait sur les âmes de combat, le Monde du Vent et de la Pluie disparut soudainement pour se transformer en une multitude de mondes miniatures entourant chaque âme afin de résister à l'attaque.
+« Lumière de Destruction Spirituelle! » Un éclair d'intention meurtrière traversa son regard lorsqu'elle agita la main. Juste au moment où la lumière noire fonçait sur les âmes de combat, le Monde Hu Feng Huan Yu disparut soudainement pour se transformer en une multitude de mondes miniatures entourant chaque âme afin de résister à l'attaque.
 
-Des grondements tonitruants secouèrent le monde. Les âmes de combat furent contraintes de reculer devant la lumière noire, mais aucune ne fut endommagée. Tous les assauts furent neutralisés par le Monde du Vent et de la Pluie qui les enveloppait.
+Des grondements tonitruants secouèrent le monde. Les âmes de combat furent contraintes de reculer devant la lumière noire, mais aucune ne fut endommagée. Tous les assauts furent neutralisés par le Monde Hu Feng Huan Yu qui les enveloppait.
 
 La femme en blanc continua sa retraite et, en un clin d'œil, elle s'était éloignée de dizaines de milliers de pieds. Wang Lin fit un pas en avant pour la rattraper. Grâce au jade qui la protégeait, elle ne craignait point d'être blessée. Elle leva à nouveau sa main droite et rassembla encore plus de lumière noire pour former une longue épée sombre!
 
@@ -86,4 +86,4 @@ Précisément à ce moment, l'index de la main de jade percuta l'ombre lumineuse
 
 Tandis qu'elle se brisait, des ondes de force réfléchissante jaillirent pour contrer le doigt. Cependant, l'attaque ne fut nullement stoppée et pénétra directement l'ombre lumineuse. Cela provoqua la désintégration complète du Bouclier de Lumière et d'Ombre!
 
-Dès sa destruction, l'énergie frappa le Monde du Vent et de la Pluie entourant le corps de Wang Lin. Le monde trembla violemment et les âmes à l'intérieur hurlèrent. Une aura blanc laiteux jaillit des âmes pour tenter de résister à ce doigt!
+Dès sa destruction, l'énergie frappa le Monde Hu Feng Huan Yu entourant le corps de Wang Lin. Le monde trembla violemment et les âmes à l'intérieur hurlèrent. Une aura blanc laiteux jaillit des âmes pour tenter de résister à ce doigt!

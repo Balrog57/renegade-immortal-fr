@@ -46,7 +46,7 @@ Le regard de Wang Lin s'éclaira tandis qu'il contemplait les environs avec admi
 
 « Quelle restriction puissante. Piéger quelqu'un au sein d'un monde contenu dans une simple goutte de rosée. » Après avoir percé le secret de cet océan, Wang Lin ne se détendit pas pour autant; son expression devint plus grave encore.
 
-« Les restrictions se concentrent généralement sur le piégeage et l'attaque; très peu visent uniquement à emprisonner. Il s'agit de la Grotte de l'Empereur Céleste et, d'après les paroles de l'Ancêtre Sainte du Clan du Tatouage, Qiu Yao, Qing Lin est un être impitoyable. Il est impossible que les restrictions ici ne servent qu'à piéger quelqu'un. » Tout en réfléchissant, il ne put s'empêcher de jeter un œil à son sac de rangement. Avant d'entrer, il avait clairement vu l'avatar de Qing Lin pénétrer dans le cristal jaune de son sac.
+« Les restrictions se concentrent généralement sur le piégeage et l'attaque; très peu visent uniquement à emprisonner. Il s'agit de la Grotte Xian Di et, d'après les paroles de l'Ancêtre Sainte du Clan Fu Wen, Qiu Yao, Qing Lin est un être impitoyable. Il est impossible que les restrictions ici ne servent qu'à piéger quelqu'un. » Tout en réfléchissant, il ne put s'empêcher de jeter un œil à son sac de rangement. Avant d'entrer, il avait clairement vu l'avatar de Qing Lin pénétrer dans le cristal jaune de son sac.
 
 « D'après l'expression de Qiu Yao, ce qu'elle a dit ne semble pas être faux. Cependant, après plus de mille ans de culture, je ne prends généralement pas les paroles d'autrui pour argent comptant. Comme le noir et le blanc: vus séparément, ils sont distincts, mais si on les mélange, le gris apparaît! » Pour Wang Lin, à moins de voir par lui-même ou de découvrir la vérité par sa propre analyse, il pouvait écouter les autres sans jamais les croire totalement.
 
@@ -60,7 +60,7 @@ Bien qu'il se soignât, il ne coupa pas son Sens Divin. Celui-ci se propageait s
 
 Le temps passa lentement et, en un clin d'œil, sept jours s'écoulèrent. Le huitième jour, Wang Lin ouvrit les yeux, une lueur ardente brillant dans son regard.
 
-Il réfléchit un instant. Dans le silence des profondeurs, Wang Lin se remémora tout ce qui s'était passé dans la Grotte de l'Empereur Céleste, comme l'éveil inattendu de l'Oiseau Vermillon qui avait brisé le monde en bouteille. Sa mémoire se fixa sur le parchemin qui était apparu dans la main du Démon Ancien Bei Luo.
+Il réfléchit un instant. Dans le silence des profondeurs, Wang Lin se remémora tout ce qui s'était passé dans la Grotte Xian Di, comme l'éveil inattendu de l'Oiseau Vermillon qui avait brisé le monde en bouteille. Sa mémoire se fixa sur le parchemin qui était apparu dans la main du Démon Ancien Bei Luo.
 
 « Je présume qu'il s'agissait de la Peinture des Montagnes et des Rivières, la Peinture de la Fumée du Désert Solitaire. »
 
@@ -72,11 +72,11 @@ Il réfléchit un instant. Dans le silence des profondeurs, Wang Lin se remémor
 
 « De même pour la jeune fille soupçonnée d'être la Sainte du Vide Brillant. »
 
-Il devait désormais redoubler de prudence dans la Grotte de l'Empereur Céleste. Autrement, il risquait d'attirer sur lui une catastrophe mortelle à cause de l'Éveil de l'Oiseau Vermillon. Wang Lin toucha le tatouage de l'Oiseau Vermillon, l'expression sombre.
+Il devait désormais redoubler de prudence dans la Grotte Xian Di. Autrement, il risquait d'attirer sur lui une catastrophe mortelle à cause de l'Éveil de l'Oiseau Vermillon. Wang Lin toucha le tatouage de l'Oiseau Vermillon, l'expression sombre.
 
 Ce n'est qu'en repensant à ce qui était arrivé à Ta Shan que son visage changea une nouvelle fois.
 
-« Ta Shan... Il était autrefois mon garde céleste. Quel malheur... Cependant, rencontrer l'Ancêtre Sainte du Clan du Tatouage fut sa chance. J'ignore simplement où il se trouve ou s'il se souvient encore de moi. » Wang Lin laissa échapper un soupir. Après avoir pensé à Ta Shan, son esprit revint au gaz vert que Qiu Yao lui avait donné.
+« Ta Shan... Il était autrefois mon garde céleste. Quel malheur... Cependant, rencontrer l'Ancêtre Sainte du Clan Fu Wen fut sa chance. J'ignore simplement où il se trouve ou s'il se souvient encore de moi. » Wang Lin laissa échapper un soupir. Après avoir pensé à Ta Shan, son esprit revint au gaz vert que Qiu Yao lui avait donné.
 
 Wang Lin leva sa main droite et, par la pensée, fit sortir une sphère de gaz vert de sa paume.
 
@@ -86,7 +86,7 @@ L'expression de Wang Lin changea et il fronça progressivement les sourcils. En 
 
 Après un long moment, Wang Lin serra le poing et la sphère se dissipa.
 
-« Tatou Flétri... C'est une création propre au Clan du Tatouage; si un étranger souhaite le fabriquer, il doit obtenir l'aide d'un membre du clan pour l'activer. Son pouvoir se divise principalement en quatre types: le sceau, l'effondrement, l'évasion et la rupture! » Tout en réfléchissant, Wang Lin frappa son sac de rangement, faisant apparaître un talisman jaune orné de runes complexes. Il paraissait très ancien et sa couleur était délavée.
+« Tatou Flétri... C'est une création propre au Clan Fu Wen; si un étranger souhaite le fabriquer, il doit obtenir l'aide d'un membre du clan pour l'activer. Son pouvoir se divise principalement en quatre types: le sceau, l'effondrement, l'évasion et la rupture! » Tout en réfléchissant, Wang Lin frappa son sac de rangement, faisant apparaître un talisman jaune orné de runes complexes. Il paraissait très ancien et sa couleur était délavée.
 
 Wang Lin possédait initialement deux de ces talismans obtenus de Luotian. Il les avait étudiés longuement sans parvenir à comprendre leur usage. La seule fois où il en avait utilisé un, c'était lors de son combat contre un membre de la famille Yao à Luotian.
 
@@ -102,7 +102,7 @@ Un instant plus tard, le talisman s'agita soudainement et un tourbillon noir app
 
 La silhouette vague d'un grand oiseau semblable à un roc se dessina au sein du tourbillon. Cet oiseau était d'un noir absolu, ses yeux semblables à des éclairs. Il traversa le tourbillon une fois et disparut avec lui.
 
-« C'est un Tatou Flétri de type évasion, déjà activé par le Clan du Tatouage! » Les yeux de Wang Lin se plissèrent et il frappa son sac de rangement. Une grande épée en jaillit. C'était l'une des quatre-vingt-dix-neuf épées qu'il avait obtenues du Royaume de la Boucherie.
+« C'est un Tatou Flétri de type évasion, déjà activé par le Clan Fu Wen! » Les yeux de Wang Lin se plissèrent et il frappa son sac de rangement. Une grande épée en jaillit. C'était l'une des quatre-vingt-dix-neuf épées qu'il avait obtenues du Royaume Sha Lu.
 
 Bien qu'il en eût fait exploser plus d'une dizaine, Wang Lin en possédait encore une grande quantité.
 

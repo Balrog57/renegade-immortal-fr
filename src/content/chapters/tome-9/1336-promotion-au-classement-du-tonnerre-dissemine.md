@@ -10,17 +10,17 @@ Le brouillard vert tourbillonnait, d'où jaillissaient des éclairs de tonnerre 
 
 Ils n'osaient nullement s'approcher du brouillard vert, préférant voler au centre du passage, comme craignant qu'une main géante ne surgisse de la brume pour les saisir.
 
-Bien que ce ne fût pas la première fois que Dahong se rendait au Temple du Cristal de Tonnerre, il restait terrifié après avoir pénétré dans le passage et avançait avec prudence. Wang Lin, quant à lui, observait le brouillard verdâtre environnant avec calme.
+Bien que ce ne fût pas la première fois que Dahong se rendait au Temple Lei Jing, il restait terrifié après avoir pénétré dans le passage et avançait avec prudence. Wang Lin, quant à lui, observait le brouillard verdâtre environnant avec calme.
 
 Ce brouillard était terrifiant pour les autres, mais pour Wang Lin, il n'y avait rien à craindre.
 
 « Ce brouillard est très intéressant... » Wang Lin comprit que ce n'était pas réellement du brouillard, mais du tonnerre. Quelqu'un avait utilisé un sort puissant pour amener le tonnerre ici, avant de le broyer pour le transformer en brume. Puis, une technique unique avait été ajoutée pour qu'il agisse comme une formation de protection.
 
-« Ainsi, le tonnerre peut être transformé en brouillard. Le Clan du Tonnerre Dispersé a déjà étudié le tonnerre à ce point... Ils ont métamorphosé le tonnerre en brume, lui conférant une forme immatérielle, modelable à volonté. En termes de protection, l'effet est similaire à mon Monde du Vent et de la Pluie... »
+« Ainsi, le tonnerre peut être transformé en brouillard. Le Clan Shan Lei a déjà étudié le tonnerre à ce point... Ils ont métamorphosé le tonnerre en brume, lui conférant une forme immatérielle, modelable à volonté. En termes de protection, l'effet est similaire à mon Monde Hu Feng Huan Yu... »
 
 « D'une simple pensée, ce brouillard de tonnerre peut se contracter pour former une cage. Les possibilités sont infinies! C'est véritablement merveilleux! » Tout en traversant le passage, il commença à observer la brume avec une attention accrue.
 
-« Le Clan du Tonnerre Dispersé ne s'attendait à aucun intrus, et comme une brèche est ouverte dans ce brouillard, cela revient à exposer son cœur aux yeux de tous... Puisqu'ils sont si accueillants, je ne serai pas poli! » Les yeux de Wang Lin s'illuminèrent; son Sens Divin se propagea dans la brume pour commencer son étude.
+« Le Clan Shan Lei ne s'attendait à aucun intrus, et comme une brèche est ouverte dans ce brouillard, cela revient à exposer son cœur aux yeux de tous... Puisqu'ils sont si accueillants, je ne serai pas poli! » Les yeux de Wang Lin s'illuminèrent; son Sens Divin se propagea dans la brume pour commencer son étude.
 
 Son Sens Divin était si puissant qu'il supprima totalement le brouillard de tonnerre, empêchant celui-ci de lui résister pendant qu'il l'analysait. Si le brouillard n'avait pas été ainsi ouvert, Wang Lin aurait dû être bien plus prudent, et il lui aurait fallu un certain temps pour percer le secret de ce sort.
 
@@ -28,17 +28,17 @@ Cependant, la situation était extrêmement propice. Tandis que son Sens Divin �
 
 Ce sort transformant le tonnerre en brouillard était d'une complexité telle qu'elle laissa même Wang Lin émerveillé.
 
-Une telle prouesse ne s'était jamais produite au sein du Clan du Tonnerre Dispersé, depuis des dizaines de milliers d'années. Ils n'auraient jamais imaginé que quelqu'un puisse simplement pénétrer dans le brouillard et percer l'origine de la technique utilisée pour le créer!
+Une telle prouesse ne s'était jamais produite au sein du Clan Shan Lei, depuis des dizaines de milliers d'années. Ils n'auraient jamais imaginé que quelqu'un puisse simplement pénétrer dans le brouillard et percer l'origine de la technique utilisée pour le créer!
 
 À travers les âges, Wang Lin était le premier!
 
-Le Clan du Tonnerre Dispersé n'aurait jamais cru que quelqu'un puisse franchir le lac de tonnerre pour s'infiltrer dans le clan. C'était impensable. Seuls des cultivateurs de la troisième étape pouvaient y entrer sans être blessés. Personne d'autre ne le pouvait!
+Le Clan Shan Lei n'aurait jamais cru que quelqu'un puisse franchir le lac de tonnerre pour s'infiltrer dans le clan. C'était impensable. Seuls des cultivateurs de la troisième étape pouvaient y entrer sans être blessés. Personne d'autre ne le pouvait!
 
 Seul Wang Lin en était capable. Son âme originelle était un éclair de tonnerre au même niveau d'existence que cet tonnerre éternel. C'était pourquoi il pouvait accomplir ce prodige presque impossible!
 
-Désormais arrivé dans un lieu crucial du Clan du Tonnerre Dispersé, il faisait face au brouillard de tonnerre. Le voile était levé, lui permettant de tout voir clairement, et il venait d'apprendre l'un des sorts secrets du clan: le Sort de Transformation du Tonnerre en Brouillard!
+Désormais arrivé dans un lieu crucial du Clan Shan Lei, il faisait face au brouillard de tonnerre. Le voile était levé, lui permettant de tout voir clairement, et il venait d'apprendre l'un des sorts secrets du clan: le Sort de Transformation du Tonnerre en Brouillard!
 
-Si le Clan du Tonnerre Dispersé l'apprenait, il serait sous le choc et terrifié. Cela dépassait l'entendement!
+Si le Clan Shan Lei l'apprenait, il serait sous le choc et terrifié. Cela dépassait l'entendement!
 
 Le passage dans la brume n'était pas long; il ne fallut qu'environ un demi-bâton d'encens pour le traverser. Bien que le Sens Divin de Wang Lin submerge le brouillard, personne ne remarqua rien. Après tout, le Sens Divin de Wang Lin étant lui aussi fait de tonnerre, utiliser le tonnerre pour comprendre le tonnerre ne laissait aucune faille.
 
@@ -48,13 +48,13 @@ Cette rune était l'essence du Dao du Sort de Transformation du Tonnerre en Brou
 
 Après avoir quitté le passage, une montagne imposante se dressa devant lui. Au sommet trônait un temple extrêmement luxueux, enveloppé d'éclairs. Trois grands caractères marquaient l'entrée:
 
-« Temple du Cristal de Tonnerre! »
+« Temple Lei Jing! »
 
 Des éclats de lumière emplirent la zone. Les cultivateurs sortant du passage volèrent tous vers le temple. Wang Lin et Dahong s'élancèrent également et arrivèrent bientôt devant l'édifice.
 
 « Maître, il y a trois portes dans ce temple: l'est, l'ouest et le sud. La porte est sert à échanger des cristaux de tonnerre, et la porte sud permet d'utiliser ces cristaux pour obtenir des trésors et des pilules du clan. »
 
-« Quant à la dernière porte, celle de l'ouest, seuls les cultivateurs puissants peuvent s'y rendre. C'est là que le clan distribue les missions. Une fois une tâche accomplie, vous pourrez gagner de nombreux cristaux de tonnerre. » Dahong savait que Wang Lin n'était jamais venu au Temple du Cristal de Tonnerre et nourrissait ses propres doutes. Cependant, compte tenu des bénéfices que Wang Lin lui avait accordés, il fit mine de ne rien savoir.
+« Quant à la dernière porte, celle de l'ouest, seuls les cultivateurs puissants peuvent s'y rendre. C'est là que le clan distribue les missions. Une fois une tâche accomplie, vous pourrez gagner de nombreux cristaux de tonnerre. » Dahong savait que Wang Lin n'était jamais venu au Temple Lei Jing et nourrissait ses propres doutes. Cependant, compte tenu des bénéfices que Wang Lin lui avait accordés, il fit mine de ne rien savoir.
 
 Wang Lin connaissait déjà ces informations grâce à la mémoire de Dahong. Il hocha la tête et dit: « J'irai seul. Je te retrouverai quand j'aurai fini. »
 
@@ -64,9 +64,9 @@ Wang Lin ne prêta plus attention à Dahong et détourna le regard du temple fas
 
 Les portes est, sud et ouest menaient toutes à trois espaces distincts. Mais il existait aussi un quatrième espace sans entrée apparente. Le Sens Divin de Wang Lin balaya les lieux et détecta clairement neuf auras en pleine culture.
 
-« Il y a beaucoup de cultivateurs puissants dans le Clan du Tonnerre Dispersé. Sur les neuf auras, cinq sont au stade du Scruteur du Nirvana, trois au stade de Purificateur du Nirvana, et une est même au stade de Briseur du Nirvana! » Wang Lin marcha silencieusement vers la porte est du temple.
+« Il y a beaucoup de cultivateurs puissants dans le Clan Shan Lei. Sur les neuf auras, cinq sont au stade du Scruteur du Nirvana, trois au stade de Purificateur du Nirvana, et une est même au stade de Briseur du Nirvana! » Wang Lin marcha silencieusement vers la porte est du temple.
 
-Le lieu grouillait de membres du Clan du Tonnerre Dispersé. Certains étaient seuls, d'autres en groupe; l'atmosphère était extrêmement animée.
+Le lieu grouillait de membres du Clan Shan Lei. Certains étaient seuls, d'autres en groupe; l'atmosphère était extrêmement animée.
 
 En particulier, une foule de cultivateurs se pressait à la porte est. Ils dissimulaient visiblement leur excitation en s'éloignant rapidement. Il y avait aussi ceux qui, ayant vécu bien trop longtemps, restaient calmes, ne laissant transparaître aucune pensée.
 
@@ -94,11 +94,11 @@ Il jeta nonchalamment le jade dans la mare noire. Des rugissements sourds s'éle
 
 Simultanément, le jade du Classement du Tonnerre Dispersé possédé par chaque membre du clan émit une onde de choc. Cela signifiait que les rangs enregistrés venaient de changer!
 
-Chaque année, durant les trois jours d'ouverture du Temple du Cristal de Tonnerre, des changements radicaux s'opéraient dans le classement. Cependant, les 800 premiers noms changeaient rarement, se contentant parfois de réorganiser leur ordre.
+Chaque année, durant les trois jours d'ouverture du Temple Lei Jing, des changements radicaux s'opéraient dans le classement. Cependant, les 800 premiers noms changeaient rarement, se contentant parfois de réorganiser leur ordre.
 
 Mais en cet instant, le jade du Classement émit une ondulation violente. Cela ne pouvait signifier qu'une chose: une nouvelle personne venait d'intégrer le classement!
 
-Presque tous les cultivateurs du Clan du Tonnerre Dispersé sortirent leur propre jade pour consulter les résultats.
+Presque tous les cultivateurs du Clan Shan Lei sortirent leur propre jade pour consulter les résultats.
 
 La première place était toujours occupée par Maître Spruce, mais son score était passé de 1 900 007 000 à 2 400 009 000!
 
@@ -114,4 +114,4 @@ Au rang 799: Yu Fei, avec 464 000 cristaux de tonnerre, soit seulement 3 000 de 
 
 À cet instant, les rumeurs circulaient sur les treize planètes d'essai. Après tout, il n'y avait que 800 places au classement; dès qu'on y pénétrait, on devenait célèbre!
 
-Le nom de « Yu Fei » fut ainsi gravé dans la mémoire de nombreux membres du Clan du Tonnerre Dispersé.
+Le nom de « Yu Fei » fut ainsi gravé dans la mémoire de nombreux membres du Clan Shan Lei.

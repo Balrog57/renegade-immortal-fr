@@ -40,7 +40,7 @@ Zhu Quezi prit une profonde inspiration. L'expression sombre, il marmonna: « Je
 
 Yun Quezi et la silhouette apparurent lentement quelque part dans le ciel au-dessus du continent Suzaku. La figure demanda: « Pourquoi lui accorder autant de temps? Tuer Zhu Quezi ne devrait pas prendre si longtemps. »
 
-Yun Quezi regarda l'entité et dit: « Au sein du Clan des Immortels Délaissés, en me comptant, il y a trois chamans à neuf feuilles, un chaman à dix feuilles, et toi, un chaman à onze feuilles. Si nous attaquons tous les cinq ensemble, il ne sera pas difficile de tuer Zhu Quezi! »
+Yun Quezi regarda l'entité et dit: « Au sein du Clan Xian Yi, en me comptant, il y a trois chamans à neuf feuilles, un chaman à dix feuilles, et toi, un chaman à onze feuilles. Si nous attaquons tous les cinq ensemble, il ne sera pas difficile de tuer Zhu Quezi! »
 
 « De plus, bien que seuls deux Arbres d'Esprit Ancestraux aient réussi, deux autres chamans à dix feuilles descendront d'ici un mois; avec sept d'entre nous, tuer Zhu Quezi sera encore plus aisé! »
 
@@ -48,13 +48,13 @@ Yun Quezi regarda l'entité et dit: « Au sein du Clan des Immortels Délaissés
 
 La figure réfléchit un instant et dit: « Tu es parmi les cultivateurs depuis trop longtemps et tu en as oublié tes origines. Te souviens-tu encore du nombre de membres de ton clan qui furent sacrifiés pour t'envoyer dans le pays de Suzaku... »
 
-Le regard de Yun Quezi se figea et il ricana: « Premier Ancêtre, je vais vous le dire pour la dernière fois: ne sous-estimez pas Zhu Quezi. Il possède le Cristal de la Planète de Culture. Bien qu'il ait été scellé par la deuxième génération de Suzaku, chaque Suzaku au cours des dizaines de milliers d'années passées a cherché un moyen de briser ce sceau. Le précédent Suzaku avait même trouvé une faille. D'après ce que je sais du Suzaku actuel, si nous le tuons, il détruira certainement le Cristal de la Planète de Culture avant de mourir afin d'anéantir tous les cultivateurs de la planète. À ce moment-là, face à une telle calamité, l'Alliance de Culture enverra sans doute des renforts pour s'en occuper. Pensez-vous que notre Clan des Immortels Délaissés puisse faire face à l'Alliance de Culture? »
+Le regard de Yun Quezi se figea et il ricana: « Premier Ancêtre, je vais vous le dire pour la dernière fois: ne sous-estimez pas Zhu Quezi. Il possède le Cristal de la Planète de Culture. Bien qu'il ait été scellé par la deuxième génération de Suzaku, chaque Suzaku au cours des dizaines de milliers d'années passées a cherché un moyen de briser ce sceau. Le précédent Suzaku avait même trouvé une faille. D'après ce que je sais du Suzaku actuel, si nous le tuons, il détruira certainement le Cristal de la Planète de Culture avant de mourir afin d'anéantir tous les cultivateurs de la planète. À ce moment-là, face à une telle calamité, l'Alliance Xiu Zhen enverra sans doute des renforts pour s'en occuper. Pensez-vous que notre Clan Xian Yi puisse faire face à l'Alliance Xiu Zhen? »
 
 La figure resta silencieuse.
 
 « Si les choses s'étaient déroulées selon mon plan, nous aurions pu élever un cultivateur pour devenir le prochain Suzaku et le contrôler peu à peu dans l'ombre, ce qui permettrait à notre clan de continuer d'exister. C'était la méthode idéale; cependant, l'Ancêtre Originel a été trop impatient, il vous a tous fait surgir trop tôt et a ainsi anéanti tous mes plans. » L'humeur d'Yun Quezi était très sombre.
 
-« Même mon identité a dû être révélée par vous tous pour prouver que je suis un membre du Clan des Immortels Délaissés. À mes yeux, cela fut inutile! »
+« Même mon identité a dû être révélée par vous tous pour prouver que je suis un membre du Clan Xian Yi. À mes yeux, cela fut inutile! »
 
 Yun Quezi reprit lentement: « Premier Ancêtre, si vous voulez que notre clan perdure, nous devons mettre la main sur le Cristal de la Planète de Culture et permettre à l'un de mes candidats de devenir le prochain Suzaku, afin de contrôler indirectement tous les cultivateurs de la planète. »
 
@@ -64,11 +64,11 @@ Yun Quezi reprit lentement: « Premier Ancêtre, si vous voulez que notre clan p
 
 « C'est pourquoi j'ai choisi mon deuxième candidat, Zi Xin. Si Zhu Quezi réussissait sa possession, cela finirait par servir cette jeune fille. Même si je me trompais et que Zhu Quezi préparait réellement Qian Feng pour être le prochain Suzaku, une fois celui-ci devenu Suzaku, cela servirait forcément Zi Xin. »
 
-« Le troisième que j'ai choisi est Zhou Wutai. Cet enfant possède la lignée du Dragon Vert. Puisque le Clan du Dragon Vert nous a aidés lors de la guerre il y a fort longtemps, je l'ai retenu comme candidat. C'est d'ailleurs pour cela que je me suis rendu à l'Alliance des Quatre Sectes, et il est mon contrepoids face à Liu Mei. »
+« Le troisième que j'ai choisi est Zhou Wutai. Cet enfant possède la lignée du Dragon Vert. Puisque le Clan Qing Long nous a aidés lors de la guerre il y a fort longtemps, je l'ai retenu comme candidat. C'est d'ailleurs pour cela que je me suis rendu à l'Alliance des Quatre Sectes, et il est mon contrepoids face à Liu Mei. »
 
 « Cependant, ce qui est fascinant, c'est qu'alors que j'étais à l'Alliance des Quatre Sectes, j'ai rencontré un cultivateur nommé Wang Lin. Son talent était ordinaire et il n'avait rien de spécial, et pourtant, il a été capable de comprendre le Domaine de la Vie et de la Mort. Sur un coup de tête, je l'ai fait devenir mon quatrième candidat. »
 
-« Au départ, je ne prêtais que peu d'attention à cet homme, mais son évolution ultérieure m'a profondément stupéfié. Au Royaume Céleste, il a tranché un bras à Hongdie. À son retour, son niveau de culture avait grimpé en flèche et il avait même attiré l'attention de Zhu Quezi. Du Tian, de la Secte de l'Affinement de l'Âme, l'a lui aussi considéré comme son disciple direct et lui a transmis l'Étendard de l'Âme au Milliard d'Âmes. »
+« Au départ, je ne prêtais que peu d'attention à cet homme, mais son évolution ultérieure m'a profondément stupéfié. Au Royaume Céleste, il a tranché un bras à Hongdie. À son retour, son niveau de culture avait grimpé en flèche et il avait même attiré l'attention de Zhu Quezi. Du Tian, de la Secte Lian Hun, l'a lui aussi considéré comme son disciple direct et lui a transmis l'Étendard de l'Âme au Milliard d'Âmes. »
 
 « Cet homme possède également trop de secrets; parfois, même moi, je ne parviens pas à le percer. Ainsi, finalement, je l'ai désigné comme exécutant de mon plan Suzaku! »
 
@@ -76,7 +76,7 @@ Yun Quezi reprit lentement: « Premier Ancêtre, si vous voulez que notre clan p
 
 La figure réfléchit un instant avant de lever la tête. Elle fixa froidement Yun Quezi et dit: « Cette explication est encore insuffisante! »
 
-Le regard d'Yun Quezi devint sérieux: « J'ignore dans quelle mesure le Cristal de la Planète de Culture affectera notre Clan des Immortels Délaissés. Si cela arrive, alors tous les membres du clan nés au cours des dizaines de milliers d'années passées mourront avec la destruction du cristal, vous et moi compris. Cette explication est-elle suffisante? »
+Le regard d'Yun Quezi devint sérieux: « J'ignore dans quelle mesure le Cristal de la Planète de Culture affectera notre Clan Xian Yi. Si cela arrive, alors tous les membres du clan nés au cours des dizaines de milliers d'années passées mourront avec la destruction du cristal, vous et moi compris. Cette explication est-elle suffisante? »
 
 La figure réfléchit à nouveau, puis poussa un soupir: « Qui était le premier candidat que tu as choisi? »
 

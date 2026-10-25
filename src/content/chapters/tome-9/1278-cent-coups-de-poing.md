@@ -86,7 +86,7 @@ Après cet assaut, du sang noir s'échappa du coin de sa bouche et il se mit à 
 
 « J'ai rejoint la Secte Heng Yue... J'ai tué Teng Li! » Le 22e coup partit, et la brume s'arrêta brusquement.
 
-« Je me suis enfui vers la Mer des Démons et j'y ai atteint la Formation du Noyau! » Le 23e coup! La brume se rétracta en poussant un rugissement strident.
+« Je me suis enfui vers la Mer Xiu Mo et j'y ai atteint la Formation du Noyau! » Le 23e coup! La brume se rétracta en poussant un rugissement strident.
 
 « J'ai atteint le stade de l'Âme Naissante, j'ai anéanti la famille Teng, j'ai ébranlé la planète Suzaku et je suis devenu le disciple de Tian Yunzi! » Wang Lin continuait d'avancer en murmurant, riant presque de lui-même. Ses coups bombardaient avec une frénésie folle. Les 24e, 25e et 26e coups! La brume explosa et fut repoussée de trente pieds!
 

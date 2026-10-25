@@ -14,11 +14,11 @@ Ce vortex gigantesque remuait toute l'énergie originelle et le brouillard stell
 
 1 500 kilomètres, 2 500 kilomètres, 5 000 kilomètres, 15 000 kilomètres… 50 000 kilomètres, 150 000 kilomètres… 500 000 kilomètres!!
 
-Le brouillard et l'énergie originelle dans un rayon de 500 000 kilomètres autour du continent de Mo Luo devinrent fous et se précipitèrent vers le continent, jusque dans les profondeurs de la Secte de l'Origine!
+Le brouillard et l'énergie originelle dans un rayon de 500 000 kilomètres autour du continent de Mo Luo devinrent fous et se précipitèrent vers le continent, jusque dans les profondeurs de la Secte Gui Yuan!
 
-Très peu de personnes dans la Mer des Nuages savaient d'où venait le brouillard stellaire. C'était comme si ce brouillard avait toujours été là. Si l'on remontait le temps, on découvrirait que ce brouillard existait déjà avant l'effondrement du Royaume Céleste, alors que l'Ancien Royaume Céleste était encore en place.
+Très peu de personnes dans la Mer Yun savaient d'où venait le brouillard stellaire. C'était comme si ce brouillard avait toujours été là. Si l'on remontait le temps, on découvrirait que ce brouillard existait déjà avant l'effondrement du Royaume Céleste, alors que l'Ancien Royaume Céleste était encore en place.
 
-Ce qu'était exactement le brouillard stellaire était une question difficile à expliquer pour les cultivateurs de la Mer des Nuages. Ils savaient seulement que c'était à cause de ce brouillard que la Mer des Nuages était peuplée de bêtes féroces!
+Ce qu'était exactement le brouillard stellaire était une question difficile à expliquer pour les cultivateurs de la Mer Yun. Ils savaient seulement que c'était à cause de ce brouillard que la Mer Yun était peuplée de bêtes féroces!
 
 Wang Lin ignorait la nature du brouillard stellaire, mais alors qu'il fusionnait avec ses os en cours de reformation, il ressentit une étrange sensation. Cependant, il ne parvint pas à en comprendre la raison.
 
@@ -32,7 +32,7 @@ Pourtant, dès que cette chair réapparut, elle s'effondra immédiatement. La ca
 
 Wang Lin s'était déjà préparé à ce phénomène. Dès l'apparition de la calamité charnelle, l'avatar essuya le sang au coin de sa bouche et ouvrit son espace de stockage.
 
-Des cristaux de sang de la taille d'un poing, obtenus dans la Terre de l'Ancien Dieu, s'envolèrent. Il en avait utilisé certains pour aider le corps original à conserver un reste de vitalité, et il comptait utiliser les autres ici même.
+Des cristaux de sang de la taille d'un poing, obtenus dans la Terre Gu Shen, s'envolèrent. Il en avait utilisé certains pour aider le corps original à conserver un reste de vitalité, et il comptait utiliser les autres ici même.
 
 À cet instant, ces cristaux de sang volèrent et se posèrent sur les os de Wang Lin. Dès qu'ils touchèrent leur cible, ils envahirent son squelette.
 
@@ -40,7 +40,7 @@ Au moment où Wang Lin sortit les cristaux de sang, toutes les bêtes féroces e
 
 Alors que les rugissements redoublaient, ces bêtes féroces changèrent immédiatement de direction et chargèrent le continent de Mo Luo. Parmi elles se trouvaient des bêtes de rangs 5, 6 et 7; toutes semblaient avoir perdu la raison dans leur course effrénée.
 
-Les cultivateurs de la Secte de l'Origine furent stupéfaits par ces événements, réveillés en sursaut par la charge des bêtes féroces.
+Les cultivateurs de la Secte Gui Yuan furent stupéfaits par ces événements, réveillés en sursaut par la charge des bêtes féroces.
 
 Une fois que le corps original de Wang Lin eut absorbé les cristaux de sang, des lignes de sang apparurent sur ses os. Tandis que l'énergie originelle et le brouillard stellaire affluaient, la chair commença à se former le long de ces tracés écarlates.
 

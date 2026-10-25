@@ -24,13 +24,13 @@ Li Yuan, qui ne s'attendait pas à partir si tôt, demanda: « Mon frère ne veu
 
 Wang Lin secoua la tête. Il scruta le vide et dit: « Je n'y vais pas! » Le souvenir du vortex aux cinq couleurs dans le passage fit naître un mauvais pressentiment dans son cœur.
 
-De plus, il avait obtenu le Pavillon des Collections, et l'excitation ne l'avait pas encore quitté. Après avoir acquis un tel trésor, sa seule priorité était de s'éloigner au plus vite.
+De plus, il avait obtenu le Pavillon Cang Jue, et l'excitation ne l'avait pas encore quitté. Après avoir acquis un tel trésor, sa seule priorité était de s'éloigner au plus vite.
 
 Après tout, ce pavillon était d'une importance capitale pour les quatre grandes familles, tant pour leur réputation que pour la valeur réelle du trésor. Dès qu'ils réaliseraient sa disparition, ils lanceraient immédiatement une traque massive contre Wang Lin.
 
 « Le fragment est déjà scellé, les chances que l'on découvre ce qui s'y est passé sont donc minimes! »
 
-Il n'avait pas révélé à Li Yuan qu'il avait obtenu le Pavillon des Collections. Cette affaire était bien trop cruciale. Compte tenu de la prudence de Wang Lin, à moins d'être absolument certain, il ne le dirait à personne.
+Il n'avait pas révélé à Li Yuan qu'il avait obtenu le Pavillon Cang Jue. Cette affaire était bien trop cruciale. Compte tenu de la prudence de Wang Lin, à moins d'être absolument certain, il ne le dirait à personne.
 
 Li Yuan réfléchit un instant puis hocha la tête: « Très bien. Il faut se trouver en un lieu précis pour quitter le Royaume Céleste du Tonnerre. Ce n'est qu'à la porte céleste que nous pourrons utiliser le fourneau de tonnerre pour notre retour. »
 

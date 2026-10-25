@@ -35,7 +35,7 @@ Li Muwan est au départ une jeune fille ordinaire, craignant d'être utilisée c
 
 Li Muwan rencontra Wang Lin pour la première fois dans le donghua lors d'une compétition entre les sectes Heng Yue et Xuan Dao dans le Pays de Zhao, où elle et son frère aîné Li Qiqing s'étaient rendus en tant qu'invités, disciples choisis de la Secte Luo He. Elle y vit Wang Lin intercéder pour les invités et affronter Zhou Peng, un disciple choisi de la Secte Xuan Dao, qu'il faillit tuer. Ce duel laissa une forte impression sur Li Muwan, qui nota le talent caché et la sincérité de Wang Lin.
 
-Dans le roman, Wang Lin la rencontra pour la première fois alors qu'il se trouvait encore dans le corps de Ma Liang. Leur véritable relation débuta lorsque Li Muwan fut poursuivie par un ancien de la Secte de Double Cultivation Xuan Wu pour sa Pilule du Ciel Lointain (Distant Heaven Pill). Wang Lin la sauva et s'enfuit avec elle dans la Mer des Démons.
+Dans le roman, Wang Lin la rencontra pour la première fois alors qu'il se trouvait encore dans le corps de Ma Liang. Leur véritable relation débuta lorsque Li Muwan fut poursuivie par un ancien de la Secte de Double Cultivation Xuan Wu pour sa Pilule du Ciel Lointain (Distant Heaven Pill). Wang Lin la sauva et s'enfuit avec elle dans la Mer Xiu Mo.
 
 ## Relations
 

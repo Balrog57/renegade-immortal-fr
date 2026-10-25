@@ -88,9 +88,9 @@ L'expression de Ren Tao était aussi sombre que l'eau. Il pouvait clairement sen
 
 Les deux autres futurs candidats au titre de Divin Empereur réfléchissaient en silence.
 
-« Senior Frère Ren, j'ai participé à la bataille de la Terre des Esprits Démoniaques il y a trois ans... Ce Wang Lin est quelqu'un que je ne provoquerai pas! » Liao Yun leva la tête, le regard ferme. Il lança un regard teinté de moquerie à Ren Tao.
+« Senior Frère Ren, j'ai participé à la bataille de la Terre Yao Ling il y a trois ans... Ce Wang Lin est quelqu'un que je ne provoquerai pas! » Liao Yun leva la tête, le regard ferme. Il lança un regard teinté de moquerie à Ren Tao.
 
-Liao Yun était à l'origine une personne arrogante dotée d'un talent exceptionnel. Au sein de la Secte Divine de l'Oiseau Vermillon, son prestige n'était surpassé que par celui de Ren Tao. S'il n'était pas convaincu par Wang Lin au début, depuis la bataille de la Terre des Esprits Démoniaques, chaque pensée concernant ce dernier le faisait suer à froid.
+Liao Yun était à l'origine une personne arrogante dotée d'un talent exceptionnel. Au sein de la Secte Divine de l'Oiseau Vermillon, son prestige n'était surpassé que par celui de Ren Tao. S'il n'était pas convaincu par Wang Lin au début, depuis la bataille de la Terre Yao Ling, chaque pensée concernant ce dernier le faisait suer à froid.
 
 Il était passé d'un scepticisme teinté d'arrogance à une peur profonde en un instant. Durant ces trois années, il avait appris à connaître Wang Lin par l'intermédiaire de Da Tou et avait même fini par éprouver une admiration fervente pour lui!
 
@@ -132,4 +132,4 @@ Ce regard portait également une puissance de tonnerre extrême. Partout où Wan
 
 Seul Ren Tao réprima la panique qui lui nouait le cœur, son visage devenant plus sombre encore.
 
-C'est à ce moment précis que l'Alliance, Luotian, la Secte des Cadavres et les diverses forces composées des vestiges de l'Alliance furent toutes alertées!
+C'est à ce moment précis que l'Alliance, Luotian, la Secte Shi Yin et les diverses forces composées des vestiges de l'Alliance furent toutes alertées!

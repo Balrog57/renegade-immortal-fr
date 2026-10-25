@@ -20,7 +20,7 @@ Wang Lin avait clairement percé la ruse de Liu Qingyun. Ayant grandi dans le Sy
 
 Lorsque Liu Qingyun avait sorti le cadavre de feu, Wang Lin avait déjà pressenti une anomalie et avait activé le fourneau de l'Ancien Dieu. Au moment où le cadavre de feu s'était effondré, il avait pu tout éviter avec aisance grâce au fourneau.
 
-Wang Lin avait ses raisons pour laisser cette opportunité à Liu Qingyun. Il savait qu'en tant que Vice-Maître de la Salle du Ressentiment de la Secte des Cadavres, Liu Qingyun devait posséder des moyens de survie.
+Wang Lin avait ses raisons pour laisser cette opportunité à Liu Qingyun. Il savait qu'en tant que Vice-Maître de la Salle du Ressentiment de la Secte Shi Yin, Liu Qingyun devait posséder des moyens de survie.
 
 Si Wang Lin s'était contenté d'attaquer, il aurait été difficile de tuer cet homme sans subir de blessures au plus fort du combat. Ainsi, Wang Lin avait simplement attendu que Liu Qingyun utilise son atout pour pouvoir l'esquiver facilement. Le moment où Liu Qingyun déploierait sa force ultime serait aussi le moment de sa mort!
 
@@ -74,7 +74,7 @@ Ta Shan et le garçon à la grosse tête suivirent Wang Lin. Lei Ji tenait la pe
 
 Simultanément, le cœur lui serrait; il pointa sa poitrine de la main droite. Le sang jaillit de son cœur pour remplir la petite fiole.
 
-Wang Lin avait sauvé cet ancêtre du Clan des Démons Géants pour la trace d'aura de l'Ancien Dieu présente dans son sang. Bien que le niveau de culture de Wang Lin fût plus élevé lors de son retour dans le Système Stellaire de l'Alliance, le danger qu'il ressentait augmentait également.
+Wang Lin avait sauvé cet ancêtre du Clan Ju Mo pour la trace d'aura de l'Ancien Dieu présente dans son sang. Bien que le niveau de culture de Wang Lin fût plus élevé lors de son retour dans le Système Stellaire de l'Alliance, le danger qu'il ressentait augmentait également.
 
 Il devait affiner ses sorts sur la planète Suzaku, et les premiers seraient ses sorts de l'Ancien Dieu! Grâce à ce sang, Wang Lin serait capable d'utiliser certains de ces pouvoirs anciens.
 
@@ -100,4 +100,4 @@ Le jeune homme recula précipitamment de plusieurs centaines de pieds pour ne pa
 
 Un autre vieil homme sourit. « En moins de deux mois, ils n'ont réussi à prendre que 60 %. Les cultivateurs de Luotian sont bien rigoureux. »
 
-Le dernier vieil homme dit calmement: « Voyons comment le plan de l'Alliance de Culture va se dérouler. Il devrait donner une leçon profonde aux cultivateurs de Luotian. Malheureusement, l'Empereur Sacré n'est pas présent, sinon ma Planète du Saint Vermillon pourrait également en tirer de grands bénéfices. »
+Le dernier vieil homme dit calmement: « Voyons comment le plan de l'Alliance Xiu Zhen va se dérouler. Il devrait donner une leçon profonde aux cultivateurs de Luotian. Malheureusement, l'Empereur Sacré n'est pas présent, sinon ma Planète du Saint Vermillon pourrait également en tirer de grands bénéfices. »

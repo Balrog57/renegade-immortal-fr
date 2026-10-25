@@ -22,11 +22,11 @@ Sur ces mots, le vieux cultivateur sembla absorber une trace du pouvoir de cette
 
 Après avoir renvoyé Wang Lin, les yeux du vieux cultivateur brillèrent d'une lueur étrange et il marmonna: « Clan Fu... Ce vieil homme finira par ouvrir la dernière couche! »
 
-Le corps de Wang Lin apparut au sommet d'une montagne sur la planète Suzaku, le visage pâle. Il regarda en direction du Clan des Immortels Délaissés et commença à réfléchir.
+Le corps de Wang Lin apparut au sommet d'une montagne sur la planète Suzaku, le visage pâle. Il regarda en direction du Clan Xian Yi et commença à réfléchir.
 
 « Le niveau de culture de ce vieux cultivateur est extrêmement élevé. Je crains qu'il ne soit un vieux monstre au même niveau que Maître Yan Leizi, voire plus puissant encore. Quel est donc le but de cet homme en restant si longtemps sur la planète Suzaku? »
 
-« Tout d'abord, je peux confirmer que l'ouverture des deux dernières couches du Clan des Immortels Délaissés est l'un de ses objectifs. Je ne sais juste pas s'il a connaissance de la Terre des Dieux Anciens... » Les yeux de Wang Lin s'illuminèrent, puis il partit rapidement.
+« Tout d'abord, je peux confirmer que l'ouverture des deux dernières couches du Clan Xian Yi est l'un de ses objectifs. Je ne sais juste pas s'il a connaissance de la Terre Gu Shen... » Les yeux de Wang Lin s'illuminèrent, puis il partit rapidement.
 
 « L'identité de cet homme est mystérieuse, mais il appartient à la branche de l'Oiseau Vermillon des Quatre Sectes Divines. Cependant, ses paroles recelaient un sens plus profond... Peu importe, les indices sont trop rares pour spéculer davantage. Il est temps de partir. »
 
@@ -38,23 +38,23 @@ Au même moment, Ta Shan, le garçon à grosse tête et Lei Ji s'envolèrent rap
 
 Zhou Wutai se tenait sur un pic, le regard perdu vers l'horizon. Son expression était sombre et, après un long moment, il partit à son tour.
 
-De même, à la frontière entre la Mer des Démons et le pays de Huo Fen, Li Qiqing leva les yeux vers le ciel. Après un long silence, il murmura: « Petite sœur... Le suivre est ton choix. Ton frère te bénit... »
+De même, à la frontière entre la Mer Xiu Mo et le pays de Huo Fen, Li Qiqing leva les yeux vers le ciel. Après un long silence, il murmura: « Petite sœur... Le suivre est ton choix. Ton frère te bénit... »
 
-Dans la Secte du Ciel Nuageux, Tie Yan s'éveilla comme s'il avait pressenti quelque chose et leva les yeux. Il savait qu'après le départ de Wang Lin cette fois, il s'écoulerait probablement une très longue période avant son retour.
+Dans la Secte Yun Tian, Tie Yan s'éveilla comme s'il avait pressenti quelque chose et leva les yeux. Il savait qu'après le départ de Wang Lin cette fois, il s'écoulerait probablement une très longue période avant son retour.
 
 La silhouette de Wang Lin apparut dans l'espace au-delà de la planète Suzaku, et un instant plus tard, Ta Shan et ses compagnons rejoignirent leur maître. Ta Shan fit un pas et se fondit dans l'ombre de Wang Lin. Quant au garçon à grosse tête, il s'était un peu rétabli et se tenait là, respectueux.
 
 Les yeux de Lei Ji tournèrent et, sans attendre les ordres de Wang Lin, des craquements retentirent dans son corps. En un instant, il grandit pour devenir un géant de plusieurs milliers de pieds de haut, dégageant une pression écrasante qui enveloppa la zone.
 
-La raison pour laquelle de nombreux cultivateurs puissants aimaient utiliser les membres du Clan des Démons Géants comme montures résidait dans leur corps robuste et leur aura imposante. Ils étaient comparables à presque toutes les bêtes démoniaques!
+La raison pour laquelle de nombreux cultivateurs puissants aimaient utiliser les membres du Clan Ju Mo comme montures résidait dans leur corps robuste et leur aura imposante. Ils étaient comparables à presque toutes les bêtes démoniaques!
 
-De plus, l'aptitude de la lignée du Clan des Démons Géants les rendait extrêmement prisés par les puissants cultivateurs!
+De plus, l'aptitude de la lignée du Clan Ju Mo les rendait extrêmement prisés par les puissants cultivateurs!
 
 Le corps de Lei Ji trembla et il s'agenouilla. Une voix tonnante jaillit de sa bouche:
 
 « Maître, Lei Ji est entièrement disposé à devenir votre monture! »
 
-Contemplant ce corps gigantesque, Wang Lin entra un instant en transe. Monter un membre du Clan des Démons Géants était effectivement une chose très spectaculaire. Quiconque verrait cela serait ébranlé!
+Contemplant ce corps gigantesque, Wang Lin entra un instant en transe. Monter un membre du Clan Ju Mo était effectivement une chose très spectaculaire. Quiconque verrait cela serait ébranlé!
 
 Un sourire apparut sur les lèvres de Wang Lin. D'un pas, il se posa sur le dos de Lei Ji, suivi rapidement par le garçon à grosse tête. Ce dernier n'était pas grand et, bien que sa tête soit massive et féroce, lorsqu'il se tenait derrière Wang Lin, son statut de serviteur était évident.
 
@@ -82,7 +82,7 @@ Cette aura était imprégnée d'une odeur de sang qui se propagea pour former un
 
 Dans ce rugissement, une voix froide et impitoyable s'éleva:
 
-« Domaine de la Boucherie de l'Alliance de Culture, Tueur Yu Fei, venu réclamer votre tête, Xu Mu! » Au moment où cette voix résonna, le rocher sous lui accéléra encore. Il allait si vite que des flammes rouges apparurent sur la pierre à cause de la friction, fonçant droit sur Lei Ji.
+« Domaine Sha Yu de l'Alliance Xiu Zhen, Tueur Yu Fei, venu réclamer votre tête, Xu Mu! » Au moment où cette voix résonna, le rocher sous lui accéléra encore. Il allait si vite que des flammes rouges apparurent sur la pierre à cause de la friction, fonçant droit sur Lei Ji.
 
 L'expression de Lei Ji devint paniquée et il s'apprêta à esquiver. À cet instant, le garçon à grosse tête regarda Wang Lin, serra les dents et s'avança. Ses deux mains tracèrent un sceau et l'énergie d'origine céleste jaillit. Cette énergie forma une tempête autour de son corps et, bientôt, un sortilège céleste apparut.
 

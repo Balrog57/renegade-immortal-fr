@@ -54,11 +54,11 @@ Wang Lin acquiesça et regarda dans la direction où le dragon s'était envolé.
 
 « Libre, enfin libre! Grooar! Ce vieux dragon est enfin libéré des griffes du démon. Après tant d'années, tant d'années! » Des larmes perlaient dans les yeux du dragon. Il ignorait qu'il avait été trompé par l'Oiseau Vermillon de la première génération et puis directement offert par celui de la deuxième... Wang Lin détourna le regard. Il ne regarda plus la foule, mais fixa le bâton d'encens céleste. Après une courte réflexion, il prit une profonde inspiration et posa sa main sur l'encens.
 
-« Ancêtre Oiseau Vermillon de la première génération... L'Ancêtre du Clan de l'Oiseau Vermillon... L'un des quatre grands généraux sous les ordres du Souverain Céleste Ancien... Un tel être doit connaître de nombreux secrets... »
+« Ancêtre Oiseau Vermillon de la première génération... L'Ancêtre du Clan Zhu Que... L'un des quatre grands généraux sous les ordres du Souverain Céleste Ancien... Un tel être doit connaître de nombreux secrets... »
 
-« Si le Clan de l'Oiseau Vermillon se trouve dans le Système Stellaire Antique, pourquoi le Clan des Moineaux de Feu existe-t-il? »
+« Si le Clan Zhu Que se trouve dans le Système Stellaire Antique, pourquoi le Clan Huo Que existe-t-il? »
 
-« Puisque le Clan de l'Oiseau Vermillon a perduré jusqu'à aujourd'hui, je présume que les Clans du Dragon Azure, de la Tortue Noire et du Tigre Blanc sont également vivants. Où sont-ils... »
+« Puisque le Clan Zhu Que a perduré jusqu'à aujourd'hui, je présume que les Clans du Dragon Azure, de la Tortue Noire et du Tigre Blanc sont également vivants. Où sont-ils... »
 
 « Le Souverain Céleste Ancien est-il la même personne que l'Empereur Céleste Ancien mentionné par le Seigneur du Royaume Scellé? Si ce n'est pas le cas, quelle est leur relation... »
 

@@ -40,9 +40,9 @@ Ce jour-là, trois rayons d'énergie d'épée traversèrent rapidement les étoi
 
 Le plus frappant restait ses yeux, qui brillaient comme des étoiles. Son corps exhalait un parfum subtil qui se répandait partout sur son passage. Plusieurs disques papillons scintillants ornaient le côté droit de son front, et leurs reflets colorés la rendaient encore plus belle.
 
-Si Wang Lin avait été présent, il aurait trouvé son visage familier. C'était celle qui avait quitté Suzaku après avoir dévoré le domaine de Qian Feng, avant de trahir le Palais de l'Eau Céleste de la planète des Cinq Éléments: Zi Xin!
+Si Wang Lin avait été présent, il aurait trouvé son visage familier. C'était celle qui avait quitté Suzaku après avoir dévoré le domaine de Qian Feng, avant de trahir le Palais Tian Shui de la planète des Cinq Éléments: Zi Xin!
 
-Lorsqu'elle fut traquée par le Palais de l'Eau Céleste, elle fut sauvée par le père de Yao Xixue, Xue Zu, et devint sa concubine.
+Lorsqu'elle fut traquée par le Palais Tian Shui, elle fut sauvée par le père de Yao Xixue, Xue Zu, et devint sa concubine.
 
 Deux vieillards dégageant une lueur sanglante la suivaient. Leurs yeux étaient ternes et leurs esprits manifestement sous contrôle; c'étaient des esclaves sanguins raffinés par Xue Zu. Chaque esclave sanguin possédait un niveau de culture Ascendant.
 
@@ -50,7 +50,7 @@ Zi Xin était très rapide et mena bientôt les deux esclaves vers cette minuscu
 
 L'un des esclaves sanguins répondit d'une voix lente: « Maîtresse, c'est bien elle. »
 
-Les yeux de Zi Xin se plissèrent sur l'astre. Trois mois auparavant, un esclave avait signalé que la planète subissait des changements, comme si elle mourait lentement. Cette planète appartenait à la sphère d'influence de Xue Zu. Depuis son voyage dans la Terre des Esprits Démoniaques, Xue Zu affichait toujours une expression sombre, avant de partir sans laisser de trace.
+Les yeux de Zi Xin se plissèrent sur l'astre. Trois mois auparavant, un esclave avait signalé que la planète subissait des changements, comme si elle mourait lentement. Cette planète appartenait à la sphère d'influence de Xue Zu. Depuis son voyage dans la Terre Yao Ling, Xue Zu affichait toujours une expression sombre, avant de partir sans laisser de trace.
 
 Après avoir réfléchi un instant, Zi Xin se dirigea vers la petite planète avec ses deux esclaves.
 
@@ -102,11 +102,11 @@ Quelques mois plus tard, le corps de Wang Lin choisit une nouvelle planète aban
 
 ***
 
-Planète Suzaku, Mer des Démons.
+Planète Suzaku, Mer Xiu Mo.
 
-Le brouillard de la Mer des Démons avait disparu depuis longtemps, transformant la région en un immense bassin. Dans ses profondeurs se trouvait un lieu nommé les Étoiles Brisées du Chaos, une zone interdite où quiconque s'approchait disparaissait mystérieusement. Personne n'osait plus s'en approcher.
+Le brouillard de la Mer Xiu Mo avait disparu depuis longtemps, transformant la région en un immense bassin. Dans ses profondeurs se trouvait un lieu nommé les Étoiles Brisées du Chaos, une zone interdite où quiconque s'approchait disparaissait mystérieusement. Personne n'osait plus s'en approcher.
 
-À l'intérieur du Pays de l'Ancien Dieu, au cœur des Étoiles Brisées du Chaos.
+À l'intérieur du Pays Gu Shen, au cœur des Étoiles Brisées du Chaos.
 
 D'innombrables cultivateurs étaient assis dans une mer de sang. Leur niveau de culture augmentait lentement à mesure que le sang les envahissait, les rendant de plus en plus puissants, surtout les cultivateurs de l'Antiquité, dont la force croissait encore davantage. Sur le plus grand pilier émergeant de cette mer de sang siégeait un homme aux cheveux rouges. Son aura était si puissante qu'elle faisait trembler tous les êtres!
 
@@ -116,7 +116,7 @@ Une épée rouillée, tachée de sang séché, était plantée dans le sol à se
 
 « Wang Lin, je suis sur le point d'être libre... »
 
-Trois mois plus tard, un individu émergea des Étoiles Brisées du Chaos. Il portait un singe aux yeux rouges sur l'épaule et marchait lentement hors de la Mer des Démons. Ce n'était pas Tuo Sen, mais un messager envoyé par lui! Une haine profonde brûlait dans ses yeux. Si Wang Lin avait été là, il l'aurait reconnu: c'était le Magicien Démon Céleste, censé être mort depuis longtemps!
+Trois mois plus tard, un individu émergea des Étoiles Brisées du Chaos. Il portait un singe aux yeux rouges sur l'épaule et marchait lentement hors de la Mer Xiu Mo. Ce n'était pas Tuo Sen, mais un messager envoyé par lui! Une haine profonde brûlait dans ses yeux. Si Wang Lin avait été là, il l'aurait reconnu: c'était le Magicien Démon Céleste, censé être mort depuis longtemps!
 
 Autrefois, sans l'intervention de Wang Lin, l'héritage de la connaissance lui aurait appartenu. Maître du Seigneur Démon des Six Désirs, il avait comploté pendant des millénaires pour finalement tout voir détruit par Wang Lin. Sa haine envers ce dernier n'était en rien moindre que celle de Tuo Sen!
 

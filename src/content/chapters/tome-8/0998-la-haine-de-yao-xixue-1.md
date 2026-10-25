@@ -6,13 +6,13 @@ bookTitle: "Alliance's Secret"
 en: Chapter 998 - Yao Xixues Hatred (1)
 slug: la-haine-de-yao-xixue-1
 ---
-À cet instant précis, le ciel au-dessus de la Terre des Esprits Démoniaques subit un changement stupéfiant. Des couches de vortex apparurent dans les cieux, comme si une force cherchait à déchirer ciel et terre. Vents et nuages se déchaînèrent, soulevant sable et pierres qui ravagèrent la terre.
+À cet instant précis, le ciel au-dessus de la Terre Yao Ling subit un changement stupéfiant. Des couches de vortex apparurent dans les cieux, comme si une force cherchait à déchirer ciel et terre. Vents et nuages se déchaînèrent, soulevant sable et pierres qui ravagèrent la terre.
 
-Ce bouleversement soudain sema la panique parmi les habitants de la Terre des Esprits Démoniaques, qui levèrent tous les yeux vers le ciel.
+Ce bouleversement soudain sema la panique parmi les habitants de la Terre Yao Ling, qui levèrent tous les yeux vers le ciel.
 
-Le vortex s'étendit jusqu'à presque couvrir l'intégralité de la voûte céleste au-dessus de la Terre des Esprits Démoniaques. Il tourbillonnait avec une rapidité effrénée, telle une tempête dévalant des cieux.
+Le vortex s'étendit jusqu'à presque couvrir l'intégralité de la voûte céleste au-dessus de la Terre Yao Ling. Il tourbillonnait avec une rapidité effrénée, telle une tempête dévalant des cieux.
 
-Au sein de la Terre des Esprits Démoniaques, dans le Pays du Démon du Bois, se trouvait un profond ravin. Cette zone était très reculée et les profondeurs de la gorge étaient tapissées de mousse. L'endroit était extrêmement humide et, à l'aube, il était généralement enveloppé d'un brouillard dense.
+Au sein de la Terre Yao Ling, dans le Pays Mu Yao, se trouvait un profond ravin. Cette zone était très reculée et les profondeurs de la gorge étaient tapissées de mousse. L'endroit était extrêmement humide et, à l'aube, il était généralement enveloppé d'un brouillard dense.
 
 À cet instant, une légère brume subsistait encore, mais elle se dissipait lentement sous l'effet du soleil.
 
@@ -26,9 +26,9 @@ C'était un visage démoniaque. Sa beauté transcendait celle d'un simple mortel
 
 « Vous êtes enfin venus... J'ai attendu ce jour pendant une éternité... »
 
-À cet instant précis, à l'autre extrémité de la Terre des Esprits Démoniaques, s'étendait une plaine herbeuse. Quelques fleurs y poussaient et, avant même de s'en approcher, on pouvait déjà humer le parfum de l'herbe.
+À cet instant précis, à l'autre extrémité de la Terre Yao Ling, s'étendait une plaine herbeuse. Quelques fleurs y poussaient et, avant même de s'en approcher, on pouvait déjà humer le parfum de l'herbe.
 
-Ce parfum était très subtil, mais il exerçait un effet singulier. Chaque fois qu'un habitant de la Terre des Esprits Démoniaques le respirait, il ressentait un apaisement immédiat. En conséquence, au fil du temps, de nombreuses tribus s'étaient installées sur cette plaine.
+Ce parfum était très subtil, mais il exerçait un effet singulier. Chaque fois qu'un habitant de la Terre Yao Ling le respirait, il ressentait un apaisement immédiat. En conséquence, au fil du temps, de nombreuses tribus s'étaient installées sur cette plaine.
 
 Une branche de la Tribu de l'Affinement de l'Âme s'y était également étendue, mais ce qui était étrange, c'est que les drapeaux d'âme y perdaient instantanément une partie de leur puissance. C'était comme si les fragments d'âme à l'intérieur n'osaient pas en sortir. S'ils étaient forcés de le faire, les fragments se dissipaient rapidement, un par un.
 
@@ -44,7 +44,7 @@ La Formation du Royaume Céleste!
 
 Grâce à cette formation, ainsi qu'à une méthode spéciale et un jeton, on pouvait accéder à l'une des cinq grottes célestes!
 
-Quatre des cinq grottes célestes de la Terre des Esprits Démoniaques avaient été découvertes. Quant à la cinquième, nul ne savait où elle se cachait. Seule l'ouverture de la dernière couche des quatre autres permettrait de révéler la cinquième.
+Quatre des cinq grottes célestes de la Terre Yao Ling avaient été découvertes. Quant à la cinquième, nul ne savait où elle se cachait. Seule l'ouverture de la dernière couche des quatre autres permettrait de révéler la cinquième.
 
 La grotte céleste reliée à ce réseau de transfert était imprégnée d'énergie spirituelle céleste; rien de ce qui s'y trouvait n'était commun.
 
@@ -76,15 +76,15 @@ Les yeux de Wang Wei brillèrent d'admiration tandis qu'il hochait la tête. « 
 
 Hu Juan murmura doucement: « Peut-être que la petite sœur Qing Shuang est encore en vie... »
 
-Au moment où le vortex apparut, le bassin du ravin et le couple de cultivateurs célestes n'étaient pas les seuls à réagir. Un changement colossal s'opérait également sous le palais du Pays du Démon du Vent.
+Au moment où le vortex apparut, le bassin du ravin et le couple de cultivateurs célestes n'étaient pas les seuls à réagir. Un changement colossal s'opérait également sous le palais du Pays Feng Yao.
 
-Il s'agissait de la terre sacrée du Pays du Démon du Vent. Une vaste étendue de grottes, semblable à un nid d'abeilles, s'étalait sous terre, à environ 3 300 mètres de profondeur, avec la capitale du pays en son centre.
+Il s'agissait de la terre sacrée du Pays Feng Yao. Une vaste étendue de grottes, semblable à un nid d'abeilles, s'étalait sous terre, à environ 3 300 mètres de profondeur, avec la capitale du pays en son centre.
 
 Chaque grotte était reliée par de nombreux tunnels qui finissaient tous par converger vers une immense caverne située sous le palais impérial. Chacune de ces cavités contenait un squelette d'un violet noirâtre dégageant une aura de mort.
 
 Dès que l'aura de mort émanait, elle était aspirée par les tunnels connectés aux grottes.
 
-Toute l'aura de mort provenant des innombrables cavernes du Pays du Démon du Vent convergeait vers la grotte sous le palais impérial. Cette dernière était immense, faisant au moins 3 300 mètres de large. Au centre se dressait un pilier colossal sur lequel une femme était assise.
+Toute l'aura de mort provenant des innombrables cavernes du Pays Feng Yao convergeait vers la grotte sous le palais impérial. Cette dernière était immense, faisant au moins 3 300 mètres de large. Au centre se dressait un pilier colossal sur lequel une femme était assise.
 
 L'apparence de cette femme était terrifiante. Son visage était marqué par de nombreuses cicatrices hideuses; il était impossible d'en dénombrer le nombre d'un simple coup d'œil.
 
@@ -98,11 +98,11 @@ Sous le pilier où siégeait la femme, s'étendait une mer d'aura de mort. Une p
 
 « Wang Lin!!! Moi, Yao Xixue, j'ai dû subir toute cette douleur à cause de toi! Je donnerais tout pour pouvoir dévorer ta chair et venger mon père! Tant que je pourrai te tuer, qu'importe cette souffrance? Si je peux t'abattre, peu m'importe si je dois sacrifier ma beauté! » Les yeux de la femme étaient empreints d'une haine monstrueuse.
 
-Elle n'oublierait jamais le sentiment d'impuissance ressenti face au destin de son père lorsqu'elle était apparue seule dans la Terre des Esprits Démoniaques. Puis, une douleur fulgurante lui avait transpercé le cœur, lui indiquant par le lien de son sang que son père n'avait probablement pas survécu. À cet instant, sa haine envers Wang Lin avait atteint des sommets.
+Elle n'oublierait jamais le sentiment d'impuissance ressenti face au destin de son père lorsqu'elle était apparue seule dans la Terre Yao Ling. Puis, une douleur fulgurante lui avait transpercé le cœur, lui indiquant par le lien de son sang que son père n'avait probablement pas survécu. À cet instant, sa haine envers Wang Lin avait atteint des sommets.
 
 Pour obtenir sa vengeance, elle avait tout sacrifié. Elle savait que pour élever son niveau de culture, elle devait solliciter l'aide du démon ancien de ce lieu. Elle avait travaillé sans relâche, endurant des épreuves et des humiliations dignes des pires cauchemars.
 
-Finalement, elle obtint la reconnaissance du démon ancien du Pays du Démon du Vent. Elle entra ici pour entamer une transmission d'héritage.
+Finalement, elle obtint la reconnaissance du démon ancien du Pays Feng Yao. Elle entra ici pour entamer une transmission d'héritage.
 
 Elle n'oublierait jamais l'instant où elle accepta l'héritage du démon du vent, ni cette voix démoniaque qui résonna dans son cœur:
 

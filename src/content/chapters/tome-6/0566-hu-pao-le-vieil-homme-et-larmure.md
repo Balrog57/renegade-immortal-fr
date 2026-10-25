@@ -18,7 +18,7 @@ Hu Pao pratiquait la technique d'affinement de l'âme que Wang Lin lui avait ens
 
 « Si Hu Pao n'est pas mort, il doit se trouver dans un lieu mystérieux. Il n'y a aucune autre explication à mon incapacité à le trouver... » Wang Lin réfléchit un instant avant de renoncer à cette affaire. Il avait déjà fait tout ce qu'il pouvait.
 
-Il leva les yeux pour regarder Treize. L'une des raisons pour lesquelles il avait emmené Hu Pao et Treize à la Cité du Démon Antique était de les tester.
+Il leva les yeux pour regarder Treize. L'une des raisons pour lesquelles il avait emmené Hu Pao et Treize à la Cité Gu Yao était de les tester.
 
 S'ils réussissaient l'épreuve, il leur enseignerait de nouvelles techniques. Pour Hu Pao, outre l'affinement de l'âme, il y avait aussi l'extraction d'âmes!
 
@@ -28,7 +28,7 @@ Quant à Treize, l'idée initiale de lui transmettre la Tactique du Dieu Ancien 
 
 Pourtant, durant cette année, Treize avait passé le test de Wang Lin avec brio. Wang Lin pouvait sentir que Treize lui resterait totalement loyal pendant au moins plusieurs décennies.
 
-Sur la planète Suzaku, Wang Lin avait eu de nombreuses interactions avec le Clan des Démons Géants. Lorsqu'il avait tué l'Ancêtre du Clan des Démons Géants, il avait également obtenu son sac de rangement. Outre cette goutte de sang de Dieu Ancien et un fragment de roue d'esprit primordial de la Voie de la Luxure, il s'y trouvait quelques jades.
+Sur la planète Suzaku, Wang Lin avait eu de nombreuses interactions avec le Clan Ju Mo. Lorsqu'il avait tué l'Ancêtre du Clan Ju Mo, il avait également obtenu son sac de rangement. Outre cette goutte de sang de Dieu Ancien et un fragment de roue d'esprit primordial de la Voie Yin Yu, il s'y trouvait quelques jades.
 
 Parmi ces jades figurait l'enregistrement d'une méthode de culture corporelle nommée les Neuf Cultivations du Titan. À l'époque, Wang Lin n'y avait jeté qu'un regard rapide avant de l'oublier. Il regarda Treize, toucha son sac de rangement, et un jade cyan apparut dans sa main.
 
@@ -40,9 +40,9 @@ Treize saisit le jade avec excitation. Sa gratitude envers Wang Lin était déj�
 
 Wang Lin resta seul dans la vallée. Le ciel était voilé par un brouillard noir. Ce brouillard était formé par le Étendard de l'Âme, et son utilisation pour nourrir les fragments d'âme offrait les meilleurs résultats possibles.
 
-« Je me sentais en sécurité en laissant le drapeau ici lorsque j'étais à la Cité du Démon Antique. Cependant, dans trois mois, je me rendrai dans la capitale, bien trop loin pour que je puisse laisser le drapeau ici! » Wang Lin leva les yeux vers le brouillard noir dans le ciel avant de fermer les yeux pour commencer sa culture.
+« Je me sentais en sécurité en laissant le drapeau ici lorsque j'étais à la Cité Gu Yao. Cependant, dans trois mois, je me rendrai dans la capitale, bien trop loin pour que je puisse laisser le drapeau ici! » Wang Lin leva les yeux vers le brouillard noir dans le ciel avant de fermer les yeux pour commencer sa culture.
 
-À ce moment-là, loin à l'ouest de la Tribu de l'Affinement de l'Âme, après avoir traversé plus de la moitié du Pays du Démon Céleste, s'étendait un désert infini.
+À ce moment-là, loin à l'ouest de la Tribu de l'Affinement de l'Âme, après avoir traversé plus de la moitié du Pays Tian Yao, s'étendait un désert infini.
 
 Cet endroit était réputé pour être une zone extrêmement périlleuse dans les Terres des Esprits Démoniaques!
 
@@ -66,7 +66,7 @@ Le vieil homme acquiesça et dit: « Très bien! Le jour où tu pourras raffiner
 
 Le visage de Hu Pao rayonnait d'excitation lorsqu'il répondit: « Tout cela est grâce au Bienfaiteur! Vous m'avez sauvé la vie, m'avez enseigné des sorts et m'avez amené ici pour raffiner les fragments d'âme. Hu Pao s'en souviendra à jamais! »
 
-L'expression du vieillard resta glaciale: « Si ce n'était pas pour le fait que ton sort est étrange et inédit, je ne t'aurais pas sauvé. De plus, ton ancien maître est retourné à la Cité du Démon Antique, a combattu le Général Démon et a sauvé Treize. J'ai eu un instant de retard! »
+L'expression du vieillard resta glaciale: « Si ce n'était pas pour le fait que ton sort est étrange et inédit, je ne t'aurais pas sauvé. De plus, ton ancien maître est retourné à la Cité Gu Yao, a combattu le Général Démon et a sauvé Treize. J'ai eu un instant de retard! »
 
 Hu Pao afficha une expression complexe et déclara: « Si je peux raffiner tous les fragments d'âme ici, la première chose que je ferai sera de tuer ce Wang Lin! »
 
@@ -98,7 +98,7 @@ De loin, l'armure évoquait la silhouette d'une personne assise en tailleur et e
 
 Soudain, deux lueurs fantomatiques apparurent à l'intérieur du casque comme une paire d'yeux, et leur regard se posa sur le vieil homme. À cet instant, le monde extérieur trembla légèrement, comme si un esprit céleste était descendu parmi les mortels.
 
-Le vieillard prit une grande inspiration et dit: « Votre subordonné a vérifié et a découvert que l'Empereur Démon du Pays du Démon Céleste, Tian Xie, aurait dû franchir l'ultime étape il y a mille ans, mais qu'il s'y retient de force depuis lors! »
+Le vieillard prit une grande inspiration et dit: « Votre subordonné a vérifié et a découvert que l'Empereur Démon du Pays Tian Yao, Tian Xie, aurait dû franchir l'ultime étape il y a mille ans, mais qu'il s'y retient de force depuis lors! »
 
 La lueur fantomatique dans le casque vacilla et un froid invisible émana de l'armure. Le corps et l'esprit du vieillard tremblèrent, et une sueur froide perla sur son front.
 

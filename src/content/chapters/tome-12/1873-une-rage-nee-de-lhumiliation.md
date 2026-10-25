@@ -16,7 +16,7 @@ Une fois la fusion accomplie, il n'aurait plus à tenir compte de l'opinion de q
 
 « Ancien Wang Lin, je ne m'attendais pas à ce que vous agissiez ainsi... Avec votre niveau de culture, comment auriez-vous pu tuer un cultivateur de la Tribulation du Vide? Il aurait été préférable d'admettre votre incapacité à l'affronter et d'éviter le combat. Personne n'en aurait fait cas, même si de nombreux membres du troisième méridien ont péri! »
 
-« Mais bien qu'ils soient morts, ils sont morts avec bravoure. Je ne les oublierai pas, personne ici ne les oubliera, et le Continent du Taureau Céleste ne les oubliera jamais!! »
+« Mais bien qu'ils soient morts, ils sont morts avec bravoure. Je ne les oublierai pas, personne ici ne les oubliera, et le Continent Tian Niu ne les oubliera jamais!! »
 
 « Rangez cette tête et retirez-vous. Je peux faire comme si de rien n'était. Sinon, si vous continuez à jouer la comédie pour vous attribuer des mérites, je pourrais vous tuer sans même demander l'avis de l'Ancêtre! »
 
@@ -48,7 +48,7 @@ Sur cette pensée, l'inquiétude de Lu Wenran s'estompa. Bien qu'il n'ait pas as
 
 « J'ai présenté sa tête et vous prétendez que je simule. Alors, regardez ceci! » Le regard de Wang Lin devint glacial. Ne perdant plus de temps en vaines discussions avec Lu Wenran, il agita la main droite et une seconde tête apparut!
 
-Il s'agissait de celle de Xu Decai, un cultivateur du stade initial de la Tribulation du Vide du Continent du Démon Vert! La tête de Xu Decai était dans un état lamentable. Ses yeux vides exprimaient une peur et une rancœur infinies, tandis que des traces de sang séché marquaient ses orifices!
+Il s'agissait de celle de Xu Decai, un cultivateur du stade initial de la Tribulation du Vide du Continent Lu Mo! La tête de Xu Decai était dans un état lamentable. Ses yeux vides exprimaient une peur et une rancœur infinies, tandis que des traces de sang séché marquaient ses orifices!
 
 À l'instant où la tête apparut, le palais souterrain fut plongé dans un silence de mort. Tous les regards se fixèrent sur elle. Même les trois cultivateurs de la Tribulation du Vide de la secte voisine se redressèrent brusquement!
 
@@ -72,13 +72,13 @@ Quant au vieil homme nommé Zhou, son visage devint livide. Il se souvenait parf
 
 Les mille et plus de cultivateurs en contrebas réfléchirent un instant, avant qu'un tumulte encore plus violent qu'auparavant n'éclate. Pour eux, les cultivateurs de la Tribulation du Vide étaient des êtres divins bien au-dessus de leur portée. Voir Wang Lin brandir les têtes de deux tels êtres était un choc trop immense.
 
-« Vous pouvez dire qu'un vieil homme au niveau de culture insondable a tué le premier cultivateur du Continent du Démon Vert. Et que je ne faisais que passer pour lui trancher la tête sur le cadavre. »
+« Vous pouvez dire qu'un vieil homme au niveau de culture insondable a tué le premier cultivateur du Continent Lu Mo. Et que je ne faisais que passer pour lui trancher la tête sur le cadavre. »
 
-« Puis, ce même vieil homme est apparu lors de ma patrouille pour tuer le second cultivateur du Continent du Démon Vert. J'ai également été témoin de la scène et j'ai coupé la tête du cadavre », déclara Wang Lin d'un ton lugubre en fixant Lu Wenran, dont l'expression se décomposait rapidement.
+« Puis, ce même vieil homme est apparu lors de ma patrouille pour tuer le second cultivateur du Continent Lu Mo. J'ai également été témoin de la scène et j'ai coupé la tête du cadavre », déclara Wang Lin d'un ton lugubre en fixant Lu Wenran, dont l'expression se décomposait rapidement.
 
 Le cœur de Lu Wenran s'emballa comme une lame de fond. En contemplant la tête de Xu Decai, il sentit son cuir chevelu s'engourdir. Il regarda Wang Lin, n'imaginant pas qu'il ait pu terrasser deux cultivateurs du stade initial de la Tribulation du Vide. Même pour lui, ces êtres n'étaient pas une plaisanterie!!
 
-Xu Decai était si célèbre sur le Continent du Démon Vert que Lu Wenran en avait entendu parler. Il savait que sa vitesse d'incantation était terrifiante. Lors de la première bataille, lorsqu'il affronta Zhang Daozong, il l'avait reconnu!
+Xu Decai était si célèbre sur le Continent Lu Mo que Lu Wenran en avait entendu parler. Il savait que sa vitesse d'incantation était terrifiante. Lors de la première bataille, lorsqu'il affronta Zhang Daozong, il l'avait reconnu!
 
 Après la déclaration de Wang Lin, le visage de Lu Wenran se crispa et il reprit lentement:
 
@@ -110,9 +110,9 @@ Wang Lin était resté sur ses gardes durant tout ce temps. Dès que Lu Wenran s
 
 Simultanément, l'armure de l'âme derrière Wang Lin émit une lumière spectrale infinie. Sous l'impulsion du vieil homme nommé Zhou, les cultivateurs en contrebas commencèrent rapidement à trancher entre Wang Lin et Lu Wenran!
 
-Alors que chacun hésitait, les yeux d'un vieil homme dans la foule s'illuminèrent et il déclara d'une voix posée: « Cultivateurs de la Prairie de l'Extrême Ciel, l'Ancien Wang Lin a sauvé ma vie autrefois. J'espère que vous tous, vous le choisirez lui! »
+Alors que chacun hésitait, les yeux d'un vieil homme dans la foule s'illuminèrent et il déclara d'une voix posée: « Cultivateurs de la Prairie Ji Tian, l'Ancien Wang Lin a sauvé ma vie autrefois. J'espère que vous tous, vous le choisirez lui! »
 
-De par son statut dans la Prairie de l'Extrême Ciel, ses paroles captèrent l'attention de plusieurs personnes!
+De par son statut dans la Prairie Ji Tian, ses paroles captèrent l'attention de plusieurs personnes!
 
 Yan Luan serra les dents et chargea vers Lu Wenran. Elle allait aider Wang Lin à résister! Elle allait prendre ce risque!
 

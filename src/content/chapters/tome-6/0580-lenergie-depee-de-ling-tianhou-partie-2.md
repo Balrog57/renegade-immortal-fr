@@ -8,7 +8,7 @@ slug: lenergie-depee-de-ling-tianhou-partie-2
 ---
 Mo Yang fut stupéfait.
 
-« Je n'ai aucune rancune contre la Secte de l'Épée Da Luo. Si vous ne m'aviez pas poussé à bout à plusieurs reprises, je n'aurais pas attaqué. Envoyez un message aux Douze Épées: je ne souhaite pas faire de vous mes ennemis dans la Terre des Esprits Démoniaques! » Tandis que Wang Lin parlait, il lança l'épée qu'il tenait à la figure de Mo Yang. Il passa ensuite devant lui et continua sa route vers sa chambre.
+« Je n'ai aucune rancune contre la Secte Da Luo Jian. Si vous ne m'aviez pas poussé à bout à plusieurs reprises, je n'aurais pas attaqué. Envoyez un message aux Douze Épées: je ne souhaite pas faire de vous mes ennemis dans la Terre Yao Ling! » Tandis que Wang Lin parlait, il lança l'épée qu'il tenait à la figure de Mo Yang. Il passa ensuite devant lui et continua sa route vers sa chambre.
 
 Le départ précipité de sa silhouette laissa Mo Yang totalement interdit. À l'instant d'avant, il avait failli être contraint d'utiliser son trésor de sauvetage, mais les paroles de Wang Lin le plongèrent dans l'incrédulité.
 
@@ -18,7 +18,7 @@ Il prit une profonde inspiration, ramassa la lame géante et, après l'avoir ins
 
 Il ralentit sa course à 3,3 kilomètres du manoir, tout en maintenant sa vigilance par son Sens Divin. Après un moment, constatant que Wang Lin ne l'attaquait toujours pas, il sembla comprendre que ce dernier comptait vraiment le laisser filer.
 
-« Wang Lin, je te rendrai centuple la disgrâce que j'ai subie aujourd'hui. Bien que ton sort soit puissant, la prochaine fois, je reviendrai avec plusieurs de mes frères aînés pour attaquer de front. Je veux voir si tu seras toujours aussi calme! Humph, si Senior Tan Lang n'était pas parti au Pays du Démon de Feu, il n'aurait eu besoin que d'un seul mouvement pour te tuer! » Une lueur d'intention meurtrière traversa les yeux de Mo Yang; il lança un dernier regard glacial vers le Manoir Mo avant de s'enfuir à toute allure.
+« Wang Lin, je te rendrai centuple la disgrâce que j'ai subie aujourd'hui. Bien que ton sort soit puissant, la prochaine fois, je reviendrai avec plusieurs de mes frères aînés pour attaquer de front. Je veux voir si tu seras toujours aussi calme! Humph, si Senior Tan Lang n'était pas parti au Pays Huo Yao, il n'aurait eu besoin que d'un seul mouvement pour te tuer! » Une lueur d'intention meurtrière traversa les yeux de Mo Yang; il lança un dernier regard glacial vers le Manoir Mo avant de s'enfuir à toute allure.
 
 Il volait avec une rapidité extrême. Plus il s'éloignait du manoir, plus il se sentait détendu. En repensant au combat précédent, il ne put s'empêcher d'être saisi par la peur.
 
@@ -64,7 +64,7 @@ En y regardant de plus près, cette fine ligne était manifestement une épée, 
 
 « Ling Tianhou! » Wang Lin prit une profonde inspiration, le regard empreint d'un sérieux absolu.
 
-« À l'époque, devant la porte des Esprits Démoniaques de la mer de l'Est, avant l'entrée des disciples de la Secte de l'Épée Da Luo, Ling Tianhou avait projeté un rayon d'énergie d'épée qu'il qualifiait de trésor salvateur pour les douze d'entre eux! »
+« À l'époque, devant la porte des Esprits Démoniaques de la mer de l'Est, avant l'entrée des disciples de la Secte Da Luo Jian, Ling Tianhou avait projeté un rayon d'énergie d'épée qu'il qualifiait de trésor salvateur pour les douze d'entre eux! »
 
 « Cette ligne bleue est cette énergie d'épée! Il n'est pas étonnant qu'elle m'ait donné l'impression d'être face à la mort et qu'elle ait percé mes sceaux vitaux... » Les yeux de Wang Lin s'illuminèrent d'une détermination sans faille.
 

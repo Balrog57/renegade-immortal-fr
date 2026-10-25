@@ -22,9 +22,9 @@ Wang Lin fixa Xu Liguo et demanda: « Sais-tu pourquoi je ne te laisse pas aller
 
 Xu Liguo hocha précipitamment la tête en disant: « Je sais, je comprends! » Bien qu'il ait dit cela, il pensa intérieurement: « C'est clair, tu veux juste me séparer de la petite beauté. Je parie qu'il y a 80 % de chances que tu convoites toi-même la petite beauté. Hélas, moi, Xu Liguo, si séduisant, je suis si malchanceux d'avoir ma femme volée à un âge aussi précoce! »
 
-« Dans la Cité du Démon Céleste, les experts sont aussi communs que les nuages. Penses-tu vraiment que personne ne te remarquera? Une fois découvert avec ta faible culture, tu ne feras que te faire capturer, on effacera ta volonté et tu deviendras l'esprit d'épée pour leur trésor. Xu Liguo, ne comprends-tu toujours pas? » La voix de Wang Lin résonna dans le cœur de Xu Liguo comme le coup d'une cloche géante.
+« Dans la Cité Tian Yao, les experts sont aussi communs que les nuages. Penses-tu vraiment que personne ne te remarquera? Une fois découvert avec ta faible culture, tu ne feras que te faire capturer, on effacera ta volonté et tu deviendras l'esprit d'épée pour leur trésor. Xu Liguo, ne comprends-tu toujours pas? » La voix de Wang Lin résonna dans le cœur de Xu Liguo comme le coup d'une cloche géante.
 
-Il fut stupéfait et resta hébété, puis murmura faiblement: « Cela... je ne devrais pas être découvert, n'est-ce pas... » Son cœur commença à battre la chamade. Après avoir écouté Wang Lin, il le croyait à 80 %. Il se demanda si, s'il était capturé par quelqu'un d'autre, cette personne serait aussi curieuse que l'Ancêtre du Clan des Démons Géants.
+Il fut stupéfait et resta hébété, puis murmura faiblement: « Cela... je ne devrais pas être découvert, n'est-ce pas... » Son cœur commença à battre la chamade. Après avoir écouté Wang Lin, il le croyait à 80 %. Il se demanda si, s'il était capturé par quelqu'un d'autre, cette personne serait aussi curieuse que l'Ancêtre du Clan Ju Mo.
 
 « Cependant, si j'étais capturé par le propriétaire de la petite beauté, ce serait une bonne chose. Alors, la petite beauté et moi serions ensemble... » Xu Liguo pensa cela en secret, mais il n'osa pas le dire à Wang Lin.
 
@@ -56,7 +56,7 @@ En y pensant, il se sentit très satisfait: « Peu importe la force de ce démon
 
 « À part le fait que son niveau de culture est un peu plus élevé que le mien, je suis meilleur que lui en tout le reste. Hélas, un démon aussi exceptionnel que moi est rare en ce monde. Quelle solitude... » Xu Liguo se sentait si bien qu'il en éprouvait un sentiment de supériorité. Il regarda maintenant Wang Lin depuis l'épée céleste avec une pointe de sympathie et de fierté.
 
-Wang Lin frappa son sac de stockage et Xu Liguo s'y engouffra rapidement, suivi par la lame en forme de demi-lune. Au moment où il entra dans le sac, Xu Liguo s'arrêta soudainement. Il regarda la cité impériale au loin et pensa: « Petite beauté, ton frère Xu est de retour. Je ne partirai pas. Si je ne peux pas t'emmener avec moi, je ne quitterai jamais cette Cité du Démon Céleste! »
+Wang Lin frappa son sac de stockage et Xu Liguo s'y engouffra rapidement, suivi par la lame en forme de demi-lune. Au moment où il entra dans le sac, Xu Liguo s'arrêta soudainement. Il regarda la cité impériale au loin et pensa: « Petite beauté, ton frère Xu est de retour. Je ne partirai pas. Si je ne peux pas t'emmener avec moi, je ne quitterai jamais cette Cité Tian Yao! »
 
 Dans le pavillon des épées du palais impérial, l'épée serpentine trembla. Puis elle prit la forme d'une jeune fille, fronça le nez et dit avec férocité: « Cet esprit d'épée méprisable et sans vergogne ne doit plus jamais croiser mon chemin! Si je le revois, même si cela va à l'encontre des ordres de l'Empereur, je prendrai l'épée et je le trancherai en deux! »
 
@@ -72,13 +72,13 @@ Un homme en robe blanche sortit du groupe. Le regard brillant, il joignit les ma
 
 Wang Lin balaya l'assemblée du regard et comprit approximativement ce qu'ils pensaient. À cet instant, il joignit également les mains et dit: « Vous me flattez! »
 
-L'homme en robe blanche soupira: « Je suis le jeune maître de la Secte de l'Épée de Jade. J'ai été contraint de participer au concours des généraux démons. Les actions du frère Wang il y a quelques jours ont été comme un coup de massue qui m'a réveillé. Dans cette Terre des Esprits Démoniaques, nous, les cultivateurs, sommes inférieurs aux fourmis. Les généraux démons ne doivent pas mourir, et celui qui en tue un doit les accompagner dans la mort; au final, seuls nous, les cultivateurs, mourons. Nous ne sommes que des acteurs jouant pour le divertissement des barbares de la Terre des Esprits Démoniaques! »
+L'homme en robe blanche soupira: « Je suis le jeune maître de la Secte Yu Jian. J'ai été contraint de participer au concours des généraux démons. Les actions du frère Wang il y a quelques jours ont été comme un coup de massue qui m'a réveillé. Dans cette Terre Yao Ling, nous, les cultivateurs, sommes inférieurs aux fourmis. Les généraux démons ne doivent pas mourir, et celui qui en tue un doit les accompagner dans la mort; au final, seuls nous, les cultivateurs, mourons. Nous ne sommes que des acteurs jouant pour le divertissement des barbares de la Terre Yao Ling! »
 
 Wang Lin réfléchit en silence.
 
-« Voici l'assistant du général démon Ao Di! » L'homme désigna la personne à ses côtés. Un homme d'âge moyen vêtu d'une robe taoïste s'avança, joignit les mains et dit respectueusement: « Cher cultivateur Wang, la mort d'Ao Di m'a également réveillé. Bien que les mérites dans la Terre des Esprits Démoniaques soient précieux, à quoi servent-ils si je n'ai plus la vie pour en profiter? »
+« Voici l'assistant du général démon Ao Di! » L'homme désigna la personne à ses côtés. Un homme d'âge moyen vêtu d'une robe taoïste s'avança, joignit les mains et dit respectueusement: « Cher cultivateur Wang, la mort d'Ao Di m'a également réveillé. Bien que les mérites dans la Terre Yao Ling soient précieux, à quoi servent-ils si je n'ai plus la vie pour en profiter? »
 
-L'homme en robe blanche soupira de nouveau: « Ce n'est pas par choix que nous combattons ici pour l'amusement des barbares de la terre démoniaque. Ces cultivateurs qui m'accompagnent sont tous prêts à quitter la Cité du Démon Céleste. Aujourd'hui, nous sommes venus dire adieu au cher cultivateur Wang. Adieu! » Sur ce, il prit une grande inspiration et s'envola dans le ciel.
+L'homme en robe blanche soupira de nouveau: « Ce n'est pas par choix que nous combattons ici pour l'amusement des barbares de la terre démoniaque. Ces cultivateurs qui m'accompagnent sont tous prêts à quitter la Cité Tian Yao. Aujourd'hui, nous sommes venus dire adieu au cher cultivateur Wang. Adieu! » Sur ce, il prit une grande inspiration et s'envola dans le ciel.
 
 Les autres cultivateurs derrière lui adressèrent également leurs adieux à Wang Lin avant de disparaître à l'horizon.
 
@@ -178,25 +178,25 @@ Durant ces quelques jours, en dehors d'Ao Di, aucun général démon n'avait sub
 
 Après tout, c'était un véritable massacre entre cultivateurs!
 
-Lorsque les membres de la Secte de l'Épée Da Luo s'étaient opposés aux généraux démons, ils s'étaient retenus. Mais face aux cultivateurs, ils s'étaient montrés d'une cruauté extrême, comme pour faire étalage de leur puissance.
+Lorsque les membres de la Secte Da Luo Jian s'étaient opposés aux généraux démons, ils s'étaient retenus. Mais face aux cultivateurs, ils s'étaient montrés d'une cruauté extrême, comme pour faire étalage de leur puissance.
 
 La lumière matinale balaya la place de 33 kilomètres. La foule était encore plus nombreuse qu'auparavant. Après tout, les combats suivants seraient les véritables affrontements. Hormis quelques chanceux, tous les prétendants restants étaient célèbres!
 
-Les 48 généraux démons traversèrent la Porte du Démon Céleste. Une intention de combat si puissante semblait former une bête primordiale chargeant à travers la porte dès son ouverture.
+Les 48 généraux démons traversèrent la Porte Tian Yao. Une intention de combat si puissante semblait former une bête primordiale chargeant à travers la porte dès son ouverture.
 
 L'homme en armure dorée, au centre de la place, regarda froidement tous ceux qui entraient. Lorsqu'il vit Wang Lin, il laissa échapper un grognement glacial.
 
 De son point de vue, un simple cultivateur avait osé blesser gravement un général démon. À ses yeux, cela suffisait pour justifier qu'on tue cet individu des centaines de fois!
 
-« Dans ma Terre des Esprits Démoniaques, ces soi-disant cultivateurs ne sont qu'une bande de bandits. Leur seul but est d'obtenir l'héritage des anciens démons; s'ils meurent, tant pis pour eux. En revanche, s'ils osent blesser un général démon, ils commettent un crime impardonnable! » L'homme en armure dorée était extrêmement mécontent de Wang Lin, et une intention meurtrière germa dans son cœur!
+« Dans ma Terre Yao Ling, ces soi-disant cultivateurs ne sont qu'une bande de bandits. Leur seul but est d'obtenir l'héritage des anciens démons; s'ils meurent, tant pis pour eux. En revanche, s'ils osent blesser un général démon, ils commettent un crime impardonnable! » L'homme en armure dorée était extrêmement mécontent de Wang Lin, et une intention meurtrière germa dans son cœur!
 
 Wang Lin le regarda froidement. Il cultivait l'Art du Massacre Céleste, il était donc extrêmement sensible à l'intention de tuer.
 
-Une fois que les généraux démons et leurs assistants eurent franchi la Porte du Démon Céleste, celle-ci se referma dans un rugissement tonitruant. L'homme en armure dorée pointa le tambour de guerre et déclara froidement: « Sur ordre de l'Empereur Démon, les règles du second tour ont changé. Il ne s'agira plus d'un combat, mais d'une compétition pour faire sonner ce tambour de guerre! »
+Une fois que les généraux démons et leurs assistants eurent franchi la Porte Tian Yao, celle-ci se referma dans un rugissement tonitruant. L'homme en armure dorée pointa le tambour de guerre et déclara froidement: « Sur ordre de l'Empereur Démon, les règles du second tour ont changé. Il ne s'agira plus d'un combat, mais d'une compétition pour faire sonner ce tambour de guerre! »
 
 À ces mots, les expressions des généraux démons changèrent radicalement, leurs yeux s'illuminant. Même Mo Lihai trembla, ses yeux brillant d'un éclat inédit.
 
-« Le Tambour de Guerre Démoniaque! C'est un trésor sacré de mon Pays du Démon Céleste, second seulement au Lac du Dragon! Normalement, ce tambour n'est frappé que lorsqu'un vice-commandant est promu commandant! »
+« Le Tambour de Guerre Démoniaque! C'est un trésor sacré de mon Pays Tian Yao, second seulement au Lac Long Tan! Normalement, ce tambour n'est frappé que lorsqu'un vice-commandant est promu commandant! »
 
 « La compétition des généraux démons n'avait jamais changé auparavant, pourquoi changer aujourd'hui... Il semble que le choix de deux nouveaux vice-commandants ne soit pas infondé! »
 
@@ -204,6 +204,6 @@ Une fois que les généraux démons et leurs assistants eurent franchi la Porte 
 
 Les débats éclatèrent avec une intensité sans précédent; même les discussions lors de la blessure d'Ao Di par Wang Lin semblaient dérisoires en comparaison.
 
-L'homme en armure dorée laissa échapper un ricanement glacial qui se propagea sur la place comme le tonnerre, imposant le silence. Bien qu'il ne comprenne pas totalement l'ordre de l'Empereur Démon, il reprit froidement: « Ce tambour a été laissé par le premier empereur démon du Pays du Démon Céleste; la rumeur dit qu'il est fait de la peau d'un démon ancien. Ceux qui manquent de force exploseront avant même d'avoir pu le faire sonner une seule fois. Si vous le faites sonner trois fois, vous êtes fort; si vous le faites six fois, vous êtes un génie béni par les cieux. Peu d'entre vous pourront dépasser les trois coups. »
+L'homme en armure dorée laissa échapper un ricanement glacial qui se propagea sur la place comme le tonnerre, imposant le silence. Bien qu'il ne comprenne pas totalement l'ordre de l'Empereur Démon, il reprit froidement: « Ce tambour a été laissé par le premier empereur démon du Pays Tian Yao; la rumeur dit qu'il est fait de la peau d'un démon ancien. Ceux qui manquent de force exploseront avant même d'avoir pu le faire sonner une seule fois. Si vous le faites sonner trois fois, vous êtes fort; si vous le faites six fois, vous êtes un génie béni par les cieux. Peu d'entre vous pourront dépasser les trois coups. »
 
 « Les dix premiers de ce tour sont qualifiés! »

@@ -88,7 +88,7 @@ Dans le palais de la cité céleste, l'Empereur apparut dans son pavillon favori
 
 « Et pas une seule fois, mais sans cesse! Tu n'oseras jamais me nuire, car je suis protégé par le Grand Empyréen Gu Dao. Une fois que Xuan Luo sera entré en réincarnation, sache que si je voulais te tuer, ce serait aussi simple que de lever la main! »
 
-À l'extérieur du Temple de l'Ancien Dao, Xuan Luo regardait Wang Lin avec une expression complexe, plongé dans ses pensées.
+À l'extérieur du Temple Dao Gu, Xuan Luo regardait Wang Lin avec une expression complexe, plongé dans ses pensées.
 
 À l'inverse, après le départ de l'Empereur, Wang Lin sourit et s'adressa doucement à Xuan Luo.
 

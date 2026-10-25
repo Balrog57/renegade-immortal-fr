@@ -48,9 +48,9 @@ Dans le Domaine Nord, à l'opposé du Serpent aux yeux de lune, presque à l'aut
 
 Wang Lin fronça les sourcils mais se détendit aussitôt. Ces Sens Divins se verrouillèrent immédiatement sur lui, mais après l'avoir reconnu, ils se dissipèrent instantanément. Puis, plus de dix silhouettes s'élancèrent comme des météores vers lui.
 
-À l'instant presque même où Wang Lin posa le pied sur la planète Qing Ling, plus de dix membres du Clan des Immortels Élus apparurent. L'Ancien ancêtre s'avança immédiatement. En voyant Wang Lin, il fut transporté par l'excitation et s'exclama: « Bienfaiteur! »
+À l'instant presque même où Wang Lin posa le pied sur la planète Qing Ling, plus de dix membres du Clan Xian Xuan apparurent. L'Ancien ancêtre s'avança immédiatement. En voyant Wang Lin, il fut transporté par l'excitation et s'exclama: « Bienfaiteur! »
 
-Wang Lin regarda le vieil homme et les membres du Clan des Immortels Élus et demanda: « Le voyage jusqu'ici a-t-il été sans encombre? »
+Wang Lin regarda le vieil homme et les membres du Clan Xian Xuan et demanda: « Le voyage jusqu'ici a-t-il été sans encombre? »
 
 Le vieil homme prit une profonde inspiration et répondit: « Bienfaiteur, la route fut sûre. Cependant, en chemin, nous avons appris qu'une famille Yao du Système Stellaire de Luotian avait lancé une chasse contre vous... »
 
@@ -58,7 +58,7 @@ Wang Lin secoua la tête. « Cette affaire est déjà derrière nous, n'en parle
 
 Le vieil homme hocha rapidement la tête.
 
-Le corps de Wang Lin vacilla et il ne prêta plus attention au Clan des Immortels Élus. Il se téléporta au sommet du pic Heng Yun! Tout était tel qu'il l'avait laissé, la grotte était toujours là.
+Le corps de Wang Lin vacilla et il ne prêta plus attention au Clan Xian Xuan. Il se téléporta au sommet du pic Heng Yun! Tout était tel qu'il l'avait laissé, la grotte était toujours là.
 
 Après être entré dans la grotte, Wang Lin activa immédiatement les formations. La zone de 5 000 kilomètres de rayon autour du pic Heng Yun fut aussitôt scellée. Puis il s'assit, ferma les yeux et commença sa culture.
 

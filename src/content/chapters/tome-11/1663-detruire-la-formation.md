@@ -48,7 +48,7 @@ Ceux qui atteignaient le stade de la Tribulation du Vide sur le Continent Astral
 
 Le Souverain Céleste aux Sept Couleurs était un Grand Exalté de la Tribulation du Vide, bien que son niveau ne fût pas au sommet, mais au stade intermédiaire!
 
-Bien qu'il ne fût qu'au stade intermédiaire, cela lui avait permis d'acquérir une certaine renommée sur le Continent Astral Immortel et de fonder sa propre secte: la Secte des Sept Dao!
+Bien qu'il ne fût qu'au stade intermédiaire, cela lui avait permis d'acquérir une certaine renommée sur le Continent Astral Immortel et de fonder sa propre secte: la Secte Qi Dao!
 
 Wang Lin n'en connaissait qu'une partie, et à cet instant il n'avait pas le temps d'y songer. Il ouvrit les yeux et se leva, contemplant les étoiles. Il n'était pas grand, mais l'aura qu'il dégageait laissait croire qu'il pouvait soutenir la voûte céleste. Le dos tourné vers le Royaume Intérieur, il inspirait un sentiment de sécurité indicible, tel un protège-poignet béni par un Dieu Ancien.
 
@@ -68,7 +68,7 @@ L'Empreinte du Karma apparut sous la paume de Wang Lin. Puis, ses doigts se cris
 
 « Karma, extrais les esprits! » rugit Wang Lin. Alors que sa main droite se retirait, la formation trembla violemment. Un éclair fut extirpé de la structure.
 
-C'était une lance illusoire faite de tonnerre. Cette lance contenait un tonnerre infini et constituait le trésor sacré du Clan du Tonnerre Dispersé!
+C'était une lance illusoire faite de tonnerre. Cette lance contenait un tonnerre infini et constituait le trésor sacré du Clan Shan Lei!
 
 D'une pression de la main droite, Wang Lin fit s'effondrer la lance de tonnerre. D'innombrables éclairs se dispersèrent dans toutes les directions sur plusieurs millions de li, illuminant l'espace environnant.
 

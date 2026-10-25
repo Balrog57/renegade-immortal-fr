@@ -52,7 +52,7 @@ Bang!
 
 La lumière d'épée du vieil homme s'effondra, il cracha du sang et l'empreinte sur sa poitrine s'agrandit.
 
-« Cette empreinte céleste est trop écrasante. Je suis blessé aujourd'hui et je ne peux pas utiliser toute ma puissance. J'ai déjà obtenu une épée céleste moi-même. Je m'en vais! » Le vieil homme recula et déchira l'espace à ses côtés. Une immense faille s'ouvrit soudainement dans le vide. De l'autre côté de la brèche se trouvait la Secte de l'Épée Da Luo. Il était sur le point de s'y engouffrer.
+« Cette empreinte céleste est trop écrasante. Je suis blessé aujourd'hui et je ne peux pas utiliser toute ma puissance. J'ai déjà obtenu une épée céleste moi-même. Je m'en vais! » Le vieil homme recula et déchira l'espace à ses côtés. Une immense faille s'ouvrit soudainement dans le vide. De l'autre côté de la brèche se trouvait la Secte Da Luo Jian. Il était sur le point de s'y engouffrer.
 
 Mais à cet instant précis, l'image d'épée en laquelle Zhou Yi s'était changé devint encore plus rapide et fonça de toutes ses forces vers le vieil homme.
 
@@ -62,7 +62,7 @@ La faille se referma rapidement, mais Zhou Yi réussit à s'y engouffrer juste a
 
 Tant qu'il n'aura pas tué le vieil homme, il ne reviendra pas!
 
-En poursuivant le vieil homme, Zhou Yi venait de déclencher un désastre pour la Secte de l'Épée Da Luo.
+En poursuivant le vieil homme, Zhou Yi venait de déclencher un désastre pour la Secte Da Luo Jian.
 
 Tout cela s'était produit en quelques respirations à peine. Une fois la faille disparue, la centaine de cultivateurs de divers niveaux tournèrent leurs regards vers le cadavre féminin qui allait frapper le sol.
 
@@ -86,9 +86,9 @@ Sept personnes apparurent derrière lui, le regard brillant de cupidité. Ils ne
 
 Il y avait au moins cent cultivateurs aux alentours, tous au stade de la Formation de l'Âme au minimum. Ce n'était pas une situation qu'il pouvait gérer seul.
 
-Un homme d'âge moyen en robe bleue s'avança à son tour. Il lança un regard méprisant à la Secte Hun Yuan et déclara: « La Secte Hun Yuan n'est que de la vermine! Cher compagnon, donnez-moi une épée et ma Secte du Démon Céleste assurera votre sécurité! »
+Un homme d'âge moyen en robe bleue s'avança à son tour. Il lança un regard méprisant à la Secte Hun Yuan et déclara: « La Secte Hun Yuan n'est que de la vermine! Cher compagnon, donnez-moi une épée et ma Secte Tian Mo assurera votre sécurité! »
 
-« Les sectes Hun Yuan et Démon Céleste ne sont que des tas de clowns. Ces deux épées célestes appartiennent à ma Secte de la Totalité du Ciel et de la Terre! » Un rire tonitruant retentit au milieu de la foule avant qu'un homme ne charge vers Wang Lin.
+« Les sectes Hun Yuan et Démon Céleste ne sont que des tas de clowns. Ces deux épées célestes appartiennent à ma Secte Tian Di Liu He! » Un rire tonitruant retentit au milieu de la foule avant qu'un homme ne charge vers Wang Lin.
 
 Ce mouvement déclencha une réaction en chaîne. Près de cent cultivateurs se mirent à charger Wang Lin simultanément.
 

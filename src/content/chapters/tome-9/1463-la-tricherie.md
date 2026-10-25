@@ -16,7 +16,7 @@ Un instant plus tard, la douleur intense disparut, et un symbole numérique appa
 
 Dès que ce symbole se manifesta, la brume environnante se déchaîna dans un rugissement de folie. Elle semblait vouloir dévorer Wang Lin et sa plateforme de 60 000 pieds.
 
-C'était comme si l'action de Wang Lin avait perturbé les lois de cet endroit! La brume allait l'effacer, tout comme la jeune fille du Clan de l'Extermination des Sceaux!
+C'était comme si l'action de Wang Lin avait perturbé les lois de cet endroit! La brume allait l'effacer, tout comme la jeune fille du Clan Feng Mie!
 
 Alors que la brume se précipitait sur lui, Wang Lin n'hésita pas: d'un revers de la main droite, il balaya son front et arracha le symbole!
 
@@ -30,7 +30,7 @@ Après un long moment, le rire de Wang Lin résonna dans la brume. Il regarda le
 
 Il pouvait se trouver à l'intérieur du Tombeau de l'Ordre Antique sans marque parce qu'il était un dieu ancien. Cependant, ce symbole pouvait être créé, et il nécessitait la fusion des trois clans anciens!
 
-C'était pour cette raison qu'il ne serait pas effacé comme la jeune fille du Clan de l'Extermination des Sceaux après avoir retiré le symbole: car, en théorie, il ne devrait pas en posséder!
+C'était pour cette raison qu'il ne serait pas effacé comme la jeune fille du Clan Feng Mie après avoir retiré le symbole: car, en théorie, il ne devrait pas en posséder!
 
 « Ce symbole n'est qu'une chose que le Tombeau de l'Ordre Antique accorde aux personnes ne faisant pas partie des trois clans pour qu'elles puissent y subsister un court instant! »
 
@@ -50,7 +50,7 @@ En raison de la fréquence de ses actions, la brume environnante devint extrême
 
 Grâce à cette méthode qui s'apparentait presque à de la triche, Wang Lin créa des centaines de symboles numériques en quelques heures, qu'il fusionna avec sa plateforme.
 
-Après avoir absorbé les runes de la plateforme du colosse du Clan du Loup Céleste, la plateforme de Wang Lin possédait déjà bien plus que ce qui était requis pour le rang 6. Maintenant que Wang Lin avait utilisé cette méthode presque perverse pour ajouter des runes supplémentaires, sa plateforme répondait aux exigences du rang 7!
+Après avoir absorbé les runes de la plateforme du colosse du Clan Feng Tian Lang, la plateforme de Wang Lin possédait déjà bien plus que ce qui était requis pour le rang 6. Maintenant que Wang Lin avait utilisé cette méthode presque perverse pour ajouter des runes supplémentaires, sa plateforme répondait aux exigences du rang 7!
 
 Tandis que des grondements de tonnerre résonnaient, la plateforme sous Wang Lin commença à croître. D'innombrables particules de poussière convergèrent de toutes les directions au sein de la brume, et la plateforme de 60 000 pieds commença son expansion.
 

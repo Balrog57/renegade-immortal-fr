@@ -148,7 +148,7 @@ Dans le ciel, le dernier sceau apparut. C'était la neuvième Tribulation Arcani
 
 Dès son apparition, une pression colossale capable de bouleverser l'univers s'abattit. Les êtres risquaient de se perdre dans le cycle de la réincarnation, incapables d'en sortir avant de mourir!
 
-« Destruction de la tribulation! » Wang Lin laissa échapper un rugissement fracassant. Sa voix perça la lumière dorée et se propagea dans toutes les directions sur plusieurs milliers de kilomètres, atteignant les oreilles des cultivateurs du Continent du Démon Vert, tous stupéfaits par ce spectacle.
+« Destruction de la tribulation! » Wang Lin laissa échapper un rugissement fracassant. Sa voix perça la lumière dorée et se propagea dans toutes les directions sur plusieurs milliers de kilomètres, atteignant les oreilles des cultivateurs du Continent Lu Mo, tous stupéfaits par ce spectacle.
 
 « Destruction de la tribulation! »
 
@@ -195,11 +195,11 @@ Le Sceau de la Réincarnation trembla et s'effondra soudain en d'innombrables fr
 
 Dans sa chute, le temple du scorpion sous Wang Lin fut également emporté. Incapable de supporter de telles vibrations, il se désintégra en une multitude de débris projetés dans toutes les directions.
 
-Le Temple du Scorpion Démon Vert disparut!
+Le Temple Lu Mo Xie disparut!
 
 Dans l'effondrement, la poussière s'éleva, dissimulant la silhouette de Wang Lin. Une aura de Tribulation du Vide, faisant trembler le monde entier, émana des nuages de poussière!!
 
-Cette aura était si puissante qu'elle forma un vortex. Ce tourbillon aspira les débris du ciel et de la terre ainsi que la force destructrice de la Tribulation Arcanique. Le vortex se formait au centre même du Continent du Démon Vert, là où se trouvait le Temple du Scorpion Démon Vert!!
+Cette aura était si puissante qu'elle forma un vortex. Ce tourbillon aspira les débris du ciel et de la terre ainsi que la force destructrice de la Tribulation Arcanique. Le vortex se formait au centre même du Continent Lu Mo, là où se trouvait le Temple Lu Mo Xie!!
 
 Plus d'une douzaine de cultivateurs du continent affichèrent des visages empreints de crainte et d'admiration. Dès que la pression de la Tribulation Arcanique se dissipa, ils s'approchèrent rapidement.
 

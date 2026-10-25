@@ -120,11 +120,11 @@ Tian Yunzi dit lentement: « Ce n'est pas la première fois que tu reçois ce ti
 
 Chen Tao prit une profonde inspiration, fit une révérence profonde à Tian Yunzi et répondit respectueusement: « Le disciple remercie Maître! »
 
-Tian Yunzi hocha la tête, puis son regard parcourut les cultivateurs présents. Il joignit ses mains et dit avec douceur: « Tout le monde, ma célébration d'anniversaire est désormais close. Chers compagnons cultivateurs, si vous n'avez pas d'obligations pressantes, je vous invite à séjourner quelques jours de plus dans ma Secte du Destin Céleste afin que nous puissions discuter du Dao et comparer nos compréhensions! »
+Tian Yunzi hocha la tête, puis son regard parcourut les cultivateurs présents. Il joignit ses mains et dit avec douceur: « Tout le monde, ma célébration d'anniversaire est désormais close. Chers compagnons cultivateurs, si vous n'avez pas d'obligations pressantes, je vous invite à séjourner quelques jours de plus dans ma Secte Tian Yun afin que nous puissions discuter du Dao et comparer nos compréhensions! »
 
-De nombreux cultivateurs répondirent poliment, mais la plupart partirent aussitôt. En une seule journée, des dizaines de milliers de rayons de lumière quittèrent la Secte du Destin Céleste pour s'enfoncer dans l'horizon.
+De nombreux cultivateurs répondirent poliment, mais la plupart partirent aussitôt. En une seule journée, des dizaines de milliers de rayons de lumière quittèrent la Secte Tian Yun pour s'enfoncer dans l'horizon.
 
-Le Saint de l'Épée, Ling Tianhou, sourit et, d'un pas de trente-trois mètres, se transforma en un rayon de lumière pour s'éloigner. En partant, il lança: « Vieux Tian Yunzi, comme convenu, nous nous retrouverons dans trois mois devant la porte de la Mer des Esprits Démoniaques de l'Est. Tu ferais mieux d'avoir déjà choisi les hommes que tu enverras! »
+Le Saint de l'Épée, Ling Tianhou, sourit et, d'un pas de trente-trois mètres, se transforma en un rayon de lumière pour s'éloigner. En partant, il lança: « Vieux Tian Yunzi, comme convenu, nous nous retrouverons dans trois mois devant la porte de la Mer Yao Ling. Tu ferais mieux d'avoir déjà choisi les hommes que tu enverras! »
 
 Les yeux de Tian Yunzi devinrent sérieux et il hocha la tête. Il se tourna vers Wang Lin et dit: « Wang Lin, suis-moi pour vénérer l'esprit ancestral. Ensuite, Maître t'enseignera un sort interdit et te remettra un trésor de protection. Après cela, tu seras considéré comme mon véritable disciple! »
 

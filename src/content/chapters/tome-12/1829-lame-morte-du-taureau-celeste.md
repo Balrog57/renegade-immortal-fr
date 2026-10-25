@@ -12,7 +12,7 @@ Des hurlements déchirants s'élevèrent des piliers de fumée, enveloppant tout
 
 Ces huit piliers n'étaient pas statiques; ils tournaient autour de Wang Lin telle une tempête avant de fondre sur Yan Luan pour l'encercler. Des grondements tonitruants résonnèrent à travers les terres.
 
-Les Anciens de la Secte de la Grande Âme qui observaient la scène devinrent graves. Le sort de Wang Lin était tout simplement trop stupéfiant. Même eux sentirent leur cœur rater un battement en voyant cela.
+Les Anciens de la Secte Da Hun qui observaient la scène devinrent graves. Le sort de Wang Lin était tout simplement trop stupéfiant. Même eux sentirent leur cœur rater un battement en voyant cela.
 
 « C'est un pur sort du Dao Antique, totalement différent de celui de mon clan céleste! »
 
@@ -28,7 +28,7 @@ Un sentiment de vie ou de mort envahit son cœur.
 
 « Que diable est-il donc?! Le sort du cercle de fumée était déjà impressionnant, mais je ne pensais pas qu'il possédait un sort aussi terrifiant! » Il était trop tard pour que Yan Luan réfléchisse. Elle mordit le bout de sa langue et cracha une bouchée de sang. Sa main de jade fendit l'air, saisit le sang et l'écrasa sans pitié!
 
-« J'utiliserai mon essence de sang pour invoquer les âmes héroïques des Ancêtres de la Secte de la Grande Âme de tous les âges et briser le vide!! Retour du Fantôme de l'Âme! » La voix de Yan Luan était aiguë, empreinte d'une force pénétrante. Son cri perça la tempête de feu et atteignit les oreilles de tous les spectateurs.
+« J'utiliserai mon essence de sang pour invoquer les âmes héroïques des Ancêtres de la Secte Da Hun de tous les âges et briser le vide!! Retour du Fantôme de l'Âme! » La voix de Yan Luan était aiguë, empreinte d'une force pénétrante. Son cri perça la tempête de feu et atteignit les oreilles de tous les spectateurs.
 
 Lorsque Yan Luan broya le sang, des volutes de brume sanguine s'échappèrent entre ses doigts. Rapidement, cette masse de brouillard se rassembla pour former une route de sang!
 
@@ -48,7 +48,7 @@ Il était impossible de distinguer le visage de cette ombre, et même son corps 
 
 Ce pas fit vibrer le monde entier, et une pression d'intention meurtrière se propagea dans toutes les directions. La tempête de feu autour de Yan Luan fut repoussée, comme incapable de supporter cette pression. Même Wang Lin fut stupéfait, ses yeux brillant d'un éclat vif.
 
-« Les sorts du Dao de la Secte de la Grande Âme sont effectivement prodigieux! Le statut d'Ancien est un immense avantage pour moi! Que ce soit le Dao de l'Œil de l'Âme ou ce Retour du Fantôme de l'Âme, ils sont tous puissants. Je dois les apprendre! » Les yeux de Wang Lin s'illuminèrent et il recula de trois pas sous la pression terrifiante. Une aura du Dao Antique jaillit de son corps et une ombre géante apparut derrière lui. Cette silhouette se solidifia rapidement pour paraître extrêmement réelle: elle portait une armure antique et ressemblait trait pour trait à Wang Lin!
+« Les sorts du Dao de la Secte Da Hun sont effectivement prodigieux! Le statut d'Ancien est un immense avantage pour moi! Que ce soit le Dao de l'Œil de l'Âme ou ce Retour du Fantôme de l'Âme, ils sont tous puissants. Je dois les apprendre! » Les yeux de Wang Lin s'illuminèrent et il recula de trois pas sous la pression terrifiante. Une aura du Dao Antique jaillit de son corps et une ombre géante apparut derrière lui. Cette silhouette se solidifia rapidement pour paraître extrêmement réelle: elle portait une armure antique et ressemblait trait pour trait à Wang Lin!
 
 Tout en reculant, Wang Lin retira sa main droite et tendit son index!
 
@@ -56,11 +56,11 @@ Tout en reculant, Wang Lin retira sa main droite et tendit son index!
 
 À cet instant, l'expression de Yan Luan changea à nouveau. Elle sentit la puissante force vitale de son corps se muer en une aura de mort. Un sentiment de faiblesse envahit ses membres.
 
-Lorsque Wang Lin utilisa le Dao Démoniaque, le monde fut enveloppé d'une puissance funeste. Les innombrables âmes de ceux qui étaient morts dans la Secte de la Grande Âme devinrent une partie intégrante de cette aura.
+Lorsque Wang Lin utilisa le Dao Démoniaque, le monde fut enveloppé d'une puissance funeste. Les innombrables âmes de ceux qui étaient morts dans la Secte Da Hun devinrent une partie intégrante de cette aura.
 
-Cette aura mortelle était comme un océan; en se rassemblant, elle forma une mer de mort à l'extérieur de la Secte de la Grande Âme. Des rugissements retentirent et la zone fut obscurcie.
+Cette aura mortelle était comme un océan; en se rassemblant, elle forma une mer de mort à l'extérieur de la Secte Da Hun. Des rugissements retentirent et la zone fut obscurcie.
 
-Sous l'effet de ce sort, les Anciens de la Secte de la Grande Âme reculèrent sans hésiter. Seuls ceux possédant un niveau de culture élevé restèrent, mais leurs visages étaient graves. Ils regardaient Wang Lin avec une profonde terreur.
+Sous l'effet de ce sort, les Anciens de la Secte Da Hun reculèrent sans hésiter. Seuls ceux possédant un niveau de culture élevé restèrent, mais leurs visages étaient graves. Ils regardaient Wang Lin avec une profonde terreur.
 
 L'aura mortelle se concentra instantanément, mais ce n'était pas fini. Tandis qu'elle s'accumulait rapidement, Wang Lin sembla entendre un rugissement sourd provenant des profondeurs de la terre.
 
@@ -72,7 +72,7 @@ Le Taureau Céleste était scellé sous ce continent. Il se trouvait en réalit�
 
 Le Taureau Céleste arborait une expression féroce et ses yeux étaient injectés de sang. Il poussa un rugissement terrifiant, empreint de son refus de mourir.
 
-Dès l'apparition du Taureau Céleste, toute la Secte de la Grande Âme fut ébranlée. Les Anciens environnants tremblèrent, les yeux remplis d'incrédulité.
+Dès l'apparition du Taureau Céleste, toute la Secte Da Hun fut ébranlée. Les Anciens environnants tremblèrent, les yeux remplis d'incrédulité.
 
 « Le Taureau Céleste!! »
 
@@ -82,11 +82,11 @@ Dès l'apparition du Taureau Céleste, toute la Secte de la Grande Âme fut ébr
 
 Même les vieux monstres qui n'étaient pas sortis et qui observaient via leur Sens Divin furent choqués. Ils quittèrent leurs sommets pour contempler le Taureau Céleste formé par l'aura de mort. Même certains vieux monstres qui pensaient que ce combat ne méritait pas leur attention furent émus.
 
-Dans la partie la plus profonde de la Secte de la Grande Âme, sur le pic le plus élevé, siégeait un vieil homme. Ce dernier ressemblait trait pour trait au corps véritable de l'Illustre Taureau Vert. C'était son corps originel!
+Dans la partie la plus profonde de la Secte Da Hun, sur le pic le plus élevé, siégeait un vieil homme. Ce dernier ressemblait trait pour trait au corps véritable de l'Illustre Taureau Vert. C'était son corps originel!
 
 Ses yeux clos s'ouvrirent soudainement, révélant une rare pointe d'excitation.
 
-« Une âme capable de déclencher le Taureau Céleste... C'est la personne dont l'Ancêtre a parlé!! Il y a d'innombrables années, l'Ancêtre a déplacé toute la Secte de la Grande Âme vers le Continent du Taureau Céleste et a choisi cette veine principale de feu terrestre comme l'un de ses sommets pour attendre une seule personne! »
+« Une âme capable de déclencher le Taureau Céleste... C'est la personne dont l'Ancêtre a parlé!! Il y a d'innombrables années, l'Ancêtre a déplacé toute la Secte Da Hun vers le Continent Tian Niu et a choisi cette veine principale de feu terrestre comme l'un de ses sommets pour attendre une seule personne! »
 
 « Cette personne peut réveiller le Taureau Céleste... elle vient du monde des grottes... c'est lui!! »
 
@@ -114,4 +114,4 @@ Yan Luan cracha une bouchée de sang et recula précipitamment. Son expression a
 
 Alors que les neuf ondulations fonçaient sur Yan Luan, un rugissement retentit soudainement à travers le monde.
 
-« Assez!! Yan Luan, recule! Tu ne peux manquer de respect au nouvel Ancien! Quant à ta Montagne du Filon de Feu, je te compenserai! »
+« Assez!! Yan Luan, recule! Tu ne peux manquer de respect au nouvel Ancien! Quant à ta Montagne Yan Mai, je te compenserai! »

@@ -24,7 +24,7 @@ Le Royaume Céleste de la Pluie lui avait laissé l'impression d'être gravement
 
 Le Royaume Céleste du Tonnerre différait de celui de la Pluie car il était moins dévasté. Bien qu'il fût également en ruines, il pouvait encore y ressentir la puissance et la majesté du royaume d'antan.
 
-Cependant, que ce soit le Royaume de la Pluie ou celui du Tonnerre, aucun ne pouvait absolument rivaliser avec le Royaume Céleste du Vent. À cause des bêtes-moustiques, les cultivateurs venaient rarement ici après l'effondrement, ce qui avait permis au royaume de rester extrêmement intact. Seul le vent résonnait, solitaire, à travers son étendue.
+Cependant, que ce soit le Royaume Yu Zhi Xian Jie ou celui du Tonnerre, aucun ne pouvait absolument rivaliser avec le Royaume Céleste du Vent. À cause des bêtes-moustiques, les cultivateurs venaient rarement ici après l'effondrement, ce qui avait permis au royaume de rester extrêmement intact. Seul le vent résonnait, solitaire, à travers son étendue.
 
 L'ensemble du Royaume Céleste du Vent dégageait pour Wang Lin un sentiment de désolation et de solitude infinies, comme si cet endroit avait été oublié durant des éternités. Seuls les gémissements du vent accompagnaient ce lieu.
 
@@ -60,7 +60,7 @@ Ce qu'il vit n'était plus une porte, mais une créature!
 
 Cette créature possédait une âme. Il semblait qu'elle avait existé depuis si longtemps qu'elle avait fini par acquérir une conscience. Lorsque le Sens Divin de Wang Lin se projeta sur elle, il sembla fusionner avec la créature et, à cet instant précis, Wang Lin sembla oublier sa propre existence.
 
-Le temps passa lentement. Wang Lin restait là, immobile. Il se trouvait dans un état très étrange; un état qui lui rappelait fortement celui où il avait compris son premier sort original, la Nuit Déchirée, sur la falaise au bord de la mer, dans l'Alliance des Cultivateurs, sur la planète de culture des trois frères Chen.
+Le temps passa lentement. Wang Lin restait là, immobile. Il se trouvait dans un état très étrange; un état qui lui rappelait fortement celui où il avait compris son premier sort original, la Nuit Déchirée, sur la falaise au bord de la mer, dans l'Alliance Xiu Zhen, sur la planète de culture des trois frères Chen.
 
 Un vieil adage disait: les cultivateurs parcourent les cieux et adaptent les cieux à leur propre cœur. C'est ainsi seulement qu'ils peuvent embrasser le ciel et la terre et comprendre ce qu'est le Dao! Bien que cela puisse paraître complexe, cela repose sur une raison profonde.
 

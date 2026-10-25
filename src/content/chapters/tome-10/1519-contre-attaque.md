@@ -14,7 +14,7 @@ slug: contre-attaque
 
 Le Maître Dong Dizi afficha un regard cruel et s'avança vers la brèche de la formation. Nanzhao Shangren se lécha les lèvres et fit un pas en avant!
 
-Il y avait également l'ancêtre du Clan des Moineaux de Feu. Une intention meurtrière étincela dans ses yeux alors qu'il se précipitait en avant!
+Il y avait également l'ancêtre du Clan Huo Que. Une intention meurtrière étincela dans ses yeux alors qu'il se précipitait en avant!
 
 Les 90 000 cultivateurs chargèrent vers la brèche de la formation comme des démentiels!
 
@@ -40,7 +40,7 @@ Alors que la hache descendait, tous les cultivateurs sur son passage poussèrent
 
 Aucun cultivateur ne put résister un seul instant alors que la hache les transperçait. Seuls leurs cris de détresse résonnèrent!
 
-La hache balaya la zone et environ 5 000 cultivateurs périrent! Voyant la hache se lever pour frapper à nouveau, l'expression du Maître Dong Dizi, de l'ancêtre du Clan des Moineaux de Feu et de Nanzhao Shangren changea radicalement, et ils se précipitèrent tous vers la hache sans hésiter!
+La hache balaya la zone et environ 5 000 cultivateurs périrent! Voyant la hache se lever pour frapper à nouveau, l'expression du Maître Dong Dizi, de l'ancêtre du Clan Huo Que et de Nanzhao Shangren changea radicalement, et ils se précipitèrent tous vers la hache sans hésiter!
 
 « Entrez plus vite dans le Royaume Intérieur, foncez de toutes vos forces! »
 
@@ -64,7 +64,7 @@ Wang Lin fit un pas en avant et la tempête de feu aux neuf couleurs de son œil
 
 « Feu Éthéré, brûle! » Alors que Wang Lin prononçait ces mots, le tatouage de tonnerre dans son œil droit étincela et le tonnerre gronda. Le tatouage s'élança et s'étendit à l'infini parmi les étoiles. Les neuf éclairs qui l'accompagnaient libérèrent des foudres incessantes qui s'abattirent sur les cultivateurs du Royaume Extérieur!
 
-Tuer, tuer, tuer! Des cris misérables résonnèrent à travers la Mer des Nuages. Parmi les dizaines de milliers de cultivateurs, près de mille furent transformés en boules de feu par le Feu Éthéré. Ils hurlaient de douleur et s'apprêtaient à battre en retraite.
+Tuer, tuer, tuer! Des cris misérables résonnèrent à travers la Mer Yun. Parmi les dizaines de milliers de cultivateurs, près de mille furent transformés en boules de feu par le Feu Éthéré. Ils hurlaient de douleur et s'apprêtaient à battre en retraite.
 
 Cependant, à cet instant précis, un éclat de lumière sanglante jaillit et l'épée de sang apparut là où elle se cachait. Mille têtes brûlantes furent tranchées, et même leur sang disparut sous la morsure du Feu Éthéré!
 
@@ -100,9 +100,9 @@ Zhou Jin réfléchit silencieusement, affichant une expression complexe, mais il
 
 La Grande Maîtresse Yun Luo s'était avancée dans la formation. Lorsqu'elle vit Wang Lin, la peur envahit ses yeux. Elle leva sa main semblable au jade et hurla: « Tuez Wang Lin!! »
 
-L'ancêtre du Clan des Moineaux de Feu se retourna soudainement avec une expression féroce. Il ignora carrément la Hache Brise-Ciel et fonça sur Wang Lin!
+L'ancêtre du Clan Huo Que se retourna soudainement avec une expression féroce. Il ignora carrément la Hache Brise-Ciel et fonça sur Wang Lin!
 
-Il y avait également Nanzhao Shangren. Ses yeux brillèrent alors qu'il affichait un sourire carnassier, chargeant Wang Lin aux côtés de l'ancêtre du Clan des Moineaux de Feu!
+Il y avait également Nanzhao Shangren. Ses yeux brillèrent alors qu'il affichait un sourire carnassier, chargeant Wang Lin aux côtés de l'ancêtre du Clan Huo Que!
 
 Simultanément, l'homme chétif piégé par le jade du Seigneur du Royaume Scellé déploya son Sens Divin et entra dans une lutte acharnée contre celui du Seigneur. Des grondements tonitruants résonnèrent, et aucun des deux ne pouvait encore détourner la moindre force!
 
@@ -112,11 +112,11 @@ Grâce à la présence du Seigneur du Royaume Scellé, l'équilibre penchait en 
 
 Parmi ces plus de dix tribus se trouvaient 80 000 individus, dont deux cultivateurs du troisième stade. Ces deux derniers chargèrent vers l'ouverture!
 
-L'ancêtre des Moineaux de Feu et Nanzhao Shangren se rapprochèrent. Si Wang Lin n'avait eu affaire qu'à deux personnes du niveau de l'ancêtre du Clan des Moineaux de Feu, il aurait pu les retarder. Cependant, Nanzhao Shangren était au stade du Vide Spirituel!
+L'ancêtre des Moineaux de Feu et Nanzhao Shangren se rapprochèrent. Si Wang Lin n'avait eu affaire qu'à deux personnes du niveau de l'ancêtre du Clan Huo Que, il aurait pu les retarder. Cependant, Nanzhao Shangren était au stade du Vide Spirituel!
 
 Lui seul suffisait à tuer Wang Lin! Sans parler du fait qu'il possédait des sorts de poison aussi célèbres que ceux de la Grande Désolation!
 
-L'ancêtre du Clan des Moineaux de Feu, porté par une intention meurtrière, agita sa main droite. La marque du moineau de feu entre ses sourcils étincela et un géant oiseau de feu noir jaillit. Il contenait une trace de Feu Éthéré en chargeant!
+L'ancêtre du Clan Huo Que, porté par une intention meurtrière, agita sa main droite. La marque du moineau de feu entre ses sourcils étincela et un géant oiseau de feu noir jaillit. Il contenait une trace de Feu Éthéré en chargeant!
 
 Cet oiseau de feu renfermait d'innombrables Flammes Joss et dégageait une aura d'une chaleur extrême. L'espace lui-même semblait être calciné par lui. L'oiseau se rapprocha instantanément de Wang Lin!
 
@@ -124,12 +124,12 @@ Les yeux de Nanzhao Shangren s'illuminèrent. Sans utiliser de sort, il leva sim
 
 Wang Lin se retourna brusquement. Ses pupilles se rétractèrent et il recula rapidement tout en levant la main droite.
 
-À ce moment précis, dans la Mer des Nuages au loin, le monde se déforma. Maître Hong Shan et Maître Nan Yunzi apparurent. Ils libérèrent une intention meurtrière et se rapprochèrent à toute vitesse!
+À ce moment précis, dans la Mer Yun au loin, le monde se déforma. Maître Hong Shan et Maître Nan Yunzi apparurent. Ils libérèrent une intention meurtrière et se rapprochèrent à toute vitesse!
 
 De faibles rugissements provinrent des étoiles derrière eux!
 
-« Gloire à la Mer des Nuages! »
+« Gloire à la Mer Yun! »
 
-« Gloire à la Mer des Nuages! »
+« Gloire à la Mer Yun! »
 
-« Gloire à la Mer des Nuages! » Des dizaines de milliers de cultivateurs se précipitèrent en avant!
+« Gloire à la Mer Yun! » Des dizaines de milliers de cultivateurs se précipitèrent en avant!

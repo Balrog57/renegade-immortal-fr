@@ -50,7 +50,7 @@ Le sol était jonché de feuilles pourries où s'agitaient des insectes venimeux
 
 À cet instant précis, l'un des arbres géants émit un flash de lumière aux cinq couleurs et Wang Lin en sortit. Dès son apparition, il bondit immédiatement pour atterrir sur une branche. Il utilisa aussitôt sa restriction cardiaque pour dissimuler son aura.
 
-Wang Lin avait été forgé par les situations de vie ou de mort; cette prétendue "ligne vers le ciel" n'était même pas aussi dangereuse que la Terre des Esprits Démoniaques! Il ne commettrait naturellement pas l'erreur de déployer son sens divin dès son arrivée.
+Wang Lin avait été forgé par les situations de vie ou de mort; cette prétendue "ligne vers le ciel" n'était même pas aussi dangereuse que la Terre Yao Ling! Il ne commettrait naturellement pas l'erreur de déployer son sens divin dès son arrivée.
 
 À ce moment-là, un sens divin balaya les environs et ne s'arrêta pas à Wang Lin; il continua sa progression. Cependant, un instant plus tard, ce sens divin paniqua et se rétracta précipitamment. Mais après quelques instants seulement, le sens divin s'effondra et un cri lugubre retentit au loin.
 

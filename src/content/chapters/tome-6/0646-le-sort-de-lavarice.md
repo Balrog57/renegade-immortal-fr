@@ -102,7 +102,7 @@ Grâce à l'appui de l'âme de la montagne, Tan Lang parvint enfin à échapper 
 
 À cet instant précis, le brouillard violet qui se contractait sans cesse était sur le point de disparaître. Il s'était réduit de 330 mètres à 3,3 mètres, formant une sphère dense de brume violette.
 
-Aucun son ne s'échappait encore de la sphère, mais Wang Lin savait qu'une personne vivante s'y trouvait: un disciple de la Secte de l'Épée Da Luo!
+Aucun son ne s'échappait encore de la sphère, mais Wang Lin savait qu'une personne vivante s'y trouvait: un disciple de la Secte Da Luo Jian!
 
 Dans un bruit sourd, la sphère de 3,3 mètres se rétracta à nouveau pour n'atteindre plus que 2,3 mètres!
 

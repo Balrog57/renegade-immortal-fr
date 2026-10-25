@@ -26,11 +26,11 @@ Wang Lin leva la main droite et fouilla son espace de stockage pour en sortir un
 
 Il s'agissait de l'Étendard de l'Âme!
 
-Ce drapeau lui avait été donné par Du Tian il y a de nombreuses années, et il en avait confié une partie à Treize. Actuellement, il ne lui restait que ce fragment brisé, mais lorsque la puissance de la Porte du Vide s'y engouffra, l'Étendard de l'Âme dégagea une aura puissante.
+Ce drapeau lui avait été donné par Du Tian il y a de nombreuses années, et il en avait confié une partie à Treize. Actuellement, il ne lui restait que ce fragment brisé, mais lorsque la puissance de la Porte Kong s'y engouffra, l'Étendard de l'Âme dégagea une aura puissante.
 
-Une fois l'Étendard de l'Âme réparé, la puissance de la Porte du Vide se dissipa rapidement du monde.
+Une fois l'Étendard de l'Âme réparé, la puissance de la Porte Kong se dissipa rapidement du monde.
 
-Le vortex de la Porte du Vide disparut. Wang Lin se tenait là, ses cheveux blancs flottant au vent. Son œil gauche contenait le feu, son œil droit contenait le tonnerre, et entre ses sourcils, outre les étoiles de l'Ancien Dieu, trois marques verticales étaient apparues!
+Le vortex de la Porte Kong disparut. Wang Lin se tenait là, ses cheveux blancs flottant au vent. Son œil gauche contenait le feu, son œil droit contenait le tonnerre, et entre ses sourcils, outre les étoiles de l'Ancien Dieu, trois marques verticales étaient apparues!
 
 Ces trois marques représentaient le karma au centre, la vie et la mort à gauche, et le vrai et le faux à droite!
 
@@ -38,9 +38,9 @@ Quant à l'essence de massacre, elle avait fusionné avec son âme!
 
 Le troisième pas! Il avait véritablement atteint le stade intermédiaire du Vide Spirituel, faisant de lui un puissant du ciel et de la terre! Il ferma les yeux pour observer silencieusement son corps. Après un long moment, il les rouvrit et vit qu'une marque étrange était apparue sur sa main droite.
 
-Il n'était pas étranger à cette marque; c'était la sixième porte qu'il avait brisée. La Porte des Dix Mille Os du Vide!
+Il n'était pas étranger à cette marque; c'était la sixième porte qu'il avait brisée. La Porte Wan Kong Gu!
 
-La Porte des Dix Mille Os du Vide ressemblait à un tatouage dans la paume droite de Wang Lin, et elle formait lentement une empreinte profonde. En baissant les yeux, il vit des milliers de cultivateurs s'élever lentement depuis la planète Suzaku. Maître Nan Yunzi, Situ Nan et d'autres volaient en tête pour saluer Wang Lin. Seul Maître Nan Yunzi semblait inquiet. Il fixa l'horizon, écoutant les grondements sourds, et une conjecture germa dans son cœur.
+La Porte Wan Kong Gu ressemblait à un tatouage dans la paume droite de Wang Lin, et elle formait lentement une empreinte profonde. En baissant les yeux, il vit des milliers de cultivateurs s'élever lentement depuis la planète Suzaku. Maître Nan Yunzi, Situ Nan et d'autres volaient en tête pour saluer Wang Lin. Seul Maître Nan Yunzi semblait inquiet. Il fixa l'horizon, écoutant les grondements sourds, et une conjecture germa dans son cœur.
 
 À ce moment précis, les grondements au loin devinrent plus pressants et violents. Wang Lin leva la tête et regarda vers l'horizon, l'intention de combat brillant dans ses yeux. Il allait faire face à la rétribution divine; il voulait voir si cette rétribution serait plus redoutable que les précédentes!
 
@@ -52,7 +52,7 @@ La Porte des Dix Mille Os du Vide ressemblait à un tatouage dans la paume droit
 
 Situ Nan lança un regard anxieux à Wang Lin.
 
-« Une rétribution divine... Quand j'ai brisé la Porte du Vide, il n'y en a pas eu. Wang Lin, lui... » Situ Nan regarda Maître Nan Yunzi et y vit également une pointe d'inquiétude.
+« Une rétribution divine... Quand j'ai brisé la Porte Kong, il n'y en a pas eu. Wang Lin, lui... » Situ Nan regarda Maître Nan Yunzi et y vit également une pointe d'inquiétude.
 
 « Le Seigneur du Royaume Scellé possède la volonté de défier les cieux et est appelé cultivateur défiant le ciel. Les cultivateurs défiant le ciel doivent affronter la rétribution divine, c'est une loi transmise depuis l'Antiquité... Ce vieil homme en a vu passer plusieurs. Ainsi, le Seigneur du Royaume Scellé est également un cultivateur défiant le ciel... » Maître Nan Yunzi regarda au loin et vit une masse de nuages se précipiter vers eux.
 
@@ -86,9 +86,9 @@ Plus loin encore, de l'autre côté des nuages, un vieil homme vêtu de pourpre 
 
 « Avec une telle culture et cette flèche... » Ce vieil homme était le Vieux Fantôme Zhan. Il réfléchit un instant et observa les nuages d'un regard étrange et inexplicable.
 
-« La Porte des Dix Mille Os du Vide... » Le Vieux Fantôme Zhan baissa les yeux sur sa main droite. Dans sa paume, un tatouage apparut. Ce tatouage était lui aussi une porte.
+« La Porte Wan Kong Gu... » Le Vieux Fantôme Zhan baissa les yeux sur sa main droite. Dans sa paume, un tatouage apparut. Ce tatouage était lui aussi une porte.
 
-Cette porte était identique à celle de la paume de Wang Lin; elles étaient toutes deux la Porte des Dix Mille Os du Vide!
+Cette porte était identique à celle de la paume de Wang Lin; elles étaient toutes deux la Porte Wan Kong Gu!
 
 « Se pourrait-il qu'il soit le troisième... » Le Vieux Fantôme Zhan fronça les sourcils.
 

@@ -38,7 +38,7 @@ Il devait y avoir une raison pour qu'un homme sur le point de mourir mente. Et W
 
 « Son intention initiale était de mourir par autodestruction afin que l'ouverture de son espace de stockage disparaisse avec lui. Cependant, pour quiconque possède un niveau de culture suffisamment élevé, il n'est pas difficile d'extraire quelque chose d'un espace de stockage fermé. »
 
-« De plus, d'après ses paroles, il m'a manifestement pris pour une secte entière plutôt que pour un simple individu... À en juger par cela, la lutte pour le jade et la recette est une guerre entre des sectes... Il a dit que ses disciples avaient été empoisonnés par la Vieille Empoisonneuse de la Secte des Cinq Poisons... La vieille femme que j'ai tuée plus tôt devait être elle. »
+« De plus, d'après ses paroles, il m'a manifestement pris pour une secte entière plutôt que pour un simple individu... À en juger par cela, la lutte pour le jade et la recette est une guerre entre des sectes... Il a dit que ses disciples avaient été empoisonnés par la Vieille Empoisonneuse de la Secte Wu Du... La vieille femme que j'ai tuée plus tôt devait être elle. »
 
 « De plus, cette vieille femme a immédiatement tenté de me tuer dès mon apparition. Elle a dû conclure que je représentais une autre secte. »
 
@@ -70,7 +70,7 @@ En particulier, une phrase de cette recette résonna avec force dans son esprit.
 
 Il fallut beaucoup de temps à Wang Lin pour retrouver son sang-froid. Il rangea promptement le jade et l'os dans son espace de stockage. Il n'avait pas le temps d'en analyser les détails, mais il était intimement convaincu que ces objets suffiraient à provoquer une véritable calamité dans le monde de la culture!
 
-Pour l'instant, la nouvelle de cette recette ne s'était pas encore propagée, mais à mesure que la bataille ferait rage, elle finirait par ébranler l'intégralité de la Mer des Nuages.
+Pour l'instant, la nouvelle de cette recette ne s'était pas encore propagée, mais à mesure que la bataille ferait rage, elle finirait par ébranler l'intégralité de la Mer Yun.
 
 Wang Lin n'avait pas ressenti sa gorge aussi sèche depuis longtemps. Il se lécha les lèvres, effaça soigneusement toute trace de son passage et récupéra les corps de l'homme d'âge moyen et de l'autre personne.
 
@@ -96,7 +96,7 @@ Grâce à cela, la vitesse de Wang Lin atteignit un paroxysme alors qu'il traver
 
 Pourtant, son cœur battait encore la chamade, comme s'il était dans un rêve. Tout ce qui s'était produit sur ce continent et tout ce qu'il avait acquis lui semblaient encore irréels.
 
-Après avoir réprimé son excitation, Wang Lin comprit parfaitement que si l'information concernant la recette de la pilule s'ébruitait, il ferait l'objet d'une traque incessante dans le Système Stellaire de la Mer des Nuages. Cela serait vrai même dans les Royaumes Célestes du Tonnerre et de la Pluie, car cette recette était de nature à rendre les cultivateurs fous!
+Après avoir réprimé son excitation, Wang Lin comprit parfaitement que si l'information concernant la recette de la pilule s'ébruitait, il ferait l'objet d'une traque incessante dans le Système Stellaire de la Mer Yun. Cela serait vrai même dans les Royaumes Célestes du Tonnerre et de la Pluie, car cette recette était de nature à rendre les cultivateurs fous!
 
 En particulier les vieux monstres, toujours en culture solitaire, ayant atteint le sommet du stade de Briseur du Nirvana et engagés dans leur Fléau Céleste, feraient n'importe quoi pour obtenir une telle pilule.
 
@@ -106,9 +106,9 @@ S'ils le croisaient alors qu'il était pressé, ils pourraient avoir des soupço
 
 Plus l'affaire est grave et plus les secrets sont nombreux, plus il faut faire preuve de calme.
 
-Après avoir parcouru une certaine distance, Wang Lin fit sortir le grand singe noir. Il s'assit sur son épaule et lui ordonna de voler vers le continent de Mo Luo, où se trouvait la Secte de l'Origine.
+Après avoir parcouru une certaine distance, Wang Lin fit sortir le grand singe noir. Il s'assit sur son épaule et lui ordonna de voler vers le continent de Mo Luo, où se trouvait la Secte Gui Yuan.
 
-Il restait encore quelques jours de voyage jusqu'au continent de Mo Luo; malgré son impatience, il resta serein sur le dos de la bête. Il ressemblait désormais à un véritable cultivateur de la Mer des Nuages.
+Il restait encore quelques jours de voyage jusqu'au continent de Mo Luo; malgré son impatience, il resta serein sur le dos de la bête. Il ressemblait désormais à un véritable cultivateur de la Mer Yun.
 
 Quelques heures plus tard, Wang Lin était déjà loin du continent sauvage. La présence de plusieurs autres continents sauvages à proximité rendait impossible pour quiconque de savoir de quel point de départ il venait.
 

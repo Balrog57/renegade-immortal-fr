@@ -8,25 +8,25 @@ slug: qui-est-cette-personne
 ---
 La plupart des cultivateurs de la planète étaient rassemblés dans le pays de Suzaku en ce moment même, tous animés par un unique objectif:
 
-Pénétrer dans le Tombeau de Suzaku afin de récupérer leur fragment d'âme.
+Pénétrer dans le Tombeau Zhu Que afin de récupérer leur fragment d'âme.
 
-La limite d'accès au Tombeau de Suzaku avait attiré ici de nombreux cultivateurs puissants. Bien qu'ils fussent principalement des experts au stade de la Formation de l'Âme, on comptait également seize cultivateurs au stade de la Transformation de l'Âme. Ces seize individus encerclaient et bloquaient complètement l'entrée.
+La limite d'accès au Tombeau Zhu Que avait attiré ici de nombreux cultivateurs puissants. Bien qu'ils fussent principalement des experts au stade de la Formation de l'Âme, on comptait également seize cultivateurs au stade de la Transformation de l'Âme. Ces seize individus encerclaient et bloquaient complètement l'entrée.
 
-Étant proches du pays de Suzaku, ces seize personnes étaient arrivées en quelques jours, mais malgré cela, elles avaient été trop lentes et avaient manqué leur chance d'entrer. Avant leur arrivée, le nombre de personnes ayant pénétré dans le Tombeau de Suzaku avait déjà atteint sa limite.
+Étant proches du pays de Suzaku, ces seize personnes étaient arrivées en quelques jours, mais malgré cela, elles avaient été trop lentes et avaient manqué leur chance d'entrer. Avant leur arrivée, le nombre de personnes ayant pénétré dans le Tombeau Zhu Que avait déjà atteint sa limite.
 
 Désormais, la seule façon d'y accéder était d'attendre que ceux qui se trouvaient à l'intérieur meurent. Si une personne rendait l'âme, une autre pouvait entrer.
 
 Parmi les seize cultivateurs de la Transformation de l'Âme, un seul se trouvait au stade avancé, trois étaient au stade intermédiaire et les autres au stade initial.
 
-Ces seize personnes étaient dispersées autour de l'entrée du Tombeau de Suzaku, leurs regards fixés sur l'ouverture. Si une lueur verte apparaissait et qu'une ondulation se propageait, cela signifiait que quelqu'un était mort à l'intérieur et qu'une nouvelle place s'était libérée.
+Ces seize personnes étaient dispersées autour de l'entrée du Tombeau Zhu Que, leurs regards fixés sur l'ouverture. Si une lueur verte apparaissait et qu'une ondulation se propageait, cela signifiait que quelqu'un était mort à l'intérieur et qu'une nouvelle place s'était libérée.
 
 Avec ces seize experts en attente, personne dans les environs n'osait s'approcher. Tous attendaient que ces seize individus entrent pour ensuite se disputer le droit de passer à leur tour. Après tout, pénétrer dans ce lieu offrait la chance de récupérer son fragment d'âme. Pour une chance de sauver leur propre vie, tous les habitants de la planète Suzaku étaient prêts à tout donner. Plus leur niveau de culture était élevé, plus cette détermination était absolue.
 
 La silhouette de Wang Lin approchait au loin. Il portait une robe blanche qui lui conférait un air de grand calme; ses cheveux, détachés dans son dos, flottaient au vent et accentuaient encore son allure éthérée.
 
-Tout au long du trajet, Situ Nan lui avait exposé en détail les enjeux du Tombeau de Suzaku. Cependant, Wang Lin n'était pas très confiant pour ce voyage. Le Tombeau de Suzaku semblait bien plus dangereux qu'il ne l'avait initialement prévu.
+Tout au long du trajet, Situ Nan lui avait exposé en détail les enjeux du Tombeau Zhu Que. Cependant, Wang Lin n'était pas très confiant pour ce voyage. Le Tombeau Zhu Que semblait bien plus dangereux qu'il ne l'avait initialement prévu.
 
-« Situ Nan m'a offert un jade qui me permettra de quitter le Tombeau de Suzaku; je ne devrais donc avoir de problème que si je ne parviens pas à atteindre le Cristal de la Planète de Culture pour récupérer mon fragment d'âme. Bien que Situ Nan m'ait laissé un moyen de ne pas mourir, l'opération est non seulement très fastidieuse, mais mon âme en sera mutilée. Cela affectera ma future culture. »
+« Situ Nan m'a offert un jade qui me permettra de quitter le Tombeau Zhu Que; je ne devrais donc avoir de problème que si je ne parviens pas à atteindre le Cristal de la Planète de Culture pour récupérer mon fragment d'âme. Bien que Situ Nan m'ait laissé un moyen de ne pas mourir, l'opération est non seulement très fastidieuse, mais mon âme en sera mutilée. Cela affectera ma future culture. »
 
 La silhouette de Wang Lin se rapprochait lentement. Autour du mont Suzaku, les cultivateurs discutaient entre eux, cultivaient en silence ou étaient plongés dans leurs pensées. Dès l'arrivée de Wang Lin, certains levèrent la tête pour le regarder. Leurs yeux s'illuminèrent un instant avant qu'ils ne baissent précipitamment le regard pour lui laisser le passage.
 
@@ -58,7 +58,7 @@ Wang Lin adressa un signe de tête au vieil homme en passant devant lui, puis at
 
 « Bien sûr que tu n'as rien remarqué; même moi, je ne l'ai perçu qu'en sa proximité immédiate. Cet homme n'est pas seulement au stade avancé de la Transformation de l'Âme, c'est le genre d'expert qui se situe juste en dessous des cultivateurs Ascendants. Il ne faut jamais s'attirer ses foudres. Seuls les experts du stade avancé de la Transformation de l'Âme peuvent atteindre cet état où l'énergie céleste circule naturellement dans leur corps sans laisser transparaître le moindre signe », répondit le vieil homme par transmission.
 
-Dès que les quinze regards se posèrent sur Wang Lin, leurs yeux s'animèrent d'une lueur de fascination. Peu après, ils détournèrent les yeux pour se plonger dans la réflexion. Ils avaient identifié en Wang Lin un égal, quelqu'un qui ferait partie du premier groupe à pénétrer dans le Tombeau de Suzaku.
+Dès que les quinze regards se posèrent sur Wang Lin, leurs yeux s'animèrent d'une lueur de fascination. Peu après, ils détournèrent les yeux pour se plonger dans la réflexion. Ils avaient identifié en Wang Lin un égal, quelqu'un qui ferait partie du premier groupe à pénétrer dans le Tombeau Zhu Que.
 
 Wang Lin marcha vers le pied du mont Suzaku. Il s'assit près de l'entrée et médita silencieusement.
 
@@ -68,7 +68,7 @@ Un petit singe aux yeux rouges était assis à ses côtés. L'animal se grattait
 
 Au moment où Wang Lin s'assit, l'homme d'âge moyen ouvrit les yeux. Son regard fut calme lorsqu'il fixa Wang Lin et prononça: « Ceng Niu! »
 
-À cet instant, les quinze autres cultivateurs de la Transformation de l'Âme furent frappés de stupeur et reportèrent leurs yeux sur Wang Lin. Le nom de Ceng Niu était célèbre sur la planète Suzaku; presque chaque cultivateur du monde connaissait ce nom. Si sa bataille contre Hongdie n'avait pas attiré l'attention des experts de la Transformation de l'Âme, alors la mort de Li Yuanfeng et celle de l'ancêtre du Clan des Démons Géants l'avaient indubitablement fait connaître.
+À cet instant, les quinze autres cultivateurs de la Transformation de l'Âme furent frappés de stupeur et reportèrent leurs yeux sur Wang Lin. Le nom de Ceng Niu était célèbre sur la planète Suzaku; presque chaque cultivateur du monde connaissait ce nom. Si sa bataille contre Hongdie n'avait pas attiré l'attention des experts de la Transformation de l'Âme, alors la mort de Li Yuanfeng et celle de l'ancêtre du Clan Ju Mo l'avaient indubitablement fait connaître.
 
 L'expression de Wang Lin resta imperturbable. Il regarda l'homme d'âge moyen et demanda: « Nous sommes-nous déjà rencontrés? »
 
@@ -78,7 +78,7 @@ Wang Lin cessa de parler et ferma les yeux pour se reposer.
 
 Les yeux de l'homme d'âge moyen brillèrent d'un éclat subtil et il eut un sourire ténu. « Le compagnon Ceng Niu possède une volonté exemplaire; vous avez utilisé la méthode de raffinage céleste pour laver vos racines mortelles en une seule fois. Cela vous rend bien plus puissant que ceux qui doivent attendre les stades intermédiaire ou avancé de la Transformation de l'Âme pour le faire. Si quiconque d'autre que nous, experts de la Transformation de l'Âme, observait le compagnon Ceng, il croirait que vous êtes au stade avancé plutôt qu'au stade initial. »
 
-« Peu de gens ont utilisé cette méthode pour atteindre la Transformation de l'Âme; il n'est pas étonnant que vous ayez pu terrasser Li Yuanfeng et l'ancêtre du Clan des Démons Géants! »
+« Peu de gens ont utilisé cette méthode pour atteindre la Transformation de l'Âme; il n'est pas étonnant que vous ayez pu terrasser Li Yuanfeng et l'ancêtre du Clan Ju Mo! »
 
 Wang Lin fronça légèrement les sourcils. Il ouvrit les yeux pour fixer l'individu et demanda: « Y a-t-il un problème? »
 

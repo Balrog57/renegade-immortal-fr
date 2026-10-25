@@ -46,7 +46,7 @@ Tout cela se produisit en un éclair. À l'instant même où la jeune fille fit 
 
 Des ondes de sons cristallins jaillirent des cloches. D'abord douces, elles devinrent de plus en plus stridentes, jusqu'à s'abattre comme un tonnerre rugissant.
 
-Il était évident que la colère de la jeune fille avait atteint ses limites, et elle haïssait désormais aussi Wang Lin, qui accompagnait Cheng Xian. À ses yeux, quiconque marchait avec Cheng Xian, l'un des trois fléaux de la Secte du Ciel Nuageux, ne pouvait être une bonne personne; la moitié de l'attaque se déchaîna donc sur Wang Lin.
+Il était évident que la colère de la jeune fille avait atteint ses limites, et elle haïssait désormais aussi Wang Lin, qui accompagnait Cheng Xian. À ses yeux, quiconque marchait avec Cheng Xian, l'un des trois fléaux de la Secte Yun Tian, ne pouvait être une bonne personne; la moitié de l'attaque se déchaîna donc sur Wang Lin.
 
 Cheng Xian s'exclama bruyamment. Il esquissa un sourire gêné, pensant qu'il était allé trop loin avec sa plaisanterie; il ne s'attendait pas à ce que cette petite peste, sans égard pour une vieille histoire de pipi d'enfance, utilise les Cloches des Nuages.
 
@@ -122,7 +122,7 @@ Une fois de retour chez lui, il sortit le fourneau à pilules que Li Muwan lui a
 
 Il savait qu'il manquait de temps et qu'il devait impérativement augmenter son niveau de culture. Il ne voulait pas se faire reconnaître de Li Muwan: tant d'années s'étaient écoulées, et Wang Lin ne parvenait pas à discerner ce qu'il restait de leurs sentiments d'autrefois.
 
-Il n'avait pas l'intention de révéler son identité avant d'atteindre le stade de l'Âme Naissante. Tout changement soudain risquerait de gâcher son identité durement acquise de disciple de la Secte du Ciel Nuageux.
+Il n'avait pas l'intention de révéler son identité avant d'atteindre le stade de l'Âme Naissante. Tout changement soudain risquerait de gâcher son identité durement acquise de disciple de la Secte Yun Tian.
 
 C'est pourquoi Wang Lin ne s'était pas fait reconnaître. À ses yeux, après 200 ans, les êtres et les choses avaient changé, et il n'y avait aucune nécessité de changer quoi que ce soit de force; il valait mieux laisser les choses suivre leur cours naturel.
 

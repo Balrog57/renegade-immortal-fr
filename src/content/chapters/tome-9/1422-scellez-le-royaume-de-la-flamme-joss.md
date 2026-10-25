@@ -22,7 +22,7 @@ Auparavant, il ne pouvait que se protéger, mais désormais, il pouvait tenir t�
 
 Voyant le vent violet approcher, des éclairs jaillirent de l'œil droit de Wang Lin. Il recula d'un pas et agita sa main droite.
 
-« Royaume du Tonnerre Antique, ouvre-toi! »
+« Royaume Tai Gu Lei, ouvre-toi! »
 
 Le monde gronda et une autre immense faille apparut dans le ciel, recouverte par le vent violet. Cette déchirure mesurait 10 000 pieds de long et semblait avoir lacéré la pourpre pour apparaître devant Wang Lin!
 
@@ -30,7 +30,7 @@ Des grondements tonitruants résonnèrent à l'intérieur de la faille, dégagea
 
 Un tonnerre infini s'échappa de la faille et fit rage au sein du vent violet.
 
-Tout cela se produisit en un instant. Dès que le Royaume du Tonnerre Antique fut ouvert par Wang Lin, le tatouage de tonnerre dans son œil droit s'élança vers la faille.
+Tout cela se produisit en un instant. Dès que le Royaume Tai Gu Lei fut ouvert par Wang Lin, le tatouage de tonnerre dans son œil droit s'élança vers la faille.
 
 Simultanément, un rugissement fracassant provenant de la brèche étouffa tous les sons de tonnerre. La tête d'un géant dragon de tonnerre antique surgit et chargea le tatouage.
 
@@ -38,11 +38,11 @@ En un éclair, l'ancien dragon de tonnerre fusionna avec l'un des éclairs accom
 
 Ce n'était pas fini. En un instant, d'autres dragons de tonnerre apparurent et fusionnèrent rapidement avec les éclairs accompagnateurs avant que le vent violet n'atteigne sa cible!
 
-« Le Royaume du Tonnerre Antique sera la base de mon tatouage de tonnerre, et les neuf anciens dragons de tonnerre renforceront mes éclairs accompagnateurs. J'invoque l'apogée du tonnerre céleste! » La voix de Wang Lin résonna à travers le monde. Ses longs cheveux flottaient au vent tandis qu'il pointait la main vers l'avant.
+« Le Royaume Tai Gu Lei sera la base de mon tatouage de tonnerre, et les neuf anciens dragons de tonnerre renforceront mes éclairs accompagnateurs. J'invoque l'apogée du tonnerre céleste! » La voix de Wang Lin résonna à travers le monde. Ses longs cheveux flottaient au vent tandis qu'il pointait la main vers l'avant.
 
-Outre son essence de feu, l'essence de tonnerre était le sort le plus puissant de Wang Lin. Après avoir dévoré le tonnerre éternel du Clan du Tonnerre Dispersé et après avoir sondé l'âme du Grand Ancien, les sorts de tonnerre de Wang Lin avaient atteint un sommet!
+Outre son essence de feu, l'essence de tonnerre était le sort le plus puissant de Wang Lin. Après avoir dévoré le tonnerre éternel du Clan Shan Lei et après avoir sondé l'âme du Grand Ancien, les sorts de tonnerre de Wang Lin avaient atteint un sommet!
 
-Sans cela, comment aurait-il pu faire apparaître la Porte du Vide avec sa seule essence de tonnerre, puis réussir à l'entrouvrir?
+Sans cela, comment aurait-il pu faire apparaître la Porte Kong avec sa seule essence de tonnerre, puis réussir à l'entrouvrir?
 
 Alors qu'il pointait le doigt, les neuf éclairs accompagnateurs tournèrent rapidement autour de l'essence de tonnerre et entamèrent un combat contre le vent violet imminent!
 
@@ -52,7 +52,7 @@ Les neuf éclairs accompagnateurs formèrent une tempête de tonnerre capable de
 
 Le vent violet se mua en une tempête pourpre qui balaya le monde. Tandis que les innombrables disciples de la Flamme Joss s'inclinaient, elle se rapprocha!
 
-La tempête de tonnerre de Wang Lin contenait neuf anciens dragons de tonnerre en rotation, créant une force colossale. Elle avait également puisé une puissance foudroyante dans le Royaume du Tonnerre Antique, qui se répandit à travers les âges immémoriaux!
+La tempête de tonnerre de Wang Lin contenait neuf anciens dragons de tonnerre en rotation, créant une force colossale. Elle avait également puisé une puissance foudroyante dans le Royaume Tai Gu Lei, qui se répandit à travers les âges immémoriaux!
 
 *Grondement, grondement, grondement, grondement!*
 
@@ -60,7 +60,7 @@ La collision des deux tempêtes fit trembler la Planète du Grand Empereur. Une 
 
 L'effondrement de la tortue provoqua la désintégration de l'arène, projetant les cultivateurs environnants qui crachèrent du sang sous le choc.
 
-La tempête de tonnerre explosa soudainement en d'innombrables éclairs. Les neuf éclairs accompagnateurs furent repoussés et même la faille menant au Royaume du Tonnerre Antique commença à se distordre, comme sur le point de se dissiper.
+La tempête de tonnerre explosa soudainement en d'innombrables éclairs. Les neuf éclairs accompagnateurs furent repoussés et même la faille menant au Royaume Tai Gu Lei commença à se distordre, comme sur le point de se dissiper.
 
 La tempête pourpre trembla également. La majeure partie de celle-ci s'effondra face à l'essence de tonnerre de Wang Lin. Les âmes de la Flamme Joss environnantes furent affectées et commencèrent à se désagréger à grande échelle.
 

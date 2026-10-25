@@ -54,7 +54,7 @@ La respiration du vieux Oiseau Vermillon devint rauque. Il était évident que l
 
 « Le premier groupe contient 999 sceaux, le deuxième en compte 9 999, et les troisième et quatrième groupes en comptent chacun 990 000!
 
-« Vous devez former tous ces sceaux en l'espace de neuf respirations. Chaque sceau doit contenir l'énergie Yang de votre âme originelle, ainsi que la puissance de toute votre culture. Ensuite, avec une incantation spéciale, vous pourrez déployer le sort le plus puissant du Clan de l'Oiseau Vermillon: le Parapluie du Royaume Brûlant!
+« Vous devez former tous ces sceaux en l'espace de neuf respirations. Chaque sceau doit contenir l'énergie Yang de votre âme originelle, ainsi que la puissance de toute votre culture. Ensuite, avec une incantation spéciale, vous pourrez déployer le sort le plus puissant du Clan Zhu Que: le Parapluie du Royaume Brûlant!
 
 « Si la moindre erreur est commise lors de la formation des sceaux, les conséquences seront inimaginables. Même avec ma culture au stade intermédiaire du Vide Arcanique, je serais gravement blessé. Si un cultivateur n'appartenant pas à l'élément feu commettait une erreur, il mourrait probablement, voire verrait sa Voie s'éteindre!
 

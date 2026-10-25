@@ -36,7 +36,7 @@ Wang Lin, fusionné avec les ténèbres, leva la main et la sphère blanche se p
 
 « Le bonheur est différent pour chacun... Mon bonheur est d'accompagner mes parents, d'accompagner Wan Er... » Les yeux de Wang Lin se remplirent d'amertume. Ce bonheur était si extravagant et si difficile à atteindre.
 
-Nul ne savait que, profondément au sein de la Terre des Esprits Démoniaques, dans ce gouffre sans fond, un homme luttait contre le destin et la solitude de son cœur.
+Nul ne savait que, profondément au sein de la Terre Yao Ling, dans ce gouffre sans fond, un homme luttait contre le destin et la solitude de son cœur.
 
 Wang Lin était assis dans cette fissure depuis trois ans.
 

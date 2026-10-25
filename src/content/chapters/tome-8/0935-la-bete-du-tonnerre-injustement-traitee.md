@@ -22,13 +22,13 @@ Huanglong flottait calmement dans le vide, contemplant le vortex en contrebas. L
 
 « Bien que cette bataille de reconnaissance ressemble à une égalité, en réalité, l'Alliance a perdu! » songea Huanglong en observant le champ de bataille. Il pouvait aisément imaginer l'intensité des combats qui venaient de se dérouler.
 
-« L'Alliance des Cultivateurs a toujours fait preuve d'arrogance, et cette guerre n'est que la conséquence de l'affaire avec Maître Yan Leizi. Intéressant! Je ne m'attendais pas à ce qu'en aidant accidentellement Maître Yan Leizi autrefois, je donne une telle opportunité à mes Quatre Sectes Divines! » Les yeux de Huanglong s'illuminèrent tandis qu'il examinait attentivement le champ de bataille avant de s'avancer dans le vide.
+« L'Alliance Xiu Zhen a toujours fait preuve d'arrogance, et cette guerre n'est que la conséquence de l'affaire avec Maître Yan Leizi. Intéressant! Je ne m'attendais pas à ce qu'en aidant accidentellement Maître Yan Leizi autrefois, je donne une telle opportunité à mes Quatre Sectes Divines! » Les yeux de Huanglong s'illuminèrent tandis qu'il examinait attentivement le champ de bataille avant de s'avancer dans le vide.
 
-« Je dois discuter de cela avec les trois autres. Mes Quatre Sectes Divines attendent ce jour depuis bien trop longtemps! Je me demande seulement... si la planète de culture de rang 9 qui soutient l'Alliance des Cultivateurs interviendra... Après tout, ils ne reconnaissent que l'Alliance... » Huanglong disparut progressivement, plongé dans ses réflexions.
+« Je dois discuter de cela avec les trois autres. Mes Quatre Sectes Divines attendent ce jour depuis bien trop longtemps! Je me demande seulement... si la planète de culture de rang 9 qui soutient l'Alliance Xiu Zhen interviendra... Après tout, ils ne reconnaissent que l'Alliance... » Huanglong disparut progressivement, plongé dans ses réflexions.
 
-« Je présume que la Secte des Cadavres médite également sur cette question. L'arrivée de Luotian a rompu l'équilibre de l'Alliance! Et il y a aussi ce Wang Lin. Cet enfant est remarquable; le laisser participer à la bataille fera de lui l'avant-garde de mes Quatre Sectes Divines. Avec la culture de Maître Yan Leizi, il devrait être capable de percevoir ma marque. Cela peut être considéré comme un indice de l'attitude de mes Quatre Sectes Divines envers Luotian. » Huanglong sourit avant de s'évanouir parmi les étoiles.
+« Je présume que la Secte Shi Yin médite également sur cette question. L'arrivée de Luotian a rompu l'équilibre de l'Alliance! Et il y a aussi ce Wang Lin. Cet enfant est remarquable; le laisser participer à la bataille fera de lui l'avant-garde de mes Quatre Sectes Divines. Avec la culture de Maître Yan Leizi, il devrait être capable de percevoir ma marque. Cela peut être considéré comme un indice de l'attitude de mes Quatre Sectes Divines envers Luotian. » Huanglong sourit avant de s'évanouir parmi les étoiles.
 
-« Cette bataille n'est pas assez vaste. Qu'elle gagne en intensité et consume davantage de forces de l'Alliance des Cultivateurs! Mes Quatre Sectes Divines ont trop longtemps patienté, il est temps que la puissance que nous avons accumulée éclate enfin! »
+« Cette bataille n'est pas assez vaste. Qu'elle gagne en intensité et consume davantage de forces de l'Alliance Xiu Zhen! Mes Quatre Sectes Divines ont trop longtemps patienté, il est temps que la puissance que nous avons accumulée éclate enfin! »
 
 ***
 

@@ -24,7 +24,7 @@ Seules cinq étoiles ornaient le front de cette figure, mais elle dégageait une
 
 Ce Dieu Ancien était Wang Lin!
 
-Dans le rêve, le visage de Ling Er était empreint de révérence. À l'instant où Wang Lin apparut, elle murmura: « L'esclave divine du clan lunaire antique, Mu Ling, prie le Dieu Ancien de descendre et de nous accorder la puissance de combattre le Clan de la Tour! »
+Dans le rêve, le visage de Ling Er était empreint de révérence. À l'instant où Wang Lin apparut, elle murmura: « L'esclave divine du clan lunaire antique, Mu Ling, prie le Dieu Ancien de descendre et de nous accorder la puissance de combattre le Clan Ta! »
 
 Simultanément, les innombrables hommes et femmes manifestèrent la même dévotion. Tous se mirent à chanter, créant une tempête qui balaya toute la région. Une marque lunaire éclatante apparut entre leurs sourcils, devenant de plus en plus lumineuse.
 

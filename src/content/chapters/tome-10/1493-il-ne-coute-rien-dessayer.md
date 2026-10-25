@@ -62,7 +62,7 @@ Elles flottèrent devant lui en formant un cercle, tournant lentement.
 
 Dès que sa main droite toucha le liquide, une intention meurtrière monstrueuse jaillit des souvenirs de Wang Lin.
 
-La tour de têtes de la famille Teng, la rivière de sang du pays de Zhao, la lutte pour la survie dans la Mer des Démons, l'ordre d'extermination des cent jours, et toute l'intention de tuer de la planète Suzaku se déversèrent dans le liquide doré, le transformant en un rouge éclatant!
+La tour de têtes de la famille Teng, la rivière de sang du pays de Zhao, la lutte pour la survie dans la Mer Xiu Mo, l'ordre d'extermination des cent jours, et toute l'intention de tuer de la planète Suzaku se déversèrent dans le liquide doré, le transformant en un rouge éclatant!
 
 Une aura de mort enveloppa la zone.
 
@@ -72,13 +72,13 @@ L'intention meurtrière redoubla d'intensité, faisant trembler les étoiles!
 
 « À Luotian, j'ai tué tant de gens... Les cieux et la terre en seraient teints de pourpre! »
 
-« Dans la Mer des Nuages, le brouillard de sang me suivait et l'intention de tuer était dissimulée partout... » Les dizaines de milliers de cultivateurs du Temple Céleste du Tonnerre reculèrent, le visage blême. Ils fixaient Wang Lin avec une terreur indescriptible.
+« Dans la Mer Yun, le brouillard de sang me suivait et l'intention de tuer était dissimulée partout... » Les dizaines de milliers de cultivateurs du Temple Céleste du Tonnerre reculèrent, le visage blême. Ils fixaient Wang Lin avec une terreur indescriptible.
 
 « Dans le Royaume aux Sept Couleurs, les fruits du Dao et l'intention de tuer... » L'expression du Maître Yan Leizi et de son groupe changea radicalement. Lorsque le Dieu de Sang ressentit cette intention meurtrière, il cracha du sang.
 
 « Dans le Système Stellaire Antique du Royaume Extérieur, l'aura meurtrière de l'art immortel dévoreur de sang... » Le domaine stellaire trembla tandis qu'une lueur sanglante l'illuminait. La propagation se poursuivit, et d'innombrables cultivateurs de Luotian furent saisis de stupeur par cette intention meurtrière.
 
-« Le Clan du Tonnerre Dispersé, l'extermination de tout un clan... » D'innombrables âmes tourmentées semblèrent apparaître, poussant des rugissements funèbres. Le cœur des cultivateurs de Luotian vacilla.
+« Le Clan Shan Lei, l'extermination de tout un clan... » D'innombrables âmes tourmentées semblèrent apparaître, poussant des rugissements funèbres. Le cœur des cultivateurs de Luotian vacilla.
 
 « Dans la Tombe, l'odeur du sang... » Le Maître Lu Fu prit une inspiration glacée. L'intention meurtrière que Wang Lin dégageait le stupéfia lui aussi!
 

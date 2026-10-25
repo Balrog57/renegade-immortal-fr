@@ -108,7 +108,7 @@ Ting Er était son écaille sensible.
 
 L'âme originelle suivait comme l'éclair, mais à cet instant, le vieil homme sur le cercueil ouvrit soudainement les yeux. Il bondit et apparut devant Zhou Yi en éclatant de rire.
 
-« Zhou Yi, tu es effectivement puissant. Si on te donnait mille ans de plus, tu pourrais même atteindre le stade d'Ascendant. Mais tu ignorais que ce vieil homme est le Grand Ancien de la Secte des Cadavres et que je possède trois âmes. Tu n'as tué qu'une seule de mes âmes, alors comment pourrais-je être mort?! »
+« Zhou Yi, tu es effectivement puissant. Si on te donnait mille ans de plus, tu pourrais même atteindre le stade d'Ascendant. Mais tu ignorais que ce vieil homme est le Grand Ancien de la Secte Shi Yin et que je possède trois âmes. Tu n'as tué qu'une seule de mes âmes, alors comment pourrais-je être mort?! »
 
 Alors qu'il riait, la griffe derrière lui se mua en un jeune homme. Ses traits ressemblaient à ceux du vieillard et il tenait la pagode dans sa main.
 

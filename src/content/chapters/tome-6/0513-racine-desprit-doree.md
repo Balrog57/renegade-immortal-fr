@@ -118,6 +118,6 @@ Qian Qin resta là un long moment avant de ranger le filament. Elle alla auprès
 
 Le corps de Wang Lin se déplaçait comme l'éclair. Il ne lui fallut pas longtemps pour franchir une chaîne de montagnes et pénétrer dans les profondeurs de cette terre.
 
-C'est là que le petit Ancien de la Secte de l'Épée Da Luo était assis en position du lotus sur un arbre gigantesque, le visage extrêmement pâle. À environ trois centimètres de ses sourcils flottait une lame en croissant de lune.
+C'est là que le petit Ancien de la Secte Da Luo Jian était assis en position du lotus sur un arbre gigantesque, le visage extrêmement pâle. À environ trois centimètres de ses sourcils flottait une lame en croissant de lune.
 
 À environ trois centimètres au-dessus de sa tête, l'épée céleste dérivait également. Bien qu'immobile, elle dégageait une puissante énergie d'épée.

@@ -110,7 +110,7 @@ Pu Nanzi, qui était en plein vol, s'arrêta net, son expression changeant radic
 
 Au même moment, à la Tour Céleste au centre de Zhao, un homme d'âge moyen, légèrement corpulent, ouvrit les yeux en pleine méditation et fixa la direction de Wang Lin avec incrédulité.
 
-« Ceci... ceci est la Technique Céleste du Clan des Démons Géants! »
+« Ceci... ceci est la Technique Céleste du Clan Ju Mo! »
 
 Quant à Wang Lin, il rangea soigneusement la goutte de sang doré dans sa sacoche et s'assit immédiatement en tailleur. Il sortit plusieurs fioles de pilules et les jeta une à une dans sa bouche, activant rapidement la Formule du Dieu Ancien pour les digérer. La marionnette restante se tenait là, hébétée, aux côtés de Wang Lin, prête à attaquer toute menace approchante.
 

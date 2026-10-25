@@ -76,7 +76,7 @@ Tan Lang marqua un temps d'arrêt. Bien qu'il soit immédiatement revenu à son 
 
 Chen Long s'était déjà rétabli, le visage sombre. Enveloppé par la fumée, il forma des sceaux des deux mains pour tenter de percer la brume, mais celle-ci lui barrait la route, l'empêchant de fuir.
 
-Les trois individus étaient désormais très proches de la sortie du Pays du Démon de Feu. Grâce à la vitesse de Zhou Yi, Wang Lin touchait au but; il pouvait déjà apercevoir la lumière du soleil provenant de l'extérieur.
+Les trois individus étaient désormais très proches de la sortie du Pays Huo Yao. Grâce à la vitesse de Zhou Yi, Wang Lin touchait au but; il pouvait déjà apercevoir la lumière du soleil provenant de l'extérieur.
 
 Tan Lang était au bord de la folie. Dans un rugissement, il frappa son sac de rangement et un fourneau gigantesque en jaillit!
 

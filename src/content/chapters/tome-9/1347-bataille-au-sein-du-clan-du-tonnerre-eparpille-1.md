@@ -1,6 +1,6 @@
 ---
 n: 1347
-title: "Bataille au sein du Clan du Tonnerre Dispersé! (1)"
+title: "Bataille au sein du Clan Shan Lei! (1)"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: "Chapter 1347 - Battle at the Scatter Thunder Clan! (1)"
@@ -28,21 +28,21 @@ Depuis l'apparition de Wang Lin jusqu'à la fin, il ne s'était écoulé qu'un i
 
 Xu Liguo avait été témoin de tout cela et de la puissance de Wang Lin. À cet instant, il s'apprêtait à flatter Wang Lin quand celui-ci l'attrapa et le jeta dans son espace de stockage. Puis, Wang Lin se transforma en un rayon de lumière et s'élança vers le ciel!
 
-« Ensuite, je vais combattre l'intégralité du Clan du Tonnerre Dispersé! » Les yeux de Wang Lin étaient froids tandis qu'il accélérait sans cesse. En un instant, il perça l'atmosphère et atteignit l'espace!
+« Ensuite, je vais combattre l'intégralité du Clan Shan Lei! » Les yeux de Wang Lin étaient froids tandis qu'il accélérait sans cesse. En un instant, il perça l'atmosphère et atteignit l'espace!
 
 Le tonnerre parmi les étoiles gronda bruyamment, semblant répondre à la volonté de Wang Lin. Ce dernier marcha vers le continent géant flottant, situé au centre des seize planètes!
 
 Il s'enfonça dans le tonnerre, créant un fracas assourdissant qui faisait trembler les cieux. Il offrait une scène époustouflante, comme s'il avait invoqué un tonnerre infini en ce lieu!
 
-Wang Lin, drapé de foudre et foulant les éclairs, marcha vers la terre sainte du Clan du Tonnerre Dispersé!
+Wang Lin, drapé de foudre et foulant les éclairs, marcha vers la terre sainte du Clan Shan Lei!
 
 Le tonnerre éternel résidant dans le temple du continent rugit également, semblant se préparer à affronter Wang Lin!
 
-Wang Lin n'était plus loin de la terre sainte du Clan du Tonnerre Dispersé. Il s'en approcha immédiatement, et une voix puissante retentit soudainement depuis le lieu sacré.
+Wang Lin n'était plus loin de la terre sainte du Clan Shan Lei. Il s'en approcha immédiatement, et une voix puissante retentit soudainement depuis le lieu sacré.
 
 « Ceci est la terre sainte de mon clan. Nul ne peut y entrer sans invitation. Pars vite! »
 
-L'expression de Wang Lin resta calme et il ignora totalement cette voix. Il pointa du doigt et le tonnerre infini convergea. C'était comme si le doigt de Wang Lin avait absorbé le tonnerre des cieux et de la terre pour commencer à bombarder la terre sainte du Clan du Tonnerre Dispersé.
+L'expression de Wang Lin resta calme et il ignora totalement cette voix. Il pointa du doigt et le tonnerre infini convergea. C'était comme si le doigt de Wang Lin avait absorbé le tonnerre des cieux et de la terre pour commencer à bombarder la terre sainte du Clan Shan Lei.
 
 Les grondements étaient apocalyptiques, et une lumière verte scintilla autour de la terre sainte. Alors que les innombrables éclairs tombaient comme une pluie battante, ils provoquèrent d'importantes ondulations sur le bouclier de lumière verte.
 
@@ -54,7 +54,7 @@ Au moment où Wang Lin leva le vieil homme, son énergie originelle s'engouffra 
 
 Wang Lin relâcha sa prise et le vieil homme poussa un cri alors que son corps percutait la lumière verte avant d'exploser!
 
-La mort du vieil homme choqua les membres du Clan du Tonnerre Dispersé présents dans la terre sainte. Un cri strident retentit tandis que les pierres de jade de tous les membres du clan tremblaient, émettant une lueur rouge aveuglante!
+La mort du vieil homme choqua les membres du Clan Shan Lei présents dans la terre sainte. Un cri strident retentit tandis que les pierres de jade de tous les membres du clan tremblaient, émettant une lueur rouge aveuglante!
 
 Ces tremblements et cette lumière rouge alarmèrent de nombreux membres du clan. Cependant, ils réagirent rapidement, leurs expressions changeant radicalement!
 
@@ -78,7 +78,7 @@ Ils se regroupèrent rapidement autour de lui, formant une sphère de tonnerre d
 
 Des grondements tonitruants retentirent comme des coups de foudre et la barrière trembla violemment!
 
-« Quelle arrogance! Le tonnerre du monde devrait-il obéir à tes ordres? Quand mon Clan du Tonnerre Dispersé a-t-il produit un enfant aussi ingrat? » Une voix sombre émana de la terre sainte. Un vieil homme vêtu de noir sortit du temple. Il avait les cheveux gris et une expression morne. Sa culture dépassait le stade Briseur du Nirvana; il était un puissant cultivateur au premier niveau de Fléau Céleste!
+« Quelle arrogance! Le tonnerre du monde devrait-il obéir à tes ordres? Quand mon Clan Shan Lei a-t-il produit un enfant aussi ingrat? » Une voix sombre émana de la terre sainte. Un vieil homme vêtu de noir sortit du temple. Il avait les cheveux gris et une expression morne. Sa culture dépassait le stade Briseur du Nirvana; il était un puissant cultivateur au premier niveau de Fléau Céleste!
 
 Dès que le vieil homme parla, des milliers, voire des dizaines de milliers de cultivateurs s'élancèrent depuis les seize planètes environnantes.
 
@@ -112,7 +112,7 @@ Son âme originelle était imprégnée de foudre, accompagnée du Tonnerre Spiri
 
 « Tonnerre du monde, écoutez mon commandement! Sortez du lac de tonnerre infini et détruisez tout pour moi! »
 
-Le Sens Divin de Wang Lin se propagea avec une force folle. À cet instant, le lac de tonnerre entourant le Clan du Tonnerre Dispersé commença à s'agiter comme une mer déchaînée. Une vague monstrueuse fut déclenchée, et toute la terre de tonnerre se mit à converger vers ce point!
+Le Sens Divin de Wang Lin se propagea avec une force folle. À cet instant, le lac de tonnerre entourant le Clan Shan Lei commença à s'agiter comme une mer déchaînée. Une vague monstrueuse fut déclenchée, et toute la terre de tonnerre se mit à converger vers ce point!
 
 On pouvait voir le lac de tonnerre déferler depuis des distances lointaines!
 
@@ -122,8 +122,8 @@ Le fracas du tonnerre submergea tout. Cependant, à ce moment précis, un rugiss
 
 « Qui es-tu?! »
 
-Cette voix ne provenait pas du temple, mais des profondeurs mêmes du tonnerre éternel. C'était l'Ancien en chef du Clan du Tonnerre Dispersé, qui était en réclusion pour cultiver et avait atteint le cinquième niveau de Fléau Céleste!
+Cette voix ne provenait pas du temple, mais des profondeurs mêmes du tonnerre éternel. C'était l'Ancien en chef du Clan Shan Lei, qui était en réclusion pour cultiver et avait atteint le cinquième niveau de Fléau Céleste!
 
 Un visage de mille pieds apparut au sein du tonnerre éternel. La marque de clan entre ses sourcils brillait comme un soleil, illuminant tout le ciel étoilé!
 
-Les yeux de Wang Lin brillèrent et il déclara lentement: « Je suis Wang Lin. Aujourd'hui, je suis venu pour m'emparer du tonnerre éternel et détruire votre Clan du Tonnerre Dispersé! »
+Les yeux de Wang Lin brillèrent et il déclara lentement: « Je suis Wang Lin. Aujourd'hui, je suis venu pour m'emparer du tonnerre éternel et détruire votre Clan Shan Lei! »

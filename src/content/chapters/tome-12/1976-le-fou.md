@@ -10,7 +10,7 @@ Le cheveu tomba dans la main de Wang Lin, et cette sensation familière devint p
 
 Ce cheveu ne lui causait aucun tort et ressemblait à un vulgaire fil de cheveux. Ses deux extrémités pendaient vers le sol, comme si la moindre bourrasque pouvait l'emporter à nouveau.
 
-Après quelques respirations de silence, la voix de l'Empereur Céleste résonna depuis le Temple du Dao Céleste.
+Après quelques respirations de silence, la voix de l'Empereur Céleste résonna depuis le Temple Xian Dao.
 
 « Ce n'est pas une récompense que je comptais t'accorder, mais si tu la désires, tu peux la prendre. »
 
@@ -68,7 +68,7 @@ Les pupilles de Wang Lin se contractèrent violemment. À cet instant, il ressen
 
 Le Taureau Céleste se dissipa, tout comme l'ombre noire que le vieil homme avait créée au prix de sa force vitale. Ce dernier semblait avoir énormément vieilli; il esquissa un sourire amer et joignit les mains en signe de salut vers Wang Lin. Sans dire un mot, il redescendit au sol pour rejoindre les siens.
 
-« Le second... » Le Maître Impérial sourit devant le Temple du Dao Céleste. Cependant, juste après avoir parlé, il fronça les sourcils.
+« Le second... » Le Maître Impérial sourit devant le Temple Xian Dao. Cependant, juste après avoir parlé, il fronça les sourcils.
 
 Non seulement lui, mais Wang Lin également regarda au loin. En bas, les cultivateurs remarquèrent leurs regards et levèrent les yeux à leur tour. Tous fronçaient les sourcils.
 
@@ -115,7 +115,7 @@ Alors que Wang Lin contemplait le fou en contrebas, une expression complexe trav
 
 Il le regarda continuer d'agiter son éventail tout en traînant le disciple vers le Maître Impérial. Xu Liguo, tombé au sol, ouvrit les yeux. Il observa un instant le jeune homme au loin, puis referma les paupières sans hésiter.
 
-« Dao Fei! » Au moment même où le jeune homme s'apprêtait à étrangler le Maître Impérial, la voix impuissante de l'Empereur Céleste résonna depuis le Temple du Dao Céleste.
+« Dao Fei! » Au moment même où le jeune homme s'apprêtait à étrangler le Maître Impérial, la voix impuissante de l'Empereur Céleste résonna depuis le Temple Xian Dao.
 
 « Que fais-tu? Tu choisis une concubine sans m'en informer... Tu exagères!! » Le jeune homme lança un regard furieux à l'Empereur Céleste assis sur le trône de dragon.
 

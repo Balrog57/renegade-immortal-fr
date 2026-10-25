@@ -40,7 +40,7 @@ Dès que Zhou Wutai perçut ce sens divin, son corps trembla et son esprit fut b
 
 Les émotions de Yun Quezi étaient encore plus tourmentées. Le sens divin de Wang Lin l'avait également fait frissonner. Le petit garçon d'autrefois avait atteint un niveau de culture inimaginable. Il poussa un soupir, ayant l'impression de pouvoir encore voir la silhouette du jeune homme qui payait ses boissons au restaurant.
 
-Il songea à la bataille entre lui et Zhu Quezi, au conflit entre le Clan des Immortels Délaissés et le pays de Suzaku. Désormais, tout cela semblait si insignifiant...
+Il songea à la bataille entre lui et Zhu Quezi, au conflit entre le Clan Xian Yi et le pays de Suzaku. Désormais, tout cela semblait si insignifiant...
 
 Par coïncidence, Zhou Wutai et Yun Quezi scellèrent l'information concernant le retour de Wang Lin. Hormis les cultivateurs qui s'étaient éveillés prématurément, personne d'autre ne savait que Wang Lin était revenu.
 

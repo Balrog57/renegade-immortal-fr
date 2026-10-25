@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1695 - Three Souls, Seven Fragments!"
 slug: trois-ames-sept-fragments
 ---
-« Je n'ai pas été témoin de cette bataille moi-même; tout ce que je sais provient des souvenirs de ma petite sœur. Lian Daofei était extrêmement puissant; il a combattu seul contre les quatre généraux et de nombreux disciples de la Secte des Sept Dao.
+« Je n'ai pas été témoin de cette bataille moi-même; tout ce que je sais provient des souvenirs de ma petite sœur. Lian Daofei était extrêmement puissant; il a combattu seul contre les quatre généraux et de nombreux disciples de la Secte Qi Dao.
 
 « Avec une force écrasante, il les a tous gravement blessés. C'est à ce moment-là que ma petite sœur et plusieurs concubines se sont rebellées pour attaquer aux côtés de Lian Daofei.
 
@@ -56,9 +56,9 @@ Certains détails pouvaient encore diverger, mais Wang Lin ne les ayant pas vus 
 
 Les faits étaient peut-être légèrement différents, mais c'était là la vérité de ce qui s'était passé!
 
-« Trois âmes, sept fragments... Il s'avère donc qu'il y a trois âmes et sept fragments! Le Souverain a dit que le Vieux Fantôme Zhan aurait dû mourir lorsqu'ils se sont rencontrés à la Mer des Nuages. Le choc du Souverain ne semble pas feint!
+« Trois âmes, sept fragments... Il s'avère donc qu'il y a trois âmes et sept fragments! Le Souverain a dit que le Vieux Fantôme Zhan aurait dû mourir lorsqu'ils se sont rencontrés à la Mer Yun. Le choc du Souverain ne semble pas feint!
 
-« Même lui l'ignorait... De plus, dans le Royaume des Sept Couleurs au sein du Vide Brillant, lorsque je suis allé sauver Qing Shui, le Daoïste aux Sept Couleurs est apparu. Il semblait admirer le Vieux Fantôme Zhan...
+« Même lui l'ignorait... De plus, dans le Royaume Qi Cai au sein du Vide Brillant, lorsque je suis allé sauver Qing Shui, le Daoïste aux Sept Couleurs est apparu. Il semblait admirer le Vieux Fantôme Zhan...
 
 « Il a dit que le Vieux Fantôme Zhan était différent... Se pourrait-il que le Vieux Fantôme Zhan soit la deuxième âme?
 
@@ -68,7 +68,7 @@ Les faits étaient peut-être légèrement différents, mais c'était là la vé
 
 « Alors, qui est la troisième âme?! » L'esprit de Wang Lin tremblait. Cette nouvelle avait déchiré le brouillard qui obscurcissait son esprit, lui permettant enfin de voir la vérité!
 
-« Et il y a aussi les sept fragments... Dans le Royaume des Sept Couleurs du Vide Brillant, j'avais remarqué que le Daoïste aux Sept Couleurs regardait Qing Shui comme s'il se regardait lui-même. Je l'avais trouvé étrange à l'époque, sans pouvoir trouver de réponse. Mais maintenant, la réponse semble évidente!
+« Et il y a aussi les sept fragments... Dans le Royaume Qi Cai de Kun Xu, j'avais remarqué que le Daoïste aux Sept Couleurs regardait Qing Shui comme s'il se regardait lui-même. Je l'avais trouvé étrange à l'époque, sans pouvoir trouver de réponse. Mais maintenant, la réponse semble évidente!
 
 « Senior Frère Qing Shui est l'un des sept fragments du Souverain Céleste aux Sept Couleurs!! Pas étonnant que sa vie soit si misérable, pas étonnant qu'il ait pu obtenir l'essence de la boucherie... Pas étonnant qu'il fût si puissant dès qu'il atteignit le troisième stade!
 
@@ -76,7 +76,7 @@ Les faits étaient peut-être légèrement différents, mais c'était là la vé
 
 « Mon objectif est de tuer Sept Couleurs; seule sa mort pourra apaiser ma haine envers lui. Nos buts sont identiques, ce sera une victoire pour nous deux!
 
-« Je peux demander à mon Maître de vous accueillir sur le Continent Astral Immortel afin d'atténuer la pénalité. Je ne veux pas de la Secte des Sept Dao. Une fois que Sept Couleurs sera mort, tout vous appartiendra!
+« Je peux demander à mon Maître de vous accueillir sur le Continent Astral Immortel afin d'atténuer la pénalité. Je ne veux pas de la Secte Qi Dao. Une fois que Sept Couleurs sera mort, tout vous appartiendra!
 
 « Quant aux autres habitants du monde caverneux, ils ne peuvent pas quitter cet endroit. Ils ne survivraient pas à la pénalité liée au départ. Même mon Maître ne pourrait rien y faire.
 
@@ -112,7 +112,7 @@ Wang Lin calma son cœur et regarda la femme. Pour une raison quelconque, il son
 
 Cet événement avait laissé une empreinte profonde en lui. Bien que plus de mille ans se soient écoulés, il ne pouvait toujours l'oublier.
 
-Dans la Terre des Esprits Démoniaques, Wang Lin avait rencontré la fille du Souverain, l'ancêtre sacrée du Clan du Tatouage. Elle était dans un état pitoyable: ses yeux avaient été arrachés et son corps entier était opprimé dans la grotte de Qing Lin. Sa rancœur était monstrueuse.
+Dans la Terre Yao Ling, Wang Lin avait rencontré la fille du Souverain, l'ancêtre sacrée du Clan Fu Wen. Elle était dans un état pitoyable: ses yeux avaient été arrachés et son corps entier était opprimé dans la grotte de Qing Lin. Sa rancœur était monstrueuse.
 
 La haine que cette femme éprouvait envers Qing Lin ressemblait énormément à celle de la femme devant lui. Chacune de ses phrases résonnait dans l'esprit de Wang Lin, empreinte d'une tristesse infinie, au point que celui-ci avait presque cru son récit. Pourtant, il avait fini par entendre la version des faits directement de la bouche de Qing Lin, ce qui l'avait plongé dans la confusion.
 

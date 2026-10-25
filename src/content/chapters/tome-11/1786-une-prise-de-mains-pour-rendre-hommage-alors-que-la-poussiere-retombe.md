@@ -56,9 +56,9 @@ Il se souvenait encore de l'époque où Yun Yifeng n'était qu'un jeune homme de
 
 Derrière le vieil homme nommé Ma se tenaient les deux hommes d'âge moyen de la Planète des Cinq Éléments. Ils fixaient la porte avec cette même perplexité qu'ils ne parvenaient pas à exprimer.
 
-Il y avait aussi la Tortue Noire et l'Oiseau Vermillon. En regardant la porte, une amertume leur serra le cœur. Ils se remémorèrent la Secte des Sept Dao et le temps passé avec le Souverain Céleste aux Sept Couleurs.
+Il y avait aussi la Tortue Noire et l'Oiseau Vermillon. En regardant la porte, une amertume leur serra le cœur. Ils se remémorèrent la Secte Qi Dao et le temps passé avec le Souverain Céleste aux Sept Couleurs.
 
-Désormais, ils allaient retourner sur le Continent Astral Immortel, mais la Secte des Sept Dao avait probablement disparu depuis longtemps.
+Désormais, ils allaient retourner sur le Continent Astral Immortel, mais la Secte Qi Dao avait probablement disparu depuis longtemps.
 
 Contrairement à ceux qui n'appartenaient pas au monde caverne, les yeux de Lanmeng Daozun étaient empreints d'une hésitation cachée. Bien qu'il sache déjà beaucoup de choses et comprenne que le monde n'est qu'une caverne, se retrouver face à la porte le laissait sans voix.
 

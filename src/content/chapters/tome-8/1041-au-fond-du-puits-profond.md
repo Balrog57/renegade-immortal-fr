@@ -10,7 +10,7 @@ slug: au-fond-du-puits-profond
 
 Après avoir longuement réfléchi, Wang Lin réprima les sentiments complexes qu'il éprouvait en voyant Liu Mei. Il détourna son regard du ciel et sentit la puissante énergie originelle parcourir tout son corps.
 
-« Au sommet du Scruteur du Nirvana! » Les yeux de Wang Lin brillèrent intensément. Il était inutile de songer à autre chose. Il se trouvait toujours dans la Grotte de l'Empereur Céleste et devait d'abord résoudre le problème immédiat.
+« Au sommet du Scruteur du Nirvana! » Les yeux de Wang Lin brillèrent intensément. Il était inutile de songer à autre chose. Il se trouvait toujours dans la Grotte Xian Di et devait d'abord résoudre le problème immédiat.
 
 « Tout dans ce monde contient une loi. Le ciel, la terre, les cinq éléments, tout possède sa propre loi. Si l'on veut toutes les comprendre, il faudrait bien trop de temps. La puissance d'un être est limitée; il est donc impossible de tout saisir. » Les yeux de Wang Lin s'illuminèrent tandis qu'il méditait.
 
@@ -22,7 +22,7 @@ Une vague silhouette se dessina à l'intérieur de cette sphère d'éclairs. Ell
 
 Wang Lin fixa la sphère de tonnerre jusqu'à ce que sa perception en change vaguement. Cependant, elle ne se transforma pas en lignes comme tout le reste. Bien qu'elle devînt plus transparente, aucune loi n'apparut en son sein.
 
-« Je n'ai obtenu que la moitié du dragon de tonnerre ancien; l'autre moitié a disparu dans l'Abîme des Marées. Par conséquent, le pouvoir du tonnerre est incomplet et même la loi qu'il contient est imparfaite. »
+« Je n'ai obtenu que la moitié du dragon de tonnerre ancien; l'autre moitié a disparu dans l'Abîme Chao Xi. Par conséquent, le pouvoir du tonnerre est incomplet et même la loi qu'il contient est imparfaite. »
 
 Après un moment de réflexion, Wang Lin serra la main droite et la sphère de tonnerre se dispersa en d'innombrables éclairs. À cet instant, des flammes jaillirent de son œil gauche, formant une mer de feu.
 
@@ -76,13 +76,13 @@ Wang Lin tint le Blaireau Marqué d'Étoiles devant son visage pour mieux l'exam
 
 Le blaireau était d'une grande finesse, et ses yeux intelligents fixaient Wang Lin tandis que celui-ci le contemplait. Après un long moment, l'animal se montra impatient. Wang Lin esquissa un sourire et relâcha sa prise. Le petit être retourna immédiatement sur l'épaule de Wang Lin, reniflant les environs d'un air très satisfait.
 
-Ne prêtant plus attention au petit animal, Wang Lin s'apprêtait à partir. Il comptait explorer la Grotte de l'Empereur Céleste en utilisant la carte contenue dans le jade.
+Ne prêtant plus attention au petit animal, Wang Lin s'apprêtait à partir. Il comptait explorer la Grotte Xian Di en utilisant la carte contenue dans le jade.
 
 Cependant, au moment où il allait s'éloigner, le Blaireau Marqué d'Étoiles plongea soudainement le regard dans le puits profond. Ses yeux brillèrent, puis il s'envola en poussant quelques rugissements vers Wang Lin avant de plonger dans l'abîme.
 
 Les yeux de Wang Lin s'illuminèrent et il scruta le fond du puits. Après une courte réflexion, il descendit à son tour, à la suite du blaireau.
 
-« Les Blaireaux Marqués d'Étoiles adorent l'aura des dieux anciens. Se pourrait-il que quelque chose appartenant à un dieu ancien soit enfoui sous le Bassin Funéraire Céleste? » Wang Lin pensa immédiatement au tendon rouge qui avait piégé l'Ancêtre Sainte du Clan du Tatouage, Qiu Yao.
+« Les Blaireaux Marqués d'Étoiles adorent l'aura des dieux anciens. Se pourrait-il que quelque chose appartenant à un dieu ancien soit enfoui sous le Bassin Funéraire Céleste? » Wang Lin pensa immédiatement au tendon rouge qui avait piégé l'Ancêtre Sainte du Clan Fu Wen, Qiu Yao.
 
 Ce puits semblait sans fond. Peu importe la profondeur atteinte par Wang Lin, il ne semblait jamais se rapprocher de l'issue. L'énergie glaciale émanant des profondeurs devenait de plus en plus intense, jusqu'à ce qu'une couche de givre recouvre les parois du puits.
 

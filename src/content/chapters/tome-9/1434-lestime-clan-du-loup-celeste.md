@@ -1,6 +1,6 @@
 ---
 n: 1434
-title: "L'Estimé Clan du Loup Céleste"
+title: "L'Estimé Clan Feng Tian Lang"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1434 - Esteemed Heavenly Wolf
@@ -40,7 +40,7 @@ Wang Lin réapparut quelque part dans le Système Stellaire Antique. Sa main dro
 
 Un éclat de lumière cristalline apparut devant lui, se matérialisant en l'Ancienne Feuille qu'il saisit. Un regard glacial passa dans ses yeux alors qu'il s'élançait à nouveau. Utilisant une nouvelle fois la Déformation Spatiale, il disparut sans laisser de trace.
 
-« Dans mon état actuel, je ne peux pas retourner vers la faille de la Mer des Nuages. La traque du Conseil Souverain a repris. Soit... J'ai passé ma vie dans le danger, une simple prime du Conseil Souverain ne m'effraie pas. Je veux voir combien de puissants cultivateurs seront attirés par l'appât! »
+« Dans mon état actuel, je ne peux pas retourner vers la faille de la Mer Yun. La traque du Conseil Souverain a repris. Soit... J'ai passé ma vie dans le danger, une simple prime du Conseil Souverain ne m'effraie pas. Je veux voir combien de puissants cultivateurs seront attirés par l'appât! »
 
 « Tandis qu'on me chasse, j'utiliserai le sort d'engloutissement pour restaurer ma culture! » ricana Wang Lin.
 
@@ -48,11 +48,11 @@ Une fois l'Ancienne Feuille disparue de la faille au-dessus de la planète aband
 
 C'était un homme massif d'une trentaine de pieds de haut. Le torse nu, il affichait une expression féroce et un regard impitoyable. Entre ses sourcils se trouvait une marque: celle d'un loup vert sauvage!
 
-Sous les ordres du Conseil Souverain, il appartenait à l'un des quatre clans redoutables du Système Stellaire Antique: l'Estimé Clan du Loup Céleste!
+Sous les ordres du Conseil Souverain, il appartenait à l'un des quatre clans redoutables du Système Stellaire Antique: l'Estimé Clan Feng Tian Lang!
 
 Il n'était pas seul; une jeune fille était assise sur son épaule. Vêtue de rouge, elle possédait une beauté charmante. Son visage délicat rappelait la douceur d'une pêche et ses sourcils étaient d'une élégance rare. Un simple geste de sa main suffisait à envoûter les esprits.
 
-Elle portait également un marquage entre les sourcils. C'était un signe extrêmement étrange qui, si Wang Lin l'avait vu, lui aurait fait reconnaître la marque du mystérieux Clan de l'Extermination des Sceaux!
+Elle portait également un marquage entre les sourcils. C'était un signe extrêmement étrange qui, si Wang Lin l'avait vu, lui aurait fait reconnaître la marque du mystérieux Clan Feng Mie!
 
 Dans le Royaume aux Sept Couleurs, Wang Lin avait affronté un vieil homme de ce clan qui l'avait plongé dans une crise mortelle. Ce sort Dao était encore gravé dans sa mémoire!
 

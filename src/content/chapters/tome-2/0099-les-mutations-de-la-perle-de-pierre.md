@@ -8,11 +8,11 @@ slug: les-mutations-de-la-perle-de-pierre
 ---
 Quant à Wang Lin, une fois la pression du ciel et de la terre dissipée, son visage se mit à changer, tantôt sombre tantôt éclairé, tandis qu'il réfléchissait. Dès l'apparition de cette pression, Ye Zizai avait transmis un message et était parti. « Il doit y avoir un problème là-dessous! » pensa-t-il.
 
-Bien que Ye Zizai soit parti, la Secte des Cadavres devait être encore plus étroitement gardée; ce n'était pas le bon moment pour s'enfuir. Après réflexion, Wang Lin déploya son sens divin. Mais dès que celui-ci toucha les parois alentour, il fut bloqué et ne put y pénétrer. Seuls les petits trous dans le mur ne lui opposaient aucune résistance.
+Bien que Ye Zizai soit parti, la Secte Shi Yin devait être encore plus étroitement gardée; ce n'était pas le bon moment pour s'enfuir. Après réflexion, Wang Lin déploya son sens divin. Mais dès que celui-ci toucha les parois alentour, il fut bloqué et ne put y pénétrer. Seuls les petits trous dans le mur ne lui opposaient aucune résistance.
 
 Cependant, l'air froid dans ces petits trous était mordant et d'une profondeur insondable. Même après avoir sondé près de 330 mètres à l'intérieur, Wang Lin ne trouva rien d'anormal. Néanmoins, l'énergie Yin devenait si puissante que son Sens Divin ne pouvait plus la supporter et commençait à vaciller. Il réfléchit un instant. Ne voulant pas agir avec imprudence, il retira d'abord son Sens Divin. Après avoir calmé son esprit, il forma quelques sceaux, mobilisant toute l'énergie spirituelle de son corps. Une couche de lumière bleu profond enveloppa alors sa silhouette, formant un tourbillon qui aspira tout le gaz blanc environnant.
 
-Tous les disciples de la Secte des Cadavres qui cultivaient à l'intérieur venaient de reprendre leurs esprits après la pression subie. Encore sous le choc, à l'instant où Wang Lin inspirait et expirait, ils sentirent clairement l'énergie Yin et froide diminuer fortement. Comme cette énergie provenait d'un lieu mystérieux situé profondément sous terre, ils ne pouvaient en observer la cause et furent tous quelque peu perplexes.
+Tous les disciples de la Secte Shi Yin qui cultivaient à l'intérieur venaient de reprendre leurs esprits après la pression subie. Encore sous le choc, à l'instant où Wang Lin inspirait et expirait, ils sentirent clairement l'énergie Yin et froide diminuer fortement. Comme cette énergie provenait d'un lieu mystérieux situé profondément sous terre, ils ne pouvaient en observer la cause et furent tous quelque peu perplexes.
 
 Voyant le flux incessant d'énergie Yin converger vers lui, Wang Lin cessa rapidement son absorption pour commencer à digérer l'énergie déjà présente dans son corps.
 
@@ -52,7 +52,7 @@ Le tunnel était court, et il atteignit l'autre grotte en peu de temps. Mais à 
 
 Wang Lin balaya la pièce du regard, hocha la tête et recula de quelques pas. Il fit demi-tour pour regagner sa propre demeure, conscient que la situation avait changé.
 
-Il savait que la Secte des Cadavres imposait des règles strictes, mais peu importe leur rigueur, il était inutile de placer un expert du stade intermédiaire de l'Établissement des Fondations devant sa chambre. Pourtant, il se souvenait distinctement qu'à son arrivée, l'occupant de cette pièce n'était qu'un disciple vers le 13ème niveau de la Condensation de Qi.
+Il savait que la Secte Shi Yin imposait des règles strictes, mais peu importe leur rigueur, il était inutile de placer un expert du stade intermédiaire de l'Établissement des Fondations devant sa chambre. Pourtant, il se souvenait distinctement qu'à son arrivée, l'occupant de cette pièce n'était qu'un disciple vers le 13ème niveau de la Condensation de Qi.
 
 Face à ce constat, Wang Lin se dirigea vers une autre issue de sa propre grotte. Après un passage dans un tunnel, il déboucha dans une cavité plus petite.
 
@@ -66,7 +66,7 @@ Le cœur lourd, Wang Lin retourna dans sa demeure et s'assit pour réfléchir. T
 
 Wang Lin fronça les sourcils. Parmi ces six gardiens, à l'exception du cultivateur au stade avancé, il était certain de pouvoir les vaincre, même s'ils utilisaient des marionnettes cadavériques. Mais ceci n'était que la première couche de grottes. Sur le chemin menant ici, il y en avait plus de trente.
 
-En conséquence, il ne pourrait pas s'échapper rapidement. Avant même d'atteindre la dernière sortie, il serait intercepté par l'expert au stade avancé, voire par un cultivateur de la Formation du Noyau de la Secte des Cadavres.
+En conséquence, il ne pourrait pas s'échapper rapidement. Avant même d'atteindre la dernière sortie, il serait intercepté par l'expert au stade avancé, voire par un cultivateur de la Formation du Noyau de la Secte Shi Yin.
 
 Wang Lin ne put s'empêcher de lâcher un sourire amer. Il aurait tant aimé que Situ Nan soit éveillé; avec la téléportation de Situ, quitter ces lieux aurait été bien plus simple. Il appela le vieillard à plusieurs reprises à l'intérieur de la perle, mais face au silence, il finit par abandonner.
 

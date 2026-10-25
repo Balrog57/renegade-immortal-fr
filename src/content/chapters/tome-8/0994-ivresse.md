@@ -26,11 +26,11 @@ Situ Nan acquiesça: « D'après les archives que j'ai trouvées, il a bien ét�
 
 Wang Lin réfléchit un instant. Il possédait toujours la pagode de Zhou Yi. À l'intérieur reposait le cadavre du Seigneur Céleste Qing Shuang. Et Qing Shuang était un Seigneur Céleste du Royaume Céleste de la Pluie!
 
-« Autrefois, j'ai trouvé divers indices suggérant que dans cette grotte mystérieuse de la Terre des Esprits Démoniaques se trouve l'Empereur Céleste le plus puissant du passé, l'Empereur Céleste Qing Lin! Ce Qing Lin était le père de Qing Shuang, et il possède peut-être un moyen de la ressusciter. Une fois qu'elle sera revenue à la vie, il sera facile de guérir ce poison! »
+« Autrefois, j'ai trouvé divers indices suggérant que dans cette grotte mystérieuse de la Terre Yao Ling se trouve l'Empereur Céleste le plus puissant du passé, l'Empereur Céleste Qing Lin! Ce Qing Lin était le père de Qing Shuang, et il possède peut-être un moyen de la ressusciter. Une fois qu'elle sera revenue à la vie, il sera facile de guérir ce poison! »
 
-Les yeux de Wang Lin brillèrent alors qu'il regardait Situ Nan et dit lentement: « Peut-être n'est-il pas nécessaire d'aller au Royaume Céleste de la Pluie pour trouver l'antidote! » À cet instant, il raconta à Situ Nan ce qui s'était passé dans la Terre des Esprits Démoniaques, ainsi que ses propres déductions.
+Les yeux de Wang Lin brillèrent alors qu'il regardait Situ Nan et dit lentement: « Peut-être n'est-il pas nécessaire d'aller au Royaume Céleste de la Pluie pour trouver l'antidote! » À cet instant, il raconta à Situ Nan ce qui s'était passé dans la Terre Yao Ling, ainsi que ses propres déductions.
 
-En écoutant Wang Lin, une lueur mystérieuse brilla dans les yeux de Situ Nan. Une fois le récit terminé, il réfléchit un instant et sourit: « Cela me semble être une bonne idée. Je vais tenter le coup. De toute façon, même si cela ne fonctionnait pas, je serais quand même allé à la Terre des Esprits Démoniaques avec toi. Désormais, nous pourrons peut-être faire d'une pierre deux coups! »
+En écoutant Wang Lin, une lueur mystérieuse brilla dans les yeux de Situ Nan. Une fois le récit terminé, il réfléchit un instant et sourit: « Cela me semble être une bonne idée. Je vais tenter le coup. De toute façon, même si cela ne fonctionnait pas, je serais quand même allé à la Terre Yao Ling avec toi. Désormais, nous pourrons peut-être faire d'une pierre deux coups! »
 
 « Quant à la planète Feng Luan, ils ne pourront pas s'échapper! » L'intention meurtrière dans les yeux de Wang Lin était intense. Il avait toujours été quelqu'un qui ne s'en prenait pas aux autres s'ils ne l'offensaient pas. Cependant, puisque Situ Nan avait été poussé dans un tel état, ils avaient franchi sa limite!
 

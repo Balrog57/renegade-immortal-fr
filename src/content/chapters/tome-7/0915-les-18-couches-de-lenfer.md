@@ -64,11 +64,11 @@ Le fragment d'âme de l'homme d'âge moyen s'envola et pénétra dans l'âme ori
 
 La scène changea une fois de plus. Cette fois, c'était une grotte dans la forêt. Il dévora l'Établissement des Fondations de Teng Li, puis le fragment d'âme de ce dernier vola vers lui.
 
-Les scènes s'enchaînèrent, du pays de Zhao à la Secte des Cadavres, puis à la Vallée Jue Ming, au Champ de Bataille Extérieur, à Huo Fen, et enfin à la Mer des Démons avec le tendon de dragon qui enchaînait mille cadavres et l'Ordre des Dix Mille Démons de cent jours.
+Les scènes s'enchaînèrent, du pays de Zhao à la Secte Shi Yin, puis à la Vallée Jue Ming, au Champ de Bataille Extérieur, à Huo Fen, et enfin à la Mer Xiu Mo avec le tendon de dragon qui enchaînait mille cadavres et l'Ordre des Dix Mille Démons de cent jours.
 
-Puis il retourna à Zhao, où il massacra la famille Teng. La bataille contre Xue Yu, le Royaume Céleste de la Pluie, suivie du meurtre de l'ancêtre du pays de Xue Yu et de l'ancêtre du Clan des Démons Géants. Ensuite vinrent la bataille entre le Clan des Immortels Délaissés et le pays Suzaku, ainsi que les événements survenus dans le Tombeau de Suzaku. Tout défilait comme si Wang Lin revivait sa propre existence.
+Puis il retourna à Zhao, où il massacra la famille Teng. La bataille contre Xue Yu, le Royaume Céleste de la Pluie, suivie du meurtre de l'ancêtre du pays de Xue Yu et de l'ancêtre du Clan Ju Mo. Ensuite vinrent la bataille entre le Clan Xian Yi et le pays Suzaku, ainsi que les événements survenus dans le Tombeau Zhu Que. Tout défilait comme si Wang Lin revivait sa propre existence.
 
-La Secte du Destin Céleste, la Terre des Esprits Démoniaques, l'Art du Massacre Céleste, le Système Stellaire de Luotian, l'ancêtre de la famille Huan, le Royaume Céleste du Tonnerre, le meurtre de Xue Zu, l'intérieur de la Bête des Limbes, l'assassinat des êtres célestes, le massacre des membres de la famille Yao dans le Domaine Occidental, et tout cela jusqu'à la bataille pour le Titre Céleste au Temple Céleste du Tonnerre, sur la ligne menant au ciel.
+La Secte Tian Yun, la Terre Yao Ling, l'Art du Massacre Céleste, le Système Stellaire de Luotian, l'ancêtre de la famille Huan, le Royaume Céleste du Tonnerre, le meurtre de Xue Zu, l'intérieur de la Bête des Limbes, l'assassinat des êtres célestes, le massacre des membres de la famille Yao dans le Domaine Occidental, et tout cela jusqu'à la bataille pour le Titre Céleste au Temple Céleste du Tonnerre, sur la ligne menant au ciel.
 
 Finalement, ses souvenirs s'arrêtèrent. Wang Lin fut tiré de sa torpeur. Il eut l'impression qu'une force puissante l'avait saisi pour le tirer vers le haut. Puis, il ouvrit soudainement les yeux. Il était trempé de sueur et la montagne se dressait toujours devant lui.
 
@@ -98,7 +98,7 @@ Chaque couche dégageait une aura de ressentiment dense et des éclats d'une som
 
 C'était son propre domaine qu'il avait créé pour l'Arsenal Magique!
 
-Bai Fan possédait le Royaume Mystérieux et Qing Shui son Royaume de la Boucherie. Wang Lin, lui, avait ses 18 Couches de la Réincarnation Infernale!
+Bai Fan possédait le Royaume Mystérieux et Qing Shui son Royaume Sha Lu. Wang Lin, lui, avait ses 18 Couches de la Réincarnation Infernale!
 
 Le Sceau Céleste servait de terre, les sceaux dorés, la rivière des enfers de cycle de réincarnation, le tout imprégné d'une aura de ressentiment pour parfaire les 18 couches de l'enfer.
 

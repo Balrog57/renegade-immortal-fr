@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1385 - Frightened Bird (2)
 slug: oiseau-effraye-2
 ---
-Cette puanteur était puissante et persistante. Lorsqu'elle enveloppa la terre, elle provoqua des haut-le-cœur chez de nombreux membres du Clan du Scorpion Noir. La culture de Zhong Dahong étant insuffisante et ignorant l'identité de Tan Lang, il vomit directement.
+Cette puanteur était puissante et persistante. Lorsqu'elle enveloppa la terre, elle provoqua des haut-le-cœur chez de nombreux membres du Clan An Xie. La culture de Zhong Dahong étant insuffisante et ignorant l'identité de Tan Lang, il vomit directement.
 
 Ce vomissement rendit l'expression de Tan Lang extrêmement sombre. D'un revers de manche, il fit apparaître un grand éventail qui se mit à briller avant de s'élancer violemment vers l'avant.
 
 Des grondements tonitruants résonnèrent tandis que la terre tremblait et que les montagnes s'effondraient. Même la grotte de Wang Lin fut anéantie.
 
-Les membres du Clan du Scorpion Noir ne purent résister à ce souffle et crachèrent du sang, projetés impitoyablement en arrière comme des feuilles mortes dans la tempête. Le Patriarche du Clan du Scorpion Noir lutta amèrement, mais il fut incapable de résister et se vit lentement repoussé.
+Les membres du Clan An Xie ne purent résister à ce souffle et crachèrent du sang, projetés impitoyablement en arrière comme des feuilles mortes dans la tempête. Le Patriarche du Clan An Xie lutta amèrement, mais il fut incapable de résister et se vit lentement repoussé.
 
 La terre s'effondra et le ciel sembla se déchirer. L'homme nommé Zhang cracha du sang avant de sombrer dans le coma; projeté au loin, il disparut sans laisser de trace. La puissance de l'éventail stupéfia tous les cultivateurs présents!
 
@@ -22,19 +22,19 @@ Tan Lang fixa Zhong Dahong et demanda lentement: « Puant? »
 
 « Pas puant, pas puant... » L'esprit de Zhong Dahong tremblait, mais il s'efforça d'endurer l'odeur. Craignant que cet homme ne le croie, il prit une profonde inspiration et fit semblant d'être en extase devant le sortilège. Cependant, ce geste fut comme « dessiner des pieds sur un serpent » — une maladresse inutile qui le fit vomir une fois de plus.
 
-Voyant l'intention meurtrière dans les yeux de Tan Lang, Zhong Dahong s'efforça de hurler: « La culture de mon maître défie le ciel! Si vous me tuez, vous mourrez sans aucun doute! Même le Patriarche du Clan du Scorpion Noir ne peut résister à un seul coup de mon maître. Bien que votre niveau de culture soit élevé, vous n'êtes pas son égal! »
+Voyant l'intention meurtrière dans les yeux de Tan Lang, Zhong Dahong s'efforça de hurler: « La culture de mon maître défie le ciel! Si vous me tuez, vous mourrez sans aucun doute! Même le Patriarche du Clan An Xie ne peut résister à un seul coup de mon maître. Bien que votre niveau de culture soit élevé, vous n'êtes pas son égal! »
 
 Tan Lang ricana.
 
-À ce moment crucial entre la vie et la mort, Zhong Dahong joua le tout pour le tout et rugit: « Mon maître est en route et peut revenir à tout instant! Si vous osez me toucher, vous mourrez sans aucun doute! Le Clan du Scorpion Noir est devenu l'esclave de mon maître parce qu'ils m'ont blessé. Il en sera de même pour vous! »
+À ce moment crucial entre la vie et la mort, Zhong Dahong joua le tout pour le tout et rugit: « Mon maître est en route et peut revenir à tout instant! Si vous osez me toucher, vous mourrez sans aucun doute! Le Clan An Xie est devenu l'esclave de mon maître parce qu'ils m'ont blessé. Il en sera de même pour vous! »
 
 « Sa culture défie le ciel? Si vous n'aviez rien dit, cela aurait été une chose, mais maintenant, ce vieil homme devra voir de quel pouvoir dispose votre maître. Puisque l'esclave a offensé ce vieil homme, le maître est également coupable. Quiconque franchit ma limite doit mourir! »
 
 Tan Lang agita la main droite et une vague d'énergie originelle s'engouffra dans le corps de Zhong Dahong. Ce dernier cracha du sang comme si son corps entier allait se briser, puis s'effondra non loin de là.
 
-« Si vous étiez membres du Clan du Scorpion Noir, il me serait vraiment difficile de vous tuer, mais puisque ce n'est pas le cas, je brûle d'envie de voir comment votre maître compte me tuer! » D'un revers de manche, Tan Lang déchaîna une bourrasque monumentale qui balaya tous les membres du Clan du Scorpion Noir hors de la planète.
+« Si vous étiez membres du Clan An Xie, il me serait vraiment difficile de vous tuer, mais puisque ce n'est pas le cas, je brûle d'envie de voir comment votre maître compte me tuer! » D'un revers de manche, Tan Lang déchaîna une bourrasque monumentale qui balaya tous les membres du Clan An Xie hors de la planète.
 
-Après cela, il agita à nouveau sa manche et s'adressa avec arrogance au Clan de l'Évasion Nuageuse: « Tous, accompagnez ce vieil homme et attendez le maître de cet esclave. Je vais vous montrer la puissance de mes trésors! »
+Après cela, il agita à nouveau sa manche et s'adressa avec arrogance au Clan Yun Dun: « Tous, accompagnez ce vieil homme et attendez le maître de cet esclave. Je vais vous montrer la puissance de mes trésors! »
 
 « Être témoin de l'usage des trésors de ce vieil homme est une chance inouïe dans votre existence. Mes trésors sont si puissants que peu peuvent les égaler. Assister au combat où ce vieil homme terrassera un cultivateur du Fléau Céleste est un événement que vous n'oublierez jamais! »
 
@@ -42,13 +42,13 @@ La voix de Tan Lang était empreinte d'une arrogance extrême. Il agita la main 
 
 Puis, il sembla semer une lumière verte. Lorsque cette lueur toucha le sol, la terre se mit à palpiter et une forêt dense se forma instantanément.
 
-Tout cela excita les membres du Clan de l'Évasion Nuageuse; ils avaient toujours rêvé d'observer Tan Lang manœuvrer ses trésors!
+Tout cela excita les membres du Clan Yun Dun; ils avaient toujours rêvé d'observer Tan Lang manœuvrer ses trésors!
 
 « Les trésors du Seigneur Tan Lang sont célèbres dans les Terres Déchues. Nous sommes honorés de les voir à l'œuvre et espérons en tirer quelque chose! »
 
 « La rumeur dit que les trésors du Seigneur Tan Lang peuvent tuer des cultivateurs du Fléau Céleste. Une telle prouesse n'a jamais été vue, j'ignore quels objets possèdent un pouvoir aussi dévastateur. Aujourd'hui, je vais enfin le constater par moi-même! »
 
-« Le Seigneur Tan Lang possède d'innombrables trésors, nul ne sait combien. Être témoin de cela est une véritable bénédiction! » Les cultivateurs du Clan de l'Évasion Nuageuse acquiesçaient avec enthousiasme.
+« Le Seigneur Tan Lang possède d'innombrables trésors, nul ne sait combien. Être témoin de cela est une véritable bénédiction! » Les cultivateurs du Clan Yun Dun acquiesçaient avec enthousiasme.
 
 Zhong Dahong fixait le ciel, terrifié. Il ignorait qui était Tan Lang, mais en voyant l'excitation des cultivateurs environnants, son cœur sombra.
 

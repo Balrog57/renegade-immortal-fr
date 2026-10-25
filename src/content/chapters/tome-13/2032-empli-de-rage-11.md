@@ -60,7 +60,7 @@ Elle avait autrefois fait un rêve où elle entendait cette phrase. Cette voix n
 
 Jusqu'à ce qu'elle entende Wang Lin murmurer « Wan Er » lors du banquet, ce qui fit trembler son cœur avec une étrange familiarité, sans pour autant déclencher le souvenir. Même lorsque « Li Muwan » fut prononcé, elle ne fit que frémir. Cependant, après avoir entendu « Je vous emmènerai pour tuer », ces mots se superposèrent soudainement à ceux de son rêve!
 
-Elle s'en souvenait faiblement: la voix du rêve appartenait à l'homme devant elle. Elle se souvint de la Mer des Démons, où elle se tenait devant la grotte, le visage pâle mais gardant fermement l'entrée.
+Elle s'en souvenait faiblement: la voix du rêve appartenait à l'homme devant elle. Elle se souvint de la Mer Xiu Mo, où elle se tenait devant la grotte, le visage pâle mais gardant fermement l'entrée.
 
 Elle se souvint qu'un homme était assis derrière elle, raffinant la puissance des pilules, en train de former son Noyau!
 

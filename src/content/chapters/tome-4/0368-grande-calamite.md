@@ -32,7 +32,7 @@ En un clin d'œil, son corps disparut dans le dispositif.
 
 La formation s'estompa lentement et un vieil homme en sortit calmement. Il marmonna: « Pays de Xue Yu, tu dois une faveur à ce vieux! »
 
-Cet homme était celui qui siégeait aux côtés de Gong Sunpo. C'était un Ancien des affaires étrangères de la Secte du Jade Céleste!
+Cet homme était celui qui siégeait aux côtés de Gong Sunpo. C'était un Ancien des affaires étrangères de la Secte Tian Yu!
 
 Dans une zone déserte de l'extrémité nord du continent Suzaku, une formation gigantesque s'ouvrit brusquement et un individu en fut expulsé.
 
@@ -104,11 +104,11 @@ L'homme d'âge moyen acquiesça: « Bien entendu. »
 
 Wang Lin luttait pour se redresser, les jambes tremblantes sous l'effet de ses blessures.
 
-D'un air sombre, il fixa le vieil homme en robe noire et lâcha: « Le Clan des Démons Géants! »
+D'un air sombre, il fixa le vieil homme en robe noire et lâcha: « Le Clan Ju Mo! »
 
 L'homme retira son masque, révélant un Ancien aux cheveux gris, dont les yeux brillaient comme la lumière lunaire.
 
-Il regarda Wang Lin en riant: « Jeune Ceng Niu, ce vieux est bel et bien du Clan des Démons Géants. Dans le Royaume Céleste, tu as dérobé la boussole stellaire à notre jeune chef de clan Chi Hu, je suis donc ici pour la reprendre aujourd'hui. J'espère que tu ne m'en voudras pas. »
+Il regarda Wang Lin en riant: « Jeune Ceng Niu, ce vieux est bel et bien du Clan Ju Mo. Dans le Royaume Céleste, tu as dérobé la boussole stellaire à notre jeune chef de clan Chi Hu, je suis donc ici pour la reprendre aujourd'hui. J'espère que tu ne m'en voudras pas. »
 
 Le regard de Wang Lin était sombre. Sa main droite tremblait alors qu'il sortait des pilules de son sac pour les avaler devant les deux cultivateurs de la Transformation de l'Âme. Puis, il dit calmement: « Deux vieux monstres de la Transformation de l'Âme se sont déplacés simultanément pour me tuer... Je n'oublierai jamais cet honneur! »
 
@@ -132,7 +132,7 @@ Cependant, l'usage du drapeau de restriction avait épuisé toute son énergie s
 
 L'homme d'âge moyen s'apprêtait à pointer à nouveau son doigt quand l'un des hommes en noir aux côtés de l'Ancien s'avança et dit respectueusement: « Ancêtre, permettez que ce junior tue cet individu pour venger l'ancienne rancune! »
 
-L'homme d'âge moyen baissa la main et tourna son regard vers l'Ancien du Clan des Démons Géants.
+L'homme d'âge moyen baissa la main et tourna son regard vers l'Ancien du Clan Ju Mo.
 
 L'Ancien regarda l'homme en robe noire et hocha la tête.
 

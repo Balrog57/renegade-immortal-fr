@@ -36,7 +36,7 @@ Wang Lin laissa échapper un gémissement étouffé et du sang coula du coin de 
 
 « Après avoir absorbé le Daoïste aux Sept Couleurs, il est devenu bien plus puissant... Même si j'ai obtenu tous les héritages de Ye Mo, à l'exception de l'œil gauche, je ne suis toujours pas son égal... Cependant, je peux tenter le tout pour le tout, peu importe l'issue! » Wang Lin resta calme et songea au sortilège le plus puissant qu'il avait hérité de Ye Mo!
 
-Ye Mo l'avait appris au Temple de l'Ancien Dao; c'était un sort secret du clan de l'Ancien Dao! Lorsque Wang Lin était immergé dans la mémoire de l'héritage, il avait vu ce sort, et il était devenu impossible de l'oublier.
+Ye Mo l'avait appris au Temple Dao Gu; c'était un sort secret du clan de l'Ancien Dao! Lorsque Wang Lin était immergé dans la mémoire de l'héritage, il avait vu ce sort, et il était devenu impossible de l'oublier.
 
 À présent, après avoir recueilli tous les héritages hormis l'œil gauche, sa compréhension de ce sort était immense. Il leva lentement le bras et forma un poing avant de frapper le vide devant lui. Ce qui jaillit avec son coup, c'étaient ses neuf étoiles de Dieu Ancien, qui fusionnèrent dans son poing.
 

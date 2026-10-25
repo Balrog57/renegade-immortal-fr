@@ -14,7 +14,7 @@ Bien qu'il connaisse bien l'Épreuve de la Terre, Wang Lin restait prudent. Il �
 
 Tout au long de son parcours, Wang Lin s'en tenait au principe de la prudence. Il traversa de nombreux lieux familiers en s'enfonçant dans les profondeurs de l'Ancien Dieu, tout en croisant de nombreux cultivateurs en chemin.
 
-Le cinquième jour, Wang Lin pénétra dans la dernière épreuve de la Terre de l'Ancien Dieu: le vide. Dès son entrée, il sentit immédiatement les fluctuations de sorts résonner, ainsi que le fracas de trésors s'entrechoquant. Il recula sans l'ombre d'une hésitation.
+Le cinquième jour, Wang Lin pénétra dans la dernière épreuve de la Terre Gu Shen: le vide. Dès son entrée, il sentit immédiatement les fluctuations de sorts résonner, ainsi que le fracas de trésors s'entrechoquant. Il recula sans l'ombre d'une hésitation.
 
 Le vide était peuplé d'une multitude de cultivateurs. À proximité de Wang Lin, des dizaines d'entre eux se battaient contre un vieil homme vêtu de rouge!
 
@@ -26,23 +26,23 @@ Les cultivateurs qui l'affrontaient possédaient tous des cercueils. Ces dernier
 
 Bien que l'homme fût seul, la bataille était d'une férocité extrême. Plus de dix corps défunts flottaient aux alentours.
 
-Sept ou huit cultivateurs se tenaient en périphérie du combat; ils étaient également des disciples de la Secte des Cadavres. Un jeune homme vêtu de noir dirigeait le groupe et fixait intensément le vieil homme. D'un simple geste de la main droite, il faisait changer de formation les disciples de la Secte des Cadavres qui encerclaient le vieil homme.
+Sept ou huit cultivateurs se tenaient en périphérie du combat; ils étaient également des disciples de la Secte Shi Yin. Un jeune homme vêtu de noir dirigeait le groupe et fixait intensément le vieil homme. D'un simple geste de la main droite, il faisait changer de formation les disciples de la Secte Shi Yin qui encerclaient le vieil homme.
 
 L'apparition de Wang Lin attira immédiatement l'attention des deux camps. Lorsque le vieil homme vit Wang Lin, ses yeux brillèrent d'un rouge éclatant.
 
-Les membres de la Secte des Cadavres remarquèrent également Wang Lin, mais ils ne connaissaient manifestement pas son ancienne identité. Le jeune homme en noir lança un regard glacial à Wang Lin et fit un signe de la main. Immédiatement, deux disciples de la Secte des Cadavres s'élancèrent vers lui.
+Les membres de la Secte Shi Yin remarquèrent également Wang Lin, mais ils ne connaissaient manifestement pas son ancienne identité. Le jeune homme en noir lança un regard glacial à Wang Lin et fit un signe de la main. Immédiatement, deux disciples de la Secte Shi Yin s'élancèrent vers lui.
 
-L'un d'eux joignit les mains et déclara: « Camarade cultivateur, ma Secte des Cadavres a été la première à combattre cet ancien raffineur de Qi. Veuillez vous retirer! »
+L'un d'eux joignit les mains et déclara: « Camarade cultivateur, ma Secte Shi Yin a été la première à combattre cet ancien raffineur de Qi. Veuillez vous retirer! »
 
 Bien que ses paroles fussent polies, son regard était empreint d'hostilité. Ses compagnons affichaient la même froideur.
 
-Wang Lin resta calme; il hocha la tête et s'écarta pour continuer sa route. Voyant Wang Lin partir, les membres de la Secte des Cadavres cessèrent de s'intéresser à lui. Le jeune homme en noir ne daigna même pas le regarder, ses yeux restant rivés sur le vieil homme rouge, brûlant de cupidité.
+Wang Lin resta calme; il hocha la tête et s'écarta pour continuer sa route. Voyant Wang Lin partir, les membres de la Secte Shi Yin cessèrent de s'intéresser à lui. Le jeune homme en noir ne daigna même pas le regarder, ses yeux restant rivés sur le vieil homme rouge, brûlant de cupidité.
 
 « Je dois obtenir le corps et l'âme originelle de cet ancien cultivateur! »
 
 Wang Lin traversa le vide et vit une quantité incalculable de cultivateurs. Ils évoluaient par petits groupes de trois à cinq individus. Rares étaient ceux qui voyageaient seuls, et tous, filant comme des arcs-en-ciel dans ce vide sans fin, semblaient en quête de quelque chose.
 
-Il aperçut également certains des anciens cultivateurs issus de la mer de sang de Tuo Sen, tous encerclés par une multitude d'adversaires. Chaque fois que Wang Lin tentait de s'approcher, il se faisait repousser, tout comme avec la Secte des Cadavres. Bien que leurs avertissements fussent polis, un seul pas de trop aurait déclenché un conflit sanglant.
+Il aperçut également certains des anciens cultivateurs issus de la mer de sang de Tuo Sen, tous encerclés par une multitude d'adversaires. Chaque fois que Wang Lin tentait de s'approcher, il se faisait repousser, tout comme avec la Secte Shi Yin. Bien que leurs avertissements fussent polis, un seul pas de trop aurait déclenché un conflit sanglant.
 
 Le visage de Wang Lin demeurait serein, mais une pointe de dédain perçait dans son regard. À chaque fois qu'il se trouvait face à une telle situation, il choisissait de s'éloigner.
 
@@ -52,7 +52,7 @@ Bien que leurs niveaux de culture variaient, tous ces anciens possédaient des s
 
 Tous les anciens que Wang Lin avait croisés n'étaient que les plus faibles de la mer de sang. Il n'avait pas encore aperçu le moindre des puissants anciens cultivateurs.
 
-« Je me demande où sont passés Maître Yan Leizi et ces puissants membres de la Secte des Cadavres! » Wang Lin déploya son Sens Divin pour scruter les environs. Le vide était trop vaste pour qu'il puisse le couvrir entièrement. Le huitième jour, Wang Lin s'arrêta soudainement et regarda devant lui.
+« Je me demande où sont passés Maître Yan Leizi et ces puissants membres de la Secte Shi Yin! » Wang Lin déploya son Sens Divin pour scruter les environs. Le vide était trop vaste pour qu'il puisse le couvrir entièrement. Le huitième jour, Wang Lin s'arrêta soudainement et regarda devant lui.
 
 Une lueur rouge sang apparut brusquement dans le vide, au loin. Un grondement de tonnerre accompagna la propagation de cette lumière écarlate. Celle-ci parcourut une distance indéfinie avant de surgir sous les yeux de Wang Lin.
 

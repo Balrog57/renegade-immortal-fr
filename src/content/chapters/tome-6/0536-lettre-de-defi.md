@@ -72,9 +72,9 @@ Wang Lin était doté d'une grande intelligence. Si le niveau de culture de cet 
 
 Fort de cette pensée, il laissa échapper un reniflement glacial et s'élança comme une météorite traversant le ciel.
 
-La Tribu des Eaux Célestes résidait dans une vaste plaine du nord-ouest de la Terre des Esprits Démoniaques. La zone était entourée de terres planes; à l'origine, ce n'était pas un lieu propice à l'habitation, mais une formation ancienne y était établie. Cette formation était extrêmement puissante: une fois activée, tout ce qui se trouvait dans un rayon de cinq kilomètres était protégé. Même durant la nuit des esprits démoniaques, l'intérieur restait parfaitement sûr.
+La Tribu des Eaux Célestes résidait dans une vaste plaine du nord-ouest de la Terre Yao Ling. La zone était entourée de terres planes; à l'origine, ce n'était pas un lieu propice à l'habitation, mais une formation ancienne y était établie. Cette formation était extrêmement puissante: une fois activée, tout ce qui se trouvait dans un rayon de cinq kilomètres était protégé. Même durant la nuit des esprits démoniaques, l'intérieur restait parfaitement sûr.
 
-La survie d'une tribu dans la Terre des Esprits Démoniaques dépendait de sa capacité à trouver une formation protectrice. On en trouvait beaucoup dans ce territoire, mais peu couvraient une telle étendue de cinq kilomètres. Plus la zone couverte était vaste, plus la formation était puissante, ce qui permettait également à la tribu d'avoir un potentiel de croissance plus important.
+La survie d'une tribu dans la Terre Yao Ling dépendait de sa capacité à trouver une formation protectrice. On en trouvait beaucoup dans ce territoire, mais peu couvraient une telle étendue de cinq kilomètres. Plus la zone couverte était vaste, plus la formation était puissante, ce qui permettait également à la tribu d'avoir un potentiel de croissance plus important.
 
 Par exemple, la vallée n'était que limitée par sa taille; une fois qu'une certaine population était atteinte, elle ne pouvait plus accueillir de nouveaux membres. Cette formation sur la plaine couvrant cinq kilomètres, elle permettait une expansion bien plus grande.
 
@@ -84,7 +84,7 @@ Le vieillard en robe blanche prit une tasse et but une gorgée. « De toutes les
 
 L'Ancien en robe grise prit également une tasse. « Quand comptez-vous repartir? »
 
-Le vieillard en robe blanche réfléchit un instant avant de répondre: « Demain. Je ne peux pas m'absenter trop longtemps de la Cité de l'Ancien Démon. J'ai déjà passé un mois pour rendre visite à ma famille; si je prolonge mon séjour, il sera difficile de l'expliquer au général de l'aile gauche. »
+Le vieillard en robe blanche réfléchit un instant avant de répondre: « Demain. Je ne peux pas m'absenter trop longtemps de la Cité Gu Yao. J'ai déjà passé un mois pour rendre visite à ma famille; si je prolonge mon séjour, il sera difficile de l'expliquer au général de l'aile gauche. »
 
 L'Ancien en robe grise hocha la tête et dit: « Vous avez blessé le disciple de quelqu'un et dérobé leur étrange petit drapeau. S'ils viennent frapper à notre porte, que devrai-je faire? »
 
@@ -92,7 +92,7 @@ Les yeux du vieillard en robe blanche brillèrent d'une lueur malicieuse: « Et 
 
 L'Ancien en robe grise fronça les sourcils et déclara d'un ton sérieux: « Ces gens n'étaient pas simples. Presque tous possédaient plus d'une étoile d'énergie spirituelle démoniaque et maîtrisaient des sorts démoniaques, particulièrement celui qui menait la troupe. Grâce à ces petits drapeaux, il pouvait contrôler les esprits démoniaques pour attaquer. Au début, ils nous contournaient, mais vous avez manifesté un intérêt pour son drapeau. Non seulement vous les avez tués pour leurs trésors, mais vous avez même laissé le chef s'échapper pour qu'il serve de lettre de défi et attire son protecteur. Vous êtes allé un peu trop loin. »
 
-L'homme en robe blanche rit: « Je suis un diacre sous les ordres du général de l'aile gauche de la Cité de l'Ancien Démon. Comment tuer quelques sauvages pourrait-il être excessif? De plus, j'ai déduit que celui qui les dirigeait n'était pas puissant. Pourquoi serait-il encore ici, dans une tribu? S'il était fort, il serait déjà allé à la Cité de l'Ancien Démon pour obtenir un poste de prestige. Je l'ai attiré ici car je veux obtenir la méthode d'utilisation de ce petit drapeau. S'il vient, tant mieux; sinon, dès demain matin, je suivrai la marque que j'ai laissée sur le jeune homme jusqu'à sa tribu pour la lui voler! »
+L'homme en robe blanche rit: « Je suis un diacre sous les ordres du général de l'aile gauche de la Cité Gu Yao. Comment tuer quelques sauvages pourrait-il être excessif? De plus, j'ai déduit que celui qui les dirigeait n'était pas puissant. Pourquoi serait-il encore ici, dans une tribu? S'il était fort, il serait déjà allé à la Cité Gu Yao pour obtenir un poste de prestige. Je l'ai attiré ici car je veux obtenir la méthode d'utilisation de ce petit drapeau. S'il vient, tant mieux; sinon, dès demain matin, je suivrai la marque que j'ai laissée sur le jeune homme jusqu'à sa tribu pour la lui voler! »
 
 L'Ancien en robe grise demanda: « L'incantation dans l'esprit du jeune homme est-elle un leurre? »
 

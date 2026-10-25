@@ -8,7 +8,7 @@ slug: pseudo-vide-du-nirvana
 ---
 D'innombrables fleurs étaient plantées sur les côtés du sentier. Il en existait de nombreux types différents, et leur beauté était saisissante. Cependant, elles étaient imprégnées de restrictions dont le moindre contact pouvait déclencher l'activation: elles pouvaient attaquer, emprisonner ou transporter le voyageur vers un autre lieu.
 
-Quiconque ignorait cela aurait eu bien du mal à faire le moindre pas dans la Grotte de l'Empereur Céleste. Même les jades célestes bordant ce chemin étaient empreints de restrictions. Si les pieds ne se posaient pas dans l'ordre précis, selon la direction de la marche, les pièges s'activaient.
+Quiconque ignorait cela aurait eu bien du mal à faire le moindre pas dans la Grotte Xian Di. Même les jades célestes bordant ce chemin étaient empreints de restrictions. Si les pieds ne se posaient pas dans l'ordre précis, selon la direction de la marche, les pièges s'activaient.
 
 Toutefois, rien de tout cela n'était dangereux pour Wang Lin. Bien que la carte ne fournisse pas la méthode pour briser ces entraves, elle contenait des explications détaillées à leur sujet.
 
@@ -68,7 +68,7 @@ En examinant attentivement le pavillon, les yeux de Wang Lin s'illuminèrent: il
 
 « À en juger par l'état de cette restriction, elle n'a pas été brisée il y a longtemps », pensa Wang Lin, devenant extrêmement prudent. Il était évident qu'il n'était pas le seul à comprendre les mécanismes de ce lieu.
 
-« Lors de l'effondrement du Bassin Funéraire Céleste, tout le monde fut dispersé. Il doit y avoir des gens qui ont brisé la restriction avant moi; je ne sais juste pas qui ils sont. » Wang Lin observa les environs. Le premier étage de la Grotte de l'Empereur Céleste n'était pas vaste et pouvait être aisément couvert par son sens divin. Cependant, à moins d'être fou, personne n'oserait étendre son sens divin dans un endroit parsemé de tant de restrictions. Même Tian Yunzi aurait été très prudent et ne l'aurait fait qu'en étant acculé.
+« Lors de l'effondrement du Bassin Funéraire Céleste, tout le monde fut dispersé. Il doit y avoir des gens qui ont brisé la restriction avant moi; je ne sais juste pas qui ils sont. » Wang Lin observa les environs. Le premier étage de la Grotte Xian Di n'était pas vaste et pouvait être aisément couvert par son sens divin. Cependant, à moins d'être fou, personne n'oserait étendre son sens divin dans un endroit parsemé de tant de restrictions. Même Tian Yunzi aurait été très prudent et ne l'aurait fait qu'en étant acculé.
 
 Après une courte réflexion, Wang Lin contourna le pavillon et s'avança dans l'herbe. Ses yeux brillaient d'une lueur analytique. Sans s'arrêter, il continua sa course.
 
@@ -84,7 +84,7 @@ Elle avait été projetée dans une restriction lors de l'effondrement du Bassin
 
 Elle ne se souciait guère de la jeune fille en rose qu'elle avait emmenée avec elle. Grâce au trésor que la sœur aînée de la jeune fille lui avait confié, elle ne devrait courir aucun danger.
 
-Cependant, les restrictions dans la Grotte de l'Empereur Céleste étaient trop nombreuses. En chemin, elle avait affronté de multiples périls avant d'atteindre cet endroit après un voyage épuisant. En voyant le pavillon, elle avait immédiatement remarqué sa particularité.
+Cependant, les restrictions dans la Grotte Xian Di étaient trop nombreuses. En chemin, elle avait affronté de multiples périls avant d'atteindre cet endroit après un voyage épuisant. En voyant le pavillon, elle avait immédiatement remarqué sa particularité.
 
 Alors qu'elle s'apprêtait à examiner la structure de plus près, l'homme en noir apparut de l'autre côté.
 
@@ -128,7 +128,7 @@ La femme réfléchit un instant en observant Wang Lin, puis dit lentement: « Le
 
 Juste au moment où Wang Lin s'apprêtait à répondre, le sol trembla et un rugissement furieux retentit au loin.
 
-Il ne pouvait rien distinguer dans le lointain. Les restrictions de la Grotte de l'Empereur Céleste étaient si nombreuses qu'elles formaient d'immenses obstacles, comme autant de mondes distincts. Même lorsque deux personnes sont proches, si elles se trouvent dans des zones de restrictions différentes, il est difficile de se trouver, et même la vue s'y déforme.
+Il ne pouvait rien distinguer dans le lointain. Les restrictions de la Grotte Xian Di étaient si nombreuses qu'elles formaient d'immenses obstacles, comme autant de mondes distincts. Même lorsque deux personnes sont proches, si elles se trouvent dans des zones de restrictions différentes, il est difficile de se trouver, et même la vue s'y déforme.
 
 À première vue, la grotte semblait calme, mais ce n'était qu'une apparence. Si toutes les restrictions étaient levées, on découvrirait immédiatement une forêt de bambous au loin. Elle était enveloppée d'un brouillard rouge monstrueux, et le rugissement féroce qui en émanait faisait trembler le ciel.
 

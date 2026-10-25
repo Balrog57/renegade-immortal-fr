@@ -38,7 +38,7 @@ Les larmes de la femme commencèrent à couler. « Oui, elle reviendra bientôt.
 
 La femme essuya ses larmes et murmura: « Ne t'inquiète pas, notre fille a une bonne fortune; elle est certainement en sécurité. »
 
-Ces deux personnes étaient les parents de Zhou Ru. Lors de la guerre opposant le Clan des Immortels Délaissés aux cultivateurs, ils avaient été contraints de s'installer ici pour fuir la guerre.
+Ces deux personnes étaient les parents de Zhou Ru. Lors de la guerre opposant le Clan Xian Yi aux cultivateurs, ils avaient été contraints de s'installer ici pour fuir la guerre.
 
 Pourtant, ces deux anciens ne cessaient de penser à Zhou Ru.
 
@@ -86,7 +86,7 @@ Ce rugissement terrifia les villageois, mais lorsqu'ils sortirent, ils ne trouv�
 
 Pays de Chu.
 
-Le corps de Wang Lin apparut devant la Secte du Ciel Nuageux.
+Le corps de Wang Lin apparut devant la Secte Yun Tian.
 
 « Tie Yan, viens me voir! » La voix de Wang Lin résonna à travers toute la secte.
 
@@ -116,7 +116,7 @@ Le cœur de Tie Yan trembla et il grava ces mots dans sa mémoire. Il n'oserait 
 
 Wang Lin observa les alentours une dernière fois avant de laisser échapper un soupir. Puis, son corps se transforma en une nuée de fumée verte et fut dispersé par le vent.
 
-Tie Yan était trempé de sueur. Il rangea soigneusement le sac de rangement et retourna à la Secte du Ciel Nuageux.
+Tie Yan était trempé de sueur. Il rangea soigneusement le sac de rangement et retourna à la Secte Yun Tian.
 
 Dans l'extrême nord de la planète Suzaku, là où se trouvait autrefois le pays de Xue Yu, là où les vents glacés pouvaient glacer jusqu'aux os et arrêter tout être vivant.
 

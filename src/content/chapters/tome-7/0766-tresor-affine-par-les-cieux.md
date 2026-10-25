@@ -32,7 +32,7 @@ Ce sentiment le poussait à la folie. C'était la première fois de sa vie qu'il
 
 Cependant, il craignait de bouger. Il scruta attentivement les nuages surplombant le fragment. Il sentait que la puissance qui s'y tramait grandissait en intensité.
 
-« C’est une rétribution divine… Je ne pensais pas que la culture de cet individu puisse réellement provoquer une telle rétribution. Je présume que la puissance des cieux qui a frappé la Terre des Esprits Démoniaques à l'époque était également causée par lui. » Le regard de Xue Zu devint glacial.
+« C’est une rétribution divine… Je ne pensais pas que la culture de cet individu puisse réellement provoquer une telle rétribution. Je présume que la puissance des cieux qui a frappé la Terre Yao Ling à l'époque était également causée par lui. » Le regard de Xue Zu devint glacial.
 
 « Plus la rétribution divine sera puissante, mieux ce sera. Si je m'y précipitais, je ne ferais que l'aider. Je vais simplement attendre ici et le regarder se faire anéantir par la rétribution divine. Ce sera fort satisfaisant. » Xue Zu ricana en fixant le fragment, ses yeux empreints de haine.
 

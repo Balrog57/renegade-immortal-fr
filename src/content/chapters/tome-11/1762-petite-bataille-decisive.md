@@ -14,7 +14,7 @@ Un vieil homme vêtu d'une robe bleue grossière traversait un monde lorsqu'il s
 
 Un homme d'âge moyen portant une robe violette était assis sur une planète, comme s'il cherchait attentivement quelque chose. Son nez frémit soudainement, comme s'il avait capté une odeur. Ses yeux s'illuminèrent et il partit sans hésiter.
 
-Tous les disciples de la Secte des Sept Dao remarquèrent l'encens, et tous se mirent en mouvement.
+Tous les disciples de la Secte Qi Dao remarquèrent l'encens, et tous se mirent en mouvement.
 
 Il y avait également la sixième concubine et la troisième concubine, qui connaissait Wang Lin et était encore vierge, entrées dans le cœur de ce monde caverneux. Bien qu'elles fussent dans des mondes différents, elles remarquèrent toutes deux l'encens. Les yeux de la sixième concubine étaient empreints de ressentiment, car elle avait de justesse survécu à l'attaque de Wang Lin. Elle serra les dents et suivit l'odeur de l'encens.
 
@@ -42,7 +42,7 @@ Tenant son arc, Wang Lin ferma les yeux. De loin, il ne ressemblait plus à un c
 
 Après un long moment, de nombreux vortex apparurent dans ce monde. Une foule de personnes à sa recherche surgit de toutes parts.
 
-À l'exception du Tigre Blanc, les trois autres généraux firent leur apparition. La sixième et la troisième concubine arrivèrent également. Tous les disciples de la Secte des Sept Dao furent là, menés par un vieil homme vêtu d'une robe bleue grossière.
+À l'exception du Tigre Blanc, les trois autres généraux firent leur apparition. La sixième et la troisième concubine arrivèrent également. Tous les disciples de la Secte Qi Dao furent là, menés par un vieil homme vêtu d'une robe bleue grossière.
 
 Le Souverain et le Maître Dao Bleu Rêve apparurent dans ce monde, tous deux l'air épuisé. Ils se regardèrent avec froideur; il était évident qu'ils s'étaient affrontés au sein des 300 mondes détruits.
 
@@ -110,7 +110,7 @@ Wang Lin avait appris ce sort auprès du fou: d'abord ouvrir l'ombrelle, puis la
 
 « Fermeture à 30 %! » L'expression de Wang Lin était sombre et il poussa un rugissement en agitant sa main gauche. Le ciel gronda et l'ombrelle géante commença à se refermer lentement.
 
-À mesure que l'ombrelle se fermait, le feu intérieur devenait plus ardent, atteignant une température terrifiante. À seulement 30 %, trois disciples de la Secte des Sept Dao qui n'avaient pas atteint le troisième stade commencèrent à brûler de l'intérieur. Ils furent instantanément réduits en cendres!
+À mesure que l'ombrelle se fermait, le feu intérieur devenait plus ardent, atteignant une température terrifiante. À seulement 30 %, trois disciples de la Secte Qi Dao qui n'avaient pas atteint le troisième stade commencèrent à brûler de l'intérieur. Ils furent instantanément réduits en cendres!
 
 « Fermeture à 60 %! » Wang Lin poussa un rugissement et les veines de son visage se gonflèrent. Il ferma l'ombrelle à un taux sans précédent de 60 %. L'ombrelle se referma brusquement, déclenchant des hurlements de douleur. Cette fois, même les expressions des trois généraux changèrent!
 

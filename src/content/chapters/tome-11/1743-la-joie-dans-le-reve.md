@@ -36,7 +36,7 @@ Cependant, la plupart du temps, il buvait seul. Le vin épicé coulait dans sa g
 
 « Cette bonté est une dette que je ne pourrai jamais rembourser... Wan Er... Je ne veux plus aimer dans cette vie, car ton départ m'a fait connaître le prix de l'amour... Je ne peux pas le supporter. »
 
-Il y a plus de 2 000 ans, en ce jour même, à l'extérieur de la Mer des Démons, un cri à l'aide avait pénétré l'esprit de Wang Lin, alors rempli de vengeance. Cette voix était très douce, impuissante, et elle aurait fait naître la pitié chez quiconque l'aurait entendue...
+Il y a plus de 2 000 ans, en ce jour même, à l'extérieur de la Mer Xiu Mo, un cri à l'aide avait pénétré l'esprit de Wang Lin, alors rempli de vengeance. Cette voix était très douce, impuissante, et elle aurait fait naître la pitié chez quiconque l'aurait entendue...
 
 Cette voix avait poussé Wang Lin à s'arrêter et à se retourner. Il avait alors aperçu une silhouette inconnue, mais dont il se souviendrait pour le reste de sa vie.
 
@@ -64,13 +64,13 @@ Wang Lin jeta la cruche et pointa son doigt droit vers l'espace entre ses sourci
 
 Xuan Luo médita silencieusement, l'expression complexe. Ayant une intuition, il soupira et pointa la brume entourant Wang Lin. Son Sens Divin pénétra dans le brouillard.
 
-« Wang Lin, ce n'est pas que ce vieil homme veuille te déranger, mais j'ai besoin de tout comprendre de toi. Celui que je choisis sera mon unique disciple et, plus encore, la personne la plus importante, celle qui protégera ma réincarnation et gardera mon Clan du Dao Antique! » Xuan Luo ferma les yeux.
+« Wang Lin, ce n'est pas que ce vieil homme veuille te déranger, mais j'ai besoin de tout comprendre de toi. Celui que je choisis sera mon unique disciple et, plus encore, la personne la plus importante, celle qui protégera ma réincarnation et gardera mon Clan Dao Gu! » Xuan Luo ferma les yeux.
 
 Dès qu'il eut les paupières closes, son esprit pénétra dans le monde onirique où se trouvait Wang Lin. Il ressentit la tristesse qui émanait de ce monde!
 
 Le ciel était sombre et des flammes monstrueuses illuminaient l'horizon au loin. On percevait des bruits de massacres et le choc des sorts magiques.
 
-Wang Lin se tenait là, et la confusion dans ses yeux s'estompait peu à peu. Il regarda en direction de la Mer des Démons et attendit patiemment.
+Wang Lin se tenait là, et la confusion dans ses yeux s'estompait peu à peu. Il regarda en direction de la Mer Xiu Mo et attendit patiemment.
 
 Après un long moment, deux traînées de lumière passèrent devant lui. C'était un homme et une femme. La femme devant semblait pâle et effrayée, son corps tremblant de peur. Elle était telle une fée lotus, douce et élégante. C'était Li Muwan.
 
@@ -82,7 +82,7 @@ Alors que Li Muwan laissait échapper un cri, l'homme huma sa main droite, le d�
 
 À cet instant précis, Li Muwan aperçut Wang Lin. Son cœur était affaibli par l'humiliation et le danger. Elle reconnut ce visage qui lui semblait si familier.
 
-« C'est vous! Senior Frère, sauvez-moi! » En parlant, elle changea de direction et rejoignit instantanément Wang Lin. Le visage crispé par l'anxiété, elle serra les dents et s'exclama: « Cet homme est un Ancien de la Secte de la Double Cultivation du pays de Xuan Wu. Il a découvert que je possède une Pilule Céleste Distante. Voilà pourquoi il n'a pas hésité... » Elle était très habile et mentionna immédiatement la pilule pour inciter Wang Lin à intervenir.
+« C'est vous! Senior Frère, sauvez-moi! » En parlant, elle changea de direction et rejoignit instantanément Wang Lin. Le visage crispé par l'anxiété, elle serra les dents et s'exclama: « Cet homme est un Ancien de la Secte Shuang Xiu du pays de Xuan Wu. Il a découvert que je possède une Pilule Céleste Distante. Voilà pourquoi il n'a pas hésité... » Elle était très habile et mentionna immédiatement la pilule pour inciter Wang Lin à intervenir.
 
 Cependant, avant qu'elle ne finisse sa phrase, elle fut frappée de stupeur: Wang Lin la regardait avec un sourire si tendre qu'on aurait dit qu'il contemplait l'être aimé depuis des millénaires. Ce regard fit frissonner Li Muwan.
 

@@ -40,7 +40,7 @@ L'expression de Teng Huayuan changea brusquement. À cet instant précis, une on
 
 Tout ce qui se trouvait dans ce périmètre fut transformé en un océan de glace.
 
-Lin Yi plissa les yeux et pensa: « Intéressant, ce petit est intéressant. Non seulement il possède la Métamorphose des Mille Illusions de la Cité des Illusions, mais aussi la Glace Bleue de la Secte de l'Inframonde. Cette épée volante n'est pas ordinaire non plus. Bien qu'il s'agisse d'une imitation, elle demeure puissante. »
+Lin Yi plissa les yeux et pensa: « Intéressant, ce petit est intéressant. Non seulement il possède la Métamorphose des Mille Illusions de la Cité Huan, mais aussi la Glace Bleue de la Secte Huang Quan. Cette épée volante n'est pas ordinaire non plus. Bien qu'il s'agisse d'une imitation, elle demeure puissante. »
 
 Le géant dans le ciel fut également surpris; il jeta un regard lourd de sens vers le passage de la Vallée de Jue Ming et laissa échapper un sourire étrange.
 

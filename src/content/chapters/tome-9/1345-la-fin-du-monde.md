@@ -14,7 +14,7 @@ Qu'il s'agisse de Hongdie, de Li Qianmei ou de Situ Nan, aucun n'était aussi ta
 
 « Cependant, même ce cultivateur au stade de la Formation de l'Âme pouvait incarner le Dao céleste, se proclamer Céleste et descendre avec la tribulation pour massacrer les miens! J'étais en colère et j'ai commencé une boucherie. Et c'est dans le sang de mes victimes que j'ai appris la vérité! » Le jeune homme chauve rit bruyamment, tandis que des larmes coulaient de ses yeux.
 
-« La vérité est que l'endroit où je vis s'appelle les "7 Millions de Mondes", et c'est un lieu créé par le Clan du Tonnerre Dispersé. Nous ne sommes que du bétail en captivité, que le Clan du Tonnerre Dispersé fouette avec le fouet du Dao Céleste, et dès que nous atteignons le stade de la Formation de l'Âme, ils arrivent avec une divine rétribution pour nous arracher notre Tonnerre Spirituel! »
+« La vérité est que l'endroit où je vis s'appelle les "7 Millions de Mondes", et c'est un lieu créé par le Clan Shan Lei. Nous ne sommes que du bétail en captivité, que le Clan Shan Lei fouette avec le fouet du Dao Céleste, et dès que nous atteignons le stade de la Formation de l'Âme, ils arrivent avec une divine rétribution pour nous arracher notre Tonnerre Spirituel! »
 
 « J'ai également découvert qu'au fil d'innombrables années, les légendes transmises par mes ancêtres dans les 7 Millions de Mondes étaient toutes fausses! Toutes mensongères!! Au moment même où ils devenaient des êtres célestes, ils étaient déjà morts!! »
 
@@ -22,9 +22,9 @@ Qu'il s'agisse de Hongdie, de Li Qianmei ou de Situ Nan, aucun n'était aussi ta
 
 La voix du jeune homme contenait une pointe de folie et était empreinte d'une rancœur monstrueuse. Wang Lin réfléchit en silence, son expression se faisant de plus en plus complexe.
 
-« Le Dao céleste et la divine rétribution ne sont, à mes yeux, qu'une simple tâche pour les membres du Clan du Tonnerre Dispersé. Une corvée que n'importe qui dans le clan peut accomplir! Ce qui est ironique, c'est que même ainsi, je n'osais pas croire tout cela; je n'osais même pas tuer trop de membres du Clan... »
+« Le Dao céleste et la divine rétribution ne sont, à mes yeux, qu'une simple tâche pour les membres du Clan Shan Lei. Une corvée que n'importe qui dans le clan peut accomplir! Ce qui est ironique, c'est que même ainsi, je n'osais pas croire tout cela; je n'osais même pas tuer trop de membres du Clan... »
 
-« J'avais peur, j'étais terrifié. Je savais aussi que la personne qui m'avait épargné était devenue le Grand Ancien du Clan du Tonnerre Dispersé... Je craignais que le clan ne découvre que je savais tout. Je redoutais ce Royaume Céleste qui pesait sur moi et sur les 7 Millions de Mondes depuis des éternités... »
+« J'avais peur, j'étais terrifié. Je savais aussi que la personne qui m'avait épargné était devenue le Grand Ancien du Clan Shan Lei... Je craignais que le clan ne découvre que je savais tout. Je redoutais ce Royaume Céleste qui pesait sur moi et sur les 7 Millions de Mondes depuis des éternités... »
 
 « Je n'osais pas résister... » Les larmes continuaient de couler sur le visage du jeune homme. Ce souvenir était la partie la plus douloureuse de son existence.
 
@@ -44,13 +44,13 @@ Le jeune homme murmura doucement: « Je me suis enfui jusqu'ici, au bout des 7 M
 
 « Je leur ai enseigné la méthode de culture qui leur permettrait d'atteindre le stade de la Formation de l'Âme le plus rapidement possible. J'ai cultivé comme un fou, créant avatar après avatar. Des dizaines de milliers d'années plus tard, j'ai atteint le stade que vous, les êtres célestes, appelez le "Quatrième Fléau Céleste"! » Le jeune homme se tourna vers Wang Lin.
 
-« Je vais tuer les êtres célestes, je vais subvertir le Clan du Tonnerre Dispersé et arracher mon peuple de cet endroit! Cependant, même après des dizaines de milliers d'années, malgré la puissance que j'ai accumulée, je ne peux toujours pas vaincre le Grand Ancien, qui est au stade du cinquième Fléau Céleste... »
+« Je vais tuer les êtres célestes, je vais subvertir le Clan Shan Lei et arracher mon peuple de cet endroit! Cependant, même après des dizaines de milliers d'années, malgré la puissance que j'ai accumulée, je ne peux toujours pas vaincre le Grand Ancien, qui est au stade du cinquième Fléau Céleste... »
 
 « Je peux tout tenter, rassembler tous les cultivateurs que je contrôle, et même utiliser la grande formation de vie que j'ai mise en place il y a des dizaines de milliers d'années, mais je ne peux que le blesser gravement! Pas le tuer! Et cela sans parler du reste des Anciens du Clan... »
 
 « Ma culture a atteint ses limites. Je ne peux pas atteindre le niveau requis pour supporter la calamité de vie et de mort du cinquième Fléau Céleste! J'ai besoin de votre aide! » Le jeune homme regarda Wang Lin, les yeux suppliants.
 
-« Vous n'êtes pas comme les membres du Clan du Tonnerre Dispersé, vous êtes le premier espoir que j'aie jamais vu. Avec notre puissance combinée, vous pourriez m'aider. Je vois bien que vous aussi, vous n'avez aucune inclination pour le Clan du Tonnerre Dispersé. Si nous coopérons, nous y gagnerons tous les deux! »
+« Vous n'êtes pas comme les membres du Clan Shan Lei, vous êtes le premier espoir que j'aie jamais vu. Avec notre puissance combinée, vous pourriez m'aider. Je vois bien que vous aussi, vous n'avez aucune inclination pour le Clan Shan Lei. Si nous coopérons, nous y gagnerons tous les deux! »
 
 Wang Lin resta silencieux, songeur.
 
@@ -60,7 +60,7 @@ Wang Lin ne répondit toujours pas, fixant la barrière d'un regard troublé.
 
 « De plus, il y a d'innombrables cultivateurs de mon clan dans les 7 Millions de Mondes. Si cette entreprise réussit et que mon peuple peut s'échapper, j'accepterai n'importe laquelle de vos requêtes à l'avenir. Même si je ne suis plus là, mon clan continuera d'obéir à cet ordre pendant des générations! »
 
-« J'ai appris, à travers les souvenirs du Clan du Tonnerre Dispersé, que dans votre monde, il existe un Royaume Intérieur et un Royaume Extérieur. Si vous en avez besoin, tout mon clan peut vous aider à combattre le Royaume Intérieur! »
+« J'ai appris, à travers les souvenirs du Clan Shan Lei, que dans votre monde, il existe un Royaume Intérieur et un Royaume Extérieur. Si vous en avez besoin, tout mon clan peut vous aider à combattre le Royaume Intérieur! »
 
 Après un long silence, Wang Lin demanda lentement: « Quel est votre degré de confiance pour tuer le Grand Ancien? »
 
@@ -70,7 +70,7 @@ Les yeux du jeune homme s'illuminèrent et, après une courte réflexion, il ré
 
 Le jeune homme fut exalté. Il regarda Wang Lin avec intensité et sourit.
 
-« Bien. Je vais tuer tous les cultivateurs du Clan du Tonnerre Dispersé ici présents. Cela attirera leur attention, et le Grand Ancien viendra sûrement! »
+« Bien. Je vais tuer tous les cultivateurs du Clan Shan Lei ici présents. Cela attirera leur attention, et le Grand Ancien viendra sûrement! »
 
 « C'est inutile, dit calmement Wang Lin. Si tous les membres du clan meurent, ils n'enverront pas seulement le Grand Ancien. Si plusieurs Anciens arrivent, cela posera problème. Si vous avez un moyen de me faire entrer ici librement, je pourrai attirer le Grand Ancien seul. Une fois qu'il sera mort, l'affaire sera réglée! »
 
@@ -92,15 +92,15 @@ Le jeune homme fixa l'endroit où Wang Lin était parti. Après une longue réfl
 
 Tandis que Wang Lin se déplaçait à une vitesse fulgurante dans l'espace, ses yeux brillaient de réflexion. Il ne croyait pas tout ce que le jeune homme avait dit; c'était sa nature, et c'est pour cela qu'il avait réclamé ce talisman. Avec son niveau de culture, il savait parfaitement quelle quantité d'énergie était nécessaire pour ouvrir un tel passage. Le fait que le jeune homme soit prêt à sacrifier tant d'êtres en un instant était une marque de sincérité.
 
-Tuer le Grand Ancien du Clan du Tonnerre Dispersé n'était qu'un des motifs. La raison la plus importante était qu'il voulait aider ces gens. Il voulait briser quelque chose, il voulait que ce peuple puisse enfin partir, afin de prouver une vérité...
+Tuer le Grand Ancien du Clan Shan Lei n'était qu'un des motifs. La raison la plus importante était qu'il voulait aider ces gens. Il voulait briser quelque chose, il voulait que ce peuple puisse enfin partir, afin de prouver une vérité...
 
 Wang Lin progressait très vite vers la place centrale. Bientôt, l'esplanade apparut devant lui. D'un seul pas, il franchit une distance incommensurable et atterrit sur la place.
 
 Il fit fi des regards des personnes alentour et son corps disparut. Lorsqu'il réapparut, il se tenait déjà devant un pavillon imposant.
 
-C'était le point de passage pour quitter les 7 Millions de Mondes et retourner vers le Clan du Tonnerre Dispersé!
+C'était le point de passage pour quitter les 7 Millions de Mondes et retourner vers le Clan Shan Lei!
 
-Un immense réseau de transfert se trouvait aux côtés du pavillon. À cet instant, la formation était activée et des dizaines de personnes se trouvaient à l'intérieur. Le transfert était sur le point de s'opérer, tandis que plusieurs membres du Clan du Tonnerre Dispersé surveillaient la formation à l'extérieur.
+Un immense réseau de transfert se trouvait aux côtés du pavillon. À cet instant, la formation était activée et des dizaines de personnes se trouvaient à l'intérieur. Le transfert était sur le point de s'opérer, tandis que plusieurs membres du Clan Shan Lei surveillaient la formation à l'extérieur.
 
 Wang Lin surgit soudainement. Sans même jeter un regard autour de lui, il se dirigea vers le réseau de transfert.
 

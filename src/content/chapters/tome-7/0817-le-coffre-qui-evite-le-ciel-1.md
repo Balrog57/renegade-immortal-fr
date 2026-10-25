@@ -48,7 +48,7 @@ Au moment où l'homme leva les mains, une force mystérieuse commença soudainem
 
 L'expression féroce de l'homme s'intensifia et il poussa violemment vers le haut!
 
-Un fracas assourdissant résonna dans le vide. Le son fut si puissant que tous les membres du Clan des Immortels Élus qui approchaient s'arrêtèrent net. Leurs corps tremblèrent et ils furent forcés de reculer sous l'onde de choc. Ceux dont la culture était plus faible virent du sang jaillir de leurs orifices.
+Un fracas assourdissant résonna dans le vide. Le son fut si puissant que tous les membres du Clan Xian Xuan qui approchaient s'arrêtèrent net. Leurs corps tremblèrent et ils furent forcés de reculer sous l'onde de choc. Ceux dont la culture était plus faible virent du sang jaillir de leurs orifices.
 
 Le Sceau Céleste vacilla et marqua une pause.
 

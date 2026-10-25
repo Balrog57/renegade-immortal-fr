@@ -84,6 +84,6 @@ Cette épée choqua tout le monde et provoqua un séisme dans leurs cœurs!
 
 Le corps de Wang Lin vacilla, puis il emporta directement la vieille femme abasourdie vers les cieux. Les six membres de la Secte Éternelle n'osèrent même pas tenter de l'arrêter!
 
-« Je reviendrai. Si la Secte de l'Origine subit le moindre dommage, je rayerai votre Secte Éternelle de la Mer des Nuages! Vous tous les six, vous périrez! » Dans les airs, Wang Lin se retourna et lança un regard glacial aux six individus. Il avait tenté d'être poli et sincère; il avait même prêté serment, mais tout cela était vain! Dans le monde de la culture, seule la force est respectée!
+« Je reviendrai. Si la Secte Gui Yuan subit le moindre dommage, je rayerai votre Secte Éternelle de la Mer Yun! Vous tous les six, vous périrez! » Dans les airs, Wang Lin se retourna et lança un regard glacial aux six individus. Il avait tenté d'être poli et sincère; il avait même prêté serment, mais tout cela était vain! Dans le monde de la culture, seule la force est respectée!
 
 Une épée et une phrase valaient dix mille fois plus qu'un serment de sang!

@@ -86,7 +86,7 @@ L'homme d'âge moyen, toujours en pleine rétribution, sentit son cuir chevelu p
 
 Le temps passa. Bientôt, une autre personne sortit de la brèche. Ce nouveau venu était très prudent et déploya d'immenses protections autour de lui dès son apparition. Cependant, d'un simple geste de Wang Lin, toutes ces protections s'effondrèrent avec son corps. Le cultivateur poussa un cri déchirant avant de mourir!
 
-En seulement le temps d'un bâton d'encens, plus d'une douzaine de membres du Clan du Tonnerre Dispersé s'étaient présentés, utilisant l'homme d'âge moyen comme appât. Pourtant, sans exception, tous furent tués dès leur apparition.
+En seulement le temps d'un bâton d'encens, plus d'une douzaine de membres du Clan Shan Lei s'étaient présentés, utilisant l'homme d'âge moyen comme appât. Pourtant, sans exception, tous furent tués dès leur apparition.
 
 L'homme d'âge moyen, plongé dans sa rétribution, était désormais anesthésié par la terreur qui ne cessait de croître en lui. Il esquissa un sourire amer et décida simplement de fermer les yeux pour ne plus rien voir.
 
@@ -102,7 +102,7 @@ L'expression du vieil homme devint grave et il révéla une intention meurtrièr
 
 À cet instant, son corps se divisa en deux. L'un chargea Wang Lin tandis que l'autre tentait une retraite effrénée. Utilisant la téléportation, il était sur le point de s'échapper!
 
-L'expression de Wang Lin resta calme. Ce cultivateur Briseur du Nirvana du Clan du Tonnerre Dispersé était un homme décidé. Il avait envisagé de sacrifier un avatar pour garantir sa fuite en si peu de temps!
+L'expression de Wang Lin resta calme. Ce cultivateur Briseur du Nirvana du Clan Shan Lei était un homme décidé. Il avait envisagé de sacrifier un avatar pour garantir sa fuite en si peu de temps!
 
 Wang Lin n'était, après tout, pas dans son corps originel. Sans son Royaume Ji, il aurait été difficile d'empêcher ce vieillard de s'enfuir avec une simple culture de Briseur du Nirvana. Ses yeux brillèrent d'un éclat rouge et son Royaume Ji s'élança. Il se mua en un éclair écarlate qui pénétra immédiatement l'avatar du vieil homme qui lui barrait la route.
 

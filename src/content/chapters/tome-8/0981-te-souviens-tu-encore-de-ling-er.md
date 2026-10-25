@@ -106,7 +106,7 @@ Wang Lin était assis au cœur du palais. Après trois jours d'immobilité absol
 
 À l'instant où ses yeux s'ouvrirent, ce fut comme si un éclair avait transpercé l'obscurité du palais, le baignant de lumière.
 
-« Trois jours de repos ajoutés à la culture effectuée en chemin ont finalement permis de stabiliser mon niveau au sommet du stade intermédiaire de Scruteur du Nirvana... Avec mon corps d'Ancien Dieu, je devrais pouvoir affronter des cultivateurs de Purificateur du Nirvana au stade intermédiaire! Cependant, cela ne suffira pas pour le voyage vers la grotte céleste de la Terre des Esprits Démoniaques... » murmura Wang Lin. Après un moment de silence, il frappa son sac de rangement, provoquant l'éjection d'un rayon de lumière azur.
+« Trois jours de repos ajoutés à la culture effectuée en chemin ont finalement permis de stabiliser mon niveau au sommet du stade intermédiaire de Scruteur du Nirvana... Avec mon corps d'Ancien Dieu, je devrais pouvoir affronter des cultivateurs de Purificateur du Nirvana au stade intermédiaire! Cependant, cela ne suffira pas pour le voyage vers la grotte céleste de la Terre Yao Ling... » murmura Wang Lin. Après un moment de silence, il frappa son sac de rangement, provoquant l'éjection d'un rayon de lumière azur.
 
 Cette lueur azur rendit immédiatement le palais brumeux. À l'intérieur de cette lumière se trouvait un petit bouclier, de la taille d'une paume, entièrement bleu azur. Il avait été raffiné avec une matière inconnue et des volutes de nuages semblaient flotter en son sein. Il était d'une beauté remarquable.
 

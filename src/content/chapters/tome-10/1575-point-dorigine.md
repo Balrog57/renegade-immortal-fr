@@ -20,7 +20,7 @@ Les yeux de Wang Lin étaient empreints de réflexion, mais après un long momen
 
 S'il n'avait pas quitté la planète Suzaku, il ne serait jamais allé dans les Terres des Esprits Démoniaques. Il n'aurait alors jamais utilisé la faille de ce lieu pour entrer dans Luotian. Et s'il n'était pas allé à Luotian, il n'aurait pu pénétrer dans la Bête des Limbes.
 
-S'il n'avait pas connu la Bête des Limbes, il n'aurait jamais eu l'idée d'en faire sa bête d'essence vitale. De ce fait, il n'aurait pas été avalé par elle pour se soigner lors de leur première bataille à la Mer des Nuages. Il n'aurait alors jamais rencontré le fou, et encore moins obtenu la lignée céleste. Naturellement, il n'aurait pas eu à composer avec cette force de rejet.
+S'il n'avait pas connu la Bête des Limbes, il n'aurait jamais eu l'idée d'en faire sa bête d'essence vitale. De ce fait, il n'aurait pas été avalé par elle pour se soigner lors de leur première bataille à la Mer Yun. Il n'aurait alors jamais rencontré le fou, et encore moins obtenu la lignée céleste. Naturellement, il n'aurait pas eu à composer avec cette force de rejet.
 
 Maintenant qu'il était revenu sur la planète Suzaku, il se retrouvait là où il avait fait ses premiers pas. Il était revenu au point d'origine.
 
@@ -74,11 +74,11 @@ Le tatouage circulaire projeta une lumière intense qui illumina toute la pièce
 
 Wang Lin essuya le sang au coin de ses lèvres. Il leva la tête et vit immédiatement l'entrée d'un autre monde!
 
-C'était le plus grand secret du Clan du Tatouage. Cet endroit était le 19e niveau!
+C'était le plus grand secret du Clan Fu Wen. Cet endroit était le 19e niveau!
 
 Alors que la porte s'ouvrait, cette aura ancienne se mêla à l'air ambiant. Wang Lin le sentit clairement et, sans hésiter, il frappa contre le mur.
 
-Un grondement de tonnerre éclata. Utilisant cet élan, Wang Lin s'élança vers la porte ouverte. En un instant, il pénétra dans le 19e niveau du Clan du Tatouage, un lieu que nul n'avait foulé depuis qu'il avait été scellé il y a d'innombrables années!
+Un grondement de tonnerre éclata. Utilisant cet élan, Wang Lin s'élança vers la porte ouverte. En un instant, il pénétra dans le 19e niveau du Clan Fu Wen, un lieu que nul n'avait foulé depuis qu'il avait été scellé il y a d'innombrables années!
 
 Dès son entrée, la porte de pierre se referma lentement.
 

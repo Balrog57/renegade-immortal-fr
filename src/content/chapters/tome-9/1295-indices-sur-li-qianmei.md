@@ -14,7 +14,7 @@ Tout cela terrifia les milliers de cultivateurs postés à l'extérieur de la fa
 
 L'image de l'homme aux vêtements blancs et aux cheveux blancs s'était gravée dans le cœur de ces cultivateurs. Elle ne pourrait jamais être effacée!
 
-Pour les habitants de la Mer des Nuages, la faille spatiale était à la fois familière et inconnue. Ils connaissaient la guerre qui se jouait, mais ignoraient vers quoi elle tendait ni comment elle s'achèverait.
+Pour les habitants de la Mer Yun, la faille spatiale était à la fois familière et inconnue. Ils connaissaient la guerre qui se jouait, mais ignoraient vers quoi elle tendait ni comment elle s'achèverait.
 
 Ce n'était pas que d'importants cultivateurs n'entraient jamais dans la faille, mais les rapports disaient qu'elle était si vaste qu'on ne pouvait en connaître toute l'étendue. C'était comme un univers à part entière, impossible à explorer avec seulement quelques individus.
 
@@ -36,7 +36,7 @@ Après avoir progressé durant une durée indéterminée, le silence fut rompu p
 
 Comme ces hurlements provenaient de très loin, ils ressemblaient au souffle d'un être vivant. Cependant, il ne s'agissait pas d'un seul souffle, mais d'innombrables...
 
-Cette sensation étrange aurait rendu n'importe quel cultivateur de la Mer des Nuages extrêmement vigilant lors d'une première incursion. Mais cela n'affectait nullement Wang Lin.
+Cette sensation étrange aurait rendu n'importe quel cultivateur de la Mer Yun extrêmement vigilant lors d'une première incursion. Mais cela n'affectait nullement Wang Lin.
 
 Il restait assis calmement, le regard porté vers l'avant, se remémorant ces dix années où il n'était qu'une statue de pierre, incapable de ressentir quoi que ce soit du monde extérieur... Il songea également à la lumière sanguine et à la chaleur qui l'avaient accompagné durant ses dix ans à l'intérieur de la Perle Défiant le Ciel.
 

@@ -78,7 +78,7 @@ Cela n'avait rien à voir avec la culture; c'était une bataille de tonnerre!
 
 Les dragons de tonnerre anciens s'étaient vu accorder par le Dao céleste le droit de contrôler le tonnerre. Mais Wang Lin ne croyait pas aux cieux et allait utiliser son propre Dao pour dérober aux cieux le droit de commander au tonnerre!
 
-La statue de pierre était l'ancêtre du Clan du Tonnerre Dispersé. Bien que mort, il avait passé sa vie avec le tonnerre pour seul compagnon, au point de devenir presque lui-même le tonnerre. La marque de foudre entre ses sourcils refusait de céder! La rumeur disait que l'ancêtre originel du Clan du Tonnerre Dispersé était un éclair lui-même; un éclair défiant les cieux qui ne s'inclinerait même pas devant le firmament!
+La statue de pierre était l'ancêtre du Clan Shan Lei. Bien que mort, il avait passé sa vie avec le tonnerre pour seul compagnon, au point de devenir presque lui-même le tonnerre. La marque de foudre entre ses sourcils refusait de céder! La rumeur disait que l'ancêtre originel du Clan Shan Lei était un éclair lui-même; un éclair défiant les cieux qui ne s'inclinerait même pas devant le firmament!
 
 Si d'autres le vénéraient, ils obtenaient le droit de contrôler le tonnerre. Mais si l'on lui résistait, on était détruit par le tonnerre!
 

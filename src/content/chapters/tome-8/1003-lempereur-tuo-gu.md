@@ -20,7 +20,7 @@ Le temps passa lentement, et le soleil apparut à l'est, dissipant l'obscurité.
 
 L'homme d'âge moyen regarda les cruches et murmura: « Seigneur Bei Luo sait déjà l'arrivée de Frère Wang. Il m'a envoyé ici pour lui transmettre un message. »
 
-L'expression de Wang Lin resta neutre. Lorsque l'Empereur Démon était arrivé, il s'y était déjà attendu. Après tout, la Terre des Esprits Démoniaques était désormais gouvernée par Bei Luo. Chaque fois qu'il dévorait un autre esprit démoniaque, sa puissance se trouvait multipliée.
+L'expression de Wang Lin resta neutre. Lorsque l'Empereur Démon était arrivé, il s'y était déjà attendu. Après tout, la Terre Yao Ling était désormais gouvernée par Bei Luo. Chaque fois qu'il dévorait un autre esprit démoniaque, sa puissance se trouvait multipliée.
 
 Wang Lin but une gorgée de la demi-cruche qui lui restait.
 
@@ -32,19 +32,19 @@ Wang Lin regarda au loin et dit calmement: « D'accord! »
 
 L'homme d'âge moyen se leva, joignit ses mains et déclara: « Frère Wang, j'ai accompli la tâche que le Seigneur Bei Luo m'a confiée. À présent, j'aimerais solliciter votre aide pour une affaire personnelle.
 
-« L'esprit de mon Épée Impériale est la fille d'un bon ami. Cependant, en raison de certaines difficultés, elle ne pouvait échapper à la mort qu'en devenant l'esprit de mon épée. Elle est piégée ici depuis d'innombrables années et n'a jamais quitté la Terre des Esprits Démoniaques.
+« L'esprit de mon Épée Impériale est la fille d'un bon ami. Cependant, en raison de certaines difficultés, elle ne pouvait échapper à la mort qu'en devenant l'esprit de mon épée. Elle est piégée ici depuis d'innombrables années et n'a jamais quitté la Terre Yao Ling.
 
-« J'aimerais demander à Frère Wang de sortir cet esprit de la Terre des Esprits Démoniaques, afin qu'elle puisse entrer dans le cycle de la réincarnation ou rencontrer d'autres opportunités... »
+« J'aimerais demander à Frère Wang de sortir cet esprit de la Terre Yao Ling, afin qu'elle puisse entrer dans le cycle de la réincarnation ou rencontrer d'autres opportunités... »
 
 L'expression de l'homme d'âge moyen était sombre alors que sa main droite pointait vers le vide. Un rayon d'énergie d'épée jaillit de la direction de la capitale impériale, et l'Épée Impériale se trouvait au cœur de cette énergie!
 
 Wang Lin réfléchit un instant avant de dire lentement: « Pourquoi ne cherchez-vous pas quelqu'un d'autre? »
 
-L'homme d'âge moyen secoua la tête et répondit calmement: « D'innombrables personnes sont entrées dans la Terre des Esprits Démoniaques au fil des ans, mais peu étaient dignes de ma confiance... Cependant, j'avais encore le pouvoir de protéger l'épée, alors j'ai laissé passer cette chance. »
+L'homme d'âge moyen secoua la tête et répondit calmement: « D'innombrables personnes sont entrées dans la Terre Yao Ling au fil des ans, mais peu étaient dignes de ma confiance... Cependant, j'avais encore le pouvoir de protéger l'épée, alors j'ai laissé passer cette chance. »
 
 Wang Lin laissa échapper un soupir. Lorsque l'Empereur Démon était arrivé la nuit précédente, Wang Lin avait détecté une faible aura de mort émanant de lui. La durée de vie de l'Empereur Démon touchait à sa fin.
 
-Bien que les habitants de la Terre des Esprits Démoniaques vivent plus longtemps que les cultivateurs ordinaires, ils n'en avaient pas moins une limite. Sans accident, il ne resterait pas plus de trente ans avant que l'Empereur Démon ne s'éteigne.
+Bien que les habitants de la Terre Yao Ling vivent plus longtemps que les cultivateurs ordinaires, ils n'en avaient pas moins une limite. Sans accident, il ne resterait pas plus de trente ans avant que l'Empereur Démon ne s'éteigne.
 
 En tant que connaissance, Wang Lin n'avait aucune raison de refuser et acquiesça d'un signe de tête.
 

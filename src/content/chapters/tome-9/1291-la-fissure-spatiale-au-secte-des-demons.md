@@ -58,19 +58,19 @@ En chemin, Wang Lin se déplaçait à une vitesse suprême. Des grondements toni
 
 La Secte Démon était l'organisation la plus mystérieuse de la région de rang 9. La rumeur disait que ses disciples étaient peu nombreux, mais que chacun d'entre eux était un cultivateur prodigieux!
 
-Stationnés sur le champ de bataille depuis d'innombrables années pour repousser les vagues d'invasions de bêtes féroces, les membres de la Secte Démon étaient imprégnés d'une intention meurtrière constante. De plus, comme ils ne quittaient presque jamais leur domaine, les habitants de la Mer des Nuages les considéraient comme pouvant rivaliser avec la Secte Divine!
+Stationnés sur le champ de bataille depuis d'innombrables années pour repousser les vagues d'invasions de bêtes féroces, les membres de la Secte Démon étaient imprégnés d'une intention meurtrière constante. De plus, comme ils ne quittaient presque jamais leur domaine, les habitants de la Mer Yun les considéraient comme pouvant rivaliser avec la Secte Divine!
 
 Les rumeurs affirmaient que la Secte Démon s'était séparée de la Secte Divine et ne lui obéissait plus. Tout cela était très étrange. Que ce soit vrai ou faux, cela suffisait à démontrer la puissance de la Secte Démon!
 
-En restant postés sur le champ de bataille pendant d'innombrables années pour assurer la paix de la Mer des Nuages, le mystère qui les entourait inspirait les habitants de la Mer des Nuages à les regarder avec crainte. Ils respectaient leur vertu et redoutaient leurs secrets!
+En restant postés sur le champ de bataille pendant d'innombrables années pour assurer la paix de la Mer Yun, le mystère qui les entourait inspirait les habitants de la Mer Yun à les regarder avec crainte. Ils respectaient leur vertu et redoutaient leurs secrets!
 
-Aux yeux de la Mer des Nuages, les membres de la Secte Démon ne pouvaient plus être simplement qualifiés de cultivateurs. Ils ressemblaient plutôt à une armée, comme les soldats d'une dynastie impériale mortelle!
+Aux yeux de la Mer Yun, les membres de la Secte Démon ne pouvaient plus être simplement qualifiés de cultivateurs. Ils ressemblaient plutôt à une armée, comme les soldats d'une dynastie impériale mortelle!
 
-Ils étaient impitoyables, mais ils gardaient l'intégralité de la Mer des Nuages! C'est grâce à l'existence de la Secte Démon que la Mer des Nuages pouvait jouir de dizaines de milliers d'années de paix. Ils étaient la raison pour laquelle les cultivateurs de la Mer des Nuages pouvaient se livrer bataille entre eux et obtenir des ressources sans craindre une destruction totale!
+Ils étaient impitoyables, mais ils gardaient l'intégralité de la Mer Yun! C'est grâce à l'existence de la Secte Démon que la Mer Yun pouvait jouir de dizaines de milliers d'années de paix. Ils étaient la raison pour laquelle les cultivateurs de la Mer Yun pouvaient se livrer bataille entre eux et obtenir des ressources sans craindre une destruction totale!
 
-Si un jour la Secte Démon cessait d'exister et que la première ligne de défense contre les bêtes féroces sortant de la fissure spatiale disparaissait, cela apporterait une calamité inimaginable à la Mer des Nuages!
+Si un jour la Secte Démon cessait d'exister et que la première ligne de défense contre les bêtes féroces sortant de la fissure spatiale disparaissait, cela apporterait une calamité inimaginable à la Mer Yun!
 
-C'était grâce à la rudesse de la Secte Démon et à leur mission spéciale que chaque cultivateur de la Mer des Nuages arrivant sur le champ de bataille faisait preuve d'un immense respect envers eux et se devait d'obéir à leurs ordres!
+C'était grâce à la rudesse de la Secte Démon et à leur mission spéciale que chaque cultivateur de la Mer Yun arrivant sur le champ de bataille faisait preuve d'un immense respect envers eux et se devait d'obéir à leurs ordres!
 
 Quiconque défiait les ordres était immédiatement exécuté par la Secte Démon! Seul un talent exceptionnel pouvait obtenir la reconnaissance de la Secte pour espérer y entrer. Ce n'était alors que là qu'un individu recevait leur attention.
 
@@ -78,11 +78,11 @@ Li Qianmei était l'une des trois personnes ayant obtenu cette reconnaissance. M
 
 Cependant, Li Qianmei étant partie depuis 10 ans, la colère de la Secte Démon s'était éveillée. Pour eux, il n'y avait aucune raison légitime de s'absenter pendant une décennie. S'ils ne la punissaient pas, ils ne seraient plus la Secte Démon!
 
-À cet instant, à l'extérieur de la fissure spatiale, près du cercle formé par les six planètes de culture de la Secte Démon, des milliers de génies de la Mer des Nuages se livraient à un combat acharné. Toutes sortes de sorts étaient déployés.
+À cet instant, à l'extérieur de la fissure spatiale, près du cercle formé par les six planètes de culture de la Secte Démon, des milliers de génies de la Mer Yun se livraient à un combat acharné. Toutes sortes de sorts étaient déployés.
 
-À l'intérieur de la fissure, divers types de bêtes rugissaient et luttaient pour s'extraire de la brèche afin d'anéantir tout ce qui se trouvait sur leur passage! Leur férocité était radicalement différente de celle des bêtes féroces de la Mer des Nuages. Elles étaient bien plus puissantes!
+À l'intérieur de la fissure, divers types de bêtes rugissaient et luttaient pour s'extraire de la brèche afin d'anéantir tout ce qui se trouvait sur leur passage! Leur férocité était radicalement différente de celle des bêtes féroces de la Mer Yun. Elles étaient bien plus puissantes!
 
-Ces bêtes avaient survécu à d'innombrables massacres. Elles n'avaient rien à voir avec les bêtes féroces qui vivaient paisiblement dans la Mer des Nuages!
+Ces bêtes avaient survécu à d'innombrables massacres. Elles n'avaient rien à voir avec les bêtes féroces qui vivaient paisiblement dans la Mer Yun!
 
 L'odeur du sang imprégnait l'air. Tandis que les bêtes féroces jaillissaient, les milliers de cultivateurs se battaient avec acharnement. Trésors magiques et sortilèges remplissaient le ciel. Des grondements tonitruants résonnaient à travers les étoiles!
 

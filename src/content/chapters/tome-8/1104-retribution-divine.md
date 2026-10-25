@@ -48,7 +48,7 @@ Grâce à sa vitesse, la bête ne mit pas longtemps à suivre l'odeur de ses sem
 
 En voyant cette étendue de ruines, la bête-moustique poussa un cri strident, ses yeux brillant d'une colère infinie. Elle chargea à travers le champ de débris dans une série de fracas successifs, pulvérisant tout ce qui se dressait sur son passage. La bête fonçait tête baissée dans les profondeurs du chaos, comme possédée par la folie.
 
-À l'intérieur d'un écran de lumière verte, niché au cœur des décombres, une formation érigée par près de cent cultivateurs touchait à sa fin. Les deux anciens vêtus de pourpre étaient exaltés. Une fois la formation achevée, ils pourraient ramener ces bêtes-moustiques géantes dans le système stellaire de la Mer des Nuages. Leur Secte de la Porte Céleste pourrait alors les échanger contre d'immenses bénéfices.
+À l'intérieur d'un écran de lumière verte, niché au cœur des décombres, une formation érigée par près de cent cultivateurs touchait à sa fin. Les deux anciens vêtus de pourpre étaient exaltés. Une fois la formation achevée, ils pourraient ramener ces bêtes-moustiques géantes dans le système stellaire de la Mer Yun. Leur Secte Tian Men pourrait alors les échanger contre d'immenses bénéfices.
 
 Leur humeur était excellente tandis qu'ils discutaient; tous leurs soucis s'étaient dissipés à l'approche de l'achèvement. Cependant, soudainement, les bêtes-moustiques géantes qui étaient pourtant apaisées par l'encens commencèrent à hurler. Ce n'était pas une seule créature qui criait, mais toutes; leurs yeux devinrent rouges et elles se mirent à se débattre violemment.
 
@@ -70,7 +70,7 @@ Wang Lin, resté en retrait, observait l'écran vert avec un calme imperturbable
 
 « Tu te surestimes! » Un ricanement s'éleva de l'intérieur de la protection. Les deux anciens en pourpre étaient arrivés. Ils dédaignaient Wang Lin depuis leur abri.
 
-Leur tension s'était évaporée en percevant le niveau de culture du jeune homme. Ces deux anciens n'étaient ni des cultivateurs du Briseur du Nirvana, ni même au sommet du Purificateur du Nirvana; ils n'étaient qu'au stade avancé du Purificateur du Nirvana. Après tout, ils n'étaient pas de véritables émissaires de la Mer des Nuages, mais étaient arrivés là par une méthode secrète.
+Leur tension s'était évaporée en percevant le niveau de culture du jeune homme. Ces deux anciens n'étaient ni des cultivateurs du Briseur du Nirvana, ni même au sommet du Purificateur du Nirvana; ils n'étaient qu'au stade avancé du Purificateur du Nirvana. Après tout, ils n'étaient pas de véritables émissaires de la Mer Yun, mais étaient arrivés là par une méthode secrète.
 
 Wang Lin agita la main droite et la mer de flammes se retira. Son regard sombre perça l'écran pour se poser sur les deux anciens. D'une voix lugubre, il déclara lentement: « Livrez les bêtes-moustiques et ces trois jeunes téméraires, et je pourrai épargner le reste d'entre vous! »
 
@@ -87,4 +87,4 @@ Des nuages de rétribution divine commencèrent à s'amonceler au-dessus du cham
 « Ceci... C'est... »
 « La rétribution divine!!! »
 
-Les yeux des deux anciens en pourpre s'écarquillèrent, envahis par l'incrédulité et la terreur. Bien qu'ils fussent des cultivateurs du Purificateur du Nirvana, ils ne connaissaient que peu de choses sur la rétribution divine; s'ils purent la reconnaître, c'est uniquement parce qu'ils en avaient été témoins dans le système stellaire de la Mer des Nuages avant d'arriver ici.
+Les yeux des deux anciens en pourpre s'écarquillèrent, envahis par l'incrédulité et la terreur. Bien qu'ils fussent des cultivateurs du Purificateur du Nirvana, ils ne connaissaient que peu de choses sur la rétribution divine; s'ils purent la reconnaître, c'est uniquement parce qu'ils en avaient été témoins dans le système stellaire de la Mer Yun avant d'arriver ici.

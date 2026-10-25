@@ -30,7 +30,7 @@ Ouyang Hua prit une grande inspiration, s'assit en position du lotus, pressa le 
 
 Bien qu'il ait les yeux fermés, Wang Lin observait toujours Ouyang Hua.
 
-Cet homme était l'ancien de cette vallée car, lorsqu'il s'était rendu enfant à la Cité de l'Ancien Démon pour s'initier, on avait découvert qu'il possédait la force d'une étoile. Bien que cela ne suffît pas pour s'y établir, son statut au sein du village avait considérablement augmenté.
+Cet homme était l'ancien de cette vallée car, lorsqu'il s'était rendu enfant à la Cité Gu Yao pour s'initier, on avait découvert qu'il possédait la force d'une étoile. Bien que cela ne suffît pas pour s'y établir, son statut au sein du village avait considérablement augmenté.
 
 Wang Lin pouvait clairement voir une aura ténue, semblable à un fil de soie, se déplacer lentement dans le dantian d'Ouyang Hua. Cependant, les méridiens de cet homme étaient tous obstrués. Non seulement le cycle de ce mince éclat d'aura était lent, mais son champ de mouvement était limité.
 
@@ -74,7 +74,7 @@ Wang Lin acquiesça. Plus tôt, il avait utilisé son doigt pour forcer l'ouvert
 
 Wang Lin regarda Ouyang Hua et dit lentement: « Cette formule s'appelle "l'Affinement de l'Âme". Écoute attentivement, car je ne te l'expliquerai qu'une seule fois. Une fois que tu l'auras appris, tu l'enseigneras aux villageois d'ici. »
 
-L'excitation d'Ouyang Hua ce jour-là était comparable à une succession de vagues déferlantes. L'augmentation de sa culture l'avait déjà transporté; après avoir découvert la formule dans le jade, son cœur battait la chamade. Il avait un pressentiment, car il peinait à croire que cela soit réel. Après tout, les sorts étaient extrêmement rares en Terre des Esprits Démoniaques, et nul commun ne pouvait espérer en obtenir.
+L'excitation d'Ouyang Hua ce jour-là était comparable à une succession de vagues déferlantes. L'augmentation de sa culture l'avait déjà transporté; après avoir découvert la formule dans le jade, son cœur battait la chamade. Il avait un pressentiment, car il peinait à croire que cela soit réel. Après tout, les sorts étaient extrêmement rares en Terre Yao Ling, et nul commun ne pouvait espérer en obtenir.
 
 Ouyang Hua prit une grande inspiration et demanda avec incrédulité: « Suprême Céleste... voulez-vous dire que vous allez m'enseigner ce sort? »
 
@@ -90,7 +90,7 @@ Ces actions laissèrent Wang Lin quelque peu surpris. Cependant, il venait de lu
 
 Le temps passa lentement et, en un clin d'œil, trois mois s'écoulèrent.
 
-Ouyang Hua se montra extrêmement diligent. Il consacrait tout son temps à la pratique et à l'étude du sort d'Affinement de l'Âme. Il mit même de côté ses projets d'attaques contre les villages voisins pour se concentrer sur cette étude. Son talent était déjà honorable, et comme les techniques de la Secte de l'Affinement de l'Âme étaient de celles qui sont faciles à apprendre mais difficiles à maîtriser, il avait fait des progrès notables après trois mois.
+Ouyang Hua se montra extrêmement diligent. Il consacrait tout son temps à la pratique et à l'étude du sort d'Affinement de l'Âme. Il mit même de côté ses projets d'attaques contre les villages voisins pour se concentrer sur cette étude. Son talent était déjà honorable, et comme les techniques de la Secte Lian Hun étaient de celles qui sont faciles à apprendre mais difficiles à maîtriser, il avait fait des progrès notables après trois mois.
 
 Non seulement lui, mais tous les hommes du village pratiquaient sous l'enseignement d'Ouyang Hua, chacun obtenant des résultats différents.
 

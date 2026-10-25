@@ -18,7 +18,7 @@ Maître Yi Chen se tourna soudainement vers Wang Lin, le visage déformé par un
 
 Les deux s'observèrent durant un long moment. La férocité sur le visage de Maître Yi Chen s'estompa progressivement pour laisser place à l'accablement. Puis, il dit à Ling Er qui se tenait derrière lui: « Ling Er, va chercher plus de vin! » Il se retourna ensuite pour contempler ce monde d'un rouge ardent.
 
-« Les cultivateurs s'opposent aux cieux. Puisque nous empruntons cette voie sans retour, il est inévitable que nous disparaissions un jour. Je le comprends bien... Lorsque vous avez invité les trois d'entre nous dans la Terre des Esprits Démoniaques, vous ne nous avez pas forcés; nous étions tous volontaires. Je le comprends également... » Maître Yi Chen affichait une expression amère en regardant les cruches de vin éparpillées autour de lui. Il en saisit quelques-unes pour constater qu'elles étaient vides.
+« Les cultivateurs s'opposent aux cieux. Puisque nous empruntons cette voie sans retour, il est inévitable que nous disparaissions un jour. Je le comprends bien... Lorsque vous avez invité les trois d'entre nous dans la Terre Yao Ling, vous ne nous avez pas forcés; nous étions tous volontaires. Je le comprends également... » Maître Yi Chen affichait une expression amère en regardant les cruches de vin éparpillées autour de lui. Il en saisit quelques-unes pour constater qu'elles étaient vides.
 
 Wang Lin tendit silencieusement la cruche qu'il tenait à Maître Yi Chen. Ce dernier prit une grande gorgée, et des larmes coulèrent sur ses joues tandis qu'il murmurait: « Je me déteste d'avoir un niveau de culture si bas. Je me hais de n'avoir aucun moyen de ressusciter mes deux frères. Je me hais de ne pas pouvoir me venger! Je suis indigne devant leurs âmes défuntes! »
 
@@ -110,8 +110,8 @@ Wang Lin murmura pour lui-même en regardant la lave tomber comme une pluie de f
 
 Les vibrations se propagèrent et firent trembler un autre volcan au loin, qui commença à cracher fumée et lave.
 
-Wang Lin ferma lentement les yeux, et les scènes de Qing Shui utilisant l'Effondrement des Montagnes dans le Royaume de la Boucherie apparurent dans son esprit.
+Wang Lin ferma lentement les yeux, et les scènes de Qing Shui utilisant l'Effondrement des Montagnes dans le Royaume Sha Lu apparurent dans son esprit.
 
-En vérité, dans la Terre des Esprits Démoniaques, Wang Lin avait entrevu une trace de compréhension de ce sort lors d'une éruption volcanique, mais le sentiment était resté ténu. En raison des dangers qu'il affrontait, il n'avait pas eu le temps d'approfondir sa réflexion.
+En vérité, dans la Terre Yao Ling, Wang Lin avait entrevu une trace de compréhension de ce sort lors d'une éruption volcanique, mais le sentiment était resté ténu. En raison des dangers qu'il affrontait, il n'avait pas eu le temps d'approfondir sa réflexion.
 
 Cependant, la Secte Divine de l'Oiseau Vermillon ne manquait pas de volcans. Maintenant qu'il possédait davantage d'énergie originelle du feu, il comprenait de plus en plus le sort de l'Effondrement des Montagnes que Qing Shui lui avait laissé.

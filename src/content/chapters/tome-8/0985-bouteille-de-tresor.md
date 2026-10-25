@@ -40,7 +40,7 @@ Wang Lin poussa un soupir. Il fronça les sourcils alors que son corps disparais
 
 « Une seule fois. » Wang Lin soupira. Il n'avait contemplé le lever et le coucher du soleil qu'avec Li Muwan durant ses dernières années. Cela était devenu un souvenir éternel pour lui. Depuis lors, il ne l'avait fait avec personne d'autre.
 
-S'il fallait vraiment citer une autre fois, c'était à l'entrée de la grotte de retraite de la Secte de l'Affinement de l'Âme, où, non loin de Liu Mei, ils avaient pu contempler le coucher du soleil en même temps.
+S'il fallait vraiment citer une autre fois, c'était à l'entrée de la grotte de retraite de la Secte Lian Hun, où, non loin de Liu Mei, ils avaient pu contempler le coucher du soleil en même temps.
 
 Ling Er afficha un sourire radieux, hocha la tête et fit sonner les clochettes à son poignet. Un point blanc apparut au loin: une grue blanche qui vola vers elle et resta en suspension au-dessus de Ling Er.
 

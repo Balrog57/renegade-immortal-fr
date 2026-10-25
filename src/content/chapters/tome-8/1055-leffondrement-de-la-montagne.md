@@ -28,7 +28,7 @@ L'expression de Ling Tianhou devint sombre. Comment ne pouvait-il pas voir que T
 
 Il y avait aussi ce vieil homme assis sur une gourde, dont l'expression indifférente semblait observer tout le monde. Cependant, sa position indiquait clairement qu'il prendrait le parti de Tian Yunzi et de Maître du Vide.
 
-Simultanément, la jeune fille soupçonnée d'être la Sainte du Vide Brillant se leva et s'approcha de Maître du Vide. Son regard magnifique balaya la salle avant de se poser sur Wang Lin, et elle dit doucement: « Cher compagnon Wang, mettons cette affaire de côté pour l'instant. Une fois que vous aurez quitté ces lieux, mon Royaume du Vide Brillant ne s'impliquera pas dans ce conflit. »
+Simultanément, la jeune fille soupçonnée d'être la Sainte du Vide Brillant se leva et s'approcha de Maître du Vide. Son regard magnifique balaya la salle avant de se poser sur Wang Lin, et elle dit doucement: « Cher compagnon Wang, mettons cette affaire de côté pour l'instant. Une fois que vous aurez quitté ces lieux, mon Royaume Kun Xu ne s'impliquera pas dans ce conflit. »
 
 Hormis l'homme en noir, tous avaient clairement choisi un camp. Le regard de Wang Lin jeta un éclair et il joignit les mains devant Wang Wei: « Mon affaire ne compte pas. Je laisserai le Senior décider de la suite. »
 
@@ -38,7 +38,7 @@ Après la déclaration de Wang Wei, Tian Yunzi et son groupe sourirent en hochan
 
 En un instant, d'immenses fissures apparurent dans le sol avant qu'il ne s'effondre brusquement, révélant un ciel étoilé. Tous s'y précipitèrent et disparurent. Quant à Zhou Yi, Wang Wei l'entraîna vers la matrice de transfert qui ressemblait à ce même firmament étoilé.
 
-Le septième étage de la Grotte de l'Empereur Céleste était radicalement différent des six premiers. Il n'y avait aucun pavillon; l'endroit était recouvert d'une mer de flammes, comme s'il s'agissait d'un monde à part entière!
+Le septième étage de la Grotte Xian Di était radicalement différent des six premiers. Il n'y avait aucun pavillon; l'endroit était recouvert d'une mer de flammes, comme s'il s'agissait d'un monde à part entière!
 
 Dans cet espace restreint, un volcan en éruption trônait au centre, entouré d'une épaisse brume noire. Des grondements émanaient du volcan et des gerbes de feu tombaient occasionnellement du ciel. Le sol semblait fragmenté par d'innombrables fissures flottant sur le magma. Un gaz noir s'échappait de ces crevasses, dégageant une chaleur intense.
 
@@ -58,7 +58,7 @@ Au loin, Maître du Vide affichait un visage livide. Malgré la lueur ardente en
 
 « Tian Yunzi, Wang Lin et cet esprit d'épée... je n'oublierai pas cela. Si je ne vous rends pas la monnaie de votre pièce dix fois... non, cent fois, alors je n'abandonnerai jamais! » grommela-t-il avec amertume en observant les environs.
 
-« Maudit soit, même la Grotte de l'Empereur Céleste se ligue contre moi. Elle possède une énergie d'origine de feu si puissante... j'ai peur qu'elle ne profite à ce petit bâtard! » rugit Maître du Vide intérieurement, avant de réaliser soudainement quelque chose qui le glaça de sueur.
+« Maudit soit, même la Grotte Xian Di se ligue contre moi. Elle possède une énergie d'origine de feu si puissante... j'ai peur qu'elle ne profite à ce petit bâtard! » rugit Maître du Vide intérieurement, avant de réaliser soudainement quelque chose qui le glaça de sueur.
 
 « La chute de mon niveau de culture altère ma personnalité. Comment puis-je être si facilement provoqué?! » Il prit une profonde inspiration pour réprimer sa rage et se força au calme.
 
@@ -68,7 +68,7 @@ Wang Lin progressait sereinement dans les airs. Sachant que sa culture ne pouvai
 
 Le visage de Wang Lin resta impassible. En voyant la jeune fille en rose marquer un arrêt, il contourna simplement son passage par une large courbe. Il n'avait aucune envie d'interagir avec elle et se rapprocha lentement du volcan. En le voyant ainsi l'éviter, la jeune fille poussa un reniflement méprisant et reprit sa course vers le volcan sans plus lui accorder d'attention.
 
-En la voyant partir, les yeux de Wang Lin brillèrent d'une lueur étrange. Bien que ce lieu fût différent de la carte, il aperçut, au fil de sa progression, des vestiges de jade céleste dans les fissures. Il était évident qu'il y a des éons, cet endroit était le septième niveau de la Grotte de l'Empereur Céleste, mais qu'un événement inimaginable l'avait transformé en une ruine embrasée.
+En la voyant partir, les yeux de Wang Lin brillèrent d'une lueur étrange. Bien que ce lieu fût différent de la carte, il aperçut, au fil de sa progression, des vestiges de jade céleste dans les fissures. Il était évident qu'il y a des éons, cet endroit était le septième niveau de la Grotte Xian Di, mais qu'un événement inimaginable l'avait transformé en une ruine embrasée.
 
 Contemplant le volcan imposant, Wang Lin ferma les yeux et déploya son Sens Divin. Après un long moment, il rouvrit les paupières, plus confiant que jamais dans ses spéculations. Ce volcan n'était pas apparu de lui-même; il avait été déplacé ici par quelqu'un. Plus il s'approchait, plus les preuves étayaient cette théorie. Il remarqua clairement que la roche du volcan était totalement distincte du reste du sol.
 
@@ -78,7 +78,7 @@ Contemplant le volcan imposant, Wang Lin ferma les yeux et déploya son Sens Div
 
 Sa main immergée dans le magma le confortait profondément. Son énergie d'origine s'agita en lui pour former un vortex. Une force d'aspiration émana du corps de Wang Lin, utilisant sa main droite comme un pont; l'énergie d'origine de feu de la lave fut alors doucement aspirée dans son organisme.
 
-« J'ai déjà maîtrisé les trois premiers des six sorts de l'Empereur Céleste Bai Fan. Cependant, selon le Senior Frère Qing Shui, les trois derniers contiennent l'essence véritable du pouvoir de Bai Fan, et le premier d'entre eux est l'Effondrement de la Montagne! Dans le Domaine du Massacre, j'ai vu Qing Shui l'utiliser, et c'était très similaire à une éruption volcanique... » Wang Lin méditait tout en absorbant cette énergie, les yeux fixés sur le volcan majestueux.
+« J'ai déjà maîtrisé les trois premiers des six sorts de l'Empereur Céleste Bai Fan. Cependant, selon le Senior Frère Qing Shui, les trois derniers contiennent l'essence véritable du pouvoir de Bai Fan, et le premier d'entre eux est l'Effondrement de la Montagne! Dans le Domaine Sha Yu, j'ai vu Qing Shui l'utiliser, et c'était très similaire à une éruption volcanique... » Wang Lin méditait tout en absorbant cette énergie, les yeux fixés sur le volcan majestueux.
 
 À sa droite, l'homme en noir portant le dragon noir caché ne pénétra pas non plus dans le volcan; il s'assit et plongea sa main gauche dans la lave d'une crevasse. Tout comme Wang Lin, il absorbait l'énergie d'origine du feu, jetant parfois des regards empreints de crainte et d'hostilité vers lui.
 

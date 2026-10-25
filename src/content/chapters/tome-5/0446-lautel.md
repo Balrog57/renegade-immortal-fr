@@ -22,7 +22,7 @@ Un éclat de joie apparut dans les yeux de Murong Yun. « Junior va vous guider.
 
 Mo Yunhai demanda d'un ton solennel: « Y a-t-il des dangers là-bas? »
 
-Murong Yun répondit promptement: « Oui. Junior a vu mourir plusieurs membres du Clan des Immortels Délaissés à huit feuilles. Ils étaient quatre au total, mais le premier à entrer n'a rencontré aucun danger. »
+Murong Yun répondit promptement: « Oui. Junior a vu mourir plusieurs membres du Clan Xian Yi à huit feuilles. Ils étaient quatre au total, mais le premier à entrer n'a rencontré aucun danger. »
 
 Mo Yunhai fronça les sourcils, puis se tourna vers Wang Lin et demanda: « Camarade cultivateur Ceng, qu'en pensez-vous? »
 

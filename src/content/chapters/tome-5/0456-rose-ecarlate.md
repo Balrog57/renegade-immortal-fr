@@ -124,7 +124,7 @@ Des éclairs violets passèrent de l'arme au corps de Wang Lin, faisant crépite
 
 À cet instant, un désir de combat qu'il n'avait jamais ressenti auparavant envahit son cœur.
 
-Cette hache avait été invoquée par l'ancêtre du Clan des Démons Géants avant sa mort; c'était l'arme du fondateur de ce clan qui était resté piégé sous la Secte des Cadavres à Zhao. Après l'avoir obtenue, Wang Lin avait initialement prévu de la confier à son corps original. Cependant, maintenant que l'épée céleste, privée de son esprit d'épée, ne pouvait libérer toute sa puissance et qu'il ne souhaitait pas utiliser le drapeau de l'âme, c'était l'arme idéale pour déployer toute sa force.
+Cette hache avait été invoquée par l'ancêtre du Clan Ju Mo avant sa mort; c'était l'arme du fondateur de ce clan qui était resté piégé sous la Secte Shi Yin à Zhao. Après l'avoir obtenue, Wang Lin avait initialement prévu de la confier à son corps original. Cependant, maintenant que l'épée céleste, privée de son esprit d'épée, ne pouvait libérer toute sa puissance et qu'il ne souhaitait pas utiliser le drapeau de l'âme, c'était l'arme idéale pour déployer toute sa force.
 
 Hongdie fixa Wang Lin et ouvrit la bouche. Une lumière rouge s'en échappa, prenant la forme d'une rose de cristal écarlate qui se mit à flotter devant elle.
 

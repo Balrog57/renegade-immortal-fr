@@ -118,14 +118,14 @@ Wang Lin détourna le regard et redoubla de prudence dans la brume, progressant 
 
 « Si cette carte est exacte, une autre terre scellée se trouve devant moi, et elle est déjà ouverte. Un autre esprit Dao de rang 4 y est scellé... Si j'atteins cet endroit, cela signifiera que je suis sur la bonne voie pour pénétrer dans les profondeurs de la tombe! »
 
-« Il y a aussi cette femme du Clan de l'Extermination des Sceaux. J'ai secrètement laissé une marque sur elle et je sens qu'elle se trouve plus loin devant... Elle me sera d'une grande utilité. Je dois découvrir comment elle a survécu à deux morts... Si je pouvais l'appliquer à moi-même... » Les yeux de Wang Lin s'illuminèrent et il accéléra encore sa course.
+« Il y a aussi cette femme du Clan Feng Mie. J'ai secrètement laissé une marque sur elle et je sens qu'elle se trouve plus loin devant... Elle me sera d'une grande utilité. Je dois découvrir comment elle a survécu à deux morts... Si je pouvais l'appliquer à moi-même... » Les yeux de Wang Lin s'illuminèrent et il accéléra encore sa course.
 
 Très loin de lui, dans une autre terre scellée, une bataille sanglante faisait rage! Dans ce monde lugubre, deux silhouettes se livraient un combat dont les grondements résonnaient comme le tonnerre.
 
-En dessous d'eux, près de cent cultivateurs s'entretuaient. La jeune femme du Clan de l'Extermination des Sceaux était habitée par une intention meurtrière intense; près de dix cadavres ou blessés jonchaient déjà le sol autour d'elle.
+En dessous d'eux, près de cent cultivateurs s'entretuaient. La jeune femme du Clan Feng Mie était habitée par une intention meurtrière intense; près de dix cadavres ou blessés jonchaient déjà le sol autour d'elle.
 
-« Miaoyin Daozun, oses-tu voler l'esprit Dao de ce vieil homme? Mon corps originel partira massacrer la Mer du Son pour livrer un combat à mort au tien! »
+« Miaoyin Daozun, oses-tu voler l'esprit Dao de ce vieil homme? Mon corps originel partira massacrer la Mer Yin pour livrer un combat à mort au tien! »
 
-« Vieux Poison de la Grande Désolation, tu n'es venu qu'avec une parcelle de ton âme, tandis que je suis venue avec mon avatar; tu ne fais pas le poids. Une fois que j'aurai tué cette partie de ton âme, oseras-tu encore te rendre dans la Mer du Son? Ridicule, tout cela est ridicule! »
+« Vieux Poison de la Grande Désolation, tu n'es venu qu'avec une parcelle de ton âme, tandis que je suis venue avec mon avatar; tu ne fais pas le poids. Une fois que j'aurai tué cette partie de ton âme, oseras-tu encore te rendre dans la Mer Yin? Ridicule, tout cela est ridicule! »
 
 « Ton caractère est étrange, et à part ce vieil oiseau incapable de quitter la Terre Déchue, tu n'as aucun autre ami dans le Système des Étoiles Anciennes. Dans cette tombe, personne n'est là pour t'aider non plus. Avec quoi viendrais-tu me disputer l'esprit Dao? »

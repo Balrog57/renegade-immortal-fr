@@ -58,9 +58,9 @@ L'esprit de Lie Yunzi était encore en plein chaos, et ces paroles le firent cra
 
 « Je peux témoigner que Lie Yunzi a été le premier à se montrer déraisonnable en réclamant l'Empereur Divin Oiseau Vermillon! Mes paroles représentent le pays de Chu Yun! »
 
-Les yeux de la belle femme de la Secte des Cadavres s'illuminèrent et elle sourit. « Puisque j'ai moi aussi pris part à cette affaire, je peux également attester que la requête de Senior Lie Yunzi était véritablement absurde. »
+Les yeux de la belle femme de la Secte Shi Yin s'illuminèrent et elle sourit. « Puisque j'ai moi aussi pris part à cette affaire, je peux également attester que la requête de Senior Lie Yunzi était véritablement absurde. »
 
-Lie Yunzi n'eut pas le temps de reprendre son souffle avant d'entendre les paroles de Mo Zhi et de la femme de la Secte des Cadavres. Il cracha davantage de sang, puis redressa brusquement la tête pour fixer Wang Lin.
+Lie Yunzi n'eut pas le temps de reprendre son souffle avant d'entendre les paroles de Mo Zhi et de la femme de la Secte Shi Yin. Il cracha davantage de sang, puis redressa brusquement la tête pour fixer Wang Lin.
 
 Wang Lin ricana et se rassit. Il leva sa main droite comme s'il examinait les moindres détails de ses empreintes digitales, n'accordant aucune attention à Lie Yunzi. Ils se trouvaient dans la Secte Divine de l'Oiseau Vermillon; Lie Yunzi ne pouvait donc pas échapper à son emprise.
 
@@ -70,7 +70,7 @@ Un silence de mort s'installa. Mo Zhi regarda Wang Lin avec émotion. Il ne s'at
 
 Il se remémora leur première rencontre sur la planète Suzaku, dans un temple, par une nuit pluvieuse. À l'époque, cet homme venait tout juste d'obtenir son domaine et d'atteindre le stade de la Formation de l'Âme. Cependant, cette nuit de discussion du Dao avait marqué Mo Zhi à jamais.
 
-La belle femme de la Secte des Cadavres garda également le silence. Elle observait Lie Yunzi avec un sourire qui n'en était pas un, comme si elle assistait à un spectacle divertissant.
+La belle femme de la Secte Shi Yin garda également le silence. Elle observait Lie Yunzi avec un sourire qui n'en était pas un, comme si elle assistait à un spectacle divertissant.
 
 La sueur perla lentement sur le front de Lie Yunzi. Il était évident qu'avec son niveau de culture, il ne pourrait s'échapper des Quatre Sectes Divines. En impliquant le Temple Céleste du Tonnerre, Wang Lin avait été d'une cruauté sans nom. Ce n'était plus une affaire personnelle; c'était tout le Temple Céleste du Tonnerre qui insultait l'Empereur Divin Oiseau Vermillon!
 
@@ -96,7 +96,7 @@ Les veines de Lie Yunzi gonflèrent tandis qu'il réprimait sa rage. En voyant l
 
 Wang Lin fixa sa main droite et déclara lentement: « Imprudent! Je vous ai demandé si cette affaire était personnelle ou si elle concernait Luotian! Je me souviens très bien de votre réponse. Je me demande dans quelles affaires du Temple Céleste du Tonnerre de Luotian je me trouve impliqué. »
 
-« Vous! » Lie Yunzi leva la tête, réprimant la rage qui allait exploser. À cet instant, il n'osait pas s'emporter... Si la femme de la Secte des Cadavres et Mo Zhi n'avaient pas été là, il aurait combattu jusqu'à la mort. Même s'il risquait de mourir, Luotian se vengerait pour lui.
+« Vous! » Lie Yunzi leva la tête, réprimant la rage qui allait exploser. À cet instant, il n'osait pas s'emporter... Si la femme de la Secte Shi Yin et Mo Zhi n'avaient pas été là, il aurait combattu jusqu'à la mort. Même s'il risquait de mourir, Luotian se vengerait pour lui.
 
 Cependant, l'autre partie avait pris l'ascendant. Avec les témoins présents, même Luotian ne voudrait pas déclencher une guerre contre l'Alliance et les Quatre Sectes Divines pour une requête aussi absurde.
 

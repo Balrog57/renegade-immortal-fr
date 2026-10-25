@@ -26,7 +26,7 @@ Le temps passa lentement, mais aucune offre ne fut soumise. L'homme en rouge n'a
 
 Si quelqu'un se montrait aussi aveugle, la famille Ran ne s'offusquerait pas de le tuer pour la récupérer.
 
-Le regard de l'homme balayait parfois le quatrième étage avant qu'il ne lance d'une voix forte: « Quelqu'un souhaite-t-il enchérir? Si personne ne se manifeste, la pilule de rang 8 sera conservée par notre Pavillon du Trésor Intégral. »
+Le regard de l'homme balayait parfois le quatrième étage avant qu'il ne lance d'une voix forte: « Quelqu'un souhaite-t-il enchérir? Si personne ne se manifeste, la pilule de rang 8 sera conservée par notre Pavillon Bao He. »
 
 Le regard de Wang Lin resta fixé sur la pilule un long moment. Ses yeux trahirent une lueur de froideur avant qu'il ne dise calmement: « Un jade céleste! »
 
@@ -36,9 +36,9 @@ Bien que sa voix fût calme, elle fut distinctement entendue par tous les cultiv
 
 « Un seul jade céleste? Qui est-ce? Est-il fou?! »
 
-« Le prix de départ était de dix mille jades célestes, et cet homme n'en propose qu'un seul. C'est ridicule; même pour le Pavillon du Trésor Intégral, une telle situation est inédite. »
+« Le prix de départ était de dix mille jades célestes, et cet homme n'en propose qu'un seul. C'est ridicule; même pour le Pavillon Bao He, une telle situation est inédite. »
 
-« La famille Ran soutient le Pavillon du Trésor Intégral. Un tel comportement attirera un grand désastre. Il cherche manifestement à humilier le Pavillon. »
+« La famille Ran soutient le Pavillon Bao He. Un tel comportement attirera un grand désastre. Il cherche manifestement à humilier le Pavillon. »
 
 « La voix provient du quatrième étage. Quiconque se trouve là-haut n'est pas un être ordinaire, mais agir ainsi revient à offenser la famille Ran. »
 
@@ -74,13 +74,13 @@ L'homme en rouge au deuxième étage hésita un instant avant de serrer les dent
 
 Wang Lin esquissa un sourire narquois et tendit la main droite. La pilule vola de la main de l'homme en rouge vers celle de Wang Lin, qui lança aussitôt un jade céleste. Il salua ensuite Sun Xi d'un geste des mains et partit.
 
-Ignorant totalement le tumulte qu'il laissait derrière lui, Wang Lin se téléporta d'un pas à l'extérieur du Pavillon du Trésor Intégral.
+Ignorant totalement le tumulte qu'il laissait derrière lui, Wang Lin se téléporta d'un pas à l'extérieur du Pavillon Bao He.
 
 « Une seule pilule ne suffit pas pour m'entraîner dans de tels ennuis! » lança Wang Lin en s'éloignant du pavillon.
 
 Au troisième étage, le vieil homme serra les dents et disparut.
 
-Une fois que Wang Lin atteignit un lieu reculé, il se retourna. Le vieil homme du Pavillon du Trésor Intégral apparut derrière lui. Il scruta attentivement Wang Lin avec un air de doute.
+Une fois que Wang Lin atteignit un lieu reculé, il se retourna. Le vieil homme du Pavillon Bao He apparut derrière lui. Il scruta attentivement Wang Lin avec un air de doute.
 
 Remarquant le regard de Wang Lin, le vieil homme soupira: « Cher cultivateur, ce vieil homme vous a pris pour quelqu'un d'autre. J'espère que vous ne m'en tiendrez pas rigueur. » Il se détourna et s'éloigna, sa silhouette empreinte de vicissitudes.
 
@@ -88,9 +88,9 @@ Wang Lin réfléchit un instant puis prononça lentement: « Sun Tai. »
 
 Dès que ces deux mots atteignirent les oreilles du vieil homme, tout son corps fut secoué par un tremblement. Il tourna brusquement la tête vers Wang Lin et s'exclama avec choc: « Vous... C'est vraiment vous! »
 
-Wang Lin sonda Sun Tai de son Sens Divin avant de froncer les sourcils: « Comment le pouvoir divin de l'Ancêtre du Clan des Démons Géants a-t-il pu vous envoyer dans le système stellaire de Luotian? »
+Wang Lin sonda Sun Tai de son Sens Divin avant de froncer les sourcils: « Comment le pouvoir divin de l'Ancêtre du Clan Ju Mo a-t-il pu vous envoyer dans le système stellaire de Luotian? »
 
-Sun Tai afficha une expression amère: « J'ai moi-même été perplexe pendant des centaines d'années. Selon mes connaissances, la puissance du pouvoir divin du Clan des Démons Géants ne devrait pas être aussi grande. »
+Sun Tai afficha une expression amère: « J'ai moi-même été perplexe pendant des centaines d'années. Selon mes connaissances, la puissance du pouvoir divin du Clan Ju Mo ne devrait pas être aussi grande. »
 
 Wang Lin demanda: « La marque sur votre corps est très faible. Pourquoi? »
 

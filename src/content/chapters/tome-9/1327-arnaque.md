@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1327 - Scam
 slug: arnaque
 ---
-Les autres planètes de culture du domaine stellaire du Clan des Scorpions Démoniaques remarquèrent l'agitation, et une multitude de cultivateurs s'élança dans les airs.
+Les autres planètes de culture du domaine stellaire du Clan Mo Xie remarquèrent l'agitation, et une multitude de cultivateurs s'élança dans les airs.
 
 Cependant, la femme en blanc sentit qu'elle n'était plus accompagnée que par le géant d'ombre lumineuse. Le coup de poing titanesque se rapprochait, et nul ne pourrait l'intercepter pour elle!
 
@@ -14,7 +14,7 @@ En ce moment critique, elle libéra une aura blanche laiteuse encore plus intens
 
 Cette marque était composée de trois lignes émettant des lueurs rouge, jaune et bleue. Dès son apparition, un souvenir qu'elle semblait avoir oublié lui traversa l'esprit.
 
-Dans sa mémoire, elle était agenouillée au sol, choisie comme sainte du Clan de la Rivière. Le jour de son intronisation, une main semblable à du jade apparut devant elle. La main était chaude et, lorsqu'elle toucha son front, elle effaça sa marque tribale.
+Dans sa mémoire, elle était agenouillée au sol, choisie comme sainte du Clan He. Le jour de son intronisation, une main semblable à du jade apparut devant elle. La main était chaude et, lorsqu'elle toucha son front, elle effaça sa marque tribale.
 
 « À partir d'aujourd'hui, vous deviendrez l'un de mes avatars. Vous utiliserez votre corps pour nourrir ma projection afin de m'aider à guérir… Vous deviendrez également mon Disciple de la Flamme Joss… »
 
@@ -24,7 +24,7 @@ Des grondements de tonnerre résonnèrent et l'espace lui-même trembla. La femm
 
 La main droite de Wang Lin devint engourdie et ses yeux brillèrent d'une lueur étrange. Alors que la femme en blanc disparaissait, il fit un pas et disparut à son tour!
 
-Après son départ, la lumière s'éteignit, ne laissant derrière elle que d'innombrables cadavres et les cultivateurs du Clan des Scorpions Démoniaques, stupéfaits par leur arrivée tardive!
+Après son départ, la lumière s'éteignit, ne laissant derrière elle que d'innombrables cadavres et les cultivateurs du Clan Mo Xie, stupéfaits par leur arrivée tardive!
 
 Dans la partie orientale du Système Stellaire Antique, des ondulations se dissipèrent tandis que la femme en blanc, entourée de l'aura blanche laiteuse, émergeait. Elle ressemblait presque à une lampe à huile vide. Dès son apparition, elle n'hésita pas à faire le dernier pas!
 
@@ -54,7 +54,7 @@ N'ayant pas le temps de fouiller son âme, Wang Lin était réticent à l'abando
 
 C'était ainsi qu'il dérobait l'âme du cycle des réincarnations et volait les Flammes Joss de la Concubine Bleue!
 
-Au moment où la femme en blanc trembla une dernière fois avant de mourir complètement, l'âme d'une femme apparut dans son Monde du Vent et de la Pluie. Une puissante Flamme Joss émana de son âme et fut absorbée par Wang Lin!
+Au moment où la femme en blanc trembla une dernière fois avant de mourir complètement, l'âme d'une femme apparut dans son Monde Hu Feng Huan Yu. Une puissante Flamme Joss émana de son âme et fut absorbée par Wang Lin!
 
 Après la mort de la femme en blanc, sa chair fondit en une mare de sang. Cependant, un fil doré s'en échappa et fonça vers le vide!
 
@@ -80,7 +80,7 @@ Wang Lin plissa les yeux en observant la scène. Il s'était longtemps interrog�
 
 Cependant, à voir le choc et la peur de Shui Daozi en la voyant, Wang Lin savait que l'identité du Cadavre Argenté n'était pas simple!
 
-« Comment une telle personne a-t-elle pu devenir un cadavre raffiné par l'Alliance de Culture… Comment l'Alliance a-t-elle pu obtenir son corps… » Wang Lin regarda le familier Cadavre Argenté. Ses yeux fixaient toujours l'horizon avec confusion. Nul ne savait ce qu'elle pensait.
+« Comment une telle personne a-t-elle pu devenir un cadavre raffiné par l'Alliance Xiu Zhen… Comment l'Alliance a-t-elle pu obtenir son corps… » Wang Lin regarda le familier Cadavre Argenté. Ses yeux fixaient toujours l'horizon avec confusion. Nul ne savait ce qu'elle pensait.
 
 Après un long moment, Wang Lin demanda calmement: « Vous souvenez-vous de qui vous êtes? »
 
@@ -112,10 +112,10 @@ Pour une raison inconnue, Wang Lin sentit un frisson le parcourir. Il leva les y
 
 Après avoir réfléchi un instant, Wang Lin fusionna avec le monde.
 
-« La femme en blanc est morte et son âme réside désormais dans mon Monde du Vent et de la Pluie. Personne ne devrait prêter attention à moi pour l'instant… De cette façon, j'ai une chance de compléter mes essences! » Wang Lin se fondit dans le monde et déploya son Sens Divin.
+« La femme en blanc est morte et son âme réside désormais dans mon Monde Hu Feng Huan Yu. Personne ne devrait prêter attention à moi pour l'instant… De cette façon, j'ai une chance de compléter mes essences! » Wang Lin se fondit dans le monde et déploya son Sens Divin.
 
-« D'après les souvenirs des cultivateurs du Royaume Extérieur que j'ai dévorés, le Clan du Tonnerre Dispersé ne possède pas de cultivateur de la troisième étape… Il existe un éclair qui semble exister depuis la création du ciel et de la terre. Cet éclair ne s'éteint pas depuis cent millions d'années, traversant sans cesse le ciel et la terre, et c'est l'objet sacré du clan! C'est aussi la source qui permet au clan de contrôler le tonnerre! »
+« D'après les souvenirs des cultivateurs du Royaume Extérieur que j'ai dévorés, le Clan Shan Lei ne possède pas de cultivateur de la troisième étape… Il existe un éclair qui semble exister depuis la création du ciel et de la terre. Cet éclair ne s'éteint pas depuis cent millions d'années, traversant sans cesse le ciel et la terre, et c'est l'objet sacré du clan! C'est aussi la source qui permet au clan de contrôler le tonnerre! »
 
 « Si je dévore ce tonnerre, cela permettra à mon essence de tonnerre de croître… Quant aux Flammes Joss… Au final, laquelle de ces versions dit la vérité? » Wang Lin utilisa la Déformation Spatiale pour apparaître dans un domaine stellaire étranger. Un éclat de froideur passa dans ses yeux.
 
-« Que ce soit vrai ou faux, je dois rester extrêmement vigilant. Je n'ai jamais compté sur les Flammes Joss dans ma culture. J'ai compris mon propre Dao, et même mes essences ont été créées sans dépendre de ces soi-disant Flammes Joss! » Le corps de Wang Lin fusionna à nouveau avec le monde alors qu'il se dirigeait vers le territoire du Clan du Tonnerre Dispersé.
+« Que ce soit vrai ou faux, je dois rester extrêmement vigilant. Je n'ai jamais compté sur les Flammes Joss dans ma culture. J'ai compris mon propre Dao, et même mes essences ont été créées sans dépendre de ces soi-disant Flammes Joss! » Le corps de Wang Lin fusionna à nouveau avec le monde alors qu'il se dirigeait vers le territoire du Clan Shan Lei.

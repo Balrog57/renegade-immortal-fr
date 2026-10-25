@@ -10,13 +10,13 @@ Mais tous les cultivateurs Ascendants ne réussissent pas; le taux de réussite 
 
 Ce n'est qu'après avoir atteint un niveau supérieur à celui des Ascendants, ou si un pays de culture de rang 5 accède au rang 6, que l'on peut récupérer les fragments d'âme des cultivateurs de tout un pays et ainsi quitter sa planète de culture.
 
-Yun Quezi n'avait pas pu récupérer son fragment d'âme; en fait, depuis des dizaines de milliers d'années, personne sur la planète Suzaku, Clan des Immortels Délaissés compris, n'avait réussi à récupérer le sien. Cela était en grande partie dû au sceau de Situ Nan.
+Yun Quezi n'avait pas pu récupérer son fragment d'âme; en fait, depuis des dizaines de milliers d'années, personne sur la planète Suzaku, Clan Xian Yi compris, n'avait réussi à récupérer le sien. Cela était en grande partie dû au sceau de Situ Nan.
 
 Bien que le sceau sur le Cristal de la Planète de Culture empêchât Zhu Quezi de contrôler la planète, il empêchait également quiconque de récupérer son fragment d'âme lorsqu'il atteignait le stade Ascendant.
 
 Dans certaines planètes de culture plus puissantes, comme celles de rang 7 ou 8, outre la chance offerte au stade Ascendant, il existait des sectes suffisamment puissantes pour rivaliser avec une planète de rang 6. Ces sectes avaient trouvé des moyens d'éluder le Cristal de la Planète de Culture.
 
-Si ce n'était pas le cas, il n'y aurait point de luttes au sein de l'Alliance de Culture.
+Si ce n'était pas le cas, il n'y aurait point de luttes au sein de l'Alliance Xiu Zhen.
 
 À cet instant, loin dans l'espace, sur une planète immense, de nombreux rayons de lumière d'épées sillonnaient le ciel. Ces personnes ne se livraient pas à un combat, mais se précipitaient vers une destination précise.
 
@@ -30,9 +30,9 @@ Les cinq planètes satellites étaient sous le contrôle de la planète Tian Yun
 
 La planète Suzaku n'était tout simplement rien comparée à cela.
 
-Il existait de nombreuses sectes sur la planète Tian Yun, mais la plus éminente était, bien entendu, la Secte du Destin Céleste.
+Il existait de nombreuses sectes sur la planète Tian Yun, mais la plus éminente était, bien entendu, la Secte Tian Yun.
 
-La Secte du Destin Céleste enseignait que tout dans la vie dépendait du destin. Tout était déjà écrit; on ne pouvait ni forcer les choses, ni y échapper. Ce précepte conférait à la secte une aura de transcendance.
+La Secte Tian Yun enseignait que tout dans la vie dépendait du destin. Tout était déjà écrit; on ne pouvait ni forcer les choses, ni y échapper. Ce précepte conférait à la secte une aura de transcendance.
 
 L'auteur de ce précepte était un homme respecté par la majorité de la population de la planète Tian Yun: Tian Yunzi.
 
@@ -40,11 +40,11 @@ L'auteur de ce précepte était un homme respecté par la majorité de la popula
 
 Aucune trace de mort ne l'habitait; il était empreint d'une vitalité infinie.
 
-Il se trouvait actuellement dans la Pavillon Yunxian de la Secte du Destin Céleste. Ses yeux révélèrent soudain une lueur mystérieuse et il murmura pour lui-même: « En rendant visite à un vieil ami, je suis passé près d'une planète de culture semi-déclinante et j'y ai rencontré un enfant. Cet enfant, au stade de la Formation de l'Âme, avait compris le sens de la vie, de la mort et de la réincarnation, et voulait même remonter à l'origine de la réincarnation. Peu de gens en sont capables; songeant à la peine que lui coûtait sa culture, je l'avais guidé un peu et accepté comme disciple honorifique pour cent ans. Aujourd'hui, j'ai soudainement eu une intuition... Je crois que cet enfant arrivera bientôt... J'ignore à quel niveau de culture il se trouve actuellement, mais s'il parvient jusqu'ici et que sa culture n'est pas au moins au stade avancé de la Formation de l'Âme, je serais déçu... »
+Il se trouvait actuellement dans la Pavillon Yunxian de la Secte Tian Yun. Ses yeux révélèrent soudain une lueur mystérieuse et il murmura pour lui-même: « En rendant visite à un vieil ami, je suis passé près d'une planète de culture semi-déclinante et j'y ai rencontré un enfant. Cet enfant, au stade de la Formation de l'Âme, avait compris le sens de la vie, de la mort et de la réincarnation, et voulait même remonter à l'origine de la réincarnation. Peu de gens en sont capables; songeant à la peine que lui coûtait sa culture, je l'avais guidé un peu et accepté comme disciple honorifique pour cent ans. Aujourd'hui, j'ai soudainement eu une intuition... Je crois que cet enfant arrivera bientôt... J'ignore à quel niveau de culture il se trouve actuellement, mais s'il parvient jusqu'ici et que sa culture n'est pas au moins au stade avancé de la Formation de l'Âme, je serais déçu... »
 
 Tian Yunzi réfléchit un instant avant de secouer légèrement la tête et de refermer les yeux.
 
-À l'intérieur du Tombeau de Suzaku, Wang Lin avait ralenti sa progression et limitait son Sens Divin à une portée plus restreinte. Il y avait tout simplement trop de ces formes de vie aux alentours, et certaines d'entre elles seraient difficiles à affronter pour lui, à moins d'utiliser l'Étendard des Mille Millions d'Âmes.
+À l'intérieur du Tombeau Zhu Que, Wang Lin avait ralenti sa progression et limitait son Sens Divin à une portée plus restreinte. Il y avait tout simplement trop de ces formes de vie aux alentours, et certaines d'entre elles seraient difficiles à affronter pour lui, à moins d'utiliser l'Étendard des Mille Millions d'Âmes.
 
 Il avançait avec une prudence extrême. Dès qu'il détectait un danger, il changeait immédiatement de direction pour l'éviter, ce qui ralentissait considérablement son périple.
 

@@ -24,13 +24,13 @@ Wang Lin resta pensif et garda le silence.
 
 Wang Lin baissa la tête et regarda vers les profondeurs. Là-dessous, l'obscurité était totale et le froid extrême, chargé de givre.
 
-« Je ne peux pas vous aider. Si vous voulez partir, alors partez. » Wang Lin secoua la tête et cessa de regarder le parchemin pour entamer sa remontée. Il avait trop de choses à accomplir. Il devait lever toutes les restrictions de la grotte avant que Tian Yunzi et son groupe n'arrivent sur la Terre des Esprits Démoniaques, afin de pouvoir accéder à la véritable caverne.
+« Je ne peux pas vous aider. Si vous voulez partir, alors partez. » Wang Lin secoua la tête et cessa de regarder le parchemin pour entamer sa remontée. Il avait trop de choses à accomplir. Il devait lever toutes les restrictions de la grotte avant que Tian Yunzi et son groupe n'arrivent sur la Terre Yao Ling, afin de pouvoir accéder à la véritable caverne.
 
 Bien qu'il ignorât le moment exact où Tian Yunzi et sa compagnie arriveraient, sa conversation avec Yao Xixue lui avait permis d'obtenir quelques indices; il semblait que leur arrivée soit imminente.
 
 Avant qu'ils n'arrivent, Wang Lin devait achever ses préparatifs. Le temps pressait et il ne pouvait se permettre de perdre un instant par pure curiosité.
 
-De plus, il devait s'assurer que Tian Yunzi ne puisse pas lire en lui afin de quitter la Terre des Esprits Démoniaques en toute sécurité. La moindre erreur coûterait sa vie.
+De plus, il devait s'assurer que Tian Yunzi ne puisse pas lire en lui afin de quitter la Terre Yao Ling en toute sécurité. La moindre erreur coûterait sa vie.
 
 Le temps lui manquait cruellement.
 
@@ -46,7 +46,7 @@ Si ce qu'il avait entendu précédemment ressemblait à dix mille éclairs foudr
 
 Son âme originelle, ses souvenirs, tout ce qu'il était, entra instantanément en éruption comme un déluge monstrueux à la suite de cette seconde phrase. C'était comme si le ciel entier s'effondrait. Malgré sa force mentale, Wang Lin ne put empêcher son corps de trembler. Il se retourna et fixa la femme. Ses yeux possédaient l'éclat d'une bête sauvage, ayant perdu toute la sérénité acquise durant ses 800 ans de culture!
 
-À cet instant, que ce soit Tian Yunzi, la grotte, Xue Zu ou la Terre des Esprits Démoniaques n'avait plus d'importance! Tout cela s'était effondré; seule importait la présence du regard éperdu de Wang Lin sur la femme!
+À cet instant, que ce soit Tian Yunzi, la grotte, Xue Zu ou la Terre Yao Ling n'avait plus d'importance! Tout cela s'était effondré; seule importait la présence du regard éperdu de Wang Lin sur la femme!
 
 « Qu'avez-vous dit...? » Une voix rauque, d'un ton que Wang Lin n'avait jamais employé auparavant, s'échappa de sa bouche.
 

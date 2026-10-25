@@ -84,6 +84,6 @@ Après avoir quitté le restaurant, Wang Ping hésita un instant avant de rattra
 
 Wang Ping fut surpris, et son beau visage afficha une rare pointe de rougeur.
 
-Wang Lin et Wang Ping achetèrent une grande demeure à cour dans la partie nord de la Ville des Vastes Eaux. Après l'avoir un peu nettoyée, ils s'y installèrent. La maison était vaste et comportait de nombreuses pièces. Lors de la vente par le précédent propriétaire, quelques servantes avaient également été laissées sur place.
+Wang Lin et Wang Ping achetèrent une grande demeure à cour dans la partie nord de la Ville Qi Shui. Après l'avoir un peu nettoyée, ils s'y installèrent. La maison était vaste et comportait de nombreuses pièces. Lors de la vente par le précédent propriétaire, quelques servantes avaient également été laissées sur place.
 
-À cet instant précis, un immense tumulte éclata au sein de la branche de la famille Sun dans la Ville des Vastes Eaux, suite aux paroles de Wang Lin.
+À cet instant précis, un immense tumulte éclata au sein de la branche de la famille Sun dans la Ville Qi Shui, suite aux paroles de Wang Lin.

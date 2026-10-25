@@ -44,7 +44,7 @@ Shui Daozi resta en proie à la démence tout au long de sa fuite. Il ne cessa d
 
 Les grondements tonitruants s'estompèrent progressivement après son départ. Seul le silence subsista. Une telle quiétude régnait qu'on aurait dit que plus rien d'autre n'existait!
 
-Wang Lin ferma lentement les yeux. Il avait tout brisé. Même s'il ne s'était pas autodétruit pour entraîner Shui Daozi dans sa chute, ses blessures étaient bien plus graves que celles subies jadis dans la Terre des Esprits Démoniaques!
+Wang Lin ferma lentement les yeux. Il avait tout brisé. Même s'il ne s'était pas autodétruit pour entraîner Shui Daozi dans sa chute, ses blessures étaient bien plus graves que celles subies jadis dans la Terre Yao Ling!
 
 Toute sa vitalité avait été consommée et ses cheveux avaient blanchi et il était devenu un vieillard. Au moment où il ferma les yeux, les trois vortexes retournèrent dans son corps et les cinq essences tournoyèrent en lui.
 
@@ -90,7 +90,7 @@ Le temps passa. Trois jours, dix jours, dix-neuf jours... jusqu'à ce que trente
 
 Dans un recoin de la région de rang 5, la femme aperçut la statue du vieillard criblée de fissures. Elle serra la statue de pierre dans ses bras et ses larmes tombèrent sur elle, mais aucun son ne s'en échappa.
 
-Portant la statue et pleurant sans relâche, la femme s'éloigna progressivement vers un lieu hors de portée de tous: un continent sauvage profondément caché dans le brouillard stellaire, dans une région de rang inconnu de la Mer des Nuages.
+Portant la statue et pleurant sans relâche, la femme s'éloigna progressivement vers un lieu hors de portée de tous: un continent sauvage profondément caché dans le brouillard stellaire, dans une région de rang inconnu de la Mer Yun.
 
 Ce continent abritait de nombreuses bêtes féroces car très peu d'âmes l'avaient découvert au fil des millénaires. À l'arrivée de la femme, les monstres commencèrent à rugir, avant de se taire instantanément. L'aura émanant du corps de la femme semblait faire trembler les créatures, qui n'osaient plus émettre le moindre son.
 

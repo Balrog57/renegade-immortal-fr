@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 861 - Repaying Gratitude
 slug: rendre-grâce
 ---
-« Xu Mu! Le Xu Mu qui a massacré des planètes dans le Domaine de l'Ouest! »
+« Xu Mu! Le Xu Mu qui a massacré des planètes dans le Domaine Xi! »
 
 « Cet homme était traqué par la famille Yao et a fini par les forcer à battre en retraite. La première personne à avoir survécu indemne à l'Ordre Céleste! »
 

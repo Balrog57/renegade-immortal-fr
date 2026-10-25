@@ -24,7 +24,7 @@ Si quelqu'un avait été témoin de cette scène, il en aurait été profondéme
 
 Cette parcelle d'âme originelle se fusionna avec le plafond, puis Wang Lin n'y prêta plus attention. La compréhension ne s'acquiert pas en un instant; lorsqu'il reprendrait cette part d'âme à l'avenir, il récolterait toute la sagesse accumulée au fil des ans.
 
-« Essence de restriction... » Wang Lin observa le brouillard étrange où scintillaient d'innombrables symboles. C'était l'essence de restriction, celle qui l'accompagnait depuis la Terre de l'Ancien Dieu.
+« Essence de restriction... » Wang Lin observa le brouillard étrange où scintillaient d'innombrables symboles. C'était l'essence de restriction, celle qui l'accompagnait depuis la Terre Gu Shen.
 
 Après un long moment de méditation silencieuse, Wang Lin se souvint que son maître, Xuan Luo, l'avait emmené dans plusieurs lieux. Il y avait obtenu une quantité massive de restrictions qui seraient d'une aide précieuse pour renforcer son essence de restriction.
 
@@ -80,7 +80,7 @@ Le clan Ancien Shi faisait face à un problème similaire. Le terme des dix mill
 
 Il restait un peu plus d'un siècle avant cette abdication. Il demeurait silencieux, n'ayant aucun droit de choisir, ce qui poussait tous les princes à concentrer leurs espoirs sur le Grand Empyréen Song Tian.
 
-Ji Du avait tenté de rencontrer le Grand Empyréen Song Tian à maintes reprises, mais s'était vu systématiquement refoulé devant la Montagne de l'Origine. L'échéance approchait et, une fois la décision de Song Tian prise, il serait trop tard.
+Ji Du avait tenté de rencontrer le Grand Empyréen Song Tian à maintes reprises, mais s'était vu systématiquement refoulé devant la Montagne Yuan Shi. L'échéance approchait et, une fois la décision de Song Tian prise, il serait trop tard.
 
 À cet instant, trois personnes se trouvaient dans le palais du Prince Ji Du. L'un d'eux était Ji Du lui-même, le sourcil froncé par l'anxiété.
 

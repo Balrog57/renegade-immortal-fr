@@ -98,7 +98,7 @@ Le ciel fut déchiré alors qu'il chargeait vers les hauteurs.
 
 « Aucun d'entre vous ne pourra s'échapper! »
 
-Quant à Wang Lin et au Couple Céleste, les trois apparurent instantanément dans le palais du huitième étage. Hu Juan s'exclama rapidement: « Lorsque le Maître m'a parlé tout à l'heure, il n'a prononcé qu'une seule phrase! "Temple du Royaume Céleste de la Pluie, Cristal d'Âme Originelle, le sang de Qing Shuang!" »
+Quant à Wang Lin et au Couple Céleste, les trois apparurent instantanément dans le palais du huitième étage. Hu Juan s'exclama rapidement: « Lorsque le Maître m'a parlé tout à l'heure, il n'a prononcé qu'une seule phrase! "Temple Yu Jie Zun, Cristal d'Âme Originelle, le sang de Qing Shuang!" »
 
 Les yeux de Wang Wei se rétrécirent. Avant qu'il ne puisse parler, l'homme en noir et le Maître du Vide émergèrent du réseau de transfert. Au même moment, le corps spirituel misérable de l'Ancien Démon Bei Luo apparut également.
 

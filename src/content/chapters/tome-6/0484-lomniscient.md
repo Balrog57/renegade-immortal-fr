@@ -108,7 +108,7 @@ Une fois cela fait, le regard du vieil homme se posa sur Wang Lin et il sourit: 
 
 Wang Lin agita la main droite pour faire revenir le piège à bêtes à son poignet. Il leva les yeux vers le vieil homme, son aura dominante s'étant dissipée, et joignit ses mains: « Le junior Wang Lin salue le senior Tian Yunzi. »
 
-Le vieil homme observa le Pavillon de la Forêt Violette qui avait été largement détruit lors du grand combat. La seule partie encore relativement intacte était l'enseigne portant les trois mots: « Pavillon de la Forêt Violette ».
+Le vieil homme observa le Pavillon Zi Lin qui avait été largement détruit lors du grand combat. La seule partie encore relativement intacte était l'enseigne portant les trois mots: « Pavillon Zi Lin ».
 
 « Belle calligraphie! » Le vieil homme caressa sa barbe blanche avant de pointer le pavillon du doigt. Une douce lumière blanche enveloppa l'édifice, qui fut alors totalement restauré, comme s'il n'avait jamais été endommagé. Même les fissures dans la terre, les rochers brisés et les arbres déracinés furent remis en état.
 

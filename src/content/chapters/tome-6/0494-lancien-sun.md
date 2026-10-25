@@ -10,13 +10,13 @@ Tian Yunzi ne dispensait son enseignement qu'une fois tous les dix mille ans, et
 
 Parmi les immenses foules venues de tous horizons, certains étaient des cultivateurs extrêmement puissants. Cependant, même eux écoutaient attentivement Tian Yunzi et gardaient ses paroles précieusement en mémoire.
 
-En ce matin, les disciples des sept divisions de la Secte du Destin Céleste sortirent, en commençant par la Division Rouge.
+En ce matin, les disciples des sept divisions de la Secte Tian Yun sortirent, en commençant par la Division Rouge.
 
 La Division Rouge comptait au total sept disciples, et aucun ne manquait à l'appel. Ils portaient tous des robes rouges ornées de dragons dorés brodés sur les manches et du jade chaud de la rivière immortelle à la taille. Les sept membres s'élancèrent de leur division en sept rayons de lumière rouge. Dans le ciel surplombant la Division Rouge, ils s'inclinèrent respectueusement vers la direction de la secte principale.
 
 Une fois la Division Rouge passée, la Division Orange suivit de près. Elle comptait également sept membres vêtus d'orange qui s'inclinèrent respectueusement après leurs prédécesseurs.
 
-Vinrent ensuite les Divisions Jaune, Verte, Cyan et Bleue, respectivement. Une fois ces six divisions apparues, ce fut au tour de la Division Pourpre. Après tout, la Division Pourpre était la plus faible de la Secte du Destin Céleste.
+Vinrent ensuite les Divisions Jaune, Verte, Cyan et Bleue, respectivement. Une fois ces six divisions apparues, ce fut au tour de la Division Pourpre. Après tout, la Division Pourpre était la plus faible de la Secte Tian Yun.
 
 Seuls trois rayons de lumière s'échappèrent de la Division Pourpre avant de s'immobiliser dans le ciel.
 
@@ -38,13 +38,13 @@ Outre ces deux-là, il y avait une autre personne qui semblait très familière 
 
 Au moment où leurs regards se croisèrent, une lueur de compréhension apparut dans les yeux de l'homme, comme s'il reconnaissait Wang Lin, avant d'esquisser un sourire étrange.
 
-Wang Lin prit une profonde inspiration. À l'époque, il ne savait que peu de choses sur la Secte du Destin Céleste, mais il était désormais certain que, dans le Royaume Céleste, cet homme avait dissimulé son niveau de culture.
+Wang Lin prit une profonde inspiration. À l'époque, il ne savait que peu de choses sur la Secte Tian Yun, mais il était désormais certain que, dans le Royaume Céleste, cet homme avait dissimulé son niveau de culture.
 
 Même à présent, Wang Lin pensait qu'il cachait sa puissance, mais l'écart entre leurs niveaux de culture était si immense que Wang Lin ne parvenait pas à percer son mystère.
 
 Il scruta un à un tous les disciples des six autres divisions. Il ne parvenait pas à percevoir le niveau de culture de plus de la moitié d'entre eux. Bien qu'il puisse déceler quelques indices, ses suppositions ne reposaient que sur les traces résiduelles laissées lorsqu'ils dissimulaient leur puissance.
 
-« La Secte du Destin Céleste est véritablement puissante... n'importe laquelle de ces divisions, hormis ma Division Pourpre, pourrait facilement balayer la planète Suzaku. Même si Zhu Quezi possédait le sceau du titre, il ne ferait pas le poids! »
+« La Secte Tian Yun est véritablement puissante... n'importe laquelle de ces divisions, hormis ma Division Pourpre, pourrait facilement balayer la planète Suzaku. Même si Zhu Quezi possédait le sceau du titre, il ne ferait pas le poids! »
 
 L'expression de Wang Lin était normale, mais son cœur était sombre.
 
@@ -70,9 +70,9 @@ Une fois que tous les disciples ordinaires des sept divisions furent apparus, le
 
 À mesure que les gens arrivaient, les dix mille kilomètres environnants se remplissaient progressivement de cultivateurs.
 
-Wang Lin jeta un coup d'œil et ne parvint même pas à estimer le nombre de personnes présentes. C'était la première fois qu'il pouvait réellement mesurer l'importance de la position de Tian Yunzi au sein de la Secte du Destin Céleste.
+Wang Lin jeta un coup d'œil et ne parvint même pas à estimer le nombre de personnes présentes. C'était la première fois qu'il pouvait réellement mesurer l'importance de la position de Tian Yunzi au sein de la Secte Tian Yun.
 
-Peu de temps après, un rayon de lumière arc-en-ciel jaillit soudainement du sanctuaire principal de la Secte du Destin Céleste. Ce rayon traversa le ciel pour rejoindre les disciples. Un vieil homme vêtu d'une robe blanche marchait lentement sur ce chemin de lumière vers eux.
+Peu de temps après, un rayon de lumière arc-en-ciel jaillit soudainement du sanctuaire principal de la Secte Tian Yun. Ce rayon traversa le ciel pour rejoindre les disciples. Un vieil homme vêtu d'une robe blanche marchait lentement sur ce chemin de lumière vers eux.
 
 À cet instant, tous les disciples principaux des sept divisions s'inclinèrent et s'exclamèrent: « Salutations, Maître! »
 
@@ -86,7 +86,7 @@ Après eux vinrent les invités. Parmi eux, certains criaient avec force tandis 
 
 Bien que le vieil homme parût lent, il ne lui fallut que trois respirations pour atteindre le ciel au-dessus d'eux. Observant la foule des cultivateurs, l'homme esquissa un léger sourire et dit calmement: « Moi, Tian Yunzi, je suis capable de comprendre les cieux parce que j'ai cultivé pendant une très longue période. Aujourd'hui, je vais vous permettre de faire l'expérience de certaines des illuminations que j'ai reçues. Le Dao de ce vieux est celui de suivre le destin des cieux. Si mes propos contiennent des erreurs, j'espère que vous saurez me pardonner! »
 
-Arrivé à ce point, il s'arrêta soudainement et leva la tête pour scruter le vide au-dessus de lui. Il eut un mince sourire et ajouta: « Cependant, avant cela, laissons mon vieil ami de l'Alliance de Culture s'exprimer en premier. »
+Arrivé à ce point, il s'arrêta soudainement et leva la tête pour scruter le vide au-dessus de lui. Il eut un mince sourire et ajouta: « Cependant, avant cela, laissons mon vieil ami de l'Alliance Xiu Zhen s'exprimer en premier. »
 
 Dès que Tian Yunzi eut prononcé ces mots, un grand silence s'installa, et tous les regards se tournèrent vers le vide. Les puissants cultivateurs, en particulier, devinrent immédiatement vigilants et affichèrent des expressions de surprise.
 
@@ -126,7 +126,7 @@ Tian Yunzi sourit sans rien répondre. Au lieu de cela, il parcourut les cultiva
 
 Sur ce, Tian Yunzi agita ses manches et s'assit. Au moment où il prit place, un nuage apparut sous lui.
 
-L'homme d'âge moyen venu de l'Alliance de Culture s'assit également à ses côtés. Il prêta une attention soutenue à Tian Yunzi, se préparant à chercher le Dao. Quant au blaireau à trois yeux, il s'envola de son épaule; il se déplaça plus vite que l'éclair et disparut sans laisser de trace.
+L'homme d'âge moyen venu de l'Alliance Xiu Zhen s'assit également à ses côtés. Il prêta une attention soutenue à Tian Yunzi, se préparant à chercher le Dao. Quant au blaireau à trois yeux, il s'envola de son épaule; il se déplaça plus vite que l'éclair et disparut sans laisser de trace.
 
 Les pupilles de Wang Lin se rétractèrent. Une telle vitesse n'était comparable qu'à celle de la lame demi-lunaire à pleine puissance.
 

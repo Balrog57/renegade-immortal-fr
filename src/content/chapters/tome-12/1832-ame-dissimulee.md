@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1832 - Concealed Soul!"
 slug: ame-dissimulee
 ---
-Au plus profond de la Secte de la Grande Âme se dressait une montagne qui perçait les cieux. D'un vert éclatant, elle semblait d'une hauteur vertigineuse, comme si elle soutenait le monde entier. C’était une terre interdite de la Secte de la Grande Âme; le lieu où résidait l'Ancêtre Taureau Vert.
+Au plus profond de la Secte Da Hun se dressait une montagne qui perçait les cieux. D'un vert éclatant, elle semblait d'une hauteur vertigineuse, comme si elle soutenait le monde entier. C’était une terre interdite de la Secte Da Hun; le lieu où résidait l'Ancêtre Taureau Vert.
 
 Wang Lin vola rapidement. Toutes les restrictions qui se dressaient devant lui résonnèrent, mais aucune ne parvint à l'arrêter. Il s'arrêta devant le Pic du Ciel Vert et joignit les mains. Sa voix résonna distinctement vers la montagne:
 
@@ -22,23 +22,23 @@ Inconsciemment, Wang Lin déploya son Sens Divin pour scanner la montagne. Bien 
 
 Au Pic du Ciel Vert, l'Estimé Taureau Vert était assis, sa robe verte flottant au vent avec ses longs cheveux blancs. Wang Lin resta calme lorsqu'il arriva face à lui et prit place.
 
-Une fois installé, Wang Lin prit la parole lentement: « Le Dao de l’Œil de l'Âme est en effet extraordinaire. Après 178 000 ans de culture, il pourrait peut-être rivaliser avec l'Instructeur Impérial Céleste. J'admire la profondeur de la Secte de la Grande Âme. »
+Une fois installé, Wang Lin prit la parole lentement: « Le Dao de l’Œil de l'Âme est en effet extraordinaire. Après 178 000 ans de culture, il pourrait peut-être rivaliser avec l'Instructeur Impérial Céleste. J'admire la profondeur de la Secte Da Hun. »
 
 En entendant cela, l'Estimé Taureau Vert rit. Il ne semblait nullement embarrassé, mais plutôt serein.
 
-« Oui, les paroles de l'Ancien Wang sont justes. Entrer dans ma Secte de la Grande Âme et s'en enorgueillir immédiatement est une excellente chose. En fait, ce vieil homme pense la même chose. Si quelqu'un pouvait réellement s'isoler en culture pendant 178 000 ans pour porter le Dao de l’Œil de l'Âme à sa perfection, il aurait véritablement le pouvoir de rivaliser avec l'Instructeur Impérial! »
+« Oui, les paroles de l'Ancien Wang sont justes. Entrer dans ma Secte Da Hun et s'en enorgueillir immédiatement est une excellente chose. En fait, ce vieil homme pense la même chose. Si quelqu'un pouvait réellement s'isoler en culture pendant 178 000 ans pour porter le Dao de l’Œil de l'Âme à sa perfection, il aurait véritablement le pouvoir de rivaliser avec l'Instructeur Impérial! »
 
 « 178 000 ans à cultiver un seul sort alors que le niveau de culture n'augmente pas du tout... Le corps ne disposerait pas d'assez de force vitale; comment une telle personne pourrait-elle exister? » Les paroles de Wang Lin étaient brusques. Cette exigence de 178 000 ans lui inspirait un sentiment d'impuissance.
 
-« Haha! Quoi qu'il en soit, ce vieil homme n'a jamais entendu parler de quiconque au sein de la Secte de la Grande Âme ayant maîtrisé le Dao de l’Œil de l'Âme. Même l'ancêtre de la première génération n'avait réussi qu'à atteindre 4,1 milliards d'inscriptions. »
+« Haha! Quoi qu'il en soit, ce vieil homme n'a jamais entendu parler de quiconque au sein de la Secte Da Hun ayant maîtrisé le Dao de l’Œil de l'Âme. Même l'ancêtre de la première génération n'avait réussi qu'à atteindre 4,1 milliards d'inscriptions. »
 
-« Cependant, le talent de l'Ancien Wang est prodigieux et vous avez sans doute connu bien des rencontres fortuites. Peut-être trouverez-vous un moyen de maîtriser le plus grand sort de ma Secte de la Grande Âme. » L'Estimé Taureau Vert sourit en parlant.
+« Cependant, le talent de l'Ancien Wang est prodigieux et vous avez sans doute connu bien des rencontres fortuites. Peut-être trouverez-vous un moyen de maîtriser le plus grand sort de ma Secte Da Hun. » L'Estimé Taureau Vert sourit en parlant.
 
 « Foutaises! » Wang Lin ne fit preuve d'aucune politesse. Il parlait rarement ainsi, mais il trouvait l'expression actuelle de l'Estimé Taureau Vert tout simplement trop malveillante.
 
 Après cette remarque, l'Estimé Taureau Vert fut un instant surpris. Il ne s'attendait pas à une telle réponse. Après avoir cligné des yeux, il se sentit effectivement un peu coupable et esquissa un sourire malicieux.
 
-« Peu importe, ne parlons plus de cela. La Secte de la Grande Âme a préparé trois cadeaux pour vous. Ils devraient vous être d'une grande utilité! » Sur ces mots, il agita la main droite et trois lueurs apparurent. Trois boîtes volèrent alors vers Wang Lin.
+« Peu importe, ne parlons plus de cela. La Secte Da Hun a préparé trois cadeaux pour vous. Ils devraient vous être d'une grande utilité! » Sur ces mots, il agita la main droite et trois lueurs apparurent. Trois boîtes volèrent alors vers Wang Lin.
 
 Wang Lin agita sa manche et rangea les trois coffrets sans même les regarder.
 
@@ -50,7 +50,7 @@ Voyant Wang Lin froncer les sourcils, l'Estimé Taureau Vert se leva et pointa l
 
 Le pavillon était enveloppé d'une brume épaisse et semblait y planer. Une pression d'âme s'échappait de la faille; Wang Lin ressentait déjà la pression sans même y être entré.
 
-« Ce vieil homme doit encore affiner un fourneau de pilules. Vous pouvez entrer dans le Pavillon des Écritures de l'Âme et choisir un sort. La règle établie depuis des générations est que vous ne pouvez en choisir qu'un seul. Si vous souhaitez y retourner, vous devrez accomplir des tâches pour la secte! » Après avoir parlé, l'Estimé Taureau Vert partit prestement et disparut.
+« Ce vieil homme doit encore affiner un fourneau de pilules. Vous pouvez entrer dans le Pavillon Cang Hun et choisir un sort. La règle établie depuis des générations est que vous ne pouvez en choisir qu'un seul. Si vous souhaitez y retourner, vous devrez accomplir des tâches pour la secte! » Après avoir parlé, l'Estimé Taureau Vert partit prestement et disparut.
 
 Wang Lin se leva, ignorant le départ de son interlocuteur. Il observa la faille, réfléchit un instant, puis s'y engagea.
 
@@ -61,9 +61,9 @@ Deux statues colossales de bêtes féroces, d'un réalisme saisissant, gardaient
 La porte était close et un silence absolu régnait. Une lumière vacillait à travers la brume au sixième étage, comme si quelqu'un circulait à l'intérieur.
 
 Trois grands caractères surplombaient la porte:
-Pavillon des Écritures de l'Âme.
+Pavillon Cang Hun.
 
-C’était la terre sainte de la Secte de la Grande Âme, où étaient conservés tous les sorts des générations passées. Bien que l'endroit paraisse calme, Wang Lin pouvait y déceler des pièges dissimulés; de nombreux pièges terrifiants.
+C’était la terre sainte de la Secte Da Hun, où étaient conservés tous les sorts des générations passées. Bien que l'endroit paraisse calme, Wang Lin pouvait y déceler des pièges dissimulés; de nombreux pièges terrifiants.
 
 Après une courte réflexion, Wang Lin s'avança vers le pavillon. En approchant, il se tourna soudainement vers la statue de la bête féroce à sa droite. Celle-ci ressemblait à un qilin, mais différait de celui-ci.
 
@@ -75,25 +75,25 @@ Les yeux de Wang Lin s'illuminèrent. Il comprit que cette statue abritait l'âm
 
 Wang Lin leva la main droite et le jade qu'avait fourni l'Estimé Taureau Vert apparut. Il ne sentit qu'un souffle rapide, puis vit un éclair rouge avant que le jade ne disparaisse sans laisser de trace. La gueule de la statue sembla mâcher, puis, un instant plus tard, elle recracha le jade.
 
-« Tu peux entrer dans le Pavillon des Écritures de l'Âme et choisir un sort! » La statue de pierre envoya ce message par Sens Divin avant de s'immobiliser. La distorsion spatiale disparut et elle reprit son apparence de statue normale.
+« Tu peux entrer dans le Pavillon Cang Hun et choisir un sort! » La statue de pierre envoya ce message par Sens Divin avant de s'immobiliser. La distorsion spatiale disparut et elle reprit son apparence de statue normale.
 
 « Quelle vitesse! » Les pupilles de Wang Lin se rétractèrent. Il n'avait pas pu distinguer clairement le mouvement de la statue. Après réflexion, il réalisa que la lumière rouge était la langue de la bête.
 
 Une fois la statue redevenue immobile, une ouverture se forma dans le pavillon à neuf étages. Une vague de fluctuations d'âme s'en échappa, intensifiant la pression ambiante.
 
-L'expression de Wang Lin resta imperturbable alors qu'il franchissait l'ouverture. En pénétrant au premier étage du Pavillon des Écritures de l'Âme, il en découvrit le secret.
+L'expression de Wang Lin resta imperturbable alors qu'il franchissait l'ouverture. En pénétrant au premier étage du Pavillon Cang Hun, il en découvrit le secret.
 
 C'était une salle de plusieurs dizaines de milliers de pieds de large où flottaient d'innombrables petits êtres de sept pieds. Leurs yeux étaient clos et ils demeuraient immobiles, mais chacun dégageait une puissance de culture impressionnante.
 
 Le regard de Wang Lin balaya ces milliers de silhouettes. Il y avait des hommes et des femmes, jeunes et vieux, mais sans exception, il ne s'agissait que de corps d'âme. Chaque âme contenait un type de sort spécifique.
 
-« Pavillon des Écritures de l'Âme... » murmura Wang Lin après avoir inspecté cet étage et aperçu les escaliers menant au second. Une lueur spectrale émanait des marches; sans un niveau de culture suffisant, il était impossible de monter.
+« Pavillon Cang Hun... » murmura Wang Lin après avoir inspecté cet étage et aperçu les escaliers menant au second. Une lueur spectrale émanait des marches; sans un niveau de culture suffisant, il était impossible de monter.
 
 Il était évident que plus on montait, plus les sorts étaient prodigieux. Wang Lin agita sa manche et survola des centaines de corps d'âme pour atteindre l'escalier. Dès qu'il posa le pied sur la première marche, une force de rejet apparut pour entraver son ascension.
 
 Cette force était puissante et pouvait stopper tout cultivateur n'ayant pas atteint le troisième stade. Cependant, pour Wang Lin, elle était insignifiante. Il resta calme et monta sereinement les marches vers le deuxième étage.
 
-Le second niveau contenait également des milliers de corps d'âme. Les auras qu'ils dégageaient étaient bien plus puissantes que celles du premier étage, mais après un rapide examen, Wang Lin ne trouva pas le sort recherché. Il cherchait l'illusion multicouche et le sort capable d'invoquer les âmes des ancêtres de la Secte de la Grande Âme.
+Le second niveau contenait également des milliers de corps d'âme. Les auras qu'ils dégageaient étaient bien plus puissantes que celles du premier étage, mais après un rapide examen, Wang Lin ne trouva pas le sort recherché. Il cherchait l'illusion multicouche et le sort capable d'invoquer les âmes des ancêtres de la Secte Da Hun.
 
 « Ces sorts sont principalement destinés aux cultivateurs du Vide du Nirvana et peuvent déployer une puissance extraordinaire... mais ils ne me servent à rien. » Wang Lin songea ainsi avant de poursuivre son ascension.
 
@@ -109,4 +109,4 @@ Au sixième étage, Yan Luan était assise, un corps d'âme flottant au-dessus d
 
 Au moment précis où le pied de Wang Lin toucha les marches du sixième étage, Yan Luan ouvrit soudainement les yeux, révélant une lueur étrange.
 
-« La personne qui entre dans le Pavillon des Écritures de l'Âme à ce moment précis est probablement ce Wang Lin! Sa culture est singulière; il ne peut pas être simplement au stade avancé du Vide Spirituel. Voyons s'il parvient à monter ici, alors je pourrai juger de son véritable niveau! »
+« La personne qui entre dans le Pavillon Cang Hun à ce moment précis est probablement ce Wang Lin! Sa culture est singulière; il ne peut pas être simplement au stade avancé du Vide Spirituel. Voyons s'il parvient à monter ici, alors je pourrai juger de son véritable niveau! »

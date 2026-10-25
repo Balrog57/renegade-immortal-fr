@@ -10,7 +10,7 @@ La réaction de Teng Yun fut d'une rapidité fulgurante; il afficha même une ex
 
 Si c'était une personne ordinaire, elle aurait été plus ou moins dupe de ses manœuvres.
 
-Wang Lin lança un regard glacial à Teng Yun avant de détourner les yeux et d'avancer. L'expression de Teng Yun changea légèrement alors qu'il reculait en fixant Wang Lin, pensant: « L'armure que porte cet homme est tout simplement terrifiante. Je ne parviens pas non plus à percer son niveau de culture. J'ignore s'il s'agit d'un cultivateur ou d'un indigène de cette Terre des Esprits Démoniaques... Cependant, peu importe la puissance de sa culture, dès qu'il franchira la limite des trente-trois mètres autour de ce cadavre, il mourra sans aucun doute! Je ne ferai pas de vagues et je le laisserai se faire tuer par la lumière dorée émise par ce trésor. Ensuite, j'utiliserai mes propres méthodes pour m'en emparer. À ce moment-là, même cette armure sera mienne! »
+Wang Lin lança un regard glacial à Teng Yun avant de détourner les yeux et d'avancer. L'expression de Teng Yun changea légèrement alors qu'il reculait en fixant Wang Lin, pensant: « L'armure que porte cet homme est tout simplement terrifiante. Je ne parviens pas non plus à percer son niveau de culture. J'ignore s'il s'agit d'un cultivateur ou d'un indigène de cette Terre Yao Ling... Cependant, peu importe la puissance de sa culture, dès qu'il franchira la limite des trente-trois mètres autour de ce cadavre, il mourra sans aucun doute! Je ne ferai pas de vagues et je le laisserai se faire tuer par la lumière dorée émise par ce trésor. Ensuite, j'utiliserai mes propres méthodes pour m'en emparer. À ce moment-là, même cette armure sera mienne! »
 
 Teng Yun ricana intérieurement, mais en surface, il feignit la colère. Il n'osa toutefois pas s'interposer devant Wang Lin.
 
@@ -78,21 +78,21 @@ Si Wang Lin pouvait accomplir cela, c'était parce que sa culture avait atteint 
 
 Par ce simple geste, Ling Tianhou protégeait ses disciples bien mieux que Tian Yunzi! Il offrait à ses disciples un puissant rayon d'énergie d'épée, là où Tian Yunzi ne leur donnait que des trésors de sauvetage de piètre qualité.
 
-Ling Tianhou avait fait en sorte que Tan Lang se rende dans la Terre des Esprits Démoniaques pour protéger ses disciples, mais Tian Yunzi n'en ferait pas autant.
+Ling Tianhou avait fait en sorte que Tan Lang se rende dans la Terre Yao Ling pour protéger ses disciples, mais Tian Yunzi n'en ferait pas autant.
 
 Cela tenait en grande partie à leurs Daos respectifs. Le Dao de Ling Tianhou était celui de la tyrannie. Cela le rendait extrêmement protecteur envers les siens; nul étranger n'était autorisé à s'en prendre à son peuple!
 
-Personne ne pouvait intimider les disciples de la Secte de l'Épée Da Luo. C'est précisément pour cette raison que, malgré sa piètre réputation, tous les disciples vouaient un respect immense au Saint de l'Épée Ling Tianhou. Toutefois, cela limitait aussi le nombre de cultivateurs extrêmement puissants au sein de la secte, car il était très difficile d'atteindre la véritable puissance sous une telle protection!
+Personne ne pouvait intimider les disciples de la Secte Da Luo Jian. C'est précisément pour cette raison que, malgré sa piètre réputation, tous les disciples vouaient un respect immense au Saint de l'Épée Ling Tianhou. Toutefois, cela limitait aussi le nombre de cultivateurs extrêmement puissants au sein de la secte, car il était très difficile d'atteindre la véritable puissance sous une telle protection!
 
-À l'opposé se trouvait la Secte du Destin Céleste. Le Dao de Tian Yunzi consistait à suivre la volonté des cieux. C'était un cultivateur typique de la voie céleste: la vie et la mort de ses disciples étaient dictées par les cieux, et leur force déterminée par le destin; il n'intervenait que rarement par la force.
+À l'opposé se trouvait la Secte Tian Yun. Le Dao de Tian Yunzi consistait à suivre la volonté des cieux. C'était un cultivateur typique de la voie céleste: la vie et la mort de ses disciples étaient dictées par les cieux, et leur force déterminée par le destin; il n'intervenait que rarement par la force.
 
-Cela dit, cette voie permettait à la Secte du Destin Céleste de compter de nombreux experts. Ses sept véritables disciples étaient déjà tous puissants, sans même mentionner les innombrables membres cachés qui avaient survécu à d'infimes et d'innombrables situations de vie ou de mort.
+Cela dit, cette voie permettait à la Secte Tian Yun de compter de nombreux experts. Ses sept véritables disciples étaient déjà tous puissants, sans même mentionner les innombrables membres cachés qui avaient survécu à d'infimes et d'innombrables situations de vie ou de mort.
 
-Un événement majeur se produisit dans la Terre des Esprits Démoniaques durant le mois où Wang Lin méditait sous terre. Cette affaire poussa presque tous les cultivateurs étrangers à quitter leurs bases pour se précipiter vers le Pays du Démon de Feu et le Pays du Démon Céleste!
+Un événement majeur se produisit dans la Terre Yao Ling durant le mois où Wang Lin méditait sous terre. Cette affaire poussa presque tous les cultivateurs étrangers à quitter leurs bases pour se précipiter vers le Pays Huo Yao et le Pays Tian Yao!
 
-Le Pays du Démon Céleste mobilisa trente millions de soldats et déclara officiellement la guerre au Pays du Démon de Feu!
+Le Pays Tian Yao mobilisa trente millions de soldats et déclara officiellement la guerre au Pays Huo Yao!
 
-Si les batailles étaient courantes dans la Terre des Esprits Démoniaques, elles n'étaient que des escarmouches. Les guerres totales entre deux pays étaient extrêmement rares.
+Si les batailles étaient courantes dans la Terre Yao Ling, elles n'étaient que des escarmouches. Les guerres totales entre deux pays étaient extrêmement rares.
 
 Même avec l'apparition de cultivateurs tous les cinq mille ans, cela ne provoquait que des conflits limités entre les neuf pays. Il était rare qu'un tel affrontement se produise, une véritable lutte pour la survie entre deux nations!
 
@@ -100,13 +100,13 @@ Car une fois l'équilibre entre les neuf pays rompu, cela déclencherait une ré
 
 Cependant, pour les cultivateurs, c'était une opportunité divine, le moyen le plus rapide de s'attirer du mérite!
 
-Les huit commandants en chef et les huit vice-commandants du Pays du Démon Céleste furent tous déployés. Parmi les deux nouveaux vice-commandants figuraient Mo Lihai et l'ancien premier général démon, Mo Fei.
+Les huit commandants en chef et les huit vice-commandants du Pays Tian Yao furent tous déployés. Parmi les deux nouveaux vice-commandants figuraient Mo Lihai et l'ancien premier général démon, Mo Fei.
 
-En plus de cela, l'Empereur Démon du Pays du Démon Céleste menait personnellement l'armée!
+En plus de cela, l'Empereur Démon du Pays Tian Yao menait personnellement l'armée!
 
-L'ensemble des troupes fut divisé en trois armées. Elles allaient ouvrir la voie par le massacre dans le Pays du Démon de Feu selon trois directions différentes, pour ensuite se rejoindre aux abords de la capitale du Pays du Démon de Feu!
+L'ensemble des troupes fut divisé en trois armées. Elles allaient ouvrir la voie par le massacre dans le Pays Huo Yao selon trois directions différentes, pour ensuite se rejoindre aux abords de la capitale du Pays Huo Yao!
 
-Le jour où Wang Lin sortit de terre, ce fut le même jour où l'armée du Pays du Démon Céleste pénétra sur le territoire du Pays du Démon de Feu!
+Le jour où Wang Lin sortit de terre, ce fut le même jour où l'armée du Pays Tian Yao pénétra sur le territoire du Pays Huo Yao!
 
 Dès son apparition, Wang Lin sentit une épaisse intention de meurtre saturer l'air. Cette intention ne provenait pas d'un seul homme, mais de dizaines de millions de personnes. Sous cette pression, même le ciel semblait s'assombrir.
 
@@ -114,7 +114,7 @@ Les nuages blancs furent remplacés par des masses sombres, et la pluie commenç
 
 Wang Lin leva les yeux vers le ciel. Il réfléchit et murmura: « L'Ancien Démon est vraiment décisif. Peut-être que ses années de patience ont atteint leur limite. Si tel est le cas, je devrai redoubler de prudence... »
 
-« Cependant, cette bataille n'a que peu de rapport avec moi. Le plus important pour l'instant est de tuer les dix disciples restants du Saint de l'Épée et de m'emparer de leurs énergies d'épée. Ensuite, je devrai raffiner d'innombrables filaments d'énergie de massacre. Après cela, j'aurai la capacité de m'imposer, même dans cette Terre des Esprits Démoniaques! »
+« Cependant, cette bataille n'a que peu de rapport avec moi. Le plus important pour l'instant est de tuer les dix disciples restants du Saint de l'Épée et de m'emparer de leurs énergies d'épée. Ensuite, je devrai raffiner d'innombrables filaments d'énergie de massacre. Après cela, j'aurai la capacité de m'imposer, même dans cette Terre Yao Ling! »
 
 « Je dois aussi continuer à explorer cette grotte. Peut-être y trouverai-je encore plus de trésors! » Les yeux de Wang Lin s'illuminèrent alors qu'il fit un pas et disparut sans laisser de trace.
 

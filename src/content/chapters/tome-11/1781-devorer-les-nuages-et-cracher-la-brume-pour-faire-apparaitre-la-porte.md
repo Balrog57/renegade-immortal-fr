@@ -14,7 +14,7 @@ Il avait échoué à la compétition. On pouvait dire que cet événement fut un
 
 Au cours des années suivantes, Su Dao sombra dans le déclin et se raréfia, ne parlant plus guère à personne. Il s'enferma dans une culture en porte close jusqu'à ce qu'il rencontre par hasard son grand-maître. Ce dernier l'instruisit en personne, et il finit lentement par relever la tête.
 
-Malheureusement, cette période de grâce fut de courte durée. Une rencontre inattendue provoqua l'expulsion de Su Dao de la Secte Dong Lin. Après cela, au fil des éternités, le Su Dao de la Secte Dong Lin cessa d'exister. Ce qu'il restait n'était plus que le Souverain Céleste aux Sept Couleurs, qui, par sa lutte et son refus de se résigner, se transforma en cruauté et en massacres, jusqu'à ce qu'il fonde finalement la Secte des Sept Dao!
+Malheureusement, cette période de grâce fut de courte durée. Une rencontre inattendue provoqua l'expulsion de Su Dao de la Secte Dong Lin. Après cela, au fil des éternités, le Su Dao de la Secte Dong Lin cessa d'exister. Ce qu'il restait n'était plus que le Souverain Céleste aux Sept Couleurs, qui, par sa lutte et son refus de se résigner, se transforma en cruauté et en massacres, jusqu'à ce qu'il fonde finalement la Secte Qi Dao!
 
 Quant à Zhou Li, le jour où le Souverain Céleste aux Sept Couleurs acheva son Dao, il captura Zhou Li et le tua avec cruauté.
 
@@ -24,7 +24,7 @@ C'était le troisième jour après que le maître de Su Dao lui eut enseigné l'
 
 La rivière continuait son cours, tandis que les souvenirs de la troisième âme s'effaçaient dans l'esprit de Wang Lin, remplacés par l'Art Céleste du Dao des Nuages.
 
-La Secte Dong Lin était l'un des Neuf Sectes et Treize Factions de cette région. Bien qu'il ne fût pas aussi puissant que la Secte du Soleil Violet, il était empreint d'un grand mystère; ses disciples sortaient rarement.
+La Secte Dong Lin était l'un des Neuf Sectes et Treize Factions de cette région. Bien qu'il ne fût pas aussi puissant que la Secte Zi Yang, il était empreint d'un grand mystère; ses disciples sortaient rarement.
 
 Les trois grandes techniques de la secte étaient célèbres sur le Continent Astral Immortel et se transmettaient depuis l'Antiquité.
 

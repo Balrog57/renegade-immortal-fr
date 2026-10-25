@@ -1,6 +1,6 @@
 ---
 n: 468
-title: Le Tombeau de Suzaku
+title: Le Tombeau Zhu Que
 book: 5
 bookTitle: Cultivation Planet Crystal
 en: Chapter 468 - Suzaku Tomb
@@ -16,21 +16,21 @@ Mo Zhi regarda Wang Lin, secoua la tête et soupira. « Dommage. Puisque frère 
 
 Son regard se posa ensuite sur Yun Quezi.
 
-« Le Clan des Immortels Délaissés... le tiers de la planète Suzaku peut vous être accordé, mais tous les 1 000 ans, vous devrez remettre le crâne d'un membre du clan ayant au moins neuf feuilles. Yun Quezi, acceptez-vous? »
+« Le Clan Xian Yi... le tiers de la planète Suzaku peut vous être accordé, mais tous les 1 000 ans, vous devrez remettre le crâne d'un membre du clan ayant au moins neuf feuilles. Yun Quezi, acceptez-vous? »
 
-Le cœur d'Yun Quezi se serra d'amertume. Il savait qu'il n'avait aucun droit de refuser pour l'instant. Cet homme représentait l'Alliance de la Culture; le Clan des Immortels Délaissés n'avait aucune chance de s'y opposer.
+Le cœur d'Yun Quezi se serra d'amertume. Il savait qu'il n'avait aucun droit de refuser pour l'instant. Cet homme représentait l'Alliance Xiu Zhen; le Clan Xian Yi n'avait aucune chance de s'y opposer.
 
 Il hocha vigoureusement la tête. Yun Quezi sembla soudainement vieillir et son regard devint terne.
 
-À cet instant précis, des vagues commencèrent à se former sur la mer en contrebas et l'effondrement du Tombeau de Suzaku reprit. Tandis que la mer rugissait, Mo Zhi leva la main et le cristal blanc qu'il tenait se mit soudainement à briller intensément.
+À cet instant précis, des vagues commencèrent à se former sur la mer en contrebas et l'effondrement du Tombeau Zhu Que reprit. Tandis que la mer rugissait, Mo Zhi leva la main et le cristal blanc qu'il tenait se mit soudainement à briller intensément.
 
-Cette lumière enveloppa brusquement l'océan et commença à se propager sur toute le Tombeau de Suzaku. La lueur s'étendit tel un troupeau de dizaines de milliers de chevaux galopant sur les flots, recouvrant bientôt l'intégralité du site.
+Cette lumière enveloppa brusquement l'océan et commença à se propager sur toute le Tombeau Zhu Que. La lueur s'étendit tel un troupeau de dizaines de milliers de chevaux galopant sur les flots, recouvrant bientôt l'intégralité du site.
 
 Mo Zhi murmura doucement: « Fermez! »
 
 En un seul mot, l'effondrement s'interrompit brusquement; la terre fracturée se reforma rapidement et toutes les fissures se refermèrent aussitôt.
 
-Après dix respirations, le Tombeau de Suzaku avait retrouvé son état initial.
+Après dix respirations, le Tombeau Zhu Que avait retrouvé son état initial.
 
 Mo Zhi jeta un dernier regard sur le cristal blanc qu'il tenait, puis le lança dans l'océan. Le cristal s'enfonça rapidement dans les profondeurs et disparut.
 
@@ -94,9 +94,9 @@ Désormais, seuls Mo Zhi et Wang Lin restaient.
 
 Après un instant de réflexion, Wang Lin joignit les mains et dit: « Merci! »
 
-Mo Zhi rit et répondit: « Frère Da Niu, peut-être qu'à l'avenir, j'aurai besoin de votre aide. Le moment venu, ne me refusez pas. Je dois quitter la planète Suzaku pour rendre compte à l'Alliance de la Culture. Si le destin le veut, nous nous reverrons. Maintenant, partons ensemble. »
+Mo Zhi rit et répondit: « Frère Da Niu, peut-être qu'à l'avenir, j'aurai besoin de votre aide. Le moment venu, ne me refusez pas. Je dois quitter la planète Suzaku pour rendre compte à l'Alliance Xiu Zhen. Si le destin le veut, nous nous reverrons. Maintenant, partons ensemble. »
 
-Les yeux de Wang Lin s'illuminèrent. Il secoua la tête et dit: « Seigneur Messager, j'ai encore quelques affaires à régler dans le Tombeau de Suzaku. »
+Les yeux de Wang Lin s'illuminèrent. Il secoua la tête et dit: « Seigneur Messager, j'ai encore quelques affaires à régler dans le Tombeau Zhu Que. »
 
 Mo Zhi afficha un sourire énigmatique et hocha la tête. D'un geste de la main, il fit apparaître un symbole rouge. « Souvenez-vous de ce symbole. Lorsque vous souhaiterez partir, utilisez votre énergie spirituelle céleste pour former ce sceau et vous pourrez quitter les lieux. »
 
@@ -112,19 +112,19 @@ Après une réflexion, Wang Lin s'élança dans les airs.
 
 Il n'avait pas volé longtemps qu'il vit trois rayons de lumière noire fondre vers lui au loin. Ces rayons se transformèrent en trois âmes primaires devant lui, dont l'une était le Qilin. Le regard de Wang Lin devint glacial; il sortit son drapeau d'âme, l'agita, et les trois âmes primaires furent aspirées à l'intérieur.
 
-« Cette Liu Mei est vraiment douée. Elle était poursuivie par quatre âmes primaires et a réussi à en détruire une... Elle a déjà quitté le Tombeau de Suzaku. Une fois que je serai sorti d'ici, je devrai la tuer! »
+« Cette Liu Mei est vraiment douée. Elle était poursuivie par quatre âmes primaires et a réussi à en détruire une... Elle a déjà quitté le Tombeau Zhu Que. Une fois que je serai sorti d'ici, je devrai la tuer! »
 
 « Même si je n'ai pas de grande querelle avec cette femme pour l'instant, elle n'a cessé d'agir contre moi. Elle a même collaboré avec Qian Feng pour m'éliminer! Je ne peux pas la laisser vivre! » Les yeux de Wang Lin s'illuminèrent, sa décision était prise.
 
 Ce « rêve » impliquant Liu Mei ne pouvait en rien influencer la résolution de Wang Lin. Comme elle l'avait dit elle-même: mis à part Li Muwan, Wang Lin se montrait impitoyable, même envers les femmes.
 
-« Les pertes lors de ce voyage au Tombeau de Suzaku sont trop lourdes. Il ne reste que trois âmes primaires et tous les fragments d'âme ont été détruits... La puissance du drapeau est considérablement affaiblie... Mais avec suffisamment d'âmes, il pourra retrouver sa pleine puissance. Hélas, les âmes errantes ne peuvent être utilisées, sinon la réparation serait bien plus simple! »
+« Les pertes lors de ce voyage au Tombeau Zhu Que sont trop lourdes. Il ne reste que trois âmes primaires et tous les fragments d'âme ont été détruits... La puissance du drapeau est considérablement affaiblie... Mais avec suffisamment d'âmes, il pourra retrouver sa pleine puissance. Hélas, les âmes errantes ne peuvent être utilisées, sinon la réparation serait bien plus simple! »
 
 « Le Cristal de la Planète de Culture est un objet si précieux que prétendre l'utiliser pour faire évoluer le Royaume Ji doit être un mensonge! Pour l'instant, la priorité est de trouver Xu Liguo. Je dois obtenir cette lame en demi-lune! » Après avoir libéré Xu Liguo, Wang Lin l'avait gardé sous surveillance. Le localisant enfin, il fit un pas, se mua en une fumée verte et s'élança vers lui.
 
-L'épisode du Tombeau de Suzaku touchait à sa fin.
+L'épisode du Tombeau Zhu Que touchait à sa fin.
 
-Quant au Clan des Immortels Délaissés, après la sortie d'Yun Quezi de la tombe, ils se retirèrent tous vers le nord-ouest pour s'installer sur un continent. Ils n'auraient plus de contacts fortuits avec les autres cultivateurs.
+Quant au Clan Xian Yi, après la sortie d'Yun Quezi de la tombe, ils se retirèrent tous vers le nord-ouest pour s'installer sur un continent. Ils n'auraient plus de contacts fortuits avec les autres cultivateurs.
 
 De nombreux cultivateurs étaient tombés durant la guerre sur la planète Suzaku, laissant les sectes de tous les royaumes extrêmement affaiblies; ces dernières commencèrent donc à recruter massivement des disciples.
 
@@ -132,9 +132,9 @@ Beaucoup de personnes n'ayant pas un talent exceptionnel furent acceptées par l
 
 D'autres, pourtant très douées, furent découvertes par certaines sectes. Traitées comme de véritables trésors, elles recevaient l'enseignement personnel de maîtres dévoués afin de devenir les piliers de leur secte.
 
-Sur la planète Suzaku, il ne restait qu'un seul cultivateur au stade initial de l'Ascendant. C'était l'ancêtre de la Secte de la Terre Brisée, qui passait ses journées en culture isolée, indifférent aux affaires du monde. Bien qu'il fût mécontent de la nomination de Zhou Wutai par le Messager de l'Alliance de la Culture, il ne put que l'accepter.
+Sur la planète Suzaku, il ne restait qu'un seul cultivateur au stade initial de l'Ascendant. C'était l'ancêtre de la Secte Di Po, qui passait ses journées en culture isolée, indifférent aux affaires du monde. Bien qu'il fût mécontent de la nomination de Zhou Wutai par le Messager de l'Alliance Xiu Zhen, il ne put que l'accepter.
 
-Un an plus tard, Zhou Wutai sortit du Tombeau de Suzaku. Bien que sa culture ne fût qu'au sommet du stade avancé de la Formation de l'Âme, grâce au Sceau de Suzaku, il pouvait désormais menacer des cultivateurs de la Transformation de l'Âme.
+Un an plus tard, Zhou Wutai sortit du Tombeau Zhu Que. Bien que sa culture ne fût qu'au sommet du stade avancé de la Formation de l'Âme, grâce au Sceau de Suzaku, il pouvait désormais menacer des cultivateurs de la Transformation de l'Âme.
 
 Il devint ainsi le cultivateur ayant le niveau le plus bas à obtenir un titre officiel.
 

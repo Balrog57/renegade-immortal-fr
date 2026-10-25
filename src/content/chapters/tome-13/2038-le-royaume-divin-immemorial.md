@@ -54,7 +54,7 @@ L'Ancien Maître Impérial Dao cracha trois bouffées de sang et attira encore p
 
 Celles-ci formèrent trois vortex géants qui s'alignèrent avec le premier. Une image différente apparut dans chaque vortex.
 
-Sur le Continent des Vagues Ondulantes, où l'océan était d'ordinaire calme, de nombreuses petites îles abritant des cultivateurs furent soudainement submergées par un grondement sourd. Les cultivateurs s'envolèrent, stupéfaits, alors que le niveau de la mer baissait pour laisser jaillir un pilier gigantesque vers le ciel.
+Sur le Continent Yun Tao, où l'océan était d'ordinaire calme, de nombreuses petites îles abritant des cultivateurs furent soudainement submergées par un grondement sourd. Les cultivateurs s'envolèrent, stupéfaits, alors que le niveau de la mer baissait pour laisser jaillir un pilier gigantesque vers le ciel.
 
 Les deux autres lieux étaient des océans du clan céleste, d'où jaillirent également d'immenses piliers. Le dernier lieu ne pouvait même être qualifié d'océan: c'était la terre gelée où se trouvait le Grand Empyréen Wu Feng. La glace éclata soudainement, révélant l'océan gelé en dessous, tandis qu'un pilier colossal perçait la banquise pour s'élancer vers les cieux.
 

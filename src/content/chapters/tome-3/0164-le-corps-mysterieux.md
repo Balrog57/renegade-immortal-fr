@@ -6,21 +6,21 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 164 - The Mysterious Corpse
 slug: le-corps-mystérieux
 ---
-Parmi les quatre grandes sectes, le Sanctuaire du Dieu de la Guerre, la Secte Luo He et la Secte du Démon Maléfique étaient seules à rester sur le pic principal. Quant à la Secte des Cadavres, après un bref séjour initial, elle avait quitté la montagne dès que le pays de culture de rang 4 eut éliminé les bêtes de feu, pour regagner l'intérieur de Huo Fen.
+Parmi les quatre grandes sectes, le Sanctuaire du Dieu de la Guerre, la Secte Luo He et la Secte Xie Mo étaient seules à rester sur le pic principal. Quant à la Secte Shi Yin, après un bref séjour initial, elle avait quitté la montagne dès que le pays de culture de rang 4 eut éliminé les bêtes de feu, pour regagner l'intérieur de Huo Fen.
 
 Ce mouvement déconcerta de nombreuses personnes. Bien que les bêtes de feu aient été nettoyées, l'énergie spirituelle y était devenue trop violente pour la culture. En conséquence, le pays entier était devenu une zone morte pour les cultivateurs.
 
-La Secte des Cadavres n'offrit aucune explication et disparut simplement une nuit.
+La Secte Shi Yin n'offrit aucune explication et disparut simplement une nuit.
 
-Aux yeux des trois autres sectes, la Secte des Cadavres était extrêmement mystérieuse. Bien qu'elle ne compte pas de nombreux cultivateurs de l'Âme Naissante, chaque fois que ces derniers se rassemblaient, ils pouvaient ressentir une puissance terrifiante émanant des membres de l'Âme Naissante de la Secte des Cadavres.
+Aux yeux des trois autres sectes, la Secte Shi Yin était extrêmement mystérieuse. Bien qu'elle ne compte pas de nombreux cultivateurs de l'Âme Naissante, chaque fois que ces derniers se rassemblaient, ils pouvaient ressentir une puissance terrifiante émanant des membres de l'Âme Naissante de la Secte Shi Yin.
 
 Compte tenu de cela, les trois grandes sectes gardèrent le silence et n'essayèrent pas de les arrêter.
 
 À l'extrême ouest de Huo Fen, sous une chaîne ininterrompue de volcans, se trouvait une immense grotte karstique dont les salles, reliées les unes aux autres, formaient un immense monde souterrain.
 
-Comparée à la Secte des Cadavres de Zhao, la structure était assez similaire, bien qu'un peu plus vaste.
+Comparée à la Secte Shi Yin de Zhao, la structure était assez similaire, bien qu'un peu plus vaste.
 
-L'actuel chef de la Secte des Cadavres, Zhao Chuanliang, était agenouillé sur un genou dans une chambre de pierre, devant un cristal irrégulier qui flottait dans les airs, formé d'innombrables corps lumineux en losange entrecroisés.
+L'actuel chef de la Secte Shi Yin, Zhao Chuanliang, était agenouillé sur un genou dans une chambre de pierre, devant un cristal irrégulier qui flottait dans les airs, formé d'innombrables corps lumineux en losange entrecroisés.
 
 Zhao Chuanliang se montrait très respectueux. Des lueurs de peur apparaissaient par intermittence sur son visage avant de s'effacer. Il murmura: « Shang Zong, je vous en prie, accordez-moi juste quelques jours de plus et je promets de découvrir ce qui est arrivé à l'âme numéro 4876. »
 
@@ -38,17 +38,17 @@ Une voix glaciale résonna à l'intérieur du corps de Zhao Chuanliang. « Annul
 
 Zhao Chuanliang soupira et demanda: « Ye Zizai, que dois-je faire? »
 
-« Que faire? Je l'ignore aussi, mais en tant qu'ancien chef de la Secte des Cadavres de Zhao, j'ai déjà rencontré une situation similaire. Le cas de mon disciple junior était proche, bien que légèrement différent. La lampe spirituelle de l'âme numéro 4876 ne s'est pas encore éteinte, ce qui signifie qu'il est toujours en vie. Si tu peux le trouver, ce sera pour le mieux; mais si tu échoues, tu seras en danger. »
+« Que faire? Je l'ignore aussi, mais en tant qu'ancien chef de la Secte Shi Yin de Zhao, j'ai déjà rencontré une situation similaire. Le cas de mon disciple junior était proche, bien que légèrement différent. La lampe spirituelle de l'âme numéro 4876 ne s'est pas encore éteinte, ce qui signifie qu'il est toujours en vie. Si tu peux le trouver, ce sera pour le mieux; mais si tu échoues, tu seras en danger. »
 
 « Cependant, je suis très curieux. Shang Zong a dit qu'il t'accordait dix jours parce que c'est "ce" corps. Quel est ton lien avec l'ancien propriétaire de ce corps? »
 
-Zhao Chuanliang répondit calmement: « C'était mon frère cadet. Nous sommes tous deux entrés dans la Secte des Cadavres il y a 400 ans. Son talent était exceptionnel, c'est pourquoi Shang Zong l'a choisi comme corps. »
+Zhao Chuanliang répondit calmement: « C'était mon frère cadet. Nous sommes tous deux entrés dans la Secte Shi Yin il y a 400 ans. Son talent était exceptionnel, c'est pourquoi Shang Zong l'a choisi comme corps. »
 
 Ye Zizai ricana, sa voix empreinte de mécontentement. « Si ce n'était pas parce que le corps parfait que j'avais préparé pour moi-même a été trouvé et emporté par le pays de culture de rang 5, j'aurais déjà récupéré ma culture et terminé ma possession. »
 
 Zhao Chuanliang prit une profonde inspiration et plaça un morceau de jade sur son front. Après quelques instants, il lança le jade.
 
-« Tous les cultivateurs du stade de la Formation du Noyau et au-delà, suivez-moi pour un voyage vers l'Union de Huo Fen! » À cet ordre, tous les disciples de la Secte des Cadavres ouvrirent les yeux, une lueur spectrale brillant dans leur regard.
+« Tous les cultivateurs du stade de la Formation du Noyau et au-delà, suivez-moi pour un voyage vers l'Union de Huo Fen! » À cet ordre, tous les disciples de la Secte Shi Yin ouvrirent les yeux, une lueur spectrale brillant dans leur regard.
 
 Quant à Wang Lin, bien que le Chemin Divin fût extraordinaire, il ne convenait pas à sa culture. Après avoir réfléchi un instant, il laissa échapper un soupir et commença à partir. Ce qui surprit Wang Lin, c'est que le Chemin Divin restait gravé dans son esprit au lieu de disparaître comme d'ordinaire.
 
@@ -160,21 +160,21 @@ Wang Lin posa un pied sur la calebasse et disparut à l'horizon avec le vieil ho
 
 Durant le trajet, aucun mot ne fut échangé. Wang Lin sentait le sac de stockage contre lui, mais il ne chercha pas à vérifier son contenu ni à utiliser son Sens Divin pour l'explorer. Le vieil homme étant juste devant lui, tout mouvement suspect provoquerait des ennuis.
 
-Peu de temps après, la calebasse franchit la frontière de Xuan Wu pour entrer dans Huo Fen. Un jour plus tard, ils atteignirent la bordure de la Mer des Démons, une zone totalement enveloppée par d'épais voiles de brouillard où l'on apercevait parfois des bêtes spirituelles surgir et disparaître.
+Peu de temps après, la calebasse franchit la frontière de Xuan Wu pour entrer dans Huo Fen. Un jour plus tard, ils atteignirent la bordure de la Mer Xiu Mo, une zone totalement enveloppée par d'épais voiles de brouillard où l'on apercevait parfois des bêtes spirituelles surgir et disparaître.
 
-Arrivé à l'extérieur de la Mer des Démons, le vieil homme frappa la calebasse pour la faire rétrécir jusqu'à ce qu'elle tienne dans sa main. Wang Lin sauta au sol. Le vieil homme rangea l'objet et déclara d'un visage impassible: « Nous allons attendre ici quelques jours une autre personne. Une fois qu'elle sera là, nous entrerons tous les trois ensemble. »
+Arrivé à l'extérieur de la Mer Xiu Mo, le vieil homme frappa la calebasse pour la faire rétrécir jusqu'à ce qu'elle tienne dans sa main. Wang Lin sauta au sol. Le vieil homme rangea l'objet et déclara d'un visage impassible: « Nous allons attendre ici quelques jours une autre personne. Une fois qu'elle sera là, nous entrerons tous les trois ensemble. »
 
 Sur ces mots, il s'assit en position de lotus et ferma les yeux.
 
-Wang Lin fixa la Mer des Démons. Le brouillard qui roulait devant lui dégageait des vagues d'énergie glaciale. Après avoir réfléchi un instant, il s'assit pour cultiver.
+Wang Lin fixa la Mer Xiu Mo. Le brouillard qui roulait devant lui dégageait des vagues d'énergie glaciale. Après avoir réfléchi un instant, il s'assit pour cultiver.
 
-Peu de temps après, Wang Lin ouvrit brusquement les yeux. Une scène mystérieuse se produisait au-dessus de la Mer des Démons. Huit rayons de lumière violette apparurent soudainement dans le vide, se transformant peu à peu chacun en un immense pilier de bois violet. Ces huit piliers s'entrecroisèrent pour former une formation circulaire. Les fluctuations d'énergie spirituelle étaient si puissantes qu'elles repoussèrent le brouillard environnant, révélant un tourbillon en dessous.
+Peu de temps après, Wang Lin ouvrit brusquement les yeux. Une scène mystérieuse se produisait au-dessus de la Mer Xiu Mo. Huit rayons de lumière violette apparurent soudainement dans le vide, se transformant peu à peu chacun en un immense pilier de bois violet. Ces huit piliers s'entrecroisèrent pour former une formation circulaire. Les fluctuations d'énergie spirituelle étaient si puissantes qu'elles repoussèrent le brouillard environnant, révélant un tourbillon en dessous.
 
 Des symboles et des motifs archaïques étaient gravés les uns après les autres sur les huit piliers, qui avaient un aspect solennel. Entre eux, plusieurs lignes de lumière fluorescente se croisaient et formaient des anneaux de lumière emboîtés les uns dans les autres; en comptant avec soin, on dénombrait au total 49 anneaux.
 
-Le vieil homme ouvrit les yeux, laissa échapper un reniflement et dit à voix basse: « C'est une formation de téléportation propre à la Secte des Cadavres. Je me demande quelle mouche a piqué ces gens, ni vraiment humains ni vraiment fantômes, pour oser venir ici. »
+Le vieil homme ouvrit les yeux, laissa échapper un reniflement et dit à voix basse: « C'est une formation de téléportation propre à la Secte Shi Yin. Je me demande quelle mouche a piqué ces gens, ni vraiment humains ni vraiment fantômes, pour oser venir ici. »
 
-Wang Lin connaissait bien la Secte des Cadavres; cette formation lui semblait familière. C'était la même qu'il avait vue à Zhao, mais bien plus imposante.
+Wang Lin connaissait bien la Secte Shi Yin; cette formation lui semblait familière. C'était la même qu'il avait vue à Zhao, mais bien plus imposante.
 
 À cet instant, les anneaux de lumière s'illuminèrent un à un jusqu'à ce que les 49 brillent intensément. Plus de trente silhouettes sombres apparurent. Bien que leurs traits fussent différents, leur expression était identique: leurs yeux brillaient d'une lueur spectrale et leur énergie spirituelle était légèrement instable. Le moins fort d'entre eux était au moins au stade avancé de la Formation du Noyau, et cinq d'entre eux avaient atteint le stade de l'Âme Naissante.
 

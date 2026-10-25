@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1652 - Strong!"
 slug: puissant
 ---
-Wang Lin se trouvait dans la Mer des Nuages!
+Wang Lin se trouvait dans la Mer Yun!
 
 Il ne s'était pas rendu directement à Luotian. Il ne pouvait pas renverser cette guerre par sa seule force. Même en utilisant l'Arc Li Guang, il ne pourrait que modifier temporairement le cours de la bataille.
 
@@ -94,7 +94,7 @@ En un instant, la tête de la femme fut arrachée à la planète pour atterrir d
 
 Ce n'est que bien après son départ que la planète se fendit complètement et vola en éclats.
 
-Le cauchemar des cultivateurs du Royaume Extérieur dans la Mer des Nuages touchait à sa fin. Wang Lin surgissait partout où son Sens Divin avait balayé, et aucun cultivateur du Royaume Extérieur ne pouvait échapper à la mort!
+Le cauchemar des cultivateurs du Royaume Extérieur dans la Mer Yun touchait à sa fin. Wang Lin surgissait partout où son Sens Divin avait balayé, et aucun cultivateur du Royaume Extérieur ne pouvait échapper à la mort!
 
 Rien ne pouvait empêcher Wang Lin de laisser derrière lui une traînée de sang alors qu'il progressait, emportant les têtes contenant des âmes originelles scellées. Bientôt, le nombre de têtes derrière lui atteignit 50 000!
 
@@ -104,7 +104,7 @@ Un continent flottait en ces lieux et avançait rapidement. Des milliers de cult
 
 « Vouloir fuir? Trop tard! » Wang Lin agita la main droite et la roue de la vie et de la mort qui trônait sous lui s'élança. Elle déchira le vide et fonça vers le dernier continent dans la brume.
 
-« Je vous prendrai tous en sacrifice pour ma Formation de la Vie et de la Mort! Que le massacre dans la Mer des Nuages prenne fin! »
+« Je vous prendrai tous en sacrifice pour ma Formation de la Vie et de la Mort! Que le massacre dans la Mer Yun prenne fin! »
 
 Instantanément, le brouillard au-dessus du continent se souleva et la roue de la vie et de la mort apparut soudainement!
 

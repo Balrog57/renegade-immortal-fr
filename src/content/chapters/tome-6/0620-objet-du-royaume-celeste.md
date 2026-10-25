@@ -45,7 +45,7 @@ L'expression de Wang Lin resta neutre alors qu'il souriait: « Entrez donc, nous
 
 Sun Yunshan hésita un instant avant de s'élancer pour suivre rapidement Wang Lin. Non seulement son choc n'était pas moindre que celui des autres cultivateurs, mais il était bien plus intense!
 
-Il se souvenait qu'avant d'entrer dans la Terre des Esprits Démoniaques, la culture de Wang Lin n'était qu'au stade intermédiaire de la Transformation de l'Âme. Pourtant, en quelques décennies à peine, Wang Lin avait déjà atteint le stade Ascendant. Outre la stupéfaction, cela avait fait grimper indéfiniment le statut de Wang Lin dans son esprit.
+Il se souvenait qu'avant d'entrer dans la Terre Yao Ling, la culture de Wang Lin n'était qu'au stade intermédiaire de la Transformation de l'Âme. Pourtant, en quelques décennies à peine, Wang Lin avait déjà atteint le stade Ascendant. Outre la stupéfaction, cela avait fait grimper indéfiniment le statut de Wang Lin dans son esprit.
 
 Seule une douzaine de cultivateurs restait suspendue dans les airs. Aucun n'osait partir ni attaquer; ils ne pouvaient que flotter là, le cœur rempli d'incertitude, chaque respiration leur semblant durer une éternité.
 
@@ -61,15 +61,15 @@ L'expression de Wang Lin resta imperturbable alors qu'il répétait lentement: �
 
 Sun Yunshan prit une autre grande gorgée de vin, les yeux légèrement injectés de sang, et poursuivit: « Il y a au sein de l'Union de Culture un homme qui se fait appeler l'Ancêtre du Royaume Céleste. Sa culture est extrêmement élevée, et c'est lui qui les nomme gardiens célestes. En plus de cet Ancêtre, il compte dix gardiens célestes au total. Leurs forces sont à peu près équivalentes.
 
-« La bataille que vous avez menée dans la Cité de l'Ancien Démon du Pays du Démon Céleste contre le Général Démon Mo Lihai a attiré l'attention de l'Ancêtre. Pour une raison inconnue, il a envoyé des gens pour vous capturer vivant. Je suppose que vous avez déjà rencontré ceux qui tentaient de vous saisir à la Cité des Démons Célestes.
+« La bataille que vous avez menée dans la Cité Gu Yao du Pays Tian Yao contre le Général Démon Mo Lihai a attiré l'attention de l'Ancêtre. Pour une raison inconnue, il a envoyé des gens pour vous capturer vivant. Je suppose que vous avez déjà rencontré ceux qui tentaient de vous saisir à la Cité Tian Yao.
 
-« Vous aviez ensuite disparu du Pays du Démon Céleste et l'affaire semblait classée. Cependant, il y a quelques mois, quelqu'un a, on ne sait comment, découvert votre présence ici et en a informé l'Ancêtre. Celui-ci nous a donc envoyés pour vous capturer de nouveau! »
+« Vous aviez ensuite disparu du Pays Tian Yao et l'affaire semblait classée. Cependant, il y a quelques mois, quelqu'un a, on ne sait comment, découvert votre présence ici et en a informé l'Ancêtre. Celui-ci nous a donc envoyés pour vous capturer de nouveau! »
 
-Les yeux de Wang Lin se plissèrent. Il se souvint qu'à la Cité des Démons Célestes, un groupe était apparu alors qu'il écoutait la musique de la cithare. Le chef de ce groupe avait explosé au moment même où il allait être capturé. Wang Lin garda ce souvenir de folie en mémoire.
+Les yeux de Wang Lin se plissèrent. Il se souvint qu'à la Cité Tian Yao, un groupe était apparu alors qu'il écoutait la musique de la cithare. Le chef de ce groupe avait explosé au moment même où il allait être capturé. Wang Lin garda ce souvenir de folie en mémoire.
 
 À l'époque, il avait pensé que ces gens avaient été envoyés par un autre général démon. Mais après avoir écouté Sun Yunshan aujourd'hui, il semblait qu'une autre puissance se cachait derrière tout cela.
 
-Sun Yunshan serra les poings et continua: « Frère Wang, vous ignorez qu'à l'époque... ma sœur a utilisé une méthode inconnue pour venir elle aussi dans cette Terre des Esprits Démoniaques. Elle a été ensorcelée par l'Ancêtre et est devenue membre de l'Union de Culture. Après m'avoir rencontré, elle m'a trompé pour que je rejoigne cette organisation. Quand j'ai compris que quelque chose n'allait pas, j'ai voulu m'enfuir. Mais l'Ancêtre est apparu et, d'un seul sort, il a capturé les quatre oncles martiaux qui m'accompagnaient... Depuis ce jour, leurs souvenirs ont été effacés et ils sont devenus des marionnettes. Même moi, une graine céleste a été plantée dans mon corps; ma vie n'est plus entre mes mains. »
+Sun Yunshan serra les poings et continua: « Frère Wang, vous ignorez qu'à l'époque... ma sœur a utilisé une méthode inconnue pour venir elle aussi dans cette Terre Yao Ling. Elle a été ensorcelée par l'Ancêtre et est devenue membre de l'Union de Culture. Après m'avoir rencontré, elle m'a trompé pour que je rejoigne cette organisation. Quand j'ai compris que quelque chose n'allait pas, j'ai voulu m'enfuir. Mais l'Ancêtre est apparu et, d'un seul sort, il a capturé les quatre oncles martiaux qui m'accompagnaient... Depuis ce jour, leurs souvenirs ont été effacés et ils sont devenus des marionnettes. Même moi, une graine céleste a été plantée dans mon corps; ma vie n'est plus entre mes mains. »
 
 Les yeux de Wang Lin projetèrent une lueur éclatante qui scruta le corps de Sun Yunshan. Ce regard fit trembler l'âme originelle de Sun Yunshan, comme si elle était sur le point de s'effondrer. Il eut la sensation que tout ce qu'il était, tous ses secrets, étaient mis à nu devant Wang Lin.
 

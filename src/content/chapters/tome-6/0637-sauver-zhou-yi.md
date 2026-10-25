@@ -94,28 +94,28 @@ Wang Lin sentait toujours que sa puissance était insuffisante, et ses yeux devi
 
 Quant à l'énergie d'épée de Ling Tianhou, Wang Lin n'était pas assez stupide pour l'utiliser contre le Sens Divin de ce dernier. Il craignait qu'elle ne change de camp dès son apparition!
 
-À cet instant, l'Abîme des Marées tout entier sembla trembler. La terre et la roche de la paroi de la falaise parurent capturées par une force mystérieuse, commençant à flotter hors de la paroi.
+À cet instant, l'Abîme Chao Xi tout entier sembla trembler. La terre et la roche de la paroi de la falaise parurent capturées par une force mystérieuse, commençant à flotter hors de la paroi.
 
 Tous les sorts entrèrent soudainement en collision avec le Sens Divin de Ling Tianhou. Au même moment, la Bête de Tonnerre poussa un rugissement fracassant et se transforma en un rayon de foudre. Elle chargea directement le Sens Divin de Ling Tianhou, portée par les sortilèges de Wang Lin.
 
-Une série de sons étouffés émana de l'entrée de l'Abîme des Marées, dans le Pays du Démon de l'Eau. Le sol tremblait sans cesse, comme traversé par de puissantes ondes sonores.
+Une série de sons étouffés émana de l'entrée de l'Abîme Chao Xi, dans le Pays Shui Yao. Le sol tremblait sans cesse, comme traversé par de puissantes ondes sonores.
 
-À cet instant, même Murong Zhuo, qui se trouvait plus profondément dans l'Abîme des Marées, ressentit les fluctuations terrifiantes au-dessus de lui. Quant aux deux femmes à ses côtés, elles levèrent rapidement les yeux, le regard empreint de terreur.
+À cet instant, même Murong Zhuo, qui se trouvait plus profondément dans l'Abîme Chao Xi, ressentit les fluctuations terrifiantes au-dessus de lui. Quant aux deux femmes à ses côtés, elles levèrent rapidement les yeux, le regard empreint de terreur.
 
 « C'est tout simplement terrifiant. Est-ce que... cela pourrait être causé par Wang Lin? » Xu Fei prit une profonde inspiration; la pointe de colère qu'elle avait ressentie lorsque Wang Lin détruisit son Sens Divin s'était évanouie. Elle prit une décision: elle n'oserait pas provoquer un tel homme.
 
-La puissante ondulation continua de se propager le long des parois de l'Abîme des Marées jusqu'au fond. Le fond de l'abîme était parsemé de couloirs. Dès que les sons pénétrèrent dans cette zone, ils s'y répercutèrent sans fin.
+La puissante ondulation continua de se propager le long des parois de l'Abîme Chao Xi jusqu'au fond. Le fond de l'abîme était parsemé de couloirs. Dès que les sons pénétrèrent dans cette zone, ils s'y répercutèrent sans fin.
 
-Les couloirs au fond de l'Abîme des Marées formaient un cercle en forme de « 回 » avec un trou noir au centre, menant vers l'inconnu.
+Les couloirs au fond de l'Abîme Chao Xi formaient un cercle en forme de « 回 » avec un trou noir au centre, menant vers l'inconnu.
 
 Une épée massive était à moitié enfoncée dans le sol d'un couloir. Au moment où l'onde sonore atteignit l'épée, celle-ci se desserra légèrement.
 
-L'onde se propagea loin en résonnant dans le corridor. À cet instant, à la sortie du Pays du Démon de Feu, là où Tan Lang et les disciples de la Secte de l'Épée Da Luo étaient piégés par les bêtes moustiques et le brouillard noir, Tan Lang ouvrit soudainement les yeux, le regard brillant.
+L'onde se propagea loin en résonnant dans le corridor. À cet instant, à la sortie du Pays Huo Yao, là où Tan Lang et les disciples de la Secte Da Luo Jian étaient piégés par les bêtes moustiques et le brouillard noir, Tan Lang ouvrit soudainement les yeux, le regard brillant.
 
 « L'aura de Ling Tianhou! Serait-il arrivé plus tôt... Non, bien que cette aura appartienne à Ling Tianhou, ce n'en est qu'une partie... En plus de la sienne, il y a une autre aura... Cette seconde aura m'est inconnue, mais pour apparaître à un moment pareil, serait-ce à cause du jeton... »
 
-Tan Lang sembla nonchalant alors qu'il balaya les disciples de la Secte de l'Épée Da Luo du regard avant de refermer les yeux.
+Tan Lang sembla nonchalant alors qu'il balaya les disciples de la Secte Da Luo Jian du regard avant de refermer les yeux.
 
 Lorsque les ondulations arrivèrent ici, elles étaient déjà très faibles. Hormis Tan Lang, personne d'autre ne s'en aperçut.
 
-Dans la Secte de l'Épée Da Luo, Ling Tianhou, vêtu d'une robe de daoïste et en pleine méditation, ouvrit soudainement les yeux...
+Dans la Secte Da Luo Jian, Ling Tianhou, vêtu d'une robe de daoïste et en pleine méditation, ouvrit soudainement les yeux...

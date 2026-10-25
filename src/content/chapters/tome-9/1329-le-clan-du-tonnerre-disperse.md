@@ -1,6 +1,6 @@
 ---
 n: 1329
-title: Le Clan du Tonnerre Dispersé
+title: Le Clan Shan Lei
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1329 - Scatter Thunder Clan
@@ -22,21 +22,21 @@ Une puissante culture circula au sein de son corps et l'énergie originelle conv
 
 C'était Wang Lin!
 
-Pour être plus précis, c'était une portion de l'âme originelle de Wang Lin qui possédait ce corps. Son corps original était toujours en train de fusionner avec l'infini lac de tonnerre! Wang Lin n'était pas assez arrogant pour penser qu'il pourrait affronter seul tout le Clan du Tonnerre Dispersé. Ce clan était l'une des puissantes familles du Système Stellaire Antique, ils possédaient donc nécessairement de nombreux cultivateurs redoutables.
+Pour être plus précis, c'était une portion de l'âme originelle de Wang Lin qui possédait ce corps. Son corps original était toujours en train de fusionner avec l'infini lac de tonnerre! Wang Lin n'était pas assez arrogant pour penser qu'il pourrait affronter seul tout le Clan Shan Lei. Ce clan était l'une des puissantes familles du Système Stellaire Antique, ils possédaient donc nécessairement de nombreux cultivateurs redoutables.
 
 Si Wang Lin se précipitait directement pour absorber le tonnerre éternel, la seule chose qui l'attendrait serait la mort!
 
-Par conséquent, Wang Lin avait déjà élaboré un plan. Il allait posséder le corps d'un membre du Clan du Tonnerre Dispersé afin d'absorber le tonnerre éternel! En se faisant passer pour un membre du clan, il n'aurait aucun problème, car il était quelqu'un qui maîtrisait le tonnerre!
+Par conséquent, Wang Lin avait déjà élaboré un plan. Il allait posséder le corps d'un membre du Clan Shan Lei afin d'absorber le tonnerre éternel! En se faisant passer pour un membre du clan, il n'aurait aucun problème, car il était quelqu'un qui maîtrisait le tonnerre!
 
 Plus précisément, il avait possédé le corps de quelqu'un qui n'était pas encore mort, ce qui rendait son plan infaillible! Wang Lin avait même indirectement sauvé la vie de cette personne. Une fois que Wang Lin aurait absorbé le tonnerre éternel et serait parti, cet individu reprendrait le contrôle de son corps. Selon la durée de la possession, cette personne recevrait une immense fortune.
 
 Avec le niveau de culture de Wang Lin, il n'avait pas à se soucier de la période d'adaptation initiale après la possession, et il n'avait nullement l'intention de s'approprier définitivement ce corps.
 
-Après avoir exploré les souvenirs de ce corps, Wang Lin apprit que cet homme s'appelait Yu Fei. C'était un membre très ordinaire du Clan du Tonnerre Dispersé. Ses parents étaient morts tôt et il s'était retrouvé seul. Après bien des épreuves, il avait atteint le stade de la Formation du Noyau et avait hérité d'une grotte laissée par ses parents.
+Après avoir exploré les souvenirs de ce corps, Wang Lin apprit que cet homme s'appelait Yu Fei. C'était un membre très ordinaire du Clan Shan Lei. Ses parents étaient morts tôt et il s'était retrouvé seul. Après bien des épreuves, il avait atteint le stade de la Formation du Noyau et avait hérité d'une grotte laissée par ses parents.
 
 Cette grotte, située près d'une veine spirituelle, était considérée comme excellente. Cependant, avec son niveau de culture, il n'avait aucun moyen de la conserver longtemps. Trois jours après l'avoir héritée, elle lui fut volée et il fut expulsé.
 
-Au cours des 200 années qui suivirent cet incident, sa culture resta stagnante. S'il n'avait pas bénéficié de la physiologie du Clan du Tonnerre Dispersé, qui lui accordait une longévité accrue, il serait mort depuis longtemps. Pourtant, ces deux siècles furent pour lui un calvaire. Maltraité par son propre clan, sa vie était pire que la mort!
+Au cours des 200 années qui suivirent cet incident, sa culture resta stagnante. S'il n'avait pas bénéficié de la physiologie du Clan Shan Lei, qui lui accordait une longévité accrue, il serait mort depuis longtemps. Pourtant, ces deux siècles furent pour lui un calvaire. Maltraité par son propre clan, sa vie était pire que la mort!
 
 Il était récemment tombé sous la domination d'un cultivateur de l'Âme Naissante, et ce cultivateur était précisément celui qui lui avait volé sa grotte des années auparavant. À l'intérieur de cette grotte se trouvait un Arbre aux Fruits de Tonnerre, laissé par les parents de Yu Fei.
 
@@ -48,7 +48,7 @@ Yu Fei, sachant que sa culture stagnait et que sa vie touchait à sa fin, avait 
 
 Si la règle interdisant aux membres d'un même clan de s'entretuer n'avait existé, il serait déjà mort. Cependant, il fut profondément humilié; en plus de ses blessures graves, sa culture fut aspirée. Il fut ensuite expulsé par le cultivateur de l'Âme Naissante.
 
-Yu Fei n'avait que peu de souvenirs, et la plupart étaient extrêmement sombres. Il nourrissait une haine monstrueuse: il se détestait lui-même, détestait le Clan du Tonnerre Dispersé, détestait tous ses membres, et sa personnalité en était devenue tordue.
+Yu Fei n'avait que peu de souvenirs, et la plupart étaient extrêmement sombres. Il nourrissait une haine monstrueuse: il se détestait lui-même, détestait le Clan Shan Lei, détestait tous ses membres, et sa personnalité en était devenue tordue.
 
 Le sens divin de Wang Lin quitta la mémoire de Yu Fei et ses yeux s'illuminèrent.
 
@@ -56,13 +56,13 @@ Le sens divin de Wang Lin quitta la mémoire de Yu Fei et ses yeux s'illuminère
 
 Le Système Stellaire Antique était totalement différent du Royaume Intérieur. Ils ne cultivaient pas de domaines; au lieu de cela, la culture d'un individu se concentrait dans la marque située entre ses sourcils. Cette marque était un héritage. Plus elle devenait puissante, plus le niveau de culture augmentait!
 
-Wang Lin toucha la marque du tonnerre entre ses sourcils. Cette marque avait été créée par lui-même. Bien qu'elle ressemble à celle du Clan du Tonnerre Dispersé, sa nature était bien différente!
+Wang Lin toucha la marque du tonnerre entre ses sourcils. Cette marque avait été créée par lui-même. Bien qu'elle ressemble à celle du Clan Shan Lei, sa nature était bien différente!
 
-La marque du Clan du Tonnerre Dispersé provenait du tonnerre éternel. Si le tonnerre éternel était une créature, alors toutes les marques n'étaient que des extensions de celle-ci.
+La marque du Clan Shan Lei provenait du tonnerre éternel. Si le tonnerre éternel était une créature, alors toutes les marques n'étaient que des extensions de celle-ci.
 
 Cependant, la marque de Wang Lin avait été forgée par sa propre volonté et possédait un statut bien supérieur à celle du clan; elle se situait au même niveau que le tonnerre éternel lui-même.
 
-« Je dois étudier le Fruit de Tonnerre... Quant au Clan du Tonnerre Dispersé, le niveau de Yu Fei est trop bas pour qu'il en sache beaucoup. Peut-être que ce cultivateur de l'Âme Naissante en saura davantage. » Wang Lin réfléchit tout en se dirigeant vers l'emplacement de la grotte mémorisée.
+« Je dois étudier le Fruit de Tonnerre... Quant au Clan Shan Lei, le niveau de Yu Fei est trop bas pour qu'il en sache beaucoup. Peut-être que ce cultivateur de l'Âme Naissante en saura davantage. » Wang Lin réfléchit tout en se dirigeant vers l'emplacement de la grotte mémorisée.
 
 Cette planète de culture était immense. Wang Lin ne se téléporta pas, mais survola le sol. Son sens divin se déploya discrètement pour observer les environs.
 

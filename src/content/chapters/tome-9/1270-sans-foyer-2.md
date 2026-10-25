@@ -80,13 +80,13 @@ Le maître de Li Qianmei se retourna brusquement et hurla vers l'ancien braillar
 
 Sa voix résonna comme le tonnerre à travers toute la Secte Brise-Ciel. Cependant, ses paroles ne purent ébranler le cœur des cultivateurs de la secte qui avaient été asservis par la Secte Divine pendant des dizaines de milliers d'années!
 
-Tout comme le brouillard dans la Mer des Nuages, combien de personnes pouvaient réellement percer les brumes?
+Tout comme le brouillard dans la Mer Yun, combien de personnes pouvaient réellement percer les brumes?
 
 Tout ce que Li Qianmei avait accompli, qu'il s'agisse de quitter le champ de bataille de la Secte Démon ou de rompre ses liens avec la Secte Brise-Ciel, étaient des choses dont Wang Lin ignorait tout. À cet instant, Li Qianmei était comme une femme sans foyer, volant vers la région de rang 5 dans un état second.
 
 Elle était déjà une femme solitaire, orpheline depuis l'enfance. À cause de ses cheveux bleus, elle n'avait pas connu d'enfance heureuse. C'était grâce à sa force et sa sérénité qu'elle en était arrivée là... Cependant, maintenant qu'elle avait perdu son foyer, c'était comme tomber dans l'abîme. La solitude de son enfance la submergea, la rendant plus morne et fragile. C'était comme si elle allait être emportée par le vent vers un lieu où personne ne pourrait la trouver... Là où elle attendrait silencieusement sa mort.
 
-À cet instant précis, au sein de la Secte de l'Origine dans la région de rang 5, deux courtes épées flottaient devant Wang Lin, l'une blanche et l'autre noire. Les deux rayons d'énergie des épées se croisaient, créant des milliers d'ombres. Ces ombres formèrent un vortex qui fit vibrer le monde.
+À cet instant précis, au sein de la Secte Gui Yuan dans la région de rang 5, deux courtes épées flottaient devant Wang Lin, l'une blanche et l'autre noire. Les deux rayons d'énergie des épées se croisaient, créant des milliers d'ombres. Ces ombres formèrent un vortex qui fit vibrer le monde.
 
 Alors qu'il continuait à les affiner et à briser leurs sceaux, les deux mystérieuses courtes épées qu'il avait obtenues du Royaume aux Sept Couleurs commençaient lentement à révéler leur véritable puissance!
 

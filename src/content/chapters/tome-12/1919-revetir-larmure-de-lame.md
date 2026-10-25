@@ -10,11 +10,11 @@ Au cœur de la tempête, des grondements tonitruants résonnèrent devant Wang L
 
 Le deuxième fut une empreinte verdoyante, couverte de végétation. Le troisième transforma la terre en métal, telle une empreinte métallique.
 
-Durant ces trois pas, Wang Lin leva la tête et fixa l'ancêtre de la Secte du Dao Démoniaque.
+Durant ces trois pas, Wang Lin leva la tête et fixa l'ancêtre de la Secte Dao Mo.
 
-La tempête se dissipa progressivement, permettant à l'ancêtre de la Secte du Dao Démoniaque de s'avancer pour regarder calmement Wang Lin.
+La tempête se dissipa progressivement, permettant à l'ancêtre de la Secte Dao Mo de s'avancer pour regarder calmement Wang Lin.
 
-« Ne pas mourir ni être blessé par mon coup de poing, et n'avoir eu besoin que de trois pas pour dissiper les trois sorts qui avaient pénétré ton corps... Tu possèdes le pouvoir de détruire la Secte du Dao Démoniaque! »
+« Ne pas mourir ni être blessé par mon coup de poing, et n'avoir eu besoin que de trois pas pour dissiper les trois sorts qui avaient pénétré ton corps... Tu possèdes le pouvoir de détruire la Secte Dao Mo! »
 
 Wang Lin regarda l'ancêtre avec une expression solennelle. Ce coup de poing contenait neuf sorts, mais il n'avait pu en bloquer que six. Ses trois pas successifs avaient servi à neutraliser les trois derniers.
 
@@ -24,9 +24,9 @@ Wang Lin regarda l'ancêtre avec une expression solennelle. Ce coup de poing con
 
 Il était en train d'apprendre!
 
-« Voici le deuxième coup! » L'ancêtre de la Secte du Dao Démoniaque fit un pas en avant. Ses cheveux roux flottaient sans qu'aucun vent ne les agite et ses yeux brillaient d'une lueur étrange. Tandis qu'il levait la main droite, son corps entier oscillait rapidement entre le réel et l'illusoire. C'était un spectacle d'une étrangeté absolue alors qu'il lançait son second assaut!
+« Voici le deuxième coup! » L'ancêtre de la Secte Dao Mo fit un pas en avant. Ses cheveux roux flottaient sans qu'aucun vent ne les agite et ses yeux brillaient d'une lueur étrange. Tandis qu'il levait la main droite, son corps entier oscillait rapidement entre le réel et l'illusoire. C'était un spectacle d'une étrangeté absolue alors qu'il lançait son second assaut!
 
-Dès que ce deuxième coup apparut, toute la Secte du Dao Démoniaque trembla. Comme si une force invisible s'était manifestée pour déchirer le ciel et la terre, l'espace autour de Wang Lin se mua en un vide absolu!
+Dès que ce deuxième coup apparut, toute la Secte Dao Mo trembla. Comme si une force invisible s'était manifestée pour déchirer le ciel et la terre, l'espace autour de Wang Lin se mua en un vide absolu!
 
 C'était un néant sans fin. Dans cette obscurité, Wang Lin ne distinguait plus ni le ciel ni la terre. Il semblait seul dans un autre monde, avec pour unique présence ce coup de poing!
 
@@ -44,11 +44,11 @@ Les cultivateurs Exaltés Dorés utilisaient encore des sorts pour combattre. En
 
 Un fracas tonitruant résonna dans le vide. Alors que le son devenait plus intense, le néant commença à se désagréger. En un instant, le vide fut déchiré par une onde de choc destructrice.
 
-Une fois le vide rétabli, le ciel était redevenu celui du Continent du Démon Vert et la terre celle des ruines de la Secte du Dao Démoniaque. Wang Lin se tenait là, à mille pieds de l'ancêtre de la Secte du Dao Démoniaque.
+Une fois le vide rétabli, le ciel était redevenu celui du Continent Lu Mo et la terre celle des ruines de la Secte Dao Mo. Wang Lin se tenait là, à mille pieds de l'ancêtre de la Secte Dao Mo.
 
 Du sang s'écoula du coin de sa bouche. Wang Lin sentit un impact puissant résonner dans tout son être, le repoussant de sept pas. Chaque pas était différent et, après le septième, un grondement sourd émana de son corps. Il abaissa son bras droit tremblant tandis que des gouttes de sang perlaient au sol.
 
-« Un second coup dévastateur... dix-huit sorts fusionnés en un seul assaut. Un unique coup suffit à isoler un espace du reste du monde. » Wang Lin leva les yeux et essuya le sang sur sa lèvre tout en fixant l'ancêtre de la Secte du Dao Démoniaque.
+« Un second coup dévastateur... dix-huit sorts fusionnés en un seul assaut. Un unique coup suffit à isoler un espace du reste du monde. » Wang Lin leva les yeux et essuya le sang sur sa lèvre tout en fixant l'ancêtre de la Secte Dao Mo.
 
 « Ton niveau de culture n'est pas élevé, mais ta puissance de combat atteint à peine celle d'un Exalté Empyréen. Pourtant, tu ignores comment les Exaltés Empyréens combattent. Je crois être le premier Exalté Empyréen auquel tu as fait face », déclara lentement l'ancêtre en avançant. Son regard envers Wang Lin devint plus sérieux.
 
@@ -56,7 +56,7 @@ Du sang s'écoula du coin de sa bouche. Wang Lin sentit un impact puissant réso
 
 Après dix pas, les yeux de l'ancêtre brillèrent d'un éclat pur, comme s'il était devenu l'esprit même du monde. Il fixa Wang Lin et leva sa main droite pour la troisième fois.
 
-L'ancêtre de la Secte du Dao Démoniaque dit d'une voix posée: « Si tu parviens à encaisser mon dernier coup, alors le crime de destruction de la Secte du Dao Démoniaque sera effacé! Ce poing contient toute ma puissance. S'il ne peut te tuer, alors personne ne le pourra. Tu dois avoir tes raisons pour avoir détruit notre secte, mais je ne les demanderai pas. Ce troisième coup mettra un terme à tout! »
+L'ancêtre de la Secte Dao Mo dit d'une voix posée: « Si tu parviens à encaisser mon dernier coup, alors le crime de destruction de la Secte Dao Mo sera effacé! Ce poing contient toute ma puissance. S'il ne peut te tuer, alors personne ne le pourra. Tu dois avoir tes raisons pour avoir détruit notre secte, mais je ne les demanderai pas. Ce troisième coup mettra un terme à tout! »
 
 « Ce coup contient 27 sorts. Combien pourras-tu en supporter? » lança l'ancêtre en levant sa main droite.
 
@@ -72,7 +72,7 @@ Ce changement soudain fit se contracter les pupilles de l'ancêtre pour la premi
 
 Il connaissait parfaitement les 72 âmes réprimées dans chacun des 72 continents. Bien que toutes fussent sous contrôle, le degré de répression et la puissance de chaque âme variaient d'un continent à l'autre.
 
-Certaines étaient déjà des âmes mortes; seule la moitié était encore vivante. L'âme du Scorpion Vert, par exemple, était autrefois extrêmement puissante, mais sa répression était lourde et dure depuis bien avant la formation du Continent du Taureau Céleste, ce qui l'avait considérablement affaiblie.
+Certaines étaient déjà des âmes mortes; seule la moitié était encore vivante. L'âme du Scorpion Vert, par exemple, était autrefois extrêmement puissante, mais sa répression était lourde et dure depuis bien avant la formation du Continent Tian Niu, ce qui l'avait considérablement affaiblie.
 
 L'âme du Taureau Céleste était différente. Parmi les 72 continents, le Taureau Céleste avait rejoint le groupe plus tardivement, son sceau était donc moins ancien. Il était également puissant, classé au 18e rang des 72 âmes.
 
@@ -84,7 +84,7 @@ Le rang d'Exalté Doré constituait la limite absolue. S'il s'agissait de l'âme
 
 Plus important encore, le nombre de cultivateurs capables d'atteindre le rang d'Exalté Doré via l'armure de l'âme était inférieur à celui des Exaltés Empyréens, se rapprochant de celui des Ascendants Empyréens. Car, au maximum, seuls deux individus par continent pouvaient recevoir une telle reconnaissance.
 
-Par conséquent, l'ancêtre de la Secte du Dao Démoniaque n'avait jamais entendu parler d'un Exalté Empyréen ayant également reçu la haute reconnaissance d'une âme de continent.
+Par conséquent, l'ancêtre de la Secte Dao Mo n'avait jamais entendu parler d'un Exalté Empyréen ayant également reçu la haute reconnaissance d'une âme de continent.
 
 À ses yeux, la probabilité d'un tel événement était moindre que celle de voir un Ascendant Empyréen apparaître, et à peine supérieure à la naissance d'un nouveau Grand Empyréen.
 
@@ -92,7 +92,7 @@ Par conséquent, l'ancêtre de la Secte du Dao Démoniaque n'avait jamais entend
 
 « Tout Grand Empyréen qui verrait cet homme voudrait le prendre sous son aile... Je me demande quelle puissance de combat il atteindra maintenant qu'il a emprunté la force de l'âme! » Les yeux de l'ancêtre s'illuminèrent. Il leva la main droite et lança le troisième coup.
 
-Dès que ce coup fut projeté, le poing contenant ses 27 sorts créa un trou noir gigantesque entre lui et Wang Lin. Ce gouffre semblait tout dévorer, engloutissant les ruines de la Secte du Dao Démoniaque.
+Dès que ce coup fut projeté, le poing contenant ses 27 sorts créa un trou noir gigantesque entre lui et Wang Lin. Ce gouffre semblait tout dévorer, engloutissant les ruines de la Secte Dao Mo.
 
 Même le ciel semblait s'effondrer, se distordant et s'arquant sous l'aspiration du trou noir. La terre se mua en un étrange demi-cercle, aspiré impitoyablement par ce vide.
 

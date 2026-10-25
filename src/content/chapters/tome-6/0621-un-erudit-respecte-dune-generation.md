@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 621 - Respect Scholar of a Generation
 slug: un-erudit-respecte-dune-generation
 ---
-Sun Yunshan répondit rapidement: « L'Union de Culture se situe à la frontière nord entre le Pays du Démon de Feu et le Pays du Démon d'Or. Cet endroit est imprégné de miasme toute l'année, ce qui le rend parfaitement dissimulé. » Après avoir parlé, il hésita puis demanda: « Frère Wang, avez-vous l'intention de...? »
+Sun Yunshan répondit rapidement: « L'Union de Culture se situe à la frontière nord entre le Pays Huo Yao et le Pays Jin Yao. Cet endroit est imprégné de miasme toute l'année, ce qui le rend parfaitement dissimulé. » Après avoir parlé, il hésita puis demanda: « Frère Wang, avez-vous l'intention de...? »
 
 Wang Lin sourit. « Je n'ai pas une grande confiance en ma capacité à briser votre restriction. Cependant, je présume que cela ne devrait pas poser de problème à cet Ancêtre! »
 
@@ -18,11 +18,11 @@ Sun Yunshan prit une profonde inspiration, recula de quelques pas et fit un prof
 
 Wang Lin sourit, secoua la tête et rangea le jade brisé dans son sac. D'un revers de manches, il disparut de la tour avec Sun Yunshan. Alors qu'il s'apprêtait à quitter la Tribu de l'Affinement de l'Âme, Wang Lin agita négligemment sa main droite. Les cultivateurs restants de l'Union de Culture furent saisis par lui et disparurent.
 
-La guerre dans le Pays du Démon de Feu se poursuivait. Le massacre incessant faisait couler une quantité immense de sang, et tout le pays était imprégné d'une odeur de mort.
+La guerre dans le Pays Huo Yao se poursuivait. Le massacre incessant faisait couler une quantité immense de sang, et tout le pays était imprégné d'une odeur de mort.
 
-Il était difficile pour les sept autres nations d'ignorer un conflit entre deux puissances. Surtout à ce moment précis, alors que le Pays du Démon de Feu était plongé dans une boucherie constante et que le Pays du Démon Céleste n'avait presque plus de soldats sur son propre territoire. Pour les sept autres pays, c'était une opportunité, une occasion qui ne se présentait qu'une fois tous les dix mille ans!
+Il était difficile pour les sept autres nations d'ignorer un conflit entre deux puissances. Surtout à ce moment précis, alors que le Pays Huo Yao était plongé dans une boucherie constante et que le Pays Tian Yao n'avait presque plus de soldats sur son propre territoire. Pour les sept autres pays, c'était une opportunité, une occasion qui ne se présentait qu'une fois tous les dix mille ans!
 
-À cet instant, à la frontière entre le Pays du Démon de Feu et le Pays du Démon d'Or, un météore traversant le ciel était visible à 5 000 kilomètres du miasme. La lumière entourant le météore se dissipa, révélant Wang Lin lorsqu'il atteignit les limites du brouillard. Il agita ses manches et plus de dix cultivateurs apparurent à ses côtés.
+À cet instant, à la frontière entre le Pays Huo Yao et le Pays Jin Yao, un météore traversant le ciel était visible à 5 000 kilomètres du miasme. La lumière entourant le météore se dissipa, révélant Wang Lin lorsqu'il atteignit les limites du brouillard. Il agita ses manches et plus de dix cultivateurs apparurent à ses côtés.
 
 Quant à Sun Yunshan, il se tenait aux côtés de Wang Lin. Il était très inquiet tout en étant extrêmement excité. Ces deux émotions complexes s'entremêlaient, le rendant quelque peu distrait.
 
@@ -54,7 +54,7 @@ Le regard froid de Wang Lin balaya la foule. Certains appartenaient au groupe qu
 
 Parmi la multitude, un homme d'âge moyen vêtu de bleu attira l'attention de Wang Lin. Au moment où cet homme aperçut Wang Lin, il resta un instant interdit. Il détourna instinctivement le regard, une expression amère sur le visage.
 
-C'était le disciple de la Division Bleue de la Secte du Destin Céleste qui était venu dans la Terre des Esprits Démoniaques avec Wang Lin!
+C'était le disciple de la Division Bleue de la Secte Tian Yun qui était venu dans la Terre Yao Ling avec Wang Lin!
 
 « Écartez-vous », ordonna Wang Lin d'une voix calme.
 
@@ -84,7 +84,7 @@ Le disciple de la Division Bleue observa Wang Lin avec une expression complexe. 
 
 Pourtant, à cet instant, il n'osait plus le sous-estimer. Non seulement Wang Lin avait réussi à atteindre le stade de l'Ascendant en si peu de temps, mais surtout, sa présence lui rappelait vaguement celle de Tian Yunzi.
 
-Bien que ce sentiment ne fût pas écrasant, il était bien réel. En tant que disciple de la Secte du Destin Céleste et de Tian Yunzi, ses connaissances étaient vastes; il savait naturellement qu'il s'agissait là d'une manifestation du Dao!
+Bien que ce sentiment ne fût pas écrasant, il était bien réel. En tant que disciple de la Secte Tian Yun et de Tian Yunzi, ses connaissances étaient vastes; il savait naturellement qu'il s'agissait là d'une manifestation du Dao!
 
 Dégager une telle sensation signifiait que Wang Lin possédait son propre Dao. Dans le monde de la culture, ceux qui possèdent leur propre Dao le conservent en leur cœur, atteignent l'éveil et parviennent à ne faire qu'un avec lui. Ces êtres ont le droit de fonder leur propre école!
 

@@ -16,7 +16,7 @@ Alors qu'il rugissait, le monde gronda, d'immenses nuages furent déchirés et d
 
 « Détruire ma secte, massacrer mes disciples! Peu importe qui vous êtes, vous êtes morts!!!
 
-« Si vous vous trouvez sur le Continent du Taureau Céleste, vous êtes morts!!! Je vais vous capturer, je vais vous réduire en morceaux, je vais vous faire souffrir pendant cent millions d'années, je vais vous faire regretter d'avoir cultivé!!! » rugit le jeune homme, tandis qu'une aura terrifiante jaillissait de son corps. Les milliers de disciples les plus proches n'eurent même pas le temps de pousser un cri qu'ils étaient déjà tous morts.
+« Si vous vous trouvez sur le Continent Tian Niu, vous êtes morts!!! Je vais vous capturer, je vais vous réduire en morceaux, je vais vous faire souffrir pendant cent millions d'années, je vais vous faire regretter d'avoir cultivé!!! » rugit le jeune homme, tandis qu'une aura terrifiante jaillissait de son corps. Les milliers de disciples les plus proches n'eurent même pas le temps de pousser un cri qu'ils étaient déjà tous morts.
 
 « Je vais te tuer! » Le jeune homme se retourna et tendit la main vers un disciple. Ce dernier était pétrifié par la peur alors que le jeune homme lui saisissait la tête.
 
@@ -28,7 +28,7 @@ L'un des Anciens qui s'était transformé en dragon trembla et dit: « Vieil... 
 
 À peine eut-il fini de parler que le cœur de l'homme d'âge moyen qui avait perdu ses bras rata un battement et qu'il laissa échapper un soupir.
 
-« Ce Sun Mengde n'est pas resté assez longtemps au sein de la Secte du Dragon Bleu pour comprendre le tempérament du Vieil Ancêtre... Le Vieil Ancêtre ne se soucie guère du sort de la Secte du Dragon Bleu, il ne tient qu'à son honneur... »
+« Ce Sun Mengde n'est pas resté assez longtemps au sein de la Secte Cang Long pour comprendre le tempérament du Vieil Ancêtre... Le Vieil Ancêtre ne se soucie guère du sort de la Secte Cang Long, il ne tient qu'à son honneur... »
 
 Alors que le vieil homme parlait, le jeune homme se retourna et fixa Sun avec un regard féroce.
 
@@ -38,21 +38,21 @@ Le jeune homme utilisa un sort inconnu; une lumière grise envahit alors le corp
 
 Le jeune homme relâcha sa prise et le vieil homme pétrifié tomba au sol. Un vortex apparut, puis l'homme de bois disparut.
 
-Cette scène terrorisa tous les disciples de la Secte du Dragon Bleu; aucun n'osa plus prononcer un mot.
+Cette scène terrorisa tous les disciples de la Secte Cang Long; aucun n'osa plus prononcer un mot.
 
 « Déployez toute la puissance de la secte pour traquer cet individu! Je ne vous accorde que trois mois. Si vous ne le trouvez pas dans ce délai, vous périrez tous!
 
-« Diffusez un avis sur tout le Continent du Taureau Céleste. Quiconque osera protéger cet homme en paiera le prix! »
+« Diffusez un avis sur tout le Continent Tian Niu. Quiconque osera protéger cet homme en paiera le prix! »
 
 Wang Lin traversait rapidement le ciel du Continent Astral Immortel. Son Sens Divin s'étendait tandis qu'il s'adaptait lentement à ce monde étranger.
 
 « Avec mon niveau de culture, je pourrais couvrir la majeure partie du monde des grottes avec mon Sens Divin, mais ici, celui-ci semble être supprimé par une loi invisible. Il n'est que la moitié de sa puissance habituelle...
 
-« Ce n'est manifestement pas un cas isolé; tout le monde subit la même chose! » Wang Lin en tira cette conclusion car aucune onde de Sens Divin provenant de la Secte du Dragon Bleu ne s'était propagée pour le localiser.
+« Ce n'est manifestement pas un cas isolé; tout le monde subit la même chose! » Wang Lin en tira cette conclusion car aucune onde de Sens Divin provenant de la Secte Cang Long ne s'était propagée pour le localiser.
 
 « La Déformation Spatiale a également perdu son effet sur le Continent Astral Immortel... » Wang Lin fronça les sourcils et tenta l'opération à plusieurs reprises, mais il ne parvint pas à fusionner avec le monde.
 
-« Cela ne doit pas m'être propre. Même si l'Ancêtre de la Secte du Dragon Bleu est au stade initial de la Tribulation du Vide, tout comme Sept-Couleurs et le Vieux Fantôme Zhan, il n'a pas pu revenir à temps. Il est clair qu'il ne peut pas utiliser la Déformation Spatiale! »
+« Cela ne doit pas m'être propre. Même si l'Ancêtre de la Secte Cang Long est au stade initial de la Tribulation du Vide, tout comme Sept-Couleurs et le Vieux Fantôme Zhan, il n'a pas pu revenir à temps. Il est clair qu'il ne peut pas utiliser la Déformation Spatiale! »
 
 Tout en réfléchissant, Wang Lin progressait à une vitesse fulgurante dans les cieux. Il comprenait vaguement que bien que ce monde et le monde des grottes se ressemblent, ils étaient fondamentalement différents.
 
@@ -62,19 +62,19 @@ Il pouvait fusionner avec le monde des grottes, mais pas avec celui du Continent
 
 « Il doit exister une méthode pour y parvenir, mais le niveau de culture requis doit être plus élevé », songea Wang Lin en silence.
 
-Il venait d'arriver, tout lui était étranger. Heureusement, il avait fouillé les souvenirs de Kang Ren. Bien qu'il ne sache pas encore tout, il en savait beaucoup sur le Continent du Taureau Céleste.
+Il venait d'arriver, tout lui était étranger. Heureusement, il avait fouillé les souvenirs de Kang Ren. Bien qu'il ne sache pas encore tout, il en savait beaucoup sur le Continent Tian Niu.
 
-« Voici le Continent du Taureau Céleste, dans le Continent de l'Est, sous la domination des Célestes... Les sectes Gui Yi et Grande Âme sont les deux puissances dominantes du Continent du Taureau Céleste. Elles font partie des neuf sectes et treize factions... » Wang Lin éprouva un sentiment complexe. Il ne connaissait pas ces deux sectes par hasard.
+« Voici le Continent Tian Niu, dans le Continent de l'Est, sous la domination des Célestes... Les sectes Gui Yi et Grande Âme sont les deux puissances dominantes du Continent Tian Niu. Elles font partie des neuf sectes et treize factions... » Wang Lin éprouva un sentiment complexe. Il ne connaissait pas ces deux sectes par hasard.
 
-« La Secte de la Grande Âme, la secte de Fan Shanmeng et Fan Shanlu! Celle qui manie les illusions terrifiantes... Il y a aussi Yun Yifeng dans les souvenirs de Kang Ren. Il est devenu le génie de la Secte Gui Yi...
+« La Secte Da Hun, la secte de Fan Shanmeng et Fan Shanlu! Celle qui manie les illusions terrifiantes... Il y a aussi Yun Yifeng dans les souvenirs de Kang Ren. Il est devenu le génie de la Secte Gui Yi...
 
-« Hélas, je suis arrivé trop tard... Le Maître a probablement pensé que j'étais mort et n'a pas attendu... » Wang Lin soupira. Cependant, ce qui l'émut particulièrement était que le Continent du Taureau Céleste abritait la Secte des Sept Dao.
+« Hélas, je suis arrivé trop tard... Le Maître a probablement pensé que j'étais mort et n'a pas attendu... » Wang Lin soupira. Cependant, ce qui l'émut particulièrement était que le Continent Tian Niu abritait la Secte Qi Dao.
 
-« Le Continent du Taureau Céleste est vaste, il équivaut à plusieurs dizaines de mondes caverneux. Voyager sans Déformation Spatiale est bien trop lent... Aller d'ici jusqu'aux trente-six États de l'Ancien Pays prendrait des centaines d'années, même à pleine vitesse. »
+« Le Continent Tian Niu est vaste, il équivaut à plusieurs dizaines de mondes caverneux. Voyager sans Déformation Spatiale est bien trop lent... Aller d'ici jusqu'aux trente-six États de l'Ancien Pays prendrait des centaines d'années, même à pleine vitesse. »
 
 Wang Lin fronça les sourcils. Le Continent Astral Immortel était tout simplement colossal...
 
-« Peu importe. Quoi qu'il en soit, je dois me rendre à la Secte des Sept Dao pour voir. Si le Maître n'est pas là, alors peu importe le temps que cela prendra, je devrai rejoindre le Clan de l'Ancien Dao, car je lui en ai fait la promesse!
+« Peu importe. Quoi qu'il en soit, je dois me rendre à la Secte Qi Dao pour voir. Si le Maître n'est pas là, alors peu importe le temps que cela prendra, je devrai rejoindre le Clan Dao Gu, car je lui en ai fait la promesse!
 
 « C'est mon objectif à long terme. Avant cela, je dois me rendre à la Secte Dong Lin. Je dois utiliser tous les moyens pour accéder au Bassin de Dong Lin! » En pensant aux mystères du Bassin de Dong Lin, son cœur se mit à battre la chamade.
 
@@ -86,7 +86,7 @@ Le Roi des Moustiques était trop singulier et ne serait pas prudent de l'invoqu
 
 Une demi-lunaison plus tard, une vaste chaîne de montagnes apparut devant lui. Les sommets s'étendaient à perte de vue. D'un simple coup d'œil, on pouvait estimer qu'ils étaient des dizaines de milliers.
 
-Le Continent du Taureau Céleste était un monde de montagnes. Wang Lin l'avait appris via les souvenirs de Kang Ren et l'avait constaté par lui-même ces quinze derniers jours.
+Le Continent Tian Niu était un monde de montagnes. Wang Lin l'avait appris via les souvenirs de Kang Ren et l'avait constaté par lui-même ces quinze derniers jours.
 
 « Cet endroit est plutôt bien... » Les yeux de Wang Lin s'illuminèrent et il plongea vers la chaîne de montagnes en contrebas. Il se précipita vers une montagne d'apparence ordinaire et y pénétra.
 
@@ -102,7 +102,7 @@ Ce n'est qu'en le portant sur son dos qu'il se sentait en sécurité.
 
 « Cette méthode est très mystérieuse, mais pas inédite. Les Célestes du monde des grottes pratiquaient cela.
 
-« Les membres de la Secte des Sept Dao utilisaient tous la même technique... J'aurais dû m'y préparer autrefois... » Wang Lin secoua la tête. Bien qu'il fût rusé, il ne pouvait tout prévoir.
+« Les membres de la Secte Qi Dao utilisaient tous la même technique... J'aurais dû m'y préparer autrefois... » Wang Lin secoua la tête. Bien qu'il fût rusé, il ne pouvait tout prévoir.
 
 Wang Lin resta assis et leva sa main droite. Il hésita. Il ne pouvait deviner les conséquences de l'ouverture de son espace de stockage dans ce monde.
 

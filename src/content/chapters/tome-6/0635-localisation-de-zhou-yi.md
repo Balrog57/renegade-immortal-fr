@@ -118,23 +118,23 @@ Wang Lin était convaincu qu'avec sa culture, il pourrait vaincre Murong Zhuo, m
 
 Si les sorts d'évasion de Murong Zhuo étaient aussi prodigieux que ceux du petit vieillard, et si ce dernier décidait de fuir, Wang Lin ne pourrait pas le rattraper.
 
-« L'âme originelle de ce petit vieillard est scellée dans le drapeau de l'âme. Après avoir sauvé Zhou Yi et réglé les affaires de l'Abîme des Marées, je devrai consacrer du temps à la culture de ces sorts! »
+« L'âme originelle de ce petit vieillard est scellée dans le drapeau de l'âme. Après avoir sauvé Zhou Yi et réglé les affaires de l'Abîme Chao Xi, je devrai consacrer du temps à la culture de ces sorts! »
 
-Ce jour-là, avec l'aide de Murong Zhuo, ils travaillèrent de concert et atteignirent enfin la partie médiane inférieure de l'Abîme des Marées. Le cœur de Wang Lin trembla, mais il réprima aussitôt ce sentiment. Même le cristal de Bei Luo ne pouvait voir au-delà de cette profondeur.
+Ce jour-là, avec l'aide de Murong Zhuo, ils travaillèrent de concert et atteignirent enfin la partie médiane inférieure de l'Abîme Chao Xi. Le cœur de Wang Lin trembla, mais il réprima aussitôt ce sentiment. Même le cristal de Bei Luo ne pouvait voir au-delà de cette profondeur.
 
 Cependant, la cible de Wang Lin était très proche. Selon l'Ancien Démon Bei Luo, le corps véritable de Zhou Yi se trouvait ici même. Pourtant, même avec le pouvoir de Bei Luo, il ne pouvait localiser précisément sa position.
 
-Wang Lin joignit les mains. « Frère Murong, j'ai d'autres impératifs, je ne vous suivrai pas plus bas. » Il réfléchit un instant avant de regarder le visage serein de Murong Zhuo et ajouta: « Je suis heureux d'avoir croisé votre chemin lors de cette descente dans l'Abîme des Marées. Si vous avez besoin de moi à l'avenir, n'hésitez pas! »
+Wang Lin joignit les mains. « Frère Murong, j'ai d'autres impératifs, je ne vous suivrai pas plus bas. » Il réfléchit un instant avant de regarder le visage serein de Murong Zhuo et ajouta: « Je suis heureux d'avoir croisé votre chemin lors de cette descente dans l'Abîme Chao Xi. Si vous avez besoin de moi à l'avenir, n'hésitez pas! »
 
 Il était extrêmement rare que Wang Lin tienne un tel discours compte tenu de sa personnalité. Bien que ce Murong Zhuo fût peu loquace, il ne reculait jamais devant l'action et n'était jamais aveuglé par la cupidité.
 
 Wang Lin ne dit rien de plus. Murong Zhuo esquissa un rare sourire, hocha la tête à Wang Lin et s'envola silencieusement vers les profondeurs.
 
-Wang Lin réfléchit un instant puis envoya une transmission vocale à Murong Zhuo: « Frère Murong, méfiez-vous de ces deux femmes. Si je ne me trompe pas, elles appartiennent à la Secte des Cadavres. L'une d'elles doit être un cadavre habité par une âme originelle! »
+Wang Lin réfléchit un instant puis envoya une transmission vocale à Murong Zhuo: « Frère Murong, méfiez-vous de ces deux femmes. Si je ne me trompe pas, elles appartiennent à la Secte Shi Yin. L'une d'elles doit être un cadavre habité par une âme originelle! »
 
 Murong Zhuo ne regarda pas les deux femmes et n'eut aucun geste suggérant qu'il avait entendu Wang Lin. Il continua sa descente, mais nul ne remarqua que ses yeux brillèrent un instant et qu'il devint plus vigilant.
 
-Il avait entendu parler de la Secte des Cadavres. Cette secte était bien plus puissante que la plupart des pays de culture. Presque chaque planète de culture possédait une branche de la Secte des Cadavres. Leur puissance était tout simplement écrasante!
+Il avait entendu parler de la Secte Shi Yin. Cette secte était bien plus puissante que la plupart des pays de culture. Presque chaque planète de culture possédait une branche de la Secte Shi Yin. Leur puissance était tout simplement écrasante!
 
 Les deux femmes prirent également congé et s'envolèrent. Cependant, Xu Fei joua distraitement avec ses cheveux. Un cheveu se détacha et vint se fixer sur la falaise.
 
@@ -142,4 +142,4 @@ Une fois que les trois furent disparus au loin, le regard de Wang Lin devint gla
 
 « Il semble que mon avertissement n'ait pas suffi! » Wang Lin laissa échapper un reniflement froid et frotta son doigt. Le cheveu s'enflamma, mais d'un feu vert. Un fragment de sens divin émergea du cheveu, mais avant qu'il ne puisse se condenser, Wang Lin cracha une bouffée d'énergie originelle. Le fragment de sens divin s'effondra instantanément après avoir heurté l'énergie originelle.
 
-Pendant la descente dans l'Abîme des Marées, le corps de Xu Fei trembla. Du sang coula du coin de sa bouche et ses yeux trahirent une trace de peur.
+Pendant la descente dans l'Abîme Chao Xi, le corps de Xu Fei trembla. Du sang coula du coin de sa bouche et ses yeux trahirent une trace de peur.

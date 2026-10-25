@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1377 - Do You Dare to Fight (2)
 slug: osez-vous-combattre-2
 ---
-Le jeune maître du Clan du Dragon Blindé sourit et dit lentement: « Le troisième trésor de mon Clan est le plus puissant. Il s'appelle la Pilule d'Effondrement du Dragon! On ne les consomme pas; elles explosent pour blesser l'ennemi! Une seule n'est pas redoutable, mais avec des centaines, des milliers ou des dizaines de milliers, leur puissance devient infinie! »
+Le jeune maître du Clan Long Jia sourit et dit lentement: « Le troisième trésor de mon Clan est le plus puissant. Il s'appelle la Pilule d'Effondrement du Dragon! On ne les consomme pas; elles explosent pour blesser l'ennemi! Une seule n'est pas redoutable, mais avec des centaines, des milliers ou des dizaines de milliers, leur puissance devient infinie! »
 
-« Parmi les trois trésors de mon Clan, les deux derniers nous ont été offerts par le Grand Empereur. Seul le Clan du Dragon Blindé les possède! »
+« Parmi les trois trésors de mon Clan, les deux derniers nous ont été offerts par le Grand Empereur. Seul le Clan Long Jia les possède! »
 
 Les yeux de Wang Lin s'illuminèrent. Après un instant de réflexion, il dit: « Je ne veux ni des Écailles de Dragon, ni du Dragon d'Os Blanc. Cependant, la Pilule d'Effondrement du Dragon m'intéresse. Laisse-moi en examiner une. »
 
-Le jeune maître du Clan du Dragon Blindé tendit la main dans le vide et, par une méthode inconnue, fit apparaître une pilule blanche dans sa paume. Il la lança, et celle-ci vola vers Wang Lin.
+Le jeune maître du Clan Long Jia tendit la main dans le vide et, par une méthode inconnue, fit apparaître une pilule blanche dans sa paume. Il la lança, et celle-ci vola vers Wang Lin.
 
 Wang Lin l'attrapa et l'examina de près.
 
@@ -20,7 +20,7 @@ Cette pilule contenait quatre auras. Ces quatre auras étaient extrêmement chao
 
 « Une pilule d'âme contre cent de ces pilules! » Les paroles de Wang Lin étaient fermes.
 
-Le jeune maître du Clan du Dragon Blindé réfléchit un instant, puis ses yeux s'illuminèrent et il hocha la tête.
+Le jeune maître du Clan Long Jia réfléchit un instant, puis ses yeux s'illuminèrent et il hocha la tête.
 
 « Très bien. Je me demande combien de Pilules d'Effondrement du Dragon le Senior souhaite échanger? »
 
@@ -30,17 +30,17 @@ Les pupilles du jeune maître se rétractèrent, puis il acquiesça: « 10 000 P
 
 Wang Lin agita sa manche et, après avoir collecté les 10 000 pilules, il laissa derrière lui 100 pilules d'âme. Il se leva et partit; le Patriarche du Scorpion Noir se leva promptement pour le suivre.
 
-Une fois sorti du pavillon, Wang Lin afficha un sourire narquois. Il se tourna vers le Patriarche du Scorpion Noir et ordonna: « Retournez d'abord au Clan du Scorpion Noir, j'ai des affaires personnelles à régler. »
+Une fois sorti du pavillon, Wang Lin afficha un sourire narquois. Il se tourna vers le Patriarche du Scorpion Noir et ordonna: « Retournez d'abord au Clan An Xie, j'ai des affaires personnelles à régler. »
 
 Le Patriarche du Scorpion Noir hocha la tête. Craignant de poser des questions, il partit rapidement.
 
-L'expression de Wang Lin resta calme. Il marchait lentement dans la cité du Clan du Dragon Blindé. Il avait posé l'appât et attendait maintenant que sa cible morde.
+L'expression de Wang Lin resta calme. Il marchait lentement dans la cité du Clan Long Jia. Il avait posé l'appât et attendait maintenant que sa cible morde.
 
-« J'ai chargé directement le Clan du Tonnerre Dispersé auparavant, mais pour le Clan des Moineaux de Feu, ce sont eux qui me feront entrer! » Wang Lin marcha un moment avant de faire brusquement demi-tour.
+« J'ai chargé directement le Clan Shan Lei auparavant, mais pour le Clan Huo Que, ce sont eux qui me feront entrer! » Wang Lin marcha un moment avant de faire brusquement demi-tour.
 
 « Vous me suivez depuis tout à l'heure. Cherchez-vous la mort? »
 
-La voix de Wang Lin était glaciale. Lorsque ses mots résonnèrent, des ondulations apparurent à cent pieds derrière lui. Un vieil homme du Clan des Moineaux de Feu en sortit. Il paraissait extrêmement respectueux et joignit les mains: « Senior, ne soyez pas en colère. Ce junior vous suit pour conclure un marché. »
+La voix de Wang Lin était glaciale. Lorsque ses mots résonnèrent, des ondulations apparurent à cent pieds derrière lui. Un vieil homme du Clan Huo Que en sortit. Il paraissait extrêmement respectueux et joignit les mains: « Senior, ne soyez pas en colère. Ce junior vous suit pour conclure un marché. »
 
 Wang Lin ne répondit rien, se contentant de fixer froidement le vieil homme.
 
@@ -60,7 +60,7 @@ Wang Lin sortit 100 pilules d'âme et les lança au vieil homme. Puis, d'un pas,
 
 Lorsqu'il réapparut, Wang Lin se tenait déjà au sommet d'une montagne. D'un geste de la main, les 10 000 Pilules d'Effondrement du Dragon apparurent autour de lui.
 
-Le regard de Wang Lin devint glacial et il eut un ricanement méprisant: « Bien que les pilules d'âme soient coûteuses, elles n'ont pas la même valeur que cent de ces pilules, chacune étant équivalente à l'attaque d'un cultivateur du Scruteur du Nirvana! Clan du Dragon Blindé, puisque vous voulez vous impliquer, ne me reprochez pas les dégâts collatéraux! »
+Le regard de Wang Lin devint glacial et il eut un ricanement méprisant: « Bien que les pilules d'âme soient coûteuses, elles n'ont pas la même valeur que cent de ces pilules, chacune étant équivalente à l'attaque d'un cultivateur du Scruteur du Nirvana! Clan Long Jia, puisque vous voulez vous impliquer, ne me reprochez pas les dégâts collatéraux! »
 
 Il sourit et agita sa main droite, libérant son aura de culture. Le tatouage de feu dans son œil gauche s'élança et une mer de flammes enveloppa immédiatement les 10 000 pilules.
 
@@ -82,7 +82,7 @@ L'œil droit de Wang Lin vacilla et le tonnerre surgit. Il se transforma en un t
 
 Au fur et à mesure de la fusion, le monde semblait changer de couleur et le tonnerre s'accumulait pour pénétrer l'objet.
 
-« Six auras. En y ajoutant le sort du Clan du Tonnerre Dispersé, elle pourra blesser des cultivateurs du quatrième niveau de Fléau Céleste! » Les yeux de Wang Lin étaient empreints d'une intention meurtrière. Il mordit le bout de sa langue et cracha du sang. C'était le sang d'un Dieu Ancien, chargé de l'énergie originelle de son âme originelle.
+« Six auras. En y ajoutant le sort du Clan Shan Lei, elle pourra blesser des cultivateurs du quatrième niveau de Fléau Céleste! » Les yeux de Wang Lin étaient empreints d'une intention meurtrière. Il mordit le bout de sa langue et cracha du sang. C'était le sang d'un Dieu Ancien, chargé de l'énergie originelle de son âme originelle.
 
 Le sang atterrit sur la pilule dorée, qui s'assombrit instantanément pour émettre une lueur rouge sang. Ce sang était saturé d'une aura meurtrière!
 
@@ -94,7 +94,7 @@ Wang Lin agita la main droite et les Cristaux de Mutation de Feu Déchaîné qu'
 
 Wang Lin n'hésita pas à utiliser le sortilège de fusion. Un motif d'Oiseau Vermillon apparut vaguement dans son œil gauche, rendant les flammes encore plus ardentes!
 
-« Cinquième niveau de Fléau Céleste, et alors? Si vous venez avec votre avatar, je vous ferai périr ici même! Si vous venez avec votre corps originel en utilisant votre culture de la troisième étape, je ne crois pas que vous survivrez. Après tout, un cultivateur de la troisième étape peut aisément détruire toute la Terre Déchue! Même si personne ne l'arrête, je n'aurai qu'à fuir. L'appât est déjà posé auprès du Clan des Moineaux de Feu, ils viendront naturellement à ma rencontre! »
+« Cinquième niveau de Fléau Céleste, et alors? Si vous venez avec votre avatar, je vous ferai périr ici même! Si vous venez avec votre corps originel en utilisant votre culture de la troisième étape, je ne crois pas que vous survivrez. Après tout, un cultivateur de la troisième étape peut aisément détruire toute la Terre Déchue! Même si personne ne l'arrête, je n'aurai qu'à fuir. L'appât est déjà posé auprès du Clan Huo Que, ils viendront naturellement à ma rencontre! »
 
 Wang Lin laissa échapper un reniflement froid et le feu devant lui se rétracta. Tous les Cristaux de Mutation avaient été raffinés en un unique cristal bleu foncé. Il contenait non seulement l'essence du feu, mais portait aussi l'ombre d'un Oiseau Vermillon!
 
@@ -112,15 +112,15 @@ En un instant, le ciel fut saturé d'énergie d'épée et une intention meurtri�
 
 Son cri, chargé d'un défi pur, fit trembler les cieux et se propagea dans toutes les directions. À cet instant précis, tous les cultivateurs de la planète l'entendirent distinctement!
 
-Dans une demeure de la cité située sur le flanc est de la planète, le vieil homme du Clan des Moineaux de Feu se tenait là, l'expression solennelle. Sept autres membres du clan se tenaient à ses côtés, incapables de masquer leur stupeur.
+Dans une demeure de la cité située sur le flanc est de la planète, le vieil homme du Clan Huo Que se tenait là, l'expression solennelle. Sept autres membres du clan se tenaient à ses côtés, incapables de masquer leur stupeur.
 
 Devant lui, les 100 pilules d'âme brûlaient et fondaient progressivement. Même les âmes furent consumées jusqu'à leur dissipation, ne laissant qu'une goutte de sang qui émettait une lueur démoniaque!
 
 « Comme je l'avais prévu, la raison pour laquelle ces pilules contiennent de l'essence est cette goutte de sang! C'est... quel genre de sang est-ce là?! » Le vieil homme prit une profonde inspiration, mais à cet instant précis, un cri empreint de défi et d'une intention meurtrière résonna.
 
-Le vieil homme du Clan des Moineaux de Feu leva brusquement la tête vers les cieux.
+Le vieil homme du Clan Huo Que leva brusquement la tête vers les cieux.
 
-Simultanément, dans la terre sainte du Clan du Dragon Blindé, le Patriarche et Maître Simo étaient assis dans un pavillon. Un homme se tenait devant eux: le jeune maître du Clan du Dragon Blindé!
+Simultanément, dans la terre sainte du Clan Long Jia, le Patriarche et Maître Simo étaient assis dans un pavillon. Un homme se tenait devant eux: le jeune maître du Clan Long Jia!
 
 « Père, j'ai déjà remis les 10 000 Pilules d'Effondrement du Dragon, comme vous l'aviez ordonné. »
 

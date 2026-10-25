@@ -78,26 +78,26 @@ Les parents de Zhou Ru discutaient avec elle dans la cour, les traits empreints 
 
 « Oncle... » murmura-t-elle en fixant l'immensité. À cet instant, elle sentait son oncle s'éloigner d'elle. Cette distance ne cessait de croître, comme si elle devait durer toute une vie.
 
-Planète Suzaku, domaine du Clan des Immortels Délaissés.
+Planète Suzaku, domaine du Clan Xian Yi.
 
-Yun Quezi était assis seul sur une haute montagne, les yeux rivés vers le ciel. Son visage paraissait très vieilli, plus encore qu'auparavant. Il avait subi de graves blessures dans le Tombeau de Suzaku et, malgré un an de convalescence, il n'en avait que peu récupéré, et son énergie vitale était entamée. Il sentait également sa fin approcher, une fatigue immense l'accablant.
+Yun Quezi était assis seul sur une haute montagne, les yeux rivés vers le ciel. Son visage paraissait très vieilli, plus encore qu'auparavant. Il avait subi de graves blessures dans le Tombeau Zhu Que et, malgré un an de convalescence, il n'en avait que peu récupéré, et son énergie vitale était entamée. Il sentait également sa fin approcher, une fatigue immense l'accablant.
 
-L'espérance de vie des membres du Clan des Immortels Délaissés était légèrement supérieure à celle des cultivateurs; sans cela, avec le niveau de culture de Yun Quezi, il serait mort depuis longtemps.
+L'espérance de vie des membres du Clan Xian Yi était légèrement supérieure à celle des cultivateurs; sans cela, avec le niveau de culture de Yun Quezi, il serait mort depuis longtemps.
 
 « La jeune génération nous surpassera bientôt... » soupira-t-il après un long silence.
 
-Dans les terres du Clan des Immortels Délaissés, à plus de dix mille kilomètres de là, un jeune homme couvert de tatouages dorés scintillants contemplait le ciel avec mélancolie.
+Dans les terres du Clan Xian Yi, à plus de dix mille kilomètres de là, un jeune homme couvert de tatouages dorés scintillants contemplait le ciel avec mélancolie.
 
-« Frère Wang, vous souvenez-vous encore de moi...? » Cet homme était le jeune maître du Clan des Immortels Délaissés. Son histoire était singulière: lors de la bataille pour le Cristal de la Planète de Culture dans le Tombeau de Suzaku, il n'avait pas pu atteindre l'objectif, mais il avait survécu.
+« Frère Wang, vous souvenez-vous encore de moi...? » Cet homme était le jeune maître du Clan Xian Yi. Son histoire était singulière: lors de la bataille pour le Cristal de la Planète de Culture dans le Tombeau Zhu Que, il n'avait pas pu atteindre l'objectif, mais il avait survécu.
 
 « Frère Wang, je quitte également la planète Suzaku. J'espère que nous aurons l'occasion de nous revoir un jour! »
 
 À cet instant, tous les cultivateurs de la planète Suzaku ressentirent une fluctuation céleste. Sous leurs yeux ébahis, Wang Lin et Situ Nan traversèrent les vents violents pour s'élancer dans le vide spatial.
 
-Sur la planète Suzaku, l'ancêtre du Clan des Démons Géants, prisonnier de la Secte des Cadavres, continuait d'appeler à l'aide.
+Sur la planète Suzaku, l'ancêtre du Clan Ju Mo, prisonnier de la Secte Shi Yin, continuait d'appeler à l'aide.
 
-Dans la Terre de l'Ancien Dieu, les rires démoniaques de Tuo Sen résonnaient encore. Le jour où il recouvrerait sa liberté n'était plus très loin.
+Dans la Terre Gu Shen, les rires démoniaques de Tuo Sen résonnaient encore. Le jour où il recouvrerait sa liberté n'était plus très loin.
 
-Dans la Mer des Démons, la rumeur de l'ordre de mise à mort des Dix Mille Démons en cent jours circulait toujours parmi les cultivateurs démoniaques, sans jamais s'éteindre...
+Dans la Mer Xiu Mo, la rumeur de l'ordre de mise à mort des Dix Mille Démons en cent jours circulait toujours parmi les cultivateurs démoniaques, sans jamais s'éteindre...
 
 Une légende: un cultivateur nommé Wang Lin avait laissé son empreinte sur toute la planète Suzaku...

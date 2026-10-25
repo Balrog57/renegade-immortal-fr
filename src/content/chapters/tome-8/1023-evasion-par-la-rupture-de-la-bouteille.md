@@ -66,7 +66,7 @@ La bouteille située devant l'individu dans la brume noire, au-dessus du pont de
 
 L'homme dans la brume afficha un regard glacial. Il leva sa main droite desséchée et pointa le bouchon de bois. Une énergie démoniaque jaillit immédiatement de son doigt pour pénétrer la bouteille à travers le bouchon.
 
-Cependant, juste au moment où l'énergie démoniaque s'apprêtait à s'infiltrer, une explosion capable de faire trembler les cieux éclata soudainement dans la Grotte de l'Empereur Céleste!
+Cependant, juste au moment où l'énergie démoniaque s'apprêtait à s'infiltrer, une explosion capable de faire trembler les cieux éclata soudainement dans la Grotte Xian Di!
 
 Alors que le son résonnait, le bouchon de la bouteille en jade blanc vola en éclats et fut projeté vers le haut comme une fontaine.
 

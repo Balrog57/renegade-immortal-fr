@@ -16,7 +16,7 @@ Wang Lin sourit. « À l'intérieur de la tour repose le cadavre d'une femme. C'
 
 Puis Wang Lin raconta à Li Muwan l'histoire de Zhou Yi et de Ting Er. Li Muwan, qui était une jeune fille très émotive, fut profondément touchée par ce récit.
 
-Elle murmura: « Je me demande comment va le senior Zhou Yi depuis qu'il s'est transformé en esprit d'épée pour rejoindre la Secte de l'Épée Da Luo... »
+Elle murmura: « Je me demande comment va le senior Zhou Yi depuis qu'il s'est transformé en esprit d'épée pour rejoindre la Secte Da Luo Jian... »
 
 Wang Lin réfléchit. Après un long moment, il secoua la tête et dit: « Quel que soit le résultat, c'était son choix. J'espère qu'il pourra réaliser son vœu... »
 
@@ -78,9 +78,9 @@ Elle dit avec inquiétude: « Si cette Hongdie découvre que tu es Ceng Niu, ell
 
 Le regard de Wang Lin se fit intense. Il répondit calmement: « Quant à Hongdie, avec ma culture actuelle, il ne me faut que quelques années de plus pour atteindre le stade intermédiaire de la Formation de l'Âme. Je suis sûr à 70 % de pouvoir la repousser à nouveau le moment venu! »
 
-Li Muwan le regarda et dit soudainement: « Te souviens-tu encore de la grotte dans la Mer des Démons? Wang Lin, je veux y retourner... Je veux aussi voir Huo Fen. »
+Li Muwan le regarda et dit soudainement: « Te souviens-tu encore de la grotte dans la Mer Xiu Mo? Wang Lin, je veux y retourner... Je veux aussi voir Huo Fen. »
 
-Wang Lin répondit: « Très bien. Le Pavillon de Raffinage des Trésors va bientôt mettre aux enchères une recette de pilule de rang 6. Je t'y emmènerai pour l'acheter. »
+Wang Lin répondit: « Très bien. Le Pavillon Lian Qi va bientôt mettre aux enchères une recette de pilule de rang 6. Je t'y emmènerai pour l'acheter. »
 
 « Mhmm! » Li Muwan afficha un sourire radieux.
 
@@ -106,7 +106,7 @@ Ces derniers temps, il lui donnait presque chaque jour une pilule. Ces pilules a
 
 Une fois que le crapaud tonnerre eut absorbé les pilules et parut en meilleure santé, Wang Lin le remit dans le piège à bêtes. S'il levait le sceau du piège maintenant, l'animal mourrait; il ne le fit donc pas.
 
-Wang Lin se retourna vers la maison de pierre avant de sortir une épée trésor appartenant à un disciple de la Secte de l'Épée Da Luo pour l'étudier. Les restrictions sur cette épée étaient très différentes de celles que Wang Lin avait apprises. Il les étudiait depuis un certain temps et finissait par trouver quelques indices.
+Wang Lin se retourna vers la maison de pierre avant de sortir une épée trésor appartenant à un disciple de la Secte Da Luo Jian pour l'étudier. Les restrictions sur cette épée étaient très différentes de celles que Wang Lin avait apprises. Il les étudiait depuis un certain temps et finissait par trouver quelques indices.
 
 La nuit passa lentement, la lumière lunaire faiblissant peu à peu. Puis, alors que le soleil émergeait à l'est, la lune disparut.
 
@@ -116,7 +116,7 @@ Trois jours plus tard, Wang Lin et Li Muwan quittèrent la vallée, suivis par T
 
 À la lisière de Chu, Wang Lin ouvrit un ancien réseau de transfert et disparut avec Li Muwan, Lu Fei et Tie Yan. Les deux derniers ressentirent à nouveau la puissance de Wang Lin. Bien qu'ils aient vécu longtemps, c'était la première fois qu'ils expérimentaient un tel réseau de transfert antique.
 
-Dans la Mer des Démons, près de la frontière de Huo Fen, un réseau de transfert s'alluma soudainement et quatre personnes en sortirent. Il y avait trois hommes et une femme. L'homme et la femme marchant devant étaient manifestement un couple de cultivateurs, tandis que les deux autres derrière eux servaient de gardes.
+Dans la Mer Xiu Mo, près de la frontière de Huo Fen, un réseau de transfert s'alluma soudainement et quatre personnes en sortirent. Il y avait trois hommes et une femme. L'homme et la femme marchant devant étaient manifestement un couple de cultivateurs, tandis que les deux autres derrière eux servaient de gardes.
 
 Li Muwan soupira: « Je ne suis pas revenue ici depuis de nombreuses années. Wang Lin, retournons voir cette Formation du Dragon Azure. Je me demande combien de personnes de l'époque sont encore en vie... »
 

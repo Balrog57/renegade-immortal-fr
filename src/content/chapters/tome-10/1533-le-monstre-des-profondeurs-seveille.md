@@ -94,7 +94,7 @@ Cette tempête était assez puissante pour détruire un système stellaire, et p
 
 Tandis que des grondements tonitruants résonnaient, la tempête dorée percuta la Formation de Scellement du Royaume et explosa vers l'extérieur. Une force destructrice surgit soudainement!
 
-Les visages des cultivateurs de la Rivière Invoquée, de Luotian et de la Mer des Nuages pâlirent. Les yeux du Maître Hong Shan et de ses compagnons devinrent rouges. Ils utilisèrent désespérément leurs sorts pour déplacer de force ces dizaines de milliers de cultivateurs. En un clin d'œil, plus aucun cultivateur du Royaume Intérieur ne resta sur ce champ de bataille!
+Les visages des cultivateurs de la Rivière Invoquée, de Luotian et de la Mer Yun pâlirent. Les yeux du Maître Hong Shan et de ses compagnons devinrent rouges. Ils utilisèrent désespérément leurs sorts pour déplacer de force ces dizaines de milliers de cultivateurs. En un clin d'œil, plus aucun cultivateur du Royaume Intérieur ne resta sur ce champ de bataille!
 
 Tous les cultivateurs du Royaume Intérieur furent évacués par le Maître Hong Shan et ses pairs. Même eux disparurent en un instant.
 
@@ -102,7 +102,7 @@ Quant à Wang Lin, ils voulaient le sauver, mais il se trouvait précisément l�
 
 L'Estimé Ling Dong et Zhou Jin durent également battre en retraite face à l'éruption de la tempête dorée!
 
-Alors que la tempête se propageait, la Formation de Scellement du Royaume s'effondra à grande échelle. Le jade se dissipa rapidement, se répandant dans toute la formation. Lorsque le jade disparut, le seigneur du Palais de la Punition Céleste fut libéré. Cependant, sitôt libre, il fut dévoré par la tempête dorée. Il n'eut même pas le temps de crier que son âme originelle, les Flammes Joss, et tout ce qui l'entourait disparurent.
+Alors que la tempête se propageait, la Formation de Scellement du Royaume s'effondra à grande échelle. Le jade se dissipa rapidement, se répandant dans toute la formation. Lorsque le jade disparut, le seigneur du Palais Tian Fa fut libéré. Cependant, sitôt libre, il fut dévoré par la tempête dorée. Il n'eut même pas le temps de crier que son âme originelle, les Flammes Joss, et tout ce qui l'entourait disparurent.
 
 Le système stellaire extérieur à la Formation de Scellement du Royaume fut également frappé par la tempête, provoquant un effondrement généralisé. Après un long moment, un rugissement monstrueux retentit et tout le champ de bataille fut enveloppé par la tempête dorée, prenant la Formation de Scellement du Royaume pour épicentre.
 

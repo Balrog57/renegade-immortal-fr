@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1151 - Came So Quickly
 slug: arrivee-si-rapide
 ---
-Wang Lin séjournait sur ce continent sauvage depuis un certain temps déjà. Compte tenu de la situation à la Secte de l'Origine, il ne pouvait pas y rester beaucoup plus longtemps.
+Wang Lin séjournait sur ce continent sauvage depuis un certain temps déjà. Compte tenu de la situation à la Secte Gui Yuan, il ne pouvait pas y rester beaucoup plus longtemps.
 
-Bien qu'il ne craignît pas la Secte du Dao Pourpre, s'il n'était pas là, la Secte de l'Origine serait anéantie avec sa force actuelle. Si cela s'était produit dans le passé, Wang Lin ne s'en serait pas soucié, mais puisqu'il avait tué des membres de la Secte du Dao Pourpre, il était désormais impliqué dans cette affaire.
+Bien qu'il ne craignît pas la Secte Zi Dao, s'il n'était pas là, la Secte Gui Yuan serait anéantie avec sa force actuelle. Si cela s'était produit dans le passé, Wang Lin ne s'en serait pas soucié, mais puisqu'il avait tué des membres de la Secte Zi Dao, il était désormais impliqué dans cette affaire.
 
-De plus, cette cultivatrice astucieuse, Lu Yanfei, lui avait respectueusement offert une identité. Il y avait également l'indice incomplet de l'Extrême Yin qu'il devait obtenir auprès des membres de la Secte du Dao Pourpre.
+De plus, cette cultivatrice astucieuse, Lu Yanfei, lui avait respectueusement offert une identité. Il y avait également l'indice incomplet de l'Extrême Yin qu'il devait obtenir auprès des membres de la Secte Zi Dao.
 
 Par conséquent, Wang Lin décida d'agir avec arrogance pour une fois et utilisa le singe noir qu'il venait de dompter pour se précipiter dans le nid de ces bêtes féroces afin de leur voler leurs herbes par la force.
 
@@ -80,7 +80,7 @@ Le temps passa rapidement. Alors que le singe noir traversait la vallée, l'arm�
 
 À cet instant précis, les yeux de Wang Lin se plissèrent. Il se redressa et fixa l'horizon. Simultanément, une voix lugubre résonna devant lui.
 
-« La Secte des Cinq Poisons a une affaire à régler ici. Les gens sans importance, partez vite... Hein!!! » La voix sombre n'avait pas fini sa phrase qu'elle se transforma en un cri de stupeur.
+« La Secte Wu Du a une affaire à régler ici. Les gens sans importance, partez vite... Hein!!! » La voix sombre n'avait pas fini sa phrase qu'elle se transforma en un cri de stupeur.
 
 La voix avait manifestement aperçu l'armée interminable de bêtes féroces qui pourchassait le singe noir!
 
@@ -92,7 +92,7 @@ Les pupilles de la vieille femme se contractèrent. Le brouillard limitait sa vi
 
 À cet instant, elle ne put s'empêcher de haleter de surprise. Toutefois, avec son niveau de culture, son intelligence était aiguisée. En voyant le singe noir, elle comprit immédiatement que cette multitude de bêtes poursuivait l'animal et le cultivateur aux cheveux blancs sur son dos.
 
-Une lueur d'intention meurtrière apparut dans ses yeux. Elle ne croyait pas à une coïncidence. Soit la Secte de la Fleur Claire envoyait des renforts, soit des cultivateurs des autres sectes de la région de rang 6 étaient arrivés prématurément.
+Une lueur d'intention meurtrière apparut dans ses yeux. Elle ne croyait pas à une coïncidence. Soit la Secte Hua Qing envoyait des renforts, soit des cultivateurs des autres sectes de la région de rang 6 étaient arrivés prématurément.
 
 « Ils sont venus si vite! » La vieille femme fit un pas en avant et chargea vers le singe noir. Un brouillard empoisonné commença à se répandre devant elle.
 

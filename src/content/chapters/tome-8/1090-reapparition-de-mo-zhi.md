@@ -10,13 +10,13 @@ Depuis la fondation des Quatre Sectes Divines, l'apparition d'un nouvel Empereur
 
 Bien que le Royaume Céleste fût souverain, à l'apogée des Quatre Sectes Divines, alors que les quatre Empereurs Divins étaient présents, même le Royaume Céleste de la Pluie devait leur témoigner un grand respect. Chaque fois qu'un nouvel Empereur Divin émergeait, le Royaume Céleste envoyait des cadeaux de félicitations.
 
-À cette époque, l'Alliance de Culture n'existait pas encore; il n'y avait que le Royaume du Vide Brillant. Pour être plus précis, le Royaume du Vide Brillant était une branche directement rattachée au Royaume Céleste, chargé de superviser tous les cultivateurs des royaumes inférieurs.
+À cette époque, l'Alliance Xiu Zhen n'existait pas encore; il n'y avait que le Royaume Kun Xu. Pour être plus précis, le Royaume Kun Xu était une branche directement rattachée au Royaume Céleste, chargé de superviser tous les cultivateurs des royaumes inférieurs.
 
-Cependant, en raison de la puissance des Quatre Sectes Divines et d'autres raisons particulières, le Royaume Céleste avait permis aux Quatre Sectes Divines et au Royaume du Vide Brillant de coexister.
+Cependant, en raison de la puissance des Quatre Sectes Divines et d'autres raisons particulières, le Royaume Céleste avait permis aux Quatre Sectes Divines et au Royaume Kun Xu de coexister.
 
 L'apparition d'un nouvel Empereur Divin suffisait à provoquer une immense fluctuation de l'énergie originelle. Pour les puissants cultivateurs, c'était un phénomène qu'ils pouvaient aisément ressentir.
 
-À cet instant précis, alors que Wang Lin achevait sa première transformation, l'énergie originelle de tout le Système Stellaire de l'Alliance commença à onduler, prenant pour centre la Secte de l'Oiseau Vermillon.
+À cet instant précis, alors que Wang Lin achevait sa première transformation, l'énergie originelle de tout le Système Stellaire de l'Alliance commença à onduler, prenant pour centre la Secte Zhu Que.
 
 Luotian occupait les régions occidentales et septentrionales du Système Stellaire de l'Alliance. Les messagers du Temple Céleste du Tonnerre étaient partout. Après avoir annexé avec succès ces deux régions, le Temple Céleste du Tonnerre y exerçait désormais une domination suprême.
 
@@ -38,7 +38,7 @@ L'un des anciens déclara d'une voix lente: « Cette fluctuation de l'énergie o
 
 Maître Yan Leizi réfléchit et secoua la tête. « Cette fluctuation n'est pas la naissance d'un trésor puissant... La région orientale appartient aux Quatre Sectes Divines... Serait-ce possible... qu'un nouvel Empereur Divin soit apparu? » Les yeux de Maître Yan Leizi s'illuminèrent. Il n'en était pas tout à fait certain; après tout, il avait quitté l'Alliance depuis longtemps.
 
-« Les Quatre Sectes Divines? Si l'Alliance de Culture n'est pas de taille face à nous, une si petite secte s'effondrerait simplement sous la pression de notre armée de Luotian! » Un vieil homme aux cheveux roux, à l'intérieur du palais, afficha un regard empreint de mépris et de fierté.
+« Les Quatre Sectes Divines? Si l'Alliance Xiu Zhen n'est pas de taille face à nous, une si petite secte s'effondrerait simplement sous la pression de notre armée de Luotian! » Un vieil homme aux cheveux roux, à l'intérieur du palais, afficha un regard empreint de mépris et de fierté.
 
 Maître Yan Leizi regarda le vieillard roux et dit: « Les Quatre Sectes Divines ne sont certainement pas ce que tu imagines. Cette fluctuation de l'énergie originelle est probablement la naissance d'un nouvel Empereur Divin. Je me demande simplement lequel! »
 
@@ -50,7 +50,7 @@ Il leva immédiatement la tête et scruta l'horizon. Son regard semblait capable
 
 « Le nouvel Empereur Divin des Quatre Sectes Divines... Cette fluctuation contient une trace d'énergie originelle de feu; il doit donc s'agir du nouvel Empereur Divin de l'Oiseau Vermillon. Dans ce cas, la pièce devient bien plus intéressante... Maître Wuji, il est impossible que vous ne fassiez pas votre apparition lorsque l'Alliance sombrera dans le chaos! »
 
-Dans la partie sud de l'Alliance, au plus profond de la Secte des Cadavres, se trouvait un immense cercueil noir. Des chaînes l'entouraient selon une structure octogonale, le reliant à un autre cercueil.
+Dans la partie sud de l'Alliance, au plus profond de la Secte Shi Yin, se trouvait un immense cercueil noir. Des chaînes l'entouraient selon une structure octogonale, le reliant à un autre cercueil.
 
 Une multitude de cercueils remplissaient cette zone, formant une sorte de toile. Des planètes de culture avaient été déplacées ici par quelque sort inconnu et gravitaient autour de ces cercueils.
 

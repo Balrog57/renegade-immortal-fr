@@ -56,7 +56,7 @@ Alors que la voix diffuse résonnait, la fissure où se trouvait le pavillon de 
 
 À l'intérieur de la brèche, neuf planètes identiques formaient une formation dégageant la puissance du Royaume Céleste Antique!
 
-Palais Céleste, Palais Aquatique, Palais Montagneux, Palais Tonnerre, Palais Central, Palais du Vent, Palais de Feu, Palais de Terre, Palais des Marais. Différentes runes dorées apparaissaient sur chaque planète, dégageant une aura inimaginable. Dès l'instant où les neuf planètes apparurent, elles grondèrent et jaillirent de la fissure. Elles rétrécirent, devenant de plus en plus petites, jusqu'à charger dans le vide!
+Palais Céleste, Palais Aquatique, Palais Montagneux, Palais Tonnerre, Palais Central, Palais Xun, Palais Li, Palais Kun, Palais Dui. Différentes runes dorées apparaissaient sur chaque planète, dégageant une aura inimaginable. Dès l'instant où les neuf planètes apparurent, elles grondèrent et jaillirent de la fissure. Elles rétrécirent, devenant de plus en plus petites, jusqu'à charger dans le vide!
 
 Elles pénétrèrent la brèche et entrèrent dans le vide où se trouvait la Formation du Royaume Scellé. Elles tournoyaient tout en descendant sur Wang Lin!
 

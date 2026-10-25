@@ -116,7 +116,7 @@ Wang Lin n'avait pas ressenti cela depuis très longtemps. Même face au Serpent
 
 C'était comme s'il redevenait l'adolescent mortel debout au pied du pic de la Secte Heng Yue, levant les yeux vers cette immense secte de culture. Il ressentait ce genre de crainte révérencieuse qui vient du plus profond du cœur!
 
-À mesure que la culture et l'expérience de Wang Lin augmentaient, ce sentiment s'était progressivement évanoui. Même face à la tribulation céleste lors de son Ascendant dans la Terre des Esprits Démoniaques, il s'était appuyé sur sa conviction du Dao et sa ténacité pour résister de toutes ses forces!
+À mesure que la culture et l'expérience de Wang Lin augmentaient, ce sentiment s'était progressivement évanoui. Même face à la tribulation céleste lors de son Ascendant dans la Terre Yao Ling, il s'était appuyé sur sa conviction du Dao et sa ténacité pour résister de toutes ses forces!
 
 Mais en cet instant, bien que cette porte gigantesque ne dégageât aucune pression directe, son esprit et son corps tremblaient!
 

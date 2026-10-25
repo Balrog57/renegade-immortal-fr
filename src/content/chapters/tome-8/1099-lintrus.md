@@ -8,7 +8,7 @@ slug: lintrus
 ---
 Cette épée brisée était d'un rouge éclatant et, dès son apparition, une monstrueuse énergie de massacre se manifesta. Cette énergie était si puissante qu'elle déferla instantanément hors de la planète, repoussant même les flammes qui l'entouraient.
 
-Cette épée brisée était la source de l'énergie de massacre de Tian Yunzi en robe grise. Après la bataille dans la Terre des Esprits Démoniaques, l'épée brisée était restée dans le corps de Wang Lin. Durant ces trois années, tout en se soignant et en cultivant, il avait également affiné lentement son épée. La partie qui s'était fondue dans son âme originelle avait déjà été affinée, ne laissant que cette épée brisée dans son corps.
+Cette épée brisée était la source de l'énergie de massacre de Tian Yunzi en robe grise. Après la bataille dans la Terre Yao Ling, l'épée brisée était restée dans le corps de Wang Lin. Durant ces trois années, tout en se soignant et en cultivant, il avait également affiné lentement son épée. La partie qui s'était fondue dans son âme originelle avait déjà été affinée, ne laissant que cette épée brisée dans son corps.
 
 « Après trois ans d'affinage, j'ai acquis une certaine compréhension de base. Une fois cet affinage achevé, je pourrai cultiver l'Art Céleste du Massacre sans aucun problème. Il n'y aura plus aucun risque d'explosion lorsque j'atteindrai un million de brins d'énergie de massacre. »
 
@@ -106,7 +106,7 @@ Une ondulation apparut derrière lui et Wang Lin et Ling Er se matérialisèrent
 
 Wang Lin soupira et s'approcha du vieil homme. Il s'assit sur le rempart, saisit une cruche et prit lui aussi une grande gorgée.
 
-À cet instant précis, au cœur du Système Stellaire de l'Alliance, là où se trouvait l'Alliance des Cultivateurs, un groupe de dizaines de bêtes moustiques passa à toute allure. Leurs yeux étaient d'un rouge sanglant et un parfum que seules les bêtes moustiques pouvaient percevoir se répandait dans l'air. C'était comme si ces créatures étaient contrôlées par cette fragrance...
+À cet instant précis, au cœur du Système Stellaire de l'Alliance, là où se trouvait l'Alliance Xiu Zhen, un groupe de dizaines de bêtes moustiques passa à toute allure. Leurs yeux étaient d'un rouge sanglant et un parfum que seules les bêtes moustiques pouvaient percevoir se répandait dans l'air. C'était comme si ces créatures étaient contrôlées par cette fragrance...
 
 Trois jeunes hommes vêtus de jaune marchaient devant elles. Ils tenaient chacun un encens étrange, attirant soigneusement ce troupeau de bêtes moustiques.
 

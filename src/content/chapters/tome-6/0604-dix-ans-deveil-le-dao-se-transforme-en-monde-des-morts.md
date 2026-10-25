@@ -1,6 +1,6 @@
 ---
 n: 604
-title: "Dix ans d'éveil, le Dao se transforme en Monde des Morts"
+title: "Dix ans d'éveil, le Dao se transforme en Monde Huang Quan"
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 604 - Ten Years of Enlightenment, the Dao Transforms Into the Underworld
@@ -78,7 +78,7 @@ Les yeux de Wang Lin étaient d'un rouge éclatant. D'un geste de la main, il tr
 
 Au moment précis où l'homme d'âge mûr disparut, les cent trente mille filaments le rattrapèrent avec célérité!
 
-Il existait une formation de transfert très luxueuse dans la capitale du Pays du Démon de Feu, réservée aux hauts commandants. Le grand intendant du pays cultivait silencieusement près de l'autel de transfert.
+Il existait une formation de transfert très luxueuse dans la capitale du Pays Huo Yao, réservée aux hauts commandants. Le grand intendant du pays cultivait silencieusement près de l'autel de transfert.
 
 Il ouvrit soudainement les yeux et esquissa un sourire lors de l'activation de la formation. Il savait qu'un commandant ou un vice-commandant en chef revenait.
 
@@ -86,15 +86,15 @@ Il ouvrit soudainement les yeux et esquissa un sourire lors de l'activation de l
 
 Alors que la formation s'illuminait, une momie desséchée tomba du vide. Les yeux de la momie étaient encore ouverts, empreints d'une immense amertume.
 
-La mort d'un vice-commandant en chef était un événement majeur pour n'importe quel pays de la Terre des Esprits Démoniaques. Le rugissement furieux de l'Empereur Démon du Pays du Démon de Feu résonna dans toute la capitale.
+La mort d'un vice-commandant en chef était un événement majeur pour n'importe quel pays de la Terre Yao Ling. Le rugissement furieux de l'Empereur Démon du Pays Huo Yao résonna dans toute la capitale.
 
 « Fouillez tout! Trouvez ce cultivateur et tuez-le. Peu importe son identité, je veux sa mort! »
 
-Alors que Wang Lin quittait la ville, à la frontière entre le Pays du Démon de Feu et celui du Démon Céleste, il emportait avec lui cent mille filaments d'énergie de massacre.
+Alors que Wang Lin quittait la ville, à la frontière entre le Pays Huo Yao et celui du Démon Céleste, il emportait avec lui cent mille filaments d'énergie de massacre.
 
 La puissance du Fruit de l'Ascension Céleste en lui était toujours aussi intense. Loin de diminuer son intention de combat, les tueries ne faisaient que l'accroître! Son intention meurtrière s'intensifiait de plus en plus.
 
-Il se transforma en un météore féroce, franchit la Montagne des Dix Mille Démons et fonça vers le lieu qu'il percevait!
+Il se transforma en un météore féroce, franchit la Montagne Wan Yao et fonça vers le lieu qu'il percevait!
 
 Ces derniers jours, ce grognement glacial ne se fit plus entendre. Le corps de Wang Lin s'était déjà rétabli grâce à toute la force vitale qu'il avait puisée dans la terre. En réalité, son corps progressait vers son apogée grâce à cette immense énergie de massacre.
 

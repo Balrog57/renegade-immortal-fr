@@ -8,7 +8,7 @@ slug: entree-dans-la-secte
 ---
 Au moment où le mot « Senior » fut prononcé, trois anneaux supplémentaires s'illuminèrent, portant le total à 43. Une fois ces 43 anneaux allumés, aucun autre ne s'anima, mais ils se mirent à briller en se renvoyant mutuellement leur éclat.
 
-L'attitude des huit jeunes changea de nouveau. Leurs visages changèrent plusieurs fois, la stupeur disparut, et leurs yeux se remplirent d'une ferveur proche de l'adoration. Ils passèrent du genou à terre à une prosternation complète, les deux genoux au sol, tout en fixant intensément la formation. Il faut dire que si 40 anneaux s'allument, cela signifie que le statut de la personne au sein de la Secte des Cadavres est extrêmement élevé; si ce nombre dépasse 40, il s'agit d'un ancêtre de l'Âme Naissante.
+L'attitude des huit jeunes changea de nouveau. Leurs visages changèrent plusieurs fois, la stupeur disparut, et leurs yeux se remplirent d'une ferveur proche de l'adoration. Ils passèrent du genou à terre à une prosternation complète, les deux genoux au sol, tout en fixant intensément la formation. Il faut dire que si 40 anneaux s'allument, cela signifie que le statut de la personne au sein de la Secte Shi Yin est extrêmement élevé; si ce nombre dépasse 40, il s'agit d'un ancêtre de l'Âme Naissante.
 
 Comprenant cela, leur réaction était tout à fait logique.
 
@@ -70,9 +70,9 @@ Wang Lin fronça légèrement les sourcils. « Cet individu parle bien trop », 
 
 Le jeune homme, ignorant l'agacement qu'il provoquait, poursuivit son monologue malgré le silence de Wang Lin.
 
-Après moins d'un quart d'heure de marche, le garçon était passé de la marionnette cadavérique à ses condisciples, puis de ses condisciples à son maître, puis du maître au maître de son maître, et ainsi de suite. Bien que Wang Lin fût importuné, il parvint à glaner de nombreuses informations sur la Secte des Cadavres.
+Après moins d'un quart d'heure de marche, le garçon était passé de la marionnette cadavérique à ses condisciples, puis de ses condisciples à son maître, puis du maître au maître de son maître, et ainsi de suite. Bien que Wang Lin fût importuné, il parvint à glaner de nombreuses informations sur la Secte Shi Yin.
 
-« La Secte des Cadavres de Zhao, chez nous, est vraiment prodigieuse. Des pays de culture de rang 4 et 5 jusqu'à ceux de rang 1 et 2, presque tous nous prennent pour relais. Par exemple, cette fois, le test de promotion de la Secte des Cadavres des pays de rang 1 et 2 se déroule chez nous... »
+« La Secte Shi Yin de Zhao, chez nous, est vraiment prodigieuse. Des pays de culture de rang 4 et 5 jusqu'à ceux de rang 1 et 2, presque tous nous prennent pour relais. Par exemple, cette fois, le test de promotion de la Secte Shi Yin des pays de rang 1 et 2 se déroule chez nous... »
 
 Le tunnel s'élargissait à mesure que le garçon parlait sans relâche.
 
@@ -90,7 +90,7 @@ Wang Lin utilisa son sens divin et découvrit que l'homme se trouvait au stade i
 
 À cet instant, le jeune homme entra précipitamment dans la grotte et s'adressa au vieil homme: « Ancien, ce senior vient de sortir de la formation de transfert. Quarante-trois anneaux se sont allumés à son arrivée, et il souhaite voir l'ancêtre Ye. »
 
-À ces mots, l'expression du vieil homme changea, son indifférence disparut. Il fixa Wang Lin avec un regard étrange et demanda d'une voix grave: « Camarade cultivateur, qui vous a ouvert la formation de ma Secte des Cadavres? »
+À ces mots, l'expression du vieil homme changea, son indifférence disparut. Il fixa Wang Lin avec un regard étrange et demanda d'une voix grave: « Camarade cultivateur, qui vous a ouvert la formation de ma Secte Shi Yin? »
 
 Wang Lin répondit calmement: « Wu Yu. »
 
@@ -98,7 +98,7 @@ En entendant ce nom, le visage du vieil homme changea de nouveau. Il se leva aus
 
 Wang Lin regarda l'homme et répondit simplement: « Disciple. »
 
-Le vieil homme inspira brusquement. Wu Yu avait un rang de génération extrêmement élevé au sein de la Secte des Cadavres de Zhao. Si les paroles de Wang Lin étaient vraies, il ne pouvait se permettre de l'offenser. Il se hâta de sourire et dit: « Ainsi, c'est l'oncle-maître qui revient à la secte. Moi, le cadet, je m'appelle Mu Rong. Puis-je connaître le nom de l'oncle-maître? »
+Le vieil homme inspira brusquement. Wu Yu avait un rang de génération extrêmement élevé au sein de la Secte Shi Yin de Zhao. Si les paroles de Wang Lin étaient vraies, il ne pouvait se permettre de l'offenser. Il se hâta de sourire et dit: « Ainsi, c'est l'oncle-maître qui revient à la secte. Moi, le cadet, je m'appelle Mu Rong. Puis-je connaître le nom de l'oncle-maître? »
 
 Wang Lin esquissa un léger sourire: « Je m'appelle Wang Lin. Quant au titre d'oncle-maître, je ne le mérite pas. »
 
@@ -118,13 +118,13 @@ Le jade émit quelques éclats lumineux avant de s'engouffrer rapidement dans l'
 
 Une fois l'acte accompli, Mu Rong reporta son attention sur Adai. Mais avant qu'il ne puisse parler, Wang Lin, contemplant les sphères de flamme bleue sur les piliers avec un air légèrement surpris, intervint: « Frère Mu, l'aura de ces sphères de flamme bleue est Yin mêlée de Yang. Ce ne sont pas des objets ordinaires. »
 
-Mu Rong eut un rire léger: « Frère Wang, cette Flamme Démoniaque Bleue est née, il y a des centaines d'années, des noyaux dorés de plusieurs experts de la Formation du Noyau de l'alliance des sectes orthodoxes. Après avoir été raffinée par l'ancêtre Ye, elle est devenue un nouveau trésor de notre Secte des Cadavres. Elle est très bénéfique à notre culture, et plus encore à nos marionnettes cadavériques. »
+Mu Rong eut un rire léger: « Frère Wang, cette Flamme Démoniaque Bleue est née, il y a des centaines d'années, des noyaux dorés de plusieurs experts de la Formation du Noyau de l'alliance des sectes orthodoxes. Après avoir été raffinée par l'ancêtre Ye, elle est devenue un nouveau trésor de notre Secte Shi Yin. Elle est très bénéfique à notre culture, et plus encore à nos marionnettes cadavériques. »
 
 Wang Lin fixa la flamme bleue. D'un geste de la main droite, il attira une fumée bleue d'une des sphères de flamme, qui vint flotter dans sa paume. Il l'observa un moment en se concentrant, puis y injecta son énergie spirituelle Yin. Dans un sifflement, la fumée bleue rétrécit instantanément et se mua en une petite sphère bleue flottant dans les airs.
 
 Le visage de Mu Rong changea légèrement; il regarda Wang Lin longuement et dit en souriant: « Frère Wang, condenser la fumée en une forme solide n'est point chose aisée sans une énergie Yin profonde. Il semble que l'oncle-maître Wu Yu vous porte une véritable affection. »
 
-Le dernier doute qui habitait Mu Rong à l'égard de Wang Lin s'évanouit après cette démonstration. Il ignorait qu'en dépit de la similitude apparente entre l'énergie Yin de la Secte des Cadavres et l'énergie spirituelle Yin dans le corps de Wang Lin, la différence entre elles était celle du ciel et de la terre.
+Le dernier doute qui habitait Mu Rong à l'égard de Wang Lin s'évanouit après cette démonstration. Il ignorait qu'en dépit de la similitude apparente entre l'énergie Yin de la Secte Shi Yin et l'énergie spirituelle Yin dans le corps de Wang Lin, la différence entre elles était celle du ciel et de la terre.
 
 À cet instant, les sphères de flamme bleue des piliers alentour s'assombrirent brusquement, libérant de grandes volutes de fumée verte qui se condensèrent très vite ensemble pour former une silhouette humaine illusoire, dont émanait une pression écrasante.
 

@@ -106,7 +106,7 @@ L'empreinte d'une paume géante fonça sur la concubine dès son apparition.
 
 L'expression de celle-ci changea radicalement et elle forma précipitamment un sceau pour rassembler l'énergie céleste. Une ombre vague se dessina devant elle, mais avant qu'elle ne puisse prendre forme, la voix de Wang Lin pénétra son esprit:
 
-« Cultivatrice du Continent Astral Immortel. Concubine du Maître de la Secte des Sept Dao. Penses-tu que je ne sache rien? »
+« Cultivatrice du Continent Astral Immortel. Concubine du Maître de la Secte Qi Dao. Penses-tu que je ne sache rien? »
 
 La vérité étant exposée, le sort de la concubine vacilla un instant. Ses yeux se remplirent d'incrédulité; elle n'aurait jamais imaginé que Wang Lin soit au courant!
 

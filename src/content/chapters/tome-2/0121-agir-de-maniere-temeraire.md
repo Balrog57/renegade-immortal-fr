@@ -22,7 +22,7 @@ Quant à la formation de ces champs de bataille et aux destinations de ces faill
 
 Chaque pays de rang 5 contrôle de nombreux pays de rang 4, et chaque pays de rang 4 en contrôle de nombreux de rang 3. Quant aux pays de rang 1 et 2, l'Union a instauré des règles strictes pour empêcher quiconque d'entraver leur croissance.
 
-Zhao est un pays de culture de rang 3 de la Planète Suzaku, contrôlé par le pays de rang 4 du Dragon Vert, lui-même soumis au pays de rang 5 du Clan des Démons Géants.
+Zhao est un pays de culture de rang 3 de la Planète Suzaku, contrôlé par le pays de rang 4 du Dragon Vert, lui-même soumis au pays de rang 5 du Clan Ju Mo.
 
 Chaque fois qu'une bataille de grande ampleur éclate dans un champ de bataille étranger, tous les cultivateurs de l'Âme Naissante de Zhao sont réquisitionnés pour combattre. Ils n'ont ni le droit de retarder leur départ, ni celui de résister. Autrefois, les cinq ancêtres de l'Âme Naissante de la Secte Heng Yue avaient été appelés. S'ils partaient, la Secte Heng Yue serait en sécurité, mais leur survie était incertaine. S'ils refusaient, non seulement la Secte Heng Yue serait anéantie, mais eux aussi ne pourraient y échapper.
 
@@ -36,7 +36,7 @@ Mais le monde antique de la culture s'est soudainement effondré lors d'un grand
 
 Il est désormais prouvé qu'une culture dépourvue de désir mène à la destruction : c'était une voie erronée. Seule la voie où règnent la loi du plus fort et la sélection naturelle permet réellement de survivre. Bien qu'ils en ignorent le résultat final, du moins pour l'instant, sous la direction de l'Union, les cultivateurs actuels sont bien plus puissants que ceux des temps anciens. Et cela suffit amplement.
 
-À cet instant, un événement étrange se produisait dans l'un des champs de bataille étrangers appartenant au Clan des Démons Géants. Chaque cultivateur ayant acquis le Sens Divin au cours des trois dernières années fut pris de panique. Une immense pluie de météores semblait recouvrir le champ de bataille alors que chaque fragment de Sens Divin convergeait vers un point unique.
+À cet instant, un événement étrange se produisait dans l'un des champs de bataille étrangers appartenant au Clan Ju Mo. Chaque cultivateur ayant acquis le Sens Divin au cours des trois dernières années fut pris de panique. Une immense pluie de météores semblait recouvrir le champ de bataille alors que chaque fragment de Sens Divin convergeait vers un point unique.
 
 Peu après, le champ de bataille étranger, déjà au bord de l'effondrement, ne put supporter la puissance de ce Sens Divin et commença véritablement à s'écrouler. Une immense brèche apparut, comme si une gueule invisible avait englouti la moitié du champ de bataille, qui disparut sans un bruit.
 

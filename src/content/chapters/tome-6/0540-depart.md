@@ -66,9 +66,9 @@ Wang Lin réfléchit encore un instant, puis toucha sa sacoche de stockage. Il e
 
 En recevant le jade, l'excitation qui fit vibrer le cœur de Treize fut indescriptible. Il se prosterna plusieurs fois avant de s'éclipser.
 
-Ce n'est qu'une fois Treize parti que Wang Lin laissa échapper un soupir. En fin de compte, il n'avait pas transmis la Tactique de l'Ancien Dieu à Treize. À la place, il avait résumé une partie de ce qu'il savait sur le Clan des Démons Géants pour le lui transmettre.
+Ce n'est qu'une fois Treize parti que Wang Lin laissa échapper un soupir. En fin de compte, il n'avait pas transmis la Tactique de l'Ancien Dieu à Treize. À la place, il avait résumé une partie de ce qu'il savait sur le Clan Ju Mo pour le lui transmettre.
 
-« S'il parvient à maîtriser la méthode de raffinement corporel du Clan des Démons Géants, je lui enseignerai le premier stade de la Tactique de l'Ancien Dieu. S'il échoue, cela signifiera simplement qu'il n'est pas destiné à l'apprendre. »
+« S'il parvient à maîtriser la méthode de raffinement corporel du Clan Ju Mo, je lui enseignerai le premier stade de la Tactique de l'Ancien Dieu. S'il échoue, cela signifiera simplement qu'il n'est pas destiné à l'apprendre. »
 
 En un clin d'œil, deux années supplémentaires s'écoulèrent. Durant cette période, la Tribu de l'Affinement de l'Âme connut une croissance fulgurante. Sa taille ne cessa de croître, passant de 20 kilomètres à environ 150 kilomètres de large, et la tribu comptait désormais plus de 5 000 hommes.
 
@@ -84,15 +84,15 @@ Une impasse s'était installée entre les trois tribus dans ce rayon de 50 000 k
 
 À l'origine, Ouyang Hua voulait attaquer l'une des grandes tribus, mais Wang Lin l'en avait empêché. Il voulait que les membres de la tribu cessent leurs offensives pour se concentrer sur leur culture. Les paroles de Wang Lin étaient perçues comme divines par le peuple de la tribu.
 
-Un cas remarquable était celui de Treize. La persévérance de cet enfant était prodigieuse; il avait réussi à assimiler une partie de la méthode de raffinement corporel du Clan des Démons Géants. Son corps était devenu dur comme l'acier et, lors des combats, il chargeait toujours en première ligne. Rien ne pouvait l'arrêter!
+Un cas remarquable était celui de Treize. La persévérance de cet enfant était prodigieuse; il avait réussi à assimiler une partie de la méthode de raffinement corporel du Clan Ju Mo. Son corps était devenu dur comme l'acier et, lors des combats, il chargeait toujours en première ligne. Rien ne pouvait l'arrêter!
 
 En quatre ans, Wang Lin avait transformé une petite tribu nichée dans une vallée en une grande puissance de plus de 5 000 personnes. Il ordonna à tous de se consacrer à la culture car il avait d'autres projets. Il avait décidé de quitter la tribu pour un temps!
 
-Sa cible était la Cité de l'Ancien Démon!
+Sa cible était la Cité Gu Yao!
 
 Quatre ans auparavant, Wang Lin avait eu l'occasion d'y aller, mais il s'en était abstenu car il ne disposait pas encore de sa propre force. Même s'il y était allé, cela aurait été vain.
 
-Après quatre ans, Wang Lin pouvait enfin se rendre à la Cité de l'Ancien Démon sans inquiétude. Même s'il ne parvenait pas à y établir une assise solide, il aurait tout de même la capacité d'infléchir le cours des événements en sa faveur.
+Après quatre ans, Wang Lin pouvait enfin se rendre à la Cité Gu Yao sans inquiétude. Même s'il ne parvenait pas à y établir une assise solide, il aurait tout de même la capacité d'infléchir le cours des événements en sa faveur.
 
 Pour faciliter les communications, il passa un demi-mois à fabriquer deux jades de transmission vocale. Il en garda un sur lui et laissa l'autre au sein de la Tribu de l'Affinement de l'Âme. S'il n'avait pas manqué de matériaux, il aurait installé une formation de transfert dans la tribu afin de pouvoir y revenir instantanément.
 

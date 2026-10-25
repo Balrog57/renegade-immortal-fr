@@ -8,13 +8,13 @@ slug: vous-etes-en-retard
 ---
 Des cultivateurs puissants comme cette vieille femme étaient parfaitement conscients du départ de Wu Qing. Au-delà de la renommée de ce dernier, c'était surtout son identité qui importait.
 
-Il était, après tout, un Ancien de rang 6 de la Secte de la Collection Démoniaque.
+Il était, après tout, un Ancien de rang 6 de la Secte Mo Cong.
 
 Son départ ne manqua pas d'attirer l'attention de nombreux vieux monstres, en particulier ceux qui devinaient ses intentions. Dans la partie est de la ville principale de Peng Lai, Cang Songzi était assis dans la salle où se déroulaient les échanges. Il tenait un jade à la main, l'esprit chargé d'incertitude.
 
 « Si je retourne là-bas avec autant de jades célestes, je réussirai à coup sûr! » Il prit une profonde inspiration et s'apprêtait à revoir son plan une dernière fois lorsqu'il redressa brusquement la tête. C'était comme si son regard pouvait percer les murs pour voir Wu Qing fendre les airs à l'extérieur.
 
-« Bien que Wu Qing soit désormais au stade de Briseur du Nirvana, sa cupidité n'a pas diminué; elle a même augmenté. Ce qui est encore plus frappant, c'est que bien qu'il se prenne pour un stratège, il n'est en réalité qu'un homme d'une immense vanité. Je l'ai invité à participer car j'avais entendu parler de frictions entre sa Secte de la Collection Démoniaque et Lu Zihao, et je voulais voir si je pouvais provoquer un conflit. Puisqu'il poursuit Lu Zihao, ce dernier mourra sans aucun doute. Peu importe. Puisque j'ai traité avec lui, je ne laisserai pas ses cristaux d'origine tomber entre les mains d'un autre. » Cang Songzi afficha un sourire sinistre tandis que son sens divin s'élançait pour suivre de près Wu Qing.
+« Bien que Wu Qing soit désormais au stade de Briseur du Nirvana, sa cupidité n'a pas diminué; elle a même augmenté. Ce qui est encore plus frappant, c'est que bien qu'il se prenne pour un stratège, il n'est en réalité qu'un homme d'une immense vanité. Je l'ai invité à participer car j'avais entendu parler de frictions entre sa Secte Mo Cong et Lu Zihao, et je voulais voir si je pouvais provoquer un conflit. Puisqu'il poursuit Lu Zihao, ce dernier mourra sans aucun doute. Peu importe. Puisque j'ai traité avec lui, je ne laisserai pas ses cristaux d'origine tomber entre les mains d'un autre. » Cang Songzi afficha un sourire sinistre tandis que son sens divin s'élançait pour suivre de près Wu Qing.
 
 Au quatrième étage d'un restaurant de la ville principale, un homme et une femme étaient assis l'un face à l'autre. L'homme était vêtu de blanc, et sa compagne était une magnifique jeune femme dont la robe fleurie sublimait la beauté du visage.
 
@@ -50,7 +50,7 @@ Un homme d'âge mûr était assis à une table dans la pièce voisine de celle d
 
 Il y avait également des cultivateurs puissants de diverses factions qui n'avaient pas déployé leur sens divin. Cependant, en remarquant que tous ces vieux monstres le faisaient, ils furent surpris et commencèrent eux aussi à observer.
 
-À cet instant, un courant sous-jacent commença à s'agiter suite au départ de Wu Qing! Nul ne pouvait prédire la suite. Ils seraient tous stupéfaits et son nom deviendrait une légende inoubliable. Il grimperait toujours plus haut. La bataille de Peng Lai serait le théâtre où il déploiera sa puissance devant toute la Mer des Nuages!
+À cet instant, un courant sous-jacent commença à s'agiter suite au départ de Wu Qing! Nul ne pouvait prédire la suite. Ils seraient tous stupéfaits et son nom deviendrait une légende inoubliable. Il grimperait toujours plus haut. La bataille de Peng Lai serait le théâtre où il déploiera sa puissance devant toute la Mer Yun!
 
 Li Qianmei n'était pas dans une auberge de la partie est de Peng Lai, mais sur un sommet vertigineux. Assise là, les vents violents faisaient flotter ses cheveux. Ses yeux brillaient tandis qu'elle regardait silencieusement vers l'ouest.
 
@@ -62,13 +62,13 @@ Ils atteignirent enfin la frontière entre les parties ouest et est de Peng Lai.
 
 Wang Lin ne devait pas seulement gagner; il devait remporter ce combat de manière éclatante, juste et rapide! Ce n'était qu'ainsi qu'il pourrait dissuader les autres cultivateurs de Peng Lai et leur faire comprendre que lui, Wang Lin, était un être qu'on ne pouvait point provoquer!
 
-S'il se contentait de cela, son intention ne serait pas pleinement exprimée. Non seulement il allait tuer Wu Qing, mais il ferait en sorte que les membres de la Secte de la Collection Démoniaque n'oseraient plus jamais l'attaquer ou chercher à se venger! Il devait inspirer la crainte et l'inquiétude! Avant d'apprendre l'existence de la région de rang 9, il avait été préoccupé, mais après les explications de Li Qianmei, ses doutes s'étaient envolés.
+S'il se contentait de cela, son intention ne serait pas pleinement exprimée. Non seulement il allait tuer Wu Qing, mais il ferait en sorte que les membres de la Secte Mo Cong n'oseraient plus jamais l'attaquer ou chercher à se venger! Il devait inspirer la crainte et l'inquiétude! Avant d'apprendre l'existence de la région de rang 9, il avait été préoccupé, mais après les explications de Li Qianmei, ses doutes s'étaient envolés.
 
 Soudain, Wang Lin s'arrêta et se retourna lentement. Il fit face à la silhouette de Wu Qing qui chargeait vers lui comme une rafale violente! Les yeux de Wu Qing étaient empreints d'une intention meurtrière qu'il ne cherchait même pas à dissimuler. Voyant que Wang Lin ne fuyait plus, il abattit sa main droite et attaqua immédiatement de toutes ses forces, sans retenue.
 
 Il activa sa culture de Briseur du Nirvana au stade initial et une montagne gigantesque apparut devant lui. D'un geste de la main, cette montagne s'abattit sur Wang Lin!
 
-« Cadet, ne me reproche pas ma cruauté. Tu as blessé un junior de ma Secte de la Collection Démoniaque, tu dois donc être prêt à mourir! Aujourd'hui, ce vieil homme détruira ton corps et utilisera ton âme originelle pour raffiner une pilule! »
+« Cadet, ne me reproche pas ma cruauté. Tu as blessé un junior de ma Secte Mo Cong, tu dois donc être prêt à mourir! Aujourd'hui, ce vieil homme détruira ton corps et utilisera ton âme originelle pour raffiner une pilule! »
 
 L'expression de Wang Lin resta de marbre face à la montagne qui fonçait sur lui. Lorsqu'elle fut à cinq pieds de lui, il leva sa main droite et décocha un coup de poing. Ce poing et la montagne entrèrent en collision dans un fracas capable de briser les cieux.
 
@@ -114,11 +114,11 @@ Un grondement tonnerre retentit et tous les trésors de Wu Qing explosèrent, ta
 
 Il avait d'abord appréhendé cette technique dans le Royaume Céleste de la Pluie. Il l'avait utilisée sans véritable compréhension, forçant le génie Hongdie à battre en retraite!
 
-Dans la Terre des Esprits Démoniaques, il en avait saisi à nouveau la technique et révélé son potentiel, stupéfiant le Général Démon Mo Lihai!
+Dans la Terre Yao Ling, il en avait saisi à nouveau la technique et révélé son potentiel, stupéfiant le Général Démon Mo Lihai!
 
-Lors de sa seconde visite dans la Terre des Esprits Démoniaques, l'empreinte de sa paume fit trembler les cieux et détruisit le huitième étage de la grotte céleste, laissant Ling Tianhou profondément ébranlé!
+Lors de sa seconde visite dans la Terre Yao Ling, l'empreinte de sa paume fit trembler les cieux et détruisit le huitième étage de la grotte céleste, laissant Ling Tianhou profondément ébranlé!
 
-Dans les décombres de l'Alliance, pour empêcher les membres de la Secte du Dao Pourpre de la Mer des Nuages de s'enfuir, il avait utilisé cette technique une fois de plus, massacrant tout ce qui se trouvait sur son passage! C'est à cet instant que Wang Lin avait appris le nom de ce sortilège!
+Dans les décombres de l'Alliance, pour empêcher les membres de la Secte Zi Dao de la Mer Yun de s'enfuir, il avait utilisé cette technique une fois de plus, massacrant tout ce qui se trouvait sur son passage! C'est à cet instant que Wang Lin avait appris le nom de ce sortilège!
 
 L'Empreinte de l'Esprit Guerrier!
 
@@ -142,7 +142,7 @@ Il poussa un cri et commença à reculer comme un fou. La peur dans ses yeux sub
 
 En un instant, la paume percuta Wu Qing et la terre entière trembla. Le corps de Wu Qing explosa en une brume de sang!
 
-Son âme originelle s'échappa, mais fut balayée par la paume avant d'avoir pu fuir. Tel un esquif solitaire dans un océan déchaîné, son âme se dissipa. L'Ancien de la Secte de la Collection Démoniaque, Wu Qing, était mort! Même dans l'instant ultime de sa vie, il fut consumé par la peur, la confusion et un profond regret.
+Son âme originelle s'échappa, mais fut balayée par la paume avant d'avoir pu fuir. Tel un esquif solitaire dans un océan déchaîné, son âme se dissipa. L'Ancien de la Secte Mo Cong, Wu Qing, était mort! Même dans l'instant ultime de sa vie, il fut consumé par la peur, la confusion et un profond regret.
 
 Dès que Wu Qing eut péri, Wang Lin s'avança vers l'endroit où l'espace de stockage avait été ouvert. Très peu de temps s'était écoulé entre l'arrivée et la mort de Wu Qing. Bien qu'il ne s'agût pas d'une exécution instantanée, elle fut d'une netteté absolue.
 
@@ -170,7 +170,7 @@ Un fracas apocalyptique remplaça tout autre son au monde. La paume traversa la 
 
 Une seule paume pour percer les cieux! Elle brisa la barrière protectrice de Peng Lai et s'engouffra dans l'espace. De vastes quantités de brume furent aspirées par la paume, augmentant considérablement sa puissance.
 
-Non loin de Peng Lai se trouvait un continent sauvage. C'était une terre interdite de la Secte du Jade Précieux, où aucun cultivateur extérieur n'était admis. La paume se dirigeait droit sur lui.
+Non loin de Peng Lai se trouvait un continent sauvage. C'était une terre interdite de la Secte Bao Yu, où aucun cultivateur extérieur n'était admis. La paume se dirigeait droit sur lui.
 
 En un instant, la paume absorba une brume infinie pour devenir une main gigantesque dont on ne percevait plus les limites. Elle ressemblait à la paume d'un Dieu Ancien lorsqu'elle percuta le continent sauvage.
 
@@ -182,7 +182,7 @@ La paume finit par se dissiper!
 
 Wang Lin fut surpris. Il n'avait pas imaginé que la paume posséderait une telle puissance une fois libérée de son contrôle. Il devinait vaguement que l'empreinte dans le Royaume Céleste de la Pluie s'était manifestée de la même manière.
 
-Au loin, l'homme d'âge mûr de la Secte de la Collection Démoniaque contemplait la scène, haletant. Ses yeux étaient écarquillés d'incrédulité, et Wang Lin venait de déclencher une tempête terrifiante dans son cœur.
+Au loin, l'homme d'âge mûr de la Secte Mo Cong contemplait la scène, haletant. Ses yeux étaient écarquillés d'incrédulité, et Wang Lin venait de déclencher une tempête terrifiante dans son cœur.
 
 « Ceci... C'est l'Empreinte de l'Esprit Guerrier!! L'identité de cet homme... » Son visage était livide, saisi par le choc. La peur qui l'habitait rendait toute pensée de vengeance pour Wu Qing totalement impossible.
 
@@ -206,7 +206,7 @@ Non loin de là, le vieil homme balafré restait pétrifié. Il n'arrivait toujo
 
 Le vieillard desséché en noir fut le plus chanceux. À cet instant, les deux sphères dans ses mains avaient cessé de tourner. Son visage était pâle et la sueur froide coulait sur son front alors qu'il reprenait son souffle.
 
-« Heureusement que Wu Qing a attaqué en premier; sinon, c'est moi qui serais mort! La Secte de la Collection Démoniaque sera bientôt anéantie pour avoir osé provoquer quelqu'un de la Secte Divine! »
+« Heureusement que Wu Qing a attaqué en premier; sinon, c'est moi qui serais mort! La Secte Mo Cong sera bientôt anéantie pour avoir osé provoquer quelqu'un de la Secte Divine! »
 
 Il y avait aussi la vieille femme en vert qui avait vendu la carte des étoiles à Wang Lin. Ses yeux s'illuminèrent et elle fronça les sourcils, réprimant le choc dans son cœur. Elle observa les ruines laissées par la paume, mais nul ne savait ce qu'elle pensait réellement.
 

@@ -12,7 +12,7 @@ Wang Lin savait que la Restriction des 18 Pruniers était très célèbre dans l
 
 De nos jours, cette méthode de restriction était perdue depuis longtemps, et de nombreux maîtres des restrictions la regrettaient amèrement.
 
-La première fois que Wang Lin avait vu de vrais vestiges des 18 Pruniers Restrictifs, c'était dans la grotte de la Terre des Esprits Démoniaques. Lorsqu'il vit apparaître 18 restrictions au moment même où Li Yuan bougeait la main, Wang Lin commença à soupçonner quelque chose.
+La première fois que Wang Lin avait vu de vrais vestiges des 18 Pruniers Restrictifs, c'était dans la grotte de la Terre Yao Ling. Lorsqu'il vit apparaître 18 restrictions au moment même où Li Yuan bougeait la main, Wang Lin commença à soupçonner quelque chose.
 
 Ce qui renforça ses soupçons fut que lorsqu'il reçut le jade contenant les informations sur la restriction cachée, 18 statues apparurent au moment même où il l'examina!
 

@@ -1,12 +1,12 @@
 ---
 n: 1617
-title: Voici le Continent des Immortels Célestes
+title: Voici le Continent Xian Gang
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1617 - This is the Celestial Immortal Continent
 slug: voici-le-continent-des-immortels-celestes
 ---
-« Espèces de déchets! Vous n'avez toujours pas capturé cet endroit après tout ce temps? L'avatar de ce vieil homme est ici aujourd'hui. Suivez-moi et prenez ce lieu! » Le vieil homme laissa échapper un froid renâclement avant de détourner son regard de la Porte du Vide pour s'avancer vers la Planète Suzaku.
+« Espèces de déchets! Vous n'avez toujours pas capturé cet endroit après tout ce temps? L'avatar de ce vieil homme est ici aujourd'hui. Suivez-moi et prenez ce lieu! » Le vieil homme laissa échapper un froid renâclement avant de détourner son regard de la Porte Kong pour s'avancer vers la Planète Suzaku.
 
 Ce vieil homme était très célèbre, et presque tout le monde dans le Royaume Intérieur le connaissait également. Il était l'un des Cinq Maîtres du Système Stellaire Antique, Xushen Tianzun!
 
@@ -14,15 +14,15 @@ Ce vieil homme était très célèbre, et presque tout le monde dans le Royaume 
 
 Tandis que l'ondulation se répandait, Xushen Tianzun ricana et fit un pas vers la planète Suzaku. La formation gronda et changea radicalement, semblant sur le point de s'effondrer.
 
-Derrière le vieil homme, le jeune homme en robe verte et Zhou Jin se remirent du choc causé par la Porte du Vide. Cependant, le tremblement de leur cœur ne s'était pas apaisé. Zhou Jin leva les yeux vers la Porte du Vide, le regard empreint de terreur.
+Derrière le vieil homme, le jeune homme en robe verte et Zhou Jin se remirent du choc causé par la Porte Kong. Cependant, le tremblement de leur cœur ne s'était pas apaisé. Zhou Jin leva les yeux vers la Porte Kong, le regard empreint de terreur.
 
 Juste au moment où Zhou Jin allait détourner les yeux, ses prunelles s'agrandirent soudainement. Son corps trembla une fois de plus; il se figea sur place, l'expression profondément changée.
 
-Au même instant, le jeune homme en robe verte leva également les yeux vers la Porte du Vide. Son esprit fut secoué et ses yeux se remplirent d'incrédulité.
+Au même instant, le jeune homme en robe verte leva également les yeux vers la Porte Kong. Son esprit fut secoué et ses yeux se remplirent d'incrédulité.
 
 « Les six... la sixième essence!!! Il existe quelqu'un dans ce monde capable de posséder six essences!!! »
 
-Les pupilles de Xushen Tianzun se rétractèrent. Il fixa la Porte du Vide avec une expression extrêmement sombre.
+Les pupilles de Xushen Tianzun se rétractèrent. Il fixa la Porte Kong avec une expression extrêmement sombre.
 
 Dans le vide infini, Wang Lin agita sa main droite et la cinquième essence, le Vrai et le Faux, se condensa en un sceau. Son sixième sort original: le Sceau Éternel du Vrai et du Faux.
 
@@ -40,7 +40,7 @@ Cette sixième essence était l'essence de massacre!
 
 Alors que la brume se dissipait, la silhouette de Wang Lin apparut. Son apparence dégageait une intention meurtrière puissante et une aura de massacre féroce jaillit de son corps.
 
-« Aujourd'hui, moi, Wang Lin, j'utiliserai ces six essences pour briser la Porte du Vide et atteindre la troisième étape! » Wang Lin sourit et agita sa main droite. La lumière sanglante autour de lui s'effondra.
+« Aujourd'hui, moi, Wang Lin, j'utiliserai ces six essences pour briser la Porte Kong et atteindre la troisième étape! » Wang Lin sourit et agita sa main droite. La lumière sanglante autour de lui s'effondra.
 
 Au moment où la lumière sanguine se résorba, Wang Lin rangea le fou qui était toujours dans le coma. D'un geste de la main, la lumière rouge effondrée se condensa à nouveau pour redevenir la goutte de sang que le Souverain avait séparée de son corps!
 
@@ -78,29 +78,29 @@ Cette enfant semblait n'avoir que sept ou huit ans et était très jolie. Ses ye
 
 Observant le vortex menant au monde mystérieux, Wang Lin réfléchit silencieusement. Après un long moment, ses yeux s'illuminèrent et il se dirigea vers le vortex menant à la planète Suzaku. Au moment où il allait y pénétrer, la voix ténue d'un enfant résonna dans son esprit.
 
-« Pourquoi pars-tu? C'est le Continent des Immortels Célestes... Je m'appelle Wa Wa, et toi, quel est ton nom? »
+« Pourquoi pars-tu? C'est le Continent Xian Gang... Je m'appelle Wa Wa, et toi, quel est ton nom? »
 
 Le pas de Wang Lin s'arrêta, mais la voix était floue. Elle semblait simplement trop lointaine et se dissipa progressivement.
 
-« Continent des Immortels Célestes! » Wang Lin se retourna vers l'autre vortex. Ce n'était pas la première fois qu'il en entendait parler; il l'avait déjà entendu du fou auparavant.
+« Continent Xian Gang! » Wang Lin se retourna vers l'autre vortex. Ce n'était pas la première fois qu'il en entendait parler; il l'avait déjà entendu du fou auparavant.
 
-Le fou avait dit un jour que sa terre natale s'appelait le « Continent des Immortels Célestes ».
+Le fou avait dit un jour que sa terre natale s'appelait le « Continent Xian Gang ».
 
 Wang Lin médita en silence et comprit vaguement certaines choses. Il était sur le point de découvrir un secret capable de faire trembler les cieux concernant les Royaumes Intérieur et Extérieur. Cependant, une fine barrière l'empêchait encore d'achever sa réflexion.
 
-« Continent des Immortels Célestes, Daoïste aux Sept Couleurs, Qing Shui, le Fou, le Souverain, le Vieux Fantôme Zhan, l'élevage du Dao céleste... la Perle Défiant le Ciel... l'ancien domaine immortel... Et aussi ce que le Vieux Fantôme Zhan a dit au Souverain: "la grotte intérieure"... Il y a un fil qui relie toutes ces choses. J'ignore ce qu'il est, mais une fois connecté, cela révélera le secret terrifiant des Royaumes Intérieur et Extérieur! »
+« Continent Xian Gang, Daoïste aux Sept Couleurs, Qing Shui, le Fou, le Souverain, le Vieux Fantôme Zhan, l'élevage du Dao céleste... la Perle Défiant le Ciel... l'ancien domaine immortel... Et aussi ce que le Vieux Fantôme Zhan a dit au Souverain: "la grotte intérieure"... Il y a un fil qui relie toutes ces choses. J'ignore ce qu'il est, mais une fois connecté, cela révélera le secret terrifiant des Royaumes Intérieur et Extérieur! »
 
 « Peut-être que le moi d'avant le Dao du Rêve n'était pas qualifié pour le savoir, mais maintenant, je le suis! » Un éclat de froideur apparut dans les yeux de Wang Lin et il marcha vers le vortex menant à la planète Suzaku.
 
 Sa silhouette fusionna immédiatement avec le vortex et disparut.
 
-Dans le Vide Brillant, à l'extérieur de la planète Suzaku, la Porte du Vide qui était apparue était entourée de six essences, ce qui en faisait une existence de pointe jamais vue auparavant.
+Dans le Vide Brillant, à l'extérieur de la planète Suzaku, la Porte Kong qui était apparue était entourée de six essences, ce qui en faisait une existence de pointe jamais vue auparavant.
 
-La Porte du Vide était là, mais la personne capable de la briser ne s'était pas encore manifestée. Elle dégageait une aura suffocante que même les cultivateurs du Royaume Extérieur comme Xushen Tianzun pouvaient ressentir.
+La Porte Kong était là, mais la personne capable de la briser ne s'était pas encore manifestée. Elle dégageait une aura suffocante que même les cultivateurs du Royaume Extérieur comme Xushen Tianzun pouvaient ressentir.
 
 « Bon sang, il y a réellement six essences. Même le Souverain ne pourrait rien faire de tel. Si cette personne parvient à briser la porte, même s'il n'est qu'au stade précoce du Vide du Nirvana, il pourra combattre des cultivateurs du stade précoce du Vide Arcanique et franchir rapidement les royaumes du vide! »
 
-« Si cette personne est un cultivateur du Royaume Intérieur, elle doit être éliminée! » Une intention meurtrière traversa les yeux de Xushen Tianzun. Il ne regarda plus la Porte du Vide qui l'effrayait et s'avança vers la planète Suzaku.
+« Si cette personne est un cultivateur du Royaume Intérieur, elle doit être éliminée! » Une intention meurtrière traversa les yeux de Xushen Tianzun. Il ne regarda plus la Porte Kong qui l'effrayait et s'avança vers la planète Suzaku.
 
 Bien qu'il ne fût ici qu'avec un avatar, celui-ci se trouvait au stade précoce du Vide Arcanique. Alors qu'il approchait de la formation entourant la planète Suzaku, il leva son bras droit tout entier, qui se transforma en une brume violette. Cette brume s'étendit rapidement et fonça sur la formation.
 
@@ -110,6 +110,6 @@ Des grondements tonitruants retentirent, et la formation qui avait tenu plusieur
 
 Des milliers de cultivateurs du Royaume Intérieur entouraient la statue. Ils étaient prêts à se battre jusqu'à la mort.
 
-Avec un ricanement, Xushen Tianzun leva sa main droite, prêt à détruire la statue. Cependant, à cet instant précis, son expression changea et il fixa l'espace à côté de la Porte du Vide.
+Avec un ricanement, Xushen Tianzun leva sa main droite, prêt à détruire la statue. Cependant, à cet instant précis, son expression changea et il fixa l'espace à côté de la Porte Kong.
 
 « La personne qui va tenter de briser la porte! »

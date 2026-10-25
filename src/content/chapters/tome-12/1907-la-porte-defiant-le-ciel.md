@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1907 - Heaven Defying Gate!"
 slug: la-porte-defiant-le-ciel
 ---
-Les cultivateurs du Continent du Démon Vert s'inclinèrent avec un immense respect vers le temple de scorpion effondré, maintenant que la pression de la Tribulation Arcanique avait disparu.
+Les cultivateurs du Continent Lu Mo s'inclinèrent avec un immense respect vers le temple de scorpion effondré, maintenant que la pression de la Tribulation Arcanique avait disparu.
 
 L'aura de la Tribulation du Vide faisait rage au cœur de la tempête, d'une puissance extrême. À mesure que cette aura se dissipait, les couleurs du monde changeaient; c'était comme si le ciel lui-même cherchait à l'éviter.
 
@@ -24,7 +24,7 @@ C'était une sensation merveilleuse.
 
 Un instant plus tard, alors que la tempête s'effaçait derrière lui, il ouvrit soudainement les yeux. Il serra le poing droit et un craquement résonna dans sa main. Une puissance terrifiante, dépassant largement le stade initial de la Tribulation du Vide, se concentra dans sa paume.
 
-Alors qu'il contractait son poing, la terre sous ses pieds gronda et d'innombrables fissures se propagèrent. La pression de sa culture de la Tribulation du Vide se répandit soudainement. Les cultivateurs du Continent du Démon Vert reculèrent immédiatement, observant Wang Lin avec suspicion.
+Alors qu'il contractait son poing, la terre sous ses pieds gronda et d'innombrables fissures se propagèrent. La pression de sa culture de la Tribulation du Vide se répandit soudainement. Les cultivateurs du Continent Lu Mo reculèrent immédiatement, observant Wang Lin avec suspicion.
 
 Ils ne ressentaient aucune trace de l'aura du Scorpion Démon Vert émanant de lui. À cet instant, leurs expressions changèrent toutes.
 
@@ -42,25 +42,25 @@ Une force destructrice jaillit et pénétra dans les profondeurs. Tandis que la 
 
 Le fond du temple du scorpion était le lieu où le Scorpion Démon Vert était réprimé! À cet instant, Wang Lin fit s'écrouler le sol, ouvrant de force un passage vers l'endroit où l'âme du scorpion était scellée.
 
-Au moment où la terre fut éventrée, un rugissement qui fit trembler les cultivateurs du Continent du Démon Vert jaillit du gouffre. Ce cri était d'une férocité extrême, chargé d'un ressentiment infini.
+Au moment où la terre fut éventrée, un rugissement qui fit trembler les cultivateurs du Continent Lu Mo jaillit du gouffre. Ce cri était d'une férocité extrême, chargé d'un ressentiment infini.
 
 Tandis que le hurlement résonnait, d'épaisses nappes de brume verte jaillirent des profondeurs. Cette brume s'éleva comme un pilier vers les cieux avant de prendre rapidement la forme d'un scorpion vert géant dans le ciel!
 
-Le scorpion mesurait des centaines de milliers de pieds de large et, dès son apparition, il projeta une ombre immense sur la terre. En voyant cela, les cultivateurs du Continent du Démon Vert furent frappés d'horreur!
+Le scorpion mesurait des centaines de milliers de pieds de large et, dès son apparition, il projeta une ombre immense sur la terre. En voyant cela, les cultivateurs du Continent Lu Mo furent frappés d'horreur!
 
 « Seigneur Démon Vert! »
 
 « C'est... Que se passe-t-il? L'âme du Seigneur Démon Vert est apparue, alors qui est cet homme?! »
 
-« Se pourrait-il qu'il ne soit pas la résurrection du Seigneur Démon Vert, revenu par possession d'un autre corps?! » Les cultivateurs du Continent du Démon Vert étaient plongés dans le doute. En voyant la brume verte se transformer en ce scorpion gigantesque, une pensée incroyable leur traversa l'esprit!
+« Se pourrait-il qu'il ne soit pas la résurrection du Seigneur Démon Vert, revenu par possession d'un autre corps?! » Les cultivateurs du Continent Lu Mo étaient plongés dans le doute. En voyant la brume verte se transformer en ce scorpion gigantesque, une pensée incroyable leur traversa l'esprit!
 
-« Wang Lin! C'est Wang Lin, du Continent du Taureau Céleste! » s'exclama l'un des cultivateurs de la Secte du Dao Démoniaque. Il y a plus de cent ans, alors qu'il se trouvait à la frontière entre le Continent du Démon Vert et le Continent Terre-Meng, il avait participé à la traque de Wang Lin!
+« Wang Lin! C'est Wang Lin, du Continent Tian Niu! » s'exclama l'un des cultivateurs de la Secte Dao Mo. Il y a plus de cent ans, alors qu'il se trouvait à la frontière entre le Continent Lu Mo et le Continent Terre-Meng, il avait participé à la traque de Wang Lin!
 
 L'hésitation luttait en lui, jusqu'à ce qu'un fracas retentisse dans son esprit lorsqu'il reconnut enfin Wang Lin!
 
 L'âme du Scorpion Démon Vert surgissant du gouffre laissa échapper un sifflement violent. Son corps colossal vacillait dans le ciel tandis qu'il fixait Wang Lin. Quatre sceaux rouges marquaient son corps — sur la tête, la queue, ainsi qu'à l'avant et à l'arrière — dégageant une force de répression.
 
-Ces quatre sceaux avaient été forgés par l'Ancêtre Céleste pour emprisonner cette âme et en faire la puissance du Continent du Démon Vert!
+Ces quatre sceaux avaient été forgés par l'Ancêtre Céleste pour emprisonner cette âme et en faire la puissance du Continent Lu Mo!
 
 Le corps de Wang Lin paraissait minuscule face au scorpion vert. Pourtant, il restait là, le regard glacial, dégageant une aura capable de subjuguer l'âme du scorpion.
 
@@ -72,7 +72,7 @@ Rugissement!
 
 Le corps de l'âme du scorpion frémit et chargea de nouveau vers Wang Lin. À cet instant, un Sens Divin sombre et sinistre résonna:
 
-« Tous les cultivateurs du Continent du Démon Vert, tuez cet homme! »
+« Tous les cultivateurs du Continent Lu Mo, tuez cet homme! »
 
 Dès que le Sens Divin se propagea, l'expression de la douzaine de cultivateurs présents changea. Ils tournèrent tous leurs regards vers Wang Lin et se précipitèrent sur lui.
 

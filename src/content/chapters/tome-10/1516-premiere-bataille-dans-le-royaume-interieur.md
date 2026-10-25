@@ -10,7 +10,7 @@ Le son se propagea comme une vague à travers la Secte Divine, devenant de plus 
 
 Wang Lin regarda les cultivateurs devant lui et resta calme. Depuis son retour, il savait que puisqu'il avait obtenu l'héritage du Seigneur du Royaume Scellé, il se devait de perpétuer cette tradition!
 
-Il ressentit la gloire de la Mer des Nuages d'autrefois. Il joignit les mains en signe de respect envers tous, en silence.
+Il ressentit la gloire de la Mer Yun d'autrefois. Il joignit les mains en signe de respect envers tous, en silence.
 
 L'estimable Ling Dong et Zhou Jin retournèrent se tenir derrière Wang Lin. L'expression de Zhou Jin était complexe et ses yeux trahissaient une profonde stupéfaction; il ne s'attendait pas à ce que Wang Lin jouisse d'un statut aussi noble dans le Royaume Intérieur!
 
@@ -22,15 +22,15 @@ Les pensées de l'estimable Ling Dong étaient les plus simples. Il avait été 
 
 « Bord-des-Nuages, du Système Stellaire de la Rivière Invoquée, salue le Seigneur du Royaume Scellé. Ce qui s'est passé plus tôt était un malentendu, j'espère que le Seigneur du Royaume Scellé ne nous en tiendra pas rigueur. » L'homme d'âge moyen sourit amèrement en joignant les mains.
 
-« Ce vieil homme est Maître Hong Shan. J'avais conclu un accord avec le Seigneur du Royaume Scellé. Maintenant que vous avez tué cet esclave et sauvé la Mer des Nuages, vous êtes qualifié pour être le Seigneur du Royaume Scellé de cette génération! Cependant, l'invasion du Royaume Extérieur est imminente, et il sera difficile de résister avec nos seules forces, mais nous devons nous battre! Vous avez deux cultivateurs du troisième pas à vos côtés ainsi que votre propre force, mais cela reste insuffisant! »
+« Ce vieil homme est Maître Hong Shan. J'avais conclu un accord avec le Seigneur du Royaume Scellé. Maintenant que vous avez tué cet esclave et sauvé la Mer Yun, vous êtes qualifié pour être le Seigneur du Royaume Scellé de cette génération! Cependant, l'invasion du Royaume Extérieur est imminente, et il sera difficile de résister avec nos seules forces, mais nous devons nous battre! Vous avez deux cultivateurs du troisième pas à vos côtés ainsi que votre propre force, mais cela reste insuffisant! »
 
 « Puisque vous êtes le Seigneur du Royaume Scellé de cette génération, êtes-vous prêt à livrer un combat à mort avec moi et l'ensemble du Royaume Intérieur? » Les yeux de Maître Hong Shan brillaient comme des éclairs alors qu'il fixait Wang Lin, dégageant une pression comparable à celle de Lanmeng Daozun.
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 
-L'homme âgé de la Secte des Cadavres déclara lentement: « Ce vieil homme est Maître Nan Yunzi. À vrai dire, vous êtes vous aussi un cultivateur du Vide Brillant. J'ai appris par le camarade cultivateur Hong Shan que vous vous étiez rendu dans le Royaume Extérieur. Quelle est la puissance du Royaume Extérieur? »
+L'homme âgé de la Secte Shi Yin déclara lentement: « Ce vieil homme est Maître Nan Yunzi. À vrai dire, vous êtes vous aussi un cultivateur du Vide Brillant. J'ai appris par le camarade cultivateur Hong Shan que vous vous étiez rendu dans le Royaume Extérieur. Quelle est la puissance du Royaume Extérieur? »
 
-Le temps passa lentement et les cultivateurs de la Secte Divine se dispersèrent progressivement. La Mer des Nuages reprit ses intenses préparatifs de guerre.
+Le temps passa lentement et les cultivateurs de la Secte Divine se dispersèrent progressivement. La Mer Yun reprit ses intenses préparatifs de guerre.
 
 Maître Hong Shan et Maître Nan Yunzi restèrent silencieux après avoir entendu les paroles de Wang Lin. L'inquiétude se lisait dans leurs yeux; la force du Royaume Extérieur était un peu plus grande que ce qu'ils avaient anticipé.
 
@@ -50,7 +50,7 @@ Alors qu'il s'avançait, il ne s'arrêta pas devant la Secte Divine. Cependant, 
 
 « La Secte Divine fut créée par le dernier Seigneur du Royaume Scellé. Je suis le Seigneur du Royaume Scellé de cette génération. J'ordonne à la Secte Divine d'obéir à Mu Bingmei. Je lui confie la position de Maître de la Secte Divine! »
 
-« Les cultivateurs de la Secte de l'Origine fusionneront avec la Secte Divine! »
+« Les cultivateurs de la Secte Gui Yuan fusionneront avec la Secte Divine! »
 
 « Nous obéirons aux ordres du Seigneur du Royaume Scellé! » répondirent les cultivateurs de la Secte Divine en entendant ces paroles.
 
@@ -58,11 +58,11 @@ La brume dissipée réapparut progressivement, mais elle n'était plus aussi den
 
 Wang Lin apparut parmi les étoiles et marcha silencieusement vers l'avant. Avoir tué le Shui Daozi avait apaisé une grande partie de son cœur. Désormais, il allait rentrer chez lui!
 
-En regardant vers sa terre natale, le visage de Wang Lin s'adoucit progressivement. Ni Luotian ni la Mer des Nuages n'étaient sa maison. Il n'avait qu'un seul foyer, et c'était le Système Stellaire du Vide Brillant!
+En regardant vers sa terre natale, le visage de Wang Lin s'adoucit progressivement. Ni Luotian ni la Mer Yun n'étaient sa maison. Il n'avait qu'un seul foyer, et c'était le Système Stellaire du Vide Brillant!
 
 « Senior Frère Qing Shui, je n'avais pas la force de vous sauver autrefois, mais aujourd'hui, me voilà! » Wang Lin fit un pas en avant et chargea vers le Système Stellaire du Vide Brillant!
 
-Cependant, à cet instant précis, un changement fracassant se produisit dans le Système Stellaire de la Mer des Nuages!
+Cependant, à cet instant précis, un changement fracassant se produisit dans le Système Stellaire de la Mer Yun!
 
 À l'extérieur de la Formation de Scellement du Royaume, plusieurs rayons d'énergie d'épée fulgurants foncèrent vers le domaine stellaire occupé par les membres restants du Clan Dévorant la Lune! Avant que l'énergie de l'épée ne les atteigne, un grondement tonitruant résonna, entendu par toutes les branches du Clan Dévorant la Lune.
 
@@ -76,11 +76,11 @@ Système Stellaire Antique, Clan de l'Âme Céleste. À cet instant, un rayon d'
 
 « Le Conseil Souverain convoque le Clan de l'Âme Céleste pour se rassembler à l'extérieur de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
 
-« Le Conseil Souverain convoque le Clan des Nuages Tai pour la première bataille contre le Royaume Intérieur! »
+« Le Conseil Souverain convoque le Clan Tai Yun pour la première bataille contre le Royaume Intérieur! »
 
-« Le Conseil Souverain convoque les vestiges du Clan des Moineaux de Feu pour se rassembler dans la partie est de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
+« Le Conseil Souverain convoque les vestiges du Clan Huo Que pour se rassembler dans la partie est de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
 
-« Le Conseil Souverain convoque le Clan du Dragon Démon pour se rassembler dans la partie est de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
+« Le Conseil Souverain convoque le Clan Long Mo pour se rassembler dans la partie est de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
 
 Plus de dix clans du Système Stellaire Antique reçurent la convocation du Conseil Souverain simultanément, et tous se mirent en mouvement!
 
@@ -112,7 +112,7 @@ Ces messages résonnèrent dans tout le Système Stellaire Antique, stimulant un
 
 Pillez tout ce que vous désirez, tout ce dont vous avez besoin, et prenez toutes les cultivatrices que vous convoitez pour en faire vos fours de culture! Pillez! Pillez! Pillez!
 
-« Il existe un individu parmi les fourmis du Royaume Intérieur nommé Wang Lin. Par des moyens vils, il a massacré le Clan du Tonnerre Dispersé, détruit une branche du Clan Dévorant la Lune et tué d'innombrables cultivateurs du Royaume Extérieur! »
+« Il existe un individu parmi les fourmis du Royaume Intérieur nommé Wang Lin. Par des moyens vils, il a massacré le Clan Shan Lei, détruit une branche du Clan Dévorant la Lune et tué d'innombrables cultivateurs du Royaume Extérieur! »
 
 « Lorsque le classement du Système Stellaire Antique sera ouvert, la liste des cibles à abattre du Royaume Extérieur le sera aussi, et cet homme en occupe provisoirement la tête. Quiconque tuera Wang Lin recevra le crédit pour avoir éliminé dix mille cultivateurs! »
 
@@ -126,7 +126,7 @@ Quatre personnes flottaient au loin. À la tête du groupe se trouvait un vieil 
 
 À ses côtés se tenait un jeune homme très beau, mais aux yeux étroits. Lorsqu'il les plissait, ils devenaient deux lignes dégageant une lueur froide. Une brume enveloppait son corps, lui donnant un aspect étrange, et la marque entre ses sourcils était une brume noire en rotation! Nanzhao Shangren! Bien que son niveau de culture ne fût pas aussi élevé que celui de Grande Désolation — étant seulement au début du stade du Vide Spirituel — sa maîtrise des poisons était tout aussi célèbre!
 
-Près d'eux se trouvait l'ancêtre lugubre du Clan des Moineaux de Feu, fixant la formation avec une soif de sang démente!
+Près d'eux se trouvait l'ancêtre lugubre du Clan Huo Que, fixant la formation avec une soif de sang démente!
 
 Devant les trois autres se tenait une femme vêtue de soie nuageuse, la tête baissée. C'était le Grand Maître Yun Luo. Ses mains s'activaient rapidement comme si elle pratiquait la divination, et une lueur d'inquiétude traversait son regard.
 

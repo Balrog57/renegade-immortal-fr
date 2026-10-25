@@ -6,13 +6,13 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1843 - Breakthrough!"
 slug: percee
 ---
-Ils étaient trois généraux: l'Oiseau Vermillon, le Tigre Blanc et la Tortue Noire, sortis du monde des grottes. Ils étaient arrivés sur le Continent Astral Immortel il y a de nombreuses années et avaient constaté que la Secte des Sept Dao n'existait plus. Ils avaient alors choisi de partir pour devenir des cultivateurs errants.
+Ils étaient trois généraux: l'Oiseau Vermillon, le Tigre Blanc et la Tortue Noire, sortis du monde des grottes. Ils étaient arrivés sur le Continent Astral Immortel il y a de nombreuses années et avaient constaté que la Secte Qi Dao n'existait plus. Ils avaient alors choisi de partir pour devenir des cultivateurs errants.
 
 Ils avaient déjà connu la célébrité et leur heure de gloire. Cependant, ils approchaient de la fin de leur existence; ils étaient simplement las et aspiraient au repos.
 
-Avec leurs niveaux de culture, ils auraient pu accomplir de grandes choses dans la Mer des Pilules, mais tous trois avaient choisi de mener une vie paisible.
+Avec leurs niveaux de culture, ils auraient pu accomplir de grandes choses dans la Mer Dan, mais tous trois avaient choisi de mener une vie paisible.
 
-Pourtant, « l'arbre veut le calme, mais le vent ne cesse de souffler » : le trio avait beau aspirer à la quiétude, le destin en décida autrement. Alors qu'ils aspiraient à la paix, ils devaient désormais fuir pour sauver leur vie. L'Oiseau Vermillon et la Tortue Noire étaient gravement blessés. Le Tigre Blanc, le moins atteint, portait ses deux compagnons de toujours tandis qu'ils tentaient désespérément d'échapper à la Mer des Pilules.
+Pourtant, « l'arbre veut le calme, mais le vent ne cesse de souffler » : le trio avait beau aspirer à la quiétude, le destin en décida autrement. Alors qu'ils aspiraient à la paix, ils devaient désormais fuir pour sauver leur vie. L'Oiseau Vermillon et la Tortue Noire étaient gravement blessés. Le Tigre Blanc, le moins atteint, portait ses deux compagnons de toujours tandis qu'ils tentaient désespérément d'échapper à la Mer Dan.
 
 Lorsque ces paroles parvinrent à ses oreilles, le visage pâle du Tigre Blanc esquissa un sourire amer.
 
@@ -22,7 +22,7 @@ Lorsque ces paroles parvinrent à ses oreilles, le visage pâle du Tigre Blanc e
 
 Derrière eux, un jeune homme au visage de jade blanc les poursuivait lentement, un éventail à la main. Le nommé Qian affichait un regard venimeux et laissa échapper un rire glacial tout en poursuivant sa course.
 
-Les deux n'étaient pas pressés. La Mer des Pilules étant scellée, il n'y avait aucune issue pour le trio. Pour le cultivateur nommé Qian, jouer avec leurs vies était bien plus divertissant.
+Les deux n'étaient pas pressés. La Mer Dan étant scellée, il n'y avait aucune issue pour le trio. Pour le cultivateur nommé Qian, jouer avec leurs vies était bien plus divertissant.
 
 La fuite et la poursuite se poursuivaient ainsi. Pourtant, sous les trois bannières, les yeux de la femme brillaient d'une lueur étrange alors qu'elle fixait la boussole qu'elle tenait en main.
 
@@ -42,23 +42,23 @@ La goutte d'eau noire s'élança instantanément pour disparaître dans l'océan
 
 Cette eau sombre, semblable à de l'encre, se répandit à une vitesse inimaginable.
 
-« Quel que soit le secret caché dans la Mer des Pilules, il périra face au Liquide de Corruption des Dix Mille Raffinements! »
+« Quel que soit le secret caché dans la Mer Dan, il périra face au Liquide de Corruption des Dix Mille Raffinements! »
 
 Quant à Wang Lin, après deux jours, il avait absorbé une quantité massive d'eau de mer. Il tentait de la condenser en son sein pour former une essence d'eau, mais rien ne s'était encore produit. Après réflexion, il accéléra encore son absorption.
 
-Quelques heures plus tard, plus de la moitié de la Mer des Pilules avait viré au noir. Tous les cultivateurs du Continent du Taureau Céleste touchés par cette onde poussèrent des cris de douleur successifs. Leurs corps étaient corrodés par l'eau et se changeaient aussitôt en une mare de sang; même leurs âmes originelles ne pouvaient y échapper.
+Quelques heures plus tard, plus de la moitié de la Mer Dan avait viré au noir. Tous les cultivateurs du Continent Tian Niu touchés par cette onde poussèrent des cris de douleur successifs. Leurs corps étaient corrodés par l'eau et se changeaient aussitôt en une mare de sang; même leurs âmes originelles ne pouvaient y échapper.
 
 Même le groupe de cultivateurs aux robes vertes ralentit dans cette mer noire, bien qu'ils ne fussent pas blessés. La femme sous les bannières ne pouvait le voir, mais la boussole révélait clairement les changements en cours.
 
 La moitié de la Carte des Pilules sur son instrument était devenue noire. Tous les points blancs touchés par l'onde sombre avaient disparu, comme effacés.
 
-« Quel que soit l'être qui cause ce trouble, je veux voir comment vous absorberez la Mer des Pilules une fois qu'elle sera souillée... » murmura la femme, un éclat glacial dans le regard alors qu'elle passait en revue les centaines de points blancs restants.
+« Quel que soit l'être qui cause ce trouble, je veux voir comment vous absorberez la Mer Dan une fois qu'elle sera souillée... » murmura la femme, un éclat glacial dans le regard alors qu'elle passait en revue les centaines de points blancs restants.
 
 L'effondrement rapide du niveau de la mer la préoccupait au plus haut point. Elle devait en trouver la cause!
 
 Le point blanc représentant Wang Lin fut d'abord ignoré par la femme. Cependant, alors que son regard balayait la carte, ses yeux se figèrent sur ce point précis et une intention meurtrière monstrueuse jaillit de son regard!
 
-« Chaque point blanc représente un cultivateur qui n'est pas du Continent du Démon Vert... Tous les points blancs se déplacent lentement vers le Continent du Taureau Céleste pour fuir, mais ce point blanc est resté immobile!! »
+« Chaque point blanc représente un cultivateur qui n'est pas du Continent Lu Mo... Tous les points blancs se déplacent lentement vers le Continent Tian Niu pour fuir, mais ce point blanc est resté immobile!! »
 
 « J'aurais dû m'en rendre compte bien plus tôt! » Un éclair de fureur traversa ses yeux.
 
@@ -70,7 +70,7 @@ Wang Lin, quant à lui, avait continué d'absorber l'eau de mer durant ces jours
 
 « Essence d'eau!! Je sens l'aura d'une essence d'eau!! » Les yeux de Wang Lin s'illuminèrent et, après une brève hésitation, il afficha un regard résolu. Il se leva et fit un pas en avant. Des ondulations apparurent sous ses pieds alors qu'il fusionnait avec le monde pour disparaître.
 
-Lorsqu'il réapparut, il se trouvait au-dessus de l'autre moitié de la Mer des Pilules, là où régnait le liquide noir. Dès son apparition, il ressentit une force terrifiante émanant de cette eau capable de corroder la chair et même les âmes originelles.
+Lorsqu'il réapparut, il se trouvait au-dessus de l'autre moitié de la Mer Dan, là où régnait le liquide noir. Dès son apparition, il ressentit une force terrifiante émanant de cette eau capable de corroder la chair et même les âmes originelles.
 
 « C'est là un autre pouvoir de l'essence d'eau! » Le corps de Wang Lin était actuellement dans le neuvième cycle de complétion de son essence d'eau. Il possédait ainsi une résistance bien supérieure à celle des cultivateurs ordinaires.
 
@@ -80,11 +80,11 @@ Sans hésiter, Wang Lin s'assit. Ses mains formèrent un sceau et les 36 000 por
 
 Alors qu'il l'absorbait frénétiquement, il ressentit des picotements douloureux dans son organisme, mais une sensation d'un confort extrême envahit son cœur. Son corps était nourri et le neuvième cycle touchait à sa fin!
 
-Loin de lui, de l'autre côté de la Mer des Pilules, près du Continent du Démon Vert, les pupilles de la femme se rétractèrent sous ses bannières. Elle fixa la boussole entre ses mains, la main droite tremblante.
+Loin de lui, de l'autre côté de la Mer Dan, près du Continent Lu Mo, les pupilles de la femme se rétractèrent sous ses bannières. Elle fixa la boussole entre ses mains, la main droite tremblante.
 
-L'encre noire qui recouvrait la moitié de la Mer des Pilules se dissipait rapidement sur la carte. En voyant cela, son expression changea et elle inspira brusquement.
+L'encre noire qui recouvrait la moitié de la Mer Dan se dissipait rapidement sur la carte. En voyant cela, son expression changea et elle inspira brusquement.
 
-« C'est... » L'incrédulité se lut dans ses yeux alors qu'elle contemplait la boussole, hébétée. Bientôt, elle remarqua qu'un point blanc subsistait au milieu de la zone noire de la Mer des Pilules. Ce point n'était pas brillant, mais il était l'unique point blanc de cette moitié de la mer!
+« C'est... » L'incrédulité se lut dans ses yeux alors qu'elle contemplait la boussole, hébétée. Bientôt, elle remarqua qu'un point blanc subsistait au milieu de la zone noire de la Mer Dan. Ce point n'était pas brillant, mais il était l'unique point blanc de cette moitié de la mer!
 
 « C'est lui! » Les yeux de la femme se remplirent d'une intention meurtrière alors qu'elle pointait sa main gauche vers l'avant.
 

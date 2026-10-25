@@ -22,7 +22,7 @@ Lorsqu'il réapparut, il se trouvait à la lisière du champ de bataille. Là, i
 
 Tant qu'il y aurait de grandes batailles, il y aurait d'innombrables morts de chaque côté. Wang Lin s'était lassé de ce genre de combats et ne souhaitait guère y participer. Il n'éprouvait aucun sentiment d'appartenance, ni la ferveur qui le pousserait à rugir: « Les cultivateurs comme nous ne reculent jamais devant un combat! »
 
-Il n'était présent que pour remplir les trois conditions fixées par l'Ancien Taureau Vert afin de rembourser la Secte de la Grande Âme pour ces trois cadeaux! C'était là le caractère de Wang Lin; il rendait toujours la pareille!
+Il n'était présent que pour remplir les trois conditions fixées par l'Ancien Taureau Vert afin de rembourser la Secte Da Hun pour ces trois cadeaux! C'était là le caractère de Wang Lin; il rendait toujours la pareille!
 
 « Ce n'est pas le moment idéal pour affronter des cultivateurs de la Tribulation du Vide... Mais si l'un d'eux est gravement blessé, je pourrais peut-être avoir de la chance... » Les yeux de Wang Lin s'illuminèrent et son corps se mua en fumée alors qu'il se rapprochait de plus en plus du champ de bataille.
 
@@ -30,13 +30,13 @@ Il n'était présent que pour remplir les trois conditions fixées par l'Ancien 
 
 « Ce champ de bataille est un lieu idéal pour capturer des âmes originelles afin de les sceller dans mon corps pour l'Art Magique Rapide! » Wang Lin s'enfonça de plus en plus dans la mêlée. Peu après, il surgit au cœur des combats. Des grondements tonitruants et des fluctuations magiques émanaient de toutes parts, accompagnés d'éclairs multicolores.
 
-Il y avait initialement six ou sept mille cultivateurs au total pour les deux camps, mais il en restait désormais moins de 4 000. Leurs yeux étaient injectés de sang alors qu'ils s'engageaient dans une lutte brutale. Wang Lin vit des cultivateurs du Continent du Démon Vert périr, et des cultivateurs du Continent du Taureau Céleste mourir aussi, mais il n'intervint pas.
+Il y avait initialement six ou sept mille cultivateurs au total pour les deux camps, mais il en restait désormais moins de 4 000. Leurs yeux étaient injectés de sang alors qu'ils s'engageaient dans une lutte brutale. Wang Lin vit des cultivateurs du Continent Lu Mo périr, et des cultivateurs du Continent Tian Niu mourir aussi, mais il n'intervint pas.
 
-Il ne voulait pas prendre part à ce carnage. À ses yeux, le Continent du Taureau Céleste et le Continent du Démon Vert se valaient; l'un n'était pas meilleur que l'autre.
+Il ne voulait pas prendre part à ce carnage. À ses yeux, le Continent Tian Niu et le Continent Lu Mo se valaient; l'un n'était pas meilleur que l'autre.
 
-En un éclair, Wang Lin chargea dans les profondeurs du champ de bataille. Peu après, il tourna la tête vers la droite. Dans la brume, deux cultivateurs s'affrontaient, et celui qui était en position de faiblesse traversait des moments critiques. Le vieil homme du Continent du Démon Vert était au stade intermédiaire du Vide Arcanique, et ses attaques étaient féroces.
+En un éclair, Wang Lin chargea dans les profondeurs du champ de bataille. Peu après, il tourna la tête vers la droite. Dans la brume, deux cultivateurs s'affrontaient, et celui qui était en position de faiblesse traversait des moments critiques. Le vieil homme du Continent Lu Mo était au stade intermédiaire du Vide Arcanique, et ses attaques étaient féroces.
 
-« C'est lui! » Wang Lin fixa le cultivateur qui reculait. Il avait un souvenir de lui; c'était le vieil homme qui était apparu sur la Prairie de l'Extrême Ciel.
+« C'est lui! » Wang Lin fixa le cultivateur qui reculait. Il avait un souvenir de lui; c'était le vieil homme qui était apparu sur la Prairie Ji Tian.
 
 Ce vieillard était dans un état lamentable, le visage pâle. Du sang coulait du coin de sa bouche, mais son expression demeurait déterminée.
 
@@ -50,21 +50,21 @@ Le vieil homme poussa un soupir. Il avait, d'une certaine manière, transcendé 
 
 Une pointe de tristesse l'habitait, mais plus encore, il ressentait un certain soulagement. Cependant, il était hors de question pour lui de mourir sans rien faire. Une lueur froide traversa son regard alors qu'il se préparait à l'autodestruction.
 
-C'était la dernière chose qu'il pouvait faire pour sa terre natale avant de mourir en tant que cultivateur du Continent du Taureau Céleste!
+C'était la dernière chose qu'il pouvait faire pour sa terre natale avant de mourir en tant que cultivateur du Continent Tian Niu!
 
-« Je suis né sur le Continent du Taureau Céleste. Toute ma culture provient de ce continent, et maintenant, je vais tout lui rendre. Je n'ai aucun regret! » Les yeux du vieil homme étaient calmes lorsqu'il se retourna. Pourtant, juste au moment où il allait exploser, ses pupilles se rétractèrent en voyant une ombre apparaître entre lui et son poursuivant.
+« Je suis né sur le Continent Tian Niu. Toute ma culture provient de ce continent, et maintenant, je vais tout lui rendre. Je n'ai aucun regret! » Les yeux du vieil homme étaient calmes lorsqu'il se retourna. Pourtant, juste au moment où il allait exploser, ses pupilles se rétractèrent en voyant une ombre apparaître entre lui et son poursuivant.
 
 C'était une silhouette aux cheveux blancs, vêtue de blanc!
 
 Wang Lin apparut silencieusement et fit un geste nonchalant de la main. Le brouillard environnant gronda, puis les deux illusions tremblèrent avant de s'effondrer soudainement.
 
-L'effondrement des illusions changea radicalement l'expression du cultivateur du Continent du Démon Vert. Ce n'était pas que son sort était invincible, mais le fait que l'autre partie le brise si aisément ne signifiait qu'une chose!
+L'effondrement des illusions changea radicalement l'expression du cultivateur du Continent Lu Mo. Ce n'était pas que son sort était invincible, mais le fait que l'autre partie le brise si aisément ne signifiait qu'une chose!
 
 Au bas mot, cet individu était un cultivateur de la Tribulation de l'Arcane!
 
-Une multitude de pensées traversèrent son esprit et le cultivateur du Continent du Démon Vert sentit son cuir chevelu s'engourdir. Il recula sans hésiter, s'apprêtant à fuir les lieux.
+Une multitude de pensées traversèrent son esprit et le cultivateur du Continent Lu Mo sentit son cuir chevelu s'engourdir. Il recula sans hésiter, s'apprêtant à fuir les lieux.
 
-Wang Lin laissa échapper un ricanement froid et fit un pas. Il apparut instantanément à quelques dizaines de milliers de pieds de là, juste devant le cultivateur du Continent du Démon Vert. Sa paume descendit comme le Mont Tai; le cultivateur n'eut aucune chance de résister alors que la main de Wang Lin s'écrasait sur sa tête.
+Wang Lin laissa échapper un ricanement froid et fit un pas. Il apparut instantanément à quelques dizaines de milliers de pieds de là, juste devant le cultivateur du Continent Lu Mo. Sa paume descendit comme le Mont Tai; le cultivateur n'eut aucune chance de résister alors que la main de Wang Lin s'écrasait sur sa tête.
 
 Le cultivateur s'effondra et se brisa en morceaux. Son âme originelle fut enveloppée par une force et extraite du corps déchiqueté. Wang Lin apposa rapidement des sceaux sur l'âme originelle, puis la pressa contre sa propre poitrine.
 
@@ -72,7 +72,7 @@ L'âme originelle disparut, mais un vortex apparut dans le corps de Wang Lin. Ce
 
 Tout cela se produisit en un éclair. Le vieil homme regardait avec stupéfaction la disparition de Wang Lin. Après un long moment, il prit une profonde inspiration.
 
-« C'est l'Ancien de la Secte de la Grande Âme! » Le vieillard avait rencontré Wang Lin dans le palais souterrain et l'avait reconnu. Cependant, en voyant ses longs cheveux blancs, sa robe immaculée et cette aura glaciale, il avait l'impression d'avoir déjà croisé ce visage quelque part.
+« C'est l'Ancien de la Secte Da Hun! » Le vieillard avait rencontré Wang Lin dans le palais souterrain et l'avait reconnu. Cependant, en voyant ses longs cheveux blancs, sa robe immaculée et cette aura glaciale, il avait l'impression d'avoir déjà croisé ce visage quelque part.
 
 Wang Lin fendit le brouillard pour continuer sa progression vers les cultivateurs de la Tribulation du Vide qui combattaient. Tout cultivateur du Vide Arcanique qu'il croisait était immédiatement exécuté. Il scellait leurs âmes originelles dans son corps afin de renforcer sa première veine de sorts.
 
@@ -92,7 +92,7 @@ On pouvait mesurer l'immense écart de puissance.
 
 Après un moment de réflexion, il fronça les sourcils.
 
-« Il sera très difficile que l'un d'eux soit gravement blessé. Les cultivateurs du Continent du Démon Vert ont consommé des pilules inconnues qui leur permettent de braver le brouillard et renforcent également leur puissance... Dans ces conditions, mieux vaut trouver les cultivateurs de la Tribulation de l'Arcane en premier. » Wang Lin réfléchit un instant, puis s'apprêta à partir rapidement quand son expression changea soudainement. Sans hésiter, il chargea à toute vitesse.
+« Il sera très difficile que l'un d'eux soit gravement blessé. Les cultivateurs du Continent Lu Mo ont consommé des pilules inconnues qui leur permettent de braver le brouillard et renforcent également leur puissance... Dans ces conditions, mieux vaut trouver les cultivateurs de la Tribulation de l'Arcane en premier. » Wang Lin réfléchit un instant, puis s'apprêta à partir rapidement quand son expression changea soudainement. Sans hésiter, il chargea à toute vitesse.
 
 Alors qu'il venait de parcourir 30 pieds, un rayon de lumière verte s'abattit là où il se tenait une seconde plus tôt. La terre trembla dans un grondement tonitruant. Même le brouillard sembla s'effondrer sous l'impact de la lumière verte.
 

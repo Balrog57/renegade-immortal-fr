@@ -6,15 +6,15 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1086 - News of Qing Shui
 slug: nouvelles-de-qing-shui
 ---
-Ce jeune homme était Wang Lin, celui qui avait quitté la Terre des Esprits Démoniaques il y a deux ans!
+Ce jeune homme était Wang Lin, celui qui avait quitté la Terre Yao Ling il y a deux ans!
 
-Il y a deux ans, Wang Lin avait été gravement blessé sur la Terre des Esprits Démoniaques. Son corps était profondément endommagé et son âme originelle était sur le point de s'effondrer. De plus, à cause des paroles de Mu Bingmei, la douleur dans son cœur avait provoqué une explosion de ses blessures, le faisant perdre connaissance.
+Il y a deux ans, Wang Lin avait été gravement blessé sur la Terre Yao Ling. Son corps était profondément endommagé et son âme originelle était sur le point de s'effondrer. De plus, à cause des paroles de Mu Bingmei, la douleur dans son cœur avait provoqué une explosion de ses blessures, le faisant perdre connaissance.
 
 Lorsqu'il se réveilla, il était assis sur cette pierre blanche. Le vieil homme derrière lui était l'Empereur Divin du Oiseau Vermillon.
 
 Au cours de ces deux années, l'avatar de Wang Lin et son corps originel s'étaient séparés. Son corps originel s'était enfoncé profondément dans la Planète Divine du Oiseau Vermillon, tandis que son avatar était ici pour guérir.
 
-Durant ces deux années, l'énergie d'origine du feu de Wang Lin avait progressé par bonds prodigieux. Lorsqu'il était à la Terre des Esprits Démoniaques, il avait déjà senti qu'il était proche du stade de Purificateur du Nirvana, mais il lui fallait encore une percée dans son domaine pour franchir le pas.
+Durant ces deux années, l'énergie d'origine du feu de Wang Lin avait progressé par bonds prodigieux. Lorsqu'il était à la Terre Yao Ling, il avait déjà senti qu'il était proche du stade de Purificateur du Nirvana, mais il lui fallait encore une percée dans son domaine pour franchir le pas.
 
 Cette percée ne pouvait être forcée; plus on se montrait impatient, plus elle devenait difficile. Au cours des deux dernières années, l'esprit clair, Wang Lin avait continué à chercher la compréhension tout en absorbant l'énergie d'origine du feu. Son énergie d'origine avait désormais atteint son apogée.
 
@@ -36,7 +36,7 @@ Une personne était assise au sommet de la montagne. Cette personne avait une t�
 
 C'était Da Tou!
 
-Le corps de Da Tou s'était effondré sur la Terre des Esprits Démoniaques. Après être arrivé à la Secte Divine de l'Oiseau Vermillon, il avait reçu l'aide des anciens du Briseur du Nirvana. En utilisant le feu comme chair, le bois comme os et l'énergie d'origine comme sang, ils l'avaient aidé, grâce à la volonté de Da Tou, à reformer un corps identique au précédent.
+Le corps de Da Tou s'était effondré sur la Terre Yao Ling. Après être arrivé à la Secte Divine de l'Oiseau Vermillon, il avait reçu l'aide des anciens du Briseur du Nirvana. En utilisant le feu comme chair, le bois comme os et l'énergie d'origine comme sang, ils l'avaient aidé, grâce à la volonté de Da Tou, à reformer un corps identique au précédent.
 
 Da Tou devait continuer à raffiner ce corps et à s'en familiariser pour pouvoir utiliser des sorts encore plus puissants qu'auparavant.
 
@@ -50,9 +50,9 @@ Au moment où le tonnerre rugissant passa, la tempête s'arrêta soudainement, r
 
 Le corps de cet homme était immense, comme une véritable montagne de chair. En ce moment, il était presque nu et couvert de sueur, mais cette montagne de chair ne semblait nullement diminuer de volume.
 
-Après avoir essuyé la sueur sur son visage, le vieil homme leva les yeux vers le ciel avec un sourire amer et secoua la tête. « Depuis qu'il a rencontré ce Wang Lin, ce vieil homme est frappé par la malchance. J'ai même été gravement blessé à la Terre des Esprits Démoniaques, hélas... Heureusement, ce Wang Lin n'est pas un homme dénué de bonté. Être au sein de la Secte Divine de l'Oiseau Vermillon est bien plus sûr que l'extérieur. »
+Après avoir essuyé la sueur sur son visage, le vieil homme leva les yeux vers le ciel avec un sourire amer et secoua la tête. « Depuis qu'il a rencontré ce Wang Lin, ce vieil homme est frappé par la malchance. J'ai même été gravement blessé à la Terre Yao Ling, hélas... Heureusement, ce Wang Lin n'est pas un homme dénué de bonté. Être au sein de la Secte Divine de l'Oiseau Vermillon est bien plus sûr que l'extérieur. »
 
-« Le sceau de Wang Lin a été levé il y a deux ans, mais après la bataille à la Terre des Esprits Démoniaques, même sans ce sceau, je n'oserais pas chercher querelle à Wang Lin. Ses sorts sont trop terrifiants! » Lorsque Maître Fu Fengzi songea aux sorts que Wang Lin avait utilisés sur la Terre des Esprits Démoniaques, il fut saisi de crainte. *Nuit Brisée* suffisait déjà à l'effrayer, alors ne parlons même pas du *Rêve des Temps Anciens*.
+« Le sceau de Wang Lin a été levé il y a deux ans, mais après la bataille à la Terre Yao Ling, même sans ce sceau, je n'oserais pas chercher querelle à Wang Lin. Ses sorts sont trop terrifiants! » Lorsque Maître Fu Fengzi songea aux sorts que Wang Lin avait utilisés sur la Terre Yao Ling, il fut saisi de crainte. *Nuit Brisée* suffisait déjà à l'effrayer, alors ne parlons même pas du *Rêve des Temps Anciens*.
 
 En repensant au poing géant descendant du ciel, la peur de Maître Fu Fengzi devint encore plus intense.
 
@@ -78,7 +78,7 @@ Dans un bruit sourd, l'homme fut arraché à la glace et s'écrasa au sol.
 
 « Petit Situ, ce vieil homme a reçu l'ordre de l'Empereur Divin d'éliminer la toxine de ton corps, tu dois donc écouter mes ordres. Sinon, ne me reproche pas de te donner une leçon! »
 
-Cet homme était Situ Nan. Il avait été gravement blessé sur la Terre des Esprits Démoniaques, ce qui avait provoqué l'éruption de son poison. Sans la Secte Divine de l'Oiseau Vermillon, il lui aurait été impossible de tenir deux ans.
+Cet homme était Situ Nan. Il avait été gravement blessé sur la Terre Yao Ling, ce qui avait provoqué l'éruption de son poison. Sans la Secte Divine de l'Oiseau Vermillon, il lui aurait été impossible de tenir deux ans.
 
 Cependant, ces deux années furent extrêmement douloureuses pour lui. L'une des causes de sa souffrance était ce vieil homme exaspérant. Peu importait les tentatives de Situ Nan pour discuter avec lui, cela ne servait à rien. Le vieil homme semblait inflexible et restait toujours à moins de mille pieds de Situ Nan. Chaque fois que Situ Nan perdait sa concentration, un sort lui était décoché.
 
@@ -104,9 +104,9 @@ Il était impossible de décrire la nature de ce regard; on ne pouvait que le co
 
 Wang Lin dit calmement: « L'Empereur Divin peut être serein. Je ferai de mon mieux. »
 
-« Tu as dit que tu soupçonnais l'Empereur Divin Dragon Azure d'être piégé dans le Royaume Céleste de la Pluie. Cette affaire est de grande envergure... mais l'ouverture du Royaume Céleste de la Pluie est contrôlée par l'Alliance de Culture, qui a reçu la plus grande part de l'héritage du Royaume Céleste de la Pluie. Sans le Cristal du Royaume Céleste de la Pluie, il est impossible de l'ouvrir... »
+« Tu as dit que tu soupçonnais l'Empereur Divin Dragon Azure d'être piégé dans le Royaume Céleste de la Pluie. Cette affaire est de grande envergure... mais l'ouverture du Royaume Céleste de la Pluie est contrôlée par l'Alliance Xiu Zhen, qui a reçu la plus grande part de l'héritage du Royaume Céleste de la Pluie. Sans le Cristal du Royaume Céleste de la Pluie, il est impossible de l'ouvrir... »
 
-« Avec la puissance actuelle de nos quatre Sectes Divines, nous ne pouvons pas encore rivaliser avec l'Alliance de Culture. Je trouverai un moyen d'obtenir le Cristal du Royaume Céleste de la Pluie, mais je te laisse le soin de secourir l'Empereur Divin Dragon Azure. »
+« Avec la puissance actuelle de nos quatre Sectes Divines, nous ne pouvons pas encore rivaliser avec l'Alliance Xiu Zhen. Je trouverai un moyen d'obtenir le Cristal du Royaume Céleste de la Pluie, mais je te laisse le soin de secourir l'Empereur Divin Dragon Azure. »
 
 La voix du vieil homme était empreinte de fatigue. Survivre aussi longtemps l'avait épuisé tant physiquement que mentalement. Mais il ne pouvait pas simplement abandonner les quatre Sectes Divines, alors il tenait bon pour la cause. Il devait endurer chaque jour la douleur incessante de son troisième Fléau Céleste.
 

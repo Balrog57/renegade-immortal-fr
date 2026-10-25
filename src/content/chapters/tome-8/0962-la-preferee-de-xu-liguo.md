@@ -32,7 +32,7 @@ Wang Lin resta seul dans la pièce et réfléchit. Aider Zhao Xinmeng serait fac
 
 Pendant qu'il réfléchissait, l'épée céleste où se trouvait Xu Liguo commença à s'agiter, et les fluctuations émanant du sac perturbèrent ses pensées. Wang Lin fronça les sourcils et frappa son sac de rangement. Xu Liguo s'échappa aussitôt de l'épée céleste et une brume noire se répandit devant Wang Lin. Cette brume se condensa rapidement pour révéler la silhouette de Xu Liguo.
 
-Les yeux de Xu Liguo brillèrent. Dès qu'il apparut, il inspira profondément à l'endroit où Bai Wei se tenait auparavant. Son visage était empreint d'une expression enivrée et il marmonna: « Qualité supérieure! Vraiment de la qualité supérieure! Comparée à elle, même la petite fille de la Terre des Esprits Démoniaques ne vaut rien. Si je pouvais... » Xu Liguo esquissa un sourire pervers.
+Les yeux de Xu Liguo brillèrent. Dès qu'il apparut, il inspira profondément à l'endroit où Bai Wei se tenait auparavant. Son visage était empreint d'une expression enivrée et il marmonna: « Qualité supérieure! Vraiment de la qualité supérieure! Comparée à elle, même la petite fille de la Terre Yao Ling ne vaut rien. Si je pouvais... » Xu Liguo esquissa un sourire pervers.
 
 Wang Lin lança un regard froid à Xu Liguo. Ce dernier trembla, sentant une intention glaciale se répandre sur son corps. Cette froideur pénétra son âme, le ramenant brusquement à la raison, et il commença à se plaindre intérieurement.
 
@@ -46,7 +46,7 @@ Du point de vue de Wang Lin, il fallait parfois mater Xu Liguo; sinon, ce dernie
 
 Avant que Xu Liguo ne soit raffiné en démon, il nourrissait beaucoup de ressentiment, et sa personnalité s'était intensifiée après sa transformation. Comme doté d'un os rebelle de naissance, la seule façon de le dompter était d'être toujours plus fort que lui.
 
-Lorsque Xu Liguo était dans la Bête des Limbes, l'ancien du Clan des Immortels Élus le croyait quelqu'un de loyal, mais en réalité, il n'avait aucune loyauté. Au mieux, c'était une habitude acquise après avoir été sous le contrôle de Wang Lin pendant près de mille ans.
+Lorsque Xu Liguo était dans la Bête des Limbes, l'ancien du Clan Xian Xuan le croyait quelqu'un de loyal, mais en réalité, il n'avait aucune loyauté. Au mieux, c'était une habitude acquise après avoir été sous le contrôle de Wang Lin pendant près de mille ans.
 
 Des pensées rebelles apparaissaient parfois dans le cœur de Xu Liguo. Wang Lin en était parfaitement conscient.
 
@@ -66,7 +66,7 @@ Xu Liguo flottait dans la pièce comme un fantôme. Puis, s'ennuyant, il ne put 
 
 Son esprit était rempli de fantasmes et il se sentait agité. Cependant, pensant que Wang Lin était toujours à proximité, il ne put s'empêcher de soupirer.
 
-« Quand le Grand-père Xu suivait l'ancêtre du Clan des Démons Géants, l'ancêtre était si bon avec moi. Il m'a donné Mei Ji. Ces jours-là étaient merveilleux... Malheureusement, après être revenu auprès de ce démon, je suis enfermé dans ce sac toute la journée. La belle vie est si loin. » En y pensant, Xu Liguo ressentit une pointe de colère.
+« Quand le Grand-père Xu suivait l'ancêtre du Clan Ju Mo, l'ancêtre était si bon avec moi. Il m'a donné Mei Ji. Ces jours-là étaient merveilleux... Malheureusement, après être revenu auprès de ce démon, je suis enfermé dans ce sac toute la journée. La belle vie est si loin. » En y pensant, Xu Liguo ressentit une pointe de colère.
 
 « Un jour, quand ma culture sera assez forte, je me vengerai de ce démon. Au pire, je me battrai à mort... je me battrai... » Alors qu'il était perdu dans ses pensées, il vit soudain les paupières de Wang Lin bouger. Il afficha aussitôt un sourire flatteur.
 
@@ -84,9 +84,9 @@ Wang Lin ouvrit les yeux et se mit en mouvement. La porte s'ouvrit d'elle-même 
 
 Wang Lin fendit l'air et se dirigea vers le pied de la Montagne Pourpre. Au loin, il pouvait apercevoir des silhouettes s'agiter parmi les sept montagnes, signe de l'étendue d'une grande secte.
 
-On entendait des chants au loin; c'étaient les disciples de bas niveau de la Secte du Destin Céleste qui pratiquaient leurs sorts.
+On entendait des chants au loin; c'étaient les disciples de bas niveau de la Secte Tian Yun qui pratiquaient leurs sorts.
 
-Une énergie spirituelle dense imprégnait la Secte du Destin Céleste. Cependant, en ce midi, l'énergie était chargée de feu Yang et n'était pas propice à la culture. Il n'y avait pas ces magnifiques fluctuations d'énergie que l'on observe à l'aube ou au crépuscule.
+Une énergie spirituelle dense imprégnait la Secte Tian Yun. Cependant, en ce midi, l'énergie était chargée de feu Yang et n'était pas propice à la culture. Il n'y avait pas ces magnifiques fluctuations d'énergie que l'on observe à l'aube ou au crépuscule.
 
 La Division Pourpre occupait le rang le plus bas parmi les sept divisions. Même la lignée des sept disciples directs n'était pas complète; en comptant Wang Lin, ils n'étaient que cinq.
 

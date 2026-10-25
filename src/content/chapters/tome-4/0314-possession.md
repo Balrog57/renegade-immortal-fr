@@ -98,7 +98,7 @@ Dans un grand fracas, la troisième couche commença à trembler violemment. Le 
 
 D'immenses quantités d'énergie spirituelle céleste disparurent dans ces failles. En un instant, il ne resta plus aucune énergie disponible.
 
-Zhou Yi déclara, le visage sombre: « Secte des Cadavres! Tu dois être le Grand Ancien de la Secte des Cadavres. Si nous entrons en combat, ce fragment s'effondrera. Si un seul fragment s'effondrait, nous pourrions nous échapper grâce à notre culture. Cependant, sache ceci: il y a six fragments qui se chevauchent ici. Si l'un d'eux s'effondre, tous s'effondreront. À ce moment-là, même un être ayant atteint le stade Ascendant ne pourra pas s'échapper! »
+Zhou Yi déclara, le visage sombre: « Secte Shi Yin! Tu dois être le Grand Ancien de la Secte Shi Yin. Si nous entrons en combat, ce fragment s'effondrera. Si un seul fragment s'effondrait, nous pourrions nous échapper grâce à notre culture. Cependant, sache ceci: il y a six fragments qui se chevauchent ici. Si l'un d'eux s'effondre, tous s'effondreront. À ce moment-là, même un être ayant atteint le stade Ascendant ne pourra pas s'échapper! »
 
 L'expression du vieil homme changea. Ses yeux brillèrent et il disparut du cercueil pour réapparaître instantanément derrière Hongdie.
 

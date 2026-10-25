@@ -34,7 +34,7 @@ Les trois corps des cultivateurs au stade de la Formation du Noyau ressemblaient
 
 Li Muwan observait la scène qui se déroulait sous ses yeux. Bien qu'elle s'y fût préparée, elle ne put s'empêcher d'être profondément choquée. La puissance de Wang Lin était désormais gravée dans son cœur.
 
-Chen Hai était un Ancien de la Secte de la Lutte contre le Mal qui jouissait normalement d'un grand respect, mais qui fuyait alors, affolé, tel un chien errant. Sachant que sa vitesse était insuffisante, il creusa un large trou dans le sol après avoir couru un moment, dissimula sa présence et s'y enterra.
+Chen Hai était un Ancien de la Secte Dou Xie qui jouissait normalement d'un grand respect, mais qui fuyait alors, affolé, tel un chien errant. Sachant que sa vitesse était insuffisante, il creusa un large trou dans le sol après avoir couru un moment, dissimula sa présence et s'y enterra.
 
 Lorsqu'il n'était qu'au stade de l'Établissement des Fondations, il avait déjà utilisé cette ruse à maintes reprises. Allongé sous terre, il ne put s'empêcher d'esquisser un sourire amer en songeant au temps écoulé depuis qu'il avait dû recourir à une telle technique de survie.
 
@@ -58,11 +58,11 @@ Si cela n'avait pas été le cas, ils ne l'auraient pas poursuivi avec autant de
 
 Wang Lin suivait derrière, le regard de plus en plus glacial, les yeux rivés sur Qian Kun qui avait déjà pris une grande avance. Il ricana intérieurement. Ce dernier était, après tout, un cultivateur du stade intermédiaire de la Formation du Noyau, et était donc plusieurs fois plus rapide que les autres. Cependant, voler à une telle vitesse épuisait énormément l'énergie spirituelle; Wang Lin n'était donc pas pressé. Dès que Qian Kun manquerait de ressources, il serait contraint de ralentir.
 
-Qian Kun serra les dents et changea de direction. Il se souvint qu'une branche de la Secte de la Lutte contre le Mal se trouvait à proximité, dirigée par deux cultivateurs de la Formation du Noyau. Il espérait qu'ils pourraient retenir Wang Lin assez longtemps pour lui permettre de s'échapper.
+Qian Kun serra les dents et changea de direction. Il se souvint qu'une branche de la Secte Dou Xie se trouvait à proximité, dirigée par deux cultivateurs de la Formation du Noyau. Il espérait qu'ils pourraient retenir Wang Lin assez longtemps pour lui permettre de s'échapper.
 
 Il mobilisa 120 % de son énergie spirituelle pour charger vers cette branche.
 
-La montagne Wu Ding était un massif imposant sur lequel étaient bâtis de nombreux pavillons. Elle avait appartenu à une grande secte voisine il y a mille ans, mais après le déclin de celle-ci, elle fut anéantie d'un seul coup par la Secte de la Lutte contre le Mal et devint une de ses branches.
+La montagne Wu Ding était un massif imposant sur lequel étaient bâtis de nombreux pavillons. Elle avait appartenu à une grande secte voisine il y a mille ans, mais après le déclin de celle-ci, elle fut anéantie d'un seul coup par la Secte Dou Xie et devint une de ses branches.
 
 Ce jour-là, alors que les disciples de la branche étaient en pleine culture, les deux anciens de la Formation du Noyau qui en avaient la charge, les frères Mu Nan et Mu Bei, sortirent de leurs quartiers.
 
@@ -84,7 +84,7 @@ Qian Kun avait volé à pleine puissance depuis si longtemps que son énergie sp
 
 Voyant l'inévitable, il laissa échapper un sourire pitoyable avant de se retourner pour lancer un regard venimeux à Wang Lin. Serrant les dents, il sortit un jeton rouge de son sac de rangement. Sur ce jeton était inscrit le caractère « Punir » en rouge sombre.
 
-Ce jeton était le célèbre Ordre de mise à mort des Dix Mille Démons: Cent jours, une relique légendaire de la Mer des Démons. Transmis depuis l'Antiquité, sa méthode de fabrication était perdue depuis longtemps. Même dans toute la Mer des Démons, il en restait moins de dix. Qian Kun l'avait obtenu par hasard et l'avait immédiatement raffiné, le tenant pour un trésor suprême. Craignant que d'autres ne l'apprennent, il l'avait toujours profondément caché comme son ultime atout, comptant s'en servir plus tard, au moment de tenter l'Âme Naissante, pour accroître ses pouvoirs.
+Ce jeton était le célèbre Ordre de mise à mort des Dix Mille Démons: Cent jours, une relique légendaire de la Mer Xiu Mo. Transmis depuis l'Antiquité, sa méthode de fabrication était perdue depuis longtemps. Même dans toute la Mer Xiu Mo, il en restait moins de dix. Qian Kun l'avait obtenu par hasard et l'avait immédiatement raffiné, le tenant pour un trésor suprême. Craignant que d'autres ne l'apprennent, il l'avait toujours profondément caché comme son ultime atout, comptant s'en servir plus tard, au moment de tenter l'Âme Naissante, pour accroître ses pouvoirs.
 
 Les conditions d'activation de ce jeton étaient extrêmement strictes: il exigeait qu'un cultivateur au stade de la Formation du Noyau ou supérieur sacrifie sa propre vie pour l'activer. L'utilisateur verrait alors toute sa culture raffinée en une pilule, qui serait offerte à celui qui parviendrait à tuer la cible.
 
@@ -92,6 +92,6 @@ En raison de cette propriété unique, dès qu'un cultivateur démoniaque croisa
 
 Par conséquent, le nombre de jetons avait drastiquement diminué; affirmer qu'il en restait dix était peut-être encore un peu exagéré. Qian Kun avait initialement prévu de s'en servir lors de sa tentative pour l'Âme Naissante, mais face à la mort imminente, il devint impitoyable et attendit que Wang Lin le rattrape.
 
-Quiconque est marqué par ce jeton survit rarement plus de cent jours au sein de la Mer des Démons. Toutefois, s'ils parviennent à tenir au-delà de ce délai, ils peuvent alors dévorer la pilule eux-mêmes.
+Quiconque est marqué par ce jeton survit rarement plus de cent jours au sein de la Mer Xiu Mo. Toutefois, s'ils parviennent à tenir au-delà de ce délai, ils peuvent alors dévorer la pilule eux-mêmes.
 
-Voyant Wang Lin approcher, Qian Kun brandit l'Ordre de mise à mort des Dix Mille Démons: Cent jours et lança d'une voix contenue: « Arrêtez! Connaissez-vous ce jeton? Je l'ai raffiné avec mon âme, ma conscience s'y est fondue! Si vous me tuez, vous serez marqué par l'ordre de mise à mort! Les événements d'aujourd'hui sont de la faute de notre côté, mais vous avez déjà tué neuf anciens, pourquoi vouloir nous exterminer jusqu'au dernier? Si vous m'épargnez, je peux vous recommander et faire de vous un Grand Ancien de la Secte de la Lutte contre le Mal, tout comme moi. Qu'en dites-vous? »
+Voyant Wang Lin approcher, Qian Kun brandit l'Ordre de mise à mort des Dix Mille Démons: Cent jours et lança d'une voix contenue: « Arrêtez! Connaissez-vous ce jeton? Je l'ai raffiné avec mon âme, ma conscience s'y est fondue! Si vous me tuez, vous serez marqué par l'ordre de mise à mort! Les événements d'aujourd'hui sont de la faute de notre côté, mais vous avez déjà tué neuf anciens, pourquoi vouloir nous exterminer jusqu'au dernier? Si vous m'épargnez, je peux vous recommander et faire de vous un Grand Ancien de la Secte Dou Xie, tout comme moi. Qu'en dites-vous? »

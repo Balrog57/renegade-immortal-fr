@@ -36,7 +36,7 @@ L'aura émanant de ce Sens Divin était antique et ne contenait aucune émotion,
 
 Wang Lin flottait dans cette aura, fixant froidement le vortex. Ses yeux s'illuminèrent et sa main droite pointa l'espace entre ses sourcils. Lorsqu'il leva la main, une lumière blanc laiteux apparut au bout de son doigt. D'un geste du bras droit, il fit distordre le vide à ses côtés, révélant diverses images.
 
-On y vit un jeune homme vêtu de noir qui n'était alors qu'au stade de la Formation du Noyau. Il se trouvait dans la Terre de l'Ancien Dieu, sur la planète Suzaku!
+On y vit un jeune homme vêtu de noir qui n'était alors qu'au stade de la Formation du Noyau. Il se trouvait dans la Terre Gu Shen, sur la planète Suzaku!
 
 L'image changea de nouveau. Après que le jeune homme en noir eut traversé de multiples épreuves, il finit par obtenir l'héritage mémoriel de l'Ancien Dieu Tu Si.
 

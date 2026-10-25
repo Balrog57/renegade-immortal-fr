@@ -20,9 +20,9 @@ La joie et l'animation se dissipèrent, laissant place à un silence de mort. Se
 
 « Cet individu... ose-t-il proférer des paroles aussi arrogantes dans la cité impériale du Dao Antique? » Après un bref instant de silence, la zone touchée par le hurlement de Wang Lin fut envahie par des cris de stupeur.
 
-À l'intérieur du Temple du Dao Antique, les neuf disciples sous les ordres de Xuan Luo étaient les plus proches de ce hurlement. Ils ouvrirent les yeux, choqués, et levèrent le regard vers la vallée située derrière le temple!
+À l'intérieur du Temple Dao Gu, les neuf disciples sous les ordres de Xuan Luo étaient les plus proches de ce hurlement. Ils ouvrirent les yeux, choqués, et levèrent le regard vers la vallée située derrière le temple!
 
-Au centre du Temple du Dao Antique se trouvait un espace totalement scellé. Xuan Luo y était assis calmement, les yeux clos. Il sentait que l'heure de sa réincarnation approchait. Il voulait raffiner pour Wang Lin un puissant trésor de foi avant de partir!
+Au centre du Temple Dao Gu se trouvait un espace totalement scellé. Xuan Luo y était assis calmement, les yeux clos. Il sentait que l'heure de sa réincarnation approchait. Il voulait raffiner pour Wang Lin un puissant trésor de foi avant de partir!
 
 Devant lui flottait une épée aux cinq couleurs. Cette arme était très étrange: elle possédait quatre lames. Elle ne ressemblait pas à une épée, mais plutôt à une sorte de fourche. Même sur ses bords, une cinquième lame, à peine visible, semblait prête à surgir à tout instant.
 
@@ -40,7 +40,7 @@ Il se leva brusquement et regarda derrière lui. Son regard semblait capable de 
 
 « Que s'est-il passé?! » Le cœur de Xuan Luo manqua un battement; il sentit qu'un événement majeur se produisait. Il agita sa manche pour tenter de retirer son Sens Divin, mais l'épée était à un stade critique de son raffinage: il lui faudrait encore un demi-encens pour s'en détacher complètement.
 
-Pris d'anxiété, Xuan Luo envoya rapidement un message à ses neuf subordonnés dans le Temple du Dao Antique.
+Pris d'anxiété, Xuan Luo envoya rapidement un message à ses neuf subordonnés dans le Temple Dao Gu.
 
 « Allez trouver Wang Lin et découvrez la cause de ce tumulte. Vous devez le stabiliser jusqu'à mon arrivée! Que cette affaire ne s'ébruite pas! »
 
@@ -86,7 +86,7 @@ Une fois cela fait, Wang Lin se tourna brusquement vers la cité impériale du D
 
 « Ye Dao! » Wang Lin serra les dents, ignorant royalement les neuf subordonnés. Il fixa le palais et s'élança dans sa direction avec la force d'un coup de tonnerre.
 
-Mais alors qu'il s'élançait, l'expression des neuf changea et ils se placèrent devant lui pour lui barrer la route. Sept d'entre eux formèrent des sceaux, libérant un gaz provenant du Temple du Dao Antique qui se mua en une immense formation.
+Mais alors qu'il s'élançait, l'expression des neuf changea et ils se placèrent devant lui pour lui barrer la route. Sept d'entre eux formèrent des sceaux, libérant un gaz provenant du Temple Dao Gu qui se mua en une immense formation.
 
 Sans hésiter, les neuf activèrent la formation du Temple pour stopper Wang Lin!
 
@@ -108,6 +108,6 @@ Les visages des neuf se décomposèrent lorsqu'un Grand Soleil Empyréen apparut
 
 « C'est un Grand Soleil Empyréen!!! »
 
-« Il... il est en réalité un Grand Empyréen!! » Les neuf étaient plongés dans l'incrédulité alors que Wang Lin levait la main droite et l'agitait. Le monde gronda et la formation entourant le Temple du Dao Antique s'effondra. Les neuf subordonnés crachèrent du sang, repoussés par l'onde de choc. Wang Lin ne les tua pas; il se transforma en un rayon de lumière et jaillit hors de la vallée!
+« Il... il est en réalité un Grand Empyréen!! » Les neuf étaient plongés dans l'incrédulité alors que Wang Lin levait la main droite et l'agitait. Le monde gronda et la formation entourant le Temple Dao Gu s'effondra. Les neuf subordonnés crachèrent du sang, repoussés par l'onde de choc. Wang Lin ne les tua pas; il se transforma en un rayon de lumière et jaillit hors de la vallée!
 
 Un long arc de lumière s'élança dans un grondement vers le palais!

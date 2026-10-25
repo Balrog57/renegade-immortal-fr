@@ -10,11 +10,11 @@ Avant d'entrer, Wang Lin sortit une cape noire pour se couvrir la tête. Une foi
 
 En plus de toutes ces épées, un pilier de cristal trônait au centre de la pièce, avec trois épées volantes flottant au milieu, leurs pointes dirigées vers le bas. Ces trois épées palpitaient d'une lueur changeante; parfois, elles brillaient intensément.
 
-Alors que Wang Lin observait les trois épées centrales, un employé s'approcha. Il avait environ vingt ans et l'air très vif. Il examina attentivement Wang Lin. Il était tout à fait normal que les clients se cachent le visage, car de nombreux cultivateurs ne souhaitaient pas être reconnus. Quant au niveau de culture de Wang Lin, l'employé disposait d'une technique spéciale propre au Pavillon de Raffinage des Trésors pour le vérifier. Plus il l'examinait, plus il était perplexe, car le niveau de culture de Wang Lin oscillait constamment entre la Formation du Noyau et le sommet du stade avancé de l'Établissement des Fondations.
+Alors que Wang Lin observait les trois épées centrales, un employé s'approcha. Il avait environ vingt ans et l'air très vif. Il examina attentivement Wang Lin. Il était tout à fait normal que les clients se cachent le visage, car de nombreux cultivateurs ne souhaitaient pas être reconnus. Quant au niveau de culture de Wang Lin, l'employé disposait d'une technique spéciale propre au Pavillon Lian Qi pour le vérifier. Plus il l'examinait, plus il était perplexe, car le niveau de culture de Wang Lin oscillait constamment entre la Formation du Noyau et le sommet du stade avancé de l'Établissement des Fondations.
 
 Bien que cet employé fût surpris, il ne le montra pas. Il demanda respectueusement: « Senior a-t-il des vues sur ces épées volantes? »
 
-Wang Lin détourna le regard et fixa l'employé. Il fut instantanément capable de percevoir que celui-ci se situait au 8e ou 9e niveau de la Condensation de Qi, et demanda calmement: « Le Pavillon de Raffinage des Trésors vend-il des fours à pilules? »
+Wang Lin détourna le regard et fixa l'employé. Il fut instantanément capable de percevoir que celui-ci se situait au 8e ou 9e niveau de la Condensation de Qi, et demanda calmement: « Le Pavillon Lian Qi vend-il des fours à pilules? »
 
 L'employé hocha la tête en souriant. « Senior, je crains que vous ne trouviez des fours à pilules que dans notre pavillon, le seul de Nan Dou à en vendre, car ce ne sont pas des objets que les gens ordinaires peuvent acquérir. Si senior est intéressé, je vous prie de me suivre au deuxième étage. »
 
@@ -34,13 +34,13 @@ Soudain, trois magnifiques jeunes femmes vêtues de fines gazes sortirent, chacu
 
 Les trois jeunes femmes s'arrêtèrent à quelques pas de Wang Lin et fixèrent sans cesse sa cape noire.
 
-L'homme d'âge moyen prit l'une des boîtes en bois, la posa sur la table et déclara: « Camarade cultivateur, celle-ci est forgée à partir de Roche Étoile Verte et de Cristal de Brume Mystérieuse provenant des profondeurs de la Mer des Démons. Il a fallu quarante-neuf mois de raffinage pour créer ce Four à Pilules Vert Mystérieux. C'est un four de rang 3. » Sur ces mots, il tapota la boîte, qui s'ouvrit pour révéler un four de la taille d'un poing.
+L'homme d'âge moyen prit l'une des boîtes en bois, la posa sur la table et déclara: « Camarade cultivateur, celle-ci est forgée à partir de Roche Étoile Verte et de Cristal de Brume Mystérieuse provenant des profondeurs de la Mer Xiu Mo. Il a fallu quarante-neuf mois de raffinage pour créer ce Four à Pilules Vert Mystérieux. C'est un four de rang 3. » Sur ces mots, il tapota la boîte, qui s'ouvrit pour révéler un four de la taille d'un poing.
 
 L'expression de Wang Lin resta impassible. Il se souvenait que Li Muwan lui avait dit que le four qu'elle transportait n'était que de rang 2, et qu'elle aurait besoin d'un instrument de rang 4 ou supérieur pour garantir le succès de la Pilule du Ciel Lointain.
 
 Après un bref examen, Wang Lin détourna les yeux sans dire un mot.
 
-L'homme d'âge moyen esquissa un léger sourire. D'un geste de la main, il fit revenir la boîte sur le plateau de jade. Il passa devant la deuxième jeune femme et saisit directement la boîte tenue par la troisième. Il la posa délicatement sur la table en souriant: « Je présume que le camarade cultivateur raffine une pilule de qualité supérieure. Ce four est forgé à partir des cœurs de quatre-vingt-dix-neuf bêtes spirituelles de faible qualité de la Mer des Démons. On l'appelle le Four à Pilules des Cent Bêtes. Si vous l'utilisez, il y a de fortes chances que la pilule absorbe une partie de l'aura des cœurs de bêtes, ce qui en augmentera la qualité. » Il tapota alors la boîte en bois. Celle-ci s'ouvrit lentement, révélant un four rouge sang. En y regardant de près, on pouvait distinguer les visages de quatre-vingt-dix-neuf bêtes spirituelles.
+L'homme d'âge moyen esquissa un léger sourire. D'un geste de la main, il fit revenir la boîte sur le plateau de jade. Il passa devant la deuxième jeune femme et saisit directement la boîte tenue par la troisième. Il la posa délicatement sur la table en souriant: « Je présume que le camarade cultivateur raffine une pilule de qualité supérieure. Ce four est forgé à partir des cœurs de quatre-vingt-dix-neuf bêtes spirituelles de faible qualité de la Mer Xiu Mo. On l'appelle le Four à Pilules des Cent Bêtes. Si vous l'utilisez, il y a de fortes chances que la pilule absorbe une partie de l'aura des cœurs de bêtes, ce qui en augmentera la qualité. » Il tapota alors la boîte en bois. Celle-ci s'ouvrit lentement, révélant un four rouge sang. En y regardant de près, on pouvait distinguer les visages de quatre-vingt-dix-neuf bêtes spirituelles.
 
 Ces créatures semblaient si vivantes que de faibles ondulations d'énergie spirituelle s'en échappaient, et ce n'était là que ce qui filtrait malgré le sceau; si on le levait, l'énergie spirituelle s'élèverait aussitôt jusqu'au ciel.
 
@@ -52,7 +52,7 @@ Wang Lin détourna le regard. Après une courte réflexion, il demanda: « Quel 
 
 L'homme sourit et répondit: « Le prix standard est de cent mille pierres spirituelles de haute qualité, ou bien vous pouvez proposer un trésor d'une valeur équivalente. »
 
-En entendant ce montant, le cœur de Wang Lin s'effondra, bien qu'il s'y soit préparé. Il comprenait mieux que jamais pourquoi le chef de la Secte de la Lutte contre le Mal avait dépensé la majeure partie des richesses de sa secte pour n'en acquérir qu'un seul.
+En entendant ce montant, le cœur de Wang Lin s'effondra, bien qu'il s'y soit préparé. Il comprenait mieux que jamais pourquoi le chef de la Secte Dou Xie avait dépensé la majeure partie des richesses de sa secte pour n'en acquérir qu'un seul.
 
 Le sourire de l'homme ne faiblit pas. Il se servit une tasse de thé, en prit une gorgée et reprit: « Ce Four à Pilules des Cent Bêtes est effectivement onéreux. Que diriez-vous de considérer plutôt le Four Vert Mystérieux évoqué précédemment? Bien qu'il coûte également cent mille pierres spirituelles, il s'agit de pierres de qualité moyenne, ce qui ne représente que dix mille pierres de haute qualité. »
 
@@ -68,7 +68,7 @@ Sans prononcer un mot, Wang Lin frappa à nouveau son sac de rangement et la pea
 
 L'homme d'âge moyen respirait avec précipitation en contemplant la peau de dragon. Il déploya son sens divin et constata que, même s'il ne s'agissait pas d'une peau entière, il ne devait certainement pas en manquer beaucoup.
 
-Une peau entière de bête spirituelle de qualité moyenne... Il faut dire qu'une telle créature équivalait à un cultivateur de l'Âme Naissante au sommet de son stade. Même dans les profondeurs de la Mer des Démons, elle était considérée comme une puissance redoutable. Bien que l'homme d'âge moyen ait vu beaucoup de choses, il n'avait connu que des peaux complètes de bêtes de faible qualité. Quant aux bêtes de qualité moyenne, il n'en avait vu que des fragments. C'était la première fois qu'il faisait face à une peau aussi entière.
+Une peau entière de bête spirituelle de qualité moyenne... Il faut dire qu'une telle créature équivalait à un cultivateur de l'Âme Naissante au sommet de son stade. Même dans les profondeurs de la Mer Xiu Mo, elle était considérée comme une puissance redoutable. Bien que l'homme d'âge moyen ait vu beaucoup de choses, il n'avait connu que des peaux complètes de bêtes de faible qualité. Quant aux bêtes de qualité moyenne, il n'en avait vu que des fragments. C'était la première fois qu'il faisait face à une peau aussi entière.
 
 Lorsqu'il releva la tête, Wang Lin avait déjà rangé le coffret dans son sac et s'était éloigné rapidement.
 
@@ -76,7 +76,7 @@ Wang Lin savait qu'exhiber sa richesse était imprudent; c'est pourquoi il s'ét
 
 À moins d'une nécessité absolue, il n'aurait pas voulu échanger cette peau, mais le prix du fourneau était prohibitif. Hormis la peau de dragon, la seule autre chose dont il disposait était le liquide spirituel. En comparaison, sortir un objet aussi prodigieux que le liquide spirituel provoquerait des problèmes bien plus graves. Après avoir pesé le pour et le contre, il avait décidé de troquer la peau de dragon pour partir au plus vite.
 
-Il quitta le Pavillon de Raffinage des Trésors et lança un regard froid de l'autre côté de la rue. En montant à l'étage, il avait déjà remarqué quelqu'un qui l'espionnait, et avait laissé une trace de son sens divin sur cet individu. En sortant, il nota que cette personne se trouvait dans l'auberge d'en face.
+Il quitta le Pavillon Lian Qi et lança un regard froid de l'autre côté de la rue. En montant à l'étage, il avait déjà remarqué quelqu'un qui l'espionnait, et avait laissé une trace de son sens divin sur cet individu. En sortant, il nota que cette personne se trouvait dans l'auberge d'en face.
 
 L'auberge était assez fréquentée, notamment par trois cultivateurs de la Formation du Noyau postés près de l'espion. Wang Lin réfléchit un instant et décida de ne pas faire exploser son sens divin. Après avoir fait quelques détours pour brouiller les pistes, il tenta d'activer sa technique d'évasion tellurique. Cependant, une lueur blanche jaillit et il ne pénétra pas le sol: toute la ville était protégée par une formation empêchant l'usage de cette technique.
 
@@ -84,7 +84,7 @@ Les sourcils froncés, Wang Lin bondit dans les airs et vola vers les portes de 
 
 Il n'avait parcouru qu'une courte distance qu'un cultivateur maigre au teint sombre apparut à l'endroit même où Wang Lin avait tenté son évasion. Il regarda dans la direction où le jeune homme s'était envolé en se léchant les lèvres, les yeux brillants de cupidité. Ce cultivateur était l'un de ceux qui marchandaient au premier étage lors de l'entrée de Wang Lin.
 
-Il s'appelait Wei San, un disciple de la Secte de la Lutte contre le Mal venu faire des achats à Nan Dou. Lorsqu'il avait vu Wang Lin monter au deuxième étage, la curiosité l'avait poussé à l'observer depuis l'auberge d'en face. Il avait même envoyé une transmission vocale à ses compagnons de secte présents en ville. Après avoir attendu longtemps, il vit Wang Lin partir et déduisit que ce dernier devait posséder des trésors. Wei San ne put s'empêcher de laisser germer des intentions malveillantes.
+Il s'appelait Wei San, un disciple de la Secte Dou Xie venu faire des achats à Nan Dou. Lorsqu'il avait vu Wang Lin monter au deuxième étage, la curiosité l'avait poussé à l'observer depuis l'auberge d'en face. Il avait même envoyé une transmission vocale à ses compagnons de secte présents en ville. Après avoir attendu longtemps, il vit Wang Lin partir et déduisit que ce dernier devait posséder des trésors. Wei San ne put s'empêcher de laisser germer des intentions malveillantes.
 
 Il n'avait cependant pas pu percer le niveau de culture de Wang Lin. Selon ses suppositions, l'inconnu devait être au stade de la Formation du Noyau. Cela l'avait fait hésiter, mais lorsque ses compagnons arrivèrent et qu'il vit que trois Anciens de sa secte étaient venus eux aussi, il fut ravi et leur expliqua tout en détail.
 

@@ -16,21 +16,21 @@ Pour les autres cultivateurs, cela n'avait aucune importance, car ils ne pouvaie
 
 La légende du continent du Taureau Céleste remontait à l'Antiquité. Si le continent comptait tant de montagnes, c'était parce que chacune d'elles était formée par un os de cette créature maléfique.
 
-Sur le continent du Taureau Céleste existaient deux sectes célèbres: la Secte Gui Yi et la Secte de la Grande Âme.
+Sur le continent du Taureau Céleste existaient deux sectes célèbres: la Secte Gui Yi et la Secte Da Hun.
 
 Ces deux puissances étaient immenses et faisaient partie des neuf sectes et treize factions du Continent de l'Est! Elles comptaient un nombre prodigieux de disciples, mais comme le continent du Taureau Céleste équivalait à des dizaines de mondes caverneux, il était rare qu'elles se rencontrent, ce qui limitait les frictions entre elles.
 
-La Secte de la Grande Âme était très singulière. Elle pratiquait une multitude de méthodes de culture, mais ses spécialités majeures étaient l'âme et l'illusion!
+La Secte Da Hun était très singulière. Elle pratiquait une multitude de méthodes de culture, mais ses spécialités majeures étaient l'âme et l'illusion!
 
-Fan Shanmeng était une disciple de la Secte de la Grande Âme, et ses divers sorts d'illusion témoignaient de la puissance de sa secte. La rumeur disait que les sorts d'illusion de la Secte de la Grande Âme composaient neuf niveaux et qu'au terme du dernier, ils pouvaient transformer l'illusion en réalité. C'était absolument terrifiant.
+Fan Shanmeng était une disciple de la Secte Da Hun, et ses divers sorts d'illusion témoignaient de la puissance de sa secte. La rumeur disait que les sorts d'illusion de la Secte Da Hun composaient neuf niveaux et qu'au terme du dernier, ils pouvaient transformer l'illusion en réalité. C'était absolument terrifiant.
 
 Quant à la Secte Gui Yi, elle se concentrait sur les cinq éléments. De plus, elle était célèbre pour sa méthode unique de forgeage d'armures.
 
-Sous la Secte Gui Yi et la Secte de la Grande Âme se trouvaient de nombreuses petites sectes éparpillées. Elles étaient sous la tutelle de l'une ou l'autre et devaient périodiquement leur verser des tributs.
+Sous la Secte Gui Yi et la Secte Da Hun se trouvaient de nombreuses petites sectes éparpillées. Elles étaient sous la tutelle de l'une ou l'autre et devaient périodiquement leur verser des tributs.
 
-La Secte des Sept Dao, fondée par le Souverain Céleste aux Sept Couleurs, était l'une de ces sectes. Cependant, comme il avait pris une disciple de la Secte de la Grande Âme pour partenaire de dao, il bénéficiait de la protection de cette dernière sur le continent du Taureau Céleste. Son talent étant exceptionnel, il était légitimement estimé par la Secte de la Grande Âme.
+La Secte Qi Dao, fondée par le Souverain Céleste aux Sept Couleurs, était l'une de ces sectes. Cependant, comme il avait pris une disciple de la Secte Da Hun pour partenaire de dao, il bénéficiait de la protection de cette dernière sur le continent du Taureau Céleste. Son talent étant exceptionnel, il était légitimement estimé par la Secte Da Hun.
 
-Toutefois, au cours des dernières décennies, un disciple central de la Secte Gui Yi nommé Yun Yifeng était devenu célèbre. On murmurait qu'il s'était retiré en culture fermée pendant une longue période et qu'à sa sortie, il était devenu extraordinaire. Il avait défié plusieurs disciples centraux de la Secte de la Grande Âme et les avait tous vaincus. Même les anciens ordinaires de la Secte de la Grande Âme n'étaient pas de taille contre lui.
+Toutefois, au cours des dernières décennies, un disciple central de la Secte Gui Yi nommé Yun Yifeng était devenu célèbre. On murmurait qu'il s'était retiré en culture fermée pendant une longue période et qu'à sa sortie, il était devenu extraordinaire. Il avait défié plusieurs disciples centraux de la Secte Da Hun et les avait tous vaincus. Même les anciens ordinaires de la Secte Da Hun n'étaient pas de taille contre lui.
 
 Par conséquent, la réputation de Yun Yifeng s'était envolée, le hissant peu à peu au premier rang de la nouvelle génération de disciples du continent du Taureau Céleste!
 
@@ -38,7 +38,7 @@ Certains l'incluaient même parmi les quatre génies célestes précédemment no
 
 Pourtant, ce Yun Yifeng se montrait très modeste et secouait souvent la tête lorsqu'on le comparait aux quatre génies du Continent de l'Est. Ce n'était pas par sentiment d'infériorité, mais plutôt par pur mépris à leur égard.
 
-Il y a dix ans, lors d'un affrontement entre la Secte de la Grande Âme et la Secte Gui Yi, Yun Yifeng avait blessé neuf disciples et trois anciens de la Secte de la Grande Âme en une seule attaque.
+Il y a dix ans, lors d'un affrontement entre la Secte Da Hun et la Secte Gui Yi, Yun Yifeng avait blessé neuf disciples et trois anciens de la Secte Da Hun en une seule attaque.
 
 Lorsqu'on le compara alors aux quatre génies célestes du Continent de l'Est, il prononça des paroles qui choquèrent tout le continent du Taureau Céleste:
 
@@ -56,13 +56,13 @@ Qui pouvait pousser Yun Yifeng à de tels propos? Qui pouvait l'intimider au poi
 
 Et cet individu n'avait cultivé que depuis un peu plus de 2 000 ans! Si cela était vrai, alors les quatre génies du Continent de l'Est ne méritaient effectivement pas leur titre face à un tel être!
 
-Bien que cette déclaration ait suscité une agitation sans précédent, beaucoup remirent ses propos en question. Cependant, personne au sein de la Secte de la Grande Âme ne s'y opposa, comme si ses membres connaissaient cet individu!
+Bien que cette déclaration ait suscité une agitation sans précédent, beaucoup remirent ses propos en question. Cependant, personne au sein de la Secte Da Hun ne s'y opposa, comme si ses membres connaissaient cet individu!
 
-Ce phénomène étrange semblait déclencher une tempête de spéculations. Le silence de la Secte de la Grande Âme alimentait tous les fantasmes!
+Ce phénomène étrange semblait déclencher une tempête de spéculations. Le silence de la Secte Da Hun alimentait tous les fantasmes!
 
 Qui était cette personne?
 
-Il pouvait paralyser Yun Yifeng par sa seule présence. Il pouvait dévaluer les quatre génies. Il pouvait réduire la Secte de la Grande Âme au silence. C'était comme si la secte avait tacitement admis l'existence d'un tel être! Même la Secte Gui Yi n'avait rien dit après les déclarations de son disciple, comme si elle savait aussi qu'une telle figure existait!
+Il pouvait paralyser Yun Yifeng par sa seule présence. Il pouvait dévaluer les quatre génies. Il pouvait réduire la Secte Da Hun au silence. C'était comme si la secte avait tacitement admis l'existence d'un tel être! Même la Secte Gui Yi n'avait rien dit après les déclarations de son disciple, comme si elle savait aussi qu'une telle figure existait!
 
 Qui était-il?
 
@@ -74,27 +74,27 @@ Pourtant, la question restait sans réponse. Et ceux qui détenaient la vérité
 
 Le temps passa, et l'agitation finit par s'estomper, laissant la rumeur s'enraciner dans les cœurs. Peut-être qu'un jour, ils découvriraient enfin l'identité de cet homme...
 
-La Secte du Dragon Bleu était une secte de niveau intermédiaire, dont le territoire couvrait moins de la moitié du Vide Brillant. Du point de vue d'un cultivateur de monde caverneux, elle n'était pas aussi vaste que le Temple Céleste du Tonnerre ou l'Alliance de Culture, mais elle demeurait un colosse. En revanche, sur le Continent Astral Immortel, elle était considérée comme moyenne.
+La Secte Cang Long était une secte de niveau intermédiaire, dont le territoire couvrait moins de la moitié du Vide Brillant. Du point de vue d'un cultivateur de monde caverneux, elle n'était pas aussi vaste que le Temple Céleste du Tonnerre ou l'Alliance Xiu Zhen, mais elle demeurait un colosse. En revanche, sur le Continent Astral Immortel, elle était considérée comme moyenne.
 
-On racontait que le Continent Astral Immortel comptait 30 000 sectes célestes. Nul ne savait si cela était vrai, mais chaque secte était effectivement unique. Le nom de « Secte du Dragon Bleu » laissait supposer un lien avec les dragons, mais les méthodes de culture de ses disciples n'en avaient rien à voir.
+On racontait que le Continent Astral Immortel comptait 30 000 sectes célestes. Nul ne savait si cela était vrai, mais chaque secte était effectivement unique. Le nom de « Secte Cang Long » laissait supposer un lien avec les dragons, mais les méthodes de culture de ses disciples n'en avaient rien à voir.
 
-Les disciples de la Secte du Dragon Bleu excellaient dans l'art de créer des marionnettes pour les assister au combat. Ils devaient souvent affiner leurs propres marionnettes de vie avant de pouvoir s'aventurer à l'extérieur. Ces marionnettes possédaient leurs propres rangs et pouvoirs.
+Les disciples de la Secte Cang Long excellaient dans l'art de créer des marionnettes pour les assister au combat. Ils devaient souvent affiner leurs propres marionnettes de vie avant de pouvoir s'aventurer à l'extérieur. Ces marionnettes possédaient leurs propres rangs et pouvoirs.
 
 Parmi les meilleures, outre l'utilisation de bois spécial ou de mécanismes, des cadavres de bêtes ou de cultivateurs pouvaient également être transformés en marionnettes.
 
-L'art des marionnettes n'était pas si mystérieux; les cultivateurs d'autres sectes en connaissaient les rudiments. Cependant, le sortilège de la Secte du Dragon Bleu possédait une particularité unique: il permettait de convertir son propre corps en marionnette afin d'atteindre l'immortalité.
+L'art des marionnettes n'était pas si mystérieux; les cultivateurs d'autres sectes en connaissaient les rudiments. Cependant, le sortilège de la Secte Cang Long possédait une particularité unique: il permettait de convertir son propre corps en marionnette afin d'atteindre l'immortalité.
 
 La rumeur disait que le premier membre de la secte à avoir atteint le stade initial de la Tribulation du Vide, le Grand Ancien Du Qing, était un être fait de bois. En apparence, il ressemblait à un homme ordinaire, mais dès qu'il utilisait ses sorts, son corps ligneux devenait visible.
 
-Sur le continent du Taureau Céleste, la Secte du Dragon Bleu jouissait d'une réputation sinistre. Ses disciples, et même ses anciens, utilisaient tous les moyens pour obtenir ce qu'ils désiraient, y compris le massacre pour s'emparer de trésors.
+Sur le continent du Taureau Céleste, la Secte Cang Long jouissait d'une réputation sinistre. Ses disciples, et même ses anciens, utilisaient tous les moyens pour obtenir ce qu'ils désiraient, y compris le massacre pour s'emparer de trésors.
 
-Cependant, le Grand Ancien Du Qing entretenait des liens profonds avec la Secte de la Grande Âme; ils pouvaient donc agir à leur guise, et peu de sectes osaient les provoquer.
+Cependant, le Grand Ancien Du Qing entretenait des liens profonds avec la Secte Da Hun; ils pouvaient donc agir à leur guise, et peu de sectes osaient les provoquer.
 
-La Secte du Dragon Bleu choisissait également soigneusement ses cibles. Si une puissance était trop risquée, elle l'évitait. Une partie de leurs cibles était aussi constituée de voyageurs des autres continents. Si un cultivateur étranger passait par là, il devenait leur cible idéale.
+La Secte Cang Long choisissait également soigneusement ses cibles. Si une puissance était trop risquée, elle l'évitait. Une partie de leurs cibles était aussi constituée de voyageurs des autres continents. Si un cultivateur étranger passait par là, il devenait leur cible idéale.
 
 Durant l'année, les disciples erraient principalement à l'extérieur pour collecter des informations pour la secte. S'ils rencontraient un ennemi difficile, ils n'hésitaient pas à appeler des renforts pour attaquer en groupe.
 
-Kang Ren était un disciple de troisième génération de la Secte du Dragon Bleu. Rusé et cruel, il était très célèbre parmi ses pairs et particulièrement estimé par la secte. Il possédait un flair remarquable, capable de déceler d'un coup d'œil si une personne était une cible facile ou non, évitant ainsi d'attirer les ennuis sur sa secte.
+Kang Ren était un disciple de troisième génération de la Secte Cang Long. Rusé et cruel, il était très célèbre parmi ses pairs et particulièrement estimé par la secte. Il possédait un flair remarquable, capable de déceler d'un coup d'œil si une personne était une cible facile ou non, évitant ainsi d'attirer les ennuis sur sa secte.
 
 Il était un bel homme, ce qui rendait sa cruauté difficile à imaginer. Même certains disciples de deuxième génération hésitaient à le provoquer.
 
@@ -108,9 +108,9 @@ Ce changement soudain stupéfia Kang Ren, qui se frotta les yeux. Il n'avait jam
 
 Cependant, il fut bientôt pris d'une excitation fébrile et ses yeux brillèrent d'un éclat vif. Il fonça vers l'endroit où la silhouette au cercueil était tombée.
 
-« Il y a quelque chose d'étrange, il y a un problème, il y a un trésor! » Le cœur de Kang Ren battait la chamade. La Secte du Dragon Bleu avait été fondée par Du Qing, et cette phrase constituait la toute première règle de la secte!
+« Il y a quelque chose d'étrange, il y a un problème, il y a un trésor! » Le cœur de Kang Ren battait la chamade. La Secte Cang Long avait été fondée par Du Qing, et cette phrase constituait la toute première règle de la secte!
 
-Au fil des ans, chaque disciple de la Secte du Dragon Bleu l'avait mémorisée!
+Au fil des ans, chaque disciple de la Secte Cang Long l'avait mémorisée!
 
 Tout ce qui était étrange devait cacher un problème, et s'il y avait un problème, il y avait fort probablement un trésor! Kang Ren vola à toute vitesse, tout en se protégeant prudemment avec ses trésors. En chemin, il entendit un grondement sourd.
 

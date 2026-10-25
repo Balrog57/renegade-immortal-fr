@@ -100,11 +100,11 @@ Dès que les ossements apparurent, l'éclair rouge sembla être attiré et se pr
 
 Son corps vola en éclats et se désintégra complètement; même son âme originelle s'effondra. Cependant, son âme fusionna avec la tempête de fragments osseux et disparut avec elle en un éclair.
 
-Sur le champ de bataille de la Mer des Nuages, Wang Lin se tenait là, brandissant la hache géante, son regard balayant les cultivateurs du Royaume Extérieur. Une lueur d'intention meurtrière brilla dans ses yeux!
+Sur le champ de bataille de la Mer Yun, Wang Lin se tenait là, brandissant la hache géante, son regard balayant les cultivateurs du Royaume Extérieur. Une lueur d'intention meurtrière brilla dans ses yeux!
 
 L'océan de poison rugissait à travers les étoiles et des dizaines de milliers de bêtes-moustiques hurlaient en déferlant avec lui, chargeant vers les plus de cent mille cultivateurs du Royaume Extérieur!
 
-Au loin, dans la Mer des Nuages, de grandes ondulations apparurent soudainement. À l'intérieur de ces ondes, une, deux, trois... près de neuf cents planètes de culture jaillirent brusquement!
+Au loin, dans la Mer Yun, de grandes ondulations apparurent soudainement. À l'intérieur de ces ondes, une, deux, trois... près de neuf cents planètes de culture jaillirent brusquement!
 
 Les renforts de Luotian étaient arrivés!
 

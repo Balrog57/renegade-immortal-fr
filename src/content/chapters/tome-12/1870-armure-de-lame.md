@@ -38,7 +38,7 @@ Wang Lin pénétra rapidement dans le palais souterrain. À peine plus de mille 
 
 Son regard balayait occasionnellement les palais. C'était là que se trouvaient les cultivateurs de la Tribulation du Vide, eux aussi gravement blessés.
 
-Alors que les grondements s'intensifiaient, le palais souterrain commença à trembler et des débris de terre tombèrent du plafond. Bien qu'ils sachent qu'il faudrait beaucoup de temps aux cultivateurs du Continent du Démon Vert pour briser la formation, ces secousses incessantes exerçaient une pression invisible sur chacun d'eux.
+Alors que les grondements s'intensifiaient, le palais souterrain commença à trembler et des débris de terre tombèrent du plafond. Bien qu'ils sachent qu'il faudrait beaucoup de temps aux cultivateurs du Continent Lu Mo pour briser la formation, ces secousses incessantes exerçaient une pression invisible sur chacun d'eux.
 
 Sous une telle tension, ceux qui manquaient de volonté risquaient de sombrer dans la folie.
 
@@ -46,7 +46,7 @@ Tandis que les échos tonitruants continuaient de résonner, le désespoir se li
 
 « C'est fini... Ils sont six vieux monstres puissants et cette formation ne peut pas nous protéger. Une fois qu'ils auront brisé le sceau, nous serons tous morts... »
 
-« Le Continent du Démon Vert a des renforts, pourquoi n'en avons-nous pas? Pourquoi sommes-nous les seuls à garder cet endroit... »
+« Le Continent Lu Mo a des renforts, pourquoi n'en avons-nous pas? Pourquoi sommes-nous les seuls à garder cet endroit... »
 
 « Il est inutile de continuer la garde! Cet endroit sera bientôt envahi, nous devons fuir immédiatement! »
 
@@ -54,11 +54,11 @@ Leurs clameurs se propageaient dans le palais souterrain comme une tempête. Wan
 
 En écoutant le désespoir de ces cultivateurs et en ressentant les grondements incessants, l'expression de Wang Lin devint de plus en plus sombre.
 
-Il ne se souciait guère de la destruction du palais. Il réfléchissait plutôt à la manière dont il traiterait Zhang Daozong une fois que les cultivateurs du Continent du Démon Vert se seraient frayé un chemin vers eux!
+Il ne se souciait guère de la destruction du palais. Il réfléchissait plutôt à la manière dont il traiterait Zhang Daozong une fois que les cultivateurs du Continent Lu Mo se seraient frayé un chemin vers eux!
 
 S'ils pouvaient sceller le monde une fois, ils pourraient le faire une deuxième, une troisième et même une quatrième fois! Ce scellement était spécifiquement ciblé contre lui, ce qui lui causait bien des maux de tête.
 
-À travers cela, Wang Lin comprit que le Continent du Démon Vert l'avait repéré, et qu'ils étaient probablement au courant de ce qui s'était passé dans la Mer des Pilules. C'était comme si ces quatre vieux monstres de stade intermédiaire de la Tribulation du Vide étaient venus pour lui!
+À travers cela, Wang Lin comprit que le Continent Lu Mo l'avait repéré, et qu'ils étaient probablement au courant de ce qui s'était passé dans la Mer Dan. C'était comme si ces quatre vieux monstres de stade intermédiaire de la Tribulation du Vide étaient venus pour lui!
 
 « Briser le troisième méridien n'est que l'un de leurs objectifs; l'autre est sans doute de me tuer. Ils ont dû tout planifier avec soin pour ne me laisser aucune chance de m'échapper... »
 
@@ -70,7 +70,7 @@ Pendant que Wang Lin méditait, hormis quelques centaines de cultivateurs, l'agi
 
 « Chers compagnons de la Tribulation du Vide, que devons-nous faire maintenant?! »
 
-« Les cultivateurs du Continent du Démon Vert vont nous massacrer, comment pouvons-nous résister?! »
+« Les cultivateurs du Continent Lu Mo vont nous massacrer, comment pouvons-nous résister?! »
 
 « Avons-nous des renforts? Si oui, quand arriveront-ils? Et s'il n'y en a pas, allons-nous simplement attendre la mort?! »
 
@@ -114,7 +114,7 @@ Le vieil homme nommé Zhou, tremblant, accéléra le débit de ses paroles.
 
 Il ne croyait pas un instant que Lu Wenran choisirait de porter cette armure si elle était réellement dangereuse. Il devait y avoir d'autres avantages cachés, sans quoi Lu Wenran n'aurait jamais consenti.
 
-« Compagnons cultivateurs, bien que cette armure soit périlleuse, c'est un moment crucial pour notre Continent du Taureau Céleste. Comment pourrais-je laisser les autres s'en charger sous prétexte de danger? »
+« Compagnons cultivateurs, bien que cette armure soit périlleuse, c'est un moment crucial pour notre Continent Tian Niu. Comment pourrais-je laisser les autres s'en charger sous prétexte de danger? »
 
 « Plus elle est dangereuse, plus il est de mon devoir de la porter. Si... si je venais à mourir tragiquement à cause de cette armure, alors je vous en prie, chaque année à cette date, offrez-moi simplement une cruche de vieux vin! » Lu Wenran bouillonnait d'excitation intérieure et peinait à se contenir. Cependant, en apparence, il affichait un air de tristesse solennelle, comme s'il était prêt à tout sacrifier pour les autres.
 

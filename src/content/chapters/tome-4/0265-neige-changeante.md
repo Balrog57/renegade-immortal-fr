@@ -64,7 +64,7 @@ Peu après, en plus de la neige, d'innombrables fragments de jade jaillirent des
 
 L'un de ces fragments vola vers Wang Lin. D'un revers de main, il le rattrapa, même si l'objet avait déjà dépassé sa position.
 
-Wang Lin tint le jade et, en y projetant son esprit, il entendit une voix sinistre: « Tous les cultivateurs de l'Alliance des Quatre Sectes, préparez-vous à la guerre! Les quatre sectes — la Secte de l'Encre d'Eau, la Secte Bai Yun, la Secte du Bois Vert et la Secte de l'Âme Noire — ouvrent grand leurs portes et appellent tous les cultivateurs errants, démoniaques et ascètes à se rassembler. Que ceux qui s'absentent en assument les conséquences! »
+Wang Lin tint le jade et, en y projetant son esprit, il entendit une voix sinistre: « Tous les cultivateurs de l'Alliance des Quatre Sectes, préparez-vous à la guerre! Les quatre sectes — la Secte Shui Mo, la Secte Bai Yun, la Secte Qing Mu et la Secte de l'Âme Noire — ouvrent grand leurs portes et appellent tous les cultivateurs errants, démoniaques et ascètes à se rassembler. Que ceux qui s'absentent en assument les conséquences! »
 
 Wang Lin réfléchit un instant avant de broyer le jade dans sa paume. Il disparut de sa boutique et, lorsqu'il réapparut, il planait déjà dans le ciel au-dessus de la capitale.
 

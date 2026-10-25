@@ -36,21 +36,21 @@ Aujourd'hui, Wang Lin accomplissait sa promesse d'autrefois en accompagnant Li Q
 
 La beauté de l'espace ne résidait pas dans les nébuleuses éclatantes ou les météores étincelants, mais dans ce silence extrême. Dans ce silence, on pouvait ressentir sa propre solitude et éprouver la froideur d'être seul au monde...
 
-Tenant Li Qianmei, le regard de Wang Lin s'adoucit. Il se dirigea vers le domaine du Clan de la Soie Bleue, s'en rapprochant de plus en plus.
+Tenant Li Qianmei, le regard de Wang Lin s'adoucit. Il se dirigea vers le domaine du Clan Lan Si, s'en rapprochant de plus en plus.
 
 La lumière des étoiles drapait leurs corps, semblant les accompagner silencieusement dans leur ultime périple. Li Qianmei devenait de plus en plus faible, et Wang Lin devait redoubler d'efforts pour appliquer le Temps Fluide sur elle.
 
-En utilisant continuellement la Distorsion Spatiale, ils traversèrent l'immensité de l'espace pour approcher le Clan de la Soie Bleue. Le domaine stellaire de ce clan se situait dans une région reculée, et Wang Lin avançait en silence.
+En utilisant continuellement la Distorsion Spatiale, ils traversèrent l'immensité de l'espace pour approcher le Clan Lan Si. Le domaine stellaire de ce clan se situait dans une région reculée, et Wang Lin avançait en silence.
 
-Le Clan de la Soie Bleue était l'un des rares clans du Système Stellaire Antique qui n'aimaient pas tuer. Comme leur nom l'indiquait, les cheveux de leurs membres étaient tous d'un bleu profond.
+Le Clan Lan Si était l'un des rares clans du Système Stellaire Antique qui n'aimaient pas tuer. Comme leur nom l'indiquait, les cheveux de leurs membres étaient tous d'un bleu profond.
 
-Ce bleu, symbole de douleur et de mélancolie, imprégnait l'âme de chaque membre du clan. Le Clan de la Soie Bleue ne possédait guère de talent pour la culture ou le Dao. À travers les âges, peu de cultivateurs puissants étaient apparus au sein de ce clan, à l'exception de Lanmeng Daozun, dont le nom résonnait dans tout le Système Stellaire Antique.
+Ce bleu, symbole de douleur et de mélancolie, imprégnait l'âme de chaque membre du clan. Le Clan Lan Si ne possédait guère de talent pour la culture ou le Dao. À travers les âges, peu de cultivateurs puissants étaient apparus au sein de ce clan, à l'exception de Lanmeng Daozun, dont le nom résonnait dans tout le Système Stellaire Antique.
 
-Avant que Lanmeng Daozun ne devienne célèbre, le Clan de la Soie Bleue n'était qu'une infime famille. Bien que leurs niveaux de culture fussent modestes, ils excellaient en musique, en alchimie, en raffinage de trésors et dans d'autres arts non conventionnels. Leurs talents musicaux avaient presque atteint le sommet de l'art.
+Avant que Lanmeng Daozun ne devienne célèbre, le Clan Lan Si n'était qu'une infime famille. Bien que leurs niveaux de culture fussent modestes, ils excellaient en musique, en alchimie, en raffinage de trésors et dans d'autres arts non conventionnels. Leurs talents musicaux avaient presque atteint le sommet de l'art.
 
 Chaque membre du clan était un maître de la musique, et tous étaient d'une grande beauté. Hommes comme femmes possédaient des traits magnifiques.
 
-En raison de cela, les membres du Clan de la Soie Bleue étaient devenus des concubines et des favoris prisés par les clans puissants.
+En raison de cela, les membres du Clan Lan Si étaient devenus des concubines et des favoris prisés par les clans puissants.
 
 C'était une source de douleur et de chagrin pour le clan. Cette tristesse imprégna leurs cœurs durant de longues époques, conférant aux femmes comme aux hommes du clan un sentiment de beauté singulier et mélancolique.
 
@@ -60,7 +60,7 @@ Ils n'avaient aucune liberté. Chaque membre du clan était emmené avant même 
 
 Tout cela perdura jusqu'à l'ascension de Lanmeng Daozun, qui provoqua un changement radical!
 
-Lanmeng Daozun était l'être le plus talentueux du Clan de la Soie Bleue. Les légendes à son sujet continuaient de se propager dans tout le Système Stellaire Antique jusqu'à ce jour...
+Lanmeng Daozun était l'être le plus talentueux du Clan Lan Si. Les légendes à son sujet continuaient de se propager dans tout le Système Stellaire Antique jusqu'à ce jour...
 
 Dans le Système Stellaire Antique, lorsque l'on évoquait Lanmeng Daozun, on ne pensait pas tant à sa puissance qu'à la passion dévorante de son amour. Dans sa vie, il n'avait aimé qu'une seule femme.
 
@@ -68,9 +68,9 @@ C'était cette douleur et ce chagrin qui l'avaient accompagné durant des étern
 
 La rumeur voulait que ce soit grâce à cet amour que Lanmeng Daozun avait pu atteindre un tel niveau pour devenir l'un des Cinq Maîtres du Système Stellaire Antique. Même le Souverain le redoutait!
 
-Le Clan de la Soie Bleue était devenu un grand clan du Système Stellaire Antique grâce à lui, mais la nature profonde de son peuple n'avait pas changé. Ils vivaient paisiblement au sein de leur vaste domaine stellaire, et la tristesse de leur musique avait été progressivement remplacée par la joie.
+Le Clan Lan Si était devenu un grand clan du Système Stellaire Antique grâce à lui, mais la nature profonde de son peuple n'avait pas changé. Ils vivaient paisiblement au sein de leur vaste domaine stellaire, et la tristesse de leur musique avait été progressivement remplacée par la joie.
 
-Ils avaient retrouvé cette joie sous la protection de Lanmeng Daozun. Pour le Clan de la Soie Bleue, Lanmeng Daozun était leur divinité, recevant l'admiration et le respect de tout son peuple.
+Ils avaient retrouvé cette joie sous la protection de Lanmeng Daozun. Pour le Clan Lan Si, Lanmeng Daozun était leur divinité, recevant l'admiration et le respect de tout son peuple.
 
 Le Mont Bleu, son lieu de résidence, était devenu une terre sacrée pour le clan! Cependant, malgré cette joie retrouvée, une subtile tristesse émanant du Mont Bleu allait pour toujours subsister.
 
@@ -106,7 +106,7 @@ Des larmes cristallines perlèrent dans les yeux de la femme.
 
 L'homme soupira, poussa la porte de la demeure et sortit. Alors qu'il contemplait l'horizon lointain où le soleil se couchait peu à peu, il fit un pas; son corps émit une douce lueur bleue et il disparut.
 
-Le domaine stellaire du Clan de la Soie Bleue était extrêmement vaste. À cet instant, à la lisière de ce domaine, une femme en blanc avait suivi Wang Lin jusqu'ici.
+Le domaine stellaire du Clan Lan Si était extrêmement vaste. À cet instant, à la lisière de ce domaine, une femme en blanc avait suivi Wang Lin jusqu'ici.
 
 Alors qu'elle s'apprêtait à pénétrer dans le territoire du clan, la femme en blanc s'arrêta brusquement et regarda droit devant elle.
 
@@ -126,12 +126,12 @@ Les pupilles de la femme en blanc se rétractèrent soudainement. Elle agita sa 
 
 « Il devra sortir. » La voix de la femme resta sereine alors qu'elle s'éloignait progressivement dans les profondeurs du vide avant de disparaître.
 
-Après avoir parcouru une distance indéterminée à travers le ciel étoilé, Wang Lin amena Li Qianmei au magnifique foyer du Clan de la Soie Bleue, là où se trouvait Lanmeng Daozun, et là qui était la demeure de Li Qianmei...
+Après avoir parcouru une distance indéterminée à travers le ciel étoilé, Wang Lin amena Li Qianmei au magnifique foyer du Clan Lan Si, là où se trouvait Lanmeng Daozun, et là qui était la demeure de Li Qianmei...
 
-À mesure que Wang Lin avançait, l'immensité spatiale devenait plus lumineuse. Le domaine stellaire du Clan de la Soie Bleue était magnifique. Même les planètes de culture ressemblaient à de véritables étoiles, émettant une douce lueur bleue qui se propageait au loin.
+À mesure que Wang Lin avançait, l'immensité spatiale devenait plus lumineuse. Le domaine stellaire du Clan Lan Si était magnifique. Même les planètes de culture ressemblaient à de véritables étoiles, émettant une douce lueur bleue qui se propageait au loin.
 
 Wang Lin regarda Li Qianmei, endormie dans ses bras, et murmura doucement: « Qianmei, nous y sommes... »
 
-C'est à cet instant qu'une lumière bleue infinie émana du domaine stellaire du Clan de la Soie Bleue. Tandis que cette lueur immense se déployait, une voix grave résonna à travers le monde:
+C'est à cet instant qu'une lumière bleue infinie émana du domaine stellaire du Clan Lan Si. Tandis que cette lueur immense se déployait, une voix grave résonna à travers le monde:
 
 « Donne-la-moi! »

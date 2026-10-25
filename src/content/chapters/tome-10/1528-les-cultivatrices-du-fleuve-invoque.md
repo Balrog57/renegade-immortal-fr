@@ -12,7 +12,7 @@ Les éclairs projetaient des grondements tonitruants. Ils étaient si rapides qu
 
 Une chose était particulièrement surprenante: la majorité d'entre eux étaient des femmes!
 
-C'était un phénomène extrêmement rare dans Luotian, la Mer des Nuages et l'Alliance! Parmi les dizaines de milliers de cultivateurs de la Rivière Invoquée, seuls quelques milliers étaient des hommes!
+C'était un phénomène extrêmement rare dans Luotian, la Mer Yun et l'Alliance! Parmi les dizaines de milliers de cultivateurs de la Rivière Invoquée, seuls quelques milliers étaient des hommes!
 
 Les cultivateurs de la Rivière Invoquée affichaient tous une expression grave; ils étaient déterminés et empreints d'une intention meurtrière! Bien qu'elles fussent des femmes, leur soif de sang n'avait rien à envier aux hommes en cet instant!
 
@@ -22,13 +22,13 @@ Du côté de Luotian, une multitude de cultivateurs surgit à travers les ondula
 
 À cet instant, ils n'étaient plus des cultivateurs de la Rivière Invoquée ou de Luotian; ils étaient tous les membres des cultivateurs du Royaume Intérieur!
 
-L'arrivée des renforts de Luotian et de la Rivière Invoquée galvanisa les quelques milliers de cultivateurs restants de la Mer des Nuages. Ils n'avaient déjà plus peur de la mort, et l'arrivée de ces alliés les rendit encore plus ardents!
+L'arrivée des renforts de Luotian et de la Rivière Invoquée galvanisa les quelques milliers de cultivateurs restants de la Mer Yun. Ils n'avaient déjà plus peur de la mort, et l'arrivée de ces alliés les rendit encore plus ardents!
 
 Quant aux cultivateurs du Royaume Extérieur, bien qu'ils fussent plus nombreux, leurs cœurs étaient ébranlés. Tandis que l'océan empoisonné et les bêtes moustiques attaquaient, des cris de détresse résonnaient et ils se dispersèrent rapidement.
 
 En conséquence, ce fut une véritable déroute! Le rugissement de Wang Lin fut comme un coup de tonnerre qui brisa les derniers restes de résistance dans le cœur des cultivateurs du Royaume Extérieur!
 
-« L'ancêtre du Clan des Moineaux de Feu est mort! Le cultivateur de la troisième étape Nanzhao Shangren est mort! Le Grand Maître Yun Luo du Conseil Souverain est mort! Le prochain, c'est toi! » Les yeux de Wang Lin étaient injectés de sang alors qu'il avançait en brandissant sa hache. Des grondements tonitruants faisaient vibrer l'air et les cadavres jonchaient le vide!
+« L'ancêtre du Clan Huo Que est mort! Le cultivateur de la troisième étape Nanzhao Shangren est mort! Le Grand Maître Yun Luo du Conseil Souverain est mort! Le prochain, c'est toi! » Les yeux de Wang Lin étaient injectés de sang alors qu'il avançait en brandissant sa hache. Des grondements tonitruants faisaient vibrer l'air et les cadavres jonchaient le vide!
 
 Le Maître Nan Yunzi combattait la concubine impériale céleste quand, à cet instant, la jeune femme de la Rivière Invoquée, vêtue comme un homme, s'approcha, entourée d'éclairs crépitants.
 
@@ -52,19 +52,19 @@ Alors que l'océan empoisonné faisait rage, les cultivateurs du Royaume Extéri
 
 Les cultivateurs du Royaume Extérieur étaient repoussés sans relâche! Près de 10 000 d'entre eux périrent en un laps de temps si court, et ils ne cessaient de reculer! Leur confiance avait été pulvérisée par Wang Lin lorsqu'il avait tué ces trois individus. Ils n'osaient plus combattre!
 
-Lorsqu'ils étaient arrivés, ils débordaient d'assurance. À leurs yeux, les cultivateurs du Royaume Intérieur n'étaient que des fourmis. Ils étaient venus pour tuer et piller, convaincus que le Royaume Intérieur ne pourrait opposer aucune résistance sérieuse. En vérité, après leur entrée, le massacre des cultivateurs de la Mer des Nuages n'avait fait qu'alimenter leur arrogance. Mais ils s'étaient trompés. Désormais, tous savaient qu'ils avaient sous-estimé la puissance que pouvait libérer un peuple lorsqu'il défendait sa patrie!
+Lorsqu'ils étaient arrivés, ils débordaient d'assurance. À leurs yeux, les cultivateurs du Royaume Intérieur n'étaient que des fourmis. Ils étaient venus pour tuer et piller, convaincus que le Royaume Intérieur ne pourrait opposer aucune résistance sérieuse. En vérité, après leur entrée, le massacre des cultivateurs de la Mer Yun n'avait fait qu'alimenter leur arrogance. Mais ils s'étaient trompés. Désormais, tous savaient qu'ils avaient sous-estimé la puissance que pouvait libérer un peuple lorsqu'il défendait sa patrie!
 
-La mort de l'ancêtre du Clan des Moineaux de Feu avait ébranlé leur foi! Le cri déchirant de Nanzhao Shangren avait brisé leur courage! Enfin, la mort du Grand Maître Yun Luo avait achevé de détruire leur assurance, transformant leur orgueil en une terreur monstrueuse!
+La mort de l'ancêtre du Clan Huo Que avait ébranlé leur foi! Le cri déchirant de Nanzhao Shangren avait brisé leur courage! Enfin, la mort du Grand Maître Yun Luo avait achevé de détruire leur assurance, transformant leur orgueil en une terreur monstrueuse!
 
 « Cette guerre... nous l'avons perdue... » Les cultivateurs du Royaume Extérieur s'enfuirent dans la panique, fuyant frénétiquement. Ils voulaient désespérément quitter le Royaume Intérieur. Pour eux, les défenseurs étaient des déments qui ne se souciaient ni de leur vie ni de leur mort, cherchant seulement à en emporter un de plus avec eux!
 
-L'océan de poison rugissait, les bêtes moustiques sifflaient, et les cultivateurs de la Mer des Nuages attaquaient sans égard pour leur propre vie. Les forces de Luotian chargeaient tandis que celles de la Rivière Invoquée fondaient sur l'ennemi tels des éclairs. Le tout formait un immense filet de boucherie!
+L'océan de poison rugissait, les bêtes moustiques sifflaient, et les cultivateurs de la Mer Yun attaquaient sans égard pour leur propre vie. Les forces de Luotian chargeaient tandis que celles de la Rivière Invoquée fondaient sur l'ennemi tels des éclairs. Le tout formait un immense filet de boucherie!
 
 Wang Lin leva la Hache Brise-Ciel et chargea. À chaque coup de sa hache, des vies s'éteignaient. Ses vêtements blancs étaient désormais trempés de sang. Puis, Wang Lin se mua en un nuage de brume et fonça dans la mêlée. Cette brume, large de plus de 100 000 pieds, enveloppa une multitude de cultivateurs dont la force vitale fut instantanément aspirée, les transformant en eau sanglante.
 
 C'était la contre-attaque!
 
-Tout comme les cultivateurs de la Mer des Nuages avaient été massacrés, les forces du Royaume Intérieur lançaient leur ultime offensive dans cette bataille tragique! Sous le choc des troupes de Luotian et de la Rivière Invoquée, le Royaume Extérieur subissait des pertes toujours plus lourdes. Les bêtes moustiques et l'océan de poison agissaient comme une tempête dévorant tout ce qu'elle touchait. Sur les quelque 100 000 cultivateurs du Royaume Extérieur venus, moins de 80 000 subsistaient encore!
+Tout comme les cultivateurs de la Mer Yun avaient été massacrés, les forces du Royaume Intérieur lançaient leur ultime offensive dans cette bataille tragique! Sous le choc des troupes de Luotian et de la Rivière Invoquée, le Royaume Extérieur subissait des pertes toujours plus lourdes. Les bêtes moustiques et l'océan de poison agissaient comme une tempête dévorant tout ce qu'elle touchait. Sur les quelque 100 000 cultivateurs du Royaume Extérieur venus, moins de 80 000 subsistaient encore!
 
 C'est alors que la troisième armée du Système Stellaire Antique arriva. Elle apparut aux abords de la Formation de Scellement du Royaume et s'apprêtait à forcer le passage! Deux cultivateurs de la troisième étape, au stade intermédiaire du Vide du Nirvana, menaient la marche. Ils s'apprêtaient à faire entrer près de 50 000 hommes. Si ces renforts arrivaient, les troupes en déroute retrouveraient la volonté de lutter!
 

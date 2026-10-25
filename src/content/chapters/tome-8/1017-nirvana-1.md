@@ -54,7 +54,7 @@ D'une simple pensée, Wang Lin les lança à l'assaut. Parmi elles, l'âme de Xu
 
 Les nombreuses âmes célestes semblaient également avoir perdu la raison, se précipitant sur tout ce qui les entourait.
 
-Parmi ces âmes se trouvaient des guerriers du Royaume de la Boucherie. C'étaient de nouvelles recrues, et leur apparition emplit la zone d'une intention meurtrière!
+Parmi ces âmes se trouvaient des guerriers du Royaume Sha Lu. C'étaient de nouvelles recrues, et leur apparition emplit la zone d'une intention meurtrière!
 
 Alors que les grains de sable volaient vers Wang Lin, ils entrèrent en collision avec les âmes. Un grondement infini résonna alors à travers le monde.
 
@@ -102,9 +102,9 @@ Plutôt que de viser l'épée blanche, le sort visait directement Ming Hai. Les 
 
 À cet instant, le monde entier bascula. Le ciel sombre sembla être déchiré par une paire de mains gigantesques. Tout le sable environnant fut instantanément repoussé par une onde de choc, permettant aux âmes de l'Arsenal Magique de charger.
 
-Dans le ciel étoilé infini à l'extérieur de la cinquième grotte et de la Terre des Esprits Démoniaques, le monde changea, et de fins filaments d'énergie originelle commencèrent à converger. Cette énergie perça le vortex des marées de la Mer de l'Est pour s'y engouffrer.
+Dans le ciel étoilé infini à l'extérieur de la cinquième grotte et de la Terre Yao Ling, le monde changea, et de fins filaments d'énergie originelle commencèrent à converger. Cette énergie perça le vortex des marées de la Mer Dong pour s'y engouffrer.
 
-Elle traversa tout ce qui se trouvait dans la Terre des Esprits Démoniaques et s'engouffra dans la cinquième grotte, via la formation des Neuf Dragons!
+Elle traversa tout ce qui se trouvait dans la Terre Yao Ling et s'engouffra dans la cinquième grotte, via la formation des Neuf Dragons!
 
 À cet instant, la bouteille de jade blanc qui flottait devant l'être assis sur le pont en bois, enveloppée d'une brume noire, se mit à trembler violemment.
 

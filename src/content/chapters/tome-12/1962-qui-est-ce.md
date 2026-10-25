@@ -146,4 +146,4 @@ L'Exalté Empyréen Hai Zi regarda le ciel avec nervosité avant de laisser écl
 
 Cette scène fit écarquiller les yeux de Dao Yi. Wu Feng fut frappé par le choc. Quant à l'Empereur Céleste, son expression changeait sans cesse, tentant de masquer son incrédulité.
 
-Et même le Grand Empyréen Jiu Di, au Mont de l'Empereur, en eut le souffle coupé.
+Et même le Grand Empyréen Jiu Di, au Mont Di, en eut le souffle coupé.

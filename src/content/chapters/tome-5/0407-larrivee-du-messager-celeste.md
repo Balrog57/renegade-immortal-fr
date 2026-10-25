@@ -36,7 +36,7 @@ Depuis son arrivée sur la Lune, Wang Lin n'était jamais retourné à Suzaku; i
 
 Le pays de Suzaku actuel était en proie aux flammes de la guerre.
 
-Le Clan des Immortels Délaissés s'était lancé à l'assaut, accompagné de quatre chamans de neuf feuilles ou plus — dont la puissance égalait celle des cultivateurs Ascendants — et avait entamé une guerre d'usure contre le pays de Suzaku.
+Le Clan Xian Yi s'était lancé à l'assaut, accompagné de quatre chamans de neuf feuilles ou plus — dont la puissance égalait celle des cultivateurs Ascendants — et avait entamé une guerre d'usure contre le pays de Suzaku.
 
 Simultanément, une succession de nouvelles fracassantes résonnait sur toute la planète Suzaku. La plupart de ces nouvelles portaient le même mot: « trahison ».
 
@@ -46,11 +46,11 @@ En raison de ces trahisons survenues lors de moments cruciaux des batailles, le 
 
 Une rumeur se propageait désormais sur toute la planète Suzaku.
 
-Il y avait de cela d'innombrables années, le Clan des Immortels Délaissés avait mis au point une technique: en sacrifiant un grand nombre de membres du clan, ils pouvaient transformer un membre de leur lignée en cultivateur.
+Il y avait de cela d'innombrables années, le Clan Xian Yi avait mis au point une technique: en sacrifiant un grand nombre de membres du clan, ils pouvaient transformer un membre de leur lignée en cultivateur.
 
-Au fil des siècles, le Clan des Immortels Délaissés avait ainsi converti neuf individus. Comme ces derniers n'étaient plus soumis au système du clan, ils n'étaient pas entravés par le sceau; ils étaient donc partis rejoindre diverses sectes.
+Au fil des siècles, le Clan Xian Yi avait ainsi converti neuf individus. Comme ces derniers n'étaient plus soumis au système du clan, ils n'étaient pas entravés par le sceau; ils étaient donc partis rejoindre diverses sectes.
 
-C'était là la carte la plus puissante que le Clan des Immortels Délaissés jouait pour cette guerre.
+C'était là la carte la plus puissante que le Clan Xian Yi jouait pour cette guerre.
 
 La Lune était actuellement infiniment plus calme que la planète Suzaku. Il ne restait plus que trois mois avant le jour fatidique.
 

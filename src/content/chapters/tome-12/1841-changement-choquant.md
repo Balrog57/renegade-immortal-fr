@@ -46,7 +46,7 @@ Le cultivateur cracha du sang et fut expulsé de la terre. À l'instant où il f
 
 À cet instant, le cultivateur poussa un cri déchirant tandis que son corps se flétrissait à vue d'œil. Il perdit toute trace d'eau et de sang; alors que son corps rendait l'âme, son âme originelle s'en échappa. Cependant, des gaz noirs enveloppèrent son âme et, alors qu'il tentait de fuir, la Poupée Yi Si le rattrapa dans un rictus féroce. Son âme originelle fut plongée dans un brouillard noir, et après des cris de douleur qui s'étouffèrent peu à peu, tout disparut.
 
-« Cher cultivateur, ce vieil homme est Zuo Zou. La personne qui vous a provoqué est morte, veuillez donc dissiper cet art dao. C'est le point le plus bas de tout le continent du Taureau Céleste, nous ne pouvons pas nous permettre une telle perte. Je vous en prie, ne détruisez pas les fondations de tous les cultivateurs marginaux de la Prairie de l'Extrême Ciel! » Le vieil homme aux cheveux blancs apparut dans le ciel. Il regarda Wang Lin au loin et joignit les mains en signe de respect.
+« Cher cultivateur, ce vieil homme est Zuo Zou. La personne qui vous a provoqué est morte, veuillez donc dissiper cet art dao. C'est le point le plus bas de tout le continent du Taureau Céleste, nous ne pouvons pas nous permettre une telle perte. Je vous en prie, ne détruisez pas les fondations de tous les cultivateurs marginaux de la Prairie Ji Tian! » Le vieil homme aux cheveux blancs apparut dans le ciel. Il regarda Wang Lin au loin et joignit les mains en signe de respect.
 
 Après ces paroles, l'herbe cessa de se faner et la vapeur d'eau retourna vers le corps de Wang Lin. Cependant, cette quantité d'eau, ajoutée à l'essence du cultivateur décédé, ne suffisait pas pour que Wang Lin complète son neuvième cycle.
 
@@ -70,21 +70,21 @@ Ce n'est qu'une fois Wang Lin parti que le vieil homme se détendit. Des ombres 
 
 Quant à Wang Lin, après avoir utilisé une seconde fois la Distorsion Spatiale, il apparut dans une chaîne de montagnes. Selon la carte de Yan Luan, il lui restait trois mois de route vers l'est pour atteindre la mer intérieure.
 
-« Le continent du Taureau Céleste est trop vaste... » murmura Wang Lin en invoquant la bête moustique pour s'installer sur son dos alors qu'elle s'envolait vers l'est. La bête était très rapide. Cet endroit se situait près du Continent du Démon Vert, il n'y avait donc guère de cultivateurs aux alentours; seules quelques cités mortelles apparaissaient occasionnellement.
+« Le continent du Taureau Céleste est trop vaste... » murmura Wang Lin en invoquant la bête moustique pour s'installer sur son dos alors qu'elle s'envolait vers l'est. La bête était très rapide. Cet endroit se situait près du Continent Lu Mo, il n'y avait donc guère de cultivateurs aux alentours; seules quelques cités mortelles apparaissaient occasionnellement.
 
-Wang Lin ne savait pas grand-chose sur le Continent du Démon Vert, mais Kang Ren en avait une peur viscérale, comme si quiconque en était issu était terrifiant.
+Wang Lin ne savait pas grand-chose sur le Continent Lu Mo, mais Kang Ren en avait une peur viscérale, comme si quiconque en était issu était terrifiant.
 
 Dix jours passèrent en un éclair. Wang Lin croisa quelques cultivateurs, mais aucun n'interagit avec lui; ils se contentaient de passer son chemin. Même lorsque leurs Sens Divins s'étendaient, ils hésitaient après avoir distingué l'apparence de Wang Lin avant de s'écarter.
 
 Après dix jours, Wang Lin utilisa sa troisième Distorsion Spatiale et disparut de cette chaîne de montagnes.
 
-Le Continent de l'Est était immense, et entre le Continent du Taureau Céleste et le Continent du Démon Vert s'étendait une mer intérieure appelée la Mer des Pilules. La rumeur prétendait que cette mer avait été créée par une pilule tombée du ciel, qui avait explosé avant de se transformer en mer.
+Le Continent de l'Est était immense, et entre le Continent Tian Niu et le Continent Lu Mo s'étendait une mer intérieure appelée la Mer Dan. La rumeur prétendait que cette mer avait été créée par une pilule tombée du ciel, qui avait explosé avant de se transformer en mer.
 
 Cependant, cette légende était si ridicule qu'il paraissait impossible d'imaginer quelle sorte de pilule aurait pu engendrer un tel océan. Personne n'y croyait vraiment, mais le récit se transmettait de génération en génération.
 
-La Mer des Pilules était infinie et ses vagues étaient déchaînées. Bien qu'il s'agisse d'une mer intérieure, les vents et la houle y étaient violents.
+La Mer Dan était infinie et ses vagues étaient déchaînées. Bien qu'il s'agisse d'une mer intérieure, les vents et la houle y étaient violents.
 
-Comme cet endroit appartenait à la fois au Continent du Taureau Céleste et au Continent du Démon Vert, les cultivateurs qui s'y trouvaient vivaient dans un chaos constant. Des nuages sombres couvraient le ciel tandis que le tonnerre grondait et que la pluie se mêlait aux flots.
+Comme cet endroit appartenait à la fois au Continent Tian Niu et au Continent Lu Mo, les cultivateurs qui s'y trouvaient vivaient dans un chaos constant. Des nuages sombres couvraient le ciel tandis que le tonnerre grondait et que la pluie se mêlait aux flots.
 
 Sous la couche nuageuse, à travers la pluie battante, des ondulations apparurent dans le ciel. La silhouette de Wang Lin émergea de ces remous et se tint entre la mer et le ciel.
 
@@ -102,14 +102,14 @@ Wang Lin murmura: « Essence aquatique, rassemble-toi! »
 
 À ces mots, la mer infinie commença à bouillonner et des grondements tonitruants résonnèrent à travers le monde.
 
-À cet instant, le corps de Wang Lin ne dégageait aucune aura, comme s'il avait fusionné avec la Mer des Pilules. Il était impossible de les distinguer, comme s'il faisait partie intégrante de l'océan.
+À cet instant, le corps de Wang Lin ne dégageait aucune aura, comme s'il avait fusionné avec la Mer Dan. Il était impossible de les distinguer, comme s'il faisait partie intégrante de l'océan.
 
-Alors que la Mer des Pilules tremblait et bouillonnait, elle aurait dû attirer les cultivateurs marginaux des deux continents. Cependant, un bain de sang faisait rage dans les profondeurs, de sorte que personne ne prêta attention à la tempête qui faisait rage en surface!
+Alors que la Mer Dan tremblait et bouillonnait, elle aurait dû attirer les cultivateurs marginaux des deux continents. Cependant, un bain de sang faisait rage dans les profondeurs, de sorte que personne ne prêta attention à la tempête qui faisait rage en surface!
 
-L'ensemble de la mer était entouré d'une couche de restrictions. Cette barrière était très mystérieuse; même Wang Lin ne l'avait pas remarquée lors de son entrée. Ce n'est qu'en commençant à absorber la Mer des Pilules qu'il en perçut vaguement l'existence.
+L'ensemble de la mer était entouré d'une couche de restrictions. Cette barrière était très mystérieuse; même Wang Lin ne l'avait pas remarquée lors de son entrée. Ce n'est qu'en commençant à absorber la Mer Dan qu'il en perçut vaguement l'existence.
 
-Cette couche de restrictions permettait d'entrer, mais empêchait de sortir, scellant ainsi totalement la Mer des Pilules!
+Cette couche de restrictions permettait d'entrer, mais empêchait de sortir, scellant ainsi totalement la Mer Dan!
 
-Tandis que Wang Lin absorbait l'essence aquatique, de nombreux cris déchirants s'élevaient des profondeurs. De nombreux cultivateurs marginaux du Continent du Taureau Céleste étaient massacrés sauvagement par des groupes de cultivateurs vêtus de robes daoïstes vertes et entourés d'un feu fantomatique vert.
+Tandis que Wang Lin absorbait l'essence aquatique, de nombreux cris déchirants s'élevaient des profondeurs. De nombreux cultivateurs marginaux du Continent Tian Niu étaient massacrés sauvagement par des groupes de cultivateurs vêtus de robes daoïstes vertes et entourés d'un feu fantomatique vert.
 
-Il y avait une quantité immense de ces cultivateurs dans la Mer des Pilules!
+Il y avait une quantité immense de ces cultivateurs dans la Mer Dan!

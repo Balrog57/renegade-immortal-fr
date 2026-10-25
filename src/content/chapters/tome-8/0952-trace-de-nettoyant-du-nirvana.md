@@ -24,7 +24,7 @@ Une lueur de froideur passa dans les yeux de Wang Lin et l'épée dans sa main s
 
 À ce moment-là, l'épée formée par les neuf lames se rapprocha et l'encercla dans une puissante explosion d'énergie d'épée. Wang Lin sentit immédiatement un vent capable de percer le corps et de s'enfoncer directement dans l'âme originelle.
 
-C’est à cet instant qu'une lueur rouge sombre jaillit du Royaume de la Boucherie au loin. Un homme d'âge moyen vêtu d'une robe rouge venait de charger.
+C’est à cet instant qu'une lueur rouge sombre jaillit du Royaume Sha Lu au loin. Un homme d'âge moyen vêtu d'une robe rouge venait de charger.
 
 Dès l'apparition de l'homme, son corps vacilla et se déplaça comme un éclair vers le centre de la bataille. Sa main droite bougea et, sous son contrôle, les quatre figures créées par les quatre gourdes brisèrent tous les obstacles pour foncer sur Wang Lin.
 
@@ -42,7 +42,7 @@ Un rire s'éleva de la brume rouge, qui se dissipa pour révéler l'homme d'âge
 
 « Xu Mu, ne cherche plus à cacher ton niveau de culture! Pour traverser sans dommage un tel nombre de cultivateurs Yin Illusoire, Yang Corporel et Scruteur du Nirvana, tu dois être un cultivateur du Purificateur du Nirvana! »
 
-Les yeux de Wang Lin s'illuminèrent. Il se demandait pourquoi aucun cultivateur du Purificateur du Nirvana ne se trouvait dans le Royaume de la Boucherie. Cependant, son Sens Divin n'étant qu'au stade initial du Scruteur du Nirvana, il ne pouvait les détecter.
+Les yeux de Wang Lin s'illuminèrent. Il se demandait pourquoi aucun cultivateur du Purificateur du Nirvana ne se trouvait dans le Royaume Sha Lu. Cependant, son Sens Divin n'étant qu'au stade initial du Scruteur du Nirvana, il ne pouvait les détecter.
 
 Pourtant, après avoir vu cet homme, Wang Lin sentit une aura plus faible que celle des vieux monstres du Briseur du Nirvana, mais bien plus puissante que celle des cultivateurs Scruteurs du Nirvana!
 
@@ -82,7 +82,7 @@ C'était le sort de l'homme d'âge moyen!
 
 « La loi que j'ai comprise est la loi de l'illusion! » L'homme agita la main. Le poing de sable colossal percuta soudainement le coup de poing de Wang Lin.
 
-D'innombrables grondements résonnèrent dans le Royaume de la Boucherie et une tempête se propagea partout. Certains cultivateurs, incapables d'esquiver assez vite, furent emportés par l'ouragan. Ils hurlèrent alors qu'ils se transformaient en un brouillard de sang, devenant eux-mêmes partie intégrante de la tempête.
+D'innombrables grondements résonnèrent dans le Royaume Sha Lu et une tempête se propagea partout. Certains cultivateurs, incapables d'esquiver assez vite, furent emportés par l'ouragan. Ils hurlèrent alors qu'ils se transformaient en un brouillard de sang, devenant eux-mêmes partie intégrante de la tempête.
 
 Au centre du chaos, le poing de sable issu du sort de l'homme d'âge moyen s'effondra et fut repoussé violemment.
 
@@ -100,11 +100,11 @@ Les mains de l'homme frappèrent le vide devant lui tandis que l'énergie origin
 
 La silhouette du vieil homme était d'une rapidité extrême alors qu'il fonçait sur Wang Lin. Tandis que Wang Lin reculait, les yeux du vieil homme brillèrent d'une lueur féroce et ses mains formèrent un sceau. Deux flammes vertes se condensèrent dans ses paumes.
 
-Ce vieil homme avait toujours été extrêmement prudent, n'agissant jamais sans une certitude absolue. Il en était de même dans le Royaume de la Boucherie.
+Ce vieil homme avait toujours été extrêmement prudent, n'agissant jamais sans une certitude absolue. Il en était de même dans le Royaume Sha Lu.
 
 Sur sa planète de culture d'origine, il avait passé des milliers d'années à massacrer d'innombrables cultivateurs pour leur dérober pilules et trésors. Même après son départ, nul ne savait qu'il était l'auteur de ces actes.
 
-Dans le Royaume de la Boucherie, sa prudence atteignait son paroxysme, et son timing était cette fois impeccable! En un instant, le vieil homme fut sur Wang Lin.
+Dans le Royaume Sha Lu, sa prudence atteignait son paroxysme, et son timing était cette fois impeccable! En un instant, le vieil homme fut sur Wang Lin.
 
 Il ne craignait pas d'être détecté par Wang Lin; son énergie originelle jaillit alors qu'il chargeait, faisant trembler et se distordre l'espace environnant.
 

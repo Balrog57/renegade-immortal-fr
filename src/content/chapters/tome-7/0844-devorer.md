@@ -58,7 +58,7 @@ Wang Lin fronça les sourcils et la confusion dans son regard s'intensifia. Le d
 
 « Comment puis-je accroître mon domaine du karma? Cette compréhension est véritablement complexe! Peu importe l'étendue de mes réflexions, tout reste illusoire et irréel... Comment faire pour que ma compréhension du karma devienne réelle... » Wang Lin soupira. Il s'interdisait d'y penser, mais il ne pouvait s'empêcher de méditer sur le sujet.
 
-« À l'époque, dans la Terre des Esprits Démoniaques, avec l'aide de l'Ancien Démon Bei Luo, j'avais pu entrer dans un état mystérieux et découvrir la faille de l'Art du Massacre Céleste... » En murmurant cela, Wang Lin plissa les yeux.
+« À l'époque, dans la Terre Yao Ling, avec l'aide de l'Ancien Démon Bei Luo, j'avais pu entrer dans un état mystérieux et découvrir la faille de l'Art du Massacre Céleste... » En murmurant cela, Wang Lin plissa les yeux.
 
 « Dans cet état, je pouvais vaguement percer tous les dao du monde. Je m'étais divisé en d'innombrables clones pour ensuite ne faire qu'un... C'était très similaire à ce que Tian Yunzi m'enseignait lors de la pratique de ce sort! » Les yeux de Wang Lin devinrent de plus en plus brillants.
 

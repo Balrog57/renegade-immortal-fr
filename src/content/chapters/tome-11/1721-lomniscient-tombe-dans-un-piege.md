@@ -66,7 +66,7 @@ Au même instant, dans le Vide Brillant, alors que des ondulations résonnaient 
 
 À l'instant même, ils fixèrent tous la Rivière Invoquée!
 
-Simultanément, des ondulations parcoururent Luotian et la Mer des Nuages. Le nombre total d'avatars à travers les quatre systèmes stellaires approchait désormais les 3 000!
+Simultanément, des ondulations parcoururent Luotian et la Mer Yun. Le nombre total d'avatars à travers les quatre systèmes stellaires approchait désormais les 3 000!
 
 C'étaient les 3 000 avatars de Tian Yunzi, tous les corps qu'il avait acquis par sa dévoration constante au cours de ses plus de 90 éveils!
 

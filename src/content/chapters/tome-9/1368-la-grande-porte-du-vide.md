@@ -1,6 +1,6 @@
 ---
 n: 1368
-title: La Grande Porte du Vide
+title: La Grande Porte Kong
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1368 - The Great Void Gate
@@ -27,7 +27,7 @@ Wang Lin n'en avait cure. Après avoir absorbé les cinq types de tonnerres acco
 
 Une fois sa culture du tonnerre ayant atteint le sommet du Briseur du Nirvana, son âme originelle s'étendit brusquement avant de frapper le sixième type de tonnerre accompagnateur: le Tonnerre Dao!
 
-Le Clan du Tonnerre Dispersé avait découvert le Tonnerre Dao dans le Royaume Intérieur. Seuls les cultivateurs du Royaume Intérieur cultivent leur domaine et peuvent ainsi former une intention Dao. C'était ainsi que le tonnerre Dao prenait vie!
+Le Clan Shan Lei avait découvert le Tonnerre Dao dans le Royaume Intérieur. Seuls les cultivateurs du Royaume Intérieur cultivent leur domaine et peuvent ainsi former une intention Dao. C'était ainsi que le tonnerre Dao prenait vie!
 
 Si ce tonnerre résistait, Wang Lin n'hésiterait pas à l'écraser. Son âme originelle surgit avec la puissance d'une armée immense, mais contre toute attente, le Tonnerre Dao ne résista point! Une intention Dao complexe émanait des innombrables âmes contenues dans le tonnerre. Wang Lin sentit que ces âmes lui étaient extrêmement familières: c'étaient des cultivateurs du Royaume Intérieur!
 
@@ -73,7 +73,7 @@ Il s'intégra instantanément! Dans l'œil droit de Wang Lin, les neuf types de 
 
 Alors que le grondement résonnait, une porte illusoire gigantesque apparut soudainement devant les cultivateurs de la planète, totalement médusés! Cette porte était infinie et semblait faire partie des cieux eux-mêmes. C'était comme la porte du ciel étoilé, le verrou du ciel et de la terre; si l'on parvenait à l'ouvrir, on pourrait s'élancer hors de ce monde!
 
-« Troisième étape... La Grande Porte du Vide!!! » Certains cultivateurs reconnurent immédiatement le phénomène, et leurs visages se décomposèrent. L'incrédulité et la stupeur les envahirent!
+« Troisième étape... La Grande Porte Kong!!! » Certains cultivateurs reconnurent immédiatement le phénomène, et leurs visages se décomposèrent. L'incrédulité et la stupeur les envahirent!
 
 À l'instant où la porte apparut, Wang Lin sentit clairement le pouvoir indescriptible qui s'en dégageait. C'était comme si tout ce qu'il possédait n'était que poussière face à elle!
 

@@ -32,7 +32,7 @@ Les huit anciens se tenaient devant l'ensemble des descendants du clan Wang, age
 
 Le regard de Wang Lin descendit depuis la tablette supérieure pour se poser sur l'une d'elles. Celle-ci indiquait: « Ancêtre Wang Yu ».
 
-Wang Lin avait une vague impression de ce nom, Wang Yu. À l'époque où le Clan des Immortels Délaissés était en guerre contre Suzaku, ils capturaient des jeunes enfants. L'un d'eux était Wang Yu.
+Wang Lin avait une vague impression de ce nom, Wang Yu. À l'époque où le Clan Xian Yi était en guerre contre Suzaku, ils capturaient des jeunes enfants. L'un d'eux était Wang Yu.
 
 « La vie de cet enfant s'est également éteinte... » La tristesse qui entourait Wang Lin s'intensifia. Il ressentait une émotion complexe au plus profond de son être. En un clin d'œil, des centaines d'années s'étaient écoulées. En regardant en arrière, il constatait que le temps avait tout transformé. Il était devenu difficile de trouver ne serait-ce qu'une seule personne qu'il avait connue.
 
@@ -46,21 +46,21 @@ Après avoir réglé le karma de la famille Wang, Wang Lin jeta un regard froid 
 
 Une fois Wang Lin parti, la place retomba dans un silence de mort. Après un long moment, les huit anciens se relevèrent, l'expression sombre. Ils jetèrent un regard impitoyable à la foule et l'un d'eux déclara froidement: « Nous avons eu tort d'irriter notre ancêtre. Dès aujourd'hui, de nouvelles lois du clan seront instaurées, et quiconque les enfreindra sera exécuté! »
 
-Wang Lin voyageait entre ciel et terre. Malgré le règlement du karma de ses descendants, la mélancolie dans son cœur ne s'atténuait pas. Il se dirigea vers la Secte du Ciel Nuageux.
+Wang Lin voyageait entre ciel et terre. Malgré le règlement du karma de ses descendants, la mélancolie dans son cœur ne s'atténuait pas. Il se dirigea vers la Secte Yun Tian.
 
 En chemin, son expression changea alors qu'il scrutait l'horizon. Il aperçut un centipède de plusieurs centaines de pieds de long fendant rapidement l'air, portant plusieurs cultivateurs sur son dos. L'un d'eux dégageait l'aura d'un immortel; il portait une robe jaune et une épée dans le dos.
 
 La brise légère faisait flotter ses vêtements, lui conférant une élégance suprême.
 
-« Maître de la Secte Huanglong! » En voyant cet homme, les yeux de Wang Lin se plissèrent brusquement et brillèrent. Le portrait qu'il avait aperçu dans la Terre des Esprits Démoniaques apparut immédiatement dans son esprit.
+« Maître de la Secte Huanglong! » En voyant cet homme, les yeux de Wang Lin se plissèrent brusquement et brillèrent. Le portrait qu'il avait aperçu dans la Terre Yao Ling apparut immédiatement dans son esprit.
 
 Le centipède était extrêmement rapide et disparut en un instant derrière l'horizon. Pourtant, Wang Lin sentit distinctement un regard posé sur lui depuis le dos de la créature.
 
 « Ce jeune homme n'est pas mal! » Un léger rire parvint à l'oreille de Wang Lin, porté par ce regard. Le rire s'estompa et finit par disparaître sans laisser de trace.
 
-Wang Lin fronça légèrement les sourcils et fixa le point de disparition du centipède. Après une courte réflexion, il se dirigea vers la Secte du Ciel Nuageux. Cette affaire était trop étrange, et Wang Lin ne voulait pas agir avec imprudence.
+Wang Lin fronça légèrement les sourcils et fixa le point de disparition du centipède. Après une courte réflexion, il se dirigea vers la Secte Yun Tian. Cette affaire était trop étrange, et Wang Lin ne voulait pas agir avec imprudence.
 
-Tie Yan attendait toujours Wang Lin sur la place de la Secte du Ciel Nuageux. Il savait que ce dernier viendrait inévitablement.
+Tie Yan attendait toujours Wang Lin sur la place de la Secte Yun Tian. Il savait que ce dernier viendrait inévitablement.
 
 Il ne lui restait plus beaucoup de temps. Sa culture avait régressé jusqu'au stade avancé de la Formation de l'Âme et il ne pouvait plus franchir le seuil de la Transformation de l'Âme. Il consommait lentement le reste de sa vie.
 
@@ -96,7 +96,7 @@ Neuf rayons de lumière déchirèrent le ciel et chutèrent brusquement devant T
 
 « Je vous offre ces épées! » La voix de Wang Lin sembla émaner du vide lointain, aussi éthérée que les nuages.
 
-Après avoir réglé le karma à la Secte du Ciel Nuageux, Wang Lin s'élança dans les cieux. Les poissons yin et yang apparurent et tournèrent lentement au-dessus de sa tête. En résolvant le karma de ses descendants et celui de la Secte du Ciel Nuageux, sa compréhension du karma avait soudainement progressé.
+Après avoir réglé le karma à la Secte Yun Tian, Wang Lin s'élança dans les cieux. Les poissons yin et yang apparurent et tournèrent lentement au-dessus de sa tête. En résolvant le karma de ses descendants et celui de la Secte Yun Tian, sa compréhension du karma avait soudainement progressé.
 
 « L'illumination de mon domaine est le pivot de la seconde étape. Selon le domaine du karma, toute cause karmique doit engendrer un effet karmique. Seul un cycle de causes et d'effets permet un accomplissement complet, et ce n'est qu'après d'innombrables accomplissements que je pourrai véritablement parfaire mon propre karma. Je ne m'attendais pas à ce que mon retour sur la planète Suzaku s'inscrive dans cette logique. » Wang Lin soupira et ferma les yeux. Son sens divin enveloppa la planète entière.
 

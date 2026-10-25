@@ -8,7 +8,7 @@ slug: reconnaissance
 ---
 L'expression de Tian Yunzi s'assombrit et il dit calmement: « Tant qu'il n'a pas trahi sa secte, il reste mon disciple! »
 
-« Votre Secte du Destin Céleste veut protéger votre disciple? Est-ce que les disciples de ma Secte de l'Épée Da Luo sont morts pour rien?! Chen Long était le seul survivant parmi les 12 Épées, les autres ont tous été tués par Wang Lin! Ce vieil homme ne s'en prend pas aux faibles; tant que Wang Lin peut résister à trois rayons d'énergie d'épée, cette affaire sera oubliée! Si vous osez me barrer la route, Tian Yunzi, je risquerai tout pour entrer en guerre contre vous! » Le visage de Ling Tianhou était empreint d'une intention meurtrière. Bien qu'il s'adressât à Tian Yunzi, son regard restait verrouillé sur Wang Lin.
+« Votre Secte Tian Yun veut protéger votre disciple? Est-ce que les disciples de ma Secte Da Luo Jian sont morts pour rien?! Chen Long était le seul survivant parmi les 12 Épées, les autres ont tous été tués par Wang Lin! Ce vieil homme ne s'en prend pas aux faibles; tant que Wang Lin peut résister à trois rayons d'énergie d'épée, cette affaire sera oubliée! Si vous osez me barrer la route, Tian Yunzi, je risquerai tout pour entrer en guerre contre vous! » Le visage de Ling Tianhou était empreint d'une intention meurtrière. Bien qu'il s'adressât à Tian Yunzi, son regard restait verrouillé sur Wang Lin.
 
 « Ce senior affirme que je n'ai pas la qualification pour détenir le jeton. Puis-je demander à Senior combien de rayons d'énergie d'épée du Saint de l'Épée Ling Tianhou il pourrait supporter? » Wang Lin regarda le vieil homme qui ressemblait à une montagne de chair.
 
@@ -20,11 +20,11 @@ Ling Tianhou agita sa main droite et l'une des quatre épées d'âme originelle 
 
 L'énergie d'épée était semblable à un arc-en-ciel!
 
-Avec la culture de Ling Tianhou, les énergies d'épée qu'il laissait à ses disciples lorsqu'ils pénétraient dans la Terre des Esprits Démoniaques étaient toutes extrêmement puissantes; à plus forte raison celle qu'il déployait lui-même à cet instant. L'énergie d'épée prit la forme d'un dragon et siffla vers Wang Lin.
+Avec la culture de Ling Tianhou, les énergies d'épée qu'il laissait à ses disciples lorsqu'ils pénétraient dans la Terre Yao Ling étaient toutes extrêmement puissantes; à plus forte raison celle qu'il déployait lui-même à cet instant. L'énergie d'épée prit la forme d'un dragon et siffla vers Wang Lin.
 
 Des craquements tonnèrent dans le ciel, comme si celui-ci ne pouvait supporter la puissance de l'énergie d'épée.
 
-Les disciples environnants de la Secte de l'Épée Da Luo étaient tous excités en observant la scène.
+Les disciples environnants de la Secte Da Luo Jian étaient tous excités en observant la scène.
 
 Lorsque l'énergie d'épée se rapprocha, sur le point de déchirer son corps, les yeux de Wang Lin s'illuminèrent. Sa main droite se serra en un poing et il lança une attaque.
 
@@ -40,7 +40,7 @@ Alors qu'elle approchait, Wang Lin rit et sa main droite forma un poing. Une vag
 
 Simultanément, une lueur glaciale passa dans les yeux de Wang Lin. Depuis son retour sur la planète Tian Yun, il n'avait nullement l'intention de rester discret. Après tout, la seule façon de se faire entendre était par la force!
 
-S'il voulait retourner à la Terre des Esprits Démoniaques pour obtenir la qualification de détenteur du jeton et la reconnaissance de tous les vieux monstres de la planète Tian Yun, tout dépendrait de cette bataille!
+S'il voulait retourner à la Terre Yao Ling pour obtenir la qualification de détenteur du jeton et la reconnaissance de tous les vieux monstres de la planète Tian Yun, tout dépendrait de cette bataille!
 
 Avec sa ruse habituelle, Wang Lin avait déjà tout analysé. À cet instant, après avoir lancé son coup, sa main gauche toucha son sac et il cria: « Trois ensembles de neuf épées! »
 
@@ -102,7 +102,7 @@ Instantanément, des rayons de lumière argentée jaillirent de son sac pour s'u
 
 Par ce geste, la vitesse de circulation de son énergie originelle atteignit presque son apogée. D'innombrables Coups Célestes jaillirent et fusionnèrent avec le vortex devant lui. Le vortex entier trembla, se condensa, puis s'élança avec violence.
 
-Wang Lin avait obtenu ces épées dans le Royaume de la Boucherie et, en chemin vers la Secte du Destin Céleste, en avait déjà raffiné 45 en modifiant leur apparence. Seuls les habitants du Royaume de la Boucherie pourraient désormais les identifier.
+Wang Lin avait obtenu ces épées dans le Royaume Sha Lu et, en chemin vers la Secte Tian Yun, en avait déjà raffiné 45 en modifiant leur apparence. Seuls les habitants du Royaume Sha Lu pourraient désormais les identifier.
 
 À cet instant, ce vortex d'épées contenant la puissance d'innombrables Coups Célestes entra en collision avec le sortilège de Ling Tianhou. Le monde changea de couleur et sembla s'inverser.
 
@@ -110,13 +110,13 @@ Un grondement intense résonna à travers l'univers. Les sons de l'effondrement 
 
 Si Tian Yunzi n'avait pas bloqué l'onde de choc de cet impact, une grande partie de la planète Tian Yun se serait probablement effondrée. Après le choc, le corps de Wang Lin fut repoussé en arrière. Ses 45 épées n'étaient pas endommagées, mais elles semblaient ternes alors qu'elles tournaient autour de lui.
 
-Face à lui, l'épée formée par Ling Tianhou s'effondra et redevint quatre épées d'âme originelle. Ling Tianhou n'avait pas été repoussé, bien que ses yeux brillassent de plaisir alors qu'il riait: « Wang Lin, la rancune entre toi et la Secte de l'Épée Da Luo est effacée. Ce vieil homme ne te reprendra pas le jeton. Puisque c'est toi qui l'as obtenu, c'est ta chance : quand nous irons à la grotte céleste, tu auras ta part! »
+Face à lui, l'épée formée par Ling Tianhou s'effondra et redevint quatre épées d'âme originelle. Ling Tianhou n'avait pas été repoussé, bien que ses yeux brillassent de plaisir alors qu'il riait: « Wang Lin, la rancune entre toi et la Secte Da Luo Jian est effacée. Ce vieil homme ne te reprendra pas le jeton. Puisque c'est toi qui l'as obtenu, c'est ta chance : quand nous irons à la grotte céleste, tu auras ta part! »
 
-Ling Tianhou se détourna et s'éloigna. Les disciples de la Secte de l'Épée Da Luo, encore confus, le suivirent immédiatement. Des rayons d'énergie d'épée disparurent rapidement au loin.
+Ling Tianhou se détourna et s'éloigna. Les disciples de la Secte Da Luo Jian, encore confus, le suivirent immédiatement. Des rayons d'énergie d'épée disparurent rapidement au loin.
 
 « Les intentions de Ling Tianhou sont très profondes... » Wang Lin observa la silhouette de Ling Tianhou en réfléchissant.
 
-Les environs étaient plongés dans un silence total. Que ce soient les disciples de la Secte du Destin Céleste ou ceux accompagnés par les vieux monstres, le choc était visible dans leurs yeux.
+Les environs étaient plongés dans un silence total. Que ce soient les disciples de la Secte Tian Yun ou ceux accompagnés par les vieux monstres, le choc était visible dans leurs yeux.
 
 « Qui aurait cru que Wang Lin possèderait la puissance de combattre Ling Tianhou?! » L'excitation brillait dans les yeux de Bai Wei. Même à cet instant, il peinait à croire ce qu'il venait de voir.
 
@@ -152,13 +152,13 @@ La femme en robe rose demanda: « Sœur aînée Qian Qin, qu'avez-vous? »
 
 Qian Qin secoua la tête sans dire un mot.
 
-Sur ordre de Tian Yunzi, les membres de la Secte du Destin Céleste se dispersèrent. Sur la place, il ne restait plus que Wang Lin et Tian Yunzi. Une fois la foule partie, Wang Lin regarda calmement son maître.
+Sur ordre de Tian Yunzi, les membres de la Secte Tian Yun se dispersèrent. Sur la place, il ne restait plus que Wang Lin et Tian Yunzi. Une fois la foule partie, Wang Lin regarda calmement son maître.
 
 Maître et disciple se faisaient à nouveau face après des centaines d'années.
 
 Ils restèrent silencieux un long moment avant que Tian Yunzi ne demande lentement: « Que comptez-vous faire? »
 
-« Ce disciple souhaite entrer dans la Terre des Esprits Démoniaques. » L'expression de Wang Lin était empreinte de respect.
+« Ce disciple souhaite entrer dans la Terre Yao Ling. » L'expression de Wang Lin était empreinte de respect.
 
 Tian Yunzi, les mains derrière le dos, répondit calmement: « Vous en avez la qualification. Que ce soit en tant que Tonnerre Céleste authentique de Luotian ou comme l'un des membres de la série de l'Oiseau Vermillon des Quatre Sectes Divines. Pour autant que je sache, cette génération de la série de l'Oiseau Vermillon ne compte que trois personnes, vous y compris! »
 

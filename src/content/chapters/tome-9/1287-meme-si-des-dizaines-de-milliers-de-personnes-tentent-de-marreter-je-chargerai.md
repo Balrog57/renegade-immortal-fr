@@ -54,7 +54,7 @@ La vieille femme en blanc regarda Wang Lin, stupéfaite. Cette vitesse fulgurant
 
 Elle ressentit également la détermination de Wang Lin à travers cette vitesse! C'était une aura qu'on ne pourrait arrêter, même si des dizaines de milliers de personnes se dressaient devant lui!
 
-« Il n'y a pas de formations de transfert dans les régions de rang 3 ou inférieur. La Secte de l'Âme Marine de rang 4 possède une formation de transfert vers la Secte de la Musique Céleste de rang 6, qui est une branche de la Secte Éternelle. Ils ont une formation vers la Secte Éternelle de rang 8... »
+« Il n'y a pas de formations de transfert dans les régions de rang 3 ou inférieur. La Secte de l'Âme Marine de rang 4 possède une formation de transfert vers la Secte Xian Yin de rang 6, qui est une branche de la Secte Éternelle. Ils ont une formation vers la Secte Éternelle de rang 8... »
 
 « La Secte Éternelle possède également une formation de transfert pour atteindre la région de rang 9 à la vitesse la plus rapide possible! Une fois que nous serons dans la région de rang 9, je vous dirai où se trouve la Secte Démon! »
 

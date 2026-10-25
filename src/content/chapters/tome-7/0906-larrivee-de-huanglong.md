@@ -38,9 +38,9 @@ Ce n'était qu'à cette condition qu'on pouvait les emprisonner!
 
 Plus important encore, il fallait posséder son propre espace mystérieux, créé par le sort céleste!
 
-Cet espace était un art conçu par l'Empereur Céleste Bai Fan. Lorsqu'il l'utilisait, cela devenait un royaume qu'il nommait le « Royaume des Soldats Mystiques ». Ce royaume stockait les fragments d'âme et les affinait tel un fourneau. C'était là le fondement de la puissance de l'Arsenal Magique!
+Cet espace était un art conçu par l'Empereur Céleste Bai Fan. Lorsqu'il l'utilisait, cela devenait un royaume qu'il nommait le « Royaume Xuan Kong Bing ». Ce royaume stockait les fragments d'âme et les affinait tel un fourneau. C'était là le fondement de la puissance de l'Arsenal Magique!
 
-Cependant, ce royaume avait été conçu pour Bai Fan; son apprentissage était donc différent pour les autres. Bien que Qing Shui ait eu le talent nécessaire pour le maîtriser, il n'avait pas choisi cette voie. Au lieu de cela, il avait ouvert un nouveau chemin en créant son propre « Royaume de la Boucherie »!
+Cependant, ce royaume avait été conçu pour Bai Fan; son apprentissage était donc différent pour les autres. Bien que Qing Shui ait eu le talent nécessaire pour le maîtriser, il n'avait pas choisi cette voie. Au lieu de cela, il avait ouvert un nouveau chemin en créant son propre « Royaume Sha Lu »!
 
 Il n'avait pas besoin d'un lieu pour stocker les âmes; il utilisait simplement sa monstrueuse intention meurtrière pour les contraindre, créant ainsi ce royaume. Personne ne pouvait échapper à son contrôle!
 
@@ -66,13 +66,13 @@ Ce cri fut assourdissant. Bien qu'il se trouvât au 17e étage du Cimetière des
 
 D'immenses nuages d'orage apparurent soudainement dans le ciel. Saturés d'éclairs, ils descendirent massivement, se dirigeant droit vers le Cimetière des Immortels.
 
-Le tonnerre était omniprésent. En s'accumulant, il remplit le gouffre profond du Clan des Immortels Délaissés. La fosse agissait comme un entonnoir, aspirant toute la foudre qui s'y précipitait.
+Le tonnerre était omniprésent. En s'accumulant, il remplit le gouffre profond du Clan Xian Yi. La fosse agissait comme un entonnoir, aspirant toute la foudre qui s'y précipitait.
 
 Les changements ne se limitèrent pas à la planète Suzaku; l'espace environnant fut également bouleversé. De nombreux dragons de tonnerre se formèrent dans le vide et chargèrent vers la planète.
 
 D'innombrables éclairs, provenant d'une zone s'étendant sur des dizaines de milliers de kilomètres autour de la planète Suzaku, convergeaient vers elle. Vu de loin, on aurait cru que la région entière était devenue un enfer de tonnerre!
 
-Ce fracas incessant résonnait à travers les étoiles. Le tonnerre se condensa et s'engouffra dans le gouffre du Clan des Immortels Délaissés.
+Ce fracas incessant résonnait à travers les étoiles. Le tonnerre se condensa et s'engouffra dans le gouffre du Clan Xian Yi.
 
 C'était comme si la foudre partait en pèlerinage pour vénérer l'ancêtre de tous les éclairs. Tous ces décharges s'élançaient sans la moindre hésitation.
 

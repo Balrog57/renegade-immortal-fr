@@ -6,9 +6,9 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 438 - Lei Ji
 slug: lei-ji
 ---
-Même après avoir entendu le mot « trésor », Wang Lin resta calme. Il avait déjà tué l'ancêtre du Clan des Démons Géants et l'avait scellé une fois. Si cet ancêtre fondateur était libéré et découvrait la vérité, Wang Lin serait la première personne qu'il traquerait. Wang Lin n'était pas encore assez aveuglé par l'appât du gain pour céder.
+Même après avoir entendu le mot « trésor », Wang Lin resta calme. Il avait déjà tué l'ancêtre du Clan Ju Mo et l'avait scellé une fois. Si cet ancêtre fondateur était libéré et découvrait la vérité, Wang Lin serait la première personne qu'il traquerait. Wang Lin n'était pas encore assez aveuglé par l'appât du gain pour céder.
 
-De plus, l'ancêtre fondateur du Clan des Démons Géants n'avait même pas précisé de quel trésor il s'agissait.
+De plus, l'ancêtre fondateur du Clan Ju Mo n'avait même pas précisé de quel trésor il s'agissait.
 
 Wang Lin observa les plantes sur la poitrine du géant, puis frappa son sac de rangement et le drapeau de restriction apparut.
 
@@ -26,11 +26,11 @@ La branche à la main, il se posa sur le cou du géant. En touchant la peau du c
 
 Ses yeux s'illuminèrent alors qu'il pressait la branche contre le cou du géant pour faire couler le sang.
 
-« Sauvez-moi... Si vous acceptez de me sauver, je serai prêt à devenir votre serviteur et votre monture. Je vous donnerai également le trésor du Clan des Démons Géants: le Métal d'Ouverture des Cieux. » L'appel à l'aide parut plus réel encore.
+« Sauvez-moi... Si vous acceptez de me sauver, je serai prêt à devenir votre serviteur et votre monture. Je vous donnerai également le trésor du Clan Ju Mo: le Métal d'Ouverture des Cieux. » L'appel à l'aide parut plus réel encore.
 
 « Une monture? » Wang Lin tressaillit et la branche dans sa main marqua un temps d'arrêt.
 
-« C'est exact, je suis prêt à devenir votre monture. Les puissants cultivateurs de l'Alliance de Culture aiment utiliser les membres du Clan des Démons Géants comme montures. Si vous me sauvez, j'accepterai ce sort. » La voix était empreinte d'ardeur.
+« C'est exact, je suis prêt à devenir votre monture. Les puissants cultivateurs de l'Alliance Xiu Zhen aiment utiliser les membres du Clan Ju Mo comme montures. Si vous me sauvez, j'accepterai ce sort. » La voix était empreinte d'ardeur.
 
 Après avoir réfléchi un instant, le regard de Wang Lin s'illumina et il enfonça la branche dans le cou du géant. Un cercle noir apparut sur la peau du colosse alors que la branche s'enfonçait dans le vaisseau sanguin avant de disparaître.
 
@@ -42,21 +42,21 @@ La vitesse de collecte n'avait rien à voir avec ce qui avait été fait précé
 
 La voix de Wang Lin resta calme tandis qu'il achevait de recueillir le sang: « Qui êtes-vous? »
 
-« Je suis le Marquis des Dix Mille Guerriers du Clan des Démons Géants, Lei Ji! » Cette voix débordait d'un immense orgueil.
+« Je suis le Marquis des Dix Mille Guerriers du Clan Ju Mo, Lei Ji! » Cette voix débordait d'un immense orgueil.
 
 Wang Lin demanda calmement: « Lei Ji, comment avez-vous été scellé ici? »
 
-« À cause de la Secte des Cadavres. Après la bataille contre le Clan des Immortels Délaissés, j'ai été traqué par deux chamans à onze feuilles et je fus gravement blessé après m'être échappé. La Secte des Cadavres y a vu une opportunité; ils ont trouvé un puissant cultivateur d'une autre planète pour me capturer et me sceller ici pendant que j'étais grièvement blessé. »
+« À cause de la Secte Shi Yin. Après la bataille contre le Clan Xian Yi, j'ai été traqué par deux chamans à onze feuilles et je fus gravement blessé après m'être échappé. La Secte Shi Yin y a vu une opportunité; ils ont trouvé un puissant cultivateur d'une autre planète pour me capturer et me sceller ici pendant que j'étais grièvement blessé. »
 
 Wang Lin regarda la fiole de jade dans sa main. Il déploya son Sens Divin et constata qu'elle contenait une quantité prodigieuse de sang.
 
 « Sauvez-moi et je deviendrai votre monture. Les membres de mon clan ne deviennent pas facilement les montures d'autrui, mais une fois ce lien établi, nous ne trahissons jamais notre maître. »
 
-Wang Lin demanda: « Une monture? Quel est l'intérêt d'avoir un membre du Clan des Démons Géants comme monture? »
+Wang Lin demanda: « Une monture? Quel est l'intérêt d'avoir un membre du Clan Ju Mo comme monture? »
 
 À cet instant, le flux sanguin s'amenuisait et la plaie semblait se refermer. Wang Lin désigna le cou du géant, puis la bouteille de jade s'envola pour qu'il la rattrape. Simultanément, sa main droite, chargée d'énergie spirituelle céleste, descendit pour frapper le cou du colosse. Une nouvelle quantité massive de sang jaillit et fut capturée par la fiole.
 
-« Connaissez-vous la boussole stellaire? Le corps d'un membre du Clan des Démons Géants est similaire à une boussole stellaire, mais bien plus puissant. Nos corps sont les meilleurs outils pour voyager parmi les étoiles. De plus, nous ne sommes pas affectés par certains lieux où même les cultivateurs ne peuvent s'aventurer. C'est pourquoi ces puissants experts de l'Alliance de Culture paient des prix exorbitants pour qu'un membre de mon clan devienne leur monture. »
+« Connaissez-vous la boussole stellaire? Le corps d'un membre du Clan Ju Mo est similaire à une boussole stellaire, mais bien plus puissant. Nos corps sont les meilleurs outils pour voyager parmi les étoiles. De plus, nous ne sommes pas affectés par certains lieux où même les cultivateurs ne peuvent s'aventurer. C'est pourquoi ces puissants experts de l'Alliance Xiu Zhen paient des prix exorbitants pour qu'un membre de mon clan devienne leur monture. »
 
 « Étrange! » Wang Lin fronça les sourcils. Bien que la voix de cet ancêtre semblât très anxieuse, ses réponses étaient d'une précision suspecte.
 
@@ -76,11 +76,11 @@ Sur cette réflexion, Wang Lin saisit résolument la bouteille de jade et sauta 
 
 Privées de leur sceau, les plantes recommencèrent à s'agiter. Quelques-unes atteignirent la plaie sur le cou du géant, s'y enfoncèrent et commencèrent à ramper à l'intérieur.
 
-« Vous... sauvez-moi! Si vous me sauvez, je ferai en sorte que les membres du Clan des Démons Géants de la planète Suzaku vous reconnaissent comme leur maître! »
+« Vous... sauvez-moi! Si vous me sauvez, je ferai en sorte que les membres du Clan Ju Mo de la planète Suzaku vous reconnaissent comme leur maître! »
 
 Flottant dans les airs, le regard de Wang Lin devint glacial et il murmura: « Je ne peux pas vous sauver; vous sauver ne m'apporte rien. Aucun des trésors dont vous parlez ne m'intéresse, et vous laisser ici afin de pouvoir revenir prélever votre sang à tout moment est la meilleure solution. »
 
-La voix s'empressa de répondre: « Vous devez avoir un grand usage pour mon sang! Je possède l'essence de moelle osseuse; elle contient davantage d'essence que le sang. Si vous le souhaitez, je peux vous la donner. Je n'ai même pas besoin d'être sauvé; envoyez simplement des nouvelles de moi au Clan des Démons Géants ou à l'actuel Zhu Quezi. Qu'en dites-vous? »
+La voix s'empressa de répondre: « Vous devez avoir un grand usage pour mon sang! Je possède l'essence de moelle osseuse; elle contient davantage d'essence que le sang. Si vous le souhaitez, je peux vous la donner. Je n'ai même pas besoin d'être sauvé; envoyez simplement des nouvelles de moi au Clan Ju Mo ou à l'actuel Zhu Quezi. Qu'en dites-vous? »
 
 Les yeux de Wang Lin s'illuminèrent. Il eut un rire froid et cessa de perdre son temps avec cet individu. Il se transforma en une brume verte et disparut des lieux.
 
@@ -96,13 +96,13 @@ Des rangées d'épines terrifiantes et luminescentes apparurent sur son dos. Au 
 
 Une fleur violette... d'environ un tiers de la taille du géant, s'épanouit. Elle drainait lentement la force vitale du corps du colosse pour croître.
 
-Le géant poussa un rugissement amer: « Secte des Cadavres! Si moi, Lei Ji, parviens à me libérer un jour, je ne vous le pardonnerai jamais!!! »
+Le géant poussa un rugissement amer: « Secte Shi Yin! Si moi, Lei Ji, parviens à me libérer un jour, je ne vous le pardonnerai jamais!!! »
 
-Le corps de Wang Lin réapparut à l'intérieur de la Secte des Cadavres. Il pointa l'air du doigt, faisant apparaître un fragment d'âme. C'était celui qu'il avait laissé dans la grotte avant de partir vérifier la situation. La grotte possédait une puissance mystérieuse qui restreignait grandement le Sens Divin, mais elle n'avait que peu d'effet sur les fragments d'âme.
+Le corps de Wang Lin réapparut à l'intérieur de la Secte Shi Yin. Il pointa l'air du doigt, faisant apparaître un fragment d'âme. C'était celui qu'il avait laissé dans la grotte avant de partir vérifier la situation. La grotte possédait une puissance mystérieuse qui restreignait grandement le Sens Divin, mais elle n'avait que peu d'effet sur les fragments d'âme.
 
-Wang Lin toucha le fragment d'âme du doigt; après un instant, il eut un rire froid. Puis, il s'élança et disparut de la Secte des Cadavres.
+Wang Lin toucha le fragment d'âme du doigt; après un instant, il eut un rire froid. Puis, il s'élança et disparut de la Secte Shi Yin.
 
-Wang Lin apparut sur la plaine surplombant la Secte des Cadavres. Il regarda soudainement vers le nord et vit une vague gigantesque de gaz bleu déferler vers lui tel un tsunami. À l'intérieur de ce tsunami de brume, un garçon vêtu de rouge marchait dans cette direction.
+Wang Lin apparut sur la plaine surplombant la Secte Shi Yin. Il regarda soudainement vers le nord et vit une vague gigantesque de gaz bleu déferler vers lui tel un tsunami. À l'intérieur de ce tsunami de brume, un garçon vêtu de rouge marchait dans cette direction.
 
 Ce garçon était très beau; son visage était aussi blanc que le jade et il avait une apparence très mignonne. Cependant, ses yeux abritaient une flamme farouche, presque démesurée, et profondément dissimulée. Ce n'était pas dirigé contre Wang Lin, c'était simplement sa nature profonde.
 

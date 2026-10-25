@@ -50,11 +50,11 @@ Avant de s'en aller, Wang Lin et Lanmeng Daozun discutèrent longuement. Nul aut
 
 Wang Lin partit. Il voyagea à travers le vaste système stellaire pour atteindre la planète Suzaku. Il resta assis devant sa propre statue pendant plusieurs jours avant de repartir. Il se rendit ensuite sur la planète Tian Yun, devenue une ruine lors de la grande guerre.
 
-Là, Wang Lin déploya son Sens Divin et trouva l'entrée de la Terre des Esprits Démoniaques. Dans ce lieu familier qui fut autrefois la grotte de l'Empereur Céleste Qing Lin, il le restaura et retrouva le rouleau qu'il avait jadis scellé au fond d'un abîme. Il libéra la femme qui s'y trouvait et lui permit d'entrer en réincarnation.
+Là, Wang Lin déploya son Sens Divin et trouva l'entrée de la Terre Yao Ling. Dans ce lieu familier qui fut autrefois la grotte de l'Empereur Céleste Qing Lin, il le restaura et retrouva le rouleau qu'il avait jadis scellé au fond d'un abîme. Il libéra la femme qui s'y trouvait et lui permit d'entrer en réincarnation.
 
 La mystérieuse femme de l'époque n'avait plus d'importance pour Wang Lin.
 
-Wang Lin quitta la Terre des Esprits Démoniaques et parcourut de nombreux lieux dans les quatre systèmes stellaires. Quant aux questions restées sans réponse du passé, il ne cherchait pas délibérément de réponses, mais il les traitait une à une.
+Wang Lin quitta la Terre Yao Ling et parcourut de nombreux lieux dans les quatre systèmes stellaires. Quant aux questions restées sans réponse du passé, il ne cherchait pas délibérément de réponses, mais il les traitait une à une.
 
 Finalement, il quitta le Royaume Intérieur pour rejoindre le Royaume Extérieur.
 
@@ -78,9 +78,9 @@ Wang Lin visita de nombreux endroits puis, un an plus tard, retourna sur la plan
 
 Un dernier secret attendait d'être révélé. À l'époque, il n'avait pas eu la puissance pour le découvrir, et avant de quitter le monde des grottes, il était si tourmenté par les incertitudes de l'avenir qu'il n'avait pas eu le temps d'y prêter attention.
 
-Cependant, étant désormais sur la planète Suzaku, Wang Lin se rendit dans la mer des démons, à l'entrée de la Terre de l'Ancien Dieu.
+Cependant, étant désormais sur la planète Suzaku, Wang Lin se rendit dans la mer des démons, à l'entrée de la Terre Gu Shen.
 
-Bien que la Terre de l'Ancien Dieu se soit effondrée suite au départ de Tuo Sen, un espace ancien subsistait en son sein. Wang Lin y pénétra et trouva Ji Qiong.
+Bien que la Terre Gu Shen se soit effondrée suite au départ de Tuo Sen, un espace ancien subsistait en son sein. Wang Lin y pénétra et trouva Ji Qiong.
 
 Cette bête avait dévoré le Sens Divin de Wang Lin et avait développé une tête ressemblant trait pour trait à celle de Wang Lin.
 
@@ -102,7 +102,7 @@ Ce n'était pas peur du crâne lui-même, mais de l'apparition de cette chose. I
 
 Désormais, il avait trouvé la réponse.
 
-Wang Lin rangea le crâne et sortit de l'espace où se trouvait la Terre de l'Ancien Dieu.
+Wang Lin rangea le crâne et sortit de l'espace où se trouvait la Terre Gu Shen.
 
 « L'Ancien Maître Impérial du Dao qui ressemblait à Tian Yunzi a dit que j'avais trouvé le crâne et les cheveux blancs... Maintenant, le crâne a changé. Cela signifie-t-il qu'un jour, les cheveux blancs subiront un sort similaire... » Wang Lin s'éloigna, plongé dans une profonde réflexion.
 

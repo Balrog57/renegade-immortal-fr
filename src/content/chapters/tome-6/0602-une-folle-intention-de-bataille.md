@@ -26,7 +26,7 @@ Il frappa son sac de rangement pour dévorer une grande quantité de pilules, pu
 
 L'intention meurtrière qu'il avait effacée en devenant mortel explosa à nouveau sous la stimulation des Fruits d'Ascension Céleste!
 
-Le démon qui avait fait trembler la Mer des Démons et le Pays de Zhao venait de s'éveiller!
+Le démon qui avait fait trembler la Mer Xiu Mo et le Pays de Zhao venait de s'éveiller!
 
 Le corps de Wang Lin fendit le ciel telle une météorite enflammée, fonçant droit vers la source du reniflement glacial qu'il percevait vaguement.
 
@@ -96,7 +96,7 @@ Le paysage ressemblait à l'enfer! C'était une vision aussi étrange qu'extrêm
 
 Leurs morts générèrent des filaments de gaz blanc qui rattrapèrent Wang Lin et pénétrèrent dans son corps. Ces essences aidèrent rapidement à réparer son corps meurtri et son âme originelle.
 
-Dans le Pays du Démon de Feu, Zi Shu était monté en selle. Vêtu d'une robe bleue et portant une épée géante dans le dos, il fixait froidement l'horizon. Derrière lui se trouvaient 30 000 soldats démons. Les Douze Épées de la Secte de l'Épée Da Luo s'étaient dispersées, et il en faisait partie. Sa culture atteignait le sommet du stade avancé de la Transformation de l'Âme. Ayant réussi à obtenir le poste de commandant en chef, il menait ses troupes pour rejoindre son frère aîné de la secte!
+Dans le Pays Huo Yao, Zi Shu était monté en selle. Vêtu d'une robe bleue et portant une épée géante dans le dos, il fixait froidement l'horizon. Derrière lui se trouvaient 30 000 soldats démons. Les Douze Épées de la Secte Da Luo Jian s'étaient dispersées, et il en faisait partie. Sa culture atteignait le sommet du stade avancé de la Transformation de l'Âme. Ayant réussi à obtenir le poste de commandant en chef, il menait ses troupes pour rejoindre son frère aîné de la secte!
 
 Soudain, son expression changea lorsqu'il vit une météorite enflammée fendre le ciel. Ses yeux se plissèrent pour l'observer attentivement, puis son visage se décomposa.
 

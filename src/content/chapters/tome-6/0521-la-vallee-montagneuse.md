@@ -8,7 +8,7 @@ slug: la-vallee-montagneuse
 ---
 « Cependant, rien de tout cela ne peut être comparé au jeton que j'ai aperçu. Qu'est-ce donc que ce jeton pour provoquer de telles réactions chez des êtres comme Tian Yunzi ou Ling Tianhou... Ah, la planète Tian Yun recèle trop de secrets; sans aucune connaissance préalable, je ne peux même pas commencer à les deviner... » Wang Lin laissa échapper un soupir et resta silencieux.
 
-« Peu importe. Je dois avancer étape par étape; rien ne sert de se précipiter. Maintenant que mon corps original est bien caché dans cette planète dissimulée, il ne sera pas découvert à la légère. De plus, dans le Tombeau de Suzaku, Tu Si ne s'est concentré que sur moi et ignore encore l'existence de mon corps originel. Je devrai passer les cinq cents prochaines années à le renforcer pour préparer l'avenir! »
+« Peu importe. Je dois avancer étape par étape; rien ne sert de se précipiter. Maintenant que mon corps original est bien caché dans cette planète dissimulée, il ne sera pas découvert à la légère. De plus, dans le Tombeau Zhu Que, Tu Si ne s'est concentré que sur moi et ignore encore l'existence de mon corps originel. Je devrai passer les cinq cents prochaines années à le renforcer pour préparer l'avenir! »
 
 Wang Lin calma son esprit. Tandis qu'il était plongé dans ses pensées, il avait parcouru inconsciemment d'innombrables kilomètres. Il déploya son sens divin, mais ne trouva toujours rien.
 
@@ -66,11 +66,11 @@ Au moment où il pénétra dans la vallée, une légère ondulation apparut. Tou
 
 Alors que l'homme entrait dans la vallée, le corps de Wang Lin surgit du vide. Ses yeux s'illuminèrent d'une lueur mystérieuse alors qu'il inspectait les environs.
 
-« Quelqu'un a déployé d'immenses efforts pour placer une formation géante ici. Elle peut dissimuler la présence de tout être vivant; à moins d'être au plus près, il est presque impossible de remarquer l'existence de ce lieu... En observant les marques de la formation, je vois qu'elle est là depuis des éons. La méthode utilisée pour la poser diffère de celle de l'Alliance de Culture, elle a donc dû être établie par d'anciens cultivateurs. »
+« Quelqu'un a déployé d'immenses efforts pour placer une formation géante ici. Elle peut dissimuler la présence de tout être vivant; à moins d'être au plus près, il est presque impossible de remarquer l'existence de ce lieu... En observant les marques de la formation, je vois qu'elle est là depuis des éons. La méthode utilisée pour la poser diffère de celle de l'Alliance Xiu Zhen, elle a donc dû être établie par d'anciens cultivateurs. »
 
 Les yeux de Wang Lin brillaient comme des torches. Il ne se pressa pas d'entrer dans la vallée et préféra l'examiner de l'extérieur avant de tirer cette conclusion.
 
-« Cet endroit est intrigant. Cette Mer des Esprits Démoniaques de l'Est est manifestement différente de tous les autres lieux où je suis allé chercher des trésors. » Un éclat mystérieux passa dans le regard de Wang Lin alors qu'il contemplait la vallée protégée par la formation.
+« Cet endroit est intrigant. Cette Mer Yao Ling est manifestement différente de tous les autres lieux où je suis allé chercher des trésors. » Un éclat mystérieux passa dans le regard de Wang Lin alors qu'il contemplait la vallée protégée par la formation.
 
 Après avoir observé un moment, il pointa le doigt vers l'avant. Un rayon d'énergie spirituelle jaillit de son doigt pour pénétrer dans la vallée.
 

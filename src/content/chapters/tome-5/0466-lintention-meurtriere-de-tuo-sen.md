@@ -12,7 +12,7 @@ Dès l'apparition de l'épée de fer, même Zhu Quezi et Yun Quezi, qui se livra
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il fixait intensément l'épée de fer. Pour être plus précis, il scrutait la rouille qui la recouvrait.
 
-« Il y a plusieurs gouttes de sang séché sur cette épée qui dégagent une aura très familière... le sang d'un Dieu Ancien! C'est du véritable sang de Dieu Ancien, bien supérieur à l'aura émanant du sang du Clan des Démons Géants! » Les yeux de Wang Lin brillèrent alors qu'il observait les taches de rouille.
+« Il y a plusieurs gouttes de sang séché sur cette épée qui dégagent une aura très familière... le sang d'un Dieu Ancien! C'est du véritable sang de Dieu Ancien, bien supérieur à l'aura émanant du sang du Clan Ju Mo! » Les yeux de Wang Lin brillèrent alors qu'il observait les taches de rouille.
 
 « Ce n'est pas possible! Comment un Dieu Ancien aurait-il pu être blessé si facilement? Cette épée ne peut absolument pas être ordinaire! » Le regard de Wang Lin devint sérieux et, cette fois, il fixa l'arme elle-même.
 
@@ -24,7 +24,7 @@ Qian Feng avait été contraint d'utiliser cette épée. Elle était le plus gra
 
 Lorsqu'il avait légué l'épée, l'ancien Suzaku avait déclaré: « Avec ma culture actuelle, je ne peux percer les secrets de cette épée. Générations futures, à moins qu'une catastrophe ne menace de détruire votre lignée, vous ne devez jamais l'utiliser! »
 
-Après que Qian Feng fut devenu le disciple de Zhu Quezi et juste avant la guerre contre le Clan des Immortels Délaissés, il s'était rendu secrètement sur le lieu où l'épée de fer était dissimulée pour s'en emparer.
+Après que Qian Feng fut devenu le disciple de Zhu Quezi et juste avant la guerre contre le Clan Xian Yi, il s'était rendu secrètement sur le lieu où l'épée de fer était dissimulée pour s'en emparer.
 
 Il voulait tuer Wang Lin et ne faisant pas confiance au trésor que Zhu Quezi lui avait confié, il avait sorti l'épée de fer. C'était sa véritable contrepartie face au Drapeau des Âmes d'un Milliard.
 
@@ -68,7 +68,7 @@ Qian Feng, bien que gravement blessé par sa chute, réussit à stabiliser son c
 
 Les yeux de Wang Lin brillèrent. Il agita le drapeau dans sa main et se laissa envelopper par celui-ci pour charger vers Qian Feng.
 
-Wang Lin pensa: « Je dois utiliser la vie de Qian Feng pour échanger mon fragment d'âme, puis quitter le Tombeau de Suzaku à toute vitesse! » Sa vitesse atteignit son paroxysme alors qu'il se précipitait sur sa proie. Qian Feng fut capturé par les innombrables fragments d'âme et entraîné par Wang Lin.
+Wang Lin pensa: « Je dois utiliser la vie de Qian Feng pour échanger mon fragment d'âme, puis quitter le Tombeau Zhu Que à toute vitesse! » Sa vitesse atteignit son paroxysme alors qu'il se précipitait sur sa proie. Qian Feng fut capturé par les innombrables fragments d'âme et entraîné par Wang Lin.
 
 Le corps de Wang Lin apparut devant Qian Feng et il pointa son doigt entre les sourcils de ce dernier.
 

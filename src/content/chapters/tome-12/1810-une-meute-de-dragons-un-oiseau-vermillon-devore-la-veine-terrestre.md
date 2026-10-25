@@ -10,15 +10,15 @@ Du Qing leva les yeux vers le ciel au loin. Il avait vaguement l'impression que 
 
 Après un long moment, Du Qing serra les dents, le regard empreint de froideur.
 
-« Je ne suis pas prêt à abandonner maintenant. Quoi qu'il en soit, je dois le rattraper pour voir ce qu'il en est. Si tout ceci n'est qu'une illusion de puissance, alors je le tuerai... Si... si son niveau de culture est comparable au mien, alors je devrai changer de perspective. La Secte du Dragon Bleu est détruite, c'est un fait accompli. S'il venait à rejoindre la Secte du Dragon Bleu... l'influence de la secte augmenterait considérablement! » Du Qing était un ancêtre; même s'il était lunatique, son esprit n'était pas ordinaire.
+« Je ne suis pas prêt à abandonner maintenant. Quoi qu'il en soit, je dois le rattraper pour voir ce qu'il en est. Si tout ceci n'est qu'une illusion de puissance, alors je le tuerai... Si... si son niveau de culture est comparable au mien, alors je devrai changer de perspective. La Secte Cang Long est détruite, c'est un fait accompli. S'il venait à rejoindre la Secte Cang Long... l'influence de la secte augmenterait considérablement! » Du Qing était un ancêtre; même s'il était lunatique, son esprit n'était pas ordinaire.
 
 Après avoir pris sa décision, Du Qing tendit la main vers le vide devant lui et une grue en papier rouge écarlate apparut. Il la lança, et celle-ci se métamorphosa en une grue de fumée qui poussa un cri avant de s'élancer vers l'avant.
 
 Du Qing la suivit dans les airs.
 
-« Avec ce trésor exotique de la Secte de la Grande Âme, cet individu ne pourra pas s'échapper bien longtemps! »
+« Avec ce trésor exotique de la Secte Da Hun, cet individu ne pourra pas s'échapper bien longtemps! »
 
-Un grondement de tonnerre résonna à travers la terre du Continent du Taureau Céleste, puis un gigantesque Oiseau Vermillon couvert de flammes surgit. Le monde parut se distordre et la terre se dessécha, comme prête à s'effondrer.
+Un grondement de tonnerre résonna à travers la terre du Continent Tian Niu, puis un gigantesque Oiseau Vermillon couvert de flammes surgit. Le monde parut se distordre et la terre se dessécha, comme prête à s'effondrer.
 
 Les cheveux blancs de Wang Lin flottaient alors qu'il se tenait sur la tête de l'Oiseau Vermillon, les yeux brillant d'un éclat intense.
 
@@ -30,9 +30,9 @@ Son essence de feu était bien plus puissante que lorsqu'il était dans le monde
 
 Wang Lin savait depuis longtemps que quelqu'un le poursuivait. Bien qu'il n'eût pas encore aperçu son poursuivant, il savait parfaitement de qui il s'agissait.
 
-Cette personne devait être l'ancêtre de la Secte du Dragon Bleu, Du Qing, l'expert de la Tribulation du Vide!
+Cette personne devait être l'ancêtre de la Secte Cang Long, Du Qing, l'expert de la Tribulation du Vide!
 
-L'analyse était simple. Oser le poursuivre ainsi et sur une telle durée signifiait que cet individu avait pleine confiance en sa propre puissance. Parmi tous ceux que Wang Lin avait provoqués depuis son arrivée sur le Continent Astral Immortel, seul l'ancêtre de la Secte du Dragon Bleu possédait une telle force.
+L'analyse était simple. Oser le poursuivre ainsi et sur une telle durée signifiait que cet individu avait pleine confiance en sa propre puissance. Parmi tous ceux que Wang Lin avait provoqués depuis son arrivée sur le Continent Astral Immortel, seul l'ancêtre de la Secte Cang Long possédait une telle force.
 
 « D'après les souvenirs de Kang Ren, l'ancêtre est au début du stade de la Tribulation du Vide... Mais si cela est vrai ou non, ce n'est pas à Kang Ren de le savoir! Il a peut-être effectivement traversé neuf Tribulations Arcanes pour atteindre le début de la Tribulation du Vide, ou il pourrait encore être au stade de la Tribulation Arcane! » Wang Lin ne se fierait évidemment pas uniquement aux souvenirs de Kang Ren pour juger du niveau de culture de Du Qing.
 
@@ -58,13 +58,13 @@ Deux heures plus tard, Du Qing atteignit la veine de feu terrestre que Wang Lin 
 
 Ce supplice n'affectait pas son corps, mais son esprit! Voir ces veines de feu terrestres se dessécher les unes après les autres suffisait à le rendre fou. Il aurait préféré ne jamais poursuivre Wang Lin, ou même endommager sa propre culture en l'affrontant, plutôt que de continuer à subir cette torture mentale.
 
-Quatre jours plus tard, dans une autre région du Continent du Taureau Céleste, le rugissement d'un dragon s'estompa lentement. Un gigantesque Oiseau Vermillon jaillit des profondeurs de la terre.
+Quatre jours plus tard, dans une autre région du Continent Tian Niu, le rugissement d'un dragon s'estompa lentement. Un gigantesque Oiseau Vermillon jaillit des profondeurs de la terre.
 
 Une heure plus tard, la silhouette de Du Qing réapparut. Il resta de longues minutes à fixer le sol, l'air abasourdi...
 
 « 16... » À cet instant, Du Qing se demanda si ce mystérieux individu nommé Wang n'était pas lui-même une âme issue d'une veine de feu terrestre...
 
-Deux jours plus tard, dans la partie nord du Continent du Taureau Céleste, là où les montagnes sont les plus nombreuses. Les chaînes montagneuses étaient infinies ici et aucune trace de végétation ne subsistait. Tout n'était que noirceur, dégageant une sensation oppressante.
+Deux jours plus tard, dans la partie nord du Continent Tian Niu, là où les montagnes sont les plus nombreuses. Les chaînes montagneuses étaient infinies ici et aucune trace de végétation ne subsistait. Tout n'était que noirceur, dégageant une sensation oppressante.
 
 Le sol était sec et craquelé, et une aura brûlante semblait imprégner le vide.
 
@@ -86,7 +86,7 @@ Une veine de feu principale pouvait posséder d'innombrables sous-branches. Cepe
 
 Une veine enfantée était, par essence, le rejeton de la veine principale. Hormis sa force, elle ne différait en rien de la veine mère!
 
-« Je me demande combien de veines enfantées parsèment le Continent du Taureau Céleste... Cependant, il n'y en a probablement pas beaucoup. Dévorer une branche enfantée équivaut à dévorer une multitude de sous-branches. Puisque j'en ai trouvé une, je n'ai aucune raison de la laisser filer! » L'Oiseau Vermillon sous Wang Lin poussa un cri et pivota dans les airs pour charger l'âme du dragon de feu qui approchait.
+« Je me demande combien de veines enfantées parsèment le Continent Tian Niu... Cependant, il n'y en a probablement pas beaucoup. Dévorer une branche enfantée équivaut à dévorer une multitude de sous-branches. Puisque j'en ai trouvé une, je n'ai aucune raison de la laisser filer! » L'Oiseau Vermillon sous Wang Lin poussa un cri et pivota dans les airs pour charger l'âme du dragon de feu qui approchait.
 
 L'âme du dragon était féroce; des quantités massives de flammes se répandirent, couvrant des dizaines de milliers de kilomètres à la ronde, englobant Wang Lin et son Oiseau Vermillon.
 
@@ -106,7 +106,7 @@ Au moment où il prit cette forme, le feu se propagea de son corps pour l'envelo
 
 Du Qing possédait lui aussi une essence de feu!
 
-Si cette essence s'était manifestée spontanément, c'était parce que ce rugissement représentait le feu du Continent du Taureau Céleste! Et Du Qing était un cultivateur d'essence de feu reconnu par le Continent du Taureau Céleste!
+Si cette essence s'était manifestée spontanément, c'était parce que ce rugissement représentait le feu du Continent Tian Niu! Et Du Qing était un cultivateur d'essence de feu reconnu par le Continent Tian Niu!
 
 S'il s'était agi d'une veine ordinaire, elle n'aurait pas eu le pouvoir d'affecter l'essence de feu de Du Qing. Cependant, cette branche enfantée ne différant pas de la veine principale, elle put produire un tel effet.
 

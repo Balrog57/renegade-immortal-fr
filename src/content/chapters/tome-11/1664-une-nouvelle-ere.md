@@ -94,7 +94,7 @@ Cet effondrement était total, absolu et irréversible!
 
 Tandis que tout s'écroulait, les cultivateurs restants dans les quatre grands systèmes stellaires furent frappés de stupeur. Le système stellaire lui-même semblait bouillonner, et la Formation de Scellement du Royaume qui avait emprisonné le Royaume Intérieur pendant des centaines de millions d'années était en train de voler en éclats.
 
-Dans la Mer des Nuages, Mu Bingmei, la femme en rose et Xi Zifeng s'étaient regroupés. Ils cessèrent de voler pour contempler le système stellaire environnant. Ils se trouvaient encore à une certaine distance de Wang Lin.
+Dans la Mer Yun, Mu Bingmei, la femme en rose et Xi Zifeng s'étaient regroupés. Ils cessèrent de voler pour contempler le système stellaire environnant. Ils se trouvaient encore à une certaine distance de Wang Lin.
 
 Cependant, l'effondrement de la Formation de Scellement du Royaume les empêchait d'avancer, alors ils restèrent ensemble. Ils virent le filet gigantesque sous leurs pieds se briser, et le choc de cette vision fit pâlir leurs visages.
 
@@ -104,7 +104,7 @@ Dès que le jade se brisa, la Formation de Scellement du Royaume s'effondra soud
 
 À cet instant, le Vide Brillant ne fut plus ceint par la Formation de Scellement du Royaume. La Rivière Invoquée était désormais totalement exposée au Royaume Extérieur.
 
-En cet instant, Luotian et la Mer des Nuages étaient enfin libres!
+En cet instant, Luotian et la Mer Yun étaient enfin libres!
 
 Après des centaines de millions d'années, la barrière entre le Royaume Intérieur et le Royaume Extérieur avait disparu; ils ne faisaient plus qu'un! La Formation de Scellement du Royaume, qui semblait avoir toujours existé et qui était transmise de génération en génération, s'était effondrée et avait disparu!
 
@@ -114,4 +114,4 @@ Wang Lin avait détruit la Formation de Scellement du Royaume!
 
 À travers les âges, il était le premier à accomplir un tel exploit. Le premier à avoir l'audace de briser la Formation de Scellement du Royaume après avoir massacré les envahisseurs du Royaume Extérieur!
 
-Son nom était destiné à être transmis pendant des centaines de millions d'années dans ce monde de culture, car il était le Seigneur du Royaume Scellé. Non pas le Seigneur du Royaume Scellé de la Secte des Sept Dao, ni celui soumis au Souverain Céleste aux Sept Couleurs, mais le Seigneur du Royaume Scellé des cultivateurs du Royaume Intérieur. Il allait mener les cultivateurs du Royaume Intérieur hors de cette prison et ébranler le Continent Astral Immortel!
+Son nom était destiné à être transmis pendant des centaines de millions d'années dans ce monde de culture, car il était le Seigneur du Royaume Scellé. Non pas le Seigneur du Royaume Scellé de la Secte Qi Dao, ni celui soumis au Souverain Céleste aux Sept Couleurs, mais le Seigneur du Royaume Scellé des cultivateurs du Royaume Intérieur. Il allait mener les cultivateurs du Royaume Intérieur hors de cette prison et ébranler le Continent Astral Immortel!

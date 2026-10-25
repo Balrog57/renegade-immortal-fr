@@ -74,7 +74,7 @@ Sa destinée était suspendue à ce va-et-vient!
 
 « Je vais simplement te sceller dans un lieu où tu endureras des millénaires de solitude, coincée entre la vie et la mort, incapable de trépasser. Même si tu tentais de te mordre la langue pour te suicider, le sceau sur ton front t'en empêcherait! Je veux voir comment tu te relèveras avec ta Pilule de l'Âme Sanguine! » La voix de Wang Lin était calme, mais ses paroles firent chanceler l'expression de Yao Xixue.
 
-En prononçant ces mots, Wang Lin ne put s'empêcher de repenser à la planète Suzaku, lorsque sa culture avait été détruite par l'Ancêtre du Clan des Démons Géants et le cultivateur de Xue Yu. Après être devenu un incapable, il avait été jeté dans une prison aquatique par des bandits. Là, il avait trouvé le squelette d'une femme scellée depuis une éternité!
+En prononçant ces mots, Wang Lin ne put s'empêcher de repenser à la planète Suzaku, lorsque sa culture avait été détruite par l'Ancêtre du Clan Ju Mo et le cultivateur de Xue Yu. Après être devenu un incapable, il avait été jeté dans une prison aquatique par des bandits. Là, il avait trouvé le squelette d'une femme scellée depuis une éternité!
 
 Wang Lin pensa: « Il y a un cycle à toute chose en ce monde! »
 
@@ -92,7 +92,7 @@ Après avoir rangé les sacs, il déclara: « Compagnon cultivateur Yao, et si n
 
 Yao Xixue le fixa sans dire un mot.
 
-Wang Lin sourit faiblement. « J'ai l'intention de te sceller jusqu'à ton épuisement naturel, mais la Terre des Esprits Démoniaques a une limite de 500 ans. Je vais donc te poser des questions, et chaque réponse réduira de 50 ans la durée de ton scellement. Qu'en dis-tu? »
+Wang Lin sourit faiblement. « J'ai l'intention de te sceller jusqu'à ton épuisement naturel, mais la Terre Yao Ling a une limite de 500 ans. Je vais donc te poser des questions, et chaque réponse réduira de 50 ans la durée de ton scellement. Qu'en dis-tu? »
 
 Yao Xixue prit une profonde inspiration et réfléchit un instant. Puis elle demanda froidement: « Comment savoir si tu dis la vérité? »
 

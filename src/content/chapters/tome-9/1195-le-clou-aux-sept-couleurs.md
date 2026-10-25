@@ -40,7 +40,7 @@ Après avoir réfléchi un instant, une lueur de froideur passa dans les yeux de
 
 « Il y a aussi Maître Nuage-Âme. Lorsqu'il a été téléporté ici, il l'a été vers un lieu aléatoire, mais j'ignore où. Cependant, cet endroit est rempli de dangers, et être transporté ici au hasard est périlleux. Il est probable qu'il ne puisse même pas se défendre pour le moment. »
 
-« Ces trois-là ont tous été piégés par moi, mais ce Chen Tianjun de la Secte de la Bête de Bataille est parti tôt. Bien que nous ayons senti ses sorts se dissiper auparavant, il est difficile de prouver qu'il est mort... »
+« Ces trois-là ont tous été piégés par moi, mais ce Chen Tianjun de la Secte Yi Shou est parti tôt. Bien que nous ayons senti ses sorts se dissiper auparavant, il est difficile de prouver qu'il est mort... »
 
 Chacun ici complotait contre les autres, et personne ne voulait laisser autrui quitter cet endroit avec le trésor. C'était ce qu'on appelle: « même si un homme ne veut pas nuire au tigre, le tigre, lui, voudra toujours nuire à l'homme ». Si l'on reste passif, on finit inévitablement par être victime de complots. Les yeux de Wang Lin s'illuminèrent; il avait depuis longtemps percé à jour leurs intentions. C'est pourquoi il avait agi le premier en forçant Maître Nuage-Âme à se téléporter ailleurs, puis il avait piégé la vieille femme dans la restriction afin de pouvoir affronter Cang Songzi.
 

@@ -118,7 +118,7 @@ Le corps de Wang Lin flottait dans les airs. Grâce à son Sens Divin, il pouvai
 
 Cet homme était le premier membre de la famille Teng au stade de l'Âme Naissante qu'il avait rencontré, outre Teng Huayuan, et il dégageait également une puissante aura meurtrière.
 
-Cette aura ne pouvait s'acquérir sans avoir traversé de multiples tribulations de massacres. Bien qu'elle fût plusieurs niveaux en dessous de l'intention meurtrière de Wang Lin, elle était encore plus intense que celle de certains cultivateurs démoniaques de la Mer des Démons.
+Cette aura ne pouvait s'acquérir sans avoir traversé de multiples tribulations de massacres. Bien qu'elle fût plusieurs niveaux en dessous de l'intention meurtrière de Wang Lin, elle était encore plus intense que celle de certains cultivateurs démoniaques de la Mer Xiu Mo.
 
 Wang Lin eut un léger sourire. Ce membre de la famille Teng ravissait son regard.
 

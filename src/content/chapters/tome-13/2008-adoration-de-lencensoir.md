@@ -64,9 +64,9 @@ Des bouffées d'aura fraîche se propageaient dans l'air. Respirer ici suffisait
 
 De nombreux membres du clan Ancien montaient vers le temple situé au sommet. Tous les habitants connaissaient ce lieu!
 
-C'était le Temple de l'Ancien Dao! C'était là que résidait l'unique Grand Empyréen du clan, Xuan Luo!
+C'était le Temple Dao Gu! C'était là que résidait l'unique Grand Empyréen du clan, Xuan Luo!
 
-Le Temple de l'Ancien Dao était ouvert à tous les membres du clan. N'importe qui pouvait s'y rendre pour chercher une aide lors d'une percée de culture, bien qu'ils aperçoivent rarement le Grand Empyréen Xuan Luo. Les neuf puissants du Dao Antique qui suivaient Xuan Luo se chargeaient de les guider.
+Le Temple Dao Gu était ouvert à tous les membres du clan. N'importe qui pouvait s'y rendre pour chercher une aide lors d'une percée de culture, bien qu'ils aperçoivent rarement le Grand Empyréen Xuan Luo. Les neuf puissants du Dao Antique qui suivaient Xuan Luo se chargeaient de les guider.
 
 À tout instant, l'un des neuf se trouvait au temple pour éclairer ses compatriotes!
 

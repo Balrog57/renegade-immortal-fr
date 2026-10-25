@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 600 - Celestial Ascension Fruit
 slug: fruit-de-lascension-celeste
 ---
-À cet instant, dans le Pays du Démon Céleste, sur l'ancien champ de bataille, à l'étage supérieur de la tour noire, deux lueurs fantomatiques s'allumèrent soudainement à l'intérieur de l'armure.
+À cet instant, dans le Pays Tian Yao, sur l'ancien champ de bataille, à l'étage supérieur de la tour noire, deux lueurs fantomatiques s'allumèrent soudainement à l'intérieur de l'armure.
 
 « Il vient tout juste d'atteindre le stade d'Ascendant, son énergie originelle n'a donc pas encore totalement fusionné avec son corps. Il lui faudra quarante-neuf jours pour achever ce processus, et cette fenêtre est une opportunité que j'attends depuis dix ans... »
 
@@ -44,7 +44,7 @@ Ce coup fit vaciller la silhouette dématérialisée de Wang Lin, qui finit par 
 
 Le bras d'os noir marqua un temps d'arrêt avant de retourner dans le vortex, lequel disparut à son tour.
 
-Une distorsion se produisit dans le ciel au-dessus d'une plaine infinie du Pays du Démon de Feu, et Wang Lin en émergea!
+Une distorsion se produisit dans le ciel au-dessus d'une plaine infinie du Pays Huo Yao, et Wang Lin en émergea!
 
 Son visage était sombre. Quiconque subirait une telle scène étrange juste après avoir atteint le stade d'Ascendant ne saurait s'en réjouir.
 

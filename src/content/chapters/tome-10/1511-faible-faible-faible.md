@@ -6,15 +6,15 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1511 - Weak Weak Weak!"
 slug: faible-faible-faible
 ---
-Au moment où le Shui Daozi agita la main, la montagne de l'image sembla perdre toute la puissance qui la soutenait. Elle commença sa chute, prête à écraser les membres de la Secte de l'Origine!
+Au moment où le Shui Daozi agita la main, la montagne de l'image sembla perdre toute la puissance qui la soutenait. Elle commença sa chute, prête à écraser les membres de la Secte Gui Yuan!
 
-Les cultivateurs vêtus de noir qui flottaient autour de la montagne restèrent de marbre, affichant des sourires cruels comme s'ils se délectaient de la mort tragique imminente des disciples de la Secte de l'Origine.
+Les cultivateurs vêtus de noir qui flottaient autour de la montagne restèrent de marbre, affichant des sourires cruels comme s'ils se délectaient de la mort tragique imminente des disciples de la Secte Gui Yuan.
 
 Cependant, à cet instant précis, une lueur sanglante teinta toute l'image de rouge.
 
 Un rouge vif, semblable au sang!
 
-Une épée de sang apparut de nulle part au cœur de cette lumière écarlate et fonça vers la montagne gigantesque qui s'apprêtait à broyer les membres de la Secte de l'Origine!
+Une épée de sang apparut de nulle part au cœur de cette lumière écarlate et fonça vers la montagne gigantesque qui s'apprêtait à broyer les membres de la Secte Gui Yuan!
 
 Tout se produisit en un instant, avec une rapidité dépassant l'entendement. L'épée de sang entra en collision avec la montagne. Ce n'était pas une montagne ordinaire; elle était protégée par d'innombrables restrictions. Ces dernières s'illuminèrent dans une tentative désespérée de résister à l'épée!
 
@@ -102,7 +102,7 @@ Des grondements tonnerreux éclatèrent. Les sorts de l'homme en noir et de l'Es
 
 Le monde trembla et les deux recommencèrent leur combat!
 
-De l'autre côté, le sort de Zhou Jin, la lune rouge, s'abattit. Le hurlement du loup résonna à travers la Mer des Nuages alors que la lune rouge percutait les perles d'abaque!
+De l'autre côté, le sort de Zhou Jin, la lune rouge, s'abattit. Le hurlement du loup résonna à travers la Mer Yun alors que la lune rouge percutait les perles d'abaque!
 
 Au moment de l'impact, les perles se brisèrent, révélant un homme d'âge moyen pétrifié par le choc et l'incrédulité!
 

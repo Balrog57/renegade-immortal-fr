@@ -84,7 +84,7 @@ Elle n'avait jamais vu Wang Lin aussi anxieux. Ses yeux bougèrent; elle s'appr�
 
 Wang Lin avait divisé son Sens Divin: seule une partie était dans le sac, tandis que l'autre contrôlait son corps. À cet instant, le vieil homme en armure noire le rattrapait. Les yeux de Wang Lin devinrent froids et une hache de guerre jaillit de son sac de rangement.
 
-C'était la hache de guerre du Clan des Démons Géants. Une fois sortie, il la lança en criant: « Explose! »
+C'était la hache de guerre du Clan Ju Mo. Une fois sortie, il la lança en criant: « Explose! »
 
 La hache trembla et explosa soudainement, créant une puissante onde de choc. Le vieil homme en armure noire fronça les sourcils et laissa échapper un reniflement glacial. D'un revers de main, il dissipa l'onde de choc de la hache.
 
@@ -134,7 +134,7 @@ Une armure, dont il manquait un protège-poignet, flottait silencieusement dans 
 
 « Tu oses détruire ma tour démoniaque! Même si tu as un lien avec lui, je te tuerai! »
 
-La tour démoniaque était un outil essentiel fournissant l'énergie démoniaque nécessaire pour permettre au Sens Divin contenu dans l'armure de se propager. Sans elle, il ne pourrait plus couvrir la majeure partie de la Terre des Esprits Démoniaques comme auparavant!
+La tour démoniaque était un outil essentiel fournissant l'énergie démoniaque nécessaire pour permettre au Sens Divin contenu dans l'armure de se propager. Sans elle, il ne pourrait plus couvrir la majeure partie de la Terre Yao Ling comme auparavant!
 
 Une formation noire fut mise à nu sur le sol là où la tour trônait autrefois. Une personne y était assise en position de lotus. Ses longs cheveux flottaient au vent et des tatouages dorés et violets ornaient son corps.
 

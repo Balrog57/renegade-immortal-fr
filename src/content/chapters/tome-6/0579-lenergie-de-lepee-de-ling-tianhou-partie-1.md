@@ -6,9 +6,9 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 579 - Ling Tianhous Sword Energy (Part 1)
 slug: lenergie-de-lepee-de-ling-tianhou-partie-1
 ---
-Un ricanement s'échappa d'un palais élégant au cœur de la capitale de la Cité du Démon Céleste.
+Un ricanement s'échappa d'un palais élégant au cœur de la capitale de la Cité Tian Yao.
 
-« Se pourrait-il que ce petit morveux, Mo Fei, veuille défier Mo Lihai en duel avant le début du concours des généraux démons, espérant utiliser les mérites militaires qu'il a acquis en combattant le Pays du Démon de Feu pour que je ne puisse pas le refuser? Ce gamin est intéressant, je l'autorise! »
+« Se pourrait-il que ce petit morveux, Mo Fei, veuille défier Mo Lihai en duel avant le début du concours des généraux démons, espérant utiliser les mérites militaires qu'il a acquis en combattant le Pays Huo Yao pour que je ne puisse pas le refuser? Ce gamin est intéressant, je l'autorise! »
 
 Une autre voix, âgée, résonna dans le palais. « Cela... Empereur Démon, si les deux d'entre eux donnent un tel exemple, je crains que les autres généraux démons ne... »
 
@@ -18,7 +18,7 @@ Une autre voix, âgée, résonna dans le palais. « Cela... Empereur Démon, si 
 
 Peu après, un vieil homme sortit du palais, un parchemin à la main. Il secoua légèrement la tête, puis repartit prestement.
 
-Le jour du concours des généraux démons approchait à grands pas. Toute la Cité du Démon Céleste était enveloppée d'une atmosphère oppressante, et d'innombrables combats éclataient chaque jour.
+Le jour du concours des généraux démons approchait à grands pas. Toute la Cité Tian Yao était enveloppée d'une atmosphère oppressante, et d'innombrables combats éclataient chaque jour.
 
 Wang Lin, assis au bord de la rivière, reposa sa cruche de vin, leva les yeux vers le ciel quelque peu sombre et murmura pour lui-même: « C’est un jeu! »
 
@@ -28,7 +28,7 @@ Il réfléchit un instant avant de se lever et de s'éloigner lentement.
 
 Nous étions déjà au septième jour; il restait donc encore huit jours avant le concours des généraux démons!
 
-Le crépuscule tombait, et en raison de l'aura oppressante qui régnait sur la Cité du Démon Céleste, les passants se faisaient rares. Un jeune homme vêtu d'une robe verte marchait lentement vers la demeure de Mo, à une distance de 330 mètres.
+Le crépuscule tombait, et en raison de l'aura oppressante qui régnait sur la Cité Tian Yao, les passants se faisaient rares. Un jeune homme vêtu d'une robe verte marchait lentement vers la demeure de Mo, à une distance de 330 mètres.
 
 Il portait une grande épée dans le dos et son expression était d'un calme imperturbable tandis qu'il progressait. À mesure qu'il approchait, une subtile énergie spirituelle céleste commença à se diffuser autour de lui.
 
@@ -46,7 +46,7 @@ L'inconnu laissa échapper un son de surprise et afficha un léger sourire. Sans
 
 Alors que les débris volaient, deux gémissements déchirants retentirent. Une immense quantité de brouillard sanguin jaillit de deux gardes, projetés au plus profond de la demeure.
 
-« L'un des Douze Épées de la Secte de l'Épée Da Luo, Mo Yang, souhaite saluer le Seigneur Mo Lihai! »
+« L'un des Douze Épées de la Secte Da Luo Jian, Mo Yang, souhaite saluer le Seigneur Mo Lihai! »
 
 Une voix calme s'échappa de sa bouche. Il continua d'avancer sans s'arrêter, pénétrant dans la demeure de Mo et se dirigeant vers la chambre secrète où Mo Lihai était en pleine culture de porte close.
 
@@ -54,15 +54,15 @@ D'innombrables soldats et subordonnés de Mo Lihai accoururent. Cependant, quico
 
 Tout au long de son chemin, des explosions retentissaient; personne ne pouvait l'arrêter. Même certains bâtiments et montagnes artificielles furent détruits, tout comme la porte d'entrée.
 
-À ce moment précis, une petite silhouette apparut devant lui. Dès l'apparition de cette figure, qui poussa un grognement et fit un pas en avant, toute l'énergie spirituelle démoniaque de son corps se déploya pour contrer le membre de la Secte de l'Épée Da Luo.
+À ce moment précis, une petite silhouette apparut devant lui. Dès l'apparition de cette figure, qui poussa un grognement et fit un pas en avant, toute l'énergie spirituelle démoniaque de son corps se déploya pour contrer le membre de la Secte Da Luo Jian.
 
-L'homme de la Secte de l'Épée Da Luo secoua légèrement la tête et poursuivit sa marche sans faiblir. Le visage de l'individu de petite taille pâlit; il eut la sensation de ne pas faire face à un homme, mais à une épée!
+L'homme de la Secte Da Luo Jian secoua légèrement la tête et poursuivit sa marche sans faiblir. Le visage de l'individu de petite taille pâlit; il eut la sensation de ne pas faire face à un homme, mais à une épée!
 
 Une épée qui avait déjà révélé son tranchant!
 
 L'homme recula involontairement. Lorsqu'il fut à quelques mètres, une main vint se poser sur son épaule pour le soutenir. À cet instant, il poussa un profond soupir de soulagement.
 
-Trois personnes étaient apparues derrière lui. Il s'agissait de trois vieillards aux cheveux blancs qui se tenaient là, fixant froidement l'homme de la Secte de l'Épée Da Luo.
+Trois personnes étaient apparues derrière lui. Il s'agissait de trois vieillards aux cheveux blancs qui se tenaient là, fixant froidement l'homme de la Secte Da Luo Jian.
 
 Le regard de ce dernier se posa sur les trois vieillards, puis il esquissa un sourire et continua d'avancer.
 
@@ -70,9 +70,9 @@ Les trois vieillards prirent des expressions graves et s'apprêtèrent à utilis
 
 « Qui vous a envoyé?! » Cette voix était empreinte de majesté. Les trois anciens s'écartèrent immédiatement et respectueusement, révélant la silhouette imposante de Mo Lihai.
 
-Lorsque Mo Lihai dévisagea le jeune homme de la Secte de l'Épée Da Luo, ses yeux brillaient comme des flammes ardentes. Son aura était alors encore plus imposante que lorsqu'il avait affronté Wang Lin dans la Cité de l'Ancien Démon.
+Lorsque Mo Lihai dévisagea le jeune homme de la Secte Da Luo Jian, ses yeux brillaient comme des flammes ardentes. Son aura était alors encore plus imposante que lorsqu'il avait affronté Wang Lin dans la Cité Gu Yao.
 
-Les yeux de l'homme de la Secte de l'Épée Da Luo s'illuminèrent; il s'arrêta et déclara: « Général Démon Mo Fei! »
+Les yeux de l'homme de la Secte Da Luo Jian s'illuminèrent; il s'arrêta et déclara: « Général Démon Mo Fei! »
 
 Mo Lihai fronça les sourcils et tonna: « De quoi s'agit-il? »
 
@@ -82,7 +82,7 @@ L'expression de Mo Lihai devint sombre en contemplant le jeton doré.
 
 Un seul mot y était inscrit: Combat!
 
-« Dans trois jours, devant la Salle du Chemin Ancien! » Une fois ses paroles prononcées, l'homme de la Secte de l'Épée Da Luo fit volte-face pour partir.
+« Dans trois jours, devant la Salle du Chemin Ancien! » Une fois ses paroles prononcées, l'homme de la Secte Da Luo Jian fit volte-face pour partir.
 
 Mais au moment de se retourner, tout son corps se raidit et il libéra une aura puissante. Cette aura était extrêmement vigoureuse, bien plus que celle qu'il avait dégagée en entrant dans la demeure de Mo.
 
@@ -90,11 +90,11 @@ Ses yeux brillèrent alors qu'il fixait une silhouette mince apparue à 330 mèt
 
 Mo Lihai ne remarqua l'apparition de Wang Lin qu'à cet instant, ce qui le détendit légèrement.
 
-Wang Lin ne daigna même pas un regard à l'homme et continua sa route. Cependant, dans le regard du membre de la Secte de l'Épée Da Luo, une pointe de colère apparut.
+Wang Lin ne daigna même pas un regard à l'homme et continua sa route. Cependant, dans le regard du membre de la Secte Da Luo Jian, une pointe de colère apparut.
 
 L'homme dit froidement: « La rumeur prétend que le septième disciple de la Division Pourpre est d'une arrogance extrême. En vous voyant aujourd'hui, il semble que les rumeurs soient vraies! »
 
-Wang Lin marcha vers lui comme s'il ne l'avait pas entendu. L'aura du membre de la Secte de l'Épée Da Luo jaillit et se verrouilla sur Wang Lin telle une épée dégainée.
+Wang Lin marcha vers lui comme s'il ne l'avait pas entendu. L'aura du membre de la Secte Da Luo Jian jaillit et se verrouilla sur Wang Lin telle une épée dégainée.
 
 Au moment où son aura atteignit son apogée, Wang Lin le dépassa sans même marquer de pause.
 
@@ -102,7 +102,7 @@ L'homme fut stupéfait, mais sa colère redoubla instantanément. Il se retourna
 
 Wang Lin continua de marcher vers ses quartiers.
 
-Le regard du membre de la Secte de l'Épée Da Luo se glaça. En tant que l'une des Douze Épées de la Secte de l'Épée Da Luo, son statut était équivalent à celui des Sept Disciples du Destin Céleste; il était très célèbre.
+Le regard du membre de la Secte Da Luo Jian se glaça. En tant que l'une des Douze Épées de la Secte Da Luo Jian, son statut était équivalent à celui des Sept Disciples du Destin Céleste; il était très célèbre.
 
 Pourtant, il était totalement ignoré par cet individu. L'homme laissa échapper un grognement froid, disparut pour réapparaître devant Wang Lin et lança d'un ton glacial: « Wang... »
 
@@ -114,7 +114,7 @@ Il rit de rage, ses yeux devenant plus froids encore: « Je veux voir ce que tu 
 
 Wang Lin secoua la tête et dit calmement: « Écarte-toi. »
 
-L'homme de la Secte de l'Épée Da Luo rit, forma un sceau de la main et un rayon d'énergie d'épée se condensa devant lui. Ce dernier se divisa de 1 en 2, de 2 en 4, jusqu'à devenir soixante-quatre rayons d'énergie qui foncèrent tous sur Wang Lin.
+L'homme de la Secte Da Luo Jian rit, forma un sceau de la main et un rayon d'énergie d'épée se condensa devant lui. Ce dernier se divisa de 1 en 2, de 2 en 4, jusqu'à devenir soixante-quatre rayons d'énergie qui foncèrent tous sur Wang Lin.
 
 L'expression de Wang Lin restait sereine; il ne daigna même pas regarder les soixante-quatre rayons. L'énergie d'épée s'abattit sur lui, mais à cet instant, une lueur émana des sceaux de la vie. Les rayons de l'épée entrèrent en collision avec les sceaux et disparurent totalement.
 
@@ -124,7 +124,7 @@ Le visage de l'homme changea radicalement, empreint d'incrédulité. Bien que ce
 
 « Quel est ce sort?! Cet homme n'a utilisé aucun trésor, et pourtant, lorsque mon énergie d'épée a approché son corps, elle s'est effondrée. Même le Dragon, l'un des Douze Épées, ne pourrait faire cela! »
 
-Alors que Wang Lin continuait de marcher, l'homme de la Secte de l'Épée Da Luo recula inconsciemment de quelques pas. Il prit une grande inspiration et posa la main sur sa grande épée.
+Alors que Wang Lin continuait de marcher, l'homme de la Secte Da Luo Jian recula inconsciemment de quelques pas. Il prit une grande inspiration et posa la main sur sa grande épée.
 
 Wang Lin fronça les sourcils, le regarda froidement et dit: « Dégage! Puisque tu es venu aujourd'hui pour remettre la lettre de défi, je ne te tuerai pas! »
 
@@ -164,11 +164,11 @@ Mo Lihai ne put s'empêcher d'aspirer une bouffée d'air froid devant un tel spe
 
 « Il a pu devenir aussi fort en seulement trois mois... Même le Vice-Commandant n'est pas son égal, et il est capable de soumettre un esprit d'épée aussi puissant. S'il avait possédé un sort d'une telle force il y a trois mois, j'aurais perdu sans aucun doute! »
 
-Le corps de Mo Yang, de la Secte de l'Épée Da Luo, trembla et il cracha une bouchée de sang. Le fait que cette épée trésorée soit ainsi saisie par un tiers avait endommagé son âme.
+Le corps de Mo Yang, de la Secte Da Luo Jian, trembla et il cracha une bouchée de sang. Le fait que cette épée trésorée soit ainsi saisie par un tiers avait endommagé son âme.
 
 Il n'aurait jamais imaginé que Wang Lin serait aussi fort; autrement, il ne serait jamais venu ici seul. Il serra les dents, pointa sa main droite vers son front et prit une profonde inspiration, le regard déterminé. Son ultime atout était un filament d'énergie d'épée que son maître lui avait offert!
 
-Il y avait au total douze rayons de cette énergie, un pour chacun des Douze Épées. C'était un trésor ultime pour sauver sa vie; il ne pouvait donc pas l'utiliser avec légèreté, sous peine de rendre ses quatre cents et quelques années restantes dans cette Terre des Esprits Démons extrêmement pénibles!
+Il y avait au total douze rayons de cette énergie, un pour chacun des Douze Épées. C'était un trésor ultime pour sauver sa vie; il ne pouvait donc pas l'utiliser avec légèreté, sous peine de rendre ses quatre cents et quelques années restantes dans cette Terre Yao Ling extrêmement pénibles!
 
 Mais s'il ne l'utilisait pas maintenant, il risquait de ne jamais repartir!
 

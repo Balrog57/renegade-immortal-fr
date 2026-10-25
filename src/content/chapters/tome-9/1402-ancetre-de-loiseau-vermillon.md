@@ -28,13 +28,13 @@ Le ciel changea de couleur et les nuages se dispersèrent. L'essence de la foudr
 
 C'était la deuxième essence de Wang Lin!
 
-« Quel prodige. Non seulement il possède l'essence de feu issue de ses multiples éveils de l'Oiseau Vermillon, mais il possède aussi cette essence de foudre! Je l'avais remarqué auparavant, mais en la voyant ainsi, je ne peux m'empêcher d'être surpris! Cette essence de foudre est complète, elle aussi! Elle est à un stade où elle peut défier la Porte du Vide! Comment a-t-il pu la cultiver? Aurait-il vraiment dévoré un ancien dragon de la foudre? » Le vieil homme prit une profonde inspiration.
+« Quel prodige. Non seulement il possède l'essence de feu issue de ses multiples éveils de l'Oiseau Vermillon, mais il possède aussi cette essence de foudre! Je l'avais remarqué auparavant, mais en la voyant ainsi, je ne peux m'empêcher d'être surpris! Cette essence de foudre est complète, elle aussi! Elle est à un stade où elle peut défier la Porte Kong! Comment a-t-il pu la cultiver? Aurait-il vraiment dévoré un ancien dragon de la foudre? » Le vieil homme prit une profonde inspiration.
 
 Cependant, à cet instant précis, une autre lueur jaillit du sommet du crâne de Wang Lin. Les yeux du vieil homme s'écarquillèrent, révélant une pointe d'excitation.
 
 « C'est ça, c'est ce que j'ai vu auparavant. Le corps de ce petit gars... »
 
-Une autre lueur apparut et une lumière noire et blanche jaillit du sommet du crâne de Wang Lin. Le monde trembla et une longue rivière illusoire apparut dans le ciel! Cette rivière était la Rivière des Enfers, formée par le cycle de la vie, de la mort et de la réincarnation de Wang Lin! La rivière balaya le ciel et sa tête rejoignit sa queue. L'intérieur était embrumé et une aura de vie et de mort en jaillissait.
+Une autre lueur apparut et une lumière noire et blanche jaillit du sommet du crâne de Wang Lin. Le monde trembla et une longue rivière illusoire apparut dans le ciel! Cette rivière était la Rivière Huang Quan, formée par le cycle de la vie, de la mort et de la réincarnation de Wang Lin! La rivière balaya le ciel et sa tête rejoignit sa queue. L'intérieur était embrumé et une aura de vie et de mort en jaillissait.
 
 C'était la troisième essence de Wang Lin, née de son domaine de la vie et de la mort!
 

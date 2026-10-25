@@ -46,7 +46,7 @@ Tenant les deux jades, l'expression de Wang Lin devint sombre. Il scruta l'horiz
 
 « Yao... En tête des quatre grandes familles. Pour quelle raison me traquent-ils? » Wang Lin réfléchissait silencieusement.
 
-Il nourrissait de nombreux griefs contre les quatre grandes familles, particulièrement la famille Yao. Non seulement il y avait eu l'affaire de Xue Zu, mais aussi l'incident avec le jeune maître de la famille Yao, sans oublier l'affaire du Pavillon des Collections.
+Il nourrissait de nombreux griefs contre les quatre grandes familles, particulièrement la famille Yao. Non seulement il y avait eu l'affaire de Xue Zu, mais aussi l'incident avec le jeune maître de la famille Yao, sans oublier l'affaire du Pavillon Cang Jue.
 
 « Ce ne devrait pas être Xue Zu... Il connaît mon vrai nom; si cela venait de lui, le nom sur l'Ordre Céleste ne serait pas "Xu Mu", mais "Wang Lin". »
 
@@ -54,7 +54,7 @@ Il nourrissait de nombreux griefs contre les quatre grandes familles, particuli�
 
 « De même, le jeune maître de la famille Yao qui voulait tuer Li Yuan est également mort de ma main. Avec la puissance de la famille Yao, ils doivent posséder des sorts leur permettant de connaître le décès de leurs membres. »
 
-« Il est peu probable que ce soit dû au Pavillon des Collections; l'effondrement du Royaume Céleste du Tonnerre rend cela fort improbable. » Tandis qu'il méditait, son cœur était empreint d'une intention meurtrière.
+« Il est peu probable que ce soit dû au Pavillon Cang Jue; l'effondrement du Royaume Céleste du Tonnerre rend cela fort improbable. » Tandis qu'il méditait, son cœur était empreint d'une intention meurtrière.
 
 « L'Ordre Céleste... Cela me rappelle l'Ordre de Cent Jours des Dix Mille Démons, à l'époque, dans la mer de culture démoniaque de la planète Suzaku! » Les yeux de Wang Lin s'illuminèrent et il s'élança.
 

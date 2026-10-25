@@ -28,7 +28,7 @@ Cela surprit grandement Wang Lin. Il regarda la fille, et il en fut de même pou
 
 « Les objets de fortune sont extrêmement imprévisibles... » songea Wang Lin. Cette herbe violette était extraordinaire!
 
-« Mais si Liu Jinbiao continue ainsi, il sera traqué dès qu'il sera découvert... » Wang Lin secoua secrètement la tête. Il existait de nombreuses sectes sur le Continent Astral Immortel, et les cultivateurs de troisième étape n'y manquaient pas. Quant à savoir si Liu Jinbiao serait démasqué avant de pouvoir quitter le Continent du Grand Sage, cela dépendrait de sa chance.
+« Mais si Liu Jinbiao continue ainsi, il sera traqué dès qu'il sera découvert... » Wang Lin secoua secrètement la tête. Il existait de nombreuses sectes sur le Continent Astral Immortel, et les cultivateurs de troisième étape n'y manquaient pas. Quant à savoir si Liu Jinbiao serait démasqué avant de pouvoir quitter le Continent Da Sheng, cela dépendrait de sa chance.
 
 « Il est très prudent et n'a pas cherché à exploiter tous les enfants par avidité. S'il l'avait fait, le risque d'être exposé aurait augmenté avec le nombre d'enfants. » Wang Lin observa Liu Jinbiao, qui affichait un air fier, et esquissa un sourire amer.
 
@@ -38,7 +38,7 @@ Il se leva et, changé en vent noir, s'envola hors de la grotte avec les deux en
 
 Peu après, une montagne drapée de nuages apparut devant Liu Jinbiao. Le relief était extrêmement escarpé et des rugissements de bêtes s'en échappaient par intermittence.
 
-Liu Jinbiao contempla la montagne et pensa: « Cela fait un moment que je suis sur ce Continent du Grand Sage et j'ai visité de nombreuses sectes. J'avais prévu de partir. Après ce dernier coup, même si personne ne découvre mon secret, je devrai changer d'apparence, quitter le Continent du Grand Sage et m'installer ailleurs. »
+Liu Jinbiao contempla la montagne et pensa: « Cela fait un moment que je suis sur ce Continent Da Sheng et j'ai visité de nombreuses sectes. J'avais prévu de partir. Après ce dernier coup, même si personne ne découvre mon secret, je devrai changer d'apparence, quitter le Continent Da Sheng et m'installer ailleurs. »
 
 « La grande quantité de pilules et de trésors magiques que j'ai obtenus devrait me permettre d'atteindre le stade de l'Âme Naissante. Ensuite, j'irai sur un autre continent et rejoindrai une petite secte. Je resterai disciple pendant des dizaines, voire des centaines d'années, avant de repartir faire mes affaires. » Liu Jinbiao prit une profonde inspiration et emmena les deux enfants vers le sommet.
 
@@ -88,7 +88,7 @@ Wang Lin n'apparut qu'une fois qu'ils furent éloignés. Il regarda devant lui e
 
 « Même capturé, il s'obstine à maintenir son mensonge. Ce Liu Jinbiao... Qui est donc ce maître dont il parle? » Wang Lin afficha une expression étrange et reprit sa course. Ces cultivateurs devaient utiliser une formation de transfert, mais pour Wang Lin, parcourir quelques centaines de milliers de kilomètres ne nécessitait qu'une simple courbure spatiale.
 
-Après plus d'une heure, dans la partie nord du Continent du Grand Sage, se trouvait une vallée. De nombreux palais y étaient érigés et une formation protégeait les lieux. C'était une secte ordinaire du Continent du Grand Sage.
+Après plus d'une heure, dans la partie nord du Continent Da Sheng, se trouvait une vallée. De nombreux palais y étaient érigés et une formation protégeait les lieux. C'était une secte ordinaire du Continent Da Sheng.
 
 Liu Jinbiao fut conduit dans un palais de cette vallée. Bien que son cœur tremblât de peur, son expression demeurait sereine. Un sourire froid et méprisant flottait même au coin de ses lèvres.
 
@@ -96,13 +96,13 @@ Un vieil homme était assis devant lui. C'était ce même vieillard qui avait di
 
 Il fixa Liu Jinbiao d'un regard glacial.
 
-« Tu as du cran pour oser tromper ma Secte du Nuage. » Le vieil homme parla lentement, sa voix empreinte d'une froideur tranchante.
+« Tu as du cran pour oser tromper ma Secte Yun. » Le vieil homme parla lentement, sa voix empreinte d'une froideur tranchante.
 
-« Et alors si je vous ai trompés? Une insignifiante Secte du Nuage du Continent du Grand Sage ose m'arrêter? Vous aussi, vous avez du cran! » Le regard de Liu Jinbiao ne vacilla pas face au vieillard.
+« Et alors si je vous ai trompés? Une insignifiante Secte Yun du Continent Da Sheng ose m'arrêter? Vous aussi, vous avez du cran! » Le regard de Liu Jinbiao ne vacilla pas face au vieillard.
 
 Le vieil homme fronça les sourcils.
 
-« Si je suis le moindrement blessé, mon maître viendra immédiatement. Oubliez votre minuscule Secte du Nuage, même la Secte Dong Lin du Continent du Grand Sage devrait saluer mon maître avec respect. » Liu Jinbiao ricana en parlant. Ses paroles transpirèrent une assurance telle que son expression renforçait sa crédibilité.
+« Si je suis le moindrement blessé, mon maître viendra immédiatement. Oubliez votre minuscule Secte Yun, même la Secte Dong Lin du Continent Da Sheng devrait saluer mon maître avec respect. » Liu Jinbiao ricana en parlant. Ses paroles transpirèrent une assurance telle que son expression renforçait sa crédibilité.
 
 En entendant cela, le vieil homme éclata soudain de rire, mais dans ce rire, la froideur devint plus intense encore.
 

@@ -10,11 +10,11 @@ Xue Zu Écarlate était un homme prudent; il avait placé des sceaux de contrôl
 
 Saisissant cette opportunité, il s'enfuit, tremblant de tous ses membres. Son esprit était vide; sa seule pensée était de s'échapper!
 
-Son cuir chevelu était engourdi et son cœur était rongé par la peur. Il avait toujours porté une épine dans son cœur, une douleur née lorsqu'il avait poursuivi une cultivatrice près de la frontière entre la Mer des Démons et le pays de Huo Fen. Il avait alors rencontré un junior qui avait sauvé cette femme avant de s'enfuir dans la Mer des Démons.
+Son cuir chevelu était engourdi et son cœur était rongé par la peur. Il avait toujours porté une épine dans son cœur, une douleur née lorsqu'il avait poursuivi une cultivatrice près de la frontière entre la Mer Xiu Mo et le pays de Huo Fen. Il avait alors rencontré un junior qui avait sauvé cette femme avant de s'enfuir dans la Mer Xiu Mo.
 
-À l'origine, il ne s'en serait aucunement soucié, mais au fil du temps, à mesure que le nom de « Ceng Niu » gagnait en renommée, il en eut le frisson. Il avait reconnu Ceng Niu comme étant ce junior qui avait sauvé la cultivatrice et s'était enfui dans la Mer des Démons!
+À l'origine, il ne s'en serait aucunement soucié, mais au fil du temps, à mesure que le nom de « Ceng Niu » gagnait en renommée, il en eut le frisson. Il avait reconnu Ceng Niu comme étant ce junior qui avait sauvé la cultivatrice et s'était enfui dans la Mer Xiu Mo!
 
-Ce qui le glaça davantage fut la série d'événements qui suivirent. Ce Ceng Niu avait brillé lors de la guerre entre le Clan des Immortels Délaissés et le pays de Suzaku. Par la suite, il apprit que la position actuelle de Suzaku avait été offerte à Zhou Wutai par Ceng Niu, qui n'était autre que Wang Lin. Tout cela l'avait rendu extrêmement méfiant, et ce n'est qu'après le départ de Wang Lin de la planète Suzaku qu'il s'était enfin détendu.
+Ce qui le glaça davantage fut la série d'événements qui suivirent. Ce Ceng Niu avait brillé lors de la guerre entre le Clan Xian Yi et le pays de Suzaku. Par la suite, il apprit que la position actuelle de Suzaku avait été offerte à Zhou Wutai par Ceng Niu, qui n'était autre que Wang Lin. Tout cela l'avait rendu extrêmement méfiant, et ce n'est qu'après le départ de Wang Lin de la planète Suzaku qu'il s'était enfin détendu.
 
 Cependant, il n'aurait jamais imaginé croiser la route de Wang Lin aujourd'hui!
 
@@ -88,13 +88,13 @@ Dans le pays de Suzaku, devant une secte, un vieux cultivateur ressemblant trait
 
 Wang Lin contempla la terre avant de faire un pas et de disparaître. Lorsqu'il réapparut, il se trouvait dans une vallée. Celle-ci était restée identique à son départ.
 
-« Le karma est réglé, il est temps de partir... Cependant, avant de m'en aller, je dois me rendre dans ce lieu au sein du Clan des Immortels Délaissés. Hélas, je ne trouve toujours pas de moyen d'augmenter l'énergie d'origine céleste des haricots célestes en mon corps... Sinon, je pourrais étudier l'Arsenal Magique. » Le regard de Wang Lin restait calme tandis qu'il contemplait l'horizon.
+« Le karma est réglé, il est temps de partir... Cependant, avant de m'en aller, je dois me rendre dans ce lieu au sein du Clan Xian Yi. Hélas, je ne trouve toujours pas de moyen d'augmenter l'énergie d'origine céleste des haricots célestes en mon corps... Sinon, je pourrais étudier l'Arsenal Magique. » Le regard de Wang Lin restait calme tandis qu'il contemplait l'horizon.
 
 Dans le Système Stellaire de l'Alliance, il existait un système isolé où s'élevaient d'innombrables édifices noirs. Ces bâtiments, de styles variés, ressemblaient à de gigantesques épées plantées dans le vide.
 
 Au centre se dressait une tour, haute de dizaines de milliers de pieds. Des chaînes noires parcouraient toute la structure, la reliant aux bâtiments environnants.
 
-L'Alliance des Cultivateurs était divisée en deux temples, quatre saints et huit domaines. Il s'agissait du domaine de la Boucherie!
+L'Alliance Xiu Zhen était divisée en deux temples, quatre saints et huit domaines. Il s'agissait du domaine de la Boucherie!
 
 Une silhouette fantomatique surgit du vide. Elle se déplaça avec la rapidité de l'éclair pour atterrir au-dessus d'un bâtiment. La figure s'agenouilla, révélant qu'il s'agissait d'un vieil homme. Il s'inclina vers la tour centrale et déclara: « Des traces du nouveau Céleste du Tonnerre de Luotian, Xu Mu, ont été découvertes! »
 

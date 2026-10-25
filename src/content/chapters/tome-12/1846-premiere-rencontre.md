@@ -16,15 +16,15 @@ Utilisant ses yeux, imprégnés de son essence de restriction, il scruta le ciel
 
 Le ciel sombre était recouvert de fines couches de brouillard. Ce brouillard était invisible à l'œil nu; même le sens divin ne pouvait le percevoir clairement. Seule l'utilisation de son essence de restriction lui permettait d'en distinguer la réalité.
 
-« Une couche... Trois couches... Sept couches... » Le brouillard céleste était ténu, mais il composait un total de sept couches. Ces strates enveloppaient toute la Mer des Pilules, tel un bol renversé recouvrant l'immensité marine.
+« Une couche... Trois couches... Sept couches... » Le brouillard céleste était ténu, mais il composait un total de sept couches. Ces strates enveloppaient toute la Mer Dan, tel un bol renversé recouvrant l'immensité marine.
 
 Au-dessus de la septième couche se trouvait une boussole. C'était une illusion qui tournait lentement, dégageant une pression qui fusionnait avec les sept couches de brouillard.
 
-« Cette boussole est une illusion, elle n'est pas réelle... » Wang Lin leva les yeux et aperçut faiblement qu'un fil d'aura reliait la boussole située au-dessus des sept couches à l'autre extrémité de la Mer des Pilules.
+« Cette boussole est une illusion, elle n'est pas réelle... » Wang Lin leva les yeux et aperçut faiblement qu'un fil d'aura reliait la boussole située au-dessus des sept couches à l'autre extrémité de la Mer Dan.
 
-« Le centre de cette formation doit s'être solidifié et se trouve là-bas... » Wang Lin réfléchit en contemplant la Mer des Pilules, une idée germant dans son esprit.
+« Le centre de cette formation doit s'être solidifié et se trouve là-bas... » Wang Lin réfléchit en contemplant la Mer Dan, une idée germant dans son esprit.
 
-S'il voulait que son essence de restriction forme un corps véritable d'essence, il lui faudrait absorber une quantité massive de restrictions. Il n'avait jamais vu la restriction qui recouvrait la Mer des Pilules, et l'envie de l'absorber le tentait.
+S'il voulait que son essence de restriction forme un corps véritable d'essence, il lui faudrait absorber une quantité massive de restrictions. Il n'avait jamais vu la restriction qui recouvrait la Mer Dan, et l'envie de l'absorber le tentait.
 
 Cependant, il réprima rapidement cette pulsion. D'un revers de la main droite, il fit apparaître deux yeux géants derrière lui. Ces yeux, parcourus de veines sanguines, semblaient dissiper un peu l'obscurité.
 
@@ -52,7 +52,7 @@ Wang Lin avait trouvé un moyen de percer les trois premières couches!
 
 Le Tigre Blanc et ses compagnons ne pouvaient rien voir de tout cela; ils étaient très graves et regardaient Wang Lin avec anxiété. Après tout, beaucoup de temps s'était écoulé.
 
-Même à cet instant, aucun cultivateur du Continent du Démon Vert n'était apparu. C'était étrange, comme le calme précédant la tempête, ce qui leur procurait un sentiment oppressant.
+Même à cet instant, aucun cultivateur du Continent Lu Mo n'était apparu. C'était étrange, comme le calme précédant la tempête, ce qui leur procurait un sentiment oppressant.
 
 Wang Lin demeurait calme, l'esprit concentré sur les sept couches de restrictions. Plus il progressait, plus il trouvait la restriction imposante. Après les trois premières couches, ces zones de brouillard ténu devenaient difficiles à déceler.
 
@@ -62,7 +62,7 @@ Après encore sept minutes et demie, et après avoir percé les trois premières
 
 Les fines lignes restantes formèrent également un cercle dans la cinquième couche. Désormais, un passage circulaire à travers le brouillard était ouvert dans les cinq premières couches.
 
-Mais à cet instant précis, la Mer des Pilules gronda. Le son fut assourdissant, et la mer sembla se fendre en deux par une ligne progressant rapidement au milieu.
+Mais à cet instant précis, la Mer Dan gronda. Le son fut assourdissant, et la mer sembla se fendre en deux par une ligne progressant rapidement au milieu.
 
 Ce fut d'une soudaineté telle que l'expression du Tigre Blanc et de ses compagnons changea radicalement. À cet instant, les pupilles de Wang Lin se rétractèrent et il n'hésita pas à se lever. Les yeux géants derrière lui disparurent et il agita ses manches. Il emporta le Tigre Blanc et ses compagnons pour charger vers le ciel.
 
@@ -76,7 +76,7 @@ Cette ombre d'épée mesurait des centaines de milliers de pieds de long. Elle j
 
 « C'est le Dao de l'Épée! Ne pas cultiver le domaine du monde, mais uniquement l'épée. Fusionner sa volonté dans l'épée, fusionner son corps dans l'épée. Éliminer toutes les émotions jusqu'à ce que l'on se considère soi-même comme une épée! »
 
-« Cela... Cela... Le Continent du Démon Vert possède réellement un cultivateur aussi extrême! » haleta la Tortue Noire, très instruite.
+« Cela... Cela... Le Continent Lu Mo possède réellement un cultivateur aussi extrême! » haleta la Tortue Noire, très instruite.
 
 L'ombre d'épée était extrêmement rapide et se rapprochait instantanément, mais Wang Lin s'était déjà envolé. Il emporta le Tigre Blanc et ses compagnons pour charger à travers le petit trou de la première couche. Il ne marqua aucune pause en traversant les deuxième, troisième, quatrième et cinquième couches!
 
@@ -86,7 +86,7 @@ Un seul coup d'épée pour briser quatre couches de restrictions. Même Wang Lin
 
 Wang Lin prit une profonde inspiration. Cette volonté n'était que l'onde de choc, mais il sentait clairement à quel point elle était tyrannique.
 
-« Peu importe le niveau de culture de cette personne, elle doit être une figure célèbre du Continent du Démon Vert! » Les yeux de Wang Lin brillèrent alors qu'il emmenait le Tigre Blanc et ses compagnons, encore sous le choc du coup d'épée. Ses yeux étaient parcourus de veines sanguines tandis qu'il chargeait vers la sixième couche.
+« Peu importe le niveau de culture de cette personne, elle doit être une figure célèbre du Continent Lu Mo! » Les yeux de Wang Lin brillèrent alors qu'il emmenait le Tigre Blanc et ses compagnons, encore sous le choc du coup d'épée. Ses yeux étaient parcourus de veines sanguines tandis qu'il chargeait vers la sixième couche.
 
 Le brouillard de la sixième couche était très dense et ne présentait aucune faille. Cependant, alors que Wang Lin avançait, ses mains formèrent des sceaux et des restrictions composées de lignes de sang apparurent devant lui pour former un maillage. Rapidement, celui-ci entra en collision avec le brouillard de la sixième couche.
 

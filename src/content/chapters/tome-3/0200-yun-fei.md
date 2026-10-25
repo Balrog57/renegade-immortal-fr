@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 200 - Yun Fei
 slug: yun-fei
 ---
-Dans la Mer des Démons, parmi les Étoiles Brisées du Chaos.
+Dans la Mer Xiu Mo, parmi les Étoiles Brisées du Chaos.
 
 C'était un vaste anneau formé d'innombrables roches brisées. Une force mystérieuse régnait en ce lieu. Que l'on veuille entrer ou sortir, il fallait affronter plusieurs copies possédant le même niveau de culture que soi. Seule la victoire permettait de franchir cet anneau mystérieux. Cet endroit était également extrêmement dangereux, ce qui explique pourquoi peu de gens s'y aventuraient.
 
@@ -26,7 +26,7 @@ Elle savait au fond d'elle que l'homme derrière elle ne déployait pas toute sa
 
 Qian Kun la poursuivait avec désinvolture. Il n'avait qu'une idée en tête: l'objet qu'elle possédait. Si elle n'avait pas soudainement utilisé cette technique d'évasion à plusieurs reprises, il l'aurait déjà capturée; mais désormais, dans sa panique, elle se précipitait elle-même vers les Étoiles Brisées du Chaos. C'était comme si le ciel lui-même l'aidait. En y pensant, son sourire s'élargit et devint plus glacial encore.
 
-La voix sombre de Qian Kun résonna lentement: « Yun Fei, devant toi se trouvent les Étoiles Brisées du Chaos. Dans la Mer des Démons, cet endroit est extrêmement dangereux. Jusqu'à présent, personne n'a jamais réussi à le traverser par simple chance. Veux-tu tenter l'expérience? »
+La voix sombre de Qian Kun résonna lentement: « Yun Fei, devant toi se trouvent les Étoiles Brisées du Chaos. Dans la Mer Xiu Mo, cet endroit est extrêmement dangereux. Jusqu'à présent, personne n'a jamais réussi à le traverser par simple chance. Veux-tu tenter l'expérience? »
 
 Le visage de la femme devint plus pâle et l'amertume dans son cœur s'intensifia. Lorsqu'elle fut à 16 mètres des étoiles brisées, elle s'arrêta brusquement et se retourna. Elle fixa Qian Kun d'un regard désespéré. Serrant les dents, elle dit: « Aîné, cette junior est une malheureuse; elle a eu la chance de s'échapper de là-bas. Pourquoi devez-vous absolument me tuer? »
 
@@ -90,7 +90,7 @@ Qian Kun s'interrompit soudainement. Yun Fei renonça à arrêter son cœur. Ell
 
 Elle vit qu'au sein de l'anneau des étoiles brisées, une fissure était apparue mystérieusement. La faille s'élargissait rapidement. En un clin d'œil, elle mesurait déjà plus de cent soixante mètres de large. La fissure formait un arc, semblable à la gueule d'une bête, provoquant un frisson glacial chez quiconque la contemplait.
 
-Dans la Mer des Démons, les mers intérieure et extérieure étaient séparées par une brume rouge et des fissures qui apparaissaient par intermittence; les fissures spatiales y avaient donc une signification immense et on n'en parlait qu'avec effroi. Mais même entre les deux mers, il ne s'agissait que de petites fissures.
+Dans la Mer Xiu Mo, les mers intérieure et extérieure étaient séparées par une brume rouge et des fissures qui apparaissaient par intermittence; les fissures spatiales y avaient donc une signification immense et on n'en parlait qu'avec effroi. Mais même entre les deux mers, il ne s'agissait que de petites fissures.
 
 Or celle qui se montrait maintenant devant Qian Kun et Yun Fei était d'une ampleur sans précédent. Dès son apparition, Qian Kun ressentit un picotement à la tête.
 

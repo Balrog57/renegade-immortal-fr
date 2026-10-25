@@ -70,7 +70,7 @@ La voix lugubre d'une vieille femme en vert, le visage couvert de pustules, rés
 
 Ces paroles étaient chargées d'une intention meurtrière évidente. La majorité des cultivateurs étaient mécontents. Outre ceux qui s'exprimaient, tous les autres dégageaient une volonté de tuer; ils étaient prêts au massacre.
 
-En voyant cela, la jeune fille du Clan de l'Extermination des Sceaux laissa poindre un éclair de joie dans ses yeux. Mais en repensant à la terreur que représentait Wang Lin, cette joie s'évanouit aussitôt.
+En voyant cela, la jeune fille du Clan Feng Mie laissa poindre un éclair de joie dans ses yeux. Mais en repensant à la terreur que représentait Wang Lin, cette joie s'évanouit aussitôt.
 
 Wang Lin resta calme face aux provocations, mais une froideur glaciale traversa son regard. Une lueur de Feu Éthéré vacilla dans ses pupilles. Il laissa échapper un reniflement méprisant et, loin de reculer, il accéléra encore davantage. Utilisant sa puissante culture, il fendit la foule telle une météorite, dépassant tous les cultivateurs devant lui pour charger les bêtes meurtrières.
 

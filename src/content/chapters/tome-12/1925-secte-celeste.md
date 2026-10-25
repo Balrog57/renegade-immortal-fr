@@ -8,7 +8,7 @@ slug: secte-celeste
 ---
 « Cette affaire semble injuste envers Qing Shuang et n'est pas équitable pour Qing Lin... Je n'aurais pas dû faire cela... Mais l'obsession de milliers d'années de Zhou Yi... Peu importe, je ne peux pas tout rendre parfait. » Wang Lin soupira.
 
-Tandis que le dragon de mer sous lui rugissait, ils quittèrent la Secte de la Terre. Avant d'arriver ici, Wang Lin ne s'attendait pas à les rencontrer, elle et lui.
+Tandis que le dragon de mer sous lui rugissait, ils quittèrent la Secte Di. Avant d'arriver ici, Wang Lin ne s'attendait pas à les rencontrer, elle et lui.
 
 « Situ, Qing Shui, Xu Liguo, Liu Jinbiao... Tant d'amis du passé. Je me demande s'ils sont quelque part... sous le même ciel. » Assis sur la tête du dragon de mer, Wang Lin leva les yeux vers l'azur avec un regard mélancolique.
 
@@ -16,7 +16,7 @@ Tandis que le dragon de mer sous lui rugissait, ils quittèrent la Secte de la T
 
 « Et aussi... Li Qianmei. » Après avoir rencontré le premier vieil ami réincarné, Wang Lin sentit des ondes de nostalgie résonner dans son cœur. Leurs visages si vivants défilèrent dans son esprit.
 
-Sous les ordres de Wang Lin, le dragon de mer fonça vers la seconde puissance du continent: la Secte Terre-Meng, une secte d'égale envergure à la Secte de la Terre.
+Sous les ordres de Wang Lin, le dragon de mer fonça vers la seconde puissance du continent: la Secte Terre-Meng, une secte d'égale envergure à la Secte Di.
 
 Grâce au niveau de culture d'Exalté Empyréen de Wang Lin et à la puissance du dragon de mer d'Exalté Doré, le voyage se déroula sans encombre. La Secte Terre-Meng remit respectueusement la carte de jade, craignant de déplaire à Wang Lin.
 

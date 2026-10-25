@@ -56,11 +56,11 @@ Le haut du cadavre était recouvert de plantes pourpres et verdâtres. À chaque
 
 Ce qui stupéfia Wang Lin, c'est qu'une hache ténue et vacillante scintillait sur le front de ce géant.
 
-Il en était désormais certain: cet être était l'ancêtre fondateur du Clan des Démons Géants, celui qui avait conduit son clan jusqu'ici.
+Il en était désormais certain: cet être était l'ancêtre fondateur du Clan Ju Mo, celui qui avait conduit son clan jusqu'ici.
 
-C'était lui qui, armé de sa hache monumentale, s'était jeté dans l'armée du Clan des Immortels Délaissés pour terrasser trois chamans à neuf feuilles.
+C'était lui qui, armé de sa hache monumentale, s'était jeté dans l'armée du Clan Xian Yi pour terrasser trois chamans à neuf feuilles.
 
-Wang Lin comprenait désormais parfaitement la hiérarchie du Clan des Immortels Délaissés. En faisant abstraction de ceux qui n'atteignaient pas le stade des sept feuilles, les chamans à sept et huit feuilles étaient comparables à des cultivateurs au stade de la Transformation de l'Âme, tandis que les chamans à neuf feuilles s'apparentaient à des cultivateurs au début du stade Ascendant.
+Wang Lin comprenait désormais parfaitement la hiérarchie du Clan Xian Yi. En faisant abstraction de ceux qui n'atteignaient pas le stade des sept feuilles, les chamans à sept et huit feuilles étaient comparables à des cultivateurs au stade de la Transformation de l'Âme, tandis que les chamans à neuf feuilles s'apparentaient à des cultivateurs au début du stade Ascendant.
 
 Parvenir à tuer trois cultivateurs de niveau Ascendant n'était pas une mince affaire, d'autant plus qu'il l'avait fait en chargeant au cœur même du camp ennemi. Une telle férocité et une telle force de combat étaient rarissimes.
 
@@ -72,9 +72,9 @@ Quant aux plantes pourpres et verdâtres, leurs racines ressemblaient à des aig
 
 Ce n'était pas la première fois que Wang Lin assistait à une telle scène, mais il en restait tout de même frappé.
 
-Le corps de cet ancêtre du Clan des Démons Géants, bien qu'il ne fût pas aussi robuste que celui d'un ancien dieu, était plusieurs fois plus grand que le corps d'ancien dieu à trois étoiles actuel de Wang Lin; il était comparable à un corps d'ancien dieu de cinq ou six étoiles.
+Le corps de cet ancêtre du Clan Ju Mo, bien qu'il ne fût pas aussi robuste que celui d'un ancien dieu, était plusieurs fois plus grand que le corps d'ancien dieu à trois étoiles actuel de Wang Lin; il était comparable à un corps d'ancien dieu de cinq ou six étoiles.
 
-« Le niveau de culture de l'ancêtre fondateur du Clan des Démons Géants est véritablement prodigieux! » Les yeux de Wang Lin brillèrent d'intérêt.
+« Le niveau de culture de l'ancêtre fondateur du Clan Ju Mo est véritablement prodigieux! » Les yeux de Wang Lin brillèrent d'intérêt.
 
 « Sauvez-moi... sauvez-moi... » Les appels devinrent plus fréquents. Il semblait que l'ancêtre avait remarqué la présence de Wang Lin.
 
@@ -112,7 +112,7 @@ Tenant la fiole d'une main, Wang Lin pressa l'autre sur une plaie du corps du g�
 
 « Sauvez-moi... » Wang Lin se tenait sur le géant. Cet appel à l'aide lui semblait être murmuré directement à son oreille; il était d'une clarté absolue.
 
-Wang Lin continua d'ignorer l'ancêtre fondateur du Clan des Démons Géants; il ne sauverait personne qu'il ne pouvait contrôler, à moins d'en tirer un bénéfice direct. Une fois libre, cet être ne lui apporterait aucun avantage.
+Wang Lin continua d'ignorer l'ancêtre fondateur du Clan Ju Mo; il ne sauverait personne qu'il ne pouvait contrôler, à moins d'en tirer un bénéfice direct. Une fois libre, cet être ne lui apporterait aucun avantage.
 
 Et même si cet homme lui promettait de riches trésors, cela ne suffirait pas à tenter Wang Lin. Hormis le sang qu'il était venu chercher, il ne voulait s'embarrasser d'aucun trouble inutile.
 
@@ -120,4 +120,4 @@ Le sang s'écoulait goutte à goutte, très lentement. Les yeux de Wang Lin bril
 
 Cependant, de nombreuses plantes pourpres et verdâtres recouvraient la poitrine du colosse. Elles étaient partout, ne laissant aucun espace pour s'installer.
 
-« Sauvez-moi... Je vous donnerai le trésor principal du Clan des Démons Géants... »
+« Sauvez-moi... Je vous donnerai le trésor principal du Clan Ju Mo... »

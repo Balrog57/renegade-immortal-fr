@@ -12,7 +12,7 @@ La lueur des étoiles se répandait infiniment dans toutes les directions. Le sy
 
 Cependant, le système stellaire de Luotian était différent. Presque tous savaient qu'il existait un système stellaire sous chacun des Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair.
 
-Cela tenait au fait que l'Alliance de Culture était la seule puissance du système stellaire de l'Alliance et qu'elle avait dissimulé bien des secrets. Wang Lin compris, la grande majorité des cultivateurs pensait que l'Alliance de Culture était l'unique puissance sous les étoiles.
+Cela tenait au fait que l'Alliance Xiu Zhen était la seule puissance du système stellaire de l'Alliance et qu'elle avait dissimulé bien des secrets. Wang Lin compris, la grande majorité des cultivateurs pensait que l'Alliance Xiu Zhen était l'unique puissance sous les étoiles.
 
 Le système stellaire de Luotian jouissait de beaucoup plus de liberté, et certains secrets n'y étaient pas si strictement gardés.
 

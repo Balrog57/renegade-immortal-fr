@@ -48,7 +48,7 @@ Wang Lin était stupéfait. Grâce à la Perle Défiant le Ciel, il pouvait tout
 
 Ce qui l'étonna davantage fut de comprendre que cet homme semblait être le maître du Seigneur Démon des Six Désirs.
 
-Wang Lin ignorait que le véritable instigateur de l'entrée dans la Terre de l'Ancien Dieu, il y a mille ans, était ce Magicien Démon Céleste, mais après analyse, il commença à entrevoir ce qui s'était réellement passé.
+Wang Lin ignorait que le véritable instigateur de l'entrée dans la Terre Gu Shen, il y a mille ans, était ce Magicien Démon Céleste, mais après analyse, il commença à entrevoir ce qui s'était réellement passé.
 
 D'après les paroles de l'homme, Wang Lin comprit que le Seigneur Démon des Six Désirs avait consommé le désir du Dieu Ancien. Bien qu'il ignorât la nature exacte de ce désir, il en saisissait les implications après ce qu'il venait de voir.
 
@@ -92,9 +92,9 @@ D'un geste de la main droite du Magicien Démon Céleste, tout le sang s'écoula
 
 « Utilise la culture de cette personne, au stade de la Grande Perfection de la Formation de l'Âme, comme route... utilise les six désirs du Dieu Ancien Tu Si comme médium... ouvre le lieu de la conscience divine du Dieu Ancien... » Les yeux du Magicien Démon Céleste brillaient d'une lueur de folie. Il avait attendu 4 000 ans pour ce moment.
 
-En réalité, lorsqu'il était entré dans la Terre de l'Ancien Dieu il y a mille ans, ce n'était pas sa première fois, mais la troisième. Il y a 4 000 ans, lors de sa première incursion grâce à un trésor magique, il avait réussi à franchir le troisième essai pour atteindre le quatrième. C’est là qu’il avait obtenu l'os de la main. Il avait alors réalisé que ce lieu contenait des fluctuations de désirs inimaginables. Là où d'autres ne ressentiraient qu'un malaise intérieur, lui était extrêmement sensible, car il utilisait déjà divers désirs comme vecteurs d'attaque.
+En réalité, lorsqu'il était entré dans la Terre Gu Shen il y a mille ans, ce n'était pas sa première fois, mais la troisième. Il y a 4 000 ans, lors de sa première incursion grâce à un trésor magique, il avait réussi à franchir le troisième essai pour atteindre le quatrième. C’est là qu’il avait obtenu l'os de la main. Il avait alors réalisé que ce lieu contenait des fluctuations de désirs inimaginables. Là où d'autres ne ressentiraient qu'un malaise intérieur, lui était extrêmement sensible, car il utilisait déjà divers désirs comme vecteurs d'attaque.
 
-Le Magicien Démon Céleste pouvait être considéré comme un génie sans égal. Lorsqu'il avait détecté ces étranges désirs, il n'avait pas cherché à les absorber immédiatement, préférant utiliser l'os de la main pour quitter la Terre de l'Ancien Dieu.
+Le Magicien Démon Céleste pouvait être considéré comme un génie sans égal. Lorsqu'il avait détecté ces étranges désirs, il n'avait pas cherché à les absorber immédiatement, préférant utiliser l'os de la main pour quitter la Terre Gu Shen.
 
 Après sa sortie, il s'était consacré à l'étude des désirs jusqu'à créer la Méthode de Culture Démoniaque Céleste Mystérieuse. Lors de sa deuxième visite, plein d'assurance, il atteignit également le quatrième essai, mais constata que les désirs du Dieu Ancien étaient devenus encore plus puissants. Il commença aussi à croiser ces cultivateurs démoniaques.
 
@@ -116,9 +116,9 @@ Soudain, l'os de la main doré qui flottait dans les airs explosa avec fracas. I
 
 Simultanément, un dragon noir surgit de la brume de sang du Seigneur Démon des Six Désirs. Ce dragon arborait un visage extrêmement féroce. Il se tourna vers l'énergie spirituelle issue de l'Âme Naissante du Seigneur Démon des Six Désirs et en aspira exactement un sixième. Alors que son corps commençait à luire, il percuta violemment le cercle doré.
 
-À cet instant, il sembla que toute la Terre de l'Ancien Dieu trembla. Si les restrictions posées par le Magicien Démon Céleste n'avaient pas existé, tous les autres cultivateurs démoniaques l'auraient immédiatement remarqué.
+À cet instant, il sembla que toute la Terre Gu Shen trembla. Si les restrictions posées par le Magicien Démon Céleste n'avaient pas existé, tous les autres cultivateurs démoniaques l'auraient immédiatement remarqué.
 
-Une détonation retentit. Le dragon noir sembla heurter une barrière invisible, et une multitude de fissures serrées apparurent à l'endroit de l'impact. Une fois le choc passé, son corps entier se changea en une fumée blanche et se dissipa dans la Terre de l'Ancien Dieu.
+Une détonation retentit. Le dragon noir sembla heurter une barrière invisible, et une multitude de fissures serrées apparurent à l'endroit de l'impact. Une fois le choc passé, son corps entier se changea en une fumée blanche et se dissipa dans la Terre Gu Shen.
 
 Le Dieu Ancien avait perdu pour toujours le Désir de Peur!
 

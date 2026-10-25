@@ -16,7 +16,7 @@ Peu après, chaque cultivateur de Xue Yu choisit l'une des quatre sectes et enga
 
 Des vagues de froid émanaient de la neige et de la glace qui jonchaient le sol. Si les cultivateurs de l'Alliance des Quatre Sectes ressentaient un frisson en touchant la neige, pour les cultivateurs de Xue Yu, elle constituait l'arme ultime. Cette énergie glaciale permettait même aux membres de Xue Yu de récupérer, dans une certaine mesure, leur énergie spirituelle.
 
-Le ciel au-dessus de l'Alliance des Quatre Sectes était parsemé d'éclats provenant de trésors magiques. Les sites de la Secte de l'Encre, de la Secte Bai Yun, de la Secte du Bois Vert et de la Secte de l'Âme Noire devinrent les théâtres des combats finaux.
+Le ciel au-dessus de l'Alliance des Quatre Sectes était parsemé d'éclats provenant de trésors magiques. Les sites de la Secte Shui Mo, de la Secte Bai Yun, de la Secte Qing Mu et de la Secte de l'Âme Noire devinrent les théâtres des combats finaux.
 
 Certains mortels ayant eu la chance de survivre se terrèrent dans leurs maisons et prièrent en silence. Ils ignoraient tout de ce qui se tramait, et la plupart n'avaient jamais vu autant de cultivateurs de toute leur vie.
 
@@ -58,7 +58,7 @@ Seule la femme vêtue de blanc restait immobile dans les airs, observant les com
 
 C'était l'esprit élémentaire du métal qui combattait le vieil homme au sommet du chaudron de bronze. Ce dernier posa sa main sur le chaudron et des symboles s'animant comme s'ils étaient vivants apparurent dans le ciel. Sous le contrôle du vieil homme, ces symboles entamèrent un duel contre l'esprit élémentaire du métal.
 
-L'esprit élémentaire du bois, quant à lui, luttait contre la gigantesque mare de boue de la Secte du Bois Vert.
+L'esprit élémentaire du bois, quant à lui, luttait contre la gigantesque mare de boue de la Secte Qing Mu.
 
 D'innombrables traits noirs jaillissaient de la boue. Tout cultivateur de Xue Yu touché par l'un d'eux voyait son corps pourrir et mourait instantanément. Même l'esprit élémentaire du bois éprouvait des difficultés.
 

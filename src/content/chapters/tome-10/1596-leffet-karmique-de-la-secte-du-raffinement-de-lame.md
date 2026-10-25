@@ -1,12 +1,12 @@
 ---
 n: 1596
-title: "L'effet karmique de la Secte de l'Affinement de l'Âme"
+title: "L'effet karmique de la Secte Lian Hun"
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: Chapter 1596 - Soul Refining Secte’s Karmic Effect
 slug: leffet-karmique-de-la-secte-du-raffinement-de-lame
 ---
-« Serait-il possible que ma Secte de l'Affinement de l'Âme n'ait plus aucune chance de renaître, aucune chance de perdurer... » L'homme d'âge moyen sembla sombrer dans la folie et se mit à rire amèrement. Cependant, à cet instant précis, son expression changea et il fixa l'horizon.
+« Serait-il possible que ma Secte Lian Hun n'ait plus aucune chance de renaître, aucune chance de perdurer... » L'homme d'âge moyen sembla sombrer dans la folie et se mit à rire amèrement. Cependant, à cet instant précis, son expression changea et il fixa l'horizon.
 
 « Hein! » Ses yeux se plissèrent et ses mains formèrent un sceau. Il commença à diviner avec frénésie.
 
@@ -124,4 +124,4 @@ Un homme d'âge moyen vêtu d'une robe noire émergea du vent noir. Une aura gla
 
 « Ce vieil homme ne te fera aucun mal, tu as seulement une question à répondre. »
 
-Il était le frère aîné de Dun Tian, de la Secte de l'Affinement de l'Âme! Presque tous les érudits de cette ville avaient été trouvés par lui, et il leur avait posé la même question. Puis, déçu, il effaçait leurs souvenirs avant de partir en quête de la personne suivante.
+Il était le frère aîné de Dun Tian, de la Secte Lian Hun! Presque tous les érudits de cette ville avaient été trouvés par lui, et il leur avait posé la même question. Puis, déçu, il effaçait leurs souvenirs avant de partir en quête de la personne suivante.

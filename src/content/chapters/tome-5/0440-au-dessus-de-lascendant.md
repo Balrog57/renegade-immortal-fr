@@ -24,13 +24,13 @@ Situ Nan prit une profonde inspiration, laissant transparaître une pointe de re
 
 Les yeux de Wang Lin s'illuminèrent. « Les trois royaumes du Briseur du Nirvana? »
 
-« C'est exact. La première génération de Suzaku, Ye Wuyou, m'a parlé des trois royaumes du Briseur du Nirvana après avoir reçu les récompenses de l'Alliance de la Culture. S'il ne me l'avait pas dit, je n'en aurais pas eu connaissance avant de devenir le prochain Suzaku. » Situ Nan soupira en se remémorant le passé.
+« C'est exact. La première génération de Suzaku, Ye Wuyou, m'a parlé des trois royaumes du Briseur du Nirvana après avoir reçu les récompenses de l'Alliance Xiu Zhen. S'il ne me l'avait pas dit, je n'en aurais pas eu connaissance avant de devenir le prochain Suzaku. » Situ Nan soupira en se remémorant le passé.
 
 « Les trois royaumes du Briseur du Nirvana: le premier est le royaume du Scruteur du Nirvana, le deuxième est celui du Purificateur du Nirvana, et le troisième est celui du Briseur du Nirvana. »
 
 Wang Lin prit une profonde inspiration, puis fronça les sourcils et demanda: « Et après les trois royaumes du Briseur du Nirvana? Est-ce là le sommet? »
 
-Situ Nan secoua la tête et répondit: « Comment pourrait-ce être aussi simple? Les trois royaumes du Briseur du Nirvana ne sont considérés que comme la deuxième étape pour les cultivateurs. Pourtant, quelqu'un ayant atteint la plénitude du stade de Briseur du Nirvana peut être considéré comme une puissance majeure au sein de l'Alliance de la Culture. On cherche rarement à s'attirer leurs foudres. La rumeur prétend même qu'aucun des vieux monstres de l'Alliance de la Culture n'a réellement franchi le stade du Briseur du Nirvana. »
+Situ Nan secoua la tête et répondit: « Comment pourrait-ce être aussi simple? Les trois royaumes du Briseur du Nirvana ne sont considérés que comme la deuxième étape pour les cultivateurs. Pourtant, quelqu'un ayant atteint la plénitude du stade de Briseur du Nirvana peut être considéré comme une puissance majeure au sein de l'Alliance Xiu Zhen. On cherche rarement à s'attirer leurs foudres. La rumeur prétend même qu'aucun des vieux monstres de l'Alliance Xiu Zhen n'a réellement franchi le stade du Briseur du Nirvana. »
 
 Wang Lin réfléchit un instant, puis regarda Situ Nan et demanda: « Êtes-vous un Scruteur du Nirvana? »
 
@@ -44,13 +44,13 @@ Les yeux de Wang Lin s'illuminèrent et il demanda: « Quel est le niveau de cul
 
 Une pointe de dédain apparut dans les yeux de Situ Nan, puis il déclara: « Lui? Stade d'Ascendant avancé. Je crains qu'il ne soit même pas qualifié pour atteindre les étapes du Nettoyage Yin-Yang, alors ne parlons même pas de devenir un Scruteur du Nirvana. Cependant, il est considéré comme une sorte de cultivateur d'Ascendant très spéciale. Bien qu'il soit toujours plus faible que les cultivateurs aux étapes du Nettoyage Yin-Yang, un cultivateur d'Ascendant avancé ordinaire ne peut pas le vaincre. »
 
-Les yeux de Wang Lin brillèrent et il s'exclama: « Le titre de Suzaku de l'Alliance de la Culture! »
+Les yeux de Wang Lin brillèrent et il s'exclama: « Le titre de Suzaku de l'Alliance Xiu Zhen! »
 
-Situ Nan laissa paraître une pointe d'appréciation dans son regard et dit lentement: « Oui, c'est un cultivateur d'Ascendant Titulaire. Il peut être considéré comme un haut niveau d'Ascendant car il maîtrise une technique spéciale de l'Alliance de la Culture.
+Situ Nan laissa paraître une pointe d'appréciation dans son regard et dit lentement: « Oui, c'est un cultivateur d'Ascendant Titulaire. Il peut être considéré comme un haut niveau d'Ascendant car il maîtrise une technique spéciale de l'Alliance Xiu Zhen.
 
 Ye Wuyou a obtenu une technique puissante après son retour de l'Alliance, appelée le Sceau de Suzaku. Elle est extrêmement redoutable, et elle aurait été incroyable si elle ne coûtait pas une partie de la longévité à chaque utilisation. À moins qu'un cultivateur d'Ascendant n'ait compris les étapes du Nettoyage Yin-Yang, il lui sera difficile de rivaliser avec l'actuel Suzaku.
 
-Cependant, les techniques offertes par l'Alliance de la Culture sont classées au même titre que les trésors célestes. Le Sceau de Suzaku n'est qu'une technique de qualité inférieure, mais elle augmente considérablement la puissance de celui qui porte le titre.
+Cependant, les techniques offertes par l'Alliance Xiu Zhen sont classées au même titre que les trésors célestes. Le Sceau de Suzaku n'est qu'une technique de qualité inférieure, mais elle augmente considérablement la puissance de celui qui porte le titre.
 
 Malheureusement, le Sceau de Suzaku ne peut être utilisé qu'après avoir hérité du Cœur de la Planète de Culture; sinon, si vous l'appreniez, votre force augmenterait sans aucun doute.
 

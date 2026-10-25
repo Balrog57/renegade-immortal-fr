@@ -54,7 +54,7 @@ Wang Lin accepta la cruche et en prit une gorgée.
 
 « Tout cela appartient au passé désormais, mais tu t'en souviens encore. » Wang Lin sourit amèrement, ne sachant que dire.
 
-« Bien sûr que je m'en souviens. Si je n'avais pas été gravement blessée, je n'aurais pas été sous le contrôle de Qian Feng... En parlant de cela, merci de m'avoir libérée du cycle des réincarnations dans le Tombeau de Suzaku. » Évoquant le passé, Hongdie laissa échapper un soupir.
+« Bien sûr que je m'en souviens. Si je n'avais pas été gravement blessée, je n'aurais pas été sous le contrôle de Qian Feng... En parlant de cela, merci de m'avoir libérée du cycle des réincarnations dans le Tombeau Zhu Que. » Évoquant le passé, Hongdie laissa échapper un soupir.
 
 « Il n'y a plus de haine profonde entre nous, tout est derrière nous. Tu m'as demandé d'aller à Xue Yu pour trouver la rose bleue, et je l'ai trouvée. » Parmi les femmes rencontrées dans ses premiers temps, Hongdie était celle qui lui avait laissé l'impression la plus profonde après Li Muwan et Liu Mei.
 
@@ -96,7 +96,7 @@ Ils s'étaient connus à travers trois questions et une poursuite sans regret qu
 
 « S'il advenait un jour que je ne sois plus là, te souviendras-tu encore qu'une femme nommée Li Qianmei a existé dans ta vie...? »
 
-Wang Lin ne pouvait s'empêcher de penser à elle. Elle avait taché sa statue de sang pendant dix ans alors que sa beauté se flétrissait. Elle était même allée chercher des remèdes pour lui. Puis, dans la faille de la Mer des Nuages, alors qu'elle touchait à sa fin et s'apprêtait à fermer les yeux, il n'y avait aucun regret dans son regard.
+Wang Lin ne pouvait s'empêcher de penser à elle. Elle avait taché sa statue de sang pendant dix ans alors que sa beauté se flétrissait. Elle était même allée chercher des remèdes pour lui. Puis, dans la faille de la Mer Yun, alors qu'elle touchait à sa fin et s'apprêtait à fermer les yeux, il n'y avait aucun regret dans son regard.
 
 Pour elle, Wang Lin était allé dans le Royaume Extérieur chercher le Maître Dao Bleu Rêve afin qu'elle puisse survivre... Puis, lorsqu'elle s'était réveillée, Wang Lin avait gravi la Montagne Bleue malgré une pression infinie. Il voulait simplement voir si elle était revenue à elle.
 
@@ -124,7 +124,7 @@ Wang Lin regarda le vieil homme. Il sourit en acceptant la cruche, puis la posa 
 
 Le Maître Dao prit lui-même une cruche et en but une gorgée. Il reprit lentement: « Dans toute ma vie, je me suis rarement trompé sur une personne. Pourtant, en ce qui te concerne, j'admets t'avoir sous-estimé à chaque fois... Dans la formation d'illusion, je n'ai pas eu d'autre choix que d'intervenir: d'une part pour moi-même, d'autre part pour ma fille... À l'époque, j'étais convaincu que malgré ton excellence, si tu ne rompais pas tes liens avec le Royaume Intérieur, tu ne serais pas digne d'être mon gendre... »
 
-« Je n'imaginais pas que tu atteindrais un tel niveau de culture... Donne-moi la cinquième concubine et deviens mon gendre! À partir de maintenant, je prendrai le Clan de la Soie Bleue pour rejoindre le Royaume Intérieur! »
+« Je n'imaginais pas que tu atteindrais un tel niveau de culture... Donne-moi la cinquième concubine et deviens mon gendre! À partir de maintenant, je prendrai le Clan Lan Si pour rejoindre le Royaume Intérieur! »
 
 « J'utiliserai mes vieux os pour balayer le chemin devant toi! » Le Maître Dao Bleu Rêve prit une grande gorgée de vin et annonça la décision qu'il avait mûrie durant un an et neuf mois.
 

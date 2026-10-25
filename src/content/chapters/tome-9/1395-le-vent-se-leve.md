@@ -38,7 +38,7 @@ Wang Lin se détendit légèrement et tendit sa main droite pour saisir la Boute
 
 Le temps passa lentement tandis que Wang Lin affinait les âmes démoniaques. Un mois s'écoula.
 
-Il restait moins d'un mois avant la Sélection des Anciens Délaissés. Wang Lin était en culture fermée au sein du Clan du Scorpion Noir depuis plus de deux mois! Durant cette période, un événement majeur s'était produit dans les Terres Déchues!
+Il restait moins d'un mois avant la Sélection des Anciens Délaissés. Wang Lin était en culture fermée au sein du Clan An Xie depuis plus de deux mois! Durant cette période, un événement majeur s'était produit dans les Terres Déchues!
 
 À la périphérie des Terres Déchues, sur une planète abandonnée, l'astre entier s'embrasa. Les flammes étaient bleues et enveloppèrent la planète tout entière.
 
@@ -48,17 +48,17 @@ Peu importe leur activité, au moment où la planète s'embrasa, ils furent tous
 
 Leurs flammes se prosternèrent vaguement en direction de cette planète abandonnée, comme si elles étaient appelées!
 
-Ce phénomène étrange stupéfia tous les cultivateurs du feu! En particulier, les membres du Clan des Moineaux de Feu ressentirent une sensation bien plus intense que les autres. L'Ancien qui avait commercé avec Wang Lin était en pleine culture quand le feu en son sein apparut soudainement pour se transformer en un moineau de feu. L'oiseau déploya ses ailes comme s'il allait s'envoler, provoquant un immense trouble chez l'Ancien!
+Ce phénomène étrange stupéfia tous les cultivateurs du feu! En particulier, les membres du Clan Huo Que ressentirent une sensation bien plus intense que les autres. L'Ancien qui avait commercé avec Wang Lin était en pleine culture quand le feu en son sein apparut soudainement pour se transformer en un moineau de feu. L'oiseau déploya ses ailes comme s'il allait s'envoler, provoquant un immense trouble chez l'Ancien!
 
-Cet événement attira la plus grande attention du Clan des Moineaux de Feu des Terres Déchues. L'Ancien du Clan des Moineaux de Feu quitta précipitamment sa culture pour se rendre sur la planète abandonnée avec quelques membres de son clan. Cependant, malgré ses recherches, il ne trouva rien. Il sentit pourtant une trace d'essence identique à celle de la pilule!
+Cet événement attira la plus grande attention du Clan Huo Que des Terres Déchues. L'Ancien du Clan Huo Que quitta précipitamment sa culture pour se rendre sur la planète abandonnée avec quelques membres de son clan. Cependant, malgré ses recherches, il ne trouva rien. Il sentit pourtant une trace d'essence identique à celle de la pilule!
 
-Par ailleurs, durant ces jours, un événement qui ébranla tout le clan se produisit au sein du Clan des Moineaux de Feu!
+Par ailleurs, durant ces jours, un événement qui ébranla tout le clan se produisit au sein du Clan Huo Que!
 
 Les trois personnes qui avaient escorté la goutte de sang depuis les Terres Déchues l'avaient remise. Elles attendaient ensuite d'être convoquées à nouveau, anxieuses de savoir si cela attirerait l'attention du clan.
 
-Dans le vaste domaine étoilé occupé par le Clan des Moineaux de Feu, sur la planète principale, de gigantesques statues de moineaux de feu étaient dispersées; l'une d'elles, entièrement embrasée, culminait presque jusqu'au ciel.
+Dans le vaste domaine étoilé occupé par le Clan Huo Que, sur la planète principale, de gigantesques statues de moineaux de feu étaient dispersées; l'une d'elles, entièrement embrasée, culminait presque jusqu'au ciel.
 
-Sous cette statue se trouvait une salle où siégeait un vieil homme. Son visage était rouge et embrasé par les flammes. C'était le patriarche du Clan des Moineaux de Feu!
+Sous cette statue se trouvait une salle où siégeait un vieil homme. Son visage était rouge et embrasé par les flammes. C'était le patriarche du Clan Huo Que!
 
 Une goutte de sang brûlante flottait devant lui. Il la fixait, le regard chargé de stupeur.
 

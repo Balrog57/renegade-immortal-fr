@@ -56,7 +56,7 @@ En termes simples, la Condensation de Qi consistait à raffiner lentement le cor
 
 Cette autre méthode était bien plus brutale. Si l'on avait de la chance, le tourbillon s'étendait au-delà du corps avant que celui-ci ne s'effondre, permettant de survivre. Sinon, le corps était pulvérisé avant même que le tourbillon n'ait pu sortir.
 
-Wang Hao ajouta, les dents grinçantes: « Les archives de la secte possèdent quelques exemplaires de cette méthode de culture de l'Épreuve du Fourneau de Feu. On dit qu'elle remonte à 500 ans et provient de la Voie de l'Extinction du pays de Lu. Seuls un ou deux cultivateurs sur dix survivent à cette pratique. Tout repose sur la chance. »
+Wang Hao ajouta, les dents grinçantes: « Les archives de la secte possèdent quelques exemplaires de cette méthode de culture de l'Épreuve du Fourneau de Feu. On dit qu'elle remonte à 500 ans et provient de la Voie Mie Jue du pays de Lu. Seuls un ou deux cultivateurs sur dix survivent à cette pratique. Tout repose sur la chance. »
 
 Wang Lin posa la question cruciale: « Quel intérêt Lu Yunjie y trouve-t-il? »
 

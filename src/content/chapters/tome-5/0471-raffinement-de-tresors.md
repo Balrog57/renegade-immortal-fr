@@ -126,7 +126,7 @@ Une demi-lune plus tard, Wang Lin quitta la plaine.
 
 Durant cette période, les rugissements d'une bête résonnèrent sans cesse à travers la plaine, presque toute la journée.
 
-Ces hurlements secouaient les cieux. Même certains membres du Clan des Immortels Délaissés ressentirent la rage de cet esprit de combat qui ne se soumettrait devant personne!
+Ces hurlements secouaient les cieux. Même certains membres du Clan Xian Yi ressentirent la rage de cet esprit de combat qui ne se soumettrait devant personne!
 
 Assis sur le moustique, Wang Lin s'élança rapidement vers l'horizon. Son visage était pâle et il tenait un jade céleste dans sa main. Peu après, le jade se mua en poussière et disparut.
 

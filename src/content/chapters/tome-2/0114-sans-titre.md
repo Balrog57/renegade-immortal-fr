@@ -70,13 +70,13 @@ La formation s'illumina une nouvelle fois et cinq personnes en sortirent. Dès l
 
 Pendant un long moment, personne ne put l'identifier, et chacun commença à spéculer sur leur origine.
 
-Xu Mei, qui se tenait aux côtés de Lin Yi, laissa échapper un rire: « Seigneur Messager, regardez ces disciples de la Secte des Cadavres, si empreints d'hostilité. J'ai entendu dire que la Secte des Cadavres possède une technique secrète permettant à ses membres de fusionner avec leurs marionnettes cadavériques. Je suppose que ces cinq individus sont ces fameuses marionnettes humaines. »
+Xu Mei, qui se tenait aux côtés de Lin Yi, laissa échapper un rire: « Seigneur Messager, regardez ces disciples de la Secte Shi Yin, si empreints d'hostilité. J'ai entendu dire que la Secte Shi Yin possède une technique secrète permettant à ses membres de fusionner avec leurs marionnettes cadavériques. Je suppose que ces cinq individus sont ces fameuses marionnettes humaines. »
 
 Lin Yi acquiesça: « Ces cinq sont bel et bien des marionnettes humaines. »
 
 Le vieillard maigre et sec de la Secte Tian Dao observa les environs en fronçant les sourcils: « Pourquoi le compagnon de culture Ye n'est-il pas ici...? »
 
-Lin Yi secoua la tête et répondit: « La Secte des Cadavres n'a pas respecté la règle exigeant de conserver le jeton au sein de la Vallée Jue Ming; ils sont donc disqualifiés. Son absence n'a aucune importance. » Sur ces mots, il jeta un regard nonchalant vers la foule du nord-ouest et pensa secrètement: « La Secte des Cadavres... Cette fois, plusieurs membres supplémentaires achèveront leur possession pour recouvrer leur culture... »
+Lin Yi secoua la tête et répondit: « La Secte Shi Yin n'a pas respecté la règle exigeant de conserver le jeton au sein de la Vallée Jue Ming; ils sont donc disqualifiés. Son absence n'a aucune importance. » Sur ces mots, il jeta un regard nonchalant vers la foule du nord-ouest et pensa secrètement: « La Secte Shi Yin... Cette fois, plusieurs membres supplémentaires achèveront leur possession pour recouvrer leur culture... »
 
 Fort de cette pensée, Lin Yi se tourna soudainement vers le cultivateur de l'Âme Naissante de la Vallée Wu Feng et déclara: « La Vallée Wu Feng n'a pas non plus conservé son jeton et est disqualifiée. Cependant, ils ont cédé leur jeton à une autre secte; la secte qui a reçu ce jeton n'est donc soumise à aucune restriction et peut détenir deux jetons. »
 

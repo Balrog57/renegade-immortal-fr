@@ -14,7 +14,7 @@ Cette affection n'avait rien de sentimental: grâce à un seul sort, Qing Shui a
 
 « Tu es mon frère cadet, je ne laisserai personne te faire du mal! » Cette simple phrase suffisait à réchauffer le cœur de Wang Lin pendant des millénaires.
 
-À l'époque, Wang Lin avait dû s'enfuir, terrifié, car il n'avait pas la puissance nécessaire pour sauver Qing Shui. Il avait alors pris une décision: tant qu'il y aurait une chance, il se rendrait à l'Alliance de Culture pour secourir son frère aîné!
+À l'époque, Wang Lin avait dû s'enfuir, terrifié, car il n'avait pas la puissance nécessaire pour sauver Qing Shui. Il avait alors pris une décision: tant qu'il y aurait une chance, il se rendrait à l'Alliance Xiu Zhen pour secourir son frère aîné!
 
 Bai Fan était un étranger pour Wang Lin et celui-ci ne le reconnaissait pas comme son maître. Cependant, dans son cœur, Wang Lin considérait Qing Shui comme son frère aîné... son frère pour la vie!
 
@@ -78,7 +78,7 @@ L'œuvre se déploya, devenant de plus en plus nette, révélant des montagnes e
 
 Wang Lin avait déjà vu la Peinture de Montagnes et de Rivières. Tan Lang possédait un paravent qui en contenait une copie. Mais aujourd'hui, Wang Lin contemplait l'œuvre authentique, un trésor du Royaume Céleste de la Pluie!
 
-« À l'époque, l'Alliance de Culture fut la première à pénétrer dans le Royaume Céleste de la Pluie lors de son effondrement, récoltant ainsi de nombreux trésors. Il semble que ce soit vrai! » Wang Lin ressentit une pression écrasante en observant la peinture!
+« À l'époque, l'Alliance Xiu Zhen fut la première à pénétrer dans le Royaume Céleste de la Pluie lors de son effondrement, récoltant ainsi de nombreux trésors. Il semble que ce soit vrai! » Wang Lin ressentit une pression écrasante en observant la peinture!
 
 Il percevait même des Flammes Joss à l'intérieur. Il semblait que des disciples des Flammes Joss y résidaient! La Peinture de Montagnes et de Rivières constituait son propre royaume, dont l'origine demeurait inconnue pour beaucoup.
 

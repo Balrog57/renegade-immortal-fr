@@ -46,9 +46,9 @@ En particulier, les cultivateurs du Vide Arcanique qui avaient participé à la 
 
 Tout cela se produisit en un instant. La flèche hurlait en fonçant sur sa cible. Chaque domaine stellaire qu'elle traversait s'effondrait, laissant derrière elle une immense faille qui subsisterait pour l'éternité!
 
-Cette faille partait de la frontière avec la Mer des Nuages et s'étendait à l'infini!
+Cette faille partait de la frontière avec la Mer Yun et s'étendait à l'infini!
 
-Cette flèche contenait la colère de Wang Lin et le carnage qu'il avait semé après avoir traversé le Vide Brillant, la Rivière Invoquée et la Mer des Nuages. Elle vola instantanément vers l'empreinte de paume qui s'abattait du ciel sur le palais du Souverain.
+Cette flèche contenait la colère de Wang Lin et le carnage qu'il avait semé après avoir traversé le Vide Brillant, la Rivière Invoquée et la Mer Yun. Elle vola instantanément vers l'empreinte de paume qui s'abattait du ciel sur le palais du Souverain.
 
 C’était le combat de Wang Lin contre le Souverain!
 
@@ -106,7 +106,7 @@ Le Souverain fut anéanti, le palais s'écroula, et le monde changea de couleur!
 
 Cependant, le Souverain n'était pas totalement mort. Au moment où son corps fut détruit et que l'énergie de la flèche se dissipa, ses restes déchiquetés commencèrent à bouger. Ils se rassemblèrent rapidement et son corps se reforma à l'intérieur de la faille.
 
-« Le sort de la Triple Vie du Clan de l'Extermination des Sceaux!! » Les pupilles de Wang Lin se rétractèrent.
+« Le sort de la Triple Vie du Clan Feng Mie!! » Les pupilles de Wang Lin se rétractèrent.
 
 Le Souverain ressuscité affichait un visage livide. Il n'hésita pas une seconde et recula dans la faille après avoir repris forme. Sa main droite s'étira derrière lui, provoquant l'effondrement de la faille.
 

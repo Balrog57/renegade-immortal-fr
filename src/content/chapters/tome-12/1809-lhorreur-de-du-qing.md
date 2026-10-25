@@ -18,7 +18,7 @@ Inhalant l'aura du Continent Astral Immortel, Wang Lin s'élança rapidement ver
 
 Il était d'une rapidité extrême, disparaissant au loin tel un rayon de lumière. Sa vitesse surpassait celle de ses précédents déplacements; à cet instant, il volait à pleine puissance, parcourant plus de 10 000 kilomètres en un éclair.
 
-Trois jours après le départ de Wang Lin, des traînées lumineuses apparurent au-dessus de cette chaîne de montagnes. L'une d'elles appartenait à l'ancêtre de la Secte du Dragon Bleu, Du Qing. Il observa la montagne avec une mine sombre, puis abattit sa main sur le sommet.
+Trois jours après le départ de Wang Lin, des traînées lumineuses apparurent au-dessus de cette chaîne de montagnes. L'une d'elles appartenait à l'ancêtre de la Secte Cang Long, Du Qing. Il observa la montagne avec une mine sombre, puis abattit sa main sur le sommet.
 
 Le monde trembla lorsqu'un bras de bois gigantesque, d'une épaisseur de plus de mille pieds, surgit. Enveloppé de flammes, il s'écrasa sur la montagne.
 
@@ -26,9 +26,9 @@ Un grondement tonitruant retentit tandis que le sommet s'effondrait, dispersant 
 
 « Il y a trois jours, le feu terrestre ici a changé. Ce cultivateur nommé Wang se cachait manifestement ici! Méprisable... j'ai utilisé toute ma vitesse et je suis quand même arrivé trop tard... » Une intention meurtrière brilla dans les yeux de Du Qing alors qu'il agitait ses manches.
 
-« Dispersez-vous et continuez vos recherches. Je ne crois pas qu'il puisse échapper au Continent du Taureau Céleste! » Du Qing prit une profonde inspiration et serra le poing.
+« Dispersez-vous et continuez vos recherches. Je ne crois pas qu'il puisse échapper au Continent Tian Niu! » Du Qing prit une profonde inspiration et serra le poing.
 
-« S'il se cache, il sera difficile de le trouver... Il semble que je doive demander l'aide de la Secte de la Grande Âme... »
+« S'il se cache, il sera difficile de le trouver... Il semble que je doive demander l'aide de la Secte Da Hun... »
 
 Wang Lin n'avait aucune intention d'éviter l'autre partie. S'il avait réellement voulu se cacher, il aurait pu trouver une montagne lointaine et s'y terrer; après huit ou dix ans, le danger serait passé.
 
@@ -36,9 +36,9 @@ La raison principale de son départ était qu'il avait trouvé de quoi nourrir c
 
 Tandis que Wang Lin survolait les cieux, son Sens Divin se déploya pour couvrir la terre. Ses yeux brillaient d'excitation.
 
-« Ce Continent du Taureau Céleste possède de nombreuses ramifications de veines de feu terrestre, au moins des milliers. Si je les absorbe toutes, et même la veine principale... parviendrai-je à former un Corps Véritable d'Essence comme dans le Bassin Dong Lin? » Cette pensée rendit la respiration de Wang Lin saccadée.
+« Ce Continent Tian Niu possède de nombreuses ramifications de veines de feu terrestre, au moins des milliers. Si je les absorbe toutes, et même la veine principale... parviendrai-je à former un Corps Véritable d'Essence comme dans le Bassin Dong Lin? » Cette pensée rendit la respiration de Wang Lin saccadée.
 
-Il devina vaguement que personne n'avait jamais tenté d'absorber le feu du Continent du Taureau Céleste. Les autres s'étaient contentés d'obtenir la reconnaissance du feu pour en comprendre l'essence et devenir de grands puissants.
+Il devina vaguement que personne n'avait jamais tenté d'absorber le feu du Continent Tian Niu. Les autres s'étaient contentés d'obtenir la reconnaissance du feu pour en comprendre l'essence et devenir de grands puissants.
 
 S'ils atteignaient un certain niveau de culture et que leur essence était assez puissante, ils pourraient peut-être devenir des rois du feu. Mais en fin de compte, cela différait radicalement de ce que Wang Lin entreprenait.
 
@@ -106,7 +106,7 @@ Le changement le plus flagrant était que, désormais, chaque fois qu'il utilisa
 
 Dans cette terre étrange peuplée de puissants cultivateurs, rien n'était plus exaltant que d'augmenter son niveau de culture. Wang Lin n'hésita pas à progresser, chevauchant le géant Oiseau Vermillon, tandis que son Sens Divin se déployait pour traquer la prochaine veine de feu!
 
-Deux jours après le départ de Wang Lin, un rayon de lumière approcha du lointain. La personne à l'intérieur était l'ancêtre de la Secte du Dragon Bleu, Du Qing! Il arriva très rapidement cette fois et, lorsqu'il atterrit, il fut frappé de stupeur. En observant les montagnes en contrebas, ses paupières tressaillirent.
+Deux jours après le départ de Wang Lin, un rayon de lumière approcha du lointain. La personne à l'intérieur était l'ancêtre de la Secte Cang Long, Du Qing! Il arriva très rapidement cette fois et, lorsqu'il atterrit, il fut frappé de stupeur. En observant les montagnes en contrebas, ses paupières tressaillirent.
 
 « Quelque chose ne va pas. S'il provoquait une modification de la veine de feu terrestre une ou deux fois, cela pourrait être un accident, mais c'est la troisième fois! Il fait manifestement cela délibérément, mais dans quel but... » Du Qing fronça les sourcils, incapable de comprendre.
 
@@ -114,6 +114,6 @@ Il se posa sur une montagne et déploya son Sens Divin. Il scruta attentivement 
 
 Cela le fit suffoquer, et son expression changea radicalement!
 
-« La veine de feu terrestre s'est desséchée et le feu s'est dissipé. Elle est morte! Il absorbe le feu terrestre, ce qui... est impossible... Même un cultivateur possédant une essence de feu n'oserait jamais absorber de force le feu terrestre. Une fois l'acte accompli, il risquerait un rejet interne et serait rejeté par le feu du ciel et de la terre du Continent du Taureau Céleste... Comment... Comment a-t-il fait? Que compte-t-il faire? » Les yeux de Du Qing étaient empreints d'horreur.
+« La veine de feu terrestre s'est desséchée et le feu s'est dissipé. Elle est morte! Il absorbe le feu terrestre, ce qui... est impossible... Même un cultivateur possédant une essence de feu n'oserait jamais absorber de force le feu terrestre. Une fois l'acte accompli, il risquerait un rejet interne et serait rejeté par le feu du ciel et de la terre du Continent Tian Niu... Comment... Comment a-t-il fait? Que compte-t-il faire? » Les yeux de Du Qing étaient empreints d'horreur.
 
 Il n'avait jamais entendu parler de quiconque capable d'absorber et de dévorer une veine de feu terrestre. Les cultivateurs dotés d'une essence de feu offraient toujours des sacrifices au feu pour obtenir sa reconnaissance. Personne n'avait jamais osé dévorer le feu, et personne n'en avait jamais été capable!

@@ -104,7 +104,7 @@ Désormais, hormis le dernier étage, il connaissait l'architecture de toute la 
 
 Celles du premier étage n'étaient déjà pas faibles, mais en descendant plus profondément, leur puissance atteindrait un niveau terrifiant.
 
-« C'est la véritable Grotte de l'Empereur Céleste. À l'origine, lorsqu'on entrait de l'extérieur, on était transféré ici. Cependant, ce transfert a été interrompu par le démon dispersé à l'aide d'une bouteille de jade blanc, et tout le monde s'est retrouvé dans le monde de la bouteille. Après notre départ, il a invoqué le Bassin Funéraire Céleste et l'a fait s'effondrer pour nous disperser une fois de plus. Son but était de nous faire perdre notre chemin dans la Grotte de l'Empereur Céleste. » Les yeux de Wang Lin s'illuminèrent. Bien qu'il possède une carte, elle était incomplète; elle ne couvrait que les sept premiers étages. Les deux derniers semblaient avoir été effacés du jade par quelqu'un.
+« C'est la véritable Grotte Xian Di. À l'origine, lorsqu'on entrait de l'extérieur, on était transféré ici. Cependant, ce transfert a été interrompu par le démon dispersé à l'aide d'une bouteille de jade blanc, et tout le monde s'est retrouvé dans le monde de la bouteille. Après notre départ, il a invoqué le Bassin Funéraire Céleste et l'a fait s'effondrer pour nous disperser une fois de plus. Son but était de nous faire perdre notre chemin dans la Grotte Xian Di. » Les yeux de Wang Lin s'illuminèrent. Bien qu'il possède une carte, elle était incomplète; elle ne couvrait que les sept premiers étages. Les deux derniers semblaient avoir été effacés du jade par quelqu'un.
 
 Wang Lin l'avait remarqué dès l'obtention du jade, et après comparaison avec la grotte, il en était désormais certain.
 

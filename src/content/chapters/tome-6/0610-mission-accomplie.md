@@ -12,7 +12,7 @@ Il fit ensuite un pas en avant, tandis qu'une gigantesque illusion de l'esprit d
 
 Les yeux de l'Ancien Démon formé par le sang de Wang Lin s'illuminèrent. D'un geste nonchalant, il agita la main et un brouillard démoniaque surgit brusquement. Ce brouillard enveloppa le colosse et s'élança vers les cieux.
 
-Simultanément, un voile d'énergie spirituelle démoniaque descendit du ciel pour recouvrir l'intégralité de la Cité du Démon Céleste. L'Ancien Démon et le démon dispersé engagèrent alors une lutte titanesque au cœur du brouillard céleste.
+Simultanément, un voile d'énergie spirituelle démoniaque descendit du ciel pour recouvrir l'intégralité de la Cité Tian Yao. L'Ancien Démon et le démon dispersé engagèrent alors une lutte titanesque au cœur du brouillard céleste.
 
 Des grondements assourdissants retentissaient dans les airs. Par moments, des flammes démoniaques embrasaient le ciel; à d'autres, l'énergie spirituelle démoniaque balayait la zone.
 
@@ -24,7 +24,7 @@ Le regard de Wang Lin devint de plus en plus intense. À force d'observer, il ab
 
 Bien qu'il forme ces sceaux, ils étaient dépourvus de toute puissance d'attaque.
 
-Cependant, à cet instant précis, grâce à une connexion mystérieuse avec son âme originelle, une puissance oppressante éclata sur une petite planète à moitié abandonnée, très loin au-delà de la Terre des Esprits Démoniaques, à d'innombrables kilomètres de la Porte de la Mer de l'Est.
+Cependant, à cet instant précis, grâce à une connexion mystérieuse avec son âme originelle, une puissance oppressante éclata sur une petite planète à moitié abandonnée, très loin au-delà de la Terre Yao Ling, à d'innombrables kilomètres de la Porte de la Mer Dong.
 
 Le corps original, dont la chevelure était d'un rouge vif, ouvrit soudainement les yeux. Son regard semblait contenir l'immensité du ciel. Dès l'ouverture de ses paupières, ses mains s'animèrent pour former divers sceaux.
 
@@ -32,7 +32,7 @@ Les cheveux rouges du corps original flottaient et les étoiles entre ses sourci
 
 D'un seul mot, la petite planète sur laquelle il reposait se mit à trembler. Des flux d'énergie spirituelle jaillirent des profondeurs de la planète pour être absorbés par le corps original.
 
-Au même moment, Wang Lin effectua le même geste au sein de la Terre des Esprits Démoniaques. Il fixa l'épais brouillard céleste et esquissa lentement un sourire.
+Au même moment, Wang Lin effectua le même geste au sein de la Terre Yao Ling. Il fixa l'épais brouillard céleste et esquissa lentement un sourire.
 
 « La bataille entre l'Ancien Démon et le démon dispersé m'a permis de comprendre certains sorts de l'ancien dieu. Les bénéfices que mon corps original en retire sont inestimables. »
 
@@ -48,7 +48,7 @@ Dès que le drapeau toucha l'eau de la rivière, les cent millions de fragments 
 
 Le regard de Wang Lin se glaça et il sortit le drapeau de restriction. Ce dernier avait été endommagé lorsqu'il l'avait utilisé contre la tribulation divine, brisant une grande partie des restrictions qu'il contenait. Bien qu'il n'en restât que peu, Wang Lin le jeta tout de même dans la rivière des enfers.
 
-Après cela, vint l'épée céleste! Bien que Xu Liguo fût extrêmement réticent, il n'osait pas s'opposer à Wang Lin en cet instant. Il ne pouvait que soupirer sans fin dans son cœur: « Tant pis. Nous sommes déjà revenus à la Cité du Démon Céleste. Cette petite beauté m'attend depuis dix ans; je me demande si elle est restée fidèle... » Alors qu'il sombrait dans ses pensées, il fut projeté dans la rivière des enfers par Wang Lin, suivi de près par la lame demi-lune.
+Après cela, vint l'épée céleste! Bien que Xu Liguo fût extrêmement réticent, il n'osait pas s'opposer à Wang Lin en cet instant. Il ne pouvait que soupirer sans fin dans son cœur: « Tant pis. Nous sommes déjà revenus à la Cité Tian Yao. Cette petite beauté m'attend depuis dix ans; je me demande si elle est restée fidèle... » Alors qu'il sombrait dans ses pensées, il fut projeté dans la rivière des enfers par Wang Lin, suivi de près par la lame demi-lune.
 
 Puis vinrent le Fouet Kunji, les fourreaux d'épées et l'épée de Mo Yang. Enfin, à l'exception du char de guerre et de la peinture mystérieuse, Wang Lin jeta presque tous ses trésors dans la rivière des enfers.
 
@@ -98,7 +98,7 @@ L'armure avait dépensé presque toute son énergie démoniaque pour échapper a
 
 Le démon était ivre de joie. S'il parvenait à sortir de la lumière, il pourrait utiliser un sort pour s'enfuir rapidement. Mais alors qu'il savourait ce moment, sa joie s'évapora. La main droite de Wang Lin bougea comme l'éclair et saisit l'armure en plein vol.
 
-Wang Lin était rancunier et ne laissait jamais une offense impunie. Après une telle planification, comment aurait-il pu laisser ce prétendu démon dispersé s'échapper au dernier moment? Si le démon s'enfuiait aujourd'hui, Wang Lin devrait faire face à sa vengeance folle pour l'éternité, à moins de se terrer à jamais dans la Cité du Démon Céleste.
+Wang Lin était rancunier et ne laissait jamais une offense impunie. Après une telle planification, comment aurait-il pu laisser ce prétendu démon dispersé s'échapper au dernier moment? Si le démon s'enfuiait aujourd'hui, Wang Lin devrait faire face à sa vengeance folle pour l'éternité, à moins de se terrer à jamais dans la Cité Tian Yao.
 
 De plus, Wang Lin était certain que l'Ancien Démon l'aiderait au moment crucial; sinon, il n'aurait jamais manifesté sa présence. Avec sa ruse, il avait aisément percé à jour leurs intentions.
 
@@ -112,4 +112,4 @@ Wang Lin portait désormais une armure noire, ses yeux étaient rouge sang et se
 
 La lumière démoniaque se dissipa pour redevenir l'ombre sanguine de l'Ancien Démon. Il regarda Wang Lin avec admiration et sourit: « Quelle stratégie brillante, stimuler ton âme originelle pour mieux résister à l'esprit démoniaque. Si je t'aide, j'agis selon tes plans; mais si je ne le fais pas, notre combat précédent et ces trois jours de lutte n'auront servi à rien. Tu as calculé que je viendrais à la rescousse... Bien, c'est ta chance, alors je vais t'aider! »
 
-Tandis qu'il parlait, l'Ancien Démon saisit Wang Lin ainsi que le colosse dont le corps s'effritait sans être encore mort. Puis, il se transforma en un rayon de lumière et fondit vers le lac du dragon, à la lisière de la Cité du Démon Céleste.
+Tandis qu'il parlait, l'Ancien Démon saisit Wang Lin ainsi que le colosse dont le corps s'effritait sans être encore mort. Puis, il se transforma en un rayon de lumière et fondit vers le lac du dragon, à la lisière de la Cité Tian Yao.

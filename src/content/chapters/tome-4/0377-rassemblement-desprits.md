@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 377 - Gathering Spirits
 slug: rassemblement-desprits
 ---
-Wang Lin observa attentivement la jeune femme alors qu'elle s'éloignait en flottant pour franchir les portes de la Secte de l'Affinement de l'Âme.
+Wang Lin observa attentivement la jeune femme alors qu'elle s'éloignait en flottant pour franchir les portes de la Secte Lian Hun.
 
 « Cette personne m'est familière... » Wang Lin la dévisagea une nouvelle fois et réfléchit, mais il ne parvint pas à se remémorer où il l'avait déjà vue.
 
@@ -66,7 +66,7 @@ Il faut dire que même des cultivateurs de la Formation du Noyau auraient eu du 
 
 Surtout parce que les éléments redondants ajoutés par-dessus rendaient l'analyse particulièrement ardue.
 
-Après tout, pour que la Secte de l'Affinement de l'Âme transforme toute cette montagne en grottes pour les disciples extérieurs, ils avaient dû prendre des mesures pour éviter que ces formations ne soient découvertes.
+Après tout, pour que la Secte Lian Hun transforme toute cette montagne en grottes pour les disciples extérieurs, ils avaient dû prendre des mesures pour éviter que ces formations ne soient découvertes.
 
 Cependant, l'ancêtre de la Secte n'aurait jamais imaginé qu'un cultivateur de la Formation de l'Âme puisse se retrouver dans la zone réservée aux disciples extérieurs.
 
@@ -112,7 +112,7 @@ Sa main traça un sceau et l'énergie spirituelle de son corps se mit en mouveme
 
 Cette restriction illusoire était une création propre à Wang Lin et différait grandement des restrictions ordinaires. Avec son niveau actuel, créer des restrictions classiques était aisé, mais les restrictions illusoires étaient extrêmement ardues.
 
-À l'époque où il se trouvait dans la Terre de l'Ancien Dieu, avec sa culture de la Formation du Noyau, il ne pouvait en créer que quelques-unes. Aujourd'hui, alors qu'il n'était qu'au stade avancé de l'Établissement des Fondations, il parvenait à peine à en réaliser une seule.
+À l'époque où il se trouvait dans la Terre Gu Shen, avec sa culture de la Formation du Noyau, il ne pouvait en créer que quelques-unes. Aujourd'hui, alors qu'il n'était qu'au stade avancé de l'Établissement des Fondations, il parvenait à peine à en réaliser une seule.
 
 Les mouvements de la main de Wang Lin s'accélérèrent jusqu'à ce que toutes les images se fondent en une seule. Il pointa alors la formation et poussa un cri; la restriction illusoire frappa soudainement le mécanisme.
 

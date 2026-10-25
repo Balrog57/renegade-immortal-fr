@@ -74,7 +74,7 @@ Le jeune homme fut stupéfait. Il regarda Bai Wei, puis Wang Lin, affichant une 
 
 L'expression de Wang Lin ne changea pas. Bien que le nom de cet individu fût quelque peu féminin, Wang Lin comprit immédiatement qu'il s'agissait d'un homme.
 
-« Frère Wang, mon serviteur a été impoli. J'espère que vous n'en avez pas pris ombrage. Je viens de la planète Tian Yun et j'appartiens à la Secte du Destin Céleste. D'où venez-vous, frère Wang? » Bai Wei sourit avec douceur, comme si toute la tension précédente s'était évaporée comme de la fumée.
+« Frère Wang, mon serviteur a été impoli. J'espère que vous n'en avez pas pris ombrage. Je viens de la planète Tian Yun et j'appartiens à la Secte Tian Yun. D'où venez-vous, frère Wang? » Bai Wei sourit avec douceur, comme si toute la tension précédente s'était évaporée comme de la fumée.
 
 Les yeux de Wang Lin brillèrent d'une lueur mystérieuse: « Je suis un voyageur; je n'appartiens à aucune secte! »
 

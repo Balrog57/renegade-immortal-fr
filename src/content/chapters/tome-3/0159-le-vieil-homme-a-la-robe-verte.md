@@ -56,7 +56,7 @@ Alors que Wang Lin s'apprêtait à partir, Li Muwan cria soudainement: « Frère
 
 Wang Lin rattrapa le jade et l'examina. Le message que Li Muwan y avait laissé résonna dans ses oreilles:
 
-« Frère aîné, Wan Er ne connaît pas votre nom car vous ne me l'avez jamais dit durant ces quatre années. Je crois que vous ignorez le mien également... Wan Er vous remercie pour les nombreuses fois où vous m'avez sauvé la vie. Le temps passé dans la Mer des Démons est une chose que je n'oublierai jamais... Puisque notre séparation est inévitable, et sachant que le frère aîné se retire souvent en culture fermée, Wan Er vous offre ce jade. Il est l'apogée de mes compétences en formations. Il contient la Grande Formation du Dragon de Bataille de la Secte de la Lutte contre le Mal, avec de légères modifications raffinées. »
+« Frère aîné, Wan Er ne connaît pas votre nom car vous ne me l'avez jamais dit durant ces quatre années. Je crois que vous ignorez le mien également... Wan Er vous remercie pour les nombreuses fois où vous m'avez sauvé la vie. Le temps passé dans la Mer Xiu Mo est une chose que je n'oublierai jamais... Puisque notre séparation est inévitable, et sachant que le frère aîné se retire souvent en culture fermée, Wan Er vous offre ce jade. Il est l'apogée de mes compétences en formations. Il contient la Grande Formation du Dragon de Bataille de la Secte Dou Xie, avec de légères modifications raffinées. »
 
 « Cette formation fusionne attaque et défense, mais par rapport à l'attaque, la défense en est le véritable dessein. Si elle peut protéger le frère aîné une ou deux fois face au danger, alors Wan Er sera satisfaite... »
 
@@ -82,7 +82,7 @@ Yang Sen regarda le vieil homme avec méfiance, car il ne parvenait pas à perce
 
 Le vieil homme roula des yeux et répliqua: « Quel Daoïste? Dégagez, ou je m'emparerai de votre Âme Naissante pour raffiner des trésors. »
 
-L'expression de Yang Sen changea. Il eut un rictus et s'apprêtait à répliquer lorsque l'homme au visage rouge l'arrêta. Ses yeux en forme de cloches se fixèrent sur les sept fleurs de prunier dorées ornant les vêtements du vieil homme, à trois pouces au-dessus du bas de sa robe, et il demanda: « Votre excellence vient-elle de la Mer des Démons? »
+L'expression de Yang Sen changea. Il eut un rictus et s'apprêtait à répliquer lorsque l'homme au visage rouge l'arrêta. Ses yeux en forme de cloches se fixèrent sur les sept fleurs de prunier dorées ornant les vêtements du vieil homme, à trois pouces au-dessus du bas de sa robe, et il demanda: « Votre excellence vient-elle de la Mer Xiu Mo? »
 
 Yang Sen et Feng Luan échangèrent un regard avant de fixer la fleur de prunier dorée sur la tunique du vieil homme.
 
@@ -94,15 +94,15 @@ Le vieil homme au visage rouge répondit amèrement: « Au moins au stade avanc�
 
 Feng Luan fronça les sourcils et murmura: « Zou Bin, qu'était cette fleur de prunier dorée? »
 
-« Je suppose que vous en avez déjà entendu parler. Il y a trois cents ans, avant d'entrer au Sanctuaire du Dieu de la Guerre, je voyageais à travers la Mer des Démons. Mon stade précoce de l'Âme Naissante suffisait à me protéger, tant que je ne pénétrais pas dans des zones dangereuses. »
+« Je suppose que vous en avez déjà entendu parler. Il y a trois cents ans, avant d'entrer au Sanctuaire du Dieu de la Guerre, je voyageais à travers la Mer Xiu Mo. Mon stade précoce de l'Âme Naissante suffisait à me protéger, tant que je ne pénétrais pas dans des zones dangereuses. »
 
-« La Mer des Démons compte au total 999 cités, et un peu plus de 300 d'entre elles se trouvent dans la mer intérieure. Parmi ces quelque trois cents cités, sept sont appelées le Pays des Sept Pruniers. »
+« La Mer Xiu Mo compte au total 999 cités, et un peu plus de 300 d'entre elles se trouvent dans la mer intérieure. Parmi ces quelque trois cents cités, sept sont appelées le Pays Qi Mei. »
 
 « Les sept cités reliées entre elles forment les pétales d'une fleur de prunier. Vu de loin, cela y ressemble fort. Il existe sept seigneurs de cité dont le niveau de culture est impénétrable. La rumeur prétend qu'ils ont déjà atteint le stade de la Formation de l'Âme, mais rien n'est confirmé. »
 
 Le front de Feng Luan se plissa alors qu'elle demandait: « Cette personne, tout à l'heure... »
 
-L'expression du vieil homme devint sérieuse: « Si je ne me trompe pas, cet individu était l'un des seigneurs de l'une de ces sept cités! Cependant, les cultivateurs démoniaques de la Mer des Démons, surtout ceux de la mer intérieure, ne quittent pas leur domaine si facilement. Je ne pense pas qu'il restera ici longtemps. »
+L'expression du vieil homme devint sérieuse: « Si je ne me trompe pas, cet individu était l'un des seigneurs de l'une de ces sept cités! Cependant, les cultivateurs démoniaques de la Mer Xiu Mo, surtout ceux de la mer intérieure, ne quittent pas leur domaine si facilement. Je ne pense pas qu'il restera ici longtemps. »
 
 Les trois se regardèrent, chacun sentant le poids qui pesait sur le cœur de l'autre. Ils contournèrent le vieil homme pour retourner vers la montagne de l'Union de Huo Fen.
 

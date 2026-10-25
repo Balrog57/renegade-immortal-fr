@@ -22,7 +22,7 @@ Boum, boum, boum, boum! Wang Lin asséna quatre coups de poing consécutifs. La 
 
 Après un instant, le doigt se désintégra complètement dans un grand fracas, se dispersant en filaments d'énergie d'origine. Cela souleva une quantité immense de poussière et créa des tempêtes de sable lors de sa dispersion.
 
-Dans la Secte du Destin Céleste, au sommet de la montagne orné des anneaux aux sept couleurs, les yeux de Tian Yunzi révélèrent une étrange lueur et il murmura: « Je ne m'attendais pas à ce que cet enfant possède un tel trésor... » Puis, il leva sa main droite et l'agita. Une bourrasque de vent apparut, aussitôt enveloppée par la lumière aux sept couleurs. Elle se transforma instantanément en un dragon de vent arc-en-ciel qui poussa un rugissement et chargea vers le ciel.
+Dans la Secte Tian Yun, au sommet de la montagne orné des anneaux aux sept couleurs, les yeux de Tian Yunzi révélèrent une étrange lueur et il murmura: « Je ne m'attendais pas à ce que cet enfant possède un tel trésor... » Puis, il leva sa main droite et l'agita. Une bourrasque de vent apparut, aussitôt enveloppée par la lumière aux sept couleurs. Elle se transforma instantanément en un dragon de vent arc-en-ciel qui poussa un rugissement et chargea vers le ciel.
 
 Ce dragon de vent mesurait plus d'un kilomètre de long et, dans son mouvement, déclencha une tempête titanesque. Il soulevait des nuages de poussière sur son passage, et même les cieux s'écartaient pour lui laisser la voie.
 

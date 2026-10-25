@@ -46,7 +46,7 @@ Wang Lin médita en silence. Le temps ne passait pas, mais sa réflexion fut lon
 
 La cithare ne produisait aucun son, mais la musique emplissait le cœur de Wang Lin. Des vagues de chagrin déferlèrent en lui. Une chanson née d'un rêve doit s'achever; un cri de nostalgie inoubliable.
 
-« Cette année-là, cette année-là, nous nous sommes rencontrés dans le pays de Huo Fen, aux abords de la Mer des Démons. Une traque, une désolation, une voix qui appelait, et la solitude dans mon regard baissé.
+« Cette année-là, cette année-là, nous nous sommes rencontrés dans le pays de Huo Fen, aux abords de la Mer Xiu Mo. Une traque, une désolation, une voix qui appelait, et la solitude dans mon regard baissé.
 
 Les années passèrent, les cycles défilèrent, nous étions aux deux extrémités de la poussière de ce rêve. Après combien d'années, chacun tâtonnant dans le monde des hommes, nous sommes-nous peut-être déjà rencontrés, pour ne faire que nous croiser sans le savoir, dans un état de torpeur?
 
@@ -68,9 +68,9 @@ Le monde gronda. Le bateau sur lequel se trouvait Wang Lin disparut. Avec lui s'
 
 Une onde invisible se propagea de Wang Lin comme centre. Tous les édifices de la ville de Su disparurent en un éclair. Non seulement Su, mais tout le pays de Zhao — ses montagnes, ses rivières, ses sectes, ses villages et tout le reste — s'effaça instantanément.
 
-Le pays de Zhao, les terres au-delà, la Secte de l'Affinement de l'Âme, Xue Yu, les autres nations; tout le monde s'effondra.
+Le pays de Zhao, les terres au-delà, la Secte Lian Hun, Xue Yu, les autres nations; tout le monde s'effondra.
 
-Il y eut aussi l'océan infini, la mer déchaînée, l'autre rive, l'autre continent, la terre natale de Li Muwan; tout disparut. Le pays de Huo Fen, le pays de Xuan Wu, la Mer des Démons et le foyer de Wang Lin et Li Muwan s'éteignirent en cendres.
+Il y eut aussi l'océan infini, la mer déchaînée, l'autre rive, l'autre continent, la terre natale de Li Muwan; tout disparut. Le pays de Huo Fen, le pays de Xuan Wu, la Mer Xiu Mo et le foyer de Wang Lin et Li Muwan s'éteignirent en cendres.
 
 Tout ce qui composait ce monde se dispersa... Laissant derrière lui les mortels et les cultivateurs figés dans leurs gestes. Ils ne disparurent pas; ils demeurèrent calmement, çà et là dans ce monde.
 
@@ -90,7 +90,7 @@ Wang Zhuo, vêtu d'une robe noire, se tenait sur la montagne Heng Yue. Le vent s
 
 Il y eut aussi Huang Long, ainsi que l'ancêtre de la famille Teng, et les innombrables cultivateurs de Zhao. Même hors de Zhao, il y avait Zhou Wutai qui contemplait un jeune homme devant lui: son disciple. En regardant son disciple, Zhou Wutai disparut avec lui sous l'effet du vent.
 
-Il y eut aussi Yun Quezi, Dun Tian et Nian Tian de la Secte de l'Affinement de l'Âme, ainsi que Zhu Quezi. Que ce soit sur ce continent ou sur celui de l'autre côté de la mer, tous disparurent sans laisser de trace.
+Il y eut aussi Yun Quezi, Dun Tian et Nian Tian de la Secte Lian Hun, ainsi que Zhu Quezi. Que ce soit sur ce continent ou sur celui de l'autre côté de la mer, tous disparurent sans laisser de trace.
 
 À cet instant, le monde ne possédait plus ni terre ni vie; seul le ciel subsistait.
 

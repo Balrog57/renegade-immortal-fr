@@ -12,7 +12,7 @@ Tout cela se produisit avec la rapidité de l'éclair. Il ne fallut qu'un instan
 
 L'expression de Liu Zhiyuan changea radicalement. Il sentit clairement les fluctuations d'un cultivateur du début du stade de la Tribulation du Vide dans le brouillard noir. Ses yeux trahirent une lueur de terreur. Il comprit immédiatement qu'il s'agissait d'une marionnette. Sans hésiter, il recula et agita sa manche; sept lotus noirs apparurent devant lui et entrèrent en collision avec Yi Si.
 
-Les grondements tonitruants attirèrent l'attention des six combattants au loin. L'expression des trois compagnons de Liu Zhiyuan changea et ils voulurent s'approcher, mais ils furent stoppés par les trois cultivateurs du Continent du Taureau Céleste. Occupés au combat, ils n'avaient pas le temps de déployer leur Sens Divin pour voir ce qui se passait, mais la situation jouait manifestement en faveur du camp du Taureau Céleste!
+Les grondements tonitruants attirèrent l'attention des six combattants au loin. L'expression des trois compagnons de Liu Zhiyuan changea et ils voulurent s'approcher, mais ils furent stoppés par les trois cultivateurs du Continent Tian Niu. Occupés au combat, ils n'avaient pas le temps de déployer leur Sens Divin pour voir ce qui se passait, mais la situation jouait manifestement en faveur du camp du Taureau Céleste!
 
 Les sept lotus noirs se désintégrèrent. Yi Si poussa un rugissement, son corps couvert de blessures, mais sa langue perça les sept lotus et vint frapper la poitrine de Liu Zhiyuan.
 
@@ -60,9 +60,9 @@ C'était la première fois que Liu Zhiyuan parvenait à dégainer un trésor dur
 
 Alors que le son de la cloche résonnait, d'innombrables silhouettes de femmes apparurent devant Liu Zhiyuan. Elles étaient nues, misérables et empreintes d'un immense ressentiment.
 
-Elles étaient des centaines de milliers. En se propageant, elles se chevauchèrent, fusionnant leurs rancœurs. Cela créa une aura de ressentiment si puissante que tous les cultivateurs luttant sur la Prairie du Ciel Extrême la remarquèrent!
+Elles étaient des centaines de milliers. En se propageant, elles se chevauchèrent, fusionnant leurs rancœurs. Cela créa une aura de ressentiment si puissante que tous les cultivateurs luttant sur la Prairie Ji Tian la remarquèrent!
 
-La bataille entre les six cultivateurs du début de la Tribulation du Vide devint encore plus intense. Dès qu'ils ressentirent cela, ils déployèrent leur Sens Divin, mais le brouillard limitait leur portée! Cependant, les trois membres du Continent du Démon Vert connaissaient parfaitement les sorts et les trésors de Liu Zhiyuan.
+La bataille entre les six cultivateurs du début de la Tribulation du Vide devint encore plus intense. Dès qu'ils ressentirent cela, ils déployèrent leur Sens Divin, mais le brouillard limitait leur portée! Cependant, les trois membres du Continent Lu Mo connaissaient parfaitement les sorts et les trésors de Liu Zhiyuan.
 
 À cet instant précis, lorsqu'ils sentirent ces âmes tourmentées, leurs expressions changèrent. Ils savaient que Liu Zhiyuan affrontait une crise de vie ou de mort, sans quoi il n'aurait jamais dégainé un tel trésor!
 
@@ -74,7 +74,7 @@ Au moment où les âmes tourmentées jaillirent, les pupilles de Wang Lin se con
 
 À cet instant, il pointa le ciel. Une gourde apparut soudainement dans sa main. Elle contenait 30 millions d'âmes du Dao; si elle explosait, elle pourrait menacer un cultivateur du milieu de la Tribulation du Vide, mais il ne commanda pas son explosion. Il cracha un jet de sang qui disparut rapidement dans la gourde, puis les rugissements de 30 millions d'âmes du Dao retentirent. Ces âmes s'envolèrent et formèrent une route de sang derrière Wang Lin!
 
-« J'utilise mon essence sanguine pour invoquer les âmes héroïques des ancêtres de la Secte de la Grande Âme de tous les âges. Brisez le vide!! Origine de la Fantaisie de l'Âme! » La voix de Wang Lin était calme, mais imprégnée d'une force étrange.
+« J'utilise mon essence sanguine pour invoquer les âmes héroïques des ancêtres de la Secte Da Hun de tous les âges. Brisez le vide!! Origine de la Fantaisie de l'Âme! » La voix de Wang Lin était calme, mais imprégnée d'une force étrange.
 
 Au bout de cette route de sang, un vortex gigantesque semblait fusionner avec le brouillard environnant. Tandis que Wang Lin parlait, une silhouette de sang sortit lentement du vortex. Chaque pas qu'elle faisait faisait trembler le monde.
 
@@ -82,7 +82,7 @@ La monstruosité de la rancune invoquée par le trésor de Liu Zhiyuan montra de
 
 Dès que la silhouette prit forme, elle ouvrit la bouche pour tenter de dévorer Wang Lin.
 
-À ce moment précis, la figure du neuvième ancêtre de la Secte de la Grande Âme, Luo Yunhai, sortit également du vortex de sang. Il leva la main et une intention meurtrière monstrueuse se matérialisa sous la forme d'une lance rouge. Il saisit la lance et la lança. Le projectile percuta la silhouette formée par les innombrables âmes tourmentées.
+À ce moment précis, la figure du neuvième ancêtre de la Secte Da Hun, Luo Yunhai, sortit également du vortex de sang. Il leva la main et une intention meurtrière monstrueuse se matérialisa sous la forme d'une lance rouge. Il saisit la lance et la lança. Le projectile percuta la silhouette formée par les innombrables âmes tourmentées.
 
 Lors de l'impact, la lance libéra une lumière de commandement, comme pour les purifier. La silhouette gigantesque s'effondra instantanément tandis que les âmes à l'intérieur poussaient des sifflements stridents.
 

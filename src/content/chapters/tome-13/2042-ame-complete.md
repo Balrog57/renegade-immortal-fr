@@ -12,7 +12,7 @@ Mais lorsqu'elle arriva chez elle, elle vit deux personnes debout là. L'une ét
 
 « Tante Chang... Dong Mei... Je suis rentrée. » Song Zhi mordit sa lèvre inférieure et sourit.
 
-À l'extérieur de Ville de la Pierre Noire, Wang Lin se tenait là où Song Zhi s'était tenue et contemplait la ville. Après un moment, il retira son Sens Divin. La femme était bien pitoyable. La fusion avec l'âme de Wan Er lui avait causé de grands maux. Sa mémoire était en désordre et elle ne savait plus qui elle était.
+À l'extérieur de Ville Hei Shi, Wang Lin se tenait là où Song Zhi s'était tenue et contemplait la ville. Après un moment, il retira son Sens Divin. La femme était bien pitoyable. La fusion avec l'âme de Wan Er lui avait causé de grands maux. Sa mémoire était en désordre et elle ne savait plus qui elle était.
 
 Wang Lin aurait pu ignorer sa faiblesse et faire fi de sa vie pour séparer l'âme de Li Muwan. Cependant, le résultat aurait été l'extinction de sa force vitale et la dispersion de son âme.
 
@@ -30,7 +30,7 @@ Le Prince Ji Du était resté ici car, selon ses analyses, Wang Lin viendrait pr
 
 Wang Lin ne montra aucune émotion face au fait que Ji Du l'ait attendu. Au contraire, si Ji Du n'avait pas fait cela, cela signifierait qu'il ne serait pas utile à Wang Lin, et il serait alors très difficile pour lui d'obtenir le poste d'Empereur Shi Antique.
 
-« Allons-y. » Wang Lin jeta un dernier regard vers Ville de la Pierre Noire puis s'éloigna dans la distance.
+« Allons-y. » Wang Lin jeta un dernier regard vers Ville Hei Shi puis s'éloigna dans la distance.
 
 Ji Du réprima l'excitation dans son cœur et suivit Wang Lin.
 
@@ -50,7 +50,7 @@ Le Prince Ji Du parut impuissant et parla avec un sourire amer.
 
 « Le fils ignore ce qu'il a pu faire pour provoquer Seigneur Song. Généralement, lorsque je vais le voir, il ne me reçoit pas, et même quand je le rencontre au palais, il est très froid.
 
-« Mon frère cadet, Chi Man, est très proche du Seigneur Song. Il vit sur la Montagne de l'Origine et la rumeur dit qu'il est sur le point d'être accepté comme disciple du Seigneur Song.
+« Mon frère cadet, Chi Man, est très proche du Seigneur Song. Il vit sur la Montagne Yuan Shi et la rumeur dit qu'il est sur le point d'être accepté comme disciple du Seigneur Song.
 
 « Mon père semble aussi porter beaucoup d'intérêt à Chi Man. L'ensemble du clan Shi Antique penche en sa faveur pour le prochain trône, » dit amèrement Ji Du.
 

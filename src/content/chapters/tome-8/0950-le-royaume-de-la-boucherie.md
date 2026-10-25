@@ -1,38 +1,38 @@
 ---
 n: 950
-title: Le Royaume de la Boucherie
+title: Le Royaume Sha Lu
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 950 - Slaughter Realm
 slug: le-royaume-de-la-boucherie
 ---
-L'Alliance de Culture comptait deux temples, quatre Vénérables et huit royaumes. Le Royaume de la Boucherie avait érigé son propre monde pour servir de base. Il y a d'innombrables années, le fondateur du Royaume de la Boucherie s'était emparé d'une faille résiduelle de l'effondrement du Royaume Céleste de la Pluie. Il avait également rassemblé une immense quantité de fer raffiné pour forger les 99 Épées Élévatrices du Ciel!
+L'Alliance Xiu Zhen comptait deux temples, quatre Vénérables et huit royaumes. Le Royaume Sha Lu avait érigé son propre monde pour servir de base. Il y a d'innombrables années, le fondateur du Royaume Sha Lu s'était emparé d'une faille résiduelle de l'effondrement du Royaume Céleste de la Pluie. Il avait également rassemblé une immense quantité de fer raffiné pour forger les 99 Épées Élévatrices du Ciel!
 
-Ces 99 Épées Élévatrices du Ciel étaient devenues des édifices uniques au Royaume de la Boucherie.
+Ces 99 Épées Élévatrices du Ciel étaient devenues des édifices uniques au Royaume Sha Lu.
 
-Au sein de l'Alliance de Culture, le nom du Royaume de la Boucherie était illustre; au cours des dizaines de milliers d'années, il avait accompli d'innombrables exploits pour l'Alliance. Que ce soit lors de la première bataille contre les Quatre Sectes Divines ou lors des troubles ultérieurs de la Secte des Cadavres, tous ces conflits portaient l'empreinte du Royaume de la Boucherie.
+Au sein de l'Alliance Xiu Zhen, le nom du Royaume Sha Lu était illustre; au cours des dizaines de milliers d'années, il avait accompli d'innombrables exploits pour l'Alliance. Que ce soit lors de la première bataille contre les Quatre Sectes Divines ou lors des troubles ultérieurs de la Secte Shi Yin, tous ces conflits portaient l'empreinte du Royaume Sha Lu.
 
-Peu de planètes de culture de rang 6 avaient entendu parler du Royaume de la Boucherie, mais une fois le rang 7 atteint, son nom devenait mondialement connu!
+Peu de planètes de culture de rang 6 avaient entendu parler du Royaume Sha Lu, mais une fois le rang 7 atteint, son nom devenait mondialement connu!
 
-Sur une planète de culture de rang 7, dès que la culture d'un individu atteignait un certain niveau, celui-ci ne serait plus disposé à laisser son âme sous le contrôle d'autrui. La série d'événements causés par ce sentiment avait toujours été réglée par le Royaume de la Boucherie. Les bains de sang découlant de ces affaires leur avaient valu une réputation impitoyable!
+Sur une planète de culture de rang 7, dès que la culture d'un individu atteignait un certain niveau, celui-ci ne serait plus disposé à laisser son âme sous le contrôle d'autrui. La série d'événements causés par ce sentiment avait toujours été réglée par le Royaume Sha Lu. Les bains de sang découlant de ces affaires leur avaient valu une réputation impitoyable!
 
-Bien sûr, il existait de nombreux cultivateurs que le Royaume de la Boucherie ne pouvait gérer seul; ceux-là étaient traités par d'autres forces au sein de l'Alliance de Culture.
+Bien sûr, il existait de nombreux cultivateurs que le Royaume Sha Lu ne pouvait gérer seul; ceux-là étaient traités par d'autres forces au sein de l'Alliance Xiu Zhen.
 
-On pouvait dire que le Royaume de la Boucherie était la lame de l'Alliance. Ceux qui étaient recrutés par lui étaient des êtres ayant passé leur existence entière dans la boucherie!
+On pouvait dire que le Royaume Sha Lu était la lame de l'Alliance. Ceux qui étaient recrutés par lui étaient des êtres ayant passé leur existence entière dans la boucherie!
 
-Au fil des dizaines de milliers d'années, le Royaume de la Boucherie avait maintenu un noyau de 99 cultivateurs. Si l'un d'eux mourait, il était immédiatement remplacé. Outre ces 99 piliers, il y avait également les disciples extérieurs. Ils étaient légion et étaient dirigés par ces 99 cultivateurs.
+Au fil des dizaines de milliers d'années, le Royaume Sha Lu avait maintenu un noyau de 99 cultivateurs. Si l'un d'eux mourait, il était immédiatement remplacé. Outre ces 99 piliers, il y avait également les disciples extérieurs. Ils étaient légion et étaient dirigés par ces 99 cultivateurs.
 
 En plus de ces 99, il y avait le Maître du Royaume et le Vice-Maître du Royaume!
 
-On pourrait dire que le Royaume de la Boucherie était une secte de culture, mais elle était bien plus puissante que la plupart des sectes existantes. Peu de gens osaient provoquer le Royaume de la Boucherie au sein de l'Alliance!
+On pourrait dire que le Royaume Sha Lu était une secte de culture, mais elle était bien plus puissante que la plupart des sectes existantes. Peu de gens osaient provoquer le Royaume Sha Lu au sein de l'Alliance!
 
 Même certains cultivateurs puissants se trouvaient des maux de tête face à eux. Non seulement ces individus étaient cruels, mais ils excellaient également dans l'art de la furtivité. S'ils échouaient dans leur mission, ils pouvaient immédiatement battre en retraite sur mille li et effacer toute trace de leur passage.
 
-Depuis la fondation du Royaume de la Boucherie, personne n'avait jamais réussi à se frayer un chemin jusqu'à leur base par le massacre. S'il fallait en citer un, ce que Wang Lin avait fait ce jour-là pouvait tout juste compter.
+Depuis la fondation du Royaume Sha Lu, personne n'avait jamais réussi à se frayer un chemin jusqu'à leur base par le massacre. S'il fallait en citer un, ce que Wang Lin avait fait ce jour-là pouvait tout juste compter.
 
 Cependant, tout cela changea lorsque la voix glaciale de Qing Shui résonna!
 
-De nombreux édifices en forme d'épées s'effondrèrent. D'innombrables débris de pierre mêlés de fer raffiné tombèrent et se transformèrent en une tempête qui balaya le Royaume de la Boucherie.
+De nombreux édifices en forme d'épées s'effondrèrent. D'innombrables débris de pierre mêlés de fer raffiné tombèrent et se transformèrent en une tempête qui balaya le Royaume Sha Lu.
 
 Des rugissements éclatèrent et, en un instant, une multitude d'ombres jaillirent de la tourmente. Ces cultivateurs étaient tous vêtus de noir et d'âges divers. Leurs niveaux de culture variaient du stade Yin Illusoire au stade intermédiaire du Scruteur du Nirvana. La plupart se situaient au stade Yin et Yang, et très peu atteignaient le stade du Scruteur du Nirvana.
 
@@ -52,7 +52,7 @@ Alors que son corps volait en éclats, les cultivateurs environnants furent sais
 
 Bang! Bang! Bang! Bang! Les corps de tous ces cultivateurs s'effondrèrent, leurs âmes originelles furent expulsées et capturées par Wang Lin.
 
-Tout cela se produisit en un instant; une rapidité incroyable. Tous les cultivateurs du Royaume de la Boucherie aux alentours furent ébranlés!
+Tout cela se produisit en un instant; une rapidité incroyable. Tous les cultivateurs du Royaume Sha Lu aux alentours furent ébranlés!
 
 « Xu Mu!! »
 
@@ -64,7 +64,7 @@ Wang Lin fit un pas, des ondulations apparurent sous ses pieds et il disparut.
 
 « Distorsion Spatiale!!! » Les yeux d'un cultivateur au début du stade du Scruteur du Nirvana s'écarquillèrent. Le choc et l'effroi remplirent son regard et son cuir chevelu se glaça. Prêt à perdre la raison, il recula sans hésiter.
 
-« Il maîtrise donc la Distorsion Spatiale! Peu importe le nombre d'hommes que compte mon Royaume de la Boucherie, il sera extrêmement difficile de le blesser! »
+« Il maîtrise donc la Distorsion Spatiale! Peu importe le nombre d'hommes que compte mon Royaume Sha Lu, il sera extrêmement difficile de le blesser! »
 
 La silhouette de Wang Lin disparut. Lorsqu'il réapparut, il se trouvait derrière un cultivateur Yin Illusoire. À peine apparu, son poing sembla frapper légèrement vers l'avant pour s'abattre sur le dos du cultivateur.
 
@@ -82,9 +82,9 @@ Le cultivateur poussa un gémissement étouffé, le visage livide. Cette épée 
 
 Cependant, une panique indicible surpassait tout le reste.
 
-« Être capable de s'emparer si facilement de mon trésor... Cet homme... Quel est donc son niveau de culture!?! » Ce cultivateur du stade intermédiaire Scruteur du Nirvana était célèbre même au sein du Royaume de la Boucherie; sa renommée surpassait celle du Tueur Yu Fei, et son rang était un peu plus élevé.
+« Être capable de s'emparer si facilement de mon trésor... Cet homme... Quel est donc son niveau de culture!?! » Ce cultivateur du stade intermédiaire Scruteur du Nirvana était célèbre même au sein du Royaume Sha Lu; sa renommée surpassait celle du Tueur Yu Fei, et son rang était un peu plus élevé.
 
-Pourtant, à cet instant, il était terrifié, d'autant plus qu'il se souvenait comment Yu Fei, bien qu'ayant réussi à s'échapper vers le Royaume de la Boucherie, avait été tué par une main gigantesque semblable à celle de tout à l'heure. Ce souvenir lui glaçait le sang.
+Pourtant, à cet instant, il était terrifié, d'autant plus qu'il se souvenait comment Yu Fei, bien qu'ayant réussi à s'échapper vers le Royaume Sha Lu, avait été tué par une main gigantesque semblable à celle de tout à l'heure. Ce souvenir lui glaçait le sang.
 
 Sans hésiter, il recula rapidement et frappa son sac de stockage. Une grande quantité de jades en jaillit et il cria: « Explosez! »
 
@@ -96,9 +96,9 @@ Dans un fracas, le corps de ce célèbre cultivateur s'effondra. Son âme origin
 
 À cet instant précis, Wang Lin sentit enfin l'ampleur de sa propre progression. Ce n'était pas que le cultivateur Scruteur du Nirvana était devenu faible, c'était que lui était devenu assez puissant pour s'élever parmi les plus grands!
 
-Quant à Qing Shui, dans un éclat de rire, il chargea vers la tour située au centre du Royaume de la Boucherie.
+Quant à Qing Shui, dans un éclat de rire, il chargea vers la tour située au centre du Royaume Sha Lu.
 
-Alors qu'il approchait, le vieil homme en robe noire assis à l'intérieur de la tour ouvrit soudainement les yeux, affichant une expression sombre. En tant que Vice-Maître du Royaume de la Boucherie, il ne put s'empêcher de trembler. Sans hésiter, son corps se divisa en deux vieux hommes identiques en robes noires. L'un d'eux agita sa main droite et une fissure apparut dans le vide.
+Alors qu'il approchait, le vieil homme en robe noire assis à l'intérieur de la tour ouvrit soudainement les yeux, affichant une expression sombre. En tant que Vice-Maître du Royaume Sha Lu, il ne put s'empêcher de trembler. Sans hésiter, son corps se divisa en deux vieux hommes identiques en robes noires. L'un d'eux agita sa main droite et une fissure apparut dans le vide.
 
 D'innombrables petits vortex émettant des sifflements se formèrent autour du bord de cette faille.
 
@@ -112,7 +112,7 @@ Au même moment, le corps de Qing Shui vacilla et il atteignit la tour. Ses main
 
 Instantanément, l'origine céleste de Qing Shui s'activa et un froid glacial se propagea depuis son corps. D'innombrables gouttes de pluie apparurent et se transformèrent aussitôt en cristaux de glace.
 
-Des craquements retentirent alors que tous les cristaux de glace se brisaient, libérant un rayon de lumière bleue. Cette lueur balaya le Royaume de la Boucherie. C'était comme si le monde entier changeait de teinte, plongeant le royaume dans un bleu profond. C'était comme si tous les passages reliant le Royaume de la Boucherie au reste du monde avaient été scellés.
+Des craquements retentirent alors que tous les cristaux de glace se brisaient, libérant un rayon de lumière bleue. Cette lueur balaya le Royaume Sha Lu. C'était comme si le monde entier changeait de teinte, plongeant le royaume dans un bleu profond. C'était comme si tous les passages reliant le Royaume Sha Lu au reste du monde avaient été scellés.
 
 Qing Shui émergea de cette lumière bleue et, d'un geste de la main droite, fit s'effondrer la tour en poussière. À l'intérieur se trouvait une fissure, et dans cette faille, un vieil homme en robe noire.
 

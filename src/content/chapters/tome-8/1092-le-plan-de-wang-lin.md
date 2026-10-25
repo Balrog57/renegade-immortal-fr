@@ -38,7 +38,7 @@ Outre Ta Shan et Maître Yi Chen, une autre personne était habitée par des sen
 
 « Maudit Wang Lin! Pourquoi n'as-tu pas encore laissé ton Grand-père Xu sortir?! Attends un peu, attends seulement! »
 
-Au cours des deux jours suivants, les anciens des trois autres Sectes Divines vinrent féliciter Wang Lin pour son accession au titre d'Empereur Divin de l'Oiseau Vermillon. La Secte Divine de l'Oiseau Vermillon était en pleine effervescence. Wang Lin se montra très poli envers les anciens des trois autres sectes. Après tout, les Quatre Sectes Divines partageaient un destin commun, et la majorité des anciens présents étaient allés à la Terre des Esprits Démoniaques. Ayant été témoins des sorts de Wang Lin, ils ne pouvaient naturellement ressentir de dédain face au fait qu'il n'était qu'un cultivateur du stade Scruteur du Nirvana.
+Au cours des deux jours suivants, les anciens des trois autres Sectes Divines vinrent féliciter Wang Lin pour son accession au titre d'Empereur Divin de l'Oiseau Vermillon. La Secte Divine de l'Oiseau Vermillon était en pleine effervescence. Wang Lin se montra très poli envers les anciens des trois autres sectes. Après tout, les Quatre Sectes Divines partageaient un destin commun, et la majorité des anciens présents étaient allés à la Terre Yao Ling. Ayant été témoins des sorts de Wang Lin, ils ne pouvaient naturellement ressentir de dédain face au fait qu'il n'était qu'un cultivateur du stade Scruteur du Nirvana.
 
 Après les civilités d'usage, des lieux de séjour furent aménagés pour les anciens des trois sectes, lesquels portaient une grande attention à Wang Lin.
 
@@ -58,7 +58,7 @@ Si cela ne s'était produit qu'une ou deux fois, ce n'aurait pas été grave, ma
 
 Wang Lin savait pertinemment qu'à mesure que son niveau de culture augmentait, sa capacité à pressentir le danger s'aiguisait également. Il était évident que ce sentiment de péril provenait de Tuo Sen!
 
-Le rugissement de Tuo Sen, lorsqu'il avait quitté la Terre de l'Ancien Dieu il y a plus de mille ans, semblait encore résonner dans l'esprit de Wang Lin.
+Le rugissement de Tuo Sen, lorsqu'il avait quitté la Terre Gu Shen il y a plus de mille ans, semblait encore résonner dans l'esprit de Wang Lin.
 
 « Un jour, je viendrai te chercher pour reprendre l'héritage de Tu Si! »
 
@@ -80,13 +80,13 @@ Wang Lin s'était cultivé pendant plus de mille ans; il n'était plus le petit 
 
 « Tuo Sen... Je ne te laisserai pas t'échapper si facilement. Ce monde est imprégné d'avidité. Je me demande combien de personnes seront attirées par la promesse d'un Ancien Dieu à huit étoiles... » Wang Lin afficha un sourire sinistre.
 
-À ce moment précis, un flux de flammes surgit du lointain. Lorsqu'il atteignit la centaine de pieds devant Wang Lin, les flammes se dissipèrent pour révéler un ancien vêtu de rouge. Le vieil homme, d'un calme olympien, regarda Wang Lin et déclara lentement: « Empereur Divin, la Secte des Cadavres, Luotian et le pays de Chu Yun ont tous envoyé des émissaires; ils attendent dans la salle arrière. Souhaitez-vous les recevoir? »
+À ce moment précis, un flux de flammes surgit du lointain. Lorsqu'il atteignit la centaine de pieds devant Wang Lin, les flammes se dissipèrent pour révéler un ancien vêtu de rouge. Le vieil homme, d'un calme olympien, regarda Wang Lin et déclara lentement: « Empereur Divin, la Secte Shi Yin, Luotian et le pays de Chu Yun ont tous envoyé des émissaires; ils attendent dans la salle arrière. Souhaitez-vous les recevoir? »
 
-Cet ancien n'était pas l'un des six qui s'étaient rendus à la Terre des Esprits Démoniaques. Wang Lin savait seulement qu'il s'appelait Xu et qu'il se trouvait au stade intermédiaire du Briseur du Nirvana. Il jouissait d'un grand prestige parmi les anciens de ce rang.
+Cet ancien n'était pas l'un des six qui s'étaient rendus à la Terre Yao Ling. Wang Lin savait seulement qu'il s'appelait Xu et qu'il se trouvait au stade intermédiaire du Briseur du Nirvana. Il jouissait d'un grand prestige parmi les anciens de ce rang.
 
 Au cours des derniers jours, de nombreux émissaires de l'Alliance étaient venus le féliciter. Wang Lin n'avait naturellement pas reçu ces personnes, car les membres et les anciens de la Secte Divine de l'Oiseau Vermillon s'en chargeaient.
 
-Quant à Luotian et la Secte des Cadavres, c'était la première fois qu'ils envoyaient quelqu'un. Wang Lin réfléchit un instant à son plan pour affronter Tuo Sen, puis changea d'avis sur sa décision de ne pas rencontrer ces émissaires.
+Quant à Luotian et la Secte Shi Yin, c'était la première fois qu'ils envoyaient quelqu'un. Wang Lin réfléchit un instant à son plan pour affronter Tuo Sen, puis changea d'avis sur sa décision de ne pas rencontrer ces émissaires.
 
 Wang Lin se leva et dit calmement: « Je vais les rencontrer. »
 
@@ -118,4 +118,4 @@ Si Wang Lin avait été présent, il aurait instantanément reconnu le vieil hom
 
 À ce moment-là, un junior de la Secte Divine de l'Oiseau Vermillon entra pour apporter des fruits et du thé. Après les avoir déposés, il se retira aussitôt.
 
-La belle femme saisit sa tasse et souffla sur le thé. Elle leva les yeux vers le vieillard et sourit: « Je présume que vous êtes Lie Yunzi de Luotian. Cette jeune fille est Li Yingzhi de la Secte des Cadavres. Salutations, Aîné. »
+La belle femme saisit sa tasse et souffla sur le thé. Elle leva les yeux vers le vieillard et sourit: « Je présume que vous êtes Lie Yunzi de Luotian. Cette jeune fille est Li Yingzhi de la Secte Shi Yin. Salutations, Aîné. »

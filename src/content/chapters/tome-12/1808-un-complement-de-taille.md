@@ -54,9 +54,9 @@ Dans le monde des grottes, il pouvait contrôler tout le feu du monde. Il y éta
 
 Cependant, la situation différait sur le Continent Astral Immortel. Non seulement il était un étranger, mais son essence de feu l'était aussi. Il lui serait très difficile de restaurer son pouvoir igné.
 
-Ce n'était pas un problème face à des adversaires plus faibles, mais contre des êtres puissants, cela pourrait s'avérer fatal! Dans la Secte du Dragon Bleu, bien qu'il ait semblé simple pour Wang Lin d'extraire l'âme du feu terrestre, la tâche ne l'était pas tant que cela.
+Ce n'était pas un problème face à des adversaires plus faibles, mais contre des êtres puissants, cela pourrait s'avérer fatal! Dans la Secte Cang Long, bien qu'il ait semblé simple pour Wang Lin d'extraire l'âme du feu terrestre, la tâche ne l'était pas tant que cela.
 
-Il n'avait pas réellement besoin d'extraire cette âme pour quitter la Secte du Dragon Bleu, mais il souhaitait tester le degré de rejet du feu local; c'est pourquoi il avait procédé à l'extraction.
+Il n'avait pas réellement besoin d'extraire cette âme pour quitter la Secte Cang Long, mais il souhaitait tester le degré de rejet du feu local; c'est pourquoi il avait procédé à l'extraction.
 
 La force de rejet était extrêmement puissante. Sous la manipulation forcée de Wang Lin, le dragon de feu avait tenté de se rebeller après son départ de la secte. Finalement, sous la pression de Wang Lin, le dragon s'était dissipé dans la terre.
 

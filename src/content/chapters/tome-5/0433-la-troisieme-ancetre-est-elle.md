@@ -52,7 +52,7 @@ L'Arbre de Réincarnation s'effondra instantanément, et le chaman à huit feuil
 
 Ce processus se poursuivit tandis que Wang Lin guidait l'âme Ascendante et l'Étendard de l'Âme au Milliard d'Âmes à travers la cinquième couche, balayant tout sur son passage. Les deux autres chamans à huit feuilles qui tentaient de guérir furent également exécutés; il raffina leurs corps et rangea leurs crânes.
 
-Wang Lin n'éprouvait aucune pitié pour le Clan des Immortels Délaissés. Il vola rapidement vers la sixième couche, tel un démon massacrant chaque membre du clan qu'il croisait sur sa route.
+Wang Lin n'éprouvait aucune pitié pour le Clan Xian Yi. Il vola rapidement vers la sixième couche, tel un démon massacrant chaque membre du clan qu'il croisait sur sa route.
 
 Ses cibles étaient les Arbres de Réincarnation.
 
@@ -70,13 +70,13 @@ Au total, en comptant celui qu'il avait tué précédemment, Wang Lin avait éli
 
 Sans cette âme Ascendante, Wang Lin aurait été stoppé à la sixième couche.
 
-Même le Clan des Immortels Délaissés n'aurait jamais imaginé qu'un cultivateur Ascendant puisse se frayer un chemin jusqu'au cœur de leur demeure.
+Même le Clan Xian Yi n'aurait jamais imaginé qu'un cultivateur Ascendant puisse se frayer un chemin jusqu'au cœur de leur demeure.
 
-Après tout, hormis Yun Quezi, il n'y avait que trois cultivateurs Ascendants sur la planète. Zhu Quezi se trouvait au Mont Suzaku, Chu Yunfei avait fui la planète, et le dernier Ascendant de la Secte de la Porte de la Terre était gravement blessé et se remettait dans un lieu secret.
+Après tout, hormis Yun Quezi, il n'y avait que trois cultivateurs Ascendants sur la planète. Zhu Quezi se trouvait au Mont Suzaku, Chu Yunfei avait fui la planète, et le dernier Ascendant de la Secte Di Po était gravement blessé et se remettait dans un lieu secret.
 
 S'il n'y avait pas eu de cultivateurs Ascendants, les défenses préparées pour la Nécropole Immortelle auraient suffi à repousser toute intrusion.
 
-De la sixième à la dixième couche, Wang Lin fit une récolte prodigieuse. S'il ignorait l'utilité des crânes, il n'avait pas prévu que le Clan des Immortels Délaissés possédât de telles réserves de pierres spirituelles.
+De la sixième à la dixième couche, Wang Lin fit une récolte prodigieuse. S'il ignorait l'utilité des crânes, il n'avait pas prévu que le Clan Xian Yi possédât de telles réserves de pierres spirituelles.
 
 Logiquement, ces pierres étaient inutiles pour eux. Leur pouvoir de tatouage provenait de bêtes démoniaques, les pierres spirituelles n'auraient donc dû présenter aucun intérêt.
 
@@ -86,11 +86,11 @@ Mais comparés à ces pierres, les crânes des chamans à huit feuilles suscitai
 
 Wang Lin pressentait que ces crânes n'étaient pas ordinaires et valaient bien plus que les pierres spirituelles.
 
-Son intuition était juste. Sur la planète Tian Yun, les essences de ceux utilisant des pouvoirs différents de la culture traditionnelle possédaient une valeur immense. L'essence des membres du Clan des Immortels Délaissés résidait dans leurs crânes. En utilisant une technique secrète, on pouvait extraire le tatouage du crâne pour en acquérir le pouvoir.
+Son intuition était juste. Sur la planète Tian Yun, les essences de ceux utilisant des pouvoirs différents de la culture traditionnelle possédaient une valeur immense. L'essence des membres du Clan Xian Yi résidait dans leurs crânes. En utilisant une technique secrète, on pouvait extraire le tatouage du crâne pour en acquérir le pouvoir.
 
 Et si l'on parvenait à obtenir le crâne d'un chaman à neuf feuilles ou plus, sa valeur devenait inestimable!
 
-Parmi les étoiles, certaines planètes abritent des indigènes dotés de pouvoirs mystérieux radicalement différents de ceux des cultivateurs. Ces peuples ont attiré l'attention de l'Alliance de Culture. L'Alliance ne les élimine pas, mais les capture d'une certaine manière: elle laisse les générations se multiplier afin de les récolter systématiquement et créer un approvisionnement inépuisable de ces essences.
+Parmi les étoiles, certaines planètes abritent des indigènes dotés de pouvoirs mystérieux radicalement différents de ceux des cultivateurs. Ces peuples ont attiré l'attention de l'Alliance Xiu Zhen. L'Alliance ne les élimine pas, mais les capture d'une certaine manière: elle laisse les générations se multiplier afin de les récolter systématiquement et créer un approvisionnement inépuisable de ces essences.
 
 Pour élever une race en captivité, il faut naturellement la nourrir...
 
@@ -100,7 +100,7 @@ Il ignorait combien de couches composaient la Nécropole Immortelle et, sans son
 
 Pourtant, un sentiment mystérieux lui soufflait que quelque chose dans cette couche l'appelait. Wang Lin eut un sourire froid; au lieu de s'élancer tête baissée, il entreprit de dresser une formation.
 
-Il s'agissait de la formation que Du Tian lui avait enseignée pour contrer le pouvoir de lignée de l'ancêtre du Clan des Démons Géants: un petit réseau de transfert.
+Il s'agissait de la formation que Du Tian lui avait enseignée pour contrer le pouvoir de lignée de l'ancêtre du Clan Ju Mo: un petit réseau de transfert.
 
 Il installa la formation avec aisance et y déposa un morceau de jade céleste. Wang Lin tourna son regard vers la onzième couche. Elle était plongée dans une obscurité totale d'où s'échappait une fumée noire. Cela différait nettement des couches précédentes.
 

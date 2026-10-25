@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1326 - Hunt
 slug: la-chasse
 ---
-Cependant, le doigt était d'une puissance inimaginable. Après la destruction du Bouclier de Lumière et d'Ombre, il semblait que le Monde du Vent et de la Pluie puisse se désintégrer à tout moment!
+Cependant, le doigt était d'une puissance inimaginable. Après la destruction du Bouclier de Lumière et d'Ombre, il semblait que le Monde Hu Feng Huan Yu puisse se désintégrer à tout moment!
 
-Le doigt creusa une immense concavité dans le Monde du Vent et de la Pluie. À mesure qu'il s'enfonçait, le monde tremblait avec une violence toujours plus grande. L’aura blanc laiteux résistait farouchement, tentant de compenser la force exercée par l'attaque!
+Le doigt creusa une immense concavité dans le Monde Hu Feng Huan Yu. À mesure qu'il s'enfonçait, le monde tremblait avec une violence toujours plus grande. L’aura blanc laiteux résistait farouchement, tentant de compenser la force exercée par l'attaque!
 
-Le corps de Wang Lin recula rapidement, sentant clairement que le Monde du Vent et de la Pluie ne pourrait plus résister longtemps. En cet instant de péril, ses yeux brillèrent d'une lueur de folie; il agita sa main droite pour ouvrir son espace de stockage.
+Le corps de Wang Lin recula rapidement, sentant clairement que le Monde Hu Feng Huan Yu ne pourrait plus résister longtemps. En cet instant de péril, ses yeux brillèrent d'une lueur de folie; il agita sa main droite pour ouvrir son espace de stockage.
 
-Dès que son espace de stockage apparut, le Monde du Vent et de la Pluie se contracta promptement jusqu’à ce qu’il soit à l'intérieur du corps de Wang Lin. Sans rien pour entraver sa course, le doigt pressa entre les sourcils de Wang Lin.
+Dès que son espace de stockage apparut, le Monde Hu Feng Huan Yu se contracta promptement jusqu’à ce qu’il soit à l'intérieur du corps de Wang Lin. Sans rien pour entraver sa course, le doigt pressa entre les sourcils de Wang Lin.
 
 Cependant, au moment où il allait l'atteindre, Wang Lin poussa un rugissement et l'immense os de doigt d'Ancien Dieu sortit de son espace de stockage pour intercepter l'attaque!
 
@@ -28,7 +28,7 @@ Un gémissement faible et délicat retentit alors que la main était tranchée e
 
 La femme en blanc devint livide et cracha du sang. Elle recula précipitamment et fusionna avec le monde pour s'échapper!
 
-« Tu ne peux pas t'échapper! » La poitrine de Wang Lin était un carnage de sang pur. Bien que le doigt ait été bloqué par le Bouclier de Lumière et d'Ombre, le Monde du Vent et de la Pluie et l'os de doigt de l'Ancien Dieu, une trace de l'attaque avait tout de même transpercé son torse. S'il s'était agi d'un cultivateur ordinaire, il aurait été soit tué, soit gravement blessé.
+« Tu ne peux pas t'échapper! » La poitrine de Wang Lin était un carnage de sang pur. Bien que le doigt ait été bloqué par le Bouclier de Lumière et d'Ombre, le Monde Hu Feng Huan Yu et l'os de doigt de l'Ancien Dieu, une trace de l'attaque avait tout de même transpercé son torse. S'il s'était agi d'un cultivateur ordinaire, il aurait été soit tué, soit gravement blessé.
 
 Toutefois, Wang Lin était un Ancien Dieu et possédait donc un puissant facteur de régénération. En un instant, sa blessure montra des signes de guérison. Tandis que la femme en blanc fuyait, Wang Lin rangea tous ses trésors et se lança à sa poursuite.
 
@@ -38,7 +38,7 @@ La situation était l'exact opposé de ce qui s'était produit auparavant: de pr
 
 « La culture de cette femme est étrange. Bien qu'elle ressemble à un avatar de projection, elle possède chair et sang. Si c'est le cas, elle doit absolument mourir! Si je ne profite pas de sa blessure pour l'éliminer, cela me causera des ennuis dans le futur! »
 
-« De plus, elle cache sûrement un secret. Le sort qu'elle vient d'utiliser invoquait manifestement la puissance de son corps original. Si mes sorts ne s'étaient pas renforcés lors de mon passage au Clan de la Soie Bleue, je serais mort! Cette femme connaît aussi le Système Stellaire Antique mieux que moi; je dois l'abattre au plus vite! Si elle s'enfuit dans un lieu où je ne peux la trouver, tout cela n'aura servi à rien! »
+« De plus, elle cache sûrement un secret. Le sort qu'elle vient d'utiliser invoquait manifestement la puissance de son corps original. Si mes sorts ne s'étaient pas renforcés lors de mon passage au Clan Lan Si, je serais mort! Cette femme connaît aussi le Système Stellaire Antique mieux que moi; je dois l'abattre au plus vite! Si elle s'enfuit dans un lieu où je ne peux la trouver, tout cela n'aura servi à rien! »
 
 Wang Lin continua de fusionner avec le monde pour la traquer et entamer sa chasse!
 
@@ -64,15 +64,15 @@ Il ne fallut qu'un instant pour que ces images tourmentées s'effondrent, laissa
 
 Wang Lin connaissait bien cette lueur blanche laiteuse: c'était la Flamme Joss!
 
-Cependant, la Flamme Joss de cette femme était d'une richesse extrême, ce qui surprit Wang Lin. Sa seule flamme suffisait à égaler près de 30 % des Flammes Joss présentes dans le Monde du Vent et de la Pluie!
+Cependant, la Flamme Joss de cette femme était d'une richesse extrême, ce qui surprit Wang Lin. Sa seule flamme suffisait à égaler près de 30 % des Flammes Joss présentes dans le Monde Hu Feng Huan Yu!
 
 Alors que l'aura laiteuse enveloppait son corps, le sang cessa de couler de sa blessure. Une fois l'hémorragie stoppée, elle recula avec anxiété. Protégée par cette aura, elle ignora l'énergie originelle déformée et fusionna à nouveau avec le monde!
 
-« Si cette femme peut devenir une âme dans mon Monde du Vent et de la Pluie... » Le cœur de Wang Lin battait la chamade. Dès que la femme disparut, il disparut presque au même instant pour reprendre la chasse!
+« Si cette femme peut devenir une âme dans mon Monde Hu Feng Huan Yu... » Le cœur de Wang Lin battait la chamade. Dès que la femme disparut, il disparut presque au même instant pour reprendre la chasse!
 
-Dans le domaine nord-ouest du Système Stellaire Antique se trouvait une planète de culture. C'était là le fief du Clan des Scorpions Démoniaques. Bien qu'il ne fût pas un grand clan, ils étaient célèbres pour leur cruauté!
+Dans le domaine nord-ouest du Système Stellaire Antique se trouvait une planète de culture. C'était là le fief du Clan Mo Xie. Bien qu'il ne fût pas un grand clan, ils étaient célèbres pour leur cruauté!
 
-Des ondulations résonnèrent aux abords d'une planète dans le domaine stellaire du Clan des Scorpions Démoniaques. La femme en blanc apparut, une traînée de sang coulant au coin de sa bouche. Elle n'hésita pas un instant à fusionner avec le monde pour fuir.
+Des ondulations résonnèrent aux abords d'une planète dans le domaine stellaire du Clan Mo Xie. La femme en blanc apparut, une traînée de sang coulant au coin de sa bouche. Elle n'hésita pas un instant à fusionner avec le monde pour fuir.
 
 « Plus que deux! Après deux tentatives de plus, j'arriverai là-bas et je serai hors de danger! »
 
@@ -88,7 +88,7 @@ Voyant qu'elle allait être capturée, elle mordit le bout de sa langue et crach
 
 Simultanément, elle poussa un cri lugubre:
 
-« Où est le Clan des Scorpions Démoniaques? Je suis l'un des avatars de la Concubine Lan! Vite, arrêtez cet homme! »
+« Où est le Clan Mo Xie? Je suis l'un des avatars de la Concubine Lan! Vite, arrêtez cet homme! »
 
 Dès que sa voix se propagea, des cultivateurs surgirent instantanément. En un éclair, plusieurs milliers d'entre eux s'élancèrent depuis la planète!
 

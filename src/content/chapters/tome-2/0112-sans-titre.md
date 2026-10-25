@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 112 - Inside the Pearl's Space
 slug: dans-lespace-de-la-perle
 ---
-Une fois qu'il aura atteint le stade intermédiaire de l'Établissement des Fondations, il pourra utiliser plusieurs techniques puissantes, notamment la Technique du Fantôme d'Âme de la Secte des Cadavres permettant d'invoquer des fantômes pour combattre.
+Une fois qu'il aura atteint le stade intermédiaire de l'Établissement des Fondations, il pourra utiliser plusieurs techniques puissantes, notamment la Technique du Fantôme d'Âme de la Secte Shi Yin permettant d'invoquer des fantômes pour combattre.
 
 Afin d'arracher l'étendard d'âme de Teng Huayuan lors de leur affrontement, Wang Lin se creusait la tête et était résolu à déployer tous les moyens à sa disposition.
 

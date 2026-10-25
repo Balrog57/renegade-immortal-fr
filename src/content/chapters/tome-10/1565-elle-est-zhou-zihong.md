@@ -22,7 +22,7 @@ Ses paroles provoquèrent un tollé parmi les cultivateurs environnants.
 
 « Rien n'est impossible. Comment le Seigneur du Royaume Scellé pourrait-il être quelqu'un que notre imagination puisse concevoir? »
 
-« Plus le niveau de culture est bas, plus l'écart entre les gens est faible. Bien que la différence ne soit pas grande, les sorts et les trésors qu'un cultivateur de l'Établissement des Fondations peut utiliser sont très limités. Je ne m'attendais pas à ce que le Seigneur du Royaume Scellé soit déjà aussi puissant à cette époque; il n'est pas étonnant qu'il ait pu renverser la situation dans la Mer des Nuages! »
+« Plus le niveau de culture est bas, plus l'écart entre les gens est faible. Bien que la différence ne soit pas grande, les sorts et les trésors qu'un cultivateur de l'Établissement des Fondations peut utiliser sont très limités. Je ne m'attendais pas à ce que le Seigneur du Royaume Scellé soit déjà aussi puissant à cette époque; il n'est pas étonnant qu'il ait pu renverser la situation dans la Mer Yun! »
 
 Tandis qu'ils débattaient, l'homme en blanc qui venait d'entrer se frotta le nez et s'approcha du cultivateur en noir. Il adressa un sourire gracieux au cultivateur excité et posa sa main sur lui. Il pressa le cultivateur en noir, qui s'apprêtait à se lever, pour le contraindre à rester assis.
 
@@ -48,7 +48,7 @@ Il était Treize, le loyal et impitoyable Treize!
 
 Personne n'avait remarqué l'entrée du jeune homme en blanc. Toute l'attention était captée par la femme en violet.
 
-« Par la suite, j'ai entendu dire qu'il avait sauvé Li Muwan et que, poursuivi par un cultivateur de la Formation du Noyau, il s'était enfoncé dans un lieu extrêmement dangereux sur la planète Suzaku... On l'appelait... la Mer des Démons. » La voix de la femme en violet résonnait tandis qu'elle exhumait le passé.
+« Par la suite, j'ai entendu dire qu'il avait sauvé Li Muwan et que, poursuivi par un cultivateur de la Formation du Noyau, il s'était enfoncé dans un lieu extrêmement dangereux sur la planète Suzaku... On l'appelait... la Mer Xiu Mo. » La voix de la femme en violet résonnait tandis qu'elle exhumait le passé.
 
 En écoutant le récit, Wang Lin saisit une coupe et but une gorgée. Ses yeux étaient empreints de souvenirs et un léger sourire étira ses lèvres. Il se remémora Li Muwan traquée par ce cultivateur de la Formation du Noyau, son regard impuissant et ses appels à l'aide.
 

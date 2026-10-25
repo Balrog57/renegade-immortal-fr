@@ -18,7 +18,7 @@ Mais à cet instant précis, une puissance mystérieuse émanant du cristal pén
 
 D'étranges symboles apparurent un à un dans son esprit.
 
-Ces glyphes clignotaient et se déplaçaient comme la foudre au sein de son cerveau. Wang Lin ne fut pas surpris, car il avait déjà vécu une telle expérience: lorsqu'il avait absorbé, dans la Terre de l'Ancien Dieu, l'héritage de connaissances de l'Ancien Dieu Tu Si, la même chose s'était produite.
+Ces glyphes clignotaient et se déplaçaient comme la foudre au sein de son cerveau. Wang Lin ne fut pas surpris, car il avait déjà vécu une telle expérience: lorsqu'il avait absorbé, dans la Terre Gu Shen, l'héritage de connaissances de l'Ancien Dieu Tu Si, la même chose s'était produite.
 
 Tandis que ces symboles scintillaient dans sa tête, diverses scènes résonnèrent dans son esprit.
 
@@ -32,7 +32,7 @@ L'homme pénétra rapidement dans la pagode.
 
 « Arrêtez! » Une voix s'éleva de l'intérieur de la structure. Cette voix, également empreinte de majesté, aurait fait trembler le cœur de n'importe qui.
 
-Mais l'expression de l'homme d'âge moyen resta imperturbable. Il s'inclina et dit: « Ce junior est Ye Wuyou, du pays de Suzaku, nation de culture de rang 6 tout juste promue. Je suis ici sur ordre de l'Alliance de Culture pour obtenir le Sceau de Suzaku. »
+Mais l'expression de l'homme d'âge moyen resta imperturbable. Il s'inclina et dit: « Ce junior est Ye Wuyou, du pays de Suzaku, nation de culture de rang 6 tout juste promue. Je suis ici sur ordre de l'Alliance Xiu Zhen pour obtenir le Sceau de Suzaku. »
 
 Le corps de Wang Lin trembla. Tout son esprit fut aspiré par un vortex dans ce souvenir. Pourtant, dans le monde réel, non seulement ses pas ne s'arrêtèrent pas, mais un phénomène encore plus étrange se produisit.
 
@@ -48,7 +48,7 @@ Dans la vision qui habitait l'esprit de Wang Lin, l'homme entra dans la pagode. 
 
 « Le Sceau de Suzaku est une technique de bas rang et un héritage. Il faut être un cultivateur titré pour pouvoir l'utiliser. »
 
-La voix provenait du vide et, simultanément, un sceau rouge apparut dans les airs. Ce sceau était extrêmement complexe; pendant un instant, il eut l'impression qu'il ressemblait aux tatouages sur les crânes des membres du Clan des Immortels Délaissés.
+La voix provenait du vide et, simultanément, un sceau rouge apparut dans les airs. Ce sceau était extrêmement complexe; pendant un instant, il eut l'impression qu'il ressemblait aux tatouages sur les crânes des membres du Clan Xian Yi.
 
 Mais après un examen attentif, il s'avéra totalement différent. Cette sensation était très troublante.
 

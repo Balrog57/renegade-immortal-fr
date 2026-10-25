@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1518 - Can’t Retreat !!"
 slug: pas-de-retraite-possible
 ---
-Le lieu de la première bataille contre le Royaume Intérieur était le Système Stellaire de la Mer des Nuages! L'endroit qu'ils s'apprêtaient à forcer se trouvait précisément là où Wang Lin passait!
+Le lieu de la première bataille contre le Royaume Intérieur était le Système Stellaire de la Mer Yun! L'endroit qu'ils s'apprêtaient à forcer se trouvait précisément là où Wang Lin passait!
 
 Les tremblements de la Formation de Scellement du Royaume se propageaient dans le Royaume Intérieur. Wang Lin vit clairement que le réseau qui constituait la formation devenait chaotique, comme si une force tentait de la transpercer!
 
@@ -132,13 +132,13 @@ Après ces mots, les cinq trésors combattant les cinq esprits de la formation t
 
 Dans la fissure spatiale imprégnée d'énergie spirituelle céleste du Système Stellaire Antique, un éclair de froideur passa dans les yeux de la femme d'âge moyen qui se tenait au sommet de la montagne. Ses mains formèrent un sceau et elle dit doucement: « Explose! »
 
-Dans le Clan de la Soie Bleue, au sommet du Mont Bleu, Lanmeng Daozun regarda l'épingle à cheveux avec stupeur. Il leva sa main droite, forma un sceau et dit, impuissant: « Explose! »
+Dans le Clan Lan Si, au sommet du Mont Bleu, Lanmeng Daozun regarda l'épingle à cheveux avec stupeur. Il leva sa main droite, forma un sceau et dit, impuissant: « Explose! »
 
 Dans la partie extrême ouest du Système Stellaire Antique, sur les neuf planètes gelées, le garçon leva la main droite et murmura: « Explose! »
 
 Dans une fissure spatiale saturée d'énergie spirituelle céleste, une femme en rouge était assise sur un continent. Ses yeux brillèrent et elle esquissa un sourire qui n'en était pas un lorsqu'elle dit doucement: « Explose! »
 
-À l'extérieur de la Formation de Scellement du Royaume, à l'intérieur du Palais de la Punition Céleste, un rugissement éclata!
+À l'extérieur de la Formation de Scellement du Royaume, à l'intérieur du Palais Tian Fa, un rugissement éclata!
 
 « Explose! »
 

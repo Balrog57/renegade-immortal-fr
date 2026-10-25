@@ -136,7 +136,7 @@ Wang Lin se demandait pourquoi le vieux Hu avait amené Xu Luo et la femme ici. 
 
 Il ne posa pas davantage de questions. Avec son tempérament, à moins que l'aide ne soit sans effort, il ne prendrait aucun risque pour les sauver.
 
-Au deuxième étage, ils apercevaient occasionnellement des ossements ou même des cadavres de bêtes en décomposition. Ils différaient tous de ceux de la Mer des Démons; Wang Lin n'en reconnut aucun.
+Au deuxième étage, ils apercevaient occasionnellement des ossements ou même des cadavres de bêtes en décomposition. Ils différaient tous de ceux de la Mer Xiu Mo; Wang Lin n'en reconnut aucun.
 
 Alors qu'ils pénétraient dans ce niveau, Wang Lin fut surpris par une lueur sombre apparue à une trentaine de mètres d'eux. La lumière ne chercha pas à s'approcher, mais se mua en un sauvage.
 

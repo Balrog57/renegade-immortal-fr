@@ -6,31 +6,31 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1892 - The Dream of the Past Comes True!"
 slug: le-reve-du-passe-devient-realite
 ---
-L'essence de tonnerre de Wang Lin devint encore plus puissante à mesure qu'il continuait son absorption. Grâce à la Perle Défiant le Ciel, le maître de la Secte du Dao Démoniaque était incapable de condenser sa volonté pour effacer l'esprit de Wang Lin.
+L'essence de tonnerre de Wang Lin devint encore plus puissante à mesure qu'il continuait son absorption. Grâce à la Perle Défiant le Ciel, le maître de la Secte Dao Mo était incapable de condenser sa volonté pour effacer l'esprit de Wang Lin.
 
-Cependant, à cet instant, après que le maître de la Secte du Dao Démoniaque eut dévoré la Perle de l'Empereur du Tonnerre, l'essence de tonnerre infinie qui pénétrait son corps fut absorbée par celui de Wang Lin avec une frénésie folle.
+Cependant, à cet instant, après que le maître de la Secte Dao Mo eut dévoré la Perle de l'Empereur du Tonnerre, l'essence de tonnerre infinie qui pénétrait son corps fut absorbée par celui de Wang Lin avec une frénésie folle.
 
 Le corps de Wang Lin trembla violemment et ses longs cheveux s'agitèrent sans qu'aucun vent ne soufflât. D'innombrables arcs de tonnerre dansaient autour de lui, dégageant une puissance tonitruante sans fin.
 
 Cette puissance était capable de briser les cieux, au point que cet espace vert lui-même en trembla. La lumière verdâtre s'amalgama pour former une multitude de scorpions verts autour de Wang Lin, qui poussèrent des rugissements silencieux.
 
-Pourtant, alors que cette essence de tonnerre incroyablement puissante pénétrait le corps de Wang Lin et s'apprêtait à condenser la volonté du maître de la Secte du Dao Démoniaque, la Perle Défiant le Ciel tourna lentement. Elle aspira une partie de cette volonté. Ce fut comme un bassin plein à ras bord qui, au moment de déborder, perdrait soudain un peu d'eau; un équilibre fut atteint, puis le niveau commença à baisser lentement.
+Pourtant, alors que cette essence de tonnerre incroyablement puissante pénétrait le corps de Wang Lin et s'apprêtait à condenser la volonté du maître de la Secte Dao Mo, la Perle Défiant le Ciel tourna lentement. Elle aspira une partie de cette volonté. Ce fut comme un bassin plein à ras bord qui, au moment de déborder, perdrait soudain un peu d'eau; un équilibre fut atteint, puis le niveau commença à baisser lentement.
 
-« Comment est-ce possible?! » À l'extérieur du bâtiment des scorpions, le maître de la Secte du Dao Démoniaque, assis en tailleur dans la brume, ouvrit soudain les yeux, révélant une expression d'incrédulité. Il ne pouvait pas voir la Perle Défiant le Ciel à l'intérieur du corps de Wang Lin. Pour lui, le corps de ce dernier paraissait normal, et il n'avait aucune idée de ce qu'était devenue sa volonté évanouie.
+« Comment est-ce possible?! » À l'extérieur du bâtiment des scorpions, le maître de la Secte Dao Mo, assis en tailleur dans la brume, ouvrit soudain les yeux, révélant une expression d'incrédulité. Il ne pouvait pas voir la Perle Défiant le Ciel à l'intérieur du corps de Wang Lin. Pour lui, le corps de ce dernier paraissait normal, et il n'avait aucune idée de ce qu'était devenue sa volonté évanouie.
 
-Il n'était pas le seul à remarquer que quelque chose clochait. À l'intérieur du Temple du Scorpion du Démon Vert, le vieil homme nommé Ji Si fronça également les sourcils. Après avoir marmonné quelques mots, il toussa et agita sa manche.
+Il n'était pas le seul à remarquer que quelque chose clochait. À l'intérieur du Temple Lü Mo Xie, le vieil homme nommé Ji Si fronça également les sourcils. Après avoir marmonné quelques mots, il toussa et agita sa manche.
 
-Un autre éclair de tonnerre jaillit du bâtiment des scorpions et se transforma en une nouvelle Perle de l'Empereur du Tonnerre, qui vola ensuite vers le maître de la Secte du Dao Démoniaque.
+Un autre éclair de tonnerre jaillit du bâtiment des scorpions et se transforma en une nouvelle Perle de l'Empereur du Tonnerre, qui vola ensuite vers le maître de la Secte Dao Mo.
 
-Une voix vieille et rauque retentit, entremêlée de toux: « La dernière Perle de l'Empereur du Tonnerre. Même le Continent de l'Empereur du Tonnerre en possède moins de trois exemplaires. Si tu ne réussis toujours pas, alors toutes les promesses passées seront nulles! »
+Une voix vieille et rauque retentit, entremêlée de toux: « La dernière Perle de l'Empereur du Tonnerre. Même le Continent Lei Di en possède moins de trois exemplaires. Si tu ne réussis toujours pas, alors toutes les promesses passées seront nulles! »
 
-Le maître de la Secte du Dao Démoniaque était extrêmement sombre. Il n'avait pas imaginé que les choses prendraient une tournure aussi étrange. Il fixa la Perle de l'Empereur du Tonnerre, les veines de son visage saillantes sous l'effort. Puis, il ouvrit la bouche et aspira. Le tonnerre se précipita dans sa gorge.
+Le maître de la Secte Dao Mo était extrêmement sombre. Il n'avait pas imaginé que les choses prendraient une tournure aussi étrange. Il fixa la Perle de l'Empereur du Tonnerre, les veines de son visage saillantes sous l'effort. Puis, il ouvrit la bouche et aspira. Le tonnerre se précipita dans sa gorge.
 
-Dès l'instant où il dévora la perle, le maître de la Secte du Dao Démoniaque forma un sceau qu'il pressa contre ses sourcils, puis poussa un rugissement vers les cieux.
+Dès l'instant où il dévora la perle, le maître de la Secte Dao Mo forma un sceau qu'il pressa contre ses sourcils, puis poussa un rugissement vers les cieux.
 
 « Essence de tonnerre, disperse-toi! » rugit-il. Sans l'ombre d'une hésitation, il relâcha toute l'essence de tonnerre contenue dans son corps, laquelle se précipita vers Wang Lin. Ce tonnerre portait toute sa volonté; il devait réussir cette fois!
 
-L'essence de tonnerre contenait également la puissante poussée provenant de la seconde Perle de l'Empereur du Tonnerre. Elle propulsa la volonté du maître de la Secte du Dao Démoniaque vers Wang Lin avec rapidité.
+L'essence de tonnerre contenait également la puissante poussée provenant de la seconde Perle de l'Empereur du Tonnerre. Elle propulsa la volonté du maître de la Secte Dao Mo vers Wang Lin avec rapidité.
 
 Alors que cette essence indescriptible fonçait en avant, le corps de Wang Lin, dans l'espace vert, trembla une fois de plus. Des arcs de tonnerre, des dizaines de fois plus nombreux, entourèrent son corps et s'étendirent soudainement sur un rayon de mille pieds. La zone environnante devint un véritable enfer de tonnerre!
 
@@ -44,7 +44,7 @@ En un éclair, tout le tonnerre alentour fut absorbé, puis une quantité encore
 
 C'était une quantité de tonnerre suffisante pour ébranler le monde. La foudre occupait chaque recoin de cet espace, remplaçant presque la lumière verte et transformant cette dimension en un domaine de tonnerre!
 
-Cette masse de foudre se précipita dans le contour humain de la marque. Le grondement, qui se répandit sur près d'un million de kilomètres à la ronde, était si puissant qu'il s'entendait clairement à l'extérieur du Temple du Scorpion du Démon Vert. La fusion de tout ce tonnerre fit trembler une partie du Continent du Démon Vert.
+Cette masse de foudre se précipita dans le contour humain de la marque. Le grondement, qui se répandit sur près d'un million de kilomètres à la ronde, était si puissant qu'il s'entendait clairement à l'extérieur du Temple Lü Mo Xie. La fusion de tout ce tonnerre fit trembler une partie du Continent Lu Mo.
 
 Le contour humanoïde continua d'absorber les éclairs et grandit rapidement. À l'intérieur, des os faits de tonnerre commencèrent à se former. Chaque os était constitué d'innombrables filaments de foudre étroitement assemblés. En un instant, un squelette complet apparut.
 
@@ -54,13 +54,13 @@ Ses yeux étaient clos et il était enveloppé de foudre. Né du tonnerre, sa si
 
 Un véritable corps d'essence de tonnerre!
 
-C'est ainsi que naquit le corps d'essence de tonnerre dont Wang Lin avait rêvé. Cependant, ce corps n'appartenait pas à Wang Lin, mais au maître de la Secte du Dao Démoniaque! Car ce corps d'essence contenait la volonté de ce dernier!
+C'est ainsi que naquit le corps d'essence de tonnerre dont Wang Lin avait rêvé. Cependant, ce corps n'appartenait pas à Wang Lin, mais au maître de la Secte Dao Mo! Car ce corps d'essence contenait la volonté de ce dernier!
 
-À l'extérieur du bâtiment des scorpions, le maître de la Secte du Dao Démoniaque luttait. Il sentit l'existence du véritable corps d'essence de tonnerre et fut stupéfait. Il avait une fois de plus sous-estimé Wang Lin. Il n'avait pas pensé que la compréhension de cette essence par Wang Lin serait si profonde, au point qu'après avoir formé le corps d'essence de feu, il posséderait le potentiel de donner naissance à un second corps d'essence!
+À l'extérieur du bâtiment des scorpions, le maître de la Secte Dao Mo luttait. Il sentit l'existence du véritable corps d'essence de tonnerre et fut stupéfait. Il avait une fois de plus sous-estimé Wang Lin. Il n'avait pas pensé que la compréhension de cette essence par Wang Lin serait si profonde, au point qu'après avoir formé le corps d'essence de feu, il posséderait le potentiel de donner naissance à un second corps d'essence!
 
-À cet instant, le maître de la Secte du Dao Démoniaque était face à un dilemme. Il désirait ardemment ce corps d'essence, mais s'il se l'appropriait, il ne pourrait remplir la requête de Ji Si.
+À cet instant, le maître de la Secte Dao Mo était face à un dilemme. Il désirait ardemment ce corps d'essence, mais s'il se l'appropriait, il ne pourrait remplir la requête de Ji Si.
 
-Alors qu'il hésitait, une toux retentit depuis le bâtiment des scorpions. En entendant cela, le maître de la Secte du Dao Démoniaque afficha un regard résolu.
+Alors qu'il hésitait, une toux retentit depuis le bâtiment des scorpions. En entendant cela, le maître de la Secte Dao Mo afficha un regard résolu.
 
 « Comparés aux bénéfices promis par le Scorpion du Démon Vert une fois réveillé, bien que le corps d'essence de tonnerre soit précieux, il n'est pas impossible de s'en passer! » Ses mains formèrent rapidement des sceaux et il pointa l'espace entre ses sourcils. Il ferma les yeux et concentra toute son attention sur le corps d'essence de tonnerre surplombant Wang Lin dans l'espace vert du scorpion!
 
@@ -68,11 +68,11 @@ Le véritable corps d'essence de tonnerre trembla. Les yeux clos, il leva sa mai
 
 Ils sortirent de ses yeux, de ses oreilles, de son nez et de sa bouche, pour pénétrer un à un dans les orifices correspondants du corps d'essence. Dès que ces sept filaments furent absorbés, le corps d'essence ouvrit les yeux!
 
-Il révéla un regard sombre, imprégné de l'aura du maître de la Secte du Dao Démoniaque. Son corps frémit et le tonnerre du monde entier trembla avec lui. À l'extérieur du scorpion, à l'extérieur du temple, d'immenses quantités de foudre spectaculaire apparurent sur la majeure partie du Continent du Démon Vert.
+Il révéla un regard sombre, imprégné de l'aura du maître de la Secte Dao Mo. Son corps frémit et le tonnerre du monde entier trembla avec lui. À l'extérieur du scorpion, à l'extérieur du temple, d'immenses quantités de foudre spectaculaire apparurent sur la majeure partie du Continent Lu Mo.
 
-Des grondements tonitruants retentirent et se précipitèrent vers le Temple du Scorpion du Démon Vert au centre à une vitesse inimaginable!
+Des grondements tonitruants retentirent et se précipitèrent vers le Temple Lü Mo Xie au centre à une vitesse inimaginable!
 
-La rapidité de ce tonnerre était indescriptible, plus véloce que n'importe quel cultivateur. C'était comme une distorsion spatiale. Tout convergea vers l'espace vert à l'intérieur du scorpion, au sein du Temple du Scorpion du Démon Vert.
+La rapidité de ce tonnerre était indescriptible, plus véloce que n'importe quel cultivateur. C'était comme une distorsion spatiale. Tout convergea vers l'espace vert à l'intérieur du scorpion, au sein du Temple Lü Mo Xie.
 
 Instantanément, le corps d'essence de tonnerre fut enveloppé par cette déferlante, formant une armure. Une couronne se forma également sur sa tête!
 
@@ -86,6 +86,6 @@ Dès que Wang Lin reprit conscience, il ouvrit les yeux et vit le véritable cor
 
 En voyant cette entité, Wang Lin frémit un instant. Il était encore hébété, mais comprit bientôt la situation!
 
-Il fut saisi par l'effroi face à la scène de choc qui lui était apparue, parmi les changements de l'avenir qu'il avait entrevus, lorsqu'il avait utilisé pour la première fois le Dao de l'Œil de l'Âme dans la Secte de la Grande Âme! Cette scène était exactement la même que celle qu'il contemplait maintenant!
+Il fut saisi par l'effroi face à la scène de choc qui lui était apparue, parmi les changements de l'avenir qu'il avait entrevus, lorsqu'il avait utilisé pour la première fois le Dao de l'Œil de l'Âme dans la Secte Da Hun! Cette scène était exactement la même que celle qu'il contemplait maintenant!
 
 À l'époque, Wang Lin avait vu son propre corps d'essence de tonnerre s'apprêter à utiliser la foudre pour le supprimer. Il ne comprenait pas comment son propre corps d'essence pouvait agir ainsi! Après tout, ce corps avait été formé par lui et lui appartenait entièrement. Ce qu'il avait vu paraissait impossible, et pourtant, c'était devenu réalité!

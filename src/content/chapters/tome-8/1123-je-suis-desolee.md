@@ -14,7 +14,7 @@ Il put néanmoins constater que le matériau dont elle était faite n'était pas
 
 « Qu'est-ce que c'est? » L'homme leva la tête et fixa Wang Lin.
 
-Wang Lin déclara calmement: « L'ancien Empereur Divin de l'Oiseau Vermillon a découvert un secret au siège de l'Alliance avant sa mort. Il m'a chargé de le transmettre au Royaume du Vide Brillant! »
+Wang Lin déclara calmement: « L'ancien Empereur Divin de l'Oiseau Vermillon a découvert un secret au siège de l'Alliance avant sa mort. Il m'a chargé de le transmettre au Royaume Kun Xu! »
 
 L'homme hocha la tête, comprenant que cette affaire était grave. Son expression devint plus solennelle encore alors qu'il joignit les mains et dit: « Merci! »
 
@@ -24,11 +24,11 @@ Wang Lin agita sa main droite et projeta trois âmes originelles sur le côté. 
 
 Cette pierre de jade projetait une scène. Elle enregistrait clairement ce qui s'était produit avec les quatre gardiens devant la porte.
 
-L'homme d'âge moyen la regarda et dit calmement: « Nous remercions l'Empereur Divin de leur avoir donné une leçon en notre nom. Cependant, une leçon reste une leçon, et tuer un membre de mon Royaume du Vide Brillant est un peu excessif. »
+L'homme d'âge moyen la regarda et dit calmement: « Nous remercions l'Empereur Divin de leur avoir donné une leçon en notre nom. Cependant, une leçon reste une leçon, et tuer un membre de mon Royaume Kun Xu est un peu excessif. »
 
 Wang Lin répondit avec calme: « Ce n'est qu'un accident. »
 
-L'homme fixa Wang Lin avec un sourire. « Cette affaire est d'une importance capitale. Je vais demander à l'Empereur Divin de bien vouloir rester quelques jours dans le Royaume du Vide Brillant, le temps que je transmette la pierre de jade... »
+L'homme fixa Wang Lin avec un sourire. « Cette affaire est d'une importance capitale. Je vais demander à l'Empereur Divin de bien vouloir rester quelques jours dans le Royaume Kun Xu, le temps que je transmette la pierre de jade... »
 
 Avant qu'il ne puisse achever sa phrase, une voix féminine et glaciale résonna.
 
@@ -68,7 +68,7 @@ Mu Bingmei esquissa un sourire amer. Zhou Ru ne comprenait pas qu'une fois parti
 
 Zhou Ru s'approcha docilement de Mu Bingmei. Wang Lin voulut initialement l'interrompre, mais après avoir hésité, il resta silencieux.
 
-Elle enroula les cheveux de Zhou Ru et y inséra personnellement l'épingle. Mu Bingmei effleura doucement le sommet de la tête de la jeune fille. La froideur qui régnait dans ses yeux disparut et elle murmura: « Souviens-toi que tu seras toujours ma disciple, ma seule et unique disciple... Le Royaume du Vide Brillant est ta seconde maison. Tu... peux partir. »
+Elle enroula les cheveux de Zhou Ru et y inséra personnellement l'épingle. Mu Bingmei effleura doucement le sommet de la tête de la jeune fille. La froideur qui régnait dans ses yeux disparut et elle murmura: « Souviens-toi que tu seras toujours ma disciple, ma seule et unique disciple... Le Royaume Kun Xu est ta seconde maison. Tu... peux partir. »
 
 « Maîtresse! » Des larmes coulèrent sur les joues de Zhou Ru. Elle avait le pressentiment que sa maîtresse et son oncle se connaissaient; mais qu'ils n'étaient pas amis, plutôt ennemis. Elle craignait qu'une fois partie, elle ne reverrait jamais sa maîtresse.
 

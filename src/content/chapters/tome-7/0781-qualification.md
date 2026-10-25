@@ -14,7 +14,7 @@ Le temps s'écoula rapidement et, en un clin d'œil, des mois passèrent. À mes
 
 Une fois arrivés sur place, ils ne virent plus aucun autre cultivateur. L'endroit était plongé dans une obscurité totale et ne laissait présager aucune présence.
 
-Suspendu dans le vide, Wang Lin observa attentivement les environs. Dans les souvenirs du vieillard de la famille Yao, le fragment scellé contenant le Pavillon des Collections se trouvait précisément ici!
+Suspendu dans le vide, Wang Lin observa attentivement les environs. Dans les souvenirs du vieillard de la famille Yao, le fragment scellé contenant le Pavillon Cang Jue se trouvait précisément ici!
 
 Wang Lin demanda: « Frère Li, percevez-vous une anomalie en ce lieu? »
 
@@ -76,7 +76,7 @@ L'homme en robe noire avait le regard glacial. Il avait depuis longtemps remarqu
 
 Peu après, un éclair de tonnerre céleste surgit des cieux et fondit sur Wang Lin.
 
-« Ceci est le Royaume Céleste du Tonnerre, et le Pavillon des Collections appartient au Royaume Céleste. Pourquoi vos quatre grandes familles peuvent-elles venir, alors que moi, je ne le peux pas?! » Wang Lin laissa échapper un ricanement froid et chargea. Bien que le tonnerre céleste descendît sur lui, Wang Lin ne chercha nullement à l'esquiver. Son âme originelle surgit et dévora le tonnerre céleste.
+« Ceci est le Royaume Céleste du Tonnerre, et le Pavillon Cang Jue appartient au Royaume Céleste. Pourquoi vos quatre grandes familles peuvent-elles venir, alors que moi, je ne le peux pas?! » Wang Lin laissa échapper un ricanement froid et chargea. Bien que le tonnerre céleste descendît sur lui, Wang Lin ne chercha nullement à l'esquiver. Son âme originelle surgit et dévora le tonnerre céleste.
 
 La foudre enveloppa immédiatement son corps, lui conférant une apparence terrifiante.
 
@@ -98,7 +98,7 @@ Les trois autres individus sur le pavillon ouvrirent les yeux. En un éclair, il
 
 Les trois restants étaient également au stade Corporel Yang. Désormais, quatre cultivateurs du stade Corporel Yang se tenaient là, leurs auras puissantes verrouillées sur Wang Lin. Une épaisse intention meurtrière imprégna l'air.
 
-Le regard de Wang Lin devint glacial et il déclara lentement: « Le Pavillon des Collections n'appartient pas à vos quatre familles. Laissez-moi passer et nous éviterons le combat. Sinon, même si je succombe, la moitié d'entre vous mourra! »
+Le regard de Wang Lin devint glacial et il déclara lentement: « Le Pavillon Cang Jue n'appartient pas à vos quatre familles. Laissez-moi passer et nous éviterons le combat. Sinon, même si je succombe, la moitié d'entre vous mourra! »
 
 L'un d'eux répondit froidement: « À moins d'atteindre le stade Scruteur du Nirvana, aucun étranger n'est qualifié pour entrer dans le pavillon! » Ils avaient naturellement perçu le niveau de culture de Wang Lin, et la scène précédente les avait grandement surpris. Cependant, étant quatre, ils ne craignaient pas son opposition.
 
@@ -128,7 +128,7 @@ Wang Lin ne daigna même pas un regard à cet assaillant; l'os de bête sur le d
 
 Simultanément, Wang Lin frappa son sac de rangement et le Drapeau des Âmes d'un Milliard en sortit. Il se transforma en une vaste brume noire tentant d'engloutir l'homme en robe noire. Ce dernier s'apprêtait à résister, mais il aperçut alors l'âme originelle féroce de Xue Zu scintiller à l'intérieur du drapeau. Ce visage familier le terrifia et lui fit perdre tout contrôle. Il se retrouva aussitôt encerclé par la brume noire.
 
-Tout cela fut exécuté avec une précision chirurgicale. Après avoir capturé l'âme originelle de l'homme en robe noire, Wang Lin agita ses manches, propageant la brume noire sur un rayon de 330 mètres. Il fixa les trois survivants et dit d'un ton sombre: « Je veux entrer dans le Pavillon des Collections! »
+Tout cela fut exécuté avec une précision chirurgicale. Après avoir capturé l'âme originelle de l'homme en robe noire, Wang Lin agita ses manches, propageant la brume noire sur un rayon de 330 mètres. Il fixa les trois survivants et dit d'un ton sombre: « Je veux entrer dans le Pavillon Cang Jue! »
 
 L'esprit des deux qui résistaient au sceau du fragment trembla. Avant qu'ils ne puissent réagir, un autre cri retentit. Ils virent le cultivateur de la tornade reculer précipitamment. L'os de bête dégageait une lueur fantomatique, libérant une aura monstrueuse et maléfique qui semblait saturer le monde.
 

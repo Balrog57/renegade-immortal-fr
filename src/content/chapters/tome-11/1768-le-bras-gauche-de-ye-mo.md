@@ -20,7 +20,7 @@ L'effet d'une seule goutte de sang ne suffirait pas à produire un tel résultat
 
 Wang Lin sentit la différence en lui. Bien que ses trois pouvoirs des anciens clans soient toujours au stade de huit étoiles, elles étaient devenues plus solides et leur lueur sombre plus dense.
 
-Wang Lin ressentait vaguement un appel provenant des profondeurs de ce monde gelé. Cet appel était identique à celui qu'il avait ressenti lorsqu'il avait perçu le bras droit de Ye Mo dans la Mer des Nuages.
+Wang Lin ressentait vaguement un appel provenant des profondeurs de ce monde gelé. Cet appel était identique à celui qu'il avait ressenti lorsqu'il avait perçu le bras droit de Ye Mo dans la Mer Yun.
 
 Wang Lin n'avait rien remarqué avant d'avoir absorbé la dernière goutte de sang.
 

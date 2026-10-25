@@ -100,11 +100,11 @@ Avec son niveau de culture précédent, il n'aurait pas pu les remarquer.
 
 « Intéressant. Cet objet pourrait-il lui aussi être un trésor?! » Wang Lin réfléchit silencieusement avant de ranger les talismans. Il avait le pressentiment qu'ils n'étaient pas ordinaires.
 
-Lorsqu'il prit le dernier sac de rangement, ses yeux s'illuminèrent et il murmura: « L'esprit du vieil homme était confus, mais son objectif dans le Royaume Céleste du Tonnerre était très clair. Il comptait emmener le jeune maître de la famille Yao au Pavillon des Collections pour obtenir un sort céleste! »
+Lorsqu'il prit le dernier sac de rangement, ses yeux s'illuminèrent et il murmura: « L'esprit du vieil homme était confus, mais son objectif dans le Royaume Céleste du Tonnerre était très clair. Il comptait emmener le jeune maître de la famille Yao au Pavillon Cang Jue pour obtenir un sort céleste! »
 
 Wang Lin avait appris des souvenirs du vieillard qu'il existait un fragment scellé il y a d'innombrables années par les forces combinées des quatre familles du Système Stellaire de Luotian, possédant des héritages du Royaume Céleste.
 
-Sur ce fragment scellé se trouvait le Pavillon des Collections. Il renfermait des sorts célestes qui étaient encore parfaitement conservés.
+Sur ce fragment scellé se trouvait le Pavillon Cang Jue. Il renfermait des sorts célestes qui étaient encore parfaitement conservés.
 
 Cependant, ce Pavillon avait été créé par l'ancien Empereur Céleste du Royaume Céleste du Tonnerre et ses subordonnés. Le Pavillon possédait ses propres règles, et l'obtention d'un sort dépendait uniquement de la chance.
 
@@ -114,7 +114,7 @@ Pendant très longtemps, ce Pavillon fut un lieu exclusif aux quatre grandes fam
 
 La famille Yao n'avait pas envoyé une seule équipe dans le Royaume Céleste du Tonnerre, mais dix groupes!
 
-« Le Pavillon des Collections... » Les yeux de Wang Lin brillèrent.
+« Le Pavillon Cang Jue... » Les yeux de Wang Lin brillèrent.
 
 À ce moment précis, la respiration de Li Yuan devint saccadée et il ouvrit lentement les yeux. Il regarda devant lui et soupira: « Merci, Frère Xu, mais il semble que je ne sois pas destiné à atteindre le stade Yin Illusoire. Mon âme originelle n'a pas pu supporter une telle quantité d'énergie originelle. »
 
@@ -158,6 +158,6 @@ Le ciel s'assombrit et la plaine devant eux sembla se soulever comme une toile d
 
 Une stèle de pierre brisée se dressait devant les décombres, portant trois caractères anciens:
 
-« Palais d'Accueil Céleste! »
+« Palais Yin Xian! »
 
 « Les sorts célestes ne peuvent être activés par la simple formule. En utilisant le Cœur de Restriction d'Annihilation de ma famille Li, je peux utiliser des traces de sorts célestes pour les rétro-concevoir. Cette méthode blesse le corps de l'utilisateur, c'est pourquoi ma famille ne l'utilise pas à la légère. Cependant, si Frère Xu a besoin d'aide, je l'aiderai sans hésiter! »

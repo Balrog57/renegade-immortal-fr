@@ -80,9 +80,9 @@ Dès lors, parmi les huit chefs de régiment proches de Sima Yan — à l'except
 
 Bien qu'il n'ait émis aucun ordre depuis sa nomination, sa majesté grandissait inexorablement, nourrie par le sang versé.
 
-Dans la Cité du Démon Antique, on comptait au total seize camps militaires. Tous portaient des armures noires, seules leurs insignes variaient légèrement. En ce moment même, dans le troisième camp, Yao Xixue cultivait silencieusement à l'intérieur d'une demeure.
+Dans la Cité Gu Yao, on comptait au total seize camps militaires. Tous portaient des armures noires, seules leurs insignes variaient légèrement. En ce moment même, dans le troisième camp, Yao Xixue cultivait silencieusement à l'intérieur d'une demeure.
 
-Tard dans la nuit, Yao Xixue ouvrit les yeux. Son regard était d'une clarté éclatante. De l'autre côté de la fenêtre, la lune de la Terre des Esprits Démoniaques diffusait une lueur pourpre. Ce soir marquait l'ascension semi-annuelle du Démon Pourpre. La légende voulait que lors de cette ascension, les cieux et la terre entrent en communion.
+Tard dans la nuit, Yao Xixue ouvrit les yeux. Son regard était d'une clarté éclatante. De l'autre côté de la fenêtre, la lune de la Terre Yao Ling diffusait une lueur pourpre. Ce soir marquait l'ascension semi-annuelle du Démon Pourpre. La légende voulait que lors de cette ascension, les cieux et la terre entrent en communion.
 
 Personne ne savait expliquer le mécanisme exact de ce phénomène. Cette rumeur remontait à des temps immémoriaux et nul n'avait pu l'élucider clairement.
 
@@ -94,7 +94,7 @@ En contemplant la boussole, elle afficha une expression d'hésitation.
 
 Les sourcils délicats de Yao Xixue se froncèrent tandis qu'elle méditait, boussole en main.
 
-« Lorsque Père, Tian Yunzi et son entourage sont venus ici il y a de nombreuses années, ils ont découvert cet endroit grâce à l'un des Empereurs Démons. La dernière fois, Père n'avait pas eu le temps d'explorer les lieux avant de partir pour l'Abîme des Marées avec le reste du groupe. Après des années d'analyse, il est sûr à 60 % que ce lieu est réel... »
+« Lorsque Père, Tian Yunzi et son entourage sont venus ici il y a de nombreuses années, ils ont découvert cet endroit grâce à l'un des Empereurs Démons. La dernière fois, Père n'avait pas eu le temps d'explorer les lieux avant de partir pour l'Abîme Chao Xi avec le reste du groupe. Après des années d'analyse, il est sûr à 60 % que ce lieu est réel... »
 
 « Peu importe, j'y vais une dernière fois. Si je ne peux toujours pas entrer, je devrai attendre d'atteindre le stade Ascendant! Après tout, j'ai déjà consommé trois des Pilules de l'Âme Sanguine créées par Père lors de mes trois précédentes tentatives. Il ne m'en reste que six. Je vais devoir rester ici encore longtemps, il vaut mieux ne pas les gaspiller. Une seule Pilule de l'Âme Sanguine représente une autre vie! »
 

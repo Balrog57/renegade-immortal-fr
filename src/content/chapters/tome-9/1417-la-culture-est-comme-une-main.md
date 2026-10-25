@@ -40,7 +40,7 @@ Le tatouage de tonnerre s'effondra en d'innombrables fragments qui retournèrent
 
 Wang Lin agita la main droite et une faille vers son espace de stockage apparut. Dans un éclair de lumière sanguine, l'Épée de Sang surgit. Wang Lin la pointa férocement vers le ciel, et l'épée poursuivit l'Oiseau Vermillon.
 
-À cet instant précis, après avoir lancé l'épée, la main de Wang Lin forma un sceau. Il pointa le ciel et hurla: « Au nom de mon tonnerre, condense à nouveau dix mille tatouages de tonnerre pour ouvrir l'Ancien Royaume du Tonnerre! »
+À cet instant précis, après avoir lancé l'épée, la main de Wang Lin forma un sceau. Il pointa le ciel et hurla: « Au nom de mon tonnerre, condense à nouveau dix mille tatouages de tonnerre pour ouvrir l'Ancien Royaume Lei! »
 
 Treizième respiration!
 
@@ -48,13 +48,13 @@ Sa voix devint de plus en plus forte, jusqu'à devenir fracassante. Dès qu'il e
 
 Le monde trembla et commença à tourbillonner. Une gigantesque faille spatiale de 10 000 pieds de long s'ouvrit. Des rugissements incessants émanèrent de la brèche, où l'on pouvait apercevoir les corps colossaux de plusieurs anciens dragons du tonnerre s'agitant à l'intérieur.
 
-Ouvrir l'Ancien Royaume du Tonnerre était le sort du Grand Ancien du Clan du Tonnerre Dispersé. Cependant, après avoir sondé l'âme de cet Ancien et grâce à son essence de tonnerre, Wang Lin pouvait également utiliser ce sort extrêmement puissant!
+Ouvrir l'Ancien Royaume Lei était le sort du Grand Ancien du Clan Shan Lei. Cependant, après avoir sondé l'âme de cet Ancien et grâce à son essence de tonnerre, Wang Lin pouvait également utiliser ce sort extrêmement puissant!
 
 Les dragons du tonnerre poussèrent des rugissements de colère en sortant de la faille spatiale. Mais à ce moment précis, la voix de la première génération de l'Oiseau Vermillon retentit:
 
 « Sceau de l'Oiseau Vermillon, scelle! » Tandis que cette voix indifférente résonnait, l'ancien Oiseau Vermillon poussa un sifflement et chargea vers la faille de 10 000 pieds. Une vague de feu jaillit et vint marquer la brèche.
 
-L'Oiseau Vermillon se transforma en un sceau gigantesque, scellant l'accès à l'Ancien Royaume du Tonnerre! Les dragons du tonnerre luttèrent de toutes leurs forces pour s'échapper, mais malgré leurs efforts, ils ne purent briser le Sceau de l'Oiseau Vermillon!
+L'Oiseau Vermillon se transforma en un sceau gigantesque, scellant l'accès à l'Ancien Royaume Lei! Les dragons du tonnerre luttèrent de toutes leurs forces pour s'échapper, mais malgré leurs efforts, ils ne purent briser le Sceau de l'Oiseau Vermillon!
 
 Quatorzième respiration!
 
@@ -96,7 +96,7 @@ Les yeux du premier Oiseau Vermillon brillèrent d'une lueur étrange. Il regard
 
 Le feu aux neuf couleurs entre ses sourcils étincela, et des Flammes Éthérées jaillirent vers son poing. Bien qu'invisibles, ces flammes enveloppèrent toute sa paume dès qu'elles pénétrèrent son poing.
 
-« Je peux décider de ta vie ou de ta mort d'une simple pensée. Et pourtant, tu ne me diras toujours pas la vérité, même maintenant. J'ai percé ton secret lorsque tu étais sur la planète du Clan du Dragon Armuré. Si je t'ai laissé vivre, c'est uniquement parce que je voulais connaître ta véritable identité! J'ai orchestré ton ascension en tant que Jeune Empereur pour t'attirer ici. J'ai fait apparaître la deuxième génération pour te guider vers cette épreuve! »
+« Je peux décider de ta vie ou de ta mort d'une simple pensée. Et pourtant, tu ne me diras toujours pas la vérité, même maintenant. J'ai percé ton secret lorsque tu étais sur la planète du Clan Long Jia. Si je t'ai laissé vivre, c'est uniquement parce que je voulais connaître ta véritable identité! J'ai orchestré ton ascension en tant que Jeune Empereur pour t'attirer ici. J'ai fait apparaître la deuxième génération pour te guider vers cette épreuve! »
 
 « Maintenant que tu es enfin là, dis-moi qui tu es! Pourquoi usurpes-tu l'identité d'un membre de mon clan? Les cadets ne voient peut-être pas clair dans ton secret, mais rien ne peut me rester caché! »
 
@@ -124,7 +124,7 @@ Wang Lin médita en silence alors que l'Oiseau Vermillon qu'il avait formé se d
 
 « En l'absence de Flammes Joss, tu possèdes déjà cinq essences. Bien qu'elles viennent de se former, ce phénomène est rare. Cependant, ton chemin est erroné! » déclara lentement le premier Oiseau Vermillon.
 
-« Ton essence de tonnerre a formé la Porte du Vide, mais tu n'as pu l'ouvrir... Tu penses ne pas être assez fort, et c'est à la fois vrai et faux. Tu crois devoir attendre que ton essence de feu soit complète avant de tenter de nouveau d'ouvrir la Porte du Vide. Au fond de ton cœur, tu ne valorises même pas les cinq Fléaux Célestes. Tu ne veux pas les traverser; tu veux briser directement la Porte du Vide au sommet du stade Briseur du Nirvana! Si tu penses pouvoir y parvenir, tu te trompes! »
+« Ton essence de tonnerre a formé la Porte Kong, mais tu n'as pu l'ouvrir... Tu penses ne pas être assez fort, et c'est à la fois vrai et faux. Tu crois devoir attendre que ton essence de feu soit complète avant de tenter de nouveau d'ouvrir la Porte Kong. Au fond de ton cœur, tu ne valorises même pas les cinq Fléaux Célestes. Tu ne veux pas les traverser; tu veux briser directement la Porte Kong au sommet du stade Briseur du Nirvana! Si tu penses pouvoir y parvenir, tu te trompes! »
 
 Wang Lin fut stupéfait mais resta silencieux.
 

@@ -46,7 +46,7 @@ Ce simple geste avait consommé près de 30 % de sa culture, faisant presque s'e
 
 Cette fois, il fut totalement terrifié. Il suivait Wang Lin depuis de nombreuses années et savait à quel point celui-ci pouvait être cruel. Il n'appelait pas Wang Lin « démon » sans raison!
 
-« Maître, Maître!! J'ai accompli de grandes choses pour le Maître!! J'ai versé mon sang pour le Maître!! Maître, vous souvenez-vous encore de l'ancêtre du Clan des Démons Géants sur la planète Suzaku? Vous souvenez-vous... » Xu Liguo hurlait, énumérant presque tout ce qu'il avait fait pour Wang Lin.
+« Maître, Maître!! J'ai accompli de grandes choses pour le Maître!! J'ai versé mon sang pour le Maître!! Maître, vous souvenez-vous encore de l'ancêtre du Clan Ju Mo sur la planète Suzaku? Vous souvenez-vous... » Xu Liguo hurlait, énumérant presque tout ce qu'il avait fait pour Wang Lin.
 
 Il craignait que s'il tardait trop, il n'aurait plus jamais l'occasion de parler.
 
@@ -54,13 +54,13 @@ Il craignait que s'il tardait trop, il n'aurait plus jamais l'occasion de parler
 
 Son regard balaya Liu Jinbiao, qui se prosternait sans relâche, et une intention meurtrière traversa ses yeux.
 
-« Le monde peut changer facilement, mais la nature d'un homme est difficile à modifier. Liu Jinbiao, tu me déçois! Tu as accompli de grands mérites au sein du Clan des Moineaux de Feu et j'avais promis de te laisser partir. À mon retour, je comptais te libérer et j'avais même prévu de t'offrir une grande fortune en récompense pour avoir pris soin de lui... » La voix de Wang Lin était glaciale. Ses paroles étaient comme un vent de givre qui envahissait l'espace. Le corps de Liu Jinbiao trembla et il s'inclina encore plus frénétiquement, frappant son front contre le sol.
+« Le monde peut changer facilement, mais la nature d'un homme est difficile à modifier. Liu Jinbiao, tu me déçois! Tu as accompli de grands mérites au sein du Clan Huo Que et j'avais promis de te laisser partir. À mon retour, je comptais te libérer et j'avais même prévu de t'offrir une grande fortune en récompense pour avoir pris soin de lui... » La voix de Wang Lin était glaciale. Ses paroles étaient comme un vent de givre qui envahissait l'espace. Le corps de Liu Jinbiao trembla et il s'inclina encore plus frénétiquement, frappant son front contre le sol.
 
 Regardant Liu Jinbiao, Wang Lin pointa à nouveau vers l'avant et une rafale de vent frappa le corps du condamné. Liu Jinbiao trembla et cracha du sang avant d'être projeté en arrière de plusieurs dizaines de pieds.
 
 « Tes exploits sont réels, ils resteront acquis, mais je ne t'accorderai pas cette fortune. Oublie l'idée de retrouver la liberté: tu seras mon esclave pendant mille ans! » En entendant ces mots, Liu Jinbiao esquissa un sourire amer, mais il poussa un immense soupir de soulagement dans son cœur. Il pouvait accepter cette punition.
 
-« Seigneur du Royaume Scellé!!! Vous êtes le Seigneur du Royaume Scellé!!! » s'exclama Fa Huazi avec exaltation. Il en avait eu un doute auparavant, mais lorsqu'il entendit Wang Lin évoquer la planète Suzaku et le Clan des Moineaux de Feu, il en fut certain. Il marcha d'un pas enthousiaste vers Wang Lin et s'inclina.
+« Seigneur du Royaume Scellé!!! Vous êtes le Seigneur du Royaume Scellé!!! » s'exclama Fa Huazi avec exaltation. Il en avait eu un doute auparavant, mais lorsqu'il entendit Wang Lin évoquer la planète Suzaku et le Clan Huo Que, il en fut certain. Il marcha d'un pas enthousiaste vers Wang Lin et s'inclina.
 
 À ses paroles, les cultivateurs environnants furent saisis d'incrédulité et d'une immense excitation. Tous joignirent les mains et s'inclinèrent.
 
@@ -72,7 +72,7 @@ Le regard de Wang Lin resta imperturbable lorsqu'il fixa le jeune homme en noir 
 
 « Tu m'as déjà vu? »
 
-Le jeune homme était transporté par l'émotion. Il s'approcha rapidement et dit respectueusement: « Ce junior a vécu à Luotian pendant un certain temps et était présent lors de la première bataille de la Mer des Nuages. Je faisais partie de l'armée de Luotian et j'ai aperçu le Seigneur du Royaume Scellé de loin. De plus, ayant reçu le jade de la Mer des Nuages, j'avais une idée vague de votre apparence. »
+Le jeune homme était transporté par l'émotion. Il s'approcha rapidement et dit respectueusement: « Ce junior a vécu à Luotian pendant un certain temps et était présent lors de la première bataille de la Mer Yun. Je faisais partie de l'armée de Luotian et j'ai aperçu le Seigneur du Royaume Scellé de loin. De plus, ayant reçu le jade de la Mer Yun, j'avais une idée vague de votre apparence. »
 
 Après avoir parlé, il jeta un regard au fou derrière Wang Lin et parut honteux. Il voulut expliquer quelque chose, mais ne parvint finalement pas à le dire.
 

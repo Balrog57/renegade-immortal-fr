@@ -24,9 +24,9 @@ Il y avait aussi ces deux mots: « Le Temps qui S'écoule ».
 
 Cependant, Wang Lin n'avait pas encore pleinement maîtrisé ce second sort. Il devait poursuivre sa compréhension et sa confirmation avant qu'il ne puisse prendre forme.
 
-« Le temps est compté. Si j'avais continué, j'aurais peut-être eu la chance de saisir la neuvième loi, mais la promesse faite à la Secte de l'Origine est imminente... » Wang Lin regarda le monde derrière lui. Il avait consacré dix jours à sa compréhension, et la compétition entre les sectes de rang 8 avait déjà commencé depuis longtemps.
+« Le temps est compté. Si j'avais continué, j'aurais peut-être eu la chance de saisir la neuvième loi, mais la promesse faite à la Secte Gui Yuan est imminente... » Wang Lin regarda le monde derrière lui. Il avait consacré dix jours à sa compréhension, et la compétition entre les sectes de rang 8 avait déjà commencé depuis longtemps.
 
-« Peu importe, je partirai dans trois jours. Je m'occuperai de la promesse avec la Secte de l'Origine, puis je reviendrai ici. » Les yeux de Wang Lin s'illuminèrent et il envoya un message. Le roi des moustiques poussa un rugissement et s'élança vers les profondeurs du Royaume Céleste du Vent.
+« Peu importe, je partirai dans trois jours. Je m'occuperai de la promesse avec la Secte Gui Yuan, puis je reviendrai ici. » Les yeux de Wang Lin s'illuminèrent et il envoya un message. Le roi des moustiques poussa un rugissement et s'élança vers les profondeurs du Royaume Céleste du Vent.
 
 « Je veux voir combien de bêtes moustiques se cachent dans les profondeurs du Royaume Céleste du Vent! » Les yeux de Wang Lin brillèrent tandis qu'il fonçait vers les abysses du royaume, escorté par des milliers de bêtes moustiques formant un nuage rouge.
 

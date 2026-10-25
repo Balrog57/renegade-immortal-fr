@@ -118,9 +118,9 @@ La Secte Yang Pourpre du Continent de l'Est était le lieu où se trouvait Wang 
 
 Hormis les moments où d'autres Ascendants Empyréens venaient débattre du Dao, il avait passé toute cette année en un seul endroit: une zone interdite de la Secte Yang Pourpre.
 
-C'était le Domaine des Bêtes.
+C'était le Domaine Si Shou.
 
-Il en avait eu une vague perception autrefois, mais depuis son arrivée à la Secte Yang Pourpre, l'endroit avait beaucoup changé. Wang Lin avait passé la majeure partie de l'année assis au bord du Domaine des Bêtes.
+Il en avait eu une vague perception autrefois, mais depuis son arrivée à la Secte Yang Pourpre, l'endroit avait beaucoup changé. Wang Lin avait passé la majeure partie de l'année assis au bord du Domaine Si Shou.
 
 Il sentait qu'une barrière invisible se dressait devant lui, et qu'au-delà se trouvait un lieu qui lui était familier: sa patrie, celle qui lui manquait tant... Il y avait là les gens qu'il connaissait, la terre qu'il aimait, le ciel étoilé et les planètes de culture.
 

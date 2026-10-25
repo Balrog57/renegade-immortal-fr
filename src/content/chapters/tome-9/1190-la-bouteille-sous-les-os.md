@@ -102,7 +102,7 @@ Son apparition rendit la situation étrange; même Cang Songzi fut stupéfait!
 
 Deux cultivatrices nommées Zhao! L'une était une belle femme d'âge moyen d'environ quarante ans, l'autre une vieille femme ridée. Pourtant, on pouvait déceler entre elles une similitude frappante!
 
-« Ce n'est pas un avatar! C'est le Sort Ancestral Yang Yin! » Le visage de Cang Songzi se décomposa tandis qu'une pensée fulgurante traversait son esprit. Il venait de se remémorer une très ancienne légende de la Mer des Nuages, concernant un sort interdit!
+« Ce n'est pas un avatar! C'est le Sort Ancestral Yang Yin! » Le visage de Cang Songzi se décomposa tandis qu'une pensée fulgurante traversait son esprit. Il venait de se remémorer une très ancienne légende de la Mer Yun, concernant un sort interdit!
 
 Ce sort était terrifiant et allait à l'encontre de toute morale. Sa culture était extrêmement complexe, et jusqu'à ce jour, presque personne n'avait réussi à le maîtriser. Pourtant, Cang Songzi n'avait d'autre choix que d'y croire, car la personne devant lui avait pratiqué cette technique interdite pour atteindre le niveau de trois ancêtres!
 

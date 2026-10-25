@@ -32,13 +32,13 @@ Parfois, elle levait la tête et voyait Wang Lin cultiver à proximité. Ses yeu
 
 Li Muwan soupira intérieurement.
 
-Après un mois de recherches pour trouver des substituts, Ouyang Zi fut également appelé par Wang Lin. Malheureusement, le dernier alchimiste de rang 5 de la Secte du Ciel Nuageux, Tian Yunzi, était mort des années auparavant en tentant d'atteindre la Formation de l'Âme. Avec trois alchimistes sur cette recette, le processus aurait été bien plus rapide.
+Après un mois de recherches pour trouver des substituts, Ouyang Zi fut également appelé par Wang Lin. Malheureusement, le dernier alchimiste de rang 5 de la Secte Yun Tian, Tian Yunzi, était mort des années auparavant en tentant d'atteindre la Formation de l'Âme. Avec trois alchimistes sur cette recette, le processus aurait été bien plus rapide.
 
 Ouyang Zi était passionné par l'alchimie; c'était comme s'il était né pour cela. Lorsqu'il vit la recette de pilule de rang 6, ce fut comme s'il avait trouvé sa raison d'être. Il devint immédiatement un homme possédé, se lançant dans l'étude des substitutions et des combinaisons des 137 ingrédients.
 
 Chaque fois qu'un substitut était trouvé, Liu Fei et Song Qing effectuaient des recherches et faisaient acheminer l'ingrédient.
 
-Si la Secte du Ciel Nuageux ne le possédait pas, ils l'achetaient à prix d'or auprès de sectes d'autres pays. Si cela restait impossible, ils recherchaient l'emplacement de l'ingrédient et chargeaient Lu Fei et Tie Yan de le récolter.
+Si la Secte Yun Tian ne le possédait pas, ils l'achetaient à prix d'or auprès de sectes d'autres pays. Si cela restait impossible, ils recherchaient l'emplacement de l'ingrédient et chargeaient Lu Fei et Tie Yan de le récolter.
 
 Le temps passa rapidement. Deux ans plus tard, sur les 137 ingrédients, il n'en restait plus que trois. Malheureusement, ils n'avaient toujours pas trouvé de substituts pour ces derniers.
 
@@ -72,7 +72,7 @@ Ouyang Zi sortit rapidement un morceau de jade. Il le tendit à Wang Lin en disa
 
 Wang Lin accepta le jade, le parcourut de son sens divin et en mémorisa instantanément le contenu.
 
-Ouyang Zi ajouta: « Ces ingrédients sont très rares. La Secte du Ciel Nuageux n'en possède que quatre. Nous devrons nous rendre dans un pays de culture de rang 4 pour obtenir le reste. »
+Ouyang Zi ajouta: « Ces ingrédients sont très rares. La Secte Yun Tian n'en possède que quatre. Nous devrons nous rendre dans un pays de culture de rang 4 pour obtenir le reste. »
 
 Wang Lin se leva. Le jade à la main, il disparut.
 
@@ -130,7 +130,7 @@ Même Ouyang Zi ne pouvait se permettre la moindre négligence. Il ne se souciai
 
 Ce n'était pas par crainte de Wang Lin, mais par tempérament. Il avait oublié le monde; dans son esprit, seule la pilule comptait.
 
-Wang Lin ne s'offusquait pas de l'humeur d'Ouyang Zi. En fait, il pensait que parmi tous les membres de la Secte du Ciel Nuageux, Ouyang Zi était celui qui avait le plus de chances d'atteindre la Formation de l'Âme.
+Wang Lin ne s'offusquait pas de l'humeur d'Ouyang Zi. En fait, il pensait que parmi tous les membres de la Secte Yun Tian, Ouyang Zi était celui qui avait le plus de chances d'atteindre la Formation de l'Âme.
 
 Son obsession pour l'alchimie ferait qu'il serait sans doute capable de comprendre les lois célestes et d'acquérir un domaine.
 

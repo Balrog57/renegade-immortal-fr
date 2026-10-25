@@ -66,7 +66,7 @@ Il avait utilisé toutes ses ressources. Il avait même choisi l'instant où ell
 
 Le combat contre Hongdie n'avait pas duré longtemps; il n'avait duré que quelques respirations.
 
-« Fou! C'est un véritable fou! » L'ancien de la Secte des Cadavres, qui venait de projeter le cadavre, maudit la scène tout en volant vers l'entrée. Cependant, à ce moment précis, un grondement retentit et l'entrée s'effondra.
+« Fou! C'est un véritable fou! » L'ancien de la Secte Shi Yin, qui venait de projeter le cadavre, maudit la scène tout en volant vers l'entrée. Cependant, à ce moment précis, un grondement retentit et l'entrée s'effondra.
 
 L'ancien resta pétrifié devant l'entrée, le visage marqué par une expression d'amertume.
 
@@ -78,11 +78,11 @@ Tandis que Zhou Yi et l'ancien se livraient bataille, il utilisa son sens divin 
 
 Sans la moindre hésitation, il s'y engouffra.
 
-L'ancien de la Secte des Cadavres se retourna, déploya son sens divin et fondit sur le trou où Wang Lin s'était engouffré. Chi Hu toucha son sac de rangement. À l'intérieur se trouvait la boussole stellaire, mais elle était trop endommagée pour être utilisée et il ignorait comment la réparer. Impuissant, il suivit l'ancien. Sa priorité absolue désormais était de sauver sa propre peau.
+L'ancien de la Secte Shi Yin se retourna, déploya son sens divin et fondit sur le trou où Wang Lin s'était engouffré. Chi Hu toucha son sac de rangement. À l'intérieur se trouvait la boussole stellaire, mais elle était trop endommagée pour être utilisée et il ignorait comment la réparer. Impuissant, il suivit l'ancien. Sa priorité absolue désormais était de sauver sa propre peau.
 
 « Ting Er, regarde. Celui qui t'a volée s'enfuit. Je l'ai déjà dit: quiconque ose te dérober doit mourir! Laisse-moi utiliser les derniers restes de ma vie pour abattre cet homme, et nous pourrons disparaître ensemble dans ce vide. Qu'en penses-tu...? Étrange, pourquoi ai-je l'impression de ne pas assez bien te connaître? J'ai le sentiment de me souvenir de quelque chose... j'ai le sentiment de me souvenir de quelque chose... Ting Er... » Zhou Yi serrait la femme dans ses bras avec une passion profonde, mais cet élan se mua bientôt en confusion.
 
-Il embrassa les lèvres de la femme et fronça les sourcils avant de poursuivre l'ancien de la Secte des Cadavres, le cadavre dans les bras et le regard troublé.
+Il embrassa les lèvres de la femme et fronça les sourcils avant de poursuivre l'ancien de la Secte Shi Yin, le cadavre dans les bras et le regard troublé.
 
 Wang Lin pénétra dans le tunnel et descendit rapidement. Les bruits d'effondrement de la troisième couche s'estompèrent progressivement. Bien que toutes les couches finiraient par s'écrouler, la quatrième était actuellement l'endroit le plus sûr.
 
@@ -92,7 +92,7 @@ Il continua sa descente pendant un long moment avant de percevoir une lueur au b
 
 Quelques respirations plus tard, une silhouette traversa les tunnels à toute vitesse. Au moment où cette personne passa devant Wang Lin, elle marqua un temps d'arrêt et poussa un grognement avant de foncer vers la lumière.
 
-Peu après, Chi Hu descendit également et fut surpris par la présence de Wang Lin. Ce dernier s'élança immédiatement pour lui envoyer une transmission vocale: « Chi Hu, nos niveaux de culture sont les plus bas ici. Nous devons nous méfier de cet ancien de la Secte des Cadavres! »
+Peu après, Chi Hu descendit également et fut surpris par la présence de Wang Lin. Ce dernier s'élança immédiatement pour lui envoyer une transmission vocale: « Chi Hu, nos niveaux de culture sont les plus bas ici. Nous devons nous méfier de cet ancien de la Secte Shi Yin! »
 
 Chi Hu acquiesça. Les deux hommes émergèrent du tunnel simultanément.
 
@@ -110,7 +110,7 @@ Néanmoins, cela témoignait de l'immense puissance du propriétaire de ces lieu
 
 « J'ignore de quel Roi Céleste il s'agit, mais vu son état de conservation, il doit contenir le cadavre d'un immortel! » L'ancien riait en se précipitant vers l'un des palais.
 
-À cet instant précis, Zhou Yi apparut, portant le cadavre féminin dans ses bras. Dès son apparition, il commença à avancer. Bien que sa démarche parût lente, il ne lui fallut que trois pas pour se retrouver face à l'ancien de la Secte des Cadavres.
+À cet instant précis, Zhou Yi apparut, portant le cadavre féminin dans ses bras. Dès son apparition, il commença à avancer. Bien que sa démarche parût lente, il ne lui fallut que trois pas pour se retrouver face à l'ancien de la Secte Shi Yin.
 
 Zhou Yi fixa le cadavre et dit avec passion: « Ting Er, une fois que je l'aurai tué, partons dans le vide, d'accord? Je sens que mes forces déclinent... pourtant, j'ai l'impression de comprendre enfin... il me semble me souvenir du passé... il me semble... me souvenir de qui tu es... »
 

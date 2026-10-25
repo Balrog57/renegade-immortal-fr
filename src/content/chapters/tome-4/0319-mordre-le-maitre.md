@@ -46,7 +46,7 @@ Sur l'un des fragments les plus centraux du Royaume Céleste, un érudit vêtu d
 
 Sur un fragment au nord-ouest du Royaume Céleste, un vieil homme en robe pourpre contemplait le ciel avec gravité. Après avoir réfléchi un instant, il fit un pas et s'envola vers le chant d'épée.
 
-« Est-ce l'Épée Céleste de la Pluie? Si ma Secte de l'Épée Da Luo l'obtient, notre puissance augmentera sans aucun doute de plusieurs fois. Je possède une bête céleste que je peux utiliser pour déposséder l'esprit de l'épée de son contrôle sur l'arme elle-même. »
+« Est-ce l'Épée Céleste de la Pluie? Si ma Secte Da Luo Jian l'obtient, notre puissance augmentera sans aucun doute de plusieurs fois. Je possède une bête céleste que je peux utiliser pour déposséder l'esprit de l'épée de son contrôle sur l'arme elle-même. »
 
 Il s'élança et soudain, un qilin à deux cornes apparut dans les airs. Il monta sur la tête de la créature, qui expulsa deux souffles blancs par ses naseaux. À l'instant même où ces flux jaillirent, le fragment céleste sur lequel il se trouvait s'effondra.
 
@@ -66,7 +66,7 @@ Wang Lin atterrit sur la boussole presque en même temps que Chi Hu, choisissant
 
 Quant à Sun Tai, il regarda l'endroit où le cadavre féminin avait disparu et, en un éclair, vint s'asseoir aux côtés de Wang Lin.
 
-Sun Tai dit calmement: « La boussole stellaire, l'un des trésors les plus précieux du Clan des Démons Géants. Hélas, c'est un produit défectueux. »
+Sun Tai dit calmement: « La boussole stellaire, l'un des trésors les plus précieux du Clan Ju Mo. Hélas, c'est un produit défectueux. »
 
 Chi Hu eut un sourire amer. Il serra les dents tout en contrôlant la boussole pour qu'elle navigue à travers le vide.
 
@@ -90,7 +90,7 @@ Le visage de Sun Tai devint sombre alors qu'il fixait Wang Lin. Après un moment
 
 Wang Lin secoua la tête en souriant: « Je ne connais pas la technique pour lever le sceau, alors comment pourrais-je le faire? »
 
-Sun Tai se leva brusquement et fixa Wang Lin en déclarant mot pour mot: « Petit morveux, si tu refuses de trinquer à la victoire, tu boiras le vin amer de la défaite! Je suis le Grand Ancien de la Secte des Cadavres de la planète Suzaku, un cultivateur de la Transformation de l'Âme. Même mort, je ne me soumettrai jamais à personne, à plus forte raison à un junior comme toi que je pourrais écraser d'un doigt! »
+Sun Tai se leva brusquement et fixa Wang Lin en déclarant mot pour mot: « Petit morveux, si tu refuses de trinquer à la victoire, tu boiras le vin amer de la défaite! Je suis le Grand Ancien de la Secte Shi Yin de la planète Suzaku, un cultivateur de la Transformation de l'Âme. Même mort, je ne me soumettrai jamais à personne, à plus forte raison à un junior comme toi que je pourrais écraser d'un doigt! »
 
 « De plus, ne crois pas pouvoir me tuer par un simple ordre. Je peux te dire que je n'ai pas seulement trois âmes, mais une quatrième également. Cette quatrième âme se trouve dans le corps à l'intérieur du cercueil. Tu peux briser l'âme de mon corps actuel, mais au moment où cela arrivera, ma quatrième âme te tuera. »
 
@@ -118,7 +118,7 @@ Le visage de Sun Tai s'assombrit. Cette lumière émanant de la pagode lui étai
 
 Il continua de reculer.
 
-Wang Lin avançait sans relâche et cria froidement: « S'il s'agissait d'une autre secte, je n'en saurais guère plus. Mais comme il s'agit de la Secte des Cadavres, je sais beaucoup de choses. Le cadavre dans ce cercueil ne peut contenir votre quatrième âme; il s'agit très probablement de l'âme d'un autre. Et même s'il s'agissait de votre quatrième âme, ce serait une âme brisée! »
+Wang Lin avançait sans relâche et cria froidement: « S'il s'agissait d'une autre secte, je n'en saurais guère plus. Mais comme il s'agit de la Secte Shi Yin, je sais beaucoup de choses. Le cadavre dans ce cercueil ne peut contenir votre quatrième âme; il s'agit très probablement de l'âme d'un autre. Et même s'il s'agissait de votre quatrième âme, ce serait une âme brisée! »
 
 Le visage de Sun Tai était livide. Sa voix, rauque, tonna: « Si tu ne me crois pas, essaie donc! »
 

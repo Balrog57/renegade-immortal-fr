@@ -58,7 +58,7 @@ L'homme mince regarda Wang Lin et dit lentement: « C'est mon frère cadet! »
 
 Sun Tao observa attentivement Wang Lin, puis le choc dans son cœur s'apaisa lentement. En voyant Wang Lin, il découvrit naturellement que sa culture avait progressé de deux étapes, passant du stade médian de la Transformation de l'Âme au sommet du stade tardif.
 
-Sun Tao dit lentement: « Jeune frère Wang, il semble que tu aies fait une rencontre fortuite! Mais sois prudent dans la Cité du Démon Céleste à cause des membres de la Secte de l'Épée Da Luo. Ce sont eux qui m'ont infligé ces blessures! » Une pointe de rage perçait dans sa voix. Cette colère n'était pas dirigée contre Wang Lin, mais contre la Secte de l'Épée Da Luo.
+Sun Tao dit lentement: « Jeune frère Wang, il semble que tu aies fait une rencontre fortuite! Mais sois prudent dans la Cité Tian Yao à cause des membres de la Secte Da Luo Jian. Ce sont eux qui m'ont infligé ces blessures! » Une pointe de rage perçait dans sa voix. Cette colère n'était pas dirigée contre Wang Lin, mais contre la Secte Da Luo Jian.
 
 Wang Lin réfléchit un instant avant de tapoter son sac de rangement et d'en sortir une fiole de pilules. Bien que ces pilules n'eussent qu'un effet limité sur Sun Tao, elles témoignaient de la bonne volonté de Wang Lin. Il lança les pilules à Sun Tao, puis reprit sa route sur son cheval sans dire un mot.
 
@@ -90,11 +90,11 @@ Wang Lin logea dans le bâtiment sud, juste en face de la montagne artificielle.
 
 Mo Lihai affecta deux sergents sous les ordres de Wang Lin avant de partir rejoindre l'Empereur Démon. Il s'entretint avec Wang Lin avant son départ, convenant de boire ensemble à son retour.
 
-Wang Lin s'assit en position du lotus dans sa chambre. Outre son aide envers Mo Lihai, son autre objectif lors de ce voyage à la capitale était d'obtenir le poste de général démon. Cet endroit étant la capitale du Pays du Démon Céleste, les experts y étaient aussi nombreux que les nuages. Il savait qu'en se distinguant des autres et en attirant l'attention de l'Empereur Démon, il lui serait bien plus facile d'obtenir ce rang.
+Wang Lin s'assit en position du lotus dans sa chambre. Outre son aide envers Mo Lihai, son autre objectif lors de ce voyage à la capitale était d'obtenir le poste de général démon. Cet endroit étant la capitale du Pays Tian Yao, les experts y étaient aussi nombreux que les nuages. Il savait qu'en se distinguant des autres et en attirant l'attention de l'Empereur Démon, il lui serait bien plus facile d'obtenir ce rang.
 
-« Même la culture de Sun Tao, qui était au stade médian de l'Ascendant, a été brisée par quelqu'un, le forçant à chuter au sommet du stade tardif de la Transformation de l'Âme. Il a mentionné la Secte de l'Épée Da Luo. Plus de dix membres de cette secte sont entrés ici; à moins qu'ils ne se soient ligués contre lui, il est impossible qu'il soit si gravement atteint... »
+« Même la culture de Sun Tao, qui était au stade médian de l'Ascendant, a été brisée par quelqu'un, le forçant à chuter au sommet du stade tardif de la Transformation de l'Âme. Il a mentionné la Secte Da Luo Jian. Plus de dix membres de cette secte sont entrés ici; à moins qu'ils ne se soient ligués contre lui, il est impossible qu'il soit si gravement atteint... »
 
-Après une longue réflexion, Wang Lin prit une profonde inspiration. S'il avait donné ces pilules à Sun Tao, c'était pour envoyer un signe de bonne foi. Malgré leurs divergences, ils appartenaient à la même école. Face à la menace de la Secte de l'Épée Da Luo, ils ne pouvaient se permettre de s'affronter.
+Après une longue réflexion, Wang Lin prit une profonde inspiration. S'il avait donné ces pilules à Sun Tao, c'était pour envoyer un signe de bonne foi. Malgré leurs divergences, ils appartenaient à la même école. Face à la menace de la Secte Da Luo Jian, ils ne pouvaient se permettre de s'affronter.
 
 Après avoir médité longuement, Wang Lin ferma les yeux et commença sa culture.
 
@@ -102,7 +102,7 @@ Mo Lihai revint au crépuscule, le regard empreint de joie. Il discuta avec Wang
 
 Le temps s'écoula rapidement et, en un clin d'œil, Wang Lin avait passé quatre jours au Manoir Mo. Il consacrait la quasi-totalité de son temps à convertir l'énergie spirituelle démoniaque en énergie spirituelle céleste afin de stabiliser davantage ses fondations.
 
-Wang Lin ne demanda pas quand débuterait la bataille entre les généraux démons. Il savait que Mo Lihai ferait appel à lui le moment venu. N'étant pas pressé, il consacrait son temps, outre sa culture, à une profonde méditation sur l'Art du Massacre Céleste. Après le carnage de la Cité du Démon Antique, sa compréhension de cet art s'était considérablement approfondie.
+Wang Lin ne demanda pas quand débuterait la bataille entre les généraux démons. Il savait que Mo Lihai ferait appel à lui le moment venu. N'étant pas pressé, il consacrait son temps, outre sa culture, à une profonde méditation sur l'Art du Massacre Céleste. Après le carnage de la Cité Gu Yao, sa compréhension de cet art s'était considérablement approfondie.
 
 Wang Lin avait passé de la même façon les trois mois dans la Tribu de l'Affinement de l'Âme. Lorsqu'il ne cultivait pas, il méditait sur l'Art du Massacre Céleste. Pour lui, un changement de lieu n'altérait en rien sa détermination.
 
@@ -110,7 +110,7 @@ Le calme imperturbable de Wang Lin attira l'attention des deux sergents qui lui 
 
 Mo Lihai était extrêmement occupé durant cette période. Il partait tôt chaque jour et ne revenait que tard, rencontrant divers commandants en chef, vice-commandants et généraux démons alliés pour échanger des informations.
 
-Il sentait que toute la Cité du Démon Céleste était comme un baril de poudre prêt à exploser dès que la compétition entre les généraux débuterait!
+Il sentait que toute la Cité Tian Yao était comme un baril de poudre prêt à exploser dès que la compétition entre les généraux débuterait!
 
 Wang Lin resta tranquillement au Manoir Mo pendant quatre jours, puis cessa sa culture habituelle. Assis dans la cour, ses mains bougeaient avec rapidité pour tracer des sceaux. Chaque sceau concentrait la puissance de l'Art du Massacre Céleste.
 

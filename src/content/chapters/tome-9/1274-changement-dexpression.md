@@ -18,7 +18,7 @@ C'était cela la force, la cruelle vérité du monde de la culture. La loi de la
 
 Si Wang Lin avait été un cultivateur du troisième niveau, Shui Daozi aurait fait preuve d'une prudence extrême quant à son désir de le tuer. Il n'aurait probablement même pas choisi de combattre, préférant inviter Wang Lin en tant qu'hôte prestigieux. Les deux se seraient alors assis pour échanger ce qu'ils désiraient.
 
-Si Wang Lin avait été un cultivateur du troisième niveau, il aurait pu balayer l'Alliance, la Mer des Nuages et Luotian. Même Maître Lu Fu se serait montré très poli et lui aurait témoigné son respect; aucune des deux parties n'aurait provoqué l'autre.
+Si Wang Lin avait été un cultivateur du troisième niveau, il aurait pu balayer l'Alliance, la Mer Yun et Luotian. Même Maître Lu Fu se serait montré très poli et lui aurait témoigné son respect; aucune des deux parties n'aurait provoqué l'autre.
 
 La force était tout, et elle était la clé de la survie dans ce monde impitoyable de la culture!
 
@@ -44,11 +44,11 @@ Dès que le garçon sortit de la brume, Wang Lin agita les mains et poussa un ru
 
 Tandis que Wang Lin rugissait, les tatouages écarlates fonçaient vers le garçon aux cheveux blancs, emportant avec eux le pouvoir de dévaster les cieux! Leur sifflement était terrifiant!
 
-Chaque tatouage sanguin était formé par l'essence de bêtes féroces. Ils contenaient également une intention du Dao unique aux créatures de la Mer des Nuages, rendant leur puissance bien supérieure à celle des tatouages raffinés dans les autres systèmes stellaires.
+Chaque tatouage sanguin était formé par l'essence de bêtes féroces. Ils contenaient également une intention du Dao unique aux créatures de la Mer Yun, rendant leur puissance bien supérieure à celle des tatouages raffinés dans les autres systèmes stellaires.
 
 En s'élançant vers le garçon, le ciel fut teint de rouge et un hurlement tonitruant couvrit l'étendue.
 
-« Tu connais le sort du Clan du Tatouage, mais ce sort est inutile contre ce vieil homme! » L'expression de Shui Daozi était neutre; au moment où les innombrables tatouages convergèrent vers lui, il agita nonchalamment sa main droite.
+« Tu connais le sort du Clan Fu Wen, mais ce sort est inutile contre ce vieil homme! » L'expression de Shui Daozi était neutre; au moment où les innombrables tatouages convergèrent vers lui, il agita nonchalamment sa main droite.
 
 « Effondrement du Dao Insouciant! » La voix de Shui Daozi était calme, mais elle donnait l'illusion qu'un dieu rugissait. Sa voix devint plus intense alors qu'elle se propageait avec frénésie.
 
@@ -64,7 +64,7 @@ Le garçon aux cheveux blancs saisit cette goutte de sang et l'avala, ses yeux c
 
 « Ce n'est pas sa réincarnation!! »
 
-L'effondrement des tatouages sanguins n'était pas une surprise pour Wang Lin. Ses dix millions d'ombres d'épée avaient réussi à laisser une légère blessure. Cependant, maintenant que l'adversaire utilisait des sorts du troisième niveau, tout autre sort s'effondrerait de toute façon. Le sort du Clan du Tatouage n'était qu'un sort, et il ne pouvait donc naturellement rien faire.
+L'effondrement des tatouages sanguins n'était pas une surprise pour Wang Lin. Ses dix millions d'ombres d'épée avaient réussi à laisser une légère blessure. Cependant, maintenant que l'adversaire utilisait des sorts du troisième niveau, tout autre sort s'effondrerait de toute façon. Le sort du Clan Fu Wen n'était qu'un sort, et il ne pouvait donc naturellement rien faire.
 
 Mais c'était précisément ce que Wang Lin voulait!
 

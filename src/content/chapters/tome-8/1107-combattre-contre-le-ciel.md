@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1107 - Battling Against Heaven
 slug: combattre-contre-le-ciel
 ---
-Tous les cultivateurs de la Mer des Nuages, ainsi que la formation, avaient été désintégrés. Seul le dernier ancien vêtu de pourpre, qui avait craché du sang après le deuxième effondrement, tentait désespérément de s'échapper.
+Tous les cultivateurs de la Mer Yun, ainsi que la formation, avaient été désintégrés. Seul le dernier ancien vêtu de pourpre, qui avait craché du sang après le deuxième effondrement, tentait désespérément de s'échapper.
 
 Il était terrifié, absolument terrifié!
 
@@ -42,7 +42,7 @@ Le corps de Wang Lin s'enfonça immédiatement de plusieurs dizaines de pieds so
 
 Il agita sa main droite. Au loin, la rivière ardente enveloppa la dépouille calcinée du vieil homme et l'entraîna en arrière avec son âme originelle.
 
-L'ancien de la Mer des Nuages avait été gravement blessé. La sphère d'éclairs de la rétribution divine avait suffi à briser son corps, bien qu'il ait réussi à la contenir. Puis, l'Effondrement des Montagnes l'avait encore plus affaibli, faisant chuter drastiquement son niveau de culture. Il n'avait désormais plus que la puissance d'un cultivateur au début du stade Purificateur du Nirvana.
+L'ancien de la Mer Yun avait été gravement blessé. La sphère d'éclairs de la rétribution divine avait suffi à briser son corps, bien qu'il ait réussi à la contenir. Puis, l'Effondrement des Montagnes l'avait encore plus affaibli, faisant chuter drastiquement son niveau de culture. Il n'avait désormais plus que la puissance d'un cultivateur au début du stade Purificateur du Nirvana.
 
 En raison de l'encerclement par la rivière ardente, l'âme originelle de l'ancien s'était affaiblie, mais lorsque la rivière revint vers Wang Lin, ses yeux se contractèrent brusquement. Son âme originelle se déploya avec frénésie, lui permettant d'échapper au courant, et il chargea Wang Lin!
 

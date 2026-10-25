@@ -12,7 +12,7 @@ Les pupilles de Wang Lin se rétractèrent. Il connaissait cette ombre, il la co
 
 C'était une tour noire qui se dressait au milieu de ce désert de sable noir et inhospitalier. Elle était imprégnée d'une telle énergie démoniaque que l'on pouvait ressentir son aura délirante à distance.
 
-Wang Lin avait déjà vu une tour noire semblable par le passé. Dans le Pays du Démon Céleste, un reniflement glacial avait presque fait s'effondrer le corps de Wang Lin à l'époque.
+Wang Lin avait déjà vu une tour noire semblable par le passé. Dans le Pays Tian Yao, un reniflement glacial avait presque fait s'effondrer le corps de Wang Lin à l'époque.
 
 Même dans sa grotte, il n'avait pas pu échapper aux sorts de ce qui se trouvait dans la tour. Sans la stimulation du Fruit de l'Ascension Céleste, il aurait totalement perdu sa nature face à la tour du démon dispersé!
 

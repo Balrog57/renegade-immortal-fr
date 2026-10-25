@@ -60,7 +60,7 @@ Cependant, malgré le fracas du tonnerre provoqué par la collision, qui résonn
 
 Le démon géant afficha une expression mystérieuse, puis plongea sa main dans sa propre poitrine. D'une manière ou d'une autre, il extirpa la bête de son torse, la fixa froidement et s'apprêta à la dévorer.
 
-« Créature maléfique! Arrête-toi pour ce vieil homme! » Un rugissement retentit soudain depuis le secteur principal de la Secte du Destin Céleste.
+« Créature maléfique! Arrête-toi pour ce vieil homme! » Un rugissement retentit soudain depuis le secteur principal de la Secte Tian Yun.
 
 À l'écho de cette voix, le démon manifesta une expression de lutte avant de pousser un soupir et de relâcher la bête spirituelle. Le corps du démon se rétracta instantanément pour ne devenir qu'un rayon de lumière verte, qui regagna le front de Zhao Xingsha.
 
@@ -78,7 +78,7 @@ Zhao Xingsha regarda le vieillard au visage pourpre, joignit les mains et dit: �
 
 L'homme au visage rouge scruta Zhao Xingsha et demanda: « Tu me connais? »
 
-Zhao Xingsha hocha la tête et répondit respectueusement: « Lorsque le disciple est entré dans la Secte du Destin Céleste il y a plus de mille ans, j'ai rencontré l'Oncle-Maître une fois. »
+Zhao Xingsha hocha la tête et répondit respectueusement: « Lorsque le disciple est entré dans la Secte Tian Yun il y a plus de mille ans, j'ai rencontré l'Oncle-Maître une fois. »
 
 Le vieil homme renifla: « Même si tu me connais, cela ne sert à rien. L'esprit démoniaque en ton corps vient à peine de croître et tu as déjà tenté de l'utiliser de force. Attends-toi donc à la punition de ton maître! » Sur ce, il tendit la main pour saisir Zhao Xingsha, puis son regard se porta vers Wang Lin. Un air d'intérêt apparut sur son visage et il sourit: « Petit, ton maître place de grands espoirs en toi. Ce frère aîné ne participera pas à la compétition pour le titre de disciple véritable de ta Division Pourpre, tu peux donc te détendre! »
 

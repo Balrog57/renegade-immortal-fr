@@ -14,21 +14,21 @@ En ce jour, la région de rang 8 apparut enfin dans sa vision!
 
 Près de vingt jours de voyage continu avaient épuisé Wang Lin, mais ses yeux brillaient d'éclat. Bien qu'il fût en mouvement, il ajustait continuellement son corps et continuait de dévorer des pilules pour favoriser sa récupération.
 
-Il n'y avait pas de formation entre les régions de rang 7 et de rang 8, mais une épaisse couche de brouillard les séparait. Ce brouillard était dense et vaste, enveloppant totalement la région de rang 8. De nombreuses bêtes de rang 10 ou plus s'y trouvaient, et même des créatures de rang 12 résidaient dans ses profondeurs. Il y avait tout simplement trop de bêtes féroces ici, faisant de cet endroit une zone extrêmement périlleuse de la Mer des Nuages.
+Il n'y avait pas de formation entre les régions de rang 7 et de rang 8, mais une épaisse couche de brouillard les séparait. Ce brouillard était dense et vaste, enveloppant totalement la région de rang 8. De nombreuses bêtes de rang 10 ou plus s'y trouvaient, et même des créatures de rang 12 résidaient dans ses profondeurs. Il y avait tout simplement trop de bêtes féroces ici, faisant de cet endroit une zone extrêmement périlleuse de la Mer Yun.
 
-Ce lieu était appelé le Royaume du Brouillard des Bêtes du Chaos!
+Ce lieu était appelé le Royaume Luan Shou Wu!
 
 Si on le décrivait comme un « royaume », c'était en raison de son immensité. Si un cultivateur ordinaire y pénétrait seul, il n'en resterait même pas les os. Seuls de véritables vieux monstres pouvaient y entrer, et encore, ils devaient faire preuve d'une prudence extrême.
 
 Cependant, la Secte Divine avait utilisé une méthode inconnue pour que les bêtes féroces de l'intérieur ne quittent guère ce royaume; elles se contentaient d'y absorber l'énergie originelle. C'était comme si une frontière invisible marquait la limite de ce brouillard.
 
-Quatre chemins existaient dans le Royaume du Brouillard des Bêtes du Chaos, et seuls ces quatre sentiers étaient sûrs. C'étaient les voies que les disciples des sectes de rang 8 devaient emprunter s'ils souhaitaient quitter la région de rang 8 sans utiliser de matrice de transfert.
+Quatre chemins existaient dans le Royaume Luan Shou Wu, et seuls ces quatre sentiers étaient sûrs. C'étaient les voies que les disciples des sectes de rang 8 devaient emprunter s'ils souhaitaient quitter la région de rang 8 sans utiliser de matrice de transfert.
 
 La rumeur disait qu'ils avaient été ouverts par la Secte Divine il y a des éons. Ils avaient employé une méthode spéciale pour garantir la sécurité de ces quatre voies, afin que ceux qui les empruntaient ne soient pas attaqués par les bêtes féroces.
 
-Toutefois, hormis les disciples des sectes de rang 8 et ceux ayant obtenu un jade de guidage, personne ne connaissait l'existence de ces chemins. Les autres ne pouvaient que s'élancer tête baissée dans le Royaume du Brouillard des Bêtes du Chaos, avec pour seule chance d'atteindre la région de rang 8 de ne pas mourir en chemin.
+Toutefois, hormis les disciples des sectes de rang 8 et ceux ayant obtenu un jade de guidage, personne ne connaissait l'existence de ces chemins. Les autres ne pouvaient que s'élancer tête baissée dans le Royaume Luan Shou Wu, avec pour seule chance d'atteindre la région de rang 8 de ne pas mourir en chemin.
 
-À cet instant, sur le troisième chemin du Royaume du Brouillard des Bêtes du Chaos, quatre cultivateurs se précipitaient. Celui qui menait la marche était un vieil homme vêtu d'une robe taoïste noire et blanche, arborant une chevelure gris argenté. Bien qu'âgé, son regard était vif comme l'éclair. Le brouillard devant lui reculait souvent de plusieurs dizaines de pieds sous la seule force de sa vue.
+À cet instant, sur le troisième chemin du Royaume Luan Shou Wu, quatre cultivateurs se précipitaient. Celui qui menait la marche était un vieil homme vêtu d'une robe taoïste noire et blanche, arborant une chevelure gris argenté. Bien qu'âgé, son regard était vif comme l'éclair. Le brouillard devant lui reculait souvent de plusieurs dizaines de pieds sous la seule force de sa vue.
 
 Ce vieil homme dégageait une puissante aura de Briseur du Nirvana; il avait manifestement atteint le sommet de ce stade. Les lois du monde convergeaient en lui à chacun de ses mouvements.
 
@@ -36,25 +36,25 @@ Derrière lui suivaient trois personnes, deux hommes et une femme. Ils paraissai
 
 Tandis qu'ils volaient, la femme demanda d'une voix suave: « Maître, où nous emmenez-vous? »
 
-Le vieil homme ne répondit pas et continua sa progression jusqu'aux profondeurs du Royaume du Brouillard des Bêtes du Chaos. Ce n'est qu'alors qu'il s'arrêta et se retourna vers les trois disciples.
+Le vieil homme ne répondit pas et continua sa progression jusqu'aux profondeurs du Royaume Luan Shou Wu. Ce n'est qu'alors qu'il s'arrêta et se retourna vers les trois disciples.
 
 « Vous êtes tous les disciples centraux de ma Secte Éternelle, mais vous vous êtes reposés sur les pilules pour augmenter votre niveau de culture, et par conséquent, vous manquez de compréhension profonde des cieux, sans parler des lois du monde. La meilleure façon de comprendre le ciel est de traverser une crise de vie ou de mort. Aujourd'hui, votre Maître vous a amenés ici, parmi ces bêtes féroces, pour que vous puissiez enfin méditer sur ces leçons! » Après avoir parlé, le vieil homme fit un geste de la main. Sans même leur laisser le temps de réagir, il les projeta dans le brouillard.
 
 Le vieil homme s'assit et réfléchit en silence, tandis que son sens divin se déployait pour observer ses trois disciples. À moins qu'ils ne soient réellement face à la mort, il n'interviendrait pas.
 
-Dans la région de rang 7, à l'extérieur du Royaume du Brouillard des Bêtes du Chaos, l'Empreinte de l'Esprit Guerrier traversait les étoiles, suivie de près par Wang Lin. Il connaissait déjà l'existence du Royaume du Brouillard des Bêtes du Chaos sur Peng Lai et savait qu'un itinéraire existait. Cependant, il n'était pas certain de ses informations; sans une direction exacte, il risquait de s'égarer dans la brume.
+Dans la région de rang 7, à l'extérieur du Royaume Luan Shou Wu, l'Empreinte de l'Esprit Guerrier traversait les étoiles, suivie de près par Wang Lin. Il connaissait déjà l'existence du Royaume Luan Shou Wu sur Peng Lai et savait qu'un itinéraire existait. Cependant, il n'était pas certain de ses informations; sans une direction exacte, il risquait de s'égarer dans la brume.
 
 Plus important encore, l'itinéraire connu l'aurait obligé à faire un immense détour, doublant ainsi le temps de trajet. Ce n'était pas non plus une garantie de succès; en fin de compte, il renonça à cette option.
 
 Il décida de prendre une route directe et de forcer le passage. Cela lui permettrait d'entrer dans la région de rang 8 dans les plus brefs délais!
 
-Une fois sa décision prise, Wang Lin n'hésita pas à foncer vers le Royaume du Brouillard des Bêtes du Chaos qui entourait la région de rang 8, l'Empreinte de l'Esprit Guerrier rugissant pour ouvrir une voie.
+Une fois sa décision prise, Wang Lin n'hésita pas à foncer vers le Royaume Luan Shou Wu qui entourait la région de rang 8, l'Empreinte de l'Esprit Guerrier rugissant pour ouvrir une voie.
 
-Rapide comme une météorite, il percuta le Royaume du Brouillard des Bêtes du Chaos. Lorsque l'Empreinte s'approcha de la brume dense, celle-ci recula promptement, comme si elle n'osait s'approcher, laissant passer la paume.
+Rapide comme une météorite, il percuta le Royaume Luan Shou Wu. Lorsque l'Empreinte s'approcha de la brume dense, celle-ci recula promptement, comme si elle n'osait s'approcher, laissant passer la paume.
 
 Cependant, ce brouillard était singulier. Bien qu'il se retirât, il ne traçait pas de chemin net comme les brumes que Wang Lin avait vues jusqu'ici. Le brouillard entourait l'Empreinte de l'Esprit Guerrier et semblait vouloir la dévorer.
 
-Les grondements tonitruants de l'empreinte de la paume plongèrent le calme Royaume du Brouillard des Bêtes du Chaos dans le chaos, tel un rocher jeté dans un lac paisible. Les ondulations provoquées firent rugir les bêtes à l'intérieur.
+Les grondements tonitruants de l'empreinte de la paume plongèrent le calme Royaume Luan Shou Wu dans le chaos, tel un rocher jeté dans un lac paisible. Les ondulations provoquées firent rugir les bêtes à l'intérieur.
 
 L'expression de Wang Lin resta imperturbable et sa vitesse ne faiblit pas alors qu'il suivait la trace de la paume. Son sens divin se déploya pour saturer la zone. Il détecta une quantité massive de bêtes féroces au sein de ce brouillard.
 

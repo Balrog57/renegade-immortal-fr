@@ -104,7 +104,7 @@ Au cours de la troisième année dans l'espace de rêve, Wang Lin atteignit le 1
 
 Grâce à son seul Sens Divin du Royaume Ji, Wang Lin était l'ennemi naturel de tous les cultivateurs au stade de l'Établissement des Fondations. Il se sentait même capable de combattre des cultivateurs au début du stade de la Formation du Noyau. Il estimait qu'une fois parvenu au stade avancé de l'Établissement des Fondations, il aurait 70 % de chances de tuer un cultivateur au début de la Formation du Noyau.
 
-De même, s'il parvenait à former son propre noyau, il deviendrait le premier de toute l'Alliance de Culture sous le stade de l'Âme Naissante.
+De même, s'il parvenait à former son propre noyau, il deviendrait le premier de toute l'Alliance Xiu Zhen sous le stade de l'Âme Naissante.
 
 Telle était la puissance du Royaume Ji.
 

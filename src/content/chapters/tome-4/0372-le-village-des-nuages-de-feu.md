@@ -24,7 +24,7 @@ Wang Lin pensa avec amertume: « Peut-être que seules les sectes locales possè
 
 Cependant, comment pourrait-il intégrer une secte avec son état actuel?
 
-Il soupira et leva les yeux vers le ciel, une pointe de désespoir envahissant son cœur. Mais ce sentiment fut promptement écrasé par sa détermination. Il prit une profonde inspiration et murmura: « Xue Yu et le Clan des Démons Géants, je n'oublierai pas ce qui s'est passé. Un jour, je vous ferai payer dix, voire cent fois ce que vous m'avez infligé! »
+Il soupira et leva les yeux vers le ciel, une pointe de désespoir envahissant son cœur. Mais ce sentiment fut promptement écrasé par sa détermination. Il prit une profonde inspiration et murmura: « Xue Yu et le Clan Ju Mo, je n'oublierai pas ce qui s'est passé. Un jour, je vous ferai payer dix, voire cent fois ce que vous m'avez infligé! »
 
 Le regard empreint de résolution, il se redressa et reprit sa marche.
 

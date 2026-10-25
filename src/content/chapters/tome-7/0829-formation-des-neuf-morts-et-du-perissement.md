@@ -192,4 +192,4 @@ Les récits des combats entre Xu Mu et la famille Yao furent propagés et devinr
 
 Le nom de « Xu Mu » s'était imposé!
 
-Dans le Temple Céleste du Tonnerre, au sommet du Pavillon des Nuages, Qing Shui méditait les yeux clos. Il ouvrit les paupières, regarda au loin et murmura: « Cet enfant possède un style semblable au mien dans ma jeunesse, très bien! »
+Dans le Temple Céleste du Tonnerre, au sommet du Pavillon Zi Yun, Qing Shui méditait les yeux clos. Il ouvrit les paupières, regarda au loin et murmura: « Cet enfant possède un style semblable au mien dans ma jeunesse, très bien! »

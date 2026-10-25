@@ -38,7 +38,7 @@ Le visage de l'homme d'âge moyen devint livide et il cracha du sang. Sans hési
 
 L'homme ouvrit la bouche pour parler, mais après une gifle assénée par Wang Lin, il ne laissa échapper qu'un gémissement misérable, crachant une bouchée de sang mêlée à des fragments de dents.
 
-« Je viens de la Secte de l'Affinement de l'Âme... » murmura l'homme, terrifié par la douleur.
+« Je viens de la Secte Lian Hun... » murmura l'homme, terrifié par la douleur.
 
 Mais avant qu'il ne puisse finir sa phrase, Wang Lin le frappa à nouveau. Une lueur de folie s'empara des yeux de l'homme d'âge moyen. Il n'avait jamais été aussi humilié depuis le début de son parcours de cultivateur.
 

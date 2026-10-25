@@ -16,9 +16,9 @@ Wang Lin reprit lentement: « Cependant, avec la vitesse de cultivateurs au stad
 
 Qiu Siping soupira et joignit les mains en signe de respect. « Frère Wang, dites ce que vous avez sur le cœur. Bien que nos liens ne soient pas profonds, nous avons tout de même traversé quelques épreuves ensemble. »
 
-Les yeux de Wang Lin s'illuminèrent. « Possédez-vous une carte de la Mer des Démons? » demanda-t-il.
+Les yeux de Wang Lin s'illuminèrent. « Possédez-vous une carte de la Mer Xiu Mo? » demanda-t-il.
 
-Qiu Siping fut stupéfait. Après avoir réfléchi un instant, il secoua la tête et répondit: « Je ne possède pas de carte de la Mer des Démons. Si frère Wang en désire une, vous pourriez en acheter une en échange sur les marchés des cités principales. Vous y trouverez peut-être votre bonheur. »
+Qiu Siping fut stupéfait. Après avoir réfléchi un instant, il secoua la tête et répondit: « Je ne possède pas de carte de la Mer Xiu Mo. Si frère Wang en désire une, vous pourriez en acheter une en échange sur les marchés des cités principales. Vous y trouverez peut-être votre bonheur. »
 
 Une lueur froide traversa le regard de Wang Lin. S'il n'avait pas tué Qiu Siping, c'était parce qu'il était un homme rusé. Il était très facile de le tuer, mais extrêmement difficile de le faire dire la vérité. Si Wang Lin l'avait menacé de mort, les chances d'obtenir la vérité auraient été infimes.
 
@@ -32,7 +32,7 @@ Tout cela faisait partie des calculs de Wang Lin, et Qiu Siping, sans le savoir,
 
 Par cette approche, il était bien plus facile de faire céder quelqu'un que par une simple menace de mort. Qiu Siping lança un regard complexe à Wang Lin. Sans un mot, il sortit un jade vierge, le plaça contre son front et commença à y imprimer une carte en se fondant sur ses souvenirs.
 
-Après un court instant, il remit le jade à Wang Lin et dit: « Ceci contient tout ce que je sais de la cartographie de la Mer des Démons, accumulé au fil de mes années de voyage dans ce pays. Il peut y avoir quelques erreurs, mais pas trop graves. Si vous n'avez rien d'autre à demander, frère Wang, je m'en vais. »
+Après un court instant, il remit le jade à Wang Lin et dit: « Ceci contient tout ce que je sais de la cartographie de la Mer Xiu Mo, accumulé au fil de mes années de voyage dans ce pays. Il peut y avoir quelques erreurs, mais pas trop graves. Si vous n'avez rien d'autre à demander, frère Wang, je m'en vais. »
 
 Wang Lin prit le jade. Sans même l'examiner, il joignit les mains et sourit: « Merci infiniment! » s'exclama-t-il.
 
@@ -44,15 +44,15 @@ Qiu Siping réfléchit un instant, puis éclata de rire. « Frère Wang, adieu! 
 
 Wang Lin tint le jade et l'examina avec son Sens Divin. L'objet contenait une carte assez détaillée de la mer intérieure, mais très peu d'informations sur la mer extérieure. Dans la zone de la mer intérieure, on trouvait même l'emplacement de réseaux de transfert anciens.
 
-Wang Lin ne croyait pas que cette carte soit exempte de mensonges, mais il n'avait pas l'intention de s'en remettre uniquement à elle pour traverser la Mer des Démons. Son intention était de trouver une carte complète si possible; si cela s'avérait impossible, il collecterait autant de cartes incomplètes que possible. En les comparant, les mensonges deviendraient faciles à déceler.
+Wang Lin ne croyait pas que cette carte soit exempte de mensonges, mais il n'avait pas l'intention de s'en remettre uniquement à elle pour traverser la Mer Xiu Mo. Son intention était de trouver une carte complète si possible; si cela s'avérait impossible, il collecterait autant de cartes incomplètes que possible. En les comparant, les mensonges deviendraient faciles à déceler.
 
-D'après ses connaissances sur la Mer des Démons, la ville de Lian Mo se trouvait à environ dix jours de route au nord de sa position actuelle. La ville de Lian Mo était l'une des 99 cités majeures de la Mer des Démons; les petites villes de la mer extérieure ne faisaient pas le poids.
+D'après ses connaissances sur la Mer Xiu Mo, la ville de Lian Mo se trouvait à environ dix jours de route au nord de sa position actuelle. La ville de Lian Mo était l'une des 99 cités majeures de la Mer Xiu Mo; les petites villes de la mer extérieure ne faisaient pas le poids.
 
 Une autre raison pour laquelle Wang Lin avait décidé de se rendre à la ville de Lian Mo était que, selon la carte de Qiu Siping, un réseau de transfert ancien se trouvait à 150 000 kilomètres de la cité.
 
 Durant son voyage vers la ville, Wang Lin collecta le noyau de chaque bête qu'il croisait. Cependant, s'il rencontrait une bête spirituelle de haute qualité, il préférait l'éviter.
 
-Sept jours plus tard, Wang Lin fut de plus en plus alarmé en observant de ses propres yeux la situation dans la Mer des Démons. Il n'imaginait pas qu'en seulement quelques années, les bêtes sauvages seraient devenues aussi rampantes. Depuis son départ, il avait déjà croisé deux bêtes spirituelles de haute qualité dont la puissance égalait celle de cultivateurs au stade de la Formation de l'Âme.
+Sept jours plus tard, Wang Lin fut de plus en plus alarmé en observant de ses propres yeux la situation dans la Mer Xiu Mo. Il n'imaginait pas qu'en seulement quelques années, les bêtes sauvages seraient devenues aussi rampantes. Depuis son départ, il avait déjà croisé deux bêtes spirituelles de haute qualité dont la puissance égalait celle de cultivateurs au stade de la Formation de l'Âme.
 
 Heureusement, ces deux bêtes cultivaient dans leurs propres territoires. À moins que Wang Lin ne les importunât délibérément, elles ne le poursuivraient pas.
 
@@ -64,7 +64,7 @@ L'endroit était d'un calme plat. On n'y décelait même aucune trace d'odeur de
 
 Après réflexion, il pointa son doigt vers son front et un démon à l'apparence de singe en sortit. C'était le démon qu'il avait affiné à partir de l'âme du singe spirituel: son troisième démon.
 
-Au cours des derniers mois au sein de la Secte du Ciel Nuageux, Wang Lin avait pris le contrôle total de ce démon. Le singe était une bête spirituelle de faible qualité, mais devenu un démon, il était bien plus puissant. Bien qu'il ne puisse pas encore dévorer de cultivateurs de l'Âme Naissante, il pouvait facilement engloutir des cultivateurs de la Formation du Noyau.
+Au cours des derniers mois au sein de la Secte Yun Tian, Wang Lin avait pris le contrôle total de ce démon. Le singe était une bête spirituelle de faible qualité, mais devenu un démon, il était bien plus puissant. Bien qu'il ne puisse pas encore dévorer de cultivateurs de l'Âme Naissante, il pouvait facilement engloutir des cultivateurs de la Formation du Noyau.
 
 Dès son apparition, le démon poussa un rugissement. Sa silhouette devint floue alors qu'il chargeait dans la vallée. Il balaya la zone sans rien trouver d'insolite. Juste au moment où il s'apprêtait à revenir, une gueule gigantesque s'ouvrit sur le flanc d'une falaise. Simultanément, une puissante force d'aspiration tenta d'aspirer le démon, mais comme celui-ci n'était pas une entité solide, il parvint aisément à s'échapper.
 

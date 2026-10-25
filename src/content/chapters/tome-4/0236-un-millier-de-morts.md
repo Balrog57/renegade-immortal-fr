@@ -32,13 +32,13 @@ Wang Lin se tenait au sommet de la bête moustique, son Sens Divin verrouillé s
 
 Wang Lin arriva aux abords de la Vallée de Wu Feng, imprégné d'une intention meurtrière monstrueuse.
 
-Bien que la Vallée de Wu Feng porte le nom de "vallée", elle n'en était pas réellement une. La montagne où elle se trouvait, assez célèbre dans le pays de Zhao, s'appelait le Mont des Cinq Immortels. Elle ressemblait à une main gigantesque surgie du sol, ce qui lui donnait sa forme étrange.
+Bien que la Vallée de Wu Feng porte le nom de "vallée", elle n'en était pas réellement une. La montagne où elle se trouvait, assez célèbre dans le pays de Zhao, s'appelait le Mont Wu Xian. Elle ressemblait à une main gigantesque surgie du sol, ce qui lui donnait sa forme étrange.
 
 La Vallée de Wu Feng était établie sur cette montagne. La secte comptait cinq pics : outre le pic principal au centre, les quatre autres abritaient ses branches.
 
 Il y a bien longtemps, à l'apogée de la Vallée de Wu Feng, les cinq montagnes étaient toutes enveloppées d'une lumière spirituelle de pouvoir magique. Des milliers de cultivateurs y résidaient et la vallée régnait en maître sur la région.
 
-Mais aujourd'hui, le Mont des Cinq Immortels était déchu et désert : plus aucune lumière spirituelle ne l'enveloppait, et la secte ne comptait plus même mille disciples, dont la plupart étaient des novices n'ayant pas encore commencé la Condensation de Qi ou n'ayant atteint que le premier ou deuxième niveau.
+Mais aujourd'hui, le Mont Wu Xian était déchu et désert : plus aucune lumière spirituelle ne l'enveloppait, et la secte ne comptait plus même mille disciples, dont la plupart étaient des novices n'ayant pas encore commencé la Condensation de Qi ou n'ayant atteint que le premier ou deuxième niveau.
 
 Alors que Wang Lin approchait sur sa bête moustique, il sembla que quelqu'un eût remarqué sa présence. Immédiatement, un écran de lumière cyan apparut pour barrer la route à Wang Lin. Simultanément, une puissante intention meurtrière émana du sommet de chaque montagne. Cinq hommes vêtus de blanc se tenaient au sommet de chaque pic, avec des épées bleue, rouge, violette, jaune et blanche flottant respectivement au-dessus de leurs têtes.
 
@@ -68,15 +68,15 @@ Wang Lin serra le fourreau. Il sentait que l'intention meurtrière mêlée au Qi
 
 Aussitôt, un Qi d'épée épais, mêlé d'une dense intention meurtrière, s'élança tel un dragon divin de l'antiquité. Les dragons-inondation formés par les cinq flux de Qi d'épée des membres de la famille Teng, face à lui, n'étaient que des nourrissons devant un homme robuste : sans le moindre suspense, ils furent broyés et engloutis par le Qi d'épée du fourreau.
 
-Puis, d'un coup de fourreau de Wang Lin, le dragon divin antique formé par ce Qi d'épée épais se rua en rugissant, gueule féroce grande ouverte, vers le Mont des Cinq Immortels en contrebas.
+Puis, d'un coup de fourreau de Wang Lin, le dragon divin antique formé par ce Qi d'épée épais se rua en rugissant, gueule féroce grande ouverte, vers le Mont Wu Xian en contrebas.
 
-Le sol trembla violemment et la poussière se souleva. La grande formation protectrice de la Vallée de Wu Feng se brisa aussitôt et, dans un grondement, deux pics du vaste Mont des Cinq Immortels s'effondrèrent.
+Le sol trembla violemment et la poussière se souleva. La grande formation protectrice de la Vallée de Wu Feng se brisa aussitôt et, dans un grondement, deux pics du vaste Mont Wu Xian s'effondrèrent.
 
 Quant aux membres de la famille Teng qui contrôlaient la formation, ils ne purent supporter une force aussi colossale et leurs corps explosèrent sur-le-champ ; mais d'un appel de la main droite de Wang Lin, leurs têtes, intactes, furent prises par le tendon de dragon et flottèrent derrière lui.
 
 Au même instant, Wang Lin sauta de la bête moustique et fondit sur la Vallée de Wu Feng, tuant un à un, selon le verrouillage de son Sens Divin, ceux qu'il avait repérés.
 
-« Aujourd'hui, j'ai un différend privé avec la famille Teng. Quiconque me barrera la route sera tué ! » Une voix froide et impitoyable se répandit avec fracas dans toute la Vallée de Wu Feng, dans tout le Mont des Cinq Immortels. À cet instant, les mortels qui l'entendirent sentirent monter en eux un froid intense.
+« Aujourd'hui, j'ai un différend privé avec la famille Teng. Quiconque me barrera la route sera tué ! » Une voix froide et impitoyable se répandit avec fracas dans toute la Vallée de Wu Feng, dans tout le Mont Wu Xian. À cet instant, les mortels qui l'entendirent sentirent monter en eux un froid intense.
 
 Près d'une centaine de cultivateurs jaillirent soudain de tous les recoins du mont, chacun chevauchant sa lumière d'épée à sa vitesse maximale, filant dans toutes les directions, fuyant en panique.
 

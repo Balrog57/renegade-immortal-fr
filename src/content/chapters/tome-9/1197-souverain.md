@@ -60,7 +60,7 @@ Le visage de Wang Lin pâlit et il prit une inspiration saccadée. Inconsciemmen
 
 Cependant, à l'époque, le Souverain était une figure lointaine, un colosse appartenant à l'ère de Qing Lin. Des éons s'étaient écoulés depuis.
 
-Pourtant, Wang Lin ne s'attendait pas à trouver un jade contenant des informations sur le Souverain dans le Système Stellaire de la Mer des Nuages, au sein de ce Monde aux Sept Couleurs, dans cette même vallée!
+Pourtant, Wang Lin ne s'attendait pas à trouver un jade contenant des informations sur le Souverain dans le Système Stellaire de la Mer Yun, au sein de ce Monde aux Sept Couleurs, dans cette même vallée!
 
 Wang Lin ferma les yeux et repensa malgré lui au combat qu'il avait mené aux côtés de Qing Shui contre le Serpent aux yeux de lune. L'effondrement du vide avait provoqué l'apparition de ces deux mystérieux cultivateurs!
 
@@ -70,7 +70,7 @@ Ces deux individus étaient des résidents du monde extérieur! Si la Perle Déf
 
 « Ce Monde aux Sept Couleurs est lié à Tian Yunzi ainsi qu'au Souverain… Notamment ces clous aux sept couleurs qui peuvent rendre fou et pousser à massacrer tout être vivant… Le Senior Frère Qing Shui a dit qu'avant l'effondrement du Royaume Céleste, il était en culture fermée lorsqu'il est soudainement devenu fou. Lui-même ignore pourquoi… Tout cela est lié à cette folie! »
 
-« De plus, le vieux Grand Empereur Divin de l'Oiseau Vermillon a dit qu'après que le Senior Frère Qing Shui se soit rendu à l'Alliance de Culture, il était redevenu fou… Quel secret se cache derrière tout cela? Cela doit être lié à ce Souverain! »
+« De plus, le vieux Grand Empereur Divin de l'Oiseau Vermillon a dit qu'après que le Senior Frère Qing Shui se soit rendu à l'Alliance Xiu Zhen, il était redevenu fou… Quel secret se cache derrière tout cela? Cela doit être lié à ce Souverain! »
 
 « Tian Yunzi, Qing Shui, Sima Mo, Souverain… » Wang Lin médita silencieusement.
 
@@ -78,7 +78,7 @@ Après un long moment, il soupira et regarda le squelette de Sima Mo avec une ex
 
 S'il n'était pas devenu fou, cela signifiait que l'idée liée au Souverain avait réussi!
 
-« Je ne pensais pas que ce serait la faille spatiale que la Secte Brise-Ciel avait découverte autrefois… C'est aussi là qu'est apparue la recette de la pilule d'os de bête! Pourtant, comment l'os de bête et le jade ont-ils pu quitter cet endroit… Se pourrait-il que le Seizième Frère ait réussi à sortir d'ici, faisant ainsi réapparaître le jade et l'os dans la Mer des Nuages… »
+« Je ne pensais pas que ce serait la faille spatiale que la Secte Brise-Ciel avait découverte autrefois… C'est aussi là qu'est apparue la recette de la pilule d'os de bête! Pourtant, comment l'os de bête et le jade ont-ils pu quitter cet endroit… Se pourrait-il que le Seizième Frère ait réussi à sortir d'ici, faisant ainsi réapparaître le jade et l'os dans la Mer Yun… »
 
 « Et puis, il y a cette personne mentionnée dans le jade… Qui est-elle? Selon Sima Mo, la Secte Brise-Ciel ignorait l'existence de ce lieu à l'époque. Ils sont venus ici à cause des paroles de cet homme… Et des centaines d'années plus tard, Sima Mo a vu cet être mystérieux une nouvelle fois! » Wang Lin se frotta les tempes. Plus il en apprenait, plus il s'enfonçait dans la confusion.
 

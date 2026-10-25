@@ -104,7 +104,7 @@ En voyant l'exploit de Wang Lin, le vieil homme sourit. Il sauta de la tête du 
 
 Le dragon, furieux, n'osa pas rugir. Utilisant l'onde de choc du coup de pied du vieil homme, il plongea rapidement dans les profondeurs et disparut sans laisser de trace.
 
-« Bien! Tu es bel et bien un membre de mon Clan de l'Oiseau Vermillon, et tu sais que le gaspillage est une honte! » dit le vieil homme en atterrissant aux côtés de Wang Lin.
+« Bien! Tu es bel et bien un membre de mon Clan Zhu Que, et tu sais que le gaspillage est une honte! » dit le vieil homme en atterrissant aux côtés de Wang Lin.
 
 Après avoir dévoré le sang de dragon, le feu intérieur de Wang Lin devint monstrueux et son visage s'empourpra. Sans prendre le temps de saluer le vieil homme, il s'assit pour faire circuler son énergie originelle.
 
@@ -114,7 +114,7 @@ Le vieil homme resta debout près de lui et l'examina, affichant un sourire sati
 
 « Il devrait être la sixième génération d'Oiseau Vermillon de mon clan... Pas mal, vraiment pas mal! » Plus il l'observait, plus sa joie grandissait. Il s'accroupit même pour lui pincer les joues, puis tapota soigneusement le corps de Wang Lin.
 
-« Oui, c'est définitivement un membre de mon Clan de l'Oiseau Vermillon et non une création de notre ennemi. Cependant, le corps de ce petit est en fait celui d'un Dieu Ancien... Haha, pas mal, pas mal du tout! » L'excitation brillait dans les yeux du vieil homme.
+« Oui, c'est définitivement un membre de mon Clan Zhu Que et non une création de notre ennemi. Cependant, le corps de ce petit est en fait celui d'un Dieu Ancien... Haha, pas mal, pas mal du tout! » L'excitation brillait dans les yeux du vieil homme.
 
 « Le quatrième Oiseau Vermillon était trop frivole et ne pouvait cultiver mon sortilège. Le sixième semble plutôt froid et devrait être capable de... » Alors qu'il continuait à tâter le corps de Wang Lin, il s'interrompit brusquement.
 

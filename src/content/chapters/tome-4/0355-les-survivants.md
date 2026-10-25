@@ -34,7 +34,7 @@ Wang Lin laissa échapper un cri bref et afficha une expression de douleur. Les 
 
 La plante mystérieuse réapparut. La perle défiant le ciel brilla d'une lueur verte et commença à l'absorber.
 
-Après un long moment, Wang Lin ouvrit les yeux et prit une profonde inspiration. Il regarda en arrière et dit: « Enfin, toutes les plantes tatouées ont été expulsées. Ce sort du Clan des Immortels Délaissés est trop étrange. Si je les rencontre à nouveau, je devrai être plus vigilant. »
+Après un long moment, Wang Lin ouvrit les yeux et prit une profonde inspiration. Il regarda en arrière et dit: « Enfin, toutes les plantes tatouées ont été expulsées. Ce sort du Clan Xian Yi est trop étrange. Si je les rencontre à nouveau, je devrai être plus vigilant. »
 
 Il saisit la perle défiant le ciel pour l'examiner. Neuf feuilles s'étaient déployées, et la dernière s'était partiellement ouverte.
 

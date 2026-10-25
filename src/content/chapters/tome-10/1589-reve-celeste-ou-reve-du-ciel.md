@@ -22,9 +22,9 @@ Les yeux de Maître Hong Shan étaient emplis de chagrin. Après un long moment,
 
 Qing Shui leva les yeux vers les étoiles lointaines et son regard devint glacial. Une aura d'essence meurtrière se dégagea de son corps et enveloppa la zone.
 
-« Je prendrai sa place... et je me retirerai en culture fermée à la station de combat de la Mer des Nuages. » Qing Shui ferma les yeux et son visage changea progressivement. Finalement, il prit l'apparence de Wang Lin, adoptant même son tempérament froid.
+« Je prendrai sa place... et je me retirerai en culture fermée à la station de combat de la Mer Yun. » Qing Shui ferma les yeux et son visage changea progressivement. Finalement, il prit l'apparence de Wang Lin, adoptant même son tempérament froid.
 
-Qing Shui renonça à retrouver sa fille et à sa liberté. Il choisit d'endosser l'identité de Wang Lin pour devenir un symbole à la station de combat de la Mer des Nuages.
+Qing Shui renonça à retrouver sa fille et à sa liberté. Il choisit d'endosser l'identité de Wang Lin pour devenir un symbole à la station de combat de la Mer Yun.
 
 « Junior Frère, je me vengerai pour toi... Quant à tous ceux qui sont impliqués dans cette affaire, si j'en ai la moindre chance, je ferai tout mon possible pour te venger! » Qing Shui ferma les yeux pour dissimuler sa douleur.
 

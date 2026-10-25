@@ -14,7 +14,7 @@ L'expression de Wang Lin resta sereine tandis qu'il joignait les mains en signe 
 
 Xu Yunshan sourit et répondit: « Je suis le jeune maître de la Secte Xuan Yuan de la planète Terre. Je suis ici pour remplir mon devoir d'hôte. Frère Wang, je t'en prie, ne refuse pas. »
 
-« Alors je vais devoir importuner le frère Xu! » Wang Lin esquissa un léger sourire. Le niveau de culture de ce Xu Yunshan était identique au sien: le stade moyen de la Transformation de l'Âme. Il avait quitté la Secte du Destin Céleste pour trouver un lieu propice à une culture paisible; la compétition et les luttes incessantes au sein de la Secte du Destin Céleste n'étaient guère adaptées à la culture.
+« Alors je vais devoir importuner le frère Xu! » Wang Lin esquissa un léger sourire. Le niveau de culture de ce Xu Yunshan était identique au sien: le stade moyen de la Transformation de l'Âme. Il avait quitté la Secte Tian Yun pour trouver un lieu propice à une culture paisible; la compétition et les luttes incessantes au sein de la Secte Tian Yun n'étaient guère adaptées à la culture.
 
 Venant d'arriver sur cette planète, il ne pouvait simplement décliner l'hospitalité de son hôte.
 
@@ -32,7 +32,7 @@ Tout en contemplant la beauté du jardin, Wang Lin se mit à réfléchir.
 
 « L'Art du Massacre Céleste... J'ai pu l'étudier un peu durant le voyage. C'est une technique véritablement exquise. Utiliser des sceaux de force vitale pour protéger son corps peut effectivement créer une défense redoutable. »
 
-« La perle défiant le ciel manque encore de l'élément métal pour être complète. L'obtention de cet élément est une autre affaire que je dois résoudre au plus vite. Situ Nan pense que la perle ne reconnaîtra un maître qu'une fois les cinq éléments réunis. À ce moment-là, pourra-t-elle enfin manifester sa véritable puissance? Cependant, Wang Lin ignore quelle nature de pouvoir la perle possède pour que l'Alliance de Culture se la soit disputée autrefois. »
+« La perle défiant le ciel manque encore de l'élément métal pour être complète. L'obtention de cet élément est une autre affaire que je dois résoudre au plus vite. Situ Nan pense que la perle ne reconnaîtra un maître qu'une fois les cinq éléments réunis. À ce moment-là, pourra-t-elle enfin manifester sa véritable puissance? Cependant, Wang Lin ignore quelle nature de pouvoir la perle possède pour que l'Alliance Xiu Zhen se la soit disputée autrefois. »
 
 « Je me demande comment vont les choses sur la planète Suzaku... » Wang Lin leva la tête vers le vide. Son regard sembla parcourir une distance incommensurable pour se poser, au loin, sur la planète Suzaku.
 
@@ -52,7 +52,7 @@ Plus d'une centaine de cultivateurs attendaient devant la tour, guettant l'arriv
 
 Peu de temps après, deux rayons de lumière surgirent de l'horizon, brisant le mur du son. À cet instant, la foule au pied de la tour leva les yeux.
 
-Alors que les deux lueurs approchaient, les cultivateurs s'exclamèrent respectueusement: « Les cultivateurs de Ling Yue saluent le messager seigneur de la Secte du Destin Céleste et le jeune maître de la Secte Xuan Yuan! »
+Alors que les deux lueurs approchaient, les cultivateurs s'exclamèrent respectueusement: « Les cultivateurs de Ling Yue saluent le messager seigneur de la Secte Tian Yun et le jeune maître de la Secte Xuan Yuan! »
 
 Xu Yunshan rit et déclara: « Je prends congé. Si l'occasion se présente à l'avenir, nous boirons et discuterons à nouveau! » Sur ces mots, il s'envola vers les lointains.
 

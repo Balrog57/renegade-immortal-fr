@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1179 - Crowd of Devils Gathers
 slug: le-rassemblement-des-demons
 ---
-« Briseur du Nirvana de stade intermédiaire! » Lorsque Wang Lin s'approcha, il observa le vieil homme coiffé d'une couronne et ressentit l'intention meurtrière monstrueuse qui émanait de lui. Cet homme utilisait également les âmes pour ses sorts; c'était manifestement un célèbre cultivateur maléfique de la Mer des Nuages.
+« Briseur du Nirvana de stade intermédiaire! » Lorsque Wang Lin s'approcha, il observa le vieil homme coiffé d'une couronne et ressentit l'intention meurtrière monstrueuse qui émanait de lui. Cet homme utilisait également les âmes pour ses sorts; c'était manifestement un célèbre cultivateur maléfique de la Mer Yun.
 
 À ce moment-là, alors que Maître Nuage-Âme agita ses manches, une marée infinie de fragments d'âmes chargea vers Wang Lin pour le dévorer.
 
@@ -92,15 +92,15 @@ Personne ne le vit faire le moindre mouvement, mais dès qu'il prit la parole, l
 
 L'homme robuste dévora la pilule et dit calmement: « Je suis arrivé tôt, alors j'en ai profité pour raffiner les bêtes féroces d'ici. »
 
-« Secte de la Bête de Bataille! » L'expression de Maître Nuage-Âme devint sérieuse et il joignit les mains en signe de respect envers l'homme. « Je me demande de quel Daoïste de la Secte de la Bête de Bataille il s'agit? Je suis Maître Nuage-Âme, et j'ai des liens anciens avec le Daoïste Bu Tianzi de votre secte. »
+« Secte Yi Shou! » L'expression de Maître Nuage-Âme devint sérieuse et il joignit les mains en signe de respect envers l'homme. « Je me demande de quel Daoïste de la Secte Yi Shou il s'agit? Je suis Maître Nuage-Âme, et j'ai des liens anciens avec le Daoïste Bu Tianzi de votre secte. »
 
 L'expression du garçon devint également grave, et il joignit les mains à son tour.
 
 « Bu Tianzi est mon Senior. Je suis Chen Tianjun. » La voix de l'homme robuste était calme, teintée d'une pointe de fierté.
 
-« Cet homme est un Briseur du Nirvana de stade précoce... Mais s'il impose la prudence à ces vieux monstres de stade intermédiaire, ce n'est pas seulement à cause du nom de sa secte; plus important encore, les sorts de cette Secte de la Bête de Bataille ont quelque chose d'étrange. De plus, il a affirmé être arrivé alors que personne ne l'avait remarqué. Il y a là une anomalie! » Wang Lin détourna le regard de l'homme robuste.
+« Cet homme est un Briseur du Nirvana de stade précoce... Mais s'il impose la prudence à ces vieux monstres de stade intermédiaire, ce n'est pas seulement à cause du nom de sa secte; plus important encore, les sorts de cette Secte Yi Shou ont quelque chose d'étrange. De plus, il a affirmé être arrivé alors que personne ne l'avait remarqué. Il y a là une anomalie! » Wang Lin détourna le regard de l'homme robuste.
 
-« La technique de dissimulation par les bêtes de la Secte de la Bête de Bataille est en effet remarquable. Je n'avais pas réalisé que mon frère Chen était déjà là! » Cang Songzi se leva en riant.
+« La technique de dissimulation par les bêtes de la Secte Yi Shou est en effet remarquable. Je n'avais pas réalisé que mon frère Chen était déjà là! » Cang Songzi se leva en riant.
 
 Chen Tianjun hocha légèrement la tête et dit: « Cang Songzi, j'ai été convoqué par la région de rang 9 et je dois retourner d'urgence à la secte pour partir avec mes condisciples. Je n'ai pas beaucoup de temps, alors hâtez-vous! »
 
@@ -110,7 +110,7 @@ Wang Lin acquiesça silencieusement.
 
 « Je n'en dirai pas plus. Une fois sur place, je vous ferai une présentation détaillée! Par ici! » Après avoir parlé, il fit un pas et s'élança dans la brume stellaire.
 
-L'Ancien nommé Pang le suivit de près, ainsi que la vieille femme en vert. Chen Tianjun, de la Secte de la Bête de Bataille, s'avança, et deux volutes de gaz noir se transformèrent en deux créatures semblables à des aigles pour le suivre.
+L'Ancien nommé Pang le suivit de près, ainsi que la vieille femme en vert. Chen Tianjun, de la Secte Yi Shou, s'avança, et deux volutes de gaz noir se transformèrent en deux créatures semblables à des aigles pour le suivre.
 
 « Cher Cultivateur Lu, par ici. » Maître Nuage-Âme regarda Wang Lin avec un sourire qui n'en était pas un.
 

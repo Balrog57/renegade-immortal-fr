@@ -34,7 +34,7 @@ En cet instant, les yeux du vieil homme étaient clos; il cultivait paisiblement
 
 « Il ne me faut que trois cents ans de plus pour me rétablir complètement... Ensuite, je pourrai partir d'ici et rentrer... chez moi... » Le vieil homme ouvrit les yeux. Son regard semblait capable de percer le vide pour contempler l'immensité du système stellaire.
 
-Il n'était pas un cultivateur du monde des grottes, mais venait du Continent Astral Immortel, de la Secte des Sept Dao... En réalité, il n'était qu'un disciple du Souverain Céleste aux Sept Couleurs.
+Il n'était pas un cultivateur du monde des grottes, mais venait du Continent Astral Immortel, de la Secte Qi Dao... En réalité, il n'était qu'un disciple du Souverain Céleste aux Sept Couleurs.
 
 En murmurant, il ressentit une certaine réticence à quitter le monde des grottes, tant il y avait séjourné. Après un instant de réflexion, il laissa échapper un soupir et referma les yeux. Alors qu'il reprenait sa culture, un puissant sens divin balaya les lieux.
 
@@ -66,13 +66,13 @@ Après le départ de Wang Lin, le monde des grottes retrouva son calme. Il se re
 
 Cette puissance pourrait protéger cet endroit pendant des générations, afin que des incidents tels que celui du Maître Âme Écarlate ne se reproduisent plus jamais.
 
-Sur le Continent Astral Immortel, dans les terres du clan céleste, dans le Continent de l'Est, dans le Continent du Taureau Céleste, une montagne était entourée de brume. Ce jour-là, une force puissante jaillit, et une lumière cristalline infinie se répandit dans toutes les directions.
+Sur le Continent Astral Immortel, dans les terres du clan céleste, dans le Continent de l'Est, dans le Continent Tian Niu, une montagne était entourée de brume. Ce jour-là, une force puissante jaillit, et une lumière cristalline infinie se répandit dans toutes les directions.
 
 Une fois la lumière dissipée, Wang Lin sortit lentement de la porte du monde des grottes, vêtu d'une robe blanche et arborant des cheveux blancs.
 
 Les trois cents dernières années s'étaient écoulées en un clin d'œil. Wang Lin contempla le monde du Continent Astral Immortel et avança silencieusement.
 
-« Secte des Sept Dao... » murmura-t-il. Avant de partir, il agita sa manche et une bourrasque de vent balaya la Secte des Sept Dao. Les ruines se dissipèrent pour laisser place à une puissante secte.
+« Secte Qi Dao... » murmura-t-il. Avant de partir, il agita sa manche et une bourrasque de vent balaya la Secte Qi Dao. Les ruines se dissipèrent pour laisser place à une puissante secte.
 
 « Cet endroit deviendra le foyer de tous ceux qui sortiront du monde des grottes... » murmura Wang Lin en tendant la main vers les cieux. Instantanément, près de vingt amas de lumière apparurent et se dispersèrent aux quatre vents.
 
@@ -82,11 +82,11 @@ Qing Shui marchait dans le désert lorsqu'il sembla remarquer quelque chose et l
 
 Le Maître Hong Shan volait dans le ciel quand une traînée de lumière d'épée apparut devant lui, transportant un vieil homme. L'expression de ce dernier était féroce, mais une peur sous-jacente se lisait sur son visage alors qu'il s'enfuyait à toute vitesse.
 
-Le Maître Hong Shan le poursuivait, l'air sombre. À cet instant, l'amas de lumière pénétra son corps et le fit regarder vers le Continent du Taureau Céleste. Son expression austère s'adoucit, mais il accéléra sa course.
+Le Maître Hong Shan le poursuivait, l'air sombre. À cet instant, l'amas de lumière pénétra son corps et le fit regarder vers le Continent Tian Niu. Son expression austère s'adoucit, mais il accéléra sa course.
 
-Qing Lin, Zhou Ru, Hongdie, Zhou Yi, et presque tous les habitants du monde des grottes reçurent l'éclat de lumière et ressentirent l'existence de la Secte des Sept Dao. Même s'ils étaient encore mortels, les souvenirs de la secte s'éveilleraient lentement en eux dans le futur.
+Qing Lin, Zhou Ru, Hongdie, Zhou Yi, et presque tous les habitants du monde des grottes reçurent l'éclat de lumière et ressentirent l'existence de la Secte Qi Dao. Même s'ils étaient encore mortels, les souvenirs de la secte s'éveilleraient lentement en eux dans le futur.
 
-Wang Lin jeta un dernier regard à la Secte des Sept Dao avant d'y établir une formation puissante. Cette formation était comparable à celle qu'il avait installée dans le monde des grottes. Même s'il ne parvenait pas à sortir du Royaume Divin Immémorial, il pourrait garantir la sécurité du monde des grottes et protéger l'existence de la Secte des Sept Dao.
+Wang Lin jeta un dernier regard à la Secte Qi Dao avant d'y établir une formation puissante. Cette formation était comparable à celle qu'il avait installée dans le monde des grottes. Même s'il ne parvenait pas à sortir du Royaume Divin Immémorial, il pourrait garantir la sécurité du monde des grottes et protéger l'existence de la Secte Qi Dao.
 
 Après avoir accompli tout cela, Wang Lin ne se retourna pas et marcha vers le ciel jusqu'à devenir transparent et disparaître.
 

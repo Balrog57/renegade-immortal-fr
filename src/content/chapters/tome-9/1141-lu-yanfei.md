@@ -18,13 +18,13 @@ Le bruit de ses pas s'enfonçant dans la boue se mêlait au clapotis de la pluie
 
 La séance de culture de Xu Yun n'était pas terminée. Elle cultivait toujours silencieusement, tentant de franchir le stade de l'Yin Illusoire pour atteindre celui du Yang Corporel. Elle n'avait pas remarqué le départ de Wang Lin, mais même si elle n'avait pas été plongée dans sa culture, elle n'aurait pas non plus perçu son départ.
 
-Depuis son arrivée à la Secte de l'Origine, Wang Lin n'avait pas caché son niveau de culture. Étant donné son statut actuel, il ne ressentait nul besoin de le dissimuler. Cependant, sans utiliser aucun sort, personne ne pouvait deviner qu'il était un cultivateur, car nul ne pouvait percer sa culture.
+Depuis son arrivée à la Secte Gui Yuan, Wang Lin n'avait pas caché son niveau de culture. Étant donné son statut actuel, il ne ressentait nul besoin de le dissimuler. Cependant, sans utiliser aucun sort, personne ne pouvait deviner qu'il était un cultivateur, car nul ne pouvait percer sa culture.
 
 L'énergie originelle d'un cultivateur du Purificateur du Nirvana est intégrée au monde, ce qui lui permet d'en absorber pour son usage personnel. Tant que l'énergie originelle à l'intérieur de son corps reste immobile, aucune fluctuation n'apparaît. Si cela avait été tout, Lu Yanfei aurait peut-être remarqué quelque chose.
 
 Cependant, Wang Lin possédait une parcelle d'origine source et avait déjà entrevu la troisième étape dans la Perle Défiant le Ciel. Il avait également expérimenté ce que signifiait être un cultivateur de la troisième étape grâce à la faveur de l'Empereur Céleste Qing Shuang. Par conséquent, personne sur ce continent n'était capable de percer sa culture.
 
-Vêtu de blanc et tenant son parapluie, il quitta la cour pour commencer à arpenter la Secte de l'Origine. Il croisa d'autres cultivateurs, mais tous étaient pressés et ne se dérangèrent pas mutuellement.
+Vêtu de blanc et tenant son parapluie, il quitta la cour pour commencer à arpenter la Secte Gui Yuan. Il croisa d'autres cultivateurs, mais tous étaient pressés et ne se dérangèrent pas mutuellement.
 
 Wang Lin monta la montagne depuis la cour sud. Sans utiliser aucun sort, il utilisa simplement ses jambes pour progresser vers le sommet.
 
@@ -50,7 +50,7 @@ La femme en rouge regarda froidement Wang Lin et fronça les sourcils. Le nom de
 
 Wang Lin sourit soudainement et passa devant la femme en rouge. Il reprit sa route, s'apprêtant à partir.
 
-La femme en rouge se retourna pour observer Wang Lin. Son calme l'étonnait. Il fallait dire que dans toute la Secte de l'Origine, hormis son maître, chaque disciple était extrêmement nerveux et respectueux. Même ses trois frères aînés montraient un certain respect en raison de son niveau de culture supérieur.
+La femme en rouge se retourna pour observer Wang Lin. Son calme l'étonnait. Il fallait dire que dans toute la Secte Gui Yuan, hormis son maître, chaque disciple était extrêmement nerveux et respectueux. Même ses trois frères aînés montraient un certain respect en raison de son niveau de culture supérieur.
 
 Sans parler des mortels, cet homme devant elle était étrangement serein.
 
@@ -58,7 +58,7 @@ Le regard de la femme en rouge fut aussi vif que la foudre alors qu'elle fixait 
 
 La femme en rouge poussa un soupir et murmura: « Attends. Serais-tu prêt à m'écouter... »
 
-Lu Yanfei occupait un rang très élevé au sein de la Secte de l'Origine, et la plupart des gens lui vouaient un grand respect. De plus, en raison de son statut, certaines choses n'étaient pas faciles à aborder.
+Lu Yanfei occupait un rang très élevé au sein de la Secte Gui Yuan, et la plupart des gens lui vouaient un grand respect. De plus, en raison de son statut, certaines choses n'étaient pas faciles à aborder.
 
 Le jeune homme devant elle n'avait aucune culture et n'était qu'un mortel. Aux yeux de Lu Yanfei, la différence entre eux était aussi vaste que le ciel et la terre. Plus important encore, le calme du jeune homme était contagieux et l'aidait inconsciemment à s'apaiser.
 
@@ -82,13 +82,13 @@ Lu Yanfei avait beaucoup dit. Wang Lin resta en retrait et écouta silencieuseme
 
 Les nuages sombres s'éloignèrent et le ciel se dégagea. Un arc-en-ciel éclatant apparut dans le ciel, d'une beauté indescriptible.
 
-« La Secte du Dao Pourpre a causé la mort de Maître, puis leur jeune maître m'a envoyé un jade me demandant de devenir sa partenaire de culture. Si je refuse, ils profiteront de l'affaiblissement de la Secte de l'Origine après la mort de mon maître pour en référer à la secte principale et nous déclarer la guerre... La secte principale a toujours été partiale. Si la Secte du Dao Pourpre insiste vraiment, il y a 80 % de chances que la secte principale accepte... »
+« La Secte Zi Dao a causé la mort de Maître, puis leur jeune maître m'a envoyé un jade me demandant de devenir sa partenaire de culture. Si je refuse, ils profiteront de l'affaiblissement de la Secte Gui Yuan après la mort de mon maître pour en référer à la secte principale et nous déclarer la guerre... La secte principale a toujours été partiale. Si la Secte Zi Dao insiste vraiment, il y a 80 % de chances que la secte principale accepte... »
 
 Lu Yanfei se mordit la lèvre, une pointe d'amertume marquant son beau visage.
 
-« Le plus ridicule est que mes trois frères aînés n'ont pas osé intervenir et ont tacitement consenti à cette affaire... Ils veulent que je me sacrifie pour apporter la paix à la Secte de l'Origine. Cependant, pensent-ils vraiment que la Secte de l'Origine sera en sécurité une fois que j'appartiendrai à Lu Hai... »
+« Le plus ridicule est que mes trois frères aînés n'ont pas osé intervenir et ont tacitement consenti à cette affaire... Ils veulent que je me sacrifie pour apporter la paix à la Secte Gui Yuan. Cependant, pensent-ils vraiment que la Secte Gui Yuan sera en sécurité une fois que j'appartiendrai à Lu Hai... »
 
-Deux larmes coulèrent des yeux de Lu Yanfei, glissèrent le long de ses joues et tombèrent au sol, se mêlant à la pluie. Elle regarda silencieusement l'arc-en-ciel à l'horizon et murmura: « Un arc-en-ciel apparaît toujours après la pluie, mais... l'arc-en-ciel de ma Secte de l'Origine est sombre... »
+Deux larmes coulèrent des yeux de Lu Yanfei, glissèrent le long de ses joues et tombèrent au sol, se mêlant à la pluie. Elle regarda silencieusement l'arc-en-ciel à l'horizon et murmura: « Un arc-en-ciel apparaît toujours après la pluie, mais... l'arc-en-ciel de ma Secte Gui Yuan est sombre... »
 
 L'expression de Wang Lin resta impassible. Voyant que la femme en rouge avait fini de parler, il se retourna et descendit la montagne. La femme en rouge ne l'arrêta pas cette fois et contempla silencieusement l'horizon. Après un long moment, son visage se fit déterminé et une intention meurtrière apparut dans ses yeux.
 
@@ -98,7 +98,7 @@ Elle regarda dans la direction où Wang Lin s'était éloigné.
 
 Wang Lin descendit la montagne et entra dans la cour, toujours sous son parapluie. Xu Yun était encore en pleine culture lorsque Wang Lin rentra dans la maison, et ses yeux s'illuminèrent.
 
-« Je savais déjà, d'après les souvenirs de Zhao Yu, que ce Système d'Étoiles de la Mer des Nuages serait très différent des deux royaumes de la Pluie et du Tonnerre. Maintenant que j'ai écouté l'Ancien de la Secte de l'Origine, il semble qu'une majorité de cultivateurs utilisent des bêtes spirituelles... Leur alchimie est également unique! L'immense mer d'étoiles n'est que brume stellaire, et dans cette brume se trouve un monde appartenant aux bêtes spirituelles... »
+« Je savais déjà, d'après les souvenirs de Zhao Yu, que ce Système d'Étoiles de la Mer Yun serait très différent des deux royaumes de la Pluie et du Tonnerre. Maintenant que j'ai écouté l'Ancien de la Secte Gui Yuan, il semble qu'une majorité de cultivateurs utilisent des bêtes spirituelles... Leur alchimie est également unique! L'immense mer d'étoiles n'est que brume stellaire, et dans cette brume se trouve un monde appartenant aux bêtes spirituelles... »
 
 Wang Lin commença à réfléchir, surtout en repensant aux paroles de l'Ancien. Il existait bel et bien une pilule capable d'aider à atteindre le stade Ascendant!
 
@@ -106,9 +106,9 @@ Wang Lin commença à réfléchir, surtout en repensant aux paroles de l'Ancien.
 
 Il ne pouvait oublier que, sans le Cristal Ascendant de Zhou Yi, il aurait été consumé par la flamme originelle. Ceux qui entendent le Dao à l'aube peuvent mourir au crépuscule.
 
-« Ce Système d'Étoiles de la Mer des Nuages possède en fait une pilule pour aider les cultivateurs à franchir la première épreuve de vie et de mort. On peut dire que l'alchimie de la Mer des Nuages a atteint son apogée. Il existe probablement des pilules capables d'aider même les cultivateurs de la deuxième étape! »
+« Ce Système d'Étoiles de la Mer Yun possède en fait une pilule pour aider les cultivateurs à franchir la première épreuve de vie et de mort. On peut dire que l'alchimie de la Mer Yun a atteint son apogée. Il existe probablement des pilules capables d'aider même les cultivateurs de la deuxième étape! »
 
-« Pourtant, les cultivateurs devraient se concentrer sur la compréhension du Dao, et les pilules sont considérées comme une méthode non orthodoxe. Pourquoi le Système d'Étoiles de la Mer des Nuages a-t-il développé l'alchimie à ce point... » Wang Lin fronça légèrement les sourcils, avant de se détendre rapidement.
+« Pourtant, les cultivateurs devraient se concentrer sur la compréhension du Dao, et les pilules sont considérées comme une méthode non orthodoxe. Pourquoi le Système d'Étoiles de la Mer Yun a-t-il développé l'alchimie à ce point... » Wang Lin fronça légèrement les sourcils, avant de se détendre rapidement.
 
 « Se pourrait-il qu'il existe... des pilules pour aider à comprendre un domaine! » À cette pensée, le cœur de Wang Lin manqua un battement et il prit une profonde inspiration.
 

@@ -8,7 +8,7 @@ slug: louverture-de-la-grotte-celeste
 ---
 « Qing Lin a bien planifié tout cela... Je ne m'attendais pas à ce qu'un changement aussi majeur se produise lors de l'ouverture de la grotte... Si je n'avais pas absorbé les autres esprits démoniaques, j'aurais été complètement supprimé en cet instant! »
 
-« Cependant, peu importe désormais. Même si la Terre des Esprits Démoniaques revenait à son état d'origine, cela n'aurait aucune importance! Maintenant que la grotte est ouverte, je réussirai cette fois-ci! »
+« Cependant, peu importe désormais. Même si la Terre Yao Ling revenait à son état d'origine, cela n'aurait aucune importance! Maintenant que la grotte est ouverte, je réussirai cette fois-ci! »
 
 « Ancien Diable, Empereur Céleste, moi, Bei Luo, j'arrive! » L'ancien démon afficha une expression féroce alors qu'il jaillissait du bassin d'eau dans un rayon de lumière démoniaque.
 
@@ -22,21 +22,21 @@ Le corps de Yao Xixue vacilla et disparut. Lorsqu'elle réapparut, elle flottait
 
 Après un bref instant de pause, elle se transforma en un rayon de lumière démoniaque et fonça en avant.
 
-Un autre endroit fut épargné par l'énergie spirituelle céleste: le Pays du Démon de Feu, là où se trouvait la Secte de l'Affinement de l'Âme!
+Un autre endroit fut épargné par l'énergie spirituelle céleste: le Pays Huo Yao, là où se trouvait la Secte Lian Hun!
 
-L'énergie spirituelle céleste passa devant la statue de Wang Lin, nichée dans les profondeurs de la Secte de l'Affinement de l'Âme. Elle tenta de dissiper l'énergie démoniaque à l'intérieur, mais un cri aigu retentit de la statue.
+L'énergie spirituelle céleste passa devant la statue de Wang Lin, nichée dans les profondeurs de la Secte Lian Hun. Elle tenta de dissiper l'énergie démoniaque à l'intérieur, mais un cri aigu retentit de la statue.
 
-Dès que l'énergie spirituelle céleste arriva, les millions de disciples de la Secte de l'Affinement de l'Âme ressentirent l'angoisse contenue dans ce cri. Sans qu'aucun ordre ne soit donné, tous les disciples sortirent leurs drapeaux d'âmes. D'innombrables fragments d'âme apparurent et formèrent une couche protectrice autour de la statue de pierre.
+Dès que l'énergie spirituelle céleste arriva, les millions de disciples de la Secte Lian Hun ressentirent l'angoisse contenue dans ce cri. Sans qu'aucun ordre ne soit donné, tous les disciples sortirent leurs drapeaux d'âmes. D'innombrables fragments d'âme apparurent et formèrent une couche protectrice autour de la statue de pierre.
 
-Toute la capitale de la Secte de l'Affinement de l'Âme fut entourée par ces innombrables fragments d'âme qui sifflaient pour faire face à l'énergie spirituelle céleste. Cependant, cette dernière était trop puissante; la Secte de l'Affinement de l'Âme n'était plus qu'un frêle esquif flottant parmi des vagues déchaînées.
+Toute la capitale de la Secte Lian Hun fut entourée par ces innombrables fragments d'âme qui sifflaient pour faire face à l'énergie spirituelle céleste. Cependant, cette dernière était trop puissante; la Secte Lian Hun n'était plus qu'un frêle esquif flottant parmi des vagues déchaînées.
 
 Les millions de disciples de la secte étaient pétris de peur, mais ils serrèrent les dents et tinrent bon!
 
-À cet instant précis, une partie de l'énergie spirituelle céleste changea, comme si elle possédait sa propre volonté. Loin de les attaquer, elle forma un vortex pour aider la Secte de l'Affinement de l'Âme à résister aux trois autres portions d'énergie.
+À cet instant précis, une partie de l'énergie spirituelle céleste changea, comme si elle possédait sa propre volonté. Loin de les attaquer, elle forma un vortex pour aider la Secte Lian Hun à résister aux trois autres portions d'énergie.
 
 Les trois autres flux d'énergie spirituelle céleste ne tentèrent pas de forcer le passage et contournèrent plutôt la secte.
 
-Le vortex entourant la Secte de l'Affinement de l'Âme se contracta rapidement et rattrapa les trois autres pour fusionner avec elles et balayer le monde.
+Le vortex entourant la Secte Lian Hun se contracta rapidement et rattrapa les trois autres pour fusionner avec elles et balayer le monde.
 
 Alors que l'énergie spirituelle céleste remplissait le Royaume Céleste des Esprits, les quatre piliers brillèrent intensément, enveloppant la terre d'une lumière éclatante.
 
@@ -88,7 +88,7 @@ Wang Lin répondit calmement: « C'est bien moi. »
 
 Hu Juan, aux côtés de Wang Wei, lui adressa un sourire. « Tu as perdu notre pari de l'époque. »
 
-Wang Wei sourit et hocha la tête, avant de se tourner vers Wang Lin. « L'interdiction à l'entrée de l'Abîme des Marées, dans le Pays du Démon de Feu, a-t-elle été placée par toi? » En parlant, il agita la main et une simple lame d'herbe apparut.
+Wang Wei sourit et hocha la tête, avant de se tourner vers Wang Lin. « L'interdiction à l'entrée de l'Abîme Chao Xi, dans le Pays Huo Yao, a-t-elle été placée par toi? » En parlant, il agita la main et une simple lame d'herbe apparut.
 
 Dès que Wang Lin vit l'herbe, il reconnut l'interdiction qu'il avait lui-même posée autrefois. Son expression ne changea pas et il acquiesça.
 

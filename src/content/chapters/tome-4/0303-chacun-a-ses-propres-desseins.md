@@ -12,7 +12,7 @@ Depuis leur position actuelle, ils pouvaient apercevoir la grotte à une centain
 
 Non loin de là reposait le cadavre du troisième frère aîné, tué par Sun Lei.
 
-Sun Lei observa la grotte à distance et murmura: « La nourriture pour bêtes célestes est destinée aux bêtes elles-mêmes. Lorsqu'elles s'en nourrissent, cela renforce leur corps, mais c'est totalement inutile pour nous. Je ne peux croire qu'il reste encore autant de provisions dans ce Temple des Bêtes Célestes. Cela doit être dû à cette nourriture noire pour bêtes célestes. Ce compagnon cultivateur sait-il pourquoi elle existe? »
+Sun Lei observa la grotte à distance et murmura: « La nourriture pour bêtes célestes est destinée aux bêtes elles-mêmes. Lorsqu'elles s'en nourrissent, cela renforce leur corps, mais c'est totalement inutile pour nous. Je ne peux croire qu'il reste encore autant de provisions dans ce Temple Xian Shou. Cela doit être dû à cette nourriture noire pour bêtes célestes. Ce compagnon cultivateur sait-il pourquoi elle existe? »
 
 Le regard de Wang Lin resta calme lorsqu'il répondit: « Je crois que cela a un lien avec ce squelette noir. » Il se souvenait que la première fois qu'il avait vu cette ligne noire, elle s'agitait à l'intérieur du squelette. À chaque mouvement, les ossements tremblaient comme si la créature allait reprendre vie.
 

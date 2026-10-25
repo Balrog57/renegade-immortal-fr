@@ -88,7 +88,7 @@ Lorsque le soleil pointa à nouveau à l'horizon, Mo Zhi se leva. Il regarda Wan
 
 « Je m'en vais... J'espère que tu réussiras... » Il cessa de conseiller Wang Lin et se détourna pour partir. Arrivé à la sortie de la vallée, il s'arrêta, mais sans faire demi-tour. Son dos restait tourné vers Wang Lin.
 
-« Le Maître m'a chargé de te demander quand tu rendras la Boussole des Limites du Royaume de la Terre Défiante... » La voix de Mo Zhi résonna dans la vallée. Après avoir parlé, il quitta la vallée et disparut.
+« Le Maître m'a chargé de te demander quand tu rendras la Boussole des Limites du Royaume Ni Chen Liang... » La voix de Mo Zhi résonna dans la vallée. Après avoir parlé, il quitta la vallée et disparut.
 
 Wang Lin resta là, assis, à boire son vin. Il ne fit aucun commentaire sur les paroles ou le départ de Mo Zhi.
 

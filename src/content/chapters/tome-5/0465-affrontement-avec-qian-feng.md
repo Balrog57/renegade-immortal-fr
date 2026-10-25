@@ -10,7 +10,7 @@ Qian Feng était à bout de souffle. Zhu Quezi lui avait dérobé une immense pa
 
 « Heureusement, je ne l'ai pas utilisé lors d'un combat comme il me l'avait ordonné, sinon il m'aurait vidé avant même que je n'aie pu tuer l'ennemi. » Qian Feng était furieux, mais ce n'était pas le moment de s'emporter contre Zhu Quezi. Il devait maintenant se concentrer sur la manière de contrer l'intention meurtrière qui le visait.
 
-En vérité, Zhu Quezi n'avait pas commencé à comploter contre lui à la dernière minute. S'il n'y avait pas eu l'apparition du Clan des Immortels Délaissés, il aurait peut-être trouvé un moyen d'échapper au destin lorsque sa durée de vie s'épuiserait, afin de continuer à vivre en s'emparant de la durée de vie de Qian Feng.
+En vérité, Zhu Quezi n'avait pas commencé à comploter contre lui à la dernière minute. S'il n'y avait pas eu l'apparition du Clan Xian Yi, il aurait peut-être trouvé un moyen d'échapper au destin lorsque sa durée de vie s'épuiserait, afin de continuer à vivre en s'emparant de la durée de vie de Qian Feng.
 
 Zhu Quezi planifiait cela depuis que Qian Feng était enfant. La raison pour laquelle il avait fait dévorer tous ces domaines par Qian Feng n'était pas pour le bien de ce dernier, mais pour le sien.
 

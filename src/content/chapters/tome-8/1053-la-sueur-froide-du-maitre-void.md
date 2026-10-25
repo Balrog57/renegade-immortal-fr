@@ -18,7 +18,7 @@ Un éclair de froideur traversa les yeux de Wang Wei. Il laissa échapper un gro
 
 Hu Juan entra dans la restriction sur le côté et mordit la pointe de son doigt droit. Elle traça alors rapidement une rune étrange dans l'air. Dès son apparition, la rune émit des ondes de lumière fantomatique.
 
-À cet instant précis, toutes les restrictions du sixième étage de la Grotte de l'Empereur Céleste semblèrent prendre vie et s'illuminèrent simultanément, comme si elles avaient toutes été déclenchées d'un coup. Elles convergèrent de toutes les directions, fonçant droit sur l'Ancien Démon Bei Luo.
+À cet instant précis, toutes les restrictions du sixième étage de la Grotte Xian Di semblèrent prendre vie et s'illuminèrent simultanément, comme si elles avaient toutes été déclenchées d'un coup. Elles convergèrent de toutes les directions, fonçant droit sur l'Ancien Démon Bei Luo.
 
 Le ciel fut saturé de restrictions et, sous le geste de Hu Juan, toutes ces forces se rassemblèrent.
 
@@ -112,4 +112,4 @@ Le Couple du Nuage Céleste et cet étrange homme chauve lui donnaient l'impress
 
 Il n'osait ni bouger, ni reculer. Il était la cible des regards de tous les occupants de la salle. Le moindre mouvement de sa part risquait de déclencher l'assaut général.
 
-« Je suis l'Ancien de l'Alliance de la Culture, le Maître du Vide, le frère cadet du Grand Ancien, le Maître Zhong Xuan. Que signifie tout cela? » Le Maître du Vide s'efforça de reprendre contenance et invoqua même l'autorité de l'Alliance de la Culture.
+« Je suis l'Ancien de l'Alliance Xiu Zhen, le Maître du Vide, le frère cadet du Grand Ancien, le Maître Zhong Xuan. Que signifie tout cela? » Le Maître du Vide s'efforça de reprendre contenance et invoqua même l'autorité de l'Alliance Xiu Zhen.

@@ -6,9 +6,9 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1853 - Haunted
 slug: hante
 ---
-L’Illustre Taureau Vert plissa les yeux et médita en silence. L'illusion multicouche du neuvième étage était le sortilège le plus puissant de la Secte de la Grande Âme. À l'origine, il aurait été acceptable de le transmettre à Wang Lin, mais l'Ancêtre Fondateur avait prédit qu'il faudrait trois cents ans à Wang Lin pour atteindre le neuvième étage.
+L’Illustre Taureau Vert plissa les yeux et médita en silence. L'illusion multicouche du neuvième étage était le sortilège le plus puissant de la Secte Da Hun. À l'origine, il aurait été acceptable de le transmettre à Wang Lin, mais l'Ancêtre Fondateur avait prédit qu'il faudrait trois cents ans à Wang Lin pour atteindre le neuvième étage.
 
-Tout en réfléchissant, l’Illustre Taureau Vert dit soudain: « Le Pavillon des Écritures de l'Âme possède un dixième étage! »
+Tout en réfléchissant, l’Illustre Taureau Vert dit soudain: « Le Pavillon Cang Hun possède un dixième étage! »
 
 Wang Lin resta calme, mais ses pupilles se contractèrent légèrement.
 
@@ -28,33 +28,33 @@ L’Illustre Taureau Vert fronça les sourcils et fixa Wang Lin. Il prit le jade
 
 Après avoir vu tout ce que Wang Lin avait accompli pour trancher la Pilule Céleste, l’Illustre Taureau Vert prit une profonde inspiration. Il regarda Wang Lin avec un éclat mystérieux dans les yeux.
 
-Avec son niveau de culture, il pouvait naturellement juger que tout ce qu'il avait vu dans le jade était vrai. Grâce à ses propres divinations sur les bouleversements du ciel et de la terre et aux rapports secrets qu'il avait reçus, il parvint à reconstituer clairement dans son esprit ce qui s'était passé dans la Mer des Pilules.
+Avec son niveau de culture, il pouvait naturellement juger que tout ce qu'il avait vu dans le jade était vrai. Grâce à ses propres divinations sur les bouleversements du ciel et de la terre et aux rapports secrets qu'il avait reçus, il parvint à reconstituer clairement dans son esprit ce qui s'était passé dans la Mer Dan.
 
 Bien que Wang Lin fût guéri à 80 ou 90 %, il restait cette trace de blessure qui ne pouvait cicatriser rapidement. Tout cela confirmait l'authenticité de ce qui était enregistré dans le jade.
 
 « Bien, bien, bien! » L’Illustre Taureau Vert tint le jade et se mit à rire. Il agita la main gauche et une puissante vague d'énergie déferla sur le corps de Wang Lin. Des bruits de craquements résonnèrent et toutes les blessures restantes de Wang Lin furent instantanément guéries!
 
-« Cette fois, tu as accompli un immense mérite! Dans ma Secte de la Grande Âme, quiconque accomplit un mérite est récompensé. Je peux te donner le sortilège complet de l'illusion multicouche du neuvième étage! Mais tu dois me promettre une chose! » L’Illustre Taureau Vert regarda Wang Lin. Plus il le scrutait, plus son admiration grandissait. L'Ancêtre Fondateur avait vraiment été visionnaire en choisissant quelqu'un doté d'une telle bravoure et d'une telle audace!
+« Cette fois, tu as accompli un immense mérite! Dans ma Secte Da Hun, quiconque accomplit un mérite est récompensé. Je peux te donner le sortilège complet de l'illusion multicouche du neuvième étage! Mais tu dois me promettre une chose! » L’Illustre Taureau Vert regarda Wang Lin. Plus il le scrutait, plus son admiration grandissait. L'Ancêtre Fondateur avait vraiment été visionnaire en choisissant quelqu'un doté d'une telle bravoure et d'une telle audace!
 
 Wang Lin ne ressentit aucune satisfaction face aux paroles de l’Illustre Taureau Vert. Il le regarda calmement et demanda: « Quelle est la condition? »
 
-« Tuer dix cultivateurs du stade de début de la Tribulation du Vide du Continent du Démon Vert, ainsi que trois cultivateurs du stade intermédiaire de la Tribulation du Vide du même continent. Puis, accéder aux neuvième et dixième étages du Pavillon des Écritures de l'Âme! »
+« Tuer dix cultivateurs du stade de début de la Tribulation du Vide du Continent Lu Mo, ainsi que trois cultivateurs du stade intermédiaire de la Tribulation du Vide du même continent. Puis, accéder aux neuvième et dixième étages du Pavillon Cang Hun! »
 
-« Une fois ces trois choses accomplies, tu pourras quitter la Secte de la Grande Âme! »
+« Une fois ces trois choses accomplies, tu pourras quitter la Secte Da Hun! »
 
-À ces mots, le cœur de Wang Lin trembla et il réfléchit. Il avait effectivement l'intention de partir sur son chemin du retour. Il s'était préparé à aider la Secte de la Grande Âme autant que possible avant de partir afin d'éviter la guerre.
+À ces mots, le cœur de Wang Lin trembla et il réfléchit. Il avait effectivement l'intention de partir sur son chemin du retour. Il s'était préparé à aider la Secte Da Hun autant que possible avant de partir afin d'éviter la guerre.
 
-Après tout, ses objectifs étaient la Secte Dong Lin et la lointaine lignée du Dao Antique; il ne pouvait donc pas rester longtemps sur le Continent du Taureau Céleste. De plus, il avait ses propres spéculations concernant cette guerre et n'était pas disposé à s'y impliquer trop profondément.
+Après tout, ses objectifs étaient la Secte Dong Lin et la lointaine lignée du Dao Antique; il ne pouvait donc pas rester longtemps sur le Continent Tian Niu. De plus, il avait ses propres spéculations concernant cette guerre et n'était pas disposé à s'y impliquer trop profondément.
 
 L’Illustre Taureau Vert l'avait manifestement compris, mais il ne força pas Wang Lin à rester. Au lieu de cela, il posa trois conditions, ce qui rappela à Wang Lin les trois cadeaux.
 
 Après une longue réflexion, Wang Lin regarda l’Illustre Taureau Vert et hocha la tête avec sérieux.
 
-Peu importaient les objectifs de la Secte de la Grande Âme, ils l'avaient effectivement aidé, et Wang Lin rendait toujours les faveurs. Bien que ces conditions fussent difficiles, il était déterminé à les relever.
+Peu importaient les objectifs de la Secte Da Hun, ils l'avaient effectivement aidé, et Wang Lin rendait toujours les faveurs. Bien que ces conditions fussent difficiles, il était déterminé à les relever.
 
 Voyant Wang Lin acquiescer, l’Illustre Taureau Vert sourit et ne dit plus rien. Il agita sa manche et un jade antique vola vers Wang Lin.
 
-Wang Lin attrapa le jade. Il contenait le sortilège extrêmement puissant de la Secte de la Grande Âme: le sort complet de l'illusion multicouche du neuvième étage.
+Wang Lin attrapa le jade. Il contenait le sortilège extrêmement puissant de la Secte Da Hun: le sort complet de l'illusion multicouche du neuvième étage.
 
 « Pour cultiver ce sort, tu dois affiner la Voile Fantôme. Maintenant que la guerre approche, je vais t'offrir tous les matériaux nécessaires. Cependant, la Voile Fantôme nécessite une âme; si tu n'en as pas de convenable, tu pourras aller en chercher une au Pic Fantôme. » Tandis qu’il parlait, l’Illustre Taureau Vert tendit la main vers le vide et une sphère de lumière apparut. Cette sphère contenait de nombreux matériaux d'affinage, qu'il remit à Wang Lin.
 
@@ -74,15 +74,15 @@ Après avoir examiné ces composants, il sortit le jade antique contenant le sor
 
 Selon le jade, le nom de cet objet était la Voile Fantôme. Elle se divisait en plusieurs grades: débutant, intermédiaire, supérieur, extrême et absolu. Chaque grade correspondait à deux couches d'illusions.
 
-Dans la Secte de la Grande Âme, la plupart des disciples ne possédaient qu'une voile de grade débutant, et seuls les Anciens pouvaient atteindre le grade intermédiaire. Quelques disciples centraux favorisés par leur maître pouvaient se voir confier une Voile Fantôme de grade intermédiaire pour leur protection.
+Dans la Secte Da Hun, la plupart des disciples ne possédaient qu'une voile de grade débutant, et seuls les Anciens pouvaient atteindre le grade intermédiaire. Quelques disciples centraux favorisés par leur maître pouvaient se voir confier une Voile Fantôme de grade intermédiaire pour leur protection.
 
 La Voile Fantôme de Fan Shanmeng était de grade intermédiaire, un cadeau de Yan Luan.
 
 Normalement, une Voile Fantôme de grade intermédiaire était déjà extrêmement puissante. Utilisée correctement, elle pouvait ignorer le niveau de culture! Cela avait d'ailleurs été prouvé entre les mains de Fan Shanmeng!
 
-Si l'on pouvait obtenir une Voile Fantôme de grade supérieur ou extrême pour l'utiliser avec l'illusion multicouche, le résultat serait terrifiant! Quant au grade absolu, il était trop difficile à raffiner. Dans toute la Secte de la Grande Âme, il n'en existait qu'une seule!
+Si l'on pouvait obtenir une Voile Fantôme de grade supérieur ou extrême pour l'utiliser avec l'illusion multicouche, le résultat serait terrifiant! Quant au grade absolu, il était trop difficile à raffiner. Dans toute la Secte Da Hun, il n'en existait qu'une seule!
 
-Cette Voile Fantôme était la formation de protection entourant la Secte de la Grande Âme elle-même! De l'avis de Wang Lin, cette formation n'était même pas pleinement activée, et seule une infime partie de sa puissance était utilisée.
+Cette Voile Fantôme était la formation de protection entourant la Secte Da Hun elle-même! De l'avis de Wang Lin, cette formation n'était même pas pleinement activée, et seule une infime partie de sa puissance était utilisée.
 
 Il put clairement en déduire cela dans son esprit grâce aux informations gravées dans le jade et à ses propres spéculations.
 
@@ -90,7 +90,7 @@ Il put clairement en déduire cela dans son esprit grâce aux informations grav�
 
 Le jade définissait l'âme morte comme l'état d'une personne ou d'une bête décédée dont l'obsession, l'inachèvement ou le ressentiment étaient assez puissants pour former une existence surnaturelle invisible et imperceptible pour autrui.
 
-Un peu plus de ressentiment, et elle deviendrait une âme de rancœur inutile; un peu moins, et rien ne se formerait. Par conséquent, il était très difficile d'en obtenir une. La Secte de la Grande Âme employait d'innombrables spécialistes étudiant les âmes mortes, et ils avaient fini par trouver une méthode pour les raffiner à partir de personnes ou de bêtes juste avant leur mort.
+Un peu plus de ressentiment, et elle deviendrait une âme de rancœur inutile; un peu moins, et rien ne se formerait. Par conséquent, il était très difficile d'en obtenir une. La Secte Da Hun employait d'innombrables spécialistes étudiant les âmes mortes, et ils avaient fini par trouver une méthode pour les raffiner à partir de personnes ou de bêtes juste avant leur mort.
 
 Cependant, les âmes mortes ainsi raffinées manquaient de l'épreuve du temps; peu importe le niveau de culture de la victime, l'âme morte ne pouvait servir qu'à affiner des Voiles Fantômes de grade débutant, ou au mieux intermédiaire.
 

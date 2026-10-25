@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2067 - Can’t Find Her
 slug: je-ne-peux-pas-la-trouver
 ---
-Pendant que Jiu Di et les autres utilisaient le sort secret pour observer la bataille, Wang Lin arriva au clan céleste. Dans le Continent du Nord, il contempla ce paysage légèrement familier et fut envahi par l'émotion.
+Pendant que Jiu Di et les autres utilisaient le sort secret pour observer la bataille, Wang Lin arriva au clan céleste. Dans le Continent Bei, il contempla ce paysage légèrement familier et fut envahi par l'émotion.
 
 « Il y a des centaines d'années, je quittais cet endroit pour me diriger vers le clan Ancien... Me voici de retour. » Wang Lin laissa échapper un soupir tandis que son regard balayait les environs. Son Sens Divin se déploya vers les 72 continents et, un instant plus tard, il couvrait l'intégralité des 72 continents du clan céleste.
 
@@ -74,13 +74,13 @@ Le ciel s'obscurcit progressivement alors que Wang Lin, suspendu dans les airs, 
 
 ***
 
-Clan céleste, Continent Yun Tao du Continent de l'Ouest.
+Clan céleste, Continent Yun Tao du Continent Xi Zhou.
 
 Dans la partie septentrionale de ce continent se trouvait une secte. Ce n'était pas une organisation de grande envergure; elle ne pouvait être considérée que comme une petite secte sur le continent Yun Tao. En ce matin, de nombreux disciples cultivaient au sein de l'institution. Dans une chambre secrète située dans la montagne reculée de la secte, un homme d'âge mûr était assis.
 
 Cet homme dégageait une détermination farouche et une aura de froideur. Vêtu de noir, les yeux clos, il était en pleine culture. Des ondulations émanaient de son corps, enveloppant son environnement immédiat. Cela révélait que son niveau de culture se situait au sommet de la deuxième étape, n'étant qu'à un pas de la troisième.
 
-En tant que cultivateur ayant progressé le plus rapidement au cours des mille dernières années au sein de la Secte du Fourneau d'Or, il était très célèbre. Il jouissait d'un statut élevé et recevait l'enseignement personnel du Grand Ancien.
+En tant que cultivateur ayant progressé le plus rapidement au cours des mille dernières années au sein de la Secte Lu Jin, il était très célèbre. Il jouissait d'un statut élevé et recevait l'enseignement personnel du Grand Ancien.
 
 Non seulement son niveau de culture était élevé, mais il se montrait extrêmement décisif et impitoyable. Il était aussi assez renommé sur le continent Yun Tao; il avait même tué un individu venant d'entrer dans la troisième étape, ce qui avait fait connaître son nom à de nombreuses autres sectes.
 

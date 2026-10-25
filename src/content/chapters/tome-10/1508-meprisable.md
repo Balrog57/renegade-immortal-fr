@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1508 - Despicable !!"
 slug: meprisable
 ---
-Dans le domaine stellaire de la Mer des Nuages, au sein de la Secte Divine de rang 9, l'Ancien en chef, le Shui Daozi, était assis au sommet de la plus haute montagne de la planète. Vêtu d'une robe verte, il avait l'apparence d'un enfant, mais une lueur de froideur glaçait son regard.
+Dans le domaine stellaire de la Mer Yun, au sein de la Secte Divine de rang 9, l'Ancien en chef, le Shui Daozi, était assis au sommet de la plus haute montagne de la planète. Vêtu d'une robe verte, il avait l'apparence d'un enfant, mais une lueur de froideur glaçait son regard.
 
 Quatre montagnes l'entouraient. Si l'on observait la scène depuis les cieux, on aurait l'impression que ces cinq sommets étaient tels cinq doigts perçant le firmament!
 
@@ -32,7 +32,7 @@ Tenant un jade, une intention meurtrière jaillit des yeux du Shui Daozi.
 
 Il leva le second jade. Son expression devint féroce et il projeta un message par son Sens Divin.
 
-« Ordre de la Secte Divine: toutes les sectes filiales de rang 7 doivent se rendre sans délai à la Secte de l'Origine, capturer tous ses membres et les envoyer à la Secte Divine. Dès que j'aurai donné l'ordre de scellement, toute la Secte de l'Origine sera exécutée; aucun ne doit survivre! »
+« Ordre de la Secte Divine: toutes les sectes filiales de rang 7 doivent se rendre sans délai à la Secte Gui Yuan, capturer tous ses membres et les envoyer à la Secte Divine. Dès que j'aurai donné l'ordre de scellement, toute la Secte Gui Yuan sera exécutée; aucun ne doit survivre! »
 
 Le jade imprégné de son intention meurtrière se fondit dans le monde. Mais le Shui Daozi ne s'arrêta pas là. Il saisit le troisième jade.
 
@@ -50,7 +50,7 @@ Le cinquième jade se désintégra pour fusionner avec le vide, emportant un sou
 
 Après avoir lancé ces cinq ordres consécutifs, l'inquiétude du Shui Daozi s'était un peu dissipée. Pourtant, le malaise persistait, et il saisit le sixième jade. Un instant plus tard, une intention meurtrière brûla dans ses yeux.
 
-« Mer des Nuages, Rivière Invoquée, Luotian et l'Alliance. Ce vieil homme est l'Ancien en chef de la Secte Divine et le serviteur du Seigneur du Royaume Scellé. Depuis des dizaines de milliers d'années, j'ai veillé sur la Secte Divine et j'ai accompli de grands mérites lors de la seconde guerre contre le Royaume Extérieur!
+« Mer Yun, Rivière Invoquée, Luotian et l'Alliance. Ce vieil homme est l'Ancien en chef de la Secte Divine et le serviteur du Seigneur du Royaume Scellé. Depuis des dizaines de milliers d'années, j'ai veillé sur la Secte Divine et j'ai accompli de grands mérites lors de la seconde guerre contre le Royaume Extérieur!
 
 « Aujourd'hui, ce vieil homme a reçu des informations précises: un cultivateur de l'Alliance nommé Wang Lin est un pion du Souverain du Royaume Extérieur! Cet individu s'est bien caché et a également obtenu le trésor suprême de mon maître issu du Royaume Céleste Antique, la Perle Défiant le Ciel. Il a séduit la Secte Démon, mais il ne pourra échapper à ce vieil homme!
 

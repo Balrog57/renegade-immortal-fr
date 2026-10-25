@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 898 - Lei Ji
 slug: lei-ji
 ---
-À cet instant, tout le quartier général de la Secte des Cadavres fut plongé dans le silence. Un silence terrifiant. Le seul son audible était le bruissement des pas résonnant sur le sol. Tout l'endroit était enveloppé d'une aura sinistre.
+À cet instant, tout le quartier général de la Secte Shi Yin fut plongé dans le silence. Un silence terrifiant. Le seul son audible était le bruissement des pas résonnant sur le sol. Tout l'endroit était enveloppé d'une aura sinistre.
 
-Wang Lin marchait en tête et traversa les grottes. D'un calme imperturbable, il continua de suivre le sentier en se fiant à sa mémoire, jusqu'à ce qu'il atteigne les profondeurs de la Secte des Cadavres.
+Wang Lin marchait en tête et traversa les grottes. D'un calme imperturbable, il continua de suivre le sentier en se fiant à sa mémoire, jusqu'à ce qu'il atteigne les profondeurs de la Secte Shi Yin.
 
 En observant l'impasse scellée, rien ne semblait anormal en surface. Wang Lin se souvenait qu'une grotte se trouvait autrefois ici; c'est là qu'il avait cultivé la Méthode d'Ascension Souterraine.
 
@@ -20,7 +20,7 @@ Seuls ceux qui avaient véritablement franchi la deuxième étape, atteint le st
 
 Alors qu'il progressait, Wang Lin atteignit le lieu où il cultivait autrefois. Il regarda autour de lui, envahi par une pointe de mélancolie. Après avoir médité silencieusement un instant, il reprit sa marche. Devant lui se dressait un mur percé d'innombrables petits trous d'où s'échappait une énergie glaciale. Cependant, comparée à autrefois, cette énergie était bien plus affaiblie.
 
-À chaque pas, les parois s'effondraient. Wang Lin ne s'arrêta pas et continua d'avancer. Il ne fallut pas longtemps pour qu'il atteigne la partie la plus profonde de la Secte des Cadavres: une immense caverne souterraine.
+À chaque pas, les parois s'effondraient. Wang Lin ne s'arrêta pas et continua d'avancer. Il ne fallut pas longtemps pour qu'il atteigne la partie la plus profonde de la Secte Shi Yin: une immense caverne souterraine.
 
 Un cercueil de plusieurs milliers de pieds de long flottait au centre de la grotte.
 
@@ -50,7 +50,7 @@ Et encore, cet individu mis à part, il ne pouvait même pas évaluer la puissan
 
 Le visage de Wang Lin demeura impassible tandis qu'il inspectait soigneusement le cercueil. Il leva sa main droite et pointa négligemment l'objet. Lorsque son doigt toucha le cercueil, un fracas assourdissant résonna dans la grotte et des fissures se propagèrent frénétiquement à partir du point de contact. En un instant, les craquelures recouvrirent l'intégralité du cercueil.
 
-Ce geste parut dérisoire pour Wang Lin, mais ce que vit l'ancêtre du Clan des Démons Géants le glaça d'effroi.
+Ce geste parut dérisoire pour Wang Lin, mais ce que vit l'ancêtre du Clan Ju Mo le glaça d'effroi.
 
 Au moment où Wang Lin releva le doigt, le cercueil de milliers de pieds s'effondra instantanément, se dispersant dans toutes les directions. Une masse de brume blanche s'en échappa, emplissant l'espace.
 
@@ -64,11 +64,11 @@ Une légère marque de hache scintillait parfois entre les sourcils du géant.
 
 Wang Lin observa la substance pourpre qui enlacait Lei Ji. Il comprit que la plante s'était enracinée à l'intérieur même de son corps. Il ne faudrait que quelques centaines d'années avant que la force vitale de Lei Ji ne soit totalement absorbée, le transformant en un cadavre.
 
-Wang Lin demanda calmement: « Combien de membres de votre Clan des Démons Géants ont été capturés par la Secte des Cadavres? »
+Wang Lin demanda calmement: « Combien de membres de votre Clan Ju Mo ont été capturés par la Secte Shi Yin? »
 
-« Senior, sur la planète Suzaku, je suis le seul. Cependant, dans le Système Stellaire de l'Alliance, je sais qu'une grande partie de mon clan a été capturée par la Secte des Cadavres. Ils ont des vues sur les corps de notre lignée. Mais s'ils tentaient de posséder nos corps par des moyens conventionnels, notre capacité de lignée disparaîtrait. Leur but est de posséder nos corps tout en conservant ce pouvoir.
+« Senior, sur la planète Suzaku, je suis le seul. Cependant, dans le Système Stellaire de l'Alliance, je sais qu'une grande partie de mon clan a été capturée par la Secte Shi Yin. Ils ont des vues sur les corps de notre lignée. Mais s'ils tentaient de posséder nos corps par des moyens conventionnels, notre capacité de lignée disparaîtrait. Leur but est de posséder nos corps tout en conservant ce pouvoir.
 
-« La vigne pourpre dans mon corps est une plante étrange que la Secte des Cadavres utilise pour s'approprier ma force vitale sans affecter ma capacité de lignée. Ainsi, ils pourront posséder mon corps sans aucun obstacle. » Si Wang Lin n'avait pas atteint son niveau actuel, Lei Ji n'aurait pas dit la vérité, mais là, il parlait sans aucune hésitation.
+« La vigne pourpre dans mon corps est une plante étrange que la Secte Shi Yin utilise pour s'approprier ma force vitale sans affecter ma capacité de lignée. Ainsi, ils pourront posséder mon corps sans aucun obstacle. » Si Wang Lin n'avait pas atteint son niveau actuel, Lei Ji n'aurait pas dit la vérité, mais là, il parlait sans aucune hésitation.
 
 La force était la seule loi dans le monde de la culture!
 
@@ -82,15 +82,15 @@ Une fleur trônait au sommet de cette entité végétale. Lorsqu'elle s'ouvrit, 
 
 Un rugissement strident retentit, créant une tempête qui chargea vers Wang Lin. L'expression du jeune homme devint glaciale. Il y avait un Sens Divin à l'intérieur de cette plante; ce n'était pas une simple créature végétale.
 
-« Senior, le Sens Divin d'un Vice-Maître de Salle de la Secte des Cadavres se trouve dans la plante. Mon corps a été préparé pour ce Vice-Maître de Salle. Si vous n'étiez pas venu, je crains que lorsque ma force vitale sera épuisée dans quelques centaines d'années, il ne puisse posséder mon corps sans aucune entrave... » Bien que son Sens Divin faiblisse, Lei Ji luttait encore pour parler.
+« Senior, le Sens Divin d'un Vice-Maître de Salle de la Secte Shi Yin se trouve dans la plante. Mon corps a été préparé pour ce Vice-Maître de Salle. Si vous n'étiez pas venu, je crains que lorsque ma force vitale sera épuisée dans quelques centaines d'années, il ne puisse posséder mon corps sans aucune entrave... » Bien que son Sens Divin faiblisse, Lei Ji luttait encore pour parler.
 
 En entendant cela, un éclair de compréhension traversa l'esprit de Wang Lin.
 
-« La Secte des Cadavres se spécialise dans le trafic de corps. Dans ce monde, le corps ultime est celui d'un Dieu Ancien! Cependant, les Dieux Anciens se font rares; la Secte des Cadavres a donc élargi ses ambitions au Clan des Démons Géants. Un tel corps, combiné aux sorts d'un cultivateur, est une chose qu'un cultivateur ordinaire ne peut affronter. Si un cultivateur du stade Scruteur du Nirvana possédait ce type de corps avec ses techniques et la capacité de lignée des Démons Géants, ce serait une menace contre laquelle même moi je n'aurais aucune confiance pour lutter, à moins de fusionner avec mon corps originel! »
+« La Secte Shi Yin se spécialise dans le trafic de corps. Dans ce monde, le corps ultime est celui d'un Dieu Ancien! Cependant, les Dieux Anciens se font rares; la Secte Shi Yin a donc élargi ses ambitions au Clan Ju Mo. Un tel corps, combiné aux sorts d'un cultivateur, est une chose qu'un cultivateur ordinaire ne peut affronter. Si un cultivateur du stade Scruteur du Nirvana possédait ce type de corps avec ses techniques et la capacité de lignée des Démons Géants, ce serait une menace contre laquelle même moi je n'aurais aucune confiance pour lutter, à moins de fusionner avec mon corps originel! »
 
-Le visage de Wang Lin s'assombrit. La Secte des Cadavres recelait trop de secrets. Il ignorait si la possession des corps du Clan des Démons Géants était une priorité pour eux.
+Le visage de Wang Lin s'assombrit. La Secte Shi Yin recelait trop de secrets. Il ignorait si la possession des corps du Clan Ju Mo était une priorité pour eux.
 
-Quoi qu'il en soit, cette affaire permettait à Wang Lin de percer certains mystères entourant la secte. Alors que l'armée Luotian approchait, il était convaincu que tous les secrets de la Secte des Cadavres finiraient par éclater au grand jour.
+Quoi qu'il en soit, cette affaire permettait à Wang Lin de percer certains mystères entourant la secte. Alors que l'armée Luotian approchait, il était convaincu que tous les secrets de la Secte Shi Yin finiraient par éclater au grand jour.
 
 Alors que la plante démoniaque poussait un cri strident, ses vignes chargèrent Wang Lin avec fureur, cherchant à le mettre en pièces. Wang Lin eut un sourire glacial et cracha le Sceau Céleste. Celui-ci grandit instantanément, libérant des centaines de milliers de runes dorées vers la plante.
 

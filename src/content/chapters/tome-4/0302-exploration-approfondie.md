@@ -12,7 +12,7 @@ Alors que Wang Lin volait, il tenta de se téléporter, mais chaque fois qu'il e
 
 Il sentit peu à peu que le nombre d'âmes errantes qu'il avait laissées derrière lui cessait de diminuer. La ligne noire avait manifestement perdu la trace de Wang Lin.
 
-Cependant, à cet instant précis, des grondements retentirent de toutes parts et Wang Lin recula rapidement. La grotte devant lui s'effondra soudainement. Lorsqu'il déploya son sens divin, il découvrit que plus de la moitié du Temple des Bêtes Célestes était désormais ensevelie.
+Cependant, à cet instant précis, des grondements retentirent de toutes parts et Wang Lin recula rapidement. La grotte devant lui s'effondra soudainement. Lorsqu'il déploya son sens divin, il découvrit que plus de la moitié du Temple Xian Shou était désormais ensevelie.
 
 Si un mortel avait été témoin de cela, il aurait été frappé de stupeur, mais Wang Lin avait déjà atteint le stade de la Formation de l'Âme; tant qu'il n'aurait pas à affronter cette ligne noire, il n'avait rien à craindre.
 
@@ -30,7 +30,7 @@ Wang Lin agita le drapeau de restriction et la brume noire disparut dans les par
 
 Peu de temps après, une silhouette émergea du mur que Wang Lin observait. Dès qu'il apparut, l'homme se montra extrêmement prudent en fixant Wang Lin du regard.
 
-Après l'avoir observé attentivement à plusieurs reprises, il laissa échapper un rire: « Compagnon cultivateur, je crois que nous sommes les deux seuls survivants dans ce Temple des Bêtes Célestes effondré. »
+Après l'avoir observé attentivement à plusieurs reprises, il laissa échapper un rire: « Compagnon cultivateur, je crois que nous sommes les deux seuls survivants dans ce Temple Xian Shou effondré. »
 
 Wang Lin eut un petit rire étouffé. Il réalisa que cet homme savait qu'il le suivait. Cela laissait penser que ce dernier cachait peut-être encore son véritable niveau de culture.
 

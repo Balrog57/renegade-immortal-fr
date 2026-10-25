@@ -1,6 +1,6 @@
 ---
 n: 1595
-title: "La cause karmique de la Secte de l'Affinement de l'Âme"
+title: "La cause karmique de la Secte Lian Hun"
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: Chapter 1595 - Soul Refining Secte’s Karmic Cause
@@ -108,4 +108,4 @@ Au sommet de la Secte Heng Yue, un vieil homme en robe jaune contemplait le ciel
 
 Un homme était assis au milieu de ce ciel chargé d'âmes. C'était un homme d'âge moyen, le frère aîné de Dun Tian.
 
-« Je ne parviens pas à la trouver... Moi, ce vieil homme, j'ai pratiqué la divination trente-sept fois sans réussir une seule fois. Se pourrait-il que ma Secte de l'Affinement de l'Âme n'ait vraiment plus aucun espoir... »
+« Je ne parviens pas à la trouver... Moi, ce vieil homme, j'ai pratiqué la divination trente-sept fois sans réussir une seule fois. Se pourrait-il que ma Secte Lian Hun n'ait vraiment plus aucun espoir... »

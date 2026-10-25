@@ -78,17 +78,17 @@ Wang Lin avait évalué la force de Du Qing, mais Du Qing ne parvenait pas à li
 
 « Son corps aurait dû s'effondrer sous l'effet de mon sort, mais son expression est restée de marbre. De plus, il a transféré la majeure partie de la force vers l'âme du dragon en dessous de lui; il est donc impossible de percer sa véritable culture! »
 
-« Mais je ne crois pas qu'il soit seulement au sommet du Vide Spirituel! Il doit cacher son véritable niveau; sinon, il ne se serait pas échappé de la Secte du Dragon Bleu! » Les deux hommes s'observaient, tentant de deviner les secrets de l'autre.
+« Mais je ne crois pas qu'il soit seulement au sommet du Vide Spirituel! Il doit cacher son véritable niveau; sinon, il ne se serait pas échappé de la Secte Cang Long! » Les deux hommes s'observaient, tentant de deviner les secrets de l'autre.
 
 Du Qing était un homme prudent, et chaque événement rencontré jusqu'ici l'avait poussé à la méfiance. Après avoir vu son attaque repoussée, ses yeux brillèrent d'une lueur intense alors qu'il fixait Wang Lin, refusant d'agir de manière imprudente.
 
-« Qui êtes-vous? Pourquoi avez-vous détruit la Secte du Dragon Bleu? Si vous ne me donnez pas d'explication, vous resterez ici aujourd'hui! » lança Du Qing avec une froideur glaciale.
+« Qui êtes-vous? Pourquoi avez-vous détruit la Secte Cang Long? Si vous ne me donnez pas d'explication, vous resterez ici aujourd'hui! » lança Du Qing avec une froideur glaciale.
 
-« Votre disciple de la Secte du Dragon Bleu voulait me transformer en marionnette. Je me suis contenté de détruire votre secte sans tuer une seule personne. C'est déjà faire preuve de clémence. » Les seize dragons de feu contrôlés par la main gauche de Wang Lin, qui maintenaient le grand dragon, tremblèrent. L'âme du feu terrestre poussa un rugissement alors que son corps se désagrégeait davantage. L'ombre de l'Oiseau Vermillon commençait à fusionner avec le dragon, la dévoration étant sur le point de s'achever.
+« Votre disciple de la Secte Cang Long voulait me transformer en marionnette. Je me suis contenté de détruire votre secte sans tuer une seule personne. C'est déjà faire preuve de clémence. » Les seize dragons de feu contrôlés par la main gauche de Wang Lin, qui maintenaient le grand dragon, tremblèrent. L'âme du feu terrestre poussa un rugissement alors que son corps se désagrégeait davantage. L'ombre de l'Oiseau Vermillon commençait à fusionner avec le dragon, la dévoration étant sur le point de s'achever.
 
 Voyant cela, le corps de Du Qing commença à se déformer à nouveau; il était sur le point de redevenir un être de bois. Le rugissement de cette veine de feu affecta l'essence de feu en lui, la rendant instable.
 
-« Quelle plaisanterie! Vous avez tué des milliers de disciples de ma Secte du Dragon Bleu et vous prétendez n'avoir tué personne! » Du Qing fixa Wang Lin et l'âme du dragon de feu, de nouveau hésitant.
+« Quelle plaisanterie! Vous avez tué des milliers de disciples de ma Secte Cang Long et vous prétendez n'avoir tué personne! » Du Qing fixa Wang Lin et l'âme du dragon de feu, de nouveau hésitant.
 
 Wang Lin dégageait une aura mystérieuse, et tout ce qu'il voyait faisait vaciller la confiance de Du Qing.
 
@@ -104,7 +104,7 @@ Dès l'apparition de cette empreinte, le monde changea de couleur et elle fondit
 
 En voyant cette paume, l'expression de Du Qing se décomposa!
 
-« La grande empreinte de la Secte Mondiale, l'Empreinte de l'Esprit Guerrier!! Vous êtes un membre de la Secte Mondiale du Continent des Nuages Spirituels! »
+« La grande empreinte de la Secte Mondiale, l'Empreinte de l'Esprit Guerrier!! Vous êtes un membre de la Secte Mondiale du Continent Hun Yun! »
 
 À ces mots, Wang Lin eut soudain une idée. Tandis que l'Empreinte de l'Esprit Guerrier descendait, il forma un autre sceau et pointa à nouveau vers les cieux.
 
@@ -118,6 +118,6 @@ Une lumière aux sept couleurs se rassembla instantanément devant lui, envelopp
 
 Le corps de Du Qing trembla et il afficha un regard d'incrédulité totale. Il recula inconsciemment, fixant Wang Lin avec une peur extrême.
 
-« La secte la plus puissante des 72 continents, personnellement désignée par l'Empereur Céleste, la Secte des Trois Dao... Le sort non transmis de Song Yun Dao... L'Ombrelle Brûlante du Royaume... » Le visage de Du Qing devint livide et son cuir chevelu en eut des frissons. Il ne pouvait imaginer que Wang Lin ait appris ces techniques en secret. Ces sorts semblaient d'une authenticité absolue, et ce n'étaient pas des choses que l'on pouvait apprendre clandestinement!
+« La secte la plus puissante des 72 continents, personnellement désignée par l'Empereur Céleste, la Secte San Dao... Le sort non transmis de Song Yun Dao... L'Ombrelle Brûlante du Royaume... » Le visage de Du Qing devint livide et son cuir chevelu en eut des frissons. Il ne pouvait imaginer que Wang Lin ait appris ces techniques en secret. Ces sorts semblaient d'une authenticité absolue, et ce n'étaient pas des choses que l'on pouvait apprendre clandestinement!
 
 « Qui diable êtes-vous?! »

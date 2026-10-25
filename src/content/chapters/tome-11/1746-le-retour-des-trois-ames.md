@@ -68,15 +68,15 @@ Wang Lin la suivait, utilisant toute sa vitesse pour espérer la rattraper. Il o
 
 La troisième âme marqua un temps d'arrêt devant une planète sauvage. Cependant, finalement, elle ne choisit pas cet endroit et passa son chemin.
 
-Après un temps indéterminé, Wang Lin suivait toujours la troisième âme. Après avoir fait le tour du Vide Brillant, celle-ci accéléra soudainement et fonça vers la Mer des Nuages!
+Après un temps indéterminé, Wang Lin suivait toujours la troisième âme. Après avoir fait le tour du Vide Brillant, celle-ci accéléra soudainement et fonça vers la Mer Yun!
 
-Les yeux de Wang Lin brillèrent intensément. Il estima le temps écoulé. À l'époque, le Daoïste aux Sept Couleurs n'avait certainement vu que la troisième âme entrer dans le Vide Brillant sans jamais la voir voler vers la Mer des Nuages, car il avait été réveillé par Wang Lin!
+Les yeux de Wang Lin brillèrent intensément. Il estima le temps écoulé. À l'époque, le Daoïste aux Sept Couleurs n'avait certainement vu que la troisième âme entrer dans le Vide Brillant sans jamais la voir voler vers la Mer Yun, car il avait été réveillé par Wang Lin!
 
 Pourtant, en y réfléchissant, un frisson soudain parcourut le cœur de Wang Lin. Ce frisson venait d'une pensée qui traversa son esprit.
 
 « Cette troisième âme a tourné autour du Vide Brillant comme si elle cherchait quelque chose... Ou peut-être savait-elle que le Daoïste aux Sept Couleurs la chercherait des millénaires plus tard, et qu'elle s'était donc intentionnellement attardée dans le Vide Brillant... » Wang Lin secoua la tête. Il trouvait cette idée tout simplement trop absurde.
 
-La troisième âme vola vers la Mer des Nuages de l'époque future et disparut en un éclair sur une planète sauvage! Wang Lin arriva et fixa l'astre du regard.
+La troisième âme vola vers la Mer Yun de l'époque future et disparut en un éclair sur une planète sauvage! Wang Lin arriva et fixa l'astre du regard.
 
 Le temps passa. Un jour donné, la planète s'effondra et se dispersa dans toutes les directions. Des brumes se répandirent, enveloppant le lieu. Sur l'un des fragments, un python mourut et un rayon de lumière s'élança vers le système stellaire.
 

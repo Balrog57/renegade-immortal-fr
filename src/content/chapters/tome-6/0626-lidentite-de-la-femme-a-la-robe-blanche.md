@@ -93,18 +93,18 @@ En pensant au sort, Wang Lin laissa poindre une pointe d'excitation. C'était un
 
 Après tout, les sorts célestes étaient d'une rareté absolue. Même des êtres comme Tian Yunzi en brûlaient d'envie, alors imaginez pour quelqu'un comme Wang Lin. Les sorts célestes étaient de véritables pouvoirs, des techniques dont la puissance surpassait de loin celle des sorts ordinaires!
 
-La Terre des Esprits Démoniaques attirait tant de cultivateurs que certains étaient prêts à massacrer ou à se prosterner devant les indigènes, tout cela pour une chance de fusionner avec un ancien démon et d'apprendre un sort céleste. À la Secte du Destin Céleste, il fallait conserver pendant des années incalculables le titre de l'un des Sept Disciples du Destin Céleste avant d'espérer en recevoir un. Et même là, Tian Yunzi ne choisissait jamais le meilleur, mais un sort ordinaire.
+La Terre Yao Ling attirait tant de cultivateurs que certains étaient prêts à massacrer ou à se prosterner devant les indigènes, tout cela pour une chance de fusionner avec un ancien démon et d'apprendre un sort céleste. À la Secte Tian Yun, il fallait conserver pendant des années incalculables le titre de l'un des Sept Disciples du Destin Céleste avant d'espérer en recevoir un. Et même là, Tian Yunzi ne choisissait jamais le meilleur, mais un sort ordinaire.
 
 « Le Sort d'Arrêt! » Wang Lin prit une profonde inspiration et l'incantation apparut dans son esprit. Il ferma lentement les yeux pour s'immerger dans la technique.
 
 Le temps passa silencieusement; en un clin d'œil, plus de vingt ans s'étaient écoulés.
 
-La guerre entre le Pays du Démon Céleste et le Pays du Démon de Feu s'éternisait. L'intensité des combats augmentait à mesure que le conflit perdurait. Les autres nations ne purent plus rester en retrait et décidèrent enfin d'intervenir.
+La guerre entre le Pays Tian Yao et le Pays Huo Yao s'éternisait. L'intensité des combats augmentait à mesure que le conflit perdurait. Les autres nations ne purent plus rester en retrait et décidèrent enfin d'intervenir.
 
-L'Ancien Démon du Pays du Démon Céleste avait anticipé ce problème dès le déclenchement de la guerre contre le Pays du Démon de Feu. Alors que les autres pays s'apprêtaient à agir, il utilisa sa propre puissance pour sceller la Cité du Démon Céleste!
+L'Ancien Démon du Pays Tian Yao avait anticipé ce problème dès le déclenchement de la guerre contre le Pays Huo Yao. Alors que les autres pays s'apprêtaient à agir, il utilisa sa propre puissance pour sceller la Cité Tian Yao!
 
-Quant aux autres cités du Pays du Démon Céleste, l'Ancien Démon les abandonna totalement. Il ne garda que la capitale et le Lac du Dragon, attendant l'échéance de son accord avec Wang Lin. Il n'avait aucune crainte que ce dernier ne revienne sur sa parole; si cela arrivait, il utiliserait ses capacités pour le traquer jusqu'à ce qu'il le tue. Il était convaincu que Wang Lin n'était pas un homme aussi court-termiste.
+Quant aux autres cités du Pays Tian Yao, l'Ancien Démon les abandonna totalement. Il ne garda que la capitale et le Lac Long Tan, attendant l'échéance de son accord avec Wang Lin. Il n'avait aucune crainte que ce dernier ne revienne sur sa parole; si cela arrivait, il utiliserait ses capacités pour le traquer jusqu'à ce qu'il le tue. Il était convaincu que Wang Lin n'était pas un homme aussi court-termiste.
 
-Dans ce contexte, la Tribu de l'Affinement de l'Âme s'étendit et se renforça rapidement. Au cours des dernières décennies, sur les champs de bataille du Pays du Démon de Feu, des silhouettes mystérieuses vêtues de noir attirèrent l'attention des deux camps. Ces hommes en robe noire apparaissaient souvent sur les lieux des combats pour absorber une quantité massive de fragments d'âmes tout en emportant une grande quantité de force vitale.
+Dans ce contexte, la Tribu de l'Affinement de l'Âme s'étendit et se renforça rapidement. Au cours des dernières décennies, sur les champs de bataille du Pays Huo Yao, des silhouettes mystérieuses vêtues de noir attirèrent l'attention des deux camps. Ces hommes en robe noire apparaissaient souvent sur les lieux des combats pour absorber une quantité massive de fragments d'âmes tout en emportant une grande quantité de force vitale.
 
 Parallèlement, les soldats démons qui avaient tué d'innombrables ennemis sur les champs de bataille, affichant des performances exceptionnelles et une puissance grandement accrue, furent promus au rang de généraux dans les armées des deux pays pour remplacer les généraux tombés au combat.

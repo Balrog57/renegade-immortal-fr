@@ -8,9 +8,9 @@ slug: cultiver-en-etant-piege
 ---
 Wang Lin apparut devant le septième étage du pavillon des trésors. Dès son apparition, il se transforma en un rayon de lumière et s'élança vers l'horizon.
 
-En chemin, Wang Lin progressait à une vitesse fulgurante, se dirigeant droit vers le Pavillon de la Forêt Violette. Maintenant qu'il possédait suffisamment de jades célestes, il prévoyait d'entrer en culture en isolement pour les absorber tous et atteindre le stade intermédiaire de la Transformation de l'Âme le plus rapidement possible. Ainsi, il pourrait prétendre au titre de véritable disciple dans trois mois!
+En chemin, Wang Lin progressait à une vitesse fulgurante, se dirigeant droit vers le Pavillon Zi Lin. Maintenant qu'il possédait suffisamment de jades célestes, il prévoyait d'entrer en culture en isolement pour les absorber tous et atteindre le stade intermédiaire de la Transformation de l'Âme le plus rapidement possible. Ainsi, il pourrait prétendre au titre de véritable disciple dans trois mois!
 
-La vitesse de Wang Lin était telle qu'il créait des détonations soniques, le rendant très voyant dans le calme de cette Montagne de la Division Pourpre. À cet instant précis, juste en dessous de sa trajectoire, un élégant porche en bambou abritait trois vieillards. Ils étaient tous les trois des anciens disciplinaires de la Division Pourpre. L'un d'eux leva les yeux vers l'endroit où Wang Lin avait disparu avant de laisser échapper un grognement et de dire, d'un ton mécontent: « Ce Wang Lin est bien trop arrogant. Il ose user d'une telle vitesse au sein même du domaine de la secte! »
+La vitesse de Wang Lin était telle qu'il créait des détonations soniques, le rendant très voyant dans le calme de cette Montagne Zi Zong. À cet instant précis, juste en dessous de sa trajectoire, un élégant porche en bambou abritait trois vieillards. Ils étaient tous les trois des anciens disciplinaires de la Division Pourpre. L'un d'eux leva les yeux vers l'endroit où Wang Lin avait disparu avant de laisser échapper un grognement et de dire, d'un ton mécontent: « Ce Wang Lin est bien trop arrogant. Il ose user d'une telle vitesse au sein même du domaine de la secte! »
 
 Le vieil homme à ses côtés secoua la tête et répondit: « À moins qu'ils ne trahissent la secte, il vaut mieux ne pas s'en prendre aux disciples de l'Ancêtre. Bien que son niveau de culture ne soit pas élevé, il possède une immense expérience du combat. Même si nous nous y mettons à trois, nous n'obtiendrions au mieux qu'une égalité. »
 
@@ -18,7 +18,7 @@ Le dernier homme saisit une tasse en jade violet, en prit une gorgée et déclar
 
 Les trois hommes restèrent silencieux, plongés dans leurs réflexions.
 
-Wang Lin vola à toute allure et parvint peu après au Pavillon de la Forêt Violette. Il descendit vers le sol, laissant derrière lui une traînée lumineuse.
+Wang Lin vola à toute allure et parvint peu après au Pavillon Zi Lin. Il descendit vers le sol, laissant derrière lui une traînée lumineuse.
 
 Dès qu'il toucha terre, son expression changea et il se retourna pour scruter l'horizon. Un rayon de lumière fonçait droit sur lui.
 
@@ -34,7 +34,7 @@ L'expression de Wang Lin resta imperturbable. Il regarda calmement les trois ind
 
 Cet homme était vêtu de bleu, avec trois dragons azur brodés sur sa poitrine. Ces dragons, féroces et si vivants qu'ils semblaient réels, avaient des yeux qui dégageaient un éclat saisissant.
 
-« Troisième disciple de la division bleue de la Secte du Destin Céleste, Sima Rufeng! » L'homme affichait un sourire empreint de douceur et, après être apparu, son regard se posa sur Wang Lin.
+« Troisième disciple de la division bleue de la Secte Tian Yun, Sima Rufeng! » L'homme affichait un sourire empreint de douceur et, après être apparu, son regard se posa sur Wang Lin.
 
 « Stade avancé de la Transformation de l'Âme! Et un niveau de culture légèrement supérieur à celui de la Quatrième Sœur; il doit être au sommet du stade avancé de la Transformation de l'Âme! » Les pupilles de Wang Lin se contractèrent imperceptiblement.
 
@@ -56,7 +56,7 @@ Sur ces mots, elle forma un sceau de la main, pointa Wang Lin du doigt et entonn
 
 Wang Lin disparut avec la femme.
 
-Il existait une vaste forêt de pierres située à plus de cent mille kilomètres de la Secte du Destin Céleste. La forêt de pierres était si dense que ses colonnes rocheuses ressemblaient à des épées acérées pointées vers le ciel. Même de loin, on pouvait percevoir l'intention meurtrière qui imprégnait les lieux. Des filaments d'intention meurtrière s'échappaient mystérieusement des rochers, créant une immense flamme de mort.
+Il existait une vaste forêt de pierres située à plus de cent mille kilomètres de la Secte Tian Yun. La forêt de pierres était si dense que ses colonnes rocheuses ressemblaient à des épées acérées pointées vers le ciel. Même de loin, on pouvait percevoir l'intention meurtrière qui imprégnait les lieux. Des filaments d'intention meurtrière s'échappaient mystérieusement des rochers, créant une immense flamme de mort.
 
 Soudain, des vagues de lumière argentée apparurent au-dessus de la forêt. Cette lueur gagna en intensité jusqu'à couvrir une zone de cinq kilomètres.
 
@@ -88,7 +88,7 @@ Wang Lin fronça les sourcils.
 
 « Jeune frère apprenti, cette restriction a été posée par le Frère aîné lui-même. À moins qu'il n'en soit certain, il ne vous laisserait pas ici sans raison; ne gaspillez donc pas votre énergie. » La Quatrième Sœur soupira et s'envola hors de la zone délimitée par la lumière argentée.
 
-Elle se retourna pour lancer un regard éloquent à Wang Lin avant de murmurer: « Frère aîné, la dette que je vous ai contractée autrefois est désormais remboursée. À partir de maintenant, il n'y a plus aucun lien entre nous! » Sur ces mots, elle s'élança vers la Secte du Destin Céleste.
+Elle se retourna pour lancer un regard éloquent à Wang Lin avant de murmurer: « Frère aîné, la dette que je vous ai contractée autrefois est désormais remboursée. À partir de maintenant, il n'y a plus aucun lien entre nous! » Sur ces mots, elle s'élança vers la Secte Tian Yun.
 
 Wang Lin observa sa silhouette disparaître lentement, le regard brillant d'une lueur étrange. Ses yeux devinrent plus froids et il sortit l'épée céleste. D'un geste vif, il libéra une onde d'énergie d'épée large d'une dizaine de mètres qui fendit le vide voisin.
 
@@ -112,4 +112,4 @@ La lame demi-lunaire suivit rapidement l'épée céleste pour charger dans les c
 
 Les yeux de Wang Lin s'illuminèrent; d'un geste de la main, il rappela l'épée céleste. La lame demi-lunaire tourna autour de l'épée en émettant des ondes de chants de lames, semblant elle aussi profondément frustrée.
 
-« Ils veulent me sceller ici jusqu'à ce que le choix du véritable disciple soit arrêté. Comment pourrais-je les laisser faire? Puisque cet endroit est désolé, je m'en servirai pour ma culture. Une fois que j'aurai atteint le stade intermédiaire de la Transformation de l'Âme, je pourrai sûrement briser cet endroit et rejoindre directement la Secte du Destin Céleste! » Sur ces mots, la silhouette de Wang Lin quitta le rocher pour s'enfoncer dans les profondeurs de la forêt.
+« Ils veulent me sceller ici jusqu'à ce que le choix du véritable disciple soit arrêté. Comment pourrais-je les laisser faire? Puisque cet endroit est désolé, je m'en servirai pour ma culture. Une fois que j'aurai atteint le stade intermédiaire de la Transformation de l'Âme, je pourrai sûrement briser cet endroit et rejoindre directement la Secte Tian Yun! » Sur ces mots, la silhouette de Wang Lin quitta le rocher pour s'enfoncer dans les profondeurs de la forêt.

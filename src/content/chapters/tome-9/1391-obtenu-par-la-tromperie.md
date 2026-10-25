@@ -6,25 +6,25 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1391 - Obtained Through Deceiving
 slug: obtenu-par-la-tromperie
 ---
-Le Clan de l'Évasion Nuageuse ne quitta pas la planète; ils n'oseraient pas partir tant que Wang Lin ne l'aurait pas permis.
+Le Clan Yun Dun ne quitta pas la planète; ils n'oseraient pas partir tant que Wang Lin ne l'aurait pas permis.
 
 Après le retour de Wang Lin, celui-ci créa une vaste grotte et se mit en culture en isolement. Il installa des restrictions telles que personne ne puisse faire le moindre pas dans un rayon de plusieurs centaines de kilomètres autour de la grotte.
 
-Le Clan du Scorpion Noir, au statut le plus élevé, occupa une zone située à plusieurs centaines de kilomètres de la grotte. Le Clan de l'Évasion Nuageuse, impuissant, ne put que s'établir temporairement dans une autre direction.
+Le Clan An Xie, au statut le plus élevé, occupa une zone située à plusieurs centaines de kilomètres de la grotte. Le Clan Yun Dun, impuissant, ne put que s'établir temporairement dans une autre direction.
 
-Zhong Dahong était extrêmement arrogant; il se déplaçait entre les deux clans à sa guise. La joie d'être au centre de tous les regards était une sensation qu'il n'avait jamais connue au sein du Clan du Tonnerre Dispersé.
+Zhong Dahong était extrêmement arrogant; il se déplaçait entre les deux clans à sa guise. La joie d'être au centre de tous les regards était une sensation qu'il n'avait jamais connue au sein du Clan Shan Lei.
 
-À l'intérieur de la grotte, Wang Lin siégeait en méditation. Plus tôt, au Clan du Dragon Blindé, avant que l'envoyé du Grand Empereur ne parte, celui-ci lui avait annoncé qu'un événement crucial se produirait dans trois mois: ce jour-là, les Anciens Délaissés seraient restructurés.
+À l'intérieur de la grotte, Wang Lin siégeait en méditation. Plus tôt, au Clan Long Jia, avant que l'envoyé du Grand Empereur ne parte, celui-ci lui avait annoncé qu'un événement crucial se produirait dans trois mois: ce jour-là, les Anciens Délaissés seraient restructurés.
 
 Certains conserveraient leur statut, tandis que d'autres seraient remplacés.
 
-Cependant, Wang Lin n'y accordait guère d'importance. Ce qui lui importait, c'était la manière dont il pourrait atteindre son objectif auprès du Clan des Moineaux de Feu grâce à cette élection des Anciens Délaissés.
+Cependant, Wang Lin n'y accordait guère d'importance. Ce qui lui importait, c'était la manière dont il pourrait atteindre son objectif auprès du Clan Huo Que grâce à cette élection des Anciens Délaissés.
 
 « L'appât est posé... » Les yeux de Wang Lin s'illuminèrent, puis il les ferma tandis que son Sens Divin se déployait. Son Sens Divin fusionna progressivement avec le monde, ne faisant plus qu'un avec lui.
 
 Après un long moment, Wang Lin perçut lentement une sensation familière qui s'éloignait de plus en plus dans la distance.
 
-Dans l'espace obscur à l'extérieur des Terres Déchues, trois membres du Clan des Moineaux de Feu volaient au loin. L'un d'eux était un homme d'âge moyen à l'expression solennelle. Il toucha la marque entre ses sourcils, et une étrange lueur brilla dans ses yeux.
+Dans l'espace obscur à l'extérieur des Terres Déchues, trois membres du Clan Huo Que volaient au loin. L'un d'eux était un homme d'âge moyen à l'expression solennelle. Il toucha la marque entre ses sourcils, et une étrange lueur brilla dans ses yeux.
 
 « L'Ancien m'a chargé de renvoyer le sang extrait de la pilule. Cette affaire est d'une importance capitale pour notre clan, nous ne pouvons commettre la moindre erreur. Si l'analyse de l'Ancien est exacte, alors une fois que le Patriarche, le Grand Ancien et les autres l'auront vu, ils donneront certainement de nouveaux ordres. » Le regard de l'homme était empreint de détermination. Lui et les deux compagnons accélérèrent leur vol avant de disparaître dans l'immensité.
 
@@ -32,7 +32,7 @@ Wang Lin ouvrit les yeux et son Sens Divin se rétracta. Un rictus apparut sur s
 
 Par conséquent, il pouvait utiliser le lien avec son propre sang pour localiser approximativement sa position, même séparé par d'innombrables régions stellaires.
 
-« Une fois que cette parcelle d'essence sera revenue au Clan des Moineaux de Feu, elle déclenchera sans aucun doute une vague monumentale. Mon plan pour obtenir leur essence de feu devrait alors réussir! »
+« Une fois que cette parcelle d'essence sera revenue au Clan Huo Que, elle déclenchera sans aucun doute une vague monumentale. Mon plan pour obtenir leur essence de feu devrait alors réussir! »
 
 « Puisque le sang est déjà parti, je dois préparer la seconde étape... » Les yeux de Wang Lin brillèrent d'une lueur sombre. Il agita sa main droite et une faille spatiale se déchira.
 
@@ -46,7 +46,7 @@ Ces cris déchirants s'élevaient à tour de rôle, d'une horreur inhumaine... W
 
 Xu Liguo tenait un homme. Ses vêtements étaient en lambeaux, comme s'il venait d'être violé, et il paraissait extrêmement hagard. Ses yeux étaient pétrifiés par l'horreur alors que Xu Liguo le présentait devant Wang Lin.
 
-« Maître, y a-t-il encore une bonne affaire à arranger? Ce petit Xu vous garantit qu'il fera du bon travail, et ce ne sera pas comme au Clan du Tonnerre Dispersé! » Xu Liguo jeta Liu Jinbiao sur le côté et se frotta les mains avec empressement.
+« Maître, y a-t-il encore une bonne affaire à arranger? Ce petit Xu vous garantit qu'il fera du bon travail, et ce ne sera pas comme au Clan Shan Lei! » Xu Liguo jeta Liu Jinbiao sur le côté et se frotta les mains avec empressement.
 
 Wang Lin ne daigna pas un regard à Xu Liguo, mais fixa Liu Jinbiao, qui se mit à trembler. Son cœur était envahi par une peur indicible. Après avoir été jeté dans l'espace de stockage, il avait subi les tourments de Xu Liguo. Il était dévasté et misérable; chaque pensée évoquant Xu Liguo était pour lui un véritable cauchemar.
 
@@ -60,7 +60,7 @@ Liu Jinbiao essuya les larmes qui coulaient sur son visage, le regard empreint d
 
 Une lueur de froideur traversa les yeux de Wang Lin, qui hocha la tête. « Puisque tu ne peux plus tromper personne, tu es inutile. Par conséquent, il n'y a aucune raison de te garder en vie. »
 
-Le visage de Liu Jinbiao s'illumina d'une joie éphémère avant de se figer instantanément. Lorsqu'il comprit le sens des paroles de Wang Lin, son expression changea radicalement. Son corps trembla face à la froideur du regard de Wang Lin, et il s'exclama avec précipitation: « Le Céleste se méprend!!! Le Céleste se méprend!!! Ce que ce petit a dit est faux! Même sans le jade, l'art de la tromperie de ce petit est le premier de toute la Mer des Nuages, nul ne peut l'égaler! Je ne me suis jamais reposé uniquement sur le jade, je ne m'en servais qu'en cas de nécessité. Ce petit pratique l'art de la tromperie depuis son plus jeune âge et a saisi chaque occasion pour s'exercer. Je suis un maître de la tromperie! »
+Le visage de Liu Jinbiao s'illumina d'une joie éphémère avant de se figer instantanément. Lorsqu'il comprit le sens des paroles de Wang Lin, son expression changea radicalement. Son corps trembla face à la froideur du regard de Wang Lin, et il s'exclama avec précipitation: « Le Céleste se méprend!!! Le Céleste se méprend!!! Ce que ce petit a dit est faux! Même sans le jade, l'art de la tromperie de ce petit est le premier de toute la Mer Yun, nul ne peut l'égaler! Je ne me suis jamais reposé uniquement sur le jade, je ne m'en servais qu'en cas de nécessité. Ce petit pratique l'art de la tromperie depuis son plus jeune âge et a saisi chaque occasion pour s'exercer. Je suis un maître de la tromperie! »
 
 « Oh? Alors dis-moi, quelle est ta compréhension de la tromperie? » L'index droit de Wang Lin continuait de tapoter doucement son genou. Bien que sa voix fût calme, ce geste rythmé faisait battre le cœur de Liu Jinbiao au même tempo.
 

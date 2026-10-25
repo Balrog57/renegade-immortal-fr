@@ -113,10 +113,10 @@ Sur le Continent Astral Immortel, dans une région appartenant aux célestes, se
 
 La nuit était tombée, et la lumière des étoiles se répandait sur la terre. Mais le silence n'était pas de mise; les rugissements de bêtes féroces résonnaient depuis l'épaisseur du bois.
 
-Il y a fort longtemps, une secte céleste s'était tenue ici: la Secte des Sept Dao.
+Il y a fort longtemps, une secte céleste s'était tenue ici: la Secte Qi Dao.
 
 Des ondulations se formèrent dans le ciel où la lune était suspendue. Ces distorsions semblaient déformer l'astre lunaire tandis qu'une silhouette apparaissait lentement. C'était un jeune homme aux cheveux noirs.
 
 Le jeune homme paraissait épuisé en contemplant la terre en contrebas. Pourtant, son visage las affichait un sourire empreint d'attente. Il semblait que, malgré le prix immense payé pour arriver jusqu'ici, tout en valait la peine.
 
-« Enfant de mon Clan du Dao Antique, je suis venu te ramener chez toi... Le chemin du retour sera ardu, mais je sais que tu ne craindras rien. » Le jeune homme sourit en s'avançant vers la chaîne de montagnes.
+« Enfant de mon Clan Dao Gu, je suis venu te ramener chez toi... Le chemin du retour sera ardu, mais je sais que tu ne craindras rien. » Le jeune homme sourit en s'avançant vers la chaîne de montagnes.

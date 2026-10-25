@@ -1,6 +1,6 @@
 ---
 n: 382
-title: Le Royaume du Ji et le Sort de la Mort
+title: Le Royaume Ji et le Sort de la Mort
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 382 - Ji Realm and the Death Spell
@@ -32,7 +32,7 @@ Cette rumeur resurgissait à chaque début de compétition. Il y a longtemps, un
 
 À chaque compétition, moins de la moitié des disciples de la secte extérieure survivaient à la fin des épreuves, sans une seule exception. Les survivants devaient verser encore plus de pierres spirituelles pour s'assurer de pouvoir participer à la prochaine édition, qui leur ouvrirait la voie vers la secte intérieure.
 
-Nul ne savait combien de disciples de la secte extérieure étaient morts au fil des ans. Après chaque compétition, le drapeau principal de l'âme de la secte recueillait d'innombrables âmes. La Secte de l'Affinement de l'Âme ne cessait de croître en puissance grâce à cette méthode cruelle.
+Nul ne savait combien de disciples de la secte extérieure étaient morts au fil des ans. Après chaque compétition, le drapeau principal de l'âme de la secte recueillait d'innombrables âmes. La Secte Lian Hun ne cessait de croître en puissance grâce à cette méthode cruelle.
 
 Chaque jour, un grand nombre de disciples mouraient. Les cent arènes de combat étaient inondées de sang. Wang Lin observa attentivement ces derniers jours: chaque fois que quelqu'un mourait, son âme était absorbée par l'arène avant de disparaître.
 
@@ -52,7 +52,7 @@ Parmi elles se trouvait un vieil homme aux cheveux gris au stade avancé de la F
 
 En voyant cette technique, Wang Lin pensa immédiatement au Royaume Ji et fut frappé de stupeur. Cependant, en y regardant de plus près, il réalisa que ce sort différait du Royaume Ji.
 
-« Un sort de la mort? » Après réflexion, Wang Lin en devina le nom. Dans la Mer des Démons, son propre Royaume Ji avait été confondu avec un tel sort; c'est ainsi qu'il l'avait appris. Ce sort de la mort était extrêmement difficile à cultiver. En cinq cents ans de culture, c'était la première fois qu'il en voyait un.
+« Un sort de la mort? » Après réflexion, Wang Lin en devina le nom. Dans la Mer Xiu Mo, son propre Royaume Ji avait été confondu avec un tel sort; c'est ainsi qu'il l'avait appris. Ce sort de la mort était extrêmement difficile à cultiver. En cinq cents ans de culture, c'était la première fois qu'il en voyait un.
 
 La deuxième personne était un jeune homme chétif et mince. Bien qu'il ne fût qu'au stade initial de la Formation du Noyau, il se comportait comme une bête sauvage. Il était capable de détecter le flux d'énergie spirituelle avant même que l'adversaire n'utilise une technique, lui permettant d'anticiper ses mouvements. Contre un adversaire plus fort, cela ne servirait pas à grand-chose, mais contre des gens de même niveau, c'était un avantage céleste. Wang Lin ne put s'empêcher d'apprécier ce talent; il eut même l'envie de le prendre comme disciple, avant de chasser rapidement cette idée.
 
@@ -62,7 +62,7 @@ Quant à la dernière personne, c'était Wang Lin lui-même. Il traversait la co
 
 Quant à Liu Mei, il supposait qu'elle avait ses propres desseins. Même sans participer à la compétition, elle trouverait un moyen d'intégrer la secte intérieure.
 
-Le temps s'écoula rapidement et sept jours supplémentaires passèrent. Sur les cent disciples environ, seuls quatre restaient. Par coïncidence, ces quatre survivants étaient précisément ceux qui avaient attiré l'attention de la Secte de l'Affinement de l'Âme.
+Le temps s'écoula rapidement et sept jours supplémentaires passèrent. Sur les cent disciples environ, seuls quatre restaient. Par coïncidence, ces quatre survivants étaient précisément ceux qui avaient attiré l'attention de la Secte Lian Hun.
 
 Vint le jour du combat de Wang Lin. Il se tenait sur l'arène, un sourire étrange aux lèvres, et regarda son adversaire monter sur scène. L'homme qui s'avançait n'était pas un inconnu, mais le cultivateur au visage de boucher de la grotte 743.
 
@@ -76,11 +76,11 @@ Le cultivateur au visage de boucher hocha vivement la tête: « Je capitule! » 
 
 Une fois descendu de scène, il afficha un sourire pour tenter de plaire à Wang Lin. Ce dernier lui rendit un sourire et secoua discrètement la tête avant de quitter l'arène à son tour. Le cultivateur de l'Âme Naissante observa Wang Lin d'un air pensif, puis passa à la gestion du second combat.
 
-L'affrontement entre le vieil homme maîtrisant le sort de la mort et le jeune homme aux instincts prodigieux fut bref. Le jeune homme ne put en rien résister au sortilège; alors qu'il sombrait, il fut sauvé par un rayon d'énergie spirituelle qui jaillit de l'intérieur de la Secte de l'Affinement de l'Âme et l'enveloppa.
+L'affrontement entre le vieil homme maîtrisant le sort de la mort et le jeune homme aux instincts prodigieux fut bref. Le jeune homme ne put en rien résister au sortilège; alors qu'il sombrait, il fut sauvé par un rayon d'énergie spirituelle qui jaillit de l'intérieur de la Secte Lian Hun et l'enveloppa.
 
 À ce stade, il ne restait plus que deux prétendants pour cette compétition de la secte extérieure: Wang Lin et le vieil homme nommé Sima. Le combat entre les deux débuta le lendemain.
 
-Sima se tenait sur l'arène, le regard sombre. Il avait cultivé ce sort de la mort pendant si longtemps pour ce jour précis. Une fois admis dans la secte intérieure, il était certain de pouvoir un jour former son Âme Naissante. De plus, le drapeau de l'âme de la Secte de l'Affinement de l'Âme s'accorderait parfaitement avec son sortilège. Selon son maître, s'il cultivait les deux simultanément, sa puissance serait proche de celle du légendaire et disparu Royaume Ji.
+Sima se tenait sur l'arène, le regard sombre. Il avait cultivé ce sort de la mort pendant si longtemps pour ce jour précis. Une fois admis dans la secte intérieure, il était certain de pouvoir un jour former son Âme Naissante. De plus, le drapeau de l'âme de la Secte Lian Hun s'accorderait parfaitement avec son sortilège. Selon son maître, s'il cultivait les deux simultanément, sa puissance serait proche de celle du légendaire et disparu Royaume Ji.
 
 En pensant à son maître, ses yeux se remplirent d'un fanatisme dévorant. Son maître était capable de tuer n'importe quel cultivateur de l'Âme Naissante d'un seul mot: « meurs », et même les cultivateurs de la Formation de l'Âme avaient très peu de chances de s'en échapper. Dans son esprit, son maître possédait la capacité de défier les vieux monstres de la Transformation de l'Âme.
 

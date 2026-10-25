@@ -39,7 +39,7 @@ Il frappa sa sacoche de rangement et un morceau de jade blanc apparut dans sa ma
 
 Wang Lin savait qu'après le stade de la Transformation de l'Âme, en plus de comprendre ses domaines, l'énergie spirituelle du monde ne suffisait plus à la culture. Plus on en possédait, mieux c'était.
 
-Il connaissait la valeur inestimable de l'énergie spirituelle céleste. Si ce morceau de jade avait été placé à Suzaku, il aurait provoqué un bain de sang; même le Pays de Suzaku serait intervenu pour s'en emparer.
+Il connaissait la valeur inestimable de l'énergie spirituelle céleste. Si ce morceau de jade avait été placé à Suzaku, il aurait provoqué un bain de sang; même le Pays de Zhu Que serait intervenu pour s'en emparer.
 
 Après un bref examen, Wang Lin rangea le jade. Bien que son âme originelle ait subi des dommages lors de ce voyage, les trésors obtenus en valaient largement la peine. Il prit une profonde inspiration avant de sortir un autre objet: le morceau de métal doré provenant de la poitrine du squelette.
 

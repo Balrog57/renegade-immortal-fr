@@ -30,7 +30,7 @@ Huit jours plus tard, Wang Lin arriva enfin à la ville.
 
 De grands et petits édifices couvraient la cité, abritant d'innombrables cultivateurs. Autour des réseaux de transfert de la ville, la foule était encore plus dense.
 
-Il faut dire qu'il y avait énormément de bêtes dans la Mer des Démons en ce moment. Seuls ceux ayant atteint un certain niveau de culture ou voyageant en petits groupes de trois à cinq osaient sortir des murs de la ville.
+Il faut dire qu'il y avait énormément de bêtes dans la Mer Xiu Mo en ce moment. Seuls ceux ayant atteint un certain niveau de culture ou voyageant en petits groupes de trois à cinq osaient sortir des murs de la ville.
 
 La plupart des cultivateurs préféraient dépenser quelques pierres spirituelles pour utiliser les réseaux de transfert, garantissant ainsi une relative sécurité.
 
@@ -50,7 +50,7 @@ Les deux autres échangèrent un regard et disparurent.
 
 Ils ignoraient que, durant tout ce temps, le sens divin de Wang Lin les avait verrouillés. Une fois qu'ils furent partis, Wang Lin retira son sens divin et commença à errer dans la ville.
 
-De nombreux commerces parsemaient la cité, mais après avoir parcouru maints étals, il ne trouva aucune carte à vendre. Après avoir marché un moment, il s'arrêta devant un bâtiment de trois étages et sourit. L'enseigne indiquait: Pavillon du Raffinage des Trésors.
+De nombreux commerces parsemaient la cité, mais après avoir parcouru maints étals, il ne trouva aucune carte à vendre. Après avoir marché un moment, il s'arrêta devant un bâtiment de trois étages et sourit. L'enseigne indiquait: Pavillon Lian Qi.
 
 Wang Lin se souvenait encore de ce vieil homme qui chevauchait une bête Taotie, rencontré il y a toutes ces années. Il pensait que ce dernier avait dû trouver la petite bête à laquelle Wang Lin avait transféré sa restriction.
 
@@ -60,7 +60,7 @@ Alors qu'il marchait, ses yeux s'illuminèrent soudain en apercevant une boutiqu
 
 Cette puissance était très légère. Seules les personnes ayant atteint le stade de l'Âme Naissante pouvaient la percevoir. Quiconque était en dessous ne s'en rendrait absolument pas compte.
 
-Fort de son expérience dans la Mer des Démons, Wang Lin avait appris qu'outre les commerces publics, il existait également des échanges secrets au sein des grandes cités.
+Fort de son expérience dans la Mer Xiu Mo, Wang Lin avait appris qu'outre les commerces publics, il existait également des échanges secrets au sein des grandes cités.
 
 Ces échanges exigeaient souvent un niveau de culture minimum pour y accéder.
 
@@ -204,7 +204,7 @@ Après avoir inspecté les sacs avec son sens divin, il en sortit un jeton porta
 
 Nombreux furent ceux qui virent le combat, y compris des cultivateurs de l'Âme Naissante venus pour l'échange. La manière dont Wang Lin avait éliminé le chauve avec une telle efficacité laissa une empreinte indélébile dans leurs esprits, particulièrement le drapeau de restriction et la bête ayant dévoré l'Âme Naissante. Même avec leur expérience, ils ne purent identifier la créature.
 
-Même les trois gardiens n'osèrent pas confronter Wang Lin. Dans la Mer des Démons, la force était la seule loi. Ils devaient également rapporter l'incident au seigneur de la ville de Lian Mo.
+Même les trois gardiens n'osèrent pas confronter Wang Lin. Dans la Mer Xiu Mo, la force était la seule loi. Ils devaient également rapporter l'incident au seigneur de la ville de Lian Mo.
 
 Cependant, le seigneur de la ville étant presque toujours en méditation fermée, l'affaire risquait d'être classée ainsi. Après tout, la puissance du jeune homme semblait égaler celle d'un stade intermédiaire ou avancé de l'Âme Naissante.
 

@@ -28,7 +28,7 @@ Il perça l'obscurité en flammes et franchit la distance des 1 000 pieds. Il p�
 
 Au moment où il entra dans la plaie, Wang Lin ignora son corps en feu et agita désespérément la main. De grandes quantités de cristaux de sang du dragon disparurent pour être collectées dans son espace de stockage.
 
-Son visage était empreint d'extase, mais aussi de regret. Il ne s'attendait pas à obtenir ici le sang de cœur d'un Dieu Ancien. Après tout, selon sa compréhension de la Terre du Dieu Ancien, tout le sang de cœur avait été pris par Tuo Sen.
+Son visage était empreint d'extase, mais aussi de regret. Il ne s'attendait pas à obtenir ici le sang de cœur d'un Dieu Ancien. Après tout, selon sa compréhension de la Terre Gu Shen, tout le sang de cœur avait été pris par Tuo Sen.
 
 Et il était bien trop difficile de l'arracher à Tuo Sen.
 
@@ -78,11 +78,11 @@ Lorsque Maître Yan Leizi croisa le regard de Tuo Sen, son esprit fut ébranlé.
 
 « Déchets! »
 
-Le regard de Tuo Sen était empreint de mépris. Lorsqu'il se posa sur les huit rois de la Secte des Cadavres, ce dédain devint plus virulent encore.
+Le regard de Tuo Sen était empreint de mépris. Lorsqu'il se posa sur les huit rois de la Secte Shi Yin, ce dédain devint plus virulent encore.
 
 « Au moins, les déchets sont des êtres humains. Vous, vous êtes pires que des déchets! »
 
-Les huit rois possédaient un statut très élevé au sein de la Secte des Cadavres. Cependant, en cet instant, sous le regard de Tuo Sen, ils étaient dans une situation plus pitoyable encore que celle de Maître Yan Leizi. Leurs visages étaient livides et ils reculaient sans cesse. Ce regard semblait presque palpable, au point de leur donner l'impression que leur âme allait se disperser.
+Les huit rois possédaient un statut très élevé au sein de la Secte Shi Yin. Cependant, en cet instant, sous le regard de Tuo Sen, ils étaient dans une situation plus pitoyable encore que celle de Maître Yan Leizi. Leurs visages étaient livides et ils reculaient sans cesse. Ce regard semblait presque palpable, au point de leur donner l'impression que leur âme allait se disperser.
 
 Ils avaient l'impression que si cet homme entrait en colère, même les cieux devraient s'incliner!
 

@@ -170,36 +170,36 @@ Après un certain temps de raffinage, la sphère rétrécit continuellement. Fin
 
 D'un mouvement du bras droit, il fit redescendre le tendon de dragon. Après l'avoir observé un moment, il le rangea. Il leva les yeux vers la paroi de glace bleue qui le surplombait. La Flamme des Enfers bleue apparut dans sa main et il s'élança vers le haut.
 
-Il jaillit tel un bambou qu'on fend, remontant de plusieurs milliers de mètres sous terre. Sa vitesse était telle que, combinée à la puissance destructrice de la Flamme des Enfers, elle fit trembler toute la Vallée des Cadavres. Les cultivateurs présents dans la vallée virent leurs expressions changer radicalement; ils quittèrent précipitamment les lieux alors que les secousses s'intensifiaient.
+Il jaillit tel un bambou qu'on fend, remontant de plusieurs milliers de mètres sous terre. Sa vitesse était telle que, combinée à la puissance destructrice de la Flamme des Enfers, elle fit trembler toute la Vallée Shi. Les cultivateurs présents dans la vallée virent leurs expressions changer radicalement; ils quittèrent précipitamment les lieux alors que les secousses s'intensifiaient.
 
 Quelques cultivateurs à la vue perçante virent une ombre noire jaillir de la quatorzième vallée pour charger vers le ciel avant de disparaître dans la brume.
 
-Les observateurs restèrent fixant la quatorzième vallée avec confusion pendant un long moment. Suite à cet événement, diverses rumeurs commencèrent à circuler. Finalement, on raconta qu'un cadavre dormait dans la Vallée des Cadavres depuis dix mille ans et qu'il s'était soudainement réveillé pour surgir des profondeurs. La chose qui s'était envolée n'était autre qu'un cadavre cultivateur.
+Les observateurs restèrent fixant la quatorzième vallée avec confusion pendant un long moment. Suite à cet événement, diverses rumeurs commencèrent à circuler. Finalement, on raconta qu'un cadavre dormait dans la Vallée Shi depuis dix mille ans et qu'il s'était soudainement réveillé pour surgir des profondeurs. La chose qui s'était envolée n'était autre qu'un cadavre cultivateur.
 
-Une fois sorti, Wang Lin ne s'arrêta pas et continua sa course vers le sud. Selon les informations de Sang Muya, la ville de Nan Dou se trouvait à environ 150 000 kilomètres au sud de la Vallée des Cadavres.
+Une fois sorti, Wang Lin ne s'arrêta pas et continua sa course vers le sud. Selon les informations de Sang Muya, la ville de Nan Dou se trouvait à environ 150 000 kilomètres au sud de la Vallée Shi.
 
 Sachant qu'il avait déjà passé beaucoup de temps en raffinage, il ne voulait plus perdre une seconde. Il n'avait qu'un seul objectif: obtenir un fourneau à pilules pour achever la Pilule du Ciel Lointain.
 
-Après deux jours et deux nuits de vol, une ville apparut à l'horizon. Elle était immense, si vaste qu'au premier regard, on ne pouvait en percevoir les limites. C'était la ville de Nan Dou, l'une des 998 cités de la Mer des Démons.
+Après deux jours et deux nuits de vol, une ville apparut à l'horizon. Elle était immense, si vaste qu'au premier regard, on ne pouvait en percevoir les limites. C'était la ville de Nan Dou, l'une des 998 cités de la Mer Xiu Mo.
 
 La ville portait ce nom en hommage à son seigneur, un cultivateur de l'Âme Naissante entouré de nombreux experts. On pouvait dire qu'il était le souverain de cette région.
 
 En règle générale, celui qui possédait une cité jouissait d'un statut prestigieux et les seigneurs urbains étaient célèbres. Sous leur autorité régnaient diverses sectes, bien qu'aucune ne puisse égaler la puissance du seigneur.
 
-Heureusement, le seigneur de Nan Dou avait disparu il y a 500 ans, laissant la région sans direction, tel un dragon sans tête. C'est ce vide qui permit à de grandes organisations, comme la Secte de la Lutte contre le Mal, de s'y implanter.
+Heureusement, le seigneur de Nan Dou avait disparu il y a 500 ans, laissant la région sans direction, tel un dragon sans tête. C'est ce vide qui permit à de grandes organisations, comme la Secte Dou Xie, de s'y implanter.
 
-Devenue une cité sans maître dans la Mer des Démons, Nan Dou était désormais gérée par quelques grandes sectes. Cependant, étant située à la lisière de la Mer des Démons, les ressources y étaient rares et l'absence de veines spirituelles faisait que les cultivateurs de l'Âme Naissante s'y rendaient rarement. En conséquence, dans un rayon de cinq cent mille kilomètres autour de Nan Dou, on ne trouvait aucun expert de l'Âme Naissante, mais une multitude de cultivateurs de la Formation du Noyau.
+Devenue une cité sans maître dans la Mer Xiu Mo, Nan Dou était désormais gérée par quelques grandes sectes. Cependant, étant située à la lisière de la Mer Xiu Mo, les ressources y étaient rares et l'absence de veines spirituelles faisait que les cultivateurs de l'Âme Naissante s'y rendaient rarement. En conséquence, dans un rayon de cinq cent mille kilomètres autour de Nan Dou, on ne trouvait aucun expert de l'Âme Naissante, mais une multitude de cultivateurs de la Formation du Noyau.
 
 On disait que si un cultivateur de l'Âme Naissante apparaissait ici, il deviendrait instantanément le nouveau seigneur de la ville.
 
 Certes, certains avaient tenté de prendre le contrôle, mais aucun n'avait pu supporter la pénurie d'énergie spirituelle et l'aridité des terres; tous avaient fini par renoncer.
 
-À un certain point, les cultivateurs de l'Âme Naissante cessèrent tout simplement de venir. Après tout, avec près de 1000 cités dans la Mer des Démons, personne n'avait de raison de s'attarder dans ce trou perdu de Nan Dou.
+À un certain point, les cultivateurs de l'Âme Naissante cessèrent tout simplement de venir. Après tout, avec près de 1000 cités dans la Mer Xiu Mo, personne n'avait de raison de s'attarder dans ce trou perdu de Nan Dou.
 
-Actuellement, la gestion de la ville était partagée entre la Secte de la Punition Céleste, la Secte de l'Extinction de l'Âme et la Secte du Chemin Unique. Bien que la Secte de la Lutte contre le Mal possédât une puissance suffisante pour prétendre au pouvoir, l'alliance des trois autres sectes l'empêchait de s'implanter durablement.
+Actuellement, la gestion de la ville était partagée entre la Secte Zhu Tian, la Secte Mie Hun et la Secte Tian Yi Dao. Bien que la Secte Dou Xie possédât une puissance suffisante pour prétendre au pouvoir, l'alliance des trois autres sectes l'empêchait de s'implanter durablement.
 
-Après tout, diviser le contrôle d'une cité en trois était bien plus simple que de le diviser en quatre. De plus, personne ne souhaitait voir la Secte de la Lutte contre le Mal dévorer les autres sectes à mesure qu'elle grandissait, et un accord avait donc été trouvé.
+Après tout, diviser le contrôle d'une cité en trois était bien plus simple que de le diviser en quatre. De plus, personne ne souhaitait voir la Secte Dou Xie dévorer les autres sectes à mesure qu'elle grandissait, et un accord avait donc été trouvé.
 
-Après avoir payé dix pierres spirituelles de basse qualité pour obtenir son jeton d'entrée, Wang Lin traversa rapidement les rues en direction du Pavillon de Raffinage des Trésors, situé à l'est.
+Après avoir payé dix pierres spirituelles de basse qualité pour obtenir son jeton d'entrée, Wang Lin traversa rapidement les rues en direction du Pavillon Lian Qi, situé à l'est.
 
 Le pavillon comptait trois étages, les articles de chaque niveau étant plusieurs fois plus onéreux que ceux du précédent. À cet instant, sept ou huit cultivateurs marchandaient avec les employés au premier niveau.

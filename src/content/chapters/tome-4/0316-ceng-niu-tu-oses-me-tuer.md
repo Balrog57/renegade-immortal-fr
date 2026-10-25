@@ -10,7 +10,7 @@ Une robe blanche plus blanche que la neige.
 Une chevelure telle un rideau de soie.
 Un soupçon de parfum qui enchanterait les cœurs.
 
-Dès l'apparition du cadavre féminin, même le Grand Ancien de la Secte des Cadavres ne put s'empêcher de jeter un second regard. Ses paroles moqueuses s'éteignirent; il ne restait plus en lui que l'émerveillement.
+Dès l'apparition du cadavre féminin, même le Grand Ancien de la Secte Shi Yin ne put s'empêcher de jeter un second regard. Ses paroles moqueuses s'éteignirent; il ne restait plus en lui que l'émerveillement.
 
 Hongdie était belle, mais comparée à ce cadavre, elle n'en était guère à la hauteur.
 
@@ -22,13 +22,13 @@ Il prit une profonde inspiration. En regardant autour de lui, il vit que Chi Hu 
 
 Même Hongdie afficha une expression de confusion, mais elle restait une femme et son regard s'éclaircit rapidement. Les yeux de Wang Lin étincelèrent et se verrouillèrent sur Hongdie.
 
-Le vieil homme de la Secte des Cadavres détourna les yeux. « Cette fille a dû être un personnage important du Royaume Céleste lorsqu'elle était vivante. Même moi, j'ai été fasciné par elle. »
+Le vieil homme de la Secte Shi Yin détourna les yeux. « Cette fille a dû être un personnage important du Royaume Céleste lorsqu'elle était vivante. Même moi, j'ai été fasciné par elle. »
 
 « Ting Er... » Zhou Yi laissa échapper une expression d'obsession et se précipita en avant. Le vieil homme laissa échapper un grognement tandis que ses mains traçaient des sceaux. Il frappa ensuite sa propre poitrine et expulsa un nuage de gaz violet.
 
 Ce gaz se mua en chaînes qui entourèrent Zhou Yi telle une prison céleste.
 
-« Zhou Yi, j'utilise le trésor de la Secte des Cadavres, conçu pour sceller les âmes originelles, afin de m'emparer du cadavre de cette fille. Il n'y a aucun moyen pour toi de t'échapper! » Le corps du vieil homme recula tandis que le jeune homme, qui lui ressemblait étrangement, lança le cadavre féminin en l'air. Le vieil homme l'attrapa, puis le jeune homme se changea en fumée et s'engouffra dans le front du vieillard.
+« Zhou Yi, j'utilise le trésor de la Secte Shi Yin, conçu pour sceller les âmes originelles, afin de m'emparer du cadavre de cette fille. Il n'y a aucun moyen pour toi de t'échapper! » Le corps du vieil homme recula tandis que le jeune homme, qui lui ressemblait étrangement, lança le cadavre féminin en l'air. Le vieil homme l'attrapa, puis le jeune homme se changea en fumée et s'engouffra dans le front du vieillard.
 
 Le vieil homme continua de reculer et, en un clin d'œil, atteignit le cercueil avant de s'élancer vers le ciel, le cadavre dans les bras.
 
@@ -44,7 +44,7 @@ Bang! Bang!
 
 « Rends-moi Ting Er! »
 
-« Tu es vraiment fou! Zhou Yi, si tu réintègres ton corps maintenant, tu peux encore te sauver. Si tu restes sans corps, tu mourras dans le Royaume Céleste! » Le vieil homme de la Secte des Cadavres, voyant l'éclat dans les yeux de Zhou Yi, sentit son propre cœur trembler et accéléra sa course vers le tunnel supérieur.
+« Tu es vraiment fou! Zhou Yi, si tu réintègres ton corps maintenant, tu peux encore te sauver. Si tu restes sans corps, tu mourras dans le Royaume Céleste! » Le vieil homme de la Secte Shi Yin, voyant l'éclat dans les yeux de Zhou Yi, sentit son propre cœur trembler et accéléra sa course vers le tunnel supérieur.
 
 Voyant que le vieillard allait s'engouffrer dans le tunnel pour s'enfuir, les yeux de Zhou Yi semblèrent saigner. Il avait déjà tout oublié. Dans ce monde, il ne restait plus que ce cadavre qui s'éloignait de lui, sa Ting Er!
 
@@ -72,7 +72,7 @@ Le visage du vieil homme changea radicalement. À cet instant, il pointa son fro
 
 « Rends-moi Ting Er! » Le feu de Zhou Yi brûla plus intensément encore. La folie dans son regard s'accentua; il ressemblait à une bête féroce.
 
-« Fou! » Le vieil homme de la Secte des Cadavres sentit son crâne engourdi et lâcha le cadavre féminin. Il refusait de sacrifier sa vie pour un simple corps.
+« Fou! » Le vieil homme de la Secte Shi Yin sentit son crâne engourdi et lâcha le cadavre féminin. Il refusait de sacrifier sa vie pour un simple corps.
 
 Zhou Yi rattrapa le cadavre. Ses yeux, noyés d'émotion, laissèrent échapper un sourire de satisfaction.
 

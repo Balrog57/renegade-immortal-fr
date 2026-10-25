@@ -40,11 +40,11 @@ En un instant, son corps devint flou et il disparut sans laisser de trace!
 
 Déformation Spatiale!
 
-C'était la première fois que Wang Lin utilisait la Déformation Spatiale dans la Mer des Nuages! La Mer des Nuages était recouverte d'un brouillard et enveloppée d'une force mystérieuse, rendant la Déformation Spatiale presque inefficace!
+C'était la première fois que Wang Lin utilisait la Déformation Spatiale dans la Mer Yun! La Mer Yun était recouverte d'un brouillard et enveloppée d'une force mystérieuse, rendant la Déformation Spatiale presque inefficace!
 
-C'est pour cette raison que, bien que la Déformation Spatiale fût déjà considérée comme rare parmi les puissants cultivateurs d'autres systèmes stellaires, elle l'était encore plus dans la Mer des Nuages.
+C'est pour cette raison que, bien que la Déformation Spatiale fût déjà considérée comme rare parmi les puissants cultivateurs d'autres systèmes stellaires, elle l'était encore plus dans la Mer Yun.
 
-L'environnement détermine la vision, l'état d'esprit et la direction des sorts. Si les trois autres grands systèmes stellaires étaient également remplis de brouillard stellaire, la Déformation Spatiale n'existerait tout simplement pas. Après tout, elle était inutile pour les habitants de la Mer des Nuages.
+L'environnement détermine la vision, l'état d'esprit et la direction des sorts. Si les trois autres grands systèmes stellaires étaient également remplis de brouillard stellaire, la Déformation Spatiale n'existerait tout simplement pas. Après tout, elle était inutile pour les habitants de la Mer Yun.
 
 Même en atteignant l'illumination, cela ne servirait à rien, faute d'endroit où l'utiliser. Même dans le Royaume Céleste du Vent, ce sort était sérieusement entravé.
 
@@ -52,7 +52,7 @@ Pourtant, la Déformation Spatiale était le seul moyen de survivre dans le Roya
 
 En vérité, la méthode la plus sûre pour utiliser la Déformation Spatiale consistait à penser à un endroit où l'on s'était déjà rendu, pour ensuite fusionner avec le monde.
 
-La pensée de Wang Lin était d'une précision absolue. Ce n'était pas que les gens n'avaient jamais atteint les profondeurs du Royaume Céleste du Vent, mais c'est qu'ils devaient tous utiliser la Déformation Spatiale avec une prudence extrême. La simple explication était que trop peu de personnes dans la Mer des Nuages connaissaient ce sort, et encore moins étaient venues ici.
+La pensée de Wang Lin était d'une précision absolue. Ce n'était pas que les gens n'avaient jamais atteint les profondeurs du Royaume Céleste du Vent, mais c'est qu'ils devaient tous utiliser la Déformation Spatiale avec une prudence extrême. La simple explication était que trop peu de personnes dans la Mer Yun connaissaient ce sort, et encore moins étaient venues ici.
 
 À cet instant, Wang Lin songeait à la fissure qui lui permettrait de quitter le Royaume Céleste du Vent. L'énergie originelle commença à s'accumuler, et le rugissement assourdissant de la horde de moustiques s'estompa peu à peu à ses oreilles.
 
@@ -68,17 +68,17 @@ Au moment où il franchit la limite du Royaume Céleste du Vent, les yeux du vie
 
 « Cette fois, je vais t'aider... La prochaine fois, j'aurai besoin que tu m'aides... »
 
-Wang Lin sortit de la fissure et pénétra dans la région de rang 8. Il contempla le brouillard familier avec un certain inconfort. Après tout, dans le Royaume Céleste du Vent, il n'y avait pas de brouillard, ce qui lui permettait de voir à perte de vue. Dans la Mer des Nuages, le brouillard stellaire rendait la vue difficile.
+Wang Lin sortit de la fissure et pénétra dans la région de rang 8. Il contempla le brouillard familier avec un certain inconfort. Après tout, dans le Royaume Céleste du Vent, il n'y avait pas de brouillard, ce qui lui permettait de voir à perte de vue. Dans la Mer Yun, le brouillard stellaire rendait la vue difficile.
 
-« Secte Éternelle... » Wang Lin s'élança dans la Mer des Nuages et, suivant la direction que lui indiquaient les nombreux jades dont il avait mémorisé le contenu, fonça droit vers la Secte Éternelle!
+« Secte Éternelle... » Wang Lin s'élança dans la Mer Yun et, suivant la direction que lui indiquaient les nombreux jades dont il avait mémorisé le contenu, fonça droit vers la Secte Éternelle!
 
 « J’ai obtenu une grande quantité de bêtes moustiques lors de ce voyage dans le Royaume Céleste du Vent, bien que cela ne suffise pas encore. Cependant, si mes blessures guérissent et que je peux compter sur la coopération des bêtes moustiques, je ne serai pas dépourvu de moyens de fuite face à Tuo Sen! J’ai juste besoin de plus de temps pour permettre au roi des moustiques d'évoluer, puis je pourrai obtenir encore plus de bêtes! »
 
-Dans la Secte Éternelle de rang 8, la compétition régionale de rang 5 se déroulait sur une plateforme qui occupait près de la moitié d'une planète. La Secte du Dao Pourpre dominait la compétition, et presque personne ne pouvait rivaliser avec eux.
+Dans la Secte Éternelle de rang 8, la compétition régionale de rang 5 se déroulait sur une plateforme qui occupait près de la moitié d'une planète. La Secte Zi Dao dominait la compétition, et presque personne ne pouvait rivaliser avec eux.
 
 Des grondements résonnèrent sur la plateforme, attirant l'attention de près de 100 000 cultivateurs environnants. Feng Hai et les autres membres de la Secte Éternelle étaient assis dans la partie la plus intérieure des gradins. À ses côtés se trouvaient le vieil homme aux cheveux roux et quelques puissants cultivateurs de la Secte Éternelle.
 
-Au sommet des gradins, un vieil homme vêtu de blanc pointait du doigt un disciple du Dao Pourpre qui combattait un disciple d'une autre secte de rang 5, tout en riant. « L’ascension de la Secte du Dao Pourpre doit beaucoup à Lu Yuncong! Camarade cultivateur Wang, cette fois, la Secte Divine ne doit pas emmener Lu Yuncong. »
+Au sommet des gradins, un vieil homme vêtu de blanc pointait du doigt un disciple du Dao Pourpre qui combattait un disciple d'une autre secte de rang 5, tout en riant. « L’ascension de la Secte Zi Dao doit beaucoup à Lu Yuncong! Camarade cultivateur Wang, cette fois, la Secte Divine ne doit pas emmener Lu Yuncong. »
 
 Le vieil homme en blanc était gracieux et rayonnait de vitalité. Ses yeux brillaient à chaque mouvement de paupières. Son niveau de culture était élevé; il révélait sans hésitation l'aura d'un cultivateur Briseur du Nirvana.
 
@@ -94,13 +94,13 @@ Cette femme souriait, le regard brillant. Sa voix était aussi mélodieuse qu'un
 
 Le vieil homme en blanc sourit et ne revint pas sur le sujet, mais ils continuèrent de discuter. Il jetait parfois un regard vers la femme indifférente, sans parvenir à deviner son identité.
 
-À cet instant, sur la plateforme, Lu Yuncong sortit de la zone de la Secte du Dao Pourpre. En tant que maître de la secte, il devait lui aussi participer. Sa robe pourpre lui conférait une allure éthérée et majestueuse; il ressemblait à une montagne inébranlable!
+À cet instant, sur la plateforme, Lu Yuncong sortit de la zone de la Secte Zi Dao. En tant que maître de la secte, il devait lui aussi participer. Sa robe pourpre lui conférait une allure éthérée et majestueuse; il ressemblait à une montagne inébranlable!
 
 De l'autre côté se trouvait le maître d'une autre secte de rang 5. C'était un vieil homme vêtu de noir, dont l'expression était extrêmement disgracieuse.
 
 Wang Shanshan regarda Lu Yuncong sur la plateforme et dit doucement à la femme assise près d'elle: « Ce Lu Yuncong est effectivement talentueux et digne des éloges du Professeur. Bien que son niveau de culture ne soit pas très élevé, il semble fusionner avec le monde; sa compréhension du Dao doit donc être très profonde. Qu'en pense Grande Sœur Mu? »
 
-Mu Bingmei n'avait aucun intérêt pour la compétition de la Mer des Nuages. Elle n'était venue que suite à la proposition de Wang Shanshan. Elle observa Lu Yuncong et répondit calmement: « On peut le considérer comme une élite. »
+Mu Bingmei n'avait aucun intérêt pour la compétition de la Mer Yun. Elle n'était venue que suite à la proposition de Wang Shanshan. Elle observa Lu Yuncong et répondit calmement: « On peut le considérer comme une élite. »
 
 Elle ignorait pourquoi, mais en voyant Lu Yuncong, l'image d'une autre personne surgit dans son esprit.
 

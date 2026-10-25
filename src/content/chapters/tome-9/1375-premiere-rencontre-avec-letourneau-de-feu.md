@@ -6,31 +6,31 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1375 - First Encounter With Fire Sparrow
 slug: première-rencontre-avec-letourneau-de-feu
 ---
-« Maître, la planète de culture d'un ancien du Conseil des Déchus la plus proche est la planète principale du neuvième ancien, le Clan du Dragon Blindé. Il y a de nombreux cultivateurs là-bas et c'est très chaotique », dit l'ancien du Clan du Scorpion Noir en ouvrant la voie.
+« Maître, la planète de culture d'un ancien du Conseil des Déchus la plus proche est la planète principale du neuvième ancien, le Clan Long Jia. Il y a de nombreux cultivateurs là-bas et c'est très chaotique », dit l'ancien du Clan An Xie en ouvrant la voie.
 
 Tout au long du voyage, Wang Lin parla peu tandis que tous deux survolaient rapidement le domaine stellaire.
 
 L'esprit de Wang Lin était encore hanté par ce qu'il avait aperçu à l'intérieur de la marionnette. Il semblait avoir acquis une certaine compréhension, mais un voile de brouillard l'empêchait d'y voir clair.
 
-« Bien que le Clan du Dragon Blindé soit également un petit clan, il compte plusieurs milliers de membres. Le chef du clan, le neuvième ancien, est au quatrième niveau du Fléau Céleste, et lorsqu'il utilise son sort d'Armure de Dragon, aucun cultivateur ordinaire ne peut briser sa protection. Le neuvième ancien est également célèbre au sein du Conseil des Déchus; un petit clan comme le mien n'oserait jamais leur manquer de respect ni les provoquer. »
+« Bien que le Clan Long Jia soit également un petit clan, il compte plusieurs milliers de membres. Le chef du clan, le neuvième ancien, est au quatrième niveau du Fléau Céleste, et lorsqu'il utilise son sort d'Armure de Dragon, aucun cultivateur ordinaire ne peut briser sa protection. Le neuvième ancien est également célèbre au sein du Conseil des Déchus; un petit clan comme le mien n'oserait jamais leur manquer de respect ni les provoquer. »
 
-L'ancien du Scorpion Noir rapporta à Wang Lin tout ce qu'il savait sur le Clan du Dragon Blindé.
+L'ancien du Scorpion Noir rapporta à Wang Lin tout ce qu'il savait sur le Clan Long Jia.
 
-Après un long moment, Wang Lin demanda lentement: « La planète principale du Clan du Dragon Blindé vend-elle des Cristaux de Mutation de Feu Déchaîné? »
+Après un long moment, Wang Lin demanda lentement: « La planète principale du Clan Long Jia vend-elle des Cristaux de Mutation de Feu Déchaîné? »
 
-L'ancien du Scorpion Noir répondit promptement: « Il y en a, mais le Clan des Moineaux de Feu les collecte frénétiquement. Chaque fois qu'un cristal apparaît, ils sont prêts à l'acheter à n'importe quel prix, ce qui rend toute concurrence difficile. Pour acheter les cristaux et les marionnettes, nous devrons nous rendre au pavillon commercial sur la planète principale du Clan du Dragon Blindé. »
+L'ancien du Scorpion Noir répondit promptement: « Il y en a, mais le Clan Huo Que les collecte frénétiquement. Chaque fois qu'un cristal apparaît, ils sont prêts à l'acheter à n'importe quel prix, ce qui rend toute concurrence difficile. Pour acheter les cristaux et les marionnettes, nous devrons nous rendre au pavillon commercial sur la planète principale du Clan Long Jia. »
 
-Tous deux étaient de puissants cultivateurs volant à pleine vitesse. Il ne leur fallut que quelques heures pour traverser le domaine stellaire et s'éloigner du Clan du Scorpion Noir. Devant Wang Lin se dressait une planète de culture verdoyante.
+Tous deux étaient de puissants cultivateurs volant à pleine vitesse. Il ne leur fallut que quelques heures pour traverser le domaine stellaire et s'éloigner du Clan An Xie. Devant Wang Lin se dressait une planète de culture verdoyante.
 
-Cette planète était recouverte de verdure et dégageait une puissante force vitale. Elle était également imprégnée d'énergie spirituelle, bien supérieure à celle du Clan du Scorpion Noir.
+Cette planète était recouverte de verdure et dégageait une puissante force vitale. Elle était également imprégnée d'énergie spirituelle, bien supérieure à celle du Clan An Xie.
 
-Au moment où ils approchèrent, trois rayons de lumière foncèrent vers eux. L'un d'eux transportait un vieil homme vêtu d'une chemise verte. Il sourit et joignit les mains: « L'Ancien avait prédit la venue du patriarche du Clan du Scorpion Noir et nous a demandé d'attendre. Patriarche du Scorpion Noir, veuillez nous suivre. »
+Au moment où ils approchèrent, trois rayons de lumière foncèrent vers eux. L'un d'eux transportait un vieil homme vêtu d'une chemise verte. Il sourit et joignit les mains: « L'Ancien avait prédit la venue du patriarche du Clan An Xie et nous a demandé d'attendre. Patriarche du Scorpion Noir, veuillez nous suivre. »
 
 Les deux personnes derrière le vieil homme saluèrent avec une politesse extrême.
 
-Le Clan du Scorpion Noir faisait toujours partie des 372 clans. Bien qu'il ne soit pas un Ancien Déchu, son patriarche n'était pas quelqu'un que les membres ordinaires pouvaient traiter avec désinvolture. Le Patriarche du Scorpion Noir sourit et hocha la tête. Il laissa Wang Lin passer en premier avant de le suivre. Les trois représentants du Clan du Dragon Blindé les guidèrent vers la planète.
+Le Clan An Xie faisait toujours partie des 372 clans. Bien qu'il ne soit pas un Ancien Déchu, son patriarche n'était pas quelqu'un que les membres ordinaires pouvaient traiter avec désinvolture. Le Patriarche du Scorpion Noir sourit et hocha la tête. Il laissa Wang Lin passer en premier avant de le suivre. Les trois représentants du Clan Long Jia les guidèrent vers la planète.
 
-En observant le comportement du Patriarche du Scorpion Noir, les trois membres du Clan du Dragon Blindé furent stupéfaits. Les yeux du vieil homme s'illuminèrent et il scruta attentivement Wang Lin. Bien qu'il n'ait rien remarqué de particulier, il commença à redoubler de vigilance.
+En observant le comportement du Patriarche du Scorpion Noir, les trois membres du Clan Long Jia furent stupéfaits. Les yeux du vieil homme s'illuminèrent et il scruta attentivement Wang Lin. Bien qu'il n'ait rien remarqué de particulier, il commença à redoubler de vigilance.
 
 « Pour que le Patriarche du Scorpion Noir se montre si poli, cet individu ne doit pas être sous-estimé... »
 
@@ -54,11 +54,11 @@ Pour qu'un cultivateur du troisième pas se trouve ici à ce moment précis, il 
 
 « Le Conseil Souverain est très rapide... Cinquième niveau du Fléau Céleste... » Une étincelle d'intention de combat brilla dans les yeux de Wang Lin alors qu'il esquissait un sourire narquois avant de traverser l'atmosphère de la planète.
 
-Dans l'espace, au-delà de la planète du Clan du Dragon Blindé, Maître Simo détourna le regard et sourit. Il ne s'attendait pas à rencontrer sa cible dès son arrivée. L'apparence et l'aura de sa proie ayant déjà été enregistrées par le Grand Maître Yun Luo, il avait reconnu Wang Lin instantanément.
+Dans l'espace, au-delà de la planète du Clan Long Jia, Maître Simo détourna le regard et sourit. Il ne s'attendait pas à rencontrer sa cible dès son arrivée. L'apparence et l'aura de sa proie ayant déjà été enregistrées par le Grand Maître Yun Luo, il avait reconnu Wang Lin instantanément.
 
 « Malheureusement, je ne peux pas agir ici, cela provoquerait trop de remous. Il vaudrait mieux ne pas attirer l'attention du Grand Empereur... Cependant, s'il est sur une planète, il lui sera difficile de s'échapper! Je n'ai plus qu'à trouver un prétexte pour le capturer! »
 
-Maître Simo sourit, les yeux brillants, tandis qu'il regardait au loin. Une silhouette apparut, accompagnée d'un rire sonore. C'était un vieil homme aux cheveux blancs, vêtu d'une robe bleue, qui s'élevait de la planète du Clan du Dragon Blindé.
+Maître Simo sourit, les yeux brillants, tandis qu'il regardait au loin. Une silhouette apparut, accompagnée d'un rire sonore. C'était un vieil homme aux cheveux blancs, vêtu d'une robe bleue, qui s'élevait de la planète du Clan Long Jia.
 
 « Senior Simo, cela fait bien des années que nous ne nous sommes pas vus, et vous avez toujours autant de prestance! » rit le vieil homme tandis que l'énergie originelle enveloppait son corps. Il dégageait l'aura d'un cultivateur au quatrième niveau du Fléau Céleste.
 
@@ -68,13 +68,13 @@ Maître Simo rit à son tour et joignit les mains: « Camarade cultivateur Sun, 
 
 Les deux discutèrent tout en s'approchant de la planète, leurs silhouettes s'estompant peu à peu.
 
-Une fois que Wang Lin et le Patriarche du Scorpion Noir eurent pénétré sur la planète, les trois membres du Clan du Dragon Blindé se retirèrent respectueusement. Le Patriarche du Scorpion Noir conduisit ensuite Wang Lin vers une ville située dans la partie est de la planète.
+Une fois que Wang Lin et le Patriarche du Scorpion Noir eurent pénétré sur la planète, les trois membres du Clan Long Jia se retirèrent respectueusement. Le Patriarche du Scorpion Noir conduisit ensuite Wang Lin vers une ville située dans la partie est de la planète.
 
-Le patriarche murmura d'une voix basse: « Maître, si vous souhaitez acheter des marionnettes ou des Cristaux de Mutation de Feu Déchaîné, vous devrez vous rendre dans la ville de l'est. Un pavillon contrôlé par le Clan du Dragon Blindé s'y trouve. À moins d'une grande vente aux enchères, c'est là que je me rends habituellement. »
+Le patriarche murmura d'une voix basse: « Maître, si vous souhaitez acheter des marionnettes ou des Cristaux de Mutation de Feu Déchaîné, vous devrez vous rendre dans la ville de l'est. Un pavillon contrôlé par le Clan Long Jia s'y trouve. À moins d'une grande vente aux enchères, c'est là que je me rends habituellement. »
 
 Wang Lin hocha la tête, mais une intention meurtrière germa dans son cœur. Il était venu initialement pour acquérir des marionnettes de haut rang afin de les étudier, et s'il trouvait des Cristaux de Mutation de Feu Déchaîné, il en prendrait également.
 
-Ces cristaux pourraient l'aider lors de son quatrième éveil. En absorber une grande quantité lui serait extrêmement bénéfique. De plus, obtenir ces cristaux était lié à la manière dont il allait s'emparer de l'essence du Clan des Moineaux de Feu.
+Ces cristaux pourraient l'aider lors de son quatrième éveil. En absorber une grande quantité lui serait extrêmement bénéfique. De plus, obtenir ces cristaux était lié à la manière dont il allait s'emparer de l'essence du Clan Huo Que.
 
 Cependant, après avoir aperçu Maître Simo, Wang Lin changea d'avis. Puisque l'adversaire le traquait jusqu'ici, la fuite serait difficile. Mais Wang Lin n'avait aucune intention de fuir; il prévoyait de combattre ici même!
 

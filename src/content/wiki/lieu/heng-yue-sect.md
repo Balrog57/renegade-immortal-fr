@@ -21,7 +21,7 @@ Puissante force qui a unifié le Pays de Zhao 500 ans avant le début de l'histo
 - **Statut:** Tombée (première fois) / Dissoute (actuellement)
 - **Affiliation:** Secte Xuan Dao
 - **Système stellaire:** Alliance Star System
-- **Monde:** Monde des Cavernes de Wang Lin (Wang Lin's Cave World)
+- **Monde:** Monde Dong Fu de Wang Lin (Wang Lin's Cave World)
 - **Royaume:** Sealed Realm
 - **Planète:** Planète Suzaku
 - **Continent:** Zhou Wu

@@ -35,13 +35,13 @@ Il convient de noter que l'un des vieillards, vêtu d'une robe jaune, dégageait
 
 « Depuis que le Compagnon Cultivateur Wang Lin m'a cédé la position de Zhu Quezi, j'ai juré de vivre et de mourir avec la planète Suzaku. Aujourd'hui, l'ennemi est devant nous. Même si je dois être détruit, je ne reculerai pas d'un seul pas! »
 
-Deux cultivateurs Ascendants se tenaient derrière Zhou Wutai. C'étaient deux vieillards qui, si Wang Lin avait été présent, aurait pu les reconnaître. Les deux laissèrent échapper un soupir, se regardèrent et affichèrent des regards fermes. Il n'y avait aucune issue. Ce n'était pas une simple guerre, mais une bataille entre deux systèmes stellaires! Ils l'avaient appris après avoir reçu les informations de l'Alliance de la Culture. Heureusement, ils s'étaient préparés, sans quoi ils seraient sans aucun doute morts.
+Deux cultivateurs Ascendants se tenaient derrière Zhou Wutai. C'étaient deux vieillards qui, si Wang Lin avait été présent, aurait pu les reconnaître. Les deux laissèrent échapper un soupir, se regardèrent et affichèrent des regards fermes. Il n'y avait aucune issue. Ce n'était pas une simple guerre, mais une bataille entre deux systèmes stellaires! Ils l'avaient appris après avoir reçu les informations de l'Alliance Xiu Zhen. Heureusement, ils s'étaient préparés, sans quoi ils seraient sans aucun doute morts.
 
-De l'autre côté de la planète Suzaku, Yun Quezi ouvrit les yeux après des centaines d'années de culture en ermitage. Il paraissait beaucoup plus âgé et la rune entre ses sourcils scintillait. Il se leva, fit un pas en avant, puis apparut dans les airs pour scruter l'horizon. Le Clan des Immortels Délaissés s'était rassemblé un à un derrière lui, les traits extrêmement graves.
+De l'autre côté de la planète Suzaku, Yun Quezi ouvrit les yeux après des centaines d'années de culture en ermitage. Il paraissait beaucoup plus âgé et la rune entre ses sourcils scintillait. Il se leva, fit un pas en avant, puis apparut dans les airs pour scruter l'horizon. Le Clan Xian Yi s'était rassemblé un à un derrière lui, les traits extrêmement graves.
 
 Simultanément, certains cultivateurs qui ne se souciaient guère des affaires mondaines sortirent de leurs retraites. Ils levèrent les yeux vers le ciel alors qu'une aura oppressante apparaissait. Cette pression était semblable à des montagnes s'effondrant du ciel; quiconque oserait résister serait écrasé!
 
-Dans la Secte du Ciel Nuageux, Tie Yan était déjà vieux et ses yeux étaient voilés. Son corps était entouré d'une aura de mort, sa durée de vie atteignant bientôt son terme. Il lutta pour se tenir debout sur la place de la Secte du Ciel Nuageux et regarda silencieusement le ciel.
+Dans la Secte Yun Tian, Tie Yan était déjà vieux et ses yeux étaient voilés. Son corps était entouré d'une aura de mort, sa durée de vie atteignant bientôt son terme. Il lutta pour se tenir debout sur la place de la Secte Yun Tian et regarda silencieusement le ciel.
 
 À cet instant, tous les cultivateurs de la planète Suzaku levèrent les yeux. Les divers membres des sectes, du rang 5 au rang 3, observaient le ciel avec gravité. Les deux météores représentant une catastrophe imminente pour la planète Suzaku venaient de descendre! Ces deux météores n'étaient autres que les deux frères du Système Stellaire de Luotian!
 
@@ -51,11 +51,11 @@ Dès leur arrivée, les deux frères rirent de manière incontrôlée. Leur rire
 
 Instantanément, les puissances de la planète Suzaku — Yun Quezi, Zhou Wutai et les autres cultivateurs Ascendants — s'élancèrent rapidement dans les airs. Ils étaient prêts pour la guerre!
 
-Cependant, à cet instant précis, le cultivateur qui déployait son sens divin survola la Secte du Ciel Nuageux et fut frappé comme par la foudre. C'était comme si des centaines de milliers d'éclairs avaient explosé près de ses oreilles, le faisant vaciller. Son esprit trembla, ses yeux s'écarquillèrent et une expression d'incrédulité apparut sur son visage. Même la peur commença à se répandre follement dans tout son corps.
+Cependant, à cet instant précis, le cultivateur qui déployait son sens divin survola la Secte Yun Tian et fut frappé comme par la foudre. C'était comme si des centaines de milliers d'éclairs avaient explosé près de ses oreilles, le faisant vaciller. Son esprit trembla, ses yeux s'écarquillèrent et une expression d'incrédulité apparut sur son visage. Même la peur commença à se répandre follement dans tout son corps.
 
 « Ceci... ceci est... »
 
-Une immense statue se dressait à la porte de la Secte du Ciel Nuageux. C'était une statue de Wang Lin! Cette statue, d'un réalisme saisissant, reproduisait fidèlement l'apparence de Wang Lin. En particulier, le froid qui émanait de son regard, capable de transpercer les os!
+Une immense statue se dressait à la porte de la Secte Yun Tian. C'était une statue de Wang Lin! Cette statue, d'un réalisme saisissant, reproduisait fidèlement l'apparence de Wang Lin. En particulier, le froid qui émanait de son regard, capable de transpercer les os!
 
 Lorsque l'autre cultivateur de Luotian vit l'expression de son frère, il fut stupéfait. Son sens divin se déploya et se verrouilla sur la statue. Son corps trembla et la terreur qu'il manifesta fut dix fois, non, cent fois plus intense!
 
@@ -73,15 +73,15 @@ Le Junior Frère du Seigneur Céleste Qing Shui, un Céleste du Tonnerre, numér
 
 Quel que soit leur courage, ils n'oseraient jamais provoquer Xu Mu! Quant à savoir pourquoi une statue de Xu Mu se trouvait ici et faisait l'objet d'un tel culte, c'était une question qu'ils ne souhaitaient pas connaître. Le regret qui les rongeait était déjà monstrueux. S'ils l'avaient su, ils ne seraient jamais venus, car une telle situation aurait indéniablement offensé Xu Mu.
 
-La fuite précipitée des deux frères choqua tous les cultivateurs de la planète Suzaku. C'était particulièrement vrai pour Zhou Wutai qui s'était préparé à un combat acharné; ce changement soudain de situation le prit de court. Non seulement lui, mais même le Clan des Immortels Délaissés fut profondément stupéfait. Seuls les yeux de Yun Quezi se rétrécirent alors qu'il fixait la Secte du Ciel Nuageux. Sur la planète Suzaku, il était le plus ancien et son niveau de culture avait considérablement progressé au fil des ans. Les deux cultivateurs de Luotian n'avaient fui que lorsque leurs sens divins s'étaient verrouillés sur la Secte du Ciel Nuageux!
+La fuite précipitée des deux frères choqua tous les cultivateurs de la planète Suzaku. C'était particulièrement vrai pour Zhou Wutai qui s'était préparé à un combat acharné; ce changement soudain de situation le prit de court. Non seulement lui, mais même le Clan Xian Yi fut profondément stupéfait. Seuls les yeux de Yun Quezi se rétrécirent alors qu'il fixait la Secte Yun Tian. Sur la planète Suzaku, il était le plus ancien et son niveau de culture avait considérablement progressé au fil des ans. Les deux cultivateurs de Luotian n'avaient fui que lorsque leurs sens divins s'étaient verrouillés sur la Secte Yun Tian!
 
-« La Secte du Ciel Nuageux... Quel objet peut bien effrayer deux puissants cultivateurs Ascendants au sommet de leur stade? Et à en juger par leurs expressions, ils ont été terrifiés jusqu'aux tréfonds de leur âme. » Yun Quezi avait vu de ses propres yeux la panique sur les visages des deux fuyards, ce qui le laissa extrêmement perplexe.
+« La Secte Yun Tian... Quel objet peut bien effrayer deux puissants cultivateurs Ascendants au sommet de leur stade? Et à en juger par leurs expressions, ils ont été terrifiés jusqu'aux tréfonds de leur âme. » Yun Quezi avait vu de ses propres yeux la panique sur les visages des deux fuyards, ce qui le laissa extrêmement perplexe.
 
-Il déploya son sens divin et le verrouilla soudainement sur la statue de Wang Lin dans la Secte du Ciel Nuageux.
+Il déploya son sens divin et le verrouilla soudainement sur la statue de Wang Lin dans la Secte Yun Tian.
 
 « Se pourrait-il que... » Les yeux de Yun Quezi s'écarquillèrent, le cœur rempli d'incrédulité.
 
-Zhou Wutai et d'autres vieux monstres eurent la même pensée. Tous étaient perspicaces. Après une brève réflexion, ils comprirent tous le problème. Leurs sens divins se déployèrent et se fixèrent sur la Secte du Ciel Nuageux.
+Zhou Wutai et d'autres vieux monstres eurent la même pensée. Tous étaient perspicaces. Après une brève réflexion, ils comprirent tous le problème. Leurs sens divins se déployèrent et se fixèrent sur la Secte Yun Tian.
 
 Tie Yan regarda la statue de Wang Lin. Ses yeux brillaient d'excitation tandis qu'il murmurait: « Bienfaiteur, ce doit être mon bienfaiteur! »
 

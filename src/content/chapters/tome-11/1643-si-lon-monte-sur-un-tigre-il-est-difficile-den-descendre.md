@@ -70,7 +70,7 @@ Le vortex possédait une force d'aspiration effrayante et, avec la puissance du 
 
 C'était là le sort du Général Tigre Blanc: "Si l'on monte sur un tigre, il est difficile d'en descendre". C'était à la fois un sort et un sceau!
 
-« Esprit du Tigre Blanc, saisis l'âme de cet homme et scelle-la sous la grotte, sous la Montagne des Sept Dao du Continent Astral Immortel! » Le vieil homme au visage féroce agita les bras en poussant un rugissement féroce.
+« Esprit du Tigre Blanc, saisis l'âme de cet homme et scelle-la sous la grotte, sous la Montagne Qi Dao Tian du Continent Astral Immortel! » Le vieil homme au visage féroce agita les bras en poussant un rugissement féroce.
 
 Alors que sa voix résonnait, un hurlement de tigre fracassant jaillit du vortex. Un tigre féroce de plusieurs centaines de pieds de long s'en échappa.
 

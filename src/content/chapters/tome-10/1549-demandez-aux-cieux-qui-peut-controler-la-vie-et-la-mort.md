@@ -8,7 +8,7 @@ slug: demandez-aux-cieux-qui-peut-controler-la-vie-et-la-mort
 ---
 Bien que Tianzhao Shangshi parût arrogant et affiche un regard de mépris, il était extrêmement sérieux. Bien qu'il n'eût jamais vu Wang Lin auparavant, le nom du Seigneur du Royaume Scellé avait été maintes fois évoqué au cours des dernières décennies.
 
-En particulier, la manière dont l'ancêtre du Clan des Moineaux de Feu avait été tranché en deux l'avait profondément choqué. Cependant, si cela n'était là que le sommet de ses prouesses, il ne s'en soucierait guère. Après tout, l'ancêtre du Clan des Moineaux de Feu n'était qu'au stade initial du Vide du Nirvana et ne méritait pas son attention.
+En particulier, la manière dont l'ancêtre du Clan Huo Que avait été tranché en deux l'avait profondément choqué. Cependant, si cela n'était là que le sommet de ses prouesses, il ne s'en soucierait guère. Après tout, l'ancêtre du Clan Huo Que n'était qu'au stade initial du Vide du Nirvana et ne méritait pas son attention.
 
 Ce qui l'avait véritablement stupéfié était Nanzhao Shangren. Le niveau de culture de Nanzhao Shangren était similaire au sien, mais ce dernier avait fini par mourir tragiquement face à ce Seigneur du Royaume Scellé.
 

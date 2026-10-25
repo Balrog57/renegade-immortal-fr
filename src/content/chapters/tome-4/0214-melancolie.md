@@ -8,7 +8,7 @@ slug: melancolie
 ---
 Les yeux de Wang Lin devinrent graves. L'Ancienne Li, disciple de la Secte Luo He du pays de Huo Fen... Ces deux phrases résonnaient dans son esprit lorsqu'un nom lui vint soudainement à l'esprit.
 
-« Impossible... » pensa secrètement Wang Lin. Comment une telle coïncidence pouvait-elle exister dans ce monde? La jeune fille d'alors était-elle devenue une Ancienne de la Secte du Ciel Nuageux?
+« Impossible... » pensa secrètement Wang Lin. Comment une telle coïncidence pouvait-elle exister dans ce monde? La jeune fille d'alors était-elle devenue une Ancienne de la Secte Yun Tian?
 
 Wang Lin esquissa un sourire forcé et se dit qu'il s'imaginait des choses.
 
@@ -24,11 +24,11 @@ Cheng Xian resta interdit, mais, roulant des yeux, il dit aussitôt en riant: «
 
 Wang Lin ne répondit plus et continua sa marche vers la cour sud.
 
-Tout au long du trajet, Cheng Xian ne cessa presque pas de parler. Il était évident qu'il possédait une grande facilité d'élocution. Il partagea toutes les nouvelles, les potins et les rumeurs concernant la Secte du Ciel Nuageux.
+Tout au long du trajet, Cheng Xian ne cessa presque pas de parler. Il était évident qu'il possédait une grande facilité d'élocution. Il partagea toutes les nouvelles, les potins et les rumeurs concernant la Secte Yun Tian.
 
 Sa façon de parler était si animée que Wang Lin n'en fut pas irrité. C'est ainsi que les deux arrivèrent à la cour sud.
 
-« Il faut dire que l'Ancienne Li n'est pas dans la secte depuis longtemps. Elle n'est ici que depuis un peu plus de cent ans, mais ses compétences en alchimie sont prodigieuses. J'ai entendu dire qu'autrefois, l'Ancienne Li rivalisait avec les deux alchimistes de rang 5 de la Secte du Ciel Nuageux. Elle ne leur est pas restée en reste et a réussi à raffiner une Pilule de Culture Démoniaque de rang 5, qui est l'un des trois trésors de notre secte. » En évoquant la pilule, Cheng Xian afficha un regard d'admiration.
+« Il faut dire que l'Ancienne Li n'est pas dans la secte depuis longtemps. Elle n'est ici que depuis un peu plus de cent ans, mais ses compétences en alchimie sont prodigieuses. J'ai entendu dire qu'autrefois, l'Ancienne Li rivalisait avec les deux alchimistes de rang 5 de la Secte Yun Tian. Elle ne leur est pas restée en reste et a réussi à raffiner une Pilule de Culture Démoniaque de rang 5, qui est l'un des trois trésors de notre secte. » En évoquant la pilule, Cheng Xian afficha un regard d'admiration.
 
 « Une Pilule de Culture Démoniaque? » Wang Lin fut frappé de stupeur. Le nom de cette pilule était bien étrange. Se pourrait-il qu'en la consommant, on se transforme en démon?
 
@@ -46,7 +46,7 @@ Cheng Xian s'arrêta devant le pont et sourit: « Il existe une autre rumeur con
 
 « Je suis tout ouïe. » Les yeux de Wang Lin suivirent le pont vers l'intérieur de la cour, mais une brume blanche l'empêchait de voir trop loin. Il pouvait néanmoins distinguer l'environnement élégant à l'intérieur; cela ressemblait à un jardin de pêchers.
 
-Cheng Xian dit avec fierté: « La rumeur veut que l'Ancienne Li ait vécu quelque temps dans la Mer des Démons. Cette Pilule de Culture Démoniaque aurait en réalité été raffinée pour une histoire qu'elle y a vécue. Bien sûr, ce n'est qu'une rumeur. En réalité, il existe une multitude de légendes sur l'Ancienne Li au sein de la Secte du Ciel Nuageux. Nous en discuterons plus longuement tout à l'heure. »
+Cheng Xian dit avec fierté: « La rumeur veut que l'Ancienne Li ait vécu quelque temps dans la Mer Xiu Mo. Cette Pilule de Culture Démoniaque aurait en réalité été raffinée pour une histoire qu'elle y a vécue. Bien sûr, ce n'est qu'une rumeur. En réalité, il existe une multitude de légendes sur l'Ancienne Li au sein de la Secte Yun Tian. Nous en discuterons plus longuement tout à l'heure. »
 
 Après avoir entendu cela, l'expression de Wang Lin resta sereine. Il joignit les mains vers Cheng Xian et s'engagea sur le pont.
 
@@ -86,13 +86,13 @@ Un visage de lotus, des sourcils de saule, une sérénité d'eau d'automne comme
 
 Le regard de la femme se posa sur Wang Lin. Après l'avoir observé un instant, elle laissa paraître une pointe de mélancolie. Elle referma doucement la fenêtre, dérobant de nouveau ce visage qui faisait battre les cœurs.
 
-L'expression de Wang Lin demeurait aussi calme qu'une eau immobile. Dès que la femme avait parlé, il avait déjà deviné son identité. Il ne s'attendait pas à ce que, après toutes ces années, cette jeune fille soit devenue une Ancienne de la Secte du Ciel Nuageux.
+L'expression de Wang Lin demeurait aussi calme qu'une eau immobile. Dès que la femme avait parlé, il avait déjà deviné son identité. Il ne s'attendait pas à ce que, après toutes ces années, cette jeune fille soit devenue une Ancienne de la Secte Yun Tian.
 
-Bien que la culture de l'avatar de Wang Lin ne fût pas élevée, ses instincts restaient aiguisés. Il pouvait sentir que la culture de cette femme se situait au début du stade de Formation du Noyau. Dans n'importe quelle autre secte, il serait étrange qu'un maître et son disciple aient le même niveau de culture, mais ce n'était pas le cas dans la Secte du Ciel Nuageux.
+Bien que la culture de l'avatar de Wang Lin ne fût pas élevée, ses instincts restaient aiguisés. Il pouvait sentir que la culture de cette femme se situait au début du stade de Formation du Noyau. Dans n'importe quelle autre secte, il serait étrange qu'un maître et son disciple aient le même niveau de culture, mais ce n'était pas le cas dans la Secte Yun Tian.
 
 Dans la cour intérieure, on mesurait la valeur d'une personne à ses compétences en alchimie, et non à sa culture.
 
-Par conséquent, il arrivait fréquemment dans la cour intérieure que le maître ait un niveau de culture inférieur à celui du disciple. La Secte du Ciel Nuageux suivait une échelle de valeurs bien différente des autres.
+Par conséquent, il arrivait fréquemment dans la cour intérieure que le maître ait un niveau de culture inférieur à celui du disciple. La Secte Yun Tian suivait une échelle de valeurs bien différente des autres.
 
 Certes, certaines pilules exigeaient un certain niveau de culture pour être raffinées; il fallait alors que le cultivateur augmente son niveau.
 
@@ -146,11 +146,11 @@ C'était le présent que Wang Lin lui avait offert avant son départ. Cette gout
 
 Li Muwan fronça légèrement les sourcils et ouvrit la porte. Elle vit un beau cultivateur d'âge mûr s'avancer vers elle avec un sourire chaleureux.
 
-En voyant Li Muwan, il afficha une affection non dissimulée et dit doucement: « Jeune sœur, il y a un mois, je vous ai entendue dire qu'il vous manquait un Long Yan Zhi. J'ai fouillé tout le pays de Chu et je l'ai enfin trouvé à la lisière des monts de Pierres Brisées, dans la Terre de l'Héritage Immortel. » Il sortit alors une boîte en jade contenant un zhi entièrement violet-rouge, de l'épaisseur d'un bras.
+En voyant Li Muwan, il afficha une affection non dissimulée et dit doucement: « Jeune sœur, il y a un mois, je vous ai entendue dire qu'il vous manquait un Long Yan Zhi. J'ai fouillé tout le pays de Chu et je l'ai enfin trouvé à la lisière des monts de Pierres Brisées, dans la Terre Xian Yi. » Il sortit alors une boîte en jade contenant un zhi entièrement violet-rouge, de l'épaisseur d'un bras.
 
 Le visage de Li Muwan resta impassible. Elle ne daigna même pas regarder la boîte et répondit: « Je vous remercie pour votre gentillesse, Senior Frère Sun, mais j'ai déjà trouvé un substitut et réussi à raffiner la pilule il y a trois jours. Le frère Sun n'a qu'à le garder. »
 
-L'homme sourit chaleureusement. Il mit la boîte de côté et dit avec douceur: « Jeune sœur, l'Ancêtre a de bonnes intentions. Après tout, vous n'êtes pas une disciple directe de la Secte du Ciel Nuageux. Si vous souhaitez acquérir de meilleures techniques d'alchimie, vous devrez choisir un disciple direct pour former un couple de culture. Nous nous connaissons depuis longtemps; je suis sûr que vous comprenez mes sentiments. »
+L'homme sourit chaleureusement. Il mit la boîte de côté et dit avec douceur: « Jeune sœur, l'Ancêtre a de bonnes intentions. Après tout, vous n'êtes pas une disciple directe de la Secte Yun Tian. Si vous souhaitez acquérir de meilleures techniques d'alchimie, vous devrez choisir un disciple direct pour former un couple de culture. Nous nous connaissons depuis longtemps; je suis sûr que vous comprenez mes sentiments. »
 
 Un éclair de froideur traversa les yeux de Li Muwan. Elle fixa l'homme et trancha: « Ne reparlez plus jamais de cette affaire! »
 
@@ -180,7 +180,7 @@ Cheng Xian ne chercha pas à esquiver. Le grand singe agrippa ses vêtements et 
 
 Le petit singe lança un regard de colère à Wang Lin. Il tenta de l'attraper, mais Wang Lin esquiva la griffe et sauta sur son dos. Le singe ne s'en formalisa pas et poursuivit rapidement le plus grand.
 
-Les singes étaient extrêmement rapides; chevaucher ces bêtes revenait à voler sur les nuages. Cheng Xian semblait très habitué à cela. Après quelques cris, il sortit une gourde de vin, prit une grande gorgée, puis éclata de rire: « Chevaucher un singe spirituel jusqu'à la cour est... Dans toute la Secte du Ciel Nuageux, je suis le seul capable de faire ça! Haha! »
+Les singes étaient extrêmement rapides; chevaucher ces bêtes revenait à voler sur les nuages. Cheng Xian semblait très habitué à cela. Après quelques cris, il sortit une gourde de vin, prit une grande gorgée, puis éclata de rire: « Chevaucher un singe spirituel jusqu'à la cour est... Dans toute la Secte Yun Tian, je suis le seul capable de faire ça! Haha! »
 
 Wang Lin esquissa un sourire ironique. Bien que Cheng Xian fût espiègle, il n'était pas désagréable. Même s'il lui faisait perdre du temps, Wang Lin ne s'en souciait guère. En réalité, en le voyant ainsi, la complexité des sentiments que lui avait laissés la rencontre d'une vieille connaissance s'était un peu apaisée.
 

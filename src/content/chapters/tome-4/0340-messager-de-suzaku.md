@@ -57,7 +57,7 @@ Ce jour-là, un groupe de personnes sortit d'un réseau de transfert ordinaire �
 
 Elle était suivie par un vieil homme vêtu d'une veste de toile bleue, dont les yeux étaient ternes, comme s'il souffrait d'une maladie grave. Si Wang Lin les avait vus, il les aurait reconnus comme les deux individus ayant acheté la recette de pilule de rang 6.
 
-À leurs côtés se tenait un vieil homme aux cheveux blancs: c'était Hu, le cultivateur de Formation de l'Âme du Pavillon de Raffinage des Trésors. Derrière lui se trouvaient trois personnes, dont une que Wang Lin connaissait bien: Qiu Siping. Les deux autres étaient Xu Luo et une jeune fille d'une grande beauté — celle-là même qui avait livré le jade violet.
+À leurs côtés se tenait un vieil homme aux cheveux blancs: c'était Hu, le cultivateur de Formation de l'Âme du Pavillon Lian Qi. Derrière lui se trouvaient trois personnes, dont une que Wang Lin connaissait bien: Qiu Siping. Les deux autres étaient Xu Luo et une jeune fille d'une grande beauté — celle-là même qui avait livré le jade violet.
 
 Une fois sortis du réseau de transfert, le vieil homme regarda vers le nord et déclara: « Bien que Chu ne soit pas la voie la plus rapide pour atteindre le Cimetière des Immortels, c'est plus simple que de passer par Zhou. »
 
@@ -67,17 +67,17 @@ Le vieil homme nommé Hu s'élança en avant, et les autres le suivirent prompte
 
 Qiu Siping soupira intérieurement. Après le départ de Wang Lin, il avait décidé de suivre l'Ancien Hu dans l'espoir d'atteindre un jour le stade de la Formation de l'Âme. Bien que son niveau de culture ait progressé ces dix dernières années, l'écart restait immense. Il était convaincu qu'en obtenant l'objet recherché dans le Cimetière des Immortels, atteindre la Formation de l'Âme ne serait plus un simple rêve.
 
-La femme soupira elle aussi. Durant ces dix ans, elle avait sollicité de nombreux cultivateurs de la Formation de l'Âme. Finalement, elle s'était souvenue que le Pavillon de Raffinage des Trésors en comptait un. En révélant certains secrets qu'elle n'avait jamais dits à Wang Lin, elle avait réussi à convaincre le vieil homme de lui prêter aide.
+La femme soupira elle aussi. Durant ces dix ans, elle avait sollicité de nombreux cultivateurs de la Formation de l'Âme. Finalement, elle s'était souvenue que le Pavillon Lian Qi en comptait un. En révélant certains secrets qu'elle n'avait jamais dits à Wang Lin, elle avait réussi à convaincre le vieil homme de lui prêter aide.
 
 Le groupe de six vola vers le nord, survolant de nombreuses sectes que personne n'osa interpeller.
 
 L'Ancien Hu fut surpris: « Je n'étais pas revenu à Chu depuis plus de cent ans. Il semble y avoir eu bien des changements. »
 
-Derrière lui, Xu Luo répondit respectueusement: « Ancêtre, ces dernières années, la Secte du Ciel Nuageux a dévoré plusieurs autres sectes et est officiellement devenue la première puissance de Chu. »
+Derrière lui, Xu Luo répondit respectueusement: « Ancêtre, ces dernières années, la Secte Yun Tian a dévoré plusieurs autres sectes et est officiellement devenue la première puissance de Chu. »
 
-L'Ancien Hu hocha la tête: « La Secte du Ciel Nuageux se spécialise dans l'alchimie, ils doivent donc posséder de nombreux cultivateurs de l'Âme Naissante. À notre retour du Cimetière des Immortels, pense à envoyer quelqu'un à leur secte pour solliciter quelques pilules! »
+L'Ancien Hu hocha la tête: « La Secte Yun Tian se spécialise dans l'alchimie, ils doivent donc posséder de nombreux cultivateurs de l'Âme Naissante. À notre retour du Cimetière des Immortels, pense à envoyer quelqu'un à leur secte pour solliciter quelques pilules! »
 
-Xu Luo esquissa un léger sourire. Il était certain que la Secte du Ciel Nuageux leur remettrait immédiatement des pilules pour garantir leur propre sécurité.
+Xu Luo esquissa un léger sourire. Il était certain que la Secte Yun Tian leur remettrait immédiatement des pilules pour garantir leur propre sécurité.
 
 Alors qu'ils volaient, un pilier de lumière jaillit dans le ciel. De leur position, le pilier ne semblait pas plus épais que le bras d'un nourrisson, mais s'ils avaient été plus proches, il aurait été infiniment plus imposant.
 

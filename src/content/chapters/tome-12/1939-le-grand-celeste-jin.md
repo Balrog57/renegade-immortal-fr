@@ -8,7 +8,7 @@ slug: le-grand-celeste-jin
 ---
 Au nord du Continent de l'Est se trouvait un continent nommé le Grand Sage!
 
-Le Continent du Grand Sage était extrêmement reculé et plus désolé encore que le Continent du Taureau Céleste, mais cela n'était vrai que pour les cultivateurs. La terre y était fertile et la végétation y poussait en abondance; les mortels du Continent du Grand Sage y menaient une vie paisible et aisée.
+Le Continent Da Sheng était extrêmement reculé et plus désolé encore que le Continent Tian Niu, mais cela n'était vrai que pour les cultivateurs. La terre y était fertile et la végétation y poussait en abondance; les mortels du Continent Da Sheng y menaient une vie paisible et aisée.
 
 Depuis des millénaires, des rumeurs concernant les êtres célestes circulaient parmi les mortels, de sorte que presque tout le monde les vénérait. Tous aspiraient à devenir des êtres célestes.
 
@@ -16,9 +16,9 @@ Cependant, les sectes de ce continent sortaient rarement de leurs domaines. Cela
 
 Le secret entourant la Secte Dong Lin les rendait très discrètes parmi les neuf sectes et treize factions. Leurs disciples sortaient rarement, la plupart d'entre eux se consacrant exclusivement à leur culture au sein de la secte.
 
-Des nuages blancs parsemaient le ciel au-dessus du Continent du Grand Sage, le couvrant presque en permanence depuis des années. Ces nuages semblaient faire partie intégrante de l'azur; si un jour le ciel se dégageait, les mortels en étaient profondément surpris.
+Des nuages blancs parsemaient le ciel au-dessus du Continent Da Sheng, le couvrant presque en permanence depuis des années. Ces nuages semblaient faire partie intégrante de l'azur; si un jour le ciel se dégageait, les mortels en étaient profondément surpris.
 
-À cet instant précis, aux abords d'une cité mortelle sur le Continent du Grand Sage, près d'une centaine de personnes se tenaient debout. Elles étaient guidées par trois ou quatre vieillards à l'apparence maladive, vêtus de façon fastueuse, qui s'efforçaient de garder leur énergie. Leurs serviteurs les soutenaient tandis qu'ils attendaient depuis déjà près de quatre heures.
+À cet instant précis, aux abords d'une cité mortelle sur le Continent Da Sheng, près d'une centaine de personnes se tenaient debout. Elles étaient guidées par trois ou quatre vieillards à l'apparence maladive, vêtus de façon fastueuse, qui s'efforçaient de garder leur énergie. Leurs serviteurs les soutenaient tandis qu'ils attendaient depuis déjà près de quatre heures.
 
 Le reste de la foule faisait preuve d'une grande patience, comme si leur simple présence ici était un honneur. Tous scrutaient l'horizon, comme en attente d'un événement imminent.
 
@@ -34,13 +34,13 @@ Après s'être fait réprimander, l'homme afficha un sourire servile et s'apprê
 
 « Hmph! Le Grand Céleste a accepté de venir après que ce vieil homme et quelques amis l'ont supplié de longues heures durant. Même à mon âge, je reste ici sans oser montrer la moindre marque de manque de respect, et un petit marchand de tissus comme toi refuse d'attendre? Si le Grand Céleste venait à être offensé, toute ta famille pourrait bien être bannie de cette ville! » Le vieillard lança un regard féroce à l'homme avant de prendre un mouchoir imprégné de glace pour s'essuyer le front.
 
-« Le Grand Céleste est bienveillant; il accepte de sacrifier son temps de culture pour parcourir le Continent du Grand Sage. Son nom céleste est immortel : qui ne le connaît pas? J'ai entendu dire que la ville voisine avait invité le Grand Céleste, et que sept enfants avaient été choisis par la suite. Bien que trois d'entre eux aient été renvoyés, quatre ont intégré une secte céleste. Une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux! »
+« Le Grand Céleste est bienveillant; il accepte de sacrifier son temps de culture pour parcourir le Continent Da Sheng. Son nom céleste est immortel : qui ne le connaît pas? J'ai entendu dire que la ville voisine avait invité le Grand Céleste, et que sept enfants avaient été choisis par la suite. Bien que trois d'entre eux aient été renvoyés, quatre ont intégré une secte céleste. Une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux! »
 
 « C'est exactement ce que l'être céleste a dit: une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux! Si mon petit-fils peut entrer dans une secte céleste, je suis prêt à donner toute ma fortune! » grommela un autre vieil homme, l'expression exaltée.
 
 « C'est vrai! Le notable Li de la ville voisine est mon ami, et le Grand Céleste a séjourné chez lui. Sa petite-fille a déjà dépassé la vingtaine et, selon les rumeurs, il était impossible pour elle d'intégrer une secte. Pourtant, à la demande du notable Li, le Grand Céleste l'a tout de même emmenée! »
 
-« J'ai aussi entendu ce que le Grand Céleste a dit... Une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux! Cette phrase est devenue célèbre dans tout le Continent du Grand Sage... »
+« J'ai aussi entendu ce que le Grand Céleste a dit... Une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux! Cette phrase est devenue célèbre dans tout le Continent Da Sheng... »
 
 Les gens autour commencèrent à bavarder, envieux de ceux qui avaient eu la chance de l'emporter.
 
@@ -64,7 +64,7 @@ En voyant cela, les cent personnes devant la ville furent prises d'une ferveur f
 
 Leurs voix semblaient fusionner en une seule, témoignant de nombreuses répétitions. À cet instant, leurs cris se propagèrent dans le ciel comme une musique divine pour ceux qui étaient en bas.
 
-« Grand Céleste Jin Biao, l'immortel céleste! Grand Céleste Jin Biao, pilier du monde! Grand Céleste Jin Biao, le Continent du Grand Sage renaît! » Tandis que les quatre colosses rugissaient, les enfants autour d'eux scandaient leurs prières à leur tour, faisant résonner leurs voix dans l'air.
+« Grand Céleste Jin Biao, l'immortel céleste! Grand Céleste Jin Biao, pilier du monde! Grand Céleste Jin Biao, le Continent Da Sheng renaît! » Tandis que les quatre colosses rugissaient, les enfants autour d'eux scandaient leurs prières à leur tour, faisant résonner leurs voix dans l'air.
 
 Le vieil homme sur le siège affichait un visage bienveillant, mais cette bienveillance recelait une pointe de majesté lorsqu'il observa la foule agenouillée. Il leva la main droite et agita sa manche.
 
@@ -99,10 +99,10 @@ Il paraissait habitué à l'exaltation de la foule. Il souriait, le cœur empli 
 
 « Moi, Jin Biaozi, j'ai quitté mon village à l'âge de six ou sept ans et j'ai escroqué les gens tout au long de mon chemin. Tant d'années ont passé et j'ai dupé tant de personnes... Moi, Jin Biaozi, je suis né différent des autres. Non seulement j'ai un talent naturel pour la duperie, que j'ai développé sans maître, mais même sans rejoindre de secte, j'ai appris la culture par moi-même! »
 
-« Les gens comme moi sont rares! Mais cela valait la peine de tromper quelqu'un pour être transporté jusqu'au Continent du Grand Sage. Les habitants ici sont simples et aspirent à devenir des êtres célestes, ce qui fait de cet endroit un véritable trésor pour les opportunistes comme moi! »
+« Les gens comme moi sont rares! Mais cela valait la peine de tromper quelqu'un pour être transporté jusqu'au Continent Da Sheng. Les habitants ici sont simples et aspirent à devenir des êtres célestes, ce qui fait de cet endroit un véritable trésor pour les opportunistes comme moi! »
 
 « Et surtout, personne dans mon domaine n'avait encore ouvert boutique ici. Tout ce qu'il m'a fallu faire, c'est inventer une phrase: "Une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux!" Et mon chemin a été sans encombre! » Le vieil homme sourit tandis que les habitants de la ville l'accueillaient avec respect, puis il pénétra dans la cité.
 
-À cet instant, sur le Continent du Grand Sage, à des dizaines de milliers de kilomètres de là, des ondulations résonnèrent dans le ciel et Wang Lin apparut. Il scruta les environs et ses yeux s'illuminèrent.
+À cet instant, sur le Continent Da Sheng, à des dizaines de milliers de kilomètres de là, des ondulations résonnèrent dans le ciel et Wang Lin apparut. Il scruta les environs et ses yeux s'illuminèrent.
 
-« Voici le Continent du Grand Sage! Le continent où se trouve la Secte Dong Lin! »
+« Voici le Continent Da Sheng! Le continent où se trouve la Secte Dong Lin! »

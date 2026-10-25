@@ -76,7 +76,7 @@ En remarquant cela, Wang Lin afficha une expression pensive.
 
 Alors qu'il s'envolait, le sens divin de Wang Lin s'étendit. Cette bataille attirerait certainement des cultivateurs; il pressa donc le pas. Même après avoir parcouru des dizaines de milliers de kilomètres, il ne ralentit pas.
 
-Ce fragment était extrêmement vaste et bien plus stable que le Royaume Céleste de la Pluie. Si cela avait été le Royaume de la Pluie, cette bataille aurait certainement provoqué l'effondrement du fragment.
+Ce fragment était extrêmement vaste et bien plus stable que le Royaume Céleste de la Pluie. Si cela avait été le Royaume Yu Zhi Xian Jie, cette bataille aurait certainement provoqué l'effondrement du fragment.
 
 Wang Lin vola pendant trois jours avant d'apercevoir enfin une limite devant lui. Il s'arrêta et observa les environs. Non loin de là se dressait une montagne emplie de tonnerre.
 

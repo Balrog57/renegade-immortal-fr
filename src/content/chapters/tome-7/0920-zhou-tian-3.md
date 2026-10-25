@@ -26,7 +26,7 @@ En silence, Xi Zifeng finit par les suivre également.
 
 Au fil de leur progression, Wang Lin commença à méditer.
 
-« La bataille entre l'Alliance et Luotian a atteint son paroxysme. C'est le moment idéal pour accumuler des exploits afin d'apaiser le cœur du Maître Yan Leizi. Je dois gagner davantage de prestige parmi les cultivateurs de Luotian. De cette façon, si je rencontre Tian Yunzi et les autres, ou si Tuo Sen s'échappe de la Terre de l'Ancien Dieu, alors le Maître Yan Leizi sera contraint de m'aider. »
+« La bataille entre l'Alliance et Luotian a atteint son paroxysme. C'est le moment idéal pour accumuler des exploits afin d'apaiser le cœur du Maître Yan Leizi. Je dois gagner davantage de prestige parmi les cultivateurs de Luotian. De cette façon, si je rencontre Tian Yunzi et les autres, ou si Tuo Sen s'échappe de la Terre Gu Shen, alors le Maître Yan Leizi sera contraint de m'aider. »
 
 Les yeux de Wang Lin s'illuminèrent et il prit une décision. Toutefois, il n'était pas optimiste quant à l'offensive de Luotian contre l'Alliance. Après avoir réfléchi un instant, Wang Lin frappa son sac de rangement, et un petit drapeau apparut.
 

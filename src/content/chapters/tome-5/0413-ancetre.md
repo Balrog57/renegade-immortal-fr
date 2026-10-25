@@ -18,13 +18,13 @@ Boum! Boum!
 
 En voyant cela, les cultivateurs de Zhao furent transportés par l'excitation.
 
-« Qu'est-ce que c'est? Cette sculpture est effectivement intéressante. Ce serait un gaspillage de la détruire. » Les yeux du membre du Clan des Immortels Délaissés s'illuminèrent alors qu'il agissait d'un revers de main pour faire apparaître plusieurs runes à l'aspect antique.
+« Qu'est-ce que c'est? Cette sculpture est effectivement intéressante. Ce serait un gaspillage de la détruire. » Les yeux du membre du Clan Xian Yi s'illuminèrent alors qu'il agissait d'un revers de main pour faire apparaître plusieurs runes à l'aspect antique.
 
 Ces runes circulèrent autour de lui tandis qu'il faisait un pas en avant.
 
-La sculpture en bois s'illumina une fois de plus. L'anneau de lumière s'étendit et entra en contact avec les runes entourant le membre du Clan des Immortels Délaissés. Les runes tremblèrent violemment, ne purent résister et se dissipèrent.
+La sculpture en bois s'illumina une fois de plus. L'anneau de lumière s'étendit et entra en contact avec les runes entourant le membre du Clan Xian Yi. Les runes tremblèrent violemment, ne purent résister et se dissipèrent.
 
-En un seul pas, le membre du Clan des Immortels Délaissés atteignit le sommet du Mont Heng Yue. Il tendit la main, sur le point de saisir la sculpture.
+En un seul pas, le membre du Clan Xian Yi atteignit le sommet du Mont Heng Yue. Il tendit la main, sur le point de saisir la sculpture.
 
 Mais la lumière de la sculpture devint soudainement si aveuglante qu'elle illumina toute la zone; pourtant, le mépris dans les yeux de l'homme demeurait intact. Il avança sa main et pressa la sculpture en bois.
 
@@ -32,11 +32,11 @@ Mais la lumière de la sculpture devint soudainement si aveuglante qu'elle illum
 
 Toute la Secte Tian Dao du Mont Heng Yue fut plongée dans le silence. Les cultivateurs restèrent pensifs. Leur symbole d'espoir venait d'être si facilement dérobé. Il semblait que la destruction de Zhao était inévitable.
 
-Le mépris dans les yeux du vieil homme du Clan des Immortels Délaissés s'intensifia alors qu'il disait lentement: « Étant donné que j'ai obtenu ce trésor, je ne serai pas trop dur avec vous. Vous deviendrez les vassaux de mon Clan des Immortels Délaissés. Je peux vous promettre que c'est bien mieux que de servir le pays de Suzaku. »
+Le mépris dans les yeux du vieil homme du Clan Xian Yi s'intensifia alors qu'il disait lentement: « Étant donné que j'ai obtenu ce trésor, je ne serai pas trop dur avec vous. Vous deviendrez les vassaux de mon Clan Xian Yi. Je peux vous promettre que c'est bien mieux que de servir le pays de Suzaku. »
 
 « Ma sculpture n'est pas un objet que tu peux prendre. » Une voix calme émana du vide et, peu après, deux silhouettes apparurent.
 
-Le vieil homme du Clan des Immortels Délaissés se retourna brusquement, affichant une expression terrifiée. Ce qui l'effrayait, c'était qu'une personne avait réussi à s'approcher de lui sans qu'il ne s'en aperçoive.
+Le vieil homme du Clan Xian Yi se retourna brusquement, affichant une expression terrifiée. Ce qui l'effrayait, c'était qu'une personne avait réussi à s'approcher de lui sans qu'il ne s'en aperçoive.
 
 Les deux individus surgis du vide étaient Wang Lin et Wang Zhuo.
 
@@ -52,7 +52,7 @@ Un cri d'excitation après l'autre monta des cultivateurs en contrebas. Bientôt
 
 Les cris devinrent encore plus assourdissants.
 
-L'expression du vieil homme du Clan des Immortels Délaissés était devenue hideuse. Le mépris dans ses yeux avait depuis longtemps disparu, remplacé par un profond sentiment d'effroi.
+L'expression du vieil homme du Clan Xian Yi était devenue hideuse. Le mépris dans ses yeux avait depuis longtemps disparu, remplacé par un profond sentiment d'effroi.
 
 « Monsieur... » Il ouvrit la bouche pour parler, mais fut immédiatement interrompu par Wang Lin.
 
@@ -86,7 +86,7 @@ Le vieil homme fut surpris. Il jeta un regard à Wang Lin et répondit: « Puisq
 
 « Qian Feng... » Les yeux de Wang Lin devinrent graves. Il avait entendu ce nom à deux reprises: une fois par Liu Mei, et la seconde était maintenant.
 
-Wang Lin lâcha froidement: « Ridicule! » Il leva sa main droite et pointa la sphère contenant l'énergie de l'explosion. La sphère se mua en une ombre qui fonça vers le vieil homme du Clan des Immortels Délaissés.
+Wang Lin lâcha froidement: « Ridicule! » Il leva sa main droite et pointa la sphère contenant l'énergie de l'explosion. La sphère se mua en une ombre qui fonça vers le vieil homme du Clan Xian Yi.
 
 L'expression du vieil homme changea radicalement alors qu'il portait la main à son front. Une lumière verte jaillit entre ses sourcils. Une plante à six feuilles émergea de cette lumière et percuta la sphère.
 
@@ -94,7 +94,7 @@ Boum!
 
 Le vieil homme fut repoussé violemment et cracha du sang. Non seulement la plante surgissant de son front n'était pas endommagée, mais elle brillait de plus belle. Cependant, il ne voulait pas combattre. En reculant, il sortit un bâton pourpre. Il utilisa cet objet pour créer des ondulations dans l'espace devant lui et s'apprêta à s'engouffrer dans l'une d'elles.
 
-Le bâton pourpre qu'il utilisait était une branche de l'Arbre de la Réincarnation. Le Clan des Immortels Délaissés possédait une méthode spéciale permettant d'utiliser ces branches pour se téléporter sur de grandes distances à travers la planète Suzaku, en communiquant avec l'arbre ancestral de la Réincarnation.
+Le bâton pourpre qu'il utilisait était une branche de l'Arbre de la Réincarnation. Le Clan Xian Yi possédait une méthode spéciale permettant d'utiliser ces branches pour se téléporter sur de grandes distances à travers la planète Suzaku, en communiquant avec l'arbre ancestral de la Réincarnation.
 
 Les yeux de Wang Lin restaient calmes. Il leva tranquillement sa main droite et ordonna: « Absorbe! »
 
@@ -110,7 +110,7 @@ Le visage du vieil homme devint féroce alors qu'il hurlait: « Si tu me tues, u
 
 Des bruits de craquements retentirent alors que l'anneau de dix mètres se réduisait à 3,3 mètres. Les branches de la plante se brisaient une à une. À chaque rupture, le vieil homme crachait du sang et son visage pâlissait davantage.
 
-Wang Lin demeurait serein et esquissa même un sourire. « J'ai déjà tué pas mal de membres du Clan des Immortels Délaissés. Est-ce là la malédiction dont tu parles? »
+Wang Lin demeurait serein et esquissa même un sourire. « J'ai déjà tué pas mal de membres du Clan Xian Yi. Est-ce là la malédiction dont tu parles? »
 
 Wang Lin pointa sa poitrine, et cinq sphères de gaz gris apparurent. Ces cinq masses de gaz formèrent cinq runes grises scintillantes. Lorsqu'il tentait d'atteindre le stade de la Transformation de l'Âme, il avait ressenti ces cinq masses de gaz gris cachées dans son corps. Normalement, elles ne lui causaient aucun tort; au contraire, elles aidaient son énergie spirituelle à circuler plus fluidement.
 
@@ -124,6 +124,6 @@ Avec le niveau de culture de Wang Lin, tuer cet homme était aussi simple que de
 
 Il se trouvait actuellement à un demi-pas du stade de la Transformation de l'Âme. Dès qu'il posséderait suffisamment de jades célestes, il atteindrait ce stade. Cependant, les jades célestes étaient bien trop rares.
 
-Wang Lin regarda l'endroit où le vieil homme du Clan des Immortels Délaissés avait péri et commença à réfléchir.
+Wang Lin regarda l'endroit où le vieil homme du Clan Xian Yi avait péri et commença à réfléchir.
 
-« Zhu Quezi aurait vraiment conclu un accord avec le Clan des Immortels Délaissés? C'est étrange... Et il y a aussi Qian Feng... » Les yeux de Wang Lin s'illuminèrent.
+« Zhu Quezi aurait vraiment conclu un accord avec le Clan Xian Yi? C'est étrange... Et il y a aussi Qian Feng... » Les yeux de Wang Lin s'illuminèrent.

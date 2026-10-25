@@ -62,11 +62,11 @@ Lentement, divers trésors magiques, pilules et parchemins furent présentés. T
 
 Chacun de ces articles aurait pu être placé au plus haut étage du pavillon de raffinage des trésors pour être vendu à un prix astronomique. La plupart des cultivateurs présents ne faisaient que des échanges. Ce qu'ils recherchaient avant tout, c'étaient les pilules et les matériaux de fabrication. Bien sûr, les objets magiques et les pilules finies étaient également très prisés. Après cela, la priorité allait aux pierres spirituelles.
 
-Avant la disparition du brouillard entourant la Mer des Démons, les pierres spirituelles n'avaient pas une grande utilité; leur valeur était faible car elles n'étaient nécessaires qu'occasionnellement pour la culture.
+Avant la disparition du brouillard entourant la Mer Xiu Mo, les pierres spirituelles n'avaient pas une grande utilité; leur valeur était faible car elles n'étaient nécessaires qu'occasionnellement pour la culture.
 
-Mais depuis que le brouillard s'était dissipé et que les bêtes avaient commencé à envahir la Mer des Démons, l'usage des tableaux de transfert s'était intensifié.
+Mais depuis que le brouillard s'était dissipé et que les bêtes avaient commencé à envahir la Mer Xiu Mo, l'usage des tableaux de transfert s'était intensifié.
 
-Il existait deux types de tableaux de transfert. Le premier consistait en des tableaux anciens, créés par des cultivateurs d'autrefois. Il n'en restait que peu, et beaucoup étaient endommagés, ce qui limitait leur usage. Selon la quantité de pierres spirituelles investie, ils pouvaient téléporter un individu sur au moins cinq cent mille kilomètres. Cependant, leur utilisation exigeait une pierre spirituelle de qualité supérieure, ce qui les rendait inaccessibles pour la plupart des habitants de la Mer des Démons.
+Il existait deux types de tableaux de transfert. Le premier consistait en des tableaux anciens, créés par des cultivateurs d'autrefois. Il n'en restait que peu, et beaucoup étaient endommagés, ce qui limitait leur usage. Selon la quantité de pierres spirituelles investie, ils pouvaient téléporter un individu sur au moins cinq cent mille kilomètres. Cependant, leur utilisation exigeait une pierre spirituelle de qualité supérieure, ce qui les rendait inaccessibles pour la plupart des habitants de la Mer Xiu Mo.
 
 En effet, les pierres spirituelles de qualité supérieure étaient presque éteintes. Même si quelqu'un en possédait, rares étaient ceux prêts à en sacrifier une pour un tableau de transfert.
 
@@ -114,17 +114,17 @@ En voyant qu'il ne présentait que des objets très communs, ils furent déçus.
 
 Wang Lin déclara lentement: « Je souhaiterais obtenir une carte de la planète Suzaku. Plus elle sera complète, mieux ce sera. »
 
-À ces mots, les expressions des cultivateurs devinrent étranges. Après un long moment, l'un d'eux dit: « Confrère, avec de simples objets comme ceux-là, il sera très difficile d'obtenir une carte. Je crains que vous ne puissiez même pas obtenir une carte de la seule Mer des Démons. »
+À ces mots, les expressions des cultivateurs devinrent étranges. Après un long moment, l'un d'eux dit: « Confrère, avec de simples objets comme ceux-là, il sera très difficile d'obtenir une carte. Je crains que vous ne puissiez même pas obtenir une carte de la seule Mer Xiu Mo. »
 
 Wang Lin répondit calmement: « Oh? Et que me faudrait-il pour obtenir une telle carte? »
 
-L'érudit esquissa un sourire chaleureux et dit: « Vous devez être nouveau dans la Mer des Démons, permettez-moi de vous expliquer. Non seulement pour la Mer des Démons, mais pour n'importe quel pays de culture, une carte est primordiale. La planète Suzaku est tout simplement trop vaste; sans carte, on ne sait pas où l'on va. »
+L'érudit esquissa un sourire chaleureux et dit: « Vous devez être nouveau dans la Mer Xiu Mo, permettez-moi de vous expliquer. Non seulement pour la Mer Xiu Mo, mais pour n'importe quel pays de culture, une carte est primordiale. La planète Suzaku est tout simplement trop vaste; sans carte, on ne sait pas où l'on va. »
 
-« Quant à la Mer des Démons, c'est encore plus crucial. Une carte de la Mer des Démons, même de qualité inférieure, exigerait au minimum 100 000 pierres spirituelles de haute qualité. Quant aux cartes de qualité moyenne, voire supérieure, elles n'ont tout bonnement pas de prix sur le marché. Les objets que vous présentez ne suffisent tout simplement pas. »
+« Quant à la Mer Xiu Mo, c'est encore plus crucial. Une carte de la Mer Xiu Mo, même de qualité inférieure, exigerait au minimum 100 000 pierres spirituelles de haute qualité. Quant aux cartes de qualité moyenne, voire supérieure, elles n'ont tout bonnement pas de prix sur le marché. Les objets que vous présentez ne suffisent tout simplement pas. »
 
-« Quant à la carte de toute la planète Suzaku, aucun cultivateur seul ne peut la posséder. Si vous avez de quoi payer l'équivalent, j'ai bien une carte de la Mer des Démons, mais elle est de qualité inférieure et de nombreux endroits n'y sont pas très complets. »
+« Quant à la carte de toute la planète Suzaku, aucun cultivateur seul ne peut la posséder. Si vous avez de quoi payer l'équivalent, j'ai bien une carte de la Mer Xiu Mo, mais elle est de qualité inférieure et de nombreux endroits n'y sont pas très complets. »
 
-Wang Lin réfléchit un instant et demanda: « Confrère, possédez-vous une carte à grande échelle incluant les pays de culture entourant la Mer des Démons? »
+Wang Lin réfléchit un instant et demanda: « Confrère, possédez-vous une carte à grande échelle incluant les pays de culture entourant la Mer Xiu Mo? »
 
 L'érudit eut un sourire amer en secouant la tête: « Je n'ai pas ce genre de carte. »
 
@@ -132,17 +132,17 @@ Un cultivateur vêtu d'une robe, assis dans un coin, s'exclama soudainement: « 
 
 Le regard de Wang Lin se posa sur lui.
 
-Le cultivateur en robe déclara lentement: « Une carte de haute qualité de la Mer des Démons incluant les quatre continents environnants et 148 pays. Quel prix êtes-vous prêt à offrir? »
+Le cultivateur en robe déclara lentement: « Une carte de haute qualité de la Mer Xiu Mo incluant les quatre continents environnants et 148 pays. Quel prix êtes-vous prêt à offrir? »
 
 À ces mots, tous les cultivateurs se retournèrent, les yeux brillants d'envie. Une carte de haute qualité était déjà rare, mais celle-ci couvrait les quatre continents et 148 pays; cela représentait presque un dixième de la planète Suzaku!
 
 Le prix de cette carte serait inimaginablement élevé.
 
-Wang Lin réfléchit. Actuellement, il possédait deux cartes: celle obtenue de Qiu Siping et celle du Temple du Dieu de la Guerre.
+Wang Lin réfléchit. Actuellement, il possédait deux cartes: celle obtenue de Qiu Siping et celle du Temple Zhan Shen.
 
-La carte de la femme en tenue de palais du Temple du Dieu de la Guerre était assez complète, mais elle s'arrêtait à la Mer des Démons. Le continent Xuan Wu, où se trouve le pays de Huo Fen, y était décrit avec le plus de détails; la périphérie extérieure de la Mer des Démons l'était un peu moins; et une fois dans la mer intérieure, il n'y avait plus que des indications approximatives, certains tableaux de transfert n'étant même pas marqués.
+La carte de la femme en tenue de palais du Temple Zhan Shen était assez complète, mais elle s'arrêtait à la Mer Xiu Mo. Le continent Xuan Wu, où se trouve le pays de Huo Fen, y était décrit avec le plus de détails; la périphérie extérieure de la Mer Xiu Mo l'était un peu moins; et une fois dans la mer intérieure, il n'y avait plus que des indications approximatives, certains tableaux de transfert n'étant même pas marqués.
 
-Quant au continent situé de l'autre côté de la Mer des Démons, on n'y voyait même pas d'indications approximatives, seulement le tracé de quelques montagnes. En analysant sa carte, Wang Lin soupçonnait que Zhao se trouvait de l'autre côté, mais ce n'était qu'une conjecture. C'est pourquoi il n'avait pas agi immédiatement, préférant chercher une carte plus exhaustive.
+Quant au continent situé de l'autre côté de la Mer Xiu Mo, on n'y voyait même pas d'indications approximatives, seulement le tracé de quelques montagnes. En analysant sa carte, Wang Lin soupçonnait que Zhao se trouvait de l'autre côté, mais ce n'était qu'une conjecture. C'est pourquoi il n'avait pas agi immédiatement, préférant chercher une carte plus exhaustive.
 
 Wang Lin demanda: « Que voulez-vous? »
 
@@ -194,9 +194,9 @@ Ces détails n'étaient pas le point principal, mais, pour les anciens tableaux 
 
 Ce qui excita encore plus Wang Lin fut la présence de brèves descriptions des puissances derrière chaque pays de culture, ainsi que des relevés assez détaillés sur l'emplacement des mines et des repaires de bêtes sauvages. Cette carte était d'une valeur inestimable.
 
-Mais si tout cela n'était pas assez tentant, ce qui suivit le choqua totalement: les environs de la Mer des Démons ne comprenaient pas seulement deux continents comme l'indiquait sa carte du Temple du Dieu de la Guerre, mais quatre.
+Mais si tout cela n'était pas assez tentant, ce qui suivit le choqua totalement: les environs de la Mer Xiu Mo ne comprenaient pas seulement deux continents comme l'indiquait sa carte du Temple Zhan Shen, mais quatre.
 
-Sur la carte, on voyait clairement les quatre continents entourant la Mer des Démons. Sur le continent situé à gauche, il put lire un mot minuscule: Zhao.
+Sur la carte, on voyait clairement les quatre continents entourant la Mer Xiu Mo. Sur le continent situé à gauche, il put lire un mot minuscule: Zhao.
 
 Le vieillard pointa machinalement un endroit sur la carte. Celle-ci disparut pour laisser place à une vue plongeante de la zone désignée, comme si l'on observait le lieu depuis les cieux.
 

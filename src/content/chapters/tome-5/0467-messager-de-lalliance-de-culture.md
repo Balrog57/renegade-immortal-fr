@@ -1,6 +1,6 @@
 ---
 n: 467
-title: "Messager de l'Alliance de Culture"
+title: "Messager de l'Alliance Xiu Zhen"
 book: 5
 bookTitle: Cultivation Planet Crystal
 en: Chapter 467 - Cultivation alliance messenger
@@ -54,7 +54,7 @@ Cependant, il était trop tard; les innombrables fragments d'âme et les âmes p
 
 Le symbole noir fendit l'air comme un éclair et se brisa à une dizaine de mètres de Tuo Sen. Une onde noire apparut soudainement, semblant douée d'une intelligence propre; elle ne se propagea pas de manière aléatoire, mais chargea droit sur Tuo Sen.
 
-Un son fracassant, capable de déchirer les cieux, ébranla l'intégralité du Tombeau de Suzaku.
+Un son fracassant, capable de déchirer les cieux, ébranla l'intégralité du Tombeau Zhu Que.
 
 À cet instant, non seulement ceux qui se trouvaient dans la tombe, mais tous les êtres de la planète purent ressentir cette aura capable de détruire les firmaments.
 
@@ -116,19 +116,19 @@ Yun Quezi fixa l'inconnu et murmura pour lui-même: « Ye Wuyou? »
 
 « Il n'est pas le premier Suzaku. Ne lance pas de suppositions au hasard! » Zhu Quezi coupa rapidement la parole à Yun Quezi. Il regarda l'homme masqué et dit respectueusement: « Ce junior salue le Messager de l'Alliance. Concernant cette affaire, ce junior reconnaît ses torts. »
 
-« Le Messager de l'Alliance... le Messager de l'Alliance de Culture! » Yun Quezi prit une inspiration glacée.
+« Le Messager de l'Alliance... le Messager de l'Alliance Xiu Zhen! » Yun Quezi prit une inspiration glacée.
 
-« Zhu Quezi, ta durée de vie a atteint son terme, tu devrais être mort. Il est inutile de te forcer à rester! Tenter de briser le Cristal de la Planète de Culture est considéré comme un crime majeur au sein de l'Alliance de Culture. Compte tenu du fait que tu avais tes raisons, je ne poursuivrai pas cette affaire pour l'instant, mais tu dois quitter ce monde immédiatement! »
+« Zhu Quezi, ta durée de vie a atteint son terme, tu devrais être mort. Il est inutile de te forcer à rester! Tenter de briser le Cristal de la Planète de Culture est considéré comme un crime majeur au sein de l'Alliance Xiu Zhen. Compte tenu du fait que tu avais tes raisons, je ne poursuivrai pas cette affaire pour l'instant, mais tu dois quitter ce monde immédiatement! »
 
-Le visage de Zhu Quezi était empreint d'amertume alors qu'il hochait silencieusement la tête. Ses yeux s'illuminèrent et il dit: « Seigneur Messager, je peux partir, mais le Clan des Immortels Délaissés... »
+Le visage de Zhu Quezi était empreint d'amertume alors qu'il hochait silencieusement la tête. Ses yeux s'illuminèrent et il dit: « Seigneur Messager, je peux partir, mais le Clan Xian Yi... »
 
 L'homme masqué l'interrompit: « Je m'en occuperai! »
 
 Zhu Quezi prit une profonde inspiration, s'assit en tailleur et ferma les yeux. Un sourire amer resta sur son visage alors qu'il rendait l'âme...
 
-Sa durée de vie touchait déjà à sa fin, mais il avait pris temporairement celle de Qian Feng pour prolonger son existence. Maintenant qu'il avait rencontré le Messager de l'Alliance de Culture, il devait tout abandonner...
+Sa durée de vie touchait déjà à sa fin, mais il avait pris temporairement celle de Qian Feng pour prolonger son existence. Maintenant qu'il avait rencontré le Messager de l'Alliance Xiu Zhen, il devait tout abandonner...
 
-Au moment de sa mort, il se souvint des écrits laissés par le premier Suzaku, Ye Wuyou. Ceux-ci stipulaient qu'il y avait toujours un Messager de l'Alliance de Culture sur la planète Suzaku. Le messager changeait à chaque génération et restait très bien caché...
+Au moment de sa mort, il se souvint des écrits laissés par le premier Suzaku, Ye Wuyou. Ceux-ci stipulaient qu'il y avait toujours un Messager de l'Alliance Xiu Zhen sur la planète Suzaku. Le messager changeait à chaque génération et restait très bien caché...
 
 Les yeux de Wang Lin s'illuminèrent et il recula lentement.
 
@@ -142,7 +142,7 @@ Le regard de Wang Lin devint sérieux. « C'est toi! »
 
 « Nous ne nous sommes pas vus depuis de nombreuses années, mais le frère Da Niu est toujours aussi gracieux qu'autrefois. Cependant, il y a une chose que je ne comprends toujours pas: pourquoi as-tu refusé de devenir le prochain Suzaku? »
 
-Sur la planète Suzaku, dans la Mer des Démons, au cœur de la Terre de l'Ancien Dieu, sur le pilier trônant au milieu de la mer de sang, Tuo Sen leva soudainement la tête. Un bref ressentiment passa dans son regard. Ce sentiment disparut rapidement, remplacé par une lumière rouge intense.
+Sur la planète Suzaku, dans la Mer Xiu Mo, au cœur de la Terre Gu Shen, sur le pilier trônant au milieu de la mer de sang, Tuo Sen leva soudainement la tête. Un bref ressentiment passa dans son regard. Ce sentiment disparut rapidement, remplacé par une lumière rouge intense.
 
 « Tu peux briser mon fragment de Sens Divin, mais tu ne pourras pas m'empêcher de m'échapper! »
 

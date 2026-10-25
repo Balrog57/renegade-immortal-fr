@@ -84,7 +84,7 @@ Liu Jinbiao, qui se tenait aux côtés de Wang Lin, se retourna soudainement. Wa
 
 « Que mon corps fusionne avec ce monde... Que mon Sens Divin s'assimile au vide... Que mon âme se répande sur la voûte céleste; avec mon rêve, je rêverai du changement dans le temps... » La fusion du Tao des Rêves de Wang Lin et du Temps Fluide créa une puissance mystérieuse lui permettant de retourner dans le passé, tout comme dans le monde de la grotte!
 
-Wang Lin ignorait si d'autres pouvaient accomplir un tel prodige, mais parmi tous ceux qu'il avait rencontrés, lui seul en était capable, et il devait emprunter la puissance de la Voile Fantôme de la Secte de la Grande Âme!
+Wang Lin ignorait si d'autres pouvaient accomplir un tel prodige, mais parmi tous ceux qu'il avait rencontrés, lui seul en était capable, et il devait emprunter la puissance de la Voile Fantôme de la Secte Da Hun!
 
 Alors qu'il s'immergeait dans le Tao des Rêves, il leva silencieusement sa main droite et fit un geste. La Voile Fantôme apparut et tourna autour de lui.
 

@@ -42,7 +42,7 @@ Un hurlement strident chargea dans la faille de la Formation de Scellement du Ro
 
 Wang Lin était déjà désavantagé face à une seule flèche. Deux flèches signifiaient la mort pour lui!
 
-Les pupilles de Wang Lin se rétractèrent. Le feu dans son œil gauche tourbillonnait follement et le tonnerre dans son œil droit vacillait frénétiquement. Les essences de son corps éclatèrent soudainement. Il était trop tard pour réfléchir; il savait seulement que s'il ne détruisait pas cette flèche avant l'arrivée de la seconde, il mourrait. Une aura délirante surgit soudainement dans le Système Stellaire de la Mer des Nuages et se précipita. À mesure que l'aura approchait, l'ombre d'un homme d'âge moyen aux pieds nus apparut devant Wang Lin!
+Les pupilles de Wang Lin se rétractèrent. Le feu dans son œil gauche tourbillonnait follement et le tonnerre dans son œil droit vacillait frénétiquement. Les essences de son corps éclatèrent soudainement. Il était trop tard pour réfléchir; il savait seulement que s'il ne détruisait pas cette flèche avant l'arrivée de la seconde, il mourrait. Une aura délirante surgit soudainement dans le Système Stellaire de la Mer Yun et se précipita. À mesure que l'aura approchait, l'ombre d'un homme d'âge moyen aux pieds nus apparut devant Wang Lin!
 
 Wang Lin connaissait cet homme. C'était la puissante bête féroce scellée par le Seigneur du Royaume Scellé, Tai Aluo!
 
@@ -110,7 +110,7 @@ L'épée de sang vola vers la faille de la Formation de Scellement du Royaume qu
 
 Le cultivateur en blanc, devenu un vieillard, était plongé dans l'incrédulité et l'amertume. Il était stupéfait de n'avoir pu tuer Wang Lin après deux flèches. À ce stade, il avait perdu trop de vitalité et ne put que soupirer intérieurement avec regret. Il lança un regard froid à Wang Lin à travers la Formation de Scellement du Royaume avant de se détourner.
 
-Cependant, alors qu'il prenait congé, une énergie démoniaque jaillit du Système Stellaire de la Mer des Nuages. Cette énergie était d'une rapidité extrême, égalant celle de la flèche précédente!
+Cependant, alors qu'il prenait congé, une énergie démoniaque jaillit du Système Stellaire de la Mer Yun. Cette énergie était d'une rapidité extrême, égalant celle de la flèche précédente!
 
 Alors que l'énergie se propageait, le démon ancien de la Secte Fantôme apparut sous forme de fantôme près de la Formation de Scellement du Royaume. Les neuf étoiles dans son œil gauche tourbillonnaient. Ses yeux brillaient d'avidité alors qu'il fixait l'arc entre les mains du vieillard. Toutefois, son corps n'était qu'une projection; son véritable corps n'était pas là. Bien qu'il possédât neuf étoiles dans l'œil, ce n'était qu'une simple illusion.
 

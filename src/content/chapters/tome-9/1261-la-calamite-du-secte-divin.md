@@ -26,7 +26,7 @@ C'était également l'aura d'un Ancien Dieu Royal!
 
 Cette aura existait depuis une durée inimaginable; elle était même plus ancienne que Tu Si! Ce qui choqua Wang Lin, c'est que cette aura s'était affaiblie au fil des millénaires. S'il n'avait pas été aussi proche qu'il l'était maintenant, il ne l'aurait jamais remarquée.
 
-C'était la vérité. Tuo Sen était également venu dans la Mer des Nuages, mais il ne l'avait pas perçue.
+C'était la vérité. Tuo Sen était également venu dans la Mer Yun, mais il ne l'avait pas perçue.
 
 Lorsque les pieds de Wang Lin touchèrent le sol de la montagne, il eut l'impression que celle-ci tremblait. C'était comme si une âme s'éveillait lentement en raison de sa présence.
 
@@ -80,13 +80,13 @@ En ce laps de temps, la sixième étoile entre ses sourcils commença à former 
 
 « Cela a permis à mon étoile de montrer des signes de récupération en un instant seulement... L'étoile utilisée pour forger cette épée pourrait-elle provenir d'un... d'un Ancien Dieu Royal de 9 étoiles? » Wang Lin reposa sa tasse et réprima le choc dans son esprit.
 
-Sur une autre planète de culture, sur ordre de Feng Hai et des autres Anciens, les dizaines de milliers de cultivateurs se dispersèrent. Chaque secte retourna à sa résidence. Quant à la Secte de l'Origine, Feng Hai les fit personnellement déménager de leur campement reculé vers la zone réservée aux sectes de rang 7.
+Sur une autre planète de culture, sur ordre de Feng Hai et des autres Anciens, les dizaines de milliers de cultivateurs se dispersèrent. Chaque secte retourna à sa résidence. Quant à la Secte Gui Yuan, Feng Hai les fit personnellement déménager de leur campement reculé vers la zone réservée aux sectes de rang 7.
 
 Simultanément, une puissante formation s'activa autour de la planète. Nul ne pouvait partir sans un jeton, bien que l'entrée fût libre.
 
-Li Qianmei s'installa avec les membres de la Secte de l'Origine. Elle se tint dans la cour alors que le ciel s'obscurcissait, regardant les cieux en attendant le retour de Wang Lin.
+Li Qianmei s'installa avec les membres de la Secte Gui Yuan. Elle se tint dans la cour alors que le ciel s'obscurcissait, regardant les cieux en attendant le retour de Wang Lin.
 
-Mu Bingmei restait silencieuse, seule à 10 000 pieds de l'emplacement de la Secte de l'Origine. La lumière lunaire éclairait sa silhouette solitaire, lui donnant un air mélancolique. Elle mordilla sa lèvre inférieure, attendant Wang Lin comme Li Qianmei. Elle avait quelque chose à lui dire, quelque chose qu'elle se devait de lui dire...
+Mu Bingmei restait silencieuse, seule à 10 000 pieds de l'emplacement de la Secte Gui Yuan. La lumière lunaire éclairait sa silhouette solitaire, lui donnant un air mélancolique. Elle mordilla sa lèvre inférieure, attendant Wang Lin comme Li Qianmei. Elle avait quelque chose à lui dire, quelque chose qu'elle se devait de lui dire...
 
 De la même manière, loin de la région de rang 8, au cœur de la région de rang 9 et enveloppée d'un brouillard dense, se trouvait une immense planète de culture. Un palais y dégageait une aura imposante, et à l'intérieur siégeait un garçon.
 
@@ -94,7 +94,7 @@ Ce garçon avait le teint rosé, mais les cheveux blancs. Ses yeux s'ouvraient e
 
 Le garçon leva la main droite et pointa chaque jade du doigt avant de s'arrêter sur celui marqué « Lu Zihao ».
 
-« Depuis que l'aura du Maître s'est manifestée, j'ai utilisé le pouvoir de la Secte Divine pour fouiller la Mer des Nuages à la recherche d'individus suspects. J'en ai trouvé sept! Après les avoir éliminés un par un, il ne reste que ce Lu Zihao... » Une lueur d'intention meurtrière traversa les yeux du garçon aux cheveux blancs.
+« Depuis que l'aura du Maître s'est manifestée, j'ai utilisé le pouvoir de la Secte Divine pour fouiller la Mer Yun à la recherche d'individus suspects. J'en ai trouvé sept! Après les avoir éliminés un par un, il ne reste que ce Lu Zihao... » Une lueur d'intention meurtrière traversa les yeux du garçon aux cheveux blancs.
 
 À cet instant précis, il fronça les sourcils. Sa main s'étendit et un feu commença à brûler. Un jade apparut au milieu des flammes; il avait été envoyé par Wang Shanshan via une méthode spéciale.
 

@@ -44,7 +44,7 @@ Cependant, Wang Lin savait que cette simple ruse ne lui ferait gagner qu'un peu 
 
 Il prit une profonde inspiration, puis quitta rapidement la grotte. En sortant, il rangea son drapeau de restriction et s'éclipsa prestement.
 
-Wang Lin savait qu'il ne pouvait pas rester longtemps dans la Mer des Démons, sous peine de subir de graves ennuis. Si tout s'était déroulé comme prévu, une fois l'Âme Naissante atteinte, il aurait pu parcourir la Mer des Démons sans entrave: hormis quelques vieux monstres de la Formation de l'Âme à éviter, il n'aurait craint personne.
+Wang Lin savait qu'il ne pouvait pas rester longtemps dans la Mer Xiu Mo, sous peine de subir de graves ennuis. Si tout s'était déroulé comme prévu, une fois l'Âme Naissante atteinte, il aurait pu parcourir la Mer Xiu Mo sans entrave: hormis quelques vieux monstres de la Formation de l'Âme à éviter, il n'aurait craint personne.
 
 Le seul problème résidait dans la percée vers le stade de l'Âme Naissante, ce qui imposait une légère modification de ses plans.
 
@@ -52,7 +52,7 @@ Après avoir quitté la grotte, Wang Lin atteignit sa vitesse maximale, son corp
 
 Le lendemain matin, Wang Lin arriva à l'ancienne grotte de culture où il avait obtenu l'Âme Naissante. Une fois sur place, il balaya les environs de son Sens Divin. Après s'être assuré qu'il n'y avait personne, il frappa son sac de rangement et son épée empoisonnée en sortit. D'un geste du doigt, l'épée créa un tourbillon et chargea dans les décombres.
 
-Bientôt, un tunnel fut creusé par la lame. En contemplant le passage ainsi formé, Wang Lin pensa: « Adieu, Mer des Démons! »
+Bientôt, un tunnel fut creusé par la lame. En contemplant le passage ainsi formé, Wang Lin pensa: « Adieu, Mer Xiu Mo! »
 
 Il se détourna et pénétra dans le tunnel.
 
@@ -72,7 +72,7 @@ Soudain, un cercle de lumière jaillit du mécanisme et s'éleva dans les airs, 
 
 Une fois Wang Lin disparu, les cercles de lumière cessèrent leur mouvement et retournèrent dans le dispositif, lequel reprit son aspect initial.
 
-Dans une chaîne de montagnes infinie, à des millions de kilomètres de la Mer des Démons, un faisceau de lumière d'une trentaine de mètres de large tomba du ciel, propageant des ondes de choc dans les environs.
+Dans une chaîne de montagnes infinie, à des millions de kilomètres de la Mer Xiu Mo, un faisceau de lumière d'une trentaine de mètres de large tomba du ciel, propageant des ondes de choc dans les environs.
 
 Au cœur de la montagne se trouvait un canyon, et au sein de ce canyon, une petite vallée abritait un réseau de transfert très ancien.
 
@@ -82,9 +82,9 @@ L'individu avait les cheveux blancs et était couvert de poussière. C'était Wa
 
 Wang Lin toussa à plusieurs reprises. Il forma un sceau de la main pour créer une rafale de vent qui nettoya rapidement la zone, balayant la poussière sur son corps.
 
-Il leva la tête et scruta les environs. La lumière vive du soleil frappa ses yeux, le faisant cligner des paupières. En observant son nouvel environnement, il comprit qu'il n'était plus dans la Mer des Démons. Les montagnes étaient parées de verdure et des bêtes volantes inconnues planaient dans le ciel.
+Il leva la tête et scruta les environs. La lumière vive du soleil frappa ses yeux, le faisant cligner des paupières. En observant son nouvel environnement, il comprit qu'il n'était plus dans la Mer Xiu Mo. Les montagnes étaient parées de verdure et des bêtes volantes inconnues planaient dans le ciel.
 
-Wang Lin plissa les yeux. Cela faisait longtemps qu'il n'avait pas vu une telle clarté solaire. La Mer des Démons ne connaissait jamais de véritable soleil; même durant ce dernier mois et quelques, bien que la brume se soit dissipée, le ciel lointain était perpétuellement voilé par des nuages noirs déversant une pluie sombre sur la terre.
+Wang Lin plissa les yeux. Cela faisait longtemps qu'il n'avait pas vu une telle clarté solaire. La Mer Xiu Mo ne connaissait jamais de véritable soleil; même durant ce dernier mois et quelques, bien que la brume se soit dissipée, le ciel lointain était perpétuellement voilé par des nuages noirs déversant une pluie sombre sur la terre.
 
 Il prit une profonde inspiration, se tourna vers le réseau de transfert et sortit son épée empoisonnée. Il en fit sauter à coups d'épée quelques morceaux des matériaux du dispositif, qu'il rangea dans son sac de rangement. Ce n'est qu'alors qu'il se sentit apaisé.
 

@@ -10,9 +10,9 @@ Le royaume de 10 000 pieds se rétracta dans le corps de Wang Lin, mais celui-ci
 
 Tout en réfléchissant, son corps vacilla et il disparut. Il réapparut sur la montagne et s'assit. Il resta hébété un instant, trouvant encore difficile de croire ce qui venait de se produire.
 
-Après sept minutes, Wang Lin ferma les yeux et projeta son esprit à l'intérieur de son corps. Au-dessus de son âme originelle flottait une sphère tourbillonnante, et à l'intérieur se trouvait le Monde du Vent et de la Pluie!
+Après sept minutes, Wang Lin ferma les yeux et projeta son esprit à l'intérieur de son corps. Au-dessus de son âme originelle flottait une sphère tourbillonnante, et à l'intérieur se trouvait le Monde Hu Feng Huan Yu!
 
-Bien que le Monde du Vent et de la Pluie ne couvrait que 10 000 pieds lorsqu'il était à l'extérieur de son corps, il était sans limites une fois à l'intérieur! À cet instant, de nombreux continents flottaient dans ce royaume, tous formés par l'effondrement du Sceau Céleste...
+Bien que le Monde Hu Feng Huan Yu ne couvrait que 10 000 pieds lorsqu'il était à l'extérieur de son corps, il était sans limites une fois à l'intérieur! À cet instant, de nombreux continents flottaient dans ce royaume, tous formés par l'effondrement du Sceau Céleste...
 
 Sur ces continents de tailles diverses résidaient des âmes de guerriers. Ces âmes ne poussaient aucun cri plaintif; elles restaient simplement là, immobiles. Des auras blanc laiteux émanaient du sommet de leurs têtes et étaient absorbées par le royaume. Simultanément, ces auras s'engouffraient directement dans l'esprit de Wang Lin pour rejoindre ses cinq essences.
 
@@ -20,13 +20,13 @@ Les cinq essences de Wang Lin ressemblaient à des plantes au printemps, entour�
 
 « Ceci... ceci est... » Wang Lin était toujours sous le choc. C'était parce qu'il reconnaissait cette aura blanc laiteux que le choc était d'autant plus intense, tel un coup de tonnerre résonnant dans son esprit.
 
-Cette aura n'était pas étrangère à Wang Lin. Lorsque la statue du démon ancien dans la Terre des Esprits Démoniaques était vénérée par Treize et les autres, cette aura était également présente...
+Cette aura n'était pas étrangère à Wang Lin. Lorsque la statue du démon ancien dans la Terre Yao Ling était vénérée par Treize et les autres, cette aura était également présente...
 
-Dans la Mer des Nuages, lors du combat contre le Shui Daozi, le dernier sort utilisé par ce dernier contenait également cette aura...
+Dans la Mer Yun, lors du combat contre le Shui Daozi, le dernier sort utilisé par ce dernier contenait également cette aura...
 
 La conversation avec le Seigneur du Royaume Scellé et Lanmeng Daozun pointait tous vers la clé pour devenir un cultivateur de la troisième étape: les Flammes Joss!
 
-Wang Lin ne comprenait pas ce que sont les Flammes Joss ni comment elles étaient créées. Cependant, en fusionnant le Monde du Vent et de la Pluie avec le Sceau Céleste, cette scène s'était déployée, ce qui ne fit qu'accroître sa confusion.
+Wang Lin ne comprenait pas ce que sont les Flammes Joss ni comment elles étaient créées. Cependant, en fusionnant le Monde Hu Feng Huan Yu avec le Sceau Céleste, cette scène s'était déployée, ce qui ne fit qu'accroître sa confusion.
 
 Ces âmes de guerriers étaient toutes des personnes qu'il avait tuées, mais elles étaient devenues des disciples lui fournissant des Flammes Joss. C'était la fortune de Wang Lin, l'héritage du Seigneur du Royaume Scellé et une mutation presque impossible à reproduire. Même Lanmeng Daozun n'aurait jamais imaginé que l'enseignement du sort de fusion à Wang Lin engendrerait un tel changement.
 
@@ -42,11 +42,11 @@ Cependant, sans une opportunité de l'activer, ce pouvoir se serait lentement di
 
 Cette opportunité survint lorsque Lanmeng Daozun fusionna l'Appel du Vent et l'Invocation de la Pluie en un monde! C'était comme donner des racines à une plante dépourvue de racines!
 
-Puis, Wang Lin tenta de fusionner l'Arsenal Magique et le Monde du Vent et de la Pluie. Cela permit à ce changement, à cette opportunité, d'éclore!
+Puis, Wang Lin tenta de fusionner l'Arsenal Magique et le Monde Hu Feng Huan Yu. Cela permit à ce changement, à cette opportunité, d'éclore!
 
 Bien que les âmes de guerriers fussent peu nombreuses et les Flammes Joss très faibles — bien loin des deux milliards de disciples du Shui Daozi — il s'agissait là de véritables Flammes Joss. La clé pour atteindre la troisième étape, un trésor de Dao pour lequel les cultivateurs de ce niveau se disputeraient avec acharnement!
 
-L'expression de Wang Lin était très singulière. Il ouvrit les yeux et médita silencieusement un instant avant de mettre cette pensée de côté. Après tout, le danger représenté par la femme en blanc à l'extérieur du Clan de la Soie Bleue persistait. Même s'il avait créé ce trésor par inadvertance, cela ne lui serait d'aucun secours si cela ne l'aidait pas à résoudre la crise posée par cette femme.
+L'expression de Wang Lin était très singulière. Il ouvrit les yeux et médita silencieusement un instant avant de mettre cette pensée de côté. Après tout, le danger représenté par la femme en blanc à l'extérieur du Clan Lan Si persistait. Même s'il avait créé ce trésor par inadvertance, cela ne lui serait d'aucun secours si cela ne l'aidait pas à résoudre la crise posée par cette femme.
 
 Ses yeux s'illuminèrent et sa main droite s'avança. Une fissure dans son espace de stockage apparut et un immense fragment d'os de doigt en jaillit. En flottant dans les airs, il ressemblait à un continent!
 
@@ -64,7 +64,7 @@ Le vieil homme avait les yeux clos. La marque en croissant de lune entre ses sou
 
 « Puisque le Clan Dévorant la Lune possédait l'os de doigt du dieu ancien, ils doivent avoir une méthode pour l'utiliser... » Le regard de Wang Lin se posa sur l'âme originelle du vieillard.
 
-Le niveau de culture de cet homme était extrêmement élevé, presque comparable à celui de l'Empereur Divin du Dragon Azure, qui s'était échappé jadis du Royaume de la Pluie, et frôlant le quatrième Fléau Céleste. Si Wang Lin l'avait rencontré seul, il n'aurait pas été son égal.
+Le niveau de culture de cet homme était extrêmement élevé, presque comparable à celui de l'Empereur Divin du Dragon Azure, qui s'était échappé jadis du Royaume Yu Zhi Xian Jie, et frôlant le quatrième Fléau Céleste. Si Wang Lin l'avait rencontré seul, il n'aurait pas été son égal.
 
 Cependant, cet homme s'était évidemment montré incapable de résister aux attaques dévastatrices de Tuo Sen et finit gravement blessé par ce dernier. Puis, lorsque l'os fut brisé en deux, son corps s'effondra et se dissipa sous la force de l'onde de choc de l'aura du dieu ancien.
 
@@ -102,7 +102,7 @@ Après un long moment, Wang Lin leva la main droite, l'expression extrêmement s
 
 L'âme originelle du vieil homme aux cheveux blancs était désormais totalement transparente et commençait à se dissiper lentement. Cependant, au moment de sa disparition, une lueur de lumière sanguine jaillit: l'Épée de Sang perça son crâne, traversa tout son être et le détruisit complètement!
 
-Au moment même de sa mort, l'âme du vieil homme apparut sur un continent à l'intérieur du Monde du Vent et de la Pluie. Il s'y assit, dégageant une quantité phénoménale d'aura blanc laiteux...
+Au moment même de sa mort, l'âme du vieil homme apparut sur un continent à l'intérieur du Monde Hu Feng Huan Yu. Il s'y assit, dégageant une quantité phénoménale d'aura blanc laiteux...
 
 « Le Clan Dévorant la Lune est extrêmement vaste. Le groupe que Tuo Sen et moi avons détruit n'était qu'une branche. Dans le Système Stellaire Antique, le Clan Dévorant la Lune possède encore trois autres branches... Et dans la branche située plein est, il existe un ancêtre du Clan Dévorant la Lune. Cette personne est... un cultivateur de la troisième étape! »
 

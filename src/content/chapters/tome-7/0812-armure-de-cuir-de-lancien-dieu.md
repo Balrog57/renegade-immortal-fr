@@ -12,11 +12,11 @@ Les ailes du papillon s'immobilisèrent, puis se transformèrent en une pluie de
 
 Le cœur de Wang Lin se détendit, mais une fine couche de sueur perla sur son front. Cette sensation de transpiration froide était rare pour lui. Cependant, la vision d'un cultivateur au sommet du stade Yang Corporel dont le corps et l'âme originelle s'effondraient totalement suite à un simple battement d'aile du papillon l'avait profondément choqué.
 
-« Avec ce Char de Guerre Divin et la Paire de Dao Fanée, je peux affronter des cultivateurs au stade du Scruteur du Nirvana! » Les yeux de Wang Lin brillèrent alors qu'il regardait autour de lui. Les membres du Clan des Immortels Élus retrouvèrent leur état normal après la mort de l'homme en robe bleue. Leurs regards étaient empreints de tristesse et ils restaient silencieux sur le sol.
+« Avec ce Char de Guerre Divin et la Paire de Dao Fanée, je peux affronter des cultivateurs au stade du Scruteur du Nirvana! » Les yeux de Wang Lin brillèrent alors qu'il regardait autour de lui. Les membres du Clan Xian Xuan retrouvèrent leur état normal après la mort de l'homme en robe bleue. Leurs regards étaient empreints de tristesse et ils restaient silencieux sur le sol.
 
 Au loin, Ta Shan revint blessé, tenant une grande marmite à la main. Il avait réussi à absorber la bête de brouillard qui s'en prenait aux enfants. Toutefois, ses blessures étaient si graves qu'à son retour, il perdit connaissance.
 
-Le temps passa et dix jours s'écoulèrent. Durant cette période, Wang Lin vécut avec le Clan des Immortels Élus. L'ancêtre lui avait préparé un endroit calme pour séjourner.
+Le temps passa et dix jours s'écoulèrent. Durant cette période, Wang Lin vécut avec le Clan Xian Xuan. L'ancêtre lui avait préparé un endroit calme pour séjourner.
 
 Pendant ces dix jours, Wang Lin ne perdit pas son temps. Après une conversation détaillée avec le vieil homme, il comprit que sa supposition précédente était exacte à 80 %. Cependant, cette affaire ne le concernait pas directement; sa priorité était de trouver un moyen de quitter cet endroit.
 
@@ -26,7 +26,7 @@ Outre le ciel, Wang Lin avait exploré tout le continent, mais sans trouver de s
 
 « Outre l'esprit du Fourneau Yin Mystérieux, il y avait aussi cet homme en robe bleue. Tout cela rend cet endroit extrêmement étrange. Cet homme prétendait être un immortel et le pouvoir qu'il maniait ressemblait à l'énergie spirituelle céleste, mais elle contenait également une aura d'énergie originelle.
 
-« C'était très similaire au Seigneur Céleste Qing Shui du Royaume Céleste du Tonnerre. En tenant compte de la réaction des membres du Clan des Immortels Élus, il est possible que cet homme fût un véritable immortel! »
+« C'était très similaire au Seigneur Céleste Qing Shui du Royaume Céleste du Tonnerre. En tenant compte de la réaction des membres du Clan Xian Xuan, il est possible que cet homme fût un véritable immortel! »
 
 Tandis qu'il réfléchissait, Wang Lin sortit de sa chambre et disparut. Il réapparut dans une plaine sur le flanc oriental du continent.
 

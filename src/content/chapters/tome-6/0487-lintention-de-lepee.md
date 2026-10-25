@@ -100,9 +100,9 @@ Wang Lin fut surpris. Même avec sa force mentale, il ne put s'empêcher d'être
 
 « Un total de 123 600 pièces! » Tandis que la voix du géant résonnait, d'innombrables jades célestes jaillirent du corps de la figure pour s'accumuler à une trentaine de mètres devant Wang Lin.
 
-Wang Lin fixa l'amas de jades qui croissait à vue d'œil et sentit sa gorge s'assécher. Il n'aurait jamais imaginé que la Secte du Destin Céleste compte les jades de cette manière.
+Wang Lin fixa l'amas de jades qui croissait à vue d'œil et sentit sa gorge s'assécher. Il n'aurait jamais imaginé que la Secte Tian Yun compte les jades de cette manière.
 
-« Si une place de disciple reste vacante pendant plus de dix mille ans, la quantité de jades accumulée atteindra un niveau inimaginable... Les jades célestes sont censés être rares, alors pourquoi la Secte du Destin Céleste en possède-t-elle autant... » Wang Lin prit une grande inspiration. À cet instant, les jades formaient déjà une petite montagne. Ses yeux s'illuminèrent alors qu'il les rangeait rapidement dans son sac de rangement.
+« Si une place de disciple reste vacante pendant plus de dix mille ans, la quantité de jades accumulée atteindra un niveau inimaginable... Les jades célestes sont censés être rares, alors pourquoi la Secte Tian Yun en possède-t-elle autant... » Wang Lin prit une grande inspiration. À cet instant, les jades formaient déjà une petite montagne. Ses yeux s'illuminèrent alors qu'il les rangeait rapidement dans son sac de rangement.
 
 Une fois terminé, il toucha son sac; il avait toujours l'impression que ce n'était pas réel.
 

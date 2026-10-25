@@ -14,7 +14,7 @@ Wang Lin ne cilla même pas, contrôlant la flamme froide pour affiner le fourre
 
 Cette flamme froide était une création qu'il avait élaborée en tentant de copier la flamme du noyau d'un cultivateur au stade de la Formation du Noyau. N'ayant personne pour le conseiller, il s'était montré extrêmement prudent. Après avoir longuement théorisé, il estimait que sa flamme froide était suffisante pour affiner le fourreau.
 
-Le temps passa lentement. Trois jours plus tard, Ye Zizai revint sur la plaine surplombant la Secte des Cadavres tel une météorite. Dès que ses pieds touchèrent le sol, il disparut sans laisser de trace.
+Le temps passa lentement. Trois jours plus tard, Ye Zizai revint sur la plaine surplombant la Secte Shi Yin tel une météorite. Dès que ses pieds touchèrent le sol, il disparut sans laisser de trace.
 
 Lorsqu'il réapparut, il se trouvait déjà dans sa propre chambre. Le visage changeant, il calcula en silence, tout au long du chemin, les gains et les pertes de son alliance avec les trois autres sectes démoniaques.
 
@@ -64,7 +64,7 @@ Il n'y avait aucun cultivateur du milieu du stade de l'Établissement des Fondat
 
 Les pupilles de Wang Lin se rétractèrent légèrement. Au même instant, les seize boules de feu alentour s'assombrirent brusquement, puis la silhouette de Ye Zizai apparut sans un bruit dans les airs. Wang Lin remarqua qu'à son apparition, les yeux de la plupart des occupants de la grotte se remplirent d'une ferveur fanatique.
 
-Le regard de Ye Zizai balaya l'assistance et s'arrêta sur Wang Lin durant quelques secondes. Il déclara d'un ton plat: « Le champ de bataille étranger, qui ne s'ouvre que tous les cent ans, est sur le point de s'ouvrir. Pour gagner le droit d'y entrer, il faut rivaliser avec les sectes orthodoxes. Comme le veut la coutume, les cultivateurs de la Formation du Noyau et de l'Âme Naissante n'ont pas le droit d'y participer. Dans un instant, vous serez tous envoyés au lieu de rassemblement des quatre sectes démoniaques. Là-bas, pour toutes les actions de notre Secte des Cadavres, Du Chen sera votre chef. Du Chen, sors des rangs. »
+Le regard de Ye Zizai balaya l'assistance et s'arrêta sur Wang Lin durant quelques secondes. Il déclara d'un ton plat: « Le champ de bataille étranger, qui ne s'ouvre que tous les cent ans, est sur le point de s'ouvrir. Pour gagner le droit d'y entrer, il faut rivaliser avec les sectes orthodoxes. Comme le veut la coutume, les cultivateurs de la Formation du Noyau et de l'Âme Naissante n'ont pas le droit d'y participer. Dans un instant, vous serez tous envoyés au lieu de rassemblement des quatre sectes démoniaques. Là-bas, pour toutes les actions de notre Secte Shi Yin, Du Chen sera votre chef. Du Chen, sors des rangs. »
 
 Un homme d'âge moyen vêtu de noir s'avança. Wang Lin remarqua qu'il faisait partie des trois cultivateurs du stade avancé de l'Établissement des Fondations ayant déjà atteint le royaume de la pseudo-Formation du Noyau.
 
@@ -90,11 +90,11 @@ Ye Zizai dit d'une voix monocorde: « Partez, j'attendrai les bonnes nouvelles. 
 
 Du Chen inclina respectueusement la tête. Il fut le premier à s'engouffrer dans la porte géante avant de disparaître.
 
-Wang Lin ne montra aucune hésitation: il suivit la foule à travers la porte géante et disparut à son tour de la Secte des Cadavres.
+Wang Lin ne montra aucune hésitation: il suivit la foule à travers la porte géante et disparut à son tour de la Secte Shi Yin.
 
 Une fois tout le monde parti, une voix rauque résonna dans la cavité.
 
-« Ye Zizai, avec plus de vingt marionnettes et la chair et le sang de ce gamin pour amorce, une fois que les marionnettes auront tout absorbé, elles entreront en fureur et leur niveau de culture bondira instantanément au stade de pseudo-Formation du Noyau. Cette fois, la qualification de la Secte des Cadavres est assurée. »
+« Ye Zizai, avec plus de vingt marionnettes et la chair et le sang de ce gamin pour amorce, une fois que les marionnettes auront tout absorbé, elles entreront en fureur et leur niveau de culture bondira instantanément au stade de pseudo-Formation du Noyau. Cette fois, la qualification de la Secte Shi Yin est assurée. »
 
 Ye Zizai répondit calmement: « L'énergie Yin de Wang Lin est très pure, il doit donc receler des secrets. Si c'était il y a quelques années, j'aurais pris le temps d'enquêter, mais il ne me reste plus que trois mois à vivre. Le jour où le champ de bataille s'ouvrira sera le jour où je serai entièrement dévoré, cela n'a donc plus d'intérêt. Puisque j'ai décidé de ne pas le choisir comme chaudron, autant en faire l'amorce des marionnettes, pour leur ajouter un peu de puissance. »
 

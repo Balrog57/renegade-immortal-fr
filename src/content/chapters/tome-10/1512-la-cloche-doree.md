@@ -58,7 +58,7 @@ Le corps de Wang Lin marqua un temps d'arrêt et il tourna le regard. Ce qu'il v
 
 « Un cultivateur de la Métamorphose... » Wang Lin ne dit rien, observant calmement l'homme aux pieds nus.
 
-« Je n'ai aucune intention de faire de vous un ennemi. Si vous levez mon sceau, je peux mener tous les clans de la faille de la Mer des Nuages à combattre pour le Royaume Intérieur! Je peux même tuer cette personne pour vous... » La voix de l'homme aux pieds nus était douce lorsqu'il parla.
+« Je n'ai aucune intention de faire de vous un ennemi. Si vous levez mon sceau, je peux mener tous les clans de la faille de la Mer Yun à combattre pour le Royaume Intérieur! Je peux même tuer cette personne pour vous... » La voix de l'homme aux pieds nus était douce lorsqu'il parla.
 
 L'expression du Shui Daozi changea.
 
@@ -76,7 +76,7 @@ Ces fils noirs et blancs formèrent un filet imprégné d'une aura destructrice 
 
 Peu après, le Shui Daozi ouvrit son espace de stockage et une multitude de trésors en jaillirent. Une lumière multicolore emplit le ciel et fonça vers le poing!
 
-Tous ces objets s'élancèrent vers le ciel pour entrer en collision avec le poing de Wang Lin. Un grondement tonitruant se propagea à travers toute la Mer des Nuages.
+Tous ces objets s'élancèrent vers le ciel pour entrer en collision avec le poing de Wang Lin. Un grondement tonitruant se propagea à travers toute la Mer Yun.
 
 Les deux dragons géants poussèrent des cris lugubres et s'effondrèrent soudainement lors de l'impact. Le filet géant les accompagna, tremblant avant d'être déchiré strate après strate!
 
@@ -92,11 +92,11 @@ Le Shui Daozi projeta cette cloche vers le poing de Wang Lin!
 
 Une énergie spirituelle céleste d'une pureté extrême se répandit à travers le monde. La cloche dorée émit un son cristallin et, au moment où elle rencontra le poing de Wang Lin, une ondulation dorée éclata!
 
-Cette onde contenait un sort du Dao provenant du Royaume Céleste Antique. Dès son apparition, elle se propagea à une vitesse inimaginable depuis cette planète de culture comme épicentre... La Mer des Nuages, l'Alliance, la Rivière Invoquée et Luotian furent balayées par cette ondulation. C'était comme si tout ce qui était caché dans ces systèmes stellaires était soudainement révélé.
+Cette onde contenait un sort du Dao provenant du Royaume Céleste Antique. Dès son apparition, elle se propagea à une vitesse inimaginable depuis cette planète de culture comme épicentre... La Mer Yun, l'Alliance, la Rivière Invoquée et Luotian furent balayées par cette ondulation. C'était comme si tout ce qui était caché dans ces systèmes stellaires était soudainement révélé.
 
 La gigantesque Formation de Scellement du Royaume, qui emprisonnait le Royaume Intérieur, apparut pour la première fois depuis des dizaines de milliers d'années!
 
-Dans le Système Stellaire de la Mer des Nuages, des groupes de cultivateurs voyageaient à travers la brume. Lorsque l'onde dorée se propagea, elle dissipa le brouillard, révélant l'immense formation qui surplombait le système!
+Dans le Système Stellaire de la Mer Yun, des groupes de cultivateurs voyageaient à travers la brume. Lorsque l'onde dorée se propagea, elle dissipa le brouillard, révélant l'immense formation qui surplombait le système!
 
 Dans le Système Stellaire de la Rivière Invoquée, d'innombrables cultivateurs circulaient dans le système en préparation pour la guerre. À cet instant, l'onde dorée se répandit et fut comme un voile mystérieux que l'on déchire. La Formation de Scellement du Royaume apparut devant eux!
 
@@ -116,14 +116,14 @@ L'immensité de cette formation qui enveloppait tout le Royaume Intérieur étai
 
 « Elle scelle le Royaume Intérieur depuis des éternités... Cette formation qui existe depuis des millénaires! Ceci... ceci est... »
 
-« Alors, le système stellaire dans lequel nous vivons était bien scellé, comme l'avait dit la Mer des Nuages! »
+« Alors, le système stellaire dans lequel nous vivons était bien scellé, comme l'avait dit la Mer Yun! »
 
 « Tout était donc vrai!! Les habitants du Système Stellaire Antique sont à l'extérieur de la Formation de Scellement du Royaume!! »
 
-Dans la vallée de la région de rang 1 de la Mer des Nuages, l'expression de Maître Hong Shan changea radicalement. Il fit un pas en avant, brisa le vide et chargea vers la Secte Divine!
+Dans la vallée de la région de rang 1 de la Mer Yun, l'expression de Maître Hong Shan changea radicalement. Il fit un pas en avant, brisa le vide et chargea vers la Secte Divine!
 
 « Damnation, c'est l'aura du Royaume Céleste Antique. Ce Shui Daozi possède réellement un tel objet!! »
 
-Dans le Système Stellaire de l'Alliance, un rugissement fracassant retentit du côté de la Secte des Cadavres.
+Dans le Système Stellaire de l'Alliance, un rugissement fracassant retentit du côté de la Secte Shi Yin.
 
 « Un objet du Royaume Céleste Antique!! Cet objet semble être celui qui a fusionné avec la formation de scellement; avant cette fusion, il était extrêmement fragile. Il ne doit surtout pas être détruit!! » Le fantôme d'un vieil homme apparut rapidement et chargea vers la Secte Divine!

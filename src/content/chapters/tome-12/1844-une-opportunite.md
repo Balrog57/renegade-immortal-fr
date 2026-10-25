@@ -18,7 +18,7 @@ Les ombres apparurent une à une, portées par les auras de leur puissante cultu
 
 Les mille silhouettes qui s'étaient rapprochées de Wang Lin furent piégées par le liquide noir avant même de pouvoir user de leurs pouvoirs divins.
 
-Des cris de détresse résonnèrent dans la Mer des Pilules. Tous les cultivateurs en robes vertes touchés par l'eau noire tremblèrent tandis que leurs corps se corrodaient rapidement et que leurs âmes originelles se dissipaient.
+Des cris de détresse résonnèrent dans la Mer Dan. Tous les cultivateurs en robes vertes touchés par l'eau noire tremblèrent tandis que leurs corps se corrodaient rapidement et que leurs âmes originelles se dissipaient.
 
 Certains semblèrent suffoquer; leurs yeux s'écarquillèrent et ils moururent. L'eau ne coupait pas seulement l'air, mais aussi l'énergie céleste et les flammes brûlantes de leur vie.
 
@@ -30,21 +30,21 @@ Tout cela se produisit à l'instant même où la main droite de Wang Lin forma u
 
 Après avoir fait sept pas, Wang Lin se retourna soudainement et regarda au loin. Dans cette direction se trouvait l'emplacement des trois drapeaux où se tenait la femme!
 
-Le corps de la femme tremblait et ses yeux étaient emplis de terreur. Tous les points verts autour de Wang Lin avaient été éteints. Le noir qui recouvrait la moitié de la Mer des Pilules avait également disparu, ne laissant qu'un point blanc qui se déplaçait lentement avant de s'évanouir.
+Le corps de la femme tremblait et ses yeux étaient emplis de terreur. Tous les points verts autour de Wang Lin avaient été éteints. Le noir qui recouvrait la moitié de la Mer Dan avait également disparu, ne laissant qu'un point blanc qui se déplaçait lentement avant de s'évanouir.
 
 « Qui est cette personne?! Pourquoi n'est-elle pas apparue lorsque nous avons enquêté sur les puissants cultivateurs d'ici?! » songea silencieusement la femme en serrant les dents.
 
-« Tous les Soldats du Démon Vert de la Mer des Pilules, écoutez mon ordre! Poursuivez cette personne et ne le laissez pas s'échapper. Il a dérobé le Liquide de Corruption des Dix Mille Raffinements. Vous devez le tuer pour la récupérer! » ordonna la femme avant de cracher une bouchée de sang. Son sang se fusionna avec ses paroles et se transforma en un gaz qui pénétra dans la boussole.
+« Tous les Soldats du Démon Vert de la Mer Dan, écoutez mon ordre! Poursuivez cette personne et ne le laissez pas s'échapper. Il a dérobé le Liquide de Corruption des Dix Mille Raffinements. Vous devez le tuer pour la récupérer! » ordonna la femme avant de cracher une bouchée de sang. Son sang se fusionna avec ses paroles et se transforma en un gaz qui pénétra dans la boussole.
 
 Une fois le sang dissipé, tous les cultivateurs en robes vertes aux côtés de la femme marchèrent rapidement vers l'avant.
 
-Au même moment, tous les cultivateurs du Continent du Démon Vert présents dans la Mer des Pilules tremblèrent alors que la voix de la femme résonnait dans leurs esprits.
+Au même moment, tous les cultivateurs du Continent Lu Mo présents dans la Mer Dan tremblèrent alors que la voix de la femme résonnait dans leurs esprits.
 
-Si sa voix pouvait se propager si loin, ce n'était pas grâce à son niveau de culture élevé, mais par le biais de la boussole qu'elle tenait. Cette boussole n'était pas un objet ordinaire; elle était le centre de la restriction qui entourait la Mer des Pilules!
+Si sa voix pouvait se propager si loin, ce n'était pas grâce à son niveau de culture élevé, mais par le biais de la boussole qu'elle tenait. Cette boussole n'était pas un objet ordinaire; elle était le centre de la restriction qui entourait la Mer Dan!
 
-Wang Lin resta calme et progressa dans la Mer des Pilules. Son allure n'était pas rapide, mais à chaque pas, il couvrait une distance considérable; il gagnait en vitesse.
+Wang Lin resta calme et progressa dans la Mer Dan. Son allure n'était pas rapide, mais à chaque pas, il couvrait une distance considérable; il gagnait en vitesse.
 
-« Ces gens ont scellé la Mer des Pilules. Bien que j'ignore pourquoi... puisqu'ils ne permettent qu'aux autres d'entrer et non de sortir, il est évident qu'ils ne veulent pas que les nouvelles s'échappent... » Les yeux de Wang Lin s'illuminèrent alors qu'il levait sa main droite. Une petite silhouette sortit de sa paume.
+« Ces gens ont scellé la Mer Dan. Bien que j'ignore pourquoi... puisqu'ils ne permettent qu'aux autres d'entrer et non de sortir, il est évident qu'ils ne veulent pas que les nouvelles s'échappent... » Les yeux de Wang Lin s'illuminèrent alors qu'il levait sa main droite. Une petite silhouette sortit de sa paume.
 
 Cette petite personne était une âme que Wang Lin avait formée grâce au Dao de l'Œil de l'Âme. Tandis que Wang Lin avançait, son regard croisa celui de la petite entité. Celle-ci trembla et se prosterna devant lui.
 
@@ -58,13 +58,13 @@ Ses yeux se rétrécirent et son expression devint plus grave encore.
 
 Moins de dix respirations après son départ, plusieurs milliers de silhouettes apparurent sur les lieux. Ces figures portaient toutes des robes vertes et, après avoir inspecté les environs, elles disparurent à nouveau.
 
-Quant à Wang Lin, lorsqu'il approcha du Continent du Taureau Céleste, il émergea des ondulations et fronça les sourcils. Il ne quitta pas la mer mais leva les yeux. Son regard semblait transpercer l'océan pour atteindre le ciel sombre au-dessus.
+Quant à Wang Lin, lorsqu'il approcha du Continent Tian Niu, il émergea des ondulations et fronça les sourcils. Il ne quitta pas la mer mais leva les yeux. Son regard semblait transpercer l'océan pour atteindre le ciel sombre au-dessus.
 
-« La restriction ici fait que la Distorsion Spatiale ne peut se déplacer qu'à l'intérieur de la Mer des Pilules et non en sortir... Cette restriction est assez mystérieuse... » Les yeux de Wang Lin brillèrent. Il n'avait pas peur des restrictions. Il était difficile pour une restriction d'échapper à son essence de restriction. Plus il rencontrait de restrictions, plus cela serait bénéfique pour son essence.
+« La restriction ici fait que la Distorsion Spatiale ne peut se déplacer qu'à l'intérieur de la Mer Dan et non en sortir... Cette restriction est assez mystérieuse... » Les yeux de Wang Lin brillèrent. Il n'avait pas peur des restrictions. Il était difficile pour une restriction d'échapper à son essence de restriction. Plus il rencontrait de restrictions, plus cela serait bénéfique pour son essence.
 
 S'il parvenait à absorber et raffiner une restriction puissante et ancienne, son essence de restriction augmenterait considérablement.
 
-« La restriction ici peut être raffinée et absorbée dans mon essence de restriction... » murmura Wang Lin pour lui-même. Lorsqu'il était au Pavillon des Écritures de l'Âme, il avait estimé qu'il ne serait pas opportun de raffiner la restriction là-bas en tant qu'Ancien de la Secte de la Grande Âme. De plus, ces restrictions n'étaient pas si mystérieuses; elles ne contenaient que la volonté de puissants cultivateurs.
+« La restriction ici peut être raffinée et absorbée dans mon essence de restriction... » murmura Wang Lin pour lui-même. Lorsqu'il était au Pavillon Cang Hun, il avait estimé qu'il ne serait pas opportun de raffiner la restriction là-bas en tant qu'Ancien de la Secte Da Hun. De plus, ces restrictions n'étaient pas si mystérieuses; elles ne contenaient que la volonté de puissants cultivateurs.
 
 Tout en réfléchissant, Wang Lin resta très calme et agita sa main droite. Des dizaines de flammes commencèrent à brûler dans la mer, sur la droite de Wang Lin.
 
@@ -72,7 +72,7 @@ Dès l'apparition du feu, des cris déchirants retentirent et plus d'une dizaine
 
 Wang Lin utilisait rarement le Feu Éthéré, et c'était la première fois qu'il s'en servait sur le Continent Astral Immortel! Mais il restait extrêmement puissant lorsqu'il était utilisé de manière inattendue. Ces cultivateurs n'étaient même pas au troisième stade. Ils n'étaient que des éclaireurs envoyés pour trouver Wang Lin, et ils n'avaient aucune chance de résister.
 
-Wang Lin s'apprêtait à jaillir de l'eau pour observer la restriction couvrant la Mer des Pilules. Cependant, son expression changea; il se retourna et regarda au loin.
+Wang Lin s'apprêtait à jaillir de l'eau pour observer la restriction couvrant la Mer Dan. Cependant, son expression changea; il se retourna et regarda au loin.
 
 « Les trois... sont donc déjà là. » Un sourire apparut sur les lèvres de Wang Lin alors qu'il changeait de direction pour avancer.
 
@@ -84,7 +84,7 @@ Des grondements tonitruants résonnèrent dans les profondeurs de la mer. Le Tig
 
 Le visage du Tigre Blanc était livide. Il ne dit mot, fuyant comme un fou avec la Tortue Noire et l'Oiseau Vermillon qui étaient à l'agonie. Cependant, peu importait sa vitesse, il ne parvenait pas à prendre de distance face aux deux cultivateurs qui le traquaient.
 
-« Tigre Blanc, vous trois ne devriez pas être des inconnus. Pourquoi nos enquêtes sur vous sont-elles restées vierges durant les innombrables années précédant votre arrivée dans la Mer des Pilules... » dit lentement le jeune homme au visage de jade en pointant l'avant avec son éventail.
+« Tigre Blanc, vous trois ne devriez pas être des inconnus. Pourquoi nos enquêtes sur vous sont-elles restées vierges durant les innombrables années précédant votre arrivée dans la Mer Dan... » dit lentement le jeune homme au visage de jade en pointant l'avant avec son éventail.
 
 Un filet de gaz vert s'échappa de l'éventail et se transforma en un céleste doré tenant une épée d'or. Il fit un pas en avant et frappa violemment le Tigre Blanc!
 
@@ -92,19 +92,19 @@ Au moment où l'épée dorée descendit, le Tigre Blanc se retourna. Dans un rug
 
 Un fracas de tonnerre retentit et le céleste s'effondra, mais le tigre blanc laissa également échapper un cri déchirant avant de s'écrouler à son tour. Le Tigre Blanc trembla, toussa à nouveau du sang et recula de plusieurs milliers de pieds.
 
-« Ce vieil homme est le Général Tigre Blanc, l'un des quatre grands généraux de la Secte des Sept Dao. Je ne changerai ni de nom, ni de famille. Petit enfant, souviens-toi bien de cela! » Le Tigre Blanc n'était pas en état de combattre et cessa de fuir. Il comprenait qu'il était peu probable d'échapper à la mort dans cette situation.
+« Ce vieil homme est le Général Tigre Blanc, l'un des quatre grands généraux de la Secte Qi Dao. Je ne changerai ni de nom, ni de famille. Petit enfant, souviens-toi bien de cela! » Le Tigre Blanc n'était pas en état de combattre et cessa de fuir. Il comprenait qu'il était peu probable d'échapper à la mort dans cette situation.
 
 Puisqu'il allait mourir, il allait partir avec éclat!
 
-« Général Oiseau Vermillon, l'un des quatre grands généraux de la Secte des Sept Dao! » Derrière le Tigre Blanc, l'Oiseau Vermillon avait du sang coulant au coin de la bouche tout en fixant le jeune homme.
+« Général Oiseau Vermillon, l'un des quatre grands généraux de la Secte Qi Dao! » Derrière le Tigre Blanc, l'Oiseau Vermillon avait du sang coulant au coin de la bouche tout en fixant le jeune homme.
 
 « Général Tortue Noire! » La Tortue Noire comprit également que leur fin était proche. Il soupira et ne cacha plus son identité.
 
-« La Secte des Sept Dao? Le Continent du Taureau Céleste possède une telle secte? » Le jeune homme au visage de jade réfléchit un instant, mais n'avait trouvé aucune trace d'une telle organisation dans ses recherches.
+« La Secte Qi Dao? Le Continent Tian Niu possède une telle secte? » Le jeune homme au visage de jade réfléchit un instant, mais n'avait trouvé aucune trace d'une telle organisation dans ses recherches.
 
-« La Secte des Sept Dao! » Le cultivateur nommé Qian observa attentivement les trois hommes après avoir entendu ce nom.
+« La Secte Qi Dao! » Le cultivateur nommé Qian observa attentivement les trois hommes après avoir entendu ce nom.
 
-« J'ai déjà vu ce nom dans l'enquête de notre secte sur le Continent du Taureau Céleste. C'était une secte d'une époque reculée, et leur chef s'appelait le Souverain Céleste aux Sept Couleurs ou quelque chose de similaire. Sa culture était extraordinaire, mais c'était il y a fort longtemps. Il est probablement mort. »
+« J'ai déjà vu ce nom dans l'enquête de notre secte sur le Continent Tian Niu. C'était une secte d'une époque reculée, et leur chef s'appelait le Souverain Céleste aux Sept Couleurs ou quelque chose de similaire. Sa culture était extraordinaire, mais c'était il y a fort longtemps. Il est probablement mort. »
 
 En entendant le nom de « Souverain Céleste aux Sept Couleurs », le Tigre Blanc et ses compagnons se turent. Des expressions complexes se dessinèrent sur leurs visages.
 

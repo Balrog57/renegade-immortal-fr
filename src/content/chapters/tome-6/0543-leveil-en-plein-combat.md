@@ -38,7 +38,7 @@ C'était comme si le ciel tout entier s'écroulait, avec Wang Lin pour unique po
 
 Une aura destructrice jaillit de toutes les directions pour s'abattre sur lui. La lumière noire brilla intensément tandis que l'énergie spirituelle céleste en son corps s'inversait avec frénésie. Soudain, la lueur noire à l'extrémité de son doigt s'élargit pour recouvrir l'intégralité de son corps.
 
-Un fracas assourdissant résonna dans toute la Cité de l'Ancien Démon. Le visage de Wang Lin devint livide et il fut projeté en arrière de plusieurs pas avant de réussir à stabiliser sa posture.
+Un fracas assourdissant résonna dans toute la Cité Gu Yao. Le visage de Wang Lin devint livide et il fut projeté en arrière de plusieurs pas avant de réussir à stabiliser sa posture.
 
 Son index droit tremblait légèrement, totalement engourdi.
 
@@ -74,9 +74,9 @@ Il ressemblait désormais à un démon de carnage. Tenant son épée de massacre
 
 Le général de l'aile gauche laissa échapper une exclamation, puis ses yeux brillèrent: « Bien! Tu es l'un des rares à avoir décidé d'attaquer durant mon Intention de Combat des Dix Effondrements! Voyons si tu peux franchir les huit prochains effondrements et arriver jusqu'à moi! »
 
-Au loin, la femme en robe blanche, la fille de Xue Zu Yao Xixue, observait la scène en fronçant légèrement les sourcils. Lorsqu'elle était arrivée à la Cité de l'Ancien Démon il y a trois ans, elle avait été vaincue par ce sort. Cette technique était d'une tyrannie absolue et, avec son niveau de culture, elle avait failli succomber dès le quatrième effondrement. Sans le sort de sang que son père lui avait enseigné, elle n'aurait pas pu résister au cinquième!
+Au loin, la femme en robe blanche, la fille de Xue Zu Yao Xixue, observait la scène en fronçant légèrement les sourcils. Lorsqu'elle était arrivée à la Cité Gu Yao il y a trois ans, elle avait été vaincue par ce sort. Cette technique était d'une tyrannie absolue et, avec son niveau de culture, elle avait failli succomber dès le quatrième effondrement. Sans le sort de sang que son père lui avait enseigné, elle n'aurait pas pu résister au cinquième!
 
-Pourtant, elle finit par céder au huitième effondrement. Le général de l'aile gauche, touché par ses efforts, lui avait accordé le titre de commandante! Le rang de commandant en chef, immédiatement inférieur à celui de général, n'était détenu que par quatre personnes dans toute la Cité de l'Ancien Démon.
+Pourtant, elle finit par céder au huitième effondrement. Le général de l'aile gauche, touché par ses efforts, lui avait accordé le titre de commandante! Le rang de commandant en chef, immédiatement inférieur à celui de général, n'était détenu que par quatre personnes dans toute la Cité Gu Yao.
 
 Les commandants étaient plus nombreux: ils étaient seize au total!
 
@@ -108,7 +108,7 @@ Le visage de Wang Lin devint extrêmement pâle; il fut contraint d'interrompre 
 
 Il sentait qu'il ne pourrait pas résister à ce quatrième effondrement par ses seules forces. S'il avait disposé de plus de gaz gris, il aurait peut-être pu percer. Cependant, durant ces quatre années, bien qu'il eût tué de nombreux ennemis, l'Art du Massacre Céleste était extrêmement difficile à maîtriser parfaitement.
 
-Hormis l'Art du Massacre Céleste, il aurait dû pouvoir passer grâce au Doigt des Enfers. Mais le Doigt des Enfers était son véritable atout et, dans cette périlleuse Terre des Esprits Démoniaques, il n'était pas prêt à révéler sa véritable force si facilement.
+Hormis l'Art du Massacre Céleste, il aurait dû pouvoir passer grâce au Doigt des Enfers. Mais le Doigt des Enfers était son véritable atout et, dans cette périlleuse Terre Yao Ling, il n'était pas prêt à révéler sa véritable force si facilement.
 
 À ce moment, un regard déterminé s'installa sur le visage de Wang Lin. Il relâcha l'épée de massacre qui se désintégra pour redevenir deux filaments de gaz gris. Ces derniers pénétrèrent rapidement son corps par son bras, et deux symboles apparurent aussitôt sur son front. Les symboles se propagèrent ensuite sur tout son corps pour former la défense de deux sceaux de force vitale.
 

@@ -48,11 +48,11 @@ Après un long moment, il laissa échapper un soupir et prononça d'une voix anc
 
 Le Grand Ancien de la Secte Démon trembla, comme si le passé l'engloutissait. « Votre subordonné est là! » répondit-il sans la moindre hésitation.
 
-« Utilise mon trésor Dao pour organiser la Mer des Nuages et rassemble toute sa force afin d'être prêt pour... la grande guerre contre le Royaume Extérieur dans quelques années! Tue quiconque se rebellera! »
+« Utilise mon trésor Dao pour organiser la Mer Yun et rassemble toute sa force afin d'être prêt pour... la grande guerre contre le Royaume Extérieur dans quelques années! Tue quiconque se rebellera! »
 
 Le corps du Grand Ancien de la Secte Démon frémit et il leva les yeux. Une lueur de froideur passa dans son regard lorsqu'il s'écria: « À vos ordres! »
 
-« Sous mes commandements, une fois la Mer des Nuages stabilisée, dirige-toi vers les trois autres grands systèmes stellaires. Va trouver Maître Nan Yunzi, Maître Hong Shanzi et Maître Zhan Xianzi. Dis-leur qu'ils peuvent enfin honorer l'accord passé...
+« Sous mes commandements, une fois la Mer Yun stabilisée, dirige-toi vers les trois autres grands systèmes stellaires. Va trouver Maître Nan Yunzi, Maître Hong Shanzi et Maître Zhan Xianzi. Dis-leur qu'ils peuvent enfin honorer l'accord passé...
 
 « Je veux que tu utilises ta vitesse maximale pour organiser les trois autres grands systèmes stellaires. Unissez les Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair en un seul pour mener... la grande guerre qui éclatera dans quelques années! »
 
@@ -104,7 +104,7 @@ Les sept planètes de culture brillèrent intensément, formant la Grande Ourse!
 
 Après les Neuf Palais vinrent les Huit Diagrammes, et après les Huit Diagrammes surgirent les Sept Étoiles de la Grande Ourse! Les sept étoiles: Tianshu, Tianxuan, Tianji, Tianquan, Yuheng, Kaiyang et Yaoguang!
 
-« Sept Étoiles... Infini... » Dès que cette voix indistincte retentit, les sept étoiles brillèrent avec une intensité folle et transpercèrent le vide. Leur lumière inonda le ciel étoilé et l'intégralité de la Mer des Nuages, supplantant toute autre lueur. C'était comme si toute la lumière stellaire du monde avait été absorbée par ces sept astres pour former une intention meurtrière capable de faire trembler les cieux!
+« Sept Étoiles... Infini... » Dès que cette voix indistincte retentit, les sept étoiles brillèrent avec une intensité folle et transpercèrent le vide. Leur lumière inonda le ciel étoilé et l'intégralité de la Mer Yun, supplantant toute autre lueur. C'était comme si toute la lumière stellaire du monde avait été absorbée par ces sept astres pour former une intention meurtrière capable de faire trembler les cieux!
 
 C'était l'Intention Meurtrière des Sept Étoiles, la Puissance d'Abattage de la Grande Ourse!
 

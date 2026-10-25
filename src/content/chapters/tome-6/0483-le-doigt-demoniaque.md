@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 483 - Demonic Finger
 slug: le-doigt-demoniaque
 ---
-L'avatar explosa, libérant une aura de folie qui se propagea violemment. La terre et le sable furent projetés dans les airs, et même les abords du Pavillon de la Forêt Violette s'effondrèrent en partie.
+L'avatar explosa, libérant une aura de folie qui se propagea violemment. La terre et le sable furent projetés dans les airs, et même les abords du Pavillon Zi Lin s'effondrèrent en partie.
 
 L'explosion de l'avatar enveloppa la zone d'un épais nuage de poussière. Sentant la pression environnante s'alléger, la femme s'apprêtait à faire demi-tour pour s'échapper.
 

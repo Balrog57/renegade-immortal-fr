@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 551 - Transaction
 slug: transaction
 ---
-« Il y a deux autres cultivateurs dans la Cité du Démon Antique en dehors de moi. Parmi les deux, l'un d'eux n'est qu'au stade initial de la Transformation de l'Âme, il ne pourra donc pas beaucoup aider. Seul ce Wang Lin, capable d'encaisser l'Intention de Combat des Sept Effondrements du général démon, devrait être assez puissant... Le seul problème est que sa personnalité est froide; sans aucune récompense, je crains qu'il soit très difficile de le convaincre de m'aider... »
+« Il y a deux autres cultivateurs dans la Cité Gu Yao en dehors de moi. Parmi les deux, l'un d'eux n'est qu'au stade initial de la Transformation de l'Âme, il ne pourra donc pas beaucoup aider. Seul ce Wang Lin, capable d'encaisser l'Intention de Combat des Sept Effondrements du général démon, devrait être assez puissant... Le seul problème est que sa personnalité est froide; sans aucune récompense, je crains qu'il soit très difficile de le convaincre de m'aider... »
 
 Yao Xixue réfléchit un instant, puis agita la main devant elle. Une lumière blanche enveloppa son corps nu et elle fut bientôt dissimulée sous une robe blanche.
 

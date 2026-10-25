@@ -48,7 +48,7 @@ L'autre essence contenait le karma. Le Karma était un Grand Dao, d'une complexi
 
 « Trois éthérées... trois... Cet homme a réellement eu la chance d'obtenir trois essences éthérées! » Les yeux de Du Qing étaient pétris de choc et il recula inconsciemment de quelques pas. Même les essences du feu et de la terre qu'il tenait entre ses mains devinrent ternes.
 
-« Trois éthérées et deux corporelles... Quel genre de talent faut-il pour posséder cinq essences? C’est... c'est du jamais vu, même au sein de la Secte de la Grande Âme! » Du Qing se remémora ses propres paroles: trois essences n'étaient rien face à un tel être.
+« Trois éthérées et deux corporelles... Quel genre de talent faut-il pour posséder cinq essences? C’est... c'est du jamais vu, même au sein de la Secte Da Hun! » Du Qing se remémora ses propres paroles: trois essences n'étaient rien face à un tel être.
 
 « Et alors, qu'importe si tu as cinq essences? Posséder de nombreuses essences ne signifie pas pour autant que tu es puissant... » Bien que de nouveau sous le choc, Du Qing serra les dents et rugit.
 
@@ -94,7 +94,7 @@ Elle était de nature à rendre fou quiconque la percevrait et la comprendrait!
 
 « Grand... Grand Empyréen... » Du sang coula du coin de la bouche de Du Qing alors qu'il reculait précipitamment. Le choc provoqué par l'empreinte avait blessé son âme originelle. Il comprit instantanément que cette empreinte était un sortilège condensé en trésor par un Grand Empyréen.
 
-La puissance intrinsèque de ce trésor était secondaire; sa véritable fonction était d'intimider. Elle pouvait ébranler n'importe qui! Oubliez Du Qing, même la Secte de la Grande Âme, la Secte Gui Yi et toutes les puissantes sectes du Continent du Taureau Céleste trembleraient de peur en ressentant l'aura de cette empreinte dorée!
+La puissance intrinsèque de ce trésor était secondaire; sa véritable fonction était d'intimider. Elle pouvait ébranler n'importe qui! Oubliez Du Qing, même la Secte Da Hun, la Secte Gui Yi et toutes les puissantes sectes du Continent Tian Niu trembleraient de peur en ressentant l'aura de cette empreinte dorée!
 
 Car à moins qu'un Grand Empyréen n'ait personnellement remis ce trésor à quelqu'un, celui-ci s'effondrerait instantanément entre les mains d'autrui. C'était une vérité universelle sur le Continent Astral Immortel!
 
@@ -106,7 +106,7 @@ Mais cette aura qui le faisait trembler de peur et surpassait celle de tous les 
 
 Du Qing cracha une bouffée de sang. Tout en reculant, il lança un regard accusateur à Wang Lin et rugit:
 
-« Damnation, si tu possèdes un tel trésor, pourquoi ne l'as-tu pas utilisé plus tôt!! Si tu l'avais sorti dès le début, seuls des fantômes auraient tenté de te traquer. Même si tu avais massacré toute la Secte du Dragon Bleu, j'aurais fait comme si je n'avais rien vu! »
+« Damnation, si tu possèdes un tel trésor, pourquoi ne l'as-tu pas utilisé plus tôt!! Si tu l'avais sorti dès le début, seuls des fantômes auraient tenté de te traquer. Même si tu avais massacré toute la Secte Cang Long, j'aurais fait comme si je n'avais rien vu! »
 
 « Tu... Tu es trop vicieux! Simplement trop vicieux!! Il n'existe personne comme toi! »
 

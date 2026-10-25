@@ -20,7 +20,7 @@ De plus, depuis que Wang Lin était revenu de la Prison Hong, Mo Lihai avait l'i
 
 Il n'en demanda pas les détails, mais il devina que pour provoquer la colère de l'épée de l'Empereur, Wang Lin avait soit réussi son sortilège, soit fait une rencontre fortuite.
 
-« Quelle est votre force actuelle? Comment se compare-t-elle à celle que vous aviez lorsque vous étiez à la Cité de l'Ancien Démon? » Après une longue réflexion, Mo Lihai décida de poser la question. Il voulait savoir quelle position il pourrait espérer obtenir lors de la compétition des généraux démons!
+« Quelle est votre force actuelle? Comment se compare-t-elle à celle que vous aviez lorsque vous étiez à la Cité Gu Yao? » Après une longue réflexion, Mo Lihai décida de poser la question. Il voulait savoir quelle position il pourrait espérer obtenir lors de la compétition des généraux démons!
 
 Deux opportunités s'offraient aux participants durant cette compétition. Si le général démon perdait, son assistant pouvait combattre à sa place! Cependant, l'assistant devait remplir une condition: il ne devait pas être un natif, mais un étranger!
 
@@ -96,7 +96,7 @@ Wang Lin inspecta les lieux, son regard s'arrêtant sur la plaque à l'entrée d
 
 « Manoir du Vice-Commandant Xuan »
 
-« Les huit commandants portent les mêmes noms que les huit cités situées hors de la Cité du Démon Céleste, mais leurs manoirs ne comportent pas le mot "vice"! Ceci est donc le manoir du vice-commandant de la ville de Xuan. » Après avoir fait ce constat, Mo Lihai marqua une hésitation et ajouta: « Le vice-commandant de Xuan entretient des relations personnelles privilégiées avec l'Empereur Démon... »
+« Les huit commandants portent les mêmes noms que les huit cités situées hors de la Cité Tian Yao, mais leurs manoirs ne comportent pas le mot "vice"! Ceci est donc le manoir du vice-commandant de la ville de Xuan. » Après avoir fait ce constat, Mo Lihai marqua une hésitation et ajouta: « Le vice-commandant de Xuan entretient des relations personnelles privilégiées avec l'Empereur Démon... »
 
 Wang Lin acquiesça. Mo Lihai lui avait déjà expliqué en détail comment deux vice-commandants seraient choisis lors de cette compétition, ainsi que l'importance capitale de cet enjeu.
 
@@ -138,7 +138,7 @@ Il se sentait légitimé dans ce mépris: il était vice-commandant, proche de l
 
 Il ne considérait même pas Mo Lihai comme un égal, alors pourquoi s'intéresserait-il à son suivant?
 
-S'il n'avait pas su que l'Empereur Démon portait un intérêt particulier à Mo Lihai, il ne l'aurait même pas rencontré, car il le jugeait indigne. Il aurait préféré profiter de ses fleurs. Dans la Cité du Démon Céleste, tout le monde savait à quel point le vice-commandant Xuan chérissait les fleurs exotiques. Il ne se contentait pas de les aimer, il les chérissait. Si un serviteur effleurait accidentellement une fleur, il était expulsé du manoir. Si quelqu'un osait en endommager une, il s'attirait son courroux!
+S'il n'avait pas su que l'Empereur Démon portait un intérêt particulier à Mo Lihai, il ne l'aurait même pas rencontré, car il le jugeait indigne. Il aurait préféré profiter de ses fleurs. Dans la Cité Tian Yao, tout le monde savait à quel point le vice-commandant Xuan chérissait les fleurs exotiques. Il ne se contentait pas de les aimer, il les chérissait. Si un serviteur effleurait accidentellement une fleur, il était expulsé du manoir. Si quelqu'un osait en endommager une, il s'attirait son courroux!
 
 Une pointe d'impatience traversa le cœur de l'homme en pourpre, bien qu'il ne l'eût pas manifestée.
 

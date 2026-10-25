@@ -10,7 +10,7 @@ Les yeux de Tan Lang étaient emplis de désespoir et son cœur de regrets. Il a
 
 Cependant, peu après, il fut confronté à la guerre entre les Royaumes Intérieur et Extérieur. Cette guerre l'avait extrêmement exalté; peut-être pourrait-il obtenir encore plus de trésors dans ce conflit, et son niveau de culture augmenterait.
 
-Tan Lang suivit l'armée du Royaume Extérieur jusqu'à la Mer des Nuages, puis s'éclipsa secrètement. Guidé par son instinct pour les trésors, il trouva la faille spatiale dans la Mer des Nuages et y pénétra.
+Tan Lang suivit l'armée du Royaume Extérieur jusqu'à la Mer Yun, puis s'éclipsa secrètement. Guidé par son instinct pour les trésors, il trouva la faille spatiale dans la Mer Yun et y pénétra.
 
 Il était transporté par l'excitation en réalisant qu'une puissante aura de trésor se trouvait ici. Cette aura le fit rire comme un fou pendant un demi-bâton d'encens.
 
@@ -40,7 +40,7 @@ Pourtant, il ne pourrait jamais oublier le sort misérable qui lui attendit. Il 
 
 — Han Han, qui est-ce? Pourquoi apparaît-il soudainement ici...?
 
-— Je ne sais pas non plus. C'est étrange, comment a-t-il pu pénétrer dans le Domaine de la Ferme des Bêtes de notre Secte du Soleil Violet?
+— Je ne sais pas non plus. C'est étrange, comment a-t-il pu pénétrer dans le Domaine de la Ferme des Bêtes de notre Secte Zi Yang?
 
 — Tu ne crois pas qu'il est fou? Ce sont des herbes pour les petites bêtes, pourquoi les met-il à la bouche...?
 
@@ -110,6 +110,6 @@ Alors que Tan Lang rugissait de douleur, il sentit deux petites mains presser co
 
 Cette puissance fit briller le corps de Tan Lang d'une lumière dorée infinie. Cette clarté se propagea et les mains de Tan Lang bougèrent d'elles-mêmes jusqu'à former un motif circulaire.
 
-Dès que ce motif fut complet, un soleil doré apparut dans sa main! Ce soleil ne faisait que la taille d'une paume, mais la puissance qu'il dégageait était telle qu'elle ébranla l'espace entier. Il fit trembler la Mer des Nuages, la Rivière Invoquée et les autres systèmes stellaires, et ébranla les astres antiques du Royaume Extérieur.
+Dès que ce motif fut complet, un soleil doré apparut dans sa main! Ce soleil ne faisait que la taille d'une paume, mais la puissance qu'il dégageait était telle qu'elle ébranla l'espace entier. Il fit trembler la Mer Yun, la Rivière Invoquée et les autres systèmes stellaires, et ébranla les astres antiques du Royaume Extérieur.
 
 Cependant, ce qui allait suivre serait encore plus terrifiant.

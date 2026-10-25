@@ -110,7 +110,7 @@ En réalité, l'homme d'âge moyen était perplexe ces derniers jours: peu impor
 
 À moins que le Sens Divin de cette personne ne soit plus puissant que le sien, il était impossible de le détecter. Il faut dire que bien que son niveau de culture n'ait pas progressé en quatre cents ans, restant au début du stade de la Formation de l'Âme, nul à Zhao ne pouvait le dépasser.
 
-Il n'aurait jamais pu imaginer que, malgré un niveau de culture n'étant que celui de l'Âme Naissante, le Sens Divin de Wang Lin soit aussi puissant que celui d'un cultivateur de la fin de la Formation de l'Âme. Même le géant du Clan des Démons Géants de jadis, venu en personne, n'aurait pas pu trouver Wang Lin.
+Il n'aurait jamais pu imaginer que, malgré un niveau de culture n'étant que celui de l'Âme Naissante, le Sens Divin de Wang Lin soit aussi puissant que celui d'un cultivateur de la fin de la Formation de l'Âme. Même le géant du Clan Ju Mo de jadis, venu en personne, n'aurait pas pu trouver Wang Lin.
 
 Une telle chose était extrêmement rare dans le monde de la culture. Après tout, Wang Lin était l'unique dévoreur d'âmes errant dans le monde des vivants.
 

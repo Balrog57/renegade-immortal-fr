@@ -28,7 +28,7 @@ Une expression complexe traversa le regard de la quatrième sœur, Zhao Xinmeng,
 
 « Celui qui détenait le titre de disciple véritable avant Sun Yun! »
 
-« On dit qu'il a suivi Maître pendant très longtemps. Lorsqu'il a perdu contre Sun Yun, il a quitté la Secte du Destin Céleste pour s'entraîner à l'extérieur! »
+« On dit qu'il a suivi Maître pendant très longtemps. Lorsqu'il a perdu contre Sun Yun, il a quitté la Secte Tian Yun pour s'entraîner à l'extérieur! »
 
 Des murmures parcoururent les rangs des disciples des six autres divisions.
 
@@ -48,7 +48,7 @@ Chen Tao tendit la fleur vers Tian Yunzi et dit respectueusement: « C'est à ca
 
 La fleur vola lentement vers Tian Yunzi et s'immobilisa devant lui. Ce dernier l'observa, réfléchit un instant, puis dit: « Cette fleur s'appelle le Glaçage aux Sept Couleurs. Il faut dix ans pour qu'elle prenne racine, cent ans pour que ses feuilles poussent, mille ans pour qu'elle émette de la lumière et dix mille ans pour qu'elle fleurisse. À chaque floraison, elle libère une couleur, jusqu'à ce qu'elle ait fleuri six fois. Lors de la septième éclosion, elle dégage une lumière aux sept couleurs. »
 
-« Les bêtes en sont folles, et si l'une d'elles l'engloutit au moment où elle libère cette lumière, elle en tirera un immense profit. C'est un trésor céleste. Je crois qu'elle est classée 93e par l'Alliance de Culture. Ancien Sun, ne me trompe-je pas? » Tian Yunzi tourna son regard vers l'Ancien Sun.
+« Les bêtes en sont folles, et si l'une d'elles l'engloutit au moment où elle libère cette lumière, elle en tirera un immense profit. C'est un trésor céleste. Je crois qu'elle est classée 93e par l'Alliance Xiu Zhen. Ancien Sun, ne me trompe-je pas? » Tian Yunzi tourna son regard vers l'Ancien Sun.
 
 L'Ancien Sun esquissa un léger sourire et hocha la tête. « C'est exact. C'est bien le Glaçage aux Sept Couleurs, mais elle n'est pas encore complète; la dernière feuille ne s'est pas encore formée. Toutefois, avec les sorts de Tian Yunzi, il ne faudra pas longtemps pour que sa septième feuille apparaisse également. »
 
@@ -80,7 +80,7 @@ Tian Yunzi eut un léger sourire et répondit: « Actuellement, au sein de la Di
 
 Un sourire glacial étira les lèvres de Chen Tao alors qu'il faisait un pas en avant. En une seule foulée, il se retrouva devant Wang Lin. Sa main bougea plusieurs fois plus vite que l'éclair pour projeter un sceau qui s'arrêta à 3,3 mètres de Wang Lin.
 
-Une série de rugissements tonitruants retentit alors que le corps de Wang Lin était violemment repoussé en arrière. Il fit apparaître la hache du Clan des Démons Géants pour bloquer la force de l'impact. Simultanément, il mobilisa l'énergie spirituelle céleste métallique de son bras gauche, ce qui lui permit de se stabiliser après avoir reculé de plus d'une centaine de mètres. Il resta là, fixant Chen Tao d'un regard sombre.
+Une série de rugissements tonitruants retentit alors que le corps de Wang Lin était violemment repoussé en arrière. Il fit apparaître la hache du Clan Ju Mo pour bloquer la force de l'impact. Simultanément, il mobilisa l'énergie spirituelle céleste métallique de son bras gauche, ce qui lui permit de se stabiliser après avoir reculé de plus d'une centaine de mètres. Il resta là, fixant Chen Tao d'un regard sombre.
 
 Wang Lin était resté sur ses gardes tout au long de l'échange. L'attaque précédente n'était pas destinée à le blesser, mais à le déstabiliser. Bien que le sort ait frappé dans le vide, l'onde de choc avait suffi à le repousser. Wang Lin savait pertinemment qu'il ne pouvait rivaliser avec une telle puissance brute.
 

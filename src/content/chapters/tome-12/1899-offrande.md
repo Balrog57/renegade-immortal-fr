@@ -26,7 +26,7 @@ C'est à cet instant que des ondulations résonnèrent et que trois rayons de lu
 
 Les trois arrivants étaient les autres détenteurs de l'armure d'âme du Taureau Céleste aux côtés de Wang Lin: Yun Yifeng, Tang Jia et le vieil homme Bord-des-Nuages!
 
-Après cent ans, ils étaient venus au Temple du Scorpion Vert pour une raison inconnue. Le voyage vers le temple avait été extrêmement ardu, mais une fois sur place, le chemin s'était révélé sans encombre. Ils n'avaient rien rencontré et avaient atteint la partie la plus profonde du sanctuaire.
+Après cent ans, ils étaient venus au Temple Lu Mo Xie pour une raison inconnue. Le voyage vers le temple avait été extrêmement ardu, mais une fois sur place, le chemin s'était révélé sans encombre. Ils n'avaient rien rencontré et avaient atteint la partie la plus profonde du sanctuaire.
 
 Cependant, ce qui les attendait était cette lame capable de faire trembler les âmes!
 
@@ -82,13 +82,13 @@ Il vit un filet de gaz noir s'échapper du corps du vieillard pour se condenser 
 
 Cette voix était si féroce qu'elle fit même tressaillir le cœur de Wang Lin, et ses yeux brillèrent d'un éclat vif.
 
-« Une âme fantôme!! Cet homme a formé une âme fantôme aussi puissante après sa mort!! » Cette âme était d'innombrables fois plus puissante que celle du cultivateur de la Tribulation du Vide de la Prairie du Ciel Extrême! Elle était d'une qualité supérieure, infiniment proche de la perfection!
+« Une âme fantôme!! Cet homme a formé une âme fantôme aussi puissante après sa mort!! » Cette âme était d'innombrables fois plus puissante que celle du cultivateur de la Tribulation du Vide de la Prairie Ji Tian! Elle était d'une qualité supérieure, infiniment proche de la perfection!
 
 Les yeux de Wang Lin pétillèrent et il agita sa manche sans hésiter. L'âme fantôme formée par le vieillard vola vers lui et fut emmagasinée!
 
-Avec cette âme et celle de la Prairie du Ciel Extrême, Wang Lin était confiant dans sa capacité à raffiner une Voile Fantôme de qualité quasi parfaite!
+Avec cette âme et celle de la Prairie Ji Tian, Wang Lin était confiant dans sa capacité à raffiner une Voile Fantôme de qualité quasi parfaite!
 
-Associée à la bannière secondaire du Grand Dispositif protecteur de la Secte de la Grande Âme qu'il détenait, cette Voile Fantôme lui permettrait de déployer des sorts d'illusion d'un niveau presque parfait!
+Associée à la bannière secondaire du Grand Dispositif protecteur de la Secte Da Hun qu'il détenait, cette Voile Fantôme lui permettrait de déployer des sorts d'illusion d'un niveau presque parfait!
 
 L'ancien à la robe verte n'avait pas seulement offert de nombreuses fortunes à Wang Lin; il s'était finalement offert lui-même...
 
@@ -104,4 +104,4 @@ Les yeux de Wang Lin s'illuminèrent. Son niveau de culture montrait des signes 
 
 « Cette fois, voyons jusqu'où ma culture peut s'élever!! Mon niveau était trop bas auparavant. J'espère pouvoir m'imposer au sommet du Continent Astral Immortel après cela!! »
 
-« Et la Secte du Dao Démoniaque... je n'ai jamais oublié le serment que j'ai prêté durant ces cent ans!! » Wang Lin était empreint d'une intention meurtrière. Lorsqu'il ferma les yeux, il voyait voler puis retomber autour de lui des têtes familières. Toutes appartenaient à des gens qu'il avait connus dans la Prairie du Ciel Extrême.
+« Et la Secte Dao Mo... je n'ai jamais oublié le serment que j'ai prêté durant ces cent ans!! » Wang Lin était empreint d'une intention meurtrière. Lorsqu'il ferma les yeux, il voyait voler puis retomber autour de lui des têtes familières. Toutes appartenaient à des gens qu'il avait connus dans la Prairie Ji Tian.

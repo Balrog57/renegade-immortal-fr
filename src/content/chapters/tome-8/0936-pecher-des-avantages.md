@@ -38,7 +38,7 @@ Les yeux de Wang Lin s'illuminèrent; sa main droite se serra en un poing et il 
 
 Tout en réfléchissant, Wang Lin chargea droit devant.
 
-« Ce sceau est similaire aux talismans du Clan des Immortels Délaissés... » Les yeux de Wang Lin s'illuminèrent alors qu'il contrôlait soigneusement l'énergie originelle dans son corps. Un moment plus tard, il arriva près de l'endroit où se trouvait l'os.
+« Ce sceau est similaire aux talismans du Clan Xian Yi... » Les yeux de Wang Lin s'illuminèrent alors qu'il contrôlait soigneusement l'énergie originelle dans son corps. Un moment plus tard, il arriva près de l'endroit où se trouvait l'os.
 
 Après avoir jeté un coup d'œil, l'expression de Wang Lin devint sérieuse. L'os du Serpent aux yeux de lune émettait à l'origine une immense quantité d'énergie spirituelle; cependant, tout cela avait disparu.
 

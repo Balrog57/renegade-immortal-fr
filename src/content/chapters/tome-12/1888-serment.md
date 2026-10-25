@@ -106,26 +106,26 @@ Ces individus étaient initialement en embuscade aux diverses frontières du con
 
 Ces cultivateurs portaient tous des vêtements similaires. Bien que les couleurs diffèrent, le motif solaire et lunaire noir et blanc sur leurs étoffes était identique!
 
-Wang Lin avait reconnu ce symbole sur la carapace de tortue. Ce motif appartenait à la plus grande secte du continent du Démon Vert: la Secte du Dao Démoniaque!
+Wang Lin avait reconnu ce symbole sur la carapace de tortue. Ce motif appartenait à la plus grande secte du continent du Démon Vert: la Secte Dao Mo!
 
-Le blocus et la traque visant Wang Lin n'étaient pas l'œuvre de tout le continent du Démon Vert, mais uniquement celle de la Secte du Dao Démoniaque!
+Le blocus et la traque visant Wang Lin n'étaient pas l'œuvre de tout le continent du Démon Vert, mais uniquement celle de la Secte Dao Mo!
 
-Le continent Terre-Meng était à mille kilomètres, mais la Secte du Dao Démoniaque venait de surgir pour lui barrer la route. Le sentiment qu'une crise imminente approchait devint d'autant plus oppressant!
+Le continent Terre-Meng était à mille kilomètres, mais la Secte Dao Mo venait de surgir pour lui barrer la route. Le sentiment qu'une crise imminente approchait devint d'autant plus oppressant!
 
 Les pupilles de Wang Lin se contractèrent. Alors qu'il fonçait en avant, les centaines de cultivateurs sortis des six matrices s'élancèrent. Simultanément, ils projetèrent tous quelque chose vers lui!
 
-« Neuf têtes de cultivateurs de la Prairie du Ciel Extrême! »
+« Neuf têtes de cultivateurs de la Prairie Ji Tian! »
 
-« Six têtes de cultivateurs de la Prairie du Ciel Extrême! »
+« Six têtes de cultivateurs de la Prairie Ji Tian! »
 
-« La tête d'un cultivateur errant de la Tribulation Arcanique de la Prairie du Ciel Extrême! »
+« La tête d'un cultivateur errant de la Tribulation Arcanique de la Prairie Ji Tian! »
 
-« La Prairie du Ciel Extrême... »
+« La Prairie Ji Tian... »
 
 Ces voix froides résonnèrent à travers le monde et frappèrent les oreilles de Wang Lin, faisant trembler son cœur. Il contempla ces têtes et leurs expressions de détresse. Il les reconnut: c'étaient les cultivateurs qui avaient combattu à ses côtés pendant plusieurs mois au troisième méridien et qui avaient survécu!
 
-Il ignorait leurs noms, mais il avait gravé leurs visages dans sa mémoire. Ces centaines de têtes représentaient presque la moitié des survivants de la Prairie du Ciel Extrême...
+Il ignorait leurs noms, mais il avait gravé leurs visages dans sa mémoire. Ces centaines de têtes représentaient presque la moitié des survivants de la Prairie Ji Tian...
 
-« Vous aimez les têtes humaines, n'est-ce pas? Voici le premier cadeau que ma Secte du Dao Démoniaque vous offre! » Une voix venimeuse résonna dans l'air.
+« Vous aimez les têtes humaines, n'est-ce pas? Voici le premier cadeau que ma Secte Dao Mo vous offre! » Une voix venimeuse résonna dans l'air.
 
-« Secte du Dao Démoniaque... Si je quitte cet endroit aujourd'hui, je reviendrai et j'anéantirai toute votre secte!! » Les yeux de Wang Lin brillèrent d'une lumière rouge monstrueuse, et il fit ce serment dans son cœur. C'était la première fois qu'il ressentait un désir aussi brûlant de détruire une secte sur le Continent Astral Immortel!
+« Secte Dao Mo... Si je quitte cet endroit aujourd'hui, je reviendrai et j'anéantirai toute votre secte!! » Les yeux de Wang Lin brillèrent d'une lumière rouge monstrueuse, et il fit ce serment dans son cœur. C'était la première fois qu'il ressentait un désir aussi brûlant de détruire une secte sur le Continent Astral Immortel!

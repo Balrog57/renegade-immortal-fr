@@ -34,7 +34,7 @@ Son cuir chevelu fut engourdi en voyant les vingt-trois épées qui avaient ané
 
 Au lieu de battre en retraite, il frappa son sac de contenance. Une carapace de tortue noire de la taille d'une paume apparut dans sa main. Elle était d'un noir absolu et dégageait une pression colossale. On ignorait de quel endroit cette carapace avait été extraite.
 
-Cette carapace de tortue était également un trésor Pseudo-Vide du Nirvana. En tant que membre éminent de l'Alliance de Culture, il ne manquait naturellement pas de trésors! Après avoir lancé la carapace, Maître du Vide serra les dents et ne prêta plus attention au reste. Son sens divin se propagea avec frénésie tandis qu'il tentait de saisir l'Origine Source. Il sentait qu'il n'était qu'à un cheveu de découvrir le chemin vers la troisième étape dont il rêvait depuis d'innombrables années!
+Cette carapace de tortue était également un trésor Pseudo-Vide du Nirvana. En tant que membre éminent de l'Alliance Xiu Zhen, il ne manquait naturellement pas de trésors! Après avoir lancé la carapace, Maître du Vide serra les dents et ne prêta plus attention au reste. Son sens divin se propagea avec frénésie tandis qu'il tentait de saisir l'Origine Source. Il sentait qu'il n'était qu'à un cheveu de découvrir le chemin vers la troisième étape dont il rêvait depuis d'innombrables années!
 
 La carapace de tortue vola et flotta devant Maître du Vide. Elle dégagea une immense quantité de lumière noire, mais au moment même où cette lueur commençait à briller, les vingt-trois grandes épées fondirent sur elle, les trois premières, alignées, la percutant de plein fouet. Un grondement tonitruant retentit; bien que la carapace fût repoussée, elle parvint à résister à l'assaut.
 
@@ -98,7 +98,7 @@ Le choc dans le cœur de la belle femme n'était pas moins intense que celui de 
 
 Ce qui la choquait, outre l'Origine Source de Wang Lin, c'était cette épée de fer! Elle n'avait entendu parler de trésors d'une telle puissance qu'une seule fois dans sa vie.
 
-Elle se remémora le Royaume du Vide Brillant, lorsque les Anciens discutaient des trésors du monde. Ils avaient mentionné que, bien que les trésors soient classés en Spirituel, Mystérieux, Céleste, Vide et Nirvana, ces cinq catégories n'étaient pas les seules. Il existait des trésors surpassant ces cinq rangs, mais même l'Ancien qui en parlait n'avait rencontré que des trésors de niveau Nirvana.
+Elle se remémora le Royaume Kun Xu, lorsque les Anciens discutaient des trésors du monde. Ils avaient mentionné que, bien que les trésors soient classés en Spirituel, Mystérieux, Céleste, Vide et Nirvana, ces cinq catégories n'étaient pas les seules. Il existait des trésors surpassant ces cinq rangs, mais même l'Ancien qui en parlait n'avait rencontré que des trésors de niveau Nirvana.
 
 Il existait de nombreux trésors Spirituels et Mystérieux; la plupart des objets utilisés par les cultivateurs de la première étape appartenaient à ces deux rangs. Certains cultivateurs de la première étape possédaient également des trésors Célestes.
 

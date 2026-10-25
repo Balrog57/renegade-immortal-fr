@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1754 - Establishing the Laws
 slug: etablissement-des-lois
 ---
-Peu de temps après, les quatre généraux et les disciples de la Secte des Sept Dao firent leur entrée, suivis des concubines célestes. En entrant, tous affichaient des expressions complexes.
+Peu de temps après, les quatre généraux et les disciples de la Secte Qi Dao firent leur entrée, suivis des concubines célestes. En entrant, tous affichaient des expressions complexes.
 
 L'un des êtres célestes originaires de l'Ancien Royaume Céleste laissa échapper un soupir et s'avança. Il n'activa aucune des restrictions en présence tandis qu'il se rapprochait du fourneau.
 
@@ -20,7 +20,7 @@ Ce développement soudain surprit l'être céleste qui avait réussi à passer s
 
 Les yeux du Souverain, dissimulé, s'illuminèrent et il laissa échapper un ricanement.
 
-Faisant abstraction de cet incident pour un instant, le disciple de la Secte des Sept Dao qui avait traversé les ruines par chance entra dans le fourneau. C'était un vieil homme dont le niveau de culture n'était pas très élevé. Il vit la fleur géante devant lui ainsi que les 300 gouttes de rosée.
+Faisant abstraction de cet incident pour un instant, le disciple de la Secte Qi Dao qui avait traversé les ruines par chance entra dans le fourneau. C'était un vieil homme dont le niveau de culture n'était pas très élevé. Il vit la fleur géante devant lui ainsi que les 300 gouttes de rosée.
 
 Les trois personnes entrées avant lui avaient déjà disparu. Il hésita et contempla la fleur durant un long moment avant de saisir une goutte de rosée et d'entrer lentement.
 
@@ -30,7 +30,7 @@ Au moment où le vieil homme pénétra dans la goutte, Wang Lin, assis au sommet
 
 Le vortex continuait de pivoter tandis qu'une silhouette floue émergeait lentement. La forme se stabilisa rapidement et, dès qu'elle fut pleinement apparue, le vortex disparut.
 
-La silhouette était le vieil homme chanceux de la Secte des Sept Dao. Dès son apparition, il se montra vigilant et déploya son Sens Divin. Cependant, avec son niveau de culture, il fut incapable de détecter Wang Lin.
+La silhouette était le vieil homme chanceux de la Secte Qi Dao. Dès son apparition, il se montra vigilant et déploya son Sens Divin. Cependant, avec son niveau de culture, il fut incapable de détecter Wang Lin.
 
 Il fronça les sourcils et hésita un instant. Il fit un pas, s'apprêtant à prendre son envol, mais son expression changea brusquement lors de ce mouvement. Son pied ne rencontra que le vide et il sombra rapidement.
 
@@ -88,7 +88,7 @@ Alors que les silhouettes émergeaient, Wang Lin avait déjà formulé ses concl
 
 Bientôt, le vortex disparut et l'identité des trois individus devint claire. Une intention meurtrière fulgurante traversa les yeux de Wang Lin lorsqu'il les identifia!
 
-Les trois portaient des vêtements différents de ceux des habitants du monde des grottes. Leurs robes daoïstes étaient identiques à celles que portait le vieil homme précédemment. Il était évident qu'ils appartenaient à la Secte des Sept Dao!
+Les trois portaient des vêtements différents de ceux des habitants du monde des grottes. Leurs robes daoïstes étaient identiques à celles que portait le vieil homme précédemment. Il était évident qu'ils appartenaient à la Secte Qi Dao!
 
 Leurs niveaux de culture divergeaient. L'un d'eux se trouvait au début du Vide du Nirvana, tandis que les deux autres étaient encore au deuxième stade, au cinquième Fléau Céleste.
 

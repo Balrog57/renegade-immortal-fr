@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1143 - Purple Qi From the West
 slug: qi-violet-de-louest
 ---
-La saison des pluies dura plusieurs mois, comme si elle ne devait jamais s'arrêter. Les gouttes de pluie incessantes et les nuages épais qui couvraient le ciel pesaient sur l'esprit des disciples de la Secte de l'Origine, et ils étaient impuissants à les dissiper.
+La saison des pluies dura plusieurs mois, comme si elle ne devait jamais s'arrêter. Les gouttes de pluie incessantes et les nuages épais qui couvraient le ciel pesaient sur l'esprit des disciples de la Secte Gui Yuan, et ils étaient impuissants à les dissiper.
 
-En un clin d'œil, Wang Lin était déjà à la Secte de l'Origine depuis dix jours.
+En un clin d'œil, Wang Lin était déjà à la Secte Gui Yuan depuis dix jours.
 
 Xu Yun était déjà revenue de chez sa maîtresse, et durant ce temps, elle avait secrètement enquêté sur les trente et un mortels ramenés du Nord, sans rien trouver. Elle avait également observé Wang Lin, mais n'avait rien remarqué d'anormal.
 
@@ -28,9 +28,9 @@ Elle ne parvenait pas à en trouver la raison, mais elle marcha inconsciemment v
 
 « Je vous ai laissé ici pour prendre soin des herbes. Durant ces jours, l'avez-vous fait une seule fois? » Xu Yun fixa Wang Lin, qui lisait un rouleau de bois assis près d'une petite table. Pour une raison quelconque, chaque fois qu'elle voyait Wang Lin, elle peinait à contrôler ses émotions et perdait le calme qu'une cultivatrice de l'Yin Illusoire devrait posséder.
 
-Wang Lin posa le rouleau de bois qu'il avait emprunté à la Secte de l'Origine. Il ne contenait aucune information précieuse; c'était un document que tous les nouveaux disciples pouvaient consulter. Il relatait l'histoire du continent de Mo Luo et offrait une brève introduction de la Mer des Nuages.
+Wang Lin posa le rouleau de bois qu'il avait emprunté à la Secte Gui Yuan. Il ne contenait aucune information précieuse; c'était un document que tous les nouveaux disciples pouvaient consulter. Il relatait l'histoire du continent de Mo Luo et offrait une brève introduction de la Mer Yun.
 
-Ces rouleaux permettaient aux nouveaux disciples de mieux comprendre la Mer des Nuages. Cela leur servait de rappel qu'il y avait toujours des êtres supérieurs à eux, afin qu'ils redoublent d'efforts dans leur culture.
+Ces rouleaux permettaient aux nouveaux disciples de mieux comprendre la Mer Yun. Cela leur servait de rappel qu'il y avait toujours des êtres supérieurs à eux, afin qu'ils redoublent d'efforts dans leur culture.
 
 Pendant sa lecture, Wang Lin n'était pas totalement concentré; il réfléchissait également à l'alchimie et aux bêtes spirituelles.
 
@@ -64,7 +64,7 @@ Tard dans la nuit, la lampe à huile sur la table était allumée. Dehors, l'obs
 
 Le vent de la montagne s'engouffrait dans le bassin, formant des vortex dont montaient des gémissements dans la nuit. Wang Lin posa son rouleau avant de fermer les yeux pour méditer un instant.
 
-Il avait pu tirer beaucoup d'enseignements du rouleau et avait acquis une compréhension vague de la Mer des Nuages. Plus important encore, au cours des quatre derniers jours, il avait pu obtenir une illumination sur l'alchimie grâce à un jade qu'il avait consulté quatre jours plus tôt. Il ouvrit les yeux et leva la tête. Son regard semblait capable de percer les murs de la maison, de traverser la pluie et de contempler directement le ciel au-dessus du bassin.
+Il avait pu tirer beaucoup d'enseignements du rouleau et avait acquis une compréhension vague de la Mer Yun. Plus important encore, au cours des quatre derniers jours, il avait pu obtenir une illumination sur l'alchimie grâce à un jade qu'il avait consulté quatre jours plus tôt. Il ouvrit les yeux et leva la tête. Son regard semblait capable de percer les murs de la maison, de traverser la pluie et de contempler directement le ciel au-dessus du bassin.
 
 Un temple daoïste suspendu dans les airs, soutenu par huit piliers de pierre gigantesques, s'y dressait!
 
@@ -96,9 +96,9 @@ Après un nouvel examen, Wang Lin réfléchit. Il reposa le jade et prit la pilu
 
 Mais après avoir médité sur les informations alchimiques contenues dans le jade, il était revenu pour vérifier cette pilule.
 
-D'après le jade, il existait un total de treize rangs de bêtes spirituelles. Les âmes de ces bêtes pouvaient être raffinées en pilules, elles aussi divisées en treize rangs... C'était une pilule transmise de génération en génération au sein de la Secte de l'Origine. Il s'agissait d'une Pilule de Séparation de l'Âme de rang 8, mais malheureusement, c'était une pilule de rang 8 sans âme de bête de rang 8; c'était donc un gaspillage! Une pointe de regret passa dans les yeux de Wang Lin.
+D'après le jade, il existait un total de treize rangs de bêtes spirituelles. Les âmes de ces bêtes pouvaient être raffinées en pilules, elles aussi divisées en treize rangs... C'était une pilule transmise de génération en génération au sein de la Secte Gui Yuan. Il s'agissait d'une Pilule de Séparation de l'Âme de rang 8, mais malheureusement, c'était une pilule de rang 8 sans âme de bête de rang 8; c'était donc un gaspillage! Une pointe de regret passa dans les yeux de Wang Lin.
 
-En étudiant le jade ces derniers jours, il avait progressivement saisi certains concepts clés de l'alchimie de la Mer des Nuages. Il était venu au temple aujourd'hui pour vérifier si ses suppositions étaient exactes.
+En étudiant le jade ces derniers jours, il avait progressivement saisi certains concepts clés de l'alchimie de la Mer Yun. Il était venu au temple aujourd'hui pour vérifier si ses suppositions étaient exactes.
 
 En voyant la pilule dans sa main, il en eut la certitude.
 
@@ -106,17 +106,17 @@ Après un soupir, Wang Lin reposa la pilule. Il ne prit aucun de ces trois objet
 
 Il lui suffisait de les observer!
 
-« Désormais, je dois raffiner personnellement une pilule en utilisant cette méthode. Mon objectif dans la Mer des Nuages est de faire tout ce qui est en mon pouvoir pour améliorer ma culture! » Les yeux de Wang Lin s'illuminèrent. Alors qu'il s'apprêtait à partir, il leva soudainement la tête, et son regard refléta une lueur étrange.
+« Désormais, je dois raffiner personnellement une pilule en utilisant cette méthode. Mon objectif dans la Mer Yun est de faire tout ce qui est en mon pouvoir pour améliorer ma culture! » Les yeux de Wang Lin s'illuminèrent. Alors qu'il s'apprêtait à partir, il leva soudainement la tête, et son regard refléta une lueur étrange.
 
 Des éclairs déchiraient le ciel au-dessus de la partie occidentale du continent. Des grondements sourds résonnaient, comme si quelqu'un bombardait la région depuis l'extérieur.
 
-Ce continent flottait dans la Mer des Nuages. Une tour noire s'y dressait, émettant une douce lumière blanche qui recouvrait tout le territoire. En plus de repousser la brume, elle jouait un rôle défensif.
+Ce continent flottait dans la Mer Yun. Une tour noire s'y dressait, émettant une douce lumière blanche qui recouvrait tout le territoire. En plus de repousser la brume, elle jouait un rôle défensif.
 
-Elle protégeait le continent contre les cultivateurs d'autres sectes, mais surtout, elle le préservait de la myriade de bêtes féroces! Dans la Mer des Nuages, les bêtes étaient divisées en deux catégories: celles domestiquées par les cultivateurs, appelées bêtes spirituelles, et celles qui erraient dans la brume et se battaient à mort contre les cultivateurs, appelées bêtes féroces!
+Elle protégeait le continent contre les cultivateurs d'autres sectes, mais surtout, elle le préservait de la myriade de bêtes féroces! Dans la Mer Yun, les bêtes étaient divisées en deux catégories: celles domestiquées par les cultivateurs, appelées bêtes spirituelles, et celles qui erraient dans la brume et se battaient à mort contre les cultivateurs, appelées bêtes féroces!
 
 À cet instant, la lumière sur la partie occidentale du continent continua de se distordre avant de s'effondrer soudainement dans un fracas retentissant!
 
-Le grondement tonitruant étouffa le tonnerre et la pluie alors qu'il résonnait à travers tout le continent. Il pénétra clairement dans la Secte de l'Origine!
+Le grondement tonitruant étouffa le tonnerre et la pluie alors qu'il résonnait à travers tout le continent. Il pénétra clairement dans la Secte Gui Yuan!
 
 Une bête spirituelle, d'un noir absolu et d'environ mille pieds de large, ayant la forme d'un têtard, s'engouffra lentement à travers la barrière brisée. Elle traversa les éclairs et se faufila sur le continent de Mo Luo!
 

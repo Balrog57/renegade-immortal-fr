@@ -8,7 +8,7 @@ slug: futur-frere-instructeur
 ---
 Quelque part dans le vide, le vieil homme perché sur le Qilin entendit également l'hymne des épées alors qu'un groupe de lames fonçait derrière lui.
 
-Le vieil homme hésita. Toutes ces épées étaient des épées célestes. S'il parvenait à les saisir et à en offrir une à chacun de ses disciples, sa Secte de l'Épée Da Luo deviendrait la première secte de Tian Yun. Cela lui permettrait de surpasser Tian Yunzi.
+Le vieil homme hésita. Toutes ces épées étaient des épées célestes. S'il parvenait à les saisir et à en offrir une à chacun de ses disciples, sa Secte Da Luo Jian deviendrait la première secte de Tian Yun. Cela lui permettrait de surpasser Tian Yunzi.
 
 Après une longue lutte intérieure, il poussa un soupir. Il décida de ne pas bloquer les épées célestes et s'écarta du chemin.
 
@@ -74,7 +74,7 @@ Wang Lin resta calme et dit: « C'est au frère Chi Hu de décider si nous devon
 
 Chi Hu laissa échapper un rire, se redressa, craqua ses articulations et déclara: « Le frère Ceng, alors qu'il n'était qu'au début de la Formation de l'Âme, a osé combattre Hongdie. Moi, Chi Hu, au milieu de la Formation de l'Âme, je veux aussi défier un cultivateur au stade avancé! Une fois le combat terminé, nous fuirons! » Il sauta de la boussole et hurla: « Si tu veux chevaucher cette boussole, montre-moi d'abord ta force! »
 
-Le visage de l'homme d'âge moyen resta sombre, empreint d'un certain dédain. Loin de s'arrêter, il accéléra encore et lança: « Ainsi, ce sont des membres du Clan des Démons Géants. Dégagez! »
+Le visage de l'homme d'âge moyen resta sombre, empreint d'un certain dédain. Loin de s'arrêter, il accéléra encore et lança: « Ainsi, ce sont des membres du Clan Ju Mo. Dégagez! »
 
 Sur ces mots, il pointa simplement son doigt.
 
@@ -110,13 +110,13 @@ L'expression de l'homme d'âge moyen changea brusquement alors qu'il rattrapait 
 
 Après un long moment, les yeux de l'homme s'illuminèrent. Il s'arrêta, fixa l'endroit où la boussole avait disparu et eut un reniflement méprisant.
 
-« Le Maître avait prédit que l'épée céleste de la Pluie s'éveillerait et que la Secte de l'Épée Da Luo tenterait de s'en emparer. Il m'a chargé de les stopper pour ne pas rompre l'équilibre des pouvoirs sur Tian Yun. Dommage, j'aurais vraiment aimé m'amuser avec ces deux juniors. Humph, bien que la Secte de l'Épée Da Luo soit du même rang que ma Secte du Destin Céleste, tant que le Maître agit, il n'y a aucune inquiétude à avoir! »
+« Le Maître avait prédit que l'épée céleste de la Pluie s'éveillerait et que la Secte Da Luo Jian tenterait de s'en emparer. Il m'a chargé de les stopper pour ne pas rompre l'équilibre des pouvoirs sur Tian Yun. Dommage, j'aurais vraiment aimé m'amuser avec ces deux juniors. Humph, bien que la Secte Da Luo Jian soit du même rang que ma Secte Tian Yun, tant que le Maître agit, il n'y a aucune inquiétude à avoir! »
 
 L'homme lança un regard froid vers l'horizon avant de s'éloigner.
 
 « Le junior assis au centre de la boussole semblait reconnaître ce cristal. Il semble posséder une certaine connaissance... »
 
-Chi Hu, assis en position de lotus sur la boussole, demanda: « Frère Ceng, qu'était ce cristal en forme de diamant? Pourquoi ne m'as-tu pas laissé combattre? Bien que cet homme fût au stade avancé de la Formation de l'Âme, mon Clan des Démons Géants est spécial. Je ne pouvais peut-être pas le vaincre, mais je n'avais pas peur! »
+Chi Hu, assis en position de lotus sur la boussole, demanda: « Frère Ceng, qu'était ce cristal en forme de diamant? Pourquoi ne m'as-tu pas laissé combattre? Bien que cet homme fût au stade avancé de la Formation de l'Âme, mon Clan Ju Mo est spécial. Je ne pouvais peut-être pas le vaincre, mais je n'avais pas peur! »
 
 Tout en dirigeant la boussole stellaire, Wang Lin répondit: « Lorsqu'une personne tue trop, son aura meurtrière se transforme en qi maléfique. Lorsque l'on tue encore davantage, celle-ci se condense en liquide. Et quand elle devient encore plus dense, elle se mue en cristal. C'est le cristal de sang de qi maléfique. À moins que tu ne cultives toi-même un domaine de mort, il endommagera ton âme originelle dès l'instant où tu le toucheras! »
 

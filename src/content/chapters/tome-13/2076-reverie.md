@@ -10,7 +10,7 @@ Maître Nan Yunzi vit Wang Lin.
 
 Lanmeng Daozun vit également Wang Lin.
 
-Dans le Royaume Céleste, tous ceux qui avaient rencontré Wang Lin virent cette silhouette aux cheveux et à la robe blancs. Le Seigneur du Royaume des Sceaux!
+Dans le Royaume Céleste, tous ceux qui avaient rencontré Wang Lin virent cette silhouette aux cheveux et à la robe blancs. Le Seigneur du Royaume Feng!
 
 Bien que certains des cultivateurs arrivés plus tard dans le Royaume Céleste n'eussent pas vu Wang Lin, ils avaient entendu de nombreuses rumeurs à son sujet.
 
@@ -92,7 +92,7 @@ Cette personne ressemblait exactement à la statue qu'il avait vue sur la planè
 
 « Ancêtre... » Il semblait perdre la raison. Il refusait d'admettre que l'homme devant lui soit son ancêtre, Wang Lin.
 
-Pourtant, le tremblement de son âme lui criait la vérité: ce jeune homme aux cheveux blancs était bel et bien l'ancêtre de la planète Suzaku. Le Seigneur du Royaume des Sceaux de jadis, Wang Lin!
+Pourtant, le tremblement de son âme lui criait la vérité: ce jeune homme aux cheveux blancs était bel et bien l'ancêtre de la planète Suzaku. Le Seigneur du Royaume Feng de jadis, Wang Lin!
 
 « Et alors s'il est vraiment lui? Il n'est pas de taille face à mon Maître! » L'expression du jeune homme changea tandis qu'il prenait une profonde inspiration. Inconsciemment, il recula, et son expression devint soudain féroce.
 

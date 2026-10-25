@@ -8,7 +8,7 @@ slug: indice-terrifiant
 ---
 Le cri déchirant fut étouffé par les grondements. La jeune fille qui s'était cachée sur l'épaule droite du colosse et qui s'apprêtait à attaquer Wang Lin par surprise fut forcée de se dévoiler!
 
-Peu importe le niveau de culture de chacun, tous devaient subir l'épreuve du brouillard provenant de la Tombe de l'Ordre Ancien. Même les cultivateurs de la troisième étape devaient y faire face, sans parler de cette simple femme du Clan de l'Extermination des Sceaux!
+Peu importe le niveau de culture de chacun, tous devaient subir l'épreuve du brouillard provenant de la Tombe de l'Ordre Ancien. Même les cultivateurs de la troisième étape devaient y faire face, sans parler de cette simple femme du Clan Feng Mie!
 
 Dès qu'elle apparut, son corps trembla violemment. Sa chair se flétrit rapidement et fut instantanément corrodée par le brouillard jusqu'à ce qu'il ne reste plus qu'un squelette!
 
@@ -26,17 +26,17 @@ Ce brouillard tuait sans laisser de trace. Même ressuscitée, si la brume la fr
 
 Le visage de la jeune fille pâlit instantanément et elle recula précipitamment lors de sa résurrection, cherchant à fuir le brouillard. Cependant, comment pouvait-elle égaler la vitesse de la brume?
 
-À peine son corps s'était-il reformé que le brouillard se précipita en elle avant qu'elle ne puisse s'éloigner davantage. Le désespoir envahit ses yeux. Son Clan de l'Extermination des Sceaux possédait presque des corps immortels, mais en cet instant, la peur de la mort l'assaillait!
+À peine son corps s'était-il reformé que le brouillard se précipita en elle avant qu'elle ne puisse s'éloigner davantage. Le désespoir envahit ses yeux. Son Clan Feng Mie possédait presque des corps immortels, mais en cet instant, la peur de la mort l'assaillait!
 
 Tout cela se produisit en un éclair. La jeune fille fut de nouveau encerclée par le brouillard. Elle désespéra tandis que la brume traversait son corps une fois de plus. Pourtant, non seulement elle ne mourut pas, mais une vitalité infinie naquit en elle, afflua entre ses sourcils et y forma un chiffre!
 
 En cet instant fugace, la jeune fille avait traversé la vie et la mort, et une sueur froide trempait ses vêtements. Avant qu'elle ne retrouve ses esprits, la force d'aspiration l'enveloppa. Elle se débattit avec terreur alors qu'elle était aspirée dans les profondeurs du brouillard.
 
-Il y avait aussi le colosse de l'Estimé Clan du Loup Céleste. Il avait été aspiré dans le brouillard un instant avant la jeune fille!
+Il y avait aussi le colosse de l'Estimé Clan Feng Tian Lang. Il avait été aspiré dans le brouillard un instant avant la jeune fille!
 
 Wang Lin vit clairement toute la scène. Ses yeux s'illuminèrent, et le spectacle de cette mort suivie d'une résurrection ébranla son esprit!
 
-« Je l'ai déjà tuée une fois, et cet étrange brouillard l'a tuée à nouveau, mais elle n'est toujours pas morte!! Le Clan de l'Extermination des Sceaux est... un peu trop puissant! »
+« Je l'ai déjà tuée une fois, et cet étrange brouillard l'a tuée à nouveau, mais elle n'est toujours pas morte!! Le Clan Feng Mie est... un peu trop puissant! »
 
 « Cependant, son expression tout à l'heure n'était pas feinte; ce regard de désespoir révélait ses pensées. Si cette femme meurt une nouvelle fois, elle ne pourra plus revenir! » Wang Lin était observateur et intelligent, il ne lui fut pas difficile de déduire cela.
 
@@ -74,7 +74,7 @@ Dans son cœur, il avait concocté de multiples raisons et excuses pour agir ain
 
 Tout cela semblait être des idées propres qui lui étaient venues spontanément.
 
-Cependant, après s'être échappé de la terre sainte du Clan des Moineaux de Feu, alors que Wang Lin commençait à douter que l'homme d'âge moyen fût réellement le Souverain, un doute terrifiant l'avait saisi... Un doute qui lui avait glacé le sang!
+Cependant, après s'être échappé de la terre sainte du Clan Huo Que, alors que Wang Lin commençait à douter que l'homme d'âge moyen fût réellement le Souverain, un doute terrifiant l'avait saisi... Un doute qui lui avait glacé le sang!
 
 « Pourquoi ferais-je une chose aussi insensée et aurais-je une idée aussi folle... » À peine avait-il commencé à douter que la pensée se dissipa aussitôt, balayée par d'autres préoccupations. Cela l'avait presque fait oublier ce doute surgi lorsqu'il remettait en question l'identité du Souverain.
 

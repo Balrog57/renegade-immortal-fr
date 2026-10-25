@@ -18,9 +18,9 @@ Des éclats de lumière aux sept couleurs jaillirent de la brèche dans le ciel.
 
 Une à une, des illusions apparurent soudainement et se mirent à danser dans les cieux. L'une d'elles trônait au centre. Cette illusion portait une robe dorée et dégageait une quantité monstrueuse d'énergie spirituelle céleste. Bien qu'il ne s'agisse que d'une image, une pression céleste écrasante émanait de son corps.
 
-Flottant dans les airs, il regarda vers le bas, et son regard se posa sur les plus de 10 000 disciples de la Secte de l'Épée Da Luo. Il n'ouvrit pas la bouche, mais une voix puissante fit vibrer le ciel.
+Flottant dans les airs, il regarda vers le bas, et son regard se posa sur les plus de 10 000 disciples de la Secte Da Luo Jian. Il n'ouvrit pas la bouche, mais une voix puissante fit vibrer le ciel.
 
-« Je suis le corps illusionnaire du messager éternel du Royaume Céleste. Je suis venu pour guider les cultivateurs du royaume inférieur! » Cette phrase semblait avoir été prononcée d'innombrables fois. Le messager abaissa alors une main immense. À cet instant, l'espace où flottaient les disciples de la Secte de l'Épée Da Luo trembla, puis fut scellé par une lumière dorée!
+« Je suis le corps illusionnaire du messager éternel du Royaume Céleste. Je suis venu pour guider les cultivateurs du royaume inférieur! » Cette phrase semblait avoir été prononcée d'innombrables fois. Le messager abaissa alors une main immense. À cet instant, l'espace où flottaient les disciples de la Secte Da Luo Jian trembla, puis fut scellé par une lumière dorée!
 
 Cette scène provoqua la stupeur de tous les cultivateurs environnants venus pour la célébration. Les plus puissants d'entre eux affichèrent des expressions de choc.
 
@@ -38,11 +38,11 @@ D'un geste de la main droite, il fit revenir l'épée serpentine vers lui. Il re
 
 L'expression de Tian Yunzi resta imperturbable. « N'est-ce pas une bonne chose de laisser vos disciples expérimenter ce qu'était le Royaume Céleste avant sa destruction? »
 
-Pendant qu'ils discutaient, plus de 10 000 disciples de la Secte de l'Épée Da Luo furent aspirés vers la brèche céleste, sans aucun contrôle sur leurs corps, disparaissant un à un.
+Pendant qu'ils discutaient, plus de 10 000 disciples de la Secte Da Luo Jian furent aspirés vers la brèche céleste, sans aucun contrôle sur leurs corps, disparaissant un à un.
 
 Le visage de Ling Tianhou restait sombre alors qu'il se tenait là, fixant froidement Tian Yunzi.
 
-Ce n'est que lorsque le dernier disciple de la Secte de l'Épée Da Luo eut disparu dans la brèche que la scène étrange dans le ciel s'estompa lentement pour revenir à la normale.
+Ce n'est que lorsque le dernier disciple de la Secte Da Luo Jian eut disparu dans la brèche que la scène étrange dans le ciel s'estompa lentement pour revenir à la normale.
 
 Tian Yunzi leva la tête vers les cieux et sourit doucement. « Bien que ce sortilège céleste de qualité moyenne n'ait aucun pouvoir d'attaque, il peut toujours transporter des êtres, même après la disparition du Royaume Céleste. Quant à savoir où ils sont envoyés, je n'en ai aucune idée! »
 
@@ -88,7 +88,7 @@ Tian Yunzi cria alors: « Kunpeng Zi! »
 
 « Disciple est présent! » Le corps de Kunpeng Zi trembla tandis qu'il avançait rapidement pour se tenir droit.
 
-« Tu es le véritable disciple de la Division Jaune. Si tu parviens à maintenir ce titre pendant mille ans, je t'enseignerai l'intégralité d'un sort céleste de qualité inférieure. Les Sept Disciples du Destin Céleste ne sont pas de simples êtres; ils sont le symbole de ma Secte du Destin Céleste et les véritables disciples de la secte. Sauras-tu honorer ce titre? » La voix de Tian Yunzi était empreinte de majesté.
+« Tu es le véritable disciple de la Division Jaune. Si tu parviens à maintenir ce titre pendant mille ans, je t'enseignerai l'intégralité d'un sort céleste de qualité inférieure. Les Sept Disciples du Destin Céleste ne sont pas de simples êtres; ils sont le symbole de ma Secte Tian Yun et les véritables disciples de la secte. Sauras-tu honorer ce titre? » La voix de Tian Yunzi était empreinte de majesté.
 
 Les cultivateurs environnants ne réagirent guère, mais la bouche du Saint de l'Épée Ling Tianhou s'agita. Il afficha un air de dédain, comme pour dire: « Les Sept Disciples du Destin Céleste... hmph... »
 

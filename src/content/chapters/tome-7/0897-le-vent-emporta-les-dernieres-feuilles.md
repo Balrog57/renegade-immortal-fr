@@ -16,21 +16,21 @@ Alors qu'il approchait de la ville, le sens divin de Wang Lin balaya les lieux c
 
 Le même sort s'abattit sur les deux autres lieux.
 
-L'expression de Wang Lin resta glaciale alors qu'il se détournait pour partir. Il était trop rapide; il ne laissait aucune chance aux disciples de la Secte des Cadavres. Tandis que son sens divin se déployait, des corps explosèrent instantanément dans les quatre cités restantes.
+L'expression de Wang Lin resta glaciale alors qu'il se détournait pour partir. Il était trop rapide; il ne laissait aucune chance aux disciples de la Secte Shi Yin. Tandis que son sens divin se déployait, des corps explosèrent instantanément dans les quatre cités restantes.
 
-Une fois cela accompli, Wang Lin poursuivit sa progression, étendant son sens divin sur toutes les villes de la Grande Dynastie Wang. Les disciples de la Secte des Cadavres, pris de panique, s'envolèrent hors des cités en tentant de s'échapper.
+Une fois cela accompli, Wang Lin poursuivit sa progression, étendant son sens divin sur toutes les villes de la Grande Dynastie Wang. Les disciples de la Secte Shi Yin, pris de panique, s'envolèrent hors des cités en tentant de s'échapper.
 
 Cependant, dès qu'ils atteignirent les airs, un froid renâclement retentit. Leurs corps furent saisis de tremblements et directement broyés par le sens divin projeté par un cultivateur au stade Scruteur du Nirvana!
 
-Des bruits d'éclatement résonnèrent à travers la Grande Dynastie Wang; les disciples de la Secte des Cadavres crachèrent leur sang avant que leurs corps ne se désintègrent. Même leurs âmes s'effondrèrent, et de vastes quantités d'énergie spirituelle furent libérées pour nourrir la terre de la planète Suzaku.
+Des bruits d'éclatement résonnèrent à travers la Grande Dynastie Wang; les disciples de la Secte Shi Yin crachèrent leur sang avant que leurs corps ne se désintègrent. Même leurs âmes s'effondrèrent, et de vastes quantités d'énergie spirituelle furent libérées pour nourrir la terre de la planète Suzaku.
 
 Cet événement soudain plongea les citoyens de la Grande Dynastie Wang dans la panique. Ignorant tout de ce qui se passait, ils commencèrent à multiplier les spéculations.
 
-Son sens divin balaya l'ensemble de la dynastie. Après avoir éliminé les disciples de la Secte des Cadavres, le visage de Wang Lin devint plus sombre encore. Il avait fouillé les souvenirs de la femme de la planète Feng Luan: de nombreux disciples de la Secte des Cadavres de la dynastie collectaient du ressentiment, et presque chaque ville abritait un autel destiné à nourrir des esprits vengeurs.
+Son sens divin balaya l'ensemble de la dynastie. Après avoir éliminé les disciples de la Secte Shi Yin, le visage de Wang Lin devint plus sombre encore. Il avait fouillé les souvenirs de la femme de la planète Feng Luan: de nombreux disciples de la Secte Shi Yin de la dynastie collectaient du ressentiment, et presque chaque ville abritait un autel destiné à nourrir des esprits vengeurs.
 
-Cela ne se passait pas uniquement sur la planète Suzaku; dans tout le Système Stellaire de l'Alliance, toutes les branches de la Secte des Cadavres étaient en train de récolter le ressentiment.
+Cela ne se passait pas uniquement sur la planète Suzaku; dans tout le Système Stellaire de l'Alliance, toutes les branches de la Secte Shi Yin étaient en train de récolter le ressentiment.
 
-Bien que cette femme de la planète Feng Luan fût une Grande Ancienne, une personne de son rang n'aurait normalement pas été envoyée sur la planète Suzaku. Cependant, des ordres étaient tombés du quartier général de la Secte des Cadavres pour y stationner un cultivateur Corporel Yang, et cette mission lui était dévolue.
+Bien que cette femme de la planète Feng Luan fût une Grande Ancienne, une personne de son rang n'aurait normalement pas été envoyée sur la planète Suzaku. Cependant, des ordres étaient tombés du quartier général de la Secte Shi Yin pour y stationner un cultivateur Corporel Yang, et cette mission lui était dévolue.
 
 Wang Lin ne se souciait guère de cela. Ce qu'il trouvait étrange, c'était un ordre secret qu'elle avait reçu du quartier général après son arrivée sur la planète Suzaku!
 
@@ -48,15 +48,15 @@ Durant ces dix années, la femme s'était soigneusement dissimulée dans le pala
 
 « Que s'est-il passé exactement il y a dix ans pour qu'elle cherche refuge dans le palais impérial, l'endroit le plus peuplé... Et pourquoi pensait-elle ne pas y être découverte? »
 
-Wang Lin fronça les sourcils. Après avoir réfléchi un instant, il décida de ne plus y penser. Son sens divin ne se concentra plus sur la cité, mais balaya la planète Suzaku à la recherche de la Secte des Cadavres.
+Wang Lin fronça les sourcils. Après avoir réfléchi un instant, il décida de ne plus y penser. Son sens divin ne se concentra plus sur la cité, mais balaya la planète Suzaku à la recherche de la Secte Shi Yin.
 
-La Secte des Cadavres était une organisation tentaculaire. Non seulement aux abords de la planète, mais rien qu'en restant sur Suzaku, Wang Lin se souvenait que la secte était présente dans presque tous les pays.
+La Secte Shi Yin était une organisation tentaculaire. Non seulement aux abords de la planète, mais rien qu'en restant sur Suzaku, Wang Lin se souvenait que la secte était présente dans presque tous les pays.
 
-Cependant, à travers les souvenirs de cette femme, il comprit que la Secte des Cadavres avait été réorganisée. Ils étaient désormais concentrés en un seul lieu, qui était devenu le quartier général de la Secte sur la planète Suzaku.
+Cependant, à travers les souvenirs de cette femme, il comprit que la Secte Shi Yin avait été réorganisée. Ils étaient désormais concentrés en un seul lieu, qui était devenu le quartier général de la Secte sur la planète Suzaku.
 
-Ce qui était intéressant, c'est que ce nouveau quartier général se trouvait dans le pays de Zhao, là même où la Secte des Cadavres de Zhao opérait autrefois!
+Ce qui était intéressant, c'est que ce nouveau quartier général se trouvait dans le pays de Zhao, là même où la Secte Shi Yin de Zhao opérait autrefois!
 
-Après avoir nettoyé les membres de la secte dans diverses cités, Wang Lin se dirigea droit vers le siège de la Secte des Cadavres à Zhao. Il se déplaçait à une vitesse fulgurante et arriva bientôt à destination.
+Après avoir nettoyé les membres de la secte dans diverses cités, Wang Lin se dirigea droit vers le siège de la Secte Shi Yin à Zhao. Il se déplaçait à une vitesse fulgurante et arriva bientôt à destination.
 
 Cela faisait des centaines d'années qu'il n'était pas venu ici. En fixant le marécage qui s'étendait devant lui, son regard devint glacial et il murmura: « Intéressant. Il y a bien plus de restrictions ici qu'auparavant. »
 
@@ -74,11 +74,11 @@ Wang Lin pénétra dans le conduit avec calme, suivi par Ta Shan. Quant au garç
 
 En descendant ce passage secret, Wang Lin ressentit une pointe de mélancolie. Il était venu ici deux fois, il y a des siècles, et à chaque fois, il avait dû faire preuve d'une prudence extrême. Désormais, il pouvait agir à sa guise.
 
-Alors qu'il progressait, il déploya son sens divin sur toute la Secte des Cadavres afin de bloquer toutes les issues. Il était venu ici pour s'en prendre à la secte. Qu'il s'agisse d'aujourd'hui ou d'autrefois, Wang Lin n'avait jamais éprouvé la moindre bienveillance envers eux. Sans parler du fait qu'ils avaient osé utiliser la famille Wang pour nourrir des esprits vengeurs.
+Alors qu'il progressait, il déploya son sens divin sur toute la Secte Shi Yin afin de bloquer toutes les issues. Il était venu ici pour s'en prendre à la secte. Qu'il s'agisse d'aujourd'hui ou d'autrefois, Wang Lin n'avait jamais éprouvé la moindre bienveillance envers eux. Sans parler du fait qu'ils avaient osé utiliser la famille Wang pour nourrir des esprits vengeurs.
 
 Wang Lin n'éprouvait aucun sentiment particulier envers ces descendants dont le lien remontait à plus de dix générations. Cependant, ils étaient les descendants de la lignée Wang, et les voir ainsi maltraités l'enrageait profondément.
 
-En chemin, tout cultivateur de la Secte des Cadavres détecté par son sens divin s'effondrait et mourait sur le coup. Les membres de la secte étaient nombreux; leurs visages étaient sombres de terreur alors qu'ils tentaient désespérément de fuir. Mais avec le sens divin de Wang Lin scellant les passages, aucune évasion n'était possible!
+En chemin, tout cultivateur de la Secte Shi Yin détecté par son sens divin s'effondrait et mourait sur le coup. Les membres de la secte étaient nombreux; leurs visages étaient sombres de terreur alors qu'ils tentaient désespérément de fuir. Mais avec le sens divin de Wang Lin scellant les passages, aucune évasion n'était possible!
 
 Soudain, une rafale d'énergie d'épée jaillit du passage vers lui.
 
@@ -100,9 +100,9 @@ Au moment où la momie disparut, ses yeux retrouvèrent une clarté éphémère.
 
 Tous ces embusqueurs n'étaient que des marionnettes de cadavres.
 
-Wang Lin poursuivit sa marche vers le quartier général de la Secte des Cadavres. Arrivé à un certain point, son regard devint glacial et il scruta l'horizon. Son regard semblait capable de percer les parois pour sonder l'intérieur de la grotte. Il y vit huit immenses formations de transfert, au sein desquelles de nombreux membres de la secte se tenaient debout. Les formations s'activaient, et leurs silhouettes commençaient lentement à disparaître.
+Wang Lin poursuivit sa marche vers le quartier général de la Secte Shi Yin. Arrivé à un certain point, son regard devint glacial et il scruta l'horizon. Son regard semblait capable de percer les parois pour sonder l'intérieur de la grotte. Il y vit huit immenses formations de transfert, au sein desquelles de nombreux membres de la secte se tenaient debout. Les formations s'activaient, et leurs silhouettes commençaient lentement à disparaître.
 
-« Vous ne pourrez pas vous enfuir! » se dit calmement Wang Lin. Son sens divin balaya les huit formations, provoquant leur effondrement immédiat. En un instant, trois d'entre elles furent détruites, projetant les disciples de la Secte des Cadavres dans une fissure spatiale.
+« Vous ne pourrez pas vous enfuir! » se dit calmement Wang Lin. Son sens divin balaya les huit formations, provoquant leur effondrement immédiat. En un instant, trois d'entre elles furent détruites, projetant les disciples de la Secte Shi Yin dans une fissure spatiale.
 
 Simultanément, les cinq autres formations s'effondrèrent également. Pas un seul disciple ne put s'en sortir.
 

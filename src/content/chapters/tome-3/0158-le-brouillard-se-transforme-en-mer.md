@@ -18,7 +18,7 @@ L'homme se versa une coupe, en but une gorgée, puis dit d'une voix lente: « Pa
 
 Le jeune homme n'osait même pas respirer trop fort. Avec sa culture au stade avancé de l'Établissement des Fondations, il était incapable de percer les mystères de ce vieil homme. Cependant, fort de ses nombreuses années d'expérience, il savait que cet homme était au moins un cultivateur au stade intermédiaire de la Formation du Noyau, voire avancé.
 
-« Cette personne est apparue soudainement il y a une demi-lune; elle a tué dix cultivateurs de la Formation du Noyau de la Secte de la Lutte contre le Mal et, pour une raison inconnue, elle est tombée sous le coup de l'ordre de mise à mort des Dix Mille Démons: Cent jours... » Le jeune homme expliqua tout ce qu'il savait avec précision.
+« Cette personne est apparue soudainement il y a une demi-lune; elle a tué dix cultivateurs de la Formation du Noyau de la Secte Dou Xie et, pour une raison inconnue, elle est tombée sous le coup de l'ordre de mise à mort des Dix Mille Démons: Cent jours... » Le jeune homme expliqua tout ce qu'il savait avec précision.
 
 Le vieil homme ferma les yeux et agita négligemment la main. Les yeux du jeune homme s'écarquillèrent alors que son corps entier se transformait en une brume de sang, avant qu'un vent étrange ne vienne emporter ce nuage écarlate.
 
@@ -48,13 +48,13 @@ Le vieil homme réfléchit un instant, puis se leva. Il jeta une pierre spiritue
 
 Dès leur départ, les cultivateurs de l'auberge furent envahis par la terreur. Un seul mot résonnait dans leurs esprits: « Cultivateur Âme Naissante! »
 
-Sous la conduite de Xu Mu, le vieil homme atteignit la Secte de la Lutte contre le Mal en seulement une heure. Il déploya son puissant Sens Divin et localisa Shang Guanmo.
+Sous la conduite de Xu Mu, le vieil homme atteignit la Secte Dou Xie en seulement une heure. Il déploya son puissant Sens Divin et localisa Shang Guanmo.
 
 À la stupéfaction de Shang Guanmo, le vieil homme parvint à prélever, entre ses sourcils, une autre goutte de son sang d'essence de l'âme pour utiliser le lien entre les deux gouttes afin de traquer Wang Lin. Il relâcha ensuite Xu Mu et repartit à toute allure vers le sud-ouest.
 
-Quant à Wang Lin, il se déplaçait très rapidement tout en portant Li Muwan. L'épée volante fendait la brume épaisse de la Mer des Démons.
+Quant à Wang Lin, il se déplaçait très rapidement tout en portant Li Muwan. L'épée volante fendait la brume épaisse de la Mer Xiu Mo.
 
-La Mer des Démons est enveloppée de brouillard toute l'année, mais une seule fois par an, pendant un mois, ce brouillard se transforme en eau. Durant toutes les années passées dans la Mer des Démons, Wang Lin n'avait jamais été témoin de ce phénomène en raison de sa culture en isolement.
+La Mer Xiu Mo est enveloppée de brouillard toute l'année, mais une seule fois par an, pendant un mois, ce brouillard se transforme en eau. Durant toutes les années passées dans la Mer Xiu Mo, Wang Lin n'avait jamais été témoin de ce phénomène en raison de sa culture en isolement.
 
 Un mois après son entrée dans la 14e vallée, le brouillard s'était transformé en mer. Cela se produisait chaque année pendant les trois années qu'il y avait passé, et l'événement allait bientôt se reproduire.
 
@@ -62,7 +62,7 @@ Li Muwan, elle, était différente; elle l'avait vécu personnellement chaque an
 
 En près de quatre ans, le brouillard s'était transformé en mer à quatre reprises. À chaque fois, Li Muwan, extrêmement tendue, gérait personnellement la formation et ne se relâchait qu'une fois le phénomène terminé.
 
-L'humidité du brouillard était désormais plus forte que lors de leur arrivée initiale dans la Mer des Démons. À certains endroits, le brouillard montrait déjà des signes de transformation en mer.
+L'humidité du brouillard était désormais plus forte que lors de leur arrivée initiale dans la Mer Xiu Mo. À certains endroits, le brouillard montrait déjà des signes de transformation en mer.
 
 À mesure qu'ils s'élevaient, la brume devenait de plus en plus épaisse, jusqu'à donner l'impression de nager dans l'eau.
 
@@ -86,15 +86,15 @@ Li Muwan percevait la nervosité de Wang Lin. Elle sortit rapidement quelques ma
 
 Wang Lin jeta un regard par-dessus son épaule avec une pointe d'admiration. Li Muwan ressentit une douce émotion, mais l'énergie consommée précédemment la laissait épuisée. En voyant la vitesse de Wang Lin s'accélérer après avoir bu le liquide spirituel, elle hésita un instant avant de sortir la fiole que Wang Lin lui avait donnée. Elle en prit quelques gouttes et sentit aussitôt son esprit se raffermir ; elle regarda avec surprise le liquide dans la fiole. Elle la rangea soigneusement et reprit la confection de ses petites formations.
 
-En montant plus haut, une force invisible finit par se manifester: la pression océanique, unique à la Mer des Démons. Quiconque tentait de s'en échapper devait affronter ce poids écrasant.
+En montant plus haut, une force invisible finit par se manifester: la pression océanique, unique à la Mer Xiu Mo. Quiconque tentait de s'en échapper devait affronter ce poids écrasant.
 
 À 35 000 kilomètres derrière Wang Lin, le vieil homme frappa son sac de rangement et en sortit une calebasse verte. Celle-ci grandit instantanément pour atteindre cent fois sa taille initiale. L'homme s'assit nonchalamment sur la calebasse alors qu'elle fonçait vers l'avant. Grâce à cet artefact, sa vitesse avait au moins doublé.
 
 En avançant, Wang Lin sentait la force de poussée du brouillard s'intensifier. Bien qu'une partie soit due à sa propre vélocité, il était évident que son poursuivant accélérait à un rythme fulgurant.
 
-Le brouillard de la Mer des Démons s'était considérablement raréfié à mesure que l'eau apparaissait. Vu d'en haut, le brouillard semblait assez mince pour que le regard le traverse.
+Le brouillard de la Mer Xiu Mo s'était considérablement raréfié à mesure que l'eau apparaissait. Vu d'en haut, le brouillard semblait assez mince pour que le regard le traverse.
 
-Sous la lumière lunaire, la Mer des Démons scintillait. On aurait dit qu'une couche d'eau s'était déjà formée. La profondeur de cette eau s'étendait rapidement au fil du temps et, peu à peu, des vagues apparaissaient par moments, grondant en s'entrechoquant.
+Sous la lumière lunaire, la Mer Xiu Mo scintillait. On aurait dit qu'une couche d'eau s'était déjà formée. La profondeur de cette eau s'étendait rapidement au fil du temps et, peu à peu, des vagues apparaissaient par moments, grondant en s'entrechoquant.
 
 Assis sur sa calebasse, le vieil homme fronça les sourcils. Devant lui, des formations actives étaient stratégiquement placées. Bien qu'elles fussent d'une ingéniosité extrême et qu'il ne s'en souciât guère, percuter chacune d'elles finirait par le ralentir.
 
@@ -114,4 +114,4 @@ Sous la surface, l'épée de cristal lumineux oscillait au rythme des vagues, gu
 
 Une heure plus tard, un immense tourbillon apparut en mer. Il mesurait environ trois cents mètres de large ; il soulevait d'innombrables vagues gigantesques et tournoyait à toute vitesse dans un seul sens.
 
-Au centre du tourbillon, un tunnel noir communiquait avec les profondeurs de la Mer des Démons. Une calebasse verte remonta lentement depuis l'intérieur de ce conduit.
+Au centre du tourbillon, un tunnel noir communiquait avec les profondeurs de la Mer Xiu Mo. Une calebasse verte remonta lentement depuis l'intérieur de ce conduit.

@@ -6,19 +6,19 @@ bookTitle: Clean Sweep
 en: Chapter 329 - I am Wang Lin (1)
 slug: moi-je-suis-wang-lin-1
 ---
-Il chargea rapidement vers la Mer des Démons.
+Il chargea rapidement vers la Mer Xiu Mo.
 
 En chemin, Wang Lin ne ralentit nullement. Après avoir traversé plusieurs formations de transfert, il apparut à 5 000 kilomètres d'une ville.
 
-Cette cité s'appelait la Cité des Rebelles Démoniaques. C'était l'une des dix villes principales de la Mer des Démons, classée au troisième rang de ces cités majeures. Elle était plusieurs fois plus vaste que n'importe quelle ville que Wang Lin avait vue auparavant.
+Cette cité s'appelait la Cité Mo Ni. C'était l'une des dix villes principales de la Mer Xiu Mo, classée au troisième rang de ces cités majeures. Elle était plusieurs fois plus vaste que n'importe quelle ville que Wang Lin avait vue auparavant.
 
-La carte que possédait Wang Lin contenait quelques descriptions de la ville, mais toutes ces informations dataient d'avant l'invasion de la Mer des Démons. De nombreuses nouvelles puissances s'y étaient mêlées, de sorte que Wang Lin ignorait la situation politique exacte des lieux.
+La carte que possédait Wang Lin contenait quelques descriptions de la ville, mais toutes ces informations dataient d'avant l'invasion de la Mer Xiu Mo. De nombreuses nouvelles puissances s'y étaient mêlées, de sorte que Wang Lin ignorait la situation politique exacte des lieux.
 
 Cependant, son but n'était pas de semer le trouble, mais simplement d'acheter quelques cadeaux pour Li Muwan.
 
-Après avoir payé quelques pierres spirituelles de faible qualité, Wang Lin pénétra dans la Cité des Rebelles Démoniaques.
+Après avoir payé quelques pierres spirituelles de faible qualité, Wang Lin pénétra dans la Cité Mo Ni.
 
-De nombreux cultivateurs arpentaient les rues, rendant l'endroit très animé. Son chapeau de paille sur la tête, Wang Lin observa les environs et esquissa un sourire. Un imposant bâtiment de cinq étages attira son regard au loin, arborant les trois caractères: « Pavillon de Raffinage des Trésors ».
+De nombreux cultivateurs arpentaient les rues, rendant l'endroit très animé. Son chapeau de paille sur la tête, Wang Lin observa les environs et esquissa un sourire. Un imposant bâtiment de cinq étages attira son regard au loin, arborant les trois caractères: « Pavillon Lian Qi ».
 
 Wang Lin réfléchit un instant avant de se diriger vers l'édifice.
 
@@ -28,7 +28,7 @@ Au troisième étage, un homme d'âge moyen lisait un parchemin ancien, savouran
 
 Wang Lin scruta les lieux et répondit: « Une recette de pilule. »
 
-L'homme sourit: « Notre Pavillon de Raffinage des Trésors possède de nombreuses recettes. Quel type recherchez-vous? »
+L'homme sourit: « Notre Pavillon Lian Qi possède de nombreuses recettes. Quel type recherchez-vous? »
 
 S'asseyant sur une chaise à côté de lui, Wang Lin déclara: « De rang 5 ou supérieur. »
 
@@ -40,15 +40,15 @@ Le vieil homme observa calmement Wang Lin, plongé dans une réflexion silencieu
 
 Wang Lin lui jeta un regard désinvolte avant de fixer les coffrets dans la main de l'homme d'âge moyen.
 
-Ce dernier posa les boîtes et sourit: « Parmi ces trois recettes de rang 5, deux proviennent de la Secte du Ciel Nuageux de Chu, et la dernière de la Secte de la Fin du Monde de Da Mo. Voici les jades indiquant les effets des pilules. Je vous en prie, examinez-les. » D'un revers de main, il fit apparaître trois jades qu'il disposa sur les coffrets.
+Ce dernier posa les boîtes et sourit: « Parmi ces trois recettes de rang 5, deux proviennent de la Secte Yun Tian, et la dernière de la Secte Tian Ya de Da Mo. Voici les jades indiquant les effets des pilules. Je vous en prie, examinez-les. » D'un revers de main, il fit apparaître trois jades qu'il disposa sur les coffrets.
 
 Wang Lin prit chaque jade l'un après l'autre. Ils n'indiquaient que les effets, et non les recettes elles-mêmes; ces dernières se trouvaient à l'intérieur des boîtes.
 
-Avant de quitter la Secte du Ciel Nuageux, Wang Lin avait déjà consulté toutes leurs recettes de rang 5. Après avoir parcouru rapidement les deux premiers jades, il porta son attention sur celui de la Secte de la Fin du Monde.
+Avant de quitter la Secte Yun Tian, Wang Lin avait déjà consulté toutes leurs recettes de rang 5. Après avoir parcouru rapidement les deux premiers jades, il porta son attention sur celui de la Secte Tian Ya.
 
-Après un long moment, Wang Lin reposa le jade et dit: « Je veux cette recette de la pilule de Retour à l'Origine de la Secte de la Fin du Monde. Votre pavillon possède-t-il des recettes de rang 6? »
+Après un long moment, Wang Lin reposa le jade et dit: « Je veux cette recette de la pilule de Retour à l'Origine de la Secte Tian Ya. Votre pavillon possède-t-il des recettes de rang 6? »
 
-L'homme d'âge moyen hésita et consulta le vieil homme, qui acquiesça d'un signe de tête. L'homme reprit alors avec un sourire rapide: « Une recette de rang 6 est inestimable. Notre pavillon n'en possède qu'une seule, et elle ne sera vendue que lors des enchères de la Mer des Démons qui se tiennent tous les dix ans. Si vous le souhaitez, pourquoi ne pas attendre deux mois? Les enchères débuteront dans deux mois. »
+L'homme d'âge moyen hésita et consulta le vieil homme, qui acquiesça d'un signe de tête. L'homme reprit alors avec un sourire rapide: « Une recette de rang 6 est inestimable. Notre pavillon n'en possède qu'une seule, et elle ne sera vendue que lors des enchères de la Mer Xiu Mo qui se tiennent tous les dix ans. Si vous le souhaitez, pourquoi ne pas attendre deux mois? Les enchères débuteront dans deux mois. »
 
 Wang Lin fronça les sourcils: « Laisse tomber. Combien coûte cette recette de rang 5? »
 
@@ -76,23 +76,23 @@ Au début, la plupart des commerces proposaient des prix équitables, mais les d
 
 Dès lors, une rumeur s'était propagée: le cultivateur au chapeau de paille serait un expert de la Formation de l'Âme. Cela servait les intérêts de Wang Lin, car il lui était désormais bien plus facile d'acquérir des recettes.
 
-Dix jours plus tard, grâce aux anciennes formations de transfert, Wang Lin atteignit la frontière entre Chu et la Mer des Démons. Durant ce laps de temps, il avait réussi à obtenir un total de huit recettes de pilules de culture de rang 5.
+Dix jours plus tard, grâce aux anciennes formations de transfert, Wang Lin atteignit la frontière entre Chu et la Mer Xiu Mo. Durant ce laps de temps, il avait réussi à obtenir un total de huit recettes de pilules de culture de rang 5.
 
 « Wan Er sera certainement ravie en voyant ces recettes », pensa Wang Lin avec un sourire. Une fois entré dans le pays de Chu, il retira son chapeau et cessa de se dissimuler.
 
-Cependant, alors qu'il franchissait la frontière, son expression changea brusquement. Ses yeux devinrent glacials tandis qu'il fixait au loin, vers la Secte du Ciel Nuageux, et murmura: « Il court à sa perte! » Puis, il disparut sur-le-champ.
+Cependant, alors qu'il franchissait la frontière, son expression changea brusquement. Ses yeux devinrent glacials tandis qu'il fixait au loin, vers la Secte Yun Tian, et murmura: « Il court à sa perte! » Puis, il disparut sur-le-champ.
 
 Zhan Bai était un nom qui, dans le pays de rang 5 de Pilu, était synonyme de carnage sanglant.
 
-Ce génie venait de la Secte des Démons Insectes de Pilu et était un cultivateur au stade avancé de l'Âme Naissante. Pour une raison inconnue, il avait dérobé le texte sacré de sa secte avant de la trahir.
+Ce génie venait de la Secte Zhi Mo Dao de Pilu et était un cultivateur au stade avancé de l'Âme Naissante. Pour une raison inconnue, il avait dérobé le texte sacré de sa secte avant de la trahir.
 
-La Secte des Démons Insectes l'avait poursuivi, mais il réussissait toujours à s'échapper. Bien qu'ils l'aient blessé gravement, de nombreux disciples avaient péri dans leur poursuite.
+La Secte Zhi Mo l'avait poursuivi, mais il réussissait toujours à s'échapper. Bien qu'ils l'aient blessé gravement, de nombreux disciples avaient péri dans leur poursuite.
 
 Finalement, pour échapper à un expert de la Formation de l'Âme, Zhan Bai se réfugia dans la Vallée Désolée des Neuf Fantômes. Il y vécut pendant cent ans après sa fuite.
 
 Nul ne savait comment il avait survécu durant ce siècle, mais lorsqu'il en ressortit, il avait atteint le stade de la Formation de l'Âme. Plus terrifiant encore, il avait apprivoisé d'innombrables insectes venimeux.
 
-Dès son apparition, il s'était frayé un chemin par le massacre jusqu'à la Secte des Démons Insectes. Entouré de sa nuée, même certains cultivateurs du stade initial de la Formation de l'Âme périssaient sous ses assauts.
+Dès son apparition, il s'était frayé un chemin par le massacre jusqu'à la Secte Zhi Mo. Entouré de sa nuée, même certains cultivateurs du stade initial de la Formation de l'Âme périssaient sous ses assauts.
 
 Malgré la présence de maîtres de stade intermédiaire et avancé au sein de sa secte d'origine, il n'avait pas hésité à s'y rendre, témoignant de son arrogance démesurée.
 
@@ -112,24 +112,24 @@ On pourrait dire qu'il fut le premier des six habitants de Suzaku à revenir.
 
 Lors de la téléportation du Chaudron de Retour, il fut confronté au même problème que Wang Lin et dévia de sa course. Cependant, Wang Lin avait été envoyé sur une autre planète, tandis que lui eut plus de chance: sans retomber à son point de départ, il atterrit tout de même dans Suzaku.
 
-Cependant, il tomba en plein cœur de la Mer des Démons.
+Cependant, il tomba en plein cœur de la Mer Xiu Mo.
 
-Ayant perdu trop d'insectes dans le Royaume Céleste, il reprit son massacre dès son arrivée dans la Mer des Démons. Presque tous les cultivateurs qu'il croisait étaient exécutés.
+Ayant perdu trop d'insectes dans le Royaume Céleste, il reprit son massacre dès son arrivée dans la Mer Xiu Mo. Presque tous les cultivateurs qu'il croisait étaient exécutés.
 
 Après avoir absorbé l'essence de toutes ces victimes, ses insectes commencèrent à se reproduire et il se dirigea vers Chu.
 
 S'il avait anéanti tant de sectes, c'était évidemment pour nourrir sa nuée. La chair des mortels étant insuffisante pour ses créatures, le pays de Chu devait désormais faire face à cette calamité.
 
-Lorsque le messager du Clan des Démons Géants vit Zhan Bai approcher de Chu, il se plaignit intérieurement. Bien qu'il fût lui aussi un expert de la Formation de l'Âme, sa progression n'était pas issue d'une compréhension propre mais de l'absorption de celle d'autrui. En termes de puissance brute, il pouvait intimider les cultivateurs de l'Âme Naissante, mais face à un monstre comme Zhan Bai, il n'avait d'autre choix que la fuite.
+Lorsque le messager du Clan Ju Mo vit Zhan Bai approcher de Chu, il se plaignit intérieurement. Bien qu'il fût lui aussi un expert de la Formation de l'Âme, sa progression n'était pas issue d'une compréhension propre mais de l'absorption de celle d'autrui. En termes de puissance brute, il pouvait intimider les cultivateurs de l'Âme Naissante, mais face à un monstre comme Zhan Bai, il n'avait d'autre choix que la fuite.
 
 Zhan Bai se tenait actuellement au sommet d'une montagne, entouré d'une nuée d'insectes sans fin. Ses yeux injectés de sang fixaient une secte au loin.
 
-« La Secte du Ciel Nuageux... la première puissance de ce pays de Chu, réputée pour son alchimie. Humph, après aujourd'hui, toutes ces pilules m'appartiendront. D'après les rumeurs des autres sectes, la maîtresse est une beauté. Je veux voir si elle le sera encore après avoir été parasitée par mes insectes. »
+« La Secte Yun Tian... la première puissance de ce pays de Chu, réputée pour son alchimie. Humph, après aujourd'hui, toutes ces pilules m'appartiendront. D'après les rumeurs des autres sectes, la maîtresse est une beauté. Je veux voir si elle le sera encore après avoir été parasitée par mes insectes. »
 
 Sur ces mots, Zhan Bai s'élança vers la secte.
 
 Le hurlement de sa nuée d'insectes était terrifiant.
 
-« Il y a quelques jours, j'ai donné en pâture à mes insectes un junior au stade avancé de l'Âme Naissante de la Secte du Ciel Nuageux. Avant de mourir, il a osé dire que Wang Lin ne me laisserait pas en paix. Humph, qui est ce Wang Lin et pourquoi n'en ai-je jamais entendu parler? De plus, Chu n'est qu'un pays de culture de rang 3; un expert de la Formation de l'Âme ne saurait y exister. Ce Wang Lin n'est qu'un cultivateur du stade avancé de l'Âme Naissante légèrement au-dessus de la moyenne, et je tue tout ce qui se présente. Humph, j'ai même tué pas mal d'experts de la Formation de l'Âme. »
+« Il y a quelques jours, j'ai donné en pâture à mes insectes un junior au stade avancé de l'Âme Naissante de la Secte Yun Tian. Avant de mourir, il a osé dire que Wang Lin ne me laisserait pas en paix. Humph, qui est ce Wang Lin et pourquoi n'en ai-je jamais entendu parler? De plus, Chu n'est qu'un pays de culture de rang 3; un expert de la Formation de l'Âme ne saurait y exister. Ce Wang Lin n'est qu'un cultivateur du stade avancé de l'Âme Naissante légèrement au-dessus de la moyenne, et je tue tout ce qui se présente. Humph, j'ai même tué pas mal d'experts de la Formation de l'Âme. »
 
 Zhan Bai ricana: « Après avoir anéanti ce pays de Chu, je massacrerai mon chemin jusqu'à la Vallée Désolée des Neuf Fantômes. Cette fois, je ferai naître le Roi des Insectes. Une fois qu'il aura pénétré en moi, mon domaine atteindra le stade intermédiaire de la Formation de l'Âme. Ceng Niu, je veux voir si tu pourras me battre à ce moment-là! »

@@ -52,7 +52,7 @@ Pourtant, avant qu'il ne puisse achever sa phrase, le Sens Divin de Wang Lin se 
 
 Après avoir parcouru les souvenirs de ce vieux monstre de l'Âme Naissante, les yeux de Wang Lin s'illuminèrent et il commença à réfléchir.
 
-Il n'avait pas tué beaucoup de membres du Clan du Tonnerre Dispersé dans le Système Stellaire Antique, mais grâce aux souvenirs qu'il venait d'acquérir, il possédait désormais une compréhension détaillée de leur organisation.
+Il n'avait pas tué beaucoup de membres du Clan Shan Lei dans le Système Stellaire Antique, mais grâce aux souvenirs qu'il venait d'acquérir, il possédait désormais une compréhension détaillée de leur organisation.
 
 « Ils utilisent cette méthode de dispersion pour apprendre à intriguer et à se battre, pour assimiler la loi de la jungle et permettre l'émergence d'une nouvelle génération de chefs! »
 
@@ -60,7 +60,7 @@ Il n'avait pas tué beaucoup de membres du Clan du Tonnerre Dispersé dans le Sy
 
 « Une fois qu'ils pénètrent dans cette Terre Sainte et entrent en contact direct avec le tonnerre éternel, leur marque sera renforcée. Cela augmentera considérablement le niveau de culture de celui qui y parvient! »
 
-« Il reste sept ans avant la prochaine compétition... Cependant, la méthode choisie par le Clan du Tonnerre Dispersé pour départager ses membres est intéressante... Elle ne dépend ni du niveau de culture, ni des compétences de combat, mais des cristaux de tonnerre! »
+« Il reste sept ans avant la prochaine compétition... Cependant, la méthode choisie par le Clan Shan Lei pour départager ses membres est intéressante... Elle ne dépend ni du niveau de culture, ni des compétences de combat, mais des cristaux de tonnerre! »
 
 « Dans sept ans, celui qui possédera le plus de cristaux de tonnerre pourra entrer dans la Terre Sainte! C'est une opportunité que je ne peux laisser passer. Je pourrai ainsi entrer ouvertement dans la Terre Sainte pour absorber le tonnerre éternel! » Les yeux de Wang Lin brillèrent et sa main droite s'élança vers le vide. La marque de tonnerre entre les sourcils du vieil homme vacilla, et un morceau de jade en jaillit.
 
@@ -70,7 +70,7 @@ Avec le jade en main, Wang Lin put aisément en consulter le contenu sans endomm
 
 Ce jade abritait une formation toujours active, vaguement fusionnée avec le monde. Le contenu à l'intérieur changeait constamment: c'était un classement!
 
-Cette liste comptait au total 800 noms, chacun associé à un nombre représentant les cristaux de tonnerre possédés. Il y avait manifestement bien plus de 800 personnes dans le Clan du Tonnerre Dispersé, mais seuls les 800 premiers figuraient sur cette liste!
+Cette liste comptait au total 800 noms, chacun associé à un nombre représentant les cristaux de tonnerre possédés. Il y avait manifestement bien plus de 800 personnes dans le Clan Shan Lei, mais seuls les 800 premiers figuraient sur cette liste!
 
 Wang Lin regarda le premier nom et fronça les sourcils. « 1 900 007 000... » La personne en tête de liste s'appelait Yunshanzi.
 
@@ -78,13 +78,13 @@ Wang Lin regarda le premier nom et fronça les sourcils. « 1 900 007 000... » 
 
 Après un examen rapide, il nota que même le 800e nom possédait plus de 400 000 cristaux de tonnerre. Quant au vieil homme de la grotte, il n'en avait que 70 000, ce qui était insignifiant.
 
-Les cristaux de tonnerre n'étaient pas des objets réels, mais une simple dénomination; il existait de nombreuses façons de les obtenir. Le moyen le plus rapide consistait à faire un tribut au Clan du Tonnerre Dispersé. Qu'il s'agisse de sorts, de trésors magiques, de pilules, de matériaux d'alchimie et de forge ou même de Flammes Joss, tout pouvait être échangé contre des cristaux. Les Flammes Joss rapportaient le plus, le reste dépendant du rang.
+Les cristaux de tonnerre n'étaient pas des objets réels, mais une simple dénomination; il existait de nombreuses façons de les obtenir. Le moyen le plus rapide consistait à faire un tribut au Clan Shan Lei. Qu'il s'agisse de sorts, de trésors magiques, de pilules, de matériaux d'alchimie et de forge ou même de Flammes Joss, tout pouvait être échangé contre des cristaux. Les Flammes Joss rapportaient le plus, le reste dépendant du rang.
 
-Ce n'était pas la première fois qu'il rencontrait un tel système. La Terre des Esprits Démons fonctionnait de manière similaire, mais avec des mérites de guerre au lieu des cristaux de tonnerre. De cette façon, le Clan du Tonnerre Dispersé mobilisait l'ensemble de ses membres pour accumuler des ressources, ce qui, en plus d'améliorer la culture de chacun, permettait de constituer un trésor collectif.
+Ce n'était pas la première fois qu'il rencontrait un tel système. La Terre Yao Ling fonctionnait de manière similaire, mais avec des mérites de guerre au lieu des cristaux de tonnerre. De cette façon, le Clan Shan Lei mobilisait l'ensemble de ses membres pour accumuler des ressources, ce qui, en plus d'améliorer la culture de chacun, permettait de constituer un trésor collectif.
 
 « C'est intéressant! » Les yeux de Wang Lin pétillèrent et il agita sa main droite. La marque entre les sourcils du vieil homme fut totalement activée, et Wang Lin s'empara de tout son contenu.
 
-Wang Lin ne tua pas ce vieillard. Il savait que le Clan du Tonnerre Dispersé était très strict concernant les meurtres entre membres; un tel acte déclencherait inévitablement une enquête.
+Wang Lin ne tua pas ce vieillard. Il savait que le Clan Shan Lei était très strict concernant les meurtres entre membres; un tel acte déclencherait inévitablement une enquête.
 
 Délaissant le vieil homme, Wang Lin s'enfonça dans la grotte en direction de la vallée. Le bruit de l'eau devint plus limpide; une petite rivière coulait non loin de lui.
 
@@ -94,9 +94,9 @@ Alors qu'il observait ces fruits, quatre rayons de lumière, surgis à 500 kilom
 
 L'un des trois hommes derrière lui pointa la direction et dit: « Oncle, la grotte de Qi Zhi est juste devant. C'est le seul vieux monstre de l'Âme Naissante au stade précoce dans un rayon de 50 000 kilomètres, et il a amassé de nombreux trésors au fil des ans. »
 
-Le vieil homme de l'Âme Naissante intermédiaire hocha la tête, imperturbable, et dit lentement: « Très bien. Ensuite, vous trois pourrez vous rendre à la Secte du Tonnerre Céleste pour récolter vos bénéfices. En échange de votre aide à ma Secte du Tonnerre Céleste, vous ne serez naturellement pas maltraités. »
+Le vieil homme de l'Âme Naissante intermédiaire hocha la tête, imperturbable, et dit lentement: « Très bien. Ensuite, vous trois pourrez vous rendre à la Secte Tian Lei pour récolter vos bénéfices. En échange de votre aide à ma Secte Tian Lei, vous ne serez naturellement pas maltraités. »
 
-Les yeux des trois cultivateurs de la Formation du Noyau pétillèrent de joie. Celui qui avait parlé exprima rapidement sa gratitude dans un rire: « Oncle pourra certainement échanger ces trésors contre une multitude de cristaux de tonnerre. Votre statut à la Secte du Tonnerre Céleste s'en trouvera grandement élevé! »
+Les yeux des trois cultivateurs de la Formation du Noyau pétillèrent de joie. Celui qui avait parlé exprima rapidement sa gratitude dans un rire: « Oncle pourra certainement échanger ces trésors contre une multitude de cristaux de tonnerre. Votre statut à la Secte Tian Lei s'en trouvera grandement élevé! »
 
 Le cultivateur de l'Âme Naissante intermédiaire regarda le subordonné et ajouta doucement: « Je n'utiliserai pas ces cristaux pour moi-même, je les remettrai au Maître de la Secte. Le Maître de ma Secte est très proche du Classement du Tonnerre Dispersé. Bientôt, il y figurera! »
 

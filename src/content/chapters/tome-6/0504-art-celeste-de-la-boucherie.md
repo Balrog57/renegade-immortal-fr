@@ -110,7 +110,7 @@ Tian Yunzi hocha la tête, agita ses manches et déclara: « Je t'ai enseigné u
 
 Wang Lin fit quelques pas en arrière avant de lever soudainement la tête: « Maître, ce disciple souhaite quitter la secte pour s'entraîner! »
 
-Tian Yunzi ne se retourna pas, mais sa voix résonna: « Un disciple de ma Secte du Destin Céleste ne peut quitter la secte pour s'entraîner que s'il part en tant qu'émissaire. Prends mon jeton, rends-toi au Tribunal des Services Stellaires et choisis un pays de culture de rang 6 ou inférieur pour y servir d'émissaire. Cependant, ne sois pas en retard dans trois mois, le jour de l'Étoile Rouge, à la pointe du mont Dushan, au-delà de la Mer de l'Est! »
+Tian Yunzi ne se retourna pas, mais sa voix résonna: « Un disciple de ma Secte Tian Yun ne peut quitter la secte pour s'entraîner que s'il part en tant qu'émissaire. Prends mon jeton, rends-toi au Tribunal des Services Stellaires et choisis un pays de culture de rang 6 ou inférieur pour y servir d'émissaire. Cependant, ne sois pas en retard dans trois mois, le jour de l'Étoile Rouge, à la pointe du mont Dushan, au-delà de la Mer Dong! »
 
 Sur ces mots, la silhouette de Tian Yunzi pénétra dans la tour et disparut. Un jeton blanc vola hors de la tour pour atterrir dans la main de Wang Lin. Simultanément, une force douce émana de la tour, propulsant Wang Lin loin de la montagne.
 

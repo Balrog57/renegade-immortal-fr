@@ -6,19 +6,19 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1072 - The Most Powerful Spell --- Sundered Night
 slug: le-sort-le-plus-puissant-nuit-brisee
 ---
-Pour la première fois, Tian Yunzi fronça légèrement les sourcils. Tout ce qui s'était produit au sein de la Grotte de l'Empereur Céleste avait été intégré à ses calculs. Il savait également que si le voyage dans la grotte semblait simple, chaque étape recelait des plans laissés par l'Empereur Céleste Qing Lin. En s'y précipitant, Tian Yunzi était devenu une pièce du jeu de l'Empereur Céleste. La seule pensée d'être indirectement en compétition avec l'Empereur Céleste Qing Lin faisait battre rapidement son cœur, d'ordinaire si imperturbable.
+Pour la première fois, Tian Yunzi fronça légèrement les sourcils. Tout ce qui s'était produit au sein de la Grotte Xian Di avait été intégré à ses calculs. Il savait également que si le voyage dans la grotte semblait simple, chaque étape recelait des plans laissés par l'Empereur Céleste Qing Lin. En s'y précipitant, Tian Yunzi était devenu une pièce du jeu de l'Empereur Céleste. La seule pensée d'être indirectement en compétition avec l'Empereur Céleste Qing Lin faisait battre rapidement son cœur, d'ordinaire si imperturbable.
 
 L'ancien Empereur Céleste était-il réellement infaillible, ou Tian Yunzi était-il un cran au-dessus? Il n'avait pas la réponse, mais cette chance était extrêmement précieuse! Une fois qu'il aurait réussi, son cœur Dao progresserait par bonds prodigieux. La confiance en soi et l'élan de vaincre le plan de l'Empereur Céleste Qing Lin lui permettraient de guérir ses blessures passées et d'atteindre des sommets encore plus élevés!
 
 Même en cas d'échec, cela resterait une fortune pour Tian Yunzi. Il pourrait utiliser ce duel de calculs, qui s'étend sur d'innombrables années, pour comprendre tout ce dont il avait besoin!
 
-Pour saisir cette opportunité, il était prêt à payer n'importe quel prix. Peu importaient l'Ancien Démon Ta Jia ou l'Alliance de Culture! Même s'il devait provoquer une catastrophe, cela ne freinerait en rien la détermination de son cœur Dao!
+Pour saisir cette opportunité, il était prêt à payer n'importe quel prix. Peu importaient l'Ancien Démon Ta Jia ou l'Alliance Xiu Zhen! Même s'il devait provoquer une catastrophe, cela ne freinerait en rien la détermination de son cœur Dao!
 
 Tous les autres convoitaient le corps ou les sorts de l'Empereur Céleste Qing Lin. Certains cherchaient même à percer le secret de la troisième étape. D'autres le croiraient fou, mais ce qu'il désirait, c'était livrer à Qing Lin une guerre de prédictions!
 
 « Puisque tu voulais sceller l'ancien démon tout en ménageant de nombreux plans pour le jour où il s'emparerait de ton corps, je vais tout détruire. L'ancien démon n'est qu'un outil pour m'offrir un duel contre l'Empereur Céleste Qing Lin! » Personne ne pouvait deviner les pensées de Tian Yunzi... Si quelqu'un le pouvait, c'était Ling Tianhou.
 
-Cependant, au sein de la Grotte de l'Empereur Céleste, le premier éveil de l'Oiseau Vermillon de Wang Lin était un événement imprévu pour Tian Yunzi. Dès cet instant, il ressentit une certaine pression.
+Cependant, au sein de la Grotte Xian Di, le premier éveil de l'Oiseau Vermillon de Wang Lin était un événement imprévu pour Tian Yunzi. Dès cet instant, il ressentit une certaine pression.
 
 Dans son plan initial, l'Ancien Démon Ta Jia suivrait ses conseils et utiliserait une illusion pour tromper et chasser tout le monde. Ainsi, tous ceux qui entreraient deviendraient les instruments destinés à briser le plan que Qing Lin avait instauré au premier étage.
 
@@ -50,11 +50,11 @@ Il y avait aussi l'avatar de Tian Yunzi. Celui vêtu de gris était le plus rapi
 
 Ces quatre puissances possédaient des niveaux de culture redoutables. Alors qu'ils chargeaient tous vers lui, les pupilles de Wang Lin se rétractèrent et il prit rapidement de la distance.
 
-C'est à cet instant précis que le ciel s'effondra soudainement et que la loi d'origine du firmament pénétra dans la Terre des Esprits Démoniaques.
+C'est à cet instant précis que le ciel s'effondra soudainement et que la loi d'origine du firmament pénétra dans la Terre Yao Ling.
 
 L'effondrement du ciel fut semblable au bris d'un miroir. Les fragments éclatés furent frappés par l'impact des flammes et projetés vers le bas.
 
-Derrière ces débris, un cri de l'Oiseau Vermillon, faisant trembler les cieux, résonna à travers toute la Terre des Esprits Démoniaques, émanant de l'esprit véritable de l'oiseau!
+Derrière ces débris, un cri de l'Oiseau Vermillon, faisant trembler les cieux, résonna à travers toute la Terre Yao Ling, émanant de l'esprit véritable de l'oiseau!
 
 Cependant, face à la crise qui le frappait, Wang Lin n'eut pas le temps de lever les yeux. Mais en reculant, il sentit une loi familière apparaître autour de lui.
 
@@ -76,7 +76,7 @@ Perdu dans sa folie, il chargea, bondissant sur Wang Lin avec la seule intention
 
 Cependant, alors qu'il se trouvait à quelques centaines de pieds de lui, Wang Lin disparut totalement de sa vue. Le monde entier sombra brusquement dans la nuit!
 
-Même la mer de flammes qui tombait du ciel brisé s'était évanouie. C'était comme si, à cet instant, Wang Lin n'était plus dans la Terre des Esprits Démoniaques, mais dans un espace infini et indépendant.
+Même la mer de flammes qui tombait du ciel brisé s'était évanouie. C'était comme si, à cet instant, Wang Lin n'était plus dans la Terre Yao Ling, mais dans un espace infini et indépendant.
 
 Non seulement le ciel était d'un noir absolu, mais le ressac des vagues parvenait à ses oreilles. Même Tian Yunzi en robe grise et ses deux avatars furent plongés dans cette nuit éternelle.
 

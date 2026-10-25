@@ -46,7 +46,7 @@ Le messager des cieux qui avait tant fait souffrir Wang Lin était désormais si
 
 Cette unique phrase suffit à faire bouillir le sang des cultivateurs du Royaume Intérieur. Elle était d'une arrogance extrême, mais personne n'osa la remettre en question!
 
-Wang Lin avait enduré plus de mille ans pour prononcer ces mots. Depuis la première rétribution divine qui s'abattit sur lui lorsqu'il atteignit l'Ascendant dans la Terre des Esprits Démoniaques, il avait persévéré jusqu'à ce jour. Désormais, il avait la légitimité pour pointer le ciel et lui demander quel droit il avait de le punir!
+Wang Lin avait enduré plus de mille ans pour prononcer ces mots. Depuis la première rétribution divine qui s'abattit sur lui lorsqu'il atteignit l'Ascendant dans la Terre Yao Ling, il avait persévéré jusqu'à ce jour. Désormais, il avait la légitimité pour pointer le ciel et lui demander quel droit il avait de le punir!
 
 Demander aux cieux quel droit ils avaient d'emporter Li Muwan!
 Demander aux cieux qui leur avait donné le pouvoir de punir les êtres!
@@ -76,7 +76,7 @@ Tandis qu'il réfléchissait, d'autres silhouettes l'encerclèrent. Wang Lin lai
 
 Ayant compris l'essence du Vrai et du Faux, cela lui inspirait une certaine émotion, sans avoir de prise sur lui. En fermant les yeux, tout devenait faux; en les ouvrant, tout redevenait réel.
 
-Dans un soupir, Wang Lin referma de nouveau les paupières et agita la main droite. Tout comme il avait réduit la Porte du Vide en poussière, il balaya ces silhouettes, qu'elles fussent réelles ou non. De la poussière à la poussière, de la terre à la terre, elles retournaient à leur origine.
+Dans un soupir, Wang Lin referma de nouveau les paupières et agita la main droite. Tout comme il avait réduit la Porte Kong en poussière, il balaya ces silhouettes, qu'elles fussent réelles ou non. De la poussière à la poussière, de la terre à la terre, elles retournaient à leur origine.
 
 « Puisque les cieux sont assez impitoyables pour m'opposer une telle méthode, je ferai de même! Cieux, ouvrez vos yeux et voyez combien d'êtres, en dehors de moi, rugissent face à vous! » Wang Lin ouvrit les yeux, pointa le firmament et hurla!
 
@@ -90,7 +90,7 @@ Parmi elles, Qing Shui, ayant retrouvé ses souvenirs après son éveil, fixant 
 Parmi elles, Tuo Sen, maudissant les cieux avec arrogance...
 Et bien d'autres encore...
 
-On y trouvait aussi les innombrables âmes des 7 Millions de Mondes issues du Clan du Tonnerre Dispersé. Les cultivateurs tombés et le Daoïste Esprit Dispersé lui-même, poussant un rugissement de folie pure face à ce qu'il croyait être le ciel.
+On y trouvait aussi les innombrables âmes des 7 Millions de Mondes issues du Clan Shan Lei. Les cultivateurs tombés et le Daoïste Esprit Dispersé lui-même, poussant un rugissement de folie pure face à ce qu'il croyait être le ciel.
 
 Ces silhouettes surgies du Dao du Vrai et du Faux formaient une forme unique de rétribution divine. La rétribution des cieux ayant utilisé l'illusion contre Wang Lin, celui-ci lui répondit par la même arme, utilisant son propre Dao pour ériger cette réponse divine.
 
@@ -98,7 +98,7 @@ Alors que les rugissements résonnaient vers les hauteurs, une force invisible s
 
 « Pas assez... » Wang Lin ferma les yeux et déploya son Sens Divin. En un éclair, sa conscience embrassa l'intégralité du Vide Brillant. Son Sens Divin pénétra chaque planète de culture et sonda la mémoire de l'âme de chaque monde.
 
-Depuis des temps immémoriaux, quiconque avait vécu dans le Royaume du Vide Brillant, mortel ou cultivateur, avait poussé un rugissement de ressentiment en levant les yeux vers le ciel. Peut-être personne ne les avait vus, peut-être étaient-ils morts depuis longtemps, mais les planètes sur lesquelles ils avaient foulé le sol s'en souvenaient toutes.
+Depuis des temps immémoriaux, quiconque avait vécu dans le Royaume Kun Xu, mortel ou cultivateur, avait poussé un rugissement de ressentiment en levant les yeux vers le ciel. Peut-être personne ne les avait vus, peut-être étaient-ils morts depuis longtemps, mais les planètes sur lesquelles ils avaient foulé le sol s'en souvenaient toutes.
 
 À cet instant, le Sens Divin de Wang Lin capta cette résonance et, fusionnant avec son Dao du Vrai et du Faux, se mua en une rétribution divine ciblant le Ciel lui-même.
 

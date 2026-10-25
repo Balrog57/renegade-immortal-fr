@@ -10,7 +10,7 @@ Zhu Quezi réfléchit un instant. Son expression devint très troublée avant qu
 
 « Deuxième génération Suzaku… » Zhu Quezi s'envola vers le Mont Suzaku.
 
-À l'intérieur de la Secte de l'Affinement de l'Âme à Pilu.
+À l'intérieur de la Secte Lian Hun à Pilu.
 
 La silhouette de Wang Lin vacilla, puis il tomba du ciel après s'être assuré que Zhu Quezi était parti.
 
@@ -66,17 +66,17 @@ Le corps de Du Tian trembla et il recula en titubant, les yeux écarquillés par
 
 La renommée de la deuxième génération de Suzaku était immense; à certains égards, elle surpassait même celle du premier.
 
-Peu après, Du Tian prit une profonde inspiration. Il s'inclina respectueusement devant Situ Nan et dit: « Le junior Du Tian, de la Secte de l'Affinement de l'Âme, salue le Senior. »
+Peu après, Du Tian prit une profonde inspiration. Il s'inclina respectueusement devant Situ Nan et dit: « Le junior Du Tian, de la Secte Lian Hun, salue le Senior. »
 
-Situ Nan hocha la tête et répondit: « Étant donné que tu as protégé Wang Lin et que tu lui remets le drapeau des âmes d'un milliard, ce vieil homme te promet que, si l'occasion se présente, j'aiderai à ressusciter la Secte de l'Affinement de l'Âme! » Situ Nan se remémora le passé. Si ce n'avait été pour son ami de la Secte de l'Affinement de l'Âme, il n'aurait même pas eu le temps de s'échapper dans la perle défiant le ciel lors de la bataille contre les cultivateurs étrangers.
+Situ Nan hocha la tête et répondit: « Étant donné que tu as protégé Wang Lin et que tu lui remets le drapeau des âmes d'un milliard, ce vieil homme te promet que, si l'occasion se présente, j'aiderai à ressusciter la Secte Lian Hun! » Situ Nan se remémora le passé. Si ce n'avait été pour son ami de la Secte Lian Hun, il n'aurait même pas eu le temps de s'échapper dans la perle défiant le ciel lors de la bataille contre les cultivateurs étrangers.
 
-Un sourire apparut sur le visage de Du Tian. Il avait sacrifié toute sa vie pour la Secte de l'Affinement de l'Âme, et c'était son souci le plus constant. C'est pour cette raison qu'il était prêt à utiliser ses derniers instants pour se lier d'amitié avec Wang Lin; tout cela afin de trouver un moyen de maintenir sa Secte en vie.
+Un sourire apparut sur le visage de Du Tian. Il avait sacrifié toute sa vie pour la Secte Lian Hun, et c'était son souci le plus constant. C'est pour cette raison qu'il était prêt à utiliser ses derniers instants pour se lier d'amitié avec Wang Lin; tout cela afin de trouver un moyen de maintenir sa Secte en vie.
 
-L'arrivée de Zhu Quezi avait plongé Du Tian dans le désespoir; pourtant, les choses avaient changé si vite qu'il avait l'impression d'avoir vécu une éternité. Maintenant que la deuxième génération de Suzaku s'était personnellement engagé à préserver la Secte de l'Affinement de l'Âme, Du Tian était apaisé.
+L'arrivée de Zhu Quezi avait plongé Du Tian dans le désespoir; pourtant, les choses avaient changé si vite qu'il avait l'impression d'avoir vécu une éternité. Maintenant que la deuxième génération de Suzaku s'était personnellement engagé à préserver la Secte Lian Hun, Du Tian était apaisé.
 
 Il s'assit en position de lotus, un sourire aux lèvres, et ferma lentement les yeux.
 
-« Grand frère, ta prédiction s'est réalisée… Moi, Du Tian, je peux te rencontrer, ainsi que notre Maître et tous nos ancêtres, avec le sourire. Je, Du Tian, ne suis pas un pécheur envers la Secte de l'Affinement de l'Âme. J'ai trouvé un nouvel espoir pour lui. Je vois déjà qu'à l'avenir, ma Secte deviendra une puissance dépassant les pays de culture de rang 6. Moi, Du Tian, j'ai laissé ma marque dans l'histoire de la Secte de l'Affinement de l'Âme… »
+« Grand frère, ta prédiction s'est réalisée… Moi, Du Tian, je peux te rencontrer, ainsi que notre Maître et tous nos ancêtres, avec le sourire. Je, Du Tian, ne suis pas un pécheur envers la Secte Lian Hun. J'ai trouvé un nouvel espoir pour lui. Je vois déjà qu'à l'avenir, ma Secte deviendra une puissance dépassant les pays de culture de rang 6. Moi, Du Tian, j'ai laissé ma marque dans l'histoire de la Secte Lian Hun… »
 
 « Maître, j'ai réussi à accomplir ce que je vous avais promis. Je, Du Tian, suis prêt à effacer ma conscience pour entrer dans le drapeau des âmes pour l'éternité! »
 
@@ -86,11 +86,11 @@ Il s'assit en position de lotus, un sourire aux lèvres, et ferma lentement les 
 
 « Es-tu prêt à venir avec moi? »
 
-*Le jeune homme grandit au sein de la Secte de l'Affinement de l'Âme. Ce talentueux disciple se distingua immédiatement des autres. Il fit tout cela pour cette unique phrase.*
+*Le jeune homme grandit au sein de la Secte Lian Hun. Ce talentueux disciple se distingua immédiatement des autres. Il fit tout cela pour cette unique phrase.*
 
 *Afin de suivre les traces du vieil homme, il cultiva sans relâche chaque jour. Jour après jour, année après année, il poursuivit cette austère culture jusqu'à ce qu'il comprenne les cieux et atteigne le stade de la Formation de l'Âme. Il devint le disciple du vieil homme, reçut pour nom taoïste Du Tian, et le suivit partout.*
 
-*Le temps est comme une chanson; il vient un jour où elle s'achève et où les gens s'en vont. Avant que l'âme de son maître n'entre dans le drapeau des âmes d'un milliard, il avait fait la promesse de protéger la Secte de l'Affinement de l'Âme pour le restant de ses jours, simplement pour cette phrase entendue dans sa jeunesse.*
+*Le temps est comme une chanson; il vient un jour où elle s'achève et où les gens s'en vont. Avant que l'âme de son maître n'entre dans le drapeau des âmes d'un milliard, il avait fait la promesse de protéger la Secte Lian Hun pour le restant de ses jours, simplement pour cette phrase entendue dans sa jeunesse.*
 
 « Es-tu prêt à venir avec moi? »
 
@@ -100,13 +100,13 @@ Un rayon de lumière pourpre et dorée jaillit de son front. Le drapeau des âme
 
 Bien que le drapeau des âmes d'un milliard ait perdu un tiers de ses fragments d'âme, dix âmes primaires et la quatrième âme, il restait le drapeau des âmes d'un milliard!
 
-Ce drapeau de près de dix mètres représentait la lignée du Dao de la Secte de l'Affinement de l'Âme. Il semblait posséder sa propre volonté alors qu'il flottait vers Wang Lin.
+Ce drapeau de près de dix mètres représentait la lignée du Dao de la Secte Lian Hun. Il semblait posséder sa propre volonté alors qu'il flottait vers Wang Lin.
 
 Wang Lin leva la main droite et saisit le drapeau, puis il regarda Du Tian qui souriait avec une expression empreinte de mélancolie et de complexité. Il s'agenouilla et se prosterna trois fois devant lui.
 
 « Bien que vous n'ayez pas été mon maître, vous m'avez traité comme votre disciple… Je ne l'oublierai jamais… » La mélancolie dans les yeux de Wang Lin s'intensifia. En vérité, le temps passé avec Du Tian avait été court, mais la bonté de ce dernier était gravée dans son cœur.
 
-« Zhu Quezi, un jour je te trouverai et je te ferai payer l'anéantissement de la Secte de l'Affinement de l'Âme! » Wang Lin regarda en direction du pays de Suzaku, le regard glacial.
+« Zhu Quezi, un jour je te trouverai et je te ferai payer l'anéantissement de la Secte Lian Hun! » Wang Lin regarda en direction du pays de Suzaku, le regard glacial.
 
 Dans une bourrasque de vent, le corps de Du Tian commença à se désintégrer lentement, comme si tout ce qui constituait cet homme s'effaçait. Seule la mémoire de Wang Lin conservait encore sa silhouette…
 

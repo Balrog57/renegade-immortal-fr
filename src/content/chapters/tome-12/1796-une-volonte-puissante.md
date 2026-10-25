@@ -22,33 +22,33 @@ En particulier, il existait la Rivière Céleste séparant les Races Anciennes e
 
 L'année passa ainsi, tranquillement.
 
-Parmi les 72 continents du clan Céleste, l'un des neuf plus éloignés de la Rivière Céleste était le Continent du Taureau Céleste! Si ce continent devait être réduit d'innombrables fois, on y percevrait vaguement la forme d'un taureau.
+Parmi les 72 continents du clan Céleste, l'un des neuf plus éloignés de la Rivière Céleste était le Continent Tian Niu! Si ce continent devait être réduit d'innombrables fois, on y percevrait vaguement la forme d'un taureau.
 
 C'est ainsi qu'il fut nommé le Taureau Céleste.
 
 Ce continent était reculé, loin de la Capitale Impériale située sur le Continent Ming Céleste. Depuis fort longtemps, il était considéré comme un continent périphérique. Il se trouvait dans la partie orientale du Continent Astral Immortel et, avec les huit autres continents, formait le Continent de l'Est!
 
-Le Continent de l'Est comptait neuf sectes et treize factions, la Secte du Soleil Pourpre en étant la meneuse. La Secte Dong Lin était la plus mystérieuse. En outre, la Secte Gui Yi, la Secte de la Grande Âme et d'autres encore composaient les vingt et une sectes les plus célèbres du Continent de l'Est.
+Le Continent de l'Est comptait neuf sectes et treize factions, la Secte Zi Yang en étant la meneuse. La Secte Dong Lin était la plus mystérieuse. En outre, la Secte Gui Yi, la Secte Da Hun et d'autres encore composaient les vingt et une sectes les plus célèbres du Continent de l'Est.
 
-Outre ces neuf sectes et treize factions, il existait des sectes plus modestes, mais elles ne pouvaient rivaliser avec les géants que représentaient ces vingt et une sectes. Sans parler de la rumeur selon laquelle la Secte du Soleil Pourpre abritait l'un des neuf soleils.
+Outre ces neuf sectes et treize factions, il existait des sectes plus modestes, mais elles ne pouvaient rivaliser avec les géants que représentaient ces vingt et une sectes. Sans parler de la rumeur selon laquelle la Secte Zi Yang abritait l'un des neuf soleils.
 
-Le Continent du Taureau Céleste était sous l'influence de la Secte de la Grande Âme et de la Secte Gui Yi. La Secte des Sept Dao avait été fondée dans un recoin isolé du secteur du Taureau Céleste.
+Le Continent Tian Niu était sous l'influence de la Secte Da Hun et de la Secte Gui Yi. La Secte Qi Dao avait été fondée dans un recoin isolé du secteur du Taureau Céleste.
 
 Là se trouvait une chaîne de montagnes noires recouverte de forêts. Un voile de brume toxique enveloppait les monts, où oiseaux et bêtes se faisaient rares.
 
-Au cœur de cette chaîne montagneuse se dressait un pic solitaire. Les vapeurs noires y étaient les plus denses et ne s'étaient pas dissipées depuis des dizaines de milliers d'années. C'était là que se trouvait la Secte des Sept Dao. Lorsque le monde des grottes se referma, Su Dao scella la Secte des Sept Dao. De nombreuses années s'étaient écoulées, et la Secte des Sept Dao était tombée. Il n'y avait plus aucune créature vivante ici; l'endroit n'était que mort.
+Au cœur de cette chaîne montagneuse se dressait un pic solitaire. Les vapeurs noires y étaient les plus denses et ne s'étaient pas dissipées depuis des dizaines de milliers d'années. C'était là que se trouvait la Secte Qi Dao. Lorsque le monde des grottes se referma, Su Dao scella la Secte Qi Dao. De nombreuses années s'étaient écoulées, et la Secte Qi Dao était tombée. Il n'y avait plus aucune créature vivante ici; l'endroit n'était que mort.
 
 C'était également là que l'on apparaissait après avoir quitté le monde des grottes.
 
 Yun Yifeng, Fan Shanlu, ou quiconque sortait du monde des grottes avec ses lignées du Continent Astral Immortel réapparaissait en ce lieu. Ils contemplaient leur patrie, à la fois familière et étrangère, avant de partir.
 
-Un jour de la sixième année, si le regard pouvait percer l'épaisse couche de brume, on entrevoyait les divers pavillons de la Secte des Sept Dao. Parmi eux se dressait un immense pavillon qui servait de salle principale à la secte. C'était aussi l'endroit où le Souverain Céleste aux Sept Couleurs pratiquait autrefois sa culture en isolement.
+Un jour de la sixième année, si le regard pouvait percer l'épaisse couche de brume, on entrevoyait les divers pavillons de la Secte Qi Dao. Parmi eux se dressait un immense pavillon qui servait de salle principale à la secte. C'était aussi l'endroit où le Souverain Céleste aux Sept Couleurs pratiquait autrefois sa culture en isolement.
 
 Ce jour-là, devant le pavillon niché dans la montagne brumeuse, une silhouette apparut lentement. C'était un jeune homme vêtu de noir qui, malgré son apparence juvénile, portait dans ses yeux le poids d'innombrables années.
 
 Il s'agissait de Xuan Luo.
 
-Xuan Luo contempla le pavillon de la Secte des Sept Dao dissimulé dans la brume et s'assit lentement, en tailleur.
+Xuan Luo contempla le pavillon de la Secte Qi Dao dissimulé dans la brume et s'assit lentement, en tailleur.
 
 « Wang Lin, tous se sont réincarnés, mais je n'ai aucun contrôle sur le moment où ils réapparaîtront. Peut-être sera-ce dans quelques années, ou peut-être dans un millénaire... »
 

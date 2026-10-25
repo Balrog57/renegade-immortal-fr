@@ -50,19 +50,19 @@ Les pupilles de l'homme qui protégeait la femme se rétractèrent et il joignit
 
 La femme esquissa un sourire gracieux et répondit doucement: « La petite sœur salue le Grand Frère Zhou. »
 
-Le jeune homme nommé Zhou afficha une expression complexe lorsqu'il détourna les yeux pour fixer l'homme en bleu. Il déclara froidement: « Le Clan du Tonnerre Dispersé a été anéanti. Leur Grand Ancien a été vaincu et est porté disparu. Tout cela a été confirmé par le Conseil Souverain. Ils ont émis l'Ordre du Système Stellaire Antique pour informer tous les clans! Cet appel urgent sert à transmettre l'annonce du Conseil Souverain. »
+Le jeune homme nommé Zhou afficha une expression complexe lorsqu'il détourna les yeux pour fixer l'homme en bleu. Il déclara froidement: « Le Clan Shan Lei a été anéanti. Leur Grand Ancien a été vaincu et est porté disparu. Tout cela a été confirmé par le Conseil Souverain. Ils ont émis l'Ordre du Système Stellaire Antique pour informer tous les clans! Cet appel urgent sert à transmettre l'annonce du Conseil Souverain. »
 
-« Le Grand Maître Yun Luo du Conseil Souverain a utilisé un grand sort de divination pour identifier l'apparence et l'empreinte de sens divin de celui qui a détruit le Clan du Tonnerre Dispersé. L'Ordre de Mort du Système Stellaire Antique a été diffusé! »
+« Le Grand Maître Yun Luo du Conseil Souverain a utilisé un grand sort de divination pour identifier l'apparence et l'empreinte de sens divin de celui qui a détruit le Clan Shan Lei. L'Ordre de Mort du Système Stellaire Antique a été diffusé! »
 
 « Cette affaire est d'une telle importance que je crains que même des gens comme nous ne devions participer aux recherches. Même cette planète de culture doit être fouillée minutieusement. Prenez garde à vous! »
 
 « Quoi?! » L'expression de l'homme nommé Yu changea radicalement, ses yeux se remplissant d'incrédulité. La femme à ses côtés était tout aussi sous le choc.
 
-« On murmurait que le Grand Ancien du Clan du Tonnerre Dispersé se trouvait au cinquième niveau du Fléau Céleste et qu'il ne pouvait être vaincu par personne, si ce n'est par des cultivateurs du troisième pas. À moins que... à moins que le coupable ne soit un cultivateur du troisième pas! »
+« On murmurait que le Grand Ancien du Clan Shan Lei se trouvait au cinquième niveau du Fléau Céleste et qu'il ne pouvait être vaincu par personne, si ce n'est par des cultivateurs du troisième pas. À moins que... à moins que le coupable ne soit un cultivateur du troisième pas! »
 
-« De plus, le Clan du Tonnerre Dispersé comptait des centaines de milliers de membres et de nombreux cultivateurs puissants. Comment ont-ils pu être exterminés ainsi?! »
+« De plus, le Clan Shan Lei comptait des centaines de milliers de membres et de nombreux cultivateurs puissants. Comment ont-ils pu être exterminés ainsi?! »
 
-« Le Clan du Tonnerre Dispersé possédait également le tonnerre éternel, une relique existant depuis des temps immémoriaux. Cette affaire... cette affaire... »
+« Le Clan Shan Lei possédait également le tonnerre éternel, une relique existant depuis des temps immémoriaux. Cette affaire... cette affaire... »
 
 Le jeune homme en noir s'apprêtait à partir, mais il se retourna et ajouta froidement: « Ce n'est pas encore confirmé, mais le Conseil Souverain affirme que le tonnerre éternel a été dévoré par cet individu! Pour le moment, tout le Système Stellaire Antique est en alerte. Le Conseil Souverain a même dépêché un Ancien pour traquer cette personne! »
 
@@ -80,7 +80,7 @@ Même à midi, peu de rayons de soleil parvenaient à percer la couche nuageuse.
 
 Parmi les cinq essences de son corps, l'essence du tonnerre se mit à gonfler follement, à croître sans cesse, à ébranler le ciel et la terre! L'âme originelle de Wang Lin changea lentement de forme, passant de celle d'un dragon de tonnerre ancien à celle d'un éclair de foudre!
 
-Un éclair de foudre reliant le ciel et la terre de son corps. La tête de Wang Lin était le ciel et ses pieds étaient la terre. Cet éclair était désormais identique à celui du Clan du Tonnerre Dispersé: éternel!
+Un éclair de foudre reliant le ciel et la terre de son corps. La tête de Wang Lin était le ciel et ses pieds étaient la terre. Cet éclair était désormais identique à celui du Clan Shan Lei: éternel!
 
 Dès que cet éclair prit sa forme définitive, les nuages grondèrent et une pluie encore plus dense s'abattit. Le tonnerre semblait avoir perdu toute raison, rugissant avec une violence inouïe.
 
@@ -94,11 +94,11 @@ Alors qu'ils se tenaient debout dans le pavillon, ils observaient les nuages tou
 
 L'un des vieillards répondit: « Peut-être sommes-nous simplement trop inquiets. »
 
-« Hélas, même un grand clan comme le Clan du Tonnerre Dispersé a été anéanti et son Grand Ancien tué. En écoutant ce tonnerre, je ne peux m'empêcher de pressentir une anomalie, mais je me trompe peut-être. » Le vieillard au stade Briseur du Nirvana secoua la tête et se tut.
+« Hélas, même un grand clan comme le Clan Shan Lei a été anéanti et son Grand Ancien tué. En écoutant ce tonnerre, je ne peux m'empêcher de pressentir une anomalie, mais je me trompe peut-être. » Le vieillard au stade Briseur du Nirvana secoua la tête et se tut.
 
 « Peu importe qui est cette personne. Puisque l'Ordre de Mort du Système Stellaire Antique a été émis, dès que ses traces seront trouvées, il sera sans aucun doute condamné! »
 
-Dans la partie orientale de la planète se dressait une immense chaîne de montagnes. C'était là que se trouvait le Clan Zhen Yan. Contrairement au Clan du Tonnerre Dispersé, le Clan Zhen Yan n'était qu'un petit clan occupant une seule planète de culture, à l'instar des sectes du Royaume Intérieur.
+Dans la partie orientale de la planète se dressait une immense chaîne de montagnes. C'était là que se trouvait le Clan Zhen Yan. Contrairement au Clan Shan Lei, le Clan Zhen Yan n'était qu'un petit clan occupant une seule planète de culture, à l'instar des sectes du Royaume Intérieur.
 
 À cet instant, au sein du Clan Zhen Yan, un homme aux cheveux blancs se tenait au sommet d'une montagne. Il paraissait très vieux et fixait l'horizon. Après un long moment, il murmura: « Pourquoi ai-je l'impression qu'une calamité est sur le point de frapper... »
 

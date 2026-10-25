@@ -32,7 +32,7 @@ Ce son résonnait avec clarté dans le silence de la nuit.
 
 « Le vent bouge, la montagne bouge, la flamme bouge... » Wang Lin leva la tête et fit un pas. Il disparut de la pièce pour réapparaître dans le ciel nocturne.
 
-Sous ses pieds se dressait le Mont Pourpre de la Secte du Destin Céleste!
+Sous ses pieds se dressait le Mont Pourpre de la Secte Tian Yun!
 
 Le vent soufflait fort cette nuit-là et les nuages emplissaient le ciel. Peu de lumière lunaire perçait la couche nuageuse pour atteindre la terre, plongeant tout ce qui l'entourait dans l'obscurité.
 

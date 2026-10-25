@@ -16,9 +16,9 @@ Un vortex gigantesque tournait silencieusement devant Wang Lin. À chaque rotati
 
 En contemplant ce gouffre cyclonique, Wang Lin se remémora le passé. À l'époque, il n'avait pu pénétrer en ces lieux, ou du moins, il n'en était pas qualifié.
 
-C'était le sommet du Système Stellaire du Vide Brillant, à l'époque où il n'était qu'un simple cultivateur sur la planète Suzaku. Le siège de l'Alliance de Culture!
+C'était le sommet du Système Stellaire du Vide Brillant, à l'époque où il n'était qu'un simple cultivateur sur la planète Suzaku. Le siège de l'Alliance Xiu Zhen!
 
-L'Alliance de Culture d'autrefois régnait sur le Système Stellaire du Vide Brillant, et son pouvoir s'étendait à travers tout le système! Cependant, suite à la bataille contre Luotian et au départ de Qing Shui, l'Alliance s'était effondrée. Le siège s'était alors scellé de l'intérieur.
+L'Alliance Xiu Zhen d'autrefois régnait sur le Système Stellaire du Vide Brillant, et son pouvoir s'étendait à travers tout le système! Cependant, suite à la bataille contre Luotian et au départ de Qing Shui, l'Alliance s'était effondrée. Le siège s'était alors scellé de l'intérieur.
 
 Wang Lin se tenait là, observant le quartier général de l'Alliance en murmurant des paroles que lui seul pouvait entendre.
 
@@ -28,7 +28,7 @@ D'un simple geste, une lumière dorée jaillit de son doigt. Un rayon de lumièr
 
 Le vortex trembla et cessa peu à peu de tourner! Cette scène fit écarquiller les yeux de Maître Yan Leizi. Il avait pressenti la puissance de Wang Lin, mais cela le laissait profondément stupéfait!
 
-En tant qu'ancien de l'Alliance de Culture, il savait que ce vortex constituait le premier sceau, et par extension, la première porte de l'Alliance!
+En tant qu'ancien de l'Alliance Xiu Zhen, il savait que ce vortex constituait le premier sceau, et par extension, la première porte de l'Alliance!
 
 Ce vortex de scellement remontait à la haute Antiquité. Il avait été acquis par les membres de l'Alliance dans le Royaume Céleste de la Pluie d'autrefois. Plus tard, il fut renforcé par d'autres pour devenir une formation d'une puissance extrême!
 
@@ -96,11 +96,11 @@ L'espace commença à se désagréger, et alors qu'il s'écroulait, Wang Lin agi
 
 Les milliers de cultivateurs qui avaient chargé périrent lamentablement sous cette tempête dorée. Ils furent incapables de riposter.
 
-Une fois le voile levé, l'espace devint clair et le siège de l'Alliance de Culture fut révélé!
+Une fois le voile levé, l'espace devint clair et le siège de l'Alliance Xiu Zhen fut révélé!
 
 C'était une planète de culture gigantesque, entourée d'innombrables planètes mineures. Une lumière rouge sang monstrueuse émanait des profondeurs de la planète. On pouvait voir une faille spatiale sous la planète, et cette lueur sanguine provenait de cette brèche!
 
-Alors qu'il suivait Wang Lin, Maître Yan Leizi observait tout cela avec haine dans les yeux. Il fixa la planète géante et pointa du doigt: « Seigneur du Royaume Scellé, c'est là que se trouve le hall principal de l'Alliance de Culture. Maître Zhong Xuan est là-bas! »
+Alors qu'il suivait Wang Lin, Maître Yan Leizi observait tout cela avec haine dans les yeux. Il fixa la planète géante et pointa du doigt: « Seigneur du Royaume Scellé, c'est là que se trouve le hall principal de l'Alliance Xiu Zhen. Maître Zhong Xuan est là-bas! »
 
 Simultanément, des cris de guerre retentirent de toutes parts. Plus de dix mille cultivateurs du Royaume Extérieur jaillirent des planètes environnantes. Mais lorsqu'ils aperçurent Wang Lin, leur intention meurtrière monstrueuse s'évanouit et leurs expressions changèrent radicalement!
 

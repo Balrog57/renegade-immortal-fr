@@ -46,7 +46,7 @@ Simultanément, l'homme en noir bondit en avant et frappa dans ses mains. Une br
 
 Le regard de Wang Lin devint glacial. Ignorant la brume et l'épée volante, il pointa son doigt vers l'homme d'âge moyen et ordonna: « Détruis! »
 
-À l'instant où le Royaume Ji apparut, le ciel s'obscurcit. À l'instant où le Sens Divin du Royaume Ji surgit, l'âme fut anéantie! Wang Lin était invincible parmi les cultivateurs de l'Établissement des Fondations. S'il atteignait la Formation du Noyau, il serait le roi de ce stade. S'il atteignait l'Âme Naissante, il deviendrait le premier cultivateur sous le stade de la Formation de l'Âme parmi d'innombrables planètes de culture de toute l'Alliance de Culture.
+À l'instant où le Royaume Ji apparut, le ciel s'obscurcit. À l'instant où le Sens Divin du Royaume Ji surgit, l'âme fut anéantie! Wang Lin était invincible parmi les cultivateurs de l'Établissement des Fondations. S'il atteignait la Formation du Noyau, il serait le roi de ce stade. S'il atteignait l'Âme Naissante, il deviendrait le premier cultivateur sous le stade de la Formation de l'Âme parmi d'innombrables planètes de culture de toute l'Alliance Xiu Zhen.
 
 Les yeux de l'homme d'âge moyen s'écarquillèrent soudainement. Il sentit son âme frappée par une force destructrice titanesque. Sans aucune puissance pour résister, son âme se brisa instantanément. Avant même qu'il n'ait pu exprimer sa terreur, il était déjà mort. Son corps devint inerte. Jusqu'à son dernier souffle, il ne comprit jamais ce qui lui était arrivé.
 

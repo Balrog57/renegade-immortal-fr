@@ -6,9 +6,9 @@ bookTitle: Clean Sweep
 en: Chapter 381 - First clash with Liu Mei
 slug: premier-affrontement-avec-liu-mei
 ---
-« La compétition de juin sera la meilleure chance d'intégrer la secte intérieure. La rumeur prétend que le trésor le plus précieux de la Secte de l'Affinement de l'Âme est un drapeau de l'âme contenant plus de cent millions d'âmes. Au moment où il apparaît, le ciel change de couleur. Il est considéré comme l'un des plus grands trésors de Suzaku. »
+« La compétition de juin sera la meilleure chance d'intégrer la secte intérieure. La rumeur prétend que le trésor le plus précieux de la Secte Lian Hun est un drapeau de l'âme contenant plus de cent millions d'âmes. Au moment où il apparaît, le ciel change de couleur. Il est considéré comme l'un des plus grands trésors de Suzaku. »
 
-« De plus, la Secte de l'Affinement de l'Âme se spécialise dans la création de drapeaux spirituels, et leurs techniques principales reposent sur la fabrication de drapeaux de l'âme. Bien que d'autres sectes à travers Suzaku sachent également capturer et affiner des âmes, elles ne peuvent rivaliser avec la Secte de l'Affinement de l'Âme. Si je peux apprendre leur méthode et affiner un drapeau de l'âme en utilisant des âmes errantes, il ne devrait pas être moins puissant que le drapeau de restriction. »
+« De plus, la Secte Lian Hun se spécialise dans la création de drapeaux spirituels, et leurs techniques principales reposent sur la fabrication de drapeaux de l'âme. Bien que d'autres sectes à travers Suzaku sachent également capturer et affiner des âmes, elles ne peuvent rivaliser avec la Secte Lian Hun. Si je peux apprendre leur méthode et affiner un drapeau de l'âme en utilisant des âmes errantes, il ne devrait pas être moins puissant que le drapeau de restriction. »
 
 Les yeux de Wang Lin s'illuminèrent et il agita la main. Une série de restrictions illusoires apparurent autour de lui. Puis, il sortit un jade céleste d'un blanc pur.
 
@@ -54,7 +54,7 @@ Il pensa à Wang Lin. C'était Wang Lin qui l'avait sorti de la terre de l'Ancie
 
 Le temps passa lentement. En un clin d'œil, le printemps s'acheva et juin arriva.
 
-Juin n'avait peut-être aucune signification particulière pour la plupart des gens, mais pour les disciples de la secte extérieure de la Secte de l'Affinement de l'Âme à Pilu, c'était une période cruciale.
+Juin n'avait peut-être aucune signification particulière pour la plupart des gens, mais pour les disciples de la secte extérieure de la Secte Lian Hun à Pilu, c'était une période cruciale.
 
 La compétition entre les disciples de la secte extérieure allait avoir lieu ce mois-ci. À l'issue d'une série d'éliminations, un seul disciple parmi plus de dix mille disciples de la secte extérieure deviendrait un disciple de la secte intérieure.
 
@@ -116,7 +116,7 @@ Wang Lin ne répondit pas, se contentant de regarder Liu Mei avec calme.
 
 Peu après, Liu Mei baissa la tête et dit d'une voix feutrée: « Je crains que le senior apprenti Wang n'ait un malentendu... »
 
-« Pour que vous puissiez apparaître à la Secte Xuan Dao tout en étant présente ici, à la Secte de l'Affinement de l'Âme, je ne crois pas qu'un autre pays que Suzaku puisse accomplir une telle chose! » Wang Lin l'interrompit et se détourna pour partir.
+« Pour que vous puissiez apparaître à la Secte Xuan Dao tout en étant présente ici, à la Secte Lian Hun, je ne crois pas qu'un autre pays que Suzaku puisse accomplir une telle chose! » Wang Lin l'interrompit et se détourna pour partir.
 
 Liu Mei esquissa un sourire ténu: « Rien qu'avec cela, le senior apprenti Wang a pu déduire que je venais de Suzaku. Êtes-vous si sûr... Je pense que vous me testez simplement. Senior apprenti Wang, je ne vous mentirai pas; je suis bel et bien une disciple de Suzaku. »
 

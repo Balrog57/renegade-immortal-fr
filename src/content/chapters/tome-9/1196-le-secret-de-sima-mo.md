@@ -102,8 +102,8 @@ Il s'approcha lentement, s'accroupit et l'examina avec soin. Puis il ramassa le 
 
 « Nous sommes entrés dans la faille et avons basculé dans ce cauchemar horrible... Mais à l'époque, je n'avais rien vu venir...
 
-« Nous avons atteint les profondeurs de ce lieu et avons découvert une existence terrifiante. Ce secret pourrait ébranler le monde entier de la culture. Pas seulement la Mer des Nuages, mais aussi Luotian, la Rivière Invoquée et le Vide Brillant!
+« Nous avons atteint les profondeurs de ce lieu et avons découvert une existence terrifiante. Ce secret pourrait ébranler le monde entier de la culture. Pas seulement la Mer Yun, mais aussi Luotian, la Rivière Invoquée et le Vide Brillant!
 
-« Cependant, il était trop tard... Nous avons détruit notre propre espoir de nos propres mains... Nous sommes des pécheurs... Le Maître nous a expulsés de la secte. Je sais qu'il n'avait pas d'autre choix. Je suis parti avec mes compagnons et je me suis perdu dans les brumes de la Mer des Nuages. En contemplant ce brouillard, j'ai ressenti la peur... à cause de ce secret...
+« Cependant, il était trop tard... Nous avons détruit notre propre espoir de nos propres mains... Nous sommes des pécheurs... Le Maître nous a expulsés de la secte. Je sais qu'il n'avait pas d'autre choix. Je suis parti avec mes compagnons et je me suis perdu dans les brumes de la Mer Yun. En contemplant ce brouillard, j'ai ressenti la peur... à cause de ce secret...
 
 « Je ne m'attendais pas à ce que cette calamité incommensurable revienne au moment même de notre désespoir. Nous avons fui en vain, pour finalement revenir ici... Peut-être ne pourrai-je plus jamais quitter cet endroit... Est-ce là le destin? Je crois au destin, je lui voue ma foi... »

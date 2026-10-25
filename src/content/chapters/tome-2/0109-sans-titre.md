@@ -60,7 +60,7 @@ Voir les disciples de la Vallée Wu Feng se transformer ainsi en statues de glac
 
 Le corps de la jeune femme trembla. Réprimant sa peur, elle répondit d'une voix vacillante: « Il y en a sept en tout. »
 
-L'expression de Wang Lin resta inchangée tandis qu'il calculait mentalement. La Vallée Wu Feng n'avait pas de jeton; dans sa main, il possédait celui de la Secte Piao Miao, deux de Li Shan et un de la Secte He Huan. Il en avait quatre au total. Il ne lui en manquait que trois pour tous les obtenir. Cependant, le jeton appartenant à la Secte des Cadavres avait disparu dans la formation avec les disciples au stade avancé de l'Établissement des Fondations. Hormis celui-là, il n'en restait que deux.
+L'expression de Wang Lin resta inchangée tandis qu'il calculait mentalement. La Vallée Wu Feng n'avait pas de jeton; dans sa main, il possédait celui de la Secte Piao Miao, deux de Li Shan et un de la Secte He Huan. Il en avait quatre au total. Il ne lui en manquait que trois pour tous les obtenir. Cependant, le jeton appartenant à la Secte Shi Yin avait disparu dans la formation avec les disciples au stade avancé de l'Établissement des Fondations. Hormis celui-là, il n'en restait que deux.
 
 Avant d'entrer dans la Vallée Jue Ming, Ye Zizai lui avait expliqué que la compétition consistait à dérober les jetons d'autrui. Grâce à cela et aux explications de Situ Nan sur l'accès au champ de bataille étranger, il commençait à entrevoir l'ensemble du mécanisme. Il se tourna vers la disciple et demanda soudainement:
 

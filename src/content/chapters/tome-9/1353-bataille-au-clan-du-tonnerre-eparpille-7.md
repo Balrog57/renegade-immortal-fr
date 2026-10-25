@@ -1,6 +1,6 @@
 ---
 n: 1353
-title: "Bataille au Clan du Tonnerre Dispersé! (7)"
+title: "Bataille au Clan Shan Lei! (7)"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: "Chapter 1353 - Battle at the Scatter Thunder Clan! (7)"
@@ -22,7 +22,7 @@ Cependant, ce n'était encore qu'un « presque ». Son âme originelle n'était 
 
 À cet instant, son âme originelle commença à changer radicalement! Elle évoluait sans cesse pour devenir un véritable éclair de tonnerre! Les dragons de tonnerre anciens qu'il avait dévorés poussaient son âme originelle vers la perfection!
 
-Auparavant, bien que son âme originelle fût au même niveau que l'Éclair Éternel du Clan du Tonnerre Dispersé, ils n'étaient que de niveau équivalent. Il existait toujours des différences de puissance au sein d'un même rang. Mais tout cela était en train de changer rapidement!
+Auparavant, bien que son âme originelle fût au même niveau que l'Éclair Éternel du Clan Shan Lei, ils n'étaient que de niveau équivalent. Il existait toujours des différences de puissance au sein d'un même rang. Mais tout cela était en train de changer rapidement!
 
 La compréhension du tonnerre par Wang Lin se voyait confirmée des centaines, des milliers de fois. Son âme originelle laissa échapper un rugissement, se mua en une dévoreuse d'âmes et aspira à nouveau!
 
@@ -30,7 +30,7 @@ Le monde changea de couleur, l'espace trembla et d'innombrables fissures spatial
 
 À cet instant, l'âme originelle de Wang Lin s'agita frénétiquement et se condensa, quittant sa forme brumeuse. Une puissance terrifiante d'essence du tonnerre jaillit de son âme originelle.
 
-Dès que cette aura apparut, le lac de tonnerre entourant le Clan du Tonnerre Dispersé recula et se soumit! À mesure que l'aura se propageait, l'Éclair Éternel dans la terre sainte du clan laissa échapper un rugissement fracassant, pour la première fois depuis le début de la bataille!
+Dès que cette aura apparut, le lac de tonnerre entourant le Clan Shan Lei recula et se soumit! À mesure que l'aura se propageait, l'Éclair Éternel dans la terre sainte du clan laissa échapper un rugissement fracassant, pour la première fois depuis le début de la bataille!
 
 Ce rugissement semblait provenir d'une époque antique et portait une pression indescriptible. C'était comme un défi lancé par l'Éclair Éternel après avoir détecté une menace potentielle!
 
@@ -44,7 +44,7 @@ Bien que cela puisse paraître lent, tout se produisit en un éclair. Le Grand A
 
 Pourtant, un puissant sentiment de crise éclata dans son cœur. Il sentit vaguement qu'un malheur se préparait. Le rugissement de l'Éclair Éternel semblait presser le Grand Ancien!
 
-« Je ne peux pas le laisser continuer. Je dois l'arrêter, sinon ce sera une catastrophe pour mon Clan du Tonnerre Dispersé! » L'expression du Grand Ancien devint hideuse alors qu'il reprenait ses esprits. Il poussa un rugissement et se précipita vers Wang Lin.
+« Je ne peux pas le laisser continuer. Je dois l'arrêter, sinon ce sera une catastrophe pour mon Clan Shan Lei! » L'expression du Grand Ancien devint hideuse alors qu'il reprenait ses esprits. Il poussa un rugissement et se précipita vers Wang Lin.
 
 Cependant, juste au moment où il allait le rattraper, le totem de foudre formé par l'âme originelle de Wang Lin se rétracta pour venir se loger entre ses sourcils. Son âme originelle retourna dans son corps dans un grondement sourd. Chaque fibre de ses muscles, chaque centimètre de ses os et même ses organes internes furent imprégnés du pouvoir de la foudre!
 
@@ -84,7 +84,7 @@ Mais il n'avait plus le luxe de réfléchir. Une intention meurtrière embrasa s
 
 « Sacrifice aux ancêtres pour atteindre les cieux! Au nom de l'esclave que je suis du Saint Éclair Éternel descendu sur mon clan il y a des éons, je sacrifie 500 ans de ma vie en échange d'un corps saint. Je demande à la sainte foudre de descendre sur moi et de me transformer en... l'Éclair Éternel du Chaos! » La voix du Grand Ancien prit une tonalité étrange. Aussitôt, sa marque projeta un éclat brûlant.
 
-Une boussole gigantesque apparut vaguement dans le monde. Cette boussole était infinie; on pouvait l'apercevoir simplement en levant les yeux. Même hors du Clan du Tonnerre Dispersé, elle restait parfaitement visible!
+Une boussole gigantesque apparut vaguement dans le monde. Cette boussole était infinie; on pouvait l'apercevoir simplement en levant les yeux. Même hors du Clan Shan Lei, elle restait parfaitement visible!
 
 Cette boussole dégageait une aura antique et paraissait endommagée par endroits, comme si elle avait failli s'effondrer lors d'une grande guerre. Pourtant, lors de son apparition, une pression colossale descendit sur le monde!
 
@@ -100,7 +100,7 @@ Le visage du Grand Ancien pâlit, comme si une partie de son âme lui était arr
 
 Lorsque l'aura disparut, la grande boussole s'évanouit également, comme si elle avait puisé assez de vitalité pour accomplir sa tâche. Après sa disparition, un éclair sembla se détacher de l'Éclair Éternel dans la terre sainte et fonça vers le champ de bataille.
 
-L'éclair arriva instantanément. Alors que le Grand Ancien du Clan du Tonnerre Dispersé poussait un rugissement, la foudre, pareille à une tribulation céleste, s'abattit sur les 70 000 couches de tonnerre de Wang Lin.
+L'éclair arriva instantanément. Alors que le Grand Ancien du Clan Shan Lei poussait un rugissement, la foudre, pareille à une tribulation céleste, s'abattit sur les 70 000 couches de tonnerre de Wang Lin.
 
 Le fracas qui en résulta fit trembler les cieux et les 70 000 couches s'effondrèrent d'un coup. Bien qu'elles tentassent de se régénérer, elles furent immédiatement balayées à nouveau par une puissance tonnerreuse dévastatrice. Les pupilles de Wang Lin se contractèrent; il n'hésita pas une seconde et broya le talisman alors que l'Éclair Éternel convergeait vers lui!
 

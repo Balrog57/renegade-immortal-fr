@@ -12,9 +12,9 @@ Dans un recoin de l'univers, il existait des particules de poussière si ténues
 
 Ces grains de poussière étaient minuscules, et pourtant, d'autres mondes s'y nichaient!
 
-La Terre des Esprits Démoniaques, l'ancien Royaume Céleste des Esprits, et la grotte de l'Empereur Céleste Qing Lin se trouvaient là.
+La Terre Yao Ling, l'ancien Royaume Céleste des Esprits, et la grotte de l'Empereur Céleste Qing Lin se trouvaient là.
 
-Hormis les marées de la Mer des Esprits Démoniaques de l'Est, située à une distance incommensurable, il n'existait aucun autre accès vers ces lieux. Au sein de cette poussière, un grand palais trônait au centre de la Grotte de l'Empereur Céleste.
+Hormis les marées de la Mer Yao Ling, située à une distance incommensurable, il n'existait aucun autre accès vers ces lieux. Au sein de cette poussière, un grand palais trônait au centre de la Grotte Xian Di.
 
 Ce palais majestueux était entièrement pourpre et dégageait une aura souveraine. Quatre-vingt-dix-neuf bougies étaient disposées en formation sur le sol. À cet instant, soixante-quatre d'entre elles s'étaient déjà éteintes...
 
@@ -44,7 +44,7 @@ L'homme mystérieux était celui qui lui avait offert le cristal jaune!
 
 « De plus, l'effondrement du Royaume Céleste était l'un de vos plans!
 
-« L'Ancêtre Sainte du Clan du Tatouage n'est qu'un avatar. Ta véritable identité est celle de la fille du Suprême du royaume extérieur. Ton but en venant ici n'était pas ce que tu avais prétendu au début, mais de détruire toutes les forces à l'intérieur du royaume scellé. » Le visage de l'homme s'assombrit encore d'amertume. Ses yeux troubles brillaient d'une pointe de nostalgie.
+« L'Ancêtre Sainte du Clan Fu Wen n'est qu'un avatar. Ta véritable identité est celle de la fille du Suprême du royaume extérieur. Ton but en venant ici n'était pas ce que tu avais prétendu au début, mais de détruire toutes les forces à l'intérieur du royaume scellé. » Le visage de l'homme s'assombrit encore d'amertume. Ses yeux troubles brillaient d'une pointe de nostalgie.
 
 « Tu es devenue ma Concubine du Tatouage et tu as forcé la Concubine Impériale Fleur à devenir une âme florale, pour qu'elle ne puisse exister que comme un Être Céleste Fleur, tout cela parce qu'elle avait découvert ton secret. J'en ai été le témoin personnel dès que mes soupçons sont apparus. Tu as échoué, mais loin de te repentir, tu voulais que j'aille dans le royaume extérieur avec toi pour devenir le disciple de ton père, le Suprême. Je suis l'Empereur Céleste, souverain et natif du royaume scellé: comment aurais-je pu trahir ma patrie?!
 

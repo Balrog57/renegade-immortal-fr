@@ -36,19 +36,19 @@ Alors que son esprit survolait la planète jaune, il pénétra immédiatement da
 
 Un réseau de transfert se trouvait à l'intérieur de cette planète. Ce réseau était immense et, de l'autre côté, se situait l'unique pays de culture de rang 9 de l'Alliance!
 
-Le Royaume du Vide Brillant!
+Le Royaume Kun Xu!
 
-C'était le seul pays de rang 9 de l'Alliance, et il était très mystérieux. Le Royaume du Vide Brillant n'était pas une planète de culture, mais un vaste continent qui s'apparentait à un monde à part entière.
+C'était le seul pays de rang 9 de l'Alliance, et il était très mystérieux. Le Royaume Kun Xu n'était pas une planète de culture, mais un vaste continent qui s'apparentait à un monde à part entière.
 
 C'était la terre sacrée de presque tous les cultivateurs de l'Alliance!
 
-L'esprit de Wang Lin pénétra dans le Royaume du Vide Brillant, un endroit où très peu de cultivateurs étaient qualifiés pour entrer. Au plus profond du royaume, un vieil homme était assis. Il méditait près d'un lac lorsqu'il ouvrit soudainement les yeux et regarda au loin.
+L'esprit de Wang Lin pénétra dans le Royaume Kun Xu, un endroit où très peu de cultivateurs étaient qualifiés pour entrer. Au plus profond du royaume, un vieil homme était assis. Il méditait près d'un lac lorsqu'il ouvrit soudainement les yeux et regarda au loin.
 
-« Quel compagnon cultivateur est donc venu dans mon Royaume du Vide Brillant? Veuillez vous manifester! »
+« Quel compagnon cultivateur est donc venu dans mon Royaume Kun Xu? Veuillez vous manifester! »
 
 Le vieil homme fut le premier à remarquer la présence de Wang Lin. Bien que sa voix fût calme, elle était imprégnée d'un pouvoir de loi infini. C'était comme si les lois entourant ce vieil homme pouvaient changer selon ses désirs.
 
-Cependant, ces paroles ne parvinrent pas à tirer Wang Lin de son étrange état. Son esprit balaya le Royaume du Vide Brillant, mais avant qu'il ne puisse tout embrasser, il fut surpris!
+Cependant, ces paroles ne parvinrent pas à tirer Wang Lin de son étrange état. Son esprit balaya le Royaume Kun Xu, mais avant qu'il ne puisse tout embrasser, il fut surpris!
 
 Il vit deux femmes!
 
@@ -92,29 +92,29 @@ Sa froideur s'effondra instantanément et elle leva soudainement la tête vers l
 
 « Liu Mei... » À cet instant, comme si une voix vague émergeait du néant pour s'insinuer dans ses oreilles, son corps trembla et elle recula inconsciemment de quelques pas.
 
-Dès que Wang Lin se réveilla, son esprit fut violemment rappelé par la perle défiant le ciel à une vitesse bien supérieure à celle d'auparavant. En un clin d'œil, il fut extirpé du Royaume du Vide Brillant.
+Dès que Wang Lin se réveilla, son esprit fut violemment rappelé par la perle défiant le ciel à une vitesse bien supérieure à celle d'auparavant. En un clin d'œil, il fut extirpé du Royaume Kun Xu.
 
 C'était comme un cercle qui se contractait rapidement. En un instant, il balaya tous les lieux qu'il avait parcourus.
 
-Le vieil homme du Royaume du Vide Brillant qui avait remarqué Wang Lin fixa le ciel, l'air songeur.
+Le vieil homme du Royaume Kun Xu qui avait remarqué Wang Lin fixa le ciel, l'air songeur.
 
 Les combats dans la région nord faisaient toujours rage. Au moment où l'esprit de Wang Lin se contracta, les expressions de Maître Yan Leizi et de ses compagnons changèrent profondément.
 
 « Wang Lin!! » Maître Yan Leizi laissa échapper un cri d'incrédulité. C'était un spectacle rare de le voir ainsi. Non seulement lui, mais tous ceux qui connaissaient Wang Lin furent terrifiés par ce phénomène!
 
-Au siège de l'Alliance de Culture, sur la planète flottante au-dessus du vortex: dans la pièce secrète, l'homme d'âge moyen ouvrit soudainement les yeux, le regard chargé de choc!
+Au siège de l'Alliance Xiu Zhen, sur la planète flottante au-dessus du vortex: dans la pièce secrète, l'homme d'âge moyen ouvrit soudainement les yeux, le regard chargé de choc!
 
 « Qui est-il?! »
 
 Dans la mer de flammes, l'Oiseau Vermillon poussa un autre cri et se mit en mouvement, encore plus rapidement.
 
-Parmi les étoiles, une silhouette mince vêtue de vert progressait. Cette personne affichait une expression indifférente. Elle marchait à travers le cosmos, sa cible étant le siège de l'Alliance de Culture.
+Parmi les étoiles, une silhouette mince vêtue de vert progressait. Cette personne affichait une expression indifférente. Elle marchait à travers le cosmos, sa cible étant le siège de l'Alliance Xiu Zhen.
 
 Derrière elle se trouvaient d'innombrables crânes sanglants, et une odeur de sang imprégnait la zone. En avançant, ses yeux s'illuminèrent et il regarda au loin. Son expression s'adoucit et un sourire d'admiration apparut sur son visage.
 
 « Wang Lin... La culture de cet enfant a franchi un nouveau cap. Cette aura doit être celle de la perle défiant le ciel... Il a réussi à utiliser la perle pour comprendre les lois. Grâce à cela, je peux partir pour le siège de l'Alliance sans regrets. J'irai là-bas pour découvrir le secret de l'effondrement du Royaume Céleste. Alors, je trouverai la véritable cause de ma folie! »
 
-L'esprit de Wang Lin se contracta frénétiquement. Il ne fallut qu'un instant pour que tout revienne à la normale, comme si tout ce qui s'était produit avait été inversé. Il retourna dans la Terre des Esprits Démoniaques, vers la Grotte de l'Empereur Céleste, et finit par réintégrer son propre corps.
+L'esprit de Wang Lin se contracta frénétiquement. Il ne fallut qu'un instant pour que tout revienne à la normale, comme si tout ce qui s'était produit avait été inversé. Il retourna dans la Terre Yao Ling, vers la Grotte Xian Di, et finit par réintégrer son propre corps.
 
 Le corps de Wang Lin trembla, comme si son âme venait de regagner sa demeure. Devant lui flottait la perle défiant le ciel. Celle-ci glissa lentement vers lui avant de disparaître entre ses sourcils.
 

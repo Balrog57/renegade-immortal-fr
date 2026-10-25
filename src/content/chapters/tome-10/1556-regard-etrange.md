@@ -72,7 +72,7 @@ Une lueur d'intention meurtrière passa dans les yeux de Wang Lin et un feu dor�
 
 Cependant, aucun Feu Éthéré ne naquit de ces cent mille cultivateurs. Cela ne signifiait qu'une chose: ces êtres n'étaient pas vivants et étaient morts depuis longtemps. Bien qu'ils en aient l'apparence, ils étaient en réalité manipulés par une force mystérieuse.
 
-Bien qu'aucun Feu Éthéré ne se manifestât, le feu céleste de Wang Lin était bien plus puissant que lors de sa première bataille contre le Royaume Extérieur dans la Mer des Nuages. Le brasier se propagea, des éclairs dorés jaillirent dans toutes les directions, et le tonnerre gronda à travers ciel et terre, faisant des morts et des blessés innombrables.
+Bien qu'aucun Feu Éthéré ne se manifestât, le feu céleste de Wang Lin était bien plus puissant que lors de sa première bataille contre le Royaume Extérieur dans la Mer Yun. Le brasier se propagea, des éclairs dorés jaillirent dans toutes les directions, et le tonnerre gronda à travers ciel et terre, faisant des morts et des blessés innombrables.
 
 Pourtant, à cet instant même, les cent mille cultivateurs explosèrent d'eux-mêmes sous l'assaut du feu et de la foudre. Leurs chairs et leurs sangs se condensèrent pour former une lame gigantesque, presque aussi haute que le ciel et la terre!
 

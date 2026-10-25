@@ -6,21 +6,21 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1619 - One Word and the Thunder Surges Like the Sea
 slug: un-mot-et-le-tonnerre-deferle-comme-une-mer
 ---
-« En mon nom, Wang Lin, j'ordonne au tonnerre des cieux! » Le corps de Wang Lin s'élança vers la porte et sa main droite se crispa en un poing. Le tonnerre gronda et une foudre infinie s'accumula dans son poing, comme s'il l'avait capturée tout entière. Il frappa la Porte du Vide qui se dressait devant lui.
+« En mon nom, Wang Lin, j'ordonne au tonnerre des cieux! » Le corps de Wang Lin s'élança vers la porte et sa main droite se crispa en un poing. Le tonnerre gronda et une foudre infinie s'accumula dans son poing, comme s'il l'avait capturée tout entière. Il frappa la Porte Kong qui se dressait devant lui.
 
-« Il ne peut pas l'ouvrir, il ne pourra absolument pas l'ouvrir! Cette porte a été formée par tant d'essences que personne ne peut l'ouvrir! » Zhou Jin était devenu presque fou. Il recula, le regard empreint de désespoir. Il ne pouvait qu'espérer que Wang Lin échoue à ouvrir la Porte du Vide pour avoir une chance de survie.
+« Il ne peut pas l'ouvrir, il ne pourra absolument pas l'ouvrir! Cette porte a été formée par tant d'essences que personne ne peut l'ouvrir! » Zhou Jin était devenu presque fou. Il recula, le regard empreint de désespoir. Il ne pouvait qu'espérer que Wang Lin échoue à ouvrir la Porte Kong pour avoir une chance de survie.
 
-« Avec six essences, la Porte du Vide est plusieurs fois plus difficile à ouvrir que lorsque je l'ai fait, et ce Wang Lin... Lui... Ce sera très difficile pour lui. Plus il y a d'essences, plus l'ouverture de la porte est ardue. Il échouera, et dans son échec, il mourra! » Le jeune homme en robe verte recula également. Il comprenait que tenter d'empêcher quelqu'un de briser la Porte du Vide revenait, en réalité, à l'aider.
+« Avec six essences, la Porte Kong est plusieurs fois plus difficile à ouvrir que lorsque je l'ai fait, et ce Wang Lin... Lui... Ce sera très difficile pour lui. Plus il y a d'essences, plus l'ouverture de la porte est ardue. Il échouera, et dans son échec, il mourra! » Le jeune homme en robe verte recula également. Il comprenait que tenter d'empêcher quelqu'un de briser la Porte Kong revenait, en réalité, à l'aider.
 
-L'expression de Xushen Tianzun était sombre alors qu'il battait en retraite. Fixant Wang Lin, sur le point de briser la Porte du Vide, il ricana.
+L'expression de Xushen Tianzun était sombre alors qu'il battait en retraite. Fixant Wang Lin, sur le point de briser la Porte Kong, il ricana.
 
-« Si la Porte du Vide était si facile à ouvrir, le monde serait plongé dans le chaos. Une porte déclenchée par six essences est d'une difficulté dépassant l'imagination. Un simple junior, même s'il avait eu la chance de récolter six essences, à quoi cela lui servirait-il? Je veux voir comment il compte s'y prendre. Peut-être n'aurai-je même pas besoin d'agir et la Porte du Vide se chargera de l'exécuter! »
+« Si la Porte Kong était si facile à ouvrir, le monde serait plongé dans le chaos. Une porte déclenchée par six essences est d'une difficulté dépassant l'imagination. Un simple junior, même s'il avait eu la chance de récolter six essences, à quoi cela lui servirait-il? Je veux voir comment il compte s'y prendre. Peut-être n'aurai-je même pas besoin d'agir et la Porte Kong se chargera de l'exécuter! »
 
-Ils ne croyaient pas que Wang Lin puisse briser la Porte du Vide, ou ils refusaient simplement d'y croire.
+Ils ne croyaient pas que Wang Lin puisse briser la Porte Kong, ou ils refusaient simplement d'y croire.
 
-Cependant, du fond de leur cœur, les cultivateurs du Royaume Intérieur espéraient que Wang Lin brise la Porte du Vide pour devenir un cultivateur du troisième niveau!
+Cependant, du fond de leur cœur, les cultivateurs du Royaume Intérieur espéraient que Wang Lin brise la Porte Kong pour devenir un cultivateur du troisième niveau!
 
-« Wang Lin, tu dois ouvrir cette porte! » Situ Nan serra les poings, nerveux. Il avait brisé sa propre Porte du Vide et, même avec l'aide de Qing Lin, il en avait souffert. Il savait à quel point la tâche était périlleuse, et la Porte du Vide de Wang Lin était bien plus puissante que la sienne. Cette pensée l'accablait d'inquiétude.
+« Wang Lin, tu dois ouvrir cette porte! » Situ Nan serra les poings, nerveux. Il avait brisé sa propre Porte Kong et, même avec l'aide de Qing Lin, il en avait souffert. Il savait à quel point la tâche était périlleuse, et la Porte Kong de Wang Lin était bien plus puissante que la sienne. Cette pensée l'accablait d'inquiétude.
 
 Les yeux du Maître Nan Yunzi s'illuminèrent et il prit une profonde inspiration. Il avait déjà pris la décision de déployer toute sa puissance pour aider Wang Lin au moment critique.
 
@@ -32,15 +32,15 @@ L'Empereur Divin Dragon Azure était particulièrement inquiet. Il connaissait W
 
 « Au moment le plus critique, j'utiliserai les trésors des Quatre Sectes Divines pour l'aider à briser la porte. »
 
-Ignorant les pensées d'autrui, Wang Lin, enveloppé de tonnerre, se précipita vers la Porte du Vide. Comparée à cette dernière, la silhouette de Wang Lin paraissait minuscule. Pourtant, c'était ce petit être qui laissait les dizaines de milliers de cultivateurs alentour, repoussés par la puissance de la Porte du Vide, sans voix et l'esprit vide, fascinés par son coup de poing tonitruant.
+Ignorant les pensées d'autrui, Wang Lin, enveloppé de tonnerre, se précipita vers la Porte Kong. Comparée à cette dernière, la silhouette de Wang Lin paraissait minuscule. Pourtant, c'était ce petit être qui laissait les dizaines de milliers de cultivateurs alentour, repoussés par la puissance de la Porte Kong, sans voix et l'esprit vide, fascinés par son coup de poing tonitruant.
 
-Wang Lin avait déjà frappé la Porte du Vide auparavant, mais il n'avait réussi qu'à l'entrouvrir d'un mince filet. Désormais, il maîtrisait six essences; bien qu'elles ne fussent pas encore fusionnées, son tonnerre était déjà plusieurs fois plus puissant qu'auparavant.
+Wang Lin avait déjà frappé la Porte Kong auparavant, mais il n'avait réussi qu'à l'entrouvrir d'un mince filet. Désormais, il maîtrisait six essences; bien qu'elles ne fussent pas encore fusionnées, son tonnerre était déjà plusieurs fois plus puissant qu'auparavant.
 
-Le coup partit et un fracas de tonnerre retentit. La silhouette de Wang Lin, telle le premier tonnerre éternel du monde, percuta la Porte du Vide.
+Le coup partit et un fracas de tonnerre retentit. La silhouette de Wang Lin, telle le premier tonnerre éternel du monde, percuta la Porte Kong.
 
 Les grondements de tonnerre résonnèrent dans toutes les directions. L'onde de choc violente fit cracher le sang à de nombreux cultivateurs alentour, les projetant en arrière. Terrifiés, certains cherchèrent à fuir.
 
-Tandis que les roulements de tonnerre continuaient de faire écho, la gigantesque Porte du Vide trembla comme si elle ne pouvait supporter l'assaut, et s'entrouvrit lentement.
+Tandis que les roulements de tonnerre continuaient de faire écho, la gigantesque Porte Kong trembla comme si elle ne pouvait supporter l'assaut, et s'entrouvrit lentement.
 
 À l'instant même où la porte s'entrouvrit, Wang Lin poussa un rugissement. Alors que ce cri résonnait à travers le Vide Brillant, des éclairs surgirent partout dans l'espace. C'était comme si quelque chose les avait appelés, et ils se précipitaient tous vers la planète Suzaku.
 
@@ -62,7 +62,7 @@ Ils étaient confus, totalement dépassés par les événements! Pourtant, le Vi
 
 Les Sens Divins se déployèrent un à un, tentant de percer le mystère.
 
-Si l'on regardait d'en haut, on aurait vu un déluge de tonnerre se rassembler frénétiquement vers la planète Suzaku, vers Wang Lin, qui se tenait près de la Porte du Vide!
+Si l'on regardait d'en haut, on aurait vu un déluge de tonnerre se rassembler frénétiquement vers la planète Suzaku, vers Wang Lin, qui se tenait près de la Porte Kong!
 
 Le désespoir inonda les yeux de Zhou Jin; il avait peine à croire ce qu'il voyait. Il entendait des rugissements étouffés provenant de toutes parts. Lorsqu'il leva les yeux, il fut pétrifié.
 
@@ -78,22 +78,22 @@ Il n'était pas le seul: même Xushen Tianzun fut stupéfait un instant, l'incr�
 
 Xushen Tianzun s'exclama: « Impossible! »
 
-Seule une chose pouvait faire perdre son sang-froid à Xushen Tianzun, l'un des Cinq Maîtres du Système Stellaire Antique! En balayant les environs de son Sens Divin, il vit surgir un tonnerre infini en provenance du système stellaire de la Mer des Nuages.
+Seule une chose pouvait faire perdre son sang-froid à Xushen Tianzun, l'un des Cinq Maîtres du Système Stellaire Antique! En balayant les environs de son Sens Divin, il vit surgir un tonnerre infini en provenance du système stellaire de la Mer Yun.
 
-Xushen Tianzun ne craignait pas que Wang Lin déclenche le tonnerre du Vide Brillant. Cependant, il n'avait pas prévu que le rugissement de Wang Lin déclencherait également la Mer des Nuages!
+Xushen Tianzun ne craignait pas que Wang Lin déclenche le tonnerre du Vide Brillant. Cependant, il n'avait pas prévu que le rugissement de Wang Lin déclencherait également la Mer Yun!
 
-Dans la Mer des Nuages, la situation était identique à celle du Vide Brillant. Des éclairs quittaient les continents comme s'ils répondaient à un appel ancestral, fonçant vers le Vide Brillant!
+Dans la Mer Yun, la situation était identique à celle du Vide Brillant. Des éclairs quittaient les continents comme s'ils répondaient à un appel ancestral, fonçant vers le Vide Brillant!
 
-Un grondement émanait également des rares nuages de la Mer des Nuages. D'innombrables éclairs jaillirent et se lièrent entre eux, brisant la barrière qui les séparait du Vide Brillant pour s'y engouffrer.
+Un grondement émanait également des rares nuages de la Mer Yun. D'innombrables éclairs jaillirent et se lièrent entre eux, brisant la barrière qui les séparait du Vide Brillant pour s'y engouffrer.
 
-Mais ce n'était pas tout. Après que le rugissement de Wang Lin eut résonné à travers le Vide Brillant et la Mer des Nuages, il se propagea également dans la Rivière Invoquée. La foudre déchira l'obscurité spatiale. D'innombrables cultivateurs du Royaume Extérieur virent passer des météores de lumière ou des éclairs argentés serpentant à travers le ciel.
+Mais ce n'était pas tout. Après que le rugissement de Wang Lin eut résonné à travers le Vide Brillant et la Mer Yun, il se propagea également dans la Rivière Invoquée. La foudre déchira l'obscurité spatiale. D'innombrables cultivateurs du Royaume Extérieur virent passer des météores de lumière ou des éclairs argentés serpentant à travers le ciel.
 
 Un grondement tonitruant balaya la Rivière Invoquée. Des masses de cultivateurs sortirent des planètes de culture pour contempler ces vagues d'éclairs traversant l'espace. Ils étaient totalement stupéfaits.
 
 « Que... s'est-il passé... »
 
-Alors que le tonnerre et la foudre de la Mer des Nuages, du Vide Brillant et de la Rivière Invoquée se mettaient en mouvement, le dernier à être affecté fut Luotian! Luotian n'avait pas été capturé et appartenait toujours au Royaume Intérieur. À cet instant, les cultivateurs du Royaume Intérieur observaient tous le tonnerre déferler vers le Vide Brillant de toutes parts.
+Alors que le tonnerre et la foudre de la Mer Yun, du Vide Brillant et de la Rivière Invoquée se mettaient en mouvement, le dernier à être affecté fut Luotian! Luotian n'avait pas été capturé et appartenait toujours au Royaume Intérieur. À cet instant, les cultivateurs du Royaume Intérieur observaient tous le tonnerre déferler vers le Vide Brillant de toutes parts.
 
 Alors que l'appel de Wang Lin résonnait à travers tout Luotian, la barrière des systèmes stellaires se brisa. Le tonnerre ancien qui servait de porte au Royaume Céleste du Tonnerre, immobile depuis des éons, jaillit pour la première fois telle une rivière d'argent. Il fonça droit vers le Vide Brillant!
 
-Le Vide Brillant, Luotian, la Mer des Nuages et la Rivière Invoquée... le tonnerre des quatre grands systèmes stellaires convergeait vers la planète Suzaku. Vers Wang Lin, vêtu de blanc, les longs cheveux flottant au vent, qui levait la main et poussait un long cri vers les cieux!
+Le Vide Brillant, Luotian, la Mer Yun et la Rivière Invoquée... le tonnerre des quatre grands systèmes stellaires convergeait vers la planète Suzaku. Vers Wang Lin, vêtu de blanc, les longs cheveux flottant au vent, qui levait la main et poussait un long cri vers les cieux!

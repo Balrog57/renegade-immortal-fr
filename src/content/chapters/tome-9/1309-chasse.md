@@ -76,7 +76,7 @@ Wang Lin n'était pas surpris de croiser Tuo Sen ici. Cependant, bien qu'il sach
 
 Une fois son corps réapparu, il agita sa main gauche et l'Épée de Sang se matérialisa. Il commença à se téléporter sans plus attendre. Outre le Royaume Ji, il possédait encore cette épée de sang!
 
-Cette arme était également un trésor de Dieu Ancien. Bien qu'elle ne fût pas à la hauteur de la Hache Brise-Ciel, elle pouvait infliger de lourds dégâts aux Dieux Anciens. Lors de son bref contact avec Tuo Sen, Wang Lin avait remarqué que ce dernier était bien plus faible que lorsqu'il l'avait affronté dans la Terre du Dieu Ancien.
+Cette arme était également un trésor de Dieu Ancien. Bien qu'elle ne fût pas à la hauteur de la Hache Brise-Ciel, elle pouvait infliger de lourds dégâts aux Dieux Anciens. Lors de son bref contact avec Tuo Sen, Wang Lin avait remarqué que ce dernier était bien plus faible que lorsqu'il l'avait affronté dans la Terre Gu Shen.
 
 Plus important encore, grâce à sa sagacité et à sa compréhension de Tuo Sen, il savait que ce dernier ne resterait pas caché. Il avait forcément mené un carnage, ce qui attirerait inévitablement l'attention des cultivateurs du troisième niveau du Système Stellaire Antique, pouvant même mener à une traque!
 
@@ -90,7 +90,7 @@ Tuo Sen le poursuivrait très bientôt, Wang Lin en était certain!
 
 Le temps lui manquait; il devait rapidement retrouver son apogée. À cet instant, il vola à toute allure, fendant l'espace.
 
-« Ce n'est qu'une fois Tuo Sen écarté que je pourrai confier Li Qianmei à Lanmeng Daozun. Plus tôt, en dévorant ces centaines de cultivateurs, j'ai également acquis leurs souvenirs. Lanmeng Daozun est l'un des cinq maîtres du Système Stellaire Antique. Il réside sur le Mont Bleu, au sein du Clan de la Soie Bleue! » Tandis qu'il se téléportait à travers les étoiles, une froideur glaciale s'empara de son regard. Il détecta une planète de culture au loin, peuplée de nombreux cultivateurs du Système Stellaire Antique.
+« Ce n'est qu'une fois Tuo Sen écarté que je pourrai confier Li Qianmei à Lanmeng Daozun. Plus tôt, en dévorant ces centaines de cultivateurs, j'ai également acquis leurs souvenirs. Lanmeng Daozun est l'un des cinq maîtres du Système Stellaire Antique. Il réside sur le Mont Bleu, au sein du Clan Lan Si! » Tandis qu'il se téléportait à travers les étoiles, une froideur glaciale s'empara de son regard. Il détecta une planète de culture au loin, peuplée de nombreux cultivateurs du Système Stellaire Antique.
 
 « Pour l'instant, je ne peux me permettre aucune pitié. Je suis né dans le Royaume Intérieur, et tôt ou tard, les Royaumes Intérieur et Extérieur entreront en guerre totale. Tuer une personne de plus maintenant affaiblira le Royaume Extérieur! C'est une lutte entre deux mondes, où le bien et le mal n'existent pas! » La vitesse de Wang Lin augmenta considérablement tandis qu'il réfléchissait, des craquements résonnant dans son corps. Le brouillard noir revint et le projeta vers la planète de culture.
 

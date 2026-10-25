@@ -78,6 +78,6 @@ Le Maître Yan Leizi se tenait à ses côtés, l'expression sombre, fixant Wang 
 
 Le Maître Yan Leizi n'avait toujours pas parlé, mais son visage se fit plus sévère. Au cours des derniers jours, il avait déployé son Sens Divin sur tout le territoire de Luotian sans parvenir à trouver Wang Lin. Quant aux régions plus éloignées, il restait prudent et n'osait pas s'y aventurer sans précaution.
 
-L'expression de Wang Lin resta imperturbable alors qu'il répondit calmement: « Je suis allé tuer le tueur Yu Fei du Domaine de la Boucherie de l'Alliance. »
+L'expression de Wang Lin resta imperturbable alors qu'il répondit calmement: « Je suis allé tuer le tueur Yu Fei du Domaine Sha Yu de l'Alliance. »
 
 À ces mots, le vieil homme fut stupéfait et les yeux du Maître Yan Leizi s'illuminèrent.

@@ -6,21 +6,21 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 628 - One Million Slaughter
 slug: un-million-de-massacres
 ---
-*Crac...* Wang Lin ne volait pas; il marchait pas à pas vers la capitale du Pays du Démon de Feu. Sa silhouette, vêtue d'une robe blanche, ressemblait à une âme errante, d'une étrangeté absolue au cœur de ce brouillard gris.
+*Crac...* Wang Lin ne volait pas; il marchait pas à pas vers la capitale du Pays Huo Yao. Sa silhouette, vêtue d'une robe blanche, ressemblait à une âme errante, d'une étrangeté absolue au cœur de ce brouillard gris.
 
 Ses cheveux flottaient dans l'air tandis qu'il progressait dans la brume. Le bruit de ses pas résonnait à chaque enjambée.
 
-La ville dissimulée sous le brouillard était d'un vide effrayant. Il était difficile d'imaginer qu'il y a cent ans, sa prospérité n'avait rien à envier à celle de la Cité du Démon Céleste.
+La ville dissimulée sous le brouillard était d'un vide effrayant. Il était difficile d'imaginer qu'il y a cent ans, sa prospérité n'avait rien à envier à celle de la Cité Tian Yao.
 
 Pourtant, aujourd'hui, elle était totalement morte!
 
 Aux yeux des neuf anciens démons, les peuples de leurs contrées n'étaient que des êtres qu'ils avaient façonnés. Ils n'étaient que des outils destinés à favoriser leur propre récupération. Même si tous les habitants venaient à mourir, cela n'affecterait en rien leur cœur.
 
-Dans la capitale du Pays du Démon de Feu, de l'Empereur Démon et de ses commandants jusqu'aux simples soldats et civils, tous avaient été envoyés sur le champ de bataille pour finir en cadavres éparpillés sur la terre, ou en sang ayant teinté le sol de rouge.
+Dans la capitale du Pays Huo Yao, de l'Empereur Démon et de ses commandants jusqu'aux simples soldats et civils, tous avaient été envoyés sur le champ de bataille pour finir en cadavres éparpillés sur la terre, ou en sang ayant teinté le sol de rouge.
 
 Le cœur de Wang Lin demeurait d'un calme olympien alors qu'il avançait sereinement, pas après pas.
 
-Le sceau de l'ancien démon commençait à cinq kilomètres de la capitale du Pays du Démon de Feu, et ce sceau était d'une puissance redoutable! C'était l'un des moyens dont l'ancien démon disposait pour se protéger. Même les commandants en chef des autres pays ne pouvaient le briser!
+Le sceau de l'ancien démon commençait à cinq kilomètres de la capitale du Pays Huo Yao, et ce sceau était d'une puissance redoutable! C'était l'un des moyens dont l'ancien démon disposait pour se protéger. Même les commandants en chef des autres pays ne pouvaient le briser!
 
 Hormis les autres anciens démons, seuls d'extrêmement puissants cultivateurs pouvaient rompre ce sceau!
 
@@ -48,9 +48,9 @@ Wang Lin ignora cette voix et prit une profonde inspiration. Puis, il murmura: �
 
 Wang Lin leva sa main droite et pointa le ciel. Ses yeux devinrent glacials et il prononça doucement: « Énergie de massacre, rassemblez-vous! »
 
-Ces mots simples n'étaient pas plus tonitruants que le tonnerre et ne pouvaient changer la face du monde. Pourtant, ces cinq mots provoquèrent une tempête phénoménale au sein du Pays du Démon de Feu!
+Ces mots simples n'étaient pas plus tonitruants que le tonnerre et ne pouvaient changer la face du monde. Pourtant, ces cinq mots provoquèrent une tempête phénoménale au sein du Pays Huo Yao!
 
-Sur les champs de bataille du nord du Pays du Démon de Feu, les soldats démons des deux camps tremblèrent soudainement. Une épaisse traînée d'intention meurtrière capable de percer les cieux s'échappa instantanément de leurs corps!
+Sur les champs de bataille du nord du Pays Huo Yao, les soldats démons des deux camps tremblèrent soudainement. Une épaisse traînée d'intention meurtrière capable de percer les cieux s'échappa instantanément de leurs corps!
 
 Cette énergie de massacre s'élança rapidement et disparut au loin.
 
@@ -62,17 +62,17 @@ Les généraux démons des deux camps ne leur étaient pas étrangers et s'étai
 
 Cependant, en cet instant, ces hommes en noir tremblèrent soudainement, le regard empreint d'extase. Ils s'enfuirent rapidement, et tandis qu'ils partaient, de puissants filaments d'énergie de massacre s'échappaient de leurs corps. D'innombrables traînées de cette énergie disparurent vers l'horizon.
 
-Cette scène se produisit simultanément en de multiples endroits à travers le Pays du Démon de Feu. Le ciel fut envahi par des volutes de gaz gris qui contenaient une énergie de massacre inimaginable, zébrant l'étendue céleste.
+Cette scène se produisit simultanément en de multiples endroits à travers le Pays Huo Yao. Le ciel fut envahi par des volutes de gaz gris qui contenaient une énergie de massacre inimaginable, zébrant l'étendue céleste.
 
 À cet instant, il sembla que le monde entier soit enveloppé de massacre, d'une froideur capable de glacer les os.
 
-Les belligérants du Pays du Démon de Feu cessèrent tous le combat. Ils levèrent les yeux vers le ciel avec incertitude et confusion.
+Les belligérants du Pays Huo Yao cessèrent tous le combat. Ils levèrent les yeux vers le ciel avec incertitude et confusion.
 
 Car non seulement de nombreux membres de la Tribu de l'Affinement de l'Âme s'étaient cachés parmi les soldats démons et les hommes en noir durant les cent dernières années, mais beaucoup de généraux des deux camps en étaient également issus.
 
 À cet instant, d'innombrables généraux démons tremblèrent légèrement, et une traînée d'énergie de massacre s'échappa de chacun de leurs fronts avant de disparaître. Après avoir perdu cette essence, ils utilisèrent immédiatement leurs propres techniques pour s'enfuir au plus vite.
 
-Le Pays du Démon de Feu était en guerre depuis un siècle. La scène d'aujourd'hui choqua tous les survivants. Le ciel n'était plus bleu, il était désormais gris. Des filaments d'énergie de massacre s'élancèrent dans les airs pour converger vers la capitale du Pays du Démon de Feu!
+Le Pays Huo Yao était en guerre depuis un siècle. La scène d'aujourd'hui choqua tous les survivants. Le ciel n'était plus bleu, il était désormais gris. Des filaments d'énergie de massacre s'élancèrent dans les airs pour converger vers la capitale du Pays Huo Yao!
 
 Cent mille filaments d'énergie de massacre convergeaient de toutes les directions vers Wang Lin. Un rugissement incessant déchiquetait le ciel au-dessus de la capitale. Wang Lin se trouvait au centre d'un vortex colossal alors que ces cent mille filaments se précipitaient sur lui.
 

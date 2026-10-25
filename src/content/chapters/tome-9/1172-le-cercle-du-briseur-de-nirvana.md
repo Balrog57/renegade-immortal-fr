@@ -42,7 +42,7 @@ Un peu plus à gauche siégeait un vieil homme vêtu de noir. C'était un homme 
 
 La dernière personne était une vieille femme aux cheveux blancs comme la neige et à la peau ridée, vêtue d'une robe verte. Elle restait parfaitement immobile. Lorsque le regard de Wang Lin passa sur elle, ses yeux brillèrent comme des éclairs et elle lui lança un regard glacial.
 
-Il s'agissait manifestement d'une vente aux enchères restreinte, réservée aux cultivateurs du stade Briseur du Nirvana. Pour y accéder, il fallait posséder l'identité et la force requises. Si Wang Lin n'avait pas facilement blessé les trois membres de la Secte de la Collection Démoniaque et si sa transaction n'avait pas été d'une ampleur considérable, il lui aurait été difficile d'entrer.
+Il s'agissait manifestement d'une vente aux enchères restreinte, réservée aux cultivateurs du stade Briseur du Nirvana. Pour y accéder, il fallait posséder l'identité et la force requises. Si Wang Lin n'avait pas facilement blessé les trois membres de la Secte Mo Cong et si sa transaction n'avait pas été d'une ampleur considérable, il lui aurait été difficile d'entrer.
 
 Bien qu'il fût présent, il demeurait le plus faible aux yeux des autres.
 
@@ -56,7 +56,7 @@ Wang Lin tint le jade et le parcourut de son Sens Divin. Il vit instantanément 
 
 « Il y a même un Lion-Bête Épée! Ce vieux mise sur cette bête! » Le vieil homme couvert de cicatrices éclata de rire. Son Sens Divin ajusta le jade, puis il le lança à Ouyang Long.
 
-Wang Lin examina calmement chaque bête féroce contenue dans le jade. Il n'était pas un expert en créatures sauvages; tout ce qu'il savait provenait des archives de la Secte de l'Origine, ce qui s'avérait insuffisant. La plupart des bêtes présentes ne figuraient pas dans les registres de sa secte.
+Wang Lin examina calmement chaque bête féroce contenue dans le jade. Il n'était pas un expert en créatures sauvages; tout ce qu'il savait provenait des archives de la Secte Gui Yuan, ce qui s'avérait insuffisant. La plupart des bêtes présentes ne figuraient pas dans les registres de sa secte.
 
 Wang Lin acquit ainsi de nombreuses connaissances sur les bêtes féroces en inspectant le jade. Voyant que la majorité des autres avaient déjà lancé leurs jades, Wang Lin choisit une bête nommée « Nuage Ailé », plaça cent jades célestes et le renvoya à Ouyang Long.
 

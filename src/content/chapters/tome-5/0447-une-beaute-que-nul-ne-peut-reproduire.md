@@ -14,27 +14,27 @@ Toutefois, lorsque le Cristal de Planète de Culture se briserait, ces fragments
 
 Nul ne savait si la prochaine forme de vie qu'ils rencontreraient contiendrait les fragments d'âme de leurs êtres chers. À cet instant, comment agiraient-ils? S'il s'agissait de votre propre fragment d'âme, la tâche serait plus simple, car vous entretenez un lien mystérieux avec lui.
 
-Bien sûr, il y avait de nombreux êtres sans cœur au sein du Tombeau de Suzaku. Certains, après avoir observé et découvert le secret, avaient commencé une véritable boucherie. Ils détruisaient un fragment d'âme après l'autre, puis attendaient que la forme de vie se reforme en attirant de nouveaux fragments. Ils poursuivaient cette méthode stupide dans l'espoir de retrouver leur propre fragment d'âme.
+Bien sûr, il y avait de nombreux êtres sans cœur au sein du Tombeau Zhu Que. Certains, après avoir observé et découvert le secret, avaient commencé une véritable boucherie. Ils détruisaient un fragment d'âme après l'autre, puis attendaient que la forme de vie se reforme en attirant de nouveaux fragments. Ils poursuivaient cette méthode stupide dans l'espoir de retrouver leur propre fragment d'âme.
 
 Qian Feng était l'un d'eux.
 
 À cet instant précis, Qian Feng se trouvait à mi-hauteur d'un pic montagneux perçant les nuages, dans la section intérieure du tombeau. Il était assis devant une grotte immense, l'expression profondément sombre.
 
-Il fut le premier à pénétrer dans le Tombeau de Suzaku et avait donc, de toute évidence, affronté ces formes de vie composées de fragments d'âme. Comme elles étaient impossibles à tuer, les cultivateurs comme les membres du Clan des Immortels Délaissés finirent par rencontrer des entités semblables à Murong Yun et se précipitèrent vers ce pic montagneux.
+Il fut le premier à pénétrer dans le Tombeau Zhu Que et avait donc, de toute évidence, affronté ces formes de vie composées de fragments d'âme. Comme elles étaient impossibles à tuer, les cultivateurs comme les membres du Clan Xian Yi finirent par rencontrer des entités semblables à Murong Yun et se précipitèrent vers ce pic montagneux.
 
-Certains furent dupés par l'autel, mais Qian Feng n'était pas tombé dans le piège et s'était échappé. Il avait déployé force et patience avant de finalement trouver la véritable entrée et de pénétrer dans la section intérieure du Tombeau de Suzaku.
+Certains furent dupés par l'autel, mais Qian Feng n'était pas tombé dans le piège et s'était échappé. Il avait déployé force et patience avant de finalement trouver la véritable entrée et de pénétrer dans la section intérieure du Tombeau Zhu Que.
 
 Bien que la section intérieure fût plus restreinte que la section extérieure, elle demeurait vaste. Les formes de vie y étaient bien plus nombreuses et certaines d'entre elles étaient extrêmement puissantes. Qian Feng ne pouvant les vaincre, il fut contraint de battre en retraite.
 
-Durant ses jours passés dans la section intérieure, il n'avait toujours pas trouvé la tombe du premier Zhu Quezi. Au fil du temps, de plus en plus de cultivateurs et de membres du Clan des Immortels Délaissés pénétraient dans cette zone.
+Durant ses jours passés dans la section intérieure, il n'avait toujours pas trouvé la tombe du premier Zhu Quezi. Au fil du temps, de plus en plus de cultivateurs et de membres du Clan Xian Yi pénétraient dans cette zone.
 
-Qian Feng avait vu de ses propres yeux les yeux d'un cultivateur de la Transformation de l'Âme qu'il connaissait s'éteindre et mourir, après que quelques membres du Clan des Immortels Délaissés eurent déployé une grande puissance des runes pour terrasser l'une de ces formes de vie.
+Qian Feng avait vu de ses propres yeux les yeux d'un cultivateur de la Transformation de l'Âme qu'il connaissait s'éteindre et mourir, après que quelques membres du Clan Xian Yi eurent déployé une grande puissance des runes pour terrasser l'une de ces formes de vie.
 
 Cette scène avait profondément choqué les témoins.
 
 Qian Feng comprit alors que l'âme originelle de cet homme s'était brisée et qu'il était définitivement mort.
 
-Tous ceux qui avaient pénétré dans le Tombeau de Suzaku étaient perspicaces et comprirent immédiatement la portée de cet événement. En conséquence, lors des combats contre ces formes de vie, certains commencèrent à se retenir; mais plus ils hésitaient, plus il devenait difficile de l'emporter. C'était un cercle vicieux.
+Tous ceux qui avaient pénétré dans le Tombeau Zhu Que étaient perspicaces et comprirent immédiatement la portée de cet événement. En conséquence, lors des combats contre ces formes de vie, certains commencèrent à se retenir; mais plus ils hésitaient, plus il devenait difficile de l'emporter. C'était un cercle vicieux.
 
 Cela faisait près de quinze jours que Qian Feng était assis devant cette grotte. Son anxiété grandissait et l'irritait au plus haut point. Il ignorait combien de temps il lui restait avant l'effondrement du Cristal de Planète de Culture. S'il ne parvenait pas à récupérer son fragment d'âme, la mort serait sa seule issue.
 
@@ -72,9 +72,9 @@ D'un seul mot, la sphère de lumière explosa soudainement, créant une onde de 
 
 La montagne entière trembla et une pluie de rochers commença à s'abattre. Tous les filaments de fumée noire qui tentaient de s'échapper furent anéantis sans exception.
 
-« C'est déjà le soixante-neuvième... et je n'ai toujours pas trouvé mon fragment d'âme... » Qian Feng fronça les sourcils. Il savait que cette méthode n'était pas la plus efficace, mais le Tombeau de Suzaku était si vaste et recelait tant de dangers qu'il n'avait pas la puissance nécessaire pour explorer tous les recoins; il n'avait donc d'autre choix que de s'en remettre à cette méthode rudimentaire, en espérant un miracle.
+« C'est déjà le soixante-neuvième... et je n'ai toujours pas trouvé mon fragment d'âme... » Qian Feng fronça les sourcils. Il savait que cette méthode n'était pas la plus efficace, mais le Tombeau Zhu Que était si vaste et recelait tant de dangers qu'il n'avait pas la puissance nécessaire pour explorer tous les recoins; il n'avait donc d'autre choix que de s'en remettre à cette méthode rudimentaire, en espérant un miracle.
 
-Sur la montagne abritant l'autel de la section extérieure du Tombeau de Suzaku, Wang Lin, tenant la sphère dans laquelle la forme de vie était scellée, sauta au sol.
+Sur la montagne abritant l'autel de la section extérieure du Tombeau Zhu Que, Wang Lin, tenant la sphère dans laquelle la forme de vie était scellée, sauta au sol.
 
 Quant à la femme laide, Wang Lin l'ignora purement et simplement.
 

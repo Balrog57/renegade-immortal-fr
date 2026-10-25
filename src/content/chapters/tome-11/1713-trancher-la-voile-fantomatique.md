@@ -8,7 +8,7 @@ slug: trancher-la-voile-fantomatique
 ---
 « Coupez trois âmes originelles! » Wang Lin endura la douleur et poussa un rugissement.
 
-Alors qu'il rugissait, la double lame d'ombre s'éleva et retomba. Un éclair de lumière sanguine jaillit tandis que la lame tranchait le corps de Wang Lin. Son corps trembla violemment alors que cette âme originelle était divisée en trois parties par le pouvoir mystérieux du Clan de l'Extermination des Sceaux!
+Alors qu'il rugissait, la double lame d'ombre s'éleva et retomba. Un éclair de lumière sanguine jaillit tandis que la lame tranchait le corps de Wang Lin. Son corps trembla violemment alors que cette âme originelle était divisée en trois parties par le pouvoir mystérieux du Clan Feng Mie!
 
 Au même moment, une lame se désintégra en morceaux.
 
@@ -18,7 +18,7 @@ Alors qu'il rugissait, la lame qui n'avait plus qu'une seule ombre s'abattit sur
 
 La longue lame traversa le corps de Wang Lin puis se brisa! Tandis qu'elle se désintégrait, le corps de Wang Lin se divisa en trois!
 
-Ces trois corps furent fusionnés avec trois âmes et contenaient les trois âmes originelles. À cet instant, les trois corps s'envolèrent vers chacun des différents autels du Clan de l'Extermination des Sceaux!
+Ces trois corps furent fusionnés avec trois âmes et contenaient les trois âmes originelles. À cet instant, les trois corps s'envolèrent vers chacun des différents autels du Clan Feng Mie!
 
 Après que les trois autels eurent absorbé les trois Wang Lin, la lumière sanguine autour d'eux devint encore plus intense. Ils tournèrent lentement les uns autour des autres et, en un clin d'œil, sept jours passèrent.
 
@@ -52,7 +52,7 @@ Il leva sa main droite et l'âme d'une femme apparut. Cette femme était celle q
 
 Wang Lin regarda les restes des trois autels avec des yeux emplis de regret.
 
-« Mon âme et mon corps sont bien trop puissants. Les autels du Clan de l'Extermination des Sceaux n'ont pu supporter l'impact de ma transformation. Maintenant qu'ils se sont effondrés, il n'y aura plus jamais de sortilèges des Trois Vies... »
+« Mon âme et mon corps sont bien trop puissants. Les autels du Clan Feng Mie n'ont pu supporter l'impact de ma transformation. Maintenant qu'ils se sont effondrés, il n'y aura plus jamais de sortilèges des Trois Vies... »
 
 Wang Lin secoua la tête. Ce qu'il avait divisé n'était pas seulement sa lignée du Dao Antique, mais aussi son avatar. On pouvait dire que tout avait été divisé en trois et qu'en conséquence, il possédait désormais trois vies.
 
@@ -62,7 +62,7 @@ Wang Lin secoua la tête. Ce qu'il avait divisé n'était pas seulement sa lign�
 
 « Il y a aussi l'essence de la bataille. Autrefois, toute ma compréhension s'était transformée en étoile de la loi. J'aurai besoin d'un certain temps pour me réajuster, et si une autre essence pouvait naître, alors j'atteindrais le sommet du Vide Spirituel! » Wang Lin marmonna pour lui-même avant de s'asseoir. Il tendit sa main droite et la Voile Fantôme apparut.
 
-« L'essence de restriction n'est que secondaire. Plus important encore, puisque Fan Shanmeng a pu s'en servir comme médium pour exécuter le sortilège d'illusion, cette voile doit contenir le sortilège du Dao de l'Illusion de la Secte de la Grande Âme...
+« L'essence de restriction n'est que secondaire. Plus important encore, puisque Fan Shanmeng a pu s'en servir comme médium pour exécuter le sortilège d'illusion, cette voile doit contenir le sortilège du Dao de l'Illusion de la Secte Da Hun...
 
 « Le Dao de l'Illusion est la clé, je dois l'étudier. Si je peux en tirer une quelconque compréhension, peut-être pourrai-je utiliser ce trésor pour chercher la troisième âme, tout comme le Daoïste aux Sept Couleurs tentait de le faire!
 
@@ -120,10 +120,10 @@ Après un long moment, il serra les dents et tendit sa main gauche vers le vide.
 
 Un fracas tonitruant retentit lorsque l'épée de sang perça la voile et y ouvrit une déchirure. Dès que la brèche apparut, le Sens Divin de Wang Lin s'y précipita.
 
-Peu après, le visage fantomatique sur la voile devint féroce et libéra des vagues de rugissements qui résonnèrent dans tout l'espace. C'était comme si un vent violent soufflait hors de la voile, emportant avec lui d'innombrables restrictions. Ces restrictions entourèrent Wang Lin, remplirent ce vide infini et se propagèrent sur chaque pouce de la Mer des Nuages!
+Peu après, le visage fantomatique sur la voile devint féroce et libéra des vagues de rugissements qui résonnèrent dans tout l'espace. C'était comme si un vent violent soufflait hors de la voile, emportant avec lui d'innombrables restrictions. Ces restrictions entourèrent Wang Lin, remplirent ce vide infini et se propagèrent sur chaque pouce de la Mer Yun!
 
-La fissure spatiale dans la Mer des Nuages fut totalement occupée par une tempête de restrictions.
+La fissure spatiale dans la Mer Yun fut totalement occupée par une tempête de restrictions.
 
 La silhouette de Wang Lin fut engloutie par l'innombrable masse des restrictions!
 
-Lorsque la tempête qui occupait toute la Mer des Nuages se dissipera pour ne former qu'une seule restriction, l'essence de restriction de Wang Lin sera née! Il possédera alors le pouvoir de combattre les cultivateurs du stade avancé du Vide Arcanique!
+Lorsque la tempête qui occupait toute la Mer Yun se dissipera pour ne former qu'une seule restriction, l'essence de restriction de Wang Lin sera née! Il possédera alors le pouvoir de combattre les cultivateurs du stade avancé du Vide Arcanique!

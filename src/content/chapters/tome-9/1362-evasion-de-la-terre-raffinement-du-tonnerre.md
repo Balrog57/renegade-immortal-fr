@@ -116,13 +116,13 @@ En l'examinant, les yeux de Wang Lin se plissèrent. Cette paume... ne portait a
 
 Toutes les mains humaines possèdent des empreintes. Peu importe le niveau de culture d'un être, nul ne choisirait de détruire ses propres empreintes palmaires.
 
-« Se pourrait-il que les Messagers des Cieux n'aient aucunement d'empreintes... » Les yeux de Wang Lin s'illuminèrent alors qu'il rangeait la paume de pierre dans son espace de stockage. Il jeta un regard aux membres du Clan du Tonnerre Dispersé qui n'osaient approcher.
+« Se pourrait-il que les Messagers des Cieux n'aient aucunement d'empreintes... » Les yeux de Wang Lin s'illuminèrent alors qu'il rangeait la paume de pierre dans son espace de stockage. Il jeta un regard aux membres du Clan Shan Lei qui n'osaient approcher.
 
 Wang Lin détourna le regard, prêt à partir. Quant au nettoyage, le Daoïste Esprit Dispersé s'en chargerait. Tout cela ne concernait plus Wang Lin!
 
 Alors qu'il s'apprêtait à s'éloigner, un individu surgit de la distance après une longue hésitation. Entouré d'une aura stellaire, il volait vers Wang Lin sur un objet semblable à une navette de tisserand.
 
-« Ma... Maître!! Vous vous souvenez encore de moi? » Le corps du cultivateur tremblait. Prononcer ces mots équivalait à trahir le Clan du Tonnerre Dispersé. Bien que le clan soit en pleine crise, il risquait d'être tué par les siens avant tout! Mais porté par sa détermination, il n'eut pas le temps de trop réfléchir!
+« Ma... Maître!! Vous vous souvenez encore de moi? » Le corps du cultivateur tremblait. Prononcer ces mots équivalait à trahir le Clan Shan Lei. Bien que le clan soit en pleine crise, il risquait d'être tué par les siens avant tout! Mais porté par sa détermination, il n'eut pas le temps de trop réfléchir!
 
 « Bon sang, un homme doit savoir trancher dans sa vie. Tout dépendra de ma chance. Si je reste, je meurs; alors je suivrai Maître, même au prix de la trahison envers mon clan. Peu importe! »
 
@@ -134,7 +134,7 @@ L'expression de Wang Lin resta glaciale lorsqu'il demanda lentement: « Tu veux 
 
 Zhong Dahong s'élança rapidement pour éviter d'être tué par les siens. En entendant la réponse de Wang Lin, il hocha la tête avec empressement: « Maître, tant que vous me permettez de vous suivre, je ferai tout ce que vous ordonnerez. Tuer, incendier, piller les biens et les femmes, je maîtrise tout. Je ne suis pas moins doué que ce Xu Liguo, Maître. Donnez-moi une chance, Maître... »
 
-Wang Lin lança un regard à Zhong Dahong. Puis il se retourna et agita ses manches. Un courant d'air enveloppa Zhong Dahong et l'envoya dans l'espace de stockage de Wang Lin pour rejoindre Xu Liguo. D'un pas, Wang Lin franchit une distance incommensurable pour réapparaître là où le Daoïste Esprit Dispersé combattait les cultivateurs du Fléau Céleste du Clan du Tonnerre Dispersé.
+Wang Lin lança un regard à Zhong Dahong. Puis il se retourna et agita ses manches. Un courant d'air enveloppa Zhong Dahong et l'envoya dans l'espace de stockage de Wang Lin pour rejoindre Xu Liguo. D'un pas, Wang Lin franchit une distance incommensurable pour réapparaître là où le Daoïste Esprit Dispersé combattait les cultivateurs du Fléau Céleste du Clan Shan Lei.
 
 Les sortilèges fusaient de toutes parts. À l'apparition de Wang Lin, ses yeux brillèrent d'un rouge vif. Son Royaume Ji jaillit comme un éclair rouge, d'une rapidité fulgurante. Il pénétra dans le corps d'un cultivateur de la première étape du Fléau Céleste, fit s'effondrer son âme originelle et ressortit par son dos, au niveau du cœur. Puis il entra entre les sourcils d'un cultivateur de la deuxième étape du Fléau Céleste, faisant exploser sa tête avant de la traverser.
 
@@ -144,9 +144,9 @@ Son apparition et ses deux morts instantanées terrifièrent ceux qui combattaie
 
 « Frère Wang, prends soin de toi. Ce vieil homme est convaincu que nous nous reverrons un jour! »
 
-« Quand nous nous reverrons, tu seras surpris! » La voix de Wang Lin résonna dans le vide alors qu'il quittait le domaine du Clan du Tonnerre Dispersé.
+« Quand nous nous reverrons, tu seras surpris! » La voix de Wang Lin résonna dans le vide alors qu'il quittait le domaine du Clan Shan Lei.
 
-« Surpris? » Le Daoïste Esprit Dispersé était perplexe, mais il ne s'attarda pas sur cette pensée et commença à mener sa vengeance contre le Clan du Tonnerre Dispersé!
+« Surpris? » Le Daoïste Esprit Dispersé était perplexe, mais il ne s'attarda pas sur cette pensée et commença à mener sa vengeance contre le Clan Shan Lei!
 
 Wang Lin traversa rapidement le Système Stellaire Antique, dissimulant son aura jusqu'à ce qu'elle disparaisse totalement. Il se fit passer pour un mortel, entremêlant ses cinq essences afin que sa présence ne soit absolument pas détectable.
 

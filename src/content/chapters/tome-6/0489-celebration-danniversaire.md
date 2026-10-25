@@ -35,7 +35,7 @@ Une fois l'énergie entrée dans son corps, les yeux de Wang Lin s'illuminèrent
 
 Trois mois passèrent en un clin d'œil. C'était le jour d'une grande célébration qui ne se produisait que tous les 10 000 ans sur la planète Tian Yun: le jubilé des dix mille ans de Tian Yunzi.
 
-Tian Yunzi célébrait son anniversaire tous les 10 000 ans. Très peu de gens savaient aujourd'hui combien de fois il avait célébré cet événement. Mais sans exception, chaque fois qu'il le faisait, la planète entière participait aux festivités; même l'Alliance de Culture envoyait un représentant lui offrir des présents.
+Tian Yunzi célébrait son anniversaire tous les 10 000 ans. Très peu de gens savaient aujourd'hui combien de fois il avait célébré cet événement. Mais sans exception, chaque fois qu'il le faisait, la planète entière participait aux festivités; même l'Alliance Xiu Zhen envoyait un représentant lui offrir des présents.
 
 Même pour une planète de culture de rang 7, rares étaient celles qui y parvenaient; seul Tian Yunzi en était capable!
 
@@ -43,7 +43,7 @@ Un mois auparavant, la formation défensive de brume violette avait été transf
 
 Une foule immense provenant des cinq planètes mineures gravitant autour de Tian Yun vint aussi célébrer l'anniversaire de Tian Yunzi. Même les vieux monstres qui contrôlaient eux-mêmes les planètes extérieures se rendirent sur la planète Tian Yun. On pouvait dire que personne sur la planète n'ignorait cet événement. Durant le mois précédant la fête, une multitude de logements furent construits pour les convives.
 
-Tous les disciples des sept divisions de la Secte du Destin Céleste étaient extrêmement occupés. Avec une telle concentration de membres d'autres sectes et d'étrangers, les échanges et les conversations étaient inévitables. Personne présent ici n'était faible; échanger avec autrui était donc pour eux une opportunité très bénéfique.
+Tous les disciples des sept divisions de la Secte Tian Yun étaient extrêmement occupés. Avec une telle concentration de membres d'autres sectes et d'étrangers, les échanges et les conversations étaient inévitables. Personne présent ici n'était faible; échanger avec autrui était donc pour eux une opportunité très bénéfique.
 
 Ce jour-là, la personne chargée d'accueillir ceux qui arrivaient sur la planète Tian Yun était le frère aîné de la Division Pourpre, Zhao Xingsha. Il portait une robe violette brodée de fils de soie dorés, un pendentif de jade chaud pendait à sa taille et une épée ancienne reposait dans son dos. Son allure était très élégante et, avec son sourire empreint de douceur, quiconque le voyait éprouvait instinctivement un sentiment de sympathie envers lui.
 
@@ -61,7 +61,7 @@ Ces rugissements émanaient des quatre bêtes qui tiraient le char. Leurs corps 
 
 Dix personnes se tenaient à dix endroits différents sur ce char de guerre. Elles portaient toutes des robes argentées et affichaient des expressions glaciales. Au centre du char trônait un siège où était allongé un individu extrêmement corpulent; il ressemblait à une masse de chair posée sur une chaise. Cependant, sa peau était aussi lisse et limpide que du cristal, si éclatante que quiconque la regardait en serait ébloui.
 
-Dès que Zhao Xingsha vit le char de guerre doré, il fut frappé de stupeur. Il s'avança immédiatement et dit respectueusement: « Ce junior est Zhao Xingsha, disciple de la Division Pourpre de la Secte du Destin Céleste. Salutations, Senior Démon Doré. »
+Dès que Zhao Xingsha vit le char de guerre doré, il fut frappé de stupeur. Il s'avança immédiatement et dit respectueusement: « Ce junior est Zhao Xingsha, disciple de la Division Pourpre de la Secte Tian Yun. Salutations, Senior Démon Doré. »
 
 Lorsque le char s'arrêta à 330 mètres de lui, une aura puissante se verrouilla instantanément sur lui. C'étaient les regards venimeux des quatre bêtes féroces; certaines laissaient même couler de la bave au coin de leur gueule. Au sommet du char, les dix individus fixaient silencieusement Zhao Xingsha de leurs yeux froids.
 
@@ -75,9 +75,9 @@ Zhao Xingsha prit une profonde inspiration. Son sourire serein revint sur son vi
 
 Sous la guidance de Zhao Xingsha, le gigantesque char doré vola lentement vers la planète Tian Yun. Des scènes similaires se produisaient presque chaque jour sur la planète Tian Yun. À mesure que les divers cultivateurs puissants arrivaient, les discussions à leur sujet devenaient monnaie courante. Des duels amicaux avaient souvent lieu, mais chacun savait garder la mesure, évitant ainsi tout incident majeur.
 
-La zone des sept divisions de la Secte du Destin Céleste et ses environs immédiats, s'étendant sur des dizaines de milliers de kilomètres, étaient totalement occupés par des lofts luxueux. Ces édifices avaient tous été érigés en quelques mois grâce à la magie, dans le seul but d'offrir un lieu de repos aux invités.
+La zone des sept divisions de la Secte Tian Yun et ses environs immédiats, s'étendant sur des dizaines de milliers de kilomètres, étaient totalement occupés par des lofts luxueux. Ces édifices avaient tous été érigés en quelques mois grâce à la magie, dans le seul but d'offrir un lieu de repos aux invités.
 
-Si l'on regardait la Secte du Destin Céleste d'en haut à ce moment-là, on verrait une montagne au centre. Cette montagne abritait la section principale de la Secte, et autour d'elle gravitaient sept étoiles de couleurs différentes représentant les sept divisions. Au-delà de cela s'étendait une mer infinie de lofts qui semblait ne jamais finir. Chaque fois que Tian Yunzi célébrait son anniversaire, le nombre de participants était inimaginable.
+Si l'on regardait la Secte Tian Yun d'en haut à ce moment-là, on verrait une montagne au centre. Cette montagne abritait la section principale de la Secte, et autour d'elle gravitaient sept étoiles de couleurs différentes représentant les sept divisions. Au-delà de cela s'étendait une mer infinie de lofts qui semblait ne jamais finir. Chaque fois que Tian Yunzi célébrait son anniversaire, le nombre de participants était inimaginable.
 
 Toutefois, en fin de compte, le nombre de personnes autorisées à pénétrer dans la section principale de la Secte n'excédait jamais cent; parfois, il ne s'agissait que de quelques dizaines d'individus.
 

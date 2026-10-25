@@ -118,7 +118,7 @@ Wang Lin prit une profonde inspiration pour réprimer l'étoile et fronça les s
 
 « Il est temps de partir. Je me demande comment va la bête moustique après toutes ces années. Et combien de temps ai-je dormi dans cette fleur... Cela doit faire 20 ou 30 ans. » Les yeux de Wang Lin étaient brillants et empreints d'assurance alors qu'il s'avançait. Il quitta la montagne et s'envola droit devant lui.
 
-« Maintenant que c'est terminé, je dois me rendre dans le Royaume Céleste du Vent. Si je peux rassembler une armée de bêtes moustiques, alors dans la Mer des Nuages, je pourrai peut-être même tenter de pénétrer la Secte Divine! Je ne sais juste pas si Tuo Sen s'est réveillé... »
+« Maintenant que c'est terminé, je dois me rendre dans le Royaume Céleste du Vent. Si je peux rassembler une armée de bêtes moustiques, alors dans la Mer Yun, je pourrai peut-être même tenter de pénétrer la Secte Divine! Je ne sais juste pas si Tuo Sen s'est réveillé... »
 
 À cet instant, dans le Système Stellaire Antique, parmi les étoiles infinies, Tuo Sen fixait le ciel. Il serrait les dents, envahi par une humeur sombre. Sa colère était telle qu'il brûlait de détruire tout être vivant sur son passage.
 

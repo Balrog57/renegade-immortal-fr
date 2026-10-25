@@ -38,7 +38,7 @@ Les yeux des vieux monstres installés sur les tapis de prière brillèrent inte
 
 Les bruits d'éclatement devinrent encore plus violents et la force de rotation atteignit son paroxysme. Cette force agissait comme une alène acérée qui s'acharnait sur le vide, tentant désespérément de le percer!
 
-Maître Yan Leizi forma un sceau de ses mains et cria: « Pouvoir du Royaume du Tonnerre! » Des bêtes de tonnerre surgirent des dizaines de fragments. Elles poussèrent des rugissements avant de se transformer en éclairs de foudre et de charger vers le centre du vortex.
+Maître Yan Leizi forma un sceau de ses mains et cria: « Pouvoir du Royaume Lei! » Des bêtes de tonnerre surgirent des dizaines de fragments. Elles poussèrent des rugissements avant de se transformer en éclairs de foudre et de charger vers le centre du vortex.
 
 Boum!
 

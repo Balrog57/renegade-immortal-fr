@@ -26,7 +26,7 @@ La voix de cet homme d'âge mûr tonna comme le tonnerre, résonnant dans l'espr
 
 « Normalement, être envoyé en culture isolée est une punition, mais les préparatifs de bataille ont déjà commencé. Je ne veux pas subir une telle punition alors que la guerre est sur le point d'éclater! »
 
-« Frère Zhan, j'ai entendu dire que les quatre grands systèmes stellaires se préparent pour la bataille, mais que la Mer des Nuages mène la marche. Beaucoup d'entre nous sont perplexes: de quel droit devrions-nous obéir aux ordres de la Mer des Nuages? As-tu appris quoi que ce soit? »
+« Frère Zhan, j'ai entendu dire que les quatre grands systèmes stellaires se préparent pour la bataille, mais que la Mer Yun mène la marche. Beaucoup d'entre nous sont perplexes: de quel droit devrions-nous obéir aux ordres de la Mer Yun? As-tu appris quoi que ce soit? »
 
 Des rires éclatèrent. Chacun utilisait son énergie originelle pour tirer lentement la planète hors de son orbite. L'astre était progressivement entraîné vers l'avant.
 

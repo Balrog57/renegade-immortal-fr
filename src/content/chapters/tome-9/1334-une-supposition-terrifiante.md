@@ -8,7 +8,7 @@ slug: une-supposition-terrifiante
 ---
 Grâce au puissant Sens Divin de Wang Lin, il ne lui fallut pas longtemps pour tout comprendre. Seuls les cultivateurs du tonnerre pouvaient apprendre cette technique, et sa puissance variait selon la quantité de tonnerre présente dans le corps de l'individu. Plus la compression du tonnerre était importante, plus elle devenait dévastatrice!
 
-Par exemple, Dahong pouvait comprimer le tonnerre de son corps dix fois pour obtenir une explosion de puissance. C’était une pratique courante au sein du Clan du Tonnerre Dispersé, mais si cela se produisait dans le Royaume Intérieur sur la planète Suzaku, il serait l'un des cultivateurs les plus puissants.
+Par exemple, Dahong pouvait comprimer le tonnerre de son corps dix fois pour obtenir une explosion de puissance. C’était une pratique courante au sein du Clan Shan Lei, mais si cela se produisait dans le Royaume Intérieur sur la planète Suzaku, il serait l'un des cultivateurs les plus puissants.
 
 Cependant, cela n'était que secondaire. Pour véritablement maîtriser le Sceau de Rassemblement du Tonnerre, il fallait atteindre la seconde étape. On pouvait alors puiser le tonnerre entre ciel et terre et provoquer une compression de 1 000, voire de 10 000 fois, voire davantage, du tonnerre dans son propre corps.
 
@@ -18,7 +18,7 @@ Ce n'était là qu'une des méthodes pour contrôler le tonnerre. Cela était d�
 
 Wang Lin retira son Sens Divin du jade. Son expression était calme tandis qu'il se mettait à réfléchir.
 
-« L'être le plus puissant du Clan du Tonnerre Dispersé est l'Ancêtre, qui se trouve au cinquième niveau de la Calamité Céleste et n'est qu'à un pas de la troisième étape. Bien que cet écart soit aussi vaste que le fossé entre le ciel et la terre, sa force est incontestable. S'il utilise ce sortilège, je me demande combien de dizaines de milliers de fois il pourrait le compresser... Il pourrait même être capable de tenir tête à des cultivateurs de la troisième étape pendant un instant... »
+« L'être le plus puissant du Clan Shan Lei est l'Ancêtre, qui se trouve au cinquième niveau de la Calamité Céleste et n'est qu'à un pas de la troisième étape. Bien que cet écart soit aussi vaste que le fossé entre le ciel et la terre, sa force est incontestable. S'il utilise ce sortilège, je me demande combien de dizaines de milliers de fois il pourrait le compresser... Il pourrait même être capable de tenir tête à des cultivateurs de la troisième étape pendant un instant... »
 
 Tout en réfléchissant, Wang Lin mémorisa le Sceau de Rassemblement du Tonnerre. Tandis que ses mains formaient un sceau, des grondements tonitruants résonnèrent et d'innombrables éclairs apparurent. Tels des serpents argentés, ils chargèrent vers sa main pour former une sphère de tonnerre de la taille d'un poing.
 
@@ -26,13 +26,13 @@ Des craquements incessants émanaient de cette sphère qui subissait une compres
 
 La sphère était devenue invisible à l'œil nu. Seul le Sens Divin permettait de percevoir cette masse de tonnerre comprimée 30 000 fois dans la main de Wang Lin.
 
-« Bien que ce corps ait été modifié par moi, il ne peut afficher au maximum qu'une force équivalente à la Formation de l'Âme. Cependant, mon âme originelle est puissante; elle n'est donc pas limitée par ce corps, et les étrangers ne peuvent percevoir mon âme originelle! C'est parce que mon âme originelle a fusionné avec le tonnerre environnant et se trouve au même niveau d'existence que l'Éclair Éternel. Même si l'Ancêtre du Clan du Tonnerre Dispersé venait, tant qu'il cultive la marque du clan et l'Éclair Éternel, malgré un niveau de culture plus élevé, son contrôle sur le tonnerre ne pourrait égaler le mien! » Wang Lin contempla la sphère de tonnerre, minuscule comme une particule de poussière, et poursuivit sa réflexion.
+« Bien que ce corps ait été modifié par moi, il ne peut afficher au maximum qu'une force équivalente à la Formation de l'Âme. Cependant, mon âme originelle est puissante; elle n'est donc pas limitée par ce corps, et les étrangers ne peuvent percevoir mon âme originelle! C'est parce que mon âme originelle a fusionné avec le tonnerre environnant et se trouve au même niveau d'existence que l'Éclair Éternel. Même si l'Ancêtre du Clan Shan Lei venait, tant qu'il cultive la marque du clan et l'Éclair Éternel, malgré un niveau de culture plus élevé, son contrôle sur le tonnerre ne pourrait égaler le mien! » Wang Lin contempla la sphère de tonnerre, minuscule comme une particule de poussière, et poursuivit sa réflexion.
 
 « Une compression de 30 000 fois est la limite de ce corps. Si je tente d'intensifier davantage, ce corps s'effondrera instantanément. » Wang Lin agita la main droite et la particule formée par la sphère compressée disparut silencieusement.
 
-« Dahong est un membre du Clan du Tonnerre Dispersé, il n'y a donc aucun mal à ce qu'il agisse. Quant à Xu Liguo, il n'est pas un cultivateur mais un esprit d'épée; je vais le laisser s'amuser. Le Clan du Tonnerre Dispersé réside au sein du lac de tonnerre, où les non-membres ne peuvent absolument pas pénétrer, ils ne sont donc pas sur leurs gardes face aux étrangers. »
+« Dahong est un membre du Clan Shan Lei, il n'y a donc aucun mal à ce qu'il agisse. Quant à Xu Liguo, il n'est pas un cultivateur mais un esprit d'épée; je vais le laisser s'amuser. Le Clan Shan Lei réside au sein du lac de tonnerre, où les non-membres ne peuvent absolument pas pénétrer, ils ne sont donc pas sur leurs gardes face aux étrangers. »
 
-« Je n'ai pas besoin de rester trop discret... » Les yeux de Wang Lin s'illuminèrent et il cessa ses pensées. Il ferma les yeux et commença à étudier la marque du Clan du Tonnerre Dispersé.
+« Je n'ai pas besoin de rester trop discret... » Les yeux de Wang Lin s'illuminèrent et il cessa ses pensées. Il ferma les yeux et commença à étudier la marque du Clan Shan Lei.
 
 Ces marques étaient toutes des extensions de l'Éclair Éternel, issues de ce pouvoir originel. Étudier la marque revenait donc à étudier indirectement l'Éclair Éternel lui-même.
 
@@ -40,21 +40,21 @@ La marque que Wang Lin étudiait était celle de Yu Fei. Bien que Yu Fei ait arr
 
 En l'étudiant, il percevait à quel point l'Éclair Éternel était ancien et puissant. Cette simple extension contenait déjà une immense variété de tonnerre. Et cette minuscule marque renfermait déjà une trace d'essence de tonnerre.
 
-Pourtant, il ne pouvait absorber cette essence. Celle-ci possédait une volonté propre et semblait endormie, tout en absorbant constamment l'énergie des membres du Clan du Tonnerre Dispersé.
+Pourtant, il ne pouvait absorber cette essence. Celle-ci possédait une volonté propre et semblait endormie, tout en absorbant constamment l'énergie des membres du Clan Shan Lei.
 
 Le temps passa lentement. Wang Lin était dans la salle depuis plus d'un mois. En continuant ses recherches, il remarqua vaguement quelque chose de singulier.
 
 Ses yeux s'ouvrirent lentement, révélant de la fatigue, mais une lueur étrange y brillait.
 
-« Tous les membres du Clan du Tonnerre Dispersé cultivent leur marque pendant des éternités, et à mesure que la marque s'éveille, ils obtiennent un pouvoir infini et la maîtrise du tonnerre. Si la marque améliore leur culture, elle fait aussi ceci... ils offrent constamment leur force vitale et leur tonnerre en sacrifice à l'Éclair Éternel... »
+« Tous les membres du Clan Shan Lei cultivent leur marque pendant des éternités, et à mesure que la marque s'éveille, ils obtiennent un pouvoir infini et la maîtrise du tonnerre. Si la marque améliore leur culture, elle fait aussi ceci... ils offrent constamment leur force vitale et leur tonnerre en sacrifice à l'Éclair Éternel... »
 
 « C’est très similaire aux Flammes Joss! » Les yeux de Wang Lin devinrent de plus en plus brillants.
 
-« Si l'Éclair Éternel est un cultivateur de la troisième étape, alors tout le Clan du Tonnerre Dispersé n'est que ses disciples... Ces disciples portent tous une marque, ils cultivent sans cesse et offrent tout ce qu'ils possèdent... Mais selon l'ampleur de leur offrande, ils reçoivent en retour des niveaux de culture variables... »
+« Si l'Éclair Éternel est un cultivateur de la troisième étape, alors tout le Clan Shan Lei n'est que ses disciples... Ces disciples portent tous une marque, ils cultivent sans cesse et offrent tout ce qu'ils possèdent... Mais selon l'ampleur de leur offrande, ils reçoivent en retour des niveaux de culture variables... »
 
-« Tout cela ressemble également énormément au Classement du Clan du Tonnerre Dispersé et à ses cristaux de tonnerre! »
+« Tout cela ressemble également énormément au Classement du Clan Shan Lei et à ses cristaux de tonnerre! »
 
-Wang Lin eut le sentiment d'avoir découvert un secret capable de faire trembler les fondations du monde. Il prit une profonde inspiration et murmura: « Tous les clans du Système Stellaire Antique possèdent une marque... Cette marque n'est pas toujours située entre les sourcils. Le Clan de la Soie Bleue a des cheveux bleus, mais c'est aussi une marque! Si tous les autres clans du Système Stellaire Antique sont comme le Clan du Tonnerre Dispersé... alors ce Système Stellaire Antique pourrait-il être... pourrait-il être... »
+Wang Lin eut le sentiment d'avoir découvert un secret capable de faire trembler les fondations du monde. Il prit une profonde inspiration et murmura: « Tous les clans du Système Stellaire Antique possèdent une marque... Cette marque n'est pas toujours située entre les sourcils. Le Clan Lan Si a des cheveux bleus, mais c'est aussi une marque! Si tous les autres clans du Système Stellaire Antique sont comme le Clan Shan Lei... alors ce Système Stellaire Antique pourrait-il être... pourrait-il être... »
 
 Les pupilles de Wang Lin se rétractèrent et il leva soudain la tête. Son regard perça les murs de la salle pour embrasser le monde, d'un air extrêmement sombre.
 
@@ -88,12 +88,12 @@ L'expression de Wang Lin resta neutre tandis qu'il observait Dahong. D'un geste 
 
 Dahong baissa la tête, secoué par l'émotion. Il ne put cacher son excitation et s'écria rapidement: « C’est l'honneur de ce petit disciple d'agir pour l'Aîné. L'Aîné est aussi éclatant que le soleil et la lune; même sans récompense, ce petit serait ravi d'aider l'Aîné! »
 
-« Aîné, il ne reste que quelques jours avant les échanges de cristaux. Le Temple du Cristal de Tonnerre ouvrira bientôt. Devrions-nous partir dès maintenant pour en obtenir? »
+« Aîné, il ne reste que quelques jours avant les échanges de cristaux. Le Temple Lei Jing ouvrira bientôt. Devrions-nous partir dès maintenant pour en obtenir? »
 
 Wang Lin réfléchit un instant, puis regarda Dahong avec un sourire qui n'en était guère un, avant d'acquiescer.
 
-En voyant l'accord de Wang Lin, Dahong fut transporté par l'excitation. Il avait délibérément choisi de revenir avant Xu Liguo afin de se retrouver seul avec Wang Lin pour utiliser son art invincible. Il avait aussi décidé d'emmener Wang Lin au Temple du Cristal de Tonnerre pour que Xu Liguo ne puisse pas le trouver à son retour.
+En voyant l'accord de Wang Lin, Dahong fut transporté par l'excitation. Il avait délibérément choisi de revenir avant Xu Liguo afin de se retrouver seul avec Wang Lin pour utiliser son art invincible. Il avait aussi décidé d'emmener Wang Lin au Temple Lei Jing pour que Xu Liguo ne puisse pas le trouver à son retour.
 
-« Humph, humph! Moi, Dahong, je suis sur le point de lancer ma guerre contre Xu Liguo. Je ne crois pas être incapable de le battre! Tant que l'Aîné m'accepte, que sont ces simples cristaux de tonnerre? Si je reste aux côtés de l'Aîné, je gagnerai énormément de bénéfices! Il semble que l'Aîné ait l'intention d'intégrer le Classement Tonnerre Dispersé. Une fois que l'Aîné aura gravi les échelons, ce sera aussi le jour où je me ferai un nom! Peut-être y aura-t-il une place pour moi, Dahong, au sein du Clan du Tonnerre Dispersé! »
+« Humph, humph! Moi, Dahong, je suis sur le point de lancer ma guerre contre Xu Liguo. Je ne crois pas être incapable de le battre! Tant que l'Aîné m'accepte, que sont ces simples cristaux de tonnerre? Si je reste aux côtés de l'Aîné, je gagnerai énormément de bénéfices! Il semble que l'Aîné ait l'intention d'intégrer le Classement Tonnerre Dispersé. Une fois que l'Aîné aura gravi les échelons, ce sera aussi le jour où je me ferai un nom! Peut-être y aura-t-il une place pour moi, Dahong, au sein du Clan Shan Lei! »
 
 Dahong avait de l'ambition. C’était là sa plus grande différence avec Xu Liguo.

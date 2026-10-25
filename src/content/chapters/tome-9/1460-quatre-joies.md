@@ -16,7 +16,7 @@ Wang Lin était toujours assis à l'extérieur du Fourneau Impérial, continuant
 
 Exhalant une puissante vitalité, ils montraient des signes de croissance de nouvelles feuilles.
 
-Après avoir détourné son regard, Wang Lin agita la main droite et une faille vers son espace de stockage s'ouvrit. Il y plongea la main et en sortit la jeune fille scellée du Clan de l'Extermination des Sceaux.
+Après avoir détourné son regard, Wang Lin agita la main droite et une faille vers son espace de stockage s'ouvrit. Il y plongea la main et en sortit la jeune fille scellée du Clan Feng Mie.
 
 Bien que l'apparence de la jeune fille ne fût pas superbe, elle restait très belle. Ses cheveux noirs couvraient une partie de son visage pâle et ses yeux étaient clos. Son expression timide inspirait naturellement le désir de la protéger.
 
@@ -28,7 +28,7 @@ En la contemplant, Wang Lin ne put s'empêcher de se remémorer un autre visage 
 
 « Très similaire à Yao Xixue... » Les yeux de Wang Lin devinrent progressivement froids et il demanda lentement: « Quel est ton nom? »
 
-La voix de la jeune fille du Clan de l'Extermination des Sceaux trembla et elle murmura: « Zhiman... Feng Zhiman... »
+La voix de la jeune fille du Clan Feng Mie trembla et elle murmura: « Zhiman... Feng Zhiman... »
 
 « Zhiman... C'est un beau nom. Tu es morte deux fois; comment as-tu survécu? » La voix de Wang Lin était calme, mais une pression se propagea pour envelopper la jeune fille.
 
@@ -46,13 +46,13 @@ Cette jeune fille étant proche de Miaoyin Daozun, elle connaissait nombre de se
 
 Le visage de la jeune fille pâlit de plus en plus. Il ne lui fut pas difficile de constater que c'était la vérité. Sous l'attaque combinée de Wang Lin et de la Grande Désolation, l'avatar de Miaoyin Daozun, dont la culture était supprimée, n'avait aucune chance de survivre.
 
-Le fait de voir la Grande Désolation posséder l'avatar de Miaoyin Daozun fit disparaître son dernier espoir; elle se mit à trembler. « Ma patience est limitée. Si tu ne réponds pas à ma question, je lancerai une recherche d'âme! » La voix de Wang Lin devint de plus en plus glaciale. Il savait que le Clan de l'Extermination des Sceaux cachait quelque chose d'étrange; il n'utilisa donc pas la recherche d'âme directement, mais chercha d'abord à briser sa résistance.
+Le fait de voir la Grande Désolation posséder l'avatar de Miaoyin Daozun fit disparaître son dernier espoir; elle se mit à trembler. « Ma patience est limitée. Si tu ne réponds pas à ma question, je lancerai une recherche d'âme! » La voix de Wang Lin devint de plus en plus glaciale. Il savait que le Clan Feng Mie cachait quelque chose d'étrange; il n'utilisa donc pas la recherche d'âme directement, mais chercha d'abord à briser sa résistance.
 
 La panique dans les yeux de la jeune fille s'intensifia. Elle savait qu'elle n'avait aucune issue. Son maître était déjà mort, scellant ainsi toute voie de retraite.
 
 Wang Lin reprit lentement: « Il n'y avait pas de haine profonde entre nous auparavant. Même si tu m'as traqué, je t'ai déjà tuée une fois, cela peut donc être compensé. Si tu coopères, je ne te tuerai pas, et je pourrais même te laisser partir! »
 
-La jeune fille réfléchit un instant et murmura: « Les membres de mon Clan de l'Extermination des Sceaux ont trois vies... »
+La jeune fille réfléchit un instant et murmura: « Les membres de mon Clan Feng Mie ont trois vies... »
 
 Les yeux de Wang Lin s'illuminèrent et il demanda aussitôt: « Par quel sort? »
 
@@ -64,7 +64,7 @@ Les yeux de la fille étaient remplis d'une peur infinie. Elle cria: « Je ne ca
 
 La main droite de Wang Lin s'arrêta à trois pouces du front de la jeune fille et il la fixa froidement.
 
-« Comment utilise-t-on le sort de scellement du Clan de l'Extermination des Sceaux? »
+« Comment utilise-t-on le sort de scellement du Clan Feng Mie? »
 
 « Nous offrons notre vie pour ouvrir la marque de clan. Le pouvoir de l'ancêtre émane de la marque et accomplit le sceau... » répondit rapidement la jeune fille, terrifiée.
 
@@ -72,15 +72,15 @@ Dès qu'elle eut fini de parler, la main droite de Wang Lin se posa brusquement 
 
 D'un geste de la main, il scella son corps et la rangea dans son espace de stockage. Il resta ensuite pensif, observant la marque du clan qui scintillait dans sa paume.
 
-Le Clan de l'Extermination des Sceaux était une lignée extrêmement étrange. Ils n'étaient pas liés par le sang mais capturaient des nourrissons; si ces derniers survivaient à la vénération de l'ancêtre, ils devenaient membres du clan.
+Le Clan Feng Mie était une lignée extrêmement étrange. Ils n'étaient pas liés par le sang mais capturaient des nourrissons; si ces derniers survivaient à la vénération de l'ancêtre, ils devenaient membres du clan.
 
 Le risque de mort était très élevé et, depuis longtemps, l'autel du clan avait disparu. De nos jours, il ne restait que très peu de membres de ce clan.
 
-Et parce que la marque de clan leur était gravée, ils ne mouraient pas en perdant ladite marque, et même leur niveau de culture n'en subissait pas le déclin. Ils cessaient simplement d'appartenir au Clan de l'Extermination des Sceaux.
+Et parce que la marque de clan leur était gravée, ils ne mouraient pas en perdant ladite marque, et même leur niveau de culture n'en subissait pas le déclin. Ils cessaient simplement d'appartenir au Clan Feng Mie.
 
 Ce qui était remarquable chez ce clan, outre son étrange sortilège de scellement, était son incroyable sortilège des trois vies. Ce pouvoir pouvait être arraché par autrui et utilisé sur lui-même.
 
-C'était précisément dans cette intention que Miaoyin Daozun s'était donné tant de mal pour trouver un membre du Clan de l'Extermination des Sceaux et en faire sa servante. Cependant, la méthode pour obtenir le sortilège des trois vies était trop ardue: il fallait se rendre à l'autel du clan, avec peu de chances de succès, et un échec provoquerait un contrecoup. De plus, l'autel avait disparu depuis trop longtemps; l'affaire avait donc toujours été repoussée.
+C'était précisément dans cette intention que Miaoyin Daozun s'était donné tant de mal pour trouver un membre du Clan Feng Mie et en faire sa servante. Cependant, la méthode pour obtenir le sortilège des trois vies était trop ardue: il fallait se rendre à l'autel du clan, avec peu de chances de succès, et un échec provoquerait un contrecoup. De plus, l'autel avait disparu depuis trop longtemps; l'affaire avait donc toujours été repoussée.
 
 Après avoir examiné la marque du clan, Wang Lin la rangea silencieusement. Quant à la jeune fille, il n'avait pas l'intention de la tuer. Il n'y avait aucune haine entre eux et il avait déjà pris sa marque. Une fois sorti de l'Ancien Tombeau, il la libérerait.
 

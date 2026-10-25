@@ -1,24 +1,24 @@
 ---
 n: 1889
-title: "Le Maître de la Secte du Dao Démoniaque!"
+title: "Le Maître de la Secte Dao Mo!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1889 - Devil Dao Secte’s Secte Master !"
 slug: le-maitre-de-la-secte-du-dao-demoniaque
 ---
-« Nuit Brisée! » Wang Lin se retourna soudainement. Il savait qu'il serait extrêmement difficile de s'échapper. La Secte du Dao Démoniaque était prête à tout pour le tuer!
+« Nuit Brisée! » Wang Lin se retourna soudainement. Il savait qu'il serait extrêmement difficile de s'échapper. La Secte Dao Mo était prête à tout pour le tuer!
 
 Les cultivateurs environnants et les têtes qui jonchaient le sol suffisaient à tout expliquer!
 
-S'il voulait partir, il devait se donner corps et âme! Il devait être rapide, sinon d'autres cultivateurs de la Secte du Dao Démoniaque arriveraient via les réseaux de transfert. À un moment donné, Wang Lin n'aurait plus aucune chance de s'enfuir!
+S'il voulait partir, il devait se donner corps et âme! Il devait être rapide, sinon d'autres cultivateurs de la Secte Dao Mo arriveraient via les réseaux de transfert. À un moment donné, Wang Lin n'aurait plus aucune chance de s'enfuir!
 
 Plus il resterait ici, plus ses chances de survie diminueraient!
 
-Dès qu'il eut prononcé ces deux mots, la frontière entre le Continent du Démon Vert et le Continent Terre-Meng fut soudainement envahie par l'illusion d'une mer et enveloppée par les ténèbres de la nuit.
+Dès qu'il eut prononcé ces deux mots, la frontière entre le Continent Lu Mo et le Continent Terre-Meng fut soudainement envahie par l'illusion d'une mer et enveloppée par les ténèbres de la nuit.
 
 Après l'apparition de Nuit Brisée, Wang Lin utilisa le sort le plus puissant qu'un cultivateur puisse déployer. Le soleil se leva, libérant une puissance capable de déchirer la nuit.
 
-Quel que soit leur niveau de culture, les centaines de cultivateurs de la Secte du Dao Démoniaque poussèrent des cris de détresse sous la force de Nuit Brisée. Leurs corps s'effondrèrent et leurs âmes originelles furent anéanties.
+Quel que soit leur niveau de culture, les centaines de cultivateurs de la Secte Dao Mo poussèrent des cris de détresse sous la force de Nuit Brisée. Leurs corps s'effondrèrent et leurs âmes originelles furent anéanties.
 
 Il y avait aussi les centaines de personnes qui traversaient le réseau de transfert. Avant même que leurs corps ne puissent se condenser, ils périrent.
 
@@ -28,7 +28,7 @@ Ce n'était pas qu'il n'avait pas envisagé de détruire les six réseaux de tra
 
 En un éclair, Wang Lin parcourut la moitié de la distance, mais à cet instant précis, les six réseaux de transfert s'illuminèrent. Des fluctuations encore plus puissantes émanèrent des réseaux et une troisième vague de centaines de cultivateurs se mit à sa poursuite.
 
-Parmi ces centaines de personnes figuraient quatre experts du stade intermédiaire de la Tribulation du Vide et un du stade avancé. La Secte du Dao Démoniaque déployait presque toute sa puissance pour traquer Wang Lin!
+Parmi ces centaines de personnes figuraient quatre experts du stade intermédiaire de la Tribulation du Vide et un du stade avancé. La Secte Dao Mo déployait presque toute sa puissance pour traquer Wang Lin!
 
 Ils utilisaient la force d'une secte entière pour tuer un seul homme! Un tel massacre pouvait sembler lié à des rancunes personnelles, mais ce n'en était pas la seule raison. Aucun maître de secte ou ancêtre des neuf sectes et treize factions ne serait aussi aveugle!
 
@@ -58,7 +58,7 @@ Des grondements tonitruants retentirent et une ondulation grise se propagea. Les
 
 Le visage du vieil homme devint instantanément livide et ses jambes commencèrent à se pétrifier. Il pressa son propre corps de ses mains, tentant à chaque fois d'injecter une rafale d'énergie pour résister à la puissance de l'Ancien Dao qui envahissait son corps.
 
-Hormis lui, tous les cultivateurs de la Secte du Dao Démoniaque à la frontière des deux continents furent exterminés!
+Hormis lui, tous les cultivateurs de la Secte Dao Mo à la frontière des deux continents furent exterminés!
 
 Du sang coula du coin de la bouche de Wang Lin. Il avait épuisé toute sa puissance de l'Ancien Dao et l'armure autour de lui faiblissait. Certaines parties commençaient déjà à se transformer en fils et elle était sur le point de se dissiper.
 
@@ -114,11 +114,11 @@ Au moment où Wang Lin posa le pied sur le Continent Terre-Meng, le reste de son
 
 Il lui restait encore l'armure élémentaire terrestre en forme humaine de la Secte Gui Yi. Bien qu'elle fût partiellement brisée, elle lui offrait toujours une protection puissante.
 
-Debout sur le Continent Terre-Meng, il chancela alors que du sang coulait du coin de sa bouche, puis il s'enfonça dans la course. Il comprenait qu'en tant que cultivateur indépendant, il pouvait franchir la frontière entre deux continents; cependant, l'arrivée massive de disciples de la Secte du Dao Démoniaque était une tout autre affaire.
+Debout sur le Continent Terre-Meng, il chancela alors que du sang coulait du coin de sa bouche, puis il s'enfonça dans la course. Il comprenait qu'en tant que cultivateur indépendant, il pouvait franchir la frontière entre deux continents; cependant, l'arrivée massive de disciples de la Secte Dao Mo était une tout autre affaire.
 
-La Secte du Dao Démoniaque devait en avoir tenu compte; autrement, ils n'auraient pas ordonné aux deux Messagers du Démon Vert de s'autodétruire, ni à Yun Kong de le retarder pour s'assurer qu'il reste sur le Continent du Démon Vert. Sans ces scrupules, ils n'auraient eu aucune raison de se presser : ils auraient simplement ouvert la voie par le massacre jusqu'au Continent Terre-Meng pour le poursuivre.
+La Secte Dao Mo devait en avoir tenu compte; autrement, ils n'auraient pas ordonné aux deux Messagers du Démon Vert de s'autodétruire, ni à Yun Kong de le retarder pour s'assurer qu'il reste sur le Continent Lu Mo. Sans ces scrupules, ils n'auraient eu aucune raison de se presser : ils auraient simplement ouvert la voie par le massacre jusqu'au Continent Terre-Meng pour le poursuivre.
 
-Comme Wang Lin l'avait pressenti, les cultivateurs de la Secte du Dao Démoniaque s'arrêtèrent aux portes du Continent Terre-Meng. Ils hésitèrent, ne poursuivant pas leur traque.
+Comme Wang Lin l'avait pressenti, les cultivateurs de la Secte Dao Mo s'arrêtèrent aux portes du Continent Terre-Meng. Ils hésitèrent, ne poursuivant pas leur traque.
 
 Mais à cet instant précis, quatre des réseaux de transfert brillèrent à nouveau. Trois d'entre eux transportèrent des dizaines de cultivateurs, tandis que le quatrième n'en dégagea qu'une seule personne!
 

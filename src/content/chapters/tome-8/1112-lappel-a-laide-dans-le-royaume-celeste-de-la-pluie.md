@@ -24,7 +24,7 @@ Le rayon de lumière lutta un instant avant de cesser toute résistance. Il se m
 
 Tenant la lance, Tuo Sen afficha un sourire sanguinaire et la lança avec une férocité sans nom! Une explosion qui fit trembler les cieux se produisit lorsque la Lance de l’Extermination Divine perça le ciel de ce monde rouge sang. Le firmament sembla sur le point de s'effondrer!
 
-Au moment où la lance transperça le monde de sang, elle accéléra encore davantage, traversant de nombreux lieux de la Terre de l'Ancien Dieu jusqu'à atteindre l'abîme! Sa vitesse était telle et son aura si terrifiante qu'elle aurait pu choquer même des cultivateurs au stade Briseur du Nirvana. Apparaissant comme un éclair rouge, la lance fonça tel un dragon vers les cultivateurs qui combattaient les bêtes féroces!
+Au moment où la lance transperça le monde de sang, elle accéléra encore davantage, traversant de nombreux lieux de la Terre Gu Shen jusqu'à atteindre l'abîme! Sa vitesse était telle et son aura si terrifiante qu'elle aurait pu choquer même des cultivateurs au stade Briseur du Nirvana. Apparaissant comme un éclair rouge, la lance fonça tel un dragon vers les cultivateurs qui combattaient les bêtes féroces!
 
 Tous ces cultivateurs tremblèrent à l'instant même où la Lance de l’Extermination Divine apparut. Des cris de détresse résonnèrent avant qu'ils n'aient le temps de réagir.
 
@@ -34,11 +34,11 @@ Nul cultivateur ne put résister à la Lance de l’Extermination Divine. En un 
 
 La Lance de l’Extermination Divine, enveloppée de lumière rouge, ne poursuivit pas les fuyards. Au contraire, elle chargea vers l'entrée ovale et s'en échappa!
 
-Dès qu'elle quitta la Terre de l'Ancien Dieu pour apparaître dans la Mer des Démons, la planète entière trembla. Une aura indescriptible surgit soudainement!
+Dès qu'elle quitta la Terre Gu Shen pour apparaître dans la Mer Xiu Mo, la planète entière trembla. Une aura indescriptible surgit soudainement!
 
 Toute l'énergie originelle sur son passage fut repoussée, comme si partout où la Lance de l’Extermination Divine se trouvait, l'énergie originelle n'avait pas le droit d'exister!
 
-La lumière rouge brilla intensément et la lance jaillit de la Mer des Démons. Ce rayon écarlate s'élança vers le ciel et l'atmosphère se désintégra devant elle, lui permettant de pénétrer dans l'espace sans aucune résistance!
+La lumière rouge brilla intensément et la lance jaillit de la Mer Xiu Mo. Ce rayon écarlate s'élança vers le ciel et l'atmosphère se désintégra devant elle, lui permettant de pénétrer dans l'espace sans aucune résistance!
 
 Après des dizaines de milliers d'années, l'arme du clan royal des anciens dieux apparaissait une fois de plus!
 
@@ -46,7 +46,7 @@ Toutes les forces situées à l'extérieur de la planète Suzaku ressentirent ce
 
 Dans un éclair rouge, la lance perça le palais. Celui-ci trembla et vola en éclats. La Lance de l’Extermination Divine ne s'arrêta pas là; elle transperça tous les palais de Luotian, provoquant leur effondrement total.
 
-Même la Secte des Cadavres subit un coup terrible. Tous les cercueils s'écroulèrent un à un devant le passage de la lance. Même les marionnettes de cadavres à l'intérieur furent réduites en poussière!
+Même la Secte Shi Yin subit un coup terrible. Tous les cercueils s'écroulèrent un à un devant le passage de la lance. Même les marionnettes de cadavres à l'intérieur furent réduites en poussière!
 
 Les forces de l'Alliance furent lourdement touchées. La Lance de l’Extermination Divine faucha les foules, et des cris déchirants résonnèrent. Quiconque s'approchait était instantanément tué!
 
@@ -54,9 +54,9 @@ Parmi eux se trouvait une vieille femme au stade Briseur du Nirvana du côté de
 
 Celle-ci pensait pouvoir stopper la lance un instant grâce à sa culture de début de stade Briseur du Nirvana en utilisant un sortilège. Cependant, la Lance de l’Extermination Divine ignora tous les sorts et lui transperça directement la poitrine. Ses yeux se remplirent d'incrédulité lorsqu'elle regarda le trou béant dans son torse. Un instant plus tard, son corps s'effondra et même son âme originelle se dissipa.
 
-Les pupilles de Maître Yan Leizi se rétractèrent. Lui et les autres Anciens s'élancèrent. La Secte des Cadavres envoya également des cultivateurs pour attaquer la Lance de l’Extermination Divine!
+Les pupilles de Maître Yan Leizi se rétractèrent. Lui et les autres Anciens s'élancèrent. La Secte Shi Yin envoya également des cultivateurs pour attaquer la Lance de l’Extermination Divine!
 
-Mais juste au moment où ces derniers allaient frapper, la lance fit demi-tour et retourna vers la planète Suzaku. Elle regagna la Mer des Démons et disparut à nouveau dans la Terre de l'Ancien Dieu.
+Mais juste au moment où ces derniers allaient frapper, la lance fit demi-tour et retourna vers la planète Suzaku. Elle regagna la Mer Xiu Mo et disparut à nouveau dans la Terre Gu Shen.
 
 Une voix rauque résonna à travers la planète et jusque dans l'espace au moment où la lance disparut!
 
@@ -70,13 +70,13 @@ Un silence de mort s'installa alors que Maître Yan Leizi et les Anciens afficha
 
 Après une courte réflexion, Maître Yan Leizi cria: « Tous les cultivateurs, suivez-moi vers la planète Suzaku! » Sur ce, il s'élança vers la planète. Les Anciens et d'innombrables cultivateurs l'emboîtèrent!
 
-La Secte des Cadavres marqua une pause avant qu'une voix semblable au frottement de pierres ne résonne:
+La Secte Shi Yin marqua une pause avant qu'une voix semblable au frottement de pierres ne résonne:
 
-« Secte des Cadavres, en marche! » L'ensemble de la secte se mit en mouvement. Une nuée de cultivateurs transportant des cercueils vola vers la planète Suzaku. Les huit individus en tête étaient entourés d'une brume noire et dégageaient une pression colossale!
+« Secte Shi Yin, en marche! » L'ensemble de la secte se mit en mouvement. Une nuée de cultivateurs transportant des cercueils vola vers la planète Suzaku. Les huit individus en tête étaient entourés d'une brume noire et dégageaient une pression colossale!
 
 Les forces de l'Alliance hésitèrent et ne déployèrent pas toute leur puissance. La moitié resta sur place, tandis que le reste suivit ses Anciens respectifs vers la planète Suzaku!
 
-Au même moment, l'entité qui reposait au fond de l'abîme de la Terre de l'Ancien Dieu, réveillée par les fluctuations de l'énergie originelle, s'éleva lentement.
+Au même moment, l'entité qui reposait au fond de l'abîme de la Terre Gu Shen, réveillée par les fluctuations de l'énergie originelle, s'éleva lentement.
 
 Sa silhouette floue se dévoilait progressivement!
 
@@ -90,7 +90,7 @@ Il existait un esprit des temps anciens appelé « Ji », dont la forme était h
 
 Cette bête naissait avec une seule tête, et chaque fois qu'elle dévorait un monde, elle gagnait une nouvelle tête ainsi que de nouveaux sorts, et ses pouvoirs divins se multipliaient. Elle osait défier le monde et pouvait dormir pour l'éternité.
 
-À cet instant, au sein du Royaume Céleste de la Pluie, tout était paisible comparé à la Terre de l'Ancien Dieu, si l'on excepte les fissures qui déchiraient le ciel et les tremblements constants de la terre.
+À cet instant, au sein du Royaume Céleste de la Pluie, tout était paisible comparé à la Terre Gu Shen, si l'on excepte les fissures qui déchiraient le ciel et les tremblements constants de la terre.
 
 Le niveau de culture du groupe de Wang Lin avait totalement dépassé ce que le Royaume Céleste de la Pluie pouvait supporter. Dès leur entrée, l'un des fragments s'effondra, créant une immense aspiration qui attira les autres fragments vers lui.
 

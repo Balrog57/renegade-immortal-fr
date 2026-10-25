@@ -20,7 +20,7 @@ Des vagues de crépitements et de détonations faisaient trembler la terre. Auto
 
 Au-delà de la vallée s'étendait la région extérieure du Royaume aux Sept Couleurs, le domaine des bêtes féroces. Durant cette période, Chen Tianjun passait d'une créature à l'autre, prenant des risques considérables pour traquer méticuleusement les Cristaux Originels.
 
-Bien qu'il possédât les sorts de la Secte des Bêtes de Bataille, dérober les cristaux originels à ces bêtes de rang 12 revenait à vouloir arracher une dent à un tigre. C'était une entreprise périlleuse qui l'avait mené aux portes de la mort à plusieurs reprises.
+Bien qu'il possédât les sorts de la Secte Yi Shou, dérober les cristaux originels à ces bêtes de rang 12 revenait à vouloir arracher une dent à un tigre. C'était une entreprise périlleuse qui l'avait mené aux portes de la mort à plusieurs reprises.
 
 Il s'enfuyait alors à toute vitesse, poursuivi par une bête de brume. Son cœur battait la chamade tandis qu'il s'élançait dans le lointain. Un rugissement retentit derrière lui, suivi d'une bourrasque de vent qui le talonnait.
 
@@ -106,4 +106,4 @@ Sous l'Oiseau Vermillon Bleu, une silhouette gracile s'avança, un pas après l'
 
 Le troisième éveil de l'Oiseau Vermillon était une véritable renaissance par le feu!
 
-À cet instant, loin de la Mer des Nuages, dans la zone isolée de l'Alliance où se trouvaient les Quatre Sectes Divines, tous les membres de la Secte Divine de l'Oiseau Vermillon sentirent le feu en leur sein brûler avec frénésie. Pour la première fois, ils perdirent le contrôle de leurs flammes, qui jaillirent de leurs corps pour les envelopper.
+À cet instant, loin de la Mer Yun, dans la zone isolée de l'Alliance où se trouvaient les Quatre Sectes Divines, tous les membres de la Secte Divine de l'Oiseau Vermillon sentirent le feu en leur sein brûler avec frénésie. Pour la première fois, ils perdirent le contrôle de leurs flammes, qui jaillirent de leurs corps pour les envelopper.

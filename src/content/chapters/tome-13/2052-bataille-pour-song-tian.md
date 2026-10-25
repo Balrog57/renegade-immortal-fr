@@ -12,7 +12,7 @@ Outre la colère, une sensation de peur et d'effroi imprégnait l'air. Face à W
 
 Le gigantesque Soleil de Grand Empyréen, second seulement à celui de Gu Dao, témoignait lui aussi de la puissance de Wang Lin!
 
-« Il n'est même pas encore parvenu au Royaume Divin Immémorial et pourtant... Il est devenu un Grand Empyréen par sa propre force!! » Dans le Continent du Nord, Wu Feng resta en transe, les yeux rivés sur le ciel pendant un long moment.
+« Il n'est même pas encore parvenu au Royaume Divin Immémorial et pourtant... Il est devenu un Grand Empyréen par sa propre force!! » Dans le Continent Bei, Wu Feng resta en transe, les yeux rivés sur le ciel pendant un long moment.
 
 Dans la Secte Yang Pourpre, les deux petites filles étaient transportées par la joie. Elles se tenaient par la main tout en contemplant le firmament.
 
@@ -28,11 +28,11 @@ Sur le Mont Empereur, dans la cité ancestrale, le Grand Empyréen Jiu Di regard
 
 Jiu Di laissa paraître son effroi et murmura pour lui-même: « Cela devrait être... impossible!! »
 
-Hai Zi, assise à l'angle du Mont de l'Empereur, levait les yeux vers le ciel avec un regard complexe, laissant poindre une lueur d'illumination.
+Hai Zi, assise à l'angle du Mont Di, levait les yeux vers le ciel avec un regard complexe, laissant poindre une lueur d'illumination.
 
 Également dans la cité ancestrale, sous le palais, Lian Daofei, qui s'était métamorphosé en montagne, demeurait immobile.
 
-Au sein du clan Ancien, un tollé éclata sur la Montagne de l'Origine du clan Ancien. Song Tian affichait une expression amère. Bien qu'il se soit préparé en envoyant le démon ancien, son cœur ne put s'empêcher de trembler.
+Au sein du clan Ancien, un tollé éclata sur la Montagne Yuan Shi du clan Ancien. Song Tian affichait une expression amère. Bien qu'il se soit préparé en envoyant le démon ancien, son cœur ne put s'empêcher de trembler.
 
 Dans la cité impériale de l'Ancien Dao, Xuan Luo ressentit l'aura de Wang Lin. Un sourire apparut sur ses lèvres; il était ivre de joie et éclata d'un rire sonore.
 
@@ -64,13 +64,13 @@ Le colossal démon ancien n'attendit aucun ordre de Wang Lin. Il poussa un hurle
 
 Une fois la créature partie, la déchirure dans le ciel se referma lentement jusqu'à ne devenir qu'une ligne blanche avant de s'effacer totalement.
 
-À l'extérieur des Anciens Shi, sur la Montagne de l'Origine, au moment où Wang Lin avait effacé le sens divin de Song Tian sur le démon ancien, Song Tian trembla. Son visage devint légèrement pâle, mais il reprit vite contenance.
+À l'extérieur des Anciens Shi, sur la Montagne Yuan Shi, au moment où Wang Lin avait effacé le sens divin de Song Tian sur le démon ancien, Song Tian trembla. Son visage devint légèrement pâle, mais il reprit vite contenance.
 
 L'expression sombre, il serra la gigantesque hache de guerre dans sa main. Il leva les yeux vers le ciel et sa respiration se régularisa. Il savait que ses actes forceraient Wang Lin à venir ici.
 
 « Même si je n'avais pas tenté de tester Wang Lin plus tôt, il serait venu de toute façon pour faire de Ji Du le prochain empereur! » soupira Song Tian. Il n'avait aucune confiance en sa victoire, mais en tant que Grand Empyréen, il ne pouvait se résoudre à céder sans combattre!
 
-Sur la Montagne de l'Origine, un grondement de tonnerre retentit et une brume enveloppa le sommet. On aurait dit qu'une armée immense se tapissait dans la brume, dégageant une intention meurtrière redoutable.
+Sur la Montagne Yuan Shi, un grondement de tonnerre retentit et une brume enveloppa le sommet. On aurait dit qu'une armée immense se tapissait dans la brume, dégageant une intention meurtrière redoutable.
 
 « Avec la formation d'origine et cette hache de guerre imprégnée de lois, offerte par le Grand Empyréen Gu Dao, même s'il possède le pouvoir de manipuler les lois, je devrais être capable de tenir tête! » Song Tian prit une grande inspiration et observa calmement le ciel, guettant l'arrivée de Wang Lin.
 
@@ -86,7 +86,7 @@ Song Tian agita sa manche et lança froidement: « Wang Lin!! »
 
 Wang Lin sourit, joignit les mains et répondit: « Salutations, Seigneur Song. »
 
-« Ne dis plus de bêtises, je sais pourquoi tu es venu. Nous allons nous battre. Si tu gagnes, je ferai de Ji Du le prochain empereur dans cent ans! » Song Tian soupira. Il ne précisa même pas ce qu'il adviendrait en cas de sa victoire. D'un geste de la main gauche, il donna le signal aux troupes dissimulées dans la brume autour de la Montagne de l'Origine, qui poussèrent un rugissement féroce en chargeant vers Wang Lin.
+« Ne dis plus de bêtises, je sais pourquoi tu es venu. Nous allons nous battre. Si tu gagnes, je ferai de Ji Du le prochain empereur dans cent ans! » Song Tian soupira. Il ne précisa même pas ce qu'il adviendrait en cas de sa victoire. D'un geste de la main gauche, il donna le signal aux troupes dissimulées dans la brume autour de la Montagne Yuan Shi, qui poussèrent un rugissement féroce en chargeant vers Wang Lin.
 
 Au même instant, Song Tian saisit sa hache et frappa Wang Lin de toutes ses forces!
 
@@ -100,7 +100,7 @@ Au premier geste, un grondement tonitruant s'éleva de l'armée qui se précipit
 
 Pour Chi Man et Ji Du, tel fut l'effet produit, mais aux yeux de Song Tian, les lois du monde s'étaient matérialisées devant les troupes.
 
-Une fois l'armée dissipée, le second geste de Wang Lin fit éclater la brume entourant la Montagne de l'Origine. Le brouillard fut déchiré en d'innombrables fragments avant de s'évaporer. Toute la montagne trembla, et les membres puissants des Anciens Shi qui maintenaient la formation crachèrent du sang, affaiblis par le choc.
+Une fois l'armée dissipée, le second geste de Wang Lin fit éclater la brume entourant la Montagne Yuan Shi. Le brouillard fut déchiré en d'innombrables fragments avant de s'évaporer. Toute la montagne trembla, et les membres puissants des Anciens Shi qui maintenaient la formation crachèrent du sang, affaiblis par le choc.
 
 Song Tian sentit son cuir chevelu picoter, mais il endura la douleur, le regard glacial. Il brandit à nouveau sa hache de guerre pour frapper Wang Lin.
 
@@ -110,7 +110,7 @@ Un poing illusoire surgit du néant devant Song Tian. Ce poing était entièreme
 
 Des détonations assourdissantes retentirent et la hache se brisa morceau par morceau, avant de voler en éclats sur la terre. Le poing de loi vacilla également et fut tranché en deux.
 
-Song Tian recracha une gorgée de sang et recula de mille pieds pour retomber sur la Montagne de l'Origine. La montagne entière trembla sous la force du choc, et des fissures apparurent sur ses flancs.
+Song Tian recracha une gorgée de sang et recula de mille pieds pour retomber sur la Montagne Yuan Shi. La montagne entière trembla sous la force du choc, et des fissures apparurent sur ses flancs.
 
 La main droite de Wang Lin s'immobilisa alors qu'une marque blanche apparaissait sur son doigt, sans toutefois percer sa peau.
 
@@ -118,7 +118,7 @@ La main droite de Wang Lin s'immobilisa alors qu'une marque blanche apparaissait
 
 « Veux-tu toujours te battre? » Le regard calme de Wang Lin se posa sur Song Tian.
 
-« Pourquoi pas?! » Song Tian éclata d'un rire et s'élança dans les airs. Il leva la main droite vers la Montagne de l'Origine en contrebas.
+« Pourquoi pas?! » Song Tian éclata d'un rire et s'élança dans les airs. Il leva la main droite vers la Montagne Yuan Shi en contrebas.
 
 La montagne entière trembla, semblant s'élever vers le ciel, comme si Song Tian la soulevait de ses propres mains!
 

@@ -38,7 +38,7 @@ Cependant, les bouleversements choquants que Wang Lin avait subis et ce sortilè
 
 C'était un sentiment mystérieux, mais Ta Jia le ressentait avec une clarté absolue.
 
-« Ce Wang Lin a maintes fois contrecarré mes plans et est devenu une variable au sein de la Grotte de l'Empereur Céleste. Une fois qu'il sera mort, cette variable disparaîtra et tous les plans de Qing Lin seront vains! » La voix de Tian Yunzi résonna lentement, renforçant encore la détermination de Ta Jia.
+« Ce Wang Lin a maintes fois contrecarré mes plans et est devenu une variable au sein de la Grotte Xian Di. Une fois qu'il sera mort, cette variable disparaîtra et tous les plans de Qing Lin seront vains! » La voix de Tian Yunzi résonna lentement, renforçant encore la détermination de Ta Jia.
 
 Ta Jia poussa un rugissement, un sourire sanguinaire aux lèvres, et s'élança. L'entité humanoïde bougea à ses côtés. Les mains de Tian Yunzi formèrent un sceau, tandis que ses six avatars restants chargèrent contre l'assemblée.
 

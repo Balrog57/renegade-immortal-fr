@@ -20,7 +20,7 @@ Le Magicien Démon Céleste ferma les yeux, mais les rouvrit aussitôt: « Ce qu
 
 Le Seigneur Démon des Six Désirs était secrètement terrifié. Entre l'apparition du Bossu Meng et la résurrection de son maître défunt, il sentait que cet endroit était d'une étrangeté absolue. Une sensation d'horreur l'envahissait, car il savait qu'un immense secret se cachait ici.
 
-Il commençait même à douter: la Terre de l'Ancien Dieu n'était peut-être pas ce qu'il avait imaginé, un lieu où, dès qu'on entrait dans le corps du Dieu Ancien, des artefacts magiques, des pilules et autres trésors sans fin attendaient qu'on vienne les prendre. Ce doute avait germé il y a mille ans, lorsque son maître avait reçu l'héritage de la Terre de l'Ancien Dieu et était devenu une personne totalement différente.
+Il commençait même à douter: la Terre Gu Shen n'était peut-être pas ce qu'il avait imaginé, un lieu où, dès qu'on entrait dans le corps du Dieu Ancien, des artefacts magiques, des pilules et autres trésors sans fin attendaient qu'on vienne les prendre. Ce doute avait germé il y a mille ans, lorsque son maître avait reçu l'héritage de la Terre Gu Shen et était devenu une personne totalement différente.
 
 Ce point l'avait intrigué durant toutes ces années, mais désormais, comme un éclair de lucidité, une spéculation audacieuse traversa son esprit.
 
@@ -119,7 +119,7 @@ Cette grande âme errante osait attaquer Wang Lin, qui était lui-même un dévo
 
 Wang Lin, bien que dubitatif, commença à dévorer l'âme qui pénétrait son corps. L'âme errante retira immédiatement son Sens Divin, mais une partie d'elle avait déjà été absorbée par Wang Lin. Il se lécha les lèvres. Il sentait clairement que son Sens Divin du Royaume Ji augmentait rapidement, tout en éprouvant un léger regret: s'il avait pu dévorer l'âme entière, sa progression aurait été bien plus prodigieuse.
 
-Après la fuite de la grande âme, celle-ci utilisa une méthode complexe pour ouvrir une faille et quitter le troisième essai. À ce moment-là, dans la Mer de Sang du Dieu Démon, une fissure apparut dans le ciel par laquelle l'âme surgit. Elle se dirigea rapidement vers le pilier le plus haut qui touchait les cieux. En s'approchant, son esprit prit la forme d'un homme aux cheveux longs. Il s'agenouilla dans les airs, l'air affaibli mais le visage rayonnant d'excitation.
+Après la fuite de la grande âme, celle-ci utilisa une méthode complexe pour ouvrir une faille et quitter le troisième essai. À ce moment-là, dans la Mer de Sang Yao Shen, une fissure apparut dans le ciel par laquelle l'âme surgit. Elle se dirigea rapidement vers le pilier le plus haut qui touchait les cieux. En s'approchant, son esprit prit la forme d'un homme aux cheveux longs. Il s'agenouilla dans les airs, l'air affaibli mais le visage rayonnant d'excitation.
 
 « Mon seigneur, dans le troisième essai, j'ai vu un... un dévoreur d'âmes! »
 
@@ -133,17 +133,17 @@ L'homme aux cheveux longs formé par l'âme répondit: « Maître, je suis certa
 
 Aussitôt, tous les cultivateurs de la Mer de Sang sautèrent de leurs piliers ou du sol pour disparaître dans la faille. La grande âme les suivit également. La mer de sang se retrouva soudainement vide. Seul l'homme aux cheveux rouges resta. De sa main droite, il traça doucement une série de mots sur le sol:
 
-« Je suis scellé dans la Mer de Sang du Dieu Démon depuis des dizaines de milliers d'années. Aujourd'hui, j'ai entendu parler de la réapparition d'un dévoreur d'âmes. Mon cœur en est quelque peu remué... »
+« Je suis scellé dans la Mer de Sang Yao Shen depuis des dizaines de milliers d'années. Aujourd'hui, j'ai entendu parler de la réapparition d'un dévoreur d'âmes. Mon cœur en est quelque peu remué... »
 
 À côté de ces lignes, plusieurs autres paragraphes manuscrits apparurent:
 
 « En entrant dans le troisième essai, j'ai immédiatement réalisé que cet endroit était une faille reliée au Nirvana. Après avoir cherché, j'ai trouvé l'entrée du Nirvana, mais je n'y suis pas entré.
 
-« La Terre de l'Ancien Dieu a été exagérée par les rumeurs. Hormis le troisième essai qui est un peu intéressant, les autres épreuves ne valent pas la peine d'être mentionnées. Je voulais initialement partir, mais puisque je suis ici, autant explorer, sinon j'aurais simplement perdu mon temps.
+« La Terre Gu Shen a été exagérée par les rumeurs. Hormis le troisième essai qui est un peu intéressant, les autres épreuves ne valent pas la peine d'être mentionnées. Je voulais initialement partir, mais puisque je suis ici, autant explorer, sinon j'aurais simplement perdu mon temps.
 
 « Le quatrième essai n'est qu'un réseau de transfert. Ce réseau transfère l'individu en fonction de la vitesse à laquelle il a franchi les trois premiers essais. C'est extrêmement complexe. Après l'avoir étudié longuement, je peux désormais l'utiliser pour pénétrer dans n'importe quelle partie du corps de l'Ancien Dieu.
 
-« Comment peut-on appeler cela la Terre de l'Ancien Dieu? C'est clairement une Terre des Dieux Démons.
+« Comment peut-on appeler cela la Terre Gu Shen? C'est clairement une Terre des Dieux Démons.
 
 « L'Ancien Dieu Tu Si... cet homme est véritablement un cultivateur d'une immense sagesse. Je l'admire profondément pour avoir conçu une telle méthode.
 

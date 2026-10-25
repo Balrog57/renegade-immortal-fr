@@ -8,7 +8,7 @@ slug: un-individu-illustre
 ---
 La lance de brouillard, entourée par l'âme du démon ancien, était d'une rapidité telle qu'elle fut instantanément sur Maître Simo, faisant se contracter ses pupilles. Il s'attendait déjà à ce que Wang Lin soit fort, mais il n'aurait jamais imaginé une telle puissance!
 
-« Cet enfant n'a pas encore atteint le troisième niveau, et pourtant il peut déjà lutter contre moi. S'il brise la Porte du Vide, je ne ferai plus du tout le poids. Il connaît également mon passé, il est donc évidemment issu du Royaume Intérieur! »
+« Cet enfant n'a pas encore atteint le troisième niveau, et pourtant il peut déjà lutter contre moi. S'il brise la Porte Kong, je ne ferai plus du tout le poids. Il connaît également mon passé, il est donc évidemment issu du Royaume Intérieur! »
 
 « Cet homme doit mourir... Malheureusement, je ne peux pas l'éliminer tant que nous sommes sur la Planète du Grand Empereur! »
 

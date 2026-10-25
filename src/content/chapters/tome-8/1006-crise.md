@@ -12,7 +12,7 @@ Désormais, il ne restait plus qu'un seul soldat!
 
 Juste au moment où le soldat allait charger dans la brume blanche, les yeux de Maître Fu Fengzi s'illuminèrent. Sa main tendue fit trembler le soldat, puis le tira en arrière. Maître Fu Fengzi affrontait désormais quatre soldats célestes.
 
-Bien que ces dix soldats célestes possédaient des corps puissants, ce n'était pas une tâche insurmontable pour Maître Fu Fengzi et ses compagnons. Wang Lin se sentit chanceux en voyant cela. S'il ne s'était pas enfui de la Terre des Esprits Démoniaques à l'époque, mais s'était obstiné à briser les restrictions de cette grotte céleste, même en arrivant jusqu'ici, il n'aurait eu aucun moyen de faire face aux esprits de fleur ou aux soldats célestes.
+Bien que ces dix soldats célestes possédaient des corps puissants, ce n'était pas une tâche insurmontable pour Maître Fu Fengzi et ses compagnons. Wang Lin se sentit chanceux en voyant cela. S'il ne s'était pas enfui de la Terre Yao Ling à l'époque, mais s'était obstiné à briser les restrictions de cette grotte céleste, même en arrivant jusqu'ici, il n'aurait eu aucun moyen de faire face aux esprits de fleur ou aux soldats célestes.
 
 L'expression de Wang Lin demeurait calme alors qu'il marchait vers le palais central. Cependant, avant même qu'il ne puisse s'en approcher, un changement choquant se produisit.
 

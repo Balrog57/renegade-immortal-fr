@@ -36,11 +36,11 @@ Presque tous les cultivateurs du clan céleste furent témoins de cette scène q
 
 « Que se passe-t-il?! » Au sein de la Secte Dao Yi, le Grand Empyréen Dao Yi s'élança dans les airs, l'expression sombre. Une trace de panique marquait même son visage. Avec son niveau de culture, il pouvait clairement ressentir ces événements stupéfiants qui secouaient les 72 continents du clan céleste.
 
-Il fixa l'arbre imposant émergeant du Continent de la Mer des Montagnes. L'arbre s'agita en poussant des rugissements stridents.
+Il fixa l'arbre imposant émergeant du Continent Shan Hai. L'arbre s'agita en poussant des rugissements stridents.
 
 Dao Yi contempla l'arbre géant et eut le souffle coupé. « Bon sang, cet arbre monstrueux n'était-il pas mort?! Pourquoi son âme est-elle encore là?! Que s'est-il passé? Se pourrait-il qu'il y ait un problème avec Lian Daofei, qui les supprime sous le palais?! »
 
-Simultanément, dans le Continent du Nord, Wu Feng observait le géant de glace avec une expression lugubre et une pointe d'horreur.
+Simultanément, dans le Continent Bei, Wu Feng observait le géant de glace avec une expression lugubre et une pointe d'horreur.
 
 Dans la Secte Yang Violet, les Grands Empyréens Shuangzi s'élancèrent, observèrent la terre et froncèrent les sourcils.
 

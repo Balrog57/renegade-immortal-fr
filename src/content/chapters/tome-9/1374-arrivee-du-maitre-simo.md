@@ -12,7 +12,7 @@ Dans le Système Stellaire de l'Alliance, au plus profond de l'espace ardent de 
 
 Le Cristal de Mutation de Feu Déchaîné des Terres Déchues était exactement le même que cette pierre blanche!
 
-« Se pourrait-il que le Grand Empereur soit lié à la Secte de l'Oiseau Vermillon... » Wang Lin n'éprouvait pas beaucoup d'affection pour la Secte de l'Oiseau Vermillon. Cependant, il devait énormément à l'ancien Empereur Divin de l'Oiseau Vermillon, et c'était une dette de gratitude que Wang Lin ne pouvait tout simplement pas oublier.
+« Se pourrait-il que le Grand Empereur soit lié à la Secte Zhu Que... » Wang Lin n'éprouvait pas beaucoup d'affection pour la Secte Zhu Que. Cependant, il devait énormément à l'ancien Empereur Divin de l'Oiseau Vermillon, et c'était une dette de gratitude que Wang Lin ne pouvait tout simplement pas oublier.
 
 L'esprit du vieil Empereur Divin et ses dizaines de milliers d'années de dévouement silencieux remplissaient le cœur de Wang Lin de respect. Aux yeux de ce dernier, le vieil Empereur Divin était du même genre que le Seigneur du Domaine Scellé. La seule différence était que l'un gardait les Quatre Sectes Divines, tandis que l'autre gardait tout le Royaume Intérieur.
 
@@ -20,7 +20,7 @@ Ce qui excitait tant Wang Lin était ce que le vieil Empereur Divin lui avait co
 
 « Je m'appelle Lu Yun, et je suis né dans le monde antique des raffineurs de Qi. Je suis devenu l'apprenti alchimiste de la quatrième génération de l'Empereur Divin de l'Oiseau Vermillon. Je suis reconnaissant envers le quatrième Empereur de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 372 ans, j'ai accompli certains exploits en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de ma Secte Divine de l'Oiseau Vermillon...
 
-À l'âge de 11 463 ans, le Clan du Tatouage est venu du monde extérieur et a semé le chaos dans le ciel et la terre. Ma Secte Divine de l'Oiseau Vermillon a aidé le Royaume Céleste à combattre le Clan du Tatouage! Par la suite, le quatrième Empereur Divin est parti avec les trois autres Empereurs Divins pour rejoindre le monde extérieur. Avant leur départ, j'ai été désigné comme le cinquième Empereur Divin de l'Oiseau Vermillon! »
+À l'âge de 11 463 ans, le Clan Fu Wen est venu du monde extérieur et a semé le chaos dans le ciel et la terre. Ma Secte Divine de l'Oiseau Vermillon a aidé le Royaume Céleste à combattre le Clan Fu Wen! Par la suite, le quatrième Empereur Divin est parti avec les trois autres Empereurs Divins pour rejoindre le monde extérieur. Avant leur départ, j'ai été désigné comme le cinquième Empereur Divin de l'Oiseau Vermillon! »
 
 Le regard de Wang Lin restait fixé sur le petit Cristal de Mutation de Feu Déchaîné, et ses yeux s'illuminèrent.
 
@@ -70,7 +70,7 @@ L'automate arborait une expression figée; ses yeux étaient vides, sans aucun s
 
 « Le secret de cette marionnette doit être caché derrière cette couche de protection. Seul en regardant à l'intérieur pourrai-je découvrir sa vérité! » Le Sens Divin de Wang Lin s'agita et le tatouage de tonnerre dans son œil droit étincela avant de jaillir.
 
-Toute la grotte fut enveloppée d'éclairs, et tandis qu'un grondement assourdissant résonnait, la foudre se propagea. Le tonnerre s'étendit depuis l'intérieur de la caverne, faisant pâlir les membres du Clan du Scorpion Noir qui fixèrent tous l'entrée avec effroi.
+Toute la grotte fut enveloppée d'éclairs, et tandis qu'un grondement assourdissant résonnait, la foudre se propagea. Le tonnerre s'étendit depuis l'intérieur de la caverne, faisant pâlir les membres du Clan An Xie qui fixèrent tous l'entrée avec effroi.
 
 L'activation du tatouage de tonnerre avait considérablement augmenté le niveau de culture de Wang Lin. Même son Sens Divin était devenu un véritable orage, chargé contre la couche de protection à l'intérieur de la marionnette.
 
@@ -84,7 +84,7 @@ La marionnette ainsi suspendue finit par se briser. L'automate explosa et l'onde
 
 La montagne trembla, laissant tomber des masses de terre. Si Wang Lin n'avait pas placé de restrictions, la montagne serait devenue une ruine totalement aplatie et la planète elle-même aurait violemment tremblé.
 
-Les cultivateurs du Clan du Scorpion Noir environnants regardaient la grotte avec crainte. Le vieil homme esquissa un sourire amer; il avait ressenti une aura familière dans l'onde de choc, ce qui lui fit comprendre que la marionnette avait probablement été détruite.
+Les cultivateurs du Clan An Xie environnants regardaient la grotte avec crainte. Le vieil homme esquissa un sourire amer; il avait ressenti une aura familière dans l'onde de choc, ce qui lui fit comprendre que la marionnette avait probablement été détruite.
 
 La grotte était remplie de nuages de poussière qui se dissipèrent progressivement. Wang Lin se tenait là, le regard brillant. Bien que le sort « Arrête » n'ait suspendu l'effondrement qu'un instant, il lui avait permis d'en apercevoir les indices!
 
@@ -92,7 +92,7 @@ Il vit une âme originelle flotter à l'intérieur! L'âme originelle ressemblai
 
 Au moment où la marionnette se brisa, les particules remplaçant la chair et le sang volèrent en éclats. Ce fut comme si la foudre frappait Wang Lin: il comprit enfin pourquoi elles lui semblaient familières!
 
-Dans la Terre des Esprits Démoniaques du Système Stellaire de l'Alliance, il avait vu la tête tranchée d'un dieu ancien. Il y avait alors des particules cristallines sur la blessure qui ressemblaient étrangement à celles-ci!
+Dans la Terre Yao Ling du Système Stellaire de l'Alliance, il avait vu la tête tranchée d'un dieu ancien. Il y avait alors des particules cristallines sur la blessure qui ressemblaient étrangement à celles-ci!
 
 Il possédait toujours une petite fiole contenant les particules collectées sur la plaie de ce dieu ancien!
 
@@ -100,12 +100,12 @@ Wang Lin saisissait vaguement quelques indices, mais tout était trop confus pou
 
 « Grand Empereur des Terres Déchues... qui est donc cet individu? » Wang Lin songea silencieusement alors que la porte de la grotte s'ouvrait et qu'il en sortait.
 
-« Ancien du Clan du Scorpion Noir, guidez-moi vers la planète de culture la plus proche abritant un Ancien Déchu! » Le vieil homme du Clan du Scorpion Noir hocha rapidement la tête après avoir entendu les ordres de Wang Lin et lui montra le chemin.
+« Ancien du Clan An Xie, guidez-moi vers la planète de culture la plus proche abritant un Ancien Déchu! » Le vieil homme du Clan An Xie hocha rapidement la tête après avoir entendu les ordres de Wang Lin et lui montra le chemin.
 
 À cet instant, des ondulations apparurent dans l'espace à l'extérieur des Terres Déchues et un homme d'âge moyen en sortit. C'était celui qui poursuivait Wang Lin: Maître Simo. Ses yeux étaient sombres et une lueur étrange y brillait tandis qu'il scrutait le domaine stellaire non contrôlé par le Conseil Souverain.
 
-« Le Grand Maître Yun Luo a prédit qu'il se cachait dans les Terres Déchues... Cet endroit est extrêmement chaotique, je dois donc être prudent... Heureusement que je suis venu ici auparavant et que j'ai d'anciens liens avec le neuvième Ancien Déchu, le chef du Clan du Dragon Blindé. En empruntant l'identité du Clan du Dragon Blindé, je ne devrais rencontrer aucun problème! »
+« Le Grand Maître Yun Luo a prédit qu'il se cachait dans les Terres Déchues... Cet endroit est extrêmement chaotique, je dois donc être prudent... Heureusement que je suis venu ici auparavant et que j'ai d'anciens liens avec le neuvième Ancien Déchu, le chef du Clan Long Jia. En empruntant l'identité du Clan Long Jia, je ne devrais rencontrer aucun problème! »
 
 Tout en réfléchissant, Maître Simo s'élança vers les Terres Déchues.
 
-« Je dois le trouver au plus vite, mort ou vif, et fouiller son âme pour découvrir le secret permettant de déclencher la Porte du Vide sans les Flammes Joss! »
+« Je dois le trouver au plus vite, mort ou vif, et fouiller son âme pour découvrir le secret permettant de déclencher la Porte Kong sans les Flammes Joss! »

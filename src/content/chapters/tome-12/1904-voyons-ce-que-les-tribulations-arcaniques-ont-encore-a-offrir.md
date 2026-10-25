@@ -16,7 +16,7 @@ Le vent se dispersa. Wang Lin resta là, assis, continuant de boire son vin. Der
 
 Le ciel était sombre, tel un visage maussade. Bientôt, un nuage de tribulation remplit l'horizon. Des grondements tonitruants emplirent les nuages tandis que des éclairs déchiraient la voûte céleste, illuminant la terre en contrebas.
 
-À des milliers de kilomètres de là, les cultivateurs du Continent du Démon Vert qui avaient assisté à l'achèvement des tribulations de la neige et du vent restaient totalement silencieux.
+À des milliers de kilomètres de là, les cultivateurs du Continent Lu Mo qui avaient assisté à l'achèvement des tribulations de la neige et du vent restaient totalement silencieux.
 
 Le tonnerre devint plus intense encore et de nouveaux nuages de tribulation apparurent, recouvrant le ciel. Ils pesaient de tout leur poids tandis que des éclairs s'agitaient en leur sein; les nuages dégageaient un sentiment de folie et de violence.
 
@@ -40,7 +40,7 @@ Un fracas assourdissant secoua le monde et les nuages de tribulation s'effondrè
 
 La troisième Tribulation Arcanique venait de succomber!
 
-À des milliers de kilomètres de là, la douzaine de cultivateurs du Continent du Démon Vert ne pouvaient voir Wang Lin, mais ils sentirent avec stupeur la facilité avec laquelle les trois Tribulations Arcaniques avaient été surmontées. C'était d'une simplicité incroyable!
+À des milliers de kilomètres de là, la douzaine de cultivateurs du Continent Lu Mo ne pouvaient voir Wang Lin, mais ils sentirent avec stupeur la facilité avec laquelle les trois Tribulations Arcaniques avaient été surmontées. C'était d'une simplicité incroyable!
 
 La puissance de ces trois Tribulations Arcaniques était certes ordinaire et tout cultivateur courageux pouvait les affronter. Cependant, cela demandait du temps et une consommation massive d'énergie pour réussir à franchir les trois successivement afin d'obtenir la récompense consistant au doublement de la taille de son âme originelle.
 
@@ -50,7 +50,7 @@ Pourtant, il était extrêmement rare que quelqu'un réussisse avec une telle ai
 
 « Avec le niveau de culture du Seigneur Démon Vert, il a déjà affronté des Tribulations Arcaniques. C'est pourquoi il peut rester si serein face à elles aujourd'hui! »
 
-Les cultivateurs du Continent du Démon Vert manifestèrent leur respect. Ils scrutèrent la zone soumise à la pression de la tribulation, attendant que le Seigneur Démon Vert en sorte.
+Les cultivateurs du Continent Lu Mo manifestèrent leur respect. Ils scrutèrent la zone soumise à la pression de la tribulation, attendant que le Seigneur Démon Vert en sorte.
 
 Wang Lin était toujours assis sur la queue du scorpion, les yeux fixés sur le ciel. Les trois précédentes Tribulations Arcaniques l'avaient déçu. Il attendait maintenant l'arrivée de la quatrième, espérant qu'elle soit à la hauteur.
 

@@ -122,4 +122,4 @@ Le corps de Qing Shui trembla et il cracha une grande quantité de sang noir. So
 
 À cet instant, l'essence de massacre en son sein explosa et le ciel s'obscurcit totalement. Alors que la neige noire tombait, une porte fantomatique apparut!
 
-La Porte du Vide!
+La Porte Kong!

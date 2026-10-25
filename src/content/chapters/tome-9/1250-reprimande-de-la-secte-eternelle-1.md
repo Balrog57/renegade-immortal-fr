@@ -10,7 +10,7 @@ Les paroles de Mu Bingmei étaient douces, comme si elle se remémorait le pass�
 
 La femme nommée Wang Shanshan cligna des yeux et sourit. « Petite sœur veut vraiment rencontrer quelqu'un que Grande Sœur Mu admire à ce point. »
 
-Mu Bingmei secoua la tête et dit doucement: « J'ai bien peur qu'il n'en soit rien. Après son départ, j'ignore où il est allé. Depuis notre séparation, il s'est éloigné jusqu'aux confins du ciel. Les chances qu'il vienne dans la Mer des Nuages sont minimes. »
+Mu Bingmei secoua la tête et dit doucement: « J'ai bien peur qu'il n'en soit rien. Après son départ, j'ignore où il est allé. Depuis notre séparation, il s'est éloigné jusqu'aux confins du ciel. Les chances qu'il vienne dans la Mer Yun sont minimes. »
 
 L'homme d'âge moyen de la Secte Éternelle était manifestement un haut dignitaire, sans quoi il ne siégerait pas aux côtés du Maître de la Secte. Après l'avoir entendue, il déclara calmement: « En écoutant la cultivatrice Mu, ma curiosité est également piquée. Cet homme est-il vraiment aussi talentueux qu'elle le prétend? Je me demande quel est son nom. J'espère que la cultivatrice Mu pourra me le révéler afin que, si l'occasion se présente un jour, je ne la laisse pas passer. »
 
@@ -22,13 +22,13 @@ Le Maître de la Secte Éternelle, le vieil homme vêtu de blanc, paraissait ser
 
 Wang Shanshan, faisant preuve de finesse, sourit pour détourner l'attention. « Maître de la Secte, j'ai entendu dire que Grande Sœur Li est également présente. Je me demande où elle se trouve. »
 
-Puis, Wang Shanshan expliqua à Mu Bingmei: « Grande Sœur Li est l'un des génies de notre Mer des Nuages. En seulement mille ans de culture, elle a déjà atteint le sommet du stade du Briseur du Nirvana. »
+Puis, Wang Shanshan expliqua à Mu Bingmei: « Grande Sœur Li est l'un des génies de notre Mer Yun. En seulement mille ans de culture, elle a déjà atteint le sommet du stade du Briseur du Nirvana. »
 
 Même l'expression de Mu Bingmei changea légèrement en entendant cela, et elle hocha la tête.
 
-« La cultivatrice Li entretient un lien avec la secte affiliée de notre Secte Éternelle, la Secte de l'Origine; c'est pourquoi elle n'est pas ici, mais se trouve auprès d'eux », expliqua le vieil homme, tout aussi perplexe.
+« La cultivatrice Li entretient un lien avec la secte affiliée de notre Secte Éternelle, la Secte Gui Yuan; c'est pourquoi elle n'est pas ici, mais se trouve auprès d'eux », expliqua le vieil homme, tout aussi perplexe.
 
-« La Secte de l'Origine? Quel est le rang de cette secte affiliée? » Wang Shanshan était stupéfaite. Elle n'avait jamais entendu parler de cette secte auparavant.
+« La Secte Gui Yuan? Quel est le rang de cette secte affiliée? » Wang Shanshan était stupéfaite. Elle n'avait jamais entendu parler de cette secte auparavant.
 
 « Ancien Feng, vous l'avez vu de vos propres yeux, expliquez donc cela à tout le monde », dit le vieil homme en blanc en regardant Feng Hai.
 
@@ -36,17 +36,17 @@ L'expression de Feng Hai devint étrange alors qu'il se levait pour saluer Wang 
 
 À vrai dire, il n'était pas étonnant qu'ils soient perplexes. Li Qianmei était célèbre, et il était inattendu qu'elle soit proche d'une secte de rang 5. Et ce n'étaient pas de simples connaissances, puisqu'elle était prête à tuer un cultivateur d'une secte de rang 7 pour eux.
 
-Après avoir lâché une toux sèche, Feng Hai esquissa un sourire amer. « Maître de la Secte, ce vieil homme ignore lui aussi les détails précis. Dès l'instant où la cultivatrice Li est arrivée, elle a directement demandé à trouver la Secte de l'Origine de rang 5. À ce moment-là, Lu Yingjie de la Secte de la Musique Céleste et Zhao Long, de la Secte Recherchant la Montagne, avaient des différends privés avec la Secte de l'Origine. La cultivatrice Li a alors attaqué, détruisant le corps du cultivateur Zhao et manquant de tuer Lu Yingjie. »
+Après avoir lâché une toux sèche, Feng Hai esquissa un sourire amer. « Maître de la Secte, ce vieil homme ignore lui aussi les détails précis. Dès l'instant où la cultivatrice Li est arrivée, elle a directement demandé à trouver la Secte Gui Yuan de rang 5. À ce moment-là, Lu Yingjie de la Secte Xian Yin et Zhao Long, de la Secte Recherchant la Montagne, avaient des différends privés avec la Secte Gui Yuan. La cultivatrice Li a alors attaqué, détruisant le corps du cultivateur Zhao et manquant de tuer Lu Yingjie. »
 
-« Tout cela semble lié à une personne nommée "Lu" au sein de la Secte de l'Origine! »
+« Tout cela semble lié à une personne nommée "Lu" au sein de la Secte Gui Yuan! »
 
 Une fois ses paroles terminées, la curiosité s'empara de tous les membres de la Secte Éternelle. Wang Shanshan sourit: « Grande Sœur Li est une personne calme qui se met rarement en colère. Si elle a attaqué, c'est qu'il devait y avoir une raison. Ancien Feng, qui est cet homme nommé Lu? »
 
-Feng Hai hocha la tête et répondit: « Cet individu nommé Lu est effectivement mystérieux. Ce vieil homme a mené une enquête secrète et a découvert que cette personne appartient à la génération des aînés de la Secte de l'Origine et qu'il est un parent de Lu Yanfei. En vérifiant les registres, j'ai effectivement trouvé quelqu'un nommé Lu Zihao au sein de la Secte de l'Origine! »
+Feng Hai hocha la tête et répondit: « Cet individu nommé Lu est effectivement mystérieux. Ce vieil homme a mené une enquête secrète et a découvert que cette personne appartient à la génération des aînés de la Secte Gui Yuan et qu'il est un parent de Lu Yanfei. En vérifiant les registres, j'ai effectivement trouvé quelqu'un nommé Lu Zihao au sein de la Secte Gui Yuan! »
 
 « Il était obsédé par l'alchimie et est parti il y a de nombreuses années en quête d'herbes médicinales. On n'a plus eu de nouvelles de lui depuis lors. J'ignore comment il a rencontré la cultivatrice Li, mais elle semble l'admirer grandement... »
 
-« Lu Yuncong semble également très proche de cet homme. Il s'est avancé pour défendre la Secte de l'Origine, prêt à offenser la Secte de la Musique Céleste et la Secte Recherchant la Montagne. À l'écouter, la compréhension du Dao de ce Lu Zihao serait bien supérieure à la sienne, et Lu Yuncong l'admire profondément. Il semblerait même qu'il ait déjà éclairé Lu Yuncong par le passé. »
+« Lu Yuncong semble également très proche de cet homme. Il s'est avancé pour défendre la Secte Gui Yuan, prêt à offenser la Secte Xian Yin et la Secte Recherchant la Montagne. À l'écouter, la compréhension du Dao de ce Lu Zihao serait bien supérieure à la sienne, et Lu Yuncong l'admire profondément. Il semblerait même qu'il ait déjà éclairé Lu Yuncong par le passé. »
 
 « Lu Yuncong a affirmé que si Lu Zihao participait à la compétition, oubliez la première place parmi les sectes de rang 5; il pourrait être le numéro un parmi les sectes de rang 6 à lui seul. Il a également déclaré que Lu Zihao pourrait tuer Lu Yingjie aussi facilement qu'on écrase une fourmi! »
 
@@ -60,41 +60,41 @@ Cette scène imposa immédiatement le sérieux à tous les spectateurs, qui comm
 
 Le Maître de la secte qui s'opposait à Lu Yuncong sourit amèrement et joignit les mains. « Ce vieil homme reconnaît sa défaite. Tu es véritablement digne d'être l'élite de notre Secte Éternelle. Je me soumets de bon cœur. » Sur ce, il salua la tribune et quitta rapidement les lieux.
 
-La compétition de rang 5 touchait à sa fin et, en raison de la présence de Li Qianmei, la Secte de l'Origine n'était pas encore montée sur scène. Désormais, elle était la seule à attendre son tour.
+La compétition de rang 5 touchait à sa fin et, en raison de la présence de Li Qianmei, la Secte Gui Yuan n'était pas encore montée sur scène. Désormais, elle était la seule à attendre son tour.
 
-L'Ancien chargé de la compétition de rang 5 apparut dans les airs. Il regarda l'emplacement de la Secte de l'Origine et déclara calmement: « Secte de l'Origine, entrez en scène! »
+L'Ancien chargé de la compétition de rang 5 apparut dans les airs. Il regarda l'emplacement de la Secte Gui Yuan et déclara calmement: « Secte Gui Yuan, entrez en scène! »
 
-La Secte de l'Origine se trouvait toujours dans le coin nord, et une aura oppressante imprégnait leur zone. Li Qianmei y était aussi assise, contemplant le ciel avec confusion et nostalgie, comme si elle était perdue dans ses pensées.
+La Secte Gui Yuan se trouvait toujours dans le coin nord, et une aura oppressante imprégnait leur zone. Li Qianmei y était aussi assise, contemplant le ciel avec confusion et nostalgie, comme si elle était perdue dans ses pensées.
 
-Le visage de Lu Yanfei était pâle tandis qu'elle se mordait la lèvre inférieure; après un long moment, elle se leva. Étant la personne ayant le plus haut niveau de culture au sein de la Secte de l'Origine, c'était à elle d'entrer dans cette compétition.
+Le visage de Lu Yanfei était pâle tandis qu'elle se mordait la lèvre inférieure; après un long moment, elle se leva. Étant la personne ayant le plus haut niveau de culture au sein de la Secte Gui Yuan, c'était à elle d'entrer dans cette compétition.
 
 Une fois debout, elle regarda les membres de sa secte, comprenant ses trois Senior Frère et sa disciple. Après un soupir, elle glissa comme un papillon vers la plateforme.
 
-« Maître... » Les yeux de Xu Yun étaient embués de larmes en voyant Lu Yanfei s'éloigner. Elle ignorait quel serait le destin de la Secte de l'Origine après cela. Peut-être seraient-ils réellement dissous...
+« Maître... » Les yeux de Xu Yun étaient embués de larmes en voyant Lu Yanfei s'éloigner. Elle ignorait quel serait le destin de la Secte Gui Yuan après cela. Peut-être seraient-ils réellement dissous...
 
-À cet instant, la foule autour de l'arène se tut et fixa la scène. Tous avaient entendu ce qui s'était passé et attendaient de voir si cette personne mystérieuse de la Secte de l'Origine ferait son apparition.
+À cet instant, la foule autour de l'arène se tut et fixa la scène. Tous avaient entendu ce qui s'était passé et attendaient de voir si cette personne mystérieuse de la Secte Gui Yuan ferait son apparition.
 
 Des dizaines de milliers de regards convergeaient, rendant le visage de Lu Yanfei encore plus livide. Cependant, ses yeux devinrent plus déterminés encore alors qu'elle accélérait sa course pour finalement arriver devant Lu Yuncong.
 
 Lu Yuncong regarda Lu Yanfei avec un regard complexe.
 
-« La Secte de l'Origine n'a besoin de personne d'autre pour combattre. Moi seul suffit. » Lu Yanfei se tint sur l'arène sous les innombrables regards fixés sur elle. Sa silhouette paraissait frêle, mais à cet instant, une puissance mystérieuse la soutenait, lui permettant de rester calme.
+« La Secte Gui Yuan n'a besoin de personne d'autre pour combattre. Moi seul suffit. » Lu Yanfei se tint sur l'arène sous les innombrables regards fixés sur elle. Sa silhouette paraissait frêle, mais à cet instant, une puissance mystérieuse la soutenait, lui permettant de rester calme.
 
 « Il m'a promis qu'il viendrait... Je suis sûre qu'il viendra! » Lu Yanfei se mordit la lèvre et leva les yeux vers le ciel. Elle crut apercevoir au loin une silhouette lui adressant un sourire encourageant.
 
-L'environnement était plongé dans un silence absolu. Cette compétition de la Secte de l'Origine n'aurait normalement attiré aucun intérêt, mais grâce à cette personne mystérieuse, elle captivait désormais chaque cultivateur. Même les sectes de rang 6 et 7 avaient les yeux rivés sur ce combat.
+L'environnement était plongé dans un silence absolu. Cette compétition de la Secte Gui Yuan n'aurait normalement attiré aucun intérêt, mais grâce à cette personne mystérieuse, elle captivait désormais chaque cultivateur. Même les sectes de rang 6 et 7 avaient les yeux rivés sur ce combat.
 
 « Cher compagnon cultivateur, je sollicite votre enseignement. » Sur l'arène, Lu Yanfei affichait un regard ferme en s'inclinant légèrement vers Lu Yuncong.
 
 Lu Yuncong réfléchit un instant avant de se tourner vers le Maître et les Anciens de la Secte Éternelle. Il joignit les mains et sa voix, bien que claire, fit vibrer l'air, trahissant son niveau de culture de Purificateur du Nirvana.
 
-« Seniors de la secte principale, ce disciple ne souhaite pas affronter la Secte de l'Origine. Cette situation est injuste! »
+« Seniors de la secte principale, ce disciple ne souhaite pas affronter la Secte Gui Yuan. Cette situation est injuste! »
 
 Sur la plateforme où siégeait Mu Bingmei, le vieil homme en blanc fronça les sourcils. Feng Hai, qui dirigeait la compétition, eut une expression sévère et tonna: « Qu'est-ce qui est injuste?! Lu Yuncong, que veux-tu dire par là? »
 
 Sa voix était puissante et écrasa complètement les paroles de Lu Yuncong. Elle fut assourdissante.
 
-Le visage de Lu Yuncong pâlit légèrement. Avec son niveau de culture, il n'était qu'une insignifiance face à des vieux monstres comme Feng Hai. Cependant, il prit une grande inspiration et joignit les mains. « Le disciple connaît quelqu'un de la Secte de l'Origine. Cette personne possède un haut niveau de culture et une compréhension profonde du Dao. S'il venait, le disciple serait inférieur! Si je combats la Secte de l'Origine avant son arrivée, ce sera injuste pour eux! Je, Lu Yuncong, suis venu pour l'affronter lui. Je veux éprouver la portée de mon propre Dao. Si je gagne, je veux une victoire véritable, ou perdre sans aucun regret! »
+Le visage de Lu Yuncong pâlit légèrement. Avec son niveau de culture, il n'était qu'une insignifiance face à des vieux monstres comme Feng Hai. Cependant, il prit une grande inspiration et joignit les mains. « Le disciple connaît quelqu'un de la Secte Gui Yuan. Cette personne possède un haut niveau de culture et une compréhension profonde du Dao. S'il venait, le disciple serait inférieur! Si je combats la Secte Gui Yuan avant son arrivée, ce sera injuste pour eux! Je, Lu Yuncong, suis venu pour l'affronter lui. Je veux éprouver la portée de mon propre Dao. Si je gagne, je veux une victoire véritable, ou perdre sans aucun regret! »
 
 À ces mots, les cultivateurs environnants furent en émoi. L'homme mystérieux était déjà devenu le centre d'attention, mais avec les paroles de Lu Yuncong, sa renommée atteignit un nouveau sommet.
 

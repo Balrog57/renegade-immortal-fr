@@ -16,7 +16,7 @@ Par conséquent, qu'il s'agisse des descendants de Wang Lin, de la secte qu'il a
 
 Grâce au statut de nouveau Suzaku de Zhou Wutai, il fut fort aisé d'offrir à la descendance de la famille Wang une chance qui en fit les maîtres suprêmes du monde mortel. Cela permit également au pays de Zhao de croître par paliers jusqu'à devenir un pays de culture de rang 5.
 
-Le peuple savait naturellement que tout cela n'était fait que pour le compte de Wang Lin. Les exploits de Wang Lin dans le Tombeau de Suzaku s'étaient propagés aux quatre coins du monde. Après mûre réflexion, Zhou Wutai avait progressivement convaincu l'ensemble des cultivateurs de reconnaître Wang Lin comme le gardien et l'ancêtre de la planète Suzaku.
+Le peuple savait naturellement que tout cela n'était fait que pour le compte de Wang Lin. Les exploits de Wang Lin dans le Tombeau Zhu Que s'étaient propagés aux quatre coins du monde. Après mûre réflexion, Zhou Wutai avait progressivement convaincu l'ensemble des cultivateurs de reconnaître Wang Lin comme le gardien et l'ancêtre de la planète Suzaku.
 
 Zhou Wutai avait une autre raison d'agir ainsi. Lorsqu'il était devenu Suzaku, il n'avait pas encore atteint le stade d'Ascendant. Il était le Suzaku le plus faible et ne possédait pas la puissance nécessaire pour régner. Ainsi, il ne pouvait que s'appuyer sur la renommée de Wang Lin pour asseoir son autorité et réprimer toute opposition!
 
@@ -28,15 +28,15 @@ Une vaste cité apparut au loin. Cette ville, semblable à un dragon enroulé, e
 
 Avant même de s'en approcher, Wang Lin perçut la présence de nombreuses restrictions puissantes à l'intérieur de la ville. Elles étaient si nombreuses que, si elles étaient toutes activées, elles représenteraient une menace réelle, même pour des cultivateurs Ascendants.
 
-C'était la capitale du seul empire mortel du pays de Suzaku, sur la planète Suzaku, en dehors des terres occupées par le Clan des Immortels Délaissés!
+C'était la capitale du seul empire mortel du pays de Suzaku, sur la planète Suzaku, en dehors des terres occupées par le Clan Xian Yi!
 
 La Grande Dynastie Wang!
 
-Fondée il y a 437 ans, elle était devenue la force mortelle la plus puissante de la planète Suzaku après le Clan des Immortels Délaissés.
+Fondée il y a 437 ans, elle était devenue la force mortelle la plus puissante de la planète Suzaku après le Clan Xian Yi.
 
 La famille royale Wang possédait une lignée séculaire. Plus de 400 ans de consolidation avaient permis à la dynastie d'amasser une armée colossale et d'attirer d'innombrables artistes martiaux. Cependant, ce qui faisait la véritable puissance de la dynastie, c'était l'immense nombre de cultivateurs!
 
-Outre la Secte du Ciel Nuageux, les sectes du pays de Zhao et de nombreuses autres servaient de soutiens. Grâce à cela, les membres du clan Wang jouissaient d'un statut extrêmement élevé.
+Outre la Secte Yun Tian, les sectes du pays de Zhao et de nombreuses autres servaient de soutiens. Grâce à cela, les membres du clan Wang jouissaient d'un statut extrêmement élevé.
 
 Le Sens Divin de Wang Lin enveloppa toute la planète. Ressentant l'appel de son sang, il s'était dirigé vers ce lieu. Cette capitale concentrait la plus forte densité de la lignée des Wang.
 
@@ -112,6 +112,6 @@ Parmi les arrivants, quelques jeunes gens chevauchaient des chevaux et hurlaient
 
 Les deux traînées d'énergie d'épée chargèrent en premier vers Ta Shan. Ils attaquèrent sans réfléchir. Ils n'avaient même pas remarqué ces inconnus, et lorsqu'ils ouvrirent les yeux, le Prince avait disparu.
 
-Terrifiés, ils se retournèrent pour chercher et virent Ta Shan jeter le prince au sol, ce qui les fit haleter de stupeur. Ils étaient des disciples de la Secte du Ciel Nuageux envoyés ici pour protéger les princes. Si quoi que ce soit arrivait au Prince, ils seraient sévèrement punis à leur retour à la secte.
+Terrifiés, ils se retournèrent pour chercher et virent Ta Shan jeter le prince au sol, ce qui les fit haleter de stupeur. Ils étaient des disciples de la Secte Yun Tian envoyés ici pour protéger les princes. Si quoi que ce soit arrivait au Prince, ils seraient sévèrement punis à leur retour à la secte.
 
 Ils chargèrent, leurs épées pointées vers Ta Shan.

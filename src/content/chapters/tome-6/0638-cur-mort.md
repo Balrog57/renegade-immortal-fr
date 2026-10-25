@@ -10,7 +10,7 @@ slug: cur-mort
 
 « L'endroit où j'ai scellé cet esprit d'épée était extrêmement bien caché; comment a-t-il pu être découvert? Cependant, tant que l'esprit d'épée souhaite mourir, le sceau ne sera jamais brisé. » Ling Tianhou réfléchit un instant avant de fermer les yeux.
 
-Dans l'Abîme des Marées où Zhou Yi était scellé, les vêtements de Wang Lin étaient balayés par un vent violent et flottaient violemment. Ses cheveux flottant dans les airs, il fut contraint de reculer de plusieurs pas, puis son regard devint glacial.
+Dans l'Abîme Chao Xi où Zhou Yi était scellé, les vêtements de Wang Lin étaient balayés par un vent violent et flottaient violemment. Ses cheveux flottant dans les airs, il fut contraint de reculer de plusieurs pas, puis son regard devint glacial.
 
 L'attaque précédente avait détruit la troisième conscience divine laissée par Ling Tianhou. Cependant, le prix à payer était lourd: la bête de tonnerre s'était brisée et ses fragments devaient être retournés au Char de Guerre Divin.
 
@@ -48,9 +48,9 @@ Au moment où il traça le septième trait, toute l'énergie spirituelle célest
 
 Les sept traits fusionnèrent pour devenir un symbole circulaire. Ce symbole paraissait d'une puissance extrême, comme s'il contenait l'univers tout entier. On aurait dit que le soleil était descendu du ciel pour tomber dans la faille. Non seulement les rayons de lumière dorée étaient éblouissants, mais ils blessaient également l'âme.
 
-Le symbole céleste créé avec le pinceau céleste et les caractères et talismans célestes était considéré comme un sortilège céleste complet! Sa lumière perça la falaise de l'Abîme des Marées telle une épée.
+Le symbole céleste créé avec le pinceau céleste et les caractères et talismans célestes était considéré comme un sortilège céleste complet! Sa lumière perça la falaise de l'Abîme Chao Xi telle une épée.
 
-À cet instant, si quelqu'un regardait depuis l'extérieur, il pourrait clairement voir la lumière dorée jaillir de la fissure. Cette lueur continua de se propager et illumina bientôt l'entrée du Pays du Démon de l'Eau dans l'Abîme des Marées, restée plongée dans l'obscurité depuis d'innombrables années.
+À cet instant, si quelqu'un regardait depuis l'extérieur, il pourrait clairement voir la lumière dorée jaillir de la fissure. Cette lueur continua de se propager et illumina bientôt l'entrée du Pays Shui Yao dans l'Abîme Chao Xi, restée plongée dans l'obscurité depuis d'innombrables années.
 
 Le symbole à sept traits contenait sept portions de l'âme originelle de Wang Lin, lui permettant de le contrôler comme s'il s'agissait de son propre corps. Il le fit dériver directement vers les profondeurs de la fissure.
 
@@ -58,7 +58,7 @@ La conscience divine de Ling Tianhou commença à disparaître après avoir ét�
 
 Un Ling Tianhou vêtu d'une robe de daoïste, arborant un regard tyrannique, s'approcha pas à pas. Il devint ensuite flou jusqu'à se transformer en un rayon d'énergie d'épée qui chargea directement le symbole.
 
-Lorsque le symbole et l'énergie d'épée entrèrent en collision, des ondes de choc violentes se propagèrent avec fureur. Le grondement intense provoqua l'effondrement d'innombrables fissures. L'onde de choc fut si puissante qu'elle fit trembler de nombreux endroits du Pays des Démons et secoua d'innombrables habitants du Terre des Esprits Démoniaques.
+Lorsque le symbole et l'énergie d'épée entrèrent en collision, des ondes de choc violentes se propagèrent avec fureur. Le grondement intense provoqua l'effondrement d'innombrables fissures. L'onde de choc fut si puissante qu'elle fit trembler de nombreux endroits du Pays Shui Yao et secoua d'innombrables habitants du Terre Yao Ling.
 
 Le visage de Wang Lin était extrêmement pâle et il cracha six bouffées de sang. Ce sang, chargé d'énergie spirituelle céleste, creusa de profondes marques en touchant le sol.
 
@@ -90,17 +90,17 @@ La formation qui scellait et affinait Zhou Yi avait été conçue personnellemen
 
 Ling Tianhou avait autrefois raffiné quatre petits mondes pour en faire quatre épées d'âme originelle. Ces armes étaient des projections de ces quatre épées d'âme originelle. Afin d'accroître leur puissance, Ling Tianhou avait placé quatre consciences divines au-dessus des épées, rendant la formation encore plus redoutable.
 
-Quant au gaz pourpre, c'était une aura démoniaque! Elle provenait de l'âme résiduelle de l'ancien démon du Pays du Démon de l'Eau!
+Quant au gaz pourpre, c'était une aura démoniaque! Elle provenait de l'âme résiduelle de l'ancien démon du Pays Shui Yao!
 
-La raison pour laquelle Ling Tianhou était venu secrètement il y a toutes ces années pour sceller Zhou Yi ici était qu'il avait eu autrefois affaire à l'ancien démon du Pays du Démon de l'Eau; ils entretenaient une relation délicate.
+La raison pour laquelle Ling Tianhou était venu secrètement il y a toutes ces années pour sceller Zhou Yi ici était qu'il avait eu autrefois affaire à l'ancien démon du Pays Shui Yao; ils entretenaient une relation délicate.
 
-L'emplacement de cette fissure se trouvait dans une veine cachée, souterraine, directement reliée au temple de l'ancien démon, dans la capitale du Pays du Démon de l'Eau. Cela permettait à l'ancien démon d'envoyer de l'énergie démoniaque à travers cette veine à tout moment. L'énergie spirituelle démoniaque était alors absorbée par la formation, laquelle la convertissait en un sceau d'affinement céleste pour envahir lentement l'esprit de Zhou Yi.
+L'emplacement de cette fissure se trouvait dans une veine cachée, souterraine, directement reliée au temple de l'ancien démon, dans la capitale du Pays Shui Yao. Cela permettait à l'ancien démon d'envoyer de l'énergie démoniaque à travers cette veine à tout moment. L'énergie spirituelle démoniaque était alors absorbée par la formation, laquelle la convertissait en un sceau d'affinement céleste pour envahir lentement l'esprit de Zhou Yi.
 
-Ling Tianhou et l'ancien démon du Pays du Démon de l'Eau avaient conclu un accord. Ce pacte fut considéré comme rempli une fois que Ling Tianhou eut scellé Zhou Yi ici.
+Ling Tianhou et l'ancien démon du Pays Shui Yao avaient conclu un accord. Ce pacte fut considéré comme rempli une fois que Ling Tianhou eut scellé Zhou Yi ici.
 
-Chacune des âmes résiduelles des anciens démons dans les neuf pays avait ses propres desseins. L'ancien démon du Pays du Démon de l'Eau cherchait un corps spirituel capable de supporter sa propre énergie spirituelle démoniaque afin de sortir complètement. Ce processus était très lent, mais extrêmement stable.
+Chacune des âmes résiduelles des anciens démons dans les neuf pays avait ses propres desseins. L'ancien démon du Pays Shui Yao cherchait un corps spirituel capable de supporter sa propre énergie spirituelle démoniaque afin de sortir complètement. Ce processus était très lent, mais extrêmement stable.
 
-Dès que la lumière dorée entre les sourcils de Zhou Yi serait dévorée, il deviendrait le réceptacle de l'ancien démon du Pays du Démon de l'Eau!
+Dès que la lumière dorée entre les sourcils de Zhou Yi serait dévorée, il deviendrait le réceptacle de l'ancien démon du Pays Shui Yao!
 
 Ling Tianhou n'avait pas tout planifié d'avance, mais il était constamment pourchassé par Zhou Yi depuis qu'il avait quitté le Royaume Céleste. Zhou Yi avait été contraint de devenir l'esprit de l'épée céleste par la femme en robe blanche et avait acquis des sorts puissants. De plus, Ling Tianhou avait déjà subi des blessures infligées par cette même femme lors de leurs combats précédents, ce qui le laissait dans un état extrêmement précaire.
 
@@ -110,7 +110,7 @@ Bien que Ling Tianhou fût puissant, il avait été blessé par l'empreinte cél
 
 Un seul doigt avait suffi à le blesser. En ajoutant à cela les attaques suicidaires de Zhou Yi et l'usage constant de l'énergie de vie de l'Épée Céleste de la Pluie, Ling Tianhou s'était retrouvé dans cette situation humiliante.
 
-Cependant, la puissance de Ling Tianhou n'était pas remise en question. Après tout, son état précaire n'était que temporaire. Il avait alors attiré Zhou Yi vers le Terre des Esprits Démoniaques pour le sceller, accomplissant ainsi son accord avec l'ancien démon du Pays du Démon de l'Eau.
+Cependant, la puissance de Ling Tianhou n'était pas remise en question. Après tout, son état précaire n'était que temporaire. Il avait alors attiré Zhou Yi vers le Terre Yao Ling pour le sceller, accomplissant ainsi son accord avec l'ancien démon du Pays Shui Yao.
 
 De cette façon, il avait fait d'une pierre deux coups. Cependant, Ling Tianhou ne s'attendait pas à ce que, des centaines d'années plus tard, Wang Lin surgisse et change la donne.
 

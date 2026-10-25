@@ -10,15 +10,15 @@ slug: petit-ami-ce-vieil-homme-tattend-depuis-longtemps
 
 Le regard venu de l'anneau de sang disparut instantanément. Wang Lin réfléchit un moment et ses yeux brillèrent d'une lueur vive.
 
-« Que je reste ou non à la Secte de l'Affinement de l'Âme n'a plus d'importance. Pour que mon âme originelle se rétablisse complètement, j'aurai besoin de pilules extraordinaires. En dehors de cela, il me faudra une pression spirituelle extrêmement puissante. Ce n'est pas que je manque de méthodes, mais elles sont un peu dangereuses... »
+« Que je reste ou non à la Secte Lian Hun n'a plus d'importance. Pour que mon âme originelle se rétablisse complètement, j'aurai besoin de pilules extraordinaires. En dehors de cela, il me faudra une pression spirituelle extrêmement puissante. Ce n'est pas que je manque de méthodes, mais elles sont un peu dangereuses... »
 
-Wang Lin regarda les Montagnes de l'Extraction de l'Âme et du Scellement de l'Âme avec une détermination sans faille.
+Wang Lin regarda les Montagnes Chou Po et Suo Shen avec une détermination sans faille.
 
-Il se transforma en un rayon de lumière, quitta la Montagne de l'Affinement de l'Âme et vola vers la Montagne de l'Extraction de l'Âme.
+Il se transforma en un rayon de lumière, quitta la Montagne de l'Affinement de l'Âme et vola vers la Montagne Chou Po de l'Âme.
 
 Sur son chemin, une femme d'une grande élégance l'observait calmement depuis le flanc de la Montagne de l'Affinement de l'Âme. Elle poussa un soupir et murmura: « Sa récupération est tout simplement trop rapide... Si je veux laisser mon ombre dans son Dao cœur, je dois découvrir ce qu'est son Dao cœur... Cependant, malgré nos interactions, je n'ai pas réussi à percer son mystère. Grand frère aîné Wang, quel est donc ton véritable Dao cœur... »
 
-Wang Lin atterrit sur la Montagne de l'Extraction de l'Âme et déploya son Sens Divin avant de foncer vers une grotte. Le cultivateur qui se trouvait à l'intérieur était celui dont le niveau de culture était le plus élevé après le Grand Ancien, Su Jinshi!
+Wang Lin atterrit sur la Montagne Chou Po de l'Âme et déploya son Sens Divin avant de foncer vers une grotte. Le cultivateur qui se trouvait à l'intérieur était celui dont le niveau de culture était le plus élevé après le Grand Ancien, Su Jinshi!
 
 Dès que la silhouette de Wang Lin apparut, Su Jinshi, qui était en pleine méditation, ouvrit les yeux et afficha une expression disgracieuse.
 
@@ -26,7 +26,7 @@ Wang Lin se tint à l'intérieur de la demeure de Su Jinshi, observa les lieux e
 
 Su Jinshi réfléchit un instant et hocha la tête. Il ne parvenait pas à sonder le niveau de culture de cet homme, qu'il n'avait jamais vu auparavant, mais il pouvait déduire par ses vêtements que celui-ci appartenait à la Montagne de l'Affinement de l'Âme.
 
-Au sein de la Secte de l'Affinement de l'Âme, les disciples des trois montagnes étaient autorisés à interagir entre eux. Si l'on possédait les capacités nécessaires, on pouvait apprendre les trois techniques à sa guise.
+Au sein de la Secte Lian Hun, les disciples des trois montagnes étaient autorisés à interagir entre eux. Si l'on possédait les capacités nécessaires, on pouvait apprendre les trois techniques à sa guise.
 
 Su Jinshi s'était rendu à la Montagne de l'Affinement de l'Âme il y a de nombreuses années et y avait obtenu un jade d'affinement de l'âme.
 
@@ -48,7 +48,7 @@ Quant à la dernière, l'élevage de gu, c'était la plus vicieuse et la plus pu
 
 L'élevage de gu utilisait une méthode mystérieuse pour transformer une âme vivante en une sorte de gu capable de tuer sans laisser de trace. Avec le temps et un raffinage continu, elle finissait par devenir une bête d'âme gu, dotée de la puissance d'un cultivateur au stade de la Formation du Noyau.
 
-Si elle n'en était pas là, cette technique n'aurait pas eu grand intérêt, mais il y a longtemps, un disciple de la Montagne de l'Extraction de l'Âme avait trahi son ordre pour s'enfuir. Grâce à cette méthode, sous une identité transformée, il sema la terreur dans un pays de culture de rang 4 et fonda sa propre secte: la Secte des Pilules Démoniaques.
+Si elle n'en était pas là, cette technique n'aurait pas eu grand intérêt, mais il y a longtemps, un disciple de la Montagne Chou Po de l'Âme avait trahi son ordre pour s'enfuir. Grâce à cette méthode, sous une identité transformée, il sema la terreur dans un pays de culture de rang 4 et fonda sa propre secte: la Secte Dan Mo Dao.
 
 Cet homme utilisait une méthode occulte pour raffiner les bêtes d'âme gu en pilules, puis y fondait le qi vert des cadavres pour accroître leur puissance, formant ainsi un noyau vert. Il nomma cela la Méthode du Noyau Vert, ce qui lui permit d'atteindre le stade de la Formation de l'Âme. Il était considéré comme un génie de son temps.
 
@@ -56,7 +56,7 @@ Un noyau vert et un noyau doré sont très différents. On ne peut posséder qu'
 
 Lorsqu'il attaquait, il projetait d'innombrables noyaux verts qui explosaient. Sa puissance était telle que même les cultivateurs de la Transformation de l'Âme ne voulaient pas s'y mesurer par légèreté. Après tout, l'explosion de dizaines de milliers de noyaux verts était déjà apocalyptique; si on le poussait dans ses retranchements au point de l'obliger à tous les faire exploser, la déflagration serait tout simplement colossale.
 
-La Secte de l'Affinement de l'Âme n'avait jamais pris de mesures contre lui pour sa trahison, ce qui avait laissé beaucoup de gens perplexes. À mesure que cet homme disparaissait, sa légende s'estompa lentement dans les annales de l'histoire.
+La Secte Lian Hun n'avait jamais pris de mesures contre lui pour sa trahison, ce qui avait laissé beaucoup de gens perplexes. À mesure que cet homme disparaissait, sa légende s'estompa lentement dans les annales de l'histoire.
 
 Su Jinshi regarda Wang Lin et demanda: « Le grand frère aîné Qing Mu compte-t-il se rendre à la Montagne du Scellement de l'Âme pour obtenir le jade de scellement? »
 
@@ -68,17 +68,17 @@ L'expression de Wang Lin resta de marbre. Il hocha la tête, puis disparut.
 
 Lorsqu'il réapparut, il était arrivé à la Montagne du Scellement de l'Âme. Il trouva un disciple au hasard et reçut la même confirmation que celle de Su Jinshi.
 
-Wang Lin inspecta également les veines spirituelles sous les Montagnes d'Extraction et de Scellement. Seule la Montagne du Scellement possédait un drapeau d'âme en dessous, mais celui-ci n'était guère puissant. Les fragments d'âme qu'il contenait étaient également très hétérogènes en termes de puissance. Wang Lin ne fournit presque aucun effort pour le récupérer.
+Wang Lin inspecta également les veines spirituelles sous les Montagnes Chou Po et Suo Shen. Seule la Montagne du Scellement possédait un drapeau d'âme en dessous, mais celui-ci n'était guère puissant. Les fragments d'âme qu'il contenait étaient également très hétérogènes en termes de puissance. Wang Lin ne fournit presque aucun effort pour le récupérer.
 
-Quant à la Montagne de l'Extraction, elle était totalement vide. Il était clair que quelqu'un avait emporté le drapeau des années auparavant.
+Quant à la Montagne Chou Po, elle était totalement vide. Il était clair que quelqu'un avait emporté le drapeau des années auparavant.
 
 Une fois cela terminé, Wang Lin leva les yeux vers les neuf anneaux dorés et les deux anneaux de sang. Après un instant, son regard fut empreint d'une détermination farouche.
 
-« Que mon âme originelle se rétablisse ou non dépendra entièrement de cette journée! Je vais affronter l'ancêtre de la Transformation de l'Âme de la Secte de l'Affinement de l'Âme. Ce n'est que sous la pression spirituelle d'un tel cultivateur que mon âme originelle pourra enfin se régénérer! À ce moment-là, j'utiliserai la boussole stellaire pour m'échapper. Même si le cultivateur de la Transformation de l'Âme veut me capturer, il en sera incapable! » Wang Lin prit une profonde inspiration et ses yeux s'embrasèrent d'une intention de combat.
+« Que mon âme originelle se rétablisse ou non dépendra entièrement de cette journée! Je vais affronter l'ancêtre de la Transformation de l'Âme de la Secte Lian Hun. Ce n'est que sous la pression spirituelle d'un tel cultivateur que mon âme originelle pourra enfin se régénérer! À ce moment-là, j'utiliserai la boussole stellaire pour m'échapper. Même si le cultivateur de la Transformation de l'Âme veut me capturer, il en sera incapable! » Wang Lin prit une profonde inspiration et ses yeux s'embrasèrent d'une intention de combat.
 
 Il se transforma en un rayon de lumière et vola vers les neuf anneaux de lumière. Dans sa main gauche, il tenait le drapeau de 100 000 âmes, et dans sa main droite, le drapeau de restriction doté de 999 ensembles de restrictions. Armé de ces deux artefacts, il arriva devant les neuf anneaux dorés.
 
-À l'instant où il approcha, il agita les deux drapeaux. Du drapeau d'âme surgit un Qilin doré. Derrière lui apparurent neuf Qilins noirs, suivis d'innombrables fragments d'âme. En un instant, toute la Secte de l'Affinement de l'Âme fut envahi par ces fragments.
+À l'instant où il approcha, il agita les deux drapeaux. Du drapeau d'âme surgit un Qilin doré. Derrière lui apparurent neuf Qilins noirs, suivis d'innombrables fragments d'âme. En un instant, toute la Secte Lian Hun fut envahi par ces fragments.
 
 Les hurlements incessants devinrent le seul son qui régnait en ce monde.
 
@@ -86,7 +86,7 @@ C'était la première fois que Wang Lin utilisait le drapeau de 100 000 âmes. S
 
 Bang! Bang! Bang!
 
-Dans une série d'explosions fracassantes, le Qilin et les neuf Qilins sombres entrèrent en collision avec les anneaux, révélant des hommes et des femmes d'âges divers. Ces neuf individus étaient les neuf cultivateurs de la Formation de l'Âme de la Secte de l'Affinement de l'Âme. À leur apparition, ils fixèrent les Qilins avec des expressions de choc.
+Dans une série d'explosions fracassantes, le Qilin et les neuf Qilins sombres entrèrent en collision avec les anneaux, révélant des hommes et des femmes d'âges divers. Ces neuf individus étaient les neuf cultivateurs de la Formation de l'Âme de la Secte Lian Hun. À leur apparition, ils fixèrent les Qilins avec des expressions de choc.
 
 Le Qilin doré recula de quelques pas, secoua sa tête massive et cracha deux jets de gaz noir qui se dispersèrent.
 
@@ -112,6 +112,6 @@ Wang Lin agita le drapeau de restriction et d'innombrables entraves s'envolèren
 
 Simultanément, Wang Lin agita le drapeau d'âme. Le Qilin et les 100 000 fragments d'âme poussèrent des rugissements. Dès que Wang Lin prononça le mot « dévorer », tous les fragments chargèrent avec fureur.
 
-De loin, on aurait dit qu'une tempête gigantesque s'était levée au cœur de la Secte de l'Affinement de l'Âme.
+De loin, on aurait dit qu'une tempête gigantesque s'était levée au cœur de la Secte Lian Hun.
 
 À ce moment précis, une voix antique émana de l'intérieur de l'anneau de sang et dit: « Petit ami, ce vieil homme t'attend depuis longtemps. »

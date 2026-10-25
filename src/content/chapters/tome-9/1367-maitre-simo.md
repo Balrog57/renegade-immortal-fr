@@ -12,7 +12,7 @@ Sous cette lueur violente, une faille apparut dans l'âme originelle de Wang Lin
 
 Sous l'influence de la volonté de Wang Lin, l'obscurité au sein de la faille commença à onduler telle une brume, et de sourds grondements s'en échappaient.
 
-En un instant, six types de tonnerre vrombirent et jaillirent. Ils étaient le fruit de la collecte perpétuée par le Clan du Tonnerre Dispersé pendant des dizaines de milliers d'années. Ils se précipitèrent immédiatement pour graviter rapidement autour de l'âme originelle de Wang Lin.
+En un instant, six types de tonnerre vrombirent et jaillirent. Ils étaient le fruit de la collecte perpétuée par le Clan Shan Lei pendant des dizaines de milliers d'années. Ils se précipitèrent immédiatement pour graviter rapidement autour de l'âme originelle de Wang Lin.
 
 Une sensation de gonflement envahit le corps de Wang Lin. Il avait eu de la chance de posséder un corps de Dieu Ancien, car s'il avait été un cultivateur ordinaire, il aurait instantanément explosé.
 
@@ -36,7 +36,7 @@ Au moment où Wang Lin quitta sa demeure, les visages des cultivateurs présents
 
 Cependant, ces cultivateurs étaient très avisés et comprirent immédiatement la situation!
 
-« Peu importe que ce soit l'individu qui a massacré le Clan du Tonnerre Dispersé ou non, celui qui se cache ici doit avoir des intentions cachées! » Le vieil homme de niveau Briseur du Nirvana affichait une expression lugubre. Ses yeux s'illuminèrent et il s'élança au loin, suivi par les autres.
+« Peu importe que ce soit l'individu qui a massacré le Clan Shan Lei ou non, celui qui se cache ici doit avoir des intentions cachées! » Le vieil homme de niveau Briseur du Nirvana affichait une expression lugubre. Ses yeux s'illuminèrent et il s'élança au loin, suivi par les autres.
 
 Non seulement lui, mais le vieillard en robe taoïste dont l'âme originelle avait été scindée était sur le point de partir lorsqu'il se retourna soudainement. Un éclat étrange brilla dans son regard; sans dire un mot, il fit volte-face et lança une recherche minutieuse avec son Sens Divin.
 
@@ -56,7 +56,7 @@ Cette sphère semblait imprégnée de chaos et de lumière. Son intérieur tourb
 
 Ce rideau révéla un ciel étoilé, et dans ce dernier ne figurait qu'une seule planète de culture!
 
-La femme en noir déclara doucement: « Informe les anciens du Conseil Souverain que Yun Luo a trouvé celui qui a détruit le Clan du Tonnerre Dispersé. Il est ici! »
+La femme en noir déclara doucement: « Informe les anciens du Conseil Souverain que Yun Luo a trouvé celui qui a détruit le Clan Shan Lei. Il est ici! »
 
 À peine eut-elle fini de parler que trois silhouettes apparurent vaguement et saluèrent la femme avant de disparaître.
 
@@ -76,7 +76,7 @@ L'expression de l'homme changea soudainement et il leva les yeux. Un rayon de lu
 
 La lueur rouge illumina tout, révélant au centre un morceau de papier couleur sang!
 
-« Maître Simo, voici les ordres du Conseil Souverain! Capturez celui qui a détruit le Clan du Tonnerre Dispersé pour obtenir un esprit dao de rang 6 en récompense! Tuez-le, et vous n'obtiendrez qu'un esprit dao de rang 9! » Une voix lugubre résonna depuis le papier ensanglanté.
+« Maître Simo, voici les ordres du Conseil Souverain! Capturez celui qui a détruit le Clan Shan Lei pour obtenir un esprit dao de rang 6 en récompense! Tuez-le, et vous n'obtiendrez qu'un esprit dao de rang 9! » Une voix lugubre résonna depuis le papier ensanglanté.
 
 Cet homme d'âge moyen était l'un des trois cultivateurs du troisième stade qui traquaient Tuo Sen lorsque Wang Lin entra dans le Système Stellaire Antique!
 
@@ -90,7 +90,7 @@ L'avatar fit un pas en avant et disparut de la faille spatiale.
 
 Quant à Wang Lin, il restait caché dans la chaîne de montagnes, ignorant les cultivateurs qui le traquaient sur la planète. Ignorant les éclats de lumière survolant sa tête, il ferma les yeux et se mit à raffiner les six types de tonnerre avec acharnement.
 
-Le premier qu'il raffina fut le Tonnerre Spirituel. Il en possédait déjà une grande quantité, et il ne lui fallut pas longtemps pour absorber tout le Tonnerre Spirituel collecté par le Clan du Tonnerre Dispersé.
+Le premier qu'il raffina fut le Tonnerre Spirituel. Il en possédait déjà une grande quantité, et il ne lui fallut pas longtemps pour absorber tout le Tonnerre Spirituel collecté par le Clan Shan Lei.
 
 En conséquence, son Tonnerre Spirituel devint extrêmement puissant! Il gravitait lentement autour de l'âme originelle de Wang Lin. À chaque rotation, son âme originelle grandissait et son niveau de culture augmentait légèrement.
 

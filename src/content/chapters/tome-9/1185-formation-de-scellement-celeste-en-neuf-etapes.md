@@ -32,7 +32,7 @@ La lumière aux sept couleurs couvrait toujours le ciel, rendant impossible de d
 
 Les yeux de Wang Lin s'illuminèrent et il scruta l'horizon. Il put voir une brume tourbillonner dans le ciel, quelques montagnes plus loin. Les fluctuations d'énergie originelle provenaient de là. Il ressentit également une puissance capable de secouer l'âme.
 
-Cang Songzi regarda au loin et dit froidement: « C'est le sortilège de Chen Tianjun, de la Secte de la Bête de Bataille. »
+Cang Songzi regarda au loin et dit froidement: « C'est le sortilège de Chen Tianjun, de la Secte Yi Shou. »
 
 Après un long moment, les fluctuations se dissipèrent et la brume se calma. C'était comme si rien ne s'était produit; plus aucune fluctuation n'apparut.
 

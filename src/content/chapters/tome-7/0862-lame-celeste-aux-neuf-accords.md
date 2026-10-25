@@ -110,6 +110,6 @@ Les quatre lames chargèrent instantanément. En tournoyant et en s'entrecroisan
 
 La Lame Céleste aux Neuf Accords. Cette lame était l'expression ultime de la force; il semblait que rien en ce monde ne puisse lui résister!
 
-Après avoir vu Qing Shui utiliser personnellement « Invoque le Vent » à deux reprises, Wang Lin avait énormément appris et sa maîtrise du sort s'était accrue. Pourtant, à cet instant précis, il ne put s'empêcher de se remémorer la peinture qu'il avait vue au neuvième étage du Pavillon des Collections du Royaume Céleste du Tonnerre!
+Après avoir vu Qing Shui utiliser personnellement « Invoque le Vent » à deux reprises, Wang Lin avait énormément appris et sa maîtrise du sort s'était accrue. Pourtant, à cet instant précis, il ne put s'empêcher de se remémorer la peinture qu'il avait vue au neuvième étage du Pavillon Cang Jue du Royaume Céleste du Tonnerre!
 
 C'était comme s'il était devenu ce garçon, et une illumination soudaine le frappa. Wang Lin leva les mains comme si elles fusionnaient avec les deux dragons noirs...

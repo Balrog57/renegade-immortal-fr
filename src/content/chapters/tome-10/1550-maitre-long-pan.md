@@ -94,7 +94,7 @@ Le corps éthéré du vieillard était lié à la planète; c'était comme si l'
 
 En voyant le vieillard aux cheveux blancs, les yeux de Maître Yan Leizi s'écarquillèrent et il s'exclama: « Maître Long Pan!!! »
 
-De loin, le Quartier Général de l'Alliance de Culture offrait un spectacle terrifiant. La planète géante ressemblait à un corps sans jambes, et les deux lignes de planètes servaient de bras!
+De loin, le Quartier Général de l'Alliance Xiu Zhen offrait un spectacle terrifiant. La planète géante ressemblait à un corps sans jambes, et les deux lignes de planètes servaient de bras!
 
 Quant au vieil homme connecté à la planète, il en était la tête!
 

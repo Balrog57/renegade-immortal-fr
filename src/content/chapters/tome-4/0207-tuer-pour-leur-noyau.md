@@ -12,13 +12,13 @@ Tous les cultivateurs de la ville perdirent brusquement le contrôle de l'énerg
 
 Cette sensation fut aussi brève qu'intense. Le corps du vieil homme aux cheveux blancs bougea soudainement et disparut sans laisser de trace.
 
-Au même instant, dans la brume surplombant la Mer des Démons, un rugissement tonitruant retentit tandis qu'une tortue noire géante, longue de plusieurs kilomètres, émergeait du brouillard.
+Au même instant, dans la brume surplombant la Mer Xiu Mo, un rugissement tonitruant retentit tandis qu'une tortue noire géante, longue de plusieurs kilomètres, émergeait du brouillard.
 
 Sa tête gigantesque exerçait une pression colossale. Après avoir jeté un regard sur ce qui se trouvait en dessous, elle ouvrit la gueule et aspira une part immense de l'énergie spirituelle dans un rayon de 50 kilomètres. Puis, après un rot sonore, elle se stabilisa avant de repartir.
 
 Le vieil homme aux cheveux blancs se tenait sur son dos. Il hurla: « Espèce de bâtard! Je ne t'ai demandé de me transporter qu'une seule fois et tu as déjà englouti autant d'énergie spirituelle. N'as-tu pas peur de crever d'indigestion? Si jamais tu meurs, je verrai au moins si ta chair a du goût! »
 
-Pendant ce temps, Wang Lin était assis en tailleur dans sa grotte lorsqu'il sentit soudain une sensation d'horreur l'envahir. Elle émanait des hauteurs de la Mer des Démons.
+Pendant ce temps, Wang Lin était assis en tailleur dans sa grotte lorsqu'il sentit soudain une sensation d'horreur l'envahir. Elle émanait des hauteurs de la Mer Xiu Mo.
 
 Wang Lin fronça les sourcils. Il tendit la main pour ranger le drapeau de restriction, mais découvrit qu'une puissance mystérieuse l'entourait, l'empêchant de le ranger.
 
@@ -30,7 +30,7 @@ Grâce à sa vue divine, il put clairement voir une fine ligne rouge émaner du 
 
 Le visage de Wang Lin s'assombrit. Il ouvrit immédiatement la porte de la grotte et chargea dehors. Une fois à l'air libre, il stabilisa son corps et scruta le ciel.
 
-Il vit la ligne rouge flotter dans les airs, traversant la brume au-dessus de la Mer des Démons. Après avoir réfléchi un instant, il pointa son front et fit sortir le second démon.
+Il vit la ligne rouge flotter dans les airs, traversant la brume au-dessus de la Mer Xiu Mo. Après avoir réfléchi un instant, il pointa son front et fit sortir le second démon.
 
 Une fois apparu, sans attendre les ordres de Wang Lin, le démon devint invisible. À travers les yeux de Wang Lin, on pouvait voir sa silhouette s'élancer dans la brume.
 
@@ -44,9 +44,9 @@ Le second démon fendait rapidement la brume. Étant une créature volante avant
 
 Si Qiu Siping ne l'avait pas piégé dans la brume noire six jours auparavant, il lui aurait suffi d'une seule occasion pour disparaître sans laisser de trace grâce à sa vitesse.
 
-Le second démon se déplaçait comme un éclair à travers le brouillard surplombant la Mer des Démons.
+Le second démon se déplaçait comme un éclair à travers le brouillard surplombant la Mer Xiu Mo.
 
-À cet instant, au-dessus de la Mer des Démons, la brume rouge qui s'étendait sur plus de 5 kilomètres commença soudainement à se contracter. Cependant, en se rétractant, un renflement apparut en son centre.
+À cet instant, au-dessus de la Mer Xiu Mo, la brume rouge qui s'étendait sur plus de 5 kilomètres commença soudainement à se contracter. Cependant, en se rétractant, un renflement apparut en son centre.
 
 Ce renflement grossit sans cesse, tel un réservoir d'eau suspendu sous la brume rouge.
 
@@ -56,15 +56,15 @@ Au moment où ce pilier de lumière chutait, la brume rouge se contracta brusque
 
 La brume perdue avait été condensée dans le pilier de lumière qui tombait des cieux.
 
-L'immense pilier rouge descendait à une vitesse inimaginable. En un clin d'œil, il percuta la brume au-dessus de la Mer des Démons. Sa chute générait des bangs soniques et propageait des ondes de choc dévastatrices dans tout l'environnement.
+L'immense pilier rouge descendait à une vitesse inimaginable. En un clin d'œil, il percuta la brume au-dessus de la Mer Xiu Mo. Sa chute générait des bangs soniques et propageait des ondes de choc dévastatrices dans tout l'environnement.
 
 Outre ces ondes de pression, de nombreuses fissures spatiales apparurent lors de sa descente, au point que le ciel ressemblait à un miroir brisé.
 
 Lorsque le pilier rouge percuta la brume, celle-ci se mit à bouillir, faisant fuir en hurlant toutes les bêtes qui s'y trouvaient.
 
-Pendant ce temps, la brume au-dessus de la Mer des Démons s'évaporait en nuages et flottait lentement vers le haut, sans pour autant ralentir la chute du pilier rouge.
+Pendant ce temps, la brume au-dessus de la Mer Xiu Mo s'évaporait en nuages et flottait lentement vers le haut, sans pour autant ralentir la chute du pilier rouge.
 
-À mesure que le pilier rouge s'enfonçait, toute la brume de la Mer des Démons, qu'elle appartînt à la mer intérieure ou extérieure, commença à converger vers lui.
+À mesure que le pilier rouge s'enfonçait, toute la brume de la Mer Xiu Mo, qu'elle appartînt à la mer intérieure ou extérieure, commença à converger vers lui.
 
 Vu du ciel, on aurait dit que l'entièreté de la brume formait un vortex autour du pilier rouge central.
 
@@ -76,9 +76,9 @@ Privée de la brume issue de l'eau de mer, la lumière du soleil brilla pour la 
 
 Elle illumina les terres sombres, la ville délabrée et les cultivateurs dont les visages étaient pétrifiés par la panique. Certains, n'ayant jamais vu une telle intensité lumineuse de leur vie, furent saisis d'exaltation.
 
-Si l'on comparait la Mer des Démons à un cercle, toute la brume en périphérie avait disparu; elle s'était soit concentrée au centre, soit transformée en nuages noirs par le pilier rouge.
+Si l'on comparait la Mer Xiu Mo à un cercle, toute la brume en périphérie avait disparu; elle s'était soit concentrée au centre, soit transformée en nuages noirs par le pilier rouge.
 
-À l'endroit où le pilier rouge s'était arrêté, il avait déjà considérablement rétréci. Sous lui, toute la brume de la Mer des Démons s'était condensée en un gigantesque pilier noir qui fonça violemment à sa rencontre.
+À l'endroit où le pilier rouge s'était arrêté, il avait déjà considérablement rétréci. Sous lui, toute la brume de la Mer Xiu Mo s'était condensée en un gigantesque pilier noir qui fonça violemment à sa rencontre.
 
 Soudain, lors de la collision des deux piliers, une onde de choc dévastatrice se propagea. Toute créature vivante touchée par cette onde dans la brume fut instantanément réduite en poussière.
 
@@ -90,13 +90,13 @@ Cette fois, toute la brume rouge s'effondra avec le pilier. Il ne restait plus a
 
 Comme plus aucune brume ne le gênait sur les deux premiers tiers du trajet, le nouveau pilier rouge toucha presque instantanément le point où le précédent avait disparu.
 
-Un rugissement assourdissant, audible par chaque cultivateur de la Mer des Démons, retentit, tandis qu'une quantité massive de brume noire se transformait en nuages sombres et se condensait dans le ciel.
+Un rugissement assourdissant, audible par chaque cultivateur de la Mer Xiu Mo, retentit, tandis qu'une quantité massive de brume noire se transformait en nuages sombres et se condensait dans le ciel.
 
 Le pilier rouge continua sa chute, bien que réduit à moins de la moitié de sa taille initiale.
 
 Le second démon s'était déjà retiré dès qu'il avait pressenti l'anomalie. Wang Lin observait cette scène apocalyptique à travers ses yeux.
 
-À ce stade, presque tous les cultivateurs de la Mer des Démons étaient sortis de leurs demeures. Même ceux qui étaient en entraînement en porte close s'étaient interrompus pour scruter le ciel.
+À ce stade, presque tous les cultivateurs de la Mer Xiu Mo étaient sortis de leurs demeures. Même ceux qui étaient en entraînement en porte close s'étaient interrompus pour scruter le ciel.
 
 En voyant le pilier rouge via le second démon, une phrase surgit soudainement dans l'esprit de Wang Lin, issue de ses souvenirs hérités:
 
@@ -124,7 +124,7 @@ D'après ses souvenirs hérités, si ce drapeau était frappé par la rétributi
 
 Wang Lin ne permettrait pas que le trésor pour lequel il avait tant travaillé soit détruit ainsi. Il multiplia les techniques pour essayer de sauver l'objet.
 
-Lentement, la puissance mystérieuse qui retenait le drapeau commença à faiblir, sans toutefois le lâcher. Au même moment, un rugissement tonitruant déchira le ciel. Pour la première fois dans la Mer des Démons, il n'y avait ni eau ni brume pour obstruer le ciel, révélant un bassin gigantesque.
+Lentement, la puissance mystérieuse qui retenait le drapeau commença à faiblir, sans toutefois le lâcher. Au même moment, un rugissement tonitruant déchira le ciel. Pour la première fois dans la Mer Xiu Mo, il n'y avait ni eau ni brume pour obstruer le ciel, révélant un bassin gigantesque.
 
 N'ayant plus rien sur son passage, le pilier rouge s'abattit vers la ville de Qi Lin à une vitesse vertigineuse.
 
@@ -156,17 +156,17 @@ La ville de Qi Lin était totalement anéantie.
 
 À ce moment-là, une pluie noire commença à tomber du ciel. Toute la brume qui s'était évaporée en nuages commença à se condenser après le passage de la rétribution divine.
 
-Bien que ce fût une pluie noire, c'était la première fois qu'il pleuvait dans la Mer des Démons depuis que l'eau s'était transformée en brume.
+Bien que ce fût une pluie noire, c'était la première fois qu'il pleuvait dans la Mer Xiu Mo depuis que l'eau s'était transformée en brume.
 
-Cette rétribution divine avait apporté un changement majeur à la Mer des Démons. Si elle avait tué certaines créatures vivant dans la brume, beaucoup d'autres avaient réussi à s'échapper.
+Cette rétribution divine avait apporté un changement majeur à la Mer Xiu Mo. Si elle avait tué certaines créatures vivant dans la brume, beaucoup d'autres avaient réussi à s'échapper.
 
-Même certaines bêtes puissantes qui résidaient dans la brume apparurent désormais en pleine mer. La Mer des Démons gagnerait à être renommée le Bassin des Démons.
+Même certaines bêtes puissantes qui résidaient dans la brume apparurent désormais en pleine mer. La Mer Xiu Mo gagnerait à être renommée le Bassin des Démons.
 
 L'apparition de ces créatures inhabituelles déclencha une série de combats. Des bêtes tuaient des cultivateurs, et des cultivateurs tuaient des bêtes. Tous savaient que ces créatures possédaient un noyau pouvant servir à fabriquer des pilules ou être consommé directement pour augmenter leur culture.
 
-De plus, la disparition de la brume priva la Mer des Démons de sa barrière naturelle, attirant ainsi le regard des nations de culture environnantes. Heureusement, quelques grandes sectes ancestrales sortirent de leurs retranchements pour stabiliser la situation.
+De plus, la disparition de la brume priva la Mer Xiu Mo de sa barrière naturelle, attirant ainsi le regard des nations de culture environnantes. Heureusement, quelques grandes sectes ancestrales sortirent de leurs retranchements pour stabiliser la situation.
 
-Cependant, en secret, de nombreux cultivateurs profitèrent du chaos pour commettre des meurtres et voler des trésors, plongeant la Mer des Démons dans une confusion encore plus grande.
+Cependant, en secret, de nombreux cultivateurs profitèrent du chaos pour commettre des meurtres et voler des trésors, plongeant la Mer Xiu Mo dans une confusion encore plus grande.
 
 Mais tout cela ne concernait pas Wang Lin. Pour l'instant, il sentait son noyau rétrécir sans cesse. Un fil rouge reposait sur lui, absorbant rapidement toute son énergie. Si le noyau venait à se fissurer ou à se briser, la mort serait son seul destin.
 
@@ -330,7 +330,7 @@ Une fois les restrictions installées, Wang Lin expira et commença à digérer 
 
 Quant à ses fragments d'âme, dès qu'ils croisaient un cultivateur de niveau inférieur à l'Âme Naissante, ils le tuaient et lui dérobaient son noyau.
 
-Le temps s'écoula lentement. Chaque fois qu'un fragment obtenait un noyau, il revenait le déposer avant de repartir en chasse. La Mer des Démons, déjà chaotique, devint un véritable enfer; même certaines sectes de taille moyenne commencèrent à s'agiter.
+Le temps s'écoula lentement. Chaque fois qu'un fragment obtenait un noyau, il revenait le déposer avant de repartir en chasse. La Mer Xiu Mo, déjà chaotique, devint un véritable enfer; même certaines sectes de taille moyenne commencèrent à s'agiter.
 
 Deux jours plus tard, Wang Lin, assis au centre de la zone protégée par le drapeau, était livide. Son noyau avait rétréci jusqu'à la taille d'un ongle et sa culture était tombée au stade initial de la Formation du Noyau.
 
@@ -338,7 +338,7 @@ Toute l'énergie des noyaux rapportés par ses fragments était condensée dans 
 
 Wang Lin forma un sceau et cria d'une voix rauque: « Fragments d'âme, revenez! »
 
-Soudain, tous les fragments cessèrent leur course et entamèrent leur retour. Dans la Mer des Démons, on pouvait voir des lignes de foudre rouge traverser le ciel, convergeant toutes vers un même point.
+Soudain, tous les fragments cessèrent leur course et entamèrent leur retour. Dans la Mer Xiu Mo, on pouvait voir des lignes de foudre rouge traverser le ciel, convergeant toutes vers un même point.
 
 À mesure que chaque éclair passait par le drapeau pour rejoindre Wang Lin, son âme regagnait en puissance. Une fois tous les fragments réunis, un éclat froid jaillit de ses yeux alors qu'il canalisait toute sa puissance spirituelle pour attaquer le fil rouge.
 
@@ -362,7 +362,7 @@ La silhouette de Qiu Siping apparut dans le pavillon; il semblait épuisé et so
 
 Qiu Siping esquissa un sourire amer: « Cher compagnon, je vous ai attendu ici plus d'un demi-mois. Si je n'avais pas été certain que vous teniez vos promesses, je serais déjà parti. »
 
-Wang Lin eut un air contrit: « Les bouleversements dans la Mer des Démons ont provoqué une vague de meurtres et les sectes cherchent à étendre leur pouvoir, ce qui a retardé mon voyage. Je vous ai fait attendre. »
+Wang Lin eut un air contrit: « Les bouleversements dans la Mer Xiu Mo ont provoqué une vague de meurtres et les sectes cherchent à étendre leur pouvoir, ce qui a retardé mon voyage. Je vous ai fait attendre. »
 
 Qiu Siping soupira: « Ce n'est pas grave. J'ai tué quelques cultivateurs avides au passage, j'en ai tiré profit. Cher compagnon, seriez-vous prêt à nous rendre dans cet endroit dès maintenant? »
 
@@ -388,7 +388,7 @@ Qiu Siping rit: « Je l'ai fabriqué moi-même. En plus des restrictions, j'aime
 
 Soudain, un éclair fendit le ciel. Bien que lointain, sa puissance était bien supérieure à celle de n'importe quelle technique; c'était d'un autre ordre de grandeur.
 
-Qiu Siping leva les yeux et murmura: « Je suis né dans la Mer des Démons et j'y vis depuis plus de deux cents ans. En ce dernier demi-mois, c'est la première fois que je vois le ciel. »
+Qiu Siping leva les yeux et murmura: « Je suis né dans la Mer Xiu Mo et j'y vis depuis plus de deux cents ans. En ce dernier demi-mois, c'est la première fois que je vois le ciel. »
 
 Wang Lin allait répondre quand son regard fut capté par une silhouette au loin. Après quelques grondements, une tortue gigantesque apparut à l'horizon. Sur son dos, un vieil homme pointait le ciel en jurant copieusement. Sa voix parvint jusqu'à eux:
 

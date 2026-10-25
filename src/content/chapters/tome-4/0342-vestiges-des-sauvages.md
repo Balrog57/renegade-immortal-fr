@@ -80,7 +80,7 @@ Wang Lin ne savait pas grand-chose sur le Cimetière des Immortels. Il savait se
 
 Personne, hormis Suzaku, ne connaissait le nombre exact de couches du Cimetière des Immortels.
 
-« Frère Wang doit savoir que ces sauvages étaient les autochtones de cette planète. Lorsque Suzaku est devenue un pays de culture de rang 6, cette planète leur fut offerte par l'Alliance de la Culture. Ils menèrent ensuite une grande guerre contre les sauvages. Cette planète, autrefois si vivante, faillit s'effondrer sous ce conflit et n'est plus aujourd'hui qu'à moitié abandonnée. Tout cela est de la faute des sauvages. »
+« Frère Wang doit savoir que ces sauvages étaient les autochtones de cette planète. Lorsque Suzaku est devenue un pays de culture de rang 6, cette planète leur fut offerte par l'Alliance Xiu Zhen. Ils menèrent ensuite une grande guerre contre les sauvages. Cette planète, autrefois si vivante, faillit s'effondrer sous ce conflit et n'est plus aujourd'hui qu'à moitié abandonnée. Tout cela est de la faute des sauvages. »
 
 « Durant cette guerre, 90 % des sauvages furent massacrés. Les survivants s'enfuirent alors dans le Cimetière des Immortels, sans jamais en ressortir. Tous les cent ans, Suzaku envoie d'innombrables cultivateurs pour les éliminer, mais ils ne parviennent toujours pas à les anéantir totalement. »
 

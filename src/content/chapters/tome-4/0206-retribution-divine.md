@@ -52,7 +52,7 @@ Il voulait que tous ceux qui avaient secrètement aidé la famille Teng soient p
 
 Plus important encore, il voulait arracher l'âme de Teng Huayuan. Il voulait l'écorcher, lui retirer les os, fondre ses tendons et lui trancher la chair: tous les moyens imaginables pour rembourser ces plus de quatre cents ans de souffrance et de haine.
 
-Qiu Siping agita la main droite, faisant apparaître une bouteille de vin et deux coupes. Il se servit personnellement, prit l'une des coupes et en but une gorgée. Il sourit: « Cher compagnon cultivateur, c'est un vin de haute qualité élaboré à partir du fruit Can Yun de la partie nord de la Mer des Démons. Une seule gorgée suffit pour en savourer les arômes longtemps. Pourquoi ne pas l'essayer? »
+Qiu Siping agita la main droite, faisant apparaître une bouteille de vin et deux coupes. Il se servit personnellement, prit l'une des coupes et en but une gorgée. Il sourit: « Cher compagnon cultivateur, c'est un vin de haute qualité élaboré à partir du fruit Can Yun de la partie nord de la Mer Xiu Mo. Une seule gorgée suffit pour en savourer les arômes longtemps. Pourquoi ne pas l'essayer? »
 
 Wang Lin n'insista pas pour obtenir une réponse immédiate. Il prit la coupe et l'examina attentivement, comme si le vin recelait quelque chose d'intéressant.
 
@@ -174,7 +174,7 @@ Il fixa Qiu Siping devant lui, une idée gourmande germant dans son esprit: si s
 
 À ses yeux, cet homme était très rusé. Il ne volait jamais en ligne droite, multipliant les virages et se retournant sans cesse pour vérifier ses arrières, mais Xu Liguo parvenait tout de même à le suivre. Le démon pensait: « Je ne savais pas que le vol pouvait comporter autant de ruses. À l'avenir, quand je rivaliserai avec le numéro deux, j'utiliserai ces techniques. »
 
-À cet instant précis, Qiu Siping ralentit soudainement et atterrit au sol. Il scruta les environs. Hormis la brume naturelle de la Mer des Démons, rien ne bougeait.
+À cet instant précis, Qiu Siping ralentit soudainement et atterrit au sol. Il scruta les environs. Hormis la brume naturelle de la Mer Xiu Mo, rien ne bougeait.
 
 Une fois posé, il ricana: « Cher compagnon cultivateur, vous vous cachez depuis trop longtemps, autant sortir maintenant! »
 
@@ -236,7 +236,7 @@ Ainsi, si la création est simple, l'obtention de la puissance est une tâche he
 
 Le drapeau que Wang Lin fabriquait n'était pas monothématique. Il y incluait des restrictions d'attaque, de défense, de garde, de recherche et de piégeage.
 
-C'était le seul moyen pour lui de produire rapidement un objet utile. Wang Lin savait qu'au sein de cette Mer des Démons, une crise mortelle pouvait survenir à tout instant; il devait donc tester la puissance de ce drapeau avant de décider s'il consacrerait du temps à un modèle spécialisé.
+C'était le seul moyen pour lui de produire rapidement un objet utile. Wang Lin savait qu'au sein de cette Mer Xiu Mo, une crise mortelle pouvait survenir à tout instant; il devait donc tester la puissance de ce drapeau avant de décider s'il consacrerait du temps à un modèle spécialisé.
 
 Après tout, possédant trois pierres d'encre, il pouvait fabriquer au total trois drapeaux.
 
@@ -270,7 +270,7 @@ Qiu Siping observa silencieusement ces trois figures. Lorsque son regard se posa
 
 « Vieux fou, frère aîné... J'ai enfin trouvé quelqu'un capable d'utiliser les anciennes restrictions. Vous n'auriez jamais imaginé que je puisse pénétrer dans ce lieu pour vous retrouver. Cette fois, ce trésor sera mien! »
 
-Qiu Siping éclata soudain d'un rire empreint de folie. Il tendit la main pour caresser doucement le visage de la femme et murmura: « Je te ramènerai à la vie, même si le prix à payer est l'intégralité de la Mer des Démons! »
+Qiu Siping éclata soudain d'un rire empreint de folie. Il tendit la main pour caresser doucement le visage de la femme et murmura: « Je te ramènerai à la vie, même si le prix à payer est l'intégralité de la Mer Xiu Mo! »
 
 Il prit une profonde inspiration, retira sa main, projeta un autre rayon de lumière et le mur se referma.
 
@@ -286,21 +286,21 @@ Pendant ce temps, dans le champ d'étoiles situé à des centaines de kilomètre
 
 Parmi les astres, un nuage rouge commença à s'amasser et à gonfler, atteignant une cinquantaine de kilomètres de diamètre.
 
-Au sein du nuage rouge, des précipitations gazeuses commencèrent à tomber. Dès que le gaz toucha l'épaisse couche nuageuse au-dessus de la Mer des Démons, il se mit à grésiller et à fondre, comme du fer rouge sur de la neige.
+Au sein du nuage rouge, des précipitations gazeuses commencèrent à tomber. Dès que le gaz toucha l'épaisse couche nuageuse au-dessus de la Mer Xiu Mo, il se mit à grésiller et à fondre, comme du fer rouge sur de la neige.
 
-À cet instant, dans la partie orientale de la zone intérieure de la Mer des Démons, un homme sortit d'une montagne faite de crânes. Il était imprégné d'une odeur de mort et sa silhouette restait indistincte.
+À cet instant, dans la partie orientale de la zone intérieure de la Mer Xiu Mo, un homme sortit d'une montagne faite de crânes. Il était imprégné d'une odeur de mort et sa silhouette restait indistincte.
 
 Il leva les yeux vers les nuages comme s'il pouvait voir à travers eux, percevant le nuage rouge. Il grommela: « Rétribution divine? Impossible. Depuis que le monde ancien a été détruit par la catastrophe, il ne devrait plus y avoir de rétribution divine. Tous les cultivateurs actuels trompent les cieux pour cultiver; comment cela pourrait-il provoquer une telle réaction? Se peut-il que des anciens cultivateurs aient survécu? Si tel est le cas, ce seront des suppléments de très haute qualité! » Sur ces mots, son corps se téléporta vers la formation du nuage rouge.
 
-Dans l'extrême ouest de la Mer des Démons se trouvait un bassin rempli d'eau de mer. Comme ce n'était pas encore la saison pour que la brume se transforme en mer, le spectacle était prodigieux.
+Dans l'extrême ouest de la Mer Xiu Mo se trouvait un bassin rempli d'eau de mer. Comme ce n'était pas encore la saison pour que la brume se transforme en mer, le spectacle était prodigieux.
 
-L'eau commença soudainement à s'agiter violemment. Un homme vêtu d'une robe bleue surgit des profondeurs, provoquant de grandes vagues. Marchant sur l'écume, il flotta lentement vers le ciel. Il fixa les cieux avec un air de choc: « Rétribution divine? Depuis quand de tels événements se produisent-ils dans la Mer des Démons? Cette rétribution devrait attirer tous les vieux monstres qui se cachent. » Un léger sourire étira ses lèvres. Son corps plana au-dessus de l'eau et, d'un geste de la main, il fit s'élever l'eau du bassin dans les airs.
+L'eau commença soudainement à s'agiter violemment. Un homme vêtu d'une robe bleue surgit des profondeurs, provoquant de grandes vagues. Marchant sur l'écume, il flotta lentement vers le ciel. Il fixa les cieux avec un air de choc: « Rétribution divine? Depuis quand de tels événements se produisent-ils dans la Mer Xiu Mo? Cette rétribution devrait attirer tous les vieux monstres qui se cachent. » Un léger sourire étira ses lèvres. Son corps plana au-dessus de l'eau et, d'un geste de la main, il fit s'élever l'eau du bassin dans les airs.
 
 La scène était saisissante. L'homme replongea dans les eaux. D'un mouvement de la main, il projeta l'eau vers le nuage rouge avec une force irrésistible.
 
 Comparée à la vitesse d'un cultivateur de l'Âme Naissante utilisant une téléportation instantanée, sa course était plusieurs fois plus rapide; l'eau accélérait sans cesse jusqu'à disparaître soudainement.
 
-Au point sud de la Mer des Démons, dans le troisième étage du Pavillon de Raffinage des Trésors d'une ville commune, un vieillard aux cheveux blancs et au visage ridé brandissait l'os d'une bête en faisant l'étalage de ses connaissances devant un cultivateur de l'Établissement des Fondations.
+Au point sud de la Mer Xiu Mo, dans le troisième étage du Pavillon Lian Qi d'une ville commune, un vieillard aux cheveux blancs et au visage ridé brandissait l'os d'une bête en faisant l'étalage de ses connaissances devant un cultivateur de l'Établissement des Fondations.
 
 « Frère, ce truc est un véritable trésor. Je vais vous révéler son soixante-quatorzième usage, alors écoutez bien... »
 

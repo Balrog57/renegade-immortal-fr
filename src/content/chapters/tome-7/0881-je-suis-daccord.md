@@ -106,6 +106,6 @@ Une trace de nostalgie resta dans les yeux de Qing Shui. Avec une pointe de mél
 
 Wang Lin regarda Qing Shui, ses yeux exprimant sa gratitude. Il hocha la tête. Il savait que Qing Shui craignait qu'il ne lui arrive malheur sur la planète Dong Lin et décida de l'escorter pour garantir le bon déroulement des événements.
 
-Après cela, les autres présentèrent leurs requêtes. Il est à noter que Xu Ting et Nangong Han firent la même demande: ils souhaitaient entrer dans le Pavillon des Trésors pour apprendre des sorts célestes. Une fois que les 36 Célestes du Ciel eurent reçu chacun leur récompense, le don céleste prit fin!
+Après cela, les autres présentèrent leurs requêtes. Il est à noter que Xu Ting et Nangong Han firent la même demande: ils souhaitaient entrer dans le Pavillon Cang Xian pour apprendre des sorts célestes. Une fois que les 36 Célestes du Ciel eurent reçu chacun leur récompense, le don céleste prit fin!
 
 À l'instant même où il s'acheva, le rire de Maître Yan Leizi retentit. Flottant au-dessus de son tapis de prière, il agita ses manches. Ses yeux brillèrent et il cria: « Compagnons cultivateurs, aidez-moi à ouvrir le passage vers le Système Stellaire de l'Alliance! La guerre est sur le point de commencer! »

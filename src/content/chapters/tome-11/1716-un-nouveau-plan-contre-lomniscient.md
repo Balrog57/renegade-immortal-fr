@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1716 - Scheme Again Tian Yunzi!"
 slug: un-nouveau-plan-contre-lomniscient
 ---
-Aux abords de la fissure spatiale dans la Mer des Nuages, une multitude de bêtes féroces s'étaient rassemblées. Toutes gardaient le visage crispé d'effroi : elles n'avaient pas oublié la tempête de restrictions qui les avait expulsées de la faille quelques mois auparavant.
+Aux abords de la fissure spatiale dans la Mer Yun, une multitude de bêtes féroces s'étaient rassemblées. Toutes gardaient le visage crispé d'effroi : elles n'avaient pas oublié la tempête de restrictions qui les avait expulsées de la faille quelques mois auparavant.
 
 Cependant, la fissure spatiale était leur demeure; elles restaient donc aux alentours, refusant de s'en éloigner.
 
@@ -18,7 +18,7 @@ Alors que Wang Lin sortait de la faille, son regard balaya la masse de bêtes f�
 
 Ce n'est que bien longtemps après le départ de Wang Lin que les bêtes environnantes se rapprochèrent lentement de la faille spatiale. Quelques-unes s'y aventurèrent avec prudence et, après avoir constaté l'absence de danger, une multitude d'entre elles regagnèrent l'intérieur de la fissure.
 
-Wang Lin traversait les étoiles en perçant le vide. Il apparaissait par intermittence avant de disparaître instantanément. Bientôt, il atteignit la bordure de la Mer des Nuages, là où se situait le nouveau Royaume Céleste.
+Wang Lin traversait les étoiles en perçant le vide. Il apparaissait par intermittence avant de disparaître instantanément. Bientôt, il atteignit la bordure de la Mer Yun, là où se situait le nouveau Royaume Céleste.
 
 Le continent flottant, entouré d'une rivière argentée, dégageait une lueur douce qui éclairait les environs. Des fluctuations de restrictions résonnaient, protégeant le Royaume Céleste.
 
@@ -56,11 +56,11 @@ Son regard balaya l'assemblée et il esquissa un doux sourire.
 
 « Je suis rentré à la maison. »
 
-Ces trois mots déclenchèrent une explosion d'acclamations dans le Royaume Céleste. La partie occidentale du royaume était autrefois vide, mais un clan issu du Système Stellaire Antique s'y était installé: le Clan de la Soie Bleue.
+Ces trois mots déclenchèrent une explosion d'acclamations dans le Royaume Céleste. La partie occidentale du royaume était autrefois vide, mais un clan issu du Système Stellaire Antique s'y était installé: le Clan Lan Si.
 
 Lanmeng Daozun était assis dans une hutte qu'il avait bâtie lui-même; il leva les yeux vers le ciel et afficha un sourire. Sa fille, Li Qianmei, n'était pas à ses côtés, étant entrée en culture fermée.
 
-Lanmeng Daozun estimait que la culture de Li Qianmei était encore insuffisante; c'est pourquoi, lorsqu'il avait emmené les membres du Clan de la Soie Bleue ici, il l'avait contrainte à une culture isolée afin qu'elle puisse appréhender son essence.
+Lanmeng Daozun estimait que la culture de Li Qianmei était encore insuffisante; c'est pourquoi, lorsqu'il avait emmené les membres du Clan Lan Si ici, il l'avait contrainte à une culture isolée afin qu'elle puisse appréhender son essence.
 
 Après avoir simplement échangé avec plusieurs de ses amis, Wang Lin s'éloigna. Il était accompagné de Situ Nan, Zhou Ru, Da Tou, Treize et d'autres. Ils s'installèrent dans les montagnes du nord.
 
@@ -106,7 +106,7 @@ Hormis les anciens êtres célestes menés par les quatre généraux, le Vieux F
 
 Il ne cachait nullement ses intentions, et bien que les quatre généraux l'aient senti, ils s'en moquaient étrangement. Ils semblaient avoir un appui sur lequel compter, et peu leur importait d'être surveillés.
 
-Quant au Daoïste aux Sept Couleurs, après avoir quitté la Mer des Nuages, il avait convoqué le Souverain et quelques concubines venues du Royaume Extérieur. Ils s'étaient précipités dans le Royaume Intérieur, en direction du Vide Brillant, pour entamer des recherches minutieuses.
+Quant au Daoïste aux Sept Couleurs, après avoir quitté la Mer Yun, il avait convoqué le Souverain et quelques concubines venues du Royaume Extérieur. Ils s'étaient précipités dans le Royaume Intérieur, en direction du Vide Brillant, pour entamer des recherches minutieuses.
 
 Ils semblaient employer un type de sort spécifique, né des batailles entre les Royaumes Intérieur et Extérieur. Les morts innombrables de ces cultivateurs semblaient avoir offert une opportunité au Daoïste aux Sept Couleurs.
 

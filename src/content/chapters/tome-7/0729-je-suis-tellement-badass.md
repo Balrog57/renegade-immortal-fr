@@ -108,7 +108,7 @@ C'était un objet laissé par Shengong Hu: une carte stellaire détaillée du do
 
 La région devant lui était considérée comme la zone sauvage du domaine sud. La plupart des planètes y étaient désertes et sans particularité. Les cultivateurs puissants s'y rendaient rarement. Cependant, des mortels y vivaient sur certaines planètes, aux côtés de quelques familles de culture de bas rang.
 
-« Dans vingt ans, je dois me préparer pour le voyage vers le Royaume Céleste du Tonnerre. De plus, certains de mes sorts nécessitent des ajustements. Beaucoup d'entre eux ne sont pas conformes à la troisième étape que j'ai aperçue. Si je continue à les utiliser, ma voie sera erronée. En particulier, je dois rapidement collecter les esprits vengeurs nécessaires pour ma Rivière des Enfers. Et il est temps que je possède ma propre planète de culture dans le Système Stellaire de Luotian! »
+« Dans vingt ans, je dois me préparer pour le voyage vers le Royaume Céleste du Tonnerre. De plus, certains de mes sorts nécessitent des ajustements. Beaucoup d'entre eux ne sont pas conformes à la troisième étape que j'ai aperçue. Si je continue à les utiliser, ma voie sera erronée. En particulier, je dois rapidement collecter les esprits vengeurs nécessaires pour ma Rivière Huang Quan. Et il est temps que je possède ma propre planète de culture dans le Système Stellaire de Luotian! »
 
 Alors qu'il réfléchissait, ses yeux s'illuminèrent. Devant lui se trouvait une planète délaissée, mais pleine de vitalité, ce qui signifiait qu'une multitude de mortels y vivaient. La raison pour laquelle il avait choisi cet endroit était sa grande similitude avec la planète Suzaku!
 

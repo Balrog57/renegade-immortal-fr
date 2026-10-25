@@ -146,7 +146,7 @@ Ses mains formèrent un sceau complexe, une position étrange où une main repos
 
 Deux mois passèrent dans la perle défiant le ciel avant que Wang Lin n'ouvre les yeux. Son regard était trouble, et il fallut un moment pour qu'il retrouve sa clarté.
 
-« Le jade de la Secte des Démons Maléfiques affirmait qu'on pouvait augmenter son niveau de culture en dévorant des noyaux. Cela semble vrai, tant que je respecte le sceau et les incantations du jade. Hélas, ce n'était qu'un noyau de stade initial, et ce n'est qu'après avoir cultivé l'Art Shura de la Grande Liberté que l'on peut absorber plus de 20 % de l'énergie d'un noyau; sans cet art, on ne peut en absorber que 10 % au maximum. »
+« Le jade de la Secte Xie Mo affirmait qu'on pouvait augmenter son niveau de culture en dévorant des noyaux. Cela semble vrai, tant que je respecte le sceau et les incantations du jade. Hélas, ce n'était qu'un noyau de stade initial, et ce n'est qu'après avoir cultivé l'Art Shura de la Grande Liberté que l'on peut absorber plus de 20 % de l'énergie d'un noyau; sans cet art, on ne peut en absorber que 10 % au maximum. »
 
 Wang Lin se leva et vérifia son état. Il pensa: « Je n'ai absorbé que 10 % de l'énergie, et pourtant cela m'a permis de franchir le stade intermédiaire de l'Établissement des Fondations pour atteindre le sommet du stade avancé, me plaçant ainsi au stade de pseudo-Formation du Noyau. Si je rencontre à présent un cultivateur de la Formation du Noyau de stade initial, même sans l'aide du démon, je suis sûr de pouvoir me battre! »
 
@@ -172,7 +172,7 @@ Wang Lin ne répondit pas et se contenta de lancer le jade. Feng Luan fut surpri
 
 Zhou Jin prit le jade des mains de Feng Luan et le scanna de son propre Sens Divin. Son visage s'illumina d'un sourire: « Pas mal. Tu as tué 61 cultivateurs de l'Établissement des Fondations et un de la Formation du Noyau. Si tu continues ainsi, tu auras une chance d'obtenir la Pilule du Ciel Lointain. Mais je suis curieux... Tu n'étais qu'au stade intermédiaire de l'Établissement des Fondations auparavant. Comment as-tu atteint si vite le stade de pseudo-Formation du Noyau? Et même ainsi, tuer un expert de la Formation du Noyau aurait dû être presque impossible. Comment as-tu fait? » Sa voix devint plus grave à la fin de sa tirade.
 
-Wang Lin avait anticipé ces questions. Calme, il répondit simplement: « Ce cultivateur de la Formation du Noyau avait été encerclé et attaqué par d'autres, puis s'était enfui grièvement blessé. Quand je l'ai rattrapé, il était déjà à l'agonie; je me suis emparé de son noyau et l'ai avalé grâce à la Grande Technique de Dévoration de la Secte des Démons Maléfiques, ce qui a fait passer mon niveau de culture du milieu de l'Établissement des Fondations à la pseudo-Formation du Noyau. »
+Wang Lin avait anticipé ces questions. Calme, il répondit simplement: « Ce cultivateur de la Formation du Noyau avait été encerclé et attaqué par d'autres, puis s'était enfui grièvement blessé. Quand je l'ai rattrapé, il était déjà à l'agonie; je me suis emparé de son noyau et l'ai avalé grâce à la Grande Technique de Dévoration de la Secte Xie Mo, ce qui a fait passer mon niveau de culture du milieu de l'Établissement des Fondations à la pseudo-Formation du Noyau. »
 
 « Une technique de dévoration... » Les yeux de Zhou Jin sondèrent Wang Lin. Il perçut des traces d'énergie spirituelle de noyau en lui, ce qui rendit l'histoire crédible à ses yeux, et il resta silencieux.
 
@@ -180,9 +180,9 @@ Feng Luan lança un regard significatif à Wang Lin, sortit un feuillet de jade 
 
 Wang Lin acquiesça. En vérifiant le jade avec son Sens Divin, il confirma qu'il s'agissait bien de la carte. En combinant les deux fragments, il aurait une vision claire des environs de Huo Fen.
 
-Huo Fen bordait la Mer des Démons. Selon la carte, il n'y avait pas de Zhao sur le continent où se trouvait Huo Fen. Les descriptions indiquaient qu'un autre continent existait de l'autre côté de la Mer des Démons; il pensa que le troisième fragment devait contenir des informations à ce sujet.
+Huo Fen bordait la Mer Xiu Mo. Selon la carte, il n'y avait pas de Zhao sur le continent où se trouvait Huo Fen. Les descriptions indiquaient qu'un autre continent existait de l'autre côté de la Mer Xiu Mo; il pensa que le troisième fragment devait contenir des informations à ce sujet.
 
-Il y avait aussi une description détaillée de la Mer des Démons, mais Wang Lin n'y prêta pas attention en retirant son Sens Divin.
+Il y avait aussi une description détaillée de la Mer Xiu Mo, mais Wang Lin n'y prêta pas attention en retirant son Sens Divin.
 
 Zhou Jin regarda Wang Lin avec une certaine faveur: « Les cultivateurs de Xuan Wu se sont unis; une grande bataille aura lieu ces prochains jours. Si tu veux accumuler des mérites militaires, c'est ta meilleure chance. »
 

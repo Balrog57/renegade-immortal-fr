@@ -68,7 +68,7 @@ Derrière eux, deux autres personnes émergèrent du vent et de la neige. Ces de
 
 « Messagers de l'armure d'âme! » Wang Lin les reconnut d'un coup d'œil!
 
-« Ces deux-là me sont inconnus. J'ai vu les 48 autres Ascendants Empyréens à la Secte du Soleil Violet, mais je n'ai jamais rencontré ceux-ci, et aucun d'eux ne possède d'armure d'âme... Ils ont dû voir leur niveau de culture élevé au rang d'Ascendant Empyréen par une méthode spéciale avant de recevoir leurs armures!
+« Ces deux-là me sont inconnus. J'ai vu les 48 autres Ascendants Empyréens à la Secte Zi Yang, mais je n'ai jamais rencontré ceux-ci, et aucun d'eux ne possède d'armure d'âme... Ils ont dû voir leur niveau de culture élevé au rang d'Ascendant Empyréen par une méthode spéciale avant de recevoir leurs armures!
 
 « Dans la cité ancestrale, la seule personne capable de faire cela est l'Empereur Céleste! »
 

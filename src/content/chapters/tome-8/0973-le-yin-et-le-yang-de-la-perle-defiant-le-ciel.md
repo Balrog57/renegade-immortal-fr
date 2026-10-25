@@ -122,4 +122,4 @@ Alors que l'Épée Céleste Serpentiforme reculait, une ombre émergea de la fis
 
 Un éclat de lumière aux sept couleurs jaillit là où Ling Tianhou regardait, et la silhouette de Tian Yunzi se condensa faiblement. Cette figure n'était qu'une illusion formée par la lumière multicolore. Une fois apparu, il regarda Ling Tianhou et dit calmement:
 
-« Ling Tianhou, nous avons déjà combattu, mais tu n'as aucune raison de t'immiscer dans les affaires de ma Secte du Destin Céleste. »
+« Ling Tianhou, nous avons déjà combattu, mais tu n'as aucune raison de t'immiscer dans les affaires de ma Secte Tian Yun. »

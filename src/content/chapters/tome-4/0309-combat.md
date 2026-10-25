@@ -78,7 +78,7 @@ Le gaz de restriction gelé se libéra de la glace pour rejoindre le javelot, au
 
 Simultanément, sous le contrôle de Wang Lin, de plus en plus de gaz s'échappait du drapeau pour s'unir au javelot tandis qu'il transperçait la lumière bleue, rendant sa couleur encore plus sombre et féroce.
 
-« Ton maître est toujours vivant, et pourtant tu t'es vendue au Pays de Suzaku! Tu es infidèle! »
+« Ton maître est toujours vivant, et pourtant tu t'es vendue au Pays de Zhu Que! Tu es infidèle! »
 
 Ce javelot était l'attaque la plus puissante que le drapeau de restriction pouvait déchaîner une fois pleinement accompli. Il utilisait toutes ses restrictions. Wang Lin descendit du ciel, entouré d'âmes errantes; la scène donnait l'impression que le firmament s'effondrait.
 
@@ -98,7 +98,7 @@ Wang Lin avançait sans relâche tandis que Hongdie ne faisait que reculer. Sach
 
 L'intention de tuer embrasa les yeux de Hongdie. En tant que génie de Xue Yu, elle n'avait jamais connu un moment aussi humiliant depuis sa naissance. Autrefois, dès qu'elle utilisait sa sculpture de glace, même des cultivateurs au stade avancé de la Formation de l'Âme fuyaient en panique.
 
-De plus, le Pays de Suzaku lui accordait une attention particulière, ce qui l'avait rendue quelque peu orgueilleuse.
+De plus, le Pays de Zhu Que lui accordait une attention particulière, ce qui l'avait rendue quelque peu orgueilleuse.
 
 Le javelot de Wang Lin la terrifiait. Ce n'était pas tant sa puissance brute, mais l'énergie mystérieuse qui le composait; elle ressemblait presque à un éclat de foudre de la Rétribution Divine!
 

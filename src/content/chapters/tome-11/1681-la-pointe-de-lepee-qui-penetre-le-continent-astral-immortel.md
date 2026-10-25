@@ -86,7 +86,7 @@ Au sein de ce massif, une montagne perçait le ciel telle une épée pointée ve
 
 Un vaste groupe de palais trônait sur cette colline. Il s'agissait d'une branche d'une secte du Continent Astral Immortel, nommée la Secte Gui Yi!
 
-Cette secte était comparable à la Secte des Sept Dao; elle ne pouvait être considérée comme une grande puissance!
+Cette secte était comparable à la Secte Qi Dao; elle ne pouvait être considérée comme une grande puissance!
 
 À cet instant précis, sur la place principale de cette branche, une cloche géante de 10 000 pieds de haut flottait dans les airs. Elle paraissait majestueuse à distance.
 
@@ -112,9 +112,9 @@ L'un d'eux finit par dire lentement: « Frère aîné, Chef de Secte, devrions-n
 
 « Pas besoin pour le moment. Avant que le Frère Ma ne parte avec quelques disciples, il a dit que cette cloche ne devait pas être ouverte. Il reviendra de lui-même! »
 
-« L'épée de sang de Ye Mo! Il semble que la rumeur disant que Ye Mo a été attiré dans la grotte de la Secte des Sept Dao soit vraie! »
+« L'épée de sang de Ye Mo! Il semble que la rumeur disant que Ye Mo a été attiré dans la grotte de la Secte Qi Dao soit vraie! »
 
-« Ce Souverain aux Sept Couleurs a abandonné son partenaire de Dao et a scellé la Secte des Sept Dao. Il a dû obtenir un trésor inestimable... Le Frère Ma a étudié la situation longtemps et a utilisé un trésor de notre Secte Gui Yi pour ouvrir un passage vers la grotte. Avec le niveau de culture et les méthodes du Frère Ma, nous n'avons pas à nous inquiéter! »
+« Ce Souverain aux Sept Couleurs a abandonné son partenaire de Dao et a scellé la Secte Qi Dao. Il a dû obtenir un trésor inestimable... Le Frère Ma a étudié la situation longtemps et a utilisé un trésor de notre Secte Gui Yi pour ouvrir un passage vers la grotte. Avec le niveau de culture et les méthodes du Frère Ma, nous n'avons pas à nous inquiéter! »
 
 À l'intérieur du passage étrange, l'épée de sang se retira de la porte de pierre, laissant l'âme originelle de Wang Lin sous le choc. La force de rejet avait repoussé l'arme sur 500 pieds. Son âme retourna dans son corps, puis il saisit l'épée et recula de 1 000 pieds. Wang Lin regarda la porte de pierre avec une expression grave, le rythme cardiaque accéléré.
 

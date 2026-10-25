@@ -18,7 +18,7 @@ Le Wang Lin d'autrefois n'avait qu'un statut inférieur et n'était considéré 
 
 Pourtant, dès l'apparition de Wang Lin, il avait immédiatement attiré l'attention de l'ancêtre de la famille Ran, au point de recevoir une pilule de rang 8. Quant à lui, il n'était qu'un simple invité de la famille Ran et avait perdu toute la gloire dont il jouissait autrefois.
 
-À l'époque, lorsque Wang Lin était confronté à une situation de vie ou de mort, ce dernier avait eu besoin de son aide. Sans lui, Wang Lin aurait été tué par l'ancêtre du Clan des Démons Géants.
+À l'époque, lorsque Wang Lin était confronté à une situation de vie ou de mort, ce dernier avait eu besoin de son aide. Sans lui, Wang Lin aurait été tué par l'ancêtre du Clan Ju Mo.
 
 Cependant, l'homme devant lui possédait un niveau de culture extrêmement élevé. De plus, l'aura que dégageait Wang Lin murmurait à l'oreille de Sun Tai qu'il avait tué des cultivateurs de son propre rang!
 
@@ -56,7 +56,7 @@ Wang Lin réfléchit et dit lentement: « Quelle est la puissance de ces trois f
 
 Quant à la particularité de la planète Dong Lin, je peux seulement dire que c'est un enfer chaotique, un monde sanglant. » En se remémorant le passé, les yeux de Sun Tai se remplirent de terreur.
 
-En remarquant cette trace de peur, Wang Lin soupira intérieurement. L'ancien Grand Ancien de la Secte des Cadavres sur la planète Suzaku n'existait plus. Même s'il retrouvait sa culture, il ne pourrait jamais plus s'élever davantage.
+En remarquant cette trace de peur, Wang Lin soupira intérieurement. L'ancien Grand Ancien de la Secte Shi Yin sur la planète Suzaku n'existait plus. Même s'il retrouvait sa culture, il ne pourrait jamais plus s'élever davantage.
 
 C'était parce qu'il avait perdu le cœur Dao que tout cultivateur devrait posséder. Ce cœur Dao avait été broyé par le siècle passé sur la planète Dong Lin.
 
@@ -64,23 +64,23 @@ Wang Lin demanda soudainement: « Existe-t-il une famille Xiang sur la planète 
 
 « La famille Xiang? » Sun Tai réfléchit longuement avant de secouer la tête. « À ma connaissance, il n'y a pas de famille Xiang. Bien sûr, il se peut aussi que mon statut fût trop bas pour connaître les secrets. »
 
-Wang Lin marqua une pause avant de regarder Sun Tai: « Vous étiez le Grand Ancien de la Secte des Cadavres sur la planète Suzaku dans le Système Stellaire de l'Alliance, vous devez donc connaître certaines choses. Quel genre d'organisation est la Secte des Cadavres? »
+Wang Lin marqua une pause avant de regarder Sun Tai: « Vous étiez le Grand Ancien de la Secte Shi Yin sur la planète Suzaku dans le Système Stellaire de l'Alliance, vous devez donc connaître certaines choses. Quel genre d'organisation est la Secte Shi Yin? »
 
-Sun Tai laissa échapper un soupir et dit amèrement: « Bien que j'aie été le Grand Ancien de la Secte des Cadavres sur la planète Suzaku, des gens de mon rang, il y en a beaucoup, et il y a encore beaucoup de choses que j'ignore. Je sais seulement que la Secte des Cadavres était l'une des deux grandes sectes du Système Stellaire de l'Alliance.
+Sun Tai laissa échapper un soupir et dit amèrement: « Bien que j'aie été le Grand Ancien de la Secte Shi Yin sur la planète Suzaku, des gens de mon rang, il y en a beaucoup, et il y a encore beaucoup de choses que j'ignore. Je sais seulement que la Secte Shi Yin était l'une des deux grandes sectes du Système Stellaire de l'Alliance.
 
-Je parle de véritables sectes; non pas celles qui ne s'étendent que sur une seule planète. Ces sectes rayonnent à travers toute l'Alliance. Elles comptent d'innombrables cultivateurs puissants, et leur influence s'étend même dans les zones intérieures de l'Alliance de Culture.
+Je parle de véritables sectes; non pas celles qui ne s'étendent que sur une seule planète. Ces sectes rayonnent à travers toute l'Alliance. Elles comptent d'innombrables cultivateurs puissants, et leur influence s'étend même dans les zones intérieures de l'Alliance Xiu Zhen.
 
-La rumeur prétend que le maître de la Secte des Cadavres jouit d'un statut extrêmement élevé au sein de l'Alliance. C'est ce qui permet à la Secte des Cadavres de perdurer depuis si longtemps.
+La rumeur prétend que le maître de la Secte Shi Yin jouit d'un statut extrêmement élevé au sein de l'Alliance. C'est ce qui permet à la Secte Shi Yin de perdurer depuis si longtemps.
 
-Quant à l'autre grande secte capable de rivaliser avec la Secte des Cadavres, c'est la Secte des Quatre Divinités. Pour être précis, la planète Suzaku est considérée comme une branche éloignée de la Secte des Quatre Divinités. On disait que la première génération de Suzaku était originaire de la Planète des Quatre Divinités.
+Quant à l'autre grande secte capable de rivaliser avec la Secte Shi Yin, c'est la Secte Si Sheng. Pour être précis, la planète Suzaku est considérée comme une branche éloignée de la Secte Si Sheng. On disait que la première génération de Suzaku était originaire de la Planète des Quatre Divinités.
 
-La Planète des Quatre Divinités n'est elle-même qu'une branche de la Secte des Quatre Divinités. Si vous y réfléchissez, vous pouvez être considéré comme un disciple extérieur de la Secte des Quatre Divinités. »
+La Planète des Quatre Divinités n'est elle-même qu'une branche de la Secte Si Sheng. Si vous y réfléchissez, vous pouvez être considéré comme un disciple extérieur de la Secte Si Sheng. »
 
 Le regard de Wang Lin était très sérieux. Après tout, son temps en tant que cultivateur était relativement court et il ignorait encore de nombreux secrets. En entendant cela, il eut le sentiment d'acquérir une nouvelle compréhension du Système Stellaire de l'Alliance.
 
 Après réflexion, Wang Lin regarda Sun Tai et demanda: « Quel est votre statut au sein de la famille Ran? »
 
-« Je ne suis qu'un invité de la famille Ran, et je passe ma retraite au Pavillon du Trésor Intégral. L'ancêtre de la famille Ran ne m'a accueilli que parce que je possède quelques compétences en alchimie et en raffinage de trésors. » Les yeux de Sun Tai étaient empreints de mélancolie. Il hésita, puis ajouta: « Vous... vous n'auriez pas dû prendre cette pilule de rang huit. C'était un piège tendu par l'ancêtre de la famille Ran. Il y a quatre ans... »
+« Je ne suis qu'un invité de la famille Ran, et je passe ma retraite au Pavillon Bao He. L'ancêtre de la famille Ran ne m'a accueilli que parce que je possède quelques compétences en alchimie et en raffinage de trésors. » Les yeux de Sun Tai étaient empreints de mélancolie. Il hésita, puis ajouta: « Vous... vous n'auriez pas dû prendre cette pilule de rang huit. C'était un piège tendu par l'ancêtre de la famille Ran. Il y a quatre ans... »
 
 Sun Tai expliqua tout ce qu'il savait de ces quatre dernières années. Cela revenait pratiquement à ce que Sun Xi lui avait raconté.
 
@@ -108,7 +108,7 @@ Il sortit une sacoche de rangement, la posa lentement et dit: « Voici quelques 
 
 Sun Tai sortit tout en contemplant le coucher du soleil. La lueur orangée l'accompagna alors qu'il s'éloignait peu à peu.
 
-Il avait retrouvé un vieil ami et ne savait vraiment pas quel sentiment l'habitait. Tandis que Wang Lin regardait la silhouette de Sun Tai, l'image du puissant Grand Ancien de la Secte des Cadavres qui avait combattu Zhou Yi et dérobé le cadavre féminin se superposa lentement à cette silhouette.
+Il avait retrouvé un vieil ami et ne savait vraiment pas quel sentiment l'habitait. Tandis que Wang Lin regardait la silhouette de Sun Tai, l'image du puissant Grand Ancien de la Secte Shi Yin qui avait combattu Zhou Yi et dérobé le cadavre féminin se superposa lentement à cette silhouette.
 
 Jusqu'à son départ, il n'avait pas demandé ce qu'était devenu l'enfant démon qu'il avait libéré autrefois. Peut-être avait-il vraiment tout abandonné pour simplement vivre ses vingt dernières années dans la tranquillité.
 

@@ -1,6 +1,6 @@
 ---
 n: 211
-title: Secte du Ciel Nuageux
+title: Secte Yun Tian
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 211 - Ciel Nuageux Secte
@@ -10,49 +10,49 @@ Calendrier Suzaku, an 134 500. Dans le pays de culture de rang 3 de Chu, une lue
 
 La rumeur voulait qu'un trésor fût apparu en ces lieux, mais qu'il eût déjà été emporté par un tiers.
 
-Quant à ce bruit qui courait, certains cultivateurs refusaient d'y croire, tandis que d'autres étaient convaincus de sa véracité. La lueur étant apparue à moins de cinq mille kilomètres de la Secte du Ciel Nuageux, les rumeurs allaient bon train: le trésor aurait été obtenu par ladite secte.
+Quant à ce bruit qui courait, certains cultivateurs refusaient d'y croire, tandis que d'autres étaient convaincus de sa véracité. La lueur étant apparue à moins de cinq mille kilomètres de la Secte Yun Tian, les rumeurs allaient bon train: le trésor aurait été obtenu par ladite secte.
 
-La même année, la Secte du Ciel Nuageux parvint à raffiner une pilule Tian Sun. La qualité de cette pilule atteignait le début du cinquième rang. Son effet permettait à un cultivateur du stade de l'Âme Naissante ou supérieur, dont le corps charnel s'était désagrégé, de le restaurer immédiatement et de renaître sans avoir besoin de s'emparer du corps d'autrui.
+La même année, la Secte Yun Tian parvint à raffiner une pilule Tian Sun. La qualité de cette pilule atteignait le début du cinquième rang. Son effet permettait à un cultivateur du stade de l'Âme Naissante ou supérieur, dont le corps charnel s'était désagrégé, de le restaurer immédiatement et de renaître sans avoir besoin de s'emparer du corps d'autrui.
 
-Dès l'apparition de cette pilule, la déjà célèbre Secte du Ciel Nuageux gagna encore en renommée. Tous les pays de culture de rang 3 environnants le regardèrent avec envie; finalement, le clan Ju Mo, d'un pays de culture de rang 4, l'obtint en échange d'un accord secret. Avant de partir, ils placèrent une formation sur la Secte du Ciel Nuageux. Cette formation était si puissante que même des pays de rang 4 ordinaires auraient eu du mal à la briser.
+Dès l'apparition de cette pilule, la déjà célèbre Secte Yun Tian gagna encore en renommée. Tous les pays de culture de rang 3 environnants le regardèrent avec envie; finalement, le clan Ju Mo, d'un pays de culture de rang 4, l'obtint en échange d'un accord secret. Avant de partir, ils placèrent une formation sur la Secte Yun Tian. Cette formation était si puissante que même des pays de rang 4 ordinaires auraient eu du mal à la briser.
 
-Le dernier mois de cette même année, la Secte du Ciel Nuageux ouvrit ses portes pour son recrutement, un événement qui n'avait lieu que tous les trente ans.
+Le dernier mois de cette même année, la Secte Yun Tian ouvrit ses portes pour son recrutement, un événement qui n'avait lieu que tous les trente ans.
 
 Les diverses familles de culture du pays de Chu y envoyaient leurs descendants, espérant qu'ils puissent intégrer la secte et atteindre la grandeur sous sa protection.
 
-Cependant, les critères d'admission de la Secte du Ciel Nuageux étaient bien singuliers. Contrairement aux autres sectes qui privilégiaient le talent inné, le recrutement de la Secte du Ciel Nuageux reposait sur une sorte d'affinité du destin.
+Cependant, les critères d'admission de la Secte Yun Tian étaient bien singuliers. Contrairement aux autres sectes qui privilégiaient le talent inné, le recrutement de la Secte Yun Tian reposait sur une sorte d'affinité du destin.
 
 En conséquence, ce recrutement trentenaire ne permettait de recruter que dix personnes au plus. C'était bien peu comparé aux milliers d'individus qui se rassemblaient pour l'événement.
 
-En raison de la renommée de la Secte du Ciel Nuageux et du très faible nombre de disciples acceptés, presque tous les cultivateurs sans secte ni lignage rêvaient de devenir leurs disciples.
+En raison de la renommée de la Secte Yun Tian et du très faible nombre de disciples acceptés, presque tous les cultivateurs sans secte ni lignage rêvaient de devenir leurs disciples.
 
-Au sommet de la montagne de la Secte du Ciel Nuageux, dans un palais immortel, se trouvaient des rangées de pavillons aux balustrades sculptées et aux murs de jade, emplis d'un souffle d'immortels. C'était là l'entrée de la secte, et ce coin visible n'en était qu'une partie; tous les autres pavillons sculptés étaient dissimulés par des techniques divines. De loin, on ne pouvait percevoir qu'une forêt luxuriante et verdoyante, rien d'autre.
+Au sommet de la montagne de la Secte Yun Tian, dans un palais immortel, se trouvaient des rangées de pavillons aux balustrades sculptées et aux murs de jade, emplis d'un souffle d'immortels. C'était là l'entrée de la secte, et ce coin visible n'en était qu'une partie; tous les autres pavillons sculptés étaient dissimulés par des techniques divines. De loin, on ne pouvait percevoir qu'une forêt luxuriante et verdoyante, rien d'autre.
 
 Trois grands caractères verts flottaient, parfaitement immobiles, dans le vide au-dessus des pavillons sculptés, tels des lanternes géantes suspendues, maintenus par une technique divine.
 
-Ces mots étaient: « Secte du Ciel Nuageux ».
+Ces mots étaient: « Secte Yun Tian ».
 
 Lorsque commençait l'événement de recrutement, qui durait dix jours tous les trente ans, ces trois caractères apparaissaient dans le ciel et, une fois la période écoulée, ils disparaissaient.
 
-Ainsi, tous les cultivateurs errants et les familles de culture du pays de Chu savaient que dès l'apparition de ces mots, la Secte du Ciel Nuageux avait commencé son recrutement. Dès leur disparition, l'événement touchait à sa fin.
+Ainsi, tous les cultivateurs errants et les familles de culture du pays de Chu savaient que dès l'apparition de ces mots, la Secte Yun Tian avait commencé son recrutement. Dès leur disparition, l'événement touchait à sa fin.
 
-Ce matin-là, le ciel était dépourvu de nuages. Des éclats de lumière d'épée volaient de toutes les directions vers la Secte du Ciel Nuageux. Lorsqu'ils atteignirent une distance d'environ 500 kilomètres de la montagne, ils descendirent de leurs épées volantes, révélant de nombreux jeunes gens. Ils étaient tous assez jeunes. Certains voyageaient seuls, tandis que d'autres étaient accompagnés de leurs aînés.
+Ce matin-là, le ciel était dépourvu de nuages. Des éclats de lumière d'épée volaient de toutes les directions vers la Secte Yun Tian. Lorsqu'ils atteignirent une distance d'environ 500 kilomètres de la montagne, ils descendirent de leurs épées volantes, révélant de nombreux jeunes gens. Ils étaient tous assez jeunes. Certains voyageaient seuls, tandis que d'autres étaient accompagnés de leurs aînés.
 
-Par respect pour la Secte du Ciel Nuageux, presque tous ceux qui souhaitaient s'y joindre descendirent de leurs épées à 500 kilomètres de distance et poursuivirent leur route à pied.
+Par respect pour la Secte Yun Tian, presque tous ceux qui souhaitaient s'y joindre descendirent de leurs épées à 500 kilomètres de distance et poursuivirent leur route à pied.
 
 Si l'on regardait du ciel à cet instant, on aurait pu voir une multitude d'individus marchant vers la secte dans un rayon de cinq cents kilomètres.
 
-Devant la porte de la Secte du Ciel Nuageux se tenaient trois cultivateurs chargés d'accueillir et d'orienter ceux qui venaient demander à devenir disciples.
+Devant la porte de la Secte Yun Tian se tenaient trois cultivateurs chargés d'accueillir et d'orienter ceux qui venaient demander à devenir disciples.
 
-À environ deux cent cinquante kilomètres de l'entrée, un homme et une femme marchaient. L'homme avait environ vingt-sept ou vingt-huit ans. Il avançait d'un pas très calme et serein. Sur ses vêtements était brodée une épée volante pourpre, signe qu'il était déjà disciple interne de la Secte de l'Épée.
+À environ deux cent cinquante kilomètres de l'entrée, un homme et une femme marchaient. L'homme avait environ vingt-sept ou vingt-huit ans. Il avançait d'un pas très calme et serein. Sur ses vêtements était brodée une épée volante pourpre, signe qu'il était déjà disciple interne de la Secte Jian Qi.
 
 À ses côtés marchait une jeune fille de vingt ans. Elle portait une robe violette avec une ceinture assortie. Elle possédait de jolies courbes, tout en dégageant une certaine douceur.
 
-En y regardant de plus près, la jeune fille était très attrayante; la décrire comme une fleur magnifique n'aurait pas été exagéré. Elle pinça ses lèvres rouges et se frotta les jambes. « Grand frère, qu'y a-t-il de si spécial dans cette Secte du Ciel Nuageux pour que je doive faire tout ce chemin? L'alchimie ne me plaît pas. Je préfère la Secte de l'Épée », se plaignit-elle.
+En y regardant de plus près, la jeune fille était très attrayante; la décrire comme une fleur magnifique n'aurait pas été exagéré. Elle pinça ses lèvres rouges et se frotta les jambes. « Grand frère, qu'y a-t-il de si spécial dans cette Secte Yun Tian pour que je doive faire tout ce chemin? L'alchimie ne me plaît pas. Je préfère la Secte Jian Qi », se plaignit-elle.
 
-L'expression de l'homme resta imperturbable. Il regarda la jeune fille, lui toucha le front du bout du doigt et sourit. « Il y a trop de sang versé dans la Secte de l'Épée. Ce n'est pas fait pour toi. Je sais que la Secte du Ciel Nuageux est la première de toutes les sectes du pays de Chu. Même si le pays devait subir un grand désastre, cela n'affecterait pas la secte. Si tu réussis à y entrer, ton frère sera soulagé. Si mère et père étaient encore en vie, ils le seraient tout autant. »
+L'expression de l'homme resta imperturbable. Il regarda la jeune fille, lui toucha le front du bout du doigt et sourit. « Il y a trop de sang versé dans la Secte Jian Qi. Ce n'est pas fait pour toi. Je sais que la Secte Yun Tian est la première de toutes les sectes du pays de Chu. Même si le pays devait subir un grand désastre, cela n'affecterait pas la secte. Si tu réussis à y entrer, ton frère sera soulagé. Si mère et père étaient encore en vie, ils le seraient tout autant. »
 
-En entendant son frère évoquer leurs parents, l'expression de la jeune fille s'assombrit légèrement. Après une courte réflexion, elle hocha la tête docilement. Puis elle dit à son frère d'une voix de rossignol: « Grand frère, si j'entre dans la Secte du Ciel Nuageux, je fabriquerai des pilules rien que pour toi. Ensuite, quand ta culture sera élevée, nous pourrons rentrer à la maison et donner une leçon à ces vieux. »
+En entendant son frère évoquer leurs parents, l'expression de la jeune fille s'assombrit légèrement. Après une courte réflexion, elle hocha la tête docilement. Puis elle dit à son frère d'une voix de rossignol: « Grand frère, si j'entre dans la Secte Yun Tian, je fabriquerai des pilules rien que pour toi. Ensuite, quand ta culture sera élevée, nous pourrons rentrer à la maison et donner une leçon à ces vieux. »
 
 En entendant cela, un éclat froid passa dans les yeux de l'homme. Par crainte d'effrayer sa sœur, il ne lui avait jamais révélé la vérité sur ce qui s'était passé cette année-là.
 
@@ -64,7 +64,7 @@ Il était donc très rare de voir quelqu'un habillé ainsi; c'était manifesteme
 
 Comme s'il avait entendu la voix de la jeune fille, le jeune homme se retourna pour les regarder et, sans perdre un instant, détourna son regard pour reprendre sa marche.
 
-Une pointe de surprise traversa le regard de l'homme. Il savait que sa sœur était très séduisante et que, durant le voyage, la plupart des passants ne pouvaient s'empêcher de la dévisager. Surtout depuis qu'ils étaient entrés dans le périmètre des cinq cents kilomètres de la Secte du Ciel Nuageux, chaque rencontre s'attardait sur elle; pourtant, les yeux de ce jeune homme étaient aussi calmes que l'eau dormante et, lorsqu'il avait croisé le regard de sa sœur, aucune émotion n'avait traversé ses yeux.
+Une pointe de surprise traversa le regard de l'homme. Il savait que sa sœur était très séduisante et que, durant le voyage, la plupart des passants ne pouvaient s'empêcher de la dévisager. Surtout depuis qu'ils étaient entrés dans le périmètre des cinq cents kilomètres de la Secte Yun Tian, chaque rencontre s'attardait sur elle; pourtant, les yeux de ce jeune homme étaient aussi calmes que l'eau dormante et, lorsqu'il avait croisé le regard de sa sœur, aucune émotion n'avait traversé ses yeux.
 
 L'homme projeta son Sens Divin et découvrit que la culture du jeune homme ne se situait qu'aux deuxième ou troisième couches de la Condensation de Qi. Après une brève exploration, il retira son attention.
 
@@ -80,7 +80,7 @@ Le visage de la jeune fille devint rouge. Elle réfléchit un instant et réalis
 
 Le frère de la jeune fille arqua les lèvres dans un léger sourire. Il n'était pas du tout irrité par la réponse du garçon; au contraire, il avait ressenti la même chose lorsque sa sœur avait posé la question.
 
-La jeune fille tapa du pied et rattrapa le garçon. Elle marcha à ses côtés en bougonnant: « Ma question n'était pas inutile! Avec tes vêtements, peu importe comment on te regarde, on ne dirait pas que tu viens pour la secte. Regarde les autres. Personne n'est habillé comme toi. Tu devrais savoir que lorsque la Secte du Ciel Nuageux accepte des disciples... »
+La jeune fille tapa du pied et rattrapa le garçon. Elle marcha à ses côtés en bougonnant: « Ma question n'était pas inutile! Avec tes vêtements, peu importe comment on te regarde, on ne dirait pas que tu viens pour la secte. Regarde les autres. Personne n'est habillé comme toi. Tu devrais savoir que lorsque la Secte Yun Tian accepte des disciples... »
 
 Le jeune homme fronça de nouveau les sourcils et soupira intérieurement. À ses yeux, cette fille n'était qu'une gamine, et une gamine particulièrement agaçante.
 
@@ -94,7 +94,7 @@ Le jeune homme ne daigna même pas y jeter un œil. Il secoua la tête et poursu
 
 La jeune fille laissa échapper un petit bruit de mépris et abandonna l'idée. Elle retourna auprès de son frère et lui remit toutes les noix de litchi.
 
-Quatre heures plus tard, la porte de la Secte du Ciel Nuageux apparut au loin. Le garçon laissa échapper un soupir en contemplant la magnifique entrée. Il ne put s'empêcher de penser à la Secte Heng Yue.
+Quatre heures plus tard, la porte de la Secte Yun Tian apparut au loin. Le garçon laissa échapper un soupir en contemplant la magnifique entrée. Il ne put s'empêcher de penser à la Secte Heng Yue.
 
 Ce jeune homme était Wang Lin.
 
@@ -102,33 +102,33 @@ Plus précisément, il s'agissait de l'avatar de Wang Lin, créé par la techniq
 
 Cependant, ce corps n'avait que trente ans à vivre.
 
-C'était la seule méthode qu'il avait trouvée pour franchir le stade de l'Âme Naissante sans disperser sa culture ni renoncer au Royaume Ji. Quant à son corps principal, il était caché quelque part près de la Secte du Ciel Nuageux.
+C'était la seule méthode qu'il avait trouvée pour franchir le stade de l'Âme Naissante sans disperser sa culture ni renoncer au Royaume Ji. Quant à son corps principal, il était caché quelque part près de la Secte Yun Tian.
 
 Il avait déjà abandonné la grotte qu'il occupait auparavant car, à l'instant où l'avatar était apparu, des lueurs d'aurore étaient surgies, comme par prodige, et ne se dissipaient pas.
 
 Il avait donc dû quitter précipitamment son repaire pour trouver un autre endroit afin de commencer sa culture en isolement.
 
-Son corps principal s'était lancé dans une méditation intensive tandis que son avatar vivait dans un village au pied de la montagne pendant quelques mois. Lorsqu'il apprit que la Secte du Ciel Nuageux recrutait, il réfléchit et décida de tenter sa chance.
+Son corps principal s'était lancé dans une méditation intensive tandis que son avatar vivait dans un village au pied de la montagne pendant quelques mois. Lorsqu'il apprit que la Secte Yun Tian recrutait, il réfléchit et décida de tenter sa chance.
 
 C'était l'origine de la scène actuelle. Dans le plan initial de Wang Lin, une fois ses réserves de liquide spirituel épuisées, il comptait kidnapper un disciple de la secte pour s'y infiltrer et voler des pilules.
 
 Mais comme le recrutement avait justement lieu, Wang Lin décida d'abandonner ce projet. S'il parvenait à intégrer la secte légalement, il n'aurait pas besoin de s'embêter avec des kidnappings et des vols risqués.
 
-Tous ceux qui venaient pour rejoindre la Secte du Ciel Nuageux furent conduits sur une montagne latérale pour se reposer. Une fois les dix jours écoulés, ils seraient tous emmenés au cœur de la secte pour le processus de sélection.
+Tous ceux qui venaient pour rejoindre la Secte Yun Tian furent conduits sur une montagne latérale pour se reposer. Une fois les dix jours écoulés, ils seraient tous emmenés au cœur de la secte pour le processus de sélection.
 
 Lorsque la jeune fille marchant avec Wang Lin fut emmenée par les disciples à la porte, son frère s'apprêta à partir, mais il jeta un dernier regard sur Wang Lin.
 
 L'expression de Wang Lin était calme. Bien que sa culture fût absente, son expérience demeurait intacte. L'homme devant lui n'était certainement pas encore au stade de la Formation du Noyau et se situait, au mieux, à un stade avancé de l'Établissement des Fondations. Si Wang Lin avait utilisé son corps principal, il aurait pu l'éliminer sans le moindre effort.
 
-Après quelques jours passés à la Secte du Ciel Nuageux, les trois grands caractères flottant dans le ciel se dissipèrent lentement. Ils finirent par disparaître sans laisser de trace, signalant la fin de la période de recrutement.
+Après quelques jours passés à la Secte Yun Tian, les trois grands caractères flottant dans le ciel se dissipèrent lentement. Ils finirent par disparaître sans laisser de trace, signalant la fin de la période de recrutement.
 
 L'étape suivante consistait à choisir au plus dix disciples pour la secte. Tous les autres seraient renvoyés de la montagne.
 
 Ce jour-là, des milliers de postulants étaient assis en tailleur sur une immense estrade au pied de la montagne, attendant l'examen. Parmi eux se trouvaient des hommes et des femmes, des jeunes et des vieillards; certains avaient même atteint la Formation du Noyau, tandis que d'autres, comme Wang Lin, n'étaient qu'aux deuxième ou troisième couches de la Condensation de Qi.
 
-Plusieurs dizaines de disciples en robe blanche de la Secte du Ciel Nuageux se tenaient au bord de l'estrade, le regard indifférent. Ils dégageaient une certaine morgue; après tout, ils étaient déjà membres de la secte, leur rang étant naturellement supérieur à celui des candidats.
+Plusieurs dizaines de disciples en robe blanche de la Secte Yun Tian se tenaient au bord de l'estrade, le regard indifférent. Ils dégageaient une certaine morgue; après tout, ils étaient déjà membres de la secte, leur rang étant naturellement supérieur à celui des candidats.
 
-Peu de temps après, un homme d'âge moyen vêtu d'une robe blanche, dont les manches étaient brodées de trois fourneaux à pilules, descendit de la montagne en flottant. Il stationna au-dessus de l'estrade et embrassa la foule du regard. D'une voix grave, il déclara: « Quiconque entre dans ma Secte du Ciel Nuageux voit sa génération abaissée de dix degrés. Si cela ne vous convient pas, partez dès maintenant. »
+Peu de temps après, un homme d'âge moyen vêtu d'une robe blanche, dont les manches étaient brodées de trois fourneaux à pilules, descendit de la montagne en flottant. Il stationna au-dessus de l'estrade et embrassa la foule du regard. D'une voix grave, il déclara: « Quiconque entre dans ma Secte Yun Tian voit sa génération abaissée de dix degrés. Si cela ne vous convient pas, partez dès maintenant. »
 
 Lorsqu'il eut fini de parler, aucune des milliers de personnes sur l'estrade ne bougea. Toutes levèrent les yeux vers lui avec détermination. Parmi elles, quelques cultivateurs de la Formation du Noyau savaient que ces paroles s'adressaient particulièrement à eux.
 
@@ -142,7 +142,7 @@ L'expression de Wang Lin demeura impassible. Il fixa la colonne noire et commen�
 
 Les yeux de Wang Lin scintillèrent légèrement. Il continua d'analyser la colonne jusqu'à ce qu'un léger sourire apparaisse sur son visage. À ses yeux, cette colonne était clairement une forme de restriction, destinée à imposer une certaine limitation à tous ceux qui l'examinaient.
 
-C'était sans doute le moyen pour la Secte du Ciel Nuageux d'écarter une partie des postulants, mais Wang Lin se demandait encore en quoi consistait exactement la limitation imposée par cette restriction.
+C'était sans doute le moyen pour la Secte Yun Tian d'écarter une partie des postulants, mais Wang Lin se demandait encore en quoi consistait exactement la limitation imposée par cette restriction.
 
 Quel genre de disciples la secte cherchait-elle à débusquer par ce test?
 
@@ -192,13 +192,13 @@ Wang Lin ignorait la signification de ces trois objets, mais à cet instant, une
 
 La jeune fille avait toujours l'impression que tout était flou. Encore hébétée, elle fut conduite vers les hauteurs par un disciple de la secte.
 
-Voyant qu'un candidat avait réussi l'examen, les gens sur l'estrade commencèrent à s'interroger, mais les membres de la Secte du Ciel Nuageux n'en furent nullement perturbés.
+Voyant qu'un candidat avait réussi l'examen, les gens sur l'estrade commencèrent à s'interroger, mais les membres de la Secte Yun Tian n'en furent nullement perturbés.
 
 Les yeux de Wang Lin brillèrent. Il avait clairement compris que ce n'était pas parce que la fille avait percé le mystère de la brume, mais que le morceau de jade à l'intérieur avait choisi la jeune fille.
 
 De plus, lorsque l'homme d'âge moyen vit le jade tomber dans la main de la jeune fille, il ne s'empressa pas de l'annoncer; il alla vérifier la pierre avant de valider son succès. De cette observation, Wang Lin conclut que l'homme était allé s'assurer que le jade avait réellement fait son choix. S'il avait agi à la légère tout à l'heure, il aurait sans doute déjà laissé paraître une faille.
 
-Wang Lin ricana intérieurement. La méthode de recrutement de la Secte du Ciel Nuageux était effectivement bien étrange.
+Wang Lin ricana intérieurement. La méthode de recrutement de la Secte Yun Tian était effectivement bien étrange.
 
 À ce moment précis, une lumière dorée commença à clignoter de nouveau depuis le pilier. Les yeux de Wang Lin brillèrent et sa main droite traça secrètement une restriction. Avec l'énergie spirituelle dont il disposait, il ne pouvait utiliser que des restrictions simples et n'était pas en mesure de former un cercle de restrictions.
 

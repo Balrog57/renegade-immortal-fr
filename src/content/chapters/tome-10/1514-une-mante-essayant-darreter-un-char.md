@@ -22,7 +22,7 @@ Même les cultivateurs du troisième niveau reculèrent avec effroi. Pourtant, l
 
 « Avec une telle bête à ses côtés, même sans être un cultivateur du troisième niveau, on suffirait à devenir célèbre! » Les autres cultivateurs des Sectes des Fantômes et des Démons contemplaient tous la Bête des Limbes. Bien qu'ils fussent horrifiés par elle, la créature exerçait également sur eux une attraction irrésistible!
 
-« Une bête d'essence vitale! Ce Wang Lin a réellement réussi à apprivoiser cette bête... Le choix du Seigneur du Royaume Scellé n'était pas erroné... » Maître Hong Shan échangea un regard avec le vieil homme de la Secte des Cadavres.
+« Une bête d'essence vitale! Ce Wang Lin a réellement réussi à apprivoiser cette bête... Le choix du Seigneur du Royaume Scellé n'était pas erroné... » Maître Hong Shan échangea un regard avec le vieil homme de la Secte Shi Yin.
 
 Tandis que tous reculaient, seul Wang Lin fit un pas en avant et posa doucement sa main droite sur la Bête des Limbes. La peur dans les yeux de la créature disparut progressivement. Elle ressentait une grande chaleur auprès de Wang Lin, et l'essentiel de son effroi s'estompa.
 
@@ -68,7 +68,7 @@ Cependant, au moment même où cette énergie froide se répandait, une chaleur 
 
 Wang Lin se rapprocha. Dès que le vortex pourpre fut sur lui, sa main droite se serra en un poing et il lança le second coup qu'il avait retenu plus tôt!
 
-Ce coup était dévastateur; le poing fantôme géant entra en collision avec le vortex pourpre. Un grondement tonitruant se propagea rapidement à travers la Mer des Nuages.
+Ce coup était dévastateur; le poing fantôme géant entra en collision avec le vortex pourpre. Un grondement tonitruant se propagea rapidement à travers la Mer Yun.
 
 Lorsque le vortex toucha le poing fantôme, des bruits de craquements retentirent et de la glace commença à recouvrir l'attaque. En un éclair, le poing fantôme de Wang Lin fut figé par la glace, tel une sculpture de cristal!
 
@@ -98,6 +98,6 @@ Ses cheveux blancs flottant au vent, sa silhouette blanche en mouvement... c'ét
 
 « C'est le karma! Maintenant, je vais prendre votre vie! » Le passé refit surface devant les yeux de Wang Lin et il s'avança, imprégné d'une intention meurtrière!
 
-« Vous ne pouvez pas me tuer! Je suis l'Ancien de la Secte Divine, je suis un cultivateur du troisième niveau de la Mer des Nuages, je suis l'esclave du Seigneur du Royaume Scellé! Vous ne pouvez pas me tuer! J'apporterai des mérites au royaume intérieur. Je possède des informations sur le royaume extérieur. Si vous me laissez partir, je suis prêt à devenir votre esclave! »
+« Vous ne pouvez pas me tuer! Je suis l'Ancien de la Secte Divine, je suis un cultivateur du troisième niveau de la Mer Yun, je suis l'esclave du Seigneur du Royaume Scellé! Vous ne pouvez pas me tuer! J'apporterai des mérites au royaume intérieur. Je possède des informations sur le royaume extérieur. Si vous me laissez partir, je suis prêt à devenir votre esclave! »
 
 Bien que Shui Daozi fût un cultivateur du troisième niveau, son cœur était bien plus vil. Face à la mort imminente, il abandonna toute dignité et hurla bruyamment: « Je suis prêt à devenir votre esclave, ne me tuez pas! »

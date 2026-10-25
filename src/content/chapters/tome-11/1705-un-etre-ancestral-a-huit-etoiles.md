@@ -18,13 +18,13 @@ Sur le Continent Astral Immortel, Fan Shanmeng, qui était assise à l'intérieu
 
 « C'est... C'est l'aura d'un Grand Empyréen!! »
 
-Sur le Continent Astral Immortel, parmi les neuf sectes et treize factions de l'Est, la première était la Secte du Soleil Violet! La puissance de cette seule secte suffisait à balayer les huit autres sectes.
+Sur le Continent Astral Immortel, parmi les neuf sectes et treize factions de l'Est, la première était la Secte Zi Yang! La puissance de cette seule secte suffisait à balayer les huit autres sectes.
 
-C'était parce que l'un des légendaires Grands Empyréens était un membre de la Secte du Soleil Violet. L'un des neuf soleils du Continent Astral Immortel!
+C'était parce que l'un des légendaires Grands Empyréens était un membre de la Secte Zi Yang. L'un des neuf soleils du Continent Astral Immortel!
 
-Cependant, ce Grand Empyréen était très mystérieux, et peu de gens savaient à quoi il ressemblait. On ignorait même si ce Grand Empyréen était un homme ou une femme. Pourtant, plus ce Grand Empyréen était mystérieux, moins les gens osaient provoquer la Secte du Soleil Violet.
+Cependant, ce Grand Empyréen était très mystérieux, et peu de gens savaient à quoi il ressemblait. On ignorait même si ce Grand Empyréen était un homme ou une femme. Pourtant, plus ce Grand Empyréen était mystérieux, moins les gens osaient provoquer la Secte Zi Yang.
 
-À cet instant, au sein de la Secte du Soleil Violet, sept ou huit vieillards étaient rassemblés, les visages empreints d'amertume. Un homme d'âge moyen à l'allure digne se tenait devant eux et rugit:
+À cet instant, au sein de la Secte Zi Yang, sept ou huit vieillards étaient rassemblés, les visages empreints d'amertume. Un homme d'âge moyen à l'allure digne se tenait devant eux et rugit:
 
 « Que tous vous me disiez ce qui se passe! »
 
@@ -34,7 +34,7 @@ Cependant, ce Grand Empyréen était très mystérieux, et peu de gens savaient 
 
 « Nous ne pouvons pas ouvrir le Domaine de la Ferme des Bêtes. Ils l'ont scellé et refusent de nous laisser entrer... » Un autre vieil homme secoua amèrement la tête.
 
-« Aucune erreur n'est permise dans la réincarnation du Grand Empyréen. Elles sont encore en pleine croissance, il n'est pas idéal d'utiliser leur pouvoir de Grand Empyréen... Ces deux petits ancêtres, que font-elles donc? » L'homme d'âge moyen frappa du pied et toute la Secte du Soleil Violet trembla. Même le monde extérieur en fut ébranlé.
+« Aucune erreur n'est permise dans la réincarnation du Grand Empyréen. Elles sont encore en pleine croissance, il n'est pas idéal d'utiliser leur pouvoir de Grand Empyréen... Ces deux petits ancêtres, que font-elles donc? » L'homme d'âge moyen frappa du pied et toute la Secte Zi Yang trembla. Même le monde extérieur en fut ébranlé.
 
 À l'intérieur de la faille spatiale, Wang Lin était assis sur l'autel et vit l'aura terrifiante qui avait jailli de Tan Lang. Un choc apparut dans ses yeux.
 
@@ -60,9 +60,9 @@ Ce souvenir ne serait peut-être jamais revenu, même après cent millions d'ann
 
 Et ce souvenir qui s'éveillait était la troisième âme du Daoïste aux Sept Couleurs!
 
-Dans la faille spatiale de la Mer des Nuages, le Daoïste aux Sept Couleurs s'échappa en panique. Il cracha du sang et disparut sans laisser de trace.
+Dans la faille spatiale de la Mer Yun, le Daoïste aux Sept Couleurs s'échappa en panique. Il cracha du sang et disparut sans laisser de trace.
 
-Il ressentait désormais une peur extrême envers la faille de la Mer des Nuages. Il n'aurait jamais pu imaginer que la chasse à Wang Lin provoquerait l'apparition de l'aura d'un Grand Empyréen.
+Il ressentait désormais une peur extrême envers la faille de la Mer Yun. Il n'aurait jamais pu imaginer que la chasse à Wang Lin provoquerait l'apparition de l'aura d'un Grand Empyréen.
 
 Sur l'autel, à l'intérieur de la faille, Wang Lin regarda avec stupeur le soleil entourer Tan Lang et l'entraîner dans la faille.
 

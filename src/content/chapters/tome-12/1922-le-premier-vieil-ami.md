@@ -10,21 +10,21 @@ L'édit impérial de l'Empereur Céleste enjoignait Wang Lin à le rejoindre dan
 
 En un éclair, trois ans passèrent.
 
-Durant ces trois années, Wang Lin créa une grotte sous l'immensité désertique du continent Terre-Meng. Il s'y installa pour méditer sur toutes les compréhensions qu'il avait acquises lors de son combat contre l'ancêtre de la Secte du Dao Démoniaque.
+Durant ces trois années, Wang Lin créa une grotte sous l'immensité désertique du continent Terre-Meng. Il s'y installa pour méditer sur toutes les compréhensions qu'il avait acquises lors de son combat contre l'ancêtre de la Secte Dao Mo.
 
 Après trois ans passés sous le désert, Wang Lin ouvrit les yeux. Son regard semblait contenir l'éclat des étoiles.
 
 « Compte tenu de mon niveau de culture sans l'armure de l'âme, mon coup de poing ne peut contenir, au maximum, que neuf sorts. » Wang Lin leva sa main droite devant lui et la serra. Des grondements sourds émanèrent de sa paume.
 
-« Malgré cela, mon coup est bien plus puissant qu'il ne l'était il y a trois ans. Si je devais affronter à nouveau l'ancêtre de la Secte du Dao Démoniaque sans l'armure de l'âme, je pourrais égaler son premier coup! »
+« Malgré cela, mon coup est bien plus puissant qu'il ne l'était il y a trois ans. Si je devais affronter à nouveau l'ancêtre de la Secte Dao Mo sans l'armure de l'âme, je pourrais égaler son premier coup! »
 
-Lorsqu'il avait affronté le premier coup de l'ancêtre de la Secte du Dao Démoniaque, Wang Lin avait été forcé de reculer de trois pas. Désormais, après trois ans, bien que son niveau de culture fût resté inchangé, sa force de combat avait considérablement augmenté.
+Lorsqu'il avait affronté le premier coup de l'ancêtre de la Secte Dao Mo, Wang Lin avait été forcé de reculer de trois pas. Désormais, après trois ans, bien que son niveau de culture fût resté inchangé, sa force de combat avait considérablement augmenté.
 
-« Malheureusement, après trois ans d'observation, j'ai appris que les âmes originelles des Exaltés Dorés ne me permettent de créer que jusqu'à six Veines de Sorts, alors qu'il m'en faut neuf! » Wang Lin avait clairement ressenti la puissance de l'Art Rapide des Sorts lors de son combat contre l'ancêtre de la Secte du Dao Démoniaque.
+« Malheureusement, après trois ans d'observation, j'ai appris que les âmes originelles des Exaltés Dorés ne me permettent de créer que jusqu'à six Veines de Sorts, alors qu'il m'en faut neuf! » Wang Lin avait clairement ressenti la puissance de l'Art Rapide des Sorts lors de son combat contre l'ancêtre de la Secte Dao Mo.
 
 Cependant, la raison pour laquelle ce sort était si puissant résidait dans la qualité exceptionnelle des Veines de Sorts que Wang Lin avait formées. Mais plus la qualité est élevée, plus il est difficile de créer de nouvelles Veines.
 
-L'âme originelle du Maître de la Secte du Dao Démoniaque avait ouvert la quatrième et la cinquième Veine de Sort, mais la sixième nécessitait neuf Exaltés Dorés!
+L'âme originelle du Maître de la Secte Dao Mo avait ouvert la quatrième et la cinquième Veine de Sort, mais la sixième nécessitait neuf Exaltés Dorés!
 
 « Créer de nouvelles Veines de Sort de cette manière est vraiment... trop difficile. La sixième nécessite neuf Exaltés Dorés, la septième requiert neuf Exaltés Empyréens. Se pourrait-il que la huitième exige neuf Ascendants Empyréens...? Si tel est le cas, la neuvième nécessitera-t-elle neuf Grands Empyréens...? Peut-être que la neuvième n'exigera qu'un seul Grand Empyréen... » Wang Lin sourit amèrement.
 
@@ -34,7 +34,7 @@ Mon véritable niveau de culture n'est qu'au début du stade Tribulation du Vide
 
 Alors, je pourrai intégrer encore plus de sorts. J'ignore combien j'en serai capable après avoir atteint le milieu du stade Tribulation du Vide!
 
-Outre cela, je dois affronter davantage d'Exaltés Empyréens et attirer l'attention des autres Grands Empyréens... De plus, je dois rechercher des informations sur l'Épreuve Empyréenne et voir si elle est réellement ce que l'ancêtre de la Secte du Dao Démoniaque avait affirmé. »
+Outre cela, je dois affronter davantage d'Exaltés Empyréens et attirer l'attention des autres Grands Empyréens... De plus, je dois rechercher des informations sur l'Épreuve Empyréenne et voir si elle est réellement ce que l'ancêtre de la Secte Dao Mo avait affirmé. »
 
 Les yeux de Wang Lin s'illuminèrent et il se leva après ces trois années de méditation.
 
@@ -44,7 +44,7 @@ Le corps de Wang Lin apparut dans le désert en un éclair. D'un revers de manch
 
 L'expression de Wang Lin était calme alors qu'il montait sur la tête du dragon. Ce dernier s'élança et disparut sans laisser de trace.
 
-« Le continent Terre-Meng possède deux sectes: la Secte de la Terre et la Secte Terre-Meng! Toutes deux font partie des neuf sectes et treize factions, mais elles ne possèdent que des Exaltés Dorés, aucun Exalté Empyréen! » Wang Lin, assis sur le dragon, consultait les informations sur le continent Terre-Meng via la carapace de tortue.
+« Le continent Terre-Meng possède deux sectes: la Secte Di et la Secte Terre-Meng! Toutes deux font partie des neuf sectes et treize factions, mais elles ne possèdent que des Exaltés Dorés, aucun Exalté Empyréen! » Wang Lin, assis sur le dragon, consultait les informations sur le continent Terre-Meng via la carapace de tortue.
 
 « Bien que j'aie besoin des âmes originelles des Exaltés Dorés, ces deux sectes n'ont aucune querelle avec moi, alors peu importe! » Les yeux de Wang Lin brillèrent et il envoya un message par Sens Divin. Le dragon marin sous lui vola vers le Continent Céleste, relié au continent Terre-Meng.
 
@@ -54,7 +54,7 @@ La tortue indiquait vaguement que la Secte Céleste du Continent Céleste compta
 
 Si Wang Lin était entré dans le continent Terre-Meng avec son niveau de culture précédent, ces deux sectes auraient été des colosses qu'il aurait soigneusement évités. Mais la situation avait changé. À ses yeux, ce n'étaient plus que des sectes ordinaires qui n'avaient rien de terrifiant.
 
-« Cet endroit est le plus proche de la Secte de la Terre, allons-y en premier! » La carte apparut dans l'esprit de Wang Lin et, un instant plus tard, le dragon marin changea de direction, filant droit vers l'est jusqu'à disparaître.
+« Cet endroit est le plus proche de la Secte Di, allons-y en premier! » La carte apparut dans l'esprit de Wang Lin et, un instant plus tard, le dragon marin changea de direction, filant droit vers l'est jusqu'à disparaître.
 
 Le continent Terre-Meng était majoritairement recouvert de déserts qui s'étendaient comme un océan. À chaque tempête, d'immenses masses de sable s'élevaient, créant des tempêtes terrifiantes.
 
@@ -64,11 +64,11 @@ Heureusement, les tempêtes dotées d'une telle force étaient rares. Elles éta
 
 En temps normal, cet endroit était plongé dans l'obscurité par les tourbillons de sable, ce qui le rendait très difficile d'accès sans une méthode spéciale.
 
-Au cœur de cette étrange tempête se trouvait une secte célèbre dans tout le continent Terre-Meng: la Secte de la Terre!
+Au cœur de cette étrange tempête se trouvait une secte célèbre dans tout le continent Terre-Meng: la Secte Di!
 
-Bien qu'il existât de nombreuses sectes sur le continent, seules la Secte de la Terre et la Secte Terre-Meng en étaient les maîtres. Personne n'osait provoquer ces deux géants qui contrôlaient l'intégralité du continent.
+Bien qu'il existât de nombreuses sectes sur le continent, seules la Secte Di et la Secte Terre-Meng en étaient les maîtres. Personne n'osait provoquer ces deux géants qui contrôlaient l'intégralité du continent.
 
-À cet instant, dans la tempête où siégeait la Secte de la Terre, le monde était plongé dans le noir. Un immense dragon marin apparut, portant Wang Lin sur sa tête. Dès leur entrée dans la tempête, un vent violent se leva.
+À cet instant, dans la tempête où siégeait la Secte Di, le monde était plongé dans le noir. Un immense dragon marin apparut, portant Wang Lin sur sa tête. Dès leur entrée dans la tempête, un vent violent se leva.
 
 Pourtant, bien que ce vent fût anormalement puissant, lorsqu'il frappa Wang Lin, il ne parvint même pas à faire bouger un seul de ses cheveux. C'était comme si le corps de Wang Lin était une illusion plutôt qu'une réalité physique.
 
@@ -78,15 +78,15 @@ Sentant la tempête, il percevait la puissance du vent et de la terre. Wang Lin 
 
 Ils volèrent ainsi vers le centre de la tempête. Une lumière ocre couvrait une zone de dizaines de milliers de kilomètres, empêchant le sable de pénétrer à l'intérieur.
 
-C'était là que se trouvait la Secte de la Terre.
+C'était là que se trouvait la Secte Di.
 
 L'ensemble de la secte ressemblait à un jardin d'Éden, semblant presque irréel au milieu de la tempête. On y trouvait des montagnes, des cours d'eau et des pavillons partout, ainsi qu'une multitude de disciples survolant la zone.
 
-La Secte de la Terre comptait moins de 30 000 disciples, ce qui tranchait avec le reste des neuf sectes et treize factions. Elle ne recherchait que les talents exceptionnels, et non des disciples ordinaires!
+La Secte Di comptait moins de 30 000 disciples, ce qui tranchait avec le reste des neuf sectes et treize factions. Elle ne recherchait que les talents exceptionnels, et non des disciples ordinaires!
 
 Les disciples suivaient une hiérarchie stricte composée de neuf rangs différents. Parallèlement, la quantité de ressources allouée à chaque disciple était bien supérieure à celle des autres sectes, car elle n'avait qu'à se diviser entre 30 000 membres!
 
-Toutes leurs ressources étaient consacrées à la culture de ces 30 000 disciples, en particulier les plus doués. La Secte de la Terre avait ainsi accumulé des richesses inimaginables.
+Toutes leurs ressources étaient consacrées à la culture de ces 30 000 disciples, en particulier les plus doués. La Secte Di avait ainsi accumulé des richesses inimaginables.
 
 Au sein de la secte, le nombre de membres de rang 1 était très faible, moins de cent personnes. Les membres de rang 9 étaient les plus nombreux, dépassant les 20 000.
 
@@ -122,8 +122,8 @@ La confusion se lut dans les yeux de l'homme.
 
 « Est-ce vraiment seulement un rêve...? » L'homme ferma les yeux.
 
-Tandis que l'homme sombrait dans son trouble, Wang Lin, impassible, se tenait devant le rideau de lumière de la Secte de la Terre. Il avait traversé la tempête déchaînée et ressenti la force magnétique, mais il pouvait l'ignorer.
+Tandis que l'homme sombrait dans son trouble, Wang Lin, impassible, se tenait devant le rideau de lumière de la Secte Di. Il avait traversé la tempête déchaînée et ressenti la force magnétique, mais il pouvait l'ignorer.
 
-Le dragon marin s'immobilisa, portant Wang Lin, immobile malgré le vent. Ses yeux fixaient la Secte de la Terre avec un regard glacial.
+Le dragon marin s'immobilisa, portant Wang Lin, immobile malgré le vent. Ses yeux fixaient la Secte Di avec un regard glacial.
 
-« Maître de la Secte de la Terre, Ancien, venez me voir sans tarder! » Au milieu de la tempête, le Sens Divin de Wang Lin se propagea comme le tonnerre à travers toute la secte. Il résonna dans le cœur de chaque cultivateur, y compris celui de l'homme confus.
+« Maître de la Secte Di, Ancien, venez me voir sans tarder! » Au milieu de la tempête, le Sens Divin de Wang Lin se propagea comme le tonnerre à travers toute la secte. Il résonna dans le cœur de chaque cultivateur, y compris celui de l'homme confus.

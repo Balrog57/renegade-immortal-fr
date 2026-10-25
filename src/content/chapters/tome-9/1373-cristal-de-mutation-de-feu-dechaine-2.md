@@ -8,7 +8,7 @@ slug: cristal-de-mutation-de-feu-dechaine-2
 ---
 L'esprit du vieil homme trembla et son visage se crispa sous l'effet d'une douleur accrue. Il cracha un nouveau jet de sang et battit en retraite précipitamment, les yeux emplis d'incrédulité.
 
-« Le Quatrième Ciel du Fléau Céleste!!! C'est là la puissance d'une culture au stade du Quatrième Ciel du Fléau Céleste! Maudit soit, comment mon Clan du Scorpion Noir a-t-il pu offenser un vieux monstre pareil?! » Juste au moment où le vieil homme allait s'enfuir, Wang Lin tendit la main vers lui.
+« Le Quatrième Ciel du Fléau Céleste!!! C'est là la puissance d'une culture au stade du Quatrième Ciel du Fléau Céleste! Maudit soit, comment mon Clan An Xie a-t-il pu offenser un vieux monstre pareil?! » Juste au moment où le vieil homme allait s'enfuir, Wang Lin tendit la main vers lui.
 
 Le vieil homme sentit immédiatement l'énergie originelle jaillir avec une fureur folle autour de lui. C'était comme si cette énergie avait formé une cage invisible se refermant sur lui de toutes parts.
 
@@ -36,43 +36,43 @@ L'index de Wang Lin était toujours pointé vers le front de l'âme originelle d
 
 « Rien que l'aura de son doigt suffit à forcer mon âme originelle à sortir de mon corps et à m'infliger de graves blessures. Si j'avais été touché par ce doigt, je serais mort instantanément! Cet homme... cet homme n'est absolument pas au stade du Quatrième Ciel du Fléau Céleste!! » Le vieil homme tremblait et secouait la tête. Il avait presque perdu la raison, et la puissance contenue dans ce doigt lui ôtait toute volonté de résister. Ce doigt n'avait même pas encore touché l'espace entre ses sourcils, mais cela le terrifiait d'autant plus.
 
-« Désormais, votre Clan du Scorpion Noir m'appartient et obéira à tous mes ordres. Sinon, j'anéantirai votre clan tout entier! » Wang Lin retira son index et regarda froidement l'âme originelle du vieil homme.
+« Désormais, votre Clan An Xie m'appartient et obéira à tous mes ordres. Sinon, j'anéantirai votre clan tout entier! » Wang Lin retira son index et regarda froidement l'âme originelle du vieil homme.
 
-Le vieil homme trembla et hocha la tête. Il murmura: « La Terre Déchue obéit toujours au fort. Avoir un maître aussi puissant que vous est une chance pour mon Clan du Scorpion Noir. Les 176 membres de mon clan obéiront au Maître. Personne n'osera désobéir! »
+Le vieil homme trembla et hocha la tête. Il murmura: « La Terre Déchue obéit toujours au fort. Avoir un maître aussi puissant que vous est une chance pour mon Clan An Xie. Les 176 membres de mon clan obéiront au Maître. Personne n'osera désobéir! »
 
-Les yeux de Zhong Dahong pivotèrent aussitôt d'un air rusé et il dit rapidement: « Maître, vous ne pouvez absolument pas vous contenter de leurs paroles. Faites-leur prêter serment avec leurs marques de clan. S'ils violent ce serment, leur marque de clan se retournera contre eux et tout le Clan du Scorpion Noir sera anéanti pour l'éternité! »
+Les yeux de Zhong Dahong pivotèrent aussitôt d'un air rusé et il dit rapidement: « Maître, vous ne pouvez absolument pas vous contenter de leurs paroles. Faites-leur prêter serment avec leurs marques de clan. S'ils violent ce serment, leur marque de clan se retournera contre eux et tout le Clan An Xie sera anéanti pour l'éternité! »
 
 En entendant les paroles de Zhong Dahong, le corps du vieil homme trembla et il lui lança un regard venimeux. Cependant, cette malveillance s'effondra rapidement pour laisser place à une expression amère tandis qu'il hochait la tête. « Très bien, ce vieil homme prêtera un serment de clan pour que vous soyez notre maître. Si nous vous trahissons, nous mourrons sans sépulture! »
 
 Après avoir parlé, sa marque de clan émit une lueur spectrale. Le scorpion à quatre queues sembla ressentir une douleur extrême et laissa échapper un rugissement silencieux. Bientôt, la lumière se dissipa et une empreinte apparut lentement sur le scorpion.
 
-Les membres du Clan du Scorpion Noir environnants furent libérés par Wang Lin. Ils avaient été les témoins directs de ce qui venait de se passer, y compris l'individu appelé « jeune maître ». La peur emplissait leurs yeux.
+Les membres du Clan An Xie environnants furent libérés par Wang Lin. Ils avaient été les témoins directs de ce qui venait de se passer, y compris l'individu appelé « jeune maître ». La peur emplissait leurs yeux.
 
-Ils prêtèrent tous serment avec leur marque de clan. En conséquence, le Clan du Scorpion Noir devint le premier clan du Système Stellaire Antique que Wang Lin avait pris sous son contrôle.
+Ils prêtèrent tous serment avec leur marque de clan. En conséquence, le Clan An Xie devint le premier clan du Système Stellaire Antique que Wang Lin avait pris sous son contrôle.
 
-La grotte de Wang Lin devint la terre sainte du Clan du Scorpion Noir. En utilisant les sorts du clan, ils transformèrent la zone entourant la grotte en un désert. Ce serait désormais le nouveau foyer du Clan du Scorpion Noir.
+La grotte de Wang Lin devint la terre sainte du Clan An Xie. En utilisant les sorts du clan, ils transformèrent la zone entourant la grotte en un désert. Ce serait désormais le nouveau foyer du Clan An Xie.
 
 Après avoir constaté la puissance de Wang Lin, l'esprit du vieil homme nommé Zhang fut profondément ébranlé. Il avait décidé qu'il suivrait absolument Zhong Dahong.
 
-Quant à Zhong Dahong, il était devenu encore plus hardi; il était désormais capable de commander le Clan du Scorpion Noir grâce à sa culture de Formation de l'Âme.
+Quant à Zhong Dahong, il était devenu encore plus hardi; il était désormais capable de commander le Clan An Xie grâce à sa culture de Formation de l'Âme.
 
-« Il existe 372 petits clans dans la Terre Déchue. Mon Clan du Scorpion Noir est au bas de l'échelle. Nous ne contrôlons que cette planète presque abandonnée et comptons peu de membres... »
+« Il existe 372 petits clans dans la Terre Déchue. Mon Clan An Xie est au bas de l'échelle. Nous ne contrôlons que cette planète presque abandonnée et comptons peu de membres... »
 
 « Le Système Stellaire Antique possède le Conseil Souverain, tandis que la Terre Déchue est gouvernée par le Conseil Déchu. Il y a un total de 13 Anciens Déchus qui dirigent la Terre Déchue. Quant au Grand Empereur de la Terre Déchue, il contrôle le Conseil Déchu. Il est très mystérieux, et la rumeur dit qu'il est un cultivateur du troisième niveau, c'est pourquoi cet endroit n'est pas sous le contrôle du Conseil Souverain. »
 
 « Les membres du Conseil Déchu ne sont pas immuables. Tous les cent ans, ils peuvent être contestés, et le vainqueur devient le nouvel Ancien. La rumeur prétend qu'au fil des ans, le Conseil Souverain a secrètement envoyé de nombreuses personnes ici pour tenter de s'emparer d'un siège d'Ancien. Cependant, aucune n'a jamais réussi, et toutes sont mortes de manière inexplicable avant le défi. »
 
-« Si vous n'avez pas l'intention de devenir un Ancien Déchu, il n'y a pas lieu de craindre pour votre vie. » L'ancien du Clan du Scorpion Noir regarda Wang Lin à ce moment-là.
+« Si vous n'avez pas l'intention de devenir un Ancien Déchu, il n'y a pas lieu de craindre pour votre vie. » L'ancien du Clan An Xie regarda Wang Lin à ce moment-là.
 
 À cet instant, il se tenait respectueusement dans la grotte de Wang Lin et lui racontait tout ce qu'il savait.
 
-« Quant aux marionnettes, elles ne peuvent être achetées que sur des planètes de culture contrôlées par un Ancien Déchu. Même les marionnettes de mon Clan du Scorpion Noir ont été achetées là-bas. »
+« Quant aux marionnettes, elles ne peuvent être achetées que sur des planètes de culture contrôlées par un Ancien Déchu. Même les marionnettes de mon Clan An Xie ont été achetées là-bas. »
 
 « Cependant, plus le niveau de culture de la marionnette est élevé, plus elle est difficile à acquérir. Les cultivateurs ordinaires ne peuvent même pas les acheter; seuls les clans de la Terre Déchue en sont qualifiés. »
 
 « La rumeur dit que la méthode de fabrication des marionnettes a été transmise par le Grand Empereur. Quant au procédé lui-même, seuls les 13 anciens le connaissent. »
 
-« Parmi toutes les marionnettes du Clan du Scorpion Noir, la plus puissante est une marionnette Purificateur du Nirvana de stade intermédiaire, qui coûte une fortune céleste. Si elle était transportée hors de la Terre Déchue, elle pourrait être échangée contre une multitude de trésors et de pilules. » Tout en parlant, l'ancien toucha sa marque de clan. Une lueur jaillit et une marionnette ressemblant à un homme d'âge moyen apparut.
+« Parmi toutes les marionnettes du Clan An Xie, la plus puissante est une marionnette Purificateur du Nirvana de stade intermédiaire, qui coûte une fortune céleste. Si elle était transportée hors de la Terre Déchue, elle pourrait être échangée contre une multitude de trésors et de pilules. » Tout en parlant, l'ancien toucha sa marque de clan. Une lueur jaillit et une marionnette ressemblant à un homme d'âge moyen apparut.
 
 Cette marionnette avait une expression figée et, au premier coup d'œil, elle semblait être une personne réelle. Cependant, en y regardant de plus près, on s'apercevrait qu'elle était dépourvue de toute vitalité et recouverte de sceaux, rendant son intérieur invisible.
 
@@ -88,9 +88,9 @@ Les yeux de Wang Lin brillèrent intensément. Il ne s'attendait pas à trouver 
 
 « Puisqu'il existe même des marionnettes du stade du Fléau Céleste, pourrait-il aussi y avoir des marionnettes du troisième niveau? » Wang Lin ne posa pas cette question, car une telle chose était trop absurde et il ne croyait pas qu'elles existent.
 
-Un instant plus tard, Wang Lin demanda: « Quelle est l'influence du Clan des Moineaux de Feu ici? »
+Un instant plus tard, Wang Lin demanda: « Quelle est l'influence du Clan Huo Que ici? »
 
-« Le Clan des Moineaux de Feu est l'un des grands clans du Système Stellaire Antique, et ils ont envoyé des gens ici au fil des ans. Il y en a quelques centaines. Bien que la plupart sachent qu'ils sont envoyés par le Clan des Moineaux de Feu, comme ils ne participent pas à la lutte pour les sièges d'Ancien, ils restent en sécurité. Ils se sont liés d'amitié avec divers clans et participent au commerce des marionnettes. Ils collectent secrètement des Cristaux de Mutation de Feu Déchaîné et, de temps à autre, ils les renvoient au Clan des Moineaux de Feu. »
+« Le Clan Huo Que est l'un des grands clans du Système Stellaire Antique, et ils ont envoyé des gens ici au fil des ans. Il y en a quelques centaines. Bien que la plupart sachent qu'ils sont envoyés par le Clan Huo Que, comme ils ne participent pas à la lutte pour les sièges d'Ancien, ils restent en sécurité. Ils se sont liés d'amitié avec divers clans et participent au commerce des marionnettes. Ils collectent secrètement des Cristaux de Mutation de Feu Déchaîné et, de temps à autre, ils les renvoient au Clan Huo Que. »
 
 Les yeux de Wang Lin s'illuminèrent. « Des Cristaux de Mutation de Feu Déchaîné? »
 
@@ -98,7 +98,7 @@ Les yeux de Wang Lin s'illuminèrent. « Des Cristaux de Mutation de Feu Décha�
 
 Wang Lin saisit le sable blanc et l'examina attentivement. Ses pupilles se rétractèrent brusquement avant de reprendre leur forme normale.
 
-« Tu peux partir. Rassemble toutes les informations concernant le Clan des Moineaux de Feu et rapporte-les-moi en détail. » Wang Lin fit un geste de la main et l'ancien partit précipitamment.
+« Tu peux partir. Rassemble toutes les informations concernant le Clan Huo Que et rapporte-les-moi en détail. » Wang Lin fit un geste de la main et l'ancien partit précipitamment.
 
 Une fois celui-ci parti, la porte de la grotte se referma et Wang Lin posa des restrictions. Il regarda immédiatement le sable blanc dans sa main et ses yeux devinrent de plus en plus brillants, trahissant une pointe de choc.
 

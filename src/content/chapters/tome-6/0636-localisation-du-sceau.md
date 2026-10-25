@@ -8,7 +8,7 @@ slug: localisation-du-sceau
 ---
 Le regard de Wang Lin devint glacial après avoir écrasé le brin de cheveux contenant une quantité presque indétectable du Sens Divin de cette femme. Son Sens Divin était extrêmement bien dissimulé. Si ce n'était pas parce qu'il surveillait déjà Xu Fei, elle aurait facilement échappé à sa détection s'il avait été négligent ne serait-ce qu'un instant.
 
-« Les sorts de la Secte des Cadavres sont en effet prodigieux, et les techniques pour masquer le Sens Divin sont toujours complexes. Il semble que je doive redoubler de prudence à l'avenir. Cette femme, Xu Fei, était capable de projeter son Sens Divin, ce qui signifie qu'elle est le corps véritable. Cela implique que Zhao Yixuan n'est qu'une marionnette cadavre... »
+« Les sorts de la Secte Shi Yin sont en effet prodigieux, et les techniques pour masquer le Sens Divin sont toujours complexes. Il semble que je doive redoubler de prudence à l'avenir. Cette femme, Xu Fei, était capable de projeter son Sens Divin, ce qui signifie qu'elle est le corps véritable. Cela implique que Zhao Yixuan n'est qu'une marionnette cadavre... »
 
 Wang Lin se mit à réfléchir. S'il avait pu identifier Xu Fei, c'était grâce à Sun Tai, l'esclave que Zhou Yi lui avait imposé autrefois.
 
@@ -18,7 +18,7 @@ En songeant à la marionnette cadavre de Sun Tai, Wang Lin ne put s'empêcher de
 
 « Je ne sais pas où se trouve Situ actuellement, mais il doit être sur une planète de culture, vivant sa vie comme un prince parmi les mortels... » Une pointe de nostalgie passa dans ses yeux. À cet instant, il n'était plus le démon, mais un simple mortel se remémorant un ami.
 
-« Il y avait aussi Sun Tai. Il était l'Ancien en chef de la Secte des Cadavres sur la planète Suzaku. Il fut projeté dans l'espace par le pouvoir divin de l'Ancêtre du Clan des Démons Géants. Sa localisation actuelle est inconnue. »
+« Il y avait aussi Sun Tai. Il était l'Ancien en chef de la Secte Shi Yin sur la planète Suzaku. Il fut projeté dans l'espace par le pouvoir divin de l'Ancêtre du Clan Ju Mo. Sa localisation actuelle est inconnue. »
 
 Wang Lin prit une profonde inspiration pour rassembler ses pensées. Ses yeux s'illuminèrent alors qu'il observait les fissures ramifiées qui l'entouraient, plusieurs dizaines en tout. Ne parvenant à déceler aucune aura de Zhou Yi, il allait devoir les inspecter une à une lui-même.
 
@@ -30,7 +30,7 @@ L'expression de Wang Lin devint sombre. Il frappa son sac de rangement et en sor
 
 « Si Bei Luo n'a pas menti, alors c'est ici qu'il a trouvé Zhou Yi! » commença à méditer Wang Lin. « Bei Luo n'aurait aucune raison de mentir sur ce point, car cela ne le concerne absolument pas. Il n'a aucun intérêt à entreprendre une action aussi futile... S'il avait voulu agir contre moi, il n'aurait pas eu besoin d'utiliser une méthode aussi sournoise; il aurait pu m'attaquer de front. Pour l'instant, sa priorité absolue est de dévorer les autres démons anciens... »
 
-« À moins que... à moins qu'il ne m'ait trompé pour m'attirer ici afin de me tuer par procuration! » Le regard de Wang Lin se glaça. Son Sens Divin balaya à nouveau la zone, avant qu'il ne secoue la tête. « S'il avait prétendu que Zhou Yi se trouvait au fond de l'Abîme des Marées, il serait possible qu'il cherche à me tuer par procuration. Cependant, cet endroit semble tout à fait ordinaire... »
+« À moins que... à moins qu'il ne m'ait trompé pour m'attirer ici afin de me tuer par procuration! » Le regard de Wang Lin se glaça. Son Sens Divin balaya à nouveau la zone, avant qu'il ne secoue la tête. « S'il avait prétendu que Zhou Yi se trouvait au fond de l'Abîme Chao Xi, il serait possible qu'il cherche à me tuer par procuration. Cependant, cet endroit semble tout à fait ordinaire... »
 
 Tout en réfléchissant, il déploya son Sens Divin. Cette fois, il fut encore plus méticuleux en explorant chaque fissure, mais le résultat resta identique.
 
@@ -60,7 +60,7 @@ Wang Lin saisit l'épée céleste de la main droite et fit un pas en avant. Il p
 
 « Brise! » Dans un rugissement, Wang Lin s'immobilisa soudainement. À cet instant précis, le vortex éclata et l'énergie d'épée jaillit dans toutes les directions. D'innombrables fissures apparurent sur les parois de l'abîme. Les craquements se multiplièrent, et bientôt, des fractures couvrirent près de 330 mètres de hauteur le long de la paroi.
 
-« CRAC! » La voix de Wang Lin tonna comme un coup de tonnerre à travers l'Abîme des Marées. De nouvelles fissures déchirèrent la falaise, provoquant des éboulements massifs. Le flanc de l'Abîme recula de 3,3 centimètres sous la puissance de l'énergie d'épée de Wang Lin.
+« CRAC! » La voix de Wang Lin tonna comme un coup de tonnerre à travers l'Abîme Chao Xi. De nouvelles fissures déchirèrent la falaise, provoquant des éboulements massifs. Le flanc de l'Abîme recula de 3,3 centimètres sous la puissance de l'énergie d'épée de Wang Lin.
 
 Ses yeux s'illuminèrent et il réutilisa son énergie. La falaise fut rapidement rabotée. Après un demi-bâton d'encens, une petite ouverture apparut, d'où émanait une aura très ténue. Cette aura n'appartenait pas à Zhou Yi, mais elle exhalait une tyrannie extrême.
 

@@ -8,7 +8,7 @@ slug: le-pouvoir-du-supreme
 ---
 Au moment où les trois Tian Yunzis attaquèrent, une silhouette apparut dans le soleil. C'était Wang Lin! Wang Lin était devenu le soleil lui-même, et des éclats de lumière dorée émanaient de son corps!
 
-La mer en contrebas révélait la Terre des Esprits Démoniaques, comme si tout ce qui se trouvait devant eux était suspendu entre le réel et l'irréel.
+La mer en contrebas révélait la Terre Yao Ling, comme si tout ce qui se trouvait devant eux était suspendu entre le réel et l'irréel.
 
 Alors que Wang Lin observait froidement l'arrivée de ces trois individus, il leva la main et fit un geste. Il prononça alors calmement un seul mot:
 
@@ -56,7 +56,7 @@ Grondement, grondement, grondement!
 
 La Nuit Brisée qui commençait à se reformer s'effondra totalement. À cet instant, le ciel et la terre disparurent; il ne restait que le chaos issu de l'effondrement du soleil flamboyant!
 
-Pourtant, en un instant, le monde entier sembla s'évanouir. La mer disparut, le soleil disparut, et même le ciel brisé s'effaça. Tout disparut sans laisser de trace, laissant place à la Terre des Esprits Démoniaques!
+Pourtant, en un instant, le monde entier sembla s'évanouir. La mer disparut, le soleil disparut, et même le ciel brisé s'effaça. Tout disparut sans laisser de trace, laissant place à la Terre Yao Ling!
 
 C'était comme si tout ce qui venait de se produire n'avait été qu'un rêve. Le ciel était toujours rouge, saturé de feu. Le cri de l'Oiseau Vermillon perçait les flammes et se rapprochait de plus en plus!
 
@@ -98,13 +98,13 @@ Le calme olympien de l'Ancien Démon Ta Jia fut ébranlé pour la première fois
 
 Le regard de Ta Jia se verrouilla sur Wang Lin, ses pupilles se contractant. Il avait le sentiment que cet homme était le dernier atout que Qing Lin avait préparé pour son éveil avant que son corps ne soit pris!
 
-Au siège de l'Alliance de Culture, là où étaient conservés les jetons de vie des personnalités importantes, l'un des trois jetons de jade violet sur l'étagère supérieure vola en éclats au moment précis où la Nuit Brisée de Wang Lin disparut.
+Au siège de l'Alliance Xiu Zhen, là où étaient conservés les jetons de vie des personnalités importantes, l'un des trois jetons de jade violet sur l'étagère supérieure vola en éclats au moment précis où la Nuit Brisée de Wang Lin disparut.
 
 Simultanément, le son d'une cloche résonna dans tout le siège de l'Alliance. Une partie des cultivateurs présents leva les yeux vers le lieu de conservation des jetons de vie.
 
 Depuis le début de la guerre contre Luotian, des morts s'enchaînaient chaque jour, mais ils n'étaient pas assez éminents pour que leurs jetons soient conservés au siège. La cloche signalant un décès n'avait retenti que quelques fois; au maximum cinq fois d'affilée.
 
-Avec l'arrogance de l'Alliance de Culture, ils ne se souciaient guère du moral; ils déclencheraient une guerre de vengeance à grande échelle. Quiconque oserait tuer un membre important de l'Alliance deviendrait l'ennemi de toute l'organisation!
+Avec l'arrogance de l'Alliance Xiu Zhen, ils ne se souciaient guère du moral; ils déclencheraient une guerre de vengeance à grande échelle. Quiconque oserait tuer un membre important de l'Alliance deviendrait l'ennemi de toute l'organisation!
 
 La cloche sonna une fois, deux fois, trois fois... Lorsqu'elle atteignit la cinquième sonnerie, une autre partie des membres releva la tête vers les jetons.
 

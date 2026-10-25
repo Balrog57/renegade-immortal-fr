@@ -120,7 +120,7 @@ Elle se divisa en deux parties le long de ses bras et jaillit tel deux dragons f
 
 Wang Lin rugit: « Extraction osseuse! »
 
-Une aspiration puissante jaillit de la rivière des enfers. Cette troisième capacité provenait de l'Abîme des Marées dans la Terre des Esprits Démoniaques. Ce pouvoir avait été acquis lors d'une illumination, quand Wang Lin avait expérimenté la force invisible créée par l'intersection de deux systèmes stellaires.
+Une aspiration puissante jaillit de la rivière des enfers. Cette troisième capacité provenait de l'Abîme Chao Xi dans la Terre Yao Ling. Ce pouvoir avait été acquis lors d'une illumination, quand Wang Lin avait expérimenté la force invisible créée par l'intersection de deux systèmes stellaires.
 
 Sa puissance croîtrait indéfiniment au rythme de son Dao. À cet instant, il l'utilisait avec sa culture de stade avancé de l'Ascendant, et cela suffisait à faire trembler la planète entière. Même le brouillard entourant la planète fut affecté!
 

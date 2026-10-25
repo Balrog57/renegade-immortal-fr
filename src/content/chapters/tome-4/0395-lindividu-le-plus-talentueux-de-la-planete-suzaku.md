@@ -140,7 +140,7 @@ Il prit une profonde inspiration et disparut.
 
 « La nouvelle du combat entre Ceng Niu et Li Yuanfeng a parcouru toute la planète Suzaku. Forcer un pays de rang 5 à devenir un pays de rang 3 est un événement majeur. Presque chaque cultivateur de la planète en est informé. »
 
-À cet instant, dans la zone interdite de l'arrière-montagne du Mont Suzaku, au pays de Suzaku, Qian Feng broya le jade de transmission sonore qu'il tenait en main. Ses yeux brillèrent et, après un silence, il murmura: « Ceng Niu... tuer Li Yuanfeng n'est rien. Ce n'était qu'un déchet qui avait atteint la Transformation de l'Âme par la force. Si tu parviens à terrasser l'ancêtre du Clan des Démons Géants, alors seulement, tu seras à peine digne d'être mon adversaire... »
+À cet instant, dans la zone interdite de l'arrière-montagne du Mont Suzaku, au pays de Suzaku, Qian Feng broya le jade de transmission sonore qu'il tenait en main. Ses yeux brillèrent et, après un silence, il murmura: « Ceng Niu... tuer Li Yuanfeng n'est rien. Ce n'était qu'un déchet qui avait atteint la Transformation de l'Âme par la force. Si tu parviens à terrasser l'ancêtre du Clan Ju Mo, alors seulement, tu seras à peine digne d'être mon adversaire... »
 
 Derrière lui, Hongdie se tenait silencieusement, le regard vide de toute vie.
 

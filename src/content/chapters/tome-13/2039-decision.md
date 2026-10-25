@@ -26,11 +26,11 @@ Ces deux masses de gaz noir révélèrent des images distinctes.
 
 Cette fois, il ne s'agissait pas du Clan Céleste, mais du Clan Ancien!
 
-L'une montrait la région de Ji Antique, où s'étendait une mer immense. L'eau était sombre et exhalait une odeur de décomposition. C'était la célèbre Mer de la Mort de Ji Antique.
+L'une montrait la région de Ji Antique, où s'étendait une mer immense. L'eau était sombre et exhalait une odeur de décomposition. C'était la célèbre Mer Si de Ji Gu.
 
 Normalement, c'était un lieu propice à la culture pour le peuple de Ji Antique. La pression de l'océan façonnait l'individu et, si celui-ci parvenait à persévérer, cela aidait à stimuler son plein potentiel.
 
-Cependant, une vague gigantesque surgit alors de sa Mer de la Mort. Cette vague se propagea dans toutes les directions tandis qu'un hurlement retentissait. La mer s'affaissa et un pilier colossal jaillit vers le ciel avant de disparaître. Le niveau de la Mer de la Mort chuta, comme si la moitié de ses eaux s'était volatilisée.
+Cependant, une vague gigantesque surgit alors de sa Mer Si. Cette vague se propagea dans toutes les directions tandis qu'un hurlement retentissait. La mer s'affaissa et un pilier colossal jaillit vers le ciel avant de disparaître. Le niveau de la Mer Si chuta, comme si la moitié de ses eaux s'était volatilisée.
 
 Alors que ce pilier s'élevait dans les cieux, un autre pilier immense jaillit également vers le ciel, à la frontière entre l'Ancien Dao et l'Ancien Shi. Des ondulations massives se propagèrent dans toutes les directions, attirant l'attention de tous ceux qui purent le voir. Pourtant, hormis quelques rares individus, nul ne savait ce qui se tramait.
 

@@ -28,7 +28,7 @@ Le cœur de Lie Yunzi sombra tandis qu'il fixait Wang Lin en serrant les dents. 
 
 L'expression de Wang Lin demeura calme lorsqu'il reprit lentement: « Vous avez prétendu que j'avais dérobé un trésor important de votre famille Zhan. Seriez-vous capable de prédire l'avenir? Vous devez m'en fournir une explication! » Wang Lin le dévisagea. Il aurait voulu tuer cet homme, mais cela ne ferait qu'aggraver les tensions entre Luotian et les Quatre Sectes Divines.
 
-Le tuer n'entrait pas dans le plan de Wang Lin pour affronter Tuo Sen. Plus important encore, si les relations entre les Quatre Sectes Divines et Luotian se détérioraient, ce sont la Secte des Cadavres et l'Alliance qui en profiteraient.
+Le tuer n'entrait pas dans le plan de Wang Lin pour affronter Tuo Sen. Plus important encore, si les relations entre les Quatre Sectes Divines et Luotian se détérioraient, ce sont la Secte Shi Yin et l'Alliance qui en profiteraient.
 
 Qing Shui se trouvait très probablement au sein de l'Alliance, sans compter la bienveillance de l'ancien Empereur Divin. Tous ces paramètres empêchaient Wang Lin de tuer Lie Yunzi pour le moment.
 
@@ -84,7 +84,7 @@ La sphère explosa soudainement, l'onde de choc venant heurter le rayon lumineux
 
 Cependant, dans son âme originelle, un fin fil rouge commença à se propager de sa poitrine à travers tout son corps. Un sourire qui n'en était pas un étira les lèvres de Lie Yunzi, mais ses yeux étaient emplis de terreur.
 
-« Du poison! C'est le poison d'extase mortelle de la Secte des Cadavres! » Luotian avait recueilli de nombreuses informations sur les méthodes d'attaque de la Secte des Cadavres. Lie Yunzi étant l'un des cultivateurs les plus puissants de Luotian, il reconnut instantanément la signature de ce poison!
+« Du poison! C'est le poison d'extase mortelle de la Secte Shi Yin! » Luotian avait recueilli de nombreuses informations sur les méthodes d'attaque de la Secte Shi Yin. Lie Yunzi étant l'un des cultivateurs les plus puissants de Luotian, il reconnut instantanément la signature de ce poison!
 
 Pris d'une terreur pure, Lie Yunzi s'enfuit comme un possédé.
 
@@ -92,11 +92,11 @@ Ce n'est que lorsque Lie Yunzi fut loin qu'une silhouette masculine apparut. L'h
 
 « Attaquer un junior par surprise avec un poison extrait de Situ Nan... Cette affaire... Ah, peu importe. Nous devons trop à Wang Lin... » L'homme soupira et s'évanouit dans l'air.
 
-Laissons de côté le sort de Lie Yunzi pour l'instant. Après son départ, dans la salle arrière de l'astre principal de la Secte Divine de l'Oiseau Vermillon, la femme de la Secte des Cadavres avait remis ses présents de félicitations. Après avoir exprimé son souhait de former une alliance avec les Quatre Sectes Divines, elle allait prendre congé.
+Laissons de côté le sort de Lie Yunzi pour l'instant. Après son départ, dans la salle arrière de l'astre principal de la Secte Divine de l'Oiseau Vermillon, la femme de la Secte Shi Yin avait remis ses présents de félicitations. Après avoir exprimé son souhait de former une alliance avec les Quatre Sectes Divines, elle allait prendre congé.
 
 Cependant, Wang Lin lui demanda de rester pour assister à la cérémonie d'investiture qui aurait lieu dans quelques jours.
 
-Alors que la femme s'apprêtait à se lever pour s'excuser, Wang Lin lui posa soudainement une question: « Cher cultivateur Li, la Secte des Cadavres utilisant toujours des cadavres comme compagnons, vous devez posséder de vastes connaissances sur les différentes formes de corps au monde. Je me demande... quel est considéré comme le corps suprême? »
+Alors que la femme s'apprêtait à se lever pour s'excuser, Wang Lin lui posa soudainement une question: « Cher cultivateur Li, la Secte Shi Yin utilisant toujours des cadavres comme compagnons, vous devez posséder de vastes connaissances sur les différentes formes de corps au monde. Je me demande... quel est considéré comme le corps suprême? »
 
 Les yeux de la belle femme s'illuminèrent. Elle était très intriguée par ce nouvel Empereur Divin, d'autant plus que sa façon de malmener Lie Yunzi plus tôt avait radicalement changé l'image qu'elle se faisait de lui.
 
@@ -112,7 +112,7 @@ Les yeux de la femme brillèrent et elle sourit: « Oh? Je me demande quel genre
 
 Wang Lin ne perdit pas de temps. D'un revers de manche, il envoya un morceau de jade vers la femme. Elle le rattrapa en souriant, sans trop se soucier du contenu de l'information.
 
-Pour elle, peu importe la rareté du cadavre recherché par Wang Lin, sa Secte des Cadavres en posséderait forcément un. Sa secte détenait même certains des rares Cadavres Inversés Bizarres des Cinq Éléments.
+Pour elle, peu importe la rareté du cadavre recherché par Wang Lin, sa Secte Shi Yin en posséderait forcément un. Sa secte détenait même certains des rares Cadavres Inversés Bizarres des Cinq Éléments.
 
 De plus, lorsqu'elle affirmait que ce cadavre était le premier rang, elle ne parlait que du monde extérieur. Au sein même de sa Secte, il existait sept cadavres bien supérieurs à celui-ci.
 
@@ -120,7 +120,7 @@ Elle scruta négligemment le jade avec son Sens Divin, mais en un instant, sa ma
 
 Puis, cette gravité s'effondra pour laisser place au choc et à la terreur. Sa main devint instable tandis qu'elle serrait le jade. Son visage s'empourpra et sa respiration devint saccadée. Elle recula de plusieurs pas, incapable de reprendre ses esprits pendant un long moment.
 
-Ce n'était pas par faiblesse mentale, mais l'information contenue dans ce jade rendait toute volonté dérisoire. Même si le Maître de la Secte des Cadavres avait vu cela, il en serait devenu fou!
+Ce n'était pas par faiblesse mentale, mais l'information contenue dans ce jade rendait toute volonté dérisoire. Même si le Maître de la Secte Shi Yin avait vu cela, il en serait devenu fou!
 
 « Ceci... ceci est... » Sa tête se redressa brusquement vers Wang Lin, ses paroles devenant incohérentes. Il était impossible d'exprimer l'effroi et l'excitation qui l'animaient par de simples mots. C'était comme si d'innombrables éclairs de tonnerre céleste avaient explosé dans son esprit.
 

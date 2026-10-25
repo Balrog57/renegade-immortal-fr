@@ -82,7 +82,7 @@ Wang Lin fixa la Mer de Sang, un léger sourire étirant ses lèvres. Il repensa
 
 Mais quelle en était la véritable raison? Il se remémora sa rencontre avec cette immense âme errante sur le point de muter en Dévoreur d'Âmes. L'apparition d'une telle entité n'était pas naturelle.
 
-En tant que Dévoreur d'Âmes, Wang Lin savait que dans le Monde de la Décomposition, les territoires des dévoreurs étaient strictement délimités. Si une âme errante s'apprêtait à évoluer, un Dévoreur d'Âmes voisin stopperait net ce processus en la dévorant.
+En tant que Dévoreur d'Âmes, Wang Lin savait que dans le Monde Ji Mie, les territoires des dévoreurs étaient strictement délimités. Si une âme errante s'apprêtait à évoluer, un Dévoreur d'Âmes voisin stopperait net ce processus en la dévorant.
 
 À moins qu'aucun prédateur ne soit à proximité, une âme errante pourrait-elle réussir sa mutation? Puisqu'un Dévoreur d'Âmes résidait déjà dans le troisième essai, une telle entité ne devrait pas pouvoir exister. Il était fort probable que des circonstances exceptionnelles et l'aide de forces extérieures aient rendu cela possible.
 

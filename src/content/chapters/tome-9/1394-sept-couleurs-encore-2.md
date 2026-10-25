@@ -48,7 +48,7 @@ Bien que le Souverain fût puissant, il n'était pas assez fort pour terrifier W
 
 « Il y a également ce gaz et cette lumière verts. Pourraient-ils faire partie de ces sept couleurs? » Wang Lin fronça les sourcils et, après un long moment, poussa un soupir. D'un revers de manche, il rangea la femme en argent dans son espace de stockage.
 
-« Cette affaire est bien trop insondable pour moi; il est inutile d'y songer pour l'instant. Je dois raffiner les trésors de Tan Lang et obtenir l'essence du Clan des Moineaux de Feu! » Après une courte réflexion, Wang Lin chassa l'image de la statue de son esprit. Il sortit plutôt les trésors de Tan Lang pour les étudier et les raffiner.
+« Cette affaire est bien trop insondable pour moi; il est inutile d'y songer pour l'instant. Je dois raffiner les trésors de Tan Lang et obtenir l'essence du Clan Huo Que! » Après une courte réflexion, Wang Lin chassa l'image de la statue de son esprit. Il sortit plutôt les trésors de Tan Lang pour les étudier et les raffiner.
 
 « Les 99 Épées de Cristal Flottant! Tan Lang les avait obtenues sur un rocher arborant la tête d'un ancien démon. Dans ses souvenirs, les yeux de cette tête ne portaient aucune étoile. Les 99 épées étaient maculées de sang et formaient une formation d'épées! » Wang Lin agita la main droite et les 99 épées l'entourèrent instantanément, chacune identique aux autres et dégageant une puissante énergie glaciale.
 
@@ -116,7 +116,7 @@ Dès l'apparition de la lance, une énergie démoniaque envahit la grotte, accom
 
 Dès que la bouteille apparut, l'énergie démoniaque dans la grotte décupla et d'innombrables ombres démoniaques surgirent. Cette énergie enveloppa la planète entière.
 
-De loin, la planète du Clan du Scorpion Noir fut drapée d'un voile de brouillard démoniaque. C'était un spectacle terrifiant!
+De loin, la planète du Clan An Xie fut drapée d'un voile de brouillard démoniaque. C'était un spectacle terrifiant!
 
 « Je ne peux pas former un corps démoniaque, mais je peux créer une âme démoniaque. Utiliser cette âme pour contrôler les trésors d'anciens diables augmenterait considérablement leur puissance. Si l'occasion se présente, je pourrais posséder un corps d'ancien diable et en faire mon troisième avatar! »
 

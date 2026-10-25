@@ -1,12 +1,12 @@
 ---
 n: 335
-title: "Le Cultivateur de la Formation de l'Âme du Pavillon de Raffinage des Trésors"
+title: "Le Cultivateur de la Formation de l'Âme du Pavillon Lian Qi"
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 335 - Soul Formation Cultivator of the Treasure Refining Pavilion
 slug: le-cultivateur-de-la-formation-de-lame-du-pavillon-de-raffinage-des-tresors
 ---
-Les disciples du Pavillon de Raffinage des Trésors apportèrent dans la pièce du troisième étage des fruits spécialement cultivés dans la Mer des Démons, mais personne n'y toucha.
+Les disciples du Pavillon Lian Qi apportèrent dans la pièce du troisième étage des fruits spécialement cultivés dans la Mer Xiu Mo, mais personne n'y toucha.
 
 Depuis cette pièce, il suffisait de regarder en bas pour apercevoir l'immense scène où se déroulerait l'enchère.
 
@@ -40,7 +40,7 @@ Un nouveau sens divin émana de la pièce de gauche, mais cette fois, il s'agiss
 
 À peine Lu Fei eut-il fini de parler qu'un homme sortit de la pièce de gauche. Vêtu de pourpre et arborant une chevelure blanche, il se dirigea vers la chambre de Wang Lin.
 
-Il était hors de lui. À l'origine, son disciple n'avait fait preuve que de curiosité en voyant Xu Luo, du Pavillon de Raffinage des Trésors, escorter personnellement quelqu'un, et voulait découvrir l'identité de cet inconnu.
+Il était hors de lui. À l'origine, son disciple n'avait fait preuve que de curiosité en voyant Xu Luo, du Pavillon Lian Qi, escorter personnellement quelqu'un, et voulait découvrir l'identité de cet inconnu.
 
 Cependant, il ne s'attendait pas à ce que cette personne brise le sens divin de son disciple et l'en blesse, ce qui le poussa à sortir furieusement.
 
@@ -56,7 +56,7 @@ Wang Lin commença à réfléchir. En posant les yeux sur ce vieil homme vêtu d
 
 Cependant, trop de temps avait passé et il ne parvenait pas à s'en souvenir immédiatement.
 
-À ce moment-là, un rire retentit soudainement à l'extérieur alors que le vieil homme du Pavillon de Raffinage des Trésors montait au troisième étage. Il ne daigna même pas regarder le vieillard en pourpre lorsqu'il atteignit la porte. Un sourire aux lèvres, il déclara: « Moi, le cultivateur Hu, j'ai entendu dire qu'un autre cultivateur de la Formation de l'Âme participait à cette enchère. Je suis venu voir, mais je ne m'attendais pas à croiser une connaissance. »
+À ce moment-là, un rire retentit soudainement à l'extérieur alors que le vieil homme du Pavillon Lian Qi montait au troisième étage. Il ne daigna même pas regarder le vieillard en pourpre lorsqu'il atteignit la porte. Un sourire aux lèvres, il déclara: « Moi, le cultivateur Hu, j'ai entendu dire qu'un autre cultivateur de la Formation de l'Âme participait à cette enchère. Je suis venu voir, mais je ne m'attendais pas à croiser une connaissance. »
 
 Tandis qu'il parlait, le rideau de la pièce s'ouvrit de lui-même et le vieil homme entra.
 
@@ -124,7 +124,7 @@ Wang Lin secoua la tête: « Aucun problème! Si je ne peux pas l'obtenir par le
 
 Le vieil homme aux cheveux blancs éclata de rire et resta silencieux.
 
-Au premier étage, de nombreuses pilules et trésors avaient déjà été vendus. Peu après, Xu Luo monta sur scène et s'écria: « L'article suivant est un trésor d'une valeur inestimable. Je suis certain que vous savez tous déjà qu'il s'agit d'une recette de pilule de rang 6! Cette recette n'a jamais été ouverte depuis son arrivée au Pavillon de Raffinage des Trésors. Elle porte encore le sceau de son propriétaire, comme vous pouvez le constater. »
+Au premier étage, de nombreuses pilules et trésors avaient déjà été vendus. Peu après, Xu Luo monta sur scène et s'écria: « L'article suivant est un trésor d'une valeur inestimable. Je suis certain que vous savez tous déjà qu'il s'agit d'une recette de pilule de rang 6! Cette recette n'a jamais été ouverte depuis son arrivée au Pavillon Lian Qi. Elle porte encore le sceau de son propriétaire, comme vous pouvez le constater. »
 
 « Les pilules de rang 6 sont des créations que seul Suzaku peut produire, mais vous pouvez en faire autant si vous possédez la recette. Sa valeur est évidente, je n'en dirai pas plus. Notez un changement dans les règles: les offres doivent être faites en pierres spirituelles de haute qualité, mais nous acceptons également les trésors. Notre Pavillon en évaluera la valeur. »
 

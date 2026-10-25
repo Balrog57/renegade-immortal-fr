@@ -42,7 +42,7 @@ Wang Lin fronça les sourcils. Ce Xu Liguo n'avait cessé de l'importuner ces de
 
 Le regard de Wang Lin se glaça. Bien que Xu Liguo fût loyal, cette loyauté reposait sur le fait que Wang Lin était plusieurs fois plus puissant que lui. Le nouveau maître de Xu Liguo devait être plus faible que Wang Lin, ou du moins pas beaucoup plus fort, sans quoi la loyauté de ce dernier s'évanouirait instantanément.
 
-L'Ancêtre du Clan des Démons Géants en était l'exemple parfait. S'il avait été remplacé par quelqu'un comme Tian Yunzi, Ling Tianhou ou Xue Zu, Xu Liguo aurait immédiatement trahi Wang Lin.
+L'Ancêtre du Clan Ju Mo en était l'exemple parfait. S'il avait été remplacé par quelqu'un comme Tian Yunzi, Ling Tianhou ou Xue Zu, Xu Liguo aurait immédiatement trahi Wang Lin.
 
 Outre ce défaut, ce démon avait un autre problème: dès qu'il rencontrait une femme, il changeait radicalement de personnalité. Wang Lin pensait que cela avait été corrigé avec les années, mais il semblait que rien n'ait changé.
 
@@ -80,7 +80,7 @@ Wang Lin continua de le fixer avec froideur. Plus Wang Lin agissait ainsi, plus 
 
 Le corps de Xu Liguo se transforma instantanément en un nuage de brume noire. Au moment où Wang Lin le déconnecta de l'épée, Xu Liguo ressentit une intention de tuer qu'il n'avait pas éprouvée depuis plus d'un siècle!
 
-« Par tous les dieux, c'est une véritable intention de tuer! Ce démon veut vraiment ma peau! » Xu Liguo hurla et voulut s'enfuir immédiatement. Depuis qu'il avait aidé Wang Lin contre l'Ancêtre du Clan des Démons Géants, il n'avait plus jamais ressenti une telle volonté meurtrière qui l'avait accompagné pendant la majeure partie de sa vie!
+« Par tous les dieux, c'est une véritable intention de tuer! Ce démon veut vraiment ma peau! » Xu Liguo hurla et voulut s'enfuir immédiatement. Depuis qu'il avait aidé Wang Lin contre l'Ancêtre du Clan Ju Mo, il n'avait plus jamais ressenti une telle volonté meurtrière qui l'avait accompagné pendant la majeure partie de sa vie!
 
 « Un tigre reste un tigre; peu importe à quel point il devient docile, il ne deviendra jamais un chat! » sourit amèrement Xu Liguo dans son cœur en se remémorant ce vieux proverbe de sa terre natale.
 

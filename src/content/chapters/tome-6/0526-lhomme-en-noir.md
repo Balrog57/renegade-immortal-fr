@@ -33,7 +33,7 @@ L'attention de Wang Lin était entièrement focalisée sur son dantian. Il resse
 
 « Cette énergie démoniaque doit avoir d'autres usages, sans quoi elle n'aurait pu provoquer autant de massacres au fil des âges.
 
-« Je crains que des secrets encore inconnus ne soient cachés en son sein. Ce n'est qu'une fois ces mystères résolus que je pourrai décider de ma voie future. Cinq cents ans, ce n'est ni long, ni court; toutefois, si l'absorption de plus de cristaux d'esprit démoniaques peut aider à accroître ma culture, alors autant me laisser emporter et déclencher une véritable orgie meurtrière, comme je le faisais dans la Mer des Démons! »
+« Je crains que des secrets encore inconnus ne soient cachés en son sein. Ce n'est qu'une fois ces mystères résolus que je pourrai décider de ma voie future. Cinq cents ans, ce n'est ni long, ni court; toutefois, si l'absorption de plus de cristaux d'esprit démoniaques peut aider à accroître ma culture, alors autant me laisser emporter et déclencher une véritable orgie meurtrière, comme je le faisais dans la Mer Xiu Mo! »
 
 Un éclair de lumière froide traversa les yeux de Wang Lin, et il se lécha les lèvres.
 
@@ -83,7 +83,7 @@ Au moment où le sens divin de Wang Lin balaya la zone, l'homme leva lentement l
 
 L'âme originelle de Wang Lin le regarda froidement, puis repartit sans un mot. L'homme en noir ne chercha pas à l'arrêter, affichant seulement un sourire de mépris.
 
-« Un simple cultivateur au stade intermédiaire de la Transformation de l'Âme. Peu importe ta secte, tu mourras aujourd'hui! Une fois son cristal d'esprit démoniaque absorbé, je devrais tout juste remplir les conditions pour entrer dans la Cité du Démon Céleste. » Une lueur de ferveur sauvage brilla dans ses yeux.
+« Un simple cultivateur au stade intermédiaire de la Transformation de l'Âme. Peu importe ta secte, tu mourras aujourd'hui! Une fois son cristal d'esprit démoniaque absorbé, je devrais tout juste remplir les conditions pour entrer dans la Cité Tian Yao. » Une lueur de ferveur sauvage brilla dans ses yeux.
 
 De retour dans la vallée, l'âme originelle de Wang Lin réintégra son corps et son regard se fit glacial.
 

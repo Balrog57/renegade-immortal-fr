@@ -24,11 +24,11 @@ Mais il n'aurait jamais pu imaginer que cela ne ferait aucun effet à Wang Lin. 
 
 Wang Lin lui lança un regard glacial avant de se retourner et de dire froidement à Mu Nan: « Continue de montrer le chemin. »
 
-Dès qu'il avait tué le premier Ancien de la Secte de la Lutte contre le Mal, Wang Lin avait compris que l'affaire ne s'arrangerait jamais. Si ce n'avaient été que des gens ordinaires de la secte, passe encore, mais puisqu'il avait tué un Ancien, ils viendraient certainement le traquer jusqu'au bout. Il n'était plus le jeune villageois naïf d'autrefois; il avait énormément grandi.
+Dès qu'il avait tué le premier Ancien de la Secte Dou Xie, Wang Lin avait compris que l'affaire ne s'arrangerait jamais. Si ce n'avaient été que des gens ordinaires de la secte, passe encore, mais puisqu'il avait tué un Ancien, ils viendraient certainement le traquer jusqu'au bout. Il n'était plus le jeune villageois naïf d'autrefois; il avait énormément grandi.
 
-Tout ce qui s'était produit après la mort de Teng Li avait beaucoup appris à Wang Lin. Puisqu'il en avait déjà tué un, autant en tuer dix. Puisqu'il en avait déjà tué dix, autant anéantir la Secte de la Lutte contre le Mal.
+Tout ce qui s'était produit après la mort de Teng Li avait beaucoup appris à Wang Lin. Puisqu'il en avait déjà tué un, autant en tuer dix. Puisqu'il en avait déjà tué dix, autant anéantir la Secte Dou Xie.
 
-Seule l'éradication totale de la Secte de la Lutte contre le Mal lui permettrait d'éviter de nouveaux problèmes à l'avenir. Fort de cette conviction, il saisit Li Muwan et s'élança rapidement. Simultanément, sa technique d'attraction forma deux mains gigantesques qui saisirent Mu Nan et Mu Bei pour les projeter en avant.
+Seule l'éradication totale de la Secte Dou Xie lui permettrait d'éviter de nouveaux problèmes à l'avenir. Fort de cette conviction, il saisit Li Muwan et s'élança rapidement. Simultanément, sa technique d'attraction forma deux mains gigantesques qui saisirent Mu Nan et Mu Bei pour les projeter en avant.
 
 Le visage des deux frères était livide, mais ils n'osèrent émettre la moindre plainte; ils retrouvèrent rapidement leur équilibre et continuèrent de guider le groupe, la tête basse.
 
@@ -40,7 +40,7 @@ Li Muwan ressentit une émotion complexe. Elle n'aurait jamais cru que Wang Lin 
 
 « Contre les cultivateurs en dessous du stade de l'Âme Naissante, il est invincible. »
 
-Elle eut l'impression de rêver en repensant aux dernières années passées dans la Mer des Démons. Tout était si différent de sa vie d'autrefois.
+Elle eut l'impression de rêver en repensant aux dernières années passées dans la Mer Xiu Mo. Tout était si différent de sa vie d'autrefois.
 
 La Li Muwan d'avant ne faisait que cultiver ou raffiner des pilules. Chaque fois qu'elle sortait, son frère l'accompagnait. Avec lui à ses côtés, elle ne courait aucun danger réel.
 

@@ -39,13 +39,13 @@ La rumeur prétend que l'usage du Sceau Mystérieux de Suzaku exige un prix, mai
 
 L'être de nuages se désintégra. Le visage de Du Tian était livide alors qu'il fixait Zhu Quezi, puis il éclata soudain d'un rire: « Mon espérance de vie est presque épuisée. Pouvoir voir un vieux voleur comme toi dans cet état est une véritable satisfaction! »
 
-L'expression de Zhu Quezi était affreuse et il haletait. Il n'aurait pas utilisé le Sceau Mystérieux de Suzaku s'il n'y avait pas été contraint, et il répugnait tout particulièrement à employer celui de l'attaque. Il devait conserver son état optimal pour la bataille contre le Clan des Immortels Délaissés.
+L'expression de Zhu Quezi était affreuse et il haletait. Il n'aurait pas utilisé le Sceau Mystérieux de Suzaku s'il n'y avait pas été contraint, et il répugnait tout particulièrement à employer celui de l'attaque. Il devait conserver son état optimal pour la bataille contre le Clan Xian Yi.
 
-« Du Tian, votre Secte de l'Affinement de l'Âme était autrefois une branche de Suzaku et il y a des dizaines de milliers d'années, vos ancêtres combattirent aux côtés de la première génération de Suzaku contre le Clan des Immortels Délaissés. Pourquoi vous montrer si obstiné aujourd'hui? Si vous me remettez l'étendard de l'âme, je vous aiderai à reconstruire la secte, je vous aiderai à rassembler des disciples et même à faire de la Secte de l'Affinement de l'Âme un pays à part entière. »
+« Du Tian, votre Secte Lian Hun était autrefois une branche de Suzaku et il y a des dizaines de milliers d'années, vos ancêtres combattirent aux côtés de la première génération de Suzaku contre le Clan Xian Yi. Pourquoi vous montrer si obstiné aujourd'hui? Si vous me remettez l'étendard de l'âme, je vous aiderai à reconstruire la secte, je vous aiderai à rassembler des disciples et même à faire de la Secte Lian Hun un pays à part entière. »
 
-Les yeux de Du Tian s'illuminèrent, puis il afficha un sourire malicieux. « Vieux voleur Zhuque, je vois clair dans ton jeu. Tu as peur d'être blessé; sinon, tu ne te serais pas retrouvé dans une position aussi embarrassante. La guerre avec le Clan des Immortels Délaissés a déjà commencé et tu n'es pas sur le champ de bataille pour la diriger; je crains que tu ne puisses pas rester ici bien longtemps. »
+Les yeux de Du Tian s'illuminèrent, puis il afficha un sourire malicieux. « Vieux voleur Zhuque, je vois clair dans ton jeu. Tu as peur d'être blessé; sinon, tu ne te serais pas retrouvé dans une position aussi embarrassante. La guerre avec le Clan Xian Yi a déjà commencé et tu n'es pas sur le champ de bataille pour la diriger; je crains que tu ne puisses pas rester ici bien longtemps. »
 
-Zhu Quezi fronça les sourcils et dit froidement: « Bien que l'ancêtre à onze feuilles du Clan des Immortels Délaissés soit puissant, j'ai un atout dans ma manche. Une fois qu'il sera révélé, le Clan des Immortels Délaissés périra à coup sûr! Du Tian, je te le demande une dernière fois: remettras-tu l'étendard de l'âme? »
+Zhu Quezi fronça les sourcils et dit froidement: « Bien que l'ancêtre à onze feuilles du Clan Xian Yi soit puissant, j'ai un atout dans ma manche. Une fois qu'il sera révélé, le Clan Xian Yi périra à coup sûr! Du Tian, je te le demande une dernière fois: remettras-tu l'étendard de l'âme? »
 
 Le regard de Du Tian devint glacial. Il prit une inspiration sifflante et agita la main. Une lumière dorée et pourpre commença à scintiller sur l'étendard, mais elle était instable.
 
@@ -63,7 +63,7 @@ Du Tian serra les dents et pointa son front de sa main gauche. Il en sortit une 
 
 « Les cinq éléments sont le métal, le bois, l'eau, le feu et la terre. Il est rare qu'une personne possède deux parts d'un même élément, trois est encore plus rare, on n'a jamais entendu parler de quatre, et cinq parts d'un même élément serait sans précédent.
 
-« La quatrième âme était un être rare doté de trois parts d'un même élément, mais ce talent ne s'était pas manifesté de son vivant. Il vécut comme le commun des mortels et mourut à la fin du stade de la Transformation de l'Âme, mais la Secte de l'Affinement de l'Âme a raffiné son âme avec une technique spéciale pour en faire quelque chose capable de menacer même les cultivateurs Ascendants de stade avancé!
+« La quatrième âme était un être rare doté de trois parts d'un même élément, mais ce talent ne s'était pas manifesté de son vivant. Il vécut comme le commun des mortels et mourut à la fin du stade de la Transformation de l'Âme, mais la Secte Lian Hun a raffiné son âme avec une technique spéciale pour en faire quelque chose capable de menacer même les cultivateurs Ascendants de stade avancé!
 
 « Pour capturer cette âme, il faut une détermination sans faille et il faut ouvrir le Cristal de Planète de Culture alors que sa propre espérance de vie touche à sa fin. » Ce passage des archives traversa l'esprit de Zhu Quezi.
 

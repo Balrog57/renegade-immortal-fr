@@ -100,7 +100,7 @@ L'Empereur Divin de l'Oiseau Vermillon fut surpris. Son regard balaya Wang Lin, 
 
 Le visage de Wang Lin était d'une pâleur mortelle; ses blessures atteignaient les limites de sa résistance. Son âme originelle montrait des signes de dissipation, et les paroles de Mu Bingmei le firent trembler de douleur. Cette souffrance transparaissait dans ses yeux.
 
-Wang Lin ne se retourna pas et ne répondit pas à Mu Bingmei. Au lieu de cela, il fixa l'Empereur Divin de l'Oiseau Vermillon et demanda: « Me ramenez-vous à la Secte de l'Oiseau Vermillon? »
+Wang Lin ne se retourna pas et ne répondit pas à Mu Bingmei. Au lieu de cela, il fixa l'Empereur Divin de l'Oiseau Vermillon et demanda: « Me ramenez-vous à la Secte Zhu Que? »
 
 L'Empereur Divin de l'Oiseau Vermillon acquiesça.
 
@@ -112,12 +112,12 @@ Sur ces mots, les disciples des Quatre Sectes Divines se dispersèrent pour seco
 
 « Beaucoup de mes compagnons ont perdu leur corps... »
 « Les Quatre Sectes Divines les aideront à reconstruire leurs corps! »
-« Mon frère, Situ, est empoisonné par un venin de la Secte des Cadavres... »
+« Mon frère, Situ, est empoisonné par un venin de la Secte Shi Yin... »
 « Je m'en chargerai! »
 « Mon bienfaiteur, Zhou Yi, a besoin de Qing Lin pour ressusciter! »
 « Je vous donnerai le corps de Qing Lin! Si vous avez besoin de l'aide des Quatre Sectes Divines, nous vous apporterons tout notre soutien! »
-« Dans la Terre des Esprits Démoniaques, j'ai une branche de disciples directs... »
-« J'enverrai quelqu'un pour les escorter jusqu'à la Secte de l'Oiseau Vermillon! »
+« Dans la Terre Yao Ling, j'ai une branche de disciples directs... »
+« J'enverrai quelqu'un pour les escorter jusqu'à la Secte Zhu Que! »
 
 « Ces célestes de l'Alliance veulent ma mort. Je veux leurs âmes originelles! » Une lueur de froideur passa dans les yeux de Wang Lin. Il n'avait jamais fait preuve de clémence envers ceux qui cherchaient à lui nuire; il s'était toujours comporté comme un démon face à eux!
 
@@ -129,7 +129,7 @@ Le sang perla sur la lèvre inférieure de Mu Bingmei face à l'indifférence de
 
 Wang Lin ne pouvait percevoir la douleur dans ses yeux, mais il savait que sa propre souffrance, elle, ne disparaîtrait jamais. Il ferma les yeux et dit calmement: « Je dois à cette femme une pilule salvatrice, et elle m'a déjà sauvé la vie une fois. »
 
-L'Empereur Divin sourit: « Je trouverai un moyen de t'aider à rembourser cette dette et je m'assurerai que le Royaume du Vide Brillant soit satisfait! As-tu d'autres exigences? »
+L'Empereur Divin sourit: « Je trouverai un moyen de t'aider à rembourser cette dette et je m'assurerai que le Royaume Kun Xu soit satisfait! As-tu d'autres exigences? »
 
 Wang Lin réfléchit en silence avant de secouer la tête et de dire doucement: « Allons-y... »
 
@@ -145,7 +145,7 @@ Les Quatre Sectes Divines... étaient parties. Ils avaient emmené tout le monde
 
 Deux larmes coulèrent des yeux de Mu Bingmei, une douleur déchirante lui broyant le cœur. Elle cracha du sang à son tour et s'effondra.
 
-Le vieil homme du Royaume du Vide Brillant soupira. D'un geste de la main, il éloigna Mu Bingmei.
+Le vieil homme du Royaume Kun Xu soupira. D'un geste de la main, il éloigna Mu Bingmei.
 
 Dans le vide, seule sa voix ancienne résonna:
 

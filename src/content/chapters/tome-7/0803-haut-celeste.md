@@ -18,7 +18,7 @@ Lorsque les feuilles de la plante se déployèrent, une force mystérieuse envah
 
 En voyant cela, les yeux de Wang Lin s'écarquillèrent, brillant d'une lueur vive.
 
-« Le Clan des Immortels Délaissés! »
+« Le Clan Xian Yi! »
 
 Il accéléra encore davantage, puis sa main droite traça un sceau tandis que l'énergie originelle à l'intérieur de son corps s'agita. Sa main frappa le vide, provoquant la diffusion de l'énergie originelle dans le néant. Les énormes fluctuations d'énergie originelle firent tordre le vide devant lui, et l'homme qui tentait de se téléporter réapparut instantanément.
 
@@ -40,9 +40,9 @@ Un vieil homme s'avança de la foule. Il avait une chevelure blanche et le visag
 
 Les yeux de Wang Lin restaient neutres, mais son cœur fut secoué. Avec près d'un millénaire de culture, il pouvait maintenir une expression calme même face à la stupéfaction. Pour l'instant, il ne laissa paraître le moindre signe de choc.
 
-Le terme « Haut Céleste » ne signifiait rien s'il sortait de la bouche de mortels, mais venant des membres du Clan des Immortels Délaissés, la portée était tout autre!
+Le terme « Haut Céleste » ne signifiait rien s'il sortait de la bouche de mortels, mais venant des membres du Clan Xian Yi, la portée était tout autre!
 
-Plus important encore, « Haut Céleste » n'était pas qu'un simple titre. Avant de se rendre au Pavillon des Collections, il n'y avait pas songé, mais désormais, l'idée ne pouvait lui échapper.
+Plus important encore, « Haut Céleste » n'était pas qu'un simple titre. Avant de se rendre au Pavillon Cang Jue, il n'y avait pas songé, mais désormais, l'idée ne pouvait lui échapper.
 
 Le regard de Wang Lin demeura serein lorsqu'il demanda lentement: « Vous pouvez percevoir mon niveau de culture? »
 
@@ -64,7 +64,7 @@ Wang Lin regarda le vieil homme sans répondre. Son regard se porta vers le cont
 
 Le vieillard dit avec déférence: « Ce vieux serviteur a manqué à son devoir d'hospitalité. Ô Céleste, je vous en prie, suivez-moi. Les Fruits de l'Esprit Céleste ont mûri il y a longtemps. Je vais ordonner à quelqu'un de vous en apporter pour que vous puissiez en goûter la saveur. »
 
-Sous la conduite du vieil homme, Wang Lin suivit silencieusement. Quant au reste du Clan des Immortels Délaissés, ils traînaient derrière eux, comme s'ils craignaient de s'approcher trop près.
+Sous la conduite du vieil homme, Wang Lin suivit silencieusement. Quant au reste du Clan Xian Yi, ils traînaient derrière eux, comme s'ils craignaient de s'approcher trop près.
 
 L'homme capturé par Wang Lin retrouva sa liberté une fois que celui-ci relâcha son sortilège. Son regard vers Wang Lin était chargé de terreur.
 
@@ -84,6 +84,6 @@ Le vieil homme remarqua le regard de Wang Lin et dit respectueusement: « Haut C
 
 Wang Lin ignorait ce qu'étaient les bêtes de brume et se contenta d'un signe de tête silencieux. Toutefois, dans son for intérieur, il était très intrigué par cet endroit.
 
-« Maître Xiaoyaozi, le Clan des Immortels Délaissés et le Fourneau Yin Mystérieux... Que cache donc réellement ce lieu? »
+« Maître Xiaoyaozi, le Clan Xian Yi et le Fourneau Yin Mystérieux... Que cache donc réellement ce lieu? »
 
 Alors que Wang Lin était plongé dans ses pensées, un bruit parvint du lointain.

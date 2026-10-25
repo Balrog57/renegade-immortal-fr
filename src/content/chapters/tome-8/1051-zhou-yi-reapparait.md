@@ -10,7 +10,7 @@ Deux personnes sortirent de la fausse montagne devant Wang Lin. Il s'agissait d'
 
 Derrière lui, la femme arborait un regard doux, mais une pointe de surprise y était perceptible. Elle ne s'attendait apparemment pas à ce que Wang Lin puisse parvenir jusqu'ici.
 
-En reconnaissant le Couple de Culture du Nuage Céleste, l'expression de Wang Lin resta calme, mais son cœur se mit en garde. Sa culture n'était pas encore restaurée et il se trouvait dans son état le plus vulnérable au sein de la Grotte de l'Empereur Céleste. La moindre imprudence pourrait lui coûter la vie.
+En reconnaissant le Couple de Culture du Nuage Céleste, l'expression de Wang Lin resta calme, mais son cœur se mit en garde. Sa culture n'était pas encore restaurée et il se trouvait dans son état le plus vulnérable au sein de la Grotte Xian Di. La moindre imprudence pourrait lui coûter la vie.
 
 Après avoir calmement reculé près d'une restriction, Wang Lin joignit les mains et dit: « Salutations, Seniors du Nuage Céleste. » En parlant, il regarda derrière eux et ne vit pas Zhou Yi, ce qui lui fit l'effet d'un froid au cœur.
 
@@ -18,7 +18,7 @@ Après avoir calmement reculé près d'une restriction, Wang Lin joignit les mai
 
 Quant aux blessures de Wang Lin, Wang Wei les avait naturellement décelées.
 
-Le Couple de Culture du Nuage Céleste était une énigme pour Wang Lin. Lors de l'ouverture de la Grotte de l'Empereur Céleste, tout le monde aurait dû être aspiré dans le monde de la bouteille. Pourtant, même après l'effondrement de ce monde, ils n'étaient pas apparus, et les voilà qui surgissaient ici.
+Le Couple de Culture du Nuage Céleste était une énigme pour Wang Lin. Lors de l'ouverture de la Grotte Xian Di, tout le monde aurait dû être aspiré dans le monde de la bouteille. Pourtant, même après l'effondrement de ce monde, ils n'étaient pas apparus, et les voilà qui surgissaient ici.
 
 Wang Lin n'était pas disposé à trop s'entretenir avec ces deux-là, et en l'absence de Zhou Yi, il nourrissait ses propres spéculations. De plus, étant blessé, il recula et dit: « Si vous, chers Seniors, n'avez rien d'autre à me dire, alors ce junior prend congé. »
 
@@ -64,7 +64,7 @@ Les restrictions sont d'une nature changeante, et chaque utilisateur les trace d
 
 Par conséquent, cette modification était inimaginable; elle subvertissait clairement sa compréhension des restrictions.
 
-« Cette fusion est d'une perfection inattendue. Selon ma connaissance des restrictions et de l'héritage de la Restriction d'Annihilation, il est impossible qu'une telle symbiose se produise lorsqu'on impose une restriction pour en modifier une autre... Même si cela était possible, cela ne pourrait être l'œuvre que de quelqu'un dont la maîtrise a déjà atteint un sommet, capable de remodeler les restrictions d'un débutant. Pourtant, nous sommes au sixième étage de la Grotte de l'Empereur Céleste, un lieu où l'on rencontre des restrictions d'une rareté absolue; comment une telle perfection aurait-elle pu être atteinte? »
+« Cette fusion est d'une perfection inattendue. Selon ma connaissance des restrictions et de l'héritage de la Restriction d'Annihilation, il est impossible qu'une telle symbiose se produise lorsqu'on impose une restriction pour en modifier une autre... Même si cela était possible, cela ne pourrait être l'œuvre que de quelqu'un dont la maîtrise a déjà atteint un sommet, capable de remodeler les restrictions d'un débutant. Pourtant, nous sommes au sixième étage de la Grotte Xian Di, un lieu où l'on rencontre des restrictions d'une rareté absolue; comment une telle perfection aurait-elle pu être atteinte? »
 
 « S'il existe réellement une telle personne, alors toutes les restrictions de cette grotte seraient un jeu d'enfant pour elle, et elle pourrait parcourir les neuf étages sans peine... » Wang Lin eut un souffle court, frappé par cette pensée. Il refusait d'y croire et examina de nouveau la situation avec minutie. La fusion des restrictions ici ne pouvait même plus être qualifiée de "parfaite".
 
@@ -72,7 +72,7 @@ C'était comme si une seule et même personne avait perfectionné sa propre cré
 
 « Serait-il possible que... » Une pensée traversa l'esprit de Wang Lin et ses yeux s'écarquillèrent.
 
-« Serait-il possible que la personne qui a placé toutes les restrictions de la Grotte de l'Empereur Céleste soit la même que celle qui a modifié celles-ci? » Wang Lin haleta. Cette réponse expliquerait tout, mais elle était proprement inconcevable.
+« Serait-il possible que la personne qui a placé toutes les restrictions de la Grotte Xian Di soit la même que celle qui a modifié celles-ci? » Wang Lin haleta. Cette réponse expliquerait tout, mais elle était proprement inconcevable.
 
 Wang Lin fixa les sceaux, sentant que si ses soupçons étaient fondés, il venait de découvrir un immense filet. Il ignorait seulement qui l'avait tendu.
 

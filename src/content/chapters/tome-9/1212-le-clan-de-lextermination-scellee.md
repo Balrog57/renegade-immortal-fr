@@ -1,12 +1,12 @@
 ---
 n: 1212
-title: "Le Clan de l'Extermination des Sceaux"
+title: "Le Clan Feng Mie"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1212 - Sealing Extermination Clan
 slug: le-clan-de-lextermination-scellee
 ---
-Wang Lin n'avait aucune certitude de pouvoir affronter un cultivateur au stade avancé du Briseur du Nirvana. En temps normal, il aurait choisi de battre en retraite, mais après le troisième éveil de l'Oiseau Vermillon, une chance s'offrait à lui! De plus, après avoir absorbé le tonnerre du membre du Clan du Tonnerre Dispersé, son propre pouvoir de foudre s'était considérablement amélioré.
+Wang Lin n'avait aucune certitude de pouvoir affronter un cultivateur au stade avancé du Briseur du Nirvana. En temps normal, il aurait choisi de battre en retraite, mais après le troisième éveil de l'Oiseau Vermillon, une chance s'offrait à lui! De plus, après avoir absorbé le tonnerre du membre du Clan Shan Lei, son propre pouvoir de foudre s'était considérablement amélioré.
 
 Plus important encore, il avait assimilé le domaine de combat de Zhan Xingye. Bien qu'il ne l'ait pas fusionné et n'en ait que partiellement compris la nature, cela lui donnait la détermination nécessaire pour combattre ce cultivateur au stade avancé du Briseur du Nirvana!
 
@@ -18,7 +18,7 @@ Wang Lin flotta dans les airs; des flammes bleues jaillirent de son œil gauche 
 
 À l'instant où le tatouage se manifesta, Wang Lin n'était plus un simple cultivateur; il était devenu un immortel de feu, le souverain de toutes les flammes!
 
-Son apparence ressemblait désormais étroitement à celle d'un membre du Clan des Moineaux de Feu. La seule différence résidait dans le fait que le tatouage entre les sourcils de Wang Lin était bleu, tandis que celui du Clan des Moineaux de Feu était rouge!
+Son apparence ressemblait désormais étroitement à celle d'un membre du Clan Huo Que. La seule différence résidait dans le fait que le tatouage entre les sourcils de Wang Lin était bleu, tandis que celui du Clan Huo Que était rouge!
 
 Le tatouage de feu bleu brûlait entre ses sourcils. Wang Lin poussa un rugissement et l'Oiseau Vermillon Bleu laissa échapper un cri de joie! L'oiseau s'envola vers le ciel pour s'engouffrer dans le tatouage situé entre les sourcils de Wang Lin!
 
@@ -46,7 +46,7 @@ Dès que les os disparurent, le feu bleu se précipita vers le vieil homme comme
 
 Cette fente émettait une lueur noire, telle un troisième œil!
 
-« En tant que descendant du Clan de l'Extermination des Sceaux, j'invoque le sort ancestral de mon clan pour sceller son tatouage de feu! » Alors que les flammes approchaient, le vieil homme n'hésita pas à révéler qu'il n'était pas un cultivateur, et la lumière noire entre ses sourcils jaillit. Cette lueur forma une rune complexe qui semblait absorber la vitalité même du vieillard. Ce dernier vieillit subitement à l'extrême.
+« En tant que descendant du Clan Feng Mie, j'invoque le sort ancestral de mon clan pour sceller son tatouage de feu! » Alors que les flammes approchaient, le vieil homme n'hésita pas à révéler qu'il n'était pas un cultivateur, et la lumière noire entre ses sourcils jaillit. Cette lueur forma une rune complexe qui semblait absorber la vitalité même du vieillard. Ce dernier vieillit subitement à l'extrême.
 
 La rune noire se projeta vers Wang Lin à une vitesse inimaginable. Elle perça la mer de feu bleu et vint se fixer entre les sourcils de ce dernier!
 
@@ -56,7 +56,7 @@ Dans l'Antiquité, il existait un clan capable de sceller les cieux. Ils étaien
 
 La rumeur prétendait que n'importe quel membre de ce clan possédait le pouvoir de sceller toute forme de vie!
 
-Ce vieil homme n'était pas un véritable descendant du Clan de l'Extermination des Sceaux. Il avait utilisé une méthode spéciale pour s'approprier une partie de leur lignée sanguine. Il pouvait utiliser leurs sorts, mais cela lui coûtait une quantité immense de vitalité à chaque usage, et cette vitalité ne pouvait jamais être restaurée!
+Ce vieil homme n'était pas un véritable descendant du Clan Feng Mie. Il avait utilisé une méthode spéciale pour s'approprier une partie de leur lignée sanguine. Il pouvait utiliser leurs sorts, mais cela lui coûtait une quantité immense de vitalité à chaque usage, et cette vitalité ne pouvait jamais être restaurée!
 
 « Si vous n'étiez qu'un simple cultivateur, cela n'aurait eu aucune importance, mais vous avez osé imiter mon Haut Clan Ancestral. Je vais sceller votre tatouage de feu et voir ce que vous valez sans lui! » Le vieil homme craignait par-dessus tout le feu de Wang Lin, sans quoi il n'aurait pas sacrifié sa vitalité pour ce sort de scellement. Il se précipita vers lui!
 
@@ -72,9 +72,9 @@ Simultanément, le tatouage de foudre dans l'œil droit de Wang Lin se déplaça
 
 « J'attendrai que vous scelliez mon tatouage de foudre! Tonnerre des cieux et de la terre, écoutez mon commandement! » La main droite de Wang Lin pointa vers le ciel et un rugissement assourdissant retentit. Encore plus de tonnerre apparut dans le Royaume aux Sept Couleurs et convergea vers lui, transformant son environnement en un véritable enfer électrique!
 
-« Clan des Moineaux de Feu, Clan du Tonnerre Dispersé... Impossible! » Le vieil homme aux cheveux blancs était stupéfait, ses yeux emplis d'incrédulité.
+« Clan Huo Que, Clan Shan Lei... Impossible! » Le vieil homme aux cheveux blancs était stupéfait, ses yeux emplis d'incrédulité.
 
-En pointant le ciel, Wang Lin s'était transformé en un membre du Clan du Tonnerre Dispersé. En réalité, il comprenait le tonnerre encore mieux qu'eux et possédait un contrôle supérieur sur la foudre céleste!
+En pointant le ciel, Wang Lin s'était transformé en un membre du Clan Shan Lei. En réalité, il comprenait le tonnerre encore mieux qu'eux et possédait un contrôle supérieur sur la foudre céleste!
 
 Alors que sa main droite redescendait, l'innombrable tonnerre qui emplissait le royaume chargea le vieil homme. Les lacs de tonnerre au sol s'élancèrent dans les airs pour fondre également sur lui.
 
@@ -88,7 +88,7 @@ Au moment où le vieil homme s'éleva, le tonnerre se rapprocha dans un fracas d
 
 « L'Empreinte de l'Esprit Guerrier! » Les pupilles de Wang Lin se rétractèrent brusquement!
 
-« Ce vieil homme est entré dans la Secte Divine et a appris ce sort. Aujourd'hui, je vais t'éliminer avec lui, et cela marquera l'achèvement d'un cycle! » Le vieillard n'était pas surpris que Wang Lin connaisse cette technique. Après tout, ce sort jouissait d'une renommée illustre dans la Mer des Nuages!
+« Ce vieil homme est entré dans la Secte Divine et a appris ce sort. Aujourd'hui, je vais t'éliminer avec lui, et cela marquera l'achèvement d'un cycle! » Le vieillard n'était pas surpris que Wang Lin connaisse cette technique. Après tout, ce sort jouissait d'une renommée illustre dans la Mer Yun!
 
 L'Empreinte de l'Esprit Guerrier créée par le vieil homme dégagea soudain une pression majestueuse en s'élançant. Elle entra en collision avec le tonnerre et provoqua un séisme qui ébranla les cieux!
 

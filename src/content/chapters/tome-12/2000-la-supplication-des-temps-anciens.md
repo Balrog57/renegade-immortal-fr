@@ -12,7 +12,7 @@ L'Empereur Céleste entra une fois de plus en cultivation isolée.
 
 L'Empereur Céleste de cette génération, Lian Daozhen, se retirait fréquemment en cultivation isolée, et les périodes d'incertitude étaient fréquentes. Le clan céleste dans son ensemble n'y prêtait guère attention.
 
-Wu Feng retourna au Continent du Nord et s'enferma immédiatement dans le glacier éternel. Il dissipa silencieusement la malédiction ancestrale qui rongeait son corps.
+Wu Feng retourna au Continent Bei et s'enferma immédiatement dans le glacier éternel. Il dissipa silencieusement la malédiction ancestrale qui rongeait son corps.
 
 N'ayant jamais attaqué depuis qu'il avait été affecté par la malédiction, dissiper celle-ci lui serait un peu plus facile qu'à Dao Yi ou à Jiu Di. De plus, il avait obtenu les oreilles de l'Ancêtre Céleste. Une fois la malédiction dissipée et les oreilles raffinées, son niveau de culture augmenterait considérablement.
 
@@ -30,7 +30,7 @@ Une fois que tous les Exaltés et Ascendants Empyréens sous les ordres de Dao Y
 
 Cette méthode cruelle consistant à partager le poids de la malédiction ancestrale fit que la Secte Dao Yi manqua de devenir une secte morte...
 
-Jiu Di ramena Hai Zi au Mont de l'Empereur et entra immédiatement en cultivation isolée. Sa puissance lui permettait de dissiper lentement la malédiction par ses propres moyens. De plus, avec l'aide de Hai Zi, le pouvoir de la malédiction s'estomperait progressivement avec le temps.
+Jiu Di ramena Hai Zi au Mont Di et entra immédiatement en cultivation isolée. Sa puissance lui permettait de dissiper lentement la malédiction par ses propres moyens. De plus, avec l'aide de Hai Zi, le pouvoir de la malédiction s'estomperait progressivement avec le temps.
 
 Seule Shuangzi, Grand Empyréen, ne fut pas affectée par la malédiction, car elle n'était pas avide. Les deux fillettes se mirent en cultivation isolée dès leur retour afin de fusionner avec les yeux de l'Ancêtre Céleste. Une fois sorties de leur retraite, elles seraient capables de réparer complètement la faiblesse causée par l'incident lors de leur réincarnation.
 
@@ -40,47 +40,47 @@ Sous cette montagne, le fou ne s'était toujours pas éveillé, comme s'il atten
 
 Six mois plus tard.
 
-Le Continent de l'Est du clan céleste, le Continent du Taureau Céleste.
+Le Continent de l'Est du clan céleste, le Continent Tian Niu.
 
-Le Continent du Taureau Céleste, autrefois parsemé de montagnes, avait perdu beaucoup de ses reliefs lors de la guerre contre le Continent du Démon Vert. Cela avait profondément modifié son paysage.
+Le Continent Tian Niu, autrefois parsemé de montagnes, avait perdu beaucoup de ses reliefs lors de la guerre contre le Continent Lu Mo. Cela avait profondément modifié son paysage.
 
-Cependant, la structure du pouvoir sur le continent ne changea guère. La Secte de la Grande Âme et la Secte Gui Yi demeuraient les plus puissants, entourés de nombreuses petites sectes.
+Cependant, la structure du pouvoir sur le continent ne changea guère. La Secte Da Hun et la Secte Gui Yi demeuraient les plus puissants, entourés de nombreuses petites sectes.
 
 Les disciples envoyés à la cité ancestrale étaient retournés dans leurs sectes respectives. Ils avaient tous obtenu leur propre fortune et deviendraient l'avenir de leurs sectes.
 
-La Secte de la Grande Âme.
+La Secte Da Hun.
 
 Après le départ de Wang Lin, l'Illustre Taureau Vert était entré en cultivation isolée, se détournant des affaires mondaines. La gestion de la secte fut confiée aux Anciens. Il ne posa qu'une seule condition : la montagne offerte à Wang Lin devait être préservée et transformée en une terre interdite où nul ne pourrait pénétrer.
 
-Beaucoup étaient perplexes face à cette décision. Lorsque la renommée de Wang Lin s'étala lors de l'Épreuve Empyréenne, et que les rumeurs concernant l'Ascendant aux cheveux blancs se répandirent, les membres de la Secte de la Grande Âme furent déconcertés. Ce n'est qu'en suivant divers indices qu'ils comprirent que Wang Lin était bel et bien cet Ascendant Empyréen aux cheveux blancs. Ils saisirent alors vaguement le sens des actions de l'Illustre Taureau Vert.
+Beaucoup étaient perplexes face à cette décision. Lorsque la renommée de Wang Lin s'étala lors de l'Épreuve Empyréenne, et que les rumeurs concernant l'Ascendant aux cheveux blancs se répandirent, les membres de la Secte Da Hun furent déconcertés. Ce n'est qu'en suivant divers indices qu'ils comprirent que Wang Lin était bel et bien cet Ascendant Empyréen aux cheveux blancs. Ils saisirent alors vaguement le sens des actions de l'Illustre Taureau Vert.
 
-Yan Luan, une ancienne du passé, occupait désormais un poste élevé dans la secte et pouvait décider de questions importantes. Elle aurait pu quitter sa montagne pour s'installer dans les profondeurs de la Secte de la Grande Âme afin d'obtenir une grotte plus luxueuse.
+Yan Luan, une ancienne du passé, occupait désormais un poste élevé dans la secte et pouvait décider de questions importantes. Elle aurait pu quitter sa montagne pour s'installer dans les profondeurs de la Secte Da Hun afin d'obtenir une grotte plus luxueuse.
 
 Mais elle ne partit jamais. Du sommet de sa montagne, elle pouvait apercevoir la grotte de Wang Lin au loin. Chaque fois qu'elle se remémorait le passé, elle restait là, debout, contemplant silencieusement la montagne de Wang Lin.
 
 Fan Shanmeng et Fan Shanlu étaient toujours ses disciples. Leurs griefs personnels envers Wang Lin s'étaient résolus. Les années avaient passé — assez de temps pour que tout soit oublié.
 
-Dans la Secte de la Grande Âme, il y avait un autre Ancien nommé Du Qing. Son corps n'était pas fait de chair et de sang, mais d'un morceau de bois. Après avoir condensé son âme originelle à l'intérieur, il en fit son corps.
+Dans la Secte Da Hun, il y avait un autre Ancien nommé Du Qing. Son corps n'était pas fait de chair et de sang, mais d'un morceau de bois. Après avoir condensé son âme originelle à l'intérieur, il en fit son corps.
 
-Il avait été personnellement nommé Ancien par l'ancêtre de la Secte de la Grande Âme, bien qu'il ne possédât pas le niveau de culture requis pour un tel rang. Sa vie était désormais très confortable, bien meilleure qu'auparavant.
+Il avait été personnellement nommé Ancien par l'ancêtre de la Secte Da Hun, bien qu'il ne possédât pas le niveau de culture requis pour un tel rang. Sa vie était désormais très confortable, bien meilleure qu'auparavant.
 
-Le temps s'écoulait. Au fil des innombrables levers et couchers de soleil, la Secte de la Grande Âme semblait immuable, tout comme le Continent du Taureau Céleste. Les montagnes restaient les mêmes, et les pavillons étaient identiques à ceux d'autrefois.
+Le temps s'écoulait. Au fil des innombrables levers et couchers de soleil, la Secte Da Hun semblait immuable, tout comme le Continent Tian Niu. Les montagnes restaient les mêmes, et les pavillons étaient identiques à ceux d'autrefois.
 
-Wang Lin se tenait devant la Secte de la Grande Âme, contemplant ce lieu familier. Lorsqu'il était arrivé ici la première fois, sa compréhension de la secte n'était que vague. Il avait fini par croire qu'il en connaissait tous les rouages jusqu'à ce qu'il parte et vive mille expériences. Finalement, au palais impérial, si loin de là, il avait découvert le lien profond entre la Secte de la Grande Âme et ce palais. Il comprit enfin que, même maintenant, il restait des mystères insondables sur ce lieu.
+Wang Lin se tenait devant la Secte Da Hun, contemplant ce lieu familier. Lorsqu'il était arrivé ici la première fois, sa compréhension de la secte n'était que vague. Il avait fini par croire qu'il en connaissait tous les rouages jusqu'à ce qu'il parte et vive mille expériences. Finalement, au palais impérial, si loin de là, il avait découvert le lien profond entre la Secte Da Hun et ce palais. Il comprit enfin que, même maintenant, il restait des mystères insondables sur ce lieu.
 
-« Le Clan Dao Wang... Un génie que nul ne pouvait surpasser... L'ancêtre de cette Secte de la Grande Âme est peut-être mort, ou peut-être est-il encore de ce monde... Mais son plan s'étendait sur des éons et il avait prédit les événements d'aujourd'hui. Il avait manigancé contre tout le monde. À ses yeux, chacun n'était qu'un pion... »
+« Le Clan Dao Wang... Un génie que nul ne pouvait surpasser... L'ancêtre de cette Secte Da Hun est peut-être mort, ou peut-être est-il encore de ce monde... Mais son plan s'étendait sur des éons et il avait prédit les événements d'aujourd'hui. Il avait manigancé contre tout le monde. À ses yeux, chacun n'était qu'un pion... »
 
 « En fin de compte, son plan consistant à lever le sceau sur son clan et à faire disparaître la lignée de l'Ancêtre Céleste a réussi. Tout cela pour permettre à son dernier membre survivant de gagner sa liberté... »
 
-Wang Lin regarda la Secte de la Grande Âme avec une expression complexe. Il était arrivé sur le Continent Astral Immortel depuis longtemps, mais ce n'est que maintenant qu'il découvrait que ce lointain Continent du Taureau Céleste, insignifiant aux yeux de nombreux puissants, recelait un secret dont les racines remontaient à des temps immémoriaux.
+Wang Lin regarda la Secte Da Hun avec une expression complexe. Il était arrivé sur le Continent Astral Immortel depuis longtemps, mais ce n'est que maintenant qu'il découvrait que ce lointain Continent Tian Niu, insignifiant aux yeux de nombreux puissants, recelait un secret dont les racines remontaient à des temps immémoriaux.
 
-Dans un soupir, Wang Lin s'avança vers la Secte de la Grande Âme.
+Dans un soupir, Wang Lin s'avança vers la Secte Da Hun.
 
 Son niveau de culture actuel étant bien supérieur à celui de l'Illustre Taureau Vert et de tous les membres de la secte, personne ne remarqua son arrivée.
 
-Au sein de la Secte de la Grande Âme, Wang Lin vit Du Qing et Yan Luan, cette dernière se tenant sur la montagne vêtue d'une robe rouge flamboyant. Il aperçut également Fan Shanmeng et Fan Shanlu.
+Au sein de la Secte Da Hun, Wang Lin vit Du Qing et Yan Luan, cette dernière se tenant sur la montagne vêtue d'une robe rouge flamboyant. Il aperçut également Fan Shanmeng et Fan Shanlu.
 
-Sans s'arrêter, Wang Lin pénétra dans les profondeurs de la Secte de la Grande Âme. Il se dirigea vers le Pavillon des Écritures de l'Âme qu'il avait visité autrefois!
+Sans s'arrêter, Wang Lin pénétra dans les profondeurs de la Secte Da Hun. Il se dirigea vers le Pavillon Cang Hun qu'il avait visité autrefois!
 
 Ce pavillon avait dû être ouvert par l'Illustre Taureau Vert à l'époque. Pourtant, aujourd'hui, d'un seul pas, Wang Lin se trouvait déjà devant lui.
 
@@ -88,9 +88,9 @@ C'était un édifice de sept étages enveloppé d'une fine couche de brume. Deva
 
 La porte du pavillon était close et un silence absolu régnait. Trois grands caractères surplombaient l'entrée:
 
-Pavillon des Écritures de l'Âme!
+Pavillon Cang Hun!
 
-Ce pavillon semblait comporter sept étages, mais en vérité, il y avait un huitième, un neuvième... et même un dixième! L'Illustre Taureau Vert avait affirmé que même lui ne pouvait accéder au dixième étage. C'était là que reposait l'ancien ancêtre de la Secte de la Grande Âme.
+Ce pavillon semblait comporter sept étages, mais en vérité, il y avait un huitième, un neuvième... et même un dixième! L'Illustre Taureau Vert avait affirmé que même lui ne pouvait accéder au dixième étage. C'était là que reposait l'ancien ancêtre de la Secte Da Hun.
 
 L'expression de Wang Lin resta calme alors qu'il levait les yeux vers le sommet de l'édifice. Il était venu chercher une réponse, pour découvrir ce que le génie du Clan Dao Wang lui avait laissé.
 
@@ -100,7 +100,7 @@ Des craquements résonnaient dans le silence du pavillon. Wang Lin franchit le d
 
 Il n'avait nul besoin de briser les restrictions; elles se dissipaient simplement sur son passage.
 
-Contemplant l'escalier menant au neuvième étage, Wang Lin grimpa lentement. Quelques jades flottaient là, contenant les sorts les plus puissants de la Secte de la Grande Âme.
+Contemplant l'escalier menant au neuvième étage, Wang Lin grimpa lentement. Quelques jades flottaient là, contenant les sorts les plus puissants de la Secte Da Hun.
 
 Le sort d'illusion multicouche complet qu'il recherchait se trouvait ici.
 
@@ -108,7 +108,7 @@ Son regard balaya les jades un à un. Après avoir tout inspecté, il se dirigea
 
 Ce passage menait au dixième étage!
 
-Au total, treize marches. Wang Lin leva le pied et monta pas à pas. Il atteignit enfin le sommet du Pavillon des Écritures de l'Âme: le dixième étage.
+Au total, treize marches. Wang Lin leva le pied et monta pas à pas. Il atteignit enfin le sommet du Pavillon Cang Hun: le dixième étage.
 
 Dès qu'il pénétra dans cette ultime pièce, Wang Lin vit quelque chose qui le plongea dans une longue réflexion silencieuse. Il observa la scène avec un sentiment complexe pendant un long moment avant de laisser échapper un soupir.
 
@@ -128,4 +128,4 @@ Ce n'était pas un squelette ordinaire, mais une prison pour l'âme de cet homme
 
 La statue était celle de Wang Lin.
 
-Le squelette était l'ancien ancêtre de la Secte de la Grande Âme, le génie du Clan Dao Wang!
+Le squelette était l'ancien ancêtre de la Secte Da Hun, le génie du Clan Dao Wang!

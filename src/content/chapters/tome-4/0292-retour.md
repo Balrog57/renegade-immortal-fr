@@ -58,7 +58,7 @@ Une fois dehors, il observa les environs d'un air confus avant de fixer son rega
 
 Sun Wen frissonna sous le regard de Wang Lin. Il eut l'impression que toutes ses pensées étaient mises à nu. Il répondit rapidement: « Ce lieu n'est pas Gong Sun, mais le site d'entraînement des cadets. C'est le pays de culture de rang 3, Wu Wen. »
 
-Wang Lin réfléchit un instant. Il avait déjà vu Wu Wen sur une carte. C'était un petit pays situé plutôt à l'est de la planète. La Mer des Démons se trouvait à une demi-planète de là; le voyage de retour s'annonçait donc très long.
+Wang Lin réfléchit un instant. Il avait déjà vu Wu Wen sur une carte. C'était un petit pays situé plutôt à l'est de la planète. La Mer Xiu Mo se trouvait à une demi-planète de là; le voyage de retour s'annonçait donc très long.
 
 Wang Lin avait parcouru de vastes distances dans le champ de bataille étranger afin de collecter des âmes errantes.
 
@@ -102,7 +102,7 @@ Quant aux trois mystérieuses gaines d'épée, elles avaient également été ra
 
 En plus de tout cela, parmi la douzaine d'instruments des anciens cultivateurs, il avait réussi à briser les sceaux de trois d'entre eux au cours des dernières années pour en faire ses propres outils.
 
-Dans son sac de rangement, il ne restait qu'une seule chose dont il ignorait encore la nature exacte: un parchemin obtenu auprès d'un cultivateur quelconque dans la Mer des Démons.
+Dans son sac de rangement, il ne restait qu'une seule chose dont il ignorait encore la nature exacte: un parchemin obtenu auprès d'un cultivateur quelconque dans la Mer Xiu Mo.
 
 Dès qu'il ouvrait le parchemin, il n'y avait que l'obscurité, mais une aura dangereuse s'en dégageait. Wang Lin ne l'avait ouvert que trois fois.
 

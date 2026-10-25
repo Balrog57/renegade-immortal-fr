@@ -90,11 +90,11 @@ Wang Wei regarda Wang Lin en souriant: « Dis-moi pourquoi tu m'as demandé de t
 
 De l'autre côté de la rivière, Hu Juan sourit en replaçant ses cheveux et ajouta: « Wang Lin, cela lui tient beaucoup à cœur. Il trouve indigne de son statut de Senior de tendre une embuscade à un junior. »
 
-Wang Lin sourit. Wang Wei et Hu Juan étaient devenus très proches de lui après les événements sur la Terre des Esprits Démoniaques; ils ne le considéraient plus comme un étranger. Wang Wei ne se souciait probablement pas tant que cela de l'embuscade faite à Lie Yunzi.
+Wang Lin sourit. Wang Wei et Hu Juan étaient devenus très proches de lui après les événements sur la Terre Yao Ling; ils ne le considéraient plus comme un étranger. Wang Wei ne se souciait probablement pas tant que cela de l'embuscade faite à Lie Yunzi.
 
 Puisqu'on l'interrogeait, Wang Lin expliqua brièvement la situation, et Wang Wei n'en tint plus compte après avoir entendu les raisons.
 
-« Lors de mon séjour sur la Terre des Esprits Démoniaques, le junior a entendu les dernières paroles de l'Empereur Céleste Qing Lin: le Temple du Royaume Céleste de la Pluie, le cristal d'âme originelle et le sang de Qing Shuang. Le junior en possède deux, mais quant au Temple du Royaume Céleste de la Pluie... » Wang Lin marqua une pause et regarda Wang Wei.
+« Lors de mon séjour sur la Terre Yao Ling, le junior a entendu les dernières paroles de l'Empereur Céleste Qing Lin: le Temple Yu Jie Zun, le cristal d'âme originelle et le sang de Qing Shuang. Le junior en possède deux, mais quant au Temple Yu Jie Zun... » Wang Lin marqua une pause et regarda Wang Wei.
 
 L'expression de Wang Wei devint sérieuse et il hocha la tête. « Au fil des années, j'y ai réfléchi, et il y avait bel et bien un temple! C'est là que Maître est devenu l'Empereur Céleste. Je t'en avais déjà parlé auparavant, alors ta venue ici signifie que... » Wang Wei fixa Wang Lin du regard.
 
@@ -118,7 +118,7 @@ En un instant, le cristal brilla d'un éclat fulgurant, et une quantité inimagi
 
 Un grondement de tonnerre retentit alors que la porte du Royaume Céleste de la Pluie apparaissait lentement au-dessus de la planète de la Secte Divine de l'Oiseau Vermillon! À cet instant, tous les cultivateurs ayant atteint un certain niveau de culture ressentirent cette fluctuation. Les plus expérimentés comprirent immédiatement: le Royaume Céleste de la Pluie venait de s'ouvrir!
 
-Au même moment, les chaudrons de pluie apparurent à travers tout le Système Stellaire de l'Alliance. Cependant, Luotian, la Secte des Cadavres et les diverses forces de l'Alliance s'étaient déjà rassemblés autour de la planète Suzaku. Bien que stupéfaits, ils n'avaient pas le temps de s'en inquiéter.
+Au même moment, les chaudrons de pluie apparurent à travers tout le Système Stellaire de l'Alliance. Cependant, Luotian, la Secte Shi Yin et les diverses forces de l'Alliance s'étaient déjà rassemblés autour de la planète Suzaku. Bien que stupéfaits, ils n'avaient pas le temps de s'en inquiéter.
 
 « Les personnes de notre niveau de culture risquent de rendre le Royaume Céleste de la Pluie instable et de provoquer un effondrement massif. Nous devons secourir l'Empereur Divin du Dragon Azure au plus vite!!! » Après avoir lancé cet avertissement, Wang Lin chargea vers la porte du Royaume Céleste de la Pluie! Derrière lui, les 35 Anciens, Situ Nan, Wang Wei, Hu Juan et les autres s'élancèrent à sa suite.
 

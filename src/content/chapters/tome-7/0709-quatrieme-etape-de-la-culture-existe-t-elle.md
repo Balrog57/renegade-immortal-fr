@@ -48,7 +48,7 @@ La Bête du Tonnerre emmena Wang Lin vers la planète Qianhuan. La planète Ran 
 
 « Le Serpent aux yeux de lune est un parasite qui vit à l'intérieur du corps d'un Dieu Ancien. Je me demande s'il reste là-bas des traces de l'aura d'un Dieu Ancien... » Wang Lin se remémora un souvenir passé.
 
-« À l'époque, sur la planète Tian Yun, un messager de l'Alliance de la Culture était arrivé avec une Zibeline Marquée d'Étoiles. Cette créature est extrêmement sensible à l'aura d'un Dieu Ancien. Si cette bête était ici, elle m'aiderait grandement dans ma recherche... »
+« À l'époque, sur la planète Tian Yun, un messager de l'Alliance Xiu Zhen était arrivé avec une Zibeline Marquée d'Étoiles. Cette créature est extrêmement sensible à l'aura d'un Dieu Ancien. Si cette bête était ici, elle m'aiderait grandement dans ma recherche... »
 
 La Bête du Tonnerre poussa un rugissement en traversant l'espace. Quinze jours plus tard, la planète Qianhuan apparut aux yeux de Wang Lin. Son regard restait calme tandis que la Bête du Tonnerre fonçait vers la planète.
 

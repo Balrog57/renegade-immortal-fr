@@ -44,7 +44,7 @@ Après un long moment, alors que le tonnerre et le feu faisaient rage, la confus
 
 Les yeux de Wang Lin étaient empreints d'une froideur sans fin. Il se redressa, puis se leva lentement et scruta le vide au-delà de la lueur sanglante.
 
-« J'ai cultivé pendant plus de 2 000 ans. Aujourd'hui, je vais briser la Porte du Vide et devenir un cultivateur de la troisième étape! » Wang Lin pointa l'avant de lui.
+« J'ai cultivé pendant plus de 2 000 ans. Aujourd'hui, je vais briser la Porte Kong et devenir un cultivateur de la troisième étape! » Wang Lin pointa l'avant de lui.
 
 « Essence du tonnerre! »
 
@@ -80,7 +80,7 @@ Ce totem semblait réel, mais ce n'était en fait qu'une illusion, un flou total
 
 Le tonnerre et le feu avaient atteint la perfection!
 
-Ces deux seules essences suffiraient à Wang Lin pour fracasser la Porte du Vide et instantanément tuer tout cultivateur n'ayant pas atteint le sommet du Vide du Nirvana!
+Ces deux seules essences suffiraient à Wang Lin pour fracasser la Porte Kong et instantanément tuer tout cultivateur n'ayant pas atteint le sommet du Vide du Nirvana!
 
 « Karma, apparais! » La froideur dans les yeux de Wang Lin s'estompa, remplacée par la nostalgie. L'aura d'un grand érudit, qu'il n'avait jamais libérée hors de son rêve, se propagea.
 

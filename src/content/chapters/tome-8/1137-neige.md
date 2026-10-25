@@ -70,19 +70,19 @@ Contrairement aux règles strictes de l'Alliance, Luotian offrait plus de libert
 
 L'honneur primait sur tout!
 
-La Mer des Nuages, sous le Royaume Céleste du Vent, était bien différente de ces systèmes...
+La Mer Yun, sous le Royaume Céleste du Vent, était bien différente de ces systèmes...
 
-Le Système Stellaire de la Mer des Nuages était plus vaste que Luotian. On pouvait dire que, parmi les quatre systèmes stellaires, celui de la Mer des Nuages était le plus immense. À première vue, l'espace n'était pas sombre, mais recouvert d'une fine couche de brume. Ce brouillard imprégnait presque toute la Mer des Nuages et entravait le Sens Divin à un certain degré.
+Le Système Stellaire de la Mer Yun était plus vaste que Luotian. On pouvait dire que, parmi les quatre systèmes stellaires, celui de la Mer Yun était le plus immense. À première vue, l'espace n'était pas sombre, mais recouvert d'une fine couche de brume. Ce brouillard imprégnait presque toute la Mer Yun et entravait le Sens Divin à un certain degré.
 
-En raison de ce brouillard présent depuis une éternité, le Système Stellaire de la Mer des Nuages ne ressemblait pas à un système d'étoiles, mais plutôt à une mer de nuages. C'était là l'origine de son nom.
+En raison de ce brouillard présent depuis une éternité, le Système Stellaire de la Mer Yun ne ressemblait pas à un système d'étoiles, mais plutôt à une mer de nuages. C'était là l'origine de son nom.
 
 À cause de cette brume unique, même les puissants cultivateurs pouvaient s'égarer sans carte stellaire. Sans elle, ils resteraient à jamais piégés dans ce voile.
 
 Même la Déformation Spatiale était sévèrement affectée. Bien qu'elle fût utilisable, son efficacité restait faible.
 
-Nul ne connaissait l'origine de cette brume. Ce voile qui emplissait la Mer des Nuages semblait exister depuis l'époque précédant la disparition du Royaume Céleste Antique...
+Nul ne connaissait l'origine de cette brume. Ce voile qui emplissait la Mer Yun semblait exister depuis l'époque précédant la disparition du Royaume Céleste Antique...
 
-Contrairement à Luotian et à l'Alliance, divisés selon les points cardinaux, la Mer des Nuages n'obéissait pas à cette logique. La brume rendait la détermination des directions exactes presque impossible pour les cultivateurs.
+Contrairement à Luotian et à l'Alliance, divisés selon les points cardinaux, la Mer Yun n'obéissait pas à cette logique. La brume rendait la détermination des directions exactes presque impossible pour les cultivateurs.
 
 Le brouillard ne permettait pas non plus une division géographique classique; le système était plutôt structuré selon la concentration de la brume. De l'intérieur vers l'extérieur, il y avait un total de neuf rangs!
 
@@ -90,7 +90,7 @@ Ces neuf rangs formaient en réalité neuf anneaux de formes irrégulières. L'a
 
 Le continent de Mo Luo se situait dans le cinquième rang du brouillard. De loin, le continent semblait apparaître et disparaître par intermittence. En son centre s'élevait une tour noire imposante qui dégageait une douce lueur enveloppant la terre. Cette lumière empêchait le brouillard de pénétrer sur le continent et le repoussait constamment, maintenant ainsi la zone environnante limpide.
 
-Il n'était pas vrai que le Système Stellaire de la Mer des Nuages manquait de véritables planètes de culture; elles étaient simplement très rares. La plupart se concentraient dans les zones de rang 7 ou supérieur, et il y en avait moins de cent au total.
+Il n'était pas vrai que le Système Stellaire de la Mer Yun manquait de véritables planètes de culture; elles étaient simplement très rares. La plupart se concentraient dans les zones de rang 7 ou supérieur, et il y en avait moins de cent au total.
 
 En dessous du rang 7, on trouvait principalement ces continents flottants. Chaque continent représentait une secte différente.
 
@@ -108,6 +108,6 @@ Il n'y avait aucun cultivateur dans les environs. Le dernier groupe chargé de l
 
 Les éclairs zébrèrent la nuit. Lorsqu'ils illuminèrent à nouveau le monde, des craquements se firent entendre provenant de la formation. Pourtant, le rugissement du tonnerre étouffait complètement ce bruit.
 
-Une lumière bleue émana de la formation et commença progressivement à l'envelopper. La pluie semblait tomber avec encore plus de fureur, comme si elle savait qu'un cultivateur n'appartenant pas à la Mer des Nuages — un être qui allait s'y élever et bouleverser les quatre Royaumes Célestes — était sur le point d'apparaître.
+Une lumière bleue émana de la formation et commença progressivement à l'envelopper. La pluie semblait tomber avec encore plus de fureur, comme si elle savait qu'un cultivateur n'appartenant pas à la Mer Yun — un être qui allait s'y élever et bouleverser les quatre Royaumes Célestes — était sur le point d'apparaître.
 
 La pluie redoubla d'intensité... et la fréquence des éclairs augmenta.

@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 659 - Leaving
 slug: depart
 ---
-Cette paume s'abattit sur le vortex des Esprits Démoniaques, mais ce qu'elle ébranla, ce fut l'intégralité de la Terre des Esprits Démoniaques. À cet instant, les neuf pays de la Terre des Esprits Démoniaques tremblèrent de fond en comble.
+Cette paume s'abattit sur le vortex des Esprits Démoniaques, mais ce qu'elle ébranla, ce fut l'intégralité de la Terre Yao Ling. À cet instant, les neuf pays de la Terre Yao Ling tremblèrent de fond en comble.
 
-La Terre des Esprits Démoniaques fut envahie par les cris, et le ciel ne fut plus bleu mais s'assombrit. Les nuages tourbillonnaient, formant un gigantesque vortex.
+La Terre Yao Ling fut envahie par les cris, et le ciel ne fut plus bleu mais s'assombrit. Les nuages tourbillonnaient, formant un gigantesque vortex.
 
 Ce vortex était d'une démesure absolue; il s'étendait en une rotation lente. Une énergie d'épée émanait de son centre pour se répandre dans les cieux.
 
@@ -20,17 +20,17 @@ Bei Luo fronça les sourcils en levant les yeux au ciel. Après un bref coup d'�
 
 Plusieurs silhouettes émergèrent du vortex dans le ciel. Ling Tianhou se tenait là, vêtu de robes vertes. Dominant la terre du regard, il rugit: « Tan Lang, sors et viens à la rencontre de ce vieil homme! »
 
-Sa voix retentit comme un coup de tonnerre grondant à travers les cieux. Le sol commença immédiatement à se fissurer sous la puissance de l'onde de choc. En un clin d'œil, la voix de Ling Tianhou s'était propagée dans toute la Terre des Esprits Démoniaques.
+Sa voix retentit comme un coup de tonnerre grondant à travers les cieux. Le sol commença immédiatement à se fissurer sous la puissance de l'onde de choc. En un clin d'œil, la voix de Ling Tianhou s'était propagée dans toute la Terre Yao Ling.
 
 Étrangement, Tian Yunzi et les autres semblaient savoir depuis longtemps que Tan Lang se trouvait là, car aucun d'eux ne manifesta la moindre surprise.
 
-Xue Zu fronça les sourcils, le visage assombri. Dès qu'il avait posé le pied sur la Terre des Esprits Démoniaques, il avait balayé toute la contrée de son sens divin, mais n'avait trouvé aucune trace de Yao Xixue. C'était comme si elle s'était volatilisée, ce qui accroissait son inquiétude.
+Xue Zu fronça les sourcils, le visage assombri. Dès qu'il avait posé le pied sur la Terre Yao Ling, il avait balayé toute la contrée de son sens divin, mais n'avait trouvé aucune trace de Yao Xixue. C'était comme si elle s'était volatilisée, ce qui accroissait son inquiétude.
 
 Il prit une profonde inspiration et commença à activer secrètement un sortilège. Il scanna à nouveau la zone avec ses techniques occultes, et son expression devint plus lugubre encore.
 
-Tian Yunzi leva sa main droite et manipula ses doigts pour effectuer des calculs divinatoires. De l'extérieur, la Mer de l'Est interférait avec sa divination, mais désormais qu'il se trouvait à l'intérieur de la Terre, plus rien ne l'obstruait.
+Tian Yunzi leva sa main droite et manipula ses doigts pour effectuer des calculs divinatoires. De l'extérieur, la Mer Dong interférait avec sa divination, mais désormais qu'il se trouvait à l'intérieur de la Terre, plus rien ne l'obstruait.
 
-Au moment même où ces vieux monstres pénétraient dans la Terre des Esprits Démoniaques, Wang Lin plongea dans l'Abîme des Marées. Il fondit vers les profondeurs tel une météorite.
+Au moment même où ces vieux monstres pénétraient dans la Terre Yao Ling, Wang Lin plongea dans l'Abîme Chao Xi. Il fondit vers les profondeurs tel une météorite.
 
 La force d'aspiration agissait comme un puissant propulseur qui précipitait Wang Lin au fond du gouffre.
 
@@ -62,7 +62,7 @@ L'expression de Tan Lang resta parfaitement neutre. Après être apparu, il se t
 
 Ling Tianhou ne daigna pas regarder Chen Long; il fixa Tan Lang et dit d'un ton menaçant: « Tan Lang, tu as sacrément du cran! »
 
-Bien que le cœur de Tan Lang ait raté un battement, son visage ne trahit rien. Il lança un regard glacial à Chen Long et répliqua: « Petit garnement, est-ce que ce vieil homme a personnellement tué un seul membre de ta Secte de l'Épée Da Luo? »
+Bien que le cœur de Tan Lang ait raté un battement, son visage ne trahit rien. Il lança un regard glacial à Chen Long et répliqua: « Petit garnement, est-ce que ce vieil homme a personnellement tué un seul membre de ta Secte Da Luo Jian? »
 
 Chen Long le dévisagea avec haine. La présence de son maître lui donnait du courage, et il hurla: « Même si vous ne les avez pas tués de vos propres mains, vous nous avez piégés dans la brume violette! Sans cela, comment mes jeunes frères auraient-ils pu mourir?! »
 
@@ -74,7 +74,7 @@ Tan Lang eut un sourire amer et déclara d'un ton désespéré: « Vous ne me cr
 
 Ling Tianhou le dévisagea en silence, attendant la suite. À cet instant, à l'exception de Tian Yunzi qui gardait les yeux clos, tous les vieux monstres, y compris Xue Zu, tournèrent leurs regards perçants vers Tan Lang.
 
-Tan Lang sentit son cuir chevelu s'engourdir. Parmi les présents, hormis Chen Long, il possédait le plus bas niveau de culture. Se faire ainsi fixer par de tels puissants faisait trembler son esprit. Il lui fallut un moment pour reprendre ses esprits. Il prit une profonde inspiration et lança rapidement: « C'est Wang Lin, de la Secte du Destin Céleste, qui a pris le jeton. Le neveu Chen Long peut en témoigner! C'est aussi lui qui a massacré les disciples de la Secte de l'Épée Da Luo! »
+Tan Lang sentit son cuir chevelu s'engourdir. Parmi les présents, hormis Chen Long, il possédait le plus bas niveau de culture. Se faire ainsi fixer par de tels puissants faisait trembler son esprit. Il lui fallut un moment pour reprendre ses esprits. Il prit une profonde inspiration et lança rapidement: « C'est Wang Lin, de la Secte Tian Yun, qui a pris le jeton. Le neveu Chen Long peut en témoigner! C'est aussi lui qui a massacré les disciples de la Secte Da Luo Jian! »
 
 Ling Tianhou fronça les sourcils et se tourna vers Chen Long.
 
@@ -82,11 +82,11 @@ Ce dernier s'empressa de dire: « Maître, le disciple a seulement vu que Wang L
 
 À cet instant précis, Tian Yunzi ouvrit soudainement les yeux et regarda vers l'est.
 
-« Il veut partir! » La main de Tian Yunzi bougea avec une rapidité fulgurante, son regard semblant percer l'horizon. Il se fixa sur l'entrée de l'Abîme des Marées dans le Pays du Démon de l'Eau et plongea jusqu'au fond de la faille. Cependant, sa vision ne s'arrêta pas là et s'enfonça plus profondément encore dans le gouffre.
+« Il veut partir! » La main de Tian Yunzi bougea avec une rapidité fulgurante, son regard semblant percer l'horizon. Il se fixa sur l'entrée de l'Abîme Chao Xi dans le Pays Shui Yao et plongea jusqu'au fond de la faille. Cependant, sa vision ne s'arrêta pas là et s'enfonça plus profondément encore dans le gouffre.
 
 Alors qu'il descendait, Wang Lin le remarqua immédiatement. Il se laissa porter par la force d'aspiration pour accélérer sa chute. Tian Yunzi sentit que son regard était perturbé par cette force; il hésita un instant avant de percer l'aspiration pour continuer sa descente.
 
-Le sortilège de Tian Yunzi attira aussitôt l'attention de Ling Tianhou et des autres. Même le Couple Céleste des Nuages manifesta sa surprise. Tous ces vieux monstres déployèrent leurs sens divins, suivant la vision de Tian Yunzi au plus profond de l'Abîme des Marées.
+Le sortilège de Tian Yunzi attira aussitôt l'attention de Ling Tianhou et des autres. Même le Couple Céleste des Nuages manifesta sa surprise. Tous ces vieux monstres déployèrent leurs sens divins, suivant la vision de Tian Yunzi au plus profond de l'Abîme Chao Xi.
 
 L'expression de Wang Lin resta impassible tandis qu'il frappait son sac de rangement pour libérer la formation d'épée des sept étoiles. La formation tourbillonna autour de lui, accroissant sa vitesse.
 

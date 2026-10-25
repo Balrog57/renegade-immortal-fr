@@ -34,9 +34,9 @@ Pourtant, malgré leur rapidité, ils n'étaient pas assez véloces pour échapp
 
 La main droite de Wang Lin tira davantage sur la corde en laissant échapper un rugissement. À cet instant, il semblait que Wang Lin allait briser l'arc lui-même!
 
-Il fixa les Célestes terrifiés qui reculaient, une intention meurtrière monstrueuse brillant dans ses yeux. Les êtres qu'il voulait tuer étaient ces disciples de la Secte des Sept Dao! Ces arrogants disciples qui considéraient les habitants du monde des grottes comme de simples fourmis!
+Il fixa les Célestes terrifiés qui reculaient, une intention meurtrière monstrueuse brillant dans ses yeux. Les êtres qu'il voulait tuer étaient ces disciples de la Secte Qi Dao! Ces arrogants disciples qui considéraient les habitants du monde des grottes comme de simples fourmis!
 
-« Vous ne valez pas mieux que les membres du Clan du Tonnerre Dispersé! » La main droite de Wang Lin se relâcha et un bourdonnement résonna dans tout le système stellaire. La corde de l'arc se rétracta soudainement, transmettant une force colossale à la flèche!
+« Vous ne valez pas mieux que les membres du Clan Shan Lei! » La main droite de Wang Lin se relâcha et un bourdonnement résonna dans tout le système stellaire. La corde de l'arc se rétracta soudainement, transmettant une force colossale à la flèche!
 
 Ce sifflement hurlant était assez puissant pour briser les cieux. La puissance de l'arc Li Guang fit trembler la terre et les cieux. Le monde devant la flèche s'effondra et se fragmenta tandis qu'elle s'élançait. À si courte distance, elle fut presque instantanée.
 

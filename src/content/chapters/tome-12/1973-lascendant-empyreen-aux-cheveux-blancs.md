@@ -68,7 +68,7 @@ Wang Lin resta silencieux, les yeux fixés sur le vieillard.
 
 Laissez les membres de mon manoir accompagner l'Ascendant Empyréen jusqu'au palais royal en guise d'escorte... Et puisque l'Ascendant Empyréen possède l'arc de l'ancêtre et que cet arc vous a aidé, vous n'êtes plus un étranger.
 
-Mon Manoir Li possède un Pavillon des Flèches qui renferme le Dao de la Flèche laissé par l'ancêtre. L'Ascendant Empyréen peut s'y instruire à sa guise. Qu'en dites-vous? Pour nous racheter de notre impudence. » Le vieil homme joignit les mains et s'inclina devant Wang Lin.
+Mon Manoir Li possède un Pavillon Jian qui renferme le Dao de la Flèche laissé par l'ancêtre. L'Ascendant Empyréen peut s'y instruire à sa guise. Qu'en dites-vous? Pour nous racheter de notre impudence. » Le vieil homme joignit les mains et s'inclina devant Wang Lin.
 
 Il s'était humilié, mais personne au Manoir Li ne ressentit d'opprobre; ils estimaient même que c'était la seule attitude possible. Après tout, ils faisaient face à l'homme le plus puissant sous les Grands Empyréens!
 
@@ -80,7 +80,7 @@ Même les quatre rois devaient témoigner un immense respect à l'Ascendant Empy
 
 Désormais, Wang Lin avait subjugué l'Ascendant Empyréen Ming Dao. Si le Manoir Li avait su que l'arc se trouvait entre les mains de Wang Lin, ils auraient prétendu ne rien savoir et n'auraient jamais osé le réclamer.
 
-« Le Pavillon des Flèches? » L'expression de Wang Lin changea. Il s'attendait à cela de la part du Manoir Li. Il percevait que, derrière la peur dans les yeux du vieil homme, se cachait un vif désir pour l'arc de son ancêtre.
+« Le Pavillon Jian? » L'expression de Wang Lin changea. Il s'attendait à cela de la part du Manoir Li. Il percevait que, derrière la peur dans les yeux du vieil homme, se cachait un vif désir pour l'arc de son ancêtre.
 
 Ne pouvant le reprendre par la force, ils traitaient Wang Lin avec respect dans l'espoir qu'il rende l'objet.
 
@@ -108,13 +108,13 @@ Une lueur dorée jaillit et une silhouette émergea. L'individu portait une robe
 
 « Où est Wang Lin? Pourquoi ne venez-vous pas promptement recevoir l'édit! »
 
-« Lisez-le! » La voix glaciale de Wang Lin résonna depuis les profondeurs du Pavillon des Flèches.
+« Lisez-le! » La voix glaciale de Wang Lin résonna depuis les profondeurs du Pavillon Jian.
 
 « Toi... » L'homme en robe verte fut stupéfait. Il était venu proclamer la volonté de l'Empereur Céleste, ce qui équivalait à la présence physique de l'Empereur lui-même, mais ce Wang Lin refusait même de montrer son visage.
 
 Après une hésitation, l'homme renifla avec mépris dans son cœur, mais n'osa manifester son agacement. Il déploya l'édit et commença sa lecture.
 
-Wang Lin n'écouta pas les détails; il comprit simplement que l'Empereur Céleste lui ordonnait de se présenter dans sept jours, à l'aube, devant le Temple du Dao Céleste du palais impérial pour la cérémonie de titre!
+Wang Lin n'écouta pas les détails; il comprit simplement que l'Empereur Céleste lui ordonnait de se présenter dans sept jours, à l'aube, devant le Temple Xian Dao du palais impérial pour la cérémonie de titre!
 
 Wang Lin avait appris à la Secte Yang Pourpre que chaque Ascendant Empyréen recevait personnellement son titre de la part des Empereurs Célestes successifs. C'était une formalité, un symbole.
 

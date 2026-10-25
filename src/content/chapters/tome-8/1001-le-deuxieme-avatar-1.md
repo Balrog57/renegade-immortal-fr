@@ -18,17 +18,17 @@ Un éclat de froideur passa dans les yeux de Wang Lin. Il avait déjà pressenti
 
 Simultanément, son âme originelle de dragon de tonnerre ancestral poussa un rugissement étouffé. D'innombrables éclairs apparurent dans le ciel au-dessus de la vallée où se trouvait Wang Lin.
 
-Et ce n'était pas seulement cette vallée. À cet instant précis, tout le ciel surplombant le Pays du Démon de Feu fut recouvert d'un tonnerre incessant.
+Et ce n'était pas seulement cette vallée. À cet instant précis, tout le ciel surplombant le Pays Huo Yao fut recouvert d'un tonnerre incessant.
 
-Ce changement soudain poussa les membres de la Tribu de l'Affinement de l'Âme, présents dans le Pays du Démon de Feu, à lever les yeux avec confusion.
+Ce changement soudain poussa les membres de la Tribu de l'Affinement de l'Âme, présents dans le Pays Huo Yao, à lever les yeux avec confusion.
 
-Alors que le tonnerre résonnait à travers le monde, non seulement le Pays du Démon de Feu, mais aussi les pays environnants furent enveloppés par les foudres. Les innombrables éclairs qui dévalaient du ciel manifestaient la puissance brute du tonnerre.
+Alors que le tonnerre résonnait à travers le monde, non seulement le Pays Huo Yao, mais aussi les pays environnants furent enveloppés par les foudres. Les innombrables éclairs qui dévalaient du ciel manifestaient la puissance brute du tonnerre.
 
-En un instant, plus de la moitié de la Terre des Esprits Démoniaques fut plongée dans l'obscurité des foudres. Ce bouleversement soudain provoqua la panique parmi les habitants de la Terre des Esprits Démoniaques.
+En un instant, plus de la moitié de la Terre Yao Ling fut plongée dans l'obscurité des foudres. Ce bouleversement soudain provoqua la panique parmi les habitants de la Terre Yao Ling.
 
 Même les généraux démons et les commandants en chef étaient saisis de crainte en levant les yeux vers le ciel. Ils pouvaient vaguement distinguer que ce tonnerre n'était pas naturel, mais qu'il résultait d'un sortilège!
 
-Bien que tout cela puisse paraître long, l'événement ne dura que quelques secondes. Sous le rugissement de l'âme originelle du dragon de tonnerre ancestral de Wang Lin, tous les éclairs qui couvraient plus de la moitié de la Terre des Esprits Démoniaques se précipitèrent, tels des serpents d'argent, vers la vallée de la capitale du Pays du Démon de Feu.
+Bien que tout cela puisse paraître long, l'événement ne dura que quelques secondes. Sous le rugissement de l'âme originelle du dragon de tonnerre ancestral de Wang Lin, tous les éclairs qui couvraient plus de la moitié de la Terre Yao Ling se précipitèrent, tels des serpents d'argent, vers la vallée de la capitale du Pays Huo Yao.
 
 L'éclat des foudres provoqua un fracas assourdissant, comme si la colère des cieux descendait pour rendre son verdict. Si l'on avait regardé d'en haut, on aurait vu d'innombrables éclairs converger vers le corps de Wang Lin dans la vallée!
 
@@ -76,7 +76,7 @@ Wang Lin s'approcha lentement et remarqua quelques points cruciaux.
 
 Les dieux ancestraux pouvaient absorber la puissance du Ciel et de la Terre par l'intermédiaire de leurs esclaves divins pour accroître leur niveau de culture. Les démons ancestraux, issus d'une même lignée ancienne, devaient disposer de méthodes similaires.
 
-Il était évident que toute la Terre des Esprits Démoniaques avait été conçue pour permettre à un démon ancestral d'absorber la puissance du Ciel et de la Terre. L'ancien démon Bei Luo avait autrefois affirmé qu'il avait été scindé en neuf parties, et c'est ainsi que ces neuf pays étaient nés!
+Il était évident que toute la Terre Yao Ling avait été conçue pour permettre à un démon ancestral d'absorber la puissance du Ciel et de la Terre. L'ancien démon Bei Luo avait autrefois affirmé qu'il avait été scindé en neuf parties, et c'est ainsi que ces neuf pays étaient nés!
 
 Les peuples de ces neuf pays avaient progressivement évolué, pendant des dizaines de milliers d'années, sous les enseignements du démon ancestral, en apprenant des sorts. C'est ainsi que les neuf pays démoniaques s'étaient lentement formés.
 
@@ -84,7 +84,7 @@ Chaque esprit de démon ancien représentait l'existence suprême de chacun de c
 
 L'arrivée de Wang Lin et sa coopération avec l'ancien démon Bei Luo avaient provoqué un bouleversement retentissant dans un processus qui aurait encore pris d'innombrables années!
 
-Grâce à l'aide de Wang Lin, l'ancien démon Bei Luo avait quitté son pays démoniaque et réussi à dévorer l'esprit de démon ancien du Pays du Démon de Feu. Bei Luo était ainsi devenu le plus puissant des huit esprits restants et avait obtenu le pouvoir de quitter son territoire!
+Grâce à l'aide de Wang Lin, l'ancien démon Bei Luo avait quitté son pays démoniaque et réussi à dévorer l'esprit de démon ancien du Pays Huo Yao. Bei Luo était ainsi devenu le plus puissant des huit esprits restants et avait obtenu le pouvoir de quitter son territoire!
 
 S'il n'y avait pas d'imprévu, une fois qu'il aurait digéré l'esprit de démon ancien qu'il venait de dévorer, il dévorerait les sept autres un par un jusqu'à redevenir un véritable démon ancestral!
 
@@ -96,24 +96,24 @@ Pour être plus précis, ce démon ancestral n'était qu'un vestige!
 
 « Même un vestige d'esprit de démon ancien sait absorber l'énergie démoniaque pour se guérir... » ricana Wang Lin. Il comprenait désormais que la brume blanche émanant des têtes des membres de la Tribu de l'Affinement de l'Âme n'était autre qu'une faible énergie démoniaque!
 
-« Tous les membres de la Tribu de l'Affinement de l'Âme sont nés dans la Terre des Esprits Démoniaques... » Après avoir contemplé ce démon, Wang Lin en saisit la raison.
+« Tous les membres de la Tribu de l'Affinement de l'Âme sont nés dans la Terre Yao Ling... » Après avoir contemplé ce démon, Wang Lin en saisit la raison.
 
 Tout en réfléchissant, Wang Lin s'approcha du démon ancestral qui lui ressemblait trait pour trait. Les yeux de celui-ci restaient clos, sans aucun signe de réveil.
 
 Wang Lin pressa directement la main sur la tête du démon ancestral et injecta son sens divin pour fouiller ses souvenirs.
 
-Il vit, sous un vaste ciel bleu, le ciel autrefois radieux au-dessus du Pays du Démon des Nuages s'obscurcir soudainement. Une tempête se forma et, alors que les nuages s'accumulaient, une silhouette de couleur sang fendit le ciel en direction de la tour royale à neuf étages du Pays du Démon des Nuages.
+Il vit, sous un vaste ciel bleu, le ciel autrefois radieux au-dessus du Pays Yun Yao s'obscurcir soudainement. Une tempête se forma et, alors que les nuages s'accumulaient, une silhouette de couleur sang fendit le ciel en direction de la tour royale à neuf étages du Pays Yun Yao.
 
 Un cri strident s'échappa de la tour, empreint d'une pointe d'incrédulité.
 
 « Les neuf esprits doivent se réunir pour ne former qu'un. Ce n'est qu'en redevenant un démon ancestral que nous pourrons effacer nos regrets. Démon des Nuages, nous n'étions à l'origine qu'un seul être, et nous avons été séparés trop longtemps. Aujourd'hui, nous fusionnerons de nouveau! Le nom du démon ancestral restera Bei Luo! » Une voix démoniaque émana de l'ombre sanglante alors qu'elle se précipitait dans la tour des Démons des Nuages.
 
-Une série de grondements retentit à travers le monde, plongeant tous les habitants de la capitale dans la panique. Le fracas cessa après un instant, mais aussitôt, la tour du Pays du Démon des Nuages s'effondra!
+Une série de grondements retentit à travers le monde, plongeant tous les habitants de la capitale dans la panique. Le fracas cessa après un instant, mais aussitôt, la tour du Pays Yun Yao s'effondra!
 
 Dans l'effondrement, une ombre démoniaque floue s'envola, entourée d'une lumière sanglante. Finalement, elle fut dévorée par cette même lumière qui se transforma ensuite en Bei Luo.
 
 « Cela fait si longtemps, et pourtant le niveau de culture de ce Démon des Nuages n'a pas progressé du tout. Quel gaspillage! C'est une honte pour moi, en tant que démon ancestral! » Bei Luo laissa échapper un reniflement froid avant de disparaître.
 
-Le Pays du Démon des Nuages s'effondra, et il ne restait plus aucun esprit démoniaque!
+Le Pays Yun Yao s'effondra, et il ne restait plus aucun esprit démoniaque!
 
-Cependant, trois jours après le départ de Bei Luo, une ombre extrêmement faible s'échappa des ruines de la tour du Pays du Démon des Nuages. Elle portait une trace de haine et de confusion tandis qu'elle avançait prudemment.
+Cependant, trois jours après le départ de Bei Luo, une ombre extrêmement faible s'échappa des ruines de la tour du Pays Yun Yao. Elle portait une trace de haine et de confusion tandis qu'elle avançait prudemment.

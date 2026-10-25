@@ -88,7 +88,7 @@ L'esprit de Wang Lin fluctua pendant une durée indéterminée avant de quitter 
 
 La brume y était également présente, mais encore plus dense. Pourtant, cela ne put toujours pas arrêter l'esprit de Wang Lin. Il vit trois jeunes gens vêtus d'habits étranges. Le jeune homme portant la marque en forme de croissant de lune... il l'avait déjà vu...
 
-Le jeune homme marqué par la foudre dit doucement: « Cet endroit est très mystérieux. Ce qui est encore plus étrange, c'est que je peux ressentir l'aura de l'ancêtre de mon Clan du Tonnerre Dispersé. »
+Le jeune homme marqué par la foudre dit doucement: « Cet endroit est très mystérieux. Ce qui est encore plus étrange, c'est que je peux ressentir l'aura de l'ancêtre de mon Clan Shan Lei. »
 
 Derrière lui, le jeune homme avec la marque de flamme entre les sourcils se frotta les tempes. L'expression sombre, il murmura: « C'est en effet très étrange. Depuis que nous sommes entrés ici, je sens quelque chose m'appeler dans mon cœur. De plus, j'ai l'impression que ma marque ancestrale est sur le point de quitter mon corps. »
 
@@ -106,7 +106,7 @@ Après un long moment, les trois se regardèrent, voyant le choc dans les yeux d
 
 « Quelle puissance d'esprit! » haleta le jeune homme marqué par la foudre.
 
-« Il doit s'agir d'un ancêtre de mon Clan des Moineaux de Feu. Cet esprit que je viens de ressentir contenait certainement l'un des ancêtres de mon clan, sans quoi ma marque n'aurait pas réagi ainsi! » Le jeune homme à la flamme était pâle, mais ses yeux brillaient de cupidité.
+« Il doit s'agir d'un ancêtre de mon Clan Huo Que. Cet esprit que je viens de ressentir contenait certainement l'un des ancêtres de mon clan, sans quoi ma marque n'aurait pas réagi ainsi! » Le jeune homme à la flamme était pâle, mais ses yeux brillaient de cupidité.
 
 Seul le dernier, le jeune homme au croissant de lune, resta silencieux. Il réfléchissait, une peur cachée dans le regard. Au moment où l'esprit de Wang Lin l'avait effleuré, il s'était remémoré cette scène cauchemardesque qu'il refusait de se souvenir.
 

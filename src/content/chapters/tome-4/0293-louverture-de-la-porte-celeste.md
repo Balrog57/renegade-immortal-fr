@@ -26,9 +26,9 @@ Des créatures jamais vues auparavant apparaissaient et disparaissaient. Parfois
 
 Cette scène se répétait en de nombreux endroits à travers Suzaku. Un cultivateur muni d'un Chaudron de Pluie apparaissait là où ces visions surgissaient.
 
-À cet instant, dans un pays de rang 4 situé dans la partie sud-est de Suzaku, un géant du Clan des Démons Géants tenait un Chaudron de Pluie dans sa main. Son visage semblait empreint d'une simplicité antique. Son corps s'éleva lentement et, tandis qu'il flottait, il se transforma peu à peu pour reprendre l'apparence d'un homme ordinaire.
+À cet instant, dans un pays de rang 4 situé dans la partie sud-est de Suzaku, un géant du Clan Ju Mo tenait un Chaudron de Pluie dans sa main. Son visage semblait empreint d'une simplicité antique. Son corps s'éleva lentement et, tandis qu'il flottait, il se transforma peu à peu pour reprendre l'apparence d'un homme ordinaire.
 
-Sous lui, les chefs de secte du Clan des Démons Géants affichaient tous des expressions très graves.
+Sous lui, les chefs de secte du Clan Ju Mo affichaient tous des expressions très graves.
 
 « Soyez tous rassurés; avec le trésor du clan, je vais certainement obtenir de l'énergie spirituelle céleste! » La voix de l'homme était empreinte d'une assurance absolue.
 
@@ -40,7 +40,7 @@ Dans la partie sud-ouest de Suzaku, un homme d'âge moyen se tenait sur une tour
 
 Sur ce, son corps flotta dans les airs. Sa main gigantesque descendit vers le bas et saisit la tour. La structure massive rétrécit jusqu'à tenir dans sa paume, puis il s'avança dans l'illusion.
 
-Dans la partie nord-ouest de Suzaku, au siège de la Secte des Cadavres, un vieil homme aux cheveux blancs s'éleva vers le ciel. Il poussa un soupir et dit: « Quelle tâche ardue... Comment pourrait-on obtenir facilement le cadavre d'un être céleste? Mon corps va encore devoir se mettre au travail... »
+Dans la partie nord-ouest de Suzaku, au siège de la Secte Shi Yin, un vieil homme aux cheveux blancs s'éleva vers le ciel. Il poussa un soupir et dit: « Quelle tâche ardue... Comment pourrait-on obtenir facilement le cadavre d'un être céleste? Mon corps va encore devoir se mettre au travail... »
 
 Au centre de Suzaku se trouvait une contrée entourée par la mer. Ce continent entier appartenait au seul pays de culture de rang 6 de la planète, Suzaku. En ce moment même, sur un immense autel d'une circonférence d'environ trente-trois kilomètres au cœur du pays, une femme vêtue de blanc, semblable à une fée des neiges, leva les yeux vers le ciel.
 
@@ -108,7 +108,7 @@ Quant aux quatre autres, l'un d'eux dégageait une puissance impressionnante. To
 
 Cependant, entre ses sourcils, la forme d'une hache apparaissait et disparaissait par intermittence.
 
-En voyant cette hache, Wang Lin put confirmer que cet homme appartenait au Clan des Démons Géants et qu'il occupait probablement une position très élevée au sein de celui-ci.
+En voyant cette hache, Wang Lin put confirmer que cet homme appartenait au Clan Ju Mo et qu'il occupait probablement une position très élevée au sein de celui-ci.
 
 Un autre ressemblait à un jeune homme, mais ses yeux trahissaient une soif de sang et une cruauté sans limite. Wang Lin détourna le regard après l'avoir observé un instant. L'aura de cet individu était similaire à celle de son corps principal, bien que légèrement plus faible.
 

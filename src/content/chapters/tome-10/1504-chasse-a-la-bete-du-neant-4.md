@@ -86,7 +86,7 @@ Cependant, elle avait manifestement oublié la pression émanant de son corps, c
 
 Tandis qu'elle errait, la Bête des Limbes restait dans un état embrumé. Elle manquait d'intelligence et avait passé la majeure partie de sa vie à dormir. Même lors des rares moments d'éveil, elle restait dans la léthargie.
 
-Pourtant, après le départ de Wang Lin avec le Clan des Immortels Élus, la Bête des Limbes s'éveilla. Elle ressentit soudain la faim, mais craignant de quitter la brume, elle ne put que errer lentement à l'intérieur de celle-ci.
+Pourtant, après le départ de Wang Lin avec le Clan Xian Xuan, la Bête des Limbes s'éveilla. Elle ressentit soudain la faim, mais craignant de quitter la brume, elle ne put que errer lentement à l'intérieur de celle-ci.
 
 Après un temps indéterminé, une gigantesque faille spatiale apparut devant elle. Des éclats de lumière aux sept couleurs jaillirent de la faille et brillèrent dans ses yeux.
 

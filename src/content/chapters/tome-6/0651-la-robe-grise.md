@@ -18,7 +18,7 @@ Un espace unique résidait à l'intérieur du jeton. Bien que l'endroit fût sat
 
 Il n'y avait qu'une seule chose à l'intérieur: une épée. Ce n'était pas une épée céleste, mais l'une des Douze Épées.
 
-Après réflexion, Wang Lin en déduisit que cette épée appartenait à un disciple de la Secte de l'Épée Da Luo piégé dans la brume. Pour une raison quelconque, lorsque ce disciple fut sacrifié pour alimenter le jeton, l'épée fut absorbée par celui-ci.
+Après réflexion, Wang Lin en déduisit que cette épée appartenait à un disciple de la Secte Da Luo Jian piégé dans la brume. Pour une raison quelconque, lorsque ce disciple fut sacrifié pour alimenter le jeton, l'épée fut absorbée par celui-ci.
 
 D'une simple pensée, l'épée s'envola et se planta dans le sol aux côtés de Wang Lin.
 
@@ -120,7 +120,7 @@ Le corps de Du Jian trembla et il s'écria précipitamment: « J'ai vu le Maîtr
 
 Les yeux de Wang Lin brillèrent intensément tandis qu'il fixait silencieusement Du Jian.
 
-« Je ne l'ai pas vu de mes propres yeux, mais un gobelin de montagne l'a vu. Après avoir rejoint la Secte du Destin Céleste, j'ai cultivé une technique permettant d'absorber l'énergie spirituelle des bêtes. J'étais dans les montagnes arrières lorsque j'ai trouvé un gobelin de montagne en fin de vie. En absorbant son énergie spirituelle, j'ai extrait certains de ses souvenirs pour une raison quelconque. »
+« Je ne l'ai pas vu de mes propres yeux, mais un gobelin de montagne l'a vu. Après avoir rejoint la Secte Tian Yun, j'ai cultivé une technique permettant d'absorber l'énergie spirituelle des bêtes. J'étais dans les montagnes arrières lorsque j'ai trouvé un gobelin de montagne en fin de vie. En absorbant son énergie spirituelle, j'ai extrait certains de ses souvenirs pour une raison quelconque. »
 
 « Il y avait une scène dans ses souvenirs remontant à une époque lointaine: c'était le moment où le Maître a dévoré Sun Yun! »
 

@@ -28,7 +28,7 @@ Le garçon à la grosse tête haletait, fixant avec stupéfaction le Sceau Céle
 
 Les pupilles de Lei Ji se rétractèrent. Face aux dix-huit couches de l'enfer, il ressentit une peur viscérale, venant du plus profond de son cœur.
 
-Wang Lin frappa son sac de rangement et deux sphères de lumière apparurent dans sa main. Il s'agissait de deux âmes originelles. L'une appartenait au Vice-Maître de la Salle de Rancœur de la Secte des Cadavres, et l'autre était ce que ce dernier avait offert à Wang Lin pour lui sauver la vie.
+Wang Lin frappa son sac de rangement et deux sphères de lumière apparurent dans sa main. Il s'agissait de deux âmes originelles. L'une appartenait au Vice-Maître de la Salle de Rancœur de la Secte Shi Yin, et l'autre était ce que ce dernier avait offert à Wang Lin pour lui sauver la vie.
 
 Après avoir réfléchi un instant, Wang Lin décida de ne pas les envoyer dans les dix-huit couches de l'enfer et les remit dans son sac. Ces deux âmes originelles du stade précoce du Scruteur du Nirvana étaient cruciales pour restaurer sa culture. Il les garda au cas où il en aurait besoin plus tard.
 
@@ -82,7 +82,7 @@ Tous les cultivateurs de Luotian situés dans un rayon de dizaines de milliers d
 
 Toutes les planètes de culture de la région occidentale s'effondrèrent avec frénésie, formant une onde de choc titanesque qui envahit toute la région!
 
-Un tel mouvement n'était l'apanage que de l'Alliance de Culture. « Puisque tous les cultivateurs de Luotian sont venus, alors je vous laisserai tous mourir dans la région occidentale! »
+Un tel mouvement n'était l'apanage que de l'Alliance Xiu Zhen. « Puisque tous les cultivateurs de Luotian sont venus, alors je vous laisserai tous mourir dans la région occidentale! »
 
 Faisant fi de la vie de chaque créature de la région occidentale, ils lancèrent un plan terrifiant, nommé « Massacre de Luotian », pour massacrer les forces de Luotian!
 
@@ -94,7 +94,7 @@ Ce fut un véritable massacre. Un nombre incalculable de cultivateurs de Luotian
 
 À mesure que les failles spatiales s'élargissaient, des vents glacials en jaillirent pour se fondre dans la tempête, formant un vortex gigantesque. Ce vortex était si vaste qu'il couvrit la majeure partie de la région occidentale, coupant ainsi la route aux cultivateurs de Luotian qui tentaient de rejoindre le Système Stellaire de Luotian par le tunnel depuis la région nord.
 
-Alors que la tempête allait se dissiper, d'innombrables silhouettes apparurent et des matrices de transfert se matérialisèrent les unes après les autres. Les cultivateurs de l'Alliance de Culture sortirent des matrices.
+Alors que la tempête allait se dissiper, d'innombrables silhouettes apparurent et des matrices de transfert se matérialisèrent les unes après les autres. Les cultivateurs de l'Alliance Xiu Zhen sortirent des matrices.
 
 « Tuez! » Des rugissements capables de fendre les étoiles retentirent!
 

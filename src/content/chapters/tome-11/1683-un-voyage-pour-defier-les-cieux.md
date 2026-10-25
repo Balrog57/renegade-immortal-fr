@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1683 - The Trip to Defy the Celestials!"
 slug: un-voyage-pour-defier-les-cieux
 ---
-Le hurlement résonna à travers les étoiles, s'intensifiant de plus en plus. Sous le contrôle de Wang Lin, le vaste continent du Royaume Céleste du Vent s'élança hors de la Mer des Nuages vers la Rivière Invoquée.
+Le hurlement résonna à travers les étoiles, s'intensifiant de plus en plus. Sous le contrôle de Wang Lin, le vaste continent du Royaume Céleste du Vent s'élança hors de la Mer Yun vers la Rivière Invoquée.
 
 Après avoir récupéré la Rivière Invoquée, certains cultivateurs de celle-ci qui se trouvaient à Luotian étaient retournés dans leurs terres natales au cours des trois dernières années. Ils connaissaient bien ces lieux et pourraient mieux s'y rétablir.
 

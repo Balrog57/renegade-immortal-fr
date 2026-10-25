@@ -28,9 +28,9 @@ Un moment plus tard, Wang Lin réapparut là où il avait disparu. Ses yeux trah
 
 « Ce sort a atteint un stade de petite perfection, mais il comporte encore des imperfections. Le fusionner avec mon corps a corrigé quelques failles, mais il consomme désormais ma propre énergie originelle. Je peux l'utiliser plusieurs dizaines de fois d'affilée, après quoi je devrai rapidement restaurer mon énergie originelle. Malgré cela, il reste extrêmement pratique. Très peu de gens pourront m'empêcher d'utiliser ce sort! »
 
-Wang Lin murmura pour lui-même en levant les yeux vers le ciel. Son regard semblait percer la voûte céleste pour atteindre les confins du Clan de la Soie Bleue. Après un long moment, il retira son attention du ciel.
+Wang Lin murmura pour lui-même en levant les yeux vers le ciel. Son regard semblait percer la voûte céleste pour atteindre les confins du Clan Lan Si. Après un long moment, il retira son attention du ciel.
 
-« Il est impossible de rester éternellement dans ce Clan de la Soie Bleue, je dois parcourir ce Système Stellaire Antique! Maintenant que la Déformation Spatiale est fusionnée et que je dispose d'un moyen de fuite, la prochaine étape consiste à fusionner toutes mes techniques! En particulier les sorts de Bai Fan! » Méditant, Wang Lin énuméra en silence les sorts qu'il avait appris au cours de sa vie.
+« Il est impossible de rester éternellement dans ce Clan Lan Si, je dois parcourir ce Système Stellaire Antique! Maintenant que la Déformation Spatiale est fusionnée et que je dispose d'un moyen de fuite, la prochaine étape consiste à fusionner toutes mes techniques! En particulier les sorts de Bai Fan! » Méditant, Wang Lin énuméra en silence les sorts qu'il avait appris au cours de sa vie.
 
 Le sort d'Arrêt l'avait accompagné durant la majeure partie de sa vie, et les six sorts de Bai Fan l'avaient sauvé à plusieurs reprises. En plus de ses deux sorts personnels, il possédait également le Sceau d'Inversion Céleste de Lanmeng Daozun ainsi que le Bouclier de Lumière et d'Ombre.
 
@@ -62,7 +62,7 @@ Alors que Wang Lin commençait à se détendre, son expression changea radicalem
 
 En un instant, la sphère fusionnée avec le Sceau Céleste brilla d'une lueur destructrice, puis explosa soudainement!
 
-Au moment de l'explosion, Wang Lin s'était déjà largement retiré. Il agita ses manches, utilisant toute sa puissance pour contenir l'explosion du vortex. Simultanément, il saisit la sphère en plein effondrement et utilisa directement la Déformation Spatiale pour se téléporter dans une zone spatiale proche des limites du Clan de la Soie Bleue!
+Au moment de l'explosion, Wang Lin s'était déjà largement retiré. Il agita ses manches, utilisant toute sa puissance pour contenir l'explosion du vortex. Simultanément, il saisit la sphère en plein effondrement et utilisa directement la Déformation Spatiale pour se téléporter dans une zone spatiale proche des limites du Clan Lan Si!
 
 Dès qu'il réapparut, l'effondrement de la sphère vortex devint incontrôlable. Elle se transforma en une tempête dont le grondement fit vibrer tout le domaine stellaire.
 
@@ -74,7 +74,7 @@ Des grondements de tonnerre éclatèrent dans un impact qui ébranla les cieux. 
 
 Réflexion et réfraction de la lumière!
 
-Grâce à cette force de réflexion, l'énergie destructrice fut redirigée vers l'espace infini, au-delà du Clan de la Soie Bleue.
+Grâce à cette force de réflexion, l'énergie destructrice fut redirigée vers l'espace infini, au-delà du Clan Lan Si.
 
 Les grondements tonitruants persistèrent pendant un demi-bâton d'encens avant de s'estomper enfin. L'ombre lumineuse disparut et Wang Lin esquissa un sourire amer. Devant lui, la sphère vortex et le Sceau Céleste s'étaient déjà séparés, émettant une lueur spectrale.
 

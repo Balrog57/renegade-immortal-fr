@@ -114,7 +114,7 @@ Alors que Wang Lin contemplait silencieusement le soleil, une clarté nouvelle i
 
 Avant de partir, il adressa un signe de tête aux trois frères Chen et disparut.
 
-« Après plus de deux mois d'attente, j'ai enfin réussi à saisir cet instant. C'était similaire au moment où j'étais entré dans cet espace mystérieux offert par l'Ancien Démon Bei Luo dans la Terre des Esprits Démoniaques... Cependant, ce n'était qu'une similitude; comparé à cela, l'espace de l'Ancien Démon Bei Luo était véritablement insignifiant... »
+« Après plus de deux mois d'attente, j'ai enfin réussi à saisir cet instant. C'était similaire au moment où j'étais entré dans cet espace mystérieux offert par l'Ancien Démon Bei Luo dans la Terre Yao Ling... Cependant, ce n'était qu'une similitude; comparé à cela, l'espace de l'Ancien Démon Bei Luo était véritablement insignifiant... »
 
 Tout en méditant, Wang Lin apparut devant son palais et y pénétra.
 

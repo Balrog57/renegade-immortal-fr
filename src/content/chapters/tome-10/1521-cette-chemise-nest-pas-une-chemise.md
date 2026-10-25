@@ -64,7 +64,7 @@ Une lueur de férocité apparut sur le visage de Nanzhao Shangren qui, tout en r
 
 Quatre cultivateurs de la troisième étape!
 
-L'Ancêtre du Clan des Moineaux de Feu serra les dents et détourna son attention de Wang Lin. Il chargea également vers Maître Hong Shan!
+L'Ancêtre du Clan Huo Que serra les dents et détourna son attention de Wang Lin. Il chargea également vers Maître Hong Shan!
 
 Cinq cultivateurs de la troisième étape pour affronter Maître Hong Shan!!
 
@@ -84,7 +84,7 @@ La Hache Brise-Ciel était le problème majeur. Désormais sans obstacle, elle f
 
 Le Grand Maître Yun Luo leva la main, pointa la hache et dit doucement: « En si peu de temps, mon Royaume Extérieur a déjà sacrifié près de 20 000 cultivateurs... »
 
-« Palais du Châtiment Céleste, Clan de l'Épée, Coup Briseur d'Âme, arrêtez cette hache! » Alors que sa voix résonnait, les cultivateurs vêtus de noir autour du Palais du Châtiment Céleste levèrent tous les yeux. Ils chargèrent la Hache Brise-Ciel sans l'ombre d'une hésitation!
+« Palais Tian Fa, Clan Shi Jian, Coup Briseur d'Âme, arrêtez cette hache! » Alors que sa voix résonnait, les cultivateurs vêtus de noir autour du Palais Tian Fa levèrent tous les yeux. Ils chargèrent la Hache Brise-Ciel sans l'ombre d'une hésitation!
 
 Alors que la hache retombait une fois de plus, plusieurs milliers de cultivateurs apparurent silencieusement. Ils exécutèrent tous le même mouvement et une épée fantomatique noire sembla se matérialiser alors qu'ils s'élançaient en avant!
 
@@ -94,42 +94,42 @@ Des grondements tonitruants éclatèrent et la hache marqua un temps d'arrêt. L
 
 Les yeux du Grand Maître Yun Luo s'illuminèrent en regardant Wang Lin au loin. Sa main de jade traça un sceau et pointa vers lui!
 
-« Trois anciens du Clan de l'Extermination des Sceaux, veuillez vous occuper de cet enfant. Quel qu'en soit le prix, scellez-le ou tuez-le! » À la suite de ses paroles, trois lumières spectrales apparurent derrière elle et se transformèrent en trois silhouettes aux robes violettes!
+« Trois anciens du Clan Feng Mie, veuillez vous occuper de cet enfant. Quel qu'en soit le prix, scellez-le ou tuez-le! » À la suite de ses paroles, trois lumières spectrales apparurent derrière elle et se transformèrent en trois silhouettes aux robes violettes!
 
 Ces individus en violet étaient semblables au Souverain; leurs visages étaient dissimulés par leurs capuches. Sans un mot, ils chargèrent Wang Lin!
 
-C'est à ce moment que les cultivateurs de la Mer des Nuages arrivèrent. Des dizaines de milliers d'entre eux entamèrent une bataille brutale contre les envahisseurs!
+C'est à ce moment que les cultivateurs de la Mer Yun arrivèrent. Des dizaines de milliers d'entre eux entamèrent une bataille brutale contre les envahisseurs!
 
 La guerre fut d'une férocité extrême dès l'instant où elle commença!
 
-Des rugissements démentiels résonnèrent, un massacre effréné fut déclenché et des auras sanglantes se propagèrent follement! Un cultivateur de la Mer des Nuages venait d'abattre un envahisseur, mais avant qu'il ne puisse relever la tête, une épée le transperça. Un autre cultivateur du Royaume Extérieur surgit par derrière et saisit l'épée pour s'élancer vers sa prochaine cible!
+Des rugissements démentiels résonnèrent, un massacre effréné fut déclenché et des auras sanglantes se propagèrent follement! Un cultivateur de la Mer Yun venait d'abattre un envahisseur, mais avant qu'il ne puisse relever la tête, une épée le transperça. Un autre cultivateur du Royaume Extérieur surgit par derrière et saisit l'épée pour s'élancer vers sa prochaine cible!
 
-« Gloire à la Mer des Nuages... » Le mourant lutta pour un dernier regard vers sa patrie. Cependant, sa vision se troubla et il esquissa un sourire misérable avant de choisir l'autodestruction!
+« Gloire à la Mer Yun... » Le mourant lutta pour un dernier regard vers sa patrie. Cependant, sa vision se troubla et il esquissa un sourire misérable avant de choisir l'autodestruction!
 
 S'il devait mourir, il mourrait dans un fracas retentissant!
 
-Un grondement de tonnerre éclata lorsque le cultivateur de la Mer des Nuages explosa en une onde destructrice qui se propagea dans toutes les directions!
+Un grondement de tonnerre éclata lorsque le cultivateur de la Mer Yun explosa en une onde destructrice qui se propagea dans toutes les directions!
 
-Plus loin, un homme d'âge mûr de la Mer des Nuages était couvert de blessures. Le sang coulait abondamment de son corps et quatre épées volantes lui étaient plantées, causant des dégâts massifs autour de lui.
+Plus loin, un homme d'âge mûr de la Mer Yun était couvert de blessures. Le sang coulait abondamment de son corps et quatre épées volantes lui étaient plantées, causant des dégâts massifs autour de lui.
 
 Pourtant, il chargea en riant, comme s'il ignorait la douleur. Il verrouilla sa cible, un cultivateur du Royaume Extérieur, et au moment de l'impact, son corps explosa, créant une onde de choc puissante pour l'emporter avec lui dans la mort!
 
-Encore plus loin, un cultivateur du Royaume Extérieur au troisième niveau du Fléau Céleste se déplaçait comme l'éclair. À chaque passage, des masses de cultivateurs de la Mer des Nuages périssaient!
+Encore plus loin, un cultivateur du Royaume Extérieur au troisième niveau du Fléau Céleste se déplaçait comme l'éclair. À chaque passage, des masses de cultivateurs de la Mer Yun périssaient!
 
-Au milieu de ce chaos, il semblait invincible. Il apparut devant un cultivateur de la Mer des Nuages et plongea sa main dans sa poitrine. Il en extirpa le cœur avec un sourire cruel.
+Au milieu de ce chaos, il semblait invincible. Il apparut devant un cultivateur de la Mer Yun et plongea sa main dans sa poitrine. Il en extirpa le cœur avec un sourire cruel.
 
-Il broya l'organe dans sa paume et, alors qu'il s'apprêtait à partir, il fronça les sourcils. Le cultivateur de la Mer des Nuages dont le cœur avait été écrasé et l'âme brisée avait utilisé sa dernière once de force pour agripper l'envahisseur!
+Il broya l'organe dans sa paume et, alors qu'il s'apprêtait à partir, il fronça les sourcils. Le cultivateur de la Mer Yun dont le cœur avait été écrasé et l'âme brisée avait utilisé sa dernière once de force pour agripper l'envahisseur!
 
 « La puissance des fourmis! » ricana le cultivateur du Royaume Extérieur en agitant la main. Le corps du mourant fut projeté violemment à l'écart!
 
 Sa tête vola au loin, mais ses yeux conservaient toute la haine de son vivant, fixant obstinément l'envahisseur.
 
-Il vit alors le cultivateur du Royaume Extérieur être submergé par une multitude de combattants de la Mer des Nuages suite à ce retard. Ils ne cherchèrent même pas à combattre; ils choisirent tous l'autodestruction!
+Il vit alors le cultivateur du Royaume Extérieur être submergé par une multitude de combattants de la Mer Yun suite à ce retard. Ils ne cherchèrent même pas à combattre; ils choisirent tous l'autodestruction!
 
 Si l'autodestruction de dix cultivateurs ne pouvait vous tuer, alors cent le feraient! Si cent échouaient, trois cents le feraient!!
 
 Alors que les explosions successives faisaient trembler la terre, la force destructrice annihila le cultivateur du Royaume Extérieur. Même dans l'agonie, la dernière chose qu'il entendit fut ce cri de l'âme:
 
-« Gloire à la Mer des Nuages! »
+« Gloire à la Mer Yun! »
 
 La tête tranchée ferma les yeux alors qu'elle dérivait, avant d'être pulvérisée par les fluctuations du sort d'un cultivateur du Royaume Extérieur.

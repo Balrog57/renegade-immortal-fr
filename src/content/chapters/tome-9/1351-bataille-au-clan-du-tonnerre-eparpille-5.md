@@ -1,12 +1,12 @@
 ---
 n: 1351
-title: "Bataille au Clan du Tonnerre Dispersé! (5)"
+title: "Bataille au Clan Shan Lei! (5)"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: "Chapter 1351 - Battle at the Scatter Thunder Clan ! (5)"
 slug: bataille-au-clan-du-tonnerre-eparpille-5
 ---
-L'Ancien en chef du Clan du Tonnerre Dispersé affichait une expression hideuse; toute la sérénité et la fierté d'autrefois s'étaient évanouies. En si peu de temps, Wang Lin lui avait infligé trop de chocs et de surprises lors de leur combat acharné.
+L'Ancien en chef du Clan Shan Lei affichait une expression hideuse; toute la sérénité et la fierté d'autrefois s'étaient évanouies. En si peu de temps, Wang Lin lui avait infligé trop de chocs et de surprises lors de leur combat acharné.
 
 À l'origine, il ne considérait pas Wang Lin comme une menace; il pensait pouvoir l'éliminer aisément avec le seul pouvoir du quatrième Fléau Céleste. Cependant, à cet instant précis, lorsqu'il ressentit cette crise de vie ou de mort — un sentiment auquel il n'avait pas été confronté depuis des dizaines de milliers d'années — son esprit s'éclaircit.
 
@@ -28,9 +28,9 @@ Cependant, que ce soient les blessures ou le sort de Lanmeng Daozun, ils n'avaie
 
 « Qui est-il donc exactement?! »
 
-L'expression de l'Ancien en chef du Clan du Tonnerre Dispersé était féroce alors qu'il se retirait de l'impact, et son intention meurtrière envers Wang Lin décupla. Il laissa échapper un rugissement en levant la main pour lacérer l'espace environnant!
+L'expression de l'Ancien en chef du Clan Shan Lei était féroce alors qu'il se retirait de l'impact, et son intention meurtrière envers Wang Lin décupla. Il laissa échapper un rugissement en levant la main pour lacérer l'espace environnant!
 
-« Ouvrez le Royaume du Tonnerre Antique! »
+« Ouvrez le Royaume Tai Gu Lei! »
 
 Un grondement tonitruant résonna. C'était un fracas qui faisait trembler les cieux, encore plus choquant qu'auparavant. C'était comme si le monde allait s'effondrer, et un vortex géant apparut devant l'Ancien!
 
@@ -38,11 +38,11 @@ Le centre du vortex était d'un noir absolu, et un tonnerre infini y bouillonnai
 
 Ce sort était infiniment proche de la capacité des cultivateurs de la troisième étape à extraire le pouvoir des Flammes Joss!
 
-Wang Lin, au loin, avait le visage légèrement pâle. Il avait été frappé par l'impact et avait subi des blessures. S'il n'avait pas immédiatement utilisé le Monde du Vent et de la Pluie pour y résister, il aurait été gravement atteint!
+Wang Lin, au loin, avait le visage légèrement pâle. Il avait été frappé par l'impact et avait subi des blessures. S'il n'avait pas immédiatement utilisé le Monde Hu Feng Huan Yu pour y résister, il aurait été gravement atteint!
 
 C'était une bataille acharnée. On pouvait dire que c'était l'adversaire le plus puissant que Wang Lin ait affronté dans sa vie! Le Shui Daozi était un cultivateur de la troisième étape et avait été contraint de battre en retraite avant même de pouvoir tuer Wang Lin. Cependant, ce n'était pas Wang Lin qui l'avait forcé à fuir, mais le Seigneur du Royaume Scellé!
 
-Par conséquent, puisqu'il affrontait seul l'Ancien en chef du Clan du Tonnerre Dispersé depuis tout ce temps, son sang bouillonnait presque!
+Par conséquent, puisqu'il affrontait seul l'Ancien en chef du Clan Shan Lei depuis tout ce temps, son sang bouillonnait presque!
 
 L'intention de combat illuminait ses yeux!
 

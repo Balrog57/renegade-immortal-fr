@@ -94,13 +94,13 @@ Une fois cela fait, Wang Lin fit un pas en avant et disparut aussitôt. Une voix
 
 Ouyang Hua s'agenouilla au sol et répondit d'une voix grave: « Je ne décevrai pas l'Ancêtre! » Bien que ces mots fussent destinés à Wang Lin, qui était déjà loin, ils étaient avant tout un engagement envers lui-même.
 
-Wang Lin fendit le ciel, telle une traînée de lumière, et chargea directement vers la Cité du Démon Antique.
+Wang Lin fendit le ciel, telle une traînée de lumière, et chargea directement vers la Cité Gu Yao.
 
-« Je me demande quels types de dragons et de tigres se cachent dans la capitale du Pays du Démon Céleste. Outre moi, plusieurs autres personnes de la Secte du Destin Céleste sont venues dans cette Terre des Esprits Démoniaques. Je me demande si j'en croiserai dans la capitale... »
+« Je me demande quels types de dragons et de tigres se cachent dans la capitale du Pays Tian Yao. Outre moi, plusieurs autres personnes de la Secte Tian Yun sont venues dans cette Terre Yao Ling. Je me demande si j'en croiserai dans la capitale... »
 
-« Il y a également cette dizaine de personnes de la Secte de l'Épée Da Luo. Si j'en rencontre dans la capitale, je devrai en capturer un pour l'interroger sur l'endroit où Zhou Yi est scellé! » Wang Lin réfléchissait, mais sa vitesse ne faiblissait pas et il disparut par-delà l'horizon.
+« Il y a également cette dizaine de personnes de la Secte Da Luo Jian. Si j'en rencontre dans la capitale, je devrai en capturer un pour l'interroger sur l'endroit où Zhou Yi est scellé! » Wang Lin réfléchissait, mais sa vitesse ne faiblissait pas et il disparut par-delà l'horizon.
 
-Le général démon Mo Lihai, vêtu d'une chemise verte, se tenait au sommet de la porte est de la Cité du Démon Antique. Derrière lui se trouvaient le commandant en chef et les autres officiers.
+Le général démon Mo Lihai, vêtu d'une chemise verte, se tenait au sommet de la porte est de la Cité Gu Yao. Derrière lui se trouvaient le commandant en chef et les autres officiers.
 
 Mo Lihai regarda au loin sans dire un mot, et ceux qui se tenaient derrière lui restaient tous silencieux. Après un long moment, il détourna son regard et se retourna pour observer attentivement la ville. En un instant, il aperçut les décombres qui gisaient sur dix li au centre de la cité.
 
@@ -118,4 +118,4 @@ Wang Lin apparut dans le ciel au-dessus de la porte est. Son regard parcourut le
 
 Wang Lin rit: « Très bien! »
 
-« Il faudra traverser trois matrices de transfert pour atteindre la capitale. Alors, frère Wang, allons-y! » Deux longs arcs de lumière traversèrent la Cité du Démon Antique pour s'élancer vers le lointain, ne laissant derrière eux que des échos tonitruants.
+« Il faudra traverser trois matrices de transfert pour atteindre la capitale. Alors, frère Wang, allons-y! » Deux longs arcs de lumière traversèrent la Cité Gu Yao pour s'élancer vers le lointain, ne laissant derrière eux que des échos tonitruants.

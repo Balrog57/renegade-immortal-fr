@@ -12,7 +12,7 @@ L’Étoile Sanguine.
 
 Une femme vêtue de pourpre chevauchait une épée de 10 mètres de long, fendant avec célérité l'immensité de l'espace. Trois autres femmes, parées de robes colorées, la poursuivaient de près.
 
-L'une des poursuivantes ricana: « Misérable! Tu as trahi le Palais de l'Eau Céleste et dérobé le trésor sacré de la jeune maîtresse de la secte. Crois-tu vraiment pouvoir t’échapper? Même si cet endroit est sous l'influence de la planète Tian Yun, ma Planète des Cinq Éléments est également une planète de culture de rang 7. Tu ne pourras pas fuir! »
+L'une des poursuivantes ricana: « Misérable! Tu as trahi le Palais Tian Shui et dérobé le trésor sacré de la jeune maîtresse de la secte. Crois-tu vraiment pouvoir t’échapper? Même si cet endroit est sous l'influence de la planète Tian Yun, ma Planète des Cinq Éléments est également une planète de culture de rang 7. Tu ne pourras pas fuir! »
 
 La femme en pourpre serra les dents, le visage d'une pâleur extrême. Le voile violet qu'elle portait était déjà tombé.
 
@@ -32,7 +32,7 @@ Un homme sortit du pavillon. Il avait les cheveux et les sourcils rouges, et por
 
 Il lança un regard glacial à la femme en pourpre ainsi qu'aux trois poursuivantes. Fronçant les sourcils, il dit calmement: « Disparaissez! »
 
-L'expression des trois femmes changea instantanément. L'une d'elles s'empressa de dire: « Le Palais de l'Eau Céleste de la Planète des Cinq Éléments tente de capturer une traîtresse. Nous espérons que Senior n'interviendra pas! »
+L'expression des trois femmes changea instantanément. L'une d'elles s'empressa de dire: « Le Palais Tian Shui de la Planète Wu Xing tente de capturer une traîtresse. Nous espérons que Senior n'interviendra pas! »
 
 Une lueur de froideur traversa les yeux de l'homme. Il agita ses larges manches, déchaînant une bourrasque de vent qui projeta les trois femmes hors de l'orbite de la planète rouge sang.
 
@@ -43,41 +43,41 @@ Une lueur de froideur traversa les yeux de l'homme. Il agita ses larges manches,
 ***
 
 Planète Suzaku.
-Pays de Chu, la Secte du Ciel Nuageux!
+Pays de Chu, la Secte Yun Tian!
 
-La Secte du Ciel Nuageux était devenue radicalement différente. Le pays de Chu avait été élevé au rang de pays de culture de rang 4 par l'actuel Suzaku, Zhou Wutai. Bien qu'il ne fût que de rang 4, sa sphère d'influence était la plus vaste de tous les pays de ce niveau.
+La Secte Yun Tian était devenue radicalement différente. Le pays de Chu avait été élevé au rang de pays de culture de rang 4 par l'actuel Suzaku, Zhou Wutai. Bien qu'il ne fût que de rang 4, sa sphère d'influence était la plus vaste de tous les pays de ce niveau.
 
-Même les pays de culture de rang 5 devaient faire preuve de respect lorsqu'ils pénétraient en Chu, tout particulièrement face à la Secte du Ciel Nuageux.
+Même les pays de culture de rang 5 devaient faire preuve de respect lorsqu'ils pénétraient en Chu, tout particulièrement face à la Secte Yun Tian.
 
 Car presque tous ceux qui avaient vécu ces quelques centaines d'années connaissaient le nom d'un cultivateur: Wang Lin. Cet homme avait, à lui seul, déclenché une vague sans précédent sur la planète Suzaku!
 
-Après l'accession de la Secte du Ciel Nuageux au rang de pays de rang 4, ils avaient démoli la porte de leur montagne pour, avec l'aide de la nation entière, ériger une statue gigantesque sculptée dans des pierres spirituelles de haute qualité!
+Après l'accession de la Secte Yun Tian au rang de pays de rang 4, ils avaient démoli la porte de leur montagne pour, avec l'aide de la nation entière, ériger une statue gigantesque sculptée dans des pierres spirituelles de haute qualité!
 
 Cette statue représentait un homme vêtu de noir. Son regard exprimait une profonde réflexion. Bien qu'il ne fût pas d'une beauté conventionnelle, il dégageait une aura transcendante. Sa main droite formait un sceau, comme s'il réfléchissait.
 
 La statue émettait une majesté terrifiante qui enveloppait les environs!
 
-C'était la porte de la montagne de la Secte du Ciel Nuageux, l'objet de vénération de ses innombrables disciples. C'était un lieu que tous les cultivateurs de Chu respectaient; une véritable légende pour la planète Suzaku!
+C'était la porte de la montagne de la Secte Yun Tian, l'objet de vénération de ses innombrables disciples. C'était un lieu que tous les cultivateurs de Chu respectaient; une véritable légende pour la planète Suzaku!
 
-Actuellement, un vieil homme et un jeune garçon montaient les marches menant à la Secte du Ciel Nuageux.
+Actuellement, un vieil homme et un jeune garçon montaient les marches menant à la Secte Yun Tian.
 
 Depuis leur position, ils pouvaient contempler l'imposante statue. Le visage du jeune garçon, empreint de curiosité, demanda: « Grand-père, est-ce la statue dont tu parlais? »
 
-Le vieil homme regarda l'œuvre et laissa poindre une trace de nostalgie. Après un long silence, il caressa la tête de l'enfant et dit: « Sais-tu pourquoi le chef de la Secte du Ciel Nuageux a pu atteindre le stade de la Formation de l'Âme? Pourquoi toutes les sectes de Chu considèrent la Secte du Ciel Nuageux comme leur suzerain? »
+Le vieil homme regarda l'œuvre et laissa poindre une trace de nostalgie. Après un long silence, il caressa la tête de l'enfant et dit: « Sais-tu pourquoi le chef de la Secte Yun Tian a pu atteindre le stade de la Formation de l'Âme? Pourquoi toutes les sectes de Chu considèrent la Secte Yun Tian comme leur suzerain? »
 
 « Pourquoi tous ces experts des pays de culture de rang 5 doivent-ils se montrer si respectueux en ces lieux? Tout cela est grâce à cette statue! »
 
 Le jeune garçon parut surpris avant de cligner des yeux et de sourire: « C'est étrange... comment une simple statue peut-elle inspirer un tel respect? »
 
-Le vieil homme soupira: « Bien que l'homme qui a servi de modèle à cette statue n'ait cultivé ici que pendant une courte période, il a déclenché, durant ces quelques centaines d'années, une tempête sans précédent sur la planète Suzaku! Certains récits ne se sont propagés qu'après son départ. La rumeur prétend que lorsqu'il n'avait que 200 ans de culture, il parvint à semer un chaos total dans la Mer des Démons. Il sauva une femme magnifique au sein de la Secte du Ciel Nuageux et terrifia tous les puissants. Il se fraya un chemin à travers Zhao, semant un massacre effroyable et teignant la terre de sang. Toute la famille Teng fut massacrée, et le pays entier devint un cimetière! »
+Le vieil homme soupira: « Bien que l'homme qui a servi de modèle à cette statue n'ait cultivé ici que pendant une courte période, il a déclenché, durant ces quelques centaines d'années, une tempête sans précédent sur la planète Suzaku! Certains récits ne se sont propagés qu'après son départ. La rumeur prétend que lorsqu'il n'avait que 200 ans de culture, il parvint à semer un chaos total dans la Mer Xiu Mo. Il sauva une femme magnifique au sein de la Secte Yun Tian et terrifia tous les puissants. Il se fraya un chemin à travers Zhao, semant un massacre effroyable et teignant la terre de sang. Toute la famille Teng fut massacrée, et le pays entier devint un cimetière! »
 
-« On raconte qu'il s'est rendu dans le Royaume Céleste et qu'il y a abattit Hongdie. Il vainquit Liu Mei, affronta Qian Feng et accepta Dun Tian de la Secte de l'Affinement de l'Âme comme maître. Il chassa Xue Yu, tua l'ancêtre du Clan des Démons Géants et acquit sa renommée lors de la bataille contre le Clan des Immortels Délaissés. Il obtint le Cristal de Suzaku au cœur du Tombeau de Suzaku. Après avoir terrassé de nombreux adversaires, il fut le premier à s'emparer du Cristal! »
+« On raconte qu'il s'est rendu dans le Royaume Céleste et qu'il y a abattit Hongdie. Il vainquit Liu Mei, affronta Qian Feng et accepta Dun Tian de la Secte Lian Hun comme maître. Il chassa Xue Yu, tua l'ancêtre du Clan Ju Mo et acquit sa renommée lors de la bataille contre le Clan Xian Yi. Il obtint le Cristal de Suzaku au cœur du Tombeau Zhu Que. Après avoir terrassé de nombreux adversaires, il fut le premier à s'emparer du Cristal! »
 
 « Il aurait pu revendiquer le titre de Suzaku, mais il le refusa pour le céder à l'actuel Suzaku, Zhou Wutai! »
 
 Le jeune homme s'exclama: « Il a réellement refusé le titre de Suzaku?! »
 
-« Sinon, pourquoi penses-tu que l'actuel Suzaku, Zhou Wutai, vient silencieusement contempler cette statue à chaque événement majeur? Avant la naissance de cet homme, la terre sacrée de la planète Suzaku était le Mont Suzaku. Désormais, la terre sacrée est cette Secte du Ciel Nuageux! »
+« Sinon, pourquoi penses-tu que l'actuel Suzaku, Zhou Wutai, vient silencieusement contempler cette statue à chaque événement majeur? Avant la naissance de cet homme, la terre sacrée de la planète Suzaku était le Mont Suzaku. Désormais, la terre sacrée est cette Secte Yun Tian! »
 
 Le jeune garçon en resta bouche bée. Il avait déjà entendu ces histoires, mais jamais avec une telle précision. Son cœur s'emballa et son visage s'illumina d'excitation: « Grand-père, je veux lui ressembler plus tard. Quel est son nom? Où est-il parti? »
 
@@ -91,15 +91,15 @@ Bien que sa beauté ne fût pas la plus éclatante, elle possédait une délicat
 
 « Petit Blanc, plus vite! » La voix de la femme était aussi mélodieuse qu'un chant d'oiseau.
 
-Le tigre poussa un nouveau rugissement et chargea droit vers la Secte du Ciel Nuageux. Lorsqu'ils atteignirent le sommet, l'animal se posa aux pieds de la statue. Le tigre tourna ses yeux vers elle, puis, avec un air de dédain, il pensa: *« Cette petite est bien trop insouciante. Pourquoi s'obstine-t-elle à vouloir retrouver cet homme? Il vaudrait mieux rester sur la planète Suzaku. Ce Seigneur Tigre a tant de tigresses; si nous devions partir un jour, comment pourrais-je supporter de les quitter? Cependant, cette petite a dit qu'il y avait des tigresses bien plus belles hors de la planète Suzaku... Cela complique un peu la tâche pour ce Seigneur Tigre... »*
+Le tigre poussa un nouveau rugissement et chargea droit vers la Secte Yun Tian. Lorsqu'ils atteignirent le sommet, l'animal se posa aux pieds de la statue. Le tigre tourna ses yeux vers elle, puis, avec un air de dédain, il pensa: *« Cette petite est bien trop insouciante. Pourquoi s'obstine-t-elle à vouloir retrouver cet homme? Il vaudrait mieux rester sur la planète Suzaku. Ce Seigneur Tigre a tant de tigresses; si nous devions partir un jour, comment pourrais-je supporter de les quitter? Cependant, cette petite a dit qu'il y avait des tigresses bien plus belles hors de la planète Suzaku... Cela complique un peu la tâche pour ce Seigneur Tigre... »*
 
 La femme fixa la statue et murmura: « Oncle, Ru Er a déjà atteint le stade de la Formation du Noyau. C'est rapide, n'est-ce pas? Je suis très assidue. Grand-père Tie Yan a dit que lorsque j'atteindrais le stade de l'Âme Naissante, il me remettrait le sac que tu m'as laissé. Oncle, je parviendrai certainement à l'Âme Naissante! »
 
-Un soupir léger émana du vide, puis un grand vieil homme apparut en sortant de la Secte du Ciel Nuageux. Il portait une robe daoïste qui lui conférait une aura de dignité.
+Un soupir léger émana du vide, puis un grand vieil homme apparut en sortant de la Secte Yun Tian. Il portait une robe daoïste qui lui conférait une aura de dignité.
 
 Il s'approcha de la statue, s'inclina devant elle, puis se tourna vers la femme et le tigre. Ses yeux brillaient de bienveillance lorsqu'il dit: « Ru Er, tu dois suivre ton cœur. Si tu te forces à poursuivre l'Âme Naissante par pure ambition, tu t'égareras sur une voie erronée et marcheras à contre-courant! »
 
-La femme regarda la statue et répondit doucement: « Grand-père Tie Yan, autrefois, quand l'Oncle a quitté Zhao pour s'enfoncer dans la Mer des Démons, n'était-il pas lui aussi résolu à atteindre le stade de l'Âme Naissante? Ainsi, suivre son cœur n'est pas toujours le meilleur conseil. »
+La femme regarda la statue et répondit doucement: « Grand-père Tie Yan, autrefois, quand l'Oncle a quitté Zhao pour s'enfoncer dans la Mer Xiu Mo, n'était-il pas lui aussi résolu à atteindre le stade de l'Âme Naissante? Ainsi, suivre son cœur n'est pas toujours le meilleur conseil. »
 
 Cet homme était Tie Yan. Grâce aux enseignements de Wang Lin, il avait pu franchir l'étape de l'Âme Naissante pour atteindre celle de la Formation de l'Âme. Au-delà de sa gratitude, son respect pour Wang Lin ne cessait de croître. Il n'avait jamais osé toucher au sac que ce dernier avait laissé derrière lui.
 
@@ -109,11 +109,11 @@ Zhou Ru détourna les yeux et regarda Tie Yan. Un sourire radieux comme une fleu
 
 Tie Yan comprit que le statut de Zhou Ru sur la planète Suzaku était unique. On pouvait dire qu'elle était la petite princesse de la planète. Presque tous ceux qui avaient connu Wang Lin se montraient extrêmement courtois envers elle, par crainte ou par respect pour l'illustre disparu.
 
-Même le Clan des Immortels Délaissés traitait Zhou Ru avec une politesse extrême. Normalement, ce clan n'autorisait aucun cultivateur à pénétrer sur son territoire, mais Zhou Ru faisait exception.
+Même le Clan Xian Yi traitait Zhou Ru avec une politesse extrême. Normalement, ce clan n'autorisait aucun cultivateur à pénétrer sur son territoire, mais Zhou Ru faisait exception.
 
-On pouvait affirmer que Zhou Ru ne courrait aucun danger sur la planète Suzaku. De plus, Zhou Wutai, Yun Quezi du Clan des Immortels Délaissés et de nombreux autres experts de haut niveau lui avaient offert des trésors de survie. Si des cultivateurs ordinaires tentaient de l'affronter, ils ne seraient pas sûrs de l'emporter.
+On pouvait affirmer que Zhou Ru ne courrait aucun danger sur la planète Suzaku. De plus, Zhou Wutai, Yun Quezi du Clan Xian Yi et de nombreux autres experts de haut niveau lui avaient offert des trésors de survie. Si des cultivateurs ordinaires tentaient de l'affronter, ils ne seraient pas sûrs de l'emporter.
 
-En outre, des experts envoyés par le Mont Suzaku et le patriarche du Clan des Démons Géants, Chi Hu, veillaient sur elle. Ils étaient prêts à intervenir à tout instant pour la protéger. Parmi ses gardiens figuraient également des membres de la Secte du Ciel Nuageux.
+En outre, des experts envoyés par le Mont Suzaku et le patriarche du Clan Ju Mo, Chi Hu, veillaient sur elle. Ils étaient prêts à intervenir à tout instant pour la protéger. Parmi ses gardiens figuraient également des membres de la Secte Yun Tian.
 
 Après réflexion, Tie Yan hocha la tête et dit avec bienveillance: « Très bien, cultive bien au Mont Suzaku. Si un jour tu atteins véritablement le stade de l'Âme Naissante, je te remettrai immédiatement les biens que le Bienfaiteur t'a laissés! »
 

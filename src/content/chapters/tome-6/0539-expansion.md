@@ -28,7 +28,7 @@ Les règles de Wang Lin demeuraient inchangées. Il n'existait toujours que troi
 
 Tous les membres de la Tribu de l'Affinement de l'Âme consacraient tout leur temps à la culture. Hormis les patrouilles, il n'y avait presque personne à l'extérieur, car chacun cultivait au sein de sa demeure.
 
-La Tribu de l'Affinement de l'Âme était radicalement différente de toutes les autres tribus de la Terre des Esprits Démoniaques; elle ressemblait davantage à une secte de culture nouvellement née.
+La Tribu de l'Affinement de l'Âme était radicalement différente de toutes les autres tribus de la Terre Yao Ling; elle ressemblait davantage à une secte de culture nouvellement née.
 
 La vie de Wang Lin devint très paisible, car il était le seul habitant de la vallée. Toutes les anciennes habitations avaient été supprimées par lui, et l'endroit ressemblait désormais presque au Royaume Céleste.
 
@@ -44,11 +44,11 @@ Wang Lin ouvrit les yeux, sortant de sa culture. En quittant sa demeure en bois,
 
 Peu après, Wang Lin leva la tête et murmura: « Deux ans déjà... »
 
-Il était dans la Terre des Esprits Démoniaques depuis presque deux ans. Une fois l'hiver passé, cela fera exactement deux ans.
+Il était dans la Terre Yao Ling depuis presque deux ans. Une fois l'hiver passé, cela fera exactement deux ans.
 
 Il leva sa main droite et captura un flocon. Tandis que le flocon se posait sur sa main, une pointe de froid émana de lui avant qu'il ne fonde, laissant une infime parcelle d'énergie spirituelle démoniaque pénétrer sa paume.
 
-« Tout dans la Terre des Esprits Démoniaques contient de l'énergie spirituelle démoniaque... » Wang Lin prit une profonde inspiration avant de se rasseoir et de fermer les yeux.
+« Tout dans la Terre Yao Ling contient de l'énergie spirituelle démoniaque... » Wang Lin prit une profonde inspiration avant de se rasseoir et de fermer les yeux.
 
 Les flocons tombaient lentement sur son corps. L'intensité de la chute augmenta progressivement et, quelques heures plus tard, Wang Lin était devenu un véritable bonhomme de neige.
 
@@ -120,7 +120,7 @@ Ouyang Hua pénétra dans la vallée. Il portait quelqu'un dans ses bras: une pe
 
 Après s'être précipité auprès de Wang Lin, Ouyang Hua déposa le corps sur le côté, s'agenouilla et dit: « Ancêtre, alors que Treize chassait, il est tombé sur une bête démoniaque rare. Au moment où ce vieil homme s'en est rendu compte et s'est précipité, il était déjà trop tard... »
 
-Pour toutes les créatures vivantes de la Terre des Esprits Démoniaques, une fois qu'elles ont accumulé suffisamment d'énergie spirituelle démoniaque, elles subissent une mutation démoniaque qui accroît considérablement leur force.
+Pour toutes les créatures vivantes de la Terre Yao Ling, une fois qu'elles ont accumulé suffisamment d'énergie spirituelle démoniaque, elles subissent une mutation démoniaque qui accroît considérablement leur force.
 
 Wang Lin posa le morceau de bois et leva la tête pour regarder Treize.
 

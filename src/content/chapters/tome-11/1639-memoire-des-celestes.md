@@ -94,7 +94,7 @@ Au moment où le corps du vieil homme explosa, au plus profond du Royaume Céles
 
 Les trois autres étaient également sous le choc.
 
-« Depuis des temps immémoriaux, je n'ai jamais entendu parler de quiconque ayant brisé le sceau du Souverain Céleste. Même les autres puissants souverains du Continent Astral Immortel trouveraient cela extrêmement difficile. Après tout, c'est un sort créé par le Souverain Céleste lui-même, la méthode ultime pour protéger les secrets des disciples de premier rang de ma Secte des Sept Dao! »
+« Depuis des temps immémoriaux, je n'ai jamais entendu parler de quiconque ayant brisé le sceau du Souverain Céleste. Même les autres puissants souverains du Continent Astral Immortel trouveraient cela extrêmement difficile. Après tout, c'est un sort créé par le Souverain Céleste lui-même, la méthode ultime pour protéger les secrets des disciples de premier rang de ma Secte Qi Dao! »
 
 « Lui... il n'est qu'une fourmi d'un royaume inférieur, et pourtant il a réussi à le briser! » Dans l'autre statue, la Tortue Noire sortit, les yeux écarquillés par l'horreur et l'incrédulité. S'il ne l'avait pas constaté de son propre Sens Divin, il n'aurait jamais cru cela réel!
 

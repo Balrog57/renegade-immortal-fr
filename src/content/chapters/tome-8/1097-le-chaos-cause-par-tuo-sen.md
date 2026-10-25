@@ -12,19 +12,19 @@ slug: le-chaos-cause-par-tuo-sen
 
 « Le nouvel Empereur Divin Dragon Azure n'a pas écouté mes conseils et est allé inspecter le Royaume Céleste. Après cela, il n'est jamais revenu... »
 
-« Plusieurs centaines d'années ont passé. En raison de l'effondrement du Royaume Céleste, le Système Stellaire du Vide Brillant est devenu chaotique. C'est alors qu'une organisation appelée l'Alliance de Culture a fait son apparition, avec l'ombre du Royaume du Vide Brillant derrière elle. »
+« Plusieurs centaines d'années ont passé. En raison de l'effondrement du Royaume Céleste, le Système Stellaire du Vide Brillant est devenu chaotique. C'est alors qu'une organisation appelée l'Alliance Xiu Zhen a fait son apparition, avec l'ombre du Royaume Kun Xu derrière elle. »
 
-« Cette Alliance de Culture a utilisé une méthode inconnue pour s'emparer de la majorité des héritages du Royaume Céleste de la Pluie. J'avais initialement l'intention d'aller m'enquérir de la trace de l'Empereur Divin Dragon Azure, mais mon troisième Fléau Céleste était arrivé bien avant l'heure. J'ai dû entrer en culture en vase clos, mais c'est précisément à ce moment-là que l'Alliance de Culture a lancé son attaque contre les Quatre Sectes Divines... »
+« Cette Alliance Xiu Zhen a utilisé une méthode inconnue pour s'emparer de la majorité des héritages du Royaume Céleste de la Pluie. J'avais initialement l'intention d'aller m'enquérir de la trace de l'Empereur Divin Dragon Azure, mais mon troisième Fléau Céleste était arrivé bien avant l'heure. J'ai dû entrer en culture en vase clos, mais c'est précisément à ce moment-là que l'Alliance Xiu Zhen a lancé son attaque contre les Quatre Sectes Divines... »
 
 « L'Empereur Divin Tortue Noire nous a trahis; bien que je l'aie gravement blessé, je n'ai pu le tuer à cause de mon troisième Fléau Céleste... »
 
 « L'Empereur Divin Tigre Blanc est mort au combat, et même son cadavre a été pillé... »
 
-« Ce qui était ridicule, c'est que bien que l'Alliance de Culture ait subi de lourdes pertes, elle ignorait la cause de cette guerre. Elle pensait toujours qu'il s'agissait d'une lutte pour la domination du Système Stellaire du Vide Brillant! »
+« Ce qui était ridicule, c'est que bien que l'Alliance Xiu Zhen ait subi de lourdes pertes, elle ignorait la cause de cette guerre. Elle pensait toujours qu'il s'agissait d'une lutte pour la domination du Système Stellaire du Vide Brillant! »
 
-« Ce qu'elle ignorait, c'est qu'il ne s'agissait pas d'une bataille pour devenir le souverain du Système Stellaire du Vide Brillant. Le Royaume du Vide Brillant avait poussé par un moyen inconnu l'Empereur Divin Tortue Noire à nous trahir, puis il avait découvert le secret de mes Quatre Sectes Divines! »
+« Ce qu'elle ignorait, c'est qu'il ne s'agissait pas d'une bataille pour devenir le souverain du Système Stellaire du Vide Brillant. Le Royaume Kun Xu avait poussé par un moyen inconnu l'Empereur Divin Tortue Noire à nous trahir, puis il avait découvert le secret de mes Quatre Sectes Divines! »
 
-« Cependant, le Royaume du Vide Brillant ne connaissait que l'existence du secret; il ignorait l'emplacement de cette planète de culture. Le Système Stellaire du Vide Brillant était trop vaste, et il était tout simplement impossible de trouver une seule planète de culture au hasard. De plus, la planète avait été transformée par les quatre premiers Empereurs Divins, il était donc impossible d'y déceler quoi que ce soit d'anormal. »
+« Cependant, le Royaume Kun Xu ne connaissait que l'existence du secret; il ignorait l'emplacement de cette planète de culture. Le Système Stellaire du Vide Brillant était trop vaste, et il était tout simplement impossible de trouver une seule planète de culture au hasard. De plus, la planète avait été transformée par les quatre premiers Empereurs Divins, il était donc impossible d'y déceler quoi que ce soit d'anormal. »
 
 « Selon l'accord des quatre premiers Empereurs Divins, seule chaque génération de l'Empereur Divin Oiseau Vermillon peut connaître la position exacte de la planète! »
 
@@ -32,7 +32,7 @@ slug: le-chaos-cause-par-tuo-sen
 
 « Lorsque la situation est devenue critique, je n'ai pas hésité à les menacer avec les Quatre Trésors Sacrés. J'étais prêt à en payer le prix, mais malgré ma puissance, je n'ai tout de même pas pu préserver le secret. Après tout, cela concernait la vie et la mort de tous les membres des Quatre Sectes Divines... »
 
-« Finalement, je leur ai révélé l'emplacement de la planète. Le Royaume du Vide Brillant était également préoccupé par les Quatre Trésors Sacrés, et le secret que je leur avais confié impliquait trop d'éléments pour qu'ils puissent l'authentifier. Ce n'est qu'à ce moment-là que la guerre avec les Quatre Sectes Divines s'est lentement achevée. J'ai emmené les Quatre Sectes Divines et nous nous sommes cachés, mais j'étais trop blessé. Pourtant, je refusais de mourir. Car si je mourais, les Quatre Sectes Divines seraient immédiatement déchirés... De plus, je n'avais pas encore trouvé de successeur pour hériter du secret... »
+« Finalement, je leur ai révélé l'emplacement de la planète. Le Royaume Kun Xu était également préoccupé par les Quatre Trésors Sacrés, et le secret que je leur avais confié impliquait trop d'éléments pour qu'ils puissent l'authentifier. Ce n'est qu'à ce moment-là que la guerre avec les Quatre Sectes Divines s'est lentement achevée. J'ai emmené les Quatre Sectes Divines et nous nous sommes cachés, mais j'étais trop blessé. Pourtant, je refusais de mourir. Car si je mourais, les Quatre Sectes Divines seraient immédiatement déchirés... De plus, je n'avais pas encore trouvé de successeur pour hériter du secret... »
 
 « J'ai pu rester en vie grâce à un sortilège et j'ai enduré la douleur de ce troisième Fléau Céleste que je ne pouvais surmonter. J'ai tenu ainsi pendant d'innombrables années... Et maintenant, je suis enfin sur le point d'être libre... »
 
@@ -42,15 +42,15 @@ La silhouette de l'homme d'âge moyen s'estompa progressivement, mais sa voix co
 
 « L'ensemble des Quatre Sectes Divines provient d'une seule planète. Tu peux voir cela comme une porte... Cette porte a été divisée en quatre parties par les quatre premiers Empereurs Divins, et elles furent cachées au sein de quatre planètes de culture. Elles étaient dispersées dans différentes régions. Lorsque l'Ancien Royaume Céleste disparut et que le monde fut divisé en quatre Royaumes Célestes, les quatre planètes finirent chacune dans un système stellaire différent... »
 
-« Je n'ai révélé qu'une seule de ces planètes au Royaume du Vide Brillant, qui est ta planète natale, la planète Suzaku... Quant aux trois autres emplacements, j'ignore s'ils ont changé ou comment ils s'appellent désormais, mais retiens bien ces trois cartes stellaires... »
+« Je n'ai révélé qu'une seule de ces planètes au Royaume Kun Xu, qui est ta planète natale, la planète Suzaku... Quant aux trois autres emplacements, j'ignore s'ils ont changé ou comment ils s'appellent désormais, mais retiens bien ces trois cartes stellaires... »
 
 Alors que le message de l'homme d'âge moyen pénétrait dans l'esprit de Wang Lin, trois anciennes cartes stellaires apparurent instantanément avec lui.
 
-À cet instant, Wang Lin fut profondément choqué. Il n'aurait jamais imaginé que les Quatre Sectes Divines renferment un tel secret. De plus, il ne pensait pas que la planète Suzaku, son monde d'origine, était la clé de la guerre entre l'Alliance, le Royaume du Vide Brillant et les Quatre Sectes Divines!
+À cet instant, Wang Lin fut profondément choqué. Il n'aurait jamais imaginé que les Quatre Sectes Divines renferment un tel secret. De plus, il ne pensait pas que la planète Suzaku, son monde d'origine, était la clé de la guerre entre l'Alliance, le Royaume Kun Xu et les Quatre Sectes Divines!
 
 « Pas étonnant que l'un des avatars du vieil Empereur Divin ait toujours séjourné sur la planète Suzaku... Pas étonnant que le maître de Mo Zhi l'y ait envoyé. Je crains que son maître ne soit pas un homme ordinaire. Je me demande comment il a pu déceler des indices sur cette affaire... »
 
-« Pas étonnant que Liu Mei... soit également apparu sur la planète Suzaku... Même le Clan du Tatouage se trouvait sur la planète Suzaku! » Wang Lin avait progressivement découvert l'existence de l'avatar du vieil Empereur Divin, Huanglong, au cours des trois dernières années.
+« Pas étonnant que Liu Mei... soit également apparu sur la planète Suzaku... Même le Clan Fu Wen se trouvait sur la planète Suzaku! » Wang Lin avait progressivement découvert l'existence de l'avatar du vieil Empereur Divin, Huanglong, au cours des trois dernières années.
 
 L'homme d'âge moyen avait laissé toutes ces informations en s'éloignant, mais il marqua soudain une pause. Il regarda Wang Lin avec un sourire bienveillant et dit doucement: « Si la pression devient trop grande, si les Quatre Sectes Divines n'ont plus aucun espoir de retrouver leur gloire passée, si les cieux veulent véritablement détruire mes Quatre Sectes Divines... Eh bien, alors ne te force pas. »
 
@@ -74,17 +74,17 @@ Sa main gauche pointa rapidement l'âme originelle à plusieurs reprises. À cha
 
 Les lignes rouges se rétractèrent, mais malgré tout, elles ne purent être expulsées du corps de Lie Yunzi.
 
-Sous l'effet de l'énergie originelle, Lie Yunzi reprit la raison et s'exclama précipitamment: « Lors de mon retour, j'ai été pris en embuscade par des membres de la Secte des Cadavres... » Avant qu'il n'ait pu achever sa phrase, les lignes rouges qui avaient été réprimées par l'énergie originelle commencèrent à s'agiter. Lie Yunzi s'interrompit brusquement, et son sourire, qui n'en était pas un, réapparut. La confusion revint dans ses yeux.
+Sous l'effet de l'énergie originelle, Lie Yunzi reprit la raison et s'exclama précipitamment: « Lors de mon retour, j'ai été pris en embuscade par des membres de la Secte Shi Yin... » Avant qu'il n'ait pu achever sa phrase, les lignes rouges qui avaient été réprimées par l'énergie originelle commencèrent à s'agiter. Lie Yunzi s'interrompit brusquement, et son sourire, qui n'en était pas un, réapparut. La confusion revint dans ses yeux.
 
 Bien qu'il n'eût pas fini de parler, ses paroles étaient parvenues aux oreilles de tous les Anciens sortis du palais. Leurs visages devinrent instantanément d'une noirceur extrême!
 
-« La Secte des Cadavres! »
+« La Secte Shi Yin! »
 
 Le Maître Yan Leizi fronça les sourcils et pointa impitoyablement l'espace entre les sourcils de Lie Yunzi. Ce dernier trembla et retrouva sa lucidité.
 
-Le Maître Yan Leizi tonna: « Lie Yunzi, parle clairement! Pourquoi la Secte des Cadavres t'a-t-elle tendu une embuscade? »
+Le Maître Yan Leizi tonna: « Lie Yunzi, parle clairement! Pourquoi la Secte Shi Yin t'a-t-elle tendu une embuscade? »
 
-« L'Empereur Divin Oiseau Vermillon est Wang Lin. Il voulait que je vous remette un jade. Sur le chemin du retour, j'ai été pris en embuscade par les membres de la Secte des Cadavres et j'ai été frappé par le poison qui donne l'impression de monter au ciel et de mourir de plaisir... » Bien que le niveau de culture de Lie Yunzi fût supérieur à celui de Situ Nan, il n'avait pas encore atteint le stade du Briseur du Nirvana. Désormais privé de son corps physique, il n'était pas aussi doué que Situ Nan pour trouver d'autres moyens de supprimer le poison.
+« L'Empereur Divin Oiseau Vermillon est Wang Lin. Il voulait que je vous remette un jade. Sur le chemin du retour, j'ai été pris en embuscade par les membres de la Secte Shi Yin et j'ai été frappé par le poison qui donne l'impression de monter au ciel et de mourir de plaisir... » Bien que le niveau de culture de Lie Yunzi fût supérieur à celui de Situ Nan, il n'avait pas encore atteint le stade du Briseur du Nirvana. Désormais privé de son corps physique, il n'était pas aussi doué que Situ Nan pour trouver d'autres moyens de supprimer le poison.
 
 Pour diverses raisons, le poison en lui était devenu extrêmement virulent.
 
@@ -118,4 +118,4 @@ L'étrange réaction du Maître Yan Leizi ne surprit aucun des Anciens; au contr
 
 Un instant plus tard, l'expression du Maître Yan Leizi changea une nouvelle fois. Tourné vers l'ouest, il joignit les mains et dit respectueusement: « À vos ordres! » Ses yeux devinrent sévères alors qu'il balayait la foule du regard: « Cessez toutes les hostilités avec l'Alliance et convoquez ici tous les cultivateurs au stade du Scruteur du Nirvana ou au-dessus. Attendez mon commandement après mon retour des Quatre Sectes Divines! »
 
-La même scène se produisit au sein de la Secte des Cadavres. Seule une différence subsistait: comparé à Luotian, le jade que Li Yingzhi avait rapporté avait plongé la Secte des Cadavres dans une frénésie absolue face à son contenu!
+La même scène se produisit au sein de la Secte Shi Yin. Seule une différence subsistait: comparé à Luotian, le jade que Li Yingzhi avait rapporté avait plongé la Secte Shi Yin dans une frénésie absolue face à son contenu!

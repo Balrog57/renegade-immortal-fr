@@ -90,7 +90,7 @@ Derrière lui, depuis cette secte morte engloutie par les montagnes profondes, u
 
 Wang Lin partit.
 
-Cependant, il ne quitta pas le Continent du Grand Sage; il se contenta de s'installer au sommet d'une montagne. Avec le Dragon Marin Exalté Doré pour garde, il dressa des restrictions autour de lui. Alors que le soleil se levait à l'est, il ferma les yeux.
+Cependant, il ne quitta pas le Continent Da Sheng; il se contenta de s'installer au sommet d'une montagne. Avec le Dragon Marin Exalté Doré pour garde, il dressa des restrictions autour de lui. Alors que le soleil se levait à l'est, il ferma les yeux.
 
 « Je vais tenter l'Épreuve Empyrée! Autrefois, j'avais franchi le quatrième palais. Je me demande combien je pourrai en traverser cette fois... » Wang Lin ferma les yeux et apaisa les violentes fluctuations causées par sa progression de culture. Après trois mois, il s'était familiarisé avec son nouveau niveau. Il leva la main droite et fit un geste, faisant apparaître des sorts.
 

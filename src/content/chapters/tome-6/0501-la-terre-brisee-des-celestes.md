@@ -10,7 +10,7 @@ Tian Yunzi agita ses manches et un nuage aux sept couleurs apparut. Le nuage env
 
 Wang Lin était à l'intérieur du nuage tandis qu'il traversait le ciel bleu. Les montagnes et les rivières sous ses pieds défilaient en un éclair.
 
-Après quelques respirations, le nuage aux sept couleurs dépassa les différentes divisions de la Secte du Destin Céleste et arriva devant la secte principale.
+Après quelques respirations, le nuage aux sept couleurs dépassa les différentes divisions de la Secte Tian Yun et arriva devant la secte principale.
 
 Ce qui apparut devant Wang Lin était un monde encore plus éblouissant que le Royaume Céleste. Trois montagnes imposantes, semblables à des doigts dressés vers le ciel, s'élevaient au-dessus des nuages.
 
@@ -94,7 +94,7 @@ C'est pourquoi Wang Lin ne se téléporta pas et monta calmement la montagne, un
 
 Le hurlement du vent glacial emplissait ses oreilles, et la neige blanche et étincelante l'aveuglait devant lui. Autour de son corps, l'aura glaciale tentait sans cesse de l'envahir, tandis que sous ses pieds se trouvait une surface si verglacée qu'on y glisserait au moindre contact.
 
-Néanmoins, ce genre d'épreuve n'était rien de nouveau pour Wang Lin. Dans la Terre de l'Ancien Dieu, il avait traversé bien des lieux semblables.
+Néanmoins, ce genre d'épreuve n'était rien de nouveau pour Wang Lin. Dans la Terre Gu Shen, il avait traversé bien des lieux semblables.
 
 Le temps passa lentement. À mesure qu'il approchait du sommet, l'aura glaciale devenait plus intense et la lumière autour du corps de Wang Lin s'intensifiait encore. Lorsqu'il fut à cent pas du sommet, il s'arrêta et cessa d'avancer.
 

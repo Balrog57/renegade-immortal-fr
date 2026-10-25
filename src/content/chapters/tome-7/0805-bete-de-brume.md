@@ -34,7 +34,7 @@ Le corps de l'homme fut projeté en arrière dans un fracas retentissant. Il cra
 
 À cet instant, il n'était pas le seul à être stupéfait. Tous les membres du clan alentour, spectateurs de cette bataille, étaient plongés dans un silence total.
 
-L'ancêtre du Clan des Immortels Élus devint anxieux et s'exclama rapidement: « Haut Céleste, je vous en prie, ne soyez pas en colère et laissez Ta Shan vivre! »
+L'ancêtre du Clan Xian Xuan devint anxieux et s'exclama rapidement: « Haut Céleste, je vous en prie, ne soyez pas en colère et laissez Ta Shan vivre! »
 
 « Inutile! » L'homme corpulent retomba au sol et continua de reculer. Il ne parvint à se stabiliser qu'après avoir parcouru une trentaine de mètres. Il poussa un rugissement, ses deux mains formant un sceau, avant de frapper sa poitrine avec acharnement.
 
@@ -42,7 +42,7 @@ Tous les tatouages autour de lui se mirent à bouger étrangement et furent aspi
 
 Dès l'apparition de l'armure, une aura sombre se dégagea. Une vague illusion apparut même derrière l'homme, tel un dieu démon!
 
-L'ancêtre du Clan des Immortels Élus retint son souffle et s'exclama: « Armure de l'Esprit Céleste! Tu as réussi à raffiner une armure spirituelle! »
+L'ancêtre du Clan Xian Xuan retint son souffle et s'exclama: « Armure de l'Esprit Céleste! Tu as réussi à raffiner une armure spirituelle! »
 
 Les yeux de Wang Lin se plissèrent. Cette armure lui était familière; elle ressemblait beaucoup à celle que portait le démon dispersé. La seule différence résidait dans le fait que l'énergie démoniaque de cette armure n'était pas aussi puissante, comme si elle était réprimée par une autre force.
 
@@ -78,11 +78,11 @@ Le fragment s'écrasa soudainement au sol. Un grondement titanesque éclata et l
 
 La condensation fut extrêmement rapide et, en un instant, les particules de brume prirent des formes étranges.
 
-« Des bêtes de brume! » s'exclamèrent les membres du Clan des Immortels Élus, tandis que les plantes entre leurs sourcils commençaient à scintiller. Les couches de feuilles se déployèrent et, de leur sein, jaillit le long pot à bec que Wang Lin avait vu auparavant.
+« Des bêtes de brume! » s'exclamèrent les membres du Clan Xian Xuan, tandis que les plantes entre leurs sourcils commençaient à scintiller. Les couches de feuilles se déployèrent et, de leur sein, jaillit le long pot à bec que Wang Lin avait vu auparavant.
 
 La brume finit par se condenser et plus de cent bêtes noires féroces apparurent dans le ciel. Ces créatures avaient toutes des apparences distinctes et dégageaient une aura lugubre. Bientôt, de bas rugissements capables de transpercer l'âme retentirent.
 
-L'expression de l'ancêtre du Clan des Immortels Élus devint sombre alors qu'il pressait sa main entre ses sourcils. Un grand pot à bec d'environ 3,3 mètres apparut. Il s'élança dans le ciel et cria: « Que chacun combatte de son côté et nettoie cette brume en moins d'un demi-bâton d'encens! Ne laissez aucune bête de brume de forme humaine apparaître! »
+L'expression de l'ancêtre du Clan Xian Xuan devint sombre alors qu'il pressait sa main entre ses sourcils. Un grand pot à bec d'environ 3,3 mètres apparut. Il s'élança dans le ciel et cria: « Que chacun combatte de son côté et nettoie cette brume en moins d'un demi-bâton d'encens! Ne laissez aucune bête de brume de forme humaine apparaître! »
 
 Son corps vacilla et il se précipita aussitôt vers une bête qui venait de surgir. Sa main frappa le pot, et une puissante force d'aspiration jaillit de l'ouverture.
 
@@ -100,7 +100,7 @@ Cependant, à ce moment précis, alors qu'une des bêtes était sur le point d'�
 
 Wang Lin n'avait jamais vu des yeux pareils. La créature n'avait pas de pupilles, mais présentait six taches noires. Hormis cela, tout n'était que grisaille. Ces yeux étaient totalement dépourvus de cœur.
 
-Le membre du Clan des Immortels Élus fut saisi par la terreur et recula sans hésiter. Mais au moment même de sa retraite, la bête de brume fondit sur lui. Elle était d'une rapidité fulgurante. Elle le rattrapa en un instant et pénétra dans son corps par ses orifices.
+Le membre du Clan Xian Xuan fut saisi par la terreur et recula sans hésiter. Mais au moment même de sa retraite, la bête de brume fondit sur lui. Elle était d'une rapidité fulgurante. Elle le rattrapa en un instant et pénétra dans son corps par ses orifices.
 
 Ce membre du clan poussa un cri misérable qui résonna aux quatre coins du monde. À cet instant, son corps explosa en un nuage de sang et de chair. La bête de brume reprit sa forme et lécha ses babines de sa longue langue avant de se précipiter vers la victime suivante.
 

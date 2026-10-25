@@ -80,7 +80,7 @@ Wang Lin laissa échapper un léger sourire: « Pourquoi? Est-ce un trésor? »
 
 Li Muwan hocha la tête frénétiquement. Son visage rayonnait d'excitation et son corps dégageait une aura irrésistible.
 
-« Frère Wang, la qualité de ce fourneau est extrêmement élevée. En fait, elle n'a rien à envier aux grands chaudrons à pilules devant le grand hall de la Secte du Ciel Nuageux. Wan Er soupçonne même qu'il leur soit supérieur. Regarde ces lignes complexes: elles ne sont pas naturelles, mais sont les traces de plantes médicinales laissées par un long usage pour raffiner des pilules. Ces marques sont parfois le véritable indicateur de la valeur d'un tel objet. Si Wan Er ne se trompe pas, c'est le trésor principal d'une secte d'alchimistes. »
+« Frère Wang, la qualité de ce fourneau est extrêmement élevée. En fait, elle n'a rien à envier aux grands chaudrons à pilules devant le grand hall de la Secte Yun Tian. Wan Er soupçonne même qu'il leur soit supérieur. Regarde ces lignes complexes: elles ne sont pas naturelles, mais sont les traces de plantes médicinales laissées par un long usage pour raffiner des pilules. Ces marques sont parfois le véritable indicateur de la valeur d'un tel objet. Si Wan Er ne se trompe pas, c'est le trésor principal d'une secte d'alchimistes. »
 
 Wang Lin acquiesça intérieurement. Son analyse était très proche de ses propres spéculations.
 

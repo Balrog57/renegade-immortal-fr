@@ -86,13 +86,13 @@ Ils s'étaient perdus dans leurs débats, mais cela rendait la vie des gens à l
 
 Il ne comprenait pas pourquoi ils n'étaient pas revenus après un si long moment, malgré la présence du Maître de Secte et de Li Qianmei.
 
-Après plusieurs heures supplémentaires, l'anxiété du vieil homme s'intensifia. Il avait un mauvais pressentiment. Serrant les dents, il ne s'obstina plus: il prit le contrôle de la bête-tigre et se dirigea vers le continent de Mo Luo, accompagné de plus de trente disciples centraux de la Secte du Dao Pourpre!
+Après plusieurs heures supplémentaires, l'anxiété du vieil homme s'intensifia. Il avait un mauvais pressentiment. Serrant les dents, il ne s'obstina plus: il prit le contrôle de la bête-tigre et se dirigea vers le continent de Mo Luo, accompagné de plus de trente disciples centraux de la Secte Zi Dao!
 
 Cependant, alors qu'ils approchaient et s'apprêtaient à franchir la barrière protectrice, une voix impérieuse retentit.
 
 « Reculez! Sans mon ordre, vous n'avez pas le droit de poser le pied sur le continent de Mo Luo! » Cette voix appartenait à Lu Yuncong. Le vieil homme, surpris, fit rapidement reculer le tigre, bien que son cœur fût toujours perplexe.
 
-Dans la cour, la lumière du matin enveloppait le lieu. Wang Lin regarda Lu Yuncong, qui restait assis en silence pour boire son vin. Lu Yuncong comprit qu'il n'était pas un adversaire pour cet homme en blanc. Même si toute la Secte du Dao Pourpre débarquait, cela ne changerait rien.
+Dans la cour, la lumière du matin enveloppait le lieu. Wang Lin regarda Lu Yuncong, qui restait assis en silence pour boire son vin. Lu Yuncong comprit qu'il n'était pas un adversaire pour cet homme en blanc. Même si toute la Secte Zi Dao débarquait, cela ne changerait rien.
 
 Wang Lin regarda Li Qianmei et dit calmement: « Pour la troisième question, je ne peux dire que le Dao est semblable à une pensée. »
 
@@ -106,7 +106,7 @@ Le regard de Wang Lin resta serein et il secoua la tête.
 
 « Vous... » Lu Yuncong prit une profonde inspiration et eut un sourire amer.
 
-Il soupira de nouveau: « Daoïste Lu, cette Bannière Céleste Yin n'appartient pas à la Secte du Dao Pourpre. Elle a été envoyée par la secte principale pour y être nourrie. Elle doit être restituée après cent ans. Si vous refusez de la rendre, je ne m'obstinerai pas, mais une fois le délai de cent ans passé, si la secte principale vient réclamer son dû, ne me blâmez pas de leur avoir dit la vérité. »
+Il soupira de nouveau: « Daoïste Lu, cette Bannière Céleste Yin n'appartient pas à la Secte Zi Dao. Elle a été envoyée par la secte principale pour y être nourrie. Elle doit être restituée après cent ans. Si vous refusez de la rendre, je ne m'obstinerai pas, mais une fois le délai de cent ans passé, si la secte principale vient réclamer son dû, ne me blâmez pas de leur avoir dit la vérité. »
 
 « La Bannière Céleste Yin appartient à la secte principale? » L'expression de Wang Lin demeura neutre, mais diverses pensées traversèrent son esprit.
 
@@ -116,11 +116,11 @@ Une fois Lu Yuncong parti, Li Qianmei regarda Wang Lin avec un doux sourire. Ell
 
 Cette musique possédait un charme apaisant, semblable à la vie paisible d'un village ou au murmure d'un ruisseau de montagne. Elle lavait les impuretés du cœur. C'était comme un pont arc-en-ciel reliant deux âmes, faisant disparaître toute distance entre elles.
 
-Sensible à la tranquillité et à l'élégance de ce chant, Wang Lin ferma les yeux. C'était comme s'il retournait sur la planète Suzaku pour voir cette femme jouer de la cithare, ou la femme aveugle dans la Terre des Esprits Démoniaques...
+Sensible à la tranquillité et à l'élégance de ce chant, Wang Lin ferma les yeux. C'était comme s'il retournait sur la planète Suzaku pour voir cette femme jouer de la cithare, ou la femme aveugle dans la Terre Yao Ling...
 
 Le son de la flûte qui parvenait à ses oreilles se mêlait aux notes de la cithare gravées dans son cœur. Il devenait difficile de les distinguer.
 
-Lu Yuncong s'en alla, porté par le chant de la flûte, l'amertume au cœur de plus en plus pesante. Il jeta un dernier regard vers la Secte de l'Origine et soupira avant de partir sans se retourner.
+Lu Yuncong s'en alla, porté par le chant de la flûte, l'amertume au cœur de plus en plus pesante. Il jeta un dernier regard vers la Secte Gui Yuan et soupira avant de partir sans se retourner.
 
 Après un temps indéterminé, le son de la flûte s'estompa. Li Qianmei se leva, regarda Wang Lin, puis marcha vers la porte de la cour. Elle s'arrêta brusquement et se retourna avec un sourire.
 

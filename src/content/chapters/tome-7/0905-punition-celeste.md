@@ -94,7 +94,7 @@ Ta Shan chargea tel un éclair, le poing fermé. Un tatouage apparut sur son poi
 
 Yun Quezi resta pétrifié par la scène. À cet instant, il eut l'impression d'être frappé par la foudre en se remémorant une rumeur ancienne!
 
-« Ceci... c'est la chambre de torture de mon Clan des Immortels Délaissés! La légende raconte que lorsque le plus ancien ancêtre du clan vint sur la planète Suzaku, il créa une couche au-delà des deux dernières et la nomma la chambre de torture. Quiconque n'appartenait pas à mon clan y était immédiatement tué par les gardes! Je ne pensais pas que... que cela soit réel! »
+« Ceci... c'est la chambre de torture de mon Clan Xian Yi! La légende raconte que lorsque le plus ancien ancêtre du clan vint sur la planète Suzaku, il créa une couche au-delà des deux dernières et la nomma la chambre de torture. Quiconque n'appartenait pas à mon clan y était immédiatement tué par les gardes! Je ne pensais pas que... que cela soit réel! »
 
 Alors que la voix de Yun Quezi résonnait, les chaînes s'animèrent de nouveau. À cet instant, tous les cadavres maintenus par les liens ouvrirent les yeux simultanément.
 

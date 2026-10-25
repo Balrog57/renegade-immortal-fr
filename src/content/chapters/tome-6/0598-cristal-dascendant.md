@@ -16,7 +16,7 @@ Alors que Wang Lin flottait dans les airs, les cinq vieillards furent totalement
 
 Les cinq hommes se regardèrent. À cet instant, le nuage rouge commença à descendre avec une fureur inouïe. Il ne progressait plus par centimètres, mais par bonds de 3,3 mètres, 6,6 mètres, 9,9 mètres… En un clin d'œil, il s'était enfoncé de 33 mètres!
 
-Accompagnée d'une série de grondements sourds, non seulement la Cité du Démon Céleste s'effondra, mais elle sombra profondément dans les entrailles de la terre. Vue d'en haut, la Cité du Démon Céleste n'existait plus. Même la poussière ne pouvait s'élever, car elle était directement écrasée contre le sol par la pression!
+Accompagnée d'une série de grondements sourds, non seulement la Cité Tian Yao s'effondra, mais elle sombra profondément dans les entrailles de la terre. Vue d'en haut, la Cité Tian Yao n'existait plus. Même la poussière ne pouvait s'élever, car elle était directement écrasée contre le sol par la pression!
 
 Un immense bassin était apparu là où se trouvait autrefois la cité!
 
@@ -28,7 +28,7 @@ Tandis que le nuage rouge poursuivait sa descente, des éclats de tonnerre réso
 
 Les fissures au sol se propagèrent avec frénésie. Au son des déchirements terrestres, la terre dans un rayon de 5 kilomètres, 50 kilomètres, 500 kilomètres, puis 5 000 kilomètres, vola en éclats. La terre brisée fut instantanément réduite en poussière par la pression!
 
-La bourdonnante Cité du Démon Céleste n'était plus qu'un souvenir!
+La bourdonnante Cité Tian Yao n'était plus qu'un souvenir!
 
 Wang Lin flottait dans les airs, au centre même de la pression exercée par la puissance céleste. Son corps demeurait immobile, comme s'il sombrait dans le sommeil!
 
@@ -94,7 +94,7 @@ Une ombre surgit rapidement des ruines. En entendant les cris des vieillards, el
 
 L'homme dit précipitamment: « Le petit-fils Yun Dun salue ses cinq ancêtres! » C'était le même jeune homme qui avait bu toute la nuit avec Wang Lin!
 
-« Espèce d'imbécile, la Cité du Démon Céleste n'existe plus! Je te donne trois mois pour restaurer cet endroit dans son état original, sinon je te jetterai dans le lac du dragon et te scellerai là pendant 100 ans! »
+« Espèce d'imbécile, la Cité Tian Yao n'existe plus! Je te donne trois mois pour restaurer cet endroit dans son état original, sinon je te jetterai dans le lac du dragon et te scellerai là pendant 100 ans! »
 
 « 200 ans! »
 
@@ -104,7 +104,7 @@ L'homme dit précipitamment: « Le petit-fils Yun Dun salue ses cinq ancêtres! 
 
 Le dernier vieillard laissa échapper un léger reniflement. « Enferme-le à vie! »
 
-Le corps du jeune homme trembla, puis il esquissa un sourire amer et hocha la tête. « Les cinq ancêtres peuvent être rassurés. Votre petit-fils restaurera sans faute la Cité du Démon Antique dans trois mois. »
+Le corps du jeune homme trembla, puis il esquissa un sourire amer et hocha la tête. « Les cinq ancêtres peuvent être rassurés. Votre petit-fils restaurera sans faute la Cité Gu Yao dans trois mois. »
 
 « Va trouver la personne que l'Ancêtre a choisie et amène-la au lac du dragon dans trois mois! » Une fois que les cinq vieillards eurent fini de parler, ils jetèrent un regard sur les ruines, puis disparurent.
 
@@ -146,7 +146,7 @@ Lorsqu'un être tente d'atteindre le stade de l'Ascendant, un Cristal d'Ascendan
 
 Le Cristal d'Ascendant de Zhou Yi était un second cœur pour Wang Lin!
 
-Alors que Wang Lin atteignait le stade de l'Ascendant, la Cité du Démon Céleste entama sa rapide reconstruction. Une multitude de soldats démons se rassemblèrent de tout le pays du Démon Céleste pour rebâtir la cité!
+Alors que Wang Lin atteignait le stade de l'Ascendant, la Cité Tian Yao entama sa rapide reconstruction. Une multitude de soldats démons se rassemblèrent de tout le pays du Démon Céleste pour rebâtir la cité!
 
 Dans la tour noire située sur un champ de bataille ancien à une distance indéterminée, deux lueurs fantomatiques apparurent dans le casque de l'armure noire trônant au sommet de la tour.
 

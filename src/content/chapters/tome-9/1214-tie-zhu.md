@@ -14,7 +14,7 @@ Cependant, le Dao était différent. Il était très rare que quelqu'un maîtris
 
 Une bataille de domaines était une confrontation entre les domaines respectifs et une lutte de l'esprit. En revanche, un sort Dao était un pouvoir sublime spécialisé dans la destruction de l'âme!
 
-Chacun acquiert une compréhension différente au sein du Royaume du Dao. Lorsque le vieil homme aux cheveux blancs devint membre du Clan de l'Extermination des Sceaux, il eut le privilège d'entrer brièvement dans le Royaume du Dao. Là, il comprit une vérité sur les origines d'un être.
+Chacun acquiert une compréhension différente au sein du Royaume du Dao. Lorsque le vieil homme aux cheveux blancs devint membre du Clan Feng Mie, il eut le privilège d'entrer brièvement dans le Royaume du Dao. Là, il comprit une vérité sur les origines d'un être.
 
 Quelle était l'origine d'une personne? À ses yeux, c'étaient les souvenirs de l'âme. Il croyait que la vie entière d'un individu n'était en réalité qu'une succession de souvenirs. Si ces souvenirs n'étaient pas éteints, alors même si cette personne mourait, elle pourrait vivre indéfiniment...
 
@@ -48,7 +48,7 @@ Wang Lin se gratta la tête et salua l'assemblée avant de se diriger vers le vi
 
 « C'est vraiment étrange. Ce rêve était trop réel. Hongdie, Li Muwan, Liu Mei, Mu Bingmei, Lu Yanfei, Li Qianmei... Il y avait aussi Yun Quezi, Zhu Quezi, Situ Nan, Tian Yunzi, et bien d'autres encore. Ainsi que l'Empereur Divin de l'Oiseau Vermillon, l'Empereur Divin du Dragon Azure, Tuo Sen, Tu Si... Je me souviens avoir pris deux disciples. L'un s'appelait Treize et l'autre Xie Qing... » Tandis qu'il marchait, son esprit restait embrumé.
 
-« Il y a un Dieu Ancien sur la planète Suzaku? Et hors de la planète Suzaku, il existe aussi la Secte des Cadavres? Et l'Alliance de Culture? Les Quatre Sectes Divines? L'endroit où je me trouve s'appelle le Système Stellaire de l'Alliance. Dans mon rêve, je suis aussi allé dans le Système Stellaire de Luotian et celui de la Mer des Nuages... Je suis même allé dans le Royaume Céleste... » Wang Lin resta hébété un long moment. Lorsqu'il leva la tête, il était déjà devant sa maison. Il secoua la tête et poussa un soupir en marmonnant: « Ce rêve était très étrange. On aurait dit que mon père et ma mère étaient morts dans mon rêve... »
+« Il y a un Dieu Ancien sur la planète Suzaku? Et hors de la planète Suzaku, il existe aussi la Secte Shi Yin? Et l'Alliance Xiu Zhen? Les Quatre Sectes Divines? L'endroit où je me trouve s'appelle le Système Stellaire de l'Alliance. Dans mon rêve, je suis aussi allé dans le Système Stellaire de Luotian et celui de la Mer Yun... Je suis même allé dans le Royaume Céleste... » Wang Lin resta hébété un long moment. Lorsqu'il leva la tête, il était déjà devant sa maison. Il secoua la tête et poussa un soupir en marmonnant: « Ce rêve était très étrange. On aurait dit que mon père et ma mère étaient morts dans mon rêve... »
 
 Il cessa de songer à ce songe bizarre et poussa la porte qui menait à la cour. En entrant, il vit son père tenant une pipe. Ce dernier la secoua sur le sol avant de fixer Wang Lin du regard.
 

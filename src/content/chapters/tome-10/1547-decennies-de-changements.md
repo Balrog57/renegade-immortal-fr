@@ -6,15 +6,15 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1547 - Decades of Changes
 slug: decennies-de-changements
 ---
-Sous cette pression étouffante, le cultivateur du Clan des Moineaux de Feu pâlit instantanément et recula précipitamment. Il ignorait s'il pourrait s'échapper, mais une seule pensée obsédait son esprit: fuir, fuir, fuir!
+Sous cette pression étouffante, le cultivateur du Clan Huo Que pâlit instantanément et recula précipitamment. Il ignorait s'il pourrait s'échapper, mais une seule pensée obsédait son esprit: fuir, fuir, fuir!
 
-Cependant, oubliez-le; même si l'ancêtre du Clan des Moineaux de Feu renaissait, il serait incapable de lui opposer la moindre résistance. La lumière dorée émanant des yeux de Wang Lin balaya la zone, provoquant l'effondrement de toutes les failles spatiales environnantes.
+Cependant, oubliez-le; même si l'ancêtre du Clan Huo Que renaissait, il serait incapable de lui opposer la moindre résistance. La lumière dorée émanant des yeux de Wang Lin balaya la zone, provoquant l'effondrement de toutes les failles spatiales environnantes.
 
-Quant au cultivateur du Clan des Moineaux de Feu, il n'eut le temps de faire que la moitié d'un pas en arrière avant que la lumière dorée ne l'enveloppe. Il poussa un cri déchirant et son âme originelle s'effondra sans aucune résistance.
+Quant au cultivateur du Clan Huo Que, il n'eut le temps de faire que la moitié d'un pas en arrière avant que la lumière dorée ne l'enveloppe. Il poussa un cri déchirant et son âme originelle s'effondra sans aucune résistance.
 
 Le grand oiseau de feu noir qu'il avait invoqué pour dévorer Maître Yan Leizi était imprégné de terreur. Ayant acquis une certaine intelligence, il commença à paniquer. Cependant, il fut lui aussi enveloppé par la lumière dorée et rayé de l'existence!
 
-Le cultivateur du Clan du Loup Céleste trembla. Il ne vit même pas la mort de son compagnon, car tout ce qui se trouvait devant lui fut remplacé par une lumière dorée. Il pouvait vaguement distinguer la silhouette floue de Wang Lin derrière cet éclat.
+Le cultivateur du Clan Feng Tian Lang trembla. Il ne vit même pas la mort de son compagnon, car tout ce qui se trouvait devant lui fut remplacé par une lumière dorée. Il pouvait vaguement distinguer la silhouette floue de Wang Lin derrière cet éclat.
 
 Cette silhouette avait été son cauchemar durant ces dernières décennies. Il ne pourrait jamais oublier cet homme maniant une hache gigantesque, empêchant des dizaines de milliers de cultivateurs de sortir et des dizaines de milliers d'autres d'entrer. Il se souvenait encore de ce nom!
 
@@ -26,7 +26,7 @@ La puissance de cette hache avait anéanti d'innombrables cultivateurs lors de l
 
 Chaque fois qu'il passait près de cette faille, son cœur tremblait. Il ne pouvait oublier qu'il se tenait juste à côté de cette faille à l'époque. Une multitude de ses compagnons étaient morts et il avait eu la chance de survivre. Il portait en lui une vie entière de cauchemars tandis qu'il reculait, terrifié.
 
-Aujourd'hui, il revoyait cette figure terrifiante. Sous l'emprise de cette peur indicible, le cultivateur du Clan du Loup Céleste sombra soudainement dans la folie!
+Aujourd'hui, il revoyait cette figure terrifiante. Sous l'emprise de cette peur indicible, le cultivateur du Clan Feng Tian Lang sombra soudainement dans la folie!
 
 Non pas la démence ni la frénésie, mais une folie née de la pure épouvante! Avec un sourire tordu, il oublia de fuir. Sa peau fondit instantanément et son âme originelle s'effondra. Son existence disparut sur-le-champ!
 
@@ -60,11 +60,11 @@ Maître Yan Leizi expliqua rapidement à Wang Lin tout ce qui s'était passé. I
 
 Après avoir exposé ces faits avec ferveur, il cracha une bouchée de sang et parut extrêmement sinistre. Ses blessures se rouvrirent et il semblait toucher à sa fin.
 
-« Seigneur du Royaume Scellé!! Le Royaume Intérieur est en danger. Il n'y avait pas de Royaume aux Sept Couleurs dans Luotian. Celui de la Mer des Nuages a été détruit par vous. Après votre disparition, nous avons découvert les cinq autres sites. Hormis celui du Vide Brillant, tous se trouvaient à la Rivière Invoquée!
+« Seigneur du Royaume Scellé!! Le Royaume Intérieur est en danger. Il n'y avait pas de Royaume aux Sept Couleurs dans Luotian. Celui de la Mer Yun a été détruit par vous. Après votre disparition, nous avons découvert les cinq autres sites. Hormis celui du Vide Brillant, tous se trouvaient à la Rivière Invoquée!
 
 « En conséquence, la Rivière Invoquée est tombée dès le début de la seconde bataille... À ce jour, nous ne pouvons toujours pas reprendre ce territoire, devenu le repaire du Royaume Extérieur. Ils y oppriment sans cesse les cultivateurs locaux.
 
-« Lors de la première bataille, la Mer des Nuages faillit s'effondrer, mais elle est restée sous notre contrôle. Luotian est le secteur le plus stable et n'a pas subi de grands bouleversements. Cependant, le Vide Brillant subit le même sort que la Rivière Invoquée. En raison du Royaume aux Sept Couleurs situé au Siège de l'Alliance, ce système stellaire est contrôlé par les deux camps!
+« Lors de la première bataille, la Mer Yun faillit s'effondrer, mais elle est restée sous notre contrôle. Luotian est le secteur le plus stable et n'a pas subi de grands bouleversements. Cependant, le Vide Brillant subit le même sort que la Rivière Invoquée. En raison du Royaume aux Sept Couleurs situé au Siège de l'Alliance, ce système stellaire est contrôlé par les deux camps!
 
 « Maître Hong Shan a tenté de détruire les Royaumes aux Sept Couleurs restants par crainte de devoir affronter deux fronts lors de la quatrième bataille. Il a essayé maintes fois, mais le Royaume Intérieur n'a plus la puissance nécessaire pour les anéantir... Tout le monde est en culture fermée... »
 
@@ -98,4 +98,4 @@ Cette lumière dorée lui inspirait une telle crainte qu'il ressentait presque l
 
 Maître Yan Leizi suivit Wang Lin et dit respectueusement: « Seigneur du Royaume Scellé, le vice-doyen du Conseil Souverain, Tianzhao Shangshi, se trouve à l'intérieur du Royaume aux Sept Couleurs du Siège de l'Alliance. C'est également un grand expert, au début du Vide Spirituel! Il reste une grande quantité de trésors et de formations laissés par l'ancienne Alliance; même Maître Zhong Xuan est toujours en vie et est devenu un chien du Royaume Extérieur! »
 
-« Aucun problème. » La voix de Wang Lin restait calme alors qu'il se rapprochait inexorablement du Siège de l'Alliance de Culture.
+« Aucun problème. » La voix de Wang Lin restait calme alors qu'il se rapprochait inexorablement du Siège de l'Alliance Xiu Zhen.

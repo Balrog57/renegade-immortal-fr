@@ -6,15 +6,15 @@ bookTitle: Light of the coming end
 en: "Chapter 2053 - Help succeed!"
 slug: succes-assure
 ---
-Wang Lin regarda le Grand Empyréen Song Tian élever la Montagne d'Origine vers les cieux; la terre trembla alors qu'une lumière noire se dégageait du dessous de la montagne.
+Wang Lin regarda le Grand Empyréen Song Tian élever la Montagne Yuan Shi vers les cieux; la terre trembla alors qu'une lumière noire se dégageait du dessous de la montagne.
 
 Son expression restait calme tandis qu'il observait froidement la scène.
 
 La montagne s'éleva de plus en plus haut jusqu'à flotter bien au-dessus de la tête de Song Tian. Ce dernier leva sa main droite comme s'il soutenait une masse colossale.
 
-« Wang Lin, si tu peux résister à la puissance de cette Montagne d'Origine, alors j'admettrai ma défaite! » rugit Song Tian en agitant sa main droite pour précipiter la Montagne d'Origine sur Wang Lin.
+« Wang Lin, si tu peux résister à la puissance de cette Montagne Yuan Shi, alors j'admettrai ma défaite! » rugit Song Tian en agitant sa main droite pour précipiter la Montagne Yuan Shi sur Wang Lin.
 
-« Cette montagne s'appelle la Montagne d'Origine. Elle fut la première montagne née chez les Anciens Shi et elle demeure ici depuis d'innombrables dizaines de milliers d'années. Sa taille n'a pas changé le moins du monde. C'est ici que j'ai accompli mon Dao et que je suis devenu un Grand Empyréen. Après avoir raffiné cette montagne, cette montagne peut, entre mes mains, libérer une fois sa force de suppression.
+« Cette montagne s'appelle la Montagne Yuan Shi. Elle fut la première montagne née chez les Anciens Shi et elle demeure ici depuis d'innombrables dizaines de milliers d'années. Sa taille n'a pas changé le moins du monde. C'est ici que j'ai accompli mon Dao et que je suis devenu un Grand Empyréen. Après avoir raffiné cette montagne, cette montagne peut, entre mes mains, libérer une fois sa force de suppression.
 
 « Wang Lin, encaisse cette attaque! »
 
@@ -26,13 +26,13 @@ L'impact frappa le vide et la force entra en collision avec la montagne à mille
 
 Le poing de Wang Lin trembla puis se brisa après l'impact. Simultanément, une pression colossale s'abattit sur lui et l'espace dans lequel il se trouvait se fendit. C'était comme si la zone autour de lui avait été totalement isolée du reste du monde.
 
-« Intéressant! » Wang Lin esquissa un léger sourire. La suppression de cette Montagne d'Origine était similaire au doigt de l'Ancêtre Ancien. Cependant, là où le doigt de l'Ancêtre Ancien séparait l'espace pour créer un monde propre afin de faire s'effondrer l'ennemi, la Montagne d'Origine isolait la zone pour empêcher toute fuite et écraser sa cible.
+« Intéressant! » Wang Lin esquissa un léger sourire. La suppression de cette Montagne Yuan Shi était similaire au doigt de l'Ancêtre Ancien. Cependant, là où le doigt de l'Ancêtre Ancien séparait l'espace pour créer un monde propre afin de faire s'effondrer l'ennemi, la Montagne Yuan Shi isolait la zone pour empêcher toute fuite et écraser sa cible.
 
 Wang Lin regarda la montagne approcher et murmura pour lui-même: « Digne d'un Grand Empyréen, en effet. Aucun des neuf Grands Empyréens n'est faible. Chacun possède ses propres sorts!
 
-« Par exemple, la Montagne d'Origine de Song Tian peut rejeter les lois et créer son propre monde, tout comme le doigt de l'Ancêtre Ancien. Bien que ce ne soit pas un sort de foi, c'est une prouesse dont il peut être fier. »
+« Par exemple, la Montagne Yuan Shi de Song Tian peut rejeter les lois et créer son propre monde, tout comme le doigt de l'Ancêtre Ancien. Bien que ce ne soit pas un sort de foi, c'est une prouesse dont il peut être fier. »
 
-Ses yeux s'illuminèrent. Avec son niveau de culture actuel, nul ne pouvait lui inspirer la crainte, à l'exception du Grand Empyréen Gu Dao. Aucun des autres Grands Empyréens ne représentait une menace pour lui. Bien que cette Montagne d'Origine fût extraordinaire, elle n'en demeurait pas moins limitée.
+Ses yeux s'illuminèrent. Avec son niveau de culture actuel, nul ne pouvait lui inspirer la crainte, à l'exception du Grand Empyréen Gu Dao. Aucun des autres Grands Empyréens ne représentait une menace pour lui. Bien que cette Montagne Yuan Shi fût extraordinaire, elle n'en demeurait pas moins limitée.
 
 L'expression de Wang Lin resta sereine alors qu'il leva la main et pointa la montagne qui fonçait sur lui.
 
@@ -46,11 +46,11 @@ Après le geste de Wang Lin, un grondement retentit et la montagne s'immobilisa 
 
 « Veux-tu poursuivre le combat? »
 
-Song Tian afficha une expression amère, mais il serra les dents et bondit sur la Montagne d'Origine. Il mordit sa langue et cracha un jet de sang qui se mua en une brume écarlate, aussitôt absorbée par la montagne. Song Tian s'assit, ses mains formant des sceaux alors qu'il poussait un rugissement:
+Song Tian afficha une expression amère, mais il serra les dents et bondit sur la Montagne Yuan Shi. Il mordit sa langue et cracha un jet de sang qui se mua en une brume écarlate, aussitôt absorbée par la montagne. Song Tian s'assit, ses mains formant des sceaux alors qu'il poussait un rugissement:
 
 « Suppression d'Origine! »
 
-La Montagne d'Origine laissa échapper un fracas de tonnerre. Elle se libéra de son inertie et fondit à nouveau sur Wang Lin.
+La Montagne Yuan Shi laissa échapper un fracas de tonnerre. Elle se libéra de son inertie et fondit à nouveau sur Wang Lin.
 
 Wang Lin secoua la tête et s'élança. Avant même que la montagne ne l'atteigne, il apparut sous elle et pressa sa main droite contre la paroi.
 
@@ -58,7 +58,7 @@ Dès que sa paume toucha la roche, la montagne trembla soudainement et Song Tian
 
 À ce moment-là, les rayons de lumière provenant de la cité impériale des Anciens Shi apparurent, révélant des dizaines de silhouettes. En tête marchait un vieil homme vêtu d'une robe royale. En voyant Wang Lin, son expression changea radicalement.
 
-Wang Lin ne prêta aucune attention aux nouveaux arrivants. Il agita sa manche après avoir repoussé Song Tian. La Montagne d'Origine pivota immédiatement et rétrécit jusqu'à atteindre la taille d'une paume, avant de venir se poser dans la main droite de Wang Lin.
+Wang Lin ne prêta aucune attention aux nouveaux arrivants. Il agita sa manche après avoir repoussé Song Tian. La Montagne Yuan Shi pivota immédiatement et rétrécit jusqu'à atteindre la taille d'une paume, avant de venir se poser dans la main droite de Wang Lin.
 
 Une fois réduite, la montagne ressemblait à une tête de taureau, et sa corne brisée était redevenue intacte.
 

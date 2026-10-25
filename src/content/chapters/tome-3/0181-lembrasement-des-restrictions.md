@@ -176,7 +176,7 @@ Le Seigneur Démon des Six Désirs ne répondit pas, mais se coupa le doigt pour
 
 L'Empereur Antique resta silencieux, puis envoya lui aussi une goutte de sang. Lorsque les deux entrèrent en collision, elles formèrent un symbole avant de retourner à la main de leurs propriétaires respectifs.
 
-C'était le serment du plus haut rang de la Mer des Démons, connu sous le nom de Serment du Cœur Démoniaque. Le visage de l'Empereur Antique s'assombrit: « Est-ce vraiment lui? Impossible! »
+C'était le serment du plus haut rang de la Mer Xiu Mo, connu sous le nom de Serment du Cœur Démoniaque. Le visage de l'Empereur Antique s'assombrit: « Est-ce vraiment lui? Impossible! »
 
 Le Seigneur Démon des Six Désirs affichait également une mine sombre. Il ricana: « Peu importe que ce soit possible ou non, mieux vaut que nous quittions cet endroit sans tarder. »
 

@@ -20,7 +20,7 @@ Wang Lin eut un sourire narquois et répondit: « Bien sûr que je le savais; vo
 
 Le vieil homme laissa échapper un léger reniflement méprisant.
 
-L'un des cultivateurs réalisa qui était ce vieil homme et s'écria: « La Secte des Cadavres! »
+L'un des cultivateurs réalisa qui était ce vieil homme et s'écria: « La Secte Shi Yin! »
 
 À l'instant même où ces mots furent prononcés, les expressions de la plupart changèrent légèrement.
 
@@ -28,7 +28,7 @@ L'un des cultivateurs réalisa qui était ce vieil homme et s'écria: « La Sect
 
 « Transformation de l'Âme! » Tous les cultivateurs environnants prirent une profonde inspiration et reculèrent d'un pas.
 
-Le vieil homme de la Secte des Cadavres leva les yeux au ciel, fixa Wang Lin, puis sourit soudainement: « Petit gars, que dirais-tu d'un marché? Je t'aide à tuer ces types, et en échange, tu m'accordes mille ans de liberté. Durant ces mille ans, je ne te chercherai pas et tu n'écraseras pas mon âme sans raison. Qu'en dis-tu? »
+Le vieil homme de la Secte Shi Yin leva les yeux au ciel, fixa Wang Lin, puis sourit soudainement: « Petit gars, que dirais-tu d'un marché? Je t'aide à tuer ces types, et en échange, tu m'accordes mille ans de liberté. Durant ces mille ans, je ne te chercherai pas et tu n'écraseras pas mon âme sans raison. Qu'en dis-tu? »
 
 Wang Lin rit: « Mille ans, c'est trop long. Et si je meurs d'ici là? »
 
@@ -60,7 +60,7 @@ Après un très long moment, Chi Hu dit: « Merci. »
 
 Wang Lin esquissa un léger sourire. Il ne répondit pas, car il savait ce que Chi Hu voulait dire. Plus tôt, il lui suffisait de prononcer un seul mot pour que Sun Tai tue Chi Hu.
 
-Chi Hu prit une grande inspiration et déclara: « Soyez rassuré; je ne dirai à personne ce qui s'est passé aujourd'hui. Moi, Chi Hu, je le jure sur mon Clan des Démons Géants! »
+Chi Hu prit une grande inspiration et déclara: « Soyez rassuré; je ne dirai à personne ce qui s'est passé aujourd'hui. Moi, Chi Hu, je le jure sur mon Clan Ju Mo! »
 
 Le temps passa lentement. Même avec la vitesse de la boussole stellaire, il fallut un certain temps pour contourner les fragments et atteindre le vortex.
 
@@ -70,7 +70,7 @@ Lorsqu'ils approchèrent du vortex, Wang Lin rangea la boussole stellaire. Lui e
 
 Les deux hommes se regardèrent. Wang Lin joignit les mains et dit: « Frère Chi Hu, adieu Suzaku! » Sur ces mots, il frappa son sac de rangement et le chaudron de retour apparut dans sa main.
 
-Chi Hu prit une profonde inspiration. Il regarda sincèrement Wang Lin et dit: « Frère Ceng, vous devrez venir au Clan des Démons Géants pour que nous puissions boire ensemble. »
+Chi Hu prit une profonde inspiration. Il regarda sincèrement Wang Lin et dit: « Frère Ceng, vous devrez venir au Clan Ju Mo pour que nous puissions boire ensemble. »
 
 Wang Lin rit et hocha la tête. Il activa le chaudron de retour et un vortex se forma devant lui. Il jeta un dernier regard vers le Royaume Céleste avant de s'engouffrer dans le vortex et de disparaître.
 
@@ -100,7 +100,7 @@ En conséquence, les rumeurs concernant Ceng Niu devinrent un sujet de conversat
 
 L'individu nommé Ceng Niu devint le jeune prodige numéro un de Suzaku. Bien que la famille Ceng ait affirmé que ce Ceng Niu n'était pas le Ceng Niu en question, peu de gens les croyaient et de nombreux visiteurs vinrent les interroger. Cela plongea le véritable Ceng Niu dans la terreur, tout en lui procurant une pointe de fierté.
 
-L'affaire refit surface brusquement lorsque le jeune maître du Clan des Démons Géants revint il y a trois jours. Le retour de Chi Hu attira une foule de visiteurs, et Suzaku envoya même un émissaire pour enquêter sur l'affaire Ceng Niu.
+L'affaire refit surface brusquement lorsque le jeune maître du Clan Ju Mo revint il y a trois jours. Le retour de Chi Hu attira une foule de visiteurs, et Suzaku envoya même un émissaire pour enquêter sur l'affaire Ceng Niu.
 
 Chi Hu ne dit pas un mot sur l'identité de Ceng Niu, et lorsqu'il fut pressé par le messager de Suzaku, il se contenta de dire: « Je ne connais pas le vrai nom de cette personne, je sais seulement qu'on l'appelle Ceng Niu. Sa culture est impénétrable, et quant à sa rancœur envers Hongdie, j'en ignore la raison. Cependant, d'après ce que j'ai vu, c'est la cultivatrice Hongdie qui a continué à agir contre lui. Finalement, Ceng Niu a été contraint de réagir. Si j'ai proféré le moindre mensonge, alors que mon âme se dissipe! »
 

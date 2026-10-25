@@ -1,12 +1,12 @@
 ---
 n: 168
-title: "Terre de l'Ancien Dieu"
+title: "Terre Gu Shen"
 book: 3
 bookTitle: Famous in the Sea of Devils
 en: Chapter 168 - Land of the Ancient God
 slug: terre-de-lancien-dieu
 ---
-« Même si ce vieux bossu meurt, il entraînera tout le Clan des Démons Géants avec lui! » Une voix rauque résonna dans le ciel. À l'horizon, un énorme crapaud vert s'approchait lentement.
+« Même si ce vieux bossu meurt, il entraînera tout le Clan Ju Mo avec lui! » Une voix rauque résonna dans le ciel. À l'horizon, un énorme crapaud vert s'approchait lentement.
 
 Le crapaud atterrit au loin, faisant trembler la terre. Bien que Wang Lin soit très éloigné, il pouvait encore ressentir les vibrations du sol. Peu de temps après, le crapaud donna un coup de pattes arrière et disparut de sa vue. Lorsqu'il réapparut, il était déjà tout près.
 
@@ -16,7 +16,7 @@ Une fois la brume écartée, le crapaud géant fut révélé. D'innombrables pus
 
 Alors que les yeux du crapaud se mouvaient, ils trahissaient un désir de sang impétueux. Un homme était assis sur le dos de la créature. Vêtu d'une robe verte, il était de petite taille, avec un dos voûté comme celui d'un bossu. Ses yeux étaient triangulaires, son menton pointu et sa bouche rappelait celle d'un singe. Une lueur sinistre brillait dans ses yeux et son visage était couvert de pustules semblables aux bosses du crapaud, d'où se dégageait une odeur fétide; il paraissait extrêmement laid.
 
-Il toucha une pustule sur son visage en riant et dit d'une voix rauque: « Ces vieux du Clan des Démons Géants qui me pourchassaient depuis plus de 300 ans ont tous été empoisonnés jusqu'à la mort par moi. Si ce n'était pas parce que l'échéance des mille ans approchait et que cet endroit était sur le point de s'ouvrir, je serais déjà allé me venger auprès du Clan des Démons Géants. »
+Il toucha une pustule sur son visage en riant et dit d'une voix rauque: « Ces vieux du Clan Ju Mo qui me pourchassaient depuis plus de 300 ans ont tous été empoisonnés jusqu'à la mort par moi. Si ce n'était pas parce que l'échéance des mille ans approchait et que cet endroit était sur le point de s'ouvrir, je serais déjà allé me venger auprès du Clan Ju Mo. »
 
 Sur ces mots, il fit un pas sur le dos du crapaud. La créature sembla comprendre ses intentions en sortant sa langue rouge sang pour toucher le sol. Le bossu descendit le long de la langue vers la terre, s'arrêtant parfois pour tousser.
 
@@ -62,9 +62,9 @@ En voyant le changement de la matrice, il commença à hésiter et se retira des
 
 À son retour, son avatar s'estompa lentement pour redevenir les rochers qui tournaient paisiblement autour de la zone.
 
-Wang Lin fixa également les pierres spirituelles avec une pointe de convoitise. La Mer des Démons était immense. Sans les anciennes matrices de transfert permettant la téléportation, le voyage serait bien trop long et semé de dangers.
+Wang Lin fixa également les pierres spirituelles avec une pointe de convoitise. La Mer Xiu Mo était immense. Sans les anciennes matrices de transfert permettant la téléportation, le voyage serait bien trop long et semé de dangers.
 
-Cependant, l'unique moyen d'utiliser ces matrices était de posséder des pierres spirituelles de qualité supérieure. Comme ces pierres étaient extrêmement rares, la plupart des anciennes matrices de la Mer des Démons étaient en ruines ou totalement inutilisables.
+Cependant, l'unique moyen d'utiliser ces matrices était de posséder des pierres spirituelles de qualité supérieure. Comme ces pierres étaient extrêmement rares, la plupart des anciennes matrices de la Mer Xiu Mo étaient en ruines ou totalement inutilisables.
 
 À cet instant, l'Empereur Antique sortit deux pierres spirituelles de qualité supérieure et les examina avec solennité avant de les lancer vers les piliers de lumière.
 

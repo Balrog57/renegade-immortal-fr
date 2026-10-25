@@ -1,6 +1,6 @@
 ---
 n: 92
-title: Secte du Yin des Corps (1)
+title: Secte Shi Yin (1)
 book: 2
 bookTitle: The Bloody Image of Cultivation
 en: Chapter 92 - Corpse Yin Secte (1)

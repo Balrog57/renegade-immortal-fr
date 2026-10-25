@@ -50,7 +50,7 @@ Non seulement lui, mais les corps des deux anciens tremblèrent également; ils 
 
 Même le corps de Lu Yanfei fut secoué, une traînée de sang s'échappant du coin de sa bouche. Pourtant, son regard devint plus intense, car cette voix confirmait les spéculations de son cœur.
 
-« Quel senior cultive ici? Ce junior est Li, de la Secte de l'Origine... » Li Xiangdong joignit les mains tout en reculant pour tenter de s'exprimer.
+« Quel senior cultive ici? Ce junior est Li, de la Secte Gui Yuan... » Li Xiangdong joignit les mains tout en reculant pour tenter de s'exprimer.
 
 « DÉGAGEZ!! » Le Sens Divin se propagea à nouveau, mais avec une intensité et une fureur décuplées. Il forma une tempête qui fit vaciller le continent de Mo Luo tout entier.
 
@@ -104,9 +104,9 @@ Des rugissements silencieux résonnèrent alors que le crâne de cinq pieds comm
 
 La barrière protectrice s'effondra comme une simple feuille de papier.
 
-Dès sa chute, la puissante énergie originelle pénétra et se transforma en une tempête qui fonça sur la Secte de l'Origine. Tous les cultivateurs de la secte avaient déjà été évacués; ils observaient désormais la tempête d'énergie originelle s'engouffrer sous terre.
+Dès sa chute, la puissante énergie originelle pénétra et se transforma en une tempête qui fonça sur la Secte Gui Yuan. Tous les cultivateurs de la secte avaient déjà été évacués; ils observaient désormais la tempête d'énergie originelle s'engouffrer sous terre.
 
-L'effondrement de la barrière et l'afflux d'énergie firent affluer la brume stellaire de l'extérieur. Cependant, avant qu'elle ne puisse se répandre sur tout le continent de Mo Luo, elle fut aspirée vers la Secte de l'Origine par cette force de succion.
+L'effondrement de la barrière et l'afflux d'énergie firent affluer la brume stellaire de l'extérieur. Cependant, avant qu'elle ne puisse se répandre sur tout le continent de Mo Luo, elle fut aspirée vers la Secte Gui Yuan par cette force de succion.
 
 Le ciel fut enveloppé de brume, laquelle s'écoula comme un fleuve vers le sol.
 
@@ -118,6 +118,6 @@ Non seulement son crâne et son cou étaient réapparus, mais le haut du corps d
 
 Bien que la calamité osseuse fût puissante, elle fut contrainte de reculer face à la volonté défiante et à la lutte désespérée de Wang Lin. Elle ne parvint absolument pas à stopper la régénération des os!
 
-Toute l'énergie originelle et la brume étoilée situées dans un rayon de 50 kilomètres autour du continent de Mo Luo furent attirées. De loin, on aurait dit qu'un vortex gigantesque s'était formé, avec la Secte de l'Origine en son centre.
+Toute l'énergie originelle et la brume étoilée situées dans un rayon de 50 kilomètres autour du continent de Mo Luo furent attirées. De loin, on aurait dit qu'un vortex gigantesque s'était formé, avec la Secte Gui Yuan en son centre.
 
 Plus loin encore, une bête colossale en forme de lion, couverte d'épines et haute de plus de 2 000 pieds, se dirigea vers le continent de Mo Luo avec un regard avide. Aucune des bêtes féroces n'osa l'approcher lorsque l'aura d'une créature de rang 8 se propagea dans l'air.

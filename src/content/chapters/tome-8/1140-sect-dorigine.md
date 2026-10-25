@@ -1,20 +1,20 @@
 ---
 n: 1140
-title: "Secte de l'Origine"
+title: "Secte Gui Yuan"
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 1140 - Origin Secte
 slug: sect-dorigine
 ---
-La cour sud de la Secte de l'Origine. Bien que des pavillons couvraient le bassin, des bâtiments s'étendaient également sur la partie méridionale de la chaîne de montagnes. En particulier, au sein d'une forêt dont le feuillage restait rouge en toute saison, se dressait un pavillon écarlate. Il était orné de nombreuses sculptures de phénix dansants et s'avérait d'une grande beauté.
+La cour sud de la Secte Gui Yuan. Bien que des pavillons couvraient le bassin, des bâtiments s'étendaient également sur la partie méridionale de la chaîne de montagnes. En particulier, au sein d'une forêt dont le feuillage restait rouge en toute saison, se dressait un pavillon écarlate. Il était orné de nombreuses sculptures de phénix dansants et s'avérait d'une grande beauté.
 
-Lu Yanfei aimait le rouge, et presque tout le monde à la Secte de l'Origine le savait. Non seulement sa demeure était rouge, mais Lu Yanfei éprouvait même une affection particulière pour les vêtements de cette couleur.
+Lu Yanfei aimait le rouge, et presque tout le monde à la Secte Gui Yuan le savait. Non seulement sa demeure était rouge, mais Lu Yanfei éprouvait même une affection particulière pour les vêtements de cette couleur.
 
 À cet instant, Lu Yanfei portait une robe rouge, ses cheveux longs et libres dans son dos. Elle restait assise en silence, le visage encore pâle, empreint d'une tristesse qui ne s'était pas encore dissipée. Cela la rendait belle, avec en plus une pointe de grâce touchante.
 
 Cependant, même ses trois frères aînés n'étaient pas dignes d'apprécier une telle scène, car leurs niveaux de culture étaient inférieurs à ceux de Lu Yanfei.
 
-Lu Yanfei, au sommet du stade Scruteur du Nirvana, était la beauté numéro un de la Secte de l'Origine et jouissait d'une grande renommée dans le domaine de rang 5. Beaucoup d'hommes nourrissaient des désirs pour elle, mais en raison de la culture de son maître, un expert au sommet du stade Purificateur du Nirvana, personne n'osait rien entreprendre. Cependant, maintenant que son maître était mort, la Secte de l'Origine se trouvait dans son état le plus vulnérable.
+Lu Yanfei, au sommet du stade Scruteur du Nirvana, était la beauté numéro un de la Secte Gui Yuan et jouissait d'une grande renommée dans le domaine de rang 5. Beaucoup d'hommes nourrissaient des désirs pour elle, mais en raison de la culture de son maître, un expert au sommet du stade Purificateur du Nirvana, personne n'osait rien entreprendre. Cependant, maintenant que son maître était mort, la Secte Gui Yuan se trouvait dans son état le plus vulnérable.
 
 En ce moment, Lu Yanfei tenait un jade. C'était une pierre de jade violette qu'elle serrait impitoyablement, au point que sa main, aussi délicate que du jade, en devint légèrement blanche.
 
@@ -88,7 +88,7 @@ S'étirant, il s'allongea sur le lit et regarda le plafond de bois, affichant un
 
 Peu de temps après, le ciel s'obscurcit progressivement, plongeant la pièce dans l'obscurité totale. Wang Lin ouvrit lentement les yeux, mais n'alluma pas la lampe. Au lieu de cela, il s'assit et forma des sceaux avec ses mains, puis pointa plusieurs parties de son corps. Après avoir expulsé un souffle d'air fétide, son corps se divisa en deux.
 
-Son avatar et son corps original se séparèrent dans cette petite maison en bois de la cour sud de la Secte de l'Origine.
+Son avatar et son corps original se séparèrent dans cette petite maison en bois de la cour sud de la Secte Gui Yuan.
 
 Son corps original était assis là, et tout ce qui se trouvait sous la taille n'était que des os. Ses ossements étaient sombres, parcourus de faibles lignes rouges. Si quelqu'un d'autre avait vu cela, il en aurait eu le souffle coupé. L'état du corps original était même pire que lorsqu'il se trouvait à la Secte Divine de l'Oiseau Vermillon; ses blessures semblaient s'être aggravées.
 

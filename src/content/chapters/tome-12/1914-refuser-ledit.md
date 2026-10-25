@@ -6,19 +6,19 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1914 - Refusing the Edict
 slug: refuser-ledit
 ---
-Alors que le dragon de mer chargeait dans les cieux vers Wang Lin, un rayon de lumière dorée jaillit du Continent du Taureau Céleste pour atteindre le Continent du Démon Vert, se déplaçant à une vitesse dépassant celle des cultivateurs de la Tribulation du Vide. À cette allure, il ne faudrait pas longtemps avant qu'il n'atteigne la Secte du Dao Démoniaque!
+Alors que le dragon de mer chargeait dans les cieux vers Wang Lin, un rayon de lumière dorée jaillit du Continent Tian Niu pour atteindre le Continent Lu Mo, se déplaçant à une vitesse dépassant celle des cultivateurs de la Tribulation du Vide. À cette allure, il ne faudrait pas longtemps avant qu'il n'atteigne la Secte Dao Mo!
 
-Le dragon de mer rugit et se rapprocha rapidement de Wang Lin. À l'intérieur de l'île protégée par une lumière jaune terreuse, le maître de la Secte du Dao Démoniaque scrutait les cieux. Son regard pouvait aisément percer la barrière pour tout voir à l'extérieur.
+Le dragon de mer rugit et se rapprocha rapidement de Wang Lin. À l'intérieur de l'île protégée par une lumière jaune terreuse, le maître de la Secte Dao Mo scrutait les cieux. Son regard pouvait aisément percer la barrière pour tout voir à l'extérieur.
 
 « Ce dragon de mer a été laissé par l'Ancien Ancêtre. Si je voulais le tuer, cela demanderait un effort colossal et je pourrais même échouer. Bien que Wang Lin ait tué l'Ancien Feng, celui-ci n'avait sacrifié sa vie que pour atteindre brièvement le rang d'Exalté Doré. Il restait un gouffre immense entre lui et un véritable Exalté Doré! »
 
-« Il peut tuer l'Ancien Feng, mais il ne pourra pas venir à bout rapidement du dragon de mer laissé par l'Ancien Ancêtre! Avec le retard causé par ce dragon, l'Ancien Ancêtre recevra certainement la nouvelle! » Le maître de la Secte du Dao Démoniaque n'osait pas sortir, mais sa haine envers Wang Lin était monstrueuse. Il aurait voulu dévorer la chair et le sang de ce dernier.
+« Il peut tuer l'Ancien Feng, mais il ne pourra pas venir à bout rapidement du dragon de mer laissé par l'Ancien Ancêtre! Avec le retard causé par ce dragon, l'Ancien Ancêtre recevra certainement la nouvelle! » Le maître de la Secte Dao Mo n'osait pas sortir, mais sa haine envers Wang Lin était monstrueuse. Il aurait voulu dévorer la chair et le sang de ce dernier.
 
 Tout en serrant les dents et en murmurant, sa main droite trembla. Le maître de la Secte regarda sa main, où un gaz vert venait d'apparaître. Ce gaz se divisa en sept filaments qui pénétrèrent dans ses orifices.
 
 Le maître de la Secte frémit et ferma les yeux. Cependant, lorsqu'il les rouvrit, ils étaient empreints d'extase. Il éclata d'un rire sonore.
 
-« C'est fait! L'Empereur Céleste a émis les édits impériaux. Il y a trois édits, et l'un d'eux se dirige vers ma Secte du Dao Démoniaque. Cet édit doit m'être dédié! » Le maître de la Secte riait, révélant une excitation irrésistible.
+« C'est fait! L'Empereur Céleste a émis les édits impériaux. Il y a trois édits, et l'un d'eux se dirige vers ma Secte Dao Mo. Cet édit doit m'être dédié! » Le maître de la Secte riait, révélant une excitation irrésistible.
 
 « Wang Lin, tu veux me tuer? Tu veux anéantir le Dao de ma Secte? L'Ancien Ancêtre arrivera bientôt, et une fois là, tu mourras sans aucun doute. L'édit impérial arrive; une fois que le messager sera ici, comment oseras-tu m'éliminer?! »
 
@@ -34,7 +34,7 @@ C'était la puissance d'un Exalté Doré, dont la présence faisait changer les 
 
 « Une bête d'Exalté Doré... » Les yeux de Wang Lin brillèrent d'une lumière dorée monstrueuse, révélant une intention de combat fulgurante.
 
-Sa culture explosa sans la moindre retenue. C'était la première fois qu'il libérait sa pleine puissance depuis qu'il avait obtenu cette immense fortune au Temple du Scorpion Démon Vert!
+Sa culture explosa sans la moindre retenue. C'était la première fois qu'il libérait sa pleine puissance depuis qu'il avait obtenu cette immense fortune au Temple Lu Mo Xie!
 
 Il déchaîna pleinement son corps de Dao Antique et sa culture de Tribulation du Vide. Hormis l'absence de son armure d'âme, c'était le sommet absolu atteint par Wang Lin en près de 3 000 ans de culture!
 
@@ -70,7 +70,7 @@ Au son de cette voix, le dragon de mer lutta pour ouvrir les yeux, aveuglé par 
 
 Cette silhouette sous l'astre, cette puissance de foi colossale... c'était un Grand Empyréen!
 
-Le propriétaire du dragon, l'Ancien Ancêtre de la Secte du Dao Démoniaque, n'était qu'un Exalté Empyréen; or, à cet instant, Wang Lin apparaissait comme un Grand Empyréen aux yeux de la bête. Le dragon sombra dans une transe; il aurait refusé de céder, même face à la mort, par pur orgueil. Mais en cet instant, il trembla et se prosterna sans hésitation.
+Le propriétaire du dragon, l'Ancien Ancêtre de la Secte Dao Mo, n'était qu'un Exalté Empyréen; or, à cet instant, Wang Lin apparaissait comme un Grand Empyréen aux yeux de la bête. Le dragon sombra dans une transe; il aurait refusé de céder, même face à la mort, par pur orgueil. Mais en cet instant, il trembla et se prosterna sans hésitation.
 
 « Je me rends! » Dès que ce commandement fut ancré dans son esprit, le sceau de son ancien maître s'effondra instantanément. Une bête au stade d'Exalté Doré ne pouvait être contrôlée par des moyens ordinaires; il fallait une aura immense pour la soumettre.
 
@@ -82,7 +82,7 @@ Même l'ancien propriétaire n'avait pu s'emparer de cette aura d'âme. Pourtant
 
 Contrôler cette aura signifiait détenir un pouvoir absolu sur sa vie et sa mort!
 
-Dès que Wang Lin prit le contrôle de la force d'âme, les ténèbres disparurent et la mer ainsi que le soleil se dissipèrent. Tout revint à la normale. La terre n'était plus que les ruines de la Secte du Dao Démoniaque et le ciel était redevenu clair.
+Dès que Wang Lin prit le contrôle de la force d'âme, les ténèbres disparurent et la mer ainsi que le soleil se dissipèrent. Tout revint à la normale. La terre n'était plus que les ruines de la Secte Dao Mo et le ciel était redevenu clair.
 
 Cependant, le maître de la Secte, protégé par sa lumière jaune, fut frappé d'incrédulité en voyant cela. Son corps se mit à trembler violemment.
 

@@ -10,9 +10,9 @@ Dès qu'il saisit la goutte d'eau, il recula immédiatement, mais une faille dim
 
 Une sueur froide couvrit le front de Wang Lin alors qu'il évitait soigneusement les failles pour finalement quitter la gorge.
 
-Ce tremblement ne dura que dix respirations, mais après ces dix instants, le Tombeau de Suzaku était plongé dans le chaos. D'innombrables failles étaient apparues dans le ciel et sur le sol, et bien des endroits étaient au bord de l'effondrement. La moindre fluctuation d'énergie spirituelle pouvait provoquer une catastrophe. Quiconque serait pris dans une faille mourrait.
+Ce tremblement ne dura que dix respirations, mais après ces dix instants, le Tombeau Zhu Que était plongé dans le chaos. D'innombrables failles étaient apparues dans le ciel et sur le sol, et bien des endroits étaient au bord de l'effondrement. La moindre fluctuation d'énergie spirituelle pouvait provoquer une catastrophe. Quiconque serait pris dans une faille mourrait.
 
-À cet instant, le Tombeau de Suzaku était devenu bien plus périlleux qu'auparavant.
+À cet instant, le Tombeau Zhu Que était devenu bien plus périlleux qu'auparavant.
 
 L'effondrement du Cristal de Planète de Culture ne se produisait pas instantanément, mais lentement au fil du temps. Tout cela était contrôlé par Zhu Quezi; c'était un jeu né de sa folie à l'approche de la mort, qu'il partageait avec Yun Quezi.
 
@@ -34,15 +34,15 @@ Le regard de Wang Lin devint glacial. Il laissa échapper un reniflement mépris
 
 Le vieil homme poussa un cri déchirant et tenta de reculer, mais il était trop tard. Son âme originelle entière fut engloutie par la faille en arc et, lorsque celle-ci disparut, l'âme du vieillard s'évanouit avec elle.
 
-Wang Lin s'arrêta brusquement. Il réfléchit en silence, puis leva la tête pour scruter l'horizon. Après ce cycle d'effondrement, le Tombeau de Suzaku était devenu extrêmement instable. S'il commettait la moindre erreur, il pourrait mourir; il commença donc à hésiter.
+Wang Lin s'arrêta brusquement. Il réfléchit en silence, puis leva la tête pour scruter l'horizon. Après ce cycle d'effondrement, le Tombeau Zhu Que était devenu extrêmement instable. S'il commettait la moindre erreur, il pourrait mourir; il commença donc à hésiter.
 
 Un instant plus tard, Wang Lin poussa un soupir et s'envola vers le lointain.
 
-Planète Suzaku, Mer des Démons.
+Planète Suzaku, Mer Xiu Mo.
 
-La Mer des Démons fut l'un des premiers lieux attaqués par le Clan des Immortels Délaissés. Après tout, elle était très proche de leur base. De plus, la brume qui servait de barrière naturelle depuis dix mille ans avait disparu et, suite aux attaques de multiples autres nations, la Mer des Démons était en plein chaos. Dans son état actuel, elle n'avait aucun moyen de résister au Clan des Immortels Délaissés et finit par devenir leur vassale.
+La Mer Xiu Mo fut l'un des premiers lieux attaqués par le Clan Xian Yi. Après tout, elle était très proche de leur base. De plus, la brume qui servait de barrière naturelle depuis dix mille ans avait disparu et, suite aux attaques de multiples autres nations, la Mer Xiu Mo était en plein chaos. Dans son état actuel, elle n'avait aucun moyen de résister au Clan Xian Yi et finit par devenir leur vassale.
 
-Actuellement, une personne se tenait à l'extérieur des Étoiles Brisées et Chaotiques, dans la Mer des Démons. Cet individu était enveloppé d'une aura mortelle et sa silhouette était indistincte. Des images de squelettes apparaissaient tout autour de lui, formant une véritable forêt d'ossements.
+Actuellement, une personne se tenait à l'extérieur des Étoiles Brisées et Chaotiques, dans la Mer Xiu Mo. Cet individu était enveloppé d'une aura mortelle et sa silhouette était indistincte. Des images de squelettes apparaissaient tout autour de lui, formant une véritable forêt d'ossements.
 
 Il contemplait les Étoiles Brisées et Chaotiques avec hésitation.
 
@@ -80,9 +80,9 @@ Dans la mer de sang, aux profondeurs des terres du Dieu Ancien, sur l'unique pil
 
 « Je devrai remercier Tu Si. Lorsqu'il a choisi cet endroit pour diviser sa conscience, certains indigènes l'ont élevé au rang de dieu. Tout cela est consigné dans ce dernier cristal de connaissance. Tu Si leur a répondu et leur a fait établir les lieux sacrificiels du Dieu Ancien. »
 
-« Bien que des éons aient passé et que cette race indigène ait disparu, le refuge souterrain du Clan des Immortels Délaissés est le dernier des anciens lieux sacrificiels du Dieu Ancien. Si je m'y rends, je pourrai utiliser certains de mes sorts. »
+« Bien que des éons aient passé et que cette race indigène ait disparu, le refuge souterrain du Clan Xian Yi est le dernier des anciens lieux sacrificiels du Dieu Ancien. Si je m'y rends, je pourrai utiliser certains de mes sorts. »
 
-« Un descendant du Clan des Immortels Délaissés dormait là-bas, et afin d'obtenir le Cristal de Planète de Culture, j'ai sacrifié énormément pour faire passer un jeune de cette petite tribu sauvage de l'étape des onze feuilles à celle des douze feuilles. Cela a permis à toute sa tribu de briser son sceau et de se jeter sur les cultivateurs. »
+« Un descendant du Clan Xian Yi dormait là-bas, et afin d'obtenir le Cristal de Planète de Culture, j'ai sacrifié énormément pour faire passer un jeune de cette petite tribu sauvage de l'étape des onze feuilles à celle des douze feuilles. Cela a permis à toute sa tribu de briser son sceau et de se jeter sur les cultivateurs. »
 
 « Tout cela s'est déroulé selon mes plans, et l'emplacement du Cristal de Planète de Culture est enfin révélé. Wang Lin, mon messager t'a enfin retrouvé. Bien que tu aies beaucoup changé, comment pourrais-je, moi Tuo Sen, t'oublier? Ton sens divin est gravé dans mon cœur. Peu importe où tu te cacheras, je te trouverai! »
 
@@ -96,13 +96,13 @@ Alors que Tuo Sen riait, des petits cris s'élevèrent de la mer de sang. Deux p
 
 Les yeux de ces deux créatures émettaient une lueur rouge démoniaque.
 
-À cet instant précis, dans le Tombeau de Suzaku, les yeux du vieil homme au sourire effrayant brillèrent d'un éclat rouge. Les yeux du singe sur son épaule étaient encore plus écarlates.
+À cet instant précis, dans le Tombeau Zhu Que, les yeux du vieil homme au sourire effrayant brillèrent d'un éclat rouge. Les yeux du singe sur son épaule étaient encore plus écarlates.
 
 Lorsque le petit singe poussa un cri, la lueur rouge dans les yeux du vieil homme s'estompa, et il se retourna pour regarder au loin. Ses yeux s'illuminèrent de nouveau d'un rouge sanglant.
 
 « Il est là! » Le vieil homme s'apprêtait à bouger quand le singe sur son épaule laissa échapper un grognement.
 
-Mais le vieillard hésita un instant avant de faire demi-tour et de partir. Son objectif était le centre du Tombeau de Suzaku.
+Mais le vieillard hésita un instant avant de faire demi-tour et de partir. Son objectif était le centre du Tombeau Zhu Que.
 
 Tandis que le vieil homme s'éloignait, le petit singe scruta derrière lui et ses yeux rougeoyèrent.
 

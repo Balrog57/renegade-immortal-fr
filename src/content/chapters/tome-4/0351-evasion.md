@@ -68,7 +68,7 @@ Un demi-mois passa en un éclair.
 
 Durant cette période, personne n'avait quitté le Cimetière des Immortels. Le vieil homme Hu, n'hésitant pas à consumer son âme originelle, avait utilisé sa technique de survie et s'était enfui grièvement blessé. Cependant, à mi-chemin, il fut capturé par le vieil homme bossu. On n'eut plus aucune nouvelle du vieil homme Hu depuis lors.
 
-Quant aux corps de Xu Luo et Yun Meng, ils furent également emportés par le Clan des Immortels Délaissés pour d'autres usages.
+Quant aux corps de Xu Luo et Yun Meng, ils furent également emportés par le Clan Xian Yi pour d'autres usages.
 
 Qiu Siping ne put résister à l'emprise d'un chaman aux six feuilles. Après tout, un tel chaman équivalait à un cultivateur de la Formation de l'Âme de stade avancé. Il finit par devenir une marionnette.
 
@@ -122,7 +122,7 @@ Wang Lin sentit son cuir chevelu se hérisser. Le drapeau de restriction était 
 
 Ses yeux devinrent encore plus froids alors qu'il sortait un second drapeau de restriction de son sac. Il créa une restriction dans sa main et fixa le vieillard.
 
-Le vieil homme observa le drapeau et secoua la tête. « Tu possèdes vraiment une profusion de trésors. Je parie que tu es le disciple direct d'une grande secte là-haut. On sent la pression des cieux sur cet objet. Je crois qu'une fois que tu auras posé cette ultime restriction, elle invoquera ce que vous, les cultivateurs, appelez la "rétribution divine". Si nous étions à la surface, cela pourrait me blesser, mais ceci est la terre sacrée du Clan des Immortels Délaissés, un monde à part. La rétribution divine ne peut nous atteindre ici. Tu es libre d'essayer. » Sur ces mots, le vieillard tendit de nouveau la main.
+Le vieil homme observa le drapeau et secoua la tête. « Tu possèdes vraiment une profusion de trésors. Je parie que tu es le disciple direct d'une grande secte là-haut. On sent la pression des cieux sur cet objet. Je crois qu'une fois que tu auras posé cette ultime restriction, elle invoquera ce que vous, les cultivateurs, appelez la "rétribution divine". Si nous étions à la surface, cela pourrait me blesser, mais ceci est la terre sacrée du Clan Xian Yi, un monde à part. La rétribution divine ne peut nous atteindre ici. Tu es libre d'essayer. » Sur ces mots, le vieillard tendit de nouveau la main.
 
 Il ne bougea pas plus vite cette fois-ci, mais il déploya une puissance bien supérieure. Des craquements retentirent dans un rayon de 330 mètres autour de Wang Lin et des failles spatiales apparurent.
 

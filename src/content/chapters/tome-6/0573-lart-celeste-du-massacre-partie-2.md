@@ -14,7 +14,7 @@ La ruse de Wang Lin dépassait largement celle des gens ordinaires. Il ne croyai
 
 Au bas de l'escalier se révélait un monde écarlate! L'endroit était vaste, et l'épaisse couche de traces de sang sur le sol était saisissante.
 
-En regardant autour de lui, il ne pouvait en percevoir les limites. Il s'agissait probablement d'un espace indépendant, qui n'était pas réellement situé sous la Cité du Démon Céleste.
+En regardant autour de lui, il ne pouvait en percevoir les limites. Il s'agissait probablement d'un espace indépendant, qui n'était pas réellement situé sous la Cité Tian Yao.
 
 Dans ce monde, de nombreux bassins de sang jonchaient le sol. De nombreuses personnes se trouvaient dans chacun de ces bassins, les yeux clos, pratiquant leur culture à l'intérieur des eaux sanglantes.
 

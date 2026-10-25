@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1860 - Uninvited Guest!"
 slug: invite-non-desire
 ---
-La lune surplombait la Prairie de l'Extrême Ciel et les étoiles étaient rares. La lumière lunaire, éclatante, se répandait sur la terre, enveloppant la prairie d'un éclat argenté. De loin, le spectacle était d'une grande beauté. Une paix indescriptible régnait, rien ne laissant présager qu'une bataille titanesque impliquant des dizaines de milliers de cultivateurs s'était déroulée ici durant la journée.
+La lune surplombait la Prairie Ji Tian et les étoiles étaient rares. La lumière lunaire, éclatante, se répandait sur la terre, enveloppant la prairie d'un éclat argenté. De loin, le spectacle était d'une grande beauté. Une paix indescriptible régnait, rien ne laissant présager qu'une bataille titanesque impliquant des dizaines de milliers de cultivateurs s'était déroulée ici durant la journée.
 
 Aucun cadavre ne jonchait plus le sol. Les corps et les âmes des cultivateurs décédés avaient été entièrement dévorés par le brouillard. Tout semblait identique à ce qu'il était auparavant.
 
@@ -34,7 +34,7 @@ Ces trois cadeaux étaient précieux, et puisqu'il les avait acceptés, il devai
 
 « Il reste encore neuf cultivateurs de stade initial de la Tribulation du Vide à éliminer... Si j'ai pu en tuer un, je peux certainement en tuer neuf autres! Le plus crucial est d'abattre les trois de stade intermédiaire de la Tribulation du Vide. Même si j'explose les 30 millions d'âmes dao, cela ne pourra en tuer qu'un seul... Quant aux deux restants... » Wang Lin fronça les sourcils, mais il ne recula pas. Une lueur froide traversa son regard.
 
-« L'Ancêtre Taureau Vert m'a imposé ces trois conditions en pensant que je ne serais pas capable de les remplir rapidement. Il pense que cela prendra du temps... Cependant, je ne souhaite pas m'enliser dans le conflit entre le Continent du Taureau Céleste et le Continent du Démon Vert. Je dois remplir ces conditions au plus vite afin de rompre mes liens avec la Secte de la Grande Âme, puis quitter cet endroit! » Wang Lin baissa les yeux vers le sol de la grotte, qui se fondait dans l'obscurité.
+« L'Ancêtre Taureau Vert m'a imposé ces trois conditions en pensant que je ne serais pas capable de les remplir rapidement. Il pense que cela prendra du temps... Cependant, je ne souhaite pas m'enliser dans le conflit entre le Continent Tian Niu et le Continent Lu Mo. Je dois remplir ces conditions au plus vite afin de rompre mes liens avec la Secte Da Hun, puis quitter cet endroit! » Wang Lin baissa les yeux vers le sol de la grotte, qui se fondait dans l'obscurité.
 
 À cet instant précis, Wang Lin leva soudainement la tête et regarda hors de la grotte. Son regard semblait transpercer la roche pour scruter l'extérieur. À ce moment-là, les palais souterrains étaient silencieux; seuls quelques bruits de respiration se faisaient entendre. Une faible lueur émanait des pierres lunaires disposées ici.
 
@@ -54,7 +54,7 @@ Dès qu'elle fut entrée, la porte de la grotte se referma, ne laissant plus pas
 
 Une fois à l'intérieur, Yan Luan s'immobilisa immédiatement. Elle regarda devant elle. À moins d'avoir utilisé sa culture pour aiguiser sa vue, l'obscurité y était totale.
 
-Elle distinguait vaguement la silhouette de Wang Lin assis au loin, ce qui lui imposait une immense pression. L'origine de cette sensation venait des deux paris qu'elle avait conclus au Pavillon des Écritures de l'Âme.
+Elle distinguait vaguement la silhouette de Wang Lin assis au loin, ce qui lui imposait une immense pression. L'origine de cette sensation venait des deux paris qu'elle avait conclus au Pavillon Cang Hun.
 
 En scrutant les environs, Yan Luan perçut une pointe d'intention meurtrière. Cette intention était très légère et ne lui était pas destinée; c'était une aura naturelle émanant de quelqu'un qui revenait tout juste d'un massacre.
 
@@ -66,7 +66,7 @@ Elle eut l'impression d'avoir vu Wang Lin terrasser Liu Zhiyuan en un instant.
 
 « Camarade Yan Luan, la nuit est avancée et vous restez là, immobile dans ma grotte, sans dire un mot. Prévoyez-vous de rester ainsi toute la nuit? » lança Wang Lin d'une voix sereine.
 
-Yan Luan réfléchit un instant avant que sa voix ne résonne lentement dans la cavité: « Avez-vous tué le cultivateur de stade initial de la Tribulation du Vide du Continent du Démon Vert? »
+Yan Luan réfléchit un instant avant que sa voix ne résonne lentement dans la cavité: « Avez-vous tué le cultivateur de stade initial de la Tribulation du Vide du Continent Lu Mo? »
 
 « Ce devait être vous. Dans ce palais souterrain, hormis l'Ancien Lu Wenran, personne d'autre n'aurait pu accomplir un tel exploit en si peu de temps. Si quelqu'un l'a fait, c'est forcément vous! »
 
@@ -86,17 +86,17 @@ En définitive, les réponses de Wang Lin aux questions de Yan Luan n'avaient é
 
 Il fixa la porte, pensa au dos de Yan Luan qui s'éloignait, puis réfléchit. D'un geste de la main droite, il fit voler la pilule vers lui. Il l'examina avec soin. Elle dégageait un parfum exquis; c'était manifestement une pilule médicinale extraordinaire pour la guérison. Un léger sourire se dessina sur les lèvres de Wang Lin.
 
-Le temps s'écoula lentement. Deux jours passèrent bientôt. Les cultivateurs du Continent du Démon Vert, postés à la lisière de la Prairie de l'Extrême Ciel, restaient très calmes et ne déclenchèrent pas de second combat. Ils semblaient attendre quelque chose et continuaient d'envoyer des dizaines d'éclaireurs observer la prairie.
+Le temps s'écoula lentement. Deux jours passèrent bientôt. Les cultivateurs du Continent Lu Mo, postés à la lisière de la Prairie Ji Tian, restaient très calmes et ne déclenchèrent pas de second combat. Ils semblaient attendre quelque chose et continuaient d'envoyer des dizaines d'éclaireurs observer la prairie.
 
 Des cultivateurs du palais souterrain furent également dépêchés pour patrouiller à l'extérieur. Quelques escarmouches eurent lieu, mais aucune bataille de grande envergure.
 
 Ces patrouilles étaient assurées par les trois vieillards. L'homme nommé Zhou était chargé de cette mission. Hormis les cultivateurs de la Tribulation du Vide, tous les autres furent envoyés aux patrouilles.
 
-Ceux qui ne partaient pas restaient plongés dans leur culture pour maintenir leur apogée en vue du prochain affrontement. Tous les cultivateurs du Continent du Taureau Céleste comprenaient que le Continent du Démon Vert n'abandonnerait pas si facilement.
+Ceux qui ne partaient pas restaient plongés dans leur culture pour maintenir leur apogée en vue du prochain affrontement. Tous les cultivateurs du Continent Tian Niu comprenaient que le Continent Lu Mo n'abandonnerait pas si facilement.
 
 Si les cultivateurs ordinaires pouvaient ignorer la situation, Lu Wenran, étant le plus puissant de l'endroit, leva les yeux avec une pointe d'inquiétude.
 
-De son point de vue, cette situation était suspecte. Les cultivateurs du Continent du Démon Vert attendaient probablement des renforts. Si tel était le cas, de grands changements allaient s'opérer.
+De son point de vue, cette situation était suspecte. Les cultivateurs du Continent Lu Mo attendaient probablement des renforts. Si tel était le cas, de grands changements allaient s'opérer.
 
 La question de l'identité du tueur du cultivateur de la Tribulation du Vide de l'ennemi lui pesait toujours. Il élimina les suspects un à un jusqu'à revenir à sa première intuition: Wang Lin.
 
@@ -104,6 +104,6 @@ Bien qu'il doutât que Wang Lin possède une telle capacité, c'était une quest
 
 Durant ces deux jours, Wang Lin avait largement récupéré. Au crépuscule du deuxième jour, un autre invité arriva devant sa grotte après le passage de Yan Luan. Un nouvel invité non désiré!
 
-« Camarade cultivateur Wang Lin de la Secte de la Grande Âme. Je vous demande de cesser votre culture pour patrouiller durant la nuit! » L'homme qui parlait était le vieillard nommé Zhou, exécutant les ordres de Lu Wenran.
+« Camarade cultivateur Wang Lin de la Secte Da Hun. Je vous demande de cesser votre culture pour patrouiller durant la nuit! » L'homme qui parlait était le vieillard nommé Zhou, exécutant les ordres de Lu Wenran.
 
 Il se tenait devant la grotte de Wang Lin, l'air calme, s'exprimant d'un ton froid et impérieux, comme si aucune contestation n'était possible.

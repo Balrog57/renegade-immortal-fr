@@ -63,7 +63,7 @@ Wang Lin prit une profonde inspiration. Selon ces souvenirs, il comprit qu'il n'
 
 L'urgence pour Wang Lin était de trouver un moyen de quitter le corps du Dieu Ancien. Les souvenirs contenaient la réponse, mais celle-ci le laissa impuissant. Pour une personne ordinaire, sortir d'ici était presque impossible, mais pour un successeur, c'était d'une simplicité déconcertante: il suffisait de se trouver dans la Mer de la Connaissance du Dieu Ancien et d'obéir à un simple élan du cœur pour partir.
 
-Si Wang Lin était entré dans la Mer de la Connaissance de manière conventionnelle en obtenant la mémoire héritée, tout aurait été simple. Mais ayant acquis une partie de cette mémoire par une méthode alternative, il devait impérativement se rendre à la Mer de la Connaissance. Auparavant, il ignorait la difficulté de cette entreprise, mais désormais, grâce à ce qu'il avait reçu, on pouvait dire que dans la Terre du Dieu Ancien, personne ne pouvait rivaliser avec sa maîtrise de la Mer de la Connaissance.
+Si Wang Lin était entré dans la Mer de la Connaissance de manière conventionnelle en obtenant la mémoire héritée, tout aurait été simple. Mais ayant acquis une partie de cette mémoire par une méthode alternative, il devait impérativement se rendre à la Mer de la Connaissance. Auparavant, il ignorait la difficulté de cette entreprise, mais désormais, grâce à ce qu'il avait reçu, on pouvait dire que dans la Terre Gu Shen, personne ne pouvait rivaliser avec sa maîtrise de la Mer de la Connaissance.
 
 Pour y pénétrer, il fallait avoir obtenu l'héritage de la puissance du Dieu Ancien, puis utiliser l'énergie spirituelle résiduelle du corps pour ouvrir les portes de la Mer de la Connaissance. Cependant, un détail changeait tout dans la partie de la mémoire que Wang Lin avait obtenue: une mention expliquait pourquoi le Dieu Ancien Tu Si avait sacrifié sa vie.
 
@@ -101,7 +101,7 @@ Tout en parlant, il tendit la main droite vers Wang Lin. Ce dernier, imperturbab
 
 La main du démon ne saisit que le vide. Stupéfait, le visage assombri par la rage, il émit un reniflement froid, agita la main droite et projeta son corps en avant pour combler les dix mille milles qui le séparaient de sa proie. Wang Lin esquissa un sourire froid, agita la main devant lui et disparut dans une faille.
 
-Le cultivateur démoniaque fut une nouvelle fois pris de stupeur. Il cligna des yeux et, sans perdre un instant, projeta son Sens Divin pour scanner la zone. Son Sens Divin se connecta rapidement à ses compagnons pour annoncer sa découverte. En quelques respirations, le message fut transmis, et presque tous les cultivateurs démoniaques de la Terre du Dieu Ancien chargèrent vers cette position.
+Le cultivateur démoniaque fut une nouvelle fois pris de stupeur. Il cligna des yeux et, sans perdre un instant, projeta son Sens Divin pour scanner la zone. Son Sens Divin se connecta rapidement à ses compagnons pour annoncer sa découverte. En quelques respirations, le message fut transmis, et presque tous les cultivateurs démoniaques de la Terre Gu Shen chargèrent vers cette position.
 
 Pendant ce temps, les quelques dizaines de cultivateurs déjà présents déployèrent leur Sens Divin pour traquer Wang Lin. Ils le repérèrent rapidement et volèrent vers lui à une vitesse incroyable.
 

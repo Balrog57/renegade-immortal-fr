@@ -18,9 +18,9 @@ Un immense bassin se dressait à la frontière de Huo Fen. Une fois l'armée de 
 
 À l'issue de la rencontre, dix-neuf silhouettes s'envolèrent dans un grondement de vent et de tonnerre jusqu'au-dessus du bassin. Un cultivateur de l'Âme Naissante de la Secte Luo He dit d'une voix grave: « Après de nombreuses années d'exploration, ma Secte Luo He a déterminé que ce lieu est la terre ancestrale du groupe de volcans, le lieu de naissance des bêtes spirituelles de feu. Si nous posons un sceau ici, nous pourrons certainement contenir tous les volcans. Alors, en utilisant la formation de scellement du pays laissée par nos ancêtres il y a plusieurs milliers d'années, nous pourrons emprisonner les bêtes de feu à l'intérieur de Huo Fen. »
 
-Un homme aux cheveux rouges de la Secte des Démons Maléfiques jeta un coup d'œil au bassin en contrebas et renifla: « Si nos ancêtres avaient déjà tout préparé, pourquoi ne les ont-ils pas simplement anéanties à l'époque au lieu de laisser la situation en venir là? »
+Un homme aux cheveux rouges de la Secte Xie Mo jeta un coup d'œil au bassin en contrebas et renifla: « Si nos ancêtres avaient déjà tout préparé, pourquoi ne les ont-ils pas simplement anéanties à l'époque au lieu de laisser la situation en venir là? »
 
-Les trois cultivateurs de l'Âme Naissante de la Secte des Cadavres ne portaient aucun cercueil sur leur dos. Cela montrait qu'ils avaient atteint le niveau où le cadavre est réintégré au corps; il ne leur manquait plus qu'un pas pour une véritable prise de possession de corps.
+Les trois cultivateurs de l'Âme Naissante de la Secte Shi Yin ne portaient aucun cercueil sur leur dos. Cela montrait qu'ils avaient atteint le niveau où le cadavre est réintégré au corps; il ne leur manquait plus qu'un pas pour une véritable prise de possession de corps.
 
 Leurs expressions étaient les plus indifférentes, comme si rien ne les intéressait. Si l'énergie spirituelle de Huo Fen n'avait pas été violente et impropre à leur récupération, ils n'auraient sans doute pas participé à cette migration.
 
@@ -30,7 +30,7 @@ Une fois la parole donnée par l'Ancêtre Song, six cultivateurs de l'Âme Naiss
 
 Les six poussèrent un cri synchronisé et six fleurs de lotus surgirent de leurs sceaux de mains pour se poser aussitôt à l'angle plein est du bassin. Le bassin entier trembla avec fracas tandis qu'une brume rouge s'élevait.
 
-Aussitôt, la Secte Luo He, la Secte des Démons Maléfiques et la Secte des Cadavres projetèrent leurs lotus respectifs vers les points plein sud, plein ouest et plein nord.
+Aussitôt, la Secte Luo He, la Secte Xie Mo et la Secte Shi Yin projetèrent leurs lotus respectifs vers les points plein sud, plein ouest et plein nord.
 
 Les grondements s'intensifièrent alors qu'une brume rouge toujours plus abondante s'élevait du bassin. Elle se rassembla en plein ciel, prenant diverses formes avant de se transformer en un anneau de brume évidé.
 
@@ -66,7 +66,7 @@ Ayant réussi à stopper temporairement les bêtes, l'armée de cultivateurs se 
 
 Au sein de cette armée, un homme d'âge moyen vêtu d'une robe daoïste, le visage livide, fixait le ciel d'un air hébété et murmura: « C'est... ce sont les cultivateurs de Huo Fen... »
 
-Il prit une grande inspiration et recula de quelques pas, mais à cet instant précis, un rire sinistre retentit dans le ciel. Un cultivateur de la Secte des Démons Maléfiques au stade de la Formation du Noyau apparut sur une lueur d'épée. En quelques éclairs, trois épées volantes transpercèrent l'homme d'âge moyen sous des angles différents.
+Il prit une grande inspiration et recula de quelques pas, mais à cet instant précis, un rire sinistre retentit dans le ciel. Un cultivateur de la Secte Xie Mo au stade de la Formation du Noyau apparut sur une lueur d'épée. En quelques éclairs, trois épées volantes transpercèrent l'homme d'âge moyen sous des angles différents.
 
 Ce dernier poussa un gémissement déchirant alors que son corps était tranché en plusieurs morceaux, le sang jaillissant de toutes parts.
 
@@ -94,7 +94,7 @@ Cette vaste montagne était désormais entièrement occupée par les quatre sect
 
 Les yeux de l'Ancêtre Song du Sanctuaire du Dieu de la Guerre brillaient comme des éclairs. Sa voix, empreinte d'une intention meurtrière, tonna: « Ceci est une guerre sans bien ni mal. Si nous ne parvenons pas à établir un point d'appui à Xuan Wu d'ici trois mois, les bêtes de feu briseront la formation pour sortir. Les bêtes de feu ne sont pas effrayantes; ce qui est terrifiant, c'est de manquer d'énergie spirituelle pour cultiver! »
 
-« À compter de ce jour, le Sanctuaire du Dieu de la Guerre, la Secte des Démons Maléfiques, la Secte Luo He et la Secte des Cadavres forment l'Union Huo Fen. Chaque disciple de l'Union au stade de l'Établissement des Fondations recevra un trésor de niveau Formation du Noyau, et chaque disciple de la Formation du Noyau recevra un trésor de niveau Âme Naissante! »
+« À compter de ce jour, le Sanctuaire du Dieu de la Guerre, la Secte Xie Mo, la Secte Luo He et la Secte Shi Yin forment l'Union Huo Fen. Chaque disciple de l'Union au stade de l'Établissement des Fondations recevra un trésor de niveau Formation du Noyau, et chaque disciple de la Formation du Noyau recevra un trésor de niveau Âme Naissante! »
 
 « En temps de guerre, tout ce que vous saisirez vous appartiendra. L'Union ne vous le reprendra pas. Disciples, ceci est une guerre, mais je veux que vous la considériez comme une invasion... une invasion pour la survie! »
 

@@ -120,7 +120,7 @@ Il paraissait bien plus affaibli qu'à l'accoutumée. Il regarda Wang Lin et dit
 
 Wang Lin, empreint de prudence, demanda: « Et lui? »
 
-L'expression de Yun Quezi se durcit: « J'ai utilisé une formation pour le piéger. Il devrait toujours être prisonnier. Wang Lin, je suis gravement blessé, alors va chercher le Cristal de la Planète de Culture pour moi. Que ce soit pour mon Clan des Immortels Délaissés ou pour les cultivateurs, je ne peux pas laisser le Cristal s'effondrer. »
+L'expression de Yun Quezi se durcit: « J'ai utilisé une formation pour le piéger. Il devrait toujours être prisonnier. Wang Lin, je suis gravement blessé, alors va chercher le Cristal de la Planète de Culture pour moi. Que ce soit pour mon Clan Xian Yi ou pour les cultivateurs, je ne peux pas laisser le Cristal s'effondrer. »
 
 « Oh? » Wang Lin regarda calmement Yun Quezi et demanda: « Tu veux que j'aille chercher le Cristal de la Planète de Culture? »
 

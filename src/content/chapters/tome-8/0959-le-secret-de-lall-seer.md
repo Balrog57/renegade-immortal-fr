@@ -6,9 +6,9 @@ bookTitle: "Alliance's Secret"
 en: Chapter 959 - All-Seers Secret
 slug: le-secret-de-lall-seer
 ---
-« Il faudra faire certains préparatifs pour ouvrir la Terre des Esprits Démoniaques cette fois. Cette affaire est importante, et chacun de nous doit également inviter quelques amis avant que nous ne puissions pénétrer dans cette grotte. Pendant ce temps, vous pouvez attendre ici en toute sérénité. » L'expression de Tian Yunzi était calme, ne révélant ni colère ni joie. Une fois ses paroles achevées, des nuages apparurent et il s'éleva pour partir en marchant sur les cieux.
+« Il faudra faire certains préparatifs pour ouvrir la Terre Yao Ling cette fois. Cette affaire est importante, et chacun de nous doit également inviter quelques amis avant que nous ne puissions pénétrer dans cette grotte. Pendant ce temps, vous pouvez attendre ici en toute sérénité. » L'expression de Tian Yunzi était calme, ne révélant ni colère ni joie. Une fois ses paroles achevées, des nuages apparurent et il s'éleva pour partir en marchant sur les cieux.
 
-« Le Pavillon du Bois Pourpre vous est toujours réservé. » La voix de Tian Yunzi parvint de loin.
+« Le Pavillon Zi Lin vous est toujours réservé. » La voix de Tian Yunzi parvint de loin.
 
 Wang Lin regarda la direction où Tian Yunzi avait disparu et resta pensif.
 
@@ -22,7 +22,7 @@ En vérité, Wang Lin avait spéculé que Tian Yunzi se préparerait ainsi pour 
 
 Tout était un peu trop fluide, comme si chaque chose se déroulait exactement selon le plan de Wang Lin.
 
-Wang Lin observa les lieux familiers de la Secte du Destin Céleste en fronçant les sourcils. Après avoir réfléchi un instant, il se dirigea vers le Pavillon du Bois Pourpre. Un seul chemin y menait, un sentier bordé de rochers escarpés et envahi par une végétation luxuriante.
+Wang Lin observa les lieux familiers de la Secte Tian Yun en fronçant les sourcils. Après avoir réfléchi un instant, il se dirigea vers le Pavillon Zi Lin. Un seul chemin y menait, un sentier bordé de rochers escarpés et envahi par une végétation luxuriante.
 
 C'était alors le coucher du soleil. Le vent soufflait, apportant une fraîcheur mêlée au bruissement des feuilles. On entendait même le murmure de l'eau au loin.
 
@@ -68,17 +68,17 @@ Sans accorder plus d'attention à cet homme nommé Li, Wang Lin passa devant eux
 
 « Frère aîné, qu'est-ce qui vous arrive? » demanda la femme, confuse.
 
-L'homme en bleu répondit brusquement: « Il s'appelle Wang Lin. C'était le septième disciple de la Division Pourpre de la Secte du Destin Céleste. Sœur Cadette, tu ne t'en souviens toujours pas?! »
+L'homme en bleu répondit brusquement: « Il s'appelle Wang Lin. C'était le septième disciple de la Division Pourpre de la Secte Tian Yun. Sœur Cadette, tu ne t'en souviens toujours pas?! »
 
 La femme fut saisie d'effroi et son expression changea instantanément.
 
-« Est-ce celui dont les rumeurs disent qu'il a tué d'innombrables personnes dans la Terre des Esprits Démoniaques, créant une véritable rivière de sang? Celui qui, finalement, fut traqué par Maître et de nombreux anciens, mais qui parvint tout de même à s'échapper? Le démon Wang Lin?! »
+« Est-ce celui dont les rumeurs disent qu'il a tué d'innombrables personnes dans la Terre Yao Ling, créant une véritable rivière de sang? Celui qui, finalement, fut traqué par Maître et de nombreux anciens, mais qui parvint tout de même à s'échapper? Le démon Wang Lin?! »
 
-Au loin, Wang Lin esquissa un sourire amer. Les commérages étaient une chose redoutable. Au fil des centaines d'années, les rumeurs à son sujet avaient fini par se transformer. Dans un soupir, Wang Lin quitta la Secte du Destin Céleste en empruntant le petit sentier.
+Au loin, Wang Lin esquissa un sourire amer. Les commérages étaient une chose redoutable. Au fil des centaines d'années, les rumeurs à son sujet avaient fini par se transformer. Dans un soupir, Wang Lin quitta la Secte Tian Yun en empruntant le petit sentier.
 
 Devant lui se dressait une montagne perçant les cieux. Son sommet était enveloppé de brume, parmi laquelle scintillaient des lueurs pourpres. C'était là que résidaient les disciples de la Division Pourpre.
 
-Secte du Destin Céleste, Montagne Pourpre.
+Secte Tian Yun, Montagne Pourpre.
 
 En contemplant ce pic familier, Wang Lin entra en transe. C'était comme s'il retournait dans le passé et voyait un jeune homme arrivé tout juste de la planète Suzaku gravir la montagne étape par étape, s'imposant peu à peu sur ces lieux.
 
@@ -94,9 +94,9 @@ Pourpre!
 
 À mesure que Wang Lin avançait, ce coin du pavillon semblait se dissimuler à nouveau. Ce n'est qu'après avoir franchi un obstacle que le bâtiment apparut enfin.
 
-Le Pavillon du Bois Pourpre!
+Le Pavillon Zi Lin!
 
-« Qui se souvient encore que cet endroit s'appelait le Pavillon des Nuages Pourpres... » Wang Lin resta silencieux un instant avant de pousser la porte. Une odeur de moisissure s'en échappa.
+« Qui se souvient encore que cet endroit s'appelait le Pavillon Zi Yun... » Wang Lin resta silencieux un instant avant de pousser la porte. Une odeur de moisissure s'en échappa.
 
 L'ameublement de la pièce était resté inchangé. Si quelque chose avait évolué, c'était l'omniprésence de la poussière. Que ce soit sur la table, les chaises en bois ou le lit, tout était recouvert d'une épaisse couche de poussière.
 

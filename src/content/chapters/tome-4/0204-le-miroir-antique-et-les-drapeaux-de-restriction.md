@@ -11,7 +11,7 @@ Après avoir posé la restriction, Wang Lin cessa de surveiller Yun Fei. D'un ge
 
 Assis en tailleur dans la grotte, Wang Lin pointa son doigt entre ses sourcils. Soudain, un fantôme apparut. Cette silhouette floue ne mesurait que la taille d'une paume, mais avait la forme d'une bête.
 
-Ce fantôme était le second démon utilisé par Wang Lin dans la Terre de l'Ancien Dieu.
+Ce fantôme était le second démon utilisé par Wang Lin dans la Terre Gu Shen.
 
 Une fois apparu, il flotta dans les airs, immobile, attendant les ordres de Wang Lin. Depuis que celui-ci avait formé son cœur d'âme, les derniers restes de rébellion du second démon avaient involontairement disparu.
 
@@ -21,19 +21,19 @@ Il envoya un message au second démon par son Sens Divin; celui-ci se dirigea si
 
 Yun Fei ne remarqua absolument rien de ce processus.
 
-Une fois cela fait, Wang Lin ne lui prêta plus aucune attention. Il resta assis là, organisant ses pensées sur tout ce qui s'était passé dans la Terre de l'Ancien Dieu au cours des deux cents dernières années.
+Une fois cela fait, Wang Lin ne lui prêta plus aucune attention. Il resta assis là, organisant ses pensées sur tout ce qui s'était passé dans la Terre Gu Shen au cours des deux cents dernières années.
 
 Durant cette période, il avait traversé de nombreuses épreuves et avait failli mourir à plusieurs reprises; désormais, il avait l'impression d'avoir vécu un rêve. Il ne pouvait plus distinguer ce qui était réel de ce qui ne l'était pas.
 
 Après un long moment, Wang Lin laissa échapper un soupir. Bien qu'il ait reçu l'héritage des souvenirs, ce n'était qu'une partie du véritable héritage. L'autre partie résidait dans l'héritage de la puissance.
 
-Le maître de la Mer de Sang ne renoncerait pas si facilement. Dès qu'il trouverait un moyen de quitter la Terre de l'Ancien Dieu, la première chose qu'il ferait serait de traquer Wang Lin, détenteur de l'héritage des souvenirs, pour le lui voler.
+Le maître de la Mer de Sang ne renoncerait pas si facilement. Dès qu'il trouverait un moyen de quitter la Terre Gu Shen, la première chose qu'il ferait serait de traquer Wang Lin, détenteur de l'héritage des souvenirs, pour le lui voler.
 
-Une fois privé des avantages que l'héritage des souvenirs lui conférait dans la Terre de l'Ancien Dieu, s'il croisait l'homme aux cheveux roux, Wang Lin n'aurait presque aucune chance de sauver sa vie. Cette pensée pesait sur son cœur comme une montagne immense.
+Une fois privé des avantages que l'héritage des souvenirs lui conférait dans la Terre Gu Shen, s'il croisait l'homme aux cheveux roux, Wang Lin n'aurait presque aucune chance de sauver sa vie. Cette pensée pesait sur son cœur comme une montagne immense.
 
-Toutefois, d'après l'analyse de Wang Lin, si l'homme aux cheveux roux voulait réellement quitter la Terre de l'Ancien Dieu, la tâche ne serait pas aisée; il n'avait donc pas à s'inquiéter de lui pour le moment.
+Toutefois, d'après l'analyse de Wang Lin, si l'homme aux cheveux roux voulait réellement quitter la Terre Gu Shen, la tâche ne serait pas aisée; il n'avait donc pas à s'inquiéter de lui pour le moment.
 
-Néanmoins, des préparatifs restaient nécessaires. Wang Lin avait décidé qu'une fois installé dans la ville de Qi Lin, il demanderait à Yun Fei de l'aider à rechercher les anciens réseaux de transfert dans la Mer des Démons.
+Néanmoins, des préparatifs restaient nécessaires. Wang Lin avait décidé qu'une fois installé dans la ville de Qi Lin, il demanderait à Yun Fei de l'aider à rechercher les anciens réseaux de transfert dans la Mer Xiu Mo.
 
 Il possédait plus de vingt pierres spirituelles de qualité supérieure, de quoi ouvrir un réseau de transfert vers n'importe quel endroit souhaité. Mais avant cela, il devait étudier attentivement ces anciens tableaux. S'il ne les comprenait pas, même en en trouvant un, il n'oserait pas les utiliser. C'était l'une des raisons pour lesquelles il était venu à la ville de Qi Lin.
 
@@ -45,11 +45,11 @@ Wang Lin avait tenté d'analyser si cela était lié à son Royaume Ji. D'après
 
 En réalité, il n'avait jamais vraiment compris le Royaume Ji. Une autre raison de sa présence à Qi Lin était d'essayer de trouver des textes à son sujet.
 
-Le regard de Wang Lin scintilla. Après un moment de silence, il sortit plusieurs sacs de rangement; tous, sauf celui provenant de la grotte du Temple du Dieu de la Guerre, avaient été acquis dans la Terre de l'Ancien Dieu.
+Le regard de Wang Lin scintilla. Après un moment de silence, il sortit plusieurs sacs de rangement; tous, sauf celui provenant de la grotte du Temple Zhan Shen, avaient été acquis dans la Terre Gu Shen.
 
 Le premier était le sac de l'Empereur Antique. Lorsqu'il tenta d'y pénétrer avec son Sens Divin, il sentit une énergie douce repousser sa perception. Le regard de Wang Lin se fixa sur le sac; il réfléchit un instant. Il semblait que l'Empereur Antique n'était pas encore mort.
 
-Il eut un ricanement méprisant, rangea ce sac avec celui obtenu au Temple du Dieu de la Guerre, puis passa aux suivants.
+Il eut un ricanement méprisant, rangea ce sac avec celui obtenu au Temple Zhan Shen, puis passa aux suivants.
 
 Le sac qui l'excitait le plus contenait les dix instruments du groupe de Duo Mu. D'un geste de la main, les dix objets tombèrent hors du sac. Ils flottèrent devant lui. À l'exception de la lame en demi-lune qui émettait encore une faible lueur, les neuf autres ne brillaient plus.
 
@@ -91,7 +91,7 @@ Il déambulait nonchalamment, scrutant les enseignes, tout en maintenant une con
 
 Wang Lin ricana intérieurement. Sa vie était entre ses mains, il n'était donc pas pressé de la tuer. Il comptait voir si quelqu'un à Qi Lin pouvait briser la restriction, testant ainsi la puissance de ses propres créations.
 
-C'est alors que son regard se fixa sur un magasin de cinq étages, orné d'une sculpture de dragon et de phénix dégageant une aura spirituelle. Une plaque de jade blanc y portait trois caractères: « Pavillon du Raffinage des Trésors ».
+C'est alors que son regard se fixa sur un magasin de cinq étages, orné d'une sculpture de dragon et de phénix dégageant une aura spirituelle. Une plaque de jade blanc y portait trois caractères: « Pavillon Lian Qi ».
 
 En voyant ce pavillon, Wang Lin eut un sourire étrange. Il se remémora l'époque à la ville de Nan Dou, où il s'était rendu dans un pavillon similaire pour échanger une peau de dragon contre un fourneau à pilules, un incident qui avait provoqué une traque sanglante. Il avait fini par donner ce fameux fourneau à Li Muwan.
 
@@ -113,7 +113,7 @@ Il demanda: « Puis-je savoir d'où elle provient? »
 
 S'il avait posé cette question au début de sa Formation du Noyau, il n'aurait rien obtenu. Mais avec son niveau actuel, la jeune fille lui répondit avec un sourire: « Vous n'êtes pas le premier à poser la question, Senior. Obtenir une peau aussi complète est extrêmement difficile; elle a été prélevée sur le dragon au moment même de sa mort. »
 
-Wang Lin hocha la tête et reporta son attention sur la jeune fille. Celle-ci posa ses graines et ajouta doucement: « Pour être honnête, je ne sais pas qui l'a obtenue. Elle a été échangée il y a deux cents ans, dans notre succursale de Nan Dou à la périphérie de la Mer des Démons, contre un fourneau à pilules. Le cultivateur qui possédait cette peau jouissait, à l'époque, d'une belle renommée dans ces parages. »
+Wang Lin hocha la tête et reporta son attention sur la jeune fille. Celle-ci posa ses graines et ajouta doucement: « Pour être honnête, je ne sais pas qui l'a obtenue. Elle a été échangée il y a deux cents ans, dans notre succursale de Nan Dou à la périphérie de la Mer Xiu Mo, contre un fourneau à pilules. Le cultivateur qui possédait cette peau jouissait, à l'époque, d'une belle renommée dans ces parages. »
 
 « Dès qu'il a quitté Nan Dou, il fut poursuivi par de nombreux experts de la Formation du Noyau, dont un au stade intermédiaire. Ce cultivateur n'était alors qu'au stade avancé de l'Établissement des Fondations. Normalement, il aurait dû mourir, mais il a réussi à percer le stade de la Formation du Noyau en pleine poursuite et a massacré tous ses traqueurs. Il a même forcé l'expert intermédiaire à utiliser l'Ordre de Meurtre des Cent Jours des Dix Mille Démons. »
 
@@ -123,11 +123,11 @@ Il parcourut le pavillon, dépensa trente pierres spirituelles de qualité moyen
 
 Wang Lin était satisfait: il possédait désormais tout ce qu'il fallait pour ses drapeaux de restriction. À part la pierre d'encre, les autres composants étaient communs et faciles à trouver. En revanche, il était déçu par le jade; même dans un tel pavillon, les informations sur les anciens tableaux restaient éparses et lacunaires. Quant au Royaume Ji, il n'avait rien trouvé de concret en posant des questions indirectes.
 
-De retour dans la grotte, après s'être assuré de l'état de Yun Fei, il se mit au travail. Sa culture étant bien supérieure à la sienne, elle ne sentit pas son entrée. Il sortit le jade obtenu à la deuxième épreuve de la Terre de l'Ancien Dieu, qui contenait les instructions de fabrication, le consulta une dernière fois, puis l'écrasa dans sa main.
+De retour dans la grotte, après s'être assuré de l'état de Yun Fei, il se mit au travail. Sa culture étant bien supérieure à la sienne, elle ne sentit pas son entrée. Il sortit le jade obtenu à la deuxième épreuve de la Terre Gu Shen, qui contenait les instructions de fabrication, le consulta une dernière fois, puis l'écrasa dans sa main.
 
 Après avoir extrait la pierre d'encre et y insufflé son pouvoir spirituel, il fusionna les autres matériaux selon les directives. Puis, suivant le protocole du jade, il libéra une essence de pouvoir spirituel de sang pour entamer le processus de raffinage, appelé « l'Élévation de l'Objet ».
 
-Ce procédé différait radicalement de la méthode de raffinage des trésors apprise au Temple du Dieu de la Guerre; les deux appartenaient à des domaines totalement distincts. La durée de l'élévation dépendait des besoins du drapeau. Si l'on pouvait y placer 999 999 restrictions, ce serait l'idéal, mais en réalité, les drapeaux se divisaient en quatre niveaux selon le nombre de restrictions: 999, 9 999, 99 999 et enfin 999 999.
+Ce procédé différait radicalement de la méthode de raffinage des trésors apprise au Temple Zhan Shen; les deux appartenaient à des domaines totalement distincts. La durée de l'élévation dépendait des besoins du drapeau. Si l'on pouvait y placer 999 999 restrictions, ce serait l'idéal, mais en réalité, les drapeaux se divisaient en quatre niveaux selon le nombre de restrictions: 999, 9 999, 99 999 et enfin 999 999.
 
 Le premier objectif de Wang Lin était d'atteindre 999 restrictions.
 

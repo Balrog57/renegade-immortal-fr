@@ -12,7 +12,7 @@ Dès cet acte, un sceau invisible au sein de son corps s'effondra et se brisa.
 
 Les yeux du Prince Ji Du brillèrent d'une lueur étrange tandis qu'il sentait une puissance s'éveiller en lui. Cette force envahit tout son être, le contraignant à fermer les yeux.
 
-À l'extérieur de la salle, Wang Lin, aux cheveux noirs, détourna son regard de la Montagne de l'Origine. Son regard était d'une froideur et d'une cruauté extrêmes.
+À l'extérieur de la salle, Wang Lin, aux cheveux noirs, détourna son regard de la Montagne Yuan Shi. Son regard était d'une froideur et d'une cruauté extrêmes.
 
 À ses côtés se tenait son corps véritable des cinq éléments.
 

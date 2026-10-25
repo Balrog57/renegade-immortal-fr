@@ -44,7 +44,7 @@ La colère du dragon argenté atteignit des sommets inédits. Il n'eut même pas
 
 Simultanément, le pavillon des épées dans le palais impérial était totalement vide. Il n'y avait aucune décoration ici, seulement une immense formation de sang au centre de laquelle était plantée une épée serpentine argentée.
 
-À cet instant, l'épée serpentine libéra soudainement des vagues d'hymnes d'épée. Peu après, elle s'élança vers le ciel et perça le toit dans un rayon de lumière argentée. Elle transportait une énergie d'épée que tous les habitants de la Cité du Démon Céleste pouvaient ressentir; elle effectua une rotation dans les cieux avant de charger directement vers la Ville de Hong.
+À cet instant, l'épée serpentine libéra soudainement des vagues d'hymnes d'épée. Peu après, elle s'élança vers le ciel et perça le toit dans un rayon de lumière argentée. Elle transportait une énergie d'épée que tous les habitants de la Cité Tian Yao pouvaient ressentir; elle effectua une rotation dans les cieux avant de charger directement vers la Ville de Hong.
 
 À cet instant, tous les commandants en chef et généraux démons remarquèrent cette énergie. Ils sortirent tous pour scruter le ciel nocturne.
 
@@ -54,7 +54,7 @@ Le général démon Shi Xiao se trouvait également dans son propre domaine en l
 
 « L'épée de l'Empereur s'est envolée d'elle-même; il y a quelque chose de suspect là-dedans! » Shi Xiao prit une profonde inspiration, ses yeux brillant d'une lueur mystérieuse.
 
-Dans la Ville de l'Univers, un homme aux cheveux noirs leva les yeux depuis sa cour intérieure. Seule sa silhouette était visible, son visage restant dans l'ombre tandis qu'il observait le flash argenté. Il murmura: « Voici la colère de l'épée de l'Empereur! Comment percevez-vous l'épée de l'Empereur, vous deux? »
+Dans la Ville Yu, un homme aux cheveux noirs leva les yeux depuis sa cour intérieure. Seule sa silhouette était visible, son visage restant dans l'ombre tandis qu'il observait le flash argenté. Il murmura: « Voici la colère de l'épée de l'Empereur! Comment percevez-vous l'épée de l'Empereur, vous deux? »
 
 Deux individus se tenaient derrière lui, portant chacun une épée massive dans le dos. Leurs yeux brillaient d'une lumière mystérieuse alors qu'ils fixaient la lueur argentée s'éloignant au loin.
 
@@ -62,7 +62,7 @@ L'un d'eux réfléchit un instant et déclara lentement: « Elle n'est pas moins
 
 « Vraiment? » L'homme aux cheveux noirs se retourna, révélant un visage très séduisant empreint d'une pointe de détermination.
 
-Il était le premier des généraux démons, celui qui était stationné près du Pays du Démon de Feu: Mo Fei!
+Il était le premier des généraux démons, celui qui était stationné près du Pays Huo Yao: Mo Fei!
 
 Pourtant, si l'on regardait de plus près, cet homme ressemblait trait pour trait au jeune homme aux cheveux noirs de la Prison Hong!
 
@@ -106,7 +106,7 @@ Il aperçut immédiatement Wang Lin et, remarquant comment celui-ci dissimulait 
 
 Le sens divin de Wang Lin s'étendit avant qu'il ne s'engouffre sans dire un mot. Mo Lihai prit une profonde inspiration, s'assit et referma l'ouverture. Il commença à cultiver comme si de rien n'était.
 
-Ce serait une nuit blanche pour Mo Lihai, et il en allait de même pour les habitants de la Cité du Démon Céleste!
+Ce serait une nuit blanche pour Mo Lihai, et il en allait de même pour les habitants de la Cité Tian Yao!
 
 Toute la ville fut baignée par une lumière argentée durant toute la nuit. L'épée de l'Empereur, incapable de trouver la proie qui l'avait blessée, devint plus furieuse encore. Elle décida de ravager la Prison Hong avant de patrouiller dans le ciel de la cité, cherchant frénétiquement.
 
@@ -116,7 +116,7 @@ L'épée de l'Empereur remarqua Mo Lihai, mais comme ce dernier avait déployé 
 
 Wang Lin avait totalement dissimulé son aura et était entré dans la perle défiant le ciel. Il se tenait assis face à l'Âme Naissante de Li Muwan.
 
-Tout au long de la nuit, la colère de l'épée ne fit que croître. Elle passa la nuit entière à fouiller toute la Cité du Démon Céleste sans trouver la moindre trace de cette proie méprisable!
+Tout au long de la nuit, la colère de l'épée ne fit que croître. Elle passa la nuit entière à fouiller toute la Cité Tian Yao sans trouver la moindre trace de cette proie méprisable!
 
 Sa rage redoublait!
 
@@ -126,4 +126,4 @@ C'était une nouvelle insulte!
 
 Après avoir déchargé sa fureur, l'épée de l'Empereur retourna vers sa formation, toujours habitée par la rage.
 
-La Prison Hong était l'une des quatre grandes prisons de la Cité du Démon Céleste. Bien qu'elle eût été endommagée par l'épée de l'Empereur, elle fut rapidement réparée grâce à d'importantes ressources et main-d'œuvre. Cependant, pendant près d'un mois, l'épée de l'Empereur semblait avoir la Prison Hong pour cible: chaque fois qu'elle était reconstruite, l'épée réapparaissait pour la détruire à nouveau, afin d'évacuer sa colère.
+La Prison Hong était l'une des quatre grandes prisons de la Cité Tian Yao. Bien qu'elle eût été endommagée par l'épée de l'Empereur, elle fut rapidement réparée grâce à d'importantes ressources et main-d'œuvre. Cependant, pendant près d'un mois, l'épée de l'Empereur semblait avoir la Prison Hong pour cible: chaque fois qu'elle était reconstruite, l'épée réapparaissait pour la détruire à nouveau, afin d'évacuer sa colère.

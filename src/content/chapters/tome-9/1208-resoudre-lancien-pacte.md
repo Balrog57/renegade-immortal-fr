@@ -90,21 +90,21 @@ Wang Lin retira sa main et poussa un soupir.
 
 À l'extérieur de la majestueuse formation qui scellait cette zone se trouvait le vaste système stellaire connu sous le nom de Système Stellaire Antique, ou le Royaume Extérieur!
 
-Dans l'immensité du Système Stellaire Antique, il existait un lieu empli d'éclairs. C'était là que résidait le célèbre Clan du Tonnerre Dispersé.
+Dans l'immensité du Système Stellaire Antique, il existait un lieu empli d'éclairs. C'était là que résidait le célèbre Clan Shan Lei.
 
-Une foudre éternelle, qui ne s'était pas dissipée depuis d'innombrables dizaines de milliers d'années, existait au sein du Clan du Tonnerre Dispersé. Cette foudre émanait du vide et grondait sans cesse. Le clan avait édifié un temple autour d'elle pour lui offrir des sacrifices.
+Une foudre éternelle, qui ne s'était pas dissipée depuis d'innombrables dizaines de milliers d'années, existait au sein du Clan Shan Lei. Cette foudre émanait du vide et grondait sans cesse. Le clan avait édifié un temple autour d'elle pour lui offrir des sacrifices.
 
-Cependant, au moment où le membre portant la marque d'éclair mourut et que Wang Lin déclara qu'il leur retirait le droit de contrôler le tonnerre, cette foudre éternelle fit retentir un grondement de tonnerre capable de faire trembler les cieux! Cela choqua tout le Clan du Tonnerre Dispersé et fit sursauter tous leurs cœurs!
+Cependant, au moment où le membre portant la marque d'éclair mourut et que Wang Lin déclara qu'il leur retirait le droit de contrôler le tonnerre, cette foudre éternelle fit retentir un grondement de tonnerre capable de faire trembler les cieux! Cela choqua tout le Clan Shan Lei et fit sursauter tous leurs cœurs!
 
 Les visages de chacun changèrent et ils se précipitèrent. Au moment où ils déployèrent leur Sens Divin, la foudre éternelle disparut soudainement sans laisser de trace, comme si elle avait été arrachée... Après dix respirations, elle réapparut, mais cette scène provoqua une panique et une terreur infinies au sein du clan.
 
-Dans le Système Stellaire Antique, il y avait aussi la zone du Clan des Moineaux de Feu... Cet endroit ressemblait beaucoup à la Secte Divine de l'Oiseau Vermillon, où toute la région était en flammes.
+Dans le Système Stellaire Antique, il y avait aussi la zone du Clan Huo Que... Cet endroit ressemblait beaucoup à la Secte Divine de l'Oiseau Vermillon, où toute la région était en flammes.
 
 De même, d'innombrables statues d'oiseaux vermillions étaient érigées sur les temples. Cependant, ces oiseaux étaient noirs, comme s'ils étaient des oiseaux de feu.
 
-Pourtant, au moment où le membre du Clan des Moineaux de Feu mourut et que Wang Lin déclara qu'il reprenait le contrôle du feu, toutes les statues d'oiseaux de feu tremblèrent et des cris d'hostilité emplirent les étoiles. Des craquements retentirent à travers le cosmos et environ 30 % des statues s'effondrèrent!
+Pourtant, au moment où le membre du Clan Huo Que mourut et que Wang Lin déclara qu'il reprenait le contrôle du feu, toutes les statues d'oiseaux de feu tremblèrent et des cris d'hostilité emplirent les étoiles. Des craquements retentirent à travers le cosmos et environ 30 % des statues s'effondrèrent!
 
-Tout le Clan des Moineaux de Feu fut sous le choc!
+Tout le Clan Huo Que fut sous le choc!
 
 Au moment où les statues s'écroulèrent, un vieil homme leva les yeux vers le ciel et murmura pour lui-même: « La légende ancienne disait que lorsqu'ils reviendraient, tous les faux oiseaux vermillions s'effondreraient... »
 

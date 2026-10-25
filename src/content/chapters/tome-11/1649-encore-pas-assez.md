@@ -106,9 +106,9 @@ Wang Lin voulait que cette personne vienne; il l'avait laissé le repérer. Autr
 
 La planète était en ruines et l'aura de mort qui y régnait était extrêmement puissante. Il était évident que cet endroit avait autrefois foisonné de vie, mais qu'il n'était plus qu'un désert funèbre.
 
-Il existait un clan dans le Système Stellaire Antique appelé le Clan des Enfers. Les membres de ce clan absorbaient l'aura de mort pour cultiver, et leurs lieux de rassemblement étaient donc souvent saturés de cette essence. Cette planète leur avait été offerte par le Conseil Souverain en récompense de certains exploits.
+Il existait un clan dans le Système Stellaire Antique appelé le Clan Ming Ling. Les membres de ce clan absorbaient l'aura de mort pour cultiver, et leurs lieux de rassemblement étaient donc souvent saturés de cette essence. Cette planète leur avait été offerte par le Conseil Souverain en récompense de certains exploits.
 
-Le Clan des Enfers était un petit clan du Système Stellaire Antique. La plupart de ses membres, venus du Royaume Extérieur, s'étaient regroupés ici pour en faire leur nouveau foyer.
+Le Clan Ming Ling était un petit clan du Système Stellaire Antique. La plupart de ses membres, venus du Royaume Extérieur, s'étaient regroupés ici pour en faire leur nouveau foyer.
 
 D'innombrables bulles grises flottaient dans l'espace. Ces bulles contenaient des captifs du Royaume Intérieur, et la plupart étaient des femmes. L'une d'entre elles était Zhou Zihong!
 

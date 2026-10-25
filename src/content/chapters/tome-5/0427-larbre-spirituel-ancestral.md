@@ -16,17 +16,17 @@ De gigantesques asticots s'agitaient encore à l'intérieur de la chair, rendant
 
 Cependant, la tête du cadavre était remarquablement bien conservée, et entre ses sourcils, une marque de hache violette se détachait nettement.
 
-C'est alors qu'une voix calme retentit au loin: « Cinquième ancêtre du Clan des Immortels Délaissés, ce vieil homme Chu Yunfei est venu pour combattre! »
+C'est alors qu'une voix calme retentit au loin: « Cinquième ancêtre du Clan Xian Yi, ce vieil homme Chu Yunfei est venu pour combattre! »
 
 Dès que cette voix atteignit leurs oreilles, un fracas assourdissant retentit à l'extérieur du nuage noir. Peu après, une pression colossale surgit et pulvérisa la masse sombre.
 
-À 3,3 kilomètres de là se tenait un cultivateur Ascendant de la Secte du Jade Céleste, dont le regard brillait comme l'éclair. Derrière lui se trouvait une légion de cultivateurs au regard glacial, empreints d'une intention meurtrière.
+À 3,3 kilomètres de là se tenait un cultivateur Ascendant de la Secte Tian Yu, dont le regard brillait comme l'éclair. Derrière lui se trouvait une légion de cultivateurs au regard glacial, empreints d'une intention meurtrière.
 
 Le regard du cinquième ancêtre se glaça. Il agita sa main droite et ordonna: « Tuez! »
 
-Sur cet ordre, tous les membres du Clan des Immortels Délaissés chargèrent, déclenchant le combat.
+Sur cet ordre, tous les membres du Clan Xian Yi chargèrent, déclenchant le combat.
 
-Chu Yunfei arriva aux côtés du cercueil, lui asséna un coup de paume et tonna: « Secte des Cadavres, vous cherchez la mort! »
+Chu Yunfei arriva aux côtés du cercueil, lui asséna un coup de paume et tonna: « Secte Shi Yin, vous cherchez la mort! »
 
 Avant que la main de Chu Yunfei ne puisse frapper, le cinquième ancêtre tendit le bras, saisit le cadavre géant à distance et le jeta vers le centre, là où les membres du clan effectuaient leurs offrandes.
 
@@ -46,13 +46,13 @@ La lumière fulgura alors que l'épée volante transperçait la poitrine du cham
 
 Puis, il laissa échapper un rire et essuya sa blessure. Il lécha le sang sur ses doigts avant de charger à nouveau pour affronter l'homme d'âge mûr.
 
-L'éclat doré sur le corps du cadavre du Clan des Démons Géants devint de plus en plus intense.
+L'éclat doré sur le corps du cadavre du Clan Ju Mo devint de plus en plus intense.
 
-Chu Yunfei, qui affrontait le cinquième ancêtre, fronça les sourcils en reculant et hurla: « Détruisez ce cadavre du Clan des Démons Géants! »
+Chu Yunfei, qui affrontait le cinquième ancêtre, fronça les sourcils en reculant et hurla: « Détruisez ce cadavre du Clan Ju Mo! »
 
 Les cultivateurs environnants chargèrent tous vers la créature.
 
-Cependant, les membres du Clan des Immortels Délaissés se jetèrent sur leur passage, faisant fi de leur propre vie. Certains étaient même prêts à s'autodétruire pour barrer la route aux assaillants.
+Cependant, les membres du Clan Xian Yi se jetèrent sur leur passage, faisant fi de leur propre vie. Certains étaient même prêts à s'autodétruire pour barrer la route aux assaillants.
 
 La lueur dorée ne cessait de croître. À cet instant, le cadavre du Démon Géant commença à se rétracter. La lumière dorée ressemblait à une plante puisant ses nutriments directement dans la terre.
 
@@ -68,7 +68,7 @@ L'expression de Chu Yunfei changea radicalement alors qu'il tentait de reculer p
 
 Le cinquième ancêtre ricana en chargeant vers lui. Chu Yunfei décida de ne plus lutter et hurla en s'enfuyant: « Repli! »
 
-Les cultivateurs qui combattaient le Clan des Immortels Délaissés poussèrent des soupirs de déception et battirent en retraite.
+Les cultivateurs qui combattaient le Clan Xian Yi poussèrent des soupirs de déception et battirent en retraite.
 
 Alors que les membres du clan s'apprêtaient à les poursuivre, le cinquième ancêtre ordonna: « Ne les poursuivez pas! Protégez l'Arbre Spirituel Ancestral de la Réincarnation! »
 
@@ -84,9 +84,9 @@ Le visage de l'Ancien Sima devint grave. Il frappa son sac de stockage et en sor
 
 Il plaça soigneusement le tatouage à l'intérieur avant de pousser un soupir de soulagement et de ranger la boîte. Il rit ensuite: « Le cinquième ancêtre est d'un pragmatisme exemplaire. J'espère que les autres ancêtres en feront autant. »
 
-« Puisque mon Clan des Immortels Délaissés a fait une promesse à votre Secte des Cadavres, nous ne reviendrons pas sur notre engagement! » rétorqua froidement le cinquième ancêtre.
+« Puisque mon Clan Xian Yi a fait une promesse à votre Secte Shi Yin, nous ne reviendrons pas sur notre engagement! » rétorqua froidement le cinquième ancêtre.
 
-Sima rit, les yeux brillants, et ajouta soudain: « Je transmettrai un message du Maître de la Secte des Cadavres. Dans ma secte, nous possédons encore le cadavre d'un ancêtre du Clan des Démons Géants, qui a autrefois abattu nombre de vos chamans à neuf feuilles. Son corps a déjà atteint le stade intermédiaire d'Ascendant. Si cela vous intéresse, contactez-nous à tout moment! » Sur ces mots, il ne prit même pas le temps d'attendre une réponse et disparut rapidement.
+Sima rit, les yeux brillants, et ajouta soudain: « Je transmettrai un message du Maître de la Secte Shi Yin. Dans ma secte, nous possédons encore le cadavre d'un ancêtre du Clan Ju Mo, qui a autrefois abattu nombre de vos chamans à neuf feuilles. Son corps a déjà atteint le stade intermédiaire d'Ascendant. Si cela vous intéresse, contactez-nous à tout moment! » Sur ces mots, il ne prit même pas le temps d'attendre une réponse et disparut rapidement.
 
 Les deux diacres cadavres suivirent prestement, et les trois s'évanouirent dans le nuage noir.
 
@@ -100,13 +100,13 @@ Dès que l'Arbre Spirituel Ancestral de la Réincarnation commença sa croissanc
 
 Il absorba tous les nutriments destinés à l'arbre, provoquant l'effondrement du précieux germe de l'Arbre Spirituel Ancestral de la Réincarnation.
 
-Cette scène stupéfiante laissa tous les membres du Clan des Immortels Délaissés sans voix. Le quatrième ancêtre, furieux, dut sacrifier des tatouages pour finalement localiser Situ Nan.
+Cette scène stupéfiante laissa tous les membres du Clan Xian Yi sans voix. Le quatrième ancêtre, furieux, dut sacrifier des tatouages pour finalement localiser Situ Nan.
 
 Situ Nan ricana avec arrogance face au quatrième ancêtre et disparut, ne laissant derrière lui qu'une voix portée par le vent: « Merde, c'était infect! Si j'avais su que c'était aussi dégueulasse, je ne l'aurais pas mangé! »
 
 Les yeux du quatrième ancêtre, un vieillard aux cheveux blancs, devinrent si injectés de sang que des larmes de sang menaçaient de couler. Il poussa un rugissement et chargea pour poursuivre Situ Nan. Ce dernier n'avait pas seulement dévoré un Arbre de la Réincarnation, mais un Esprit Ancestral!
 
-C'était l'un des cinq Esprits Ancestraux que le Clan des Immortels Délaissés avait nourri pendant des dizaines de milliers d'années. Une fois qu'un Esprit Ancestral est mature et combiné à un sort spécial, il peut invoquer un corps spirituel depuis le vide. Ce corps fusionne alors avec l'Esprit pour créer un chaman à dix feuilles!
+C'était l'un des cinq Esprits Ancestraux que le Clan Xian Yi avait nourri pendant des dizaines de milliers d'années. Une fois qu'un Esprit Ancestral est mature et combiné à un sort spécial, il peut invoquer un corps spirituel depuis le vide. Ce corps fusionne alors avec l'Esprit pour créer un chaman à dix feuilles!
 
 Mais un Esprit Ancestral venait d'être dévoré sous ses yeux. Sa rage atteignit les sommets de la folie.
 
@@ -122,9 +122,9 @@ Lorsque le Sens Divin de Situ Nan se déploya, il localisa Wang Lin et se télé
 
 Sur ces mots, il saisit Wang Lin et s'élança à toute allure.
 
-La vitesse de Situ Nan était fulgurante. En un clin d'œil, lui et Wang Lin avaient quitté le continent Suzaku pour mettre le cap sur la Petite Terre des Flammes du Nord.
+La vitesse de Situ Nan était fulgurante. En un clin d'œil, lui et Wang Lin avaient quitté le continent Suzaku pour mettre le cap sur la Petite Terre Bei Yan Ji.
 
-Le quatrième ancêtre du Clan des Immortels Délaissés semblait résolu à ne pas lâcher la trace de Situ Nan.
+Le quatrième ancêtre du Clan Xian Yi semblait résolu à ne pas lâcher la trace de Situ Nan.
 
 Pendant sa fuite, Situ Nan ne montrait aucune crainte; il ralentissait même parfois pour permettre au quatrième ancêtre de le rattraper.
 

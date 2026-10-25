@@ -50,7 +50,7 @@ Tous les cultivateurs sur son passage explosèrent et périrent avant même qu'i
 
 Wang Lin avait passé sa vie dans le massacre, mais le nombre de morts lors de cette guerre dépassait de loin toutes les personnes qu'il avait tuées auparavant. C'était la première fois qu'il était confronté à une telle guerre.
 
-La bataille entre la planète Suzaku et le Clan des Immortels Délaissés était véritablement insignifiante en comparaison!
+La bataille entre la planète Suzaku et le Clan Xian Yi était véritablement insignifiante en comparaison!
 
 La situation s'inversa. Le doigt du dieu ancien siffla à travers l'espace, et tous les cultivateurs devant lui s'effondrèrent, incapables de le ralentir. Le doigt se dirigea vers le Saint Démon Noir.
 

@@ -16,7 +16,7 @@ Il fixa Wang Lin, allongé là, et ses yeux furent envahis par une excitation et
 
 Il ne s'attendait pas à ce qu'une telle aubaine lui tombe dessus alors qu'il ne faisait que survoler la région.
 
-« L'aura de cet homme a disparu et il est dans un état semi-mort, c'est parfait pour que je le transforme en marionnette. Avec une telle créature, je pourrai balayer tous les disciples de deuxième génération de la Secte du Dragon Bleu! Si je parviens à attirer l'attention du Vieil Ancêtre et à devenir son disciple, alors je m'élèverai d'un bond vers les cieux! » À ces pensées, l'excitation de Kang Ren monta d'un cran.
+« L'aura de cet homme a disparu et il est dans un état semi-mort, c'est parfait pour que je le transforme en marionnette. Avec une telle créature, je pourrai balayer tous les disciples de deuxième génération de la Secte Cang Long! Si je parviens à attirer l'attention du Vieil Ancêtre et à devenir son disciple, alors je m'élèverai d'un bond vers les cieux! » À ces pensées, l'excitation de Kang Ren monta d'un cran.
 
 Bien qu'exalté, il n'en oublia pas la prudence. Il s'arrêta à quelques centaines de pieds de Wang Lin, prêt à s'enfuir pour appeler sa secte si la situation tournait mal. Après tout, s'il ne pouvait s'approprier le butin, rapporter cette découverte à sa secte constituerait déjà un exploit majeur.
 
@@ -40,7 +40,7 @@ Puis, d'un revers de manche, Kang Ren se laissa envelopper par un vent noir. Con
 
 « J'ai vraiment fait fortune aujourd'hui! Haha, le ciel a des yeux, et il veut vraiment que je m'élève! » Kang Ren était transporté par l'excitation et n'osait pas s'attarder dehors. Sa seule pensée était de regagner la secte pour procéder à la transformation de la marionnette!
 
-La Secte du Dragon Bleu était située sur une immense chaîne de montagnes entourée de poisons. Les sommets environnants avaient été creusés pour former d'innombrables chambres de pierre servant de grottes.
+La Secte Cang Long était située sur une immense chaîne de montagnes entourée de poisons. Les sommets environnants avaient été creusés pour former d'innombrables chambres de pierre servant de grottes.
 
 À l'œil nu, il était difficile de percevoir la fin de cette étendue montagneuse infinie. La secte comptait près de 50 000 disciples, mais la plupart étaient soit en voyage, soit en culture isolée. Hormis les réunions annuelles, les rencontres y étaient rares.
 

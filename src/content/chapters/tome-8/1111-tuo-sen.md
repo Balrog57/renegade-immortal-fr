@@ -36,7 +36,7 @@ Peu après, alors que les ondulations s'estompaient, des rayons de lumière jail
 
 « Les... les Immortels! » s'exclamèrent les mortels au sol avant de trembler de peur. Certains se précipitèrent aussitôt à l'intérieur de leurs maisons, n'osant plus ressortir.
 
-« Ne dérangez pas ces mortels; rassemblez-vous rapidement dans la Mer des Démons! » Une voix de commandement tonna comme le tonnerre. Simultanément, les cultivateurs qui descendaient ne ralentirent pas et s'envolèrent vers l'horizon.
+« Ne dérangez pas ces mortels; rassemblez-vous rapidement dans la Mer Xiu Mo! » Une voix de commandement tonna comme le tonnerre. Simultanément, les cultivateurs qui descendaient ne ralentirent pas et s'envolèrent vers l'horizon.
 
 Ce spectacle se répétait partout sur la planète Suzaku. Ce changement prodigieux plongea les empires mortels dans la panique; les gens tremblaient de tous leurs membres, ne sachant que faire. Heureusement, ces immortels n'infligèrent aucun mal aux mortels et s'éloignèrent dès leur apparition.
 
@@ -46,13 +46,13 @@ Chacun des cultivateurs étrangers traversant le ciel était assez puissant pour
 
 L'expression de Zhou Wutai était sombre. Très peu des cultivateurs survolant les cieux étaient des adversaires à sa portée. Quant aux autres, leur seule aura suffisait à lui couper le souffle.
 
-Heureusement, bien que ces cultivateurs appartenaient à de nombreuses factions différentes, aucune n'importuna les locaux. Tous fonçaient vers la Mer des Démons.
+Heureusement, bien que ces cultivateurs appartenaient à de nombreuses factions différentes, aucune n'importuna les locaux. Tous fonçaient vers la Mer Xiu Mo.
 
 Le ciel fut bientôt saturé de traînées lumineuses et, un instant plus tard, une ombre gigantesque apparut. Le soleil fut occulté par cette masse immense; peu à peu, la surface de la planète fut plongée dans la demi-obscurité. Ces ombres étaient les palais du Temple Céleste du Tonnerre. Ils ne descendirent pas sur la planète Suzaku, mais restèrent en orbite. Après tout, la planète Suzaku était à moitié dévastée et ne pouvait supporter les puissantes fluctuations émanant de ces palais.
 
 Peu après l'apparition des ombres, des cercueils commencèrent à descendre. Il y avait des cercueils de toutes tailles, entourés par une multitude de cultivateurs.
 
-En volant vers la Mer des Démons, ils aperçurent naturellement la statue gigantesque posée au sol: celle de la Secte du Ciel Nuageux. Un cultivateur arrogant de Luotian vit qu'une minuscule planète comme celle-ci avait osé ériger une telle statue. Il eut l'impression qu'elle lui était familière, mais n'y prêta pas attention. Il laissa échapper un reniflement méprisant et s'apprêta à la détruire sur son passage.
+En volant vers la Mer Xiu Mo, ils aperçurent naturellement la statue gigantesque posée au sol: celle de la Secte Yun Tian. Un cultivateur arrogant de Luotian vit qu'une minuscule planète comme celle-ci avait osé ériger une telle statue. Il eut l'impression qu'elle lui était familière, mais n'y prêta pas attention. Il laissa échapper un reniflement méprisant et s'apprêta à la détruire sur son passage.
 
 Cependant, alors que sa main droite allait descendre, une voix féminine retentit derrière lui: « Arrêtez! »
 
@@ -64,22 +64,22 @@ Sur ce, elle l'ignora, contemplant la statue d'un regard complexe avant de soupi
 
 Bien que Luotian ait déjà retiré à Wang Lin son titre de Céleste du Tonnerre, la bataille de Wang Lin pour ce titre restait célèbre. Ce n'était pas un événement que l'on oublierait en quelques centaines d'années. Le cuir chevelu du cultivateur arrogant se hérissa. Il savait que le nom taoïste de Xu Mu était Maître Démon, dont les massacres avaient été colossaux, et qu'il n'était pas homme à provoquer. Trouvant mesquin et vain de détruire la statue d'un tel être, il fit volte-face et s'éloigna rapidement.
 
-Maître Yan Leizi et son entourage, ainsi que les membres de la Secte des Cadavres, remarquèrent également la scène. Une fois les ordres donnés, plus personne n'osa envisager de briser la statue.
+Maître Yan Leizi et son entourage, ainsi que les membres de la Secte Shi Yin, remarquèrent également la scène. Une fois les ordres donnés, plus personne n'osa envisager de briser la statue.
 
-La Secte des Cadavres, Luotian et les diverses puissances de l'Alliance s'étaient tous rassemblés sur la planète Suzaku. Ils convergeaient rapidement vers la Mer des Démons selon les informations reçues. La planète Suzaku n'étant pas très vaste, ils atteignirent bientôt leur destination.
+La Secte Shi Yin, Luotian et les diverses puissances de l'Alliance s'étaient tous rassemblés sur la planète Suzaku. Ils convergeaient rapidement vers la Mer Xiu Mo selon les informations reçues. La planète Suzaku n'étant pas très vaste, ils atteignirent bientôt leur destination.
 
 En réalité, aucun camp n'avait envoyé une armée immense; au total, on comptait moins de 7 000 cultivateurs. Ils constituaient la première vague d'exploration. Car bien que les informations de Wang Lin fussent hautement crédibles, il fallait encore les vérifier. D'autres cultivateurs stagnaient en orbite autour de la planète Suzaku, regroupés par factions, attendant les nouvelles de cette avant-garde.
 
-Toutes les restrictions bloquant le chemin vers la Terre de l'Ancien Dieu n'étaient rien pour ces cultivateurs. Ils franchirent les barrières et passèrent au-delà des Étoiles Brisées pour atteindre l'entrée de la Terre de l'Ancien Dieu.
+Toutes les restrictions bloquant le chemin vers la Terre Gu Shen n'étaient rien pour ces cultivateurs. Ils franchirent les barrières et passèrent au-delà des Étoiles Brisées pour atteindre l'entrée de la Terre Gu Shen.
 
-Des rugissements féroces s'échappèrent de l'ouverture ovale menant à la Terre de l'Ancien Dieu. La première épreuve consistait à traverser un gouffre sombre parsemé de rochers flottants. Cependant, à cet instant précis, tous les rochers s'effondrèrent et des paires d'yeux féroces s'illuminèrent dans le noir.
+Des rugissements féroces s'échappèrent de l'ouverture ovale menant à la Terre Gu Shen. La première épreuve consistait à traverser un gouffre sombre parsemé de rochers flottants. Cependant, à cet instant précis, tous les rochers s'effondrèrent et des paires d'yeux féroces s'illuminèrent dans le noir.
 
 Cet endroit était celui où Wang Lin avait failli périr et où le crapaud de tonnerre était apparu; il était désormais peuplé d'innombrables bêtes féroces qui attendaient en silence.
 
-Les rugissements provenant de l'ouverture de la Mer des Démons firent hésiter un instant les cultivateurs environnants, mais aucun ne fit marche arrière. Ils s'engouffrèrent tous dans le passage.
+Les rugissements provenant de l'ouverture de la Mer Xiu Mo firent hésiter un instant les cultivateurs environnants, mais aucun ne fit marche arrière. Ils s'engouffrèrent tous dans le passage.
 
 Dès que les premiers apparurent, un rayon de lumière rouge jaillit du fond de l'abîme sans fin. Au moment où un cultivateur allait faire un mouvement, un éclair rouge surgit des profondeurs et le frappa de plein fouet. Le corps de l'homme trembla, paralysé par l'engourdissement. À cet instant, une lumière rouge s'approcha: c'était un python écarlate de près de 100 000 pieds de long qui dévora instantanément le cultivateur.
 
 Cet acte fut le signal du massacre. De nombreuses bêtes féroces chargèrent, entamant une lutte acharnée pour la survie contre les nouveaux arrivants! Le sang commença à pleuvoir dans l'abîme, excitant la nature sauvage des créatures. Tandis que le combat faisait rage, les fluctuations de l'énergie originelle se propagèrent progressivement vers les profondeurs du gouffre et finirent par troubler un être endormi dans un endroit que même Wang Lin n'avait jamais exploré. Deux yeux rouge sang levèrent le regard vers les cultivateurs suspendus au-dessus.
 
-Au même moment, au sein de la mer de sang nichée au cœur de la Terre de l'Ancien Dieu, Tuo Sen, aux cheveux roux, était assis sur un immense bloc de pierre conique. Son doigt traînait sur le sol, produisant un crissement strident. Il leva lentement la tête, son visage hideux laissant filtrer un sourire cruel, puis leva sa main droite et la referma brutalement sur le côté!
+Au même moment, au sein de la mer de sang nichée au cœur de la Terre Gu Shen, Tuo Sen, aux cheveux roux, était assis sur un immense bloc de pierre conique. Son doigt traînait sur le sol, produisant un crissement strident. Il leva lentement la tête, son visage hideux laissant filtrer un sourire cruel, puis leva sa main droite et la referma brutalement sur le côté!

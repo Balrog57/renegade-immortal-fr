@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1267 - Youre Liu Jinbiao
 slug: vous-etes-liu-jinbiao
 ---
-Alors que Wang Lin calculait l'avenir à l'aide de la Perle du Défieur, les disciples de la Secte de l'Origine avaient déjà fini de tout emballer. Ils attendaient Wang Lin sur la place principale.
+Alors que Wang Lin calculait l'avenir à l'aide de la Perle du Défieur, les disciples de la Secte Gui Yuan avaient déjà fini de tout emballer. Ils attendaient Wang Lin sur la place principale.
 
-À l'origine, ils discutaient entre eux. Leurs paroles étaient empreintes de confusion et d'excitation; ils savaient déjà que la Secte de l'Origine ne serait pas dissoute, mais qu'elle allait déménager vers la région de rang 7.
+À l'origine, ils discutaient entre eux. Leurs paroles étaient empreintes de confusion et d'excitation; ils savaient déjà que la Secte Gui Yuan ne serait pas dissoute, mais qu'elle allait déménager vers la région de rang 7.
 
-Cependant, à cet instant précis, le ciel clair s'obscurcit et un cri déchirant retentit. Un rayon de lumière dorée fondit sur la Secte de l'Origine.
+Cependant, à cet instant précis, le ciel clair s'obscurcit et un cri déchirant retentit. Un rayon de lumière dorée fondit sur la Secte Gui Yuan.
 
-En un instant, cette lumière dorée arriva, transportant un morceau de jade à son centre. Une fois arrivé, le jade plana au-dessus de la place de la Secte de l'Origine.
+En un instant, cette lumière dorée arriva, transportant un morceau de jade à son centre. Une fois arrivé, le jade plana au-dessus de la place de la Secte Gui Yuan.
 
 Ce changement soudain provoqua un tollé parmi les disciples. Même les expressions de Lu Yanfei et de sa troupe changèrent, car l'aura qui s'en dégageait était de celles que seuls les vieux monstres du stade Briseur du Nirvana pouvaient libérer!
 
@@ -20,21 +20,21 @@ Il ne s'agissait pas d'un simple cultivateur du stade Briseur du Nirvana, mais d
 
 « Ce vieil homme est Liu Jinbiao, son nom de Dao est: Jin Biaozi! »
 
-La voix majestueuse émana du jade et enveloppa toute la Secte de l'Origine. Même le continent de Mo Luo trembla sous la puissance de cette voix.
+La voix majestueuse émana du jade et enveloppa toute la Secte Gui Yuan. Même le continent de Mo Luo trembla sous la puissance de cette voix.
 
-Lu Yanfei, qui avait beaucoup vu au sein de la puissante Secte Éternelle du rang 8, n'était pas une simple cultivatrice du stade Scruteur du Nirvana. Son regard eut un éclat et elle joignit les mains en signe de respect. « Je ne sais pas pourquoi le Senior Jin Biaozi est venu dans ma Secte de l'Origine! »
+Lu Yanfei, qui avait beaucoup vu au sein de la puissante Secte Éternelle du rang 8, n'était pas une simple cultivatrice du stade Scruteur du Nirvana. Son regard eut un éclat et elle joignit les mains en signe de respect. « Je ne sais pas pourquoi le Senior Jin Biaozi est venu dans ma Secte Gui Yuan! »
 
-« Un désastre vous menace et vous n'en avez même pas conscience, alors je vais vous l'apprendre. Il y a trois jours, quelqu'un a trouvé ce vieil homme. Cette personne voulait acheter la vie de toute votre Secte de l'Origine! »
+« Un désastre vous menace et vous n'en avez même pas conscience, alors je vais vous l'apprendre. Il y a trois jours, quelqu'un a trouvé ce vieil homme. Cette personne voulait acheter la vie de toute votre Secte Gui Yuan! »
 
-La voix était chargée d'une pression inexplicable. Alors qu'elle résonnait, elle ressemblait au tonnerre et se transformait en une loi fusionnant avec le monde. Tout cela se mua en une pression écrasante qui pesait sur les esprits des disciples de la Secte de l'Origine!
+La voix était chargée d'une pression inexplicable. Alors qu'elle résonnait, elle ressemblait au tonnerre et se transformait en une loi fusionnant avec le monde. Tout cela se mua en une pression écrasante qui pesait sur les esprits des disciples de la Secte Gui Yuan!
 
 L'expression de Lu Yanfei changea instantanément!
 
-« Cependant, ce vieil homme n'a aucun différend avec votre Secte de l'Origine. Bien que j'aie besoin de cristaux d'origine pour raffiner des pilules, je préférerais ne pas agir ainsi. Toutefois, si je n'ai d'autre choix, je serai contraint de prendre la vie de l'ensemble de votre Secte! »
+« Cependant, ce vieil homme n'a aucun différend avec votre Secte Gui Yuan. Bien que j'aie besoin de cristaux d'origine pour raffiner des pilules, je préférerais ne pas agir ainsi. Toutefois, si je n'ai d'autre choix, je serai contraint de prendre la vie de l'ensemble de votre Secte! »
 
-Le regard de Lu Yanfei devint glacial alors qu'elle ricanait, mais les autres disciples de la Secte de l'Origine étaient pétris de peur.
+Le regard de Lu Yanfei devint glacial alors qu'elle ricanait, mais les autres disciples de la Secte Gui Yuan étaient pétris de peur.
 
-« Vous avez tous déjà fait vos bagages, prêts pour la dissolution. Peu importe, ce vieil homme est lié de longue date au maître de la Secte Éternelle, qui m'a autrefois dû une faveur. Si vous me satisfaites, ce vieil homme enverra une lettre et empêchera la dissolution de votre Secte de l'Origine! »
+« Vous avez tous déjà fait vos bagages, prêts pour la dissolution. Peu importe, ce vieil homme est lié de longue date au maître de la Secte Éternelle, qui m'a autrefois dû une faveur. Si vous me satisfaites, ce vieil homme enverra une lettre et empêchera la dissolution de votre Secte Gui Yuan! »
 
 « Ce vieil homme ne souhaite pas anéantir toute votre Secte. Si vous pouvez fournir suffisamment de cristaux d'origine ou une valeur équivalente, je mettrai fin à cette affaire! » La voix antique dégageait une aura indéniable doublée d'une intention menaçante. En raison de la puissance du stade Briseur du Nirvana, cette menace pouvait ébranler l'esprit de quiconque l'entendait.
 
@@ -42,7 +42,7 @@ Lu Yanfei garda le silence, mais son expression devint encore plus froide.
 
 À ce moment précis, dans la chambre, Wang Lin ouvrit les yeux et fixa le mur comme si son regard pouvait le transpercer.
 
-« Liu Jinbiao! » Le visage de Wang Lin se figea alors qu'il se levait, se séparant de l'âme de Tian Yunzi. Il avala le Sceau Céleste et quitta la chambre pour apparaître dans le ciel, au-dessus de la place de la Secte de l'Origine.
+« Liu Jinbiao! » Le visage de Wang Lin se figea alors qu'il se levait, se séparant de l'âme de Tian Yunzi. Il avala le Sceau Céleste et quitta la chambre pour apparaître dans le ciel, au-dessus de la place de la Secte Gui Yuan.
 
 « Le temps de ce vieil homme est limité. Je ne vous donnerai que le temps d'un demi-bâton d'encens pour réfléchir. Après ce demi-bâton d'encens... »
 
@@ -56,15 +56,15 @@ Ce jade était cristallin; le soleil, la lune et les étoiles s'y dessinaient et
 
 Même en l'examinant de près, on ne ressentait rien d'anormal. Ce n'était qu'en le regardant que l'on éprouvait ce sentiment de choc!
 
-«... Après un demi-bâton d'encens, si vous n'envoyez pas les cristaux d'origine, tous les membres de votre Secte de l'Origine seront instantanément anéantis! » Le vieil homme était assis là comme s'il se parlait à lui-même. Ces paroles furent absorbées par le jade et transmises à la Secte de l'Origine, située à des centaines de milliers de kilomètres de là!
+«... Après un demi-bâton d'encens, si vous n'envoyez pas les cristaux d'origine, tous les membres de votre Secte Gui Yuan seront instantanément anéantis! » Le vieil homme était assis là comme s'il se parlait à lui-même. Ces paroles furent absorbées par le jade et transmises à la Secte Gui Yuan, située à des centaines de milliers de kilomètres de là!
 
-« Cependant, ce vieil homme sait que votre Secte de l'Origine ne possède rien de précieux. Peu importe, vous n'avez qu'à sortir tous vos sacs et les objets de vos espaces de stockage, et ce vieil homme fera comme si de rien n'était. Non seulement cela dissipera le danger, mais j'enverrai également une lettre au maître de la Secte Éternelle... Ce vieil homme fait rarement preuve d'une telle compassion, alors réfléchissez bien! » En parlant, le vieil homme secoua la tête. Il maîtrisait parfaitement le ton de ses paroles.
+« Cependant, ce vieil homme sait que votre Secte Gui Yuan ne possède rien de précieux. Peu importe, vous n'avez qu'à sortir tous vos sacs et les objets de vos espaces de stockage, et ce vieil homme fera comme si de rien n'était. Non seulement cela dissipera le danger, mais j'enverrai également une lettre au maître de la Secte Éternelle... Ce vieil homme fait rarement preuve d'une telle compassion, alors réfléchissez bien! » En parlant, le vieil homme secoua la tête. Il maîtrisait parfaitement le ton de ses paroles.
 
 Une fois son discours achevé, il ouvrit les yeux. Son regard brilla et il afficha un sourire suffisant.
 
-Il avait déjà reçu l'information selon laquelle la Secte de l'Origine allait probablement être dissoute; il attendait donc ici. Il attendait que les cultivateurs reviennent de la compétition pour profiter de leur panique et réussir son coup d'un seul trait.
+Il avait déjà reçu l'information selon laquelle la Secte Gui Yuan allait probablement être dissoute; il attendait donc ici. Il attendait que les cultivateurs reviennent de la compétition pour profiter de leur panique et réussir son coup d'un seul trait.
 
-Cependant, en raison du silence imposé par la Secte Éternelle sur toutes les informations, il ignorait l'éclat avec lequel la Secte de l'Origine s'était illustrée à la Secte Éternelle, tout comme l'existence même de Wang Lin!
+Cependant, en raison du silence imposé par la Secte Éternelle sur toutes les informations, il ignorait l'éclat avec lequel la Secte Gui Yuan s'était illustrée à la Secte Éternelle, tout comme l'existence même de Wang Lin!
 
 « Les chances de réussite sont de presque 100 %. Ce vieil homme ne tente jamais rien qui puisse échouer! C'est dommage que je ne puisse pas me présenter en personne. Cette Lu Yanfei est connue comme la première beauté de la région de rang 5. Quel regret... Si ce vieil homme pouvait goûter à ses charmes, ce serait merveilleux. »
 

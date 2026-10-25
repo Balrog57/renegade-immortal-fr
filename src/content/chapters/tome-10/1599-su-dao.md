@@ -60,7 +60,7 @@ On ignorait depuis combien de temps Wang Lin était assis devant l'instrument av
 
 Même Grande Fortune était pétrifié. Il buvait des gorgées de vin les unes après les autres, oubliant sa douleur pour fixer son poignet droit.
 
-Cette musique était celle que Li Muwan jouait jadis. Ce n'était pas la même mélodie, mais elle avait le même charme, et elle avait aussi résonné entre les mains de la femme aveugle de la Terre des Esprits Démoniaques.
+Cette musique était celle que Li Muwan jouait jadis. Ce n'était pas la même mélodie, mais elle avait le même charme, et elle avait aussi résonné entre les mains de la femme aveugle de la Terre Yao Ling.
 
 À cet instant, des larmes coulèrent lentement des yeux clos de Wang Lin. Ses larmes tombèrent sur la cithare, semblant fusionner avec la chanson pour se disperser dans la musique.
 
@@ -90,7 +90,7 @@ La nuit était tombée et la pleine lune trônait dans le ciel. Dans l'obscurit�
 
 Wang Lin avait attendu plus d'un mois. Il attendait cette scène qui l'avait poussé à s'éveiller dans la confusion et à passer ses journées à boire du vin. Dans ce rêve, il avait vu son autre moi apparaître sur le pont de la ville de Su. Pourtant, au lieu de rencontrer son double, il était tombé sur ce vieil homme.
 
-« C'est inexplicable... Je connais la Secte de l'Affinement de l'Âme. Je peux même deviner que celui qui y apparaîtra dans des centaines d'années est mon moi du rêve... J'avais déjà tout compris, mais pourquoi ne le vois-je pas ici? » Les yeux de Wang Lin étaient emplis de confusion. Il ne comprenait plus rien; il se sentait lui-même s'effacer.
+« C'est inexplicable... Je connais la Secte Lian Hun. Je peux même deviner que celui qui y apparaîtra dans des centaines d'années est mon moi du rêve... J'avais déjà tout compris, mais pourquoi ne le vois-je pas ici? » Les yeux de Wang Lin étaient emplis de confusion. Il ne comprenait plus rien; il se sentait lui-même s'effacer.
 
 Tandis que Wang Lin restait plongé dans son incertitude, le bateau s'éloignait de plus en plus. Voyant qu'il ne répondait pas, le vieillard sourit et cria de nouveau:
 

@@ -26,15 +26,15 @@ En contemplant le roi moustique, ses yeux étaient empreints d'incrédulité. Il
 
 « Ah, ne pas avoir utilisé l'empreinte dorée plus tôt était un acte d'une grande malveillance. Maintenant que j'y regarde de plus près, il est clair qu'il avait les moyens de m'empêcher de le rattraper, mais il m'a délibérément laissé le rejoindre... Cet homme est trop sournois! » Du Qing esquissa un sourire amer.
 
-Quelques jours passèrent encore. Alors que Du Qing sentait ses limites approcher, la Secte du Dragon Bleu apparut à l'horizon.
+Quelques jours passèrent encore. Alors que Du Qing sentait ses limites approcher, la Secte Cang Long apparut à l'horizon.
 
 En voyant la secte, Du Qing se tourna vers Wang Lin, qui restait parfaitement calme et ne semblait pas essoufflé pour le moins. Puis il jeta un regard à la bête sous Wang Lin, qui semblait ne pas avoir assez volé et en redemander. Du Qing ne savait plus que dire.
 
-Dès que les deux approchèrent, tous les disciples de la Secte du Dragon Bleu sortirent. Les trois anciens dont les pouvoirs n'étaient pas scellés s'envolèrent également dans le ciel.
+Dès que les deux approchèrent, tous les disciples de la Secte Cang Long sortirent. Les trois anciens dont les pouvoirs n'étaient pas scellés s'envolèrent également dans le ciel.
 
 Ils avaient initialement pensé que leur Ancêtre avait capturé l'individu et revenait avec lui. Cependant, en voyant l'Ancien essoufflé tandis que Wang Lin paraissait serein, ils furent stupéfaits, ne comprenant pas ce qui s'était produit.
 
-« Pourquoi restez-vous là sans rien faire? Venez saluer le bon ami de cet ancien! C'est un proche ami qui nous a grandement aidés. Cet ancien l'a invité ici pour lui exprimer sa gratitude. » Le regard sévère de Du Qing fit immédiatement reculer les disciples de la Secte du Dragon Bleu.
+« Pourquoi restez-vous là sans rien faire? Venez saluer le bon ami de cet ancien! C'est un proche ami qui nous a grandement aidés. Cet ancien l'a invité ici pour lui exprimer sa gratitude. » Le regard sévère de Du Qing fit immédiatement reculer les disciples de la Secte Cang Long.
 
 « Camarade cultivateur Wang, je vous en prie, soyez le bienvenu... » Du Qing sourit et salua Wang Lin.
 
@@ -54,51 +54,51 @@ La salle d'alchimie était également somptueuse. Tout ce qu'elle contenait prov
 
 « Ça ira. » Wang Lin observa les lieux puis s'assit. Il tourna un regard vers Du Qing et prit soudain la parole.
 
-« Camarade cultivateur Du, je viens d'un autre continent. Je me demandais: où se trouve la principale veine de feu terrestre du Continent du Taureau Céleste? » Le Continent du Taureau Céleste était trop vaste; Wang Lin ne pourrait pas trouver la veine principale en peu de temps sans y consacrer énormément de temps.
+« Camarade cultivateur Du, je viens d'un autre continent. Je me demandais: où se trouve la principale veine de feu terrestre du Continent Tian Niu? » Le Continent Tian Niu était trop vaste; Wang Lin ne pourrait pas trouver la veine principale en peu de temps sans y consacrer énormément de temps.
 
 En entendant cela, Du Qing comprit l'intention de Wang Lin. Après une courte réflexion, il s'assit face à lui et répondit:
 
-« Le Continent du Taureau Céleste abrite l'élément feu et est composé majoritairement de veines de feu terrestre. La rumeur prétend que ces veines sont interconnectées pour former une formation qui réprime le Taureau Céleste. La légende raconte que le Taureau Céleste, qui possédait d'immenses pouvoirs, fut massacré par l'Ancêtre Céleste au commencement du Continent Astral Immortel; son corps devint le continent et son âme originelle est maintenue sous pression par le feu. »
+« Le Continent Tian Niu abrite l'élément feu et est composé majoritairement de veines de feu terrestre. La rumeur prétend que ces veines sont interconnectées pour former une formation qui réprime le Taureau Céleste. La légende raconte que le Taureau Céleste, qui possédait d'immenses pouvoirs, fut massacré par l'Ancêtre Céleste au commencement du Continent Astral Immortel; son corps devint le continent et son âme originelle est maintenue sous pression par le feu. »
 
 « Ce n'est qu'une rumeur. Beaucoup ont cherché pendant des éternités sans trouver de piste. »
 
 « Cependant, il existe une autre théorie. Les veines de feu n'auraient pas été placées par l'Ancêtre Céleste, mais seraient les propres veines du Taureau Céleste... La principale veine de feu terrestre que vous cherchez devrait être la plus grande de toutes, celle qui traverse tout le continent! »
 
-« Cette veine possède un point de jonction au sein de la Secte de la Grande Âme! » En prononçant ces derniers mots, la voix de Du Qing se fit soudainement basse. Il agita sa main droite et des restrictions apparurent pour sceller la zone.
+« Cette veine possède un point de jonction au sein de la Secte Da Hun! » En prononçant ces derniers mots, la voix de Du Qing se fit soudainement basse. Il agita sa main droite et des restrictions apparurent pour sceller la zone.
 
-Du Qing murmura: « La Secte de la Grande Âme fait partie des neuf sectes et treize factions du Continent de l'Est. Ils possèdent d'innombrables experts et de nombreux sorts mystérieux. Lorsqu'on évoque cette secte, il faut rester prudent. »
+Du Qing murmura: « La Secte Da Hun fait partie des neuf sectes et treize factions du Continent de l'Est. Ils possèdent d'innombrables experts et de nombreux sorts mystérieux. Lorsqu'on évoque cette secte, il faut rester prudent. »
 
-« Le feu est l'une de mes essences et j'ai une forte affinité avec le feu terrestre. Chaque fois que je me rends à la Secte de la Grande Âme, le feu en mon corps est réprimé. C'est comme si une volonté puissante forçait tout feu à plier. »
+« Le feu est l'une de mes essences et j'ai une forte affinité avec le feu terrestre. Chaque fois que je me rends à la Secte Da Hun, le feu en mon corps est réprimé. C'est comme si une volonté puissante forçait tout feu à plier. »
 
-« Selon mon analyse, c'est là que se situe la principale veine de feu terrestre du continent. Il est même probable qu'un individu possédant une essence de feu extrêmement puissante réside au sein de la Secte de la Grande Âme. »
+« Selon mon analyse, c'est là que se situe la principale veine de feu terrestre du continent. Il est même probable qu'un individu possédant une essence de feu extrêmement puissante réside au sein de la Secte Da Hun. »
 
-« Je connais également l'Ancêtre de la Secte de la Grande Âme, le Très Respecté Taureau Vert; son niveau de culture est très élevé. Il possède lui aussi, comme vous, un corps véritable d'essence! » Lorsque Du Qing parla du Très Respecté Taureau Vert, ses yeux trahirent une profonde crainte.
+« Je connais également l'Ancêtre de la Secte Da Hun, le Très Respecté Taureau Vert; son niveau de culture est très élevé. Il possède lui aussi, comme vous, un corps véritable d'essence! » Lorsque Du Qing parla du Très Respecté Taureau Vert, ses yeux trahirent une profonde crainte.
 
 Les yeux de Wang Lin se rétrécirent; il retint ce nom.
 
-« Avec mon niveau actuel, je ne suis qualifié que pour être un Ancien extérieur à la Secte de la Grande Âme. J'ai un aîné de mon clan qui est Ancien intérieur. C'est grâce à cette relation et à mon rang d'Ancien extérieur que la Secte du Dragon Bleu bénéficie de la protection de la Secte de la Grande Âme. »
+« Avec mon niveau actuel, je ne suis qualifié que pour être un Ancien extérieur à la Secte Da Hun. J'ai un aîné de mon clan qui est Ancien intérieur. C'est grâce à cette relation et à mon rang d'Ancien extérieur que la Secte Cang Long bénéficie de la protection de la Secte Da Hun. »
 
 « Le camarade cultivateur Wang possédant un trésor offert par un Grand Empyréen, vous devez être traité comme un hôte d'honneur. Mais si jamais vous veniez à affecter la principale veine de feu terrestre, alors... » Du Qing laissa sa menace en suspens.
 
-L'expression de Wang Lin resta imperturbable. Il ne connaissait que deux personnes à la Secte de la Grande Âme.
+L'expression de Wang Lin resta imperturbable. Il ne connaissait que deux personnes à la Secte Da Hun.
 
-« Avez-vous entendu parler de deux disciples de la Secte de la Grande Âme nommées 'Fan Shanmeng' et 'Fan Shanlu'? » demanda Wang Lin en fixant Du Qing.
+« Avez-vous entendu parler de deux disciples de la Secte Da Hun nommées 'Fan Shanmeng' et 'Fan Shanlu'? » demanda Wang Lin en fixant Du Qing.
 
 « Fan Shanmeng!! » L'expression de Du Qing changea radicalement.
 
-« J'ai entendu ce nom. C'est une disciple centrale de la Secte de la Grande Âme et l'un des deux génies de la secte! Le camarade la connaît-il? »
+« J'ai entendu ce nom. C'est une disciple centrale de la Secte Da Hun et l'un des deux génies de la secte! Le camarade la connaît-il? »
 
 « Son nom m'est familier. » Wang Lin réfléchit un instant, puis changea de sujet.
 
-« Qu'en est-il de la Secte Gui Yi? Cette secte se trouve également sur le Continent du Taureau Céleste. Comment se compare-t-elle à la Secte de la Grande Âme? » Le niveau de culture de Kang Ren n'étant pas élevé, il ne pouvait rivaliser avec Du Qing en termes de connaissances. Wang Lin ne disposait que de peu d'informations extraites de lui.
+« Qu'en est-il de la Secte Gui Yi? Cette secte se trouve également sur le Continent Tian Niu. Comment se compare-t-elle à la Secte Da Hun? » Le niveau de culture de Kang Ren n'étant pas élevé, il ne pouvait rivaliser avec Du Qing en termes de connaissances. Wang Lin ne disposait que de peu d'informations extraites de lui.
 
-« La Secte Gui Yi est très puissante et semble actuellement surpasser légèrement la Secte de la Grande Âme. Le classement des neuf sectes et treize factions pourrait changer. Ces dernières années, un disciple nommé Yun Yifeng a émergé au sein de la Secte Gui Yi. Sa culture est impressionnante et son talent immense. Hormis la génération plus ancienne, c'est l'expert numéro un! »
+« La Secte Gui Yi est très puissante et semble actuellement surpasser légèrement la Secte Da Hun. Le classement des neuf sectes et treize factions pourrait changer. Ces dernières années, un disciple nommé Yun Yifeng a émergé au sein de la Secte Gui Yi. Sa culture est impressionnante et son talent immense. Hormis la génération plus ancienne, c'est l'expert numéro un! »
 
-« J'ai eu des contacts avec cet homme. Il est extraordinaire! » Du Qing se remémora comment Yun Yifeng, d'un simple revers d'épée, avait contraint plusieurs membres de la Secte de la Grande Âme à battre en retraite.
+« J'ai eu des contacts avec cet homme. Il est extraordinaire! » Du Qing se remémora comment Yun Yifeng, d'un simple revers d'épée, avait contraint plusieurs membres de la Secte Da Hun à battre en retraite.
 
 « En parlant de Yun Yifeng, je viens de penser à une chose. Il a affirmé qu'il existait quelqu'un qui, après seulement un peu plus de deux mille ans de culture, possédait une puissance insondable. Même lui n'osait dégainer son arme devant cette personne! Même les quatre génies du Continent de l'Est ne seraient pas dignes d'être appelés "génies" face à cet individu! »
 
-« À l'époque, cela avait provoqué une immense onde de choc. Les doutes étaient nombreux, mais la Secte de la Grande Âme a fait preuve d'un rare assentiment tacite et même la Secte Gui Yi n'a fourni aucune explication. »
+« À l'époque, cela avait provoqué une immense onde de choc. Les doutes étaient nombreux, mais la Secte Da Hun a fait preuve d'un rare assentiment tacite et même la Secte Gui Yi n'a fourni aucune explication. »
 
 « Aujourd'hui, après tant d'années, il y a 80 % de chances que ces paroles soient mensongères. Ce vieil homme ne croit pas qu'une telle personne existe... » Tandis que Du Qing parlait, il ne remarqua pas l'étincelle qui traversa les yeux de Wang Lin.
 
@@ -108,4 +108,4 @@ L'expression de Wang Lin resta imperturbable. Il ne connaissait que deux personn
 
 Ses pupilles se contractèrent brusquement et une pensée audacieuse traversa son esprit. Cette idée le fit haleter et son regard vers Wang Lin devint empreint d'une immense incertitude.
 
-« Puisque le Continent du Taureau Céleste possède des veines de feu terrestre, l'un des continents environnants possède-t-il des veines de tonnerre? » Wang Lin esquiva ainsi le sujet que Du Qing venait d'aborder.
+« Puisque le Continent Tian Niu possède des veines de feu terrestre, l'un des continents environnants possède-t-il des veines de tonnerre? » Wang Lin esquiva ainsi le sujet que Du Qing venait d'aborder.

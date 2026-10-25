@@ -124,9 +124,9 @@ Une demi-lune plus tard, il ressortit de la faille spatiale, le sourcil froncé.
 
 « Je crains que l'épée ne soit déjà détruite... »
 
-« Je dois vite retourner à la Secte de l'Affinement de l'Âme et trouver une multitude de jades célestes pour atteindre le stade de la Transformation de l'Âme! » Sur ces mots, Wang Lin disparut. Lorsqu'il réapparut, il se trouvait dans une ancienne matrice de téléportation; il l'activa et quitta Zhao.
+« Je dois vite retourner à la Secte Lian Hun et trouver une multitude de jades célestes pour atteindre le stade de la Transformation de l'Âme! » Sur ces mots, Wang Lin disparut. Lorsqu'il réapparut, il se trouvait dans une ancienne matrice de téléportation; il l'activa et quitta Zhao.
 
-Dans un pays de culture de rang 4 situé à l'ouest de la planète Suzaku — un pays désormais sous le joug du Clan des Immortels Délaissés, dont les habitants étaient devenus leurs vassaux — un homme portant un chapeau de paille se tenait à la frontière. Il était enveloppé d'une aura dorée.
+Dans un pays de culture de rang 4 situé à l'ouest de la planète Suzaku — un pays désormais sous le joug du Clan Xian Yi, dont les habitants étaient devenus leurs vassaux — un homme portant un chapeau de paille se tenait à la frontière. Il était enveloppé d'une aura dorée.
 
 « Wang Lin, tu es enfin revenu. L'Aîné sait déjà que tu es de retour. J'espère que tu ne le décevras pas. » L'homme tapa sur son sac de stockage et un morceau de jade apparut dans sa main.
 
@@ -134,4 +134,4 @@ Dans un pays de culture de rang 4 situé à l'ouest de la planète Suzaku — un
 
 Il fit un pas et disparut.
 
-Dans une ancienne matrice de téléportation du nord du pays de Pilu, une lumière éclatante jaillit et Wang Lin en sortit. Il s'élança immédiatement dans les airs, fonçant droit vers la Secte de l'Affinement de l'Âme.
+Dans une ancienne matrice de téléportation du nord du pays de Pilu, une lumière éclatante jaillit et Wang Lin en sortit. Il s'élança immédiatement dans les airs, fonçant droit vers la Secte Lian Hun.

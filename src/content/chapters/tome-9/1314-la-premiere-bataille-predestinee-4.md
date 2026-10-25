@@ -48,7 +48,7 @@ Deux yeux rouge sang apparurent soudain dans le ciel étoilé. Leur regard sembl
 
 « Invoquez le trésor du Clan Dévorant la Lune: le Neuvième Esprit de l'Extinction! » Les mains du vieil homme formèrent un sceau et il lâcha un rugissement qui déchira les cieux. Du sang jaillit de ses orifices et ses cheveux blancs s'agitèrent étrangement devant lui. Un fantôme vert gigantesque apparut soudainement. Il était impossible d'en distinguer les traits, mais tout son corps émanait une lueur verdâtre. Lorsque Tuo Sen vit cela, ses pupilles se rétractèrent!
 
-En voyant cette lumière verte, Wang Lin tressaillit. Il reconnut vaguement que l'aura provenant de ce fantôme était exactement la même que celle du crâne d'Ancien Dieu situé sous la Terre des Esprits Démoniaques!
+En voyant cette lumière verte, Wang Lin tressaillit. Il reconnut vaguement que l'aura provenant de ce fantôme était exactement la même que celle du crâne d'Ancien Dieu situé sous la Terre Yao Ling!
 
 Chaque trésor avait été conçu spécifiquement pour neutraliser les anciens dieux. S'ils étaient utilisés contre des cultivateurs de la troisième étape, ils pourraient manquer de mordant, mais face aux anciens dieux, ils étaient mortels!
 

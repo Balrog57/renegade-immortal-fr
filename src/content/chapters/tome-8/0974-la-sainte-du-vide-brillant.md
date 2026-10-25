@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 974 - The Saintress of Brilliant Void
 slug: la-sainte-du-vide-brillant
 ---
-Ling Tianhou roula des yeux et ricana sans même accorder un regard à Tian Yunzi. Au lieu de cela, ses yeux se posèrent sur Wang Lin, et il s'exclama: « Wang Lin, il manque un Ancien à la Secte de l'Épée Da Luo de ce vieil homme. Es-tu prêt à devenir un Ancien de la Secte de l'Épée Da Luo? »
+Ling Tianhou roula des yeux et ricana sans même accorder un regard à Tian Yunzi. Au lieu de cela, ses yeux se posèrent sur Wang Lin, et il s'exclama: « Wang Lin, il manque un Ancien à la Secte Da Luo Jian de ce vieil homme. Es-tu prêt à devenir un Ancien de la Secte Da Luo Jian? »
 
 Tian Yunzi fronça les sourcils.
 
@@ -36,7 +36,7 @@ Ling Tianhou hocha la tête avec un sourire. « Lorsque l'Empereur Saint de l'Oi
 
 L'expression de Wang Lin resta calme: « Le Saint de l'Épée est trop aimable. Puisqu'il en est ainsi, je suivrai les conseils du Saint de l'Épée. »
 
-Ling Tianhou rit et tendit la main. « Camarade cultivateur Wang, suis ce vieil homme vers la planète Da Luo. Une fois que l'Abîme des Marées s'ouvrira, nous irons à la grotte céleste! »
+Ling Tianhou rit et tendit la main. « Camarade cultivateur Wang, suis ce vieil homme vers la planète Da Luo. Une fois que l'Abîme Chao Xi s'ouvrira, nous irons à la grotte céleste! »
 
 Wang Lin sourit et hocha la tête. « Je vous prie de me guider! »
 
@@ -60,31 +60,31 @@ Cette énergie d'épée n'était pas émise par des cultivateurs, mais par la pl
 
 C'est ce qui lui donnait cet aspect chaotique. Cependant, Wang Lin réalisa que si quelqu'un parvenait à canaliser cette énergie d'épée, son pouvoir serait capable de secouer la terre!
 
-« La planète Da Luo n'appartient pas à la zone de la planète Tian Yun. Ce vieil homme a déployé des efforts acharnés pour accomplir une mission de rang Humain de la Secte de Culture du Vide Brillant et a été récompensé par cette planète! »
+« La planète Da Luo n'appartient pas à la zone de la planète Tian Yun. Ce vieil homme a déployé des efforts acharnés pour accomplir une mission de rang Humain de la Secte Kun Xu et a été récompensé par cette planète! »
 
 « Cette planète provient d'une planète illusoire qui brûle éternellement dans le domaine du Vide Brillant. Cette planète illusoire était immense, plus de mille fois plus grande que la planète Tian Yun! » La voix de Ling Tianhou était calme, mais empreinte d'une pointe de fierté.
 
-« À la suite d'un incident, la planète illusoire s'est effondrée, et la planète Da Luo n'est qu'un fragment de cet effondrement. Ce fragment a été raffiné comme une épée par le Vénérable Xu Ling de la Secte de Culture du Vide Brillant. C'est ainsi que la planète Da Luo est devenue ce que tu vois! »
+« À la suite d'un incident, la planète illusoire s'est effondrée, et la planète Da Luo n'est qu'un fragment de cet effondrement. Ce fragment a été raffiné comme une épée par le Vénérable Xu Ling de la Secte Kun Xu. C'est ainsi que la planète Da Luo est devenue ce que tu vois! »
 
 « Vide Brillant! » L'expression de Wang Lin changea. C'était la deuxième fois qu'il entendait ce nom. La première fois, c'était par Qing Shui. Il semblait que le Système Stellaire de l'Alliance s'appelait autrefois le Système Stellaire du Vide Brillant.
 
 « Une secte de culture... Serait-ce une secte de culture nommée le Vide Brillant... » Wang Lin réfléchit.
 
-« La Secte de Culture du Vide Brillant est la seule nation de culture de rang 9 dans l'Alliance. Cependant, tout le monde l'appelle simplement la Secte de Culture du Vide Brillant. » Ling Tianhou remarqua naturellement la confusion de Wang Lin et, comprenant qu'il n'en savait pas grand-chose, lui offrit une explication.
+« La Secte Kun Xu est la seule nation de culture de rang 9 dans l'Alliance. Cependant, tout le monde l'appelle simplement la Secte Kun Xu. » Ling Tianhou remarqua naturellement la confusion de Wang Lin et, comprenant qu'il n'en savait pas grand-chose, lui offrit une explication.
 
 « Ils sont les seuls à avoir conservé l'ancien nom: 'Vide Brillant!' » Une pointe de nostalgie brilla dans les yeux de Ling Tianhou.
 
-« Dans le Système Stellaire de l'Alliance, lorsqu'une personne atteint un certain niveau de culture, elle peut ne pas respecter l'Alliance de Culture. Cependant, cette personne respectera toujours sincèrement la Secte de Culture du Vide Brillant! C'est un honneur d'être invité par eux! »
+« Dans le Système Stellaire de l'Alliance, lorsqu'une personne atteint un certain niveau de culture, elle peut ne pas respecter l'Alliance Xiu Zhen. Cependant, cette personne respectera toujours sincèrement la Secte Kun Xu! C'est un honneur d'être invité par eux! »
 
-« Tous les 3 000 ans, la Secte de Culture du Vide Brillant envoie trois jades d'invitation à des cultivateurs reconnus pour qu'ils soient conviés dans le domaine du Vide Brillant pour y cultiver... À l'époque, Tian Yunzi et moi avions reçu nos invitations ensemble... »
+« Tous les 3 000 ans, la Secte Kun Xu envoie trois jades d'invitation à des cultivateurs reconnus pour qu'ils soient conviés dans le domaine du Vide Brillant pour y cultiver... À l'époque, Tian Yunzi et moi avions reçu nos invitations ensemble... »
 
-« Vide Brillant... » Wang Lin digéra silencieusement les paroles de Ling Tianhou. Un instant plus tard, ses yeux s'illuminèrent: « Puisque des gens y entrent tous les 3 000 ans, je suppose que des membres de la Secte de Culture du Vide Brillant en sortent aussi... »
+« Vide Brillant... » Wang Lin digéra silencieusement les paroles de Ling Tianhou. Un instant plus tard, ses yeux s'illuminèrent: « Puisque des gens y entrent tous les 3 000 ans, je suppose que des membres de la Secte Kun Xu en sortent aussi... »
 
-« Bien sûr qu'il y a des gens qui en sortent. Quand tu es arrivé à la Secte du Destin Céleste il y a quelques jours, as-tu remarqué la femme qui avait l'air d'une simple paysanne mortelle? À l'époque, la troisième personne qui est entrée avec Tian Yunzi et moi dans la Secte de Culture du Vide Brillant, c'était elle! Elle avait une disciple à ses côtés et, si je ne me trompe pas, cette disciple vient de la Secte de Culture du Vide Brillant. »
+« Bien sûr qu'il y a des gens qui en sortent. Quand tu es arrivé à la Secte Tian Yun il y a quelques jours, as-tu remarqué la femme qui avait l'air d'une simple paysanne mortelle? À l'époque, la troisième personne qui est entrée avec Tian Yunzi et moi dans la Secte Kun Xu, c'était elle! Elle avait une disciple à ses côtés et, si je ne me trompe pas, cette disciple vient de la Secte Kun Xu. »
 
 Wang Lin fut stupéfait. La première personne à laquelle il pensa fut la femme en rose qui l'avait invité.
 
-« La Secte de Culture du Vide Brillant a préservé une ancienne tradition: il y a toujours une Sainte du Vide Brillant. Je ne sais juste pas si c'est elle... »
+« La Secte Kun Xu a préservé une ancienne tradition: il y a toujours une Sainte du Vide Brillant. Je ne sais juste pas si c'est elle... »
 
 « Sainte du Vide Brillant... » Wang Lin se frotta les tempes. Tout ce que Ling Tianhou venait de dire étaient des informations qu'il n'avait jamais entendues auparavant.
 
@@ -96,15 +96,15 @@ Cependant, ces mots firent trembler l'esprit de Wang Lin!
 
 À mesure qu'ils avançaient, la planète Da Luo se rapprochait. C'était la première fois que Wang Lin venait sur cette planète. Plus il s'en approchait, plus il ressentait l'énergie d'épée infinie qui s'en dégageait constamment.
 
-Les océans occupaient la majeure partie de la planète, et la seule secte présente était la Secte de l'Épée Da Luo! Les tours apparurent une à une sous les yeux de Wang Lin.
+Les océans occupaient la majeure partie de la planète, et la seule secte présente était la Secte Da Luo Jian! Les tours apparurent une à une sous les yeux de Wang Lin.
 
-Les disciples de la Secte de l'Épée Da Luo s'élancèrent dans les airs. Ils emplissaient le ciel, et ils étaient au moins des dizaines de milliers! Cependant, ce que Wang Lin trouva étrange, c'est que la plupart d'entre eux étaient au stade Ascendant. Bien qu'il y eût quelques cultivateurs du Yin Illusoire, il n'y avait pas un seul cultivateur du Yang Corporel.
+Les disciples de la Secte Da Luo Jian s'élancèrent dans les airs. Ils emplissaient le ciel, et ils étaient au moins des dizaines de milliers! Cependant, ce que Wang Lin trouva étrange, c'est que la plupart d'entre eux étaient au stade Ascendant. Bien qu'il y eût quelques cultivateurs du Yin Illusoire, il n'y avait pas un seul cultivateur du Yang Corporel.
 
-Ling Tianhou esquissa un léger sourire: « Trouves-tu étrange que la grande Secte de l'Épée Da Luo compte si peu de cultivateurs de la deuxième étape? »
+Ling Tianhou esquissa un léger sourire: « Trouves-tu étrange que la grande Secte Da Luo Jian compte si peu de cultivateurs de la deuxième étape? »
 
 Wang Lin ne chercha pas à le cacher et hocha la tête: « C'est effectivement étrange. »
 
-« Les disciples des sept divisions de la Secte du Destin Céleste répriment leur culture chaque jour, car ils craignent que s'ils perdent le contrôle de leurs sceaux, ils soient dévorés d'une bouchée par ce vieil Tian Yunzi. Ce n'est pas le cas ici; c'est simplement que ceux qui ont atteint la deuxième étape ont un autre endroit où aller. »
+« Les disciples des sept divisions de la Secte Tian Yun répriment leur culture chaque jour, car ils craignent que s'ils perdent le contrôle de leurs sceaux, ils soient dévorés d'une bouchée par ce vieil Tian Yunzi. Ce n'est pas le cas ici; c'est simplement que ceux qui ont atteint la deuxième étape ont un autre endroit où aller. »
 
 Chacun des dizaines de milliers de cultivateurs en dessous portait une grande épée dans le dos. Ils étaient tous très respectueux. Lorsque Wang Lin et Ling Tianhou descendirent, ils s'inclinèrent tous à l'unisson.
 
@@ -112,12 +112,12 @@ Chacun des dizaines de milliers de cultivateurs en dessous portait une grande é
 
 Ce cri retentit comme un puissant coup de tonnerre à travers la planète Da Luo.
 
-Ling Tianhou rit. À cet instant, quelques dizaines de personnes s'envolèrent vers lui. Elles étaient très respectueuses, et certaines d'entre elles avaient suivi Ling Tianhou à la Secte du Destin Céleste, elles connaissaient donc Wang Lin. En le voyant, leurs expressions devinrent étranges; elles ne pouvaient comprendre pourquoi Wang Lin se trouvait aux côtés de Ling Tianhou.
+Ling Tianhou rit. À cet instant, quelques dizaines de personnes s'envolèrent vers lui. Elles étaient très respectueuses, et certaines d'entre elles avaient suivi Ling Tianhou à la Secte Tian Yun, elles connaissaient donc Wang Lin. En le voyant, leurs expressions devinrent étranges; elles ne pouvaient comprendre pourquoi Wang Lin se trouvait aux côtés de Ling Tianhou.
 
 Le regard de Wang Lin balaya ces dizaines de milliers de personnes et une pensée lui traversa l'esprit: « Lors de la bataille contre l'Alliance dans la région nord, j'ai rencontré Chen Long, mais je ne le vois pas ici. »
 
 Ling Tianhou agita ses manches, s'élança et atteignit la plus grande tour.
 
-« À partir d'aujourd'hui, Wang Lin sera un Ancien de ma Secte de l'Épée Da Luo! » Ling Tianhou ne prononça que ces mots avant de disparaître dans la grande tour.
+« À partir d'aujourd'hui, Wang Lin sera un Ancien de ma Secte Da Luo Jian! » Ling Tianhou ne prononça que ces mots avant de disparaître dans la grande tour.
 
 « Ancien Wang, je vais entrer en culture de porte close pendant quelques mois. Vous serez en sécurité sur ma planète Da Luo! » Le Sens Divin de Ling Tianhou résonna dans les oreilles de Wang Lin.

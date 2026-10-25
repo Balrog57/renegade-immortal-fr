@@ -8,7 +8,7 @@ slug: je-peux-le-faire-aussi
 ---
 Wang Lin fronça les sourcils. Les paroles de l'Oiseau Vermillon de la première génération résonnaient dans son esprit, le plongeant dans le silence.
 
-« Les Cinq Doigts Brise-Vide sont un processus permettant de rassembler la puissance nécessaire pour déchirer le vide. Ce n'est qu'en cultivant jusqu'aux limites de la deuxième étape que l'on peut emprunter la puissance de son essence pour briser la Porte du Vide d'un seul coup! »
+« Les Cinq Doigts Brise-Vide sont un processus permettant de rassembler la puissance nécessaire pour déchirer le vide. Ce n'est qu'en cultivant jusqu'aux limites de la deuxième étape que l'on peut emprunter la puissance de son essence pour briser la Porte Kong d'un seul coup! »
 
 « Votre culture est trop chaotique. Tout d'abord, votre corps de Dieu Ancien... Dieu Ancien, Dieu Ancien... Je ne m'attendais pas à ce qu'un membre de mon clan Oiseau Vermillon devienne un Dieu Ancien! » Une étrange lueur brilla dans les yeux de l'Oiseau Vermillon de la première génération alors qu'il contemplait l'épée de sang devant lui.
 
@@ -18,7 +18,7 @@ Wang Lin fronça les sourcils. Les paroles de l'Oiseau Vermillon de la première
 
 « En raison de ma promesse d'autrefois, je ne peux rien vous dire de plus; ne m'interrogez donc pas davantage. Si l'occasion se présente, vous trouverez la réponse perdue dans le temps. » L'expression de l'Oiseau Vermillon de la première génération semblait abattue.
 
-« Si vous ne cultiviez que le corps de Dieu Ancien et utilisiez votre pouvoir comme Dao, il serait plus facile d'ouvrir la Porte du Vide... Cependant, des essences sont apparues en votre sein, et c'est une combinaison choquante: cinq essences! »
+« Si vous ne cultiviez que le corps de Dieu Ancien et utilisiez votre pouvoir comme Dao, il serait plus facile d'ouvrir la Porte Kong... Cependant, des essences sont apparues en votre sein, et c'est une combinaison choquante: cinq essences! »
 
 « Par conséquent, si vous souhaitez atteindre la troisième étape, ce sera encore plus difficile. Plus vous possédez d'essences, plus le chemin est ardu, à moins que vous ne renonciez à vos essences pour entrer dans la troisième étape en tant que Dieu Ancien. Ou bien, vous pourriez abandonner votre corps de Dieu Ancien et quatre de vos essences pour atteindre la troisième étape avec une seule essence complète! »
 
@@ -102,8 +102,8 @@ Ces mots parurent résonner aux quatre coins de ce monde. Même l'Oiseau Vermill
 
 « Je ne peux pas abandonner mon corps de Dieu Ancien! Je ne peux pas renoncer à mes quatre autres essences. Même si ce chemin est ardu, je dois le poursuivre! Je ne peux laisser ma culture s'arrêter... » Wang Lin s'inclina devant l'Oiseau Vermillon de la première génération avant de s'élancer dans les airs.
 
-« Ce junior apprécie la bienveillance du vieil Ancêtre... Que ce soient les Cinq Fléaux Célestes ou les Cinq Doigts Brise-Vide, ce sont toutes des voies que les cultivateurs ont comprises par eux-mêmes, une accumulation et une préparation avant de briser la Porte du Vide... Alors pourquoi ce junior ne pourrait-il pas tracer sa propre voie, une méthode qui lui soit unique! L'Ancêtre a dit que j'avais besoin de cinq doigts pour couvrir le ciel, mais ce junior refuse de traverser les Cinq Fléaux Célestes! »
+« Ce junior apprécie la bienveillance du vieil Ancêtre... Que ce soient les Cinq Fléaux Célestes ou les Cinq Doigts Brise-Vide, ce sont toutes des voies que les cultivateurs ont comprises par eux-mêmes, une accumulation et une préparation avant de briser la Porte Kong... Alors pourquoi ce junior ne pourrait-il pas tracer sa propre voie, une méthode qui lui soit unique! L'Ancêtre a dit que j'avais besoin de cinq doigts pour couvrir le ciel, mais ce junior refuse de traverser les Cinq Fléaux Célestes! »
 
 « Mon corps de Dieu Ancien est ma paume, et mes cinq essences sont mes doigts! Cinq Fléaux Célestes, Cinq Doigts Brise-Vide, cinq essences... les noms diffèrent, mais le sens est identique! »
 
-« J'ai complété une essence, ce qui équivaut au premier Fléau Céleste. Une fois que mes cinq essences seront accomplies, je serai l'égal d'un cultivateur au sommet du cinquième Fléau Céleste. Je briserai la Porte du Vide et je tracerai mon propre chemin! »
+« J'ai complété une essence, ce qui équivaut au premier Fléau Céleste. Une fois que mes cinq essences seront accomplies, je serai l'égal d'un cultivateur au sommet du cinquième Fléau Céleste. Je briserai la Porte Kong et je tracerai mon propre chemin! »

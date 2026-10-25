@@ -58,19 +58,19 @@ L'expression de Maître Simo devint féroce. Ses mains formèrent un sceau et il
 
 À ce cri, le monde dans lequel se trouvait Wang Lin trembla et la peinture céleste commença à se déchirer. La silhouette de Wang Lin à l'intérieur du tableau se déforma davantage encore.
 
-À cet instant précis, tous les cultivateurs sur la planète de culture furent ébranlés. Le vieil homme du Clan des Moineaux de Feu et ses compagnons observaient la bataille depuis longtemps grâce à leur Sens Divin. En voyant la scène se dérouler, la peur envahit son regard et une expression complexe marqua son visage.
+À cet instant précis, tous les cultivateurs sur la planète de culture furent ébranlés. Le vieil homme du Clan Huo Que et ses compagnons observaient la bataille depuis longtemps grâce à leur Sens Divin. En voyant la scène se dérouler, la peur envahit son regard et une expression complexe marqua son visage.
 
 « Cet homme va mourir sans aucun doute! Le Dao Briseur de Ciel est véritablement digne de son nom! Maître Simo... Maître Simo... Je ne m'attendais pas à ce qu'il vienne. L'identité de la personne qui m'a vendu les pilules est donc évidente! »
 
-« Malheureusement, j'ignore d'où provient le sang contenu dans ces pilules de l'âme! » Le vieil homme du Clan des Moineaux de Feu secoua la tête. Il avait déjà conclu que Wang Lin était condamné.
+« Malheureusement, j'ignore d'où provient le sang contenu dans ces pilules de l'âme! » Le vieil homme du Clan Huo Que secoua la tête. Il avait déjà conclu que Wang Lin était condamné.
 
-Dans la terre sainte du Clan du Dragon Blindé, le jeune maître avait également déployé son Sens Divin pour observer et finit par se détendre un peu.
+Dans la terre sainte du Clan Long Jia, le jeune maître avait également déployé son Sens Divin pour observer et finit par se détendre un peu.
 
 « Cet homme est très puissant, mais hélas, il ne peut échapper au sort de Maître Simo. Le Dao Briseur de Ciel est prodigieux, capable de créer son propre monde pour l'anéantir! »
 
-Le Patriarche du Clan du Dragon Blindé détourna également son regard du ciel et se calma légèrement.
+Le Patriarche du Clan Long Jia détourna également son regard du ciel et se calma légèrement.
 
-« Il ignore ses propres limites. Maître Simo est un cultivateur du troisième niveau; même si ce n'est que son avatar, il reste un être avec lequel on ne peut rivaliser. Bien qu'il ait tué le Grand Ancien du Clan du Tonnerre Dispersé, il est impuissant face à Maître Simo! »
+« Il ignore ses propres limites. Maître Simo est un cultivateur du troisième niveau; même si ce n'est que son avatar, il reste un être avec lequel on ne peut rivaliser. Bien qu'il ait tué le Grand Ancien du Clan Shan Lei, il est impuissant face à Maître Simo! »
 
 « Cependant, le simple fait qu'il puisse blesser Maître Simo prouve qu'il n'est pas un être ordinaire. Heureusement, il n'a aucune chance de survie, sinon, s'il venait se venger de notre clan pour notre aide, il serait difficile de s'en défaire. »
 
@@ -92,11 +92,11 @@ Le monde s'effondra et se transforma en une onde de choc qui balaya toute la pla
 
 Wang Lin s'était libéré!
 
-Au moment où il s'échappa, le vieil homme du Clan des Moineaux de Feu ouvrit les yeux avec incrédulité et prit une inspiration saccadée.
+Au moment où il s'échappa, le vieil homme du Clan Huo Que ouvrit les yeux avec incrédulité et prit une inspiration saccadée.
 
-Non seulement lui, mais même le jeune maître du Clan du Dragon Blindé était terrifié. Il recula inconsciemment en s'exclamant: « Ceci... ceci est... »
+Non seulement lui, mais même le jeune maître du Clan Long Jia était terrifié. Il recula inconsciemment en s'exclamant: « Ceci... ceci est... »
 
-Le Patriarche du Clan du Dragon Blindé changea également de visage, son expression devenant extrêmement sombre.
+Le Patriarche du Clan Long Jia changea également de visage, son expression devenant extrêmement sombre.
 
 « Sima Mo, notre bataille ne fait que commencer! » Wang Lin vacilla, puis pointa sa main droite vers le ciel en criant: « Puisque tu as tenté de percer les cieux pour me piéger, je vais inverser le ciel et t'anéantir! »
 
@@ -112,7 +112,7 @@ La Restriction Temporelle!
 
 Le drapeau de cent pieds s'ouvrit et la Restriction Temporelle s'en échappa. Des dizaines de milliers de restrictions entourèrent Maître Simo, formant un vortex de contraintes!
 
-À cet instant, le monde fut renversé. Le ciel se retrouva sous vos pieds et la terre au-dessus de votre tête; une scène capable de terrifier n'importe qui! Les pupilles du Patriarche du Clan du Dragon Blindé se contractèrent violemment.
+À cet instant, le monde fut renversé. Le ciel se retrouva sous vos pieds et la terre au-dessus de votre tête; une scène capable de terrifier n'importe qui! Les pupilles du Patriarche du Clan Long Jia se contractèrent violemment.
 
 « Cet homme possède le sort de Lanmeng Daozun!! Humph, même ainsi, je suis certain qu'il périra face au sort de Maître Simo! »
 
@@ -130,7 +130,7 @@ Les pupilles de Wang Lin se contractèrent alors qu'il s'apprêtait à utiliser 
 
 « Intéressant. Si tu parviens à vaincre cet avatar de cultivateur du troisième niveau en cinq respirations, je te promets la sécurité dans la Terre Déchue! »
 
-Dans la terre sainte du Clan du Dragon Blindé, l'expression du Neuvième Ancien Déchu, le Patriarche du Clan du Dragon Blindé, changea radicalement lorsqu'il s'exclama: « Grand Empereur! »
+Dans la terre sainte du Clan Long Jia, l'expression du Neuvième Ancien Déchu, le Patriarche du Clan Long Jia, changea radicalement lorsqu'il s'exclama: « Grand Empereur! »
 
 L'expression de Maître Simo changea elle aussi brusquement, la panique envahissant son visage.
 

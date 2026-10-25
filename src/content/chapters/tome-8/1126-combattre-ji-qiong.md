@@ -56,7 +56,7 @@ Au même moment, les 17 autres têtes se redressèrent soudainement et fixèrent
 
 L'expression de Wang Lin était sombre. Il était impossible de comprendre cette bête en raisonnant comme un cultivateur. À l'origine, il ne voulait pas s'en préoccuper, mais elle se rapprochait de plus en plus.
 
-Il ne pouvait pas utiliser la Courbure Spatiale dans la Terre de l'Ancien Dieu, mais il pouvait se téléporter. Le corps de Wang Lin vacilla et il disparut.
+Il ne pouvait pas utiliser la Courbure Spatiale dans la Terre Gu Shen, mais il pouvait se téléporter. Le corps de Wang Lin vacilla et il disparut.
 
 Cependant, dès qu'il disparut, le Ji Qiong qui le poursuivait disparut également.
 

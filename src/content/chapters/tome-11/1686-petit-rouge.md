@@ -96,7 +96,7 @@ Une fois la foule dispersée, l'aura majestueuse du dragon s'évapora. Il arbora
 
 « Comment êtes-vous arrivé ici depuis le Continent Astral Immortel? » demanda Wang Lin en s'asseyant sur le dos du dragon.
 
-« J'ai suivi mon ancien maître et un maudit individu. Ce salaud savait que mon maître me préférait et ne pouvait l'accepter. Il a donc prétendu que la Secte des Sept Dao possédait un trésor, trompant ainsi mon ancien maître pour nous attirer ici...
+« J'ai suivi mon ancien maître et un maudit individu. Ce salaud savait que mon maître me préférait et ne pouvait l'accepter. Il a donc prétendu que la Secte Qi Dao possédait un trésor, trompant ainsi mon ancien maître pour nous attirer ici...
 
 « J'étais fidèle à mon maître et je m'inquiétais naturellement pour lui, alors je l'ai suivi... » Le dragon de feu semblait habité par l'indignation. Tout en envoyant ses messages par sens divin, il regardait au loin comme s'il craignait quelque chose.
 

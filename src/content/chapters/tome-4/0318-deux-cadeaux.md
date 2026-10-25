@@ -52,7 +52,7 @@ Chi Hu sourit amèrement intérieurement. Il ne voulait absolument pas de ce cad
 
 Chi Hu prit une profonde inspiration et dit: «... Le junior est disposé! »
 
-Zhou Yi secoua la tête et dit: « Tu es le jeune maître du Clan des Démons Géants, il est naturel que tu craignes de suivre mes traces. Laisse tomber! »
+Zhou Yi secoua la tête et dit: « Tu es le jeune maître du Clan Ju Mo, il est naturel que tu craignes de suivre mes traces. Laisse tomber! »
 
 Sur ce, son regard se tourna vers Wang Lin et il demanda doucement: « Es-tu prêt à m'aider? »
 
@@ -92,7 +92,7 @@ Une fois qu'un cultivateur Ascendant perdait son cristal ascendant, sa culture c
 
 Même Zhou Yi venait de former le sien.
 
-Chi Hu fixait également le cristal ascendant, stupéfait. Après tout, il était le jeune maître du Clan des Démons Géants et en savait plus que la plupart. Il l'avait reconnu d'un seul coup d'œil et ressentit un immense regret. Bien qu'il sache que Zhou Yi ne demanderait pas à quelqu'un de s'occuper de sa femme gratuitement, il n'imaginait pas qu'il offrirait un tel présent.
+Chi Hu fixait également le cristal ascendant, stupéfait. Après tout, il était le jeune maître du Clan Ju Mo et en savait plus que la plupart. Il l'avait reconnu d'un seul coup d'œil et ressentit un immense regret. Bien qu'il sache que Zhou Yi ne demanderait pas à quelqu'un de s'occuper de sa femme gratuitement, il n'imaginait pas qu'il offrirait un tel présent.
 
 S'il l'avait su, il n'aurait absolument pas hésité. De plus, d'après les paroles de Zhou Yi, ce n'était que le premier cadeau, ce qui signifiait qu'il y avait probablement un deuxième, puis un troisième...
 
@@ -100,17 +100,17 @@ Le regret dans le cœur de Chi Hu atteignit son paroxysme.
 
 L'expression sur les visages des deux hommes rendit Zhou Yi très fier. Il pointa l'ancien du doigt et le corps de ce dernier s'envola vers la main de Zhou Yi.
 
-Zhou Yi dit calmement: « Mon second cadeau pour toi est cet homme. Le Grand Ancien de la Secte des Cadavres. Je peux t'épargner la vie, mais tu devras devenir un esclave pendant 1000 ans. Es-tu d'accord? »
+Zhou Yi dit calmement: « Mon second cadeau pour toi est cet homme. Le Grand Ancien de la Secte Shi Yin. Je peux t'épargner la vie, mais tu devras devenir un esclave pendant 1000 ans. Es-tu d'accord? »
 
-Face à une puissance absolue, le Grand Ancien de la Secte des Cadavres n'avait que deux choix: vivre ou mourir.
+Face à une puissance absolue, le Grand Ancien de la Secte Shi Yin n'avait que deux choix: vivre ou mourir.
 
 L'ancien dit amèrement: « Ma vie ne durera même pas mille ans, comment puis-je être un esclave pendant mille ans? Tu ferais mieux de me tuer! »
 
 « Si tu veux mourir, je peux t'aider. Avec ma force restante, je peux te transformer en marionnette. Bien que ton niveau de culture diminue, cela sera considéré comme mon second cadeau! » Sur ces mots, Zhou Yi pointa le front de l'ancien.
 
-Il lui suffisait de pointer le front de l'homme pour que ce Grand Ancien de la Secte des Cadavres meure.
+Il lui suffisait de pointer le front de l'homme pour que ce Grand Ancien de la Secte Shi Yin meure.
 
-Le doigt se rapprochait lentement. Le front de l'ancien était couvert de sueur. L'odeur de la mort s'intensifiait à l'infini. Bien qu'il lui restât moins de mille ans à vivre, s'il parvenait à percer le stade avancé de la Transformation de l'Âme, sa longévité serait prolongée. De plus, avec les méthodes de la Secte des Cadavres, il existait de nombreux moyens de rallonger sa vie.
+Le doigt se rapprochait lentement. Le front de l'ancien était couvert de sueur. L'odeur de la mort s'intensifiait à l'infini. Bien qu'il lui restât moins de mille ans à vivre, s'il parvenait à percer le stade avancé de la Transformation de l'Âme, sa longévité serait prolongée. De plus, avec les méthodes de la Secte Shi Yin, il existait de nombreux moyens de rallonger sa vie.
 
 Au moment où le doigt allait le toucher, il dit amèrement: « J'accepte. »
 
@@ -118,9 +118,9 @@ La main droite de Zhou Yi ne s'arrêta pas et se déplaça plus vite encore pour
 
 Une lumière mystérieuse jaillit du front de l'ancien, traversa Zhou Yi et pénétra en Wang Lin.
 
-Wang Lin sentit immédiatement qu'il pouvait percevoir toutes les intentions du Grand Ancien de la Secte des Cadavres; d'une simple pensée, il pourrait détruire l'âme de l'homme.
+Wang Lin sentit immédiatement qu'il pouvait percevoir toutes les intentions du Grand Ancien de la Secte Shi Yin; d'une simple pensée, il pourrait détruire l'âme de l'homme.
 
-Le Grand Ancien de la Secte des Cadavres poussa un soupir et se tourna étrangement vers Wang Lin pour dire respectueusement: « Ce vieux esclave Sun Tai salue son maître... » L'amertume dans son cœur était indescriptible.
+Le Grand Ancien de la Secte Shi Yin poussa un soupir et se tourna étrangement vers Wang Lin pour dire respectueusement: « Ce vieux esclave Sun Tai salue son maître... » L'amertume dans son cœur était indescriptible.
 
 Chi Hu contemplait la scène, le regret au cœur atteignant un niveau monstrueux.
 

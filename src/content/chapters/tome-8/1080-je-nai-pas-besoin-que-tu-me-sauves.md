@@ -8,7 +8,7 @@ slug: je-nai-pas-besoin-que-tu-me-sauves
 ---
 « Sainte du Vide Brillant! » L'expression de Tian Yunzi devint immédiatement sérieuse. Il recula rapidement de quelques pas tout en tenant son trident, mais son regard se tourna aussitôt vers le vieil homme suspendu dans les airs.
 
-« Lu Yundao! » Tian Yunzi fronça les sourcils et dit: « Se pourrait-il que votre Royaume du Vide Brillant souhaite également s'en mêler? »
+« Lu Yundao! » Tian Yunzi fronça les sourcils et dit: « Se pourrait-il que votre Royaume Kun Xu souhaite également s'en mêler? »
 
 Le vieil homme regarda Tian Yunzi, puis le Démon Ancien Ta Jia au visage sombre. Lorsqu'il fixa le Démon Ancien Ta Jia, une pointe de souvenir brilla dans son regard.
 
@@ -24,7 +24,7 @@ En un clin d'œil, le démon ancien et le vieil homme furent enveloppés dans un
 
 Mu Bingmei déposa Wang Lin et s'élança droit vers Tian Yunzi.
 
-Tian Yunzi fronça les sourcils en reculant et dit calmement: « Sainte du Vide Brillant, je ne souhaite pas me faire un ennemi de votre Royaume du Vide Brillant. Ce Wang Lin n'a aucun lien avec vous. Personne ne peut m'empêcher de le tuer. »
+Tian Yunzi fronça les sourcils en reculant et dit calmement: « Sainte du Vide Brillant, je ne souhaite pas me faire un ennemi de votre Royaume Kun Xu. Ce Wang Lin n'a aucun lien avec vous. Personne ne peut m'empêcher de le tuer. »
 
 « Vous n'êtes pas qualifié pour le tuer! » Mu Bingmei secoua la tête en s'élevant dans les airs. D'un geste de sa main droite, des illusions apparurent. Étonnamment, elles ressemblaient toutes exactement à Mu Bingmei!
 
@@ -48,9 +48,9 @@ Seule l'énergie originelle déjà raffinée à l'intérieur de Tian Yunzi ne fu
 
 Cependant, ce sort inconcevable dépassait l'imagination de quiconque. Même l'expression de Tian Yunzi devint sombre.
 
-« J'ai longtemps entendu dire que la Sainte du Vide Brillant possédait un sort puissant au sein du Royaume du Vide Brillant. Le titre de Sainte du Vide Brillant est transmis de génération en génération depuis l'Antiquité. Même à l'époque où les Célestes existaient encore, son identité était à la hauteur du Palais Céleste. Il y avait quatre Royaumes Célestes, et chacun d'eux possédait un système stellaire sous ses ordres. La rumeur prétend qu'il existe, dans chaque système stellaire, une personne détentrice de l'héritage du Royaume Céleste Antique!
+« J'ai longtemps entendu dire que la Sainte du Vide Brillant possédait un sort puissant au sein du Royaume Kun Xu. Le titre de Sainte du Vide Brillant est transmis de génération en génération depuis l'Antiquité. Même à l'époque où les Célestes existaient encore, son identité était à la hauteur du Palais Céleste. Il y avait quatre Royaumes Célestes, et chacun d'eux possédait un système stellaire sous ses ordres. La rumeur prétend qu'il existe, dans chaque système stellaire, une personne détentrice de l'héritage du Royaume Céleste Antique!
 
-« Les Saintes des quatre systèmes stellaires contrôlent chacune des pouvoirs différents. Lorsque je suis entré dans le Royaume du Vide Brillant pour ma culture, j'ai entendu bien des rumeurs sur la Sainte du Vide Brillant. Aujourd'hui, je vois que ces rumeurs sont vraies. »
+« Les Saintes des quatre systèmes stellaires contrôlent chacune des pouvoirs différents. Lorsque je suis entré dans le Royaume Kun Xu pour ma culture, j'ai entendu bien des rumeurs sur la Sainte du Vide Brillant. Aujourd'hui, je vois que ces rumeurs sont vraies. »
 
 Mu Bingmei ne répondit pas et pointa le pilier d'énergie originelle. Le pilier se rétracta rapidement jusqu'à devenir une courte épée scintillante de lumière.
 
@@ -60,7 +60,7 @@ Nul ne pouvait comprendre ses pensées, car elle-même était encore confuse… 
 
 Il y avait un sentiment plus complexe encore qui lui déchirait le cœur… À cause de cela, elle ne permettrait à personne de tuer Wang Lin.
 
-Cette pensée s'était ancrée dans son âme depuis bien longtemps. De nombreuses fois, elle avait été tirée de sa culture par la stupeur au milieu de la nuit. Elle se tenait seule sur la plus haute montagne du Royaume du Vide Brillant, contemplant le ciel noir. Cette douleur lui donnait l'impression que son cœur saignait. Cette idée la faisait presque perdre le contrôle d'elle-même.
+Cette pensée s'était ancrée dans son âme depuis bien longtemps. De nombreuses fois, elle avait été tirée de sa culture par la stupeur au milieu de la nuit. Elle se tenait seule sur la plus haute montagne du Royaume Kun Xu, contemplant le ciel noir. Cette douleur lui donnait l'impression que son cœur saignait. Cette idée la faisait presque perdre le contrôle d'elle-même.
 
 Elle avait traversé d'innombrables années avec ce sentiment… Aujourd'hui, en voyant Wang Lin, cette douleur et ces émotions complexes qui bouillonnaient en elle envahirent tout son esprit.
 
@@ -80,7 +80,7 @@ Il ne pensait pas la rencontrer pour de bon si vite, et dans de telles circonsta
 
 Tout en réfléchissant, Wang Lin s'assit en position de lotus et prit une profonde inspiration. Il avait épuisé ses sorts, et il semblait n'avoir plus rien pour lutter contre le destin.
 
-« J'ai encore un sort! » Wang Lin regarda l'espace infini qui était apparu lorsque la tempête d'épées avait déchiré le ciel de la Terre des Esprits Démoniaques. La puissante énergie originelle provenant de l'extérieur entourait la Terre des Esprits Démoniaques.
+« J'ai encore un sort! » Wang Lin regarda l'espace infini qui était apparu lorsque la tempête d'épées avait déchiré le ciel de la Terre Yao Ling. La puissante énergie originelle provenant de l'extérieur entourait la Terre Yao Ling.
 
 « Bien que le bouclier de lumière azur ait été brisé en deux, il n'a pas disparu. Le coup salvateur d'un Dieu Ancien à 8 étoiles est stocké à l'intérieur. Bien que j'ignore sa puissance, elle ne peut être faible! » Tandis qu'il réfléchissait, son œil droit brilla d'une lueur bleue. L'ombre vague du bouclier de lumière azur apparut.
 
@@ -88,7 +88,7 @@ Cependant, ce bouclier était scindé en deux et se ressoudait rapidement dans l
 
 Wang Lin avait déjà envisagé une méthode pour obtenir la puissance d'un Dieu Ancien: diviser son avatar et son corps original, afin de laisser ce dernier s'installer quelque part pour absorber progressivement l'énergie du Dieu Ancien avec le bouclier de lumière azur.
 
-Mais cela prendrait trop de temps. À l'origine, Wang Lin avait prévu de faire cela après avoir quitté la Terre des Esprits Démoniaques. Mais maintenant, il devait trouver un raccourci!
+Mais cela prendrait trop de temps. À l'origine, Wang Lin avait prévu de faire cela après avoir quitté la Terre Yao Ling. Mais maintenant, il devait trouver un raccourci!
 
 Toutefois, un raccourci a toujours un prix. Un prix que Wang Lin allait devoir payer.
 

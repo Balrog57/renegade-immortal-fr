@@ -42,9 +42,9 @@ Cinq coups de tambour prennent un bras, dix coups prennent deux bras, quinze cou
 
 Celui qui l'avait tué n'était pas Wang Lin, mais celui qui l'avait gravement blessé! Si une seule des voix s'était manifestée, il n'aurait pas été si affaibli qu'il ne pouvait plus se défendre; il ne serait pas devenu un mortel.
 
-Cependant, ces deux sons avaient transformé une puissance extrêmement célèbre du Pays du Démon Céleste en un déchet! Et avec le caractère vindicatif de Wang Lin, qui rendait coup pour coup avec des méthodes impitoyables, tout cela lui avait coûté la vie!
+Cependant, ces deux sons avaient transformé une puissance extrêmement célèbre du Pays Tian Yao en un déchet! Et avec le caractère vindicatif de Wang Lin, qui rendait coup pour coup avec des méthodes impitoyables, tout cela lui avait coûté la vie!
 
-Le jeune homme sur le bateau, stupéfait, marmonna: « Mort... Comment cela a-t-il pu finir ainsi... » Puis il remarqua soudainement quelque chose et son regard se glaça. Une intention meurtrière envahit ses yeux alors qu'il scrutait l'horizon, comme si son regard pouvait traverser la Cité du Démon Céleste et percer le vide.
+Le jeune homme sur le bateau, stupéfait, marmonna: « Mort... Comment cela a-t-il pu finir ainsi... » Puis il remarqua soudainement quelque chose et son regard se glaça. Une intention meurtrière envahit ses yeux alors qu'il scrutait l'horizon, comme si son regard pouvait traverser la Cité Tian Yao et percer le vide.
 
 Mais il baissa rapidement la tête, faisant mine que de rien n'était.
 
@@ -52,23 +52,23 @@ Sur la place, le Commandant Céleste était le plus proche de Wang Lin. À cet i
 
 Les sept autres commandants observaient Wang Lin avec des sentiments très complexes. Leur attention ne portait pas sur la culture de Wang Lin, mais sur le fait qu'il ait frappé le tambour quinze fois!
 
-Quinze fois! Cela surpassait tout le monde, faisant de Wang Lin, officiellement, celui qui avait frappé le plus de coups dans le Pays du Démon Céleste!
+Quinze fois! Cela surpassait tout le monde, faisant de Wang Lin, officiellement, celui qui avait frappé le plus de coups dans le Pays Tian Yao!
 
 Les vice-commandants étaient plongés dans un silence de stupeur. Le Vice-Commandant Xuan prit une profonde inspiration. Sa culture, bloquée depuis si longtemps, était sur le point de franchir un nouveau palier. Tout cela grâce au son du nettoyage médullaire de Wang Lin et au changement intérieur que ce dernier avait provoqué en lui.
 
 Les spectateurs lucides ne regardaient plus Wang Lin avec choc, mais avec respect!
 
-Le respect dû aux puissants de la Terre des Esprits Démoniaques!
+Le respect dû aux puissants de la Terre Yao Ling!
 
 Parmi les généraux démons, le silence était total. Mo Lihai fixa la silhouette de Wang Lin; il savait désormais qu'il n'y avait plus aucun doute sur son accession au rang de commandant!
 
 Le quinzième coup de tambour résonna dans les cieux. Si ce son portait une odeur de sang, il exhalait aussi une tristesse inimaginable. Cette mélancolie se fusionna avec le rythme et fut propagée aux quatre vents par l'instrument.
 
-À cet instant, les éclairs dansaient comme des serpents d'argent dans le ciel et le tonnerre grondait violemment. Mais lorsque le quinzième coup retentit, tout sembla ne faire qu'un. Le tonnerre impétueux parut absorber la tristesse du tambour. Une émotion indicible émana alors de la foudre et des percussions, embrassant le ciel et affectant toute la Cité du Démon Céleste!
+À cet instant, les éclairs dansaient comme des serpents d'argent dans le ciel et le tonnerre grondait violemment. Mais lorsque le quinzième coup retentit, tout sembla ne faire qu'un. Le tonnerre impétueux parut absorber la tristesse du tambour. Une émotion indicible émana alors de la foudre et des percussions, embrassant le ciel et affectant toute la Cité Tian Yao!
 
 Ce quinzième coup était plus puissant que les quatorze précédents réunis. Il représentait le Dao de Wang Lin, sa tristesse, l'intégralité de son cœur de Dao, et un véritable chemin de culture défiant les cieux!
 
-Grâce à l'accompagnement du tonnerre, cette tristesse n'était plus une émotion humaine, mais la tristesse du ciel et de la terre elle-même! Tous les habitants de la Cité du Démon Céleste ressentirent ce chagrin et pleurèrent inconsciemment...
+Grâce à l'accompagnement du tonnerre, cette tristesse n'était plus une émotion humaine, mais la tristesse du ciel et de la terre elle-même! Tous les habitants de la Cité Tian Yao ressentirent ce chagrin et pleurèrent inconsciemment...
 
 Sur le bateau, la femme qui jouait de la cithare, touchée par cette mélancolie, commença à jouer une mélodie empreinte de douceur.
 
@@ -76,7 +76,7 @@ Wang Lin leva la tête vers les cieux et murmura: « J'ai conservé mon attachem
 
 Le Dao des Cieux est la voie céleste. Même les familles royales mortelles ont proclamé que sous le ciel tout entier, il n'est de terre qui ne soit celle du roi! Le Dao des Cieux est infini; il s'étend à travers l'univers et imprègne toute chose!
 
-Qu'il s'agisse de la Terre des Esprits Démoniaques ou même de la demeure d'un Empereur Céleste, le Dao des Cieux ne cessera jamais de descendre! Car tout ce qui existe dans le monde fait partie du Dao des Cieux; si une chose existe, c'est parce que le Dao des Cieux l'autorise à être!
+Qu'il s'agisse de la Terre Yao Ling ou même de la demeure d'un Empereur Céleste, le Dao des Cieux ne cessera jamais de descendre! Car tout ce qui existe dans le monde fait partie du Dao des Cieux; si une chose existe, c'est parce que le Dao des Cieux l'autorise à être!
 
 Dao des Cieux, descends!
 

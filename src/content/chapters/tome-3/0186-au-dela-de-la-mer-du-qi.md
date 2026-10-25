@@ -64,7 +64,7 @@ Grâce à cela, Wang Lin comprit que le réseau de transfert de tout à l'heure 
 
 Wang Lin en conclut qu'il était déjà entré dans le corps de l'Ancien Dieu, juste au-delà de la Mer du Qi.
 
-Il réfléchit un instant et soupira. Il n'aurait jamais cru être le premier parmi tous les cultivateurs à pénétrer dans la Terre de l'Ancien Dieu.
+Il réfléchit un instant et soupira. Il n'aurait jamais cru être le premier parmi tous les cultivateurs à pénétrer dans la Terre Gu Shen.
 
 Avant le troisième essai, Wang Lin nourrissait encore l'espoir d'atteindre ce lieu, mais désormais, il sentait que cet endroit n'était pas, comme l'avait dit Duanmu Ji, un lieu où les artefacts magiques jonchaient le sol et où l'on trouvait des pilules à chaque pas.
 
@@ -76,7 +76,7 @@ En particulier l'extase pure et nue dans les yeux de ces démons lorsqu'ils le r
 
 Tandis qu'il réfléchissait, son corps continuait d'avancer sans relâche. Il sentait que ces démons n'abandonneraient pas si facilement et pourraient surgir devant lui à tout moment.
 
-Sa priorité était de quitter rapidement cette étrange Terre de l'Ancien Dieu.
+Sa priorité était de quitter rapidement cette étrange Terre Gu Shen.
 
 Wang Lin frappa son sac de rangement, et un morceau de jade en apparut. Il se concentra sur la pierre, et son expression devint troublée. Il rangea le jade et exécuta promptement une série de sceaux des deux mains.
 

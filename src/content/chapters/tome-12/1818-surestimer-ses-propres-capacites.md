@@ -6,9 +6,9 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1818 - Overestimating your own capabilities
 slug: surestimer-ses-propres-capacites
 ---
-« Cela... Je ne suis allé que sur le Continent des Vagues de Nuages, le Continent Kang Yang et le Continent de l'Âme Paisible. Ce n'est qu'environ la moitié du continent oriental tout entier. Au sein de ces trois continents, il n'existe aucune veine de tonnerre.
+« Cela... Je ne suis allé que sur le Continent Yun Tao, le Continent Kang Yang et le Continent de l'Âme Paisible. Ce n'est qu'environ la moitié du continent oriental tout entier. Au sein de ces trois continents, il n'existe aucune veine de tonnerre.
 
-« Je ne connais vraiment pas la réponse à votre question... Mais je peux vous aider à vous renseigner. Peut-être que quelqu'un au sein de la Secte de la Grande Âme le sait. Après tout, la Secte de la Grande Âme est l'une des neuf sectes et treize factions. Leurs disciples partent pour se tester et rapportent souvent leurs découvertes à la secte. Cela fait partie de leur entraînement. » Du Qing secoua la tête. Le Continent Astral Immortel était infini, et peu de personnes avaient parcouru l'intégralité du continent oriental. Du Qing n'avait visité que quatre continents au cours de sa vie, ce qui était déjà extraordinaire.
+« Je ne connais vraiment pas la réponse à votre question... Mais je peux vous aider à vous renseigner. Peut-être que quelqu'un au sein de la Secte Da Hun le sait. Après tout, la Secte Da Hun est l'une des neuf sectes et treize factions. Leurs disciples partent pour se tester et rapportent souvent leurs découvertes à la secte. Cela fait partie de leur entraînement. » Du Qing secoua la tête. Le Continent Astral Immortel était infini, et peu de personnes avaient parcouru l'intégralité du continent oriental. Du Qing n'avait visité que quatre continents au cours de sa vie, ce qui était déjà extraordinaire.
 
 Wang Lin hocha la tête et réfléchit. Un instant plus tard, il regarda Du Qing et parla d'un ton très décontracté.
 
@@ -22,7 +22,7 @@ Wang Lin posa quelques questions supplémentaires, puis afficha un air de lassit
 
 « Cher Cultivateur, soyez assuré. Ce vieil homme mobilisera l'ensemble de la secte pour trouver les veines de feu terrestre, secondaires et enfantines. Si leur âme peut être extraite, je ferai en sorte que les disciples vous l'apportent. »
 
-Après le départ de Du Qing, il émit immédiatement plusieurs décrets, conformément à sa promesse envers Wang Lin. Les trois anciens dirigèrent chacun un groupe de disciples de la Secte du Dragon Bleu dans trois directions différentes.
+Après le départ de Du Qing, il émit immédiatement plusieurs décrets, conformément à sa promesse envers Wang Lin. Les trois anciens dirigèrent chacun un groupe de disciples de la Secte Cang Long dans trois directions différentes.
 
 Il y avait également l'Ancien qui avait été transformé en bois et scellé en guise de punition. Du Qing le libéra, lui offrant la chance de racheter ses péchés. Il fut envoyé en mission pour rechercher une veine de feu.
 
@@ -34,9 +34,9 @@ Il réfléchissait encore, et les paroles de Du Qing résonnaient dans son espri
 
 « Si je veux former mon corps véritable d'essence de tonnerre, j'aurai besoin d'une immense quantité de tonnerre... Puisque le Continent Astral Immortel possède des veines de feu terrestre, il doit nécessairement exister des veines de tonnerre...
 
-« Cependant, pour l'instant, la priorité est de former mon corps véritable d'essence de feu... Je devrai peut-être me rendre personnellement à la Secte de la Grande Âme... » Wang Lin fronça les sourcils. Pour lui, la Secte de la Grande Âme était un colosse difficile à ébranler.
+« Cependant, pour l'instant, la priorité est de former mon corps véritable d'essence de feu... Je devrai peut-être me rendre personnellement à la Secte Da Hun... » Wang Lin fronça les sourcils. Pour lui, la Secte Da Hun était un colosse difficile à ébranler.
 
-« Du Qing a dit que la culture de l'ancêtre de la Secte de la Grande Âme est insondable et qu'il a également formé un corps véritable d'essence... » Wang Lin se frotta les tempes et soupira.
+« Du Qing a dit que la culture de l'ancêtre de la Secte Da Hun est insondable et qu'il a également formé un corps véritable d'essence... » Wang Lin se frotta les tempes et soupira.
 
 « Mon niveau de culture n'est pas assez élevé... Cependant, ce n'est pas que je manque de méthodes... » Les yeux de Wang Lin s'illuminèrent et il pensa à la Secte Gui Yi. Après tout, ce vieil homme nommé Ma connaissait son lien avec Xuan Luo.
 
@@ -60,29 +60,29 @@ Wang Lin comprit vaguement que cette pression ne l'affectait pas uniquement lui,
 
 « Peut-être qu'une fois que ma culture aura atteint un certain niveau, je pourrai forcer le passage et me déplacer ainsi... » Quelques jours plus tard, malgré de multiples tentatives, Wang Lin n'avait toujours pas réussi.
 
-Mais il n'abandonnait pas. La personnalité de Wang Lin avait toujours été ainsi: plus l'obstacle était grand, plus sa détermination s'affirmait. Son Sens Divin ne cessait de fluctuer au sein de la Secte du Dragon Bleu alors qu'il tentait de s'insérer dans le monde.
+Mais il n'abandonnait pas. La personnalité de Wang Lin avait toujours été ainsi: plus l'obstacle était grand, plus sa détermination s'affirmait. Son Sens Divin ne cessait de fluctuer au sein de la Secte Cang Long alors qu'il tentait de s'insérer dans le monde.
 
 Le temps passa lentement. En un clin d'œil, un mois s'écoula.
 
-Wang Lin était en méditation fermée durant tout ce mois, mais les mouvements de son Sens Divin étaient tels que les disciples de la Secte du Dragon Bleu n'osaient plus approcher de la montagne arrière.
+Wang Lin était en méditation fermée durant tout ce mois, mais les mouvements de son Sens Divin étaient tels que les disciples de la Secte Cang Long n'osaient plus approcher de la montagne arrière.
 
-Du Qing était toujours présent au sein de la Secte du Dragon Bleu. Lorsqu'il avait senti le Sens Divin de Wang Lin se déployer pour la première fois, il en avait eu conscience. Toutefois, il ne parvenait pas à saisir l'intention du cultivateur.
+Du Qing était toujours présent au sein de la Secte Cang Long. Lorsqu'il avait senti le Sens Divin de Wang Lin se déployer pour la première fois, il en avait eu conscience. Toutefois, il ne parvenait pas à saisir l'intention du cultivateur.
 
 Après plusieurs jours d'observation, il comprit soudainement ce que Wang Lin tentait d'accomplir.
 
 « Il essaie de fusionner son Sens Divin avec le monde pour ensuite se déplacer en se fondant en lui... C'est tout simplement impossible... La téléportation est réalisable, mais cette méthode vise manifestement à voyager bien plus loin. Seuls les vieux monstres au sommet de la Tribulation du Vide, qui maîtrisent parfaitement les lois du Continent Astral Immortel et possèdent la force de résister à cette pression, peuvent le faire. » Du Qing secoua la tête et cessa peu à peu d'observer les agissements de Wang Lin.
 
-Après un mois, les disciples de la Secte du Dragon Bleu n'avaient pas réussi à trouver de veine de feu terrestre en dehors de la portée du Sens Divin de Wang Lin. Même les quatre anciens n'y étaient pas parvenus. Ils continuaient d'élargir leur périmètre de recherche.
+Après un mois, les disciples de la Secte Cang Long n'avaient pas réussi à trouver de veine de feu terrestre en dehors de la portée du Sens Divin de Wang Lin. Même les quatre anciens n'y étaient pas parvenus. Ils continuaient d'élargir leur périmètre de recherche.
 
 Wang Lin avait oublié le passage du temps. Il continuait d'essayer de fusionner son Sens Divin avec le monde. Il ne semblait jamais se lasser; s'il échouait une fois, il essayait deux fois; s'il échouait deux fois, il essayait dix fois!
 
 Trois mois supplémentaires passèrent. Wang Lin ne savait plus combien de fois il avait tenté l'expérience, mais le résultat demeurait identique.
 
-Après quatre mois, certains disciples de la Secte du Dragon Bleu avaient trouvé des veines de feu qui n'avaient pas tari, mais la majorité continuait ses recherches.
+Après quatre mois, certains disciples de la Secte Cang Long avaient trouvé des veines de feu qui n'avaient pas tari, mais la majorité continuait ses recherches.
 
 Wang Lin persévérait. Il devait absolument maîtriser la Déformation Spatiale, sans quoi le reste de ses plans serait compromis.
 
-Du Qing s'était habitué à l'omniprésence du Sens Divin de Wang Lin sur la Secte du Dragon Bleu. En voyant Wang Lin tenter l'impossible sans faillir, il ressentit un profond mépris. Il ne le montrait jamais, mais ce dédain ne cessait de croître en lui.
+Du Qing s'était habitué à l'omniprésence du Sens Divin de Wang Lin sur la Secte Cang Long. En voyant Wang Lin tenter l'impossible sans faillir, il ressentit un profond mépris. Il ne le montrait jamais, mais ce dédain ne cessait de croître en lui.
 
 « C'est tout simplement impossible. Cet homme est trop têtu; c'est une pure perte de temps. Si fusionner avec le monde était si simple, n'importe qui pourrait le faire...
 

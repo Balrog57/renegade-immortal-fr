@@ -62,17 +62,17 @@ Le cœur du Dieu de Sang battait la chamade et le désespoir emplissait son rega
 
 À l'instant même où Zhou Jin et Ling Dong apparurent, leurs auras de la troisième étape balayèrent Luotian et s'engouffrèrent dans les trois autres systèmes stellaires!
 
-Dans le système stellaire de la Mer des Nuages, au sein de la chambre secrète de la Secte de Dieu.
+Dans le système stellaire de la Mer Yun, au sein de la chambre secrète de la Secte Shen.
 
 Shui Daozi cultivait calmement. Ses blessures étaient guéries, mais soudain, il ouvrit les yeux, frappé par la stupeur. Il se leva instinctivement et scruta l'horizon.
 
 Son expression changea instantanément, empreinte d'incrédulité!
 
-Également au sein de la Secte de Dieu, une femme magnifique était assise à l'intérieur d'une immense formation de scellement. Ses longs cheveux étaient éparpillés autour d'elle, dégageant une beauté capable de faire battre le cœur de n'importe qui.
+Également au sein de la Secte Shen, une femme magnifique était assise à l'intérieur d'une immense formation de scellement. Ses longs cheveux étaient éparpillés autour d'elle, dégageant une beauté capable de faire battre le cœur de n'importe qui.
 
 Elle ne sembla pas remarquer l'aura qui terrifiait Shui Daozi et continua sa culture en silence.
 
-Dans la région de rang un du système stellaire de la Mer des Nuages, se trouvait un petit continent. Il n'y vivait ni bêtes féroces ni humains; c'était un lieu totalement désolé.
+Dans la région de rang un du système stellaire de la Mer Yun, se trouvait un petit continent. Il n'y vivait ni bêtes féroces ni humains; c'était un lieu totalement désolé.
 
 Au plus profond du continent, dans une vallée, un homme d'âge moyen vêtu de rouge était assis en silence.
 
@@ -112,7 +112,7 @@ Debout dans la cour, il leva les yeux vers le sommet de la montagne. Ses yeux la
 
 Dans le quartier général scellé du système stellaire de l'Alliance, une voix colérique et lugubre hurlait depuis des centaines d'années... « Tuez! Tuez! Tuez! Je vais exterminer tout être vivant dans ce monde. Je vais commettre un massacre qui ébranlera le ciel! »
 
-Dans le système stellaire de l'Alliance, là où se trouve la Secte des Cadavres, un regard semblant pouvoir se matérialiser, capable de faire s'effondrer les étoiles, se tourna vers Luotian.
+Dans le système stellaire de l'Alliance, là où se trouve la Secte Shi Yin, un regard semblant pouvoir se matérialiser, capable de faire s'effondrer les étoiles, se tourna vers Luotian.
 
 « La promesse du Seigneur du Royaume Scellé... serait-ce lui...? »
 
@@ -120,7 +120,7 @@ Dans le système stellaire de Luotian, au cœur de la magnifique formation plan�
 
 Le visage de Maître Lu Fu était livide; il laissa Wang Lin passer sans chercher à l'arrêter. Son expression complexe trahissait une profonde amertume.
 
-Maître Lu Fu avait autrefois aidé Wang Lin sur la planète Zhuque, dans la Terre de l'Ancien Dieu. Même si cet acte n'avait été qu'un simple caprice, comme un mortel aidant une fourmi à traverser une rivière, Wang Lin ne l'oublierait pas.
+Maître Lu Fu avait autrefois aidé Wang Lin sur la planète Zhuque, dans la Terre Gu Shen. Même si cet acte n'avait été qu'un simple caprice, comme un mortel aidant une fourmi à traverser une rivière, Wang Lin ne l'oublierait pas.
 
 C'est pourquoi Wang Lin avait accepté la Bataille Littéraire sans intention de lui faire perdre la face. C'était sa façon de lui rendre cette faveur; autrement, il n'aurait pas consenti à tout ce déploiement.
 

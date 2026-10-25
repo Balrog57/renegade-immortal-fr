@@ -1,6 +1,6 @@
 ---
 n: 1510
-title: "La Gloire de la Mer des Nuages!"
+title: "La Gloire de la Mer Yun!"
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1510 - Glory of the Cloud Sea!"
@@ -20,7 +20,7 @@ Alors que sa voix résonnait à travers les étoiles, elle fut clairement entend
 
 Un éclair de froideur brilla dans ses yeux et il laissa échapper un reniflement glacial. Ce souffle dispersa l'épée invisible envoyée par le Shui Daozi, tandis que Wang Lin pointait simultanément l'espace entre ses sourcils. Un éclat de lumière sanguine apparut sans que personne ne puisse le détecter, puis Wang Lin avança vers la Secte Divine!
 
-Il marchait vers le sommet de la Mer des Nuages pour affronter le cultivateur de la troisième étape, le Shui Daozi!
+Il marchait vers le sommet de la Mer Yun pour affronter le cultivateur de la troisième étape, le Shui Daozi!
 
 Derrière lui, sur plusieurs centaines de milliers de pieds, les craquements de monstrueux blocs de glace envahissaient la zone. De loin, le brouillard gelé paraissait terrifiant! Ce brouillard dégageait une intention meurtrière titanesque!
 
@@ -40,7 +40,7 @@ On aurait dit que Wang Lin n'était plus un simple cultivateur, mais un dieu dé
 
 Un dieu démon qui massacrait les immortels!
 
-Tout ce que le Shui Daozi avait préparé rappelait à Wang Lin le passé. À l'époque, sur une planète sauvage de la Mer des Nuages, Wang Lin avait utilisé l'âme de Tian Yunzi pour effectuer une série de prédictions et de préparatifs afin de lutter pour sa survie face à la puissance céleste qu'incarnait le Shui Daozi!
+Tout ce que le Shui Daozi avait préparé rappelait à Wang Lin le passé. À l'époque, sur une planète sauvage de la Mer Yun, Wang Lin avait utilisé l'âme de Tian Yunzi pour effectuer une série de prédictions et de préparatifs afin de lutter pour sa survie face à la puissance céleste qu'incarnait le Shui Daozi!
 
 Cependant, aujourd'hui, la situation s'était totalement inversée. À cet instant, Wang Lin était la puissance céleste, et c'était le Shui Daozi qui luttait pour sa survie!
 
@@ -52,21 +52,21 @@ Cependant, aujourd'hui, la situation s'était totalement inversée. À cet insta
 
 « L'ordre de la Secte Divine est de défendre jusqu'à la mort! Des cultivateurs comme nous ne craignent pas la mort! » Les cultivateurs au visage pâle étaient forcés de battre en retraite. La Secte Divine était derrière eux; c'était leur vie même et la raison de leur culture!
 
-Au cours des dizaines de milliers d'années écoulées, la position de la Secte Divine était une chose que les cultivateurs de la Mer des Nuages respectaient et pour laquelle ils étaient prêts à mourir!
+Au cours des dizaines de milliers d'années écoulées, la position de la Secte Divine était une chose que les cultivateurs de la Mer Yun respectaient et pour laquelle ils étaient prêts à mourir!
 
-L'intention du Shui Daozi était de les laisser périr! De les laisser mourir entre les mains de Wang Lin, afin de susciter la colère de tous les cultivateurs de la Mer des Nuages et le chagrin des trois autres systèmes stellaires!
+L'intention du Shui Daozi était de les laisser périr! De les laisser mourir entre les mains de Wang Lin, afin de susciter la colère de tous les cultivateurs de la Mer Yun et le chagrin des trois autres systèmes stellaires!
 
 Il voulait utiliser leurs morts pour s'attirer un nouveau mérite auprès du Royaume Extérieur!
 
 Sous la poussée de la peur et de l'honneur, ces quelque 10 000 cultivateurs firent preuve de la dignité du Royaume Intérieur. Ils réprimèrent leur crainte et choisirent la gloire!
 
-« Gloire à la Mer des Nuages! »
+« Gloire à la Mer Yun! »
 
-« Gloire à la Mer des Nuages! »
+« Gloire à la Mer Yun! »
 
-« Gloire à la Mer des Nuages! »
+« Gloire à la Mer Yun! »
 
-Ces rugissements se propagèrent en ondes tandis que ces quelque 10 000 cultivateurs poussaient le cri le plus puissant de leur vie. C'était leur détermination à protéger la Mer des Nuages et la Secte Divine jusqu'au dernier souffle!
+Ces rugissements se propagèrent en ondes tandis que ces quelque 10 000 cultivateurs poussaient le cri le plus puissant de leur vie. C'était leur détermination à protéger la Mer Yun et la Secte Divine jusqu'au dernier souffle!
 
 Ce son était capable de secouer l'esprit de quiconque l'entendait et de faire trembler les âmes!
 
@@ -74,29 +74,29 @@ Portés par ce chant de gloire, ces quelque 10 000 cultivateurs semblaient avoir
 
 Pitoyables, mais respectables!
 
-Wang Lin fut ému en voyant les cultivateurs de la Mer des Nuages charger contre lui. Certains étaient des connaissances du passé, mais la plupart étaient des inconnus!
+Wang Lin fut ému en voyant les cultivateurs de la Mer Yun charger contre lui. Certains étaient des connaissances du passé, mais la plupart étaient des inconnus!
 
-Ces cultivateurs appartenaient à divers niveaux de culture, possédaient différents domaines et venaient de sectes variées. Pourtant, ils partageaient le sang de la Mer des Nuages et une foi unique. Ils étaient de véritables cultivateurs de la Mer des Nuages, unis dans la vie comme dans la mort!
+Ces cultivateurs appartenaient à divers niveaux de culture, possédaient différents domaines et venaient de sectes variées. Pourtant, ils partageaient le sang de la Mer Yun et une foi unique. Ils étaient de véritables cultivateurs de la Mer Yun, unis dans la vie comme dans la mort!
 
 Ce qu'ils gardaient n'était pas le Shui Daozi, mais la Secte Divine!
 
 Ils ignoraient l'insidiosité du Shui Daozi; ils savaient seulement que la Secte Divine avait ordonné de ne pas laisser Wang Lin entrer!
 
-Gloire à la Mer des Nuages!
+Gloire à la Mer Yun!
 
-C'était la gloire de tous les cultivateurs de la Mer des Nuages!
+C'était la gloire de tous les cultivateurs de la Mer Yun!
 
 Sous cette gloire, même les cultivateurs de la troisième étape, et Wang Lin lui-même, furent contraints de reculer! Il aurait pu d'un revers de main les anéantir avec le Feu Éthéré, mais comment pouvait-il attaquer maintenant?
 
 Portés par cette gloire, ces quelque 10 000 cultivateurs devinrent encore plus effrénés en se précipitant vers Wang Lin, le forçant une fois de plus à reculer! En les voyant, il fut rappelé à ce qu'il avait observé dans le Royaume aux Sept Couleurs: les êtres célestes du passé chargeant la Formation de Scellement du Royaume, luttant tels des âmes indomptables!
 
-À cet instant, les puissants cultivateurs des quatre systèmes stellaires et les quelques cultivateurs de la troisième étape virent tout cela. Ils entendirent la voix du Système Stellaire de la Mer des Nuages!
+À cet instant, les puissants cultivateurs des quatre systèmes stellaires et les quelques cultivateurs de la troisième étape virent tout cela. Ils entendirent la voix du Système Stellaire de la Mer Yun!
 
 Cette voix suffisait à inspirer le cœur, assez pour que les cultivateurs des trois autres systèmes ressentent ce même sentiment de gloire!
 
 Ce n'était plus du tout ce que voulait le Shui Daozi, détruire le cœur dao des cultivateurs du Royaume Intérieur et perturber les préparatifs de guerre. C'était devenu, de toute évidence, une bataille de gloire qui éveillait tous les cultivateurs du Royaume Intérieur à la défense de leur patrie!
 
-Même le Shui Daozi fut stupéfait. Il n'avait jamais pu imaginer un tel revirement! Il avait sous-estimé les cultivateurs de la Mer des Nuages, et leur... gloire!
+Même le Shui Daozi fut stupéfait. Il n'avait jamais pu imaginer un tel revirement! Il avait sous-estimé les cultivateurs de la Mer Yun, et leur... gloire!
 
 « Shui Daozi, tu mérites la mort! » Wang Lin recula, l'œil chargé d'une intention meurtrière. Son pied droit frappa le sol et il avança d'un pas. Il leva sa main droite, balaya sa grande manche et pointa le doigt, sans craindre d'épuiser sa propre énergie, quitte à éprouver ses propres limites, et laissa échapper un rugissement de colère.
 
@@ -106,7 +106,7 @@ Ce rugissement n'était pas destiné aux quelque 10 000 cultivateurs, mais à ce
 
 Le monde trembla. Le mouvement des cultivateurs, la course des étoiles, le roulement du monde et l'activité des formations s'immobilisèrent en cet instant même!
 
-Cela ne figea pas seulement leurs corps, mais aussi leurs âmes. Face à la gloire de la Mer des Nuages, un changement mystérieux s'opéra dans le sort d'arrêt de Wang Lin!
+Cela ne figea pas seulement leurs corps, mais aussi leurs âmes. Face à la gloire de la Mer Yun, un changement mystérieux s'opéra dans le sort d'arrêt de Wang Lin!
 
 Ce changement advint grâce à ces quelque 10 000 cultivateurs et au désir de Wang Lin de ne pas les tuer. Bien qu'il ne le comprenne pas pleinement, son sort d'arrêt était passé du contrôle des corps au contrôle des âmes!
 
@@ -134,7 +134,7 @@ Sous cette couche de givre, le regard de Wang Lin se posa sur le Shui Daozi, ass
 
 « Regarde qui ils sont! » Le Shui Daozi pointa le ciel et rugit. Le monde gronda et le vide se distordit jusqu'à ce qu'une image apparaisse!
 
-Dans cette vision, les membres de la Secte de l'Origine étaient encerclés dans un bassin par plusieurs cultivateurs vêtus de noir. Au-dessus d'eux surplombait une montagne gigantesque émettant des ondes de lumière. Elle semblait prête à s'écraser et à tout annihiler à tout instant!
+Dans cette vision, les membres de la Secte Gui Yuan étaient encerclés dans un bassin par plusieurs cultivateurs vêtus de noir. Au-dessus d'eux surplombait une montagne gigantesque émettant des ondes de lumière. Elle semblait prête à s'écraser et à tout annihiler à tout instant!
 
 « Ils mourront à cause de toi. Je veux voir si une faille apparaîtra dans ton cœur dao! » Le Shui Daozi rit sauvagement en agitant la main.
 

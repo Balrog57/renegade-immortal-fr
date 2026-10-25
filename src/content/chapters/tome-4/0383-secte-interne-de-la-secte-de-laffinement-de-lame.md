@@ -1,6 +1,6 @@
 ---
 n: 383
-title: "Secte interne de la Secte de l'Affinement de l'Âme"
+title: "Secte interne de la Secte Lian Hun"
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 383 - Inner Secte of the Soul Refining Secte
@@ -62,9 +62,9 @@ Le disciple de la secte interne chargé du combat joignit les mains en signe de 
 
 Wang Lin hocha la tête avec un sourire et suivit Wang Zhen dans la secte interne.
 
-La secte interne de la Secte de l'Affinement de l'Âme ressemblait au paradis. En traversant la formation, il aperçut trois montagnes perçant les cieux.
+La secte interne de la Secte Lian Hun ressemblait au paradis. En traversant la formation, il aperçut trois montagnes perçant les cieux.
 
-Tandis qu'ils volaient, Wang Zhen expliqua: « Ces trois montagnes appartiennent aux trois factions qui coexistent au sein de la Secte de l'Affinement de l'Âme: l'Affinement de l'Âme, l'Extraction de l'Âme et le Scellement de l'Âme. »
+Tandis qu'ils volaient, Wang Zhen expliqua: « Ces trois montagnes appartiennent aux trois factions qui coexistent au sein de la Secte Lian Hun: l'Affinement de l'Âme, l'Extraction de l'Âme et le Scellement de l'Âme. »
 
 Wang Lin acquiesça et tourna son regard vers les trois montagnes.
 
@@ -80,19 +80,19 @@ Wang Zhen se tourna vers lui et demanda: « Qing Mu, connais-tu Ceng Niu? »
 
 « Ceng Niu? » Wang Lin hocha la tête avec calme et répondit: « J'en ai entendu parler. »
 
-« Ma Secte de l'Affinement de l'Âme comptait dix cultivateurs au stade de la Formation de l'Âme, mais l'un d'eux a été tué par Ceng Niu. » Les yeux de Wang Zhen brillaient d'admiration. « Il est mon objectif. Un jour, je deviendrai le premier cultivateur sous le stade de la Transformation de l'Âme sur Suzaku! »
+« Ma Secte Lian Hun comptait dix cultivateurs au stade de la Formation de l'Âme, mais l'un d'eux a été tué par Ceng Niu. » Les yeux de Wang Zhen brillaient d'admiration. « Il est mon objectif. Un jour, je deviendrai le premier cultivateur sous le stade de la Transformation de l'Âme sur Suzaku! »
 
-« Oh, vraiment? » Wang Lin réfléchit un long moment, mais ne se souvenait pas avoir tué un jour un cultivateur au stade de la Formation de l'Âme de la Secte de l'Affinement de l'Âme.
+« Oh, vraiment? » Wang Lin réfléchit un long moment, mais ne se souvenait pas avoir tué un jour un cultivateur au stade de la Formation de l'Âme de la Secte Lian Hun.
 
 Wang Zhen poursuivit: « Peu de gens sont au courant, pourtant. Ce patriarche de la Formation de l'Âme voyageait dans d'autres pays lorsqu'il est entré en conflit avec Ceng Niu et qu'il a été tué par lui. »
 
 Wang Lin se frotta le nez. Il ne s'en souvenait vraiment absolument pas.
 
-« Ce Ceng Niu a vraiment disparu au moment opportun. Dun Tian, de notre Secte de l'Affinement de l'Âme, allait justement aller lui demander des comptes à ce sujet. » Wang Zhen soupira.
+« Ce Ceng Niu a vraiment disparu au moment opportun. Dun Tian, de notre Secte Lian Hun, allait justement aller lui demander des comptes à ce sujet. » Wang Zhen soupira.
 
 « Le patriarche Dun Tian? » Les yeux de Wang Lin s'illuminèrent.
 
-« Ce n'est pas un secret que je te cache maintenant, puisque tu vas devenir membre de la secte interne. Notre Secte de l'Affinement de l'Âme possède deux patriarches au stade de la Transformation de l'Âme; l'un d'eux est le patriarche Dun Tian. Vois-tu ces anneaux dorés? Derrière eux se trouvent encore deux anneaux de sang: ce sont les lieux de retraite des deux patriarches. »
+« Ce n'est pas un secret que je te cache maintenant, puisque tu vas devenir membre de la secte interne. Notre Secte Lian Hun possède deux patriarches au stade de la Transformation de l'Âme; l'un d'eux est le patriarche Dun Tian. Vois-tu ces anneaux dorés? Derrière eux se trouvent encore deux anneaux de sang: ce sont les lieux de retraite des deux patriarches. »
 
 Wang Lin leva les yeux. Il pouvait distinguer une faible ombre rouge sang derrière les neuf anneaux dorés.
 
@@ -126,7 +126,7 @@ Wang Lin ne chercha pas à esquiver. Au moment où le doigt le toucha, une éner
 
 Peu après, l'homme retira son doigt. Ses yeux n'étaient plus aussi froids. Il déclara: « Je suis le Grand Ancien de la Montagne de l'Affinement de l'Âme. Tu peux te rendre au pavillon latéral pour récupérer ton jeton et tes vêtements. Tu peux également te rendre à la bibliothèque de la Montagne de l'Affinement de l'Âme pour choisir une technique. Enfin, tu es libre d'ouvrir une grotte sur n'importe quelle partie de la montagne pour ta culture. »
 
-« Il n'y a pas de maîtres au sein de la Secte de l'Affinement de l'Âme; chacun cultive par ses propres moyens. Si tu as des questions, tu pourras me les poser. Maintenant, va-t'en. »
+« Il n'y a pas de maîtres au sein de la Secte Lian Hun; chacun cultive par ses propres moyens. Si tu as des questions, tu pourras me les poser. Maintenant, va-t'en. »
 
 Wang Lin hocha la tête et partit respectueusement.
 
@@ -138,7 +138,7 @@ Le vieil homme eut un ricanement méprisant: « Rien de préoccupant! »
 
 « Junior frère apprenti, ces dernières années, tous les patriarches sont en culture fermée. Nous devons tenir bon et ne laisser entrer personne ayant de mauvaises intentions. »
 
-La voix du vieil homme se fit glaciale: « Quelle plaisanterie. Ce n'est pas comme si nous n'avions pas déjà assez de personnes avec des motifs cachés au sein de la Secte de l'Affinement de l'Âme. Un de plus ou un de moins ne changera rien. Un disciple sur dix sous la direction de mes deux frères aînés est animé par des desseins secrets. Occupez-vous de vos propres montagnes. Les affaires de ma Montagne de l'Affinement de l'Âme ne vous concernent pas. »
+La voix du vieil homme se fit glaciale: « Quelle plaisanterie. Ce n'est pas comme si nous n'avions pas déjà assez de personnes avec des motifs cachés au sein de la Secte Lian Hun. Un de plus ou un de moins ne changera rien. Un disciple sur dix sous la direction de mes deux frères aînés est animé par des desseins secrets. Occupez-vous de vos propres montagnes. Les affaires de ma Montagne de l'Affinement de l'Âme ne vous concernent pas. »
 
 « La frustration du disciple junior est grande. Ce jeune homme doté d'une intuition anticipatrice a été choisi par moi. Celui qui maîtrise le sortilège de la mort a été choisi par le frère cadet en charge de la Montagne du Scellement de l'Âme. Le dernier restant est le vainqueur de la compétition. Le cadet n'est-il toujours pas satisfait? »
 
@@ -148,6 +148,6 @@ Les deux sens divins éclatèrent d'un rire sonore avant de se dissiper.
 
 Wang Lin rétracta son sens divin alors qu'il remontait le sentier de la montagne.
 
-« Tous les cultivateurs du stade de la Formation de l'Âme et au-delà sont en culture fermée, et la Secte de l'Affinement de l'Âme est gardée par ces trois-là », médita Wang Lin en se dirigeant vers le hall secondaire.
+« Tous les cultivateurs du stade de la Formation de l'Âme et au-delà sont en culture fermée, et la Secte Lian Hun est gardée par ces trois-là », médita Wang Lin en se dirigeant vers le hall secondaire.
 
 Après avoir récupéré son jeton et ses vêtements, Wang Lin remarqua qu'il était encore tôt dans la journée; il décida donc de se rendre à la bibliothèque.

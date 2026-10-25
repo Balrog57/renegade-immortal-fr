@@ -12,7 +12,7 @@ Le jeune homme vêtu de jaune renifla et tonna: « 35 000 cristaux d'origine! »
 
 « 40 000! » Cang Songzi resta d'un calme olympien, comme si ces 40 000 cristaux d'origine n'avaient aucune importance à ses yeux. Cette réaction inhabituelle força immédiatement les cultivateurs environnants à regarder Cang Songzi avec stupéfaction.
 
-Cang Songzi était un Grand Ancien de la Secte du Jade Précieux qui n'avait même pas besoin de témoigner de respect au Maître de Secte. Il possédait de nombreux disciples directs et disposait d'assez de pouvoir pour défier le Maître de Secte lui-même. Cependant, il était resté très discret, c'est pourquoi le Maître de Secte n'avait jamais enquêté sur la quantité de jades célestes et de cristaux d'origine qu'il avait accumulés.
+Cang Songzi était un Grand Ancien de la Secte Bao Yu qui n'avait même pas besoin de témoigner de respect au Maître de Secte. Il possédait de nombreux disciples directs et disposait d'assez de pouvoir pour défier le Maître de Secte lui-même. Cependant, il était resté très discret, c'est pourquoi le Maître de Secte n'avait jamais enquêté sur la quantité de jades célestes et de cristaux d'origine qu'il avait accumulés.
 
 « 50 000 cristaux d'origine! » Le jeune en jaune fixa Cang Songzi en serrant les dents.
 

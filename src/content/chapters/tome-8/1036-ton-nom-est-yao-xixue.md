@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1036 - Your Name is Yao Xixue
 slug: ton-nom-est-yao-xixue
 ---
-La restriction florale de la Grotte de l'Empereur Céleste fut totalement activée par le combat entre Wang Lin et le démon du vent. Une main gigantesque saisit la Lance Tueuse de Dieux et tenta immédiatement de l'entraîner vers les profondeurs.
+La restriction florale de la Grotte Xian Di fut totalement activée par le combat entre Wang Lin et le démon du vent. Une main gigantesque saisit la Lance Tueuse de Dieux et tenta immédiatement de l'entraîner vers les profondeurs.
 
 Un éclair de froideur passa dans les yeux de Wang Lin et il hurla: « Effondre-toi! »
 
@@ -124,7 +124,7 @@ Tandis que la main droite de Wang Lin continuait sa course, les innombrables cic
 
 Sa peau d'un blanc de jade semblait pouvoir se briser au moindre souffle. Sa clarté cristalline dégageait un charme singulier.
 
-Un instant, Wang Lin crut apercevoir la Yao Xixue d'autrefois, dans la Terre des Esprits Démoniaques...
+Un instant, Wang Lin crut apercevoir la Yao Xixue d'autrefois, dans la Terre Yao Ling...
 
 Enfin, Wang Lin pointa l'espace entre les sourcils du démon du vent. Le corps de celle-ci trembla immédiatement. Elle se souvint comment Wang Lin avait utilisé ce sort de téléportation étrange au début du combat. Il aurait pu la blesser gravement, mais il avait choisi de simplement pointer entre ses sourcils.
 

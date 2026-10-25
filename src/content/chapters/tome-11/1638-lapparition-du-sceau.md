@@ -28,7 +28,7 @@ Les environs étaient plongés dans un silence absolu, comme si tel était l'ét
 
 « Il a franchi la troisième étape et brisé la rétribution divine pour parvenir jusqu'ici. Il a même retiré son propre destin du neuvième soleil. Cet exploit est incroyable, et il l'a accompli. Tigre Blanc, tu te moques de lui, mais si tu étais un cultivateur du royaume inférieur, aurais-tu pu faire une telle chose...? » Une voix froide et antique émana d'une autre statue.
 
-« Si c'était moi, cela ne signifie pas que je serais incapable de le faire! Nous, les êtres célestes, portons sur nos souvenirs des sceaux imposés par le Souverain Céleste. C'est une chance immense que seuls les disciples centraux de ma Secte des Sept Dao peuvent recevoir. Je ne suis pas surpris par le fait que cette petite fourmi puisse terrasser un Soldat Céleste gravement blessé et en convalescence, mais je suis certain qu'il trouvera sa propre mort s'il tente de briser le sceau du Souverain Céleste! »
+« Si c'était moi, cela ne signifie pas que je serais incapable de le faire! Nous, les êtres célestes, portons sur nos souvenirs des sceaux imposés par le Souverain Céleste. C'est une chance immense que seuls les disciples centraux de ma Secte Qi Dao peuvent recevoir. Je ne suis pas surpris par le fait que cette petite fourmi puisse terrasser un Soldat Céleste gravement blessé et en convalescence, mais je suis certain qu'il trouvera sa propre mort s'il tente de briser le sceau du Souverain Céleste! »
 
 « Assez, pourquoi vous disputez-vous? Oiseau Vermillon, ton descendant est effectivement un peu trop arrogant. Et s'il venait à mourir à cause du sceau du Souverain Céleste? Cela aurait-il un impact sur ton plan? » Une troisième voix s'éleva de la troisième statue.
 

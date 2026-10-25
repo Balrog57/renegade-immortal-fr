@@ -48,7 +48,7 @@ Son corps fut instantanément enveloppé et les flammes commencèrent à le cons
 
 Ces quelques respirations durèrent comme des dizaines de milliers d'années. Sous la protection de son père qui contenait l'effondrement, le processus de résurrection de Yao Xixue ne fut pas perturbé par la destruction de l'espace de stockage.
 
-Une lumière rouge emplit la zone où Yao Xixue avait avalé sa Pilule d'Âme Sanguine dans la Terre des Esprits Démoniaques, et la silhouette de la jeune femme apparut lentement.
+Une lumière rouge emplit la zone où Yao Xixue avait avalé sa Pilule d'Âme Sanguine dans la Terre Yao Ling, et la silhouette de la jeune femme apparut lentement.
 
 Une fois apparue, elle leva les yeux vers le ciel, le regard empreint de chagrin et d'une intention meurtrière inoubliable.
 

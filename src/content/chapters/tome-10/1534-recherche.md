@@ -6,11 +6,11 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1534 - Search
 slug: recherche
 ---
-Ce vortex géant aspirait la brume propre au Système Stellaire de la Mer des Nuages pour en faire une zone de brume tourbillonnante.
+Ce vortex géant aspirait la brume propre au Système Stellaire de la Mer Yun pour en faire une zone de brume tourbillonnante.
 
 Cette bataille fut un coup terrible porté au Royaume Extérieur. Elle permit aux cultivateurs du Royaume Extérieur, jusqu'alors en proie à la frénésie, de reprendre leurs esprits. Le Royaume Extérieur avait trop souffert lors de ce combat!
 
-Les membres de plusieurs dizaines de tribus périrent. Aucun survivant ne subsista parmi ceux qui étaient entrés dans le Royaume Intérieur… L'ancêtre du Clan des Hirondelles de Feu était mort, Nanzhao Shangren était mort, et même le seigneur du Palais de la Punition Céleste avait péri! Plus de 100 000 cultivateurs furent enterrés dans le Royaume Intérieur!
+Les membres de plusieurs dizaines de tribus périrent. Aucun survivant ne subsista parmi ceux qui étaient entrés dans le Royaume Intérieur… L'ancêtre du Clan Huo Que était mort, Nanzhao Shangren était mort, et même le seigneur du Palais Tian Fa avait péri! Plus de 100 000 cultivateurs furent enterrés dans le Royaume Intérieur!
 
 L'ensemble du Système Stellaire Antique fut empreint de tristesse. Une tristesse intense qui se mua lentement en colère, une soif de vengeance!
 
@@ -20,7 +20,7 @@ Tout le Royaume Extérieur commença à se mobiliser. Ils attendaient, attendant
 
 Certains vieux monstres qui étaient restés en cultivation recluse pendant des dizaines de milliers d'années, comme ceux dont Lanmeng Daozun avait parlé, sortirent de leur retraite. Ils fixaient le Royaume Intérieur avec une intention meurtrière!
 
-Le nom « Seigneur du Royaume Scellé Wang Lin » était désormais fermement gravé dans la mémoire du Royaume Extérieur. Ils serraient les dents de haine. C'était Wang Lin qui avait tué l'ancêtre du Clan des Hirondelles de Feu, qui avait tué Nanzhao Shangren, qui avait tué l'avatar du Grand Maître Yun Luo et qui avait détruit l'île où elle se trouvait, rendant son sort incertain entre la vie et la mort!
+Le nom « Seigneur du Royaume Scellé Wang Lin » était désormais fermement gravé dans la mémoire du Royaume Extérieur. Ils serraient les dents de haine. C'était Wang Lin qui avait tué l'ancêtre du Clan Huo Que, qui avait tué Nanzhao Shangren, qui avait tué l'avatar du Grand Maître Yun Luo et qui avait détruit l'île où elle se trouvait, rendant son sort incertain entre la vie et la mort!
 
 C'était cet homme qui avait libéré l'océan de poison et les bêtes-moustiques, devenant un véritable cauchemar pour les cultivateurs du Royaume Extérieur!
 
@@ -30,15 +30,15 @@ Il était le Seigneur du Royaume Scellé, il devait mourir!
 
 L'apparence de Wang Lin fut diffusée par le Conseil Souverain et était désormais connue de tous les cultivateurs du Royaume Extérieur. Ils avaient également fixé une récompense sans précédent pour sa tête!
 
-Les cultivateurs de la Mer des Nuages avaient subi de lourdes pertes lors de cette bataille, il n'en restait plus que quelques milliers… La Mer des Nuages entière semblait désormais presque abandonnée à cause de ce conflit.
+Les cultivateurs de la Mer Yun avaient subi de lourdes pertes lors de cette bataille, il n'en restait plus que quelques milliers… La Mer Yun entière semblait désormais presque abandonnée à cause de ce conflit.
 
-Le nombre massif de morts avait causé l'effondrement de la plupart des sectes de la Mer des Nuages. Les seules qui subsistaient étaient composées de cultivateurs faibles.
+Le nombre massif de morts avait causé l'effondrement de la plupart des sectes de la Mer Yun. Les seules qui subsistaient étaient composées de cultivateurs faibles.
 
-Les quelques milliers de survivants de la Mer des Nuages assumèrent la charge d'éduquer les générations futures. Ils rassemblèrent les diverses sectes d'autrefois pour former les dix futures sectes de la Mer des Nuages!
+Les quelques milliers de survivants de la Mer Yun assumèrent la charge d'éduquer les générations futures. Ils rassemblèrent les diverses sectes d'autrefois pour former les dix futures sectes de la Mer Yun!
 
-Heureusement, les Sectes Divine, Démoniaque et Fantôme n'avaient pas révélé l'essentiel de leur puissance, mais elles parvenaient à peine à maintenir la situation actuelle dans la Mer des Nuages.
+Heureusement, les Sectes Divine, Démoniaque et Fantôme n'avaient pas révélé l'essentiel de leur puissance, mais elles parvenaient à peine à maintenir la situation actuelle dans la Mer Yun.
 
-En raison de l'instabilité causée par cette bataille, toute la Mer des Nuages était devenue erratique. Des failles spatiales étaient apparues partout, rendant tout vol à travers la Mer des Nuages extrêmement périlleux.
+En raison de l'instabilité causée par cette bataille, toute la Mer Yun était devenue erratique. Des failles spatiales étaient apparues partout, rendant tout vol à travers la Mer Yun extrêmement périlleux.
 
 La Secte Démon avait envoyé près de 70 % de ses cultivateurs pour stationner en permanence à l'extérieur du site de la première bataille, la zone la plus vide de tout le royaume.
 
@@ -64,7 +64,7 @@ La femme à la robe bleu aquatique avait été amenée ici par Maître Nan Yunzi
 
 Après cette bataille, le nom de « Seigneur du Royaume Scellé Wang Lin » s'était propagé dans tout le Royaume Intérieur. Presque toutes les régions connaissaient les exploits du Seigneur du Royaume Scellé lors de ce combat!
 
-Il avait tué l'ancêtre du Clan des Hirondelles de Feu, il avait tué Nanzhao Shangren, cultivateur du Royaume Extérieur, et il avait tué l'avatar du Grand Maître Yun Luo!
+Il avait tué l'ancêtre du Clan Huo Que, il avait tué Nanzhao Shangren, cultivateur du Royaume Extérieur, et il avait tué l'avatar du Grand Maître Yun Luo!
 
 Avec sa hache, il avait stoppé la troisième armée d'invasion du Royaume Extérieur et fait en sorte que des dizaines de milliers de cultivateurs n'osent faire le moindre pas dans le Royaume Intérieur!
 
@@ -76,15 +76,15 @@ Le prestige de Wang Lin augmenta de façon fulgurante dans le Royaume Intérieur
 
 À la fin de la bataille, le Seigneur du Royaume Scellé Wang Lin avait libéré sa Bête des Limbes pour anéantir les derniers éléments de la force envahissante. Le vortex de brume était une création qu'il avait lui-même manifestée!
 
-Quiconque doutait de cela se taisait lorsqu'il arrivait à la Mer des Nuages et contemplait le vortex de brume. Puis, un sentiment de frénésie s'installait lentement au plus profond de leur cœur!
+Quiconque doutait de cela se taisait lorsqu'il arrivait à la Mer Yun et contemplait le vortex de brume. Puis, un sentiment de frénésie s'installait lentement au plus profond de leur cœur!
 
 Presque tous les cultivateurs stationnés à l'extérieur du brouillard observaient en silence le vortex qui bouleversait leurs esprits. Après un long moment, ils s'inclinaient respectueusement avant de repartir.
 
-Si certains doutaient encore, leurs paroles n'atteignaient pas les cultivateurs de la Mer des Nuages, et plus particulièrement les milliers de survivants de la bataille. Chacun d'eux était un fanatique absolu envers Wang Lin. Ils ne toléreraient aucun manque de respect à son égard; pour eux, le Seigneur du Royaume Scellé Wang Lin était leur gloire!
+Si certains doutaient encore, leurs paroles n'atteignaient pas les cultivateurs de la Mer Yun, et plus particulièrement les milliers de survivants de la bataille. Chacun d'eux était un fanatique absolu envers Wang Lin. Ils ne toléreraient aucun manque de respect à son égard; pour eux, le Seigneur du Royaume Scellé Wang Lin était leur gloire!
 
 Même si un ami proche venu d'un autre système stellaire tenait des propos irrespectueux, ils se retourneraient immédiatement contre lui!
 
-Le nom de Wang Lin devint une légende dans le Royaume Intérieur! Cependant, cette légende s'était volatilisée sans laisser de trace. Personne ne savait s'il était vivant ou mort… Maître Hong Shan et les autres tentèrent ensemble de lancer un sort pour retrouver Wang Lin, mais ils ne trouvèrent rien. La Bête des Limbes qui s'était transformée en graine semblait avoir vécu un événement étrange, et nul ne pouvait la localiser… Pourtant, les cultivateurs de la Mer des Nuages croyaient fermement que le Seigneur du Royaume Scellé était toujours en vie!
+Le nom de Wang Lin devint une légende dans le Royaume Intérieur! Cependant, cette légende s'était volatilisée sans laisser de trace. Personne ne savait s'il était vivant ou mort… Maître Hong Shan et les autres tentèrent ensemble de lancer un sort pour retrouver Wang Lin, mais ils ne trouvèrent rien. La Bête des Limbes qui s'était transformée en graine semblait avoir vécu un événement étrange, et nul ne pouvait la localiser… Pourtant, les cultivateurs de la Mer Yun croyaient fermement que le Seigneur du Royaume Scellé était toujours en vie!
 
 Maître Lu Fu croyait que le Seigneur du Royaume Scellé était toujours vivant!
 
@@ -92,7 +92,7 @@ Xi Zifeng de Luotian et Xie Qing de la planète Ling Dong croyaient aussi que le
 
 Shengong Hu et Zhan Konglie le croyaient également!
 
-Les marques d'esclavage de l'estimée Ling Dong et de Zhou Jin ne s'étaient pas estompées, et la présence massive de bêtes-moustiques empoisonnées dans le Système Stellaire de la Mer des Nuages renforçait la conviction de beaucoup que le Seigneur du Royaume Scellé était toujours vivant!
+Les marques d'esclavage de l'estimée Ling Dong et de Zhou Jin ne s'étaient pas estompées, et la présence massive de bêtes-moustiques empoisonnées dans le Système Stellaire de la Mer Yun renforçait la conviction de beaucoup que le Seigneur du Royaume Scellé était toujours vivant!
 
 Mu Bingmei, qui était devenue la maîtresse de la Secte Divine grâce à une simple parole de Wang Lin, avait les larmes aux yeux, mais elle croyait fermement en sa survie!
 
@@ -108,7 +108,7 @@ Beaucoup cherchaient le Seigneur du Royaume Scellé Wang Lin, mais malgré leurs
 
 Dans la Secte Divine, après avoir réglé quelques affaires triviales, la très épuisée Mu Bingmei but un bol de soupe médicinale. Elle regarda silencieusement le ciel depuis son pavillon et murmura pour elle-même: « Où es-tu… »
 
-À l'extérieur du vortex de brume dans la Mer des Nuages, la femme à la robe bleu aquatique observa le tourbillon de brouillard et, après un long moment, poussa un soupir.
+À l'extérieur du vortex de brume dans la Mer Yun, la femme à la robe bleu aquatique observa le tourbillon de brouillard et, après un long moment, poussa un soupir.
 
 « Tu ne sais pas qui je suis… Où es-tu… »
 

@@ -20,15 +20,15 @@ Wang Lin ne bougea pas et se contenta de le fixer froidement.
 
 Le visage du vieil homme était amer. Il regarda la lame en croissant de lune qui flottait devant lui et déclara: « L'Ancêtre a accepté des disciples dans sept divisions, sept personnes dans chacune. Cependant, seul un disciple par division est un véritable disciple, et ces sept-là sont appelés les sept véritables disciples de Tian Yunzi. Bien que les autres soient toujours considérés comme des disciples, ils ne recevront pas l'héritage de l'Ancêtre. »
 
-Wang Lin resta silencieux, écoutant attentivement. Sa simple présence dégageait une aura d'arrogance. Le Wang Lin d'aujourd'hui était bien différent de celui qui était arrivé à la Secte du Destin Céleste.
+Wang Lin resta silencieux, écoutant attentivement. Sa simple présence dégageait une aura d'arrogance. Le Wang Lin d'aujourd'hui était bien différent de celui qui était arrivé à la Secte Tian Yun.
 
 « Il y a mille ans, dans la division violette, un génie est apparu. Cet homme devint le disciple éminent de la division violette, remplaçant le sixième de la division violette pour devenir l'un des sept véritables disciples de Tian Yunzi.
 
-Son nom était Sun Yun, et il résidait au Pavillon des Nuages Pourpres! »
+Son nom était Sun Yun, et il résidait au Pavillon Zi Yun! »
 
 Le regard de Wang Lin se fit sérieux alors qu'il demandait calmement: « Quel rapport cela a-t-il avec moi? »
 
-« En temps normal, aucun. Mais il y a cent ans, Sun Yun a trahi la secte et s'est enfui pour une raison inconnue. Malgré cela, l'Ancêtre n'a pas envoyé de chasseur, il est parti personnellement. Un mois plus tard, l'Ancêtre est revenu seul; il a alors scellé le Pavillon des Nuages Pourpres et a proclamé que la prochaine personne à y résider serait l'un des sept véritables disciples! » Le vieil homme marqua une pause à ce passage. Il regarda Wang Lin d'un air tourmenté, puis reprit: « Parmi les sept disciples de la division violette, les six autres ont grandi sur la planète Tian Yun; vous seul venez d'une planète à la culture déclinante. Même aux yeux des disciples ordinaires, vous êtes considéré comme un roturier et votre statut est inférieur au leur. Si tout était normal, ce ne serait pas si grave, mais puisque l'on vous a attribué le Pavillon des Nuages Pourpres, la discrimination est inévitable!
+« En temps normal, aucun. Mais il y a cent ans, Sun Yun a trahi la secte et s'est enfui pour une raison inconnue. Malgré cela, l'Ancêtre n'a pas envoyé de chasseur, il est parti personnellement. Un mois plus tard, l'Ancêtre est revenu seul; il a alors scellé le Pavillon Zi Yun et a proclamé que la prochaine personne à y résider serait l'un des sept véritables disciples! » Le vieil homme marqua une pause à ce passage. Il regarda Wang Lin d'un air tourmenté, puis reprit: « Parmi les sept disciples de la division violette, les six autres ont grandi sur la planète Tian Yun; vous seul venez d'une planète à la culture déclinante. Même aux yeux des disciples ordinaires, vous êtes considéré comme un roturier et votre statut est inférieur au leur. Si tout était normal, ce ne serait pas si grave, mais puisque l'on vous a attribué le Pavillon Zi Yun, la discrimination est inévitable!
 
 De plus, votre niveau de culture n'est même pas si élevé; il est donc naturel que vos frères apprentis vous voient comme une nuisance. À cause de l'Ancêtre, ils ne peuvent pas agir directement contre vous, mais les manœuvres dans l'ombre sont inévitables! J'ai dit tout ce que je pouvais dire. Ce qui s'est passé aujourd'hui est notre faute. À partir de maintenant, mon frère et moi ne prendrons plus jamais part à la lutte de succession entre vous, frères apprentis! »
 
@@ -62,9 +62,9 @@ Un cri étouffé retentit au loin, puis, instantanément, la lame revint vers lu
 
 La main droite de Wang Lin s'étira et arracha l'âme originelle du vieil homme à la lame. Ce dernier allait hurler, mais il était trop tard. Wang Lin envoya l'âme originelle dans sa bouche pour la sceller dans le drapeau des âmes.
 
-Une fois terminé, la froideur dans le regard de Wang Lin ne s'était pas dissipée; elle s'était intensifiée. Il se tourna vers le Pavillon des Nuages Pourpres et s'envola dans sa direction.
+Une fois terminé, la froideur dans le regard de Wang Lin ne s'était pas dissipée; elle s'était intensifiée. Il se tourna vers le Pavillon Zi Yun et s'envola dans sa direction.
 
-« Puisque Tian Yunzi m'a assigné au Pavillon des Nuages Pourpres, il a dû prévoir tout cela. Dans ce cas, je vais tout bouleverser et faire savoir aux gens de la Division Pourpre que moi, Wang Lin, je ne suis pas quelqu'un que l'on peut bousculer! »
+« Puisque Tian Yunzi m'a assigné au Pavillon Zi Yun, il a dû prévoir tout cela. Dans ce cas, je vais tout bouleverser et faire savoir aux gens de la Division Pourpre que moi, Wang Lin, je ne suis pas quelqu'un que l'on peut bousculer! »
 
 Il arriva peu après devant le pavillon. La femme vêtue de pourpre était assise à l'intérieur du palais. Elle caressait la peinture des montagnes et des rivières, le regard perdu dans ses pensées passées. En remarquant l'arrivée de Wang Lin, elle fronça les sourcils, puis son corps disparut pour réapparaître à l'extérieur du pavillon. Alors qu'elle fixait Wang Lin qui approchait tel un arc-en-ciel dans les airs, elle lança d'une voix froide:
 
@@ -84,17 +84,17 @@ La sphère plongea du ciel avec la rapidité de la foudre. Elle percuta le sol d
 
 À plus de trois cents mètres de là, un rayon de lumière blanche jaillit du sol, révélant l'expression terrifiée de la femme.
 
-Le regard de Wang Lin restait glacial tandis qu'il fixait la femme et déclarait: « À partir d'aujourd'hui, ce Pavillon des Nuages Pourpres sera renommé le Pavillon de la Forêt Violette! » Sur ces mots, Wang Lin fit un geste de la main.
+Le regard de Wang Lin restait glacial tandis qu'il fixait la femme et déclarait: « À partir d'aujourd'hui, ce Pavillon Zi Yun sera renommé le Pavillon Zi Lin! » Sur ces mots, Wang Lin fit un geste de la main.
 
-Un rayon de lumière verte jaillit et frappa les trois caractères de « Pavillon des Nuages Pourpres ». Lorsque la lueur disparut, le mot « Nuages » fut remplacé par « Forêt »!
+Un rayon de lumière verte jaillit et frappa les trois caractères de « Pavillon Zi Yun ». Lorsque la lueur disparut, le mot « Nuages » fut remplacé par « Forêt »!
 
 Le mot « Forêt » était calligraphié d'un trait défiant et arrogant, comme un dragon en furie jaillissant de la mer, comme un phénix sauvage fondant sur le ciel. Une aura dominante et impérieuse émanait de cette écriture, capable de faire trembler les cœurs de ceux qui la contemplaient.
 
-La femme en pourpre resta pétrifiée devant l'inscription « Pavillon de la Forêt Violette », et deux traînées de larmes coulèrent sur ses joues. Soudain, elle tourna violemment la tête vers Wang Lin et cria d'une voix brisée: « Je vais te tuer!!! »
+La femme en pourpre resta pétrifiée devant l'inscription « Pavillon Zi Lin », et deux traînées de larmes coulèrent sur ses joues. Soudain, elle tourna violemment la tête vers Wang Lin et cria d'une voix brisée: « Je vais te tuer!!! »
 
 Sur ces mots, elle s'élança et disparut totalement. Une brise souffla et Wang Lin fronça les sourcils en reculant rapidement. Cette brise était saturée d'intention meurtrière. Après un fracas retentissant, l'endroit où Wang Lin se tenait quelques instants plus tôt se couvrit de larges fissures!
 
-Alors que Wang Lin s'éloignait, la femme en pourpre surgit de la brise. Ses yeux étaient injectés de sang et brûlaient d'une soif de sang dévorante. Elle toucha son sac de rangement et un rayon de lumière rouge en jaillit. En montant dans les airs, cette lueur se mua en un phénix rouge flamboyant. Le phénix poussa un cri strident et soudain, les environs furent engloutis par une mer de feu. Cependant, aucune flamme ne toucha le Pavillon de la Forêt Violette; elles foncèrent toutes vers Wang Lin comme de la lave tombant du ciel.
+Alors que Wang Lin s'éloignait, la femme en pourpre surgit de la brise. Ses yeux étaient injectés de sang et brûlaient d'une soif de sang dévorante. Elle toucha son sac de rangement et un rayon de lumière rouge en jaillit. En montant dans les airs, cette lueur se mua en un phénix rouge flamboyant. Le phénix poussa un cri strident et soudain, les environs furent engloutis par une mer de feu. Cependant, aucune flamme ne toucha le Pavillon Zi Lin; elles foncèrent toutes vers Wang Lin comme de la lave tombant du ciel.
 
 Les yeux de Wang Lin s'illuminèrent. Il tendit la main et l'épée céleste apparut dans sa paume. L'énergie spirituelle céleste se concentra sur la lame avant qu'il ne porte un coup. Un rayon d'énergie de l'épée, long d'une dizaine de mètres, jaillit et percuta la mer de flammes dans une explosion sourde.
 

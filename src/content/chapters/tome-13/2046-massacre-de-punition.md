@@ -108,6 +108,6 @@ La pression se dissipa et le monde retrouva son calme. Le Wang Lin aux cheveux n
 
 « Je suis Massacre de Punition! » Sa voix était calme et d'un froid glacial. Elle ne contenait aucune émotion, seulement une indifférence absolue. Il représentait l'intention meurtrière et la destruction de Wang Lin, de quoi faire trembler les cieux et la terre, et faire connaître la peur aux ennemis de ce dernier.
 
-En levant la tête, son regard froid perça l'horizon, semblant capable de franchir des distances infinies. Son regard tomba directement sur la pointe de la corne de la Montagne de l'Origine, sur un Song Tian pétrifié!
+En levant la tête, son regard froid perça l'horizon, semblant capable de franchir des distances infinies. Son regard tomba directement sur la pointe de la corne de la Montagne Yuan Shi, sur un Song Tian pétrifié!
 
 « Ce n'est pas bon! » Song Tian trembla et eut le souffle coupé. Il se leva par instinct, le visage décomposé, attrapa Chi Man et s'envola dans les airs juste avant que la corne sur laquelle il siégeait ne s'effondre.

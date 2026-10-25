@@ -70,7 +70,7 @@ L'expression du troisième frère aîné changea radicalement. Sans la moindre h
 
 Son épée s'élança dans les airs et frappa violemment vers le bas. Le sixième frère cadet serra les dents et envoya lui aussi son épée pour trancher la menace.
 
-Soudain, deux rayons d'énergie d'épée fusionnèrent comme deux dragons entrelacés, détruisant toutes les nourritures qui chargeaient vers eux. L'impact percuta le trou dans le mur, ouvrant une brèche d'une dizaine de mètres. Cette puissance provoqua l'effondrement de nombreuses parties de ce Temple des Bêtes Célestes déjà instable.
+Soudain, deux rayons d'énergie d'épée fusionnèrent comme deux dragons entrelacés, détruisant toutes les nourritures qui chargeaient vers eux. L'impact percuta le trou dans le mur, ouvrant une brèche d'une dizaine de mètres. Cette puissance provoqua l'effondrement de nombreuses parties de ce Temple Xian Shou déjà instable.
 
 De nouveaux filaments sortirent de la brèche. Parmi eux, une ligne noire était extrêmement frappante.
 
@@ -112,6 +112,6 @@ Wang Lin se déplaçait aussi vite que possible à travers les cavernes; en chem
 
 Tout au long de sa fuite, il sentait les âmes errantes être détruites une à une. À travers elles, il pouvait voir que la ligne noire semblait avoir sombré dans la folie, car elle perçait les murs des grottes et annihilait chaque âme sur son passage.
 
-Le Temple des Bêtes Célestes comptait de nombreuses cavités, mais beaucoup avaient été ensevelies lors de l'ancienne catastrophe, et d'autres venaient de succomber sous la puissance des deux épées.
+Le Temple Xian Shou comptait de nombreuses cavités, mais beaucoup avaient été ensevelies lors de l'ancienne catastrophe, et d'autres venaient de succomber sous la puissance des deux épées.
 
 Désormais, avec cette ligne noire fonçant à travers les parois comme une démente, de nombreuses grottes ne purent résister et s'effondrèrent.

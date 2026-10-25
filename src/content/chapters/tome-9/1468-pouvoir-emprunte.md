@@ -87,7 +87,7 @@ Même la terre devrait le vénérer!
 
 Le corps de Zhou Jin trembla et du sang jaillit du coin de sa bouche alors qu'il reculait. Tandis que la pression fluctuait, des craquements retentirent dans ses jambes. C'était comme si une force pesait sur ses épaules, le forçant à plier!
 
-Cependant, il n'était pas Ling Dong et n'avait pas été raffiné. En tant que puissant cultivateur du troisième pas et ancêtre du Clan du Loup Céleste, il ne s'agenouillait ni devant les cieux, ni devant aucun dieu. Plus la pression était forte, plus il luttait. Il poussa un rugissement et, contre toute attente, ne s'agenouilla pas!
+Cependant, il n'était pas Ling Dong et n'avait pas été raffiné. En tant que puissant cultivateur du troisième pas et ancêtre du Clan Feng Tian Lang, il ne s'agenouillait ni devant les cieux, ni devant aucun dieu. Plus la pression était forte, plus il luttait. Il poussa un rugissement et, contre toute attente, ne s'agenouilla pas!
 
 Il savait parfaitement que Wang Lin n'aurait pu obtenir une aura aussi puissante en si peu de temps. Il savait aussi que cette aura n'appartenait pas à Wang Lin, mais que celui-ci ne faisait que l'emprunter!
 
@@ -103,7 +103,7 @@ Au moment où elles cessèrent de pivoter, la pression et l'aura accumulées dan
 
 Zhou Jin cracha du sang et son esprit sembla se déchirer. Son cœur de Dao vola en éclats et toute sa résistance s'effondra. À cet instant, Wang Lin était tel un empereur invincible possédant une aura capable de faire trembler le monde entier!
 
-L'homme corpulent du Clan du Loup Céleste s'agenouilla au sol. Son corps tremblait et, à l'instar de Ling Dong, il n'osa pas lever les yeux... Il avait cédé...
+L'homme corpulent du Clan Feng Tian Lang s'agenouilla au sol. Son corps tremblait et, à l'instar de Ling Dong, il n'osa pas lever les yeux... Il avait cédé...
 
 Wang Lin semblait ne rien avoir remarqué. Son regard paraissait avoir transpercé Ling Dong et Zhou Jin pour porter plus loin. Dans ses yeux, les cultivateurs autour de la plateforme de pierre semblaient être revenus des millénaires en arrière.
 

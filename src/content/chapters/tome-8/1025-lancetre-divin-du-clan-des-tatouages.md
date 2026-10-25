@@ -1,6 +1,6 @@
 ---
 n: 1025
-title: "L'Ancêtre Divin du Clan du Tatouage"
+title: "L'Ancêtre Divin du Clan Fu Wen"
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 1025 - Tattoo Clan Divine Ancestor

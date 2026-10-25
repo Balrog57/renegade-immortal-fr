@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1229 - Target, Wind Celestial Realm!"
 slug: cible-le-royaume-celeste-du-vent
 ---
-Le retour de Wang Lin ne provoqua aucune agitation. La grande compétition se déroulait dans la région de rang 8, personne n'était donc au courant de sa présence. Après tout, il était presque inconnu dans la Mer des Nuages.
+Le retour de Wang Lin ne provoqua aucune agitation. La grande compétition se déroulait dans la région de rang 8, personne n'était donc au courant de sa présence. Après tout, il était presque inconnu dans la Mer Yun.
 
-Même sans le festival de la région de rang 8, personne n'aurait su que Wang Lin était revenu. Personne ne savait que sa renommée dans la Mer des Nuages était sur le point de commencer.
+Même sans le festival de la région de rang 8, personne n'aurait su que Wang Lin était revenu. Personne ne savait que sa renommée dans la Mer Yun était sur le point de commencer.
 
 Après avoir détourné son regard, Wang Lin s'assit. Ce continent sauvage était véritablement isolé, si bien que très peu de personnes venaient ici. Wang Lin devina qu'avec le début de la compétition au sein de la grande secte, les visiteurs seraient encore plus rares.
 
@@ -60,7 +60,7 @@ Tout en réfléchissant, le sens divin de Wang Lin se déploya et pénétra lent
 
 « Camarade cultivateur Chen, nous avons quitté le Royaume aux Sept Couleurs. » Le message de Wang Lin résonna au cœur de l'âme originelle du jeune homme.
 
-« Merci, Camarade... Je vous en prie... Aidez-moi une dernière fois... Renvoyez-moi à la Secte des Bêtes de Bataille. Mon maître pourra me sauver. » L'âme de Chen Tianjun était trop faible; après avoir transmis ce message, elle devint encore plus évanescente.
+« Merci, Camarade... Je vous en prie... Aidez-moi une dernière fois... Renvoyez-moi à la Secte Yi Shou. Mon maître pourra me sauver. » L'âme de Chen Tianjun était trop faible; après avoir transmis ce message, elle devint encore plus évanescente.
 
 « Très bien! » acquiesça Wang Lin, avant de ranger l'âme de Chen Tianjun dans son espace de stockage. Son regard se posa ensuite sur la deuxième âme originelle: la vieille femme en vert.
 
@@ -96,9 +96,9 @@ Cette découverte fut une agréable surprise. Il prit une profonde inspiration e
 
 Après avoir rangé la perle, Wang Lin se sentait confiant. Bien que gravement blessé, ces perles lui offriraient une protection considérable avant qu'il ne se rétablisse totalement.
 
-« L'essentiel maintenant est de guérir et de me rendre au Royaume Céleste du Vent pour obtenir un troupeau de bêtes moustiques. Alors, je pourrai me déplacer à ma guise dans la Mer des Nuages! »
+« L'essentiel maintenant est de guérir et de me rendre au Royaume Céleste du Vent pour obtenir un troupeau de bêtes moustiques. Alors, je pourrai me déplacer à ma guise dans la Mer Yun! »
 
-« Quant à la compétition de la Secte de l'Origine au sein de la grande secte, elle durera encore quelques mois, il n'y a donc aucune urgence. Pour l'instant, je dois atteindre le Royaume Céleste du Vent le plus vite possible! » Wang Lin prit sa décision et s'élança vers les étoiles à une vitesse fulgurante.
+« Quant à la compétition de la Secte Gui Yuan au sein de la grande secte, elle durera encore quelques mois, il n'y a donc aucune urgence. Pour l'instant, je dois atteindre le Royaume Céleste du Vent le plus vite possible! » Wang Lin prit sa décision et s'élança vers les étoiles à une vitesse fulgurante.
 
 Il avait obtenu de nombreuses cartes stellaires auprès de Peng Lai cent ans auparavant et les avait déjà mémorisées. Désormais, il fendait le brouillard tel un météore. Cet endroit se situait déjà à la frontière de la région de rang 6. Wang Lin traversa rapidement la brume pour y pénétrer.
 

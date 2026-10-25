@@ -54,7 +54,7 @@ Le but est le **Nirvana**, et à chaque niveau la loi naturelle est vue plus cla
 
 **Niveau transitionnel:**
 
-| 13 | **Fléau des Cieux** (1-5) | 5 désolations/tribulations. À chaque désolation, la puissance augmente. Normalement, on cultive l'Essence jusqu'à la Grande Achèvement puis on tente d'ouvrir la Porte du Vide. |
+| 13 | **Fléau des Cieux** (1-5) | 5 désolations/tribulations. À chaque désolation, la puissance augmente. Normalement, on cultive l'Essence jusqu'à la Grande Achèvement puis on tente d'ouvrir la Porte Kong. |
 
 ### Troisième Étape 
 

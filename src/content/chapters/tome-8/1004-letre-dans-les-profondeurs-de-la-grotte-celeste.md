@@ -30,11 +30,11 @@ Sans leur laisser le temps de réfléchir, Wang Lin fit un pas en avant et bondi
 
 Des éclairs de déduction traversèrent son regard alors qu'il poursuivait ses calculs. Toutes les restrictions de la zone des cent pas se dessinèrent lentement dans son esprit.
 
-Wang Lin avait étudié les restrictions dans la Terre de l'Ancien Dieu et les avait perfectionnées pendant plus de mille ans. Puis, à Luotian, il avait hérité de la restriction d'Annihilation, déjà au stade de perfection!
+Wang Lin avait étudié les restrictions dans la Terre Gu Shen et les avait perfectionnées pendant plus de mille ans. Puis, à Luotian, il avait hérité de la restriction d'Annihilation, déjà au stade de perfection!
 
 Bien que les restrictions fussent puissantes, Wang Lin n'était plus celui qu'il était autrefois. Si sa progression dans l'étude des restrictions n'avait pas été aussi fulgurante que sa culture, elle n'en demeurait pas moins extrêmement rapide. Wang Lin savait que son talent pour la culture était limité, mais il possédait une compréhension prodigieuse lorsqu'il s'agissait des restrictions.
 
-C'était une vérité qu'il avait perçue dès la Terre de l'Ancien Dieu.
+C'était une vérité qu'il avait perçue dès la Terre Gu Shen.
 
 Ayant cultivé jusqu'à présent, Wang Lin avait tout compris. Le talent d'un individu en culture résidait dans sa sensibilité à l'énergie spirituelle. Plus on était sensible, plus le talent était grand!
 

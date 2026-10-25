@@ -14,7 +14,7 @@ Un sentiment de passion irradia de Wang Lin. Alors qu'il pointait l'ennemi, la g
 
 Dans son rugissement, la Lance aux Sept Couleurs chargea vers la lumière antique émanant du vortex formé par cent mille âmes!
 
-Dès que la lance apparut, les étoiles tremblèrent et une lueur septicolore brilla de mille feux. Une aura puissante se dégageait de l'arme. Cette lance n'appartenait pas à ce monde de la grotte; c'était un sort divin du Continent Astral Immortel, la technique du Souverain Céleste aux Sept Couleurs de la Secte des Sept Dao!
+Dès que la lance apparut, les étoiles tremblèrent et une lueur septicolore brilla de mille feux. Une aura puissante se dégageait de l'arme. Cette lance n'appartenait pas à ce monde de la grotte; c'était un sort divin du Continent Astral Immortel, la technique du Souverain Céleste aux Sept Couleurs de la Secte Qi Dao!
 
 Ce sort était un secret jalousement gardé par le Souverain Céleste aux Sept Couleurs, et il était presque impossible pour des étrangers de l'apprendre. Seul un fou aurait pu utiliser son identité pour dérober une telle technique.
 

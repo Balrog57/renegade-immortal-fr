@@ -74,7 +74,7 @@ La rivière des enfers était son Dao, et son effondrement signifiait l'effondre
 
 Cette flamme démoniaque brûlait comme si elle voulait consumer le monde entier. Le visage de Wang Lin rougit légèrement, puis il cracha un gros jet de sang avant d'être instantanément envahi par une intention meurtrière!
 
-« Troisième capacité, Pouvoir de la Rivière des Enfers! » La tête de Wang Lin se redressa brusquement et il fixa le fleuve dévasté. Sa nature inflexible transparaissait dans son regard.
+« Troisième capacité, Pouvoir de la Rivière Huang Quan! » La tête de Wang Lin se redressa brusquement et il fixa le fleuve dévasté. Sa nature inflexible transparaissait dans son regard.
 
 Il ne céderait jamais. Si son Dao s'effondrait, il le reconstruirait! Si la rivière des enfers disparaissait, il la recréerait! La flamme démoniaque fut expulsée par les pores de sa peau; bien qu'invisible, elle se manifesta sous la forme d'un gaz noir s'élevant dans l'air.
 

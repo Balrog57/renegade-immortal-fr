@@ -22,7 +22,7 @@ Le temps semblait s'étirer à l'infini, mais il parut aussi ne prendre qu'un in
 
 La nuit profonde fut brutalement déchirée. Cette puissance était assez forte pour inverser le monde, ébranler les cieux et provoquer l'effondrement de l'obscurité. La nuit en lambeaux serait balayée, et le monde serait submergé par la lumière!
 
-Elle portait aussi l'intention meurtrière monstrueuse de Wang Lin. Elle contenait son refus viscéral, né après avoir été traqué dans toute la Grotte de l'Empereur Céleste et être devenu, en fin de compte, le rouage du plan de Tian Yunzi et de l'Ancien Démon Ta Jia. Elle contenait également la colère refoulée qu'il avait contenue durant tout ce temps!
+Elle portait aussi l'intention meurtrière monstrueuse de Wang Lin. Elle contenait son refus viscéral, né après avoir été traqué dans toute la Grotte Xian Di et être devenu, en fin de compte, le rouage du plan de Tian Yunzi et de l'Ancien Démon Ta Jia. Elle contenait également la colère refoulée qu'il avait contenue durant tout ce temps!
 
 Les deux éveils de l'Oiseau Vermillon de Wang Lin provoquèrent une chaleur inimaginable. Cette chaleur surpassait tout ce que les sorts de Wang Lin pouvaient produire d'ordinaire. Grâce à la loi originelle, la Nuit Brisée de Wang Lin put capturer le moment de chaleur intense du soleil levant pour l'amplifier à un degré prodigieux.
 
@@ -64,7 +64,7 @@ Tian Yunzi aux robes violettes forma un sceau et une brume violette apparut derr
 
 En un instant, une nuance violette imprégna la nuit, et des silhouettes hideuses en sortirent une à une. Elles étaient toutes différentes, hommes et femmes confondus, ressemblant à des fantômes enragés prisonniers de l'enfer. Dès leur apparition, elles poussèrent des sifflements et des rugissements stridents.
 
-C'étaient les personnes dévorées par la Secte du Destin Céleste au fil des éons!
+C'étaient les personnes dévorées par la Secte Tian Yun au fil des éons!
 
 Cependant, dès que leurs sorts se manifestèrent, ils furent transpercés par la lumière solaire, tout comme l'obscurité de la nuit.
 

@@ -36,7 +36,7 @@ Nul ne naît impitoyable, nul ne naît prudent et rusé, nul ne naît cruel et s
 
 Si l'on laissait le choix aux hommes, peu choisiraient d'être perçus comme des êtres impitoyables, audacieux, décisifs, insensibles, dotés d'une volonté de fer et aussi rusés qu'un renard.
 
-Depuis que Wang Lin avait quitté le pays de Zhao, en incluant le temps passé sur le champ de bataille extérieur et dans la Terre de l'Ancien Dieu, plus de 400 ans s'étaient écoulés. Plus de 400 ans suffisaient pour qu'une âme change radicalement.
+Depuis que Wang Lin avait quitté le pays de Zhao, en incluant le temps passé sur le champ de bataille extérieur et dans la Terre Gu Shen, plus de 400 ans s'étaient écoulés. Plus de 400 ans suffisaient pour qu'une âme change radicalement.
 
 L'homme qu'il était devenu n'avait plus rien à voir avec le petit garçon de la Secte Heng Yue du pays de Zhao. Wang Lin pensait parfois que si son quatrième oncle ne lui avait pas cédé la place de son fils toutes ces années auparavant, il ne serait probablement aujourd'hui qu'un tas de poussière.
 
@@ -44,7 +44,7 @@ Cependant, son chemin n'aurait pas été aussi ardu. Il aurait passé les examen
 
 Wang Lin prit une profonde inspiration pour apaiser les émotions qui surgissaient soudainement dans son cœur.
 
-Le vieil homme Ji Mo, Teng Huayuan, Pu Nanzi et d'autres cultivateurs du pays de Zhao, les experts du Clan des Démons Géants, et même le chef de la Secte des Cadavres: tous étaient des hommes que Wang Lin devait éliminer.
+Le vieil homme Ji Mo, Teng Huayuan, Pu Nanzi et d'autres cultivateurs du pays de Zhao, les experts du Clan Ju Mo, et même le chef de la Secte Shi Yin: tous étaient des hommes que Wang Lin devait éliminer.
 
 De plus, Wang Lin nourrissait des doutes sur la manière dont Teng Huayuan avait retrouvé sa famille. Il enquêterait minutieusement sur cette affaire, et quiconque y serait lié rejoindrait sa liste de cibles.
 
@@ -54,15 +54,15 @@ La cité Qi Lin était aussi vaste que des centaines de villes de Nan Dou. De lo
 
 Les yeux de la bête semblaient animés d'intelligence et de vie. Quiconque la contemplait pour la première fois ne pouvait qu'être émerveillé. L'énorme bête reposait sur le sol, son dos couvert d'innombrables écailles; chacune de ces écailles abritait une grotte.
 
-À l'intérieur du corps de la bête se trouvait le marché de la ville. On y vendait la quasi-totalité des matériaux, des techniques de culture et des trésors magiques de la Mer des Démons.
+À l'intérieur du corps de la bête se trouvait le marché de la ville. On y vendait la quasi-totalité des matériaux, des techniques de culture et des trésors magiques de la Mer Xiu Mo.
 
 Autour de la bête Qi Lin s'étendait une chaîne de montagnes circulaire qui entourait et protégeait la cité. Sur les flancs nord, est, sud et ouest, des hommes avaient ouvert, par un immense pouvoir surnaturel, une énorme brèche qui servait de porte pour entrer dans la cité.
 
-Yun Fei remarqua le regard de Wang Lin se poser sur la cité et se hâta de l'instruire: « Personne ne connaît l'origine véritable de la cité Qi Lin. La rumeur prétend qu'avant que les eaux de la Mer des Démons ne se changent en brume, cette cité existait déjà. »
+Yun Fei remarqua le regard de Wang Lin se poser sur la cité et se hâta de l'instruire: « Personne ne connaît l'origine véritable de la cité Qi Lin. La rumeur prétend qu'avant que les eaux de la Mer Xiu Mo ne se changent en brume, cette cité existait déjà. »
 
 Wang Lin ne fit que balayer la ville du regard avant de fixer sans ciller l'immense Qi Lin, à l'intérieur de la porte de la montagne.
 
-Il frappa son sac de rangement de la main droite, et un morceau de jade apparut. Ce jade avait été offert à Wang Lin par Li Muwan en cadeau d'adieu; il consignait tous les réseaux de formation du dragon vert gardien de la Secte de la Lutte contre le Mal. Après l'avoir examiné, il réalisa que la bête Qi Lin présentait des similitudes avec le dragon vert de la Secte de la Lutte contre le Mal.
+Il frappa son sac de rangement de la main droite, et un morceau de jade apparut. Ce jade avait été offert à Wang Lin par Li Muwan en cadeau d'adieu; il consignait tous les réseaux de formation du dragon vert gardien de la Secte Dou Xie. Après l'avoir examiné, il réalisa que la bête Qi Lin présentait des similitudes avec le dragon vert de la Secte Dou Xie.
 
 Bien plus tard, il détourna le regard et commença à flotter nonchalamment vers les montagnes qui entouraient la cité. Yun Fei le suivit rapidement sur son épée volante.
 
@@ -82,9 +82,9 @@ En franchissant la porte, Wang Lin déploya son Sens Divin et détecta, sur une 
 
 L'expression de Wang Lin resta impassible tandis qu'il suivait Yun Fei vers la cité, jusqu'à ce qu'ils se retrouvent au pied de la bête Qi Lin. De près, la créature était encore plus grandiose. Telle une montagne surgissant devant l'homme, elle ne pouvait qu'inspirer un sentiment d'insignifiance.
 
-Sur le côté, Yun Fei commenta: « Voici la cité Qi Lin, l'une des dix cités principales de la Mer des Démons. Quand j'ai vu la bête Qi Lin de si près pour la première fois, j'ai été profondément choquée. La légende raconte qu'avant que l'eau de la Mer des Démons ne s'évapore, de telles créatures existaient bel et bien. Je n'aurais jamais imaginé que de telles bêtes divines aient pu exister. »
+Sur le côté, Yun Fei commenta: « Voici la cité Qi Lin, l'une des dix cités principales de la Mer Xiu Mo. Quand j'ai vu la bête Qi Lin de si près pour la première fois, j'ai été profondément choquée. La légende raconte qu'avant que l'eau de la Mer Xiu Mo ne s'évapore, de telles créatures existaient bel et bien. Je n'aurais jamais imaginé que de telles bêtes divines aient pu exister. »
 
-Cependant, Wang Lin n'était guère impressionné. Comparée à l'Ancien Dieu Tu Si, cette cité n'était rien. De plus, avec les souvenirs de l'Ancien Dieu, la vue de la bête Qi Lin ne lui suscitait aucune émotion particulière. Sans même parler de Tu Si, le dragon de cent mille pieds de la Terre de l'Ancien Dieu n'avait rien à envier à cette créature.
+Cependant, Wang Lin n'était guère impressionné. Comparée à l'Ancien Dieu Tu Si, cette cité n'était rien. De plus, avec les souvenirs de l'Ancien Dieu, la vue de la bête Qi Lin ne lui suscitait aucune émotion particulière. Sans même parler de Tu Si, le dragon de cent mille pieds de la Terre Gu Shen n'avait rien à envier à cette créature.
 
 Après un bref examen, Wang Lin détourna le regard et dit: « Emmène-moi chez toi. »
 
@@ -96,6 +96,6 @@ Yun Fei se retourna pour regarder Wang Lin alors que son corps s'enfonçait dans
 
 La cavité n'était pas vaste; elle se composait de trois pièces au total. Une fois Wang Lin entré, Yun Fei lui remit précipitamment le jade, puis attendit anxieusement qu'il prenne la parole.
 
-Wang Lin scruta le jade et découvrit qu'une formation y était intégrée. Cette formation servait manifestement à contrôler la grotte. Après l'avoir analysée un instant, il leva les yeux et dit d'un ton neutre à Yun Fei: « Tu peux aller et venir librement, mais si tu révèles que je suis sorti des Étoiles Brisées du Chaos, ne me reproche pas de ne pas avoir fait preuve de clémence. Sois toutefois rassurée, je ne resterai pas longtemps dans la Mer des Démons. Une fois parti, je lèverai la restriction que j'ai posée sur toi. »
+Wang Lin scruta le jade et découvrit qu'une formation y était intégrée. Cette formation servait manifestement à contrôler la grotte. Après l'avoir analysée un instant, il leva les yeux et dit d'un ton neutre à Yun Fei: « Tu peux aller et venir librement, mais si tu révèles que je suis sorti des Étoiles Brisées du Chaos, ne me reproche pas de ne pas avoir fait preuve de clémence. Sois toutefois rassurée, je ne resterai pas longtemps dans la Mer Xiu Mo. Une fois parti, je lèverai la restriction que j'ai posée sur toi. »
 
 Il finit de parler en créant une nouvelle restriction qui vint se poser sur le front de Yun Fei.

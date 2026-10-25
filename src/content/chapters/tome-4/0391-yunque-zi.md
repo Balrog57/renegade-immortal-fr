@@ -78,9 +78,9 @@ En disant cela, Wang Lin signifiait sa profonde gratitude envers Senior Du Tian.
 
 Du Tian esquissa un léger sourire. Son mécontentement précédent s'était totalement évanoui. Il avait tout orchestré pour que Wang Lin lui dise ces mots!
 
-« Petit ami Ceng Niu, la raison pour laquelle je t'ai offert ces trois cadeaux est cruciale. Si tu n'étais pas venu dans ma Secte de l'Affinement de l'Âme, je serais allé te chercher moi-même. »
+« Petit ami Ceng Niu, la raison pour laquelle je t'ai offert ces trois cadeaux est cruciale. Si tu n'étais pas venu dans ma Secte Lian Hun, je serais allé te chercher moi-même. »
 
-Wang Lin regarda Du Tian et sourit. « Ce junior a déjà entendu la rumeur selon laquelle j'aurais tué un cultivateur de la Formation de l'Âme de la Secte de l'Affinement de l'Âme; je suppose donc que l'Aîné me cherche pour m'interroger. »
+Wang Lin regarda Du Tian et sourit. « Ce junior a déjà entendu la rumeur selon laquelle j'aurais tué un cultivateur de la Formation de l'Âme de la Secte Lian Hun; je suppose donc que l'Aîné me cherche pour m'interroger. »
 
 Du Tian secoua la tête en souriant. « Tout cela n'était qu'un subterfuge. Si je venais te chercher sans raison apparente, cela aurait attiré trop d'attention. Cependant, en propageant la rumeur que tu avais tué un cultivateur de la Formation de l'Âme de ma secte, personne ne s'étonnerait si je commençais à te traquer. »
 
@@ -90,19 +90,19 @@ Du Tian regarda Wang Lin avec une pointe d'appréciation dans le regard. Après 
 
 Il ne laissa pas à Wang Lin le temps de répondre. Affichant une mine impuissante, il poursuivit: « Lorsque le pays Suzaku est arrivé sur cette planète, six grandes sectes le composaient. Les disciples de ces six sectes se sont ensuite dispersés pour fonder les divers pays de culture de la planète. Parallèlement, les disciples de cœur de ces six sectes furent autorisés à établir des pays de culture de rang 5. »
 
-« Ce fut le premier groupe de pays de culture de rang 5, six seulement! Ma Secte de l'Affinement de l'Âme en faisait partie! »
+« Ce fut le premier groupe de pays de culture de rang 5, six seulement! Ma Secte Lian Hun en faisait partie! »
 
 Le regard de Wang Lin resta serein. Son expression demeura imperturbable.
 
 Du Tian leva les yeux vers le ciel et déclara calmement: « Les circonstances ont changé et les années ont filé en un clin d'œil. Chaque fois qu'un pays de culture de rang 5 était sur le point d'atteindre le stade de pays de rang 6, il était brutalement rétrogradé à son état initial en une seule nuit. Le pays Suzaku ne permettrait jamais l'émergence d'un autre pays de culture de rang 6 sur la planète Suzaku. »
 
-« Ma Secte de l'Affinement de l'Âme a eu trois occasions d'atteindre le rang 6 au cours de ces innombrables années, mais nous avons été brisés à chaque fois. Aujourd'hui, nous avons perdu notre pays et ne subsistons plus que comme une secte. »
+« Ma Secte Lian Hun a eu trois occasions d'atteindre le rang 6 au cours de ces innombrables années, mais nous avons été brisés à chaque fois. Aujourd'hui, nous avons perdu notre pays et ne subsistons plus que comme une secte. »
 
 Wang Lin réfléchissait en silence.
 
-« Devenir un pays de culture de rang 6 était le rêve de notre ancêtre fondateur, et le rêve de chaque génération de la Secte de l'Affinement de l'Âme. Bien avant qu'un seul cultivateur ne foule la planète Suzaku, à l'époque où le pays Suzaku n'était qu'un pays de culture de rang 5 sur la planète Sisheng, les six sectes travaillèrent de concert. Par une lutte acharnée, nous avons atteint le rang 6 et nous sommes affranchis de la planète Sisheng. C'est alors que l'Alliance de Culture nous a octroyé la planète Suzaku. »
+« Devenir un pays de culture de rang 6 était le rêve de notre ancêtre fondateur, et le rêve de chaque génération de la Secte Lian Hun. Bien avant qu'un seul cultivateur ne foule la planète Suzaku, à l'époque où le pays Suzaku n'était qu'un pays de culture de rang 5 sur la planète Sisheng, les six sectes travaillèrent de concert. Par une lutte acharnée, nous avons atteint le rang 6 et nous sommes affranchis de la planète Sisheng. C'est alors que l'Alliance Xiu Zhen nous a octroyé la planète Suzaku. »
 
-« À cette époque, ma Secte de l'Affinement de l'Âme comptait trois cultivateurs Ascendants. Les cinq autres sectes en possédaient également plusieurs. Le pays Suzaku était si puissant, mais notre arrivée ici ne fut pas sans heurts. Une autre race occupait déjà les lieux, utilisant le pouvoir des tatouages, et elle était extrêmement puissante. »
+« À cette époque, ma Secte Lian Hun comptait trois cultivateurs Ascendants. Les cinq autres sectes en possédaient également plusieurs. Le pays Suzaku était si puissant, mais notre arrivée ici ne fut pas sans heurts. Une autre race occupait déjà les lieux, utilisant le pouvoir des tatouages, et elle était extrêmement puissante. »
 
 « Ce fut une bataille sanglante qui dura des éons. Le drapeau d'un milliard d'âmes fut achevé durant ce conflit. »
 

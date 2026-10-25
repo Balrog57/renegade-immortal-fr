@@ -10,7 +10,7 @@ Les regards de Wang Lin et de Mu Bingmei se croisèrent par l'ouverture de la po
 
 Ce silence différait de celui qu'il ressentait auprès de Li Qianmei, mais il ne savait pas exactement en quoi. Il semblait que dans la vie de Wang Lin, outre Li Muwan, il y aurait aussi quelqu'un nommée Liu Mei ou Mu Bingmei pour l'accompagner...
 
-La planète Suzaku était ainsi... Luotian était ainsi... et désormais, dans la Mer des Nuages, c'était encore ainsi.
+La planète Suzaku était ainsi... Luotian était ainsi... et désormais, dans la Mer Yun, c'était encore ainsi.
 
 Dans ce silence, Mu Bingmei baissa la tête et avança lentement. Elle franchit le seuil, entra dans la cour et s'arrêta à quelques dizaines de pieds de Wang Lin.
 
@@ -26,7 +26,7 @@ Aucune femme rencontrée par Wang Lin dans sa vie ne pouvait se comparer à Mu B
 
 « Difficile à prédire... » Une pointe d'amertume apparut sur le visage de Mu Bingmei.
 
-« Pourquoi êtes-vous venue dans la Mer des Nuages? » Wang Lin la regarda. Bien qu'elle lui ait infligé une douleur sans fin, elle s'était profondément gravée dans son esprit. Il ne pourrait jamais l'oublier totalement.
+« Pourquoi êtes-vous venue dans la Mer Yun? » Wang Lin la regarda. Bien qu'elle lui ait infligé une douleur sans fin, elle s'était profondément gravée dans son esprit. Il ne pourrait jamais l'oublier totalement.
 
 Pourtant, Liu Mei était l'avatar de cette femme, et Liu Mei continuait de vivre à travers elle. Parfois, même Wang Lin ne savait plus si elle était Liu Mei ou Mu Bingmei.
 
@@ -40,11 +40,11 @@ Cependant, rien de tout cela n'importait. Lorsqu'il avait quitté le Système St
 
 Pourtant, Mu Bingmei n'en avait pas fini; elle n'avait pas encore livré toutes les nouvelles!
 
-« Le domaine de la Secte des Cadavres a été découvert par Tuo Sen. Le roi de la Secte des Cadavres est tombé, laissant d'innombrables morts et blessés. La Secte des Cadavres a failli s'effondrer! »
+« Le domaine de la Secte Shi Yin a été découvert par Tuo Sen. Le roi de la Secte Shi Yin est tombé, laissant d'innombrables morts et blessés. La Secte Shi Yin a failli s'effondrer! »
 
 « Les Quatre Sectes Divines ont subi d'innombrables pertes lors de l'avancée de Tuo Sen. Bien que la culture de l'Empereur Divin du Dragon Azure soit céleste, il n'a pas pu faire le poids... On ignore s'il est mort ou vivant! »
 
-« Tous les vestiges de l'Alliance de Culture ont été détruits et dispersés par Tuo Sen... Seul le Quartier Général de l'Alliance, pour une raison quelconque, n'a pas attiré son attention et est resté épargné! »
+« Tous les vestiges de l'Alliance Xiu Zhen ont été détruits et dispersés par Tuo Sen... Seul le Quartier Général de l'Alliance, pour une raison quelconque, n'a pas attiré son attention et est resté épargné! »
 
 Les pupilles de Wang Lin se rétractèrent. Le choc provoqué par ces nouvelles était immense, comme si un chariot de plusieurs tonnes fonçait droit sur lui.
 
@@ -52,13 +52,13 @@ Il n'avait jamais imaginé que le réveil de Tuo Sen déclencherait une telle te
 
 « Le Royaume Céleste de la Pluie, celui qui vous tenait le plus à cœur, n'a pas été endommagé. Tuo Sen s'y est rendu, mais il a été intercepté à l'extérieur par Qing Lin. Ils semblent avoir conclu un accord, et ensuite Tuo Sen est reparti. » Mu Bingmei se mordit la lèvre en parlant.
 
-« Vous aviez raison. Si Ru Er avait choisi de rester avec moi, avec son niveau de culture, il lui aurait été difficile d'échapper vivante... Le Royaume du Vide Brillant n'existe plus... Tous les cultivateurs à l'intérieur sont morts au combat. Même l'intendant est mort face à Tuo Sen pour me permettre de m'échapper... Mon corps s'est effondré. Ce que vous voyez là est celui que je viens de reformer récemment... »
+« Vous aviez raison. Si Ru Er avait choisi de rester avec moi, avec son niveau de culture, il lui aurait été difficile d'échapper vivante... Le Royaume Kun Xu n'existe plus... Tous les cultivateurs à l'intérieur sont morts au combat. Même l'intendant est mort face à Tuo Sen pour me permettre de m'échapper... Mon corps s'est effondré. Ce que vous voyez là est celui que je viens de reformer récemment... »
 
 « Mon niveau de culture a considérablement chuté. S'il me faut revenir à mon apogée, cela prendra du temps. »
 
 Les vagues dans l'esprit de Wang Lin finirent par se calmer. Il s'était déjà préparé mentalement à l'apparition de Tuo Sen, mais les paroles de Mu Bingmei le laissèrent tout de même stupéfait.
 
-« En tant que Sainte du Vide Brillant, je possède l'héritage du Royaume du Vide Brillant. Il y a des dizaines de milliers d'années, une ancienne Sainte du Vide Brillant entretenait des liens avec la Secte Divine. Le Grand Ancien de la Secte Divine lui devait une faveur, j'ai donc utilisé une technique secrète pour fuir ici. Je veux me rendre à la Secte Divine et utiliser leur puissance pour m'aider à me rétablir... » La voix de Mu Bingmei devint basse, puis elle se mit soudainement à trembler.
+« En tant que Sainte du Vide Brillant, je possède l'héritage du Royaume Kun Xu. Il y a des dizaines de milliers d'années, une ancienne Sainte du Vide Brillant entretenait des liens avec la Secte Divine. Le Grand Ancien de la Secte Divine lui devait une faveur, j'ai donc utilisé une technique secrète pour fuir ici. Je veux me rendre à la Secte Divine et utiliser leur puissance pour m'aider à me rétablir... » La voix de Mu Bingmei devint basse, puis elle se mit soudainement à trembler.
 
 Ce qui faisait trembler son corps, c'était Wang Lin!
 
@@ -78,7 +78,7 @@ Son intention initiale était de tout dire à Wang Lin pour qu'il soit préparé
 
 Ses intentions étaient nobles.
 
-« Je... après être arrivée dans la Mer des Nuages, j'ai examiné mon corps et mon âme originelle à maintes reprises sans rien découvrir. Ce corps vient d'être formé, et j'ai inspecté chaque parcelle de mon âme originelle... Je... »
+« Je... après être arrivée dans la Mer Yun, j'ai examiné mon corps et mon âme originelle à maintes reprises sans rien découvrir. Ce corps vient d'être formé, et j'ai inspecté chaque parcelle de mon âme originelle... Je... »
 
 Wang Lin baissa la tête. En voyant le visage pâle et éploré de Mu Bingmei ainsi que le remords dans ses yeux, il soupira doucement: « Ce n'est rien. »
 
@@ -94,9 +94,9 @@ Lorsqu'elle approcha de Wang Lin, des étoiles apparurent entre ses sourcils. L'
 
 C'était une dévoration et une absorption simultanées. Bien que Tuo Sen fût puissant, il n'avait laissé qu'une infime aura sur Mu Bingmei. Un instant plus tard, Wang Lin l'absorba, ce qui stabilisa de manière inattendue sa sixième étoile.
 
-« Il... avant de quitter l'Alliance, il a crié votre nom, vous cherchant. Il est même venu dans la Mer des Nuages, mais ne vous a pas trouvée. » Mu Bingmei prit une profonde inspiration, les yeux emplis de culpabilité.
+« Il... avant de quitter l'Alliance, il a crié votre nom, vous cherchant. Il est même venu dans la Mer Yun, mais ne vous a pas trouvée. » Mu Bingmei prit une profonde inspiration, les yeux emplis de culpabilité.
 
-L'expression de Wang Lin changea brusquement. Il fixa Mu Bingmei et demanda: « Savez-vous quand il est venu dans la Mer des Nuages? »
+L'expression de Wang Lin changea brusquement. Il fixa Mu Bingmei et demanda: « Savez-vous quand il est venu dans la Mer Yun? »
 
 Mu Bingmei réfléchit un instant et répondit doucement: « Je ne connais pas l'heure exacte. J'étais en culture fermée pour restaurer mon corps, mais cela ne remonte certainement pas à plus de cent ans. »
 

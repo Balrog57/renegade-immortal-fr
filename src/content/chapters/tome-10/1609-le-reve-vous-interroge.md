@@ -80,7 +80,7 @@ Plus il comprenait, plus il percevait la nature du monde. Percevoir à travers l
 
 « Avant ton Dao du Rêve, tu as entendu parler de Hongdie, alors tu as intégré son histoire à ton rêve. Tu as utilisé ton rêve pour parachever un cycle de karma. »
 
-« Tu savais pour Nian Tian et la Secte de l'Affinement de l'Âme, alors tu as pensé que tu devais aussi accomplir ce karma. Crois-tu que je l'ignore? Au début, je ne savais pas, j'étais confus, mais au moment où j'ai rencontré le fou, à l'instant où le feu de camp s'est éteint, quand j'ai vu l'empreinte de main sur le poignet droit du fou, j'ai su! »
+« Tu savais pour Nian Tian et la Secte Lian Hun, alors tu as pensé que tu devais aussi accomplir ce karma. Crois-tu que je l'ignore? Au début, je ne savais pas, j'étais confus, mais au moment où j'ai rencontré le fou, à l'instant où le feu de camp s'est éteint, quand j'ai vu l'empreinte de main sur le poignet droit du fou, j'ai su! »
 
 « Je me suis menti, je ne m'étais pas laissé trop réfléchir. Pourtant, plus de cinquante ans ont passé, et je me suis menti pendant plus de cinquante ans. Aujourd'hui, je refuse de continuer ce mensonge! »
 

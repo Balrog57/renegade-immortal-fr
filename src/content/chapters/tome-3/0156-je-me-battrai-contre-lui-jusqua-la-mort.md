@@ -56,7 +56,7 @@ En le contemplant, Wang Lin ressentit soudain un sentiment de danger émanant du
 
 Sans hésiter, Wang Lin referma prestement le parchemin. Le rugissement s'estompa progressivement jusqu'à disparaître totalement.
 
-La sueur perla sur le front de Wang Lin. Au moment où le cri avait retenti, il avait senti que ce rugissement n'était en rien inférieur au cri de colère du dragon à l'agonie dans la quatorzième vallée de la Vallée des Cadavres. La seule différence résidait dans le fait que l'énergie spirituelle était emprisonnée dans le rouleau.
+La sueur perla sur le front de Wang Lin. Au moment où le cri avait retenti, il avait senti que ce rugissement n'était en rien inférieur au cri de colère du dragon à l'agonie dans la quatorzième vallée de la Vallée Shi. La seule différence résidait dans le fait que l'énergie spirituelle était emprisonnée dans le rouleau.
 
 À cet instant, il comprit enfin pourquoi il ne parvenait toujours pas à utiliser ce parchemin malgré son empreinte de sens divin. Ce rouleau n'était qu'un sceau. Le véritable pouvoir de ce trésor résidait dans la bête spirituelle qui y était captive.
 

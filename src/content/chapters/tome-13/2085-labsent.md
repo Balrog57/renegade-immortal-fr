@@ -70,15 +70,15 @@ Cette silhouette était d'une hauteur prodigieuse, semblant soutenir le monde en
 
 « Il semble que tu n'aies pas encore tout retrouvé. Peu importe. Avant que tu ne meurs, ce vieil homme te fera comprendre la vérité! » Tian Yunzi se leva et fit un pas en arrière pour s'intégrer à la figure géante. La capuche noire qui couvrait son visage bougea, révélant un visage démoniaque.
 
-« Le Continent Astral Immortel n'existe pas; ce n'est qu'une création de ton rêve. En réalité, ce n'est qu'un vide faisant partie du Royaume de la Terre Défiante. »
+« Le Continent Astral Immortel n'existe pas; ce n'est qu'une création de ton rêve. En réalité, ce n'est qu'un vide faisant partie du Royaume Ni Chen Liang. »
 
 « Un vide, hein... » Wang Lin médita silencieusement.
 
-« Tu ne me crois pas? Le « toi » qui n'a pas recouvré ses souvenirs est d'une pitoyabilité extrême face à ce vieil homme! Wang Lin, laisse-moi te dire que l'univers se compose de quatre grands royaumes. Ce royaume est le Royaume de la Terre Défiante! Chaque royaume possède un trésor, et celui de la Terre Défiante est la Boussole des Limites, l'unique Trésor d'Extinction du Vide! »
+« Tu ne me crois pas? Le « toi » qui n'a pas recouvré ses souvenirs est d'une pitoyabilité extrême face à ce vieil homme! Wang Lin, laisse-moi te dire que l'univers se compose de quatre grands royaumes. Ce royaume est le Royaume Ni Chen Liang! Chaque royaume possède un trésor, et celui de la Terre Défiante est la Boussole des Limites, l'unique Trésor d'Extinction du Vide! »
 
 « Ce Royaume Divin Immémorial est la Boussole des Limites! » Les yeux de l'immense silhouette de Tian Yunzi brillaient d'excitation.
 
-« Quant à toi, dans ta vie passée, tu étais l'être le plus puissant au monde et tu aurais pu dominer le Royaume de la Terre Défiante. Pourtant, pour une femme, tu as emprunté la Boussole des Limites au gardien pour tenter de ressusciter ton épouse! »
+« Quant à toi, dans ta vie passée, tu étais l'être le plus puissant au monde et tu aurais pu dominer le Royaume Ni Chen Liang. Pourtant, pour une femme, tu as emprunté la Boussole des Limites au gardien pour tenter de ressusciter ton épouse! »
 
 « Tu as utilisé ton propre Dao du Rêve pour disperser ta véritable essence et remodeler la réincarnation. Tu voulais transformer ton rêve de résurrection en réalité et inverser les lois du ciel et de la terre! »
 
@@ -106,11 +106,11 @@ Alors que Wang Lin contemplait ces images, les souvenirs du passé affluèrent d
 
 Après un moment de réflexion silencieuse, Wang Lin regarda Tian Yunzi et demanda lentement: « Pour me faire venir ici, vous m'avez affirmé que je pouvais ressusciter Li Muwan. Est-ce la vérité ou un mensonge? »
 
-« Cela peut être l'un ou l'autre! La Boussole des Limites est l'unique Trésor d'Extinction du Vide dans le Royaume de la Terre Défiante. Elle peut tout changer, mais tu n'en auras pas l'opportunité. » Tian Yunzi nota le calme imperturbable de Wang Lin et l'absence totale de distorsion. Cela le fit hésiter. Face aux paroles de Wang Lin, il ne réagit pas avec précipitation; il pressentait vaguement que quelque chose clochait.
+« Cela peut être l'un ou l'autre! La Boussole des Limites est l'unique Trésor d'Extinction du Vide dans le Royaume Ni Chen Liang. Elle peut tout changer, mais tu n'en auras pas l'opportunité. » Tian Yunzi nota le calme imperturbable de Wang Lin et l'absence totale de distorsion. Cela le fit hésiter. Face aux paroles de Wang Lin, il ne réagit pas avec précipitation; il pressentait vaguement que quelque chose clochait.
 
 « Quel est ce pont? » Wang Lin leva la main et désigna le pont reliant le ciel et la terre derrière la silhouette colossale de Tian Yunzi.
 
-« Le Pont du Piétinement des Cieux de la Boussole des Limites. C'est le véritable corps du Pont du Piétinement des Cieux que chaque être vivant dans le Royaume de la Terre Défiante ressent lorsque son niveau de culture atteint un certain seuil. » Le pressentiment d'un mal imminent s'intensifia chez Tian Yunzi, mais il ne parvenait pas à en saisir la cause.
+« Le Pont du Piétinement des Cieux de la Boussole des Limites. C'est le véritable corps du Pont du Piétinement des Cieux que chaque être vivant dans le Royaume Ni Chen Liang ressent lorsque son niveau de culture atteint un certain seuil. » Le pressentiment d'un mal imminent s'intensifia chez Tian Yunzi, mais il ne parvenait pas à en saisir la cause.
 
 Wang Lin sourit, regarda Tian Yunzi et dit calmement: « Vous hésitez, vous vous demandez pourquoi aucune distorsion n'apparaît, contrairement à ce qui se produit lorsqu'un dormeur est sur le point de s'éveiller. »
 

@@ -78,13 +78,13 @@ Les cultivateurs de l'Âme Naissante de l'Union de Huo Fen s'envolèrent les uns
 
 Les pupilles de Wang Lin se rétractèrent. Il fit volte-face et replongea dans le sol pour tenter une nouvelle fuite.
 
-Le vieil homme ricana et s'apprêtait à le poursuivre lorsqu'un cultivateur de l'Âme Naissante de la Secte du Démon Maléfique prit son courage à deux mains et demanda: « Daoïste, pourquoi avez-vous détruit la formation protectrice de notre secte? »
+Le vieil homme ricana et s'apprêtait à le poursuivre lorsqu'un cultivateur de l'Âme Naissante de la Secte Xie Mo prit son courage à deux mains et demanda: « Daoïste, pourquoi avez-vous détruit la formation protectrice de notre secte? »
 
 Le vieil homme demeurait dans les environs depuis trois mois. La plupart du temps, il ne faisait rien d'autre que balayer les environs de son Sens Divin. Sa puissance de perception était telle qu'elle avait stupéfié tous les cultivateurs de l'Âme Naissante présents.
 
 En secret, les cultivateurs de Huo Fen surveillaient le vieil homme. Aujourd'hui, ils avaient vu un disciple de l'Union de Huo Fen approcher, mais avant qu'ils ne puissent l'identifier, ils furent sidérés par la facilité avec laquelle l'homme brisa leur formation d'un simple geste de la paume.
 
-S'ils passaient cela sous silence, l'Union de Huo Fen perdrait toute dignité. C'était au tour de la Secte du Démon Maléfique de monter la garde aujourd'hui, c'est pourquoi ce cultivateur de l'Âme Naissante s'était risqué à poser la question. Ce faisant, il exprimait leur position. Que le vieil homme réponde ou non, le cultivateur n'aurait pas insisté davantage.
+S'ils passaient cela sous silence, l'Union de Huo Fen perdrait toute dignité. C'était au tour de la Secte Xie Mo de monter la garde aujourd'hui, c'est pourquoi ce cultivateur de l'Âme Naissante s'était risqué à poser la question. Ce faisant, il exprimait leur position. Que le vieil homme réponde ou non, le cultivateur n'aurait pas insisté davantage.
 
 Le vieil homme fixa les cultivateurs de Huo Fen et lâcha un seul mot: « Dégagez! »
 

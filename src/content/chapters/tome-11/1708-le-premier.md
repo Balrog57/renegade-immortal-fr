@@ -48,7 +48,7 @@ L'homme en robe royale acquiesça, mais son cœur était empli de dédain.
 
 « Hormis mon oncle, personne dans le clan Dao n'a un talent supérieur au mien. Ye Mo n'était pas assez doué, et son héritier ne l'est pas non plus! »
 
-Le temps s'écoulait lentement sur le Continent Astral Immortel. À cet instant, au sein de la faille de la Mer des Nuages, l'avatar de Wang Lin était assis au bord de l'autel. Il contemplait la goutte de sang formée par son corps original, située au centre de l'autel.
+Le temps s'écoulait lentement sur le Continent Astral Immortel. À cet instant, au sein de la faille de la Mer Yun, l'avatar de Wang Lin était assis au bord de l'autel. Il contemplait la goutte de sang formée par son corps original, située au centre de l'autel.
 
 Cette goutte flottait là, immobile et silencieuse, quand soudain un hurlement commença à résonner dans cet espace étrange. Des ondulations surgirent du néant et une aura ancienne et puissante se propagea lentement.
 

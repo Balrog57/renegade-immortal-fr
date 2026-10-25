@@ -12,7 +12,7 @@ Cang Songzi déclara d'un ton grave: « Ne déployez pas votre sens divin trop l
 
 Wang Lin observa la lumière aux sept couleurs qui baignait le ciel et réfléchit. Cette lueur était très étrange et lui procurait une sensation singulière; elle semblait contenir une modification incompréhensible des lois de l'univers.
 
-« Qu'est-ce que cet endroit, au juste? » demanda Chen Tianjun, de la Secte de la Bête de Bataille.
+« Qu'est-ce que cet endroit, au juste? » demanda Chen Tianjun, de la Secte Yi Shou.
 
 Cang Songzi leva la tête et répondit lentement: « Le Royaume aux Sept Couleurs. C'est ainsi que je l'appelle. La région extérieure de ce lieu est saturée de bêtes de brume. C'est là que je puise tous mes cristaux d'origine. Je suis venu ici à plusieurs reprises, mais il m'est impossible de pénétrer dans la région intérieure. Il y subsiste des vestiges d'êtres anciens. D'après mes observations, on y trouve des célestes et des individus très étranges. » Il pointa l'horizon tout en poursuivant son récit. « Compagnons cultivateurs, suivez-moi et ne vous écartez pas. Ce lieu est extrêmement dangereux; le moindre manque de vigilance pourrait vous coûter la vie. » Sur ces mots, il descendit de l'autel et s'avança en tête.
 
@@ -42,7 +42,7 @@ Une brume obstruait le sentier et, à sa lisière, on pouvait apercevoir un sque
 
 En humant cette fragrance, les yeux de Wang Lin se plissèrent. Ce parfum était singulier; dès qu'il atteignit ses narines, il fit trembler son âme originelle. Son esprit commença à dériver, et des scènes du passé apparurent de manière incontrôlée devant ses yeux.
 
-Heureusement, la vigilance de Wang Lin fut sans faille. Il se mordit la langue pour reprendre ses esprits. Il fut secrètement stupéfait! En observant les autres, il nota que le vieil homme nommé Pang avait déjà scellé ses cinq sens; il était évident qu'il avait perçu l'étrangeté des lieux. Quant à la vieille femme en vert, elle parut confuse un instant avant de se ressaisir, tout comme Chen Tianjun de la Secte de la Bête de Bataille.
+Heureusement, la vigilance de Wang Lin fut sans faille. Il se mordit la langue pour reprendre ses esprits. Il fut secrètement stupéfait! En observant les autres, il nota que le vieil homme nommé Pang avait déjà scellé ses cinq sens; il était évident qu'il avait perçu l'étrangeté des lieux. Quant à la vieille femme en vert, elle parut confuse un instant avant de se ressaisir, tout comme Chen Tianjun de la Secte Yi Shou.
 
 « Quelle pilule puissante! » s'exclama l'un d'eux.
 « C'est bel et bien la pilule de réincarnation! » Le jeune homme nommé Duanmu prit une profonde inspiration, s'abandonnant à la fragrance.

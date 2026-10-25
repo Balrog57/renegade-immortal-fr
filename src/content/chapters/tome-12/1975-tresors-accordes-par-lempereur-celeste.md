@@ -12,17 +12,17 @@ Les yeux du vieil homme aux robes vertes étaient empreints de panique. Il recul
 
 Le vieil homme aux robes vertes avait à peine commencé à parler que Wang Lin se trouvait déjà devant lui. Wang Lin leva la main droite, saisit les vêtements du vieil homme et le projeta sur le côté. L'homme laissa échapper un cri; il eut l'impression d'être frappé par une paume invisible alors qu'il était projeté à des centaines de milliers de pieds de distance.
 
-« Wang Lin salue l'Empereur Céleste! » Wang Lin joignit les mains devant le Temple du Dao Céleste. Ce lieu était toujours le palais impérial, et l'interlocuteur était l'Empereur Céleste, un Grand Empyréen. Le respect qu'il devait témoigner demeurait nécessaire.
+« Wang Lin salue l'Empereur Céleste! » Wang Lin joignit les mains devant le Temple Xian Dao. Ce lieu était toujours le palais impérial, et l'interlocuteur était l'Empereur Céleste, un Grand Empyréen. Le respect qu'il devait témoigner demeurait nécessaire.
 
 Les regards de dizaines de milliers de cultivateurs se fixèrent sur Wang Lin. Autour de la place, des dizaines de milliers de soldats en armure noire les scrutaient eux aussi, silencieux, le regard froid.
 
 Parmi les quatre rois, à l'exception du Manoir Li, les trois autres familles observaient Wang Lin d'un œil différent. En particulier, les chefs de ces trois manoirs le regardaient avec des expressions complexes et impuissantes.
 
-Une fois que Wang Lin eut joint les mains, l'entourage fut plongé dans le silence. Après un long moment, une voix calme émana du Temple du Dao Céleste.
+Une fois que Wang Lin eut joint les mains, l'entourage fut plongé dans le silence. Après un long moment, une voix calme émana du Temple Xian Dao.
 
 « Tu as repoussé mon officiel chargé de la cérémonie de titre. Comment cela peut-il se poursuivre ainsi? »
 
-Alors que ces mots résonnaient, la porte du Temple du Dao Céleste s'ouvrit silencieusement vers l'intérieur, révélant ce qui s'y cachait. Dans les profondeurs du temple, des escaliers semblables à une montagne menaient à un immense trône de dragon qui ressemblait à un véritable dragon. La tête de la créature était relevée et ses yeux semblaient doués d'une âme tandis qu'ils fixaient Wang Lin, resté à l'extérieur du temple.
+Alors que ces mots résonnaient, la porte du Temple Xian Dao s'ouvrit silencieusement vers l'intérieur, révélant ce qui s'y cachait. Dans les profondeurs du temple, des escaliers semblables à une montagne menaient à un immense trône de dragon qui ressemblait à un véritable dragon. La tête de la créature était relevée et ses yeux semblaient doués d'une âme tandis qu'ils fixaient Wang Lin, resté à l'extérieur du temple.
 
 Un homme d'âge moyen, vêtu d'une robe royale et coiffé d'une couronne, siégeait sur le trône de dragon. Une main était posée sous son menton et son corps était légèrement incliné. Il dégageait une aura de pression monumentale sans même paraître en colère.
 
@@ -100,7 +100,7 @@ Ce geste fit apparaître une flamme aux cinq couleurs. Elle libéra une puissant
 
 En un clin d'œil, la flamme se transforma en une mer de feu multicolore qui enveloppa la bête blessée. Un rugissement de douleur résonna, suivi d'une pluie de sang semblable à de l'huile bouillante qui éclaboussa le ciel avant de retomber sur le palais.
 
-Tous les cultivateurs environnants virent cette scène et leurs cœurs tremblèrent. On ne sut qui s'agenouilla le premier, mais bientôt, tous les cultivateurs devant le Temple du Dao Céleste furent à terre.
+Tous les cultivateurs environnants virent cette scène et leurs cœurs tremblèrent. On ne sut qui s'agenouilla le premier, mais bientôt, tous les cultivateurs devant le Temple Xian Dao furent à terre.
 
 « La puissance céleste de mon Empereur! »
 
@@ -128,4 +128,4 @@ Wang Lin ne pouvait rivaliser avec l'Empereur Céleste. La paume de feu multicol
 
 Cependant, à cet instant précis, la paume de feu trembla et la mèche la traversa tout en continuant sa chute. Tous les témoins virent la scène. Wang Lin n'hésita pas une seconde et apparut aux côtés de la mèche pour s'en saisir!
 
-« Je remercie infiniment l'Empereur Céleste de m'avoir accordé ce trésor! » Wang Lin se retourna et s'inclina devant le Temple du Dao Céleste.
+« Je remercie infiniment l'Empereur Céleste de m'avoir accordé ce trésor! » Wang Lin se retourna et s'inclina devant le Temple Xian Dao.

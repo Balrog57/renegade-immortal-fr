@@ -52,7 +52,7 @@ Il y avait aussi le vieil homme nommé Zhao. Il fixait le soleil, ressentant l'a
 
 Les deux femmes cultivatrices au début de la Tribulation du Vide ne ressentirent qu'une aura terrifiante, mais elles ne perdirent pas l'usage de leurs sens, car elles ne comprenaient pas ce que représentait cette aura.
 
-Elles ignoraient tout, mais lorsque les quatre messagers du Continent du Démon Vert virent le soleil, leurs visages devinrent extrêmement livides. Une terreur profonde s'empara de leurs cœurs.
+Elles ignoraient tout, mais lorsque les quatre messagers du Continent Lu Mo virent le soleil, leurs visages devinrent extrêmement livides. Une terreur profonde s'empara de leurs cœurs.
 
 « C'est un sortilège de la foi... Au-delà des sorts et des sorts Dao, un sortilège de la foi que seuls les Grands Empyréens peuvent utiliser!! »
 
@@ -114,7 +114,7 @@ L'obscurité céleste disparut sans laisser de trace, tout comme la mer. Les âm
 
 Le vieil homme nommé Zhao trembla tandis que son corps était lacéré par l'obscurité. Son âme originelle luttait contre la nuit dans des rugissements de douleur.
 
-Il refusait de mourir ainsi, en tant que cultivateur au milieu de la Tribulation du Vide. Bien qu'il possédât un avatar indépendant sur le Continent du Démon Vert, ce qui aurait empêché sa mort définitive, il ne pouvait accepter cette fin!
+Il refusait de mourir ainsi, en tant que cultivateur au milieu de la Tribulation du Vide. Bien qu'il possédât un avatar indépendant sur le Continent Lu Mo, ce qui aurait empêché sa mort définitive, il ne pouvait accepter cette fin!
 
 Mais sous l'emprise du sortilège de la foi, sa lutte fut brève; il finit par sourire, ferma les yeux et se dissipa.
 
@@ -122,8 +122,8 @@ Quant à Zhang Daozong, son niveau de culture était légèrement supérieur à 
 
 Les yeux de Zhang Daozong étaient emplis de désespoir. N'ayant jamais cultivé d'avatar, il ne tenait plus qu'à un fil. Son âme originelle commença à se dissiper sous l'effet du sort de la foi, mais elle ne fut pas anéantie. Elle se condensa en une sphère de lumière et s'échappa au loin. Perte de connaissance progressive, il parvint tant bien que mal à s'enfuir.
 
-Le fracas d'un miroir brisé retentit. Le Miroir du Démon Vert, créé par les quatre messagers, se désintégra, et la projection du Continent du Démon Vert disparut!
+Le fracas d'un miroir brisé retentit. Le Miroir du Démon Vert, créé par les quatre messagers, se désintégra, et la projection du Continent Lu Mo disparut!
 
-La terre trembla et tout revint au calme. Ce fut toujours la Prairie de l'Extrême Ciel. Les quatre messagers crachèrent du sang et battirent en retraite précipitamment. Tandis qu'ils fuyaient, Wang Lin, vêtu d'une armure noire, émergea de la terre!
+La terre trembla et tout revint au calme. Ce fut toujours la Prairie Ji Tian. Les quatre messagers crachèrent du sang et battirent en retraite précipitamment. Tandis qu'ils fuyaient, Wang Lin, vêtu d'une armure noire, émergea de la terre!
 
 Ses cheveux blancs flottaient au vent et une aura terrifiante enveloppait son corps.

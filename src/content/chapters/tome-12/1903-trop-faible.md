@@ -50,7 +50,7 @@ Dans ce périmètre de centaines de kilomètres, tous les êtres vivants durent 
 
 C'était une Tribulation Arcanique. Une fois qu'un cultivateur décidait de l'affronter, personne ne pouvait se trouver à ses côtés pour l'aider!
 
-La pression continua de s'étendre, atteignant des milliers de kilomètres de large. Elle se referma lentement sur la douzaine de cultivateurs du Continent du Démon Vert venus assister à la résurrection du Scorpion du Démon Vert.
+La pression continua de s'étendre, atteignant des milliers de kilomètres de large. Elle se referma lentement sur la douzaine de cultivateurs du Continent Lu Mo venus assister à la résurrection du Scorpion du Démon Vert.
 
 Les expressions de ces cultivateurs changèrent l'une après l'autre. Ils n'eurent même pas besoin d'utiliser leur Sens Divin pour comprendre qu'un être était en train de traverser une Tribulation Arcanique!
 
@@ -60,7 +60,7 @@ Les expressions de ces cultivateurs changèrent l'une après l'autre. Ils n'eure
 
 « Le Seigneur Démon Vert avait été personnellement réprimé par l'Ancêtre Céleste, ce qui signifie que son niveau était extrêmement élevé. Cependant, il a été contenu trop longtemps, et peut-être que sa culture a réellement beaucoup décliné... »
 
-La douzaine de cultivateurs du Continent du Démon Vert avaient chacun leurs propres pensées tout en reculant devant la pression. Ils regardèrent vers le temple, mais leur Sens Divin ne pouvait pénétrer profondément dans cette zone de pression; ils ne pouvaient donc pas voir ce qui s'y passait.
+La douzaine de cultivateurs du Continent Lu Mo avaient chacun leurs propres pensées tout en reculant devant la pression. Ils regardèrent vers le temple, mais leur Sens Divin ne pouvait pénétrer profondément dans cette zone de pression; ils ne pouvaient donc pas voir ce qui s'y passait.
 
 Alors que la pression s'étendait sur des milliers de kilomètres, au centre, Wang Lin se tenait sur la queue du temple-scorpion et leva les yeux vers le ciel. Il vit soudain des flocons de neige apparaître.
 
@@ -70,7 +70,7 @@ Ces flocons étaient d'un blanc pur. Bientôt, ils couvrirent le ciel, formant u
 
 La neige devint de plus en plus abondante jusqu'à occuper tout l'horizon, devenant la seule chose flottant dans le ciel sur des milliers de kilomètres. En tombant, une aura de froid se propagea et une épaisse couche de neige recouvrit le sol.
 
-Dès que la neige apparut, les cultivateurs du Continent du Démon Vert ressentirent le froid intense. Ils virent les flocons flotter devant eux!
+Dès que la neige apparut, les cultivateurs du Continent Lu Mo ressentirent le froid intense. Ils virent les flocons flotter devant eux!
 
 « Sa première Tribulation Arcanique est faite de neige! C'est rare... »
 
@@ -88,7 +88,7 @@ Les innombrables flocons parurent se transformer en lames de neige acérées, fo
 
 Par ce mouvement, son Corps Véritable des Cinq Éléments s'activa. Une ombre superposée apparut alors qu'elle sortait du corps de Wang Lin.
 
-Au moment où le Corps Véritable des Cinq Éléments émergea, Wang Lin s'assit sur la queue du gigantesque scorpion. Il fit un geste de la main droite et une cruche de vin apparut dans sa paume. Cette cruche, remplie d'un alcool fort du monde mortel, venait du Continent du Taureau Céleste. Il porta la cruche à ses lèvres et prit une longue gorgée.
+Au moment où le Corps Véritable des Cinq Éléments émergea, Wang Lin s'assit sur la queue du gigantesque scorpion. Il fit un geste de la main droite et une cruche de vin apparut dans sa paume. Cette cruche, remplie d'un alcool fort du monde mortel, venait du Continent Tian Niu. Il porta la cruche à ses lèvres et prit une longue gorgée.
 
 Sa silhouette dégageait une profonde mélancolie alors qu'il restait assis là, ses cheveux blancs flottant au vent. Son apparence rappelait celle de l'homme d'âge moyen en robe noire, assis sur cette statue brisée loin du Continent Astral Immortel.
 

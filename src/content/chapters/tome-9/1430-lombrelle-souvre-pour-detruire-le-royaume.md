@@ -64,7 +64,7 @@ Ou alors, il pourrait choisir son plan de secours: quitter le Royaume Extérieur
 
 Cependant, c'était en ce moment même la meilleure opportunité pour blesser gravement ou tuer le Souverain. S'il manquait cette chance, il n'en aurait plus jamais!
 
-Wang Lin avait passé sa vie à chercher l'avantage dans les situations périlleuses; comment pourrait-il laisser passer cela? Il voulait accomplir quelque chose d'historique dans le Royaume Extérieur, après avoir anéanti le Clan du Tonnerre Dispersé, qui ébranlerait tout le Système Stellaire Antique!
+Wang Lin avait passé sa vie à chercher l'avantage dans les situations périlleuses; comment pourrait-il laisser passer cela? Il voulait accomplir quelque chose d'historique dans le Royaume Extérieur, après avoir anéanti le Clan Shan Lei, qui ébranlerait tout le Système Stellaire Antique!
 
 Tuer le Souverain!
 
@@ -96,7 +96,7 @@ Cet air s'élança vers la terre réparatrice!
 
 Des grondements tonitruants résonnèrent violemment comme jamais auparavant dans cette terre sainte, devenant la voix même du monde! Le Souverain poussa un rugissement alors que le bec de l'Oiseau Vermillon s'effondrait!
 
-Au moment de son effondrement, la troisième onde de choc se propagea partout. D'innombrables failles déchirèrent l'espace et une énergie violente emplit le monde. La terre sainte du Clan des Moineaux de Feu commença à s'écrouler sous cette onde de choc!
+Au moment de son effondrement, la troisième onde de choc se propagea partout. D'innombrables failles déchirèrent l'espace et une énergie violente emplit le monde. La terre sainte du Clan Huo Que commença à s'écrouler sous cette onde de choc!
 
 L'air expulsé par l'Oiseau Vermillon retomba sur la terre, provoquant d'innombrables fissures!
 

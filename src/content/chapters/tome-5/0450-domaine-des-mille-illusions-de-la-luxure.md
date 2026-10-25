@@ -1,6 +1,6 @@
 ---
 n: 450
-title: Domaine des Mille Illusions de la Luxure
+title: Domaine Qian Huan Qing Yu
 book: 5
 bookTitle: Cultivation Planet Crystal
 en: Chapter 450 - Thousand Illusion Lust Domain
@@ -10,11 +10,11 @@ Yun Quezi fut surpris et demanda: « Est-ce là ton ancien domaine de la luxure?
 
 Le troisième ancêtre hocha la tête et répondit: « C'est mon domaine de la luxure. Si elle réussit sa possession, elle s'emparera certainement d'une partie de ma puissance. Comment pourrais-je la laisser faire? »
 
-« Cette chose s'est séparée de moi et a été trouvée par un petit cultivateur. Je crois que ce dernier se trouve actuellement à l'intérieur du Tombeau de Suzaku. Bien que je ne puisse pas détruire le domaine, je peux y apporter quelques modifications. En temps normal, cela n'aurait guère d'importance, mais lors d'une possession, cela fera échouer sa tentative! »
+« Cette chose s'est séparée de moi et a été trouvée par un petit cultivateur. Je crois que ce dernier se trouve actuellement à l'intérieur du Tombeau Zhu Que. Bien que je ne puisse pas détruire le domaine, je peux y apporter quelques modifications. En temps normal, cela n'aurait guère d'importance, mais lors d'une possession, cela fera échouer sa tentative! »
 
 Après avoir fini de parler, le troisième ancêtre pointa son front. La plante sur son front commença à bouger de manière mystérieuse. Des runes s'échappèrent de son front avant de disparaître dans les airs.
 
-Dans le Tombeau de Suzaku, Wang Lin monta sur l'autel, s'accroupit et posa la main dessus pour l'activer. Il sentit l'autel entamer sa téléportation et il était sur le point de disparaître.
+Dans le Tombeau Zhu Que, Wang Lin monta sur l'autel, s'accroupit et posa la main dessus pour l'activer. Il sentit l'autel entamer sa téléportation et il était sur le point de disparaître.
 
 Mais à ce moment précis, une immense quantité de brouillard rose jaillit soudainement des sept orifices de Liu Mei, suivie par le cri de Mei Ji.
 
@@ -82,11 +82,11 @@ Peu après, le brouillard disparut totalement et la vallée retrouva son aspect 
 
 Elle se leva, observa les taches rouges sur l'autel et commença à réfléchir.
 
-« Je n'arrive pas à croire que la dernière illusion du Domaine de la Cruauté des Mille Illusions soit celle-ci. À l'instant où elle apparaît, le domaine devient le Domaine des Mille Illusions de la Luxure. Tout cela ressemble à un songe, et pourtant c'est si réel. Je n'aurais jamais pensé que la dernière illusion de mon domaine s'obtiendrait ainsi... Le Maître voulait que je laisse ma marque dans le cœur taoïste de Wang Lin, mais il n'aurait jamais imaginé que ma dernière illusion contiendrait son aura... »
+« Je n'arrive pas à croire que la dernière illusion du Domaine de la Cruauté des Mille Illusions soit celle-ci. À l'instant où elle apparaît, le domaine devient le Domaine Qian Huan Qing Yu. Tout cela ressemble à un songe, et pourtant c'est si réel. Je n'aurais jamais pensé que la dernière illusion de mon domaine s'obtiendrait ainsi... Le Maître voulait que je laisse ma marque dans le cœur taoïste de Wang Lin, mais il n'aurait jamais imaginé que ma dernière illusion contiendrait son aura... »
 
 Les sourcils de Liu Mei se froncèrent intensément alors qu'elle regardait au loin, avant de laisser échapper un soupir. Elle éprouvait des sentiments complexes et, à cet instant, se sentit soudainement perdue. Tout ce qui venait de se produire dépassait toutes ses attentes.
 
-Le corps de Wang Lin apparut dans une terre désolée de la section intérieure du Tombeau de Suzaku. Une fois apparu, il leva les yeux vers le ciel avec une expression tourmentée.
+Le corps de Wang Lin apparut dans une terre désolée de la section intérieure du Tombeau Zhu Que. Une fois apparu, il leva les yeux vers le ciel avec une expression tourmentée.
 
 Alors qu'il était entouré par la brume rose, il avait eu l'impression de vivre un rêve. Et lorsque celle-ci s'était dissipée, il avait vu une femme sous lui. À cet instant, son cœur avait été troublé.
 
@@ -96,7 +96,7 @@ L'Âme Naissante de Li Muwan se rétablissait lentement à l'intérieur de la pe
 
 Wang Lin réfléchit un instant avant de disparaître pour s'envoler rapidement au loin.
 
-La section intérieure du Tombeau de Suzaku différait également de ce que Situ Nan lui avait décrit. Ce dernier lui avait dit que l'intérieur n'était pas vaste et qu'une montagne trônait en son centre. Le premier Suzaku avait laissé le Tao du Sceau Suzaku dans cette montagne, qui était aussi le lieu où reposait son cadavre. Chaque Suzaku cultivait ici durant plusieurs mois pour obtenir l'héritage du sceau.
+La section intérieure du Tombeau Zhu Que différait également de ce que Situ Nan lui avait décrit. Ce dernier lui avait dit que l'intérieur n'était pas vaste et qu'une montagne trônait en son centre. Le premier Suzaku avait laissé le Tao du Sceau Suzaku dans cette montagne, qui était aussi le lieu où reposait son cadavre. Chaque Suzaku cultivait ici durant plusieurs mois pour obtenir l'héritage du sceau.
 
 Le Sens Divin de Wang Lin se déploya pour balayer la zone. L'endroit était trop vaste pour qu'il puisse le couvrir entièrement, mais il détecta de multiples présences puissantes. Dès qu'elles remarquèrent sa présence, ces entités libérèrent leur aura, comme pour le provoquer.
 
@@ -104,6 +104,6 @@ Le cœur de Wang Lin trembla. Toutes ces présences étaient des formes de vie c
 
 Ses yeux s'illuminèrent; il choisit une direction et s'élança avec célérité. Son premier objectif était de trouver la montagne censée être le centre de ce lieu.
 
-Il savait qu'il ne disposait pas de beaucoup de temps. Si le Cristal de la Planète de Culture se brisait, il devrait utiliser la méthode donnée par Situ Nan. Ce cristal était un objet tyrannique, représentant le pouvoir absolu que l'Alliance de Culture accordait aux pays de culture de rang 6.
+Il savait qu'il ne disposait pas de beaucoup de temps. Si le Cristal de la Planète de Culture se brisait, il devrait utiliser la méthode donnée par Situ Nan. Ce cristal était un objet tyrannique, représentant le pouvoir absolu que l'Alliance Xiu Zhen accordait aux pays de culture de rang 6.
 
 Seuls les cultivateurs ayant atteint le stade Ascendant pouvaient, lors de l'illumination « entendre le Dao le matin, mourir le soir », avoir une chance de retirer leurs fragments d'âme du Cristal de la Planète de Culture. Cependant, un Suzaku ne devait jamais les retirer: dès qu'il le faisait, il perdait aussitôt le droit d'utiliser le sceau Suzaku et, par extension, son titre de Suzaku.

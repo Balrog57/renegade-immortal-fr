@@ -1,6 +1,6 @@
 ---
 n: 1507
-title: "L'Autel du Clan de l'Extermination du Sceau"
+title: "L'Autel du Clan Feng Mie"
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: Chapter 1507 - Seal Extermination Clan Altar
@@ -74,7 +74,7 @@ Wang Lin observa la faille de cent pieds. Il entrevoyait vaguement un autel au f
 
 L'esprit de l'ancien démon vacilla et il esquissa un sourire forcé. Avant qu'il ne puisse dire mot, il fut presque terrifié par la suite de Wang Lin.
 
-« L'autel disparu du Clan de l'Extermination du Sceau du Système Stellaire Antique semblait différent de celui-ci! » Wang Lin détourna le regard et observa l'ancien démon avec un sourire.
+« L'autel disparu du Clan Feng Mie du Système Stellaire Antique semblait différent de celui-ci! » Wang Lin détourna le regard et observa l'ancien démon avec un sourire.
 
 « Vous... Vous... » L'ancien démon afficha un visage d'incrédulité, le cœur tremblant. Il n'aurait jamais imaginé que Wang Lin soit déjà au courant!
 
@@ -102,11 +102,11 @@ Accablé d'amertume, l'ancien démon retira son pied et recula de quelques pas. 
 
 Simultanément, la faille se referma et disparut promptement.
 
-« Il existe trois autels du Clan de l'Extermination du Sceau. Chacun peut être trouvé à l'intérieur d'un pavillon de sang. Il n'y en a qu'un ici, les deux autres sont perdus. J'espère que vous tiendrez votre promesse et me donnerez ma chance! » L'ancien démon sourit amèrement et ferma les yeux. Il ignorait l'étendue des connaissances de Wang Lin, mais à l'ultime instant, il n'avait pas eu le courage de risquer sa vie.
+« Il existe trois autels du Clan Feng Mie. Chacun peut être trouvé à l'intérieur d'un pavillon de sang. Il n'y en a qu'un ici, les deux autres sont perdus. J'espère que vous tiendrez votre promesse et me donnerez ma chance! » L'ancien démon sourit amèrement et ferma les yeux. Il ignorait l'étendue des connaissances de Wang Lin, mais à l'ultime instant, il n'avait pas eu le courage de risquer sa vie.
 
 Wang Lin agita la main droite et emprisonna l'ancien démon dans son espace de stockage. Il contempla ensuite silencieusement le pavillon rouge. Il en possédait un lui aussi... Après un moment de silence, Wang Lin le rangea et disparut parmi les étoiles d'un seul pas. L'esprit de Wang Lin était aussi retors que celui d'un démon; bien que l'ancien démon fût rusé et que Wang Lin n'en connût pas le fin mot, ses paroles sondeuses et les changements de son expression s'étaient mués en une bataille mentale, dont l'ancien démon était sorti vaincu.
 
-À la lisière du Système Stellaire de Luotian, là où il rejoint le Système Stellaire de la Mer des Nuages, Wang Lin apparut. Il observa le vide, maintenant que la barrière entre les deux systèmes avait disparu.
+À la lisière du Système Stellaire de Luotian, là où il rejoint le Système Stellaire de la Mer Yun, Wang Lin apparut. Il observa le vide, maintenant que la barrière entre les deux systèmes avait disparu.
 
 « Shui Daozi!! La haine d'autrefois, aujourd'hui Wang vient réclamer ton âme! »
 

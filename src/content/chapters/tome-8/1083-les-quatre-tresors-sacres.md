@@ -69,13 +69,13 @@ Après la lumière des étoiles vint celle de la lune. Elle perça le chaos du m
 
 La lumière lunaire fut suivie par le premier des trois sorts d'enterrement, et surtout par le plus puissant: l'Enterrement Solaire!
 
-Au moment où l'Ancien Démon Ta Jia utilisa ce sort, la lumière provenant du vide, au-delà de la Terre des Esprits Démoniaques, commença à converger en un point unique.
+Au moment où l'Ancien Démon Ta Jia utilisa ce sort, la lumière provenant du vide, au-delà de la Terre Yao Ling, commença à converger en un point unique.
 
 À mesure que la lumière s'accumulait, le point lumineux grandissait sans cesse. Cette clarté éblouissante envahit le ciel et illumina tout sur son passage.
 
 Une fois qu'il eut absorbé toute cette énergie, le point de lumière s'étendit jusqu'à atteindre près de 10 000 pieds de large. Sa puissance était telle que, si un mortel la regardait, ses yeux exploseraient; et pour un cultivateur dont le niveau de culture était trop faible, ses yeux seraient également transpercés.
 
-À cet instant, cette sphère de lumière était semblable à un soleil. Elle siffla directement vers la particule de poussière dans laquelle se trouvait la Terre des Esprits Démoniaques!
+À cet instant, cette sphère de lumière était semblable à un soleil. Elle siffla directement vers la particule de poussière dans laquelle se trouvait la Terre Yao Ling!
 
 Tian Yunzi agita ses manches et chargea les Quatre Bêtes Divines en plein ciel.
 
@@ -83,7 +83,7 @@ L'Empereur Divin de l'Oiseau Vermillon secoua la tête et déclara calmement: «
 
 Ses paroles s'adressaient naturellement à Wang Lin. Bien que le corps de ce dernier soit extrêmement affaibli, il leva la tête pour contempler la scène.
 
-« Le Dragon Azure de l'est, bois Jia Yi; le Tigre Blanc de l'ouest, métal Geng Xin; l'Oiseau Vermillon du sud, feu Bing Ding; et la Tortue Noire du nord, eau Ren Kui! Les trois styles de sceaux de ma Secte de l'Oiseau Vermillon, Ciel, Terre et Esprit, relèvent du feu Bing Ding! »
+« Le Dragon Azure de l'est, bois Jia Yi; le Tigre Blanc de l'ouest, métal Geng Xin; l'Oiseau Vermillon du sud, feu Bing Ding; et la Tortue Noire du nord, eau Ren Kui! Les trois styles de sceaux de ma Secte Zhu Que, Ciel, Terre et Esprit, relèvent du feu Bing Ding! »
 
 L'Empereur Divin de l'Oiseau Vermillon forma un sceau de la main droite, l'agita vers l'avant et dit calmement: « Esprit Bing! »
 
@@ -101,7 +101,7 @@ La lumière stellaire de l'Ancien Démon Ta Jia atteignit sa cible, mais elle fu
 
 Les Quatre Trésors Sacrés chargèrent Tian Yunzi et l'Ancien Démon Ta Jia. À cet instant, le ciel s'embrasa: c'était l'Enterrement Solaire du démon ancien qui approchait.
 
-Cette sphère de lumière géante pénétra par la déchirure du ciel de la Terre des Esprits Démoniaques, enveloppant toute la terre. L'Enterrement Solaire était l'un des sorts les plus puissants de Qing Lin. Bien que l'Ancien Démon Ta Jia, qui s'était emparé de ce corps, ne l'ait pas exécuté parfaitement, sa force n'en demeurait pas moins redoutable.
+Cette sphère de lumière géante pénétra par la déchirure du ciel de la Terre Yao Ling, enveloppant toute la terre. L'Enterrement Solaire était l'un des sorts les plus puissants de Qing Lin. Bien que l'Ancien Démon Ta Jia, qui s'était emparé de ce corps, ne l'ait pas exécuté parfaitement, sa force n'en demeurait pas moins redoutable.
 
 Alors que cette lumière saturait le ciel, les Quatre Trésors Sacrés convergèrent et une aura colossale surgit pour entrer en collision avec elle.
 
@@ -113,11 +113,11 @@ Au même instant, les dirigeants des trois autres trésors hurlèrent:
 
 Alors que leurs voix résonnaient, les Quatre Trésors Sacrés brillèrent et se regroupèrent sur la longue épée rouge de l'Oiseau Vermillon. En un instant, l'arme grandit de manière prodigieuse, comme si elle pouvait fendre les cieux et la terre. Simultanément, les armes formées par le Dragon Azure, le Tigre Blanc et la Tortue Noire apparurent derrière elle.
 
-Cette longue épée rouge s'abattit sur le démon ancien. La simple pression de sa descente, sur quelques dizaines de pieds seulement, fit trembler l'intégralité de la Terre des Esprits Démoniaques. Le sol s'affaissa, formant un immense bassin.
+Cette longue épée rouge s'abattit sur le démon ancien. La simple pression de sa descente, sur quelques dizaines de pieds seulement, fit trembler l'intégralité de la Terre Yao Ling. Le sol s'affaissa, formant un immense bassin.
 
 Les yeux de l'Ancien Démon Ta Jia brillèrent d'un rouge sinistre, mais il ne put masquer la terreur qui les habitait.
 
-Cette scène fit pousser des cris d'effroi parmi les cultivateurs de l'Alliance, leurs yeux emplis d'horreur. Ils n'avaient entendu dire que les Quatre Trésors Sacrés de la Secte Divine étaient si puissants qu'ils terrifiaient même le Royaume du Vide Brillant.
+Cette scène fit pousser des cris d'effroi parmi les cultivateurs de l'Alliance, leurs yeux emplis d'horreur. Ils n'avaient entendu dire que les Quatre Trésors Sacrés de la Secte Divine étaient si puissants qu'ils terrifiaient même le Royaume Kun Xu.
 
 Désormais, en les voyant de leurs propres yeux, ils furent profondément ébranlés. Ils ne pourraient jamais oublier cette Secte Divine des Quatre, pourtant presque tombée dans l'oubli.
 
@@ -125,4 +125,4 @@ Mu Bingmei observa les Quatre Bêtes Divines en fronçant les sourcils. Cependan
 
 Le vieil homme du Vide Brillant fixait le ciel, une pointe de crainte dans le regard. Il savait que ces Quatre Trésors Sacrés n'étaient pas parfaits et qu'ils comportaient un défaut. Ce défaut résidait dans le Trésor Sacré de la Tortue Noire.
 
-« Le véritable Trésor Sacré de la Tortue Noire devrait être entre les mains de l'Alliance des Cultivateurs... Entre les mains de l'ancien Empereur Divin de la Tortue Noire... » Les yeux du vieil homme du Vide Brillant s'illuminèrent.
+« Le véritable Trésor Sacré de la Tortue Noire devrait être entre les mains de l'Alliance Xiu Zhen... Entre les mains de l'ancien Empereur Divin de la Tortue Noire... » Les yeux du vieil homme du Vide Brillant s'illuminèrent.

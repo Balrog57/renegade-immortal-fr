@@ -22,11 +22,11 @@ Sun Qiming reprit d'un ton solennel: « La famille Sun est puissante et occupe l
 
 Les yeux de Sun Qiming se posèrent sur le jeune homme et il dit calmement: « Jeune homme de la famille Yun, cette affaire a commencé à cause de vous. Préparez-vous, car elle pourrait ne pas être aussi facile à régler! »
 
-Ce jeune homme en robe violette s'appelait Yun Wufeng. Il était un membre de la famille Yun de la planète Mer des Nuages. La planète Mer des Nuages était l'une des cinq planètes principales de la partie nord du système stellaire Luotian. Son talent était trop médiocre pour cultiver, il était donc considéré comme un membre externe de la famille. Il était venu ici avec la caravane de la famille Yun, mais à cause de Qing Yi, il n'était pas reparti avec elle et était resté sur place. Pour les familles de culture ordinaires, avant que le niveau d'un individu n'atteigne le stade de la Transformation de l'Âme, il est impossible de quitter sa planète. Cependant, pour une grande lignée comme la famille Yun, il existait des moyens d'extraire les membres dont la culture était inférieure au stade de la Transformation de l'Âme.
+Ce jeune homme en robe violette s'appelait Yun Wufeng. Il était un membre de la famille Yun de la planète Mer Yun. La planète Mer Yun était l'une des cinq planètes principales de la partie nord du système stellaire Luotian. Son talent était trop médiocre pour cultiver, il était donc considéré comme un membre externe de la famille. Il était venu ici avec la caravane de la famille Yun, mais à cause de Qing Yi, il n'était pas reparti avec elle et était resté sur place. Pour les familles de culture ordinaires, avant que le niveau d'un individu n'atteigne le stade de la Transformation de l'Âme, il est impossible de quitter sa planète. Cependant, pour une grande lignée comme la famille Yun, il existait des moyens d'extraire les membres dont la culture était inférieure au stade de la Transformation de l'Âme.
 
 En raison de son talent défaillant, il n'était pas choyé par la famille Yun. Pourtant, ici sur la planète Ran Yun, sa simple identité suffisait à ce que toutes les familles de culture lui témoignent un respect extrême.
 
-Après tout, la famille Yun était la première famille de la planète Mer des Nuages, surpassant même la puissance de l'ancienne famille Huan.
+Après tout, la famille Yun était la première famille de la planète Mer Yun, surpassant même la puissance de l'ancienne famille Huan.
 
 Yun Wufeng eut un ricanement intérieur de mépris. Bien qu'il n'ait aucune culture, tant qu'il se trouvait dans la partie nord du système stellaire Luotian, personne n'oserait le provoquer, car cela reviendrait à se faire un ennemi de la famille Yun.
 
@@ -50,7 +50,7 @@ L'expression de Sun Qiming changea radicalement. À cet instant, il avait ressen
 
 Sans la moindre hésitation, Sun Qiming saisit l'Ancien au visage rouge et le projeta en arrière. Il joignit respectueusement ses mains et dit: « Je vous prie d'excuser notre dérangement de la culture du Senior. Ce subordonné s'en va immédiatement. »
 
-Sur ces mots, il agita ses manches et disparut soudainement avec tous les membres de la famille Sun. Lorsqu'ils réapparurent, ils se trouvaient dans le hall principal de la branche de la famille Sun à Ville des Vastes Eaux.
+Sur ces mots, il agita ses manches et disparut soudainement avec tous les membres de la famille Sun. Lorsqu'ils réapparurent, ils se trouvaient dans le hall principal de la branche de la famille Sun à Ville Qi Shui.
 
 « Aucun membre de la famille Sun n'est autorisé à s'approcher à moins de mille pieds de ce manoir. Quiconque désobéira verra sa culture anéantie et sera banni de la famille Sun! » Même à cet instant, le cœur de Sun Qiming battait la chamade et son front était couvert de sueur froide.
 

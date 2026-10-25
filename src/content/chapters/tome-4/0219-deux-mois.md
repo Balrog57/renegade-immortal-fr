@@ -72,7 +72,7 @@ La grande restriction perdit instantanément son équilibre, provoquant l'inclin
 
 Tandis qu'il orchestrait ce chaos, Wang Lin ne marqua aucun temps d'arrêt et s'élança vers l'horizon. La femme qui le poursuivait serra les dents; renonçant à sa traque, elle retourna précipitamment vers la grande restriction pour tenter de la renforcer.
 
-Wang Lin quitta le patio oriental sans plus d'entraves, tout en sachant que les cultivateurs du stade intermédiaire de l'Âme Naissante de la Secte du Ciel Nuageux arriveraient bientôt.
+Wang Lin quitta le patio oriental sans plus d'entraves, tout en sachant que les cultivateurs du stade intermédiaire de l'Âme Naissante de la Secte Yun Tian arriveraient bientôt.
 
 C'est alors qu'un Sens Divin extrêmement puissant émana du lointain. Ce Sens Divin, en balayant Wang Lin, laissa échapper un ricanement méprisant. Wang Lin resta impassible. Si n'importe qui d'autre avait été ainsi frappé, son âme en aurait été endommagée, mais celle de Wang Lin était d'une ampleur prodigieuse. Si son âme sortait de son corps, bien que limitée par le Royaume Ji et sa culture au point de ne pouvoir tuer un cultivateur de l'Âme Naissante ou au-dessus, elle ne serait pas moins puissante que l'âme des cultivateurs du stade de la Formation de l'Âme. Bien qu'elle soit actuellement confinée dans son corps et ne puisse exprimer que le niveau de la fin de la Formation du Noyau, sa base restait intacte: comment pourrait-elle être blessée par un simple cultivateur du stade intermédiaire de l'Âme Naissante?
 
@@ -88,17 +88,17 @@ Le corps principal de Wang Lin était déjà revenu à la grotte située à l'ex
 
 Pendant ce temps, dans la cour où résidait Wang Lin, son avatar émergea lentement du sol de la pièce. Après s'être rapidement rafraîchi, il s'assit pour cultiver.
 
-L'affaire fut classée. Au cours des quinze jours suivants, le récit de l'acte du corps principal de Wang Lin se répandit dans toute la secte, décliné en de multiples versions. Il faut dire que la Secte du Ciel Nuageux n'avait pas connu un tel incident depuis longtemps: un individu avait fait irruption dans la secte, avait commis un meurtre et s'était volatilisé sous leurs yeux. C'était une véritable insulte faite à l'honneur de la secte.
+L'affaire fut classée. Au cours des quinze jours suivants, le récit de l'acte du corps principal de Wang Lin se répandit dans toute la secte, décliné en de multiples versions. Il faut dire que la Secte Yun Tian n'avait pas connu un tel incident depuis longtemps: un individu avait fait irruption dans la secte, avait commis un meurtre et s'était volatilisé sous leurs yeux. C'était une véritable insulte faite à l'honneur de la secte.
 
 Cela alerta même les quelques ancêtres de l'Âme Naissante qui se préparaient au stade de la Formation de l'Âme. En venant enquêter, ils découvrirent que les deux victimes étaient Gongsun Tong et Cheng Ling.
 
 Tous les proches des défunts, tels que Cheng Xian et Lu Song, furent interrogés. Même Wang Lin fut soumis à un examen. Finalement, un cultivateur de l'Âme Naissante utilisa son Sens Divin pour vérifier si Wang Lin mentait. Cependant, comme l'âme de Wang Lin était bien plus vaste que la sienne, il ne put rien déceler. Pour une raison inconnue, l'affaire fut abandonnée.
 
-Quant à Li Muwan, elle ne fut impliquée dans rien. Elle le devait à son frère aîné. Ses stratagèmes étaient d'une profondeur abyssale. Il savait que le responsable était un ami de Li Muwan et la technique de cet individu l'effrayait. Même trois cultivateurs de l'Âme Naissante n'avaient pu empêcher cette personne de circuler à sa guise dans la Secte du Ciel Nuageux. Dès lors, comment oserait-il parler? S'il ouvrait la bouche, cet individu réapparaîtrait sans être remarqué pour l'exécuter.
+Quant à Li Muwan, elle ne fut impliquée dans rien. Elle le devait à son frère aîné. Ses stratagèmes étaient d'une profondeur abyssale. Il savait que le responsable était un ami de Li Muwan et la technique de cet individu l'effrayait. Même trois cultivateurs de l'Âme Naissante n'avaient pu empêcher cette personne de circuler à sa guise dans la Secte Yun Tian. Dès lors, comment oserait-il parler? S'il ouvrait la bouche, cet individu réapparaîtrait sans être remarqué pour l'exécuter.
 
 La vie de Wang Lin retrouva son calme, mais dans son esprit, le sourire triste de Li Muwan ne cessait de ressurgir. Chaque fois qu'elle lui apparaissait ainsi, il avait l'impression que son cœur était transpercé.
 
-Ce sentiment atteignit son paroxysme lorsque la Secte du Ciel Nuageux annonça à tout le pays de Chu que l'une des trois alchimistes de rang 5, Li Muwan, formerait un couple de culture avec Sun Zhenwei, le fils de l'Ancien Sun de la secte extérieure, dans deux mois.
+Ce sentiment atteignit son paroxysme lorsque la Secte Yun Tian annonça à tout le pays de Chu que l'une des trois alchimistes de rang 5, Li Muwan, formerait un couple de culture avec Sun Zhenwei, le fils de l'Ancien Sun de la secte extérieure, dans deux mois.
 
 Wang Lin restait assis tranquillement dans sa chambre. Après une journée et une nuit de réflexion, il poussa un soupir et son regard se fit déterminé. Une lueur froide traversa ses yeux alors qu'il se levait pour marcher vers le patio sud.
 
@@ -120,4 +120,4 @@ Wang Lin regarda Li Muwan et soupira. Il posa la main sur son sac de rangement e
 
 À l'instant où le jade apparut, les forces de Li Muwan l'abandonnèrent. Après avoir saisi le précieux objet, elle s'appuya contre le montant de la porte tandis que des larmes de joie inondaient son visage.
 
-« Tuer Sun Zhenwei est une tâche facile, mais cela devra attendre que ma culture soit assez élevée pour que personne dans la Secte du Ciel Nuageux n'ose dire un mot, assez élevée pour que je puisse t'emmener parcourir le pays de Chu en maître! » La voix de Wang Lin était monocorde, mais ses paroles étaient empreintes d'un léger dédain.
+« Tuer Sun Zhenwei est une tâche facile, mais cela devra attendre que ma culture soit assez élevée pour que personne dans la Secte Yun Tian n'ose dire un mot, assez élevée pour que je puisse t'emmener parcourir le pays de Chu en maître! » La voix de Wang Lin était monocorde, mais ses paroles étaient empreintes d'un léger dédain.

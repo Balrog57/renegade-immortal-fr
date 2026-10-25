@@ -52,7 +52,7 @@ La lumière aux sept couleurs tomba du ciel, mais elle commença immédiatement 
 
 L'œil gauche de Wang Lin dégageait un feu stupéfiant. Ce feu fut d'abord rouge, puis devint rapidement blanc. Cela fit que l'œil gauche de Wang Lin devint presque entièrement blanc!
 
-L'Oiseau Vermillon était sur le point de s'éveiller pour la troisième fois! Après avoir absorbé la plume à Peng Lai et dévoré l'esprit ancestral de l'oiseau de feu invoqué par le membre du Clan des Moineaux de Feu, le troisième éveil de l'Oiseau Vermillon était arrivé!
+L'Oiseau Vermillon était sur le point de s'éveiller pour la troisième fois! Après avoir absorbé la plume à Peng Lai et dévoré l'esprit ancestral de l'oiseau de feu invoqué par le membre du Clan Huo Que, le troisième éveil de l'Oiseau Vermillon était arrivé!
 
 À ce moment-là, la lumière aux sept couleurs continuait d'être repoussée et une vague de chaleur se propagea, prenant Wang Lin pour centre. La Restriction Temporelle s'était déjà rétablie, mais à cause du sceau, la température devint ici encore plus élevée!
 
@@ -60,11 +60,11 @@ L'armure rouge cramoisi autour de Wang Lin absorba la chaleur émanant de son co
 
 L'Oiseau Vermillon était l'être qui contrôlait tout le feu du monde. Nul n'en connaissait l'origine, mais la légende racontait qu'à la naissance du monde, celui-ci contenait cinq éléments, et que l'Oiseau Vermillon était né de l'élément feu!
 
-Aujourd'hui, que la légende fût vraie ou non n'avait plus d'importance. L'essentiel était que le Clan de l'Oiseau Vermillon existait depuis des temps immémoriaux. Ils étaient nés du feu et ne s'éteignaient jamais!
+Aujourd'hui, que la légende fût vraie ou non n'avait plus d'importance. L'essentiel était que le Clan Zhu Que existait depuis des temps immémoriaux. Ils étaient nés du feu et ne s'éteignaient jamais!
 
 Ce clan cultivait le pouvoir du feu et portait la marque de l'Oiseau Vermillon sur son corps. Chaque éveil de cette marque signifiait une métamorphose de l'Oiseau Vermillon, représentant le pouvoir dévastateur du feu. Dans l'Antiquité, le premier éveil n'était pas rare, mais avec le passage du temps et la dilution des lignées sanguines, de moins en moins de personnes parvenaient à s'éveiller.
 
-Il était inutile d'évoquer ceux qui s'éveillaient une seconde fois; c'était déjà une rareté aux temps anciens, et cela l'était encore plus aujourd'hui. Quiconque atteignait un second éveil pouvait impressionner n'importe quel membre du Clan de l'Oiseau Vermillon.
+Il était inutile d'évoquer ceux qui s'éveillaient une seconde fois; c'était déjà une rareté aux temps anciens, et cela l'était encore plus aujourd'hui. Quiconque atteignait un second éveil pouvait impressionner n'importe quel membre du Clan Zhu Que.
 
 Cependant, comparé au troisième éveil, cela revenait à comparer une luciole à la lune. Le troisième éveil semblait avoir disparu. Seuls, aux temps primordiaux, quelques individus dotés d'un talent prodigieux avaient atteint ce stade! Mais nul ne savait si cela était vrai.
 

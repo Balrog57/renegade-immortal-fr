@@ -42,7 +42,7 @@ Le soleil projeta soudain une lumière encore plus éclatante et se divisa en pr
 
 Une fois l'opération terminée, le soleil qui masquait les lieux se dissipa et le ciel retrouva son aspect normal. Le vent se mit à souffler, comme pour balayer la tension et le choc qui imprégnaient l'atmosphère.
 
-Le Grand Empyréen Xuan Luo regarda au loin et s'élança sans hésiter, disparaissant sans laisser de trace. Il se dirigeait vers les terres des Célestes, vers la Secte des Sept Dao, pour rejoindre la grotte et ramener cet enfant chez lui!
+Le Grand Empyréen Xuan Luo regarda au loin et s'élança sans hésiter, disparaissant sans laisser de trace. Il se dirigeait vers les terres des Célestes, vers la Secte Qi Dao, pour rejoindre la grotte et ramener cet enfant chez lui!
 
 Après le départ de Xuan Luo, la cité céleste resta silencieuse durant un long moment. Puis l'homme en robe royale s'en alla, le cœur profondément sombre. Les autres partirent lentement, encore sous le choc.
 
@@ -118,6 +118,6 @@ L'âme de la femme à l'intérieur de la perle rouge restait immobile. Sa silhou
 
 À cet instant, un vent souffla sur l'homme en robe royale. La perle sembla également réagir au souffle, et la brume entourant la femme s'agita violemment. Juste au moment où sa silhouette allait être révélée, elle fut brusquement dissimulée par les doigts de la main qui serrait la perle.
 
-Dans le monde des grottes, au sein de la faille de la Mer des Nuages, le vortex géant surplombant l'autel gronda. La lumière sanguine baigna le corps de Wang Lin, lui donnant l'apparence d'un être fait de sang pur.
+Dans le monde des grottes, au sein de la faille de la Mer Yun, le vortex géant surplombant l'autel gronda. La lumière sanguine baigna le corps de Wang Lin, lui donnant l'apparence d'un être fait de sang pur.
 
 Ses yeux se plissèrent tandis qu'il fixait les profondeurs du vortex. Finalement, il vit quelques gouttes de sang s'en échapper et voler vers lui!

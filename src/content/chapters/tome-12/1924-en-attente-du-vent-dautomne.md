@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1924 - Waiting for the Autumn Wind
 slug: en-attente-du-vent-dautomne
 ---
-Wang Lin fit un pas en avant. Tous les disciples de la Secte de la Terre situés entre lui et l'homme furent écartés par une force invisible. Lorsque le pied de Wang Lin toucha le sol, il se retrouva devant l'homme nommé Qing.
+Wang Lin fit un pas en avant. Tous les disciples de la Secte Di situés entre lui et l'homme furent écartés par une force invisible. Lorsque le pied de Wang Lin toucha le sol, il se retrouva devant l'homme nommé Qing.
 
 « Senior… » L'homme fut stupéfait en voyant Wang Lin. Il était désemparé. La même expression apparut sur le visage de la femme, doublée de panique. Wang Lin était accompagné de l'Ancien et du Maître de Secte; il devait donc être une personne d'une puissance redoutable!
 
@@ -16,13 +16,13 @@ En voyant cela, une lueur glaciale traversa les yeux du Maître de Secte. Opprim
 
 « Vous deux avez du cran! Sans même que le Senior ait à intervenir, je vous bannirai tous deux de la secte! » Sur ces mots, il s'élança pour faire étalage de sa force.
 
-« Idiot!! » En entendant cela, l'expression du vieil homme de l'Exalté Doré changea radicalement. Il fit un geste de la manche, prêt à stopper le Maître de la Secte de la Terre.
+« Idiot!! » En entendant cela, l'expression du vieil homme de l'Exalté Doré changea radicalement. Il fit un geste de la manche, prêt à stopper le Maître de la Secte Di.
 
 Cependant, avant qu'il ne puisse faire quoi que ce soit, Wang Lin se retourna et la douceur dans ses yeux se mua en un regard glacial.
 
 « Dégage! »
 
-Ce mot fut comme un coup de tonnerre éclatant au sein de la Secte de la Terre, créant d'innombrables échos et une onde de choc puissante. Tout cela frappa le Maître de Secte, faisant trembler son corps; il cracha du sang et fut projeté au loin.
+Ce mot fut comme un coup de tonnerre éclatant au sein de la Secte Di, créant d'innombrables échos et une onde de choc puissante. Tout cela frappa le Maître de Secte, faisant trembler son corps; il cracha du sang et fut projeté au loin.
 
 Un seul mot, un simple son, suffisait à infliger de graves blessures à un Maître de Secte au stade avancé de la Tribulation du Vide. Les pupilles du vieil Ancien de l'Exalté Doré se rétractèrent et il joignit immédiatement les mains devant Wang Lin.
 

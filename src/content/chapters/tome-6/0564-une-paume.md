@@ -32,7 +32,7 @@ Comparée à l'intention de poing des Dix Effondrements, cette Mer Démoniaque a
 
 Face à cette mer d'énergie spirituelle démoniaque, une idée traversa soudainement l'esprit de Wang Lin!
 
-Sur la planète Suzaku, une rumeur disait qu'un puissant cultivateur avait utilisé un sort pour transformer la mer en brume, créant ainsi l'apparence unique de la Mer des Démons!
+Sur la planète Suzaku, une rumeur disait qu'un puissant cultivateur avait utilisé un sort pour transformer la mer en brume, créant ainsi l'apparence unique de la Mer Xiu Mo!
 
 Lorsqu'il l'avait apprise à l'époque, bien que choqué, Wang Lin n'y avait pas vraiment cru. Cependant, aujourd'hui, il voyait de ses propres yeux le général démon transformer l'énergie spirituelle invisible en une mer tangible. Si cela le stupéfiait, cela le faisait surtout réfléchir profondément.
 
@@ -92,7 +92,7 @@ Les yeux de Wang Lin s'illuminèrent alors qu'il reculait de plusieurs pas: « U
 
 « Oh? Alors montre-le-moi. Si cela peut réellement me tuer, je me soumettrai sans discuter! » Le général démon créa alors quarante nouvelles vagues qui s'abattirent vers Wang Lin.
 
-« Si je devais te tuer, je n'aurais plus aucun moyen de rester dans ce Pays du Démon Céleste. Regarde attentivement, et tu sauras par toi-même si tu peux supporter ce coup! » Wang Lin ne chercha pas à contrer les quarante vagues. Au lieu de cela, il s'éleva à 330 mètres dans les airs et regarda soudainement vers le bas.
+« Si je devais te tuer, je n'aurais plus aucun moyen de rester dans ce Pays Tian Yao. Regarde attentivement, et tu sauras par toi-même si tu peux supporter ce coup! » Wang Lin ne chercha pas à contrer les quarante vagues. Au lieu de cela, il s'éleva à 330 mètres dans les airs et regarda soudainement vers le bas.
 
 Les yeux du général démon révélèrent une lueur mystérieuse; d'une simple pensée, il fit revenir les quarante vagues vers lui. Elles tourbillonnaient désormais autour de lui comme quarante dragons des mers lui rendant hommage, et il ressemblait à un Immortel démon de la mer!
 

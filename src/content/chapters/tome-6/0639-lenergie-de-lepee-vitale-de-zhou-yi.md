@@ -73,7 +73,7 @@ Wang Lin se retourna pour faire face à Zhou Yi. Sans parler, il lança le jade 
 
 Les yeux de Zhou Yi se plissèrent alors qu'il saisissait le jade. Il le scruta immédiatement avec son sens divin et son expression changea radicalement. Après un long moment, il murmura amèrement: « Qing Shuang... »
 
-D'une voix calme, Wang Lin reprit lentement: « La fille de l'Empereur Céleste Qing Lin. Ce Qing Lin était l'être le plus puissant du Royaume Céleste. La rumeur prétend qu'il s'est enfui lors de l'effondrement du Royaume Céleste. Il est caché dans une grotte, ici même, dans cette Terre des Esprits Démoniaques, en pleine convalescence! »
+D'une voix calme, Wang Lin reprit lentement: « La fille de l'Empereur Céleste Qing Lin. Ce Qing Lin était l'être le plus puissant du Royaume Céleste. La rumeur prétend qu'il s'est enfui lors de l'effondrement du Royaume Céleste. Il est caché dans une grotte, ici même, dans cette Terre Yao Ling, en pleine convalescence! »
 
 L'énergie dans ses yeux devint plus intense et une trace de vitalité apparut progressivement dans son corps. Le gaz violet qui l'entourait s'agita violemment, mais cela ne put empêcher le retour de sa vitalité.
 
@@ -89,7 +89,7 @@ Le Zhou Yi actuel semblait avoir oublié que Ting Er n'était qu'un fragment d'�
 
 « Dispersez-vous! » Ses yeux s'illuminèrent et le gaz violet qui l'entourait entama immédiatement une lutte désespérée pour répliquer. Cependant, cela fut vain et le gaz fut promptement expulsé du corps de Zhou Yi. Bientôt, toute la brume violette fut chassée et la vaste nuée disparut à travers la formation au sol.
 
-Zhou Yi était l'esprit de l'Épée Céleste de la Pluie. Si l'ancien démon du Pays du Démon de l'Eau venait en personne, Zhou Yi n'aurait peut-être aucune chance, car il ne lui restait que trois énergies d'épée vitales.
+Zhou Yi était l'esprit de l'Épée Céleste de la Pluie. Si l'ancien démon du Pays Shui Yao venait en personne, Zhou Yi n'aurait peut-être aucune chance, car il ne lui restait que trois énergies d'épée vitales.
 
 Cependant, expulser simplement l'énergie spirituelle démoniaque de l'ancien démon n'était pas une tâche difficile pour lui.
 
@@ -101,7 +101,7 @@ En tant qu'esprit de l'Épée Céleste de la Pluie, son corps se transforma en u
 
 Au même moment, les trois dernières sphères de lumière s'envolèrent dans les airs. Elles se changèrent en sens divin et foncèrent sur Zhou Yi.
 
-Un reniflement froid émana de l'épée et un rayon de l'énergie vitale de Zhou Yi jaillit. Un bruit assourdissant résonna soudainement dans tout l'Abîme des Marées, comme si cette énergie d'épée féroce voulait trancher l'abîme lui-même.
+Un reniflement froid émana de l'épée et un rayon de l'énergie vitale de Zhou Yi jaillit. Un bruit assourdissant résonna soudainement dans tout l'Abîme Chao Xi, comme si cette énergie d'épée féroce voulait trancher l'abîme lui-même.
 
 Les trois sphères de lumière furent instantanément brisées et dévorées par Zhou Yi. Quant aux projections des quatre épées au sol, elles furent également pulvérisées par l'énergie vitale. La formation s'effondra avec les épées.
 

@@ -8,23 +8,23 @@ slug: les-pensees-de-la-cupidite
 ---
 Les yeux du Saint de l'Épée Ling Tianhou s'illuminèrent et il demanda lentement: « Quelle sorte de fortune pourrait vous intéresser à ce point, Tan Lang? »
 
-Tan Lang réfléchit un instant, puis serra les dents en regardant le Saint de l'Épée Ling Tianhou et murmura: « Le Saint de l'Épée a-t-il entendu parler de l'annonce envoyée par l'Alliance de Culture il y a des dizaines de milliers d'années, à la recherche d'un objet? Cet objet est une perle, et la récompense est un sort céleste complet de haute qualité! C'est un sort céleste de haute qualité, la plus grande récompense que l'Alliance de Culture ait jamais offerte! Selon mes sources, il n'existe pas plus de dix sorts célestes complets de haute qualité au sein de l'Alliance de Culture! »
+Tan Lang réfléchit un instant, puis serra les dents en regardant le Saint de l'Épée Ling Tianhou et murmura: « Le Saint de l'Épée a-t-il entendu parler de l'annonce envoyée par l'Alliance Xiu Zhen il y a des dizaines de milliers d'années, à la recherche d'un objet? Cet objet est une perle, et la récompense est un sort céleste complet de haute qualité! C'est un sort céleste de haute qualité, la plus grande récompense que l'Alliance Xiu Zhen ait jamais offerte! Selon mes sources, il n'existe pas plus de dix sorts célestes complets de haute qualité au sein de l'Alliance Xiu Zhen! »
 
 Les yeux de Ling Tianhou devinrent sérieux et il demanda lentement: « Vos blessures sont-elles liées à cette perle? »
 
 Tan Lang hocha la tête avec un sourire amer. « Ne parlons plus du passé. C'était simplement parce que ma culture n'était pas assez puissante. Cependant, si le Saint de l'Épée agit, alors ce sera certainement facile! »
 
-Le Saint de l'Épée Ling Tianhou leva la tête et scruta le vide. Après un long moment, il dit: « Nous pourrons en discuter une fois que la Mer des Esprits Démoniaques de l'Est sera terminée, mais avant cela, vous devez m'aider pour une affaire, Tan Lang! »
+Le Saint de l'Épée Ling Tianhou leva la tête et scruta le vide. Après un long moment, il dit: « Nous pourrons en discuter une fois que la Mer Yao Ling sera terminée, mais avant cela, vous devez m'aider pour une affaire, Tan Lang! »
 
 Les yeux de Tan Lang s'illuminèrent et il demanda: « Que le Saint de l'Épée attend-il de moi? »
 
-Le Saint de l'Épée Ling Tianhou dit d'un ton solennel: « Entrez dans la Mer des Esprits Démoniaques de l'Est et protégez mes douze disciples jusqu'à ce qu'ils accomplissent la mission secrète que je leur ai confiée. Si vous réussissez cela, alors je vous aiderai. »
+Le Saint de l'Épée Ling Tianhou dit d'un ton solennel: « Entrez dans la Mer Yao Ling et protégez mes douze disciples jusqu'à ce qu'ils accomplissent la mission secrète que je leur ai confiée. Si vous réussissez cela, alors je vous aiderai. »
 
 L'expression de Tan Lang se figea. « Ling Tianhou, que voulez-vous dire par "aider"? » demanda-t-il.
 
 Ling Tianhou se tourna vers lui. Son visage était impassible lorsqu'il dit calmement: « Tan Lang, lorsque je me faisais un nom parmi les étoiles, vous n'aviez même pas commencé à cultiver. Votre manège est clair pour moi. Si vous n'aviez pas été contraint par le propriétaire de la perle, pourquoi vous précipiteriez-vous ici pour me trouver? Si je vous repoussais maintenant, j'ai bien peur que peu de temps après, nous ne soyons séparés par la vie et la mort! »
 
-Tan Lang réfléchit. Après un moment, il sourit et dit: « Le Saint de l'Épée s'inquiète trop. Tant que je serai là, je promets de garder vos disciples en sécurité! Cependant, j'ai entendu dire que la porte de la Mer des Esprits Démoniaques de l'Est est mystérieuse, alors je ne sais pas si je peux y entrer avec ma culture... »
+Tan Lang réfléchit. Après un moment, il sourit et dit: « Le Saint de l'Épée s'inquiète trop. Tant que je serai là, je promets de garder vos disciples en sécurité! Cependant, j'ai entendu dire que la porte de la Mer Yao Ling est mystérieuse, alors je ne sais pas si je peux y entrer avec ma culture... »
 
 Ling Tianhou répondit calmement: « Ne vous en souciez pas. Vous êtes blessé, et c'est mon tour d'ouvrir la porte, je vous laisserai donc naturellement entrer. »
 
@@ -52,7 +52,7 @@ Outre ces personnes, tous les vieux monstres observaient Ling Tianhou et Tian Yu
 
 Il ne restait plus qu'un jour avant le grand événement qui n'arrivait qu'une fois tous les 5 000 ans!
 
-Lorsque la porte s'ouvrirait pour laisser passer la marée, créant une scène inoubliable pour quiconque la verrait pour la première fois, ce voyage dans la Mer des Esprits Démoniaques de l'Est atteindrait un nouveau sommet. Après cela, viendrait le temps de l'épreuve cruelle à l'intérieur!
+Lorsque la porte s'ouvrirait pour laisser passer la marée, créant une scène inoubliable pour quiconque la verrait pour la première fois, ce voyage dans la Mer Yao Ling atteindrait un nouveau sommet. Après cela, viendrait le temps de l'épreuve cruelle à l'intérieur!
 
 L'expression de Tian Yunzi restait neutre tandis qu'il se tenait là, accueilli par de nombreux cultivateurs. En parlant, ses yeux scrutaient parfois l'horizon comme s'il cherchait quelque chose.
 
@@ -60,11 +60,11 @@ Les neuf disciples derrière lui avaient chacun leurs propres amis et discutaien
 
 « Pourquoi n'est-il pas là... » Chen Tao fronça légèrement les sourcils.
 
-Le dernier jour avant l'ouverture de la Mer des Esprits Démoniaques de l'Est passa lentement.
+Le dernier jour avant l'ouverture de la Mer Yao Ling passa lentement.
 
-Aujourd'hui était le jour du grand événement, aujourd'hui était le jour où la Mer des Esprits Démoniaques de l'Est allait s'ouvrir!
+Aujourd'hui était le jour du grand événement, aujourd'hui était le jour où la Mer Yao Ling allait s'ouvrir!
 
-La mer d'amas flottants appelée la Mer des Esprits Démoniaques de l'Est commença à changer. La vitesse à laquelle tous ces éléments se déplaçaient dans l'espace devint notablement plus rapide.
+La mer d'amas flottants appelée la Mer Yao Ling commença à changer. La vitesse à laquelle tous ces éléments se déplaçaient dans l'espace devint notablement plus rapide.
 
 Ce changement attira l'attention de tous les cultivateurs environnants.
 
@@ -76,7 +76,7 @@ Plusieurs rayons de lumière arrivèrent de loin. Leur arrivée n'attira pas l'a
 
 Alors que Tian Yunzi regardait nonchalamment la silhouette pourpre, il laissa échapper un léger sourire sans dire un mot.
 
-Lorsque Wang Lin aperçut le groupe de Tian Yunzi au loin, il joignit les mains et dit: « Frère Sun, je dois aller rejoindre mon maître, nous nous séparons donc ici. Si le destin le veut, nous nous reverrons à l'intérieur de la Mer des Esprits Démoniaques de l'Est! »
+Lorsque Wang Lin aperçut le groupe de Tian Yunzi au loin, il joignit les mains et dit: « Frère Sun, je dois aller rejoindre mon maître, nous nous séparons donc ici. Si le destin le veut, nous nous reverrons à l'intérieur de la Mer Yao Ling! »
 
 Le visage de Sun Yunshan était couvert de poussière; ils avaient manifestement dû foncer à toute allure pour arriver à temps. Il sourit doucement et dit: « Une fois entrés, je compterai sur le frère Wang pour veiller sur moi! »
 
@@ -86,11 +86,11 @@ Wang Lin se déplaça comme l'éclair vers Tian Yunzi et, avant même qu'il ne s
 
 Son mouvement attira immédiatement l'attention de certains cultivateurs. En voyant sa robe pourpre et son jeton, des cultivateurs bien informés devinèrent aussitôt son identité.
 
-« Le septième disciple de la Division Pourpre de la Secte du Destin Céleste, Wang Lin! »
+« Le septième disciple de la Division Pourpre de la Secte Tian Yun, Wang Lin! »
 
 Yao Xixue, assise sur un jade rouge sang, ouvrit les yeux pour regarder Wang Lin. Après quelques instants, elle détourna le regard.
 
-Yao Xixue pensa secrètement: « Je ne sais pas pourquoi mon père m'a demandé de porter une attention particulière au nouveau disciple de la Secte du Destin Céleste. Sa culture est normale et il ne semble rien avoir d'exceptionnel... Cependant, être choisi par Tian Yunzi pour venir ici juste après avoir rejoint la Secte est en effet stupéfiant. »
+Yao Xixue pensa secrètement: « Je ne sais pas pourquoi mon père m'a demandé de porter une attention particulière au nouveau disciple de la Secte Tian Yun. Sa culture est normale et il ne semble rien avoir d'exceptionnel... Cependant, être choisi par Tian Yunzi pour venir ici juste après avoir rejoint la Secte est en effet stupéfiant. »
 
 Wang Lin vola droit devant lui et arriva devant Tian Yunzi peu de temps après. Il dit respectueusement: « Le disciple Wang Lin salue le Maître! »
 

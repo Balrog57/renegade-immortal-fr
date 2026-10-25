@@ -8,15 +8,15 @@ slug: le-monde-des-grottes
 ---
 Wang Lin retrouva tous ses vieux amis, à l'exception de Li Qianmei et de Qing Shui. Il leur rendit soit leurs souvenirs, soit les laissa partir en silence et choisir l'oubli. Wang Lin n'avait plus rien qui le liait désormais au Continent Astral Immortel.
 
-Avant de se rendre sur le Continent du Taureau Céleste, il alla voir Zhou Yi et Qing Shuang une dernière fois. De loin, il aperçut le sourire radieux de Zhou Yi. Wang Lin sourit à son tour; il se sentait heureux pour elle.
+Avant de se rendre sur le Continent Tian Niu, il alla voir Zhou Yi et Qing Shuang une dernière fois. De loin, il aperçut le sourire radieux de Zhou Yi. Wang Lin sourit à son tour; il se sentait heureux pour elle.
 
 Ces milliers d'années d'amour amer touchaient enfin à leur fin. En voyant cela, Wang Lin sortit une cruche de vin et en but une longue gorgée. C'était un vin qu'il avait obtenu auprès de Situ Nan, un substitut au vin de mariage de Zhou Yi et Qing Shuang.
 
 Il se rendit également dans la cité ancestrale, où il vit Hai Zi. Cependant, il se contenta de l'observer de loin avant de repartir.
 
-Le Continent du Taureau Céleste, le lieu où il était apparu pour la première fois en sortant du monde des grottes. Après tant d'années, il y était de retour. Il marcha sur ce continent familier, passant devant la Secte de la Grande Âme et la Secte Gui Yi.
+Le Continent Tian Niu, le lieu où il était apparu pour la première fois en sortant du monde des grottes. Après tant d'années, il y était de retour. Il marcha sur ce continent familier, passant devant la Secte Da Hun et la Secte Gui Yi.
 
-Ces paysages familiers éveillèrent ses souvenirs. Au centre du Continent du Taureau Céleste, là où les chaînes de montagnes s'étendaient à l'infini, Wang Lin contempla silencieusement la terre en contrebas.
+Ces paysages familiers éveillèrent ses souvenirs. Au centre du Continent Tian Niu, là où les chaînes de montagnes s'étendaient à l'infini, Wang Lin contempla silencieusement la terre en contrebas.
 
 Fixant l'horizon, Wang Lin dit lentement: « Taureau Céleste, autrefois, ton armure d'âme m'a aidé à surmonter plusieurs crises... Moi, Wang Lin, je distingue toujours clairement bienfaits et rancunes, et je n'oublie jamais ceux qui m'ont aidé. Aujourd'hui, je vais lever le sceau laissé par l'Ancêtre Céleste et te permettre de retrouver ta liberté! »
 
@@ -40,19 +40,19 @@ Un instant plus tard, réduit à la taille d'un ongle, il se transforma en un ra
 
 L'âme du Taureau Céleste poussa un rugissement vers les cieux, puis se transforma en ondulations qui parcoururent l'azur. Son âme s'élança vers le firmament et, lorsqu'elle atteignit les confins du monde, elle fit volte-face. Elle s'inclina une dernière fois devant Wang Lin avant de disparaître comme une étoile filante.
 
-Après le départ de son âme, le Continent du Taureau Céleste sembla différent, bien que ce changement fût difficile à déceler. Wang Lin fixa l'endroit où le Taureau avait disparu, puis se dirigea vers la Secte des Sept Dao.
+Après le départ de son âme, le Continent Tian Niu sembla différent, bien que ce changement fût difficile à déceler. Wang Lin fixa l'endroit où le Taureau avait disparu, puis se dirigea vers la Secte Qi Dao.
 
-La Secte des Sept Dao, le lieu même du monde des grottes.
+La Secte Qi Dao, le lieu même du monde des grottes.
 
 La montagne était enveloppée d'une brume épaisse qui limitait la vue. Le site était totalement désert; personne n'y avait mis les pieds depuis fort longtemps. Pourtant, une silhouette se tenait au pied de la montagne, le regard tourné vers les hauteurs.
 
 C'était un homme d'âge mûr vêtu de bleu. Il fixait la brume où l'on devinait vaguement les ruines cachées derrière elle.
 
-L'homme afficha une expression complexe et murmura pour lui-même: « Secte des Sept Dao... »
+L'homme afficha une expression complexe et murmura pour lui-même: « Secte Qi Dao... »
 
 « Je suis enfin arrivé... » L'homme secoua amèrement la tête et entreprit de gravir le chemin défoncé. Il marchait avec une lenteur extrême, comme s'il voulait imprégner sa mémoire de chaque brin d'herbe, de chaque arbre.
 
-Lorsqu'il traversa la brume pour atteindre le sommet, il découvrit le portail et les grands halls de la Secte des Sept Dao. Ses yeux étaient emplis de confusion.
+Lorsqu'il traversa la brume pour atteindre le sommet, il découvrit le portail et les grands halls de la Secte Qi Dao. Ses yeux étaient emplis de confusion.
 
 Il contempla les lieux pendant un long moment avant de laisser échapper un soupir. Il erra à travers les ruines de la secte jusqu'à atteindre l'immense porte de pierre située dans la montagne arrière. La porte, intégrée à la roche, était totalement scellée. De la mousse y poussait, exhalant une odeur de décomposition.
 
@@ -62,7 +62,7 @@ Lorsqu'il les rouvrit, il fixa l'entrée et murmura amèrement: « La porte du m
 
 « Derrière cette porte se trouve le monde des grottes... C'est là que je suis réincarné. » L'homme soupira. Après avoir recouvré les souvenirs de sa vie antérieure, il avait quitté sa secte pour suivre une intuition qui l'avait mené jusqu'ici.
 
-Il était arrivé à la Secte des Sept Dao, devant le passage vers le monde des grottes.
+Il était arrivé à la Secte Qi Dao, devant le passage vers le monde des grottes.
 
 Son corps trembla légèrement alors qu'il s'approchait et effleurait la pierre. Après un long silence, son regard se fit déterminé et il se détourna pour partir.
 
@@ -86,7 +86,7 @@ Lorsque Wang Lin aborda la question de Hongdie, Qing Shui fut saisi de stupeur. 
 
 Même Wang Lin ne pouvait ressusciter quelqu'un mort depuis si longtemps et dont l'âme n'existait plus. Pourtant, il ne dit rien à Qing Shui. Car s'il ne restait même pas une once d'espoir, alors seul le désespoir subsisterait.
 
-Lorsque les premiers rayons du soleil perçèrent la brume, Qing Shui partit. Puisqu'il avait choisi de ne point oublier, il ne souhaitait naturellement pas retourner dans le monde des grottes. Il voulait simplement venir contempler la Secte des Sept Dao, là où résidait ce monde.
+Lorsque les premiers rayons du soleil perçèrent la brume, Qing Shui partit. Puisqu'il avait choisi de ne point oublier, il ne souhaitait naturellement pas retourner dans le monde des grottes. Il voulait simplement venir contempler la Secte Qi Dao, là où résidait ce monde.
 
 Ayant accompli son vœu et retrouvé Wang Lin, il était transporté par la joie. Désormais, il allait poursuivre son rêve. Même si cela lui prenait une vie entière, même s'il devait traverser de nombreux cycles de réincarnation, il persévérerait.
 
@@ -100,7 +100,7 @@ Wang Lin ouvrit la porte du monde des grottes. À l'ouverture, une lumière puis
 
 La porte se referma une fois de plus.
 
-La Secte des Sept Dao resta enveloppée de brume, ruine délaissée que plus personne ne regardait.
+La Secte Qi Dao resta enveloppée de brume, ruine délaissée que plus personne ne regardait.
 
 ***
 

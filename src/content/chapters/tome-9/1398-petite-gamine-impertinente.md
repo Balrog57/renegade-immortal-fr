@@ -14,11 +14,11 @@ Toute la zone fut plongée dans un silence de mort. Les centaines de clans et le
 
 Le Jeune Empereur était bien réel! Cette nouvelle avait été annoncée par le Grand Empereur il y a quelques mois, mais sans préciser de qui il s'agissait, et personne ne l'avait encore aperçu. C'était la première fois que ces cultivateurs voyaient le Jeune Empereur en personne.
 
-« Le... Jeune Empereur?!! » L'homme d'âge moyen du Clan du Serpent de l'Âme pâlit, les yeux emplis de terreur. Son cœur battait à tout rompre, sa bouche devint sèche et une sueur froide perla sur son front. Il fixait Wang Lin, totalement abasourdi.
+« Le... Jeune Empereur?!! » L'homme d'âge moyen du Clan Hun She pâlit, les yeux emplis de terreur. Son cœur battait à tout rompre, sa bouche devint sèche et une sueur froide perla sur son front. Il fixait Wang Lin, totalement abasourdi.
 
 Il y avait aussi le 13e Ancien Déchu. Son expression changea radicalement et il recula inconsciemment de quelques pas. Son esprit tremblait et ses yeux étaient pétris de peur. Il n'aurait jamais imaginé que ses soupçons soient fondés!
 
-« Dès que j'ai vu le Clan du Dragon Blindé, j'aurais dû m'en douter. Le neuvième Ancien Déchu a été dépouillé de son titre pour avoir offensé cette personne!! Je... J'ai osé m'en servir pour asseoir mon autorité... »
+« Dès que j'ai vu le Clan Long Jia, j'aurais dû m'en douter. Le neuvième Ancien Déchu a été dépouillé de son titre pour avoir offensé cette personne!! Je... J'ai osé m'en servir pour asseoir mon autorité... »
 
 Le Patriarche des Cours d'Eau tremblait, léchant ses lèvres desséchées. Une panique sourde envahissait son cœur.
 
@@ -34,7 +34,7 @@ Le messager commença à expliquer respectueusement: « J'ai fait attendre le Je
 
 « Héhé, le 13e Ancien Déchu est vraiment aveugle d'avoir provoqué le Jeune Empereur. Je veux voir comment il compte s'en sortir! »
 
-« Il y a aussi l'Ancien en chef du Clan du Serpent de l'Âme. Je crains qu'il ne subisse également les conséquences. »
+« Il y a aussi l'Ancien en chef du Clan Hun She. Je crains qu'il ne subisse également les conséquences. »
 
 Les paroles du messager avaient déclenché une onde de choc dans le cœur des cultivateurs alentour. Wang Lin hocha calmement la tête vers l'assemblée.
 
@@ -46,31 +46,31 @@ En voyant cela, le 13e Ancien Déchu se détendit. Il sentit que Wang Lin n'éta
 
 « Cet homme est bienveillant. Bien qu'il soit le Jeune Empereur, c'est un homme facile à intimider... » Mais alors qu'il pensait avoir de la chance, ses pupilles se contractèrent.
 
-Alors que Wang Lin faisait quelques pas, il se retourna soudainement pour fixer l'homme d'âge moyen du Clan du Serpent de l'Âme.
+Alors que Wang Lin faisait quelques pas, il se retourna soudainement pour fixer l'homme d'âge moyen du Clan Hun She.
 
 Le regard de Wang Lin était glacial. Dès qu'il se posa sur l'homme, celui-ci trembla et une nouvelle sueur froide envahit son visage. Il eut l'impression que le regard de Wang Lin pouvait percer son esprit et le transpercer de froid.
 
-Le messager à ses côtés s'arrêta également, affichant un air dubitatif. Il tourna aussi son regard vers l'homme du Clan du Serpent de l'Âme, et son expression devint sombre.
+Le messager à ses côtés s'arrêta également, affichant un air dubitatif. Il tourna aussi son regard vers l'homme du Clan Hun She, et son expression devint sombre.
 
 « Capturez-le! » ordonna froidement le messager. En un instant, les hommes autour de lui se précipitèrent sur l'homme d'âge moyen.
 
-Le membre du Clan du Serpent de l'Âme afficha un regard de désespoir. Derrière lui, les membres de son clan virent leurs visages se décomposer sous l'effet de la peur.
+Le membre du Clan Hun She afficha un regard de désespoir. Derrière lui, les membres de son clan virent leurs visages se décomposer sous l'effet de la peur.
 
-« Son péché ne mérite pas la mort, mais le Clan du Serpent de l'Âme est privé de son droit de participer à la Sélection des Anciens Délaissés! » La voix de Wang Lin était basse, mais elle résonna distinctement aux oreilles de tous les cultivateurs.
+« Son péché ne mérite pas la mort, mais le Clan Hun She est privé de son droit de participer à la Sélection des Anciens Délaissés! » La voix de Wang Lin était basse, mais elle résonna distinctement aux oreilles de tous les cultivateurs.
 
 Ceux qui chargeaient l'homme s'arrêtèrent net et reculèrent derrière Wang Lin sans aucune hésitation.
 
-L'homme du Clan du Serpent de l'Âme pâlit davantage en entendant ces paroles; un désespoir encore plus profond envahit ses yeux. Ces mots étaient bien pires que la mort. Certes, sa mort n'aurait coûté qu'une vie, mais bien qu'il soit sauvé, il venait de devenir le paria de tout son clan. L'homme joignit les mains et sourit amèrement: « Merci, Jeune Empereur, pour votre clémence. »
+L'homme du Clan Hun She pâlit davantage en entendant ces paroles; un désespoir encore plus profond envahit ses yeux. Ces mots étaient bien pires que la mort. Certes, sa mort n'aurait coûté qu'une vie, mais bien qu'il soit sauvé, il venait de devenir le paria de tout son clan. L'homme joignit les mains et sourit amèrement: « Merci, Jeune Empereur, pour votre clémence. »
 
 L'attention de Wang Lin se détourna de lui pour se poser sur le Patriarche des Cours d'Eau, le 13e Ancien Déchu.
 
 Le cœur de ce dernier rata un battement et son visage devint livide.
 
-Wang Lin pointa le 13e Ancien Déchu du doigt et dit lentement au messager: « Déchoyez-le de son rang d'Ancien Déchu, et forcez-le à s'agenouiller sur la planète du Clan du Scorpion Noir pendant cent ans! »
+Wang Lin pointa le 13e Ancien Déchu du doigt et dit lentement au messager: « Déchoyez-le de son rang d'Ancien Déchu, et forcez-le à s'agenouiller sur la planète du Clan An Xie pendant cent ans! »
 
 Le messager hésita un instant, mais face à la froideur qui brillait dans les yeux de Wang Lin, il acquiesça.
 
-« Le Clan des Cours d'Eau perd également sa place dans la Sélection des Anciens Délaissés! » Après avoir parlé, Wang Lin tourna son regard vers le Patriarche de l'Évasion Nuageuse, non loin de là, et ajouta: « Brisez-vous un bras, et que cela ne se reproduise plus! »
+« Le Clan Chuan He perd également sa place dans la Sélection des Anciens Délaissés! » Après avoir parlé, Wang Lin tourna son regard vers le Patriarche de l'Évasion Nuageuse, non loin de là, et ajouta: « Brisez-vous un bras, et que cela ne se reproduise plus! »
 
 Le Patriarche de l'Évasion Nuageuse sentit la sueur perler sur son front. Il savait que Wang Lin était puissant; il avait délibérément poussé le 13e Ancien Déchu à provoquer ce dernier, sans s'attendre à ce que Wang Lin remarque son manège.
 

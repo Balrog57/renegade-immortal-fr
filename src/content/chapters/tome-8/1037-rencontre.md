@@ -22,7 +22,7 @@ L'âme de Xue Zu brilla d'un éclat rouge avant de reprendre progressivement une
 
 La voix calme de Wang Lin laissait transparaître une pointe de froideur. Il fit un revers de manches et s'éloigna vers l'horizon.
 
-« Xue Zu, vous n'avez pas besoin de retourner à la 14e couche. Je vous ai libéré pour que vous puissiez accompagner votre fille. Ceci est la Grotte de l'Empereur Céleste dans la Terre des Esprits Démoniaques. Vous pouvez trouver un endroit où vous cacher tous les deux jusqu'à ce que l'intégralité de la grotte soit ouverte, puis quitter les lieux. »
+« Xue Zu, vous n'avez pas besoin de retourner à la 14e couche. Je vous ai libéré pour que vous puissiez accompagner votre fille. Ceci est la Grotte Xian Di dans la Terre Yao Ling. Vous pouvez trouver un endroit où vous cacher tous les deux jusqu'à ce que l'intégralité de la grotte soit ouverte, puis quitter les lieux. »
 
 Le regard de Yao Xixue se posa sur le dos de Wang Lin, habitée par la confusion. Elle ne parvenait pas à réfléchir, mais elle ne voulait pas non plus essayer. Une voix résonnait dans son esprit, lui murmurant que son passé était clos, comme le vent d'hier et la poussière d'aujourd'hui: quand le vent passe, la poussière retourne à la poussière, et la terre à la terre...
 
@@ -60,17 +60,17 @@ Yao Xixue et Xue Zu avaient disparu derrière une restriction pour attendre le j
 
 Les ruines causées par l'explosion du Bassin Funéraire Céleste étaient toujours là. Non loin de là se trouvait la fosse profonde qui abritait le bassin. Des effluves glacés s'en échappaient.
 
-Après avoir observé les lieux, le regard de Wang Lin se porta vers l'avant. Il ne se trouvait que dans la partie extérieure de la Grotte de l'Empereur Céleste et n'approchait même pas de la zone intérieure. De là, il pouvait apercevoir une multitude de pavillons et de bâtiments au loin.
+Après avoir observé les lieux, le regard de Wang Lin se porta vers l'avant. Il ne se trouvait que dans la partie extérieure de la Grotte Xian Di et n'approchait même pas de la zone intérieure. De là, il pouvait apercevoir une multitude de pavillons et de bâtiments au loin.
 
 Ces édifices formaient un agencement irrégulier. À l'extrémité de sa vue, il distinguait un palais niché au cœur de ces structures, enveloppé d'un voile de brume noire et dense. Le palais était à peine visible.
 
 En pleine réflexion, les yeux de Wang Lin s'illuminèrent et il frappa son sac de rangement. Un jade apparut dans sa main; c'était un jade céleste qui diffusait une douce lueur.
 
-Wang Lin l'avait obtenu dans la Terre des Esprits Démoniaques. Il contenait le sortilège d'arrêt ainsi que la méthode pour raffiner les gardiens célestes. Wang Lin se souvenait qu'en l'examinant, il y avait également une carte à l'intérieur.
+Wang Lin l'avait obtenu dans la Terre Yao Ling. Il contenait le sortilège d'arrêt ainsi que la méthode pour raffiner les gardiens célestes. Wang Lin se souvenait qu'en l'examinant, il y avait également une carte à l'intérieur.
 
 Cependant, comme cette carte lui avait semblé peu familière à l'époque, il n'y avait pas prêté attention. Mais en regardant la grotte maintenant, il éprouvait un vague sentiment de familiarité.
 
-Il se remémora alors la carte contenue dans le jade. Lorsqu'il sortit l'objet, il y projeta son Sens Divin et son expression changea: le lieu représenté sur la carte était précisément cette Grotte de l'Empereur Céleste.
+Il se remémora alors la carte contenue dans le jade. Lorsqu'il sortit l'objet, il y projeta son Sens Divin et son expression changea: le lieu représenté sur la carte était précisément cette Grotte Xian Di.
 
 Wang Lin examina la carte avec soin et en mémorisa chaque détail. Après réflexion, il ne bougea pas précipitamment. Au lieu de cela, il se retira près de la fosse laissée par le Bassin Funéraire Céleste et regarda vers le fond.
 
@@ -88,7 +88,7 @@ Wang Lin examina le cadavre féminin argenté pendant qu'il restait assis là. I
 
 Il déploya son Sens Divin et constata que le sceau de contrôle originel à l'intérieur de son corps était intact. Toutes les autres restrictions cachées qu'il avait placées étaient également présentes. Ce ne fut qu'à ce moment qu'il se détendit et ferma les yeux pour cultiver.
 
-« Maintenant que ma culture montre des signes de percée, je dois saisir cette chance et élever ma culture d'un seul élan. Ainsi, dans cette dangereuse Grotte de l'Empereur Céleste, j'aurai de meilleures chances de survie. »
+« Maintenant que ma culture montre des signes de percée, je dois saisir cette chance et élever ma culture d'un seul élan. Ainsi, dans cette dangereuse Grotte Xian Di, j'aurai de meilleures chances de survie. »
 
 Lorsqu'il ferma les yeux, l'énergie originelle en lui commença soudainement à circuler dans tout son corps. Une trace de chaleur ardente émana de lui, mais elle resta confinée à dix pieds de lui sans se propager.
 
@@ -102,7 +102,7 @@ Le quatrième jour, Wang Lin ouvrit les yeux. Après un instant de réflexion, i
 
 « Il n'y a pas assez d'énergie originelle ici, c'est donc mon seul moyen de réaliser cette percée! »
 
-Alors que le niveau de culture de Wang Lin progressait depuis le stade intermédiaire du Scruteur du Nirvana, une scène terrifiante se produisit loin de la Grotte de l'Empereur Céleste. Chaque cultivateur de l'Alliance qui fut témoin de cela fut frappé de stupeur.
+Alors que le niveau de culture de Wang Lin progressait depuis le stade intermédiaire du Scruteur du Nirvana, une scène terrifiante se produisit loin de la Grotte Xian Di. Chaque cultivateur de l'Alliance qui fut témoin de cela fut frappé de stupeur.
 
 Des flammes rouges surgissaient de l'horizon lointain, comme si elles venaient consumer toute chose pour les réduire au néant.
 

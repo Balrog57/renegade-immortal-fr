@@ -32,7 +32,7 @@ Il semblait y avoir des ondulations dans l'air derrière Wang Lin, mais elles di
 
 « Vous... Vous... » Du Qing recula inconsciemment de quelques pas. L'apparition de Wang Lin avait été trop soudaine; il ne l'avait absolument pas remarqué. Si Wang Lin avait attaqué, il aurait été gravement blessé.
 
-Une sensation de froid sembla émaner du corps de Wang Lin. Cette aura glaciale se dissipa lorsque l'aura de la Secte du Dragon Bleu enveloppa Wang Lin, mais Du Qing eut tout de même l'impression qu'une rafale de vent glacial lui avait soufflé au visage.
+Une sensation de froid sembla émaner du corps de Wang Lin. Cette aura glaciale se dissipa lorsque l'aura de la Secte Cang Long enveloppa Wang Lin, mais Du Qing eut tout de même l'impression qu'une rafale de vent glacial lui avait soufflé au visage.
 
 Le choc et l'horreur dans ses yeux se muèrent en une peur profonde. À cet instant, Wang Lin devint infiniment plus mystérieux et terrifiant aux yeux de Du Qing.
 
@@ -76,13 +76,13 @@ Au moment où son sens divin fusionna avec le monde, son corps disparut pour se 
 
 D'une simple pensée, il apparut sur la Montagne Céleste de ce continent et vit la neige verte tomber. La première fois qu'il avait utilisé la Déformation Spatiale ici, il l'avait fait sans direction précise, en faisant simplement quelques pas au hasard pour se familiariser avec la technique.
 
-Mais lorsqu'il retourna à la Secte du Dragon Bleu, l'image de la secte apparut clairement dans son esprit. Il se matérialisa dans les montagnes arrières de la Secte du Dragon Bleu, juste derrière Du Qing.
+Mais lorsqu'il retourna à la Secte Cang Long, l'image de la secte apparut clairement dans son esprit. Il se matérialisa dans les montagnes arrières de la Secte Cang Long, juste derrière Du Qing.
 
 Il ne lui fallut que la moitié du temps de brûler un bâton d'encens pour faire ce voyage aller-retour. Sans la neige verte déposée sur ses pieds, même Du Qing n'aurait pas su où Wang Lin était allé.
 
 « L'avatar n'a grandi que quelques jours et il apporte déjà un tel renforcement... Avec plus de temps, mon avatar deviendra le corps le plus puissant! » Wang Lin l'avait compris depuis longtemps.
 
-« Il est temps d'aller à la Secte de la Grande Âme pour absorber la veine principale de feu terrestre. Avant cela, je dois absorber le reste des veines secondaires pour voir quelle part du corps véritable d'essence de feu je peux former. » Wang Lin savait que plus l'objectif était ambitieux, plus la tâche serait ardue.
+« Il est temps d'aller à la Secte Da Hun pour absorber la veine principale de feu terrestre. Avant cela, je dois absorber le reste des veines secondaires pour voir quelle part du corps véritable d'essence de feu je peux former. » Wang Lin savait que plus l'objectif était ambitieux, plus la tâche serait ardue.
 
 Pour former la tête, l'essence de feu ne suffisait pas. Ce dont il avait le plus besoin était la volonté du feu.
 
@@ -102,7 +102,7 @@ Le septième jour suivant le départ de Wang Lin, les veines enfantines de feu t
 
 Comme ce phénomène se produisit en de nombreux endroits du continent, il attira l'attention des diverses sectes. Elles envoyèrent de nombreux disciples, et parfois même des Anciens pour inspecter les lieux, mais ils ne trouvèrent aucune trace. Lorsqu'ils arrivaient, ils ne voyaient plus que des ruines.
 
-Une demi-lune plus tard, à la montagne entourée d'un brouillard noir où se trouvait autrefois la Secte des Sept Dao, Wang Lin sortit de la montagne, l'air pensif.
+Une demi-lune plus tard, à la montagne entourée d'un brouillard noir où se trouvait autrefois la Secte Qi Dao, Wang Lin sortit de la montagne, l'air pensif.
 
 Il devait venir ici. Ici, il pouvait ressentir l'aura du monde des grottes et les années d'attente de Xuan Luo.
 
@@ -110,8 +110,8 @@ Wang Lin émergea du brouillard noir et jeta un regard vers la montagne voilée 
 
 « Situ, Qing Shui, Li Qianmei, et tous ceux qui se sont réincarnés... Où êtes-vous tous maintenant...? » Wang Lin tourna le dos pour partir, son allure dégageant une profonde solitude.
 
-Un jour plus tard, à l'extrême ouest du continent du Taureau Céleste, sur la Montagne Céleste, dans la zone couverte par la Secte de la Grande Âme, un jeune homme vêtu de blanc aux cheveux blancs se tenait au sommet de la montagne alors que la neige verte tombait. Il pouvait voir l'autre versant de la montagne à travers les flocons.
+Un jour plus tard, à l'extrême ouest du continent du Taureau Céleste, sur la Montagne Céleste, dans la zone couverte par la Secte Da Hun, un jeune homme vêtu de blanc aux cheveux blancs se tenait au sommet de la montagne alors que la neige verte tombait. Il pouvait voir l'autre versant de la montagne à travers les flocons.
 
 Depuis cet endroit, le jeune homme pouvait vaguement apercevoir l'immensité de la chaîne de montagnes, et au sein de celle-ci, une montagne rouge perçait les nuages au loin.
 
-« Secte de la Grande Âme... » murmura le jeune homme aux cheveux blancs, les yeux brillant d'une lueur intense.
+« Secte Da Hun... » murmura le jeune homme aux cheveux blancs, les yeux brillant d'une lueur intense.

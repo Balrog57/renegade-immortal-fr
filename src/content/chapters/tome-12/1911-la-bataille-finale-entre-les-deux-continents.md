@@ -7,29 +7,29 @@ en: Chapter 1911 - The Final Battle Between Two Continents
 slug: la-bataille-finale-entre-les-deux-continents
 ---
 
-Alors que Wang Lin déchirait la protection de la Secte du Dao Démoniaque et levait sa Lame Yin, la guerre sur le Continent du Taureau Céleste atteignait son paroxysme.
+Alors que Wang Lin déchirait la protection de la Secte Dao Mo et levait sa Lame Yin, la guerre sur le Continent Tian Niu atteignait son paroxysme.
 
-Le conflit, qui durait depuis plus de cent ans, ne cessait de s'étendre avec le temps. Des dizaines de millions de kilomètres de territoire étaient engloutis par les combats, et cette guerre affectait la majeure partie du Continent du Taureau Céleste.
+Le conflit, qui durait depuis plus de cent ans, ne cessait de s'étendre avec le temps. Des dizaines de millions de kilomètres de territoire étaient engloutis par les combats, et cette guerre affectait la majeure partie du Continent Tian Niu.
 
-D'innombrables cultivateurs du Continent du Démon Vert avaient traversé la Mer des Pilules Vides pour pénétrer sur le continent, portés par la puissance des trois sectes du Démon Vert et menés par des cultivateurs de la troisième étape et même des Exaltés. Les multiples couches de protection du Continent du Taureau Céleste s'étaient effondrées, leur permettant de s'enfoncer jusqu'au cœur du territoire.
+D'innombrables cultivateurs du Continent Lu Mo avaient traversé la Mer Dan pour pénétrer sur le continent, portés par la puissance des trois sectes du Démon Vert et menés par des cultivateurs de la troisième étape et même des Exaltés. Les multiples couches de protection du Continent Tian Niu s'étaient effondrées, leur permettant de s'enfoncer jusqu'au cœur du territoire.
 
-Les cultivateurs du Continent du Démon Vert avaient formé deux armées pour encercler la Secte Gui Yi et la Secte de la Grande Âme afin de livrer cette bataille ultime!
+Les cultivateurs du Continent Lu Mo avaient formé deux armées pour encercler la Secte Gui Yi et la Secte Da Hun afin de livrer cette bataille ultime!
 
-Deux des trois ancêtres Exaltés Dorés du Continent du Démon Vert étaient rassemblés aux abords de la Secte de la Grande Âme. Quant à la Secte Gui Yi, de nombreux Exaltés menaient les cultivateurs du Continent du Démon Vert dans un véritable massacre.
+Deux des trois ancêtres Exaltés Dorés du Continent Lu Mo étaient rassemblés aux abords de la Secte Da Hun. Quant à la Secte Gui Yi, de nombreux Exaltés menaient les cultivateurs du Continent Lu Mo dans un véritable massacre.
 
 Bien que cette bataille ne durât que cent ans, son intensité était sans précédent. D'innombrables cultivateurs des deux continents avaient péri! Des cultivateurs de la troisième étape étaient tombés, des Exaltés s'étaient écroulés, et bien trop de cultivateurs ordinaires avaient trouvé la mort.
 
 Cependant, au cours de cette guerre entre les deux continents, certains individus anonymes brillèrent comme des étoiles, devenant célèbres sur les deux terres, tandis que ceux qui l'étaient déjà gagnaient encore en puissance.
 
-Du côté du Continent du Taureau Céleste, Yun Yifeng était l'un de ces hommes! Il avait tué de nombreux cultivateurs du Continent du Démon Vert et avait atteint un haut niveau de culture grâce à son art des Huit Lames Coupent l'Âme, ce qui lui avait valu une immense renommée. Il y a plusieurs mois, il avait quitté le Temple du Scorpion et, grâce à une technique secrète, était revenu sur le Continent du Taureau Céleste afin de participer à cette bataille finale!
+Du côté du Continent Tian Niu, Yun Yifeng était l'un de ces hommes! Il avait tué de nombreux cultivateurs du Continent Lu Mo et avait atteint un haut niveau de culture grâce à son art des Huit Lames Coupent l'Âme, ce qui lui avait valu une immense renommée. Il y a plusieurs mois, il avait quitté le Temple Lü Mo Xie et, grâce à une technique secrète, était revenu sur le Continent Tian Niu afin de participer à cette bataille finale!
 
-Outre lui, Tang Jia et Bian Yun s'étaient également illustrés grâce à l'armure d'âme du Taureau Céleste! Plusieurs membres de la Secte de la Grande Âme s'étaient aussi distingués, devenant, après les ancêtres, les lumières les plus éclatantes.
+Outre lui, Tang Jia et Bian Yun s'étaient également illustrés grâce à l'armure d'âme du Taureau Céleste! Plusieurs membres de la Secte Da Hun s'étaient aussi distingués, devenant, après les ancêtres, les lumières les plus éclatantes.
 
-Le Continent du Démon Vert comptait également des cultivateurs de cette trempe, tel que Yun Kong, que Wang Lin avait tué à deux reprises. Son corps originel se trouvait toujours sur le Continent du Taureau Céleste, car Wang Lin n'avait tué que ses avatars. La culture à l'épée de Yun Kong était extraordinaire et avait captivé l'attention de tous. Sous les ordres de Yun Kong se trouvaient plusieurs autres individus; avec les talents émergents du Continent du Taureau Céleste, ces moins de vingt personnes étaient désormais les chefs de cette guerre!
+Le Continent Lu Mo comptait également des cultivateurs de cette trempe, tel que Yun Kong, que Wang Lin avait tué à deux reprises. Son corps originel se trouvait toujours sur le Continent Tian Niu, car Wang Lin n'avait tué que ses avatars. La culture à l'épée de Yun Kong était extraordinaire et avait captivé l'attention de tous. Sous les ordres de Yun Kong se trouvaient plusieurs autres individus; avec les talents émergents du Continent Tian Niu, ces moins de vingt personnes étaient désormais les chefs de cette guerre!
 
-C'était comme si le but de ce combat était de magnifier la gloire de ces moins de vingt guerriers! La guerre se poursuivait entre la Secte de la Grande Âme et la Secte Gui Yi. Les seize cultivateurs des deux camps déployaient toute leur puissance, comme si le champ de bataille n'était qu'une scène destinée à leurs performances!
+C'était comme si le but de ce combat était de magnifier la gloire de ces moins de vingt guerriers! La guerre se poursuivait entre la Secte Da Hun et la Secte Gui Yi. Les seize cultivateurs des deux camps déployaient toute leur puissance, comme si le champ de bataille n'était qu'une scène destinée à leurs performances!
 
-Wang Lin était toujours à l'intérieur de la Secte du Dao Démoniaque! Il ne souhaitait pas se montrer, il ne voulait que sa vengeance, mais ce faisant, il révélait sa propre lumière. Quiconque prêtait attention à la guerre entre les deux continents ne pourrait certainement pas ignorer Wang Lin! Ce que faisait Wang Lin n'avait aucune comparaison avec ces seize génies; il les surpassait totalement!
+Wang Lin était toujours à l'intérieur de la Secte Dao Mo! Il ne souhaitait pas se montrer, il ne voulait que sa vengeance, mais ce faisant, il révélait sa propre lumière. Quiconque prêtait attention à la guerre entre les deux continents ne pourrait certainement pas ignorer Wang Lin! Ce que faisait Wang Lin n'avait aucune comparaison avec ces seize génies; il les surpassait totalement!
 
 Il s'élança dans les airs et leva la Lame Yin qu'il tenait en main. Derrière lui, son corps véritable des cinq éléments ainsi que son corps véritable de l'essence du tonnerre levèrent également leurs Lames Yin pour frapper l'homme en robe dorée et l'homme en robe rouge qui convergeaient vers eux!
 
@@ -53,16 +53,16 @@ La peur et l'horreur dans ses yeux furent balayées par une Lame Yin tonitruante
 
 Un Exalté de la Tribulation du Vide venait de périr ainsi!
 
-Tout cela se produisit avec une rapidité telle que les trente mille membres de la Secte du Dao Démoniaque ne purent réagir. L'Ancien qu'ils respectaient, doté d'un pouvoir capable de percer les cieux, avait eu la tête tranchée et son cadavre, dans une brume de sang, chutait vers le sol!
+Tout cela se produisit avec une rapidité telle que les trente mille membres de la Secte Dao Mo ne purent réagir. L'Ancien qu'ils respectaient, doté d'un pouvoir capable de percer les cieux, avait eu la tête tranchée et son cadavre, dans une brume de sang, chutait vers le sol!
 
-À l'instant même où le vieil homme mourut, l'homme en robe rouge s'élança. Son visage était livide et ses pupilles se rétractèrent. Terrifié, il prit la fuite frénétiquement sans la moindre hésitation. À cet instant, il n'avait plus cure de la Secte du Dao Démoniaque; rien n'était plus important que sa propre vie!
+À l'instant même où le vieil homme mourut, l'homme en robe rouge s'élança. Son visage était livide et ses pupilles se rétractèrent. Terrifié, il prit la fuite frénétiquement sans la moindre hésitation. À cet instant, il n'avait plus cure de la Secte Dao Mo; rien n'était plus important que sa propre vie!
 
 Cependant, son désir d'évasion était déjà vain. En vérité, dès l'instant où Wang Lin avait déchiré la formation de brume, la fuite n'était plus une option pour les cultivateurs présents! Wang Lin se retourna et ses yeux jaillirent d'une lumière dorée éblouissante provenant du fragment de l'Épée de l'Ancêtre Céleste. Cette lueur fonça droit sur l'homme en robe rouge qui tentait de s'échapper. Bien que cet homme fût un Exalté de la Tribulation du Vide, il allait être subjugué par le regard de Wang Lin!
 
-Lorsque ce regard balaya l'homme en robe rouge, celui-ci sentit son cœur trembler, comme si une épée lui avait transpercé les yeux pour frapper son esprit. À cet instant, Wang Lin leva la main gauche et fit un geste. Le ciel de la Secte du Dao Démoniaque s'obscurcit tout entier, puis une paume gigantesque apparut dans les cieux et s'abattit vers la terre.
+Lorsque ce regard balaya l'homme en robe rouge, celui-ci sentit son cœur trembler, comme si une épée lui avait transpercé les yeux pour frapper son esprit. À cet instant, Wang Lin leva la main gauche et fit un geste. Le ciel de la Secte Dao Mo s'obscurcit tout entier, puis une paume gigantesque apparut dans les cieux et s'abattit vers la terre.
 
 Cette paume possédait neuf doigts!
 
-Cette vision fit pousser un cri de détresse au vieil homme en robe rouge. Il recula comme un fou, formant des sceaux pour déployer tous ses sorts. Simultanément, les trente mille cultivateurs en contrebas se dispersèrent frénétiquement pour échapper à l'ombre de l'empreinte de la paume. Cependant, cette main géante aux neuf doigts couvrait la majeure partie de la Secte du Dao Démoniaque!
+Cette vision fit pousser un cri de détresse au vieil homme en robe rouge. Il recula comme un fou, formant des sceaux pour déployer tous ses sorts. Simultanément, les trente mille cultivateurs en contrebas se dispersèrent frénétiquement pour échapper à l'ombre de l'empreinte de la paume. Cependant, cette main géante aux neuf doigts couvrait la majeure partie de la Secte Dao Mo!
 
 Il n'y avait pas qu'une seule paume. Après celle-ci, deux autres suivirent: l'une provenant du corps véritable des cinq éléments, et la seconde du corps véritable de l'essence du tonnerre. Trois empreintes de paumes saturées d'une aura destructrice convergèrent vers l'homme en robe rouge! Le corps de ce dernier fut enveloppé par une épaisse brume rouge qui se transforma en deux bras gigantesques s'élevant vers le ciel, comme pour tenter de soutenir la voûte céleste elle-même!

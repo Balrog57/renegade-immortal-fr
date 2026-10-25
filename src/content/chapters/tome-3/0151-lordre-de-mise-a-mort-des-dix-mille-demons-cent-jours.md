@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 151 - Ten Thousand Devil Hundred Day Kill Order
 slug: lordre-de-mise-a-mort-des-dix-mille-demons-cent-jours
 ---
-Wang Lin s'arrêta. Il jeta un coup d'œil au jeton avant que son regard glacial ne se fixe sur Qian Kun. Après avoir aperçu le jeton, Li Muwan resta figée, puis l'examina de plus près, et son expression changea aussitôt. Elle dit à voix basse: « C'est l'ordre de poursuite et de mise à mort de cent jours. Je n'arrive pas à croire que la Mer des Démons possède un tel trésor. Je n'en ai vu que quelques descriptions dans des textes anciens. »
+Wang Lin s'arrêta. Il jeta un coup d'œil au jeton avant que son regard glacial ne se fixe sur Qian Kun. Après avoir aperçu le jeton, Li Muwan resta figée, puis l'examina de plus près, et son expression changea aussitôt. Elle dit à voix basse: « C'est l'ordre de poursuite et de mise à mort de cent jours. Je n'arrive pas à croire que la Mer Xiu Mo possède un tel trésor. Je n'en ai vu que quelques descriptions dans des textes anciens. »
 
 Li Muwan exposa en quelques mots à Wang Lin tout ce qu'elle savait des avantages et des inconvénients de l'ordre de mise à mort. À la fin, son ton s'adoucit, et ses paroles trahissaient une grande méfiance envers le jeton.
 
@@ -28,15 +28,15 @@ Wang Lin leva les yeux vers l'immense caractère « Punir » qui surplombait sa 
 
 Mu Nan et Mu Bei fixèrent avec stupéfaction le gigantesque caractère rouge « Punir » suspendu dans les airs, ressentant une soudaine pulsion de cupidité. Cependant, celle-ci disparut aussitôt qu'ils se tinrent respectueusement sur la montagne Wu Ding, un frisson leur parcourant l'échine.
 
-Wang Lin les dévisagea froidement et demanda: « Le quartier général de la Secte de la Lutte contre le Mal compte-t-il des cultivateurs de l'Âme Naissante? »
+Wang Lin les dévisagea froidement et demanda: « Le quartier général de la Secte Dou Xie compte-t-il des cultivateurs de l'Âme Naissante? »
 
-Mu Nan répondit précipitamment: « Aucun. Pas seulement la Secte de la Lutte contre le Mal, il n'y a aucun cultivateur de l'Âme Naissante dans un rayon d'un million de lieues autour de la ville de Nan Dou. Comment ces seniors pourraient-ils être ici? Ils sont tous dans la mer intérieure. »
+Mu Nan répondit précipitamment: « Aucun. Pas seulement la Secte Dou Xie, il n'y a aucun cultivateur de l'Âme Naissante dans un rayon d'un million de lieues autour de la ville de Nan Dou. Comment ces seniors pourraient-ils être ici? Ils sont tous dans la mer intérieure. »
 
-Wang Lin fixa Mu Nan du regard jusqu'à ce que les jambes de ce dernier se mettent à trembler, avant de demander: « Quel est le niveau de culture du chef de la Secte de la Lutte contre le Mal? »
+Wang Lin fixa Mu Nan du regard jusqu'à ce que les jambes de ce dernier se mettent à trembler, avant de demander: « Quel est le niveau de culture du chef de la Secte Dou Xie? »
 
-Mu Bei fit un pas en avant et dit rapidement: « Senior, le chef de la Secte de la Lutte contre le Mal est au stade intermédiaire de la Formation du Noyau. Cependant, il est au sommet de son niveau et l'on dit qu'il n'est qu'à un pas du stade avancé. »
+Mu Bei fit un pas en avant et dit rapidement: « Senior, le chef de la Secte Dou Xie est au stade intermédiaire de la Formation du Noyau. Cependant, il est au sommet de son niveau et l'on dit qu'il n'est qu'à un pas du stade avancé. »
 
-Wang Lin ricana intérieurement. Une lueur de froideur traversa ses yeux alors qu'il déclarait: « Vous deux, montrez-moi le chemin. Nous allons nous rendre au quartier général de la Secte de la Lutte contre le Mal. »
+Wang Lin ricana intérieurement. Une lueur de froideur traversa ses yeux alors qu'il déclarait: « Vous deux, montrez-moi le chemin. Nous allons nous rendre au quartier général de la Secte Dou Xie. »
 
 Comment Mu Nan et Mu Bei auraient-ils osé refuser? Ils se levèrent et guidèrent respectueusement le chemin. En volant, ils jetèrent des regards vers le caractère rouge au-dessus de Wang Lin, priant pour que cela attire davantage de personnes afin de le tuer.
 
@@ -46,7 +46,7 @@ Le plus frappant était ce caractère « Punir » rouge sang au-dessus de sa tê
 
 Cet homme devait avoir lié ces corps pour servir d'avertissement à tous. Quiconque voyait cela était troublé, mais tous sortaient leurs jades de transmission sonore pour répandre la nouvelle auprès de leurs amis et de leurs sectes.
 
-La nouvelle de la réapparition de l'Ordre de mise à mort des Dix Mille Démons dans la Mer des Démons se propagea rapidement par divers moyens. Cela signifiait que si quelqu'un parvenait à tuer cet homme, il pourrait obtenir au moins la culture complète d'un cultivateur du stade initial de la Formation du Noyau.
+La nouvelle de la réapparition de l'Ordre de mise à mort des Dix Mille Démons dans la Mer Xiu Mo se propagea rapidement par divers moyens. Cela signifiait que si quelqu'un parvenait à tuer cet homme, il pourrait obtenir au moins la culture complète d'un cultivateur du stade initial de la Formation du Noyau.
 
 Une telle opportunité représentait une tentation immense pour les cultivateurs de l'Établissement des Fondations comme pour ceux de la Formation du Noyau. Pour ces derniers surtout, en cas de succès, franchir un stade n'avait rien d'impossible.
 
@@ -56,7 +56,7 @@ Ce que nul ne pouvait deviner, surtout, c'était le niveau de culture que la per
 
 Tandis que Wang Lin volait, un noyau doré de la taille d'un poing occupait désormais la place de l'ébauche de noyau, remplissant son corps d'énergie spirituelle.
 
-Wang Lin estima que sa culture de la Formation du Noyau était plus de cent fois supérieure à celle de l'Établissement des Fondations. Il fixa les profondeurs de la Mer des Démons. Son regard semblait transpercer la mer intérieure pour se poser sur Zhao, de l'autre côté. Il esquissa un sourire froid et murmura intérieurement: « Teng Huayuan, aujourd'hui j'ai atteint le stade de la Formation du Noyau. Le jour où j'atteindrai le stade de l'Âme Naissante sera le jour où je reviendrai à Zhao pour tuer. Teng Huayuan, tu ferais mieux de ne pas mourir trop tôt. Je veux enterrer chaque membre de la famille Teng avec toi. »
+Wang Lin estima que sa culture de la Formation du Noyau était plus de cent fois supérieure à celle de l'Établissement des Fondations. Il fixa les profondeurs de la Mer Xiu Mo. Son regard semblait transpercer la mer intérieure pour se poser sur Zhao, de l'autre côté. Il esquissa un sourire froid et murmura intérieurement: « Teng Huayuan, aujourd'hui j'ai atteint le stade de la Formation du Noyau. Le jour où j'atteindrai le stade de l'Âme Naissante sera le jour où je reviendrai à Zhao pour tuer. Teng Huayuan, tu ferais mieux de ne pas mourir trop tôt. Je veux enterrer chaque membre de la famille Teng avec toi. »
 
 Mu Nan observait secrètement Wang Lin. L'expression qu'il vit lui glaça le sang et fit battre son cœur plus vite. Il jura intérieurement: « Comment se fait-il que personne ne vienne tuer cet homme? Avec un tel signe au-dessus de sa tête, quelqu'un devrait surgir pour l'éliminer! Si nous le ramenons vraiment, même si nous ne sommes pas tués par lui, le chef de la secte nous anéantira l'âme. »
 
@@ -80,11 +80,11 @@ Shang Guanmo fut surpris; ses yeux verts se fixèrent sur Wang Lin avant qu'il n
 
 Sans attendre qu'il ait fini sa phrase, Wang Lin pointa le Seigneur Démon au Manteau Noir et ordonna: « Meurs! »
 
-À l'instant même où le mot « meurs » fut prononcé, un jade s'échappa de la poitrine de Shang Guanmo et se brisa en deux. Il libéra un nuage de fumée qui se dissipa dans la Mer des Démons.
+À l'instant même où le mot « meurs » fut prononcé, un jade s'échappa de la poitrine de Shang Guanmo et se brisa en deux. Il libéra un nuage de fumée qui se dissipa dans la Mer Xiu Mo.
 
 « Qu'est-ce que c'est? » Wang Lin tendit la main et ramassa les deux fragments de jade. Il les scruta avec son Sens Divin, puis une expression de surprise traversa son visage. Après avoir rangé les morceaux dans son sac de rangement, il fixa Shang Guanmo qui était terrifié.
 
-« Un sortilège de mort!!! » Une sueur froide perla sur le front de Shang Guanmo. Ce jade était l'unique trésor que son maître, il y a très longtemps, lui avait laissé à sa mort. On disait qu'il pouvait bloquer l'attaque d'un cultivateur de l'Âme Naissante à pleine puissance. Durant toutes ces années, il était resté dans la partie extérieure de la Mer des Démons et s'était toujours caché dès qu'il croisait des cultivateurs de l'Âme Naissante, n'osant jamais les provoquer. S'il rencontrait quelqu'un dont le niveau de culture était inférieur au sien, il lui extorquait tout ce qu'il pouvait. C'est ainsi qu'il s'était fait un nom. Cependant, il comprit enfin la situation en voyant le regard glacial de Wang Lin et craignit que ce dernier ne dise à nouveau « meurs ». Ses jambes devinrent molles; il tomba brusquement à genoux et implora: « Senior, ayez pitié! Senior, ayez pitié! Le junior Shang Guanmo reconnaît ses torts, je vous en prie, pardonnez-moi! »
+« Un sortilège de mort!!! » Une sueur froide perla sur le front de Shang Guanmo. Ce jade était l'unique trésor que son maître, il y a très longtemps, lui avait laissé à sa mort. On disait qu'il pouvait bloquer l'attaque d'un cultivateur de l'Âme Naissante à pleine puissance. Durant toutes ces années, il était resté dans la partie extérieure de la Mer Xiu Mo et s'était toujours caché dès qu'il croisait des cultivateurs de l'Âme Naissante, n'osant jamais les provoquer. S'il rencontrait quelqu'un dont le niveau de culture était inférieur au sien, il lui extorquait tout ce qu'il pouvait. C'est ainsi qu'il s'était fait un nom. Cependant, il comprit enfin la situation en voyant le regard glacial de Wang Lin et craignit que ce dernier ne dise à nouveau « meurs ». Ses jambes devinrent molles; il tomba brusquement à genoux et implora: « Senior, ayez pitié! Senior, ayez pitié! Le junior Shang Guanmo reconnaît ses torts, je vous en prie, pardonnez-moi! »
 
 Mu Nan regardait la scène avec stupéfaction, puis jeta un regard furtif à Wang Lin. Face à ce regard froid, il n'osa plus nourrir les pensées qu'il avait eues auparavant. Mu Bei baissa également la tête pour dissimuler sa peur.
 

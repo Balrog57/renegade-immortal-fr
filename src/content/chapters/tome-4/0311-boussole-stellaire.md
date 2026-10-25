@@ -64,7 +64,7 @@ Wang Lin esquissa un léger sourire. Si Chi Hu n'avait pas été là, il aurait 
 
 Chi Hu frappa son sac de rangement et une lumière verte s'en échappa. Cette lueur se mua immédiatement en une boussole géante qui flottait dans le vide, à trente-trois mètres devant eux.
 
-Les yeux magnifiques de Hongdie fixèrent la boussole tandis qu'elle disait d'une voix glaciale: « Le trésor du Clan des Démons Géants... la Boussole Stellaire? »
+Les yeux magnifiques de Hongdie fixèrent la boussole tandis qu'elle disait d'une voix glaciale: « Le trésor du Clan Ju Mo... la Boussole Stellaire? »
 
 Les yeux de Wang Lin s'illuminèrent en contemplant l'objet. Il était couvert de motifs ésotériques complexes. Rien qu'en la regardant, Wang Lin sentit son Sens Divin être aspiré, ce qui le força à le retirer brusquement. Dans les souvenirs du Dieu Ancien Tu Si, il existait une description de la boussole stellaire et de son mode de fabrication, mais nombre de ses matériaux avaient déjà disparu.
 

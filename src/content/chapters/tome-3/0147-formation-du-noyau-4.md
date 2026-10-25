@@ -10,7 +10,7 @@ Une autre personne, enveloppée d'un brouillard noir, dit d'un ton sinistre: « 
 
 Le visage de Wei San pâlit instantanément et il s'agenouilla au sol. Il bégaya: « Disciple... tout ce que le disciple a dit est vrai. À part avoir mal estimé son niveau de culture, le disciple... » La terreur rendait ses paroles incohérentes.
 
-Aucun des autres disciples de la Secte de la Lutte contre le Mal ne laissa paraître la moindre émotion. Certains éprouvaient même une certaine satisfaction à voir sa détresse. Ce spectacle glaça davantage le cœur de Wei San. Voyant la main approcher, il eut soudain une idée et hurla: « Je... je m'en souviens! Il a demandé à l'employé du Pavillon de Raffinage des Trésors s'il existait un fourneau à pilules de rang 5 ou supérieur! »
+Aucun des autres disciples de la Secte Dou Xie ne laissa paraître la moindre émotion. Certains éprouvaient même une certaine satisfaction à voir sa détresse. Ce spectacle glaça davantage le cœur de Wei San. Voyant la main approcher, il eut soudain une idée et hurla: « Je... je m'en souviens! Il a demandé à l'employé du Pavillon Lian Qi s'il existait un fourneau à pilules de rang 5 ou supérieur! »
 
 En réalité, Wei San n'avait pas clairement entendu ces paroles, mais dans cette situation critique, il commença à improviser. À force de parler, il finit même par se convaincre que cet homme était peut-être réellement venu pour acheter un fourneau.
 
@@ -22,13 +22,13 @@ Le troisième ancien, qui était resté silencieux jusqu'alors, finit par dire: 
 
 À peine ces mots prononcés, les trois hommes n'hésitèrent plus et suivirent Wang Lin. Les autres disciples s'empressèrent de les suivre. Wei San essuya la sueur froide qui perlait sur son front et, tout en maudissant intérieurement, il suivit le groupe.
 
-Les trois anciens de la Secte de la Lutte contre le Mal étaient venus à la ville de Nan Dou pour une affaire importante avec les chefs des trois autres sectes. Celle-ci réglée, les disciples des trois sectes avaient reçu l'ordre de ne pas les entraver; aussi, malgré le nombre des membres de la Secte de la Lutte contre le Mal, ils avancèrent irrésistiblement à leur poursuite.
+Les trois anciens de la Secte Dou Xie étaient venus à la ville de Nan Dou pour une affaire importante avec les chefs des trois autres sectes. Celle-ci réglée, les disciples des trois sectes avaient reçu l'ordre de ne pas les entraver; aussi, malgré le nombre des membres de la Secte Dou Xie, ils avancèrent irrésistiblement à leur poursuite.
 
 Quant à Wang Lin, on l'arrêtait périodiquement pour vérifier son jeton. Cela ralentissait considérablement sa progression et, remarquant que des gens le suivaient, il décida de foncer sans plus attendre.
 
-Bientôt, il atteignit la porte de la ville et s'élança à l'extérieur. Peu après, les membres de la Secte de la Lutte contre le Mal passèrent également par la porte. Une fois qu'ils furent partis, des disciples des trois grandes sectes de Nan Dou apparurent, menés par quelques cultivateurs au stade de la Formation du Noyau.
+Bientôt, il atteignit la porte de la ville et s'élança à l'extérieur. Peu après, les membres de la Secte Dou Xie passèrent également par la porte. Une fois qu'ils furent partis, des disciples des trois grandes sectes de Nan Dou apparurent, menés par quelques cultivateurs au stade de la Formation du Noyau.
 
-Ils avaient reçu l'ordre d'expulser les membres de la Secte de la Lutte contre le Mal s'ils déclenchaient des combats à l'intérieur de la ville, mais si ces derniers quittaient la cité, ils ne devaient ni les arrêter, ni les aider.
+Ils avaient reçu l'ordre d'expulser les membres de la Secte Dou Xie s'ils déclenchaient des combats à l'intérieur de la ville, mais si ces derniers quittaient la cité, ils ne devaient ni les arrêter, ni les aider.
 
 Après avoir quitté Nan Dou, Wang Lin utilisa rapidement la technique d'évasion tellurique pour s'enfoncer sous terre et s'échapper.
 
@@ -36,21 +36,21 @@ L'un des trois cultivateurs de la Formation du Noyau fut surpris. D'un revers de
 
 Les trois hommes ricanèrent et suivirent la lumière.
 
-Les disciples de la Secte de la Lutte contre le Mal étaient en pleine effervescence. L'idée de chasser des proies aux côtés des anciens de la secte les exaltait au plus haut point.
+Les disciples de la Secte Dou Xie étaient en pleine effervescence. L'idée de chasser des proies aux côtés des anciens de la secte les exaltait au plus haut point.
 
 Wang Lin fronça légèrement les sourcils et laissa échapper un grognement alors que le sens divin qu'il avait laissé en Wei San explosait.
 
-Wei San, qui se trouvait parmi le groupe de la Secte de la Lutte contre le Mal, poussa soudain un cri déchirant, cracha du sang et tomba de son épée volante. Les expressions de ses compagnons changèrent instantanément.
+Wei San, qui se trouvait parmi le groupe de la Secte Dou Xie, poussa soudain un cri déchirant, cracha du sang et tomba de son épée volante. Les expressions de ses compagnons changèrent instantanément.
 
-La vitesse de Wang Lin ne faiblit pas. Il déploya son sens divin et se concentra sur une cible. Une fois de plus, un autre disciple de la Secte de la Lutte contre le Mal poussa un cri de douleur et s'effondra.
+La vitesse de Wang Lin ne faiblit pas. Il déploya son sens divin et se concentra sur une cible. Une fois de plus, un autre disciple de la Secte Dou Xie poussa un cri de douleur et s'effondra.
 
-Conséquence directe: les disciples de la Secte de la Lutte contre le Mal s'arrêtèrent net, n'osant plus poursuivre la traque. Seuls les trois cultivateurs de la Formation du Noyau restèrent indifférents et continuèrent de poursuivre Wang Lin.
+Conséquence directe: les disciples de la Secte Dou Xie s'arrêtèrent net, n'osant plus poursuivre la traque. Seuls les trois cultivateurs de la Formation du Noyau restèrent indifférents et continuèrent de poursuivre Wang Lin.
 
 L'un des cultivateurs agita la main et un gigantesque sceau noir jaillit de sa manche. Après avoir tourné plusieurs fois dans les airs, il se changea en un immense pic; d'un doigt pointé avec un sourire glacial, l'homme le fit s'abattre avec fracas.
 
 Au moment où le pic percutait le sol, Wang Lin pivota brusquement sous terre pour l'esquiver. Le sourire du cultivateur se fit plus glacial encore. Il pointa le doigt à plusieurs reprises pour que le pic continue de marteler la terre. Soudain, une silhouette surgit de sous le sol. Après avoir jeté un regard froid aux trois poursuivants, Wang Lin s'envola prestement.
 
-Le cultivateur au miroir antique lança d'une voix grave, les yeux fulgurants comme l'éclair: « Remets-nous le trésor que tu as acheté au Pavillon de Raffinage des Trésors, ou meurs! »
+Le cultivateur au miroir antique lança d'une voix grave, les yeux fulgurants comme l'éclair: « Remets-nous le trésor que tu as acheté au Pavillon Lian Qi, ou meurs! »
 
 À peine eut-il fini sa phrase qu'une lumière éblouissante apparut devant ses yeux: une épée volante fonçait sur lui. Terrifié, il força son corps à dévier vers la gauche. La douleur fut fulgurante lorsque l'épée traversa sa poitrine pour ressortir de l'autre côté. Il ne put s'empêcher de cracher une large traînée de sang.
 

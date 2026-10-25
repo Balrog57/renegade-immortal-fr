@@ -52,7 +52,7 @@ En évoquant les anecdotes amusantes du monde de la culture dans le pays de Zhao
 
 Des récits tels que: un disciple de la Vallée Wu Feng avait séduit la disciple du chef de la Secte Piao Miao au point de la rendre enceinte; le chef de la Secte Piao Miao s'était rué sur la Vallée Wu Feng pour réclamer justice, mais était revenu avec un nouveau-né.
 
-Ou encore la Secte du Ciel, où un disciple avait trahi sa secte pour rejoindre la Secte He Huan. Ses amis proches, ayant eux aussi secrètement goûté à ces avantages, avaient trahi à leur tour la secte les uns après les autres. Cela avait tellement exaspéré les Anciens de la Secte du Ciel qu'ils avaient émis un ordre de poursuite et de mort contre eux.
+Ou encore la Secte Tian Dao, où un disciple avait trahi sa secte pour rejoindre la Secte He Huan. Ses amis proches, ayant eux aussi secrètement goûté à ces avantages, avaient trahi à leur tour la secte les uns après les autres. Cela avait tellement exaspéré les Anciens de la Secte Tian Dao qu'ils avaient émis un ordre de poursuite et de mort contre eux.
 
 On parla aussi de l'apparition de trésors du ciel et de la terre, et enfin de l'anniversaire de l'Ancien Suprême de la Secte Piao Miao, Wu Wei, expert en Formation du Noyau, qui aurait lieu dans quelques mois, toutes les sectes amies devant envoyer des représentants pour le célébrer.
 

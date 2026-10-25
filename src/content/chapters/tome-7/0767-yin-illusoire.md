@@ -20,7 +20,7 @@ Les trois forces utilisèrent le corps de Wang Lin comme un champ de bataille. C
 
 Une lueur mystérieuse brilla dans les yeux de Wang Lin. Il s'était éveillé. C’est l'impact même de cet éclair qui l'avait totalement tiré de sa torpeur.
 
-« La rétribution divine... » Wang Lin prit une inspiration glacée. Il se souvenait encore de la rétribution divine de la Terre des Esprits Démoniaques. Face à elle une nouvelle fois, ses yeux brillèrent d'un éclat vif.
+« La rétribution divine... » Wang Lin prit une inspiration glacée. Il se souvenait encore de la rétribution divine de la Terre Yao Ling. Face à elle une nouvelle fois, ses yeux brillèrent d'un éclat vif.
 
 Dès son éveil, il perçut le chaos qui régnait en lui. Si ce chaos n'était pas résolu au plus vite, son corps exploserait de lui-même, sans même que la rétribution divine ait besoin de le tuer.
 
@@ -30,7 +30,7 @@ Depuis l'épée céleste à ses côtés, Xu Liguo poussa immédiatement un cri: 
 
 Alors que Wang Lin s'élevait, il agita sa main droite. L'épée céleste vola vers lui et fut rangée dans son sac de rangement. La montagne céleste fut également mise de côté.
 
-Au moment où il jaillit du fragment, tous les nuages environnants se mirent à bouillonner. Sous ce mouvement violent, une rétribution divine plus intense encore que celle de la Terre des Esprits Démoniaques apparut!
+Au moment où il jaillit du fragment, tous les nuages environnants se mirent à bouillonner. Sous ce mouvement violent, une rétribution divine plus intense encore que celle de la Terre Yao Ling apparut!
 
 Sous la puissance de ces cieux, Wang Lin eut l'impression qu'une main gigantesque l'écrasait depuis le ciel. Des craquements sinistres résonnaient dans son corps.
 

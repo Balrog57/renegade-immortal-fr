@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 120 - Return of Wang Lin
 slug: le-retour-de-wang-lin
 ---
-Xu Hao était un disciple de sixième génération de la Secte des Arts Spirituels, située dans le pays de culture de rang 3 de Julu. Assis au sommet d'un gigantesque rocher flottant, il triait le butin accumulé ces dernières années lorsque son jade de transmission se mit soudainement à vibrer.
+Xu Hao était un disciple de sixième génération de la Secte Ling Wu, située dans le pays de culture de rang 3 de Julu. Assis au sommet d'un gigantesque rocher flottant, il triait le butin accumulé ces dernières années lorsque son jade de transmission se mit soudainement à vibrer.
 
 Xu Hao fronça les sourcils et pressa le jade contre son front. Une voix extrêmement pressée pénétra son esprit.
 
@@ -68,13 +68,13 @@ Ma Liang avait repéré un objet magique. Il ressemblait énormément à la lueu
 
 Il adressa un sourire amer à l'épée violette devant lui, pensant secrètement que si sa navette ne lui avait pas été volée, il aurait facilement pu la rattraper sans être dans un tel état.
 
-En repensant à la navette, ses pensées dérivèrent vers cette lueur noire. Depuis plus de dix ans, il ne pouvait s'empêcher de fantasmer sur ce trésor. Puisque des membres du Clan des Diables Géants le pourchassaient pour s'en emparer, il devait s'agir d'un objet défiant les cieux.
+En repensant à la navette, ses pensées dérivèrent vers cette lueur noire. Depuis plus de dix ans, il ne pouvait s'empêcher de fantasmer sur ce trésor. Puisque des membres du Clan Ju Mo le pourchassaient pour s'en emparer, il devait s'agir d'un objet défiant les cieux.
 
 Chaque fois qu'il y pensait, il ne pouvait que soupirer.
 
 Ma Liang marmonna pour lui-même: « Le tunnel de transfert pour sortir d'ici ne s'ouvre ni trop tôt, ni trop tard, mais précisément quand ma limite de cinquante ans est sur le point d'expirer. Mais quoi qu'il arrive, je pourrai enfin rentrer chez moi. Ces dernières années sont devenues bien trop dangereuses à cause de ces sens divins qui apparaissent partout. Une fois que j'aurai récupéré cette épée volante, je retournerai au point de rassemblement. Héhé, petite sœur apprentie, attends-moi! Surtout, n'accepte pas le frère aîné: c'est une bête à face humaine. Moi seul t'aime vraiment. »
 
-« Mais cinquante ans se sont écoulés... À quoi ressemble ma petite sœur maintenant? Eh bien... elle pratique la méthode du Dieu de la Guerre et j'ai entendu dire qu'elle permet de rester jeune, alors elle doit avoir l'air d'une trentaine d'années. Si elle est devenue une vieille femme, alors autant que j'abandonne. Humph, sur les dizaines de personnes du Temple du Dieu de la Guerre venues ici, il n'en reste qu'une dizaine. À mon retour, le chef de secte concentrera ses ressources sur moi pour favoriser ma culture. Et le flacon de pilules que j'ai reçu est extrêmement puissant. Une seule pilule me maintiendra jeune. Même de retour, je ne ressemblerai qu'à un jeune homme d'une vingtaine d'années. Grâce à cela, je pourrai séduire toutes les femmes que je veux! » Ma Liang laissa échapper un sourire malicieux, soudainement revigoré; il lui sembla même aller un peu plus vite.
+« Mais cinquante ans se sont écoulés... À quoi ressemble ma petite sœur maintenant? Eh bien... elle pratique la méthode du Dieu de la Guerre et j'ai entendu dire qu'elle permet de rester jeune, alors elle doit avoir l'air d'une trentaine d'années. Si elle est devenue une vieille femme, alors autant que j'abandonne. Humph, sur les dizaines de personnes du Temple Zhan Shen venues ici, il n'en reste qu'une dizaine. À mon retour, le chef de secte concentrera ses ressources sur moi pour favoriser ma culture. Et le flacon de pilules que j'ai reçu est extrêmement puissant. Une seule pilule me maintiendra jeune. Même de retour, je ne ressemblerai qu'à un jeune homme d'une vingtaine d'années. Grâce à cela, je pourrai séduire toutes les femmes que je veux! » Ma Liang laissa échapper un sourire malicieux, soudainement revigoré; il lui sembla même aller un peu plus vite.
 
 Alors qu'il se complaisait dans sa fierté, deux rayons de lumière convergèrent brusquement vers lui. En un clin d'œil, ils furent à ses côtés. L'un des rayons le dépassa pour fondre sur l'épée violette, révélant un jeune homme d'environ trente ans. Son visage s'assombrit alors qu'il saisissait l'épée volante et la rangeait dans son sac de rangement sans dire un mot. Il se tourna ensuite pour fixer froidement Ma Liang.
 

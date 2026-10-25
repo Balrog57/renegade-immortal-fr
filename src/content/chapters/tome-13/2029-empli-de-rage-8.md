@@ -82,7 +82,7 @@ Tout cela parce qu'il ne voulait pas décevoir Xuan Luo ni le placer dans une si
 
 Wang Lin ferma les yeux avec un sourire misérable. Lorsqu'il les rouvrit, sa main droite s'élança vers le vide et fit apparaître un morceau de jade. Après avoir concentré son Sens Divin sur l'objet, il le broya.
 
-Au moment où le jade se brisa, tout ce qu'il avait perçu grâce au jade de la Secte de la Grande Âme, ainsi que les murmures de l'Empereur Dao Antique, furent projetés devant tous, sans rien cacher.
+Au moment où le jade se brisa, tout ce qu'il avait perçu grâce au jade de la Secte Da Hun, ainsi que les murmures de l'Empereur Dao Antique, furent projetés devant tous, sans rien cacher.
 
 L'image était d'une clarté incroyable!
 

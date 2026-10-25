@@ -1,6 +1,6 @@
 ---
 n: 1259
-title: "Réprimander la Secte de l'Éternité, le Temps qui s'écoule"
+title: "Réprimander la Secte Wu Ji, le Temps qui s'écoule"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1259 - Rebuking the Everlasting Secte, Flowing Time

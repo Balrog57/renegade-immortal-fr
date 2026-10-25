@@ -10,15 +10,15 @@ Après avoir dévoré Tian Yunzi, la Bête des Limbes était devenue le Dao Cél
 
 Si elle se trouvait à l'extérieur du monde caverneux, le Dao Céleste présenterait certaines failles, mais à l'intérieur du monde caverneux, il était absolu!
 
-À l'époque, même Lian Daofei n'avait pas été capable de détecter le Dao Céleste avant d'être dévoré. Bien que la Bête des Limbes se trouvât à présent dans la Mer des Nuages, même le Vieux Fantôme Zhan ne l'avait pas remarquée.
+À l'époque, même Lian Daofei n'avait pas été capable de détecter le Dao Céleste avant d'être dévoré. Bien que la Bête des Limbes se trouvât à présent dans la Mer Yun, même le Vieux Fantôme Zhan ne l'avait pas remarquée.
 
 Quant aux quatre généraux, ils ne l'avaient pas non plus perçue.
 
-Leurs Sens Divins étaient assez puissants pour couvrir toute la Mer des Nuages, mais ils ne pouvaient pas voir la Bête des Limbes. Ils n'avaient même pas remarqué Wang Lin, assis sur le dos de la créature.
+Leurs Sens Divins étaient assez puissants pour couvrir toute la Mer Yun, mais ils ne pouvaient pas voir la Bête des Limbes. Ils n'avaient même pas remarqué Wang Lin, assis sur le dos de la créature.
 
 C'est ainsi que Tian Yunzi avait pu demeurer dans la Rivière Invoquée pendant des centaines d'années sans jamais être détecté.
 
-Le corps original de Wang Lin était assis sur le dos de la Bête des Limbes, tandis que son avatar, placé face à lui, condensait ses essences. Les ondulations qui se propageaient à travers la Mer des Nuages ne pouvaient être dissimulées et furent détectées par les quatre généraux ainsi que par d'autres êtres célestes.
+Le corps original de Wang Lin était assis sur le dos de la Bête des Limbes, tandis que son avatar, placé face à lui, condensait ses essences. Les ondulations qui se propageaient à travers la Mer Yun ne pouvaient être dissimulées et furent détectées par les quatre généraux ainsi que par d'autres êtres célestes.
 
 Cependant, peu importe la manière dont ils sondaient l'espace avec leur Sens Divin, ils ne trouvaient rien. Dans leur perception, la Bête des Limbes n'existait pas; il n'y avait que le calme de l'espace.
 
@@ -54,7 +54,7 @@ Ces intrus étaient le deuxième clou! Il allait les exposer à la lumière!
 
 C'était aussi un jeu, une lutte pour la suprématie. C'est ainsi que Wang Lin percevait les choses. Tout dépendrait de qui trouverait la troisième âme en premier!
 
-Tandis que Wang Lin réfléchissait, la Bête des Limbes sous lui avança lentement et atteignit bientôt les profondeurs de la Mer des Nuages. Sous les ordres de Wang Lin, la Bête des Limbes ferma ses yeux terrifiants et s'apprêta à se diriger vers le Vide Brillant.
+Tandis que Wang Lin réfléchissait, la Bête des Limbes sous lui avança lentement et atteignit bientôt les profondeurs de la Mer Yun. Sous les ordres de Wang Lin, la Bête des Limbes ferma ses yeux terrifiants et s'apprêta à se diriger vers le Vide Brillant.
 
 Cependant, à cet instant précis, Wang Lin laissa échapper une exclamation étouffée. Il regarda au loin et ses yeux s'illuminèrent.
 

@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: "Chapter 402 - The ancestor dies!"
 slug: la-mort-de-lancetre
 ---
-L'ancêtre du Clan des Démons Géants laissa échapper un sourire amer. Comment pouvait-il résister à l'Étendard de l'Âme que même les cultivateurs Ascendants redoutaient? Bien qu'il possédât la hache de l'ancêtre fondateur, son niveau de culture actuel ne lui permettait pas d'en déchaîner toute la puissance.
+L'ancêtre du Clan Ju Mo laissa échapper un sourire amer. Comment pouvait-il résister à l'Étendard de l'Âme que même les cultivateurs Ascendants redoutaient? Bien qu'il possédât la hache de l'ancêtre fondateur, son niveau de culture actuel ne lui permettait pas d'en déchaîner toute la puissance.
 
 Ses yeux s'illuminèrent; dans un rugissement, il projeta la hache vers Wang Lin.
 
@@ -18,21 +18,21 @@ Boum!
 
 Un nouveau jet de sang jaillit de la bouche de Wang Lin, qui fut projeté en arrière d'une dizaine de mètres. La hache fut repoussée et s'écrasa au sol, à trois cent trente mètres de là.
 
-Le visage de l'ancêtre du Clan des Démons Géants était livide, ses yeux injectés de folie. Il lança un regard venimeux à Wang Lin, prit une profonde inspiration, puis son âme originelle trembla tandis qu'il hurlait: « Pouvoir de lignée! »
+Le visage de l'ancêtre du Clan Ju Mo était livide, ses yeux injectés de folie. Il lança un regard venimeux à Wang Lin, prit une profonde inspiration, puis son âme originelle trembla tandis qu'il hurlait: « Pouvoir de lignée! »
 
 S'il n'avait pas utilisé ce pouvoir jusqu'à présent, c'était parce que l'utiliser avant d'avoir achevé sa possession aurait infligé des dommages irréparables à son âme originelle. Son âme risquait fort de s'effondrer, ce qui reviendrait à un suicide.
 
 Ce n'est qu'une fois la possession accomplie qu'il pourrait utiliser la lignée en toute sécurité, car la majeure partie du contrecoup serait absorbée par le corps. Bien qu'une partie atteigne encore son âme originelle, elle resterait supportable.
 
-Le regard de Wang Lin était glacial alors qu'il observait l'ancêtre du Clan des Démons Géants. Il pointa l'Étendard de l'Âme, et une nouvelle salve de fragments d'âmes s'élança.
+Le regard de Wang Lin était glacial alors qu'il observait l'ancêtre du Clan Ju Mo. Il pointa l'Étendard de l'Âme, et une nouvelle salve de fragments d'âmes s'élança.
 
 Wang Lin devait tuer cet ancêtre qui savait qu'il possédait la Perle Défiant le Ciel. Il devait le tuer, quoi qu'il en coûte.
 
-Le ciel entier sembla être déplacé par une main gigantesque, puis un vortex noir colossal apparut soudainement au-dessus de l'ancêtre du Clan des Démons Géants.
+Le ciel entier sembla être déplacé par une main gigantesque, puis un vortex noir colossal apparut soudainement au-dessus de l'ancêtre du Clan Ju Mo.
 
 Cette scène était identique à celle que Wang Lin avait vue lorsque l'ancêtre l'avait utilisé contre Sun Tai.
 
-À cet instant, d'innombrables fragments d'âmes enveloppèrent l'ancêtre du Clan des Démons Géants, s'acharnant à le dévorer. L'ancêtre laissa échapper un rire sinistre.
+À cet instant, d'innombrables fragments d'âmes enveloppèrent l'ancêtre du Clan Ju Mo, s'acharnant à le dévorer. L'ancêtre laissa échapper un rire sinistre.
 
 « Tournez! »
 
@@ -40,19 +40,19 @@ Le vortex géant entama soudain une rotation, générant une force d'aspiration 
 
 Wang Lin sentit la puissante succion envelopper son corps, le projetant malgré lui vers le vortex.
 
-L'ancêtre du Clan des Démons Géants hurla: « Wang Lin, ce vieil homme risque de briser son âme originelle pour te piéger dans le vide! » D'innombrables fragments d'âmes l'entouraient, et les douze fragments de niveau Transformation de l'Âme étaient déjà entrés dans son corps pour dévorer son âme originelle.
+L'ancêtre du Clan Ju Mo hurla: « Wang Lin, ce vieil homme risque de briser son âme originelle pour te piéger dans le vide! » D'innombrables fragments d'âmes l'entouraient, et les douze fragments de niveau Transformation de l'Âme étaient déjà entrés dans son corps pour dévorer son âme originelle.
 
 Sa chair avait déjà été asséchée et son âme originelle était brisée.
 
-Le regard de Wang Lin demeura calme. Alors qu'il était aspiré par le vortex, il fixa l'ancêtre du Clan des Démons Géants avec un sourire énigmatique et murmura: « Dévorez! »
+Le regard de Wang Lin demeura calme. Alors qu'il était aspiré par le vortex, il fixa l'ancêtre du Clan Ju Mo avec un sourire énigmatique et murmura: « Dévorez! »
 
-À ces mots, la voracité des fragments d'âmes redoubla de vitesse. L'ancêtre du Clan des Démons Géants poussa plusieurs gémissements de douleur avant que son âme originelle ne s'effondre totalement et se dissipe.
+À ces mots, la voracité des fragments d'âmes redoubla de vitesse. L'ancêtre du Clan Ju Mo poussa plusieurs gémissements de douleur avant que son âme originelle ne s'effondre totalement et se dissipe.
 
-L'ancêtre de cette génération du Clan des Démons Géants était mort!
+L'ancêtre de cette génération du Clan Ju Mo était mort!
 
 Cependant, le pouvoir de lignée avait déjà été activé et le corps de Wang Lin fut entraîné. Au moment où il pénétra dans le vortex, il tendit sa main droite, et tous les fragments d'âmes se lièrent rapidement pour former une chaîne afin de l'empêcher d'être aspiré.
 
-Profitant du répit offert par cette chaîne d'âmes, il activa la formation qu'il avait préparée à l'avance dans la vallée. Sentant l'aspiration s'intensifier, il rappela promptement tous les fragments d'âmes et, bien entendu, n'oublia pas le sac de l'ancêtre du Clan des Démons Géants. La force de succion augmenta encore, et Wang Lin comprit qu'il ne pouvait plus résister.
+Profitant du répit offert par cette chaîne d'âmes, il activa la formation qu'il avait préparée à l'avance dans la vallée. Sentant l'aspiration s'intensifier, il rappela promptement tous les fragments d'âmes et, bien entendu, n'oublia pas le sac de l'ancêtre du Clan Ju Mo. La force de succion augmenta encore, et Wang Lin comprit qu'il ne pouvait plus résister.
 
 Ses yeux s'illuminèrent soudain en apercevant la hache géante à trois cent trente mètres de là. Il tendit la main vers elle, mais une force colossale s'opposa à sa prise.
 
@@ -68,17 +68,17 @@ Les yeux de Wang Lin brillèrent. De sa main gauche, il commanda quelques âmes 
 
 Peu après, le vortex se dissipa.
 
-Il ne restait plus au sol que le corps déchiqueté de l'ancêtre du Clan des Démons Géants.
+Il ne restait plus au sol que le corps déchiqueté de l'ancêtre du Clan Ju Mo.
 
 Jusqu'à son dernier souffle, il n'avait eu aucune chance de lever les sceaux sur les membres de son clan; il n'avait pu que regarder la chute de son clan.
 
 La silhouette de Wang Lin apparut dans le vide, à l'extérieur de la planète Suzaku. Son visage était d'une pâleur cadavérique, sans la moindre trace de sang.
 
-« Quel puissant pouvoir de lignée... Si l'ancêtre du Clan des Démons Géants avait atteint le milieu ou la fin de la Transformation de l'Âme, la formation que l'ancêtre Du Tian m'a donnée n'aurait servi à rien. »
+« Quel puissant pouvoir de lignée... Si l'ancêtre du Clan Ju Mo avait atteint le milieu ou la fin de la Transformation de l'Âme, la formation que l'ancêtre Du Tian m'a donnée n'aurait servi à rien. »
 
 Wang Lin réfléchit un instant avant de frapper son sac de rangement pour en extraire la boussole stellaire. Il s'assit dessus et la dirigea vers la planète Suzaku.
 
-« Li Yuanfeng et l'ancêtre du Clan des Démons Géants sont morts. La nouvelle ne tardera pas à se répandre sur la planète Suzaku. Pour l'instant, l'essentiel est d'aider Wan Er à traverser la seconde arrivée de l'Émissaire des Cieux. »
+« Li Yuanfeng et l'ancêtre du Clan Ju Mo sont morts. La nouvelle ne tardera pas à se répandre sur la planète Suzaku. Pour l'instant, l'essentiel est d'aider Wan Er à traverser la seconde arrivée de l'Émissaire des Cieux. »
 
 Le regard de Wang Lin s'anima et la boussole stellaire accéléra sa course.
 
@@ -100,7 +100,7 @@ Wang Lin se déplaçait comme s'il connaissait parfaitement les lieux. Après un
 
 Lorsqu'il avait été téléporté depuis le Royaume Céleste, il était apparu dans ce réseau, et c'était lui qui l'avait renvoyé chez lui.
 
-« J'ai tué Li Yuanfeng et l'ancêtre du Clan des Démons Géants, cela a dû attirer l'attention. Autant passer quelques années à cultiver ici avant de repartir discrètement. » Sur ce, Wang Lin s'assit en tailleur, séparant son avatar de son corps originel.
+« J'ai tué Li Yuanfeng et l'ancêtre du Clan Ju Mo, cela a dû attirer l'attention. Autant passer quelques années à cultiver ici avant de repartir discrètement. » Sur ce, Wang Lin s'assit en tailleur, séparant son avatar de son corps originel.
 
 Le corps originel s'enfonça dans le sol.
 
@@ -118,13 +118,13 @@ Son âme originelle réintégra son corps.
 
 « Il doit y avoir un esprit de hache à l'intérieur. Je ne le forcerai pas à sortir, mais je vais le supprimer avec l'Étendard de l'Âme et le raffiner par mon âme originelle. Voyons combien de temps cet esprit pourra tenir! » Wang Lin ricana en sortant un sac.
 
-Ce sac appartenait à l'ancêtre du Clan des Démons Géants.
+Ce sac appartenait à l'ancêtre du Clan Ju Mo.
 
 Il le toucha pour y imprimer son propre sens divin, et les objets qu'il contenait apparurent instantanément dans son esprit.
 
 L'ancêtre possédait de nombreux trésors: des dizaines de jades célestes et même des pierres spirituelles de haute qualité.
 
-Il y avait naturellement quelques artefacts, mais bien que puissants, ils n'avaient rien d'exceptionnel. Après tout, pour le Clan des Démons Géants, leurs corps étaient leurs meilleures armes; les trésors étaient donc peu utilisés.
+Il y avait naturellement quelques artefacts, mais bien que puissants, ils n'avaient rien d'exceptionnel. Après tout, pour le Clan Ju Mo, leurs corps étaient leurs meilleures armes; les trésors étaient donc peu utilisés.
 
 Cependant, deux objets captèrent l'attention de Wang Lin.
 

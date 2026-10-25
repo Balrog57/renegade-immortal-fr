@@ -48,7 +48,7 @@ Cependant, à cet instant, il revoyait ce symbole par l'intermédiaire de ce vie
 
 Le regard de Wang Lin fit trembler le cœur du vieil homme. Ce regard ne lui était pas inconnu; le qilin avait eu la même expression en voyant les créatures célestes.
 
-À ce moment précis, Wang Lin libéra l'intention de combat la plus intense depuis son entrée dans la Terre des Esprits Démoniaques. Il pointa le Char de Guerre Divin et hurla: « Bête du Tonnerre! »
+À ce moment précis, Wang Lin libéra l'intention de combat la plus intense depuis son entrée dans la Terre Yao Ling. Il pointa le Char de Guerre Divin et hurla: « Bête du Tonnerre! »
 
 La foudre et le tonnerre déchirèrent soudainement le ciel pour frapper directement le char. Simultanément, la Bête du Tonnerre aux cornes argentées apparut sous les assauts de l'électricité.
 
@@ -72,13 +72,13 @@ Il avait peur de la mort!
 
 Cependant, il finit par oublier cette prudence après avoir rassemblé dix gardiens célestes. Il commença à agir personnellement pour capturer davantage de cultivateurs afin de les fusionner avec les jades brisés, espérant ainsi cultiver des experts du niveau des gardiens célestes.
 
-« Quelles sont les origines de ce maudit Wang Lin? Comment peut-il être aussi puissant?! Bon sang, si je m'échappe cette fois, j'irai briser la tête du cultivateur de la Cité de l'Ancien Démon qui m'a donné des nouvelles de lui! » lança le vieil homme dans sa fuite, maudissant intérieurement.
+« Quelles sont les origines de ce maudit Wang Lin? Comment peut-il être aussi puissant?! Bon sang, si je m'échappe cette fois, j'irai briser la tête du cultivateur de la Cité Gu Yao qui m'a donné des nouvelles de lui! » lança le vieil homme dans sa fuite, maudissant intérieurement.
 
 Les yeux de Wang Lin étaient embrasés par la passion. Même s'il devait épuiser toute l'énergie spirituelle céleste de son corps, il ne laisserait pas ce vieil homme s'échapper. Ses yeux étaient d'un rouge éclatant; non pas à cause du massacre, mais à cause du trésor que tenait l'homme.
 
 Aux yeux de Wang Lin, le vieil homme était un coffre au trésor ambulant. Il était perplexe: si cet homme possédait tant de richesses, comment se faisait-il que personne ne soit venu les lui voler durant toutes ces années?
 
-Il ignorait que ce vieil homme avait toujours été timoré et prudent. Ce n'est qu'au cours des dernières décennies qu'il s'était montré plus audacieux. Auparavant, il ne capturait que des cultivateurs de petites sectes. Récemment, il s'était lancé dans la capture de disciples de grandes sectes, l'arrestation du disciple de la Division Bleue de la Secte du Destin Céleste en étant une preuve.
+Il ignorait que ce vieil homme avait toujours été timoré et prudent. Ce n'est qu'au cours des dernières décennies qu'il s'était montré plus audacieux. Auparavant, il ne capturait que des cultivateurs de petites sectes. Récemment, il s'était lancé dans la capture de disciples de grandes sectes, l'arrestation du disciple de la Division Bleue de la Secte Tian Yun en étant une preuve.
 
 Bien que ce vieil homme fût au stade intermédiaire de l'Ascendant, il l'avait atteint par des moyens peu conventionnels. Par conséquent, face à un cultivateur Ascendant débutant et faible, il pouvait tenir tête. Mais face à quelqu'un comme Wang Lin, capable de rivaliser avec de véritables experts du stade intermédiaire, sa puissance était dérisoire!
 

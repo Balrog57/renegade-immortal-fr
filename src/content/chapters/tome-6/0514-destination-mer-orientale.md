@@ -24,19 +24,19 @@ L'amertume dans son cœur était profonde. Il regrettait d'être venu ici avec S
 
 Des volutes de gaz gris tourbillonnaient autour des doigts de Wang Lin alors qu'il fixait le vieil homme. Il dit calmement: « Il y a de nombreuses années, lorsque le Saint de l'Épée est revenu du Royaume Céleste, y eut-il quelque chose d'anormal? Je ne te donne qu'une seule chance. Hésite et meurs! Si tu ne sais pas répondre, meurs! Si ce que tu dis diffère de ce qu'a dit Shi Fang, meurs! »
 
-Le vieil homme fut saisi d'effroi, mais il s'empressa de lâcher: « Lorsque le vénéré Saint de l'Épée est revenu, un esprit d'épée terrifiant l'avait poursuivi. Il a combattu le Saint de l'Épée pendant plusieurs jours avant de se fragmenter en innombrables morceaux. Le Saint de l'Épée en scella un tiers au plus profond de la Mer des Esprits Démoniaques de l'Est. »
+Le vieil homme fut saisi d'effroi, mais il s'empressa de lâcher: « Lorsque le vénéré Saint de l'Épée est revenu, un esprit d'épée terrifiant l'avait poursuivi. Il a combattu le Saint de l'Épée pendant plusieurs jours avant de se fragmenter en innombrables morceaux. Le Saint de l'Épée en scella un tiers au plus profond de la Mer Yao Ling. »
 
-Les yeux de Wang Lin s'illuminèrent et il demanda promptement: « Qu'y a-t-il de si mystérieux dans la Mer des Esprits Démoniaques de l'Est? »
+Les yeux de Wang Lin s'illuminèrent et il demanda promptement: « Qu'y a-t-il de si mystérieux dans la Mer Yao Ling? »
 
-Le vieil homme n'osa pas tarder et répondit: « La Mer des Esprits Démoniaques de l'Est est l'une des trois grandes zones interdites de la planète Tian Yun. De nombreux démons anciens s'y trouvent. Tous les 10 000 ans, le contrôle de l'accès à cette zone change de mains. Cette fois, elle appartient à ma Secte de l'Épée Da Luo. La porte s'ouvre tous les 5 000 ans, et chaque fois qu'elle s'ouvre, chaque secte envoie des disciples pour y pénétrer afin de capturer des démons anciens. »
+Le vieil homme n'osa pas tarder et répondit: « La Mer Yao Ling est l'une des trois grandes zones interdites de la planète Tian Yun. De nombreux démons anciens s'y trouvent. Tous les 10 000 ans, le contrôle de l'accès à cette zone change de mains. Cette fois, elle appartient à ma Secte Da Luo Jian. La porte s'ouvre tous les 5 000 ans, et chaque fois qu'elle s'ouvre, chaque secte envoie des disciples pour y pénétrer afin de capturer des démons anciens. »
 
-« Capturer des démons anciens n'est qu'un aspect secondaire. La raison principale de la Mer des Esprits Démoniaques de l'Est est un essai, une épreuve sanglante. Une fois que l'on y entre, le danger est extrêmement élevé! On peut même dire que moins il y a de survivants, mieux c'est, car le véritable bénéfice réside dans l'Héritage de l'Esprit Démoniaque que l'on reçoit en sortant! » À cet instant, les yeux du vieil homme étaient empreints d'avidité.
+« Capturer des démons anciens n'est qu'un aspect secondaire. La raison principale de la Mer Yao Ling est un essai, une épreuve sanglante. Une fois que l'on y entre, le danger est extrêmement élevé! On peut même dire que moins il y a de survivants, mieux c'est, car le véritable bénéfice réside dans l'Héritage de l'Esprit Démoniaque que l'on reçoit en sortant! » À cet instant, les yeux du vieil homme étaient empreints d'avidité.
 
 « L'Héritage de l'Esprit Démoniaque? » Les yeux de Wang Lin se plissèrent.
 
 « C'est exact. Cet héritage peut élever la culture d'un cultivateur d'un niveau entier. Si l'on le reçoit durant le stade Ascendant, le seuil de la Recherche du Dao tombe au plus bas, et les chances d'atteindre le stade Ascendant augmentent considérablement! Bien sûr, si l'on est déjà au stade Ascendant, cela aidera tout de même à accroître son niveau de culture. Si l'on est au stade avancé de l'Ascendant, cela pourrait même aider à franchir les étapes de l'Incorporel Yin et du Corporel Yang pour obtenir un corps capable de durer des dizaines de milliers d'années! »
 
-« C'est pourquoi c'est un événement si majeur pour la planète Tian Yun. Nombreux sont ceux qui y participent, mais la Mer des Esprits Démoniaques de l'Est est très périlleuse. Si vous voulez les bénéfices, vous devez être prêt à payer le prix. Quiconque est autorisé à y entrer fait partie des plus exceptionnels de sa génération! Il existe même une rumeur selon laquelle une seule personne pourrait en ressortir. Si... quelqu'un parvient à cet exploit, il obtiendra une récompense sans précédent... un sort céleste complet de basse qualité! »
+« C'est pourquoi c'est un événement si majeur pour la planète Tian Yun. Nombreux sont ceux qui y participent, mais la Mer Yao Ling est très périlleuse. Si vous voulez les bénéfices, vous devez être prêt à payer le prix. Quiconque est autorisé à y entrer fait partie des plus exceptionnels de sa génération! Il existe même une rumeur selon laquelle une seule personne pourrait en ressortir. Si... quelqu'un parvient à cet exploit, il obtiendra une récompense sans précédent... un sort céleste complet de basse qualité! »
 
 Wang Lin réfléchit un instant, puis ses yeux brillèrent. D'une simple pensée, Xu Liguo sembla le percevoir, et la lame en croissant s'illumina immédiatement. En un instant, elle transperça la tête du vieil homme.
 
@@ -44,7 +44,7 @@ Le corps du vieil homme trembla, le sang jaillit de sa bouche et ses yeux s'obsc
 
 Wang Lin fit un geste de la main droite, et la lame en croissant ainsi que l'épée céleste retournèrent dans son sac de rangement. Puis, son corps vacilla et disparut.
 
-Trois bâtons d'encens après le départ de Wang Lin, le vieil homme ouvrit soudainement les yeux tandis que la plaie entre les sourcils se refermait lentement. Il prit une profonde inspiration, l'air abattu. Il se retourna pour lancer un regard venimeux vers le vide et marmonna: « Tu veux me tuer? Ce ne sera pas si facile! Ce vieil homme pratique la technique du Sens Divin tripartite, ce qui me permet de survivre à la mort trois fois. Je ne pensais pas utiliser ma dernière chance ici! Wang Lin, une fois que je serai revenu à la Secte de l'Épée Da Luo, je trouverai un moyen de te forcer à la mort pour venger l'affront d'aujourd'hui! »
+Trois bâtons d'encens après le départ de Wang Lin, le vieil homme ouvrit soudainement les yeux tandis que la plaie entre les sourcils se refermait lentement. Il prit une profonde inspiration, l'air abattu. Il se retourna pour lancer un regard venimeux vers le vide et marmonna: « Tu veux me tuer? Ce ne sera pas si facile! Ce vieil homme pratique la technique du Sens Divin tripartite, ce qui me permet de survivre à la mort trois fois. Je ne pensais pas utiliser ma dernière chance ici! Wang Lin, une fois que je serai revenu à la Secte Da Luo Jian, je trouverai un moyen de te forcer à la mort pour venger l'affront d'aujourd'hui! »
 
 Ses yeux brillaient d'une lueur froide alors qu'il s'envolait au loin.
 
@@ -66,11 +66,11 @@ Alors qu'il volait, son expression changea soudainement. Il regarda derrière lu
 
 Wang Lin se déplaça comme l'éclair et, en plein vol, se transforma en un gigantesque nuage de gaz gris qui chargea vers les profondeurs des Terres Démoniaques du Nord.
 
-« Le temps n'attend personne! La Mer des Esprits Démoniaques de l'Est sera le lieu idéal pour pratiquer l'Art du Massacre Céleste. C'est la première raison de ce voyage! »
+« Le temps n'attend personne! La Mer Yao Ling sera le lieu idéal pour pratiquer l'Art du Massacre Céleste. C'est la première raison de ce voyage! »
 
 « Zhou Yi m'a aidé autrefois, et il est maintenant piégé dans cette mer. Je rembourse toujours ceux qui m'ont fait du bien. Je dois tenter de l'aider. C'est la deuxième raison! »
 
-« Le Maître Tian Yunzi se soucie du destin céleste et n'agirait pas sans raison. S'il veut que j'y aille, c'est qu'il a ses motifs. Si je refuse, je m'opposerai au destin, ce qui rendra difficile mon établissement au sein de la Secte du Destin Céleste. C'est la troisième raison! »
+« Le Maître Tian Yunzi se soucie du destin céleste et n'agirait pas sans raison. S'il veut que j'y aille, c'est qu'il a ses motifs. Si je refuse, je m'opposerai au destin, ce qui rendra difficile mon établissement au sein de la Secte Tian Yun. C'est la troisième raison! »
 
 « Seulement, je ne sais pas si j'aurai la chance de trouver de quoi augmenter l'élément métallique de la Perle Défiant le Ciel. Si elle est complète, elle apportera sans doute de grands bénéfices à Wan Er et pourrait même l'éveiller... » Wang Lin toucha son front, affichant un regard empreint de douce nostalgie.
 
@@ -82,7 +82,7 @@ Plus on s'enfonçait dans les Terres Démoniaques du Nord, plus les bêtes démo
 
 Au cours des dix derniers jours, les Terres Démoniaques du Nord avaient été enveloppées par un gaz gris infini. Des volutes s'élevaient du sol, emportant la vie sur leur passage. Cependant, ce gaz ne s'approchait jamais à moins de 150 000 kilomètres du centre, les bêtes désolées l'ignorant donc. De plus, ce phénomène n'avait duré que dix jours avant de se dissiper, n'ayant causé aucun effet durable.
 
-Dix jours plus tard, alors qu'il ne restait que six jours avant l'ouverture de la Mer des Esprits Démoniaques de l'Est, Wang Lin quitta cette zone!
+Dix jours plus tard, alors qu'il ne restait que six jours avant l'ouverture de la Mer Yao Ling, Wang Lin quitta cette zone!
 
 Contrairement à son état d'il y a plusieurs jours, une intention meurtrière très bien dissimulée et une pointe de gaz gris animaient désormais ses yeux. Le plus remarquable était les cinq filaments de gaz gris dansant entre ses doigts, émettant le son d'un vent hurlant. Ce bruit semblait empreint d'un pouvoir mystérieux, capable de captiver l'attention de quiconque l'entendrait.
 

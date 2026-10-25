@@ -44,9 +44,9 @@ Ces sculptures étaient les habitants du village qui fut la terre natale de Wang
 
 Durant ce mois, Wang Lin n'avait reçu aucun client, mais cela ne le dérangeait pas, tant il était absorbé par son art. Il en était venu à délaisser sa culture.
 
-Un jour, Wang Lin tenait une sculpture inachevée entre ses mains. Pour une raison inconnue, celle-ci dégageait une aura primordiale. Si un cultivateur de la Mer des Démons l'avait vue, il l'aurait immédiatement reconnue comme étant celle d'un dragon.
+Un jour, Wang Lin tenait une sculpture inachevée entre ses mains. Pour une raison inconnue, celle-ci dégageait une aura primordiale. Si un cultivateur de la Mer Xiu Mo l'avait vue, il l'aurait immédiatement reconnue comme étant celle d'un dragon.
 
-Ce dragon était la première bête spirituelle que Wang Lin avait rencontrée lorsqu'il se trouvait avec Li Muwan dans la Mer des Démons.
+Ce dragon était la première bête spirituelle que Wang Lin avait rencontrée lorsqu'il se trouvait avec Li Muwan dans la Mer Xiu Mo.
 
 Alors qu'il sculptait, la clochette tinta et la porte fut poussée. Un garçon à l'allure robuste scruta l'intérieur avec attention.
 

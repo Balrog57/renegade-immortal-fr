@@ -13,17 +13,17 @@ Chi Hu arriva rapidement devant Wang Lin et lui décocha un coup de pied qui le 
 
 L'homme d'âge moyen comprit immédiatement la situation et laissa échapper un grognement méprisant.
 
-L'ancêtre du Clan des Démons Géants surgit et hurla: « Chi Hu, que fais-tu?! »
+L'ancêtre du Clan Ju Mo surgit et hurla: « Chi Hu, que fais-tu?! »
 
 Chi Hu s'interposa pour bloquer son ancêtre. Le regard clair, il cria: « Ancêtre, cette boussole stellaire est un cadeau que j'ai fait à Ceng Niu, ce n'est pas quelque chose qu'il a volé! Moi, Chi Hu, suis un homme d'honneur! Ceng Niu m'a sauvé à plusieurs reprises dans le Royaume Céleste et il est mon ami. Comment pourrais-je commettre un acte aussi inhumain?! »
 
-L'ancêtre du Clan des Démons Géants laissa échapper un rire furieux. Il s'apprêtait à contourner Chi Hu.
+L'ancêtre du Clan Ju Mo laissa échapper un rire furieux. Il s'apprêtait à contourner Chi Hu.
 
 Cependant, Chi Hu rugit et l'image de la hache sur son front brilla intensément. Il fit un pas vers son ancêtre et s'écria: « Cette boussole stellaire ne nous sert à rien! Et alors si je l'ai donnée à Ceng Niu? Vous avez déjà pris son épée volante! N'est-ce pas suffisant?! »
 
 L'ancêtre se retourna brusquement pour fixer Chi Hu. Il tendit la main et Chi Hu sentit immédiatement une force puissante l'immobiliser totalement.
 
-« Si tu n'étais pas le cadet possédant le plus de sang du Clan des Démons Géants, je te tuerais aujourd'hui, espèce d'enfant ingrat! Une fois de retour au clan, tu seras puni par cent ans de culture à huis clos et tu subiras la douleur d'un raffinage corporel! »
+« Si tu n'étais pas le cadet possédant le plus de sang du Clan Ju Mo, je te tuerais aujourd'hui, espèce d'enfant ingrat! Une fois de retour au clan, tu seras puni par cent ans de culture à huis clos et tu subiras la douleur d'un raffinage corporel! »
 
 Sur ces mots, il se remit à la poursuite de Wang Lin qui s'enfuyait.
 
@@ -37,7 +37,7 @@ Wang Lin avait récupéré une partie de son énergie spirituelle grâce à l'ai
 
 Tout en volant, Wang Lin posa un doigt entre ses sourcils pour essayer et soupira intérieurement. Il ignorait quelle formation les ennemis avaient déployée; il savait seulement qu'il ne pouvait ni déchirer l'espace ni se téléporter, et il sentait même que quelque chose l'empêchait d'entrer dans la perle défiant le ciel. Pour l'instant, il lui faudrait un certain temps avant de pouvoir y pénétrer.
 
-Cette formation était extrêmement mystérieuse. Non seulement Wang Lin ne pouvait pas se téléporter, mais l'ancêtre du Clan des Démons Géants qui l'avait mise en place en était également incapable.
+Cette formation était extrêmement mystérieuse. Non seulement Wang Lin ne pouvait pas se téléporter, mais l'ancêtre du Clan Ju Mo qui l'avait mise en place en était également incapable.
 
 « L'épée céleste a été volée... Si je survis aujourd'hui, je dois la récupérer! » Une lueur de haine apparut dans les yeux de Wang Lin.
 
@@ -53,7 +53,7 @@ Le corps de Wang Lin tomba du ciel.
 
 Des marques semblables à des feuilles de thé apparurent sur son visage. À chaque fois qu'elles brillaient, le corps de Wang Lin s'affaiblissait. Son âme originelle se dissipait lentement.
 
-À ce moment-là, l'ancêtre du Clan des Démons Géants rattrapa la scène et baissa les yeux vers Wang Lin.
+À ce moment-là, l'ancêtre du Clan Ju Mo rattrapa la scène et baissa les yeux vers Wang Lin.
 
 « Nous avons déjà perdu trop de temps. Une fois cet homme tué, j'aurai d'autres affaires à régler. Camarade cultivateur Li, allez-y. »
 
@@ -65,13 +65,13 @@ Pourtant, au même instant, un coup de tonnerre retentit dans le ciel et une imm
 
 Un reniflement froid émana du cercueil: « La Formation Qiankun de Scellement Démoniaque... Si je ne savais pas où se trouve l'œil de cette formation, il m'aurait été très difficile d'entrer. »
 
-Un vieil homme vêtu d'une robe rouge fixa les trois individus en dessous de lui, les yeux brillants. En voyant l'ancêtre du Clan des Démons Géants et l'homme d'âge moyen, son visage s'assombrit et il jura: « Ceng Niu, n'as-tu rien de mieux à faire que de t'attirer des ennuis?! Dites-moi, vous deux, vieux débris, n'avez-vous pas honte de tuer un simple junior en stade de Formation de l'Âme? »
+Un vieil homme vêtu d'une robe rouge fixa les trois individus en dessous de lui, les yeux brillants. En voyant l'ancêtre du Clan Ju Mo et l'homme d'âge moyen, son visage s'assombrit et il jura: « Ceng Niu, n'as-tu rien de mieux à faire que de t'attirer des ennuis?! Dites-moi, vous deux, vieux débris, n'avez-vous pas honte de tuer un simple junior en stade de Formation de l'Âme? »
 
-« La Secte des Cadavres! » L'homme d'âge moyen retira son doigt. Ses yeux pétillèrent alors qu'il fixait le vieillard.
+« La Secte Shi Yin! » L'homme d'âge moyen retira son doigt. Ses yeux pétillèrent alors qu'il fixait le vieillard.
 
-Le vieil homme en robe rouge était le Grand Ancien de la Secte des Cadavres, Sun Tai!
+Le vieil homme en robe rouge était le Grand Ancien de la Secte Shi Yin, Sun Tai!
 
-L'expression de Sun Tai était sombre alors qu'il observait l'homme d'âge moyen. Il reporta ensuite son regard sur l'ancêtre du Clan des Démons Géants, jurant intérieurement. Bien que l'ancêtre ne fût qu'au début du stade de Transformation de l'Âme, il savait que les membres de ce clan accédaient à la puissance de leur lignée dès qu'ils atteignaient ce niveau. Même si Sun Tai était au milieu de la Transformation de l'Âme, cette puissance était une force avec laquelle il ne souhaitait pas se mesurer trop facilement.
+L'expression de Sun Tai était sombre alors qu'il observait l'homme d'âge moyen. Il reporta ensuite son regard sur l'ancêtre du Clan Ju Mo, jurant intérieurement. Bien que l'ancêtre ne fût qu'au début du stade de Transformation de l'Âme, il savait que les membres de ce clan accédaient à la puissance de leur lignée dès qu'ils atteignaient ce niveau. Même si Sun Tai était au milieu de la Transformation de l'Âme, cette puissance était une force avec laquelle il ne souhaitait pas se mesurer trop facilement.
 
 Sun Tai déclara: « Je vais emporter cet homme! »
 
@@ -81,15 +81,15 @@ Sun Tai le coupa d'un cri: « Ferme ta sale gueule et dégage! Un simple cultiva
 
 Le visage de l'homme d'âge moyen passa du bleu au rouge. Depuis qu'il avait atteint le stade de Transformation de l'Âme, il était traité comme un souverain à Xue Yu. Même face à d'autres cultivateurs de son rang, aucun n'osait lui adresser la parole ainsi.
 
-Sun Tai renifla et tourna son regard vers l'ancêtre du Clan des Démons Géants.
+Sun Tai renifla et tourna son regard vers l'ancêtre du Clan Ju Mo.
 
 L'expression de ce dernier était lugubre. Après une courte réflexion, il secoua la tête et dit: « Non, cet homme doit mourir, et sa dépouille doit m'appartenir! »
 
 L'homme d'âge moyen de Xue Yu fut surpris. Il tourna la tête vers l'ancêtre; c'était la première fois qu'il exprimait le désir de récupérer le cadavre.
 
-Sun Tai ricana: « Tu n'es pas membre de ma Secte des Cadavres. Quel intérêt aurais-tu pour un corps?! »
+Sun Tai ricana: « Tu n'es pas membre de ma Secte Shi Yin. Quel intérêt aurais-tu pour un corps?! »
 
-L'ancêtre du Clan des Démons Géants fixa Sun Tai et trancha: « J'ai mes propres raisons! »
+L'ancêtre du Clan Ju Mo fixa Sun Tai et trancha: « J'ai mes propres raisons! »
 
 Il en avait effectivement une. Même si l'homme de Xue Yu n'était pas venu le solliciter, il aurait agi secrètement pour tuer Wang Lin.
 
@@ -97,7 +97,7 @@ Il savait que le vrai nom de Ceng Niu était Wang Lin!
 
 Récupérer la boussole stellaire n'était qu'un prétexte pour éliminer Wang Lin. La véritable raison résidait dans l'information rapportée par un membre du clan envoyé il y a 500 ans dans le pays de Zhao pour ouvrir le passage vers le champ de bataille étranger!
 
-« La perle défiant le ciel est un trésor que même l'Alliance des Cultivateurs convoite! Si mon Clan des Démons Géants l'obtient et la remet à l'Alliance, nous obtiendrons certainement le rang 6. Nous pourrons alors quitter la planète Suzaku et fonder la planète des Démons Géants. Ma branche des Démons Géants acquerrait alors la qualification d'un clan Ascendant. »
+« La perle défiant le ciel est un trésor que même l'Alliance Xiu Zhen convoite! Si mon Clan Ju Mo l'obtient et la remet à l'Alliance, nous obtiendrons certainement le rang 6. Nous pourrons alors quitter la planète Suzaku et fonder la planète des Démons Géants. Ma branche des Démons Géants acquerrait alors la qualification d'un clan Ascendant. »
 
 « La perle défiant le ciel a été obtenue par ce Wang Lin! » Toutes ces pensées traversèrent son esprit. Il s'était fait une certitude: personne ne volerait Wang Lin aujourd'hui!
 
@@ -127,9 +127,9 @@ L'homme d'âge moyen s'élança rapidement. Il sortit une cloche en bronze, prê
 
 Mais Sun Tai hurla: « Dégage! » Une force jaillit de son corps, faisant hésiter l'homme d'âge moyen.
 
-« Oses-tu?! » L'ancêtre du Clan des Démons Géants lança un coup de poing. Un vortex noir apparut soudainement et se referma sur Sun Tai.
+« Oses-tu?! » L'ancêtre du Clan Ju Mo lança un coup de poing. Un vortex noir apparut soudainement et se referma sur Sun Tai.
 
-La main droite de Sun Tai pointa le cercueil suspendu dans les airs. Le couvercle bougea légèrement et un corps momifié s'en échappa pour affronter l'ancêtre du Clan des Démons Géants.
+La main droite de Sun Tai pointa le cercueil suspendu dans les airs. Le couvercle bougea légèrement et un corps momifié s'en échappa pour affronter l'ancêtre du Clan Ju Mo.
 
 Sun Tai profita de cette diversion pour tendre la main et saisir Wang Lin. Ce dernier était extrêmement faible; ses yeux étaient clos et son visage d'une pâleur mortelle.
 
@@ -137,9 +137,9 @@ Sans un mot, Sun Tai fit volte-face et s'engouffra dans la faille.
 
 L'expression de l'homme d'âge moyen était troublée. Il hésita un instant, puis resta immobile.
 
-Comment l'ancêtre du Clan des Démons Géants pouvait-il laisser ce "morceau de choix" lui être volé ainsi? Il poussa un rugissement alors que son corps craquait et qu'il grandissait soudainement pour atteindre plus de 33 mètres de haut. Une hache gigantesque apparut dans sa main. Après avoir poursuivi Sun Tai dans la faille, il abattit son arme, provoquant un grondement tonitruant dans le vide.
+Comment l'ancêtre du Clan Ju Mo pouvait-il laisser ce "morceau de choix" lui être volé ainsi? Il poussa un rugissement alors que son corps craquait et qu'il grandissait soudainement pour atteindre plus de 33 mètres de haut. Une hache gigantesque apparut dans sa main. Après avoir poursuivi Sun Tai dans la faille, il abattit son arme, provoquant un grondement tonitruant dans le vide.
 
-Une immense vague d'énergie de hache jaillit, assombrissant le visage de Sun Tai. Il savait que le Clan des Démons Géants était une puissance redoutable. Sa main droite traça un sceau qu'il projeta contre l'onde de choc.
+Une immense vague d'énergie de hache jaillit, assombrissant le visage de Sun Tai. Il savait que le Clan Ju Mo était une puissance redoutable. Sa main droite traça un sceau qu'il projeta contre l'onde de choc.
 
 Boum!
 

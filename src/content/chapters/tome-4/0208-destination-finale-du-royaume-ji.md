@@ -20,7 +20,7 @@ Cette bête se nourrissait principalement d'énergie spirituelle. Son attaque co
 
 L'homme âgé, qui s'était montré si loquace en maudissant, sortit une grande gourde sale. Après avoir bu une longue gorgée, il recommença à jurer. Il ne daigna même pas regarder le bateau sur lequel se trouvaient Wang Lin et Qiu Siping.
 
-La sueur perlait sur le front de Qiu Siping. Il contrôlait avec précaution l'embarcation pour contourner lentement l'homme âgé. Ce n'est qu'après s'être éloigné de lui qu'il laissa enfin échapper un soupir et se tourna vers Wang Lin. Il dit: « Puisque cet individu peut utiliser un Xuanwu comme monture, sa culture doit être à un niveau inimaginable. Il semble que les bouleversements de la Mer des Démons aient favorisé l'émergence de nombreux anciens puissants. Heureusement qu'il ne s'est pas soucié de nous, sinon nous serions perdus. »
+La sueur perlait sur le front de Qiu Siping. Il contrôlait avec précaution l'embarcation pour contourner lentement l'homme âgé. Ce n'est qu'après s'être éloigné de lui qu'il laissa enfin échapper un soupir et se tourna vers Wang Lin. Il dit: « Puisque cet individu peut utiliser un Xuanwu comme monture, sa culture doit être à un niveau inimaginable. Il semble que les bouleversements de la Mer Xiu Mo aient favorisé l'émergence de nombreux anciens puissants. Heureusement qu'il ne s'est pas soucié de nous, sinon nous serions perdus. »
 
 Wang Lin regarda Qiu Siping et dit, l'expression sombre: « Ce n'est peut-être pas si simple. »
 
@@ -160,7 +160,7 @@ La pièce était totalement vide, à l'exception d'un réseau circulaire au cent
 
 Wang Lin comprit immédiatement de quoi il s'agissait: un réseau de transfert capable de déplacer instantanément des individus sur plus de cinq cent mille kilomètres!
 
-Qiu Siping tourna la tête vers le dispositif et dit d'un ton neutre: « C'est un ancien réseau de transfert. Lorsque mon maître a découvert cette grotte, il l'a trouvé également. Bien qu'il soit parfaitement conservé grâce à l'abri de la grotte, son activation requiert des pierres spirituelles de qualité supérieure. Je n'ai jamais entendu parler d'une telle ressource dans la Mer des Démons, je ne l'ai donc jamais utilisé. »
+Qiu Siping tourna la tête vers le dispositif et dit d'un ton neutre: « C'est un ancien réseau de transfert. Lorsque mon maître a découvert cette grotte, il l'a trouvé également. Bien qu'il soit parfaitement conservé grâce à l'abri de la grotte, son activation requiert des pierres spirituelles de qualité supérieure. Je n'ai jamais entendu parler d'une telle ressource dans la Mer Xiu Mo, je ne l'ai donc jamais utilisé. »
 
 Wang Lin garda le silence, mais une excitation secrète l'envahit. Depuis qu'il avait quitté le pays de l'ancien dieu, l'un de ses objectifs majeurs était de trouver un tel réseau, ce qu'il n'avait pu faire à la ville de Qilin.
 
@@ -300,7 +300,7 @@ C'était un choix déchirant. L'auteur du message avait suggéré une idée pour
 
 Ce cultivateur n'avait finalement pas choisi cette voie.
 
-Désormais, Wang Lin faisait face à ce dilemme. S'il ne renonçait pas, il resterait bloqué, entravé par son propre pouvoir. Mais s'il acceptait, les 400 années de labeur acharné seraient perdues. De plus, dans la Mer des Démons, il risquait de mourir avant même que sa culture ne retrouve son niveau initial.
+Désormais, Wang Lin faisait face à ce dilemme. S'il ne renonçait pas, il resterait bloqué, entravé par son propre pouvoir. Mais s'il acceptait, les 400 années de labeur acharné seraient perdues. De plus, dans la Mer Xiu Mo, il risquait de mourir avant même que sa culture ne retrouve son niveau initial.
 
 Après un long silence, une lueur de détermination jaillit de ses yeux. Il prit une profonde inspiration, rangea le bambou et sortit lentement de la grotte.
 

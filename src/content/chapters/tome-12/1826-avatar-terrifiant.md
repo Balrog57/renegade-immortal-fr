@@ -56,7 +56,7 @@ Des rafales d'énergie céleste jaillirent de l'objet. Dès son apparition, mêm
 
 La jeune femme déploya le parapluie en un éclair. Il était assez vaste pour recouvrir tout son corps. L'anneau de fumée formé par le véritable corps d'essence de Wang Lin percuta alors le parapluie bleu.
 
-De nouveaux grondements tonitruants éclatèrent et la terre trembla violemment. Les vibrations remontèrent jusqu'à la surface, faisant chanceler l'ensemble de la Secte de la Grande Âme et même les montagnes alentour, tandis que des fissures béantes s'ouvraient dans le sol.
+De nouveaux grondements tonitruants éclatèrent et la terre trembla violemment. Les vibrations remontèrent jusqu'à la surface, faisant chanceler l'ensemble de la Secte Da Hun et même les montagnes alentour, tandis que des fissures béantes s'ouvraient dans le sol.
 
 L'anneau de fumée se brisa, mais lors de sa destruction, un cri aigu, semblable à celui d'une créature grièvement blessée, jaillit du parapluie bleu. Ce cri provenait de l'esprit même de l'objet.
 
@@ -90,7 +90,7 @@ Les yeux de Wang Lin s'illuminèrent et il laissa échapper un reniflement froid
 
 Toute la veine de feu terrestre trembla. La veine principale était si vaste que, même privée de l'âme du dragon, elle ne se tarirait pas de sitôt. Sous cette frappe de Wang Lin, une volonté de l'origine du feu s'engouffra dans la veine.
 
-La veine de feu tout entière entra en ébullition et une mer de flammes monstrueuse éclata. Cette mer étant d'une ampleur démesurée, les montagnes de la Secte de la Grande Âme semblèrent immédiatement s'embraser, et le feu terrestre se diffusa même dans les environs.
+La veine de feu tout entière entra en ébullition et une mer de flammes monstrueuse éclata. Cette mer étant d'une ampleur démesurée, les montagnes de la Secte Da Hun semblèrent immédiatement s'embraser, et le feu terrestre se diffusa même dans les environs.
 
 « Empreinte de l'Esprit Guerrier! » Wang Lin leva la main droite et toute l'essence de feu restante dans la veine se rassembla frénétiquement de toutes parts pour former une empreinte de paume géante!
 
@@ -98,10 +98,10 @@ Simultanément, le véritable corps d'essence de Wang Lin s'anima et une emprein
 
 D'un mouvement de la main droite, il projeta les deux empreintes vers la jeune femme. Sans attendre de voir le résultat, Wang Lin fit un pas, provoquant des ondulations dans l'espace, et disparut instantanément.
 
-La terre trembla et la mer de feu rugit. Un fracas assourdissant secoua une partie du Continent du Taureau Céleste, faisant frémir le cœur d'innombrables cultivateurs. Un hurlement de rage, aigu et strident, résonna dans les profondeurs de la terre.
+La terre trembla et la mer de feu rugit. Un fracas assourdissant secoua une partie du Continent Tian Niu, faisant frémir le cœur d'innombrables cultivateurs. Un hurlement de rage, aigu et strident, résonna dans les profondeurs de la terre.
 
-À cet instant, Wang Lin s'était déjà fusionné avec le monde et avait utilisé la Déformation Spatiale pour réapparaître sur la Montagne Céleste, à l'extérieur de la Secte de la Grande Âme.
+À cet instant, Wang Lin s'était déjà fusionné avec le monde et avait utilisé la Déformation Spatiale pour réapparaître sur la Montagne Céleste, à l'extérieur de la Secte Da Hun.
 
 « Le véritable corps d'essence de feu est formé. Bien que mon niveau de culture n'ait pas évolué, ma force a doublé! Je ne peux pas encore égaler un cultivateur au stade initial de la Tribulation du Vide, mais j'ai désormais les moyens de me protéger! Si la situation devenait critique et que j'utilisais le Dao Antique, "Aucun Céleste", ainsi que le Dao du Feu Extrême, je pourrais tuer un cultivateur de la Tribulation du Vide... Mais le prix serait bien trop lourd... » Tandis qu'il se tenait sur la montagne, ses yeux brillaient d'une lueur intense. Des ondulations apparurent sous ses pieds alors qu'il s'apprêtait à partir.
 
-« Petit ami, vous êtes venu en invité dans ma Secte de la Grande Âme et vous partez déjà? » Une voix antique résonna derrière lui.
+« Petit ami, vous êtes venu en invité dans ma Secte Da Hun et vous partez déjà? » Une voix antique résonna derrière lui.

@@ -44,7 +44,7 @@ Li Muwan sortit un morceau de jade de son sac de rangement et le plaça sur son 
 
 Shang Guanmo accepta promptement. Il sentait qu'il s'était trompé en l'observant auparavant; la relation entre ce démon et cette jeune fille n'était pas celle qu'il avait imaginée.
 
-Dans sa chambre secrète, Li Muwan s'assit calmement sur le sol tandis que les souvenirs de ces dernières années défilaient devant ses yeux. Depuis l'époque où elle était pourchassée par ce cultivateur au stade de la Formation du Noyau du pays de Xuan Wu, jusqu'à son sauvetage par Wang Lin et leur fuite commune. Puis, la traque par les bêtes de feu et leur traversée périlleuse vers la Mer des Démons. La création de cette grotte où elle se consacrait à l'alchimie tandis qu'il se concentrait sur sa culture... jusqu'à son départ de trois ans, pendant lequel il lui avait rapporté un fourneau à pilules. À son retour, il était poursuivi par des cultivateurs de la Formation du Noyau. Puis, il avait réussi à atteindre ce stade et à se frayer un chemin dans un bain de sang.
+Dans sa chambre secrète, Li Muwan s'assit calmement sur le sol tandis que les souvenirs de ces dernières années défilaient devant ses yeux. Depuis l'époque où elle était pourchassée par ce cultivateur au stade de la Formation du Noyau du pays de Xuan Wu, jusqu'à son sauvetage par Wang Lin et leur fuite commune. Puis, la traque par les bêtes de feu et leur traversée périlleuse vers la Mer Xiu Mo. La création de cette grotte où elle se consacrait à l'alchimie tandis qu'il se concentrait sur sa culture... jusqu'à son départ de trois ans, pendant lequel il lui avait rapporté un fourneau à pilules. À son retour, il était poursuivi par des cultivateurs de la Formation du Noyau. Puis, il avait réussi à atteindre ce stade et à se frayer un chemin dans un bain de sang.
 
 Alors que Wang Lin atteignait le stade de la Formation du Noyau, elle, jeune fille fragile, se trouvait seule face à dix cultivateurs démoniaques de la Formation du Noyau. Au moment même où elle allait se briser elle-même les méridiens du cœur, Wang Lin était soudain apparu et ses adversaires avaient pris la fuite pour sauver leur vie. Elle n'avait pu supporter ce revirement brutal. Elle avait failli tomber, mais il l'avait finalement serrée dans ses bras.
 
@@ -84,7 +84,7 @@ Une fois entré, le vieil homme ne prit même pas garde aux alentours et s'assit
 
 À ce moment-là, le brouhaha reprit dans l'auberge.
 
-À une table voisine, quelques cultivateurs aux visages inquiets chuchotaient: « Ce démon s'est frayé un chemin jusqu'ici et a combattu Jie Donglei de la Secte de la Lutte contre le Mal, au mont du Dragon, pendant trois jours et trois nuits. Finalement, il a utilisé un mystérieux trésor magique pour terrasser Jie Donglei en un instant, avant de suppliciter son corps pendant sept jours et sept nuits. Héhé, je parie que la ville de Nan Dou aura un nouveau maître. »
+À une table voisine, quelques cultivateurs aux visages inquiets chuchotaient: « Ce démon s'est frayé un chemin jusqu'ici et a combattu Jie Donglei de la Secte Dou Xie, au mont du Dragon, pendant trois jours et trois nuits. Finalement, il a utilisé un mystérieux trésor magique pour terrasser Jie Donglei en un instant, avant de suppliciter son corps pendant sept jours et sept nuits. Héhé, je parie que la ville de Nan Dou aura un nouveau maître. »
 
 L'expression du vieil homme changea à l'évocation d'un « mystérieux trésor magique ».
 
@@ -96,7 +96,7 @@ Un jeune homme au visage froid prit une gorgée et ricana: « Taisez-vous donc. 
 
 Dès que le vieil homme entendit les mots « sort de la mort », ses yeux s'illuminèrent instantanément.
 
-Le jeune homme ricana en prenant une autre gorgée: « À mon avis, puisque cet homme est sous le coup de l'ordre de mise à mort des dix mille démons, s'il se trouve encore dans la Mer des Démons, sa fin est proche. Pour l'instant, aucun cultivateur de l'Âme Naissante n'est près de la ville, mais une fois la nouvelle répandue, ils pourraient débarquer ici. Si j'étais lui, je trouverais un endroit où me terrer pendant ces cent jours. »
+Le jeune homme ricana en prenant une autre gorgée: « À mon avis, puisque cet homme est sous le coup de l'ordre de mise à mort des dix mille démons, s'il se trouve encore dans la Mer Xiu Mo, sa fin est proche. Pour l'instant, aucun cultivateur de l'Âme Naissante n'est près de la ville, mais une fois la nouvelle répandue, ils pourraient débarquer ici. Si j'étais lui, je trouverais un endroit où me terrer pendant ces cent jours. »
 
 « L'ordre de mise à mort de cent jours?! » Les yeux du vieil homme s'illuminèrent encore davantage. Sa main droite jaillit et le visage du jeune homme devint brusquement rouge alors que son cou était saisi par une force invisible et tiré vers l'avant.
 

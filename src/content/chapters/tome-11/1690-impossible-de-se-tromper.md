@@ -16,7 +16,7 @@ Il disposait également du Conseil Souverain. D'un seul mot, il pouvait déclenc
 
 Même dans le Royaume Intérieur, son nom était célèbre. Quiconque connaissait son nom en était saisi de crainte. Tout ce qui s'était produit jusqu'ici révélait à quel point il était rusé et insaisissable!
 
-Depuis qu'il avait réuni de puissants cultivateurs pour éliminer le Seigneur du Royaume Scellé, jusqu'à l'arrivée du Clan du Tatouage pour tourmenter Qing Lin, en passant par la destruction des quatre Royaumes Célestes... Enfin, il avait semé de nombreux grains dans le Royaume Intérieur. Zhan Xingye, le disciple principal de la Secte Brisant les Cieux de la Mer des Nuages, et le Shui Daozi: tous ces hommes avaient été manipulés par le Souverain.
+Depuis qu'il avait réuni de puissants cultivateurs pour éliminer le Seigneur du Royaume Scellé, jusqu'à l'arrivée du Clan Fu Wen pour tourmenter Qing Lin, en passant par la destruction des quatre Royaumes Célestes... Enfin, il avait semé de nombreux grains dans le Royaume Intérieur. Zhan Xingye, le disciple principal de la Secte Brisant les Cieux de la Mer Yun, et le Shui Daozi: tous ces hommes avaient été manipulés par le Souverain.
 
 Il avait déclenché de multiples guerres entre les Royaumes Intérieur et Extérieur. Le nombre de cultivateurs morts par sa main aurait suffi à couvrir un système stellaire entier.
 
@@ -38,7 +38,7 @@ Ce rugissement frappa le Souverain tel une épée tranchante. Cela le fit crache
 
 Cet incident passait encore pour un accident. Bien que le Souverain se sentît frustré, il en comprenait au moins la cause.
 
-Pourtant, cela ne s'arrêta pas là. Il y eut une troisième rencontre entre lui et Wang Lin. Sur le champ de bataille de la Mer des Nuages, il avait chargé son disciple d'apporter l'Arc Li Guang dans le Royaume Intérieur pour attirer le Vieux Fantôme Zhan. Les deux combattirent, mais l'arc finit entre les mains de Wang Lin. Ce qui le plongea dans l'amertume fut que Wang Lin réussit, par la suite, à mettre la main sur la flèche.
+Pourtant, cela ne s'arrêta pas là. Il y eut une troisième rencontre entre lui et Wang Lin. Sur le champ de bataille de la Mer Yun, il avait chargé son disciple d'apporter l'Arc Li Guang dans le Royaume Intérieur pour attirer le Vieux Fantôme Zhan. Les deux combattirent, mais l'arc finit entre les mains de Wang Lin. Ce qui le plongea dans l'amertume fut que Wang Lin réussit, par la suite, à mettre la main sur la flèche.
 
 Pourtant, même à ce moment-là, le Souverain ne se souciait guère de Wang Lin. Il pensait toujours que ces incidents n'étaient que des coïncidences. Même si Wang Lin possédait l'arc et la flèche, il ne pourrait pas en déployer toute la puissance en raison de sa lignée. Tant que le Souverain voudrait tuer Wang Lin, ce serait aussi simple que de retourner sa paume!
 

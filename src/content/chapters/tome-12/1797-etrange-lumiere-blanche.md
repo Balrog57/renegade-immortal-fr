@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1797 - Strange White Light
 slug: etrange-lumiere-blanche
 ---
-Continent Astral Immortel, Continent de l'Est, la Montagne de la Secte des Sept Dao sur le Continent du Taureau Céleste. Xuan Luo était assis devant le pavillon, au sommet d'une montagne noire enveloppée de brume, et cela faisait plusieurs années qu'il attendait.
+Continent Astral Immortel, Continent de l'Est, la Montagne de la Secte Qi Dao sur le Continent Tian Niu. Xuan Luo était assis devant le pavillon, au sommet d'une montagne noire enveloppée de brume, et cela faisait plusieurs années qu'il attendait.
 
 Six mois s'étaient écoulés depuis l'échéance des dix ans de l'accord conclu avec Wang Lin, mais Xuan Luo n'était pas parti, bien que la marque rouge entre ses sourcils ait totalement disparu.
 
@@ -74,7 +74,7 @@ Il ressemblait à tous ces corps qu'il avait vus dériver éternellement dans ce
 
 Un an, deux ans, trois ans… Une durée indéterminée passa. Les yeux de Wang Lin restaient clos, comme s'il était mort.
 
-Sur le Continent Astral Immortel, au sein de la Secte des Sept Dao, Xuan Luo poussa un soupir et se leva. En comptant le temps déjà écoulé, il attendait depuis quinze ans.
+Sur le Continent Astral Immortel, au sein de la Secte Qi Dao, Xuan Luo poussa un soupir et se leva. En comptant le temps déjà écoulé, il attendait depuis quinze ans.
 
 Ce n'était pas qu'il ne voulait plus attendre, mais une puissante vague d'énergie céleste, l'empêchant de rester, provenait du lointain. L'énergie n'était pas encore arrivée, mais un grondement de tonnerre résonna déjà dans le ciel. Un soleil doré apparut à l'horizon, et une silhouette s'y tenait debout.
 
@@ -90,11 +90,11 @@ Plusieurs années passèrent encore. Certains êtres se réincarnaient sur le Co
 
 Même Xuan Luo ne comprenait pas pourquoi un tel écart existait.
 
-Cette année-là, un enfant naquit dans une ville mortelle du Continent de l'Ouest… Cet enfant était très singulier. À l'âge de six ou sept ans, il aimait se proclamer prince dès qu'il jouait avec ses compagnons...
+Cette année-là, un enfant naquit dans une ville mortelle du Continent Xi Zhou… Cet enfant était très singulier. À l'âge de six ou sept ans, il aimait se proclamer prince dès qu'il jouait avec ses compagnons...
 
 Si un autre enfant refusait de le suivre, il le frappait ou lui donnait des coups de pied. Il était extrêmement féroce, et ses camarades finirent par avoir peur de lui. Ils commencèrent peu à peu à jouer au jeu du prince selon ses règles.
 
-Sur le Continent du Sud du Continent Astral Immortel, un enfant naquit également, à une certaine année. Lui aussi était remarquable. Bien que sa famille ait été brisée dès son plus jeune âge, à dix ans, il était déjà un escroc célèbre dans sa ville.
+Sur le Continent Nan du Continent Astral Immortel, un enfant naquit également, à une certaine année. Lui aussi était remarquable. Bien que sa famille ait été brisée dès son plus jeune âge, à dix ans, il était déjà un escroc célèbre dans sa ville.
 
 Cependant, lorsqu'un escroc devient célèbre, ce n'est guère une bonne chose pour lui. En conséquence, cet enfant quitta son foyer prématurément pour exercer son talent d'escroc ailleurs.
 

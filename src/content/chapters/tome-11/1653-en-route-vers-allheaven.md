@@ -56,7 +56,7 @@ Le continent commença à s'effondrer de nouveau. D'énormes blocs rocheux se d�
 
 Les cultivateurs du Royaume Extérieur restants sur le continent s'écroulèrent, et d'innombrables vies furent fauchées. Seuls les plus puissants purent rester assis et résister à cette pression. Leurs visages étaient d'une pâleur mortelle et le désespoir se lisait dans leurs regards.
 
-« Le massacre de la Mer des Nuages est terminé! » Wang Lin ferma les yeux et agita sa main droite.
+« Le massacre de la Mer Yun est terminé! » Wang Lin ferma les yeux et agita sa main droite.
 
 La roue de la vie et de la mort descendit soudainement de neuf pouces supplémentaires vers le continent en décomposition! À cet instant, le vieil homme au fond du gouffre poussa son dernier cri déchirant.
 
@@ -70,7 +70,7 @@ Même la moitié du continent qui avait pénétré dans la Formation de Scelleme
 
 Dès que Wang Lin ouvrit les yeux, des milliers de têtes, y compris celle du vieil homme de la troisième étape, volèrent vers lui. Elles rejoignirent la nuée de dizaines de milliers de crânes qui le suivaient.
 
-Il jeta un dernier regard sur la Mer des Nuages avant de se diriger vers sa destination finale!
+Il jeta un dernier regard sur la Mer Yun avant de se diriger vers sa destination finale!
 
 Cet endroit était Luotian. C'était là que se trouvaient beaucoup de personnes familières pour Wang Lin. C'était là que la bataille ultime devait se jouer!
 

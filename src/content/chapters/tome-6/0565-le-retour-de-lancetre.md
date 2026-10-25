@@ -58,7 +58,7 @@ Puis le général démon ajouta lentement: « Je peux te le rendre car tu es mon
 
 Le visage de Wang Lin resta de marbre: « Que veux-tu? »
 
-Le général démon répondit posément: « Dans trois mois, je dois retourner à la capitale du Pays du Démon Céleste pour un compte rendu. Durant cette période, une compétition aura lieu entre les généraux démons. Si tu promets de m'aider, j'oublierai le massacre de mes soldats. Sinon, même si je meurs, tu ne pourras jamais prendre pied dans ce pays! »
+Le général démon répondit posément: « Dans trois mois, je dois retourner à la capitale du Pays Tian Yao pour un compte rendu. Durant cette période, une compétition aura lieu entre les généraux démons. Si tu promets de m'aider, j'oublierai le massacre de mes soldats. Sinon, même si je meurs, tu ne pourras jamais prendre pied dans ce pays! »
 
 À cet instant, il considérait Wang Lin comme son égal. Sans compter cette paume illusoire, le simple fait que Wang Lin ait pu briser son coup de poing des dix effondrements et résister à la Mer Démoniaque aux Cent Vagues fit bondir sa considération pour lui!
 
@@ -100,7 +100,7 @@ Ces derniers restèrent silencieux, levant la tête vers la direction prise par 
 
 Wang Lin flottait dans les airs et déploya son Sens Divin. Il localisa la Prison des Ténèbres à l'intérieur de la ville et apparut devant elle, portant Treize inconscient.
 
-Cette Prison des Ténèbres était souterraine, sous la Cité de l'Ancien Démon. Bien que des restrictions protégeaient toute la zone, aucune, hormis celles situées dans les profondeurs de la prison, ne pouvait arrêter Wang Lin.
+Cette Prison des Ténèbres était souterraine, sous la Cité Gu Yao. Bien que des restrictions protégeaient toute la zone, aucune, hormis celles situées dans les profondeurs de la prison, ne pouvait arrêter Wang Lin.
 
 Vu le statut de Hu Pao, il ne pouvait pas être enfermé dans les profondeurs de la prison. Wang Lin déploya son Sens Divin mais ne trouva aucune trace de lui. Il poussa un soupir, puis disparut sans laisser de trace.
 

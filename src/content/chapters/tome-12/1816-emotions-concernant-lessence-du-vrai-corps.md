@@ -82,17 +82,17 @@ Après avoir bougé la tête, Wang Lin avança. À chacun de ses pas, une ombre 
 
 Ce changement soudain fit haleter Du Qing.
 
-« Serait-ce le changement qui survient après l'obtention d'un corps véritable d'essence, une ombre qui suit le corps? J'ai vu une fois l'ancêtre de la Secte de la Grande Âme; lorsqu'il est apparu, c'était pareil, une ombre semblait toujours le suivre. Où qu'il aille, c'est ainsi, et surtout lorsqu'il utilise des techniques divines. »
+« Serait-ce le changement qui survient après l'obtention d'un corps véritable d'essence, une ombre qui suit le corps? J'ai vu une fois l'ancêtre de la Secte Da Hun; lorsqu'il est apparu, c'était pareil, une ombre semblait toujours le suivre. Où qu'il aille, c'est ainsi, et surtout lorsqu'il utilise des techniques divines. »
 
 Wang Lin fronça les sourcils. Il semblait avoir remarqué la modification de son corps après la formation de son corps véritable d'essence. Après une courte réflexion, l'ombre derrière lui commença à s'estomper jusqu'à disparaître.
 
-« Retournons à la Secte du Dragon Bleu. Je dois m'y installer quelque temps. » Wang Lin regarda Du Qing.
+« Retournons à la Secte Cang Long. Je dois m'y installer quelque temps. » Wang Lin regarda Du Qing.
 
 En entendant cela, le moral de Du Qing remonta instantanément et il sourit. Il joignit les mains en signe de respect: « C'est un honneur. Le Camarade Cultivateur Wang peut être rassuré. J'enverrai tous mes disciples chercher les veines de feu terrestre du dragon et je chargerai les Anciens de les extraire pour votre usage. »
 
 L'expression de Wang Lin resta impassible tandis qu'il hochait lentement la tête. Il se transforma en un rayon de lumière aux côtés de Du Qing et partit. Sous les montagnes, la veine de feu terrestre enfantine s'étiola lentement.
 
-Dans le Continent du Taureau Céleste, deux rayons de lumière traversèrent rapidement le ciel. Le niveau de culture de Du Qing étant plus élevé, il était naturellement plus rapide que Wang Lin. En avançant, Du Qing jeta un coup d'œil à Wang Lin et commença à réfléchir.
+Dans le Continent Tian Niu, deux rayons de lumière traversèrent rapidement le ciel. Le niveau de culture de Du Qing étant plus élevé, il était naturellement plus rapide que Wang Lin. En avançant, Du Qing jeta un coup d'œil à Wang Lin et commença à réfléchir.
 
 « Quel est le niveau de culture de cet homme... Il semble être au sommet du Vide Spirituel, mais il a pu encaisser deux de mes attaques sans que cela ne semble être son plein potentiel... Bien que le niveau de culture puisse être dissimulé, la vitesse est aussi un bon indicateur... Voyons à quelle vitesse il est capable d'aller! » Du Qing réfléchit silencieusement et augmenta lentement sa cadence. Il dépassa Wang Lin, creusant la distance entre eux.
 

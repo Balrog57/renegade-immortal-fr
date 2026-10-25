@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1865 - Trapped!"
 slug: piege
 ---
-Xu Decai s'envola vers l'horizon au-dessus de la Prairie du Ciel Extrême, l'esprit sombre. Lors de son combat contre Wang Lin, il avait perdu son Dao Céleste, une perte qu'il peinait à accepter. Le lien qui l'unissait au Dao Céleste avait été rompu lorsque celui-ci avait été dévoré, ce qui lui avait infligé de graves blessures.
+Xu Decai s'envola vers l'horizon au-dessus de la Prairie Ji Tian, l'esprit sombre. Lors de son combat contre Wang Lin, il avait perdu son Dao Céleste, une perte qu'il peinait à accepter. Le lien qui l'unissait au Dao Céleste avait été rompu lorsque celui-ci avait été dévoré, ce qui lui avait infligé de graves blessures.
 
 À cet instant, son âme originelle était si affaiblie qu'il lui faudrait un certain temps pour se rétablir.
 
@@ -32,7 +32,7 @@ Au moment précis de sa disparition, la cultivatrice du stade initial de la Trib
 
 Elle vit le point représentant Xu Decai s'évanouir soudainement!
 
-« Ceci... ceci est... » Le visage de la femme pâlit instantanément et ses yeux se remplirent d'incrédulité. Sans hésiter, elle transmit cette nouvelle par une méthode spéciale aux trois cultivateurs de la Tribulation du Vide présents dans la Prairie du Ciel Extrême!
+« Ceci... ceci est... » Le visage de la femme pâlit instantanément et ses yeux se remplirent d'incrédulité. Sans hésiter, elle transmit cette nouvelle par une méthode spéciale aux trois cultivateurs de la Tribulation du Vide présents dans la Prairie Ji Tian!
 
 L'expression des deux cultivateurs du stade intermédiaire était extrêmement sombre alors qu'ils volaient. Tous deux avaient poursuivi la boussole pour finalement réaliser qu'ils avaient été dupés. Ils étaient furieux, mais n'avaient aucun exutoire pour leur colère.
 
@@ -48,17 +48,17 @@ Sous cette averse dense, une brume noire et épaisse s'éleva du sol, recouvrant
 
 Les vieillards Zhang et Zhao regardèrent soudainement autour d'eux. Une pression invisible se propageait depuis cette étendue infinie.
 
-La cultivatrice du stade initial de la Tribulation du Vide, qui se trouvait encore à distance des deux hommes, trembla et s'immobilisa brusquement dans les airs, son expression changeant et laissant poindre une stupeur évidente. Grâce à la méthode de communication utilisée par les cultivateurs du Continent du Démon Vert, elle apprit la disparition d'Xu Decai.
+La cultivatrice du stade initial de la Tribulation du Vide, qui se trouvait encore à distance des deux hommes, trembla et s'immobilisa brusquement dans les airs, son expression changeant et laissant poindre une stupeur évidente. Grâce à la méthode de communication utilisée par les cultivateurs du Continent Lu Mo, elle apprit la disparition d'Xu Decai.
 
 Simultanément, elle vit la brume émanant de la terre envahir le monde. Des hurlements incessants s'élevaient de la brume.
 
-À l'intérieur de ce brouillard, les milliers de cultivateurs du Continent du Taureau Céleste, dans les palais souterrains, lancèrent une seconde attaque sous la direction de Lu Wenran.
+À l'intérieur de ce brouillard, les milliers de cultivateurs du Continent Tian Niu, dans les palais souterrains, lancèrent une seconde attaque sous la direction de Lu Wenran.
 
 Les trois cultivateurs de la Tribulation du Vide tentèrent de s'extraire de la brume, mais la voix sombre de Lu Wenran résonna:
 
 « Cher compagnon, pourquoi cette hâte de partir? » Tandis que ses paroles résonnaient, tous les cultivateurs de la Tribulation du Vide du palais souterrain surgirent et le combat éclata.
 
-À la lisière de la Prairie du Ciel Extrême, la femme contrôlant la boussole ouvrit soudainement les yeux. Sans hésiter, elle agita sa manche et guida les milliers de cultivateurs du Continent du Démon Vert vers la prairie.
+À la lisière de la Prairie Ji Tian, la femme contrôlant la boussole ouvrit soudainement les yeux. Sans hésiter, elle agita sa manche et guida les milliers de cultivateurs du Continent Lu Mo vers la prairie.
 
 Tandis que la seconde bataille faisait rage sur la plaine, un rocher d'apparence banale, auquel personne ne prêtait attention, reposait quelque part dans l'herbe.
 

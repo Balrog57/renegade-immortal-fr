@@ -8,13 +8,13 @@ slug: la-neuvieme-essence
 ---
 Il décida d'attendre. Il lui restait encore près de soixante ans à vivre. Il ne voulait pas que, durant ces cinquante dernières années, tous les tributs préparés par sa famille au fil des générations servent de dot à quelqu'un d'autre.
 
-Quatre-vingts ans étaient suffisants pour une vie entière. Wang Lin passa ces quatre-vingts années dans le Temple du Scorpion Vert.
+Quatre-vingts ans étaient suffisants pour une vie entière. Wang Lin passa ces quatre-vingts années dans le Temple Lu Mo Xie.
 
 Durant cette période, il ne put absorber aucune énergie ni pratiquer la culture. Il ne pouvait qu'attendre sous la protection de la Perle Défiant le Ciel. À force d'attendre en silence, il semblait se transformer en vieillard. Beaucoup de choses et de souvenirs commençaient à s'estomper.
 
 C'était comme si une couche de brouillard l'empêchait de voir clair, ou plus précisément, comme si ses souvenirs étaient scellés.
 
-Il oubliait énormément de choses, qu'il s'agisse du Continent du Taureau Céleste ou du monde des grottes. Il finit même par oublier lentement le danger dans lequel il se trouvait. Il se trouvait dans un état indescriptible où il semblait ne faire qu'un avec le monde, sans pour autant qu'il s'agisse d'une distorsion spatiale.
+Il oubliait énormément de choses, qu'il s'agisse du Continent Tian Niu ou du monde des grottes. Il finit même par oublier lentement le danger dans lequel il se trouvait. Il se trouvait dans un état indescriptible où il semblait ne faire qu'un avec le monde, sans pour autant qu'il s'agisse d'une distorsion spatiale.
 
 Cependant, dans son esprit, certaines silhouettes demeuraient, qu'il ne pouvait et ne voulait oublier... Parmi elles figuraient ses parents et cette jeune fille au sourire doux jouant de la cithare...
 
@@ -38,11 +38,11 @@ Peu après, le son de sa toux s'estompa dans le bâtiment des scorpions.
 
 Dans l'espace verdoyant, la silhouette frêle du vieil homme émergea des ondulations. Il observa le corps de Wang Lin, recouvert d'une multitude de scorpions, et réfléchit un instant.
 
-« Je ne sais pas si tu peux m'entendre. Si c'est le cas, ce vieil homme admire ta patience... Pouvoir endurer plus de cent ans dans un tel environnement, moi, je n'en serais pas capable... La bataille entre le Continent du Taureau Céleste et le Continent du Démon Vert a atteint son stade ultime, d'après ce que ressentent les Messagers du Démon Vert... » Le vieil homme marqua soudain une pause.
+« Je ne sais pas si tu peux m'entendre. Si c'est le cas, ce vieil homme admire ta patience... Pouvoir endurer plus de cent ans dans un tel environnement, moi, je n'en serais pas capable... La bataille entre le Continent Tian Niu et le Continent Lu Mo a atteint son stade ultime, d'après ce que ressentent les Messagers du Démon Vert... » Le vieil homme marqua soudain une pause.
 
 Après un long silence, sa voix résonna de nouveau dans cet espace vert.
 
-« Si tu peux m'entendre, si tu as vraiment tenu bon, alors j'espère qu'après avoir reçu cette immense fortune, tu ne rendras pas la vie trop difficile au Continent du Démon Vert... Si tu es capable de cela, même si ton esprit est toujours intact, ce vieil homme te remettra cette fortune sans l'ombre d'une hésitation! »
+« Si tu peux m'entendre, si tu as vraiment tenu bon, alors j'espère qu'après avoir reçu cette immense fortune, tu ne rendras pas la vie trop difficile au Continent Lu Mo... Si tu es capable de cela, même si ton esprit est toujours intact, ce vieil homme te remettra cette fortune sans l'ombre d'une hésitation! »
 
 Le vieil homme murmura, ses paroles empreintes d'une profonde lassitude.
 

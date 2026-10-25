@@ -26,7 +26,7 @@ Alors que toutes les âmes du Royaume Intérieur entraient dans la formation cir
 
 Dans son cri, la formation gronda et s'étendit avec frénésie. En tournant, elle grandit à un degré stupéfiant.
 
-Cette roue ne se contentait pas de bloquer la Mer des Nuages du Royaume Extérieur. Au lieu de cela, elle flottait sous le Royaume Intérieur et l'enveloppait entièrement. Si l'on regardait de loin, on pouvait le voir clairement.
+Cette roue ne se contentait pas de bloquer la Mer Yun du Royaume Extérieur. Au lieu de cela, elle flottait sous le Royaume Intérieur et l'enveloppait entièrement. Si l'on regardait de loin, on pouvait le voir clairement.
 
 Le Royaume Intérieur était comme un cercle, et à l'extérieur de ce cercle se trouvait le Royaume Extérieur.
 
@@ -60,7 +60,7 @@ Lorsque les âmes des mortels entrèrent dans la formation, leur force permit à
 
 Le Royaume Intérieur était désormais 40 % plus vaste qu'auparavant. À cet instant, la roue sembla atteindre une limite et cessa de progresser. Une explosion de lumière se propagea, semblant s'étendre à l'infini. L'ensemble du Royaume Intérieur parut être enveloppé dans un cylindre de lumière!
 
-Le corps de Wang Lin fusionna avec la formation au niveau de la Mer des Nuages, là où se trouvait auparavant la brèche. Le Fourneau Impérial apparut sous lui et il s'y assit. Il ferma les yeux et commença ses trois années de garde!
+Le corps de Wang Lin fusionna avec la formation au niveau de la Mer Yun, là où se trouvait auparavant la brèche. Le Fourneau Impérial apparut sous lui et il s'y assit. Il ferma les yeux et commença ses trois années de garde!
 
 Ce bouleversement avait provoqué une expansion de 40 % du Royaume Intérieur. Les quatre systèmes stellaires s'étaient agrandis et d'innombrables planètes de culture, dépourvues de cultivateurs, étaient apparues dans le Royaume Intérieur.
 
@@ -72,7 +72,7 @@ Cependant, pour le Royaume Extérieur, ce fut un coup terrible. Jusqu'à présen
 
 L'expression du Souverain était sombre et une froideur glaciale émanait de son regard. Sa peur de Wang Lin surpassait celle de l'être qui l'avait contraint à quitter le Royaume Intérieur d'un simple rugissement.
 
-« Miaoyin Daozun, Jiutian Mozun et la Grande Désolation sont tous piégés dans la Terre de l'Ancien Dieu avec la quatrième concubine... Si ces trois-là parviennent à sortir, ils pourraient être en mesure d'absorber ces tirs! » Le Souverain se leva, prêt à partir, puis s'arrêta. Ses yeux s'illuminèrent; il leva la main droite et un jade apparut.
+« Miaoyin Daozun, Jiutian Mozun et la Grande Désolation sont tous piégés dans la Terre Gu Shen avec la quatrième concubine... Si ces trois-là parviennent à sortir, ils pourraient être en mesure d'absorber ces tirs! » Le Souverain se leva, prêt à partir, puis s'arrêta. Ses yeux s'illuminèrent; il leva la main droite et un jade apparut.
 
 Il y déposa une parcelle de son Sens Divin, puis le lança. Le jade disparut sans laisser de trace.
 
@@ -88,7 +88,7 @@ Le visage du Souverain était maussade, une étincelle de froideur dans les yeux
 
 « Et il y a aussi Lanmeng Daozun. Le corps de la cinquième concubine est celui de sa femme, et l'âme de celle-ci existe toujours en elle... » Le Souverain réfléchit silencieusement un instant avant d'afficher un regard décisif et de disparaître.
 
-Lorsqu'il réapparut, il se trouvait sur le Mont Bleu du Clan de la Soie Bleue. Le Souverain flottait là, écoutant une mélodie mélancolique. Après un long moment, il agita sa manche et s'adressa à la cabane au sommet de la montagne.
+Lorsqu'il réapparut, il se trouvait sur le Mont Bleu du Clan Lan Si. Le Souverain flottait là, écoutant une mélodie mélancolique. Après un long moment, il agita sa manche et s'adressa à la cabane au sommet de la montagne.
 
 « Vieux ami Rêve Bleu, savez-vous ce qui s'est passé dans le Royaume Intérieur? »
 

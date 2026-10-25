@@ -12,7 +12,7 @@ Personne d'autre au sein de l'Épreuve Humaine ne remarqua ce phénomène; pour 
 
 Wang Lin détourna son regard du ciel et s'assit au sommet de la montagne.
 
-Allumer le feu karmique, créer un brasier à partir d'un seul fil d'obsession. Non pas pour consumer ce monde, mais pour brûler sa propre âme. Utiliser cette méthode périlleuse au moment même où l'âme est sur le point d'être détruite afin de trouver un chemin vers la survie et engendrer le feu karmique. Cela donnerait à l'Oiseau Vermillon une chance de s'éveiller pour la quatrième fois, permettant de passer du royaume du Feu Réel à celui du Feu Éthéré, un exploit extrêmement rare parmi les membres du Clan de l'Oiseau Vermillon!
+Allumer le feu karmique, créer un brasier à partir d'un seul fil d'obsession. Non pas pour consumer ce monde, mais pour brûler sa propre âme. Utiliser cette méthode périlleuse au moment même où l'âme est sur le point d'être détruite afin de trouver un chemin vers la survie et engendrer le feu karmique. Cela donnerait à l'Oiseau Vermillon une chance de s'éveiller pour la quatrième fois, permettant de passer du royaume du Feu Réel à celui du Feu Éthéré, un exploit extrêmement rare parmi les membres du Clan Zhu Que!
 
 Le Feu Éthéré, source de tous les feux du monde. Qu'il s'agisse du feu de la jalousie, de la colère, de la folie ou d'autres émotions, tout pouvait être utilisé par ceux qui avaient atteint le royaume du Feu Éthéré!
 
@@ -24,9 +24,9 @@ Même la nostalgie de Lanmeng Daozun pour sa femme et sa tendresse pour sa fille
 
 La véritable terreur d'un cultivateur du Feu Éthéré ne résidait pas dans les duels singuliers, mais dans les batailles de groupe!
 
-Un cultivateur du Feu Éthéré pouvait s'opposer à des milliers d'adversaires... Les cultivateurs de la troisième étape savaient qu'il était extrêmement difficile de briser la Porte du Vide en tant que cultivateur du tonnerre. Le tonnerre étant une force contrôlée par les Cieux, tenter de briser la Porte du Vide avec lui s'avérait encore plus ardu!
+Un cultivateur du Feu Éthéré pouvait s'opposer à des milliers d'adversaires... Les cultivateurs de la troisième étape savaient qu'il était extrêmement difficile de briser la Porte Kong en tant que cultivateur du tonnerre. Le tonnerre étant une force contrôlée par les Cieux, tenter de briser la Porte Kong avec lui s'avérait encore plus ardu!
 
-L'essence du feu faisait partie des cinq éléments. Ce n'est qu'en devenant un Feu Éthéré que celle-ci pouvait s'affranchir de ces cinq éléments. Si elle parvenait à évoluer davantage en feu Dao et à accomplir l'art de la grande origine, on pourrait alors l'utiliser pour consumer la Porte du Vide et ainsi devenir un cultivateur de la troisième étape!
+L'essence du feu faisait partie des cinq éléments. Ce n'est qu'en devenant un Feu Éthéré que celle-ci pouvait s'affranchir de ces cinq éléments. Si elle parvenait à évoluer davantage en feu Dao et à accomplir l'art de la grande origine, on pourrait alors l'utiliser pour consumer la Porte Kong et ainsi devenir un cultivateur de la troisième étape!
 
 Le regard de Wang Lin était calme. Le Feu Éthéré était difficile à obtenir en raison de la graine de feu nécessaire au quatrième éveil de l'Oiseau Vermillon! Cependant, n'étant pas disposé à brûler ce monde, il devait choisir la voie la plus exigeante.
 
@@ -74,7 +74,7 @@ Seule la calamité de l'Ancien Dieu, où son corps s'effondrait et se reformait 
 
 Wang Lin ne répondit pas. À cet instant, sa conscience n'était plus qu'un brouillard. La douleur se mua en souvenirs qui défilèrent à travers son âme.
 
-Sa première rencontre avec Li Muwan... la Mer des Démons... la Secte du Ciel Nuageux... la beauté réduite à des ossements desséchés... jusqu'à ce qu'elle ne devienne qu'un cadavre endormi dans le Cercueil Évitant le Ciel.
+Sa première rencontre avec Li Muwan... la Mer Xiu Mo... la Secte Yun Tian... la beauté réduite à des ossements desséchés... jusqu'à ce qu'elle ne devienne qu'un cadavre endormi dans le Cercueil Évitant le Ciel.
 
 Tous ces souvenirs brûlaient au plus profond de son être.
 

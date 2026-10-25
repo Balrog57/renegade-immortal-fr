@@ -21,7 +21,7 @@ Chaque cultivateur stationné à l'extérieur de la vallée Jue Ming se souviend
 
 Le droit d'entrer dans le champ de bataille étranger pour la nation de Zhao fut impitoyablement annulé. Peu importait qu'il restât des jetons, car l'inspecteur venu ouvrir le tunnel était déjà parti en poursuite de quelque chose. Pourquoi se soucierait-il d'un détail aussi insignifiant?
 
-Lin Yi bouillonnait de rage en voyant l'objet de la mission publiée par l'Alliance de Culture passer en volant sous ses yeux, avant de lui être arraché de force par un autre. Ce sentiment lui donnait envie de cracher son sang. Surtout lorsqu'il songea que la perle s'était toujours trouvée à Zhao et qu'il en était l'inspecteur. Si cela venait à s'ébruiter, l'humiliation serait totale.
+Lin Yi bouillonnait de rage en voyant l'objet de la mission publiée par l'Alliance Xiu Zhen passer en volant sous ses yeux, avant de lui être arraché de force par un autre. Ce sentiment lui donnait envie de cracher son sang. Surtout lorsqu'il songea que la perle s'était toujours trouvée à Zhao et qu'il en était l'inspecteur. Si cela venait à s'ébruiter, l'humiliation serait totale.
 
 Le visage de Teng Huayuan était sombre, car il ignorait si Wang Lin était mort ou non. Il supposait que Wang Lin était mort, mais ne parvenait pas à dissiper ce sentiment de terreur qui lui serrait le cœur.
 
@@ -47,7 +47,7 @@ Bien que ce ne fût pas élevé, compte tenu des matériaux et des trésors magi
 
 À cet instant précis, dans le champ de bataille étranger, dans l'angle nord-est, à 67 degrés, un jeune homme au teint clair creusait avec un couteau un immense cadavre flottant. En y regardant de plus près, on voyait qu'il taillait les interstices de l'armure du défunt; il voulait clairement s'en emparer. L'armure était déjà lourdement endommagée et couverte de traces de brûlures. La partie pectorale avait été complètement fracassée, révélant une plaie de la taille d'un poing. En outre, sur le front du géant, on devinait un motif en forme de marteau, très léger. Sans une observation attentive, il était invisible.
 
-Ce jeune homme s'appelait Ma Liang. C'était un cultivateur du Temple du Dieu de la Guerre, dans le pays de rang 3 de Huo Fen, au stade intermédiaire de l'Établissement des Fondations. Il évoluait dans le champ de bataille étranger depuis plus de trente ans et possédait donc une grande expérience. Une précision s'impose ici: dans le champ de bataille étranger, on ne vieillit pas, mais lors de la sortie, l'on subit un vieillissement accéléré correspondant aux années passées à l'intérieur.
+Ce jeune homme s'appelait Ma Liang. C'était un cultivateur du Temple Zhan Shen, dans le pays de rang 3 de Huo Fen, au stade intermédiaire de l'Établissement des Fondations. Il évoluait dans le champ de bataille étranger depuis plus de trente ans et possédait donc une grande expérience. Une précision s'impose ici: dans le champ de bataille étranger, on ne vieillit pas, mais lors de la sortie, l'on subit un vieillissement accéléré correspondant aux années passées à l'intérieur.
 
 Alors qu'il creusait, son expression changea soudainement et il se coucha immédiatement. À cet instant, un rayon de lumière noire passa près de lui. Le jeune homme fut stupéfait. Pensant avoir aperçu une perle dans ce sillage noir, il abandonna l'armure et se lança à la poursuite de la lumière.
 
@@ -73,9 +73,9 @@ Le visage de Ma Liang était livide. Après avoir réalisé qu'il n'y avait que 
 
 Il venait de finir sa diatribe qu'un frisson le parcourut lorsqu'une main se posa sur son épaule. Trempé de sueur froide, il se retourna lentement pour découvrir un homme d'âge moyen. L'expression de ce dernier était sinistre tandis qu'il demandait à Ma Liang: « Petit, as-tu vu cette lumière noire? »
 
-Ma Liang distingua instantanément la marque de marteau sur le front de l'homme. Il prit une grande inspiration; il avait vu ce motif à maintes reprises durant ses trente années d'errance, dont un il y a seulement quelques jours. Il avait entendu les Anciens dire que ce motif était le symbole du Clan des Diables Géants, issu d'un pays de culture de rang 4. Les membres de ce clan naissaient avec une énergie spirituelle innée, possédant ainsi les corps les plus aptes à la culture. C'était aussi le seul pays de rang 5 ne comptant qu'une seule secte.
+Ma Liang distingua instantanément la marque de marteau sur le front de l'homme. Il prit une grande inspiration; il avait vu ce motif à maintes reprises durant ses trente années d'errance, dont un il y a seulement quelques jours. Il avait entendu les Anciens dire que ce motif était le symbole du Clan Ju Mo, issu d'un pays de culture de rang 4. Les membres de ce clan naissaient avec une énergie spirituelle innée, possédant ainsi les corps les plus aptes à la culture. C'était aussi le seul pays de rang 5 ne comptant qu'une seule secte.
 
-Les membres du Clan des Diables Géants ne pouvaient modifier librement leur apparence qu'une fois le stade de la Transformation de l'Âme atteint. Puisque cet homme ressemblait à un humain ordinaire, il devait être un expert de la Transformation de l'Âme issu du Clan des Diables Géants.
+Les membres du Clan Ju Mo ne pouvaient modifier librement leur apparence qu'une fois le stade de la Transformation de l'Âme atteint. Puisque cet homme ressemblait à un humain ordinaire, il devait être un expert de la Transformation de l'Âme issu du Clan Ju Mo.
 
 La gorge de Ma Liang était sèche. Trop terrifié pour mentir, il répondit promptement: « Senior, j'ai vu ce rayon de lumière noire. Il est passé par là et a été englouti par une faille spatiale. »
 

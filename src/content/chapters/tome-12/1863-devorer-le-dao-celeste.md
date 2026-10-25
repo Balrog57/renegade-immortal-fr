@@ -12,7 +12,7 @@ Dans un fracas assourdissant, la boue entourant Wang Lin se mit à tourbillonner
 
 « Mort par la boue! » rugit Xu Decai, tandis que la sphère de boue se rétractait violemment.
 
-Xu Decai était une figure célèbre sur le Continent du Démon Vert. Ce qui le rendait terrifiant était sa vitesse d'exécution inégalée. Parmi les cultivateurs de même rang, il pouvait exploiter cet avantage pour lancer des sorts sans interruption, refusant à ses adversaires la moindre seconde de répit jusqu'à ce qu'il les bombarde à mort! C'était aussi la raison pour laquelle, bien qu'il fût un cultivateur errant, il avait été invité par la Secte du Dao Démoniaque!
+Xu Decai était une figure célèbre sur le Continent Lu Mo. Ce qui le rendait terrifiant était sa vitesse d'exécution inégalée. Parmi les cultivateurs de même rang, il pouvait exploiter cet avantage pour lancer des sorts sans interruption, refusant à ses adversaires la moindre seconde de répit jusqu'à ce qu'il les bombarde à mort! C'était aussi la raison pour laquelle, bien qu'il fût un cultivateur errant, il avait été invité par la Secte Dao Mo!
 
 Wang Lin se trouvait à l'intérieur de cette masse et se retrouvait encerclé par quatre colosses de boue. Des grondements sourds résonnaient, mêlés à la puissance mystérieuse de l'encens de Xu Decai qui imprégnait son corps. À l'extérieur de la masse boueuse, une ombre gigantesque semblable à une baleine ouvrit sa gueule pour tout dévorer.
 
@@ -46,7 +46,7 @@ La bête était trop rapide et se rapprocha instantanément. Simultanément, ell
 
 Alors que le chaos régnait, l'assaut final se précisait: les deux paumes géantes qui fonçaient sur lui par la gauche et la droite n'étaient plus qu'à moins de cent pieds. Des craquements déchirants retentirent, comme si son corps ne pouvait supporter une telle pression. À ce moment critique, Wang Lin leva les bras et frappa de plein fouet les deux paumes entrantes.
 
-Au même instant, l'ombre de la baleine ouvrit sa gueule et chargea vers lui. Des grondements tonitruants secouèrent la Prairie de l'Extrême Ciel lorsque les poings de Wang Lin entrèrent en collision avec les paumes. Un nuage de brume sanguine jaillit de son corps alors qu'il était repoussé. L'ombre de la baleine se rapprocha, prête à l'engloutir. À cet instant, Xu Decai rayonnait de fierté.
+Au même instant, l'ombre de la baleine ouvrit sa gueule et chargea vers lui. Des grondements tonitruants secouèrent la Prairie Ji Tian lorsque les poings de Wang Lin entrèrent en collision avec les paumes. Un nuage de brume sanguine jaillit de son corps alors qu'il était repoussé. L'ombre de la baleine se rapprocha, prête à l'engloutir. À cet instant, Xu Decai rayonnait de fierté.
 
 Wang Lin ouvrit la bouche et cracha une pierre noire. Dès son apparition, la pierre explosa d'une lumière sombre qui fusionna avec l'obscurité de la nuit. Une ombre de baleine, mais plusieurs fois plus imposante, surgit alors. C'était le Dao Céleste de Wang Lin: la Bête des Limbes!
 

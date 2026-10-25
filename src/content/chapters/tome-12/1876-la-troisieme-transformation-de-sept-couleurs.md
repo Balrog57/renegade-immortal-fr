@@ -6,17 +6,17 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1876 - Seven-Color’s Third Transformation!"
 slug: la-troisieme-transformation-de-sept-couleurs
 ---
-À la surface de la Prairie de l'Extrême Ciel, Zhang Daozong et le vieil homme nommé Zhao observaient le sol avec suspicion. Ils sentaient clairement une aura puissante jaillir des profondeurs de la terre.
+À la surface de la Prairie Ji Tian, Zhang Daozong et le vieil homme nommé Zhao observaient le sol avec suspicion. Ils sentaient clairement une aura puissante jaillir des profondeurs de la terre.
 
 Bien qu'ils ne ressentent qu'une fraction de cette aura, elle suffisait à leur faire rater un battement de cœur. C'était comme si un immense Taureau Céleste s'était éveillé et poussait un rugissement en se précipitant vers le ciel.
 
 Ils n'étaient pas les seuls à ressentir cela. Les quatre Messagers du Démon Vert affichaient des expressions solennelles en fixant la terre.
 
-Ces quatre individus avaient été sélectionnés parmi d'innombrables enfants par les trois ancêtres du Continent du Démon Vert. Tous étaient dotés d'un talent exceptionnel et, une fois qu'ils atteignaient un certain niveau de culture, ils étaient envoyés au Temple du Scorpion du Démon Vert pour devenir les serviteurs du Scorpion du Démon Vert.
+Ces quatre individus avaient été sélectionnés parmi d'innombrables enfants par les trois ancêtres du Continent Lu Mo. Tous étaient dotés d'un talent exceptionnel et, une fois qu'ils atteignaient un certain niveau de culture, ils étaient envoyés au Temple Lü Mo Xie pour devenir les serviteurs du Scorpion du Démon Vert.
 
 Au fil des éons, de nombreux messagers s'étaient succédé, mais après d'innombrables cycles d'élimination et de mort, seuls neuf d'entre eux avaient fini par obtenir la reconnaissance du Démon Vert!
 
-Ces neuf personnes étaient les Messagers du Démon Vert du Continent du Démon Vert. Ils étaient les héritiers de la volonté du Scorpion du Démon Vert, lequel était opprimé sous le continent!
+Ces neuf personnes étaient les Messagers du Démon Vert du Continent Lu Mo. Ils étaient les héritiers de la volonté du Scorpion du Démon Vert, lequel était opprimé sous le continent!
 
 C'est pour cette raison que leurs perceptions étaient bien plus aiguisées que celles de Zhang Daozong et des autres. Ils savaient clairement que l'aura provenant du sous-sol émanait d'un messager du Taureau Céleste ayant obtenu la reconnaissance de ce dernier.
 
@@ -38,9 +38,9 @@ Alors que le gaz vert balayait la surface du miroir, un continent apparut. Cette
 
 Ce continent semblait plus petit que celui du Taureau Céleste, ne représentant qu'environ 70 % de sa taille. Cependant, il était recouvert de marais et la brume qui l'entourait lui donnait un aspect onirique.
 
-Le monde à l'intérieur du miroir était le Continent du Démon Vert!
+Le monde à l'intérieur du miroir était le Continent Lu Mo!
 
-Tandis que les quatre Messagers rugissaient, le miroir s'enfonça lentement pour recouvrir le sol entre eux. De cette position, il couvrait toute la Prairie de l'Extrême Ciel afin de la réprimer.
+Tandis que les quatre Messagers rugissaient, le miroir s'enfonça lentement pour recouvrir le sol entre eux. De cette position, il couvrait toute la Prairie Ji Tian afin de la réprimer.
 
 Au plus profond de la terre, Wang Lin, fusionné avec le Taureau Céleste derrière lui, s'élançait vers la surface. Le palais souterrain restait derrière lui. Il n'avait nullement l'intention de jouer les héros; il ne faisait pas cela pour le continent du Taureau Céleste, mais pour remplir ses trois conditions.
 
@@ -72,7 +72,7 @@ Les mains de Wang Lin déchirèrent soudainement le sol, créant une faille giga
 
 Un grondement tonitruant retentit. La faille s'étendit instantanément jusqu'à atteindre une taille incommensurable et percuta la queue du scorpion. La queue trembla puis se brisa net. Simultanément, l'immense fracture balaya le corps du scorpion vert dans sa course vers la surface.
 
-La Prairie de l'Extrême Ciel trembla. Sur le flanc ouest, la terre éclata soudainement, révélant une crevasse monumentale de plus de dix mille kilomètres de large!
+La Prairie Ji Tian trembla. Sur le flanc ouest, la terre éclata soudainement, révélant une crevasse monumentale de plus de dix mille kilomètres de large!
 
 Alors que la fissure s'ouvrait, un jet de gaz vert jaillit dans un cri misérable avant de se dissiper.
 
@@ -106,7 +106,7 @@ C'était la troisième transformation de la Lance aux Sept Couleurs! La forme la
 
 La lance grise fondit sur un scorpion. La créature poussa un hurlement et cracha une immense quantité de gaz vert qui percuta l'arme de plein fouet.
 
-Des échos tonitruants résonnèrent dans les profondeurs. La terre continua de trembler et une explosion jaillit du sous-sol et une tempête s'éleva vers la surface, provoquant l'effondrement d'une zone de plus de mille kilomètres de diamètre dans la Prairie de l'Extrême Ciel sous l'impact, projetant d'innombrables mottes de terre et d'herbe vers le ciel.
+Des échos tonitruants résonnèrent dans les profondeurs. La terre continua de trembler et une explosion jaillit du sous-sol et une tempête s'éleva vers la surface, provoquant l'effondrement d'une zone de plus de mille kilomètres de diamètre dans la Prairie Ji Tian sous l'impact, projetant d'innombrables mottes de terre et d'herbe vers le ciel.
 
 « Malheureusement, l'armure d'âme ne fait qu'augmenter mon niveau de culture. Elle ne se base pas sur mon propre corps, mais sur l'aura du Taureau Céleste. Si j'étais au début du stade de la Tribulation du Vide, j'aurais neuf essences complètes. Et si je possédais neuf corps d'essence véritables, neuf lances apparaîtraient. Je serais alors certain de détruire les trois scorpions d'un coup! » Wang Lin secoua intérieurement la tête. Cette armure était, après tout, un objet externe. Bien que puissante, elle n'était pas la sienne.
 

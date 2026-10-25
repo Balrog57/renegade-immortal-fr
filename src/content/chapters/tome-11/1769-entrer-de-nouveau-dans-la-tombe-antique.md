@@ -106,7 +106,7 @@ Wang Lin prit sa décision et s'élança vers la brume au bord de la plateforme.
 
 Personne ne connaissait cet endroit mieux que lui. Wang Lin avait obtenu toutes les cartes autrefois; il n'avait donc plus besoin de faire monter de niveau les plateformes pour en obtenir. La carte était gravée dans son esprit, incluant l'entrée de la couche suivante!
 
-S'il existait une personne dont la connaissance de ce lieu était presque égale à celle de Wang Lin, c'était bien la troisième concubine, la Sainte de la Secte de la Porte Céleste du Continent Astral Immortel, qui était toujours vierge!
+S'il existait une personne dont la connaissance de ce lieu était presque égale à celle de Wang Lin, c'était bien la troisième concubine, la Sainte de la Secte Tian Men du Continent Xian Gang, qui était toujours vierge!
 
 À cet instant, la troisième concubine flottait dans la brume, observant les alentours avec confusion. Après un long moment, un regard complexe traversa ses yeux.
 
@@ -114,7 +114,7 @@ S'il existait une personne dont la connaissance de ce lieu était presque égale
 
 C'était ici qu'elle avait rencontré Wang Lin. Finalement, elle avait été libérée grâce à l'aide de ce dernier et n'avait pas été scellée ici. Elle aimait la solitude et ne savait guère communiquer avec autrui. Lorsqu'elle fut contrainte de devenir la concubine du Souverain aux Sept Couleurs, elle n'avait accepté que pour le salut de sa secte.
 
-Elle n'avait que peu d'amis sur le Continent Astral Immortel. Même au sein de la Secte de la Porte Céleste, elle passait le plus clair de son temps à cultiver. De par sa personnalité, elle restait toujours isolée parmi les autres concubines.
+Elle n'avait que peu d'amis sur le Continent Astral Immortel. Même au sein de la Secte Tian Men, elle passait le plus clair de son temps à cultiver. De par sa personnalité, elle restait toujours isolée parmi les autres concubines.
 
 On pouvait dire que Wang Lin était la première personne à l'avoir réellement aidée dans sa vie. Ce sentiment inédit lui causait une confusion mêlée d'émotion qu'elle ne parvenait pas à nommer.
 

@@ -1,12 +1,12 @@
 ---
 n: 184
-title: La Mer de Sang du Dieu Démon
+title: La Mer de Sang Yao Shen
 book: 3
 bookTitle: Famous in the Sea of Devils
 en: Chapter 184 - The Blood Sea of the Demon God
 slug: la-mer-de-sang-du-dieu-demon
 ---
-Dans la troisième épreuve de la Terre des Anciens Dieux, au sein de cet espace fracturé relié au Nirvana, dans le coin sud-ouest, une minuscule lumière blanche apparut soudainement. La lueur s'intensifia et s'élargit jusqu'à former une déchirure ovale dans l'espace.
+Dans la troisième épreuve de la Terre Gu Shen, au sein de cet espace fracturé relié au Nirvana, dans le coin sud-ouest, une minuscule lumière blanche apparut soudainement. La lueur s'intensifia et s'élargit jusqu'à former une déchirure ovale dans l'espace.
 
 De cette brèche surgit une main aux ongles longs et couverte d'épines osseuses. Cette main paraissait glaciale, dotée d'ongles extrêmement pointus et peints en noir. Elle était couverte de pustules, dont chacune laissait jaillir une épine osseuse.
 
@@ -38,25 +38,25 @@ L'Empereur Antique fut stupéfait. Même lorsqu'il était venu ici il y a mille 
 
 Après avoir parlé, une amertume lui serra le cœur. Depuis qu'il était devenu un expert en Formation de l'Âme, il n'avait plus eu à appeler personne « Senior ». En prononçant ce mot, il ressentit une profonde gêne.
 
-Soudainement, il ajouta: « Senior, si vous recherchez le trésor de l'héritage de la Terre des Anciens Dieux, alors vous vous trompez de personne. Il est en possession d'un certain Seigneur Démon des Six Désirs. »
+Soudainement, il ajouta: « Senior, si vous recherchez le trésor de l'héritage de la Terre Gu Shen, alors vous vous trompez de personne. Il est en possession d'un certain Seigneur Démon des Six Désirs. »
 
 Wang Lin réfléchit un instant tout en sentant la forte fluctuation d'âme approcher. Il utilisa les âmes errantes sous son contrôle pour évaluer précisément la distance qui les séparait. Tout en discutant avec l'Empereur Antique, il dirigeait les âmes errantes pour lui barrer la route.
 
 Cependant, le corps de Bossu Meng était très étrange; peu importait le nombre d'âmes errantes qui l'attaquaient, elles ne parvenaient pas à lui infliger la moindre blessure. Cela surprit Wang Lin.
 
-Wang Lin ne croyait pas l'Empereur Antique lorsqu'il affirmait que l'héritage n'était pas avec lui, mais chez le Seigneur Démon des Six Désirs. Même si ce qu'il disait était vrai, des gens comme l'Empereur Antique n'entreraient pas aussi imprudemment dans la Terre des Anciens Dieux, sans quoi ils seraient totalement à la merci du Seigneur Démon des Six Désirs. Après tout, ce dernier détenait la clé pour entrer et sortir de cet endroit.
+Wang Lin ne croyait pas l'Empereur Antique lorsqu'il affirmait que l'héritage n'était pas avec lui, mais chez le Seigneur Démon des Six Désirs. Même si ce qu'il disait était vrai, des gens comme l'Empereur Antique n'entreraient pas aussi imprudemment dans la Terre Gu Shen, sans quoi ils seraient totalement à la merci du Seigneur Démon des Six Désirs. Après tout, ce dernier détenait la clé pour entrer et sortir de cet endroit.
 
 Concernant le trésor de l'héritage, Wang Lin l'avait entendu mentionné par Duanmu et les autres, mais ils n'étaient pas disposés à en dire plus. Ce ne fut que plus tard que Wang Lin comprit la situation.
 
 L'Empereur Antique était prêt à affronter le Seigneur Démon des Six Désirs lors de la deuxième épreuve; il devait donc posséder ses propres secrets. Wang Lin ordonna aux âmes errantes environnantes de reprendre l'assaut.
 
-L'Empereur Antique serra les dents et envoya un autre message par Sens Divin: « Ce vieil homme ne possède pas les trésors de l'héritage, mais lorsque je suis venu ici il y a mille ans, j'ai reçu un fragment de cet héritage. Ce fragment contient un sort capable de créer un passage pour sortir d'ici; cependant, il ne peut être utilisé qu'au niveau du tourbillon de sortie de chaque royaume pour être téléporté hors de la Terre des Anciens Dieux, sans quoi je serais resté bloqué ici. Quant au fragment, je l'ai détruit après avoir appris la technique. »
+L'Empereur Antique serra les dents et envoya un autre message par Sens Divin: « Ce vieil homme ne possède pas les trésors de l'héritage, mais lorsque je suis venu ici il y a mille ans, j'ai reçu un fragment de cet héritage. Ce fragment contient un sort capable de créer un passage pour sortir d'ici; cependant, il ne peut être utilisé qu'au niveau du tourbillon de sortie de chaque royaume pour être téléporté hors de la Terre Gu Shen, sans quoi je serais resté bloqué ici. Quant au fragment, je l'ai détruit après avoir appris la technique. »
 
 Ce que l'Empereur Antique disait était vrai. Il y a mille ans, il était l'un des experts les plus puissants; il avait donc naturellement découvert le trésor de l'héritage et appris la méthode pour quitter ce lieu. C'est ainsi qu'il avait réussi à s'échapper autrefois, et c'est pourquoi il osait encore revenir.
 
 Peu de personnes avaient reçu ce sort à l'époque; cependant, la raison pour laquelle presque personne n'avait pu s'échapper résidait dans les restrictions d'utilisation de ce sortilège. Il fallait impérativement se trouver au niveau d'un tourbillon de sortie pour qu'il fonctionne.
 
-Beaucoup de ceux qui avaient réussi les première et deuxième épreuves ne pensaient même pas à quitter la Terre des Anciens Dieux, car ils ne voulaient pas gaspiller leurs efforts. Par conséquent, ils renonçaient à l'opportunité d'utiliser le tourbillon de sortie lors de la deuxième épreuve. Or, la troisième épreuve était vaste, et trouver la sortie revenait à chercher une aiguille dans une botte de foin. De plus, par peur des âmes errantes, personne n'osait étendre son Sens Divin trop loin, rendant la recherche de la sortie encore plus ardue.
+Beaucoup de ceux qui avaient réussi les première et deuxième épreuves ne pensaient même pas à quitter la Terre Gu Shen, car ils ne voulaient pas gaspiller leurs efforts. Par conséquent, ils renonçaient à l'opportunité d'utiliser le tourbillon de sortie lors de la deuxième épreuve. Or, la troisième épreuve était vaste, et trouver la sortie revenait à chercher une aiguille dans une botte de foin. De plus, par peur des âmes errantes, personne n'osait étendre son Sens Divin trop loin, rendant la recherche de la sortie encore plus ardue.
 
 Ce sort devait être utilisé spécifiquement à un tourbillon de sortie. S'il était utilisé à un tourbillon d'entrée, il n'aurait aucun effet. Lors de la sortie de la deuxième épreuve, l'Empereur Antique n'avait pas eu assez de temps pour utiliser le sort sur le tourbillon de sortie et avait été contraint de passer à la troisième épreuve.
 
@@ -106,7 +106,7 @@ Dans cette terre de sang, de nombreux piliers de pierre s'élevaient, et un cult
 
 Lorsque l'Empereur Antique fut projeté là, son Âme Naissante n'ayant pas été totalement dévorée par les âmes errantes, elle reprit immédiatement le contrôle de son corps. Lorsqu'il ouvrit les yeux, son visage changea instantanément.
 
-« Seigneur Démon du Feu Rouge... Fou du Sud Wu Bai... Magicien Démon Céleste... vous... vous n'êtes pas tous morts? » Le visage de l'Empereur Antique pâlit alors que son regard se fixait sur les quelques démons qui, mille ans plus tôt, étaient entrés dans la Terre des Anciens Dieux avec lui.
+« Seigneur Démon du Feu Rouge... Fou du Sud Wu Bai... Magicien Démon Céleste... vous... vous n'êtes pas tous morts? » Le visage de l'Empereur Antique pâlit alors que son regard se fixait sur les quelques démons qui, mille ans plus tôt, étaient entrés dans la Terre Gu Shen avec lui.
 
 Le Seigneur Démon du Feu Rouge avait été tué lors de la deuxième épreuve. L'Empereur Antique avait vu personnellement son corps être détruit par l'éclair violet. L'Âme Naissante du Seigneur Démon du Feu Rouge n'avait même pas eu le temps de s'échapper.
 
@@ -116,9 +116,9 @@ Quant au Magicien Démon Céleste, le maître du Seigneur Démon des Six Désirs
 
 En voyant tous ces êtres censés être morts, il ne put s'empêcher de ressentir un frisson dans son cœur. Soudain, il tourna la tête et vit, à travers la faille, un démon ressemblant à Bossu Meng.
 
-« Bossu Meng! » Les pupilles de l'Empereur Antique se rétractèrent. La faille se referma à cet instant précis. L'Empereur Antique était très prudent; bien que cet endroit fût peuplé de cultivateurs, il était évident qu'il s'agissait de ceux qui étaient morts dans la Terre des Anciens Dieux au fil des ans.
+« Bossu Meng! » Les pupilles de l'Empereur Antique se rétractèrent. La faille se referma à cet instant précis. L'Empereur Antique était très prudent; bien que cet endroit fût peuplé de cultivateurs, il était évident qu'il s'agissait de ceux qui étaient morts dans la Terre Gu Shen au fil des ans.
 
-Une voix rauque parvint de loin: « Bienvenue dans la Mer de Sang du Dieu Démon... »
+Une voix rauque parvint de loin: « Bienvenue dans la Mer de Sang Yao Shen... »
 
 La vitesse de Wang Lin était très élevée. En peu de temps, il pourrait traverser cette troisième épreuve. Mais à mi-chemin, il s'arrêta, remarquant le changement de position de l'Empereur Antique grâce à sa connexion avec les âmes errantes. Il vit Bossu Meng ouvrir la faille et l'Empereur Antique y être jeté. Même la lueur rouge émanant de la brèche fut perçue par Wang Lin via les âmes errantes.
 

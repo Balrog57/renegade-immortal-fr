@@ -28,9 +28,9 @@ Frappé par la tempête, Wang Lin recula de quelques pas avant de se stabiliser.
 
 Il était presque certain qu'un lien de parenté unissait Lanmeng Daozun et Li Qianmei. Puisque ce dernier l'avait emmenée, il possédait naturellement un moyen de la ressusciter.
 
-Son plan initial était de quitter le Clan de la Soie Bleue ainsi que ce domaine stellaire. Après mûre réflexion, Wang Lin choisit de rester. Il voulait s'assurer que Li Qianmei se réveillerait véritablement.
+Son plan initial était de quitter le Clan Lan Si ainsi que ce domaine stellaire. Après mûre réflexion, Wang Lin choisit de rester. Il voulait s'assurer que Li Qianmei se réveillerait véritablement.
 
-Tout en réfléchissant, Wang Lin se transforma en un rayon de lumière et fonça droit devant lui. Il pénétra progressivement dans les profondeurs du Clan de la Soie Bleue. Il n'avait pas besoin de déployer son Sens Divin, car il distinguait clairement, parmi les étoiles infinies, une planète de culture émettant une puissante lueur bleue. C'était là que se trouvait Lanmeng Daozun.
+Tout en réfléchissant, Wang Lin se transforma en un rayon de lumière et fonça droit devant lui. Il pénétra progressivement dans les profondeurs du Clan Lan Si. Il n'avait pas besoin de déployer son Sens Divin, car il distinguait clairement, parmi les étoiles infinies, une planète de culture émettant une puissante lueur bleue. C'était là que se trouvait Lanmeng Daozun.
 
 Cette planète de culture était baignée d'une lumière azurée; même l'intérieur de la planète semblait imprégné d'une clarté bleue qui irriguait les océans. Wang Lin avança et pénétra dans l'atmosphère de la planète.
 

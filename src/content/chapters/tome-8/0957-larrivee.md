@@ -8,7 +8,7 @@ slug: larrivee
 ---
 Non seulement elle, mais les trois autres magnifiques femmes levèrent également leurs jolis yeux vers le ciel. La renommée de Wang Lin était presque devenue un tabou au fil des années! Cependant, plus son nom était tabou, plus les rumeurs à son sujet se propageaient.
 
-Au-dessus de la place de la Secte du Destin Céleste, Bai Wei contemplait le ciel avec un sentiment complexe. Il lui était difficile d'imaginer ce que cette personne, autrefois, était devenue.
+Au-dessus de la place de la Secte Tian Yun, Bai Wei contemplait le ciel avec un sentiment complexe. Il lui était difficile d'imaginer ce que cette personne, autrefois, était devenue.
 
 À côté de Bai Wei se tenait un homme d'âge moyen au visage sombre. Vêtu d'une robe violette, son regard était aussi vif que la foudre. Il fixa le ciel et laissa échapper un froid reniflement intérieur.
 
@@ -22,7 +22,7 @@ Une femme se tenait également aux côtés des deux hommes. Son expression étai
 
 Au loin, un jeune homme d'environ trente ans se tenait là. Il portait une chemise bleue brodée de trois dragons. Ces derniers étaient d'une férocité et d'un réalisme extrêmes, particulièrement leurs yeux qui dégageaient un regard impétueux et à couper le souffle. Si Wang Lin l'avait vu, il ne l'aurait pas trouvé inconnu: c'était l'homme qui avait collaboré avec sa quatrième sœur apprentie pour le piéger. Sima Rufeng, de la Division Bleue!
 
-Au sein de la Secte du Destin Céleste, tous ceux qui connaissaient Wang Lin étaient plongés dans leurs pensées. Cependant, nul ne croyait qu'il puisse repartir vivant s'il se présentait ici aujourd'hui.
+Au sein de la Secte Tian Yun, tous ceux qui connaissaient Wang Lin étaient plongés dans leurs pensées. Cependant, nul ne croyait qu'il puisse repartir vivant s'il se présentait ici aujourd'hui.
 
 Alors que tous les regards convergeaient vers l'horizon, une silhouette blanche, seule, apparut et s'avança lentement. Ses cheveux noirs flottaient au gré du vent et, sous les éclats du soleil, on y devinait des reflets violets. Sa robe blanche lui conférait l'allure d'un être céleste; c'était comme si la neige blanche arrivait à grands pas.
 
@@ -30,7 +30,7 @@ Une sensation de crépuscule solitaire, vieille de mille ans, émanait de sa sil
 
 La scène était d'une beauté saisissante.
 
-D'abord très lointaine, la silhouette fut, en un instant, devant la Secte du Destin Céleste!
+D'abord très lointaine, la silhouette fut, en un instant, devant la Secte Tian Yun!
 
 « Wang Lin! »
 « Wang Lin!! »
@@ -56,7 +56,7 @@ Tout cela sembla s'étirer, mais tout se produisit à l'instant même où Wang L
 Les yeux de Tian Yunzi brillèrent d'une lueur étrange en fixant la marque entre les sourcils de Wang Lin. Après un long moment, il sourit et dit avec bienveillance: « Il est bon que tu sois de retour. Wang Lin, ces anciens souhaitent te poser des questions, et tu devras y répondre avec sincérité. »
 
 Un homme d'âge moyen derrière Ling Tianhou le pointa du doigt et s'écria: « Petit morveux, Wang Lin, tu as vraiment osé revenir!! »
-« Autrefois, tu as tué des membres de ma Secte de l'Épée Da Luo dans la Terre des Esprits Démoniaques. Aujourd'hui, tu vas payer en sang! »
+« Autrefois, tu as tué des membres de ma Secte Da Luo Jian dans la Terre Yao Ling. Aujourd'hui, tu vas payer en sang! »
 
 Wang Lin esquissa un sourire, mais ses yeux étaient aussi froids que la glace. Il regarda froidement l'homme et dit calmement: « Ancien Ling Tianhou, ce disciple a-t-il les qualifications pour me parler de la sorte? »
 
@@ -76,7 +76,7 @@ Quant à Zhao Xingsha, son corps trembla; il n'en croyait pas ses oreilles. Il r
 
 « Ce Wang Lin a réellement atteint le stade du Scruteur du Nirvana. Bien qu'il y ait encore un fossé entre lui et nous, il peut désormais être considéré comme quelqu'un de qualifié, qu'on ne peut plus traiter comme un simple cadet. » Le vieil homme sur la gourde sourit et dit: « Wang Lin, je veux te demander: pourquoi as-tu fui à travers le vortex sous nos yeux à l'époque? As-tu fait quelque chose que tu ne voulais pas que nous sachions? »
 
-L'expression de Wang Lin resta neutre lorsqu'il répondit calmement: « Ce junior a effectivement causé une calamité dans la Terre des Esprits Démoniaques, j'ai donc dû partir. »
+L'expression de Wang Lin resta neutre lorsqu'il répondit calmement: « Ce junior a effectivement causé une calamité dans la Terre Yao Ling, j'ai donc dû partir. »
 
 Les yeux du vieillard maigre brillèrent et il demanda froidement: « Quelle calamité? »
 
@@ -90,7 +90,7 @@ L'esprit du vieil homme vacilla sous le regard de Wang Lin. Son expression chang
 
 Tian Yunzi, conservant son air serein, dit lentement: « Assez, Wang Lin. Ton maître te demande si le jeton de la grotte céleste est en ta possession. »
 
-Wang Lin regarda Tian Yunzi et dit respectueusement: « Puisque Maître le demande, le disciple n'ose dissimuler la vérité. Dans la Terre des Esprits Démoniaques, le disciple a effectivement obtenu un jeton de la grotte céleste! »
+Wang Lin regarda Tian Yunzi et dit respectueusement: « Puisque Maître le demande, le disciple n'ose dissimuler la vérité. Dans la Terre Yao Ling, le disciple a effectivement obtenu un jeton de la grotte céleste! »
 
 À ces mots, les yeux des vieux monstres s'illuminèrent et ils commencèrent à réfléchir en silence. Soudain, une aura oppressante se propagea et convergea vers Wang Lin. Le vieil homme assis sur la gourde fixa la marque entre les sourcils de Wang Lin et déclara: « Wang Lin, rends le jeton et tu pourras garder la vie! »
 
@@ -106,6 +106,6 @@ L'expression de Wang Lin resta imperturbable. Lorsque l'énergie d'épée atteig
 
 Tout fut ainsi doucement neutralisé.
 
-« Ling Tianhou, attaquer un disciple de ma Secte du Destin Céleste au sein même de ma secte… penses-tu vraiment que je ne suis pas là? » La voix de Tian Yunzi était douce alors qu'il fixait Ling Tianhou.
+« Ling Tianhou, attaquer un disciple de ma Secte Tian Yun au sein même de ma secte… penses-tu vraiment que je ne suis pas là? » La voix de Tian Yunzi était douce alors qu'il fixait Ling Tianhou.
 
 Les quatre épées d'âme originelle derrière Ling Tianhou s'envolèrent alors qu'il criait vers Tian Yunzi: « Tian Yunzi, se pourrait-il que tu veuilles prendre le jeton pour toi-même?! »

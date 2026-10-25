@@ -50,7 +50,7 @@ L'expression de Yu Fei restait imperturbable. Il lança un regard froid à Wang 
 
 Il s'agissait d'une branche. Elle semblait tout à fait ordinaire, mais elle dégageait une aura antique.
 
-« Un trésor de mon Domaine de la Boucherie: la Branche Brisée de l'Arbre du Monde du Tonnerre. Le maître du domaine a affirmé qu'elle pourrait supprimer ton tonnerre. Laisse-moi te montrer comment je vais le briser! » Sur ces mots, il projeta la branche en avant. Simultanément, les cinq épées qui bloquaient l'assaut reculèrent précipitamment.
+« Un trésor de mon Domaine Sha Yu: la Branche Brisée de l'Arbre du Monde du Tonnerre. Le maître du domaine a affirmé qu'elle pourrait supprimer ton tonnerre. Laisse-moi te montrer comment je vais le briser! » Sur ces mots, il projeta la branche en avant. Simultanément, les cinq épées qui bloquaient l'assaut reculèrent précipitamment.
 
 Dès que les cinq épées ensanglantées se retirèrent, rien ne fit plus obstacle au tonnerre, qui chargea immédiatement vers l'homme en robe rouge. Cependant, à cet instant, Wang Lin sembla perdre le contrôle de la foudre, et celle-ci se précipita toute entière vers la branche.
 

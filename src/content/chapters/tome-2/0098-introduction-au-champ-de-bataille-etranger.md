@@ -8,7 +8,7 @@ slug: introduction-au-champ-de-bataille-etranger
 ---
 Dans tout le pays de Zhao, les quelques rares experts de l'Âme Naissante se dirigèrent tous aussitôt vers la Tour Céleste.
 
-Au plus profond des cavernes de la Secte des Cadavres, un éclat vif passa dans les yeux de Ye Zizai alors qu'il disparaissait de la pièce pour se téléporter et s'enfuir au loin. Avant de partir, il utilisa son jade vert pour transmettre un ordre à tous les disciples de la Secte des Cadavres:
+Au plus profond des cavernes de la Secte Shi Yin, un éclat vif passa dans les yeux de Ye Zizai alors qu'il disparaissait de la pièce pour se téléporter et s'enfuir au loin. Avant de partir, il utilisa son jade vert pour transmettre un ordre à tous les disciples de la Secte Shi Yin:
 
 « Ce vieillard s'absente pour quelques jours. La grande formation est scellée; quiconque tentera de la forcer sera tué sans pitié! »
 
@@ -74,7 +74,7 @@ Une tête gigantesque émergea du trou noir et fixa froidement l'assemblée.
 
 Y compris les quatre qui n'avaient pas reculé, tous les cultivateurs de l'Âme Naissante présents eurent la sensation que leurs propres Âmes Naissantes allaient s'effondrer sous ce regard. Ils ne doutaient aucun instant que si l'être dans le trou noir les fixait plus longtemps, leurs âmes ne pourraient supporter la pression et exploseraient.
 
-Pu Nanzi fut le premier à reprendre ses esprits, le visage livide. Il reconnut très clairement cette silhouette: c'était un expert du Clan des Démons Géants du champ de bataille étranger. Les cultivateurs de ce clan ne progressaient qu'en dévorant les autres. L'ancêtre de la Secte Heng Yue avait été englouti par un expert de ce clan avant même que celui-ci ne révèle sa véritable forme.
+Pu Nanzi fut le premier à reprendre ses esprits, le visage livide. Il reconnut très clairement cette silhouette: c'était un expert du Clan Ju Mo du champ de bataille étranger. Les cultivateurs de ce clan ne progressaient qu'en dévorant les autres. L'ancêtre de la Secte Heng Yue avait été englouti par un expert de ce clan avant même que celui-ci ne révèle sa véritable forme.
 
 Le regard du géant se posa sur Lin Yi et son expression s'adoucit légèrement, mais il reprit d'un ton impatient: « Cette zone désolée manque cruellement d'énergie spirituelle. Si ce n'était pour ce maudit traité, je pourrais aspirer toute l'énergie spirituelle de cet endroit en une seule inspiration. Écoutez bien tous: le champ de bataille étranger s'ouvrira dans cinq mois. Vous, les gens de Zhao, êtes responsables du nettoyage du champ de bataille dans la zone de 50 000 kilomètres située à 58 degrés au nord de l'entrée. Voici sept jetons. Les règles sont les mêmes: au moins quatre d'entre eux doivent être brisés. Un maximum de trois sectes est autorisé à entrer. Si plus de trois jetons subsistent après cinq mois, le pays de Zhao perdra son droit de participer. »
 

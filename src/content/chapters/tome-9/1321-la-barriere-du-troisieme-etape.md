@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1321 - The Barrier to the Third Step
 slug: la-barriere-du-troisieme-etape
 ---
-La majorité des planètes de culture du Clan de la Soie Bleue connaissaient une saison des pluies où les précipitations tombaient sans relâche. Parfois, elles s'abattaient du ciel en trombes, abreuvant la terre.
+La majorité des planètes de culture du Clan Lan Si connaissaient une saison des pluies où les précipitations tombaient sans relâche. Parfois, elles s'abattaient du ciel en trombes, abreuvant la terre.
 
 Ces saisons pluvieuses duraient souvent six mois avant que d'autres saisons ne s'enchaînent, selon la planète de culture concernée. La planète sur laquelle Wang Lin méditait bascula dans l'hiver après sept mois de pluie.
 
@@ -36,7 +36,7 @@ Il vit des montagnes blanches, la neige couvrant le sol, les rivières gelées e
 
 Il vit des cités mortelles et des mortels à l'intérieur de leurs demeures. Ils se regroupaient autour d'un feu, et il percevait la chaleur de leur vie quotidienne.
 
-Il vit la vie fastueuse des riches, le luxe des familles royales mortelles. Il vit les cultivateurs du Clan de la Soie Bleue et entendit la beauté de leur musique.
+Il vit la vie fastueuse des riches, le luxe des familles royales mortelles. Il vit les cultivateurs du Clan Lan Si et entendit la beauté de leur musique.
 
 Il vit la neige tomber du ciel, les poissons amateurs de froid sous la rivière gelée et la végétation qui poussait en hiver sur la terre gelée.
 
@@ -108,9 +108,9 @@ Le brouillard était comme une petite tempête dans la paume de Wang Lin, puis i
 
 Wang Lin ouvrit les yeux et regarda avec un sourire le nuage blanc qui s'éloignait au loin.
 
-« Ce sort peut fusionner d'autres sorts. Le premier que je dois fusionner est la Déformation Spatiale! Bien que ce sort soit puissant et me permette de me déplacer instantanément à travers l'espace infini, il possède un défaut fatal. Une fois que l'énergie d'origine du monde est perturbée, il devient inutilisable... La femme en blanc attend aux abords du Clan de la Soie Bleue. Ce n'est qu'en me défaisant totalement de son suivi que je pourrai agir à ma guise dans le Système Stellaire Antique! »
+« Ce sort peut fusionner d'autres sorts. Le premier que je dois fusionner est la Déformation Spatiale! Bien que ce sort soit puissant et me permette de me déplacer instantanément à travers l'espace infini, il possède un défaut fatal. Une fois que l'énergie d'origine du monde est perturbée, il devient inutilisable... La femme en blanc attend aux abords du Clan Lan Si. Ce n'est qu'en me défaisant totalement de son suivi que je pourrai agir à ma guise dans le Système Stellaire Antique! »
 
-« Ensuite, j'absorberai suffisamment de Flammes Joss pour compléter mes cinq essences! Le feu du Clan des Moineaux de Feu et le tonnerre du Clan du Tonnerre Dispersé seront d'excellentes sources de nutriments pour moi! »
+« Ensuite, j'absorberai suffisamment de Flammes Joss pour compléter mes cinq essences! Le feu du Clan Huo Que et le tonnerre du Clan Shan Lei seront d'excellentes sources de nutriments pour moi! »
 
 « Les marques entre les sourcils des habitants du Système Stellaire Antique sont étranges. Elles semblent capables de se dévorer mutuellement et d'évoluer constamment vers une forme de perfection... »
 

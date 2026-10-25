@@ -32,11 +32,11 @@ Des tonnerres résonnèrent. Ces fracas incessants faillirent provoquer l'effond
 
 Alors que le rugissement grondait, Wang Lin avait déjà perdu tout son sang. Son cœur battit faiblement avant de se briser soudainement, et il fut projeté en arrière. La lumière vacilla dans ses yeux.
 
-L'effondrement provoqué par les cent coups était assez puissant pour tout détruire. Même un être au stade du Fléau Céleste en mourrait! L'onde de choc se propagea dans toutes les directions, balayant la Mer des Nuages!
+L'effondrement provoqué par les cent coups était assez puissant pour tout détruire. Même un être au stade du Fléau Céleste en mourrait! L'onde de choc se propagea dans toutes les directions, balayant la Mer Yun!
 
 Tandis que l'onde s'étendait, toute la brume stellaire s'effondra, les bêtes féroces périrent et même de nombreux continents sauvages furent pulvérisés. La région de rang 6 subit le même sort!
 
-C'était comme si un trou béant s'était ouvert dans la Mer des Nuages. Le vent hurlait hors du gouffre, comme si un démon terrifiant s'apprêtait à en sortir!
+C'était comme si un trou béant s'était ouvert dans la Mer Yun. Le vent hurlait hors du gouffre, comme si un démon terrifiant s'apprêtait à en sortir!
 
 Sous ce bombardement et cette onde de choc, des bruits de craquements résonnèrent autour du Shui Daozi. Ses mains continuèrent de bouger tandis qu'il battait en retraite rapidement. Le vortex d'eau fut repoussé et s'engouffra immédiatement dans son corps.
 

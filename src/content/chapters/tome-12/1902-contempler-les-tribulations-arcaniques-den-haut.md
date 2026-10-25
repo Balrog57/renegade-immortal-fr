@@ -24,7 +24,7 @@ Il marcha vers les cieux, ses longs cheveux flottant derrière lui tels un drago
 
 ***
 
-Dans les profondeurs du Temple du Scorpion Vert, sur le Continent du Démon Vert, Wang Lin contemplait les trois essences éthérées devant lui. Ses mains formèrent un sceau et il pointa l'avant.
+Dans les profondeurs du Temple Lu Mo Xie, sur le Continent Lu Mo, Wang Lin contemplait les trois essences éthérées devant lui. Ses mains formèrent un sceau et il pointa l'avant.
 
 Sur ce geste, les trois essences commencèrent à converger et à fusionner lentement. Ces trois essences n'avaient pas été acquises par des moyens extérieurs, mais étaient nées de ses propres domaines et de sa compréhension.
 
@@ -80,15 +80,15 @@ Il avait encore besoin de plus de puissance du monde!
 
 Les yeux de Wang Lin s'illuminèrent et, sans hésiter, il ouvrit la bouche pour inspirer. À son inspiration, la puissance du monde se précipita dans le temple du scorpion; même le brouillard extérieur fut aspiré, formant un vortex colossal. Cela devint un phénomène céleste!
 
-Ce changement soudain attira l'attention de tous les cultivateurs du Continent du Démon Vert. La bataille entre le Continent du Démon Vert et le Continent du Taureau Céleste touchait à sa fin. Après la mort d'un nombre immense de combattants, il ne restait plus beaucoup de cultivateurs sur le continent!
+Ce changement soudain attira l'attention de tous les cultivateurs du Continent Lu Mo. La bataille entre le Continent Lu Mo et le Continent Tian Niu touchait à sa fin. Après la mort d'un nombre immense de combattants, il ne restait plus beaucoup de cultivateurs sur le continent!
 
 Mais ceux qui subsistaient étaient tous des puissances redoutables!
 
-En particulier, bien que d'innombrables disciples fussent tombés, la Secte du Dao Démoniaque possédait encore près de 30 % de ses effectifs. Cependant, leur Maître de Secte était entré en culture isolée depuis plus de cent ans et n'en était jamais ressorti.
+En particulier, bien que d'innombrables disciples fussent tombés, la Secte Dao Mo possédait encore près de 30 % de ses effectifs. Cependant, leur Maître de Secte était entré en culture isolée depuis plus de cent ans et n'en était jamais ressorti.
 
-À cet instant, l'immense bouleversement au Temple du Scorpion Vert, au centre même du continent, fut ressenti par toutes les sectes environnantes.
+À cet instant, l'immense bouleversement au Temple Lu Mo Xie, au centre même du continent, fut ressenti par toutes les sectes environnantes.
 
-Quiconque pouvait le ressentir connaissait la rumeur de la résurrection du Démon Vert. Instantanément, plus de dix rayons de lumière foncèrent vers le temple. Deux autres rayons provenant de la Secte du Dao Démoniaque s'élancèrent également pour assister à la résurrection du Scorpion Vert!
+Quiconque pouvait le ressentir connaissait la rumeur de la résurrection du Démon Vert. Instantanément, plus de dix rayons de lumière foncèrent vers le temple. Deux autres rayons provenant de la Secte Dao Mo s'élancèrent également pour assister à la résurrection du Scorpion Vert!
 
 Le phénomène autour du temple dura plusieurs mois. Durant cette période, une quantité phénoménale d'énergie mondiale convergea vers ce point avec frénésie. Les cultivateurs présents n'osaient s'approcher, se contentant d'observer depuis la périphérie, reculant à mesure que le phénomène s'étendait.
 
@@ -118,7 +118,7 @@ Le groupe de trois personnes de Yun Yifeng n'était plus là. Apparemment, ils a
 
 Cela n'avait plus d'importance. Pour Wang Lin, Bord-des-Nuages n'était plus qu'une fumée du passé. Ce qu'il devait affronter désormais, c'étaient les neuf Tribulations Arcaniques!
 
-« Si je peux traverser les neuf Tribulations Arcaniques d'un seul coup et atteindre la Tribulation du Vide, je détruirai l'intégralité de la Secte du Dao Démoniaque. Même les cultivateurs du stade avancé de la Tribulation du Vide seront anéantis pour rembourser ce siècle de fortune! » Une froideur glaciale émanait de ses yeux, empreints d'une puissante intention meurtrière.
+« Si je peux traverser les neuf Tribulations Arcaniques d'un seul coup et atteindre la Tribulation du Vide, je détruirai l'intégralité de la Secte Dao Mo. Même les cultivateurs du stade avancé de la Tribulation du Vide seront anéantis pour rembourser ce siècle de fortune! » Une froideur glaciale émanait de ses yeux, empreints d'une puissante intention meurtrière.
 
 Levant le regard, Wang Lin attendait!
 

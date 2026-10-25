@@ -32,13 +32,13 @@ Le vieil homme soupira: « Peu importe. Laissons-la. Suis-moi jusqu'à la montag
 
 Ce vieil homme était Yun Quezi.
 
-Le Clan des Immortels Délaissés utilisait le crâne de l'Ancêtre. Grâce aux runes de ce crâne et à son niveau de culture de douze feuilles, ils avaient réussi à lever provisoirement les restrictions du Tombeau de Suzaku pour y envoyer Yun Quezi.
+Le Clan Xian Yi utilisait le crâne de l'Ancêtre. Grâce aux runes de ce crâne et à son niveau de culture de douze feuilles, ils avaient réussi à lever provisoirement les restrictions du Tombeau Zhu Que pour y envoyer Yun Quezi.
 
 Cependant, si l'Ancêtre avait été encore en vie, il aurait peut-être pu lever totalement les restrictions sur le Cristal. Comme ils ne disposaient que de la puissance des runes de son crâne, la situation n'était pas idéale. Bien qu'ils aient pu introduire Yun Quezi, il y avait une limite de temps; une fois ce délai expiré, Yun Quezi serait tué par la puissance mystérieuse du Cristal.
 
 C'est pourquoi, dès son entrée, il ne perdit pas un instant et se précipita droit vers la montagne spirituelle située au centre.
 
-À cet instant, Qian Feng chargeait également vers la montagne spirituelle. Outre ces deux-là, d'autres individus se ruaient vers le centre du Tombeau de Suzaku. Parmi eux se trouvaient des membres du Clan des Immortels Délaissés et quelques cultivateurs.
+À cet instant, Qian Feng chargeait également vers la montagne spirituelle. Outre ces deux-là, d'autres individus se ruaient vers le centre du Tombeau Zhu Que. Parmi eux se trouvaient des membres du Clan Xian Yi et quelques cultivateurs.
 
 À ce moment précis, un vieil homme se tenait déjà sur la montagne spirituelle. Bien qu'il paraisse ordinaire, ses yeux dégageaient une lueur rouge sang. Un petit singe était perché sur son épaule, et le reflet écarlate dans les yeux du singe était encore plus intense.
 

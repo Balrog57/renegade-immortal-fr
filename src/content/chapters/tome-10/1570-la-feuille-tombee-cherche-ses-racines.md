@@ -20,11 +20,11 @@ L'escalier menait au pied de la statue. Par conséquent, tous les cultivateurs a
 
 C'était une statue de Wang Lin!
 
-Elle représentait Wang Lin lors de la première bataille de la Mer des Nuages!
+Elle représentait Wang Lin lors de la première bataille de la Mer Yun!
 
 Cependant, le visage de la statue était flou, empêchant quiconque de distinguer ses traits avec précision.
 
-« Ceci est une statue du Seigneur du Royaume Scellé lors de la première bataille de la Mer des Nuages. Elle fut érigée juste après qu'il eut terrassé l'ancêtre du Clan des Moineaux de Feu et Nanzhao Shangren. Il se tenait seul à la brèche de la Formation de Scellement du Royaume, face à l'armée de l'Extérieur, composée de dizaines de milliers de cultivateurs, et aucun d'entre eux n'osait faire le moindre pas en avant! » Les paroles du vieil homme résonnèrent, incitant ses trois disciples à se retourner pour lui rendre hommage.
+« Ceci est une statue du Seigneur du Royaume Scellé lors de la première bataille de la Mer Yun. Elle fut érigée juste après qu'il eut terrassé l'ancêtre du Clan Huo Que et Nanzhao Shangren. Il se tenait seul à la brèche de la Formation de Scellement du Royaume, face à l'armée de l'Extérieur, composée de dizaines de milliers de cultivateurs, et aucun d'entre eux n'osait faire le moindre pas en avant! » Les paroles du vieil homme résonnèrent, incitant ses trois disciples à se retourner pour lui rendre hommage.
 
 « Après cette première bataille, le nom du Seigneur du Royaume Scellé devint célèbre dans le Royaume Intérieur, et l'on apprit qu'il venait de la planète Suzaku. Les cultivateurs du Royaume Intérieur se rassemblèrent et, sous la direction de plusieurs puissants Anciens et du seigneur de la planète Suzaku, Zhou Wutai, le plus haut sommet fut transformé en une statue du Seigneur du Royaume Scellé », continua la voix de l'homme.
 
@@ -46,11 +46,11 @@ De nombreux pays de culture sur la planète Suzaku avaient disparu; désormais, 
 
 Ces neuf grandes sectes occupaient la majeure partie du territoire.
 
-En avançant, Wang Lin aperçut la Secte de l'Affinement de l'Âme. Le souvenir de Du Tian était toujours là, mais la Secte de l'Affinement de l'Âme n'était plus la même. La montagne avait disparu, remplacée par un lac entouré de nombreux pavillons d'où émanaient des ondes d'énergie spirituelle, mais il s'agissait désormais d'une autre secte.
+En avançant, Wang Lin aperçut la Secte Lian Hun. Le souvenir de Du Tian était toujours là, mais la Secte Lian Hun n'était plus la même. La montagne avait disparu, remplacée par un lac entouré de nombreux pavillons d'où émanaient des ondes d'énergie spirituelle, mais il s'agissait désormais d'une autre secte.
 
 C'était ici que Situ Nan s'était réveillé. Ses paroles tyranniques, capables de faire cesser la pluie, résonnaient encore aux oreilles de Wang Lin, mais il ne décelait plus aucune aura familière.
 
-Le Clan des Démons Géants du passé apparut dans son esprit, mais lui aussi avait changé. L'endroit où résidait autrefois le clan n'était plus qu'une vaste prairie. Des nomades mortels y circulaient, vêtus de simples tuniques ou torse nu, marchant parmi un troupeau de moutons tout en entonnant des chants joyeux. Quelques chiens parmi le troupeau aboyaient avec enthousiasme; leurs aboiements se mêlaient aux chansons sans paraître déplacés, conférant au tableau une atmosphère de paisible insouciance.
+Le Clan Ju Mo du passé apparut dans son esprit, mais lui aussi avait changé. L'endroit où résidait autrefois le clan n'était plus qu'une vaste prairie. Des nomades mortels y circulaient, vêtus de simples tuniques ou torse nu, marchant parmi un troupeau de moutons tout en entonnant des chants joyeux. Quelques chiens parmi le troupeau aboyaient avec enthousiasme; leurs aboiements se mêlaient aux chansons sans paraître déplacés, conférant au tableau une atmosphère de paisible insouciance.
 
 « Cet endroit aussi... a changé... » Wang Lin ressentit une profonde mélancolie et poursuivit sa marche. Le fou le suivait en silence. Il percevait la solitude de Wang Lin et ressentait lui aussi le mal du pays.
 
@@ -68,7 +68,7 @@ Wang Lin était déjà revenu sur la planète Suzaku par le passé et avait cons
 
 Il craignait de n'y trouver que l'inconnu, d'être réduit à n'avoir que des souvenirs sans avoir de demeure.
 
-Il craignait tout autant de contempler la grotte dans la Mer des Démons où il avait vécu avec Li Muwan. Il redoutait de chercher cette vallée si réconfortante, de peur qu'elle ne soit elle aussi disparue.
+Il craignait tout autant de contempler la grotte dans la Mer Xiu Mo où il avait vécu avec Li Muwan. Il redoutait de chercher cette vallée si réconfortante, de peur qu'elle ne soit elle aussi disparue.
 
 Regardant la jungle, Wang Lin s'y enfonça silencieusement, comme en quête de quelque chose. Finalement, après avoir écarté les feuilles devant lui, il découvrit les ruines d'une cité. Quelques petites bêtes s'agitaient entre les bâtiments délabrés. À l'approche de Wang Lin, elles furent effrayées et se dispersèrent.
 
@@ -76,7 +76,7 @@ Il erra dans les décombres, cherchant un signe. Il crut presque saisir une ombr
 
 Après être resté là, immobile et stupéfait, Wang Lin poussa un soupir et repartit.
 
-Il se dirigea vers la Mer des Démons. La mer elle-même n'était plus la même. Autrefois, bien que la brume se fût dissipée, le bassin géant subsistait. Désormais, quelqu'un l'avait comblé pour en faire l'un des domaines de l'une des neuf grandes sectes.
+Il se dirigea vers la Mer Xiu Mo. La mer elle-même n'était plus la même. Autrefois, bien que la brume se fût dissipée, le bassin géant subsistait. Désormais, quelqu'un l'avait comblé pour en faire l'un des domaines de l'une des neuf grandes sectes.
 
 La grotte où il avait partagé sa vie avec Li Muwan avait disparu. Wang Lin la contempla depuis les cieux et sentit son cœur se déchirer. Il aurait voulu voir cette grotte, le corps du dragon géant, et cet endroit précis où Li Muwan avait mis tout son cœur.
 

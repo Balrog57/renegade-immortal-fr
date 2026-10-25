@@ -6,7 +6,7 @@ bookTitle: Alliance's Secret
 en: Chapter 1039 - Liu Mei (1)
 slug: liu-mei-1
 ---
-Le monde changea. Bien qu'il s'agisse de la Grotte de l'Empereur Céleste, cela ne pouvait entraver le regard de Wang Lin. Des flammes jaillissaient de son œil gauche et des éclairs fusaient de son œil droit.
+Le monde changea. Bien qu'il s'agisse de la Grotte Xian Di, cela ne pouvait entraver le regard de Wang Lin. Des flammes jaillissaient de son œil gauche et des éclairs fusaient de son œil droit.
 
 À cet instant, le monde devant Wang Lin était radicalement différent de ce qu'il avait été.
 
@@ -40,19 +40,19 @@ La Perle Défiant le Ciel sortit lentement du vortex et flotta devant lui. Des o
 
 À cet instant, l'esprit de Wang Lin fusionna avec la Perle Défiant le Ciel. Il ressentit un grondement tonitruant dans sa tête et sa vision se brouilla. C'était comme si une force colossale s'était emparée de son esprit pour briser tous les obstacles de la grotte et s'élancer directement vers le ciel.
 
-Au même moment, un rayon de lumière jaillit du centre de la Terre des Esprits Démoniaques et s'élança vers les cieux.
+Au même moment, un rayon de lumière jaillit du centre de la Terre Yao Ling et s'élança vers les cieux.
 
 Wang Lin vit le ciel. L'azur se transforma instantanément en de longues lignes bleues entrelacées.
 
-Il vit les nuages blancs, la terre, la végétation et les innombrables habitants de la Terre des Esprits Démoniaques. Il vit également les rivières et les montagnes.
+Il vit les nuages blancs, la terre, la végétation et les innombrables habitants de la Terre Yao Ling. Il vit également les rivières et les montagnes.
 
 Grâce au pouvoir mystérieux de la Perle Défiant le Ciel, l'esprit de Wang Lin se propagea à travers le monde, contemplant toutes les lois de l'existence.
 
 Tout ce qui l'entourait était Loi, et ces lignes colorées étaient la manifestation visuelle de ces lois.
 
-Alors qu'il continuait sa progression, Wang Lin sembla se transformer en une brise légère, balayant la Terre des Esprits Démoniaques. Puis, il chargea droit vers le ciel, enveloppé par le pouvoir mystérieux de la Perle Défiant le Ciel.
+Alors qu'il continuait sa progression, Wang Lin sembla se transformer en une brise légère, balayant la Terre Yao Ling. Puis, il chargea droit vers le ciel, enveloppé par le pouvoir mystérieux de la Perle Défiant le Ciel.
 
-Un autre coup de tonnerre résonna dans son esprit alors qu'il transperçait la Terre des Esprits Démoniaques grâce à l'aide de la perle. C'était un exploit que d'innombrables cultivateurs, même des êtres comme Tian Yunzi, ne pouvaient accomplir par la force.
+Un autre coup de tonnerre résonna dans son esprit alors qu'il transperçait la Terre Yao Ling grâce à l'aide de la perle. C'était un exploit que d'innombrables cultivateurs, même des êtres comme Tian Yunzi, ne pouvaient accomplir par la force.
 
 C'était comme si rien ne pouvait entraver son esprit et la Perle Défiant le Ciel, et rien n'osait s'y opposer!
 
@@ -80,7 +80,7 @@ Aucun des cultivateurs sur ces planètes ne remarqua le passage de son esprit, p
 
 Après tout, l'esprit de Wang Lin était protégé par la Perle Défiant le Ciel. S'il ne souhaitait pas que l'on connaisse son existence, alors personne ne le saurait, pas même les cultivateurs au stade du Briseur du Nirvana!
 
-Alors que son esprit se propageait avec la Terre des Esprits Démoniaques pour centre, le temps semblait s'étirer à l'infini. On ignorait combien de temps s'était écoulé, mais l'esprit de Wang Lin avait déjà couvert une petite moitié de l'Alliance.
+Alors que son esprit se propageait avec la Terre Yao Ling pour centre, le temps semblait s'étirer à l'infini. On ignorait combien de temps s'était écoulé, mais l'esprit de Wang Lin avait déjà couvert une petite moitié de l'Alliance.
 
 Il ne s'arrêta pas là. Tout en poursuivant son illumination, il étira son esprit encore davantage grâce au pouvoir de la perle. Il le propagea plus loin, plus largement et plus profondément...
 
@@ -116,11 +116,11 @@ L'esprit de Wang Lin continua de s'étendre. Au centre de l'Alliance, il y avait
 
 Un bâtiment circulaire extrêmement vaste flottait parmi les étoiles, entouré d'au moins plusieurs centaines d'édifices plus petits. Des décharges d'éclairs noirs jaillissaient constamment, dégageant une pression étrange.
 
-C'était l'entrée de l'Alliance de Culture. On ne pouvait atteindre le siège de l'Alliance qu'en passant par là.
+C'était l'entrée de l'Alliance Xiu Zhen. On ne pouvait atteindre le siège de l'Alliance qu'en passant par là.
 
 L'esprit de Wang Lin atteignit ce lieu singulier. Il pénétra même l'entrée pour parvenir jusqu'au siège de l'Alliance.
 
-Le siège de l'Alliance occupait son propre royaume séparé. Il appartenait autrefois au Royaume Céleste de la Pluie, avant d'être découvert et occupé par l'Alliance de Culture.
+Le siège de l'Alliance occupait son propre royaume séparé. Il appartenait autrefois au Royaume Céleste de la Pluie, avant d'être découvert et occupé par l'Alliance Xiu Zhen.
 
 173 planètes de culture géantes formaient le siège de l'Alliance. 172 d'entre elles étaient disposées en cercle et n'étaient pas statiques; elles se mouvaient lentement.
 

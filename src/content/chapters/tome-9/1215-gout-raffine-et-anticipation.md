@@ -74,13 +74,13 @@ Cette scène était visible de n'importe quel point du Royaume aux Sept Couleurs
 
 Il regarda avec stupeur le pilier de feu et de foudre au loin. Sa gorge était sèche et son visage livide.
 
-« Tuer un cultivateur au stade avancé du Briseur du Nirvana... Son nom sera célèbre dans la Mer des Nuages. Moi, Chen Tianjun, j'ai l'honneur d'être témoin de son exploit en cet instant! »
+« Tuer un cultivateur au stade avancé du Briseur du Nirvana... Son nom sera célèbre dans la Mer Yun. Moi, Chen Tianjun, j'ai l'honneur d'être témoin de son exploit en cet instant! »
 
 Au loin, la vieille femme vêtue de vert était pâle en contemplant le brasier et la foudre. La peur brillait dans ses yeux. Elle sentait instinctivement que si elle devait affronter l'un ou l'autre, elle mourrait sans aucun doute!
 
 Son esprit vacillait; elle ne pouvait s'empêcher d'être terrifiée, surtout en songeant qu'ils étaient ennemis. Aucun cultivateur ne méprisait sa propre vie, et cela était encore plus vrai pour elle.
 
-« Je dois me réconcilier avec cet homme et réparer le conflit que nous avons eu. Sinon, avec lui comme ennemi, il n'y aura plus de place pour moi dans la Mer des Nuages. Heureusement, notre différend n'est pas profond et il n'y a pas de querelle directe... » La vieille femme prit une grande inspiration et prit sa décision.
+« Je dois me réconcilier avec cet homme et réparer le conflit que nous avons eu. Sinon, avec lui comme ennemi, il n'y aura plus de place pour moi dans la Mer Yun. Heureusement, notre différend n'est pas profond et il n'y a pas de querelle directe... » La vieille femme prit une grande inspiration et prit sa décision.
 
 Plus loin encore, Maître Nuage-Âme affichait un visage amer. Ayant naturellement perçu le combat, il éprouvait des sentiments complexes, dominés par une panique croissante. Cette panique était comme un feu prêt à consumer son esprit.
 
@@ -110,6 +110,6 @@ De cette position, les gémissements provenant de la grotte étaient encore plus
 
 « La chaleur a atteint la température requise... Seulement, ce feu ne convient pas pour planter le Dao... Car il n'a pas encore fait bouillir l'âme... » dit une voix ancienne émanant de derrière la bougie.
 
-« Un faux membre du Clan de l'Extermination des Sceaux est mort. N'avez-vous aucun doute sur les causes de son décès? » demanda une voix indifférente.
+« Un faux membre du Clan Feng Mie est mort. N'avez-vous aucun doute sur les causes de son décès? » demanda une voix indifférente.
 
 « Pourquoi douterais-je... Je connaîtrai la réponse une fois que le Dao aura été planté. Ce sera bien plus intéressant... L'inconnu possède le goût le plus délicieux... L'attente est l'arrière-goût éternel. Alors, laissez le feu devenir fou... »

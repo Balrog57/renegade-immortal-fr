@@ -8,27 +8,27 @@ slug: un-corps-de-tresors
 ---
 Wang Lin volait à basse altitude près du fond de la mer, un drapeau à la main. C'était un drapeau d'âmes contenant plus de cent âmes scellées, dont celle de Sang Muya. Ce drapeau appartenait autrefois à Sang Muya; il ne s'attendait pas à ce qu'il devienne sa propre tombe.
 
-Après avoir discuté avec Sang Muya, Wang Lin apprit que tout ce qui se trouvait dans un rayon de cinq cent mille kilomètres était considéré comme la périphérie extérieure de la Mer des Démons. D'innombrables sectes, grandes et petites, peuplaient cette zone, et la Secte de la Lutte contre le Mal en faisait partie.
+Après avoir discuté avec Sang Muya, Wang Lin apprit que tout ce qui se trouvait dans un rayon de cinq cent mille kilomètres était considéré comme la périphérie extérieure de la Mer Xiu Mo. D'innombrables sectes, grandes et petites, peuplaient cette zone, et la Secte Dou Xie en faisait partie.
 
 Le cultivateur au niveau le plus élevé de la secte était son chef, Liu Sen, le grand-maître de Sang Muya. Il se situait au sommet du stade intermédiaire de la Formation du Noyau et jouissait d'une certaine renommée dans la région.
 
-La périphérie extérieure de la Mer des Démons manquait cruellement de ressources et ne possédait que très peu de veines spirituelles. On n'y trouvait que de rares cultivateurs de l'Âme Naissante, car beaucoup refusaient de s'installer dans cette zone; la plupart résidaient dans la section centrale de la Mer des Démons.
+La périphérie extérieure de la Mer Xiu Mo manquait cruellement de ressources et ne possédait que très peu de veines spirituelles. On n'y trouvait que de rares cultivateurs de l'Âme Naissante, car beaucoup refusaient de s'installer dans cette zone; la plupart résidaient dans la section centrale de la Mer Xiu Mo.
 
 En plus de cela, Wang Lin apprit qu'il n'y avait aucune ossature de bête spirituelle sur la périphérie extérieure. Ces puissantes créatures vivaient toutes dans la partie centrale et, même si l'une d'elles s'aventurait par ici, les cultivateurs démoniaques locaux n'auraient pas eu la force de la tuer.
 
-Toutefois, Wang Lin parvint à obtenir des informations utiles. Au sein de la périphérie extérieure de la Mer des Démons existaient trois zones dangereuses. L'une d'elles, la Vallée des Cadavres, regorgeait d'ossements de bêtes. Si les sectes voisines avaient besoin de tels matériaux, elles s'y rendaient.
+Toutefois, Wang Lin parvint à obtenir des informations utiles. Au sein de la périphérie extérieure de la Mer Xiu Mo existaient trois zones dangereuses. L'une d'elles, la Vallée Shi, regorgeait d'ossements de bêtes. Si les sectes voisines avaient besoin de tels matériaux, elles s'y rendaient.
 
-La chose étrange était que, de temps à autre, les cadavres de nouvelles bêtes spirituelles apparaissaient dans la Vallée des Cadavres. Certaines de ces créatures étaient extrêmement puissantes de leur vivant et n'auraient jamais pu venir jusqu'ici, sans parler de la raison pour laquelle elles mouraient au sein de la vallée.
+La chose étrange était que, de temps à autre, les cadavres de nouvelles bêtes spirituelles apparaissaient dans la Vallée Shi. Certaines de ces créatures étaient extrêmement puissantes de leur vivant et n'auraient jamais pu venir jusqu'ici, sans parler de la raison pour laquelle elles mouraient au sein de la vallée.
 
-Bien que la Vallée des Cadavres fût mystérieuse, tant que l'on ne pénétrait pas dans sa partie centrale, rien de dangereux ne se produisait généralement.
+Bien que la Vallée Shi fût mystérieuse, tant que l'on ne pénétrait pas dans sa partie centrale, rien de dangereux ne se produisait généralement.
 
-Quant à l'os que Sang Muya utilisait pour s'en prendre à son frère de discipline aîné, il provenait de la Vallée des Cadavres; il était fait d'ossements d'une mystérieuse bête corbeau. Après une longue étude, Wang Lin découvrit que ce poison ne fonctionnait que sur les cultivateurs de l'Établissement des Fondations. Son effet s'affaiblissait à mesure que le cultivateur progressait : il était presque nul au stade avancé de l'Établissement des Fondations, et sans effet contre la Formation du Noyau.
+Quant à l'os que Sang Muya utilisait pour s'en prendre à son frère de discipline aîné, il provenait de la Vallée Shi; il était fait d'ossements d'une mystérieuse bête corbeau. Après une longue étude, Wang Lin découvrit que ce poison ne fonctionnait que sur les cultivateurs de l'Établissement des Fondations. Son effet s'affaiblissait à mesure que le cultivateur progressait : il était presque nul au stade avancé de l'Établissement des Fondations, et sans effet contre la Formation du Noyau.
 
-La destination actuelle de Wang Lin était la Vallée des Cadavres. Il vola rapidement dans la direction indiquée par Sang Muya.
+La destination actuelle de Wang Lin était la Vallée Shi. Il vola rapidement dans la direction indiquée par Sang Muya.
 
 À son arrivée aux abords de la vallée, il aperçut d'innombrables chaînes de montagnes. Des sommets hauts et bas se succédaient, et là où les massifs se rejoignaient, se trouvaient des vallées plus ou moins vastes.
 
-C'était la Vallée des Cadavres.
+C'était la Vallée Shi.
 
 Le brouillard y était très ténu et n'affectait pas la visibilité. Cependant, en pénétrant dans la vallée, Wang Lin sentit une énergie Yin dont la qualité différait radicalement de celle de l'extérieur.
 
@@ -40,15 +40,15 @@ Puisque la lumière était bleue, cet endroit contenait la très rare énergie Y
 
 Wang Lin prit une profonde inspiration et pointa l'avant. La sphère de lumière s'élança aussitôt. Wang Lin suivit lentement la lueur, observant sa couleur tout en cherchant des ossements de bêtes.
 
-Le Sens Divin de Wang Lin détecta plusieurs cultivateurs à l'intérieur de la Vallée des Cadavres, mais tous étaient concentrés sur la recherche d'ossements. Même s'ils se croisaient, ils se contentaient d'un signe de tête en passant.
+Le Sens Divin de Wang Lin détecta plusieurs cultivateurs à l'intérieur de la Vallée Shi, mais tous étaient concentrés sur la recherche d'ossements. Même s'ils se croisaient, ils se contentaient d'un signe de tête en passant.
 
-Wang Lin réfléchit un instant. Il n'y avait pas qu'une seule Vallée des Cadavres, mais d'innombrables vallées de tailles diverses. Plus on s'enfonçait, moins il y avait de cultivateurs et plus il y avait d'ossements.
+Wang Lin réfléchit un instant. Il n'y avait pas qu'une seule Vallée Shi, mais d'innombrables vallées de tailles diverses. Plus on s'enfonçait, moins il y avait de cultivateurs et plus il y avait d'ossements.
 
 Après avoir traversé neuf vallées, les restes de bêtes devinrent bien plus nombreux. Certains étaient d'une taille terrifiante, occupant la majeure partie de l'espace.
 
 Wang Lin se tenait sur le cadavre d'une bête gigantesque, mais après l'avoir examiné, il renonça à l'idée de l'emporter. Bien que ce corps fût immense, les os ne contenaient aucune énergie spirituelle; ce n'était donc pas une bête spirituelle, juste un animal de grande taille.
 
-À mesure qu'il approchait du centre de la Vallée des Cadavres, la couleur de la sphère devenait plus intense. Après avoir passé la neuvième vallée, il ne vit plus aucun cultivateur et la quantité de cadavres augmenta.
+À mesure qu'il approchait du centre de la Vallée Shi, la couleur de la sphère devenait plus intense. Après avoir passé la neuvième vallée, il ne vit plus aucun cultivateur et la quantité de cadavres augmenta.
 
 Wang Lin marqua une pause dans la neuvième vallée. Très prudent, il déploya son Sens Divin. Pour une raison quelconque, depuis qu'il avait atteint cette neuvième vallée, il sentait que l'atmosphère différait des huit précédentes. Il ne pouvait dire précisément quoi, mais il avait l'impression que d'innombrables paires d'yeux convergeaient vers lui dès son entrée.
 
@@ -66,7 +66,7 @@ Mais il était réticent à l'idée de repartir maintenant. De sa position, il p
 
 De plus, le plus étrange dans cette quatorzième vallée était l'absence totale de cadavres. Le sol entier était recouvert d'un givre bleu scintillant d'un aspect très mystérieux.
 
-De loin, Wang Lin comprit que la quatorzième vallée n'était pas la fin de la Vallée des Cadavres, mais seulement un point médian. Il secoua la tête et décida de rebrousser chemin.
+De loin, Wang Lin comprit que la quatorzième vallée n'était pas la fin de la Vallée Shi, mais seulement un point médian. Il secoua la tête et décida de rebrousser chemin.
 
 Alors qu'il s'apprêtait à partir, un rugissement retentit au loin et un dragon gigantesque, long de plus de 3,3 kilomètres, émergea du brouillard.
 
@@ -88,15 +88,15 @@ Le rugissement dura un bâton d'encens avant que le regard du dragon ne s'éteig
 
 À cet instant, Wang Lin jaillit de terre et chargea vers le dragon sans la moindre hésitation. En un clin d'œil, il pénétra dans la quatorzième vallée. Flottant dans les airs, il saisit la queue du dragon qui sombrait et tira de toutes ses forces.
 
-Il n'entendit que des craquements alors qu'il extirpait le corps du dragon du sol. Le cœur battant à tout rompre, il emporta ce corps pesant pour s'échapper de la Vallée des Cadavres.
+Il n'entendit que des craquements alors qu'il extirpait le corps du dragon du sol. Le cœur battant à tout rompre, il emporta ce corps pesant pour s'échapper de la Vallée Shi.
 
 Le dragon était d'une lourdeur inouïe. Même en mobilisant toute son énergie spirituelle, il parvenait à peine à le porter. Il entendait ses propres os craquer sous la pression, mais à la pensée d'obtenir le corps d'un dragon fraîchement mort, Wang Lin fit abstraction de la douleur.
 
-Après avoir volé péniblement hors de la Vallée des Cadavres, Wang Lin aperçut les cultivateurs qui collectaient des ossements en périphérie. Tous avaient activé leurs trésors défensifs en le regardant, frappés de stupeur.
+Après avoir volé péniblement hors de la Vallée Shi, Wang Lin aperçut les cultivateurs qui collectaient des ossements en périphérie. Tous avaient activé leurs trésors défensifs en le regardant, frappés de stupeur.
 
 Ces cultivateurs étaient habitués à ce genre d'événements; dès l'apparition du dragon, ils s'étaient dispersés pour se réfugier derrière leurs protections. Malgré cela, certains avaient été fauchés par la puissance du rugissement.
 
-Pour survivre ici, il fallait non seulement un certain niveau de culture, mais aussi de la vivacité d'esprit. Ces gens passaient leurs années ici, dépendant de la vente des ossements de la Vallée des Cadavres pour subsister.
+Pour survivre ici, il fallait non seulement un certain niveau de culture, mais aussi de la vivacité d'esprit. Ces gens passaient leurs années ici, dépendant de la vente des ossements de la Vallée Shi pour subsister.
 
 Habitués aux lieux, ils voyaient parfois des bêtes spirituelles mourir dans la vallée, mais c'était la première fois qu'ils voyaient quelqu'un transporter le corps d'une créature venant de s'éteindre.
 

@@ -72,7 +72,7 @@ Cependant, un sentiment puissant de ressentiment persista dans le vide. Ce resse
 
 Ce ressentiment était d'une puissance dépassant l'imagination. S'il n'était pas dissipé, il subsisterait pour l'éternité. Peut-être qu'après de longs millénaires, une nouvelle vie naîtrait de cette rancœur.
 
-Wang Lin fut témoin de tout cela. Après une courte réflexion silencieuse, il pointa le ciel et commanda: « Le Dao forme la Rivière des Enfers! »
+Wang Lin fut témoin de tout cela. Après une courte réflexion silencieuse, il pointa le ciel et commanda: « Le Dao forme la Rivière Huang Quan! »
 
 Une rivière des enfers apparut. C'était comme si le ressentiment avait trouvé un exutoire pour se déverser dans les eaux de l'au-delà. Il fusionna avec le ressentiment déjà présent dans la rivière, gagnant en puissance.
 
@@ -86,7 +86,7 @@ En voyant cet objet, il pensa à Li Muwan.
 
 « Planète Dong Lin! Avec ma culture actuelle, je devrais pouvoir y jeter un œil! » Les yeux de Wang Lin brillèrent d'une lueur intense. Outre le besoin d'éviter Tian Yunzi et d'autres vieux monstres, il s'était rendu dans le système stellaire Luotian pour chercher la famille Xiang sur la planète Dong Lin, afin de trouver un moyen de ressusciter Li Muwan.
 
-Wang Lin n'oublierait jamais le choc et l'impulsion qu'il avait ressentis lorsque cette femme avait évoqué le réveil de Li Muwan dans l'Abîme des Marées.
+Wang Lin n'oublierait jamais le choc et l'impulsion qu'il avait ressentis lorsque cette femme avait évoqué le réveil de Li Muwan dans l'Abîme Chao Xi.
 
 À cet instant, l'élan qui avait parcouru son corps aurait pu faire trembler les cieux et la terre. C'était comme si des dizaines de milliers de coups de tonnerre l'avaient frappé. Qu'il s'agisse d'une vérité ou d'un mirage, il devait se rendre chez la famille Xiang sur la planète Dong Lin!
 
@@ -110,7 +110,7 @@ Au moment où la gueule s'ouvrit, une formation fulgurante apparut. Un homme en 
 
 Le premier portait des robes vertes. Bien qu'il ait l'apparence d'un jeune homme, il dégageait une aura ancienne et profonde, comme si un vieillard millénaire habitait ce corps de jeunesse.
 
-Les yeux de Wang Lin trahirent une pointe de confusion. Dès son apparition, il fut poussé en avant par la brume. Derrière lui, les membres du Clan des Immortels Élus sortirent, empreints de crainte face à ce nouveau monde, suivant de près Wang Lin.
+Les yeux de Wang Lin trahirent une pointe de confusion. Dès son apparition, il fut poussé en avant par la brume. Derrière lui, les membres du Clan Xian Xuan sortirent, empreints de crainte face à ce nouveau monde, suivant de près Wang Lin.
 
 Poussé par le brouillard, Wang Lin se retourna lorsqu'il fut sorti et vit la bête inimaginablement gigantesque.
 

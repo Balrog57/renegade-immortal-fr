@@ -122,7 +122,7 @@ Zhou Ru et Hongdie apparurent du vide. Au même moment, le père de Wang Lin sur
 
 « Wang Lin, te souviens-tu encore de moi... » Wang Zhuo sortit du néant; il n'était plus un vieillard, mais un jeune homme plein de vigueur.
 
-« Disciple, tu dois te souvenir de transmettre l'héritage de la Secte de l'Affinement de l'Âme... » La silhouette antique de Du Tian émergea du vide.
+« Disciple, tu dois te souvenir de transmettre l'héritage de la Secte Lian Hun... » La silhouette antique de Du Tian émergea du vide.
 
 Peu après, des figures familières apparurent une à une. Chacune d'elles contemplait silencieusement Wang Lin. Leurs regards différaient: certains étaient complexes, d'autres empreints de perte, de joie ou de tristesse...
 

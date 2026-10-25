@@ -112,7 +112,7 @@ Cependant, le talisman de Yao Changdong ne se dissipa pas totalement; un fragmen
 
 Le corps de Wang Lin trembla. Il ressentit une chaleur entre ses sourcils, comme si une flamme y brûlait. Un pouvoir de scellement inimaginable se propagea dans tout son corps avec frénésie. En un clin d'œil, son énergie originelle et son âme originelle furent totalement scellées.
 
-« Ceci... C'est le pouvoir du tatouage du Clan des Immortels Délaissés! Mais comment le tatouage du Clan des Immortels Délaissés peut-il être aussi puissant?! » Wang Lin prit une inspiration glacée, les yeux remplis de terreur. Toute l'énergie originelle en lui était soudainement verrouillée. À cet instant, il n'était plus qu'un mortel!
+« Ceci... C'est le pouvoir du tatouage du Clan Xian Yi! Mais comment le tatouage du Clan Xian Yi peut-il être aussi puissant?! » Wang Lin prit une inspiration glacée, les yeux remplis de terreur. Toute l'énergie originelle en lui était soudainement verrouillée. À cet instant, il n'était plus qu'un mortel!
 
 Son corps devint instantanément très faible. Si Ta Shan n'était pas accouru pour permettre à Wang Lin de s'asseoir en tailleur sur sa main gauche, ce dernier serait immédiatement tombé dans le vide infini.
 

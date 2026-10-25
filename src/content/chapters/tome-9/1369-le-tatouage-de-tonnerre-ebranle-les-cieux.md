@@ -20,7 +20,7 @@ Le tatouage de tonnerre gronda avec fracas, déclenchant le tonnerre du monde en
 
 Wang Lin était devenu un éclair. Son corps, son âme originelle, son esprit, tout n'était plus qu'un éclair, un éclair défiant les cieux!
 
-Ce tonnerre gronda alors qu'il se précipitait vers la Grande Porte du Vide. Sa vitesse augmentait à mesure qu'il approchait!
+Ce tonnerre gronda alors qu'il se précipitait vers la Grande Porte Kong. Sa vitesse augmentait à mesure qu'il approchait!
 
 Les dizaines de milliers de cultivateurs restèrent immobiles, fixant la scène. Ils étaient pétrifiés par la peur et leurs esprits tremblaient!
 
@@ -34,15 +34,15 @@ Il y avait aussi le Tonnerre Ji, le Tonnerre de Lignée et le Tonnerre Défiant,
 
 Alors que le fracas résonnait, le tonnerre s'effondra soudainement. Le corps de Wang Lin apparut tandis qu'il recrachait une grande quantité de sang. Repoussé par la force de répulsion, il fut projeté en arrière et tomba au sol.
 
-La Grande Porte du Vide n'avait pas bougé d'un iota!
+La Grande Porte Kong n'avait pas bougé d'un iota!
 
-Wang Lin se redressa brusquement et chargea de nouveau avec un rugissement. Ses mains formèrent des sceaux et le tatouage de tonnerre réapparut. Le tonnerre de son corps afflua vers le tatouage, le faisant grandir jusqu'à atteindre des dizaines de milliers de pieds de hauteur. Il poussa un rugissement en chargeant à nouveau la Grande Porte du Vide!
+Wang Lin se redressa brusquement et chargea de nouveau avec un rugissement. Ses mains formèrent des sceaux et le tatouage de tonnerre réapparut. Le tonnerre de son corps afflua vers le tatouage, le faisant grandir jusqu'à atteindre des dizaines de milliers de pieds de hauteur. Il poussa un rugissement en chargeant à nouveau la Grande Porte Kong!
 
-« Ouvrez-vous pour moi! Ouvrez! » La voix de Wang Lin se propagea sur toute la planète de culture et fit trembler le cœur des dizaines de milliers de cultivateurs présents. Ils étaient stupéfaits de voir Wang Lin charger une nouvelle fois la Grande Porte du Vide. Ils étaient terrifiés; s'ils avaient été à sa place, ils n'auraient pas eu le courage de se donner ainsi à fond.
+« Ouvrez-vous pour moi! Ouvrez! » La voix de Wang Lin se propagea sur toute la planète de culture et fit trembler le cœur des dizaines de milliers de cultivateurs présents. Ils étaient stupéfaits de voir Wang Lin charger une nouvelle fois la Grande Porte Kong. Ils étaient terrifiés; s'ils avaient été à sa place, ils n'auraient pas eu le courage de se donner ainsi à fond.
 
 Des grondements tonitruants résonnèrent à travers le monde et une onde de choc se propagea. Le tatouage de tonnerre de Wang Lin s'effondra de nouveau, et des bruits de craquements retentirent dans son corps. Il cracha du sang, son corps était un véritable carnage, et il retomba au sol.
 
-La Grande Porte du Vide ne changea en rien; aucune trace d'ouverture n'apparut, et elle semblait sur le point de disparaître du monde.
+La Grande Porte Kong ne changea en rien; aucune trace d'ouverture n'apparut, et elle semblait sur le point de disparaître du monde.
 
 « Je ne vais pas abandonner ainsi! » Les yeux de Wang Lin étaient injectés de sang et empreints de folie. Alors que la porte était sur le point de disparaître, il se précipita une fois de plus. Ses mains formèrent un sceau, et le tonnerre du ciel et de la terre commença à affluer vers lui.
 
@@ -54,7 +54,7 @@ Un tonnerre infini apparut dans un rayon de 5 000 000 de kilomètres autour de W
 
 Le tatouage de tonnerre gronda, chargé de l'obstination de Wang Lin. Une fois apparu, il chargea la porte pour la troisième fois sous les rugissements de Wang Lin!
 
-Le tonnerre fut apocalyptique lorsqu'il collisionna avec la Grande Porte du Vide qui était sur le point de se dissiper! À ce moment précis, le corps de Wang Lin trembla violemment et le tatouage de tonnerre s'effondra!
+Le tonnerre fut apocalyptique lorsqu'il collisionna avec la Grande Porte Kong qui était sur le point de se dissiper! À ce moment précis, le corps de Wang Lin trembla violemment et le tatouage de tonnerre s'effondra!
 
 Un choc indescriptible se propagea avec une violence folle. Wang Lin cracha du sang et des éclats de sang explosèrent de son corps. Il fut projeté au loin par l'onde de choc.
 
@@ -68,7 +68,7 @@ Après un bref moment de silence, sans qu'on sache qui cria le premier, tous les
 
 « Tuez-le! Cet homme n'a pas réussi à franchir le troisième niveau et il est gravement blessé. Le tuer sera un immense mérite! »
 
-« C'est lui qui a détruit le Clan du Tonnerre Dispersé! Tuez-le et votre nom se répandra dans tout l'Ancien Système Stellaire! »
+« C'est lui qui a détruit le Clan Shan Lei! Tuez-le et votre nom se répandra dans tout l'Ancien Système Stellaire! »
 
 « Cet homme est puissant, nous ne pouvons pas lui laisser le temps de récupérer. Il faut l'éliminer immédiatement! »
 
@@ -90,7 +90,7 @@ Les trésors et les sorts entrèrent en collision avec ces innombrables montagne
 
 Pour certains, l'âme originelle se désintégra complètement!
 
-Cependant, si cela avait été tout, cela n'aurait pas révélé la véritable envergure de Wang Lin. Bien qu'il fût blessé, il l'avait été par la Grande Porte du Vide; sa culture du tonnerre avait atteint la grande perfection du Briseur du Nirvana, et il avait même fait apparaître une telle porte. Les cultivateurs ordinaires ne valaient pas grand-chose à ses yeux!
+Cependant, si cela avait été tout, cela n'aurait pas révélé la véritable envergure de Wang Lin. Bien qu'il fût blessé, il l'avait été par la Grande Porte Kong; sa culture du tonnerre avait atteint la grande perfection du Briseur du Nirvana, et il avait même fait apparaître une telle porte. Les cultivateurs ordinaires ne valaient pas grand-chose à ses yeux!
 
 « Montagnes de tonnerre, contenez mon tonnerre et transformez-vous en tonnerre de scellement pour emprisonner tous ces individus. Bien que cela ne suffise pas à les enfermer à vie, c'est assez pour me permettre de partir! » Wang Lin sourit et d'un geste de la main, un tonnerre infini fusionna avec les innombrables montagnes.
 
@@ -112,10 +112,10 @@ Utiliser des montagnes entières pour sceller des dizaines de milliers de cultiv
 
 Des rugissements furieux s'élevaient encore vaguement de sous les monts, mais ils ne pourraient briser le sceau en peu de temps!
 
-Le visage de Wang Lin était pâle. Blessé par la Grande Porte du Vide et contraint de sceller des dizaines de milliers de cultivateurs, il était épuisé.
+Le visage de Wang Lin était pâle. Blessé par la Grande Porte Kong et contraint de sceller des dizaines de milliers de cultivateurs, il était épuisé.
 
 « Ce n'est que le début de la chasse dans l'Ancien Système Stellaire. Je ne peux pas rester ici! » Le corps de Wang Lin vacilla et il fit un pas en avant. Des ondulations résonnèrent alors qu'il disparaissait en utilisant la Déformation Spatiale.
 
-« Même l'achèvement de mon essence de tonnerre ne suffit pas à ouvrir cette barrière vers le troisième niveau, ni la Grande Porte du Vide... » La silhouette de Wang Lin réapparut et il fit immédiatement un autre pas.
+« Même l'achèvement de mon essence de tonnerre ne suffit pas à ouvrir cette barrière vers le troisième niveau, ni la Grande Porte Kong... » La silhouette de Wang Lin réapparut et il fit immédiatement un autre pas.
 
-« Cependant, si une seule essence n'est pas suffisante, j'en utiliserai deux complètes pour l'écraser. Si deux ne suffisent pas, je ne crois pas que cinq essences complètes soient incapables d'ouvrir la Grande Porte du Vide! À ce moment-là, j'atteindrai instantanément le troisième niveau et je serai considéré comme une puissance de ce stade! » Les yeux de Wang Lin étaient froids et déterminés lorsqu'il disparut à nouveau.
+« Cependant, si une seule essence n'est pas suffisante, j'en utiliserai deux complètes pour l'écraser. Si deux ne suffisent pas, je ne crois pas que cinq essences complètes soient incapables d'ouvrir la Grande Porte Kong! À ce moment-là, j'atteindrai instantanément le troisième niveau et je serai considéré comme une puissance de ce stade! » Les yeux de Wang Lin étaient froids et déterminés lorsqu'il disparut à nouveau.

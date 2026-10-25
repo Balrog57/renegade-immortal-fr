@@ -34,7 +34,7 @@ Wang Lin fronça les sourcils mais resta silencieux.
 
 « Au début, tout était paisible et l'âme de ma petite sœur ne s'était pas éveillée; elle restait endormie. Si les choses étaient restées ainsi, rien de tout cela ne serait arrivé.
 
-« À l'âge de sept ans, j'ai été emmené à la Secte du Destin Céleste. Mon talent était excellent et je progressais très vite. Je me suis bientôt distingué parmi les disciples extérieurs pour devenir un disciple intérieur.
+« À l'âge de sept ans, j'ai été emmené à la Secte Tian Yun. Mon talent était excellent et je progressais très vite. Je me suis bientôt distingué parmi les disciples extérieurs pour devenir un disciple intérieur.
 
 « En un clin d'œil, des centaines d'années passèrent et j'atteignis le stade de la Transformation de l'Âme. J'ai également eu la chance de m'élever parmi les disciples intérieurs et suis devenu l'un des disciples directs de Maître au sein de la Division Pourpre.
 
@@ -54,7 +54,7 @@ Wang Lin fronça les sourcils mais resta silencieux.
 
 « Je sais aussi que le changement d'extrême Yang a été orchestré par Maître. Il a utilisé son sort pour provoquer ce jour d'extrême Yang si rare... Tout cela faisait partie de son plan...
 
-« En restant à la Secte du Destin Céleste, j'ai progressivement compris. La culture de Maître a atteint un goulot d'étranglement. Il est incapable de s'en sortir et a été possédé par ce démon intérieur... Je ne suis qu'une de ses expériences...
+« En restant à la Secte Tian Yun, j'ai progressivement compris. La culture de Maître a atteint un goulot d'étranglement. Il est incapable de s'en sortir et a été possédé par ce démon intérieur... Je ne suis qu'une de ses expériences...
 
 « Je sais que Maître attend que mon énergie Yin atteigne son apogée. Tout comme le jour de l'extrême Yang possédait cet instant d'extrême Yin, il attend l'instant d'extrême Yang qui surgira en moi!
 
@@ -94,7 +94,7 @@ S'il refusait, sa confiance face à Tian Yunzi s'effondrerait lors de leur futur
 
 S'il agissait ainsi, son cœur de Dao deviendrait timoré. Que parler alors de compréhension du karma, d'énergie d'origine ou de suivre la voie du Dao? Sa culture stagnerait et il vivrait à jamais sous l'ombre de la prévoyance omnipotente de Tian Yunzi!
 
-« Je suis un cultivateur qui défie les cieux! » Les yeux de Wang Lin s'illuminèrent en repensant à la façon dont il avait défié les cieux au stade de l'Ascendant, dans la Terre des Esprits Démoniaques. Comment un simple Tian Yunzi pouvait-il être comparé aux cieux?!
+« Je suis un cultivateur qui défie les cieux! » Les yeux de Wang Lin s'illuminèrent en repensant à la façon dont il avait défié les cieux au stade de l'Ascendant, dans la Terre Yao Ling. Comment un simple Tian Yunzi pouvait-il être comparé aux cieux?!
 
 « Bai Wei n'a pas de bonnes intentions. Avant de mourir, il veut m'entraîner avec lui pour défier Tian Yunzi! Il veut voir de ses propres yeux Tian Yunzi se tromper sur une chose avant son dernier souffle! »
 

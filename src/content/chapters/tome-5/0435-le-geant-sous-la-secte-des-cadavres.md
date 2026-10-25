@@ -1,6 +1,6 @@
 ---
 n: 435
-title: Le géant sous la Secte des Cadavres
+title: Le géant sous la Secte Shi Yin
 book: 5
 bookTitle: Cultivation Planet Crystal
 en: Chapter 435 - The giant under the Corpse Secte
@@ -23,7 +23,7 @@ Les yeux de Wang Lin s'illuminèrent. Sans dire un mot, il saisit son propre par
 
 Au gouffre béant menant à la sortie du Cimetière des Immortels, Wang Lin s'enveloppa une fois de plus de fragments d'âme pour traverser l'arbre. Dehors, la nuit était tombée et l'obscurité était totale.
 
-Dès qu'il émergea, il disparut à nouveau sans laisser de trace. Wang Lin ne rendit pas le fragment d'âme du domaine à la troisième ancêtre. Dès que ce fragment avait quitté la troisième ancêtre, il était devenu une entité indépendante et n'était plus sous son contrôle. Autrement, l'ancêtre du Clan des Démons Géants n'aurait jamais pu s'en emparer.
+Dès qu'il émergea, il disparut à nouveau sans laisser de trace. Wang Lin ne rendit pas le fragment d'âme du domaine à la troisième ancêtre. Dès que ce fragment avait quitté la troisième ancêtre, il était devenu une entité indépendante et n'était plus sous son contrôle. Autrement, l'ancêtre du Clan Ju Mo n'aurait jamais pu s'en emparer.
 
 Si la troisième ancêtre avait eu le moindre contrôle, elle l'aurait probablement récupéré en voyant Wang Lin.
 
@@ -35,7 +35,7 @@ Zhu Quezi cultivait actuellement dans la zone interdite des montagnes arrières 
 
 Peu après, Zhu Quezi ouvrit les yeux. Une trace de folie y brillait. Un tel regard n'apparaissait que rarement sur lui.
 
-« Yun Quezi, je ne hais pas le Clan des Immortels Délaissés, mais ma haine pour toi est immense! Traître, haha, quelle magnifique trahison! Bien que j'aie été blessé par ton attaque surprise, j'en ai ressenti de l'excitation. Qian Pinghai, si tu possèdes encore une âme, regarde bien: voici l'homme que tu as choisi!
+« Yun Quezi, je ne hais pas le Clan Xian Yi, mais ma haine pour toi est immense! Traître, haha, quelle magnifique trahison! Bien que j'aie été blessé par ton attaque surprise, j'en ai ressenti de l'excitation. Qian Pinghai, si tu possèdes encore une âme, regarde bien: voici l'homme que tu as choisi!
 
 « Yun Quezi, nous avons grandi ensemble et possédons des talents similaires; alors pourquoi l'ancien Suzaku, Qian Pinghai, ne faisait-il que te favoriser? Il ne cessait de te louer, tandis qu'envers moi, il était toujours prompt aux critiques. Il me lançait sans cesse des regards glacials, comme s'il allait me tuer à la moindre erreur.
 
@@ -45,7 +45,7 @@ Peu après, Zhu Quezi ouvrit les yeux. Une trace de folie y brillait. Un tel reg
 
 « Si je n'avais pas secrètement comploté pendant de longues années pour finalement dérober le Cœur de la Planète de Culture au dernier Suzaku lors de son trépas, je crains que le Suzaku de cette génération n'ait pas été moi.
 
-« Qian Pinghai, tu as été aveugle de nommer Yun Quezi comme prochain Suzaku à l'article de la mort! Si j'avais suivi tes ordres en remettant le Cœur de la Planète de Culture à Yun Quezi, la planète aurait été conquise par le Clan des Immortels Délaissés. Qian Pinghai, vieux bougre, je n'ai pas enterré ton corps dans le Tombeau de Suzaku, je l'ai vendu à la Secte des Cadavres! C'était le seul moyen d'apaiser ma haine envers toi.
+« Qian Pinghai, tu as été aveugle de nommer Yun Quezi comme prochain Suzaku à l'article de la mort! Si j'avais suivi tes ordres en remettant le Cœur de la Planète de Culture à Yun Quezi, la planète aurait été conquise par le Clan Xian Yi. Qian Pinghai, vieux bougre, je n'ai pas enterré ton corps dans le Tombeau Zhu Que, je l'ai vendu à la Secte Shi Yin! C'était le seul moyen d'apaiser ma haine envers toi.
 
 « Qian Pinghai, la vérité prouve que je suis l'homme le plus apte à devenir le prochain Suzaku. Tu t'es trompé à l'époque, tellement...
 
@@ -53,13 +53,13 @@ Peu après, Zhu Quezi ouvrit les yeux. Une trace de folie y brillait. Un tel reg
 
 « C'est là mon unique façon de te rendre ce que tu m'as fait subir.
 
-« Yun Quezi, tu connais l'existence du Cristal de la Planète de Culture. Tu m'as laissé trois mois pour décider s'il valait la peine de tout détruire pour solliciter l'aide de l'Alliance de Culture...
+« Yun Quezi, tu connais l'existence du Cristal de la Planète de Culture. Tu m'as laissé trois mois pour décider s'il valait la peine de tout détruire pour solliciter l'aide de l'Alliance Xiu Zhen...
 
 « Bien que le Cristal de la Planète de Culture ait été scellé par le deuxième Suzaku, empêchant les futurs Suzakus de le contrôler, tant que le Cœur de la Planète de Culture est brisé, il peut entraîner la destruction du Cristal lui-même. Cependant, le prix est trop lourd car une partie de mon âme réside en son sein. Si le Cristal se brise, je mourrai avec lui.
 
-« L'Alliance de Culture n'intervient pas arbitrairement dans les affaires de chaque planète de culture, mais cela n'est vrai que tant que le Cristal de la Planète de Culture reste intact. L'Alliance est presque obsédée par l'idée de préserver l'intégrité des Cristaux de Planète de Culture. Cette affaire est empreinte de mystères que même les anciens Suzakus n'ont pu élucider. Mais une chose est certaine: si le Cristal se brise, l'Alliance enverra immédiatement des enquêteurs. À cet instant, ton insignifiant Clan des Immortels Délaissés sera anéanti!
+« L'Alliance Xiu Zhen n'intervient pas arbitrairement dans les affaires de chaque planète de culture, mais cela n'est vrai que tant que le Cristal de la Planète de Culture reste intact. L'Alliance est presque obsédée par l'idée de préserver l'intégrité des Cristaux de Planète de Culture. Cette affaire est empreinte de mystères que même les anciens Suzakus n'ont pu élucider. Mais une chose est certaine: si le Cristal se brise, l'Alliance enverra immédiatement des enquêteurs. À cet instant, ton insignifiant Clan Xian Yi sera anéanti!
 
-« Tu m'as accordé trois mois pour réfléchir, car tu ne voulais pas me pousser à bout. Yun Quezi, ce vieil homme va jouer avec toi. Si tu parviens à l'emporter avant la fin de mes jours, je n'aurai aucun mal à te céder cette planète. Mais si tu échoues, ce vieil homme sombrera dans la folie et détruira la planète pour entraîner ton Clan des Immortels Délaissés dans ma chute!
+« Tu m'as accordé trois mois pour réfléchir, car tu ne voulais pas me pousser à bout. Yun Quezi, ce vieil homme va jouer avec toi. Si tu parviens à l'emporter avant la fin de mes jours, je n'aurai aucun mal à te céder cette planète. Mais si tu échoues, ce vieil homme sombrera dans la folie et détruira la planète pour entraîner ton Clan Xian Yi dans ma chute!
 
 « Si ce vieil homme ne peut être le premier Suzaku, il peut encore être le dernier. Ne me donne pas cette opportunité! »
 
@@ -69,7 +69,7 @@ La folie dans les yeux de Zhu Quezi s'intensifia et il se mit à rire comme un d
 
 Ces trois mois de trêve étaient une période propice au rétablissement. Toutefois, cela ne signifiait pas qu'ils avaient baissé leur garde; de nombreux cultivateurs patrouillaient encore.
 
-À cinq mille kilomètres de là, un nuage noir recouvrait la zone: c'était là que se trouvait l'armée d'assaut occidentale du Clan des Immortels Délaissés.
+À cinq mille kilomètres de là, un nuage noir recouvrait la zone: c'était là que se trouvait l'armée d'assaut occidentale du Clan Xian Yi.
 
 Au centre du camp des cultivateurs se dressait une hutte très luxueuse. Qian Feng était assis en tailleur devant, Hongdie debout derrière lui. Ses yeux ternes laissaient voir une certaine confusion mêlée à un combat intérieur profondément dissimulé.
 
@@ -83,7 +83,7 @@ Ses yeux brillèrent, il laissa échapper un reniflement froid et marmonna pour 
 
 « J'aurai besoin de l'aide de ma sœur apprentie pour dévorer le domaine de Ceng Niu. Je devrai planifier cela avec soin! Une fois que j'aurai dévoré le domaine de cet homme et capturé ma sœur apprentie, je quitterai cette planète. L'univers est vaste et je serai libre de faire ce que je veux. Auparavant, le titre de Suzaku m'importait, mais maintenant que la planète est en plein chaos, ce titre ne me sert à rien! Cependant, avant de partir, je dois torturer à mort cette traînée de Zi Xin! »
 
-Un mois plus tard, une silhouette apparut près de la Secte des Cadavres, à Zhao. C'était un jeune homme vêtu d'une robe blanche, dont le visage trahissait un profond vécu.
+Un mois plus tard, une silhouette apparut près de la Secte Shi Yin, à Zhao. C'était un jeune homme vêtu d'une robe blanche, dont le visage trahissait un profond vécu.
 
 C'était Wang Lin.
 
@@ -95,7 +95,7 @@ Les deux étaient ennemis naturels; comme le feu et l'eau, ils ne pouvaient se m
 
 Par conséquent, la tentative de réparer l'Étendard de l'Âme d'un Milliard avec des âmes errantes fut un échec. Quant aux dévoreurs d'âmes, Wang Lin en avait capturé un pour tester, mais le résultat fut identique; il abandonna donc cette méthode et quitta le champ de bataille extérieur.
 
-La dernière tâche de Wang Lin consistait à se rendre auprès du corps gigantesque situé sous la Secte des Cadavres, à Zhao. Ce corps appartenait à l'ancêtre du Clan des Démons Géants qui avait introduit son clan sur la planète Suzaku.
+La dernière tâche de Wang Lin consistait à se rendre auprès du corps gigantesque situé sous la Secte Shi Yin, à Zhao. Ce corps appartenait à l'ancêtre du Clan Ju Mo qui avait introduit son clan sur la planète Suzaku.
 
 Wang Lin possédait une hache géante dans son sac de rangement; cette hache appartenait à cet ancêtre fondateur. Wang Lin était venu y extraire une quantité massive de sang, afin que son corps original puisse utiliser les techniques des Anciens Dieux. Cela faisait partie de ses préparatifs pour quitter ces lieux.
 
@@ -103,7 +103,7 @@ Wang Lin n'avait aucun intérêt à s'impliquer dans le chaos de la planète Suz
 
 Il reviendrait certainement sur la planète Suzaku à l'avenir, mais le moment venu, il ne serait plus une pièce parmi les pions d'un plan étranger; il serait tel un empereur que le Suzaku actuel devrait regarder avec respect.
 
-« Et j'aurai certainement l'occasion de voir de quel genre de puissance dispose réellement cette Alliance de Culture! »
+« Et j'aurai certainement l'occasion de voir de quel genre de puissance dispose réellement cette Alliance Xiu Zhen! »
 
 Wang Lin prit une profonde inspiration. En levant les yeux vers le ciel, son désir de partir s'intensifia.
 

@@ -86,7 +86,7 @@ Cependant, au moment où le bracelet apparut et brilla en volant vers le poignet
 
 Le pouce qui descendait se redressa brusquement, propulsant Wang Lin au-delà de lui, vers l'horizon.
 
-Cette scène soudaine surprit Wang Lin, mais il n'hésita pas. Alors qu'il s'élançait, ses deux mains formèrent un sceau. En suivant les souvenirs obtenus de Cang Songzi, il ouvrit une faille pour retourner dans la Mer des Nuages!
+Cette scène soudaine surprit Wang Lin, mais il n'hésita pas. Alors qu'il s'élançait, ses deux mains formèrent un sceau. En suivant les souvenirs obtenus de Cang Songzi, il ouvrit une faille pour retourner dans la Mer Yun!
 
 Son corps fendit l'air comme l'éclair vers la brèche. Juste avant qu'il ne disparaisse, la paume formée par le Royaume aux Sept Couleurs ne le poursuivit pas, mais se posa lentement.
 
@@ -96,15 +96,15 @@ Après le départ de Wang Lin, la paume du Royaume aux Sept Couleurs s'effondra 
 
 « Yue Er... » La voix ancienne s'évanouit peu à peu...
 
-À ce moment précis, au plus profond du Système Stellaire Antique, résidait une famille nommée le Clan de la Soie Bleue. Ce clan occupait un domaine stellaire infini. Dans ce domaine se trouvait une planète d'apparence ordinaire, sur laquelle trônait une montagne enveloppée de lueurs bleues. Les mortels locaux l'appelaient la Montagne Bleue.
+À ce moment précis, au plus profond du Système Stellaire Antique, résidait une famille nommée le Clan Lan Si. Ce clan occupait un domaine stellaire infini. Dans ce domaine se trouvait une planète d'apparence ordinaire, sur laquelle trônait une montagne enveloppée de lueurs bleues. Les mortels locaux l'appelaient la Montagne Bleue.
 
 Une simple chaumière se trouvait au sommet de la montagne, oscillant doucement sous la brise. La porte s'ouvrit et un homme d'âge moyen au visage fatigué en sortit. Il leva les yeux vers le ciel et sa vue se troubla, comme si des larmes menaçaient de couler. Ses cheveux étaient bleus... Il contemplait l'azur, rempli de mélancolie.
 
 Si un habitant du Système Stellaire Antique avait vu cela, il en aurait été stupéfait. L'un des cinq maîtres du Système Stellaire Antique, Lanmeng Daozun, pouvait avoir un instant où il perdait le contrôle de ses émotions.
 
-Lanmeng Daozun était une légende dans le Système Stellaire Antique. Le Clan de la Soie Bleue n'était qu'une petite famille, mais grâce à cet homme qui avait balayé le système, le clan était devenu un géant que nul n'osait provoquer!
+Lanmeng Daozun était une légende dans le Système Stellaire Antique. Le Clan Lan Si n'était qu'une petite famille, mais grâce à cet homme qui avait balayé le système, le clan était devenu un géant que nul n'osait provoquer!
 
-« Meng Er, notre fille est née de nouveau... Elle portait ton bracelet avant d'entrer dans le cycle des réincarnations, et il porte la bénédiction de ton Clan du Rêve des Nuages qu'elle a héritée de toi. Si elle ne l'avait pas donné personnellement, même si quelqu'un d'autre avait reçu le bracelet, sa bénédiction n'aurait pas surgi », murmura l'homme pour lui-même, plongé dans ses souvenirs.
+« Meng Er, notre fille est née de nouveau... Elle portait ton bracelet avant d'entrer dans le cycle des réincarnations, et il porte la bénédiction de ton Clan Yun Meng qu'elle a héritée de toi. Si elle ne l'avait pas donné personnellement, même si quelqu'un d'autre avait reçu le bracelet, sa bénédiction n'aurait pas surgi », murmura l'homme pour lui-même, plongé dans ses souvenirs.
 
 Après un long moment, des ondulations apparurent et se déformèrent. Un vieil homme vêtu de blanc surgit. Dès son apparition, il se montra immédiatement très respectueux.
 

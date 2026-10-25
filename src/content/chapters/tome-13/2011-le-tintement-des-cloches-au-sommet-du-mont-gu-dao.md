@@ -14,11 +14,11 @@ Le bassin de la plaine était imprégné d'une puissante intention meurtrière, 
 
 Xuan Luo resta à l'extérieur du bassin durant toute cette période. Tout en protégeant Wang Lin, il observait silencieusement son disciple avec un sourire bienveillant.
 
-Les falaises de la vallée étaient gravées de runes, chacune renfermant des restrictions. Au fil des ans, la vallée devint un lieu célèbre dans l'Ancien Dao: la prestigieuse Vallée des Restrictions!
+Les falaises de la vallée étaient gravées de runes, chacune renfermant des restrictions. Au fil des ans, la vallée devint un lieu célèbre dans l'Ancien Dao: la prestigieuse Vallée Jin Zhen!
 
 Les gens ordinaires ne pouvaient y pénétrer, car cet endroit avait été scellé par Xuan Luo des centaines d'années auparavant. Il en avait fait un sanctuaire spécialement préparé pour que son disciple puisse comprendre l'essence des restrictions.
 
-Wang Lin médita pendant trois mois au sein de la Vallée des Restrictions.
+Wang Lin médita pendant trois mois au sein de la Vallée Jin Zhen.
 
 Il existait un autre lieu très mystérieux, sous le pays de Zang, dans l'Ancien Dao: une nécropole souterraine. Aucun corps n'y était enterré, mais elle regorgeait de trésors abandonnés. Ils étaient inutiles et sans valeur, pourtant, à une époque inconnue, quelqu'un les avait enfouis ici comme une offrande.
 

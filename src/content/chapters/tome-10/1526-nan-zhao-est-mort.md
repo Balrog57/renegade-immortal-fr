@@ -12,7 +12,7 @@ Ou plutôt, c'était un souffle héroïque, la grandeur tragique de celui qui av
 
 Les innombrables cultivateurs envahisseurs devant Wang Lin reculèrent avec terreur. La vitesse de Wang Lin semblait atteindre ses limites; chaque pas qu'il posait déclenchait un grondement tonitruant qui ébranlait les étoiles!
 
-La Hache Brise-Ciel, qui avait tué l'ancêtre du Clan des Moineaux de Feu, laissa échapper un hurlement. Ce cri était empreint d'une intention meurtrière et d'une détermination démente qui brisa la volonté de combat des cultivateurs du Royaume Extérieur!
+La Hache Brise-Ciel, qui avait tué l'ancêtre du Clan Huo Que, laissa échapper un hurlement. Ce cri était empreint d'une intention meurtrière et d'une détermination démente qui brisa la volonté de combat des cultivateurs du Royaume Extérieur!
 
 Ce n'était que le premier assaut! Ce n'était que le début de la guerre, et pourtant, un cultivateur du troisième niveau du Royaume Extérieur avait déjà été tué. Il n'avait pas été abattu par des moyens vils, ni par un puissant cultivateur comme Maître Hong Shan; il avait été tué par Wang Lin, considéré comme le Seigneur du Royaume Scellé, lors d'un combat direct et loyal!
 
@@ -20,9 +20,9 @@ Il n'y avait pas de meilleur moyen de désintégrer la confiance des cultivateur
 
 Wang Lin avait accompli tout cela par sa propre force. Il avait remporté ce premier meurtre dès le premier combat de cette guerre, ce qui lui vaudrait une véritable renommée dans le Royaume Extérieur!
 
-La mort du Shui Daozi ne comptait pour rien, ce n'était que l'assassinat d'un esclave. Cependant, la mort de l'ancêtre du Clan des Moineaux de Feu était différente. C'était un exploit guerrier majeur, celui d'avoir tué un général adverse!
+La mort du Shui Daozi ne comptait pour rien, ce n'était que l'assassinat d'un esclave. Cependant, la mort de l'ancêtre du Clan Huo Que était différente. C'était un exploit guerrier majeur, celui d'avoir tué un général adverse!
 
-Ce fut la lueur la plus éclatante pour les cultivateurs de la Mer des Nuages qui avaient subi de lourdes pertes! Les 100 000 cultivateurs du Royaume Extérieur commencèrent à battre en retraite en silence. Outre la peur, une forme de crainte respectueuse se lisait dans leurs yeux. Même le garçon au regard froid et la concubine impériale céleste, les yeux étincelants, regardaient Wang Lin!
+Ce fut la lueur la plus éclatante pour les cultivateurs de la Mer Yun qui avaient subi de lourdes pertes! Les 100 000 cultivateurs du Royaume Extérieur commencèrent à battre en retraite en silence. Outre la peur, une forme de crainte respectueuse se lisait dans leurs yeux. Même le garçon au regard froid et la concubine impériale céleste, les yeux étincelants, regardaient Wang Lin!
 
 Le rire tonitruant de Maître Hong Shan résonna soudainement!
 

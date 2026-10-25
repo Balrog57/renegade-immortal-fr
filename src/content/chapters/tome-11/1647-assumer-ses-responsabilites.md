@@ -12,7 +12,7 @@ Wang Lin sourit amèrement et regarda Situ Nan, figé de stupeur. Il ramassa ens
 
 Et ces concubines impériales célestes que j'ai rencontrées dans le Système Stellaire Antique, ainsi que ce mystérieux Daoïste aux Sept Couleurs...
 
-Tous ces êtres venaient d'un continent appelé Continent Astral Immortel. Ce continent est des dizaines de milliers de fois plus vaste que les Royaumes Intérieur et Extérieur réunis. C'est leur patrie. Nous ne sommes qu'à l'intérieur d'une grotte appartenant au maître de la Secte des Sept Dao, le Souverain Céleste aux Sept Couleurs!
+Tous ces êtres venaient d'un continent appelé Continent Astral Immortel. Ce continent est des dizaines de milliers de fois plus vaste que les Royaumes Intérieur et Extérieur réunis. C'est leur patrie. Nous ne sommes qu'à l'intérieur d'une grotte appartenant au maître de la Secte Qi Dao, le Souverain Céleste aux Sept Couleurs!
 
 Le ciel que nous voyons est le plafond de cette grotte. La terre que nous voyons est son sol... Les soi-disant Royaumes Intérieur et Extérieur ne sont que les parties interne et externe de cette caverne.
 

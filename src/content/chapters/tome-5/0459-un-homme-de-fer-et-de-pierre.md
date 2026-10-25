@@ -12,7 +12,7 @@ Ces sculptures sur bois étaient toutes identiques et représentaient un jeune h
 
 Les yeux de Yun Quezi s'illuminèrent. D'un revers de main, il fit disparaître toutes les sculptures sur bois. Il jeta un dernier regard vers Wang Lin avant de reporter son attention sur la porte.
 
-Wang Lin ne se souciait guère de la manière dont Yun Quezi avait pu pénétrer dans ce lieu. Après tout, le Clan des Immortels Délaissés existait depuis une éternité, et il n'était pas du genre à vouloir trouver une réponse à tout.
+Wang Lin ne se souciait guère de la manière dont Yun Quezi avait pu pénétrer dans ce lieu. Après tout, le Clan Xian Yi existait depuis une éternité, et il n'était pas du genre à vouloir trouver une réponse à tout.
 
 Wang Lin avait déjà renoncé à obtenir le Cristal de la Planète de Culture; il ne voulait que récupérer son fragment d'âme.
 
@@ -80,7 +80,7 @@ Si le niveau de culture était assez élevé, une simple pensée permettait de p
 
 Il prit une profonde inspiration et baissa la tête. Soudain, ses pupilles se rétractèrent et ses yeux révélèrent une trace de terreur.
 
-« Le démon de Tu Si, Tuo Sen! » Wang Lin sentit son corps se glacer. S'il fallait nommer les personnes que Wang Lin redoutait le plus sur la planète Suzaku, Zhu Quezi n'était même pas le premier. La première place appartenait au jeune homme démoniaque qu'il avait offensé dans la Terre de l'Ancien Dieu alors qu'il n'était qu'un cultivateur de la Formation du Noyau: Tuo Sen!
+« Le démon de Tu Si, Tuo Sen! » Wang Lin sentit son corps se glacer. S'il fallait nommer les personnes que Wang Lin redoutait le plus sur la planète Suzaku, Zhu Quezi n'était même pas le premier. La première place appartenait au jeune homme démoniaque qu'il avait offensé dans la Terre Gu Shen alors qu'il n'était qu'un cultivateur de la Formation du Noyau: Tuo Sen!
 
 L'héritage de l'ancien dieu était divisé en deux: l'héritage de la puissance et l'héritage de la connaissance.
 
@@ -108,9 +108,9 @@ Cependant, comparé à toute vie sur Suzaku, un ancien dieu à cinq étoiles ét
 
 Le plus grand souhait de Tuo Sen était d'obtenir l'héritage de la connaissance. Après cela, il n'aurait plus qu'à prendre le temps de tout assimiler et d'affiner son corps pour devenir un véritable ancien dieu à huit étoiles.
 
-À ce moment-là, même les vieux monstres de l'Alliance de Culture le craindraient.
+À ce moment-là, même les vieux monstres de l'Alliance Xiu Zhen le craindraient.
 
-Si Wang Lin n'était pas entré dans la Terre de l'Ancien Dieu ce jour-là, tôt ou tard Tuo Sen aurait pu absorber l'héritage de la connaissance et sortir du corps de l'ancien dieu.
+Si Wang Lin n'était pas entré dans la Terre Gu Shen ce jour-là, tôt ou tard Tuo Sen aurait pu absorber l'héritage de la connaissance et sortir du corps de l'ancien dieu.
 
 Pour être exact, il était Tu Si, mais il n'était qu'une fraction des pensées démoniaques apparues lorsque Tu Si avait échoué dans sa technique de division du Sens Divin.
 
@@ -128,10 +128,10 @@ Pourtant, fort de son expérience actuelle, Wang Lin devina qu'ils n'avaient pas
 
 Toutefois, ils détenaient des techniques inconnues des générations futures. Une fois utilisées, leur puissance augmenterait de façon fulgurante.
 
-« Tuo Sen... Il ne devrait pas être totalement libre pour le moment, sinon il n'aurait pas besoin de posséder quelqu'un comme celui-ci; il serait venu me chercher personnellement. Pourtant, après avoir possédé quelqu'un, pourquoi ne m'a-t-il pas attaqué aussitôt en me voyant, et est-il entré dans ce Tombeau de Suzaku? Serait-il lui aussi en quête du Cristal de la Planète de Culture? » Le cœur de Wang Lin trembla.
+« Tuo Sen... Il ne devrait pas être totalement libre pour le moment, sinon il n'aurait pas besoin de posséder quelqu'un comme celui-ci; il serait venu me chercher personnellement. Pourtant, après avoir possédé quelqu'un, pourquoi ne m'a-t-il pas attaqué aussitôt en me voyant, et est-il entré dans ce Tombeau Zhu Que? Serait-il lui aussi en quête du Cristal de la Planète de Culture? » Le cœur de Wang Lin trembla.
 
-« Se pourrait-il que le Cristal de la Planète de Culture puisse libérer Tuo Sen de toutes les entraves de la Terre de l'Ancien Dieu? » Les yeux de Wang Lin s'illuminèrent.
+« Se pourrait-il que le Cristal de la Planète de Culture puisse libérer Tuo Sen de toutes les entraves de la Terre Gu Shen? » Les yeux de Wang Lin s'illuminèrent.
 
 À cet instant, la montagne spirituelle se remit à trembler et une série de rugissements tonitruants résonna dans le ciel. L'effondrement se produisit pour la troisième fois.
 
-Une grande partie des entrailles du Tombeau de Suzaku s'effondra en d'innombrables failles. Les cultivateurs et les membres du Clan des Immortels Délaissés qui n'avaient pas réussi à trouver la montagne spirituelle périrent tous.
+Une grande partie des entrailles du Tombeau Zhu Que s'effondra en d'innombrables failles. Les cultivateurs et les membres du Clan Xian Yi qui n'avaient pas réussi à trouver la montagne spirituelle périrent tous.

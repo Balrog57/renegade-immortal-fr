@@ -80,13 +80,13 @@ Ils savaient parfaitement que les fameux quatre saints n'étaient pas uniquement
 
 Les quatre saints de l'Alliance étaient divisés en Lune, Nuage, Xian et Yao! Ji Xiantian était le saint Xian. Chacun d'eux avait trois subordonnés; ainsi, quelle que soit la combinaison, ils formaient les quatre saints!
 
-En vérité, pour cette bataille, l'Alliance de Culture n'avait dépêché que le Palais Xuan, le saint Xian et ses trois subordonnés!
+En vérité, pour cette bataille, l'Alliance Xiu Zhen n'avait dépêché que le Palais Xuan, le saint Xian et ses trois subordonnés!
 
 L'estimé Xuan Bao occupait un rang très élevé au sein du Palais Xuan. Ce qui imposait véritablement le respect et la crainte des membres de l'Alliance, c'était qu'il était l'un des Anciens capables de décider de tout au sein de l'organisation! C'était là sa fonction la plus prestigieuse.
 
 Hormis les membres du Groupe des Anciens de l'Alliance, nul ne savait exactement combien ils étaient. Cependant, chacun d'eux était d'une puissance telle qu'il pouvait renverser les cieux!
 
-Si Tian Yunzi était respecté et que l'Alliance de Culture avait même envoyé quelqu'un pour lui offrir des présents lors de son anniversaire, c'était parce qu'il appartenait à ce mystérieux groupe d'anciens. Bien que certains incidents aient fait chuter son statut, il en demeurait un membre!
+Si Tian Yunzi était respecté et que l'Alliance Xiu Zhen avait même envoyé quelqu'un pour lui offrir des présents lors de son anniversaire, c'était parce qu'il appartenait à ce mystérieux groupe d'anciens. Bien que certains incidents aient fait chuter son statut, il en demeurait un membre!
 
 Si Tian Yunzi n'avait pas été si discret, des individus comme Ling Tianhou n'auraient jamais pu exister. S'il l'avait voulu, il aurait pu les faire disparaître en un instant. Toutefois, après un certain incident, il s'était fait encore plus effacé et participait rarement aux réunions des anciens; il s'était retiré du monde.
 

@@ -100,13 +100,13 @@ L'homme en robe grise leva les yeux et sourit: « Je le suis, tout comme vous. �
 
 « Suivre le chemin du vrai Dao... Le "vrai" dans cette phrase désigne le véritable soi au sein de la réincarnation. Cela signifie que toutes les formes de vie doivent chercher leur essence pour pouvoir s'extraire du cycle des réincarnations. » L'homme en robe grise laissa transparaître son admiration en parlant.
 
-« Je n'ai pas de nom. Si je suis le premier du Royaume de la Terre Défiante à avoir atteint le Piétinement des Cieux, alors vous êtes le second. Hormis vous et moi, aucune autre forme de vie ne pourrait piétiner les cieux pour parvenir jusqu'ici.
+« Je n'ai pas de nom. Si je suis le premier du Royaume Ni Chen Liang à avoir atteint le Piétinement des Cieux, alors vous êtes le second. Hormis vous et moi, aucune autre forme de vie ne pourrait piétiner les cieux pour parvenir jusqu'ici.
 
 « À part cet avatar... » ajouta l'homme en gris avec un sourire.
 
 Wang Lin réfléchit silencieusement. Sans jamais lâcher la main de Li Muwan, il regarda l'homme et demanda: « Avez-vous créé la Boussole des Limites? En avez-vous scellé l'esprit du trésor à l'intérieur? »
 
-« La quatrième étape, le Piétinement des Cieux, est la limite du Royaume de la Terre Défiante, mais dans le vaste univers des quatre royaumes, certains ont atteint la cinquième étape... ou même la sixième... Avant que je ne vienne ici, ce plateau existait déjà.
+« La quatrième étape, le Piétinement des Cieux, est la limite du Royaume Ni Chen Liang, mais dans le vaste univers des quatre royaumes, certains ont atteint la cinquième étape... ou même la sixième... Avant que je ne vienne ici, ce plateau existait déjà.
 
 « Jouons, c'est à votre tour... » murmura l'homme en robe grise.
 

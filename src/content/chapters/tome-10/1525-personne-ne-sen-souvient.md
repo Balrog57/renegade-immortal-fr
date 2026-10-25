@@ -10,7 +10,7 @@ Lorsque Wang Lin saisit la Hache Brise-Ciel, une puissante aura de Dieu Ancien j
 
 Cette aura de Dieu Ancien était phénoménale. Tandis qu'elle s'engouffrait en Wang Lin, le vortex de sa huitième étoile commença à gonfler et à absorber l'énergie avec frénésie!
 
-« Nous, cultivateurs, ne reculons jamais devant le combat! » La voix de Wang Lin tonna comme le tonnerre, et derrière lui, les cultivateurs de la Mer des Nuages furent saisis d'une folie guerrière.
+« Nous, cultivateurs, ne reculons jamais devant le combat! » La voix de Wang Lin tonna comme le tonnerre, et derrière lui, les cultivateurs de la Mer Yun furent saisis d'une folie guerrière.
 
 « Nous, cultivateurs, ne reculons jamais devant le combat! » Ce n'était pas seulement la voix de Wang Lin, mais les cris et les rugissements de milliers de cultivateurs restants. À cet instant, ils oublièrent la mort, ils oublièrent tout. Il ne leur restait qu'une intention de bataille monstrueuse!
 
@@ -24,7 +24,7 @@ Les yeux de Wang Lin étincelaient comme des éclairs alors qu'il se tournait ve
 
 Il était prêt à accomplir ce que Maître Hong Shan avait été empêché de faire!
 
-Sous les regards exaltés des milliers de cultivateurs de la Mer des Nuages et les regards terrifiés de plus de 100 000 envahisseurs du Royaume Extérieur, Wang Lin fit un pas en avant, chargé d'une soif de sang dévastatrice!
+Sous les regards exaltés des milliers de cultivateurs de la Mer Yun et les regards terrifiés de plus de 100 000 envahisseurs du Royaume Extérieur, Wang Lin fit un pas en avant, chargé d'une soif de sang dévastatrice!
 
 « Tuez!!! » rugit Wang Lin.
 
@@ -36,9 +36,9 @@ C'était comme si Wang Lin, tenant la Hache Brise-Ciel, était une existence inv
 
 Ces milliers de cultivateurs enragés s'élancèrent avec Wang Lin!
 
-Des milliers de cultivateurs de la Mer des Nuages chargèrent comme des déments. Ils étaient prêts à mourir!
+Des milliers de cultivateurs de la Mer Yun chargèrent comme des déments. Ils étaient prêts à mourir!
 
-Les cultivateurs de la Mer des Nuages pouvaient mourir au combat, mais ils ne pouvaient pas fuir. C'était une détermination, une volonté, une gloire! La gloire de périr au champ d'honneur!
+Les cultivateurs de la Mer Yun pouvaient mourir au combat, mais ils ne pouvaient pas fuir. C'était une détermination, une volonté, une gloire! La gloire de périr au champ d'honneur!
 
 Cette gloire allait se répandre dans tout le Royaume Intérieur et embraser la frénésie de la guerre. Ce n'était que de cette manière qu'une infime chance de victoire pourrait exister, alors que l'écart entre les deux camps était si immense!
 
@@ -60,9 +60,9 @@ Les cultivateurs qui avaient chargé se dispersèrent immédiatement. La peur da
 
 Maître Hong Shan et Maître Nan Yunzi chargèrent aussitôt pour empêcher les cultivateurs de la troisième étape de s'enfuir. Cependant, le jeune homme au regard froid était de taille face à Maître Hong Shan, qui venait d'être blessé par la concubine impériale céleste. Blessé, Maître Hong Shan ne pouvait contenir seul un tel nombre de cultivateurs de la troisième étape.
 
-L'ancêtre du Clan des Moineaux de Feu fut le premier à s'extraire du combat contre Maître Hong Shan. Empli d'une intention meurtrière et entouré de flammes noires, il chargea!
+L'ancêtre du Clan Huo Que fut le premier à s'extraire du combat contre Maître Hong Shan. Empli d'une intention meurtrière et entouré de flammes noires, il chargea!
 
-En s'élançant, sa marque de moineau de feu vacilla et jaillit, formant un gigantesque oiseau de feu noir. L'oiseau était immense et enveloppait le corps de l'ancêtre du Clan des Moineaux de Feu.
+En s'élançant, sa marque de moineau de feu vacilla et jaillit, formant un gigantesque oiseau de feu noir. L'oiseau était immense et enveloppait le corps de l'ancêtre du Clan Huo Que.
 
 Une masse de Flammes Joss apparut au-dessus de l'oiseau, lui conférant une puissance redoutable. Il fendit les rangs des cultivateurs pour foncer vers Wang Lin!
 
@@ -70,7 +70,7 @@ Une masse de Flammes Joss apparut au-dessus de l'oiseau, lui conférant une puis
 
 Il était d'une rapidité extrême et, en un instant, il se retrouva à moins de 10 000 pieds de Wang Lin. L'oiseau de feu noir libéra des flammes menaçantes qui convergeaient vers Wang Lin!
 
-Les yeux de Wang Lin étaient rouges de soif de sang. Il fixa l'ancêtre du Clan des Moineaux de Feu alors que celui-ci chargeait. Sans dire un mot, il fit pivoter la Hache Brise-Ciel dans sa main droite. Ses étoiles de Dieu Ancien tournèrent à une vitesse folle et la puissance d'un Dieu Ancien emplit son corps. Il abattit impitoyablement la hache sur l'ancêtre qui arrivait!
+Les yeux de Wang Lin étaient rouges de soif de sang. Il fixa l'ancêtre du Clan Huo Que alors que celui-ci chargeait. Sans dire un mot, il fit pivoter la Hache Brise-Ciel dans sa main droite. Ses étoiles de Dieu Ancien tournèrent à une vitesse folle et la puissance d'un Dieu Ancien emplit son corps. Il abattit impitoyablement la hache sur l'ancêtre qui arrivait!
 
 « Quiconque se mettra en travers de mon chemin mourra! » Wang Lin bondit en avant et brandit la Hache Brise-Ciel. Un gigantesque fantôme de hache apparut devant lui!
 
@@ -78,11 +78,11 @@ Ce fantôme était colossal, presque aussi grand que les esprits de formation. I
 
 Cette attaque fit trembler les cieux et attira tous les regards. Même les divers cultivateurs de la troisième étape qui combattaient Maître Hong Shan et Maître Nan Yunzi tournèrent la tête pour voir ce qui se passait.
 
-Quant aux innombrables envahisseurs qui s'étaient précipités dans la mêlée, ils regardaient avec un mélange de peur et d'espoir. Ils espéraient que l'ancêtre du Clan des Moineaux de Feu tue Wang Lin, afin qu'il meure sous leurs yeux!
+Quant aux innombrables envahisseurs qui s'étaient précipités dans la mêlée, ils regardaient avec un mélange de peur et d'espoir. Ils espéraient que l'ancêtre du Clan Huo Que tue Wang Lin, afin qu'il meure sous leurs yeux!
 
 C'était le seul moyen de dissiper la terreur qui rongeait le cœur des cultivateurs du Royaume Extérieur!
 
-Derrière Wang Lin, les milliers de cultivateurs de la Mer des Nuages levèrent les yeux avec exaltation. Ils ne craignaient pas la mort, mais si Wang Lin était stoppé par l'ancêtre du Clan des Moineaux de Feu, même si un combat acharné s'ensuivait, cela briserait l'élan fulgurant qu'ils venaient de créer!
+Derrière Wang Lin, les milliers de cultivateurs de la Mer Yun levèrent les yeux avec exaltation. Ils ne craignaient pas la mort, mais si Wang Lin était stoppé par l'ancêtre du Clan Huo Que, même si un combat acharné s'ensuivait, cela briserait l'élan fulgurant qu'ils venaient de créer!
 
 Wang Lin ne pouvait être arrêté, pas même le temps d'un souffle!
 
@@ -92,11 +92,11 @@ Cependant, cette arme était la Hache Brise-Ciel!
 
 Des grondements de tonnerre résonnèrent et les flammes monstrueuses s'effondrèrent. Le feu fut incapable de résister alors que le fantôme de la hache le transperçait!
 
-Des fracas tonitruants retentirent à travers les étoiles. Tout le monde vit clairement ce qui suivit, un spectacle qu'ils n'oublieraient jamais: la fierté des cultivateurs de la Mer des Nuages, le cauchemar immortel des envahisseurs du Royaume Extérieur!
+Des fracas tonitruants retentirent à travers les étoiles. Tout le monde vit clairement ce qui suivit, un spectacle qu'ils n'oublieraient jamais: la fierté des cultivateurs de la Mer Yun, le cauchemar immortel des envahisseurs du Royaume Extérieur!
 
 Le fantôme de la hache ne s'arrêta pas; il plongea sur l'oiseau de feu noir. Ce dernier poussa un cri d'agonie déchirant qui résonna dans le cœur de chaque cultivateur présent!
 
-Le corps de l'oiseau noir fut tranché en deux par la Hache Brise-Ciel et s'effondra! Cela révéla l'ancêtre du Clan des Moineaux de Feu, au visage pâle et terrifié, piégé à l'intérieur de l'oiseau!
+Le corps de l'oiseau noir fut tranché en deux par la Hache Brise-Ciel et s'effondra! Cela révéla l'ancêtre du Clan Huo Que, au visage pâle et terrifié, piégé à l'intérieur de l'oiseau!
 
 Il regarda la hache descendre avec une force irrésistible. Il semblait avoir perdu toute capacité de riposte, condamné à regarder la Hache Brise-Ciel s'abattre entre ses sourcils!
 
@@ -108,7 +108,7 @@ Son crâne commença à se briser sous l'effet des fissures, révélant la mati�
 
 Le fantôme de la Hache Brise-Ciel s'abattit et trancha son cerveau comme du tofu. Elle lacéra impitoyablement et fendit la tête de l'ancêtre en deux!
 
-Des craquements sinistres résonnèrent alors que le mouvement de la hache se poursuivait. Le sang jaillit du cou, de la poitrine et de chaque partie du corps de l'Ancêtre du Clan des Moineaux de Feu. La hache transperça et divisa tout son corps en deux!
+Des craquements sinistres résonnèrent alors que le mouvement de la hache se poursuivait. Le sang jaillit du cou, de la poitrine et de chaque partie du corps de l'Ancêtre du Clan Huo Que. La hache transperça et divisa tout son corps en deux!
 
 Son âme originelle ne put s'échapper; elle fut instantanément détruite alors que son corps, coupé en deux, se dissipait parmi les étoiles!
 
@@ -118,7 +118,7 @@ Une exécution instantanée!
 
 Tuer instantanément un cultivateur de la troisième étape!
 
-Après le passage de la hache, un silence de mort s'installa. Les cultivateurs du Royaume Extérieur fixaient l'effondrement de l'oiseau de feu et restaient stupéfaits devant le cadavre de l'ancêtre du Clan des Moineaux de Feu coupé en deux... Ils ne pouvaient pas y croire, ils n'osaient même pas y croire!
+Après le passage de la hache, un silence de mort s'installa. Les cultivateurs du Royaume Extérieur fixaient l'effondrement de l'oiseau de feu et restaient stupéfaits devant le cadavre de l'ancêtre du Clan Huo Que coupé en deux... Ils ne pouvaient pas y croire, ils n'osaient même pas y croire!
 
 À cet instant, plus rien ne pouvait arrêter Wang Lin! Il traversa le cadavre déchiqueté de l'ancêtre et fixa le Grand Maître Yun Luo, dont le visage était devenu livide de terreur!
 

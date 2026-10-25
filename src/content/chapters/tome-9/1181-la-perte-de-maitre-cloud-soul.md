@@ -62,7 +62,7 @@ Tous se trouvaient sur une sorte d'autel d'à peine mille pieds de large. Le vie
 
 Le garçon nommé Duanmu fixait la brume devant lui en se léchant les lèvres, murmurant: « Ce brouillard n'est pas de la brume stellaire... »
 
-Chen Tianjun, de la Secte de la Bête de Bataille, manifesta une vive excitation dès son arrivée. Il prit plusieurs inspirations profondes, le regard brillant d'une lueur étrange.
+Chen Tianjun, de la Secte Yi Shou, manifesta une vive excitation dès son arrivée. Il prit plusieurs inspirations profondes, le regard brillant d'une lueur étrange.
 
 Seule la vieille femme en vert fronça légèrement les sourcils; nul ne savait à quoi elle pensait.
 

@@ -18,7 +18,7 @@ Wang Lin avait utilisé le Doigt Céleste immédiatement car il voulait choquer 
 
 La terre tremblait encore et l'onde de choc résonnait. Le sifflement du vent hurlait toujours aux oreilles des spectateurs. L'odeur du sang rappelait aux dizaines de milliers de spectateurs cette scène terrifiante.
 
-Wang Lin avait détruit le corps du maître de la Secte de la Musique Céleste, tué le Grand Ancien de cette branche et son disciple principal. Tout cela s'était produit au sein même de la Secte Éternelle, et lorsque l'Ancien Feng Hai tenta de prendre la parole, Wang Lin trancha d'une voix sans détour:
+Wang Lin avait détruit le corps du maître de la Secte Xian Yin, tué le Grand Ancien de cette branche et son disciple principal. Tout cela s'était produit au sein même de la Secte Éternelle, et lorsque l'Ancien Feng Hai tenta de prendre la parole, Wang Lin trancha d'une voix sans détour:
 
 « Quiconque tentera de les sauver subira le même sort! »
 
@@ -38,7 +38,7 @@ Wang Shanshan fronça les sourcils en pensant au doigt qu'il venait de lancer, s
 
 Les vieux monstres de la Secte Éternelle possédaient des niveaux de culture élevés et étaient tous extrêmement rusés. À cet instant, il était impossible de déceler leurs émotions, mais leurs regards vers Wang Lin semblaient glacials.
 
-Seul le Maître de la Secte Éternelle se distinguait, car il était le seul capable de percer la culture de Wang Lin. Il ne manifesta aucune émotion face au massacre des membres de la Secte de la Musique Céleste, comme s'il n'avait rien vu.
+Seul le Maître de la Secte Éternelle se distinguait, car il était le seul capable de percer la culture de Wang Lin. Il ne manifesta aucune émotion face au massacre des membres de la Secte Xian Yin, comme s'il n'avait rien vu.
 
 Wang Lin se retourna. Son expression était sereine, mais son intention de tuer se propageait. Il fixa la Secte Recherchant la Montagne au loin et marcha lentement vers lui.
 
@@ -52,7 +52,7 @@ Le Maître de la Secte Recherchant la Montagne était livide. Bien qu'il fût un
 
 Même l'Ancien principal perdit presque la raison en réalisant que Wang Lin était l'individu terrifiant qui avait dévasté la région de rang 7. Il avait vu personnellement Wang Lin utiliser l'Empreinte de l'Esprit Guerrier et savait qu'il n'était pas de taille. Sentant le regard de son Maître de Secte, ils comprirent instantanément leur situation, mais hésitèrent.
 
-Cependant, cette hésitation vola en éclats alors que Wang Lin avançait. La tragédie de la Secte de la Musique Céleste était encore fraîche sous leurs yeux. Le Maître de la Secte serra les dents et s'écarta sur le côté. Simultanément, l'Ancien principal fit de même.
+Cependant, cette hésitation vola en éclats alors que Wang Lin avançait. La tragédie de la Secte Xian Yin était encore fraîche sous leurs yeux. Le Maître de la Secte serra les dents et s'écarta sur le côté. Simultanément, l'Ancien principal fit de même.
 
 À l'instant où ils esquivèrent, les membres de la Secte Recherchant la Montagne se dispersèrent sur les flancs. Devant eux, la foule s'ouvrit pour tracer un chemin. À cet instant, personne ne se trouvait autour de Zhao Long. Son âme originelle tremblait tandis qu'il fixait Wang Lin.
 
@@ -74,7 +74,7 @@ Il était rare qu'un être puisse forcer un cultivateur au stade de Briseur du N
 
 L'âme originelle en combustion, sur le point d'exploser, allait libérer une puissance destructrice colossale. Même les cultivateurs de niveaux supérieurs choisiraient instinctivement de s'en écarter, mais Wang Lin ne bougea pas; au contraire, ses yeux brillèrent d'un éclat vif.
 
-L'expression de Feng Hai était sombre. En tant qu'Ancien de la Secte Éternelle, il était responsable de la compétition. Wang Lin venait de massacrer la Secte de la Musique Céleste en faisant fi de ses avertissements! Si cela s'était arrêté là, ce n'aurait pas été grave, mais maintenant, cet homme allait tuer des membres d'une secte du rang 7!
+L'expression de Feng Hai était sombre. En tant qu'Ancien de la Secte Éternelle, il était responsable de la compétition. Wang Lin venait de massacrer la Secte Xian Yin en faisant fi de ses avertissements! Si cela s'était arrêté là, ce n'aurait pas été grave, mais maintenant, cet homme allait tuer des membres d'une secte du rang 7!
 
 Pour la Secte Éternelle, chaque membre des sectes de la région de rang 7 était précieux. Les autres se moquaient éperdument de savoir si Zhao Long vivait ou mourait; ils n'avaient pas à se soucier de sa réputation déchue. Mais lui, Feng Hai, s'en souciait, car il était issu de la Secte Recherchant la Montagne avant de devenir un Ancien de la Secte Éternelle.
 
@@ -100,15 +100,15 @@ Le fracas continua tandis que la météorite se désintégrait en poussière de 
 
 Le visage de Feng Hai resta sombre alors qu'il fixait Wang Lin. Il garda le silence un long moment avant de retourner vers la tribune de la Secte Éternelle.
 
-Un silence de mort régnait, mais après ce bref instant, un tumulte se propagea sur les plateformes. En l'espace de quelques instants seulement, Wang Lin avait tué des membres de la Secte de la Musique Céleste et Zhao Long de la Secte Recherchant la Montagne. Tout cela rendait le choc encore plus intense.
+Un silence de mort régnait, mais après ce bref instant, un tumulte se propagea sur les plateformes. En l'espace de quelques instants seulement, Wang Lin avait tué des membres de la Secte Xian Yin et Zhao Long de la Secte Recherchant la Montagne. Tout cela rendait le choc encore plus intense.
 
 Son sort était impressionnant, mais sa force physique était encore plus prodigieuse!
 
-Les yeux du vieil homme en blanc brillèrent intensément. La Secte de la Musique Céleste et la Secte Recherchant la Montagne n'étaient que des détails insignifiants face à un cultivateur d'une telle puissance.
+Les yeux du vieil homme en blanc brillèrent intensément. La Secte Xian Yin et la Secte Recherchant la Montagne n'étaient que des détails insignifiants face à un cultivateur d'une telle puissance.
 
 Wang Lin se retourna pour faire face aux cultivateurs présents. Sa voix était neutre, mais chacun put l'entendre distinctement.
 
-« Je représente la Secte de l'Origine et je défie toutes les sectes de rang 6 et 7. Qui ose venir le premier? » La voix de Wang Lin était comme un vent glacial qui fit taire l'assistance une nouvelle fois.
+« Je représente la Secte Gui Yuan et je défie toutes les sectes de rang 6 et 7. Qui ose venir le premier? » La voix de Wang Lin était comme un vent glacial qui fit taire l'assistance une nouvelle fois.
 
 Lu Yuncong prit une profonde inspiration pour réprimer le choc dans son cœur. Il regarda Yuan Fei parmi la foule et esquissa un sourire qui n'en avait guère le goût.
 

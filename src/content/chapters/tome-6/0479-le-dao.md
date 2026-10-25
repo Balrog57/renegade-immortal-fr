@@ -10,9 +10,9 @@ slug: le-dao
 
 Son regard était calme, mais une lueur mystérieuse traversait ses yeux.
 
-Les trois épreuves de la Secte du Destin Céleste furent créées par Tian Yunzi lui-même. Il avait déchiré le vide pour créer un espace spécial où se dérouleraient ces trois épreuves.
+Les trois épreuves de la Secte Tian Yun furent créées par Tian Yunzi lui-même. Il avait déchiré le vide pour créer un espace spécial où se dérouleraient ces trois épreuves.
 
-Seul celui qui réussissait les trois épreuves pouvait prétendre devenir disciple de la Secte du Destin Céleste. C'était une règle gravée dans le marbre, que nul ne pouvait changer.
+Seul celui qui réussissait les trois épreuves pouvait prétendre devenir disciple de la Secte Tian Yun. C'était une règle gravée dans le marbre, que nul ne pouvait changer.
 
 À cet instant, à l'intérieur de l'épreuve Humaine, un voile recouvrait toute une zone. Au centre de ce domaine se trouvait un lieu semblable au paradis.
 
@@ -76,7 +76,7 @@ Le garçon regarda le ciel. Peu après, il secoua la tête et répondit: « Pour
 
 Le garçon détourna le regard vers sa sculpture et, après un long silence, murmura: « Est-il temps d'arrêter... non, ce n'est pas encore le moment... »
 
-Au sein de la Secte du Destin Céleste, sous l'arbre Bodhi, l'expression de l'homme à l'apparence douce devint très sérieuse. Il fixa le vide devant lui et ses yeux s'assombrirent.
+Au sein de la Secte Tian Yun, sous l'arbre Bodhi, l'expression de l'homme à l'apparence douce devint très sérieuse. Il fixa le vide devant lui et ses yeux s'assombrirent.
 
 « 83 jours... cette personne n'est certainement pas ordinaire! Même mon jeune frère apprenti Sun Yun n'a tenu que 67 jours! Bien que les trois épreuves soient un test, si l'on peut en tirer une illumination, c'est alors une opportunité céleste! Ces trois épreuves sont des expériences que chacun ne peut vivre qu'une seule fois dans sa vie, et le Maître a déployé d'immenses efforts pour les créer! Que ce Wang Lin puisse tenir 83 jours dans la première épreuve... cet homme... ne peut pas rester! »
 
@@ -110,7 +110,7 @@ Le village, les habitants, les fleurs, les oiseaux... tout réapparut. L'endroit
 
 La paire d'yeux dans le ciel fixa le garçon et disparut peu après.
 
-Sous l'arbre Bodhi de la Secte du Destin Céleste, les yeux de l'homme à l'apparence douce s'illuminèrent et il murmura pour lui-même: « Ainsi donc. Le Dao de cette personne est lié au cycle de la réincarnation; il n'est pas étonnant qu'il ait pu tenir 83 jours. Chaque jour, il vit un cycle de réincarnation, augmentant ainsi sa compréhension de ce cycle... »
+Sous l'arbre Bodhi de la Secte Tian Yun, les yeux de l'homme à l'apparence douce s'illuminèrent et il murmura pour lui-même: « Ainsi donc. Le Dao de cette personne est lié au cycle de la réincarnation; il n'est pas étonnant qu'il ait pu tenir 83 jours. Chaque jour, il vit un cycle de réincarnation, augmentant ainsi sa compréhension de ce cycle... »
 
 Dans l'épreuve Humaine, le vieil homme poussa un soupir, se leva, regarda le garçon et dit doucement: « Le 84e cycle est sur le point de commencer. Veux-tu continuer? »
 
@@ -118,7 +118,7 @@ Le garçon baissa les yeux sur la sculpture qu'il n'avait toujours pas réussi �
 
 « Continuons... c'est ainsi que l'on cherche le Dao... et le véritable sens de l'épreuve Humaine! »
 
-Au plus profond de la Secte du Destin Céleste.
+Au plus profond de la Secte Tian Yun.
 
 Tian Yunzi, les yeux clos, cultivait au centre d'un autel noir. Il ouvrit soudainement les yeux, afficha un sourire satisfait et dit: « Cet enfant est excellent! »
 

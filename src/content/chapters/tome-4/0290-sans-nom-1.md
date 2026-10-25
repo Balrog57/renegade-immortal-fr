@@ -36,7 +36,7 @@ Le vieil homme sauta sur le dos de la bête et s'enfonça plus profondément.
 
 Les yeux de Wang Lin s'illuminèrent. Il ne se leva pas immédiatement, mais attendit silencieusement.
 
-Cette attente dura sept jours. Quant à la bête moustique, Wang Lin ne la remit pas dans son sac; au contraire, il la laissa errer librement. La créature venait originellement de la Mer des Démons et, étant de retour chez elle, elle était très détendue.
+Cette attente dura sept jours. Quant à la bête moustique, Wang Lin ne la remit pas dans son sac; au contraire, il la laissa errer librement. La créature venait originellement de la Mer Xiu Mo et, étant de retour chez elle, elle était très détendue.
 
 Après sept jours, la silhouette de la tortue-dragon réapparut, le vieil homme assis sur son dos. À ses côtés, sept fines lignes dorées, semblables à des dragons, tournoyaient rapidement.
 

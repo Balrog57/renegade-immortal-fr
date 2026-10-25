@@ -12,43 +12,43 @@ Le tatouage de tonnerre imprimé sur les montagnes émettait une lueur spectrale
 
 Après un long moment, des ondulations apparurent dans le ciel au-dessus des montagnes et une silhouette en sortit. C'était un homme d'âge moyen vêtu de vert qui, dès son apparition, vit ses pupilles se contracter. Il ne regardait pas les montagnes, mais le ciel.
 
-« Il vient de surgir... La Porte du Vide! Ce... c'est l'aura de la Porte du Vide, cela ne peut pas être une erreur! » L'homme d'âge moyen affichait un visage sombre alors qu'il scrutait le ciel comme s'il y cherchait quelque chose.
+« Il vient de surgir... La Porte Kong! Ce... c'est l'aura de la Porte Kong, cela ne peut pas être une erreur! » L'homme d'âge moyen affichait un visage sombre alors qu'il scrutait le ciel comme s'il y cherchait quelque chose.
 
-« La Porte du Vide n'a pas été ouverte; sinon, mon corps originel l'aurait remarqué... Un cultivateur capable de faire apparaître la Porte du Vide... Intéressant, pas étonnant que le Conseil Souverain ait été si généreux en offrant un esprit dao de rang 6! » Cet homme d'âge moyen était l'avatar de Maître Simo!
+« La Porte Kong n'a pas été ouverte; sinon, mon corps originel l'aurait remarqué... Un cultivateur capable de faire apparaître la Porte Kong... Intéressant, pas étonnant que le Conseil Souverain ait été si généreux en offrant un esprit dao de rang 6! » Cet homme d'âge moyen était l'avatar de Maître Simo!
 
 Il n'était pas pressé auparavant. Il avait progressé lentement et ne se souciait guère de la capture. Cependant, à présent, tout avait changé et il devint bien plus sérieux.
 
 Après avoir détourné le regard, Maître Simo observa la montagne en contrebas et ses pupilles se contractèrent à nouveau. Il prit une profonde inspiration et fixa le tatouage de tonnerre gravé dans la roche. Son expression devint plus grave encore.
 
-« C'est un cultivateur du tonnerre! Il tente d'atteindre le troisième pas en tant que cultivateur du tonnerre! Ceci... ceci est... À travers les âges, les cultivateurs du tonnerre ont toujours eu le plus grand mal à atteindre le troisième pas. Le tonnerre est une puissance céleste, et même au sein du Clan du Tonnerre Dispersé, une seule personne a jamais atteint le troisième pas. Il s'est également arrêté au début du stade Vide du Nirvana, mais s'il devenait fou et invoquait le tonnerre céleste, même des cultivateurs du milieu du stade Vide du Nirvana auraient bien du mal à l'affronter! »
+« C'est un cultivateur du tonnerre! Il tente d'atteindre le troisième pas en tant que cultivateur du tonnerre! Ceci... ceci est... À travers les âges, les cultivateurs du tonnerre ont toujours eu le plus grand mal à atteindre le troisième pas. Le tonnerre est une puissance céleste, et même au sein du Clan Shan Lei, une seule personne a jamais atteint le troisième pas. Il s'est également arrêté au début du stade Vide du Nirvana, mais s'il devenait fou et invoquait le tonnerre céleste, même des cultivateurs du milieu du stade Vide du Nirvana auraient bien du mal à l'affronter! »
 
-« Pas étonnant qu'il ait voulu détruire le Clan du Tonnerre Dispersé. Son but devait être l'Éclair Éternel du clan. Après avoir dévoré l'Éclair Éternel, il a déclenché l'apparition de la Porte du Vide! » L'expression de Maître Simo était sombre alors qu'il devinait grossièrement ce qui s'était produit.
+« Pas étonnant qu'il ait voulu détruire le Clan Shan Lei. Son but devait être l'Éclair Éternel du clan. Après avoir dévoré l'Éclair Éternel, il a déclenché l'apparition de la Porte Kong! » L'expression de Maître Simo était sombre alors qu'il devinait grossièrement ce qui s'était produit.
 
-« Ce qui est encore plus terrifiant, c'est que même après avoir tenté de briser la Porte du Vide, il a eu la puissance de fusionner le tonnerre avec les montagnes pour sceller des dizaines de milliers de cultivateurs... Une telle prouesse ne peut être accomplie par un être ordinaire! Il devait tout planifier de longue date. Seul quelqu'un d'extrêmement calme et calculateur peut agir ainsi! »
+« Ce qui est encore plus terrifiant, c'est que même après avoir tenté de briser la Porte Kong, il a eu la puissance de fusionner le tonnerre avec les montagnes pour sceller des dizaines de milliers de cultivateurs... Une telle prouesse ne peut être accomplie par un être ordinaire! Il devait tout planifier de longue date. Seul quelqu'un d'extrêmement calme et calculateur peut agir ainsi! »
 
 Maître Simo prit une profonde inspiration, une lueur mystérieuse brillant dans ses yeux. Un vif intérêt pour Wang Lin l'habitait désormais.
 
 « Chasser un Dieu Ancien m'excitait déjà, et maintenant, je peux traquer un cultivateur de cette trempe. Bien, bien, très bien! » Maître Simo rit et, sans même lever le sceau des dizaines de milliers de cultivateurs en contrebas, fit volte-face pour partir.
 
-Cependant, alors qu'il tournait le dos, il fut soudainement saisi d'un tremblement et se retourna brusquement. Il scruta avec attention le vide où la Porte du Vide était apparue.
+Cependant, alors qu'il tournait le dos, il fut soudainement saisi d'un tremblement et se retourna brusquement. Il scruta avec attention le vide où la Porte Kong était apparue.
 
 « Quelque chose ne va pas... » Pour la première fois, l'horreur et l'incrédulité marquèrent son visage, mêlées au doute et au choc!
 
-« Il n'y a rien... Il n'y a aucune aura de Flammes Joss? » Maître Simo marqua une pause, puis agita sa main droite. Le vent hurla et envahit le monde, formant une image gigantesque. Cette vision montrait clairement Wang Lin chargeant contre la Porte du Vide à trois reprises, et la manière dont il avait scellé les dizaines de milliers de cultivateurs sous les cent mille montagnes!
+« Il n'y a rien... Il n'y a aucune aura de Flammes Joss? » Maître Simo marqua une pause, puis agita sa main droite. Le vent hurla et envahit le monde, formant une image gigantesque. Cette vision montrait clairement Wang Lin chargeant contre la Porte Kong à trois reprises, et la manière dont il avait scellé les dizaines de milliers de cultivateurs sous les cent mille montagnes!
 
 Fixant cette scène avec stupéfaction, le visage de Maître Simo pâlit instantanément.
 
-« Il... Il n'a utilisé aucune Flamme Joss. Il n'y a pas la moindre trace de Flammes Joss sur lui... En réalité, il ne s'est pas appuyé sur les Flammes Joss, mais a provoqué l'apparition de la Porte du Vide uniquement par l'accomplissement de son essence! Ceci... c'est du jamais vu... Et il a réussi à entrouvrir la Porte du Vide! »
+« Il... Il n'a utilisé aucune Flamme Joss. Il n'y a pas la moindre trace de Flammes Joss sur lui... En réalité, il ne s'est pas appuyé sur les Flammes Joss, mais a provoqué l'apparition de la Porte Kong uniquement par l'accomplissement de son essence! Ceci... c'est du jamais vu... Et il a réussi à entrouvrir la Porte Kong! »
 
-« Comment est-ce possible?! Personne ne peut achever son essence sans utiliser de Flammes Joss. Personne ne peut déclencher la Porte du Vide sans utiliser de Flammes Joss! » Maître Simo dissimula progressivement la terreur dans ses yeux pour la remplacer par une obscurité insondable. Il fit ensuite un pas en avant et se déplaça à une vitesse plusieurs fois supérieure à celle de son arrivée, poursuivant Wang Lin en hâte sur sa trace.
+« Comment est-ce possible?! Personne ne peut achever son essence sans utiliser de Flammes Joss. Personne ne peut déclencher la Porte Kong sans utiliser de Flammes Joss! » Maître Simo dissimula progressivement la terreur dans ses yeux pour la remplacer par une obscurité insondable. Il fit ensuite un pas en avant et se déplaça à une vitesse plusieurs fois supérieure à celle de son arrivée, poursuivant Wang Lin en hâte sur sa trace.
 
-Au moment où l'essence du tonnerre de Wang Lin atteignit son apogée et invoqua la Porte du Vide, au sein du Clan de la Soie Bleue, les mains de Lanmeng Daozun tremblèrent soudainement sur la cithare. Il leva la tête, agita ses manches et sortit précipitamment de la pièce.
+Au moment où l'essence du tonnerre de Wang Lin atteignit son apogée et invoqua la Porte Kong, au sein du Clan Lan Si, les mains de Lanmeng Daozun tremblèrent soudainement sur la cithare. Il leva la tête, agita ses manches et sortit précipitamment de la pièce.
 
 Li Qianmei était assise en tailleur à côté de lui et observait son père, sans dire un mot. Pourtant, la confusion dans ses yeux avait disparu, remplacée par une clarté limpide. Il semblait qu'elle s'était remémoré beaucoup de choses. Elle se leva alors avec douceur et sortit à son tour.
 
 Dès que Lanmeng Daozun franchit le seuil de la pièce, il agita sa main droite. Une lumière bleue infinie envahit le ciel et se condensa rapidement en images animées!
 
-Ces images retranscrissaient les trois tentatives de Wang Lin pour briser la Porte du Vide!
+Ces images retranscrissaient les trois tentatives de Wang Lin pour briser la Porte Kong!
 
 Lanmeng Daozun fixa ces visions et les examina minutieusement. Son expression devint progressivement plus solennelle jusqu'à ce qu'il soit saisi par le choc. C'était une réaction très rare de voir sur le visage de Lanmeng Daozun.
 
@@ -60,7 +60,7 @@ Lanmeng Daozun fixa ces visions et les examina minutieusement. Son expression de
 
 Li Qianmei secoua la tête et dit doucement: « Je n'ai pas retrouvé tous mes souvenirs, seulement quelques fragments. Si je l'avais vraiment oublié, il aurait été préférable que nous ne nous rencontrions plus jamais. Mais puisque je me souviens de certaines choses, je ne lâcherai pas prise... Quand ma mémoire sera restaurée, j'irai le retrouver. »
 
-Dans le domaine stellaire du clan Brumeux, la femme qui avait deviné la position de Wang Lin cultivait sur l'île située au centre du lac lorsque celui-ci activa la Porte du Vide.
+Dans le domaine stellaire du clan Brumeux, la femme qui avait deviné la position de Wang Lin cultivait sur l'île située au centre du lac lorsque celui-ci activa la Porte Kong.
 
 Les nombreuses fleurs et plantes flétrirent et s'effondrèrent instantanément. Le lac entourant l'île devint violent, formant un vortex autour de celle-ci. Les yeux de la femme s'ouvrirent soudainement, révélant une lumière mystérieuse et terrifiante.
 

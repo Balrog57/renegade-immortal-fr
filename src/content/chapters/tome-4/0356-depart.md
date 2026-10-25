@@ -142,7 +142,7 @@ Soudain, son regard se fixa sur Zhou Ru. Un instant stupéfait, il s'approcha d'
 
 « Ceci... est née naturellement dotée d'énergie spirituelle! Tous ses méridiens sont ouverts et elle possède une aura violette. Magnifique! » Le vieil homme contemplait Zhou Ru. Ce qu'il voyait n'était pas une enfant, mais une pierre spirituelle étincelante de haute qualité.
 
-Sa secte était modeste, mais comme elle était une branche de la Secte du Ciel Nuageux, ils jouissaient d'une certaine prospérité. Bien que le chef de secte fût généralement avare, il récompensait très généreusement les disciples qui découvraient de tels talents.
+Sa secte était modeste, mais comme elle était une branche de la Secte Yun Tian, ils jouissaient d'une certaine prospérité. Bien que le chef de secte fût généralement avare, il récompensait très généreusement les disciples qui découvraient de tels talents.
 
 Le vieil homme éclata de rire et s'adressa aux notables du village: « Cet enfant, je la prends! »
 

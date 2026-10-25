@@ -8,7 +8,7 @@ slug: ce-jour-est-arrive
 ---
 La tempête de feu s'immobilisa dans les airs et fusionna avec l'armature de l'ombrelle en os de feu, formant une ombrelle ardente. Lorsque la bouchée de sang de Wang Lin atteignit l'ombrelle, une quantité massive de vitalité s'y engouffra, provoquant un rugissement retentissant.
 
-La terre sacrée du Clan des Moineaux de Feu, alors en plein effondrement, fut envahie par une chaleur indescriptible. Même l'empreinte de la paume hésita lorsqu'elle fut frappée par cette onde thermique.
+La terre sacrée du Clan Huo Que, alors en plein effondrement, fut envahie par une chaleur indescriptible. Même l'empreinte de la paume hésita lorsqu'elle fut frappée par cette onde thermique.
 
 L'expression du Souverain changea radicalement!
 
@@ -50,11 +50,11 @@ Cependant, juste au moment où elle allait disparaître complètement, Wang Lin 
 
 L'ombrelle antique, sur le point de se dissiper, trembla et, sous l'écho du cri de Wang Lin, une aura destructrice jaillit de son sein!
 
-La terre sacrée entière du Clan des Moineaux de Feu s'effondra totalement! L'empreinte grise générée par l'armure se désintégra complètement.
+La terre sacrée entière du Clan Huo Que s'effondra totalement! L'empreinte grise générée par l'armure se désintégra complètement.
 
-À l'extérieur de la porte de la terre sacrée du Clan des Moineaux de Feu, l'Ancêtre était assis en pleine culture. Il ouvrit soudain les yeux et regarda vers la porte. Mais à cet instant, la porte s'effondra et d'innombrables fragments se précipitèrent vers lui.
+À l'extérieur de la porte de la terre sacrée du Clan Huo Que, l'Ancêtre était assis en pleine culture. Il ouvrit soudain les yeux et regarda vers la porte. Mais à cet instant, la porte s'effondra et d'innombrables fragments se précipitèrent vers lui.
 
-Ce fut si soudain que l'Ancêtre du Clan des Moineaux de Feu n'eut pas le temps de réagir avant que les débris ne le percutent. Il cracha du sang et recula rapidement, le regard empreint de choc, de terreur et d'incrédulité!
+Ce fut si soudain que l'Ancêtre du Clan Huo Que n'eut pas le temps de réagir avant que les débris ne le percutent. Il cracha du sang et recula rapidement, le regard empreint de choc, de terreur et d'incrédulité!
 
 La silhouette de Wang Lin jaillit de la porte effondrée et s'échappa promptement. Derrière lui, l'effondrement de la terre sacrée se mua en une force destructrice infinie qui explosait vers l'extérieur.
 
@@ -62,9 +62,9 @@ Le rugissement du Souverain retentit de l'intérieur alors qu'il surgissait de l
 
 En chargeant, le Souverain leva la main et frappa impitoyablement vers l'avant. Une autre empreinte de paume apparut et fonça sur sa cible. Elle rattrapa instantanément Wang Lin et s'apprêtait à l'anéantir!
 
-Face au danger imminent, du sang coula du coin de la bouche de Wang Lin tandis qu'il battait en retraite. Ses mains formèrent des sceaux et le Monde du Vent et de la Pluie apparut autour de lui. La paume percuta le Monde du Vent et de la Pluie.
+Face au danger imminent, du sang coula du coin de la bouche de Wang Lin tandis qu'il battait en retraite. Ses mains formèrent des sceaux et le Monde Hu Feng Huan Yu apparut autour de lui. La paume percuta le Monde Hu Feng Huan Yu.
 
-Le Monde du Vent et de la Pluie se brisa dans un fracas assourdissant!
+Le Monde Hu Feng Huan Yu se brisa dans un fracas assourdissant!
 
 Wang Lin cracha du sang et une lumière blanche émana de son corps. Une lueur blanche infinie jaillit de la planète de culture et se condensa autour de Wang Lin pour former une immense silhouette lumineuse!
 

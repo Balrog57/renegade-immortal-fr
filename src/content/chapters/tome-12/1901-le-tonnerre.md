@@ -12,11 +12,11 @@ Le tonnerre était la puissance des cieux et régnait au-dessus du monde. Lorsqu
 
 L'essence de tonnerre de Wang Lin était née d'une moitié d'ancien dragon du tonnerre. Cet ancien dragon exerçait, au nom du ciel et de la terre, le pouvoir du tonnerre et constituait l'incarnation même de cette force dans le monde.
 
-Grâce à cette moitié d'ancien dragon, Wang Lin possédait l'embryon d'une essence. Puis, après avoir absorbé l'indestructible tonnerre du Clan du Tonnerre Dispersé, son essence n'était plus qu'à un pas de la perfection!
+Grâce à cette moitié d'ancien dragon, Wang Lin possédait l'embryon d'une essence. Puis, après avoir absorbé l'indestructible tonnerre du Clan Shan Lei, son essence n'était plus qu'à un pas de la perfection!
 
 Ce pas ne fut pas facile à franchir, mais Wang Lin traça une voie inédite en créant des tonnerres d'accompagnement. Il utilisa l'âme du Crapaud du Tonnerre et son Royaume Ji pour parfaire ces tonnerres, rapprochant ainsi son essence de la complétion totale!
 
-Puis, il y a plus de cent ans, dans le temple du scorpion, le maître de la Secte du Dao Démoniaque, qui possédait une essence de tonnerre différente, versa la sienne dans Wang Lin, sans reculer devant aucun sacrifice. Il avait même dévoré deux Perles de l'Empereur du Tonnerre pour en transférer le pouvoir à Wang Lin!
+Puis, il y a plus de cent ans, dans le temple du scorpion, le maître de la Secte Dao Mo, qui possédait une essence de tonnerre différente, versa la sienne dans Wang Lin, sans reculer devant aucun sacrifice. Il avait même dévoré deux Perles de l'Empereur du Tonnerre pour en transférer le pouvoir à Wang Lin!
 
 Tout cela s'était accumulé pour permettre à l'essence de tonnerre de Wang Lin de changer radicalement et de condenser un corps véritable d'essence!
 
@@ -51,11 +51,11 @@ Il avait le pressentiment que ce tonnerre ne devait pas apparaître dans ce mond
 
 Le tonnerre tournait lentement autour du corps véritable en émettant des craquements. Ces bruits étaient d'une clarté extrême dans le silence du temple du scorpion. Les pupilles de Wang Lin se rétractèrent lorsque le tonnerre sembla montrer des signes d'instabilité.
 
-Une infime aura s'échappa du temple et se propagea instantanément à travers tout le Continent du Démon Vert. Chaque créature vivante trembla, saisie par l'illusion qu'elle allait être anéantie.
+Une infime aura s'échappa du temple et se propagea instantanément à travers tout le Continent Lu Mo. Chaque créature vivante trembla, saisie par l'illusion qu'elle allait être anéantie.
 
 Cependant, à l'instant même où cette once d'aura apparut, elle disparut aussitôt. Tout se passa en un éclair, sans attirer l'attention d'un seul Grand Empyréen!
 
-« Si ce tonnerre explose, le Continent du Démon Vert... » Wang Lin ressentait rarement la peur, mais cette fois, il tremblait devant le tonnerre qu'il avait lui-même créé!
+« Si ce tonnerre explose, le Continent Lu Mo... » Wang Lin ressentait rarement la peur, mais cette fois, il tremblait devant le tonnerre qu'il avait lui-même créé!
 
 Alors que le tonnerre de massacre devenait instable, le corps véritable d'essence de tonnerre de Wang Lin commença à s'intégrer avec l'essence de restriction. L'essence de restriction était la loi et la règle. Elle forma un vaste filet qui enveloppa le corps véritable de l'essence de tonnerre.
 
@@ -103,7 +103,7 @@ Une telle puissance ferait de lui un être sans limite, que personne ne pourrait
 
 Car lui, Wang Lin, allait devenir la dixième personne la plus puissante du Continent Astral Immortel!
 
-Tandis que Wang Lin fusionnait ses essences en contemplant les trois dernières, à l'extérieur du Continent du Démon Vert, hors du Continent de l'Est, au-delà des terres célestes... hors du Continent Astral Immortel...
+Tandis que Wang Lin fusionnait ses essences en contemplant les trois dernières, à l'extérieur du Continent Lu Mo, hors du Continent de l'Est, au-delà des terres célestes... hors du Continent Astral Immortel...
 
 Si le Continent Astral Immortel était le monde, alors il existait un vide semblable à l'espace au-delà de ce monde.
 

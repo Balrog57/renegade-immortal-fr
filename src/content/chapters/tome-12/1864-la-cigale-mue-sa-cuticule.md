@@ -6,23 +6,23 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1864 - The Cicada Sheds its Carapace
 slug: la-cigale-mue-sa-cuticule
 ---
-À la lisière de la Prairie du Ciel Extrême, la cultivatrice au stade initial de la Tribulation du Vide, entourée de milliers de cultivateurs, ouvrit les yeux. La boussole illusoire devant elle révélait clairement la position de Wang Lin.
+À la lisière de la Prairie Ji Tian, la cultivatrice au stade initial de la Tribulation du Vide, entourée de milliers de cultivateurs, ouvrit les yeux. La boussole illusoire devant elle révélait clairement la position de Wang Lin.
 
 Elle avait déjà vu le point représentant Wang Lin disparaître, puis réapparaître au loin. Elle informa immédiatement les cultivateurs qui le poursuivaient.
 
 À cet instant, le même phénomène se produisit une nouvelle fois. Cela donna à la femme un mauvais pressentiment. Une fois était acceptable, mais deux fois signifiaient qu'une troisième ou quatrième occurrence était possible. Cela rendrait l'élimination de Wang Lin extrêmement difficile!
 
-« Il doit posséder un trésor lui permettant de se téléporter. Notre secte n'en possède qu'un seul, et il n'y en a pas plus de trois dans le Continent du Démon Vert. Même sur le Continent du Taureau Céleste, ils ne peuvent en avoir beaucoup. Mais cet homme en possède un! »
+« Il doit posséder un trésor lui permettant de se téléporter. Notre secte n'en possède qu'un seul, et il n'y en a pas plus de trois dans le Continent Lu Mo. Même sur le Continent Tian Niu, ils ne peuvent en avoir beaucoup. Mais cet homme en possède un! »
 
 Sous son regard, elle découvrit avec effroi que la lumière représentant Wang Lin apparaissait à côté d'un groupe de points verts et qu'en un instant tous ces points verts disparaissaient. Aussitôt après, la lumière de Wang Lin disparut à nouveau pour réapparaître près d'un autre groupe de points verts, très loin!
 
 « La troisième fois!! » La femme n'hésita pas une seconde et informa tous les cultivateurs de la Tribulation du Vide.
 
-À ce moment précis, des cris déchirants retentirent là où se trouvait Wang Lin. Plus d'une douzaine de cultivateurs du Continent du Démon Vert se trouvaient ici, encerclés par la brume. Les hurlements s'estompèrent rapidement et la brume se mua en Wang Lin.
+À ce moment précis, des cris déchirants retentirent là où se trouvait Wang Lin. Plus d'une douzaine de cultivateurs du Continent Lu Mo se trouvaient ici, encerclés par la brume. Les hurlements s'estompèrent rapidement et la brume se mua en Wang Lin.
 
 Le visage de Wang Lin n'était plus pâle, mais légèrement rougi. Lors de son combat contre Xu Decai, il avait été gravement blessé; il avait donc choisi la même méthode qu'il avait utilisée dans le monde des grottes: dévorer la chair et les âmes originelles de cultivateurs pour se guérir.
 
-Après avoir dévoré deux groupes consécutifs de cultivateurs du Continent du Démon Vert, les yeux de Wang Lin s'illuminèrent et il disparut. Après l'équivalent du temps d'un bâton d'encens, le troisième groupe de cultivateurs mourut à son tour, devenant une partie intégrante du processus de guérison de Wang Lin.
+Après avoir dévoré deux groupes consécutifs de cultivateurs du Continent Lu Mo, les yeux de Wang Lin s'illuminèrent et il disparut. Après l'équivalent du temps d'un bâton d'encens, le troisième groupe de cultivateurs mourut à son tour, devenant une partie intégrante du processus de guérison de Wang Lin.
 
 À ce stade, au centre de la prairie, il ne restait plus que deux vieux monstres au stade intermédiaire de la Tribulation du Vide et deux cultivateurs au stade initial! Ces quatre individus étaient très prudents et ne se dispersèrent pas. Chaque expert du stade intermédiaire resta aux côtés d'un cultivateur du stade initial alors qu'ils convergeaient vers Wang Lin.
 
@@ -86,7 +86,7 @@ Les derniers éléments qu'il fit apparaître furent Yi Si et le Roi des Moustiq
 
 « Ainsi que le feu, le tonnerre et l'eau... » Wang Lin agita le bras et se leva. Le feu rugissait dans son œil gauche et la foudre jaillissait de son œil droit. Une mer de feu forgea une épée, laquelle devint un volcan. La foudre se transforma également en épée, puis cette épée devint une mer de tonnerre! Cette mer n'était pas faite d'eau, mais d'éclairs déchaînés!
 
-Une fois ces préparatifs achevés, Wang Lin agita sa manche et disparut. Une douce lumière fantomatique émana de l'endroit où la Pierre Spatiale avait été déposée dans la Prairie du Ciel Extrême. Wang Lin apparut, ramassa la pierre, puis scruta l'horizon.
+Une fois ces préparatifs achevés, Wang Lin agita sa manche et disparut. Une douce lumière fantomatique émana de l'endroit où la Pierre Spatiale avait été déposée dans la Prairie Ji Tian. Wang Lin apparut, ramassa la pierre, puis scruta l'horizon.
 
 Le champ de massacre était prêt; il ne lui restait plus qu'à y entraîner les autres de force!
 

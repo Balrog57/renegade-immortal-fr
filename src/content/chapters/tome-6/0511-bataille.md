@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 511 - Battle!"
 slug: bataille
 ---
-Les deux anciens de la Secte de l'Épée Da Luo crachèrent du sang presque en même temps et furent projetés en arrière, laissant derrière eux plusieurs profondes empreintes de pas dans le sol.
+Les deux anciens de la Secte Da Luo Jian crachèrent du sang presque en même temps et furent projetés en arrière, laissant derrière eux plusieurs profondes empreintes de pas dans le sol.
 
 Chaque pas qu'ils laissaient faisait légèrement trembler la terre.
 
@@ -20,7 +20,7 @@ Après ce reniflement, le gaz gris se referma brusquement et perça l'espace dis
 
 « Toi! » Lu Songyi voulut s'exclamer, mais son corps trembla soudainement et commença à gonfler comme un ballon.
 
-La scène était d'une étrangeté absolue. Le corps de Lu Songyi atteignit sa limite avant qu'un fracas ne retentisse: un cultivateur de la Formation de l'Âme de la Secte de l'Épée Da Luo venait d'exploser ainsi.
+La scène était d'une étrangeté absolue. Le corps de Lu Songyi atteignit sa limite avant qu'un fracas ne retentisse: un cultivateur de la Formation de l'Âme de la Secte Da Luo Jian venait d'exploser ainsi.
 
 Boum! Boum! Boum! Le bruit résonnait encore dans la vallée tandis qu'une pluie de chair et de sang s'abattait sur le sol.
 
@@ -38,7 +38,7 @@ Le visage de Guo Xingyi devint livide, totalement dénué de couleur, et son cor
 
 Sa jeune sœur de discipline affichait une expression de terreur pure. Finalement, incapable de contenir son effroi, elle s'accroupit pour vomir, le visage extrêmement pâle.
 
-Quant au jeune homme en robe bleue qui ne semblait pas appartenir à la Secte de l'Épée Da Luo, il paraissait plus extasié que jamais, inspirant profondément cet air chargé d'une odeur de sang.
+Quant au jeune homme en robe bleue qui ne semblait pas appartenir à la Secte Da Luo Jian, il paraissait plus extasié que jamais, inspirant profondément cet air chargé d'une odeur de sang.
 
 Hormis ces trois-là, la femme nommée Qian Qin affichait une expression troublante, partagée entre l'angoisse et la lutte intérieure.
 
@@ -52,17 +52,17 @@ Une masse considérable de gaz gris s'accumula au bout de son doigt pour former 
 
 Le regard de Wang Lin restait calme alors qu'il exerçait une légère pression sur son doigt. Une fluctuation d'énergie émana de l'intérieur de la sphère, la faisant rétrécir jusqu'à la taille d'un ongle. Wang Lin la saisit entre ses doigts et, lorsqu'il ouvrit la main, la boule de gaz gris avait disparu.
 
-Shi Fang, de la Secte de l'Épée Da Luo, fixa le jeton à la taille de Wang Lin avant de déclamer en détachant chaque mot: « Septième disciple de la Division Pourpre de la Secte du Destin Céleste, Wang Lin! »
+Shi Fang, de la Secte Da Luo Jian, fixa le jeton à la taille de Wang Lin avant de déclamer en détachant chaque mot: « Septième disciple de la Division Pourpre de la Secte Tian Yun, Wang Lin! »
 
 Wang Lin retira sa main, regarda Shi Fang et dit: « Répondez à l'une de mes questions, et je laisserai l'un d'entre vous partir aujourd'hui! »
 
 Shi Fang éclata d'un rire comme s'il venait d'entendre la chose la plus absurde au monde. Sa main droite forma un sceau et pointa vers le ciel; aussitôt, une puissante énergie d'épée jaillit du fourreau dans son dos. Cette énergie, d'un vert éclatant, monta vers les cieux.
 
-Shi Fang ricana: « Wang Lin, bien que tu sois un cultivateur de la Transformation de l'Âme au stade intermédiaire, nous sommes deux au stade initial et possédons nos trésors d'épée de la secte. Même si tu arrivais à nous tuer, tu en sortirais gravement blessé. Nous verrons comment tu te rendras dans la Mer des Esprits Démoniaques Orientaux quand elle s'ouvrira dans deux semaines! »
+Shi Fang ricana: « Wang Lin, bien que tu sois un cultivateur de la Transformation de l'Âme au stade intermédiaire, nous sommes deux au stade initial et possédons nos trésors d'épée de la secte. Même si tu arrivais à nous tuer, tu en sortirais gravement blessé. Nous verrons comment tu te rendras dans la Mer Yao Ling de l'Est quand elle s'ouvrira dans deux semaines! »
 
-Il avait déjà entendu les rumeurs concernant la liste des élus pour la Mer des Esprits Démoniaques Orientaux. Il savait que le nouveau septième disciple de la Division Pourpre faisait partie de ces privilégiés.
+Il avait déjà entendu les rumeurs concernant la liste des élus pour la Mer Yao Ling de l'Est. Il savait que le nouveau septième disciple de la Division Pourpre faisait partie de ces privilégiés.
 
-Maintenant qu'il avait Wang Lin face à lui, il décida de jouer sa chance! Il pariait que Wang Lin n'oserait pas agir sans retenue, car ils pourraient tous deux riposter avec force et l'endommager sérieusement, ce qui compromettrait son voyage vers la Mer des Esprits Démoniaques Orientaux.
+Maintenant qu'il avait Wang Lin face à lui, il décida de jouer sa chance! Il pariait que Wang Lin n'oserait pas agir sans retenue, car ils pourraient tous deux riposter avec force et l'endommager sérieusement, ce qui compromettrait son voyage vers la Mer Yao Ling de l'Est.
 
 L'ancien trapu n'avait pas ouvert la bouche depuis l'apparition de Wang Lin, mais ses yeux ne l'avaient pas quitté. En entendant les paroles de Shi Fang, il comprit intérieurement que la situation était périlleuse. D'après ses observations, cet homme n'était pas du genre à hésiter ou à peser le pour et le contre. Plutôt que de perdre du temps en paroles, il préférait qu'ils s'unissent pour attaquer immédiatement. Leurs chances de l'emporter contre un cultivateur de la Transformation de l'Âme au stade intermédiaire, même à deux contre un, n'étaient déjà pas élevées.
 
@@ -88,7 +88,7 @@ Dans un bruit de tonnerre, le corps de Shi Fang trembla et une sphère de lumiè
 
 « Acceptez la mort! »
 
-Les deux anciens de la Secte de l'Épée Da Luo au stade initial se battaient déjà de toutes leurs forces.
+Les deux anciens de la Secte Da Luo Jian au stade initial se battaient déjà de toutes leurs forces.
 
 Wang Lin restait immobile, l'expression impassible et le regard imperturbable. Il fit un pas, leva la main, pressa l'air, et une lueur noire apparut sur son pouce.
 

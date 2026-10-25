@@ -102,7 +102,7 @@ En fouillant dans ces mémoires, Wang Lin tomba soudainement sur l'image d'une f
 
 Cette scène soudaine fit sursauter l'ancêtre de la famille Ran et ses compagnons, qui furent chacun plongés dans leurs propres réflexions.
 
-« Liu Mei... » Wang Lin fronça les sourcils, et des images de la planète Suzaku défilèrent devant ses yeux, incluant ce qui s'était passé dans le Tombeau de Suzaku.
+« Liu Mei... » Wang Lin fronça les sourcils, et des images de la planète Suzaku défilèrent devant ses yeux, incluant ce qui s'était passé dans le Tombeau Zhu Que.
 
 « Cette femme a eu une chance inouïe de parvenir au Système Stellaire de Luotian... » Wang Lin réfléchit longuement en silence. Il leva les yeux vers le ciel et partit sans dire un mot.
 

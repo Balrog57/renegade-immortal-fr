@@ -49,11 +49,11 @@ L'homme costaud avait lancé ces paroles dans un moment de désespoir. Ayant ét
 
 Levant la tête, il regarda la fumée verte que Wang Lin était devenu à l'horizon. Il hésita un instant et dit: « Il y a six mois, le général démon est entré en culture de méditation et a verrouillé tous les tableaux de transfert. Si tu veux entrer, la seule façon est de forcer le passage! » Il porta la main à sa poitrine en s'éloignant. Gravement blessé, il devait retourner à son palais pour se rétablir.
 
-Tandis que Wang Lin volait dans le ciel sous forme de nuage de fumée verte, il déploya son sens divin pour balayer la zone. Tous les tableaux de transfert à l'intérieur de la Cité de l'Ancien Démon menant au palais du général démon étaient fermés. Ces tableaux avaient été verrouillés de l'intérieur et n'avaient rien à voir avec le mécanisme des tableaux eux-mêmes. À moins que le général démon ne les ouvre lui-même, il était impossible de les utiliser.
+Tandis que Wang Lin volait dans le ciel sous forme de nuage de fumée verte, il déploya son sens divin pour balayer la zone. Tous les tableaux de transfert à l'intérieur de la Cité Gu Yao menant au palais du général démon étaient fermés. Ces tableaux avaient été verrouillés de l'intérieur et n'avaient rien à voir avec le mécanisme des tableaux eux-mêmes. À moins que le général démon ne les ouvre lui-même, il était impossible de les utiliser.
 
-« Treize et Hu Pao ont été amenés dans cette Cité de l'Ancien Démon par ma faute; c'est donc moi qui les ai entraînés dans tout cela... » Wang Lin soupira intérieurement. À l'origine, lorsqu'il était parti, il ne s'attendait pas à s'endormir dans la grotte. En raison d'une suite de circonstances, il avait causé du tort à Treize et Hu Pao.
+« Treize et Hu Pao ont été amenés dans cette Cité Gu Yao par ma faute; c'est donc moi qui les ai entraînés dans tout cela... » Wang Lin soupira intérieurement. À l'origine, lorsqu'il était parti, il ne s'attendait pas à s'endormir dans la grotte. En raison d'une suite de circonstances, il avait causé du tort à Treize et Hu Pao.
 
-« Dans ce monde, certaines choses arrivent et d'autres non. Les cultivateurs aspirent à la longévité et à échapper au destin, pour éviter les calamités et rencontrer la fortune! Treize et Hu Pao ne sont pas proches de moi, et risquer de s'opposer au général démon et au Pays du Démon Céleste pour eux signifie défier ces deux puissances!
+« Dans ce monde, certaines choses arrivent et d'autres non. Les cultivateurs aspirent à la longévité et à échapper au destin, pour éviter les calamités et rencontrer la fortune! Treize et Hu Pao ne sont pas proches de moi, et risquer de s'opposer au général démon et au Pays Tian Yao pour eux signifie défier ces deux puissances!
 
 « Je devrais être prudent et rester à l'écart du danger. Rien de tout cela n'en vaut la peine!
 
@@ -187,7 +187,7 @@ Ajoutant les dizaines de milliers de soldats qui l'entouraient, Wang Lin savait 
 
 Le sort meurtrier suprême que Situ Nan lui avait enseigné. Le sort le plus puissant, doté d'une force capable de fendre les cieux, infiniment proche d'un sort céleste de qualité inférieure. Le troisième sort meurtrier!
 
-« Il est vrai que la Terre des Esprits Démoniques repose sur la puissance militaire. Si j'avais des centaines de milliers de soldats au stade de la Formation du Noyau, même un cultivateur Ascendant perdrait!
+« Il est vrai que la Terre Yao Ling repose sur la puissance militaire. Si j'avais des centaines de milliers de soldats au stade de la Formation du Noyau, même un cultivateur Ascendant perdrait!
 
 « Si j'avais dix millions de soldats au stade de la Formation du Noyau, des commandants et un général au niveau de culture du commandant en chef, je pourrais combattre un cultivateur Ascendant de fin de stade!
 

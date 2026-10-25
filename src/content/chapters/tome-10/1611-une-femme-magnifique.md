@@ -134,13 +134,13 @@ Li Muwan, la tête couverte de cheveux blancs, soutint Wang Lin pour sortir de l
 
 Cet endroit était un rêve, mais pas seulement un rêve. Il avait été façonné par le sort Dao de Wang Lin avec l'aide des Fruits du Dao. Le temps à l'intérieur du rêve s'écoulait au même rythme qu'à l'extérieur.
 
-À l'extérieur du rêve, c'était l'Alliance des Cultivateurs, les quatre grands systèmes stellaires, et la bataille finale entre les Royaumes Intérieur et Extérieur!
+À l'extérieur du rêve, c'était l'Alliance Xiu Zhen, les quatre grands systèmes stellaires, et la bataille finale entre les Royaumes Intérieur et Extérieur!
 
 Durant ces plusieurs dizaines d'années, les Royaumes Intérieur et Extérieur se déchiraient comme l'eau et le feu. Le Royaume Extérieur avait propagé la nouvelle de la mort du Seigneur du Royaume Scellé et utilisait toute sa puissance pour envahir le Royaume Intérieur.
 
 La barrière que Qing Lin avait érigée en empruntant une puissance antique s'était effondrée il y a plus de 30 ans. D'innombrables cultivateurs du Royaume Extérieur s'étaient précipités, et la bataille faisait rage sans relâche. Les deux camps subissaient de lourdes pertes et le ciel était saturé de sang. L'odeur de la mort était d'une densité inimaginable et les quatre grands systèmes stellaires étaient devenus un véritable enfer.
 
-Alors que la situation devenait de plus en plus désespérée, les nombreux grands puissants du Royaume Intérieur abandonnèrent la Rivière Invoquée et la Mer des Nuages. Ils concentrèrent leurs forces à Luotian et dans le Vide Brillant pour leur ultime lutte.
+Alors que la situation devenait de plus en plus désespérée, les nombreux grands puissants du Royaume Intérieur abandonnèrent la Rivière Invoquée et la Mer Yun. Ils concentrèrent leurs forces à Luotian et dans le Vide Brillant pour leur ultime lutte.
 
 Alors que l'agonie s'accentuait, la rumeur de la mort du Seigneur du Royaume Scellé s'enracina. Bien que Qing Shui se soit transformé en Wang Lin, il avait été gravement blessé par Xushen Tianzun et avait failli mourir il y a plus de 10 ans.
 

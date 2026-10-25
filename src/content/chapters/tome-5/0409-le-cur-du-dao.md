@@ -88,7 +88,7 @@ Bien que cette masse de nuages ne puisse détruire les cieux, elle pourrait tuer
 
 Les cultivateurs au stade de la Transformation de l'Âme sont de véritables puissances. On dit qu'ils sont recherchés par tous sur n'importe quelle planète de culture.
 
-L'ancêtre du Clan des Démons Géants n'était qu'au début du stade de la Transformation de l'Âme, mais cela lui suffisait pour contrôler un clan entier et en devenir le chef.
+L'ancêtre du Clan Ju Mo n'était qu'au début du stade de la Transformation de l'Âme, mais cela lui suffisait pour contrôler un clan entier et en devenir le chef.
 
 Li Yuanfeng avait été poussé au stade de la Transformation de l'Âme par la force, mais il était devenu le chef de Xue Yu.
 

@@ -18,21 +18,21 @@ Grâce à ces indices, Wang Lin commença à déduire ce qui s'était passé il 
 
 Alors que Wang Lin atteignait le bord de la faille et s'apprêtait à partir, il s'arrêta soudainement et leva les yeux. Un éclair de lucidité traversa son esprit alors qu'un souvenir refaisait surface!
 
-« Au sein du Clan du Tonnerre Dispersé, j'ai appris qu'il y a bien longtemps, un groupe de personnes mystérieuses était apparu. Ils portaient des vêtements étranges et possédaient des sorts et des trésors sans précédent... Lorsque j'ai absorbé le tonnerre éternel, j'ai perçu sa mémoire et vu des images vagues de ce groupe... »
+« Au sein du Clan Shan Lei, j'ai appris qu'il y a bien longtemps, un groupe de personnes mystérieuses était apparu. Ils portaient des vêtements étranges et possédaient des sorts et des trésors sans précédent... Lorsque j'ai absorbé le tonnerre éternel, j'ai perçu sa mémoire et vu des images vagues de ce groupe... »
 
 « Il y avait aussi le Fouet Kunji. Ce fouet était un trésor qui leur appartenait. J'avais envisagé de me rendre sur la Planète des Cinq Éléments pour trouver Na Duo! Le chef de ce groupe ressemblait trait pour trait à Na Duo! »
 
-« D'après les nouvelles du Clan du Tonnerre Dispersé, ces cultivateurs mystérieux venaient de l'extérieur du Système Stellaire Antique. Cependant, il n'y a rien au-delà, ils sont donc clairement des cultivateurs provenant du Continent Astral Immortel! » Les yeux de Wang Lin brillèrent d'un éclat vif et son esprit s'éclaircit alors qu'il poursuivait son analyse.
+« D'après les nouvelles du Clan Shan Lei, ces cultivateurs mystérieux venaient de l'extérieur du Système Stellaire Antique. Cependant, il n'y a rien au-delà, ils sont donc clairement des cultivateurs provenant du Continent Astral Immortel! » Les yeux de Wang Lin brillèrent d'un éclat vif et son esprit s'éclaircit alors qu'il poursuivait son analyse.
 
 Il n'avait pas entendu les paroles des membres de la Secte Gui Yi, mais à mesure qu'il réfléchissait, la vérité commençait à se dessiner. Une spéculation audacieuse surgit dans son cœur!
 
-« Le Souverain Céleste aux Sept Couleurs de la Secte des Sept Dao a conquis le Dao Céleste et a abandonné son partenaire de Dao. Il a scellé la Secte des Sept Dao pour méditer sur le Dao Céleste à l'intérieur de sa grotte, qu'il a aussi complètement scellée. »
+« Le Souverain Céleste aux Sept Couleurs de la Secte Qi Dao a conquis le Dao Céleste et a abandonné son partenaire de Dao. Il a scellé la Secte Qi Dao pour méditer sur le Dao Céleste à l'intérieur de sa grotte, qu'il a aussi complètement scellée. »
 
 « Cependant, son comportement a éveillé les soupçons d'autrui. Un jour, une autre secte du Continent Astral Immortel, dont l'un des membres possédait un talent prodigieux, a utilisé une méthode spéciale pour ouvrir un passage direct vers la grotte du Souverain Céleste aux Sept Couleurs! »
 
 « Ils sont arrivés par ce passage!! »
 
-« Ces individus sont les cultivateurs mystérieux que le Clan du Tonnerre Dispersé a rencontrés! Ils ne sont pas apparus initialement dans le Domaine Extérieur, mais dans le Royaume Céleste du Vent! Pourtant, personne dans le Royaume Céleste du Vent n'avait remarqué leur présence! »
+« Ces individus sont les cultivateurs mystérieux que le Clan Shan Lei a rencontrés! Ils ne sont pas apparus initialement dans le Domaine Extérieur, mais dans le Royaume Céleste du Vent! Pourtant, personne dans le Royaume Céleste du Vent n'avait remarqué leur présence! »
 
 « Ils ont scellé ce passage et ont quitté le Royaume Céleste du Vent. Peut-être avaient-ils exploré le domaine intérieur, pour finalement quitter la Formation de Scellement du Royaume et rejoindre le Domaine Extérieur! »
 
@@ -96,7 +96,7 @@ Au cours des cent dernières années, de nombreuses bêtes moustiques avaient é
 
 Après avoir reconstitué le Royaume Céleste du Vent, Wang Lin atterrit sur le continent et s'assit. Il ferma les yeux et son Sens Divin se propagea. Fusionnant avec ce continent, il le contrôla pour qu'il avance.
 
-Des grondements tonitruants retentirent. Sous le contrôle de Wang Lin, il extirpa de force le Royaume Céleste du Vent de l'univers où il se trouvait pour le transporter dans la Mer des Nuages!
+Des grondements tonitruants retentirent. Sous le contrôle de Wang Lin, il extirpa de force le Royaume Céleste du Vent de l'univers où il se trouvait pour le transporter dans la Mer Yun!
 
 Le continent flottait là, émettant d'immenses quantités d'énergie céleste. Cette énergie était différente de celle du Continent Astral Immortel; elle avait été altérée par les Flammes Joss et constituait une énergie céleste propre au monde des grottes!
 

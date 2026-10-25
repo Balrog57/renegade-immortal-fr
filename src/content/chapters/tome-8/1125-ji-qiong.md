@@ -22,7 +22,7 @@ Les Quatre Sectes Divines n'auraient plus aucun lien avec lui, mais l'expression
 
 C'était parce que l'ancien Empereur Divin Oiseau Vermillon lui avait également légué le manteau des Empereurs Divins de toutes les générations et le jeton formé par l'Esprit Oiseau Vermillon.
 
-L'Empereur Divin Dragon Azure n'en avait absolument pas fait mention. Si l'on disait qu'il les avait oubliés... Wang Lin ne l'aurait pas cru. De plus, concernant le secret que seul l'Empereur Divin Oiseau Vermillon pouvait connaître — le secret qui avait causé la grande guerre entre l'Alliance de Culture, le Royaume du Vide Brillant et les Quatre Sectes Divines — l'Empereur Divin Dragon Azure n'avait rien demandé.
+L'Empereur Divin Dragon Azure n'en avait absolument pas fait mention. Si l'on disait qu'il les avait oubliés... Wang Lin ne l'aurait pas cru. De plus, concernant le secret que seul l'Empereur Divin Oiseau Vermillon pouvait connaître — le secret qui avait causé la grande guerre entre l'Alliance Xiu Zhen, le Royaume Kun Xu et les Quatre Sectes Divines — l'Empereur Divin Dragon Azure n'avait rien demandé.
 
 Après que Wang Lin et les siens se furent éloignés au loin, l'Empereur Divin Dragon Azure s'assit dans la salle principale de la Secte Divine Dragon Azure. Il paraissait épuisé, et les Quatre Trésors Sacrés flottaient devant lui.
 
@@ -32,9 +32,9 @@ Après avoir envoyé Da Tou et sa compagnie dans le nouveau Royaume Céleste de 
 
 « Tuo Sen, cela fait plus de 1 000 ans. Nous devrons, en fin de compte, nous affronter! » L'aura de Wang Lin était monstrueuse alors qu'il fendait les étoiles. Utilisant la Courbure Spatiale, il se dirigea rapidement vers la planète familière Suzaku!
 
-Sur la planète Suzaku, peu de cultivateurs rôdaient encore aux alentours. La majorité d'entre eux étaient entrés dans la Terre de l'Ancien Dieu. Une fois à l'intérieur, ils étaient coupés du monde extérieur; nul ne savait si ces cultivateurs étaient encore en sécurité.
+Sur la planète Suzaku, peu de cultivateurs rôdaient encore aux alentours. La majorité d'entre eux étaient entrés dans la Terre Gu Shen. Une fois à l'intérieur, ils étaient coupés du monde extérieur; nul ne savait si ces cultivateurs étaient encore en sécurité.
 
-La Terre de l'Ancien Dieu étant une faille spatiale, rien de ce qui s'y passait n'avait d'impact sur l'extérieur.
+La Terre Gu Shen étant une faille spatiale, rien de ce qui s'y passait n'avait d'impact sur l'extérieur.
 
 L'espace autour de la planète Suzaku se tordit et Wang Lin en émergea. En observant la planète et les cultivateurs qui l'entouraient, Wang Lin fit un autre pas.
 
@@ -72,17 +72,17 @@ Après avoir légèrement déplacé son corps, Wang Lin observa son enveloppe da
 
 Lorsqu'il passa près des cultivateurs environnants, quatre personnes ouvrirent les yeux comme si elles avaient perçu quelque chose, mais elles n'arrêtèrent pas Wang Lin. Après tout, au cours des derniers jours, de nombreux vieux monstres errants s'étaient précipités ici.
 
-Rares étaient les cultivateurs ayant pénétré dans la Terre de l'Ancien Dieu qui connaissaient la planète Suzaku mieux que Wang Lin. Une fois sur la planète Suzaku, il se dirigea directement vers la Mer des Démons.
+Rares étaient les cultivateurs ayant pénétré dans la Terre Gu Shen qui connaissaient la planète Suzaku mieux que Wang Lin. Une fois sur la planète Suzaku, il se dirigea directement vers la Mer Xiu Mo.
 
 En chemin, il n'utilisa pas la téléportation pour arriver rapidement, mais prit le temps d'adapter son corps. Ce n'est qu'après s'être pleinement familiarisé avec sa condition qu'il accéléra sa progression.
 
-Il passa devant l'ancienne Secte de la Lutte contre le Mal et la formation de dragon sculptée dans la montagne. Il aperçut vaguement une femme qui inscrivait une formation sur chaque écaille, uniquement pour fabriquer un jade protecteur.
+Il passa devant l'ancienne Secte Dou Xie et la formation de dragon sculptée dans la montagne. Il aperçut vaguement une femme qui inscrivait une formation sur chaque écaille, uniquement pour fabriquer un jade protecteur.
 
 Il fixa le dragon d'il y a mille ans, bien que plus de la moitié fût endommagée et qu'il ne ressemblât qu'à peine à un dragon. La secte n'existait plus; l'endroit était totalement désolé.
 
 Wang Lin détourna le regard et disparut.
 
-Il traversa plus de la moitié de la Mer des Démons et atteignit l'entrée de la Terre de l'Ancien Dieu. Le silence y régnait, absolu; pas un seul cultivateur n'était présent. Il était évident qu'ils étaient tous déjà entrés dans la Terre de l'Ancien Dieu.
+Il traversa plus de la moitié de la Mer Xiu Mo et atteignit l'entrée de la Terre Gu Shen. Le silence y régnait, absolu; pas un seul cultivateur n'était présent. Il était évident qu'ils étaient tous déjà entrés dans la Terre Gu Shen.
 
 Wang Lin s'engouffra sans hésitation par l'entrée et apparut dans le vide.
 

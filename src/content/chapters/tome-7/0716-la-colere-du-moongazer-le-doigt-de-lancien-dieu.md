@@ -68,7 +68,7 @@ L'énergie spirituelle céleste qui menaçait de faire exploser son corps jailli
 
 Normalement, Wang Lin n'aurait jamais pu accomplir un tel prodige; il s'appuyait entièrement sur le vin céleste. Sans lui, il lui aurait été impossible d'utiliser le sort « Arrête » avec une telle intensité.
 
-Profitant de cet instant, Wang Lin s'élança sans la moindre hésitation. Il se déplaçait avec une rapidité extrême, utilisant les sorts d'évasion du vieil homme de la Terre des Esprits Démoniaques, expert en fuite.
+Profitant de cet instant, Wang Lin s'élança sans la moindre hésitation. Il se déplaçait avec une rapidité extrême, utilisant les sorts d'évasion du vieil homme de la Terre Yao Ling, expert en fuite.
 
 Wang Lin avait immobilisé les petits serpents aux yeux de lune, mais le sort n'avait aucun effet sur le grand serpent qui constituait la planète Yun Xia. Ce dernier s'élança avec une telle violence que l'impact permit aux plus petits spécimens de retrouver leur liberté.
 

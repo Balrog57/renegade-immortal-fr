@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 129 - Homemade Devil
 slug: un-demon-fait-maison
 ---
-Wang Lin regarda Xu Liguo, qui s'inclinait sans cesse en joignant les poings. Il allait répondre quand son expression changea légèrement alors que les sacs de rangement des trois disciples de la Secte des Cadavres volèrent dans ses mains. Au même moment, il agita la main et plusieurs boules de feu jaillirent. Elles s'abattirent sur les corps des disciples de la Secte des Cadavres et sur leurs marionnettes cadavériques, les transformant en poussière.
+Wang Lin regarda Xu Liguo, qui s'inclinait sans cesse en joignant les poings. Il allait répondre quand son expression changea légèrement alors que les sacs de rangement des trois disciples de la Secte Shi Yin volèrent dans ses mains. Au même moment, il agita la main et plusieurs boules de feu jaillirent. Elles s'abattirent sur les corps des disciples de la Secte Shi Yin et sur leurs marionnettes cadavériques, les transformant en poussière.
 
 Peu après, il tendit la main et attrapa Xu Liguo, qui n'osa pas résister. Puis, il disparut dans le ciel, laissant derrière lui une traînée de lumière arc-en-ciel.
 
@@ -14,7 +14,7 @@ Peu après, il tendit la main et attrapa Xu Liguo, qui n'osa pas résister. Puis
 
 Wang Lin retourna à la grotte et déposa la vigne du Fruit de l'Or Brûlant sur le sol. Il projeta également Xu Liguo en avant, ce qui fit paniquer ce dernier qui s'écria: « Camarade cultivateur, s'il y a un problème, nous pouvons en discuter! Nous pouvons en discuter! Tant que vous ne me tuez pas, j'accepterai n'importe quelle requête. J'ai eu tort auparavant. Je vous en prie, ne soyez pas en colère. »
 
-Xu Liguo se sentait profondément lésé. Il était un expert de l'Âme Naissante, mais il avait perdu son corps et son Âme Naissante était si blessée qu'elle risquait de s'effondrer, ce qui avait fait chuter son niveau de culture. De plus, il ne pouvait pas s'offrir le prix exorbitant d'un corps de cultivateur de l'Âme Naissante; il avait donc envisagé de posséder le corps d'un disciple de secte, mais s'il était découvert, cela entraînerait des ennuis sans fin. Finalement, il avait décidé de payer la Secte des Cadavres afin de pouvoir posséder un corps sans crainte.
+Xu Liguo se sentait profondément lésé. Il était un expert de l'Âme Naissante, mais il avait perdu son corps et son Âme Naissante était si blessée qu'elle risquait de s'effondrer, ce qui avait fait chuter son niveau de culture. De plus, il ne pouvait pas s'offrir le prix exorbitant d'un corps de cultivateur de l'Âme Naissante; il avait donc envisagé de posséder le corps d'un disciple de secte, mais s'il était découvert, cela entraînerait des ennuis sans fin. Finalement, il avait décidé de payer la Secte Shi Yin afin de pouvoir posséder un corps sans crainte.
 
 Cependant, posséder le corps d'un cultivateur de l'Établissement des Fondations signifiait qu'il lui faudrait énormément de temps pour retrouver sa culture, presque autant que s'il devait tout recommencer à zéro. Pour l'instant, il n'avait que la culture d'un cultivateur du stade avancé de l'Établissement des Fondations. Son Âme Naissante n'était qu'une apparence; elle n'avait aucune puissance réelle.
 
@@ -130,7 +130,7 @@ Après avoir rangé l'objet, il regarda la grotte avec regret. Il en sortit, fit
 
 Wang Lin ne se retourna pas et prit son envol vers l'est.
 
-D'après les souvenirs de Ma Liang, le Sanctuaire du Dieu de la Guerre se situait à l'est. Wang Lin avait pris sa décision. Puisqu'il n'avait pu localiser Zhao dans la mémoire de Ma Liang, il devait aller consulter la carte conservée au Pavillon des Écritures du Sanctuaire du Dieu de la Guerre.
+D'après les souvenirs de Ma Liang, le Sanctuaire du Dieu de la Guerre se situait à l'est. Wang Lin avait pris sa décision. Puisqu'il n'avait pu localiser Zhao dans la mémoire de Ma Liang, il devait aller consulter la carte conservée au Pavillon Cang Hun du Sanctuaire du Dieu de la Guerre.
 
 Par ailleurs, son épée verte, raffinée avec du sang, n'était plus qu'un simple morceau de métal dont la puissance avait considérablement diminué. Face à des cultivateurs de l'Établissement des Fondations, elle n'était pas nécessaire. Cependant, face à un cultivateur de la Formation du Noyau, contre lequel le Royaume Ji serait sans effet, ce morceau de métal pourrait lui sauver la vie.
 
@@ -194,7 +194,7 @@ Yang Xiong soupira intérieurement et renonça à toute idée de résistance. Il
 
 Après avoir reçu le jade, Wang Lin l'examina avec son Sens Divin. Sans changer d'expression, il hocha la tête, puis son regard se posa sur Lin Tao.
 
-Le cœur de Lin Tao s'emballa et il murmura: « Maître, cette carte est placée au sommet du Pavillon des Écritures. Je... je ne peux pas y accéder car mon niveau de culture n'est pas assez élevé. »
+Le cœur de Lin Tao s'emballa et il murmura: « Maître, cette carte est placée au sommet du Pavillon Cang Hun. Je... je ne peux pas y accéder car mon niveau de culture n'est pas assez élevé. »
 
 Voyant le visage impassible de Wang Lin, Lin Tao serra les dents: « Dix jours! Maître, donnez-moi juste dix jours. Dans dix jours, ce sera le tour de mon cousin de prendre son service. Je ferai en sorte, quoi qu'il arrive, qu'il m'en fasse une copie! »
 

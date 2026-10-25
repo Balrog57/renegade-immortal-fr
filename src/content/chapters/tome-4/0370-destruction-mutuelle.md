@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 370 - Mutual Destruction
 slug: destruction-mutuelle
 ---
-L'ancêtre du Clan des Démons Géants laissa échapper un rugissement. En quelques enjambées, il sortit de la faille et se lança à la poursuite de Sun Tai.
+L'ancêtre du Clan Ju Mo laissa échapper un rugissement. En quelques enjambées, il sortit de la faille et se lança à la poursuite de Sun Tai.
 
 Dans la partie septentrionale du continent Suzaku, on pouvait voir deux rayons de lumière fendre le ciel.
 
@@ -16,15 +16,15 @@ Dès que Wang Lin toucha terre, il lutta pour ouvrir les yeux et s'assit en posi
 
 Il était déjà éveillé et savait que Sun Tai n'avait aucune intention bienveillante. Être sauvé par Sun Tai restait préférable à une mort certaine.
 
-L'ancêtre du Clan des Démons Géants les poursuivait. D'un revers de sa hache gigantesque, il projeta une onde d'énergie tranchante. Dans un fracas assourdissant, l'espace devant Sun Tai explosa, engendrant d'innombrables micro-failles.
+L'ancêtre du Clan Ju Mo les poursuivait. D'un revers de sa hache gigantesque, il projeta une onde d'énergie tranchante. Dans un fracas assourdissant, l'espace devant Sun Tai explosa, engendrant d'innombrables micro-failles.
 
-Sun Tai jura. Il pointa le ciel et trois rayons de lumière verte s'envolèrent de son sac de rangement. Ces lueurs se transformèrent en trois cadavres momifiés qui chargèrent l'ancêtre du Clan des Démons Géants.
+Sun Tai jura. Il pointa le ciel et trois rayons de lumière verte s'envolèrent de son sac de rangement. Ces lueurs se transformèrent en trois cadavres momifiés qui chargèrent l'ancêtre du Clan Ju Mo.
 
 Sun Tai hurla: « Explosez pour moi! »
 
 Bang! Bang! Bang!
 
-Des explosions déchirant les cieux retentirent dans les airs. La force colossale de ces déflagrations repoussa l'ancêtre du Clan des Démons Géants d'une dizaine de mètres.
+Des explosions déchirant les cieux retentirent dans les airs. La force colossale de ces déflagrations repoussa l'ancêtre du Clan Ju Mo d'une dizaine de mètres.
 
 Le visage de Sun Tai était dévoré par la fureur alors qu'il chargeait en avant. Simultanément, sa main droite se mua en une paume gigantesque qui s'abattit sur l'ancêtre.
 
@@ -46,7 +46,7 @@ L'usage de l'énergie spirituelle céleste était une capacité propre aux culti
 
 Bien que cette paume de Sun Tai ne fût qu'une attaque simple, dépourvue de techniques complexes, elle n'en demeurait pas moins redoutable car elle contenait une fraction d'énergie spirituelle céleste. Sa puissance était immense.
 
-Même une simple technique de boule de feu, si elle était imprégnée d'énergie céleste, deviendrait un assaut mortel. L'énergie spirituelle céleste surprit l'ancêtre du Clan des Démons Géants.
+Même une simple technique de boule de feu, si elle était imprégnée d'énergie céleste, deviendrait un assaut mortel. L'énergie spirituelle céleste surprit l'ancêtre du Clan Ju Mo.
 
 Ses yeux s'illuminèrent et une part d'énergie céleste afflua dans sa main droite. Il abattit sa hache pour contrer la paume.
 
@@ -56,13 +56,13 @@ Après une explosion fracassante, le sol se brisa et des lueurs arc-en-ciel inon
 
 Cette onde de choc fut aussi soudaine qu'éphémère, ne se propageant pas trop loin car aucun des deux combattants n'avait consommé une quantité excessive d'énergie céleste.
 
-Le corps de l'ancêtre du Clan des Démons Géants trembla et du sang perla au coin de sa bouche. Furieux, il ne chargea pas Sun Tai, mais se dirigea plutôt vers la forêt qui s'effondrait.
+Le corps de l'ancêtre du Clan Ju Mo trembla et du sang perla au coin de sa bouche. Furieux, il ne chargea pas Sun Tai, mais se dirigea plutôt vers la forêt qui s'effondrait.
 
-« Je suis un cultivateur de stade intermédiaire de la Transformation de l'Âme, je ne crois pas être incapable de te tuer! Une fois ton corps entre mes mains, je suis certain d'en tirer un prix exorbitant pour un membre du Clan des Démons Géants! » Sun Tai renifla en chargeant et leva la main vers le ciel. Il cria: « Tonnerre! »
+« Je suis un cultivateur de stade intermédiaire de la Transformation de l'Âme, je ne crois pas être incapable de te tuer! Une fois ton corps entre mes mains, je suis certain d'en tirer un prix exorbitant pour un membre du Clan Ju Mo! » Sun Tai renifla en chargeant et leva la main vers le ciel. Il cria: « Tonnerre! »
 
 Dans un fracas, un éclair noir déchira le ciel et fondit sur lui.
 
-Sun Tai hurla: « Mon domaine du tonnerre est le fruit d'un prix colossal, après avoir cultivé sur la planète du Tonnerre Céleste pendant cent ans! Tu n'es qu'un vulgaire bâtard du Clan des Démons Géants. Meurs! »
+Sun Tai hurla: « Mon domaine du tonnerre est le fruit d'un prix colossal, après avoir cultivé sur la planète du Tonnerre Céleste pendant cent ans! Tu n'es qu'un vulgaire bâtard du Clan Ju Mo. Meurs! »
 
 Le visage de l'ancêtre s'assombrit en voyant l'éclair noir. Il poussa un rugissement, son corps grandissant de dix mètres, et frappa l'éclair descendant d'un coup de poing.
 
@@ -86,7 +86,7 @@ En un clin d'œil, l'éclair et l'homme disparurent à l'horizon.
 
 « Hmph, tu oses me chiper les restes sous mes yeux! » Sun Tai ricana en formant un nouveau sceau. Il comptait chasser l'ancêtre d'un coup, puis s'occuper définitivement de Wang Lin. Il avait décidé cette fois de sceller complètement Wang Lin afin d'épargner à sa propre âme originelle tout dommage.
 
-Les yeux de l'ancêtre du Clan des Démons Géants brillèrent d'une lueur mystérieuse. Il fixa Sun Tai et déclara: « Je vais emporter cet homme et je le rendrai dans sept jours! »
+Les yeux de l'ancêtre du Clan Ju Mo brillèrent d'une lueur mystérieuse. Il fixa Sun Tai et déclara: « Je vais emporter cet homme et je le rendrai dans sept jours! »
 
 Sans la moindre hésitation, Sun Tai répliqua: « Impossible! » Laisser cet homme s'emparer de Wang Lin reviendrait à placer son âme originelle entre les mains de l'autre.
 
@@ -108,13 +108,13 @@ La paume de Sun Tai percuta le cercueil, le faisant éclater. Le corps d'un jeun
 
 Le vortex tourna avec une violence inouïe et Sun Tai fut entraîné vers l'intérieur. Le regard plein de dépit, il cria: « Enfant démon, tue-le! »
 
-Le garçon ouvrit brusquement les yeux, révélant une lueur démoniaque. D'un seul pas, il se retrouva devant l'ancêtre du Clan des Démons Géants. Sa vitesse surpassait celle de la téléportation.
+Le garçon ouvrit brusquement les yeux, révélant une lueur démoniaque. D'un seul pas, il se retrouva devant l'ancêtre du Clan Ju Mo. Sa vitesse surpassait celle de la téléportation.
 
 L'ancêtre vit le garçon percuter sa poitrine et sentit une force destructrice déferler en lui. Il cracha un flot de sang tandis que son âme originelle s'échappait précipitamment de son corps, emportant avec elle son sac de rangement. Son corps tomba, puis le garçon lui assena un coup de pied qui creusa un profond cratère dans sa poitrine.
 
 Cependant, Sun Tai avait déjà été happé par le vortex. Il poussa un cri de frustration et disparut lentement.
 
-Le pouvoir de lignée du Clan des Démons Géants n'avait pas de capacité d'attaque réelle en raison du faible niveau de culture de l'ancêtre, mais il pouvait téléporter quelqu'un loin de la planète Suzaku, jusque dans les étoiles lointaines.
+Le pouvoir de lignée du Clan Ju Mo n'avait pas de capacité d'attaque réelle en raison du faible niveau de culture de l'ancêtre, mais il pouvait téléporter quelqu'un loin de la planète Suzaku, jusque dans les étoiles lointaines.
 
 Alors que le vortex se refermait, Sun Tai disparut à son tour.
 

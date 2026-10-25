@@ -12,13 +12,13 @@ La lumière violette brilla intensément et envahit le monde, submergeant totale
 
 Une explosion assourdissante fit trembler le monde et la lumière violette fut contrainte de reculer avant de se transformer en une silhouette humaine: un homme d'âge moyen aux cheveux violets, dont le regard débordait d'une soif de sang monstrueuse.
 
-« Moi, Ling Yunzi, Maître du Royaume de la Boucherie! »
+« Moi, Ling Yunzi, Maître du Royaume Sha Lu! »
 
 « Le Royaume Ji! Ainsi, les biens laissés par mon épouse sont entre tes mains! » Qing Shui fut repoussé de plusieurs pas en fixant l'homme aux cheveux violets, ses yeux brûlant d'une intention meurtrière terrifiante.
 
 « Qing Shui est un ancien Seigneur Céleste du Royaume Céleste du Tonnerre. La rumeur prétend qu'après sa résurrection, sa culture ne s'est pas rétablie. Bien qu'il soit encore très puissant, je possède un trésor de niveau Pseudo-Vide du Nirvana. Même s'il est endommagé, il me suffit pour l'affronter. Tuer Qing Shui serait un exploit mémorable! » L'homme aux cheveux violets laissa échapper un renâclement glacial et créa une immense brume violette. Alors qu'il chargeait, six clones apparurent et s'élancèrent également vers Qing Shui.
 
-Le Royaume de la Boucherie possédait un trésor Pseudo-Vide du Nirvana. Bien que gravement endommagé, il demeurait extrêmement puissant. Il avait été offert par le Grand Ancien de l'Alliance au premier Maître du Royaume de la Boucherie pour servir de trésor de protection du royaume!
+Le Royaume Sha Lu possédait un trésor Pseudo-Vide du Nirvana. Bien que gravement endommagé, il demeurait extrêmement puissant. Il avait été offert par le Grand Ancien de l'Alliance au premier Maître du Royaume Sha Lu pour servir de trésor de protection du royaume!
 
 À mesure que la brume violette se répandait, Qing Shui s'y engouffra, porté par une intention meurtrière dévorante. Des grondements tonitruants jaillirent de l'intérieur de la brume alors que Qing Shui entamait son combat contre l'homme aux cheveux violets!
 
@@ -42,21 +42,21 @@ La Lance Tueuse de Dieux ne fut nullement endommagée; elle avait seulement lég
 
 « L'arme des Dieux Anciens royaux peut donc résister à ce niveau du Royaume Ji! » Les yeux de Wang Lin brillèrent tandis que la lance disparaissait lentement de sa main.
 
-« Hélas, avec ma culture actuelle, je ne peux créer qu'une illusion. La véritable Lance Tueuse de Dieux est entre les mains de Tuo Sen! » Alors qu'il reculait, Wang Lin disparut en un éclair. Lorsqu'il réapparut, il se trouvait derrière un cultivateur du Royaume de la Boucherie et tendit le doigt.
+« Hélas, avec ma culture actuelle, je ne peux créer qu'une illusion. La véritable Lance Tueuse de Dieux est entre les mains de Tuo Sen! » Alors qu'il reculait, Wang Lin disparut en un éclair. Lorsqu'il réapparut, il se trouvait derrière un cultivateur du Royaume Sha Lu et tendit le doigt.
 
-Il restait moins de cent cultivateurs du Royaume de la Boucherie. Aucun d'entre eux n'avait une culture faible. Ils se regroupèrent et formèrent tous des sceaux manuels. Leurs incantations s'élevèrent à l'unisson, faisant trembler le Royaume de la Boucherie tout entier. Parmi les immenses édifices en forme d'épées, onze s'effondrèrent instantanément.
+Il restait moins de cent cultivateurs du Royaume Sha Lu. Aucun d'entre eux n'avait une culture faible. Ils se regroupèrent et formèrent tous des sceaux manuels. Leurs incantations s'élevèrent à l'unisson, faisant trembler le Royaume Sha Lu tout entier. Parmi les immenses édifices en forme d'épées, onze s'effondrèrent instantanément.
 
 Onze rayons de lumière jaillirent et fusionnèrent dans le vide en chantant. Un instant plus tard, la silhouette de Wang Lin surgit du néant, poursuivie par ces onze lueurs. Trop rapides pour lui, elles le rattrapèrent en un instant.
 
-Chacun des onze rayons renfermait une épée d'argent imprégnée d'une intention meurtrière monstrueuse. Ces onze épées avaient été forgées par le premier Maître du Royaume dans du fer raffiné recueilli aux quatre coins du monde. Après avoir été affinées dans le Royaume de la Boucherie durant d'innombrables années, elles étaient devenues des armes de massacre inégalées!
+Chacun des onze rayons renfermait une épée d'argent imprégnée d'une intention meurtrière monstrueuse. Ces onze épées avaient été forgées par le premier Maître du Royaume dans du fer raffiné recueilli aux quatre coins du monde. Après avoir été affinées dans le Royaume Sha Lu durant d'innombrables années, elles étaient devenues des armes de massacre inégalées!
 
-Les onze épées volantes qui traquaient Wang Lin émettaient les cris lugubres des âmes de ceux que le Royaume de la Boucherie avait massacrés. Ces âmes encerclaient les rayons de lumière et poursuivaient Wang Lin avec acharnement pour le dévorer, comme si elles voulaient l'aspirer à leur tour.
+Les onze épées volantes qui traquaient Wang Lin émettaient les cris lugubres des âmes de ceux que le Royaume Sha Lu avait massacrés. Ces âmes encerclaient les rayons de lumière et poursuivaient Wang Lin avec acharnement pour le dévorer, comme si elles voulaient l'aspirer à leur tour.
 
 « De bonnes épées! » Un éclat de froideur passa dans les yeux de Wang Lin. Ces onze lames étaient en effet exceptionnelles, d'autant plus qu'elles avaient toutes été forgées à la même époque et avaient subi le même processus d'affinage. Entre elles s'était déjà formé un esprit de trésor qui se renforçait mutuellement. Si l'on parvenait à les collecter et à les condenser, le résultat serait plusieurs fois plus puissant que les quatre épées d'âme originelle que Ling Tianhou avait condensées en affinant quatre petits mondes!
 
 « Si je peux m'emparer de ces 99 épées volantes, même si ma culture n'égale pas celle de Ling Tianhou, je devrais pouvoir résister grâce à la puissance de ce trésor! » Les yeux de Wang Lin s'illuminèrent et il se lécha les lèvres.
 
-« Ce Royaume de la Boucherie regorge véritablement de trésors! » Des centaines de pensées traversèrent l'esprit de Wang Lin. Qing Shui n'avait pas réellement besoin de son aide; il l'avait invité pour lui offrir l'opportunité de s'emparer d'une fortune en pillant le Royaume de la Boucherie. C'était ainsi que Qing Shui remerciait Wang Lin pour les soins qu'il lui avait prodigués dans le vide.
+« Ce Royaume Sha Lu regorge véritablement de trésors! » Des centaines de pensées traversèrent l'esprit de Wang Lin. Qing Shui n'avait pas réellement besoin de son aide; il l'avait invité pour lui offrir l'opportunité de s'emparer d'une fortune en pillant le Royaume Sha Lu. C'était ainsi que Qing Shui remerciait Wang Lin pour les soins qu'il lui avait prodigués dans le vide.
 
 À cet instant précis, trois individus s'élancèrent parmi les cent cultivateurs environnants!
 
@@ -104,7 +104,7 @@ Son âme originelle était le Dragon du Tonnerre Ancien qui régnait sur la foud
 
 Rugissement!!!
 
-Le monde trembla sous ce cri, et d'immenses quantités de tonnerre convergèrent de toutes les directions. En un instant, le Royaume de la Boucherie se transforma en un enfer de foudre!
+Le monde trembla sous ce cri, et d'immenses quantités de tonnerre convergèrent de toutes les directions. En un instant, le Royaume Sha Lu se transforma en un enfer de foudre!
 
 Les grondements assourdissants résonnèrent à travers l'univers. Ils pénétrèrent les oreilles des cultivateurs et captèrent même l'attention des deux combattants dans la brume violette. Le regard de Qing Shui était empreint d'admiration, tandis que celui de l'homme aux cheveux violets s'assombrit.
 

@@ -90,7 +90,7 @@ Lors de son apparition, il dégageait une puissante odeur de sang. Derrière lui
 
 Wang Lin ouvrit les yeux avec un sourire amer. Le niveau de culture de Qing Shui était encore plus élevé qu'il y a dix jours. Il était évident qu'il avait dévoré de nombreux cultivateurs.
 
-« Ces gens sont tous des cultivateurs du Royaume de la Boucherie qui excellaient dans l'art de se cacher. Si nous voulons pénétrer dans le Royaume de la Boucherie, nous avons besoin de ces têtes! » Tandis qu'il parlait, Qing Shui agita sa main droite. Les têtes derrière lui volèrent pour former un cercle.
+« Ces gens sont tous des cultivateurs du Royaume Sha Lu qui excellaient dans l'art de se cacher. Si nous voulons pénétrer dans le Royaume Sha Lu, nous avons besoin de ces têtes! » Tandis qu'il parlait, Qing Shui agita sa main droite. Les têtes derrière lui volèrent pour former un cercle.
 
 « Sortilège Céleste: Le Guide des Enfers! » La main de Qing Shui traça un sceau. Son énergie d'origine céleste jaillit et il pointa du doigt. L'une des têtes explosa dans un fracas, se transformant en une brume sanglante. Le processus se répéta jusqu'à ce que les cent têtes s'effondrent toutes.
 
@@ -98,7 +98,7 @@ Une épaisse brume de sang enveloppa la zone. Qing Shui agita sa main droite et 
 
 « Guide des Enfers! » À l'instant où la voix glaciale de Qing Shui retentit, les lamentations au sein du vortex s'intensifièrent. Elles se concentrèrent au centre de la rotation, formant une sorte de trou noir!
 
-En condensant toutes les mémoires liées au Royaume de la Boucherie issues des fragments d'âme en un seul point, ce sort créait un passage vers le Royaume de la Boucherie en utilisant les souvenirs de plus de cent cultivateurs!
+En condensant toutes les mémoires liées au Royaume Sha Lu issues des fragments d'âme en un seul point, ce sort créait un passage vers le Royaume Sha Lu en utilisant les souvenirs de plus de cent cultivateurs!
 
 C'était cela, le sortilège céleste du Guide des Enfers!
 
@@ -108,20 +108,20 @@ On y voyait d'immenses édifices qui semblaient poignarder le vide comme des ép
 
 Au centre se dressait une tour d'au moins trois kilomètres de haut. Des chaînes noires pendaient de la tour, la reliant aux bâtiments environnants.
 
-C'était le Royaume de la Boucherie!
+C'était le Royaume Sha Lu!
 
 « Ce sort est très pratique, je l'apprécie beaucoup! » Une soif de sang illumina les yeux de Qing Shui alors qu'il sortait un jade pour enregistrer le sort et le lança à Wang Lin. Puis, il s'avança dans le vortex sans la moindre hésitation. Wang Lin rattrapa le jade en souriant amèrement. Il craignait que si Qing Shui aimait ce sort, ce n'était que parce qu'il lui permettait de massacrer son chemin vers les bases ennemies avec une facilité déconcertante.
 
 Wang Lin emboîta le pas et entra dans le vortex juste après Qing Shui!
 
-Un immense vortex venait soudainement d'apparaître dans le Royaume de la Boucherie, attirant l'attention de tous les cultivateurs. Un instant plus tard, une voix glaciale se propagea:
+Un immense vortex venait soudainement d'apparaître dans le Royaume Sha Lu, attirant l'attention de tous les cultivateurs. Un instant plus tard, une voix glaciale se propagea:
 
 « Je suis le Seigneur Céleste Qing Shui du Royaume Céleste du Tonnerre. Aujourd'hui, je suis venu récupérer ce qui m'appartient, et ensuite, je détruirai ce royaume! »
 
-Au moment où ces mots furent prononcés, ils se transformèrent en une tempête d'intention meurtrière qui balaya l'intégralité du Royaume de la Boucherie!
+Au moment où ces mots furent prononcés, ils se transformèrent en une tempête d'intention meurtrière qui balaya l'intégralité du Royaume Sha Lu!
 
 Bang, bang, bang, bang!
 
 En un instant, d'innombrables édifices en forme d'épées s'effondrèrent!
 
-« Qu'est-ce que ce Royaume de la Boucherie a bien pu prendre au Frère Aîné Qing Shui pour qu'il soit si enragé après avoir fouillé la mémoire du respecté Xuan Bao? » Wang Lin sortit du vortex et fixa froidement le Royaume de la Boucherie, l'un des huit royaumes de l'Alliance de Culture!
+« Qu'est-ce que ce Royaume Sha Lu a bien pu prendre au Frère Aîné Qing Shui pour qu'il soit si enragé après avoir fouillé la mémoire du respecté Xuan Bao? » Wang Lin sortit du vortex et fixa froidement le Royaume Sha Lu, l'un des huit royaumes de l'Alliance Xiu Zhen!

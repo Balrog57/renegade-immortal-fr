@@ -14,7 +14,7 @@ Maître du Vide n'était pas seul. C'était un cultivateur de très haut niveau 
 
 La belle femme d'âge moyen et ses quatre disciples étaient derrière lui!
 
-« Si je ne me trompe pas, c'est le célèbre monde de la bouteille de l'Empereur Céleste Qing Lin! La rumeur raconte que Qing Lin a tué d'affilée 39 Ancêtres d'Âme du Clan du Tatouage, un peuple venu d'ailleurs, et s'est emparé de leurs reliques sacrées. Il les a ensuite raffinées par un sort puissant pour créer un monde qu'il a fusionné dans la bouteille! »
+« Si je ne me trompe pas, c'est le célèbre monde de la bouteille de l'Empereur Céleste Qing Lin! La rumeur raconte que Qing Lin a tué d'affilée 39 Ancêtres d'Âme du Clan Fu Wen, un peuple venu d'ailleurs, et s'est emparé de leurs reliques sacrées. Il les a ensuite raffinées par un sort puissant pour créer un monde qu'il a fusionné dans la bouteille! »
 
 « Ses effets sont de mauvais augure, mais selon les archives de l'Alliance, cette bouteille était l'outil que Qing Lin utilisait pour collecter l'énergie spirituelle céleste. Il se murmurait également que ce trésor pouvait briser le sceau du monde entourant les quatre systèmes stellaires! »
 
@@ -38,7 +38,7 @@ Le visage de la belle femme était empreint de choc, et une trace d'anxiété ap
 
 Malgré une force aussi puissante, l'Alliance ne pouvait toujours pas anéantir complètement les Quatre Sectes Divines. En songeant à la terreur que représentaient les Quatre Saints, l'intention meurtrière dans les yeux du Maître du Vide s'intensifia.
 
-« Si cette personne parvient à s'éveiller et quitte le Royaume du Ciel Spirituel Céleste, les Quatre Sectes Divines la traqueront sans aucun doute au plus vite. Ils le ramèneront pour son héritage et le placeront sous une protection stricte! »
+« Si cette personne parvient à s'éveiller et quitte le Royaume Xian Ling Tian, les Quatre Sectes Divines la traqueront sans aucun doute au plus vite. Ils le ramèneront pour son héritage et le placeront sous une protection stricte! »
 
 « Nous ne pouvons pas permettre cela. S'il n'est pas mort lors de l'éveil, nous devons le détruire ici même! »
 

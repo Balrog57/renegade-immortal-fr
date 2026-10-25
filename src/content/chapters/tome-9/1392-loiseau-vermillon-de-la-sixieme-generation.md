@@ -84,7 +84,7 @@ Le corps de Xu Liguo trembla et il hocha précipitamment la tête avant de suivr
 
 Hormis Liu Jinbiao, nul ne savait ce que Wang Lin lui avait inculqué durant ce mois... Une fois les deux partis, la boule de feu disparut progressivement pour retourner dans l'œil gauche de Wang Lin. Il restait assis calmement, une lueur d'intelligence brillant dans ses yeux.
 
-« Le second appât est posé... Clan des Moineaux de Feu, ne me décevez pas! »
+« Le second appât est posé... Clan Huo Que, ne me décevez pas! »
 
 Wang Lin esquissa un sourire narquois et agita la main, créant une déchirure vers son espace de stockage. Une statue en vola. C'était celle qu'il avait obtenue de Tan Lang.
 

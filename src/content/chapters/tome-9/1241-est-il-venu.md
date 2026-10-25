@@ -24,21 +24,21 @@ Sa voix, telle une onde de choc, réprima instantanément le chaos et força tou
 
 Tout en fronçant les sourcils, l'ancien aux cheveux roux aperçut la silhouette de Li Qianmei et se précipita vers elle, suivi d'une douzaine d'autres anciens.
 
-Li Qianmei s'élança rapidement, faisant fi du fait qu'elle avait alerté toute la Secte Éternelle. Elle vola droit vers le nord, en direction de la Secte de l'Origine. Arrivée à proximité, elle atterrit et son regard balaya les environs.
+Li Qianmei s'élança rapidement, faisant fi du fait qu'elle avait alerté toute la Secte Éternelle. Elle vola droit vers le nord, en direction de la Secte Gui Yuan. Arrivée à proximité, elle atterrit et son regard balaya les environs.
 
-La joie de Lu Yingjie fut d'autant plus intense. Auparavant, il ne voyait Li Qianmei que de loin et n'osait pas déployer son sens divin; il n'avait donc pas entendu Li Qianmei interroger la Secte de l'Origine. À cet instant, il prit une profonde inspiration et afficha un sourire bienveillant. Dès que Li Qianmei fut proche, il dit: « Dame Li, cela fait cent ans que nous ne nous sommes pas vus. Je me demande si vous vous souvenez encore de moi. »
+La joie de Lu Yingjie fut d'autant plus intense. Auparavant, il ne voyait Li Qianmei que de loin et n'osait pas déployer son sens divin; il n'avait donc pas entendu Li Qianmei interroger la Secte Gui Yuan. À cet instant, il prit une profonde inspiration et afficha un sourire bienveillant. Dès que Li Qianmei fut proche, il dit: « Dame Li, cela fait cent ans que nous ne nous sommes pas vus. Je me demande si vous vous souvenez encore de moi. »
 
-Zhao Long, à ses côtés, manifesta également un air de respect et joignit les mains avec un sourire. « Ainsi, la camarade cultivatrice Li connaît Lu Yingjie. Je suis Zhao Long, de la Secte de la Recherche Montagnarde de rang 7. »
+Zhao Long, à ses côtés, manifesta également un air de respect et joignit les mains avec un sourire. « Ainsi, la camarade cultivatrice Li connaît Lu Yingjie. Je suis Zhao Long, de la Secte Xun Luan de rang 7. »
 
 Après leurs paroles, l'assistance fut stupéfaite. Il était évident que personne n'aurait imaginé que la raison pour laquelle la Fille des Cieux s'était précipitée ainsi soit Lu Yingjie!
 
 « On raconte que Lu Yingjie est un grand romantique. Je ne pensais pas que même Li Qianmei le connaîtrait, ou qu'elle viendrait jusqu'à la Secte Éternelle à cause de lui. »
 
-« Si cela s'avère vrai, la Secte de la Musique Céleste sera célèbre avant même d'avoir pu participer au concours. Je ne m'y attendais pas, je ne m'y attendais pas! »
+« Si cela s'avère vrai, la Secte Xian Yin sera célèbre avant même d'avoir pu participer au concours. Je ne m'y attendais pas, je ne m'y attendais pas! »
 
 « Je me demande bien ce que Lu Yingjie a fait pour gagner les faveurs de Li Qianmei. Cela me dépasse. »
 
-Même les membres de la Secte Éternelle qui avaient suivi Li Qianmei regardèrent Lu Yingjie avec étonnement, mais Feng Hai et ses compagnons fronçaient les sourcils. Ils avaient clairement entendu Li Qianmei demander après la Secte de l'Origine, et l'apparition de Lu Yingjie ne faisait qu'accroître leurs doutes.
+Même les membres de la Secte Éternelle qui avaient suivi Li Qianmei regardèrent Lu Yingjie avec étonnement, mais Feng Hai et ses compagnons fronçaient les sourcils. Ils avaient clairement entendu Li Qianmei demander après la Secte Gui Yuan, et l'apparition de Lu Yingjie ne faisait qu'accroître leurs doutes.
 
 Lu Yingjie afficha un sourire plus large encore, porté par toute cette attention. Il fit quelques pas en avant pour rejoindre Li Qianmei qui venait de se poser.
 
@@ -52,7 +52,7 @@ Non seulement lui, mais même Zhao Long, qui souriait quelques instants plus tô
 
 Cette scène soudaine fit lever les sourcils des cultivateurs alentour. Cette surprise changea complètement la donne; une pointe de moquerie apparut même dans les yeux de la foule.
 
-Li Qianmei ne daigna même pas regarder Lu Yingjie et se dirigea droit vers la Secte de l'Origine. En s'approchant, son regard balaya l'assemblée et se posa sur Lu Yanfei.
+Li Qianmei ne daigna même pas regarder Lu Yingjie et se dirigea droit vers la Secte Gui Yuan. En s'approchant, son regard balaya l'assemblée et se posa sur Lu Yanfei.
 
 Lu Yanfei essuya le sang au coin de sa bouche, comme pour effacer l'amertume qui marquait son corps, et regarda Li Qianmei.
 
@@ -76,7 +76,7 @@ Lu Yanfei réfléchit en silence, puis après un moment, elle secoua la tête. B
 
 Li Qianmei mordilla sa lèvre inférieure, secoua la tête et murmura doucement: « Oublie cela. » Puis, avec un éclair de froideur, elle tourna son regard vers Lu Yanfei et demanda calmement: « Tu es blessée? La blessure est récente. Qui a fait ça? »
 
-Lu Yanfei garda un visage impassible et répondit avec indifférence: « Tout à l'heure, Lu Yingjie a prétendu que, lorsque la Secte de l'Origine serait dissoute, je deviendrais son réceptacle de culture, et il a menacé de combattre l'Oncle-Maître. À ses côtés se trouve Zhao Long, un ancien de rang 7 de la Secte de la Recherche Montagnarde. Il a jugé que la voix de cette jeune femme était désagréable et que je n'étais pas digne de prendre la parole, alors il m'a légèrement punie. »
+Lu Yanfei garda un visage impassible et répondit avec indifférence: « Tout à l'heure, Lu Yingjie a prétendu que, lorsque la Secte Gui Yuan serait dissoute, je deviendrais son réceptacle de culture, et il a menacé de combattre l'Oncle-Maître. À ses côtés se trouve Zhao Long, un ancien de rang 7 de la Secte Xun Luan. Il a jugé que la voix de cette jeune femme était désagréable et que je n'étais pas digne de prendre la parole, alors il m'a légèrement punie. »
 
 En entendant cela, le visage de Lu Yingjie se décomposa. Il lança un regard à Lu Yanfei avant de s'exclamer: « Elle raconte n'importe quoi! » En réalité, ce qu'il avait dit était vrai. Il n'avait pas explicitement déclaré vouloir faire de Lu Yanfei son réceptacle de culture, mais il en avait l'intention.
 
@@ -96,7 +96,7 @@ Li Qianmei regarda calmement Feng Hai de la Secte Éternelle ainsi que l'ancien 
 
 Ce coup d'éclat et ces paroles lapidaires produisirent un impact colossal. Tous ceux qui assistèrent à la scène en eurent le souffle coupé, les yeux écarquillés par le choc.
 
-Les membres de la Secte Éternelle restèrent également silencieux. Feng Hai regarda l'ancien aux cheveux roux avant de tousser et de demander: « Camarade cultivatrice Li, puis-je savoir qui est cette personne dont vous parlez? L'Oncle-Maître de Lu Yanfei, de la Secte de l'Origine? »
+Les membres de la Secte Éternelle restèrent également silencieux. Feng Hai regarda l'ancien aux cheveux roux avant de tousser et de demander: « Camarade cultivatrice Li, puis-je savoir qui est cette personne dont vous parlez? L'Oncle-Maître de Lu Yanfei, de la Secte Gui Yuan? »
 
 Li Qianmei acquiesça. Puis, elle poussa un soupir et regarda le ciel. Nul ne savait à quoi elle pensait.
 
@@ -108,4 +108,4 @@ Le vent gémissait à travers le vide du Royaume Céleste du Vent. Cependant, ce
 
 Vêtu de blanc, Wang Lin était assis sur le dos du roi moustique, ses longs cheveux blancs flottant au vent alors qu'il observait l'intérieur du Royaume Céleste. Ses yeux s'illuminèrent. Ses blessures s'étaient quelque peu résorbées au cours des derniers jours, mais surtout, la quantité massive de bêtes moustiques qu'il avait rassemblée avait considérablement accru sa force!
 
-« Je veux entrer dans les terres intérieures du Royaume Céleste du Vent! Une fois que j'aurai accumulé assez de bêtes moustiques, j'irai tenir ma promesse envers la Secte de l'Origine. » Le roi moustique doré sous Wang Lin poussa un cri. Le nuage rouge formé par des milliers de moustiques changea immédiatement de direction pour charger vers les zones où la concentration de bêtes était la plus dense dans le Royaume Céleste du Vent!
+« Je veux entrer dans les terres intérieures du Royaume Céleste du Vent! Une fois que j'aurai accumulé assez de bêtes moustiques, j'irai tenir ma promesse envers la Secte Gui Yuan. » Le roi moustique doré sous Wang Lin poussa un cri. Le nuage rouge formé par des milliers de moustiques changea immédiatement de direction pour charger vers les zones où la concentration de bêtes était la plus dense dans le Royaume Céleste du Vent!

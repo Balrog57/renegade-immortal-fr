@@ -52,7 +52,7 @@ Le dragon de brouillard poussa un cri déchirant avant de se dissiper. Avec lui,
 
 Si Li Muwan n'avait pas été occupée à raffiner sa pilule et qu'elle avait pu contrôler la formation, celle-ci ne serait pas tombée si facilement.
 
-La formation brisée exposa l'entrée d'une grotte délabrée. Les dix cultivateurs de la Formation du Noyau de la Secte de la Lutte contre le Mal s'élancèrent, mais alors qu'ils approchaient à moins d'une soixantaine de mètres, des éclairs tombèrent du ciel. Bien que peu puissants individuellement, leur nombre était tel qu'ils semblaient menaçants.
+La formation brisée exposa l'entrée d'une grotte délabrée. Les dix cultivateurs de la Formation du Noyau de la Secte Dou Xie s'élancèrent, mais alors qu'ils approchaient à moins d'une soixantaine de mètres, des éclairs tombèrent du ciel. Bien que peu puissants individuellement, leur nombre était tel qu'ils semblaient menaçants.
 
 Les centaines de formations de base que Wang Lin avait disposées s'activèrent. Cependant, n'étant que des protections élémentaires, elles furent systématiquement balayées par les rugissements furieux des experts de la Formation du Noyau.
 
@@ -66,7 +66,7 @@ Même Qian Kun ne put s'empêcher de plisser les yeux. Il tenta pourtant de voir
 
 Li Muwan fixa les cultivateurs démoniaques. D'un geste de la main, elle fit apparaître le Four à Pilules des Cent Bêtes et demanda froidement: « Est-ce pour cela que vous êtes ici? »
 
-Qian Kun esquissa un sourire. Kun Sang, qui avait été le premier à poursuivre Wang Lin, fixa le fourneau en riant: « Je ne pensais pas que ce petit bâtard possédait réellement un fourneau, et qu'il s'agissait même du Four à Pilules des Cent Bêtes, celui-là même qui coûte 100 000 pierres spirituelles de haute qualité au Pavillon de Raffinage des Trésors. C'est exact; notre objectif initial était ce fourneau. Petite fille, remets-le nous. » Il tendit la main pour s'en emparer devant l'assemblée.
+Qian Kun esquissa un sourire. Kun Sang, qui avait été le premier à poursuivre Wang Lin, fixa le fourneau en riant: « Je ne pensais pas que ce petit bâtard possédait réellement un fourneau, et qu'il s'agissait même du Four à Pilules des Cent Bêtes, celui-là même qui coûte 100 000 pierres spirituelles de haute qualité au Pavillon Lian Qi. C'est exact; notre objectif initial était ce fourneau. Petite fille, remets-le nous. » Il tendit la main pour s'en emparer devant l'assemblée.
 
 Kun Sang et Pu Lin, qui avaient traqué Wang Lin dès le début, joignirent les mains en signe de respect: « Grand Ancien, ce fourneau nous appartiendra à tous les deux. À l'avenir, nous ne manquerons pas de vous envoyer des présents pour vous remercier. Qu'en dites-vous? »
 

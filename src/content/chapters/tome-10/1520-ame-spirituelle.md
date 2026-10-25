@@ -6,19 +6,19 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1520 - Spirit Soul !"
 slug: ame-spirituelle
 ---
-Les cultivateurs de la Mer des Nuages sont arrivés!
+Les cultivateurs de la Mer Yun sont arrivés!
 
 Des dizaines de milliers de cultivateurs, d'innombrables longues traînées de lumière... Les mortels ne pouvaient percevoir cela; seuls les cultivateurs participant à cette bataille pouvaient contempler une telle scène, et elle était inoubliable!
 
-Un mortel aurait peut-être la chance de voir une pluie de météores une fois dans sa vie. Cependant, en cet instant, l'arrivée des cultivateurs de la Mer des Nuages était cent fois plus spectaculaire qu'une tempête de météores!
+Un mortel aurait peut-être la chance de voir une pluie de météores une fois dans sa vie. Cependant, en cet instant, l'arrivée des cultivateurs de la Mer Yun était cent fois plus spectaculaire qu'une tempête de météores!
 
-Il était impossible de distinguer le visage de chaque cultivateur, mais on pouvait ressentir leur détermination à mourir et leur volonté de protéger la Mer des Nuages!
+Il était impossible de distinguer le visage de chaque cultivateur, mais on pouvait ressentir leur détermination à mourir et leur volonté de protéger la Mer Yun!
 
 À cet instant, la montagne céleste impénétrable se dressait devant eux, et elle allait devoir reculer et trembler!
 
-Gloire à la Mer des Nuages!
+Gloire à la Mer Yun!
 
-En cet instant, ces quatre caractères prirent vie! Ils devinrent l'aura même de la Mer des Nuages! C'était tragique, mais galvanisant!
+En cet instant, ces quatre caractères prirent vie! Ils devinrent l'aura même de la Mer Yun! C'était tragique, mais galvanisant!
 
 Nul ne pouvait rester insensible à cette aura. Même les êtres les plus malveillants et vils, s'il restait en eux une trace d'attachement pour leur terre natale, verraient ce sentiment amplifié à l'infini et leur sang bouillir!
 
@@ -29,7 +29,7 @@ Une bravoure et une grandeur indicibles émanaient de son rire. Il contenait l'a
 
 Il y avait aussi Maître Nan Yunzi. Cet homme était très mystérieux, et Wang Lin ne savait que peu de choses à son sujet. Cependant, en cet instant, ses yeux étaient froids et il arriva rapidement aux côtés de Maître Hong Shan!
 
-Tout cela se produisit en un instant. Dès l'arrivée des cultivateurs de la Mer des Nuages, Wang Lin fut confronté à une crise majeure. Ce danger ne provenait pas de l'ancêtre du Clan des Moineaux de Feu, mais de Nanzhao Shangren, qui se trouvait au stade du Vide Spirituel!
+Tout cela se produisit en un instant. Dès l'arrivée des cultivateurs de la Mer Yun, Wang Lin fut confronté à une crise majeure. Ce danger ne provenait pas de l'ancêtre du Clan Huo Que, mais de Nanzhao Shangren, qui se trouvait au stade du Vide Spirituel!
 
 Les écarts entre les quatre Royaumes du Vide sont immenses. Non seulement un cultivateur du Vide Spirituel peut utiliser davantage de Flammes Joss, mais il peut également utiliser ces flammes pour former sa propre âme!
 
@@ -77,7 +77,7 @@ La terre trembla et des bourdonnements résonnèrent. Les innombrables silhouett
 
 Dire que tout cela n'était qu'une illusion était à la fois vrai et faux!
 
-C'était vrai dans le sens où les cultivateurs du Royaume Extérieur existaient toujours et fonçaient sur eux. Les cultivateurs de la Mer des Nuages également!
+C'était vrai dans le sens où les cultivateurs du Royaume Extérieur existaient toujours et fonçaient sur eux. Les cultivateurs de la Mer Yun également!
 
 Le corps de Wang Lin ne disparut pas; il flottait toujours là. Cependant, l'éclat de ses yeux avait été remplacé par un vide abyssal. Devant lui, l'oiseau de feu noir se rapprochait, tout comme la paume de Nanzhao Shangren.
 

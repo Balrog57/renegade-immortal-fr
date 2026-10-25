@@ -8,7 +8,7 @@ slug: corps-principal-apparais
 ---
 Avant que Wang Lin n'entre dans la Perle Défiant le Ciel, il avait mis en place dans sa cour des restrictions cachées pour empêcher qu'on le dérange. De plus, une fois entré dans la Perle Défiant le Ciel, tout son être disparaissait complètement; même si quelqu'un entrait pour jeter un œil, il ne remarquerait rien d'anormal.
 
-Après tout, même le Seigneur Démon des Huit Extrêmes, Duanmu Ji, au stade de la Formation de l'Âme, n'avait pu déceler la moindre trace de l'espace de la Perle Défiant le Ciel à l'époque. Quant aux vieux de la Secte du Ciel Nuageux, qui n'atteignaient tout au plus que la fin de l'Âme Naissante, ils ne pouvaient absolument pas percevoir quoi que ce soit d'anormal.
+Après tout, même le Seigneur Démon des Huit Extrêmes, Duanmu Ji, au stade de la Formation de l'Âme, n'avait pu déceler la moindre trace de l'espace de la Perle Défiant le Ciel à l'époque. Quant aux vieux de la Secte Yun Tian, qui n'atteignaient tout au plus que la fin de l'Âme Naissante, ils ne pouvaient absolument pas percevoir quoi que ce soit d'anormal.
 
 Dans l'espace de la perle, Wang Lin s'inclina devant les lueurs d'âme de ses parents et devant Situ Nan, puis s'assit en silence pour respirer et se concentrer un moment. Ensuite, il sortit de son sein une fiole de jade blanc, en versa une pilule d'Établissement des Fondations qui exhalait un étrange parfum médicinal, et la garda en bouche.
 

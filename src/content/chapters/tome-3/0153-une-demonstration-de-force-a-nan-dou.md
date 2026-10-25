@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 153 - A Show of Strength at Nan Dou
 slug: une-demonstration-de-force-a-nan-dou
 ---
-Ces cultivateurs étaient tous au stade intermédiaire de la Formation du Noyau. En temps normal, ils ne se consacraient qu'à leur culture. Que ce soit pour les trois grandes sectes de la ville de Nan Dou ou pour la Secte de la Lutte contre le Mal, on leur témoignait toujours des égards.
+Ces cultivateurs étaient tous au stade intermédiaire de la Formation du Noyau. En temps normal, ils ne se consacraient qu'à leur culture. Que ce soit pour les trois grandes sectes de la ville de Nan Dou ou pour la Secte Dou Xie, on leur témoignait toujours des égards.
 
 Si l'ordre de mise à mort n'était pas apparu, ces gens ne se seraient jamais manifestés.
 
@@ -16,7 +16,7 @@ Un vieillard décharné, qui venait de voir Wang Lin tuer d'un geste un cultivat
 
 « Il y a aussi cette épée volante. Je n'ai jamais vu une épée aussi étrange: elle peut se téléporter! C'est un pouvoir que seuls les cultivateurs de l'Âme Naissante maîtrisent. Cette arme doit être au moins un trésor de niveau Âme Naissante, voire de niveau Formation de l'Âme. Elle a déjà tué une centaine de cultivateurs d'un niveau inférieur. »
 
-« Hmph, n'avez-vous pas remarqué les dix premiers corps attachés à la corde derrière ce démon? C'étaient des Anciens de la Secte de la Lutte contre le Mal. Il écrase des cultivateurs de la Formation du Noyau aussi facilement que des insectes. Si votre cupidité persiste, c'est votre affaire, mais moi, Ling, je ne m'en mêlerai absolument plus. Adieu! » L'un des cultivateurs, un homme d'une cinquantaine d'années, fixait de loin Wang Lin, qui venait de tuer plusieurs personnes avec une nonchalance déconcertante, avec une profonde méfiance. Après avoir parlé, il salua l'assemblée d'un poing dans la paume, recula précipitamment, tapa sur son sac de rangement, lança un bateau-navette, s'y assit et fila dans le ciel comme un météore vers le lointain.
+« Hmph, n'avez-vous pas remarqué les dix premiers corps attachés à la corde derrière ce démon? C'étaient des Anciens de la Secte Dou Xie. Il écrase des cultivateurs de la Formation du Noyau aussi facilement que des insectes. Si votre cupidité persiste, c'est votre affaire, mais moi, Ling, je ne m'en mêlerai absolument plus. Adieu! » L'un des cultivateurs, un homme d'une cinquantaine d'années, fixait de loin Wang Lin, qui venait de tuer plusieurs personnes avec une nonchalance déconcertante, avec une profonde méfiance. Après avoir parlé, il salua l'assemblée d'un poing dans la paume, recula précipitamment, tapa sur son sac de rangement, lança un bateau-navette, s'y assit et fila dans le ciel comme un météore vers le lointain.
 
 Les autres cultivateurs restèrent plongés dans leurs réflexions jusqu'à ce que l'un d'eux déclare soudainement: « Le messager de la mer intérieure va bientôt arriver. Cette fois, je ne me résignerai jamais à céder les économies de mes cent dernières années. C'est ma seule chance: si je tue cet homme et obtiens son noyau, une fois cette pilule de culture en ma possession, je pourrai atteindre le stade avancé de la Formation du Noyau et protéger mes biens. »
 
@@ -48,11 +48,11 @@ Cette bataille allait faire résonner le nom de Wang Lin dans un rayon d'un mill
 
 La voix glaciale résonna dans l'esprit des trois hommes. Le corps de Shang Guanmo frissonna; il se ressaisit aussitôt et vola vers les deux cultivateurs qui approchaient. De grandes vagues se soulevaient dans son cœur. Bien qu'il sût que ce monstre était puissant, il n'imaginait pas une telle force: ce n'était pas une force ordinaire, mais une puissance céleste qui ignorait tous les sortilèges et tous les niveaux de culture.
 
-« Ce sort de mort... est véritablement terrifiant... si je ne meurs pas cette fois, je dois absolument essayer de le cultiver. Avec un tel pouvoir, je pourrais marcher avec arrogance dans la partie extérieure de la Mer des Démons. » Shang Guanmo prit une profonde inspiration; pour la première fois, il ne regrettait plus d'avoir cédé son sang d'essence d'âme, et un sentiment complexe s'éleva en lui.
+« Ce sort de mort... est véritablement terrifiant... si je ne meurs pas cette fois, je dois absolument essayer de le cultiver. Avec un tel pouvoir, je pourrais marcher avec arrogance dans la partie extérieure de la Mer Xiu Mo. » Shang Guanmo prit une profonde inspiration; pour la première fois, il ne regrettait plus d'avoir cédé son sang d'essence d'âme, et un sentiment complexe s'éleva en lui.
 
-Peu importe où l'on se trouve, les forts sont respectés. C'était particulièrement vrai dans la Mer des Démons.
+Peu importe où l'on se trouve, les forts sont respectés. C'était particulièrement vrai dans la Mer Xiu Mo.
 
-Mu Nan et Mu Bei adoptèrent la même attitude que Shang Guanmo. Face à une telle puissance, la Secte de la Lutte contre le Mal n'avait aucune chance. S'ils voulaient vivre, ils devaient suivre ce redoutable démon, et il leur faudrait bientôt présenter un gage d'allégeance. Les deux frères se regardèrent, serrèrent les dents et suivirent rapidement Shang Guanmo.
+Mu Nan et Mu Bei adoptèrent la même attitude que Shang Guanmo. Face à une telle puissance, la Secte Dou Xie n'avait aucune chance. S'ils voulaient vivre, ils devaient suivre ce redoutable démon, et il leur faudrait bientôt présenter un gage d'allégeance. Les deux frères se regardèrent, serrèrent les dents et suivirent rapidement Shang Guanmo.
 
 Shang Guanmo aperçut l'un des adversaires et éclata de rire: « Ha ha! Si ce n'est pas le vieux Ouyang. Cela faisait longtemps que nous ne nous étions pas vus, retrouvons nos vieux souvenirs! » En même temps, d'un geste de la main droite, il fit sortir de son fourreau l'épée noire dans son dos, qui fila droit sur le vieil homme en laissant une traînée de lumière tranchante.
 
@@ -80,8 +80,8 @@ Un demi-bâton d'encens plus tard, le cultivateur qui affrontait les frères Mu 
 
 « Continuez à me guider! » La voix de Wang Lin était glaciale, empreinte d'une intention meurtrière oppressante.
 
-Wang Lin savait que pour s'imposer ici, il devait faire étalage de sa puissance, et la Secte de la Lutte contre le Mal était l'endroit idéal pour cela.
+Wang Lin savait que pour s'imposer ici, il devait faire étalage de sa puissance, et la Secte Dou Xie était l'endroit idéal pour cela.
 
-À cet instant, Mu Nan et Mu Bei éprouvèrent un respect profond pour Wang Lin. En particulier Mu Bei, dont le regard exprimait une déférence totale tandis qu'il guidait rapidement le groupe vers la Secte de la Lutte contre le Mal.
+À cet instant, Mu Nan et Mu Bei éprouvèrent un respect profond pour Wang Lin. En particulier Mu Bei, dont le regard exprimait une déférence totale tandis qu'il guidait rapidement le groupe vers la Secte Dou Xie.
 
 Derrière Wang Lin, la masse de cadavres dégageait une aura mortelle. Cette démonstration était plus efficace que n'importe quel discours. De nombreux cultivateurs aux intentions malveillantes, en voyant ces milliers de corps, pâlirent et reculèrent, craignant d'être entraînés dans ce carnage.

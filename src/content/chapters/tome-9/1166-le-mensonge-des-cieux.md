@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1166 - The Lie of Heaven
 slug: le-mensonge-des-cieux
 ---
-Aucun cultivateur de la Secte de l'Origine n'avait remarqué ce qui s'était passé dans la cour des herbes. La cour sud était une terre interdite, si bien qu'aucun disciple n'osait y pénétrer. Même Lu Yanfei et sa suite n'y venaient que sur invitation, et ils n'auraient jamais osé s'y introduire de force.
+Aucun cultivateur de la Secte Gui Yuan n'avait remarqué ce qui s'était passé dans la cour des herbes. La cour sud était une terre interdite, si bien qu'aucun disciple n'osait y pénétrer. Même Lu Yanfei et sa suite n'y venaient que sur invitation, et ils n'auraient jamais osé s'y introduire de force.
 
-Après avoir instantanément tué une bête de rang 8 et ordonné aux cultivateurs des trois sectes de rang 6 de déguerpir, Wang Lin était devenu une figure quasi ancestrale pour les disciples de la Secte de l'Origine. Ils étaient empreints de respect et d'une profonde crainte envers lui.
+Après avoir instantanément tué une bête de rang 8 et ordonné aux cultivateurs des trois sectes de rang 6 de déguerpir, Wang Lin était devenu une figure quasi ancestrale pour les disciples de la Secte Gui Yuan. Ils étaient empreints de respect et d'une profonde crainte envers lui.
 
 L'expression de Lu Yuncong était extrêmement disgracieuse alors qu'il fixait Wang Lin. Il se trouvait dans une impasse. Face à cet homme en blanc, il ne pouvait ni avancer, ni reculer. S'il avançait, il avait l'impression que le monde s'effondrerait; mais s'il reculait, son Dao s'écroulerait. C'était comme si son propre Dao n'était qu'un simple jeu d'enfant face à cet homme en blanc.
 
@@ -38,11 +38,11 @@ Le visage de Li Qianmei resta serein. Après une courte réflexion, elle dit: «
 
 Wang Lin fronça les sourcils et trancha calmement: « Je n'en ai pas besoin! »
 
-Li Qianmei sourit et ajouta avec douceur: « Qianmei peut résoudre votre différend avec la Secte du Dao Pourpre. »
+Li Qianmei sourit et ajouta avec douceur: « Qianmei peut résoudre votre différend avec la Secte Zi Dao. »
 
 « Je n'en ai pas besoin! »
 
-Visiblement contrariée, Li Qianmei regarda Wang Lin et expliqua doucement: « Dao Frère semble mal comprendre. Qianmei a simplement rencontré le Frère Lu et nous sommes arrivés ensemble par hasard. Je ne suis pas venue ici pour combattre Dao Frère. Qianmei ne se mêlera pas de votre affaire avec la Secte du Dao Pourpre. Je souhaite seulement poser trois questions qui me hantent depuis longtemps. Je n'ai aucune autre intention. » Li Qianmei, qui s'expliquait rarement ainsi, voyait bien que Wang Lin pensait qu'elle était venue avec Lu Yuncong.
+Visiblement contrariée, Li Qianmei regarda Wang Lin et expliqua doucement: « Dao Frère semble mal comprendre. Qianmei a simplement rencontré le Frère Lu et nous sommes arrivés ensemble par hasard. Je ne suis pas venue ici pour combattre Dao Frère. Qianmei ne se mêlera pas de votre affaire avec la Secte Zi Dao. Je souhaite seulement poser trois questions qui me hantent depuis longtemps. Je n'ai aucune autre intention. » Li Qianmei, qui s'expliquait rarement ainsi, voyait bien que Wang Lin pensait qu'elle était venue avec Lu Yuncong.
 
 Après l'avoir observée un instant, Wang Lin fronça les sourcils et demanda: « Quel genre de doutes? »
 

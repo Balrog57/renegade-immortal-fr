@@ -40,7 +40,7 @@ Si les dires de Zi Xia étaient exacts, celle qui s'était échappée était la 
 
 Il s'agissait de la première et de la septième!
 
-« Dans la faille de la Mer des Nuages, cette femme qui a conclu un accord avec moi est très probablement aussi une concubine impériale céleste. Je ne sais juste pas si elle est la première ou la septième! » Une pensée traversa l'esprit de Wang Lin.
+« Dans la faille de la Mer Yun, cette femme qui a conclu un accord avec moi est très probablement aussi une concubine impériale céleste. Je ne sais juste pas si elle est la première ou la septième! » Une pensée traversa l'esprit de Wang Lin.
 
 « La cinquième sœur que tu as scellée possède une grande valeur pour moi. Remets-la-moi. » Le ton de Zi Xia était empreint d'une autorité indiscutable. Il était évident qu'elle avait toujours joui d'un statut élevé, même sur le Continent Astral Immortel, et elle s'exprimait ainsi par pur réflexe.
 
@@ -72,7 +72,7 @@ Cependant, le rire et le rejet de Wang Lin ramenèrent brusquement Zi Xia à la 
 
 « L'ancien Seigneur du Royaume Scellé ne t'a-t-il rien dit sur sa mission, ni sur ses origines? »
 
-« Le Continent Astral Immortel, la Secte des Sept Dao. Bien sûr que je le sais! » Wang Lin fixa froidement Zi Xia. S'il n'avait pas tenu compte de l'aide qu'elle avait apportée au Royaume Intérieur, quels qu'aient été ses objectifs, il l'aurait déjà chassée sans même s'en soucier, cette femme égarée.
+« Le Continent Astral Immortel, la Secte Qi Dao. Bien sûr que je le sais! » Wang Lin fixa froidement Zi Xia. S'il n'avait pas tenu compte de l'aide qu'elle avait apportée au Royaume Intérieur, quels qu'aient été ses objectifs, il l'aurait déjà chassée sans même s'en soucier, cette femme égarée.
 
 À ces mots, le visage de Zi Xia se décomposa. Elle recula instinctivement de plus de cent pieds, le visage marqué par la stupeur.
 
@@ -82,17 +82,17 @@ La femme pâlit mortellement et recula de plusieurs pas, son expression changean
 
 « Puisque tu sais tout cela, pourquoi ne pas t'allier à moi? Nous pourrions faire équipe pour éveiller le Souverain Céleste. Une fois qu'il sera réveillé, il nous accordera une fortune inestimable... »
 
-« Le Souverain Céleste aux Sept Couleurs est considéré comme puissant même sur le Continent Astral Immortel. Une fois éveillé, je pourrai lui demander de faire de toi son disciple. Tu pourras alors quitter cette grotte, rejoindre la Secte des Sept Dao et obtenir l'identité d'un cultivateur du Continent Astral Immortel. Le Continent Astral Immortel est le véritable monde; il vaut bien plus de dix mille fois ce monde de caverne... »
+« Le Souverain Céleste aux Sept Couleurs est considéré comme puissant même sur le Continent Astral Immortel. Une fois éveillé, je pourrai lui demander de faire de toi son disciple. Tu pourras alors quitter cette grotte, rejoindre la Secte Qi Dao et obtenir l'identité d'un cultivateur du Continent Astral Immortel. Le Continent Astral Immortel est le véritable monde; il vaut bien plus de dix mille fois ce monde de caverne... »
 
 « Nous en tirerons tout le mérite. Le Souverain Céleste t'accordera une culture puissante pour que tu puisses prendre ta place sur le Continent Astral Immortel. Tu y acquerras même une certaine renommée. Là-bas est le véritable Royaume Céleste. Même ton niveau de culture augmentera considérablement... »
 
 Wang Lin resta impassible, regardant la femme en violet avec une indifférence totale. Ses paroles n'avaient eu aucun effet sur lui.
 
-« Le Souverain Céleste aux Sept Couleurs et sa partenaire Dao peuvent-ils se comparer aux Neuf Soleils du Continent Astral Immortel? L'un des piliers de puissance du Continent Astral Immortel... Quelle plaisanterie! Il n'est qu'un suzerain de sa propre région. Même votre Secte des Sept Dao n'est qu'une infime secte sur le Continent Astral Immortel. Je crains que vous n'ayez d'autres intentions en cherchant à l'éveiller. »
+« Le Souverain Céleste aux Sept Couleurs et sa partenaire Dao peuvent-ils se comparer aux Neuf Soleils du Continent Astral Immortel? L'un des piliers de puissance du Continent Astral Immortel... Quelle plaisanterie! Il n'est qu'un suzerain de sa propre région. Même votre Secte Qi Dao n'est qu'une infime secte sur le Continent Astral Immortel. Je crains que vous n'ayez d'autres intentions en cherchant à l'éveiller. »
 
 « Tu... Tu connais donc les Neuf Soleils?! » L'expression de Zi Xia se mua en une incrédulité totale. Ses yeux se plissèrent soudainement lorsqu'elle repensa à la manière dont Wang Lin avait manié l'Arc de Li Guang et au rugissement du Souverain.
 
-« Disparais. Si tu n'avais pas tant aidé le Royaume Intérieur, je t'aurais déjà tuée simplement pour ton appartenance à la Secte des Sept Dao! » Les yeux de Wang Lin s'illuminèrent d'une intention meurtrière qui frappa de plein fouet la femme en violet.
+« Disparais. Si tu n'avais pas tant aidé le Royaume Intérieur, je t'aurais déjà tuée simplement pour ton appartenance à la Secte Qi Dao! » Les yeux de Wang Lin s'illuminèrent d'une intention meurtrière qui frappa de plein fouet la femme en violet.
 
 Cette dernière, l'esprit ébranlé, fut saisie d'effroi et son visage se décomposa. Elle recula prestement et ne dit plus un mot, se transformant en un rayon de lumière violette qui s'évanouit rapidement.
 
@@ -108,7 +108,7 @@ Toutefois, en cas d'échec, poser la question serait inutile. Mourir aux côtés
 
 Wang Lin détourna le regard et se retourna. Il observa la Formation de Scellement du Royaume qui s'étiolait, ses yeux brillant d'une lueur déterminée. Il s'approcha de la structure semblable à une toile d'araignée, s'assit et ferma les yeux. Sa culture s'activa et il commença à absorber l'énergie du monde.
 
-Tandis qu'il cultivait, l'énergie originelle de la Mer des Nuages affluait de toutes parts. Elle circulait dans son corps, absorbée par son âme originelle et sa chair, aidant son corps d'Ancien Dieu à se régénérer.
+Tandis qu'il cultivait, l'énergie originelle de la Mer Yun affluait de toutes parts. Elle circulait dans son corps, absorbée par son âme originelle et sa chair, aidant son corps d'Ancien Dieu à se régénérer.
 
 Simultanément, la main droite de Wang Lin s'étendit pour extraire des sphères de lumière grâce à son Empreinte du Karma. Il les broya pour en inhaler la puissance essentielle par ses sept orifices. Cette essence pénétra ses six essences, permettant à ces dernières de redémarrer lentement.
 

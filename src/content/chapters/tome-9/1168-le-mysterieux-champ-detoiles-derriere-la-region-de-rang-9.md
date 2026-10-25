@@ -6,27 +6,27 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1168 - The Mysterious starfield Behind the Rank 9 Region
 slug: le-mystérieux-champ-detoiles-derriere-la-region-de-rang-9
 ---
-Le continent de Peng Lai était extrêmement célèbre dans la région de rang 5. La majeure partie de cette renommée provenait de la Secte du Jade Précieux!
+Le continent de Peng Lai était extrêmement célèbre dans la région de rang 5. La majeure partie de cette renommée provenait de la Secte Bao Yu!
 
-La Secte du Jade Précieux était la secte numéro un de la région de rang 5. Elle comptait de nombreux cultivateurs et, naturellement, une multitude de vieux monstres. Le continent sur lequel il se trouvait s'appelait Peng Lai, mais on l'appelait aussi le Royaume Céleste de Peng Lai.
+La Secte Bao Yu était la secte numéro un de la région de rang 5. Elle comptait de nombreux cultivateurs et, naturellement, une multitude de vieux monstres. Le continent sur lequel il se trouvait s'appelait Peng Lai, mais on l'appelait aussi le Royaume Céleste de Peng Lai.
 
 La taille de Peng Lai était bien plus vaste que celle de Mo Luo; elle était plusieurs dizaines de fois plus grande. Il était un peu inapproprié de l'appeler un continent, car il s'agissait en réalité de la moitié d'une planète de culture!
 
-Dans la Mer des Nuages, les planètes de culture étaient très rares. Seules les sectes les plus puissantes pouvaient en posséder.
+Dans la Mer Yun, les planètes de culture étaient très rares. Seules les sectes les plus puissantes pouvaient en posséder.
 
-Même la Secte du Jade Précieux n'était pas qualifiée pour occuper une planète de culture entière; il n'en avait obtenu que la moitié! S'il ne possédait qu'une fraction de cet astre, c'est parce qu'un ancêtre, il y a 20 000 ans, avait accompli de grands mérites et que la Secte Fantôme de rang 9 lui en avait fait don.
+Même la Secte Bao Yu n'était pas qualifiée pour occuper une planète de culture entière; il n'en avait obtenu que la moitié! S'il ne possédait qu'une fraction de cet astre, c'est parce qu'un ancêtre, il y a 20 000 ans, avait accompli de grands mérites et que la Secte Fantôme de rang 9 lui en avait fait don.
 
-Jusqu'à ce jour, aucun autre cultivateur de rang supérieur n'avait osé convoiter cette planète, permettant ainsi à la Secte du Jade Précieux de la conserver.
+Jusqu'à ce jour, aucun autre cultivateur de rang supérieur n'avait osé convoiter cette planète, permettant ainsi à la Secte Bao Yu de la conserver.
 
 À travers la brume stellaire, Peng Lai ressemblait à un croissant de lune. Des couches de barrières protectrices luisaient autour d'elle, repoussant la brume pour faire rayonner le continent.
 
-Outre le prestige de la Secte du Jade Précieux, la renommée de Peng Lai reposait également sur le marché et l'enchère qu'il organisait tous les 30 ans. À chaque édition, une foule immense de cultivateurs convergeait, incluant des figures célèbres venues des régions supérieures. L'événement était d'une effervescence extrême.
+Outre le prestige de la Secte Bao Yu, la renommée de Peng Lai reposait également sur le marché et l'enchère qu'il organisait tous les 30 ans. À chaque édition, une foule immense de cultivateurs convergeait, incluant des figures célèbres venues des régions supérieures. L'événement était d'une effervescence extrême.
 
 Le marché se déroulait sur trois mois, proposant une liste exhaustive de trésors, de pilules, de recettes de pilules et de bêtes spirituelles. Il offrait aux cultivateurs une immense variété de ressources, incluant l'échange de jade céleste et de cristaux d'origine, ainsi que le commerce de corps et de fours de culture.
 
 Il y avait même des paris consistant à faire combattre ses propres bêtes spirituelles. Bien sûr, les activités les plus fascinantes étaient le Chaos de Peng Lai et la vente aux enchères d'objets précieux.
 
-Le Chaos de Peng Lai était un lieu au sein de la Secte du Jade Précieux où les cultivateurs pouvaient librement parier lors de combats à mort. Le vainqueur s'emparait des trésors du perdant.
+Le Chaos de Peng Lai était un lieu au sein de la Secte Bao Yu où les cultivateurs pouvaient librement parier lors de combats à mort. Le vainqueur s'emparait des trésors du perdant.
 
 Le marché de Peng Lai était sur le point d'ouvrir, et de nombreux rayons de lumière convergeaient vers elle. En raison de l'affaire du jade et de la recette de pilule, de nombreux cultivateurs de la région de rang 6 étaient présents cette fois-ci. Des cultivateurs des régions de rang 7 ou 8 étaient également venus.
 
@@ -38,11 +38,11 @@ La femme à ses côtés était d'une beauté exquise, vêtue elle aussi de blanc
 
 Wang Lin, à ses côtés, regardait silencieusement devant lui. Normalement, il ne serait pas venu ici avec Li Qianmei et n'aurait eu aucun intérêt pour cette enchère. Cependant, après avoir écouté les paroles de la jeune femme, il avait réfléchi et s'était laissé tenter.
 
-La Mer des Nuages était saturée de brume stellaire; sans une carte stellaire précise, la navigation était presque impossible. Plus le rang de la région était élevé, plus ce constat était vrai. Pour passer de la région de rang 5 à la région de rang 8, il fallait accumuler bien plus de cartes.
+La Mer Yun était saturée de brume stellaire; sans une carte stellaire précise, la navigation était presque impossible. Plus le rang de la région était élevé, plus ce constat était vrai. Pour passer de la région de rang 5 à la région de rang 8, il fallait accumuler bien plus de cartes.
 
-Dans la Mer des Nuages, une carte stellaire complète était une rareté. La plupart étaient créées par des individus, obligeant les voyageurs à en collecter une multitude pour ensuite vérifier leur exactitude avant d'espérer obtenir une carte réellement exhaustive.
+Dans la Mer Yun, une carte stellaire complète était une rareté. La plupart étaient créées par des individus, obligeant les voyageurs à en collecter une multitude pour ensuite vérifier leur exactitude avant d'espérer obtenir une carte réellement exhaustive.
 
-S'il avait accepté de venir, c'était précisément pour acquérir une telle carte. Cependant, elles étaient extrêmement précieuses et peu de gens acceptaient de les échanger. Après tout, vu l'état de la Mer des Nuages, une carte stellaire constituait le secret le plus sacré d'une secte.
+S'il avait accepté de venir, c'était précisément pour acquérir une telle carte. Cependant, elles étaient extrêmement précieuses et peu de gens acceptaient de les échanger. Après tout, vu l'état de la Mer Yun, une carte stellaire constituait le secret le plus sacré d'une secte.
 
 C'était compréhensible. Très peu de sectes osaient prétendre posséder une carte couvrant ce vaste système étoilé noyé dans la brume. Après tout, il existait de nombreux lieux où aucun cultivateur n'avait encore mis les pieds.
 
@@ -56,9 +56,9 @@ Chaque secte préférait explorer par elle-même afin d'obtenir une carte sûre 
 
 Quant à Li Qianmei, elle avait utilisé une matrice de transfert unique reliant sa secte à chacune de ses sous-sectes. Ce n'est qu'après plusieurs transferts qu'elle était arrivée dans la région de rang 5.
 
-C'était une méthode courante pour les sectes de rang 8 et supérieur dans la Mer des Nuages. À l'instar de semer des graines dans les régions inférieures, elles soutenaient ou reconstruisaient diverses sous-sectes. Ces dernières servaient principalement de points de relais, permettant aux membres de la secte principale de se déplacer entre les différentes régions tout en contournant le problème du manque de cartes stellaires.
+C'était une méthode courante pour les sectes de rang 8 et supérieur dans la Mer Yun. À l'instar de semer des graines dans les régions inférieures, elles soutenaient ou reconstruisaient diverses sous-sectes. Ces dernières servaient principalement de points de relais, permettant aux membres de la secte principale de se déplacer entre les différentes régions tout en contournant le problème du manque de cartes stellaires.
 
-La Secte de l'Origine possédait un réseau de transfert similaire.
+La Secte Gui Yuan possédait un réseau de transfert similaire.
 
 Cependant, chaque activation de la matrice impliquait de traverser des champs d'étoiles et exigeait une quantité massive de jade céleste ou de cristaux d'origine. Ainsi, sans l'autorisation explicite de la secte principale, il était impossible de l'utiliser.
 
@@ -70,9 +70,9 @@ Alors que les deux volaient, le silence finit par s'installer entre eux.
 
 Wang Lin regarda Li Qianmei. Après une courte réflexion, il demanda d'une voix lente: « La région de rang 9 est très mystérieuse pour nous. Je me demande combien de sectes s'y trouvent? »
 
-Sa question n'avait rien d'inapproprié. Dans la Mer des Nuages, la brume stellaire créait des barrières entre les cultivateurs, empêchant la diffusion large des informations. La région de rang 9, située bien au-delà, demeurait une existence énigmatique.
+Sa question n'avait rien d'inapproprié. Dans la Mer Yun, la brume stellaire créait des barrières entre les cultivateurs, empêchant la diffusion large des informations. La région de rang 9, située bien au-delà, demeurait une existence énigmatique.
 
-Les archives de la Secte de l'Origine n'offraient qu'une description sommaire de la région de rang 9, mentionnant seulement l'existence d'une Secte Divine. Wang Lin n'avait découvert l'existence de la Secte Brise-Ciel qu'après avoir obtenu le jade et fouillé les souvenirs de la Vieille Poisonneuse. Après tout, une secte de rang 5 ne pouvait en savoir plus qu'une secte de rang 6.
+Les archives de la Secte Gui Yuan n'offraient qu'une description sommaire de la région de rang 9, mentionnant seulement l'existence d'une Secte Divine. Wang Lin n'avait découvert l'existence de la Secte Brise-Ciel qu'après avoir obtenu le jade et fouillé les souvenirs de la Vieille Poisonneuse. Après tout, une secte de rang 5 ne pouvait en savoir plus qu'une secte de rang 6.
 
 Li Qianmei entendit Wang Lin et, après un instant de réflexion, lui répondit.
 
@@ -86,15 +86,15 @@ Li Qianmei hocha la tête et répondit doucement: « Les bêtes féroces peuvent
 
 « Il existe des choses que vous et la grande majorité des cultivateurs ignorez. Même ma Secte Brise-Ciel n'a découvert certains de ces secrets qu'après avoir pénétré dans la région de rang 9. »
 
-Le visage de Li Qianmei devint grave. Après un silence, elle murmura: « Il y a fort longtemps, il n'y avait qu'une seule secte dans la région de rang 9 de la Mer des Nuages. C'était la Secte Divine!
+Le visage de Li Qianmei devint grave. Après un silence, elle murmura: « Il y a fort longtemps, il n'y avait qu'une seule secte dans la région de rang 9 de la Mer Yun. C'était la Secte Divine!
 
-« Après que la Secte Divine eut régné sur la Mer des Nuages pendant d'innombrables années, la première invasion de bêtes féroces éclata. À cette époque, trois bêtes féroces avaient pris forme humaine. On disait qu'elles provenaient d'un autre système stellaire...
+« Après que la Secte Divine eut régné sur la Mer Yun pendant d'innombrables années, la première invasion de bêtes féroces éclata. À cette époque, trois bêtes féroces avaient pris forme humaine. On disait qu'elles provenaient d'un autre système stellaire...
 
-« Sans la Secte Divine, cette éruption se serait propagée à l'ensemble de la Mer des Nuages. Finalement, elle fut contenue par la Secte Divine, et peu d'étrangers connaissent cet événement. Cette guerre aurait causé d'immenses pertes. Après avoir réprimé les bêtes féroces, la Secte Divine envoya un groupe de disciples pour stationner dans les profondeurs de la région de rang 9. Il existe là-bas une fissure spatiale qui relie ce monde à un système stellaire mystérieux. Des créatures extrêmement puissantes en sont sorties. Afin d'empêcher leur propagation, des batailles y ont fait rage pendant des dizaines de milliers d'années. Et encore aujourd'hui, le combat continue.
+« Sans la Secte Divine, cette éruption se serait propagée à l'ensemble de la Mer Yun. Finalement, elle fut contenue par la Secte Divine, et peu d'étrangers connaissent cet événement. Cette guerre aurait causé d'immenses pertes. Après avoir réprimé les bêtes féroces, la Secte Divine envoya un groupe de disciples pour stationner dans les profondeurs de la région de rang 9. Il existe là-bas une fissure spatiale qui relie ce monde à un système stellaire mystérieux. Des créatures extrêmement puissantes en sont sorties. Afin d'empêcher leur propagation, des batailles y ont fait rage pendant des dizaines de milliers d'années. Et encore aujourd'hui, le combat continue.
 
 « Une partie de la Secte Divine a renoncé à sa liberté pour rester dans les profondeurs de la région de rang 9, agissant comme ultime ligne de défense. Cependant, avec le temps, ces disciples sont devenus indépendants et ont commencé à se faire appeler la Secte Démon. Ils ont cessé de recevoir les ordres de la Secte Divine, tout en continuant à défendre cette position contre les vagues d'attaques des bêtes féroces. »
 
-La voix de Li Qianmei était mélodieuse, mais le contenu de ses paroles était terrifiant. Le regard de Wang Lin se fit sérieux. Il n'aurait jamais imaginé que le Système Stellaire de la Mer des Nuages cachait un secret aussi vertigineux.
+La voix de Li Qianmei était mélodieuse, mais le contenu de ses paroles était terrifiant. Le regard de Wang Lin se fit sérieux. Il n'aurait jamais imaginé que le Système Stellaire de la Mer Yun cachait un secret aussi vertigineux.
 
 « La Secte Divine s'en inquiétait. Elle craignait la Secte Démon et l'invasion des bêtes féroces. C'est pourquoi elle a d'abord favorisé l'ascension de la Secte Fantôme, experte en sorts de capture d'âmes, pour en faire une secte de rang 9. Ensuite, elle a élevé ma Secte Brise-Ciel au rang 9 également. Tout cela afin de se préparer à une seconde éruption qui pourrait survenir à tout moment! » Après avoir fini, elle regarda Wang Lin et ajouta doucement:
 

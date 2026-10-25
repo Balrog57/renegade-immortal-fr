@@ -74,13 +74,13 @@ Dans la partie nord du Vide Brillant, plusieurs milliers de rayons de lumière, 
 
 Il en fut de même partout dans le Vide Brillant. À mesure que les ondulations se propageaient, un nombre terrifiant de cultivateurs du Royaume Extérieur succombait!
 
-À la frontière entre le Vide Brillant et la Mer des Nuages, l'avatar de Xushen Tianzun reconstitua son corps. Son expression était sombre et ses yeux brillaient de peur alors qu'il regardait devant lui.
+À la frontière entre le Vide Brillant et la Mer Yun, l'avatar de Xushen Tianzun reconstitua son corps. Son expression était sombre et ses yeux brillaient de peur alors qu'il regardait devant lui.
 
 « Qui peut le tuer quand il possède cette flèche?! Damnation, sans elle, je ne serais au pire que blessé, et ce n'est pas impossible de l'abattre. C'est juste... c'est juste que... pourquoi doit-il avoir cet arc et cette flèche!?! »
 
 « Souverain, c'est vous qui lui avez offert cet arc autrefois. Vous avez commis une erreur monumentale! Avec un tel arc, qui dans le Royaume Intérieur ou Extérieur peut l'affronter?! »
 
-« Ce vieil homme ne participera plus à cette guerre. Si mon avatar survit, il retournera vers mon corps originel! » La peur de Xushen Tianzun avait atteint ses limites. Il s'enfuyait désormais vers la Mer des Nuages, voulant passer par l'ouverture de celle-ci. Il avait déjà décidé de ne plus jamais remettre les pieds dans le Royaume Intérieur!
+« Ce vieil homme ne participera plus à cette guerre. Si mon avatar survit, il retournera vers mon corps originel! » La peur de Xushen Tianzun avait atteint ses limites. Il s'enfuyait désormais vers la Mer Yun, voulant passer par l'ouverture de celle-ci. Il avait déjà décidé de ne plus jamais remettre les pieds dans le Royaume Intérieur!
 
 Pourtant, à cet instant précis, son expression changea radicalement et il se retourna. L'espace derrière lui se brisa et la flèche jaillit. Elle se déplaçait à une vitesse inimaginable, impossible à esquiver, et traversa son corps.
 
@@ -92,15 +92,15 @@ Il cracha une bouchée de sang et tituba en reculant de quelques pas. Il regarda
 
 Dans le Vide Brillant, aux abords de la planète Suzaku, Wang Lin ouvrit les yeux. L'arc disparut de sa main et la flèche retourna du vide pour se loger à nouveau dans la goutte de sang doré qu'il tenait dans sa main droite.
 
-Il pressa la goutte de sang contre son front et s'élança vers le vortex formé par l'effondrement de la Porte du Vide. Sa troisième étape était presque condensée : il ne lui manquait plus qu'un dernier fil.
+Il pressa la goutte de sang contre son front et s'élança vers le vortex formé par l'effondrement de la Porte Kong. Sa troisième étape était presque condensée : il ne lui manquait plus qu'un dernier fil.
 
-Non loin de là, Zhou Jin était le seul cultivateur du Royaume Extérieur à avoir survécu aux ondes. Son corps tremblait et il n'osait plus bouger. Il regarda Wang Lin entrer dans le vortex et absorber la puissance de la Porte du Vide avec une intensité folle.
+Non loin de là, Zhou Jin était le seul cultivateur du Royaume Extérieur à avoir survécu aux ondes. Son corps tremblait et il n'osait plus bouger. Il regarda Wang Lin entrer dans le vortex et absorber la puissance de la Porte Kong avec une intensité folle.
 
 « Si puissant... Il... Il est devenu si puissant! » L'esprit de Zhou Jin était vide, son visage livide.
 
 Et pas seulement lui; les milliers de cultivateurs du Royaume Intérieur étaient tous stupéfaits. Ce qu'ils venaient d'observer était tout simplement incroyable!
 
-« Le Seigneur du Royaume Scellé... C'est le Seigneur du Royaume Scellé, l'espoir de notre Royaume Intérieur! » Les yeux du Maître Nan Yunzi pétillaient d'excitation. En tant que cultivateur ayant pratiqué durant tant d'années, il n'aurait pas dû se laisser ébranler ainsi, mais que ce soit la Porte des Dix Mille Os du Vide ou le pouvoir de cette flèche, l'un ou l'autre suffisait à le bouleverser.
+« Le Seigneur du Royaume Scellé... C'est le Seigneur du Royaume Scellé, l'espoir de notre Royaume Intérieur! » Les yeux du Maître Nan Yunzi pétillaient d'excitation. En tant que cultivateur ayant pratiqué durant tant d'années, il n'aurait pas dû se laisser ébranler ainsi, mais que ce soit la Porte Wan Kong Gu ou le pouvoir de cette flèche, l'un ou l'autre suffisait à le bouleverser.
 
 Situ Nan éclata de rire en observant Wang Lin au cœur du vortex, les yeux brillants d'exaltation.
 

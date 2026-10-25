@@ -6,9 +6,9 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1927 - Empyrean Trial
 slug: lepreuve-celeste
 ---
-Sur le Continent de la Mer Montagneuse du Sud, il existait une mer intérieure nommée la Mer Montagneuse. Cette mer était vaste; parfois, on pouvait apercevoir d'innombrables oiseaux marins survolant l'azur du ciel. Le fracas des vagues résonnait tandis que des brises marines humides soufflaient vers le rivage.
+Sur le Continent Shan Hai du Sud, il existait une mer intérieure nommée la Mer Montagneuse. Cette mer était vaste; parfois, on pouvait apercevoir d'innombrables oiseaux marins survolant l'azur du ciel. Le fracas des vagues résonnait tandis que des brises marines humides soufflaient vers le rivage.
 
-La Mer Montagneuse occupait près de 70 % du Continent de la Mer Montagneuse, les 30 % restants étant constitués de terres entourant cette étendue marine.
+La Mer Montagneuse occupait près de 70 % du Continent Shan Hai, les 30 % restants étant constitués de terres entourant cette étendue marine.
 
 À cet instant précis, au nord de la Mer Montagneuse, Wang Lin se tenait au sommet d'une montagne, observant calmement l'océan qui s'étendait devant lui.
 
@@ -110,7 +110,7 @@ Seuls les Exaltés Empyréens qui avaient combattu Wang Lin le regardèrent appr
 
 « Cet homme est très étrange. Sa culture est ordinaire, mais sa puissance de combat est stupéfiante. Je ne pourrais pas l'affronter. Voyons jusqu'où il peut aller. »
 
-« Wang Lin... En quelques décennies, il est devenu une figure célèbre dans tout le Continent du Sud. On dit que le Grand Empyréen Dao Yi a tenté de le recruter, mais qu'il a décliné l'offre. » Une douzaine de paires d'yeux suivirent Wang Lin alors qu'il disparaissait à l'intérieur du palais.
+« Wang Lin... En quelques décennies, il est devenu une figure célèbre dans tout le Continent Nan. On dit que le Grand Empyréen Dao Yi a tenté de le recruter, mais qu'il a décliné l'offre. » Une douzaine de paires d'yeux suivirent Wang Lin alors qu'il disparaissait à l'intérieur du palais.
 
 Dès qu'il pénétra dans le premier palais, il eut l'impression que le monde entier avait changé. Il découvrit que l'intérieur même du palais était un système stellaire!
 

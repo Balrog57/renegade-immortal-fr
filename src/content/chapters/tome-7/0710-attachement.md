@@ -48,7 +48,7 @@ Sa seule hésitation concernait l'avenir de cet homme. Il fallait savoir que dan
 
 Dans le Système Stellaire de Luotian, si une famille n'était pas soutenue par un messager du Temple Céleste du Tonnerre, cela signifiait qu'elle était privée de sa protection. Les conséquences d'une telle situation étaient extrêmement graves.
 
-Le Temple Céleste du Tonnerre était une entité gigantesque qui enveloppait le Système Stellaire de Luotian. Sa méthode de contrôle était très primitive et différait grandement de la façon dont l'Alliance de Culture gérait le Système Stellaire de l'Alliance.
+Le Temple Céleste du Tonnerre était une entité gigantesque qui enveloppait le Système Stellaire de Luotian. Sa méthode de contrôle était très primitive et différait grandement de la façon dont l'Alliance Xiu Zhen gérait le Système Stellaire de l'Alliance.
 
 Dans le Système Stellaire de Luotian, le Temple Céleste du Tonnerre disposait d'un nombre fixe de messagers qui ne changeait jamais; il en maintenait toujours quatre-vingt-dix-neuf.
 

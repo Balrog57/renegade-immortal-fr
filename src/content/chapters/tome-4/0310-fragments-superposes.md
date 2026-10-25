@@ -94,7 +94,7 @@ Chi Hu reprit: « De plus, même la première couche n'est pas un lieu facilemen
 
 Hongdie ricana: « Comment le seigneur Xi Zu a-t-il fait pour le trouver à l'époque? »
 
-Les yeux de Chi Hu s'illuminèrent: « Compagne cultivatrice Hongdie, cela touche aux secrets de mon Clan des Démons Géants; je ne puis rien en dire. »
+Les yeux de Chi Hu s'illuminèrent: « Compagne cultivatrice Hongdie, cela touche aux secrets de mon Clan Ju Mo; je ne puis rien en dire. »
 
 Wang Lin regarda la montagne dragonique en restant silencieux.
 

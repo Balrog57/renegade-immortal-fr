@@ -84,13 +84,13 @@ Situ Nan observa l'homme. Bien qu'il paraisse joyeux, il devinait exactement ses
 
 Cependant, cela importait peu à Situ Nan.
 
-« Une racine spirituelle aquatique, c'est plutôt pas mal. Mon frère est un véritable bloc de bois et n'a probablement pas connu de femme en toutes ces années. Si ces deux filles sont douées, je les prendrai comme cadeau de bienvenue, quitte à devoir les voler. Racine spirituelle aquatique... pas mal, vraiment pas mal. » Situ Nan esquissa un sourire malicieux avant de pousser un soupir de dépit. Durant les mois passés sur la planète Tian Yun, il avait cherché Wang Lin sans succès. Il avait songé à se rendre à la Secte du Destin Céleste, mais une aura puissante scellait l'endroit; il lui serait difficile d'y pénétrer avec sa force actuelle.
+« Une racine spirituelle aquatique, c'est plutôt pas mal. Mon frère est un véritable bloc de bois et n'a probablement pas connu de femme en toutes ces années. Si ces deux filles sont douées, je les prendrai comme cadeau de bienvenue, quitte à devoir les voler. Racine spirituelle aquatique... pas mal, vraiment pas mal. » Situ Nan esquissa un sourire malicieux avant de pousser un soupir de dépit. Durant les mois passés sur la planète Tian Yun, il avait cherché Wang Lin sans succès. Il avait songé à se rendre à la Secte Tian Yun, mais une aura puissante scellait l'endroit; il lui serait difficile d'y pénétrer avec sa force actuelle.
 
 Ce phénomène avait surpris tous les cultivateurs de Tian Yun, qui n'en trouvaient aucune explication.
 
-Nul ne savait que Tian Yunzi avait donné cet ordre avant de se retirer en méditation: sceller la Secte du Destin Céleste et activer la formation de protection de la secte!
+Nul ne savait que Tian Yunzi avait donné cet ordre avant de se retirer en méditation: sceller la Secte Tian Yun et activer la formation de protection de la secte!
 
-Heureusement, il y avait trop de disciples dans la Secte du Destin Céleste pour que tout le monde fût bloqué. Certains étaient à l'extérieur, dont quelques cultivatrices emmenées au Palais Rose par Situ Nan pour « s'amuser ». En les interrogeant, il avait appris les rumeurs concernant les actes de Wang Lin dans la Terre des Esprits Démoniaques.
+Heureusement, il y avait trop de disciples dans la Secte Tian Yun pour que tout le monde fût bloqué. Certains étaient à l'extérieur, dont quelques cultivatrices emmenées au Palais Rose par Situ Nan pour « s'amuser ». En les interrogeant, il avait appris les rumeurs concernant les actes de Wang Lin dans la Terre Yao Ling.
 
 Ces rumeurs n'étaient pas un secret, et Situ Nan les avait déjà entendues sur Tian Yun. Après confirmation, il fut d'abord surpris, puis il rit: « C'est bien mon frère. S'il décide d'agir, ce sera pour accomplir quelque chose de grandiose! »
 
@@ -98,7 +98,7 @@ En creusant davantage, il apprit que Wang Lin était revenu sur la planète Tian
 
 Situ Nan réfléchit et en conclut que si Wang Lin osait revenir, c'est qu'il n'avait rien à craindre; sa sécurité n'était donc pas un problème. Il trouvait toutefois étrange que le garçon soit si intrépide.
 
-« Le niveau de culture de ce gamin a-t-il augmenté si rapidement? » Situ Nan chercha longtemps une explication, mais d'après les informations recueillies, le but du retour de Wang Lin devait être la Terre des Esprits Démoniaques!
+« Le niveau de culture de ce gamin a-t-il augmenté si rapidement? » Situ Nan chercha longtemps une explication, mais d'après les informations recueillies, le but du retour de Wang Lin devait être la Terre Yao Ling!
 
 Par conséquent, Wang Lin ne s'éloignerait pas et réapparaîtrait sous peu.
 

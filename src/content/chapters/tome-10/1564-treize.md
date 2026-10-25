@@ -10,7 +10,7 @@ Le regard du Maître Hong Shan devint de plus en plus limpide. Il prit une profo
 
 Il regarda Wang Lin et joignit les mains.
 
-« Merci, Seigneur du Royaume Scellé! » Il leva la tête et se tourna vers le Seigneur du Palais de la Punition Céleste. Ses yeux brillaient de sagesse.
+« Merci, Seigneur du Royaume Scellé! » Il leva la tête et se tourna vers le Seigneur du Palais Tian Fa. Ses yeux brillaient de sagesse.
 
 « Qin Jiuyan, même en brûlant ta culture, tu ne pourras pas t'échapper. Tu ne mourras pas; ce vieil homme te transformera en corps de sang et tu deviendras une aide précieuse pour mon Royaume Intérieur! » Après avoir parlé, le Maître Hong Shan se changea en une ombre rouge et chargea en avant.
 
@@ -24,11 +24,11 @@ L'expression de Wang Lin restait calme, et au moment où les trois autres attaqu
 
 « Immobile! »
 
-Cette bataille ne laissait place à aucun suspense. Le Royaume aux Sept Couleurs s'effondra, et le Seigneur du Palais de la Punition Céleste, Qin Jiuyan, fut capturé et emmené par le Maître Hong Shan.
+Cette bataille ne laissait place à aucun suspense. Le Royaume aux Sept Couleurs s'effondra, et le Seigneur du Palais Tian Fa, Qin Jiuyan, fut capturé et emmené par le Maître Hong Shan.
 
 Grâce à l'aide du Maître Hong Shan, l'âme ardente du Maître Long Pan commença à s'éteindre. Il repartit, blessé, avec son disciple, le Maître Zhong Xuan, pour attendre silencieusement la prochaine bataille contre le Royaume Extérieur.
 
-Le Maître Hong Shan invita Wang Lin sur la Plateforme de Guerre de la Mer des Nuages afin que, sous le nom de Seigneur du Royaume Scellé, il devienne l'âme de la guerre à venir, entraîne les cultivateurs du Royaume Intérieur et mène la contre-attaque finale.
+Le Maître Hong Shan invita Wang Lin sur la Plateforme de Guerre de la Mer Yun afin que, sous le nom de Seigneur du Royaume Scellé, il devienne l'âme de la guerre à venir, entraîne les cultivateurs du Royaume Intérieur et mène la contre-attaque finale.
 
 Wang Lin ne s'y rendit pas, car il avait obtenu trois Fruits du Dao. Le plus important pour lui était désormais de parachever ses trois essences avant que la force de rejet à l'intérieur de son corps n'explose. Il devait briser la porte du vide et accomplir son Dao!
 
@@ -40,13 +40,13 @@ Parmi les étoiles, il n'y avait que deux personnes dont Qing Shui se souciait e
 
 L'évasion du Maître Hong Shan apporta la joie au Royaume Intérieur. La reprise de la Rivière Invoquée redonna espoir aux cultivateurs restants!
 
-La mort de Tianzhao Shangshi, l'arrivée du Maître Long Pan et la capture du Seigneur du Palais de la Punition Céleste ravivèrent la confiance du Royaume Intérieur.
+La mort de Tianzhao Shangshi, l'arrivée du Maître Long Pan et la capture du Seigneur du Palais Tian Fa ravivèrent la confiance du Royaume Intérieur.
 
 Il n'y avait plus de Royaumes aux Sept Couleurs dans le Royaume Intérieur, et plus aucune faille. Surtout après des décennies de guerre, les cultivateurs restants étaient tous des guerriers aguerris. Ils devaient se battre car, en cas d'échec, la seule issue restante serait la mort.
 
 La nouvelle répandue par le Maître Hong Shan selon laquelle le Seigneur du Royaume Scellé était de retour eut l'impact le plus puissant! Cela poussa les cultivateurs du Royaume Intérieur à redresser la tête, et la flamme de la bataille dans leurs cœurs devint plus intense encore.
 
-Dans le Royaume du Vide Brillant, il existait un lieu près des jonctions avec la Mer des Nuages, la Rivière Invoquée et Luotian. Cet endroit s'était peu à peu transformé en une vaste zone commerciale.
+Dans le Royaume Kun Xu, il existait un lieu près des jonctions avec la Mer Yun, la Rivière Invoquée et Luotian. Cet endroit s'était peu à peu transformé en une vaste zone commerciale.
 
 De nombreuses planètes semblables étaient apparues aux confins des quatre grands systèmes stellaires. De nombreux cultivateurs des quatre systèmes s'y rassemblaient pour échanger les ressources dont ils avaient besoin.
 
@@ -96,7 +96,7 @@ Même les cultivateurs alentour cessèrent de parler pour la regarder respectueu
 
 L'homme d'âge moyen qui s'était exprimé précédemment se leva brusquement. Il joignit les mains devant la femme en violet et dit: « Je, Zhou Dongde, salue le compagnon de la planète Suzaku. Ce que j'ai dit plus tôt était faux, j'espère que vous ne m'en tiendrez pas rigueur. »
 
-Non seulement lui, mais le vieil homme et la foule des cultivateurs environnants joignirent également les mains pour la saluer. Les cultivateurs de la Mer des Nuages s'approchèrent d'elle et firent de même.
+Non seulement lui, mais le vieil homme et la foule des cultivateurs environnants joignirent également les mains pour la saluer. Les cultivateurs de la Mer Yun s'approchèrent d'elle et firent de même.
 
 Un tel événement n'était pas commun dans les quatre systèmes stellaires, mais cela était arrivé quelques fois. La renommée du Seigneur du Royaume Scellé n'était pas une gloire personnelle, mais le fruit d'événements fracassants survenus durant la guerre. Dans l'esprit des cultivateurs du Royaume Intérieur, il était l'âme même de leur monde!
 

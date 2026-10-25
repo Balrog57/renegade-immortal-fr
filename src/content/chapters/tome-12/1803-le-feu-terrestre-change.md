@@ -48,7 +48,7 @@ Le Sens Divin de Wang Lin s'étendit une nouvelle fois, et il fut stupéfait de 
 
 « Bien qu'il ne soit pas opportun d'aller plus loin, je peux extraire davantage de feu pour nourrir mon essence. » Wang Lin réfléchit, tandis que sa main droite frappait doucement la formation au sol.
 
-À cet instant, toute la Secte du Dragon Bleu trembla et le feu sous cette chaîne de montagnes sembla s'emballer. Il déferla comme un fou de toutes les directions pour s'engouffrer dans la grotte de Kang Ren.
+À cet instant, toute la Secte Cang Long trembla et le feu sous cette chaîne de montagnes sembla s'emballer. Il déferla comme un fou de toutes les directions pour s'engouffrer dans la grotte de Kang Ren.
 
 Ce changement soudain surprit Kang Ren qui allait et venait en traçant des sceaux, recula précipitamment en érigeant d'innombrables couches de protection autour de lui. Les neuf marionnettes placées derrière lui et les deux marionnettes de bois se précipitèrent devant lui pour le protéger du brasier qui venait d'éclater.
 
@@ -70,17 +70,17 @@ Tandis qu'ils s'éloignaient, l'entrée de la grotte de Kang Ren s'effondra, lib
 
 Tous les pavillons de la vallée disparurent dans un océan de flammes!
 
-Les montagnes environnantes tremblèrent sous la poussée du feu, comme si elles étaient sur le point d'entrer en éruption! Ce bouleversement soudain terrifia les disciples de la Secte du Dragon Bleu. Tous sortirent de leurs grottes et regardèrent vers le bas avec effroi.
+Les montagnes environnantes tremblèrent sous la poussée du feu, comme si elles étaient sur le point d'entrer en éruption! Ce bouleversement soudain terrifia les disciples de la Secte Cang Long. Tous sortirent de leurs grottes et regardèrent vers le bas avec effroi.
 
 « L'Ancêtre est absent. Pourquoi le feu terrestre a-t-il changé ainsi? » Le maître de Xu Yun affichait un visage sombre en contemplant l'embrasement. Il fixa la grotte où se trouvait Kang Ren.
 
-Simultanément, trois auras puissantes jaillirent de la Secte du Dragon Bleu. Elles se matérialisèrent sous la forme de trois individus aux côtés du maître de Xu Yun.
+Simultanément, trois auras puissantes jaillirent de la Secte Cang Long. Elles se matérialisèrent sous la forme de trois individus aux côtés du maître de Xu Yun.
 
 Parmi eux se trouvaient deux hommes et une femme. L'un des hommes et la femme étaient aux cheveux blancs, tandis que l'autre homme était d'âge moyen. Tous possédaient l'aura de cultivateurs du troisième pas.
 
 Leurs niveaux de culture étaient élevés. L'homme d'âge moyen se trouvait au stade avancé du Vide Spirituel. Dès son apparition, il poussa un rugissement vers le ciel.
 
-« Disciples de la Secte du Dragon Bleu, écoutez mes ordres! Le feu terrestre subit une mutation tous les 10 000 ans. Cette fois, c'est prématuré, mais ne paniquez pas! Vite, déployez la Formation de l'Eau Céleste! » Ses paroles résonnèrent comme le tonnerre, portées sur des dizaines de milliers de kilomètres.
+« Disciples de la Secte Cang Long, écoutez mes ordres! Le feu terrestre subit une mutation tous les 10 000 ans. Cette fois, c'est prématuré, mais ne paniquez pas! Vite, déployez la Formation de l'Eau Céleste! » Ses paroles résonnèrent comme le tonnerre, portées sur des dizaines de milliers de kilomètres.
 
 L'esprit de tous les disciples qui entendirent cet ordre trembla, et ils s'assirent immédiatement dans les airs. Leurs mains tracèrent des sceaux tandis que d'innombrables nuages émanaient de leurs corps. Des dizaines de milliers de disciples créèrent rapidement une vaste formation!
 
@@ -102,7 +102,7 @@ Ce regard fit trembler le cœur du jeune homme, qui manqua de perdre pied.
 
 Le vieil homme aux cheveux blancs observa la mer de flammes et désigna la grotte de Kang Ren: « Cet individu a ramené deux corps d'un lieu inconnu, et le changement du feu terrestre s'est produit alors qu'il raffinait ses marionnettes. »
 
-« Le Maître de la Secte et l'Ancêtre sont partis vers la Secte de la Grande Âme. J'ai déjà envoyé un jade de message, ils devraient être en route. Puisqu'il est possible que cela soit causé par les deux corps ramenés par Kang Ren, alors ce vieil homme va voir quel genre de corps peut provoquer une telle mutation du feu! » Une lueur d'intention meurtrière traversa les yeux de l'homme d'âge moyen. Ce changement imprévu avait pris la Secte du Dragon Bleu au dépourvu. Bien qu'il n'y eût pas eu de morts, de nombreux bâtiments avaient été détruits ainsi que de vastes réserves d'herbes célestes.
+« Le Maître de la Secte et l'Ancêtre sont partis vers la Secte Da Hun. J'ai déjà envoyé un jade de message, ils devraient être en route. Puisqu'il est possible que cela soit causé par les deux corps ramenés par Kang Ren, alors ce vieil homme va voir quel genre de corps peut provoquer une telle mutation du feu! » Une lueur d'intention meurtrière traversa les yeux de l'homme d'âge moyen. Ce changement imprévu avait pris la Secte Cang Long au dépourvu. Bien qu'il n'y eût pas eu de morts, de nombreux bâtiments avaient été détruits ainsi que de vastes réserves d'herbes célestes.
 
 Le prix à payer était bien trop lourd!
 
@@ -112,4 +112,4 @@ La porte de la grotte était depuis longtemps brisée, rien ne lui faisait obsta
 
 Cependant, il ne s'en inquiéta guère, porté par la fierté de sa propre puissance!
 
-Dès qu'il pénétra dans la grotte, l'homme vit un jeune homme vêtu de la robe dao de la Secte du Dragon Bleu. Le jeune homme semblait hébété et son corps tremblait violemment. Ses yeux étaient pétrifiés par une peur extrême alors qu'il fixait les profondeurs de la cavité, où s'élevait une colonne de feu.
+Dès qu'il pénétra dans la grotte, l'homme vit un jeune homme vêtu de la robe dao de la Secte Cang Long. Le jeune homme semblait hébété et son corps tremblait violemment. Ses yeux étaient pétrifiés par une peur extrême alors qu'il fixait les profondeurs de la cavité, où s'élevait une colonne de feu.

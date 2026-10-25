@@ -16,7 +16,7 @@ Il était le seul cultivateur au stade avancé de l'Ascendant sur la planète Su
 
 Le véritable souverain de la planète Suzaku!
 
-Zhu Quezi dit calmement: « Autrefois, mon pays de Suzaku avait conclu un accord avec votre Secte de l'Affinement de l'Âme. Si le pays de Suzaku est en danger, vous devez nous prêter le Étendard de l'Âme. Aujourd'hui, ce vieil homme est venu emprunter ce drapeau. Du Tian, apporte-le ici! »
+Zhu Quezi dit calmement: « Autrefois, mon pays de Suzaku avait conclu un accord avec votre Secte Lian Hun. Si le pays de Suzaku est en danger, vous devez nous prêter le Étendard de l'Âme. Aujourd'hui, ce vieil homme est venu emprunter ce drapeau. Du Tian, apporte-le ici! »
 
 « Foutaises! » Du Tian serra fermement le Étendard de l'Âme et, fixant Zhu Quezi du regard, il hurla: « Comment se fait-il que je n'aie jamais entendu parler de cet accord? Vieux voleur Zhuque, si tu veux le voler, viens donc le prendre; inutile de jouer la comédie avec cette mascarade répugnante. »
 
@@ -36,7 +36,7 @@ Du Tian eut un rire moqueur. « Emprunter? Combien de temps comptes-tu le garder
 
 L'expression de Zhu Quezi devint grave: « Prête-le au pays de Suzaku pour 10 000 ans. Une fois ces 10 000 ans passés, nous le rendrons naturellement. »
 
-« Vieux voleur Zhuque, ma Secte de l'Affinement de l'Âme a une devise: tant que l'étendard demeure, la secte subsiste. Si tu veux l'emprunter, tu n'as qu'à frapper! » Les yeux de Du Tian devinrent glacials; ses mains formèrent un sceau qu'il pointa ensuite vers Zhu Quezi.
+« Vieux voleur Zhuque, ma Secte Lian Hun a une devise: tant que l'étendard demeure, la secte subsiste. Si tu veux l'emprunter, tu n'as qu'à frapper! » Les yeux de Du Tian devinrent glacials; ses mains formèrent un sceau qu'il pointa ensuite vers Zhu Quezi.
 
 « Condensez! »
 
@@ -50,11 +50,11 @@ Il projeta la plume en avant; celle-ci se mit soudainement à brûler, dégagean
 
 La plume ardente trembla puis se désintégra subitement. Une vague de feu jaillit du centre de la plume et recouvrit instantanément les 50 kilomètres environnants.
 
-La puissance de cette flamme était inimaginable. Les trois montagnes de la Secte de l'Affinement de l'Âme furent transformées en un liquide noir et visqueux qui se volatilisa rapidement en gaz.
+La puissance de cette flamme était inimaginable. Les trois montagnes de la Secte Lian Hun furent transformées en un liquide noir et visqueux qui se volatilisa rapidement en gaz.
 
 Même la grotte où se trouvait Wang Lin disparut, emportant le jeune homme avec elle.
 
-La totalité de la Secte de l'Affinement de l'Âme fut rayée de la carte de la planète Suzaku. Les centaines de disciples, et même les trois anciens de la Formation de l'Âme cachés dans les trois anneaux dorés, ne purent échapper à cette calamité.
+La totalité de la Secte Lian Hun fut rayée de la carte de la planète Suzaku. Les centaines de disciples, et même les trois anciens de la Formation de l'Âme cachés dans les trois anneaux dorés, ne purent échapper à cette calamité.
 
 Les 35 fragments d'âmes primaires qui étaient sur le point de fusionner furent également encerclés par les flammes. Une vapeur noire s'échappait de leurs corps tandis qu'ils affichaient des expressions de douleur indicible.
 
@@ -124,4 +124,4 @@ Le visage de Zhu Quezi changea radicalement et il recula précipitamment.
 
 Ce n'était pas qu'il était impuissant, mais l'âme formée par l'étendard était imprégnée de mort et attaquait sans aucun souci pour sa propre intégrité. Bien qu'il fût certain de pouvoir l'emporter, il serait inévitablement blessé. En temps normal, cela n'aurait eu que peu d'importance, mais son espérance de vie était déjà bien entamée. Une blessure ici réduirait encore davantage ses jours restants.
 
-Un autre enjeu de taille pesait sur lui: la seconde grande formation du Clan des Immortels Délaissés avait déjà été déployée. S'il était blessé ici, ce serait une catastrophe irréparable.
+Un autre enjeu de taille pesait sur lui: la seconde grande formation du Clan Xian Yi avait déjà été déployée. S'il était blessé ici, ce serait une catastrophe irréparable.

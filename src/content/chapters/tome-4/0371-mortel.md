@@ -22,9 +22,9 @@ Cette affaire provoqua une véritable tempête. Le vieil homme qui portait le ti
 
 Trois jours auparavant, des ondes contenant de l'énergie spirituelle céleste étaient venues de cette direction. Cela signifiait que deux cultivateurs du stade de la Transformation de l'Âme utilisaient l'énergie spirituelle céleste pour mener un combat.
 
-En outre, il avait également ressenti la puissance de la lignée du Clan des Démons Géants.
+En outre, il avait également ressenti la puissance de la lignée du Clan Ju Mo.
 
-Bien que la culture sur Suzaku fût puissante, il n'était pas un dieu capable de lire l'avenir. Suzaku était vaste et complexe; ainsi, après de longues recherches, il découvrit que l'affaire concernant Ceng Niu avait été déclenchée par Xue Yu et que le Clan des Démons Géants y avait pris part.
+Bien que la culture sur Suzaku fût puissante, il n'était pas un dieu capable de lire l'avenir. Suzaku était vaste et complexe; ainsi, après de longues recherches, il découvrit que l'affaire concernant Ceng Niu avait été déclenchée par Xue Yu et que le Clan Ju Mo y avait pris part.
 
 Toutefois, il ne parvint pas à identifier l'autre cultivateur du stade de la Transformation de l'Âme.
 
@@ -104,7 +104,7 @@ La petite bouda. Elle s'apprêtait à répliquer quand le jeune homme saisit son
 
 Nul dans le monde de la culture ne savait où il se trouvait. C'était Wang Lin.
 
-Celui qui avait autrefois brillé était désormais réduit à cet état. Tout cela était dû à Xue Yu et au Clan des Démons Géants.
+Celui qui avait autrefois brillé était désormais réduit à cet état. Tout cela était dû à Xue Yu et au Clan Ju Mo.
 
 La main droite de Wang Lin trembla lorsqu'il reposa son bol sur le rocher. Il laissa échapper un sourire amer. Un mois auparavant, son âme originelle s'était effondrée.
 

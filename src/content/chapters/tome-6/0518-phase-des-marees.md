@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 518 - Tide Phase
 slug: phase-des-marees
 ---
-La phase des marées de la Mer des Esprits Démoniaques de l'Est avait commencé. À mesure que les eaux s'agitaient avec plus de célérité, les grondements s'intensifièrent. Finalement, ces rumeurs sourdes se lièrent pour sembler s'étendre des cieux jusqu'aux profondeurs du vide. Bientôt, toute la zone fut saturée par un fracas assourdissant.
+La phase des marées de la Mer Yao Ling avait commencé. À mesure que les eaux s'agitaient avec plus de célérité, les grondements s'intensifièrent. Finalement, ces rumeurs sourdes se lièrent pour sembler s'étendre des cieux jusqu'aux profondeurs du vide. Bientôt, toute la zone fut saturée par un fracas assourdissant.
 
 L’immense étendue de débris flottants bouillonnait telle de la lave. Chaque élément semblait s'agiter comme un fantôme antique tentant de s'échapper de sa prison.
 
@@ -26,7 +26,7 @@ Cette rotation était terrifiante, comme si le système stellaire entier était 
 
 Le regard de Wang Lin demeurait calme et son cœur dao était inébranlable; il ne serait donc pas emporté par ce tourbillon, et son corps ne bougea pas d'un pouce.
 
-Alors que la Mer de l'Est tournait, le rugissement devint plus perçant encore, supplantant les grondements initiaux. Enfin, une brume verte commença à émaner de tous les objets contenus dans la Mer des Esprits Démoniaques de l'Est.
+Alors que la Mer Dong tournait, le rugissement devint plus perçant encore, supplantant les grondements initiaux. Enfin, une brume verte commença à émaner de tous les objets contenus dans la Mer Yao Ling.
 
 Dès son apparition, ce gaz se propagea avec rapidité. En un clin d'œil, les confins de la mer furent enveloppés par cette aura verdâtre.
 
@@ -40,7 +40,7 @@ Les yeux du Saint de l'Épée Ling Tianhou brillèrent d'une lueur mystérieuse 
 
 « Je me demande ce qui sera attiré ici cette fois... » Un éclat de lumière aux sept couleurs traversa les yeux sereins de Tian Yunzi.
 
-À cet instant, tous les cultivateurs ayant déjà eu le privilège de voir la Mer des Esprits Démoniaques de l'Est s'ouvrir fixèrent intensément l'orifice de la source.
+À cet instant, tous les cultivateurs ayant déjà eu le privilège de voir la Mer Yao Ling s'ouvrir fixèrent intensément l'orifice de la source.
 
 Cette colonne verte ressemblait à un pilier soutenant l'espace lui-même. Elle continuait de s'élever, s'étirant jusqu'à la limite de la portée du Sens Divin.
 
@@ -58,9 +58,9 @@ La colonne verte gigantesque s'effondra soudainement, laissant jaillir des rayon
 
 À mesure que la colonne verte se désintégrait, de plus en plus de rayons rouges étaient libérés, se répandant à une vitesse inimaginable.
 
-Sous un autre angle, on aurait dit que la Mer des Esprits Démoniaques de l'Est, l'une des trois zones interdites de la planète Tian Yun, était baignée d'une lumière mêlant le vert et le rouge.
+Sous un autre angle, on aurait dit que la Mer Yao Ling, l'une des trois zones interdites de la planète Tian Yun, était baignée d'une lumière mêlant le vert et le rouge.
 
-La lueur verte disparaissait lentement, supplantée par le rouge. Ce n'était pas un rouge sang, mais plutôt la teinte éclatante d'un soleil ardent. Cette lumière se propageait depuis la Mer des Esprits Démoniaques de l'Est comme les rayons du soleil, s'étendant sans fin dans toutes les directions.
+La lueur verte disparaissait lentement, supplantée par le rouge. Ce n'était pas un rouge sang, mais plutôt la teinte éclatante d'un soleil ardent. Cette lumière se propageait depuis la Mer Yao Ling comme les rayons du soleil, s'étendant sans fin dans toutes les directions.
 
 Quant à la distance exacte parcourue par cette lumière rouge, seuls quelques individus privilégiés pouvaient l'estimer.
 
@@ -68,7 +68,7 @@ Certaines planètes sauvages, pourtant éloignées de la planète Tian Yun, fure
 
 Plus loin encore, d'autres planètes furent enveloppées par cette clarté.
 
-Il était impossible de calculer avec précision jusqu'où cette lumière, qui ne surgissait de la Mer des Esprits Démoniaques de l'Est qu'une fois tous les 5 000 ans, s'étendrait à chaque occurrence.
+Il était impossible de calculer avec précision jusqu'où cette lumière, qui ne surgissait de la Mer Yao Ling qu'une fois tous les 5 000 ans, s'étendrait à chaque occurrence.
 
 Soudain, la lumière rouge cessa sa progression, comme si elle avait atteint une limite. Cependant, un phénomène prodigieux se produisait partout où ses rayons avaient touché:
 

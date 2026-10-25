@@ -1,6 +1,6 @@
 ---
 n: 532
-title: "La Nouvelle Secte de l'Affinement de l'Âme"
+title: "La Nouvelle Secte Lian Hun"
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 532 - The New Soul Refining Secte
@@ -98,15 +98,15 @@ Les yeux des villageois s'empourprèrent, révélant des traces de folie. L'un d
 
 Ouyang Hua hocha la tête avec détermination.
 
-Wang Lin, quant à lui, était assis en position du lotus dans les profondeurs de la vallée. S'il avait décidé de rester ici, c'était parce qu'il avait d'autres projets. Pour s'implanter durablement dans la Terre des Esprits Démoniaques, il lui fallait une base, de la puissance et des exploits militaires!
+Wang Lin, quant à lui, était assis en position du lotus dans les profondeurs de la vallée. S'il avait décidé de rester ici, c'était parce qu'il avait d'autres projets. Pour s'implanter durablement dans la Terre Yao Ling, il lui fallait une base, de la puissance et des exploits militaires!
 
-Il devait se rendre à la Cité de l'Ancien Démon, mais avant cela, des préparatifs s'imposaient.
+Il devait se rendre à la Cité Gu Yao, mais avant cela, des préparatifs s'imposaient.
 
-Créer sa propre assise au sein de la Cité de l'Ancien Démon serait ardu. De plus, selon les souvenirs de Lou Yun, le manoir du général de l'aile gauche abritait de nombreux experts. Ces gens étaient les habitants originels des lieux. Leur culture et leurs sorts étaient intrinsèquement liés à l'énergie spirituelle démoniaque.
+Créer sa propre assise au sein de la Cité Gu Yao serait ardu. De plus, selon les souvenirs de Lou Yun, le manoir du général de l'aile gauche abritait de nombreux experts. Ces gens étaient les habitants originels des lieux. Leur culture et leurs sorts étaient intrinsèquement liés à l'énergie spirituelle démoniaque.
 
 Bien que Wang Lin n'eût jamais rencontré de cultivateur utilisant cette énergie, Lou Yun, lui, en avait côtoyé, et l'ancêtre de celui-ci avait interagi avec ce genre d'individus durant une longue période.
 
-S'il n'avait pas eu accès aux souvenirs de Lou Yun, Wang Lin serait allé à la Cité de l'Ancien Démon sans hésiter, mais il avait désormais changé d'avis.
+S'il n'avait pas eu accès aux souvenirs de Lou Yun, Wang Lin serait allé à la Cité Gu Yao sans hésiter, mais il avait désormais changé d'avis.
 
 « Plutôt que de rejoindre le manoir du général de l'aile gauche, je préfère rester ici et instruire les habitants afin qu'ils obéissent à mes ordres. Je leur enseignerai des sorts pour que, d'ici de nombreuses années, je dispose d'une force qui ne réponde qu'à moi. »
 
@@ -120,11 +120,11 @@ Une expression pensive traversa le visage de Wang Lin, avant de se muer en une r
 
 Tout en réfléchissant, Wang Lin prit une profonde inspiration et toucha son sac de rangement. Deux morceaux de jade apparurent dans sa main. Il déploya son Sens Divin et y inscrivit des incantations.
 
-La Secte de l'Affinement de l'Âme possédait trois sorts: l'affinement de l'âme, l'extraction de l'âme et le scellement de l'âme!
+La Secte Lian Hun possédait trois sorts: l'affinement de l'âme, l'extraction de l'âme et le scellement de l'âme!
 
 Le scellement de l'âme était une technique réservée aux véritables disciples de la secte. En réalité, ce sort avait été conçu pour l'étendard d'un milliard d'âmes; c'était la clé pour le contrôler.
 
-Quant à l'affinement et à l'extraction des âmes, ils constituaient les fondements mêmes de la Secte de l'Affinement de l'Âme.
+Quant à l'affinement et à l'extraction des âmes, ils constituaient les fondements mêmes de la Secte Lian Hun.
 
 Outre l'apprentissage de ces deux sorts, la création de leurs propres étendards était une étape cruciale pour devenir un véritable disciple. Ce n'est qu'après avoir affiné un étendard que l'on pouvait être considéré comme membre de la secte.
 

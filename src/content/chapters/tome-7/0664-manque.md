@@ -10,15 +10,15 @@ L'homme d'âge mûr déclara respectueusement: « C'était une épée volante. C
 
 Il n'osait faire preuve d'aucun manque de respect envers le vieil homme. Bien que ce dernier ne fût qu'au stade initial de la Formation de l'Âme, il occupait un rang très élevé au sein du pavillon. L'homme d'âge mûr savait vaguement que ce vieil homme avait autrefois atteint le stade intermédiaire de la Transformation de l'Âme, mais qu'en raison de ses blessures, sa culture était retombée au stade de la Formation de l'Âme.
 
-Le vieil homme regarda la silhouette de Wang Lin disparaître progressivement. Une pointe de doute passa dans son regard, mais il secoua bientôt la tête et retourna à l'intérieur du Pavillon du Trésor Intégral.
+Le vieil homme regarda la silhouette de Wang Lin disparaître progressivement. Une pointe de doute passa dans son regard, mais il secoua bientôt la tête et retourna à l'intérieur du Pavillon Bao He.
 
 « Cette silhouette me semble quelque peu familière... » Le vieil homme paraissait extrêmement épuisé. Après être rentré dans le bâtiment, il s'assit sur un fauteuil berçant dans un coin. Il se toucha amèrement la poitrine avant de laisser échapper un soupir et de fixer silencieusement le sol.
 
-Wang Lin quitta le Pavillon du Trésor Intégral et se dirigea vers l'élégant Pavillon du Bambou Vert. Bien que ce pavillon ne fût pas grand, il dégageait une certaine distinction. En entrant, Wang Lin observa les étagères en bois qui bordaient les murs. Une petite boîte reposait sur chaque étagère, et l'intérieur de chacune était tapissé de soie jaune. Toutes sortes de trésors magiques, de pilules et autres objets y étaient entreposés.
+Wang Lin quitta le Pavillon Bao He et se dirigea vers l'élégant Pavillon Qing Zhu. Bien que ce pavillon ne fût pas grand, il dégageait une certaine distinction. En entrant, Wang Lin observa les étagères en bois qui bordaient les murs. Une petite boîte reposait sur chaque étagère, et l'intérieur de chacune était tapissé de soie jaune. Toutes sortes de trésors magiques, de pilules et autres objets y étaient entreposés.
 
 Un jeune érudit était assis à l'intérieur du pavillon. Il tenait un livre ancien et semblait le lire avec grand intérêt. Lorsque le jeune homme remarqua l'entrée de Wang Lin, il posa son ouvrage, se leva et sourit. « Bien que notre boutique ne soit pas vaste, nous possédons une collection assez riche. Je me demande ce que cherche l'ami. »
 
-La culture de cette personne n'était qu'au stade initial de la Formation de l'Âme. Lorsqu'il vit Wang Lin, il ne fit preuve d'aucune arrogance, contrairement à la personne du Pavillon du Trésor Intégral; au contraire, son accueil fut empreint de simplicité et d'enthousiasme.
+La culture de cette personne n'était qu'au stade initial de la Formation de l'Âme. Lorsqu'il vit Wang Lin, il ne fit preuve d'aucune arrogance, contrairement à la personne du Pavillon Bao He; au contraire, son accueil fut empreint de simplicité et d'enthousiasme.
 
 Wang Lin esquissa un léger sourire. Il frappa son sac de rangement, et l'épée volante en sortit. Il demanda: « Cher compagnon de culture accepterait-il cette épée? »
 
@@ -70,7 +70,7 @@ Compte tenu de sa culture, Wang Lin ne se souciait naturellement pas d'un cultiv
 
 À l'inverse, le jeune homme n'était guère plus calme. Après un moment, son regard retomba sur Wang Lin et une pointe de choc apparut dans ses yeux. À ses yeux, bien que ce cultivateur ne fût qu'au stade avancé de la Formation du Noyau, il eut l'impression, pendant un instant, de contempler le patriarche ou les aînés de sa propre lignée.
 
-L'expression décontractée et sereine de Wang Lin n'était pas celle qu'un cultivateur au stade avancé de la Formation du Noyau devrait afficher, pourtant cet homme était bel et bien à ce niveau. Il songea que Wang Lin pouvait dissimuler sa culture, mais le Pavillon du Bambou Vert était protégé par des formations posées par les aînés de la famille. À moins d'avoir atteint le stade de l'Ascendant, il serait impossible de se cacher.
+L'expression décontractée et sereine de Wang Lin n'était pas celle qu'un cultivateur au stade avancé de la Formation du Noyau devrait afficher, pourtant cet homme était bel et bien à ce niveau. Il songea que Wang Lin pouvait dissimuler sa culture, mais le Pavillon Qing Zhu était protégé par des formations posées par les aînés de la famille. À moins d'avoir atteint le stade de l'Ascendant, il serait impossible de se cacher.
 
 Peu de temps après, une brise légère souffla de l'extérieur. Une fois la brise dissipée, un vieil homme vêtu d'une robe verte entra dans le pavillon. La première chose que ses yeux cherchèrent fut l'épée volante entre les mains du jeune homme. En la voyant, un éclair de lumière traversa son regard.
 
@@ -106,7 +106,7 @@ Le jeune homme fut totalement stupéfait par ce spectacle. Il avait vu que, sous
 
 « Trois mille jades célestes! » Wang Lin ne répondit pas directement, mais en déclara le prix.
 
-Les yeux du vieil homme se rétrécirent tandis qu'il examinait attentivement Wang Lin. Sans un mot, il frappa son sac de rangement et une pile de jades célestes apparut immédiatement au sol. Une dense énergie spirituelle céleste envahit instantanément tout le Pavillon du Bambou Vert.
+Les yeux du vieil homme se rétrécirent tandis qu'il examinait attentivement Wang Lin. Sans un mot, il frappa son sac de rangement et une pile de jades célestes apparut immédiatement au sol. Une dense énergie spirituelle céleste envahit instantanément tout le Pavillon Qing Zhu.
 
 Wang Lin agita ses manches et rangea les jades célestes dans son sac.
 

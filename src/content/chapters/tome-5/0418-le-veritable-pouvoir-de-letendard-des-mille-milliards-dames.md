@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 418 - The true power of the 1 billion soul soul flag
 slug: le-véritable-pouvoir-de-letendard-des-mille-milliards-dames
 ---
-Dès son apparition, il s'enfonça au cœur du Clan des Immortels Délaissés et tua plusieurs de ses membres puissants et livra combat au jeune maître de ce dernier. Tout cela secoua instantanément la planète entière.
+Dès son apparition, il s'enfonça au cœur du Clan Xian Yi et tua plusieurs de ses membres puissants et livra combat au jeune maître de ce dernier. Tout cela secoua instantanément la planète entière.
 
 Leur affrontement était un duel prédestiné entre les futurs chefs de chaque camp.
 
@@ -16,15 +16,15 @@ De plus, il possédait une autre identité qui captiva l'attention générale.
 
 Cet homme était le descendant du précédent Suzaku.
 
-Qian Feng fut tel une lune éclatante lors de la bataille contre le Clan des Immortels Délaissés. Finalement, au nom du Suzaku, il conclut un accord avec le jeune maître du clan ennemi: le pays de Suzaku céda tous les pays de culture de rang 3 afin que le Clan des Immortels Délaissés suspende son offensive.
+Qian Feng fut tel une lune éclatante lors de la bataille contre le Clan Xian Yi. Finalement, au nom du Suzaku, il conclut un accord avec le jeune maître du clan ennemi: le pays de Suzaku céda tous les pays de culture de rang 3 afin que le Clan Xian Yi suspende son offensive.
 
-Les yeux de Du Tian s'illuminèrent alors qu'il fixait l'immense nuage noir approchant au loin, et il déclara d'une voix grave: « Le Clan des Immortels Délaissés a lancé sa seconde attaque. Ceng Niu, je sens qu'un chaman aussi puissant qu'un cultivateur de la Transformation de l'Âme au stade intermédiaire se cache dans ce nuage noir. Quant à savoir s'il y a un Ascendant, je l'ignore. Sors l'étendard et chargeons! »
+Les yeux de Du Tian s'illuminèrent alors qu'il fixait l'immense nuage noir approchant au loin, et il déclara d'une voix grave: « Le Clan Xian Yi a lancé sa seconde attaque. Ceng Niu, je sens qu'un chaman aussi puissant qu'un cultivateur de la Transformation de l'Âme au stade intermédiaire se cache dans ce nuage noir. Quant à savoir s'il y a un Ascendant, je l'ignore. Sors l'étendard et chargeons! »
 
 L'expression de Wang Lin resta sereine tandis qu'il observait le nuage sombre. Il tendit la main, faisant apparaître le drapeau d'âmes d'un milliard. Dès qu'il s'en saisit, une brume noire en jaillit pour l'envelopper.
 
 Du Tian sortit également le drapeau d'âmes d'un milliard. D'un revers de manche, il s'enveloppa lui aussi de brume noire et chargea vers le nuage noir aux côtés de Wang Lin. Dans leur course, les sifflements de l'air et les lamentations déchirantes des fragments d'âmes les entouraient.
 
-Des rugissements soudains jaillirent du nuage noir alors qu'une multitude de membres du Clan des Immortels Délaissés surgissaient pour les intercepter. À cet instant précis, Du Tian et Wang Lin s'engouffrèrent directement au cœur de la masse obscure.
+Des rugissements soudains jaillirent du nuage noir alors qu'une multitude de membres du Clan Xian Yi surgissaient pour les intercepter. À cet instant précis, Du Tian et Wang Lin s'engouffrèrent directement au cœur de la masse obscure.
 
 Alors que les membres du clan s'apprêtaient à attaquer, un cri retentit de l'intérieur du nuage; les combattants s'arrêtèrent net pour ouvrir un passage.
 
@@ -34,9 +34,9 @@ Wang Lin reconnut immédiatement ce vieillard: c'était l'homme qui l'avait pour
 
 Leur vendetta était profonde; si cet homme reconnaissait Wang Lin, il ne lâcherait pas sa proie avant de mourir. Cependant, Wang Lin portait son chapeau de paille et était enveloppé par l'étendard des âmes, ce qui le rendit méconnaissable.
 
-« Secte de l'Affinement de l'Âme! » murmura l'homme d'âge moyen, les yeux brillants. Il fit un pas en avant pour barrer la route à Du Tian et Wang Lin.
+« Secte Lian Hun! » murmura l'homme d'âge moyen, les yeux brillants. Il fit un pas en avant pour barrer la route à Du Tian et Wang Lin.
 
-« Vous deux, membres de la Secte de l'Affinement de l'Âme, restez là! » L'homme sourit et agita la main.
+« Vous deux, membres de la Secte Lian Hun, restez là! » L'homme sourit et agita la main.
 
 Boum!
 
@@ -50,9 +50,9 @@ Aussitôt, le brouillard d'âmes entourant Du Tian libéra d'innombrables fragme
 
 Du Tian hurla: « Chargez! »
 
-Les fragments d'âmes devinrent soudainement frénétiques, s'élançant dans toutes les directions. Les treize fragments de la Transformation de l'Âme étaient particulièrement redoutables: tous les membres du Clan des Immortels Délaissés dont la puissance était inférieure au stade de la Transformation de l'Âme périrent d'un seul contact avec eux.
+Les fragments d'âmes devinrent soudainement frénétiques, s'élançant dans toutes les directions. Les treize fragments de la Transformation de l'Âme étaient particulièrement redoutables: tous les membres du Clan Xian Yi dont la puissance était inférieure au stade de la Transformation de l'Âme périrent d'un seul contact avec eux.
 
-L'homme d'âge moyen fronça les sourcils. Il n'avait atteint le stade des neuf feuilles qu'après près de mille ans, ce qui l'équivalait à un cultivateur Ascendant du stade précoce. Cependant, il n'avait jamais vu la puissance terrifiante du drapeau d'âmes d'un milliard; il n'en avait lu que des récits dans les chroniques de guerres vieilles de dizaines de milliers d'années, sachant qu'il s'agissait de l'une des armes les plus craintes par le Clan des Immortels Délaissés.
+L'homme d'âge moyen fronça les sourcils. Il n'avait atteint le stade des neuf feuilles qu'après près de mille ans, ce qui l'équivalait à un cultivateur Ascendant du stade précoce. Cependant, il n'avait jamais vu la puissance terrifiante du drapeau d'âmes d'un milliard; il n'en avait lu que des récits dans les chroniques de guerres vieilles de dizaines de milliers d'années, sachant qu'il s'agissait de l'une des armes les plus craintes par le Clan Xian Yi.
 
 En la voyant de ses propres yeux, son visage s'assombrit. Il agita la main: le nuage noir se dispersa aussitôt, et les membres du clan reculèrent, laissant une zone vide autour d'eux.
 
@@ -64,7 +64,7 @@ Le vieillard voûté acquiesça et guida ses partisans pour reformer le nuage no
 
 Du Tian s'éloigna puis marqua un arrêt soudain. « Le chaman à neuf feuilles nous suit. Ceng Niu, observe attentivement pour comprendre pourquoi les Ascendants craignent le drapeau d'âmes d'un milliard. »
 
-Tandis qu'il parlait, Du Tian se retourna pour faire face au membre du Clan des Immortels Délaissés. Un arc-en-ciel traversa le ciel et atterrit devant lui: c'était l'homme d'âge moyen.
+Tandis qu'il parlait, Du Tian se retourna pour faire face au membre du Clan Xian Yi. Un arc-en-ciel traversa le ciel et atterrit devant lui: c'était l'homme d'âge moyen.
 
 Du Tian ne perdit pas de temps en paroles. Sa main traça un sceau et il cracha un jet de sang. « Cinq cents millions d'âmes et treize âmes primaires, apparaissez! »
 
@@ -116,7 +116,7 @@ Cinq cents millions de fragments et treize âmes primaires avaient été affiné
 
 « Un Ascendant... » L'homme d'âge moyen prit une inspiration saccadée.
 
-Toutes les âmes primaires du drapeau d'âmes d'un milliard étaient des ancêtres de la Transformation de l'Âme de la Secte de l'Affinement de l'Âme. Leur seul regret était de n'avoir pu atteindre le stade Ascendant; ce désir, resté inassouvi de leur vivant, s'était intensifié dans la mort.
+Toutes les âmes primaires du drapeau d'âmes d'un milliard étaient des ancêtres de la Transformation de l'Âme de la Secte Lian Hun. Leur seul regret était de n'avoir pu atteindre le stade Ascendant; ce désir, resté inassouvi de leur vivant, s'était intensifié dans la mort.
 
 Ce n'était pas un véritable Ascendant, mais l'intention des treize âmes primaires. En fin de compte, la volonté commune de tous ces fragments leur permit de fusionner pour engendrer une puissance équivalente à celle d'un cultivateur Ascendant.
 
@@ -124,7 +124,7 @@ Et ce n'était là que la puissance partielle du drapeau d'âmes d'un milliard.
 
 Cette force suffisait à combattre un Ascendant du stade précoce, mais ne pouvait rivaliser avec un Ascendant du stade avancé comme le Suzaku actuel. Ce qui terrifiait véritablement le Suzaku, c'était la puissance de l'ensemble des trente-six âmes primaires, et tout particulièrement la quatrième.
 
-Du Tian fixa l'homme d'âge moyen et lâcha froidement: « Dégage. Je ne te tuerai pas aujourd'hui. Ma Secte de l'Affinement de l'Âme ne prendra pas part à la guerre entre vous et le pays de Suzaku! »
+Du Tian fixa l'homme d'âge moyen et lâcha froidement: « Dégage. Je ne te tuerai pas aujourd'hui. Ma Secte Lian Hun ne prendra pas part à la guerre entre vous et le pays de Suzaku! »
 
 Le visage de l'homme s'assombrit, la colère bouillonnant en lui. Avec son niveau de culture, si Du Tian n'avait pas possédé cet étendard, il l'aurait déjà éliminé sans difficulté.
 
@@ -136,7 +136,7 @@ Il agita l'étendard et dix autres âmes primaires de la Transformation de l'Âm
 
 Cette fois, l'homme d'âge moyen esquissa un sourire amer. Il comprenait enfin pourquoi son clan redoutait tant cet artefact.
 
-« Puisque la Secte de l'Affinement de l'Âme refuse de participer à cette guerre, alors je parlerai au nom du Clan des Immortels Délaissés et je promets que nous ne mettrons pas un pied dans votre Secte! »
+« Puisque la Secte Lian Hun refuse de participer à cette guerre, alors je parlerai au nom du Clan Xian Yi et je promets que nous ne mettrons pas un pied dans votre Secte! »
 
 Sur ces mots, il salua Du Tian d'un geste respectueux avant de se retirer prudemment.
 

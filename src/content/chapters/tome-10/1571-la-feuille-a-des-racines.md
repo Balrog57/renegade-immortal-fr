@@ -88,7 +88,7 @@ Au moment même où il disparut, le vieil homme le rattrapa. Son expression éta
 
 Au pied du mont Heng Yue, à la lisière de la jungle, se trouvait un village de montagne.
 
-Ce village était devenu une ville. Son nom avait changé pour celui de la Cité de l'Ancêtre Impérial... Wang Lin le savait déjà pour être venu ici autrefois. Pourtant, au sein de cette cité, il subsistait une vieille demeure qui semblait éternellement immuable.
+Ce village était devenu une ville. Son nom avait changé pour celui de la Cité Huang Zu... Wang Lin le savait déjà pour être venu ici autrefois. Pourtant, au sein de cette cité, il subsistait une vieille demeure qui semblait éternellement immuable.
 
 Cette vieille maison était l'ancien foyer de Wang Lin...
 

@@ -8,7 +8,7 @@ slug: tumulte
 ---
 Un ancien monstre au stade intermédiaire de la Tribulation du Vide sur le Continent Astral Immortel pouvait établir sa propre secte!
 
-Le Souverain Céleste aux Sept Couleurs était un cultivateur au stade intermédiaire de la Tribulation du Vide à l'époque. Il avait fondé sa propre secte et recruté des disciples. Même la Secte de la Grande Âme se montrait très respectueuse envers lui, car ce genre de cultivateurs méritait le respect.
+Le Souverain Céleste aux Sept Couleurs était un cultivateur au stade intermédiaire de la Tribulation du Vide à l'époque. Il avait fondé sa propre secte et recruté des disciples. Même la Secte Da Hun se montrait très respectueuse envers lui, car ce genre de cultivateurs méritait le respect.
 
 Avec la force de Wang Lin, il pouvait combattre des cultivateurs au stade précoce de la Tribulation du Vide. Les tuer serait difficile, mais pas impossible. Cependant, s'il devait affronter un ancien monstre comme le Souverain Céleste aux Sept Couleurs au sommet de sa puissance, l'écart serait trop grand.
 
@@ -26,25 +26,25 @@ Derrière lui, Zhang Daozong suivait calmement, mais une intention meurtrière m
 
 « Je veux voir comment tu vas t'échapper sous mon regard! » Zhang Daozong était toujours furieux d'avoir été trompé par Wang Lin. De plus, Wang Lin avait tué Liu Zhiyuan, et il ne pourrait pas affronter le Maître de Secte à moins de tuer Wang Lin.
 
-Quant à l'impact de son départ du champ de bataille, il s'en moquait. La raison pour laquelle il osait partir était que tout cela faisait partie d'un plan orchestré par le Continent du Démon Vert contre Wang Lin!
+Quant à l'impact de son départ du champ de bataille, il s'en moquait. La raison pour laquelle il osait partir était que tout cela faisait partie d'un plan orchestré par le Continent Lu Mo contre Wang Lin!
 
 Ce plan consistait à sacrifier un grand nombre de cultivateurs pour retarder la bataille et faire apparaître Wang Lin!
 
-En vérité, si le Continent du Démon Vert l'avait voulu, il aurait pu mettre fin rapidement à la seconde bataille car leurs renforts étaient arrivés deux jours auparavant!
+En vérité, si le Continent Lu Mo l'avait voulu, il aurait pu mettre fin rapidement à la seconde bataille car leurs renforts étaient arrivés deux jours auparavant!
 
 La raison pour laquelle les renforts ne s'étaient pas manifestés et s'étaient cachés était simple: ils voulaient tuer Wang Lin!
 
-Les actions de Wang Lin dans la Mer des Pilules avaient irrité les trois anciens ancêtres du Continent du Démon Vert, qui avaient ainsi émis un ordre d'exécution contre lui! Tout ce que Wang Lin avait accompli était absolument bouleversant!
+Les actions de Wang Lin dans la Mer Dan avaient irrité les trois anciens ancêtres du Continent Lu Mo, qui avaient ainsi émis un ordre d'exécution contre lui! Tout ce que Wang Lin avait accompli était absolument bouleversant!
 
-Il avait tué l'avatar de Yun Kong, le génie du Continent du Démon Vert, et avait détruit leur plan dans la Mer des Pilules, provoquant l'explosion prématurée de la Pilule Céleste. Cela avait affecté le Continent du Démon Vert, une partie de celui-ci ayant été détruite avec la plupart des cultivateurs présents dans la Mer des Pilules!
+Il avait tué l'avatar de Yun Kong, le génie du Continent Lu Mo, et avait détruit leur plan dans la Mer Dan, provoquant l'explosion prématurée de la Pilule Céleste. Cela avait affecté le Continent Lu Mo, une partie de celui-ci ayant été détruite avec la plupart des cultivateurs présents dans la Mer Dan!
 
-Ce sont là des événements passés, mais désormais, Wang Lin avait tué Liu Zhiyuan de la Secte du Dao Démoniaque! Même Xu Decai avait probablement été massacré par ses méthodes viles.
+Ce sont là des événements passés, mais désormais, Wang Lin avait tué Liu Zhiyuan de la Secte Dao Mo! Même Xu Decai avait probablement été massacré par ses méthodes viles.
 
-Cette série d'actes faisait de Wang Lin la cible numéro un à éliminer pour le Continent du Démon Vert au début de cette guerre!
+Cette série d'actes faisait de Wang Lin la cible numéro un à éliminer pour le Continent Lu Mo au début de cette guerre!
 
 Au moment où Zhang Daozong commença sa poursuite, à 10 000 kilomètres du champ de bataille, quatre auras éclatèrent soudainement. Toutes étaient au stade intermédiaire de la Tribulation du Vide!
 
-Plus choquant encore, après l'apparition de ces quatre auras, le ciel au-dessus de la Prairie de l'Extrême Ciel prit une étrange teinte verdâtre. Cette couleur se condensa pour former un scorpion géant.
+Plus choquant encore, après l'apparition de ces quatre auras, le ciel au-dessus de la Prairie Ji Tian prit une étrange teinte verdâtre. Cette couleur se condensa pour former un scorpion géant.
 
 Le scorpion émit des sifflements stridents tandis qu'une brume verte se répandait vers le champ de bataille en contrebas!
 
@@ -52,23 +52,23 @@ Le scorpion émit des sifflements stridents tandis qu'une brume verte se répand
 
 Il avait personnellement combattu les Messagers du Démon Vert et savait à quel point ils étaient terrifiants. Il ne s'attendait pas à ce qu'ils apparaissent ici!
 
-Il faut dire que même dans la Mer des Pilules, seuls trois en étaient apparus. Pour le Continent du Démon Vert, chaque Messager du Démon Vert était extrêmement précieux; ils n'en enverraient donc pas de grandes quantités sans raison!
+Il faut dire que même dans la Mer Dan, seuls trois en étaient apparus. Pour le Continent Lu Mo, chaque Messager du Démon Vert était extrêmement précieux; ils n'en enverraient donc pas de grandes quantités sans raison!
 
 Le visage de Lu Wenran devint livide. Il ignorait que la cible de ces quatre Messagers était Wang Lin! Quant à cet endroit, ce n'était qu'accessoire.
 
-Les yeux de Lu Wenran étaient emplis de terreur lorsqu'il rugit: « Retournez vite au palais souterrain et scellez l'entrée! » Même sans son avertissement, lorsque les cultivateurs du Continent du Taureau Céleste sentirent ces quatre auras et virent le scorpion vert, leur seule pensée fut de regagner précipitamment le palais souterrain!
+Les yeux de Lu Wenran étaient emplis de terreur lorsqu'il rugit: « Retournez vite au palais souterrain et scellez l'entrée! » Même sans son avertissement, lorsque les cultivateurs du Continent Tian Niu sentirent ces quatre auras et virent le scorpion vert, leur seule pensée fut de regagner précipitamment le palais souterrain!
 
 Après tout, c'était leur dernière ligne de défense!
 
 Il était impossible de se défendre contre quatre Messagers du Démon Vert et deux anciens monstres du stade intermédiaire de la Tribulation du Vide.
 
-Les cultivateurs ordinaires touchèrent le sol et pénétrèrent instantanément dans le palais souterrain. Seuls les cultivateurs du Continent du Taureau Céleste pouvaient faire cela. Les cultivateurs du Continent du Démon Vert ne pouvaient pas s'enfoncer sous terre.
+Les cultivateurs ordinaires touchèrent le sol et pénétrèrent instantanément dans le palais souterrain. Seuls les cultivateurs du Continent Tian Niu pouvaient faire cela. Les cultivateurs du Continent Lu Mo ne pouvaient pas s'enfoncer sous terre.
 
 Après tout, la formation existait toujours ici et fonctionnait à pleine puissance.
 
 Cependant, des cultivateurs de la Tribulation du Vide comme Lu Wenran étaient déjà ciblés et ne pourraient pas s'échapper si facilement. Les quatre rayons de lumière verte fendirent la brume. Le scorpion géant dans le ciel continuait sa descente, libérant une masse de brume verte sur son passage.
 
-Tandis que des grondements tonitruants résonnaient, tous les cultivateurs de la Tribulation du Vide du Continent du Taureau Céleste poussèrent des rugissements de colère. Il semblait qu'on leur interdisait l'accès au sol!
+Tandis que des grondements tonitruants résonnaient, tous les cultivateurs de la Tribulation du Vide du Continent Tian Niu poussèrent des rugissements de colère. Il semblait qu'on leur interdisait l'accès au sol!
 
 Quant à Wang Lin, il se trouvait également dans la brume et sentit les quatre puissantes auras se rapprocher. Lorsqu'il aperçut le scorpion vert géant dans le ciel, il ne put s'empêcher de haleter.
 
@@ -80,7 +80,7 @@ Cependant, le monde étant scellé, il ne pouvait pas se téléporter; tout dép
 
 Au loin, un rayon de lumière verte se rapprochait. Un Messager du Démon Vert allait traquer Wang Lin aux côtés du vieil homme nommé Zhang!
 
-Pour le Continent du Démon Vert, la mort de Wang Lin était impérative; sinon, ils ne pourraient apaiser leur haine! Les Messagers du Démon Vert différaient des cultivateurs ordinaires: ils étaient extrêmement froids et impitoyables. Ils se souciaient peu du niveau de culture de l'ennemi. Même face à un simple disciple de l'Établissement des Fondations, ils utiliseraient toute leur puissance sans considérer cela comme une insulte à leur rang.
+Pour le Continent Lu Mo, la mort de Wang Lin était impérative; sinon, ils ne pourraient apaiser leur haine! Les Messagers du Démon Vert différaient des cultivateurs ordinaires: ils étaient extrêmement froids et impitoyables. Ils se souciaient peu du niveau de culture de l'ennemi. Même face à un simple disciple de l'Établissement des Fondations, ils utiliseraient toute leur puissance sans considérer cela comme une insulte à leur rang.
 
 Les pupilles de Wang Lin se rétractèrent. Il était encore à 3 000 pieds du sol. Au loin, il vit Yan Luan cracher du sang. Son corps délicat trembla tandis qu'elle s'enfuyait sous terre. Après elle, Xu Dongde, le visage pâle, s'engouffra également dans la terre.
 
@@ -108,7 +108,7 @@ Des fluctuations émanèrent de la terre; elle se scellait rapidement. Les yeux 
 
 Il la lança en avant!
 
-« Explose! » Le cœur de Wang Lin se serra, mais il n'avait pas le temps de réfléchir. Tandis qu'il rugissait, les 30 millions d'âmes Dao à l'intérieur de la gourde explosèrent, provoquant un fracas assourdissant qui résonna dans toute la Prairie de l'Extrême Ciel.
+« Explose! » Le cœur de Wang Lin se serra, mais il n'avait pas le temps de réfléchir. Tandis qu'il rugissait, les 30 millions d'âmes Dao à l'intérieur de la gourde explosèrent, provoquant un fracas assourdissant qui résonna dans toute la Prairie Ji Tian.
 
 L'explosion de 30 millions d'âmes Dao était suffisante pour menacer un cultivateur au stade intermédiaire de la Tribulation du Vide. Même l'expression de Zhang Daozong changea radicalement alors qu'il battait en retraite précipitamment.
 

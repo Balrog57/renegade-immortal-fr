@@ -40,7 +40,7 @@ Il était impossible de la percevoir du regard, mais si l'on utilisait son Sens 
 
 Cette tempête était forgée par la volonté et la vie de chaque habitant des 7 Millions de Mondes, et elle était partout! Elle formait un mur gigantesque empêchant toute force extérieure d'entrer!
 
-Tout cela semble lent, mais cela se produisit en un instant. À l'instant même où la tempête de volonté et de vie prit forme, le tonnerre éternel du Clan du Tonnerre Dispersé perça le vide et arriva. Il s'écrasa contre la tempête dans une tentative de pénétration!
+Tout cela semble lent, mais cela se produisit en un instant. À l'instant même où la tempête de volonté et de vie prit forme, le tonnerre éternel du Clan Shan Lei perça le vide et arriva. Il s'écrasa contre la tempête dans une tentative de pénétration!
 
 Un grondement de tonnerre résonna, ébranlant le monde entier. La tempête commença à trembler et des rugissements empreints de résistance en jaillirent. C'étaient les cris d'innombrables cultivateurs et de millions de mortels. Ces rugissements fusionnèrent pour former un son capable de défier le ciel lui-même!
 
@@ -52,7 +52,7 @@ Sous la pression de cette force, le tonnerre éternel fut repoussé de plusieurs
 
 Des tonnerres sourds retentirent. Le tonnerre éternel jaillit à nouveau, semblant se connecter au ciel lui-même, et redescendit immédiatement!
 
-Cette scène terrifiante remplit les yeux du Grand Ancien de peur. Pour la première fois, il tremblait! Il n'avait jamais imaginé qu'un tel événement puisse survenir dans les 7 Millions de Mondes! Ni lui, ni même l'ancêtre du Clan du Tonnerre Dispersé de l'époque n'aurait pu concevoir une telle chose!
+Cette scène terrifiante remplit les yeux du Grand Ancien de peur. Pour la première fois, il tremblait! Il n'avait jamais imaginé qu'un tel événement puisse survenir dans les 7 Millions de Mondes! Ni lui, ni même l'ancêtre du Clan Shan Lei de l'époque n'aurait pu concevoir une telle chose!
 
 « Fous... vous êtes tous devenus fous. Tous les cultivateurs des 7 Millions de Mondes sont devenus fous. Même tous les mortels aussi... tous sont devenus fous! »
 
@@ -104,7 +104,7 @@ D'innombrables âmes, serrées en un faisceau semblable à des âmes, étaient n
 
 L'esprit du Grand Ancien trembla violemment et il battit en retraite précipitamment. L'armure de tonnerre autour de lui s'étendit pour former un bouclier. Le premier coup d'épée percuta l'armure de tonnerre.
 
-Un fracas assourdissant secoua les cieux et un cri plaintif s'éleva de la lumière. Les yeux du Grand Ancien étaient remplis d'incrédulité et une terreur profonde s'y installa. Cette armure de tonnerre avait été raffinée par l'ancêtre de la troisième étape du Clan du Tonnerre Dispersé et pouvait résister aux Flammes Joss de Wang Lin. Pourtant, sous le choc de l'épée, il cracha un flot de sang et fut projeté en arrière de dix mille pieds.
+Un fracas assourdissant secoua les cieux et un cri plaintif s'éleva de la lumière. Les yeux du Grand Ancien étaient remplis d'incrédulité et une terreur profonde s'y installa. Cette armure de tonnerre avait été raffinée par l'ancêtre de la troisième étape du Clan Shan Lei et pouvait résister aux Flammes Joss de Wang Lin. Pourtant, sous le choc de l'épée, il cracha un flot de sang et fut projeté en arrière de dix mille pieds.
 
 La lumière de l'épée disparut: le premier coup était porté!
 

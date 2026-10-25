@@ -93,7 +93,7 @@ D'un premier pas, il s'élança sur l'arc-en-ciel, et d'un second, il franchit p
 
 Cette tour avait une apparence très ordinaire. À cet instant, des rayons de lumière aux sept couleurs se rassemblèrent au pied de l'édifice pour former Tian Yunzi.
 
-« L'ancêtre de ma Secte du Destin Céleste n'est pas un cultivateur, mais le destin céleste lui-même. La seule chose que je recherche est le destin des cieux. Les sorts liés au destin peuvent être créés par les cieux ou par les hommes, mais quoi qu'il en soit, le destin est la clé!
+« L'ancêtre de ma Secte Tian Yun n'est pas un cultivateur, mais le destin céleste lui-même. La seule chose que je recherche est le destin des cieux. Les sorts liés au destin peuvent être créés par les cieux ou par les hommes, mais quoi qu'il en soit, le destin est la clé!
 
 « Je passais justement par la planète Suzaku lorsque tu comprenais ton domaine. Je t'ai vu suivre ton domaine jusqu'à son origine, et mon amour pour le talent m'a poussé à vouloir faire de toi mon disciple. Cela signifie qu'il y avait un lien entre nous, le destin entre maître et disciple.
 
@@ -117,7 +117,7 @@ Soudain, l'expression de Tian Yunzi devint grave. Toute sa douceur précédente 
 
 Sans un mot, Wang Lin s'agenouilla promptement et leva la tête pour contempler Tian Yunzi.
 
-La main droite de Tian Yunzi pointa vers Wang Lin et il cria: « Aujourd'hui, moi, Tian Yunzi, j'accepte Wang Lin comme septième disciple de la Division Pourpre sous les neuf couleurs! Wang Lin, es-tu prêt à devenir mon disciple, à suivre les règles de la secte, à ne jamais trahir la Secte du Destin Céleste, à te concentrer sur ta culture, à marcher sur le chemin du Grand Dao et à accomplir ton propre Dao?! Réponds-moi! »
+La main droite de Tian Yunzi pointa vers Wang Lin et il cria: « Aujourd'hui, moi, Tian Yunzi, j'accepte Wang Lin comme septième disciple de la Division Pourpre sous les neuf couleurs! Wang Lin, es-tu prêt à devenir mon disciple, à suivre les règles de la secte, à ne jamais trahir la Secte Tian Yun, à te concentrer sur ta culture, à marcher sur le chemin du Grand Dao et à accomplir ton propre Dao?! Réponds-moi! »
 
 Le regard de Wang Lin se fit solennel. Il afficha une détermination sans faille et répondit: « Tant que Maître ne me trahira pas, je ne trahirai pas Maître! Tant que le Destin Céleste ne me trahira pas, je ne trahirai pas le Destin Céleste! C'est ma promesse, celle de Wang Lin! »
 

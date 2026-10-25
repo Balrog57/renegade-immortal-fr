@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1384 - Frightened Bird (1)
 slug: loiseau-effraye-1
 ---
-Wang Lin traversa rapidement l'espace. Il avait quitté le Clan du Dragon Blindé après avoir emporté de nombreux trésors qu'ils avaient accumulés: une grande quantité de Pilules d'Effondrement du Dragon et de Cristaux de Mutation de Feu Déchaîné remplissaient son espace de stockage.
+Wang Lin traversa rapidement l'espace. Il avait quitté le Clan Long Jia après avoir emporté de nombreux trésors qu'ils avaient accumulés: une grande quantité de Pilules d'Effondrement du Dragon et de Cristaux de Mutation de Feu Déchaîné remplissaient son espace de stockage.
 
-Il y avait également de nombreux automates, dont le plus puissant atteignait le premier stade du Fléau Céleste. Tout cela constituait les économies du Clan du Dragon Blindé, et tout lui avait été remis par le nouveau patriarche.
+Il y avait également de nombreux automates, dont le plus puissant atteignait le premier stade du Fléau Céleste. Tout cela constituait les économies du Clan Long Jia, et tout lui avait été remis par le nouveau patriarche.
 
 En volant, l'esprit de Wang Lin s'anima. Il était plongé dans ses pensées. Lors de son combat contre Maître Simo, l'énigmatique Grand Empereur était apparu soudainement pour finalement lui accorder le titre de Jeune Empereur.
 
@@ -26,31 +26,31 @@ Wang Lin médita encore un instant avant de s'arrêter net. Une possibilité lui
 
 Peut-être que ces deux hypothèses sont les véritables raisons de son revirement! Cependant, ce ne sont que des spéculations. Je ne sais pas si l'une d'elles est vraie.
 
-De plus, il a puni le Patriarche du Dragon Blindé en envoyant son messager pour me faire étalage de sa puissance... Et enfin, il m'ordonne de participer à la sélection des Anciens Déchus dans trois mois... Cette affaire est étrange. Je n'aurai qu'à m'y rendre dans trois mois pour découvrir les objectifs de ce Grand Empereur! » Les yeux de Wang Lin s'illuminèrent et il se concentra. Il utilisa la Distorsion Spatiale pour se diriger vers le Clan du Scorpion Noir.
+De plus, il a puni le Patriarche du Dragon Blindé en envoyant son messager pour me faire étalage de sa puissance... Et enfin, il m'ordonne de participer à la sélection des Anciens Déchus dans trois mois... Cette affaire est étrange. Je n'aurai qu'à m'y rendre dans trois mois pour découvrir les objectifs de ce Grand Empereur! » Les yeux de Wang Lin s'illuminèrent et il se concentra. Il utilisa la Distorsion Spatiale pour se diriger vers le Clan An Xie.
 
-Le groupe de Tan Lang progressait à une vitesse fulgurante et convergeait rapidement vers le Clan du Scorpion Noir. Ces mille cultivateurs traversaient l'espace, créant d'immenses ondulations alors qu'ils approchaient de la planète du clan.
+Le groupe de Tan Lang progressait à une vitesse fulgurante et convergeait rapidement vers le Clan An Xie. Ces mille cultivateurs traversaient l'espace, créant d'immenses ondulations alors qu'ils approchaient de la planète du clan.
 
 Un instant plus tard, les mille rayons de lumière s'abattirent: les quelques centaines de cultivateurs de tête brisèrent sans peine la couche de vents violents de la planète et plongèrent droit vers le sol.
 
 Entouré par la foule, Tan Lang descendait avec un air arrogant!
 
-Le ciel au-dessus du Clan du Scorpion Noir changea de couleur et les nuages se déchirèrent. Le firmament semblait se rompre sous la poussée des rayons de lumière.
+Le ciel au-dessus du Clan An Xie changea de couleur et les nuages se déchirèrent. Le firmament semblait se rompre sous la poussée des rayons de lumière.
 
 L'expression de tous les cultivateurs de la planète changea radicalement. Ils levèrent les yeux vers le ciel, le regard empreint de terreur.
 
 Des grondements tonitruants déchirèrent le ciel et la terre trembla, comme si elle ne pouvait supporter la pression de tous ces cultivateurs descendant des cieux!
 
-Le nouveau territoire du Clan du Scorpion Noir se situait près de la grotte où Wang Lin cultivait auparavant. À cet instant, Zhong Dahong marchait les mains derrière le dos, l'air grave, tout en réprimandant certains membres du clan.
+Le nouveau territoire du Clan An Xie se situait près de la grotte où Wang Lin cultivait auparavant. À cet instant, Zhong Dahong marchait les mains derrière le dos, l'air grave, tout en réprimandant certains membres du clan.
 
-Le vieil homme nommé Zhang suivait Zhong Dahong avec un air respectueux, bien qu'une pointe de satisfaction se lisât dans ses yeux. Cela était d'autant plus marqué lorsqu'il voyait les cultivateurs du Clan du Scorpion Noir, pourtant dotés de niveaux de culture plus élevés, trembler sous les remontrances de Zhong Dahong.
+Le vieil homme nommé Zhang suivait Zhong Dahong avec un air respectueux, bien qu'une pointe de satisfaction se lisât dans ses yeux. Cela était d'autant plus marqué lorsqu'il voyait les cultivateurs du Clan An Xie, pourtant dotés de niveaux de culture plus élevés, trembler sous les remontrances de Zhong Dahong.
 
 « Ce n'est pas que je souhaite vous réprimander, mais regardez ce que vous avez fait ces derniers jours! Cela fait déjà plusieurs jours et vous n'avez absolument rien trouvé! Lorsque Maître reviendra, vous devrez tous en assumer la responsabilité! Humph! » Zhong Dahong agita sa manche et laissa échapper un reniflement méprisant.
 
-Ce bruit fit pâlir les membres du Clan du Scorpion Noir. L'un d'eux hésita avant de joindre les mains et de dire: « À ce sujet... »
+Ce bruit fit pâlir les membres du Clan An Xie. L'un d'eux hésita avant de joindre les mains et de dire: « À ce sujet... »
 
-Mais avant qu'il ne puisse terminer, son expression changea radicalement et il leva les yeux vers le ciel. À cet instant, chaque membre du Clan du Scorpion Noir fixa l'azur avec effroi.
+Mais avant qu'il ne puisse terminer, son expression changea radicalement et il leva les yeux vers le ciel. À cet instant, chaque membre du Clan An Xie fixa l'azur avec effroi.
 
-Le Patriarche du Clan du Scorpion Noir, qui, sur l'ordre de Wang Lin, était rentré plus tôt et méditait dans la vallée à l'extérieur de la grotte de Wang Lin, ouvrit soudainement les yeux avec horreur et s'élança dans les airs.
+Le Patriarche du Clan An Xie, qui, sur l'ordre de Wang Lin, était rentré plus tôt et méditait dans la vallée à l'extérieur de la grotte de Wang Lin, ouvrit soudainement les yeux avec horreur et s'élança dans les airs.
 
 Zhong Dahong fut également saisi de stupeur en levant le regard. Son visage devint livide, pétrifié par l'effroi. Le vieil homme nommé Zhang eut également un sursaut, totalement stupéfait.
 
@@ -58,9 +58,9 @@ Des ondulations couvraient le ciel comme la surface d'une mer déchaînée, et d
 
 Ce son, d'abord ténu, devint bientôt assourdissant, faisant trembler les cieux!
 
-Une voix puissante émana des mille éclats d'énergie de l'épée et résonna sur toute la planète: « Le Clan de l'Évasion Nuageuse souhaite effectuer des recherches et emprunte cette planète pour une durée de trois mois. Clan du Scorpion Noir, partez immédiatement! »
+Une voix puissante émana des mille éclats d'énergie de l'épée et résonna sur toute la planète: « Le Clan Yun Dun souhaite effectuer des recherches et emprunte cette planète pour une durée de trois mois. Clan An Xie, partez immédiatement! »
 
-Le visage du Patriarche du Clan du Scorpion Noir se décomposa et il s'exclama aussitôt: « Clan de l'Évasion Nuageuse, que comptez-vous faire?! Bien que mon Clan du Scorpion Noir soit petit, il demeure un membre du Conseil Déchu. Vous ne pouvez pas... »
+Le visage du Patriarche du Clan An Xie se décomposa et il s'exclama aussitôt: « Clan Yun Dun, que comptez-vous faire?! Bien que mon Clan An Xie soit petit, il demeure un membre du Conseil Déchu. Vous ne pouvez pas... »
 
 Cependant, avant qu'il n'ait pu achever sa phrase, un reniflement glacial descendit du ciel!
 

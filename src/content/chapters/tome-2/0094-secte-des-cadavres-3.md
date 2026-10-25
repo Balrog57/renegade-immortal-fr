@@ -1,16 +1,16 @@
 ---
 n: 94
-title: Secte des Cadavres (3)
+title: Secte Shi Yin (3)
 book: 2
 bookTitle: The Bloody Image of Cultivation
 en: Chapter 94 - Corpse Yin Secte (3)
 slug: secte-des-cadavres-3
 ---
-Wu Yu afficha une expression suppliante et dit rapidement: « Je ne peux pas quitter cet endroit, mais j'aimerais vous demander d'aller à la Secte des Cadavres pour demander à mon frère aîné de discipline, Ye Zizai, de venir me sauver. »
+Wu Yu afficha une expression suppliante et dit rapidement: « Je ne peux pas quitter cet endroit, mais j'aimerais vous demander d'aller à la Secte Shi Yin pour demander à mon frère aîné de discipline, Ye Zizai, de venir me sauver. »
 
 L'expression de Wang Lin demeura imperturbable. « Avez-vous un moyen pour que je puisse partir sans être remarqué par la marionnette cadavérique? » demanda-t-il.
 
-Wu Yu hocha vivement la tête et dit sincèrement: « Je peux utiliser le reste de mon énergie de l'Âme Naissante pour ouvrir une formation de transfert qui vous emmènera directement à la Secte des Cadavres. »
+Wu Yu hocha vivement la tête et dit sincèrement: « Je peux utiliser le reste de mon énergie de l'Âme Naissante pour ouvrir une formation de transfert qui vous emmènera directement à la Secte Shi Yin. »
 
 Wang Lin fixa Wu Yu. Il esquissa un mince sourire et dit: « Si vous avez la capacité d'ouvrir une telle formation, pourquoi ne pas y retourner vous-même? »
 
@@ -18,15 +18,15 @@ Wu Yu soupira et répondit: « La marionnette cadavérique ne peut s'éloigner d
 
 La fréquence des tremblements de la statue augmentait. Voyant que l'expression de Wang Lin n'avait toujours pas changé, Wu Yu serra la mâchoire et déclara: « Moi, Wu Yu, je jure sur mon Âme Naissante que, si mes paroles contiennent la moindre fausseté, je serai dévoré par la marionnette cadavérique. Jeune ami, aidez-moi une fois. Je peux même vous offrir Adai. Les neuf talismans de papier sur lui étaient déjà là lorsque je l'ai trouvé, et ils possèdent une puissance insondable. »
 
-« De plus, je sens que votre énergie spirituelle penche vers l'attribut Yin. La méthode de culture de ma Secte des Cadavres est elle aussi de nature Yin. Puisque vous avez pu venir dans cette jungle, je suppose que vous cultivez en vous servant de l'énergie Yin d'ici. L'énergie Yin de ces ruines appartient aux lieux de Yin infernal parmi Ciel, Terre, Mystique et Infernal. Si vous allez à la Secte des Cadavres, cela vous sera très profitable, car elle possède un lieu de retraite doté d'une énergie Yin de qualité Terrestre. »
+« De plus, je sens que votre énergie spirituelle penche vers l'attribut Yin. La méthode de culture de ma Secte Shi Yin est elle aussi de nature Yin. Puisque vous avez pu venir dans cette jungle, je suppose que vous cultivez en vous servant de l'énergie Yin d'ici. L'énergie Yin de ces ruines appartient aux lieux de Yin infernal parmi Ciel, Terre, Mystique et Infernal. Si vous allez à la Secte Shi Yin, cela vous sera très profitable, car elle possède un lieu de retraite doté d'une énergie Yin de qualité Terrestre. »
 
-Wang Lin plissa les yeux et demanda: « Si la Secte des Cadavres possède un lieu doté d'une énergie Yin de type Terrestre, pourquoi êtes-vous venu ici pour tenter votre percée? »
+Wang Lin plissa les yeux et demanda: « Si la Secte Shi Yin possède un lieu doté d'une énergie Yin de type Terrestre, pourquoi êtes-vous venu ici pour tenter votre percée? »
 
 Wu Yu lança à Wang Lin un regard profond. Ce jeune homme était extrêmement prudent. Peu importait ses tentatives de persuasion, le visage de Wang Lin restait de marbre.
 
 Après avoir entendu la question de Wang Lin, il eut un sourire amer et dit: « Jeune ami, j'ai déjà juré sur mon Âme Naissante. Cette marionnette cadavérique n'est pas un être vivant. Chaque fois que sa puissance atteint un certain palier, elle doit absorber une fois l'énergie Yin de qualité Infernale, c'est pourquoi je l'ai amenée ici. »
 
-À cet instant précis, la statue trembla violemment et des fissures apparurent sur tout son corps. Une série de craquements retentit alors que les brèches s'élargissaient, donnant l'impression que la statue était sur le point de s'effondrer. L'expression de Wu Yu devint soudainement très anxieuse: « Jeune ami, si vous souhaitez cultiver votre technique Yin à la Secte des Cadavres, vous pouvez prétendre être mon disciple. Je vous téléporterai directement là-bas et ils ne se douteront de rien. Jeune ami, le temps presse, décidez vous-même. »
+À cet instant précis, la statue trembla violemment et des fissures apparurent sur tout son corps. Une série de craquements retentit alors que les brèches s'élargissaient, donnant l'impression que la statue était sur le point de s'effondrer. L'expression de Wu Yu devint soudainement très anxieuse: « Jeune ami, si vous souhaitez cultiver votre technique Yin à la Secte Shi Yin, vous pouvez prétendre être mon disciple. Je vous téléporterai directement là-bas et ils ne se douteront de rien. Jeune ami, le temps presse, décidez vous-même. »
 
 À peine eut-il fini de parler que la statue secoua violemment une nouvelle fois. Les fissures couvraient désormais l'intégralité de la structure et certains fragments commencèrent à se détacher.
 
@@ -48,15 +48,15 @@ Quant à Wang Lin, après avoir pénétré dans la formation, il se retrouva dan
 
 Après un temps indéterminé, une lumière apparut au bout du tunnel. Elle grandit de plus en plus jusqu'à envahir presque tout l'espace. Wang Lin et Adai ressentirent une force d'aspiration provenant de cette clarté et furent aspirés à leur tour.
 
-La Secte des Cadavres était une secte démoniaque de Zhao. Bien qu'elle fût moins puissante que la première des sectes démoniaques, la Secte Tian Dao, elle l'emportait par son caractère insondable. Sans exagérer, on pouvait dire qu'elle était la secte la plus mystérieuse de tout Zhao.
+La Secte Shi Yin était une secte démoniaque de Zhao. Bien qu'elle fût moins puissante que la première des sectes démoniaques, la Secte Tian Dao, elle l'emportait par son caractère insondable. Sans exagérer, on pouvait dire qu'elle était la secte la plus mystérieuse de tout Zhao.
 
-Le nombre de ses disciples, sa localisation exacte, ou encore le nombre de cultivateurs de l'Âme Naissante qu'elle comptait, tout cela demeurait inconnu du monde extérieur. Des rumeurs allaient même jusqu'à prétendre que la Secte des Cadavres avait été totalement anéantie, sans aucun survivant.
+Le nombre de ses disciples, sa localisation exacte, ou encore le nombre de cultivateurs de l'Âme Naissante qu'elle comptait, tout cela demeurait inconnu du monde extérieur. Des rumeurs allaient même jusqu'à prétendre que la Secte Shi Yin avait été totalement anéantie, sans aucun survivant.
 
-En somme, c'était une secte extrêmement discrète, mais une discrétion telle que le monde ne pouvait l'oublier. La seule chose dont les gens savaient était leur méthode de culture. Les disciples de la Secte des Cadavres n'avaient qu'une seule chance dans leur vie pour raffiner un cadavre; une fois le raffinage réussi, il ne changeait plus jamais de toute leur vie.
+En somme, c'était une secte extrêmement discrète, mais une discrétion telle que le monde ne pouvait l'oublier. La seule chose dont les gens savaient était leur méthode de culture. Les disciples de la Secte Shi Yin n'avaient qu'une seule chance dans leur vie pour raffiner un cadavre; une fois le raffinage réussi, il ne changeait plus jamais de toute leur vie.
 
-C'était une technique pleine de miracles. Pour les disciples de cette secte, outre leur propre culture, le niveau de culture de leur marionnette cadavérique était tout aussi crucial. Si cette technique passait pour miraculeuse, c'est que, cinq cents ans auparavant, un disciple de la Secte des Cadavres au stade avancé de l'Établissement des Fondations avait eu à ses côtés une marionnette cadavérique de niveau Âme Naissante.
+C'était une technique pleine de miracles. Pour les disciples de cette secte, outre leur propre culture, le niveau de culture de leur marionnette cadavérique était tout aussi crucial. Si cette technique passait pour miraculeuse, c'est que, cinq cents ans auparavant, un disciple de la Secte Shi Yin au stade avancé de l'Établissement des Fondations avait eu à ses côtés une marionnette cadavérique de niveau Âme Naissante.
 
-Bien que ce disciple ait mystérieusement disparu, son exploit avait provoqué une immense agitation à Zhao, particulièrement chez les cultivateurs de bas niveau qui rêvaient désormais de rejoindre la Secte des Cadavres. Mais peu importaient les recherches entreprises, la secte demeurait comme un nuage errant, insaisissable pour quiconque.
+Bien que ce disciple ait mystérieusement disparu, son exploit avait provoqué une immense agitation à Zhao, particulièrement chez les cultivateurs de bas niveau qui rêvaient désormais de rejoindre la Secte Shi Yin. Mais peu importaient les recherches entreprises, la secte demeurait comme un nuage errant, insaisissable pour quiconque.
 
 Dans l'extrême ouest de Zhao s'étendait une immense plaine enveloppée toute l'année d'une énergie glaciale de Yin. Même les cultivateurs y mettaient rarement les pieds. Car outre l'omniprésence du Yin, la zone était imprégnée d'une énergie des Neuf Terres que même les cultivateurs de l'Âme Naissante évitaient. Quiconque se trouvait en dessous de ce stade subissait de graves blessures au simple contact de cette essence.
 
@@ -66,7 +66,7 @@ Cette chasse au trésor était devenue une plaisanterie, et ils furent moqués p
 
 Au centre de la plaine se trouvait une zone noyée dans le brouillard. Sous ce brouillard s'étendait un marais qui occupait la majeure partie du terrain, et sous ce dernier se cachait une grotte gigantesque. De nombreux tunnels reliaient cette caverne centrale à des grottes plus petites, formant un réseau souterrain complexe qui se ramifiait encore et encore, si bien que presque tout le sous-sol de la plaine était densément occupé par des grottes grandes et petites.
 
-C'était là que résidait la plus mystérieuse secte démoniaque de Zhao: la Secte des Cadavres.
+C'était là que résidait la plus mystérieuse secte démoniaque de Zhao: la Secte Shi Yin.
 
 La plus grande grotte, située au centre, était aussi vaste que plusieurs salles principales de la Secte Heng Yue. À l'intérieur se dressaient huit piliers de bois violet formant une formation. De lentes ondulations d'énergie spirituelle s'en échappaient, sans commencement ni fin. D'innombrables symboles et motifs antiques y étaient gravés, d'aspect solennel. Entre les huit piliers, plusieurs lignes de lumière phosphorescente les reliaient; vues d'en haut, ces lignes s'entrecroisaient pour former des anneaux de lumière imbriqués les uns dans les autres, quarante-neuf en tout.
 
@@ -74,7 +74,7 @@ Assis sur ces huit piliers, huit jeunes hommes trônaient, chacun avec un cercue
 
 Soudain, cinq anneaux s'illuminèrent et un jeune homme vêtu de bleu apparut dans la grotte, accompagné de son cercueil. L'un des huit jeunes hommes sur les piliers ouvrit les yeux pour observer l'arrivant. Sa voix était dénuée de toute émotion: « D'où viens-tu? »
 
-Le jeune homme en bleu s'inclina rapidement: « Branche de la Secte des Cadavres de Lu, dans un pays de culture de rang 2. Je m'appelle Lin Yi et je suis ici pour participer à l'examen de promotion. »
+Le jeune homme en bleu s'inclina rapidement: « Branche de la Secte Shi Yin de Lu, dans un pays de culture de rang 2. Je m'appelle Lin Yi et je suis ici pour participer à l'examen de promotion. »
 
 Le jeune homme sur le pilier le regarda d'un air indifférent: « Dix-huitième grotte sur la droite. Va. »
 

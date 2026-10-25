@@ -11,7 +11,7 @@ Il ne pouvait pas retourner sur le continent sauvage avec ces personnes!
 
 À cause du singe noir, toutes les bêtes féroces de ce continent sauvage gardaient Wang Lin fermement en mémoire. Si Wang Lin y retournait, les bêtes féroces seraient alertées. L'agitation des bêtes sauvages constituerait un signal révélateur pour quiconque nourrirait déjà des soupçons.
 
-Cela expliquerait que Wang Lin provienne de ce continent sauvage. En ajoutant la mort de Shi Luoxing, même si la secte de rang 6 découvrait qu'il avait été tué par la vieille femme de la Secte des Cinq Poisons, elle nourrirait tout de même de grands soupçons envers lui. Une fois ces doutes installés, ils fouilleraient l'espace de stockage de Wang Lin, et les cultivateurs tyranniques procéderaient directement à une recherche de son âme! Ce serait un désastre pour Wang Lin!
+Cela expliquerait que Wang Lin provienne de ce continent sauvage. En ajoutant la mort de Shi Luoxing, même si la secte de rang 6 découvrait qu'il avait été tué par la vieille femme de la Secte Wu Du, elle nourrirait tout de même de grands soupçons envers lui. Une fois ces doutes installés, ils fouilleraient l'espace de stockage de Wang Lin, et les cultivateurs tyranniques procéderaient directement à une recherche de son âme! Ce serait un désastre pour Wang Lin!
 
 Son visage se couvrit d'une expression d'indignation. Personne ne trouverait cela suspect; n'importe qui ressentirait cette indignation, mais ils seraient tout de même contraints de le suivre.
 
@@ -33,7 +33,7 @@ Par la même occasion, les deux autres tués par Wang Lin explosèrent égalemen
 
 Noble Argent, qui s'éloignait, se retourna soudainement, frappé par le choc. Cependant, cette stupeur se mua rapidement en férocité alors qu'il chargeait vers Wang Lin.
 
-L'expression de Wang Lin était neutre mais empreinte d'amertume. Son corps originel n'était pas ici; à moins d'y être contraint, pourquoi provoquerait-il un cultivateur au stade de Briseur du Nirvana? Pourtant, il n'avait pas le temps de réfléchir, car il avait déjà tué huit personnes. Wang Lin s'élança rapidement. Il devait éliminer tous ceux qui entouraient le Briseur du Nirvana au plus vite. Autrement, si l'un d'eux s'échappait, il lui serait difficile de faire le moindre pas dans le Système Stellaire de la Mer des Nuages!
+L'expression de Wang Lin était neutre mais empreinte d'amertume. Son corps originel n'était pas ici; à moins d'y être contraint, pourquoi provoquerait-il un cultivateur au stade de Briseur du Nirvana? Pourtant, il n'avait pas le temps de réfléchir, car il avait déjà tué huit personnes. Wang Lin s'élança rapidement. Il devait éliminer tous ceux qui entouraient le Briseur du Nirvana au plus vite. Autrement, si l'un d'eux s'échappait, il lui serait difficile de faire le moindre pas dans le Système Stellaire de la Mer Yun!
 
 Cependant, les neuf survivants, dont le Purificateur du Nirvana, réalisèrent immédiatement ce plan et se dispersèrent. Noble Argent chargea en avant et projeta un rayon de lumière noire pour bloquer la progression de Wang Lin!
 
@@ -49,7 +49,7 @@ Au moment où la lance allait le frapper, Wang Lin ouvrit la bouche et cracha le
 
 Les pupilles du cultivateur se rétractèrent; il leva les mains pour former un bouclier de lumière noire. Mais d'un geste de la main, Wang Lin fit s'effondrer ce bouclier, provoquant l'explosion des deux bras du cultivateur. Finalement, sa tête explosa et il rendit l'âme.
 
-« Il en reste cinq! » La main droite de Wang Lin traça un nouveau sceau. Une pluie se mit à tomber instantanément et les innombrables gouttes se rassemblèrent pour former cinq épées de cristal qui s'élancèrent vers les cinq derniers disciples de la Secte de la Fleur Claire.
+« Il en reste cinq! » La main droite de Wang Lin traça un nouveau sceau. Une pluie se mit à tomber instantanément et les innombrables gouttes se rassemblèrent pour former cinq épées de cristal qui s'élancèrent vers les cinq derniers disciples de la Secte Hua Qing.
 
 À ce moment précis, Noble Argent se rapprocha brusquement. Sa main droite plongea dans le vide et un espace de stockage s'ouvrit. Un plumeau blanc en sortit; Noble Argent s'en saisit et l'agita. Une forme de Loi apparut soudainement, se transformant en rayons de lumière blanche au-dessus de Wang Lin. Ces lueurs tombèrent comme une pluie d'épées, d'une rapidité fulgurante. Wang Lin leva brusquement la tête, des flammes brillant dans son œil gauche, et une armure cramoisie apparut autour de lui.
 

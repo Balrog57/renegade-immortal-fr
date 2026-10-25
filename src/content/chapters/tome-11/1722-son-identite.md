@@ -8,7 +8,7 @@ slug: son-identite
 ---
 L'image qui apparut cette fois-ci était une planète de culture. Wang Lin connaissait bien cette planète: c'était la planète Tian Yun!
 
-Tian Yunzi se trouvait dans une pièce secrète dissimulée au sein de la Secte du Destin Céleste. Devant lui siégeaient neuf jeunes gens, tous inconscients.
+Tian Yunzi se trouvait dans une pièce secrète dissimulée au sein de la Secte Tian Yun. Devant lui siégeaient neuf jeunes gens, tous inconscients.
 
 Les yeux de Tian Yunzi brillaient d'une lueur étrange tandis qu'il les contemplait. Il ouvrit la bouche et inspira profondément. Les neuf jeunes furent alors dévorés par lui.
 

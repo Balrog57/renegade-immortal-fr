@@ -58,7 +58,7 @@ Hu Pao réprima de force sa rage et lança un regard froid aux soldats démons q
 
 Bien que l'expression de Treize fût sombre, ses yeux étaient d'un calme absolu. Il ne daignait même pas songer au mépris des soldats démons. Il savait seulement que, dès que Wang Lin donnerait le signal, il attaquerait sans la moindre hésitation, quitte à y laisser la vie.
 
-Treize s'assit à la droite de Wang Lin, ferma les yeux et commença à pratiquer la méthode de raffinage corporel du Clan des Démons Géants.
+Treize s'assit à la droite de Wang Lin, ferma les yeux et commença à pratiquer la méthode de raffinage corporel du Clan Ju Mo.
 
 Le temps passa lentement et, en un clin d'œil, la nuit tomba. Tout au long de la journée, les cris d'entraînement des soldats démons n'avaient jamais cessé. Leur discipline reposait sur le combat réel et l'usage de formations tactiques. De temps à autre, des soldats passaient devant Wang Lin et ne pouvaient s'empêcher de le regarder avec un profond mépris.
 
@@ -74,9 +74,9 @@ Chaque régiment de mille hommes possédait un chef, dont la plupart étaient de
 
 S'il n'avait pas agi immédiatement, c'était parce qu'il comprenait parfaitement les lois militaires de ces contrées, grâce aux souvenirs de Lou Yun. Les neuf pays de cette région suivaient un droit militaire très différent du monde de la culture. À moins d'avoir une puissance suffisante pour défier l'Empereur Démon, il fallait se plier à leurs lois si l'on souhaitait bénéficier de leur puissance!
 
-Tout étranger arrivant en Terre des Esprits Démoniaques devait d'abord s'intégrer à l'un des neuf pays et obtenir un commandement militaire. C'était l'unique moyen de s'imposer. Si l'on se retrouvait seul face à un homme commandant des dizaines de milliers de soldats, le combat était inutile. Bien que la culture de ces soldats ne fût pas élevée, certains d'entre eux étaient de véritables maîtres; leur nombre les rendait redoutables, d'autant plus qu'ils étaient experts en formations mystérieuses et imprévisibles.
+Tout étranger arrivant en Terre Yao Ling devait d'abord s'intégrer à l'un des neuf pays et obtenir un commandement militaire. C'était l'unique moyen de s'imposer. Si l'on se retrouvait seul face à un homme commandant des dizaines de milliers de soldats, le combat était inutile. Bien que la culture de ces soldats ne fût pas élevée, certains d'entre eux étaient de véritables maîtres; leur nombre les rendait redoutables, d'autant plus qu'ils étaient experts en formations mystérieuses et imprévisibles.
 
-De plus, si l'on massacrait trop de soldats démons, des experts du rang de commandant en chef de la province ou de Général Démon finiraient par intervenir. À ce moment-là, un cultivateur solitaire ne pourrait plus jamais s'imposer dans ce pays! Il serait contraint de fuir vers la nation voisine, et ce, de façon répétée jusqu'à ne plus pouvoir circuler en Terre des Esprits Démoniaques. Il finirait par devoir se terrer dans un lieu isolé pour cultiver, perdant ainsi toute chance d'obtenir des mérites militaires ou de fusionner avec un démon ancien!
+De plus, si l'on massacrait trop de soldats démons, des experts du rang de commandant en chef de la province ou de Général Démon finiraient par intervenir. À ce moment-là, un cultivateur solitaire ne pourrait plus jamais s'imposer dans ce pays! Il serait contraint de fuir vers la nation voisine, et ce, de façon répétée jusqu'à ne plus pouvoir circuler en Terre Yao Ling. Il finirait par devoir se terrer dans un lieu isolé pour cultiver, perdant ainsi toute chance d'obtenir des mérites militaires ou de fusionner avec un démon ancien!
 
 C'est pour cette raison que tous les cultivateurs cherchaient à obtenir une position officielle au sein d'un pays. Par conséquent, Wang Lin devait respecter la loi militaire, sous peine de tout perdre!
 

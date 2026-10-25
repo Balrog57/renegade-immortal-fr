@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1027 - Vermillion Bird Divine Planet
 slug: planete-divine-de-loiseau-vermillon
 ---
-Au plus profond de l'Alliance, il existait quelques endroits que même l'Alliance ne pouvait contrôler. Malgré l'immensité de l'Alliance de Culture, pas un seul de ses membres ne pouvait faire un demi-pas dans ces lieux!
+Au plus profond de l'Alliance, il existait quelques endroits que même l'Alliance ne pouvait contrôler. Malgré l'immensité de l'Alliance Xiu Zhen, pas un seul de ses membres ne pouvait faire un demi-pas dans ces lieux!
 
 Quiconque y pénétrait s'exposait à une mort certaine, sans aucune chance de survie. Même les cultivateurs du stade de Purificateur du Nirvana n'oseraient même pas y poser le pied.
 
@@ -44,7 +44,7 @@ Les végétaux capables de survivre dans de telles conditions n'avaient rien de 
 
 Cet endroit possédait une énergie spirituelle semblable à celle des planètes de culture ordinaires, mais l'énergie ici était imprégnée d'un poison de feu. Si un mortel en inhalait ne serait-ce qu'une bouffée, son corps entier, jusqu'à la moelle de ses os, se transformerait instantanément en cendres noires.
 
-Même les cultivateurs ne pouvaient supporter longtemps ce poison de feu. Ce champ stellaire était nommé la Terre de l'Oiseau Vermillon, et ces neuf planètes étaient les Planètes Divines de l'Oiseau Vermillon!
+Même les cultivateurs ne pouvaient supporter longtemps ce poison de feu. Ce champ stellaire était nommé la Terre Zhu Que, et ces neuf planètes étaient les Planètes Divines de l'Oiseau Vermillon!
 
 La première Planète Divine était la plus vénérée! Dans sa partie méridionale se dressait une statue géante rouge sombre, qui s'élevait jusqu'aux cieux: celle d'un Oiseau Vermillon prenant son envol!
 
@@ -70,7 +70,7 @@ Le temps passa lentement et, en un clin d'œil, les flammes de la statue commenc
 
 À la périphérie, ceux qui n'avaient que peu absorbé de flammes avaient déjà ouvert les yeux. Bientôt, tout le monde retrouva la conscience.
 
-Même les trois anciens sur la queue sortirent de leur transe. L'un d'eux se leva, regarda les disciples de la Secte de l'Oiseau Vermillon et s'apprêta à parler.
+Même les trois anciens sur la queue sortirent de leur transe. L'un d'eux se leva, regarda les disciples de la Secte Zhu Que et s'apprêta à parler.
 
 Cependant, à cet instant précis, un changement stupéfiant survint!
 
@@ -134,18 +134,18 @@ L'individu dans l'image avait de longs cheveux flottants et le tatouage de l'Ois
 
 C'était Wang Lin!
 
-Dans cette vision, outre Wang Lin, on apercevait également l'Ancêtre Sainte du Clan du Tatouage, à l'apparence lugubre et aux orbites vides. Devant elle se tenait Qing Lin, formé de lumière cristalline!
+Dans cette vision, outre Wang Lin, on apercevait également l'Ancêtre Sainte du Clan Fu Wen, à l'apparence lugubre et aux orbites vides. Devant elle se tenait Qing Lin, formé de lumière cristalline!
 
 Dès que la scène apparut, la femme tourna soudainement le regard. Ses yeux vides firent trembler les esprits des observateurs.
 
 « Cette femme est... »
-« L'Ancêtre Sainte du Clan du Tatouage, Qiu Yao! »
+« L'Ancêtre Sainte du Clan Fu Wen, Qiu Yao! »
 « Et l'homme devant elle... pourrait-il être l'Empereur Céleste Qing Lin?! »
 
 Maître du Vide, Tian Yunzi et tous les autres apparurent également dans l'image!
 
 « Maître du Vide et Tian Yunzi sont là aussi! »
-« Cette personne a traversé l'Éveil de l'Oiseau Vermillon dans un lieu si périlleux... Maître du Vide est une figure clé de l'Alliance. Il ne permettra certainement pas à ma Secte de l'Oiseau Vermillon d'avoir un tel éveil! »
+« Cette personne a traversé l'Éveil de l'Oiseau Vermillon dans un lieu si périlleux... Maître du Vide est une figure clé de l'Alliance. Il ne permettra certainement pas à ma Secte Zhu Que d'avoir un tel éveil! »
 « Cependant, je n'ai jamais vu celui qui s'est éveillé. Comment a-t-il obtenu la Lignée de l'Oiseau Vermillon? »
 
 Les neuf personnes observaient la scène au cœur de la sphère de feu. À cet instant précis, un puissant Sens Divin émana des profondeurs du système stellaire embrasé. Cette présence était si forte qu'elle fit même marquer un temps d'arrêt aux flammes du système!
@@ -158,8 +158,8 @@ Après que ce Sens Divin eut balayé les lieux, les neuf individus manifestèren
 
 « Ce vieil homme ne dispose plus de beaucoup de temps, car mes blessures d'autrefois se sont aggravées. Cet enfant est l'espoir de ma Secte Divine de l'Oiseau Vermillon... Vous êtes les plus proches, alors, coûte que coûte, vous devez assurer sa sécurité! »
 
-À ce moment précis, à l'intérieur de la Grotte de l'Empereur Céleste, alors que Qing Lin apparaissait, Wang Lin sentit une chaleur intense dans son tatouage de l'Oiseau Vermillon. Il n'eut même pas le temps de vérifier quand plusieurs regards se posèrent sur lui.
+À ce moment précis, à l'intérieur de la Grotte Xian Di, alors que Qing Lin apparaissait, Wang Lin sentit une chaleur intense dans son tatouage de l'Oiseau Vermillon. Il n'eut même pas le temps de vérifier quand plusieurs regards se posèrent sur lui.
 
 Une intention meurtrière jaillit du Maître du Vide. Il avait immédiatement remarqué le changement du tatouage sur le corps de Wang Lin.
 
-« La Secte de l'Oiseau Vermillon a remarqué son éveil! »
+« La Secte Zhu Que a remarqué son éveil! »

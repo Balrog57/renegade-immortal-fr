@@ -12,7 +12,7 @@ D'un revers de main, il projeta les 300 bulles vers lui.
 
 L'homme chauve ouvrit soudainement les yeux, révélant une lueur étrange. Il fixa les 300 cultivateurs du Royaume Intérieur avec cruauté.
 
-« Seul dans le Royaume Intérieur mon Clan des Enfers a une chance de s'élever! Plus il y a de morts, plus l'aura de mort est puissante, et il y a en plus ces esprits vivants à dévorer... Si cela s'était produit dans le Système Stellaire Antique, tuer autant de personnes aurait entraîné la punition du Conseil Souverain. » L'homme afficha un sourire satisfait en agitant sa manche, et les 300 bulles explosèrent une à une.
+« Seul dans le Royaume Intérieur mon Clan Ming Ling a une chance de s'élever! Plus il y a de morts, plus l'aura de mort est puissante, et il y a en plus ces esprits vivants à dévorer... Si cela s'était produit dans le Système Stellaire Antique, tuer autant de personnes aurait entraîné la punition du Conseil Souverain. » L'homme afficha un sourire satisfait en agitant sa manche, et les 300 bulles explosèrent une à une.
 
 L'effondrement des bulles exposa les 300 cultivatrices de la Rivière Invoquée à l'aura de mort. Leurs visages se tordirent de douleur et, une fois les bulles éclatées, leurs corps commencèrent lentement à dépérir.
 
@@ -28,7 +28,7 @@ Ce reniflement fut tel un coup de tonnerre, propageant une onde sonore massive. 
 
 Les 300 ombres d'âmes originelles ouvrirent lentement les yeux, regardant autour d'elles avec confusion.
 
-« Qui est-ce? Quel cultivateur de la troisième étape est venu au Clan des Enfers? Ce vieil homme est le patriarche du Clan des Enfers; j'ignore ce que j'ai pu faire pour offenser le Senior. Je vous en prie... » L'homme chauve était livide et terrifié. Son cœur battait la chamade, saisi d'une peur mortelle.
+« Qui est-ce? Quel cultivateur de la troisième étape est venu au Clan Ming Ling? Ce vieil homme est le patriarche du Clan Ming Ling; j'ignore ce que j'ai pu faire pour offenser le Senior. Je vous en prie... » L'homme chauve était livide et terrifié. Son cœur battait la chamade, saisi d'une peur mortelle.
 
 L'autre partie n'avait émis qu'un simple reniflement, mais cela avait suffi à briser ses bras qui canalisaient un sortilège. Son esprit venait également de subir un choc violent. L'énergie et le sang à l'intérieur de son corps étaient en plein chaos et son âme originelle était au bord de l'effondrement.
 
@@ -42,7 +42,7 @@ L'expression de l'homme était sombre, et derrière lui flottaient des milliers 
 
 « Tu... Tu es... » L'esprit de l'homme chauve fut secoué. Après un instant de stupeur, l'aura familière de cet homme lui permit de se souvenir d'un nom. Dès qu'il s'en souvint, il poussa un cri incontrôlable et recula frénétiquement en hurlant.
 
-« Membres du Clan des Enfers, fuyez vite cette planète! Vite, vite...! »
+« Membres du Clan Ming Ling, fuyez vite cette planète! Vite, vite...! »
 
 Une lueur glaciale passa dans les yeux de Wang Lin et sa main droite s'étendit vers le vide. Une immense main illusoire apparut et se précipita sur l'homme chauve.
 
@@ -50,19 +50,19 @@ Alors qu'il criait encore, la main le saisit et l'écrasa. L'homme chauve laissa
 
 Cependant, sa tête resta intacte, son âme et son âme originelle étant scellées à l'intérieur. Tandis que Wang Lin retirait sa main, la tête vint se joindre aux milliers d'autres têtes derrière lui.
 
-Au même instant, partout sur la planète, les auras des membres du Clan des Enfers s'envolèrent. Chaque aura contenait un membre du clan. Bien que confus, ils n'hésitèrent pas une seconde à tenter de fuir la planète.
+Au même instant, partout sur la planète, les auras des membres du Clan Ming Ling s'envolèrent. Chaque aura contenait un membre du clan. Bien que confus, ils n'hésitèrent pas une seconde à tenter de fuir la planète.
 
 Bien qu'ils ignorassent ce qui se passait, l'ordre du patriarche était pour eux la loi suprême. Ils suivraient cet ordre jusqu'à la mort!
 
 Wang Lin se retourna, le regard froid. Il agita sa main droite et un éclair jaillit de son œil droit. Un immense éclair apparut et se divisa en d'innombrables directions, prenant Wang Lin comme épicentre.
 
-À cet instant, la foudre balaya la planète sombre dans un fracas de tonnerre. Chaque éclair était une sentence de mort verrouillée sur chaque membre du Clan des Enfers. Leurs corps explosèrent et le tonnerre ramena leurs têtes.
+À cet instant, la foudre balaya la planète sombre dans un fracas de tonnerre. Chaque éclair était une sentence de mort verrouillée sur chaque membre du Clan Ming Ling. Leurs corps explosèrent et le tonnerre ramena leurs têtes.
 
 Les cris de mort résonnèrent sur toute la planète. Wang Lin les ignora, se concentrant sur les 300 âmes originelles confuses. D'un geste léger de la main, il fit retourner les âmes originelles dans leurs corps respectifs.
 
 Wang Lin fit un pas en avant. À l'instant même où il avançait, les éclairs revenaient chargés de têtes. Il y avait désormais près de dix mille têtes derrière lui, et le tonnerre retourna dans l'œil droit de Wang Lin.
 
-En seulement quelques respirations, tous les membres du Clan des Enfers périrent; aucun ne survécut!
+En seulement quelques respirations, tous les membres du Clan Ming Ling périrent; aucun ne survécut!
 
 Flottant dans les airs, Wang Lin leva la main droite et pressa la terre. L'innombrable aura de mort entourant la planète surgit telle une mer déchaînée vers lui.
 

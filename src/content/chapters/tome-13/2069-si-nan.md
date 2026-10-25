@@ -20,7 +20,7 @@ Errant sous l'immensité du ciel, Wang Lin se sentait également tourmenté. Il 
 
 « Je ne peux pas substituer ma volonté à la leur. » Wang Lin poussa un soupir en regardant au loin. C'est là que se trouvait Situ Nan.
 
-Le pays de Wu Xuan était une nation mortelle située dans la partie nord du Continent Central, sur le Continent de la Cire Céleste. Le Continent de la Cire Céleste comptait quatre nations qui entretenaient des frictions constantes. Bien qu'il n'y ait pas de guerres à grande échelle, de nombreux escarmouches éclataient régulièrement aux frontières.
+Le pays de Wu Xuan était une nation mortelle située dans la partie nord du Continent Central, sur le Continent Tian La. Le Continent Tian La comptait quatre nations qui entretenaient des frictions constantes. Bien qu'il n'y ait pas de guerres à grande échelle, de nombreux escarmouches éclataient régulièrement aux frontières.
 
 Toutefois, les quatre pays maintenaient la situation sous contrôle, évitant ainsi que l'ampleur des conflits ne s'étende trop.
 

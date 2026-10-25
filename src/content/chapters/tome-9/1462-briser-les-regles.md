@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1462 - Breaking The Rules
 slug: briser-les-regles
 ---
-Les paroles de Wang Lin étaient aussi froides que la gelée et figèrent l'homme corpulent du Clan du Loup Céleste dans son élan. La sueur perlait sur son front alors qu'il fixait les neuf gouttes de liquide empoisonné qui l'encerclaient.
+Les paroles de Wang Lin étaient aussi froides que la gelée et figèrent l'homme corpulent du Clan Feng Tian Lang dans son élan. La sueur perlait sur son front alors qu'il fixait les neuf gouttes de liquide empoisonné qui l'encerclaient.
 
 Il sentait distinctement que ces gouttes contenaient une toxine inimaginable. Une seule goutte suffirait à faire pourrir sa chair et son âme originelle jusqu'à ce qu'il ne reste plus rien.
 
@@ -76,7 +76,7 @@ Ce sentiment le mettait mal à l'aise. C'était la première fois que Wang Lin e
 
 Le temps passa lentement. Wang Lin se laissa porter par la plateforme. Celle-ci traversa la cinquième carte pour entrer dans la sixième. La rune qu'il tenait avait changé des centaines de fois, et il avait examiné chaque mutation avec attention.
 
-« Il y a une force très étrange au sein de cette rune. Son pouvoir semble permettre aux individus d'exister ici pendant un court laps de temps... Si elle n'était pas là... » La main droite de Wang Lin s'étira vers le vide et la jeune fille du Clan de l'Extermination des Sceaux apparut devant lui.
+« Il y a une force très étrange au sein de cette rune. Son pouvoir semble permettre aux individus d'exister ici pendant un court laps de temps... Si elle n'était pas là... » La main droite de Wang Lin s'étira vers le vide et la jeune fille du Clan Feng Mie apparut devant lui.
 
 Bien qu'il eût pris la marque du clan de la jeune fille, il subsistait une marque entre ses sourcils. C'était la marque numérique!
 

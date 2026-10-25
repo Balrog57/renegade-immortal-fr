@@ -24,7 +24,7 @@ Sur la quatrième carte, le brouillard bouillonnait, produisant des sons semblab
 
 Un homme corpulent se tenait sur cette plateforme. Son buste dégageait une impression de puissance brute, et une ombre de loup géant semblait rugir derrière lui.
 
-La plateforme était recouverte de sang séché et son corps présentait plusieurs blessures. C'était le cultivateur du troisième niveau du Clan du Loup Céleste qui était entré dans ce tombeau en poursuivant Wang Lin!
+La plateforme était recouverte de sang séché et son corps présentait plusieurs blessures. C'était le cultivateur du troisième niveau du Clan Feng Tian Lang qui était entré dans ce tombeau en poursuivant Wang Lin!
 
 Alors que la plateforme avançait à vive allure, son expression restait sérieuse. Cependant, ses yeux s'illuminèrent et sa main droite traça un sceau. Lorsqu'il pressa sa main contre la plateforme, des grondements résonnèrent dans son esprit.
 
@@ -124,10 +124,10 @@ La forme de cette forêt gigantesque était celle d'un crâne!
 
 L'énergie de l'épée hurla en plongeant vers le sol!
 
-À ce moment précis, à la limite de la quatrième carte, l'homme massif du Clan du Loup Céleste suivit la carte et pénétra dans la cinquième.
+À ce moment précis, à la limite de la quatrième carte, l'homme massif du Clan Feng Tian Lang suivit la carte et pénétra dans la cinquième.
 
 Son expression était hideuse, empreinte d'une avidité manifeste. Une fois entré dans la cinquième carte, il agita la main et une Ancienne Feuille apparut dans sa paume!
 
-« J'ai déployé tant d'efforts pour voler l'une des deux feuilles, mais l'autre a été prise par Ling Dong. Il a disparu sans laisser de trace... Cette feuille semble très ordinaire; si je n'avais pas remarqué qu'elle possédait un pouvoir similaire à celui du Clan de l'Extermination des Sceaux lors de ma poursuite de ce maudit petit cultivateur, je n'aurais jamais soupçonné son importance! »
+« J'ai déployé tant d'efforts pour voler l'une des deux feuilles, mais l'autre a été prise par Ling Dong. Il a disparu sans laisser de trace... Cette feuille semble très ordinaire; si je n'avais pas remarqué qu'elle possédait un pouvoir similaire à celui du Clan Feng Mie lors de ma poursuite de ce maudit petit cultivateur, je n'aurais jamais soupçonné son importance! »
 
 « Il y a une marque de feuille au bout de la cinquième carte; il y en a peut-être d'autres! » L'homme massif se lécha les lèvres et fit avancer sa plateforme.

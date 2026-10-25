@@ -98,7 +98,7 @@ Peu après l'arrivée du Souverain, plusieurs rayons de lumière percèrent le b
 
 L'une d'elles observa Wang Lin avec une expression complexe. C'était la troisième concubine, celle qui avait interagi avec lui dans la Tombe Antique!
 
-Les disciples de la Secte des Sept Dao, venus de l'Ancien Royaume Céleste dans le Royaume Extérieur, arrivèrent avec les concubines. Ils encerclèrent la zone, les yeux rivés sur Wang Lin.
+Les disciples de la Secte Qi Dao, venus de l'Ancien Royaume Céleste dans le Royaume Extérieur, arrivèrent avec les concubines. Ils encerclèrent la zone, les yeux rivés sur Wang Lin.
 
 Bientôt, Zi Xia arriva de la Rivière Invoquée. Après avoir inspecté les lieux, son regard tomba sur Wang Lin, encerclé, et une lueur meurtrière traversa ses yeux.
 

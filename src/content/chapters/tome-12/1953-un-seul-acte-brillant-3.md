@@ -6,9 +6,9 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1953 - A Single Brilliant Feat! (3)"
 slug: un-seul-acte-brillant-3
 ---
-Continent du Sud, Secte Dao Yi.
+Continent Nan, Secte Dao Yi.
 
-Cette secte était la première du Continent du Sud, célèbre, et l'une des rares grandes sectes de tout le clan céleste. Car un Grand Empyréen nommé Dao Yi était issu de cette secte!
+Cette secte était la première du Continent Nan, célèbre, et l'une des rares grandes sectes de tout le clan céleste. Car un Grand Empyréen nommé Dao Yi était issu de cette secte!
 
 Dans les montagnes reculées, une cascade retentissait avec fracas. À côté se trouvait un étang où, assis tranquillement, un jeune homme vêtu d'une robe taoïste contemplait l'eau. Il tenait une branche de saule à la main, la laissant pendre au-dessus du bassin comme s'il pêchait.
 
@@ -16,17 +16,17 @@ Dans les montagnes reculées, une cascade retentissait avec fracas. À côté se
 
 « Il a passé le huitième palais... » sourit le jeune homme. D'un mouvement de sa branche de saule, il créa une ondulation à la surface de l'étang, et la scène de l'Épreuve Empyrée apparut.
 
-La majeure partie du Continent du Nord était recouverte de glace et de neige toute l'année. Le vent, faisant danser les flocons, hurlait comme des cris de fantômes, faisant trembler le cœur de la plupart des cultivateurs arrivant pour la première fois dans le Continent du Nord.
+La majeure partie du Continent Bei était recouverte de glace et de neige toute l'année. Le vent, faisant danser les flocons, hurlait comme des cris de fantômes, faisant trembler le cœur de la plupart des cultivateurs arrivant pour la première fois dans le Continent Bei.
 
-Une chaîne de montagnes s'étendait à l'extrême nord du Continent du Nord. Ce massif était un immense glacier qui n'avait pas fondu depuis des dizaines de milliers d'années. Ses formes irrégulières ressemblaient à des épées perçant le ciel. La glace scintillait sous le soleil, dégageant une intention glaciale.
+Une chaîne de montagnes s'étendait à l'extrême nord du Continent Bei. Ce massif était un immense glacier qui n'avait pas fondu depuis des dizaines de milliers d'années. Ses formes irrégulières ressemblaient à des épées perçant le ciel. La glace scintillait sous le soleil, dégageant une intention glaciale.
 
-Cet endroit était la grotte du Grand Empyréen Wu Feng, du Continent du Nord.
+Cet endroit était la grotte du Grand Empyréen Wu Feng, du Continent Bei.
 
 Sous l'un des glaciers siégeait un homme chauve d'âge moyen, d'une stature imposante. La lumière du soleil se réfractait sur la glace, créant une illusion qui révélait les scènes de l'Épreuve Empyrée.
 
 Ce grand cultivateur chauve restait calme, observant la silhouette qui se précipitait vers le neuvième palais. Ses yeux s'illuminèrent progressivement.
 
-Dès qu'un cultivateur franchissait le huitième palais, les Grands Empyréens en étaient informés. À cet instant précis, au loin, sur le Mont de l'Empereur dans le Continent Central, une femme magnifique se tenait parmi les feuilles d'automne qui tombaient. L'une d'elles, immobile, projetait les scènes de l'Épreuve Empyrée.
+Dès qu'un cultivateur franchissait le huitième palais, les Grands Empyréens en étaient informés. À cet instant précis, au loin, sur le Mont Di dans le Continent Central, une femme magnifique se tenait parmi les feuilles d'automne qui tombaient. L'une d'elles, immobile, projetait les scènes de l'Épreuve Empyrée.
 
 À ses côtés siégeait un vieil homme à l'allure nonchalante, comme dépourvu de toute énergie. Bien qu'il regardât la scène, il semblait n'avoir aucun esprit; c'était comme si ce qui se déroulait dans l'Épreuve Empyrée ne pouvait susciter son intérêt.
 
@@ -34,7 +34,7 @@ La belle femme fixa la feuille d'automne devant elle et dit doucement: « Maîtr
 
 Le vieil homme ouvrit les yeux et son regard balaya la feuille.
 
-« Si Maître recrutait quiconque franchissait le neuvième palais, le Mont de l'Empereur ne deviendrait-il pas trop bruyant? Le neuvième palais suffit à attirer l'attention de Dao Yi et Wu Feng, car ils sont devenus des Grands Empyréens plus tard et cherchent ardemment à étendre leur pouvoir. Outre la formation d'un sixième Grand Empyréen, ils doivent aussi trouver quelqu'un pour protéger leur réincarnation.
+« Si Maître recrutait quiconque franchissait le neuvième palais, le Mont Di ne deviendrait-il pas trop bruyant? Le neuvième palais suffit à attirer l'attention de Dao Yi et Wu Feng, car ils sont devenus des Grands Empyréens plus tard et cherchent ardemment à étendre leur pouvoir. Outre la formation d'un sixième Grand Empyréen, ils doivent aussi trouver quelqu'un pour protéger leur réincarnation.
 
 « Mais pour Maître, franchir le neuvième palais n'est rien de plus que des fourmis sur le sol. Qu'importe si une fourmi est un peu plus grande que les autres? Ce n'est que s'il parvenait à franchir le quinzième palais, comme Ming Dao, que Maître envisagerait de le recruter », déclara lentement le vieil homme.
 

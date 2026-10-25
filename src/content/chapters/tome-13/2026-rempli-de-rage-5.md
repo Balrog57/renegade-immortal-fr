@@ -68,7 +68,7 @@ Il était reconnu par le Grand Empyréen Gu Dao. Nul ne pouvait décider de son 
 
 « Wang Lin, tu es allé trop loin! Loin de protéger mon Dao Ancien, tu cherches manifestement à le détruire!! Un scélérat pareil mérite d'être châtié par tous!! »
 
-L'Empereur du Dao Ancien agita la main et rugit: « Venez! Tuez ce Wang Lin et apportez-moi sa tête!! » Simultanément, il jeta un regard sombre vers le Temple du Dao Ancien.
+L'Empereur du Dao Ancien agita la main et rugit: « Venez! Tuez ce Wang Lin et apportez-moi sa tête!! » Simultanément, il jeta un regard sombre vers le Temple Dao Gu.
 
 Wang Lin ferma silencieusement les yeux. Afin de ne pas peiner son maître, il s'était efforcé de rester calme à son arrivée. Il avait laissé une chance à l'Empereur du Dao Ancien. Si celui-ci avait remis Song Zhi, en qui le fragment d'âme de Wan Er était fusionné, une voie de rédemption aurait pu subsister entre lui, son maître et le Dao Ancien...
 

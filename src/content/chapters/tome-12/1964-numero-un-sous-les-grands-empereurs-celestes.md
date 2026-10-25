@@ -92,7 +92,7 @@ Dans la capitale impériale, le palais était plongé dans un silence de mort, e
 
 « Ming Dao, tu ne peux pas décevoir cet Empereur. Cet Empereur a tant fait pour toi... Il a même permis à ce Wang Lin de grandir... »
 
-Continent Central, Montagne de l'Empereur. Jiu Di contemplait intensément la feuille d'automne devant lui. En réfléchissant, il perçut un problème que les autres Grands Empyréens semblaient ignorer.
+Continent Central, Montagne Di. Jiu Di contemplait intensément la feuille d'automne devant lui. En réfléchissant, il perçut un problème que les autres Grands Empyréens semblaient ignorer.
 
 « S'il franchit le 17e palais, non seulement il sera célèbre, mais surtout... sa puissance de combat sera révélée. Avec une telle force, il deviendra numéro un des Ascendants sous les Grands Empyréens du clan céleste... Même si un Grand Empyréen s'acharne contre lui, il pourrait réussir à s'échapper... »
 

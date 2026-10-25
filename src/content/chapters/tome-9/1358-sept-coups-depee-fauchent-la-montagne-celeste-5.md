@@ -8,7 +8,7 @@ slug: sept-coups-depee-fauchent-la-montagne-celeste-5
 ---
 Lorsque le Grand Ancien vit cela, il perdit toute contenance. Il recula plus violemment encore, et la terreur qui glaçait son regard était une émotion qu'il n'avait jamais connue de sa vie!
 
-Si les habitants du Système Stellaire Antique avaient vu le Grand Ancien du Clan du Tonnerre Dispersé — un homme qui ne s'inclinait que rarement devant les cultivateurs du troisième niveau — agir ainsi, ils en seraient restés incrédules!
+Si les habitants du Système Stellaire Antique avaient vu le Grand Ancien du Clan Shan Lei — un homme qui ne s'inclinait que rarement devant les cultivateurs du troisième niveau — agir ainsi, ils en seraient restés incrédules!
 
 Alors qu'il tenait l'épée de sept pieds, Wang Lin sentait distinctement que le sixième coup était bien plus puissant que les cinq précédents. Il y respirait également des traces d'une rancœur monstrueuse!
 
@@ -44,11 +44,11 @@ L'effondrement de la marque du clan équivalait à l'autodestruction d'un cultiv
 
 « Meurs! Meurs! Meurs!! Vous allez tous crever!! Je sacrifie ma vie entière, toute ma culture! Ce vieil homme va utiliser le Sort des Trois Souffles!! Vous mourrez tous!!! »
 
-Le Sort des Trois Souffles n'était pas une technique du Clan du Tonnerre Dispersé, mais un héritage laissé par ces mystérieux cultivateurs avant leur départ. On pouvait le considérer comme un sort Dao!
+Le Sort des Trois Souffles n'était pas une technique du Clan Shan Lei, mais un héritage laissé par ces mystérieux cultivateurs avant leur départ. On pouvait le considérer comme un sort Dao!
 
 Il permettait d'arracher toute vitalité à l'ennemi en trois souffles, mais au prix de sa propre vie. Quiconque l'utilisait ne survivait jamais, car c'était un sort où une vie s'échangeait contre une autre!
 
-Même les cultivateurs du troisième niveau auraient eu des difficultés face à ce sort Dao. C'était la raison pour laquelle le Clan du Tonnerre Dispersé restait une grande puissance malgré l'absence de cultivateur du troisième niveau!
+Même les cultivateurs du troisième niveau auraient eu des difficultés face à ce sort Dao. C'était la raison pour laquelle le Clan Shan Lei restait une grande puissance malgré l'absence de cultivateur du troisième niveau!
 
 Le Grand Ancien, devenu fou, pointa Wang Lin du doigt et poussa un cri féroce.
 
@@ -96,13 +96,13 @@ Le rayon d'énergie de l'épée trembla, montrant des signes de rupture. Cependa
 
 Les 7 Millions de Mondes en plein effondrement se transformèrent en d'innombrables fragments. Tous les êtres survivants offrirent volontairement leur vie à l'épée pour entamer leur ultime combat contre le tonnerre éternel!
 
-L'épée de sept pieds contenait toute la puissance des 7 Millions de Mondes! Le tonnerre éternel était l'objet sacré du Clan du Tonnerre Dispersé. La confrontation de ces deux forces représentait la détermination des peuples des 7 Millions de Mondes à conquérir leur liberté!
+L'épée de sept pieds contenait toute la puissance des 7 Millions de Mondes! Le tonnerre éternel était l'objet sacré du Clan Shan Lei. La confrontation de ces deux forces représentait la détermination des peuples des 7 Millions de Mondes à conquérir leur liberté!
 
 Un rugissement tonitruant résonna dans le monde entier. Ce grondement fut si puissant qu'il fit apparaître des fissures sur la barrière aux confins du monde, avant que celle-ci ne s'effondre brusquement!
 
 L'effondrement de la barrière laissa entrer le chaos, et les 7 Millions de Mondes commencèrent à se désintégrer!
 
-Simultanément, l'épée de sept pieds se brisa en une multitude de fragments. Le tonnerre éternel sembla également avoir subi un coup terrible. Délaissant le Grand Ancien, il brisa rapidement le vide pour regagner la terre sacrée. Dès son retour dans le temple, sur les seize planètes de culture du Clan du Tonnerre Dispersé, une formation échappant au contrôle des cultivateurs s'activa, interdisant à quiconque d'y mettre le pied!
+Simultanément, l'épée de sept pieds se brisa en une multitude de fragments. Le tonnerre éternel sembla également avoir subi un coup terrible. Délaissant le Grand Ancien, il brisa rapidement le vide pour regagner la terre sacrée. Dès son retour dans le temple, sur les seize planètes de culture du Clan Shan Lei, une formation échappant au contrôle des cultivateurs s'activa, interdisant à quiconque d'y mettre le pied!
 
 « Membres restants du clan, le Royaume Céleste est ouvert. Le monde est détruit, nous partons donc vers l'extérieur! » Le Daoïste Esprit Dispersé était transporté par une excitation monstrueuse. D'un revers de manche, il emmena toutes les vies restantes des 7 Millions de Mondes à travers la brèche laissée par le départ du tonnerre éternel!
 

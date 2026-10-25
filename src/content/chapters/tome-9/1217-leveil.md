@@ -8,17 +8,17 @@ slug: leveil
 ---
 Depuis que Wang Lin était entré dans le Royaume aux Sept Couleurs, le temps s'était écoulé avec rapidité; quatre-vingt-dix-neuf années s'étaient déjà passées...
 
-Au cours de ces 99 ans, un changement cataclysmique avait secoué le Système Stellaire de l'Alliance. Les Quatre Sectes Divines s'étaient déployées avec force, balayant les vestiges de l'Alliance de Culture. Elles avaient également contraint la Secte des Cadavres à coopérer pour repousser l'armée de Luotian.
+Au cours de ces 99 ans, un changement cataclysmique avait secoué le Système Stellaire de l'Alliance. Les Quatre Sectes Divines s'étaient déployées avec force, balayant les vestiges de l'Alliance Xiu Zhen. Elles avaient également contraint la Secte Shi Yin à coopérer pour repousser l'armée de Luotian.
 
-À l'origine, la Secte des Cadavres n'avait aucune intention de s'impliquer; elle préférait rester en retrait pour profiter de la situation, car il semblait qu'il s'agisse de Luotian ou des Quatre Sectes Divines, aucun des deux camps ne pourrait l'emporter sans l'aide de la Secte des Cadavres.
+À l'origine, la Secte Shi Yin n'avait aucune intention de s'impliquer; elle préférait rester en retrait pour profiter de la situation, car il semblait qu'il s'agisse de Luotian ou des Quatre Sectes Divines, aucun des deux camps ne pourrait l'emporter sans l'aide de la Secte Shi Yin.
 
-La Secte des Cadavres se souciait peu du fait que les cultivateurs de Luotian fussent des envahisseurs! Ce qui importait à ses yeux, c'était l'immense commerce de vente et d'achat de corps que la guerre générait. La Secte des Cadavres espérait même que ce conflit ne s'interrompe jamais.
+La Secte Shi Yin se souciait peu du fait que les cultivateurs de Luotian fussent des envahisseurs! Ce qui importait à ses yeux, c'était l'immense commerce de vente et d'achat de corps que la guerre générait. La Secte Shi Yin espérait même que ce conflit ne s'interrompe jamais.
 
-Cependant, tout cela fut ruiné par un homme: l'Empereur Divin du Dragon Azure. Il s'était précipité au sein de la Secte des Cadavres, massacrant de ses propres mains de nombreux Anciens et blessant gravement les rois restants. Cela avait contraint le Maître de la Secte des Cadavres, c'est-à-dire le Premier Roi, à sortir de sa retraite. Les deux hommes s'étaient livrés à une bataille qui avait ébranlé tout le système stellaire!
+Cependant, tout cela fut ruiné par un homme: l'Empereur Divin du Dragon Azure. Il s'était précipité au sein de la Secte Shi Yin, massacrant de ses propres mains de nombreux Anciens et blessant gravement les rois restants. Cela avait contraint le Maître de la Secte Shi Yin, c'est-à-dire le Premier Roi, à sortir de sa retraite. Les deux hommes s'étaient livrés à une bataille qui avait ébranlé tout le système stellaire!
 
-En fin de compte, le Premier Roi de la Secte des Cadavres fut totalement vaincu. Si ce n'était pas pour les autres motivations de l'Empereur Divin du Dragon Azure, il lui aurait été facile de l'exterminer!
+En fin de compte, le Premier Roi de la Secte Shi Yin fut totalement vaincu. Si ce n'était pas pour les autres motivations de l'Empereur Divin du Dragon Azure, il lui aurait été facile de l'exterminer!
 
-Cette bataille avait profondément ébranlé la Secte des Cadavres et leur avait fait prendre la mesure de la puissance des Quatre Sectes Divines. Ils éprouvèrent également une terreur extrême envers l'Empereur Divin du Dragon Azure. La Secte des Cadavres fut contraint d'obéir aux ordres des Quatre Sectes Divines et entama sa guerre contre Luotian!
+Cette bataille avait profondément ébranlé la Secte Shi Yin et leur avait fait prendre la mesure de la puissance des Quatre Sectes Divines. Ils éprouvèrent également une terreur extrême envers l'Empereur Divin du Dragon Azure. La Secte Shi Yin fut contraint d'obéir aux ordres des Quatre Sectes Divines et entama sa guerre contre Luotian!
 
 Ce fut un affrontement titanesque entre les deux systèmes stellaires. C'est au cours de cette guerre que Tuo Sen s'éveilla et brisa la formation entourant la planète Suzaku!
 
@@ -40,11 +40,11 @@ Quant à la Secte Divine de l'Oiseau Vermillon, les flammes éternelles furent �
 
 Nul membre de la Secte Divine de l'Oiseau Vermillon n'osa exprimer sa colère.
 
-Puis, Tuo Sen partit vers le Royaume du Vide Brillant pour combattre le vieil homme. Après avoir scellé ce dernier entre ses sourcils, il utilisa la Lance Tueuse de Dieux et provoqua l'effondrement du Royaume du Vide Brillant! Le Royaume du Vide Brillant, qui avait existé durant d'innombrables années, disparut à jamais, ne devenant qu'un souvenir.
+Puis, Tuo Sen partit vers le Royaume Kun Xu pour combattre le vieil homme. Après avoir scellé ce dernier entre ses sourcils, il utilisa la Lance Tueuse de Dieux et provoqua l'effondrement du Royaume Kun Xu! Le Royaume Kun Xu, qui avait existé durant d'innombrables années, disparut à jamais, ne devenant qu'un souvenir.
 
 Le corps de Mu Bingmei s'effondra. Son âme originelle fut gravement blessée et elle disparut. Tuo Sen ne jugea pas nécessaire de la poursuivre; il lui laissa simplement une marque avant de la laisser partir.
 
-Peu de temps après, la Secte des Cadavres fut attaquée en raison de la rage de Tuo Sen, qui ne parvenait pas à trouver Wang Lin. D'innombrables vies furent fauchées, puis Tuo Sen s'en alla.
+Peu de temps après, la Secte Shi Yin fut attaquée en raison de la rage de Tuo Sen, qui ne parvenait pas à trouver Wang Lin. D'innombrables vies furent fauchées, puis Tuo Sen s'en alla.
 
 La dernière destination de Tuo Sen fut le Royaume Céleste de la Pluie scellé. Face au sceau entourant ce royaume, Tuo Sen devint sérieux pour la première fois. Cependant, ce sérieux ne fit qu'accentuer son arrogance et sa fierté.
 
@@ -60,11 +60,11 @@ Seul un rugissement qui fit trembler le système stellaire tout entier résonna 
 
 « Wang Lin, où diable es-tu?! »
 
-Des paroles au sens similaire furent également prononcées par Lu Yanfei à la Secte de l'Origine, sur le continent de Mo Luo, dans le Système Stellaire de la Mer des Nuages.
+Des paroles au sens similaire furent également prononcées par Lu Yanfei à la Secte Gui Yuan, sur le continent de Mo Luo, dans le Système Stellaire de la Mer Yun.
 
 « Senior, où êtes-vous... Il ne reste qu'un an avant la compétition de la secte principale... Reviendrez-vous... »
 
-Dans le Système Stellaire de la Mer des Nuages, la Secte du Dao Pourpre s'était rapidement développé, s'approchant du rang des six plus grandes sectes de la région de niveau 5. Pourtant, durant ces cent ans, le maître de la Secte du Dao Pourpre, Lu Yuncong, avait toujours contemplé les étoiles comme s'il cherchait à se remémorer quelque chose. Seul le vieil homme qui l'accompagnait entendait parfois ses doux murmures:
+Dans le Système Stellaire de la Mer Yun, la Secte Zi Dao s'était rapidement développé, s'approchant du rang des six plus grandes sectes de la région de niveau 5. Pourtant, durant ces cent ans, le maître de la Secte Zi Dao, Lu Yuncong, avait toujours contemplé les étoiles comme s'il cherchait à se remémorer quelque chose. Seul le vieil homme qui l'accompagnait entendait parfois ses doux murmures:
 
 « Frère Lu, j'ai énormément bénéficié de notre débat sur le Dao il y a tant d'années. Pourtant, cent ans ont passé et je n'ai toujours aucune nouvelle de vous... Ma culture s'est améliorée. Si nous pouvions nous revoir, je voudrais débattre du Dao avec vous à nouveau... »
 
@@ -80,9 +80,9 @@ Presque tous les cultivateurs savaient que Li Qianmei possédait un trésor: un 
 
 « Toi, où es-tu maintenant... Près de cent ans ont passé... » À cet instant, Li Qianmei était assise sur une simple plateforme de culture, le visage pâle. Elle semblait blessée. Devant elle, une multitude de bêtes féroces chargeaient à travers le brouillard, contenues par d'innombrables cultivateurs. Elle paraissait avoir oublié le massacre du champ de bataille et les rugissements des bêtes; elle leva la tête et regarda au loin...
 
-Au cœur d'un brouillard, dans la Mer des Nuages, se trouvait un continent sauvage. Mu Bingmei avait utilisé un sort secret du Royaume du Vide Brillant pour briser la barrière spatiale et s'échapper ici. Elle reconstruisait lentement sa chair. Après avoir été gravement blessée et avoir vu son corps détruit par Tuo Sen, elle avait ressenti, pour une raison inconnue, le besoin de revoir Wang Lin une dernière fois...
+Au cœur d'un brouillard, dans la Mer Yun, se trouvait un continent sauvage. Mu Bingmei avait utilisé un sort secret du Royaume Kun Xu pour briser la barrière spatiale et s'échapper ici. Elle reconstruisait lentement sa chair. Après avoir été gravement blessée et avoir vu son corps détruit par Tuo Sen, elle avait ressenti, pour une raison inconnue, le besoin de revoir Wang Lin une dernière fois...
 
-« Wang Lin, je me demande si tu vas bien... » Dans la grotte d'un continent sauvage de la Mer des Nuages, Mu Bingmei ouvrit lentement ses beaux yeux et regarda devant elle. Un sentiment de solitude qu'elle n'avait jamais éprouvé jusqu'alors envahit son cœur. Elle ressentait un froid intense dans ce lieu étranger où elle cultivait en solitaire. Le froid semblait envelopper son corps et la grotte; en écoutant le vent glacial souffler à l'extérieur, elle se sentait encore plus glacée.
+« Wang Lin, je me demande si tu vas bien... » Dans la grotte d'un continent sauvage de la Mer Yun, Mu Bingmei ouvrit lentement ses beaux yeux et regarda devant elle. Un sentiment de solitude qu'elle n'avait jamais éprouvé jusqu'alors envahit son cœur. Elle ressentait un froid intense dans ce lieu étranger où elle cultivait en solitaire. Le froid semblait envelopper son corps et la grotte; en écoutant le vent glacial souffler à l'extérieur, elle se sentait encore plus glacée.
 
 Le Royaume aux Sept Couleurs était plongé dans les ténèbres depuis plus de cent ans, depuis que toutes les lumières colorées avaient disparu. Une force mystérieuse enveloppait la montagne où l'âme originelle et l'âme de Wang Lin s'étaient volatilisées, rendant toute intrusion impossible. Maître Nuage-Âme avait tenté de forcer le passage, mais en vain. Il n'avait pu que trouver une grotte à proximité et contempler silencieusement ce monde obscur pendant cent ans.
 

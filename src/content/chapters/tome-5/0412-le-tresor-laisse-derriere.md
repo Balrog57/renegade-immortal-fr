@@ -116,7 +116,7 @@ Une grande partie du corps de cet homme était couverte de runes. Rien que par s
 
 Une voix rauque s'éleva de l'inconnu: « Ce pays de culture est en effet intéressant. Pensez-vous qu'il existe ici un trésor capable de renverser la situation? »
 
-Un vieil homme aux cheveux blancs, vêtu d'une robe noire, sortit de la Secte Tian Dao. Il fixa le membre du Clan des Immortels Délaissés avec haine et déclara: « Vous pouvez essayer! »
+Un vieil homme aux cheveux blancs, vêtu d'une robe noire, sortit de la Secte Tian Dao. Il fixa le membre du Clan Xian Yi avec haine et déclara: « Vous pouvez essayer! »
 
 L'homme laissa échapper un rire tandis que ses yeux brillaient, libérant sa véritable puissance. Ses runes s'animèrent jusqu'à quitter son corps pour former des dragons qui tournoyaient autour de lui.
 
@@ -136,6 +136,6 @@ Mais si Zhao affrontait une grande calamité, cette sculpture libérerait une pu
 
 Au moment où les dragons approchèrent, toute la montagne Heng Yue trembla et une sculpture sur bois s'élança dans le ciel.
 
-Dès l'apparition de l'objet, les dragons en pleine charge furent ébranlés, et les yeux de l'homme du Clan des Immortels Délaissés s'illuminèrent d'une lueur étrange.
+Dès l'apparition de l'objet, les dragons en pleine charge furent ébranlés, et les yeux de l'homme du Clan Xian Yi s'illuminèrent d'une lueur étrange.
 
 « Ainsi, il existe un trésor contenant une trace de domaine, laissé par un cultivateur de la Formation de l'Âme. Cependant, le niveau de ce cultivateur est bien trop faible, il n'était qu'au stade initial de la Formation de l'Âme. Même s'il venait en personne, je pourrais le tuer ici même; alors comment un trésor pourrait-il m'arrêter? » Une fois que l'homme du clan eut fini de parler, la lumière mystérieuse dans ses yeux disparut, laissant place à nouveau au mépris.

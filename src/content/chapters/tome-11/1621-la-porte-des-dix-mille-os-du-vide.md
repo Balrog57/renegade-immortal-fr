@@ -1,16 +1,16 @@
 ---
 n: 1621
-title: La Porte des Dix Mille Os du Vide
+title: La Porte Wan Kong Gu
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1621 - Ten Thousand Void Bone Gate
 slug: la-porte-des-dix-mille-os-du-vide
 ---
-Il ne la nourrit pas, et n'avait pas même le temps d'y songer. Ce qu'il voulait, c'était que la Porte du Vide entre en éruption afin que sa culture augmente considérablement après avoir atteint la troisième étape!
+Il ne la nourrit pas, et n'avait pas même le temps d'y songer. Ce qu'il voulait, c'était que la Porte Kong entre en éruption afin que sa culture augmente considérablement après avoir atteint la troisième étape!
 
-S'il absorbait la puissance de la Porte du Vide dès maintenant, il deviendrait immédiatement un cultivateur du Vide du Nirvana au stade intermédiaire. Cependant, il ne le souhaitait pas; ce n'était là que deux essences.
+S'il absorbait la puissance de la Porte Kong dès maintenant, il deviendrait immédiatement un cultivateur du Vide du Nirvana au stade intermédiaire. Cependant, il ne le souhaitait pas; ce n'était là que deux essences.
 
-Alors que Wang Lin pointait du doigt, un rugissement furieux sembla émaner du vortex formé par l'effondrement de la Porte du Vide. Tandis que le vortex tournait avec rapidité, la troisième Porte du Vide apparut!
+Alors que Wang Lin pointait du doigt, un rugissement furieux sembla émaner du vortex formé par l'effondrement de la Porte Kong. Tandis que le vortex tournait avec rapidité, la troisième Porte Kong apparut!
 
 Cependant, au moment même où la troisième Porte surgissait, la quatrième apparut également!
 
@@ -34,33 +34,33 @@ L'expression de Wang Lin restait calme alors qu'il contemplait les trois Portes 
 
 L'Empreinte Karmique. Wang Lin avait passé plus de 70 ans dans le Dao du Rêve à comprendre cela à travers le karma. C'était son cinquième sortilège originel.
 
-Dès qu'il prononça « empreinte », sa main droite s'abattit sur la troisième Porte du Vide et une lueur glaciale passa dans ses yeux. Ses doigts se crispèrent avec force et, dans un fracas assourdissant, sa main se referma en un poing.
+Dès qu'il prononça « empreinte », sa main droite s'abattit sur la troisième Porte Kong et une lueur glaciale passa dans ses yeux. Ses doigts se crispèrent avec force et, dans un fracas assourdissant, sa main se referma en un poing.
 
 C'était comme si cette prise avait saisi le karma même du monde. La main droite de Wang Lin se retira de la porte.
 
-Il fit un mouvement brusque vers l'extérieur, et une ombre déformée de la Porte du Vide sembla être arrachée par Wang Lin.
+Il fit un mouvement brusque vers l'extérieur, et une ombre déformée de la Porte Kong sembla être arrachée par Wang Lin.
 
-Au moment où il leva sa main droite, un grondement sourd émana de la troisième Porte du Vide. Des craquements résonnèrent et des fissures se propagèrent depuis l'endroit où la main de Wang Lin avait frappé, recouvrant la totalité de la porte. Puis, dans une explosion, l'intégralité de la structure vola en éclats en d'innombrables fragments.
+Au moment où il leva sa main droite, un grondement sourd émana de la troisième Porte Kong. Des craquements résonnèrent et des fissures se propagèrent depuis l'endroit où la main de Wang Lin avait frappé, recouvrant la totalité de la porte. Puis, dans une explosion, l'intégralité de la structure vola en éclats en d'innombrables fragments.
 
-La troisième Porte du Vide s'effondra!
+La troisième Porte Kong s'effondra!
 
 Au moment même de cet effondrement, le rire de Wang Lin retentit et l'essence karmique enveloppa son corps. L'aura autour de lui augmenta prodigieusement, passant du stade intermédiaire au stade avancé du Vide du Nirvana!
 
-Depuis les temps anciens, nul n'avait jamais accompli un tel exploit tout en brisant la Porte du Vide!
+Depuis les temps anciens, nul n'avait jamais accompli un tel exploit tout en brisant la Porte Kong!
 
-Wang Lin ne s'arrêta pas là. Alors que la troisième Porte se brisait, il traversa les fragments. Il atteignit la quatrième Porte du Vide et pressa ses deux mains vers elle.
+Wang Lin ne s'arrêta pas là. Alors que la troisième Porte se brisait, il traversa les fragments. Il atteignit la quatrième Porte Kong et pressa ses deux mains vers elle.
 
 « Sceau de la Vie et de la Mort! »
 
-La main gauche de Wang Lin fut parcourue d'un gaz blanc qui, dès le contact, s'engouffra dans la Porte du Vide, en occupant la moitié. Simultanément, un gaz noir se répandit de sa main droite et balaya l'ouverture. Les gaz noir et blanc commencèrent à graviter ensemble, et la Porte du Vide trembla violemment.
+La main gauche de Wang Lin fut parcourue d'un gaz blanc qui, dès le contact, s'engouffra dans la Porte Kong, en occupant la moitié. Simultanément, un gaz noir se répandit de sa main droite et balaya l'ouverture. Les gaz noir et blanc commencèrent à graviter ensemble, et la Porte Kong trembla violemment.
 
 Lorsque Wang Lin prononça « Sceau de la Vie et de la Mort », ses yeux furent empreints d'une fierté qui semblait mépriser le monde entier. Ses deux mains tirèrent vers les côtés.
 
 « Ouvre-toi pour moi! »
 
-Alors que Wang Lin rugissait, ses mains semblaient contenir le pouvoir même de la vie et de la mort. La quatrième Porte du Vide trembla violemment avant de s'effondrer.
+Alors que Wang Lin rugissait, ses mains semblaient contenir le pouvoir même de la vie et de la mort. La quatrième Porte Kong trembla violemment avant de s'effondrer.
 
-La quatrième Porte du Vide s'effondra!
+La quatrième Porte Kong s'effondra!
 
 À l'instant où cette porte céda, l'aura de Wang Lin explosa de nouveau. Elle passa du stade avancé au sommet du Vide du Nirvana. Il se tenait désormais au faîte du Vide du Nirvana!
 
@@ -68,9 +68,9 @@ Une fissure était sur le point d'apparaître entre ses sourcils. L'intérieur d
 
 C'était une caractéristique unique aux cultivateurs du Vide Spirituel: leur propre Domaine de la Flamme Joss pour nourrir leurs âmes de flammes. Ils pouvaient même forcer autrui à les vénérer et à devenir leurs esclaves de la Flamme Joss!
 
-Wang Lin avait ouvert la Porte du Vide par lui-même, sans l'aide des Flammes Joss. En conséquence, la fissure entre ses sourcils n'était pas un monde de flammes, mais son propre monde. Même sans Flammes Joss, il pourrait toujours contraindre quelqu'un à l'adorer. Pour l'heure, la fissure ne s'était pas encore totalement ouverte car son niveau de culture n'était pas encore assez élevé.
+Wang Lin avait ouvert la Porte Kong par lui-même, sans l'aide des Flammes Joss. En conséquence, la fissure entre ses sourcils n'était pas un monde de flammes, mais son propre monde. Même sans Flammes Joss, il pourrait toujours contraindre quelqu'un à l'adorer. Pour l'heure, la fissure ne s'était pas encore totalement ouverte car son niveau de culture n'était pas encore assez élevé.
 
-Dans un rire, il agita sa manche et repoussa les fragments de la Porte du Vide. Ce qui apparut devant lui était la cinquième Porte du Vide!
+Dans un rire, il agita sa manche et repoussa les fragments de la Porte Kong. Ce qui apparut devant lui était la cinquième Porte Kong!
 
 Cette cinquième porte était encore plus dense et réelle que les précédentes. Elle se dressait là, immuable, mais Wang Lin ne chercha pas à la déchirer de ses mains. Au lieu de cela, son regard devint terrifiant tandis qu'il fixait la cinquième porte, puis il ferma les yeux.
 
@@ -78,15 +78,15 @@ Les yeux clos, tout ce qui composait le monde dans le cœur de Wang Lin devint i
 
 Après un instant de silence, Wang Lin ouvrit soudainement les yeux. À cet instant, tout ce qui était faux dans le monde devint vrai. C'était le sortilège qu'il avait compris de l'essence du Vrai et du Faux: le Dao du Vrai et du Faux!
 
-La cinquième Porte du Vide trônait parmi les étoiles, mais Wang Lin ferma de nouveau les yeux. Il leva la main droite et fit un geste de la main. Un simple mouvement, presque désinvolte.
+La cinquième Porte Kong trônait parmi les étoiles, mais Wang Lin ferma de nouveau les yeux. Il leva la main droite et fit un geste de la main. Un simple mouvement, presque désinvolte.
 
 Pourtant, sous les yeux de tous, y compris de Zhou Jin, du jeune homme en robe verte, de Xushen Tianzun, de Situ Nan et de Nan Yunzi, la cinquième porte se déforma et se changea en poussière par ce simple geste. Elle s'effondra silencieusement devant lui.
 
 Wang Lin avait brisé une à une les cinq Portes du Vide. La fissure qui était apparue faiblement entre ses sourcils se forma désormais complètement, dégageant une force d'aspiration infinie. C'était comme si le système stellaire tout entier allait être aspiré!
 
-L'aura extrêmement puissante d'un cultivateur du Vide Spirituel émanait de Wang Lin! S'il l'avait voulu, il aurait pu absorber la puissance de la Porte du Vide pour devenir un cultivateur du Vide Spirituel au stade initial, mais comment le pourrait-il? Il n'avait utilisé que cinq essences; il lui restait encore l'essence de massacre que Qing Shui lui avait offerte!
+L'aura extrêmement puissante d'un cultivateur du Vide Spirituel émanait de Wang Lin! S'il l'avait voulu, il aurait pu absorber la puissance de la Porte Kong pour devenir un cultivateur du Vide Spirituel au stade initial, mais comment le pourrait-il? Il n'avait utilisé que cinq essences; il lui restait encore l'essence de massacre que Qing Shui lui avait offerte!
 
-L'essence de massacre complète qu'il venait d'absorber lui permettrait de déclencher la Porte du Vide une sixième fois!
+L'essence de massacre complète qu'il venait d'absorber lui permettrait de déclencher la Porte Kong une sixième fois!
 
 Le fait qu'il brise la Porte par le karma, qu'il la déchire par la vie et la mort, et qu'il la réduise en poussière par le vrai et le faux terrifiait les cultivateurs qui assistaient à la scène.
 
@@ -102,16 +102,16 @@ Les essences se divisaient entre le corporel et l'éthéré. La foudre et le feu
 
 « Sixième essence: l'essence de massacre! » La voix de Wang Lin était calme, mais elle portait une aura de carnage terrifiante. Alors que ses paroles résonnaient, des flocons de neige rouges apparurent de nulle part et se dispersèrent.
 
-Tandis que les flocons rouges dérivaient, la sixième Porte du Vide surgit soudainement!
+Tandis que les flocons rouges dérivaient, la sixième Porte Kong surgit soudainement!
 
 Cette sixième Porte était radicalement différente des cinq autres; elle était faite d'os blancs. À première vue, ce n'était pas une porte, mais un crâne gigantesque. Son apparence grotesque se matérialisa lentement devant Wang Lin, puis une ondulation se propagea dans toutes les directions. Tout cultivateur touché par cette onde trembla instantanément et vieillit de façon fulgurante.
 
 Près de dix mille personnes ne purent même pas pousser un cri avant de mourir de vieillesse sous l'effet de cette onde, pour ensuite tomber en poussière.
 
-« La Porte des Dix Mille Os du Vide! » Seules deux personnes ici reconnurent cette porte. L'une était Xushen Tianzun et l'autre était le Maître Nan Yunzi. Même le jeune homme en robe verte n'en avait jamais entendu parler.
+« La Porte Wan Kong Gu! » Seules deux personnes ici reconnurent cette porte. L'une était Xushen Tianzun et l'autre était le Maître Nan Yunzi. Même le jeune homme en robe verte n'en avait jamais entendu parler.
 
-« Ceci... c'est... Cette apparence, cette porte d'os blancs... Serait-ce la légendaire Porte des Dix Mille Os du Vide? » Xushen Tianzun regarda ce crâne colossal et une horreur sans fin envahit ses yeux.
+« Ceci... c'est... Cette apparence, cette porte d'os blancs... Serait-ce la légendaire Porte Wan Kong Gu? » Xushen Tianzun regarda ce crâne colossal et une horreur sans fin envahit ses yeux.
 
-« La concubine impériale céleste disait que la Porte des Dix Mille Os du Vide était un gouffre céleste de sa terre natale. Là-bas, les êtres capables de déclencher cette porte sont extrêmement rares, mais s'ils ne meurent pas prématurément, ils deviendront assurément de puissants maîtres à l'avenir! »
+« La concubine impériale céleste disait que la Porte Wan Kong Gu était un gouffre céleste de sa terre natale. Là-bas, les êtres capables de déclencher cette porte sont extrêmement rares, mais s'ils ne meurent pas prématurément, ils deviendront assurément de puissants maîtres à l'avenir! »
 
-« La Porte des Dix Mille Os du Vide... L'ancien Seigneur du Royaume Scellé disait que quiconque parviendrait à déclencher cette porte pour atteindre la troisième étape aurait un avenir inimaginable. Il affirmait que cette porte d'os n'appartenait pas à ce monde... mais était un signe des cieux provenant de sa terre natale! » Le Maître Nan Yunzi contemplait l'étrange porte d'os, les yeux écarquillés par l'incrédulité.
+« La Porte Wan Kong Gu... L'ancien Seigneur du Royaume Scellé disait que quiconque parviendrait à déclencher cette porte pour atteindre la troisième étape aurait un avenir inimaginable. Il affirmait que cette porte d'os n'appartenait pas à ce monde... mais était un signe des cieux provenant de sa terre natale! » Le Maître Nan Yunzi contemplait l'étrange porte d'os, les yeux écarquillés par l'incrédulité.

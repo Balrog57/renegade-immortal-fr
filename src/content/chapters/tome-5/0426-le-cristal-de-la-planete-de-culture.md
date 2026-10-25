@@ -8,7 +8,7 @@ slug: le-cristal-de-la-planete-de-culture
 ---
 « Oh? » Wang Lin tourna le regard vers Situ Nan.
 
-Les yeux de Situ Nan brillaient de joie. Dans un sourire, il déclara: « Bien! Ce vieil homme a enfin choisi son corps! Wang Lin, suis-moi à la Petite Terre des Flammes du Nord, sur la planète Suzaku. C'est là que se trouve mon futur corps! »
+Les yeux de Situ Nan brillaient de joie. Dans un sourire, il déclara: « Bien! Ce vieil homme a enfin choisi son corps! Wang Lin, suis-moi à la Petite Terre Bei Yan Ji, sur la planète Suzaku. C'est là que se trouve mon futur corps! »
 
 Sur ces mots, il s'élança dans les airs.
 
@@ -66,7 +66,7 @@ Situ Nan s'écria: « Pourquoi possèdes-tu le Royaume Ji!?!?! »
 
 Wang Lin répondit d'une voix lente: « Dans la Vallée Jue Ming, un fragment du Royaume Ji est apparu en moi. Tu dormais alors, tu ne l'as pas vu. Ensuite, mon corps fut détruit et tu as sauvé mon âme avant de sombrer à nouveau dans ton sommeil. En quittant le champ de bataille étranger, mon Royaume Ji a atteint sa plénitude. »
 
-« Le Royaume Ji est une substance extrêmement tyrannique. Je n'ai que peu d'informations à son sujet, mais je sais que l'Alliance de Culture recherche sans cesse les cultivateurs possédant le Royaume Ji. Dès qu'ils en trouvent un, ils l'exterminent. Tu dois te souvenir de ne jamais le montrer à quiconque, surtout à Zhu Quezi! » L'expression de Situ Nan était d'une gravité absolue.
+« Le Royaume Ji est une substance extrêmement tyrannique. Je n'ai que peu d'informations à son sujet, mais je sais que l'Alliance Xiu Zhen recherche sans cesse les cultivateurs possédant le Royaume Ji. Dès qu'ils en trouvent un, ils l'exterminent. Tu dois te souvenir de ne jamais le montrer à quiconque, surtout à Zhu Quezi! » L'expression de Situ Nan était d'une gravité absolue.
 
 Wang Lin hocha la tête. Après une courte réflexion, il ajouta: « Je soupçonne que ce Royaume Ji a un lien avec ta Méthode de Culture de l'Ascension des Enfers. »
 
@@ -74,9 +74,9 @@ Situ Nan fut stupéfait. Il se frotta le menton et dit: « Tu pourrais avoir rai
 
 « Situ, j'ai entendu dire que le Cristal de la Planète de Culture pouvait faire évoluer le Royaume Ji. Est-ce vrai? Qu'est-ce que ce Cristal exactement? » Les yeux de Wang Lin s'illuminèrent en posant enfin la question qu'il retenait depuis des centaines d'années.
 
-« Tu connais même l'existence du Cristal de la Planète de Culture... » Situ Nan afficha une expression complexe avant de soupirer: « Le Cristal de la Planète de Culture... cet objet n'est pas une bonne chose, mais si tu veux quitter cette planète, tu devras impérativement l'obtenir, sans quoi cela pourrait causer des problèmes futurs... Ah! Le Cristal de la Planète de Culture est l'outil le plus perfide que l'Alliance de Culture utilise pour asservir une planète de culture... »
+« Tu connais même l'existence du Cristal de la Planète de Culture... » Situ Nan afficha une expression complexe avant de soupirer: « Le Cristal de la Planète de Culture... cet objet n'est pas une bonne chose, mais si tu veux quitter cette planète, tu devras impérativement l'obtenir, sans quoi cela pourrait causer des problèmes futurs... Ah! Le Cristal de la Planète de Culture est l'outil le plus perfide que l'Alliance Xiu Zhen utilise pour asservir une planète de culture... »
 
-Situ Nan s'apprêtait à poursuivre quand il scruta soudain l'horizon: « Nous en reparlerons plus tard. Pour l'instant, des membres du Clan des Immortels Délaissés sont devant nous et procèdent à des offrandes pour leur esprit ancestral. Laisse-moi réfléchir... Je me souviens que le premier Suzaku étudiait un sort capable d'utiliser l'esprit ancestral pour absorber une part de ce pouvoir mystérieux... Je vieillis, ma mémoire me fait défaut. Je crois que c'est la bonne méthode. Wang Lin, donne-moi un jade céleste. »
+Situ Nan s'apprêtait à poursuivre quand il scruta soudain l'horizon: « Nous en reparlerons plus tard. Pour l'instant, des membres du Clan Xian Yi sont devant nous et procèdent à des offrandes pour leur esprit ancestral. Laisse-moi réfléchir... Je me souviens que le premier Suzaku étudiait un sort capable d'utiliser l'esprit ancestral pour absorber une part de ce pouvoir mystérieux... Je vieillis, ma mémoire me fait défaut. Je crois que c'est la bonne méthode. Wang Lin, donne-moi un jade céleste. »
 
 Wang Lin, les yeux fixés au loin, frappa son autre sac de rangement, en sortit un jade céleste et le tendit à Situ Nan.
 
@@ -86,23 +86,23 @@ Sur ces mots, il disparut.
 
 Lorsque Situ Nan apparut face à Zhu Quezi, tous les cultivateurs Ascendants ressentirent cette aura puissante.
 
-Un vieil homme aux cheveux blancs apparut dans le ciel à l'est du pays de Suzaku. C'était Chu Yunfei, l'unique cultivateur au début du stade Ascendant de la Secte du Jade Céleste. À cet instant, son expression était troublée. Après un moment, il soupira: « Une aura d'une puissance inouïe... »
+Un vieil homme aux cheveux blancs apparut dans le ciel à l'est du pays de Suzaku. C'était Chu Yunfei, l'unique cultivateur au début du stade Ascendant de la Secte Tian Yu. À cet instant, son expression était troublée. Après un moment, il soupira: « Une aura d'une puissance inouïe... »
 
 Il secoua légèrement la tête. En regardant vers l'est, son regard se glaça. Derrière lui se trouvaient des dizaines de cultivateurs; la plupart étaient au stade de la Formation de l'Âme, et seuls trois atteignaient celui de la Transformation de l'Âme.
 
 Derrière eux, on comptait plus de cent cultivateurs de l'Âme Naissante.
 
-Dans le ciel au sud du continent de Suzaku, une armée de culture composée de plusieurs centaines d'individus volait vers le sud. L'homme en tête était un homme d'âge mûr, un vieux monstre au début du stade Ascendant de la Secte de la Terre Brisée. Il regarda au loin, vers l'endroit où se trouvait Situ Nan, et esquissa un sourire amer: « Quelle malchance de me retrouver mêlé à une guerre aussi chaotique... »
+Dans le ciel au sud du continent de Suzaku, une armée de culture composée de plusieurs centaines d'individus volait vers le sud. L'homme en tête était un homme d'âge mûr, un vieux monstre au début du stade Ascendant de la Secte Di Po. Il regarda au loin, vers l'endroit où se trouvait Situ Nan, et esquissa un sourire amer: « Quelle malchance de me retrouver mêlé à une guerre aussi chaotique... »
 
 Après que Zhu Quezi fut retourné au Mont Suzaku, il se reposa brièvement avant de repartir précipitamment. Cette fois, sa cible se trouvait dans la partie occidentale du continent.
 
 Dans les nuages noirs bordant l'est du continent de Suzaku, le cinquième ancêtre détourna son regard, le visage sombre.
 
-L'Ancien Sima de la Secte des Cadavres, dont la culture était au stade de la Transformation de l'Âme, ne put détecter le changement survenu lors de l'apparition de Situ Nan, mais en voyant l'expression du cinquième ancêtre se crisper, il fut frappé de surprise.
+L'Ancien Sima de la Secte Shi Yin, dont la culture était au stade de la Transformation de l'Âme, ne put détecter le changement survenu lors de l'apparition de Situ Nan, mais en voyant l'expression du cinquième ancêtre se crisper, il fut frappé de surprise.
 
 Il s'apprêtait à sonder les informations quand le cinquième ancêtre agita ses manches et ordonna: « Ancien Sima, commençons. »
 
-Les yeux de Sima eurent un éclair à peine perceptible, et il rit: « Bien! La raison de ma venue est de livrer ce cadavre. Il permettra à l'arbre de l'esprit ancestral de votre Clan des Immortels Délaissés de prospérer davantage. »
+Les yeux de Sima eurent un éclair à peine perceptible, et il rit: « Bien! La raison de ma venue est de livrer ce cadavre. Il permettra à l'arbre de l'esprit ancestral de votre Clan Xian Yi de prospérer davantage. »
 
 Sur ces mots, il se tourna vers les deux diacres de cadavres qui le suivaient.
 
@@ -122,6 +122,6 @@ Le couvercle fut soudainement repoussé par une main invisible et s'écrasa au s
 
 À cet instant, le gaz noir se fit plus dense, s'échappant du cercueil comme pour vouloir l'envelopper totalement.
 
-Le cinquième ancêtre du Clan des Immortels Délaissés demanda froidement: « Est-ce là le cadavre dont vous parliez? »
+Le cinquième ancêtre du Clan Xian Yi demanda froidement: « Est-ce là le cadavre dont vous parliez? »
 
 L'Ancien Sima esquissa un sourire malicieux: « Cinquième ancêtre, ne me blâmez pas; les ordres et le corps sont venus d'en haut. Je n'ai aucun pouvoir de décision. Toutefois, sur la planète Suzaku, les cadavres de Démons Géants du stade de Transformation de l'Âme se font rares; celui-ci a été transféré d'une autre planète. Les quatre autres cadavres sont sans doute déjà parvenus à leurs emplacements respectifs. »

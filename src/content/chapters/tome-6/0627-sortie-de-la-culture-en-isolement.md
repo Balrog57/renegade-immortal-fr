@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 627 - Leaving Closed Door Cultivation
 slug: sortie-de-la-culture-en-isolement
 ---
-Wang Lin ne se souciait guère de la bataille qui faisait rage dans le Pays du Démon de Feu. Il avait passé les vingt dernières années totalement immergé dans l'étude des sorts célestes. Les sorts célestes ne pouvaient être comparés aux sorts ordinaires; leur apprentissage était d'une difficulté extrême.
+Wang Lin ne se souciait guère de la bataille qui faisait rage dans le Pays Huo Yao. Il avait passé les vingt dernières années totalement immergé dans l'étude des sorts célestes. Les sorts célestes ne pouvaient être comparés aux sorts ordinaires; leur apprentissage était d'une difficulté extrême.
 
 Vingt ans ne représentaient qu'un claquement de doigts pour Wang Lin. Alors qu'il se consacrait à l'étude du sort céleste et des trésors célestes, le temps s'écoulait comme l'eau, et sans qu'il ne s'en rende compte, plus de cinquante ans s'étaient déjà écoulés!
 
@@ -20,29 +20,29 @@ Pour être plus précis, les principes régis par ce sort céleste dépassaient 
 
 Wang Lin avait passé de nombreuses années à comprendre progressivement l'Art du Massacre Céleste, atteignant finalement un stade de petite perfection. Ce sort « Arrêt » suivait la même logique.
 
-Wang Lin oubliait la notion même du temps, absorbé par ses recherches. Pendant les décennies passées en culture en isolement, la Tribu de l'Affinement de l'Âme avait envoyé de nombreux membres sur le front du Pays du Démon de Feu pour collecter des âmes et renforcer leur propre puissance.
+Wang Lin oubliait la notion même du temps, absorbé par ses recherches. Pendant les décennies passées en culture en isolement, la Tribu de l'Affinement de l'Âme avait envoyé de nombreux membres sur le front du Pays Huo Yao pour collecter des âmes et renforcer leur propre puissance.
 
-Tout changea lorsque les troupes d'autres pays pénétrèrent dans le Pays du Démon Céleste. Au lieu de sortir, les membres de la tribu se mirent à défendre leur territoire.
+Tout changea lorsque les troupes d'autres pays pénétrèrent dans le Pays Tian Yao. Au lieu de sortir, les membres de la tribu se mirent à défendre leur territoire.
 
-De nombreux membres de la tribu revinrent du Pays du Démon de Feu et commencèrent à combattre les soldats démons des autres nations démoniaques.
+De nombreux membres de la tribu revinrent du Pays Huo Yao et commencèrent à combattre les soldats démons des autres nations démoniaques.
 
-Cependant, la puissance de la Tribu de l'Affinement de l'Âme était bien trop dérisoire. Ils ne pouvaient que défendre la zone située sous le nuage noir sans pouvoir en sortir. Finalement, lorsque les soldats des autres pays démoniaques réalisèrent qu'ils ne pourraient pas prendre la Cité du Démon Céleste car elle était scellée par l'Ancien Démon, ils tournèrent leurs regards vers la Tribu de l'Affinement de l'Âme.
+Cependant, la puissance de la Tribu de l'Affinement de l'Âme était bien trop dérisoire. Ils ne pouvaient que défendre la zone située sous le nuage noir sans pouvoir en sortir. Finalement, lorsque les soldats des autres pays démoniaques réalisèrent qu'ils ne pourraient pas prendre la Cité Tian Yao car elle était scellée par l'Ancien Démon, ils tournèrent leurs regards vers la Tribu de l'Affinement de l'Âme.
 
 Après tout, quelque chose de singulier émanait de cette petite tribu. Le nuage noir qui surplombait la tribu et servait de protection naturelle était particulièrement étrange; il avait repoussé les assauts des soldats démons à plusieurs reprises.
 
-Bien entendu, tous les pays démoniaques n'avaient pas jeté leur dévolu sur la Tribu de l'Affinement de l'Âme. Seuls les dirigeants de deux pays l'avaient fait, tandis que les cinq autres concentrèrent leurs efforts sur le Pays du Démon de Feu.
+Bien entendu, tous les pays démoniaques n'avaient pas jeté leur dévolu sur la Tribu de l'Affinement de l'Âme. Seuls les dirigeants de deux pays l'avaient fait, tandis que les cinq autres concentrèrent leurs efforts sur le Pays Huo Yao.
 
-Les sept autres pays démoniaques n'envoyèrent pas de trop grandes troupes. Après tout, ils n'avaient pas la détermination nécessaire pour engager toutes leurs forces, contrairement au Pays du Démon Céleste.
+Les sept autres pays démoniaques n'envoyèrent pas de trop grandes troupes. Après tout, ils n'avaient pas la détermination nécessaire pour engager toutes leurs forces, contrairement au Pays Tian Yao.
 
-À cet instant, le Pays du Démon de l'Eau et le Pays du Démon du Tonnerre envoyèrent chacun un vice-commandant en chef escorté de 100 000 soldats démons. L'un venait du nord et l'autre du sud. Les deux armées encerclèrent ainsi la Tribu de l'Affinement de l'Âme.
+À cet instant, le Pays Shui Yao et le Pays Lei Yao envoyèrent chacun un vice-commandant en chef escorté de 100 000 soldats démons. L'un venait du nord et l'autre du sud. Les deux armées encerclèrent ainsi la Tribu de l'Affinement de l'Âme.
 
-Le vice-commandant en chef du Pays du Démon de l'Eau était une femme. Son apparence était ordinaire, mais son regard dégageait une lumière glaciale. À ses côtés se tenait un général démon du Pays du Démon de l'Eau.
+Le vice-commandant en chef du Pays Shui Yao était une femme. Son apparence était ordinaire, mais son regard dégageait une lumière glaciale. À ses côtés se tenait un général démon du Pays Shui Yao.
 
-Quant au Pays du Démon du Tonnerre, son vice-commandant en chef était un homme d'âge moyen, robuste et massif. Il était le seul à ne pas porter d'armure; des éclairs parcouraient son corps et le sol sous ses pieds était calciné.
+Quant au Pays Lei Yao, son vice-commandant en chef était un homme d'âge moyen, robuste et massif. Il était le seul à ne pas porter d'armure; des éclairs parcouraient son corps et le sol sous ses pieds était calciné.
 
 « Cette petite tribu sauvage possède un trésor aussi incroyable... C'est intéressant! » Bien que l'homme semble se parler à lui-même, sa voix résonna comme un coup de tonnerre.
 
-« Ce voyage dans le Pays du Démon Céleste n'a rien rapporté. Cependant, rapporter ce trésor à l'Empereur Démon est une option tentante! » Les yeux de l'homme s'illuminèrent et il fit un pas en avant. Dans un fracas assourdissant, le sol se brisa sous son poids et la zone calcinée commença à s'étendre.
+« Ce voyage dans le Pays Tian Yao n'a rien rapporté. Cependant, rapporter ce trésor à l'Empereur Démon est une option tentante! » Les yeux de l'homme s'illuminèrent et il fit un pas en avant. Dans un fracas assourdissant, le sol se brisa sous son poids et la zone calcinée commença à s'étendre.
 
 Le corps de l'homme s'élança rapidement vers le nuage noir. Sa vitesse était prodigieuse; il avait manifestement atteint le stade équivalent d'un cultivateur Ascendant au sommet du stade initial. En un seul bond, il franchit une immense distance pour arriver à la lisière du nuage noir qui entourait la tribu.
 
@@ -54,7 +54,7 @@ Ouyang Hua cria: « Âmes, dispersez-vous! » Soudain, tous les membres de la tr
 
 L'homme laissa échapper un rire. Loin de reculer, il s'élança et décocha un coup de poing. Ce coup, chargé d'une immense quantité d'énergie spirituelle démoniaque, produisit un rugissement tonitruant alors qu'il fonçait comme un dragon de foudre furieux vers la rivière noire.
 
-Non loin de là, la vice-commandante du Pays du Démon de l'Eau observa froidement le combat et déclara: « Le vice-commandant du Tonnerre sous-estime ce nuage noir! »
+Non loin de là, la vice-commandante du Pays Shui Yao observa froidement le combat et déclara: « Le vice-commandant du Tonnerre sous-estime ce nuage noir! »
 
 L'un des généraux démons à ses côtés, surpris, demanda: « Ma Dame, se pourrait-il que ce nuage cache un secret? Le vice-commandant pourra-t-il le briser? »
 
@@ -66,9 +66,9 @@ Le dragon de tonnerre engendré par le coup de poing de l'homme massif poussa un
 
 Une brèche s'ouvrit dans le nuage sous la force du choc. La rivière noire se dissipa et l'homme robuste éclata de rire: « Une simple tribu de sauvages ose m'attaquer? Bande de misérables fourmis! »
 
-Alors qu'il parlait, il franchit l'ouverture dans le nuage noir. Les soldats du Pays du Démon du Tonnerre poussèrent des acclamations dont la puissance n'était pas moins fracassante que le tonnerre! Ce soutien insuffla une confiance infinie à l'homme.
+Alors qu'il parlait, il franchit l'ouverture dans le nuage noir. Les soldats du Pays Lei Yao poussèrent des acclamations dont la puissance n'était pas moins fracassante que le tonnerre! Ce soutien insuffla une confiance infinie à l'homme.
 
-La femme du Pays du Démon de l'Eau, restée à distance, secoua la tête: « Il n'y a plus de suspense dans cette bataille. Dès aujourd'hui, la Tribu de l'Affinement de l'Âme cessera d'exister. Attendez que le vice-commandant récupère le brouillard noir, puis lancez-vous pour capturer les membres de la tribu. Si quelqu'un ose résister, tuez-le! »
+La femme du Pays Shui Yao, restée à distance, secoua la tête: « Il n'y a plus de suspense dans cette bataille. Dès aujourd'hui, la Tribu de l'Affinement de l'Âme cessera d'exister. Attendez que le vice-commandant récupère le brouillard noir, puis lancez-vous pour capturer les membres de la tribu. Si quelqu'un ose résister, tuez-le! »
 
 Les différents généraux démons acquiescèrent à son ordre.
 
@@ -92,7 +92,7 @@ Cette voix était très faible, mais son apparition sembla suspendre le cours du
 
 Son corps trembla et les éclairs qui parcouraient sa peau cessèrent net. À cet instant, son aura disparut totalement. Son corps resta suspendu dans les airs, parfaitement immobile!
 
-Son poing avait déjà entamé la moitié d'un arc de cercle, mais il ne pourrait jamais achever son mouvement. Seuls ses yeux pouvaient encore bouger. À cet instant, une terreur qu'il n'avait jamais connue de sa vie l'envahit. Si la peur dans ses yeux était un océan, cet océan serait capable de noyer l'intégralité de la Terre des Esprits Démoniaques.
+Son poing avait déjà entamé la moitié d'un arc de cercle, mais il ne pourrait jamais achever son mouvement. Seuls ses yeux pouvaient encore bouger. À cet instant, une terreur qu'il n'avait jamais connue de sa vie l'envahit. Si la peur dans ses yeux était un océan, cet océan serait capable de noyer l'intégralité de la Terre Yao Ling.
 
 La silhouette de Wang Lin sortit lentement de la tour. Ses cheveux flottaient derrière lui et, vêtu de sa robe blanche, il ressemblait à un être céleste!
 
@@ -102,7 +102,7 @@ Le corps de l'homme vola comme une météorite, laissant dans son sillage une br
 
 Le silence qui suivit fut total!
 
-Les pupilles de la femme du Pays du Démon de l'Eau se contractèrent brusquement. Son esprit resta vide devant ce spectacle. Elle se ressaisit cependant rapidement et hurla: « Vite, retirez-vous! »
+Les pupilles de la femme du Pays Shui Yao se contractèrent brusquement. Son esprit resta vide devant ce spectacle. Elle se ressaisit cependant rapidement et hurla: « Vite, retirez-vous! »
 
 Malheureusement, il était trop tard. Wang Lin, les mains derrière le dos, flottait déjà hors de la tribu. Les membres de la Tribu de l'Affinement de l'Âme, exsudant une intention meurtrière, s'élancèrent immédiatement à sa suite.
 
@@ -118,7 +118,7 @@ Tous ceux qui se trouvaient à l'extérieur de la tribu furent figés sur place!
 
 Les membres de la Tribu de l'Affinement de l'Âme semblèrent recevoir un ordre et s'élancèrent pour massacrer! Simultanément, le nuage noir surplombant la tribu descendit du ciel pour envelopper les alentours.
 
-La femme du Pays du Démon de l'Eau fut également pétrifiée. Cependant, après trois respirations, une lumière bleue l'enveloppa. Ses yeux étaient emplis de terreur et elle tenta de fuir sans hésitation.
+La femme du Pays Shui Yao fut également pétrifiée. Cependant, après trois respirations, une lumière bleue l'enveloppa. Ses yeux étaient emplis de terreur et elle tenta de fuir sans hésitation.
 
 À cet instant précis, trois rayons de lumière d'épée jaillirent, rattrapèrent la femme et l'encerclèrent. Les trois esprits d'épée — Zi Shu, Hai Zhu et Mo Yang — poussèrent des rugissements. Le cœur de la femme trembla alors que les trois lames la transpercèrent. Dans un nuage de sang, elle mourut!
 
@@ -128,20 +128,20 @@ Wang Lin flottait dans les airs, ressentant silencieusement la puissance du sort
 
 Un mois plus tard, Wang Lin quitta la Tribu de l'Affinement de l'Âme. En partant, il emporta l'Étendard de l'Âme et laissa une trace de Sens Divin pour monter la garde sur la tribu.
 
-Wang Lin ne se précipita pas vers le Pays du Démon de Feu; il se rendit d'abord dans sa grotte. Sur le Chemin du Dragon Sacré, il enregistra soigneusement les 11 symboles avant de partir!
+Wang Lin ne se précipita pas vers le Pays Huo Yao; il se rendit d'abord dans sa grotte. Sur le Chemin du Dragon Sacré, il enregistra soigneusement les 11 symboles avant de partir!
 
-« Le jade indiquait 12 symboles, mais il n'y en a que 11 pour l'instant. J'ignore où se cache le dernier... » L'expression de Wang Lin restait neutre tandis qu'il avançait. Il activa ensuite le grand sort de téléportation et se dirigea droit vers le Pays du Démon de Feu.
+« Le jade indiquait 12 symboles, mais il n'y en a que 11 pour l'instant. J'ignore où se cache le dernier... » L'expression de Wang Lin restait neutre tandis qu'il avançait. Il activa ensuite le grand sort de téléportation et se dirigea droit vers le Pays Huo Yao.
 
-Les flammes de la guerre dévoraient le Pays du Démon de Feu. Les sept autres nations continuaient d'envoyer des renforts sur son territoire. Le pays était devenu un véritable champ de bataille. Après près de cent ans de conflit, la terre était maculée de rouge. En pénétrant dans le pays, une odeur de sang entêtante frappait les sens.
+Les flammes de la guerre dévoraient le Pays Huo Yao. Les sept autres nations continuaient d'envoyer des renforts sur son territoire. Le pays était devenu un véritable champ de bataille. Après près de cent ans de conflit, la terre était maculée de rouge. En pénétrant dans le pays, une odeur de sang entêtante frappait les sens.
 
-Outre l'odeur du sang, d'innombrables cadavres jonchaient le sol. Des effluves de mort s'échappaient des corps, formant une brume grise qui enveloppait tout le Pays du Démon de Feu.
+Outre l'odeur du sang, d'innombrables cadavres jonchaient le sol. Des effluves de mort s'échappaient des corps, formant une brume grise qui enveloppait tout le Pays Huo Yao.
 
-C'était une lutte à mort entre le Pays du Démon Céleste et le Pays du Démon de Feu! On pourrait même dire qu'il n'y avait ni vainqueur ni vaincu dans ce conflit. Chaque vie était échangée contre une autre, tandis que toute la puissance du Pays du Démon de Feu était lentement anéantie.
+C'était une lutte à mort entre le Pays Tian Yao et le Pays Huo Yao! On pourrait même dire qu'il n'y avait ni vainqueur ni vaincu dans ce conflit. Chaque vie était échangée contre une autre, tandis que toute la puissance du Pays Huo Yao était lentement anéantie.
 
-La capitale du Pays du Démon de Feu était totalement déserte. Même l'Empereur Démon était personnellement entré dans le combat. Hormis la terre sacrée de la Vallée Démoniaque, tout le reste était désert!
+La capitale du Pays Huo Yao était totalement déserte. Même l'Empereur Démon était personnellement entré dans le combat. Hormis la terre sacrée de la Vallée Démoniaque, tout le reste était désert!
 
-L'Ancien Démon du Pays du Démon de Feu avait imité celui du Pays du Démon Céleste: il avait scellé la capitale pour en interdire l'accès.
+L'Ancien Démon du Pays Huo Yao avait imité celui du Pays Tian Yao: il avait scellé la capitale pour en interdire l'accès.
 
 La Vallée Démoniaque n'était pas située à l'extérieur de la cité, mais dans ses profondeurs. Une énergie spirituelle démoniaque dense s'en dégageait, enveloppant toute la capitale. Vu de loin, la cité semblait entourée d'une brume démoniaque mêlée à une puissante aura de mort; elle ressemblait à une cité noyée dans la brume qui inspirait une profonde tristesse à quiconque la contemplait.
 
-Lorsque Wang Lin atterrit aux abords de la capitale du Pays du Démon de Feu, le bruit de ses pas résonna nettement, tant l'environnement était silencieux. La terre rouge sombre avait une texture boueuse sous les pieds; cette consistance provenait du sang de dizaines de millions de personnes qui avait imprégné le sol au cours des cent dernières années.
+Lorsque Wang Lin atterrit aux abords de la capitale du Pays Huo Yao, le bruit de ses pas résonna nettement, tant l'environnement était silencieux. La terre rouge sombre avait une texture boueuse sous les pieds; cette consistance provenait du sang de dizaines de millions de personnes qui avait imprégné le sol au cours des cent dernières années.

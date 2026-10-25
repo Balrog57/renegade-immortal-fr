@@ -8,15 +8,15 @@ slug: tenant-la-hache-bris-ciel
 ---
 Bien que cette phrase fût un rugissement qui ébranla tout le domaine stellaire, elle ne suffit pas à restaurer la gloire effondrée, ni à raviver la volonté désespérée de survivre!
 
-Il restait moins de 10 000 cultivateurs de la Mer des Nuages. Sous le massacre incessant, ils commencèrent à fléchir… Une personne recula, puis tout le monde recula comme une marée, et tout s'effondra!
+Il restait moins de 10 000 cultivateurs de la Mer Yun. Sous le massacre incessant, ils commencèrent à fléchir… Une personne recula, puis tout le monde recula comme une marée, et tout s'effondra!
 
-Chaque cultivateur de la Mer des Nuages laissa paraître son désespoir en contemplant les envahisseurs du Royaume Extérieur qui étaient plusieurs fois plus nombreux qu'eux. Ils perdirent tout courage pour continuer le combat.
+Chaque cultivateur de la Mer Yun laissa paraître son désespoir en contemplant les envahisseurs du Royaume Extérieur qui étaient plusieurs fois plus nombreux qu'eux. Ils perdirent tout courage pour continuer le combat.
 
-Dès qu'ils reculèrent, les cultivateurs du Royaume Extérieur devinrent encore plus féroces. Leurs rires démentiels et leurs rugissements se propagèrent jusqu'au cœur de chaque cultivateur de la Mer des Nuages.
+Dès qu'ils reculèrent, les cultivateurs du Royaume Extérieur devinrent encore plus féroces. Leurs rires démentiels et leurs rugissements se propagèrent jusqu'au cœur de chaque cultivateur de la Mer Yun.
 
 Pourtant, ils ne cessaient de reculer… Peu de gens n'avaient pas peur de la mort, et ils avaient peur.
 
-« La Mer des Nuages est perdue… »
+« La Mer Yun est perdue… »
 
 « Plutôt que de mourir ici, autant survivre maintenant… La guerre n'est pas terminée. Bien que cette bataille soit perdue, si je rejoins un autre système stellaire, j'aurai une autre chance… » De nombreuses excuses affluèrent dans leurs esprits pour justifier leur fuite. Ils reculèrent plus vite encore… Maître Hong Shan ne recula pas. Il combattait six cultivateurs du troisième niveau et savait qu'il ne pouvait pas battre en retraite. Il était impuissant face à la fuite des autres cultivateurs mus par la peur, mais il était un cultivateur du troisième niveau. S'il reculait, cette bataille serait véritablement terminée!
 
@@ -24,13 +24,13 @@ L'échec de cette première bataille porterait un coup fatal au Royaume Intérie
 
 Maître Nan Yunzi ne recula pas non plus. Il parlait peu de toute sa vie, mais tenait ses promesses. Le Seigneur du Royaume Scellé lui avait jadis rendu un grand service, qu'il voulait rembourser. Le Royaume Intérieur était son foyer, et il le protégerait. Il n'avait aucune raison, en tant que grand puissant au sommet du Royaume Intérieur, de battre en retraite… Dans le silence, une intention meurtrière s'éveilla dans les yeux de Nan Yunzi!
 
-Tandis que les cultivateurs de la Mer des Nuages reculaient frénétiquement, les cultivateurs du Royaume Extérieur se précipitèrent sur eux comme des loups sur un troupeau de moutons. Des cris déchirants résonnèrent et, sans gloire aucune, des milliers d'autres périrent!
+Tandis que les cultivateurs de la Mer Yun reculaient frénétiquement, les cultivateurs du Royaume Extérieur se précipitèrent sur eux comme des loups sur un troupeau de moutons. Des cris déchirants résonnèrent et, sans gloire aucune, des milliers d'autres périrent!
 
 Il y avait une autre personne qui ne recula pas!
 
 Wang Lin!
 
-Il ne parla plus, mais leva la tête avec un regard déterminé. Il chargea vers les cultivateurs du Royaume Extérieur qui poursuivaient ceux de la Mer des Nuages!
+Il ne parla plus, mais leva la tête avec un regard déterminé. Il chargea vers les cultivateurs du Royaume Extérieur qui poursuivaient ceux de la Mer Yun!
 
 Chacun de ses pas provoquait des échos tonitruants. Wang Lin agita la main et le gigantesque tatouage de tonnerre réapparut. À l'instant même où il se manifesta, la main droite de Wang Lin déchira l'espace lui-même!
 
@@ -46,13 +46,13 @@ Les grondements tonitruants secouèrent le domaine stellaire! Une seule personne
 
 Cette scène fut suffisante pour bouleverser le cœur de tous les cultivateurs!
 
-Le domaine stellaire semblait divisé en deux. D'un côté, les milliers de cultivateurs de la Mer des Nuages plongés dans le désespoir! De l'autre, l'armée du Royaume Extérieur qui comptait des dizaines de milliers d'individus!
+Le domaine stellaire semblait divisé en deux. D'un côté, les milliers de cultivateurs de la Mer Yun plongés dans le désespoir! De l'autre, l'armée du Royaume Extérieur qui comptait des dizaines de milliers d'individus!
 
 Et au centre se tenait Wang Lin!
 
 Un immense tatouage de tonnerre rugissait dans l'espace entre les deux camps. Une tempête de feu multicolore tourbillonnait autour de Wang Lin!
 
-Le dos de Wang Lin était tourné vers les milliers de cultivateurs de la Mer des Nuages, tandis qu'il faisait face à l'armée infinie devant lui. Il les regarda avec calme!
+Le dos de Wang Lin était tourné vers les milliers de cultivateurs de la Mer Yun, tandis qu'il faisait face à l'armée infinie devant lui. Il les regarda avec calme!
 
 Inopinément, il fit en sorte que toute l'armée du Royaume Extérieur n'ose plus faire le moindre pas en avant!
 
@@ -70,29 +70,29 @@ Ses yeux étaient injectés de sang, son visage marqué par l'épuisement, son �
 
 Les plaies couvraient tout son être!
 
-Pourtant, il était impossible de compter le nombre de cultivateurs du Royaume Extérieur qu'il avait terrassés, et Wang Lin ne cherchait pas à le faire. À cet instant, il ne trouvait aucune raison de partir… La requête du Seigneur du Royaume Scellé, ses amis et ses bienfaiteurs dans le Royaume Intérieur, son foyer natal, tout cela l'empêchait de battre en retraite… Les yeux de Wang Lin étaient rouges et le monde prit la couleur du sang. Au milieu de ce massacre incessant, un des cultivateurs de la Mer des Nuages qui fuyait s'arrêta.
+Pourtant, il était impossible de compter le nombre de cultivateurs du Royaume Extérieur qu'il avait terrassés, et Wang Lin ne cherchait pas à le faire. À cet instant, il ne trouvait aucune raison de partir… La requête du Seigneur du Royaume Scellé, ses amis et ses bienfaiteurs dans le Royaume Intérieur, son foyer natal, tout cela l'empêchait de battre en retraite… Les yeux de Wang Lin étaient rouges et le monde prit la couleur du sang. Au milieu de ce massacre incessant, un des cultivateurs de la Mer Yun qui fuyait s'arrêta.
 
 C'était un jeune homme, seulement au début du stade du Scruteur du Nirvana. Il avait eu la chance de survivre à cette bataille tragique. Il se retourna et fixa le dos de Wang Lin au loin. Il regarda Wang Lin charger contre les vagues infinies de cultivateurs, tel deux bras gigantesques bloquant une armée.
 
 « Les cultivateurs comme nous ne reculent jamais devant un combat… » murmura le jeune homme. La gloire effondrée montrait des signes de réveil.
 
-Un autre cultivateur de la Mer des Nuages cessa sa fuite et contempla silencieusement le dos de Wang Lin. L'intention de combat s'éveilla dans son regard qui devint rouge; un sentiment de folie jaillit de son cœur.
+Un autre cultivateur de la Mer Yun cessa sa fuite et contempla silencieusement le dos de Wang Lin. L'intention de combat s'éveilla dans son regard qui devint rouge; un sentiment de folie jaillit de son cœur.
 
-De plus en plus de cultivateurs de la Mer des Nuages cessèrent de reculer pour regarder Wang Lin, murmurant: « Les cultivateurs comme nous ne fuient jamais le combat… » À cet instant, un sentiment inexplicable s'éleva, capable de rendre n'importe qui fou!
+De plus en plus de cultivateurs de la Mer Yun cessèrent de reculer pour regarder Wang Lin, murmurant: « Les cultivateurs comme nous ne fuient jamais le combat… » À cet instant, un sentiment inexplicable s'éleva, capable de rendre n'importe qui fou!
 
 « Les cultivateurs comme nous ne reculent jamais devant un combat! »
 
-« Les cultivateurs comme nous ne reculent jamais devant un combat!!! » Les cultivateurs de la Mer des Nuages s'arrêtèrent les uns après les autres, jusqu'à ce que ceux qui fuyaient comme des chiens errants soient tous immobilisés. Ils regardaient tous Wang Lin, et à cet instant, le rugissement de celui-ci résonna clairement dans leurs oreilles!
+« Les cultivateurs comme nous ne reculent jamais devant un combat!!! » Les cultivateurs de la Mer Yun s'arrêtèrent les uns après les autres, jusqu'à ce que ceux qui fuyaient comme des chiens errants soient tous immobilisés. Ils regardaient tous Wang Lin, et à cet instant, le rugissement de celui-ci résonna clairement dans leurs oreilles!
 
-Ces mots leur semblaient faibles et ne parvenaient pas à susciter le moindre émoi dans leurs esprits. Pourtant, en cet instant, Wang Lin utilisait ses actes pour montrer aux cultivateurs de la Mer des Nuages ce que signifiait réellement: « Les cultivateurs comme nous ne reculent jamais devant un combat! »
+Ces mots leur semblaient faibles et ne parvenaient pas à susciter le moindre émoi dans leurs esprits. Pourtant, en cet instant, Wang Lin utilisait ses actes pour montrer aux cultivateurs de la Mer Yun ce que signifiait réellement: « Les cultivateurs comme nous ne reculent jamais devant un combat! »
 
-Bien que leur « gloire de la Mer des Nuages » se fût effondrée, Wang Lin leur offrait une autre gloire, celle du combat! Se battre pour la Mer des Nuages, se battre pour leur foyer et pour tout ce qu'ils voulaient protéger!
+Bien que leur « gloire de la Mer Yun » se fût effondrée, Wang Lin leur offrait une autre gloire, celle du combat! Se battre pour la Mer Yun, se battre pour leur foyer et pour tout ce qu'ils voulaient protéger!
 
-Précisément à cet instant, la gigantesque Hache Brise-Ciel descendit de nouveau et 5 000 autres cultivateurs du Royaume Extérieur périrent. Wang Lin leva les yeux vers la Hache Brise-Ciel et chargea sous le regard des milliers de cultivateurs de la Mer des Nuages!
+Précisément à cet instant, la gigantesque Hache Brise-Ciel descendit de nouveau et 5 000 autres cultivateurs du Royaume Extérieur périrent. Wang Lin leva les yeux vers la Hache Brise-Ciel et chargea sous le regard des milliers de cultivateurs de la Mer Yun!
 
 « Seigneur du Royaume Scellé, aide-moi! »
 
-Le rugissement de Wang Lin résonna dans la Formation de Scellement du Royaume, jusque dans le jade qui emprisonnait le seigneur du Palais de la Punition Céleste!
+Le rugissement de Wang Lin résonna dans la Formation de Scellement du Royaume, jusque dans le jade qui emprisonnait le seigneur du Palais Tian Fa!
 
 La conscience divine résiduelle du Seigneur du Royaume Scellé jaillit avec toute la force vitale qu'il lui restait. Une douce lumière se propagea dans toute la Formation de Scellement du Royaume.
 

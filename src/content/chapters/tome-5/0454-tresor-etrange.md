@@ -16,9 +16,9 @@ Une longue épée était plantée dans chaque bassin. Bien que la moitié des la
 
 « Des fragments d'âmes métalliques... » songea Wang Lin.
 
-Il passait du temps dans le Tombeau de Suzaku, et tout était si différent de ce que Situ Nan lui avait décrit. Wang Lin n'était pas stupide; il avait déjà ses propres spéculations sur l'origine de ces changements.
+Il passait du temps dans le Tombeau Zhu Que, et tout était si différent de ce que Situ Nan lui avait décrit. Wang Lin n'était pas stupide; il avait déjà ses propres spéculations sur l'origine de ces changements.
 
-« Je crains que le Tombeau de Suzaku ne soit en réalité le Cristal de la Planète de Culture lui-même. Je suis dans le Tombeau de Suzaku, mais aussi à l'intérieur du Cristal de la Planète de Culture! »
+« Je crains que le Tombeau Zhu Que ne soit en réalité le Cristal de la Planète de Culture lui-même. Je suis dans le Tombeau Zhu Que, mais aussi à l'intérieur du Cristal de la Planète de Culture! »
 
 « C'est pourquoi toutes ces étranges formes de vie sont nées dans le tombeau... C'est pourquoi ces mystérieuses failles sont apparues lorsque le Cristal de la Planète de Culture a commencé à se briser. Ces failles sont l'effondrement même du Cristal de la Planète de Culture. » L'expression de Wang Lin était sombre tandis qu'il contemplait les bassins devant lui. Cependant, cela ne restait qu'une conjecture; il devrait atteindre le centre de cette zone pour le confirmer. Si la montagne s'y trouvait, il s'était trompé, mais si elle n'y était pas, alors sa théorie était exacte.
 

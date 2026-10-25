@@ -6,19 +6,19 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1176 - Wouldnt It Be Better to Forget About Each Other
 slug: ne-serait-il-pas-mieux-de-soublier-lun-lautre
 ---
-En l'espace de deux courts jours, la partie de la ville détruite par l'Empreinte de l'Esprit Guerrier de Wang Lin fut rapidement reconstruite par la Secte du Jade Précieux.
+En l'espace de deux courts jours, la partie de la ville détruite par l'Empreinte de l'Esprit Guerrier de Wang Lin fut rapidement reconstruite par la Secte Bao Yu.
 
 Il n'aura fallu que deux jours, une quantité massive de pierres spirituelles et le travail d'innombrables cultivateurs pour que la ville soit restaurée avant le début des enchères.
 
 Les enchères de Peng Lai étaient d'une importance capitale, et les objets mis en vente étaient tous extrêmement précieux. C'était précisément cette vente qui attirait autant de vieux monstres à Peng Lai.
 
-L'événement se déroulait sur la place centrale de la ville principale de Peng Lai. Il ne s'agissait pas d'enchères ouvertes à tous; seuls ceux possédant une invitation étaient autorisés à y pénétrer. Un grand nombre de cultivateurs de la Secte du Jade Précieux patrouillaient dans un périmètre de 10 000 pieds pour empêcher toute intrusion.
+L'événement se déroulait sur la place centrale de la ville principale de Peng Lai. Il ne s'agissait pas d'enchères ouvertes à tous; seuls ceux possédant une invitation étaient autorisés à y pénétrer. Un grand nombre de cultivateurs de la Secte Bao Yu patrouillaient dans un périmètre de 10 000 pieds pour empêcher toute intrusion.
 
 Alors que les enchères approchaient, les vieux monstres des diverses sectes arrivèrent, entrant grâce à leurs jades d'invitation. Wang Lin, également intrigué par cet événement, vola calmement vers le centre de la ville principale.
 
 En chemin, tous les cultivateurs qui l'aperçurent lui adressèrent respectueusement une salutation en joignant les mains. Durant ces deux derniers jours, presque tout le monde avait mémorisé l'apparence de Wang Lin, et nul n'osait l'offenser.
 
-Peu de temps après, Wang Lin atteignit la ville principale. Les cultivateurs de la Secte du Jade Précieux pouvaient arrêter quiconque ne possédant pas de jade d'invitation. Cependant, en voyant Wang Lin, leurs esprits tremblèrent et ils s'écartèrent aussitôt, n'osant même pas vérifier s'il détenait une invitation ou non.
+Peu de temps après, Wang Lin atteignit la ville principale. Les cultivateurs de la Secte Bao Yu pouvaient arrêter quiconque ne possédant pas de jade d'invitation. Cependant, en voyant Wang Lin, leurs esprits tremblèrent et ils s'écartèrent aussitôt, n'osant même pas vérifier s'il détenait une invitation ou non.
 
 Une centaine de cultivateurs étaient dispersés sur la place. La plupart étaient au niveau Scruteur du Nirvana ou Purificateur du Nirvana; il y avait peu de vieux monstres de niveau Briseur du Nirvana.
 
@@ -26,17 +26,17 @@ L'arrivée de Wang Lin attira immédiatement l'attention de l'assemblée. Tous l
 
 Li Qianmei remarqua le regard de Wang Lin et eut un léger rire. Ses yeux brillaient comme des étoiles.
 
-Peu après l'entrée de Wang Lin sur la place, un Ancien vêtu de rouge entra, accompagné de quatre hommes d'âge moyen. En voyant Wang Lin, il laissa échapper un rire sonore: « C'est un honneur pour mon humble Secte du Jade Précieux que le Compagnon Cultivateur Lu vienne assister à mes enchères. »
+Peu après l'entrée de Wang Lin sur la place, un Ancien vêtu de rouge entra, accompagné de quatre hommes d'âge moyen. En voyant Wang Lin, il laissa échapper un rire sonore: « C'est un honneur pour mon humble Secte Bao Yu que le Compagnon Cultivateur Lu vienne assister à mes enchères. »
 
-Wang Lin connaissait cet Ancien; il faisait partie des personnes qui l'avaient rendu visite ces deux derniers jours au nom de la Secte du Jade Précieux.
+Wang Lin connaissait cet Ancien; il faisait partie des personnes qui l'avaient rendu visite ces deux derniers jours au nom de la Secte Bao Yu.
 
 « Ainsi, c'est l'Ancien Cao », répondit Wang Lin avec un sourire tout en lui adressant une salutation.
 
-Le vieil homme en rouge se montra très poli. Il n'osait sous-estimer ce jeune homme vêtu de blanc. Chaque fois qu'il songeait à la mort de Wu Qing, il en tremblait. Avant de rencontrer Wang Lin pour le compte de la Secte du Jade Précieux, il avait compris que cet individu n'était pas ordinaire. Son calme, sa façon de s'exprimer et cette légère sensation d'illusion qui émanait de son regard suffisaient à l'impressionner.
+Le vieil homme en rouge se montra très poli. Il n'osait sous-estimer ce jeune homme vêtu de blanc. Chaque fois qu'il songeait à la mort de Wu Qing, il en tremblait. Avant de rencontrer Wang Lin pour le compte de la Secte Bao Yu, il avait compris que cet individu n'était pas ordinaire. Son calme, sa façon de s'exprimer et cette légère sensation d'illusion qui émanait de son regard suffisaient à l'impressionner.
 
 Il avait ensuite rapporté ses observations au Maître de la Secte. Après une longue réflexion, celui-ci avait envoyé un ordre: aucun disciple de la secte ne devait offenser cet homme sur Peng Lai.
 
-« Qu'il appartienne ou non à la Secte Divine n'a aucune importance pour ma Secte du Jade Précieux. Le simple fait qu'il ait pu tuer Wu Qing si aisément suffit à lui valoir notre respect. » L'Ancien en rouge discuta un moment avec Wang Lin avant de lever les yeux vers le ciel. Il lui sourit et ajouta: « Compagnon Cultivateur Lu, les enchères vont bientôt commencer. Si vous avez des objets à proposer, dépêchez-vous. »
+« Qu'il appartienne ou non à la Secte Divine n'a aucune importance pour ma Secte Bao Yu. Le simple fait qu'il ait pu tuer Wu Qing si aisément suffit à lui valoir notre respect. » L'Ancien en rouge discuta un moment avec Wang Lin avant de lever les yeux vers le ciel. Il lui sourit et ajouta: « Compagnon Cultivateur Lu, les enchères vont bientôt commencer. Si vous avez des objets à proposer, dépêchez-vous. »
 
 Wang Lin réfléchit un instant. Il possédait effectivement quelques objets qu'il souhaitait mettre en vente pour obtenir autant de cristaux d'origine que possible. Après un moment, il sourit: « Très bien. J'ai justement deux trésors que je souhaite mettre aux enchères. »
 
@@ -60,7 +60,7 @@ Une fois installée, elle murmura comme pour elle-même: « Je vais bientôt par
 
 Alors qu'elle était assise près de lui, une brise fit flotter quelques mèches de ses cheveux devant les yeux de Wang Lin. Le parfum délicat émanant de son corps parvint jusqu'à ses narines. C'était une fragrance très légère qui, tout comme la sérénité de Li Qianmei, avait le don d'apaiser l'âme.
 
-À cet instant, les enchères débutèrent. L'homme responsable de la vente était un Ancien de la Secte du Jade Précieux au visage carré. Il flottait au-dessus de la place, présentant le premier article: un trésor en forme de cloche, gravé de nombreux tatouages de bêtes féroces.
+À cet instant, les enchères débutèrent. L'homme responsable de la vente était un Ancien de la Secte Bao Yu au visage carré. Il flottait au-dessus de la place, présentant le premier article: un trésor en forme de cloche, gravé de nombreux tatouages de bêtes féroces.
 
 En réalisant que quelques mèches de ses cheveux frôlaient Wang Lin, le visage de Li Qianmei rougit légèrement. Elle les ramena rapidement en arrière pour les attacher négligemment.
 

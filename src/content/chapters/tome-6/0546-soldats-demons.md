@@ -22,7 +22,7 @@ Bien qu'il songeât cela, il ne le montra pas sur son visage.
 
 Wang Lin buvait verre après verre, et l'expression nostalgique sur son visage s'accentuait tandis qu'il repensait à tout ce qui s'était passé sur la planète Suzaku.
 
-Il ressentit soudainement une envie irrésistible de quitter cette Terre des Esprits Démoniaques, de quitter la planète Tian Yun, et de retourner dans le lieu qui l'avait vu naître et grandir.
+Il ressentit soudainement une envie irrésistible de quitter cette Terre Yao Ling, de quitter la planète Tian Yun, et de retourner dans le lieu qui l'avait vu naître et grandir.
 
 Cette pulsion devint de plus en plus forte, jusqu'à occuper tout son esprit. La coupe se brisa sous sa prise et les éclats lui lacérèrent la main. Cependant, Wang Lin n'y prêta aucune attention, car il était submergé par la nostalgie.
 
@@ -114,7 +114,7 @@ En voyant l'un des leurs blessé, les soldats démons se levèrent tous, emprein
 
 Seul l'homme au visage sombre restait assis, immobile. Son regard était toujours fixé sur Wang Lin.
 
-« Vous, sauvages, osez semer le trouble dans la Cité de l'Ancien Démon?! » ricanaient les soldats démons avant de charger comme des tigres affamés.
+« Vous, sauvages, osez semer le trouble dans la Cité Gu Yao?! » ricanaient les soldats démons avant de charger comme des tigres affamés.
 
 Les six soldats attaquèrent de concert, et Hu Pao se lamenta intérieurement. Il libéra immédiatement les fragments d'âme contenus dans ses drapeaux, qui envahirent le restaurant.
 

@@ -38,7 +38,7 @@ Le Messager du Démon Vert était scellé par ce réseau; il n'avait aucune chan
 
 En un éclair, il disparut.
 
-À l'ouest de la Prairie de l'Extrême Ciel, l'autre Messager du Démon Vert, assis sur une grue de papier, affichait un visage pâle. Il fuyait à une vitesse folle.
+À l'ouest de la Prairie Ji Tian, l'autre Messager du Démon Vert, assis sur une grue de papier, affichait un visage pâle. Il fuyait à une vitesse folle.
 
 De son point de vue, ce qui venait de se produire était tout simplement terrifiant. Ils étaient venus ici pour accomplir la tâche confiée par le Vieil Ancêtre: tuer Wang Lin.
 
@@ -114,7 +114,7 @@ Les plus de 1 000 cultivateurs, y compris Yan Luan et sa compagnie, tournèrent 
 
 « Les deux cultivateurs de stade initial de la Tribulation du Vide sont morts! »
 
-« Hormis eux, tous les cultivateurs du Continent du Démon Vert sont morts! » Wang Lin ne prononça que ces trois phrases avant que son visage ne pâlisse et qu'il ne s'enfuie vers sa propre grotte. Il convoqua Yi Si et scella hermétiquement la grotte avec des restrictions, puis s'assit en crachant une bouchée de sang.
+« Hormis eux, tous les cultivateurs du Continent Lu Mo sont morts! » Wang Lin ne prononça que ces trois phrases avant que son visage ne pâlisse et qu'il ne s'enfuie vers sa propre grotte. Il convoqua Yi Si et scella hermétiquement la grotte avec des restrictions, puis s'assit en crachant une bouchée de sang.
 
 Il ignora le silence de mort provoqué par ses paroles. Tous les cultivateurs restèrent plongés dans une réflexion silencieuse, regardant la grotte de Wang Lin avec un mélange de choc et d'admiration.
 

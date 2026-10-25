@@ -26,7 +26,7 @@ Cependant, après quelques cycles, certaines restrictions demeuraient fusionnée
 
 Pour Wang Lin, ce procédé était une forme de déduction!
 
-Cette déduction avait débuté à l'instant même où il avait aperçu l'ancienne formation et s'était assis au sol. Ce que Wang Lin étudiait n'étaient pas des restrictions ordinaires, mais les antiques restrictions de la Terre de l'Ancien Dieu. Ces techniques étaient si primordiales que même les anciens cultivateurs ne faisaient que s'en apprendre l'usage sans jamais pouvoir les créer eux-mêmes.
+Cette déduction avait débuté à l'instant même où il avait aperçu l'ancienne formation et s'était assis au sol. Ce que Wang Lin étudiait n'étaient pas des restrictions ordinaires, mais les antiques restrictions de la Terre Gu Shen. Ces techniques étaient si primordiales que même les anciens cultivateurs ne faisaient que s'en apprendre l'usage sans jamais pouvoir les créer eux-mêmes.
 
 « Déjà 57... Je dois continuer. » Les yeux de Wang Lin se plissèrent davantage.
 

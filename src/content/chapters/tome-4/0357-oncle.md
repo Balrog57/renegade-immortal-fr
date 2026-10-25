@@ -42,7 +42,7 @@ L'homme reposa précipitamment Zhou Ru et dit respectueusement: « Senior, junio
 
 Sans même le laisser finir, Wang Lin agita ses manches et un vent puissant projeta l'homme au loin.
 
-Wang Lin fixa Zhou Ru. Un an auparavant, il avait ordonné à Tie Yan de retourner à la Secte du Ciel Nuageux, tandis qu'il veillait lui-même sur elle. Il avait voulu intervenir plus tôt, mais avait décidé d'attendre que l'homme emmène Zhou Ru avant de se manifester.
+Wang Lin fixa Zhou Ru. Un an auparavant, il avait ordonné à Tie Yan de retourner à la Secte Yun Tian, tandis qu'il veillait lui-même sur elle. Il avait voulu intervenir plus tôt, mais avait décidé d'attendre que l'homme emmène Zhou Ru avant de se manifester.
 
 En voyant Wang Lin, la peur dans les yeux de Zhou Ru disparut, remplacée par la confusion.
 

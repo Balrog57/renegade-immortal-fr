@@ -78,23 +78,23 @@ Les yeux de Wang Lin se rétrécirent et il l'observa attentivement sans dire un
 
 Après avoir fusionné avec la protection, une aura puissante émana du navire et la barrière devint encore plus robuste. Les grondements provenant de l'extérieur furent presque totalement étouffés, les sons atteignant leurs oreilles n'étant plus qu'un murmure imperceptible.
 
-« Puisque tu coopères avec ma sœur et moi, je ne te cacherai rien. À l'époque, deux des neuf soleils, le Grand Empyréen Dao Yi et le Grand Empyréen Xuan Luo des anciens pays, apparurent près de notre Secte des Sept Dao. Leurs pouvoirs étaient divins, c'étaient des figures légendaires; ils se disputaient un fragment de stockage qui s'était échappé du Domaine Divin Immémorial.
+« Puisque tu coopères avec ma sœur et moi, je ne te cacherai rien. À l'époque, deux des neuf soleils, le Grand Empyréen Dao Yi et le Grand Empyréen Xuan Luo des anciens pays, apparurent près de notre Secte Qi Dao. Leurs pouvoirs étaient divins, c'étaient des figures légendaires; ils se disputaient un fragment de stockage qui s'était échappé du Domaine Divin Immémorial.
 
 « Normalement, Sept Couleurs et moi ne pouvions pas intervenir dans cette affaire ni en tirer profit, mais finalement, la fortune nous a souri... Même encore aujourd'hui, je ne comprends toujours pas comment Dao Yi ou Xuan Luo n'ont pas remarqué qu'une pièce manquait, même si le fragment de stockage était brisé.
 
-« Ce morceau manquant est tombé entre les mains de Sept Couleurs, et c'est alors que j'ai découvert son véritable visage. Afin de dissimuler l'aura, j'ai sacrifié toute ma culture pour la supprimer totalement, espérant retourner rapidement à la Secte des Sept Dao.
+« Ce morceau manquant est tombé entre les mains de Sept Couleurs, et c'est alors que j'ai découvert son véritable visage. Afin de dissimuler l'aura, j'ai sacrifié toute ma culture pour la supprimer totalement, espérant retourner rapidement à la Secte Qi Dao.
 
 « Cependant, durant le voyage de retour, il m'a poignardée dans le dos. Prise au dépourvu, j'ai vu ma culture entière aspirée pour servir à supprimer le fragment. D'une seule paume, il a ensuite anéanti mon corps et mon âme, voulant m'éliminer par peur que la nouvelle ne se répande.
 
 « Il avait également besoin de ma culture pour ouvrir le fragment. Après tout, ce fragment provenant du Domaine Divin Immémorial était extrêmement difficile à déverrouiller.
 
-« Pourtant, je ne suis pas morte. Étant une disciple centrale de la Secte de la Grande Âme, une partie de mon âme était restée auprès de mon maître. Ce dernier utilisa le grand sortilège de réincarnation pour me permettre de renaître rapidement.
+« Pourtant, je ne suis pas morte. Étant une disciple centrale de la Secte Da Hun, une partie de mon âme était restée auprès de mon maître. Ce dernier utilisa le grand sortilège de réincarnation pour me permettre de renaître rapidement.
 
-« Au sein de la Secte des Sept Dao, certains m'écoutaient, en particulier ma petite sœur. J'ai utilisé le sortilège de mon maître pour tout lui révéler, et c'est ainsi que la guerre éclata! » La femme relata lentement les événements passés.
+« Au sein de la Secte Qi Dao, certains m'écoutaient, en particulier ma petite sœur. J'ai utilisé le sortilège de mon maître pour tout lui révéler, et c'est ainsi que la guerre éclata! » La femme relata lentement les événements passés.
 
-« Je savais qu'il devait avoir ouvert le fragment et obtenu ce qu'il contenait. Je savais aussi qu'il avait éloigné Ye Mo et scellé la Secte des Sept Dao. Mais comment pouvais-je le laisser réussir? J'ai révélé la nouvelle à Lian Daofei, qui avait toujours convoité ma beauté, et je l'ai attiré vers la Secte!
+« Je savais qu'il devait avoir ouvert le fragment et obtenu ce qu'il contenait. Je savais aussi qu'il avait éloigné Ye Mo et scellé la Secte Qi Dao. Mais comment pouvais-je le laisser réussir? J'ai révélé la nouvelle à Lian Daofei, qui avait toujours convoité ma beauté, et je l'ai attiré vers la Secte!
 
-« Grâce au lien avec ma sœur, plusieurs de ses concubines ont fait défection, provoquant la division des disciples de la Secte des Sept Dao. C'est ainsi que les Royaumes Intérieur et Extérieur se sont formés! » À ce moment-là, la femme regarda Wang Lin.
+« Grâce au lien avec ma sœur, plusieurs de ses concubines ont fait défection, provoquant la division des disciples de la Secte Qi Dao. C'est ainsi que les Royaumes Intérieur et Extérieur se sont formés! » À ce moment-là, la femme regarda Wang Lin.
 
 L'expression de Wang Lin resta imperturbable et il ne montra aucune fluctuation émotionnelle. Il avait déjà spéculé sur la majeure partie de ces faits, et même maintenant, il ne croyait qu'une partie de ses paroles. Plusieurs éléments restaient flous et, bien que son récit semblât complet, certaines incohérences subsistaient.
 

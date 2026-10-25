@@ -18,7 +18,7 @@ Dans un avenir proche, il était même probable que le clan ancien entende parle
 
 Le 49e Ascendant du clan céleste. Après être devenu un Ascendant, il avait franchi les 11e et 12e palais et tentait à présent le 13e!
 
-Le Grand Empyréen Jiu Di, sur la Montagne de l'Empereur, ne se prélassait plus; il fixait intensément la feuille d'automne devant lui, l'expression grave.
+Le Grand Empyréen Jiu Di, sur la Montagne Di, ne se prélassait plus; il fixait intensément la feuille d'automne devant lui, l'expression grave.
 
 Il comprenait que franchir le 13e palais, même avec l'armure de l'âme, signifiait que cet homme n'était pas sans valeur...
 

@@ -38,7 +38,7 @@ De nouveaux cris déchirants retentirent. Une folie apparut dans le désespoir d
 
 L'expression de Wang Lin resta indifférente alors qu'il avançait pour porter le troisième coup!
 
-« Ce coup est pour les cultivateurs de la Mer des Nuages, pour votre tentative d'exterminer la Secte de l'Origine! » dit Wang Lin en serrant les dents, tandis que son poing percutait la poitrine du Shui Daozi.
+« Ce coup est pour les cultivateurs de la Mer Yun, pour votre tentative d'exterminer la Secte Gui Yuan! » dit Wang Lin en serrant les dents, tandis que son poing percutait la poitrine du Shui Daozi.
 
 L'âme originelle du Shui Daozi trembla et devint encore plus transparente. C'était comme si son âme s'apprêtait à se dissiper pour toujours!
 
@@ -88,7 +88,7 @@ Simultanément, il leva sa main gauche et pointa l'image distordue. D'un mot, le
 
 Des grondements tonitruants retentirent et une force inimaginable s'engouffra dans l'âme originelle en lambeaux du Shui Daozi. Sa main droite s'effondra et la puissance frappa sa tête, effaçant son âme! Un cri misérable déchira l'air!
 
-Le Shui Daozi, serviteur du Seigneur du Royaume Scellé, Grand Ancien de la Secte Divine et cultivateur de la troisième étape du Système Stellaire de la Mer des Nuages, était mort!!
+Le Shui Daozi, serviteur du Seigneur du Royaume Scellé, Grand Ancien de la Secte Divine et cultivateur de la troisième étape du Système Stellaire de la Mer Yun, était mort!!
 
 Au moment de son trépas, un chant complexe s'échappa des lèvres de Wang Lin. Presque personne ne put en saisir le sens; seul le démon ancien à neuf étoiles de la Secte Fantôme, en train de disparaître, fut profondément bouleversé en l'entendant!
 
@@ -118,6 +118,6 @@ Ces ondes de rugissements balayèrent les restes de la mort sanglante du Shui Da
 
 « Les cultivateurs de la Secte Divine saluent le Seigneur du Royaume Scellé! » Ayant été témoins de tout ce qui s'était produit, les membres de la Secte Divine joignirent les mains, l'expression complexe.
 
-« Les cultivateurs de la Secte Fantôme de la Mer des Nuages saluent le Seigneur du Royaume Scellé! » L'estimé Grand Vide de la Secte Fantôme joignit les mains à son tour.
+« Les cultivateurs de la Secte Fantôme de la Mer Yun saluent le Seigneur du Royaume Scellé! » L'estimé Grand Vide de la Secte Fantôme joignit les mains à son tour.
 
-« Les cultivateurs de la Mer des Nuages saluent le Seigneur du Royaume Scellé! » Des salutations éclatèrent de toutes parts, et une multitude de cultivateurs rendirent leurs hommages!
+« Les cultivateurs de la Mer Yun saluent le Seigneur du Royaume Scellé! » Des salutations éclatèrent de toutes parts, et une multitude de cultivateurs rendirent leurs hommages!

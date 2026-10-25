@@ -76,7 +76,7 @@ Une image vague du fleuve des enfers apparut autour de lui. Le fleuve gravitait 
 
 Le tourbillon était inhalé par Wang Lin, comme s'il dévorait les cieux eux-mêmes. De vastes quantités de jades célestes parcoururent son corps, et ses méridiens se gonflèrent instantanément de multiples fois. L'énergie spirituelle fut immédiatement dévorée dès qu'elle pénétra dans son âme originelle.
 
-À cet instant, le corps de Wang Lin était semblable à l'Abîme des Marées, et son âme originelle était le trou noir qui dévorait tout ce qui s'y trouvait.
+À cet instant, le corps de Wang Lin était semblable à l'Abîme Chao Xi, et son âme originelle était le trou noir qui dévorait tout ce qui s'y trouvait.
 
 Le puissant tourbillon fut ainsi englouti par Wang Lin, rétrécissant rapidement jusqu'à sa disparition totale. Le teint de Wang Lin devint légèrement rouge, ses yeux brillèrent d'un éclat intense et des éclairs crépitèrent sur tout son corps.
 

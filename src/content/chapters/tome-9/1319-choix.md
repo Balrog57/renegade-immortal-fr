@@ -40,11 +40,11 @@ Les yeux de Wang Lin étaient injectés de sang alors qu'il fixait Lanmeng Daozu
 
 Il l'était au plus haut point!
 
-« Vous devez avoir pris conscience du danger qui rôde hors du Clan de la Soie Bleue. Cette femme possède un soutien puissant, mais si vous devenez mon héritier, je porterai tout le danger pour vous! Réfléchissez-y! »
+« Vous devez avoir pris conscience du danger qui rôde hors du Clan Lan Si. Cette femme possède un soutien puissant, mais si vous devenez mon héritier, je porterai tout le danger pour vous! Réfléchissez-y! »
 
 «... Les conditions!! » La voix de Wang Lin était rauque. Les paroles de Lanmeng Daozun résonnaient comme le tonnerre dans son esprit.
 
-L'expression de Lanmeng Daozun resta neutre alors qu'il soutenait le regard de Wang Lin et disait doucement: « Les conditions sont très simples; il n'y en a que deux! Désormais, vous ne serez plus un homme du Royaume Intérieur, mais un membre de mon Système Stellaire Antique, le jeune maître du Clan de la Soie Bleue! Prenez le Fruit de l'Oubli du Cœur et jurez par une essence de laisser le Royaume Intérieur derrière vous!
+L'expression de Lanmeng Daozun resta neutre alors qu'il soutenait le regard de Wang Lin et disait doucement: « Les conditions sont très simples; il n'y en a que deux! Désormais, vous ne serez plus un homme du Royaume Intérieur, mais un membre de mon Système Stellaire Antique, le jeune maître du Clan Lan Si! Prenez le Fruit de l'Oubli du Cœur et jurez par une essence de laisser le Royaume Intérieur derrière vous!
 
 Votre corps, votre cœur, tout ce que vous êtes ne sera plus lié au Royaume Intérieur. Vous n'aurez pas à participer à la bataille entre les Royaumes Intérieur et Extérieur, mais vous ne pourrez plus jamais aider le Royaume Intérieur! »
 
@@ -72,7 +72,7 @@ Wang Lin baissa la tête et dit doucement: « La culture du Senior est en effet 
 
 Lanmeng Daozun réfléchit un instant puis répondit lentement: « Il y en a une! »
 
-« Si le Senior était à ma place et devait abandonner cette personne précieuse pour obtenir la puissance, le Senior accepterait-il? » Wang Lin leva la tête et regarda Lanmeng Daozun. « De plus, si le Senior devait abandonner l'ensemble du Clan de la Soie Bleue, le Senior accepterait-il? »
+« Si le Senior était à ma place et devait abandonner cette personne précieuse pour obtenir la puissance, le Senior accepterait-il? » Wang Lin leva la tête et regarda Lanmeng Daozun. « De plus, si le Senior devait abandonner l'ensemble du Clan Lan Si, le Senior accepterait-il? »
 
 Lanmeng Daozun ne répondit pas à cette question. Au lieu de cela, après un long silence méditatif, il déclara:
 

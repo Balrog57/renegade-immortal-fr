@@ -1,6 +1,6 @@
 ---
 n: 1130
-title: Les Huit Rois de la Secte des Cadavres
+title: Les Huit Rois de la Secte Shi Yin
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 1130 - Corpse Sects Eight Kings
@@ -22,7 +22,7 @@ Lorsque ces vastes masses d'anciens cultivateurs chargèrent dans le vide, un ba
 
 Tout cela n'était dû qu'à une seule phrase prononcée par Tuo Sen lorsqu'ils sortirent de la fissure:
 
-« Je veux que cette Terre de l'Ancien Dieu soit imprégnée du parfum du sang! »
+« Je veux que cette Terre Gu Shen soit imprégnée du parfum du sang! »
 
 Aucun de ces anciens cultivateurs n'était faible, mais ils portaient tous les sceaux de Tuo Sen en eux, ce qui les empêchait de déployer leur pleine puissance. Après tout, il y avait autrefois d'innombrables sceaux dans le corps de Tuo Sen à transférer. Souvent, plusieurs individus étaient nécessaires pour contenir un seul sceau, et peu pouvaient supporter une telle charge seuls.
 
@@ -36,7 +36,7 @@ Le corps massif du dragon de sang mesurait cent mille pieds de long et était d'
 
 Alors que le dragon de sang rugissait, il fendait le vide. À chaque mouvement, une lueur rouge fulgurait et illuminait l'espace tandis que des détonations soniques résonnaient. Il n'avait nul besoin d'utiliser de sorts; il se déplaçait à une vitesse inimaginable, et tous les cultivateurs sur son passage ne faisaient que mourir.
 
-À ce moment précis, un groupe de cultivateurs de la Secte des Cadavres assiégeait un ancien cultivateur en robe rouge lorsqu'une lumière rouge monstrueuse apparut au loin.
+À ce moment précis, un groupe de cultivateurs de la Secte Shi Yin assiégeait un ancien cultivateur en robe rouge lorsqu'une lumière rouge monstrueuse apparut au loin.
 
 Avant que quiconque ne puisse réagir, une bourrasque de vent fit vaciller ces cultivateurs qui reculèrent de quelques pas. À cet instant, une tête de dragon rouge géante surgit à l'horizon. Personne ne put distinguer ses traits, tant elle était rapide!
 
@@ -54,15 +54,15 @@ Bien que tout cela semble lent, l'action ne dura que trois respirations!
 
 Le bang sonique produit par le dragon ne parvint sur place qu'une fois la zone saturée de brume sanglante.
 
-Ce ne furent pas seulement les membres de la Secte des Cadavres; aucun cultivateur croisant la route du dragon de sang ne survécut. Leurs corps s'effondrèrent et leurs âmes originelles furent absorbées par la bête.
+Ce ne furent pas seulement les membres de la Secte Shi Yin; aucun cultivateur croisant la route du dragon de sang ne survécut. Leurs corps s'effondrèrent et leurs âmes originelles furent absorbées par la bête.
 
 Le dragon de sang balaya les confins du vide à une vitesse prodigieuse. Plus de mille cultivateurs avaient déjà péri sous ses assauts. Son corps, long de plus de cent mille pieds, dégageait une pression écrasante.
 
 Après une brève hésitation, il poussa un rugissement et chargea vers la zone intérieure. Il était si rapide qu'on ne percevait qu'un éclair rouge; il était impossible de distinguer clairement sa forme.
 
-Au plus profond du vide, les huit rois de la Secte des Cadavres volaient tels huit rayons de lumière. Ils poursuivaient quatre anciens cultivateurs. Malgré tous leurs efforts pour s'enfuir, ils ne pouvaient échapper à la traque de ces huit individus.
+Au plus profond du vide, les huit rois de la Secte Shi Yin volaient tels huit rayons de lumière. Ils poursuivaient quatre anciens cultivateurs. Malgré tous leurs efforts pour s'enfuir, ils ne pouvaient échapper à la traque de ces huit individus.
 
-Les huit rois de la Secte des Cadavres semblaient d'âges divers, mais sans exception, ils affichaient des expressions glaciales et des visages d'une pâleur mortelle, comme s'ils étaient eux-mêmes des cadavres.
+Les huit rois de la Secte Shi Yin semblaient d'âges divers, mais sans exception, ils affichaient des expressions glaciales et des visages d'une pâleur mortelle, comme s'ils étaient eux-mêmes des cadavres.
 
 Pourtant, la puissance qu'ils manifestaient était capable de faire trembler les cieux! En chemin, ils ne se séparèrent jamais; chaque fois qu'ils croisaient des anciens cultivateurs, ces derniers étaient immédiatement scellés et capturés par le groupe. À présent, les quatre anciens qui fuyaient n'eurent pas le temps de courir longtemps avant que leurs corps ne commencent à s'agiter et à ralentir.
 

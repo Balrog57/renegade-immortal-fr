@@ -48,21 +48,21 @@ Sun Xi demanda: « Le frère Xu est-il satisfait de ma proposition? »
 
 « Nous en discuterons plus tard. J'ai besoin de temps pour y réfléchir. » Wang Lin esquiva la question avec aisance.
 
-Sun Xi soupira secrètement et cessa de tester Wang Lin. Il commença à lui présenter la planète Ran Yun. Tout en discutant, ils arrivèrent au Pavillon du Trésor Intégral, situé dans la partie est de la ville.
+Sun Xi soupira secrètement et cessa de tester Wang Lin. Il commença à lui présenter la planète Ran Yun. Tout en discutant, ils arrivèrent au Pavillon Bao He, situé dans la partie est de la ville.
 
-C'était le jour de l'enchère au Pavillon du Trésor Intégral, et une foule de cultivateurs s'était rassemblée à l'extérieur. Plus d'une dizaine d'employés assuraient l'accueil et guidaient les gens selon le niveau indiqué sur leurs jetons.
+C'était le jour de l'enchère au Pavillon Bao He, et une foule de cultivateurs s'était rassemblée à l'extérieur. Plus d'une dizaine d'employés assuraient l'accueil et guidaient les gens selon le niveau indiqué sur leurs jetons.
 
 Dès que Sun Xi et Wang Lin approchèrent, Sun Qiming, qui attendait devant le pavillon, se précipita vers eux. Le respect transparaissait dans ses yeux alors qu'il s'inclinait: « Sun Qiming, membre de la troisième génération, salue l'Ancêtre et le Senior Xu. »
 
 Sun Xi afficha sa majesté devant la foule. Sans dire un mot, il se contenta d'un signe de tête.
 
-Sun Qiming était arrivé au Pavillon du Trésor Intégral plus tôt. Bien que ce pavillon appartienne à la famille Ran, Sun Qiming étant le chef de la famille Sun dans cette ville, son statut était naturellement supérieur à celui des autres. Il conduisit personnellement Wang Lin et Sun Xi au quatrième étage, sans laisser un employé s'en charger.
+Sun Qiming était arrivé au Pavillon Bao He plus tôt. Bien que ce pavillon appartienne à la famille Ran, Sun Qiming étant le chef de la famille Sun dans cette ville, son statut était naturellement supérieur à celui des autres. Il conduisit personnellement Wang Lin et Sun Xi au quatrième étage, sans laisser un employé s'en charger.
 
 Le jeune homme nommé Lou, qui avait bloqué l'entrée de Wang Lin auparavant, discutait avec quelques clients. En voyant Wang Lin, il leva la tête et fut instantanément saisi d'un sursaut, avant d'être frappé de stupeur en apercevant Sun Qiming. Quant à Sun Xi, Lou ignorait qui il était, mais face au respect que lui témoignait Sun Qiming, il présuma qu'il s'agissait d'une figure de haut rang au sein de la famille Sun.
 
 En regardant Wang Lin, le jeune Lou eut l'impression d'avoir manqué quelque chose d'essentiel...
 
-Le Pavillon du Trésor Intégral était divisé en quatre étages, le quatrième étant composé de salons privés.
+Le Pavillon Bao He était divisé en quatre étages, le quatrième étant composé de salons privés.
 
 Sun Xi et Wang Lin s'installèrent dans la première salle à gauche. L'emplacement était idéal: ils pouvaient observer les enchères du deuxième étage d'un seul coup d'œil.
 

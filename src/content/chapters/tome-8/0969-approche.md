@@ -54,11 +54,11 @@ Cependant, le moment était venu de s'en servir!
 
 Le doigt géant descendait lentement et chargeait vers Wang Lin. Un grondement assourdissant retentit, et la pression de sa descente fit à nouveau éclater la terre! Même la Cité aux Yeux Fantômes fut affectée: de larges pans de ses murs s'effondrèrent et des cris de détresse s'élevèrent de la ville.
 
-À cet instant, il existait une planète éloignée de Tian Yun, mais qui restait sous l'influence de celle-ci. C'était une planète de culture nommée Da Luo! Il n'y avait qu'une seule secte sur cette planète: la Secte de l'Épée Da Luo!
+À cet instant, il existait une planète éloignée de Tian Yun, mais qui restait sous l'influence de celle-ci. C'était une planète de culture nommée Da Luo! Il n'y avait qu'une seule secte sur cette planète: la Secte Da Luo Jian!
 
-La Secte de l'Épée Da Luo occupait une vaste partie de la planète, s'étendant sur des centaines de milliers de kilomètres. Il était bien plus vaste que la Secte du Destin Céleste. Ling Tianhou, qui avait toujours voulu l'emporter, avait été prêt à payer le prix fort lors de sa fondation, ce qui expliquait son échelle monumentale.
+La Secte Da Luo Jian occupait une vaste partie de la planète, s'étendant sur des centaines de milliers de kilomètres. Il était bien plus vaste que la Secte Tian Yun. Ling Tianhou, qui avait toujours voulu l'emporter, avait été prêt à payer le prix fort lors de sa fondation, ce qui expliquait son échelle monumentale.
 
-Des montagnes imprégnées d'énergie spirituelle parsemaient le domaine de la Secte de l'Épée Da Luo. On y trouvait de nombreux pavillons et des tours monumentales disposées à intervalles réguliers. Il y avait au total 999 tours, comme si elles avaient été érigées pour former une formation géante!
+Des montagnes imprégnées d'énergie spirituelle parsemaient le domaine de la Secte Da Luo Jian. On y trouvait de nombreux pavillons et des tours monumentales disposées à intervalles réguliers. Il y avait au total 999 tours, comme si elles avaient été érigées pour former une formation géante!
 
 Parmi elles, une tour se distinguait par son apparence et sa hauteur unique. Elle était extrêmement élevée, faisant dix fois la taille des autres! Sa cime semblait percer le ciel. Même de très loin, on pouvait ressentir la pression colossale qu'elle dégageait!
 

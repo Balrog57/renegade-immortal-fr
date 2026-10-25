@@ -68,7 +68,7 @@ Cet Esprit Bête était l'un des sortilèges les plus puissants des Dieux Ancien
 
 Presque chaque Dieu Ancien adulte possédait ce sortilège. La première chose que faisait un Dieu Ancien une fois parvenu à l'âge adulte était de trouver son propre Esprit Bête pour l'affiner.
 
-Tu Si en avait également un. Dans la Terre des Dieux Anciens, la bête qui s'était transformée en une mer de brume sans fin et avait empêché Tuo Sen d'obtenir l'héritage de la mémoire était l'Esprit Bête de Tu Si!
+Tu Si en avait également un. Dans la Terre Gu Shen, la bête qui s'était transformée en une mer de brume sans fin et avait empêché Tuo Sen d'obtenir l'héritage de la mémoire était l'Esprit Bête de Tu Si!
 
 À cet instant, Luo Chen utilisa son sortilège et l'éléphant géant chargea. Le vortex devant Wang Lin changea soudainement de nature. Alors que l'éléphant approchait, un poing colossal surgit du vortex.
 

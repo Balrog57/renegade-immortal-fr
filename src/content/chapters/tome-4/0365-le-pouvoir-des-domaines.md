@@ -64,7 +64,7 @@ Pourtant, cette fierté s'était effondrée lorsque Wang Lin lui avait tranché 
 
 Elle était résolue à le tuer pour restaurer l'intégrité de son cœur dao. Elle avait même sorti le trésor national de Xue Yu, le Dieu de Glace, pour l'anéantir.
 
-Même son frère aîné avait secrètement emprunté le trésor principal de la Secte du Jade Céleste, le Fouet Kunji, afin de lui offrir et de gagner ses faveurs. À l'origine, elle n'avait pas voulu utiliser le Fouet Kunji. Elle pensait qu'avec le Dieu de Glace et son trésor personnel, tuer Ceng Niu serait aussi facile que de prendre un bonbon à un enfant.
+Même son frère aîné avait secrètement emprunté le trésor principal de la Secte Tian Yu, le Fouet Kunji, afin de lui offrir et de gagner ses faveurs. À l'origine, elle n'avait pas voulu utiliser le Fouet Kunji. Elle pensait qu'avec le Dieu de Glace et son trésor personnel, tuer Ceng Niu serait aussi facile que de prendre un bonbon à un enfant.
 
 Cependant, ayant entendu tant de rumeurs sur le Fouet Kunji, elle avait été tentée et n'avait pas refusé l'offre. Elle l'avait caché dans le Dieu de Glace pour s'en servir comme d'une arme secrète.
 

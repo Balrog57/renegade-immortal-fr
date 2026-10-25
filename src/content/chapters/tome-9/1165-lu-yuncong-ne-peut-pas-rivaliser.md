@@ -50,7 +50,7 @@ En chemin, Lu Yuncong et Li Qianmei discutèrent tranquillement, échangeant leu
 
 Le vieil homme restait à quelques pas derrière. Son regard se posait occasionnellement sur eux. On lisait une certaine étrangeté dans ses yeux, mais aussi une pointe de joie.
 
-« Après la mort de l'épouse du Maître de la Secte, celui-ci n'a plus jamais eu de partenaire de Dao. Bien que cette Li Qianmei de la secte de rang 9 vienne à peine de rencontrer le Maître de la Secte, elle semble s'entendre à merveille avec lui. Si les deux parviennent à former un couple de Dao, avec la sagesse du Maître de la Secte, son avenir sera sans limites... Alors notre Secte du Dao Pourpre pourra se faire connaître dans toute la Mer des Nuages! »
+« Après la mort de l'épouse du Maître de la Secte, celui-ci n'a plus jamais eu de partenaire de Dao. Bien que cette Li Qianmei de la secte de rang 9 vienne à peine de rencontrer le Maître de la Secte, elle semble s'entendre à merveille avec lui. Si les deux parviennent à former un couple de Dao, avec la sagesse du Maître de la Secte, son avenir sera sans limites... Alors notre Secte Zi Dao pourra se faire connaître dans toute la Mer Yun! »
 
 Depuis qu'elle avait quitté la Secte Brise-Ciel, Li Qianmei n'avait que rarement eu des conversations de ce genre. Personne d'autre n'était qualifié pour discuter avec elle, à l'exception de Lu Yuncong.
 
@@ -74,7 +74,7 @@ Li Qianmei dit doucement: « Tout cela n'est que spéculation de Frère Lu. Peut
 
 Le tigre s'arrêta lentement et flotta dans l'espace, fixant froidement l'horizon.
 
-Lu Yuncong regarda l'Ancien à ses côtés et dit calmement: « La Secte du Dao Pourpre et la Secte de l'Origine partagent la même secte principale. Il n'est pas nécessaire de créer trop de confusion. J'irai seul, attendez ici tous ensemble. »
+Lu Yuncong regarda l'Ancien à ses côtés et dit calmement: « La Secte Zi Dao et la Secte Gui Yuan partagent la même secte principale. Il n'est pas nécessaire de créer trop de confusion. J'irai seul, attendez ici tous ensemble. »
 
 Le vieil homme acquiesça.
 
@@ -84,13 +84,13 @@ Li Qianmei hocha la tête et les deux s'envolèrent vers le continent de Mo Luo.
 
 Continent de Mo Luo.
 
-Wang Lin avait expérimenté la puissance des pilules de la Mer des Nuages. Après avoir testé ces pilules et compris leur fonctionnement à travers les âmes de bêtes qu'elles contenaient, Wang Lin en avait saisi l'essence.
+Wang Lin avait expérimenté la puissance des pilules de la Mer Yun. Après avoir testé ces pilules et compris leur fonctionnement à travers les âmes de bêtes qu'elles contenaient, Wang Lin en avait saisi l'essence.
 
 Emprunter l'âme d'une bête pour comprendre les cieux, puis fusionner cette compréhension avec son propre domaine.
 
 Assis dans sa cour, Wang Lin avait refusé la visite de Lu Yanfei et de sa compagnie. Il tenait une pilule de rang 8 dans sa main et commença à méditer.
 
-« Il y a un défaut dans les pilules de la Mer des Nuages. La compréhension recueillie via les âmes de bêtes est très chaotique et difficile à assimiler. Si l'on veut en extraire une compréhension précise, il faut consommer des pilules de manière continue pour réussir. »
+« Il y a un défaut dans les pilules de la Mer Yun. La compréhension recueillie via les âmes de bêtes est très chaotique et difficile à assimiler. Si l'on veut en extraire une compréhension précise, il faut consommer des pilules de manière continue pour réussir. »
 
 Après réflexion, alors que Wang Lin contemplait la pilule dans sa main, il remarqua soudainement quelque chose. Il leva les yeux vers le lointain.
 
@@ -102,13 +102,13 @@ Peu de temps après, la porte de la cour s'ouvrit et un homme et une femme entr�
 
 La femme à ses côtés était d'une beauté extrême, avec une peau aussi lisse que le jade et aussi blanche que la neige. Elle tenait une flûte de jade et exhalait une élégance suprême.
 
-L'arrivée de ces deux êtres n'attira l'attention d'aucun cultivateur de la Secte de l'Origine, comme s'ils étaient apparus de nulle part. Dès leur entrée, le regard de l'homme d'âge moyen se posa sur Wang Lin et ses pupilles se rétractèrent. Puis il s'avança lentement.
+L'arrivée de ces deux êtres n'attira l'attention d'aucun cultivateur de la Secte Gui Yuan, comme s'ils étaient apparus de nulle part. Dès leur entrée, le regard de l'homme d'âge moyen se posa sur Wang Lin et ses pupilles se rétractèrent. Puis il s'avança lentement.
 
 Sa vitesse n'était pas rapide, mais chaque pas qu'il faisait résonnait avec les battements de cœur de Wang Lin. Chaque pas semblait contenir une certaine loi et dégageait une pression indicible.
 
 Plus étrange encore: à mesure que l'homme approchait, sur ces quelques dizaines de pas, le ciel derrière lui s'obscurcit brusquement. Des nuages sombres couvraient la majeure partie du monde et suivaient sa marche, semblant dévorer le jour.
 
-« Assieds-toi! » Wang Lin n'avait toujours pas levé la tête. Il n'était pas surpris que ces deux-là aient pu le trouver ici sans que personne à la Secte de l'Origine ne s'en aperçoive.
+« Assieds-toi! » Wang Lin n'avait toujours pas levé la tête. Il n'était pas surpris que ces deux-là aient pu le trouver ici sans que personne à la Secte Gui Yuan ne s'en aperçoive.
 
 Il n'avait prononcé qu'un seul mot, mais à cet instant, les pas de l'homme d'âge moyen s'interrompirent. C'était comme si le rythme qu'il avait instauré par ses pas était brisé, le rendant incapable de distinguer le vrai du faux. Tout ce qui s'était produit jusqu'alors semblait s'être effondré sous la simple pensée de Wang Lin.
 

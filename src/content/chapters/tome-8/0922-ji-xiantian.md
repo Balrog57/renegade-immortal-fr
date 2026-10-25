@@ -56,7 +56,7 @@ Un rire jaillit du pilier de lumière et une silhouette en émergea! C'était un
 
 Les yeux de Maître Yan Leizi s'illuminèrent, mais il ne l'attaqua pas immédiatement. Cependant, les ancêtres des familles de culture transmises jusqu'au royaume des Immortels s'animèrent. Tous trois chargèrent vers le Saint Démon du Dragon des Nuages.
 
-« Les quatre saints de l'Alliance de la Culture sont tous au stade intermédiaire du Briseur du Nirvana. La culture du Dieu de Sang est indéterminée, et il est capable de combattre seul. Les trois autres camarades ne sont qu'au stade initial du Briseur du Nirvana; ils doivent donc unir leurs forces pour espérer tenir! Pourtant, ces individus ne sont pas les plus puissants de cette bataille! » Les yeux de Maître Yan Leizi brillèrent, mais il ne daigna pas regarder le Saint Démon du Dragon des Nuages à la robe jaune. Au lieu de cela, il fixa le vide devant lui et dit calmement: « Les quatre saints de l'Alliance n'agissent jamais seuls. Ji Xiantian, pourquoi te caches-tu encore? »
+« Les quatre saints de l'Alliance Xiu Zhen sont tous au stade intermédiaire du Briseur du Nirvana. La culture du Dieu de Sang est indéterminée, et il est capable de combattre seul. Les trois autres camarades ne sont qu'au stade initial du Briseur du Nirvana; ils doivent donc unir leurs forces pour espérer tenir! Pourtant, ces individus ne sont pas les plus puissants de cette bataille! » Les yeux de Maître Yan Leizi brillèrent, mais il ne daigna pas regarder le Saint Démon du Dragon des Nuages à la robe jaune. Au lieu de cela, il fixa le vide devant lui et dit calmement: « Les quatre saints de l'Alliance n'agissent jamais seuls. Ji Xiantian, pourquoi te caches-tu encore? »
 
 Tandis que Maître Yan Leizi parlait, il avança pour se placer aux côtés des 18 Lou Fu. Puis, de ses deux doigts, il pointa impitoyablement vers l'avant.
 
@@ -106,7 +106,7 @@ Parallèlement à ces craquements, d'innombrables glaciers surgirent, imposants,
 
 Ce Ji Xiantian ressemblait à une femme extrêmement séduisante. Pourtant, en regardant de plus près, on remarquait que sa poitrine était plate et que sa pomme d'Adam, quoique petite, était bien visible! C'était manifestement un homme!
 
-Le regard de Maître Yan Leizi resta calme alors qu'il levait la main droite vers le vide. L'énergie originelle du monde se rassembla frénétiquement pour former une sphère de flammes blanches dans sa paume. Il fixa Ji Xiantian et dit lentement: « Quand je suis parti, j'ai déclaré que si le jour venait où je reviendrais, je ferais disparaître l'Alliance de la Culture. Peu importe si le ciel se couvre de sang après ma mort! »
+Le regard de Maître Yan Leizi resta calme alors qu'il levait la main droite vers le vide. L'énergie originelle du monde se rassembla frénétiquement pour former une sphère de flammes blanches dans sa paume. Il fixa Ji Xiantian et dit lentement: « Quand je suis parti, j'ai déclaré que si le jour venait où je reviendrais, je ferais disparaître l'Alliance Xiu Zhen. Peu importe si le ciel se couvre de sang après ma mort! »
 
 À ce moment précis, dans la région occidentale, avec le Serpent aux yeux de lune en tête et l'arbre géant en soutien, ils convergeaient vers la région nord...
 

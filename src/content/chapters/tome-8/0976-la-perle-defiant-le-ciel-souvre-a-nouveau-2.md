@@ -32,19 +32,19 @@ Tian Yunzi esquissa un sourire amer. S'il n'avait pas pris l'initiative d'attaqu
 
 En soupirant, Tian Yunzi semblait avoir vieilli. Il savait que ce qu'il avait perdu n'était pas seulement son énergie originelle. Une fissure venait de se former sur son cœur Dao parfait.
 
-« Avant cela, je n'avais commis qu'une seule erreur dans ma vie. » En ces mots, Tian Yunzi retourna à la Secte du Destin Céleste et s'assit sur un rocher bleu. Son visage commença à vieillir à vue d'œil.
+« Avant cela, je n'avais commis qu'une seule erreur dans ma vie. » En ces mots, Tian Yunzi retourna à la Secte Tian Yun et s'assit sur un rocher bleu. Son visage commença à vieillir à vue d'œil.
 
 « Autrefois, j'avais commis une erreur de divination concernant le groupe des Anciens de l'Alliance, et une fissure était apparue dans mon cœur Dao. Puis, j'ai fait une rencontre fortuite avec... lui! Bien que ce ne fût qu'un seul regard, j'en ai tiré une illumination. La fissure causée par mon erreur avait montré des signes de guérison. Puis, après des dizaines de milliers d'années de compréhension, mon cœur Dao était redevenu complet. Je formerais alors mon propre Dao céleste pour remplacer celui des Cieux. »
 
 « Cependant, j'ai commis deux erreurs consécutives! » Tian Yunzi afficha une expression amère.
 
-« Bien que mon erreur concernant Wang Lin dans la Terre des Esprits Démoniaques ait fini par ramener les choses sur le chemin que j'avais prévu... Pourtant... Cette fois, j'ai d'abord eu tort à son sujet, puis j'ai eu tort concernant cette main... » Tian Yunzi secoua la tête et fixa le ciel pendant un long moment. Il ferma lentement les yeux, laissant un soupir peser sur son cœur.
+« Bien que mon erreur concernant Wang Lin dans la Terre Yao Ling ait fini par ramener les choses sur le chemin que j'avais prévu... Pourtant... Cette fois, j'ai d'abord eu tort à son sujet, puis j'ai eu tort concernant cette main... » Tian Yunzi secoua la tête et fixa le ciel pendant un long moment. Il ferma lentement les yeux, laissant un soupir peser sur son cœur.
 
 Quant à Ling Tianhou, le visage déformé par la panique et le cuir chevelu engourdi, il chargea vers le centre de la planète. Il sentait la lumière invisible le poursuivre, et aucune des interdictions, formations ou sceaux disposés sur sa route ne semblait avoir d'effet sur elle.
 
 Presque à bout de nerfs, Ling Tianhou atteignit la lisière du noyau planétaire et s'y engouffra en serrant les dents.
 
-« Lorsque j'ai obtenu la planète Da Luo, je savais qu'une étincelle de flamme sacrificielle, laissée par le Vénérable Xu Ling de la Secte de Culture du Vide Brillant lors du raffinage de cette planète, subsistait encore! En ce moment de crise, j'espère pouvoir utiliser cette flamme pour résister. » À l'instant où il pénétra le noyau, une vague de chaleur lui cingla le visage.
+« Lorsque j'ai obtenu la planète Da Luo, je savais qu'une étincelle de flamme sacrificielle, laissée par le Vénérable Xu Ling de la Secte Kun Xu lors du raffinage de cette planète, subsistait encore! En ce moment de crise, j'espère pouvoir utiliser cette flamme pour résister. » À l'instant où il pénétra le noyau, une vague de chaleur lui cingla le visage.
 
 La lumière invisible s'approcha rapidement et pénétra directement dans le noyau. En un éclair, elle se mua en une main géante qui tendit les doigts vers Ling Tianhou.
 
@@ -78,7 +78,7 @@ Quant à retrouver Wang Lin pour se venger, Ling Tianhou en avait trop peur. À 
 
 Il ne voulait plus jamais affronter cette étrange main.
 
-Wang Lin était assis devant la tour, au sein de la Secte de l'Épée Da Luo. La mer de flammes dans son corps avait disparu, remplacée par une onde de lumière éclatante émanant de la Perle Défiant le Ciel.
+Wang Lin était assis devant la tour, au sein de la Secte Da Luo Jian. La mer de flammes dans son corps avait disparu, remplacée par une onde de lumière éclatante émanant de la Perle Défiant le Ciel.
 
 Dès que cette lumière apparut, il sentit qu'elle se scindait en deux. Un rayon se dirigea vers Ling Tianhou dans la tour géante, tandis que l'autre s'engouffra dans le vide. Il ignorait où elle était disparue.
 

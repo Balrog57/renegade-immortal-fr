@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 419 - Second generation Suzaku Situ Nan
 slug: deuxieme-generation-de-suzaku-situ-nan
 ---
-D’un ton arrogant, Du Tian déclara: « Voici la puissance du drapeau d'âmes au milliard d'âmes de ma Secte de l'Affinement de l'Âme. Qu'en penses-tu? »
+D’un ton arrogant, Du Tian déclara: « Voici la puissance du drapeau d'âmes au milliard d'âmes de ma Secte Lian Hun. Qu'en penses-tu? »
 
 Wang Lin répondit: « Très puissant! »
 
@@ -24,7 +24,7 @@ Du Tian ne cachait rien à Wang Lin; il le traitait comme un véritable disciple
 
 Le regard de Wang Lin se fit sérieux lorsqu'il demanda: « Aux côtés de la deuxième génération de Suzaku? »
 
-Du Tian hocha la tête. « Après avoir vaincu le Clan des Immortels Délaissés, la première génération de Suzaku s'est sacrifiée avec plusieurs vieux monstres Ascendants pour sceller le clan. Il a ensuite désigné un successeur pour devenir la deuxième génération de Suzaku. »
+Du Tian hocha la tête. « Après avoir vaincu le Clan Xian Yi, la première génération de Suzaku s'est sacrifiée avec plusieurs vieux monstres Ascendants pour sceller le clan. Il a ensuite désigné un successeur pour devenir la deuxième génération de Suzaku. »
 
 « Cette personne était extrêmement talentueuse et exceptionnelle, bien différente de tous les Suzakus qui lui succédèrent. Il n'opprimait pas les pays de culture de rang 5 et, bien qu'il n'ait dirigé la planète Suzaku que très peu de temps, sa culture, durant ces mille ans, était la plus élevée de tous les Suzakus. On dit qu'il avait déjà posé un demi-pied dans le royaume au-delà de l'Ascension et qu'il ne lui manquait qu'une demi-étape pour atteindre le niveau suivant. »
 
@@ -38,7 +38,7 @@ Du Tian secoua la tête. « Trop de temps a passé pour que l'on se souvienne en
 
 Wang Lin insista: « Qu'est-il arrivé à lui, finalement? »
 
-Du Tian répondit d'une voix lente: « Son sort est inconnu. » Il soupira et continua: « La rumeur veut que la bataille contre ces cultivateurs étrangers fut tout aussi intense que celle contre l'esprit ancestral du Clan des Immortels Délaissés. En fin de compte, l'ancêtre de ma Secte de l'Affinement de l'Âme ne fit pas le poids; après tout, il n'était qu'un cultivateur Ascendant au début de son stade. Il utilisa la quatrième âme, ce qui lui sauva la vie, et parvint à tuer l'un des cultivateurs étrangers. Cependant, la quatrième âme fut gravement endommagée et est tombée dans un sommeil profond depuis lors. Selon mes calculs, elle aurait dû être presque totalement rétablie à présent. »
+Du Tian répondit d'une voix lente: « Son sort est inconnu. » Il soupira et continua: « La rumeur veut que la bataille contre ces cultivateurs étrangers fut tout aussi intense que celle contre l'esprit ancestral du Clan Xian Yi. En fin de compte, l'ancêtre de ma Secte Lian Hun ne fit pas le poids; après tout, il n'était qu'un cultivateur Ascendant au début de son stade. Il utilisa la quatrième âme, ce qui lui sauva la vie, et parvint à tuer l'un des cultivateurs étrangers. Cependant, la quatrième âme fut gravement endommagée et est tombée dans un sommeil profond depuis lors. Selon mes calculs, elle aurait dû être presque totalement rétablie à présent. »
 
 « Bien que la bataille ait été remportée, la deuxième génération de Suzaku fut traquée par les cultivateurs étrangers et disparut. »
 
@@ -50,7 +50,7 @@ Wang Lin prit une profonde inspiration, les yeux brillants. Il nourrissait une r
 
 Du Tian observa Wang Lin et demanda: « À quoi penses-tu? »
 
-Après réflexion, Wang Lin demanda: « Face au Clan des Immortels Délaissés et à la formation de Suzaku, si la deuxième génération de Suzaku était encore en vie, aiderait-elle l'actuel Suzaku? »
+Après réflexion, Wang Lin demanda: « Face au Clan Xian Yi et à la formation de Suzaku, si la deuxième génération de Suzaku était encore en vie, aiderait-elle l'actuel Suzaku? »
 
 Du Tian rit en secouant la tête. « Ne comptons pas sur la possibilité que la deuxième génération de Suzaku soit encore en vie, mais si elle l'était, elle n'aiderait pas le Suzaku de la génération actuelle, car il n'y a aucun lien entre eux. On raconte que la deuxième génération de Suzaku était très arrogante; s'il n'avait pas eu de dette envers la première génération de Suzaku, il aurait déjà quitté la planète pour perfectionner sa culture ailleurs. »
 
@@ -58,9 +58,9 @@ Wang Lin acquiesça. Ses yeux s'animèrent et il demanda: « Combien de généra
 
 Du Tian renifla: « L'actuel Suzaku est de la 14e génération, et c'est celui que je déteste le plus. »
 
-Wang Lin réfléchit un instant avant de demander soudainement: « Aîné, l'esprit ancestral du Clan des Immortels Délaissés dont vous parliez tout à l'heure, qu'est-ce que c'est? »
+Wang Lin réfléchit un instant avant de demander soudainement: « Aîné, l'esprit ancestral du Clan Xian Yi dont vous parliez tout à l'heure, qu'est-ce que c'est? »
 
-Du Tian secoua la tête: « Je l'ignore également, je n'ai vu que les archives de la secte. À l'époque, lors de la grande guerre contre le Clan des Immortels Délaissés, cet esprit ancestral était apparu et avait causé la mort d'un grand nombre de cultivateurs Ascendants. Bref, ne parlons plus de cela. Le continent de Suzaku approche. Dépêchons-nous pour que tu puisses atteindre le stade de la Transformation de l'Âme. » Sur ce, Du Tian accéléra brusquement.
+Du Tian secoua la tête: « Je l'ignore également, je n'ai vu que les archives de la secte. À l'époque, lors de la grande guerre contre le Clan Xian Yi, cet esprit ancestral était apparu et avait causé la mort d'un grand nombre de cultivateurs Ascendants. Bref, ne parlons plus de cela. Le continent de Suzaku approche. Dépêchons-nous pour que tu puisses atteindre le stade de la Transformation de l'Âme. » Sur ce, Du Tian accéléra brusquement.
 
 En quelques mois seulement, Du Tian avait conduit Wang Lin à travers presque la moitié de la planète. Désormais, ils pouvaient voir le continent de Suzaku apparaître devant eux.
 
@@ -86,7 +86,7 @@ Un écran de lumière verte était apparu aux confins du continent de Suzaku, co
 
 La formation Suzaku était la plus puissante de la planète. Elle pouvait varier en taille, mais lorsqu'elle était déployée à pleine puissance, elle pouvait recouvrir toute la planète pour la protéger des cultivateurs étrangers ou des bêtes démoniaques. À sa plus petite échelle, elle pouvait protéger une seule personne avec une puissance extrême.
 
-« On dirait que le pays de Suzaku est bien déterminé à vaincre le Clan des Immortels Délaissés. La quantité de pierres spirituelles nécessaire pour activer la formation Suzaku dépasse l'entendement, et une multitude de jades célestes sont requis pour en exploiter la puissance. Héhé, assez pour égaler un cultivateur Ascendant du stade avancé. » Les yeux de Du Tian brillèrent et il pointa le doigt vers l'avant. Un filet de gaz noir s'échappa de son doigt et frappa l'écran de lumière verte.
+« On dirait que le pays de Suzaku est bien déterminé à vaincre le Clan Xian Yi. La quantité de pierres spirituelles nécessaire pour activer la formation Suzaku dépasse l'entendement, et une multitude de jades célestes sont requis pour en exploiter la puissance. Héhé, assez pour égaler un cultivateur Ascendant du stade avancé. » Les yeux de Du Tian brillèrent et il pointa le doigt vers l'avant. Un filet de gaz noir s'échappa de son doigt et frappa l'écran de lumière verte.
 
 Dès que le gaz noir approcha, l'écran de lumière verte trembla et forma un poing émeraude qui percuta le gaz.
 
@@ -94,15 +94,15 @@ Dès que le gaz noir approcha, l'écran de lumière verte trembla et forma un po
 
 Après une déflagration sourde, le gaz noir disparut et le poing se résorba dans l'écran de lumière verte.
 
-Du Tian ricana: « Elle contient même le sang du Clan des Démons Géants, la formation possède donc une partie de la puissance de leur lignage. »
+Du Tian ricana: « Elle contient même le sang du Clan Ju Mo, la formation possède donc une partie de la puissance de leur lignage. »
 
-« Vous n'auriez pas dû laisser autant de problèmes derrière vous en allant au Clan des Démons Géants; si j'y étais allé personnellement, je les aurais tous exterminés pour prévenir toute représailles future. Après ton départ, lors de la réapparition du Clan des Immortels Délaissés, le second disciple de Suzaku, Qian Feng, s'est rendu chez les Démons Géants, les a déliés de leur sceau et les a tous transférés au pays de Suzaku. »
+« Vous n'auriez pas dû laisser autant de problèmes derrière vous en allant au Clan Ju Mo; si j'y étais allé personnellement, je les aurais tous exterminés pour prévenir toute représailles future. Après ton départ, lors de la réapparition du Clan Xian Yi, le second disciple de Suzaku, Qian Feng, s'est rendu chez les Démons Géants, les a déliés de leur sceau et les a tous transférés au pays de Suzaku. »
 
-« Je me demandais pourquoi le pays de Suzaku se montrait si généreux, mais il semble qu'ils convoitaient le sang du Clan des Démons Géants. Avec une telle quantité de leur sang, cette formation intègre une partie de la puissance de leur lignage. »
+« Je me demandais pourquoi le pays de Suzaku se montrait si généreux, mais il semble qu'ils convoitaient le sang du Clan Ju Mo. Avec une telle quantité de leur sang, cette formation intègre une partie de la puissance de leur lignage. »
 
 Wang Lin resta silencieux. Avec la présence de Chi Hu, il était impossible de les tuer tous.
 
-Le regard de Du Tian se fit glacial alors qu'il fixait la formation Suzaku et hurla: « La formation Suzaku encercle tout le continent. Il doit y avoir quelqu'un qui la contrôle tous les 5 000 kilomètres. Sortez pour ce vieil homme, ou je créerai une brèche avant même que le Clan des Immortels Délaissés n'arrive! »
+Le regard de Du Tian se fit glacial alors qu'il fixait la formation Suzaku et hurla: « La formation Suzaku encercle tout le continent. Il doit y avoir quelqu'un qui la contrôle tous les 5 000 kilomètres. Sortez pour ce vieil homme, ou je créerai une brèche avant même que le Clan Xian Yi n'arrive! »
 
 « La patience de ce vieil homme a des limites! Je ne vous accorde que trois respirations! »
 

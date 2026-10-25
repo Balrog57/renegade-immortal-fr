@@ -16,7 +16,7 @@ L'armée du Royaume Extérieur attaqua de huit directions différentes, telle hu
 
 Des grondements tonitruants résonnèrent. Une autre planète de culture s'effondra, et une onde de choc monstrueuse se propagea. Les cultivateurs du Vide Arcanique qui observaient la scène agitèrent leurs mains pour dissiper l'onde de choc afin qu'elle n'affecte pas les assaillants du Royaume Extérieur.
 
-Mu Bingmei se tenait sur une planète, entourée de milliers de cultivateurs de la Secte Divine. Au fil des années, en tant que maîtresse de la Secte Divine, Mu Bingmei avait utilisé son charme unique et les paroles que Wang Lin avait prononcées autrefois pour unir la Secte. Depuis lors, la Secte Divine l'avait toujours écoutée et avait déployé toute sa puissance lors de la bataille de la Mer des Nuages, de la Rivière Invoquée, du Vide Brillant et, désormais, dans cette ultime bataille.
+Mu Bingmei se tenait sur une planète, entourée de milliers de cultivateurs de la Secte Divine. Au fil des années, en tant que maîtresse de la Secte Divine, Mu Bingmei avait utilisé son charme unique et les paroles que Wang Lin avait prononcées autrefois pour unir la Secte. Depuis lors, la Secte Divine l'avait toujours écoutée et avait déployé toute sa puissance lors de la bataille de la Mer Yun, de la Rivière Invoquée, du Vide Brillant et, désormais, dans cette ultime bataille.
 
 Ils avaient subi d'immenses pertes, tant en vies qu'en blessures, et elle-même avait frôlé la mort à deux reprises. Désormais, il ne restait plus que quelques milliers de membres de la Secte Divine.
 
@@ -50,7 +50,7 @@ Ce Dao Feishan ne courtisait pas seulement les femmes, mais aussi les beaux homm
 
 « Je suis la maîtresse de la Secte Divine! » répondit doucement Mu Bingmei, la voix empreinte de détermination.
 
-Dans une autre direction, la femme en rose qui avait dit « Le Seigneur ne me connaît pas » se tenait sur une planète de culture. Derrière elle se trouvaient les cultivateurs de l'Alliance de Culture du Vide Brillant. Bien que l'Alliance se fût effondrée des années auparavant, de nombreux cultivateurs subsistaient. Cependant, au fil de la bataille, moins de 3 000 d'entre eux restaient debout.
+Dans une autre direction, la femme en rose qui avait dit « Le Seigneur ne me connaît pas » se tenait sur une planète de culture. Derrière elle se trouvaient les cultivateurs de l'Alliance Xiu Zhen de Kun Xu. Bien que l'Alliance se fût effondrée des années auparavant, de nombreux cultivateurs subsistaient. Cependant, au fil de la bataille, moins de 3 000 d'entre eux restaient debout.
 
 Ces 3 000 cultivateurs venaient tous du Vide Brillant. Bien qu'épuisés, ils ne flanchaient pas. Ils se tenaient derrière la femme en rose, prêts à mourir!
 

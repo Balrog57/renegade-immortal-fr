@@ -42,15 +42,15 @@ Le jeune homme en noir réfléchit un instant avant de s'asseoir au bord de la p
 
 Peu de temps après, une autre personne arriva. Son visage était sombre; il se trouvait au début du stade de la Formation de l'Âme. En constatant que toutes les plateformes étaient occupées, il s'envola immédiatement sur le côté. Nul ne sut si c'était intentionnel, mais par un concours de circonstances, il vola vers l'endroit où se trouvaient les six membres du Suzaku.
 
-Son corps apparut sur la plateforme occupée par l'homme du Clan des Démons Géants et il déclara froidement: « Écarte-toi! »
+Son corps apparut sur la plateforme occupée par l'homme du Clan Ju Mo et il déclara froidement: « Écarte-toi! »
 
-L'homme du Clan des Démons Géants le regarda avec dédain, puis son corps gonfla soudainement pour devenir gigantesque. Il se redressa, surplomba la personne terrifiée et dit: « Il n'y a pas de place! »
+L'homme du Clan Ju Mo le regarda avec dédain, puis son corps gonfla soudainement pour devenir gigantesque. Il se redressa, surplomba la personne terrifiée et dit: « Il n'y a pas de place! »
 
 Tandis qu'il parlait, l'empreinte de hache sur son front brilla rapidement.
 
-L'individu regarda l'homme du Clan des Démons Géants avec effroi en murmurant: « Le Clan des Démons Géants... » Son corps s'éloigna lentement de la plateforme.
+L'individu regarda l'homme du Clan Ju Mo avec effroi en murmurant: « Le Clan Ju Mo... » Son corps s'éloigna lentement de la plateforme.
 
-L'instant d'après, il apparut sur la plateforme où se trouvait le génie de Xue Yu, Hongdie. L'homme du Clan des Démons Géants l'observa avec intérêt.
+L'instant d'après, il apparut sur la plateforme où se trouvait le génie de Xue Yu, Hongdie. L'homme du Clan Ju Mo l'observa avec intérêt.
 
 Cette personne atterrit sur la plateforme de Hongdie, la regarda, joignit les mains en signe de respect, puis repartit.
 
@@ -60,7 +60,7 @@ Finalement, il choisit les deux plateformes où se trouvaient Wang Lin et le jeu
 
 Quant à Wang Lin, il ressemblait à un érudit fragile, une proie facile. Les yeux de l'inconnu s'illuminèrent et il se dirigea vers la plateforme de Wang Lin.
 
-À cet instant, même l'homme d'âge moyen qui buvait leva la tête pour observer la scène. L'homme du Clan des Démons Géants fit de même, l'intérêt brillant dans ses yeux.
+À cet instant, même l'homme d'âge moyen qui buvait leva la tête pour observer la scène. L'homme du Clan Ju Mo fit de même, l'intérêt brillant dans ses yeux.
 
 Hongdie avait l'impression de connaître ce visage d'érudit, mais elle ne parvenait pas à s'en souvenir. Elle scruta également l'inconnu pour tenter de déceler la nature de ses techniques. Le jeune homme assoiffé de sang et le vieil homme aux cheveux blancs regardèrent aussi; après tout, Wang Lin venait du Suzaku, tout comme eux.
 
@@ -86,7 +86,7 @@ L'homme fut projeté loin de là. Il regarda le crapaud avec effroi et ne put s'
 
 Wang Lin fut surpris par la facilité avec laquelle l'homme abandonnait, mais il ignorait si cela était sincère ou un simple stratagème.
 
-Le génie de Xue Yu fixa le crapaud un instant avant de détourner les yeux. Quant à l'homme du Clan des Démons Géants, ses yeux brûlaient d'une envie de combattre tandis qu'il hochait la tête vers Wang Lin, semblant reconnaître sa puissance. Le vieil homme, lui, se contenta de lever les yeux au ciel avant de détourner le regard.
+Le génie de Xue Yu fixa le crapaud un instant avant de détourner les yeux. Quant à l'homme du Clan Ju Mo, ses yeux brûlaient d'une envie de combattre tandis qu'il hochait la tête vers Wang Lin, semblant reconnaître sa puissance. Le vieil homme, lui, se contenta de lever les yeux au ciel avant de détourner le regard.
 
 Seul le jeune homme aux yeux assoiffés de sang observa le crapaud avec une pointe d'appréhension. Sa méthode de culture reposant entièrement sur les insectes, il se méfiait grandement d'une créature capable de cracher la foudre, d'autant plus qu'il s'agissait d'un crapaud.
 

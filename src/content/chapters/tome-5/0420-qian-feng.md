@@ -14,7 +14,7 @@ Qian Feng éclata de rire. « Aîné, je n'ai aucune intention malveillante. Se 
 
 Du Tian ricana. Il leva la main et s'apprêtait à lancer un sort lorsque Wang Lin intervint: « Très bien, je vais te combattre. »
 
-Les yeux de Qian Feng s'illuminèrent. Il laissa échapper un rire en sortant du rideau de lumière verte. Il s'arrêta à 33 mètres de Wang Lin et sourit: « Bien. Ce n'est pas étonnant que le frère Ceng soit celui qui a tué Li Yuanfeng et l'ancêtre du Clan des Démons Géants... »
+Les yeux de Qian Feng s'illuminèrent. Il laissa échapper un rire en sortant du rideau de lumière verte. Il s'arrêta à 33 mètres de Wang Lin et sourit: « Bien. Ce n'est pas étonnant que le frère Ceng soit celui qui a tué Li Yuanfeng et l'ancêtre du Clan Ju Mo... »
 
 Wang Lin ne perdit pas de temps en paroles avec cet individu. Dès que Qian Feng fut sorti, Wang Lin sortit son épée céleste, activa son énergie spirituelle céleste et trancha Qian Feng, interrompant net sa phrase. Bien que ce fût la première fois que Wang Lin rencontrait Qian Feng, il n'éprouvait aucune sympathie pour lui. Sa première attaque fut portée avec 120 % de sa puissance.
 
@@ -46,9 +46,9 @@ Après tout, il ne comprenait pas Wang Lin et le méprisait secrètement. Autrem
 
 De son point de vue, Wang Lin était tout bonnement vil. Compte tenu de son statut, peu importe qui il affrontait, l'adversaire prendrait au moins le temps de discuter avant de commencer le combat. Pourtant, ce Wang Lin l'avait inopinément coupé dans son élan pour l'attaquer dès sa sortie. Un tel acte n'était rien de moins qu'une attaque sournoise.
 
-Même lorsqu'il combattait le jeune chef du Clan des Immortels Délaissés, il n'avait jamais été placé dans une position aussi humiliante.
+Même lorsqu'il combattait le jeune chef du Clan Xian Yi, il n'avait jamais été placé dans une position aussi humiliante.
 
-Cette scène ravissait Du Tian. Il éclata de rire en pensant: « Ce Ceng Niu possède véritablement l'essence de ma Secte de l'Affinement de l'Âme. Si l'on doit agir, il faut savoir saisir la meilleure opportunité. »
+Cette scène ravissait Du Tian. Il éclata de rire en pensant: « Ce Ceng Niu possède véritablement l'essence de ma Secte Lian Hun. Si l'on doit agir, il faut savoir saisir la meilleure opportunité. »
 
 À cet instant, Qian Feng était encerclé par le sous-étendard des âmes d'un milliard. Les innombrables fragments d'âmes créaient une pression écrasante, particulièrement les douze âmes primaires qui représentaient un danger mortel pour lui.
 
@@ -82,7 +82,7 @@ Les yeux de Wang Lin restaient calmes, comme si le combat précédent n'avait ja
 
 Après trois respirations, le rideau de lumière verte disparut et Qian Feng en sortit, l'expression sombre. Il fixa Wang Lin avec colère et frustration, mais réprima aussitôt ses émotions. Après une profonde inspiration, son visage retrouva sa douceur habituelle. Il dit: « Le frère Ceng a vraiment du talent! J'ai pu constater de quoi vous êtes capable. »
 
-Wang Lin répondit calmement: « Ce n'est rien! » Son regard s'attarda sur la forêt non loin de là, puis il poussa un soupir et s'envola vers la Secte de l'Affinement de l'Âme.
+Wang Lin répondit calmement: « Ce n'est rien! » Son regard s'attarda sur la forêt non loin de là, puis il poussa un soupir et s'envola vers la Secte Lian Hun.
 
 Du Tian esquissa un sourire malicieux en regardant Qian Feng, avant de parcourir distraitement la forêt du regard et de disparaître à son tour vers la Secte.
 
@@ -102,7 +102,7 @@ Qian Feng ne daigna même pas regarder Hongdie; il continuait de fixer l'endroit
 
 « L'étendard d'âme de ce Ceng Niu est trop puissant. Ce vieux Du Tian a perdu la tête aussi, mais au lieu de le donner au pays de Suzaku, il le donne à Ceng Niu! Cependant, l'étendard a déjà attiré l'attention du Maître, et il est déterminé à s'en saisir. Je veux voir combien de temps tu pourras encore tenir! »
 
-Wang Lin et Du Tian regagnèrent rapidement la Secte de l'Affinement de l'Âme.
+Wang Lin et Du Tian regagnèrent rapidement la Secte Lian Hun.
 
 La Secte était restée telle qu'ils l'avaient laissée. À leur retour, Du Tian ne prit même pas de repos avant d'emmener Wang Lin directement vers la montagne arrière.
 
@@ -122,10 +122,10 @@ L'étendard des âmes d'un milliard flottait silencieusement devant lui.
 
 Du Tian regarda l'étendard et songea au passé. Il ne semblait pas contempler un trésor, mais plutôt ses aînés.
 
-Une pointe de tristesse apparut dans ses yeux alors qu'il murmurait: « Ancêtres de la Secte de l'Affinement de l'Âme, votre junior Du Tian, dont la durée de vie touche à sa fin, est sur le point de vous rejoindre. »
+Une pointe de tristesse apparut dans ses yeux alors qu'il murmurait: « Ancêtres de la Secte Lian Hun, votre junior Du Tian, dont la durée de vie touche à sa fin, est sur le point de vous rejoindre. »
 
 Il désigna l'étendard et une âme primaire s'en échappa. Cette âme affichait une expression douce et dégageait une aura céleste.
 
-Du Tian fixa l'âme. Il soupira et murmura pour lui-même: « Grand frère apprenti, je ne sais pas si j'ai raison ou tort d'avoir confié l'étendard à Ceng Niu. Cependant, avec la guerre entre le Clan des Immortels Délaissés et le pays de Suzaku, notre Secte de l'Affinement de l'Âme sera difficile à sauver. Mais ce Ceng Niu quittera la planète, il pourra ainsi aider ma Secte à renaître ailleurs. C'est peut-être là le véritable sens de votre prédiction... »
+Du Tian fixa l'âme. Il soupira et murmura pour lui-même: « Grand frère apprenti, je ne sais pas si j'ai raison ou tort d'avoir confié l'étendard à Ceng Niu. Cependant, avec la guerre entre le Clan Xian Yi et le pays de Suzaku, notre Secte Lian Hun sera difficile à sauver. Mais ce Ceng Niu quittera la planète, il pourra ainsi aider ma Secte à renaître ailleurs. C'est peut-être là le véritable sens de votre prédiction... »
 
 Du Tian regarda l'âme primaire si paisible et murmura: « J'ai vécu ma vie non pas en espérant l'éternité, mais en espérant mourir en paix. Tous les anciens de ma Secte ont volontairement renoncé au cycle de la réincarnation et ont effacé leur conscience pour devenir des âmes primaires. Moi, Du Tian, je ne ferai pas exception! Grand frère apprenti, attends-moi! Je te rejoindrai bientôt! »

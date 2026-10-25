@@ -10,9 +10,9 @@ Leurs regards se croisèrent à cet instant, et l'esprit de Wang Lin fut secoué
 
 Quant à Yun Kong, son esprit fut également agité alors qu'il contemplait le ciel d'un regard étrange.
 
-« Je pensais qu'en dehors de ces vieux briscards, seul Yun Yifeng pouvait susciter mon intérêt sur le Continent du Taureau Céleste... Je ne m'attendais pas à en rencontrer un autre aujourd'hui! La froideur dans ses yeux... C'est lui aussi un homme impitoyable... » sourit Yun Kong tout en tenant son épée et en s'élevant dans les airs.
+« Je pensais qu'en dehors de ces vieux briscards, seul Yun Yifeng pouvait susciter mon intérêt sur le Continent Tian Niu... Je ne m'attendais pas à en rencontrer un autre aujourd'hui! La froideur dans ses yeux... C'est lui aussi un homme impitoyable... » sourit Yun Kong tout en tenant son épée et en s'élevant dans les airs.
 
-Wang Lin chargea dans le sixième étage. Il ne restait que le septième avant qu'il ne puisse quitter la Mer des Pilules avec Tigre Blanc et sa compagnie. Cependant, Wang Lin n'avait pas le luxe de choisir. Le septième étage était le plus dense, et il ne pourrait pas trouver d'ouverture en peu de temps.
+Wang Lin chargea dans le sixième étage. Il ne restait que le septième avant qu'il ne puisse quitter la Mer Dan avec Tigre Blanc et sa compagnie. Cependant, Wang Lin n'avait pas le luxe de choisir. Le septième étage était le plus dense, et il ne pourrait pas trouver d'ouverture en peu de temps.
 
 De plus, avec le cultivateur nommé Yun Kong sur ses talons, il ne disposait que de peu de temps. Les yeux de Wang Lin brillèrent alors qu'il traversait le sixième étage. L'énergie de l'épée semblait sur le point de percer lorsque des lignes de sang apparurent dans ses yeux et que deux globes oculaires écarlates se matérialisèrent derrière lui.
 
@@ -70,23 +70,23 @@ Yun Kong laissa échapper un gémissement étouffé tandis que du sang coulait d
 
 Ce n'est que lorsque Wang Lin fut loin que Yun Kong esquissa un sourire, mais c'était un sourire d'une noirceur extrême.
 
-« Entrer sur le Continent du Taureau Céleste sera très intéressant... La prochaine fois, je ne te laisserai pas t'échapper. Un cultivateur aussi puissant que toi fera un excellent fourneau pour mon épée! » Les yeux de Yun Kong brillèrent alors qu'il s'éloignait. Son visage était pâle; il avait été blessé dans ce combat. Cependant, le moment n'était pas aux soins, car il devait encore accomplir l'ordre des Anciens Ancêtres: raffiner la Mer des Pilules pour recréer cette demi-Pilule Céleste!
+« Entrer sur le Continent Tian Niu sera très intéressant... La prochaine fois, je ne te laisserai pas t'échapper. Un cultivateur aussi puissant que toi fera un excellent fourneau pour mon épée! » Les yeux de Yun Kong brillèrent alors qu'il s'éloignait. Son visage était pâle; il avait été blessé dans ce combat. Cependant, le moment n'était pas aux soins, car il devait encore accomplir l'ordre des Anciens Ancêtres: raffiner la Mer Dan pour recréer cette demi-Pilule Céleste!
 
-À cet instant précis, dans la Mer des Pilules, il ne restait plus un seul cultivateur du Continent du Taureau Céleste. Tous étaient morts!
+À cet instant précis, dans la Mer Dan, il ne restait plus un seul cultivateur du Continent Tian Niu. Tous étaient morts!
 
-L'ensemble de la Mer des Pilules était devenu le domaine du Continent du Démon Vert!
+L'ensemble de la Mer Dan était devenu le domaine du Continent Lu Mo!
 
-À l'extérieur de la Mer des Pilules, au-dessus du Continent du Taureau Céleste, Wang Lin vola sur mille kilomètres et s'arrêta un instant. Du sang s'écoulait du coin de sa bouche alors qu'il se retournait pour contempler la restriction entourant la Mer des Pilules d'un regard venimeux.
+À l'extérieur de la Mer Dan, au-dessus du Continent Tian Niu, Wang Lin vola sur mille kilomètres et s'arrêta un instant. Du sang s'écoulait du coin de sa bouche alors qu'il se retournait pour contempler la restriction entourant la Mer Dan d'un regard venimeux.
 
-« Tigre Blanc, partez tous les trois... J'ai encore d'autres affaires à régler, je ne partirai pas avec vous. Cet endroit est loin de la Secte de la Grande Âme mais proche de la Secte Gui Yi. Si vous voulez leur rapporter ce qui s'est passé, dépêchez-vous. »
+« Tigre Blanc, partez tous les trois... J'ai encore d'autres affaires à régler, je ne partirai pas avec vous. Cet endroit est loin de la Secte Da Hun mais proche de la Secte Gui Yi. Si vous voulez leur rapporter ce qui s'est passé, dépêchez-vous. »
 
-« Quant à la Secte de la Grande Âme, je les informerai! » Wang Lin regarda la Mer des Pilules, le regard froid. Il agita la main droite et une pierre de jade apparut. C'était une pierre de message de la Secte de la Grande Âme. Après y avoir déposé son message, il la lança dans le ciel, où elle s'éloigna en une lueur sombre.
+« Quant à la Secte Da Hun, je les informerai! » Wang Lin regarda la Mer Dan, le regard froid. Il agita la main droite et une pierre de jade apparut. C'était une pierre de message de la Secte Da Hun. Après y avoir déposé son message, il la lança dans le ciel, où elle s'éloigna en une lueur sombre.
 
-Grâce à leur structure, les pierres de message voyageaient bien plus vite que les cultivateurs, mais Wang Lin ignorait quand la Secte de la Grande Âme la recevrait précisément.
+Grâce à leur structure, les pierres de message voyageaient bien plus vite que les cultivateurs, mais Wang Lin ignorait quand la Secte Da Hun la recevrait précisément.
 
-En voyant la pierre de jade, Tigre Blanc et sa compagnie comprirent qu'il s'agissait d'un objet utilisé en interne par la Secte de la Grande Âme. Ils regardèrent Wang Lin comme s'ils voulaient parler, mais ils se retinrent.
+En voyant la pierre de jade, Tigre Blanc et sa compagnie comprirent qu'il s'agissait d'un objet utilisé en interne par la Secte Da Hun. Ils regardèrent Wang Lin comme s'ils voulaient parler, mais ils se retinrent.
 
-Wang Lin détourna les yeux de la Mer des Pilules. Remarquant leurs expressions, il dit lentement: « J'ai rejoint la Secte de la Grande Âme et je suis devenu un Ancien. »
+Wang Lin détourna les yeux de la Mer Dan. Remarquant leurs expressions, il dit lentement: « J'ai rejoint la Secte Da Hun et je suis devenu un Ancien. »
 
 « Prenez soin de vous! » Tigre Blanc et sa compagnie joignirent les mains. Ils ne dirent pas merci, mais que ce soit pour cette nouvelle ou pour l'oubli des rancunes dans le monde des grottes, ils garderaient cela gravé dans leur cœur.
 
@@ -94,13 +94,13 @@ Wang Lin détourna les yeux de la Mer des Pilules. Remarquant leurs expressions,
 
 L'Oiseau Vermillon laissa échapper un soupir, comme s'il avait quelque chose sur le cœur, mais finalement, il resta silencieux. Les trois s'envolèrent rapidement vers la Secte Gui Yi.
 
-Une fois qu'ils disparurent à l'horizon, Wang Lin se tourna de nouveau vers la Mer des Pilules, une intention meurtrière brillant dans ses yeux.
+Une fois qu'ils disparurent à l'horizon, Wang Lin se tourna de nouveau vers la Mer Dan, une intention meurtrière brillant dans ses yeux.
 
 « Depuis mon arrivée sur le Continent Astral Immortel, je n'ai jamais subi une telle perte! Yun Kong, si je ne profite pas du fait que tu sois blessé pour t'éliminer, je ne pourrai pas me le pardonner! » Les cris de Yi Si résonnaient encore dans son esprit, lui causant une douleur lancinante. La culture de Yun Kong était très étrange; son niveau n'était pas élevé, si l'on excepte cette dévastatrice énergie d'épée!
 
 Wang Lin avait déjà effacé le Sens Divin de Yan Luan de plusieurs trésors qu'il avait obtenus d'elle. La gourde contenant 30 millions d'âmes dao pouvait libérer une attaque extrêmement puissante, même avec une seule chance!
 
-Ayant pris sa décision, il chargea vers la Mer des Pilules.
+Ayant pris sa décision, il chargea vers la Mer Dan.
 
 Son comportement semblait téméraire, mais il était certain que Yun Kong ne s'attendrait pas à ce qu'il revienne après avoir déployé tant d'efforts pour s'échapper. C'était précisément cela qui rendait Wang Lin si déterminé!
 

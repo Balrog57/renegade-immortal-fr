@@ -38,7 +38,7 @@ Seul le Cadavre d'Argent resta normale, bien qu'une lueur étrange brille dans s
 
 Un simple regard contenait une puissance aussi terrifiante; l'expression sombre, Wang Lin se mit à redouter davantage encore cette grotte céleste. Ce n'était là que l'une des quatre grottes extérieures, et elle était déjà si périlleuse! Une fois qu'ils auraient pénétré dans la grotte finale, il était évident que le danger se trouverait à chaque coin de rue!
 
-« Je crains que ce voyage vers la Terre des Esprits Démoniaques ne soit l'expédition la plus dangereuse de la première moitié de ma vie! » Wang Lin s'était attendu au danger, mais il n'imaginait pas que, face à une simple grotte extérieure, la force des compagnons qu'il avait emmenés se révélerait tout juste insuffisante.
+« Je crains que ce voyage vers la Terre Yao Ling ne soit l'expédition la plus dangereuse de la première moitié de ma vie! » Wang Lin s'était attendu au danger, mais il n'imaginait pas que, face à une simple grotte extérieure, la force des compagnons qu'il avait emmenés se révélerait tout juste insuffisante.
 
 Voyant la silhouette blanche disparaître dans l'obscurité du palais, les yeux de Wang Lin s'illuminèrent. Avec son intelligence, il comprit immédiatement que ce regard était un avertissement!
 

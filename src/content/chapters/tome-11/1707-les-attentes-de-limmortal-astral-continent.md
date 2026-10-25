@@ -38,7 +38,7 @@ Aucun cultivateur dans tout le Monde des Grottes ne remarquerait cette aura, car
 
 Cette aura avait pour but d'invoquer l'Ancêtre Ancien. À mesure qu'elle se répandait, quiconque possédait une lignée ancienne dans le Monde des Grottes la ressentit, percevant une puissance émanant de son propre sang.
 
-Dans le Royaume Intérieur, le démon ancien de la Mer des Nuages, qui avait survécu à tant de batailles, ouvrit les yeux avec stupeur. Fixant l'horizon, il sentit cette aura et éprouva un instinct profond de vénération envers elle.
+Dans le Royaume Intérieur, le démon ancien de la Mer Yun, qui avait survécu à tant de batailles, ouvrit les yeux avec stupeur. Fixant l'horizon, il sentit cette aura et éprouva un instinct profond de vénération envers elle.
 
 Dans la faille invisible entourant la planète Dong Lin, au sein du système de Luotian effondré, une femme, également un dieu ancien, ouvrit les yeux. Son regard se remplit d'horreur; elle fut saisie d'effroi avant que son corps ne se mette à trembler de manière incontrôlable.
 

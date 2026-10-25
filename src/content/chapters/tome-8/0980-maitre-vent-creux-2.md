@@ -34,7 +34,7 @@ La main droite de Wang Lin s'arrêta soudainement alors que son poing ne se trou
 
 Le front du vieil homme était couvert de sueur tandis qu'il contemplait le poing devant lui. Il pouvait clairement ressentir la puissance contenue dans ce coup. Si celui-ci l'atteignait, son corps s'effondrerait à coup sûr. Une fois son corps détruit, il serait peu probable que son âme originelle puisse s'échapper.
 
-« Puisque le camarade cultivateur se rend à la grotte céleste dans la Terre des Esprits Démoniaques et aura certainement besoin d'aide, je suis prêt à faire de mon mieux pour vous assister afin de compenser l'incident d'aujourd'hui! »
+« Puisque le camarade cultivateur se rend à la grotte céleste dans la Terre Yao Ling et aura certainement besoin d'aide, je suis prêt à faire de mon mieux pour vous assister afin de compenser l'incident d'aujourd'hui! »
 
 Les yeux de Wang Lin étaient glacials, impossibles à percer. Sous son regard, le vieil homme se plaignit intérieurement et ajouta: « De plus, je donnerai au camarade cultivateur ce bouclier magique. C'est le trésor protecteur le plus puissant dont je dispose. Si vous l'avez, cela vous aidera grandement dans la grotte céleste! »
 
@@ -52,7 +52,7 @@ Le vieil homme n'osa pas résister et permit à Wang Lin de poser le sceau. L'em
 
 Les sept hommes en noir avaient déjà été éliminés par Da Tou. Se léchant les lèvres, Da Tou retourna aux côtés de Wang Lin.
 
-Le vieil homme poussa un soupir, puis revint sur le bateau en un éclair. Il convoqua tous ses disciples et, après avoir donné quelques ordres, les laissa partir avec l'embarcation. Il rejoignit le dos de Lei Ji, se plaça devant Wang Lin et eut un sourire amer: « Suivant les ordres du camarade cultivateur, j'ai réglé toutes les affaires triviales. Mon vrai nom est Chen Feng et mon surnom est Maître Fu Fengzi. Aujourd'hui, j'ai perdu face devant vous et je me soumets de tout cœur. Moi, Chen Feng, respecterai ma promesse de vous aider dans la Terre des Esprits Démoniaques. Cependant, j'espère qu'après notre retour, le camarade cultivateur relâchera le sceau et que nous serons quittes! »
+Le vieil homme poussa un soupir, puis revint sur le bateau en un éclair. Il convoqua tous ses disciples et, après avoir donné quelques ordres, les laissa partir avec l'embarcation. Il rejoignit le dos de Lei Ji, se plaça devant Wang Lin et eut un sourire amer: « Suivant les ordres du camarade cultivateur, j'ai réglé toutes les affaires triviales. Mon vrai nom est Chen Feng et mon surnom est Maître Fu Fengzi. Aujourd'hui, j'ai perdu face devant vous et je me soumets de tout cœur. Moi, Chen Feng, respecterai ma promesse de vous aider dans la Terre Yao Ling. Cependant, j'espère qu'après notre retour, le camarade cultivateur relâchera le sceau et que nous serons quittes! »
 
 Wang Lin regarda calmement Chen Feng et dit lentement: « Mon sceau n'est pas puissant. Si vous voulez le lever, vous le pourrez facilement. »
 
@@ -72,13 +72,13 @@ C'était là le véritable dessein de Wang Lin. Après tout, son niveau de cultu
 
 Ce stratagème formait un sceau invisible qui, s'il était utilisé correctement, était plus puissant que n'importe quel sceau au monde!
 
-Wang Lin dit calmement: « Si vous suivez mes ordres, je vous rendrai votre liberté lorsque nous quitterons la Terre des Esprits Démoniaques! »
+Wang Lin dit calmement: « Si vous suivez mes ordres, je vous rendrai votre liberté lorsque nous quitterons la Terre Yao Ling! »
 
 Chen Feng hocha la tête et ne perdit plus de temps en paroles avant de s'asseoir. À cet instant, son corps était extrêmement maigre, mais après avoir cultivé un moment, il reprit lentement du volume.
 
-« Sa méthode de culture est très étrange! » Wang Lin détourna le regard. Il savait que Chen Feng cultivait pour lui montrer ses intentions. Chen Feng insinuait qu'il se préparerait pour la Terre des Esprits Démoniaques et qu'il travaillerait pour sa liberté.
+« Sa méthode de culture est très étrange! » Wang Lin détourna le regard. Il savait que Chen Feng cultivait pour lui montrer ses intentions. Chen Feng insinuait qu'il se préparerait pour la Terre Yao Ling et qu'il travaillerait pour sa liberté.
 
-« Avec l'aide de cet homme, mes chances dans la Terre des Esprits Démoniaques ont légèrement augmenté... Malheureusement, je n'ai toujours pas assez de monde... » Wang Lin soupira alors que Lei Ji fendait les étoiles.
+« Avec l'aide de cet homme, mes chances dans la Terre Yao Ling ont légèrement augmenté... Malheureusement, je n'ai toujours pas assez de monde... » Wang Lin soupira alors que Lei Ji fendait les étoiles.
 
 Tout au long du voyage, ils restèrent silencieux. Bientôt, une planète bleue apparut devant eux. Cette planète était magnifique et dégageait une riche aura d'énergie spirituelle.
 
@@ -100,7 +100,7 @@ Ils revenaient tout juste. En raison de l'incident, le Marché de l'Œil Fantôm
 
 Alors qu'ils cultivaient sur leur propre planète, ils avaient ressenti les auras de plusieurs cultivateurs du second niveau à l'extérieur et s'étaient envolés sans hésiter.
 
-En voyant le corps gigantesque de Lei Ji, bien que leurs expressions restassent neutres, ils furent choqués intérieurement. Pour qu'un membre de l'Alliance possède une monture du Clan des Démons Géants, il devait être un vieux monstre tel que Ling Tianhou ou Tian Yunzi.
+En voyant le corps gigantesque de Lei Ji, bien que leurs expressions restassent neutres, ils furent choqués intérieurement. Pour qu'un membre de l'Alliance possède une monture du Clan Ju Mo, il devait être un vieux monstre tel que Ling Tianhou ou Tian Yunzi.
 
 Puis, les trois virent les individus sur le dos de Lei Ji. En voyant Wang Lin, ils furent stupéfaits. Le Maître Yi Chen avait assisté au combat entre Wang Lin et Tian Yunzi, et il était persuadé que Wang Lin était mort. En le revoyant maintenant, un sentiment de respect l'envahit après le choc initial.
 
@@ -134,4 +134,4 @@ Il ignorait que ses paroles furent comme des dizaines de milliers d'éclairs exp
 
 Le Maître Yi Chen s'exclama rapidement sans hésitation: « Frère Wang Lin, ne partez pas si vite. La planète Shuiling est immense. Si le frère Wang n'y voit aucun inconvénient, vous pouvez y cultiver! »
 
-« Cet homme a un membre du Clan des Démons Géants comme monture, est un cultivateur Purificateur du Nirvana et a fait du célèbre Maître Fu Fengzi son serviteur. Il y a aussi ce cultivateur à la tête étrange qui est au stade Scruteur du Nirvana, et sa marionnette n'est manifestement pas faible. Je dois absolument me lier d'amitié avec une telle personne! »
+« Cet homme a un membre du Clan Ju Mo comme monture, est un cultivateur Purificateur du Nirvana et a fait du célèbre Maître Fu Fengzi son serviteur. Il y a aussi ce cultivateur à la tête étrange qui est au stade Scruteur du Nirvana, et sa marionnette n'est manifestement pas faible. Je dois absolument me lier d'amitié avec une telle personne! »

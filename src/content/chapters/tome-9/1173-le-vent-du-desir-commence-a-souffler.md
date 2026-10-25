@@ -116,7 +116,7 @@ Wang Lin acquiesça sans mot dire.
 
 La main droite de Cang Songzi s'étira vers le vide pour ouvrir son espace de stockage. Il en sortit un sac de rangement et le lança à Wang Lin, tout en le fixant d'un regard intense. Personne ne pouvait lire dans ses pensées.
 
-Wang Lin attrapa le sac et l'examina avec son Sens Divin. Il contenait cinq mille cristaux d'origine. Les cristaux d'origine étaient extrêmement rares dans la Mer des Nuages, et une telle quantité représentait une somme astronomique. On ignorait comment Cang Songzi avait pu s'en procurer autant.
+Wang Lin attrapa le sac et l'examina avec son Sens Divin. Il contenait cinq mille cristaux d'origine. Les cristaux d'origine étaient extrêmement rares dans la Mer Yun, et une telle quantité représentait une somme astronomique. On ignorait comment Cang Songzi avait pu s'en procurer autant.
 
 Après avoir rangé le sac, Wang Lin ouvrit son propre espace de stockage et sortit le sac qu'il avait préparé avec ses jades célestes. Il le lança à Cang Songzi qui l'attrapa. Après l'avoir inspecté par son Sens Divin, ce dernier afficha un sourire.
 
@@ -128,7 +128,7 @@ Wang Lin ne discuta plus et se leva pour partir.
 
 Une fois Wang Lin sorti, le sourire de Cang Songzi s'effaça et il marmonna: « Mes cristaux d'origine ne sont pas quelque chose que l'on peut acquérir si aisément... »
 
-En sortant de la pièce, l'expression de Wang Lin était neutre, mais il laissa échapper un reniflement froid. Puisqu'il avait osé venir ici, il ne craignait pas que l'on découvre sa fortune en jades célestes. Tout comme Cang Songzi, qui n'était qu'un membre de la Secte du Jade Précieux mais possédait tant de cristaux d'origine.
+En sortant de la pièce, l'expression de Wang Lin était neutre, mais il laissa échapper un reniflement froid. Puisqu'il avait osé venir ici, il ne craignait pas que l'on découvre sa fortune en jades célestes. Tout comme Cang Songzi, qui n'était qu'un membre de la Secte Bao Yu mais possédait tant de cristaux d'origine.
 
 En songeant à ces cristaux, le cœur de Wang Lin s'emballa de convoitise tandis qu'il s'engageait dans le passage.
 

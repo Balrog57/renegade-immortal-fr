@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 811 - Wings of the Butterfly (2)
 slug: les-ailes-du-papillon-2
 ---
-L'un des monstres de brume se mua en un oiseau à cinq serres et fonça vers un membre du Clan des Immortels Élus. Il emporta le membre du clan dans les airs et poussa un cri qui pénétra son corps. Ce dernier explosa alors en une brume de sang que le monstre de brume absorba aussitôt.
+L'un des monstres de brume se mua en un oiseau à cinq serres et fonça vers un membre du Clan Xian Xuan. Il emporta le membre du clan dans les airs et poussa un cri qui pénétra son corps. Ce dernier explosa alors en une brume de sang que le monstre de brume absorba aussitôt.
 
 Même jusqu'à l'instant de sa mort, ce membre du clan n'opposa aucune résistance. Une trace de lutte subsistait dans ses yeux, mais elle était bien trop faible.
 
-De l'autre côté, les autres monstres de brume encerclèrent les membres du Clan des Immortels Élus et les dévorèrent un par un. La zone fut immédiatement envahie par l'odeur du sang. Une aura de profonde tristesse et d'impuissance s'en dégageait.
+De l'autre côté, les autres monstres de brume encerclèrent les membres du Clan Xian Xuan et les dévorèrent un par un. La zone fut immédiatement envahie par l'odeur du sang. Une aura de profonde tristesse et d'impuissance s'en dégageait.
 
 Chaque membre du clan qui mourait ne pouvait rien faire. La tristesse dans leurs yeux était immense. Au moment de leur trépas, ils eurent une illumination au fond de leur cœur.
 
@@ -20,7 +20,7 @@ Ta Shan était agenouillé au sol, les genoux broyés. Il lutta pour relever la 
 
 L'homme aux robes bleues observait tout cela avec une expression calme et un regard glacial.
 
-Le corps de l'ancêtre du Clan des Immortels Élus trembla. Une bourrasque de vent souffla alors que le jeune homme à ses côtés était projeté dans les airs par un monstre de brume et dévoré.
+Le corps de l'ancêtre du Clan Xian Xuan trembla. Une bourrasque de vent souffla alors que le jeune homme à ses côtés était projeté dans les airs par un monstre de brume et dévoré.
 
 Le vieil homme leva inconsciemment la tête lorsqu'une goutte de sang chaud tomba sur son visage et glissa le long de sa joue. Ses yeux reflétaient une puissante indignation.
 
@@ -40,7 +40,7 @@ L'homme aux robes bleues fronça légèrement les sourcils, mais il ne s'y oppos
 
 Le vieil homme laissa échapper un sourire misérable alors que le monstre de brume se précipitait vers lui et qu'il était sur le point de s'effondrer. À ce moment précis, Wang Lin poussa un soupir et pointa le vide. Le monstre de brume qui allait dévorer le vieil homme s'effondra soudainement. Le vieil homme fixa la créature qui fonçait vers les bâtiments; il pouvait même entendre les enfants appeler dans la panique, criant après leurs parents...
 
-Les membres du Clan des Immortels Élus luttèrent pour se redresser. Des rugissements semblables à des grognements s'échappèrent de leurs bouches comme des possédés.
+Les membres du Clan Xian Xuan luttèrent pour se redresser. Des rugissements semblables à des grognements s'échappèrent de leurs bouches comme des possédés.
 
 Bien que ses genoux fussent brisés, les yeux de Ta Shan étaient injectés de sang alors qu'il luttait pour se lever. Même si ses os devaient se fracasser à nouveau, il devait rester debout.
 
@@ -50,11 +50,11 @@ Bien que ses genoux fussent brisés, les yeux de Ta Shan étaient injectés de s
 
 « Puisqu'il en est ainsi, je résisterai. Même si mon corps se brise, je ne céderai pas! » Le rugissement de Ta Shan finit par déchirer sa gorge.
 
-Non seulement lui, mais tous les membres du Clan des Immortels Élus poussèrent des hurlements. Les plantes entre leurs sourcils brillèrent intensément alors qu'ils luttaient pour se tenir debout.
+Non seulement lui, mais tous les membres du Clan Xian Xuan poussèrent des hurlements. Les plantes entre leurs sourcils brillèrent intensément alors qu'ils luttaient pour se tenir debout.
 
 L'expression de l'homme aux robes bleues resta froide et il déclara avec un soupçon de mépris: « Autrefois, votre clan a perdu et est devenu esclave. C'est votre destin! Vous ne pouvez pas le changer! »
 
-Tout en parlant, il leva sa main droite et la pressa vers l'avant, provoquant une série d'explosions. Le sang jaillit du corps des membres du Clan des Immortels Élus, les empêchant de se relever.
+Tout en parlant, il leva sa main droite et la pressa vers l'avant, provoquant une série d'explosions. Le sang jaillit du corps des membres du Clan Xian Xuan, les empêchant de se relever.
 
 Seul Ta Shan chargea dans un rugissement. Au moment où il s'élança, des explosions résonnèrent dans son propre corps alors que ses os se brisaient, mais il continua sa course!
 
@@ -80,7 +80,7 @@ Un fracas retentit et l'homme aux robes bleues fut projeté en arrière. Son reg
 
 Alors que l'homme d'âge mûr reculait, il cria: « Misérables esclaves, attaquez avec moi! »
 
-Lorsque sa voix atteignit les oreilles des membres du Clan des Immortels Élus qui luttaient, l'ordre devint un instinct auquel ils ne purent résister. Leurs yeux étaient remplis de tristesse et de lutte, mais leurs corps se précipitèrent tous vers Wang Lin.
+Lorsque sa voix atteignit les oreilles des membres du Clan Xian Xuan qui luttaient, l'ordre devint un instinct auquel ils ne purent résister. Leurs yeux étaient remplis de tristesse et de lutte, mais leurs corps se précipitèrent tous vers Wang Lin.
 
 Les yeux de Wang Lin s'illuminèrent et il recula. Le papillon formé par le Char de Guerre Divin suivait toujours Wang Lin. Puisque ce dernier reculait, la créature le suivait comme une ombre.
 
@@ -92,7 +92,7 @@ Le papillon ne bougea pas, ses ailes frémissant doucement, mais cette fois, le 
 
 L'homme aux robes bleues s'arrêta net, le regard empreint de prudence. Il avait remarqué le papillon depuis longtemps; c'était lui qui lui inspirait un sentiment d'effroi. Autrement, il aurait déjà attaqué au lieu d'attendre jusqu'ici.
 
-Les membres du Clan des Immortels Élus furent projetés dans les airs sans aucun contrôle et volèrent vers Wang Lin. La lutte dans leurs yeux s'intensifia, mais ils ne pouvaient rien contre la puissance de l'empreinte d'esclave.
+Les membres du Clan Xian Xuan furent projetés dans les airs sans aucun contrôle et volèrent vers Wang Lin. La lutte dans leurs yeux s'intensifia, mais ils ne pouvaient rien contre la puissance de l'empreinte d'esclave.
 
 Les yeux de Wang Lin brillèrent alors qu'il fixait le papillon. Il voulait découvrir le véritable pouvoir de ce troisième Char de Guerre Divin. Le papillon quitta le côté de Wang Lin et s'élança en avant. Ses ailes marquèrent un instant de pause, puis battirent doucement à nouveau!
 

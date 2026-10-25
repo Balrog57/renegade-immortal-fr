@@ -24,7 +24,7 @@ Ils appartenaient à la première génération de vie sous le Royaume Céleste A
 
 Leurs vêtements leur donnaient des airs de sauvages, mais l'aura qui émanait de leurs corps témoignait d'une profonde compréhension du monde. Lorsque la Formation de Scellement du Royaume apparut, ils furent saisis par la confusion et la peur. Tous tentèrent de s'échapper de la formation, mais tous périrent.
 
-À cet instant, après une durée indéterminée, leurs âmes furent convoquées par Wang Lin. Elles apparurent dans les quatre grands systèmes stellaires et contemplèrent silencieusement Wang Lin, qui se trouvait dans la Mer des Nuages.
+À cet instant, après une durée indéterminée, leurs âmes furent convoquées par Wang Lin. Elles apparurent dans les quatre grands systèmes stellaires et contemplèrent silencieusement Wang Lin, qui se trouvait dans la Mer Yun.
 
 Après eux vinrent les cultivateurs qui existaient avant la destruction des quatre Royaumes Célestes — les êtres célestes de ces quatre royaumes!
 
@@ -32,7 +32,7 @@ Bien qu'ils ne fussent pas de véritables êtres célestes du Continent Astral I
 
 Lors des multiples invasions du Royaume Extérieur, beaucoup tombèrent. Bien que Wang Lin gardât la tête inclinée, il pouvait ressentir ces âmes funèbres.
 
-Il se souvenait distinctement de la première fois où il avait vu la statue du Clan du Tonnerre Dispersé lors de son entrée dans le Royaume aux Sept Couleurs. En plongeant dans les souvenirs de la statue, il avait vu ces êtres célestes se précipiter contre la Formation de Scellement du Royaume, pour mourir un à un.
+Il se souvenait distinctement de la première fois où il avait vu la statue du Clan Shan Lei lors de son entrée dans le Royaume aux Sept Couleurs. En plongeant dans les souvenirs de la statue, il avait vu ces êtres célestes se précipiter contre la Formation de Scellement du Royaume, pour mourir un à un.
 
 Aujourd'hui, pour la première fois depuis leur trépas, ces âmes célestes étaient rappelées du vide.
 
@@ -76,7 +76,7 @@ Maître Nan Yunzi, Situ Nan, Maître Hong Shan, Qing Lin et les autres se levèr
 
 Non seulement eux, mais dans les trois autres systèmes stellaires, les rares groupes de cultivateurs du Royaume Intérieur encore en vie levèrent également les yeux. Les souvenirs de la guerre défilèrent devant eux tandis qu'ils s'inclinaient vers les étoiles!
 
-Il y avait aussi les trois femmes réunies dans la Mer des Nuages, encore un peu éloignées de Wang Lin. Leur expression était empreinte de tristesse alors qu'elles saluaient les ombres qui passaient.
+Il y avait aussi les trois femmes réunies dans la Mer Yun, encore un peu éloignées de Wang Lin. Leur expression était empreinte de tristesse alors qu'elles saluaient les ombres qui passaient.
 
 Au même instant, dans le Vide Brillant, au sein du système stellaire désert, le Vieux Fantôme Zhan affichait une rare expression sombre. Il se tenait là, observant les âmes défiler avec un visage tourmenté.
 
@@ -104,4 +104,4 @@ Il était assis, son corps flou et indistinct, impossible à saisir clairement.
 
 À cet instant, il ouvrit les yeux, laissant poindre un éclat dans son regard, avant que le mépris ne s'y installe.
 
-« À quoi bon s'incliner devant ces âmes pitoyables? Une bande d'oiseaux en cage. Je ne parviens pas à trouver l'endroit mentionné par l'Oncle-Maître Ma, alors je ne m'en donnerai pas la peine. Si je calcule bien, l'Oncle-Maître Ma devrait bientôt s'éveiller. Cette grotte de la Secte des Sept Dao devient de plus en plus intéressante... »
+« À quoi bon s'incliner devant ces âmes pitoyables? Une bande d'oiseaux en cage. Je ne parviens pas à trouver l'endroit mentionné par l'Oncle-Maître Ma, alors je ne m'en donnerai pas la peine. Si je calcule bien, l'Oncle-Maître Ma devrait bientôt s'éveiller. Cette grotte de la Secte Qi Dao devient de plus en plus intéressante... »

@@ -36,7 +36,7 @@ Ce dernier l'attrapa immédiatement et l'examina avec soin. Son visage s'illumin
 
 Wang Lin regarda le vieil homme et sortit une épingle à cheveux de son sac de rangement.
 
-« Ceci est également un pseudo-trésor céleste. » Une pointe de déception passa dans les yeux du vieil homme. Il adressa un signe de tête à Wang Lin avant de se retourner et de quitter le Pavillon du Bambou Vert.
+« Ceci est également un pseudo-trésor céleste. » Une pointe de déception passa dans les yeux du vieil homme. Il adressa un signe de tête à Wang Lin avant de se retourner et de quitter le Pavillon Qing Zhu.
 
 Wang Lin acheta quelques matériaux avant de partir. Le jeune homme resté dans la boutique ne pouvait toujours pas croire ce qui venait de se passer.
 

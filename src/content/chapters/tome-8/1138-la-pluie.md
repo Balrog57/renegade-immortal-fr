@@ -28,19 +28,19 @@ Quatre personnes étaient agenouillées devant lui: trois hommes et une femme. H
 
 Ils étaient agenouillés, le visage marqué par le chagrin, mais sans aucun manque de respect. La femme, d'une grande beauté, se mordait la lèvre inférieure tandis que des larmes s'échappaient de ses yeux pour mouiller le sol.
 
-Le regard du vieil homme était empreint de bienveillance, mais aussi d'une profonde amertume alors qu'il disait lentement: « La vie de votre Maître touche à sa fin. Ne soyez pas trop accablés par la douleur... Tout cultivateur devra un jour faire face à ce moment... Après mon départ, la Secte de l'Origine reposera sur vous quatre. »
+Le regard du vieil homme était empreint de bienveillance, mais aussi d'une profonde amertume alors qu'il disait lentement: « La vie de votre Maître touche à sa fin. Ne soyez pas trop accablés par la douleur... Tout cultivateur devra un jour faire face à ce moment... Après mon départ, la Secte Gui Yuan reposera sur vous quatre. »
 
 « Maître! » Les larmes coulèrent de plus belle sur le visage de la femme. Elle fixait le vieil homme, hantée par les souvenirs qui défilaient dans son esprit.
 
 Les trois autres semblaient encore plus accablés.
 
-« Hélas, je n'ai pas réussi à atteindre le stade du Briseur du Nirvana. Autrement, lors du voyage vers la Secte de l'Origine Spirituelle de rang 8, on ne m'aurait pas dépossédé de toute ma vitalité pour me laisser dans cet état... » Le vieil homme secoua la tête. Ses yeux brillaient d'une frustration mêlée d'un immense sentiment d'impuissance.
+« Hélas, je n'ai pas réussi à atteindre le stade du Briseur du Nirvana. Autrement, lors du voyage vers la Secte Ling Yuan de rang 8, on ne m'aurait pas dépossédé de toute ma vitalité pour me laisser dans cet état... » Le vieil homme secoua la tête. Ses yeux brillaient d'une frustration mêlée d'un immense sentiment d'impuissance.
 
-L'homme d'âge mûr serra les poings et s'exclama: « Maître, cette Secte du Dao Pourpre a placé une formation sur notre continent de Mo Luo avant de se rendre secrètement vers le Système Stellaire de l'Alliance. Pourquoi la secte principale a-t-elle déchargé sa colère sur nous lorsqu'ils n'ont pu revenir? »
+L'homme d'âge mûr serra les poings et s'exclama: « Maître, cette Secte Zi Dao a placé une formation sur notre continent de Mo Luo avant de se rendre secrètement vers le Système Stellaire de l'Alliance. Pourquoi la secte principale a-t-elle déchargé sa colère sur nous lorsqu'ils n'ont pu revenir? »
 
-Le vieil homme réfléchit. Son visage devint plus livide encore et une aura de mort émana de son corps. Il répondit lentement: « La secte principale doit avoir ses raisons. Ne cherchez pas à comprendre leur logique... Si cela vous semble injuste, alors faites en sorte que la Secte de l'Origine ne termine plus à la dernière place depuis des millénaires lors de la compétition organisée par la secte principale dans cent ans. Alors, votre Maître pourra rire aux éclats dans l'au-delà. »
+Le vieil homme réfléchit. Son visage devint plus livide encore et une aura de mort émana de son corps. Il répondit lentement: « La secte principale doit avoir ses raisons. Ne cherchez pas à comprendre leur logique... Si cela vous semble injuste, alors faites en sorte que la Secte Gui Yuan ne termine plus à la dernière place depuis des millénaires lors de la compétition organisée par la secte principale dans cent ans. Alors, votre Maître pourra rire aux éclats dans l'au-delà. »
 
-Les quatre disciples restèrent silencieux, le cœur lourd d'amertume. La compétition entre les sectes, qui se déroulait tous les mille ans, était un événement majeur de la Mer des Nuages. Toutes les sectes y participaient, mais la Secte de l'Origine finissait toujours dernière, incapable de s'élever au rang des grands.
+Les quatre disciples restèrent silencieux, le cœur lourd d'amertume. La compétition entre les sectes, qui se déroulait tous les mille ans, était un événement majeur de la Mer Yun. Toutes les sectes y participaient, mais la Secte Gui Yuan finissait toujours dernière, incapable de s'élever au rang des grands.
 
 L'aura de mort du vieil homme s'intensifia. Il prit une profonde inspiration et, regardant la pluie par-delà le temple, leva sa main droite desséchée. Quelques mois auparavant, elle n'était pas ainsi; à présent, il semblait que la moitié de sa chair et de son sang avait été drainée, ne laissant qu'une main squelettique.
 
@@ -52,15 +52,15 @@ Peu après, la tête d'un gigantesque python violet sombre émergea lentement. L
 
 Toutefois, ce python semblait épuisé. Sa tête tourna autour du vieil homme; ses yeux reflétaient la tristesse et l'attachement alors que sa langue effleurait le vieillard.
 
-« Après ma mort, ce Python aux Yeux Pourpres de rang 5 deviendra la Bête de Secte de notre Secte de l'Origine. Vous tous... prenez-en soin... » Le visage du vieil homme n'était plus pâle mais soudainement rouge vif; il semblait regagner de l'énergie. Ce n'était pourtant que son dernier sursaut, le signe que sa fin était imminente.
+« Après ma mort, ce Python aux Yeux Pourpres de rang 5 deviendra la Bête de Secte de notre Secte Gui Yuan. Vous tous... prenez-en soin... » Le visage du vieil homme n'était plus pâle mais soudainement rouge vif; il semblait regagner de l'énergie. Ce n'était pourtant que son dernier sursaut, le signe que sa fin était imminente.
 
-« Maintenant, laissez votre Maître utiliser ses dernières forces pour lancer le Grand Sortilège de Bienveillance Spirituelle et trouver un enfant partenaire spirituel pour la Secte de l'Origine... À vrai dire, j'ai été choisi de cette façon par votre patriarche. À l'époque, je n'étais qu'un simple jeune de village. » Un sourire nostalgique apparut sur ses lèvres tandis que ses mains formaient un sceau et qu'il fermait les yeux.
+« Maintenant, laissez votre Maître utiliser ses dernières forces pour lancer le Grand Sortilège de Bienveillance Spirituelle et trouver un enfant partenaire spirituel pour la Secte Gui Yuan... À vrai dire, j'ai été choisi de cette façon par votre patriarche. À l'époque, je n'étais qu'un simple jeune de village. » Un sourire nostalgique apparut sur ses lèvres tandis que ses mains formaient un sceau et qu'il fermait les yeux.
 
-Les quatre disciples contemplaient leur maître avec douleur. Ils savaient que tous les chefs de secte passés, à moins d'être morts loin de leur terre natale, avaient utilisé leurs dernières forces pour ce sortilège. Le but était de trouver sur le continent de Mo Luo un individu qui deviendrait un pilier pour la Secte de l'Origine dans le futur.
+Les quatre disciples contemplaient leur maître avec douleur. Ils savaient que tous les chefs de secte passés, à moins d'être morts loin de leur terre natale, avaient utilisé leurs dernières forces pour ce sortilège. Le but était de trouver sur le continent de Mo Luo un individu qui deviendrait un pilier pour la Secte Gui Yuan dans le futur.
 
 Ce sortilège était d'un grand mystère; personne ne pouvait en expliquer précisément le mécanisme. Même le vieil homme ne le comprenait pas totalement, sachant seulement qu'il s'agissait d'une technique ancestrale transmise depuis des générations.
 
-Le sortilège ne garantissait jamais le succès. En réalité, au fil des millénaires, chaque fois qu'un chef de la Secte de l'Origine approchait de la mort, il tentait cette invocation. Sur toutes ces années, elle n'avait réussi que deux fois... Tous les autres échecs indiquaient qu'aucun talent correspondant n'existait sur le continent de Mo Luo.
+Le sortilège ne garantissait jamais le succès. En réalité, au fil des millénaires, chaque fois qu'un chef de la Secte Gui Yuan approchait de la mort, il tentait cette invocation. Sur toutes ces années, elle n'avait réussi que deux fois... Tous les autres échecs indiquaient qu'aucun talent correspondant n'existait sur le continent de Mo Luo.
 
 La dernière trace de vitalité et d'âme originelle du vieil homme s'embrasa. Une flamme bleue enveloppa son corps, puis il commença à se dissiper devant ses quatre disciples.
 
@@ -76,7 +76,7 @@ Il vit clairement la lumière du transfert s'illuminer et, simultanément, une s
 
 « Ceci... Lui... » L'esprit du vieil homme fut secoué par une violence inouïe. Son esprit n'avait jamais été aussi lucide et, à l'instant où il aperçut le jeune homme en blanc, une conjecture terrifiante s'imposa à lui.
 
-Cet homme n'était pas un cultivateur de la Mer des Nuages!
+Cet homme n'était pas un cultivateur de la Mer Yun!
 
 À cet instant, le jeune homme en blanc leva froidement les yeux vers le ciel. Ce regard fit tressaillir le tonnerre qui recula précipitamment. Le vieil homme fut frappé de stupeur; le regard du jeune homme ébranla son âme. En raison de l'usage du Grand Sortilège de Bienveillance Spirituelle, il semblait s'être fusionné avec une loi spéciale, lui permettant de voir clairement d'innombrables âmes tourmentées gravitant autour de la silhouette blanche. Les âmes étaient si nombreuses qu'il était impossible de les compter; c'était un spectacle terrifiant. Elles fixaient tous le jeune homme avec férocité, mais aucune n'osait s'approcher.
 
@@ -94,12 +94,12 @@ Habité par un immense regret, il lutta pour articuler deux derniers mots avant 
 
 Les quatre disciples restèrent pétrifiés alors que leur maître s'éteignait. Les quatre mots laissés par leur maître les frappèrent de stupeur, mais ils ne comprirent pas pourquoi le visage du vieillard avait été empreint d'un tel choc à la fin.
 
-Au sein de la Secte de l'Origine, la cloche résonna et le bassin fut envahi par les pleurs. Au son de la cloche, il n'y eut que tristesse, regret, confusion et désarroi...
+Au sein de la Secte Gui Yuan, la cloche résonna et le bassin fut envahi par les pleurs. Au son de la cloche, il n'y eut que tristesse, regret, confusion et désarroi...
 
-« Tous les disciples de la Secte de l'Origine, rendez-vous dans la partie nord du continent de Mo Luo! Cherchez toute personne ayant des capacités de culture, quel que soit son âge, en particulier si elle a... les cheveux blancs! »
+« Tous les disciples de la Secte Gui Yuan, rendez-vous dans la partie nord du continent de Mo Luo! Cherchez toute personne ayant des capacités de culture, quel que soit son âge, en particulier si elle a... les cheveux blancs! »
 
 Dans la partie nord du continent de Mo Luo, Wang Lin détourna son regard du ciel. La pluie tombait sur lui, faisant fondre la neige qui l'avait recouvert lors de son passage par l'Alliance, et l'eau s'écoulait lentement de ses vêtements. Puis, Wang Lin avança lentement sur cette terre étrangère...
 
-La neige de l'Alliance et la pluie de la Mer des Nuages. À cet instant, il était impossible de les distinguer...
+La neige de l'Alliance et la pluie de la Mer Yun. À cet instant, il était impossible de les distinguer...
 
-« Quand je suis parti, la neige m'a accompagné; quand je suis arrivé, la pluie m'a accueilli... Ce n'est pas mal. » Wang Lin prit une profonde inspiration de l'air de la Mer des Nuages et s'enfonça dans les profondeurs de la jungle.
+« Quand je suis parti, la neige m'a accompagné; quand je suis arrivé, la pluie m'a accueilli... Ce n'est pas mal. » Wang Lin prit une profonde inspiration de l'air de la Mer Yun et s'enfonça dans les profondeurs de la jungle.

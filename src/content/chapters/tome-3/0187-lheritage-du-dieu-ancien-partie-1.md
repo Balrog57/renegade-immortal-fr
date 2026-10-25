@@ -92,7 +92,7 @@ Cet os était le trésor d'héritage que Wang Lin recherchait. Autrefois, le Mag
 
 Craignant qu'il ne soit volé ou qu'un imprévu survienne, il avait pris soin de transférer l'héritage dans un disciple. Personne n'aurait jamais imaginé que le trésor d'héritage ne se trouvait pas dans son sac de rangement, mais chez le jeune homme qui le suivait.
 
-Grâce au lien qu'il entretenait avec l'os, il pouvait l'utiliser à tout moment, ce qui garantissait sa sécurité. De plus, l'os étant un trésor d'héritage de la Terre de l'Ancien Dieu, aucune restriction ne lui était imposée; son disciple avait ainsi pu pénétrer dans la Terre de l'Ancien Dieu sans le moindre problème.
+Grâce au lien qu'il entretenait avec l'os, il pouvait l'utiliser à tout moment, ce qui garantissait sa sécurité. De plus, l'os étant un trésor d'héritage de la Terre Gu Shen, aucune restriction ne lui était imposée; son disciple avait ainsi pu pénétrer dans la Terre Gu Shen sans le moindre problème.
 
 Après avoir formé le dernier sceau manuel, il se jura de ne plus jamais revenir dans ce lieu étrange. Mais alors qu'il se sentait confiant et qu'il s'apprêtait à entrer dans le tourbillon, celui-ci s'effondra soudainement devant lui et se dissipa.
 
@@ -110,7 +110,7 @@ Wang Lin avait déjà une réponse en son cœur, mais il refusait de l'accepter.
 
 Si ce Dieu Ancien était mort, pourquoi l'énergie spirituelle dans son corps tournoyait-elle encore d'elle-même? De plus, Wang Lin remarqua qu'à mesure qu'il avançait, des ondes de fluctuation provoquant des changements d'humeur émanaient de toutes parts. Ces ondes ne lui infligeaient aucun dommage réel, mais elles accroissaient sa vigilance. Il vérifia la position de sa propre Mer de Qi pour s'orienter: au-dessus de la Mer de Qi se trouvait le Point Ancestral, et en son sein, la Mer de la Connaissance Zifu.
 
-Tout en volant, il calculait secrètement, mais les informations étaient trop parcellaires. Il avait l'impression qu'un brouillard voilait ses yeux, l'empêchant de percevoir la vérité. Toute la Terre de l'Ancien Dieu dégageait une atmosphère singulière.
+Tout en volant, il calculait secrètement, mais les informations étaient trop parcellaires. Il avait l'impression qu'un brouillard voilait ses yeux, l'empêchant de percevoir la vérité. Toute la Terre Gu Shen dégageait une atmosphère singulière.
 
 Soudain, Wang Lin s'arrêta. Sans un mot, il pointa son front et disparut dans l'espace de la Perle Défiant le Ciel. Au même instant, un éclat de lumière blanche apparut à proximité. Alors que la lumière se dissipait, le Seigneur Démon des Six Désirs se manifesta.
 

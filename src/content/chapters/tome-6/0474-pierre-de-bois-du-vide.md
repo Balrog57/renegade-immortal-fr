@@ -13,7 +13,7 @@ Quant à ceux qui entraient par la porte est, il s'agissait soit de leur premiè
 
 Le jeune homme dit rapidement: « Senior, Junior se nomme Li Dannan. J'ai grandi dans la ville de Ming Mei. Si le Senior le souhaite, Junior peut vous servir de guide afin de vous éviter bien des ennuis. Cela ne vous coûtera que dix pierres d'esprit de haute qualité... »
 
-Wang Lin regarda le jeune homme, réfléchit un instant, puis hocha la tête. Dix pierres d'esprit de haute qualité, c'était un peu onéreux; avec une telle somme, on pouvait acquérir certains trésors ou pilules de faible qualité. Cependant, juste avant de se rendre au Tombeau de Suzaku, Wang Lin avait dérobé de nombreuses pierres d'esprit au Clan des Immortels Délaissés, il était donc extrêmement riche en ce moment.
+Wang Lin regarda le jeune homme, réfléchit un instant, puis hocha la tête. Dix pierres d'esprit de haute qualité, c'était un peu onéreux; avec une telle somme, on pouvait acquérir certains trésors ou pilules de faible qualité. Cependant, juste avant de se rendre au Tombeau Zhu Que, Wang Lin avait dérobé de nombreuses pierres d'esprit au Clan Xian Yi, il était donc extrêmement riche en ce moment.
 
 Li Dannan afficha immédiatement une expression respectueuse et demanda: « Senior, recherchez-vous des trésors magiques, des jades célestes, des pilules ou des matériaux? Ou peut-être des runes ou des sorts? »
 
@@ -25,7 +25,7 @@ Wang Lin fut très surpris que cet homme connaisse la pierre de bois du vide. Ce
 
 Les membres du clan des Dieux Anciens n'avaient généralement pas besoin d'un tel objet, car ils pouvaient traverser l'espace par la seule force de leur corps.
 
-Seuls quelques lieux particuliers ou les peuples de rang inférieur auraient besoin d'un tel article. Cependant, la boussole stellaire des Dieux Anciens différait de celles de l'Alliance de Culture.
+Seuls quelques lieux particuliers ou les peuples de rang inférieur auraient besoin d'un tel article. Cependant, la boussole stellaire des Dieux Anciens différait de celles de l'Alliance Xiu Zhen.
 
 Sa fabrication exigeait des matériaux et des méthodes de raffinage exceptionnels. Mais une fois achevée, elle était plusieurs fois plus rapide et puissante que les boussoles stellaires existantes.
 
@@ -101,7 +101,7 @@ Li Dannan répondit promptement: « Le Senior l'ignore peut-être, mais les pers
 
 « On peut même payer pour engager des gardes auprès du seigneur de la ville. Cependant, de tout temps, trop de gens perdent la raison par cupidité; le commerce comporte donc des risques, et tout dépend du destin. »
 
-Wang Lin sourit. Il se sentait étranger dans ce lieu, mais n'est-ce pas ainsi que les choses allaient toujours? Dans la Mer des Démons, il avait été traqué et dépouillé à cause du fourneau de pilules.
+Wang Lin sourit. Il se sentait étranger dans ce lieu, mais n'est-ce pas ainsi que les choses allaient toujours? Dans la Mer Xiu Mo, il avait été traqué et dépouillé à cause du fourneau de pilules.
 
 Wang Lin leva les yeux vers le ciel et demanda: « Y a-t-il de l'encre de neige ici? »
 

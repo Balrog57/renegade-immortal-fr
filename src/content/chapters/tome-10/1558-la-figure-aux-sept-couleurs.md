@@ -102,7 +102,7 @@ La figure aux sept couleurs sourit en fixant Wang Lin. Elle commença à parler 
 
 « C'est là l'origine de vos trois Clans Anciens. »
 
-L'esprit de Wang Lin vacilla. Il ne pouvait croire entièrement ces paroles, mais elles ressemblaient étrangement à ce que l'âme de l'Ancien Démon dans le tambour avait affirmé lors de son Ascendant dans la Terre des Esprits Démoniaques!
+L'esprit de Wang Lin vacilla. Il ne pouvait croire entièrement ces paroles, mais elles ressemblaient étrangement à ce que l'âme de l'Ancien Démon dans le tambour avait affirmé lors de son Ascendant dans la Terre Yao Ling!
 
 L'Ancien Démon Bei Luo avait un jour déclaré que l'Ancien était la première génération de cultivateurs défiant le ciel. Il était mort en combattant le Dao Céleste, et c'est après cela que les Dieux Anciens, les Démons Anciens et les Diables Anciens étaient apparus!
 

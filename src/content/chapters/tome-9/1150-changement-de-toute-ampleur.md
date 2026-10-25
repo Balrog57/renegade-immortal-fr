@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1150 - Shocking Change
 slug: changement-de-toute-ampleur
 ---
-Ce vaste système stellaire était saturé de brume stellaire. Bien qu'il semblât calme, une pesante intention meurtrière imprégnait ce brouillard. Il s'agissait de la région de rang 5 de la Mer des Nuages, où environ 40 % des continents appartenaient à des sectes de rang 5.
+Ce vaste système stellaire était saturé de brume stellaire. Bien qu'il semblât calme, une pesante intention meurtrière imprégnait ce brouillard. Il s'agissait de la région de rang 5 de la Mer Yun, où environ 40 % des continents appartenaient à des sectes de rang 5.
 
 Pour les régions de rang 1 à 4, la région de rang 5 représentait une existence inaccessible. Si un membre d'une secte de rang 5 se rendait dans une région de rang 4, il y serait accueilli avec les plus grands honneurs.
 
@@ -102,14 +102,14 @@ Une vieille femme était assise au sommet de l'un des huit crânes. Elle n'étai
 
 Une voix lugubre résonna dans toute la vallée, pénétrant clairement les oreilles des cinq personnes. Les visages des quatre jeunes devinrent livides alors qu'ils regardaient silencieusement leur maître.
 
-— Shi Luoxing, il ne vaut pas la peine de perdre la vie pour un simple bien matériel. Bien que votre niveau de culture soit élevé, vous avez été empoisonné par le venin de ma Secte des Cinq Poisons. Si vous tentez d'utiliser toute votre puissance prochainement, vous mourrez à coup sûr. Réfléchissez-y à deux fois.
+— Shi Luoxing, il ne vaut pas la peine de perdre la vie pour un simple bien matériel. Bien que votre niveau de culture soit élevé, vous avez été empoisonné par le venin de ma Secte Wu Du. Si vous tentez d'utiliser toute votre puissance prochainement, vous mourrez à coup sûr. Réfléchissez-y à deux fois.
 
-Le visage de Shi Luoxing se crispa alors qu'il ouvrait lentement les yeux. Son regard brillait intensément, mais une pointe d'amertume marquait ses traits. Il était le disciple principal de la Secte de la Fleur Claire dans la région de rang 6, et il se trouvait au stade avancé du Purificateur du Nirvana. Après avoir trouvé quelques indices, il avait secrètement emmené ses disciples dans la région de rang 3 pour mener des recherches.
+Le visage de Shi Luoxing se crispa alors qu'il ouvrait lentement les yeux. Son regard brillait intensément, mais une pointe d'amertume marquait ses traits. Il était le disciple principal de la Secte Hua Qing dans la région de rang 6, et il se trouvait au stade avancé du Purificateur du Nirvana. Après avoir trouvé quelques indices, il avait secrètement emmené ses disciples dans la région de rang 3 pour mener des recherches.
 
 À l'origine, il ne pensait pas que ces indices soient fiables, mais il s'avéra qu'ils étaient vrais et que tout se déroulait sans encombre. Cependant, une fois l'objet trouvé, non seulement sa position fut révélée, mais la nature même de ce qu'il avait obtenu fut divulguée. Il fut alors assiégé et perdit d'innombrables disciples. Il avait même été frappé par un poison étrange et avait dû fuir vers cette vallée pour tenter de l'expulser.
 
-Toutefois, avant qu'il ne puisse dissiper ce venin mystérieux, il fut intercepté par cette vieille femme de la Secte des Cinq Poisons. Elle avait utilisé la formation de sa secte pour le piéger dans la vallée. Il avait déjà envoyé un message secret à sa propre secte, mais il faudrait du temps avant que les renforts n'arrivent.
+Toutefois, avant qu'il ne puisse dissiper ce venin mystérieux, il fut intercepté par cette vieille femme de la Secte Wu Du. Elle avait utilisé la formation de sa secte pour le piéger dans la vallée. Il avait déjà envoyé un message secret à sa propre secte, mais il faudrait du temps avant que les renforts n'arrivent.
 
-— Compagnon cultivateur Shi, même si votre Secte de la Fleur Claire envoie des renforts, cela sera inutile! D'après ce que cette vieille femme sait, au sein de la région de rang 6, outre ma Secte des Cinq Poisons, les sectes du Pic Spirituel, des Sorts Daoïstes, de l'Évasion et de la Collection Démoniaque sont déjà sur les talons et convoitent ce que vous détenez!
+— Compagnon cultivateur Shi, même si votre Secte Hua Qing envoie des renforts, cela sera inutile! D'après ce que cette vieille femme sait, au sein de la région de rang 6, outre ma Secte Wu Du, les sectes du Pic Spirituel, des Sorts Daoïstes, de l'Évasion et de la Collection Démoniaque sont déjà sur les talons et convoitent ce que vous détenez!
 
 — Le jade de la Secte Brise-Ciel de la région de rang 8 et la recette légendaire d'une pilule du Vide du Nirvana!

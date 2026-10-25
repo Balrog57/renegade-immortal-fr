@@ -82,7 +82,7 @@ L'érudit ricana, recula pour s'éloigner dans une autre direction, et sa voix r
 
 « Sale renarde, il est difficile de changer ta nature. Je pouvais sentir ton aura dégoûtante de très loin. »
 
-« Je ne saurais égaler la hauteur de la Troisième Sœur Aînée, jadis Sainte de la Secte de la Porte Céleste. Je parie que tu es encore vierge à ce jour. Tu as été capturée par le Souverain Céleste et élevée pendant des années pour devenir un fourneau parfait. Cependant, ce vieux débris n'a pas eu la chance d'en profiter, et je me demande bien qui s'emparera de cet avantage un jour... » La voix séduisante ne semblait guère affectée, puis elle s'évanouit en même temps que la silhouette de Tuo Sen.
+« Je ne saurais égaler la hauteur de la Troisième Sœur Aînée, jadis Sainte de la Secte Tian Men. Je parie que tu es encore vierge à ce jour. Tu as été capturée par le Souverain Céleste et élevée pendant des années pour devenir un fourneau parfait. Cependant, ce vieux débris n'a pas eu la chance d'en profiter, et je me demande bien qui s'emparera de cet avantage un jour... » La voix séduisante ne semblait guère affectée, puis elle s'évanouit en même temps que la silhouette de Tuo Sen.
 
 Un éclair de froideur passa dans les yeux de l'érudit en robe blanche, qui s'éloigna dans un reniflement méprisant.
 

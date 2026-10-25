@@ -34,9 +34,9 @@ Les rumeurs concernant cet homme, vieilles de plus d'un siècle, surgirent dans 
 
 Tandis que la pression et la brume enveloppaient la contrée, loin de là, à l'extérieur de la cité impériale des Anciens Shi, une montagne se dressait avec un immense temple à son sommet.
 
-Cette montagne s'appelait la Montagne de l'Origine; son pic, en forme de corne, donnait l'impression qu'elle allait déchirer les cieux.
+Cette montagne s'appelait la Montagne Yuan Shi; son pic, en forme de corne, donnait l'impression qu'elle allait déchirer les cieux.
 
-Le grand temple était érigé à l'extrémité de cette corne. C'était le Temple des Anciens Shi, l'un des lieux saints de leur lignée, second seulement au temple ancestral, et le lieu où le peuple des Anciens Shi recevait son enseignement.
+Le grand temple était érigé à l'extrémité de cette corne. C'était le Temple Shi Gu, l'un des lieux saints de leur lignée, second seulement au temple ancestral, et le lieu où le peuple des Anciens Shi recevait son enseignement.
 
 En temps normal, une foule immense venait y faire des visites, mais aujourd'hui, le temple dégageait une pression si puissante qu'elle interdisait toute entrée.
 

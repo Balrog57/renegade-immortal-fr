@@ -6,13 +6,13 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1891 - Borrowing Thunder to Erase the Soul
 slug: emprunter-le-tonnerre-pour-effacer-lame
 ---
-Plusieurs mois plus tard, au centre du Continent du Démon Vert. Cet endroit était un vaste marécage verdoyant où d'innombrables bulles s'élevaient à la surface, exhalant une odeur de décomposition. Un brouillard vert, issu de ces bulles et accumulé durant des éons, enveloppait les lieux.
+Plusieurs mois plus tard, au centre du Continent Lu Mo. Cet endroit était un vaste marécage verdoyant où d'innombrables bulles s'élevaient à la surface, exhalant une odeur de décomposition. Un brouillard vert, issu de ces bulles et accumulé durant des éons, enveloppait les lieux.
 
 Dans ce marécage qui s'étendait sur des millions de kilomètres se dressait un édifice imposant. Dès le premier regard, il était évident que cette structure était un scorpion géant!
 
 Le scorpion mesurait des centaines de milliers de pieds de long. Entièrement noir et allongé sur le marécage, il paraissait d'un réalisme saisissant! Il dégageait une puissante énergie démoniaque qui empêchait la plupart des cultivateurs de s'approcher; cette énergie, en pénétrant leurs corps, risquait de les plonger dans la folie.
 
-À l'exception du Maître de Secte, tous les membres de la Secte du Dao Démoniaque étaient retournés à leur base. Seul le Maître de Secte s'était rendu devant le Temple du Scorpion du Démon Vert avec Wang Lin. Grâce à son niveau de culture, il n'était pas affecté par l'énergie démoniaque ambiante.
+À l'exception du Maître de Secte, tous les membres de la Secte Dao Mo étaient retournés à leur base. Seul le Maître de Secte s'était rendu devant le Temple Lü Mo Xie avec Wang Lin. Grâce à son niveau de culture, il n'était pas affecté par l'énergie démoniaque ambiante.
 
 À cet instant, le Maître de Secte apparut aux côtés de l'immense édifice-scorpion. Aussitôt après son apparition, un faible toussotement s'éleva de la gueule de la créature gigantesque, en contrebas. Ce bruit était ténu, mais dans ce silence absolu, il résonna avec une clarté extrême.
 
@@ -20,27 +20,27 @@ Alors que le bruit se rapprochait lentement, trois silhouettes émergèrent de l
 
 Ils semblaient monter la garde autour d'une figure entièrement drapée dans une robe verte. Cette silhouette paraissait extrêmement âgée, le dos voûté, et, en avançant, elle toussa. L'être s'arrêta et demanda d'une voix rauque: « As-tu ramené la personne...? »
 
-Le Maître de la Secte du Dao Démoniaque se montra très respectueux envers le vieillard caché sous sa robe verte. Il joignit les mains et inclina la tête.
+Le Maître de la Secte Dao Mo se montra très respectueux envers le vieillard caché sous sa robe verte. Il joignit les mains et inclina la tête.
 
 « Je l'ai amené ici. Regardez, Ji Si. »
 
 D'un geste de la main droite, il fit apparaître une silhouette enveloppée d'une lumière noire et blanche. Wang Lin, assis là, restait immobile, les yeux clos.
 
-« Très bien. Il sera parfait pour réprimer la chance du Continent du Démon Vert et satisfaire le Seigneur Démon Vert... » Le vieillard leva les yeux. Bien que son visage fût invisible, ses yeux démoniaques, perçus sous la capuche, fixèrent Wang Lin avec satisfaction.
+« Très bien. Il sera parfait pour réprimer la chance du Continent Lu Mo et satisfaire le Seigneur Démon Vert... » Le vieillard leva les yeux. Bien que son visage fût invisible, ses yeux démoniaques, perçus sous la capuche, fixèrent Wang Lin avec satisfaction.
 
-Le Maître de la Secte du Dao Démoniaque reprit lentement: « Pour le capturer, ma secte a dû payer un prix considérable. »
+Le Maître de la Secte Dao Mo reprit lentement: « Pour le capturer, ma secte a dû payer un prix considérable. »
 
 « Une fois que le Seigneur Démon Vert aura été ressuscité, vous recevrez la récompense promise! Mais pour soumettre cet homme, j'aurai besoin de ta Grande Loi du Dao Démoniaque. Tu sais ce qu'il convient de faire: efface sa conscience, détruis son esprit et sa mémoire! » La voix du vieillard était éraillée et il regardait Wang Lin avec une excitation manifeste.
 
-« La volonté de cet homme est extrêmement puissante; briser son esprit et ses souvenirs ne sera pas aisé... » Le Maître de la Secte du Dao Démoniaque esquissa un sourire sans pour autant commencer immédiatement.
+« La volonté de cet homme est extrêmement puissante; briser son esprit et ses souvenirs ne sera pas aisé... » Le Maître de la Secte Dao Mo esquissa un sourire sans pour autant commencer immédiatement.
 
-« *Tousse*... À l'avenir, le Continent du Démon Vert n'aura plus qu'une seule secte: la Secte du Dao Démoniaque! » Le vieillard à la robe verte fut pris d'une violente quinte de toux qui dura un long moment avant qu'il ne puisse reprendre la parole.
+« *Tousse*... À l'avenir, le Continent Lu Mo n'aura plus qu'une seule secte: la Secte Dao Mo! » Le vieillard à la robe verte fut pris d'une violente quinte de toux qui dura un long moment avant qu'il ne puisse reprendre la parole.
 
-« Soit. Puisque Ji Si l'a ainsi déclaré, j'utiliserai toute ma puissance et la Grande Loi du Dao Démoniaque pour planter la graine de la Transformation Démoniaque. Qu'il détruise lui-même son esprit! » Le Maître de la Secte du Dao Démoniaque rit et n'hésita plus. Sa main droite perça la lumière pour pointer l'espace entre les sourcils de Wang Lin. Il saisit la lueur noire et blanche qui enveloppait le jeune homme et la projeta dans l'immense édifice-scorpion.
+« Soit. Puisque Ji Si l'a ainsi déclaré, j'utiliserai toute ma puissance et la Grande Loi du Dao Démoniaque pour planter la graine de la Transformation Démoniaque. Qu'il détruise lui-même son esprit! » Le Maître de la Secte Dao Mo rit et n'hésita plus. Sa main droite perça la lumière pour pointer l'espace entre les sourcils de Wang Lin. Il saisit la lueur noire et blanche qui enveloppait le jeune homme et la projeta dans l'immense édifice-scorpion.
 
 Wang Lin fut soudainement projeté vers le scorpion, fendant l'air dans un hurlement. À son arrivée, un vortex gigantesque apparut sur le dos de la créature et l'aspira.
 
-« Il possède de nombreuses essences en lui. Au total huit, et l'une d'entre elles a déjà formé un véritable corps d'essence! Parmi ces huit, l'une est identique à la mienne: l'essence du tonnerre! J'utiliserai cette essence comme lien pour anéantir son esprit et ses souvenirs! » Le Maître de la Secte du Dao Démoniaque s'assit, ferma les yeux et resta parfaitement immobile.
+« Il possède de nombreuses essences en lui. Au total huit, et l'une d'entre elles a déjà formé un véritable corps d'essence! Parmi ces huit, l'une est identique à la mienne: l'essence du tonnerre! J'utiliserai cette essence comme lien pour anéantir son esprit et ses souvenirs! » Le Maître de la Secte Dao Mo s'assit, ferma les yeux et resta parfaitement immobile.
 
 Le vieillard en robe verte se détourna et pénétra dans l'édifice. Ses quintes de toux s'estompèrent tandis que les deux gardes, semblables à des Messagers du Démon Vert, disparurent dans le Scorpion sans dire un mot.
 
@@ -54,7 +54,7 @@ Cette essence s'agitait avec une telle vigueur qu'elle provoquait des craquement
 
 C'était comme si un passage invisible s'était ouvert entre le corps de Wang Lin et celui du Maître de Secte, fusionnant lentement avec son essence du tonnerre qui n'avait pas encore atteint la forme de véritable corps d'essence.
 
-Le temps s'écoula. En un clin d'œil, plusieurs mois passèrent. Durant cette période, l'essence du tonnerre de Wang Lin s'était intensifiée au point que des grondements de tonnerre résonnaient dans son corps. Il continuait d'absorber l'essence du Maître de la Secte du Dao Démoniaque, laquelle portait sa propre volonté.
+Le temps s'écoula. En un clin d'œil, plusieurs mois passèrent. Durant cette période, l'essence du tonnerre de Wang Lin s'était intensifiée au point que des grondements de tonnerre résonnaient dans son corps. Il continuait d'absorber l'essence du Maître de la Secte Dao Mo, laquelle portait sa propre volonté.
 
 Au bout de ces quelques mois, le Maître de la Secte, assis à l'extérieur, fronça les sourcils. Il n'avait pas prévu que l'essence de Wang Lin absorberait autant de la sienne sans pour autant que sa propre volonté ne soit supplantée. Son plan initial prévoyait qu'en un mois seulement, son essence aurait totalement remplacé celle de Wang Lin. Puisque son essence véhiculait sa volonté, il aurait pu ainsi effacer parfaitement la conscience et les souvenirs de Wang Lin, conformément aux exigences de Ji Si.
 
@@ -64,9 +64,9 @@ Un jour, au cours du quatrième mois, le Maître de la Secte ne put plus conteni
 
 Il se sentait impuissant: malgré l'afflux massif de son essence dans le corps de Wang Lin, celle-ci ne parvenait pas à remplacer l'essence originelle pour imposer sa volonté. C'était un phénomène aberrant, comme si un vortex au cœur du corps de Wang Lin dévorait sa volonté. La vérité confirmait ses soupçons: chaque fois que la Perle Défiant le Ciel tournait, en plus de protéger Wang Lin, elle absorbait une partie des entités étrangères présentes dans son corps.
 
-« Je suis là... *Tousse*... » Une voix antique et rauque émana du scorpion. Avant de pouvoir achever sa phrase, un violent accès de toux la coupa longuement. « Je possède deux Perles de l'Empereur du Tonnerre, que j'ai obtenues en échange sur le Continent de l'Empereur du Tonnerre. J'avais prévu de les offrir au Seigneur une fois son éveil venu... Je t'en donnerai une... »
+« Je suis là... *Tousse*... » Une voix antique et rauque émana du scorpion. Avant de pouvoir achever sa phrase, un violent accès de toux la coupa longuement. « Je possède deux Perles de l'Empereur du Tonnerre, que j'ai obtenues en échange sur le Continent Lei Di. J'avais prévu de les offrir au Seigneur une fois son éveil venu... Je t'en donnerai une... »
 
-Tandis que la voix résonnait, un éclair gris jaillit. Le scorpion brilla intensément et un rayon de lumière fila vers le Maître de la Secte du Dao Démoniaque. La lueur se condensa instantanément pour devenir une perle de la taille d'un poing, grouillante d'innombrables éclairs. À l'intérieur de la perle, on pouvait distinguer l'ombre d'un char et la silhouette vague d'un être qui ressemblait à l'Empereur du Tonnerre!
+Tandis que la voix résonnait, un éclair gris jaillit. Le scorpion brilla intensément et un rayon de lumière fila vers le Maître de la Secte Dao Mo. La lueur se condensa instantanément pour devenir une perle de la taille d'un poing, grouillante d'innombrables éclairs. À l'intérieur de la perle, on pouvait distinguer l'ombre d'un char et la silhouette vague d'un être qui ressemblait à l'Empereur du Tonnerre!
 
 Face à une telle relique, le Maître de la Secte sentit son cœur rater un battement. Ses yeux brillèrent d'une lueur étrange; il lutta intérieurement un instant avant de renoncer. Cet objet était destiné au Scorpion Vert pour sa renaissance, il n'oserait s'en emparer. Si ce n'était la nécessité absolue d'effacer la conscience et la mémoire de Wang Lin, Ji Si n'aurait jamais osé l'exhiber.
 

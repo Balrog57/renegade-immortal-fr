@@ -10,7 +10,7 @@ Un corps principal et trois avatars, postés aux quatre points cardinaux. Leurs 
 
 Tout cultivateur entrant ou sortant de Xuan Wu devait passer par ce périmètre de sens divins. De cette façon, le Seigneur Démon des Huit Extrêmes en garderait le contrôle total.
 
-Ce vieil homme avait été poussé à bout par Wang Lin. Il avait poursuivi Wang Lin depuis la ville de Nan Dou, dans la Mer des Démons, traversé Huo Fen, et s'était frayé un chemin jusqu'à Xuan Wu, pour que soudainement la présence de Wang Lin disparaisse totalement.
+Ce vieil homme avait été poussé à bout par Wang Lin. Il avait poursuivi Wang Lin depuis la ville de Nan Dou, dans la Mer Xiu Mo, traversé Huo Fen, et s'était frayé un chemin jusqu'à Xuan Wu, pour que soudainement la présence de Wang Lin disparaisse totalement.
 
 Malgré sa puissance, il ne parvenait toujours pas à le débusquer. Il avait pensé que Wang Lin se cachait profondément sous terre, mais même après avoir scanné les profondeurs, il n'avait rien trouvé.
 

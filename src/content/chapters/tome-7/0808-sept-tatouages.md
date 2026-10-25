@@ -102,9 +102,9 @@ Le temps s'écoula. En un clin d'œil, cinq jours passèrent. Le corps de Wang L
 
 Les hurlements de la bête moustique, le tonnerre du crapaud et l'expression diabolique de Xu Liguo les avaient dissuadés de s'approcher à moins de 330 mètres; ils restaient donc à l'écart, errant dans les environs.
 
-Xu Liguo regarda le Clan des Immortels Élus en se léchant les lèvres, se remémorant avec nostalgie les jours heureux passés sur la planète Qing Ling.
+Xu Liguo regarda le Clan Xian Xuan en se léchant les lèvres, se remémorant avec nostalgie les jours heureux passés sur la planète Qing Ling.
 
-Tenté par cette vue, il ne put contenir son envie et tenta d'attirer certains membres situés en bordure de la zone vers l'intérieur. Mais personne au sein du Clan des Immortels Élus ne lui prêta attention.
+Tenté par cette vue, il ne put contenir son envie et tenta d'attirer certains membres situés en bordure de la zone vers l'intérieur. Mais personne au sein du Clan Xian Xuan ne lui prêta attention.
 
 Tous étaient stupéfaits devant le Char de Guerre Divin et discutaient entre eux. Pourtant, même l'Ancêtre, l'homme le plus érudit ici présent, ignorait ce qu'était un tel objet.
 

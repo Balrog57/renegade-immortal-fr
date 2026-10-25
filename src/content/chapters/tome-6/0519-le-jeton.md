@@ -10,7 +10,7 @@ Ce tremblement ne dura pas longtemps, mais son effet fut au-delà de l'imaginati
 
 Tous les cultivateurs de ces planètes ignoraient d'où provenait cette lumière rouge. En réalité, la plupart s'étaient forgé leurs propres théories sur ce phénomène qui n'apparaissait qu'une fois tous les 5 000 ans.
 
-Seuls quelques rares et puissants cultivateurs savaient que cette lueur émanait de l'ouverture de la Mer des Esprits Démoniaques de l'Est, située près de la planète Tian Yun.
+Seuls quelques rares et puissants cultivateurs savaient que cette lueur émanait de l'ouverture de la Mer Yao Ling, située près de la planète Tian Yun.
 
 La lumière rouge se propagea partout, mais ce n'était pas là la fin de la phase de marée; ce n'était que le commencement.
 
@@ -22,13 +22,13 @@ Si seule la lumière rouge revenait, cela n'aurait pas été si exceptionnel, ma
 
 Certaines bêtes étranges et de puissantes formes de vie vivant dans le vide spatial furent également aspirées.
 
-Tout ce qui était entraîné par la marée fonçait à travers l'espace, aspiré vers la Mer des Esprits Démoniaques de l'Est à une vitesse folle.
+Tout ce qui était entraîné par la marée fonçait à travers l'espace, aspiré vers la Mer Yao Ling à une vitesse folle.
 
-La vitesse de rétraction était légèrement inférieure à celle de l'expansion, mais de peu. Sous un autre angle, on pouvait clairement voir qu'en prenant la Mer des Esprits Démoniaques de l'Est comme centre, la lumière rouge se retirait rapidement depuis une zone d'une immensité inconcevable.
+La vitesse de rétraction était légèrement inférieure à celle de l'expansion, mais de peu. Sous un autre angle, on pouvait clairement voir qu'en prenant la Mer Yao Ling comme centre, la lumière rouge se retirait rapidement depuis une zone d'une immensité inconcevable.
 
-À cet instant, la lumière rouge traversa les étoiles, le vide et les planètes, comme si le concept de distance n'existait pas pour elle. Après seulement trois bâtons d'encens, tous les cultivateurs situés à l'extérieur de la Mer des Esprits Démoniaques de l'Est virent des ondes de choc rouges fondre sur eux comme des dizaines de milliers de chevaux au galop.
+À cet instant, la lumière rouge traversa les étoiles, le vide et les planètes, comme si le concept de distance n'existait pas pour elle. Après seulement trois bâtons d'encens, tous les cultivateurs situés à l'extérieur de la Mer Yao Ling virent des ondes de choc rouges fondre sur eux comme des dizaines de milliers de chevaux au galop.
 
-Cette onde de choc formait un cercle qui se refermait inexorablement sur la Mer des Esprits Démoniaques de l'Est.
+Cette onde de choc formait un cercle qui se refermait inexorablement sur la Mer Yao Ling.
 
 Les pupilles de Wang Lin se rétractèrent soudainement, et ses yeux révélèrent un profond choc. La scène de la marée se propageant lui avait déjà donné l'impression que ce n'était pas réel; mais en voyant le reflux, il ne put s'empêcher de pousser un grand soupir.
 
@@ -74,7 +74,7 @@ Ces figures étaient tous de célèbres vieux monstres de la planète Tian Yun. 
 
 Cette scène stupéfiante attira immédiatement les regards de tous les cultivateurs alentour. Les yeux de Wang Lin s'illuminèrent alors qu'il fixait le rayon de lumière rouge imminent.
 
-Ce dernier était si rapide qu'il dépassa tous les cultivateurs en un instant pour charger dans la Mer des Esprits Démoniaques de l'Est.
+Ce dernier était si rapide qu'il dépassa tous les cultivateurs en un instant pour charger dans la Mer Yao Ling.
 
 Si seule sa vitesse avait été en cause, passe encore, mais le plus étrange était que la lumière rouge empêchait tout recours au Sens Divin ou à la vision directe. Tous les sorts tentant d'en sonder le contenu étaient bloqués, rendant impossible toute observation de ce qui s'y trouvait. Cela fit même changer d'expression Tian Yunzi et Ling Tianhou.
 
@@ -84,7 +84,7 @@ Les visages des cultivateurs environnants étaient pâles; certains crachèrent 
 
 « N'utilisez pas votre Sens Divin pour vérifier; ce n'est pas une chose que vous, les jeunes, pouvez contempler! » À cet instant, parmi tous les vieux monstres, la voix d'un vieil homme chétif résonna dans toute la zone.
 
-À ce moment précis, le rayon de lumière rouge avait traversé tout le monde et s'apprêtait à pénétrer dans la Mer des Esprits Démoniaques de l'Est. Les yeux de Wang Lin brillèrent et trois filaments de gaz gris apparurent entre ses sourcils. Ces filaments se transformèrent en trois tatouages qui fulgurèrent rapidement sur le front de Wang Lin.
+À ce moment précis, le rayon de lumière rouge avait traversé tout le monde et s'apprêtait à pénétrer dans la Mer Yao Ling. Les yeux de Wang Lin brillèrent et trois filaments de gaz gris apparurent entre ses sourcils. Ces filaments se transformèrent en trois tatouages qui fulgurèrent rapidement sur le front de Wang Lin.
 
 Simultanément, ces trois tatouages semblèrent fondre pour former un contour autour de ses yeux.
 
@@ -104,7 +104,7 @@ En un clin d'œil, l'éclat rouge de ses yeux fut envahi par une épaisse teinte
 
 De ce fait, son regard au sein de la lumière rouge sembla revitalisé; il brisa les couches de lueurs et entra en collision avec la force mystérieuse interne.
 
-Enfin, à l'instant précis où la lumière rouge disparut dans la Mer des Esprits Démoniaques de l'Est, le regard de Wang Lin parvint enfin à percer cette lueur rouge pour voir ce qui avait fait changer d'expression Tian Yunzi et tous les autres!
+Enfin, à l'instant précis où la lumière rouge disparut dans la Mer Yao Ling, le regard de Wang Lin parvint enfin à percer cette lueur rouge pour voir ce qui avait fait changer d'expression Tian Yunzi et tous les autres!
 
 C'était un jeton!
 
@@ -112,7 +112,7 @@ Un jeton doré et scintillant, sur lequel étaient gravés des symboles!
 
 Au moment où il vit clairement le jeton, une grande quantité de sang jaillit de ses yeux et une douleur déchirante envahit son corps. Wang Lin ferma les yeux.
 
-Lorsqu'il les rouvrit, le rayon de lumière rouge avait déjà disparu dans la Mer des Esprits Démoniaques de l'Est.
+Lorsqu'il les rouvrit, le rayon de lumière rouge avait déjà disparu dans la Mer Yao Ling.
 
 À cet instant, les yeux de Wang Lin étaient totalement injectés de sang, mais des filaments gris s'y mouvaient, conférant à son regard un aspect profondément démoniaque.
 

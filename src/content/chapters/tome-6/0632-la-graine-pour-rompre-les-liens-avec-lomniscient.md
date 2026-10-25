@@ -8,17 +8,17 @@ slug: la-graine-pour-rompre-les-liens-avec-lomniscient
 ---
 Wu Ma, qui se tenait aux côtés de Chen Long, affichait une expression abattue et murmura: « Le corps de Shen Hou a déjà été dévoré par ces créatures; même son âme originelle n'a pu s'échapper... »
 
-Chen Long laissa poindre une expression amère. Des Douze Épées, outre Mo Yang qui était mort, et Zi Shu et Hai Zhu qui étaient restés à l'extérieur, les neuf autres membres avaient tous suivi Tan Lang jusqu'à cet Abîme des Marées.
+Chen Long laissa poindre une expression amère. Des Douze Épées, outre Mo Yang qui était mort, et Zi Shu et Hai Zhu qui étaient restés à l'extérieur, les neuf autres membres avaient tous suivi Tan Lang jusqu'à cet Abîme Chao Xi.
 
-Tan Lang avait affirmé qu'après avoir observé les lieux pendant un certain temps, il en avait conclu que le plus grand trésor de la Terre des Esprits Démoniaques se trouvait dans cet Abîme des Marées. Tous, à l'exception de Chen Long, avaient été tentés par ses paroles.
+Tan Lang avait affirmé qu'après avoir observé les lieux pendant un certain temps, il en avait conclu que le plus grand trésor de la Terre Yao Ling se trouvait dans cet Abîme Chao Xi. Tous, à l'exception de Chen Long, avaient été tentés par ses paroles.
 
-Ils avaient personnellement vu d'innombrables trésors et objets exotiques, capables de rendre n'importe qui fou de rage, être aspirés dans cette Terre des Esprits Démoniaques lors des marées au-delà de la Mer de l'Est.
+Ils avaient personnellement vu d'innombrables trésors et objets exotiques, capables de rendre n'importe qui fou de rage, être aspirés dans cette Terre Yao Ling lors des marées au-delà de la Mer Dong.
 
 On pouvait dire que leur but, outre l'obtention de l'héritage du démon ancien, était de s'emparer de ces objets.
 
 Chen Long avait toujours fait preuve de calme. Bien qu'il ait senti que quelque chose n'allait pas, il ne trouvait aucune raison de refuser. Cependant, il avait élaboré un plan: il n'avait pas laissé tout le monde entrer ensemble. Au lieu de cela, il avait divisé trois d'entre eux en un autre groupe, avec Chou Niu comme chef, pour pénétrer par une entrée différente. Ils maintenaient une communication constante et avaient même laissé Zi Shu et Hai Zhu à l'extérieur.
 
-Lorsqu'ils firent leurs premiers pas dans l'Abîme des Marées, tout se passa sans encombre. Cependant, la situation changea radicalement dès que Tan Lang s'empara d'un objet inconnu dans une grotte!
+Lorsqu'ils firent leurs premiers pas dans l'Abîme Chao Xi, tout se passa sans encombre. Cependant, la situation changea radicalement dès que Tan Lang s'empara d'un objet inconnu dans une grotte!
 
 Ils furent soudainement attaqués par ces bêtes mystérieuses et se retrouvèrent piégés. Incapables de s'échapper, ils étaient restés prisonniers ici pendant près de cent ans!
 
@@ -30,7 +30,7 @@ Chen Long savait que même en rassemblant toute l'énergie des épées, ils ne p
 
 « Cela ne peut plus durer! » Chen Long prit une profonde inspiration, se redressa et fixa Tan Lang du regard.
 
-Son geste fit immédiatement se lever les quatre autres disciples de la Secte de l'Épée Da Luo. Ils se positionnèrent pour encercler Tan Lang.
+Son geste fit immédiatement se lever les quatre autres disciples de la Secte Da Luo Jian. Ils se positionnèrent pour encercler Tan Lang.
 
 L'expression de Tan Lang demeura sombre tandis qu'il laissait échapper un rire rauque.
 
@@ -46,7 +46,7 @@ Le regard de Chen Long se posa un instant sur l'œuf. Après tout ce temps, il a
 
 Cependant, rien ne garantissait qu'il s'agissait bien de ce que Tan Lang avait trouvé.
 
-« Petits insolents, ce vieil homme ignorera votre manque de respect une fois, par égard pour la dignité de votre maître. Mais si cela se reproduit, ne me blâmez pas d'être impitoyable. Humph, lorsque j'ai commencé ma culture, vous n'étiez même pas nés. Aucun de ceux qui osent me parler ainsi ne survit! » Les yeux de Tan Lang devinrent glacials. Bien que sa voix fût douce, elle résonna dans les oreilles des disciples de la Secte de l'Épée Da Luo comme un tonnerre rugissant. Hormis Chen Long, tous les autres reculèrent instinctivement.
+« Petits insolents, ce vieil homme ignorera votre manque de respect une fois, par égard pour la dignité de votre maître. Mais si cela se reproduit, ne me blâmez pas d'être impitoyable. Humph, lorsque j'ai commencé ma culture, vous n'étiez même pas nés. Aucun de ceux qui osent me parler ainsi ne survit! » Les yeux de Tan Lang devinrent glacials. Bien que sa voix fût douce, elle résonna dans les oreilles des disciples de la Secte Da Luo Jian comme un tonnerre rugissant. Hormis Chen Long, tous les autres reculèrent instinctivement.
 
 Chen Long baissa la tête, une lueur d'intention meurtrière traversant son regard. Il dit respectueusement: « Veuillez ne pas nous en tenir rigueur, Senior. Le junior était simplement impatient. Après tout, nous sommes piégés ici depuis près de cent ans. »
 
@@ -54,15 +54,15 @@ Tan Lang ferma les yeux et répondit lentement: « Pourquoi tant de hâte? Au pl
 
 Chen Long se rassit en position du lotus et commença à réfléchir. Il avait déjà remarqué une anomalie chez Tan Lang. Ce dernier semblait vouloir rester ici plutôt que de partir; il devait y avoir une raison à cela!
 
-Tandis que les disciples de la Secte de l'Épée Da Luo étaient en conflit avec Tan Lang, Wang Lin se précipitait vers la sortie de l'Abîme des Marées dans le Pays du Démon de Feu. Il avait déjà entendu parler de cet endroit par Yao Xixue.
+Tandis que les disciples de la Secte Da Luo Jian étaient en conflit avec Tan Lang, Wang Lin se précipitait vers la sortie de l'Abîme Chao Xi dans le Pays Huo Yao. Il avait déjà entendu parler de cet endroit par Yao Xixue.
 
-Selon elle, le jeton qui faisait rougir les yeux même de personnes comme Tian Yunzi se trouvait dans les profondeurs de l'Abîme des Marées.
+Selon elle, le jeton qui faisait rougir les yeux même de personnes comme Tian Yunzi se trouvait dans les profondeurs de l'Abîme Chao Xi.
 
-Wang Lin savait également que Tan Lang et les disciples de la Secte de l'Épée Da Luo avaient mystérieusement disparu il y a cent ans, et que leur localisation était inconnue. Il avait l'audacieuse conjecture que le groupe de Tan Lang s'était aussi rendu à l'Abîme des Marées.
+Wang Lin savait également que Tan Lang et les disciples de la Secte Da Luo Jian avaient mystérieusement disparu il y a cent ans, et que leur localisation était inconnue. Il avait l'audacieuse conjecture que le groupe de Tan Lang s'était aussi rendu à l'Abîme Chao Xi.
 
-Si le groupe de Tan Lang en sortait, ce ne serait pas un problème. Cependant, s'ils étaient toujours à l'intérieur, Wang Lin devait préparer soigneusement la sortie du Pays du Démon de Feu pour couvrir ses arrières.
+Si le groupe de Tan Lang en sortait, ce ne serait pas un problème. Cependant, s'ils étaient toujours à l'intérieur, Wang Lin devait préparer soigneusement la sortie du Pays Huo Yao pour couvrir ses arrières.
 
-Utilisant une technique de téléportation de grande envergure, il se déplaçait très rapidement vers la sortie de l'Abîme des Marées.
+Utilisant une technique de téléportation de grande envergure, il se déplaçait très rapidement vers la sortie de l'Abîme Chao Xi.
 
 En volant, il ne put s'empêcher de repenser à la scène où il avait fusionné avec la silhouette grise lors de son expérience de l'héritage du démon ancien. La figure vêtue de gris était celle qui pratiquait l'Art du Massacre Céleste. Au moment de cette fusion, il eut le sentiment d'atteindre une illumination, et le nombre de filaments d'énergie de massacre passa de un million à dix millions.
 
@@ -114,14 +114,14 @@ Wang Lin ferma les yeux. Lorsqu'il les rouvrit, son regard était d'une clarté 
 
 « Je suis un peu paranoïaque à ce sujet, je ne peux donc pas porter de jugement définitif. Tian Yunzi a été bienveillant envers moi, et c'était mon propre choix d'apprendre l'Art du Massacre Céleste, mais il semblait m'y pousser... Je devrai observer cela avec prudence à l'avenir. Cependant, Tian Yunzi est trop puissant. Si je ne possède pas la force nécessaire, je ne peux pas lui laisser deviner que je suis au courant de tout cela... Quant à l'Art du Massacre Céleste, je devrai l'étudier minutieusement pour y trouver une faille! »
 
-Wang Lin resta à la sortie de l'Abîme des Marées dans le Pays du Démon de Feu pendant plusieurs jours. Il ne plaça aucune formation ni sceau puissant. Au contraire, il fit l'inverse en laissant quelques restrictions simples mais extrêmement bien dissimulées.
+Wang Lin resta à la sortie de l'Abîme Chao Xi dans le Pays Huo Yao pendant plusieurs jours. Il ne plaça aucune formation ni sceau puissant. Au contraire, il fit l'inverse en laissant quelques restrictions simples mais extrêmement bien dissimulées.
 
 Ces restrictions n'avaient aucun pouvoir offensif, mais elles pouvaient servir à traquer autrui. Si quelqu'un en sortait, la restriction laisserait une empreinte sur lui que Wang Lin pourrait détecter. À moins d'un niveau de culture extrêmement élevé, il serait impossible pour quiconque de repérer cette trace.
 
-Une fois cela accompli, Wang Lin chassa toute distraction et s'envola vers le Pays du Démon de l'Eau. Il allait pénétrer dans l'Abîme des Marées de ce pays et consacrer tous ses efforts à la recherche de Zhou Yi!
+Une fois cela accompli, Wang Lin chassa toute distraction et s'envola vers le Pays Shui Yao. Il allait pénétrer dans l'Abîme Chao Xi de ce pays et consacrer tous ses efforts à la recherche de Zhou Yi!
 
 Zhou Yi était son bienfaiteur, Wang Lin se devait de le sauver!
 
-« Outre le sauvetage du senior Zhou Yi, il y a aussi... la Richesse... » En se téléportant, les yeux de Wang Lin s'illuminèrent. Il se souvenait distinctement avoir vu la Richesse passer devant lui lors de la phase des marées... Plusieurs jours plus tard, dans la partie occidentale du Pays du Démon de l'Eau, en un lieu nommé la Mer des Nuages. Cet endroit était voilé de nuages une grande partie de l'année. Au fond de cette mer de nuages, une faille s'étirait sur d'innombrables kilomètres. C'était l'une des entrées de l'Abîme des Marées!
+« Outre le sauvetage du senior Zhou Yi, il y a aussi... la Richesse... » En se téléportant, les yeux de Wang Lin s'illuminèrent. Il se souvenait distinctement avoir vu la Richesse passer devant lui lors de la phase des marées... Plusieurs jours plus tard, dans la partie occidentale du Pays Shui Yao, en un lieu nommé la Mer Yun. Cet endroit était voilé de nuages une grande partie de l'année. Au fond de cette mer de nuages, une faille s'étirait sur d'innombrables kilomètres. C'était l'une des entrées de l'Abîme Chao Xi!
 
 Quatre cultivateurs, deux hommes et deux femmes, se tenaient à l'orée de la mer des nuages et scrutaient l'intérieur!

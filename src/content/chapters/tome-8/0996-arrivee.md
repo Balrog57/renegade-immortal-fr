@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 996 - Arrived
 slug: arrivee
 ---
-D'innombrables cultivateurs s'étaient rassemblés aux abords de la Mer des Esprits Démoniaques de l'Est, dans l'attente de son ouverture.
+D'innombrables cultivateurs s'étaient rassemblés aux abords de la Mer Yao Ling, dans l'attente de son ouverture.
 
 Juché sur un qilin rouge feu, Ling Tianhou entendit l'homme en pourpre, et un éclair d'extase brilla dans ses yeux. Cependant, il n'en demanda pas davantage. Dès qu'il fut à proximité, il prit place et fixa le vortex qui s'agitait sous lui.
 
@@ -28,15 +28,15 @@ Un étrange sifflement retentit au loin, captant progressivement l'attention de 
 
 Un géant d'environ 330 mètres de haut, galopant sur ses quatre membres, fonçait vers eux!
 
-« Une monture du Clan des Démons Géants! » s'exclama quelqu'un dans la foule, reconnaissant immédiatement la créature.
+« Une monture du Clan Ju Mo! » s'exclama quelqu'un dans la foule, reconnaissant immédiatement la créature.
 
-« Ce n'est pas un membre ordinaire du Clan des Démons Géants. Regardez la marque entre ses sourcils, c'est un membre de la lignée royale! » De nombreux cultivateurs bien informés attendaient à l'extérieur et reconnurent immédiatement l'identité de Lei Ji!
+« Ce n'est pas un membre ordinaire du Clan Ju Mo. Regardez la marque entre ses sourcils, c'est un membre de la lignée royale! » De nombreux cultivateurs bien informés attendaient à l'extérieur et reconnurent immédiatement l'identité de Lei Ji!
 
 « Il doit être un cultivateur extrêmement puissant pour posséder une telle monture. J'ignore seulement qui il est! »
 
 « Ce démon géant de 330 mètres peut clairement déjà utiliser ses capacités de lignée. Cela rend la monture elle-même redoutable. Celui qui peut la chevaucher n'est pas un être ordinaire! »
 
-« Pas forcément. Peut-être entretient-il de bonnes relations avec le Clan des Démons Géants... et sa propre culture n'est pas si élevée. »
+« Pas forcément. Peut-être entretient-il de bonnes relations avec le Clan Ju Mo... et sa propre culture n'est pas si élevée. »
 
 L'apparition de cette monture provoqua une immense agitation parmi les cultivateurs environnants, qui se mirent à palabrer. À mesure que la créature approchait, on put enfin distinguer qui la montait. Un seul coup d'œil suffit pour provoquer un nouveau choc général.
 
@@ -98,11 +98,11 @@ Tian Yunzi regarda Wang Lin. Du début à la fin, son expression ne changea pas,
 
 Les yeux de Wang Lin se plissèrent alors qu'il saluait le vieil homme sur la gourde ainsi que la belle femme d'âge moyen. Puis, il sourit à l'homme en noir au loin et lui adressa une salutation respectueuse. L'homme en noir rendit le salut, mais son expression demeura glaciale.
 
-« Puisque tout le monde est là, ouvrons la Mer des Esprits Démoniaques de l'Est! » Tian Yunzi agita ses manches et une lumière aux sept couleurs se rassembla pour former un jeton. Ce dernier n'était que de la taille d'une paume, mais il dégageait un éclat multicolore. Alors que la vue de tous était brouillée par cette lueur éblouissante, le jeton s'envola vers le vortex.
+« Puisque tout le monde est là, ouvrons la Mer Yao Ling! » Tian Yunzi agita ses manches et une lumière aux sept couleurs se rassembla pour former un jeton. Ce dernier n'était que de la taille d'une paume, mais il dégageait un éclat multicolore. Alors que la vue de tous était brouillée par cette lueur éblouissante, le jeton s'envola vers le vortex.
 
-Ce n'était pas une ouverture ordinaire de la Mer des Esprits Démoniaques de l'Est; la puissante aspiration qui attire habituellement tout ce qui se trouve à proximité n'était pas présente. Au lieu de cela, au moment où le jeton toucha le vortex, un tourbillon inverse apparut!
+Ce n'était pas une ouverture ordinaire de la Mer Yao Ling; la puissante aspiration qui attire habituellement tout ce qui se trouve à proximité n'était pas présente. Au lieu de cela, au moment où le jeton toucha le vortex, un tourbillon inverse apparut!
 
-Ce vortex s'étendit rapidement, ouvrant un trou noir. L'aura de la Terre des Esprits Démoniaques, si familière à Wang Lin, en émana.
+Ce vortex s'étendit rapidement, ouvrant un trou noir. L'aura de la Terre Yao Ling, si familière à Wang Lin, en émana.
 
 « Ce n'est qu'une fois les quatre grottes célestes ouvertes que la cinquième pourra s'ouvrir! Ce vieil homme y va le premier et attendra les bonnes nouvelles de vous tous! » Enveloppé d'une lueur aux sept couleurs, Tian Yunzi s'élança dans le trou noir, emportant son trident.
 

@@ -1,6 +1,6 @@
 ---
 n: 343
-title: Pays de Suzaku
+title: Pays de Zhu Que
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 343 - Country of Suzaku

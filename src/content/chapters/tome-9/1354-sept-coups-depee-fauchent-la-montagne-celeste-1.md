@@ -10,11 +10,11 @@ slug: sept-coups-depee-fauchent-la-montagne-celeste-1
 
 Le tonnerre éternel frappa immédiatement le réseau de lumière, et un grondement tonitruant résonna à travers les 7 Millions de Mondes. Le réseau vacilla frénétiquement avant de s'effondrer.
 
-Au moment où le réseau se brisa, les dizaines de milliers de membres du Clan du Tonnerre Dispersé présents dans les 7 Millions de Mondes saignèrent abondamment par tous leurs orifices et périrent instantanément!
+Au moment où le réseau se brisa, les dizaines de milliers de membres du Clan Shan Lei présents dans les 7 Millions de Mondes saignèrent abondamment par tous leurs orifices et périrent instantanément!
 
 Le Daoïste Esprit Dispersé avait capturé tous les membres du clan ici après le départ de Wang Lin. Il ne les avait pas tués, mais les avait scellés dans ce réseau de lumière pour qu'ils servent de bouclier.
 
-À cet instant, le réseau s'effondra et tous les membres du Clan du Tonnerre Dispersé présents moururent!
+À cet instant, le réseau s'effondra et tous les membres du Clan Shan Lei présents moururent!
 
 Le tonnerre éternel trembla également. La protection du réseau avait été si puissante qu'elle avait considérablement affaibli l'éclair. Alors que celui-ci s'apprêtait à poursuivre Wang Lin, une silhouette illusoire surgit du vide!
 
@@ -36,13 +36,13 @@ Dès son apparition, son expression changea!
 
 Il vit immédiatement le Daoïste Esprit Dispersé, et ses pupilles se rétractèrent.
 
-Le Daoïste Esprit Dispersé fixa l'Ancien et dit d'une voix lente: « Grand Ancien du Clan du Tonnerre Dispersé, vous vous souvenez encore de moi? »
+Le Daoïste Esprit Dispersé fixa l'Ancien et dit d'une voix lente: « Grand Ancien du Clan Shan Lei, vous vous souvenez encore de moi? »
 
 L'Ancien affichait une expression extrêmement grave; grâce à son intelligence, il comprit instantanément la situation. Wang Lin avait voulu l'attirer ici, mais craignant ses soupçons, il avait provoqué un combat pour ensuite s'échapper au moment crucial, espérant qu'il le poursuive dans les 7 Millions de Mondes afin d'en finir avec lui.
 
 En entrant dans les 7 Millions de Mondes, il était tombé dans le piège de l'autre! Cependant, sa culture était colossale, n'étant surpassée que par les cultivateurs de la troisième étape. Bien qu'il sût que Wang Lin devait être préparé, il ne paniqua pas. Il observa le Daoïste Esprit Dispersé en fronçant légèrement les sourcils.
 
-« C'est toi! Cette fourmi d'autrefois. Si je ne t'avais pas laissé la vie sauve, tu aurais péri sous la tribulation divine! » Bien que l'Ancien parût imperturbable, il était profondément choqué intérieurement. Il reconnut cet homme et ne pouvait imaginer comment un tel individu avait pu apparaître parmi les insectes des 7 Millions de Mondes pour atteindre un tel niveau de culture. Pourtant, personne dans le Clan du Tonnerre Dispersé ne s'en était aperçu auparavant!
+« C'est toi! Cette fourmi d'autrefois. Si je ne t'avais pas laissé la vie sauve, tu aurais péri sous la tribulation divine! » Bien que l'Ancien parût imperturbable, il était profondément choqué intérieurement. Il reconnut cet homme et ne pouvait imaginer comment un tel individu avait pu apparaître parmi les insectes des 7 Millions de Mondes pour atteindre un tel niveau de culture. Pourtant, personne dans le Clan Shan Lei ne s'en était aperçu auparavant!
 
 Une telle chose dépassait l'entendement, et il ne comprenait pas comment cela avait été possible. Mais désormais qu'il l'avait découvert, il devait impérativement tuer cet homme!
 
@@ -54,7 +54,7 @@ D'un revers de main, le monde trembla et une foudre infinie apparut devant l'Anc
 
 Le Daoïste Esprit Dispersé eut un sourire féroce, révélant une pointe d'excitation et de folie. Il avait enduré, subi et caché sa présence pendant d'innombrables années; aujourd'hui, il allait enfin pouvoir tout déchaîner!
 
-Sa haine envers le Royaume Céleste et le Clan du Tonnerre Dispersé le fit éclater d'un long rire déchirant!
+Sa haine envers le Royaume Céleste et le Clan Shan Lei le fit éclater d'un long rire déchirant!
 
 « Aujourd'hui, moi, Esprit Dispersé, je vengerai les générations de mon clan mortes par votre faute. Je veux... tuer les immortels! » Il fit un pas en avant, ses mains traçant des sceaux qu'il projeta sur le côté.
 

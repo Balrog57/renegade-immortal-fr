@@ -50,7 +50,7 @@ Sous cette pression inimaginable, le sang jaillit du corps de Wang Lin. Il étai
 
 L'esprit de Wang Lin était désormais limpide, toutes les pensées inutiles ayant été balayées. Une seule idée occupait son esprit: « défier! »
 
-Autrefois, il avait défié les cieux dans la Terre des Esprits Démoniaques pour atteindre le stade Ascendant. Ici, il faisait face à cette pression une fois de plus dans la Terre des Esprits Démoniaques. Cette nature rebelle, que les affaires du monde avaient scellée, que le voyage à Luotian avait réprimée et que son propre esprit avait masquée, refleurissait une fois de plus!
+Autrefois, il avait défié les cieux dans la Terre Yao Ling pour atteindre le stade Ascendant. Ici, il faisait face à cette pression une fois de plus dans la Terre Yao Ling. Cette nature rebelle, que les affaires du monde avaient scellée, que le voyage à Luotian avait réprimée et que son propre esprit avait masquée, refleurissait une fois de plus!
 
 Tout était une question de karma!
 
@@ -82,7 +82,7 @@ Sous ces dalles, le sol révélait un ciel étoilé. L'obscurité était peuplé
 
 Plus incroyable encore, les étoiles n'étaient pas statiques, mais se déplaçaient lentement. Cela fit plisser les yeux de Wang Lin.
 
-« Cette Terre des Esprits Démoniaques est une grotte céleste qui dérive dans l'espace selon une méthode spéciale. Ce que vous voyez n'est pas une illusion, mais la réalité... »
+« Cette Terre Yao Ling est une grotte céleste qui dérive dans l'espace selon une méthode spéciale. Ce que vous voyez n'est pas une illusion, mais la réalité... »
 
 « Entrez dans ce réseau de transfert pour accéder à la terre scellée. Si vous avez la capacité de l'ouvrir, vous pourrez pénétrer dans la véritable grotte céleste. »
 
@@ -90,7 +90,7 @@ Plus incroyable encore, les étoiles n'étaient pas statiques, mais se déplaça
 
 La femme en blanc réfléchit silencieusement en contemplant la statue. Après un long moment, elle dit doucement: « À son retour, il était déjà blessé. En chemin, il fut en outre harcelé par deux étrangers venus d'au-delà du monde, alors il ouvrit la grotte céleste pour s'y soigner. »
 
-« À l'origine, il n'y avait pas d'entrée, mais il en a créé quatre. Si les quatre entrées sont ouvertes en même temps, une véritable porte apparaîtra dans la Terre des Esprits Démoniaques, menant à l'endroit où il est en culture de porte close... »
+« À l'origine, il n'y avait pas d'entrée, mais il en a créé quatre. Si les quatre entrées sont ouvertes en même temps, une véritable porte apparaîtra dans la Terre Yao Ling, menant à l'endroit où il est en culture de porte close... »
 
 « Vous possédez le sortilège d'Arrêt, vous avez la dépouille de Qing Shuang et vous portez le nom de Wang, alors je ne vous arrêterai pas... Une fois entré dans le réseau de transfert, vos compagnons apparaîtront eux aussi selon votre volonté. » La femme soupira en se détournant pour s'enfoncer dans les profondeurs du hall. Wang Lin observa sa silhouette empreinte de solitude et de mélancolie.
 
@@ -146,4 +146,4 @@ Le corps de Situ Nan disparut sous le balayage du Sens Divin de Wang Lin. Lorsqu
 
 « La grotte est totalement ouverte. Lei Ji, ta culture est insuffisante, alors attends ici que nous revenions! » Alors que la voix de Wang Lin résonnait, la formation au sol commença à scintiller.
 
-Au même moment, un changement prodigieux se produisit dans la Terre des Esprits Démoniaques!
+Au même moment, un changement prodigieux se produisit dans la Terre Yao Ling!

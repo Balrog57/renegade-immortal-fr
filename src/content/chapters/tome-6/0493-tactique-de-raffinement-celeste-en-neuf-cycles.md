@@ -32,9 +32,9 @@ Sur le chemin du retour vers le Pavillon Wei Pourpre, les yeux de Bai Wei révé
 
 Il retourna au Pavillon Wei Pourpre, le visage sombre.
 
-Pendant que Wang Lin volait, il croisa plusieurs cultivateurs d'autres sectes et les salua. Après un moment, il finit par regagner le Pavillon de la Forêt Violette.
+Pendant que Wang Lin volait, il croisa plusieurs cultivateurs d'autres sectes et les salua. Après un moment, il finit par regagner le Pavillon Zi Lin.
 
-Après trois mois d'absence, le Pavillon de la Forêt Violette était resté inchangé. Il monta directement au troisième étage et sortit un morceau de jade.
+Après trois mois d'absence, le Pavillon Zi Lin était resté inchangé. Il monta directement au troisième étage et sortit un morceau de jade.
 
 Il s'agissait du jade que la Quatrième Sœur lui avait donné, contenant le sort et la restriction.
 
@@ -130,6 +130,6 @@ La lueur disparut, emportant Wang Lin avec elle.
 
 Un éclair argenté jaillit à l'extérieur de la Division Pourpre, et Wang Lin en sortit dans un état de désordre total. Après tout, ce n'était que sa deuxième utilisation de cette technique, et il n'était pas encore accoutumé à une telle vitesse de téléportation.
 
-Après avoir réapparu, Wang Lin s'élança vers le Pavillon de la Forêt Violette. La nuit touchait à sa fin; l'horizon commençait à blanchir, annonçant l'aube d'un jour nouveau.
+Après avoir réapparu, Wang Lin s'élança vers le Pavillon Zi Lin. La nuit touchait à sa fin; l'horizon commençait à blanchir, annonçant l'aube d'un jour nouveau.
 
 C'était le jour où Tian Yunzi enseignerait le Dao, et c'était aussi le jour le plus attendu par tous les invités venus célébrer l'anniversaire de Tian Yunzi!

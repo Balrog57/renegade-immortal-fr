@@ -18,7 +18,7 @@ Les deux scorpions fuyaient très vite, mais Wang Lin était encore plus rapide.
 
 « Empreinte de l'Esprit Guerrier! » Tandis que ses mots résonnaient, Wang Lin pointa la main en avant.
 
-À cet instant, le ciel au-dessus de la Prairie de l'Extrême Ciel changea radicalement. Les nuages se dispersèrent et la lumière même sembla se dissiper. Une empreinte de paume gigantesque, assez vaste pour recouvrir l'intégralité de la Prairie de l'Extrême Ciel et d'une épaisseur impossible à mesurer, apparut.
+À cet instant, le ciel au-dessus de la Prairie Ji Tian changea radicalement. Les nuages se dispersèrent et la lumière même sembla se dissiper. Une empreinte de paume gigantesque, assez vaste pour recouvrir l'intégralité de la Prairie Ji Tian et d'une épaisseur impossible à mesurer, apparut.
 
 Une fois manifestée, l'empreinte descendit rapidement vers la terre. Elle occulta le soleil et remplaça la voûte céleste. C'était comme si un géant avait ouvert sa main pour l'écraser contre le sol.
 
@@ -32,7 +32,7 @@ Cette paume n'avait plus cinq doigts, mais six! Le sixième doigt était rouge e
 
 Cette empreinte semblait être une fusion entre le Dao et le Démon. Ce sixième doigt ressemblait à celui d'un démon!
 
-Sur la Prairie de l'Extrême Ciel, la terreur se lut sur les visages des mille cultivateurs restants du Continent du Démon Vert. Tandis qu'ils fixaient le ciel, leurs corps tremblèrent et le désespoir envahit leurs cœurs.
+Sur la Prairie Ji Tian, la terreur se lut sur les visages des mille cultivateurs restants du Continent Lu Mo. Tandis qu'ils fixaient le ciel, leurs corps tremblèrent et le désespoir envahit leurs cœurs.
 
 Il y avait aussi les deux femmes cultivatrices au stade initial de la Tribulation du Vide. Leurs cœurs vacillèrent à la vue de l'empreinte; sans hésiter, elles invoquèrent leurs trésors défensifs et leurs sorts les plus puissants.
 
@@ -40,13 +40,13 @@ Il y avait aussi les deux femmes cultivatrices au stade initial de la Tribulatio
 
 Zhang Daozong était stupéfait. Il fixait la paume géante, les yeux écarquillés par l'incrédulité!
 
-« La Grande Empreinte de la Main du Dao Démoniaque! C'est la Grande Empreinte de la Main du Dao Démoniaque! Une empreinte à six doigts!!! C'est le sort le plus puissant de ma Secte du Dao Démoniaque, un secret qui n'est transmis à personne d'autre! »
+« La Grande Empreinte de la Main du Dao Démoniaque! C'est la Grande Empreinte de la Main du Dao Démoniaque! Une empreinte à six doigts!!! C'est le sort le plus puissant de ma Secte Dao Mo, un secret qui n'est transmis à personne d'autre! »
 
 « Seul le maître de chaque génération peut apprendre ce sort. Les autres membres de la secte ne peuvent même pas l'étudier, et encore moins ceux de l'extérieur! Ce Wang Lin... Comment... Comment a-t-il pu connaître ce sort?! »
 
 Le vieil homme nommé Zhao était lui aussi plongé dans le choc. Sans perdre un instant, il agita sa manche et son corps fut enveloppé d'un flou protecteur. Ses mains formèrent rapidement des sceaux pour lancer des sorts de protection.
 
-Tout se produisit en un éclair. Après sa mutation, la paume s'abattit brutalement sur la Prairie de l'Extrême Ciel. Les plus de mille cultivateurs du Continent du Démon Vert ne purent opposer la moindre résistance et furent les premiers à périr!
+Tout se produisit en un éclair. Après sa mutation, la paume s'abattit brutalement sur la Prairie Ji Tian. Les plus de mille cultivateurs du Continent Lu Mo ne purent opposer la moindre résistance et furent les premiers à périr!
 
 Leurs corps et leurs âmes originelles furent totalement anéantis!
 
@@ -58,7 +58,7 @@ Zhang Daozong et le vieil homme nommé Zhao crachèrent également du sang, leur
 
 En revanche, les deux scorpions verts en dessous d'eux ne purent supporter le choc. Lorsque l'empreinte toucha le sol, une vibration colossale parcourut la terre. Les deux scorpions poussèrent des rugissements avant d'exploser sous les yeux de Wang Lin.
 
-« Voici la véritable Empreinte de l'Esprit Guerrier! » Les yeux de Wang Lin brillèrent d'un éclat vif alors qu'il chargeait vers la surface. Sa vitesse était telle qu'il approcha instantanément de la surface, faisant trembler toute la Prairie de l'Extrême Ciel.
+« Voici la véritable Empreinte de l'Esprit Guerrier! » Les yeux de Wang Lin brillèrent d'un éclat vif alors qu'il chargeait vers la surface. Sa vitesse était telle qu'il approcha instantanément de la surface, faisant trembler toute la Prairie Ji Tian.
 
 Avec la mort des deux scorpions, deux des Messagers du Démon Vert avaient craché du sang. Voyant que Wang Lin s'apprêtait à surgir, la peur se lut sur les visages glacés des quatre Messagers du Démon Vert.
 
@@ -66,15 +66,15 @@ Avec la mort des deux scorpions, deux des Messagers du Démon Vert avaient crach
 
 Ce geste ressemblait à un acte d'adoration!
 
-C’est précisément ce rituel qui provoqua un hurlement strident du miroir vert, lequel s'abattit au sol. Le miroir s'étendit à l'infini, enveloppant toute la Prairie de l'Extrême Ciel.
+C’est précisément ce rituel qui provoqua un hurlement strident du miroir vert, lequel s'abattit au sol. Le miroir s'étendit à l'infini, enveloppant toute la Prairie Ji Tian.
 
 « Nous invoquons l'âme du Scorpion du Démon Vert pour supprimer cet individu! »
 
-Ils parlèrent de concert, leurs voix fusionnant en un seul cri qui résonna à travers le monde. La Prairie de l'Extrême Ciel changea soudainement de visage et disparut. La terre se mua en un marécage sans fin et les montagnes environnantes s'évanouirent.
+Ils parlèrent de concert, leurs voix fusionnant en un seul cri qui résonna à travers le monde. La Prairie Ji Tian changea soudainement de visage et disparut. La terre se mua en un marécage sans fin et les montagnes environnantes s'évanouirent.
 
-Tout ici devint le monde du Continent du Démon Vert!
+Tout ici devint le monde du Continent Lu Mo!
 
-Qu'il s'agisse d'une illusion ou d'une réalité, on pouvait affirmer que la Prairie de l'Extrême Ciel avait disparu du Continent du Taureau Céleste. En vérité, elle n'avait pas disparu, mais avait été submergée par la projection de l'intégralité du Continent du Démon Vert!
+Qu'il s'agisse d'une illusion ou d'une réalité, on pouvait affirmer que la Prairie Ji Tian avait disparu du Continent Tian Niu. En vérité, elle n'avait pas disparu, mais avait été submergée par la projection de l'intégralité du Continent Lu Mo!
 
 Cette projection servait de moyen de suppression!
 
@@ -90,7 +90,7 @@ La terre trembla sous des grondements tonitruants. Chaque écho rendait les visa
 
 Wang Lin continuait de bombarder depuis les profondeurs. Il comptait briser la projection pour surgir!
 
-« Ombrelle Brûlante du Royaume! » Les mains de Wang Lin formèrent des sceaux et d'innombrables restrictions apparurent. Un parapluie de feu gigantesque surgit dans le ciel, surplombant la projection du Continent du Démon Vert!
+« Ombrelle Brûlante du Royaume! » Les mains de Wang Lin formèrent des sceaux et d'innombrables restrictions apparurent. Un parapluie de feu gigantesque surgit dans le ciel, surplombant la projection du Continent Lu Mo!
 
 Le parapluie s'ouvrit un instant et un incendie monstrueux déferla, consumant la projection et le monde. Dès que la mer de feu apparut, les âmes originelles des deux cultivatrices poussèrent des cris de douleur, mais elles serrèrent les dents et sacrifièrent leurs trésors de vie pour unir leurs forces et résister aux flammes!
 

@@ -16,15 +16,15 @@ Chi Hu regarda Wang Lin avec une expression complexe et demanda d'une voix forte
 
 Wang Lin regarda Chi Hu et hocha la tête. « Je n'ai pas beaucoup d'amis dans ma vie, mais toi, Chi Hu, tu peux être considéré comme l'un d'eux! »
 
-Chi Hu fixa Wang Lin et répliqua mot pour mot: « Ceng Niu, si tu me considères, Chi Hu, comme ton ami, alors quitte immédiatement le Clan des Démons Géants! »
+Chi Hu fixa Wang Lin et répliqua mot pour mot: « Ceng Niu, si tu me considères, Chi Hu, comme ton ami, alors quitte immédiatement le Clan Ju Mo! »
 
-Wang Lin réfléchit un instant. Après un moment, il dit lentement: « Chi Hu, sais-tu pourquoi je n'ai pas encore tué une seule personne au sein du Clan des Démons Géants? Si ce n'était pas pour toi, je ne les aurais pas épargnés. »
+Wang Lin réfléchit un instant. Après un moment, il dit lentement: « Chi Hu, sais-tu pourquoi je n'ai pas encore tué une seule personne au sein du Clan Ju Mo? Si ce n'était pas pour toi, je ne les aurais pas épargnés. »
 
 Alors que les deux parlaient, d'autres membres du clan arrivèrent et les encerclèrent. Ils créèrent une aura oppressante qui se refermait lentement sur eux.
 
 Le cœur de Chi Hu était lourd d'amertume. Il afficha un visage tendu et dit: « Ceng Niu, tu... »
 
-Wang Lin regarda Chi Hu et soupira doucement. « Chi Hu, dis-moi où se trouve l'ancêtre du Clan des Démons Géants et j'irai le trouver. Quant aux autres membres, je ne leur ferai aucun mal. »
+Wang Lin regarda Chi Hu et soupira doucement. « Chi Hu, dis-moi où se trouve l'ancêtre du Clan Ju Mo et j'irai le trouver. Quant aux autres membres, je ne leur ferai aucun mal. »
 
 « Quelle audace! »
 
@@ -36,13 +36,13 @@ Leur apparition fut accompagnée d'une puissante pression spirituelle.
 
 Wang Lin jeta un coup d'œil vers eux. Les trois étaient au sommet du stade avancé de la Formation de l'Âme. Ils possédaient également des traces d'énergie spirituelle céleste en eux; ils étaient clairement sur le point de franchir l'étape de la Transformation de l'Âme.
 
-L'un des anciens pourpres déclara d'un ton lugubre: « Ceng Niu, je suis Tian Mu, le Grand Ancien du Clan des Démons Géants. Je te défie en duel! »
+L'un des anciens pourpres déclara d'un ton lugubre: « Ceng Niu, je suis Tian Mu, le Grand Ancien du Clan Ju Mo. Je te défie en duel! »
 
 Le regard de Wang Lin était glacial. Il fixa l'ancien et dit: « Tu n'en es pas digne! » Sur ce, il se tourna de nouveau vers Chi Hu pour attendre sa réponse.
 
 Le visage du vieil homme passa du vert au rouge sous le regard de Wang Lin. Après un grand éclat de rire, ses yeux devinrent glacials et il fit un pas en avant. Une hache géante violette apparut dans sa main et il chargea Wang Lin dans un rugissement.
 
-Les membres du Clan des Démons Géants utilisaient rarement des sorts ou des techniques; ils privilégiaient la puissance brute de leur corps pour attaquer.
+Les membres du Clan Ju Mo utilisaient rarement des sorts ou des techniques; ils privilégiaient la puissance brute de leur corps pour attaquer.
 
 Wang Lin observa le vieillard, ferma le poing de sa main droite et lança un coup.
 
@@ -52,7 +52,7 @@ Dans un fracas assourdissant, le vieil homme fut repoussé de plus de dix mètre
 
 Wang Lin n'avait même pas bougé. Il regarda le vieillard et reprit: « Tu n'en es toujours pas digne! »
 
-Chi Hu dit amèrement: « Je ne sais pas où se trouve l'ancêtre. Ceng Niu, retiens ton coup; mon Clan des Démons Géants n'est pas ton ennemi. »
+Chi Hu dit amèrement: « Je ne sais pas où se trouve l'ancêtre. Ceng Niu, retiens ton coup; mon Clan Ju Mo n'est pas ton ennemi. »
 
 Wang Lin réfléchit. Après un long moment, il leva les yeux vers le ciel, puis pointa Chi Hu du doigt. « Chi Hu, dis à ton ancêtre de me rendre mon épée volante et je partirai immédiatement! »
 
@@ -64,11 +64,11 @@ Les trois anciens pourpres restèrent silencieux. Ils étaient les trois membres
 
 Surtout après avoir vu que des centaines de membres avaient été scellés, leur moral s'effondra instantanément.
 
-Chi Hu se tourna vers les trois anciens avec une expression complexe et ordonna: « Trois Anciens, veuillez ouvrir la formation du Passage Céleste du Clan des Démons Géants! Je l'ordonne en tant que Jeune Maître de Secte! »
+Chi Hu se tourna vers les trois anciens avec une expression complexe et ordonna: « Trois Anciens, veuillez ouvrir la formation du Passage Céleste du Clan Ju Mo! Je l'ordonne en tant que Jeune Maître de Secte! »
 
 Les trois anciens se regardèrent et hochèrent rapidement la tête. Sans hésiter, ils frappèrent leur front et une hache pourpre apparut dans chacune de leurs mains.
 
-« Ouvrez les Palais des Démons Géants de l'Ouest! » cria l'un d'eux. Il lança sa hache dans les airs, laquelle projeta des rayons d'énergie spirituelle.
+« Ouvrez les Palais Ju Mo de l'Ouest! » cria l'un d'eux. Il lança sa hache dans les airs, laquelle projeta des rayons d'énergie spirituelle.
 
 Le sol du clan commença soudainement à trembler et un pilier de lumière noire perçant le ciel surgit dans la partie occidentale du territoire. Une puissante onde d'énergie spirituelle commença à s'en propager.
 
@@ -76,19 +76,19 @@ Au même instant, un second pilier noir apparut à l'ouest.
 
 Et ce n'était pas fini. Après ces deux piliers, un troisième suivit rapidement. Le sol trembla de plus belle et d'innombrables fissures se propagèrent partout. Des ondulations d'énergie spirituelle émanaient de chacun des trois piliers.
 
-« Ouvrez les Palais des Démons Géants du Sud! »
+« Ouvrez les Palais Ju Mo du Sud! »
 
-« Ouvrez les Palais des Démons Géants du Nord! »
+« Ouvrez les Palais Ju Mo du Nord! »
 
 Les deux autres anciens crièrent presque en même temps, comme le premier, et lancèrent également leurs haches en l'air.
 
 Le nord et le sud se mirent soudainement à gronder alors que six autres piliers noirs apparaissaient. À cet instant, un son mystérieux commença à résonner de toutes parts.
 
-Chi Hu regarda Wang Lin. Il serra les dents et ordonna: « Ouvrez les Palais des Démons Géants de l'Est! »
+Chi Hu regarda Wang Lin. Il serra les dents et ordonna: « Ouvrez les Palais Ju Mo de l'Est! »
 
 À peine eut-il parlé que des grondements éclatèrent à l'est et que trois piliers noirs apparurent.
 
-Si l'on observait la scène d'en haut, le Clan des Démons Géants était totalement enveloppé par la lumière noire des douze piliers. Avec trois piliers dans chaque direction, cela ressemblait à une prison céleste.
+Si l'on observait la scène d'en haut, le Clan Ju Mo était totalement enveloppé par la lumière noire des douze piliers. Avec trois piliers dans chaque direction, cela ressemblait à une prison céleste.
 
 À cet instant précis, alors que les douze piliers s'élançaient vers le ciel, tous les membres du clan assis en tailleur autour de Wang Lin commencèrent à murmurer. Leurs voix fusionnèrent d'une manière étrange et, telle une malédiction sans fin, commencèrent à se propager.
 
@@ -130,7 +130,7 @@ Wang Lin commença à rire comme un possédé. Il bougea encore et brisa un autr
 
 Ses vêtements étaient en lambeaux, révélant son torse musclé, où de fines lignes apparaissaient sur la peau. Les trois étoiles sur son front tournaient rapidement, empêchant quiconque de distinguer leur forme exacte.
 
-Le chant du Clan des Démons Géants devint plus puissant et encore plus étrange. Leurs corps n'étaient plus immobiles mais ondulaient selon un rythme précis.
+Le chant du Clan Ju Mo devint plus puissant et encore plus étrange. Leurs corps n'étaient plus immobiles mais ondulaient selon un rythme précis.
 
 Chi Hu afficha un regard d'incrédulité. Dans le clan, nul autre que l'ancêtre ne pouvait résister à huit piliers, et c'était là la limite de ce dernier. Bien sûr, il s'agissait là de sa résistance physique; si l'ancêtre utilisait des sorts, il pourrait supporter les douze piliers, mais en serait blessé.
 
@@ -146,7 +146,7 @@ Le pilier noir percuta la poitrine de Wang Lin et se brisa. Ce dernier fut repou
 
 C'était là une démonstration magistrale de la puissance ultime d'un Dieu Ancien à trois étoiles!
 
-« Chi Hu, nous sommes quittes. Clan des Démons Géants, scellez-vous! » Le doigt gigantesque de Wang Lin pointa vers le ciel et d'innombrables filaments de gaz gris jaillirent du parchemin de la réincarnation de la vie et de la mort pour pénétrer dans les corps de tous les membres du clan.
+« Chi Hu, nous sommes quittes. Clan Ju Mo, scellez-vous! » Le doigt gigantesque de Wang Lin pointa vers le ciel et d'innombrables filaments de gaz gris jaillirent du parchemin de la réincarnation de la vie et de la mort pour pénétrer dans les corps de tous les membres du clan.
 
 « À partir d'aujourd'hui, il n'y aura plus de cultivateurs au stade de l'Âme Naissante! Si quelqu'un souhaite franchir le stade de la Formation du Noyau, il devra obtenir mon approbation! C'est votre punition! » Le regard de Wang Lin était glacial. À cet instant, sa parole était comme la loi des cieux, décidant du destin même du clan.
 
@@ -160,11 +160,11 @@ Depuis son arrivée dans le pays de Suzaku, Wang Lin ressentait une atmosphère 
 
 Avec son tempérament, comment aurait-il pu accepter d'être manipulé? C'est pourquoi il n'avait pas hésité à montrer sa pleine puissance. Il ne voulait pas être un pion. Et s'il devait l'être, il serait un pion couvert d'épines, faisant saigner quiconque tenterait de le toucher.
 
-Même si la vérité sur sa nature de Dieu Ancien était révélée, il avait une issue. Les Dieux Anciens avaient disparu depuis des éons et n'étaient plus que des légendes. Même si Zhu Quezi voyait Wang Lin, il ne pourrait confirmer s'il s'agissait réellement d'un tel être. Après tout, certains se concentraient sur le raffinement de leur corps; le Clan des Démons Géants en était l'illustration parfaite.
+Même si la vérité sur sa nature de Dieu Ancien était révélée, il avait une issue. Les Dieux Anciens avaient disparu depuis des éons et n'étaient plus que des légendes. Même si Zhu Quezi voyait Wang Lin, il ne pourrait confirmer s'il s'agissait réellement d'un tel être. Après tout, certains se concentraient sur le raffinement de leur corps; le Clan Ju Mo en était l'illustration parfaite.
 
 Wang Lin avait déjà tout prévu. Il n'avait pas l'intention de rester longtemps à Suzaku; il comptait partir pour la planète Tian Yun une fois qu'il aurait obtenu le véritable drapeau d'un milliard d'âmes!
 
-« Ancêtre du Clan des Démons Géants, sors de ta cachette! » cria Wang Lin, flottant dans les airs. Sa voix se propagea à travers tout le territoire.
+« Ancêtre du Clan Ju Mo, sors de ta cachette! » cria Wang Lin, flottant dans les airs. Sa voix se propagea à travers tout le territoire.
 
 Chi Hu laissa échapper un sourire amer avant que son corps ne s'effondre. Wang Lin ne l'avait pas tué, mais en tant que responsable de la formation, il avait subi le contrecoup et de graves blessures lors de sa destruction.
 

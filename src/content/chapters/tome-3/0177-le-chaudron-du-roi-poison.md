@@ -114,7 +114,7 @@ En consultant les jades, il trouva une explication: lorsqu'on atteint le deuxiè
 
 Ce chaudron était une imitation du légendaire Chaudron Médicinal Royal. Bien qu'il s'agînt d'une copie, les matériaux dont il était constitué n'étaient pas inférieurs à ceux de l'original. Sa seule faiblesse résidait dans le manque de l'essence de dizaines de milliers d'années d'absorption de l'énergie des plantes par le véritable Chaudron Médicinal Royal.
 
-Ce chaudron représentait le trésor le plus important d'une secte dans un pays de culture de rang 3. Bossu Meng avait mis des centaines d'années à l'obtenir. Il avait d'abord rejoint la secte et était devenu le disciple personnel du chef grâce à son talent. Puis, dès qu'il en eut l'occasion, il vola l'objet, tua son maître et s'enfuit vers la Mer des Démons, utilisant le chaudron comme trésor vital.
+Ce chaudron représentait le trésor le plus important d'une secte dans un pays de culture de rang 3. Bossu Meng avait mis des centaines d'années à l'obtenir. Il avait d'abord rejoint la secte et était devenu le disciple personnel du chef grâce à son talent. Puis, dès qu'il en eut l'occasion, il vola l'objet, tua son maître et s'enfuit vers la Mer Xiu Mo, utilisant le chaudron comme trésor vital.
 
 Il avait pris un Chaudron Médicinal Royal pour le transformer en Chaudron du Roi Poison. S'il avait atteint le neuvième niveau, bien qu'il n'aurait pas égalé l'original, il s'en serait approché. Mais au lieu d'un chaudron de médecine, ce serait devenu un chaudron de poison.
 

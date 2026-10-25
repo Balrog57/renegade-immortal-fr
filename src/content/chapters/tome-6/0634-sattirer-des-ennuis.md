@@ -34,7 +34,7 @@ Tout en volant, Wang Lin tourna la tête pour observer la direction prise par le
 
 Interrompant sa réflexion, Wang Lin baissa le regard. Le ravin semblait sans fond, et il ignorait jusqu'à quelle profondeur il s'étendait. Ils avaient déjà volé un long moment avant de s'arrêter tout à l'heure, mais ils n'avaient toujours pas atteint le bas.
 
-« Même le cristal de Bei Luo n'a pu percer le fond de cet Abîme des Marées. La seule chose que je sache, c'est qu'un large corridor sinueux relie cette entrée aux cinq autres. Quant à la sortie, il n'y en a qu'une! »
+« Même le cristal de Bei Luo n'a pu percer le fond de cet Abîme Chao Xi. La seule chose que je sache, c'est qu'un large corridor sinueux relie cette entrée aux cinq autres. Quant à la sortie, il n'y en a qu'une! »
 
 Les yeux de Wang Lin s'illuminèrent et, au lieu de descendre, il prit soudainement de l'altitude. À cet instant, il ressentit immédiatement une pression pesante émanant du haut.
 
@@ -42,7 +42,7 @@ Les yeux de Wang Lin s'illuminèrent et, au lieu de descendre, il prit soudainem
 
 Après avoir confirmé ses soupçons, Wang Lin s'arrêta en plein air et inspecta prudemment les alentours. De nombreuses fissures jonchaient les parois; il se contenta d'un rapide coup d'œil avant de détourner le regard.
 
-« Tant de personnes ont dû venir à l'Abîme des Marées au fil des âges. Même si ces fissures contenaient autrefois des trésors, je crains qu'elles ne soient plus que vides aujourd'hui. »
+« Tant de personnes ont dû venir à l'Abîme Chao Xi au fil des âges. Même si ces fissures contenaient autrefois des trésors, je crains qu'elles ne soient plus que vides aujourd'hui. »
 
 « À 330 mètres plus bas se trouve l'un des passages difficiles que j'avais découvert grâce au cristal. »
 
@@ -84,7 +84,7 @@ Du Jian soupira: « Lorsque Sun Yun était dans la force de l'âge, je n'étais 
 
 Le regard de Wang Lin se fixa sur l'épée volante dans la crevasse, sans dire un mot.
 
-Un éclair de froideur passa dans les yeux de Du Jian alors qu'il joignait les mains en signe de respect vers Murong Zhuo et les deux femmes. « Frère Murong, Sœurs Cadettes Zhao et Xu, cette épée appartient à ma Secte du Destin Céleste, et c'est même une arme de la Division Pourpre. Pourriez-vous me faire l'honneur de la remettre à mon Jeune Frère Wang? Il est un disciple de la Division Pourpre de notre secte; lui donner cette épée revient donc à la restituer à son véritable propriétaire. De plus, une fois qu'il l'aura obtenue, son rang au sein de la Division Pourpre en sera grandement transformé. » La voix de Du Jian était empreinte d'une sincérité manifeste.
+Un éclair de froideur passa dans les yeux de Du Jian alors qu'il joignait les mains en signe de respect vers Murong Zhuo et les deux femmes. « Frère Murong, Sœurs Cadettes Zhao et Xu, cette épée appartient à ma Secte Tian Yun, et c'est même une arme de la Division Pourpre. Pourriez-vous me faire l'honneur de la remettre à mon Jeune Frère Wang? Il est un disciple de la Division Pourpre de notre secte; lui donner cette épée revient donc à la restituer à son véritable propriétaire. De plus, une fois qu'il l'aura obtenue, son rang au sein de la Division Pourpre en sera grandement transformé. » La voix de Du Jian était empreinte d'une sincérité manifeste.
 
 Bien que le regard de Murong Zhuo fût glacial, une étrange lueur y brillait. Sa réponse fut brève: « Aucun problème! »
 
@@ -96,7 +96,7 @@ Wang Lin regarda calmement Du Jian. L'expression de ce dernier ne trahissait rie
 
 En voyant le sourire de Wang Lin, Du Jian sentit soudain un pressentiment funeste. Il avait bel et bien sous-estimé Wang Lin. Dans son esprit, à moins que ce ploutre venu d'une planète presque abandonnée ne jouisse d'une chance prodigieuse, comment aurait-il pu être accepté comme disciple par Tian Yunzi?
 
-Il était déjà venu seul dans ce lieu autrefois, mais il n'était pas descendu personnellement. Il avait plutôt contrôlé une marionnette imprégnée d'une fraction de son Sens Divin. Cette marionnette avait été attaquée par cet arbre ancien, et la scène l'avait si terrifié qu'il n'avait plus osé revenir dans la Mer des Nuages pendant une très longue période.
+Il était déjà venu seul dans ce lieu autrefois, mais il n'était pas descendu personnellement. Il avait plutôt contrôlé une marionnette imprégnée d'une fraction de son Sens Divin. Cette marionnette avait été attaquée par cet arbre ancien, et la scène l'avait si terrifié qu'il n'avait plus osé revenir dans la Mer Yun pendant une très longue période.
 
 Ce n'est qu'après avoir trouvé Murong et les autres qu'il avait enfin pu planifier son entrée aujourd'hui. Il était certain que Wang Lin ne percerait pas à jour son stratagème. Après tout, l'arbre ancien paraissait trop ordinaire, et le chemin était jonché de spécimens similaires n'ayant aucune capacité offensive.
 

@@ -92,11 +92,11 @@ Ce processus dura très longtemps...
 
 Wang Lin était assis en position de lotus dans cette grotte. Il restait immobile, comme s'il avait toujours été là.
 
-À l'extérieur, le temps s'écoulait rapidement. Dans le Pays du Démon Céleste, la Cité du Démon Céleste avait déjà été reconstruite depuis dix ans. Sa taille et son étendue étaient redevenues identiques à celles d'autrefois!
+À l'extérieur, le temps s'écoulait rapidement. Dans le Pays Tian Yao, la Cité Tian Yao avait déjà été reconstruite depuis dix ans. Sa taille et son étendue étaient redevenues identiques à celles d'autrefois!
 
 La capitale impériale se dressait toujours, et la grande place était de retour! Le tambour démoniaque géant trônait également sur la place!
 
-Dix années s'étaient écoulées en un instant. Les habitants de la Cité du Démon Céleste avaient échappé à la catastrophe dix ans auparavant, mais ce qu'ils avaient vu resterait gravé dans leur mémoire à jamais!
+Dix années s'étaient écoulées en un instant. Les habitants de la Cité Tian Yao avaient échappé à la catastrophe dix ans auparavant, mais ce qu'ils avaient vu resterait gravé dans leur mémoire à jamais!
 
 La rumeur concernant un cultivateur nommé Wang Lin circulait toujours dans toute la cité. Le bateau n'était plus là, et les gens qui l'occupaient avaient disparu. Personne ne jouait plus de la cithare...
 
@@ -104,9 +104,9 @@ Le jeune homme qui avait autrefois bu avec Wang Lin se tenait désormais sur un 
 
 Si Xu Liguo avait été là et l'avait vue, il aurait bavé avant de se précipiter vers elle en criant: « Petite beauté, ton grand frère Xu est de retour! »
 
-Le jeune homme poussa un soupir et marmonna: « C'est étrange. Cela fait dix ans que ce petit gars a disparu. Même avec les cinq ancêtres travaillant de concert pour le chercher avec leur Sens Divin, ils ne trouvent aucune trace de lui. C'est comme si... comme s'il avait quitté cette Terre des Esprits Démoniaques! »
+Le jeune homme poussa un soupir et marmonna: « C'est étrange. Cela fait dix ans que ce petit gars a disparu. Même avec les cinq ancêtres travaillant de concert pour le chercher avec leur Sens Divin, ils ne trouvent aucune trace de lui. C'est comme si... comme s'il avait quitté cette Terre Yao Ling! »
 
-Dans le Pays du Démon Céleste, la Cité Terrestre!
+Dans le Pays Tian Yao, la Cité Terrestre!
 
 Après la reconstruction de la ville, une demeure très glorieuse fut bâtie sur le côté est. Cette demeure arborait une grande plaque portant quatre grands caractères:
 

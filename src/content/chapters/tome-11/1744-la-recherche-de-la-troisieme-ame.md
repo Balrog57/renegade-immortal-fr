@@ -32,7 +32,7 @@ La nuit fut peu à peu dissipée par le soleil levant. Une autre couleur apparut
 
 Les yeux de Wang Lin s'illuminèrent tandis qu'il murmurait pour lui-même: « Il est temps de chercher la troisième âme! Le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan devraient avoir trouvé des indices... »
 
-À l'extérieur du Royaume Céleste, tout se passait comme Wang Lin l'avait prévu. Même après avoir traversé le Dao Céleste, ils n'avaient pas renoncé à la recherche de la troisième âme. À cet instant, ils se trouvaient dans la Mer des Nuages, progressant en formation, tandis que la gourde au-dessus de leurs têtes pulvérisait d'importantes quantités de brouillard.
+À l'extérieur du Royaume Céleste, tout se passait comme Wang Lin l'avait prévu. Même après avoir traversé le Dao Céleste, ils n'avaient pas renoncé à la recherche de la troisième âme. À cet instant, ils se trouvaient dans la Mer Yun, progressant en formation, tandis que la gourde au-dessus de leurs têtes pulvérisait d'importantes quantités de brouillard.
 
 Ce brouillard servait de guide, et les quatre hommes le suivaient lentement. Ils volaient entre les étoiles et les continents flottants, se dirigeant vers Luotian.
 
@@ -66,7 +66,7 @@ Après avoir anéanti toute vie, des volutes de fumée s'échappèrent du contin
 
 « Plus la bête absorbe l'aura de réincarnation de la troisième âme, mieux elle pourra juger de son emplacement. Elle a déjà dévoré plusieurs fois, c'est donc presque imminent! »
 
-Les quatre généraux se regardèrent puis quittèrent ce continent mort. Ils suivirent la bête de brume jusqu'aux confins de la Mer des Nuages. Cet endroit menait vers Luotian!
+Les quatre généraux se regardèrent puis quittèrent ce continent mort. Ils suivirent la bête de brume jusqu'aux confins de la Mer Yun. Cet endroit menait vers Luotian!
 
 Le Vieux Fantôme Zhan suivait derrière. En fixant la bête, ses yeux brillèrent d'espoir.
 
@@ -78,7 +78,7 @@ Il avait exploré tout le Vide Brillant, à l'exception de la planète des Cinq 
 
 Tout en réfléchissant, le Daoïste aux Sept Couleurs leva la tête.
 
-Il avait vu la troisième âme voler vers le Vide Brillant à travers l'illusion dans l'illusion au sein de la faille de la Mer des Nuages. Il ignorait simplement si la troisième âme s'était arrêtée dans le Vide Brillant ou si elle l'avait traversé.
+Il avait vu la troisième âme voler vers le Vide Brillant à travers l'illusion dans l'illusion au sein de la faille de la Mer Yun. Il ignorait simplement si la troisième âme s'était arrêtée dans le Vide Brillant ou si elle l'avait traversé.
 
 Car au moment critique, Wang Lin avait interrompu son illusion, le forçant à se réveiller.
 

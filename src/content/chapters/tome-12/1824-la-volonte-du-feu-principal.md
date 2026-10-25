@@ -50,7 +50,7 @@ Une lumière dorée brilla intensément et l'empreinte vola vers la jeune femme.
 
 Simultanément, les yeux de Wang Lin s'illuminèrent et il recula, disparaissant à nouveau dans les profondeurs de la veine de feu. La lumière dorée faiblit et l'empreinte cessa sa progression, disparaissant en même temps que l'épée de sang.
 
-« Ne poursuis plus. Je n'ai aucune hostilité envers la Secte de la Grande Âme. J'ai seulement besoin d'utiliser la veine de feu terrestre principale pour cultiver une technique divine! » La voix de Wang Lin résonna dans l'esprit de la jeune femme après son départ.
+« Ne poursuis plus. Je n'ai aucune hostilité envers la Secte Da Hun. J'ai seulement besoin d'utiliser la veine de feu terrestre principale pour cultiver une technique divine! » La voix de Wang Lin résonna dans l'esprit de la jeune femme après son départ.
 
 La jeune femme resta immobile, plongée dans une réflexion silencieuse.
 
@@ -60,7 +60,7 @@ Après un long moment, la froideur reprit place dans son regard.
 
 « Et alors, s'il possède un trésor offert par un Grand Empyréen? Cet homme détient l'épée de sang appartenant au clan de l'Ancien Dao. Il est évident qui est ce Grand Empyréen! »
 
-« Même si les Grands Empyréens des anciens pays sont puissants, ils ne peuvent pas nous contrôler, nous les Célestes! Même si je me suis trompée et que le Grand Empyréen derrière lui est un Céleste, il a osé s'en prendre à la veine de feu principale de la Secte de la Grande Âme; il est donc normal que je le poursuive et j'ai raison de le faire. De plus, je ne cherche pas à le tuer, je cherche simplement à l'arrêter... Même les Grands Empyréens ne peuvent être aussi déraisonnables! » murmura-t-elle en levant la tête pour charger à nouveau vers la veine de feu principale.
+« Même si les Grands Empyréens des anciens pays sont puissants, ils ne peuvent pas nous contrôler, nous les Célestes! Même si je me suis trompée et que le Grand Empyréen derrière lui est un Céleste, il a osé s'en prendre à la veine de feu principale de la Secte Da Hun; il est donc normal que je le poursuive et j'ai raison de le faire. De plus, je ne cherche pas à le tuer, je cherche simplement à l'arrêter... Même les Grands Empyréens ne peuvent être aussi déraisonnables! » murmura-t-elle en levant la tête pour charger à nouveau vers la veine de feu principale.
 
 Le tempérament de cette femme était farouche, et son niveau de culture actuel était le reflet de sa personnalité; elle n'abandonnerait pas si facilement. Bien que l'empreinte dorée l'ait déstabilisée, sa décision était prise.
 

@@ -6,25 +6,25 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 509 - Nine Multitude Bug
 slug: linsecte-des-neuf-multitudes
 ---
-Les membres de la Secte de l'Épée Da Luo se déplaçaient avec célérité. Sans faire aucune halte, ils chargèrent vers leur destination en suivant les instructions de Qian Qin.
+Les membres de la Secte Da Luo Jian se déplaçaient avec célérité. Sans faire aucune halte, ils chargèrent vers leur destination en suivant les instructions de Qian Qin.
 
 En chemin, si une bête apparaissait, les deux Anciens au stade de la Transformation de l'Âme n'avaient qu'à lancer un sceau pour que la créature soit réduite en poussière. Leur puissance dépassait l'entendement de Qian Qin. Sa propre secte avait déployé des efforts considérables pour parvenir jusqu'ici; voir les bêtes que sa secte avait eu tant de mal à vaincre être détruites si aisément lui serrait le cœur d'amertume.
 
 À cet instant, elle se dit que tout cela n'était que destin. Si elle parvenait à obtenir ne serait-ce qu'un seul fruit lors de ce voyage, cela suffirait.
 
-Quant à Guo Xingyi, il se montrait très attentionné et tentait sans cesse de parler à Qian Qin tout au long du trajet. Il cherchait manifestement à restaurer leur relation. Après avoir ressenti la puissance de la Secte de l'Épée Da Luo, elle ne pouvait que se sentir impuissante et feindre la bonne entente tout en endurant cette humiliation.
+Quant à Guo Xingyi, il se montrait très attentionné et tentait sans cesse de parler à Qian Qin tout au long du trajet. Il cherchait manifestement à restaurer leur relation. Après avoir ressenti la puissance de la Secte Da Luo Jian, elle ne pouvait que se sentir impuissante et feindre la bonne entente tout en endurant cette humiliation.
 
 Tout au long du voyage, l'oncle-maître de Guo Xingyi posait de temps à autre son regard sur le corps voluptueux de Qian Qin, une lueur mystérieuse dans les yeux.
 
 Le groupe était très détendu car, même si de puissantes bêtes démoniaques se manifestaient, les deux Anciens au stade de la Transformation de l'Âme s'en occupaient aisément.
 
-Mais en réalité, après être entrés dans ce lieu, ceux qui étaient le plus nerveux étaient les deux Anciens de la Secte de l'Épée Da Luo.
+Mais en réalité, après être entrés dans ce lieu, ceux qui étaient le plus nerveux étaient les deux Anciens de la Secte Da Luo Jian.
 
 Ce n'était pas la première fois qu'ils pénétraient dans les Terres Démoniaques du Nord, mais cette fois-ci était la plus étrange!
 
 Au début, lors de leur entrée, ils n'avaient pas ressenti cela, mais à mesure qu'ils s'enfonçaient plus profondément, une pression capable de provoquer l'effondrement total d'un être commença lentement à saturer l'atmosphère.
 
-Cette sensation était peut-être trop ténue pour que les autres la perçoivent, mais pour les deux Anciens du stade initial de la Transformation de l'Âme de la Secte de l'Épée Da Luo, elle était d'une intensité fulgurante.
+Cette sensation était peut-être trop ténue pour que les autres la perçoivent, mais pour les deux Anciens du stade initial de la Transformation de l'Âme de la Secte Da Luo Jian, elle était d'une intensité fulgurante.
 
 C'était comme si une paire d'yeux les observait, mais lorsqu'ils tentaient de vérifier avec leur Sens Divin, ils ne trouvaient rien. On aurait dit que tout n'était que le fruit de leur imagination.
 
@@ -44,7 +44,7 @@ Ceux qui les précédaient, y compris le vieil homme au stade de la Formation de
 
 Le Fruit d'Or Brillant n'est pas destiné à être consommé; c'est un matériau pour raffiner des trésors. Ce fruit peut accroître la puissance de tout objet lié à l'élément métal, et plus on en utilise, plus le trésor devient puissant.
 
-La rumeur prétend que les quatre épées illusoires derrière le Saint de l'Épée Ling Tianhou de la Secte de l'Épée Da Luo ont été raffinées avec une quantité phénoménale de Fruits d'Or Brillants. La quantité utilisée dépassait l'entendement, et c'est ainsi qu'il avait forgé ces quatre épées incomparables.
+La rumeur prétend que les quatre épées illusoires derrière le Saint de l'Épée Ling Tianhou de la Secte Da Luo Jian ont été raffinées avec une quantité phénoménale de Fruits d'Or Brillants. La quantité utilisée dépassait l'entendement, et c'est ainsi qu'il avait forgé ces quatre épées incomparables.
 
 Les lieux où le Fruit d'Or Brillant peut croître sont extrêmement imprévisibles. Le fruit se forme à partir du métal primordial du ciel et de la terre; c'est un trésor céleste qui peut apparaître n'importe où.
 
@@ -56,7 +56,7 @@ Une fois mûr, le fruit attire de nombreuses bêtes à élément métal qui devi
 
 Cependant, si trop de Fruits d'Or Brillants sont récoltés avant qu'ils ne tombent, la formation des Racines d'Esprit Dorées est compromise. Si l'on prélève trop de fruits, la Racine d'Esprit Dorée ne se formera jamais.
 
-Après le départ des membres de la Secte de l'Épée Da Luo, Wang Lin apparut silencieusement sur le dos du moustique. Il regarda vers leur direction et les suivit tranquillement.
+Après le départ des membres de la Secte Da Luo Jian, Wang Lin apparut silencieusement sur le dos du moustique. Il regarda vers leur direction et les suivit tranquillement.
 
 En raison de la pression oppressante ressentie par les deux Anciens, tout le groupe fut contraint d'accélérer, achevant ainsi le voyage de trois jours en seulement un jour et demi.
 
@@ -70,7 +70,7 @@ En suivant son doigt, ils purent apercevoir une faible lueur dorée émanant de 
 
 Après avoir parlé, Qian Qin recula de quelques pas et resta silencieuse.
 
-Les deux Anciens de la Secte de l'Épée Da Luo se regardèrent. Le plus grand fit quelques pas en avant, forma un sceau de la main et pressa celle-ci vers le vide.
+Les deux Anciens de la Secte Da Luo Jian se regardèrent. Le plus grand fit quelques pas en avant, forma un sceau de la main et pressa celle-ci vers le vide.
 
 Une masse compacte d'énergie spirituelle céleste s'accumula soudainement devant lui, puis fut projetée vers la vallée dans une bourrasque céleste.
 

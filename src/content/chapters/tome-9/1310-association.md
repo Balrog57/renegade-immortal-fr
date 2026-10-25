@@ -32,7 +32,7 @@ Au fil du temps, son âme originelle guérit. Hormis la blessure sur sa poitrine
 
 « Absorber la chair et le sang de ces cultivateurs ordinaires ne suffira pas à l'expulser. Je dois absorber la puissance d'un Dieu Ancien... Dans ce Système Stellaire Antique, je ne connais qu'un seul endroit où trouver une telle puissance! »
 
-« C’est le Clan des Esclaves de la Lune! » Les yeux de Wang Lin brillèrent et il laissa échapper un froid reniflement. D'un pas, il fusionna avec le monde et se précipita vers l'emplacement du Clan Dévorant la Lune gravé dans sa mémoire.
+« C’est le Clan Yue Nu! » Les yeux de Wang Lin brillèrent et il laissa échapper un froid reniflement. D'un pas, il fusionna avec le monde et se précipita vers l'emplacement du Clan Dévorant la Lune gravé dans sa mémoire.
 
 Le Clan Dévorant la Lune comptait de nombreux cultivateurs puissants, dont une multitude de vieux monstres ayant vécu durant des éons. C’était un véritable repaire de dragons et de tigres, où le danger guettait à chaque instant! Cependant, Wang Lin avait d'autres projets. Il savait que durant ces dernières années, le Clan Dévorant la Lune n'avait pas été anéanti par Tuo Sen.
 

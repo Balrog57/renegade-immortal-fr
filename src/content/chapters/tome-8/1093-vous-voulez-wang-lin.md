@@ -12,7 +12,7 @@ Les yeux de Lie Yunzi s'illuminèrent lorsqu'il les ouvrit. Il lança un regard 
 
 La belle femme sourit et prit une gorgée. Elle reposa ensuite sa tasse en souriant de nouveau. « Le Senior Lie Yunzi est très célèbre à Luotian. Le fait que Luotian envoie un tel Senior pour féliciter le nouvel Empereur Divin de l'Oiseau Vermillon suggère que Luotian a l'intention de nouer des relations amicales avec lui. »
 
-« Vous êtes une disciple centrale de la Secte des Cadavres, et vous avez déjà atteint le stade de la Purification du Nirvana à un si jeune âge. La rumeur prétend que vous possédez quatre marionnettes cadavériques, dont trois ne sont pas moins puissantes que des cultivateurs au stade Briseur du Nirvana. Si la Secte des Cadavres vous envoie, c'est qu'elle accorde également une grande importance au nouvel Empereur Divin de l'Oiseau Vermillon. » La voix de Lie Yunzi était calme, mais lorsqu'elle parvint aux oreilles de la femme, ses pupilles se rétractèrent imperceptiblement.
+« Vous êtes une disciple centrale de la Secte Shi Yin, et vous avez déjà atteint le stade de la Purification du Nirvana à un si jeune âge. La rumeur prétend que vous possédez quatre marionnettes cadavériques, dont trois ne sont pas moins puissantes que des cultivateurs au stade Briseur du Nirvana. Si la Secte Shi Yin vous envoie, c'est qu'elle accorde également une grande importance au nouvel Empereur Divin de l'Oiseau Vermillon. » La voix de Lie Yunzi était calme, mais lorsqu'elle parvint aux oreilles de la femme, ses pupilles se rétractèrent imperceptiblement.
 
 « Ce cultivateur doit être issu de l'Alliance. J'ignore simplement votre nom. » La femme changea de sujet et tourna son regard vers l'homme chauve.
 
@@ -50,7 +50,7 @@ La belle femme regarda Lie Yunzi et demanda: « Oh? La rumeur dit qu'une seule d
 
 Lie Yunzi répondit calmement: « Cette personne m'a parlé juste avant de se rendre dans la grotte de Qing Lin. Je connais parfaitement son niveau de culture! » Il ne croyait pas que le niveau de Wang Lin ait pu changer à ce point. À ses yeux, tout cela n'était que des rumeurs infondées.
 
-La belle femme fronça les sourcils. Leur Secte des Cadavres avait recueilli divers indices concluant que le célèbre Wang Lin de la grotte de Qing Lin devait être le nouvel Empereur Divin de l'Oiseau Vermillon. Cependant, les paroles de Lie Yunzi venaient semer le doute dans son esprit.
+La belle femme fronça les sourcils. Leur Secte Shi Yin avait recueilli divers indices concluant que le célèbre Wang Lin de la grotte de Qing Lin devait être le nouvel Empereur Divin de l'Oiseau Vermillon. Cependant, les paroles de Lie Yunzi venaient semer le doute dans son esprit.
 
 « Ce Wang Lin était autrefois le Céleste du Tonnerre de Luotian. Si même Luotian ne pense pas qu'il est le nouvel Empereur Divin... » La belle femme se tut.
 
@@ -80,7 +80,7 @@ Il dégageait une majesté absolue. De plus, l'énergie originelle qui l'entoura
 
 Un silence de mort s'installa dans la salle. L'apparition de cet homme était trop saisissante et avait provoqué une agitation inattendue de l'énergie du feu. Le front de la belle femme était perlé de sueur, comme si elle était assise dans un four. Normalement, avec son niveau de culture, la chaleur ne l'aurait pas affectée, mais depuis l'apparition de l'homme, l'accumulation d'énergie était devenue presque insupportable.
 
-« Junior Li Yingzhi, disciple de la Secte des Cadavres, salue l'Empereur Divin de l'Oiseau Vermillon. » La femme bannit tout mépris de son cœur. Elle lutta contre la pression, se redressa et salua respectueusement cet homme comme s'il était un Grand Ancien de sa propre secte.
+« Junior Li Yingzhi, disciple de la Secte Shi Yin, salue l'Empereur Divin de l'Oiseau Vermillon. » La femme bannit tout mépris de son cœur. Elle lutta contre la pression, se redressa et salua respectueusement cet homme comme s'il était un Grand Ancien de sa propre secte.
 
 « À quel niveau de culture peut bien se trouver cet Empereur Divin pour produire une telle pression?! » s'étonna-t-elle intérieurement.
 

@@ -20,7 +20,7 @@ Il y avait aussi cette existence mystérieuse dans la tour noire; ainsi, même s
 
 Sinon, il aurait dû affronter l'existence à l'intérieur de la tour noire, et cette existence était tout simplement trop puissante. Une fois revenu à la raison, Wang Lin se remémora ce qui s'était passé et fut envahi par la terreur. S'il n'avait pas été stimulé par le Fruit de l'Ascension Céleste, il serait déjà mort d'innombrables fois sous les attaques du sens divin de cette existence mystérieuse dans la tour noire.
 
-Il ne pouvait absolument pas passer les quatre cents prochaines années dans la Terre des Esprits Démoniaques à consommer le Fruit de l'Ascension Céleste pour stimuler son âme originelle. Sinon, avant que cette personne ne le tue, il aurait complètement perdu la raison sous l'effet de la folie.
+Il ne pouvait absolument pas passer les quatre cents prochaines années dans la Terre Yao Ling à consommer le Fruit de l'Ascension Céleste pour stimuler son âme originelle. Sinon, avant que cette personne ne le tue, il aurait complètement perdu la raison sous l'effet de la folie.
 
 Par conséquent, il devait tout risquer. S'il ne parvenait pas à blesser gravement ou à détruire l'existence à l'intérieur de la tour noire, peu importe la distance parcourue, il ne pourrait échapper aux attaques du sens divin de cette personne.
 
@@ -28,7 +28,7 @@ Il craignait qu'au moment où l'effet du Fruit de l'Ascension Céleste disparaî
 
 L'existence dans la tour noire n'était jamais sortie. Il était évident qu'elle avait besoin de la tour pour exister, ce qui rendait Wang Lin encore plus déterminé!
 
-Il sortit d'une téléportation et continua de voler vers la Cité du Démon Céleste. Il avait deux préparations à faire. La première était déjà achevée, la seconde consistait à obtenir l'aide de l'Ancien Démon!
+Il sortit d'une téléportation et continua de voler vers la Cité Tian Yao. Il avait deux préparations à faire. La première était déjà achevée, la seconde consistait à obtenir l'aide de l'Ancien Démon!
 
 Wang Lin pensa secrètement: « L'affaire d'il y a dix ans a été retardée par ma percée au stade Ascendant. Cependant, cet événement était extrêmement important, je crois donc que l'Ancien Démon ne reviendra pas sur sa parole. » Il vola encore plus vite. Il restait quelques vestiges du Fruit de l'Ascension Céleste dans son âme originelle et, maintenant qu'il était lucide, il pouvait s'en débarrasser facilement. Pourtant, Wang Lin ne le fit pas, car il devait le garder comme recours au cas où la tour noire ne serait pas essentielle et que l'existence à l'intérieur pourrait toujours l'attaquer par son sens divin!
 
@@ -42,7 +42,7 @@ Il faut dire que le sort de grande téléportation consommait énormément d'én
 
 On pourrait dire que Wang Lin s'était précipité comme jamais auparavant lors de ce voyage.
 
-« Malheureusement, j'étais sous l'influence du Fruit de l'Ascension Céleste, sinon je n'aurais pas laissé l'énergie d'épée de Zi Shu derrière moi... Cependant, je me souviens de l'endroit où se trouvait son cadavre. Je me demande si l'énergie d'épée sera toujours là si j'y retourne. » Les yeux de Wang Lin s'illuminèrent d'excitation, mais il savait que ce n'était pas le moment de retourner dans le Pays du Démon de Feu.
+« Malheureusement, j'étais sous l'influence du Fruit de l'Ascension Céleste, sinon je n'aurais pas laissé l'énergie d'épée de Zi Shu derrière moi... Cependant, je me souviens de l'endroit où se trouvait son cadavre. Je me demande si l'énergie d'épée sera toujours là si j'y retourne. » Les yeux de Wang Lin s'illuminèrent d'excitation, mais il savait que ce n'était pas le moment de retourner dans le Pays Huo Yao.
 
 Wang Lin n'était plus qu'à une grande téléportation de la capitale du pays du Démon Céleste. Alors qu'il s'apprêtait à franchir l'espace, un rugissement furieux retentit soudainement derrière lui.
 
@@ -66,15 +66,15 @@ La main droite de l'homme s'interrompit brusquement. Une pointe de confusion app
 
 « Ling Tianhou... Quel nom familier... »
 
-Wang Lin recula rapidement. Son regard devint glacial et il cria: « Le Saint de l'Épée Ling Tianhou de la Secte de l'Épée Da Luo! »
+Wang Lin recula rapidement. Son regard devint glacial et il cria: « Le Saint de l'Épée Ling Tianhou de la Secte Da Luo Jian! »
 
-« Secte de l'Épée Da Luo... Saint de l'Épée... » La confusion dans les yeux de l'homme s'intensifia et il commença à lutter. À cet instant, une illusion d'âme démoniaque apparut soudainement entre les sourcils de l'homme. Il lança un regard venimeux à Wang Lin avant de pousser un cri strident.
+« Secte Da Luo Jian... Saint de l'Épée... » La confusion dans les yeux de l'homme s'intensifia et il commença à lutter. À cet instant, une illusion d'âme démoniaque apparut soudainement entre les sourcils de l'homme. Il lança un regard venimeux à Wang Lin avant de pousser un cri strident.
 
 Ce cri fit disparaître la confusion dans les yeux de l'homme, remplacée par une flamme démoniaque.
 
 Wang Lin recula promptement et cria: « Ancien Démon! »
 
-Une volonté puissante jaillit soudainement de la Cité du Démon Céleste et descendit devant Wang Lin!
+Une volonté puissante jaillit soudainement de la Cité Tian Yao et descendit devant Wang Lin!
 
 « Tu es en retard de dix ans! » La voix de l'Ancien Démon résonna dans les oreilles de Wang Lin.
 

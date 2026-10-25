@@ -78,11 +78,11 @@ Mais aujourd'hui, la situation était différente. Wang Lin avait détruit la Fo
 
 Avant lui, d'autres avaient tenté l'aventure, mais les conditions n'étaient pas réunies. Ils ne possédaient pas le trésor du Seigneur du Royaume Scellé et, à l'époque, la Formation de Scellement du Royaume n'avait pas été suffisamment affaiblie.
 
-Wang Lin fit un pas en avant. Le premier endroit où il se rendit fut le Royaume Céleste du Vent dans la Mer des Nuages! Ce royaume était bien préservé et occupé par une immense quantité de bêtes moustiques. À l'époque, le niveau de culture de Wang Lin n'était pas assez élevé pour ébranler ce domaine, mais aujourd'hui, il le pouvait!
+Wang Lin fit un pas en avant. Le premier endroit où il se rendit fut le Royaume Céleste du Vent dans la Mer Yun! Ce royaume était bien préservé et occupé par une immense quantité de bêtes moustiques. À l'époque, le niveau de culture de Wang Lin n'était pas assez élevé pour ébranler ce domaine, mais aujourd'hui, il le pouvait!
 
 De plus, grâce à son lien, Wang Lin savait que les bêtes moustiques qui s'étaient séparées de lui lors de la bataille passée avaient survécu et s'étaient établies dans le Royaume Céleste du Vent.
 
-D'un pas, des ondulations se propagèrent et Wang Lin disparut. Lorsqu'il réapparut, il se trouvait au plus profond de la Mer des Nuages, à l'entrée du Royaume Céleste du Vent.
+D'un pas, des ondulations se propagèrent et Wang Lin disparut. Lorsqu'il réapparut, il se trouvait au plus profond de la Mer Yun, à l'entrée du Royaume Céleste du Vent.
 
 Revenant en un lieu familier, Wang Lin pénétra dans la faille et s'élança dans le Royaume Céleste du Vent. Un vent tranchant comme une lame hurlait à travers ce domaine.
 

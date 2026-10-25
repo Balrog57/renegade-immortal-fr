@@ -14,9 +14,9 @@ Ces installations n'étaient pas rares dans la cité.
 
 L'un des vieillards était l'oncle-maître de Yang Yu, tandis que l'autre arborait un visage rougeoyant.
 
-Le vieil homme aux robes vertes sourit: « Cher cultivateur Lu, je ne me suis pas présenté. Je suis Tang Lihai, ancien du rang 6 de la Secte de la Collection Démoniaque. »
+Le vieil homme aux robes vertes sourit: « Cher cultivateur Lu, je ne me suis pas présenté. Je suis Tang Lihai, ancien du rang 6 de la Secte Mo Cong. »
 
-« Ce vieux est Wu Qing, également de la Secte de la Collection Démoniaque. » La voix du vieil homme au visage rouge résonna comme une cloche, faisant vibrer tout le troisième étage.
+« Ce vieux est Wu Qing, également de la Secte Mo Cong. » La voix du vieil homme au visage rouge résonna comme une cloche, faisant vibrer tout le troisième étage.
 
 Ces deux anciens étaient tous deux au début du stade de Briseur du Nirvana, mais ils ne firent preuve d'aucune arrogance et traitèrent Wang Lin d'égal à égal. Wu Qing, ayant appris les récents événements par Tang Lihai, était sous le choc; il n'osait plus sous-estimer Wang Lin.
 
@@ -30,15 +30,15 @@ L'expression de Wang Lin resta neutre tandis qu'il levait la sienne pour l'honor
 
 Tang Lihai rit: « J'ai entendu par le disciple Zhao Yu que les sorts de cher cultivateur Lu étaient prodigieux. Après les avoir vus aujourd'hui, je constate qu'ils sont véritablement extraordinaires. Je souhaite devenir l'ami du frère Lu. »
 
-« Aucun problème. Mon intention était également de nouer des liens avec la Secte de la Collection Démoniaque. » Wang Lin attendait patiemment la suite. Il ne croyait pas qu'ils fussent venus uniquement pour se lier d'amitié.
+« Aucun problème. Mon intention était également de nouer des liens avec la Secte Mo Cong. » Wang Lin attendait patiemment la suite. Il ne croyait pas qu'ils fussent venus uniquement pour se lier d'amitié.
 
 Les deux commencèrent à discuter, mais Tang Lihai n'aborda toujours pas le véritable but de leur visite. Il sondait secrètement Wang Lin, tout en craignant la relation qui le liait à Li Qianmei.
 
 Wu Qing écouta un long moment avant de laisser paraître une pointe d'impatience. Il saisit une coupe et la frappa brusquement sur la table. Il fixa Wang Lin et déclara: « Cher cultivateur Lu, je ne suis pas doué pour les discours détournés. Je suis venu aujourd'hui vous demander si vous seriez prêt à devenir un ancien extérieur. »
 
-« Si vous acceptez, ma Secte de la Collection Démoniaque vous accueillera avec de grands présents! Même si vous refusez, après aujourd'hui, nous trois pourrons être considérés comme des connaissances. Pour nous, les cultivateurs, ceux que nous appelons "chers cultivateurs" peuvent être considérés comme des amis! »
+« Si vous acceptez, ma Secte Mo Cong vous accueillera avec de grands présents! Même si vous refusez, après aujourd'hui, nous trois pourrons être considérés comme des connaissances. Pour nous, les cultivateurs, ceux que nous appelons "chers cultivateurs" peuvent être considérés comme des amis! »
 
-En entendant les paroles de Wu Qing, Tang Lihai afficha un sourire amer en regardant Wang Lin: « J'allais vous aborder à ce sujet après trois coupes de vin, mais j'ai oublié l'impatience de ce Wu Qing. Ma Secte de la Collection Démoniaque est très sincère; si vous devenez un ancien extérieur, nous vous fournirons tous les matériaux d'alchimie dont vous aurez besoin. Nous ne vous demandons qu'à agir au moment opportun pour maintenir la dignité de ma Secte! »
+En entendant les paroles de Wu Qing, Tang Lihai afficha un sourire amer en regardant Wang Lin: « J'allais vous aborder à ce sujet après trois coupes de vin, mais j'ai oublié l'impatience de ce Wu Qing. Ma Secte Mo Cong est très sincère; si vous devenez un ancien extérieur, nous vous fournirons tous les matériaux d'alchimie dont vous aurez besoin. Nous ne vous demandons qu'à agir au moment opportun pour maintenir la dignité de ma Secte! »
 
 Wang Lin réfléchit un instant et dit lentement: « Je dois y réfléchir. Que diriez-vous de ceci: je vous donnerai une réponse avant de quitter Peng Lai. »
 
@@ -66,7 +66,7 @@ L'homme d'âge moyen secoua la tête.
 
 « S'il l'a percé, alors oui. Sinon, non. » L'homme d'âge moyen détourna le regard et fronça les sourcils.
 
-« Quoi qu'il arrive, ne touchez pas à cet homme. Je ressens un danger extrême émanant de lui... Ma Secte de la Collection Démoniaque se retirera de cette affaire concernant le jade et la recette de pilule. Nous ne pouvons pas nous permettre d'y participer. » L'homme se massa les tempes, l'air épuisé.
+« Quoi qu'il arrive, ne touchez pas à cet homme. Je ressens un danger extrême émanant de lui... Ma Secte Mo Cong se retirera de cette affaire concernant le jade et la recette de pilule. Nous ne pouvons pas nous permettre d'y participer. » L'homme se massa les tempes, l'air épuisé.
 
 Chaque cité possédait ses propres marchés, et ils étaient nombreux à être dispersés. Au cours des jours suivants, Wang Lin fit ses adieux à Li Qianmei et erra seul dans la ville.
 
@@ -102,7 +102,7 @@ Wang Lin hocha la tête et projeta son Sens Divin vers l'avant avant d'entrer. �
 
 « J'ai fait attendre cher cultivateur. Vous avez simplement demandé trop de choses, ce qui a nécessité un certain temps de préparation. » Ouyang Long était d'un enthousiasme débordant; il semblait être une personne totalement différente de celle qu'il avait été trois jours auparavant.
 
-Wang Lin joignit les mains et sourit: « Aucun problème. » Il comprenait parfaitement pourquoi Ouyang Long agissait ainsi. Les actions de Wang Lin au marché n'avaient pas seulement choqué la Secte de la Collection Démoniaque, mais aussi la puissance qui soutenait Ouyang Long.
+Wang Lin joignit les mains et sourit: « Aucun problème. » Il comprenait parfaitement pourquoi Ouyang Long agissait ainsi. Les actions de Wang Lin au marché n'avaient pas seulement choqué la Secte Mo Cong, mais aussi la puissance qui soutenait Ouyang Long.
 
 « Venez, venez, ce vieux va vous conduire dans un endroit particulier. Notre échange s'y déroulera, et il y aura aussi quelques divertissements. Peut-être que cher cultivateur souhaitera parier un peu et gagner gros. » Ouyang Long affichait un sourire, mais il n'osait pas sous-estimer ce jeune homme vêtu de blanc. Trois jours plus tôt, cet individu avait réussi à le trouver pour passer une commande d'une telle envergure. Il était évident qu'il avait percé son identité, ce qui prouvait qu'il n'était pas un être ordinaire. Et ce qui s'était passé au marché par la suite l'avait véritablement stupéfié.
 

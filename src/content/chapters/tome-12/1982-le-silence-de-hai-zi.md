@@ -24,7 +24,7 @@ D'un seul geste, le corps véritable des cinq éléments manifesta une lutte dé
 
 Le visage de l'Exalté Empyréen Hai Zi était livide; elle ouvrit la bouche pour dire quelque chose, mais finit par rester muette.
 
-« Jiu Di ne m'a pas invité au Mont de l'Empereur, n'est-ce pas?
+« Jiu Di ne m'a pas invité au Mont Di, n'est-ce pas?
 
 « Ce piège vous a utilisé comme appât pour me faire sortir, n'est-ce pas?
 

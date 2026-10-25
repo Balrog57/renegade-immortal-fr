@@ -20,7 +20,7 @@ Tout se passa en un éclair!
 
 Après avoir lancé cet avertissement, il chargea vers le motif carré qui lui faisait face.
 
-L'expression de l'Exalté Empyréen Hai Zi était extrêmement sombre et son beau visage rayonnait de colère. Elle fulminait contre celui qui avait profité de l'invitation qu'elle avait faite au Mont de l'Empereur pour tenter de tuer Wang Lin!
+L'expression de l'Exalté Empyréen Hai Zi était extrêmement sombre et son beau visage rayonnait de colère. Elle fulminait contre celui qui avait profité de l'invitation qu'elle avait faite au Mont Di pour tenter de tuer Wang Lin!
 
 Si le plan de l'adversaire réussissait, cette affaire ébranlerait tout le clan céleste et son maître se verrait impliqué!
 

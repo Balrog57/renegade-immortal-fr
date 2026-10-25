@@ -22,7 +22,7 @@ slug: jhesitais-face-a-tout-cela-jusqua-ce-que-je-voie-pour-la-seconde-fois-cett
 
 « Cette scène m'a inspiré, tout en m'insufflant un sentiment de peur encore plus profond.
 
-« Et dans le monde de la grotte, lorsque j'ai tenté d'atteindre la troisième étape, la Porte du Vide est apparue... ainsi que la voix émanant de derrière la porte. Plus tard, je découvris que cette voix était très similaire à celle de la Perle Défiant le Ciel qui me disait que quelque chose manquait.
+« Et dans le monde de la grotte, lorsque j'ai tenté d'atteindre la troisième étape, la Porte Kong est apparue... ainsi que la voix émanant de derrière la porte. Plus tard, je découvris que cette voix était très similaire à celle de la Perle Défiant le Ciel qui me disait que quelque chose manquait.
 
 « Cela a persisté jusqu'à ce que je développe cette idée folle, jusqu'à ce que je trouve le crâne de Ji Qiong et le Sens Divin qu'il contenait. » Après avoir parlé, Wang Lin leva la main droite et le crâne de Ji Qiong apparut.
 

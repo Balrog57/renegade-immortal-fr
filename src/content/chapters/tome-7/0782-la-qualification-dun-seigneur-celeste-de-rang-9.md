@@ -30,7 +30,7 @@ Les deux vieillards qui résistaient au sceau fragmentaire au-dessus du pavillon
 
 Wang Lin répondit avec calme: « Xu Mu! »
 
-Les yeux du vieil homme se plissèrent: « Bien que le Compagnon Cultivateur Xu n'ait pas encore atteint le stade du Scruteur du Nirvana, nous sommes incapables de vous arrêter. Vous avez la qualification pour entrer dans le Pavillon des Collections! »
+Les yeux du vieil homme se plissèrent: « Bien que le Compagnon Cultivateur Xu n'ait pas encore atteint le stade du Scruteur du Nirvana, nous sommes incapables de vous arrêter. Vous avez la qualification pour entrer dans le Pavillon Cang Jue! »
 
 À peine eut-il fini sa phrase que le vieil homme à ses côtés fixa Wang Lin et demanda soudainement: « Le Compagnon Cultivateur Xu a-t-il un lien avec la famille Xu de la planète Dong Lin? »
 
@@ -38,13 +38,13 @@ Wang Lin regarda calmement l'interlocuteur. L'homme hésita, puis ses yeux s'ill
 
 Les yeux de Wang Lin brillèrent et il esquissa un léger sourire.
 
-« Ce n'est pas impossible, mais mon objectif actuel est d'entrer dans le Pavillon des Collections; j'espère donc que vous trois me permettrez d'y accéder! » Wang Lin jeta un regard à l'âme originelle qui avait perdu son enveloppe charnelle.
+« Ce n'est pas impossible, mais mon objectif actuel est d'entrer dans le Pavillon Cang Jue; j'espère donc que vous trois me permettrez d'y accéder! » Wang Lin jeta un regard à l'âme originelle qui avait perdu son enveloppe charnelle.
 
-Le cultivateur privé de corps laissa échapper un soupir, l'esprit tourmenté. En entendant les paroles de Wang Lin, il comprit que celui-ci connaissait parfaitement le Pavillon des Collections. On ne pouvait y pénétrer qu'une fois le pavillon ouvert, et cela requérait la participation d'au moins deux membres issus des quatre grandes familles.
+Le cultivateur privé de corps laissa échapper un soupir, l'esprit tourmenté. En entendant les paroles de Wang Lin, il comprit que celui-ci connaissait parfaitement le Pavillon Cang Jue. On ne pouvait y pénétrer qu'une fois le pavillon ouvert, et cela requérait la participation d'au moins deux membres issus des quatre grandes familles.
 
 Ce qui suivit fut simple: les trois hommes coopérèrent pour ouvrir le pavillon. Les quatre coins tremblèrent lentement tandis que les quatre cornes se rejoignirent progressivement. Un rayon de lumière douce jaillit soudainement, et une porte ovale de lumière apparut à la jonction des cornes.
 
-« Compagnon Cultivateur Xu, ma famille Chen est entrée dans le Pavillon des Collections plus d'une centaine de fois. Bien que l'obtention d'un sort céleste dépende de la chance et de la perception de chacun, ce n'est pas totalement aléatoire. Plus vous resterez longtemps, plus le sort céleste que vous obtiendrez à la fin sera précieux. Je vous souhaite de faire une riche récolte! » Celui qui avait invité Wang Lin à devenir Ancien non familial joignit les poings, d'une voix fort sincère.
+« Compagnon Cultivateur Xu, ma famille Chen est entrée dans le Pavillon Cang Jue plus d'une centaine de fois. Bien que l'obtention d'un sort céleste dépende de la chance et de la perception de chacun, ce n'est pas totalement aléatoire. Plus vous resterez longtemps, plus le sort céleste que vous obtiendrez à la fin sera précieux. Je vous souhaite de faire une riche récolte! » Celui qui avait invité Wang Lin à devenir Ancien non familial joignit les poings, d'une voix fort sincère.
 
 Wang Lin hocha légèrement la tête. D'après les souvenirs du vieillard de la famille Yao, il savait que les quatre grandes familles n'avaient pas le pouvoir de tendre des pièges à l'intérieur même du pavillon. De plus, tout ce qui se déroulait était conforme aux souvenirs de Yao. Wang Lin n'hésita plus. Il retira ses trésors magiques, s'avança devant la porte, prit une profonde inspiration et franchit le seuil.
 
@@ -68,7 +68,7 @@ Les yeux de Wang Lin se plissèrent. Il savait, grâce aux souvenirs de Yao, que
 
 Instantanément, une force mystérieuse pénétra son corps. Elle le parcourut une fois avant de s'en extraire, et une voix grave résonna soudainement:
 
-« Grand Céleste de rang 8! Vous pouvez accéder au quatrième étage du Pavillon des Collections pour tester votre chance et tenter d'obtenir un sort céleste! »
+« Grand Céleste de rang 8! Vous pouvez accéder au quatrième étage du Pavillon Cang Jue pour tester votre chance et tenter d'obtenir un sort céleste! »
 
 En retirant sa main, les yeux de Wang Lin s'illuminèrent et il murmura: « Grand Céleste de rang 8... Je me demande comment la culture est hiérarchisée parmi les êtres célestes. Je n'ai pas encore atteint le sommet du stade Corporel Yang; je me demande quel rang céleste je posséderai une fois ce stade atteint... »
 
@@ -82,7 +82,7 @@ Wang Lin recula de quelques pas et confectionna un sceau manuel. Il utilisa son 
 
 Instantanément, l'être de brume montra des signes d'effondrement. Son corps entier trembla et, après un long moment, une voix profonde retentit:
 
-« Seigneur Céleste de rang 9! Vous pouvez vous rendre au neuvième étage du Pavillon des Collections pour consulter des sorts célestes! »
+« Seigneur Céleste de rang 9! Vous pouvez vous rendre au neuvième étage du Pavillon Cang Jue pour consulter des sorts célestes! »
 
 Les yeux de Wang Lin débordèrent d'excitation. Il serra fermement le poing, remit immédiatement la femme dans la pagode, puis la rangea dans son sac. Son cœur tambourinait violemment; il était rare qu'il éprouve de telles émotions.
 

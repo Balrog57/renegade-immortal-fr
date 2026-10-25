@@ -50,7 +50,7 @@ Les yeux de l'homme brillèrent d'une puissante intention de combat. Il s'immobi
 
 Les cinq lames autour de lui se mirent à vibrer, émettant un chant métallique strident. Elles entamèrent une rotation, formant cinq rayons de lumière argentée qui foncèrent sur Wang Lin. Ces rayons se transformèrent en cinq lames célestes qui s'abattirent soudainement sur lui.
 
-Le dragon noir rugit et ses yeux s'illuminèrent alors qu'il bondissait. Tandis que Wang Lin fixait les lames, la peinture du neuvième étage du Pavillon des Collections devint encore plus limpide dans son esprit.
+Le dragon noir rugit et ses yeux s'illuminèrent alors qu'il bondissait. Tandis que Wang Lin fixait les lames, la peinture du neuvième étage du Pavillon Cang Jue devint encore plus limpide dans son esprit.
 
 « Invoquer le Vent, Appeler la Pluie, Arsenal Magique... » À cet instant, les mots inscrits sur la peinture apparurent dans l'esprit de Wang Lin.
 

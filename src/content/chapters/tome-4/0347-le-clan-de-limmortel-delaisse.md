@@ -1,6 +1,6 @@
 ---
 n: 347
-title: "Le Clan des Immortels Délaissés"
+title: "Le Clan Xian Yi"
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 347 - Forsaken Immortal Clan
@@ -12,7 +12,7 @@ Les tatouages sur le corps du jeune homme dégageaient une lueur spectrale et at
 
 Le regard du jeune homme était empreint d'excitation alors qu'il murmurait quelque chose à l'homme âgé dans une langue inconnue. En entendant ces paroles étranges, Wang Lin fut certain que ce monstre d'autrefois était lié à eux, car sa langue était identique à celle-ci.
 
-Le vieil homme sauvage hocha la tête. Il frotta la tête du jeune homme, puis tourna son regard vers Wang Lin. Après avoir examiné le piège à bêtes au poignet de Wang Lin, il posa la main sur sa poitrine, s'inclina et dit: « Salutations, étranger. Je suis Ka Mo du Clan des Immortels Délaissés, chaman à six feuilles. »
+Le vieil homme sauvage hocha la tête. Il frotta la tête du jeune homme, puis tourna son regard vers Wang Lin. Après avoir examiné le piège à bêtes au poignet de Wang Lin, il posa la main sur sa poitrine, s'inclina et dit: « Salutations, étranger. Je suis Ka Mo du Clan Xian Yi, chaman à six feuilles. »
 
 Les yeux de Wang Lin s'illuminèrent. Il joignit les mains en signe de respect et répondit: « Salutations, je suis Wang Lin, cultivateur au stade de la Formation de l'Âme. »
 
@@ -22,7 +22,7 @@ Le vieil homme observa Wang Lin et déclara: « Le pacte des cent ans n'est pas 
 
 Le vieil homme poursuivit: « Même si vos compagnons atteignent le troisième étage, ils n'en ressortiront pas vivants. Des chamans à sept feuilles de ma tribu se trouvent là-bas. Leur puissance est équivalente à celle de cultivateurs en Transformation de l'Âme. »
 
-Wang Lin réfléchit un instant puis dit: « Je vous en remercie. » Puis, pointant le jeune homme du doigt, il demanda: « Il a utilisé le sang de la bête pour tracer ces tatouages à l'instant. Est-ce là la technique secrète de votre Clan des Immortels Délaissés? »
+Wang Lin réfléchit un instant puis dit: « Je vous en remercie. » Puis, pointant le jeune homme du doigt, il demanda: « Il a utilisé le sang de la bête pour tracer ces tatouages à l'instant. Est-ce là la technique secrète de votre Clan Xian Yi? »
 
 Le vieil homme acquiesça: « C'est exact. Mon clan utilise les tatouages pour absorber la puissance de ces bêtes. Plus la créature est puissante, plus le gain est immense. »
 
@@ -80,7 +80,7 @@ Wang Lin cria: « Compagnon cultivateur Hu, n'êtes-vous toujours pas lucide?! �
 
 Sa voix tonna comme le tonnerre, traversant le gaz pour atteindre les oreilles du vieil homme. Ce dernier cessa immédiatement ses assauts et son regard trahit une lutte intérieure, mais à cet instant précis, les tatouages dans ses yeux brillèrent, rendant son regard de nouveau rouge sang, bien que son expression fût devenue étrange.
 
-« Frère Wang, le chaman que j'ai tué a atteint le stade des six feuilles juste avant de mourir et m'a lancé une malédiction pour tenter de me transformer en marionnette! Cette technique est extrêmement tyrannique. Si nous étions dans la Mer des Démons, il ne me faudrait que quelques années pour lever ce sort. Mais avec cette aura irritante ici, je ne parviens pas à retrouver mon calme. Cette malédiction ne se brisera qu'en cas de crise de vie ou de mort... Alors, frère Wang, attaque maintenant! » Son corps tremblait violemment, témoignant de sa lutte pour garder le contrôle.
+« Frère Wang, le chaman que j'ai tué a atteint le stade des six feuilles juste avant de mourir et m'a lancé une malédiction pour tenter de me transformer en marionnette! Cette technique est extrêmement tyrannique. Si nous étions dans la Mer Xiu Mo, il ne me faudrait que quelques années pour lever ce sort. Mais avec cette aura irritante ici, je ne parviens pas à retrouver mon calme. Cette malédiction ne se brisera qu'en cas de crise de vie ou de mort... Alors, frère Wang, attaque maintenant! » Son corps tremblait violemment, témoignant de sa lutte pour garder le contrôle.
 
 Le regard de Wang Lin se fit intense alors qu'il effleurait son sac de rangement. L'épée céleste noire apparut dans sa main. Après que les âmes errantes eurent pénétré la lame, même ceux qui l'avaient déjà vue auraient eu du mal à la reconnaître.
 

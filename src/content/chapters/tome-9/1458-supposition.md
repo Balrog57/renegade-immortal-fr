@@ -86,9 +86,9 @@ Le premier Oiseau Vermillon avait cité un nom: l'Ordre Antique Ye Mo.
 
 « Pourquoi "Ordre Antique" et non "Ancien Dieu Ye Mo", "Ancien Diable" ou "Ancien Démon"? Est-ce que ce titre permet de déterminer que Ye Mo n'était ni dieu, ni diable, ni démon, mais un membre de l'Ordre Antique? »
 
-« Lorsque j'ai atteint le stade Ascendant dans la Terre des Esprits Démoniaques, l'Ancien Démon Ta Jia avait affirmé que l'Ordre Antique constituait la première génération d'êtres défiant le ciel, qu'ils étaient morts en combattant le Dao Céleste, puis qu'ils avaient engendré trois clans, la seconde génération de cultivateurs combattant le Dao Céleste. »
+« Lorsque j'ai atteint le stade Ascendant dans la Terre Yao Ling, l'Ancien Démon Ta Jia avait affirmé que l'Ordre Antique constituait la première génération d'êtres défiant le ciel, qu'ils étaient morts en combattant le Dao Céleste, puis qu'ils avaient engendré trois clans, la seconde génération de cultivateurs combattant le Dao Céleste. »
 
-« Il y avait aussi ce messager des cieux apparu à la fin de la vie de Wan Er. C'était manifestement un Ancien Dieu scellé. Et il y eut ce messager dans le Clan du Tonnerre Dispersé. Quand je lui ai tranché un bras, avant de partir, il a percé ma véritable nature d'Ancien Dieu et a dit que j'appartenais au clan qui a trahi le Vide et anéanti le Dao. » La respiration de Wang Lin devint saccadée; il commençait à entrevoir une vérité.
+« Il y avait aussi ce messager des cieux apparu à la fin de la vie de Wan Er. C'était manifestement un Ancien Dieu scellé. Et il y eut ce messager dans le Clan Shan Lei. Quand je lui ai tranché un bras, avant de partir, il a percé ma véritable nature d'Ancien Dieu et a dit que j'appartenais au clan qui a trahi le Vide et anéanti le Dao. » La respiration de Wang Lin devint saccadée; il commençait à entrevoir une vérité.
 
 « Trahir le Vide, anéantir le Dao... le Dao Céleste est mort. Le messager des cieux m'a désigné comme celui du clan ayant anéanti le Dao. La réponse est presque là! Mais qui est donc ce "Vide"? Serait-ce le cultivateur aux sept couleurs, l'Empereur Céleste Antique, le maître de la première génération de l'Oiseau Vermillon, un Immortel Vénérable? »
 

@@ -41,9 +41,9 @@ Wang Lin remarqua immédiatement une puissante odeur de sang émanant du corps d
 
 « En chemin, j'ai entendu quelques personnes prononcer ton nom; je suis donc allé massacrer quelques cultivateurs de l'Alliance qui étaient doués pour se cacher! » Bien que Qing Shui l'ait dit avec désinvolture, Wang Lin savait que ce n'était absolument pas une mince affaire.
 
-La réalité était conforme à ses explications. Le Royaume de la Boucherie de l'Alliance avait poursuivi sa traque du Céleste Xu Mu. Bien que Wang Lin se soit enfoncé dans le vide, ils n'avaient pas renoncé et étaient restés à proximité. Cependant, au lieu de se disperser, ils s'étaient divisés en deux équipes pour surveiller l'emplacement de Luotian.
+La réalité était conforme à ses explications. Le Royaume Sha Yu de l'Alliance avait poursuivi sa traque du Céleste Xu Mu. Bien que Wang Lin se soit enfoncé dans le vide, ils n'avaient pas renoncé et étaient restés à proximité. Cependant, au lieu de se disperser, ils s'étaient divisés en deux équipes pour surveiller l'emplacement de Luotian.
 
-Hélas, ce Royaume de la Boucherie avait une chance déplorable: l'un de ses groupes tomba nez à nez avec Qing Shui. Tous furent exécutés, et même leur chef fut dévoré par Qing Shui.
+Hélas, ce Royaume Sha Lu avait une chance déplorable: l'un de ses groupes tomba nez à nez avec Qing Shui. Tous furent exécutés, et même leur chef fut dévoré par Qing Shui.
 
 Wang Lin frappa son sac de rangement, et l'âme originelle de l'Illustre Xuan Bao s'en échappa. Il la lança vers Qing Shui. Ce dernier l'attrapa et plaça sa main droite sur le sommet du crâne de l'Illustre Xuan Bao. L'énergie d'origine céleste afflua dans sa main, et l'âme de l'illustre s'éveilla. Des hurlements de détresse résonnèrent tandis que son âme originelle se convulsait.
 
@@ -53,7 +53,7 @@ Sans mot dire, Wang Lin réceptionna l'âme. Celle-ci avait perdu toute conscien
 
 Wang Lin rangea cette âme dans son sac de rangement et regarda Qing Shui. L'expression de ce dernier était revenue à la normale, mais une lueur de férocité y persistait. Il avait trouvé un indice ténu dans l'âme originelle de l'Illustre Xuan Bao!
 
-Qing Shui fixa Wang Lin et dit lentement: « Xu Mu, je dois me rendre au Royaume de la Boucherie de l'Alliance pour récupérer un objet. Es-tu prêt à m'accompagner? »
+Qing Shui fixa Wang Lin et dit lentement: « Xu Mu, je dois me rendre au Royaume Sha Yu de l'Alliance pour récupérer un objet. Es-tu prêt à m'accompagner? »
 
 Wang Lin réfléchit un instant avant de répondre: « Le Frère aîné peut-il m'attendre dix jours? »
 

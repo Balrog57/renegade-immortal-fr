@@ -78,7 +78,7 @@ Il en sortit une et la tint entre ses doigts, l'examinant avec soin.
 
 Une pilule se trouvait dans chacun des deux nuages de brouillard.
 
-« Une Pilule d'Âme de Brouillard raffinée à partir d'une bête de brouillard de rang 12! » Les yeux de Wang Lin pétillèrent d'extase. Il avait vaguement reconnu les pilules de rang 11, mais celle-ci était une rareté absolue, issue de bêtes de brouillard de rang 12. Ces dernières étaient extrêmement rares dans la Mer des Nuages et possédaient une caractéristique distincte facile à identifier.
+« Une Pilule d'Âme de Brouillard raffinée à partir d'une bête de brouillard de rang 12! » Les yeux de Wang Lin pétillèrent d'extase. Il avait vaguement reconnu les pilules de rang 11, mais celle-ci était une rareté absolue, issue de bêtes de brouillard de rang 12. Ces dernières étaient extrêmement rares dans la Mer Yun et possédaient une caractéristique distincte facile à identifier.
 
 La raison pour laquelle cette pilule était si rare résidait dans le fait que peu de personnes étaient prêtes à sacrifier les bénéfices à long terme d'une bête de brouillard pour l'utiliser comme simple ingrédient de raffinage.
 
@@ -88,7 +88,7 @@ Ce rugissement était bien plus puissant que celui d'une bête de rang 12; il é
 
 « Une pilule de rang 13!! » Wang Lin prit une profonde inspiration et rangea soigneusement deux des bouteilles, ne laissant que la première. Il la prit et se dirigea vers la grotte contenant le fourneau.
 
-Il fallait atteindre le stade intermédiaire du Briseur du Nirvana pour pouvoir consommer une pilule de rang 11, sans quoi l'âme originelle ne pourrait pas contrer la violente âme de bête. Le résultat ne serait que la dévoration de l'âme originelle par celle de la bête. C'était un fait connu de tous les cultivateurs de la Mer des Nuages. Bien que les pilules puissent aider à augmenter le niveau de culture, il fallait faire preuve d'une prudence extrême!
+Il fallait atteindre le stade intermédiaire du Briseur du Nirvana pour pouvoir consommer une pilule de rang 11, sans quoi l'âme originelle ne pourrait pas contrer la violente âme de bête. Le résultat ne serait que la dévoration de l'âme originelle par celle de la bête. C'était un fait connu de tous les cultivateurs de la Mer Yun. Bien que les pilules puissent aider à augmenter le niveau de culture, il fallait faire preuve d'une prudence extrême!
 
 Le véritable niveau de culture de Wang Lin, en faisant abstraction de son corps d'Ancien Dieu, n'était que le début du stade Purificateur du Nirvana. Il ne pouvait pas consommer directement une pilule de rang 11; il devait donc la raffiner à nouveau!
 
@@ -96,7 +96,7 @@ Dans la grotte au fourneau, Wang Lin réfléchit et une étincelle brilla dans s
 
 Sortant une pilule de rang 11, Wang Lin la plaça à l'intérieur du fourneau. Sa main droite tapota le vide, faisant jaillir les flammes pour raffiner la pilule.
 
-Le double raffinage était une méthode d'alchimie que tous les cultivateurs de la Mer des Nuages devaient maîtriser. Il s'agissait de raffiner une pilule de niveau supérieur afin d'en diviser la puissance. Cette technique dépendait étroitement du fourneau: plus celui-ci était performant, moins l'efficacité était perdue.
+Le double raffinage était une méthode d'alchimie que tous les cultivateurs de la Mer Yun devaient maîtriser. Il s'agissait de raffiner une pilule de niveau supérieur afin d'en diviser la puissance. Cette technique dépendait étroitement du fourneau: plus celui-ci était performant, moins l'efficacité était perdue.
 
 Pendant que Wang Lin raffinait la pilule, au plus profond du Royaume aux Sept Couleurs, bien au-delà de l'endroit où se trouvait Cang Songzi, s'étendait un lieu enveloppé d'un brouillard rendant toute vision impossible.
 
@@ -104,6 +104,6 @@ Un autel y était niché, drapé de brume. À cet instant, une lumière vive jai
 
 Une fissure de plus de dix pieds de long apparut silencieusement au-dessus de l'autel. D'innombrables éclairs jaillirent le long des bords de la faille, l'élargissant davantage, avant que trois personnes n'en sortent!
 
-Les vêtements de ces individus étaient manifestement différents de ceux portés par les habitants de la Mer des Nuages. Plus étrange encore, ils portaient tous une marque entre les sourcils. L'homme en tête présentait un éclair entre les sourcils. Quant aux deux qui le suivaient, l'un était un jeune homme marqué d'un croissant de lune, et le dernier portait une marque de flamme.
+Les vêtements de ces individus étaient manifestement différents de ceux portés par les habitants de la Mer Yun. Plus étrange encore, ils portaient tous une marque entre les sourcils. L'homme en tête présentait un éclair entre les sourcils. Quant aux deux qui le suivaient, l'un était un jeune homme marqué d'un croissant de lune, et le dernier portait une marque de flamme.
 
 « Est-ce ici la fissure spatiale que vous avez découverte? » Le jeune homme au croissant de lune entre les sourcils regarda autour de lui, l'excitation brillant dans ses yeux.

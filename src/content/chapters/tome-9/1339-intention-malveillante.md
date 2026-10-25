@@ -20,7 +20,7 @@ Il cracha une énorme bouffée de sang mêlée à des fragments d'organes intern
 
 Tous les dangers affrontés au cours de sa vie ne pouvaient se comparer à ce qui lui tombait dessus aujourd'hui. Il était piégé dans ce passage où, peu importe qui il appelait à l'aide, personne ne répondrait, et sa mort était certaine!
 
-À cet instant, un regret infini le submergea. S'il n'avait pas provoqué cette personne au Temple du Cristal de Tonnerre, cela ne serait jamais arrivé! Hélas, ce regret était bien trop tardif!
+À cet instant, un regret infini le submergea. S'il n'avait pas provoqué cette personne au Temple Lei Jing, cela ne serait jamais arrivé! Hélas, ce regret était bien trop tardif!
 
 Le sortilège de Wang Lin pénétra ses yeux et frappa le Maître Zhou Tian. Son regard fut le déclencheur qui provoqua l'effondrement de tout le tonnerre que le Maître Zhou Tian avait cultivé durant plusieurs milliers d'années!
 
@@ -42,9 +42,9 @@ Une force de tonnerre émanant de son âme originelle fut absorbée par Wang Lin
 
 Un laps de temps extrêmement court s'était écoulé depuis qu'il avait attaqué et écrasé l'âme originelle du Maître Zhou Tian!
 
-Après avoir tué le Maître Zhou Tian comme on écrase une fourmi, il se précipita en avant, brisant toutes les barrières sur son passage. Il franchit la sortie et pénétra dans un lieu crucial pour le Clan du Tonnerre Dispersé: les 7 Millions de Mondes!
+Après avoir tué le Maître Zhou Tian comme on écrase une fourmi, il se précipita en avant, brisant toutes les barrières sur son passage. Il franchit la sortie et pénétra dans un lieu crucial pour le Clan Shan Lei: les 7 Millions de Mondes!
 
-Depuis la création des 7 Millions de Mondes, hormis les mystérieux cultivateurs ayant aidé l'ancêtre du troisième pas du Clan du Tonnerre Dispersé à les façonner, aucun étranger n'y était jamais entré!
+Depuis la création des 7 Millions de Mondes, hormis les mystérieux cultivateurs ayant aidé l'ancêtre du troisième pas du Clan Shan Lei à les façonner, aucun étranger n'y était jamais entré!
 
 Wang Lin serait le premier après ces êtres mystérieux!
 
@@ -86,7 +86,7 @@ Ce qui choqua encore plus Wang Lin était l'indescriptible volonté émanant de 
 
 Wang Lin prit une profonde inspiration.
 
-« C'est une trace de Tonnerre Spirituel... Le jade mentionne que chaque fois qu'un nouveau cultivateur entre, le Clan du Tonnerre Dispersé lui en remet un, afin qu'il puisse collecter ici le Tonnerre Spirituel. »
+« C'est une trace de Tonnerre Spirituel... Le jade mentionne que chaque fois qu'un nouveau cultivateur entre, le Clan Shan Lei lui en remet un, afin qu'il puisse collecter ici le Tonnerre Spirituel. »
 
 Ce n'était qu'une simple trace de Tonnerre Spirituel, et elle était incomplète. Il faudrait mille éclats pour former un Tonnerre Spirituel complet. Cette mesure visait à empêcher les membres du clan de s'arracher mutuellement ces éclats en abusant des règles du clan.
 

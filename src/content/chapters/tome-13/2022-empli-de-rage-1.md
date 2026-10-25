@@ -16,7 +16,7 @@ Son tempérament était serein. Tel un lys dans une vallée déserte, qui s'épa
 
 Alors que Wang Lin se tenait là, l'irritation qui lui nouait le cœur disparut dès l'apparition de la femme, comme si elle n'avait jamais existé.
 
-« Song Zhi... » Wang Lin reconnut immédiatement cette femme. Il se souvenait l'avoir vue pour la première fois aux abords de la Ville de la Pierre Noire.
+« Song Zhi... » Wang Lin reconnut immédiatement cette femme. Il se souvenait l'avoir vue pour la première fois aux abords de la Ville Hei Shi.
 
 L'Empereur Dao Antique afficha un soupçon de joie. Tandis que la femme s'approchait, il fit un geste de sa manche et prit la parole:
 

@@ -12,7 +12,7 @@ Ce genre de situation n'était pas rare dans les sectes à travers le Continent 
 
 Une fois que ce genre de personne entrait sur le champ de bataille, elle révélait sa véritable nature. Le vieil homme nommé Zhou méprisait ces individus. Bien que son expression ne le montre pas, ses paroles froides le trahissaient.
 
-« Je n'ai vu aucun mérite de sa part lors des combats précédents, mais si l'Ancien Lu lui a confié une mission de patrouille, il doit y avoir une raison plus profonde... Je crains que cette personne ne soit tellement détestée au sein de la Secte de la Grande Âme que même quelqu'un d'aussi influent que l'Ancien Lu ne puisse le supporter. » Le vieil homme nommé Zhou songea à cela en se tenant devant la porte de Wang Lin.
+« Je n'ai vu aucun mérite de sa part lors des combats précédents, mais si l'Ancien Lu lui a confié une mission de patrouille, il doit y avoir une raison plus profonde... Je crains que cette personne ne soit tellement détestée au sein de la Secte Da Hun que même quelqu'un d'aussi influent que l'Ancien Lu ne puisse le supporter. » Le vieil homme nommé Zhou songea à cela en se tenant devant la porte de Wang Lin.
 
 Il était doué pour analyser les situations. Ce Wang Lin était exclu des palais et avait été contraint de choisir une grotte pour y résider. Cela révélait bien des problèmes.
 
@@ -60,7 +60,7 @@ Au moment où Wang Lin tourna la tête, Lu Wenran sembla percevoir quelque chose
 
 Le vieil homme nommé Zhou n'osait plus respirer. Bien que la pression se fût dissipée, le sentiment de terreur restait gravé en lui.
 
-« Cette personne n'a certainement pas utilisé ses relations pour devenir un Ancien de la Secte de la Grande Âme! Sa culture... est tout simplement terrifiante! » Le vieil homme était pâle. Quand Wang Lin l'avait regardé, c'était comme si une épée faite d'intention meurtrière lui avait été pointée sur le front. C'était une vision qu'il n'oublierait jamais.
+« Cette personne n'a certainement pas utilisé ses relations pour devenir un Ancien de la Secte Da Hun! Sa culture... est tout simplement terrifiante! » Le vieil homme était pâle. Quand Wang Lin l'avait regardé, c'était comme si une épée faite d'intention meurtrière lui avait été pointée sur le front. C'était une vision qu'il n'oublierait jamais.
 
 Il fut envahi par un regret infini. Il n'aurait jamais dû écouter les paroles de Lu Wenran et provoquer un être aussi redoutable.
 
@@ -94,7 +94,7 @@ En marchant sur la prairie, Wang Lin songea à Li Muwan. Ses yeux se remplirent 
 
 En effleurant sa main droite, il sentit sa chaleur. C'était comme s'il pouvait ressentir la présence de Li Muwan.
 
-Plus de deux mille ans, mais moins de trois mille ans. C'était long, et pourtant si court. Comme l'herbe de cette Prairie de l'Extrême Ciel, qui se renouvelle de génération en génération et couvre toute la plaine, tandis que le vent, lui, reste immuable depuis des temps immémoriaux et souffle encore et encore.
+Plus de deux mille ans, mais moins de trois mille ans. C'était long, et pourtant si court. Comme l'herbe de cette Prairie Ji Tian, qui se renouvelle de génération en génération et couvre toute la plaine, tandis que le vent, lui, reste immuable depuis des temps immémoriaux et souffle encore et encore.
 
 Un soupir résonna. Wang Lin marchait sur la prairie de ce continent étranger. Peut-être parce que ses blessures n'étaient pas encore guéries, une pointe de solitude pesait sur son cœur.
 

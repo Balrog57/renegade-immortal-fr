@@ -60,7 +60,7 @@ L'homme costaud, les yeux emplis d'une intention meurtrière, s'apprêtait à po
 
 « Un cultivateur du Feu Éthéré!!! Maudit soit-il!! » Le visage de l'homme pâlit instantanément et il cracha du sang, les yeux écarquillés par le choc!
 
-La jeune fille sur son épaule fronça les sourcils en observant Wang Lin qui s'éloignait. Elle leva la main vers son front et murmura doucement: « En tant que descendante du Clan de l'Extermination des Sceaux, j'invoque le sceau de mon clan pour entraver sa retraite... »
+La jeune fille sur son épaule fronça les sourcils en observant Wang Lin qui s'éloignait. Elle leva la main vers son front et murmura doucement: « En tant que descendante du Clan Feng Mie, j'invoque le sceau de mon clan pour entraver sa retraite... »
 
 À peine eut-elle prononcé ces mots que les yeux de Wang Lin s'illuminèrent. Au cœur de l'onde de choc causée par l'effondrement des six planètes, une lumière sanglante monstrueuse jaillit!
 
@@ -86,7 +86,7 @@ Ce qu'il craignait n'était pas la culture de Wang Lin, mais ces trésors infini
 
 Il ignorait que la véritable raison pour laquelle Wang Lin avait ciblé la jeune fille était surtout qu'il avait reconnu la marque entre ses sourcils. Le pouvoir et la terreur que représentait cette marque avaient laissé une empreinte indélébile dans l'esprit de Wang Lin!
 
-Le Clan de l'Extermination des Sceaux! L'une des races rares du Système Stellaire Antique, dont les membres sont extrêmement peu nombreux! Avec cette femme, tous les sorts de Wang Lin auraient pu être scellés. Et une fois scellés, les conséquences auraient été imprévisibles!
+Le Clan Feng Mie! L'une des races rares du Système Stellaire Antique, dont les membres sont extrêmement peu nombreux! Avec cette femme, tous les sorts de Wang Lin auraient pu être scellés. Et une fois scellés, les conséquences auraient été imprévisibles!
 
 Du point de vue de Wang Lin, bien que son niveau de culture ne fût pas élevé, le danger qu'elle représentait n'était en rien inférieur à celui de cet homme du Vide du Nirvana!
 
@@ -98,9 +98,9 @@ La jeune fille leva un doigt, essuya le sang sur la marque de son front et le po
 
 « Des calculs et des ruses effrayants... Il avait depuis longtemps prévu la route que nous emprunterions pour le traquer. Il a d'abord placé des restrictions sur les planètes de culture pour les faire exploser lorsque nous nous approcherions. Tandis que nous étions distraits par l'explosion, nous n'avons pas remarqué l'épée volante cachée... C'était là son véritable objectif... » Les yeux de la jeune fille brillèrent.
 
-« Il sait probablement que je suis du Clan de l'Extermination des Sceaux... Tout ce piège a été tendu... juste pour me tuer!! » La jeune fille esquissa un sourire, mais il trahissait une peur qu'elle ne pouvait masquer.
+« Il sait probablement que je suis du Clan Feng Mie... Tout ce piège a été tendu... juste pour me tuer!! » La jeune fille esquissa un sourire, mais il trahissait une peur qu'elle ne pouvait masquer.
 
-« Quelle ruse profonde. Une fois qu'il nous a identifiés comme ennemis, il s'est montré décisif et impitoyable. On ne provoque pas facilement ce genre d'individu... Nous avons sous-estimé sa force... Même Maître l'a sous-estimée... Si mon Clan de l'Extermination des Sceaux ne possédait pas la vie aux Trois Âmes, je serais... morte. » La jeune fille serra les dents. Bien qu'elle paraisse calme, elle était habitée par la peur. En un instant, sans même avoir le temps de réfléchir, elle avait déjà passé la mort.
+« Quelle ruse profonde. Une fois qu'il nous a identifiés comme ennemis, il s'est montré décisif et impitoyable. On ne provoque pas facilement ce genre d'individu... Nous avons sous-estimé sa force... Même Maître l'a sous-estimée... Si mon Clan Feng Mie ne possédait pas la vie aux Trois Âmes, je serais... morte. » La jeune fille serra les dents. Bien qu'elle paraisse calme, elle était habitée par la peur. En un instant, sans même avoir le temps de réfléchir, elle avait déjà passé la mort.
 
 C'était la première fois qu'elle vivait une telle expérience!
 

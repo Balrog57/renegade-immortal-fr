@@ -20,7 +20,7 @@ La confusion dans le regard de Wang Lin se dissipa progressivement pour laisser 
 
 « Je me demande quels seront les choix des autres... » Wang Lin regarda au loin, poussa un soupir et poursuivit sa route.
 
-Dans les terres du Clan Céleste, au Continent du Nord, au cœur d'une chaîne de montagnes. La forêt y était dense et extrêmement périlleuse; en contrebas, une route officielle serpentait comme un mince ruban de ciel.
+Dans les terres du Clan Céleste, au Continent Bei, au cœur d'une chaîne de montagnes. La forêt y était dense et extrêmement périlleuse; en contrebas, une route officielle serpentait comme un mince ruban de ciel.
 
 Une grotte se trouvait là, isolée, sans âme autour, hormis les oiseaux et les bêtes. Pourtant, depuis qu'elle était apparue des années auparavant, aucune créature n'avait osé s'en approcher.
 
@@ -56,7 +56,7 @@ Longtemps après, la brume se dissipa et Grosse Tête sortit, l'expression compl
 
 « Maître... » Il vit l'épée qui l'avait terrifié et la calebasse remplie de pilules. Des larmes coulèrent sur ses joues.
 
-Toujours dans le Continent du Nord, mais sur une autre terre. Plusieurs dizaines de traînées lumineuses fendaient le ciel lorsqu'un éclat cristallin passa en trombe. Les cultivateurs furent pris au dépourvu par cette lumière qui disparut entre eux.
+Toujours dans le Continent Bei, mais sur une autre terre. Plusieurs dizaines de traînées lumineuses fendaient le ciel lorsqu'un éclat cristallin passa en trombe. Les cultivateurs furent pris au dépourvu par cette lumière qui disparut entre eux.
 
 Personne ne remarqua qu'au moment où l'éclat s'effaça, il pénétra entre les sourcils d'un garçon vêtu d'une robe rouge, au sein du groupe.
 
@@ -86,7 +86,7 @@ Après son départ, Shen Bao resta debout devant le hall, fixant le ciel d'un re
 
 Durant cette période, Wang Lin avait revu presque tous ses anciens amis du monde des grottes. Il avait débloqué les souvenirs de certains et, pour d'autres, il leur avait laissé le pouvoir de décider de leur propre destin.
 
-Quoi qu'il advienne, Wang Lin laissait toujours derrière lui de quoi les protéger, car ils venaient du même monde des grottes. Plus précisément, ils appartenaient tous à la Secte des Sept Dao.
+Quoi qu'il advienne, Wang Lin laissait toujours derrière lui de quoi les protéger, car ils venaient du même monde des grottes. Plus précisément, ils appartenaient tous à la Secte Qi Dao.
 
 La Secte Soleil et Lune était la plus puissante du continent Tian Fang. Elle comptait plus de 100 000 membres et figurait parmi les neuf sectes et treize factions du Continent de l'Est.
 

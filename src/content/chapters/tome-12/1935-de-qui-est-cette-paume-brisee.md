@@ -8,19 +8,19 @@ slug: de-qui-est-cette-paume-brisee
 ---
 « Une secte… » Wang Lin sortit de sa culture, le regard empli de souvenirs.
 
-Après un long moment, il dit calmement: « Je viens de la Secte des Sept Dao. »
+Après un long moment, il dit calmement: « Je viens de la Secte Qi Dao. »
 
-« La Secte des Sept Dao? » L'Exalté Empyréen Hai Zi réfléchit un instant. En parcourant le souvenir de toutes les puissantes sectes qu’elle connaissait, aucune ne portait ce nom.
+« La Secte Qi Dao? » L'Exalté Empyréen Hai Zi réfléchit un instant. En parcourant le souvenir de toutes les puissantes sectes qu’elle connaissait, aucune ne portait ce nom.
 
-« Continent de l'Est, Secte des Sept Dao, une toute petite secte… » Wang Lin soupira. Le fait que quelqu'un l'interroge sur son origine lui avait rendu le mal du pays.
+« Continent de l'Est, Secte Qi Dao, une toute petite secte… » Wang Lin soupira. Le fait que quelqu'un l'interroge sur son origine lui avait rendu le mal du pays.
 
-L'Exalté Empyréen dit doucement: « Je n'ai pas de secte. J'ai suivi mon Maître depuis mon enfance. J'ai grandi sur le Mont de l'Empereur. »
+L'Exalté Empyréen dit doucement: « Je n'ai pas de secte. J'ai suivi mon Maître depuis mon enfance. J'ai grandi sur le Mont Di. »
 
-« Le Mont de l'Empereur est magnifique. En cette saison, elle est couverte de feuilles rouges, comme si elle était en flammes… Si tu en as l'occasion, tu devrais aller la voir. »
+« Le Mont Di est magnifique. En cette saison, elle est couverte de feuilles rouges, comme si elle était en flammes… Si tu en as l'occasion, tu devrais aller la voir. »
 
 Alors qu'ils discutaient, une atmosphère particulière imprégna cette zone de mille pieds.
 
-« Avec ta puissance de combat d'Exalté Empyréen, je présume que le Grand Empyréen Dao Yi du Continent du Sud a tenté de te recruter… As-tu accepté? » Le magnifique regard de l'Exalté Empyréen Hai Zi se posa sur Wang Lin.
+« Avec ta puissance de combat d'Exalté Empyréen, je présume que le Grand Empyréen Dao Yi du Continent Nan a tenté de te recruter… As-tu accepté? » Le magnifique regard de l'Exalté Empyréen Hai Zi se posa sur Wang Lin.
 
 « Non. » Wang Lin secoua la tête.
 

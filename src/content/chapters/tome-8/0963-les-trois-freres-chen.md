@@ -16,13 +16,13 @@ Bai Wei ne sembla pas remarquer que le sens divin de Wang Lin l'avait balayé, e
 
 « Vous n'étiez pas là depuis longtemps. Dans quelques mois, la météo sur la planète Tian Yun changera. Ce passage brusque entre les cieux couverts et le soleil radieux est considéré comme un spectacle unique de cette planète.
 
-Pendant ces centaines d'années, la Secte du Destin Céleste est restée calme; il ne s'est pas passé grand-chose. Si l'on devait retenir un événement, ce serait celui d'un Bois Yang Blanc, planté je ne sais par qui dans la montagne à l'arrière et dont on disait qu'il ne fleurirait jamais. Pourtant, il a fleuri. Cependant, la fleur n'était pas blanche, mais noire. Elle n'a duré que trois respirations avant de mourir et de se changer en brume... Cela a surpris beaucoup de gens à l'époque. J'étais là aussi; je me disais que ce serait merveilleux si j'avais pu sauver une fleur. »
+Pendant ces centaines d'années, la Secte Tian Yun est restée calme; il ne s'est pas passé grand-chose. Si l'on devait retenir un événement, ce serait celui d'un Bois Yang Blanc, planté je ne sais par qui dans la montagne à l'arrière et dont on disait qu'il ne fleurirait jamais. Pourtant, il a fleuri. Cependant, la fleur n'était pas blanche, mais noire. Elle n'a duré que trois respirations avant de mourir et de se changer en brume... Cela a surpris beaucoup de gens à l'époque. J'étais là aussi; je me disais que ce serait merveilleux si j'avais pu sauver une fleur. »
 
 « Rien de suspect... » Wang Lin fronça les sourcils, mais ce léger pressentiment le tourmentait. Son expression resta toutefois neutre tandis qu'il suivait la conversation de Bai Wei.
 
 « Après votre départ, Maître a passé la majeure partie de son temps en culture en porte fermée et est rarement sorti, se tenant à l'écart des affaires du monde... »
 
-Souriant, Bai Wei racontait à Wang Lin chaque incident survenu à la Secte du Destin Céleste. Au début, Wang Lin écoutait avec attention, mais il finit par froncer les sourcils. Rien de ce que Bai Wei narrait n'était important; il ne s'agissait que de banalités insignifiantes.
+Souriant, Bai Wei racontait à Wang Lin chaque incident survenu à la Secte Tian Yun. Au début, Wang Lin écoutait avec attention, mais il finit par froncer les sourcils. Rien de ce que Bai Wei narrait n'était important; il ne s'agissait que de banalités insignifiantes.
 
 Bai Wei reprit avec un sourire: « Il y a aussi la Cité aux Yeux Fantômes. Cette ville est devenue célèbre il y a de nombreuses années après avoir réussi à mettre aux enchères un sortilège céleste complet. Chaque fois qu'elle s'ouvre, elle attire une multitude de cultivateurs. Elle reste ouverte pendant un mois et, en dehors de la salle des ventes, les gens sont libres de commercer. Cependant, la Cité aux Yeux Fantômes n'est pas très vaste et le nombre de logements est limité. Si nous arrivons tard, je crains que nous ne devions camper. »
 
@@ -66,7 +66,7 @@ Deux des trois sens divins se situaient au début du stade Scruteur du Nirvana. 
 
 Les sorts de Wang Lin étaient tous contenus dans son corps, et son sens divin n'avait pas encore atteint le milieu du stade Scruteur du Nirvana; il ne pouvait donc rivaliser avec eux sur ce terrain.
 
-« Je suis Wang Lin, de la Secte du Destin Céleste. J'espère que vous me pardonnerez. » Wang Lin, ayant été le premier à manquer de politesse, ne ressentit aucune colère.
+« Je suis Wang Lin, de la Secte Tian Yun. J'espère que vous me pardonnerez. » Wang Lin, ayant été le premier à manquer de politesse, ne ressentit aucune colère.
 
 « Votre sens divin a fait preuve d'imprudence et s'est fait piéger par moi, et pourtant vous demandez pardon? Quelle étrange logique! Aujourd'hui, nous trois ne serons pas cruels envers vous. Venez personnellement présenter vos excuses et partez immédiatement. Si vous osez remettre les pieds dans la Cité aux Yeux Fantômes, ne nous reprochez pas de manquer de clémence! » À côté de Maître Yi Chen, un sens divin lugubre apparut.
 
@@ -86,9 +86,9 @@ L'individu face à lui ne leur témoignait manifestement aucun respect. À quoi 
 
 « De plus, si nous ne punissons pas sévèrement cet individu, nous n'aurons aucun moment de paix avant le début des enchères. Pour effrayer ceux qui oseraient observer avec leur sens divin, nous devons faire preuve de fermeté. »
 
-« Je vous donne trois respirations pour réfléchir! » lança doucement Maître Yi Chen. Il serait trop facile pour eux de s'occuper d'un cultivateur au début du stade Scruteur du Nirvana! Même si cet homme venait réellement de la Secte du Destin Céleste, ils ne croyaient pas que Tian Yunzi s'abaisserait à leur chercher des ennuis. De plus, ils n'avaient pas l'intention de tuer. Puisqu'ils lui avaient offert une chance, même s'ils détruisaient son sens divin, personne ne pourrait rien leur reprocher.
+« Je vous donne trois respirations pour réfléchir! » lança doucement Maître Yi Chen. Il serait trop facile pour eux de s'occuper d'un cultivateur au début du stade Scruteur du Nirvana! Même si cet homme venait réellement de la Secte Tian Yun, ils ne croyaient pas que Tian Yunzi s'abaisserait à leur chercher des ennuis. De plus, ils n'avaient pas l'intention de tuer. Puisqu'ils lui avaient offert une chance, même s'ils détruisaient son sens divin, personne ne pourrait rien leur reprocher.
 
-S'il s'était agi d'un membre de la Secte de l'Épée Da Luo, Maître Yi Chen aurait pensé différemment. Après tout, le Saint de l'Épée, Ling Tianhou, était célèbre pour protéger les siens.
+S'il s'était agi d'un membre de la Secte Da Luo Jian, Maître Yi Chen aurait pensé différemment. Après tout, le Saint de l'Épée, Ling Tianhou, était célèbre pour protéger les siens.
 
 Trois respirations passèrent en un instant. Maître Yi Chen poussa un reniflement froid et le dragon de sens divin formé par les trois rugit, gueule grande ouverte, face au sens divin de Wang Lin. Ils s'apprêtaient à l'anéantir.
 

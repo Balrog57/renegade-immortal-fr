@@ -8,7 +8,7 @@ slug: li-muwan
 ---
 Je ne peux échapper au cycle de la vie et de la mort, et le temps n'attend pas. Quand viendras-tu me chercher...
 
-Dans ma main gauche se trouve l'éphémère karma de la Mer des Démons, et dans ma main droite, plus de cent ans de solitude.
+Dans ma main gauche se trouve l'éphémère karma de la Mer Xiu Mo, et dans ma main droite, plus de cent ans de solitude.
 
 Li Muwan était tranquillement allongée sur son lit, vêtue d'une robe blanche. Bien que son visage ait vieilli, ses yeux étaient toujours aussi brillants tandis qu'elle fixait l'homme devant elle...
 
@@ -52,7 +52,7 @@ La poussière de sa vie passée et la terre de cette vie se mêlaient à un chag
 
 Il avait emprunté le chemin qui défie les cieux et avait cultivé le domaine de la vie et de la mort. Sa vie fut faite de tourments, et bien que son cœur fût las, il continuait de croire. Pourtant, en cet instant, même si son expression restait immuable, son cœur vieillissait au rythme de la jeune fille devant lui.
 
-À ses yeux, l'âge de cette femme n'était qu'une illusion. À ses yeux, elle resterait à jamais telle qu'elle était dans la Mer des Démons, lorsqu'elle jouait de la cithare dans son pavillon de Chu, lorsqu'elle se tenait là à le regarder partir.
+À ses yeux, l'âge de cette femme n'était qu'une illusion. À ses yeux, elle resterait à jamais telle qu'elle était dans la Mer Xiu Mo, lorsqu'elle jouait de la cithare dans son pavillon de Chu, lorsqu'elle se tenait là à le regarder partir.
 
 Wang Lin effleura doucement le visage de Li Muwan et glissa lentement la pilule dans sa bouche. La pilule fondit instantanément, et le visage de la jeune femme devint rouge.
 
@@ -62,7 +62,7 @@ La demeure de pierre ne put supporter cette puissante énergie spirituelle; des 
 
 Lu Fei et Tie Yan furent tirés de leur culture. Leurs expressions changèrent instantanément. À cet instant, le corps d'Ouyang Zi fut repoussé par une force douce et déposé devant eux.
 
-La voix de Wang Lin parvint jusqu'à eux: « Prenez Ouyang Zi et attendez-moi dans la Secte du Ciel Nuageux! »
+La voix de Wang Lin parvint jusqu'à eux: « Prenez Ouyang Zi et attendez-moi dans la Secte Yun Tian! »
 
 Tie Yan ne dit mot. Il saisit rapidement Ouyang Zi et partit avec Lu Fei. Ce n'est que lorsqu'ils furent à plus de cinquante kilomètres qu'ils se retournèrent pour regarder en arrière.
 

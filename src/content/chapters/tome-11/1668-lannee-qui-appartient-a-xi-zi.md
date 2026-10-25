@@ -42,7 +42,7 @@ Les sorts de ces deux individus étaient terrifiants, et ils ne pouvaient être 
 
 Monter la garde pendant trois ans, les trois années les plus difficiles.
 
-Après un temps indéfini, trois rayons de lumière apparurent vaguement dans la Mer des Nuages, qui s'était considérablement étendue. Ils se transformèrent en silhouettes de trois femmes. Elles se trouvaient à moins de mille pieds de Wang Lin et flottaient là, contemplant son dos.
+Après un temps indéfini, trois rayons de lumière apparurent vaguement dans la Mer Yun, qui s'était considérablement étendue. Ils se transformèrent en silhouettes de trois femmes. Elles se trouvaient à moins de mille pieds de Wang Lin et flottaient là, contemplant son dos.
 
 Cette silhouette était austère et dégageait une immense solitude. Pourtant, elle imposait aussi la présence d'une montagne: il était comme un mont protecteur veillant sur le Royaume Intérieur.
 

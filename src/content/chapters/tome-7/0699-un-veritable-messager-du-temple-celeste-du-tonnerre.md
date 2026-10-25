@@ -34,7 +34,7 @@ Assis dans sa chambre, il fixait la lune avec une douleur profonde dans les yeux
 
 Le lendemain matin, Wang Ping partit, et Qing Yi le suivit de nouveau.
 
-Du début à la fin, il n'adressa pas un mot à son père et ne daigna même pas le regarder. Son départ se fit tôt à l'aube. Il resta silencieusement assis dans la charrette et s'éloigna de la Ville des Vastes Eaux.
+Du début à la fin, il n'adressa pas un mot à son père et ne daigna même pas le regarder. Son départ se fit tôt à l'aube. Il resta silencieusement assis dans la charrette et s'éloigna de la Ville Qi Shui.
 
 Il ne remarqua pas que, lors de son départ, un regard suivait discrètement la charrette depuis la distance. Un regard empreint de vicissitudes...
 

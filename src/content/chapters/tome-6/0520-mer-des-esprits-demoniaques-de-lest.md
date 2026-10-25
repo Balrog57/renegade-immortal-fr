@@ -1,6 +1,6 @@
 ---
 n: 520
-title: "Mer des Esprits Démoniaques de l'Est"
+title: "Mer Yao Ling"
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 520 - East Demon Spirit Sea
@@ -14,7 +14,7 @@ Des vagues de lumière verte et rouge jaillirent de l'ouverture, accompagnées d
 
 Cette brèche semblait mener au néant, mais en y regardant de plus près, on pouvait percevoir une profondeur insondable en son sein!
 
-« La porte de la Mer des Esprits Démoniaques de l'Est est désormais ouverte. Quiconque souhaite entrer, qu'il le fasse sans tarder! » Bien que le Saint de l'Épée Ling Tianhou n'ait prononcé que quelques mots, ils étaient empreints d'une intention meurtrière.
+« La porte de la Mer Yao Ling est désormais ouverte. Quiconque souhaite entrer, qu'il le fasse sans tarder! » Bien que le Saint de l'Épée Ling Tianhou n'ait prononcé que quelques mots, ils étaient empreints d'une intention meurtrière.
 
 Aussitôt ses paroles achevées, les Douze Épées se transformèrent en douze rayons de lumière tranchante et chargèrent directement vers l'entrée.
 
@@ -22,9 +22,9 @@ Les douze personnes s'engouffrèrent dans l'ouverture et, alors que le dernier f
 
 « Voici un rayon d'énergie d'épée de ma part, utilisez-le comme sort de survie pour vous douze! » Au moment où Ling Tianhou prononça ces mots, le rayon d'énergie fut respectueusement reçu par le dernier disciple. Ce dernier s'inclina devant le Saint de l'Épée, puis pénétra à son tour.
 
-Tan Lang avait déjà disparu. Son ombre s'était transformée en ce dernier rayon d'énergie d'épée et avait disparu dans la porte de la Mer des Esprits Démoniaques de l'Est aux côtés des Douze Épées.
+Tan Lang avait déjà disparu. Son ombre s'était transformée en ce dernier rayon d'énergie d'épée et avait disparu dans la porte de la Mer Yao Ling aux côtés des Douze Épées.
 
-Le regard de Tian Yunzi restait calme; il lança un regard éloquent à Ling Tianhou et déclara: « Disciples de la Secte du Destin Céleste, entrez! »
+Le regard de Tian Yunzi restait calme; il lança un regard éloquent à Ling Tianhou et déclara: « Disciples de la Secte Tian Yun, entrez! »
 
 Aux côtés de Wang Lin, les neuf autres répondirent d'une même voix. Ils se levèrent immédiatement et s'envolèrent vers l'entrée.
 
@@ -40,7 +40,7 @@ Une heure plus tard, le Saint de l'Épée Ling Tianhou agita la main et les quat
 
 Alors que les quatre épées disparaissaient, une immense quantité de lumière verte et rouge s'échappa de l'ouverture. En un clin d'œil, la brèche disparut sans laisser de trace.
 
-La plupart des cultivateurs environnants s'étaient déjà dispersés, et même ceux qui n'étaient pas encore partis commencèrent à s'éloigner lentement. Bientôt, il ne restait qu'une poignée de cultivateurs aux abords de la Mer des Esprits Démoniaques de l'Est.
+La plupart des cultivateurs environnants s'étaient déjà dispersés, et même ceux qui n'étaient pas encore partis commencèrent à s'éloigner lentement. Bientôt, il ne restait qu'une poignée de cultivateurs aux abords de la Mer Yao Ling.
 
 Tous ces individus étaient des vieux monstres célèbres dotés de hauts niveaux de culture. Ils se connaissaient tous, et la seule raison pour laquelle ils n'étaient pas partis était l'objet aperçu dans ce dernier rayon de lumière rouge.
 
@@ -48,21 +48,21 @@ Cette affaire touchait à un grand secret de la planète Tian Yun. Un silence pe
 
 Les yeux du Saint de l'Épée Ling Tianhou se plissèrent tandis qu'il fixait Tian Yunzi et s'écria: « Tian Yunzi, l'objet dans ce dernier rayon de lumière rouge était un jeton! »
 
-Tian Yunzi garda son calme. Il regarda le Saint de l'Épée, puis ses vieux compagnons environnants, avant d'esquisser un léger sourire: « C'est exact. C'est un jeton, et c'est le troisième! Je ne pensais pas que l'ouverture de la Mer des Esprits Démoniaques de l'Est apporterait le jeton que nous attendions tous. Maintenant qu'il se trouve à l'intérieur, nous n'avons plus à nous inquiéter. La Mer des Esprits Démoniaques de l'Est ne s'ouvre que tous les 5 000 ans, et les disciples y effectuent leurs épreuves pendant 500 ans. Par conséquent, nous nous retrouverons ici dans 200 ans pour y pénétrer à nouveau. Je présume que chacun est au courant des événements passés, j'espère donc que vous serez prêts. Je pense que 200 ans suffiront amplement à tout le monde pour se préparer pleinement! »
+Tian Yunzi garda son calme. Il regarda le Saint de l'Épée, puis ses vieux compagnons environnants, avant d'esquisser un léger sourire: « C'est exact. C'est un jeton, et c'est le troisième! Je ne pensais pas que l'ouverture de la Mer Yao Ling apporterait le jeton que nous attendions tous. Maintenant qu'il se trouve à l'intérieur, nous n'avons plus à nous inquiéter. La Mer Yao Ling ne s'ouvre que tous les 5 000 ans, et les disciples y effectuent leurs épreuves pendant 500 ans. Par conséquent, nous nous retrouverons ici dans 200 ans pour y pénétrer à nouveau. Je présume que chacun est au courant des événements passés, j'espère donc que vous serez prêts. Je pense que 200 ans suffiront amplement à tout le monde pour se préparer pleinement! »
 
 Une fois son discours achevé, Tian Yunzi joignit les mains en signe de salut envers l'assemblée, puis, d'un revers de manche, il fit un pas dans le vide. Son corps disparut lentement dans le néant.
 
-Le Saint de l'Épée Ling Tianhou laissa échapper un grognement. Il se retourna pour lancer un dernier regard significatif à la Mer des Esprits Démoniaques de l'Est avant de s'élancer sur un rayon d'énergie d'épée et de disparaître.
+Le Saint de l'Épée Ling Tianhou laissa échapper un grognement. Il se retourna pour lancer un dernier regard significatif à la Mer Yao Ling avant de s'élancer sur un rayon d'énergie d'épée et de disparaître.
 
 Après leur départ, les vieux monstres restants furent emportés par diverses pensées; ils formèrent des groupes de trois ou cinq individus et s'en allèrent.
 
-La zone entourant la Mer des Esprits Démoniaques de l'Est retrouva son état de calme initial. La mer d'objets flottants se mouvait lentement, dégageant une aura mystérieuse. Les lueurs rouges et vertes continuaient de scintiller sous la surface.
+La zone entourant la Mer Yao Ling retrouva son état de calme initial. La mer d'objets flottants se mouvait lentement, dégageant une aura mystérieuse. Les lueurs rouges et vertes continuaient de scintiller sous la surface.
 
-Le Saint de l'Épée Ling Tianhou, transformé en un rayon d'énergie d'épée, fendit le vide. La demeure de la Secte de l'Épée Da Luo ne se trouvait ni sur la planète Tian Yun, ni sur l'une des cinq planètes qui l'orbitaient, mais sur une vaste planète que Ling Tianhou avait lui-même entraînée ici.
+Le Saint de l'Épée Ling Tianhou, transformé en un rayon d'énergie d'épée, fendit le vide. La demeure de la Secte Da Luo Jian ne se trouvait ni sur la planète Tian Yun, ni sur l'une des cinq planètes qui l'orbitaient, mais sur une vaste planète que Ling Tianhou avait lui-même entraînée ici.
 
 Bien que cette planète ne puisse rivaliser avec Tian Yun, elle était plusieurs fois plus grande que les cinq satellites de cette dernière. Elle possédait également une énergie spirituelle dense, idéale pour les cultivateurs.
 
-C'est lui qui y avait fondé la Secte de l'Épée Da Luo, et il avait aussi nommé cette planète Da Luo!
+C'est lui qui y avait fondé la Secte Da Luo Jian, et il avait aussi nommé cette planète Da Luo!
 
 Ling Tianhou se déplaçait à une vitesse fulgurante, traversant l'atmosphère de la planète pour rejoindre son lieu de culture solitaire situé dans sa partie orientale.
 
@@ -74,25 +74,25 @@ Quant à Tian Yunzi, dès son retour sur la planète Tian Yun, il entra dans la 
 
 Ses yeux brillèrent. Il examina attentivement les ossements et un léger sourire finit par se dessiner sur ses lèvres.
 
-À l'intérieur du portail menant à la Mer des Esprits Démoniaques de l'Est, c'était le chaos absolu. On aurait pu dire que cet endroit constituait un royaume à part entière!
+À l'intérieur du portail menant à la Mer Yao Ling, c'était le chaos absolu. On aurait pu dire que cet endroit constituait un royaume à part entière!
 
 Peut-être que certains savaient à quel point ce lieu était vaste, mais Wang Lin n'en faisait manifestement pas partie. Après avoir franchi la porte, il eut l'impression de traverser une masse aqueuse pour plonger dans les profondeurs d'un océan. Devant lui s'étendait un désert immense.
 
 Cet endroit possédait un ciel, une terre et même une mer, mais ce n'était pas une planète de culture.
 
-Il n'y avait personne autour de la position actuelle de Wang Lin; seule l'étendue infinie du désert l'entourait. Les neuf autres membres de la Secte du Destin Céleste avaient été dispersés lors de l'entrée dans le portail. À cet instant, il ignorait tout de leur sort.
+Il n'y avait personne autour de la position actuelle de Wang Lin; seule l'étendue infinie du désert l'entourait. Les neuf autres membres de la Secte Tian Yun avaient été dispersés lors de l'entrée dans le portail. À cet instant, il ignorait tout de leur sort.
 
-« Cette Mer des Esprits Démoniaques de l'Est est radicalement différente de tous les lieux que j'ai connus jusqu'ici. Cet endroit ressemble davantage au monde mortel qu'à une cachette de trésors. » Les yeux de Wang Lin s'illuminèrent, puis il déploya son Sens Divin et s'éleva dans le ciel.
+« Cette Mer Yao Ling est radicalement différente de tous les lieux que j'ai connus jusqu'ici. Cet endroit ressemble davantage au monde mortel qu'à une cachette de trésors. » Les yeux de Wang Lin s'illuminèrent, puis il déploya son Sens Divin et s'éleva dans le ciel.
 
-« Je suppose que les autres ont été séparés de moi par la porte, tout comme moi, et qu'ils devront survivre seuls dans la Mer des Esprits Démoniaques de l'Est... Sun Yunshan a dit un jour que le voyage durait 500 ans. Cela signifie que je vais devoir rester ici pendant 5 siècles... » Wang Lin resta calme tout en continuant de voler, plongé dans ses réflexions.
+« Je suppose que les autres ont été séparés de moi par la porte, tout comme moi, et qu'ils devront survivre seuls dans la Mer Yao Ling... Sun Yunshan a dit un jour que le voyage durait 500 ans. Cela signifie que je vais devoir rester ici pendant 5 siècles... » Wang Lin resta calme tout en continuant de voler, plongé dans ses réflexions.
 
 « 500 ans pour des mortels représentent plusieurs générations, mais pour un cultivateur, ce n'est qu'un battement de cils. Cependant, durant ces 500 ans, j'ai fort à faire... »
 
 « Je dois atteindre la maîtrise complète de l'Art du Massacre Céleste; c'est ma priorité absolue! De plus, même si Tuo Sen parvient à s'échapper de la planète Suzaku, il ne pourra jamais deviner que je suis ici, ce qui me donne 500 ans de répit supplémentaires... » Un léger sourire apparut sur le visage de Wang Lin.
 
-Plus tôt, en écoutant Sun Yunshan, il avait appris qu'une fois entré dans la Mer des Esprits Démoniaques de l'Est, on devait y rester 500 ans. Cette information l'avait convaincu de sa décision.
+Plus tôt, en écoutant Sun Yunshan, il avait appris qu'une fois entré dans la Mer Yao Ling, on devait y rester 500 ans. Cette information l'avait convaincu de sa décision.
 
-Il fallait admettre que l'homme que Wang Lin redoutait le plus était Tuo Sen, de la Terre de l'Ancien Dieu. Une fois libéré, la première chose que Tuo Sen ferait serait de traquer Wang Lin. Avec son niveau de culture actuel, il lui serait absolument impossible de l'affronter!
+Il fallait admettre que l'homme que Wang Lin redoutait le plus était Tuo Sen, de la Terre Gu Shen. Une fois libéré, la première chose que Tuo Sen ferait serait de traquer Wang Lin. Avec son niveau de culture actuel, il lui serait absolument impossible de l'affronter!
 
 C'était précisément pour cela qu'il cultivait l'Art du Massacre Céleste avec une telle acharnement: transformer sa force vitale en sceaux de vie. Sachant qu'il ne pourrait vaincre Tuo Sen, il devait acquérir un sortilège capable de lui sauver la vie!
 
@@ -102,6 +102,6 @@ Ce n'est qu'une fois l'Art du Massacre Céleste parvenu à sa pleine maîtrise e
 
 « Il y a aussi la question du senior Zhou Yi. C'est une autre raison de ma présence ici. Avec le domaine du senior Zhou Yi dans la pagode, il ne devrait pas être difficile de localiser l'endroit où le Saint de l'Épée l'a scellé. Si je parviens à le sauver, son aide alliée aux épées célestes me conférera une puissance d'attaque redoutable en très peu de temps! »
 
-« Enfin, il y a cette grande épée que j'ai aperçue à l'extérieur de la Mer des Esprits Démoniaques de l'Est. Elle était presque identique à la Richesse d'autrefois... » L'éclat dans les yeux de Wang Lin s'intensifia.
+« Enfin, il y a cette grande épée que j'ai aperçue à l'extérieur de la Mer Yao Ling. Elle était presque identique à la Richesse d'autrefois... » L'éclat dans les yeux de Wang Lin s'intensifia.
 
 « La Richesse renferme la technique de l'âme de l'épée. Si c'est véritablement elle, alors une fois cette épée retrouvée et la technique de l'âme de l'épée apprise, la puissance de l'épée céleste sera multipliée de plusieurs fois... »

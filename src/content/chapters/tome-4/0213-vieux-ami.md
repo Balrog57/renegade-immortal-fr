@@ -19,7 +19,7 @@ Quant à la jeune fille qui accompagnait Wang Lin, elle se retourna et son regar
 
 Une fois ces femmes parties, l'homme d'âge moyen toussa légèrement. Son regard balaya les jeunes gens, puis il se tourna vers la jeune fille avec un sourire: « Heureuse chance, petite. Tu n'as pas non plus besoin de passer le second examen. Plus tard, tu me suivras pour rencontrer le Chef de Secte. »
 
-Sur ces mots, il reprit son vol. À mesure qu'ils s'enfonçaient dans la Secte du Ciel Nuageux, des bêtes spirituelles apparurent progressivement sur le sol. On y voyait d'innombrables tigres, singes et ours. Ce n'étaient que des animaux ordinaires, mais au sein de la Secte du Ciel Nuageux, chacun d'eux était bien plus imposant et leur corps dégageait de vastes quantités d'énergie spirituelle, signe qu'ils possédaient tous une culture considérable.
+Sur ces mots, il reprit son vol. À mesure qu'ils s'enfonçaient dans la Secte Yun Tian, des bêtes spirituelles apparurent progressivement sur le sol. On y voyait d'innombrables tigres, singes et ours. Ce n'étaient que des animaux ordinaires, mais au sein de la Secte Yun Tian, chacun d'eux était bien plus imposant et leur corps dégageait de vastes quantités d'énergie spirituelle, signe qu'ils possédaient tous une culture considérable.
 
 Ces bêtes spirituelles étaient soit allongées tranquillement sur le sol, soit grimpaient avec agilité.
 
@@ -31,9 +31,9 @@ De l'intérieur comme de l'extérieur, le grand hall exhalait un parfum persista
 
 Au centre, un vieil homme aux cheveux blancs, vêtu d'une robe verte et les mains derrière le dos, sourit au groupe qui approchait.
 
-L'homme d'âge moyen qui guidait Wang Lin et les autres descendit lentement pour atterrir sur la place. Il fit descendre Wang Lin et le jeune homme muni du jeton, puis s'inclina respectueusement devant l'Ancien en vert: « Le disciple de la neuvième génération, Zhou Lin, salue le Chef de Secte. Lors du recrutement d'aujourd'hui pour la Secte du Ciel Nuageux, six personnes ont réussi. Parmi elles, trois ont obtenu des jades, deux des pilules et une un jeton. Les disciples ont déjà envoyé la jeune fille ayant obtenu le premier jade vers la montagne. »
+L'homme d'âge moyen qui guidait Wang Lin et les autres descendit lentement pour atterrir sur la place. Il fit descendre Wang Lin et le jeune homme muni du jeton, puis s'inclina respectueusement devant l'Ancien en vert: « Le disciple de la neuvième génération, Zhou Lin, salue le Chef de Secte. Lors du recrutement d'aujourd'hui pour la Secte Yun Tian, six personnes ont réussi. Parmi elles, trois ont obtenu des jades, deux des pilules et une un jeton. Les disciples ont déjà envoyé la jeune fille ayant obtenu le premier jade vers la montagne. »
 
-À son arrivée, Wang Lin fut immédiatement stupéfait. Il baissa rapidement la tête, car tous les vieux présents ici étaient des cultivateurs de l'Âme Naissante. Il n'était pas étonnant que la Secte du Ciel Nuageux soit la première secte du pays de Chu.
+À son arrivée, Wang Lin fut immédiatement stupéfait. Il baissa rapidement la tête, car tous les vieux présents ici étaient des cultivateurs de l'Âme Naissante. Il n'était pas étonnant que la Secte Yun Tian soit la première secte du pays de Chu.
 
 L'Ancien en robe verte sourit et dit: « Tu peux partir organiser le test pour les trois qui ont reçu le jade. S'ils réussissent, ils deviendront des disciples internes. »
 
@@ -51,7 +51,7 @@ Mais à cet instant précis, une vieille femme assise en deuxième position sur 
 
 La jeune fille se montra très habile. Elle s'agenouilla rapidement au sol et dit: « Le disciple salue sa maîtresse. »
 
-À l'instant où ces mots furent prononcés, tous les spectateurs affichèrent des expressions étranges. Même la vieille femme fut stupéfaite. Après l'avoir fixée un moment, elle sourit: « Tu es une fille bien spirituelle. Savais-tu que tous les disciples qui entrent dans ma Secte du Ciel Nuageux sont rétrogradés au rang de disciples de la 10ème génération? »
+À l'instant où ces mots furent prononcés, tous les spectateurs affichèrent des expressions étranges. Même la vieille femme fut stupéfaite. Après l'avoir fixée un moment, elle sourit: « Tu es une fille bien spirituelle. Savais-tu que tous les disciples qui entrent dans ma Secte Yun Tian sont rétrogradés au rang de disciples de la 10ème génération? »
 
 Le visage de la jeune fille devint rouge. Elle triturait le bord de ses vêtements, incapable de répondre.
 
@@ -65,17 +65,17 @@ Derrière Wang Lin se trouvaient les deux jeunes ayant reçu les jades. On leur 
 
 Une fois sortis de la salle principale, l'homme d'âge moyen se tourna vers les deux récipiendaires de jades et dit calmement: « Vous deux, attendez ici. Il vous est interdit de partir. Je reviens vite. » Sur ces mots, il saisit Wang Lin et s'élança dans les airs. Transformé en un rayon de lumière arc-en-ciel, il disparut au loin.
 
-La vitesse de Zhou Lin était fulgurante. En peu de temps, il avait déjà emmené Wang Lin vers une demeure située à la périphérie de la Secte du Ciel Nuageux. Il ouvrit la porte de la cour qui menait à un petit jardin d'herbes. Au centre de celui-ci trônait un fourneau de bronze de la taille d'un homme.
+La vitesse de Zhou Lin était fulgurante. En peu de temps, il avait déjà emmené Wang Lin vers une demeure située à la périphérie de la Secte Yun Tian. Il ouvrit la porte de la cour qui menait à un petit jardin d'herbes. Au centre de celui-ci trônait un fourneau de bronze de la taille d'un homme.
 
-« Notre Secte du Ciel Nuageux n'est pas encline aux cérémonies pompeuses. Puisque j'ai pris ta pilule, tu es désormais mon disciple. D'après ton registre, je sais que ton nom est Wang Lin. Wang Lin, je n'ai jamais pris de disciple auparavant; tu es le premier. Désormais, tu vivras dans cette maison. Une fois le recrutement terminé, je reviendrai pour t'enseigner l'art de l'alchimie. » Après avoir donné quelques autres instructions, Zhou Lin s'en alla.
+« Notre Secte Yun Tian n'est pas encline aux cérémonies pompeuses. Puisque j'ai pris ta pilule, tu es désormais mon disciple. D'après ton registre, je sais que ton nom est Wang Lin. Wang Lin, je n'ai jamais pris de disciple auparavant; tu es le premier. Désormais, tu vivras dans cette maison. Une fois le recrutement terminé, je reviendrai pour t'enseigner l'art de l'alchimie. » Après avoir donné quelques autres instructions, Zhou Lin s'en alla.
 
-Après son départ, les yeux de Wang Lin s'illuminèrent. Désormais, il était lui aussi membre de la Secte du Ciel Nuageux. Il prit une profonde inspiration et observa les environs. Ce jardin regorgeait de fleurs et de plantes diverses. Plus il les contemplait, plus l'excitation montait en lui.
+Après son départ, les yeux de Wang Lin s'illuminèrent. Désormais, il était lui aussi membre de la Secte Yun Tian. Il prit une profonde inspiration et observa les environs. Ce jardin regorgeait de fleurs et de plantes diverses. Plus il les contemplait, plus l'excitation montait en lui.
 
 Ce n'était que le jardin d'un disciple de la neuvième génération, et pourtant des herbes extrêmement précieuses y poussaient déjà, toutes conservées dans un état parfait. Compte tenu de la quantité d'énergie spirituelle qu'elles recevaient, leurs propriétés ne seraient en rien altérées.
 
-Après avoir tout inspecté, Wang Lin soupira à nouveau. Il trouvait la Secte du Ciel Nuageux d'une richesse et d'un luxe insolents.
+Après avoir tout inspecté, Wang Lin soupira à nouveau. Il trouvait la Secte Yun Tian d'une richesse et d'un luxe insolents.
 
-Utiliser du jade pour les pierres de construction, élever des bêtes spirituelles comme du bétail, accorder un tel jardin d'herbes à un simple disciple de neuvième génération... Tout cela témoignait de la puissance colossale de la Secte du Ciel Nuageux.
+Utiliser du jade pour les pierres de construction, élever des bêtes spirituelles comme du bétail, accorder un tel jardin d'herbes à un simple disciple de neuvième génération... Tout cela témoignait de la puissance colossale de la Secte Yun Tian.
 
 À cet instant, une envie soudaine de dévaliser les entrepôts de pilules de la secte traversa l'esprit de Wang Lin. Il devait y avoir une immense variété de médicaments stockés là-bas; s'il pouvait s'en emparer, il ne manquerait jamais de rien jusqu'à atteindre le stade de la Formation de l'Âme.
 
@@ -87,11 +87,11 @@ Le jardin d'herbes n'était pas vaste. Derrière lui se trouvait une rangée de 
 
 Wang Lin choisit la dernière maison. Il entra et inspecta les lieux. La pièce était équipée de tout le nécessaire quotidien. De plus, un petit fourneau trônait au centre de la pièce.
 
-Bien que Wang Lin ne fût pas un expert en matériel d'alchimie, il en connaissait les rudiments. Les fourneaux de la salle principale étaient des trésors légendaires. Même ce petit fourneau au centre du jardin était considéré comme une rareté; s'il avait été dans la Mer des Démons, son coût aurait été inimaginable.
+Bien que Wang Lin ne fût pas un expert en matériel d'alchimie, il en connaissait les rudiments. Les fourneaux de la salle principale étaient des trésors légendaires. Même ce petit fourneau au centre du jardin était considéré comme une rareté; s'il avait été dans la Mer Xiu Mo, son coût aurait été inimaginable.
 
 Enfin, le petit fourneau de sa chambre l'étonna profondément. Il n'était en rien inférieur à celui qu'il avait offert à Li Muwan autrefois. Cela signifiait que ce fourneau valait une peau de dragon entière.
 
-Il fallait dire qu'il y avait de nombreuses cours comme celle-ci dans la Secte du Ciel Nuageux, et que chaque jardin comportait plusieurs pièces, chacune dotée d'un fourneau. Le total représentait donc une quantité phénoménale de ces instruments. Évidemment, ces fourneaux n'avaient guère de valeur aux yeux de la secte.
+Il fallait dire qu'il y avait de nombreuses cours comme celle-ci dans la Secte Yun Tian, et que chaque jardin comportait plusieurs pièces, chacune dotée d'un fourneau. Le total représentait donc une quantité phénoménale de ces instruments. Évidemment, ces fourneaux n'avaient guère de valeur aux yeux de la secte.
 
 Pour confirmer sa supposition, il alla vérifier les autres pièces et constata que chacune d'elles contenait un fourneau similaire. Tout ce qu'il avait vu depuis son entrée dans la secte confirmait sa puissance. Wang Lin prit une profonde inspiration, à nouveau impressionné par cette richesse et cette force.
 
@@ -101,7 +101,7 @@ Le temps passa lentement. À la tombée de la nuit, Wang Lin ressentit une fluct
 
 Il comprit que Zhou Lin était de retour. Ce dernier n'étant qu'au début du stade de la Formation du Noyau, il ne pouvait percevoir la formation de Wang Lin.
 
-La Secte du Ciel Nuageux se divisait en sectes intérieure et extérieure. La secte intérieure gérait l'alchimie, tandis que la secte extérieure assurait la protection de la secte. Comme Zhou Lin était un disciple de la secte intérieure, sa tâche principale consistait à fabriquer des pilules.
+La Secte Yun Tian se divisait en sectes intérieure et extérieure. La secte intérieure gérait l'alchimie, tandis que la secte extérieure assurait la protection de la secte. Comme Zhou Lin était un disciple de la secte intérieure, sa tâche principale consistait à fabriquer des pilules.
 
 « Sors me voir! » La voix de Zhou Lin résonna de l'extérieur. Wang Lin ouvrit les yeux et sortit. Bien qu'il fût tard, la lumière lunaire rendait tout aussi clair que le jour pour les cultivateurs.
 
@@ -131,7 +131,7 @@ D'un geste du doigt, Wang Lin fit entrer la pilule dans la bouche de la créatur
 
 Wang Lin l'observa encore un instant, puis d'un revers de main, il renvoya la petite bête dans son sac. Il comptait l'observer pendant quelques jours; si aucun signe négatif n'apparaissait, il consommerait les pilules.
 
-Wang Lin cultiva silencieusement toute la nuit. Le lendemain matin, à son réveil, il constata que l'énergie spirituelle en lui avait considérablement augmenté. La densité de l'énergie spirituelle de la Secte du Ciel Nuageux rendait chaque nuit de culture extrêmement efficace.
+Wang Lin cultiva silencieusement toute la nuit. Le lendemain matin, à son réveil, il constata que l'énergie spirituelle en lui avait considérablement augmenté. La densité de l'énergie spirituelle de la Secte Yun Tian rendait chaque nuit de culture extrêmement efficace.
 
 Il se leva et enfila l'uniforme de disciple: une longue robe blanche dont les manches étaient brodées d'un fourneau à pilules rouge. Il rangea son jeton d'identité et la fiole blanche. Puis, il frappa son sac de rangement, et un autre objet apparut dans sa main. C'était aussi une fiole blanche, mais son contenu était bien plus précieux que les précédentes.
 
@@ -155,7 +155,7 @@ Une fois, il avait consommé une grande quantité d'herbes pour forcer la créat
 
 Un jour, une explosion retentit dans sa cour. Une onde de lumière semblable à des ondulations aquatiques traversa la pièce avant que tout ne redevienne calme. Wang Lin sortit, couvert de poussière, avec un sourire amer: cette dernière tentative de raffinage avait encore échoué. Il n'avait pas su contrôler l'intensité du feu, provoquant la rupture du fourneau et la perte de toutes les pilules.
 
-Heureusement, la Secte du Ciel Nuageux ne manquait de rien, surtout pas de fours. En deux mois, Wang Lin en avait déjà brisé quatre sur les sept dont il disposait. Il sortit dans la cour, pensif. Dans chaque pièce, on pouvait contrôler le feu via l'énergie spirituelle grâce à un interrupteur. La force brute n'importait pas; tout résidait dans une technique de micro-contrôle.
+Heureusement, la Secte Yun Tian ne manquait de rien, surtout pas de fours. En deux mois, Wang Lin en avait déjà brisé quatre sur les sept dont il disposait. Il sortit dans la cour, pensif. Dans chaque pièce, on pouvait contrôler le feu via l'énergie spirituelle grâce à un interrupteur. La force brute n'importait pas; tout résidait dans une technique de micro-contrôle.
 
 Utiliser son énergie comme pont entre le feu et le fourneau exigeait une stabilité constante de la flamme, une stabilité dynamique qui devait s'ajuster aux changements internes du fourneau. Le moindre écart entraînait l'échec du raffinage, ou pire, l'explosion du fourneau. C'était l'obstacle majeur des débutants; un cultivateur de l'Âme Naissante pourrait cependant utiliser son feu d'âme pour s'en affranchir.
 
@@ -171,11 +171,11 @@ Il tenta de nouveau. Cette fois encore, au moment de la réussite imminente, le 
 
 Il soupira amèrement: « Si seule la pilule avait échoué, j'aurais pu continuer, mais là, je n'ai plus de fourneaux. » Il craignait d'être le premier disciple expulsé pour avoir trop brisé de fours. Il connaissait leur valeur et chaque explosion lui serrait le cœur.
 
-Il réalisa aussi que si les alchimistes étaient nombreux, les maîtres étaient rares, car leur formation coûte une fortune en matériaux et en instruments. Une secte ordinaire ne pourrait même pas en entretenir un seul; seule la Secte du Ciel Nuageux pouvait se permettre une telle armée d'alchimistes.
+Il réalisa aussi que si les alchimistes étaient nombreux, les maîtres étaient rares, car leur formation coûte une fortune en matériaux et en instruments. Une secte ordinaire ne pourrait même pas en entretenir un seul; seule la Secte Yun Tian pouvait se permettre une telle armée d'alchimistes.
 
 Wang Lin nettoya les débris et sortit de la cour. Sans fourneaux, il devait en trouver de nouveaux, mais Zhou Lin étant toujours absent, il prit la décision d'aller chercher la maîtresse de ce dernier. Il espérait aussi comprendre l'origine de ces explosions.
 
-La Secte du Ciel Nuageux était organisée en quatre secteurs — est, ouest, sud et nord — formant un cercle autour du grand hall. Wang Lin traversa la secte, son uniforme et son jeton à la ceinture. Les autres passants se contentaient de lui adresser un signe de tête sans lui parler.
+La Secte Yun Tian était organisée en quatre secteurs — est, ouest, sud et nord — formant un cercle autour du grand hall. Wang Lin traversa la secte, son uniforme et son jeton à la ceinture. Les autres passants se contentaient de lui adresser un signe de tête sans lui parler.
 
 Soudain, le cri des grues retentit, suivi par un vol de grues blanches. Alors qu'elles passaient au-dessus de lui, des rires s'élevèrent du groupe. Une voix claire lança: « Oh, c'est toi. »
 
@@ -201,7 +201,7 @@ Le jeune homme sourit malicieusement: « Moi, je m'appelle Cheng Xian. Alors, va
 
 Wang Lin acquiesça.
 
-« Les quatre cours de la Secte du Ciel Nuageux sont très distinctement divisés. Jeune frère Wang, entrer dans la cour sud est une tâche ardue. Si c'était facile, je passerais mes journées à la cour ouest. Tu sais, les belles femmes y sont aussi nombreuses que les nuages. Si je pouvais en avoir une ou deux pour une culture duelle, la cultivation ne me dérangerait plus! » Cheng Xian marqua une pause de regret avant de reprendre: « Alors, pourquoi vas-tu au sud? Je pourrais peut-être t'aider. »
+« Les quatre cours de la Secte Yun Tian sont très distinctement divisés. Jeune frère Wang, entrer dans la cour sud est une tâche ardue. Si c'était facile, je passerais mes journées à la cour ouest. Tu sais, les belles femmes y sont aussi nombreuses que les nuages. Si je pouvais en avoir une ou deux pour une culture duelle, la cultivation ne me dérangerait plus! » Cheng Xian marqua une pause de regret avant de reprendre: « Alors, pourquoi vas-tu au sud? Je pourrais peut-être t'aider. »
 
 Wang Lin rit devant le rêve de Cheng Xian: « Ce n'est pas nécessaire. Je ne pense pas que mon voyage soit entravé. »
 
@@ -223,7 +223,7 @@ Cheng Xian fut déstabilisé, puis sourit de plus belle: « Oui, oui! C'est une 
 
 Wang Lin demanda lentement: « Pourquoi tout le monde veut-il devenir le disciple de Zhou Lin? »
 
-Cheng Xian répondit avec un air de regret profond: « Parce que Zhou Lin a une excellente maîtresse. Wang Lin, sache que la plus grande beauté de la Secte du Ciel Nuageux ne se trouve pas à l'ouest, mais au sud. L'Ancienne Li de la cour sud est non seulement une beauté, mais aussi l'une des trois alchimistes de rang 5 de toute la secte. Réfléchis-y: devenir le disciple de Zhou Lin, c'est devenir celui de l'Ancienne Li. Non seulement tu pourras contempler une fée, mais tu auras accès à toutes sortes de pilules et de recettes. Comment ne pas en vouloir? »
+Cheng Xian répondit avec un air de regret profond: « Parce que Zhou Lin a une excellente maîtresse. Wang Lin, sache que la plus grande beauté de la Secte Yun Tian ne se trouve pas à l'ouest, mais au sud. L'Ancienne Li de la cour sud est non seulement une beauté, mais aussi l'une des trois alchimistes de rang 5 de toute la secte. Réfléchis-y: devenir le disciple de Zhou Lin, c'est devenir celui de l'Ancienne Li. Non seulement tu pourras contempler une fée, mais tu auras accès à toutes sortes de pilules et de recettes. Comment ne pas en vouloir? »
 
 Wang Lin murmura pour lui-même: « L'Ancienne Li? »
 

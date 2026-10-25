@@ -56,7 +56,7 @@ De plus en plus de cultivateurs s'entassaient sur la montagne. Bientôt, il n'y 
 
 Presque tous les cultivateurs de ce continent finirent par trouver leur chemin vers ce lieu, poussés par un sentiment étrange au fil des ans. La zone dans un rayon de centaines de kilomètres était couverte d'innombrables cultivateurs venus vénérer Wang Lin.
 
-Certains traversèrent la mer depuis d'autres continents ou utilisèrent des formations de téléportation. Parmi eux se trouvaient Dun Tian, Nian Tian et une multitude de disciples de la Secte de l'Affinement de l'Âme.
+Certains traversèrent la mer depuis d'autres continents ou utilisèrent des formations de téléportation. Parmi eux se trouvaient Dun Tian, Nian Tian et une multitude de disciples de la Secte Lian Hun.
 
 Il y avait aussi les cultivateurs de Xue Yu. Sous la conduite de la femme froide, ils étaient arrivés, attirés par cette sensation mystérieuse. Ils s'assirent en silence pour écouter le Dao.
 
@@ -72,7 +72,7 @@ Enfin, même Zhu Quezi brisa le vide pour arriver. Il demeura longuement silenci
 
 « Ma rencontre avec Liu Mei et la création de notre karma n'étaient que le fruit du destin karmique... »
 
-« Le lien entre moi et la Secte de l'Affinement de l'Âme est également une affaire de destin karmique. »
+« Le lien entre moi et la Secte Lian Hun est également une affaire de destin karmique. »
 
 « Qu'il s'agisse de Hongdie ou de tout le reste dans ce monde, le karma est ainsi fait. Même dans ce monde de rêve, il en va de même. Destin, destin, destin... »
 

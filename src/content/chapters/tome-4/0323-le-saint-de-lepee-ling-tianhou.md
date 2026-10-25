@@ -34,7 +34,7 @@ Une gigantesque boule de feu fonçait depuis là. L'onde de chaleur précéda la
 
 Une fois le chemin dégagé, la boule de feu traversa le vide et explosa dans le ciel au-dessus du fragment. Elle se dispersa en d'innombrables météores projetés dans toutes les directions. Au cœur de l'explosion se trouvait un Qilin entouré de flammes vertes. Il expira deux jets de vapeur blanche par les naseaux tout en fixant les trois dragons dorés.
 
-« C'est... un Qilin céleste! La bête gardienne de la Secte de l'Épée Da Luo! »
+« C'est... un Qilin céleste! La bête gardienne de la Secte Da Luo Jian! »
 
 « Cette bête appartient au Saint de l'Épée Ling Tianhou. Ce vieux maître est ici! »
 

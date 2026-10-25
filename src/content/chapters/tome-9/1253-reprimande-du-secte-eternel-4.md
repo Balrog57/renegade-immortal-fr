@@ -14,7 +14,7 @@ L'expression de Mu Bingmei était complexe, empreinte d'une émotion indicible a
 
 Le flot de larmes dans les yeux de Lu Yanfei redoubla d'intensité; deux ruisseaux de larmes de joie coulèrent tandis que la silhouette se rapprochait. Tous ses griefs et ses souffrances jaillirent avec ses pleurs.
 
-Wang Lin avait traversé la Mer des Nuages en fendant ciel et terre, vêtu de tonnerre!
+Wang Lin avait traversé la Mer Yun en fendant ciel et terre, vêtu de tonnerre!
 
 À cet instant, non seulement ceux qui connaissaient Wang Lin furent ainsi affectés, mais tous les cultivateurs environnants, y compris les membres de la Secte Éternelle, furent frappés de stupeur.
 
@@ -26,7 +26,7 @@ L'homme d'âge mûr nommé Zhou fixait Wang Lin au cœur du tonnerre, ses yeux b
 
 Un tel sort capable de dissimuler son aura choqua profondément Zhou. Il ne s'agissait pas seulement d'un sortilège, mais du fait que le niveau de culture de cet homme surpassait de loin le sien!
 
-Le vieil homme qui avait conduit ses disciples dans le Domaine de la Brume des Bêtes du Chaos était le plus calme pour l'instant, car il était le seul à avoir déjà vu Wang Lin. Il poussa un soupir: « Lorsque j'ai rencontré le Frère Lu autrefois, je ne pensais pas que nous appartenions à la même secte. Je m'appelle Wu Jiangping. Salutations, Camarade Cultivateur! »
+Le vieil homme qui avait conduit ses disciples dans le Domaine Luan Shou Wu était le plus calme pour l'instant, car il était le seul à avoir déjà vu Wang Lin. Il poussa un soupir: « Lorsque j'ai rencontré le Frère Lu autrefois, je ne pensais pas que nous appartenions à la même secte. Je m'appelle Wu Jiangping. Salutations, Camarade Cultivateur! »
 
 Le vieil homme qui avait aperçu la silhouette de Wang Lin affichait une expression grave. Auparavant, il n'avait pas cru ce qu'on lui racontait, mais désormais, il était convaincu: cet homme possédait le pouvoir de balayer les régions de rang 6 et 7!
 
@@ -44,9 +44,9 @@ C'était là sa plus grande crainte. Il n'était pas sûr de l'emporter dans un 
 
 Lu Yingjie fixait, hébété, la silhouette blanche au cœur du tonnerre. Un sentiment terrifiant surgit soudain en lui et l'engloutit totalement.
 
-Son corps tremblait de peur, surtout lorsqu'il songea qu'il avait offensé la Secte de l'Origine, qu'il avait provoqué Lu Yanfei et qu'il avait prétendu vouloir combattre cet homme. Son cuir chevelu s'engourdissait et sa vue se brouillait.
+Son corps tremblait de peur, surtout lorsqu'il songea qu'il avait offensé la Secte Gui Yuan, qu'il avait provoqué Lu Yanfei et qu'il avait prétendu vouloir combattre cet homme. Son cuir chevelu s'engourdissait et sa vue se brouillait.
 
-Même ses compagnons de la Secte de la Musique Céleste étaient terrifiés.
+Même ses compagnons de la Secte Xian Yin étaient terrifiés.
 
 « Il… Il est… Il est si puissant. Quand Lu Yuncong a dit qu'il pourrait me tuer comme une fourmi, il disait la vérité! » Lu Yingjie était dévasté; son visage était livide et son esprit en plein chaos.
 
@@ -78,29 +78,29 @@ Wang Lin regarda la Lu Yanfei aux traits tirés d'un air désolé et dit douceme
 
 Lu Yanfei ne put plus retenir ses larmes; en regardant Wang Lin, elle secoua la tête. Un sourire radieux éclaira son visage alors qu'elle répondait doucement: « Tu n'es pas en retard. Tant que tu es là, il n'est jamais trop tard. »
 
-« Retourne d'où tu viens. Avec moi ici, personne ne pourra toucher à la Secte de l'Origine! Dans cette compétition, qu'il s'agisse des sectes de rang 5, 6 ou 7, je ferai en sorte que la Secte de l'Origine soit la première! » Wang Lin agita ses manches et une brise légère emporta Lu Yanfei jusqu'aux côtés de la tribune de la Secte Éternelle.
+« Retourne d'où tu viens. Avec moi ici, personne ne pourra toucher à la Secte Gui Yuan! Dans cette compétition, qu'il s'agisse des sectes de rang 5, 6 ou 7, je ferai en sorte que la Secte Gui Yuan soit la première! » Wang Lin agita ses manches et une brise légère emporta Lu Yanfei jusqu'aux côtés de la tribune de la Secte Éternelle.
 
 Wang Lin tourna le regard vers la Secte Éternelle et joignit les mains à l'adresse du vieil homme qui avait pris la parole. Cependant, il fut surpris en apercevant Li Qianmei et… Mu Bingmei.
 
 Il détourna le regard après un moment de choc pour observer Lu Yuncong, dont l'expression était complexe et teintée d'un sourire amer.
 
-« La culture de Frère Lu… est très différente de celle d'il y a cent ans. Ma Secte du Dao Pourpre a perdu cette compétition des sectes de rang 5! » Lu Yuncong joignit les mains avec amertume. Si la culture de Wang Lin n'avait été que légèrement supérieure à la sienne, il aurait eu le cœur à combattre. Mais son esprit était déjà troublé par sa simple présence, et plus terrifiant encore, il sentait son cœur dao sur le point de s'effondrer. C'était comme si l'homme devant lui était un vortex aspirant toute intention de dao. S'il perdait ne serait-ce qu'un instant sa concentration, il sentait que tout son dao serait englouti.
+« La culture de Frère Lu… est très différente de celle d'il y a cent ans. Ma Secte Zi Dao a perdu cette compétition des sectes de rang 5! » Lu Yuncong joignit les mains avec amertume. Si la culture de Wang Lin n'avait été que légèrement supérieure à la sienne, il aurait eu le cœur à combattre. Mais son esprit était déjà troublé par sa simple présence, et plus terrifiant encore, il sentait son cœur dao sur le point de s'effondrer. C'était comme si l'homme devant lui était un vortex aspirant toute intention de dao. S'il perdait ne serait-ce qu'un instant sa concentration, il sentait que tout son dao serait englouti.
 
 Wang Lin esquissa un mince sourire, mais son expression se glaça et il demanda doucement: « Frère Lu, j'ai une question à vous poser! Lu Yanfei est blessée. Qui a fait cela? »
 
-Lu Yuncong n'hésita pas et pointa la Secte de la Musique Céleste: « Lu Yingjie de la Secte de la Musique Céleste! » Puis il désigna la Secte Recherchant la Montagne.
+Lu Yuncong n'hésita pas et pointa la Secte Xian Yin: « Lu Yingjie de la Secte Xian Yin! » Puis il désigna la Secte Recherchant la Montagne.
 
 « Zhao Long de la Secte Recherchant la Montagne! Ils avaient des pensées impures envers Mademoiselle Lu! »
 
-Wang Lin hocha la tête et se tourna vers la Secte de la Musique Céleste. Une lueur de froideur traversa son regard alors qu'il s'élançait dans les airs pour charger la secte adverse.
+Wang Lin hocha la tête et se tourna vers la Secte Xian Yin. Une lueur de froideur traversa son regard alors qu'il s'élançait dans les airs pour charger la secte adverse.
 
-Dans le secteur de la Secte de la Musique Céleste, le visage de Lu Yingjie changea radicalement et il recula. Son maître et les anciens de la secte affichaient tous des visages graves. Son maître le saisit et, contre toute attente, ils s'enfuirent vers la tribune de la Secte Éternelle.
+Dans le secteur de la Secte Xian Yin, le visage de Lu Yingjie changea radicalement et il recula. Son maître et les anciens de la secte affichaient tous des visages graves. Son maître le saisit et, contre toute attente, ils s'enfuirent vers la tribune de la Secte Éternelle.
 
-Le Maître de la Secte de la Musique Céleste s'avança pour barrer la route à Wang Lin. Il arborait une expression respectueuse et s'apprêtait à donner des explications.
+Le Maître de la Secte Xian Yin s'avança pour barrer la route à Wang Lin. Il arborait une expression respectueuse et s'apprêtait à donner des explications.
 
-Cependant, Wang Lin n'avait nullement l'intention d'écouter. Voyant celui qui lui barrait le passage, il agita la main et une rafale rugissante se leva. Le vent était chargé de tonnerre et percuta violemment le Maître de la Secte de la Musique Céleste.
+Cependant, Wang Lin n'avait nullement l'intention d'écouter. Voyant celui qui lui barrait le passage, il agita la main et une rafale rugissante se leva. Le vent était chargé de tonnerre et percuta violemment le Maître de la Secte Xian Yin.
 
-Un fracas tellurique secoua le monde tandis que le Maître de la Secte de la Musique Céleste crachait du sang avant de s'effondrer. Son âme d'origine fut projetée hors de son corps, et ses yeux étaient écarquillés par la terreur.
+Un fracas tellurique secoua le monde tandis que le Maître de la Secte Xian Yin crachait du sang avant de s'effondrer. Son âme d'origine fut projetée hors de son corps, et ses yeux étaient écarquillés par la terreur.
 
 Wang Lin ne marqua aucune pause. Il marcha vers le vieil homme qui traînait Lu Yingjie. Sa marche n'était pas rapide, mais chaque pas faisait trembler l'âme d'origine de ceux qui croisaient son chemin.
 
@@ -112,7 +112,7 @@ Feng Hai hésita un instant avant de joindre les mains pour parler: « Camarade 
 
 Mais Wang Lin agita la main et l'interrompit brutalement!
 
-« Il a humilié ma Secte de l'Origine, il doit donc mourir. Quiconque tentera de le sauver subira le même sort! » déclara lentement Wang Lin avant de lever sa main droite. Il était venu à la Secte Éternelle pour terrifier tout le monde, donner de l'élan à la Secte de l'Origine et lui offrir l'échelle pour atteindre le ciel!
+« Il a humilié ma Secte Gui Yuan, il doit donc mourir. Quiconque tentera de le sauver subira le même sort! » déclara lentement Wang Lin avant de lever sa main droite. Il était venu à la Secte Éternelle pour terrifier tout le monde, donner de l'élan à la Secte Gui Yuan et lui offrir l'échelle pour atteindre le ciel!
 
 À cet instant, d'un simple mouvement de doigt, le monde trembla et le Doigt du Destin Céleste apparut. Des ondulations résonnèrent dans le ciel alors qu'un doigt gigantesque se matérialisait, dégageant une pression monstrueuse. Tous les spectateurs retinrent leur souffle, pétrifiés devant ce doigt colossal qui semblait occuper tout l'espace!
 

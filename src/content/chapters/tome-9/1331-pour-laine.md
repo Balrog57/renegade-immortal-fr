@@ -14,7 +14,7 @@ De minuscules éclairs tourbillonnaient autour de chaque fruit du tonnerre à l'
 
 Wang Lin ferma les yeux et observa silencieusement la puissance du tonnerre émanant du fruit. Un instant plus tard, il rouvrit les yeux. Ils étaient imprégnés de foudre. Son regard perça la vallée pour atteindre l'extérieur de la grotte, et il murmura: « Je comptais venir voler, mais je ne m'attendais pas à ce que quelqu'un se livre ainsi sur un plateau. »
 
-À cet instant, quatre rayons de lumière arrivèrent près de la grotte. Sans même que le vieil homme de l'Âme Naissante ait besoin de parler, l'un des cultivateurs de la Formation du Noyau sortit et cria: « Qi Zhi, la Secte du Tonnerre Céleste est ici. Sors nous saluer! »
+À cet instant, quatre rayons de lumière arrivèrent près de la grotte. Sans même que le vieil homme de l'Âme Naissante ait besoin de parler, l'un des cultivateurs de la Formation du Noyau sortit et cria: « Qi Zhi, la Secte Tian Lei est ici. Sors nous saluer! »
 
 Cette voix résonna longuement à l'intérieur de la grotte.
 
@@ -24,7 +24,7 @@ Il ressentit un vague sentiment de crise.
 
 « Puisque ce Qi Zhi a pu devenir un vieux monstre de l'Âme Naissante, on ne peut le sous-estimer. Les simples restrictions à l'entrée de la grotte ne sont pas banales. » Il interrompit le cultivateur de la Formation du Noyau et dit d'une voix sombre:
 
-« Camarade Qi, je suis Qiu Dehai, l'un des quatre Grands Anciens de la Secte du Tonnerre Céleste. Si je suis ici aujourd'hui, c'est parce que notre Maître de Secte est sur le point d'intégrer les Classements du Tonnerre Dispersé. Je demande au Camarade Qi de bien vouloir faire don de quelques trésors magiques et de pilules. » Sa voix était lugubre; il avait insufflé toute sa culture de mi-stade de l'Âme Naissante dans ses paroles pour les laisser glisser jusqu'à la grotte.
+« Camarade Qi, je suis Qiu Dehai, l'un des quatre Grands Anciens de la Secte Tian Lei. Si je suis ici aujourd'hui, c'est parce que notre Maître de Secte est sur le point d'intégrer les Classements du Tonnerre Dispersé. Je demande au Camarade Qi de bien vouloir faire don de quelques trésors magiques et de pilules. » Sa voix était lugubre; il avait insufflé toute sa culture de mi-stade de l'Âme Naissante dans ses paroles pour les laisser glisser jusqu'à la grotte.
 
 À peine sa voix eut-elle fini de résonner que la porte de la grotte gronda et s'ouvrit. Quelque chose fut projeté dehors: c'était Qi Zhi, plongé dans le coma.
 
@@ -48,7 +48,7 @@ Les trois cultivateurs de la Formation du Noyau ressentirent également que quel
 
 Ce regard fit rater un battement au cœur de Qiu Dehai. Sans hésiter, il agita la main pour projeter les trois cultivateurs de la Formation du Noyau vers Wang Lin afin de s'en servir de bouclier. Il recula précipitamment, trempé de sueur froide, alors qu'il s'apprêtait à se téléporter.
 
-Le Clan du Tonnerre Dispersé n'autorisait pas ses membres à s'entretuer, mais il était permis de détruire leur culture ou de les tuer indirectement. Ce vieil homme le savait parfaitement et l'avait déjà fait maintes fois. À cet instant, terrifié, sa seule pensée était la fuite.
+Le Clan Shan Lei n'autorisait pas ses membres à s'entretuer, mais il était permis de détruire leur culture ou de les tuer indirectement. Ce vieil homme le savait parfaitement et l'avait déjà fait maintes fois. À cet instant, terrifié, sa seule pensée était la fuite.
 
 Wang Lin ignora ce cultivateur de l'Âme Naissante en pleine téléportation et agita sa main droite. Les trois cultivateurs de la Formation du Noyau poussèrent des cris déchirants alors que les marques entre leurs sourcils s'effondraient, libérant une multitude de trésors. Wang Lin les ramassa tous avant de s'élever dans les airs.
 
@@ -62,7 +62,7 @@ La silhouette et la voix de Wang Lin devinrent un nuage noir pesant lourdement s
 
 Il effectua plus de dix téléportations et parcourut près de 50 000 kilomètres. Durant cette course effrénée pour sa survie, il dévora une quantité colossale de pilules. Il avait même brisé le jade de sa secte pour appeler à l'aide les membres de sa propre secte alentour!
 
-Il existait de nombreuses petites sectes comme la Secte du Tonnerre Céleste. Le clan n'intervenait naturellement pas et encourageait même les gens à former ou à rejoindre des sectes.
+Il existait de nombreuses petites sectes comme la Secte Tian Lei. Le clan n'intervenait naturellement pas et encourageait même les gens à former ou à rejoindre des sectes.
 
 Qiu Dehai, couvert de sueur froide et essoufflé après tant d'efforts, venait de terminer une téléportation lorsqu'un éclat de lumière apparut devant lui. Un homme d'âge mûr vêtu de vert en sortit. Il fronça les sourcils en regardant Qiu Dehai.
 
@@ -86,27 +86,27 @@ Les deux hommes coururent comme des déments, utilisant la téléportation sans 
 
 Le visage de Qiu Dehai était livide de peur. Il voulut parler, mais la voix qui les terrifiait résonna une nouvelle fois:
 
-« Continuez à appeler à l'aide et convoquez tous les cultivateurs de l'Âme Naissante de votre Secte du Tonnerre Céleste... Emmenez-moi dans votre secte; sinon... je réduirai votre culture à néant! »
+« Continuez à appeler à l'aide et convoquez tous les cultivateurs de l'Âme Naissante de votre Secte Tian Lei... Emmenez-moi dans votre secte; sinon... je réduirai votre culture à néant! »
 
 L'homme d'âge mûr sortit un jade et le brisa pour demander de l'aide, avant même Qiu Dehai. Il détestait ce dernier jusqu'à la moelle et s'il ne pouvait pas entraîner d'autres personnes dans sa chute, il ne pourrait apaiser sa rage.
 
 Deux heures plus tard, une scène extrêmement étrange se déroulait sur cette planète. Quatre cultivateurs de l'Âme Naissante fuyaient en panique. Trois d'entre eux affichaient une haine et une terreur indescriptibles!
 
-Wang Lin marchait calmement derrière eux. En chemin, les appels à l'aide de Qiu Dehai et ses compagnons avaient attiré deux autres Anciens. Les quatre s'enfuirent ensemble, contraints par la demande de Wang Lin de se diriger vers la Secte du Tonnerre Céleste.
+Wang Lin marchait calmement derrière eux. En chemin, les appels à l'aide de Qiu Dehai et ses compagnons avaient attiré deux autres Anciens. Les quatre s'enfuirent ensemble, contraints par la demande de Wang Lin de se diriger vers la Secte Tian Lei.
 
 Une montagne apparut au loin. Elle n'était pas imposante, mais elle était enveloppée de nuages. Des marches de pierre serpentaient depuis le sommet. Quelques bâtiments couronnaient la montagne; cela ressemblait fort à une secte.
 
-Lorsque les quatre cultivateurs terrifiés amenèrent Wang Lin sur place, Qiu Dehai s'exclama d'une voix tremblante: « Ai... Aîné... Voici... Voici la Secte du Tonnerre Céleste... »
+Lorsque les quatre cultivateurs terrifiés amenèrent Wang Lin sur place, Qiu Dehai s'exclama d'une voix tremblante: « Ai... Aîné... Voici... Voici la Secte Tian Lei... »
 
 Tout au long du trajet, ils avaient été forcés de courir à perdre haleine, leur énergie spirituelle presque épuisée. Entre la panique et l'effroi, leurs esprits avaient été torturés durant tout le voyage.
 
-Wang Lin observa la montagne et agita sa main droite. Une bourrasque de vent surgit et enveloppa les quatre cultivateurs de l'Âme Naissante. Ils poussèrent des cris tandis que leurs marques de tonnerre éclataient, libérant une pluie de trésors. Wang Lin les ramassa, puis, dans le même mouvement, la rafale perça les nuages et projeta les quatre hommes directement sur la place de la Secte du Tonnerre Céleste!
+Wang Lin observa la montagne et agita sa main droite. Une bourrasque de vent surgit et enveloppa les quatre cultivateurs de l'Âme Naissante. Ils poussèrent des cris tandis que leurs marques de tonnerre éclataient, libérant une pluie de trésors. Wang Lin les ramassa, puis, dans le même mouvement, la rafale perça les nuages et projeta les quatre hommes directement sur la place de la Secte Tian Lei!
 
 La secte entière fut plongée dans un silence de mort. Certains cultivateurs plus faibles qui méditaient sur la place restèrent sans voix en voyant les quatre Grands Anciens être ainsi jetés au sol.
 
 « Aîné, Aîné, vous êtes enfin arrivé!! » Dans ce silence pesant, un homme surgit soudainement. Il était mince et d'apparence ordinaire, mais il se trouvait au début du stade de la Formation de l'Âme. Ses yeux brillaient d'une excitation pure alors qu'il fixait Wang Lin.
 
-« Depuis que j'ai aperçu l'Aîné, mon cœur ne peut plus trouver le repos. Votre culture est transcendante et votre style est inégalable. En cet instant fugace, j'ai eu l'impression de vous avoir vu il y a d'innombrables cycles de réincarnation. Je ne pouvais m'empêcher de vouloir contempler votre présence un peu plus longtemps avant la fin de ma vie. À chaque regard, l'énergie spirituelle dans mon corps s'anime d'elle-même et ma culture augmente, comme si j'avais dévoré une infinité de fruits du tonnerre. Seul un être tel que vous possède une telle capacité. Même les Anciens du Clan du Tonnerre Dispersé, même le Chef du Clan, ne sauraient vous égaler à votre âge.
+« Depuis que j'ai aperçu l'Aîné, mon cœur ne peut plus trouver le repos. Votre culture est transcendante et votre style est inégalable. En cet instant fugace, j'ai eu l'impression de vous avoir vu il y a d'innombrables cycles de réincarnation. Je ne pouvais m'empêcher de vouloir contempler votre présence un peu plus longtemps avant la fin de ma vie. À chaque regard, l'énergie spirituelle dans mon corps s'anime d'elle-même et ma culture augmente, comme si j'avais dévoré une infinité de fruits du tonnerre. Seul un être tel que vous possède une telle capacité. Même les Anciens du Clan Shan Lei, même le Chef du Clan, ne sauraient vous égaler à votre âge.
 
 « Aîné, ce Junior ne demande rien et est prêt à vous remettre tout ce qu'il a collecté. Je souhaite seulement que l'Aîné me permette de rester à ses côtés pour pouvoir l'observer souvent et être témoin de son ascension. Laissez-moi être votre serviteur, laissez-moi ouvrir la voie, travailler jour et nuit pour vous, laissez-moi massacrer tous vos ennemis, laissez-moi dédier ma vie à l'Aîné jusqu'à mon dernier souffle!!! »
 

@@ -42,7 +42,7 @@ Les trois quittèrent le Manoir Mo, avec Wang Lin en tête. Le manoir se situait
 
 Wang Lin ne pressait pas le pas; il observait les environs tout en progressant vers la rue principale de la ville de Hong. Une rivière passait à proximité, la foule était dense et les boutiques bordaient les rues. L'endroit était très animé.
 
-Des éclats de voix flottaient dans l'air tandis que des hommes et des femmes déambulaient. Dans la Terre des Esprits Démons, les vêtements étaient audacieux, particulièrement ceux des femmes. Non seulement ils étaient colorés, mais ils révélaient une grande partie de la peau, offrant un spectacle plaisant aux yeux.
+Des éclats de voix flottaient dans l'air tandis que des hommes et des femmes déambulaient. Dans la Terre Yao Ling, les vêtements étaient audacieux, particulièrement ceux des femmes. Non seulement ils étaient colorés, mais ils révélaient une grande partie de la peau, offrant un spectacle plaisant aux yeux.
 
 Tout ce qui l'entourait permit à l'humeur tendue de Wang Lin de s'apaiser après ces derniers jours. Il marchait dans les rues comme un simple mortel, et l'énergie spirituelle céleste en son corps se rétracta lentement, telle une rivière qui s'assèche.
 
@@ -58,7 +58,7 @@ Un sentiment indéfinissable envahit le cœur de Wang Lin, et il soupira. Ce che
 
 La journée déclinait et, alors qu'il s'apprêtait à partir, le son d'une cithare, empreint d'une subtile tristesse, parvint à ses oreilles... Cette mélancolie et cette musique s'accordaient étrangement avec l'état d'âme de Wang Lin, ce qui le fit s'arrêter net.
 
-Wang Lin suivit lentement la mélodie. Non loin de la rue coulait une rivière, l'un des cours d'eau intérieurs de la Cité du Démon Céleste. Plusieurs embarcations naviguaient sur l'eau, et cette musique provenait de l'une d'elles.
+Wang Lin suivit lentement la mélodie. Non loin de la rue coulait une rivière, l'un des cours d'eau intérieurs de la Cité Tian Yao. Plusieurs embarcations naviguaient sur l'eau, et cette musique provenait de l'une d'elles.
 
 Wang Lin se tint silencieusement au bord de l'eau, écoutant les notes de la cithare. Grâce à sa vue perçante, il put distinguer une femme jouant de l'instrument sur le bateau... Elle ne montrait que son dos.
 
@@ -76,7 +76,7 @@ Même si cette musique était manifestement artificielle, Wang Lin pouvait presq
 
 On ne désire vraiment que ce que l'on a perdu. C'est au moment des adieux que l'on souhaite revenir. Durant les années qui suivirent le départ de Wan Er, Wang Lin s'était remémoré son souvenir sans cesse, la rendant de plus en plus essentielle à sa vie. Elle était désormais gravée dans son cœur et le resterait jusqu'à la fin des temps...
 
-Le jour touchait à sa fin et, avant que le ciel ne soit totalement obscurci, un rayon de lumière stellaire apparut soudainement. Tant d'événements inimaginables se produisaient dans la Terre des Esprits Démons que personne ne s'interrogeait sur l'origine de cette lueur; cela n'avait aucune importance. Ce qui importait, c'est que cette lumière stellaire, conjuguée à la musique de la cithare, avait touché les souvenirs que Wang Lin avait scellés.
+Le jour touchait à sa fin et, avant que le ciel ne soit totalement obscurci, un rayon de lumière stellaire apparut soudainement. Tant d'événements inimaginables se produisaient dans la Terre Yao Ling que personne ne s'interrogeait sur l'origine de cette lueur; cela n'avait aucune importance. Ce qui importait, c'est que cette lumière stellaire, conjuguée à la musique de la cithare, avait touché les souvenirs que Wang Lin avait scellés.
 
 La lumière stellaire s'imprima dans le regard de Wang Lin et, tandis que la musique s'éloignait progressivement, un sentiment commença à se condenser dans sa poitrine. C'était une profonde solitude qui resta gravée en lui durant un long moment.
 

@@ -74,7 +74,7 @@ Dans son esprit, son corps avait disparu; seule subsistait l'anneau doré, compo
 
 Chaque rune possédait une aura unique, mais leur combinaison était d'une harmonie extrême. Elles scellaient la chair, puis l'âme originelle, et enfin l'âme elle-même, ce qui revenait à sceller l'existence même d'un être.
 
-L'effet de ce trésor ressemblait fort au pouvoir de scellement du Clan de l'Extermination des Scellés, bien qu'il y eût des nuances.
+L'effet de ce trésor ressemblait fort au pouvoir de scellement du Clan Feng Mie, bien qu'il y eût des nuances.
 
 Tout cela se produisit en un instant; en un battement de cils, il avait déjà percé de nombreux secrets.
 

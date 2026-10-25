@@ -32,29 +32,29 @@ Derrière lui, les dizaines de milliers de lumières brillaient et dégageaient 
 
 Le hurlement du vent résonnait dans la neige, composant peu à peu un chant mélancolique qui accompagnait la silhouette solitaire de Wang Lin.
 
-Quelques mois plus tard, dans la Mer des Pilules effondrée. Cet endroit était devenu un bassin gigantesque; il n'y avait plus rien ici. Nulle trace de vitalité, seulement désolation et mort.
+Quelques mois plus tard, dans la Mer Dan effondrée. Cet endroit était devenu un bassin gigantesque; il n'y avait plus rien ici. Nulle trace de vitalité, seulement désolation et mort.
 
-La silhouette de Wang Lin apparut dans le ciel au-dessus de la Mer des Pilules. C'était la deuxième fois qu'il revenait ici. Comparé à son précédent passage, il semblait habité par un esprit d'adieu.
+La silhouette de Wang Lin apparut dans le ciel au-dessus de la Mer Dan. C'était la deuxième fois qu'il revenait ici. Comparé à son précédent passage, il semblait habité par un esprit d'adieu.
 
-Alors qu'il traversait la Mer des Pilules désolée, Wang Lin déploya son Sens Divin. Plus il se rapprochait du Continent du Démon Vert, plus il se faisait prudent. Après un mois, lorsqu'il posa le pied sur le Continent du Démon Vert, il sentit une aura lugubre envelopper l'intégralité du territoire.
+Alors qu'il traversait la Mer Dan désolée, Wang Lin déploya son Sens Divin. Plus il se rapprochait du Continent Lu Mo, plus il se faisait prudent. Après un mois, lorsqu'il posa le pied sur le Continent Lu Mo, il sentit une aura lugubre envelopper l'intégralité du territoire.
 
 Cette aura sombre exsudait la froideur et la soif de sang, imprégnée d'une pointe de malveillance. Les mortels, les bêtes et même les cultivateurs nés ici portaient en eux une trace de nature démoniaque.
 
-Les terres du Continent du Démon Vert différaient grandement de celles du Continent du Taureau Céleste. Les montagnes y étaient rares, le terrain étant majoritairement composé de marais. Ces étendues marécageuses sans fin semblaient receler d'innombrables légendes terrifiantes; la simple idée de les arpenter donnait la chair de poule.
+Les terres du Continent Lu Mo différaient grandement de celles du Continent Tian Niu. Les montagnes y étaient rares, le terrain étant majoritairement composé de marais. Ces étendues marécageuses sans fin semblaient receler d'innombrables légendes terrifiantes; la simple idée de les arpenter donnait la chair de poule.
 
-Wang Lin appréciait très peu le Continent du Démon Vert.
+Wang Lin appréciait très peu le Continent Lu Mo.
 
 Peu de cultivateurs puissants subsistaient sur ce continent; la plupart n'étaient que des êtres faibles ne représentant aucune menace pour lui. Néanmoins, il maintint son rythme habituel en utilisant la Distorsion Spatiale pour traverser le territoire.
 
-Il sentait qu'au plus profond du Continent du Démon Vert résidait une force mystérieuse. Cette force était monstrueuse et saturée d'énergie démoniaque. Selon la carapace de tortue, c'était là que se trouvait le Temple du Scorpion du Démon Vert.
+Il sentait qu'au plus profond du Continent Lu Mo résidait une force mystérieuse. Cette force était monstrueuse et saturée d'énergie démoniaque. Selon la carapace de tortue, c'était là que se trouvait le Temple Lü Mo Xie.
 
-Le Continent du Taureau Céleste ne possédait pas de Temple du Taureau Céleste. Ce genre d'édifice nécessitait l'autorisation de l'Empereur; sans elle, aucun temple ne pouvait être érigé.
+Le Continent Tian Niu ne possédait pas de Temple Tian Niu. Ce genre d'édifice nécessitait l'autorisation de l'Empereur; sans elle, aucun temple ne pouvait être érigé.
 
 L'énergie démoniaque était si intense qu'elle pouvait affecter l'esprit. Wang Lin n'approcha pas le lieu, mais le contourna, continuant sa téléportation vers la frontière du Continent Terre-Meng.
 
-Le temps s'écoula lentement. En un éclair, plusieurs mois passèrent. Durant cette période, Wang Lin croisa quelques cultivateurs, mais aucun ne put l'arrêter. Après plusieurs mois, il atteignit la bordure du Continent du Démon Vert.
+Le temps s'écoula lentement. En un éclair, plusieurs mois passèrent. Durant cette période, Wang Lin croisa quelques cultivateurs, mais aucun ne put l'arrêter. Après plusieurs mois, il atteignit la bordure du Continent Lu Mo.
 
-À la frontière du Continent Terre-Meng se dressait l'une des rares chaînes de montagnes du Continent du Démon Vert. Elle était si haute qu'elle semblait toucher le ciel. Une fois franchie, il atteindrait le Continent Terre-Meng.
+À la frontière du Continent Terre-Meng se dressait l'une des rares chaînes de montagnes du Continent Lu Mo. Elle était si haute qu'elle semblait toucher le ciel. Une fois franchie, il atteindrait le Continent Terre-Meng.
 
 Debout au pied de cette chaîne, Wang Lin contempla calmement les sommets imposants. Il perçut deux sources monstrueuses d'énergie démoniaque au sommet, lesquelles se condensaient en deux géants scorpions enroulés devant la montagne.
 
@@ -62,9 +62,9 @@ C'étaient deux Messagers du Démon Vert!
 
 Derrière ces deux sources d'énergie, une énergie d'épée monstrueuse régnait au sommet. À l'arrivée de Wang Lin, cette ancienne énergie d'épée libéra une aura capable de briser les cieux et la terre alors qu'elle flottait au-dessus des cimes.
 
-C'était la première fois que Wang Lin rencontrait une puissance capable de l'entraver sur le Continent du Démon Vert. Il sentit une aura familière émaner de l'épée.
+C'était la première fois que Wang Lin rencontrait une puissance capable de l'entraver sur le Continent Lu Mo. Il sentit une aura familière émaner de l'épée.
 
-Cela confirmait que sa décision de traverser le Continent du Démon Vert était la bonne. S'il avait pris une autre direction, il aurait rencontré bien plus d'obstacles encore.
+Cela confirmait que sa décision de traverser le Continent Lu Mo était la bonne. S'il avait pris une autre direction, il aurait rencontré bien plus d'obstacles encore.
 
 « Trois personnes... Ils m'accordent trop de crédit. » Wang Lin resta imperturbable et marcha vers la montagne. Dès qu'il fit un pas en avant, deux auras démoniaques jaillirent. De loin, elles ressemblaient à deux féroces Scorpions du Démon Vert s'élançant du sommet vers lui.
 
@@ -82,7 +82,7 @@ Soudain, une aura terrifiante émana de son corps. Ce Messager du Démon Vert é
 
 Ce fut une autodestruction totale, sans l'ombre d'une hésitation. Il explosa subitement!
 
-L'autodestruction d'un cultivateur au stade intermédiaire de la Tribulation du Vide suffisait à ébranler le Continent du Démon Vert. Cette force était assez puissante pour faire froncer les sourcils de cultivateurs au stade tardif de la Tribulation du Vide.
+L'autodestruction d'un cultivateur au stade intermédiaire de la Tribulation du Vide suffisait à ébranler le Continent Lu Mo. Cette force était assez puissante pour faire froncer les sourcils de cultivateurs au stade tardif de la Tribulation du Vide.
 
 Sans raison apparente, sans aucun présage, après l'explosion du premier messager, le second, situé juste derrière lui, choisit également de s'autodétruire!
 
@@ -94,7 +94,7 @@ Le combat n'avait même pas commencé qu'ils avaient déjà opté pour l'autodes
 
 Ce qui sort de l'ordinaire cache forcément un démon!
 
-Pour être prêt à sacrifier deux messagers du stade intermédiaire de la Tribulation du Vide, le Continent du Démon Vert devait manigancer quelque chose de monstrueux. Ils ne permettraient pas à Wang Lin de quitter les lieux si facilement.
+Pour être prêt à sacrifier deux messagers du stade intermédiaire de la Tribulation du Vide, le Continent Lu Mo devait manigancer quelque chose de monstrueux. Ils ne permettraient pas à Wang Lin de quitter les lieux si facilement.
 
 Des grondements tonitruants résonnèrent et les yeux de Wang Lin brillèrent. Sa main droite s'élança vers le vide et l'armure élémentaire de terre humanoïde apparut. D'un geste, une lumière jaune terreuse enveloppa son corps.
 

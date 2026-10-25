@@ -28,7 +28,7 @@ Il ignorait ce qu'était devenu le fou. Il ne savait pas s'il continuerait à ru
 
 « Le sang de ce roi est très, très, très, très... Hé, je crois me souvenir d'une petite diablesse nommée Fei Fei qui m'a donné quelque chose à manger... »
 
-La voix du fou semblait résonner à ses oreilles. Dans l'obscurité des ruines de la Secte du Dao Démoniaque, Wang Lin soupira. Il se rappelait le moment où le fou était apparu lors de sa crise de vie ou de mort sur la planète Suzaku, l'avait serré dans ses bras et avait paré à sa place une technique mortelle.
+La voix du fou semblait résonner à ses oreilles. Dans l'obscurité des ruines de la Secte Dao Mo, Wang Lin soupira. Il se rappelait le moment où le fou était apparu lors de sa crise de vie ou de mort sur la planète Suzaku, l'avait serré dans ses bras et avait paré à sa place une technique mortelle.
 
 Il se souvenait encore du troisième rêve, lorsqu'il était devenu un mortel et qu'il flottait avec le fou dans le vide. Dans le Dao des Rêves, il avait rencontré le fou et ils avaient traversé soixante années ensemble.
 
@@ -38,15 +38,15 @@ En vérité, il n'avait pas grand-chose donné au fou; c'était plutôt le fou q
 
 « Je dois aller à la cité impériale, mais ce sera dangereux. Je dois faire quelques préparatifs avant de partir... » Wang Lin médita silencieusement et prit sa décision.
 
-« Les cinq Grands Empyréens du clan céleste... » Wang Lin agita sa main droite et le fragment de carapace de tortue que l'Ancêtre de la Secte de la Grande Âme, le Vieux Taureau Vert, lui avait donné apparut. Outre la carte, il y avait des informations sur les Grands Empyréens. Xuan Luo lui avait également transmis quelques renseignements lorsqu'ils étaient dans le monde des grottes.
+« Les cinq Grands Empyréens du clan céleste... » Wang Lin agita sa main droite et le fragment de carapace de tortue que l'Ancêtre de la Secte Da Hun, le Vieux Taureau Vert, lui avait donné apparut. Outre la carte, il y avait des informations sur les Grands Empyréens. Xuan Luo lui avait également transmis quelques renseignements lorsqu'ils étaient dans le monde des grottes.
 
 « L'Empereur Céleste du Continent Central a hérité des Huit Dao Extrêmes de l'Ancêtre Céleste et est le Grand Empyréen Huit Extrêmes! »
 
 « La Secte Yang Pourpre du Continent de l'Est, le plus puissant des neuf sectes et treize factions, abrite le Grand Empyréen Shuangzi! »
 
-« La Secte Dao Yi du Continent du Sud possède le Grand Empyréen Dao Yi! »
+« La Secte Dao Yi du Continent Nan possède le Grand Empyréen Dao Yi! »
 
-« La Secte de l'Univers du Continent du Nord possède le Grand Empyréen Wu Feng! »
+« La Secte Qian Kun du Continent Bei possède le Grand Empyréen Wu Feng! »
 
 « Dans le Continent Central, il existe un autre Grand Empyréen aux côtés de l'Empereur Céleste, et c'est le Grand Empyréen Jiu Di! »
 
@@ -64,7 +64,7 @@ Car les Ascendants Empyréens étaient encore plus rares. Sur l'ensemble du Cont
 
 La plupart d'entre eux étaient en culture recluse, cachés à travers le Continent Astral Immortel. Moins de 30 % d'entre eux servaient un Grand Empyréen.
 
-De telles figures étaient respectées même par les Grands Empyréens. Après tout, ils étaient les plus puissants sous la juridiction des Grands Empyréens! S'ils ne souhaitaient pas suivre un Grand Empyréen, ces derniers ne les contraindraient pas, à moins qu'ils ne soient comme Luo Yunhai de la Secte de la Grande Âme, qui avait défié un Grand Empyréen.
+De telles figures étaient respectées même par les Grands Empyréens. Après tout, ils étaient les plus puissants sous la juridiction des Grands Empyréens! S'ils ne souhaitaient pas suivre un Grand Empyréen, ces derniers ne les contraindraient pas, à moins qu'ils ne soient comme Luo Yunhai de la Secte Da Hun, qui avait défié un Grand Empyréen.
 
 Et lorsqu'un Ascendant Empyréen choisissait de suivre un Grand Empyréen, celui-ci, après l'avoir vérifié, le traitait avec égards et en faisait un membre du noyau dur. C'était parce qu'un Ascendant Empyréen constituait le meilleur gardien lors de la réincarnation d'un Grand Empyréen!!
 
@@ -98,11 +98,11 @@ Bien que le fait qu'un cultivateur du monde des grottes puisse s'en extraire fû
 
 « Je dois attirer leur attention pour qu'ils viennent à ma rencontre. C'est la meilleure stratégie! » Les yeux de Wang Lin s'illuminèrent, puis il les ferma lentement.
 
-Il attendait l'arrivée de l'Ancêtre de la Secte du Dao Démoniaque. Il allait se maintenir dans sa condition optimale pour affronter un Exalté Empyréen et tester l'étendue de sa puissance.
+Il attendait l'arrivée de l'Ancêtre de la Secte Dao Mo. Il allait se maintenir dans sa condition optimale pour affronter un Exalté Empyréen et tester l'étendue de sa puissance.
 
 Les Exalté Dorés ne suffisaient plus pour qu'il puisse évaluer sa force. Seuls les Exaltés Empyréens pourraient l'aider à le faire.
 
-Pendant son attente, il absorbait impitoyablement l'âme originelle du Maître de la Secte du Dao Démoniaque. Cependant, il ne chercha pas à condenser une deuxième Veine Magique immédiatement; il sortit plutôt les dizaines d'âmes originelles qu'il avait collectées. Il choisit celles dont le niveau était égal ou inférieur à cinq Tribulations Arcaniques pour les dévorer et former sa seconde Veine Magique.
+Pendant son attente, il absorbait impitoyablement l'âme originelle du Maître de la Secte Dao Mo. Cependant, il ne chercha pas à condenser une deuxième Veine Magique immédiatement; il sortit plutôt les dizaines d'âmes originelles qu'il avait collectées. Il choisit celles dont le niveau était égal ou inférieur à cinq Tribulations Arcaniques pour les dévorer et former sa seconde Veine Magique.
 
 Le temps s'écoulait lentement. Plusieurs heures plus tard, alors que l'aube pointait et après avoir dévoré neuf âmes originelles de niveau inférieur à cinq Tribulations Arcaniques, le second vortex se condensa instantanément!
 
@@ -116,8 +116,8 @@ Cela différait du cultivateur auprès duquel Wang Lin avait appris cette techni
 
 Les dizaines d'âmes originelles, de niveaux inégaux, avaient été en grande partie dévorées; Wang Lin rangea le reste pour d'autres usages.
 
-« Je me demande combien de Veines Magiques l'âme originelle du Maître de la Secte du Dao Démoniaque pourra former... » Wang Lin ferma les yeux et commença à façonner les Veines Magiques avec l'âme du Maître de la Secte.
+« Je me demande combien de Veines Magiques l'âme originelle du Maître de la Secte Dao Mo pourra former... » Wang Lin ferma les yeux et commença à façonner les Veines Magiques avec l'âme du Maître de la Secte.
 
-À cet instant, le ciel était clair et la lumière du soleil brillait de mille feux. Alors que Wang Lin forgeait sa veine magique, un rayon de lumière fendit la frontière entre le Continent Terre-Meng et le Continent du Démon Vert. Les cultivateurs furent ébranlés par ce flash lumineux, et aucun d'eux n'osa lever les yeux vers l'extérieur.
+À cet instant, le ciel était clair et la lumière du soleil brillait de mille feux. Alors que Wang Lin forgeait sa veine magique, un rayon de lumière fendit la frontière entre le Continent Terre-Meng et le Continent Lu Mo. Les cultivateurs furent ébranlés par ce flash lumineux, et aucun d'eux n'osa lever les yeux vers l'extérieur.
 
 Les frontières entre les continents étaient totalement ignorées par les Exaltés Empyréens!

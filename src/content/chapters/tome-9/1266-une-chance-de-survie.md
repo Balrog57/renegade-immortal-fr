@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1266 - A Chance of Survival
 slug: une-chance-de-survie
 ---
-Un courant sous-jacent agitait la Mer des Nuages, provoqué par la Secte Divine. Il interférait avec une série de personnes et d'événements!
+Un courant sous-jacent agitait la Mer Yun, provoqué par la Secte Divine. Il interférait avec une série de personnes et d'événements!
 
 Li Qianmei était retenue par sa secte et n'avait pas le droit de sortir pendant trois mois. Son maître était sorti de sa culture en isolement de dix mille ans pour empêcher sa disciple la plus chère de s'échapper.
 
@@ -22,11 +22,11 @@ Cependant, pour l'instant, Mu Bingmei n'en savait rien.
 
 Même Li Qianmei ignorait que la compétition entre sectes de rang 8 avait été annulée par la Secte Divine!
 
-Ce courant sous-jacent se propageait à travers toute la Mer des Nuages.
+Ce courant sous-jacent se propageait à travers toute la Mer Yun.
 
-Sur le continent de Mo Luo, tous les disciples de la Secte de l'Origine emballaient précipitamment leurs affaires sur ordre de Lu Yanfei. Il leur avait fallu trois jours pour tout ranger. Ils étaient désormais prêts à quitter cette région de rang 5 où ils avaient vécu d'innombrables années pour rejoindre le nouveau siège de la Secte de l'Origine, préparé par la Secte Éternelle dans la région de rang 7.
+Sur le continent de Mo Luo, tous les disciples de la Secte Gui Yuan emballaient précipitamment leurs affaires sur ordre de Lu Yanfei. Il leur avait fallu trois jours pour tout ranger. Ils étaient désormais prêts à quitter cette région de rang 5 où ils avaient vécu d'innombrables années pour rejoindre le nouveau siège de la Secte Gui Yuan, préparé par la Secte Éternelle dans la région de rang 7.
 
-Wang Lin était assis dans une pièce secrète de la Secte de l'Origine. Son esprit était fusionné avec l'âme de Tian Yunzi, contenue dans le Sceau Céleste. À cet instant, il semblait être devenu Tian Yunzi lui-même.
+Wang Lin était assis dans une pièce secrète de la Secte Gui Yuan. Son esprit était fusionné avec l'âme de Tian Yunzi, contenue dans le Sceau Céleste. À cet instant, il semblait être devenu Tian Yunzi lui-même.
 
 Tout dans le monde semblait lui être connu, mais ce n'était qu'une apparence!
 
@@ -44,7 +44,7 @@ Pourtant, ce genre de prédiction était trop ardu pour lui. Après tout, il n'�
 
 Mais Wang Lin n'abandonna pas; toute son énergie originelle s'agita, le faisant fusionner davantage avec Tian Yunzi. À mesure que leur intégration s'approfondissait, il semblait oublier certaines choses.
 
-Il oublia qu'il cultivait et qu'il se trouvait à la Secte de l'Origine, dans la Mer des Nuages. À cet instant, il oublia tout!
+Il oublia qu'il cultivait et qu'il se trouvait à la Secte Gui Yuan, dans la Mer Yun. À cet instant, il oublia tout!
 
 Le brouillard qui couvrait le monde commença à tourner rapidement, et un grondement tonnerre résonna dans son esprit. C'était comme si une paire de mains gigantesques et invisibles agitait ce brouillard, créant un vortex!
 

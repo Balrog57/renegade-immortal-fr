@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 537 - The Earthquake
 slug: le-tremblement-de-terre
 ---
-Le vieil homme en robe grise réfléchissait silencieusement. Il n'avait guère d'estime pour son compatriote de tribu qui s'était rendu à la Cité de l'Ancien Démon pour y obtenir un poste.
+Le vieil homme en robe grise réfléchissait silencieusement. Il n'avait guère d'estime pour son compatriote de tribu qui s'était rendu à la Cité Gu Yao pour y obtenir un poste.
 
 Peu après, alors qu'il s'apprêtait à prendre la parole, le sol se mit à trembler comme si un dragon gigantesque s'agitait en profondeur. Puis, de puissants grondements retentirent à travers toute la zone de la tribu, étendue sur cinq kilomètres.
 
@@ -48,7 +48,7 @@ Le regard de Wang Lin restait impavide alors qu'il déclara lentement: « Qui m'
 
 Sa voix était calme au début, mais lorsqu'elle atteignit le sol, elle tonna comme un coup de tonnerre céleste dans les cinq kilomètres environnants. Le vieil homme en robe grise devint soudainement livide; son corps vacilla et il recula de quelques pas. Puis du sang s'écoula du coin de sa bouche, et la stupeur dans ses yeux atteignit son paroxysme.
 
-Le vieil homme en robe blanche parvint à peine à tenir debout. Il serra les dents et hurla: « Qui es-tu?! Je suis le diacre du général de l'aile gauche de la Cité de l'Ancien Démon! »
+Le vieil homme en robe blanche parvint à peine à tenir debout. Il serra les dents et hurla: « Qui es-tu?! Je suis le diacre du général de l'aile gauche de la Cité Gu Yao! »
 
 Le regard glacial de Wang Lin se posa sur lui et il dit froidement: « Ce doit être toi. Je peux sentir l'aura du drapeau de l'âme sur toi. Tu es mort! »
 

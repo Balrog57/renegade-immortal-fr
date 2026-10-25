@@ -44,7 +44,7 @@ Le corps divin ancestral de Wang Lin subit un impact inimaginable lors de cette 
 
 Dans le ciel, le drapeau de l'Ancien Démon Bei Luo percuta l'énergie de la lame, propageant un choc colossal, une onde de choc annulaire balayant les environs. De nouvelles fissures déchirèrent la voûte céleste; dans ces fissures, du magma suintait en filets rouge sang. À ce moment précis, on aurait dit que le ciel pouvait s'effondrer d'un simple toucher.
 
-« Wang Lin, nous devons tout donner contre lui; sinon, aucun de nous n'échappera à cette Grotte de l'Empereur Céleste! » rugit l'Ancien Démon Bei Luo en chargeant le démon ancestral. Cependant, son corps commença soudainement à battre en retraite. Il fut si rapide qu'il laissa une image rémanente derrière lui, se précipitant vers le ciel fracturé.
+« Wang Lin, nous devons tout donner contre lui; sinon, aucun de nous n'échappera à cette Grotte Xian Di! » rugit l'Ancien Démon Bei Luo en chargeant le démon ancestral. Cependant, son corps commença soudainement à battre en retraite. Il fut si rapide qu'il laissa une image rémanente derrière lui, se précipitant vers le ciel fracturé.
 
 Pourtant, si Bei Luo était rapide, Wang Lin l'était plus encore. Dès que l'Ancien Démon Bei Luo rugit, Wang Lin saisit également Wang Wei et Hu Juan avant de charger vers les cieux. Il fut légèrement plus rapide que Bei Luo en frappant le ciel de son poing.
 
@@ -82,15 +82,15 @@ C'est alors qu'un rugissement assourdissant, qui fit trembler le magma même, re
 
 En un clin d'œil, tout le magma du septième étage disparut, laissant place à un dragon de feu d'une démesure indescriptible qui fixait les créatures en contrebas.
 
-Simultanément, dans l'espace infini où se trouvait la poussière abritant la Terre des Esprits Démoniaques, un incendie ravageait l'horizon. Un Oiseau Vermillon géant, poussant des cris stridents, s'approchait lentement.
+Simultanément, dans l'espace infini où se trouvait la poussière abritant la Terre Yao Ling, un incendie ravageait l'horizon. Un Oiseau Vermillon géant, poussant des cris stridents, s'approchait lentement.
 
-Cet Oiseau Vermillon était doté d'une intelligence. Contre toute attente, il ne se dirigeait pas vers l'entrée de la Mer de l'Est de l'étoile Tianyun, mais vers la véritable localisation de la Terre des Esprits Démoniaques!
+Cet Oiseau Vermillon était doté d'une intelligence. Contre toute attente, il ne se dirigeait pas vers l'entrée de la Mer Dong de l'étoile Tianyun, mais vers la véritable localisation de la Terre Yao Ling!
 
 Une multitude de cultivateurs suivaient cet Oiseau Vermillon, parmi lesquels se trouvaient six Anciens. Ces derniers portaient tous des robes rouges et dégageaient chacun une aura puissante. Tous étaient des cultivateurs au stade du Briseur du Nirvana!
 
 « Selon les recherches avec l'esprit véritable, c'est ici que se trouve la personne qui s'est éveillée, et c'est aussi le lieu de ce mystérieux sentiment de danger. Ce voyage pourrait être extrêmement périlleux, mais même si je dois tout risquer, je dois protéger celui qui s'est éveillé! » Les six Anciens échangèrent des regards empreints de détermination. Tous les autres membres de la Secte Divine de l'Oiseau Vermillon affichaient la même résolution!
 
-Au même moment, une voix majestueuse retentit depuis la planète située au-dessus du vortex, au siège de l'Alliance de Culture:
+Au même moment, une voix majestueuse retentit depuis la planète située au-dessus du vortex, au siège de l'Alliance Xiu Zhen:
 
 « Suspendez le combat avec Luotian. Envoyez toutes les forces vers la grotte de Qing Lin! »
 

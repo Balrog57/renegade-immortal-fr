@@ -20,7 +20,7 @@ Song Tian se tenait à 10 000 pieds du temple ancestral, contemplant les 18 halo
 
 Il avait gardé Wang Lin pendant trois ans. Bien qu'il ne fût pas le seul ici, sa décision était prise. Si Wang Lin avait couru le moindre danger au cours de ces trois années, il l'aurait certainement aidé.
 
-Maintenant que la première scission était achevée, il sentait qu'il n'y avait plus de raison de rester. Il ne se retourna pas en regagnant sa Montagne d'Origine. Il cessa de prêter attention au temple ancestral et se remit à cultiver.
+Maintenant que la première scission était achevée, il sentait qu'il n'y avait plus de raison de rester. Il ne se retourna pas en regagnant sa Montagne Yuan Shi. Il cessa de prêter attention au temple ancestral et se remit à cultiver.
 
 Wang Lin sentit clairement le départ de Song Tian. Alors qu'il était assis à l'intérieur du temple ancestral, l'ombre surplombant sa tête était bien plus vaste qu'auparavant. Bien que son niveau de culture n'ait pas augmenté, il sentait qu'il était devenu plus puissant!
 
@@ -108,7 +108,7 @@ Même l'Empereur des Anciens Shi, qui ne prêtait plus attention à la situation
 
 Ji Du s'élança dans les airs et observa la scène avec nervosité, serrant inconsciemment le poing.
 
-Song Tian, debout au sommet de la corne de la Montagne d'Origine, affichait une expression incertaine.
+Song Tian, debout au sommet de la corne de la Montagne Yuan Shi, affichait une expression incertaine.
 
 L'un des 18 halos s'assombrit rapidement puis, un bâton d'encens plus tard, il se brisa soudainement en d'innombrables fragments.
 

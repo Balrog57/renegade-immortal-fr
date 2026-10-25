@@ -37,7 +37,7 @@ Il protègerait les trois nations du clan Ancien, ainsi que toute existence capa
 
 Au centre de ces trois nations se trouvait la terre sainte du clan Ancien, là où résidait le plus puissant des Grands Empyréens.
 
-Wang Lin avait appris l'existence du clan Ancien par l'intermédiaire de Xuan Luo dans le monde caverneux et grâce aux archives de la Secte du Yang Pourpre des Grands Empyréens jumeaux. Par conséquent, Wang Lin n'était pas aussi désemparé qu'à son arrivée dans le clan Céleste.
+Wang Lin avait appris l'existence du clan Ancien par l'intermédiaire de Xuan Luo dans le monde caverneux et grâce aux archives de la Secte Zi Yang des Grands Empyréens jumeaux. Par conséquent, Wang Lin n'était pas aussi désemparé qu'à son arrivée dans le clan Céleste.
 
 Cependant, le clan Ancien était tout simplement trop vaste, et Wang Lin ne possédait aucune carte de l'Ancien Dao. Il lui fallait trouver une pierre de jade cartographique avant de pouvoir s'y rendre.
 

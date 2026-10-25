@@ -116,7 +116,7 @@ L'espace se comprima et un sentiment d'étouffement envahit le cœur de chaque c
 
 Sous cette empreinte, l'homme massif au vent et au tonnerre accourut vers Qing Shui et sa fille! Le jeune homme maléfique, Dao Feishan, afficha un sourire obscène et, d'un geste de la main, balaya tout le monde pour ne laisser que Mu Bingmei face à lui.
 
-Cependant, au moment le plus critique, un cri perçant retentit à la frontière entre Luotian et la Mer des Nuages.
+Cependant, au moment le plus critique, un cri perçant retentit à la frontière entre Luotian et la Mer Yun.
 
 Ce cri n'était pas l'œuvre d'un cultivateur; c'était une flèche!
 

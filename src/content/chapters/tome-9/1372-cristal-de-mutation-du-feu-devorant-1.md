@@ -24,7 +24,7 @@ D'un simple geste de la main, Wang Lin avait provoqué l'accumulation des nuages
 
 Le vieil homme maigre nommé Zhang était livide, en ayant presque cessé de respirer. Il restait hébété, le visage marqué par une horreur inimaginable.
 
-Même Zhong Dahong fut secoué. Bien qu'il eût déjà vu la puissance de Wang Lin au sein du Clan du Tonnerre Dispersé, le revoir ici lui faisait ressentir une fois de plus l'infinie majesté de ce dernier.
+Même Zhong Dahong fut secoué. Bien qu'il eût déjà vu la puissance de Wang Lin au sein du Clan Shan Lei, le revoir ici lui faisait ressentir une fois de plus l'infinie majesté de ce dernier.
 
 L'expression de Wang Lin n'avait pas changé, malgré le fait qu'il soit traqué et caché dans la Terre Déchue. Si cela avait été n'importe qui d'autre, il aurait cherché à rester discret et à éviter toute confrontation inutile.
 
@@ -64,7 +64,7 @@ Sans même accorder un regard au jeune homme, Wang Lin frappa à nouveau le sol 
 
 « Ils sont vraiment comme des scorpions qui aiment se tapir dans l'obscurité souterraine, refusant toujours de paraître malgré tout cela... » murmura calmement Wang Lin en progressant vers l'étage suivant.
 
-Ainsi continua Wang Lin, descendant étage après étage. Des cris lugubres résonnaient à mesure que d'autres membres du Clan du Scorpion Noir étaient scellés et projetés dans les airs. Ils étaient désormais bien plus que quelques dizaines.
+Ainsi continua Wang Lin, descendant étage après étage. Des cris lugubres résonnaient à mesure que d'autres membres du Clan An Xie étaient scellés et projetés dans les airs. Ils étaient désormais bien plus que quelques dizaines.
 
 « Votre Excellence est allée trop loin!!! » Alors que Wang Lin poursuivait sa descente, un rugissement soudain jaillit des profondeurs de la tour.
 
@@ -98,7 +98,7 @@ Il portait également une marque de scorpion entre les sourcils, mais comparée 
 
 Ces quatre queues pendaient, dissimulant son visage et lui donnant un air terrifiant. Cependant, à cet instant, il était livide et cracha une gorgée de sang. Il leva soudainement les yeux, le regard empreint d'une lueur féroce, avant de charger Wang Lin.
 
-« Bien que mon Clan du Scorpion Noir ne soit qu'un petit clan, il est l'un des 372 clans reconnus par la Terre Déchue. Si vous agissez contre moi aujourd'hui, vous vous ferez l'ennemi de toute la Terre Déchue! »
+« Bien que mon Clan An Xie ne soit qu'un petit clan, il est l'un des 372 clans reconnus par la Terre Déchue. Si vous agissez contre moi aujourd'hui, vous vous ferez l'ennemi de toute la Terre Déchue! »
 
 « Si tel est le cas, l'Empereur de la Terre Déchue ne vous épargnera certainement pas! »
 

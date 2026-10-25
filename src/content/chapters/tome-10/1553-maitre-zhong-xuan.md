@@ -76,7 +76,7 @@ Le visage de Maître Zhong Xuan devint livide et il recula instinctivement de qu
 
 « Peu importe l'âpreté des combats dans le Royaume Intérieur, cela n'a rien à voir avec le Royaume Extérieur. Tant qu'ils ne pénètrent pas ici, ce vieil homme ne s'éveillera pas. L'ascension ou la chute de l'Alliance appartient au destin. Si je vous ai permis de fonder cette Alliance, ce n'était pas pour contrôler le Vide Brillant, mais pour permettre à nos cultivateurs de se renforcer dans cet environnement cruel! Tout cela était en vue de la guerre contre le Royaume Extérieur! » Maître Long Pan soupira.
 
-« Une Alliance des Cultivateurs, une Alliance des Cultivateurs... La seule raison pour laquelle le Royaume Extérieur a conclu un marché avec vous est qu'ils m'ont vu à l'intérieur de cette planète. Et vous leur avez révélé mon existence en échange d'une grande fortune! »
+« Une Alliance Xiu Zhen, une Alliance Xiu Zhen... La seule raison pour laquelle le Royaume Extérieur a conclu un marché avec vous est qu'ils m'ont vu à l'intérieur de cette planète. Et vous leur avez révélé mon existence en échange d'une grande fortune! »
 
 Maître Long Pan connaissait trop bien son disciple. Il regarda Maître Zhong Xuan, blême, et entrevit fugacement le passé, avant même la création de l'Alliance. Un jeune garçon mendiant gravissait une montagne avec détermination. Il avait fallu dix-sept jours à l'enfant pour se présenter devant lui, couvert de sang.
 

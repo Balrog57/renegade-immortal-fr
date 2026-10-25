@@ -16,11 +16,11 @@ Wang Lin réfléchit un instant, puis scruta le jade de son Sens Divin. Au fil d
 
 Il se leva, entra dans l'ancien réseau de transfert, l'activa et disparut.
 
-Le pays de Chu était la nation la plus proche du Clan des Immortels Délaissés. Il y avait naturellement de nombreux membres de ce clan ici.
+Le pays de Chu était la nation la plus proche du Clan Xian Yi. Il y avait naturellement de nombreux membres de ce clan ici.
 
-La Secte du Ciel Nuageux de Chu était tombée aux mains du Clan des Immortels Délaissés depuis bien longtemps; cela s'était produit dès leur apparition. Tous les cultivateurs de la secte portaient des tatouages implantés dans leur corps. Les mortels avaient eu de la chance et n'avaient pas été trop affectés; seuls quelques villages trop proches des sectes de cultivateurs avaient été touchés accidentellement par les sorts lors des assauts du Clan des Immortels Délaissés.
+La Secte Yun Tian était tombée aux mains du Clan Xian Yi depuis bien longtemps; cela s'était produit dès leur apparition. Tous les cultivateurs de la secte portaient des tatouages implantés dans leur corps. Les mortels avaient eu de la chance et n'avaient pas été trop affectés; seuls quelques villages trop proches des sectes de cultivateurs avaient été touchés accidentellement par les sorts lors des assauts du Clan Xian Yi.
 
-Hormis le fait de ravir les enfants capables de cultiver, le Clan des Immortels Délaissés ne tuait pas les mortels.
+Hormis le fait de ravir les enfants capables de cultiver, le Clan Xian Yi ne tuait pas les mortels.
 
 Ce jour-là, Wang Lin émergea d'un réseau de transfert dans la partie ouest du Chu.
 
@@ -28,25 +28,25 @@ Le ciel au-dessus du pays était sombre. Bien qu'il fût en plein jour, la lumi�
 
 Ce qui frappait véritablement le regard, c'était cette plante surgissant de la Nécropole Immortelle et perçant les cieux. En l'observant de si près, elle était terrifiante et donnait un sentiment d'insignifiance absolue.
 
-On pouvait voir des membres du Clan des Immortels Délaissés planer dans le ciel, suivis par des cultivateurs. Tous ces derniers arboraient des tatouages sur leur corps et leurs yeux étaient ternes. En plus de cela, d'innombrables plantes mystérieuses poussaient à travers le pays. Ces végétaux se déplaçaient d'une manière sinistre et croissaient à une vitesse fulgurante.
+On pouvait voir des membres du Clan Xian Yi planer dans le ciel, suivis par des cultivateurs. Tous ces derniers arboraient des tatouages sur leur corps et leurs yeux étaient ternes. En plus de cela, d'innombrables plantes mystérieuses poussaient à travers le pays. Ces végétaux se déplaçaient d'une manière sinistre et croissaient à une vitesse fulgurante.
 
 Le Chu avait bien changé depuis le départ de Wang Lin.
 
-L'activation du réseau de transfert attira l'attention du Clan des Immortels Délaissés. À l'instant même où Wang Lin apparut, une masse de nuages noirs convergea du ciel. Sept ou huit chamans se trouvaient à l'intérieur de cette obscurité. Dès qu'ils aperçurent Wang Lin, ils commencèrent à activer la puissance de leurs tatouages pour l'attaquer.
+L'activation du réseau de transfert attira l'attention du Clan Xian Yi. À l'instant même où Wang Lin apparut, une masse de nuages noirs convergea du ciel. Sept ou huit chamans se trouvaient à l'intérieur de cette obscurité. Dès qu'ils aperçurent Wang Lin, ils commencèrent à activer la puissance de leurs tatouages pour l'attaquer.
 
 Wang Lin resta calme. Il ne daigna même pas regarder les chamans avant de mouvoir son corps et de disparaître.
 
 Lorsqu'il réapparut, il se trouvait déjà au village où Zhou Ru était née. L'endroit était totalement désolé et l'une de ces plantes étranges y poussait. Il n'y avait plus aucune trace de vie. Wang Lin laissa échapper un soupir avant de repartir.
 
-Wang Lin ne se rendit pas à la Secte du Ciel Nuageux, car il n'était pas un saint. S'il s'y rendait pour retirer les tatouages des cultivateurs, cela ne serait pas une aide, mais risquerait fort d'attirer le massacre du Clan des Immortels Délaissés.
+Wang Lin ne se rendit pas à la Secte Yun Tian, car il n'était pas un saint. S'il s'y rendait pour retirer les tatouages des cultivateurs, cela ne serait pas une aide, mais risquerait fort d'attirer le massacre du Clan Xian Yi.
 
-Wang Lin croisa de nombreux membres du Clan des Immortels Délaissés en survolant le Chu. Cependant, la plupart d'entre eux étaient au stade des quatre feuilles ou moins, et très peu atteignaient celui des cinq feuilles.
+Wang Lin croisa de nombreux membres du Clan Xian Yi en survolant le Chu. Cependant, la plupart d'entre eux étaient au stade des quatre feuilles ou moins, et très peu atteignaient celui des cinq feuilles.
 
 Initialement, Wang Lin voulait quitter ces lieux pour se rendre sur le champ de bataille étranger afin de rassembler des âmes errantes, mais à cet instant, son cœur trembla.
 
-« En ce moment, la majorité des membres du Clan des Immortels Délaissés sont concentrés sur le continent Suzaku. Je crains qu'il n'en reste plus beaucoup ici… »
+« En ce moment, la majorité des membres du Clan Xian Yi sont concentrés sur le continent Suzaku. Je crains qu'il n'en reste plus beaucoup ici… »
 
-« La dernière fois que j'y suis allé, je n'ai atteint que la troisième couche. Ce Clan des Immortels Délaissés doit avoir accumulé énormément de richesses au cours de ces dizaines de milliers d'années. Puisque je m'apprête à quitter cette planète, je devrais aller vérifier cela pour préparer l'avenir! » Les yeux de Wang Lin s'illuminèrent et il se tourna soudainement vers la Nécropole Immortelle.
+« La dernière fois que j'y suis allé, je n'ai atteint que la troisième couche. Ce Clan Xian Yi doit avoir accumulé énormément de richesses au cours de ces dizaines de milliers d'années. Puisque je m'apprête à quitter cette planète, je devrais aller vérifier cela pour préparer l'avenir! » Les yeux de Wang Lin s'illuminèrent et il se tourna soudainement vers la Nécropole Immortelle.
 
 Il vola à toute allure et, en un clin d'œil, arriva au-dessus de l'orifice menant à la Nécropole Immortelle. L'aura de la plante était encore plus puissante de près. Elle était si immense qu'elle recouvrait entièrement l'entrée de la Nécropole. Wang Lin ne semblait qu'une insignifiante fourmi face à cette plante.
 
@@ -64,7 +64,7 @@ Dès son apparition, l'avatar chargea la plante géante qui obstruait l'entrée.
 
 Les tatouages brillèrent une fois et se transformèrent immédiatement en fils noirs qui percèrent le corps de l'avatar. Les yeux de ce dernier s'éteignirent, il redevint une simple sculpture de bois et tomba au sol.
 
-Le regard de Wang Lin s'anima. Il comprit qu'il n'était pas étonnant que le Clan des Immortels Délaissés ait quitté les lieux; avec une telle plante mystérieuse pour protéger leur base, personne ne pourrait y pénétrer facilement.
+Le regard de Wang Lin s'anima. Il comprit qu'il n'était pas étonnant que le Clan Xian Yi ait quitté les lieux; avec une telle plante mystérieuse pour protéger leur base, personne ne pourrait y pénétrer facilement.
 
 Wang Lin réfléchit un instant, puis frappa son sac de rangement d'où apparut un drapeau d'âmes doré. Ce n'était pas le drapeau au milliard d'âmes, mais celui dont l'âme principale était la bête Qilin.
 
@@ -92,7 +92,7 @@ Le vent sifflait à ses oreilles alors qu'il s'élançait dans le trou. Dès qu'
 
 L'entrée au stade précoce de la Transformation de l'Âme avait étendu son Sens Divin et sa portée de téléportation. En une seule impulsion, il arriva à l'entrée de la deuxième couche. Il scruta toute la première couche et ne trouva que quelques chamans, tous à peu près au stade des trois feuilles.
 
-Wang Lin ne s'arrêta pas et pénétra directement dans la deuxième couche. Puis, par une autre téléportation, il atteignit la troisième couche, là où il avait, avec l'Ancien du Pavillon de Raffinement des Trésors et d'autres, condensé le Fruit de la Réincarnation. L'endroit était totalement désert, à l'exception d'un petit trou où poussait autrefois l'Arbre de la Réincarnation.
+Wang Lin ne s'arrêta pas et pénétra directement dans la deuxième couche. Puis, par une autre téléportation, il atteignit la troisième couche, là où il avait, avec l'Ancien du Pavillon Lian Qi et d'autres, condensé le Fruit de la Réincarnation. L'endroit était totalement désert, à l'exception d'un petit trou où poussait autrefois l'Arbre de la Réincarnation.
 
 Après avoir inspecté les lieux, Wang Lin disparut de nouveau. Cette fois, il réapparut devant l'entrée de la quatrième couche. En voyant cela, son expression changea légèrement et il se dissimula promptement.
 

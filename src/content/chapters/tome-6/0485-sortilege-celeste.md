@@ -18,7 +18,7 @@ En un seul mot, l'âme originelle de la femme vêtue de robes violettes se dési
 
 Le cœur de Wang Lin trembla et ses pupilles se rétractèrent alors qu'il fixait l'endroit où la femme avait disparu, plongé dans une réflexion silencieuse.
 
-« Vous tous, partez! Wang Lin, reste! » Tian Yunzi descendit lentement du ciel et atterrit devant le Pavillon de la Forêt Violette.
+« Vous tous, partez! Wang Lin, reste! » Tian Yunzi descendit lentement du ciel et atterrit devant le Pavillon Zi Lin.
 
 Bai Wei acquiesça rapidement et respectueusement, puis se retourna pour s'envoler vers l'horizon.
 
@@ -34,7 +34,7 @@ Après tout, Situ Nan ne pouvait pas désintégrer une âme originelle d'un simp
 
 Au cours du mois passé ensemble, Situ Nan lui avait expliqué les différents types de sorts utilisés par les cultivateurs, et ceux qui avaient le plus marqué Wang Lin étaient les sorts célestes.
 
-L'usage d'énergie spirituelle céleste ne faisait pas automatiquement d'un sort un sort céleste. Les véritables sorts célestes étaient des techniques si puissantes qu'elles s'équivalaient aux sceaux du Dao céleste que l'Alliance de Culture octroie aux planètes de culture!
+L'usage d'énergie spirituelle céleste ne faisait pas automatiquement d'un sort un sort céleste. Les véritables sorts célestes étaient des techniques si puissantes qu'elles s'équivalaient aux sceaux du Dao céleste que l'Alliance Xiu Zhen octroie aux planètes de culture!
 
 Cependant, les sceaux nécessitaient une transmission, tandis que les sorts célestes ne requéraient que le sceau et l'incantation.
 
@@ -44,7 +44,7 @@ Quant aux trois sorts de mort que Situ Nan avait enseignés à Wang Lin, il les 
 
 Situ Nan ne pouvait pas le reproduire, il ne pouvait qu'en imiter la structure. Après d'innombrables années d'étude, il avait réussi à en dériver ces trois sorts de mort. Ces derniers possédaient des attributs démoniaques, car Situ Nan suivait la voie démoniaque.
 
-Tian Yunzi se tint silencieusement devant le Pavillon de la Forêt Violette et fixa longuement le mot « Forêt ».
+Tian Yunzi se tint silencieusement devant le Pavillon Zi Lin et fixa longuement le mot « Forêt ».
 
 Les environs étaient plongés dans un silence total. Wang Lin restait là, aux côtés de Tian Yunzi, sans un bruit. Il ignorait quelle était la personnalité de son nouveau maître et ne parvenait pas à percer ses pensées. Cependant, à en juger par l'expression de Tian Yunzi, celui-ci ne semblait pas en colère.
 
@@ -58,11 +58,11 @@ Wang Lin acquiesça. Il pensa à la technique utilisée par le Deuxième Frère,
 
 « Repose-toi bien. Dans trois mois aura lieu la célébration de mon anniversaire. De nombreux puissants cultivateurs de la planète Tian Yun et des planètes environnantes seront présents. Je saisirai cette occasion pour annoncer que je te prends comme disciple, afin que les habitants de la planète Tian Yun puissent se faire une idée de toi. Je suppose que très bientôt, ton frère aîné viendra t'en dire plus! » Tandis qu'il parlait, Tian Yunzi s'éleva dans les airs et disparut lentement à l'horizon, pas après pas.
 
-Wang Lin salua respectueusement Tian Yunzi avant de pénétrer dans le Pavillon de la Forêt Violette.
+Wang Lin salua respectueusement Tian Yunzi avant de pénétrer dans le Pavillon Zi Lin.
 
 Dans la chambre secrète située au troisième étage du pavillon, Wang Lin poussa un soupir de soulagement et observa les lieux avec une lueur mystérieuse dans les yeux.
 
-« Il semble que j'aie trouvé ma place au sein de cette Secte du Destin Céleste. Il semble aussi que je ne puisse pas me permettre de trop céder. On dirait que ceux qui font preuve de plus de dominance ont de meilleures chances de survie ici. »
+« Il semble que j'aie trouvé ma place au sein de cette Secte Tian Yun. Il semble aussi que je ne puisse pas me permettre de trop céder. On dirait que ceux qui font preuve de plus de dominance ont de meilleures chances de survie ici. »
 
 « Tian Yunzi observait probablement tout le long, et il a clairement vu tous les trésors que j'ai utilisés. Le char de guerre est une chose, mais l'essentiel réside dans l'épée céleste... Tout se déroule comme prévu, mais si je veux m'implanter solidement ici, je ne peux pas cacher cette épée. Il est impossible de la dissimuler à Tian Yunzi, et je l'ai donc utilisée ouvertement, sans rien pour la couvrir. Cependant, je crois que Tian Yunzi n'aurait pas la face de réclamer cela à son disciple. S'il le demande, je la lui donnerai directement, ce qui me permettra probablement d'en tirer de grands bénéfices. Cette technique interdite que le Deuxième Frère utilisait était excellente! »
 
@@ -72,19 +72,19 @@ Dans la chambre secrète située au troisième étage du pavillon, Wang Lin pous
 
 Après avoir réfléchi un instant, Wang Lin déploya plusieurs restrictions pour protéger le pavillon et commença sa culture.
 
-Sur le côté est de la Division Pourpre, posé sur un lit de roches de jade, se trouvait un pavillon très luxueux portant trois grands caractères gravés: « Pavillon de l'Étoile Pourpre ».
+Sur le côté est de la Division Pourpre, posé sur un lit de roches de jade, se trouvait un pavillon très luxueux portant trois grands caractères gravés: « Pavillon Zi Xing ».
 
 Zhao Xingsha entra dans le pavillon avec une expression sombre. Dès qu'il fut à l'intérieur, il serra le poing avant de frapper violemment dans le vide.
 
 « Wang Lin!! J'ai suivi Maître pendant deux mille ans, je connais donc parfaitement sa personnalité. S'il ne t'a pas emmené directement au temple ancestral et ne t'a pas transmis de technique interdite pour sauver ta vie, c'est qu'il y a une raison! Si je ne m'abuse, c'est là le véritable test de Maître. Si, lors de la célébration d'anniversaire dans trois mois, tu parviens à surpasser toute la Division Pourpre, alors il t'acceptera réellement comme disciple... Cependant, Wang Lin, je ne te laisserai pas cette chance!! »
 
-« Le Pavillon de la Forêt Violette m'importe peu, mais la place de disciple direct au sein de la Division Pourpre m'appartiendra sans aucun doute!!! Le Deuxième Frère est blessé et nourrit certainement une haine que l'on peut exploiter. Quant au Troisième Frère... c'est un homme imprévisible, il pourrait poser problème, mais j'ai encore le moyen de le faire plier. »
+« Le Pavillon Zi Lin m'importe peu, mais la place de disciple direct au sein de la Division Pourpre m'appartiendra sans aucun doute!!! Le Deuxième Frère est blessé et nourrit certainement une haine que l'on peut exploiter. Quant au Troisième Frère... c'est un homme imprévisible, il pourrait poser problème, mais j'ai encore le moyen de le faire plier. »
 
-« La Quatrième Sœur... son niveau de culture est élevé, mais je saurai naturellement comment la gérer. Le Sixième Frère a déjà atteint le stade d'Ascendant, mais après que sa place a été prise par Sun Yun, il a quitté la Secte du Destin Céleste pour s'entraîner à l'extérieur. S'il revient, je ne pourrai pas faire grand-chose, mais s'il ne revient pas, mon seul adversaire sera Wang Lin!! »
+« La Quatrième Sœur... son niveau de culture est élevé, mais je saurai naturellement comment la gérer. Le Sixième Frère a déjà atteint le stade d'Ascendant, mais après que sa place a été prise par Sun Yun, il a quitté la Secte Tian Yun pour s'entraîner à l'extérieur. S'il revient, je ne pourrai pas faire grand-chose, mais s'il ne revient pas, mon seul adversaire sera Wang Lin!! »
 
 « À l'origine, je ne le considérais pas comme une menace, mais aujourd'hui j'ai vu que ses sorts sont redoutables et ses trésors précieux. Bien que sa culture ne soit qu'au début de la Transformation de l'Âme, il peut menacer quelqu'un au stade avancé de cette même étape. Il est mon plus grand ennemi! Hélas, après toutes ces années, mes blessures ne se sont pas encore guéries; autrement, un simple cultivateur au début de la Transformation de l'Âme ne suffirait pas à attirer mon attention! »
 
-Les yeux de Zhao Xingsha brillèrent d'une lueur diabolique alors qu'il fixait le Pavillon de la Forêt Violette avec une expression sinistre.
+Les yeux de Zhao Xingsha brillèrent d'une lueur diabolique alors qu'il fixait le Pavillon Zi Lin avec une expression sinistre.
 
 « Septième Frère, je vais te laisser affronter la Quatrième Sœur en premier! Je ne te tuerai pas, mais je te blesserai si gravement qu'il te faudra des années pour t'en remettre. D'ici là, je serai déjà l'un des sept disciples directs et ma culture sera en voie de rétablissement; tu ne vaudras plus alors mon attention! »
 

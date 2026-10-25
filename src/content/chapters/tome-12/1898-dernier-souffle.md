@@ -124,7 +124,7 @@ Une fois l'âme du scorpion partie, l'âme originelle de Wang Lin enveloppa imm�
 
 « Corps véritable de l'essence du Feu! » rugit Wang Lin. Une mer de feu apparut dans son œil gauche et un corps véritable de l'essence du feu, identique à lui, se matérialisa derrière lui!
 
-« Corps véritable de l'essence du Tonnerre! » rugit Wang Lin, tandis que la foudre éclatait dans son œil droit. Le corps véritable de l'essence du tonnerre, autrefois formé par le maître de la Secte du Dao Démoniaque, fusionnait désormais avec la volonté de Wang Lin et apparaissait derrière lui.
+« Corps véritable de l'essence du Tonnerre! » rugit Wang Lin, tandis que la foudre éclatait dans son œil droit. Le corps véritable de l'essence du tonnerre, autrefois formé par le maître de la Secte Dao Mo, fusionnait désormais avec la volonté de Wang Lin et apparaissait derrière lui.
 
 « Corps véritable de l'essence de la Terre! » Wang Lin poussa un rugissement vers le ciel. Une lumière jaune jaillit de ses 108 000 pores pour former son troisième corps véritable d'essence derrière lui!
 

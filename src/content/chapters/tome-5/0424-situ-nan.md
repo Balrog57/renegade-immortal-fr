@@ -7,7 +7,7 @@ en: Chapter 424 - Situ Nan
 slug: situ-nan
 ---
 
-Des vagues de membres du Clan des Immortels Délaissés se rassemblaient à l'intérieur de l'immense nuage noir situé sur le flanc est du continent Suzaku.
+Des vagues de membres du Clan Xian Yi se rassemblaient à l'intérieur de l'immense nuage noir situé sur le flanc est du continent Suzaku.
 
 Au centre de ce nuage, d'innombrables membres du clan chantaient à l'unisson. La puissance de leurs tatouages s'était échappée de leurs corps pour flotter dans les airs.
 
@@ -33,31 +33,31 @@ L'homme d'âge moyen fronça les sourcils et l'interrompit: « Ne te soucie pas 
 
 Le vieil homme hocha la tête et se tut.
 
-« Les membres de la Secte des Cadavres sont là. » L'homme d'âge moyen regarda au loin.
+« Les membres de la Secte Shi Yin sont là. » L'homme d'âge moyen regarda au loin.
 
 Un immense cercueil, long d'une centaine de mètres, approchait rapidement de la bordure est du continent Suzaku. Trois personnes étaient assises sur le couvercle. Elles avaient toutes les cheveux blancs. À l'exception de celui de devant, qui se trouvait au début du stade de Transformation de l'Âme, les deux autres étaient à la fin de la Formation de l'Âme.
 
 Assis sur ce cercueil qui filait à toute allure, ils arrivèrent en un clin d'œil devant le nuage noir. Les symboles de tatouage dans le nuage scintillèrent pour leur barrer la route.
 
-Le vieil homme de la Secte des Cadavres, au début de la Transformation de l'Âme, s'exclama: « Je suis l'Ancien de la Secte des Cadavres sur la planète Suzaku, et ces deux-là sont mes diacres cadavres. Je demande au Clan des Immortels Délaissés d'ouvrir la formation de tatouage. »
+Le vieil homme de la Secte Shi Yin, au début de la Transformation de l'Âme, s'exclama: « Je suis l'Ancien de la Secte Shi Yin sur la planète Suzaku, et ces deux-là sont mes diacres cadavres. Je demande au Clan Xian Yi d'ouvrir la formation de tatouage. »
 
-Les tatouages à l'intérieur du nuage noir clignotèrent de nouveau et un tunnel apparut. Le grand cercueil de la Secte des Cadavres s'engouffra rapidement à l'intérieur.
+Les tatouages à l'intérieur du nuage noir clignotèrent de nouveau et un tunnel apparut. Le grand cercueil de la Secte Shi Yin s'engouffra rapidement à l'intérieur.
 
-Le cercueil s'immobilisa au centre du nuage noir. L'Ancien de la Secte des Cadavres en sauta.
+Le cercueil s'immobilisa au centre du nuage noir. L'Ancien de la Secte Shi Yin en sauta.
 
 Devant lui se tenaient l'homme d'âge moyen et les trois chamans aux huit feuilles.
 
 L'homme d'âge moyen dit calmement: « Ancien Sima, je vous attendais. »
 
-L'Ancien de la Secte des Cadavres rit: « Je suis en retard car j'ai rencontré quelques ennuis en chemin. En plus de livrer ce cadavre, je suis ici pour annoncer une nouvelle à votre Clan des Immortels Délaissés. »
+L'Ancien de la Secte Shi Yin rit: « Je suis en retard car j'ai rencontré quelques ennuis en chemin. En plus de livrer ce cadavre, je suis ici pour annoncer une nouvelle à votre Clan Xian Yi. »
 
 L'homme d'âge moyen le regarda avec un calme imperturbable, attendant la nouvelle.
 
-Les yeux de l'Ancien s'illuminèrent et, esquissant un sourire qui n'en était pas un, il déclara: « Zhu Quezi s'est rendu à la Secte de l'Affinement de l'Âme; il combat Du Tian pour dérober le drapeau des âmes d'un milliard! »
+Les yeux de l'Ancien s'illuminèrent et, esquissant un sourire qui n'en était pas un, il déclara: « Zhu Quezi s'est rendu à la Secte Lian Hun; il combat Du Tian pour dérober le drapeau des âmes d'un milliard! »
 
 L'expression de l'homme d'âge moyen resta de marbre, puis il sourit. « Quel en est le résultat? »
 
-L'Ancien de la Secte des Cadavres rit: « Cela, je l'ignore. Mais avec la connaissance que possède ma Secte sur le Suzaku actuel, s'il s'y est rendu, c'est qu'il était au moins sûr de lui à 80 %. Votre Clan des Immortels Délaissés devrait se montrer prudent! »
+L'Ancien de la Secte Shi Yin rit: « Cela, je l'ignore. Mais avec la connaissance que possède ma Secte sur le Suzaku actuel, s'il s'y est rendu, c'est qu'il était au moins sûr de lui à 80 %. Votre Clan Xian Yi devrait se montrer prudent! »
 
 L'expression de l'homme d'âge moyen n'avait pas encore changé. Il allait prendre la parole quand son visage se décomposa soudainement. Il tourna le regard vers Pilu, à l'extrémité nord du continent Suzaku. De là, il ressentit une aura qui le fit trembler.
 
@@ -113,7 +113,7 @@ Les yeux de Du Tian s'illuminèrent et il cria: « Laisse derrière toi la quatr
 
 Zhu Quezi s'interrompit. Ses yeux trahissaient une lutte intérieure pour prendre une décision, puis il se retourna brusquement vers Wang Lin.
 
-Une trace du passé traversa le regard de Wang Lin lorsqu'il dit: « Autrefois, ce vieil homme avait une dette envers Ye Wuyou. Peu importe; puisque tu veux cette quatrième âme pour combattre le Clan des Immortels Délaissés, ce vieil homme te la prêtera pour trois ans. Dans trois ans, tu me la rendras. »
+Une trace du passé traversa le regard de Wang Lin lorsqu'il dit: « Autrefois, ce vieil homme avait une dette envers Ye Wuyou. Peu importe; puisque tu veux cette quatrième âme pour combattre le Clan Xian Yi, ce vieil homme te la prêtera pour trois ans. Dans trois ans, tu me la rendras. »
 
 Du Tian paniqua et s'apprêta à parler quand Wang Lin tourna son regard vers lui. Lorsqu'il soutint le regard, il ne vit plus Wang Lin. Il n'y avait plus qu'une aura étrangère qui semblait dire: « Si tu parles, je te tue », et il sut que cet homme l'exécuterait sans la moindre hésitation.
 

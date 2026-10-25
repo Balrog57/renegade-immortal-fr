@@ -44,7 +44,7 @@ Tandis qu'il se déployait, des grondements tonitruants secouaient l'espace. Alo
 
 « Tous les trésors détruits durant ces cent dernières années, et tous les esprits de trésors dissipés lors des guerres passées... Aujourd'hui, moi, Wang Lin, j'appelle vos esprits à surgir du vide et à entrer dans ma formation pour devenir éternels... »
 
-La voix de Wang Lin portait la puissance de l'essence ainsi que toute une vie de compréhension. À cet instant, une onde invisible se propagea depuis lui comme centre, traversant la Mer des Nuages, Luotian, le Vide Brillant et la Rivière Invoquée.
+La voix de Wang Lin portait la puissance de l'essence ainsi que toute une vie de compréhension. À cet instant, une onde invisible se propagea depuis lui comme centre, traversant la Mer Yun, Luotian, le Vide Brillant et la Rivière Invoquée.
 
 Alors que sa voix résonnait après le passage de l'onde, des ombres colorées apparurent de nulle part. Ces ombres prenaient la forme d'épées, de lames et de divers trésors.
 
@@ -66,7 +66,7 @@ Il y avait eu de nombreuses planètes de culture; elles étaient détruites depu
 
 Un hurlement déchira les quatre grands systèmes stellaires. Ces innombrables particules de poussière, ces météores et ces continents en lambeaux s'envolèrent avec les âmes des planètes vers le disque d'essence rotatif.
 
-À mesure de leur intégration, le disque d'essence prit une forme physique et dégagea une pression dépassant l'entendement de ce monde. Wang Lin agita la main et le disque continua de s'étendre. Il finit par envelopper la Mer des Nuages et se propagea jusqu'à Luotian, couvrant intégralement la Rivière Invoquée et le Vide Brillant!
+À mesure de leur intégration, le disque d'essence prit une forme physique et dégagea une pression dépassant l'entendement de ce monde. Wang Lin agita la main et le disque continua de s'étendre. Il finit par envelopper la Mer Yun et se propagea jusqu'à Luotian, couvrant intégralement la Rivière Invoquée et le Vide Brillant!
 
 Les cultivateurs du Royaume Intérieur étaient transportés d'excitation en contemplant cette formation circulaire qui remplaçait la défaillante Formation de Scellement. Ils ressentaient un sentiment qu'ils avaient rarement éprouvé de toute leur vie.
 
@@ -82,9 +82,9 @@ Des fragments d'âmes déformés apparurent parmi les étoiles, arborant des exp
 
 Certains de ces fragments d'âmes étaient morts durant les cent dernières années, mais une grande partie appartenait à des hommes de la haute Antiquité et des temps les plus reculés, tombés lors des guerres passées entre les Royaumes Intérieur et Extérieur.
 
-La tempête fit rage, balayant Mu Bingmei et ses deux compagnes. Elle traversa la Mer des Nuages, emplit Luotian, puis franchit la Rivière Invoquée avant de traverser le Vide Brillant pour revenir sur ses pas. Les fragments d'âmes affligés rugissaient de peur tandis qu'ils étaient capturés et scellés dans le disque.
+La tempête fit rage, balayant Mu Bingmei et ses deux compagnes. Elle traversa la Mer Yun, emplit Luotian, puis franchit la Rivière Invoquée avant de traverser le Vide Brillant pour revenir sur ses pas. Les fragments d'âmes affligés rugissaient de peur tandis qu'ils étaient capturés et scellés dans le disque.
 
-En particulier, sur le champ de bataille de la première bataille dans la Mer des Nuages, plus de 100 000 fragments d'âmes furent tous scellés dans le disque!
+En particulier, sur le champ de bataille de la première bataille dans la Mer Yun, plus de 100 000 fragments d'âmes furent tous scellés dans le disque!
 
 De même, à Luotian, des centaines de milliers de fragments d'âmes furent saisis. Des rugissements silencieux résonnèrent, mais aucun ne put échapper à son châtiment!
 

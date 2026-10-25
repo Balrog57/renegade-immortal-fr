@@ -74,9 +74,9 @@ Pendant la téléportation, la voix de Xu Liguo pénétra l'âme originelle de W
 
 « Ne mentionne plus jamais cela! » trancha calmement Wang Lin. Il serra le jade dans sa main avant de le ranger. Avec toute la ruse qu'on lui connaissait, il avait parfaitement saisi les intentions de l'Empereur Démon.
 
-L'armée de gauche du Pays du Démon Céleste comptait dix millions de soldats démons. La terre tremblait sous leur marche, comme si d'innombrables explosions se succédaient. Les Commandants en Chef Céleste, Éternité et Désolé menaient les troupes. Les Vice-Commandants Hong, Mystère et Jaune étaient présents pour l'encadrement. Ils dirigeaient ces dix millions de démons droit vers la ville de Songtao.
+L'armée de gauche du Pays Tian Yao comptait dix millions de soldats démons. La terre tremblait sous leur marche, comme si d'innombrables explosions se succédaient. Les Commandants en Chef Céleste, Éternité et Désolé menaient les troupes. Les Vice-Commandants Hong, Mystère et Jaune étaient présents pour l'encadrement. Ils dirigeaient ces dix millions de démons droit vers la ville de Songtao.
 
-À cet instant, les trois Commandants en Chef montaient chacun des bêtes démoniaques différentes. Aucun ne parlait à l'autre. Une puissante aura meurtrière saturait l'air tandis que l'armée du Pays du Démon Céleste approchait de Songtao.
+À cet instant, les trois Commandants en Chef montaient chacun des bêtes démoniaques différentes. Aucun ne parlait à l'autre. Une puissante aura meurtrière saturait l'air tandis que l'armée du Pays Tian Yao approchait de Songtao.
 
 Sur le flanc droit de la grande armée, le Vice-Commandant Mo Fei montait une bête démoniaque semblable à une licorne. Son regard était d'un calme absolu. Un homme se tenait sur la queue de la créature; c'était un homme d'âge moyen aux yeux clos, portant une épée géante dans le dos et dégageant l'aura d'un être céleste.
 
@@ -92,7 +92,7 @@ L'homme d'âge moyen, dont les yeux étaient restés clos jusqu'alors, les ouvri
 
 Avant que quiconque ne puisse réagir, Wang Lin s'approcha dans un rugissement de tonnerre, survolant d'innombrables soldats démons. Hormis le Commandant Céleste, les yeux des deux autres commandants s'illuminèrent.
 
-L'intention meurtrière des dix millions de démons hurlait dans le ciel, mais Wang Lin l'ignorait totalement. Pour tuer, il fallait le bon élan et agir avant que l'adversaire ne puisse réagir. S'il avait commencé par annoncer son identité ou sortir le jade de l'Empereur Démon, il aurait perdu l'avantage de la surprise, laissant au disciple de la Secte de l'Épée Da Luo l'opportunité d'utiliser l'énergie de l'épée de Ling Tianhou.
+L'intention meurtrière des dix millions de démons hurlait dans le ciel, mais Wang Lin l'ignorait totalement. Pour tuer, il fallait le bon élan et agir avant que l'adversaire ne puisse réagir. S'il avait commencé par annoncer son identité ou sortir le jade de l'Empereur Démon, il aurait perdu l'avantage de la surprise, laissant au disciple de la Secte Da Luo Jian l'opportunité d'utiliser l'énergie de l'épée de Ling Tianhou.
 
 « J'ai reçu l'ordre de l'Empereur Démon de capturer et de tuer le Vice-Commandant Mo Fei. Vous autres, faites place! » hurla Wang Lin en lançant le jade de l'Empereur vers les deux commandants qui s'apprêtaient à intervenir.
 

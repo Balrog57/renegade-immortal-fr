@@ -64,7 +64,7 @@ Wang Lin resta silencieusement dans la cour et ferma les yeux.
 
 Il resta ainsi toute la nuit!
 
-Au petit matin, le soleil se leva, chassant l'obscurité de la Cité du Démon Céleste. Tandis que les rayons frappaient la cité impériale, une puissante intention de combat émana des huit cités extérieures.
+Au petit matin, le soleil se leva, chassant l'obscurité de la Cité Tian Yao. Tandis que les rayons frappaient la cité impériale, une puissante intention de combat émana des huit cités extérieures.
 
 À l'intérieur de la cité impériale, sur la place de 33 kilomètres, trônait un gigantesque tambour de guerre!
 
@@ -74,19 +74,19 @@ Des escouades de soldats démoniaques en armures noires sortirent pour encercler
 
 Dong!
 
-Un son sourd résonna depuis la cité impériale et se propagea à travers toute la Cité du Démon Céleste!
+Un son sourd résonna depuis la cité impériale et se propagea à travers toute la Cité Tian Yao!
 
 Tous les habitants savaient qu'un Tambour du Démon Céleste existait dans la cité impériale. Il n'était utilisé que pour le culte de l'ancêtre, l'ouverture du lac du dragon ou d'autres événements majeurs.
 
 Neuf coups pour le lac du dragon, six pour les ancêtres, et trois pour tout le reste.
 
-Le son du tambour résonna entre ciel et terre, faisant trembler toute la Cité du Démon Céleste. D'innombrables personnes furent tirées de leur sommeil par ce grondement.
+Le son du tambour résonna entre ciel et terre, faisant trembler toute la Cité Tian Yao. D'innombrables personnes furent tirées de leur sommeil par ce grondement.
 
 Un à un, les généraux démoniaques menèrent leurs serviteurs et assistants sur la voie militaire vers la cité impériale.
 
 Les huit portes de la cité impériale s'ouvrirent. De nombreux soldats démoniaques étaient postés aux entrées pour vérifier l'identité des généraux avant de les laisser passer.
 
-Aujourd'hui, la bataille se déroulerait sur la vaste place de 33 kilomètres, près de la Porte du Démon Céleste. Une puissante formation protégeait le lieu, empêchant toute destruction facile. Sur la partie est de la place, une tribune de neuf étages s'étendait sur près de 330 mètres de long. D'innombrables fonctionnaires de la Cité du Démon Céleste apparurent et prirent place derrière leurs tables.
+Aujourd'hui, la bataille se déroulerait sur la vaste place de 33 kilomètres, près de la Porte Tian Yao. Une puissante formation protégeait le lieu, empêchant toute destruction facile. Sur la partie est de la place, une tribune de neuf étages s'étendait sur près de 330 mètres de long. D'innombrables fonctionnaires de la Cité Tian Yao apparurent et prirent place derrière leurs tables.
 
 Il n'y avait qu'un seul siège au sommet, celui de l'Empereur Démon!
 
@@ -112,7 +112,7 @@ Bientôt, tous les sièges furent occupés, à l'exception de ceux de l'Empereur
 
 « Pas forcément. Bien que Mo Lihai ne puisse pas concourir, cela ne signifie pas que son assistant est exclu. Cependant, son assistant n'est pas très connu, alors je crains qu'il n'ait aucune chance de gagner! »
 
-« Se pourrait-il qu'en dehors de ces trois-là, aucun autre général démoniaque ne soit puissant? La rumeur dit que la voie du massacre du Général Démon Yu Sen a déjà atteint son apogée. C'est le seul parmi les généraux qui ne possède pas de ville et qui passe la majeure partie de son temps dans le Pays du Démon de Feu. S'il se présente, il provoquera assurément une tempête! »
+« Se pourrait-il qu'en dehors de ces trois-là, aucun autre général démoniaque ne soit puissant? La rumeur dit que la voie du massacre du Général Démon Yu Sen a déjà atteint son apogée. C'est le seul parmi les généraux qui ne possède pas de ville et qui passe la majeure partie de son temps dans le Pays Huo Yao. S'il se présente, il provoquera assurément une tempête! »
 
 « C'est certain. Il y a aussi le Général Démon Mo Wen. Son sort est très particulier, hérité du lac du dragon. Cet homme est d'ordinaire très discret, personne ne connaît sa véritable force. J'espère voir de quoi ses sorts sont capables aujourd'hui! »
 
@@ -128,7 +128,7 @@ Après avoir frappé le tambour pour la première fois, le vieil homme ferma les
 
 Dong!
 
-Le second coup de tambour résonna sur la place, faisant taire tous les bavardages. Le son se propagea dans toute la Cité du Démon Céleste.
+Le second coup de tambour résonna sur la place, faisant taire tous les bavardages. Le son se propagea dans toute la Cité Tian Yao.
 
 Ce bruit retentit dans le ciel comme un tonnerre rugissant, chassant les dernières traces d'obscurité pour laisser place à la lumière éclatante du soleil.
 
@@ -144,7 +144,7 @@ Les huit se saluèrent d'un geste solennel avant de rejoindre leurs sièges resp
 
 Leur apparition capta l'attention de tous, et les yeux de la foule brillèrent d'admiration. Le respect qu'ils inspiraient n'était surpassé que par celui dû à l'Empereur Démon!
 
-Même dans toute la Terre des Esprits Démoniaques, leurs noms étaient célèbres et presque tout le monde les connaissait!
+Même dans toute la Terre Yao Ling, leurs noms étaient célèbres et presque tout le monde les connaissait!
 
 Dong! Le troisième coup de tambour retentit sur la zone comme un tonnerre plusieurs fois plus violent que les précédents. Il se propagea sur 500 kilomètres, emplissant les oreilles de chacun de ce fracas.
 

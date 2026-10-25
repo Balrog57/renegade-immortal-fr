@@ -92,7 +92,7 @@ En peu de temps, il ne restait que 28 plateformes sur 43. Les centaines de culti
 
 Alors que Wang Lin se tenait sur sa plateforme, il balaya les environs d'un regard froid. Aucun cultivateur n'osait l'approcher, son récent massacre ayant suffi à tous les terrifier.
 
-En parcourant la zone du regard, il aperçut la femme du Clan de l'Extermination des Sceaux. Elle avait occupé une plateforme et y était assise, une lumière brillant entre ses sourcils. Cette lueur douce couvrait la plateforme; peu importait l'intensité des attaques des cultivateurs, elle ne faisait que se déformer sans jamais céder.
+En parcourant la zone du regard, il aperçut la femme du Clan Feng Mie. Elle avait occupé une plateforme et y était assise, une lumière brillant entre ses sourcils. Cette lueur douce couvrait la plateforme; peu importait l'intensité des attaques des cultivateurs, elle ne faisait que se déformer sans jamais céder.
 
 Outre cette jeune fille, cinq autres personnes attirèrent l'attention de Wang Lin.
 

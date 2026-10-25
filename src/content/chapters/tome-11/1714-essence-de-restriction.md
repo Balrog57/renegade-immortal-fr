@@ -12,11 +12,11 @@ Ces restrictions n'étaient à l'origine que de simples sceaux, mais leur chevau
 
 Cette scène majestueuse était une vision que seul Wang Lin pouvait ressentir. Les bêtes à l'intérieur de la fracture spatiale avaient toutes choisi d'éviter cette tempête de restrictions, s'échappant en panique par diverses sorties.
 
-C'était comparable à une marée de bêtes. Elles jaillissaient de la fracture spatiale et, en quelques jours seulement, la zone entourant la faille dans la Mer des Nuages fut envahie par d'innombrables créatures.
+C'était comparable à une marée de bêtes. Elles jaillissaient de la fracture spatiale et, en quelques jours seulement, la zone entourant la faille dans la Mer Yun fut envahie par d'innombrables créatures.
 
 Elles ne s'éloignaient pas très loin; elles se contentaient de flotter à l'extérieur de la fracture spatiale, fixant la fissure avec crainte en tremblant de tous leurs membres.
 
-Cette marée de bêtes dans la Mer des Nuages attira l'attention de nombreux observateurs. Certains tentèrent de pénétrer dans la fracture spatiale pour comprendre ce qu'il s'y passait, mais ils furent stoppés net par la terrifiante tempête de restrictions!
+Cette marée de bêtes dans la Mer Yun attira l'attention de nombreux observateurs. Certains tentèrent de pénétrer dans la fracture spatiale pour comprendre ce qu'il s'y passait, mais ils furent stoppés net par la terrifiante tempête de restrictions!
 
 La tempête au sein de la fissure faisait toujours rage, et des hurlements fantomatiques se propageaient dans toutes les directions. Au plus profond de ce chaos, Wang Lin était assis, les yeux clos. Ses paupières tressaillaient tandis qu'il continuait de déduire les restrictions.
 

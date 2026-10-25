@@ -6,19 +6,19 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 913 - Summon the Rain
 slug: invoquer-la-pluie
 ---
-L'expression du vieil homme se ternit et il s'écria: « Quel tueur Yu Fei? Xu Mu, me prends-tu pour un enfant de trois ans? N'invente pas de noms, et encore moins celui de Domaine de la Boucherie! »
+L'expression du vieil homme se ternit et il s'écria: « Quel tueur Yu Fei? Xu Mu, me prends-tu pour un enfant de trois ans? N'invente pas de noms, et encore moins celui de Domaine Sha Yu! »
 
 Le visage de Wang Lin demeura impassible; il ne daigna même pas regarder le vieil homme. Au lieu de cela, son regard se posa sur Maître Yan Leizi.
 
-Tandis que Maître Yan Leizi fixait Wang Lin, la froideur de ses traits s'adoucit et il dit: « L'Alliance de Culture possède bel et bien un Domaine de la Boucherie, et le Duo Tueur d'Âmes y existe réellement. Cependant, as-tu la preuve que tu l'as tué? »
+Tandis que Maître Yan Leizi fixait Wang Lin, la froideur de ses traits s'adoucit et il dit: « L'Alliance Xiu Zhen possède bel et bien un Domaine Sha Yu, et le Duo Tueur d'Âmes y existe réellement. Cependant, as-tu la preuve que tu l'as tué? »
 
 Dès que Maître Yan Leizi prit la parole, le vieil homme à ses côtés se tut immédiatement.
 
 Sans changer d'expression, Wang Lin frappa son sac de rangement, faisant apparaître une demi-branche d'arbre dans sa main. Des éclairs de tonnerre tourbillonnaient encore autour du bois. Wang Lin la projeta directement vers Maître Yan Leizi.
 
-Dans un rugissement de tonnerre, la branche vola vers Maître Yan Leizi qui l'attrapa. En l'examinant de plus près, il reconnut aussitôt qu'il s'agissait de l'un des trésors précieux du Domaine de la Boucherie. Grâce à sa culture, il pouvait ressentir deux forces au sein de la branche: l'une appartenait manifestement à Wang Lin, et l'autre était une aura puissante et maléfique!
+Dans un rugissement de tonnerre, la branche vola vers Maître Yan Leizi qui l'attrapa. En l'examinant de plus près, il reconnut aussitôt qu'il s'agissait de l'un des trésors précieux du Domaine Sha Yu. Grâce à sa culture, il pouvait ressentir deux forces au sein de la branche: l'une appartenait manifestement à Wang Lin, et l'autre était une aura puissante et maléfique!
 
-« Exact, c'est bel et bien l'énergie d'épée d'un cultivateur de niveau Saint adjoint du Domaine de la Boucherie! » Le regard de Maître Yan Leizi envers Wang Lin se fit empreint d'admiration.
+« Exact, c'est bel et bien l'énergie d'épée d'un cultivateur de niveau Saint adjoint du Domaine Sha Yu! » Le regard de Maître Yan Leizi envers Wang Lin se fit empreint d'admiration.
 
 Après avoir inspecté la branche, il la renvoya à Wang Lin avec un sourire: « Bien, Xu Mu, tu peux cultiver ici en toute tranquillité. Dans un mois, les renforts de Luotian arriveront et tu rejoindras l'armée pour envahir la région du Nord! »
 
@@ -70,19 +70,19 @@ Lei Ji regardait également la pluie, cherchant à comprendre son aptitude sangu
 
 Il avait été contraint de quitter la Planète du Géant Démon, le cœur rempli de haine. Accompagné des siens, ils avaient fui pour errer parmi les étoiles. À l'époque, il était perdu; son cœur était une Mer de Sang, mais il était impuissant à renverser le ciel.
 
-Il n'avait eu d'autre choix que de quitter sa patrie. S'il avait été d'un instant plus lent, il n'aurait peut-être jamais pu échapper à la Planète du Géant Démon. Dans sa confusion, il avait mené son clan sur la planète Suzaku. À cette époque, le Zhu Quezi de la planète Suzaku s'appelait Ye Wuyou. Sous ses ordres, de nombreux cultivateurs s'étaient rassemblés pour déclencher une guerre contre les habitants natifs: le Clan des Immortels Délaissés, experts en runes.
+Il n'avait eu d'autre choix que de quitter sa patrie. S'il avait été d'un instant plus lent, il n'aurait peut-être jamais pu échapper à la Planète du Géant Démon. Dans sa confusion, il avait mené son clan sur la planète Suzaku. À cette époque, le Zhu Quezi de la planète Suzaku s'appelait Ye Wuyou. Sous ses ordres, de nombreux cultivateurs s'étaient rassemblés pour déclencher une guerre contre les habitants natifs: le Clan Xian Yi, experts en runes.
 
-Une planète autrefois riche en énergie spirituelle fut à moitié réduite à l'abandon par ce conflit. Il y avait, aux côtés de Ye Wuyou, un homme que Lei Ji détestait profondément. Il semblait se souvenir qu'il s'appelait Situ Nan. Cet homme était d'une arrogance telle que ses actes frôlaient la démoniaque. Il préférait nettement Ye Wuyou, qui avait accueilli le Clan du Géant Démon avec une grande hospitalité, allant jusqu'à leur céder un vaste territoire pour qu'ils y fondent leur propre nation.
+Une planète autrefois riche en énergie spirituelle fut à moitié réduite à l'abandon par ce conflit. Il y avait, aux côtés de Ye Wuyou, un homme que Lei Ji détestait profondément. Il semblait se souvenir qu'il s'appelait Situ Nan. Cet homme était d'une arrogance telle que ses actes frôlaient la démoniaque. Il préférait nettement Ye Wuyou, qui avait accueilli le Clan Ju Mo avec une grande hospitalité, allant jusqu'à leur céder un vaste territoire pour qu'ils y fondent leur propre nation.
 
-Ce territoire était situé loin du Clan des Immortels Délaissés, ce qui garantissait leur sécurité. Lei Ji n'avait trouvé aucun moyen de rendre cette faveur, si ce n'est en saisissant sa hache de guerre pour s'enfoncer seul dans le Clan des Immortels Délaissés, abattre plusieurs de ses membres et rapporter leurs têtes pour honorer Ye Wuyou!
+Ce territoire était situé loin du Clan Xian Yi, ce qui garantissait leur sécurité. Lei Ji n'avait trouvé aucun moyen de rendre cette faveur, si ce n'est en saisissant sa hache de guerre pour s'enfoncer seul dans le Clan Xian Yi, abattre plusieurs de ses membres et rapporter leurs têtes pour honorer Ye Wuyou!
 
-En contemplant son passé, Lei Ji fut saisi d'émotion. Il n'était pas aussi dénué de calcul qu'il en avait l'air; au contraire, il était extrêmement rusé. Ses dizaines de milliers d'années d'existence lui avaient appris bien des choses. C'était simplement que son emprisonnement par la Secte des Cadavres avait duré trop longtemps, embrumant son esprit.
+En contemplant son passé, Lei Ji fut saisi d'émotion. Il n'était pas aussi dénué de calcul qu'il en avait l'air; au contraire, il était extrêmement rusé. Ses dizaines de milliers d'années d'existence lui avaient appris bien des choses. C'était simplement que son emprisonnement par la Secte Shi Yin avait duré trop longtemps, embrumant son esprit.
 
 C'est précisément cette ruse qui avait poussé Lei Ji à accepter sans hésiter de devenir la monture de Wang Lin. Après l'avoir observé, il s'était dit que s'il suivait cet homme, il pourrait peut-être un jour retourner sur la Planète du Géant Démon pour accomplir sa vengeance!
 
 En particulier, lors de la bataille précédente, le rugissement du Dieu Ancien de Wang Lin avait ébranlé son âme. À cet instant, tous ses stratagèmes s'étaient effondrés, et une volonté ancestrale, enfouie au plus profond de son être, l'avait fait succomber à ce cri. C'est à ce moment précis que sa décision de suivre Wang Lin était devenue inébranlable.
 
-« Je n'attirerai aucune attention en restant une simple monture. Tout reposera sur l'aptitude sanguine de mon Clan du Géant Démon! » En pensant ainsi, Lei Ji ferma les yeux pour poursuivre sa compréhension.
+« Je n'attirerai aucune attention en restant une simple monture. Tout reposera sur l'aptitude sanguine de mon Clan Ju Mo! » En pensant ainsi, Lei Ji ferma les yeux pour poursuivre sa compréhension.
 
 Pendant que Wang Lin restait assis là, la pluie tombait du ciel et s'abattait sur lui. Une énergie froide pénétrait lentement son corps par l'eau. Il cultivait paisiblement tandis que son Sens Divin se déployait. La montagne servait de centre, et son Sens Divin couvrait toute la zone environnante.
 

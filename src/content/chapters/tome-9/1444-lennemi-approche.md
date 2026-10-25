@@ -70,7 +70,7 @@ Ces ombres étaient toutes des personnes que Wang Lin connaissait!
 
 Wang Lin n'était pas le seul; la confusion se lisait dans les yeux de tous les autres. La vieille femme prit l'apparence de leurs proches, comme si Wang Lin était en train de massacrer leur propre famille. Un sentiment de rage rugit dans leurs cœurs.
 
-« C'est en fait quelqu'un de l'un des trois grands clans, le Clan de l'Illusion Scellée... » Les yeux de la jeune femme du Clan de l'Extermination des Sceaux se rétrécirent, laissant poindre une pointe de surprise.
+« C'est en fait quelqu'un de l'un des trois grands clans, le Clan Feng Huan... » Les yeux de la jeune femme du Clan Feng Mie se rétrécirent, laissant poindre une pointe de surprise.
 
 Tout cela se produisit en un instant. Voyant que les cultivateurs environnants étaient affectés, Wang Lin projeta son doigt contre la brume rose.
 
@@ -83,8 +83,8 @@ Un cri déchirant résonna au cœur des flammes!
 La confusion quitta les yeux des cultivateurs environnants, remplacée par une terreur pure!
 
 « Sortilège d'Illusion Scellée! »
-« Cette vieille femme appartient au Clan de l'Illusion Scellée! »
-« Le Clan de l'Illusion Scellée, l'un des trois grands clans! »
+« Cette vieille femme appartient au Clan Feng Huan! »
+« Le Clan Feng Huan, l'un des trois grands clans! »
 
 Wang Lin flottait dans les airs. S'il avait attaqué, ce n'était pas par simple intention meurtrière, mais pour percer la nature des sorts de la vieille femme. Maintenant qu'il avait sa réponse, il renonça à la tuer.
 
@@ -92,7 +92,7 @@ D'une simple pensée, Wang Lin fit rapidement se dissiper le Feu Éthéré autou
 
 Une fois le Feu Éthéré éteint, la vieille femme resta livide. Elle regarda Wang Lin avec effroi. Après un moment de silence, elle sortit le trésor qu'elle avait obtenu et le lui tendit.
 
-Les autres cultivateurs, tremblants, sortirent également leurs trésors pour compenser l'irrespect de leurs propos. Même la jeune femme du Clan de l'Extermination des Sceaux tendit timidement son butin.
+Les autres cultivateurs, tremblants, sortirent également leurs trésors pour compenser l'irrespect de leurs propos. Même la jeune femme du Clan Feng Mie tendit timidement son butin.
 
 Seule la femme aux longs cheveux regarda Wang Lin avec profondeur et sourit. En un instant, la plateforme sous ses pieds s'éleva dans le ciel.
 

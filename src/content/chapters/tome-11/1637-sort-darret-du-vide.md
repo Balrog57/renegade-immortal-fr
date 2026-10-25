@@ -14,7 +14,7 @@ C'était comme si une tempête s'était effondrée à l'intérieur du trou, lib�
 
 « Tu oses m'attaquer? Tu as offensé la puissance des Célestes, tu dois donc mourir! » Le rugissement était empreint d'une colère infinie tandis qu'un rayon de lumière dorée s'échappait du trou. La silhouette restait floue; on ne pouvait distinguer que l'éclat aveuglant et sombre qui l'entourait.
 
-Wang Lin laissa échapper un froid reniflement. Il avait brisé la Porte du Vide et pulvérisé la rétribution divine pour atteindre le stade intermédiaire du Vide Spirituel. Même des Célestes ordinaires n'étaient pas de taille face à lui.
+Wang Lin laissa échapper un froid reniflement. Il avait brisé la Porte Kong et pulvérisé la rétribution divine pour atteindre le stade intermédiaire du Vide Spirituel. Même des Célestes ordinaires n'étaient pas de taille face à lui.
 
 Dès que la silhouette se précipita hors de l'orifice, Wang Lin fit un pas en avant et tendit la main avec désinvolture. Le monde changea de couleur et d'innombrables lois furent saisies par Wang Lin, se trouvant ainsi déformées. C'était comme si sa main tenait les lois mêmes de l'univers, et que toutes devaient lui obéir.
 

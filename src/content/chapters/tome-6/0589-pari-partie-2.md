@@ -30,7 +30,7 @@ Soudain, des acclamations tonitruantes éclatèrent sur la place. Ce bruit étai
 
 « Pour avoir réussi à le faire résonner huit fois, Mo Fei est le numéro un juste après les commandants en chef! »
 
-« Cette fois, Mo Fei deviendra certainement vice-commandant en chef! Ses exploits militaires sont légion, et une fois nommé, il apportera sans aucun doute de nombreuses victoires à notre Pays du Démon Céleste! »
+« Cette fois, Mo Fei deviendra certainement vice-commandant en chef! Ses exploits militaires sont légion, et une fois nommé, il apportera sans aucun doute de nombreuses victoires à notre Pays Tian Yao! »
 
 Le Commandant Céleste restait impassible, ne montrant aucun signe d'impression, tandis que les sept autres commandants en chef affichaient une profonde admiration pour le talent de Mo Fei.
 
@@ -90,7 +90,7 @@ L'homme à l'armure dorée ne cacha pas son intention meurtrière et rétorqua: 
 
 Wang Lin répondit: « Parle. »
 
-« Je parie que tu ne pourras pas faire résonner le tambour cinq fois! Si tu y parviens, je te recommanderai personnellement à l'Empereur Démon et je garantirai que tu obtiendras le rang de général démoniaque. Mais si tu perds, tu devras assumer la responsabilité d'avoir blessé un général démoniaque! Si tu n'oses pas, alors dégage de cette scène et fuis la Cité du Démon Céleste! Tu n'es pas le bienvenu ici! » Une fois l'homme terminé, un brouhaha de discussions envahit la zone.
+« Je parie que tu ne pourras pas faire résonner le tambour cinq fois! Si tu y parviens, je te recommanderai personnellement à l'Empereur Démon et je garantirai que tu obtiendras le rang de général démoniaque. Mais si tu perds, tu devras assumer la responsabilité d'avoir blessé un général démoniaque! Si tu n'oses pas, alors dégage de cette scène et fuis la Cité Tian Yao! Tu n'es pas le bienvenu ici! » Une fois l'homme terminé, un brouhaha de discussions envahit la zone.
 
 « Le faire résonner quatre fois? Bien que cet étranger ait tué Ao Di, ce tambour est un véritable test! Au plus, je pense qu'il pourra atteindre trois résonances, ce qui serait déjà remarquable. Quant à Ao Di, il ne peut en faire qu'une! »
 

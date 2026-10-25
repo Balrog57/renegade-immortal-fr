@@ -60,23 +60,23 @@ Au moment de son trépas, l'homme comprit clairement la force de Wang Lin. Il n'
 
 « Est-ce cela, un Exalté Doré... » Les yeux de Wang Lin étaient empreints d'intention de combat. Il n'avait utilisé que 70 % de sa puissance, mais il ressentait déjà la puissance colossale des Exaltés Dorés.
 
-À la mort de l'homme à la robe rouge, les 30 000 cultivateurs et les dizaines de cultivateurs du troisième niveau tentèrent de fuir. Cependant, Wang Lin avait déjà scellé la Secte du Dao Démoniaque; aucune évasion n'était possible.
+À la mort de l'homme à la robe rouge, les 30 000 cultivateurs et les dizaines de cultivateurs du troisième niveau tentèrent de fuir. Cependant, Wang Lin avait déjà scellé la Secte Dao Mo; aucune évasion n'était possible.
 
 Wang Lin restait là, le regard froid. Il observa le lac au centre de la secte et l'île qui s'y trouvait.
 
 « Tu ne te montreras toujours pas! » Les paroles de Wang Lin résonnèrent comme le tonnerre, mais aucun son ne vint du lac!
 
-« Tentes-tu de percer? Je vais t'en donner l'occasion! » Wang Lin agita sa manche et apparut aux côtés d'un cultivateur du troisième niveau de la Secte du Dao Démoniaque. D'un revers de doigt, il lui trancha la tête.
+« Tentes-tu de percer? Je vais t'en donner l'occasion! » Wang Lin agita sa manche et apparut aux côtés d'un cultivateur du troisième niveau de la Secte Dao Mo. D'un revers de doigt, il lui trancha la tête.
 
-« Vous n'auriez jamais dû rejoindre la Secte du Dao Démoniaque... » Wang Lin se détourna et s'éloigna. Il apparut devant un autre cultivateur du troisième niveau qui, dans un hurlement, vit son front percé par le doigt de Wang Lin.
+« Vous n'auriez jamais dû rejoindre la Secte Dao Mo... » Wang Lin se détourna et s'éloigna. Il apparut devant un autre cultivateur du troisième niveau qui, dans un hurlement, vit son front percé par le doigt de Wang Lin.
 
-Simultanément, le sceau entourant la Secte du Dao Démoniaque gronda. Le périmètre se contracta rapidement. Tout membre de la secte touchant le sceau mourait instantanément.
+Simultanément, le sceau entourant la Secte Dao Mo gronda. Le périmètre se contracta rapidement. Tout membre de la secte touchant le sceau mourait instantanément.
 
 Puisqu'il avait déclaré qu'il détruirait la secte, il l'exécuterait. Pas un seul membre ne serait épargné!
 
-Wang Lin se déplaçait avec indifférence, éliminant un à un ces dizaines de cultivateurs du troisième niveau. Debout dans les airs, à l'extérieur du lac, il contemplait l'île. Les cris déchiraient l'air alors qu'une masse considérable de cultivateurs de la Secte du Dao Démoniaque succombait.
+Wang Lin se déplaçait avec indifférence, éliminant un à un ces dizaines de cultivateurs du troisième niveau. Debout dans les airs, à l'extérieur du lac, il contemplait l'île. Les cris déchiraient l'air alors qu'une masse considérable de cultivateurs de la Secte Dao Mo succombait.
 
-Ces lamentations atroces résonnaient dans le monde entier. Elles parvinrent aux oreilles de Wang Lin, mais aussi au cœur du Maître de la Secte du Dao Démoniaque, toujours en méditation profonde.
+Ces lamentations atroces résonnaient dans le monde entier. Elles parvinrent aux oreilles de Wang Lin, mais aussi au cœur du Maître de la Secte Dao Mo, toujours en méditation profonde.
 
 Le visage du Maître de la Secte était déformé par la douleur. Ses yeux étaient injectés de sang, mais il continuait de s'endurer. Il... n'osait pas sortir!
 
@@ -90,9 +90,9 @@ De plus, le Maître de la Secte savait pertinemment que Wang Lin possédait enco
 
 « Je ne peux pas sortir! J'ai déjà rapporté la situation à l'Ancêtre par un art secret. J'ignore s'il pourra revenir à temps... » Les cris extérieurs lui brisaient le cœur, mais son expression devint bientôt glaciale.
 
-« Et alors s'ils meurent? Même si toute la Secte du Dao Démoniaque disparaît, tant que je suis en vie, il pourra être reconstruit. Plus il y aura de mort et de destruction, plus l'Ancêtre sera en colère! »
+« Et alors s'ils meurent? Même si toute la Secte Dao Mo disparaît, tant que je suis en vie, il pourra être reconstruit. Plus il y aura de mort et de destruction, plus l'Ancêtre sera en colère! »
 
-« Et j'ai aussi un plan de secours. L'accord entre moi et l'Ancien Taureau Vert de la Secte de la Grande Âme arrive à son terme. La bataille finale doit avoir lieu en ce moment même... »
+« Et j'ai aussi un plan de secours. L'accord entre moi et l'Ancien Taureau Vert de la Secte Da Hun arrive à son terme. La bataille finale doit avoir lieu en ce moment même... »
 
 « Les deux continents jouent cette pièce depuis des dizaines de milliers d'années. Au cours des cent dernières années, nous l'avons rendue plus crédible encore en sacrifiant de nombreux cultivateurs! »
 
@@ -102,16 +102,16 @@ Alors que le Maître de la Secte subissait les hurlements extérieurs, son regar
 
 Le sceau en contraction rapide avait tué la plupart des cultivateurs et détruit de nombreux édifices, laissant la secte en ruines. Il se concentrait désormais vers le centre du lac!
 
-À cet instant précis, sur le Continent du Taureau Céleste, un événement majeur survint!
+À cet instant précis, sur le Continent Tian Niu, un événement majeur survint!
 
-La Secte Gui Yi était encerclée par d'innombrables cultivateurs du Continent du Démon Vert. Ils s'étaient lancés dans une boucherie frénétique pour tenter de briser la formation de la Secte Gui Yi. Les deux camps comptaient sept ou huit génies émergents, et les deux armées combattaient sans égard pour leur vie.
+La Secte Gui Yi était encerclée par d'innombrables cultivateurs du Continent Lu Mo. Ils s'étaient lancés dans une boucherie frénétique pour tenter de briser la formation de la Secte Gui Yi. Les deux camps comptaient sept ou huit génies émergents, et les deux armées combattaient sans égard pour leur vie.
 
-Tous les cultivateurs de la Tribulation du Vide de la Secte Gui Yi, y compris son Maître, ainsi que les quelques Exaltés du Continent du Démon Vert restés sur place, levèrent la tête vers le ciel!
+Tous les cultivateurs de la Tribulation du Vide de la Secte Gui Yi, y compris son Maître, ainsi que les quelques Exaltés du Continent Lu Mo restés sur place, levèrent la tête vers le ciel!
 
 À cet instant, le firmament fut recouvert d'une lumière dorée monumentale. Sous cette lueur, tous les cultivateurs, à l'intérieur comme à l'extérieur de la Secte Gui Yi, cessèrent le combat et contemplèrent le ciel avec horreur.
 
 Une vague de pression infinie descendit des cieux. Une silhouette dorée se tenait calmement au cœur de cette lumière et regarda vers le bas!
 
-« Continent du Taureau Céleste, Continent du Démon Vert, tous les membres du clan céleste présents à la Secte Gui Yi, recevez cet édit! »
+« Continent Tian Niu, Continent Lu Mo, tous les membres du clan céleste présents à la Secte Gui Yi, recevez cet édit! »
 
-Deux autres silhouettes identiques apparurent: l'une à l'extérieur de la Secte de la Grande Âme, et l'autre se déplaçant à une vitesse indescriptible vers le Continent du Démon Vert!
+Deux autres silhouettes identiques apparurent: l'une à l'extérieur de la Secte Da Hun, et l'autre se déplaçant à une vitesse indescriptible vers le Continent Lu Mo!

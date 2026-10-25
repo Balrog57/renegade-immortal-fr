@@ -12,11 +12,11 @@ L'expression du Maître Yan Leizi était grave lorsqu'il déclara: « Si le Seig
 
 Qing Shui répondit calmement: « Cette raison ne suffit pas! » En réalité, il était très contrarié intérieurement.
 
-« Après votre scellement, le Royaume Céleste a subi une catastrophe et les quatre grands Royaumes Célestes se sont tous effondrés. Ne voulez-vous pas savoir ce qui s'est passé? La rumeur prétend que l'Alliance de Culture possède un être céleste vivant. Si vous venez avec moi, vous saurez tout. »
+« Après votre scellement, le Royaume Céleste a subi une catastrophe et les quatre grands Royaumes Célestes se sont tous effondrés. Ne voulez-vous pas savoir ce qui s'est passé? La rumeur prétend que l'Alliance Xiu Zhen possède un être céleste vivant. Si vous venez avec moi, vous saurez tout. »
 
 Qing Shui réfléchit en silence. Après un long moment, il finit par dire lentement: « Ce n'est toujours pas suffisant. »
 
-« Quand j'étais jeune, j'étais un Ancien au sein de l'Alliance de Culture. On raconte qu'un parchemin existe dans l'Alliance; un parchemin qui serait tombé du ciel après l'effondrement du Royaume Céleste et qui contiendrait une trace de l'ancien Royaume Céleste. À mon départ, personne n'avait réussi à l'ouvrir.
+« Quand j'étais jeune, j'étais un Ancien au sein de l'Alliance Xiu Zhen. On raconte qu'un parchemin existe dans l'Alliance; un parchemin qui serait tombé du ciel après l'effondrement du Royaume Céleste et qui contiendrait une trace de l'ancien Royaume Céleste. À mon départ, personne n'avait réussi à l'ouvrir.
 
 Cependant, la rumeur veut que ce parchemin détienne la véritable raison de l'effondrement du Royaume Céleste! Tout cela doit avoir un lien avec votre changement soudain. Après tout, quelle coïncidence cela serait-il! Moins de cent ans après votre massacre, le Royaume Céleste s'est effondré! Si vous prétendez qu'il n'y a aucun rapport, je ne vous croirai jamais!
 

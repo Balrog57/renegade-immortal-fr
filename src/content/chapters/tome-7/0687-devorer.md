@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 687 - Devour
 slug: devorer
 ---
-Ce n'était pas la première fois que Wang Lin assistait à un sort d'extraction d'âme. Dans la Terre des Esprits Démoniaques, il avait vu Tan Lang sortir un trésor en forme de montagne céleste et en extraire l'âme.
+Ce n'était pas la première fois que Wang Lin assistait à un sort d'extraction d'âme. Dans la Terre Yao Ling, il avait vu Tan Lang sortir un trésor en forme de montagne céleste et en extraire l'âme.
 
 La scène de l'époque l'avait profondément marqué. Un tel sort était extrêmement puissant; ce n'était pas une technique que des cultivateurs ordinaires pouvaient contrôler ou maîtriser.
 

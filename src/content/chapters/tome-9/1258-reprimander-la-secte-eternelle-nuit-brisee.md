@@ -54,7 +54,7 @@ Plus important encore, si Wang Lin acceptait de gaspiller toute son énergie ori
 
 Il possédait une horde de moustiques!
 
-C'était son atout ultime, son sort de survie. C'est grâce à cela qu'il n'avait pas hésité à aider la Secte de l'Origine à s'élever au sein de la Secte Éternelle!
+C'était son atout ultime, son sort de survie. C'est grâce à cela qu'il n'avait pas hésité à aider la Secte Gui Yuan à s'élever au sein de la Secte Éternelle!
 
 À cet instant, alors que le filet de loi se refermait, Wang Lin éclata de rire. Ses mains bougèrent et la terre gronda. Une mer illusionnaire apparut. Bien qu'irréelle, elle était parcourue de vagues déferlantes.
 
@@ -72,9 +72,9 @@ Les cultivateurs dans les gradins furent enveloppés par l'obscurité. Ils étai
 
 Même les anciens de la Secte Éternelle n'étaient pas épargnés!
 
-Ils ignoraient que, jadis, dans la Terre des Esprits Démoniaques, Wang Lin avait utilisé Nuit Brisée pour tuer Maître du Vide et forcer Tian Yunzi aux robes grises à battre en retraite. Deux avatars de Tian Yunzi, pourtant au stade avancé de Briseur du Nirvana, y avaient péri!
+Ils ignoraient que, jadis, dans la Terre Yao Ling, Wang Lin avait utilisé Nuit Brisée pour tuer Maître du Vide et forcer Tian Yunzi aux robes grises à battre en retraite. Deux avatars de Tian Yunzi, pourtant au stade avancé de Briseur du Nirvana, y avaient péri!
 
-Ils ignoraient également que Nuit Brisée, depuis la bataille dans la Terre des Esprits Démoniaques, s'était répandu dans le Système Stellaire de l'Alliance et était désormais reconnu comme un sort d'une puissance exceptionnelle!
+Ils ignoraient également que Nuit Brisée, depuis la bataille dans la Terre Yao Ling, s'était répandu dans le Système Stellaire de l'Alliance et était désormais reconnu comme un sort d'une puissance exceptionnelle!
 
 Les vagues déferlaient sous l'obscurité de la nuit. Tout était sombre; même le filet de loi semblait fusionner avec les ténèbres. Le filet toucha la mer et les vagues rugirent comme si l'océan lui-même se convulsait.
 

@@ -1,20 +1,20 @@
 ---
 n: 1348
-title: "Bataille au Clan du Tonnerre Dispersé! (2)"
+title: "Bataille au Clan Shan Lei! (2)"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: "Chapter 1348 - Battle at the Scatter Thunder Clan! (2)"
 slug: bataille-au-clan-du-tonnerre-eparpille-2
 ---
-À cet instant, l'âme originelle de Wang Lin quitta le corps de Yu Fei, et ce dernier flottait lentement pour s'éloigner. Ce qui apparut devant le Clan du Tonnerre Dispersé était l'âme originelle de Wang Lin, imprégnée de foudre. Il ressemblait à un éclair de tonnerre tombé des cieux.
+À cet instant, l'âme originelle de Wang Lin quitta le corps de Yu Fei, et ce dernier flottait lentement pour s'éloigner. Ce qui apparut devant le Clan Shan Lei était l'âme originelle de Wang Lin, imprégnée de foudre. Il ressemblait à un éclair de tonnerre tombé des cieux.
 
-Ses paroles étaient calmes; tandis qu'il parlait, le lac de tonnerre entourant les seize planètes du Clan du Tonnerre Dispersé rugissait avec une intensité accrue, comme s'il lui répondait!
+Ses paroles étaient calmes; tandis qu'il parlait, le lac de tonnerre entourant les seize planètes du Clan Shan Lei rugissait avec une intensité accrue, comme s'il lui répondait!
 
 Cette scène fit se contracter les pupilles de l'homme grand et d'âge moyen. Avec son niveau de culture, il pouvait clairement ressentir la puissance du tonnerre presque suffocante qui émanait de Wang Lin!
 
-« Ainsi, tu n'es pas un membre de mon Clan du Tonnerre Dispersé! » dit d'une voix basse le visage gigantesque qui surgit du tonnerre éternel à l'intérieur du temple.
+« Ainsi, tu n'es pas un membre de mon Clan Shan Lei! » dit d'une voix basse le visage gigantesque qui surgit du tonnerre éternel à l'intérieur du temple.
 
-« Tu oses agir avec une telle insolence au sein de mon Clan du Tonnerre Dispersé, malgré ton faible niveau de culture, et déclarer que tu vas nous détruire? Quelle arrogance! » La voix était empreinte de moquerie, et son rugissement fut tel un coup de tonnerre qui étouffa le bruit du lac de tonnerre!
+« Tu oses agir avec une telle insolence au sein de mon Clan Shan Lei, malgré ton faible niveau de culture, et déclarer que tu vas nous détruire? Quelle arrogance! » La voix était empreinte de moquerie, et son rugissement fut tel un coup de tonnerre qui étouffa le bruit du lac de tonnerre!
 
 L'âme originelle de Wang Lin flottait dans l'espace. Tandis que la lumière de la foudre jaillissait, l'image vague d'un dragon vacillait. Il resta impassible face au rugissement de l'Ancien et n'en fut nullement affecté. Une lueur de froideur traversa son regard alors qu'il pointait le tonnerre éternel et disait froidement: « Oses-tu me défier dans le lac de tonnerre? »
 
@@ -22,7 +22,7 @@ Il n'y avait ni ruse ni stratagème: Wang Lin était venu aujourd'hui pour un co
 
 Tout ce qu'il avait accompli jusqu'ici visait cette bataille! C'était la raison pour laquelle il avait abandonné le corps de Yu Fei et révélé son âme originelle. Tout cela servait à attirer l'Ancien. Wang Lin était convaincu qu'en temps ordinaire l'Ancien ne remarquerait pas la différence de son âme originelle, mais qu'en la déployant entièrement, celui-ci ne pourrait manquer de la voir!
 
-Il s'utilisait comme appât pour affronter l'être le plus puissant du Clan du Tonnerre Dispersé: l'Ancien!
+Il s'utilisait comme appât pour affronter l'être le plus puissant du Clan Shan Lei: l'Ancien!
 
 Après avoir parlé, Wang Lin recula et se transforma en un éclair de foudre, chargeant vers le lac de tonnerre. La puissance de son âme originelle était telle que nul n'osait l'arrêter!
 
@@ -34,9 +34,9 @@ Ces neuf auras appartenaient toutes à des cultivateurs du Fléau Céleste!
 
 Cet individu paraissait avoir une quarantaine d'années et son regard ne laissait paraître aucune émotion. Ses lèvres étaient fines, signe d'un tempérament impitoyable. À cet instant, il sortit du tonnerre éternel et quitta la terre sainte!
 
-« Salutations, Ancien en chef! » L'homme grand et d'âge moyen s'inclina immédiatement. Les yeux des cultivateurs du Clan du Tonnerre Dispersé brillèrent de ferveur à l'apparition de l'Ancien en chef!
+« Salutations, Ancien en chef! » L'homme grand et d'âge moyen s'inclina immédiatement. Les yeux des cultivateurs du Clan Shan Lei brillèrent de ferveur à l'apparition de l'Ancien en chef!
 
-L'Ancien en chef était la divinité du Clan du Tonnerre Dispersé, le sommet absolu de son pouvoir. Tous l'admiraient; pour eux, il était le ciel lui-même!
+L'Ancien en chef était la divinité du Clan Shan Lei, le sommet absolu de son pouvoir. Tous l'admiraient; pour eux, il était le ciel lui-même!
 
 Même les neuf auras qui avaient ciblé Wang Lin se manifestèrent, révélant neuf individus d'âges divers. Tous s'inclinèrent.
 
@@ -46,7 +46,7 @@ Sa marche n'était pas rapide, mais en quelques pas seulement, il franchit une d
 
 Wang Lin fonça tel un éclair, mais après un instant, il fit brusquement demi-tour. L'Ancien n'avait eu besoin que de deux pas pour laisser les membres du clan loin derrière lui et réapparaître à moins de mille pieds derrière Wang Lin!
 
-L'endroit était déjà très éloigné de la terre sainte du Clan du Tonnerre Dispersé, et seul l'infini lac de tonnerre les entourait. Ils étaient seuls au monde!
+L'endroit était déjà très éloigné de la terre sainte du Clan Shan Lei, et seul l'infini lac de tonnerre les entourait. Ils étaient seuls au monde!
 
 « Le Tonnerre de la Tribulation, le Tonnerre Spirituel, et un tonnerre éternel semblable à celui de la terre sainte de mon clan... Pas mal. Tu possèdes donc quelque chose capable d'attirer ce vieil homme, voilà pourquoi tu es si sûr que je me montrerais! » L'Ancien restait calme. Ayant vécu bien trop longtemps, il était extrêmement rusé. Toutes les intentions de Wang Lin étaient claires à ses yeux.
 
@@ -68,7 +68,7 @@ Wang Lin leva la main droite et pointa le vide à plusieurs reprises. La confusi
 
 Ce changement soudain plongea le sortilège de l'Ancien dans le chaos! Les yeux de l'Ancien en chef s'illuminèrent et il ricana.
 
-« Intéressant, vraiment intéressant! » Tout en parlant, sa main droite forma un sceau et pointa vers le ciel. Il déclara lentement: « En tant qu'Ancien en chef du Clan du Tonnerre Dispersé, esclave du tonnerre sacré, je commande au tonnerre du monde par ma volonté infinie pour désintégrer la création! »
+« Intéressant, vraiment intéressant! » Tout en parlant, sa main droite forma un sceau et pointa vers le ciel. Il déclara lentement: « En tant qu'Ancien en chef du Clan Shan Lei, esclave du tonnerre sacré, je commande au tonnerre du monde par ma volonté infinie pour désintégrer la création! »
 
 À ces mots, les près de mille dragons de tonnerre entourant Wang Lin déchaînèrent une foudre incessante et rugirent comme des déments en chargeant vers lui. Même les dragons contrôlés par Wang Lin commencèrent à lutter. Il ne fallut qu'un instant pour qu'ils se libèrent de son emprise et retombent sous le contrôle de l'Ancien en chef!
 
@@ -88,7 +88,7 @@ Bien que Wang Lin ait esquivé le danger immédiat, il fut percuté par l'onde d
 
 « Pas mal pour l'esquive... mais combien de fois pourras-tu encore l'éviter? » L'Ancien émergea des ondulations, une pointe de moquerie dans son regard calme dirigé vers Wang Lin.
 
-« Tu as prétendu vouloir prendre le tonnerre éternel de mon clan et détruire le Clan du Tonnerre Dispersé. Si c'est là toute ta puissance, tu n'y parviendras jamais. »
+« Tu as prétendu vouloir prendre le tonnerre éternel de mon clan et détruire le Clan Shan Lei. Si c'est là toute ta puissance, tu n'y parviendras jamais. »
 
 Wang Lin ne prononça pas un mot; il recula et changea sa forme humaine en celle d'un dragon du tonnerre antique, chargeant vers le lac de tonnerre au loin.
 
@@ -106,4 +106,4 @@ Au même moment, au plus profond du lac de tonnerre infini, au sein d'une sphèr
 
 « Vieux bâtard, tu es enfin arrivé! »
 
-Dès l'ouverture de ses yeux, le lac de tonnerre entourant les seize planètes du Clan du Tonnerre Dispersé se mit à bouillir! C'était comme si leur roi s'était éveillé pour déployer sa puissance foudroyante!
+Dès l'ouverture de ses yeux, le lac de tonnerre entourant les seize planètes du Clan Shan Lei se mit à bouillir! C'était comme si leur roi s'était éveillé pour déployer sa puissance foudroyante!

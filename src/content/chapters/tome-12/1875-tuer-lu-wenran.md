@@ -54,7 +54,7 @@ Tandis que Lu Wenran attaquait comme un possédé, l'aura de Wang Lin augmenta e
 
 Ce changement fut comme un coup invisible et pesant qui frappa l'esprit de Lu Wenran, au point qu'il faillit recracher une bouchée de sang. Ses yeux devinrent injectés de sang et il reprit ses attaques frénétiques.
 
-« J'étais à la Mer des Pilules et tu y étais aussi! Pourquoi ai-je été destiné à m'échapper alors que tu es resté pour faire exploser la Mer des Pilules afin d'obtenir de grands mérites?! Si c'était moi, j'aurais pu le faire aussi! »
+« J'étais à la Mer Dan et tu y étais aussi! Pourquoi ai-je été destiné à m'échapper alors que tu es resté pour faire exploser la Mer Dan afin d'obtenir de grands mérites?! Si c'était moi, j'aurais pu le faire aussi! »
 
 « Je suis au troisième méridien et tu y es également. Mon niveau de culture est supérieur au tien et j'ai plus d'ancienneté. Cette armure d'âme m'appartient, de quel droit me la voles-tu?! »
 
@@ -70,7 +70,7 @@ Au moment où Wang Lin atteignit le stade initial de la Tribulation du Vide, il 
 
 Grrraaah!!
 
-L'ombre du Taureau Céleste leva la tête et poussa un rugissement qui se propagea dans le palais souterrain, à travers la terre, toute la Prairie de l'Extrême Ciel et par-delà le continent!
+L'ombre du Taureau Céleste leva la tête et poussa un rugissement qui se propagea dans le palais souterrain, à travers la terre, toute la Prairie Ji Tian et par-delà le continent!
 
 En surface, les six cultivateurs du stade médian de la Tribulation du Vide entendirent ce rugissement et leurs expressions changèrent radicalement!
 
@@ -80,7 +80,7 @@ En surface, les six cultivateurs du stade médian de la Tribulation du Vide ente
 
 « J'ai déjà entendu un son similaire, c'était le rugissement du Démon Vert. Ce doit être le Taureau Céleste!! » Les six sentirent un pressentiment funeste.
 
-S'ils réagissaient ainsi, que dire des moins de 2 000 cultivateurs du Continent du Démon Vert? Leurs corps tremblaient et la peur se lisait dans leurs yeux. Ce rugissement avait failli provoquer l'effondrement de leurs âmes originelles.
+S'ils réagissaient ainsi, que dire des moins de 2 000 cultivateurs du Continent Lu Mo? Leurs corps tremblaient et la peur se lisait dans leurs yeux. Ce rugissement avait failli provoquer l'effondrement de leurs âmes originelles.
 
 Dans le palais souterrain, les yeux de Wang Lin étaient rouges. Cette rougeur n'était pas due à la folie, mais à l'armure d'âme. Elle provenait du ressentiment transcendant du Taureau Céleste!
 
@@ -98,13 +98,13 @@ Dans un fracas tonitruant, Lu Wenran poussa un cri déchirant et son corps explo
 
 À cet instant, il ne ressentait plus ni jalousie ni folie. C'était comme s'il revenait brusquement à lui, et il hurla en reculant de peur.
 
-« Je suis un Ancien de la Secte de la Grande Âme, tu ne peux pas me tuer! » Les yeux de Wang Lin étaient glacials alors qu'il le rattrapait. Il fit un geste de la main droite et l'âme originelle de Lu Wenran explosa. Il perdit la moitié inférieure de son corps.
+« Je suis un Ancien de la Secte Da Hun, tu ne peux pas me tuer! » Les yeux de Wang Lin étaient glacials alors qu'il le rattrapait. Il fit un geste de la main droite et l'âme originelle de Lu Wenran explosa. Il perdit la moitié inférieure de son corps.
 
 « Je suis le disciple de l'Ancêtre Taureau Vert. Si tu me tues, mon Maître ne te lâchera pas! » Lu Wenran était affaibli après avoir perdu la moitié de son corps, et sa voix n'était plus qu'un souffle. Il reculait frénétiquement, terrorisé.
 
 Mais Wang Lin fit un autre pas et se rapprocha à nouveau. D'un geste de la main droite, il fit s'effondrer une fois de plus le corps de Lu Wenran, ne laissant qu'une tête sur le point de se dissiper.
 
-« Mon rang à la Secte de la Grande Âme est très noble, tu... » Sa tête reculait en hurlant. À cet instant, il était véritablement terrifié. Il ne voulait pas mourir. En tant que cultivateur du stade médian de la Tribulation du Vide, sa mort aurait dû être difficile, mais à ce moment précis, il sentit la mort descendre sur lui comme jamais auparavant.
+« Mon rang à la Secte Da Hun est très noble, tu... » Sa tête reculait en hurlant. À cet instant, il était véritablement terrifié. Il ne voulait pas mourir. En tant que cultivateur du stade médian de la Tribulation du Vide, sa mort aurait dû être difficile, mais à ce moment précis, il sentit la mort descendre sur lui comme jamais auparavant.
 
 « Ne me tue pas! » À peine eut-il prononcé ces mots que Wang Lin apparut aux côtés de sa tête, revêtu de l'effrayante armure noire. L'expression de Wang Lin était froide et empreinte d'intention meurtrière tandis que sa main s'abattait.
 

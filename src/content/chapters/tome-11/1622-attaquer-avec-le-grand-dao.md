@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1622 - Attacking With Grand Dao
 slug: attaquer-avec-le-grand-dao
 ---
-Wang Lin ignorait qu'il s'agissait de la Porte des Dix Mille Os du Vide, mais il sentit que cette porte était singulière et ses yeux se plissèrent. Il fixa l'immense porte devant lui, une lueur d'intention meurtrière traversant son regard.
+Wang Lin ignorait qu'il s'agissait de la Porte Wan Kong Gu, mais il sentit que cette porte était singulière et ses yeux se plissèrent. Il fixa l'immense porte devant lui, une lueur d'intention meurtrière traversant son regard.
 
 Peu importe l'étrangeté de cette porte pour Wang Lin, cela ne changeait rien: ce n'était qu'un passage pour atteindre le troisième niveau. Il s'avança et leva la main droite. Les flocons de neige rouges dispersés dans la zone convergèrent rapidement vers sa paume.
 
@@ -14,15 +14,15 @@ Un instant plus tard, la main droite de Wang Lin émit une lumière rouge infini
 
 « Essence de massacre... » murmura Wang Lin en se précipitant vers la porte osseuse. En un éclair, il réduisit la distance et frappa violemment la porte de sa main droite.
 
-Un fracas tonitruant retentit et une immense empreinte de paume sanglante apparut sur la Porte des Dix Mille Os du Vide. Cette empreinte contenait tout le massacre de Wang Lin ainsi que celui de Qing Shui. Ce massacre était devenu une essence à part entière. Il semblait y avoir d'innombrables fantômes hurlant au sein de la paume de sang, cherchant désespérément à s'en échapper. Cependant, ils ne purent franchir l'empreinte et se retournèrent contre la Porte du Vide.
+Un fracas tonitruant retentit et une immense empreinte de paume sanglante apparut sur la Porte Wan Kong Gu. Cette empreinte contenait tout le massacre de Wang Lin ainsi que celui de Qing Shui. Ce massacre était devenu une essence à part entière. Il semblait y avoir d'innombrables fantômes hurlant au sein de la paume de sang, cherchant désespérément à s'en échapper. Cependant, ils ne purent franchir l'empreinte et se retournèrent contre la Porte Kong.
 
-Des grondements assourdissants résonnèrent avec fureur. La Porte des Dix Mille Os du Vide n'était effectivement pas ordinaire. Face à l'essence de massacre et à ses innombrables fantômes déchaînés, elle ne fit que trembler. Quelques fissures apparurent, mais elle ne s'effondra pas.
+Des grondements assourdissants résonnèrent avec fureur. La Porte Wan Kong Gu n'était effectivement pas ordinaire. Face à l'essence de massacre et à ses innombrables fantômes déchaînés, elle ne fit que trembler. Quelques fissures apparurent, mais elle ne s'effondra pas.
 
 Loin de céder, une force de répulsion jaillit brusquement vers Wang Lin.
 
 Une lueur de froideur traversa les yeux de Wang Lin. Plus la porte était difficile à ouvrir, plus il se sentait stimulé. Il recula de quelques pas et laissa échapper un rire avant de pointer le ciel, le regard empreint d'une détermination inébranlable.
 
-« Tonnerre! » En un instant, le tonnerre emplit le monde et fusa vers la Porte du Vide.
+« Tonnerre! » En un instant, le tonnerre emplit le monde et fusa vers la Porte Kong.
 
 « Feu! » Le feu rugit comme une tempête et consuma des myriades d'ossements!
 
@@ -30,9 +30,9 @@ Une lueur de froideur traversa les yeux de Wang Lin. Plus la porte était diffic
 
 « Sceau de la Vie et de la Mort! » Il leva la main gauche et ses deux mains se rejoignirent.
 
-« Dao du Vrai et du Faux! » Wang Lin ferma les yeux, puis lorsqu'il les rouvrit, une aura puissante emplit son corps. C'était l'aura d'un grand érudit. Cette aura fusionna avec son aura de stade initial de Vide Spirituel, puis il fit un pas en avant. Sa main droite se crispa en un poing et il frappa la Porte du Vide.
+« Dao du Vrai et du Faux! » Wang Lin ferma les yeux, puis lorsqu'il les rouvrit, une aura puissante emplit son corps. C'était l'aura d'un grand érudit. Cette aura fusionna avec son aura de stade initial de Vide Spirituel, puis il fit un pas en avant. Sa main droite se crispa en un poing et il frappa la Porte Kong.
 
-« Six essences, ouvrez la Porte du Vide! » Wang Lin poussa un rugissement alors qu'il fondait sur la Porte du Vide tel un rayon de lumière. Puis, sa main droite percuta la Porte des Dix Mille Os du Vide dans un fracas monumental.
+« Six essences, ouvrez la Porte Kong! » Wang Lin poussa un rugissement alors qu'il fondait sur la Porte Kong tel un rayon de lumière. Puis, sa main droite percuta la Porte Wan Kong Gu dans un fracas monumental.
 
 Ce coup portait en lui les espoirs de 2 000 ans de culture de Wang Lin.
 
@@ -48,13 +48,13 @@ C'était la sixième porte!
 
 Il avait fait exploser six Portes du Vide consécutivement! Plus aucune force ne pouvait désormais empêcher Wang Lin d'atteindre le troisième niveau!
 
-Au moment où la porte vola en éclats, un vortex infiniment vaste apparut. Une vague de puissance provenant de la Porte du Vide, immense comme l'océan, déferla et s'engouffra dans le corps de Wang Lin.
+Au moment où la porte vola en éclats, un vortex infiniment vaste apparut. Une vague de puissance provenant de la Porte Kong, immense comme l'océan, déferla et s'engouffra dans le corps de Wang Lin.
 
 Sous l'effet de cette puissance, des bruits de craquements résonnèrent dans son être. Les six essences de son corps fusionnèrent rapidement, et son aura grimpa en flèche, dépassant son stade initial de Vide Spirituel.
 
 Il passa directement du stade initial au stade intermédiaire de Vide Spirituel!
 
-Tandis que la puissance de la Porte du Vide pénétrait en lui, le corps de Wang Lin subissait un raffinement constant. Son organisme franchit une sorte de limite, dépassant le sommet du deuxième niveau!
+Tandis que la puissance de la Porte Kong pénétrait en lui, le corps de Wang Lin subissait un raffinement constant. Son organisme franchit une sorte de limite, dépassant le sommet du deuxième niveau!
 
 Ce pas marquait son entrée dans le troisième niveau. Ce n'était pas seulement une augmentation de son aura; sa culture avait elle aussi atteint le troisième niveau!
 
@@ -76,7 +76,7 @@ Enfin, lorsque la vie et la mort suivirent et que les essences du vrai et du fau
 
 La culture de Wang Lin continuait de croître, et la pression qui s'en dégageait attira l'attention de tous. Une intention meurtrière traversa les yeux de Xushen Tianzun qui, dans un rugissement, se précipita en avant.
 
-La Porte du Vide étant présente auparavant, il n'avait pu attaquer, mais maintenant qu'elle avait disparu, il devait tuer Wang Lin. Il sentait que s'il ne l'éliminait pas aujourd'hui, il n'en aurait plus jamais l'occasion. L'apparition de la Porte des Dix Mille Os du Vide lui avait glacé le sang.
+La Porte Kong étant présente auparavant, il n'avait pu attaquer, mais maintenant qu'elle avait disparu, il devait tuer Wang Lin. Il sentait que s'il ne l'éliminait pas aujourd'hui, il n'en aurait plus jamais l'occasion. L'apparition de la Porte Wan Kong Gu lui avait glacé le sang.
 
 À cet instant, il engagea toutes ses forces. Même s'il perdait son avatar, peu lui importait. La haine entre lui et Wang Lin était une question de vie ou de mort. Si Wang Lin ne mourait pas aujourd'hui, c'est lui qui mourrait plus tard!
 
@@ -90,13 +90,13 @@ Ces mouvements poussèrent le Maître Nan Yunzi et ses compagnons à se précipi
 
 « Aucun problème! »
 
-Bien que suave, cette voix contenait une force incontestable qui stoppa net le Maître Nan Yunzi et les autres. Ils contemplèrent le vortex apparu après l'effondrement de la Porte du Vide. Wang Lin absorbait la puissance de la Porte tandis que le groupe de Xushen Tianzun se rapprochait de lui.
+Bien que suave, cette voix contenait une force incontestable qui stoppa net le Maître Nan Yunzi et les autres. Ils contemplèrent le vortex apparu après l'effondrement de la Porte Kong. Wang Lin absorbait la puissance de la Porte tandis que le groupe de Xushen Tianzun se rapprochait de lui.
 
 Wang Lin utilisait la puissance de la Porte pour fusionner la sixième essence, le massacre. Au moment où les trois assaillants furent sur lui, Wang Lin pointa un doigt vers eux.
 
 « Arrêtez! »
 
-Ce sort, il l'employait en tant que cultivateur du Vide Spirituel et grand puissant du troisième niveau, alors qu'il absorbait la puissance de la Porte du Vide et fusionnait ses essences. Le monde changea, comme si les étoiles elles-mêmes avaient été figées.
+Ce sort, il l'employait en tant que cultivateur du Vide Spirituel et grand puissant du troisième niveau, alors qu'il absorbait la puissance de la Porte Kong et fusionnait ses essences. Le monde changea, comme si les étoiles elles-mêmes avaient été figées.
 
 Wang Lin avait également insufflé dans ce sort d'immobilisation les intentions dao résiduelles, non digérées, des trois Fruits du Dao qu'il avait avalés dans le Dao du Rêve.
 

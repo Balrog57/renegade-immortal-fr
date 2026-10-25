@@ -104,7 +104,7 @@ Cette pointe était dissimulée dans la chevelure, rendant sa découverte extrê
 
 « Le but de tout cela est de créer l'Essence du Massacre... ou peut-être est-il plus juste de dire que le Senior Frère Qing Shui sert de fourneau pour la produire!! »
 
-« Je comprends maintenant... L'Empereur Divin de la Tortue Noire a trahi les Quatre Sectes Divines parce que l'Alliance de Culture avait découvert ce corps de Tortue Noire. Cette créature était probablement l'un des quatre grands généraux de l'ancien Empereur Céleste. Son corps ne se décompose pas depuis dix mille ans et elle porte l'aura du clan de la Tortue Noire. En tant que descendant, l'Empereur Divin voulait s'approprier la puissance de son ancêtre, et c'est pour cela qu'il a trahi les Quatre Sectes! Seule une telle tentation pouvait faire de lui un traître! »
+« Je comprends maintenant... L'Empereur Divin de la Tortue Noire a trahi les Quatre Sectes Divines parce que l'Alliance Xiu Zhen avait découvert ce corps de Tortue Noire. Cette créature était probablement l'un des quatre grands généraux de l'ancien Empereur Céleste. Son corps ne se décompose pas depuis dix mille ans et elle porte l'aura du clan de la Tortue Noire. En tant que descendant, l'Empereur Divin voulait s'approprier la puissance de son ancêtre, et c'est pour cela qu'il a trahi les Quatre Sectes! Seule une telle tentation pouvait faire de lui un traître! »
 
 « Le Senior Frère Qing Shui est venu ici pour comprendre l'origine de sa folie. Il a dû découvrir quelque chose qui l'a rendu fou à nouveau! Ce doigt aux sept couleurs est la source de tout cela. Le gaz rouge qu'il absorbe, c'est l'Essence du Massacre! » Wang Lin recula, l'esprit en plein tumulte. Il saisissait enfin la vérité!
 
@@ -118,6 +118,6 @@ Le Royaume Ji était né!
 
 La lumière aux sept couleurs persistait dans le ciel, et la silhouette semblait observer le jeune homme en contrebas.
 
-L'esprit de Wang Lin fut ébranlé. En contemplant ce qui se jouait dans le brouillard sanglant, il fut tout aussi horrifié que lorsqu'il avait découvert les 7 Millions de Mondes du Clan du Tonnerre Dispersé. Une spéculation terrifiante lui traversa l'esprit!
+L'esprit de Wang Lin fut ébranlé. En contemplant ce qui se jouait dans le brouillard sanglant, il fut tout aussi horrifié que lorsqu'il avait découvert les 7 Millions de Mondes du Clan Shan Lei. Une spéculation terrifiante lui traversa l'esprit!
 
 « Nourrir le Dao... »

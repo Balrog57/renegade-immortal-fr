@@ -14,51 +14,51 @@ C'était comme si ses mots étaient les lois du monde et sa voix la promesse des
 
 C'était un engagement solennel que le Grand Empyréen Dao Yi avait pris pour recruter Wang Lin. Bien qu'il paraisse très calme et détaché, cette promesse était d'un poids immense!
 
-Lorsque l'ancêtre de la Secte du Dao Démoniaque, qui se tenait derrière l'avatar issu de la pensée divine de Dao Yi, entendit la promesse du Grand Empyréen Dao Yi, son expression changea. Des vagues d'émotions déferlèrent dans son cœur et il regarda Wang Lin avec une expression complexe.
+Lorsque l'ancêtre de la Secte Dao Mo, qui se tenait derrière l'avatar issu de la pensée divine de Dao Yi, entendit la promesse du Grand Empyréen Dao Yi, son expression changea. Des vagues d'émotions déferlèrent dans son cœur et il regarda Wang Lin avec une expression complexe.
 
 Il avait suivi le Grand Empyréen Dao Yi pendant plus de 10 000 ans et possédait une vague compréhension de sa nature. Un tel engagement était extrêmement rare de sa part!
 
 Il faut dire que lorsque le Grand Empyréen Dao Yi l'avait recruté, il n'avait dit que: « Je ne mourrai pas et tu ne mourras pas pendant 100 000 ans! »
 
-Mais à cet instant, l'ancêtre de la Secte du Dao Démoniaque remarqua qu'aucune limite temporelle n'avait été ajoutée aux paroles du Grand Empyréen Dao Yi. Il avait simplement dit: « Je ne mourrai pas, tu ne mourras pas! »
+Mais à cet instant, l'ancêtre de la Secte Dao Mo remarqua qu'aucune limite temporelle n'avait été ajoutée aux paroles du Grand Empyréen Dao Yi. Il avait simplement dit: « Je ne mourrai pas, tu ne mourras pas! »
 
 La portée de cette phrase était vertigineuse!
 
-« Cette personne a obtenu la haute reconnaissance de l'âme du Taureau Céleste et possède une puissance proche d'un Exalté Empyréen. Après avoir revêtu l'armure de l'âme, sa puissance de combat est infiniment proche de celle d'un Ascendant Empyréen. Cet homme... Il n'est pas étonnant que le Grand Empyréen Dao Yi lui accorde autant d'importance », soupira l'ancêtre de la Secte du Dao Démoniaque intérieurement.
+« Cette personne a obtenu la haute reconnaissance de l'âme du Taureau Céleste et possède une puissance proche d'un Exalté Empyréen. Après avoir revêtu l'armure de l'âme, sa puissance de combat est infiniment proche de celle d'un Ascendant Empyréen. Cet homme... Il n'est pas étonnant que le Grand Empyréen Dao Yi lui accorde autant d'importance », soupira l'ancêtre de la Secte Dao Mo intérieurement.
 
 Wang Lin réfléchit silencieusement. Le Grand Empyréen Dao Yi était le premier Grand Empyréen qu'il rencontrait, et il pouvait percevoir la sincérité de la promesse dans ces mots.
 
 « Grand Empyréen, cette affaire est très importante pour moi. Je ne peux pas décider immédiatement et j'ai besoin d'y réfléchir. » Wang Lin joignit les mains et s'inclina devant le Grand Empyréen Dao Yi.
 
-Wang Lin ne voulait pas prendre de décision après n'avoir rencontré qu'un seul Grand Empyréen. De plus, après avoir combattu l'ancêtre de la Secte du Dao Démoniaque, il avait pris conscience des voies des Exalté Empyréens. Il savait qu'il n'était pas encore assez célèbre; il devait acquérir davantage de renommée!
+Wang Lin ne voulait pas prendre de décision après n'avoir rencontré qu'un seul Grand Empyréen. De plus, après avoir combattu l'ancêtre de la Secte Dao Mo, il avait pris conscience des voies des Exalté Empyréens. Il savait qu'il n'était pas encore assez célèbre; il devait acquérir davantage de renommée!
 
 Ce n'est qu'après être devenu plus illustre et avoir choisi un Grand Empyréen à suivre que le danger d'entrer dans la cité impériale diminuerait.
 
 Le jeune aux cheveux noirs fixa Wang Lin. Ses yeux, empreints de sagesse, semblaient capables de lire en lui, et il sourit.
 
-« Je vous accorderai du temps. Avec votre puissance, vous pouvez tenter les Épreuves Empyréennes. Si vous parvenez à franchir le neuvième niveau, je reviendrai vous voir. » Sur ces mots, il se tourna vers l'ancêtre de la Secte du Dao Démoniaque, fusionna avec son corps, puis se transmua de nouveau en robe de dao.
+« Je vous accorderai du temps. Avec votre puissance, vous pouvez tenter les Épreuves Empyréennes. Si vous parvenez à franchir le neuvième niveau, je reviendrai vous voir. » Sur ces mots, il se tourna vers l'ancêtre de la Secte Dao Mo, fusionna avec son corps, puis se transmua de nouveau en robe de dao.
 
 Une fois le Grand Empyréen Dao Yi parti, tout ce qui était figé reprit son mouvement. Les éléments retrouvèrent leur trajectoire originelle. La poussière retomba et le vent se remit à souffler.
 
 Alors que l'environnement reprenait sa forme, la pression qui avait terrassé Wang Lin disparut également. C'était comme si rien de tout ce qui venait de se produire n'avait jamais eu lieu.
 
-L'ancêtre de la Secte du Dao Démoniaque poussa un soupir et joignit les mains devant Wang Lin.
+L'ancêtre de la Secte Dao Mo poussa un soupir et joignit les mains devant Wang Lin.
 
-« L'affaire de la Secte du Dao Démoniaque est réglée... Mais vous avez manqué l'opportunité de suivre immédiatement le Grand Empyréen Dao Yi... Hélas. » Les forts se respectent toujours. La bataille féroce qu'ils avaient livrée avait forcé le vieil homme aux cheveux roux à respecter Wang Lin.
+« L'affaire de la Secte Dao Mo est réglée... Mais vous avez manqué l'opportunité de suivre immédiatement le Grand Empyréen Dao Yi... Hélas. » Les forts se respectent toujours. La bataille féroce qu'ils avaient livrée avait forcé le vieil homme aux cheveux roux à respecter Wang Lin.
 
 Après avoir parlé, le vieil homme se détourna pour partir.
 
-« Confrère cultivateur, veuillez attendre. La raison pour laquelle j'ai détruit la Secte du Dao Démoniaque est que l'ensemble de la secte a utilisé toute sa puissance pour me placer dans une situation de vie ou de mort, et non un seul homme », dit lentement Wang Lin. Il se justifiait rarement, mais l'ancêtre de la Secte du Dao Démoniaque avait gagné son respect.
+« Confrère cultivateur, veuillez attendre. La raison pour laquelle j'ai détruit la Secte Dao Mo est que l'ensemble de la secte a utilisé toute sa puissance pour me placer dans une situation de vie ou de mort, et non un seul homme », dit lentement Wang Lin. Il se justifiait rarement, mais l'ancêtre de la Secte Dao Mo avait gagné son respect.
 
 Le vieil homme aux cheveux roux s'arrêta et réfléchit un instant.
 
-« Peu importe. Le monde est un cycle de karma. La destruction de la Secte du Dao Démoniaque n'est qu'une calamité pour eux, mais elle m'a également libéré des affaires mondaines. Désormais, je peux me consacrer pleinement à la recherche du dao. » Le vieil homme soupira et regarda Wang Lin.
+« Peu importe. Le monde est un cycle de karma. La destruction de la Secte Dao Mo n'est qu'une calamité pour eux, mais elle m'a également libéré des affaires mondaines. Désormais, je peux me consacrer pleinement à la recherche du dao. » Le vieil homme soupira et regarda Wang Lin.
 
 « Le Grand Empyréen Dao Yi est extrêmement partial envers les siens, bien plus que les autres Grands Empyréens. Avec votre force actuelle, choisir de le suivre serait un excellent choix. »
 
-« Parmi les Grands Empyréens, l'Empereur Céleste, le Grand Empyréen des Huit Extrêmes, est le plus fier. Le Grand Empyréen Jiu Di du Continent Central est le plus autoritaire. Le Grand Empyréen Wu Feng du Continent du Nord est le plus détaché; hormis les Ascendants Empyréens, il recrute rarement des Exalté Empyréens. »
+« Parmi les Grands Empyréens, l'Empereur Céleste, le Grand Empyréen des Huit Extrêmes, est le plus fier. Le Grand Empyréen Jiu Di du Continent Central est le plus autoritaire. Le Grand Empyréen Wu Feng du Continent Bei est le plus détaché; hormis les Ascendants Empyréens, il recrute rarement des Exalté Empyréens. »
 
-« Et le Grand Empyréen Shuangzi de la Secte Yang Pourpre du Continent de l'Est... était à l'origine le plus puissant des Grands Empyréens. Mais lors de la dernière réincarnation, son âme s'est scindée en deux et s'est transformée en deux individus distincts. Elle ne pourra pas se rétablir dans cette vie. Bien qu'on dise que sa personnalité est très douce, elle ne serait pas mon choix. » Le vieil homme savait qu'en comparaison d'un Exalté Empyréen, la Secte du Dao Démoniaque n'était qu'une fourmi. Il ne valait pas la peine de se mettre à dos un tel être pour une telle secte.
+« Et le Grand Empyréen Shuangzi de la Secte Yang Pourpre du Continent de l'Est... était à l'origine le plus puissant des Grands Empyréens. Mais lors de la dernière réincarnation, son âme s'est scindée en deux et s'est transformée en deux individus distincts. Elle ne pourra pas se rétablir dans cette vie. Bien qu'on dise que sa personnalité est très douce, elle ne serait pas mon choix. » Le vieil homme savait qu'en comparaison d'un Exalté Empyréen, la Secte Dao Mo n'était qu'une fourmi. Il ne valait pas la peine de se mettre à dos un tel être pour une telle secte.
 
 Le plus important était que cet Exalté Empyréen était extrêmement puissant! Par conséquent, il partagea ces connaissances essentielles afin d'effacer l'amertume des affrontements passés.
 
@@ -84,15 +84,15 @@ Le vieil homme regarda le ciel et répondit lentement: « C'est très simple. D�
 
 « On raconte même que, surplombant ces deux épreuves, existerait une Épreuve de Grand Empyréen créée conjointement par les deux Ancêtres. Cependant, ce n'est qu'une rumeur et je n'en sais pas plus. » Le vieil homme termina son récit et joignit les mains vers Wang Lin.
 
-« Confrère cultivateur, ce vieil homme vous a dit tout ce qu'il devait vous dire. Adieu! » Sans même jeter un regard aux ruines de la Secte du Dao Démoniaque, il se transforma en un rayon de lumière et disparut en un éclair.
+« Confrère cultivateur, ce vieil homme vous a dit tout ce qu'il devait vous dire. Adieu! » Sans même jeter un regard aux ruines de la Secte Dao Mo, il se transforma en un rayon de lumière et disparut en un éclair.
 
 Wang Lin resta immobile, le regard perdu dans le vide, même après le départ du vieil homme. Il avait refusé l'offre du Grand Empyréen Dao Yi, renonçant ainsi à une opportunité immense, mais il n'avait aucun regret.
 
 « Cinq Grands Empyréens. Outre l'Empereur Céleste et Dao Yi, il en reste trois... Avec ma force actuelle, j'ai acquis de nouvelles perspectives après avoir combattu mon premier Exalté Empyréen. Plus je combattrai d'Exalté Empyréens, plus ma renommée grandira! »
 
-« Et aussi, l'Épreuve Empyréenne... Je ne m'attendais pas à ce qu'un tel lieu existe sur le Continent Astral Immortel. Je me demande seulement si les paroles de l'ancêtre de la Secte du Dao Démoniaque étaient vraies ou fausses. »
+« Et aussi, l'Épreuve Empyréenne... Je ne m'attendais pas à ce qu'un tel lieu existe sur le Continent Astral Immortel. Je me demande seulement si les paroles de l'ancêtre de la Secte Dao Mo étaient vraies ou fausses. »
 
-Wang Lin s'assit et médita. Au milieu des décombres, il revoyait sans cesse son combat contre l'ancêtre de la Secte du Dao Démoniaque et le coup de poing du Grand Empyréen Dao Yi.
+Wang Lin s'assit et médita. Au milieu des décombres, il revoyait sans cesse son combat contre l'ancêtre de la Secte Dao Mo et le coup de poing du Grand Empyréen Dao Yi.
 
 Ce coup de poing hantait son esprit, finissant par occulter tout le reste. Wang Lin était totalement absorbé par cette attaque du Grand Empyréen.
 
@@ -100,7 +100,7 @@ Ce coup semblait doux, mais il contenait une force que Wang Lin ne parvenait pas
 
 Durant ces mois, Wang Lin resta assis là, immobile, protégé par une force qui empêchait quiconque de l'approcher.
 
-Les cultivateurs de la Secte du Dao Démoniaque revenant les uns après les autres ne virent que des ruines, et leurs cœurs tremblèrent en apercevant Wang Lin. Certains le reconnurent.
+Les cultivateurs de la Secte Dao Mo revenant les uns après les autres ne virent que des ruines, et leurs cœurs tremblèrent en apercevant Wang Lin. Certains le reconnurent.
 
 Cependant, incapables de franchir la barrière protectrice, ils finirent par se disperser, saisis de peur. Mais certains membres de la Secte refusèrent de partir; ils restèrent à distance, sans oser s'approcher.
 
@@ -112,10 +112,10 @@ Cette année ne fut pour lui qu'un instant fugace. Un jour, après cette année 
 
 L'euphorie liée à l'augmentation de son niveau de culture s'était estompée. Comparé à un Grand Empyréen, il était encore bien trop faible.
 
-« Cependant, malgré cela, j'ai acquis une compréhension immense, particulièrement lors du combat contre l'ancêtre de la Secte du Dao Démoniaque. Intégrer le dao au corps et un coup de poing contenant 27 sorts... Je peux imiter et apprendre cela! » Les yeux de Wang Lin étincelèrent. Ce combat lui avait apporté une sagesse inestimable.
+« Cependant, malgré cela, j'ai acquis une compréhension immense, particulièrement lors du combat contre l'ancêtre de la Secte Dao Mo. Intégrer le dao au corps et un coup de poing contenant 27 sorts... Je peux imiter et apprendre cela! » Les yeux de Wang Lin étincelèrent. Ce combat lui avait apporté une sagesse inestimable.
 
 « Je dois trouver un endroit pour méditer un certain temps. » À son niveau de culture, il pouvait se rendre n'importe où dans la terre des cieux.
 
-Wang Lin se leva et contempla les ruines environnantes. Il sentait naturellement la présence des membres de la Secte du Dao Démoniaque revenus du Continent du Taureau Céleste.
+Wang Lin se leva et contempla les ruines environnantes. Il sentait naturellement la présence des membres de la Secte Dao Mo revenus du Continent Tian Niu.
 
 « Peu importe. » Wang Lin avança et disparut instantanément.

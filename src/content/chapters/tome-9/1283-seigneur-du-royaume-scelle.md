@@ -104,7 +104,7 @@ Après une courte réflexion, Wang Lin n'hésita plus et vola vers la porte. Il 
 
 ***
 
-Mer des Nuages, région de rang 2. Un continent sauvage et reculé était caché au plus profond du brouillard. Les cultivateurs venaient rarement ici; c'était un lieu désolé.
+Mer Yun, région de rang 2. Un continent sauvage et reculé était caché au plus profond du brouillard. Les cultivateurs venaient rarement ici; c'était un lieu désolé.
 
 Il y avait une vallée sur ce continent. Li Qianmei y était assise, face à une statue d'une clarté cristalline.
 

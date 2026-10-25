@@ -40,7 +40,7 @@ Les trésors « Pseudo-Vide du Nirvana » étaient eux-mêmes divisés, de faço
 
 Alors qu'ils étaient plongés dans leurs réflexions, un rugissement retentit à l'extérieur. L'homme en noir bondit immédiatement entre les statues et imita Wang Lin pour quitter les lieux. Maître du Vide et la belle femme s'envolèrent également.
 
-À cet instant, au deuxième étage de la Grotte de l'Empereur Céleste, un éclair de lumière violette jaillit près d'un pavillon proche du centre de l'étage. La silhouette de Wang Lin émergea de cette lueur.
+À cet instant, au deuxième étage de la Grotte Xian Di, un éclair de lumière violette jaillit près d'un pavillon proche du centre de l'étage. La silhouette de Wang Lin émergea de cette lueur.
 
 « Un cultivateur briseur de Nirvana est étonnamment difficile à tuer. Maître du Vide est gravement blessé, mais il n'est pas encore mort! Il y a aussi cette belle femme, et maintenant... » En apparaissant, Wang Lin cracha immédiatement une bouchée de sang, montrant un signe de fatigue inhabituel.
 
@@ -54,7 +54,7 @@ Il était à bout de forces et n'avait pu terroriser l'homme en noir et la belle
 
 Après une profonde inspiration, Wang Lin traversa les diverses restrictions et atteignit bientôt l'un des yeux de restriction marqués sur la carte. Après un examen rapide, il confirma immédiatement sa supposition: quelqu'un était arrivé ici avant lui et avait ouvert l'œil de restriction. Il ignorait à quel étage ces individus avaient déjà progressé.
 
-Il traîna son corps épuisé vers le palais central entouré de brume. Les six premiers étages de la Grotte de l'Empereur Céleste présentaient une structure similaire. Grâce à sa connaissance des lieux, bien qu'il fût plus lent que d'habitude, il atteignit rapidement le centre du deuxième étage, là où se trouvait l'entrée du troisième.
+Il traîna son corps épuisé vers le palais central entouré de brume. Les six premiers étages de la Grotte Xian Di présentaient une structure similaire. Grâce à sa connaissance des lieux, bien qu'il fût plus lent que d'habitude, il atteignit rapidement le centre du deuxième étage, là où se trouvait l'entrée du troisième.
 
 Au même moment, l'homme en noir, la belle femme et Maître du Vide, lourdement blessé, arrivèrent également au deuxième étage.
 
@@ -72,7 +72,7 @@ Dès que les bougies prirent feu, la lueur des flammes enveloppa Wang Lin, et il
 
 Déplacer les chandeliers n'avait servi qu'à tromper autrui; même les traces de mouvement n'étaient là que pour détourner l'attention du fait essentiel: les chandeliers devaient être allumés.
 
-Le temps s'écoula lentement et, en un clin d'œil, Wang Lin avait passé deux mois dans la Grotte de l'Empereur Céleste. Durant cette période, il n'avait eu chaque jour qu'un bref moment pour se soigner; le reste du temps fut consacré à l'exploration de chaque étage.
+Le temps s'écoula lentement et, en un clin d'œil, Wang Lin avait passé deux mois dans la Grotte Xian Di. Durant cette période, il n'avait eu chaque jour qu'un bref moment pour se soigner; le reste du temps fut consacré à l'exploration de chaque étage.
 
 Plus il s'enfonçait, plus les restrictions devenaient puissantes. Malgré ses connaissances et les indications de la carte, il lui fallut un temps considérable pour les franchir.
 

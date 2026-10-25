@@ -40,11 +40,11 @@ Soudain, la sculpture trembla. Une veine sanguine supplémentaire s'était mise 
 
 C'était le fruit du travail acharné de Wang Lin ces derniers jours.
 
-Le temps passa rapidement et, en un clin d'œil, un mois s'était écoulé. Assis sur le dos de la bête moustique, Wang Lin traversa un réseau de transfert après l'autre avant de rejoindre enfin la Mer des Démons.
+Le temps passa rapidement et, en un clin d'œil, un mois s'était écoulé. Assis sur le dos de la bête moustique, Wang Lin traversa un réseau de transfert après l'autre avant de rejoindre enfin la Mer Xiu Mo.
 
-Au cours des dernières décennies, la guerre n'avait eu aucun répit dans la Mer des Démons. Entre les attaques conjointes de plusieurs pays de culture et les contre-attaques des cultivateurs démoniaques, le conflit était arrivé à une impasse.
+Au cours des dernières décennies, la guerre n'avait eu aucun répit dans la Mer Xiu Mo. Entre les attaques conjointes de plusieurs pays de culture et les contre-attaques des cultivateurs démoniaques, le conflit était arrivé à une impasse.
 
-L'objectif de Wang Lin était la terre de l'Ancien Dieu située dans les Étoiles Brisées du Chaos, au sein de la Mer des Démons. Après avoir obtenu l'héritage de la mémoire, il possédait une technique lui permettant d'entrer et de sortir de cet endroit à sa guise.
+L'objectif de Wang Lin était la terre de l'Ancien Dieu située dans les Étoiles Brisées du Chaos, au sein de la Mer Xiu Mo. Après avoir obtenu l'héritage de la mémoire, il possédait une technique lui permettant d'entrer et de sortir de cet endroit à sa guise.
 
 Wang Lin réfléchit longuement. C'était le seul endroit où il pourrait achever le drapeau de restriction sans déclencher la rétribution divine qui aurait détruit l'objet. En outre, le lieu regorgeait de bêtes spirituelles et même de bêtes désolées; Wang Lin souhaitait en capturer une.
 
@@ -54,21 +54,21 @@ Wang Lin prédisait que tant qu'il ne s'enfoncerait pas dans la première épreu
 
 Fort de cette résolution, il enfila le chapeau de paille obtenu auprès du vieil homme négligé et fonça droit vers la terre de l'Ancien Dieu. Sous l'effet protecteur du chapeau, les cultivateurs les plus faibles n'osaient même pas l'entraver et le laissaient passer.
 
-La guerre dans la Mer des Démons ne s'interrompait jamais. Bien qu'il n'y eût plus de batailles à grande échelle comme autrefois, de petits affrontements éclataient partout. Cependant, ces combats étaient contrôlés: seuls les cultivateurs au stade de la Formation du Noyau ou en dessous y participaient. Les cultivateurs de l'Âme Naissante s'en mêlaient rarement; il semblait que les deux camps économisaient leurs forces pour le prochain grand conflit.
+La guerre dans la Mer Xiu Mo ne s'interrompait jamais. Bien qu'il n'y eût plus de batailles à grande échelle comme autrefois, de petits affrontements éclataient partout. Cependant, ces combats étaient contrôlés: seuls les cultivateurs au stade de la Formation du Noyau ou en dessous y participaient. Les cultivateurs de l'Âme Naissante s'en mêlaient rarement; il semblait que les deux camps économisaient leurs forces pour le prochain grand conflit.
 
 Ainsi, personne ne prit la peine d'arrêter Wang Lin. Bien que certains cultivateurs de la Formation de l'Âme déployassent leur sens divin, ils le laissaient passer dès qu'ils l'avaient identifié.
 
-La vitesse de Wang Lin était fulgurante. Si une bête osait barrer sa route, la bête moustique s'élançait pour dévorer son noyau. Après plusieurs jours de transferts successifs, il atteignit la partie intérieure de la Mer des Démons.
+La vitesse de Wang Lin était fulgurante. Si une bête osait barrer sa route, la bête moustique s'élançait pour dévorer son noyau. Après plusieurs jours de transferts successifs, il atteignit la partie intérieure de la Mer Xiu Mo.
 
 À peine sorti du réseau de transfert, il remarqua une bataille à proximité. Après l'avoir inspectée avec son sens divin, il n'y prêta plus attention et sortit sa carte de jade pour vérifier sa position avant de repartir.
 
 Les Étoiles Brisées du Chaos se trouvaient à 50 000 kilomètres à l'est.
 
-Alors qu'il volait, il fronça soudainement les sourcils en apercevant un nuage rouge fonçant vers lui, tel dix mille chevaux au galop. Les yeux de Wang Lin s'illuminèrent. Il savait que dans la Mer des Démons, la force était reine. S'il montrait la moindre faiblesse, on le dévorerait tout cru. En y pensant, une aura froide commença à émaner de son corps.
+Alors qu'il volait, il fronça soudainement les sourcils en apercevant un nuage rouge fonçant vers lui, tel dix mille chevaux au galop. Les yeux de Wang Lin s'illuminèrent. Il savait que dans la Mer Xiu Mo, la force était reine. S'il montrait la moindre faiblesse, on le dévorerait tout cru. En y pensant, une aura froide commença à émaner de son corps.
 
 En un instant, le nuage rouge se rapprocha. À l'intérieur se trouvait une créature mystérieuse. La bête ressemblait à une tortue-dragon, mais sans pointes sur sa carapace; elle arborait plutôt une corne recourbée qui diffusait une lueur noire. Le corps de la bête était immense. Sur son dos siégeait un vieil homme vêtu d'une robe grise, portant une grande gourde rouge à son côté.
 
-En voyant la créature et le vieil homme, Wang Lin se souvint immédiatement de qui il s'agissait. C'était l'homme qui lui avait imposé une restriction autrefois en lui ordonnant de se rendre au Pavillon de Raffinage des Trésors.
+En voyant la créature et le vieil homme, Wang Lin se souvint immédiatement de qui il s'agissait. C'était l'homme qui lui avait imposé une restriction autrefois en lui ordonnant de se rendre au Pavillon Lian Qi.
 
 Les yeux de Wang Lin brillèrent, mais il retrouva aussitôt son calme, fixant le vieil homme d'un regard glacial. Ce dernier arriva rapidement devant Wang Lin et, en le voyant, afficha une expression de surprise. Wang Lin sentit que le sens divin du vieil homme était repoussé par la lumière dorée émanant du chapeau de paille.
 

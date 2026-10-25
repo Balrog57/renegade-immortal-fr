@@ -84,7 +84,7 @@ Si l'énergie de Ling Tianhou n'avait pas été présente, la seconde âme origi
 
 Une marque apparut progressivement entre les sourcils de la seconde âme originelle alors qu'il agitait son marteau tonnerre. Cette marque était profonde et scintillait lentement.
 
-Enveloppé par sa lumière sanguine, Wang Lin sentait la puissance de la résistance sans l'aide de Ling Tianhou. Il vola vers le haut en utilisant la force de poussée de l'Abîme des Marées pour s'élancer. Sa vitesse devint bien des fois supérieure à celle d'avant; il traversa le filet de foudre et chargea droit sur la seconde âme originelle!
+Enveloppé par sa lumière sanguine, Wang Lin sentait la puissance de la résistance sans l'aide de Ling Tianhou. Il vola vers le haut en utilisant la force de poussée de l'Abîme Chao Xi pour s'élancer. Sa vitesse devint bien des fois supérieure à celle d'avant; il traversa le filet de foudre et chargea droit sur la seconde âme originelle!
 
 La majeure partie de sa lumière sanguine s'était déjà dissipée, l'obligeant à écraser sans cesse des jades sanguins pour maintenir sa protection. Sans ce bouclier, il ferait face à une épreuve mortelle au sein de ce filet de foudre, même avec un million de sceaux de vie.
 
@@ -146,7 +146,7 @@ Ce n'est qu'une fois parvenu au stade d'Ascendant qu'il l'avait raffiné en sa s
 
 Le dragon vert ouvrit les yeux et poussa un véritable rugissement draconique!
 
-À cet instant, le ciel changea de couleur et les nuages s'amoncelèrent. Même la résistance de l'Abîme des Marées fut repoussée.
+À cet instant, le ciel changea de couleur et les nuages s'amoncelèrent. Même la résistance de l'Abîme Chao Xi fut repoussée.
 
 Wang Lin esquissa un sourire amer. Sans hésiter, il profita de la dissipation de la poussée pour fuir et s'éloigna au maximum de ce dragon vert!
 
@@ -154,7 +154,7 @@ Wang Lin esquissa un sourire amer. Sans hésiter, il profita de la dissipation d
 
 Alors que le dragon vert rugissait, ses yeux froids balayèrent la zone et se fixèrent sur Wang Lin. La haine passée était toujours là. Bien qu'il vienne de s'éveiller, il se souvenait de ce qui lui était arrivé. Son corps se transforma en un rayon de lumière verte et chargea directement vers Wang Lin.
 
-Après avoir plongé au fond de l'Abîme des Marées, Wang Lin vit le gouffre sans fond qui s'ouvrait devant lui. Une force d'aspiration émanait du trou, lequel était noyé dans la brume.
+Après avoir plongé au fond de l'Abîme Chao Xi, Wang Lin vit le gouffre sans fond qui s'ouvrait devant lui. Une force d'aspiration émanait du trou, lequel était noyé dans la brume.
 
 Le rugissement du dragon et l'odeur fétide de sa gueule approchaient par derrière. Wang Lin eut un sourire amer en fixant le gouffre sans fond. Il serra les dents et sauta soudainement dans le précipice.
 

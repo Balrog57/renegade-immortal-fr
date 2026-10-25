@@ -33,7 +33,7 @@ Le paon poussa un autre cri tandis que les sept couleurs de sa queue fusionnaien
 
 Une fois l'arc-en-ciel entré dans le parchemin, la peinture n'était plus seulement en noir et blanc; elle contenait désormais des touches de couleur. Le gaz gris entourant le paon n'était plus monochrome; d'autres teintes s'y étaient mêlées.
 
-« 999 illusions. Il ne me manque qu'une seule illusion pour atteindre les 1000. Wang Lin, où se cache cette ultime illusion? Si telle est votre seule force, si vous êtes incapable de me résister sans votre drapeau de l'âme, alors je suis profondément déçue. J'aurais pu vous attaquer lors de notre première rencontre à la Secte de l'Affinement de l'Âme, mais vous étiez trop faible alors. Votre domaine n'avait pas encore atteint sa complétude pour devenir corporel, j'ai donc dû attendre.
+« 999 illusions. Il ne me manque qu'une seule illusion pour atteindre les 1000. Wang Lin, où se cache cette ultime illusion? Si telle est votre seule force, si vous êtes incapable de me résister sans votre drapeau de l'âme, alors je suis profondément déçue. J'aurais pu vous attaquer lors de notre première rencontre à la Secte Lian Hun, mais vous étiez trop faible alors. Votre domaine n'avait pas encore atteint sa complétude pour devenir corporel, j'ai donc dû attendre.
 
 « Votre domaine a désormais atteint la complétude de la Formation de l'Âme et est devenu corporel, mais vous êtes toujours aussi faible. Si c'est là tout ce que vous avez, alors vous ne pourrez même pas me permettre d'accomplir ma dernière illusion! »
 
@@ -49,7 +49,7 @@ Wang Lin déclara froidement: « Ce qui doit disparaître disparaîtra naturelle
 
 À cet instant, un point rose apparut sur le parchemin et se mua en une silhouette charmante. Cette figure n'était pas Li Muwan, mais celle que Xu Liguo appelait sans cesse la « petite sœur fée ».
 
-La troisième ancêtre du Clan des Immortels Délaissés s'était réincarnée en cultivatrice et avait obtenu son propre domaine; pourtant, lorsqu'elle retourna parmi les siens, elle renonça à son domaine et laissa son âme originelle se briser. Toutefois, son domaine était d'une telle ténacité qu'il ne s'était pas dissipé.
+La troisième ancêtre du Clan Xian Yi s'était réincarnée en cultivatrice et avait obtenu son propre domaine; pourtant, lorsqu'elle retourna parmi les siens, elle renonça à son domaine et laissa son âme originelle se briser. Toutefois, son domaine était d'une telle ténacité qu'il ne s'était pas dissipé.
 
 Après l'avoir capturée, Wang Lin l'avait conservée dans son sac de rangement. C'était là le véritable atout de Wang Lin contre Liu Mei.
 
@@ -103,9 +103,9 @@ Il devait pénétrer dans l'autel pour accéder à la partie intérieure de la t
 
 Une fois son fragment d'âme en sa possession, les affaires de la planète Suzaku ne lui importeraient plus. Il quitterait cet endroit et laisserait tout ce chaos derrière lui!
 
-Ces dernières années, Wang Lin avait le pressentiment que Tuo Sen, issu de la Terre des Dieux Anciens, s'échapperait bientôt. Il était convaincu qu'il n'avait aucune chance de l'affronter.
+Ces dernières années, Wang Lin avait le pressentiment que Tuo Sen, issu de la Terre Gu Shen, s'échapperait bientôt. Il était convaincu qu'il n'avait aucune chance de l'affronter.
 
-Pendant ce temps, sur le flanc est du continent Suzaku, dans une zone enveloppée de nuages noirs, le premier ancêtre du Clan des Immortels Délaissés, Yun Quezi, le troisième ancêtre et deux esprits ancestraux à dix feuilles étaient réunis.
+Pendant ce temps, sur le flanc est du continent Suzaku, dans une zone enveloppée de nuages noirs, le premier ancêtre du Clan Xian Yi, Yun Quezi, le troisième ancêtre et deux esprits ancestraux à dix feuilles étaient réunis.
 
 Leurs plantes de vie scintillaient sur leurs fronts et, entre eux, reposait un crâne.
 
@@ -117,8 +117,8 @@ Yun Quezi observa l'objet avec respect et déclara d'un ton grave: « L'Ancêtre
 
 Le premier ancêtre demanda lentement: « Qui s'y rendra alors? »
 
-La troisième ancêtre, cette femme belle et charmante, n'avait plus le cœur à rire et soupira: « L'idéal serait que le premier ancêtre y aille, mais votre corps est enfoui profondément dans la Nécropole Immortelle. Si vous tentez d'y pénétrer avec votre âme tatouée, nous ignorons si le Tombeau de Suzaku aura un impact sur vous. Que diriez-vous de... »
+La troisième ancêtre, cette femme belle et charmante, n'avait plus le cœur à rire et soupira: « L'idéal serait que le premier ancêtre y aille, mais votre corps est enfoui profondément dans la Nécropole Immortelle. Si vous tentez d'y pénétrer avec votre âme tatouée, nous ignorons si le Tombeau Zhu Que aura un impact sur vous. Que diriez-vous de... »
 
-Elle s'interrompit brusquement en se levant pour regarder vers le Tombeau de Suzaku, affichant une expression étrange.
+Elle s'interrompit brusquement en se levant pour regarder vers le Tombeau Zhu Que, affichant une expression étrange.
 
 « Ce fragment de mon domaine d'autrefois tente de posséder un corps... Humph, comment pourrais-je la laisser faire à sa guise?! »

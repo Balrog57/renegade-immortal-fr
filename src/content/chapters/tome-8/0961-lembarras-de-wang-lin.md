@@ -31,17 +31,17 @@ Wang Lin fronça légèrement les sourcils et dit:
 
 La femme en violet ouvrit la bouche comme pour parler, mais finit par garder le silence.
 
-« Puisque la Quatrième Sœur n'a rien à dire, je ne vous raccompagnerai pas. » Sur ces mots, Wang Lin agita sa manche. Une brise légère surgit, faisant trembler le corps de la femme et la poussant rapidement vers la porte. Au moment où elle atteignit le seuil, son regard devint résolu et elle murmura: « Wang Lin, maintenant que tu as atteint la deuxième étape, n'as-tu pas peur de la crise qui pourrait s'abattre sur toi au sein de la Secte du Destin Céleste? »
+« Puisque la Quatrième Sœur n'a rien à dire, je ne vous raccompagnerai pas. » Sur ces mots, Wang Lin agita sa manche. Une brise légère surgit, faisant trembler le corps de la femme et la poussant rapidement vers la porte. Au moment où elle atteignit le seuil, son regard devint résolu et elle murmura: « Wang Lin, maintenant que tu as atteint la deuxième étape, n'as-tu pas peur de la crise qui pourrait s'abattre sur toi au sein de la Secte Tian Yun? »
 
 Les yeux de Wang Lin s'illuminèrent et sa main droite se tendit. Il tira la femme en violet vers lui et dit calmement: « Que veut dire Senior Sœur par là? »
 
 La femme en violet serra les dents, leva les yeux vers lui et dit doucement: « Tu as fui à temps à l'époque. Si tu n'avais pas quitté la secte ces cent dernières années, tu aurais déjà disparu mystérieusement! »
 
-« Je présume que tu as déjà remarqué qu'au sein de la Secte du Destin Céleste, hormis Maître, aucun des milliers de disciples internes et externes, et même aucun de nous, les disciples directs, n'a atteint le stade Yin Illusoire! »
+« Je présume que tu as déjà remarqué qu'au sein de la Secte Tian Yun, hormis Maître, aucun des milliers de disciples internes et externes, et même aucun de nous, les disciples directs, n'a atteint le stade Yin Illusoire! »
 
 L'expression de Wang Lin resta sereine tandis qu'il contemplait silencieusement la femme.
 
-« Lorsqu'un cultivateur atteint la perfection de l'Ascendant pour accéder au stade Yin Illusoire, il disparaît mystérieusement dans l'année qui suit. Cette affaire est un tabou au sein de la Secte du Destin Céleste. À l'époque, ton niveau de culture n'était pas assez élevé pour le savoir, et tu l'ignores probablement encore. »
+« Lorsqu'un cultivateur atteint la perfection de l'Ascendant pour accéder au stade Yin Illusoire, il disparaît mystérieusement dans l'année qui suit. Cette affaire est un tabou au sein de la Secte Tian Yun. À l'époque, ton niveau de culture n'était pas assez élevé pour le savoir, et tu l'ignores probablement encore. »
 
 Le visage de Wang Lin ne trahit aucune émotion.
 
@@ -73,7 +73,7 @@ L'expression de Wang Lin demeura neutre. Les six sceaux de cette femme étaient 
 
 « Sauve-moi! Wang Lin, sauve-moi! Je ferai tout ce que tu voudras, pourvu que tu me sauves! » Des larmes coulèrent sur les joues de Zhao Xinmeng tandis qu'elle fixait Wang Lin d'une voix rauque.
 
-« Sais-tu que, bien que tu ne sois revenu qu'hier, tu as déjà attiré l'attention de tous ceux au sein de la Secte du Destin Céleste qui dissimulent leur culture? Ils se demandent tous quand tu disparaîtras... » Zhao Xinmeng se mordit la lèvre. Elle ne pouvait en parler à personne, car c'était un tabou absolu!
+« Sais-tu que, bien que tu ne sois revenu qu'hier, tu as déjà attiré l'attention de tous ceux au sein de la Secte Tian Yun qui dissimulent leur culture? Ils se demandent tous quand tu disparaîtras... » Zhao Xinmeng se mordit la lèvre. Elle ne pouvait en parler à personne, car c'était un tabou absolu!
 
 Elle était déjà plongée dans le désespoir. Le sceau sur son corps se relâchait chaque jour davantage et, bientôt, il allait s'effondrer. La terreur que sa culture soit révélée la paralysait.
 

@@ -64,7 +64,7 @@ Cependant, le démon Xu Liguo ne pouvait dévorer que des âmes de niveau de cul
 
 Ce qui fascinait Wang Lin, c'était la capacité de ces petites créatures à fusionner. C'était la première fois qu'il voyait des sens divins capables de se fondre pour en former un nouveau. Cette aptitude particulière lui donnait l'envie de s'en servir pour créer un démon.
 
-Après une courte réflexion, Wang Lin frappa son sac de rangement, libérant plusieurs drapeaux d'âmes qui flottèrent autour de lui. Les âmes contenues dans ces drapeaux appartenaient principalement à des cultivateurs démoniaques et à des créatures de la Mer des Démons.
+Après une courte réflexion, Wang Lin frappa son sac de rangement, libérant plusieurs drapeaux d'âmes qui flottèrent autour de lui. Les âmes contenues dans ces drapeaux appartenaient principalement à des cultivateurs démoniaques et à des créatures de la Mer Xiu Mo.
 
 D'un geste de la main droite, il emprisonna dix-neuf âmes dans une cage d'énergie spirituelle, n'en laissant qu'une seule isolée.
 
@@ -148,7 +148,7 @@ Lorsque l'attaque massive de sens divin frappa, Bossu Meng ne chercha pas à l'e
 
 Au même moment, la série d'attaques de sens divin, pleines d'une puissance capable de détruire le ciel et la terre, l'atteignit. Bossu Meng poussa un gémissement de douleur. Son corps devint de plus en plus illusoire jusqu'à se changer en un python à corne d'une trentaine de mètres de long. Le serpent se tortilla un instant avant d'être totalement désintégré par les attaques; même son noyau fut réduit en poussière.
 
-Au même moment, l'image du python à l'intérieur de la tour devint floue et se transmuta en Bossu Meng. Son visage était livide et il cracha une bouchée de sang. Il afficha un sourire sanguinaire: « Mon poison destructeur du ciel est réputé le premier poison de la Mer des Démons, et je l'ai libéré en totalité. Je ne crois pas que je sois incapable d'anéantir toute votre race! »
+Au même moment, l'image du python à l'intérieur de la tour devint floue et se transmuta en Bossu Meng. Son visage était livide et il cracha une bouchée de sang. Il afficha un sourire sanguinaire: « Mon poison destructeur du ciel est réputé le premier poison de la Mer Xiu Mo, et je l'ai libéré en totalité. Je ne crois pas que je sois incapable d'anéantir toute votre race! »
 
 Le nuage noir recouvrait désormais toute la zone autour de la tour. Dès qu'il entrait en contact avec une tornade, celle-ci s'effondrait en une multitude de petites créatures qui, aussitôt, se transformaient en fumée noire pour nourrir le nuage. Par conséquent, ce dernier grandissait et s'étendait à une vitesse fulgurante.
 

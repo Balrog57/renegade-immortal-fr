@@ -40,7 +40,7 @@ Une pointe de froideur passa dans les yeux de Qing Lin, aussitôt remplacée par
 
 « Tout cela est dû à la porte du ciel... » Qing Lin ne voulut pas en dire davantage, et son expression devint plus complexe encore.
 
-Wang Lin baissa la tête et dit doucement: « Dans la grotte du Maître, j'ai rencontré l'Ancêtre Saint du Clan du Tatouage... »
+Wang Lin baissa la tête et dit doucement: « Dans la grotte du Maître, j'ai rencontré l'Ancêtre Saint du Clan Fu Wen... »
 
 Qing Lin réfléchit un instant et demanda doucement: « Crois-tu ses paroles? »
 
@@ -92,13 +92,13 @@ Il ne voulait pas que Qing Lin l'aide contre Tuo Sen. Bien que cela éliminerait
 
 Il ne lui restait plus de véritables parents dans ce monde. Au maximum, il n'y en avait qu'une seule personne.
 
-Wang Lin se souvenait clairement que lorsque, dans la Terre des Esprits Démoniaques, son esprit s'était étendu sur le système stellaire grâce à la Perle Défiant le Ciel, il avait aperçu Zhou Ru dans le Royaume du Vide Brillant.
+Wang Lin se souvenait clairement que lorsque, dans la Terre Yao Ling, son esprit s'était étendu sur le système stellaire grâce à la Perle Défiant le Ciel, il avait aperçu Zhou Ru dans le Royaume Kun Xu.
 
 Les yeux de Wang Lin s'illuminèrent et il fit un pas en avant. Des ondulations apparurent sous ses pieds et il disparut. Lorsqu'il réapparut, après avoir traversé d'innombrables étendues stellaires, il se trouvait à l'extérieur d'une planète sauvage tout à fait ordinaire.
 
-De loin, cette planète ne présentait rien d'anormal, mais Wang Lin savait que le réseau de transfert vers le Royaume du Vide Brillant se trouvait ici.
+De loin, cette planète ne présentait rien d'anormal, mais Wang Lin savait que le réseau de transfert vers le Royaume Kun Xu se trouvait ici.
 
-Qu'il s'agisse de livrer le jade que l'ancien Empereur Divin lui avait confié ou d'emmener Zhou Ru, Wang Lin devait se rendre dans ce Royaume du Vide Brillant, même s'il n'était pas disposé à affronter Mu Bingmei.
+Qu'il s'agisse de livrer le jade que l'ancien Empereur Divin lui avait confié ou d'emmener Zhou Ru, Wang Lin devait se rendre dans ce Royaume Kun Xu, même s'il n'était pas disposé à affronter Mu Bingmei.
 
 En contemplant la planète au loin, Wang Lin soupira, mais ne s'arrêta pas. Il pénétra directement dans l'atmosphère de la planète et atterrit.
 
@@ -110,21 +110,21 @@ Simultanément, une voix glaciale résonna:
 
 « Ceci est un lieu interdit. Si tu fais un pas de plus, peu importe ton origine, ton corps et ton esprit seront anéantis! »
 
-Wang Lin fronça les sourcils, s'arrêta et dit: « Je ne suis pas venu pour combattre. Je viens livrer un jade au Royaume du Vide Brillant au nom de l'ancien Empereur Divin de l'Oiseau Vermillon! »
+Wang Lin fronça les sourcils, s'arrêta et dit: « Je ne suis pas venu pour combattre. Je viens livrer un jade au Royaume Kun Xu au nom de l'ancien Empereur Divin de l'Oiseau Vermillon! »
 
 Les auras autour de lui faiblirent légèrement et la voix glaciale résonna de nouveau:
 
 « Laisse le jade et disparais! »
 
-Une lueur de froideur passa dans les yeux de Wang Lin. Il pouvait clairement distinguer que ces quatre auras appartenaient à des cultivateurs du Scruteur du Nirvana. Le fait d'avoir des cultivateurs au stade Scruteur du Nirvana pour garder la porte prouvait que le Royaume du Vide Brillant n'était pas moins puissant qu'une autre force de l'Alliance.
+Une lueur de froideur passa dans les yeux de Wang Lin. Il pouvait clairement distinguer que ces quatre auras appartenaient à des cultivateurs du Scruteur du Nirvana. Le fait d'avoir des cultivateurs au stade Scruteur du Nirvana pour garder la porte prouvait que le Royaume Kun Xu n'était pas moins puissant qu'une autre force de l'Alliance.
 
 Cependant, ces quatre cultivateurs étaient bien trop arrogants. Bien qu'ils aient détecté que Wang Lin était un cultivateur du Purificateur du Nirvana, leurs paroles restaient brutales. Il était probable que, tant qu'un cultivateur du Briseur du Nirvana ne se présenterait pas, ils ne feraient preuve d'aucune courtoisie.
 
-Il n'avait déjà aucun sentiment favorable envers le Royaume du Vide Brillant, mais il était venu ici dans l'unique but de prendre Zhou Ru avec lui. Après une courte réflexion, Wang Lin réprima sa colère et dit calmement: « En plus de livrer le jade, je souhaite rencontrer Mu Bingmei. »
+Il n'avait déjà aucun sentiment favorable envers le Royaume Kun Xu, mais il était venu ici dans l'unique but de prendre Zhou Ru avec lui. Après une courte réflexion, Wang Lin réprima sa colère et dit calmement: « En plus de livrer le jade, je souhaite rencontrer Mu Bingmei. »
 
 Un rire éclata à nouveau, suivi par la voix glaciale:
 
-« Pour entrer dans le Royaume du Vide Brillant, tu dois présenter un jade d'invitation. L'as-tu? »
+« Pour entrer dans le Royaume Kun Xu, tu dois présenter un jade d'invitation. L'as-tu? »
 
 Wang Lin fronça les sourcils et répondit calmement: « Je ne l'ai pas. Je vais vous demander de bien vouloir... » Sans attendre qu'il termine, la voix glaciale l'interrompit d'un ton impatient:
 
@@ -138,7 +138,7 @@ Une aura meurtrière jaillit de son corps et une intention de tuer envahit son r
 
 « Si tu as du cran, essaie de forcer l'entrée toi-même. » La voix était empreinte d'agacement. Si Wang Lin n'avait pas été un cultivateur du Purificateur du Nirvana, il n'aurait pas été aussi poli et l'aurait déjà chassé de force.
 
-Wang Lin, pris d'une colère extrême, éclata de rire. Il n'aurait jamais cru que les quatre gardiens du Royaume du Vide Brillant feraient preuve d'une telle arrogance.
+Wang Lin, pris d'une colère extrême, éclata de rire. Il n'aurait jamais cru que les quatre gardiens du Royaume Kun Xu feraient preuve d'une telle arrogance.
 
 « Très bien, très bien! » Une froideur glaciale apparut dans les yeux de Wang Lin alors qu'il fit un pas en avant et agita sa main droite. Une mer de flammes surgit dans le ciel, le teintant d'un rouge vif, et une pluie de feu s'abattit furieusement des hauteurs.
 

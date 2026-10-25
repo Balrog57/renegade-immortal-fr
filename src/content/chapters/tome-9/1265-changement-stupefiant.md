@@ -14,11 +14,11 @@ Avant de s'en aller, la silhouette de Mu Bingmei, baignée par la lumière lunai
 
 « Li Qianmei est plutôt douée... Cependant, tu ne peux toujours pas oublier la petite sœur Wan Er... Je crois que si la petite sœur Wan Er se réveillait, elle ne voudrait pas te voir solitaire pendant des milliers d'années... Je ne veux pas non plus te voir ainsi. Après aujourd'hui, je me rendrai à la Secte Divine pour me rétablir et je ne quitterai probablement pas la culture en ermitage pendant mille ans. J'ignore si nous nous reverrons dans un millénaire. Pourtant, Wang Lin... j'ai quelque chose que je veux te dire.
 
-"Je suis Liu Mei, la mère de Wang Ping... Lorsque je me libérerai du Royaume du Vide Brillant, j'accompagnerai Wang Ping à travers d'innombrables cycles de réincarnation et je serai une véritable mère", murmura Mu Bingmei en s'éloignant progressivement. Son cœur dao tendait vers la complétion après avoir prononcé ces mots.
+"Je suis Liu Mei, la mère de Wang Ping... Lorsque je me libérerai du Royaume Kun Xu, j'accompagnerai Wang Ping à travers d'innombrables cycles de réincarnation et je serai une véritable mère", murmura Mu Bingmei en s'éloignant progressivement. Son cœur dao tendait vers la complétion après avoir prononcé ces mots.
 
 Domaine de la Cruauté des Mille Illusions... Domaine des Dix Mille Illusions Démoniaques... Finalement, il changea lentement.
 
-Parmi les Saintesses du Vide Brillant, une seule personne avait réussi à maîtriser le sort hérité de la lignée, toutes les autres ayant échoué. Mu Bingmei avait tenté un raccourci en y fusionnant sa propre voie, mais elle avait échoué avec Liu Mei. Son cœur dao était incomplet et une fissure était ainsi apparue sur le sort le plus puissant du Royaume du Vide Brillant.
+Parmi les Saintesses du Vide Brillant, une seule personne avait réussi à maîtriser le sort hérité de la lignée, toutes les autres ayant échoué. Mu Bingmei avait tenté un raccourci en y fusionnant sa propre voie, mais elle avait échoué avec Liu Mei. Son cœur dao était incomplet et une fissure était ainsi apparue sur le sort le plus puissant du Royaume Kun Xu.
 
 Cette fissure, c'était Liu Mei, aussi Wang Lin, mais surtout Wang Ping! Cependant, à cet instant, forte de tout ce qu'elle avait vécu, Mu Bingmei ne cherchait plus à éviter cette faille. Elle choisit de l'affronter, de l'accepter.
 
@@ -38,7 +38,7 @@ Le temps passa lentement. En un clin d'œil, plusieurs jours s'écoulèrent. La 
 
 Trois jours plus tôt, Mu Bingmei avait quitté la Secte Éternelle avec Wang Shanshan. Cette dernière avait reçu l'ordre de son maître de regagner rapidement la Secte Divine. Naturellement, la Secte Éternelle n'osa pas s'y opposer. Avant de partir, Mu Bingmei ne se retourna pas. Elle était fière, elle était la Saintesse du Vide Brillant!
 
-Le Royaume du Vide Brillant avait été détruit, et elle seule en subsistait. Dès cet instant, elle n'appartenait plus à elle-même. Il lui incombait de cultiver pour restaurer le Royaume du Vide Brillant, d'assumer ses responsabilités de Saintesse. C'était une charge qu'elle avait fuie longtemps, mais elle choisissait désormais de l'affronter sans plus jamais s'en dérober.
+Le Royaume Kun Xu avait été détruit, et elle seule en subsistait. Dès cet instant, elle n'appartenait plus à elle-même. Il lui incombait de cultiver pour restaurer le Royaume Kun Xu, d'assumer ses responsabilités de Saintesse. C'était une charge qu'elle avait fuie longtemps, mais elle choisissait désormais de l'affronter sans plus jamais s'en dérober.
 
 Sa conversation avec Wang Lin avait dénoué les attaches mortelles de son cœur. Elle enfouit ce souvenir au plus profond de son âme et le scella.
 
@@ -78,7 +78,7 @@ Pourtant, un sentiment d'injustice et d'impuissance surpassait cette rage. Ils �
 
 Le Maître de la Secte resta silencieux très longtemps, avant de paraître soudainement épuisé. Il poussa un soupir et secoua la tête. « Puisque la Secte Divine a ordonné l'annulation de la compétition, il doit en avoir des raisons. Des raisons qui nous échappent. »
 
-Tout en éprouvant de l'amertume, le Maître de la Secte regarda Wang Lin et joignit les mains. « Camarade cultivateur Lu, la compétition de rang 8 a été annulée par la Secte Divine; nous n'avons plus besoin de nous y rendre. Je dois convoquer et en discuter avec le reste des anciens. Que diriez-vous de ramener la Secte de l'Origine dans la région de rang 5 et de préparer leur transfert vers la région de rang 7? »
+Tout en éprouvant de l'amertume, le Maître de la Secte regarda Wang Lin et joignit les mains. « Camarade cultivateur Lu, la compétition de rang 8 a été annulée par la Secte Divine; nous n'avons plus besoin de nous y rendre. Je dois convoquer et en discuter avec le reste des anciens. Que diriez-vous de ramener la Secte Gui Yuan dans la région de rang 5 et de préparer leur transfert vers la région de rang 7? »
 
 L'expression de Wang Lin resta calme, mais il ressentit un frisson, comme si un événement cataclysmique était sur le point de s'abattre. Après une courte réflexion, ses yeux s'illuminèrent: « Puis-je examiner le jade de la Secte Divine? »
 
@@ -96,13 +96,13 @@ Les membres de la Secte Éternelle étaient tous partagés par des sentiments co
 
 « Li Qianmei a répondu à la convocation de la Secte Brise-Ciel et est partie précipitamment... Mu Bingmei est partie tout aussi précipitamment, et ni l'une ni l'autre ne connaissait la raison. Ces événements isolés ne sont pas suspects, mais l'annulation simultanée de la compétition de rang 8 par la Secte Divine... Tout cela est trop étrange! »
 
-« Se pourrait-il qu'un événement majeur se prépare dans la Mer des Nuages? » Wang Lin fronça les sourcils, profondément perplexe.
+« Se pourrait-il qu'un événement majeur se prépare dans la Mer Yun? » Wang Lin fronça les sourcils, profondément perplexe.
 
-Tout en réfléchissant, il retourna rapidement vers la Secte de l'Origine pour convoquer Lu Yanfei et les autres. Ils emballèrent immédiatement leurs affaires et utilisèrent la formation de transfert pour regagner le continent de Mo Luo, dans la région de rang 5!
+Tout en réfléchissant, il retourna rapidement vers la Secte Gui Yuan pour convoquer Lu Yanfei et les autres. Ils emballèrent immédiatement leurs affaires et utilisèrent la formation de transfert pour regagner le continent de Mo Luo, dans la région de rang 5!
 
 Wang Lin avait le vague pressentiment que le malheur approchait. Cette sensation terrifiante ne cessait de croître. Même en tentant de cultiver, il ne parvenait pas à apaiser son esprit.
 
-« Vite, organisez les affaires de la Secte de l'Origine. Je vous emmènerai tous dans la région de rang 7 dans trois jours, puis je partirai! » Dès son retour, il donna ses ordres et se lança immédiatement en culture en ermitage. Son Sens Divin plongea dans son âme originelle pour fusionner rapidement avec l'âme de Tian Yunzi.
+« Vite, organisez les affaires de la Secte Gui Yuan. Je vous emmènerai tous dans la région de rang 7 dans trois jours, puis je partirai! » Dès son retour, il donna ses ordres et se lança immédiatement en culture en ermitage. Son Sens Divin plongea dans son âme originelle pour fusionner rapidement avec l'âme de Tian Yunzi.
 
 Cette fois, il ne fusionnait pas avec Tian Yunzi pour combattre un ennemi, mais pour emprunter sa puissance afin de forcer la prédiction de l'inconnu!
 

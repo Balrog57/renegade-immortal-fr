@@ -82,7 +82,7 @@ Wang Lin dit doucement: « Après avoir quitté le monde des grottes, alors que 
 
 Mu Bingmei hocha la tête. Son cœur battait la chamade. Elle peinait encore à réaliser et ne savait quels mots employer.
 
-À l'écoute de Wang Lin, elle devint extrêmement nerveuse. Une telle émotion était rare pour une femme aussi déterminée qu'elle, autrefois sainte du Royaume du Vide Brillant et désormais sainte du Royaume Céleste. Il semblait que, mis à part Wang Lin, aucun autre homme ne puisse la plonger dans un tel désarroi.
+À l'écoute de Wang Lin, elle devint extrêmement nerveuse. Une telle émotion était rare pour une femme aussi déterminée qu'elle, autrefois sainte du Royaume Kun Xu et désormais sainte du Royaume Céleste. Il semblait que, mis à part Wang Lin, aucun autre homme ne puisse la plonger dans un tel désarroi.
 
 Peut-être que si quelqu'un d'autre pouvait le faire, ce serait Wang Ping.
 

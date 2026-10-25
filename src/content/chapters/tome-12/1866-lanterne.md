@@ -44,7 +44,7 @@ Tout cela se produisit en un éclair. Xu Decai retrouva soudainement ses esprits
 
 Cette fois, Wang Lin cracha une bouchée de sang; son visage était pâle mais d'une férocité extrême. Xu Decai, qui venait tout juste de recouvrer sa liberté, se figea de nouveau. Pour la première fois, la peur apparut dans ses yeux.
 
-La neige noire tombait des nuages sombres, lesquels étaient formés par la Voile Fantôme de Wang Lin. Si la Voile Fantôme était la technique la plus puissante de la Secte de la Grande Âme, c'était grâce à sa capacité à ignorer le niveau de culture et à perturber l'esprit.
+La neige noire tombait des nuages sombres, lesquels étaient formés par la Voile Fantôme de Wang Lin. Si la Voile Fantôme était la technique la plus puissante de la Secte Da Hun, c'était grâce à sa capacité à ignorer le niveau de culture et à perturber l'esprit.
 
 À cet instant, les nuages sombres dans le ciel grondèrent et descendirent rapidement pour former la silhouette, vue de dos, d'une femme en blanc.
 

@@ -106,7 +106,7 @@ Ling Dong n'hésita pas et se positionna du côté gauche de Wang Lin. Ses mains
 
 Les cheveux et les vêtements de l'estimé Ling Dong s'agitèrent sans qu'aucun vent ne soufflât, alors qu'une puissance colossale émanait du corps de Wang Lin. Son expression changea immédiatement et il serra les dents pour endurer le choc.
 
-Zhou Jin, du Clan du Loup Céleste, avait été frappé par le doigt de Wang Lin. Son visage était pâle et ses yeux trahissaient sa lutte. Cependant, plus il résistait, plus la rune d'ancien esclave clignotait entre ses sourcils.
+Zhou Jin, du Clan Feng Tian Lang, avait été frappé par le doigt de Wang Lin. Son visage était pâle et ses yeux trahissaient sa lutte. Cependant, plus il résistait, plus la rune d'ancien esclave clignotait entre ses sourcils.
 
 Septième respiration!
 

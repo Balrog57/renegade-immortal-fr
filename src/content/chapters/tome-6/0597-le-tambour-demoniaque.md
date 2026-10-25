@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 597 - Demon Drum
 slug: le-tambour-demoniaque
 ---
-« Merde de chien, punition divine et petit voyou, vous osez détruire la capitale de mon Pays du Démon Céleste?! »
+« Merde de chien, punition divine et petit voyou, vous osez détruire la capitale de mon Pays Tian Yao?! »
 
 « Maudits, tous maudits! Toi, sale gosse, tu mérites de mourir, et cette punition divine plus encore! »
 
@@ -42,7 +42,7 @@ Les cinq vieillards commencèrent à se quereller.
 
 La puissance céleste, comme irritée, redoubla de rage, et le nuage rouge descendit de 26,4 centimètres supplémentaires!
 
-La terre rugit et tout le sol de la cité impériale fut broyé. Bien que l'onde de choc ne puisse pas se propager en surface, elle se propagea sous terre comme si des dragons s'agitaient dans les profondeurs, affectant presque la moitié de la Cité du Démon Céleste.
+La terre rugit et tout le sol de la cité impériale fut broyé. Bien que l'onde de choc ne puisse pas se propager en surface, elle se propagea sous terre comme si des dragons s'agitaient dans les profondeurs, affectant presque la moitié de la Cité Tian Yao.
 
 Les cinq vieillards cessèrent soudainement de parler. C'était comme si leurs corps avaient été frappés par une main invisible et projetés au sol.
 
@@ -52,19 +52,19 @@ Les cinq vieillards se relevèrent immédiatement, pointèrent le ciel du doigt 
 
 « Je suis le descendant du démon ancien, qui est hors des lois célestes. Tu n'es qu'une simple punition divine, tu ne vaux rien! »
 
-Tout en maudissant, ils s'envolèrent de nouveau vers les cieux. Cette fois, une énergie spirituelle démoniaque jaillit de leurs corps. Une épaisse brume démoniaque enveloppa toute la Cité du Démon Céleste tandis que les cinq hommes fonçaient droit vers les nuages rouges.
+Tout en maudissant, ils s'envolèrent de nouveau vers les cieux. Cette fois, une énergie spirituelle démoniaque jaillit de leurs corps. Une épaisse brume démoniaque enveloppa toute la Cité Tian Yao tandis que les cinq hommes fonçaient droit vers les nuages rouges.
 
 La puissance céleste trembla et le nuage rouge descendit une fois de plus. Cette fois, il descendit de 3,3 mètres!
 
-À cet instant, ce fut comme si une main géante s'abattait sur la Cité du Démon Céleste, transformant tout en poussière en un éclair...
+À cet instant, ce fut comme si une main géante s'abattait sur la Cité Tian Yao, transformant tout en poussière en un éclair...
 
-D'innombrables fissures apparurent dans le sol dans un fracas assourdissant. Ces crevasses étaient immenses et, en un clin d'œil, la terre sous la Cité du Démon Céleste fut déchirée!
+D'innombrables fissures apparurent dans le sol dans un fracas assourdissant. Ces crevasses étaient immenses et, en un clin d'œil, la terre sous la Cité Tian Yao fut déchirée!
 
 Wang Lin cracha une large bouffée de sang, tandis que des bruits de déchirement résonnaient dans son corps. Il était désormais totalement enseveli sous terre, ne laissant derrière lui qu'un trou béant.
 
 Les cinq vieillards qui chargeaient le nuage rouge furent eux aussi projetés au sol, laissant derrière eux cinq cratères profonds.
 
-L'un des vieillards, au fond de son trou, était furieux. Il en sortit et hurla avec rage: « Punition divine, espèce de saloperie! Tu as détruit ma Cité du Démon Céleste, je vais te combattre jusqu'à la mort! »
+L'un des vieillards, au fond de son trou, était furieux. Il en sortit et hurla avec rage: « Punition divine, espèce de saloperie! Tu as détruit ma Cité Tian Yao, je vais te combattre jusqu'à la mort! »
 
 À cet instant, Wang Lin ne ressentait plus rien à l'extérieur. Il était sous terre et avait perdu toute sensation corporelle. Ses méridiens étaient brisés et ses os semblaient se réduire en poussière.
 
@@ -98,21 +98,21 @@ Wang Lin réfléchit.
 
 « Cependant, je suis incomplet... À mon réveil, j'étais dans le tambour démoniaque. Je sens que la peau de ce tambour m'appartenait autrefois. Pendant d'innombrables années, je ne pouvais pas m'éloigner trop de lui; j'ai donc utilisé des sorts pour créer le lac du dragon et j'ai instruit les gens... »
 
-« Je sens qu'en cette Terre des Esprits Démoniaques, huit autres existences comme moi résident dans les autres pays. Ils ont tous choisi la même méthode que moi; ils ont créé quelque chose de semblable au lac du dragon et ont commencé à éduquer le peuple... »
+« Je sens qu'en cette Terre Yao Ling, huit autres existences comme moi résident dans les autres pays. Ils ont tous choisi la même méthode que moi; ils ont créé quelque chose de semblable au lac du dragon et ont commencé à éduquer le peuple... »
 
 « J'ai communiqué avec ces êtres similaires pendant d'innombrables années, mais nous n'avons jamais pu parvenir à une décision commune. Chaque existence comme moi voulait dévorer l'autre pour devenir plus forte... Peut-être est-ce là la seule façon pour nous de devenir complets! »
 
-« C'est pourquoi la guerre entre les neuf pays perdure depuis des éons dans la Terre des Esprits Démoniaques... L'apparition de vous, les cultivateurs, fait basculer la balance de cette guerre sans fin. C'est pour cela que vous êtes autorisés à exister en Terre des Esprits Démoniaques... »
+« C'est pourquoi la guerre entre les neuf pays perdure depuis des éons dans la Terre Yao Ling... L'apparition de vous, les cultivateurs, fait basculer la balance de cette guerre sans fin. C'est pour cela que vous êtes autorisés à exister en Terre Yao Ling... »
 
 Wang Lin projeta un message par son Sens Divin: « Tu dois avoir une raison d'apparaître et de me révéler tout cela. »
 
-« C'est exact. Je peux t'aider à réparer ton corps et à surmonter cette punition divine. Je peux aussi te donner du pouvoir dans le Pays du Démon Céleste, mais tu devras faire quelque chose pour moi. Tu dois récupérer les huit reliques sacrées des huit autres pays! »
+« C'est exact. Je peux t'aider à réparer ton corps et à surmonter cette punition divine. Je peux aussi te donner du pouvoir dans le Pays Tian Yao, mais tu devras faire quelque chose pour moi. Tu dois récupérer les huit reliques sacrées des huit autres pays! »
 
-Wang Lin réfléchit. Peu après, il dit lentement: « Je ne peux pas être le seul cultivateur défiant les cieux depuis l'aube de la Terre des Esprits Démoniaques... »
+Wang Lin réfléchit. Peu après, il dit lentement: « Je ne peux pas être le seul cultivateur défiant les cieux depuis l'aube de la Terre Yao Ling... »
 
 Avant que Wang Lin n'ait pu achever sa phrase, la voix l'interrompit avec un soupir et murmura lentement: « Tu n'es pas le premier cultivateur défiant les cieux, mais tu es le premier mortel à cultiver la voie du dieu ancien! Je peux sentir son aura... Cette aura est très ténue, mais elle est d'une pureté absolue! »
 
-« Les habitants de la Terre des Esprits Démoniaques que j'ai éclairés ne peuvent supporter mon pouvoir. Leurs corps sont incapables de le contenir, peu importe leur force... car je suis d'une race différente! »
+« Les habitants de la Terre Yao Ling que j'ai éclairés ne peuvent supporter mon pouvoir. Leurs corps sont incapables de le contenir, peu importe leur force... car je suis d'une race différente! »
 
 « Bien que les corps des cultivateurs soient légèrement plus résistants que ceux des gens d'ici, ils ont tout de même leurs limites. Très peu peuvent endurer ma puissance... »
 

@@ -122,7 +122,7 @@ C'était parce que l'âme originelle de Wang Lin s'était étendue pour recouvri
 
 Dans le ciel, Xuan Luo afficha un sourire de satisfaction. « Les Trois Divisions de l'Âme de l'Ancien Dao... il a enfin réussi!! Je me demande quel genre de présent il obtiendra de l'Ancêtre Ancien... »
 
-Sur la Montagne de l'Origine, Song Tian, qui n'assistait pas à la cérémonie de Ji Du, contemplait également la statue, et les mêmes pensées traversaient son esprit.
+Sur la Montagne Yuan Shi, Song Tian, qui n'assistait pas à la cérémonie de Ji Du, contemplait également la statue, et les mêmes pensées traversaient son esprit.
 
 « Quelle fortune peut-il espérer obtenir de la Bénédiction de l'Ancêtre Ancien... » Song Tian attendait cela avec impatience.
 
@@ -138,6 +138,6 @@ C'était une goutte de sang!
 
 Cette goutte dégageait l'aura d'une âme, et à son apparition, toute la cité impériale de Shi Antique fut plongée dans un silence de mort!
 
-« Sang d'âme!! » Sur la Montagne de l'Origine, au moment où Song Tian vit le sang, il fut frappé de stupeur et afficha un regard d'incrédulité!
+« Sang d'âme!! » Sur la Montagne Yuan Shi, au moment où Song Tian vit le sang, il fut frappé de stupeur et afficha un regard d'incrédulité!
 
 « C'est du sang d'âme! Trois gouttes de sang d'âme peuvent créer un clan Antique. Il en avait déjà obtenu une auparavant, et maintenant... c'est la deuxième! » Xuan Luo prit une profonde inspiration. Même lui n'aurait jamais cru que Wang Lin puisse obtenir une seconde goutte de sang d'âme!

@@ -20,7 +20,7 @@ Alors que ces âmes fusionnaient, la voix lugubre de Tian Yunzi résonna dans l'
 
 « Comment peux-tu rivaliser de vitesse avec ce vieil homme? Ce vieil homme peut désormais prendre possession de ton corps. Ton corps originel a-t-il trouvé le mien? »
 
-Plus de mille âmes de Tian Yunzi, provenant de la Rivière Invoquée et du Vide Brillant, avaient déjà fusionné avec l'avatar de Wang Lin. Celles de la Mer des Nuages et de Luotian approchaient.
+Plus de mille âmes de Tian Yunzi, provenant de la Rivière Invoquée et du Vide Brillant, avaient déjà fusionné avec l'avatar de Wang Lin. Celles de la Mer Yun et de Luotian approchaient.
 
 Alors que l'image du second éveil de Tian Yunzi s'effondrait, Wang Lin vit la scène de son premier éveil!
 

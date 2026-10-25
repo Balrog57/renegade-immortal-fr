@@ -55,7 +55,7 @@ Les Anciens Dieux devaient traverser trois pertes et sept épreuves, chacune ét
 
 Il faut cultiver dans la solitude, endurer la solitude et, finalement, apprécier la solitude.
 
-De plus, la disparition des Anciens Dieux pesait sur le cœur de Wang Lin comme un rocher géant. Dans les temps anciens, après la mort de Tu Si, des événements inimaginables avaient causé la destruction du royaume céleste, l'extinction des anciens immortels et des Anciens Dieux, affectant jusqu'au monde antique de la culture et menant à l'apparition de l'Alliance de la Culture.
+De plus, la disparition des Anciens Dieux pesait sur le cœur de Wang Lin comme un rocher géant. Dans les temps anciens, après la mort de Tu Si, des événements inimaginables avaient causé la destruction du royaume céleste, l'extinction des anciens immortels et des Anciens Dieux, affectant jusqu'au monde antique de la culture et menant à l'apparition de l'Alliance Xiu Zhen.
 
 Bien que ces événements fussent très lointains pour Wang Lin, si quelqu'un apprenait qu'il cultivait la voie des Anciens Dieux, cette distance s'estomperait dangereusement. Il ne pouvait donc permettre à personne de savoir que son corps originel suivait ce sentier, sous peine de provoquer un désastre.
 

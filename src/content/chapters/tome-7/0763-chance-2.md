@@ -112,7 +112,7 @@ Même son âme originelle subit un changement stupéfiant. Entourée par une tel
 
 Sa culture progressait rapidement vers le stade Yin Illusoire.
 
-Il n'aurait pas dû y avoir de nuages sur ce petit fragment, mais soudain, des masses nuageuses commencèrent à apparaître. Ces nuages étaient identiques à ceux qui étaient apparus dans la Terre des Esprits Démoniaques lorsque Wang Lin, en cultivateur défiant les cieux, avait affronté la tribulation céleste de l'Ascendant.
+Il n'aurait pas dû y avoir de nuages sur ce petit fragment, mais soudain, des masses nuageuses commencèrent à apparaître. Ces nuages étaient identiques à ceux qui étaient apparus dans la Terre Yao Ling lorsque Wang Lin, en cultivateur défiant les cieux, avait affronté la tribulation céleste de l'Ascendant.
 
 Quant à Xue Zu, son âme originelle s'était éveillée grâce à la fusion des sphères. Cependant, son corps ne s'étant pas encore reformé, il n'était qu'une masse rouge sombre.
 

@@ -32,7 +32,7 @@ Cependant, il y avait également là une cultivatrice du stade initial de la Tri
 
 Cette dernière sembla incommodée par la chaleur ambiante. Dès son entrée, elle fut couverte d'une sueur parfumée. Elle vola vers les grottes pour livrer le Fruit de la Division de l'Âme.
 
-D'après les observations de Wang Lin, la montagne comptait au total dix-neuf grottes. Hormis celle du sommet, elle livra un fruit à chacune des autres. Chaque grotte débordait de vitalité et abritait un disciple de la Secte de la Grande Âme.
+D'après les observations de Wang Lin, la montagne comptait au total dix-neuf grottes. Hormis celle du sommet, elle livra un fruit à chacune des autres. Chaque grotte débordait de vitalité et abritait un disciple de la Secte Da Hun.
 
 Peu après, la femme arriva devant la dernière grotte. À présent, elle était trempée de sueur à cause de la vague de chaleur.
 
@@ -74,7 +74,7 @@ Il s'agissait d'un réflexe inconscient de Fan Shanlu. Wang Lin analysa ces dét
 
 En voyant Wang Lin, Fan Shanlu resta stupéfaite un long moment avant d'esquisser un sourire à son tour.
 
-« Cela fait si longtemps... Je ne pensais pas que tu viendrais ici... Cette brume est utilisée lorsque les disciples centraux de la Secte de la Grande Âme entrent en culture isolée. Une fois la brume déployée, le sens divin du Maître ne balaiera pas la zone; nous sommes en sécurité ici. »
+« Cela fait si longtemps... Je ne pensais pas que tu viendrais ici... Cette brume est utilisée lorsque les disciples centraux de la Secte Da Hun entrent en culture isolée. Une fois la brume déployée, le sens divin du Maître ne balaiera pas la zone; nous sommes en sécurité ici. »
 
 Le sourire de Fan Shanlu était empreint de joie. Elle ne s'attendait pas à croiser Wang Lin ici. Pourtant, sa gratitude envers lui n'avait rien perdu de son intensité avec le temps.
 
@@ -88,9 +88,9 @@ Wang Lin s'assit. Après avoir écouté ses explications et observé ses réacti
 
 « Il y a eu quelques imprévus en chemin, je suis donc un peu en retard. Je suis heureux de te voir », répondit Wang Lin avec un sourire. Rencontrer une connaissance sur le Continent Astral Immortel était rare, et cela lui procura une sensation de chaleur intérieure.
 
-En vérité, Fan Shanlu ressentait la même chose. Après tout, elle avait passé la majeure partie de sa vie dans cette grotte. Son lien avec la Secte de la Grande Âme n'était que nominal et lui semblait désormais très ténu.
+En vérité, Fan Shanlu ressentait la même chose. Après tout, elle avait passé la majeure partie de sa vie dans cette grotte. Son lien avec la Secte Da Hun n'était que nominal et lui semblait désormais très ténu.
 
-« Parle. Si tu es venu à la Secte de la Grande Âme et dans ma grotte, c'est qu'il y a une raison. Si tu as besoin de mon aide, je ferai tout mon possible. » La mélancolie de Fan Shanlu s'était évanouie avec l'arrivée de Wang Lin, remplacée par une joie sincère.
+« Parle. Si tu es venu à la Secte Da Hun et dans ma grotte, c'est qu'il y a une raison. Si tu as besoin de mon aide, je ferai tout mon possible. » La mélancolie de Fan Shanlu s'était évanouie avec l'arrivée de Wang Lin, remplacée par une joie sincère.
 
 Wang Lin percevait cette joie, ce qui réchauffait son cœur. Il sourit silencieusement un instant avant de prendre la parole.
 

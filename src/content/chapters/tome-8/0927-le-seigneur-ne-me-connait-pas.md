@@ -28,9 +28,9 @@ Il fixa Wang Lin qui se rapprochait de la femme en robe bleue, et le ricanement 
 
 Wang Lin ne ralentit pas et suivit l'onde de choc. Celle-ci était dévastatrice et se déplaçait comme l'éclair, atteignant la femme en robe bleue à une distance de cent pieds.
 
-Une lueur de froideur passa dans ses yeux. Elle savait que le membre du Clan des Démons Géants qui se trouvait sous elle ne pourrait pas arrêter cet homme. Cependant, sans trace de panique, elle leva calmement sa main gauche et pressa le vide sous ses pieds.
+Une lueur de froideur passa dans ses yeux. Elle savait que le membre du Clan Ju Mo qui se trouvait sous elle ne pourrait pas arrêter cet homme. Cependant, sans trace de panique, elle leva calmement sa main gauche et pressa le vide sous ses pieds.
 
-À cet instant précis, la planète de culture portée par le membre du Clan des Démons Géants commença à tourner à une vitesse incroyable. Des vagues d'ondulations rouge écarlate se propagèrent rapidement.
+À cet instant précis, la planète de culture portée par le membre du Clan Ju Mo commença à tourner à une vitesse incroyable. Des vagues d'ondulations rouge écarlate se propagèrent rapidement.
 
 Ces ondulations contenaient une aura destructrice. À mesure qu'elles s'étendaient, la planète de culture rétrécissait à un rythme visible à l'œil nu.
 

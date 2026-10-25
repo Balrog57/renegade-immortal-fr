@@ -50,7 +50,7 @@ Le rouge dans les yeux de Wang Lin se dissipa progressivement, et la folie ainsi
 
 Il savait que son maître viendrait certainement et qu'il l'arrêterait sans faute. C'est pourquoi il n'avait rien expliqué et avait tenté de tuer l'Empereur du Dao Antique pour emmener Li Muwan le plus vite possible.
 
-Wang Lin avait depuis longtemps percé les intentions et les agissements de l'Empereur du Dao Antique grâce au jade laissé par l'Ancêtre de la Secte de la Grande Âme. Il avait même entendu ce que l'Empereur avait murmuré près du lit.
+Wang Lin avait depuis longtemps percé les intentions et les agissements de l'Empereur du Dao Antique grâce au jade laissé par l'Ancêtre de la Secte Da Hun. Il avait même entendu ce que l'Empereur avait murmuré près du lit.
 
 Par-dessus tout, l'Empereur du Dao Antique avait forcé Song Zhi à boire avec Wang Lin. Comment l'Empereur aurait-il pu ne pas comprendre en voyant l'expression de Wang Lin? Il se complaisait simplement dans le plaisir de manipuler un couple d'amants.
 

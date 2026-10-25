@@ -20,7 +20,7 @@ Le jeune homme à la chemise fleurie fixa Wang Lin et rugit: « Fou? C'est toi l
 
 « Très bien, admettons que ce soit toi. Maintenant que j'ai salué mon bienfaiteur, je te demande: qui a battu le grand-père de Petite Fleur? Était-ce lui! » Le jeune homme à la chemise fleurie pointa le Maître Impérial, qui affichait un air contrarié.
 
-La voix légèrement irritée de l'Empereur Céleste résonna depuis le Temple du Dao Céleste: « Dao Fei, si tu continues à faire des siennes, je te verrouillerai à nouveau dans une cellule! C'est la cérémonie de remise des titres; Luo Gong a lancé un défi à ton bienfaiteur et a échoué. Cela n'a rien à voir avec le Maître Impérial. Recule! »
+La voix légèrement irritée de l'Empereur Céleste résonna depuis le Temple Xian Dao: « Dao Fei, si tu continues à faire des siennes, je te verrouillerai à nouveau dans une cellule! C'est la cérémonie de remise des titres; Luo Gong a lancé un défi à ton bienfaiteur et a échoué. Cela n'a rien à voir avec le Maître Impérial. Recule! »
 
 « Ah? » Le jeune homme à la chemise fleurie fut déconcerté un instant. Confus, il ne parvenait pas à saisir la situation. Il se retourna et agrippa le jeune homme en robe verte derrière lui.
 
@@ -52,7 +52,7 @@ Cette secousse tira Xu Liguo de sa confusion. Le visage pâle, il pointa Wang Li
 
 Wang Lin ferma les yeux, dissimulant la tristesse qui y régnait. Il savait que le fou n'avait aucun souvenir du monde des grottes.
 
-« Dao Fei, pars! » Une voix colérique s'éleva du Temple du Dao Céleste et l'Empereur Céleste en sortit. D'un revers de main, il projeta le jeune homme à la chemise fleurie qui étranglait Wang Lin, l'envoyant au loin comme un flocon de saule. Le jeune homme en robe verte et Xu Liguo s'enfuirent rapidement; ils n'osaient rester.
+« Dao Fei, pars! » Une voix colérique s'éleva du Temple Xian Dao et l'Empereur Céleste en sortit. D'un revers de main, il projeta le jeune homme à la chemise fleurie qui étranglait Wang Lin, l'envoyant au loin comme un flocon de saule. Le jeune homme en robe verte et Xu Liguo s'enfuirent rapidement; ils n'osaient rester.
 
 L'Empereur Céleste fronça les sourcils et rugit: « Gardes de l'Armure Noire, expulsez-le du palais et interdisez-lui toute entrée! »
 
@@ -100,17 +100,17 @@ La voix qui s'éleva n'était ni pressée ni lente, elle était d'une grande dou
 
 « Exalté Empyréen Hai Zi. » Wang Lin se retourna et la porte s'ouvrit délicatement. L'Exalté Empyréen Hai Zi se tenait là, ses longs cheveux flottant derrière elle. Quelques flocons de neige encore intacts parsemaient sa chevelure, ajoutant une grâce supplémentaire à cette femme déjà magnifique.
 
-« Vous êtes venu dans la cité ancestrale, pourquoi ne pas être allé au Mont de l'Empereur... Aujourd'hui, le Mont de l'Empereur n'a pas ses feuilles rouges, mais il est couvert de neige. Wang Lin, je suis venue sur ordre du Maître pour vous inviter au Mont de l'Empereur. »
+« Vous êtes venu dans la cité ancestrale, pourquoi ne pas être allé au Mont Di... Aujourd'hui, le Mont Di n'a pas ses feuilles rouges, mais il est couvert de neige. Wang Lin, je suis venue sur ordre du Maître pour vous inviter au Mont Di. »
 
 « Puisque le Grand Empyréen Jiu Di m'y invite, j'irai naturellement », répondit Wang Lin avec un léger sourire.
 
 Dans la tempête, la lune brillante était voilée. La neige s'accumulait tandis que les passants pressaient le pas, mais bientôt, la rue se vida. Wang Lin et Hai Zi affrontèrent la neige en descendant la rue. Ils laissèrent derrière eux quatre longues traînées d'empreintes qui furent rapidement ensevelies par la poudreuse.
 
-« À l'exception de certains lieux précis dans la cité ancestrale, la téléportation est interdite. Il y a un réseau de transfert non loin d'ici, nous atteindrons bientôt le Mont de l'Empereur. »
+« À l'exception de certains lieux précis dans la cité ancestrale, la téléportation est interdite. Il y a un réseau de transfert non loin d'ici, nous atteindrons bientôt le Mont Di. »
 
 « À en juger par votre silhouette de tout à l'heure, vous semblez vouloir partir. Quand partirez-vous? » demanda doucement Hai Zi en marchant aux côtés de Wang Lin.
 
-« Après le Mont de l'Empereur, je partirai... » Les pas de Wang Lin dans la neige produisaient un craquement régulier.
+« Après le Mont Di, je partirai... » Les pas de Wang Lin dans la neige produisaient un craquement régulier.
 
 Les environs étaient plongés dans un silence total, seul le bruit de la neige subsistait. On aurait dit que même le sifflement du vent s'était évanoui. C'était une longue rue bordée de demeures plongées dans l'obscurité, ce qui lui donnait un aspect sinistre. Une pointe d'intention meurtrière semblait se tapir dans la neige!
 

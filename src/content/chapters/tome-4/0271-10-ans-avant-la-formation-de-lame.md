@@ -44,13 +44,13 @@ Puis il avait quitté la Secte Heng Yue pour cultiver seul. Après cela, il avai
 
 À la suite de cela, il s'était séparé de Zhang Hu. Encore aujourd'hui, il ignorait si Zhang Hu était toujours en vie ou s'il avait péri.
 
-Teng Li, qui l'avait traqué, finit par mourir sous ses coups, marquant le début d'une route semée de conflits. La Secte des Cadavres, puis la Vallée de Jue Ming, et enfin ce moment qui changea radicalement sa vie.
+Teng Li, qui l'avait traqué, finit par mourir sous ses coups, marquant le début d'une route semée de conflits. La Secte Shi Yin, puis la Vallée de Jue Ming, et enfin ce moment qui changea radicalement sa vie.
 
 La mort de ses parents. L'expression féroce de Teng Huayuan, son corps détruit, et Situ Nan aidant son âme à s'échapper vers le champ de bataille étranger.
 
 Cela mena à quatre cents ans de massacres. Afin d'augmenter son niveau de culture pour pouvoir revenir se venger, il était devenu un homme sans cœur, insensible et sang-froid.
 
-Huo Fen, la Mer des Démons, et la terre de l'Ancien Dieu. Les scènes de tous ces lieux défilèrent devant ses yeux. L'ordre de tuer dix mille démons en cent jours. Hormis le massacre de la famille Teng, ce fut le moment où il avait tué le plus.
+Huo Fen, la Mer Xiu Mo, et la terre de l'Ancien Dieu. Les scènes de tous ces lieux défilèrent devant ses yeux. L'ordre de tuer dix mille démons en cent jours. Hormis le massacre de la famille Teng, ce fut le moment où il avait tué le plus.
 
 Quant à la terre de l'Ancien Dieu, les souvenirs de Wang Lin concernant Bossu Meng et les autres étaient profonds et difficiles à oublier.
 

@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1850 - Celestial Pill Collapses!"
 slug: leffondrement-de-la-pilule-celeste
 ---
-Des grondements tonitruants résonnaient à travers toute la Mer des Pilules. Yun Kong était d'un sérieux imperturbable, ses mains traçant sans relâche divers sceaux. Les 300 000 pieds d'eau de mer se condensaient à nouveau pour atteindre les 100 000 pieds!
+Des grondements tonitruants résonnaient à travers toute la Mer Dan. Yun Kong était d'un sérieux imperturbable, ses mains traçant sans relâche divers sceaux. Les 300 000 pieds d'eau de mer se condensaient à nouveau pour atteindre les 100 000 pieds!
 
 Le visage de Yun Kong était pâle. Même pour lui, la charge était immense. Lorsque la mer atteignit les 100 000 pieds, il agita sa main droite et une bouteille de jade apparut.
 
@@ -14,17 +14,17 @@ Il brisa la bouteille, libérant une goutte de liquide doré.
 
 Dès l'apparition de cette goutte, une énergie céleste dense se manifesta. Cette énergie était si compacte qu'elle semblait presque solide. Yun Kong prit une profonde inspiration et, d'un geste de la main droite, projeta la goutte vers le vortex marin qui se dressait devant lui.
 
-« La Mer des Pilules a été formée par une Pilule Céleste. Beaucoup le savent. Beaucoup ont tenté de la raffiner pour la restaurer sous sa forme originelle, mais nul n'y est parvenu, faute d'un catalyseur! »
+« La Mer Dan a été formée par une Pilule Céleste. Beaucoup le savent. Beaucoup ont tenté de la raffiner pour la restaurer sous sa forme originelle, mais nul n'y est parvenu, faute d'un catalyseur! »
 
-« Et ce catalyseur, c'est cette goutte de liquide doré! » Yun Kong esquissa un sourire. Cette substance était d'une valeur inestimable; une relique que le Continent du Démon Vert avait mis d'innombrables années à trouver.
+« Et ce catalyseur, c'est cette goutte de liquide doré! » Yun Kong esquissa un sourire. Cette substance était d'une valeur inestimable; une relique que le Continent Lu Mo avait mis d'innombrables années à trouver.
 
-Elle appartenait autrefois à la Pilule Céleste qui avait engendré la Mer des Pilules! Sans elle, toute tentative de reformation serait vaine; les 100 000 pieds constitueraient une limite infranchissable.
+Elle appartenait autrefois à la Pilule Céleste qui avait engendré la Mer Dan! Sans elle, toute tentative de reformation serait vaine; les 100 000 pieds constitueraient une limite infranchissable.
 
-Nombreux sont ceux qui avaient dû s'arrêter à ce seuil, incapables de condenser davantage l'eau, laquelle finissait par se disperser pour redevenir la Mer des Pilules.
+Nombreux sont ceux qui avaient dû s'arrêter à ce seuil, incapables de condenser davantage l'eau, laquelle finissait par se disperser pour redevenir la Mer Dan.
 
 Mais cette fois, Yun Kong avait pris sa décision et il était pleinement préparé; il n'admettrait aucune erreur!
 
-« Je raffinerai personnellement la Pilule Céleste et briserai la barrière entourant le Continent du Taureau Céleste. Ce faisant, mon nom sera gravé dans l'histoire de tout le Continent Astral Immortel! » Yun Kong sourit, et sous l'effet de la goutte dorée, l'eau devant lui changea radicalement. La mer sembla bouillir et commença à tourbillonner violemment.
+« Je raffinerai personnellement la Pilule Céleste et briserai la barrière entourant le Continent Tian Niu. Ce faisant, mon nom sera gravé dans l'histoire de tout le Continent Astral Immortel! » Yun Kong sourit, et sous l'effet de la goutte dorée, l'eau devant lui changea radicalement. La mer sembla bouillir et commença à tourbillonner violemment.
 
 Soudain, elle se contracta, franchissant le seuil des 100 000 pieds pour passer à 50 000, puis 30 000, et enfin 10 000 pieds!
 
@@ -36,7 +36,7 @@ Le processus ne s'arrêtait pas; la masse convergeait rapidement vers le seuil d
 
 À mesure qu'elle rétrécissait, le vortex devenait indistinct. En un instant, une demi-Pilule Céleste commença à prendre forme en son sein! Cependant, à ce stade, la moindre perturbation était fatale, car c'était l'étape ultime de la condensation. La pilule était d'une instabilité extrême; si elle était perturbée, elle exploserait prématurément, avec des conséquences inimaginables!
 
-C'est pour cette raison que le Continent du Démon Vert avait purgé toute la Mer des Pilules, afin de garantir qu'aucun incident ne vienne entraver l'œuvre de Yun Kong. Pourtant, grâce à la restriction en place, personne n'avait soupçonné l'existence de Wang Lin!
+C'est pour cette raison que le Continent Lu Mo avait purgé toute la Mer Dan, afin de garantir qu'aucun incident ne vienne entraver l'œuvre de Yun Kong. Pourtant, grâce à la restriction en place, personne n'avait soupçonné l'existence de Wang Lin!
 
 Cette restriction appartenait désormais à Wang Lin. S'il choisissait de se dissimuler, nul ne pourrait le détecter au sein de la formation.
 
@@ -84,9 +84,9 @@ Au même moment, les centaines de cultivateurs en descente et l'armée des dizai
 
 « La Pilule Céleste va exploser!!! » En un instant, la panique s'empara des dizaines de milliers de cultivateurs qui commencèrent à fuir désespérément. Ils tentèrent de fusionner avec la formation pour s'échapper, mais Wang Lin contrôlant la structure, nul ne pouvait partir!
 
-Wang Lin se détourna sans hésiter et fit un pas vers le Continent du Taureau Céleste. Des ondulations se formèrent alors qu'il s'apprêtait à disparaître.
+Wang Lin se détourna sans hésiter et fit un pas vers le Continent Tian Niu. Des ondulations se formèrent alors qu'il s'apprêtait à disparaître.
 
-Mais précisément à cet instant, les 1 000 pieds d'eau libérèrent un grondement tonitruant qui balaya la Mer des Pilules pour atteindre simultanément le Continent du Taureau Céleste et le Continent du Démon Vert. Les innombrables cultivateurs dans les airs crachèrent du sang, les oreilles bourdonnantes.
+Mais précisément à cet instant, les 1 000 pieds d'eau libérèrent un grondement tonitruant qui balaya la Mer Dan pour atteindre simultanément le Continent Tian Niu et le Continent Lu Mo. Les innombrables cultivateurs dans les airs crachèrent du sang, les oreilles bourdonnantes.
 
 Yun Kong tituba, le regard empreint de désespoir!
 
@@ -94,9 +94,9 @@ Yun Kong tituba, le regard empreint de désespoir!
 
 La Pilule Céleste avait explosé prématurément!
 
-Elle aurait dû exploser à proximité du Continent du Taureau Céleste, brisant sa barrière tout en ébranlant ses fondations, ce qui aurait causé des dégâts massifs et la désintégration d'une grande partie du continent.
+Elle aurait dû exploser à proximité du Continent Tian Niu, brisant sa barrière tout en ébranlant ses fondations, ce qui aurait causé des dégâts massifs et la désintégration d'une grande partie du continent.
 
-Mais cette fois, l'explosion eut lieu au centre de la Mer des Pilules. Par conséquent, le Continent du Taureau Céleste ne fut pas le seul touché: le Continent du Démon Vert subit également les affres du désastre.
+Mais cette fois, l'explosion eut lieu au centre de la Mer Dan. Par conséquent, le Continent Tian Niu ne fut pas le seul touché: le Continent Lu Mo subit également les affres du désastre.
 
 Yun Kong était bien trop proche. Malgré sa fuite effrénée, il se trouvait encore dans la zone d'impact de la force destructrice. Bien que son intention d'épée fût puissante, face à une telle dévastation, il s'effondra sans aucune chance de riposte.
 
@@ -104,12 +104,12 @@ Wang Lin, fusionné avec le monde, s'apprêtait à partir quand l'onde de choc b
 
 Partout où passait la force destructrice, la terre s'effondrait, révélant en dessous un vide abyssal, noir comme le ciel étoilé!
 
-Cette onde balaya instantanément toute la Mer des Pilules, jusqu'à ce qu'elle disparaisse totalement. Puis, elle frappa de plein fouet les continents du Taureau Céleste et du Démon Vert.
+Cette onde balaya instantanément toute la Mer Dan, jusqu'à ce qu'elle disparaisse totalement. Puis, elle frappa de plein fouet les continents du Taureau Céleste et du Démon Vert.
 
 Boum, boum, boum, boum!!
 
-Le Continent du Taureau Céleste tout entier trembla. Un bruit de miroir se brisant retentit, puis la barrière entourant le continent s'effondra! Le Continent du Démon Vert subit le même sort; un fracas tonitruant résonna tandis que la terre se fendait et que les montagnes s'écroulaient!
+Le Continent Tian Niu tout entier trembla. Un bruit de miroir se brisant retentit, puis la barrière entourant le continent s'effondra! Le Continent Lu Mo subit le même sort; un fracas tonitruant résonna tandis que la terre se fendait et que les montagnes s'écroulaient!
 
-Un gigantesque fantôme de taureau sembla apparaître au-dessus du Continent du Taureau Céleste, poussant un rugissement silencieux vers le Continent du Démon Vert.
+Un gigantesque fantôme de taureau sembla apparaître au-dessus du Continent Tian Niu, poussant un rugissement silencieux vers le Continent Lu Mo.
 
-Peu après, un scorpion vert colossal qui enveloppait tout le Continent du Démon Vert laissa échapper un sifflement muet, répondant au rugissement du taureau géant!
+Peu après, un scorpion vert colossal qui enveloppait tout le Continent Lu Mo laissa échapper un sifflement muet, répondant au rugissement du taureau géant!

@@ -32,7 +32,7 @@ Tout cela se produisit en un instant. Wang Lin avait repoussé le jeune homme, p
 
 À cet instant, un vortex gigantesque apparut sous les pieds de Wang Lin. Ce vortex, issu d'un sort, laissait jaillir d'innombrables fantômes qui poussaient des cris lugubres en étendant leurs corps pour encercler Wang Lin, tentant de l'aspirer dans les profondeurs.
 
-Au même moment, le vortex laissé par l'effondrement de la Porte du Vide était toujours là. De loin, la scène était terrifiante: Wang Lin se trouvait pris entre deux vortex, tandis que dix mille statues incandescentes convergeaient vers lui.
+Au même moment, le vortex laissé par l'effondrement de la Porte Kong était toujours là. De loin, la scène était terrifiante: Wang Lin se trouvait pris entre deux vortex, tandis que dix mille statues incandescentes convergeaient vers lui.
 
 Il semblait que Wang Lin était totalement pris au piège dans les sorts de Xushen Tianzun.
 

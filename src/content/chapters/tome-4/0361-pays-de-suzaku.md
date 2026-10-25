@@ -1,26 +1,26 @@
 ---
 n: 361
-title: Pays de Suzaku
+title: Pays de Zhu Que
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 361 - Country of Suzaku
 slug: pays-de-suzaku
 ---
-Ce fut un tournant majeur dans l'histoire du Clan des Démons Géants. À partir de cet instant, ils ne furent plus un pays de culture de rang 4, mais de rang 5.
+Ce fut un tournant majeur dans l'histoire du Clan Ju Mo. À partir de cet instant, ils ne furent plus un pays de culture de rang 4, mais de rang 5.
 
-Suzaku accordait une importance capitale à cet événement; ainsi, un vieil Ascendant qui ne se mêlait plus des affaires du monde vint personnellement recevoir l'ancêtre de la Transformation de l'Âme du Clan des Démons Géants.
+Suzaku accordait une importance capitale à cet événement; ainsi, un vieil Ascendant qui ne se mêlait plus des affaires du monde vint personnellement recevoir l'ancêtre de la Transformation de l'Âme du Clan Ju Mo.
 
-En vérité, des rumeurs circulaient selon lesquelles le Clan des Démons Géants comptait un cultivateur au stade de la Transformation de l'Âme, mais personne ne pouvait le confirmer. Toutefois, la probabilité était élevée, car le jeune maître du clan, Chi Hu, était revenu avec une quantité prodigieuse de jade céleste.
+En vérité, des rumeurs circulaient selon lesquelles le Clan Ju Mo comptait un cultivateur au stade de la Transformation de l'Âme, mais personne ne pouvait le confirmer. Toutefois, la probabilité était élevée, car le jeune maître du clan, Chi Hu, était revenu avec une quantité prodigieuse de jade céleste.
 
 Lorsque l'ancêtre utilisa sa culture de la Transformation de l'Âme pour revendiquer le statut de pays de culture de rang 5, la rumeur fut confirmée.
 
-Le Clan des Démons Géants n'était pas originaire de Suzaku; ils avaient migré depuis l'extérieur de la planète, il y a d'innombrables années. Chi Hu était capable de lutter contre un expert du stade tardif de la Formation de l'Âme alors qu'il n'était qu'au stade intermédiaire de ce même niveau, ce qui témoignait de leur immense puissance.
+Le Clan Ju Mo n'était pas originaire de Suzaku; ils avaient migré depuis l'extérieur de la planète, il y a d'innombrables années. Chi Hu était capable de lutter contre un expert du stade tardif de la Formation de l'Âme alors qu'il n'était qu'au stade intermédiaire de ce même niveau, ce qui témoignait de leur immense puissance.
 
-Le pouvoir inné du Clan des Démons Géants subit une mutation lorsqu'ils atteignent le stade de la Transformation de l'Âme. Le fait qu'un Ascendant de Suzaku se soit déplacé personnellement pour acter l'élévation du rang de leur pays démontrait l'ampleur de cette puissance.
+Le pouvoir inné du Clan Ju Mo subit une mutation lorsqu'ils atteignent le stade de la Transformation de l'Âme. Le fait qu'un Ascendant de Suzaku se soit déplacé personnellement pour acter l'élévation du rang de leur pays démontrait l'ampleur de cette puissance.
 
 Il faut dire que Suzaku n'envoyait normalement qu'un cultivateur de la Transformation de l'Âme au stade tardif pour superviser ce genre de processus.
 
-La promotion du Clan des Démons Géants fut semblable à une goutte d'encre tombant dans l'eau: le changement semblait imperceptible au début, avant de se propager et de s'étendre partout.
+La promotion du Clan Ju Mo fut semblable à une goutte d'encre tombant dans l'eau: le changement semblait imperceptible au début, avant de se propager et de s'étendre partout.
 
 Cependant, tout cela ne concernait aucunement Wang Lin. Il sortit de la vallée et pénétra dans la formation avec Feng Yushan et sa compagnie. Juste avant de disparaître, il se retourna pour lancer un dernier regard vers la vallée.
 
@@ -34,7 +34,7 @@ Au centre du continent, occupant la moitié de sa superficie, se trouvait le pay
 
 Même les mortels de Suzaku possédaient un rang supérieur à celui des mortels ordinaires, car ils étaient les sujets de Suzaku.
 
-Le pays de Suzaku comptait au total trois sectes: la Secte du Jade Céleste, la Secte de la Terre et la Secte du Chemin de l'Immortel.
+Le pays de Suzaku comptait au total trois sectes: la Secte Tian Yu, la Secte Di et la Secte Ren Dao Xian.
 
 Chaque secte possédait un cultivateur Ascendant. Conjoints à l'Ascendant du stade tardif résidant au Mont Suzaku, qui portait le titre de Suzaku, ils constituaient la force maîtresse de la planète.
 
@@ -42,7 +42,7 @@ D'innombrables familles de culture dépendaient de ces trois sectes; elles s'app
 
 Soudain, un rayon de lumière tomba du ciel sur un autel à Suzaku, provoquant l'émanation d'ondes d'énergie spirituelle.
 
-Hongdie était assise sur une feuille de lotus dans les montagnes arrières de la Secte du Jade Céleste. Elle ouvrit brusquement les yeux et fixa le rayon qui venait de descendre des cieux.
+Hongdie était assise sur une feuille de lotus dans les montagnes arrières de la Secte Tian Yu. Elle ouvrit brusquement les yeux et fixa le rayon qui venait de descendre des cieux.
 
 Le regard de Hongdie devint glacial et elle murmura: « Il est venu... »
 
@@ -60,13 +60,13 @@ La femme hocha doucement sa jolie tête et demanda: « Est-ce bien le cultivateu
 
 Wang Lin observa la femme. Sa beauté ne l'intimidait guère. Il joignit les mains et répondit: « Je suis Ceng Niu. »
 
-« Cher cultivateur Ceng, cette jeune fille est une disciple de la Secte du Chemin de l'Immortel. Mon nom de famille est Blanc et mon prénom est Neige. » La femme sourit. Sa peau était aussi blanche que la neige et deux mèches de ses longs cheveux noirs, longs d'un mètre, retombaient sur sa poitrine. Le reste de sa chevelure était relevé en un chignon au sommet de sa tête.
+« Cher cultivateur Ceng, cette jeune fille est une disciple de la Secte Ren Dao Xian. Mon nom de famille est Blanc et mon prénom est Neige. » La femme sourit. Sa peau était aussi blanche que la neige et deux mèches de ses longs cheveux noirs, longs d'un mètre, retombaient sur sa poitrine. Le reste de sa chevelure était relevé en un chignon au sommet de sa tête.
 
 « Mon maître m'a ordonné de vous attendre ici, afin de vous conduire jusqu'à lui. »
 
-L'expression de Wang Lin resta impassible. Il la regarda et demanda: « La Secte du Chemin de l'Immortel? »
+L'expression de Wang Lin resta impassible. Il la regarda et demanda: « La Secte Ren Dao Xian? »
 
-Neige Blanche acquiesça: « Le Mont Suzaku a fixé la date de l'affrontement entre le cultivateur Ceng et Hongdie. Cela aura lieu dans une quinzaine de jours. À cette occasion, de nombreux émissaires des autres pays de culture viendront assister au combat. D'ici là, ma Secte du Chemin de l'Immortel est chargée de votre accueil. »
+Neige Blanche acquiesça: « Le Mont Suzaku a fixé la date de l'affrontement entre le cultivateur Ceng et Hongdie. Cela aura lieu dans une quinzaine de jours. À cette occasion, de nombreux émissaires des autres pays de culture viendront assister au combat. D'ici là, ma Secte Ren Dao Xian est chargée de votre accueil. »
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 
@@ -94,7 +94,7 @@ Il réfléchit un instant et demanda: « Chère cultivatrice Neige Blanche, quel
 
 La voix de Neige Blanche était mélodieuse. Après ses explications, Wang Lin eut une vision globale du pays.
 
-« La sœur cadette Hongdie est une disciple de la Secte du Jade Céleste. » Sur ces mots, Neige Blanche soupira en regardant Ceng Niu. D'après ce qu'elle avait entendu de son maître, il semblait que le Mont Suzaku souhaitait que cet homme rejoigne sa secte après le combat.
+« La sœur cadette Hongdie est une disciple de la Secte Tian Yu. » Sur ces mots, Neige Blanche soupira en regardant Ceng Niu. D'après ce qu'elle avait entendu de son maître, il semblait que le Mont Suzaku souhaitait que cet homme rejoigne sa secte après le combat.
 
 Le regard de Wang Lin resta calme et il garda le silence.
 
@@ -108,13 +108,13 @@ Alors qu'il volait, le regard de Wang Lin devint soudainement sérieux en scruta
 
 La grue ne se dirigea pas vers la montagne, mais prit plutôt le tour autour. Bien que son visage fût serein, son cœur était troublé.
 
-Neige Blanche murmura: « C'est là que se situe la Secte du Jade Céleste. À cause de la formation, elle demeure invisible. »
+Neige Blanche murmura: « C'est là que se situe la Secte Tian Yu. À cause de la formation, elle demeure invisible. »
 
 À cet instant précis, une silhouette rouge descendit de la montagne et se tint sur un nuage blanc. Cette personne observait leur direction.
 
 Le regard de Wang Lin devint glacial alors qu'il fixait la silhouette rouge, mais il resta muet. La figure écarlate disparut lentement tandis que la grue s'éloignait.
 
-Hongdie se tenait aux abords de la Secte du Jade Céleste et regarda Wang Lin disparaître lentement. Ses yeux devinrent encore plus froids alors qu'un vent soudain faisait flotter sa manche vide.
+Hongdie se tenait aux abords de la Secte Tian Yu et regarda Wang Lin disparaître lentement. Ses yeux devinrent encore plus froids alors qu'un vent soudain faisait flotter sa manche vide.
 
 « Il est bien venu! » Hongdie se retourna et disparut à nouveau dans l'enceinte de la secte.
 
@@ -124,7 +124,7 @@ Peu de temps après, la grue pénétra dans une montagne dont la forme rappelait
 
 Wang Lin descendit de l'oiseau.
 
-Une fois au sol, Neige Blanche murmura: « Cher cultivateur Ceng, ceci n'est pas la Secte du Chemin de l'Immortel, mais la grotte immortelle personnelle de mon maître. Il est actuellement en pleine culture. Choisissez une chambre parmi les trois rangées du nord. Mon maître vous recevra lorsqu'il sera prêt. »
+Une fois au sol, Neige Blanche murmura: « Cher cultivateur Ceng, ceci n'est pas la Secte Ren Dao Xian, mais la grotte immortelle personnelle de mon maître. Il est actuellement en pleine culture. Choisissez une chambre parmi les trois rangées du nord. Mon maître vous recevra lorsqu'il sera prêt. »
 
 Sur ces mots, elle joignit les mains devant Wang Lin et disparut parmi les habitations.
 

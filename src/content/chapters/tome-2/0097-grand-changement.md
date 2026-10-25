@@ -6,27 +6,27 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 97 - Great Change
 slug: grand-changement
 ---
-La Secte des Cadavres est une secte de très grande envergure. D'après ce que savait Ye Zizai, son niveau le plus élevé se trouvait dans un pays de rang 5; en dessous, à la manière d'un trapèze, étaient dispersées de nombreuses branches de la Secte des Cadavres.
+La Secte Shi Yin est une secte de très grande envergure. D'après ce que savait Ye Zizai, son niveau le plus élevé se trouvait dans un pays de rang 5; en dessous, à la manière d'un trapèze, étaient dispersées de nombreuses branches de la Secte Shi Yin.
 
 Toutes ces branches possèdent des systèmes extrêmement rigides pour contraindre les disciples à s'entraîner de façon frénétique, sans se soucier de rien d'autre. Après avoir connu toute l'affaire, la première impression qui était montée en Ye Zizai était qu'ils étaient élevés comme du bétail.
 
 Dès que ce « bétail » atteint le stade de la Formation du Noyau, une grande cérémonie de raffinage de marionnette cadavérique est organisée. C'est précisément à ce moment que les entités de sens divin venues des pays de rang 5 pénètrent, sans un bruit et sous le couvert du raffinage, à l'intérieur de la marionnette.
 
-Pour parler franchement, la Secte des Cadavres est la plus grande secte des pays de culture de rang 5 à fournir des corps pour la possession. Il faut dire que dans les pays de culture de rang 4 ou supérieur, il y a plusieurs grandes guerres chaque année, en particulier dans les luttes pour les étoiles extérieures, où les blessures et la mort sont inévitables. Quant aux cultivateurs à partir du stade de l'Âme Naissante, pour peu qu'ils soient prudents, ils peuvent encore préserver leur Âme Naissante et s'enfuir.
+Pour parler franchement, la Secte Shi Yin est la plus grande secte des pays de culture de rang 5 à fournir des corps pour la possession. Il faut dire que dans les pays de culture de rang 4 ou supérieur, il y a plusieurs grandes guerres chaque année, en particulier dans les luttes pour les étoiles extérieures, où les blessures et la mort sont inévitables. Quant aux cultivateurs à partir du stade de l'Âme Naissante, pour peu qu'ils soient prudents, ils peuvent encore préserver leur Âme Naissante et s'enfuir.
 
-C'est là que la Secte des Cadavres intervient. Que ce soit pour quelqu'un qui a perdu son corps ou pour celui qui se prépare à en posséder un, toutes les transactions concernant les corps physiques se font au sein de la Secte des Cadavres.
+C'est là que la Secte Shi Yin intervient. Que ce soit pour quelqu'un qui a perdu son corps ou pour celui qui se prépare à en posséder un, toutes les transactions concernant les corps physiques se font au sein de la Secte Shi Yin.
 
-Les corps fournis par la Secte des Cadavres possèdent tous un excellent talent et ont été entraînés selon la méthode de culture fournie par la secte depuis leur plus jeune âge. Chaque branche de la Secte des Cadavres propose différentes méthodes de culture à ses disciples.
+Les corps fournis par la Secte Shi Yin possèdent tous un excellent talent et ont été entraînés selon la méthode de culture fournie par la secte depuis leur plus jeune âge. Chaque branche de la Secte Shi Yin propose différentes méthodes de culture à ses disciples.
 
-La Secte des Cadavres traite avec de nombreuses sectes des pays de rang 4 ou 5, et certaines d'entre elles concluent des accords exclusifs afin d'obtenir des corps plus rapidement. L'une des clauses de ces accords stipule que la secte doit fournir sa méthode de culture de base, faisant ainsi d'une branche une véritable ferme à corps personnelle pour ladite secte.
+La Secte Shi Yin traite avec de nombreuses sectes des pays de rang 4 ou 5, et certaines d'entre elles concluent des accords exclusifs afin d'obtenir des corps plus rapidement. L'une des clauses de ces accords stipule que la secte doit fournir sa méthode de culture de base, faisant ainsi d'une branche une véritable ferme à corps personnelle pour ladite secte.
 
-La méthode de culture de la Secte des Cadavres de Zhao provient d'une secte démoniaque d'un pays de rang 5, appelée la Voie des Enfers.
+La méthode de culture de la Secte Shi Yin de Zhao provient d'une secte démoniaque d'un pays de rang 5, appelée la Voie des Enfers.
 
 Ye Zizai poussa un soupir. Ce n'était pas qu'il n'avait jamais pensé à se rebeller, mais plus il en apprenait, plus il sentait sa propre force insignifiante; comparé à cette organisation, il n'avait absolument pas qualité pour se rebeller, et une fois que la dévoration par la marionnette cadavérique a commencé, rien ne peut l'inverser, à moins que son niveau de culture ne surpasse largement celui de la marionnette cadavérique.
 
-Il existe une autre règle au sein de la Secte des Cadavres: si un disciple atteint le stade de l'Âme Naissante, même si son corps est possédé par autrui, il reçoit la possibilité de posséder lui-même quelqu'un d'autre.
+Il existe une autre règle au sein de la Secte Shi Yin: si un disciple atteint le stade de l'Âme Naissante, même si son corps est possédé par autrui, il reçoit la possibilité de posséder lui-même quelqu'un d'autre.
 
-Ye Zizai, par exemple: une fois complètement dévoré par sa marionnette cadavérique, son Âme Naissante, bien qu'elle ne puisse échapper au désastre, verra son âme et son sens divin extraits puis injectés dans une autre branche de la Secte des Cadavres, afin de s'emparer à son tour du corps d'un autre, tout comme on s'empare de son propre corps.
+Ye Zizai, par exemple: une fois complètement dévoré par sa marionnette cadavérique, son Âme Naissante, bien qu'elle ne puisse échapper au désastre, verra son âme et son sens divin extraits puis injectés dans une autre branche de la Secte Shi Yin, afin de s'emparer à son tour du corps d'un autre, tout comme on s'empare de son propre corps.
 
 Mais il n'a qu'une seule chance. S'il ne parvient pas à franchir le stade de l'Âme Naissante pour atteindre celui de la Formation de l'Âme, alors la seule issue qui lui restera sera d'être envoyé sur le champ de bataille étranger pour servir de chair à canon.
 
@@ -40,17 +40,17 @@ Ye Zizai laissa échapper un reniflement glacial. Il avait en effet cette idée 
 
 La silhouette esquissa un léger sourire et dit: « Ce gamin, Wang Lin, possède une méthode de culture étrange. Il dégage un soupçon de l'aura authentique de ma Voie des Enfers. Peu importe sa façon de pratiquer, ce serait un excellent fourneau. Ye Zizai, tu n'as toujours pas répondu à ma question: pourquoi n'as-tu pas scellé une partie de son âme plus tôt? »
 
-Ye Zizai ferma les yeux et répondit: « Adai n'est pas mon seul choix. Entre lui et Wang Lin, j'ai plusieurs candidats potentiels. De plus, je n'ai pas encore décidé qui sera l'hôte et qui sera la marionnette cadavérique. Je ne scellerai pas une partie de leur âme avant qu'ils n'atteignent le stade de la Formation du Noyau car, dès que je scelle une part de leur âme, ils sont enregistrés au sein de la Secte des Cadavres. S'ils venaient à être pris par quelqu'un d'autre, j'aurais alors travaillé pour rien. » Ye Zizai se moquait bien que Luo Sha soit au courant. S'il agissait ainsi, c'était pour se ménager une porte de sortie. Indirectement, cela revenait à accepter tacitement d'être dévoré par l'autre.
+Ye Zizai ferma les yeux et répondit: « Adai n'est pas mon seul choix. Entre lui et Wang Lin, j'ai plusieurs candidats potentiels. De plus, je n'ai pas encore décidé qui sera l'hôte et qui sera la marionnette cadavérique. Je ne scellerai pas une partie de leur âme avant qu'ils n'atteignent le stade de la Formation du Noyau car, dès que je scelle une part de leur âme, ils sont enregistrés au sein de la Secte Shi Yin. S'ils venaient à être pris par quelqu'un d'autre, j'aurais alors travaillé pour rien. » Ye Zizai se moquait bien que Luo Sha soit au courant. S'il agissait ainsi, c'était pour se ménager une porte de sortie. Indirectement, cela revenait à accepter tacitement d'être dévoré par l'autre.
 
 Sur ce, il ouvrit les yeux et ajouta: « Le nettoyage du champ de bataille étranger est sur le point de commencer. Je pense que les jetons seront distribués d'ici quelques jours. »
 
-La silhouette se lécha les lèvres et rit d'une voix rauque. « Cette fois, une fois que le messager de l'Union de la Culture aura ouvert le portail vers le champ de bataille étranger, je n'aurai besoin d'aspirer que trois bouffées de l'énergie spirituelle de l'extérieur du domaine pour achever aussitôt la dévoration finale. Ye Zizai, selon mon accord avec la Secte des Cadavres, une fois que je t'aurai possédé, je garderai ta conscience intacte. Dès que tu auras choisi un candidat, je t'aiderai une fois en échange de ton corps, et j'élèverai la culture de cette personne jusqu'au stade de la Formation du Noyau pour faciliter ta possession. »
+La silhouette se lécha les lèvres et rit d'une voix rauque. « Cette fois, une fois que le messager de l'Union de la Culture aura ouvert le portail vers le champ de bataille étranger, je n'aurai besoin d'aspirer que trois bouffées de l'énergie spirituelle de l'extérieur du domaine pour achever aussitôt la dévoration finale. Ye Zizai, selon mon accord avec la Secte Shi Yin, une fois que je t'aurai possédé, je garderai ta conscience intacte. Dès que tu auras choisi un candidat, je t'aiderai une fois en échange de ton corps, et j'élèverai la culture de cette personne jusqu'au stade de la Formation du Noyau pour faciliter ta possession. »
 
-Depuis qu'il avait découvert le secret de la Secte des Cadavres, Ye Zizai savait que ce jour viendrait. Le nettoyage du champ de bataille étranger, qui a lieu tous les cent ans, est le moment où un grand nombre d'individus achèvent leur possession. Ye Zizai soupira intérieurement. Il ferma les yeux et ne dit plus un mot.
+Depuis qu'il avait découvert le secret de la Secte Shi Yin, Ye Zizai savait que ce jour viendrait. Le nettoyage du champ de bataille étranger, qui a lieu tous les cent ans, est le moment où un grand nombre d'individus achèvent leur possession. Ye Zizai soupira intérieurement. Il ferma les yeux et ne dit plus un mot.
 
 Quant à Wang Lin, il se déplaçait rapidement avec Mu Rong à travers les cavernes. Il sentait clairement qu'ils s'enfonçaient profondément sous terre. Plus ils progressaient, plus il percevait l'énergie Yin émanant des profondeurs.
 
-Après un long moment, Mu Rong s'arrêta devant une grotte. Il lança un regard envieux à Wang Lin et dit: « Ancêtre, voici la grotte que le Premier Ancêtre a préparée pour vous. C'est l'un des meilleurs lieux de culture de la Secte des Cadavres. »
+Après un long moment, Mu Rong s'arrêta devant une grotte. Il lança un regard envieux à Wang Lin et dit: « Ancêtre, voici la grotte que le Premier Ancêtre a préparée pour vous. C'est l'un des meilleurs lieux de culture de la Secte Shi Yin. »
 
 Après quelques échanges avec Mu Rong, Wang Lin entra dans la pièce. La grotte ne représentait qu'un cinquième de la taille de celle où se trouvait Mu Rong. Une épaisse couche de givre recouvrait le sol et émettait une lueur bleue, conférant à la pièce une atmosphère très étrange.
 
@@ -64,7 +64,7 @@ Wang Lin s'assit négligemment en tailleur. Ses mains formèrent des sceaux selo
 
 La grotte entière était désormais une zone scellée.
 
-Wang Lin observa les lieux et commença à réfléchir. Il avait été contraint de rejoindre la Secte des Cadavres car, dans les ruines, s'il n'était pas entré dans la matrice de transfert, il aurait été entraîné dans l'affrontement entre la marionnette cadavérique et Wu Yu.
+Wang Lin observa les lieux et commença à réfléchir. Il avait été contraint de rejoindre la Secte Shi Yin car, dans les ruines, s'il n'était pas entré dans la matrice de transfert, il aurait été entraîné dans l'affrontement entre la marionnette cadavérique et Wu Yu.
 
 À en juger par la situation actuelle, il semblait que Wu Yu ne mentait pas. Cet endroit était parfaitement adapté à la culture de la Méthode d'Ascension des Enfers. Pourtant, le simple fait d'être ici faisait ressentir à Wang Lin un sentiment de danger, particulièrement de la part de Ye Zizai. Bien que son expression et son attitude n'eussent rien d'anormal en apparence, Wang Lin avait l'impression d'être observé par un serpent venimeux.
 

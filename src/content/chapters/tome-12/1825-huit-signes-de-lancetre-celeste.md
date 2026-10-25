@@ -18,7 +18,7 @@ Alors que la jeune femme volait à toute allure, elle se rapprochait de plus en 
 
 La jeune femme haleta et son corps trembla. Sa main droite, dissimulée dans sa manche, frémit inconsciemment. Ce tremblement n'était pas moins intense que lorsqu'il avait sorti le trésor du Grand Empyréen. En réalité, c'était bien pire! Après tout, elle n'avait jamais vu de Grand Empyréen, mais elle avait déjà contemplé un véritable corps d'essence à plusieurs reprises!
 
-L'ancêtre de la Secte de la Grande Âme, le Très Respecté Taureau Vert, possédait également un véritable corps d'essence. Cette jeune femme savait parfaitement la difficulté de parvenir à une telle prouesse et la puissance qu'elle conférait. Elle pensait n'en voir qu'un seul dans sa vie. Elle ne s'attendait pas à en découvrir un second, totalement différent, ici même!
+L'ancêtre de la Secte Da Hun, le Très Respecté Taureau Vert, possédait également un véritable corps d'essence. Cette jeune femme savait parfaitement la difficulté de parvenir à une telle prouesse et la puissance qu'elle conférait. Elle pensait n'en voir qu'un seul dans sa vie. Elle ne s'attendait pas à en découvrir un second, totalement différent, ici même!
 
 « Pas étonnant qu'il m'ait détournée... Pas étonnant qu'il ait voulu s'aventurer si profondément dans la veine de feu terrestre... Pas étonnant qu'il soit venu ici malgré la possession d'un trésor de Grand Empyréen... »
 
@@ -30,7 +30,7 @@ Après que le véritable corps d'essence de Wang Lin eut poussé ce rugissement 
 
 Une fois la volonté du dragon brisée, celle de Wang Lin prit les commandes et commença à dévorer les vestiges de l'âme draconique. Un grondement tonitruant résonna dans l'esprit de Wang Lin.
 
-Tandis que ce fracas résonnait, le sens divin de Wang Lin se propagea dans toutes les directions. Il entendit vaguement un rugissement déchirant provenant des profondeurs de la terre du Continent du Taureau Céleste, à l'extérieur de la veine de feu principale.
+Tandis que ce fracas résonnait, le sens divin de Wang Lin se propagea dans toutes les directions. Il entendit vaguement un rugissement déchirant provenant des profondeurs de la terre du Continent Tian Niu, à l'extérieur de la veine de feu principale.
 
 Au moment où ce cri pénétra son esprit, il venait d'absorber tous les derniers vestiges de la volonté effondrée de l'âme du dragon de feu. Le rugissement résonna comme le tonnerre dans son esprit, créant une véritable illusion!
 
@@ -46,9 +46,9 @@ Un sentiment de terreur indescriptible émana de son corps et se propagea partou
 
 Le corps de Wang Lin sembla se figer, et même ses pensées parurent ralentir. Wang Lin n'avait jamais vu une créature aussi terrifiante de sa vie. L'aura de cette bête n'était en rien inférieure à celle de Xuan Luo!
 
-« Le Taureau Céleste! » Ces deux mots surgirent soudainement dans l'esprit de Wang Lin, accompagnés des rumeurs et des légendes concernant le Continent du Taureau Céleste.
+« Le Taureau Céleste! » Ces deux mots surgirent soudainement dans l'esprit de Wang Lin, accompagnés des rumeurs et des légendes concernant le Continent Tian Niu.
 
-L'Ancêtre Céleste avait tué un taureau venu d'au-delà des cieux et transformé son corps en continent. Son âme fut scellée ici, donnant ainsi son nom au Continent du Taureau Céleste. Des mortels s'y installèrent et des cultivateurs y fondèrent des sectes. Après d'innombrables années, ce lieu devint l'un des 72 continents du clan céleste, le Continent du Taureau Céleste du Continent de l'Est!
+L'Ancêtre Céleste avait tué un taureau venu d'au-delà des cieux et transformé son corps en continent. Son âme fut scellée ici, donnant ainsi son nom au Continent Tian Niu. Des mortels s'y installèrent et des cultivateurs y fondèrent des sectes. Après d'innombrables années, ce lieu devint l'un des 72 continents du clan céleste, le Continent Tian Niu du Continent de l'Est!
 
 Le cœur de Wang Lin trembla. À l'instant même où cette légende lui revint en mémoire, une lumière dorée brilla au-dessus du Taureau Céleste. Tandis que la clarté dorée enveloppait le ciel, une silhouette vêtue d'une robe impériale et portant une couronne apparut.
 

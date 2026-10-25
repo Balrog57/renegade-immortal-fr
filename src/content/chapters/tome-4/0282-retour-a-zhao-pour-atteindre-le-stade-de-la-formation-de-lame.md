@@ -16,7 +16,7 @@ Wang Lin retourna à la tour de glace, l'esprit tourmenté. Bien qu'il ait obten
 
 Cette question résonna dans l'esprit de Wang Lin.
 
-Le cultivateur au stade avancé de la Formation de l'Âme de la Secte de l'Encre d'Eau, portant le dernier éclat de sa vie, s'élança vers la statue de la fée des neiges du Temple Divin de la Glace et de la Neige. Tel un papillon de nuit se précipitant vers la flamme, il explosa contre la statue, laissant derrière lui une marque rouge indélébile.
+Le cultivateur au stade avancé de la Formation de l'Âme de la Secte Shui Mo, portant le dernier éclat de sa vie, s'élança vers la statue de la fée des neiges du Temple Divin de la Glace et de la Neige. Tel un papillon de nuit se précipitant vers la flamme, il explosa contre la statue, laissant derrière lui une marque rouge indélébile.
 
 Dans cette explosion, plusieurs autres cultivateurs au stade de la Formation de l'Âme qui l'avaient encerclé furent également tués.
 
@@ -78,7 +78,7 @@ S'il choisissait Zhao, c'était d'abord parce que c'était un lieu reculé, mais
 
 Tout le monde a un foyer. En avait-il un?
 
-Zhao pouvait être considéré comme son foyer, et il y avait une femme qui l'attendait au pays de Chu, de l'autre côté de la Mer des Démons; cet endroit pouvait aussi être considéré comme son foyer...
+Zhao pouvait être considéré comme son foyer, et il y avait une femme qui l'attendait au pays de Chu, de l'autre côté de la Mer Xiu Mo; cet endroit pouvait aussi être considéré comme son foyer...
 
 Il décida donc de retourner à Zhao pour clore le lien karmique de sa naissance là-bas.
 

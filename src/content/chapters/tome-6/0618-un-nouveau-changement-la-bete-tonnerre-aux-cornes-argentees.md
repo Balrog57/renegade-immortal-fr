@@ -91,15 +91,15 @@ Un autre le suivait: un jeune homme vêtu de blanc comme la neige. Il était bea
 
 L'homme en or regarda le jeune homme et renifla froidement: « À quoi penses-tu, Sun Yunshan? »
 
-Le jeune homme en robe blanche était celui qui était venu dans la Terre des Esprits Démoniaques avec Wang Lin. Le jeune maître de la Secte Xuan Yuan, Sun Yunshan!
+Le jeune homme en robe blanche était celui qui était venu dans la Terre Yao Ling avec Wang Lin. Le jeune maître de la Secte Xuan Yuan, Sun Yunshan!
 
-Lorsqu'il était entré dans la Terre des Esprits Démoniaques, il était protégé par plusieurs Anciens de haut niveau. Désormais, il se retrouvait seul.
+Lorsqu'il était entré dans la Terre Yao Ling, il était protégé par plusieurs Anciens de haut niveau. Désormais, il se retrouvait seul.
 
 Après avoir entendu les paroles de l'homme en or, le corps de Sun Yunshan trembla et il dit respectueusement: « Seigneur, ce subordonné... »
 
 Avant qu'il ne puisse finir, l'homme en or l'interrompit d'un reniflement méprisant. « Inutile de te justifier. Puisque tu as rejoint notre Union de Culture, tu dois obéir à tous les ordres. Si ce n'était par égard pour ta sœur, penses-tu que tu aurais eu la chance de participer à une telle opportunité de mérite, comme capturer Wang Lin?! »
 
-Sun Yunshan resta silencieux et hocha la tête. Il pensa pour lui-même: « Je ne sais pas si le Wang Lin de cette Tribu de l'Affinement de l'Âme... est la même personne que celui de la Secte du Destin Céleste... Ah, je réfléchis trop; il est impossible qu'ils soient le même homme. »
+Sun Yunshan resta silencieux et hocha la tête. Il pensa pour lui-même: « Je ne sais pas si le Wang Lin de cette Tribu de l'Affinement de l'Âme... est la même personne que celui de la Secte Tian Yun... Ah, je réfléchis trop; il est impossible qu'ils soient le même homme. »
 
 « L'ancêtre a même délibérément envoyé une garde céleste pour capturer ce Wang Lin. Ce voyage ne présente aucun danger, mais tu dois rester vigilant et ne pas laisser ce Wang Lin s'échapper! » Une fois son discours achevé, l'homme en or tourna son regard vers l'homme d'âge moyen vêtu de noir qui fermait la marche.
 

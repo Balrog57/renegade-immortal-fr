@@ -22,7 +22,7 @@ Derrière lui, le Maître Nan Yunzi réfléchit un instant et choisit de rester.
 
 Wang Lin jaillit de la rivière argentée entourant le Royaume Céleste pour se fondre dans le monde. Lorsqu'il réapparut, il se trouvait déjà dans la Rivière Invoquée. Bien qu'il parût calme, ses yeux étaient empreints d'une intention meurtrière. Beaucoup de choses restaient encore obscures, mais les paroles de Lanmeng Daozun lui avaient fait comprendre une chose essentielle.
 
-Tian Yunzi complotait contre lui depuis longtemps, que ce soit sur la planète Suzaku ou dans la Terre des Esprits Démoniaques!
+Tian Yunzi complotait contre lui depuis longtemps, que ce soit sur la planète Suzaku ou dans la Terre Yao Ling!
 
 « À l'époque, j'avais percé ses manigances une fois, et après avoir échoué, il avait immédiatement élaboré un autre plan. Il a utilisé son avatar comme appât. Cet homme... moi, Wang Lin, je dois le tuer! Peu importe ses desseins, même si je ne les découvre pas, tout prendra fin dès que je l'aurai tué! » Wang Lin était consumé par une soif de sang. Son corps était tel une épée transperçant les étoiles.
 

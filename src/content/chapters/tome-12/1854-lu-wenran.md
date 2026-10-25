@@ -8,9 +8,9 @@ slug: lu-wenran
 ---
 Après le départ de Wang Lin du Pic Céleste Vert, l'Illustre Taureau Vert resta assis au sommet de la montagne, contemplant l'horizon. Après un long moment, il murmura des paroles que lui seul pouvait entendre.
 
-« L'Empereur Céleste n'est sorti de sa retraite depuis seulement quelques années. Le Continent du Démon Vert ne pouvait effectivement plus se contenir... La divination de la première génération est très précise... Cependant, certains détails subtils sont déplacés, et la méthode de l'Ancêtre était trop indulgente. Elle n'est pas adaptée à la situation actuelle... »
+« L'Empereur Céleste n'est sorti de sa retraite depuis seulement quelques années. Le Continent Lu Mo ne pouvait effectivement plus se contenir... La divination de la première génération est très précise... Cependant, certains détails subtils sont déplacés, et la méthode de l'Ancêtre était trop indulgente. Elle n'est pas adaptée à la situation actuelle... »
 
-« L'objectif du Continent du Démon Vert est aussi celui de ma Secte de la Grande Âme... C'est également l'objectif de la Secte Gui Yi... » L'Illustre Taureau Vert sourit soudainement.
+« L'objectif du Continent Lu Mo est aussi celui de ma Secte Da Hun... C'est également l'objectif de la Secte Gui Yi... » L'Illustre Taureau Vert sourit soudainement.
 
 « Lu Wenran! »
 
@@ -18,9 +18,9 @@ Alors que ses paroles résonnaient, des ondulations semblables à celles de l'ea
 
 « Le disciple Lu Wenran salue le Maître! »
 
-Le Taureau Vert ne se retourna pas. Fixant les nuages au loin, il dit calmement: « L'avez-vous rencontré à la Mer des Pilules? »
+Le Taureau Vert ne se retourna pas. Fixant les nuages au loin, il dit calmement: « L'avez-vous rencontré à la Mer Dan? »
 
-« Le disciple était aux côtés d'Ouyang Hui de la Secte Gui Yi et de l'Oncle-Maître Meng Zihai pour combattre les émissaires du Continent du Démon Vert. Conformément aux ordres du Maître, l'Oncle-Maître Meng nous a emmenés tous deux et, feignant de ne pas être de taille, s'est enfui à bord du Bateau Nuageux laissé par le premier ancêtre; je n'ai donc pas vu cette personne. »
+« Le disciple était aux côtés d'Ouyang Hui de la Secte Gui Yi et de l'Oncle-Maître Meng Zihai pour combattre les émissaires du Continent Lu Mo. Conformément aux ordres du Maître, l'Oncle-Maître Meng nous a emmenés tous deux et, feignant de ne pas être de taille, s'est enfui à bord du Bateau Nuageux laissé par le premier ancêtre; je n'ai donc pas vu cette personne. »
 
 « Dans sept jours, rends-toi avec lui au troisième Méridien du Taureau Céleste! » L'Illustre Taureau Vert ferma les yeux.
 
@@ -36,17 +36,17 @@ Les yeux de Wang Lin s'illuminèrent dans la grotte et sa main droite se tendit 
 
 Il se souvenait que l'Illustre Taureau Vert lui avait accordé sept jours. Il ne lui restait plus que deux jours; il allait donc au Pic Fantôme pour trouver une âme morte à fusionner avec la voile.
 
-Sa silhouette disparut et, lorsqu'il réapparut, il se trouvait devant la montagne ardente. Il regarda vers le nord. Selon la carte de la Secte de la Grande Âme, le Pic Fantôme se trouvait là!
+Sa silhouette disparut et, lorsqu'il réapparut, il se trouvait devant la montagne ardente. Il regarda vers le nord. Selon la carte de la Secte Da Hun, le Pic Fantôme se trouvait là!
 
 Sans hésiter, Wang Lin s'élança vers le Pic Fantôme.
 
-À l'extrémité nord de la Secte de la Grande Âme se trouvait une terre interdite entourée d'un brouillard infini. Peu de disciples s'y aventuraient. Ils n'y venaient qu'en cas de besoin d'une âme morte, accompagnés de leurs maîtres respectifs.
+À l'extrémité nord de la Secte Da Hun se trouvait une terre interdite entourée d'un brouillard infini. Peu de disciples s'y aventuraient. Ils n'y venaient qu'en cas de besoin d'une âme morte, accompagnés de leurs maîtres respectifs.
 
 Seuls les disciples centraux possédant un haut niveau de culture pouvaient s'y rendre seuls.
 
-La Secte de la Grande Âme y avait rassemblé d'immenses quantités d'âmes mortes. Bien que leur qualité fût médiocre, elles étaient faciles à obtenir. Après tout, la Secte de la Grande Âme était célèbre pour ses illusions, et sans le Pic Fantôme, la plupart des disciples ne pourraient achever leurs Voiles Fantômes.
+La Secte Da Hun y avait rassemblé d'immenses quantités d'âmes mortes. Bien que leur qualité fût médiocre, elles étaient faciles à obtenir. Après tout, la Secte Da Hun était célèbre pour ses illusions, et sans le Pic Fantôme, la plupart des disciples ne pourraient achever leurs Voiles Fantômes.
 
-Au fil des âges, bien que les âmes mortes fussent constamment renouvelées, les stocks restaient limités, car la demande de la Secte de la Grande Âme était immense.
+Au fil des âges, bien que les âmes mortes fussent constamment renouvelées, les stocks restaient limités, car la demande de la Secte Da Hun était immense.
 
 Beaucoup de ces âmes avaient été collectées il y a d'innombrables années par les membres de la secte dans le cadre de missions officielles. Cependant, malgré les longues années écoulées, très peu d'entre elles avaient pu cultiver par elles-mêmes et se polir avec le temps.
 
@@ -126,8 +126,8 @@ Le septième jour, au crépuscule, un jade perça plusieurs couches de protectio
 
 Wang Lin ouvrit les yeux, le regard serein. Son Sens Divin scruta le jade et les informations imprégnèrent son esprit.
 
-Des générations d'ancêtres de la Secte de la Grande Âme avaient consacré un temps incommensurable à créer sept points clés sur le Continent du Taureau Céleste. Ils étaient issus des sept points d'essence du corps du taureau venu d'au-delà des cieux, devenu le Continent du Taureau Céleste.
+Des générations d'ancêtres de la Secte Da Hun avaient consacré un temps incommensurable à créer sept points clés sur le Continent Tian Niu. Ils étaient issus des sept points d'essence du corps du taureau venu d'au-delà des cieux, devenu le Continent Tian Niu.
 
 En ces sept méridiens, on pouvait emprunter la puissance du Taureau Céleste grâce à une formation puissante. Parallèlement, cela apportait de nombreux bénéfices mystérieux aux cultivateurs du continent.
 
-L'ancêtre de la première génération de la Secte de la Grande Âme avait diviné l'arrivée de Wang Lin ainsi que l'invasion massive du Continent du Démon Vert. Comment auraient-ils pu ne rien avoir préparé?
+L'ancêtre de la première génération de la Secte Da Hun avait diviné l'arrivée de Wang Lin ainsi que l'invasion massive du Continent Lu Mo. Comment auraient-ils pu ne rien avoir préparé?

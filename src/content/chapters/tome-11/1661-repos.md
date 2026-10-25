@@ -64,7 +64,7 @@ Alors que Mu Bingmei et la femme en rose s'envolaient, un troisième rayon de lu
 
 Une femme se trouvait dans ce rayon de lumière: son nom était Xi Zifeng.
 
-Après cette bataille, il restait moins de 50 000 personnes. Lors de la première bataille dans la Mer des Nuages, le Royaume Intérieur comptait près de 500 000 cultivateurs. Après 97 ans de combat, plus de 90 % d'entre eux avaient péri.
+Après cette bataille, il restait moins de 50 000 personnes. Lors de la première bataille dans la Mer Yun, le Royaume Intérieur comptait près de 500 000 cultivateurs. Après 97 ans de combat, plus de 90 % d'entre eux avaient péri.
 
 Ceux qui subsistaient représentaient toute la puissance restante du Royaume Intérieur.
 
@@ -88,7 +88,7 @@ Trente ans plus tôt, sa petite sœur était morte au combat. Elle était égale
 
 Les habitants du Royaume Intérieur s'établirent et vécurent ces trois années dans le silence.
 
-Épuisé, Wang Lin poussait la gigantesque roue des trois essences vers la Mer des Nuages. La brèche dans la Formation de Scellement du Royaume au sein de la Mer des Nuages constituait le plus grand danger caché durant ces trois années.
+Épuisé, Wang Lin poussait la gigantesque roue des trois essences vers la Mer Yun. La brèche dans la Formation de Scellement du Royaume au sein de la Mer Yun constituait le plus grand danger caché durant ces trois années.
 
 S'il voulait accorder au Royaume Intérieur trois ans pour se reconstruire, il ne suffisait pas de sceller l'endroit; Wang Lin devait lui-même monter la garde à cet emplacement pendant plus de mille jours et nuits.
 
@@ -96,11 +96,11 @@ En réalité, il n'était pas obligé de faire cela. Il aurait pu se mentir à l
 
 Tandis qu'il avançait, des hurlements résonnaient à travers les étoiles. Ces sons émanaient de la gigantesque roue des trois essences. La lueur dans les yeux de Wang Lin masquait son épuisement alors qu'il continuait sa progression.
 
-Bientôt, il atteignit la frontière de la Mer des Nuages. Il fit un pas en avant et pénétra rapidement dans celle-ci.
+Bientôt, il atteignit la frontière de la Mer Yun. Il fit un pas en avant et pénétra rapidement dans celle-ci.
 
-Le brouillard qui enveloppait autrefois la Mer des Nuages avait disparu depuis longtemps, rendant ce système stellaire extrêmement clair. L'odeur du sang imprégnait l'espace et des débris effondrés flottaient, semblables à des ruines.
+Le brouillard qui enveloppait autrefois la Mer Yun avait disparu depuis longtemps, rendant ce système stellaire extrêmement clair. L'odeur du sang imprégnait l'espace et des débris effondrés flottaient, semblables à des ruines.
 
-Wang Lin poussa la roue géante à travers la Mer des Nuages dévastée. Bientôt, le premier champ de bataille de la Mer des Nuages apparut devant lui. C'était l'un des rares endroits où la brume persistait encore. Cependant, à l'arrivée de Wang Lin, un rugissement et une rafale de vent jaillirent de la roue.
+Wang Lin poussa la roue géante à travers la Mer Yun dévastée. Bientôt, le premier champ de bataille de la Mer Yun apparut devant lui. C'était l'un des rares endroits où la brume persistait encore. Cependant, à l'arrivée de Wang Lin, un rugissement et une rafale de vent jaillirent de la roue.
 
 Ce vent fit bouger le brouillard autour de la faille de la Formation de Scellement du Royaume, et celui-ci se dissipa rapidement. La brume dense devant Wang Lin s'évanouit, révélant nettement l'ouverture de 10 000 pieds qui s'étalait sous ses yeux.
 

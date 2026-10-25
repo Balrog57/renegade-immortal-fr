@@ -35,9 +35,9 @@ Le regard de Wang Lin s'anima et il contrôla la boussole stellaire pour poursui
 
 Le vieil homme poursuivait sa traque. Plus il avançait, plus il était stupéfait de voir que ce junior pouvait maintenir une telle vitesse pendant si longtemps. Bien que Wang Lin utilisât un trésor, celui-ci consommait tout de même de l'énergie spirituelle. Un junior capable de maîtriser un tel objet aussi longtemps, tout en portant la graine du tatouage en lui, était d'une rareté absolue.
 
-« Ce garçon doit être le disciple d'une grande secte là-haut, peut-être même un disciple du Pays de Suzaku! Je dois le raffiner pour en faire ma marionnette de tatouage; une fois renvoyé là-haut, son utilité sera immense! »
+« Ce garçon doit être le disciple d'une grande secte là-haut, peut-être même un disciple du Pays de Zhu Que! Je dois le raffiner pour en faire ma marionnette de tatouage; une fois renvoyé là-haut, son utilité sera immense! »
 
-Le Clan des Immortels Délaissés ne pouvait franchir le premier étage en raison d'un sceau imposé par Suzaku. Les seuls capables de sortir étaient les marionnettes de tatouage. Celui que Wang Lin avait rencontré auparavant n'était qu'une marionnette de rang inférieur. C'était la raison pour laquelle le Clan des Immortels Délaissés s'emparait des corps de cultivateurs décédés. Autrement, la Mer des Démons et tous les pays environnants auraient été anéantis par eux, et les membres du clan n'auraient pas eu à se battre entre eux pour l'obtention de bêtes.
+Le Clan Xian Yi ne pouvait franchir le premier étage en raison d'un sceau imposé par Suzaku. Les seuls capables de sortir étaient les marionnettes de tatouage. Celui que Wang Lin avait rencontré auparavant n'était qu'une marionnette de rang inférieur. C'était la raison pour laquelle le Clan Xian Yi s'emparait des corps de cultivateurs décédés. Autrement, la Mer Xiu Mo et tous les pays environnants auraient été anéantis par eux, et les membres du clan n'auraient pas eu à se battre entre eux pour l'obtention de bêtes.
 
 Les yeux du vieil homme projetèrent une lueur mystérieuse tandis qu'il continuait sa poursuite. Il eut un ricanement méprisant: « Ce junior doit posséder de nombreuses pilules, mais peu importe leur nombre, il finira par en manquer. Et lorsqu'il sera à bout, je le raffinerai en marionnette! »
 
@@ -47,7 +47,7 @@ Ce jour-là, alors que Wang Lin pilotait encore la boussole stellaire pour s'éc
 
 « Une autre attaque! » Wang Lin dut instantanément diviser son attention. Une partie de son esprit restait concentrée sur le contrôle de la boussole, tandis que l'autre tentait de supprimer la puissance du tatouage.
 
-Après un long moment, il ouvrit les yeux. Le tatouage dans ses yeux était plus net qu'auparavant et le dos de sa main était entièrement couvert de motifs. Si un cultivateur voyait Wang Lin à cet instant, il aurait cru voir un membre du Clan des Immortels Délaissés.
+Après un long moment, il ouvrit les yeux. Le tatouage dans ses yeux était plus net qu'auparavant et le dos de sa main était entièrement couvert de motifs. Si un cultivateur voyait Wang Lin à cet instant, il aurait cru voir un membre du Clan Xian Yi.
 
 Le visage de Wang Lin était sombre alors qu'il laissait échapper un soupir. Il sentait que le tatouage s'était enfoncé dans son âme originelle et commençait à se propager. Une fois que l'âme originelle serait entièrement recouverte, il deviendrait ce que le vieillard appelait une marionnette de tatouage.
 
@@ -55,7 +55,7 @@ Lorsqu'il était entré dans le Cimetière des Immortels, il avait aperçu quelq
 
 Wang Lin ressentait une profonde amertume. Il savait que si cette poursuite se poursuivait, son âme originelle serait totalement consumée par le tatouage avant même qu'il n'ait épuisé ses pilules.
 
-Il effleura son sac de rangement. À l'intérieur se trouvait une tablette de jade que le Grand Ancien de la Secte des Cadavres lui avait offerte; elle permettait de le faire venir en renfort une fois, pour sauver une vie. Cependant, il ignorait où il se trouvait actuellement; comment pourrait-il appeler le Grand Ancien à sa rescousse?
+Il effleura son sac de rangement. À l'intérieur se trouvait une tablette de jade que le Grand Ancien de la Secte Shi Yin lui avait offerte; elle permettait de le faire venir en renfort une fois, pour sauver une vie. Cependant, il ignorait où il se trouvait actuellement; comment pourrait-il appeler le Grand Ancien à sa rescousse?
 
 Après une réflexion, son regard devint glacial. Au cours de ses près de 500 ans de culture, Wang Lin avait traversé d'innombrables situations de vie ou de mort. Ces expériences l'avaient rendu extrêmement déterminé à survivre. Plus la situation était périlleuse, plus il devenait calme.
 

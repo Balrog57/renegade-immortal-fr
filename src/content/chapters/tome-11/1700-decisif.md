@@ -14,7 +14,7 @@ Wang Lin se souvenait parfaitement de la façon dont il avait contemplé ce visa
 
 Tout semblait s'être produit dans cette illusion à l'instant précis où Wang Lin avait posé son regard sur le visage spectral.
 
-Sur le côté, Fan Shanlu réfléchit silencieusement un instant avant de déclarer lentement: « C'est le trésor de ma Secte de la Grande Âme, ainsi que la voile principale du Navire Démon des Âmes... »
+Sur le côté, Fan Shanlu réfléchit silencieusement un instant avant de déclarer lentement: « C'est le trésor de ma Secte Da Hun, ainsi que la voile principale du Navire Démon des Âmes... »
 
 « Peu m'importe ce qui se passe entre vous deux sœurs. Il n'est pas nécessaire d'échanger des Serments de Sang, car nous partageons un objectif commun. S'il n'y a aucune intention cachée, alors nous pourrons coopérer. »
 
@@ -34,7 +34,7 @@ Wang Lin réfléchit un instant, puis joignit les mains en signe de respect enve
 
 « Ma sœur aînée est si désespérée de se venger que même moi, j'ai été utilisée... Nous pouvons coopérer, et je ferai de mon mieux pour vous aider. Je n'ai qu'une seule requête: lorsque vous ouvrirez la porte du Continent Astral Immortel, emmenez-moi avec vous... Je veux rentrer chez moi... »
 
-« Il est très difficile d'ouvrir cette grotte. Il faut que la troisième âme apparaisse : elle seule possède les souvenirs et sait où se trouve le Dao Céleste. Ce n'est qu'en invoquant le Dao Céleste que vous pourrez entrer dans la demeure du Souverain Céleste, dans le monde de la grotte de la Secte des Sept Dao... »
+« Il est très difficile d'ouvrir cette grotte. Il faut que la troisième âme apparaisse : elle seule possède les souvenirs et sait où se trouve le Dao Céleste. Ce n'est qu'en invoquant le Dao Céleste que vous pourrez entrer dans la demeure du Souverain Céleste, dans le monde de la grotte de la Secte Qi Dao... »
 
 « La demeure du Souverain Céleste fut le théâtre de la grande guerre d'autrefois. Bien qu'elle soit en ruines, il s'y trouve une porte qui mène au Continent Astral Immortel. Ouvrir cette porte revient à ouvrir la grotte. »
 
@@ -54,7 +54,7 @@ Wang Lin rattrapa ce sang d'un doré pâle et l'absorba dans son corps. Sans se 
 
 Wang Lin n'avait plus besoin d'étudier les restrictions du navire. Le monde à l'intérieur de la double illusion était identique au monde réel. Toutes les connaissances acquises dans l'illusion lui étaient restées.
 
-Tout comme Fan Shanlu, qui était blessée dans l'illusion et présentait les mêmes blessures une fois celle-ci dissipée. Les sorts de la Secte de la Grande Âme étaient en effet étranges et insondables.
+Tout comme Fan Shanlu, qui était blessée dans l'illusion et présentait les mêmes blessures une fois celle-ci dissipée. Les sorts de la Secte Da Hun étaient en effet étranges et insondables.
 
 « Cette voile spectrale est la voile principale du Navire Démon des Âmes. Elle n'est pas qu'un simple visage spectral; elle contient de nombreuses restrictions. Ces dernières englobent tout ce qui concerne le navire. »
 

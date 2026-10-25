@@ -6,11 +6,11 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1916 - Waiting for the Exalté Empyréen to Arrive!"
 slug: en-attendant-larrivee-de-lexalt-empyreen
 ---
-Après avoir dévoré le Maître de la Secte du Dao Démoniaque, Wang Lin ferma les yeux et des bruits de craquements résonnèrent dans son corps. Il effaça la conscience de l'âme originelle et l'injecta dans ses Veines Magiques. Lorsqu'il aurait du temps libre, il pourrait utiliser cette âme originelle pour augmenter le nombre de Veines Magiques dont il disposait.
+Après avoir dévoré le Maître de la Secte Dao Mo, Wang Lin ferma les yeux et des bruits de craquements résonnèrent dans son corps. Il effaça la conscience de l'âme originelle et l'injecta dans ses Veines Magiques. Lorsqu'il aurait du temps libre, il pourrait utiliser cette âme originelle pour augmenter le nombre de Veines Magiques dont il disposait.
 
 Un instant plus tard, Wang Lin ouvrit les yeux et agita sa manche. La terre trembla, tout comme le lac et l'île à moitié effondrés. Tandis qu'une tempête balayait les lieux, ils furent totalement détruits.
 
-La Secte du Dao Démoniaque s'était effondrée!
+La Secte Dao Mo s'était effondrée!
 
 L'émissaire impérial, baigné dans une lumière dorée, resta là avec une expression embarrassée. Ce n'est que lorsque Wang Lin ouvrit les yeux qu'il joignit les mains avec un sourire amer.
 
@@ -20,7 +20,7 @@ Wang Lin gardait une expression calme en regardant l'émissaire impérial, mais 
 
 « Le nom de ce fou était Lian Daofei... Lorsque j'ai ouvert l'espace de stockage, lui et la femme en argent avaient disparu dans une faille vers l'inconnu... Ce fou s'appelait souvent "roi", et d'après ce que le Maître Xuan Luo m'a dit, son frère aîné est l'Empereur Céleste... »
 
-« Se pourrait-il que le fou ait été retrouvé par l'Empereur et qu'après son réveil, il lui ait parlé de ma relation avec lui... » Wang Lin réfléchissait tandis que l'émissaire impérial ressentait une terreur croissante. Il éprouvait un immense regret et maudissait amèrement la mort du Maître de la Secte du Dao Démoniaque.
+« Se pourrait-il que le fou ait été retrouvé par l'Empereur et qu'après son réveil, il lui ait parlé de ma relation avec lui... » Wang Lin réfléchissait tandis que l'émissaire impérial ressentait une terreur croissante. Il éprouvait un immense regret et maudissait amèrement la mort du Maître de la Secte Dao Mo.
 
 « Ce maudit Maître; il aurait pu mourir seul, mais il a dû m'entraîner dans sa chute. Si j'avais su, j'aurais ignoré Wang Lin pour lire l'édit impérial en premier... »
 
@@ -28,7 +28,7 @@ Wang Lin gardait une expression calme en regardant l'émissaire impérial, mais 
 
 « Ce Wang Lin possède un tel pouvoir et... il attire certainement l'attention de l'Empereur Céleste. Ah, je dois réparer les choses le plus vite possible. »
 
-« Cher Cultivateur, ne me blâmez pas, je vous en prie... J'étais vraiment confus auparavant. Le Maître de la Secte du Dao Démoniaque méritait sa mort! » Tout en parlant, l'émissaire impérial observa Wang Lin. En voyant que celui-ci conservait une expression sombre, son cœur sombra.
+« Cher Cultivateur, ne me blâmez pas, je vous en prie... J'étais vraiment confus auparavant. Le Maître de la Secte Dao Mo méritait sa mort! » Tout en parlant, l'émissaire impérial observa Wang Lin. En voyant que celui-ci conservait une expression sombre, son cœur sombra.
 
 « C'est mauvais. Cette personne doit encore m'en vouloir pour mes deux attaques de tout à l'heure... S'il parle en mal de moi devant l'Empereur Céleste, alors je... je... » De la sueur perla sur son front et, sous la brise, il sentit un frisson le parcourir.
 
@@ -62,9 +62,9 @@ Après avoir pris cette pierre, Wang Lin esquissa lentement un sourire. En voyan
 
 « Oui, oui, ce ne sont que des choses sans valeur. » L'émissaire ressentit une douleur dans sa poitrine tout en souriant amèrement.
 
-Wang Lin demanda lentement: « Puisque Seigneur Émissaire est venu sur le Continent du Démon Vert, vous avez dû traverser le Continent du Taureau Céleste. Je me demande, comment se déroule la guerre là-bas? »
+Wang Lin demanda lentement: « Puisque Seigneur Émissaire est venu sur le Continent Lu Mo, vous avez dû traverser le Continent Tian Niu. Je me demande, comment se déroule la guerre là-bas? »
 
-« Il y a eu au total trois édits impériaux. La Secte de la Grande Âme du Continent du Taureau Céleste et la Secte Gui Yi ont chacune reçu un édit. La guerre devrait être terminée, tout le monde retourne probablement dans sa secte respective. » L'émissaire ne garda pas cela secret.
+« Il y a eu au total trois édits impériaux. La Secte Da Hun du Continent Tian Niu et la Secte Gui Yi ont chacune reçu un édit. La guerre devrait être terminée, tout le monde retourne probablement dans sa secte respective. » L'émissaire ne garda pas cela secret.
 
 Wang Lin rangea la pierre de jade et demanda avec désinvolture: « Dao Fei est-il à la cité impériale? »
 
@@ -86,7 +86,7 @@ Voyant cela, l'émissaire comprit qu'il était temps de savoir s'il devait avanc
 
 Ce n'est que lorsque l'émissaire fut parti que le sourire de Wang Lin disparut, remplacé par une expression sombre.
 
-Il ne quitta pas les ruines de la Secte du Dao Démoniaque mais s'assit sur une pierre verte au sein de la secte, ses yeux brillant d'une lueur étrange.
+Il ne quitta pas les ruines de la Secte Dao Mo mais s'assit sur une pierre verte au sein de la secte, ses yeux brillant d'une lueur étrange.
 
 « Lian Daofei... Sa cupidité et nombre de ses traits négatifs ont été dévorés par Tian Yunzi, né jadis du Dao Céleste. Selon cela, sa personnalité devrait être très différente de celle d'autrefois... »
 
@@ -98,22 +98,22 @@ Wang Lin fronça les sourcils et regarda le ciel s'obscurcir, poursuivant sa ré
 
 « Le contenu de l'édit impérial est très intéressant... » Une froideur s'installa dans les yeux de Wang Lin alors qu'il agita sa main droite. Un vent noir surgit et quelques cris misérables résonnèrent avant que tout ne redevienne calme.
 
-Wang Lin était impitoyable. Lorsqu'il décidait d'agir, il l'était avec une cruauté sans limite. Puisqu'il avait décidé d'anéantir la Secte du Dao Démoniaque, il ne laisserait aucun de ses membres restés sur le Continent du Taureau Céleste s'échapper.
+Wang Lin était impitoyable. Lorsqu'il décidait d'agir, il l'était avec une cruauté sans limite. Puisqu'il avait décidé d'anéantir la Secte Dao Mo, il ne laisserait aucun de ses membres restés sur le Continent Tian Niu s'échapper.
 
 Ceux qui reviendraient les premiers seraient ceux ayant un statut élevé; ils utiliseraient probablement des formations de transfert pour rentrer à tout prix. Mais Wang Lin attendait quelqu'un d'autre, en plus de ces gens!
 
-« L'ancêtre de la Secte du Dao Démoniaque doit être en route. C'est un Exalté Empyréen, et pour anéantir le Dao de la Secte du Dao Démoniaque, il doit mourir! Et même si je ne le cherche pas, il viendra me trouver de lui-même! »
+« L'ancêtre de la Secte Dao Mo doit être en route. C'est un Exalté Empyréen, et pour anéantir le Dao de la Secte Dao Mo, il doit mourir! Et même si je ne le cherche pas, il viendra me trouver de lui-même! »
 
 « Exalté Empyréen... Je me demande comment je me mesurerai à un Exalté Empyréen après avoir équipé l'armure de l'âme! » Wang Lin s'assit sur la pierre verte et regarda au loin.
 
-« Après avoir réglé la question de la Secte du Dao Démoniaque, j'aurai deux choix. Aller à la Secte Dong Lin et entrer dans le Bassin Dong Lin pour voir si cela aidera mes autres essences à condenser des corps d'essence véritables... »
+« Après avoir réglé la question de la Secte Dao Mo, j'aurai deux choix. Aller à la Secte Dong Lin et entrer dans le Bassin Dong Lin pour voir si cela aidera mes autres essences à condenser des corps d'essence véritables... »
 
 « Ou me rendre au Continent Central pour voir de quel genre de tanière de dragon et de grotte de tigre il s'agit. Je verrai si ce Lian Daofei se souvient ne serait-ce que de moi, et ce que son frère aîné, l'Empereur Céleste, lui réserve... »
 
 « Cependant, le Maître a dit un jour qu'il existe cinq Grands Empyréens, et l'Empereur Céleste Lian Daozhen est l'un d'eux! Si je m'y rends, je pourrais courir de grands dangers... » Wang Lin ferma les yeux et médita dans l'obscurité.
 
-À cinq continents du Continent du Démon Vert, un rayon de lumière fendait le ciel. À l'intérieur de cette lumière se trouvait un vieil homme aux cheveux roux à l'expression calme, mais une colère sourde brûlait dans ses yeux!
+À cinq continents du Continent Lu Mo, un rayon de lumière fendait le ciel. À l'intérieur de cette lumière se trouvait un vieil homme aux cheveux roux à l'expression calme, mais une colère sourde brûlait dans ses yeux!
 
 En un éclair, le monde trembla et il disparut dans une formation de transfert. À grand prix, il enchaînait les transferts pour traverser les continents!
 
-Il était l'ancêtre de la Secte du Dao Démoniaque, désormais sous les ordres du Grand Empyréen Dao Yi!
+Il était l'ancêtre de la Secte Dao Mo, désormais sous les ordres du Grand Empyréen Dao Yi!

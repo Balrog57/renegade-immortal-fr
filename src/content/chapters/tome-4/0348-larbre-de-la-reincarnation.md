@@ -28,7 +28,7 @@ En plein vol, Wang Lin remarqua le regard de la femme, mais il ne baissa pas les
 
 Une pointe d'anxiété perçait dans les yeux de Qiu Siping. En voyant Wang Lin le rattraper, il s'écria précipitamment: « Frère Wang, aidez-moi, je vous en prie! Je suis prêt à vous offrir des trésors en échange! »
 
-À l'origine, Wang Lin n'avait pas l'intention de se soucier de lui, car ils n'étaient pas intimes. Cependant, le mot « trésors » réveilla en lui le souvenir de la grotte où il avait suivi Qiu Siping en secret, jadis, dans les plaines de la Mer des Démons, un lieu regorgeant de textes anciens et d'objets qu'un homme ordinaire ne pourrait jamais posséder.
+À l'origine, Wang Lin n'avait pas l'intention de se soucier de lui, car ils n'étaient pas intimes. Cependant, le mot « trésors » réveilla en lui le souvenir de la grotte où il avait suivi Qiu Siping en secret, jadis, dans les plaines de la Mer Xiu Mo, un lieu regorgeant de textes anciens et d'objets qu'un homme ordinaire ne pourrait jamais posséder.
 
 Il frappa son sac de rangement et la bête moustique en sortit. Sur l'ordre de Wang Lin, elle prit Qiu Siping sur son dos, bien que ses yeux trahissent une certaine insatisfaction; elle estimait clairement que ce dernier n'était pas digne de s'asseoir sur son dos.
 
@@ -90,7 +90,7 @@ Le vieil homme Hu reprit: « Frère Wang, Xu Luo et Yun Meng auront besoin de si
 
 Les yeux de Wang Lin brillèrent d'intérêt: « Je me demande combien de fruits de la réincarnation apparaîtront. »
 
-Le vieil homme Hu réfléchit un instant avant de répondre: « Il devrait y en avoir au moins deux. Si ce sont deux, nous en recevrons chacun un; mais s'il y en a trois, je devrai prendre le surplus. Après tout, ce sont les gens du Pavillon de Raffinage des Trésors qui sacrifient leur espérance de vie ici. J'espère que le frère Wang comprendra. »
+Le vieil homme Hu réfléchit un instant avant de répondre: « Il devrait y en avoir au moins deux. Si ce sont deux, nous en recevrons chacun un; mais s'il y en a trois, je devrai prendre le surplus. Après tout, ce sont les gens du Pavillon Lian Qi qui sacrifient leur espérance de vie ici. J'espère que le frère Wang comprendra. »
 
 Wang Lin désigna l'arbre et rétorqua: « Très bien, mais les branches de l'arbre de la réincarnation m'appartiendront. »
 

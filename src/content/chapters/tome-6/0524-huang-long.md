@@ -68,7 +68,7 @@ Dans la vallée, les enfants sortirent jouer et les femmes apparurent toutes. En
 
 « Céleste Suprême, attendez, attendez! » s'écria Ouyang Hua en se précipitant. Son expression était d'une sincérité absolue.
 
-Wang Lin ne répondit pas et continua sa route, sur le point de quitter la vallée. Il avait déjà décidé de poursuivre son vol vers l'ouest pour découvrir les mystères de cette région, et pour voir à quoi ressemblait exactement la Cité de l'Ancien Démon située à quinze millions de kilomètres de là.
+Wang Lin ne répondit pas et continua sa route, sur le point de quitter la vallée. Il avait déjà décidé de poursuivre son vol vers l'ouest pour découvrir les mystères de cette région, et pour voir à quoi ressemblait exactement la Cité Gu Yao située à quinze millions de kilomètres de là.
 
 Quant à interroger ces gens, Wang Lin avait perdu tout intérêt. Les yeux innocents des enfants et les regards craintifs des femmes lui avaient rappelé trop de choses.
 
@@ -118,7 +118,7 @@ Wang Lin fronça les sourcils.
 
 Ouyang Hua ajouta précipitamment: « Tout ce que je sais provient de l'ancêtre fondateur; c'est de lui que j'ai appris le nom de Huang Long. »
 
-Wang Lin médita en contemplant le parchemin, un air de nostalgie sur le visage. Son cœur sembla traverser la Mer des Esprits Démoniaques de l'Est, franchir l'espace et le ciel pour revenir à sa terre natale sur la planète Suzaku.
+Wang Lin médita en contemplant le parchemin, un air de nostalgie sur le visage. Son cœur sembla traverser la Mer Yao Ling, franchir l'espace et le ciel pour revenir à sa terre natale sur la planète Suzaku.
 
 Son esprit remonta également plusieurs centaines d'années en arrière, vers le jeune homme qui venait de quitter son village de montagne, celui qui n'avait pas été accepté par les immortels et dont tout le village se moquait.
 

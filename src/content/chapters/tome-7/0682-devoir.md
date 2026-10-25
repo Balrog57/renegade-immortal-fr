@@ -56,27 +56,27 @@ Autrefois sur la planète Suzaku, Hongdie avait attiré l'attention du pays de S
 
 Sun Xi serra les dents et dit avec détermination: « Frère Xu, je choisis la seconde option! »
 
-Wang Lin ne dit rien de plus. Il leva la main et pointa le ciel. Celui-ci s'obscurcit soudainement tandis que la Rivière des Enfers apparaissait, telle un fleuve Jaune courbant le monde.
+Wang Lin ne dit rien de plus. Il leva la main et pointa le ciel. Celui-ci s'obscurcit soudainement tandis que la Rivière Huang Quan apparaissait, telle un fleuve Jaune courbant le monde.
 
 Pour augmenter le niveau de culture de Sun Xi, une immense quantité d'énergie spirituelle était requise. Wang Lin ne pouvait y parvenir seul; il devait utiliser son propre Dao pour contrôler l'énergie spirituelle des cieux et de la terre.
 
-La Rivière des Enfers s'étendit et, dès que l'intention du Dao de Wang Lin y pénétra, une force immense s'en dégagea et la planète entière sembla trembler. Les veines spirituelles brisées sous la terre commencèrent toutes à converger.
+La Rivière Huang Quan s'étendit et, dès que l'intention du Dao de Wang Lin y pénétra, une force immense s'en dégagea et la planète entière sembla trembler. Les veines spirituelles brisées sous la terre commencèrent toutes à converger.
 
-Wang Lin murmura doucement: « Troisième capacité de la Rivière des Enfers: la Puissance des Enfers! » Un grondement sourd émana de la rivière et, simultanément, une puissante force d'aspiration s'en dégagea.
+Wang Lin murmura doucement: « Troisième capacité de la Rivière Huang Quan: la Puissance des Enfers! » Un grondement sourd émana de la rivière et, simultanément, une puissante force d'aspiration s'en dégagea.
 
-La planète entière fut secouée alors que l'énergie spirituelle des veines brisées était aspirée. Elle jaillissait du sol telle une nuée de dragons pour être absorbée par la Rivière des Enfers.
+La planète entière fut secouée alors que l'énergie spirituelle des veines brisées était aspirée. Elle jaillissait du sol telle une nuée de dragons pour être absorbée par la Rivière Huang Quan.
 
 Les yeux de Wang Lin s'illuminèrent lorsqu'il saisit Sun Xi. Il le projeta dans la rivière et cria: « Ferme les yeux et cultive! »
 
-À l'intérieur de la Rivière des Enfers, Sun Xi entendit des éclats de cris lugubres qui firent trembler son esprit. Il ferma précipitamment les yeux pour se concentrer sur sa culture. Une énergie spirituelle foisonnante s'engouffra en lui avec frénésie.
+À l'intérieur de la Rivière Huang Quan, Sun Xi entendit des éclats de cris lugubres qui firent trembler son esprit. Il ferma précipitamment les yeux pour se concentrer sur sa culture. Une énergie spirituelle foisonnante s'engouffra en lui avec frénésie.
 
-Peu après, Wang Lin frappa son sac de rangement et en sortit une pilule de rang huit. Il brisa l'enveloppe de cire et une riche odeur médicinale s'en dégagea immédiatement. Il jeta la pilule dans la Rivière des Enfers qui, à mi-chemin, se transforma en un gaz vert fusionnant avec les eaux.
+Peu après, Wang Lin frappa son sac de rangement et en sortit une pilule de rang huit. Il brisa l'enveloppe de cire et une riche odeur médicinale s'en dégagea immédiatement. Il jeta la pilule dans la Rivière Huang Quan qui, à mi-chemin, se transforma en un gaz vert fusionnant avec les eaux.
 
-Trois jours plus tard, un long cri retentit de l'intérieur de la Rivière des Enfers de Wang Lin. Sun Xi ouvrit les yeux dans un éclat de lumière. Son corps vacilla alors qu'il s'extrayait des eaux. Il fixa ses mains et son Sens Divin scruta son corps. L'excitation illumina instantanément son visage. Il prit une grande inspiration, envahi par une joie profonde.
+Trois jours plus tard, un long cri retentit de l'intérieur de la Rivière Huang Quan de Wang Lin. Sun Xi ouvrit les yeux dans un éclat de lumière. Son corps vacilla alors qu'il s'extrayait des eaux. Il fixa ses mains et son Sens Divin scruta son corps. L'excitation illumina instantanément son visage. Il prit une grande inspiration, envahi par une joie profonde.
 
 Il s'inclina profondément devant Wang Lin: « Je vous serai éternellement reconnaissant pour votre aide, Frère Xu! »
 
-Durant ces trois jours, Wang Lin avait continué d'utiliser la Rivière des Enfers. Une fois que Sun Xi fut sorti, la rivière disparut. Wang Lin dit calmement: « Votre culture est revenue au stade intermédiaire de la Transformation de l'Âme, mais c'est là votre limite. Ne me remerciez pas; ce n'est qu'un devoir. »
+Durant ces trois jours, Wang Lin avait continué d'utiliser la Rivière Huang Quan. Une fois que Sun Xi fut sorti, la rivière disparut. Wang Lin dit calmement: « Votre culture est revenue au stade intermédiaire de la Transformation de l'Âme, mais c'est là votre limite. Ne me remerciez pas; ce n'est qu'un devoir. »
 
 Une fois ses paroles achevées, Wang Lin leva les yeux vers le ciel et dit doucement: « Je vous confie les affaires d'ici. Réglez la situation des descendants des trois familles et attendez mon retour. » Wang Lin fit un pas en avant et s'élança vers les cieux.
 

@@ -106,7 +106,7 @@ Un fracas tonitruant résonna alors que l'épée brisée était repoussée et en
 
 « Je ne peux pas laisser le vieil homme en noir se faire dévorer par l'étoile de Tuo Sen! » C'était la seule pensée qui occupait l'esprit de Wang Lin. Dès que la lance marqua son arrêt, il chargea sans hésiter. Sa vitesse atteignit ses limites alors qu'il se projetait devant la lance gigantesque.
 
-Son action fit rétrécir les pupilles du vieil homme en noir, fit trembler Maître Yan Leizi et plongea les huit rois de la Secte des Cadavres dans une terreur absolue. Wang Lin ferma les yeux et, au moment où la Lance Tueuse de Dieux allait l'atteindre, son corps se désintégra, ne laissant derrière lui qu'un fragment d'âme originelle. Avant de disparaître, ce fragment forma un sceau et envoya une commande à la Lance Tueuse de Dieux:
+Son action fit rétrécir les pupilles du vieil homme en noir, fit trembler Maître Yan Leizi et plongea les huit rois de la Secte Shi Yin dans une terreur absolue. Wang Lin ferma les yeux et, au moment où la Lance Tueuse de Dieux allait l'atteindre, son corps se désintégra, ne laissant derrière lui qu'un fragment d'âme originelle. Avant de disparaître, ce fragment forma un sceau et envoya une commande à la Lance Tueuse de Dieux:
 
 « J'utilise ma volonté pour entraver votre chemin! »
 
@@ -114,7 +114,7 @@ La Lance Tueuse de Dieux vacilla un instant, mais une aura violente en jaillit s
 
 « Je garderai la première étoile de l'ancien dieu pour toi! » Ce furent les derniers mots que Wang Lin entendit avant que son âme originelle ne soit annihilée...
 
-L'obstruction de Wang Lin et ce bref sursis permirent au vieil homme d'entrer dans le vortex et de disparaître. Maître Yan Leizi et les huit rois de la Secte des Cadavres s'engouffrèrent également dans le vortex pour s'évanouir.
+L'obstruction de Wang Lin et ce bref sursis permirent au vieil homme d'entrer dans le vortex et de disparaître. Maître Yan Leizi et les huit rois de la Secte Shi Yin s'engouffrèrent également dans le vortex pour s'évanouir.
 
 La Lance Tueuse de Dieux percuta directement le vortex, provoquant une onde de choc dévastatrice. Maître Yan Leizi venait à peine de franchir le vortex lorsqu'il fut frappé par cette force. Il cracha du sang et parut instantanément affaibli. Ses deux jambes explosèrent et même son âme originelle devint instable.
 
@@ -122,13 +122,13 @@ Il laissa échapper un sourire misérable, sa haine envers Tuo Sen ne venant qu'
 
 Le vieil homme en noir apparut aux côtés de Maître Yan Leizi, l'attrapa et disparut.
 
-Les huit rois de la Secte des Cadavres réussirent enfin à s'échapper, mais la force dévastatrice les rattrapa aussitôt. Leurs corps tremblèrent et s'effondrèrent tandis que huit auras froides tentaient de s'enfuir. Cependant, face à cette puissance terrifiante, cinq d'entre eux furent pulvérisés.
+Les huit rois de la Secte Shi Yin réussirent enfin à s'échapper, mais la force dévastatrice les rattrapa aussitôt. Leurs corps tremblèrent et s'effondrèrent tandis que huit auras froides tentaient de s'enfuir. Cependant, face à cette puissance terrifiante, cinq d'entre eux furent pulvérisés.
 
 Les trois restants sortirent des cercueils en hâte pour obtenir de nouveaux corps et tenter de fuir. Mais la force frappa à nouveau, faisant s'effondrer leurs nouveaux corps.
 
 Ce cycle se répéta. Cette distance de moins de dix mille pieds était pour eux une véritable apocalypse ; dans un jet de brume de sang, un autre trouva la mort.
 
-Les deux derniers rois de la Secte des Cadavres étaient sur le point de voir leur âme se disperser. Voyant la force se refermer sur eux, ils sombrèrent dans le désespoir. À cet instant, un vortex noir apparut soudainement près d'eux et deux bras s'étendirent pour les saisir et les aspirer à l'intérieur.
+Les deux derniers rois de la Secte Shi Yin étaient sur le point de voir leur âme se disperser. Voyant la force se refermer sur eux, ils sombrèrent dans le désespoir. À cet instant, un vortex noir apparut soudainement près d'eux et deux bras s'étendirent pour les saisir et les aspirer à l'intérieur.
 
 « Seigneur Souverain! » Leurs yeux brillèrent d'extase; ils ne résistèrent pas, se laissant entraîner par ces bras. Au même moment, la force de la Lance Tueuse de Dieux pénétra le vortex. Un gémissement de douleur retentit, mais il semblait qu'ils avaient survécu avant que le vortex ne disparaisse.
 
@@ -140,4 +140,4 @@ Lorsqu'il réapparut, il était déjà très loin de la planète Suzaku. Pourtan
 
 « Si j'avais dû affronter Tuo Sen, même si mon corps originel avait traversé les Trois Épreuves et Sept Calamités, même si j'avais le trident en main, je ne survivrais pas à un seul de ses coups... » Wang Lin afficha une expression amère. Il ignorait si Tuo Sen s'était échappé, mais il savait qu'il ne pouvait rester dans le Système Stellaire de l'Alliance. Il devait partir au plus vite et ne jamais... jamais revenir... À moins d'acquérir la puissance nécessaire pour résister à Tuo Sen...
 
-Il disparut une nouvelle fois, le visage marqué par l'amertume, utilisant la Déformation Spatiale pour rejoindre l'endroit où il avait préparé une voie de secours. C'était une planète isolée et abandonnée... Il y avait installé une formation avant sa rencontre avec l'Empereur Divin du Dragon Azure, à la Secte des Quatre Divinités.
+Il disparut une nouvelle fois, le visage marqué par l'amertume, utilisant la Déformation Spatiale pour rejoindre l'endroit où il avait préparé une voie de secours. C'était une planète isolée et abandonnée... Il y avait installé une formation avant sa rencontre avec l'Empereur Divin du Dragon Azure, à la Secte Si Sheng.

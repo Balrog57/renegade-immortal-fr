@@ -46,7 +46,7 @@ Il était impossible de décrire la force de cet assaut. L'énergie de la lame b
 
 Les pupilles du Daoïste aux Sept Couleurs se contractèrent. Malgré son niveau de culture, il ressentit un sentiment de péril imminent. Une telle sensation était extrêmement rare; il ne l'avait éprouvée que trois fois dans sa vie!
 
-Cependant, sur ces trois occasions, deux s'étaient produites lors de la traque de Wang Lin. La première fois dans la fissure de la Mer des Nuages, et la seconde était celle-ci, au sein de ce monde en ruines!
+Cependant, sur ces trois occasions, deux s'étaient produites lors de la traque de Wang Lin. La première fois dans la fissure de la Mer Yun, et la seconde était celle-ci, au sein de ce monde en ruines!
 
 « Emprunter la Loi de ce lieu pour forger cette lame... Ce Wang Lin a su concevoir cela en un temps si court. Une telle sagesse est rare! Cependant, plus il est intelligent, plus il mérite de mourir! » Le Daoïste aux Sept Couleurs savait qu'en présence du Vieux Fantôme Zhan, il ne pouvait se permettre d'être blessé. Il agita sa manche et une lumière septicolore commença à scintiller. La lumière se condensa en un lotus aux sept couleurs doté de sept pétales, chacun arborant l'une des sept teintes. Le lotus s'épanouit devant lui.
 

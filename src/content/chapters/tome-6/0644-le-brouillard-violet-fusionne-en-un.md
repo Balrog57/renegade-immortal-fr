@@ -32,25 +32,25 @@ Une autre raison importante était que Wang Lin voulait savoir si Tan Lang le re
 
 Au moment où Wang Lin apparut, six regards se posèrent immédiatement sur lui.
 
-« Toi... Wang Lin! » L'un des cinq disciples de la Secte de l'Épée Da Luo le reconnut instantanément.
+« Toi... Wang Lin! » L'un des cinq disciples de la Secte Da Luo Jian le reconnut instantanément.
 
-Une intention meurtrière émana soudainement des disciples de la Secte de l'Épée Da Luo. Leurs relations avec la Secte du Destin Céleste avaient toujours été hostiles, et il suffisait de se rencontrer pour que le combat éclate, sans raison particulière.
+Une intention meurtrière émana soudainement des disciples de la Secte Da Luo Jian. Leurs relations avec la Secte Tian Yun avaient toujours été hostiles, et il suffisait de se rencontrer pour que le combat éclate, sans raison particulière.
 
 Le regard de Wang Lin resta calme tandis qu'il balayait l'assemblée. Son attention ne se fixa pas sur Tan Lang, mais passa simplement à côté de lui.
 
 L'expression de Tan Lang ne changea nullement. Il ne regarda Wang Lin qu'au moment précis de son apparition, avant de refermer les yeux.
 
-Une voix basse s'éleva de la bouche de Chen Long: « Je suis Chen Long. Es-tu Wang Lin, de la Division Pourpre de la Secte du Destin Céleste? »
+Une voix basse s'éleva de la bouche de Chen Long: « Je suis Chen Long. Es-tu Wang Lin, de la Division Pourpre de la Secte Tian Yun? »
 
-Wang Lin garda une expression neutre en regardant Chen Long. Il ne répondit pas, attendant de voir si ces membres de la Secte de l'Épée Da Luo étaient ici de leur plein gré ou s'ils y étaient piégés. C'était un point crucial: s'ils étaient là volontairement, son intuition précédente était erronée.
+Wang Lin garda une expression neutre en regardant Chen Long. Il ne répondit pas, attendant de voir si ces membres de la Secte Da Luo Jian étaient ici de leur plein gré ou s'ils y étaient piégés. C'était un point crucial: s'ils étaient là volontairement, son intuition précédente était erronée.
 
-« Quelle arrogance! Mon frère aîné te pose une question et tu oses ne pas répondre?! » L'impatience de l'un des disciples de la Secte de l'Épée Da Luo, retenu ici depuis cent ans, avait atteint un point de rupture. Profitant de cette opportunité, il s'avança en criant. L'épée précieuse derrière lui vola et, lorsqu'il la mania, une monture équine noire apparut sur la lame!
+« Quelle arrogance! Mon frère aîné te pose une question et tu oses ne pas répondre?! » L'impatience de l'un des disciples de la Secte Da Luo Jian, retenu ici depuis cent ans, avait atteint un point de rupture. Profitant de cette opportunité, il s'avança en criant. L'épée précieuse derrière lui vola et, lorsqu'il la mania, une monture équine noire apparut sur la lame!
 
 Le souffle du cheval était vert et dégageait une aura maléfique. Il se fondit dans l'épée, fusionnant avec l'énergie de l'arme qui chargeait Wang Lin.
 
 La culture de cet homme n'était qu'au stade avancé de la Transformation de l'Âme, mais il n'en avait cure. Non seulement plusieurs membres de sa secte étaient présents, mais son frère aîné l'était aussi; ils ne le laisseraient naturellement pas subir de défaite.
 
-« C'est ainsi que vous traitez vos invités? » Wang Lin ne daigna même pas regarder l'énergie de l'épée et fixa calmement Chen Long. Il était désormais certain que les disciples de la Secte de l'Épée Da Luo étaient piégés. S'ils n'avaient pas été retenus ici depuis longtemps, auraient-ils été aussi impatients?
+« C'est ainsi que vous traitez vos invités? » Wang Lin ne daigna même pas regarder l'énergie de l'épée et fixa calmement Chen Long. Il était désormais certain que les disciples de la Secte Da Luo Jian étaient piégés. S'ils n'avaient pas été retenus ici depuis longtemps, auraient-ils été aussi impatients?
 
 Les yeux de Chen Long s'illuminèrent, mais juste au moment où il allait parler, Wang Lin passa à l'action.
 
@@ -58,7 +58,7 @@ Le sceau de vie sur son front brilla et commença à se propager depuis son corp
 
 Un rugissement retentit et le regard de Wang Lin devint glacial. Certains sceaux de vie s'envolèrent et se transformèrent en énergie de massacre. Cette énergie se propagea tyranniquement, et ses filaments, semblables à autant de dragons azur, encerclèrent rapidement Wu Ma.
 
-Les disciples de la Secte de l'Épée Da Luo se levèrent, prêts à attaquer. Cependant, à cet instant, Chen Long ordonna froidement: « Tous, reculez! »
+Les disciples de la Secte Da Luo Jian se levèrent, prêts à attaquer. Cependant, à cet instant, Chen Long ordonna froidement: « Tous, reculez! »
 
 Tout en parlant, le doigt de Chen Long prit la forme d'une épée. Cette lame perça l'énergie de massacre comme un éclair. Son doigt contenait un sortilège mystérieux qui, après avoir pénétré l'énergie, lui permit de donner un coup de pied à Wu Ma et de le projeter hors de l'encerclement.
 
@@ -76,7 +76,7 @@ Le regard de Chen Long ne vacilla pas et il esquissa un léger sourire. « C'est
 
 Wu Ma, manifestement terrifié par Chen Long, hocha la tête et resta silencieux.
 
-Les pupilles de Wang Lin se contractèrent légèrement. Après être entré ici, il avait délibérément provoqué les membres de la Secte de l'Épée Da Luo pour vérifier s'ils étaient piégés. Il venait même de prendre l'épée de Wu Ma, et pourtant Chen Long avait tout enduré sans la moindre émotion.
+Les pupilles de Wang Lin se contractèrent légèrement. Après être entré ici, il avait délibérément provoqué les membres de la Secte Da Luo Jian pour vérifier s'ils étaient piégés. Il venait même de prendre l'épée de Wu Ma, et pourtant Chen Long avait tout enduré sans la moindre émotion.
 
 Au-delà du fait que Chen Long était un homme très rusé, cela confirmait surtout la spéculation de Wang Lin: ils avaient besoin de son aide.
 
@@ -88,7 +88,7 @@ Durant l'instant bref où Wang Lin était apparu, bien qu'il ait gardé les yeux
 
 Tan Lang avait hésité, puis avait renoncé.
 
-Wang Lin répondit d'un ton serein: « Mon ami est de nature froide et n'apprécie guère la compagnie. Senior est-il également membre de la Secte de l'Épée Da Luo? »
+Wang Lin répondit d'un ton serein: « Mon ami est de nature froide et n'apprécie guère la compagnie. Senior est-il également membre de la Secte Da Luo Jian? »
 
 Tan Lang lança un regard à Wang Lin et eut un sourire narquois.
 
@@ -104,15 +104,15 @@ Tan Lang s'apprêtait à refuser, mais ses yeux se plissèrent soudainement. Il 
 
 Après avoir regardé Chen Long, Tan Lang hocha la tête: « Puisque tu t'inquiètes tant de voir ce vieil homme refuser encore, tu dois penser que je suis mal intentionné. Soit, tentons de percer! »
 
-Chen Long secoua rapidement la tête: « Le junior n'ose, mais c'est simplement que nous sommes ici depuis trop longtemps. Je m'inquiète pour mes frères cadets dans la Terre des Esprits Démoniaques... »
+Chen Long secoua rapidement la tête: « Le junior n'ose, mais c'est simplement que nous sommes ici depuis trop longtemps. Je m'inquiète pour mes frères cadets dans la Terre Yao Ling... »
 
 Tan Lang ricana et bondit du sol. Il prit la tête de la charge et s'élança directement dans le brouillard.
 
 Chen Long prit une profonde inspiration. Il joignit les mains devant Wang Lin et murmura: « Frère Wang, mettons de côté nos différends de secte pour l'instant. Tant que l'on pénètre dans ce brouillard, on ne peut en sortir. Il n'existe qu'une seule issue, mais malheureusement, elle est entourée par une horde de bêtes démoniaques. Si nous voulons partir, nous devons forcer le passage! »
 
-Wang Lin acquiesça et s'élança avec Chen Long, tandis que les autres disciples de la Secte de l'Épée Da Luo suivaient Tan Lang. En volant, Wang Lin laissa les sceaux de vie entourer son corps pour se protéger.
+Wang Lin acquiesça et s'élança avec Chen Long, tandis que les autres disciples de la Secte Da Luo Jian suivaient Tan Lang. En volant, Wang Lin laissa les sceaux de vie entourer son corps pour se protéger.
 
-En réalité, il n'était pas le seul. Chen Long utilisait également secrètement un sort pour se protéger, au cas où Wang Lin déciderait de lancer une attaque surprise. Les autres disciples de la Secte de l'Épée Da Luo, et particulièrement Wu Ma, lançaient à Wang Lin des regards venimeux.
+En réalité, il n'était pas le seul. Chen Long utilisait également secrètement un sort pour se protéger, au cas où Wang Lin déciderait de lancer une attaque surprise. Les autres disciples de la Secte Da Luo Jian, et particulièrement Wu Ma, lançaient à Wang Lin des regards venimeux.
 
 Chacun poursuivait ses propres desseins en chargeant dans le brouillard violet vers la sortie.
 
@@ -148,17 +148,17 @@ Tan Lang traversa la brume et marqua une pause à sa lisière. Mais soudain, il 
 
 Ce remous ne se limita pas à une zone précise; toute la brume violette entra en effervescence. Des rugissements tonitruants jaillirent de l'intérieur, causés par le frottement de la brume contre elle-même.
 
-Ce phénomène attira immédiatement l'attention des membres de la Secte de l'Épée Da Luo et de Wang Lin.
+Ce phénomène attira immédiatement l'attention des membres de la Secte Da Luo Jian et de Wang Lin.
 
 Une pointe d'extase brilla dans les yeux de Tan Lang. Il avait remarqué une anomalie dans la brume, ce qui l'avait poussé à accepter la proposition de Chen Long. À cet instant, il prit une profonde inspiration et frappa son sac de rangement pour en sortir un petit fourneau!
 
 Le fourneau dégagea une vapeur violette qui enveloppa Tan Lang. Il fit un pas et sortit du brouillard.
 
-À ce moment-là, par la force de sa volonté, il provoqua les bêtes-moustiques à l'extérieur, qui se mirent instantanément à hurler. Ce son, capable d'affecter l'âme, traversa le brouillard violet et rendit les disciples de la Secte de l'Épée Da Luo encore plus impatients.
+À ce moment-là, par la force de sa volonté, il provoqua les bêtes-moustiques à l'extérieur, qui se mirent instantanément à hurler. Ce son, capable d'affecter l'âme, traversa le brouillard violet et rendit les disciples de la Secte Da Luo Jian encore plus impatients.
 
 La brume commença à s'agiter violemment, partant des bords. Sous un certain angle, on pouvait voir que la brume violette se contractait à une vitesse prodigieuse!
 
-Les visages de Chen Long et de ses compagnons changèrent radicalement; ils voulurent immédiatement s'échapper. Mais au moment où ils s'élancèrent, les rires de Tan Lang retentirent. D'un revers de manche, il créa une vague de vent qui contraignit les membres de la Secte de l'Épée Da Luo à s'arrêter net.
+Les visages de Chen Long et de ses compagnons changèrent radicalement; ils voulurent immédiatement s'échapper. Mais au moment où ils s'élancèrent, les rires de Tan Lang retentirent. D'un revers de manche, il créa une vague de vent qui contraignit les membres de la Secte Da Luo Jian à s'arrêter net.
 
 « Ce vieil homme a attendu cent ans, et maintenant la brume violette va enfin fusionner en un! Vous tous, vous deviendrez les sacrifices qui accompliront mon vœu! » La voix de Tan Lang résonna dans toute la brume.
 
@@ -166,4 +166,4 @@ Les yeux de Wang Lin devinrent froids, tandis que la voix de Zhou Yi résonnait 
 
 « Wang Lin, il y a une énergie spirituelle céleste à la lisière du brouillard qui peut piéger tous les cultivateurs. À moins de posséder une racine céleste, on ne peut en sortir. Cependant, cela n'a aucun effet sur moi; je peux donc t'emmener! »
 
-Wang Lin regarda les disciples de la Secte de l'Épée Da Luo et prit une décision immédiate. Il ne laissa pas Zhou Yi l'extraire tout de suite, mais commença à reculer lentement.
+Wang Lin regarda les disciples de la Secte Da Luo Jian et prit une décision immédiate. Il ne laissa pas Zhou Yi l'extraire tout de suite, mais commença à reculer lentement.

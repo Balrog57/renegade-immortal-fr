@@ -100,7 +100,7 @@ Instantanément, une tempête éclata au loin, la brume tourbillonnant violemmen
 
 Le Doigt du Destin Céleste!
 
-Wang Lin utilisa sa propre puissance et l'âme de Tian Yunzi comme guide. Le Doigt du Destin Céleste descendit sur le Système Stellaire de la Mer des Nuages. Il progressait avec une célérité et un élan inimaginables vers Noble Argent. Malgré tous ses efforts, il fut incapable d'esquiver le doigt qui finit par l'écraser.
+Wang Lin utilisa sa propre puissance et l'âme de Tian Yunzi comme guide. Le Doigt du Destin Céleste descendit sur le Système Stellaire de la Mer Yun. Il progressait avec une célérité et un élan inimaginables vers Noble Argent. Malgré tous ses efforts, il fut incapable d'esquiver le doigt qui finit par l'écraser.
 
 Alors que le Doigt du Destin Céleste balayait tout sur son passage, l'âme de Noble Argent s'effondra en une multitude de particules de lumière. Le Doigt du Destin Céleste disparut avec lui.
 
@@ -114,15 +114,15 @@ Cinq jours plus tard, lorsque le continent de Mo Luo apparut enfin, Wang Lin pou
 
 Wang Lin ignorait que peu après la mort de Noble Argent, le décès de Shi Luoxing fut révélé aux autres sectes. L'espace entourant ce continent sauvage fut immédiatement scellé hermétiquement.
 
-La mort de Noble Argent choqua la Secte de la Fleur Claire. Tout en scellant la zone, ils cherchèrent le meurtrier avec acharnement, mais Wang Lin était déjà loin.
+La mort de Noble Argent choqua la Secte Hua Qing. Tout en scellant la zone, ils cherchèrent le meurtrier avec acharnement, mais Wang Lin était déjà loin.
 
-Les cultivateurs de la région de rang 6 trouvèrent naturellement le squelette et les fragments de crâne dans la vallée où se trouvait Shi Luoxing, et tous visèrent la Secte des Cinq Poisons. Face aux regards belliqueux de toutes les sectes, la Secte des Cinq Poisons fut incapable de se justifier.
+Les cultivateurs de la région de rang 6 trouvèrent naturellement le squelette et les fragments de crâne dans la vallée où se trouvait Shi Luoxing, et tous visèrent la Secte Wu Du. Face aux regards belliqueux de toutes les sectes, la Secte Wu Du fut incapable de se justifier.
 
 Un courant souterrain commença à s'agiter dans la région de rang 5.
 
-De retour sur le continent de Mo Luo, Wang Lin se transforma en un rayon de lumière et se dirigea vers la Secte de l'Origine. Il savait que la région de rang 5 allait sombrer dans le chaos. Les cultivateurs du rang 6 allaient intensifier leurs recherches, et à ce moment-là, son identité au sein de la Secte de l'Origine deviendrait cruciale.
+De retour sur le continent de Mo Luo, Wang Lin se transforma en un rayon de lumière et se dirigea vers la Secte Gui Yuan. Il savait que la région de rang 5 allait sombrer dans le chaos. Les cultivateurs du rang 6 allaient intensifier leurs recherches, et à ce moment-là, son identité au sein de la Secte Gui Yuan deviendrait cruciale.
 
-Le retour de Wang Lin ne suscita pas trop d'attention au sein de la Secte de l'Origine. Il apparut instantanément dans la cour des herbes de la cour sud. Dès son arrivée, il vit Xu Yun assise devant la maison, dont l'expression était frappée de stupeur.
+Le retour de Wang Lin ne suscita pas trop d'attention au sein de la Secte Gui Yuan. Il apparut instantanément dans la cour des herbes de la cour sud. Dès son arrivée, il vit Xu Yun assise devant la maison, dont l'expression était frappée de stupeur.
 
 « Tu... » Xu Yun allait parler, mais Wang Lin ne lui prêta aucune attention et d'un geste de la main droite fit apparaître une quantité massive d'herbes, formant rapidement une petite montagne entre eux.
 
@@ -130,7 +130,7 @@ Le retour de Wang Lin ne suscita pas trop d'attention au sein de la Secte de l'O
 
 Xu Yun regarda l'amas d'herbes devant elle et eut le souffle coupé. Grâce à ses connaissances, elle comprit que beaucoup de ces plantes étaient extrêmement rares, et que leur valeur dépassait de loin celle des herbes que Wang Lin avait consommées.
 
-Elle resta stupéfaite un long moment avant de reprendre ses esprits et de pousser un soupir de soulagement. Après le départ de Wang Lin, elle subissait les réprimandes quotidiennes de son maître et était très inquiète. Elle craignait que, si le Senior Ceng Niu ne revenait pas, elle soit tenue pour responsable de la ruine de la secte lors de l'arrivée de la Secte du Dao Pourpre.
+Elle resta stupéfaite un long moment avant de reprendre ses esprits et de pousser un soupir de soulagement. Après le départ de Wang Lin, elle subissait les réprimandes quotidiennes de son maître et était très inquiète. Elle craignait que, si le Senior Ceng Niu ne revenait pas, elle soit tenue pour responsable de la ruine de la secte lors de l'arrivée de la Secte Zi Dao.
 
 À l'intérieur de la maison, Wang Lin s'assit, le regard grave, et pressa sa poitrine de la main droite. Son visage était toujours pâle alors qu'il entamait sa culture. Bientôt, des éclairs de lignes blanches commencèrent à être expulsés de son corps.
 
@@ -140,7 +140,7 @@ En observant les fils blancs dans sa paume, une froideur glaciale s'empara de so
 
 Il avait consacré tout son voyage de retour à cette tâche; il ne restait donc plus beaucoup de fils blancs en lui.
 
-Trois jours après son retour à la Secte de l'Origine, Wang Lin avait fini d'expulser toutes les lignes blanches. Après avoir broyé la dernière, ses yeux brillèrent.
+Trois jours après son retour à la Secte Gui Yuan, Wang Lin avait fini d'expulser toutes les lignes blanches. Après avoir broyé la dernière, ses yeux brillèrent.
 
 Sa main droite plongea dans le vide pour faire apparaître son espace de stockage. Le jade et la recette de pilule gravée sur l'os de bête volèrent vers sa main.
 

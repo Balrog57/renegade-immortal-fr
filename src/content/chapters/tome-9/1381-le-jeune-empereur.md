@@ -26,7 +26,7 @@ Le gravement blessé Maître Simo ne put esquiver alors que l'épée de sang lui
 
 L'avatar de Maître Simo était, après tout, celui d'un cultivateur du Cinquième Fléau Céleste; il n'était donc pas aisé de le tuer. Wang Lin s'y était pleinement préparé: Pilule d'Effondrement du Dragon, Cristal de Mutation de Feu Déchaîné, dix millions de rayons d'énergie d'épée et, au moment critique, l'épée de sang. En un laps de temps très court, Wang Lin avait déployé tous ses coups mortels, mais il n'avait tout de même pas réussi à terrasser un cultivateur du Cinquième Fléau Céleste.
 
-Cependant, le blesser à ce point ferait de Wang Lin une légende dans les Royaumes Intérieur et Extérieur. Après tout, il n'avait accompli qu'une seule essence. S'il complétait sa deuxième, troisième, quatrième et cinquième essence, même s'il n'avait pas encore ouvert la Porte du Vide, il pourrait affronter un cultivateur de la troisième étape!
+Cependant, le blesser à ce point ferait de Wang Lin une légende dans les Royaumes Intérieur et Extérieur. Après tout, il n'avait accompli qu'une seule essence. S'il complétait sa deuxième, troisième, quatrième et cinquième essence, même s'il n'avait pas encore ouvert la Porte Kong, il pourrait affronter un cultivateur de la troisième étape!
 
 Voyant que Maître Simo ne succombait toujours pas, l'expression de Wang Lin devint sombre. Il leva son index vers le ciel, prêt à lancer un sort pour le poursuivre, quand soudain, cette voix issue du vide résonna une fois de plus:
 
@@ -48,9 +48,9 @@ Le vent souffla et l'odeur du sang persista longtemps dans l'air.
 
 La voix venue du vide ne réapparut plus jamais. Le doigt retourna dans le vortex et disparut sans laisser de trace, comme si rien ne s'était produit.
 
-La planète de culture était plongée dans un silence de mort. Le vieil homme du Clan des Moineaux de Feu et les siens fixaient la scène, hébétés. Ils étaient terrifiés et frappés d'incrédulité.
+La planète de culture était plongée dans un silence de mort. Le vieil homme du Clan Huo Que et les siens fixaient la scène, hébétés. Ils étaient terrifiés et frappés d'incrédulité.
 
-Le visage du jeune maître du Clan du Dragon Blindé était extrêmement disgracieux, marqué par la panique et le regret. Il recula nerveusement pour se poster aux côtés de son père.
+Le visage du jeune maître du Clan Long Jia était extrêmement disgracieux, marqué par la panique et le regret. Il recula nerveusement pour se poster aux côtés de son père.
 
 « Père, c'est terrible. Cet homme semble être favorisé par le Grand Empereur. Nous... »
 
@@ -66,27 +66,27 @@ Cependant, lorsque le regard de Wang Lin retomba sur la planète, ses yeux devin
 
 « Le neuvième Ancien du Conseil Déchu... Vous avez osé aider Maître Simo, vous êtes donc mon ennemi! Neuvième Ancien... j'aimerais bien voir quelle est la limite du Grand Empereur! » Wang Lin provoquait rarement les autres, mais une fois provoqué, il laissait rarement ses adversaires impunis.
 
-Il laissa échapper un reniflement glacial et se projeta comme une météorite vers le territoire du Clan du Dragon Blindé!
+Il laissa échapper un reniflement glacial et se projeta comme une météorite vers le territoire du Clan Long Jia!
 
 Sa vitesse était fulgurante; il traversait le ciel tel un rayon de lumière, provoquant des grondements tonitruants. L'expression de tous les cultivateurs spectateurs changea radicalement. Après avoir assisté au combat entre Wang Lin et Maître Simo, personne n'osait l'intercepter.
 
-Le visage du jeune maître du Clan du Dragon Blindé devint livide alors qu'il reculait inconsciemment de quelques pas en s'exclamant: « Père, il... il... »
+Le visage du jeune maître du Clan Long Jia devint livide alors qu'il reculait inconsciemment de quelques pas en s'exclamant: « Père, il... il... »
 
 Le Patriarche du Dragon Blindé sentit son cœur sombrer, regrettant amèrement d'avoir supposé que Wang Lin ne chercherait pas trouble après son combat. Bien que choqué, lorsqu'il songea aux blessures que Wang Lin avait subies, il prit un air féroce.
 
-« Tous les cultivateurs de la deuxième étape du Clan du Dragon Blindé, empêchez quiconque d'entrer dans le clan! » Alors que sa voix puissante résonnait, près de dix cultivateurs de la deuxième étape s'élancèrent pour barrer la route à Wang Lin.
+« Tous les cultivateurs de la deuxième étape du Clan Long Jia, empêchez quiconque d'entrer dans le clan! » Alors que sa voix puissante résonnait, près de dix cultivateurs de la deuxième étape s'élancèrent pour barrer la route à Wang Lin.
 
-Cependant, à cet instant précis, le monde trembla et une météorite de tonnerre surgit. Wang Lin apparut devant le Clan du Dragon Blindé. Alors que ces cultivateurs prenaient leur envol, Wang Lin pressa sa main impitoyablement vers le bas!
+Cependant, à cet instant précis, le monde trembla et une météorite de tonnerre surgit. Wang Lin apparut devant le Clan Long Jia. Alors que ces cultivateurs prenaient leur envol, Wang Lin pressa sa main impitoyablement vers le bas!
 
 « Dégagez! »
 
-Sa voix froide fit trembler le ciel et, tandis que sa main descendait, une empreinte de paume gigantesque apparut, s'abattant sur le Clan du Dragon Blindé.
+Sa voix froide fit trembler le ciel et, tandis que sa main descendait, une empreinte de paume gigantesque apparut, s'abattant sur le Clan Long Jia.
 
 Lorsque les cultivateurs de la deuxième étape furent touchés par l'empreinte, ils crachèrent immédiatement du sang. Ils furent projetés au loin et les corps physiques de trois d'entre eux s'effondrèrent instantanément.
 
-Ils ne purent absolument rien faire pour l'arrêter! L'empreinte de paume percuta le sol et tout le territoire du Clan du Dragon Blindé s'effondra sur-le-champ!
+Ils ne purent absolument rien faire pour l'arrêter! L'empreinte de paume percuta le sol et tout le territoire du Clan Long Jia s'effondra sur-le-champ!
 
-« Un simple petit clan ose comploter contre moi? Vous cherchez la mort! » rit Wang Lin en descendant. Son regard se posa sur le père et le fils du Clan du Dragon Blindé.
+« Un simple petit clan ose comploter contre moi? Vous cherchez la mort! » rit Wang Lin en descendant. Son regard se posa sur le père et le fils du Clan Long Jia.
 
 Le Patriarche du Dragon Blindé était terrifié. Il ne s'attendait pas à ce que Wang Lin soit encore aussi puissant après avoir été blessé. Il n'avait aucune confiance pour résister à une telle attaque.
 

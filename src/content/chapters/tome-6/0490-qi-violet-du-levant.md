@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 490 - Purple Qi From the East
 slug: qi-violet-du-levant
 ---
-Dans une forêt rocheuse située à des centaines de milliers de kilomètres de la Secte du Destin Céleste, un jeune homme aux longs cheveux était assis sur le sommet d'un pilier de pierre. Une aura épaisse entourait l'individu; vu de loin, il n'était qu'une silhouette floue.
+Dans une forêt rocheuse située à des centaines de milliers de kilomètres de la Secte Tian Yun, un jeune homme aux longs cheveux était assis sur le sommet d'un pilier de pierre. Une aura épaisse entourait l'individu; vu de loin, il n'était qu'une silhouette floue.
 
 Le silence régnait en maître lorsque l'homme ouvrit soudainement les yeux. Dans la brume qui l'enveloppait, ses deux pupilles brillaient comme deux lunes éclatantes.
 
@@ -66,7 +66,7 @@ Au moment où son doigt transperça le voile, la flamme pourpre se mit à brûle
 
 En un instant, la flamme pourpre s'étendit et dévora l'écran lumineux du haut vers le bas. Après trois respirations, la flamme pourpre avait brûlé jusqu'au sol, traçant un cercle parfait. Ce cercle marquait la zone dans laquelle Wang Lin était piégé.
 
-Le regard de Wang Lin était glacial alors qu'il lançait une observation sombre au loin. Sa priorité était de retourner à la Secte du Destin Céleste, mais il ne connaissait pas la région et n'avait aucune idée du chemin à suivre.
+Le regard de Wang Lin était glacial alors qu'il lançait une observation sombre au loin. Sa priorité était de retourner à la Secte Tian Yun, mais il ne connaissait pas la région et n'avait aucune idée du chemin à suivre.
 
 Ses yeux s'illuminèrent; il frappa son sac de stockage et un fanion d'âme s'en échappa. Il agita le fanion et une âme originelle en sortit.
 
@@ -76,11 +76,11 @@ L'âme originelle tressaillit puis ouvrit soudainement les yeux. Elle regarda d'
 
 L'âme originelle s'exclama rapidement: « Ceci... c'est la planète Tian Yun! »
 
-Ce Cao Yidou était un subordonné que Wang Lin avait pris sous son aile lors de son passage à la Secte des Cadavres. Ne connaissant pas la planète Tian Yun, Wang Lin risquait de s'égarer facilement. C'est pourquoi il avait eu l'idée d'utiliser la promesse de lui offrir un corps de Transformation de l'Âme pour s'assurer de la loyauté de Cao Yidou et l'utiliser comme guide.
+Ce Cao Yidou était un subordonné que Wang Lin avait pris sous son aile lors de son passage à la Secte Shi Yin. Ne connaissant pas la planète Tian Yun, Wang Lin risquait de s'égarer facilement. C'est pourquoi il avait eu l'idée d'utiliser la promesse de lui offrir un corps de Transformation de l'Âme pour s'assurer de la loyauté de Cao Yidou et l'utiliser comme guide.
 
-Wang Lin demanda promptement: « Cao Yidou, sais-tu comment rejoindre la Secte du Destin Céleste d'ici? »
+Wang Lin demanda promptement: « Cao Yidou, sais-tu comment rejoindre la Secte Tian Yun d'ici? »
 
-Cao Yidou prit un air pensif avant de pointer l'ouest et de répondre: « À environ 150 000 kilomètres vers l'ouest devrait se trouver la Secte du Destin Céleste. »
+Cao Yidou prit un air pensif avant de pointer l'ouest et de répondre: « À environ 150 000 kilomètres vers l'ouest devrait se trouver la Secte Tian Yun. »
 
 Wang Lin leva la tête vers la direction indiquée, rangea Cao Yidou et chargea vers l'ouest avec acharnement.
 
@@ -90,9 +90,9 @@ En volant, son regard devenait de plus en plus froid. Depuis son arrivée, les m
 
 Si sa culture n'avait pas été déjà au seuil d'une percée et s'il n'avait pas possédé suffisamment de jades célestes, il serait resté piégé ici pendant des années. Le jour où il aurait été libéré, sa vie ne dépendrait plus de lui.
 
-« Ma règle a toujours été: "Si l'on ne me cherche pas, je ne cherche personne". Cependant, s'ils osent me provoquer, alors je les tuerai! » Les yeux de Wang Lin étaient d'une froideur de glace alors qu'il fonçait vers la Secte du Destin Céleste. À un moment donné, son corps trembla légèrement avant qu'il ne se téléporte.
+« Ma règle a toujours été: "Si l'on ne me cherche pas, je ne cherche personne". Cependant, s'ils osent me provoquer, alors je les tuerai! » Les yeux de Wang Lin étaient d'une froideur de glace alors qu'il fonçait vers la Secte Tian Yun. À un moment donné, son corps trembla légèrement avant qu'il ne se téléporte.
 
-Ainsi, Wang Lin se téléportait par intermittence tout au long de son périple. L'après-midi du deuxième jour, il aperçut enfin la Secte du Destin Céleste au loin.
+Ainsi, Wang Lin se téléportait par intermittence tout au long de son périple. L'après-midi du deuxième jour, il aperçut enfin la Secte Tian Yun au loin.
 
 La secte était en pleine effervescence, imprégnée des sons festifs des célébrations. D'innombrables banquets se déroulaient dans les sept divisions, où l'on servait toutes sortes de fruits et de vins célestes.
 

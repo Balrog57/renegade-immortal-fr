@@ -16,7 +16,7 @@ Des murmures de discussion s'élevèrent parmi les spectateurs alors que Wang Li
 
 « Cet homme est d'une arrogance sans nom, et pourtant il n'a pas osé accepter le défi du Général Démon Shi Xiao. Ridicule! »
 
-« En tant qu'étranger sur notre Terre des Esprits Démoniaques, il ferait mieux de ne pas être trop arrogant, faute de quoi la mort sera sa seule issue. On dirait que cet homme ne connaît toujours pas sa place! »
+« En tant qu'étranger sur notre Terre Yao Ling, il ferait mieux de ne pas être trop arrogant, faute de quoi la mort sera sa seule issue. On dirait que cet homme ne connaît toujours pas sa place! »
 
 Tandis que la foule débattait, le Vice-Commandant Xuan, assis dans la zone nord, laissa échapper un léger reniflement. Un homme était assis à ses côtés: un homme d'âge moyen vêtu d'une armure bleue. Son apparence était très ordinaire, mais il dégageait une aura de majesté.
 
@@ -104,7 +104,7 @@ Un silence de mort tomba sur l'assemblée. Tous étaient stupéfaits devant ce s
 
 Il était impensable que l'Empereur Démon lui accorde la précieuse Pilule Démoniaque Céleste; même pour un commandant en chef, il fallait accomplir des exploits incalculables pour en obtenir une. Comment un simple général comme Ao Di aurait-il pu espérer une telle récompense?
 
-Si Ao Di avait perdu après un combat acharné, cela aurait été acceptable, mais cette bataille s'était jouée en un clin d'œil. Cet instant venait de briser leur fierté de peuple de la Terre des Esprits Démoniaques. Il fallait admettre qu'à de très rares exceptions près, un général démon n'avait jamais été réduit à un tel état.
+Si Ao Di avait perdu après un combat acharné, cela aurait été acceptable, mais cette bataille s'était jouée en un clin d'œil. Cet instant venait de briser leur fierté de peuple de la Terre Yao Ling. Il fallait admettre qu'à de très rares exceptions près, un général démon n'avait jamais été réduit à un tel état.
 
 Et être humilié ainsi par un étranger... c'était une première!
 

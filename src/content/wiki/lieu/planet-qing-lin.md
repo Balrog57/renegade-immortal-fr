@@ -9,7 +9,7 @@ sections: ["{\"heading\":\"Présentation\",\"body\":\"La planète Qing Lin est r
 ---
 ## Description
 
-La **Planète Qing Lin** (Planet Qing Lin), également connue sous le nom de *Planète de Cultivation de Wang Lin*, est une planète du système stellaire Allheaven (Allheaven Star System), située dans le Royaume Scellé (Sealed Realm) et faisant partie du Monde des Cavernes de Wang Lin. Elle est remplie de vitalité et abrite une grande population de mortels.
+La **Planète Qing Lin** (Planet Qing Lin), également connue sous le nom de *Planète de Cultivation de Wang Lin*, est une planète du système stellaire Allheaven (Allheaven Star System), située dans le Royaume Scellé (Sealed Realm) et faisant partie du Monde Dong Fu de Wang Lin. Elle est remplie de vitalité et abrite une grande population de mortels.
 
 Wang Lin a choisi cette planète parce qu'elle ressemblait beaucoup à la planète Suzaku. Considérée comme une planète « enfant », elle a pu mûrir plus rapidement grâce au Dao du Rêve (Dream Dao) de Wang Lin, qui a permis à l'âme de la planète d'atteindre l'éveil. Le dirigeant actuel de la planète est Wang Lin, et Xie Qing figure parmi ses membres notables.
 
@@ -20,7 +20,7 @@ Wang Lin a choisi cette planète parce qu'elle ressemblait beaucoup à la planè
 - **Type:** Planète
 - **Statut:** Existant
 - **Système stellaire:** Allheaven Star System
-- **Monde:** Monde des Cavernes de Wang Lin (Wang Lin's Cave World)
+- **Monde:** Monde Dong Fu de Wang Lin (Wang Lin's Cave World)
 - **Royaume:** Sealed Realm
 - **Dirigeant:** Wang Lin
 - **Membre notable:** Xie Qing

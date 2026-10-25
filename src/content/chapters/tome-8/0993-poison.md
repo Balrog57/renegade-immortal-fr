@@ -66,7 +66,7 @@ Sans Situ, il aurait été presque impossible pour Wang Lin de franchir les prem
 
 Sans les Doigts de la Mort, les Doigts Démoniaques et les Doigts des Enfers de Situ, ainsi que ses enseignements sur les sorts et les trésors, Wang Lin n'aurait jamais pu s'imposer sur la planète Tian Yun.
 
-Sans Situ, lorsque Wang Lin fut attaqué par le Démon Dispersé dans la Terre des Esprits Démoniaques, il serait mort sans le Doigt de la Mort...
+Sans Situ, lorsque Wang Lin fut attaqué par le Démon Dispersé dans la Terre Yao Ling, il serait mort sans le Doigt de la Mort...
 
 Et il y avait aussi la perle défiant les cieux! Si Situ Nan avait eu la moindre trace de cupidité, il n'aurait jamais laissé Wang Lin conserver un trésor aussi mystérieux. Si Situ l'avait pris, Wang Lin serait mort, car la perle s'était fondue dans son âme originelle. C'est pour cela que Situ s'était contenté de sourire et de dire:
 

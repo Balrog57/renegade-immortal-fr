@@ -1,6 +1,6 @@
 ---
 n: 199
-title: "La Terre de l'Ancien Dieu (Final)"
+title: "La Terre Gu Shen (Final)"
 book: 3
 bookTitle: Famous in the Sea of Devils
 en: Chapter 199 - Land of the Ancient God (Final)
@@ -96,4 +96,4 @@ Wang Lin était très familier avec la pression exercée par l'illusion de l'Anc
 
 Une fois l'image manifestée, les huit étoiles violettes entre les sourcils de Tu Si se mirent soudain à tourner et projetèrent huit rayons de lumière stellaire qui, en tombant sur la lumière ondoyante, formèrent un immense tourbillon octogonal.
 
-Wang Lin fixa l'image de Tu Si et pensa: « Terre de l'Ancien Dieu, adieu pour toujours! »
+Wang Lin fixa l'image de Tu Si et pensa: « Terre Gu Shen, adieu pour toujours! »

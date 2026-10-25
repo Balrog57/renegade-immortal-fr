@@ -74,7 +74,7 @@ Pourtant, au moment où il allait s'en saisir, un rayon d'énergie d'épée jail
 
 Wang Lin n'était pas étranger à cette énergie; elle appartenait à Ling Tianhou!
 
-« Ce trésor appartient à Chen Long de ma Secte de l'Épée Da Luo! » La voix glaciale résonna tandis que le rayon d'énergie se rapprochait. Si Wang Lin tentait de prendre le trésor, il serait frappé par cette attaque.
+« Ce trésor appartient à Chen Long de ma Secte Da Luo Jian! » La voix glaciale résonna tandis que le rayon d'énergie se rapprochait. Si Wang Lin tentait de prendre le trésor, il serait frappé par cette attaque.
 
 L'expression de Wang Lin resta neutre et il n'hésita pas une seconde à saisir la sculpture en bois à moitié détruite. Ses yeux brillaient d'une lueur mystérieuse alors qu'il ouvrait la bouche pour cracher un objet afin de se protéger.
 

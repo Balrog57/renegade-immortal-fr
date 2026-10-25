@@ -70,7 +70,7 @@ Quant aux crânes formés par le brouillard noir, ils tremblaient comme s'ils fa
 
 Debout devant la faille, Wang Lin observa les crânes frémissants, ses yeux brillant d'une lueur intense.
 
-« Des Diables du Monde des Morts? » Au début de sa vie, il était devenu un dévoreur d'âmes sur le champ de bataille étranger de la planète Suzaku et avait consumé une multitude de Diables. À cet instant, il reconnut l'aura de ces créatures dans ces crânes!
+« Des Diables du Monde Huang Quan? » Au début de sa vie, il était devenu un dévoreur d'âmes sur le champ de bataille étranger de la planète Suzaku et avait consumé une multitude de Diables. À cet instant, il reconnut l'aura de ces créatures dans ces crânes!
 
 Il n'y en avait pas beaucoup ici, mais il y en avait tout de même un nombre non négligeable. Les yeux de Wang Lin s'illuminèrent; il ouvrit la bouche et aspira. Un vortex gigantesque sembla se former devant lui. Les crânes, incapables de résister, s'effondrèrent les uns après les autres, se transformant en un gaz noir qui fut aspiré par Wang Lin.
 

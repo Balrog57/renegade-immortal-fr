@@ -76,7 +76,7 @@ Tout en marchant, il leva sa main droite gigantesque et pointa vers l'endroit en
 
 Cette empreinte n'était pas un outil que les cultivateurs pouvaient utiliser; c'était un attribut propre aux Anciens Dieux qui servait à dissimuler leur identité. À moins qu'un cultivateur extrêmement puissant ne surgisse, il serait impossible pour quiconque de percer son secret.
 
-« Puisque le système stellaire de l'Alliance abrite le Clan des Démons Géants, personne ne pensera que mon corps de trois cents mètres est celui d'un Ancien Dieu! » Ses yeux devinrent glacials. Comparé à un Ancien Dieu adulte, son corps était insignifiant et faible; ainsi, nul ne soupçonnerait sa véritable nature en le voyant.
+« Puisque le système stellaire de l'Alliance abrite le Clan Ju Mo, personne ne pensera que mon corps de trois cents mètres est celui d'un Ancien Dieu! » Ses yeux devinrent glacials. Comparé à un Ancien Dieu adulte, son corps était insignifiant et faible; ainsi, nul ne soupçonnerait sa véritable nature en le voyant.
 
 Sans aucune expression, il se dirigea vers la Planète du Sang. Ayant consulté la carte stellaire donnée par Tian Yunzi par le passé, il savait naturellement où se trouvait la Planète du Sang.
 

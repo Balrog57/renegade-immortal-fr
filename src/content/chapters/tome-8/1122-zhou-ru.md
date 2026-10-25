@@ -28,7 +28,7 @@ L'homme âgé qui avait sorti les perles de jade en avait sept, grosses comme de
 
 Les visages pleurants de sept bébés apparurent sur les perles, puis les perles éclatèrent pour libérer sept âmes infantiles semblables à des nourrissons venant de naître, enveloppées de brume noire. Elles poussèrent des cris stridents en chargeant Wang Lin depuis sept directions différentes.
 
-Le dernier vieillard ne sortit pas un trésor, mais une pierre de jade. Il comptait utiliser le temps que ses pairs lui offraient pour la briser et transmettre l'information dans le Royaume du Vide Brillant.
+Le dernier vieillard ne sortit pas un trésor, mais une pierre de jade. Il comptait utiliser le temps que ses pairs lui offraient pour la briser et transmettre l'information dans le Royaume Kun Xu.
 
 Les trois hommes avaient manifestement l'habitude de coopérer; ils agissaient en parfaite symbiose, sans la moindre hésitation. Si Wang Lin avait été un ordinaire cultivateur du Purificateur du Nirvana, bien qu'il n'eût guère craint les attaques de trois experts au sommet du stade Scruteur du Nirvana, il lui aurait été difficile d'empêcher l'un d'eux de briser sa pierre de jade.
 
@@ -50,7 +50,7 @@ Son regard se posa sur le dernier ancien. Une intention meurtrière fulgurante b
 
 « Celui qui raffine un trésor avec des âmes de bébés ne peut être pardonné! » Le dernier vieillard était celui qui avait projeté les sept perles de jade, et ses yeux étaient pétris de terreur. Wang Lin était bien plus puissant que ce qu'il imaginait d'un cultivateur du Purificateur du Nirvana. S'ils avaient su qu'il était aussi redoutable, ils n'auraient jamais osé faire preuve d'une telle arrogance. Ils n'avaient pas réalisé qu'ils avaient provoqué un être aussi terrifiant.
 
-Pourtant, une lueur d'espoir le traversa: bien que Wang Lin ait détruit les corps de ses compagnons, il n'avait pas endommagé leurs âmes originelles. Cela signifiait que Wang Lin devait également craindre le Royaume du Vide Brillant. Mais les paroles de ce dernier firent trembler son cœur.
+Pourtant, une lueur d'espoir le traversa: bien que Wang Lin ait détruit les corps de ses compagnons, il n'avait pas endommagé leurs âmes originelles. Cela signifiait que Wang Lin devait également craindre le Royaume Kun Xu. Mais les paroles de ce dernier firent trembler son cœur.
 
 Il regarda impuissant Wang Lin s'approcher, le doigt tendu vers son propre front. Lorsque l'ombre du doigt de Wang Lin obscurcit sa vue, une douleur atroce envahit son corps. Des flammes blanches jaillirent du bout du doigt de Wang Lin et enveloppèrent le vieillard.
 
@@ -64,11 +64,11 @@ L'expression de Wang Lin était sereine lorsqu'il atteignit le réseau de transf
 
 Un instant plus tard, la lueur disparut et la formation fut vide.
 
-Le Royaume du Vide Brillant se trouvait au sein d'une faille spatiale aménagée. Chants d'oiseaux et fleurs embaumaient ce lieu, qui était presque semblable au Royaume Céleste. La seule différence résidait dans l'absence d'énergie spirituelle céleste; à la place, il était saturé d'une riche énergie originelle.
+Le Royaume Kun Xu se trouvait au sein d'une faille spatiale aménagée. Chants d'oiseaux et fleurs embaumaient ce lieu, qui était presque semblable au Royaume Céleste. La seule différence résidait dans l'absence d'énergie spirituelle céleste; à la place, il était saturé d'une riche énergie originelle.
 
 Les montagnes perçaient les cieux et les rivières coulaient avec grâce. De petites bêtes gambadaient tandis que des grues fendaient le ciel. La terre respirait l'harmonie.
 
-Une immense formation se dressait dans la partie nord du Royaume du Vide Brillant. C'était l'entrée du domaine, et à cet instant précis, un garçon était assis devant le réseau de transfert.
+Une immense formation se dressait dans la partie nord du Royaume Kun Xu. C'était l'entrée du domaine, et à cet instant précis, un garçon était assis devant le réseau de transfert.
 
 Bien qu'il parût jeune, il dégageait une aura antique. Il était évident que son apparence juvénile n'était que le fruit de sa méthode de culture.
 
@@ -82,11 +82,11 @@ Le garçon, jusque-là d'un naturel paresseux, se figea brusquement. Il se leva 
 
 Ses pupilles se rétractèrent et il lâcha: « Une odeur de sang émane de votre corps! »
 
-Wang Lin avait déjà visité le Royaume du Vide Brillant autrefois, par son esprit. En sortant de la formation, il regarda le garçon et joignit calmement les mains. « Je vous prie, messire, de transmettre ce message: je suis Wang Lin, et je viens au nom de la Secte Divine de l'Oiseau Vermillon pour livrer une pierre de jade! »
+Wang Lin avait déjà visité le Royaume Kun Xu autrefois, par son esprit. En sortant de la formation, il regarda le garçon et joignit calmement les mains. « Je vous prie, messire, de transmettre ce message: je suis Wang Lin, et je viens au nom de la Secte Divine de l'Oiseau Vermillon pour livrer une pierre de jade! »
 
-Le garçon fronça les sourcils, le regard froid: « Vous avez du cran. Cela faisait longtemps que personne n'avait osé s'introduire dans le Royaume du Vide Brillant. »
+Le garçon fronça les sourcils, le regard froid: « Vous avez du cran. Cela faisait longtemps que personne n'avait osé s'introduire dans le Royaume Kun Xu. »
 
-En entendant ces mots, Wang Lin soupira et ignora simplement l'individu. Son sens divin se propagea à travers tout le Royaume du Vide Brillant pour diffuser son message:
+En entendant ces mots, Wang Lin soupira et ignora simplement l'individu. Son sens divin se propagea à travers tout le Royaume Kun Xu pour diffuser son message:
 
 « Junior Wang Lin est venu livrer une pierre de jade de la part de l'ancien Empereur Divin de l'Oiseau Vermillon! »
 
@@ -94,13 +94,13 @@ Les yeux du garçon s'illuminèrent, mais il n'attaqua pas. Il continua d'observ
 
 Il y en avait assez pour tuer Wang Lin!
 
-Si Wang Lin avait osé venir dans le Royaume du Vide Brillant, c'était par confiance. L'ancien Empereur Divin de l'Oiseau Vermillon ne lui ferait aucun mal. Puisqu'il était chargé de livrer cette pierre, celle-ci ne devait naturellement représenter aucun danger pour lui.
+Si Wang Lin avait osé venir dans le Royaume Kun Xu, c'était par confiance. L'ancien Empereur Divin de l'Oiseau Vermillon ne lui ferait aucun mal. Puisqu'il était chargé de livrer cette pierre, celle-ci ne devait naturellement représenter aucun danger pour lui.
 
 Wang Lin ne chercha pas à découvrir ce que contenait la pierre. Il savait qu'il valait mieux ignorer certaines choses.
 
 Outre l'ancien Empereur Divin, la rune que Qing Lin lui avait confiée lui permettait de ne point s'inquiéter. Il lui suffirait d'y penser pour activer cette rune et retourner dans le nouveau Royaume Céleste de la Pluie!
 
-Zhou Ru était assise au sommet d'une montagne, cultivant dans le Royaume du Vide Brillant. Petit Blanc était à ses côtés, contemplant paresseusement les nuages, sans que l'on puisse deviner ses pensées.
+Zhou Ru était assise au sommet d'une montagne, cultivant dans le Royaume Kun Xu. Petit Blanc était à ses côtés, contemplant paresseusement les nuages, sans que l'on puisse deviner ses pensées.
 
 Soudain, le sens divin de Wang Lin atteignit les lieux. Le corps de Zhou Ru trembla instantanément et elle ouvrit brusquement les yeux.
 
@@ -116,8 +116,8 @@ Après le départ de Zhou Ru, une femme d'une beauté exceptionnelle apparut du 
 
 Wang Lin attendit simplement après avoir envoyé son sens divin. Peu de temps après, plusieurs rayons de lumière convergèrent vers lui et se transformèrent en cultivateurs. Leurs niveaux de culture variaient, le plus faible étant au début du stade Purificateur du Nirvana. Ils dévisagèrent Wang Lin avec froideur, ne lui accordant aucune importance.
 
-L'homme qui s'était rendu en Terre des Esprits Démoniaques avec Mu Bingmei n'apparut pas. C'est un homme d'âge moyen, vêtu de robes pourpres et dorées, qui surgit du vide devant Wang Lin.
+L'homme qui s'était rendu en Terre Yao Ling avec Mu Bingmei n'apparut pas. C'est un homme d'âge moyen, vêtu de robes pourpres et dorées, qui surgit du vide devant Wang Lin.
 
 Cet homme exhalait une grande majesté. Dès son apparition, les cultivateurs environnants firent preuve d'un immense respect.
 
-Le regard de l'homme balaya Wang Lin tandis qu'il déclarait d'une voix lente: « Il est rare que l'Empereur Divin de l'Oiseau Vermillon vienne rendre visite au Royaume du Vide Brillant! »
+Le regard de l'homme balaya Wang Lin tandis qu'il déclarait d'une voix lente: « Il est rare que l'Empereur Divin de l'Oiseau Vermillon vienne rendre visite au Royaume Kun Xu! »

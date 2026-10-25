@@ -26,7 +26,7 @@ Le nombre de techniques était plus restreint ici. Elles étaient dispersées da
 
 Wang Lin déploya son Sens Divin et repéra les quatre caractères: « Méthode de fabrication du Drapeau de l'Âme ». Il saisit le jade pour vérifier le contenu, puis fronça les sourcils.
 
-Ce jade contenait bel et bien la méthode de création d'un drapeau de l'âme, mais elle était identique à celle pratiquée par tout le monde. Si la Secte de l'Affinement de l'Âme utilisait réellement cette technique, elle ne serait jamais devenue aussi célèbre qu'elle l'est aujourd'hui.
+Ce jade contenait bel et bien la méthode de création d'un drapeau de l'âme, mais elle était identique à celle pratiquée par tout le monde. Si la Secte Lian Hun utilisait réellement cette technique, elle ne serait jamais devenue aussi célèbre qu'elle l'est aujourd'hui.
 
 Après avoir soigneusement fouillé le deuxième étage sans trouver ce qu'il cherchait, Wang Lin tourna son regard vers le troisième étage. Sans commettre d'imprudence, il retourna vers le vieillard décharné. Il joignit les mains et demanda: « Senior, pourquoi ne puis-je pas monter au troisième étage? »
 
@@ -38,11 +38,11 @@ Le vieil homme fronça les sourcils. Il grommela quelque chose avant de dire ave
 
 Wang Lin regarda dans la direction indiquée par le vieillard. Il y avait effectivement une grotte à cet endroit.
 
-« Il n'y a aucune règle au sein de la Secte de l'Affinement de l'Âme; si tu as la capacité de tuer, tue; si tu veux quelque chose, vole-le; et si une femme te plaît, prends-la! »
+« Il n'y a aucune règle au sein de la Secte Lian Hun; si tu as la capacité de tuer, tue; si tu veux quelque chose, vole-le; et si une femme te plaît, prends-la! »
 
 « Si tu n'as aucun talent, alors cherche d'autres êtres sans talent pour cultiver ensemble afin de te protéger. »
 
-« Aucune règle. Chacun fait ce qu'il veut... » Wang Lin esquissa un mince sourire. Cette Secte de l'Affinement de l'Âme était en effet fascinante. Il agita la main et une main invisible et gigantesque s'abattit sur le vieillard pour le saisir.
+« Aucune règle. Chacun fait ce qu'il veut... » Wang Lin esquissa un mince sourire. Cette Secte Lian Hun était en effet fascinante. Il agita la main et une main invisible et gigantesque s'abattit sur le vieillard pour le saisir.
 
 Le vieil homme fut surpris, mais il éclata de rire. L'agacement qui marquait son visage disparut, remplacé par une intention de combat. « Bien! Bien! Au cours des cent dernières années, tu es la cinquième personne à m'attaquer. Très bien, je vais jouer avec toi! »
 
@@ -106,7 +106,7 @@ La femme en robe vert jade répondit promptement: « Vous devez être Qing Mu, l
 
 Les yeux de Wang Lin s'illuminèrent. Il rangea le jade et contempla la grotte. Cet endroit ne répondait pas à ses exigences. Il déploya son Sens Divin et s'envola vers le bas de la montagne.
 
-Les deux femmes furent surprises. Elles échangèrent un regard avant de suivre précipitamment Wang Lin. Il était extrêmement dangereux de rester seul dans la Secte de l'Affinement de l'Âme. À moins d'une puissance de culture exceptionnelle, il fallait compter sur autrui; c'est pourquoi les cultivateurs formaient souvent des groupes.
+Les deux femmes furent surprises. Elles échangèrent un regard avant de suivre précipitamment Wang Lin. Il était extrêmement dangereux de rester seul dans la Secte Lian Hun. À moins d'une puissance de culture exceptionnelle, il fallait compter sur autrui; c'est pourquoi les cultivateurs formaient souvent des groupes.
 
 Une fois la défaite consommée, on devait tout céder. Une fois tout remis à l'adversaire, celui-ci n'avait plus le droit de tuer, sous peine d'intervention des Anciens.
 

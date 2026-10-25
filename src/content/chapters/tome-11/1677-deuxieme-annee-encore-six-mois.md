@@ -72,7 +72,7 @@ Hongdie était partie!
 
 Le dernier jour de la deuxième année, Mu Bingmei arriva aux côtés de Wang Lin. Elle ne dit mot et s'assit simplement, calme. Elle fit un signe de tête à Li Qianmei avant de fermer les yeux.
 
-Li Qianmei connaissait Mu Bingmei. Les deux s'étaient rencontrées dans la Mer des Nuages et connaissaient l'identité de l'autre.
+Li Qianmei connaissait Mu Bingmei. Les deux s'étaient rencontrées dans la Mer Yun et connaissaient l'identité de l'autre.
 
 Wang Lin ne donna pas de réponse immédiate au Maître Dao Bleu Rêve. Il réfléchissait également aux paroles de ce dernier.
 

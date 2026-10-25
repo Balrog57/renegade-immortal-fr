@@ -50,13 +50,13 @@ Dès son apparition, les soldats démons environnants s'agenouillèrent et s'éc
 
 Ses yeux étaient brillants comme ceux d'un phénix et trahissaient une pointe d'intention meurtrière; elle était vêtue de blanc. Ses cheveux noirs flottaient dans son dos tandis qu'elle fixait froidement Wang Lin, fronçant les sourcils: « Wang Lin! »
 
-Les yeux de Wang Lin s'illuminèrent légèrement alors qu'il l'étudiait avec attention. Il avait déjà aperçu cette femme aux abords de la Mer des Esprits Démoniaques de l'Est. Elle occupait un espace qui lui était propre, ce qui la rendait très remarquable. C'était pour cela que Wang Lin l'avait remarquée. Cette femme se trouvait au stade avancé de la Transformation de l'Âme et, bien qu'elle ne fût pas au sommet, elle n'en était pas loin.
+Les yeux de Wang Lin s'illuminèrent légèrement alors qu'il l'étudiait avec attention. Il avait déjà aperçu cette femme aux abords de la Mer Yao Ling. Elle occupait un espace qui lui était propre, ce qui la rendait très remarquable. C'était pour cela que Wang Lin l'avait remarquée. Cette femme se trouvait au stade avancé de la Transformation de l'Âme et, bien qu'elle ne fût pas au sommet, elle n'en était pas loin.
 
 « Il semble que beaucoup de gens sur la planète Tian Yun connaissent mon nom! » Wang Lin sourit et fit un pas en avant.
 
 D'un seul pas, une aura féroce surgit soudainement derrière lui et se propagea avec frénésie.
 
-La femme en robe blanche regarda froidement Wang Lin, puis elle fronça les sourcils, recula d'un pas et déclara: « Ainsi, tu te trouves aussi dans le Pays du Démon Céleste. Tu es sans doute venu à la Cité de l'Ancien Démon pour obtenir des mérites militaires toi aussi; une bataille entre nous n'aurait donc aucun sens! »
+La femme en robe blanche regarda froidement Wang Lin, puis elle fronça les sourcils, recula d'un pas et déclara: « Ainsi, tu te trouves aussi dans le Pays Tian Yao. Tu es sans doute venu à la Cité Gu Yao pour obtenir des mérites militaires toi aussi; une bataille entre nous n'aurait donc aucun sens! »
 
 Tout en parlant, elle se détourna et pénétra dans la ville.
 
@@ -66,7 +66,7 @@ La vitesse de la femme en robe blanche n'était pas très élevée. Elle ne se d
 
 Des soldats démons gardaient le dispositif. En voyant la femme, ils s'agenouillèrent tous avec une grande déférence.
 
-À l'intérieur du réseau de transfert, la femme se retourna et lança froidement à Wang Lin: « Suis-moi pour rencontrer le général de l'aile gauche. Dans la Cité de l'Ancien Démon, seul un général démon peut t'octroyer une fonction! »
+À l'intérieur du réseau de transfert, la femme se retourna et lança froidement à Wang Lin: « Suis-moi pour rencontrer le général de l'aile gauche. Dans la Cité Gu Yao, seul un général démon peut t'octroyer une fonction! »
 
 Wang Lin acquiesça et dit à Treize et Hu Pao: « Attendez-moi à l'intérieur de la ville. » Sur ces mots, il entra dans le réseau de transfert.
 
@@ -106,7 +106,7 @@ Il fixa alors l'homme suspendu dans les airs. Ce dernier rétracta son poing dro
 
 Wang Lin resta calme et répondit: « Je ne veux pas d'une position interne! »
 
-Le visage de l'homme se fit sérieux avant qu'il ne sourie: « Ta compréhension de la Terre des Esprits Démoniaques dépasse mes attentes. Tu connais la distinction entre les fonctions internes et externes. »
+Le visage de l'homme se fit sérieux avant qu'il ne sourie: « Ta compréhension de la Terre Yao Ling dépasse mes attentes. Tu connais la distinction entre les fonctions internes et externes. »
 
 Dans les souvenirs de Lou Yun, son ancêtre lui avait expliqué que les Anciens occupaient des positions internes sans troupes sous leur commandement. Seuls ceux occupant des positions externes, tels que les commandants, disposaient de troupes à leurs ordres!
 

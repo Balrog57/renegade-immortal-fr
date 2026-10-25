@@ -68,9 +68,9 @@ Bossu Meng pensa amèrement: « Les cieux veulent-ils ma mort? J'ai cultivé en 
 
 Parmi eux, beaucoup possédaient un niveau de culture supérieur au leur, et pourtant, tous avaient péri. Les quatre survivants n'avaient tenu que par une chance insolente.
 
-Après mille ans de préparation, il avait réussi à passer du stade avancé de l'Âme Naissante au stade intermédiaire de la Formation de l'Âme. S'il avait progressé si vite, c'était grâce à la consommation d'un des grands trésors du Clan des Démons Géants: le Cœur du Démon Ancestral!
+Après mille ans de préparation, il avait réussi à passer du stade avancé de l'Âme Naissante au stade intermédiaire de la Formation de l'Âme. S'il avait progressé si vite, c'était grâce à la consommation d'un des grands trésors du Clan Ju Mo: le Cœur du Démon Ancestral!
 
-C'était aussi la raison pour laquelle il était traqué par le Clan des Démons Géants!
+C'était aussi la raison pour laquelle il était traqué par le Clan Ju Mo!
 
 Bossu Meng afficha une expression de dépit. Il serra les dents, son regard tombant sur le crapaud. Ce crapaud, Li Tian, l'accompagnait depuis des milliers d'années sans jamais l'abandonner. Il l'avait vu grandir, passant du rang de bête spirituelle de faible qualité au sommet de la haute qualité. Il appartenait déjà au rang de pseudo-bête désolée. Avec encore quelques milliers d'années et l'aide de quelques remèdes spirituels, il pourrait très probablement devenir une véritable bête désolée.
 

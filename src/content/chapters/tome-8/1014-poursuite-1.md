@@ -58,7 +58,7 @@ En contemplant le désert de sable noir et lisse, Wang Lin poussa un soupir de s
 
 Initialement, il pensait être en sécurité face à quiconque n'était pas un monstre au stade avancé du Purificateur du Nirvana ou du Briseur du Nirvana, surtout compte tenu de l'immense puissance de ce corps de Dieu Ancien.
 
-Pourtant, à cet instant, Wang Lin ressentit le danger. En regardant ce désert de sable noir, il eut l'impression d'être revenu en Terre de l'Ancien Dieu. Il devait faire preuve d'une prudence extrême, car la moindre erreur pourrait lui coûter la vie.
+Pourtant, à cet instant, Wang Lin ressentit le danger. En regardant ce désert de sable noir, il eut l'impression d'être revenu en Terre Gu Shen. Il devait faire preuve d'une prudence extrême, car la moindre erreur pourrait lui coûter la vie.
 
 « Récemment, j'ai eu la vie trop facile. L'augmentation de ma culture et l'intégration de mon corps originel m'ont rendu moins vigilant qu'auparavant... » Wang Lin songea silencieusement. Il serra le poing, le regard empreint de méfiance.
 

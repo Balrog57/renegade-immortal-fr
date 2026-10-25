@@ -28,7 +28,7 @@ Cependant, cet homme n'avait même pas bougé. Il flottait aux côtés du tambou
 
 Ils n'ignoraient pas la silhouette de Wang Lin. Il y a quelques jours, au premier tour, il avait été le premier à blesser gravement un général démon, gravant ainsi son image dans l'esprit de tous.
 
-Cependant, ces ministres, ces dames et divers fonctionnaires de la Cité du Démon Céleste ne pensaient pas que Wang Lin était aussi puissant. À leurs yeux, la raison principale pour laquelle Ao Di avait perdu et avait été gravement blessé était qu'Ao Di était trop faible!
+Cependant, ces ministres, ces dames et divers fonctionnaires de la Cité Tian Yao ne pensaient pas que Wang Lin était aussi puissant. À leurs yeux, la raison principale pour laquelle Ao Di avait perdu et avait été gravement blessé était qu'Ao Di était trop faible!
 
 Si ce Wang Lin avait rencontré des gens comme Mo Fei ou Shi Xiao, il aurait sans aucun doute perdu! C'était une certitude partagée par tous.
 
@@ -56,7 +56,7 @@ Parmi les généraux démons, les yeux de Shi Xiao trahirent la surprise tandis 
 
 Shi Xiao laissa échapper un reniflement froid et ne répondit rien, mais son expression s'assombrit.
 
-Parmi les généraux démons, seul Mo Fei ne regardait pas Wang Lin. Au lieu de cela, il contemplait silencieusement l'horizon lointain. Le cultivateur de la Secte de l'Épée Da Luo fixait Wang Lin avec une intention meurtrière non dissimulée.
+Parmi les généraux démons, seul Mo Fei ne regardait pas Wang Lin. Au lieu de cela, il contemplait silencieusement l'horizon lointain. Le cultivateur de la Secte Da Luo Jian fixait Wang Lin avec une intention meurtrière non dissimulée.
 
 Au milieu de tout ce tumulte, l'expression de l'homme en armure dorée était extrêmement disgracieuse. Il regarda le tambour démoniaque et serra les poings!
 

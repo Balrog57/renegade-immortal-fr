@@ -34,7 +34,7 @@ Le vieil homme apparut mystérieusement derrière Wang Lin et entra dans la bout
 
 Wang Lin n'était nullement étonné par l'attitude du vieil homme. Il s'assit et continua de boire son vin tout en l'observant.
 
-« Dragon, Araignée des Flammes, Bête du Bruit Céleste, Zhong Gu, Bête à Huit Griffes, Ti Lun... tss, tss. Pas mal, jeune homme. Tu as réussi à ramener la plupart des bêtes de la Mer des Démons ici. » Plus le vieil homme regardait, plus son étonnement grandissait. Finalement, son regard se posa sur une boîte en bois dans un coin de la pièce. D'un geste de la main, il fit jaillir l'une après l'autre toutes les sculptures contenues dans la boîte.
+« Dragon, Araignée des Flammes, Bête du Bruit Céleste, Zhong Gu, Bête à Huit Griffes, Ti Lun... tss, tss. Pas mal, jeune homme. Tu as réussi à ramener la plupart des bêtes de la Mer Xiu Mo ici. » Plus le vieil homme regardait, plus son étonnement grandissait. Finalement, son regard se posa sur une boîte en bois dans un coin de la pièce. D'un geste de la main, il fit jaillir l'une après l'autre toutes les sculptures contenues dans la boîte.
 
 Ces sculptures étaient toutes des œuvres inachevées.
 
@@ -60,7 +60,7 @@ Cette aura de rage se propagea dans les environs et l'énergie spirituelle de Wa
 
 Sous ce souffle de rage, une trace de terreur apparut dans les yeux de Wang Lin. L'énergie spirituelle à l'intérieur de son corps ne lui obéissait plus. Il eut même le sentiment que sa propre Âme Naissante était en train d'être assimilée par cette fureur. À ce moment précis, il eut l'impression que ses 400 ans de culture acharnée n'étaient devenus qu'un outil pour permettre au vieil homme de l'attaquer.
 
-« C'est mon Domaine de la Frénésie. J'ai utilisé ce domaine autrefois pour atteindre le stade de la Formation de l'Âme. Sous l'influence de ce domaine, toute énergie spirituelle est assimilée et contrôlée par moi. » Une pointe de folie perçait dans la voix du vieil homme. Après un bref regard vers Wang Lin, le domaine disparut, comme s'il n'avait jamais existé.
+« C'est mon Domaine Dian Kuang. J'ai utilisé ce domaine autrefois pour atteindre le stade de la Formation de l'Âme. Sous l'influence de ce domaine, toute énergie spirituelle est assimilée et contrôlée par moi. » Une pointe de folie perçait dans la voix du vieil homme. Après un bref regard vers Wang Lin, le domaine disparut, comme s'il n'avait jamais existé.
 
 En quelques respirations seulement, Wang Lin fut couvert de sueur froide. Ses mains tremblaient encore lorsqu'il saisit la cruche pour prendre une grande gorgée de vin. Il fallut un long moment avant que l'énergie spirituelle dans son corps ne se stabilise.
 

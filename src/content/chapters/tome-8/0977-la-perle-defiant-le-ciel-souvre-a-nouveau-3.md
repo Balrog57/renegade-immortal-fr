@@ -90,7 +90,7 @@ Wang Lin prit une profonde inspiration et le choc qui habitait son regard s'apai
 
 À cet instant, la fissure sur la porte défiant le ciel se referma lentement. Puis elle devint illusoire et disparut devant lui.
 
-Au sein de la Secte de l'Épée Da Luo, Wang Lin ouvrit lentement les yeux et observa la réalité qui l'entourait. Après un long moment, il laissa échapper un soupir et se redressa.
+Au sein de la Secte Da Luo Jian, Wang Lin ouvrit lentement les yeux et observa la réalité qui l'entourait. Après un long moment, il laissa échapper un soupir et se redressa.
 
 Dès qu'il se leva, une aura extrêmement puissante explosa de son corps. Cette aura était d'une force prodigieuse et avait atteint le sommet du stade intermédiaire du Scruteur du Nirvana!
 

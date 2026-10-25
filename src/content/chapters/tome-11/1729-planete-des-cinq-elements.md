@@ -30,7 +30,7 @@ Cette planète était la Planète des Cinq Éléments!
 
 Il n'existait qu'une seule secte sur la Planète des Cinq Éléments: la Secte Gui Yi! Le nom de la secte suggérait l'idée de fusionner les cinq éléments en un seul.
 
-Dans le Vide Brillant, la Planète des Cinq Éléments était une anomalie. Bien qu'elle fût située dans ce système stellaire, elle était difficile à débusquer. Sans les coordonnées exactes de l'Alliance de la Culture, il était presque impossible de la localiser. Même en utilisant son Sens Divin, on n'y percevait que le vide, tout comme pour la Bête des Limbes.
+Dans le Vide Brillant, la Planète des Cinq Éléments était une anomalie. Bien qu'elle fût située dans ce système stellaire, elle était difficile à débusquer. Sans les coordonnées exactes de l'Alliance Xiu Zhen, il était presque impossible de la localiser. Même en utilisant son Sens Divin, on n'y percevait que le vide, tout comme pour la Bête des Limbes.
 
 C'est grâce à cela que la planète avait échappé aux deux guerres. Cependant, l'imprévu survient toujours. Lors de la guerre entre les Royaumes Intérieur et Extérieur, un groupe de plusieurs centaines de cultivateurs du Royaume Extérieur pénétra accidentellement sur la planète. Ils n'en ressortirent jamais.
 

@@ -20,7 +20,7 @@ Wang Lin fixait le gigantesque Ancien Dieu devant lui. À l'instant où celui-ci
 
 Comparés à l'Ancien Dieu, ces cultivateurs n'étaient que des fourmis.
 
-« Je suis l'Ancien Dieu Tuo Sen! » Une voix impérieuse résonna, faisant craquer l'espace environnant. Les huit rois de la Secte des Cadavres pâlirent et tentèrent de battre en retraite, mais toute tentative de fuite était dérisoire face à l'immensité de l'Ancien Dieu.
+« Je suis l'Ancien Dieu Tuo Sen! » Une voix impérieuse résonna, faisant craquer l'espace environnant. Les huit rois de la Secte Shi Yin pâlirent et tentèrent de battre en retraite, mais toute tentative de fuite était dérisoire face à l'immensité de l'Ancien Dieu.
 
 « Ceci... ceci est un dieu... » L'expression de Maître Yan Leizi devint livide alors qu'il contemplait le corps inimaginablement colossal de la divinité. Même avec son niveau de culture, il ne ressentait qu'un profond sentiment d'impuissance.
 

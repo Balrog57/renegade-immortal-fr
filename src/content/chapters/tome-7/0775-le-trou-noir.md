@@ -8,7 +8,7 @@ slug: le-trou-noir
 ---
 L'expression de Wang Lin était neutre alors qu'il contemplait la tablette brisée. Il fit un bond en avant et se tint devant l'artefact.
 
-Li Yuan le suivit de près et examina attentivement la tablette avant de porter son regard sur les ruines. Puis, il sourit: « Frère Xu, si je ne m'abuse, ce Palais d'Accueil Céleste était autrefois, avant l'effondrement du Royaume Céleste du Tonnerre, un lieu d'échange pour les êtres célestes. »
+Li Yuan le suivit de près et examina attentivement la tablette avant de porter son regard sur les ruines. Puis, il sourit: « Frère Xu, si je ne m'abuse, ce Palais Yin Xian était autrefois, avant l'effondrement du Royaume Céleste du Tonnerre, un lieu d'échange pour les êtres célestes. »
 
 Wang Lin hocha la tête et s'avança calmement vers les décombres. En chemin, il aperçut les vestiges de nombreux bâtiments. Ce palais était immense; il s'étendait sur une surface presque équivalente à celle d'une ville mortelle.
 

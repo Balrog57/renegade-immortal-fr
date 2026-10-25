@@ -56,9 +56,9 @@ Mais ils étaient bien trop nombreux pour quelqu'un de son niveau de culture act
 
 S'ajoutant à cela, des centaines de millions de fragments d'âme plus faibles s'approchaient. Après avoir pesé le pour et le contre, il n'avait aucune intention de combattre et s'enfuit rapidement.
 
-Il n'aurait jamais imaginé que le gamin qu'il aurait pu facilement tuer il y a moins d'un siècle ait déjà atteint le stade de la Transformation de l'Âme et possède cet Étendard des Mille Millions d'Âmes que le Clan des Immortels Délaissés redoutait tant.
+Il n'aurait jamais imaginé que le gamin qu'il aurait pu facilement tuer il y a moins d'un siècle ait déjà atteint le stade de la Transformation de l'Âme et possède cet Étendard des Mille Millions d'Âmes que le Clan Xian Yi redoutait tant.
 
-Le vieil homme pouvait même sentir qu'une grande partie des fragments d'âme portait l'aura de son propre Clan des Immortels Délaissés. Ils devaient être les membres de son clan capturés et raffinés lors de la guerre passée.
+Le vieil homme pouvait même sentir qu'une grande partie des fragments d'âme portait l'aura de son propre Clan Xian Yi. Ils devaient être les membres de son clan capturés et raffinés lors de la guerre passée.
 
 Au moment où le vieillard tentait de s'échapper, la femme qui poursuivait Wang Lin arriva. En voyant la scène dans la gorge, ses yeux s'illuminèrent. Elle se transforma en vapeur et se déplaça silencieusement vers l'homme.
 
@@ -94,21 +94,21 @@ Wang Lin attendait ce moment, car ce n'est qu'en divisant son corps en gouttelet
 
 Cependant, au moment même où Wang Lin et les six âmes primaires passaient à l'action, toute la gorge trembla. Ce séisme émanait du sol même.
 
-Non seulement ici, mais tout le Tombeau de Suzaku était en train de vaciller.
+Non seulement ici, mais tout le Tombeau Zhu Que était en train de vaciller.
 
 Alors que les secousses s'intensifiaient, des bruits de déchirure retentirent dans le ciel, comme si d'immenses mains déchiraient la voûte céleste.
 
 D'innombrables failles spatiales apparurent dans le ciel. Le vent glacial qui s'en échappait pouvait geler n'importe quel être. Ces failles n'étaient pas comme celles de l'extérieur, où l'on peut entrer en toute sécurité si l'on possède un certain niveau de culture.
 
-Ici, c'était différent. Ces failles spatiales n'étaient pas réelles; elles n'en avaient que l'apparence. Dans le Tombeau de Suzaku, il s'agissait de fissures dimensionnelles générées par la puissance spéciale du Cristal de la Planète de Culture.
+Ici, c'était différent. Ces failles spatiales n'étaient pas réelles; elles n'en avaient que l'apparence. Dans le Tombeau Zhu Que, il s'agissait de fissures dimensionnelles générées par la puissance spéciale du Cristal de la Planète de Culture.
 
 Même un cultivateur au stade de la Transformation de l'Âme qui y pénétrait verrait son âme instantanément anéantie.
 
 Alors que le Cœur de la Planète de Culture continuait de se briser, l'effondrement du Cristal de la Planète de Culture commença enfin.
 
-La terre du Tombeau de Suzaku se fissura et de nombreux cultivateurs qui s'y trouvaient périrent sous cette catastrophe naturelle. Même de nombreuses formes de vie, face à ce désastre, n'eurent d'autre issue que la mort.
+La terre du Tombeau Zhu Que se fissura et de nombreux cultivateurs qui s'y trouvaient périrent sous cette catastrophe naturelle. Même de nombreuses formes de vie, face à ce désastre, n'eurent d'autre issue que la mort.
 
-Tout le Tombeau de Suzaku fut enveloppé d'une aura de mort.
+Tout le Tombeau Zhu Que fut enveloppé d'une aura de mort.
 
 La gorge où se trouvait Wang Lin ne faisait pas exception. Le sol vola en éclats, réduit au néant, et une multitude de fissures dimensionnelles apparurent pour tout dévorer.
 

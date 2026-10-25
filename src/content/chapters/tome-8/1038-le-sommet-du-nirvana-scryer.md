@@ -12,13 +12,13 @@ Les Quatre Grandes Sectes Divines s'étaient évanouies depuis bien trop longtem
 
 Seuls quelques puissants cultivateurs conservaient encore un respect pour les Quatre Grandes Sectes dans leurs mémoires. Ils en frémissaient du plus profond de leur cœur dès qu'ils entendaient leur nom.
 
-Les Quatre Grandes Sectes étaient encore plus puissantes et mystérieuses que l'actuelle Alliance de Culture. Même le Royaume du Vide Brillant redoutait les Quatre Grandes Sectes.
+Les Quatre Grandes Sectes étaient encore plus puissantes et mystérieuses que l'actuelle Alliance Xiu Zhen. Même le Royaume Kun Xu redoutait les Quatre Grandes Sectes.
 
-En conséquence, ils avaient formé une alliance avec l'Alliance de Culture. Après de multiples complots, ils parvinrent à mener les Quatre Grandes Sectes vers leur point de faiblesse le plus critique.
+En conséquence, ils avaient formé une alliance avec l'Alliance Xiu Zhen. Après de multiples complots, ils parvinrent à mener les Quatre Grandes Sectes vers leur point de faiblesse le plus critique.
 
 L'Empereur Divin du Dragon Azure, le plus puissant d'entre eux, disparut, et la nouvelle de l'entrée de l'Empereur Divin de l'Oiseau Vermillon — le plus craint de tous — dans son troisième Fléau Céleste fut divulguée. Cela plongea les Quatre Grandes Sectes dans une crise sans précédent!
 
-Néanmoins, les Quatre Grandes Sectes étaient encore assez fortes pour lutter contre l'Alliance de Culture et ne craignaient pas le Royaume du Vide Brillant. Après tout, pour diverses raisons, le Royaume du Vide Brillant ne pouvait intervenir qu'en secret. Même s'ils s'étaient manifestés ouvertement, les Quatre Grandes Sectes auraient pu activer les Quatre Trésors Divins pour mener bataille.
+Néanmoins, les Quatre Grandes Sectes étaient encore assez fortes pour lutter contre l'Alliance Xiu Zhen et ne craignaient pas le Royaume Kun Xu. Après tout, pour diverses raisons, le Royaume Kun Xu ne pouvait intervenir qu'en secret. Même s'ils s'étaient manifestés ouvertement, les Quatre Grandes Sectes auraient pu activer les Quatre Trésors Divins pour mener bataille.
 
 Cependant, au moment le plus crucial de l'affrontement entre les Quatre Grandes Sectes et l'Alliance, un événement cataclysmique se produisit, causant finalement le déclin définitif des Quatre Grandes Sectes!
 
@@ -30,21 +30,21 @@ Une telle chose était absolument inconcevable pour les Quatre Grandes Sectes, q
 
 Jusqu'à ce jour, personne n'a su pourquoi l'Empereur Divin de la Tortue Noire, l'un des quatre empereurs divins, avait trahi les Quatre Grandes Sectes. Tout cela demeure un mystère non résolu.
 
-La trahison de l'Empereur Divin de la Tortue Noire renforça l'Alliance de Culture. Cette bataille ébranla tout le système stellaire et laissa des cadavres ensanglantés partout sur son passage.
+La trahison de l'Empereur Divin de la Tortue Noire renforça l'Alliance Xiu Zhen. Cette bataille ébranla tout le système stellaire et laissa des cadavres ensanglantés partout sur son passage.
 
-Pourtant, l'Alliance de Culture sous-estima encore les Quatre Grandes Sectes. Suite à la trahison, l'Empereur Divin de l'Oiseau Vermillon risqua d'échouer lors de son troisième Fléau Céleste et inonda les étoiles d'une mer de flammes. Il se divisa ensuite en dix avatars et lança une contre-attaque effrénée.
+Pourtant, l'Alliance Xiu Zhen sous-estima encore les Quatre Grandes Sectes. Suite à la trahison, l'Empereur Divin de l'Oiseau Vermillon risqua d'échouer lors de son troisième Fléau Céleste et inonda les étoiles d'une mer de flammes. Il se divisa ensuite en dix avatars et lança une contre-attaque effrénée.
 
 Cette bataille fut une tragédie. Les rares cultivateurs qui survécurent frémissaient à chaque fois qu'ils s'en remémoraient.
 
-En fin de compte, les Quatre Grandes Sectes furent vaincues. Le Royaume du Vide Brillant rompit la promesse faite il y a des millénaires de ne pas s'impliquer dans le conflit et rejoignit ouvertement le combat. Leur intention initiale était d'anéantir totalement les Quatre Grandes Sectes.
+En fin de compte, les Quatre Grandes Sectes furent vaincues. Le Royaume Kun Xu rompit la promesse faite il y a des millénaires de ne pas s'impliquer dans le conflit et rejoignit ouvertement le combat. Leur intention initiale était d'anéantir totalement les Quatre Grandes Sectes.
 
 Cependant, même eux sous-estimèrent les Quatre Grandes Sectes. L'Empereur Divin de l'Oiseau Vermillon perdit huit de ses avatars et son corps original faillit s'effondrer, ne laissant derrière lui qu'une trace de volonté.
 
 La Secte Divine du Dragon Azure subit de lourdes pertes; un ou deux membres seulement sur dix survécurent! La Secte Divine de la Tortue Noire fut presque anéantie!
 
-L'Empereur Divin du Tigre Blanc tua de nombreux Anciens de la première vague de l'Alliance ainsi que de nombreux membres du Royaume du Vide Brillant. Même à la fin, alors qu'il rendait l'âme, son corps ne s'effondra pas mais resta debout, faisant barrage à l'armée de l'Alliance de Culture. L'intention meurtrière monstrueuse qu'il dégageait choqua d'innombrables personnes, les empêchant de faire un pas de plus.
+L'Empereur Divin du Tigre Blanc tua de nombreux Anciens de la première vague de l'Alliance ainsi que de nombreux membres du Royaume Kun Xu. Même à la fin, alors qu'il rendait l'âme, son corps ne s'effondra pas mais resta debout, faisant barrage à l'armée de l'Alliance Xiu Zhen. L'intention meurtrière monstrueuse qu'il dégageait choqua d'innombrables personnes, les empêchant de faire un pas de plus.
 
-Cette guerre tragique prit fin là, et on peut dire que les deux camps en sortirent épuisés. Les Quatre Grandes Sectes avaient perdu, mais la puissance de l'Alliance de Culture en fut également gravement affectée. Même le Royaume du Vide Brillant dut renoncer à ses plans d'extermination totale. Ce n'était pas par manque de volonté, mais s'ils avaient persisté, le prix de la victoire aurait été quelque chose que ni l'Alliance ni le Royaume du Vide Brillant ne pourraient supporter.
+Cette guerre tragique prit fin là, et on peut dire que les deux camps en sortirent épuisés. Les Quatre Grandes Sectes avaient perdu, mais la puissance de l'Alliance Xiu Zhen en fut également gravement affectée. Même le Royaume Kun Xu dut renoncer à ses plans d'extermination totale. Ce n'était pas par manque de volonté, mais s'ils avaient persisté, le prix de la victoire aurait été quelque chose que ni l'Alliance ni le Royaume Kun Xu ne pourraient supporter.
 
 Après tout, la rumeur des Quatre Trésors Divins capables de fendre les cieux subsistait. S'ils avaient réellement acculé les Quatre Grandes Sectes à une situation désespérée, ces dernières auraient pu facilement sacrifier l'intégralité de leur secte pour les emporter dans leur chute.
 

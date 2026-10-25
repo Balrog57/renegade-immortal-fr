@@ -6,17 +6,17 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1562 - Summoned River
 slug: la-riviere-invoquee
 ---
-La Porte du Vide se brisa et l'énergie s'en déversa. Qing Shui, vêtu d'une robe verte, transforma l'âme de sa femme, Han Yan, en une marque qu'il plaça près de son cœur. Ce n'était pas qu'il ne pouvait pas la ranger dans son espace de stockage, mais Qing Shui n'en avait pas envie.
+La Porte Kong se brisa et l'énergie s'en déversa. Qing Shui, vêtu d'une robe verte, transforma l'âme de sa femme, Han Yan, en une marque qu'il plaça près de son cœur. Ce n'était pas qu'il ne pouvait pas la ranger dans son espace de stockage, mais Qing Shui n'en avait pas envie.
 
 Qing Shui était déterminé à donner cette épée de massacre à Wang Lin, qui l'emporta donc. Un fragment d'essence de massacre était né en Wang Lin lors de sa première bataille contre le Royaume Extérieur. Cependant, cette essence était encore très faible et venait à peine de naître.
 
 Avec cette épée de massacre, Wang Lin posséderait six essences! Quant au marquage de combat qui n'était pas une essence, il s'était depuis longtemps transformé en une étoile de loi gravée profondément dans le corps de Wang Lin.
 
-Wang Lin n'avait pas l'intention de raffiner immédiatement l'essence de massacre; ce n'était pas le moment. Il allait attendre que ses essences de Karma, de Vie et de Mort, ainsi que de Vérité et de Faux soient complètes. Ensuite, au moment où il s'apprêterait à ouvrir la Porte du Vide, il absorberait l'essence de massacre et briserait la porte d'un seul coup pour devenir un extrêmement rare cultivateur de la troisième étape doté de six essences!
+Wang Lin n'avait pas l'intention de raffiner immédiatement l'essence de massacre; ce n'était pas le moment. Il allait attendre que ses essences de Karma, de Vie et de Mort, ainsi que de Vérité et de Faux soient complètes. Ensuite, au moment où il s'apprêterait à ouvrir la Porte Kong, il absorberait l'essence de massacre et briserait la porte d'un seul coup pour devenir un extrêmement rare cultivateur de la troisième étape doté de six essences!
 
-Qing Shui descendit du ciel et contempla la Porte du Vide qui se dissipait. Sa main droite s'élança dans le vide pour saisir la gourde verte contenant le vin de sang de dragon. Il en but une gorgée et, tandis que le goût épicé se répandait dans son corps, ses yeux devinrent lentement glacials. Il passa ensuite la cruche à Wang Lin.
+Qing Shui descendit du ciel et contempla la Porte Kong qui se dissipait. Sa main droite s'élança dans le vide pour saisir la gourde verte contenant le vin de sang de dragon. Il en but une gorgée et, tandis que le goût épicé se répandait dans son corps, ses yeux devinrent lentement glacials. Il passa ensuite la cruche à Wang Lin.
 
-Face au vent froid, les deux hommes regardèrent la Porte du Vide s'estomper sur la planète abandonnée. Le vent soulevait des couches de poussière tandis qu'ils buvaient leur vin en silence.
+Face au vent froid, les deux hommes regardèrent la Porte Kong s'estomper sur la planète abandonnée. Le vent soulevait des couches de poussière tandis qu'ils buvaient leur vin en silence.
 
 Personne ne parla.
 
@@ -44,7 +44,7 @@ Qing Shui regarda Wang Lin et hocha lentement la tête.
 
 C'était une promesse!
 
-Le vin de sang de dragon était extrêmement puissant et aurait pu enivrer la plupart des gens, mais il ne pouvait pas rendre Wang Lin ou Qing Shui ivres. La Porte du Vide commença à se dissiper alors qu'il ne restait plus beaucoup de vin.
+Le vin de sang de dragon était extrêmement puissant et aurait pu enivrer la plupart des gens, mais il ne pouvait pas rendre Wang Lin ou Qing Shui ivres. La Porte Kong commença à se dissiper alors qu'il ne restait plus beaucoup de vin.
 
 Qing Shui ferma les yeux. Paraissant un peu solitaire, il demanda doucement: « Wang Lin, je ne te l'ai jamais demandé auparavant... As-tu des descendants? »
 
@@ -62,7 +62,7 @@ Qing Shui se leva et prit une profonde inspiration. Une froideur intense envahit
 
 Cette aura se propagea, plongeant toute la planète abandonnée dans le froid.
 
-L'essence de massacre était une essence extrêmement spéciale. Très peu de personnes la possédaient, mais ceux qui en étaient dotés pouvaient aisément briser la Porte du Vide. Cette essence représentait l'apogée même du massacre.
+L'essence de massacre était une essence extrêmement spéciale. Très peu de personnes la possédaient, mais ceux qui en étaient dotés pouvaient aisément briser la Porte Kong. Cette essence représentait l'apogée même du massacre.
 
 Bien que Qing Shui fût au début du stade Vide du Nirvana, grâce à son essence de massacre et aux dizaines de milliers d'années passées au combat, même un cultivateur du Vide du Nirvana au stade avancé craindrait de croiser son chemin!
 
@@ -80,13 +80,13 @@ Trois cultivateurs du Royaume Extérieur, portant des marques entre les sourcils
 
 « Aucune réponse du jade messager. Je crains que tout le monde ne soit en danger. Bon sang, que s'est-il passé?! »
 
-« Nous ne pouvons pas retourner à l'Alliance de Culture, je crains qu'un problème ne s'y soit produit. Se pourrait-il que le Royaume Intérieur ait lancé une contre-attaque? Il vaut mieux chercher une planète de culture pour nous y cacher en attendant que l'armée principale se fraye un chemin. »
+« Nous ne pouvons pas retourner à l'Alliance Xiu Zhen, je crains qu'un problème ne s'y soit produit. Se pourrait-il que le Royaume Intérieur ait lancé une contre-attaque? Il vaut mieux chercher une planète de culture pour nous y cacher en attendant que l'armée principale se fraye un chemin. »
 
 Alors que les trois avançaient, ils échangeaient des messages. À cet instant précis, deux ondulations passèrent et une intention meurtrière monstrueuse les transperça tous les trois.
 
 Lorsque les ondulations finirent leur course, les trois cultivateurs du Royaume Extérieur tremblèrent, incapables de pousser le moindre cri. D'innombrables fissures apparurent sur leurs corps et ils s'effondrèrent soudainement. Leurs âmes originelles furent déchirées et ils périrent.
 
-Des scènes similaires se produisaient ailleurs dans le Vide Brillant, à Luotian et dans la Mer des Nuages. Peu de temps après que le Maître Long Pan eut déferlé sur la zone, les cultivateurs du Royaume Extérieur restants subirent la folie de Qing Shui.
+Des scènes similaires se produisaient ailleurs dans le Vide Brillant, à Luotian et dans la Mer Yun. Peu de temps après que le Maître Long Pan eut déferlé sur la zone, les cultivateurs du Royaume Extérieur restants subirent la folie de Qing Shui.
 
 Les fleurs de sang s'épanouissaient, révélant la beauté de leur mort.
 
@@ -110,14 +110,14 @@ Dès qu'il franchit les limites du royaume au sein de la Rivière Invoquée, Wan
 
 Toutefois, cette zone n'était plus que des fragments de continents; seuls trois restaient intacts. Le Maître Long Pan combattait un homme en robe noire. À chaque mouvement de leurs mains, des grondements assourdissants faisaient trembler le ciel.
 
-Wang Lin avait déjà vu ce vieillard en noir. Il s'agissait du seigneur du Palais de la Punition Céleste du Conseil Souverain, celui-là même qui avait été piégé par le Seigneur du Royaume Scellé lors de la première bataille dans la Mer des Nuages!
+Wang Lin avait déjà vu ce vieillard en noir. Il s'agissait du seigneur du Palais Tian Fa du Conseil Zhang Zun, celui-là même qui avait été piégé par le Seigneur du Royaume Scellé lors de la première bataille dans la Mer Yun!
 
 Le niveau de culture de cet homme se situait juste en dessous des cinq maîtres du Royaume Extérieur: il était au début du stade Vide Arcanique! Il n'avait pas atteint ce niveau en sacrifiant sa propre durée de vie comme le Maître Long Pan, mais l'avait véritablement atteint par la voie de la culture!
 
-Des dizaines de milliers de cultivateurs du Royaume Extérieur étaient assis sous les trois continents flottants, murmurant tous une incantation. Des filaments de Flammes Joss flottaient vers le ciel, formant des créatures étranges qui encerclaient le Maître Long Pan. Elles attaquaient de concert avec le seigneur du Palais de la Punition Céleste.
+Des dizaines de milliers de cultivateurs du Royaume Extérieur étaient assis sous les trois continents flottants, murmurant tous une incantation. Des filaments de Flammes Joss flottaient vers le ciel, formant des créatures étranges qui encerclaient le Maître Long Pan. Elles attaquaient de concert avec le seigneur du Palais Tian Fa.
 
 Qing Shui était entré un instant avant Wang Lin. Dès son apparition, il jeta un regard au Maître Long Pan et au vieillard en noir avant qu'une lueur glaciale ne surgisse dans ses yeux; il se précipita alors vers les dizaines de milliers de cultivateurs du Royaume Extérieur. Les cris de douleur que Wang Lin entendit à son entrée provenaient de ces derniers.
 
-Qing Shui tuait. Après avoir ouvert la Porte du Vide, son essence de massacre était arrivée à maturité. Il avait passé sa vie dans le carnage, et désormais, d'un simple geste de la main, il faisait tomber d'innombrables vies.
+Qing Shui tuait. Après avoir ouvert la Porte Kong, son essence de massacre était arrivée à maturité. Il avait passé sa vie dans le carnage, et désormais, d'un simple geste de la main, il faisait tomber d'innombrables vies.
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il regardait au-delà du Maître Long Pan et du vieillard en noir. Il vit un gigantesque Fruit du Dao suspendu sous les nuages aux sept couleurs qui surplombaient la scène.

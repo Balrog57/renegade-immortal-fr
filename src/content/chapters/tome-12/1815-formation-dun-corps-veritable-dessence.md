@@ -16,7 +16,7 @@ Maintenant que ce regret s'était dissipé, ses blessures ne posaient plus de pr
 
 « Disciple Wang Lin, le Continent Astral Immortel est votre foyer et l'Ancien Dao est votre terre natale. Votre Maître attendra votre retour ici... » Xuan Luo afficha un sourire bienveillant et ferma lentement les yeux pour s'immerger dans sa culture.
 
-Dans le Continent du Taureau Céleste, Wang Lin était assis à côté de la boule de feu, y projetant des sceaux. Cela rendait l'Oiseau Vermillon à l'intérieur encore plus distinct et son rugissement plus puissant.
+Dans le Continent Tian Niu, Wang Lin était assis à côté de la boule de feu, y projetant des sceaux. Cela rendait l'Oiseau Vermillon à l'intérieur encore plus distinct et son rugissement plus puissant.
 
 « Corps véritable d'essence, forme! » Quelques heures plus tard, alors que l'Oiseau Vermillon devenait plus net et que la volonté du feu se renforçait, Wang Lin ouvrit les yeux et poussa un rugissement.
 
@@ -36,7 +36,7 @@ La scène paraissait simple, mais en vérité, la pression que subissait Wang Li
 
 Son essence de feu n'était pas assez puissante pour former un corps véritable d'essence, mais il avait dévoré seize veines secondaires et une veine enfantine, ainsi que la volonté du feu qui s'y trouvait.
 
-Tout cela avait permis à l'essence de feu de Wang Lin de posséder sa propre volonté. Celle-ci se battait désormais contre le feu du Continent du Taureau Céleste pour le contrôle des flammes de ce monde!
+Tout cela avait permis à l'essence de feu de Wang Lin de posséder sa propre volonté. Celle-ci se battait désormais contre le feu du Continent Tian Niu pour le contrôle des flammes de ce monde!
 
 Ce changement et cette expansion avaient donné à Wang Lin l'idée de former un corps véritable d'essence. Cependant, la tâche était ardue; même en déployant toute sa force, il n'avait réussi qu'à former une paire de jambes!
 
@@ -46,7 +46,7 @@ L'essence de feu manquait. Les yeux de Wang Lin brillèrent; il chargea vers la 
 
 À cet instant, le sens divin de Wang Lin jaillit de sa main, pénétra la terre et se propagea à une vitesse fulgurante. Des milliers de kilomètres, des dizaines de milliers, des centaines de milliers, des millions de kilomètres... jusqu'à l'infini.
 
-C'était la première fois que Wang Lin déployait son sens divin de la sorte sur le Continent Astral Immortel pour couvrir une zone aussi vaste. Pourtant, malgré cela, il ne couvrait même pas 10 % du Continent du Taureau Céleste; il semblait même peiner à atteindre les 5 %.
+C'était la première fois que Wang Lin déployait son sens divin de la sorte sur le Continent Astral Immortel pour couvrir une zone aussi vaste. Pourtant, malgré cela, il ne couvrait même pas 10 % du Continent Tian Niu; il semblait même peiner à atteindre les 5 %.
 
 Cependant, cette étendue était infiniment proche de celle du monde des grottes. Dans cette zone, on dénichait 172 veines de feu terrestre secondaires et deux veines enfantines!
 
@@ -84,7 +84,7 @@ Wang Lin, essoufflé sur le sommet de la montagne, contemplait la boule de feu e
 
 À l'est de Wang Lin, une montagne enneigée qui n'avait pas fondu depuis des dizaines de milliers d'années trembla. À cet instant, toute la neige fondit d'un coup, se transformant en un océan dévalant les pentes. Mais avant d'atteindre le bas, des sifflements stridents retentirent et toute l'eau se changea en vapeur blanche. L'âme d'une veine enfantine de feu terrestre apparut au cœur de cette brume et chargea vers Wang Lin.
 
-À l'ouest de Wang Lin se trouvait une mer intérieure entourée par le Continent du Taureau Céleste. Au fond de cette mer gisait une chaîne de montagnes qui ressemblait à un dragon!
+À l'ouest de Wang Lin se trouvait une mer intérieure entourée par le Continent Tian Niu. Au fond de cette mer gisait une chaîne de montagnes qui ressemblait à un dragon!
 
 Soudain, la montagne trembla et un vortex géant se forma dans les eaux. Alors que la mer s'agitait violemment, une fluctuation d'âme émana de la montagne. Une masse colossale d'eau se rassembla pour former un dragon marin qui jaillit des profondeurs.
 

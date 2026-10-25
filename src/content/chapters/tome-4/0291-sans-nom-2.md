@@ -17,7 +17,7 @@ Une fois la restriction du premier drapeau terminée, Wang Lin bondit et s'élan
 
 Wang Lin connaissait parfaitement cette zone. Après tout, il avait dû autrefois progresser avec une extrême lenteur dans ce secteur périlleux. Bien qu'il recommençât l'aventure, il ne devint pas négligent et descendit avec la plus grande prudence.
 
-Il avait choisi cet endroit pour capturer une bête spirituelle car, bien que leur nombre fût limité ici, elles étaient toutes bien plus puissantes que celles de la Mer des Démons. Il y avait même des bêtes désolées parmi elles. Bien entendu, même Wang Lin n'était pas disposé à s'en prendre à ces dernières; il recherchait des bêtes spirituelles de haute qualité, dont le niveau équivalait à celui d'un cultivateur de la Formation de l'Âme.
+Il avait choisi cet endroit pour capturer une bête spirituelle car, bien que leur nombre fût limité ici, elles étaient toutes bien plus puissantes que celles de la Mer Xiu Mo. Il y avait même des bêtes désolées parmi elles. Bien entendu, même Wang Lin n'était pas disposé à s'en prendre à ces dernières; il recherchait des bêtes spirituelles de haute qualité, dont le niveau équivalait à celui d'un cultivateur de la Formation de l'Âme.
 
 S'il avait choisi ce lieu, c'est qu'il possédait un trésor nommé le Piège à Bêtes. Ce piège lui permettrait de contrôler des bêtes spirituelles pendant un court moment, au prix d'une immense quantité d'énergie spirituelle. Wang Lin avait obtenu ce piège lors de son arrivée dans les terres de l'Ancien Dieu, en échange de son aide auprès d'anciens cultivateurs. Au fil des ans, il avait testé l'objet sur quelques bêtes de faible qualité, ce qui l'amenait ici aujourd'hui.
 

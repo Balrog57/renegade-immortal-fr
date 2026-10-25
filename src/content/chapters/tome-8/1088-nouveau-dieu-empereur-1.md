@@ -90,7 +90,7 @@ Durant ces trois années, ce jeune homme était resté là à protéger la statu
 
 « Professeur... » C'était Treize!
 
-Sur la planète où se trouvait la Secte de l'Affinement de l'Âme, un vieil homme était assis sur les remparts d'une cité de la Secte Divine de l'Oiseau Vermillon. Il tenait une cruche de vin et buvait avec une expression amère. Il en était ainsi depuis trois ans.
+Sur la planète où se trouvait la Secte Lian Hun, un vieil homme était assis sur les remparts d'une cité de la Secte Divine de l'Oiseau Vermillon. Il tenait une cruche de vin et buvait avec une expression amère. Il en était ainsi depuis trois ans.
 
 Le grondement tonitruant et la lueur cramoisie qui embrasait le ciel le firent lever la tête. Mais après un bref regard, il la baissa et continua de boire.
 

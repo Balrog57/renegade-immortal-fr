@@ -20,7 +20,7 @@ Mo Lihai éclata de rire. Il était manifestement comblé de bonheur. « Frère 
 
 Les yeux de Wang Lin s'illuminèrent et il acquiesça d'un sourire.
 
-Au même moment, au pavillon des épées situé au centre de la Cité du Démon Céleste, une silhouette vêtue de robes jaunes apparut. Il contempla l'épée impériale dans la formation du pavillon et sourit: « As-tu assez joué? Ne retourne plus à la Prison Hong; repose-toi quelques jours. »
+Au même moment, au pavillon des épées situé au centre de la Cité Tian Yao, une silhouette vêtue de robes jaunes apparut. Il contempla l'épée impériale dans la formation du pavillon et sourit: « As-tu assez joué? Ne retourne plus à la Prison Hong; repose-toi quelques jours. »
 
 L'épée argentée à l'intérieur de la formation émit plusieurs salves d'hymnes d'épée, comme si elle refusait de céder.
 
@@ -60,9 +60,9 @@ Ce cycle se répéta. À chaque renaissance, le dragon argenté le tuait. Après
 
 Oublions la Prison Hong pour l'instant.
 
-Il ne restait que quinze jours avant la bataille des généraux démons. Une aura oppressante pesait sur toute la Cité du Démon Céleste, tandis que les divers généraux démons affinaient leurs préparatifs.
+Il ne restait que quinze jours avant la bataille des généraux démons. Une aura oppressante pesait sur toute la Cité Tian Yao, tandis que les divers généraux démons affinaient leurs préparatifs.
 
-Outre les préparatifs conventionnels, de nombreux mouvements se tramaient en coulisses. Qu'il s'agisse de pactes secrets ou de manœuvres occultes, l'Empereur Démon n'y prêtait aucune attention. Bien qu'un ordre règne sur la Terre des Esprits Démoniaques, un chaos sans fin se cachait sous cette apparente stabilité. C'était une époque de troubles!
+Outre les préparatifs conventionnels, de nombreux mouvements se tramaient en coulisses. Qu'il s'agisse de pactes secrets ou de manœuvres occultes, l'Empereur Démon n'y prêtait aucune attention. Bien qu'un ordre règne sur la Terre Yao Ling, un chaos sans fin se cachait sous cette apparente stabilité. C'était une époque de troubles!
 
 La bataille entre les généraux démons était cruciale, car elle représentait une opportunité céleste pour gravir les échelons. S'ils la manquaient, ils risquaient de rester à jamais au rang de général démon! Par conséquent, ces généraux accordaient à cet événement une importance sans précédent.
 
@@ -106,6 +106,6 @@ Le corps fut projeté loin dans une trajectoire courbe, libérant une brume de s
 
 En tombant, un soupçon de regret passa dans ses yeux avant qu'ils ne s'éteignent définitivement. Simultanément, un filet de gaz gris s'échappa de son corps pour disparaître dans la main droite de Wang Lin.
 
-Cet homme n'était pas un étranger, mais un natif de la Terre des Esprits Démons. Son niveau de culture n'était pas élevé; il n'était qu'au stade avancé de la Formation de l'Âme. Il avait probablement été envoyé par un général démon qui ne le connaissait pas pour servir de reconnaissance.
+Cet homme n'était pas un étranger, mais un natif de la Terre Yao Ling. Son niveau de culture n'était pas élevé; il n'était qu'au stade avancé de la Formation de l'Âme. Il avait probablement été envoyé par un général démon qui ne le connaissait pas pour servir de reconnaissance.
 
 Wang Lin continua d'écouter la musique de la cithare...

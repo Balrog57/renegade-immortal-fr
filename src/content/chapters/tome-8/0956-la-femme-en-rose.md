@@ -70,13 +70,13 @@ La planète Tian Yun apparut au loin dans le champ de vision de Wang Lin. En con
 
 « Lors de ma première venue, je n'étais qu'un cultivateur en Transformation de l'Âme. La seconde fois que je viens, je peux combattre des cultivateurs au stade du Purificateur du Nirvana! » Wang Lin progressait, mais fut soudainement surpris. Il s'arrêta net et fixa la planète Tian Yun devant lui.
 
-Il vit des éclats de lumière dorée survoler la planète. C'étaient des rayons d'énergie d'épée entrelacés. En regardant de plus près, ils convergeaient tous vers la Secte du Destin Céleste.
+Il vit des éclats de lumière dorée survoler la planète. C'étaient des rayons d'énergie d'épée entrelacés. En regardant de plus près, ils convergeaient tous vers la Secte Tian Yun.
 
 « Ling Tianhou! » L'expression de Wang Lin changea lorsqu'il décela l'aura de Ling Tianhou parmi ces épées volantes.
 
 Après une courte réflexion, Wang Lin ne s'interrompit pas et continua sa course vers l'avant.
 
-À l'extérieur de la Secte du Destin Céleste, d'innombrables rayons d'énergie d'épée emplissaient le ciel, comme dans une tempête de lames. Un cultivateur trônait sur chaque épée; ils étaient tous des disciples de la Secte de l'Épée Da Luo.
+À l'extérieur de la Secte Tian Yun, d'innombrables rayons d'énergie d'épée emplissaient le ciel, comme dans une tempête de lames. Un cultivateur trônait sur chaque épée; ils étaient tous des disciples de la Secte Da Luo Jian.
 
 Devant lui se dressait un Qilin rouge flamboyant. Ce Qilin était d'une férocité extrême et ses yeux brillaient comme la foudre. Des flammes incessantes émanaient de son corps et deux souffles blancs s'échappaient de ses narines. Sur son dos siégeait un vieil homme chétif au visage sombre.
 
@@ -90,24 +90,24 @@ L'autre vieil homme était massif, tel une montagne de chair. Il était assis su
 
 Le troisième vieil homme, vêtu d'une robe jaune, était aussi maigre qu'un cadavre, mais son corps exhalait une vitalité puissante. Sans aucun disciple, il se tenait seul dans le ciel, l'expression indifférente.
 
-La dernière personne était une femme d'âge mûr, à l'allure encore assez jeune. Elle ne portait pas de parures; ses vêtements étaient très ordinaires, comme ceux d'une simple villageoise parmi les mortels. Cependant, elle dégageait une aura transcendante. Derrière elle se trouvaient quatre femmes dont la beauté était sans égale! C'était particulièrement frappant pour la femme à gauche, vêtue d'une robe rose, qui était absolument éblouissante. Elles attiraient les regards de la majorité des disciples de la Secte de l'Épée Da Luo, mais les quatre femmes n'y prêtaient aucune attention et regardaient calmement devant elles.
+La dernière personne était une femme d'âge mûr, à l'allure encore assez jeune. Elle ne portait pas de parures; ses vêtements étaient très ordinaires, comme ceux d'une simple villageoise parmi les mortels. Cependant, elle dégageait une aura transcendante. Derrière elle se trouvaient quatre femmes dont la beauté était sans égale! C'était particulièrement frappant pour la femme à gauche, vêtue d'une robe rose, qui était absolument éblouissante. Elles attiraient les regards de la majorité des disciples de la Secte Da Luo Jian, mais les quatre femmes n'y prêtaient aucune attention et regardaient calmement devant elles.
 
 Ling Tianhou déclara: « Tian Yunzi, autrefois votre disciple Wang Lin a pris le jeton, et vous avez alors annoncé qu'un mystère des cieux serait révélé aujourd'hui. Ce vieil homme veut voir ce que vous appelez votre mystère des cieux! »
 
-À l'époque, tous ces vieux monstres avaient envoyé Tan Lang pour retrouver Wang Lin. Cependant, plus aucune nouvelle n'était parvenue, et la plupart des sceaux laissés sur Tan Lang avaient disparu. La grotte céleste de l'Abîme des Marées étant d'une importance capitale, les vieux monstres étaient venus chercher Tian Yunzi, mus par l'anxiété. Après tout, Wang Lin était un membre de la Secte du Destin Céleste.
+À l'époque, tous ces vieux monstres avaient envoyé Tan Lang pour retrouver Wang Lin. Cependant, plus aucune nouvelle n'était parvenue, et la plupart des sceaux laissés sur Tan Lang avaient disparu. La grotte céleste de l'Abîme Chao Xi étant d'une importance capitale, les vieux monstres étaient venus chercher Tian Yunzi, mus par l'anxiété. Après tout, Wang Lin était un membre de la Secte Tian Yun.
 
 À ce moment-là, Tian Yunzi avait gardé une expression sereine et n'avait prononcé qu'une seule phrase:
 
-« Lorsque la lumière verte et pourpre emplira le ciel, vous pourrez tous venir à ma Secte du Destin Céleste et contempler le mystère des cieux! »
+« Lorsque la lumière verte et pourpre emplira le ciel, vous pourrez tous venir à ma Secte Tian Yun et contempler le mystère des cieux! »
 
 Tôt ce matin, le ciel autrefois limpide au-dessus de la planète Tian Yun avait été soudainement enveloppé de vert et de pourpre. Ces couleurs étaient magnifiques et semblaient teinter la planète entière.
 
-Ling Tianhou s'était alors immédiatement précipité ici avec ses disciples. Simultanément, plusieurs vieux monstres informés de l'événement avaient foncé vers la Secte du Destin Céleste. Après tout, les capacités de divination de Tian Yunzi étaient célèbres dans toute l'Alliance!
+Ling Tianhou s'était alors immédiatement précipité ici avec ses disciples. Simultanément, plusieurs vieux monstres informés de l'événement avaient foncé vers la Secte Tian Yun. Après tout, les capacités de divination de Tian Yunzi étaient célèbres dans toute l'Alliance!
 
-Tian Yunzi, vêtu de blanc, se tenait calmement dans les airs. À ses côtés, les disciples de la Secte du Destin Céleste scrutaient le ciel d'un regard froid. Pourtant, ce qui captivait davantage leur attention, c'étaient les quatre belles femmes.
+Tian Yunzi, vêtu de blanc, se tenait calmement dans les airs. À ses côtés, les disciples de la Secte Tian Yun scrutaient le ciel d'un regard froid. Pourtant, ce qui captivait davantage leur attention, c'étaient les quatre belles femmes.
 
 « Il est là! » L'expression de Tian Yunzi était apaisée et il esquissa un sourire serein. Son regard se posa sur l'horizon.
 
 Dès que Tian Yunzi eut fini de parler, Ling Tianhou, les trois autres vieux monstres puissants et la femme magnifique remarquèrent immédiatement quelque chose. À cet instant, tous les regards des cultivateurs convergèrent vers l'horizon. Les quatre femmes derrière la femme d'âge mûr ne cillèrent même pas et fixèrent intensément le point de mire.
 
-« Je me demande à quoi ressemble Wang Lin, celui dont la renommée a retenti dans l'Abîme des Marées et attiré l'attention de tous les grands cultivateurs de la planète Tian Yun... » Les yeux de la femme en robe rose étaient empreints de curiosité.
+« Je me demande à quoi ressemble Wang Lin, celui dont la renommée a retenti dans l'Abîme Chao Xi et attiré l'attention de tous les grands cultivateurs de la planète Tian Yun... » Les yeux de la femme en robe rose étaient empreints de curiosité.

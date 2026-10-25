@@ -8,7 +8,7 @@ slug: empli-de-rage-4
 ---
 La capitale de l'Ancien Dao, la cité flottante. La majeure partie de la ville était encore animée et la musique continuait de résonner comme si c'était un jour de fête propice.
 
-Les événements survenus aux abords du Temple de l'Ancien Dao ne s'étaient pas propagés bien loin, en raison de l'immensité de la cité impériale et du caractère particulier de la montagne du temple.
+Les événements survenus aux abords du Temple Dao Gu ne s'étaient pas propagés bien loin, en raison de l'immensité de la cité impériale et du caractère particulier de la montagne du temple.
 
 Personne n'avait remarqué que, la veille du mariage de l'Empereur de l'Ancien Dao, un événement majeur allait se produire, un événement qui allait ébranler non seulement l'Ancien Dao, mais le clan Ancien tout entier!
 
@@ -22,7 +22,7 @@ Une intention meurtrière indescriptible descendit des cieux. Tous les membres d
 
 Ils pressentaient vaguement qu'un bouleversement majeur allait frapper la cité impériale de l'Ancien Dao!
 
-Wang Lin vit le palais étincelant dans le ciel. Pour passer du Temple de l'Ancien Dao à cet endroit, il n'avait dépensé que quelques respirations. Cette vitesse était comparable à une Distorsion Spatiale. Le palais était entouré de restrictions, rendant toute intrusion directe impossible.
+Wang Lin vit le palais étincelant dans le ciel. Pour passer du Temple Dao Gu à cet endroit, il n'avait dépensé que quelques respirations. Cette vitesse était comparable à une Distorsion Spatiale. Le palais était entouré de restrictions, rendant toute intrusion directe impossible.
 
 En contemplant le palais, la silhouette de Li Muwan apparut aux yeux de Wang Lin. Cette vision fit comme si son cœur était lacéré et saignait de l'intérieur. Il poussa un rugissement et chargea vers le palais tel un véritable fou.
 

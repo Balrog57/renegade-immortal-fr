@@ -1,6 +1,6 @@
 ---
 n: 93
-title: Secte du Cadavre Yin (2)
+title: Secte Shi Yin (2)
 book: 2
 bookTitle: The Bloody Image of Cultivation
 en: Chapter 93 - Corpse Yin Secte (2)
@@ -70,7 +70,7 @@ Le petit être à l'intérieur de la statue eut l'air soulagé, bien qu'il parû
 
 Wang Lin ne dit mot et fixa le petit être.
 
-Ce dernier soupira et déclara: « Mon nom est Wu Yu. Jeune ami, as-tu déjà entendu parler de la Secte des Cadavres? »
+Ce dernier soupira et déclara: « Mon nom est Wu Yu. Jeune ami, as-tu déjà entendu parler de la Secte Shi Yin? »
 
 L'expression de Wang Lin resta impassible tandis qu'il secouait la tête, l'épée toujours à ses côtés.
 
@@ -78,7 +78,7 @@ Wu Yu eut un sourire amer et dit: « Jeune ami, nul besoin d'être sur tes garde
 
 Les yeux de Wang Lin s'illuminèrent. Après un court instant de réflexion, il demanda: « Qui est cette personne à l'extérieur? Êtes-vous son maître? »
 
-Les yeux de Wu Yu exprimèrent une profonde impuissance. Il répondit: « C'est ma marionnette cadavérique. Hélas, j'étais l'un des ancêtres fondateurs de la Secte des Cadavres. Cette secte possède une méthode de culture unique: chaque disciple qui y entre doit trouver un cadavre et le raffiner pour en faire sa propre marionnette cadavérique. »
+Les yeux de Wu Yu exprimèrent une profonde impuissance. Il répondit: « C'est ma marionnette cadavérique. Hélas, j'étais l'un des ancêtres fondateurs de la Secte Shi Yin. Cette secte possède une méthode de culture unique: chaque disciple qui y entre doit trouver un cadavre et le raffiner pour en faire sa propre marionnette cadavérique. »
 
 « À mesure que notre niveau de culture augmente, la marionnette cadavérique devient elle aussi plus forte. »
 
@@ -92,7 +92,7 @@ Wu Yu eut un sourire désabusé. Il acquiesça: « C'est exact. À l'origine, gr
 
 Wang Lin eut un sourire froid: « Quelles fadaises. Si cette marionnette est vraiment ce que vous prétendez, pourquoi ne s'est-elle pas enfuie au lieu de continuer à vous traquer? »
 
-Wu Yu eut un sourire amer. Il hésita un instant avant de dire: « Peu importe. Jeune ami, tu l'ignores peut-être, mais cela touche aux secrets de la Secte des Cadavres. Bien que cette marionnette soit hors de mon contrôle, je l'ai affinée pendant des centaines d'années. Elle est liée à mon âme; si elle s'éloigne de plus de cinquante kilomètres de moi, elle mourra. »
+Wu Yu eut un sourire amer. Il hésita un instant avant de dire: « Peu importe. Jeune ami, tu l'ignores peut-être, mais cela touche aux secrets de la Secte Shi Yin. Bien que cette marionnette soit hors de mon contrôle, je l'ai affinée pendant des centaines d'années. Elle est liée à mon âme; si elle s'éloigne de plus de cinquante kilomètres de moi, elle mourra. »
 
 « La seule façon de résoudre ce problème est qu'elle absorbe mon Âme Naissante et la scelle en elle. Ce n'est qu'ainsi qu'elle échappera véritablement à mon contrôle. »
 

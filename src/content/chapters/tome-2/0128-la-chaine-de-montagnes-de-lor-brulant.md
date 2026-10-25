@@ -1,6 +1,6 @@
 ---
 n: 128
-title: "La Chaîne de Montagnes de l'Or Brûlant"
+title: "La Chaîne de Montagnes Fen Jin"
 book: 2
 bookTitle: The Bloody Image of Cultivation
 en: Chapter 128 - Burning Gold Mountain Range
@@ -12,7 +12,7 @@ Wang Lin agita sa main droite pour ouvrir la porte de pierre et sortit.
 
 Peu de temps après, Wang Lin arriva à l'embouchure du volcan et scruta l'intérieur. Une lumière rouge sombre en jaillissait et des vagues de chaleur étouffante lui soufflaient au visage. Les yeux de Wang Lin s'illuminèrent et il sauta sans la moindre hésitation, utilisant une technique d'attraction pour contrôler sa descente.
 
-La Chaîne de Montagnes de l'Or Brûlant était une cordillère célèbre dans Huo Fen. Sa renommée tirait son origine d'un ingrédient alchimique qui y poussait: le Fruit de l'Or Brûlant.
+La Chaîne de Montagnes Fen Jin était une cordillère célèbre dans Huo Fen. Sa renommée tirait son origine d'un ingrédient alchimique qui y poussait: le Fruit de l'Or Brûlant.
 
 Ce fruit est un composant essentiel à la fabrication de la Pilule d'Harmonie Spirituelle. L'énergie spirituelle de ce pays est saturée de l'élément feu; l'absorber sur une longue période nuit gravement au corps des cultivateurs. Ainsi, comme la Pilule d'Harmonie Spirituelle permet de tempérer et de diluer l'élément feu, elle est extrêmement prisée par les cultivateurs locaux.
 
@@ -24,9 +24,9 @@ Chaque fois que les Fruits de l'Or Brûlant arrivent à maturité, les quatre gr
 
 Ce jour-là, les quatre sectes avaient envoyé leurs disciples en avance. Chaque secte avait pris possession d'un volcan. Les quatre grandes sectes étant liées par un accord concernant ce matériau si précieux, il n'y eut aucun affrontement entre elles.
 
-Il y avait au total trois disciples de la Secte des Cadavres: deux hommes et une femme. Ils portaient des cercueils sur leur dos et se tenaient à l'ouverture du volcan, attendant le moment opportun pour descendre.
+Il y avait au total trois disciples de la Secte Shi Yin: deux hommes et une femme. Ils portaient des cercueils sur leur dos et se tenaient à l'ouverture du volcan, attendant le moment opportun pour descendre.
 
-Le temps passa lentement. Voyant qu'un qi vert et parfumé s'élevait des trois autres volcans, les trois autres sectes plongèrent dans leurs cratères respectifs. Les trois disciples de la Secte des Cadavres affichèrent des visages perplexes. La femme fronça les sourcils et demanda: « Frère aîné Ma, sais-tu ce qui se passe? »
+Le temps passa lentement. Voyant qu'un qi vert et parfumé s'élevait des trois autres volcans, les trois autres sectes plongèrent dans leurs cratères respectifs. Les trois disciples de la Secte Shi Yin affichèrent des visages perplexes. La femme fronça les sourcils et demanda: « Frère aîné Ma, sais-tu ce qui se passe? »
 
 L'homme nommé Ma fronçait également les sourcils lorsqu'il répondit: « Le qi vert signifie que le Fruit de l'Or Brûlant est mûr et prêt pour la récolte. Les quatre volcans devraient atteindre la maturité exactement au même moment. Frère aîné Zhou, penses-tu que nous devrions descendre vérifier? »
 
@@ -58,7 +58,7 @@ Zhou Gang ricana: « Tu vas immédiatement te couper les bras et les jambes, t'a
 
 Simultanément, les deux autres disciples frappèrent leurs cercueils. Deux autres momies en sortirent; les trois momies se placèrent en triangle et chargèrent Wang Lin.
 
-Le regard de Wang Lin devint glacial alors qu'un fracas retentissait dans l'océan doré de sa conscience. Un éclair rouge jaillit soudainement de ses yeux. Les corps des trois disciples de la Secte des Cadavres furent secoués; leurs yeux s'obscurcirent et ils moururent, leur sens divin ayant été instantanément détruit.
+Le regard de Wang Lin devint glacial alors qu'un fracas retentissait dans l'océan doré de sa conscience. Un éclair rouge jaillit soudainement de ses yeux. Les corps des trois disciples de la Secte Shi Yin furent secoués; leurs yeux s'obscurcirent et ils moururent, leur sens divin ayant été instantanément détruit.
 
 Puis, Wang Lin leva nonchalamment la tête pour observer les trois marionnettes cadavériques. Deux d'entre elles commencèrent immédiatement à pourrir, se transformant en tas d'ossements blancs.
 
@@ -70,13 +70,13 @@ Ses paroles furent ignorées par la marionnette qui, s'enveloppant de gaz noir, 
 
 Ce petit être était mort de peur. Il avait voulu fuir, mais il avait soudainement ressenti une force destructrice frapper son sens divin. Pressentant le danger, il s'était précipitamment extrait de l'enveloppe charnelle.
 
-Bien qu'il fût un cultivateur de l'Âme Naissante, il avait été gravement blessé lors d'un grand combat. Il avait réussi à sauver son Âme Naissante, mais ses blessures étaient telles que celle-ci était sur le point de se dissiper. Finalement, un ami très proche avait dépensé d'énormes ressources pour le mettre en contact avec la Secte des Cadavres et lui acheter un corps.
+Bien qu'il fût un cultivateur de l'Âme Naissante, il avait été gravement blessé lors d'un grand combat. Il avait réussi à sauver son Âme Naissante, mais ses blessures étaient telles que celle-ci était sur le point de se dissiper. Finalement, un ami très proche avait dépensé d'énormes ressources pour le mettre en contact avec la Secte Shi Yin et lui acheter un corps.
 
-Les corps fournis par la Secte des Cadavres étaient célèbres dans les pays de culture de rang 4 et 5. Tous possédaient déjà une base d'énergie spirituelle et un talent exceptionnel, et leur apparence pouvait être personnalisée selon les désirs du client. Ils offraient même aux cultivateurs excentriques des corps du sexe opposé. Tant que l'on en avait les moyens, la Secte des Cadavres offrait une solution satisfaisante.
+Les corps fournis par la Secte Shi Yin étaient célèbres dans les pays de culture de rang 4 et 5. Tous possédaient déjà une base d'énergie spirituelle et un talent exceptionnel, et leur apparence pouvait être personnalisée selon les désirs du client. Ils offraient même aux cultivateurs excentriques des corps du sexe opposé. Tant que l'on en avait les moyens, la Secte Shi Yin offrait une solution satisfaisante.
 
 Plus important encore, la prise de possession d'un corps ne causait jamais le moindre problème et, moyennant un supplément, une protection totale était garantie durant la période de récupération.
 
-De plus, les recherches de la Secte des Cadavres sur l'art de la possession avaient atteint un niveau prodigieux; ils fournissaient des instructions extrêmement détaillées pour guider le possesseur lors de la transition.
+De plus, les recherches de la Secte Shi Yin sur l'art de la possession avaient atteint un niveau prodigieux; ils fournissaient des instructions extrêmement détaillées pour guider le possesseur lors de la transition.
 
 Si l'on pouvait payer le prix, on pouvait choisir n'importe quel corps, quel que soit son niveau de culture. Comme chacun le sait, pour un cultivateur de l'Âme Naissante, le corps idéal est celui d'un autre cultivateur de l'Âme Naissante. Utiliser le corps d'un expert de la Formation du Noyau affaiblirait considérablement sa culture et demanderait beaucoup de temps pour être récupéré.
 
@@ -84,16 +84,16 @@ Pour ceux qui n'avaient pas les moyens d'acquérir un corps de la Formation du N
 
 Xu Liguo faisait partie de ces cultivateurs de l'Âme Naissante qui n'avaient pas les moyens de s'offrir mieux.
 
-Si le commerce de la Secte des Cadavres s'était limité aux corps du stade de l'Âme Naissante, elle ne serait pas si puissante; en réalité, ces corps ne représentaient pas sa principale source de revenus.
+Si le commerce de la Secte Shi Yin s'était limité aux corps du stade de l'Âme Naissante, elle ne serait pas si puissante; en réalité, ces corps ne représentaient pas sa principale source de revenus.
 
 Le corps parfait pour un cultivateur de la Transformation de l'Âme est celui d'un autre expert de la Transformation de l'Âme, mais obtenir un tel spécimen intact est extrêmement difficile. De plus, presque tous les experts de ce stade ont derrière eux une grande secte de rang 5: toucher à l'un d'eux ébranle tout le reste.
 
-Cependant, la Secte des Cadavres peut résoudre ce problème si le prix est payé. Le corps sera celui d'un expert de la Transformation de l'Âme, mais peu importe vos recherches, vous ne saurez jamais d'où il provient.
+Cependant, la Secte Shi Yin peut résoudre ce problème si le prix est payé. Le corps sera celui d'un expert de la Transformation de l'Âme, mais peu importe vos recherches, vous ne saurez jamais d'où il provient.
 
-C'est le plus grand secret de la Secte des Cadavres, et nul n'en connaît la vérité. Une rumeur prétend même que la secte est capable de fournir aux plus grands experts du seul pays de rang 6, Suzaku, des corps parfaitement adaptés.
+C'est le plus grand secret de la Secte Shi Yin, et nul n'en connaît la vérité. Une rumeur prétend même que la secte est capable de fournir aux plus grands experts du seul pays de rang 6, Suzaku, des corps parfaitement adaptés.
 
 C'est une organisation puissante et mystérieuse. Les chefs de chaque sous-secte savent seulement que la secte principale réside dans un pays de culture de rang 5.
 
 Mais le véritable quartier général se trouve-t-il réellement dans un pays de rang 5? Personne n'a la réponse.
 
-Une chose est certaine: personne n'oserait s'en prendre à la Secte des Cadavres dans les pays de rang 4 ou supérieur. Quant aux pays de rang 3 ou moins, tant qu'on ne touche pas à ses fondements et qu'on ne nuit pas à ses récoltes, elle ne s'en soucie guère. Après tout, ces régions ne sont pour elle qu'un élevage de bas niveau, et non un lieu de commerce.
+Une chose est certaine: personne n'oserait s'en prendre à la Secte Shi Yin dans les pays de rang 4 ou supérieur. Quant aux pays de rang 3 ou moins, tant qu'on ne touche pas à ses fondements et qu'on ne nuit pas à ses récoltes, elle ne s'en soucie guère. Après tout, ces régions ne sont pour elle qu'un élevage de bas niveau, et non un lieu de commerce.

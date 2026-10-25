@@ -10,21 +10,21 @@ L'expression du Maître Simo changea et il se leva soudainement. Ses yeux, tels 
 
 « J'ai sous-estimé son esprit! Cependant, face à un pouvoir absolu, tout cela est inutile! » ricana le Maître Simo avant de s'avancer et de disparaître sans laisser de trace.
 
-Seul resta le duo père et fils du Clan du Dragon Blindé, les traits sombres.
+Seul resta le duo père et fils du Clan Long Jia, les traits sombres.
 
-« Père, la culture de ce cultivateur est élevée et il n'est pas simple... Il se cachait ici, et nous... » murmura le jeune maître du Clan du Dragon Blindé.
+« Père, la culture de ce cultivateur est élevée et il n'est pas simple... Il se cachait ici, et nous... » murmura le jeune maître du Clan Long Jia.
 
-Le Patriarche du Clan du Dragon Blindé répondit d'un ton lugubre: « Bien sûr qu'il n'est pas quelqu'un d'ordinaire... Si je ne me trompe pas, c'est lui qui a anéanti le Clan du Tonnerre Dispersé et tué leur Grand Ancien. Puis il a réprimé des dizaines de milliers de cultivateurs avant de s'enfuir, et il est recherché par le Conseil Souverain par un ordre du Système Stellaire Antique! »
+Le Patriarche du Clan Long Jia répondit d'un ton lugubre: « Bien sûr qu'il n'est pas quelqu'un d'ordinaire... Si je ne me trompe pas, c'est lui qui a anéanti le Clan Shan Lei et tué leur Grand Ancien. Puis il a réprimé des dizaines de milliers de cultivateurs avant de s'enfuir, et il est recherché par le Conseil Souverain par un ordre du Système Stellaire Antique! »
 
-« Quoi?! » Le jeune maître du Clan du Dragon Blindé fut stupéfait, son expression changeant radicalement.
+« Quoi?! » Le jeune maître du Clan Long Jia fut stupéfait, son expression changeant radicalement.
 
-« Sinon, pourquoi un cultivateur du troisième pas comme le Maître Simo viendrait-il ici? Si sa culture n'était pas si profonde, ton père ne l'aiderait jamais. Mais en comparaison, celui qui a détruit le Clan du Tonnerre Dispersé n'est après tout pas un cultivateur du troisième pas; je ne peux donc qu'aider le Maître Simo! »
+« Sinon, pourquoi un cultivateur du troisième pas comme le Maître Simo viendrait-il ici? Si sa culture n'était pas si profonde, ton père ne l'aiderait jamais. Mais en comparaison, celui qui a détruit le Clan Shan Lei n'est après tout pas un cultivateur du troisième pas; je ne peux donc qu'aider le Maître Simo! »
 
-Le jeune maître du Clan du Dragon Blindé réfléchit un instant, puis dit doucement: « Si le Senior Simo réussit, tout ira bien, mais si... »
+Le jeune maître du Clan Long Jia réfléchit un instant, puis dit doucement: « Si le Senior Simo réussit, tout ira bien, mais si... »
 
 « Il n'y a aucune possibilité! Même s'il ne meurt pas, il sera gravement blessé. Il n'aura même pas le temps de s'enfuir ou de guérir, encore moins de venir nous chercher des ennuis. Et même s'il venait chercher des ennuis, je ferai en sorte qu'il ne reparte jamais! »
 
-« Ton père est, après tout, le neuvième Ancien Déchu et un représentant du Conseil Déchu. Il n'osera pas! » Le Patriarche du Clan du Dragon Blindé, l'air fier, agita sa manche et partit.
+« Ton père est, après tout, le neuvième Ancien Déchu et un représentant du Conseil Déchu. Il n'osera pas! » Le Patriarche du Clan Long Jia, l'air fier, agita sa manche et partit.
 
 Face aux grands événements, garder son calme!
 
@@ -40,9 +40,9 @@ Cependant, dans ce monde, tant dans le Royaume Intérieur que dans le Royaume Ex
 
 Il osait affronter les cieux, lutter contre le destin et combattre le Dao!
 
-C'était Wang Lin! Il avait arraché la vie de Li Muwan au Dao Céleste, jouant une chance de survie au cœur du danger. Il possédait le royaume capable de condenser les Flammes Joss mais avait renoncé à s'élever par une force extérieure, ne comptant que sur ses cinq essences pour déclencher la Grande Porte du Vide. Il avait emprunté un chemin vers le Dao que bien peu avaient foulé depuis toujours!
+C'était Wang Lin! Il avait arraché la vie de Li Muwan au Dao Céleste, jouant une chance de survie au cœur du danger. Il possédait le royaume capable de condenser les Flammes Joss mais avait renoncé à s'élever par une force extérieure, ne comptant que sur ses cinq essences pour déclencher la Grande Porte Kong. Il avait emprunté un chemin vers le Dao que bien peu avaient foulé depuis toujours!
 
-Il avait conduit le peuple des 7 Millions de Mondes à briser le ciel et la terre pour retourner dans l'espace stellaire! Il avait tué le Grand Ancien du Clan du Tonnerre Dispersé malgré un niveau de culture inférieur! Il avait utilisé sa propre puissance pour venir dans l'Ancien Système Stellaire afin de ramener Li Qianmei chez elle!
+Il avait conduit le peuple des 7 Millions de Mondes à briser le ciel et la terre pour retourner dans l'espace stellaire! Il avait tué le Grand Ancien du Clan Shan Lei malgré un niveau de culture inférieur! Il avait utilisé sa propre puissance pour venir dans l'Ancien Système Stellaire afin de ramener Li Qianmei chez elle!
 
 Il avait semé le chaos dans l'Ancien Système Stellaire et était traqué par l'ensemble de ce dernier. Avec tout ce qu'il avait accompli, même Qing Lin d'autrefois ne pouvait que soupirer, sachant qu'il n'était pas son égal.
 
@@ -70,7 +70,7 @@ Les volcans surgissaient un à un. Leurs grondements créaient une onde de choc 
 
 Wang Lin était entouré de volcans. Son visage était serein, mais ses yeux brûlaient d'une puissante intention meurtrière!
 
-L'expression du Maître Simo devint sérieuse. Il n'oserait pas sous-estimer la puissance de quelqu'un capable de déclencher la Porte du Vide sans aucune Flamme Joss. À cet instant, il forma un sceau et fit un geste: le vortex autour de lui jaillit pour charger Wang Lin!
+L'expression du Maître Simo devint sérieuse. Il n'oserait pas sous-estimer la puissance de quelqu'un capable de déclencher la Porte Kong sans aucune Flamme Joss. À cet instant, il forma un sceau et fit un geste: le vortex autour de lui jaillit pour charger Wang Lin!
 
 Simultanément, la main droite de Wang Lin, levée vers le ciel, s'abattit impitoyablement vers le bas!
 

@@ -16,7 +16,7 @@ En revanche, les essences corporelles étaient plus simples à obtenir. Les esse
 
 À présent, ce qui résidait en Wang Lin était la graine de l'essence de l'eau. Grâce à elle, il pourrait lentement la mener à sa complétude.
 
-Les essences étaient ardues à parfaire, et créer la graine était encore plus complexe. Si Wang Lin n'avait pas dévoré la moitié de l'ancien dragon de tonnerre et l'Éternel Tonnerre du Clan du Tonnerre Dispersé, la graine de tonnerre ne serait jamais apparue.
+Les essences étaient ardues à parfaire, et créer la graine était encore plus complexe. Si Wang Lin n'avait pas dévoré la moitié de l'ancien dragon de tonnerre et l'Éternel Tonnerre du Clan Shan Lei, la graine de tonnerre ne serait jamais apparue.
 
 Il en allait de même pour l'essence du feu. S'il n'avait pas éveillé l'Oiseau Vermillon à maintes reprises, il n'aurait jamais obtenu la graine de feu.
 
@@ -108,6 +108,6 @@ D'un geste nonchalant de la main gauche, il s'empara de l'armure et de la lance 
 
 Cette scène fut observée par le Grand Empyréen Xuan Luo, à l'extérieur de la planète. Il afficha un sourire fier et une expression tyrannique.
 
-« Bien, c'est effectivement un enfant de mon Clan du Dao Antique. C'est la meilleure façon de traiter ceux qui osent offenser le Dao Antique. S'il avait fait moins, j'en aurais été quelque peu insatisfait. Cela ressemble beaucoup à mon tempérament. Si c'était moi, je lui aurais coupé les griffes! »
+« Bien, c'est effectivement un enfant de mon Clan Dao Gu. C'est la meilleure façon de traiter ceux qui osent offenser le Dao Antique. S'il avait fait moins, j'en aurais été quelque peu insatisfait. Cela ressemble beaucoup à mon tempérament. Si c'était moi, je lui aurais coupé les griffes! »
 
 « Secte Gui Yi, le groupe de célestes qui est venu ici est intéressant... » Le Grand Empyréen Xuan Luo regarda la tour avec désinvolture. S'il le voulait, il lui suffirait d'un revers de main pour que toute vie sur la planète disparaisse.

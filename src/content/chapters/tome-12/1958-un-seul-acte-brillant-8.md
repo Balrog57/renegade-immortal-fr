@@ -78,7 +78,7 @@ Bien que sa culture fût limitée, lorsque le Grand Empyréen Shuangzi avait sub
 
 À l'époque, il n'était qu'un Exalté Empyréen inconnu sous les ordres du Grand Empyréen Shuangzi, mais aujourd'hui, il était le seul fidèle restant.
 
-Tandis que des rires résonnaient dans la Secte Yang Pourpre, sur le Mont de l'Empereur, dans le Continent Central, le Grand Empyréen Jiu Di, autrefois si nonchalant, fixait intensément une feuille d'automne devant lui.
+Tandis que des rires résonnaient dans la Secte Yang Pourpre, sur le Mont Di, dans le Continent Central, le Grand Empyréen Jiu Di, autrefois si nonchalant, fixait intensément une feuille d'automne devant lui.
 
 « Tenter le douzième palais après avoir franchi le onzième... Ce type... Il peut tout juste passer pour quelqu'un d'important. Je pourrais lui faire une offre par pure complaisance... Mais avec Hai Zi là, si j'y vais, cela ne correspondrait pas tout à fait à ce que j'ai affirmé auparavant... » Bien qu'il marmonnât ces paroles, le vieil homme ne cillait pas, les yeux rivés sur la feuille.
 
@@ -112,7 +112,7 @@ L'Ascendant Empyréen Ming Dao médita un instant et dit: « Un simple douzième
 
 Mais l'homme d'âge mûr en robe dorée restait figé devant l'illusion, plongé dans ses pensées.
 
-Au même moment, sur le Mont de l'Empereur, le vieil homme se leva, les yeux brillant d'une lueur étrange. Cependant, après avoir hésité, il se rassit lentement.
+Au même moment, sur le Mont Di, le vieil homme se leva, les yeux brillant d'une lueur étrange. Cependant, après avoir hésité, il se rassit lentement.
 
 « Je l'ai déjà vu une fois, et cet enfant possède l'armure d'âme de Taureau Céleste... Franchir le douzième palais grâce à la puissance de l'armure signifie qu'il ne peut toujours pas égaler l'Ascendant Empyréen Ming Dao... À moins qu'il ne puisse franchir le treizième palais avec cette armure... alors il ne sera qu'un simple Ascendant Empyréen. » Le vieil homme réfléchit en se rasseyant et en fermant les yeux.
 

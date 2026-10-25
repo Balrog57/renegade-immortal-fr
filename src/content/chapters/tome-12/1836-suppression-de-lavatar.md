@@ -38,15 +38,15 @@ Dans le ciel, l'ombre gigantesque de Wang Lin retira son regard et ferma les yeu
 
 Dès que Wang Lin ferma les yeux, il leva le pied et fit un pas avec calme. Lorsque son pied toucha la marche, un grondement de tonnerre résonna. L'illusion des escaliers trembla comme si elle ne pouvait supporter son poids.
 
-C'était comme si le pas de Wang Lin émergeait directement du vide lointain. Oubliez le Pavillon des Écritures de l'Âme, il semblait que même la Secte de la Grande Âme ou le Continent entier du Taureau Céleste ne pourraient supporter un tel pas!
+C'était comme si le pas de Wang Lin émergeait directement du vide lointain. Oubliez le Pavillon Cang Hun, il semblait que même la Secte Da Hun ou le Continent entier du Taureau Céleste ne pourraient supporter un tel pas!
 
 Alors que le fracas tonitruant résonnait, Wang Lin fit un autre pas. Il ne s'arrêtait pas, mais ne se précipitait pas non plus. D'un calme olympien, il gravissait les marches comme s'il était chez lui.
 
-La troisième marche, la quatrième, la cinquième... Tous les membres de la Secte de la Grande Âme observaient en silence alors qu'il franchissait les 15 premières marches!
+La troisième marche, la quatrième, la cinquième... Tous les membres de la Secte Da Hun observaient en silence alors qu'il franchissait les 15 premières marches!
 
 Il avait gravi ces 15 marches sans la moindre pause, comme si les restrictions imposées par l'escalier n'avaient aucune importance pour lui.
 
-Cette scène fit pâlir les disciples de la Secte de la Grande Âme. Elle stupéfia tous les vieux monstres en culture fermée. L'Ancien Taureau Vert eut un souffle coupé!
+Cette scène fit pâlir les disciples de la Secte Da Hun. Elle stupéfia tous les vieux monstres en culture fermée. L'Ancien Taureau Vert eut un souffle coupé!
 
 Le sens divin de Yan Luan, logé dans la disciple, frémit et elle faillit perdre le contrôle. Elle serra les poings si fort que ses ongles s'enfoncèrent dans sa chair, faisant perler le sang.
 
@@ -54,11 +54,11 @@ Le monde gronda. Wang Lin leva le pied, les yeux clos. Il posa le pied sur la 16
 
 Une pression céleste jaillit de son regard et enveloppa la terre en contrebas. Quiconque croisait ses yeux baissait la tête, n'osant plus soutenir son regard. Le sens divin de Yan Luan, niché dans l'une de ses disciples, trembla violemment; elle avait l'impression que son essence allait être expulsée du corps.
 
-« Yan Luan, j'ai gagné! » Une voix calme résonna à travers le monde au moment où Wang Lin posait le pied sur la 19e marche. Il atteignait le huitième étage du Pavillon des Écritures de l'Âme!
+« Yan Luan, j'ai gagné! » Une voix calme résonna à travers le monde au moment où Wang Lin posait le pied sur la 19e marche. Il atteignait le huitième étage du Pavillon Cang Hun!
 
 À l'instant où ses paroles retentirent, le sens divin de Yan Luan qui occupait la disciple frémit, puis se dissipa lentement. La disciple recula de quelques pas, les yeux embués de confusion.
 
-À cet instant, toute la Secte de la Grande Âme fut plongée dans un silence de mort... Puis, bientôt, un immense tumulte éclata dans tout le secteur.
+À cet instant, toute la Secte Da Hun fut plongée dans un silence de mort... Puis, bientôt, un immense tumulte éclata dans tout le secteur.
 
 « Il... il a réussi!! »
 
@@ -68,7 +68,7 @@ Une pression céleste jaillit de son regard et enveloppa la terre en contrebas. 
 
 Au Pic du Ciel Vert, l'Ancien Taureau Vert regardait l'illusion disparaître lentement. Son expression changeait sans cesse jusqu'à devenir profondément complexe.
 
-Dans le Pavillon des Écritures de l'Âme, Yan Luan, qui se trouvait au sixième étage, perdit toute couleur. Son corps tremblait alors qu'elle restait immobile devant l'entrée des escaliers menant au septième étage.
+Dans le Pavillon Cang Hun, Yan Luan, qui se trouvait au sixième étage, perdit toute couleur. Son corps tremblait alors qu'elle restait immobile devant l'entrée des escaliers menant au septième étage.
 
 La gourde qu'elle tenait semblait être soumise à une force colossale cherchant à la lui arracher. Pourtant, Yan Luan serra les dents et agrippa fermement l'objet, résistant de toutes ses forces.
 
@@ -76,13 +76,13 @@ La gourde qu'elle tenait semblait être soumise à une force colossale cherchant
 
 Dès qu'il eut atteint le huitième étage, Wang Lin se retourna pour redescendre. Ayant réussi une fois à franchir les septième et huitième étages, il pouvait désormais monter et descendre à sa guise. Le mouvement ne déclencherait plus l'illusion et personne à l'extérieur ne pourrait voir ce qu'il faisait. Cependant, Yan Luan sentit comme si une entité surpuissante descendait vers elle depuis le sommet.
 
-Le craquement des pas résonna dans le Pavillon des Écritures de l'Âme. Wang Lin descendit lentement les marches et atteignit bientôt le septième étage.
+Le craquement des pas résonna dans le Pavillon Cang Hun. Wang Lin descendit lentement les marches et atteignit bientôt le septième étage.
 
 « Vous avez conclu ce pari, mais vous voulez revenir sur votre décision. Je n'ai rien demandé, c'est vous qui l'avez proposé! » La voix de Wang Lin était calme lorsqu'elle parvint aux oreilles de Yan Luan depuis le niveau supérieur.
 
 Les pupilles de Yan Luan se rétractèrent lorsqu'elle vit le pied droit de Wang Lin se poser sur l'escalier. De sa position, elle ne pouvait pas voir son visage, seulement ce pied. Lorsque celui-ci toucha la marche, Yan Luan eut l'impression de se tenir entre ciel et terre, face à un soleil immense et vaste.
 
-« Êtes-vous sûre de vouloir rompre ce pari? » Wang Lin descendait lentement, sa voix empreinte d'une majesté absolue. Ses paroles semblaient outrepasser les restrictions du lieu et transcender les lois du Continent Astral Immortel pour s'abattre sur la Secte de la Grande Âme.
+« Êtes-vous sûre de vouloir rompre ce pari? » Wang Lin descendait lentement, sa voix empreinte d'une majesté absolue. Ses paroles semblaient outrepasser les restrictions du lieu et transcender les lois du Continent Astral Immortel pour s'abattre sur la Secte Da Hun.
 
 Au fur et à mesure qu'il descendait, ses jambes et son corps apparurent progressivement sous ses yeux.
 
@@ -114,4 +114,4 @@ Ce n'est que lorsque Wang Lin disparut du champ de vision de Yan Luan que la sen
 
 Wang Lin retourna lentement au huitième étage. Cet endroit était couvert de poussière, comme si personne n'y avait mis les pieds depuis des éternités. La pièce n'était pas vaste; elle abritait neuf corps d'âmes de sept pouces qui émettaient une lueur douce.
 
-Ces neuf corps contenaient neuf sorts de Dao extrêmement puissants de la Secte de la Grande Âme. Chacun d'eux possédait le pouvoir de détruire le monde!
+Ces neuf corps contenaient neuf sorts de Dao extrêmement puissants de la Secte Da Hun. Chacun d'eux possédait le pouvoir de détruire le monde!

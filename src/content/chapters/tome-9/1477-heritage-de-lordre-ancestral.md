@@ -116,4 +116,4 @@ Le palais retomba dans un silence de mort. Seules deux respirations rauques cont
 
 Wang Lin ferma les yeux, et la tête gigantesque qui avait remplacé Tu Si disparut lentement. Après un long moment, il retrouva son calme et ouvrit les yeux.
 
-« Désormais, je ne suis plus un Dieu Antique issu de l'héritage de Tu Si... Je suis... l'Ordre Antique! » Wang Lin retira sa main droite du démon ancien et pointa entre ses sourcils. Il extirpa lentement de son âme l'héritage mémoriel de Tu Si qu'il avait obtenu dans la Terre du Dieu Antique!
+« Désormais, je ne suis plus un Dieu Antique issu de l'héritage de Tu Si... Je suis... l'Ordre Antique! » Wang Lin retira sa main droite du démon ancien et pointa entre ses sourcils. Il extirpa lentement de son âme l'héritage mémoriel de Tu Si qu'il avait obtenu dans la Terre Gu Shen!

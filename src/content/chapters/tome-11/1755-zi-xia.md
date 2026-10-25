@@ -48,7 +48,7 @@ Wang Lin avait parfaitement compris cela.
 
 Zi Xia le savait aussi; elle comprenait mieux que quiconque, même les autres concubines. Elle s'était rendue dans plus d'une douzaine de mondes détruits sans jamais bouger en y entrant. Elle déployait son Sens Divin pour attirer les gens à elle.
 
-« Puisque tu veux partir, je ne te raccompagnerai pas! » En voyant le jade que Zi Xia avait sorti, Wang Lin se détourna et partit, mais son cœur était sombre. Il avait vu le disciple de la Secte des Sept Dao sortir l'encens, et maintenant Zi Xia sortait le jade. Il était clair que ces individus avaient conclu un accord avant d'entrer.
+« Puisque tu veux partir, je ne te raccompagnerai pas! » En voyant le jade que Zi Xia avait sorti, Wang Lin se détourna et partit, mais son cœur était sombre. Il avait vu le disciple de la Secte Qi Dao sortir l'encens, et maintenant Zi Xia sortait le jade. Il était clair que ces individus avaient conclu un accord avant d'entrer.
 
 Cela rendrait cette épreuve bien plus complexe.
 

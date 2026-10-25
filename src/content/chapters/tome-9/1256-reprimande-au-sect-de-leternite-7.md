@@ -1,6 +1,6 @@
 ---
 n: 1256
-title: "Réprimande au Secte de l'Éternité (7)"
+title: "Réprimande au Secte Wu Ji (7)"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1256 - Rebuking the Everlasting Secte (7)
@@ -98,8 +98,8 @@ Les alentours étaient étrangement silencieux, troublés seulement par le mart�
 
 « Ceci... est donc le sort d'extraction de l'âme planétaire?! » Chaque vieux monstre connaissant la technique tremblait. La scène qui venait de se dérouler resterait gravée à jamais dans leurs esprits!
 
-Grâce aux pilules et aux bêtes féroces, il y avait bien plus de cultivateurs puissants dans le système stellaire de la Mer des Nuages que dans les trois autres systèmes. Cependant, à cause de la dépendance aux pilules et du blocage du Royaume Céleste du Vent, ils n'avaient pu accéder aux sorts laissés par les célestes. Les cultivateurs de la Mer des Nuages étaient donc bien en retard sur les trois autres systèmes en matière de compréhension des sorts!
+Grâce aux pilules et aux bêtes féroces, il y avait bien plus de cultivateurs puissants dans le système stellaire de la Mer Yun que dans les trois autres systèmes. Cependant, à cause de la dépendance aux pilules et du blocage du Royaume Céleste du Vent, ils n'avaient pu accéder aux sorts laissés par les célestes. Les cultivateurs de la Mer Yun étaient donc bien en retard sur les trois autres systèmes en matière de compréhension des sorts!
 
-L'extraction de l'âme planétaire était un sort puissant, mais dans la Mer des Nuages, ce n'était qu'une légende... Ce n'était pas que personne ne l'avait maîtrisé, mais bien trop peu d'entre eux y étaient parvenus.
+L'extraction de l'âme planétaire était un sort puissant, mais dans la Mer Yun, ce n'était qu'une légende... Ce n'était pas que personne ne l'avait maîtrisé, mais bien trop peu d'entre eux y étaient parvenus.
 
-Après avoir atteint la deuxième étape, les sorts d'un être sont liés à son domaine et à sa compréhension des cieux. Les cultivateurs de la Mer des Nuages s'appuyaient sur les pilules; ainsi, comparés aux cultivateurs des trois autres systèmes qui devaient comprendre leur domaine en luttant contre le monde, ils étaient bien trop faibles.
+Après avoir atteint la deuxième étape, les sorts d'un être sont liés à son domaine et à sa compréhension des cieux. Les cultivateurs de la Mer Yun s'appuyaient sur les pilules; ainsi, comparés aux cultivateurs des trois autres systèmes qui devaient comprendre leur domaine en luttant contre le monde, ils étaient bien trop faibles.

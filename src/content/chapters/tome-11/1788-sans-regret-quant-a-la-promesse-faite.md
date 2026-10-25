@@ -30,7 +30,7 @@ Sans regret!!
 
 Sans regret!!!
 
-Ces deux mots révélaient le cœur Dao de Wang Lin depuis plus de deux mille ans! Ils témoignaient de cette rencontre fatidique aux abords de la Mer des Diables, il y a plus de deux millénaires.
+Ces deux mots révélaient le cœur Dao de Wang Lin depuis plus de deux mille ans! Ils témoignaient de cette rencontre fatidique aux abords de la Mer Xiu Mo, il y a plus de deux millénaires.
 
 Ces mots libérèrent l'amour, la nostalgie, le remords et la lassitude qui habitaient Wang Lin tandis qu'il rugissait!
 
@@ -52,7 +52,7 @@ Les yeux de Xuan Luo brillèrent tandis qu'il observait Wang Lin, qui lui rendit
 
 « Il n'abandonnera pas son amante, même s'ils doivent mourir ensemble, et il ne le regrettera pas! »
 
-« Un être aussi noble et sentimental... Si mon Clan du Dao Antique ne l'abandonne pas et lui témoigne toujours sa bienveillance, il pourra certainement protéger mon Clan du Dao Antique sans amertume ni regret, pour l'éternité! » Une lueur mystérieuse traversa le regard de Xuan Luo, et il prit sa décision.
+« Un être aussi noble et sentimental... Si mon Clan Dao Gu ne l'abandonne pas et lui témoigne toujours sa bienveillance, il pourra certainement protéger mon Clan Dao Gu sans amertume ni regret, pour l'éternité! » Une lueur mystérieuse traversa le regard de Xuan Luo, et il prit sa décision.
 
 Wang Lin fixa profondément Xuan Luo et s'inclina une troisième fois. Il se détourna et partit. Lanmeng Daozun le suivit tout en restant plongé dans ses pensées.
 
@@ -120,11 +120,11 @@ Wang Lin referma sa main et rangea la lumière dans son espace de stockage. Il j
 
 Tout l'espace du monde des grottes était familier à Wang Lin. Il ne se pressait pas, parcourant les lieux comme s'il lui faisait ses adieux.
 
-Wang Lin avait fait la même promesse à une autre personne. Elle se trouvait dans les profondeurs de la Mer des Nuages, et son nom était Fan Shanlu.
+Wang Lin avait fait la même promesse à une autre personne. Elle se trouvait dans les profondeurs de la Mer Yun, et son nom était Fan Shanlu.
 
 Cette Fan Shanlu était une femme pitoyable. Elle était la première concubine du Souverain Céleste et la sœur cadette de Fan Shanmeng. Cependant, elle était restée trop longtemps dans le monde des grottes et avait fini par être entraînée dans l'illusion par sa sœur aînée, qui voulait ainsi obtenir le Sang du Serment de Wang Lin.
 
-« Elle est originaire du Continent Astral Immortel, elle n'a donc pas besoin de se réincarner pour partir... » Wang Lin avança et traversa Luotian pour pénétrer dans la Mer des Nuages. Il s'enfonça dans les profondeurs de la faille où se trouvait Fan Shanlu.
+« Elle est originaire du Continent Astral Immortel, elle n'a donc pas besoin de se réincarner pour partir... » Wang Lin avança et traversa Luotian pour pénétrer dans la Mer Yun. Il s'enfonça dans les profondeurs de la faille où se trouvait Fan Shanlu.
 
 Outre le fait de sauver Fan Shanlu, il y avait une chose que Wang Lin avait presque oubliée. Dans le dernier mois précédant son départ, un souvenir lui revint soudainement à l'esprit.
 

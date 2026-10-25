@@ -50,7 +50,7 @@ De plus, le dos du garçon était enfoncé et se décomposait à une vitesse ful
 
 « Lei Ji, laisse-moi derrière toi et fuis! » Du sang noir s'échappa du coin de la bouche du garçon à la grosse tête, et ses yeux avaient perdu toute lueur.
 
-La grande silhouette commença à se déplacer encore plus vite après avoir réfléchi un instant. Après un long moment, elle dit: « Da Tou, tu as été blessé pour me sauver. Moi, Lei Ji, je suis un membre du Clan des Démons Géants, comment pourrais-je simplement t'abandonner? Même si je te laisse, ils ne cesseront pas de nous poursuivre! Leur cible, c'est moi! Ne dis plus rien et concentre-toi sur ta guérison! »
+La grande silhouette commença à se déplacer encore plus vite après avoir réfléchi un instant. Après un long moment, elle dit: « Da Tou, tu as été blessé pour me sauver. Moi, Lei Ji, je suis un membre du Clan Ju Mo, comment pourrais-je simplement t'abandonner? Même si je te laisse, ils ne cesseront pas de nous poursuivre! Leur cible, c'est moi! Ne dis plus rien et concentre-toi sur ta guérison! »
 
 Le cultivateur à la grosse tête eut un sourire amer en contemplant les étoiles devant lui, son regard devenant encore plus morne. Il sembla apercevoir sa mère, telle qu'elle était il y a de nombreuses années. Elle ne semblait pas le gronder, mais le regardait d'un air doux en l'appelant.
 
@@ -76,7 +76,7 @@ Un jeune homme vêtu d'une chemise bleue était assis sur l'un des géants. Il �
 
 Il ne siégeait pas en position de lotus; il était affalé en arrière, tenant une poignée de cerises rouges à la main. Parfois, il en mangeait une tout en observant Lei Ji d'un regard à la fois moqueur et possessif.
 
-« Aucun corps convoité par ce Jeune Maître n'a jamais réussi à s'échapper dans cette Alliance. Je ne m'attendais pas à tomber sur le corps d'un membre de la lignée royale du Clan des Démons Géants alors que je venais simplement m'amuser. Pas mal, vraiment pas mal! »
+« Aucun corps convoité par ce Jeune Maître n'a jamais réussi à s'échapper dans cette Alliance. Je ne m'attendais pas à tomber sur le corps d'un membre de la lignée royale du Clan Ju Mo alors que je venais simplement m'amuser. Pas mal, vraiment pas mal! »
 
 « Ce vieux fou de la famille disait que l'Alliance était en plein chaos à cause de la guerre et que je ne devrais pas sortir n'importe comment. Si je n'étais pas sorti, comment aurais-je pu rencontrer une telle proie? » Le jeune homme mangea une cerise avec un sourire et cracha immédiatement le noyau. Le noyau jaillit comme un rayon de lumière vers Lei Ji.
 

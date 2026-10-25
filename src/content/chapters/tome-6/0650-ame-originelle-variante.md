@@ -52,7 +52,7 @@ Wang Lin poursuivit sa réflexion, puis leva la tête pour regarder au-delà de 
 
 Il n'avait pas pu absorber totalement le dragon; il n'en avait recueilli qu'un cinquième, le reste étant scellé au cœur de son âme originelle.
 
-Après réflexion, Wang Lin testa tous ses sorts. Il pouvait toujours utiliser l'intégralité de son arsenal, y compris la Rivière des Enfers. Ce ne fut qu'alors qu'il poussa un soupir de soulagement.
+Après réflexion, Wang Lin testa tous ses sorts. Il pouvait toujours utiliser l'intégralité de son arsenal, y compris la Rivière Huang Quan. Ce ne fut qu'alors qu'il poussa un soupir de soulagement.
 
 Toutefois, il sentit immédiatement une différence. Si les sorts semblaient identiques en apparence, une observation attentive révélait que chacun d'eux était imprégné du pouvoir du tonnerre!
 

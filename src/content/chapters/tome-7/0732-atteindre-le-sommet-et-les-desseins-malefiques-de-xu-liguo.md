@@ -34,7 +34,7 @@ L'apparence paresseuse du crapaud disparut soudainement. Ses yeux s'écarquillè
 
 Xu Liguo, qui observait la scène, eut les yeux grands ouverts. Il scruta attentivement la Bête du Tonnerre et pensa: « Le Maître est vraiment un Maître. Cela fait si peu de temps que je ne l'ai pas vu, et voilà qu'il a déjà une autre bête stupide. Battez-vous! C'est mieux si vous vous battez tous. Ainsi, vous saurez tous que c'est moi qui accompagne le Maître depuis le plus longtemps! »
 
-« Cependant, je dois dire que le Maître a vraiment de la chance avec les bêtes. Sur ce point, moi, le vieux Xu, je ne lui arrive pas à la cheville. Moi, c'est avec les beautés que j'ai de la chance! » L'expression de Xu Liguo sombra dans la rêverie alors qu'il pensait à la petite beauté de la Terre des Esprits Démoniaques.
+« Cependant, je dois dire que le Maître a vraiment de la chance avec les bêtes. Sur ce point, moi, le vieux Xu, je ne lui arrive pas à la cheville. Moi, c'est avec les beautés que j'ai de la chance! » L'expression de Xu Liguo sombra dans la rêverie alors qu'il pensait à la petite beauté de la Terre Yao Ling.
 
 « Hélas, depuis l'Antiquité, les sentiments mènent au regret... C'est une vérité que cette étoile de malheur, le vieux diable Wang, ne peut comprendre. » Xu Liguo soupira, ému. Il regarda la Bête du Tonnerre, le crapaud tonnerre et les moustiques avant de lever les yeux vers Wang Lin. Il éprouva un mélange de solitude et de fierté.
 
@@ -44,7 +44,7 @@ Il commença à méditer. Parmi les sorts qu'il maîtrisait, le plus puissant é
 
 Vient ensuite le sort d'Arrêt. Ce sort n'était pas moins puissant que le Coup Céleste. S'il était utilisé au moment opportun, il jouerait un rôle décisif.
 
-Outre ces deux sorts, il y avait le Doigt de la Mort, le Doigt Démoniaque et le Doigt des Enfers! Il y avait aussi les trois pensées du Dao issues du domaine de vie, de mort et de réincarnation: la Transformation de la Rivière des Enfers, la Condensation de l'âme de la rivière et la Puissance de la Rivière des Enfers.
+Outre ces deux sorts, il y avait le Doigt de la Mort, le Doigt Démoniaque et le Doigt des Enfers! Il y avait aussi les trois pensées du Dao issues du domaine de vie, de mort et de réincarnation: la Transformation de la Rivière Huang Quan, la Condensation de l'âme de la rivière et la Puissance de la Rivière Huang Quan.
 
 Ce qu'il devait ajuster, c'étaient les trois doigts! S'il continuait à les utiliser ainsi, cela lui porterait grand préjudice sur son chemin vers la troisième étape. Ces trois sorts étaient incomplets et nuiraient à son corps. Quant à savoir pourquoi ils entraveraient son ascension vers la troisième étape, Wang Lin ne le savait pas précisément, mais il en avait l'intuition.
 
@@ -118,9 +118,9 @@ Quant à Xu Liguo, il fut placé en résidence surveillée par Wang Lin! Si ce n
 
 Confiné dans un rayon de mille pieds autour de Wang Lin, Xu Liguo affichait une mine injustement affligée. Il n'osait plus sortir en douce. Tout ce qu'il faisait consistait à regarder au loin et à soupirer intérieurement: « Je ne faisais que prendre le contrôle de leurs corps physiques pour profiter de la sensation d'avoir de la chair. Ce n'est pas si grave, hélas... »
 
-Wang Lin n'avait pas le temps de se soucier de Xu Liguo. Après l'avoir contraint à rester près de lui, il se concentra de nouveau sur la perfection de ses sorts. Durant ce temps, il absorba lentement la rancune dans sa Rivière des Enfers.
+Wang Lin n'avait pas le temps de se soucier de Xu Liguo. Après l'avoir contraint à rester près de lui, il se concentra de nouveau sur la perfection de ses sorts. Durant ce temps, il absorba lentement la rancune dans sa Rivière Huang Quan.
 
-Après avoir absorbé cette rancune, la Rivière des Enfers n'était plus la même; l'âme de la rivière commença progressivement à prendre forme.
+Après avoir absorbé cette rancune, la Rivière Huang Quan n'était plus la même; l'âme de la rivière commença progressivement à prendre forme.
 
 Le temps passa rapidement. L'amélioration des sorts coûtait trop d'énergie à Wang Lin. Bien qu'il ne fût pas encore parvenu au but, ce perfectionnement constant lui permettait de continuer à comprendre la direction de la troisième étape, et le domaine de Wang Lin devenait progressivement plus puissant.
 

@@ -14,7 +14,7 @@ Après avoir clamé « Voler le mérite des cieux », bien que la puissance des 
 
 Ces deux lignes s'entrecoupèrent pour former une rune en forme de diamant!
 
-Cette rune surpassait tout ce que possédait le Clan des Immortels Délaissés. Sa complexité était telle que l'on ressentait le vertige rien qu'en la contemplant.
+Cette rune surpassait tout ce que possédait le Clan Xian Yi. Sa complexité était telle que l'on ressentait le vertige rien qu'en la contemplant.
 
 « Unir le clan antique, pensée éternelle! » Dès que Wang Lin prononça la dernière phrase, la rune de diamant libéra un éclat noir et blanc et commença à flotter lentement vers l'avant!
 
@@ -60,7 +60,7 @@ De plus, cette petite épée blanche ne possédait qu'une fraction de l'intentio
 
 Les yeux de Ming Hai brillèrent d'une lueur étrange tandis qu'il souriait en fixant la rune et Wang Lin, qui se trouvait derrière elle. Il rit: « Bien. Je ne m'attendais pas à voir un tel sort au crépuscule de ma vie. Je vais répondre à l'une de tes questions! Je pense que ce que tu veux le plus savoir, c'est ce qu'est réellement cet endroit! »
 
-« Ceci est la première couche de la grotte céleste, le Monde de la Bouteille! C'est ici que l'Empereur Céleste collecte l'énergie spirituelle céleste pour former des esprits célestes. On l'appelle le Monde de la Bouteille car ce monde entier se trouve dans une bouteille! Cette bouteille était l'un des trésors que l'Empereur Céleste avait raffinés durant ses premières années! »
+« Ceci est la première couche de la grotte céleste, le Monde Ping Zhong! C'est ici que l'Empereur Céleste collecte l'énergie spirituelle céleste pour former des esprits célestes. On l'appelle le Monde Ping Zhong car ce monde entier se trouve dans une bouteille! Cette bouteille était l'un des trésors que l'Empereur Céleste avait raffinés durant ses premières années! »
 
 « Cependant, l'Empereur Céleste ayant été gravement blessé, son sens divin s'est effondré. Un sens divin contenant la Fumée du Désert Solitaire de l'Empereur Céleste y est pénétré, transformant cet endroit en un désert de sable noir! Le gaz gris que tu as ressenti a été formé par le sort de l'Empereur Céleste! »
 

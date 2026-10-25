@@ -6,11 +6,11 @@ bookTitle: "Alliance's Secret"
 en: Chapter 999 - Yao Xixues hatred (2)
 slug: la-haine-de-yao-xixue-2
 ---
-À cet instant, Wang Lin émergea du vortex céleste. Dès son apparition, son esprit tressaillit et il tourna soudainement le regard vers le Pays du Démon du Vent. Il y perçut vaguement une rancœur monstrueuse à son égard.
+À cet instant, Wang Lin émergea du vortex céleste. Dès son apparition, son esprit tressaillit et il tourna soudainement le regard vers le Pays Feng Yao. Il y perçut vaguement une rancœur monstrueuse à son égard.
 
 Ce sentiment ne dura qu'un instant avant de s'évanouir, comme s'il n'avait jamais existé. Derrière lui, Situ Nan et les autres apparurent, flottant dans les airs pour contempler les lieux en contrebas.
 
-Hormis le Maître Fu Fengzi, c’était la première fois que le groupe venait ici. Bien que les trois frères Chen, eux aussi originaires de Tian Yun, appartinssent à un pays de rang 7, ils ne s'étaient pas intéressés à la Terre des Esprits Démoniaques auparavant. Désormais arrivés, ils ne purent s'empêcher d'observer les environs avec curiosité.
+Hormis le Maître Fu Fengzi, c’était la première fois que le groupe venait ici. Bien que les trois frères Chen, eux aussi originaires de Tian Yun, appartinssent à un pays de rang 7, ils ne s'étaient pas intéressés à la Terre Yao Ling auparavant. Désormais arrivés, ils ne purent s'empêcher d'observer les environs avec curiosité.
 
 En revenant dans ce lieu familier, Wang Lin fut profondément ému. Sa première pensée n'avait pas été de se rendre à la grotte céleste, mais d'aller vérifier l'état de la Tribu de l'Affinement de l'Âme. À l'époque, il avait dû fuir dans l'urgence. Avec le recul, il ressentait une profonde émotion.
 
@@ -22,7 +22,7 @@ Hu Pao!
 
 La loyauté de Treize et la trahison de Hu Pao formaient un contraste saisissant, gravé à jamais dans sa mémoire.
 
-Il ne pouvait oublier comment il s'était jeté dans une armée de plus de 100 000 hommes, au cœur de la Cité du Démon Antique, pour sauver ces deux individus! À ce moment-là, il ignorait que Hu Pao l'avait déjà trahi, mais même s'il l'avait su, il aurait agi de la même manière!
+Il ne pouvait oublier comment il s'était jeté dans une armée de plus de 100 000 hommes, au cœur de la Cité Gu Yao, pour sauver ces deux individus! À ce moment-là, il ignorait que Hu Pao l'avait déjà trahi, mais même s'il l'avait su, il aurait agi de la même manière!
 
 Il ne pouvait oublier ses paroles de ce jour-là, alors qu'il contemplait le ciel comme pour témoigner de son propre Dao!
 
@@ -46,13 +46,13 @@ Situ Nan activa le jeton selon la méthode de Wang Lin. Ils disparurent tous pou
 
 D'innombrables entraves protégeaient l'intérieur de la grotte céleste. Il fallait toutes les briser pour atteindre le cœur, et c'était là leur objectif ultime! Contrairement à Tian Yunzi et à Ling Tianhou, qui avaient déjà vaincu toutes les restrictions dans leurs grottes respectives, Wang Lin accusait un certain retard.
 
-De plus, Wang Lin possédait toujours le jeton de la grotte. Tant qu'il se trouvait sur la Terre des Esprits Démoniaques, il pouvait y pénétrer à tout moment, sauf en certains lieux particuliers. Avec son niveau actuel de culture, il lui suffisait d'apporter quelques modifications mineures au jeton pour que Situ Nan et les autres ne soient pas attaqués par l'esprit de la grotte.
+De plus, Wang Lin possédait toujours le jeton de la grotte. Tant qu'il se trouvait sur la Terre Yao Ling, il pouvait y pénétrer à tout moment, sauf en certains lieux particuliers. Avec son niveau actuel de culture, il lui suffisait d'apporter quelques modifications mineures au jeton pour que Situ Nan et les autres ne soient pas attaqués par l'esprit de la grotte.
 
-Une fois ce problème résolu, Wang Lin réfléchit un instant, puis son sens divin se déploya lentement. Avec sa culture actuelle de Scruteur du Nirvana de stade moyen, il couvrit aisément l'intégralité de la Terre des Esprits Démoniaques!
+Une fois ce problème résolu, Wang Lin réfléchit un instant, puis son sens divin se déploya lentement. Avec sa culture actuelle de Scruteur du Nirvana de stade moyen, il couvrit aisément l'intégralité de la Terre Yao Ling!
 
-Alors que le sens divin de Wang Lin s'étendait, la statue de pierre noire que les membres de la Tribu de l'Affinement de l'Âme transportaient vers la capitale du Pays du Démon de Feu libéra soudainement une lueur noire. Cette lumière était imprégnée d'une froideur infinie, et une force mystérieuse jaillit vers les cieux. Dès qu'elle entra en contact avec le sens divin de Wang Lin, les deux fusionnèrent.
+Alors que le sens divin de Wang Lin s'étendait, la statue de pierre noire que les membres de la Tribu de l'Affinement de l'Âme transportaient vers la capitale du Pays Huo Yao libéra soudainement une lueur noire. Cette lumière était imprégnée d'une froideur infinie, et une force mystérieuse jaillit vers les cieux. Dès qu'elle entra en contact avec le sens divin de Wang Lin, les deux fusionnèrent.
 
-La lueur noire émanant de la statue devint progressivement plus intense, jusqu'à recouvrir plus de la moitié du ciel au-dessus du Pays du Démon de Feu. D'innombrables membres de la Tribu de l'Affinement de l'Âme contemplèrent la statue ancestrale avec stupéfaction.
+La lueur noire émanant de la statue devint progressivement plus intense, jusqu'à recouvrir plus de la moitié du ciel au-dessus du Pays Huo Yao. D'innombrables membres de la Tribu de l'Affinement de l'Âme contemplèrent la statue ancestrale avec stupéfaction.
 
 On ne sait qui réagit le premier, mais certains s'agenouillèrent instantanément. Puis, presque tous les membres de la tribu se prosternèrent, les yeux brillants d'excitation.
 
@@ -70,7 +70,7 @@ Il ne parvenait pas à définir cette sensation, mais au moment de l'union, d'in
 
 Cette ferveur terrifiante ébranla Wang Lin lui-même. C’était le culte de plusieurs siècles des millions de membres de la tribu envers cette statue de pierre qui avait engendré cette force mystérieuse que même lui ne pouvait pleinement saisir.
 
-Tout en réfléchissant, Wang Lin fit un pas et disparut. Lorsqu'il réapparut, il surplombait la capitale du Pays du Démon de Feu. De là, il pouvait contempler la scène de millions de personnes agenouillées!
+Tout en réfléchissant, Wang Lin fit un pas et disparut. Lorsqu'il réapparut, il surplombait la capitale du Pays Huo Yao. De là, il pouvait contempler la scène de millions de personnes agenouillées!
 
 Dire "des millions" pouvait ne pas sembler grand-chose, mais aux yeux de Wang Lin, c'était une mer humaine sans fin qui recouvrait le sol. Des drapeaux plantés partout dansaient au vent, et les gémissements des fragments d'âmes emplissaient l'atmosphère. Dès l'apparition de Wang Lin, tous les fragments d'âmes poussèrent des cris perçants, comme s'ils reconnaissaient leur véritable maître!
 
@@ -90,10 +90,10 @@ Le regard des membres de la tribu était chargé d'une excitation qui stupéfia 
 
 « Treize accueille le retour de l'Ancêtre! »
 
-Les paroles de Treize embrasèrent l'enthousiasme de l'innombrable foule. De nouveau, une brume blanche s'éleva de chaque individu pour pénétrer la statue noire. Les drapeaux d'âmes se mirent à onduler comme sous l'effet d'une mer noire soudaine. Les fragments d'âmes s'envolèrent des bannières, enveloppant tout le Pays du Démon de Feu d'un brouillard noir impénétrable. Le nombre de ces fragments était inconcevable.
+Les paroles de Treize embrasèrent l'enthousiasme de l'innombrable foule. De nouveau, une brume blanche s'éleva de chaque individu pour pénétrer la statue noire. Les drapeaux d'âmes se mirent à onduler comme sous l'effet d'une mer noire soudaine. Les fragments d'âmes s'envolèrent des bannières, enveloppant tout le Pays Huo Yao d'un brouillard noir impénétrable. Le nombre de ces fragments était inconcevable.
 
 En observant les membres de la tribu, Wang Lin en reconnut certains, bien qu'il ne puisse plus nommer leurs visages. C'étaient manifestement des anciens qui étaient présents lors de sa dernière visite.
 
 « Je suis revenu. » La voix de Wang Lin se propagea lentement depuis les cieux pour atteindre les oreilles de chacun. Bien que ces trois mots fussent simples, ils retentirent comme des éclairs tombant du ciel. Toute la Tribu de l'Affinement de l'Âme poussa un cri de joie.
 
-Alors que la foule exultait, Wang Lin descendit progressivement pour atterrir sur l'enceinte de la capitale du Pays du Démon de Feu. Il était revenu ici, une fois de plus, après des centaines d'années!
+Alors que la foule exultait, Wang Lin descendit progressivement pour atterrir sur l'enceinte de la capitale du Pays Huo Yao. Il était revenu ici, une fois de plus, après des centaines d'années!

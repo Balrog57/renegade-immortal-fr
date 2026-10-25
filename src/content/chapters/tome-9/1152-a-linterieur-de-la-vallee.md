@@ -98,7 +98,7 @@ L'homme assis était un homme d'âge moyen. Son visage était livide, sans aucun
 
 Wang Lin réfléchit silencieusement en observant les quatre cadavres au sol, puis l'homme d'âge moyen, avant de hocher la tête.
 
-« Ces quatre personnes étaient mes disciples. Pour me protéger, ils ont été infectés par le poison de cette vieille femme de la Secte des Cinq Poisons et sont morts. » Une tristesse profonde habitait le regard de l'homme. Ces quatre étaient ses derniers disciples. Sans cet incident, ils seraient devenus des piliers de la secte.
+« Ces quatre personnes étaient mes disciples. Pour me protéger, ils ont été infectés par le poison de cette vieille femme de la Secte Wu Du et sont morts. » Une tristesse profonde habitait le regard de l'homme. Ces quatre étaient ses derniers disciples. Sans cet incident, ils seraient devenus des piliers de la secte.
 
 « Je ne peux plus utiliser l'énergie d'origine avec ce poison en moi... Prêtez-moi juste une trace d'énergie d'origine pour ouvrir mon espace de stockage. Je vous remettrai le jade et la recette, puis vous pourrez m'accorder une mort rapide! Pour des biens matériels, j'en suis arrivé là et j'ai même entraîné mes disciples dans ma chute... » L'amertume sur son visage s'intensifia.
 

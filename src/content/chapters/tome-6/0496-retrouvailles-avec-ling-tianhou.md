@@ -10,7 +10,7 @@ Les yeux de Wang Lin s'illuminèrent. Tous les autres en firent autant, fixant T
 
 L'Ancien Sun réfléchit un instant, puis poussa un soupir et agita la main. « Soit, vieil Tian Yunzi, ton caractère a toujours été étrange. Si tu veux le dire, dis-le donc. »
 
-Tian Yunzi sourit. « Au cours des innombrables années où l'Alliance de Culture a existé, elle n'a souffert qu'une seule fois, et c'était à cause de cet homme. Ce n'était pas un événement majeur. Il fut la seule personne que j'aie jamais rencontrée à avoir atteint la troisième étape. Hélas, il ne fit qu'une brève apparition avant de disparaître sans laisser de trace. »
+Tian Yunzi sourit. « Au cours des innombrables années où l'Alliance Xiu Zhen a existé, elle n'a souffert qu'une seule fois, et c'était à cause de cet homme. Ce n'était pas un événement majeur. Il fut la seule personne que j'aie jamais rencontrée à avoir atteint la troisième étape. Hélas, il ne fit qu'une brève apparition avant de disparaître sans laisser de trace. »
 
 Tian Yunzi poursuivit son enseignement du Dao, mais presque tous les auditeurs restaient hantés par ce « lui » dont il avait parlé. Cependant, Tian Yunzi reprit sa leçon sans jamais évoquer l'homme à nouveau. L'enseignement dura trois jours.
 
@@ -46,7 +46,7 @@ Plusieurs cultivateurs aux alentours pâlirent et reculèrent de nouveau. Wang L
 
 L'un des spectateurs s'exclama précipitamment: « Le Saint de l'Épée Ling Tianhou! »
 
-Sur la planète Tian Yun, qu'il s'agisse de la puissance individuelle ou de celle de sa secte, la Secte de l'Épée Da Luo se classait juste après la Secte du Destin Céleste!
+Sur la planète Tian Yun, qu'il s'agisse de la puissance individuelle ou de celle de sa secte, la Secte Da Luo Jian se classait juste après la Secte Tian Yun!
 
 Ling Tianhou afficha une expression sombre sur son visage émacié tandis que les innombrables épées flottant derrière lui libéraient des vagues d'hymnes d'épée. Il cria de sa voix la plus forte: « Disciples! Sortez et saluez le senior Tian Yunzi! »
 
@@ -92,7 +92,7 @@ Le visage de Ling Tianhou s'assombrit. Juste au moment où il s'apprêtait à in
 
 À ces mots, des rugissements tonitruants jaillirent des nuages. Le ciel sembla être déchiré par une paire de mains géantes invisibles, révélant un gouffre immense. Une explosion de lumière aux sept couleurs descendit de cette brèche et enveloppa tous les disciples derrière Ling Tianhou.
 
-Les regards froids des disciples de la Secte de l'Épée Da Luo disparurent soudainement, remplacés par des expressions de confusion. Ils perdirent le contrôle de leurs corps et furent aspirés vers le ciel, vers ce trou d'où émanait la lumière multicolore.
+Les regards froids des disciples de la Secte Da Luo Jian disparurent soudainement, remplacés par des expressions de confusion. Ils perdirent le contrôle de leurs corps et furent aspirés vers le ciel, vers ce trou d'où émanait la lumière multicolore.
 
 Ling Tianhou poussa un rugissement alors que l'épée serpentine sous ses pieds s'élançait vers les cieux. Tian Yunzi eut un léger sourire en tendant la main. L'épée serpentine ralentit brusquement, luttant avec force et émettant des hymnes d'épée capables de faire trembler le ciel.
 

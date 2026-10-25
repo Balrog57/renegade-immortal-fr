@@ -10,7 +10,7 @@ Depuis la disparition de l'ancêtre de la famille Ran et de Xiaoyao Sanren, la f
 
 Au cours de ces plus de vingt années de changements, les membres de la famille Sun étaient devenus arrogants.
 
-La Ville des Vastes Eaux possédait également une branche de la famille Sun. À cet instant, trois anciens au stade de la Formation de l'Âme étaient assis dans le hall principal du domaine de cette branche. Devant eux se tenaient toutes les personnes impliquées dans l'incident du restaurant.
+La Ville Qi Shui possédait également une branche de la famille Sun. À cet instant, trois anciens au stade de la Formation de l'Âme étaient assis dans le hall principal du domaine de cette branche. Devant eux se tenaient toutes les personnes impliquées dans l'incident du restaurant.
 
 C'était la première fois que Qing Yi se retrouvait dans une telle situation, elle était donc très nerveuse. Elle gardait la tête baissée, affichant une attitude empreinte de respect.
 
@@ -42,7 +42,7 @@ L'ancien au visage rouge laissa échapper un reniflement méprisant, puis se lev
 
 « Ce vieux souhaite voir sur quelle base cette personne ose proférer des paroles aussi arrogantes que "pas de prochaine fois!" Sur la planète Ran Yun, nul n'ose s'adresser à ma famille Sun avec un tel ton! »
 
-Dans la partie nord de la Ville des Vastes Eaux, l'enseigne du domicile de Wang Lin avait déjà été posée. Wang Lin avait personnellement écrit les deux caractères: « Résidence Wang ».
+Dans la partie nord de la Ville Qi Shui, l'enseigne du domicile de Wang Lin avait déjà été posée. Wang Lin avait personnellement écrit les deux caractères: « Résidence Wang ».
 
 Wang Lin n'avait pas remplacé les servantes de la demeure et continuait de les garder; de cette façon, le manoir était bien moins solitaire.
 
@@ -80,7 +80,7 @@ Alors que Wang Lin se tenait dans la cour sous le clair de lune, son ombre s'ét
 
 Cette nuit-là, Wang Ping ne dormit pas.
 
-Trois jours plus tard, un homme arriva aux portes de la Ville des Vastes Eaux. Il portait un manteau noir et semblait assez âgé. Dès son arrivée, il se rendit à la branche de la famille Sun.
+Trois jours plus tard, un homme arriva aux portes de la Ville Qi Shui. Il portait un manteau noir et semblait assez âgé. Dès son arrivée, il se rendit à la branche de la famille Sun.
 
 Tous les cultivateurs de la branche familiale sortirent pour accueillir ce visiteur. Bien qu'ils aient pressenti que l'arrivant serait un cultivateur de la Transformation de l'Âme, lorsque les trois anciens virent qui était là, ils en eurent le souffle coupé et se montrèrent encore plus respectueux.
 

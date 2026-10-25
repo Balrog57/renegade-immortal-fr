@@ -26,7 +26,7 @@ Au moment où il s'échappait, il savait qu'il avait emprunté une voie sans ret
 
 La route de trois cent mille lieues approchait bientôt de sa limite, tandis que les dix cultivateurs de la Formation du Noyau le poursuivaient d'un air railleur, sans se presser.
 
-Le Grand Ancien Qian Kun, au stade intermédiaire de la Formation du Noyau, déclara d'une voix lente: « Ce vieil homme veut voir jusqu'où ce junior peut courir. Pour avoir tué un Ancien de la Secte de la Lutte contre le Mal, même si tu t'enfuis aux confins les plus reculés du monde, tu es déjà mort. » Il agita la main et un symbole doré apparut soudainement. Puis, d'un mouvement vers l'avant, il projeta le symbole.
+Le Grand Ancien Qian Kun, au stade intermédiaire de la Formation du Noyau, déclara d'une voix lente: « Ce vieil homme veut voir jusqu'où ce junior peut courir. Pour avoir tué un Ancien de la Secte Dou Xie, même si tu t'enfuis aux confins les plus reculés du monde, tu es déjà mort. » Il agita la main et un symbole doré apparut soudainement. Puis, d'un mouvement vers l'avant, il projeta le symbole.
 
 La nuque de Wang Lin se hérissa, son corps frissonna, et il esquiva de justesse le symbole. Mais peu après, une série d'autres symboles surgit. Wang Lin les esquiva tous, serrant les dents tout en s'élançant avec précipitation. Graduellement, les cultivateurs derrière lui se rapprochaient. Une idée lui vint à l'esprit. Bien que cette méthode fût extrêmement périlleuse, si elle réussissait, tout danger s'évanouirait.
 
@@ -40,7 +40,7 @@ Cependant, à cet instant précis, une salve de symboles dorés jaillit comme l'
 
 La jeune fille en violet regarda les cultivateurs de la Formation du Noyau, le visage blême. Elle agita son étendard et le brouillard dissimula sa silhouette.
 
-Simultanément, les dix cultivateurs de la Formation du Noyau de la Secte de la Lutte contre le Mal arrivèrent devant la brume. L'un des vieillards, de petite taille, dont la tête était nettement plus massive que celle d'un homme ordinaire, se frotta le crâne et ricana d'un ton sinistre: « Cette petite fille appartient à ce vieil homme. Il ne me manquait qu'un fourneau de culture. » Sur ces mots, il lécha ses lèvres, forma une main gigantesque et tenta de saisir la brume. Pourtant, au moment où sa main toucha le brouillard, celui-ci se mit à rouler avec densité et un immense dragon de plus de 3,3 kilomètres de long en jaillit d'un bond.
+Simultanément, les dix cultivateurs de la Formation du Noyau de la Secte Dou Xie arrivèrent devant la brume. L'un des vieillards, de petite taille, dont la tête était nettement plus massive que celle d'un homme ordinaire, se frotta le crâne et ricana d'un ton sinistre: « Cette petite fille appartient à ce vieil homme. Il ne me manquait qu'un fourneau de culture. » Sur ces mots, il lécha ses lèvres, forma une main gigantesque et tenta de saisir la brume. Pourtant, au moment où sa main toucha le brouillard, celui-ci se mit à rouler avec densité et un immense dragon de plus de 3,3 kilomètres de long en jaillit d'un bond.
 
 Le cultivateur à la tête imposante poussa un cri et recula brusquement, les yeux écarquillés par la surprise. Les autres cultivateurs de la Formation du Noyau manifestèrent également leur étonnement en fixant le brouillard.
 

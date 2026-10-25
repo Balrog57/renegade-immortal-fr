@@ -18,9 +18,9 @@ Les scènes de ses moments passés avec Li Muwan...
 
 La solitude de sept cents ans de culture...
 
-Ces cent années de vie commune, dans l'illusion de la Secte du Destin Céleste...
+Ces cent années de vie commune, dans l'illusion de la Secte Tian Yun...
 
-La mélancolie de déambuler dans les rues de la Terre des Esprits Démoniaques...
+La mélancolie de déambuler dans les rues de la Terre Yao Ling...
 
 Tout cela s'interrompit brusquement lorsqu'il entendit la musique de la cithare s'élever depuis le bateau!
 
@@ -124,13 +124,13 @@ Des gouttes de liquide noir s'échappèrent de tous les pores de sa peau.
 
 « C'est une véritable purification de la moelle! Auparavant, tu ne faisais que nettoyer la surface! »
 
-Les autres commandants regardaient Wang Lin avec une pointe de jalousie. Nul ne savait mieux qu'eux pourquoi le tambour démoniaque était un trésor placé juste en dessous du Lac du Dragon!
+Les autres commandants regardaient Wang Lin avec une pointe de jalousie. Nul ne savait mieux qu'eux pourquoi le tambour démoniaque était un trésor placé juste en dessous du Lac Long Tan!
 
-Le Lac du Dragon abritait l'esprit de l'ancien démon et servait d'instructeur pour enseigner le Dao.
+Le Lac Long Tan abritait l'esprit de l'ancien démon et servait d'instructeur pour enseigner le Dao.
 
-Ce tambour démoniaque, quant à lui, était fabriqué à partir de la peau de l'ancien démon et contenait sa puissance. La rumeur disait que chaque Empereur Démon héritait d'un sort permettant de faire retentir le tambour afin d'extraire la force de l'ancien démon pour protéger la gloire du Pays du Démon Céleste!
+Ce tambour démoniaque, quant à lui, était fabriqué à partir de la peau de l'ancien démon et contenait sa puissance. La rumeur disait que chaque Empereur Démon héritait d'un sort permettant de faire retentir le tambour afin d'extraire la force de l'ancien démon pour protéger la gloire du Pays Tian Yao!
 
-Se purifier la moelle avec ce tambour était un honneur originellement réservé aux membres du clan impérial du Pays du Démon Céleste. Les étrangers devaient accomplir de vastes exploits pour y être autorisés.
+Se purifier la moelle avec ce tambour était un honneur originellement réservé aux membres du clan impérial du Pays Tian Yao. Les étrangers devaient accomplir de vastes exploits pour y être autorisés.
 
 Chaque commandant recevait l'opportunité de frapper le tambour lors de sa nomination, et la récompense promise était la purification de la moelle. Cependant, la réussite de ce processus dépendait entièrement de leur culture.
 

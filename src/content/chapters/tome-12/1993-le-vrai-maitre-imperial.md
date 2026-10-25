@@ -98,7 +98,7 @@ Pourtant, alors qu'il était sur le point de réussir l'absorption du pouvoir de
 
 « Qu'est-ce que c'est que ce délire? C'est impossible! Si vous êtes vraiment l'Enseignant Impérial, comment avez-vous pu quitter la cité ancestrale?! Jiu Di, répondez-moi! » L'Empereur Céleste prit une profonde inspiration. Bien qu'il fût sur le point de sombrer dans la démence, il parvint à se calmer par la force de sa volonté!
 
-« Ce plan fut conçu par un génie de mon clan. Il n'hésita pas à agir de manière à sembler se séparer du clan. Il multiplia les méthodes jusqu'à réussir à quitter ce lieu et à fonder la Secte de la Grande Âme... »
+« Ce plan fut conçu par un génie de mon clan. Il n'hésita pas à agir de manière à sembler se séparer du clan. Il multiplia les méthodes jusqu'à réussir à quitter ce lieu et à fonder la Secte Da Hun... »
 
 « Bien qu'il soit mort, il perfectionna le plan et le transmit. Il trouva également la clé de ce dessein: un individu nommé Wang Lin! Un cultivateur d'un monde caverneux... Seul son corps pouvait être parfaitement possédé par un membre de mon clan pour permettre l'exécution parfaite de ce plan... »
 

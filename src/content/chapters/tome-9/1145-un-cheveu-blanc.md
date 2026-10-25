@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1145 - One Strand of Hair
 slug: un-cheveu-blanc
 ---
-Les cheveux blancs flottant sous l'arc-en-ciel étaient une image qui resterait à jamais gravée dans les yeux des quatre grands anciens de la Secte de l'Origine. L'odeur du sang dans l'air et les fluctuations provenant de l'âme originelle effondrée indiquaient qu'une bataille fulgurante s'était déroulée ici.
+Les cheveux blancs flottant sous l'arc-en-ciel étaient une image qui resterait à jamais gravée dans les yeux des quatre grands anciens de la Secte Gui Yuan. L'odeur du sang dans l'air et les fluctuations provenant de l'âme originelle effondrée indiquaient qu'une bataille fulgurante s'était déroulée ici.
 
 Cet éclair incroyable, bien qu'il n'ait duré qu'un instant, avait coûté la vie au cultivateur du Purificateur du Nirvana que les quatre anciens avaient prévu de combattre jusqu'à la mort.
 
@@ -16,17 +16,17 @@ Cette scène les laissa transis.
 
 Le cri du jeune homme révélait l'effroi qui lui tenaillait le cœur. Bien que Lu Di fût au stade Yin Illusoire, son statut élevé l'avait préservé de tels dangers jusqu'alors.
 
-À l'origine, il pensait que ce serait un voyage facile et divertissant. Il croyait qu'avec la protection de Song Wude et son rang de jeune maître de la Secte du Dao Pourpre, il pourrait faire ce qu'il voulait dans la région de rang 5!
+À l'origine, il pensait que ce serait un voyage facile et divertissant. Il croyait qu'avec la protection de Song Wude et son rang de jeune maître de la Secte Zi Dao, il pourrait faire ce qu'il voulait dans la région de rang 5!
 
 Il n'aurait jamais pu imaginer une telle issue. Même à cet instant, il ne pouvait croire que Song Wude avait été tué ainsi par ce jeune homme aux cheveux blancs. Pas même l'âme originelle de Song Wude n'avait réussi à s'échapper.
 
 Le jeune homme aux cheveux blancs était devenu, pour lui, la créature la plus terrifiante au monde. La silhouette qui se rapprochait fit hurler le jeune homme encore plus fort.
 
-« Je suis le jeune maître de la Secte du Dao Pourpre! Si vous me tuez, mon père, Lu Yuncong, massacrera tout le continent de Mo Luo! » Il était terrifié; il n'avait jamais éprouvé une telle peur auparavant. L'ombre du jeune homme aux cheveux blancs se rapprochait et envahissait tout son champ de vision.
+« Je suis le jeune maître de la Secte Zi Dao! Si vous me tuez, mon père, Lu Yuncong, massacrera tout le continent de Mo Luo! » Il était terrifié; il n'avait jamais éprouvé une telle peur auparavant. L'ombre du jeune homme aux cheveux blancs se rapprochait et envahissait tout son champ de vision.
 
 La bête spirituelle noire tremblait sous lui et continuait de reculer. Cette créature avait déjà éveillé son intelligence, et sa crainte envers Wang Lin était presque aussi grande que celle de son jeune maître.
 
-Le jeune homme semblait avoir perdu la raison sous l'effet de la peur et hurla de toutes ses forces: « Si vous osez me blesser le moins du monde, ma Secte du Dao Pourpre vous traquera jusqu'à la fin de vos jours! » Sa main droite effleura sa sacoche de rangement et il en sortit un lotus noir.
+Le jeune homme semblait avoir perdu la raison sous l'effet de la peur et hurla de toutes ses forces: « Si vous osez me blesser le moins du monde, ma Secte Zi Dao vous traquera jusqu'à la fin de vos jours! » Sa main droite effleura sa sacoche de rangement et il en sortit un lotus noir.
 
 Le lotus était d'un noir absolu et fleurissait d'une manière démoniaque. Il émettait une lumière étrange qui enveloppait le visage tordu du jeune homme. Juste au moment où il allait utiliser ce trésor que son père lui avait offert, un doigt apparut devant lui. Ce doigt semblait empreint de douceur, mais il s'abattit instantanément entre ses sourcils.
 
@@ -42,29 +42,29 @@ Xu Yun fixa la silhouette et trembla légèrement. Elle mordit sa lèvre inféri
 
 Lu Di était mort. Son corps s'était effondré et son âme originelle avait disparu, tout comme celle de son oncle. Dans la main de Wang Lin reposaient un lotus noir épanoui et une sacoche de rangement.
 
-Si la personne que Lu Di avait menacée n'avait pas été Wang Lin, mais un natif de la région de rang 5, cela aurait pu avoir un certain effet. Ce serait particulièrement vrai pour les sectes plus faibles que la Secte du Dao Pourpre. Sous l'impulsion du moment, ils auraient hésité et se seraient contentés de capturer Lu Di au lieu de le tuer.
+Si la personne que Lu Di avait menacée n'avait pas été Wang Lin, mais un natif de la région de rang 5, cela aurait pu avoir un certain effet. Ce serait particulièrement vrai pour les sectes plus faibles que la Secte Zi Dao. Sous l'impulsion du moment, ils auraient hésité et se seraient contentés de capturer Lu Di au lieu de le tuer.
 
-Après tout, au sein de la région de rang 5, la Secte du Dao Pourpre était assez puissante pour figurer parmi les dix premiers. Plus important encore était le nom de « Lu Yuncong! » Il était extrêmement talentueux et jouissait d'une immense renommée dans cette région.
+Après tout, au sein de la région de rang 5, la Secte Zi Dao était assez puissante pour figurer parmi les dix premiers. Plus important encore était le nom de « Lu Yuncong! » Il était extrêmement talentueux et jouissait d'une immense renommée dans cette région.
 
-Cependant, toutes ces menaces étaient vaines face à Wang Lin. Un simple Lu Yuncong ou une simple Secte du Dao Pourpre n'étaient pas dignes, aux yeux de Wang Lin, de constituer une menace pour son existence!
+Cependant, toutes ces menaces étaient vaines face à Wang Lin. Un simple Lu Yuncong ou une simple Secte Zi Dao n'étaient pas dignes, aux yeux de Wang Lin, de constituer une menace pour son existence!
 
-Qu'il s'agisse du Céleste du Tonnerre de Luotian, de l'Empereur Divin de l'Oiseau Vermillon, de l'héritier d'une génération plus tard de l'Empereur Céleste Bai Fan, du jeune frère d'apprentissage du Seigneur Céleste Qing Shui ou du disciple de l'Empereur Céleste Qing Shuang récemment éveillé, chacun de ces titres pesait bien plus lourd que tout ce que la Secte du Dao Pourpre pouvait offrir.
+Qu'il s'agisse du Céleste du Tonnerre de Luotian, de l'Empereur Divin de l'Oiseau Vermillon, de l'héritier d'une génération plus tard de l'Empereur Céleste Bai Fan, du jeune frère d'apprentissage du Seigneur Céleste Qing Shui ou du disciple de l'Empereur Céleste Qing Shuang récemment éveillé, chacun de ces titres pesait bien plus lourd que tout ce que la Secte Zi Dao pouvait offrir.
 
-Les plus de 1 000 ans d'expérience de culture de Wang Lin n'avaient rien à voir avec le talent d'un génie comme Lu Yuncong. La menace de la Secte du Dao Pourpre était une plaisanterie; elle ne valait même pas un poil du corps de Tuo Sen!
+Les plus de 1 000 ans d'expérience de culture de Wang Lin n'avaient rien à voir avec le talent d'un génie comme Lu Yuncong. La menace de la Secte Zi Dao était une plaisanterie; elle ne valait même pas un poil du corps de Tuo Sen!
 
 D'un revers de la main droite, Wang Lin rangea la gigantesque bête spirituelle noire qui tremblait après avoir perdu son maître. Elle n'osa opposer aucune résistance.
 
-Le ciel s'éclaircissait déjà et un nouveau jour pointait avec le soleil. L'arc-en-ciel n'était plus une traînée floue mais devint limpide et éclatant. En traversant le firmament, il dégageait une lumière douce qui enveloppa le monde, le continent, et les yeux comme le cœur de tous les disciples de la Secte de l'Origine.
+Le ciel s'éclaircissait déjà et un nouveau jour pointait avec le soleil. L'arc-en-ciel n'était plus une traînée floue mais devint limpide et éclatant. En traversant le firmament, il dégageait une lumière douce qui enveloppa le monde, le continent, et les yeux comme le cœur de tous les disciples de la Secte Gui Yuan.
 
 Les cheveux blancs de Wang Lin flottèrent au vent, et d'un seul pas, il disparut.
 
-Du début à la fin, aucun cultivateur de la Secte de l'Origine n'avait pu distinguer le visage de Wang Lin. Ils n'avaient vu que cette figure indomptable et cette longue chevelure d'un blanc immaculé.
+Du début à la fin, aucun cultivateur de la Secte Gui Yuan n'avait pu distinguer le visage de Wang Lin. Ils n'avaient vu que cette figure indomptable et cette longue chevelure d'un blanc immaculé.
 
 Le silence tomba sur les environs, et la respiration de chacun devint pesante. Les anciens, à l'exception de Lu Yanfei, se regardèrent, stupéfaits. En un instant, leur désespoir et leur tristesse furent balayés par le choc. Tout s'était produit trop vite; ils avaient l'impression de rêver.
 
 « Lui... Qui est-il?! »
 
-« Pourquoi ce senior a-t-il aidé la Secte de l'Origine? »
+« Pourquoi ce senior a-t-il aidé la Secte Gui Yuan? »
 
 « Pour tuer instantanément Song Wude... Quel est son niveau de culture? »
 
@@ -74,11 +74,11 @@ Son visage rayonnant était comme une fleur éclose; il y avait une grâce et un
 
 Ses trois frères aînés fixaient d'un regard pensif l'endroit où Wang Lin avait disparu. Ils méditaient en silence, mais le choc qui les habitait les empêchait de retrouver leur calme.
 
-Après un bref silence, les disciples directs des anciens éclatèrent en acclamations. Ils se tournèrent vers l'arc-en-ciel et regagnèrent la Secte de l'Origine aux côtés des quatre anciens.
+Après un bref silence, les disciples directs des anciens éclatèrent en acclamations. Ils se tournèrent vers l'arc-en-ciel et regagnèrent la Secte Gui Yuan aux côtés des quatre anciens.
 
-« La Secte du Dao Pourpre ne restera pas sans rien faire lorsqu'ils apprendront la mort de Song Wude et de Lu Di... » Tandis que les quatre anciens avançaient, l'un d'eux réprima son choc et projeta ses pensées vers les trois autres.
+« La Secte Zi Dao ne restera pas sans rien faire lorsqu'ils apprendront la mort de Song Wude et de Lu Di... » Tandis que les quatre anciens avançaient, l'un d'eux réprima son choc et projeta ses pensées vers les trois autres.
 
-« Avant la mort du Maître, il a mentionné "le nord" et "les cheveux blancs". Ce senior a les cheveux blancs; il est peut-être l'homme dont le Maître parlait. Peut-être que notre Secte de l'Origine n'est pas encore à son déclin! »
+« Avant la mort du Maître, il a mentionné "le nord" et "les cheveux blancs". Ce senior a les cheveux blancs; il est peut-être l'homme dont le Maître parlait. Peut-être que notre Secte Gui Yuan n'est pas encore à son déclin! »
 
 « Cependant, qui est ce senior? Fait-il partie de notre Secte? J'ai scruté les 31 mortels, mais je n'ai rien trouvé. »
 
@@ -86,7 +86,7 @@ Après un bref silence, les disciples directs des anciens éclatèrent en acclam
 
 « Chercher est inutile. Puisque ce senior ne souhaite pas être découvert, laissons les choses suivre leur cours naturel. » Les yeux de Lu Yanfei étaient brillants et elle sourit de nouveau. Sa main droite effleura sa sacoche de rangement pour y envoyer une force destinée à détruire une vieille peinture.
 
-Peu de temps après, les membres de la Secte de l'Origine furent de retour au sein de leur secte. Ils se dispersèrent, animés par l'excitation. Lu Yanfei ne retourna pas à son pavillon de la montagne sud, mais se rendit dans la cour des herbes avec Xu Yun.
+Peu de temps après, les membres de la Secte Gui Yuan furent de retour au sein de leur secte. Ils se dispersèrent, animés par l'excitation. Lu Yanfei ne retourna pas à son pavillon de la montagne sud, mais se rendit dans la cour des herbes avec Xu Yun.
 
 Les deux femmes étaient d'un charme remarquable. Lorsqu'elles se tenaient ensemble, le spectacle était absolument saisissant. Certains disciples les aperçurent de loin et restèrent en transe un instant. Cependant, au souvenir du statut de Lu Yanfei, ils s'éveillèrent promptement pour aller les saluer, mais furent éconduits par Xu Yun. Il était clair qu'elles ne souhaitaient pas être importunées.
 

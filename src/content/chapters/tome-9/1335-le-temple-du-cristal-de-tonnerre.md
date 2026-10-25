@@ -1,30 +1,30 @@
 ---
 n: 1335
-title: Le Temple du Cristal de Tonnerre
+title: Le Temple Lei Jing
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1335 - Thunder Crystal Temple
 slug: le-temple-du-cristal-de-tonnerre
 ---
-On ne pouvait pas échanger des cristaux de tonnerre à tout moment au sein du Clan du Tonnerre Dispersé. Le Temple du Cristal de Tonnerre n'était ouvert que trois jours par an, sur chacune des treize planètes de culture du clan. L'échange de ces cristaux n'était possible que durant cette période.
+On ne pouvait pas échanger des cristaux de tonnerre à tout moment au sein du Clan Shan Lei. Le Temple Lei Jing n'était ouvert que trois jours par an, sur chacune des treize planètes de culture du clan. L'échange de ces cristaux n'était possible que durant cette période.
 
-Pendant ces trois jours, la plupart des cultivateurs de la planète de culture se précipitaient pour échanger leurs ressources auprès de l'Ancien responsable. De même, ils pouvaient utiliser les cristaux de tonnerre pour acquérir divers trésors appartenant au Clan du Tonnerre Dispersé.
+Pendant ces trois jours, la plupart des cultivateurs de la planète de culture se précipitaient pour échanger leurs ressources auprès de l'Ancien responsable. De même, ils pouvaient utiliser les cristaux de tonnerre pour acquérir divers trésors appartenant au Clan Shan Lei.
 
-Cependant, au sein du clan, les cristaux de tonnerre ne pouvaient faire l'objet d'aucun commerce privé ni d'aucun transfert. Ils ne pouvaient être échangés qu'auprès du Temple du Cristal de Tonnerre. Malgré cette restriction, le Clan du Tonnerre Dispersé comptant une population immense, ils avaient naturellement trouvé un moyen de contourner la règle: ils échangeaient simplement des objets de valeur équivalente pour simuler l'usage des cristaux.
+Cependant, au sein du clan, les cristaux de tonnerre ne pouvaient faire l'objet d'aucun commerce privé ni d'aucun transfert. Ils ne pouvaient être échangés qu'auprès du Temple Lei Jing. Malgré cette restriction, le Clan Shan Lei comptant une population immense, ils avaient naturellement trouvé un moyen de contourner la règle: ils échangeaient simplement des objets de valeur équivalente pour simuler l'usage des cristaux.
 
 Toutefois, cette méthode était extrêmement périlleuse; seuls les vieux monstres puissants osaient s'aventurer dans de tels trafics clandestins.
 
 L'impossibilité de transférer ou d'échanger les cristaux de tonnerre en privé était une grande gêne pour les membres du clan, mais au fil des millénaires, cette règle n'avait jamais été modifiée.
 
-Wang Lin se dirigea vers le Temple du Cristal de Tonnerre, accompagné de Dahong. Les deux se transformèrent en deux éclairs de lumière et fendirent rapidement le ciel.
+Wang Lin se dirigea vers le Temple Lei Jing, accompagné de Dahong. Les deux se transformèrent en deux éclairs de lumière et fendirent rapidement le ciel.
 
-Le Temple du Cristal de Tonnerre était situé au centre de la planète, au sommet d'une montagne. Ce pic était le point culminant de la planète de culture et restait enveloppé d'un brouillard vert toute l'année. On ne pouvait s'y aventurer sans prudence; quiconque pénétrait dans ce brouillard risquait d'être frappé par la foudre qui y résidait. Les conséquences allaient de graves blessures à une mort certaine.
+Le Temple Lei Jing était situé au centre de la planète, au sommet d'une montagne. Ce pic était le point culminant de la planète de culture et restait enveloppé d'un brouillard vert toute l'année. On ne pouvait s'y aventurer sans prudence; quiconque pénétrait dans ce brouillard risquait d'être frappé par la foudre qui y résidait. Les conséquences allaient de graves blessures à une mort certaine.
 
 C'était un lieu interdit!
 
-Ce n'était que durant les trois jours d'ouverture que le brouillard vert se dissipait légèrement, révélant un passage pour les membres du Clan du Tonnerre Dispersé.
+Ce n'était que durant les trois jours d'ouverture que le brouillard vert se dissipait légèrement, révélant un passage pour les membres du Clan Shan Lei.
 
-La Secte du Tonnerre Céleste était assez éloigné du Temple. En réalité, il se trouvait dans une région reculée de la planète, tout comme le pays de Zhao sur la planète Suzaku. Personne ne lui prêtait attention et personne ne venait l'explorer. Même si des cultivateurs puissants s'y établissaient, à moins d'un bouleversement majeur, cette région demeurait insignifiante à l'échelle de cette immense planète de culture.
+La Secte Tian Lei était assez éloigné du Temple. En réalité, il se trouvait dans une région reculée de la planète, tout comme le pays de Zhao sur la planète Suzaku. Personne ne lui prêtait attention et personne ne venait l'explorer. Même si des cultivateurs puissants s'y établissaient, à moins d'un bouleversement majeur, cette région demeurait insignifiante à l'échelle de cette immense planète de culture.
 
 Par exemple, Yu Fei n'avait jamais voyagé au-delà de 50 000 kilomètres. Bien que les habitants de ce rayon le connaissent, dès qu'il quittait la zone, il redevenait un inconnu. Il en allait de même pour Dahong.
 
@@ -36,13 +36,13 @@ C'était là un point où Xu Liguo manquait par rapport à Dahong. Wang Lin n'av
 
 En conséquence, Dahong était devenu encore plus hardi. Sans même attendre les ordres de Wang Lin, dès qu'ils croisaient une cible propice au pillage, il chargeait violemment pour revenir avec une montagne d'objets à échanger, remettant tout à Wang Lin sans rien garder pour lui-même.
 
-« Maître, le domaine du Temple du Cristal de Tonnerre est proche, nous ne pouvons plus voler de biens ici. Durant les trois jours de commerce, tout conflit est interdit dans la zone du Temple. C'est une mesure de protection. Plus tôt, nous n'avons pas pris une ligne droite pour éviter certains cultivateurs puissants. Je sais que la culture de Maître est capable de faire trembler les cieux, mais le Temple n'est ouvert que trois jours; il vaut mieux éviter les ennuis inutiles. Nous pourrons régler leurs comptes au retour », dit Dahong. Au fil des jours, il était passé de l'appellation « Aîné » à celle de « Maître ».
+« Maître, le domaine du Temple Lei Jing est proche, nous ne pouvons plus voler de biens ici. Durant les trois jours de commerce, tout conflit est interdit dans la zone du Temple. C'est une mesure de protection. Plus tôt, nous n'avons pas pris une ligne droite pour éviter certains cultivateurs puissants. Je sais que la culture de Maître est capable de faire trembler les cieux, mais le Temple n'est ouvert que trois jours; il vaut mieux éviter les ennuis inutiles. Nous pourrons régler leurs comptes au retour », dit Dahong. Au fil des jours, il était passé de l'appellation « Aîné » à celle de « Maître ».
 
 Ces deux termes portaient des significations bien distinctes. Dahong estimait qu'« Aîné » le faisait toujours passer pour un étranger. En appelant Wang Lin « Maître », comme le faisait Xu Liguo, il avait l'impression de faire partie de la famille. Wang Lin n'avait pas refusé ce changement.
 
 Une fois entrés dans le périmètre du Temple, la densité de cultivateurs augmenta et des traînées de lumière sillonnèrent le ciel. Dahong restait extrêmement vigilant. Bien que les combats y soient interdits, la présence de tant de puissants le rendait nerveux. Certains voyageaient en groupe; plus de dix personnes survolaient les lieux avec arrogance, obligeant les autres à s'écarter rapidement.
 
-« Les membres du Clan du Tonnerre Dispersé sont bien supérieurs aux cultivateurs du Royaume Intérieur... Il est facile d'y croiser des cultivateurs de la Formation de l'Âme, et il y en a beaucoup au stade de la Transformation de l'Âme... » murmura Wang Lin, détournant le regard des éclairs de lumière qui passaient.
+« Les membres du Clan Shan Lei sont bien supérieurs aux cultivateurs du Royaume Intérieur... Il est facile d'y croiser des cultivateurs de la Formation de l'Âme, et il y en a beaucoup au stade de la Transformation de l'Âme... » murmura Wang Lin, détournant le regard des éclairs de lumière qui passaient.
 
 À cet instant précis, une aura d'une puissance inouïe émana de derrière Wang Lin et Dahong. Cette aura se propageait comme une vague grondante, accompagnée de fracas de tonnerre. Les expressions des cultivateurs alentour changèrent instantanément, tous tournant leurs regards avec respect.
 
@@ -94,6 +94,6 @@ Sans trahir ses pensées, Wang Lin observa le vieil homme s'éloigner. Une fois 
 
 Tandis qu'ils murmuraient, Wang Lin et Dahong entrèrent dans le passage. Les deux gardiens les regardèrent sans rien remarquer de spécial et les laissèrent passer, ne voyant en eux que des êtres insignifiants.
 
-En pénétrant dans le brouillard vert, les yeux de Wang Lin s'illuminèrent. C'était la première fois qu'il pénétrait dans une zone aussi névralgique du Clan du Tonnerre Dispersé. Il observa les alentours, et une lueur étrange traversa son regard.
+En pénétrant dans le brouillard vert, les yeux de Wang Lin s'illuminèrent. C'était la première fois qu'il pénétrait dans une zone aussi névralgique du Clan Shan Lei. Il observa les alentours, et une lueur étrange traversa son regard.
 
 « Ce brouillard... »

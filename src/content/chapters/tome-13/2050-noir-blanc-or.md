@@ -20,7 +20,7 @@ Sur le Mont Empereur, Hai Zi se tenait au sommet de la montagne, vêtue d'une ro
 
 Lors de la précédente divination, elle avait ressenti une étrange familiarité. Elle n'en avait pas parlé à Jiu Di, craignant que ce ne soit qu'une illusion.
 
-Dans le clan Ancien, sur la Montagne de l'Origine, aux abords de la capitale impériale du clan Ancien, le visage du Grand Empyréen Song Tian était pâle. Il fixait l'horizon d'un regard tourmenté, et nul ne pouvait savoir à quoi il pensait.
+Dans le clan Ancien, sur la Montagne Yuan Shi, aux abords de la capitale impériale du clan Ancien, le visage du Grand Empyréen Song Tian était pâle. Il fixait l'horizon d'un regard tourmenté, et nul ne pouvait savoir à quoi il pensait.
 
 « Maître... » La voix hésitante de Chi Man provint de derrière lui.
 

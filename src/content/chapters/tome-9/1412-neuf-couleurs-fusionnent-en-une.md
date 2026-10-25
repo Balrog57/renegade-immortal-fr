@@ -24,7 +24,7 @@ Cependant, les trois précédents ne faisaient pas le poids face à celui-ci. Ce
 
 Depuis des temps immémoriaux, trop peu de personnes avaient réussi un quatrième éveil de l'Oiseau Vermillon! Pas plus de cinq!
 
-L'Oiseau Vermillon de première génération, de deuxième, de troisième et de quatrième génération... hormis eux, seul Wang Lin y parvenait! Bien que l'ancêtre de la troisième étape du Clan des Moineaux de Feu possédât une once de Feu Éthéré, il n'était pas un véritable Oiseau Vermillon à l'origine; comment aurait-il pu s'éveiller?
+L'Oiseau Vermillon de première génération, de deuxième, de troisième et de quatrième génération... hormis eux, seul Wang Lin y parvenait! Bien que l'ancêtre de la troisième étape du Clan Huo Que possédât une once de Feu Éthéré, il n'était pas un véritable Oiseau Vermillon à l'origine; comment aurait-il pu s'éveiller?
 
 Même s'il parvenait à engendrer du Feu Éthéré, ce ne serait qu'une voie déviante comparée au feu d'un authentique Oiseau Vermillon!
 

@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1414 - Fame of the Fallen Land
 slug: la-renommee-des-terres-dechues
 ---
-Le Feu Éthéré est invisible et peut enflammer toutes les émotions. Cependant, ce feu ne peut être utilisé que pour blesser des ennemis et ne peut pas augmenter le niveau de culture d'un membre du Clan de l'Oiseau Vermillon.
+Le Feu Éthéré est invisible et peut enflammer toutes les émotions. Cependant, ce feu ne peut être utilisé que pour blesser des ennemis et ne peut pas augmenter le niveau de culture d'un membre du Clan Zhu Que.
 
 Le Feu Éthéré est un feu capable d'anéantir le monde! Il peut tuer, mais ne peut être extrait du corps du cultivateur. Puisqu'il est invisible, il peut durer éternellement.
 
@@ -116,6 +116,6 @@ L'Oiseau Vermillon de la quatrième génération contemplait la dépouille de so
 
 « Au fil des ans, j'ai tenté de briser ce sceau, mais sans succès... Même l'ancêtre de la première génération n'a pu le lever... Je ne peux que rester dans l'Épreuve Terrestre, sans pouvoir faire un seul pas à l'extérieur... Si je partais, le sceau éclaterait, me faisant perdre la raison et me plongeant dans la folie... Lu Yun, ce n'est pas que ton maître ne voulait pas revenir, c'est qu'il ne le pouvait pas... » Les larmes de l'Oiseau Vermillon de la quatrième génération tombèrent sur la dépouille de son disciple, chargées d'une tristesse infinie, de souvenirs douloureux et d'un remords sans fin.
 
-« Pas seulement moi, mais l'Oiseau Vermillon de la deuxième génération porte aussi ce sceau en lui. Il peut le réprimer pour ne pas rester prisonnier de l'Épreuve Terrestre, mais il ne peut pas quitter les Terres Déchues... Les Terres Déchues... Les Terres Déchues... C'est là que mon Clan de l'Oiseau Vermillon est tombé... Soit nous périssons dans la folie, soit nous en sortons en renversant tout! » murmura amèrement l'Oiseau Vermillon de la quatrième génération, comme s'il expliquait son sort à son disciple... La silhouette de Wang Lin s'éloigna vers le ciel, de plus en plus ténue, jusqu'à disparaître totalement.
+« Pas seulement moi, mais l'Oiseau Vermillon de la deuxième génération porte aussi ce sceau en lui. Il peut le réprimer pour ne pas rester prisonnier de l'Épreuve Terrestre, mais il ne peut pas quitter les Terres Déchues... Les Terres Déchues... Les Terres Déchues... C'est là que mon Clan Zhu Que est tombé... Soit nous périssons dans la folie, soit nous en sortons en renversant tout! » murmura amèrement l'Oiseau Vermillon de la quatrième génération, comme s'il expliquait son sort à son disciple... La silhouette de Wang Lin s'éloigna vers le ciel, de plus en plus ténue, jusqu'à disparaître totalement.
 
 À l'instant précis où sa silhouette s'effaça, les yeux clos sous l'encens humain s'ouvrirent brusquement!

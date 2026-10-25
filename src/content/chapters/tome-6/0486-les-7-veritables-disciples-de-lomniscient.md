@@ -66,7 +66,7 @@ Bai Wei fut stupéfait. Il fixa Wang Lin un long moment avant d'éclater de rire
 
 Wang Lin prit une profonde inspiration, les yeux brillants.
 
-« Ce n'est pas tout. La quantité de jade céleste dont les cultivateurs de notre niveau ont besoin est inimaginable. Même en tant que disciple de Maître, tu reçois une allocation mensuelle, mais à mesure que ta culture augmentera, elle deviendra insuffisante. En revanche, une fois devenu l'un des sept véritables disciples, tu auras accès aux stocks illimités de jade céleste de la Secte du Destin Céleste! Es-tu enfin tenté? »
+« Ce n'est pas tout. La quantité de jade céleste dont les cultivateurs de notre niveau ont besoin est inimaginable. Même en tant que disciple de Maître, tu reçois une allocation mensuelle, mais à mesure que ta culture augmentera, elle deviendra insuffisante. En revanche, une fois devenu l'un des sept véritables disciples, tu auras accès aux stocks illimités de jade céleste de la Secte Tian Yun! Es-tu enfin tenté? »
 
 Les pupilles de Wang Lin se contractèrent!
 
@@ -74,7 +74,7 @@ Les pupilles de Wang Lin se contractèrent!
 
 « La transmission de Maître n'est pas un vague concept philosophique, mais de véritables sorts célestes! Sois l'un des sept véritables disciples pendant mille ans et tu recevras un sort céleste de qualité inférieure; un sort complet et authentique! »
 
-« Être l'un des sept véritables disciples pendant dix mille ans te permet d'obtenir un autre sort céleste de qualité inférieure. Mieux encore, tu pourras être envoyé à l'Alliance de la Culture pour approfondir tes études et devenir véritablement une puissance dans le monde de la culture! »
+« Être l'un des sept véritables disciples pendant dix mille ans te permet d'obtenir un autre sort céleste de qualité inférieure. Mieux encore, tu pourras être envoyé à l'Alliance Xiu Zhen pour approfondir tes études et devenir véritablement une puissance dans le monde de la culture! »
 
 Le regard de Wang Lin devint grave et il demanda, avec précision: « Si je reste un véritable disciple pendant 1 000 ans, je recevrai un sort céleste complet. Est-ce bien vrai? »
 
@@ -88,7 +88,7 @@ Au moment où il se détourna, le sourire disparut de son visage sans laisser de
 
 « Cher frère aîné, tu veux devenir l'un des sept véritables disciples, mais tant que je, Bai Wei, serai en vie, je ne te laisserai jamais réussir! Je ferai en sorte que tu échoues à chaque fois! C'est la seule façon pour moi de me venger de ce que tu m'as fait autrefois! »
 
-Wang Lin retourna au Pavillon de la Forêt Violette, l'esprit en éveil.
+Wang Lin retourna au Pavillon Zi Lin, l'esprit en éveil.
 
 Auparavant, Wang Lin ignorait la valeur d'un sort céleste complet de qualité inférieure, mais après avoir passé un mois aux côtés de Situ Nan et avoir appris les trois sorts de mort, il avait acquis une compréhension profonde des sorts célestes.
 
@@ -108,7 +108,7 @@ Il était midi. Le soleil brûlant trônait au zénith alors que Wang Lin sortai
 
 Alors qu'il traversait la Division Pourpre, chaque disciple croisé s'arrêtait pour lui faire une révérence respectueuse en l'appelant: « Septième Ancêtre ».
 
-En chemin, Wang Lin réalisa progressivement une chose: cette Secte du Destin Céleste ne ressemblait pas aux sectes de la planète Suzaku où seul le plus fort était respecté. Elle maintenait les traditions ancestrales où l'ancienneté dictait le respect, et la position d'un individu dépendait de son ancienneté au sein de la secte.
+En chemin, Wang Lin réalisa progressivement une chose: cette Secte Tian Yun ne ressemblait pas aux sectes de la planète Suzaku où seul le plus fort était respecté. Elle maintenait les traditions ancestrales où l'ancienneté dictait le respect, et la position d'un individu dépendait de son ancienneté au sein de la secte.
 
 Par conséquent, à l'exception de quelqu'un comme Wang Lin qui était apparu soudainement, les rangs étaient extrêmement stables de génération en génération. C'est pourquoi même Sun Yun, bien qu'étant devenu l'un des sept véritables disciples, devait encore appeler Zhao Xingsha « frère aîné » lorsqu'ils se rencontraient.
 
@@ -118,4 +118,4 @@ C'est dans ce pavillon que les disciples obtenaient leurs pilules et leurs pierr
 
 « Si je veux prétendre à la position de l'un des sept véritables disciples, ma culture doit atteindre le milieu du stade de la Transformation de l'Âme! Sur la planète Tian Yun, moi, Wang Lin, serai un être dominant! Ce n'est pas un endroit où l'on cache sa force; si je montre la moindre faiblesse, je finirai immédiatement sous les bottes de quelqu'un. Même Tian Yunzi le permet, sans quoi le combat précédent n'aurait jamais eu lieu! »
 
-« Puisqu'il en est ainsi, je veux voir jusqu'où je peux grimper dans cette Secte du Destin Céleste! Tant que je ne franchis pas la limite imposée par Maître, je pourrai faire tout ce que je souhaite! »
+« Puisqu'il en est ainsi, je veux voir jusqu'où je peux grimper dans cette Secte Tian Yun! Tant que je ne franchis pas la limite imposée par Maître, je pourrai faire tout ce que je souhaite! »

@@ -12,7 +12,7 @@ Même lors d'une recherche forcée, on ne pouvait obtenir que quelques fragments
 
 Bien que Wang Lin puisse vaincre des Exaltés Dorés, cela était dû à la fusion de son corps de Dao Antique et de sa culture, lui permettant d'atteindre une telle puissance de combat. En réalité, son niveau de culture n'était qu'au début du stade Tribulation du Vide.
 
-Pendant que l'âme originelle du Maître de la Secte du Dao Démoniaque était raffinée en une Veine Magique dans le corps de Wang Lin, celui-ci tenta de sonder son âme. Cependant, il ne put trouver aucun souvenir crucial, tel que le secret de la guerre entre le Continent du Taureau Céleste et le Continent du Démon Vert. Il ne trouva que quelques pensées concernant l'ancêtre Exalté du Dao Démoniaque.
+Pendant que l'âme originelle du Maître de la Secte Dao Mo était raffinée en une Veine Magique dans le corps de Wang Lin, celui-ci tenta de sonder son âme. Cependant, il ne put trouver aucun souvenir crucial, tel que le secret de la guerre entre le Continent Tian Niu et le Continent Lu Mo. Il ne trouva que quelques pensées concernant l'ancêtre Exalté du Dao Démoniaque.
 
 « L'ancêtre Exalté du Dao Démoniaque, un Exalté sous les ordres du Grand Empyréen Dao Yi... » Le soleil était haut dans le ciel et inondait la terre de sa lumière. Wang Lin ouvrit les yeux, et son regard s'illumina.
 
@@ -76,7 +76,7 @@ Wang Lin leva la tête vers l'horizon et se leva lentement. Une brise fit flotte
 
 « Cette bataille est le commencement!! »
 
-Alors que le grondement tonitruant se propageait dans le ciel, il enveloppa le monde entier. Une puissante intention meurtrière s'étala tandis qu'un rayon de lumière, semblant fendre le ciel en deux, fonça vers les ruines de la Secte du Dao Démoniaque.
+Alors que le grondement tonitruant se propageait dans le ciel, il enveloppa le monde entier. Une puissante intention meurtrière s'étala tandis qu'un rayon de lumière, semblant fendre le ciel en deux, fonça vers les ruines de la Secte Dao Mo.
 
 Un homme aux cheveux roux se trouvait au cœur de cette lumière!
 
@@ -86,19 +86,19 @@ Une silhouette apparut à mille pieds de Wang Lin!
 
 Le vieil homme aux cheveux roux portait une robe pourpre ornée de liserés dorés, avec un motif Tai Chi sur le pan droit. Ce motif était rouge feu, comme s'il incarnait le Dao lui-même!
 
-Le vieillard resta là et, après un long moment, fixa Wang Lin en disant: « Est-ce toi qui as détruit ma Secte du Dao Démoniaque? » Il était d'un calme absolu, ne montrant aucune émotion. Pourtant, sa voix déclencha d'innombrables échos de plus en plus intenses. Finalement, le ciel gronda, la terre rugit, et une onde de choc terrifiante frappa le corps de Wang Lin.
+Le vieillard resta là et, après un long moment, fixa Wang Lin en disant: « Est-ce toi qui as détruit ma Secte Dao Mo? » Il était d'un calme absolu, ne montrant aucune émotion. Pourtant, sa voix déclencha d'innombrables échos de plus en plus intenses. Finalement, le ciel gronda, la terre rugit, et une onde de choc terrifiante frappa le corps de Wang Lin.
 
 Wang Lin resta immobile, ses pupilles se rétractant légèrement, et répondit calmement: « Oui! »
 
-« Après avoir détruit ma Secte du Dao Démoniaque, tu as encore attendu ici. Vas-tu me défier? » Voyant l'impassibilité de Wang Lin, le regard du vieil homme devint plus intense.
+« Après avoir détruit ma Secte Dao Mo, tu as encore attendu ici. Vas-tu me défier? » Voyant l'impassibilité de Wang Lin, le regard du vieil homme devint plus intense.
 
 Wang Lin fixa l'homme et dit simplement: « Oui! »
 
-« Bien! » L'ancêtre de la Secte du Dao Démoniaque ne montra ni mépris ni colère. À son niveau de culture, toutes les fluctuations émotionnelles avaient disparu. Il était un Exalté Empyréen subordonné au Grand Empyréen Dao Yi. Bien qu'il ne fût pas le plus puissant des Exaltés Empyréens, il se situait toujours au sommet du Clan Céleste.
+« Bien! » L'ancêtre de la Secte Dao Mo ne montra ni mépris ni colère. À son niveau de culture, toutes les fluctuations émotionnelles avaient disparu. Il était un Exalté Empyréen subordonné au Grand Empyréen Dao Yi. Bien qu'il ne fût pas le plus puissant des Exaltés Empyréens, il se situait toujours au sommet du Clan Céleste.
 
 « Je vais t'accorder l'opportunité de me défier. Si tu peux encaisser trois de mes coups, alors j'oublierai la destruction de ma Secte! » L'ancêtre agita sa manche et, à mille pieds de distance, lança un coup de poing vers Wang Lin.
 
-Ce coup fit changer les couleurs du monde et déforma les ruines de la Secte du Dao Démoniaque. Tout bascula; c'était comme si cet espace était devenu une existence distincte.
+Ce coup fit changer les couleurs du monde et déforma les ruines de la Secte Dao Mo. Tout bascula; c'était comme si cet espace était devenu une existence distincte.
 
 Au sein de cette distorsion, toute la puissance du monde fut absorbée par le coup de poing de l'homme aux cheveux roux, ne laissant plus aucune force dans cet espace.
 

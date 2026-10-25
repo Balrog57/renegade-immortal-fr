@@ -62,7 +62,7 @@ Wang Lin fit un pas en avant. Son mouvement n'était pas rapide, mais il marchai
 
 L'éclat doré dans les yeux du général s'intensifia et il s'écria: « Intéressant! Tu es le premier à connaître une révélation sous mon Intention de Combat des Dix Effondrements! Voyons si tu peux supporter ce cinquième effondrement! »
 
-Le cinquième effondrement surgit soudainement du vide sitôt le général achevé de parler. Sa puissance était dix fois supérieure à celle du quatrième. Dès son apparition, des rugissements tonnants résonnèrent comme si un châtiment divin s'abattait sur un rayon de 3,3 kilomètres alentour. Le fracas était tel que toute la Cité de l'Ancien Démon pouvait l'entendre.
+Le cinquième effondrement surgit soudainement du vide sitôt le général achevé de parler. Sa puissance était dix fois supérieure à celle du quatrième. Dès son apparition, des rugissements tonnants résonnèrent comme si un châtiment divin s'abattait sur un rayon de 3,3 kilomètres alentour. Le fracas était tel que toute la Cité Gu Yao pouvait l'entendre.
 
 L'expression de Wang Lin resta sombre alors qu'il affrontait le cinquième effondrement avec son Doigt Démoniaque. Son index droit pressa soudainement vers l'avant; toute l'énergie spirituelle démoniaque se concentra à la pointe de son doigt pour se transformer instantanément en une flamme démoniaque!
 

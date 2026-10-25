@@ -56,7 +56,7 @@ Wan Er était son tout et sa seule faiblesse. Il n'autoriserait personne à lui 
 
 Cependant, certaines choses étaient encore plus importantes que sa propre existence! Le problème était qu'en cette vie, au-delà de l'amour, il y avait des dettes de gratitude dont il ne pouvait se défaire!
 
-« À partir de maintenant, je te confie la Secte de l'Affinement de l'Âme... » Sur la planète Suzaku, le maître de la Secte de l'Affinement de l'Âme, Dun Tian, avait remis à Wang Lin le trésor suprême de sa secte, la bannière des âmes, avant de s'éteindre. Après avoir déposé l'héritage sur ses épaules, Dun Tian avait fermé les yeux avec un sourire... Situ Nan avait renoncé à la chance de s'emparer de la Perle Défiant le Ciel pour accompagner Wang Lin pendant des centaines d'années. Il lui avait enseigné la culture depuis sa jeunesse. Un maître, un père, un frère et aussi un ami... Sans Situ, il n'y aurait pas de Wang Lin! Wang Lin avait un jour dit quelque chose sur Situ qui représentait toute la gratitude qu'il lui portait!
+« À partir de maintenant, je te confie la Secte Lian Hun... » Sur la planète Suzaku, le maître de la Secte Lian Hun, Dun Tian, avait remis à Wang Lin le trésor suprême de sa secte, la bannière des âmes, avant de s'éteindre. Après avoir déposé l'héritage sur ses épaules, Dun Tian avait fermé les yeux avec un sourire... Situ Nan avait renoncé à la chance de s'emparer de la Perle Défiant le Ciel pour accompagner Wang Lin pendant des centaines d'années. Il lui avait enseigné la culture depuis sa jeunesse. Un maître, un père, un frère et aussi un ami... Sans Situ, il n'y aurait pas de Wang Lin! Wang Lin avait un jour dit quelque chose sur Situ qui représentait toute la gratitude qu'il lui portait!
 
 « Moi, Wang Lin, je ne m'agenouillerai jamais devant le ciel ni la terre, je ne respecte que Situ! »
 
@@ -76,7 +76,7 @@ Le dernier souhait de l'ancien Empereur Oiseau Vermillon était que Wang Lin vei
 
 La deuxième génération d'Oiseau Vermillon n'avait connu Wang Lin que quelques jours. Son rire franc, son expression satisfaite, son admiration et sa gentillesse lui revinrent en mémoire. Il avait pêché un dragon pour offrir son sang à Wang Lin et avait tenté de le sauver à maintes reprises lors des épreuves. Il avait même rugi face à la première génération d'Oiseau Vermillon dans le bâton d'encens céleste!
 
-La deuxième génération lui avait transmis la méthode pour contrôler le dragon de flamme et la carapace de tortue de la Restriction de l'Âme Ancienne. De plus, avant le départ de Wang Lin, il avait clairement désobéi aux ordres de la première génération et dû en payer un prix inconnu pour enseigner à Wang Lin le sortilège le plus puissant du Clan de l'Oiseau Vermillon: l'Ombrelle Brûlante du Royaume!
+La deuxième génération lui avait transmis la méthode pour contrôler le dragon de flamme et la carapace de tortue de la Restriction de l'Âme Ancienne. De plus, avant le départ de Wang Lin, il avait clairement désobéi aux ordres de la première génération et dû en payer un prix inconnu pour enseigner à Wang Lin le sortilège le plus puissant du Clan Zhu Que: l'Ombrelle Brûlante du Royaume!
 
 « Petit gars, n'oublie pas que la prochaine fois que nous nous verrons, tu devras choisir la septième génération pour ce vieil homme. Choisis un enfant déterminé! Tu as l'air plutôt froid, mais même toi, tu as été espiègle à un moment donné. Quel dommage... Ah, qu'est-ce qu'il y a de si bien dans la culture duale, ce vieil homme ne comprend vraiment pas... »
 

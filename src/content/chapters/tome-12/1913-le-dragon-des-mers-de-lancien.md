@@ -34,11 +34,11 @@ En conséquence, même les quatre autres Grands Empyréens témoignaient un cert
 
 Tandis que tous les cultivateurs de la Secte Gui Yi s'inclinaient, la silhouette dorée surplombait la terre du regard.
 
-« Il y a trois édits impériaux: l'un ici, l'un à la Secte de la Grande Âme, et le dernier à la Secte du Dao Démoniaque du Continent du Démon Vert! »
+« Il y a trois édits impériaux: l'un ici, l'un à la Secte Da Hun, et le dernier à la Secte Dao Mo du Continent Lü Mo! »
 
 D'un mouvement de la main droite, la lumière dorée brilla de plus belle. Un édit impérial, fait d'une matière inconnue, fut déployé par cet être.
 
-« Le lignage céleste perdure depuis l'Antiquité jusqu'à ce jour. Les cultivateurs du Continent du Taureau Céleste et du Continent du Démon Vert doivent cesser immédiatement cette guerre! Yun Yifeng, Tang Jia, Bian Yun, Zhou Hai, Zhao Dongqing... Ces huit personnes devront se rendre au palais et entrer dans le temple ancestral pour subir l'épreuve!! »
+« Le lignage céleste perdure depuis l'Antiquité jusqu'à ce jour. Les cultivateurs du Continent Tian Niu et du Continent Lu Mo doivent cesser immédiatement cette guerre! Yun Yifeng, Tang Jia, Bian Yun, Zhou Hai, Zhao Dongqing... Ces huit personnes devront se rendre au palais et entrer dans le temple ancestral pour subir l'épreuve!! »
 
 La voix de la silhouette dorée était lente, mais chaque mot résonnait comme un coup de tonnerre. Les huit cultivateurs ainsi nommés furent envahis par l'excitation.
 
@@ -46,7 +46,7 @@ Ces huit noms désignaient, parmi les seize cultivateurs les plus remarquables d
 
 Alors que ces paroles résonnaient, le Maître de la Secte Gui Yi laissa échapper un profond soupir et esquissa un sourire. Cette guerre semblait complexe, mais elle était en réalité très simple: la bataille entre les deux continents servait à mettre en avant la nouvelle génération afin d'attirer l'attention de l'Empereur Céleste et de pouvoir entrer dans le temple ancestral!
 
-Le Maître de la Secte Gui Yi n'était pas le seul à sourire. Les Exaltés de Tribulation du Vide du Continent du Démon Vert souriaient également. Ils joignirent les mains et s'inclinèrent une fois de plus lorsque l'édit fut achevé.
+Le Maître de la Secte Gui Yi n'était pas le seul à sourire. Les Exaltés de Tribulation du Vide du Continent Lu Mo souriaient également. Ils joignirent les mains et s'inclinèrent une fois de plus lorsque l'édit fut achevé.
 
 « Nous obéissons tous à la volonté de l'Empereur! »
 
@@ -54,13 +54,13 @@ La silhouette dorée agita sa main droite et l'édit doré s'envola. Il flotta d
 
 Après cela, la silhouette dorée ne prononça plus un mot et disparut du ciel. La clarté dorée s'estompa lentement pour laisser place à la normale.
 
-Presque au même instant, à l'extérieur de la Secte de la Grande Âme, le combat entre les deux camps atteignait son paroxysme. Yun Kong et les génies de la Secte de la Grande Âme étaient en plein affrontement lorsque la seconde silhouette dorée apparut.
+Presque au même instant, à l'extérieur de la Secte Da Hun, le combat entre les deux camps atteignait son paroxysme. Yun Kong et les génies de la Secte Da Hun étaient en plein affrontement lorsque la seconde silhouette dorée apparut.
 
-La scène se répéta à l'identique au-dessus de la Secte de la Grande Âme.
+La scène se répéta à l'identique au-dessus de la Secte Da Hun.
 
 Tous les cultivateurs s'inclinèrent, et l'édit impérial portait un message quasi identique, seuls les huit noms changeaient pour inclure Yun Kong et ses compagnons!
 
-Une fois la silhouette dorée partie, un silence absolu tomba sur la Secte de la Grande Âme, à l'intérieur comme à l'extérieur.
+Une fois la silhouette dorée partie, un silence absolu tomba sur la Secte Da Hun, à l'intérieur comme à l'extérieur.
 
 L'Ancien Taureau Vert regarda le ciel après la dissipation de la lumière dorée, l'expression tourmentée. Il soupira; trop de cultivateurs étaient morts dans cette guerre entre les deux continents, mais pour saisir cette chance, ils n'avaient pas d'autre choix!
 
@@ -68,11 +68,11 @@ C'était l'opportunité unique d'entrer dans le temple ancestral!
 
 « Bien que la divination de l'Ancien ait légèrement changé, elle est restée globalement la même... Mais je n'ai jamais dit à Wang Lin la raison... » Le vieil homme secoua la tête dans un soupir et se dirigea vers son lieu de culture retiré.
 
-Cette guerre qui avait duré plus de cent ans prit fin grâce à ces deux édits impériaux. Les cultivateurs du Continent du Démon Vert entamèrent leur retraite progressive vers leurs terres d'origine.
+Cette guerre qui avait duré plus de cent ans prit fin grâce à ces deux édits impériaux. Les cultivateurs du Continent Lu Mo entamèrent leur retraite progressive vers leurs terres d'origine.
 
-Le Continent du Taureau Céleste avait subi de lourdes pertes, mais le Continent du Démon Vert en avait subi davantage!
+Le Continent Tian Niu avait subi de lourdes pertes, mais le Continent Lu Mo en avait subi davantage!
 
-Sur le Continent du Démon Vert, au sein de la Secte du Dao Démoniaque, alors que le sceau se contractait rapidement, quiconque le touchait mourait dans des souffrances atroces. Même les bâtiments étaient réduits en ruines par la puissance du sceau.
+Sur le Continent Lu Mo, au sein de la Secte Dao Mo, alors que le sceau se contractait rapidement, quiconque le touchait mourait dans des souffrances atroces. Même les bâtiments étaient réduits en ruines par la puissance du sceau.
 
 En moins de trente respirations, le sceau avait tout détruit et massacré les cultivateurs. Il finit par se concentrer autour du lac situé sous les pieds de Wang Lin.
 
@@ -86,9 +86,9 @@ Dans une telle situation, s'il prenait soin de préserver ces âmes originelles,
 
 À l'avenir, il ne lui serait pas difficile d'obtenir des âmes originelles de la Tribulation du Vide. Cependant, pour ces dizaines de cultivateurs du troisième stade, il n'hésita pas et les rangea dans son espace de stockage.
 
-Wang Lin ignorait ce qui se passait sur le Continent du Taureau Céleste. Il fixait simplement le lac en contrebas. Les râles des mourants s'étaient tus, laissant place à un silence de mort.
+Wang Lin ignorait ce qui se passait sur le Continent Tian Niu. Il fixait simplement le lac en contrebas. Les râles des mourants s'étaient tus, laissant place à un silence de mort.
 
-« La Secte du Dao Démoniaque est détruite et tous sont morts. S'il en reste, ils sont sur le Continent du Taureau Céleste, et pourtant, tu refuses toujours de sortir! » Les paroles de Wang Lin étaient glaciales tandis qu'il agita la main vers le lac.
+« La Secte Dao Mo est détruite et tous sont morts. S'il en reste, ils sont sur le Continent Tian Niu, et pourtant, tu refuses toujours de sortir! » Les paroles de Wang Lin étaient glaciales tandis qu'il agita la main vers le lac.
 
 Dès son geste, le sceau autour du lac brilla intensément et des grondements tonitruants résonnèrent à travers la secte en ruines. Le sceau commença à se contracter violemment autour de la masse d'eau.
 
@@ -118,4 +118,4 @@ Soudain, le dragon marin entra en mouvement. Il ouvrit la gueule et chargea Wang
 
 La puissance de ce dragon marin n'était pas inférieure à celle d'un Exalté Doré au sommet de sa puissance!
 
-Il avait suivi l'Exalté Empyréen pendant une très longue période et, lors de son départ, celui-ci l'avait laissé ici, à la Secte du Dao Démoniaque. Il était certain qu'avec ce dragon et la force de la secte elle-même, la secte serait protégée pour d'innombrables années!
+Il avait suivi l'Exalté Empyréen pendant une très longue période et, lors de son départ, celui-ci l'avait laissé ici, à la Secte Dao Mo. Il était certain qu'avec ce dragon et la force de la secte elle-même, la secte serait protégée pour d'innombrables années!

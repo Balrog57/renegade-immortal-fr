@@ -90,7 +90,7 @@ Le point doré dérivait vers Wang Lin. Il pouvait ressentir une vitalité puiss
 
 Au moment même où la main de Wang Lin toucha l'énergie Yang extrême, l'heure du Lapin s'acheva.
 
-Dans la Secte du Destin Céleste, il existait une montagne très singulière. Elle ressemblait à un trident géant enfoui sous terre, dont seules les trois pointes émergeaient à la surface!
+Dans la Secte Tian Yun, il existait une montagne très singulière. Elle ressemblait à un trident géant enfoui sous terre, dont seules les trois pointes émergeaient à la surface!
 
 Derrière la montagne, des anneaux de sept couleurs différentes projetaient des éclats de lumière. L'énergie spirituelle céleste qui saturait la zone donnait au lieu l'apparence du Royaume Céleste.
 

@@ -78,7 +78,7 @@ Une fois le sac remis, le vieil homme ajouta rapidement: « Soyez rassuré, Seni
 
 Wang Lin dit d'un ton neutre: « Ce n'est pas nécessaire. Vous pouvez partir. »
 
-Le vieil homme recula avec respect. Après une courte hésitation, il tenta: « Senior, dans sept jours, le Pavillon du Trésor Intégral de la famille Ran organisera dans cette ville une vente aux enchères. Elle comprendra une pilule fausse divine de rang 8... »
+Le vieil homme recula avec respect. Après une courte hésitation, il tenta: « Senior, dans sept jours, le Pavillon Bao He de la famille Ran organisera dans cette ville une vente aux enchères. Elle comprendra une pilule fausse divine de rang 8... »
 
 Le regard glacial de Wang Lin balaya l'homme. Ce dernier trembla instantanément et étouffa la fin de sa phrase.
 

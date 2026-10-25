@@ -104,9 +104,9 @@ Hongdie fut la première personne que Wang Lin admira dans sa vie. Il était dif
 
 Wang Lin poussa un soupir et observa attentivement la couronne avant de la ranger. Ses yeux s'illuminèrent d'une expression sérieuse.
 
-« Si je parviens à raffiner et à contrôler le prochain objet, j'aurai plus d'assurance pour mon voyage vers la Terre des Esprits Démoniaques. » Wang Lin prit une profonde inspiration et frappa son sac de rangement. Un cadavre féminin émettant une lueur argentée apparut devant lui.
+« Si je parviens à raffiner et à contrôler le prochain objet, j'aurai plus d'assurance pour mon voyage vers la Terre Yao Ling. » Wang Lin prit une profonde inspiration et frappa son sac de rangement. Un cadavre féminin émettant une lueur argentée apparut devant lui.
 
-Lors de la grande bataille entre Luotian et l'Alliance, cette femme faisait partie des trois cadavres raffinés les plus puissants déployés par l'Alliance, issus du Royaume de la Prison des Cadavres. Après qu'elle eut été blessée, Wang Lin avait réussi à s'en emparer.
+Lors de la grande bataille entre Luotian et l'Alliance, cette femme faisait partie des trois cadavres raffinés les plus puissants déployés par l'Alliance, issus du Royaume Hai Yu. Après qu'elle eut été blessée, Wang Lin avait réussi à s'en emparer.
 
 La femme portait une robe argentée qui soulignait ses courbes magnifiques. De son vivant, elle aurait été une femme enchanteresse. Mais à présent, son visage était livide et des bouffées d'énergie Yin émanaient de son corps, emplissant la pièce.
 

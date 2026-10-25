@@ -10,27 +10,27 @@ slug: cao-yidou
 
 Outre ce froid extrême, cet endroit est imprégné de l'aura des « Neuf Terres », une force que même les cultivateurs du stade de l'Âme Naissante ne souhaitent pas approcher. Quiconque se situe en dessous du stade de l'Âme Naissante sera gravement blessé s'il entre en contact avec elle.
 
-C'est ici que se trouve la Secte des Cadavres de Zhao.
+C'est ici que se trouve la Secte Shi Yin de Zhao.
 
 La silhouette de Wang Lin traversa la plaine tel un fantôme. Il pouvait désormais voir que cet endroit était entouré d'une formation puissante, rendant l'accès impossible pour les mortels ordinaires.
 
 Cependant, cette formation était d'une facilité déconcertante à briser pour le Wang Lin actuel. Il s'arrêta quelque part sur la plaine, fit un pas, et disparut.
 
-Il se trouvait sur l'un des « yeux » de la formation au moment de sa disparition. Lorsque Wang Lin réapparut, il était sous terre. Il observa les environs et vit les innombrables tunnels et grottes qui composaient le labyrinthe de la Secte des Cadavres.
+Il se trouvait sur l'un des « yeux » de la formation au moment de sa disparition. Lorsque Wang Lin réapparut, il était sous terre. Il observa les environs et vit les innombrables tunnels et grottes qui composaient le labyrinthe de la Secte Shi Yin.
 
 Des cultivateurs pratiquaient dans chacune de ces grottes. Leurs niveaux de culture variaient: la plupart étaient au stade de l'Établissement des Fondations, quelques-uns atteignaient la Formation du Noyau, et les cultivateurs de l'Âme Naissante étaient encore plus rares.
 
-Le Sens Divin de Wang Lin se propagea, et l'intégralité de la Secte des Cadavres apparut dans son esprit. Il porta une attention particulière à la grotte située au centre de la secte.
+Le Sens Divin de Wang Lin se propagea, et l'intégralité de la Secte Shi Yin apparut dans son esprit. Il porta une attention particulière à la grotte située au centre de la secte.
 
 Li Qingping pratiquait tranquillement dans la grande grotte centrale. Derrière lui flottait un nuage de brouillard noir duquel s'étiraient d'innombrables tentacules.
 
-Li Qingping était l'actuel maître de la branche de Zhao de la Secte des Cadavres. Il avait déjà atteint le stade avancé de l'Âme Naissante.
+Li Qingping était l'actuel maître de la branche de Zhao de la Secte Shi Yin. Il avait déjà atteint le stade avancé de l'Âme Naissante.
 
 Son apparence physique lui donnait l'air d'un homme d'environ quarante ans. Bien que quelques mèches de ses cheveux aient blanchi, il restait très beau; il devait être un grand séducteur dans sa jeunesse.
 
-Il dirigeait la Secte des Cadavres à Zhao depuis plus de deux cents ans et s'était toujours montré extrêmement prudent. Il interagissait rarement avec le monde extérieur, ce qui renforçait le mystère entourant la secte en terre de Zhao.
+Il dirigeait la Secte Shi Yin à Zhao depuis plus de deux cents ans et s'était toujours montré extrêmement prudent. Il interagissait rarement avec le monde extérieur, ce qui renforçait le mystère entourant la secte en terre de Zhao.
 
-Il passait tout son temps en culture méditative isolée, dans l'espoir d'atteindre le stade de la Formation de l'Âme avant que l'âme logée dans sa marionnette cadavérique ne finisse par le prendre possession. Une fois ce stade atteint, le quartier général de la Secte des Cadavres sur la planète Suzaku lui aurait préparé un corps de choix. Il pourrait alors devenir un disciple central, jouir de certains privilèges et, si ses performances étaient à la hauteur, il pourrait même être transféré au siège principal.
+Il passait tout son temps en culture méditative isolée, dans l'espoir d'atteindre le stade de la Formation de l'Âme avant que l'âme logée dans sa marionnette cadavérique ne finisse par le prendre possession. Une fois ce stade atteint, le quartier général de la Secte Shi Yin sur la planète Suzaku lui aurait préparé un corps de choix. Il pourrait alors devenir un disciple central, jouir de certains privilèges et, si ses performances étaient à la hauteur, il pourrait même être transféré au siège principal.
 
 Li Qingping, plongé dans sa culture, ne détecta absolument pas le Sens Divin de Wang Lin, mais le brouillard noir derrière lui trembla tandis que deux yeux fantomatiques apparaissaient en son sein.
 
@@ -48,7 +48,7 @@ Il savait qu'avec le niveau de culture de cet aîné, même s'il possédait un c
 
 « Oh? De quelle secte viens-tu? » lança Wang Lin par message de Sens Divin.
 
-« Aîné, je ne suis pas originaire de la planète Suzaku, mais un disciple de la Secte Mile sur la planète Tian Yun. Le disciple a perdu son corps et a dépensé d'immenses ressources pour en acheter un auprès de la Secte des Cadavres », répondit promptement le brouillard noir, n'osant mentir sur quoi que ce soit.
+« Aîné, je ne suis pas originaire de la planète Suzaku, mais un disciple de la Secte Mile sur la planète Tian Yun. Le disciple a perdu son corps et a dépensé d'immenses ressources pour en acheter un auprès de la Secte Shi Yin », répondit promptement le brouillard noir, n'osant mentir sur quoi que ce soit.
 
 « Si tu es de la planète Tian Yun, pourquoi es-tu sur la planète Suzaku? » Le Sens Divin de Wang Lin était glacial.
 
@@ -74,7 +74,7 @@ Li Qingping prit une inspiration saccadée. Il n'osait plus bouger d'un pouce, l
 
 Le cœur de Li Qingping battait à tout rompre tandis qu'il pensait amèrement: « Transformation de l'Âme!!! C'est un vieux monstre de la Transformation de l'Âme!! Que vient faire ce monstre ici... »
 
-La main droite de Wang Lin s'étira et l'âme originelle de Cao Yidou fut arrachée du coin de la grotte. Le visage de ce dernier était déformé par la panique alors qu'il hurlait: « Aîné, je suis un client de la Secte des Cadavres! Si vous me capturez pour me raffiner en trésor, la Secte des Cadavres ne vous lâchera jamais! »
+La main droite de Wang Lin s'étira et l'âme originelle de Cao Yidou fut arrachée du coin de la grotte. Le visage de ce dernier était déformé par la panique alors qu'il hurlait: « Aîné, je suis un client de la Secte Shi Yin! Si vous me capturez pour me raffiner en trésor, la Secte Shi Yin ne vous lâchera jamais! »
 
 Wang Lin ricana et répondit calmement: « Qui a dit que j'allais te raffiner en trésor? Tu n'en vaux même pas la peine! »
 
@@ -86,7 +86,7 @@ La voix de Wang Lin ne trahissait aucune arrogance lorsqu'il dit calmement: « D
 
 Cao Yidou fut stupéfait. Un corps de la Transformation de l'Âme était une chose qu'il n'avait jamais espéré obtenir de sa vie. Avec un tel corps, augmenter son niveau de culture jusqu'au stade de la Transformation de l'Âme serait bien plus aisé. Et même s'il n'atteignait pas ce stade, certains de ses sorts deviendraient bien plus puissants. Il fallait dire qu'un tel corps était comparable à celui d'un être céleste.
 
-Au sein de la Secte des Cadavres, le coût d'un cadavre de la Transformation de l'Âme était inimaginable. Même en utilisant toute sa longévité, il lui aurait fallu plus de mille ans pour acheter ne serait-ce que la moitié d'un tel corps.
+Au sein de la Secte Shi Yin, le coût d'un cadavre de la Transformation de l'Âme était inimaginable. Même en utilisant toute sa longévité, il lui aurait fallu plus de mille ans pour acheter ne serait-ce que la moitié d'un tel corps.
 
 Il serra les dents. « Aîné, vous devez me promettre que je ne mourrai pas durant ces cent ans! »
 
@@ -104,9 +104,9 @@ Cao Yidou répondit promptement: « La planète Tian Yun? Maître, j'ai grandi s
 
 D'un simple mouvement, avant que Cao Yidou ne puisse réagir, Wang Lin l'enferma dans l'étendard. Sur ce, Wang Lin disparut de la grotte.
 
-Ce n'était pas sa première visite ici, il connaissait donc parfaitement les lieux. Il traversa le labyrinthe de la Secte des Cadavres en direction de l'endroit où il avait autrefois pratiqué sa culture.
+Ce n'était pas sa première visite ici, il connaissait donc parfaitement les lieux. Il traversa le labyrinthe de la Secte Shi Yin en direction de l'endroit où il avait autrefois pratiqué sa culture.
 
-En chemin, aucun disciple de la Secte des Cadavres ne parvint à détecter la présence de Wang Lin. Même ceux qui n'étaient pas en pleine méditation ne remarquèrent pas son passage.
+En chemin, aucun disciple de la Secte Shi Yin ne parvint à détecter la présence de Wang Lin. Même ceux qui n'étaient pas en pleine méditation ne remarquèrent pas son passage.
 
 Ainsi, Wang Lin arriva bientôt à la grotte où il cultivait autrefois. Quelqu'un s'y trouvait en pleine pratique.
 

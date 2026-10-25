@@ -22,13 +22,13 @@ Les yeux de la femme s'illuminèrent. Après avoir répété silencieusement le 
 
 Wang Lin se détourna. Sans un regard pour la femme ou Maître Simo, il s'enfonça plus profondément dans le tunnel. Le messager le suivit promptement, et les deux disparurent au loin.
 
-Tout en progressant, le regard de Wang Lin devint vif. Ce qu'il avait infligé au Clan des Cours d'Eau et au Clan du Serpent de l'Âme n'était qu'un test destiné au Grand Empereur. Ce dernier était bien trop mystérieux; après lui avoir soudainement accordé de nombreux bénéfices, il ne pouvait s'empêcher de rester prudent.
+Tout en progressant, le regard de Wang Lin devint vif. Ce qu'il avait infligé au Clan Chuan He et au Clan Hun She n'était qu'un test destiné au Grand Empereur. Ce dernier était bien trop mystérieux; après lui avoir soudainement accordé de nombreux bénéfices, il ne pouvait s'empêcher de rester prudent.
 
-Pour déceler les desseins de l'autre partie, il devait la mettre à l'épreuve. La situation avec le Clan du Dragon Blindé, quelques mois auparavant, suivait la même logique, tout comme celle des clans des Cours d'Eau et du Serpent de l'Âme. Ce n'était qu'en sondant sans cesse les limites de son interlocuteur que Wang Lin pourrait découvrir sa véritable nature!
+Pour déceler les desseins de l'autre partie, il devait la mettre à l'épreuve. La situation avec le Clan Long Jia, quelques mois auparavant, suivait la même logique, tout comme celle des clans des Cours d'Eau et du Serpent de l'Âme. Ce n'était qu'en sondant sans cesse les limites de son interlocuteur que Wang Lin pourrait découvrir sa véritable nature!
 
-« Il a dépouillé deux Anciens Délaissés de leurs titres, il m'a laissé choisir le patriarche du Clan du Dragon Blindé, et il m'a même permis de révoquer les droits de deux clans à participer à la Sélection des Anciens Délaissés. Tout cela ne dépasse pas ses propres limites... Peut-être que le Conseil des Déchus n'a aucune importance pour le Grand Empereur! » Wang Lin réfléchit un instant, les yeux brillants. Il lança soudain une directive au messager qui le suivait:
+« Il a dépouillé deux Anciens Délaissés de leurs titres, il m'a laissé choisir le patriarche du Clan Long Jia, et il m'a même permis de révoquer les droits de deux clans à participer à la Sélection des Anciens Délaissés. Tout cela ne dépasse pas ses propres limites... Peut-être que le Conseil des Déchus n'a aucune importance pour le Grand Empereur! » Wang Lin réfléchit un instant, les yeux brillants. Il lança soudain une directive au messager qui le suivait:
 
-« Le Patriarche du Clan du Scorpion Noir n'est pas mal; j'ai l'intention de le nommer Ancien Déchu. »
+« Le Patriarche du Clan An Xie n'est pas mal; j'ai l'intention de le nommer Ancien Déchu. »
 
 Le messager fut surpris et hésita un instant. Le regard de Wang Lin balaya le serviteur, et ses pupilles se rétractèrent. Il pressentit vaguement que le messager utilisait une méthode spéciale pour transmettre un message à quelqu'un.
 

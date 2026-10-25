@@ -37,11 +37,11 @@ export const BOOK_SUMMARIES: BookSummary[] = [
   {
     book: 3,
     title: 'Famous in the Sea of Devils',
-    titleFr: 'Célèbre dans la Mer des Démons',
+    titleFr: 'Célèbre dans la Mer Xiu Mo',
     titleCn: 'Célèbre dans la mer démoniaque',
     rangeStart: 141,
     rangeEnd: 200,
-    summary: "Poussé vers la Mer des Démons, région redoutée du monde de la cultivation, Wang Lin y rencontre Li Muwan, une jeune alchimiste de la Secte Luo He. Ensemble, ils affrontent des bêtes féroces, des brouillards mortels et des cultivateurs rivaux. Wang Lin commence à maîtriser des techniques offensives et à accumuler des trésors spirituels. Sa rencontre avec le puissant Situ Nan, un vieux fripon à la force terrifiante, marque un tournant : les deux hommes deviennent alliés. Wang Lin commence à se faire un nom dans les cercles souterrains de la cultivation.",
+    summary: "Poussé vers la Mer Xiu Mo, région redoutée du monde de la cultivation, Wang Lin y rencontre Li Muwan, une jeune alchimiste de la Secte Luo He. Ensemble, ils affrontent des bêtes féroces, des brouillards mortels et des cultivateurs rivaux. Wang Lin commence à maîtriser des techniques offensives et à accumuler des trésors spirituels. Sa rencontre avec le puissant Situ Nan, un vieux fripon à la force terrifiante, marque un tournant : les deux hommes deviennent alliés. Wang Lin commence à se faire un nom dans les cercles souterrains de la cultivation.",
   },
   {
     book: 4,
@@ -68,7 +68,7 @@ export const BOOK_SUMMARIES: BookSummary[] = [
     titleCn: 'Première entrée à Tian Yun',
     rangeStart: 472,
     rangeEnd: 658,
-    summary: "Wang Lin arrive sur la planète Tian Yun, un monde dominé par la Secte du Destin Céleste, l'une des plus puissantes de l'Allheaven Star System. Pour y survivre et trouver des ressources, il s'engage dans des tournois de cultivation, gravit les échelons de la secte, et se forge une réputation. Il y rencontre des figures majeures : Tian Yunzi, un vieil être mystérieux aux desseins cachés, ainsi que plusieurs génies locaux. Ce tome établit Wang Lin comme un acteur majeur de l'Allheaven Star System, et introduit les intrigues politiques entre sectes.",
+    summary: "Wang Lin arrive sur la planète Tian Yun, un monde dominé par la Secte Tian Yun, l'une des plus puissantes de l'Allheaven Star System. Pour y survivre et trouver des ressources, il s'engage dans des tournois de cultivation, gravit les échelons de la secte, et se forge une réputation. Il y rencontre des figures majeures : Tian Yunzi, un vieil être mystérieux aux desseins cachés, ainsi que plusieurs génies locaux. Ce tome établit Wang Lin comme un acteur majeur de l'Allheaven Star System, et introduit les intrigues politiques entre sectes.",
   },
   {
     book: 7,
@@ -91,11 +91,11 @@ export const BOOK_SUMMARIES: BookSummary[] = [
   {
     book: 9,
     title: 'Peak of the Cloud Sea',
-    titleFr: 'Le Sommet de la Mer des Nuages',
+    titleFr: 'Le Sommet de la Mer Yun',
     titleCn: 'Le sommet de la mer de nuages',
     rangeStart: 1141,
     rangeEnd: 1478,
-    summary: "Wang Lin atteint le sommet de son art sur la Mer des Nuages, un carrefour entre les mondes où se jouent les destinées des cultivateurs. Confronté à des ennemis dont la puissance défie l'imagination, il doit puiser dans des ressources insoupçonnées — y compris dans les liens mystérieux qui le rattachent à des divinités anciennes. Ce tome marque l'apogée de sa puissance et le début de sa quête pour retrouver ce qu'il a perdu, notamment Li Muwan. Les thèmes du sacrifice et de la persévérance atteignent leur paroxysme.",
+    summary: "Wang Lin atteint le sommet de son art sur la Mer Yun, un carrefour entre les mondes où se jouent les destinées des cultivateurs. Confronté à des ennemis dont la puissance défie l'imagination, il doit puiser dans des ressources insoupçonnées — y compris dans les liens mystérieux qui le rattachent à des divinités anciennes. Ce tome marque l'apogée de sa puissance et le début de sa quête pour retrouver ce qu'il a perdu, notamment Li Muwan. Les thèmes du sacrifice et de la persévérance atteignent leur paroxysme.",
   },
   {
     book: 10,

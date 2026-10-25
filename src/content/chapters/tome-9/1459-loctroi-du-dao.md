@@ -114,6 +114,6 @@ Wang Lin retira son regard. Il était extrêmement satisfait d'avoir assujetti l
 
 « Si je rencontre un autre expert de la troisième étape au début du Vide du Nirvana, il ne sera pas difficile de les affronter avec Ling Dong à mes côtés... Si je peux capturer cette personne et raffiner un autre esclave ancien... » Le Sens Divin de Wang Lin disparut du ciel pour retourner dans son corps.
 
-Au même moment, à l'extérieur, l'homme corpulent du Clan du Loup Céleste progressait sur sa plateforme de rang 5. Il se rapprochait inexorablement de cet endroit.
+Au même moment, à l'extérieur, l'homme corpulent du Clan Feng Tian Lang progressait sur sa plateforme de rang 5. Il se rapprochait inexorablement de cet endroit.
 
 « Ce n'est plus loin, il ne me reste que trois jours pour arriver! Si je peux obtenir neuf de ces feuilles, je pourrai, avec le pouvoir de mon clan, utiliser mon Dao du Loup Céleste et le sceller pour qu'il m'accompagne à jamais! Même si je reste au début du Vide du Nirvana, je serai le cultivateur le plus puissant de ce stade! » Les yeux de l'homme brillaient d'excitation tandis qu'il commandait à sa plateforme de voler de plus en plus vite.

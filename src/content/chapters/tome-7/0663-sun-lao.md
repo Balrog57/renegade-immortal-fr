@@ -58,7 +58,7 @@ Lors de son arrivée la veille, Wang Lin avait remarqué un marché libre sur le
 
 Wang Lin joignit les mains et demanda d'un ton empreint de douceur: « Cher compagnon cultivateur, sauriez-vous s'il existe dans la ville un endroit spécialisé dans les trésors de haut rang? »
 
-Le jeune homme ouvrit les yeux. Outre le mépris, une pointe d'impatience transparaissait lorsqu'il répondit froidement: « Le Pavillon du Trésor Intégral, sur le côté est de la ville! » Puis, il cessa de prêter attention à Wang Lin.
+Le jeune homme ouvrit les yeux. Outre le mépris, une pointe d'impatience transparaissait lorsqu'il répondit froidement: « Le Pavillon Bao He, sur le côté est de la ville! » Puis, il cessa de prêter attention à Wang Lin.
 
 Wang Lin esquissa un léger sourire et partit.
 
@@ -74,21 +74,21 @@ La taille des cristaux était liée au prestige des enseignes. Certains mesuraie
 
 Il y avait même une boutique dont l'extérieur était orné de cristaux de haute qualité. Cette découverte attira immédiatement l'attention de Wang Lin.
 
-Il examina attentivement l'établissement. La boutique n'était pas grande et ne comptait que deux étages. Bien qu'elle ne fût pas aussi majestueuse que ses voisines, elle était très élégante. Une plaque géante portait des caractères calligraphiés avec finesse: « Pavillon du Bambou Vert ».
+Il examina attentivement l'établissement. La boutique n'était pas grande et ne comptait que deux étages. Bien qu'elle ne fût pas aussi majestueuse que ses voisines, elle était très élégante. Une plaque géante portait des caractères calligraphiés avec finesse: « Pavillon Qing Zhu ».
 
 Wang Lin ne rentra pas; il détourna le regard et continua sa route. À l'extrémité est de la ville se dressait un immense pavillon. Il n'y avait pas un, mais huit cristaux spirituels devant cet édifice. Ces huit pierres de haute qualité, hautes de près de 10 mètres, semblaient disposées selon une formation, dégageant d'incessantes vagues de pression spirituelle.
 
-Le pavillon semblait fusionner avec son environnement, offrant un aspect presque illusoire au regard. De longues bandes de cristal spirituel portaient trois mots gravés: « Pavillon du Trésor Intégral ».
+Le pavillon semblait fusionner avec son environnement, offrant un aspect presque illusoire au regard. De longues bandes de cristal spirituel portaient trois mots gravés: « Pavillon Bao He ».
 
 Une pression s'en dégageait, et une couche cachée de restrictions empêchait même l'utilisation du Sens Divin pour inspecter l'intérieur. Wang Lin ne tenta pas de forcer son Sens Divin, n'étant pas particulièrement intéressé par ce pavillon.
 
-Cependant, en entrant, il fronça immédiatement les sourcils. Un homme d'âge moyen sortit du pavillon et lui barra la route. Après l'avoir examiné, il demanda calmement: « Le compagnon cultivateur ignore-t-il les règles de mon Pavillon du Trésor Intégral? »
+Cependant, en entrant, il fronça immédiatement les sourcils. Un homme d'âge moyen sortit du pavillon et lui barra la route. Après l'avoir examiné, il demanda calmement: « Le compagnon cultivateur ignore-t-il les règles de mon Pavillon Bao He? »
 
 L'expression de Wang Lin resta neutre lorsqu'il répondit d'un ton calme: « Oh? Je me demande bien quelles sont ces règles. »
 
 L'homme fut extrêmement surpris par le calme olympien de Wang Lin. Il avait rencontré de nombreux cultivateurs et, en dehors des vieux monstres, très peu pouvaient rester aussi sereins sous la pression du pavillon.
 
-« Il y a deux règles d'entrée et une règle de sortie dans mon Pavillon du Trésor Intégral. Ceux qui sont en dessous du stade de l'Âme Naissante ne peuvent entrer! Ceux qui ne possèdent pas cent mille pierres spirituelles de haute qualité ne peuvent entrer! Et ceux qui n'effectuent aucune transaction ne peuvent sortir! »
+« Il y a deux règles d'entrée et une règle de sortie dans mon Pavillon Bao He. Ceux qui sont en dessous du stade de l'Âme Naissante ne peuvent entrer! Ceux qui ne possèdent pas cent mille pierres spirituelles de haute qualité ne peuvent entrer! Et ceux qui n'effectuent aucune transaction ne peuvent sortir! »
 
 Wang Lin fronça légèrement les sourcils.
 
@@ -102,7 +102,7 @@ L'homme sourit: « Le compagnon cultivateur ne remplit pas les conditions pour e
 
 L'homme jeta un coup d'œil à l'épée et afficha une pointe de mépris. Il pouvait voir d'un seul regard que cette épée avait été raffinée par une méthode très médiocre et n'avait rien de spécial. Même la lumière de l'arme était extrêmement terne. Sans même utiliser son Sens Divin, il constata à l'œil nu sa piètre qualité; elle n'était probablement même pas un trésor magique de bas rang.
 
-Responsable de la vérification pour le Pavillon du Trésor Intégral depuis de nombreuses années, il possédait un œil exercé. Il avait vu trop de cultivateurs de bas niveau tenter de vendre des trésors qu'ils croyaient exceptionnels. À ses yeux, Wang Lin faisait partie de ces gens.
+Responsable de la vérification pour le Pavillon Bao He depuis de nombreuses années, il possédait un œil exercé. Il avait vu trop de cultivateurs de bas niveau tenter de vendre des trésors qu'ils croyaient exceptionnels. À ses yeux, Wang Lin faisait partie de ces gens.
 
 Ce trésor d'épée possédait sans doute quelques capacités, mais l'homme n'en avait cure. Il sourit et secoua la tête: « Nous ne l'acceptons pas. Veuillez partir! »
 

@@ -72,7 +72,7 @@ L'homme d'âge moyen afficha une prudence extrême, mais en voyant la sphère, i
 
 Dès qu'elle se manifesta, l'énergie se mua en un dragon pourpre. La sphère argentée s'immobilisa brusquement alors que Wang Lin changeait de technique et criait: « Mutation! »
 
-Soudain, la sphère commença à bouger étrangement et se transforma en une créature semblable à une tortue. C'était une bête que Wang Lin avait tuée dans la Mer des Démons: un Zhong Gu.
+Soudain, la sphère commença à bouger étrangement et se transforma en une créature semblable à une tortue. C'était une bête que Wang Lin avait tuée dans la Mer Xiu Mo: un Zhong Gu.
 
 La bête Zhong Gu créée par la sphère prit soudain vie, dévoilant ses longues dents acérées. Elle ouvrit grand la gueule pour pousser un rugissement silencieux, et des ondes d'air s'en échappèrent pour s'entremêler au dragon pourpre.
 

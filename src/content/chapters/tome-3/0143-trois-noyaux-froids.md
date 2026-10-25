@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 143 - Three Cold Cores
 slug: trois-noyaux-froids
 ---
-Il fallut dix jours entiers à Wang Lin, avançant lentement grâce à la technique de fuite par la terre, pour regagner la grotte depuis la Vallée des Cadavres. Une fois devant l'entrée, il inspecta attentivement les environs. Lorsqu'il fut certain qu'aucun danger ne rôdait, il sortit et fit sortir le dragon avec lui.
+Il fallut dix jours entiers à Wang Lin, avançant lentement grâce à la technique de fuite par la terre, pour regagner la grotte depuis la Vallée Shi. Une fois devant l'entrée, il inspecta attentivement les environs. Lorsqu'il fut certain qu'aucun danger ne rôdait, il sortit et fit sortir le dragon avec lui.
 
 Le sol trembla, alertant Li Muwan. À l'appel de Wang Lin, elle ouvrit la formation et passa la tête dehors. Cependant, dès qu'elle apparut, son regard fut captivé par le dragon de 3,3 kilomètres de long. Elle resta stupéfaite pendant un long moment.
 
@@ -22,15 +22,15 @@ La pilule de véritable dragon était un prodige dont même les cultivateurs de 
 
 Cependant, pour former une pilule de véritable dragon, il fallait vivre 9 990 000 ans. C'est pourquoi aucun registre précis ne mentionnait quelqu'un l'ayant consommée; même ses effets ne demeuraient que rumeurs.
 
-Après avoir remis le dragon à Li Muwan, Wang Lin ne s'en soucia plus et rentra dans la grotte. Il avait obtenu tout ce dont il avait besoin pour ce voyage, à l'exception d'un fourneau, mais il avait appris qu'il existait un lieu appelé la Secte du Raffinage des Trésors où il pourrait en acquérir un.
+Après avoir remis le dragon à Li Muwan, Wang Lin ne s'en soucia plus et rentra dans la grotte. Il avait obtenu tout ce dont il avait besoin pour ce voyage, à l'exception d'un fourneau, mais il avait appris qu'il existait un lieu appelé la Secte Lian Qi où il pourrait en acquérir un.
 
-La Secte du Raffinage des Trésors possédait de nombreux magasins à travers la Mer des Démons. Le plus proche se trouvait dans la ville de Nan Dou, à plus de 200 000 kilomètres de là. Toutefois, les objets tels que les fourneaux à pilules coûtaient généralement une fortune; après avoir entendu Sang Muya raconter que le chef de la Secte de la Lutte contre le Mal avait dépensé la majeure partie des pierres spirituelles de sa secte pour un seul fourneau, Wang Lin renonça à l'idée d'en acheter un pour l'instant.
+La Secte Lian Qi possédait de nombreux magasins à travers la Mer Xiu Mo. Le plus proche se trouvait dans la ville de Nan Dou, à plus de 200 000 kilomètres de là. Toutefois, les objets tels que les fourneaux à pilules coûtaient généralement une fortune; après avoir entendu Sang Muya raconter que le chef de la Secte Dou Xie avait dépensé la majeure partie des pierres spirituelles de sa secte pour un seul fourneau, Wang Lin renonça à l'idée d'en acheter un pour l'instant.
 
 Il décida de mettre la question du fourneau de côté. Puisqu'ils possédaient les os du dragon, la formation des neuf squelettes serait suffisamment puissante pour leur offrir une protection décente. Wang Lin allait désormais se consacrer à une culture en méditation intensive, visant le stade de la Formation du Noyau.
 
 Wang Lin s'assit dans l'une des salles de pierre et la scella avec un immense rocher. Il sortit ensuite trente épées volantes et les pointa vers le sol. Les armes plongèrent immédiatement dans la terre et commencèrent à creuser un tunnel jusqu'au fond de la montagne.
 
-Le regard de Wang Lin se fit sérieux lorsqu'il projeta un trait de lumière spirituelle qui se mua en une sphère de lumière blanche. La couleur de la sphère devint progressivement bleu clair. Wang Lin fronça légèrement les sourcils, avant que son visage ne s'illumine aussitôt: Terre Yin commune de rang 1. Bien que cela ne fût rien comparé à la Vallée des Cadavres, c'était amplement suffisant pour condenser les noyaux froids de la Méthode d'Ascension des Enfers.
+Le regard de Wang Lin se fit sérieux lorsqu'il projeta un trait de lumière spirituelle qui se mua en une sphère de lumière blanche. La couleur de la sphère devint progressivement bleu clair. Wang Lin fronça légèrement les sourcils, avant que son visage ne s'illumine aussitôt: Terre Yin commune de rang 1. Bien que cela ne fût rien comparé à la Vallée Shi, c'était amplement suffisant pour condenser les noyaux froids de la Méthode d'Ascension des Enfers.
 
 Il descendit au fond de la cavité. Il atteignit un niveau de Terre Yin commune de rang 3. Cela constituait manifestement la limite; il dissipa donc la sphère de lumière et commença à cultiver.
 
@@ -48,7 +48,7 @@ Wang Lin était certain de pouvoir former son troisième noyau froid d'ici trois
 
 Wang Lin avait tenté l'expérience à plusieurs reprises, mais ne parvenait pas à imprimer son sens divin sur le démon; il devait donc contourner le problème en le nourrissant progressivement.
 
-À ce propos, ce démon était d'une grande utilité pour lui. Il retirait lentement des âmes du drapeau des âmes pour les offrir au démon, après y avoir imprimé un fragment de son sens divin. Toutes les âmes contenues dans ce drapeau appartenaient à des cultivateurs de la Mer des Démons, et la majorité d'entre eux étaient des disciples de la Secte de la Lutte contre le Mal. Selon Sang Muya, presque toutes ces âmes appartenaient à des individus qui s'étaient battus pour attirer l'attention de leur maître; une fois tués par lui, il avait scellé leurs âmes à l'intérieur.
+À ce propos, ce démon était d'une grande utilité pour lui. Il retirait lentement des âmes du drapeau des âmes pour les offrir au démon, après y avoir imprimé un fragment de son sens divin. Toutes les âmes contenues dans ce drapeau appartenaient à des cultivateurs de la Mer Xiu Mo, et la majorité d'entre eux étaient des disciples de la Secte Dou Xie. Selon Sang Muya, presque toutes ces âmes appartenaient à des individus qui s'étaient battus pour attirer l'attention de leur maître; une fois tués par lui, il avait scellé leurs âmes à l'intérieur.
 
 Le temps passa et, au moment où le démon finit par dévorer la plupart des âmes du drapeau, un fragment du sens divin de Wang Lin se développa en son sein. Le démon lui-même ne réalisa pas que ce fragment s'était développé en lui, car il était trop occupé à réfléchir à des moyens de s'échapper.
 
@@ -56,7 +56,7 @@ Trois mois s'étaient écoulés depuis le début de sa culture intensive. Le pro
 
 Un petit fourneau à pilules trônait au centre de la pièce, flanqué d'un tas de pilules ratées. Li Muwan avait commencé l'alchimie dès que Wang Lin s'était retiré en isolement. Outre les échecs jonchant le sol, des tablettes de jade étaient dispersées partout; chaque fois que Li Muwan se sentait bloquée ou cherchait une inspiration, elle consultait immédiatement ces jades.
 
-Sur les quatre pièces de la grotte, l'une était dédiée à la culture de Wang Lin, une autre à l'alchimie, une troisième à la botanique, et la dernière avait été aménagée par Li Muwan en salle de bain. La Mer des Démons étant perpétuellement embrumée, l'air était extrêmement humide, et l'intérieur de la grotte n'y faisait pas exception. Les vêtements devenaient vite moites et collaient à la peau. Li Muwan, étant une jeune fille, ne supportait plus cette sensation désagréable et s'était donc appliquée à créer cet espace.
+Sur les quatre pièces de la grotte, l'une était dédiée à la culture de Wang Lin, une autre à l'alchimie, une troisième à la botanique, et la dernière avait été aménagée par Li Muwan en salle de bain. La Mer Xiu Mo étant perpétuellement embrumée, l'air était extrêmement humide, et l'intérieur de la grotte n'y faisait pas exception. Les vêtements devenaient vite moites et collaient à la peau. Li Muwan, étant une jeune fille, ne supportait plus cette sensation désagréable et s'était donc appliquée à créer cet espace.
 
 Wang Lin, quant à lui, se moquait de cette salle de bain, car il lui suffisait de faire circuler son énergie spirituelle pour que toute l'énergie Yin soit aspirée dans son noyau froid.
 

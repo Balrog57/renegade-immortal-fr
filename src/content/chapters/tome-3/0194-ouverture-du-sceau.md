@@ -28,7 +28,7 @@ Tout cela ne pouvait être décrit que par le karma.
 
 Le Magicien Démon Céleste soupira à nouveau, mais en regardant le groupe de Dou Mu, sa haine s'estompa pour laisser place à la réflexion. Son expression demeura calme, ne trahissant aucune de ses pensées. C'était un vieil homme extrêmement rusé; même face à une telle épreuve, son visage ne vacilla point.
 
-L'homme aux cheveux roux utilisait simplement les fragments d'âme pour marquer ces individus et les contrôler. Si le Magicien Démon Céleste avait pu conserver sa santé mentale, c'était principalement grâce à sa technique de culture. Outre la Méthode de Culture Démoniaque Céleste Mystérieuse, il possédait aussi une formule mystérieuse qu'il avait obtenue par hasard lors de son premier voyage dans cette Terre du Dieu Ancien.
+L'homme aux cheveux roux utilisait simplement les fragments d'âme pour marquer ces individus et les contrôler. Si le Magicien Démon Céleste avait pu conserver sa santé mentale, c'était principalement grâce à sa technique de culture. Outre la Méthode de Culture Démoniaque Céleste Mystérieuse, il possédait aussi une formule mystérieuse qu'il avait obtenue par hasard lors de son premier voyage dans cette Terre Gu Shen.
 
 Il n'avait transmis cette formule à personne; même le Seigneur Démon des Six Désirs en ignorait l'existence. C'est grâce à cette formule et à ses innombrables années de culture que, lorsqu'il fut capturé par l'homme aux cheveux roux et forcé de fusionner avec un fragment d'âme, il put prendre l'initiative de le supprimer au lieu de s'y fondre.
 
@@ -92,7 +92,7 @@ Wang Lin remarqua que la créature devenait soudainement violente. D'innombrable
 
 « Tu... as rompu notre promesse! »
 
-L'homme aux cheveux roux ouvrit la bouche et aspira le second symbole. Puis, d'un ton lugubre, il déclara: « Depuis quand ne tiens-je pas mes promesses? Je n'exerce qu'un certain contrôle pour le moment. Tant que tu m'aideras à briser ce sceau, j'utiliserai le pouvoir du Dieu Ancien pour te donner un corps humain et te faire sortir du Monde de la Décomposition. Maintenant, continue de dévorer! »
+L'homme aux cheveux roux ouvrit la bouche et aspira le second symbole. Puis, d'un ton lugubre, il déclara: « Depuis quand ne tiens-je pas mes promesses? Je n'exerce qu'un certain contrôle pour le moment. Tant que tu m'aideras à briser ce sceau, j'utiliserai le pouvoir du Dieu Ancien pour te donner un corps humain et te faire sortir du Monde Ji Mie. Maintenant, continue de dévorer! »
 
 Dès qu'il eut prononcé ces mots, le symbole qu'il avait avalé apparut sur son front et clignota plusieurs fois. Simultanément, sur le corps du dévoreur d'âmes, le même emblème apparut, semblant pulser en synchronie avec celui de l'homme aux cheveux roux.
 

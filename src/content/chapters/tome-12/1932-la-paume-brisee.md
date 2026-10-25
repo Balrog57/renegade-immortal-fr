@@ -84,7 +84,7 @@ L'Empreinte de l'Esprit de la Guerre de Wang Lin percuta l'oiseau bleu. Un grond
 
 « Charge du Taureau Céleste!! »
 
-Le sort du Taureau Céleste qui avait terrifié l'ancêtre de la Secte du Dao Démoniaque réapparut. Les 97 images rémanentes de Wang Lin fusionnèrent et une immense ombre de Taureau Céleste surgit. Elle contenait 98 sorts alors qu'elle chargeait le sceau ovale.
+Le sort du Taureau Céleste qui avait terrifié l'ancêtre de la Secte Dao Mo réapparut. Les 97 images rémanentes de Wang Lin fusionnèrent et une immense ombre de Taureau Céleste surgit. Elle contenait 98 sorts alors qu'elle chargeait le sceau ovale.
 
 Wang Lin et l'Exalté Empyréen Hai Zi se livraient bataille au-dessus de la mer gelée. Dans les profondeurs, se trouvait le trou noir que Wang Lin avait ouvert, là où résidait l'Arbre de la Mer Montagneuse.
 

@@ -16,7 +16,7 @@ Wang Lin fronça légèrement les sourcils. Il y avait beaucoup moins de moustiq
 
 « Je ne sais pas exactement ce qui s'est passé... » Songea Wang Lin un instant avant de poser sa main sur la tête du moustique pour activer son sens divin.
 
-Diverses scènes traversèrent immédiatement l'esprit de Wang Lin. À la moitié de la bataille entre Zhou Yi et Tan Lang, deux cultivateurs, un homme et une femme, étaient descendus de la sortie du Pays du Démon de Feu.
+Diverses scènes traversèrent immédiatement l'esprit de Wang Lin. À la moitié de la bataille entre Zhou Yi et Tan Lang, deux cultivateurs, un homme et une femme, étaient descendus de la sortie du Pays Huo Yao.
 
 Ces deux êtres étaient d'une puissance absolue. D'un simple geste, ils avaient capturé Tan Lang. Zhou Yi avait également été saisi avec facilité, mais il semblait que le couple n'avait aucune intention malveillante. En fait, au moment où ils aperçurent Zhou Yi, les yeux de l'homme révélèrent une profonde mélancolie et de la nostalgie.
 
@@ -24,13 +24,13 @@ L'essaim de moustiques n'était pas mort, mais la majorité d'entre eux avait é
 
 Lorsque le sens divin de Wang Lin revint du moustique, son expression était sombre.
 
-Après une courte réflexion, il tapota la tête de la bête. Le moustique poussa un rugissement et, au lieu de voler vers la sortie du Pays du Démon de Feu, il se dirigea vers l'entrée du Pays du Démon de l'Eau.
+Après une courte réflexion, il tapota la tête de la bête. Le moustique poussa un rugissement et, au lieu de voler vers la sortie du Pays Huo Yao, il se dirigea vers l'entrée du Pays Shui Yao.
 
 Désormais, puisque Wang Lin pouvait fusionner avec la force d'aspiration, n'importe quel endroit pouvait servir de sortie.
 
 Tandis qu'ils volaient, les milliers de moustiques les suivirent. Ils poussaient parfois des cris de regret et de désespoir, comme s'ils tentaient de dissuader le moustique de Wang Lin de partir.
 
-Ce jour-là, au Pays du Démon de l'Eau, une lueur violette jaillit dans les airs. C'était la bête moustique. Wang Lin était assis sur son dos, le visage empreint de gravité.
+Ce jour-là, au Pays Shui Yao, une lueur violette jaillit dans les airs. C'était la bête moustique. Wang Lin était assis sur son dos, le visage empreint de gravité.
 
 Sitôt la lumière violette apparue, plus de deux mille bêtes moustiques chargèrent à leur tour, encerclant complètement Wang Lin. Leurs regards étaient fixés sur le moustique violet et leurs cris devinrent encore plus stridents.
 
@@ -48,9 +48,9 @@ L'essaim de moustiques fut plongé dans un silence total. Après un long moment,
 
 Cependant, tous ne choisirent pas d'entrer dans le sac. Environ deux tiers restèrent immobiles, observant silencieusement Wang Lin et leur roi disparaître à l'horizon.
 
-Après un long silence, ils poussèrent tous des cris déchirants de tristesse. Puis, les corps des moustiques s'effondrèrent un à un. Ils avaient tous décidé de détruire leur propre cœur pour sombrer dans l'entrée de l'Abîme des Marées.
+Après un long silence, ils poussèrent tous des cris déchirants de tristesse. Puis, les corps des moustiques s'effondrèrent un à un. Ils avaient tous décidé de détruire leur propre cœur pour sombrer dans l'entrée de l'Abîme Chao Xi.
 
-Au loin, le corps de la bête moustique de Wang Lin trembla et elle tourna lentement la tête vers l'Abîme des Marées, les yeux également emplis de chagrin.
+Au loin, le corps de la bête moustique de Wang Lin trembla et elle tourna lentement la tête vers l'Abîme Chao Xi, les yeux également emplis de chagrin.
 
 Wang Lin poussa un soupir et frotta la tête du moustique.
 
@@ -72,13 +72,13 @@ Après cela, Wang Lin regarda la grotte d'un air significatif. L'esprit de la gr
 
 Wang Lin fit volte-face, le cristal à la main, et partit.
 
-Wang Lin réapparut devant la tribu des Affineurs d'Âmes dans le Pays du Démon Céleste. Les membres de la tribu furent d'abord stupéfaits, avant de s'exclamer de joie et de s'incliner avec respect.
+Wang Lin réapparut devant la tribu des Affineurs d'Âmes dans le Pays Tian Yao. Les membres de la tribu furent d'abord stupéfaits, avant de s'exclamer de joie et de s'incliner avec respect.
 
-Wang Lin ne récupéra pas les fragments d'âmes collectés par la tribu; il appela plutôt Treize et Ouyang Hua dans la pagode. Après avoir laissé quelques instructions et des méthodes de culture, il enseigna même à Treize la seconde moitié de la méthode de culture du Clan des Démons Géants. Une fois cela fait, il quitta la tribu.
+Wang Lin ne récupéra pas les fragments d'âmes collectés par la tribu; il appela plutôt Treize et Ouyang Hua dans la pagode. Après avoir laissé quelques instructions et des méthodes de culture, il enseigna même à Treize la seconde moitié de la méthode de culture du Clan Ju Mo. Une fois cela fait, il quitta la tribu.
 
 Au moment de son départ, Treize s'agenouilla et effectua plusieurs prosternations vers Wang Lin. Ouyang Hua fit de même, leurs yeux noyés de tristesse. Bien que Wang Lin n'ait rien dit, ils sentaient que dans cette vie... il leur serait difficile de le revoir un jour...
 
-Dans le Pays du Démon Céleste, au sein du manoir du général démon, Shi Xiao était assis en position de lotus. À ses côtés, Chen Tao pratiquait également sa culture. Après des années de guérison et de soins, sa culture avait retrouvé le stade intermédiaire de l'Ascendant. Il avait même légèrement progressé; bien qu'il fût encore loin du stade avancé de l'Ascendant, la distance n'était plus aussi immense.
+Dans le Pays Tian Yao, au sein du manoir du général démon, Shi Xiao était assis en position de lotus. À ses côtés, Chen Tao pratiquait également sa culture. Après des années de guérison et de soins, sa culture avait retrouvé le stade intermédiaire de l'Ascendant. Il avait même légèrement progressé; bien qu'il fût encore loin du stade avancé de l'Ascendant, la distance n'était plus aussi immense.
 
 Peu après, Shi Xiao ouvrit les yeux, le regard étincelant.
 
@@ -92,13 +92,13 @@ Shi Xiao afficha un sourire fier et déclara: « Ce poste aurait dû être le mi
 
 Chen Tao regarda Shi Xiao et dit calmement: « Wang Lin est mon frère instructeur cadet! »
 
-Shi Xiao haussa un sourcil avec un sourire glacial. « Où était votre frère cadet pendant la guerre contre le Pays du Démon de Feu? Il a profité de la fin du conflit pour s'approprier les mérites de tous. Bien qu'il ait aidé le Seigneur Démon Ancien, il nous a tous couverts de honte! »
+Shi Xiao haussa un sourcil avec un sourire glacial. « Où était votre frère cadet pendant la guerre contre le Pays Huo Yao? Il a profité de la fin du conflit pour s'approprier les mérites de tous. Bien qu'il ait aidé le Seigneur Démon Ancien, il nous a tous couverts de honte! »
 
 « De plus, cet homme a disparu depuis de nombreuses années; je crains que ses os ne puissent même plus être retrouvés. Vous vous souvenez de lui comme de votre frère cadet, mais je crains qu'il ne se souvienne plus de vous comme de son frère instructeur aîné. »
 
 Chen Tao restait silencieux, pensif.
 
-Un éclat de sarcasme traversa le regard de Shi Xiao: « L'appeler misérable est une marque de bonté de ma part. S'il n'est pas mort, je le tuerai moi-même pour lui apprendre comment, sur cette Terre des Esprits Démoniaques, un cultivateur doit considérer son statut! »
+Un éclat de sarcasme traversa le regard de Shi Xiao: « L'appeler misérable est une marque de bonté de ma part. S'il n'est pas mort, je le tuerai moi-même pour lui apprendre comment, sur cette Terre Yao Ling, un cultivateur doit considérer son statut! »
 
 « Est-ce bien ainsi...? » Une voix froide émana du vide.
 
@@ -132,15 +132,15 @@ Sous la lune, il semblait marcher sur l'astre lui-même. Ses vêtements flottaie
 
 « Faites attention au Maître! » La voix de Wang Lin résonna dans les oreilles de Chen Tao. Ce dernier fixa le ciel pendant un long moment, incapable de prononcer un mot.
 
-Une fois ses affaires terminées, Wang Lin apparut devant l'entrée de l'Abîme des Marées. Il se retourna pour contempler la terre avant de lever les yeux vers le ciel. Son regard semblait transpercer la voûte céleste, s'élevant jusqu'à franchir la limite du ciel pour atteindre la Mer des Esprits Démoniaques de l'Est.
+Une fois ses affaires terminées, Wang Lin apparut devant l'entrée de l'Abîme Chao Xi. Il se retourna pour contempler la terre avant de lever les yeux vers le ciel. Son regard semblait transpercer la voûte céleste, s'élevant jusqu'à franchir la limite du ciel pour atteindre la Mer Yao Ling.
 
-Devant la porte de la Mer des Esprits Démoniaques, Tian Yunzi, Ling Tianhou, Xue Zu et sept ou huit anciens se tenaient là.
+Devant la porte de la Mer Yao Ling, Tian Yunzi, Ling Tianhou, Xue Zu et sept ou huit anciens se tenaient là.
 
-Tous attendaient que Ling Tianhou ouvre la porte quand soudain, Tian Yunzi s'exclama. Il fixa la porte du Pays des Esprits Démoniaques, les sourcils froncés par une inquiétude soudaine.
+Tous attendaient que Ling Tianhou ouvre la porte quand soudain, Tian Yunzi s'exclama. Il fixa la porte du Pays Yao Ling, les sourcils froncés par une inquiétude soudaine.
 
-Ils allaient entrer dans le Pays des Esprits Démoniaques plusieurs décennies plus tôt que prévu. C'était parce qu'il y a plus de dix ans, Tian Yunzi avait ressenti un pressentiment alarmant, une sensation qu'il n'avait pas éprouvée depuis des dizaines de milliers d'années.
+Ils allaient entrer dans le Pays Yao Ling plusieurs décennies plus tôt que prévu. C'était parce qu'il y a plus de dix ans, Tian Yunzi avait ressenti un pressentiment alarmant, une sensation qu'il n'avait pas éprouvée depuis des dizaines de milliers d'années.
 
-Ce sentiment provenait du Pays des Esprits Démoniaques! Il émanait de la marque qu'il avait laissée sur un disciple nommé Wang Lin! À cet instant précis, la marque avait été arrachée de force!
+Ce sentiment provenait du Pays Yao Ling! Il émanait de la marque qu'il avait laissée sur un disciple nommé Wang Lin! À cet instant précis, la marque avait été arrachée de force!
 
 Ce n'était pas la première fois qu'une marque était ainsi effacée; bien longtemps auparavant, un disciple nommé Sun Yun avait réussi le même exploit.
 
@@ -148,8 +148,8 @@ Tian Yunzi n'était pas le seul à être troublé. Xue Zu l'était aussi: son in
 
 C'est pourquoi, lorsque Tian Yunzi suggéra d'entrer plus tôt, Xue Zu fut le premier à accepter. Yao Xixue était sa seule fille, sa seule famille. Pour elle, il serait prêt à tout sacrifier!
 
-De même, le cœur de Ling Tianhou était sombre. Neuf des lampes vitales des Douze Épées s'étaient éteintes... Ling Tianhou réprima sa colère et se prépara à entrer dans le Pays des Esprits Démoniaques. Il comptait interroger rigoureusement Tan Lang sur ce qui s'était passé.
+De même, le cœur de Ling Tianhou était sombre. Neuf des lampes vitales des Douze Épées s'étaient éteintes... Ling Tianhou réprima sa colère et se prépara à entrer dans le Pays Yao Ling. Il comptait interroger rigoureusement Tan Lang sur ce qui s'était passé.
 
 Les trois ignoraient que la source de l'angoisse de ces trois puissants cultivateurs ne provenait que d'une seule et même personne!
 
-La paume de Ling Tianhou pressa le mécanisme et ouvrit la porte du Pays des Esprits Démoniaques. Puis, d'un revers de manche, il s'avança à l'intérieur...
+La paume de Ling Tianhou pressa le mécanisme et ouvrit la porte du Pays Yao Ling. Puis, d'un revers de manche, il s'avança à l'intérieur...

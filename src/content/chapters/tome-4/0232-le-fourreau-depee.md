@@ -57,7 +57,7 @@ On trouvait en son sein de nombreuses pièces, grandes et petites, et chaque pi�
 
 À l'époque, Huo Fen s'était établie dans le pays de Xuan Wu, qui l'avait finalement attaquée avec plusieurs autres nations voisines. Les quatre grandes sectes avaient été chassées du pays, et c'est aussi à ce moment que Li Muwan fut contrainte de quitter son foyer.
 
-Sous ce volcan se trouvait un édifice complet: le Temple du Dieu de la Guerre. Il avait fallu plusieurs cultivateurs de l'Âme Naissante pour déplacer cette structure lors de la retraite. Le temple renfermait les restes d'innombrables ancêtres du culte et la paroi rocheuse du Chemin Divin.
+Sous ce volcan se trouvait un édifice complet: le Temple Zhan Shen. Il avait fallu plusieurs cultivateurs de l'Âme Naissante pour déplacer cette structure lors de la retraite. Le temple renfermait les restes d'innombrables ancêtres du culte et la paroi rocheuse du Chemin Divin.
 
 À cet instant, parmi les multiples salles de cristal, l'une d'elles se mit à briller. Immédiatement, une main desséchée s'éleva et un corps décharné sortit de la pièce. Une fois dehors, il pressa le sol de sa main droite. Soudain, une énergie verte convergea depuis tout le temple pour pénétrer son corps. Lentement, ses muscles et sa peau commencèrent à se régénérer.
 
@@ -71,7 +71,7 @@ Sans dire un mot, il agita la main et un écran de cristal apparut devant lui. L
 
 Le jeune homme fixa l'image de Wang Lin. Il forma un sceau de la main, puis ferma les yeux et déploya son Sens Divin. À mesure que son Sens Divin s'étendait, il put ressentir les fluctuations d'énergie spirituelle provenant du sac de rangement.
 
-Il ouvrit les yeux et son corps disparut de la pièce. Il réapparut dans le ciel au-dessus de la mer extérieure de la Mer des Démons et cria: « Technique de recherche d'âmes fantomatiques! »
+Il ouvrit les yeux et son corps disparut de la pièce. Il réapparut dans le ciel au-dessus de la mer extérieure de la Mer Xiu Mo et cria: « Technique de recherche d'âmes fantomatiques! »
 
 Soudain, d'innombrables lueurs vertes jaillirent de son corps. Chaque lueur prit la forme du jeune homme et se propagea dans toutes les directions. Le corps du jeune homme disparut en un éclair.
 
@@ -79,7 +79,7 @@ Quant à Wang Lin, il se tenait actuellement sur le dos de la bête moustique, t
 
 Wang Lin avait hâte de rentrer chez lui. Il aurait voulu que sa vitesse soit multipliée par dix, par cent, par mille! Il aurait voulu être instantanément de retour au pays de Zhao. Mais la réalité était cruelle. Après avoir obtenu la carte, il découvrit qu'il était extrêmement loin de Zhao. S'il se contentait de voler, il lui faudrait plusieurs années pour atteindre son pays natal.
 
-Ce n'était manifestement pas ce que Wang Lin souhaitait; il devait donc utiliser les anciens réseaux de transfert. Heureusement, la carte contenait des informations détaillées sur ces réseaux. Après un certain temps, Wang Lin traça un itinéraire pour retourner à Zhao. Sur cette route, il devait passer par trois réseaux de transfert anciens: un dans la Mer des Démons et deux sur le continent où se trouvait Zhao.
+Ce n'était manifestement pas ce que Wang Lin souhaitait; il devait donc utiliser les anciens réseaux de transfert. Heureusement, la carte contenait des informations détaillées sur ces réseaux. Après un certain temps, Wang Lin traça un itinéraire pour retourner à Zhao. Sur cette route, il devait passer par trois réseaux de transfert anciens: un dans la Mer Xiu Mo et deux sur le continent où se trouvait Zhao.
 
 La direction vers laquelle Wang Lin se dirigeait était celle du réseau de transfert. La carte indiquait que l'intégrité du réseau n'était pas élevée, mais qu'il restait utilisable. Cependant, Wang Lin ignorait si les informations de la carte étaient encore d'actualité ou si le réseau existait toujours et s'il était encore fonctionnel.
 

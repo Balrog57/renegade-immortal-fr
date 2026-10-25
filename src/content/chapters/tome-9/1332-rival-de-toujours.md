@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1332 - Arch-Rival
 slug: rival-de-toujours
 ---
-Le maigre cultivateur avait débité un long discours, et tous ses mots étaient empreints de sincérité. Devant lui, les membres de la secte restaient bouche bée. Ils séjournaient dans la Secte du Tonnerre Céleste depuis un certain temps, mais ils n'avaient jamais vu leur Maître de Secte, d'ordinaire si majestueux et dominateur, prononcer de tels mots.
+Le maigre cultivateur avait débité un long discours, et tous ses mots étaient empreints de sincérité. Devant lui, les membres de la secte restaient bouche bée. Ils séjournaient dans la Secte Tian Lei depuis un certain temps, mais ils n'avaient jamais vu leur Maître de Secte, d'ordinaire si majestueux et dominateur, prononcer de tels mots.
 
 L'expression habituellement calme de Wang Lin se mua en un étrange sourire à l'écoute des paroles de ce cultivateur svelte.
 
@@ -14,7 +14,7 @@ Ce dernier ne laissait transparaître aucune trace de fausseté, comme si tout c
 
 Grâce à sa sagesse, Wang Lin avait naturellement percé à jour le plan du cultivateur. Ce dernier savait qu'il ne pouvait pas résister, et que c'était là son seul moyen de préserver sa culture.
 
-« Quel est ton nom? » Wang Lin atterrit au sol avec la légèreté d'une feuille de saule flottant dans le vent, se tenant désormais au centre de la place de la Secte du Tonnerre Céleste.
+« Quel est ton nom? » Wang Lin atterrit au sol avec la légèreté d'une feuille de saule flottant dans le vent, se tenant désormais au centre de la place de la Secte Tian Lei.
 
 « Pour répondre: mon nom est Zhong Dahong. Zhong comme dans le petit Zhong, et Hong comme dans le petit Hong. Ce junior a toujours été loyal et sincère envers tous, et ne veut que tailler les ronces et trancher les obstacles pour vous, sous les étoiles comme sous la lune. Laissez-moi ouvrir la voie, laissez-moi... » Le cultivateur allait poursuivre, mais Wang Lin l'interrompit.
 
@@ -46,7 +46,7 @@ Personne ne remarqua qu'il venait d'ouvrir une fissure spatiale, d'où s'échapp
 
 « Maître, vous vous êtes enfin souvenu de moi! Ah, Petit Xu a passé toutes ces années à donner des leçons à ce Liu Jinbiao et n'a pas été paresseux du tout! » Bien que le cri de Xu Liguo provienne de la fissure de l'espace de stockage, pour tous les autres, il semblait surgir du vide.
 
-Au même instant, Xu Liguo apparut au sein de la Secte du Tonnerre Céleste.
+Au même instant, Xu Liguo apparut au sein de la Secte Tian Lei.
 
 En entendant la voix de Xu Liguo, les yeux de Dahong se plissèrent comme s'il faisait face à l'ennemi le plus redoutable de sa vie.
 
@@ -62,7 +62,7 @@ Dahong fixa Xu Liguo, son expression devenant encore plus grave: « Même son ex
 
 Wang Lin esquissa un sourire énigmatique tout en alternant son regard entre Xu Liguo et Dahong. La raison pour laquelle il avait convoqué Xu Liguo était en partie liée à Dahong.
 
-« Il serait peut-être préférable que Xu Liguo collecte des cristaux de tonnerre pour moi au sein du Clan du Tonnerre Dispersé... » Wang Lin prit sa décision, puis hocha légèrement la tête et dit lentement: « Si tu accomplis cela avec succès, nous pourrons en discuter. »
+« Il serait peut-être préférable que Xu Liguo collecte des cristaux de tonnerre pour moi au sein du Clan Shan Lei... » Wang Lin prit sa décision, puis hocha légèrement la tête et dit lentement: « Si tu accomplis cela avec succès, nous pourrons en discuter. »
 
 Sur ces mots, Wang Lin envoya un message mental à Xu Liguo lui signifiant son ordre. En l'entendant, le corps de ce dernier se mit à trembler. Il tremblait d'excitation et, une fois les ordres de Wang Lin terminés, il leva les yeux avec enthousiasme en riant:
 
@@ -78,17 +78,17 @@ Xu Liguo observa les alentours, puis fixa Dahong. Il n'avait pas prêté attenti
 
 Dahong répondit avec le même sourire et joignit les mains: « Je suis Zhong Dahong. Zhong comme le grand Zhong, et Rouge comme le grand rouge! »
 
-Leurs regards se percutèrent à cet instant. Le sourire de Xu Liguo resta imperturbable alors qu'il détournait les yeux. Juste avant qu'il ne puisse parler, Dahong prit les devants avec un air flatteur: « Aîné, la Secte du Tonnerre Céleste compte de nombreux membres. Permettez-moi d'aller rassembler leurs biens échangeables contre des cristaux de tonnerre pour vous les offrir. »
+Leurs regards se percutèrent à cet instant. Le sourire de Xu Liguo resta imperturbable alors qu'il détournait les yeux. Juste avant qu'il ne puisse parler, Dahong prit les devants avec un air flatteur: « Aîné, la Secte Tian Lei compte de nombreux membres. Permettez-moi d'aller rassembler leurs biens échangeables contre des cristaux de tonnerre pour vous les offrir. »
 
 Après avoir dit cela, il se retourna et rugit vers les membres de la secte qui restaient stupéfaits par la scène.
 
 Sous sa pression, tout ce qui pouvait être échangé contre des cristaux de tonnerre fut collecté par Dahong et remis à Wang Lin. Ce dernier rangea le butin, ses yeux brillant d'une lueur indéchiffrable. Il agita la main droite et sortit une pilule.
 
-Il sortit avec désinvolture une pilule qui, à ses yeux, n'avait aucune valeur. C'était une pilule qu'il avait raffinée à partir de l'âme d'une bête de rang 4 dans la Mer des Nuages. Cependant, en voyant cela, les yeux de Dahong s'écarquillèrent et il s'exclama: « Une Pilule d'Âme!! Cette pilule peut être échangée contre au moins 20 000 cristaux de tonnerre, elle est extrêmement rare! »
+Il sortit avec désinvolture une pilule qui, à ses yeux, n'avait aucune valeur. C'était une pilule qu'il avait raffinée à partir de l'âme d'une bête de rang 4 dans la Mer Yun. Cependant, en voyant cela, les yeux de Dahong s'écarquillèrent et il s'exclama: « Une Pilule d'Âme!! Cette pilule peut être échangée contre au moins 20 000 cristaux de tonnerre, elle est extrêmement rare! »
 
 Les yeux de Wang Lin s'illuminèrent et il fit un geste de la main. La pilule atterrit dans la paume de Dahong.
 
-« Je te donne cette pilule. Désormais, tu m'aideras à collecter des objets pour les échanger contre des cristaux de tonnerre! » dit doucement Wang Lin. Il n'avait pas l'intention d'échanger ses propres pilules, car cela renforcerait le Clan du Tonnerre Dispersé. Au lieu de cela, il allait utiliser Dahong pour soutirer les trésors des membres du clan afin de les convertir en cristaux!
+« Je te donne cette pilule. Désormais, tu m'aideras à collecter des objets pour les échanger contre des cristaux de tonnerre! » dit doucement Wang Lin. Il n'avait pas l'intention d'échanger ses propres pilules, car cela renforcerait le Clan Shan Lei. Au lieu de cela, il allait utiliser Dahong pour soutirer les trésors des membres du clan afin de les convertir en cristaux!
 
 Dahong prit une profonde inspiration, serra la pilule et déclara immédiatement: « Aîné, soyez assuré que le junior fera de son mieux! »
 

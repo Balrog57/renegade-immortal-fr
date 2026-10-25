@@ -10,7 +10,7 @@ Les yeux de Wang Lin s'illuminèrent. Tout en reculant, il leva l'épée célest
 
 L'énergie de la lame fondit sur lui et, dans un fracas retentissant, Wang Lin fut projeté en arrière. Utilisant l'élan de cette force, il continua sa retraite. La puissance de cette énergie de lame était comparable à une attaque de pleine puissance d'un cultivateur au stade avancé de la Transformation de l'Âme. Sans le drapeau des milliards d'âmes, Wang Lin n'aurait eu aucun moyen de rivaliser.
 
-Wang Lin recula rapidement. Il ne chercha pas à s'échapper par le chemin qu'il avait emprunté, mais prit la direction opposée; il s'enfonça plus profondément dans le Tombeau de Suzaku.
+Wang Lin recula rapidement. Il ne chercha pas à s'échapper par le chemin qu'il avait emprunté, mais prit la direction opposée; il s'enfonça plus profondément dans le Tombeau Zhu Que.
 
 Des vagues de messages transmis par Sens Divin émanèrent de la lame. Elle ordonnait à toutes les épées du trésor de poursuivre Wang Lin.
 
@@ -106,7 +106,7 @@ La lame devint encore plus rapide, au point que Wang Lin ne parvint bientôt plu
 
 « Je dois en faire mienne! » Les yeux de Wang Lin s'illuminèrent alors qu'il sortait l'épée céleste. D'un geste sec, il força Xu Liguo à sortir de l'épée.
 
-« Xu Liguo, supporte cela un moment, fais comme si c'était l'ancêtre du Clan des Démons Géants. Une fois que j'aurai récupéré mon fragment d'âme, je reviendrai te sauver! » Sur ce, Wang Lin agita la main et Xu Liguo s'envola dans les airs.
+« Xu Liguo, supporte cela un moment, fais comme si c'était l'ancêtre du Clan Ju Mo. Une fois que j'aurai récupéré mon fragment d'âme, je reviendrai te sauver! » Sur ce, Wang Lin agita la main et Xu Liguo s'envola dans les airs.
 
 Xu Liguo poussa un cri et s'apprêtait à s'enfuir quand la lame en demi-lune le rattrapa et disparut avec lui.
 

@@ -1,36 +1,36 @@
 ---
 n: 141
-title: Combattre la Secte de la Lutte contre le Mal
+title: Combattre la Secte Dou Xie
 book: 3
 bookTitle: Famous in the Sea of Devils
 en: Chapter 141 - Fighting Evil Secte
 slug: combattre-le-secte-de-la-lutte-contre-le-mal
 ---
-La brume était très épaisse dans la Mer des Démons, saturée d'énergie Yin. Wang Lin n'était arrivé que depuis peu, mais ses vêtements étaient déjà trempés. La sensation collante du tissu contre sa peau était particulièrement inconfortable.
+La brume était très épaisse dans la Mer Xiu Mo, saturée d'énergie Yin. Wang Lin n'était arrivé que depuis peu, mais ses vêtements étaient déjà trempés. La sensation collante du tissu contre sa peau était particulièrement inconfortable.
 
 Quant à Li Muwan, son visage n'était plus pâle mais légèrement rose, et sa peau était douce comme de la soie. Ses vêtements, également imbibés par la brume, révélaient les courbes de son corps exquis et charmant.
 
 Wang Lin jeta un seul regard avant de détourner les yeux. Son cœur ne fut nullement troublé. S'il n'avait pas été pour le fait que Li Muwan pouvait raffiner la Pilule du Ciel Lointain et diverses autres pilules, il ne l'aurait jamais autorisée à le suivre.
 
-La Mer des Démons était un bassin immense. Après une longue descente, il n'en avait toujours pas aperçu le fond. Cependant, il remarqua que plus il s'enfonçait, plus l'énergie Yin se faisait intense.
+La Mer Xiu Mo était un bassin immense. Après une longue descente, il n'en avait toujours pas aperçu le fond. Cependant, il remarqua que plus il s'enfonçait, plus l'énergie Yin se faisait intense.
 
 Bientôt, d'étranges créatures commencèrent à apparaître dans la brume, certaines présentant même des fluctuations d'énergie spirituelle. Cela surprit Wang Lin, mais heureusement, il parvint à les détecter assez tôt; il n'y eut que quelques frayeurs et jamais de réel danger.
 
-Li Muwan était extrêmement nerveuse, car elle avait entendu trop de rumeurs sur cette Mer des Démons. Ici, la raison n'avait pas sa place, seule la puissance importait. De plus, la rareté des cultivatrices signifiait que sans un puissant soutien, son destin serait probablement bien misérable.
+Li Muwan était extrêmement nerveuse, car elle avait entendu trop de rumeurs sur cette Mer Xiu Mo. Ici, la raison n'avait pas sa place, seule la puissance importait. De plus, la rareté des cultivatrices signifiait que sans un puissant soutien, son destin serait probablement bien misérable.
 
-Avant les troubles de Huo Fen, de nombreux cultivateurs étaient toujours stationnés à la frontière de la Mer des Démons, incluant souvent des cultivateurs au stade de l'Âme Naissante. Leur unique but était d'empêcher les cultivateurs démoniaques de piller leur pays.
+Avant les troubles de Huo Fen, de nombreux cultivateurs étaient toujours stationnés à la frontière de la Mer Xiu Mo, incluant souvent des cultivateurs au stade de l'Âme Naissante. Leur unique but était d'empêcher les cultivateurs démoniaques de piller leur pays.
 
-Heureusement, les forces puissantes de la Mer des Démons se concentraient dans le centre. Les groupes situés en périphérie étaient de petite taille; ainsi, tant qu'on restait prudent, rien de trop grave ne se produisait.
+Heureusement, les forces puissantes de la Mer Xiu Mo se concentraient dans le centre. Les groupes situés en périphérie étaient de petite taille; ainsi, tant qu'on restait prudent, rien de trop grave ne se produisait.
 
 Wang Lin ne savait pas depuis combien de temps ils volaient quand il s'arrêta soudainement. Li Muwan, incapable de réagir assez vite, percuta son dos. Wang Lin lança un regard froid à la brume au loin et ordonna:
 « Sortez, maintenant! »
 
 Trois silhouettes fines et élancées apparurent dans le brouillard. La brume était trop épaisse pour que Wang Lin puisse distinguer leurs traits exacts, bien qu'il fût évident qu'il s'agissait de trois cultivateurs masculins. L'un d'eux cria d'une voix stridente:
-« Arrogant! Cette zone appartient à ma Secte de la Lutte contre le Mal. Si tu es intelligent, laisse la cultivatrice derrière toi, ou alors... »
+« Arrogant! Cette zone appartient à ma Secte Dou Xie. Si tu es intelligent, laisse la cultivatrice derrière toi, ou alors... »
 
 Avant qu'il ne puisse finir sa phrase, Wang Lin laissa échapper un ricanement glacial.
 « Trop bavard! Meurs! »
-La carte indiquait bien qu'il n'y avait aucune raison dans la Mer des Démons; seuls les forts étaient respectés. Il agita la main droite et son Sens Divin du Royaume Ji se propagea. Ces trois individus n'étaient que des cultivateurs au stade intermédiaire de l'Établissement des Fondations; Wang Lin pouvait donc les éliminer à sa guise.
+La carte indiquait bien qu'il n'y avait aucune raison dans la Mer Xiu Mo; seuls les forts étaient respectés. Il agita la main droite et son Sens Divin du Royaume Ji se propagea. Ces trois individus n'étaient que des cultivateurs au stade intermédiaire de l'Établissement des Fondations; Wang Lin pouvait donc les éliminer à sa guise.
 
 Aussitôt, un éclair rouge traversa leurs yeux. Les trois corps tremblèrent violemment, leurs regards se firent confus puis de plus en plus ternes, leur Sens Divin se brisa et ils moururent.
 
@@ -68,7 +68,7 @@ Ce n'est qu'après avoir traversé ce cycle plusieurs fois que le premier stade 
 
 Après avoir écouté Li Muwan décrire le sort de la mort d'une voix tremblante, l'expression de Wang Lin changea imperceptiblement et il resta silencieux. Ce silence terrifia davantage Li Muwan, dont le cœur battait violemment.
 
-Après avoir voyagé dans la Mer des Démons un certain temps, Wang Lin atteignit enfin le fond de la mer. La brume y était bien plus dense et l'énergie Yin beaucoup plus puissante.
+Après avoir voyagé dans la Mer Xiu Mo un certain temps, Wang Lin atteignit enfin le fond de la mer. La brume y était bien plus dense et l'énergie Yin beaucoup plus puissante.
 
 Observant le fond en contrebas, Wang Lin médita un instant avant de reculer. Il effectua quelques bonds jusqu'à trouver un sommet montagneux. Debout sur un éperon rocheux, il sortit une épée volante de son sac de rangement et la pointa vers la montagne. L'épée s'élança et commença à entamer la roche.
 
@@ -114,7 +114,7 @@ Les yeux de Li Muwan s'embuèrent immédiatement et elle baissa la tête en sile
 « Senior frère m'a sauvé la vie. Dites-moi simplement ce que je dois faire pour que vous me croyiez. » À cet instant, elle était d'une beauté et d'une séduction troublantes.
 
 Wang Lin ne fut nullement affecté par sa beauté. Son expression resta impassible lorsqu'il déclara:
-« Je n'aime pas contraindre les gens, je ne te demanderai donc pas trop. Tout ce que j'attends de toi, c'est que tu raffines suffisamment de pilules pour me permettre d'atteindre le stade de la Formation du Noyau. Une fois ce stade atteint, je t'escorterai hors de la Mer des Démons. Mais durant cette période, je veux que tu me remettes ton sang d'essence spirituelle pour garantir qu'aucun incident ne survienne lors de la fabrication des pilules. »
+« Je n'aime pas contraindre les gens, je ne te demanderai donc pas trop. Tout ce que j'attends de toi, c'est que tu raffines suffisamment de pilules pour me permettre d'atteindre le stade de la Formation du Noyau. Une fois ce stade atteint, je t'escorterai hors de la Mer Xiu Mo. Mais durant cette période, je veux que tu me remettes ton sang d'essence spirituelle pour garantir qu'aucun incident ne survienne lors de la fabrication des pilules. »
 
 Li Muwan réfléchit un instant, puis hocha la tête. Elle pressa son doigt contre son front et en tira une goutte de sang d'essence spirituelle. Après y avoir fondu une part de son âme, elle la fit flotter vers Wang Lin.
 
@@ -147,10 +147,10 @@ Wang Lin fronça légèrement les sourcils. Il la regarda, puis partit sans un m
 
 Li Muwan soupira intérieurement. Elle n'avait pas voulu mentir, mais elle craignait que la vérité ne le pousse à l'abandonner plus tôt. Cependant, maintenant qu'elle lui avait confié son sang d'essence spirituelle, elle jugea nécessaire de mentionner ce taux de réussite; si un problème survenait plus tard, il pourrait s'en prendre à elle dans un accès de colère.
 
-Après avoir quitté la grotte, Wang Lin vérifia sa direction et regarda au loin, par-delà la Mer des Démons, vers le continent où se trouvait le pays de Zhao. Ses yeux se glacèrent:
+Après avoir quitté la grotte, Wang Lin vérifia sa direction et regarda au loin, par-delà la Mer Xiu Mo, vers le continent où se trouvait le pays de Zhao. Ses yeux se glacèrent:
 « Teng Huayuan, je suis sur le point d'atteindre la Formation du Noyau. Une fois que j'aurai atteint l'Âme Naissante, je me frayerai un chemin jusqu'à Zhao pour anéantir la Cité de la Famille Teng. Teng Huayuan, ne meurs pas trop vite. Vis et attends mon retour... »
 
-La froideur dans son regard s'estompa. Il fit un pas, activa la technique d'évasion tellurique et s'élança vers l'horizon. Son but était de trouver davantage d'ossements de bêtes spirituelles. Selon Li Muwan, seule une quantité accrue permettrait à la formation aux neuf squelettes d'atteindre sa puissance maximale. Wang Lin savait qu'il allait bientôt se retirer pour tenter la Formation du Noyau et que, dans un lieu aussi périlleux que la Mer des Démons, il lui fallait une grotte relativement sûre pour éviter tout incident.
+La froideur dans son regard s'estompa. Il fit un pas, activa la technique d'évasion tellurique et s'élança vers l'horizon. Son but était de trouver davantage d'ossements de bêtes spirituelles. Selon Li Muwan, seule une quantité accrue permettrait à la formation aux neuf squelettes d'atteindre sa puissance maximale. Wang Lin savait qu'il allait bientôt se retirer pour tenter la Formation du Noyau et que, dans un lieu aussi périlleux que la Mer Xiu Mo, il lui fallait une grotte relativement sûre pour éviter tout incident.
 
 Une autre raison était le besoin de crânes de bêtes spirituelles pour fabriquer le fourneau de réaction nécessaire à la technique de raffinage du Sanctuaire du Dieu de la Guerre. Avec les formations et ce fourneau, les ossements étaient devenus une nécessité absolue. Selon le jade de la carte, des bêtes spirituelles rôdaient dans la brume et leurs restes gisaient au fond de la mer.
 
@@ -185,7 +185,7 @@ Le corps de l'homme trembla tandis qu'il crachait une bouffée de sang noir. Aff
 Soudain, il se figea, les yeux fixés sur une silhouette sombre émergeant de la brume. Une sueur froide perla sur son front. Alors qu'il poursuivait son aîné, il avait déployé son Sens Divin sans rien remarquer; si cette personne apparaissait ainsi, c'était que son niveau de culture surpassait de loin le sien.
 
 Il jeta le corps au sol, joignit immédiatement les mains et s'inclina avec respect. Sa malveillance disparut instantanément pour laisser place à un masque de sincérité:
-« Ce disciple est Sang Muya, de la Secte de la Lutte contre le Mal. Pourquoi Senior barre-t-il la route à ce disciple? Quels sont vos ordres? Je ferai tout mon possible pour vous satisfaire. »
+« Ce disciple est Sang Muya, de la Secte Dou Xie. Pourquoi Senior barre-t-il la route à ce disciple? Quels sont vos ordres? Je ferai tout mon possible pour vous satisfaire. »
 
 Wang Lin sortit lentement de la brume et lança un regard glacial au jeune homme.
 
@@ -195,6 +195,6 @@ Le cœur du disciple trembla et son expression devint encore plus déférente.
 
 « Apporte ton os de bête, » ordonna Wang Lin d'une voix froide et dépourvue d'émotion.
 
-Plus Wang Lin agissait ainsi, plus Sang Muya paniquait. Ayant grandi dans la Mer des Démons, il connaissait toutes sortes de techniques démoniaques. Bien que sa culture fût modeste, il avait réussi à cultiver une paire d'Yeux de Connaissance Démoniaque. Il savait que les puissants cultivateurs démoniaques étaient cruels, mais la plupart n'étaient que des imitateurs. Cet homme, en revanche, exhalait une froideur et une impitoyabilité qui semblaient venir de son âme même; ce regard suffisait à glacer son propre cœur.
+Plus Wang Lin agissait ainsi, plus Sang Muya paniquait. Ayant grandi dans la Mer Xiu Mo, il connaissait toutes sortes de techniques démoniaques. Bien que sa culture fût modeste, il avait réussi à cultiver une paire d'Yeux de Connaissance Démoniaque. Il savait que les puissants cultivateurs démoniaques étaient cruels, mais la plupart n'étaient que des imitateurs. Cet homme, en revanche, exhalait une froideur et une impitoyabilité qui semblaient venir de son âme même; ce regard suffisait à glacer son propre cœur.
 
 Il jeta précipitamment l'os de bête qu'il tenait, n'osant nourrir la moindre pensée de résistance.

@@ -22,7 +22,7 @@ Il était totalement immergé dans la sculpture, en quête de cette joie perdue 
 
 Dans la boutique de Wang Lin, les œuvres les plus fréquentes étaient des représentations réalistes de bêtes. Tous ces animaux étaient des créatures que les mortels n'avaient jamais vues auparavant.
 
-En réalité, même si des cultivateurs passaient par là, ils auraient eu du mal à les reconnaître. Après tout, cet endroit était bien trop éloigné de la Mer des Démons. Le monde est vaste et regorge de types de bêtes si divers qu'il est impossible pour un seul homme de tous les connaître.
+En réalité, même si des cultivateurs passaient par là, ils auraient eu du mal à les reconnaître. Après tout, cet endroit était bien trop éloigné de la Mer Xiu Mo. Le monde est vaste et regorge de types de bêtes si divers qu'il est impossible pour un seul homme de tous les connaître.
 
 À cet instant, Wang Lin tenait un bloc de bois carré entre ses mains. Ses mouvements étaient précis, et une créature en forme de tortue émergeait progressivement du bois.
 
@@ -45,7 +45,7 @@ Wang Lin lui frotta la tête et répondit:
 
 Da Niu hocha la tête avec hésitation. Durant l'année écoulée, il avait vu toutes sortes d'animaux dans cette boutique, et chacun d'eux était une espèce qu'il n'avait jamais rencontrée auparavant.
 
-Wang Lin reprit son couteau et commença à tracer les traits de la créature, trait après trait. Cette bête à l'apparence de tortue était en fait une bête spirituelle rare de qualité moyenne dans cette Mer des Démons. Si elle entrait dans une rage folle, des cultivateurs ordinaires ne pourraient absolument pas résister à sa force.
+Wang Lin reprit son couteau et commença à tracer les traits de la créature, trait après trait. Cette bête à l'apparence de tortue était en fait une bête spirituelle rare de qualité moyenne dans cette Mer Xiu Mo. Si elle entrait dans une rage folle, des cultivateurs ordinaires ne pourraient absolument pas résister à sa force.
 
 Mais Wang Lin avait tué de nombreux spécimens de ce genre et en avait avalé de nombreux noyaux. Ainsi, l'image était parfaitement gravée dans son esprit et sa main ne marquait aucune pause.
 
@@ -81,7 +81,7 @@ Soudain, un vacarme retentit à l'extérieur. Da Niu courut voir ce qui se passa
 
 Sur ces mots, il repartit en courant.
 
-Wang Lin n'en fut pas perturbé. Il prit un autre morceau de bois et commença à se remémorer les scènes du Pays de l'Ancien Dieu, et cette immense bête désolée qui avait marqué son esprit. Il hésita un instant, puis se remit au travail.
+Wang Lin n'en fut pas perturbé. Il prit un autre morceau de bois et commença à se remémorer les scènes du Pays Gu Shen, et cette immense bête désolée qui avait marqué son esprit. Il hésita un instant, puis se remit au travail.
 
 Le temps s'écoula lentement. Plus de deux heures plus tard, la porte de la boutique fut poussée. Da Niu entra joyeusement, suivi d'un jeune homme à l'allure très robuste. Ce dernier parcourut les sculptures du regard et ses yeux s'illuminèrent.
 
@@ -130,4 +130,4 @@ Après s'être parlé à lui-même, il prit une décision. Ce n'était que soixa
 
 Dans son enthousiasme actuel, il ne réalisait pas que ces soixante ans étaient le temps nécessaire avant de pouvoir créer quoi que ce soit. Même s'il n'avait plus à se soucier de l'argent, cela ne serait que dans soixante ans.
 
-Le jeune homme Xu quitta la boutique et rentra chez lui pour prévenir ses parents. Il ne prit même pas le dîner qu'ils avaient préparé; il rassembla aussitôt tout son entourage et se précipita vers le Palais de Nan, dans la partie est de la ville.
+Le jeune homme Xu quitta la boutique et rentra chez lui pour prévenir ses parents. Il ne prit même pas le dîner qu'ils avaient préparé; il rassembla aussitôt tout son entourage et se précipita vers le Palais Nan Wang, dans la partie est de la ville.

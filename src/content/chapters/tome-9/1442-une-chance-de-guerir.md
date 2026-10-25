@@ -38,7 +38,7 @@ Soudain, un éclair blanc jaillit: Wang Lin surgit comme un coup de tonnerre. Da
 
 « Chaque fois qu'une bête est tuée avant de pouvoir s'autodétruire, une vague de force vitale pénètre dans son corps. Non seulement cela soigne ses blessures, mais c'est comme si l'on pratiquait la culture pendant plusieurs jours! »
 
-Cependant, le constat était amer: près de mille bêtes avaient déjà été éliminées par Wang Lin et 30 % s'étaient autodétruites. Les mille restantes formaient un groupe compact. Tel un éclair, Wang Lin chargea ce groupe avant quiconque. Derrière lui, à l'exception de la femme du Clan de l'Extermination des Sceaux qui n'osait pas quitter sa plateforme, et de la femme en blanc qui restait indifférente, tous les autres cultivateurs lancèrent leur assaut. Pour eux, ces bêtes étaient devenues des pilules précieuses qu'il fallait s'approprier avant Wang Lin!
+Cependant, le constat était amer: près de mille bêtes avaient déjà été éliminées par Wang Lin et 30 % s'étaient autodétruites. Les mille restantes formaient un groupe compact. Tel un éclair, Wang Lin chargea ce groupe avant quiconque. Derrière lui, à l'exception de la femme du Clan Feng Mie qui n'osait pas quitter sa plateforme, et de la femme en blanc qui restait indifférente, tous les autres cultivateurs lancèrent leur assaut. Pour eux, ces bêtes étaient devenues des pilules précieuses qu'il fallait s'approprier avant Wang Lin!
 
 « Camarade en robe blanche, puisque nous sommes venus ensemble, nous ne pouvons vous laisser affronter ces mille bêtes seul. Faisons cela ensemble! »
 « Camarade, ne soyez pas si pressé. Il y a près de mille bêtes; si elles s'autodétruisent toutes, la puissance sera dévastatrice. Soyons prudents! »
@@ -52,7 +52,7 @@ Dans un grondement sourd, le Fourneau Impérial s'agita et les bêtes à l'inté
 
 Tout cela se produisit en un instant. Wang Lin avait instantanément raflé toutes les bêtes restantes, ne laissant rien derrière lui! Il se retourna et son regard balaya ses poursuivants. Voyant l'émotion bouillonnante dans leurs yeux, il regagna sa plateforme d'un pas assuré. D'un mouvement de manche, il déploya sa puissance de culture pour saturer la zone.
 
-Les vingt cultivateurs lui lançaient des regards hostiles, mais la présence écrasante de Wang Lin les intimidait, et nul n'osa faire le premier pas. La jeune fille du Clan de l'Extermination des Sceaux vit l'opportunité de s'avancer, mais le regard glacial de Wang Lin se posa sur elle. Son esprit vacilla, son visage pâlit et elle resta pétrifiée.
+Les vingt cultivateurs lui lançaient des regards hostiles, mais la présence écrasante de Wang Lin les intimidait, et nul n'osa faire le premier pas. La jeune fille du Clan Feng Mie vit l'opportunité de s'avancer, mais le regard glacial de Wang Lin se posa sur elle. Son esprit vacilla, son visage pâlit et elle resta pétrifiée.
 
 Un instant plus tard, les cultivateurs regagnèrent leurs plateformes, mettant l'affaire de côté pour le moment, bien que leur hostilité envers Wang Lin fût palpable. Seule la femme en blanc le regarda avec admiration en hochant légèrement la tête.
 

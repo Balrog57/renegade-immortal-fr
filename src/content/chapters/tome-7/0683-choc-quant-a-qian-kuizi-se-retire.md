@@ -52,7 +52,7 @@ Qian Kuizi était tiraillé. D'un côté, il convoitait cette marionnette, mais 
 
 Les yeux de Qian Kuizi s'illuminèrent et il dit lentement: « Remets-moi ta marionnette et ce vieil homme ne s'impliquera pas dans cette affaire! »
 
-Le regard de Wang Lin devint plus glacial encore. Il lui restait deux rayons d'énergie d'épée de Ling Tianhou. Avant d'entrer dans l'Abîme des Marées, il en possédait deux. Puis, il en avait utilisé un pour aider le démon ancien et en avait gagné deux autres à l'intérieur de l'Abîme, soit un total de trois rayons.
+Le regard de Wang Lin devint plus glacial encore. Il lui restait deux rayons d'énergie d'épée de Ling Tianhou. Avant d'entrer dans l'Abîme Chao Xi, il en possédait deux. Puis, il en avait utilisé un pour aider le démon ancien et en avait gagné deux autres à l'intérieur de l'Abîme, soit un total de trois rayons.
 
 L'ombre sous les pieds de Wang Lin vacilla et le gardien céleste apparut. Une lueur d'intention de combat traversa ses yeux alors qu'il fixait Qian Kuizi.
 

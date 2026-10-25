@@ -18,15 +18,15 @@ Lorsque l'empreinte disparut, Du Qing ressentit secrètement un soulagement. Il 
 
 « Cette personne possède un passé extrêmement puissant, et elle a reçu un trésor d'un Grand Empyréen. Rencontrer quelqu'un de cette trempe est une chance inouïe! J'ai perdu la tête! Comment ai-je pu partir ainsi? Si je peux obtenir les conseils d'un Grand Empyréen, mon niveau de culture augmentera sans aucun doute! »
 
-« Si je le suis et que j'accède à ce passé, je n'aurai plus à me soucier de la Secte de la Grande Âme. Je n'aurai plus besoin de lui envoyer les précieux trésors que je trouverai! » En y pensant, l'expression déprimée de Du Qing s'effaça pour laisser place à l'excitation.
+« Si je le suis et que j'accède à ce passé, je n'aurai plus à me soucier de la Secte Da Hun. Je n'aurai plus besoin de lui envoyer les précieux trésors que je trouverai! » En y pensant, l'expression déprimée de Du Qing s'effaça pour laisser place à l'excitation.
 
-« Oui, c'est exact. C'est une opportunité dont d'innombrables cultivateurs rêvent. Si une autre secte du Continent du Taureau Céleste apprenait qu'il possède un trésor offert par un Grand Empyréen, ils deviendraient fous. Ils l'inviteraient immédiatement comme invité d'honneur et lui donneraient tout ce qu'il demanderait... »
+« Oui, c'est exact. C'est une opportunité dont d'innombrables cultivateurs rêvent. Si une autre secte du Continent Tian Niu apprenait qu'il possède un trésor offert par un Grand Empyréen, ils deviendraient fous. Ils l'inviteraient immédiatement comme invité d'honneur et lui donneraient tout ce qu'il demanderait... »
 
 « Les cieux ont des yeux, ma fortune est arrivée. Pour l'instant, je suis le seul à connaître son identité, et je ne dois laisser personne d'autre le savoir. Ce bénéfice m'est réservé à moi seul... J'ignore seulement quel Grand Empyréen se cache derrière lui... Peu importe lequel! » Le corps de Du Qing était fait de bois et n'avait pas de cœur, mais il eut l'impression d'entendre ses propres battements de cœur à cet instant.
 
 « Haha, une chance céleste, c'est une véritable bénédiction du ciel! » Les yeux de Du Qing brillèrent alors qu'il fixait la boule de feu où se trouvait Wang Lin. Il prit une profonde inspiration et força un sourire.
 
-« Un malentendu, tout n'est que malentendu. Camarade Cultivateur, c'est un malentendu. Je trouvais depuis longtemps que la porte de montagne de la Secte du Dragon Bleu était trop délabrée et je voulais la détruire pour la reconstruire. Vous êtes intervenu juste à temps pour m'aider et je vous en suis infiniment reconnaissant. En réalité, je vous ai rattrapé pour vous remercier, Camarade Cultivateur! » Du Qing ne cilla même pas en parlant.
+« Un malentendu, tout n'est que malentendu. Camarade Cultivateur, c'est un malentendu. Je trouvais depuis longtemps que la porte de montagne de la Secte Cang Long était trop délabrée et je voulais la détruire pour la reconstruire. Vous êtes intervenu juste à temps pour m'aider et je vous en suis infiniment reconnaissant. En réalité, je vous ai rattrapé pour vous remercier, Camarade Cultivateur! » Du Qing ne cilla même pas en parlant.
 
 « Oh? » Wang Lin regarda Du Qing avec un sourire qui n'en était pas un. C'était comme s'il avait percé à jour les pensées de Du Qing.
 
@@ -68,7 +68,7 @@ Les cris de l'Oiseau Vermillon résonnaient depuis l'intérieur de la sphère et
 
 Cependant, au sein de cette sphère de soixante-dix pieds, une volonté de feu se propageait. Cette volonté enveloppait le monde et semblait prête à entrer en conflit avec la volonté du feu terrestre.
 
-C'était comme si deux volontés de feu s'étaient manifestées sur le Continent du Taureau Céleste!
+C'était comme si deux volontés de feu s'étaient manifestées sur le Continent Tian Niu!
 
 La sensation était étrange. L'une de ces volontés appartenait à la veine de feu terrestre du continent, tandis que l'autre émanait de la boule de feu que Du Qing observait!
 
@@ -94,9 +94,9 @@ Les yeux de Du Qing brillèrent d'une lueur singulière. Il fixa la boule et une
 
 « Les essences se divisent également en strates: de la formation initiale de l'essence à la condensation d'un trésor d'essence, jusqu'à l'aboutissement final. Chaque étape doit être franchie l'une après l'autre. Cependant, la légende raconte que parmi les génies, certains peuvent aller plus loin après avoir parachevé leur essence: former un Corps Véritable d'Essence! »
 
-« Un Corps Véritable d'Essence est extrêmement rare, et lorsqu'il apparaît, sa puissance dépasse l'entendement! Dans toute ma vie, je n'ai vu que l'Ancien Suprême de la Secte de la Grande Âme posséder un Corps Véritable d'Essence d'Âme, et personne d'autre... Ceci... Ce Camarade Cultivateur Wang essaie vraiment de former un Corps Véritable d'Essence! » Du Qing regardait Wang Lin avec une incrédulité totale.
+« Un Corps Véritable d'Essence est extrêmement rare, et lorsqu'il apparaît, sa puissance dépasse l'entendement! Dans toute ma vie, je n'ai vu que l'Ancien Suprême de la Secte Da Hun posséder un Corps Véritable d'Essence d'Âme, et personne d'autre... Ceci... Ce Camarade Cultivateur Wang essaie vraiment de former un Corps Véritable d'Essence! » Du Qing regardait Wang Lin avec une incrédulité totale.
 
-Sur le Continent Astral Immortel, les pays antiques étaient divisés en 36 États. Le Pays du Dao Ancien occupait 12 États. L'État du Ciel abritait la capitale royale.
+Sur le Continent Astral Immortel, les pays antiques étaient divisés en 36 États. Le Pays Dao Gu occupait 12 États. L'État du Ciel abritait la capitale royale.
 
 Il existait un lieu parsemé de montagnes verdoyantes et d'une rivière impétueuse. Les feuilles tombaient tandis que le courant rugissait. Au plus profond de la montagne se dressait un imposant autel bleu.
 
@@ -104,6 +104,6 @@ Cet autel dégageait une aura ancestrale, et un jeune homme vêtu de noir y éta
 
 Il s'agissait de Xuan Luo.
 
-Lorsque Wang Lin fit apparaître l'empreinte dorée sur le Continent du Taureau Céleste, Xuan Luo, qui était en culture fermée, ouvrit soudainement les yeux.
+Lorsque Wang Lin fit apparaître l'empreinte dorée sur le Continent Tian Niu, Xuan Luo, qui était en culture fermée, ouvrit soudainement les yeux.
 
 « Il arrive... » Un sourire se dessina sur les lèvres de Xuan Luo. Il savait que le disciple qu'il avait choisi ne mourrait pas dans le vide et qu'il atteindrait enfin le Continent Astral Immortel!

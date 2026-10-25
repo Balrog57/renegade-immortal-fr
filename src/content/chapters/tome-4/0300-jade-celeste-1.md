@@ -54,7 +54,7 @@ En chemin, de nombreuses failles spatiales apparurent près d'eux, mais les deux
 
 Le niveau de culture des deux était celui du début de la Formation de l'Âme; ils n'étaient donc pas en mesure de détecter Wang Lin, dont le sens divin avait déjà atteint le stade avancé de la Formation de l'Âme.
 
-Le sixième frère cadet regarda le gouffre et demanda: « Troisième frère aîné, est-ce bien le Temple des Bêtes Célestes? »
+Le sixième frère cadet regarda le gouffre et demanda: « Troisième frère aîné, est-ce bien le Temple Xian Shou? »
 
 « C'est exact. Cet endroit est l'un des seize Temples des Bêtes Célestes. L'Ancêtre a découvert ce lieu par hasard après de nombreux voyages dans le Royaume Céleste, mais cet endroit devrait être connu de beaucoup. La dernière fois que je suis venu, trois groupes de personnes cherchaient déjà des âmes de bêtes célestes », répondit le troisième frère aîné, avant de sembler se souvenir de quelque chose: « N'oublie pas que tu ne peux pas utiliser de techniques de déplacement instantané à l'intérieur, alors sois prudent. »
 
@@ -66,7 +66,7 @@ L'ombre de Wang Lin apparut à l'extérieur, puis son corps disparut tandis qu'i
 
 « Sixième frère cadet, tu ne comprends pas. S'il reste des âmes de bêtes célestes, elles seront très faibles faute d'énergie spirituelle céleste pour se nourrir. Si nous en trouvons une et que nous la ramenons à la secte pour l'élever, nous aurons accompli un grand exploit. Autrefois, l'Ancêtre avait trouvé une âme de bête céleste Qi Lin ici, ce qui lui permit d'unifier la planète Tian Dun et de rendre la Secte Da Luo célèbre. »
 
-Wang Lin fut intrigué en les écoutant. Bien qu'il ignorât ce qu'était précisément le Temple des Bêtes Célestes, à en juger par son nom et les propos de ces deux hommes, il avait ses propres conjectures.
+Wang Lin fut intrigué en les écoutant. Bien qu'il ignorât ce qu'était précisément le Temple Xian Shou, à en juger par son nom et les propos de ces deux hommes, il avait ses propres conjectures.
 
 Ce lieu devait être l'habitat des bêtes célestes du Royaume Céleste. Toutes n'avaient pas péri lors du désastre; certaines avaient survécu pour continuer leur lignée. C'était la raison d'être de cette matrice de transfert.
 

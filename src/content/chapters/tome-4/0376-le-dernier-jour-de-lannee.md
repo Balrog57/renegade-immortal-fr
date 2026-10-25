@@ -10,15 +10,15 @@ Un rayon de lumière verte filait, rapide comme une étoile filante, au-dessus d
 
 Il était dans un état lamentable; trois marques de coups de poing marquaient son âme originelle, chacune émettant une lueur argentée.
 
-Cet individu était l'ancêtre du Clan des Démons Géants. Gravement blessé par l'enfant démon de Sun Tai, il avait dû s'enfuir sous forme d'âme originelle, emportant son sac de rangement. Il n'avait même pas eu le temps de capturer Wang Lin.
+Cet individu était l'ancêtre du Clan Ju Mo. Gravement blessé par l'enfant démon de Sun Tai, il avait dû s'enfuir sous forme d'âme originelle, emportant son sac de rangement. Il n'avait même pas eu le temps de capturer Wang Lin.
 
 Mais cet enfant démon était bien étrange; il ne prononçait jamais un mot et se contentait de le traquer sans relâche. Au cours des derniers mois, ils avaient presque fait le tour complet de la planète.
 
-Durant cette poursuite, l'ancêtre du Clan des Démons Géants avait subi plusieurs coups de poing de l'enfant démon. Il ne fallait pas sous-estimer ces petites marques, car elles avaient endommagé son âme originelle. S'il n'avait pas été un cultivateur depuis une éternité et ne possédait pas les techniques secrètes du Clan des Démons Géants, il n'aurait jamais pu s'échapper.
+Durant cette poursuite, l'ancêtre du Clan Ju Mo avait subi plusieurs coups de poing de l'enfant démon. Il ne fallait pas sous-estimer ces petites marques, car elles avaient endommagé son âme originelle. S'il n'avait pas été un cultivateur depuis une éternité et ne possédait pas les techniques secrètes du Clan Ju Mo, il n'aurait jamais pu s'échapper.
 
-Trop affaibli pour utiliser à nouveau son pouvoir de lignée, il avait finalement attiré l'enfant démon vers la Petite Terre des Flammes du Nord. Là se trouvait une ancienne restriction en place depuis la fondation même de la planète Suzaku. Ce n'est qu'en piégeant l'enfant démon dans cet endroit qu'il avait pu prendre la fuite.
+Trop affaibli pour utiliser à nouveau son pouvoir de lignée, il avait finalement attiré l'enfant démon vers la Petite Terre Bei Yan Ji. Là se trouvait une ancienne restriction en place depuis la fondation même de la planète Suzaku. Ce n'est qu'en piégeant l'enfant démon dans cet endroit qu'il avait pu prendre la fuite.
 
-Actuellement très faible, il ne souhaitait pas attirer l'attention et regagna rapidement le Clan des Démons Géants. Quant à savoir si Chi Hu et un autre membre du clan avaient survécu, il les avait déjà oubliés.
+Actuellement très faible, il ne souhaitait pas attirer l'attention et regagna rapidement le Clan Ju Mo. Quant à savoir si Chi Hu et un autre membre du clan avaient survécu, il les avait déjà oubliés.
 
 Une fois de retour parmi les siens, il prit immédiatement possession d'un membre du clan pour entamer une culture en méditation profonde.
 
@@ -34,7 +34,7 @@ L'ancêtre pointa l'épée du doigt, et aussitôt, un cri misérable mêlé de s
 
 L'ancêtre tonna: « Esprit d'épée, apparais! »
 
-Une brume noire s'échappa soudainement de l'épée céleste et prit la forme de Xu Liguo. En voyant l'ancêtre du Clan des Démons Géants, il se mit immédiatement à implorer la clémence: « Monseigneur, ayez pitié! Ne me tuez pas! J'ai été forcé par cet homme nommé Wang! Ma haine pour lui n'est en rien moindre que la vôtre, monseigneur! Je le hais jusqu'aux os! »
+Une brume noire s'échappa soudainement de l'épée céleste et prit la forme de Xu Liguo. En voyant l'ancêtre du Clan Ju Mo, il se mit immédiatement à implorer la clémence: « Monseigneur, ayez pitié! Ne me tuez pas! J'ai été forcé par cet homme nommé Wang! Ma haine pour lui n'est en rien moindre que la vôtre, monseigneur! Je le hais jusqu'aux os! »
 
 L'ancêtre fut stupéfait par les paroles de Xu Liguo, puis il esquissa un sourire: « Tu es un esprit d'épée bien étrange. La plupart des esprits d'épée sont d'une loyauté et d'une détermination sans faille. »
 
@@ -44,7 +44,7 @@ L'ancêtre fixa Xu Liguo du regard.
 
 Xu Liguo se gifla aussitôt et déclara prudemment: « Comment ces esprits d'épée pourraient-ils se comparer à votre serviteur? Un homme sage sait quel maître suivre! »
 
-L'ancêtre du Clan des Démons Géants regarda Xu Liguo, puis lui projeta un rayon de lumière verte. Xu Liguo se mit immédiatement à hurler de douleur tout en dénigrant Wang Lin.
+L'ancêtre du Clan Ju Mo regarda Xu Liguo, puis lui projeta un rayon de lumière verte. Xu Liguo se mit immédiatement à hurler de douleur tout en dénigrant Wang Lin.
 
 L'ancêtre eut un ricanement et retira le sort. Il cria alors: « À partir d'aujourd'hui, tu es mon esprit d'épée. Puisque tu t'es rendu de toi-même, je ne t'imposerai aucune restriction. Après tout, entre mes mains, tu ne pourrais pas t'échapper de toute façon! »
 
@@ -66,7 +66,7 @@ L'ancêtre ignorait que Xu Liguo n'était pas l'esprit originel et que sa vivaci
 
 Même si Xu Liguo venait à briser le serment qu'il venait de prêter, la punition ne lui ferait aucun mal. En fait, il attendait cette punition avec impatience, car elle ne ferait que le renforcer.
 
-L'ancêtre du Clan des Démons Géants réfléchit un instant avant de ranger Xu Liguo dans l'épée et de l'examiner avec soin. Plus il observait, plus il était stupéfait.
+L'ancêtre du Clan Ju Mo réfléchit un instant avant de ranger Xu Liguo dans l'épée et de l'examiner avec soin. Plus il observait, plus il était stupéfait.
 
 « Cette épée n'est absolument pas normale! Je ne parviens même pas à identifier le matériau dont elle est faite. »
 
@@ -92,7 +92,7 @@ La grotte était devenue semblable à une cuve de vapeur. L'énergie spirituelle
 
 La quantité d'énergie spirituelle en lui augmentait progressivement, mais elle était encore loin de ce qui était nécessaire pour briser le domaine du thé et le sceau. Ces deux obstacles dévoraient l'énergie; ainsi, à mesure que le niveau de culture de Wang Lin progressait, il devenait de plus en plus difficile de les rompre.
 
-Le temps passa lentement. Un mois s'était écoulé depuis que Wang Lin était devenu disciple extérieur de la Secte de l'Affinement de l'Âme.
+Le temps passa lentement. Un mois s'était écoulé depuis que Wang Lin était devenu disciple extérieur de la Secte Lian Hun.
 
 Ce jour-là, Wang Lin ouvrit les yeux. Son regard était plus vif qu'auparavant. Durant ce mois, il avait absorbé l'énergie spirituelle avec une frénésie incroyable. Sur les trois pierres de qualité supérieure, deux s'étaient déjà transformées en poussière et la dernière était sur le point de s'épuiser elle aussi.
 

@@ -32,9 +32,9 @@ Les membres de la Secte Éternelle étaient de plus en plus exaltés par la comp
 
 La lutte entre les sectes de rang 6 n'avait plus d'intérêt, mais une personne se démarqua et attira tous les regards, tout comme Lu Yuncong l'avait fait autrefois!
 
-Il s'agissait de Yuan Fei, le disciple principal de la Secte de l'Esprit Géant. Toujours plongé dans une culture en isolement, il avait quitté sa secte il y a de nombreuses années et n'était revenu qu'il y a deux siècles. Par conséquent, il avait manqué deux compétitions. C'était un homme d'âge mûr, au stade initial du Briseur du Nirvana. Il était extrêmement féroce; ceux qui l'affrontaient finissaient souvent gravement blessés.
+Il s'agissait de Yuan Fei, le disciple principal de la Secte Ju Ling. Toujours plongé dans une culture en isolement, il avait quitté sa secte il y a de nombreuses années et n'était revenu qu'il y a deux siècles. Par conséquent, il avait manqué deux compétitions. C'était un homme d'âge mûr, au stade initial du Briseur du Nirvana. Il était extrêmement féroce; ceux qui l'affrontaient finissaient souvent gravement blessés.
 
-Cet homme occupait la première place parmi les juniors des sectes de rang 6. Si ce n'était son absence constante, la Secte de la Musique Céleste n'aurait jamais obtenu sa position de premier rang et Lu Yingjie ne serait pas devenu célèbre.
+Cet homme occupait la première place parmi les juniors des sectes de rang 6. Si ce n'était son absence constante, la Secte Xian Yin n'aurait jamais obtenu sa position de premier rang et Lu Yingjie ne serait pas devenu célèbre.
 
 Il représentait les jeunes talents de sa secte. Même Lu Yingjie, bien que méfiant, esquissa un sourire méprisant silencieux sans pour autant apparaître. Cela permit à la renommée de Yuan Fei de s'envoler!
 
@@ -48,7 +48,7 @@ L'expression de Li Qianmei resta calme alors qu'elle observait Yuan Fei sur l'ar
 
 Yuan Fei réfléchit silencieusement un instant avant de sourire, comme indifférent. Son regard se posa sur Lu Yuncong et il lança froidement: « Lu Yuncong, je n'étais pas là lors de la dernière compétition. Veux-tu toujours me défier? »
 
-Les yeux de Lu Yuncong exprimèrent un regard glacial et, après un long moment, il répondit: « Si Frère Lu de la Secte de l'Origine ne vient pas, c'est moi qui te combattrai! »
+Les yeux de Lu Yuncong exprimèrent un regard glacial et, après un long moment, il répondit: « Si Frère Lu de la Secte Gui Yuan ne vient pas, c'est moi qui te combattrai! »
 
 Le temps passa lentement. La compétition des sectes de rang 6 touchait à sa fin, mais le Lu Zihao que tous attendaient n'était toujours pas apparu.
 
@@ -68,13 +68,13 @@ Lâchant un soupir, Lu Yanfei vola tel un papillon vers l'arène. Elle y atterri
 
 « Même s'il ne vient pas, je dois mener ce combat jusqu'au bout! »
 
-C'était une affaire privée de la Secte Éternelle, Li Qianmei n'avait donc aucune raison d'intervenir. Elle observa silencieusement la silhouette de Lu Yanfei. Cependant, si la Secte de l'Origine devait être dissoute, elle s'était juré de ramener tous ses membres à la Secte Brise-Ciel.
+C'était une affaire privée de la Secte Éternelle, Li Qianmei n'avait donc aucune raison d'intervenir. Elle observa silencieusement la silhouette de Lu Yanfei. Cependant, si la Secte Gui Yuan devait être dissoute, elle s'était juré de ramener tous ses membres à la Secte Brise-Ciel.
 
-Dès que Lu Yuncong et Lu Yanfei atteignirent l'arène, un silence s'installa et tous les regards se tournèrent vers eux. À cause d'une seule personne de la Secte de l'Origine, ils avaient captivé l'attention générale. Pour la première fois, une si petite secte était remarquée par les innombrables cultivateurs présents.
+Dès que Lu Yuncong et Lu Yanfei atteignirent l'arène, un silence s'installa et tous les regards se tournèrent vers eux. À cause d'une seule personne de la Secte Gui Yuan, ils avaient captivé l'attention générale. Pour la première fois, une si petite secte était remarquée par les innombrables cultivateurs présents.
 
 Tout cela était dû à la personne qui n'était pas encore arrivée!
 
-Tous les regards n'étaient pas bienveillants. C'était le cas de Lu Yingjie, de la Secte de la Musique Céleste, qui fixait Lu Yuncong et Lu Yanfei d'un regard venimeux.
+Tous les regards n'étaient pas bienveillants. C'était le cas de Lu Yingjie, de la Secte Xian Yin, qui fixait Lu Yuncong et Lu Yanfei d'un regard venimeux.
 
 « Cet homme ridicule... Étiez-vous tous si certains qu'il viendrait? Je veux voir si cet individu est aussi incroyable que vous le prétendez! » Lu Yingjie serra les poings.
 

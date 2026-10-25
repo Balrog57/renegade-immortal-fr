@@ -1,6 +1,6 @@
 ---
 n: 480
-title: Le Pavillon des Nuages Pourpres
+title: Le Pavillon Zi Yun
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 480 - Purple Cloud Pavilion
@@ -32,7 +32,7 @@ La silhouette de feu réfléchit un instant, puis s'inclina devant Wang Lin. Ell
 
 Wang Lin observa calmement l'horizon. Il y aurait probablement d'autres créatures de ce genre pour éprouver sa culture.
 
-« Il doit y avoir quelqu'un au sein de la Secte du Destin Céleste qui m'observe de l'extérieur... » Wang Lin laissa échapper un léger sourire. Plutôt que de continuer, il fit demi-tour.
+« Il doit y avoir quelqu'un au sein de la Secte Tian Yun qui m'observe de l'extérieur... » Wang Lin laissa échapper un léger sourire. Plutôt que de continuer, il fit demi-tour.
 
 « Je renonce à l'épreuve terrestre! » Sur ces mots, la silhouette de Wang Lin disparut de l'épreuve.
 
@@ -56,15 +56,15 @@ Le cœur de l'homme au visage doux trembla un instant et il déclara: « Cet hom
 
 « C'est lui... » Les yeux de Bai Wei s'illuminèrent alors qu'il disait: « Alors c'est pour ça... »
 
-L'homme au visage doux fit semblant de dire avec désinvolture: « Maître a disposé pour qu'il réside au Pavillon des Nuages Pourpres! »
+L'homme au visage doux fit semblant de dire avec désinvolture: « Maître a disposé pour qu'il réside au Pavillon Zi Yun! »
 
-« Le Pavillon des Nuages Pourpres! » La lueur mystérieuse dans les yeux de Bai Wei s'éteignit, remplacée par une froideur soudaine. Après avoir réfléchi un moment, il dit lentement: « Frère aîné, j'ai encore d'importantes affaires à régler, je ne resterai donc pas. Donne-moi une feuille de ta plante à cinq feuilles de 3 000 ans et je te donnerai un cristal de feu en échange. Qu'en dis-tu? »
+« Le Pavillon Zi Yun! » La lueur mystérieuse dans les yeux de Bai Wei s'éteignit, remplacée par une froideur soudaine. Après avoir réfléchi un moment, il dit lentement: « Frère aîné, j'ai encore d'importantes affaires à régler, je ne resterai donc pas. Donne-moi une feuille de ta plante à cinq feuilles de 3 000 ans et je te donnerai un cristal de feu en échange. Qu'en dis-tu? »
 
 L'homme au visage doux rit: « Très bien. Va simplement dans ma grotte, et le garçon t'accompagnera pour la prendre. »
 
 Bai Wei joignit les mains. Après avoir lancé un regard intense vers le vide, il disparut.
 
-L'homme au visage doux se frotta le menton, affichant une expression de lassitude en songeant: « Pourquoi Maître a-t-il fait installer cet homme au Pavillon des Nuages Pourpres... S'il avait été affecté ailleurs, son chemin aurait été plus serein, mais là, il est jeté directement dans la gueule du loup... »
+L'homme au visage doux se frotta le menton, affichant une expression de lassitude en songeant: « Pourquoi Maître a-t-il fait installer cet homme au Pavillon Zi Yun... S'il avait été affecté ailleurs, son chemin aurait été plus serein, mais là, il est jeté directement dans la gueule du loup... »
 
 L'épreuve céleste teste le domaine!
 
@@ -94,13 +94,13 @@ Wang Lin se retrouva debout là où il se tenait précédemment. Devant lui se t
 
 Wang Lin regarda l'homme, puis joignit les mains: « Wang Lin salue le Frère Aîné. »
 
-Zhao Xingsha sourit légèrement, fit un geste de la main et dit: « Suis-moi, jeune frère apprenti Wang Lin. Maître a déjà organisé ton séjour provisoire au Pavillon des Nuages Pourpres. »
+Zhao Xingsha sourit légèrement, fit un geste de la main et dit: « Suis-moi, jeune frère apprenti Wang Lin. Maître a déjà organisé ton séjour provisoire au Pavillon Zi Yun. »
 
 Sur ce, Zhao Xingsha prit la tête du guidage et Wang Lin le suivit.
 
 Tous deux se transformèrent en deux rayons de lumière et s'enfoncèrent au cœur des montagnes.
 
-Tout au long du vol, Zhao Xingsha parlait sans relâche, fournissant des descriptions détaillées de la Secte du Destin Céleste.
+Tout au long du vol, Zhao Xingsha parlait sans relâche, fournissant des descriptions détaillées de la Secte Tian Yun.
 
 Cet homme était empreint d'humour et doté d'une grande éloquence. Il savait transmettre ses propos avec aisance, ce qui permit à Wang Lin d'acquérir une compréhension rudimentaire de la secte.
 
@@ -118,7 +118,7 @@ Ce lieu semblait être la source même du « souffle pourpre venu de l'Est »; s
 
 « Jeune frère apprenti Wang Lin, suis-moi! » Zhao Xingsha fondit droit vers le sommet et Wang Lin le suivit de près.
 
-D'innombrables disciples de la Secte du Destin Céleste cultivaient au sommet de la montagne et au pied de la tour. En les observant, on pouvait compter au moins plusieurs dizaines de milliers de personnes.
+D'innombrables disciples de la Secte Tian Yun cultivaient au sommet de la montagne et au pied de la tour. En les observant, on pouvait compter au moins plusieurs dizaines de milliers de personnes.
 
 À l'arrière de la montagne, d'innombrables demeures couvraient l'ensemble du relief. Des disciples y étudiaient le Dao, pratiquaient des techniques ou s'adonnaient à la culture.
 
@@ -126,7 +126,7 @@ D'un seul regard, Wang Lin estima qu'il y avait au moins 100 000 disciples ici.
 
 Cette montagne était d'une démesure absolue, particulièrement sa face arrière qui semblait infinie. On aurait dit un dragon géant endormi. Si l'on n'était pas vigilant, on se perdrait aisément dans cette immense secte.
 
-Zhao Xingsha joignit les mains avec un léger sourire: « Voici la Division Pourpre de la Secte du Destin Céleste. Jeune frère apprenti Wang Lin, le Pavillon des Nuages Pourpres se trouve à l'ouest. Si tu déploies ton Sens Divin, tu le trouveras. J'ai encore d'importantes affaires à régler, je ne t'accompagnerai donc pas! »
+Zhao Xingsha joignit les mains avec un léger sourire: « Voici la Division Pourpre de la Secte Tian Yun. Jeune frère apprenti Wang Lin, le Pavillon Zi Yun se trouve à l'ouest. Si tu déploies ton Sens Divin, tu le trouveras. J'ai encore d'importantes affaires à régler, je ne t'accompagnerai donc pas! »
 
 Wang Lin acquiesça, salua Zhao Xingsha et s'élança vers l'ouest tel un éclair.
 
@@ -134,9 +134,9 @@ Le visage de Zhao Xingsha conservait ce même sourire serein, mais une lueur mys
 
 En volant, Wang Lin laissa échapper un froid reniflement. Dès le premier instant où il avait vu Zhao Xingsha, il l'avait reconnu comme celui qui avait lancé le rayon de lumière arc-en-ciel lors de l'épreuve Humaine. Cependant, Wang Lin possédait une grande capacité de dissimulation et maintint un visage impassible.
 
-Peu après, Wang Lin déploya son Sens Divin et repéra un palais dégageant une légère aura pourpre. Sur la façade du palais étaient inscrits trois grands caractères: « Pavillon des Nuages Pourpres ».
+Peu après, Wang Lin déploya son Sens Divin et repéra un palais dégageant une légère aura pourpre. Sur la façade du palais étaient inscrits trois grands caractères: « Pavillon Zi Yun ».
 
-« Cette Secte du Destin Céleste est d'une immensité sans nom. Si la seule Division Pourpre est déjà si vaste, je me demande de quelle taille sont les six autres. La secte principale doit être encore plus inimaginable. » Les yeux de Wang Lin brillèrent alors qu'il atterrissait devant le Pavillon des Nuages Pourpres.
+« Cette Secte Tian Yun est d'une immensité sans nom. Si la seule Division Pourpre est déjà si vaste, je me demande de quelle taille sont les six autres. La secte principale doit être encore plus inimaginable. » Les yeux de Wang Lin brillèrent alors qu'il atterrissait devant le Pavillon Zi Yun.
 
 Juste au moment où il s'apprêtait à faire un pas en avant, il fronça les sourcils et fixa l'intérieur du palais.
 

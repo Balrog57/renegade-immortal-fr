@@ -1,6 +1,6 @@
 ---
 n: 515
-title: "Pourquoi la Mer de l'Est"
+title: "Pourquoi la Mer Dong"
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 515 - Why The East Sea
@@ -24,7 +24,7 @@ D'autres rumeurs suggèrent que ce lieu est un tunnel reliant deux espaces diff�
 
 En somme, les légendes sur cet endroit sont innombrables, et chacune est contée avec une telle conviction qu'elle semble empreinte de vérités absolues.
 
-Cette mer d'origine inconnue se situant sur le flanc oriental de la planète Tian Yun, elle fut nommée, au fil du temps, la Mer de l'Est!
+Cette mer d'origine inconnue se situant sur le flanc oriental de la planète Tian Yun, elle fut nommée, au fil du temps, la Mer Dong!
 
 Il y a bien longtemps, lorsque Tian Yunzi eut achevé son Tao, il invita plusieurs amis — dont le Saint de l'Épée Ling Tianhou, avant que leur relation ne se brise — pour explorer ce lieu à trois reprises!
 
@@ -34,19 +34,19 @@ C'est à la suite de cet événement que l'amitié entre le Saint de l'Épée Li
 
 Cependant, après ces événements, Tian Yunzi déclara une chose:
 
-« Un démon ancien se cache là-dedans. Dès aujourd'hui, ce lieu appartient à ma planète Tian Yun et sera appelé la Porte de la Mer des Esprits Démoniaques de l'Est! »
+« Un démon ancien se cache là-dedans. Dès aujourd'hui, ce lieu appartient à ma planète Tian Yun et sera appelé la Porte Dong Hai Yao Ling! »
 
 Les mots « démon ancien » se répandirent comme une traînée de poudre et restèrent gravés dans la mémoire d'innombrables personnes.
 
-Même des membres de l'Alliance des Cultivateurs vinrent inspecter la Mer des Esprits Démoniaques de l'Est. Toutefois, concernant l'accès de ce lieu aux étrangers, Tian Yunzi, Ling Tianhou et tous les autres vieux monstres de la région firent preuve d'une rare unanimité:
+Même des membres de l'Alliance Xiu Zhen vinrent inspecter la Mer Yao Ling. Toutefois, concernant l'accès de ce lieu aux étrangers, Tian Yunzi, Ling Tianhou et tous les autres vieux monstres de la région firent preuve d'une rare unanimité:
 
 Ils n'autoriseraient jamais personne de l'extérieur à y pénétrer. Cet endroit était la zone interdite de la planète Tian Yun!
 
-L'habitude ayant pris, la Mer des Esprits Démoniaques de l'Est devint naturellement une terre interdite appartenant à la planète Tian Yun.
+L'habitude ayant pris, la Mer Yao Ling devint naturellement une terre interdite appartenant à la planète Tian Yun.
 
-S'il existe peu d'endroits aussi mystérieux, ils ne sont pas non plus rares. L'Alliance des Cultivateurs ne souhaitait pas déclencher de conflit avec les cultivateurs de la planète Tian Yun pour un tel lieu; cela n'en valait pas le prix.
+S'il existe peu d'endroits aussi mystérieux, ils ne sont pas non plus rares. L'Alliance Xiu Zhen ne souhaitait pas déclencher de conflit avec les cultivateurs de la planète Tian Yun pour un tel lieu; cela n'en valait pas le prix.
 
-L'ouverture de la Mer des Esprits Démoniaques de l'Est tous les 5 000 ans est un événement majeur pour la planète Tian Yun. Dès son ouverture, une phase de marée s'installe et dure plusieurs mois!
+L'ouverture de la Mer Yao Ling tous les 5 000 ans est un événement majeur pour la planète Tian Yun. Dès son ouverture, une phase de marée s'installe et dure plusieurs mois!
 
 C'est durant cette phase que la puissance mystérieuse émanant de la Mer se propage sur une vaste zone. Les cultivateurs présents peuvent alors observer d'innombrables trésors, des sorts antiques, des cadavres de bêtes démoniaques et d'autres curiosités être aspirés par la mer.
 
@@ -58,7 +58,7 @@ C'est là le niveau de culture le plus élevé autorisé, car la planète Tian Y
 
 Après tout, ce lieu sert à l'entraînement des disciples; même lors de son ouverture, elle n'est que partiellement accessible afin d'éviter un massacre généralisé.
 
-Cependant, rien n'est absolu, et tout dépend de ce qui est aspiré durant la marée. Si une chose assez transcendante venait à apparaître, capable de tenter les vieux monstres eux-mêmes, alors la Mer des Esprits Démoniaques de l'Est deviendrait un lieu d'une effervescence sans précédent.
+Cependant, rien n'est absolu, et tout dépend de ce qui est aspiré durant la marée. Si une chose assez transcendante venait à apparaître, capable de tenter les vieux monstres eux-mêmes, alors la Mer Yao Ling deviendrait un lieu d'une effervescence sans précédent.
 
 À l'heure actuelle, il ne reste que cinq jours avant l'ouverture.
 
@@ -66,7 +66,7 @@ Pourtant, d'innombrables cultivateurs entourent déjà la mer. Tous sont venus p
 
 Au fil du temps, le nombre de cultivateurs ne cesse de croître. Même certains vieux monstres qui ne se montraient jamais ont fait le déplacement avec leurs disciples. Chaque apparition provoque un tollé parmi la foule; les cultivateurs s'écartent précipitamment, n'osant entraver la route de ces puissants êtres.
 
-Ce jour-là, un éclat rouge vint presque recouvrir toute la zone entourant la Mer des Esprits Démoniaques de l'Est. Simultanément, une odeur de sang sature l'air, donnant aux environs l'apparence d'un monde de pourpre.
+Ce jour-là, un éclat rouge vint presque recouvrir toute la zone entourant la Mer Yao Ling. Simultanément, une odeur de sang sature l'air, donnant aux environs l'apparence d'un monde de pourpre.
 
 « L'Ancêtre de la Planète du Sang! » Certains cultivateurs reconnurent immédiatement l'aura par cette émanation sanguine. À cet instant, les conversations cessèrent brusquement.
 
@@ -74,7 +74,7 @@ Surgissant de cette lumière rouge sang, un jade géant d'un rouge profond flott
 
 Bien qu'assise en position de lotus, sa silhouette élancée était parfaitement décelable. Elle arborait une chevelure noire et soyeuse, un visage délicat d'une pureté de fleur, une peau aussi lisse que du cristal et un nez raffiné. Ses yeux de phénix rouge brillaient comme le soleil éclatant sur la surface d'un lac, mais ils dissimulaient une profondeur et une froideur abyssales. Quiconque s'égarait dans son regard serait condamné sans retour...
 
-Elle traversa les airs sur son jade de sang. Tous ceux qui l'aperçurent s'écartèrent pour lui laisser le passage jusqu'aux abords de la Mer des Esprits Démoniaques de l'Est, où elle finit par s'immobiliser dans une zone déserte.
+Elle traversa les airs sur son jade de sang. Tous ceux qui l'aperçurent s'écartèrent pour lui laisser le passage jusqu'aux abords de la Mer Yao Ling, où elle finit par s'immobiliser dans une zone déserte.
 
 Tout au long du voyage, la femme ne prononça pas un mot. Une fois le jade de sang arrêté, elle ferma les yeux et se mit à cultiver.
 
@@ -106,7 +106,7 @@ Vêtue d'une robe rose, sa peau était aussi limpide que du cristal; elle sembla
 
 La jeune femme gonfla ses joues et lança d'un ton vif: « Grand frère, tu m'avais promis que si je réussissais à venir, tu me laisserais partir! »
 
-Sun Yunshan la regarda et s'exclama: « Quelles idioties! La Mer des Esprits Démoniaques de l'Est n'est pas un lieu accessible avec ton niveau de culture! Bien que mon père soit en méditation assidue, il a formellement interdit que tu t'y rendes! Xuan Yi, ramène-la à la secte! »
+Sun Yunshan la regarda et s'exclama: « Quelles idioties! La Mer Yao Ling n'est pas un lieu accessible avec ton niveau de culture! Bien que mon père soit en méditation assidue, il a formellement interdit que tu t'y rendes! Xuan Yi, ramène-la à la secte! »
 
 L'un des vieillards derrière Sun Yunshan fit un pas en avant pour se placer aux côtés de la jeune femme. Il joignit les mains et dit: « Ma dame, je vous en prie, ne compliquez pas la tâche de Xuan Yi. »
 

@@ -84,11 +84,11 @@ Il savait qu'il avait été capturé et qu'il n'avait aucune chance de survie. A
 
 Wang Lin ne perdit pas de temps et demanda directement: « Qu'est-ce que le cristal démoniaque? »
 
-L'âme originelle ricana: « Homme sans vergogne. D'abord, tu me forces à rivaliser avec toi en sorts, puis tu profites du moment où je déploie toute ma force pour m'attaquer par surprise. Est-ce là la manière d'agir de la Secte du Destin Céleste? »
+L'âme originelle ricana: « Homme sans vergogne. D'abord, tu me forces à rivaliser avec toi en sorts, puis tu profites du moment où je déploie toute ma force pour m'attaquer par surprise. Est-ce là la manière d'agir de la Secte Tian Yun? »
 
 Wang Lin fronça les sourcils et serra le poing droit. L'âme poussa une série de cris déchirants et s'affaiblit, mais le regard de l'homme restait venimeux.
 
-L'âme ricana de nouveau en fixant Wang Lin: « Moi, Lou Yun, suis un disciple de la Secte du Fantôme Céleste. Je cultive la voie du fantôme céleste et possède naturellement mon propre esprit fantomatique. Si tu me tues, mon maître, le Daoïste Fantôme, le saura et se vengera! C'est un être avec qui même Tian Yunzi discute d'égal à égal! Wang Lin, as-tu bien réfléchi aux conséquences!?!? »
+L'âme ricana de nouveau en fixant Wang Lin: « Moi, Lou Yun, suis un disciple de la Secte Tian Gui. Je cultive la voie du fantôme céleste et possède naturellement mon propre esprit fantomatique. Si tu me tues, mon maître, le Daoïste Fantôme, le saura et se vengera! C'est un être avec qui même Tian Yunzi discute d'égal à égal! Wang Lin, as-tu bien réfléchi aux conséquences!?!? »
 
 Wang Lin le regarda froidement. Perdant patience, il leva la main gauche et frappa l'âme originelle. Cette dernière, ayant déjà perdu son corps, faillit s'effondrer sous la violence du coup.
 
@@ -110,4 +110,4 @@ Une fois l'âme rangée, le corps de Wang Lin s'élança comme l'éclair vers l'
 
 « Ainsi, cette terre d'esprits démoniaques recèle de tels secrets. Pas étonnant qu'Ouyang Hua ait dit qu'un bain de sang se déversait à chaque arrivée d'étrangers... »
 
-« La Secte du Fantôme Céleste... Bien que Lou Yun ait exagéré, ses paroles contiennent une part de vérité. Cependant, cette affaire pourra être réglée dans cinq cents ans; il n'y a pas lieu de s'en préoccuper pour l'instant. Les méthodes de cette secte sont intéressantes, et les sorts de restriction démoniaque dans les souvenirs de Lou Yun pourraient m'être utiles! »
+« La Secte Tian Gui... Bien que Lou Yun ait exagéré, ses paroles contiennent une part de vérité. Cependant, cette affaire pourra être réglée dans cinq cents ans; il n'y a pas lieu de s'en préoccuper pour l'instant. Les méthodes de cette secte sont intéressantes, et les sorts de restriction démoniaque dans les souvenirs de Lou Yun pourraient m'être utiles! »

@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 605 - Demon Guardian
 slug: le-gardien-demoniaque
 ---
-Après avoir traversé la Montagne des Dix Mille Démons, la position de celui qui avait poussé ce reniflement glacial devint de plus en plus nette dans le sens divin de Wang Lin. Au bout de plusieurs jours, une étendue désolée et infinie apparut devant lui.
+Après avoir traversé la Montagne Wan Yao, la position de celui qui avait poussé ce reniflement glacial devint de plus en plus nette dans le sens divin de Wang Lin. Au bout de plusieurs jours, une étendue désolée et infinie apparut devant lui.
 
 D'innombrables débris recouvraient ce désert. Le sol était criblé de fissures et une odeur nauséabonde était portée par le vent.
 

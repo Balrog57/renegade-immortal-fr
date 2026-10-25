@@ -1,6 +1,6 @@
 ---
 n: 1849
-title: "La Pilule Céleste de la Mer des Pilules!"
+title: "La Pilule Céleste de la Mer Dan!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1849 - Pill Sea’s Celestial Pill!"
@@ -54,38 +54,38 @@ Le carnage prit fin; des centaines de cultivateurs étaient morts. La femme et l
 
 Sous la surface, Wang Lin chargea prestement. Tenant la boussole, il y projeta son sens divin. Ses yeux étaient injectés de sang alors que son essence de restriction s'y engouffrait. Il balaya l'empreinte du sens divin sur la boussole pour en prendre le contrôle total. Si n'importe qui d'autre avait tenté cela, il aurait échoué, mais Wang Lin possédait l'essence de restriction nécessaire pour y parvenir.
 
-La boussole en main, il prit le contrôle des restrictions surplombant la Mer des Pilules. Les yeux de Wang Lin s'illuminèrent tandis qu'il naviguait prudemment à travers la mer et inspectait l'artefact. Il put voir qu'au sein de la Mer des Pilules ne flottaient que trois à cinq points verts, dont l'un était extrêmement éblouissant! Les autres points se trouvaient au-dessus de la surface; il était évident qu'il était peu pratique de rester sous l'eau pendant que Yun Kong effectuait sa culture.
+La boussole en main, il prit le contrôle des restrictions surplombant la Mer Dan. Les yeux de Wang Lin s'illuminèrent tandis qu'il naviguait prudemment à travers la mer et inspectait l'artefact. Il put voir qu'au sein de la Mer Dan ne flottaient que trois à cinq points verts, dont l'un était extrêmement éblouissant! Les autres points se trouvaient au-dessus de la surface; il était évident qu'il était peu pratique de rester sous l'eau pendant que Yun Kong effectuait sa culture.
 
 Fixant ce point vert éclatant, une intention meurtrière traversa le regard de Wang Lin.
 
-« Yun Kong, tu es le prochain! » Wang Lin fusionna avec la formation de restriction et disparut. Lorsqu'il réapparut, il se trouvait au centre de la Mer des Pilules.
+« Yun Kong, tu es le prochain! » Wang Lin fusionna avec la formation de restriction et disparut. Lorsqu'il réapparut, il se trouvait au centre de la Mer Dan.
 
 Dès son apparition, il remarqua que la mer autour de lui tournait et que des grondements tonitruants retentissaient. Il avait l'impression d'être aspiré par le courant. En observant la boussole, il réalisa qu'il n'était pas loin de Yun Kong. Cependant, Wang Lin observa la mer en plein tourbillonnement.
 
 « Peut-être n'ai-je pas besoin d'abandonner les 30 millions d'âmes dao... » songea Wang Lin, cessant toute progression. Au lieu de cela, il sombra vers les abysses pour s'y dissimuler.
 
-Des vagues monstrueuses déferlèrent sur la Mer des Pilules tandis que les grondements persistaient. Huit vortex tourbillonnaient le long des bordures, tandis qu'un neuvième se trouvait au centre même de la mer. Ce dernier tournait de plus en plus vite. Rapidement, les huit vortex se mirent à tourner autour du neuvième, entraînant toute la masse marine dans leur rotation.
+Des vagues monstrueuses déferlèrent sur la Mer Dan tandis que les grondements persistaient. Huit vortex tourbillonnaient le long des bordures, tandis qu'un neuvième se trouvait au centre même de la mer. Ce dernier tournait de plus en plus vite. Rapidement, les huit vortex se mirent à tourner autour du neuvième, entraînant toute la masse marine dans leur rotation.
 
 Au cœur de ce neuvième tourbillon siégeait Yun Kong. Le visage pâle, ses mains ne cessaient de tracer des sceaux.
 
-« La légende raconte que la Mer des Pilules s'est formée à la chute d'une Pilule Céleste. Pourtant, la vérité est qu'il ne s'agissait pas d'une Pilule Céleste complète, mais seulement d'une moitié! » Les yeux de Yun Kong brillèrent et sa main droite s'élança vers le vide.
+« La légende raconte que la Mer Dan s'est formée à la chute d'une Pilule Céleste. Pourtant, la vérité est qu'il ne s'agissait pas d'une Pilule Céleste complète, mais seulement d'une moitié! » Les yeux de Yun Kong brillèrent et sa main droite s'élança vers le vide.
 
-« Mer des Pilules, condense-toi! » Dans un fracas violent, les vortex accélérèrent leur rotation. À mesure qu'ils se concentraient, la mer diminuait de volume et des filaments d'énergie céleste se diffusèrent dans l'air.
+« Mer Dan, condense-toi! » Dans un fracas violent, les vortex accélérèrent leur rotation. À mesure qu'ils se concentraient, la mer diminuait de volume et des filaments d'énergie céleste se diffusèrent dans l'air.
 
-La Mer des Pilules ressemblait à un bassin dont le centre était un gigantesque tourbillon aspirant l'eau. Dans le ciel, des dizaines de milliers de cultivateurs du Continent du Démon Vert observaient la scène. Ils attendaient que Yun Kong condense cette demi-Pilule Céleste pour briser la barrière entourant le Continent du Taureau Céleste!
+La Mer Dan ressemblait à un bassin dont le centre était un gigantesque tourbillon aspirant l'eau. Dans le ciel, des dizaines de milliers de cultivateurs du Continent Lu Mo observaient la scène. Ils attendaient que Yun Kong condense cette demi-Pilule Céleste pour briser la barrière entourant le Continent Tian Niu!
 
 Wang Lin se cachait également sous le vortex, attendant que la Pilule Céleste soit formée pour lancer son assaut!
 
-Le temps s'écoulait lentement. Yun Kong était incapable d'observer ses environs; toute l'attention des dizaines de milliers de cultivateurs était braquée sur lui. Personne ne s'attendait à ce que des cultivateurs du Continent du Taureau Céleste subsistent dans la Mer des Pilules après qu'elle ait été purgée maintes fois. Avec les restrictions en place, nul n'avait besoin de s'inquiéter de ce qui se passait sous la surface!
+Le temps s'écoulait lentement. Yun Kong était incapable d'observer ses environs; toute l'attention des dizaines de milliers de cultivateurs était braquée sur lui. Personne ne s'attendait à ce que des cultivateurs du Continent Tian Niu subsistent dans la Mer Dan après qu'elle ait été purgée maintes fois. Avec les restrictions en place, nul n'avait besoin de s'inquiéter de ce qui se passait sous la surface!
 
-À cet instant, personne ne remarqua que les trois grands drapeaux avaient été brisés ni que la boussole avait changé de maître. Tous les regards étaient captivés par Yun Kong. Après tout, rien n'était plus crucial que d'observer l'un des quatre génies, Yun Kong, raffiner la Mer des Pilules en une Pilule Céleste.
+À cet instant, personne ne remarqua que les trois grands drapeaux avaient été brisés ni que la boussole avait changé de maître. Tous les regards étaient captivés par Yun Kong. Après tout, rien n'était plus crucial que d'observer l'un des quatre génies, Yun Kong, raffiner la Mer Dan en une Pilule Céleste.
 
 Même Yun Kong ne s'attendait pas au retour de Wang Lin après son départ!
 
-Plongé dans le neuvième vortex, l'expression grave, il traça un sceau qui fit trembler le tourbillon. La structure se rétracta brutalement, passant d'une étendue infinie à 1 000 000 de pieds! L'eau de la gigantesque Mer des Pilules fut ainsi concentrée en un vortex de cette dimension, provoquant l'exaltation des cultivateurs du Continent du Démon Vert.
+Plongé dans le neuvième vortex, l'expression grave, il traça un sceau qui fit trembler le tourbillon. La structure se rétracta brutalement, passant d'une étendue infinie à 1 000 000 de pieds! L'eau de la gigantesque Mer Dan fut ainsi concentrée en un vortex de cette dimension, provoquant l'exaltation des cultivateurs du Continent Lu Mo.
 
 Un sourire apparut sur les lèvres de Yun Kong. Il prit une profonde inspiration et poussa un rugissement vers le ciel alors que sa culture explosait. Son niveau était si singulier qu'il restait impossible d'en percevoir l'exactitude; on ne pouvait que ressentir une puissante déferlante d'énergie d'épée. Une intention d'épée enveloppa toute la zone.
 
-« Mon Maître m'a permis de venir ici pour former la Pilule Céleste à partir de la Mer des Pilules, afin de porter ma réputation au-delà des trois autres. Ensuite, en tant que premier génie du Continent de l'Est, je me rendrai à la Capitale Impériale du Continent Central pour obtenir le droit d'entrer dans le temple ancestral! » Les yeux de Yun Kong pétillèrent. L'eau de mer commença à se condenser à nouveau, passant de 1 000 000 de pieds à 500 000, puis à 300 000 pieds!
+« Mon Maître m'a permis de venir ici pour former la Pilule Céleste à partir de la Mer Dan, afin de porter ma réputation au-delà des trois autres. Ensuite, en tant que premier génie du Continent de l'Est, je me rendrai à la Capitale Impériale du Continent Central pour obtenir le droit d'entrer dans le temple ancestral! » Les yeux de Yun Kong pétillèrent. L'eau de mer commença à se condenser à nouveau, passant de 1 000 000 de pieds à 500 000, puis à 300 000 pieds!
 
 Vu du ciel, seule une zone de 300 000 pieds était encore couverte d'eau. Les algues et les coraux apparurent alors que les innombrables créatures marines explosaient sous la pression!

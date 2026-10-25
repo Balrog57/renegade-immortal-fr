@@ -32,7 +32,7 @@ Le chemin de l'avenir s'éloignait peu à peu sous ses pas.
 
 Sa silhouette blanche était comme un flocon de saule flottant parmi les étoiles. Elle n'avait pas de racines, mais elle ne s'égarait pas. Elle flottait doucement, comme si elle cherchait quelque chose, avant d'être finalement engloutie par l'obscurité de l'espace, sans laisser aucune trace derrière elle.
 
-Le corps original de Wang Lin était assis dans la formation en roue au sein de la Mer des Nuages. Durant les trois derniers jours de la troisième année, il ouvrit lentement ses yeux froids.
+Le corps original de Wang Lin était assis dans la formation en roue au sein de la Mer Yun. Durant les trois derniers jours de la troisième année, il ouvrit lentement ses yeux froids.
 
 Il se retourna et regarda vers le Royaume Intérieur. Dans son regard, son avatar s'approchait de plus en plus, venant du Royaume Intérieur. Ses pas ne provoquaient aucune ondulation ni aucun grondement, mais chaque pas était extrêmement lourd.
 

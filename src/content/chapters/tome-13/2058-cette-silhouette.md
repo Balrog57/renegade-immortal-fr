@@ -120,7 +120,7 @@ Peu après, les treizième, quatorzième... jusqu'au dix-huitième halo réappar
 
 Après un bref instant de stupeur, une immense agitation parcourut la ville.
 
-Dans ce tumulte, un dix-neuvième halo apparut autour de la statue de l'Ancêtre Ancien. Puis le vingtième, le vingt et unième, le vingt-deuxième... jusqu'à ce que le vingt-septième halo se forme. Ils brillaient d'un vif éclat et projetaient des ondulations dans l'air. Désormais, ce n'était plus seulement la cité impériale, mais même la Montagne de l'Origine qui était enveloppée par cette lumière.
+Dans ce tumulte, un dix-neuvième halo apparut autour de la statue de l'Ancêtre Ancien. Puis le vingtième, le vingt et unième, le vingt-deuxième... jusqu'à ce que le vingt-septième halo se forme. Ils brillaient d'un vif éclat et projetaient des ondulations dans l'air. Désormais, ce n'était plus seulement la cité impériale, mais même la Montagne Yuan Shi qui était enveloppée par cette lumière.
 
 Xuan Luo esquissa un sourire. Il ne resta pas à l'extérieur du temple; dès que le vingt-septième halo apparut, il surgit dans le ciel et s'assit. Il savait que ce n'était pas terminé — Wang Lin devait encore affronter la dernière division d'âme!
 

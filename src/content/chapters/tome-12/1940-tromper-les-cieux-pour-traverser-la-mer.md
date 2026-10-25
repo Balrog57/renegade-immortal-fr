@@ -92,7 +92,7 @@ Ses paroles étaient si choquantes que les enfants restèrent interdits, fixant 
 
 « Cependant... » Liu Jinbiao sourit en jetant un regard circulaire avant de poursuivre.
 
-« Cependant, je peux vous permettre d'entrer dans la Secte du Grand Sage, mais cela exige que vous preniez votre propre décision. Premièrement, votre talent est insuffisant pour réussir les tests officiels de la secte; vous ne serez donc pas admis en tant que disciples réguliers. Bien que vous ayez les aptitudes pour devenir des cultivateurs, il serait trop difficile de vous faire progresser. Avec ma connaissance des diverses sectes du Continent du Grand Sage, je sais qu'elles ne vous accepteront pas et ne gaspilleront pas leur temps avec vous. Je ne vous mens pas sur ce point. »
+« Cependant, je peux vous permettre d'entrer dans la Secte Da Sheng, mais cela exige que vous preniez votre propre décision. Premièrement, votre talent est insuffisant pour réussir les tests officiels de la secte; vous ne serez donc pas admis en tant que disciples réguliers. Bien que vous ayez les aptitudes pour devenir des cultivateurs, il serait trop difficile de vous faire progresser. Avec ma connaissance des diverses sectes du Continent Da Sheng, je sais qu'elles ne vous accepteront pas et ne gaspilleront pas leur temps avec vous. Je ne vous mens pas sur ce point. »
 
 Liu Jinbiao marqua une pause.
 

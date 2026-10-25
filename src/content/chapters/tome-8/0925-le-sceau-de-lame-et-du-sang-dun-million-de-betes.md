@@ -104,12 +104,12 @@ Son sens divin pénétra le parchemin et se transforma en une vague incroyable q
 
 Cet être poussa un rugissement et chargea directement vers l'endroit où l'ancêtre de la famille Shengong combattait le sceau retenant le Serpent aux yeux de lune!
 
-Parmi les cultivateurs de l'Alliance, la femme en robe bleue fronça les sourcils. Elle pointa vers l'avant sa main semblable au jade, et l'un des membres du Clan des Démons Géants poussa un rugissement avant de s'avancer. La planète de culture qu'il portait n'était pas très grande, ne représentant qu'environ 1 % d'une planète normale. Néanmoins, le démon géant paraissait minuscule face à elle. Mais il était extrêmement rapide et, dans sa course, il la lança sans aucune pitié. La planète de culture s'abattit directement vers les 15 Lou Fu restants.
+Parmi les cultivateurs de l'Alliance, la femme en robe bleue fronça les sourcils. Elle pointa vers l'avant sa main semblable au jade, et l'un des membres du Clan Ju Mo poussa un rugissement avant de s'avancer. La planète de culture qu'il portait n'était pas très grande, ne représentant qu'environ 1 % d'une planète normale. Néanmoins, le démon géant paraissait minuscule face à elle. Mais il était extrêmement rapide et, dans sa course, il la lança sans aucune pitié. La planète de culture s'abattit directement vers les 15 Lou Fu restants.
 
 Un vieil homme flottait encore sur cette planète de culture. Ses yeux brillèrent alors qu'il fonçait rapidement vers les 15 Lou Fu, porté par l'astre.
 
 Cependant, la force de suppression devenait plus intense à mesure que l'on approchait des Lou Fu. L'expression du vieil homme se fit grave tandis qu'il s'approchait de leur position.
 
-Quant au membre du Clan des Démons Géants, il poussa un rugissement et chargea vers Lie Yunzi.
+Quant au membre du Clan Ju Mo, il poussa un rugissement et chargea vers Lie Yunzi.
 
 L'âme originelle de Lie Yunzi flottait là, paraissant quelque peu affaiblie. Il ouvrit soudainement les yeux et cria: « Lou Hong, Zhou Xingtian, vous deux, allez vite protéger les Lou Fu! »

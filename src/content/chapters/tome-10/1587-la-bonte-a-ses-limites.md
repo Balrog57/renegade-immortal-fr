@@ -58,17 +58,17 @@ C'était comme dans une maison de mortels plongée dans la nuit, toute noire à 
 
 Ce lieu de mise à mort, autrefois dissimulé aux puissants du Royaume Intérieur, ne pouvait plus rester caché une fois cette brèche ouverte. Instantanément, elle fut ressentie par les divers puissants cultivateurs du Royaume Intérieur!
 
-Dans la Mer des Nuages, Maître Hong Shan était en train de raffiner le puissant du Royaume Extérieur capturé dans le Royaume aux Sept Couleurs au sein de la Rivière Invoquée. Il venait de remarquer une anomalie dans l'âme lorsqu'il leva soudainement les yeux vers l'horizon. Son expression changea radicalement.
+Dans la Mer Yun, Maître Hong Shan était en train de raffiner le puissant du Royaume Extérieur capturé dans le Royaume aux Sept Couleurs au sein de la Rivière Invoquée. Il venait de remarquer une anomalie dans l'âme lorsqu'il leva soudainement les yeux vers l'horizon. Son expression changea radicalement.
 
 « Ce n'est pas bon! » Sans hésiter, Maître Hong Shan écarta la marionnette qu'il manipulait et s'élança. Des ondulations se propagèrent alors qu'il disparaissait à toute allure.
 
 Au moment de sa disparition, le maître de Zhong Xuan s'éveilla également. Ses pupilles se contractèrent et il fusionna rapidement avec le monde.
 
-Dans le Royaume du Vide Brillant, au sein du Royaume Céleste de la Pluie, Qing Lin était en culture fermée pour guérir. Il se trouvait dans une pièce secrète entourée d'une brume aux lueurs tamisées. Soudain, il ouvrit les yeux, sous le choc.
+Dans le Royaume Kun Xu, au sein du Royaume Céleste de la Pluie, Qing Lin était en culture fermée pour guérir. Il se trouvait dans une pièce secrète entourée d'une brume aux lueurs tamisées. Soudain, il ouvrit les yeux, sous le choc.
 
 « Le Souverain! » Son visage s'assombrit et sa main droite déchira l'espace devant lui. Il disparut en un instant.
 
-Également dans le Vide Brillant, au sein de la Secte des Cadavres, Maître Nan Yunzi se concentrait sur la fabrication d'un ensemble de drapeaux de formation pour la prochaine grande guerre. Alors qu'il travaillait, il leva brusquement les yeux. Son expression changea lorsqu'il perçut l'aura du sceau, puis il s'élança sans hésiter.
+Également dans le Vide Brillant, au sein de la Secte Shi Yin, Maître Nan Yunzi se concentrait sur la fabrication d'un ensemble de drapeaux de formation pour la prochaine grande guerre. Alors qu'il travaillait, il leva brusquement les yeux. Son expression changea lorsqu'il perçut l'aura du sceau, puis il s'élança sans hésiter.
 
 Les puissants cultivateurs de la Rivière Invoquée ressentirent également cette aura et s'activèrent tous avec anxiété.
 

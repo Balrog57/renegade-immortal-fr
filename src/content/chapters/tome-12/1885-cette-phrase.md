@@ -34,25 +34,25 @@ Des ondulations résonnèrent au-dessus d'une montagne située à deux mois de v
 
 Un instant plus tard, il leva les yeux et scruta les environs. Son expression était morne.
 
-« Continent du Taureau Céleste, il est temps de partir… » Dans un soupir, Wang Lin baissa les yeux et fut surpris.
+« Continent Tian Niu, il est temps de partir… » Dans un soupir, Wang Lin baissa les yeux et fut surpris.
 
-Il connaissait cet endroit pour y être déjà venu: c'était là que se trouvait la Secte des Sept Dao.
+Il connaissait cet endroit pour y être déjà venu: c'était là que se trouvait la Secte Qi Dao.
 
 Il s'était déplacé par inadvertance sans destination fixe, mais il ne s'attendait pas à atterrir précisément ici.
 
-Observant le brouillard noir qui enveloppait la montagne en contrebas, Wang Lin soupira. Il s'élança dans la brume et vola vers la Secte des Sept Dao.
+Observant le brouillard noir qui enveloppait la montagne en contrebas, Wang Lin soupira. Il s'élança dans la brume et vola vers la Secte Qi Dao.
 
-Peu après, il aperçut un groupe de palais émanant une aura de décomposition au cœur des montagnes. Wang Lin atterrit sur la place devant le hall principal. La plupart des pierres étaient endommagées et envahies par les mauvaises herbes. Il s'assit et contempla la Secte des Sept Dao. Le sentiment de désolation dans son cœur fut lentement remplacé par une certaine chaleur.
+Peu après, il aperçut un groupe de palais émanant une aura de décomposition au cœur des montagnes. Wang Lin atterrit sur la place devant le hall principal. La plupart des pierres étaient endommagées et envahies par les mauvaises herbes. Il s'assit et contempla la Secte Qi Dao. Le sentiment de désolation dans son cœur fut lentement remplacé par une certaine chaleur.
 
 D'une certaine manière, cet endroit était sa maison.
 
 Wang Lin ferma les yeux pour soigner ses blessures. Il avait depuis longtemps rangé l'armure de l'âme et, dans son état affaibli, il avait libéré Yi Si pour assurer sa garde.
 
-Trois jours passèrent en un éclair. Wang Lin ouvrit enfin les yeux et contempla la Secte des Sept Dao. La première fois qu'il était venu, il n'avait fait que parcourir la zone du regard. Cette fois, porté par le sentiment complexe de devoir quitter le Continent du Taureau Céleste, il marcha à travers la secte.
+Trois jours passèrent en un éclair. Wang Lin ouvrit enfin les yeux et contempla la Secte Qi Dao. La première fois qu'il était venu, il n'avait fait que parcourir la zone du regard. Cette fois, porté par le sentiment complexe de devoir quitter le Continent Tian Niu, il marcha à travers la secte.
 
 Il passa devant chaque bâtiment et devant les lieux où vivaient autrefois les disciples.
 
-Enfin, il pénétra dans le hall principal de la Secte des Sept Dao. Un immense trône s'y trouvait; il appartenait manifestement au Souverain Céleste aux Sept Couleurs.
+Enfin, il pénétra dans le hall principal de la Secte Qi Dao. Un immense trône s'y trouvait; il appartenait manifestement au Souverain Céleste aux Sept Couleurs.
 
 En contemplant ce hall silencieux où la table et les chaises étaient couvertes de poussière, il ressentit un profond sentiment de décrépitude.
 
@@ -62,13 +62,13 @@ Le monde caverneux lui manquait; tous ceux qui s'y trouvaient lui manquaient.
 
 Il eut l'impression de pouvoir voir à travers le monde caverneux. Une femme magnifique aux longs cheveux flottants se tenait sur une colline, levant les yeux vers le ciel sombre comme si elle cherchait un regard perdu dans l'obscurité.
 
-Après un long moment, Wang Lin ouvrit les yeux et sortit du hall principal. Seul au sein de la Secte des Sept Dao, son expression devint progressivement sombre.
+Après un long moment, Wang Lin ouvrit les yeux et sortit du hall principal. Seul au sein de la Secte Qi Dao, son expression devint progressivement sombre.
 
 Il devait encore affronter la cruelle réalité.
 
-« Un changement radical a dû avoir lieu sur le Continent du Taureau Céleste durant ces derniers mois! Ce changement a conduit la Secte Gui Yi à modifier sa récompense à mon égard… ou plutôt, à me forcer à trahir le Continent du Taureau Céleste… Mais ils m'ont laissé partir librement… »
+« Un changement radical a dû avoir lieu sur le Continent Tian Niu durant ces derniers mois! Ce changement a conduit la Secte Gui Yi à modifier sa récompense à mon égard… ou plutôt, à me forcer à trahir le Continent Tian Niu… Mais ils m'ont laissé partir librement… »
 
-« Quant à la Secte de la Grande Âme… » Les yeux de Wang Lin s'illuminèrent. Il sentait vaguement qu'il touchait du doigt une vérité, sans toutefois pouvoir la cerner. Il leva la main droite et ouvrit la paume. Une silhouette miniature de trois pouces apparut instantanément.
+« Quant à la Secte Da Hun… » Les yeux de Wang Lin s'illuminèrent. Il sentait vaguement qu'il touchait du doigt une vérité, sans toutefois pouvoir la cerner. Il leva la main droite et ouvrit la paume. Une silhouette miniature de trois pouces apparut instantanément.
 
 Une fois apparue, la petite personne s'agenouilla et s'inclina trois fois devant Wang Lin!
 
@@ -88,19 +88,19 @@ Wang Lin répéta la phrase plusieurs fois, puis son corps fut soudain secoué p
 « Il y a un changement, trahis vite! »
 « Quelque chose a changé, trahis! » Wang Lin prit une profonde inspiration. Cette phrase était un avertissement secret. Quelle que soit la manière dont on l'interprétait, c'était le moyen utilisé par l'Ancêtre Taureau Vert pour ordonner à Wang Lin de trahir sans tarder!
 
-« Même avec le niveau de culture de l'Ancêtre Taureau Vert, il a dû passer par cette périphrase. Il craignait même que je ne comprenne pas et a collaboré avec le maître de la Secte Gui Yi pour m'offrir une récompense injuste afin de me pousser hors du Continent du Taureau Céleste… »
+« Même avec le niveau de culture de l'Ancêtre Taureau Vert, il a dû passer par cette périphrase. Il craignait même que je ne comprenne pas et a collaboré avec le maître de la Secte Gui Yi pour m'offrir une récompense injuste afin de me pousser hors du Continent Tian Niu… »
 
-« Avoir trahi le Continent du Taureau Céleste signifie que je ne pourrai plus rester sur le Continent du Taureau Céleste et que je devrai m'en éloigner au plus vite… L'Ancêtre Taureau Vert veut que je quitte ce continent le plus rapidement possible… » Wang Lin réfléchit en silence. Il sentait qu'un immense mystère pesait sur le Continent du Taureau Céleste, et que c'était là la cause du revirement soudain de la Secte de la Grande Âme et de la Secte Gui Yi.
+« Avoir trahi le Continent Tian Niu signifie que je ne pourrai plus rester sur le Continent Tian Niu et que je devrai m'en éloigner au plus vite… L'Ancêtre Taureau Vert veut que je quitte ce continent le plus rapidement possible… » Wang Lin réfléchit en silence. Il sentait qu'un immense mystère pesait sur le Continent Tian Niu, et que c'était là la cause du revirement soudain de la Secte Da Hun et de la Secte Gui Yi.
 
-De la même manière, Wang Lin soupçonnait que ce mystère était probablement lié au Continent du Démon Vert. Il avait toujours douté de la véritable raison pour laquelle les deux continents s'étaient lancés dans la guerre...
+De la même manière, Wang Lin soupçonnait que ce mystère était probablement lié au Continent Lu Mo. Il avait toujours douté de la véritable raison pour laquelle les deux continents s'étaient lancés dans la guerre...
 
 Wang Lin rumina longuement, mais tout cela restait des conjectures; il ignorait le secret véritable. Après un moment, il regarda vers l'horizon d'un air résolu.
 
-« Peu importe, cet endroit est déjà devenu une eau trouble. Puisque les choses sont ainsi, il est inutile de s'en désoler. Il est temps de quitter le Continent du Taureau Céleste… »
+« Peu importe, cet endroit est déjà devenu une eau trouble. Puisque les choses sont ainsi, il est inutile de s'en désoler. Il est temps de quitter le Continent Tian Niu… »
 
-« Cependant, je crains que ce départ ne soit pas simple. Il y aura probablement des obstacles… Si mes soupçons sont justes, la plupart viendront du Continent du Démon Vert! » murmura Wang Lin pour lui-même. Il s'apprêtait à partir, mais son expression changea soudainement et il tourna son regard vers la montagne couverte de brouillard noir. En un éclair, il disparut sans laisser de trace.
+« Cependant, je crains que ce départ ne soit pas simple. Il y aura probablement des obstacles… Si mes soupçons sont justes, la plupart viendront du Continent Lu Mo! » murmura Wang Lin pour lui-même. Il s'apprêtait à partir, mais son expression changea soudainement et il tourna son regard vers la montagne couverte de brouillard noir. En un éclair, il disparut sans laisser de trace.
 
-Une fois Wang Lin disparu, le brouillard tourbillonna et une silhouette surgit de l'extérieur. Ce personnage se montrait extrêmement prudent, scrutant les alentours pour s'assurer qu'il n'était pas suivi avant de pousser un soupir de soulagement. Il atterrit lentement sur la place de la Secte des Sept Dao.
+Une fois Wang Lin disparu, le brouillard tourbillonna et une silhouette surgit de l'extérieur. Ce personnage se montrait extrêmement prudent, scrutant les alentours pour s'assurer qu'il n'était pas suivi avant de pousser un soupir de soulagement. Il atterrit lentement sur la place de la Secte Qi Dao.
 
 « Malédiction, j'ai rencontré des complications en chemin et je suis arrivé avec quelques jours de retard. J'espère ne pas avoir perturbé les dispositions prévues par le vieil Ancêtre… » La silhouette paraissait nerveuse en regardant autour d'elle. Puis, trouvant un coin tranquille, il s'apprêta à s'asseoir.
 
@@ -116,7 +116,7 @@ Wang Lin fronça les sourcils et apparut. Il regarda Du Qing, qu'il n'avait pas 
 
 « Qui vous a dit de venir ici? »
 
-« Ancien Wang, c'est l'Ancêtre Taureau Vert de la Secte de la Grande Âme qui m'a trouvé et m'a fait partir plusieurs mois à l'avance pour arriver ici il y a trois jours et vous remettre quelque chose. » Du Qing atterrit rapidement devant Wang Lin et tendit la main droite. Une pierre noire apparut dans sa paume.
+« Ancien Wang, c'est l'Ancêtre Taureau Vert de la Secte Da Hun qui m'a trouvé et m'a fait partir plusieurs mois à l'avance pour arriver ici il y a trois jours et vous remettre quelque chose. » Du Qing atterrit rapidement devant Wang Lin et tendit la main droite. Une pierre noire apparut dans sa paume.
 
 Cette pierre semblait tout à fait ordinaire. Du Qing avait passé tout son voyage à chercher des indices, sans rien trouver. Pourtant, se souvenant du sérieux de l'expression de l'Ancêtre Taureau Vert, il était convaincu qu'il s'agissait d'un trésor.
 

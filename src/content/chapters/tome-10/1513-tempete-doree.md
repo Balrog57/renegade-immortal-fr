@@ -32,31 +32,31 @@ Bien que la cloche fût fragile, la puissance qu'elle renfermait était inimagin
 
 Cependant, en cet instant, le Shui Daozi utilisait toute cette puissance pour attaquer Wang Lin!
 
-Si cette force explosait, oubliez Wang Lin: même le vieil homme en noir, Zhou De; l'homme d'âge moyen, Bord-des-Nuages; l'Estimé Ling Dong; Zhou Jin; toute la Secte Divine et l'intégralité du Système Stellaire de la Mer des Nuages seraient détruits!
+Si cette force explosait, oubliez Wang Lin: même le vieil homme en noir, Zhou De; l'homme d'âge moyen, Bord-des-Nuages; l'Estimé Ling Dong; Zhou Jin; toute la Secte Divine et l'intégralité du Système Stellaire de la Mer Yun seraient détruits!
 
 Personne ne survivrait. Seul le propriétaire de la cloche dorée, le Shui Daozi, pourrait rester indemne!
 
-C'était là la folie du Shui Daozi: enterrer toute la Mer des Nuages pour tuer Wang Lin!!
+C'était là la folie du Shui Daozi: enterrer toute la Mer Yun pour tuer Wang Lin!!
 
-« Qui ose me tuer?! Qui peut me tuer?! » Le rire du Shui Daozi était délirant. Il avait les raisons de rire. En tant que cultivateur de la troisième étape, personne n'était faible! Bien qu'il n'ait pas tout prévu, il avait un plan global. Il allait faire exploser la cloche dorée pour anéantir toute la Mer des Nuages. Il était certain que cette tempête dorée causerait un impact majeur sur la Formation de Scellement du Royaume!
+« Qui ose me tuer?! Qui peut me tuer?! » Le rire du Shui Daozi était délirant. Il avait les raisons de rire. En tant que cultivateur de la troisième étape, personne n'était faible! Bien qu'il n'ait pas tout prévu, il avait un plan global. Il allait faire exploser la cloche dorée pour anéantir toute la Mer Yun. Il était certain que cette tempête dorée causerait un impact majeur sur la Formation de Scellement du Royaume!
 
 Il était fort probable qu'une brèche apparaisse dans la formation. Il pourrait alors s'échapper vers le Système Stellaire Antique. Fort de son immense mérite, il pourrait y faire tout ce qu'il souhaitait!
 
-La tempête dorée grondait. Elle était sur le point de se propager et d'effondrer toute la Mer des Nuages. Tous les continents flottants tremblèrent. Ce tremblement était le signe de l'effondrement d'un système stellaire!
+La tempête dorée grondait. Elle était sur le point de se propager et d'effondrer toute la Mer Yun. Tous les continents flottants tremblèrent. Ce tremblement était le signe de l'effondrement d'un système stellaire!
 
 Le brouillard stellaire s'était déjà dispersé et d'innombrables bêtes féroces poussaient des cris plaintifs. Ayant acquis une certaine intelligence, elles comprirent qu'une force irrésistible était sur le point de déferler. Peu importait la robustesse de leurs corps, elles seraient balayées!
 
-De nombreuses planètes de culture tremblèrent. Les innombrables mortels de la Mer des Nuages mourraient en un instant!
+De nombreuses planètes de culture tremblèrent. Les innombrables mortels de la Mer Yun mourraient en un instant!
 
 Le visage des cultivateurs pâlit. C'était l'apocalypse, et leurs esprits restaient totalement vides de pensée!
 
-Des fissures de plusieurs dizaines de millions de pieds de long apparurent partout dans la Mer des Nuages. Même la Formation de Scellement du Royaume trembla, et les esprits de la formation étaient sur le point de se manifester!
+Des fissures de plusieurs dizaines de millions de pieds de long apparurent partout dans la Mer Yun. Même la Formation de Scellement du Royaume trembla, et les esprits de la formation étaient sur le point de se manifester!
 
 Tout cela se produisit en un instant!
 
 Sur la planète de culture, dans la Secte Divine, l'homme en rouge apparut derrière Wang Lin. Il fit un pas en avant et sa main s'abattit sur la tempête monstrueuse.
 
-Peu après, à l'opposé de lui, le vieil homme de la Secte des Cadavres de l'Alliance apparut également. L'expression sérieuse, il forma des sceaux de ses deux mains et les pressa vers l'avant!
+Peu après, à l'opposé de lui, le vieil homme de la Secte Shi Yin de l'Alliance apparut également. L'expression sérieuse, il forma des sceaux de ses deux mains et les pressa vers l'avant!
 
 Zhou De et Maître Bord-des-Nuages étaient livides. Ignorant leurs propres combats, ils se précipitèrent. Leurs mains bougeaient frénétiquement dans une tentative désespérée d'endiguer cette explosion de puissance!
 
@@ -64,7 +64,7 @@ Ling Dong et Zhou Jin arrivèrent également sous les ordres de Wang Lin. Six cu
 
 « C'est inutile, personne ne peut m'arrêter, aucun de vous ne le pourra! Vous voulez me tuer? Même ce vieil homme, le Seigneur du Royaume Scellé, n'y est pas parvenu, et vous non plus! » riait sauvagement le Shui Daozi, transporté par l'excitation.
 
-« Wang Lin, tu veux ma mort, mais tu as entraîné toute la Mer des Nuages dans ta chute. Même si tu survis d'une manière ou d'une autre, je veux voir si ton cœur de Dao restera sans faille! Je veux voir comment tu pourras rester dans le Royaume Intérieur!! Tu es le pécheur éternel du Royaume Intérieur!! »
+« Wang Lin, tu veux ma mort, mais tu as entraîné toute la Mer Yun dans ta chute. Même si tu survis d'une manière ou d'une autre, je veux voir si ton cœur de Dao restera sans faille! Je veux voir comment tu pourras rester dans le Royaume Intérieur!! Tu es le pécheur éternel du Royaume Intérieur!! »
 
 Des dizaines de cultivateurs de la Tribulation Céleste de la Secte Démon apparurent. Leurs visages étaient pâles alors qu'ils s'apprêtaient à engager toute leur force!
 
@@ -80,21 +80,21 @@ Ce visage était celui d'un ancien démon! Neuf étoiles de démons anciens appa
 
 Cependant, la tempête dorée était extrêmement difficile à contrôler. Même avec autant de personnes agissant de concert, ils ne pouvaient que regarder ce tourbillon croître et s'amplifier sans fin!!
 
-Le vieil homme de la Secte des Cadavres, situé à l'opposé de Maître Hong Shan, dit d'un ton lugubre: « Maître Hong Shan, abandonnez la Mer des Nuages... »
+Le vieil homme de la Secte Shi Yin, situé à l'opposé de Maître Hong Shan, dit d'un ton lugubre: « Maître Hong Shan, abandonnez la Mer Yun... »
 
 Maître Hong Shan ne répondit pas. Il serra les dents et fit circuler son énergie essence avec frénésie, luttant pour maîtriser cette tempête dorée qui gonflait sans cesse! Tout le monde était constamment repoussé à mesure que la tempête s'intensifiait. Le point de non-retour était déjà atteint!
 
 S'ils ne partaient pas maintenant, ils n'auraient plus jamais de chance de fuir!
 
-Wang Lin observait tout cela en silence. Il était initialement venu chercher la vengeance personnelle contre le Shui Daozi, mais comme ce dernier l'avait affirmé, toute la Mer des Nuages était désormais impliquée. Ce prix faisait réfléchir Wang Lin dans un silence pesant!
+Wang Lin observait tout cela en silence. Il était initialement venu chercher la vengeance personnelle contre le Shui Daozi, mais comme ce dernier l'avait affirmé, toute la Mer Yun était désormais impliquée. Ce prix faisait réfléchir Wang Lin dans un silence pesant!
 
 « Cela ne devrait pas se passer ainsi... » Observant la tempête dorée qui s'étendait rapidement, Wang Lin pointa du doigt l'espace entre ses sourcils.
 
-« Laisse tomber, laisse tomber. Emportez autant de personnes que possible. La Mer des Nuages... est finie... Une fois que la Formation de Scellement du Royaume sera ouverte, la guerre commencera!! Mais avant cela, je vais tuer ce Shui Daozi!! » Maître Hong Shan afficha un sourire misérable, sachant qu'il ne pouvait plus résister. Il chargea le Shui Daozi!
+« Laisse tomber, laisse tomber. Emportez autant de personnes que possible. La Mer Yun... est finie... Une fois que la Formation de Scellement du Royaume sera ouverte, la guerre commencera!! Mais avant cela, je vais tuer ce Shui Daozi!! » Maître Hong Shan afficha un sourire misérable, sachant qu'il ne pouvait plus résister. Il chargea le Shui Daozi!
 
-Tous les autres battirent en retraite amèrement. Ils savaient que la fin de la Mer des Nuages était proche!
+Tous les autres battirent en retraite amèrement. Ils savaient que la fin de la Mer Yun était proche!
 
-La masse immense de cultivateurs et d'innombrables créatures de la Mer des Nuages était condamnée! Désormais, il n'y aurait plus quatre grands systèmes stellaires dans le Royaume Intérieur, mais seulement trois... La main droite de Wang Lin pointa lentement l'endroit entre ses sourcils tandis que la foule reculait, et la tempête dorée commença à s'étendre à une vitesse fulgurante, la force de résistance ayant disparu!
+La masse immense de cultivateurs et d'innombrables créatures de la Mer Yun était condamnée! Désormais, il n'y aurait plus quatre grands systèmes stellaires dans le Royaume Intérieur, mais seulement trois... La main droite de Wang Lin pointa lentement l'endroit entre ses sourcils tandis que la foule reculait, et la tempête dorée commença à s'étendre à une vitesse fulgurante, la force de résistance ayant disparu!
 
 « Bête des Limbes! » La seconde étoile de Dieu Ancien de Wang Lin brilla intensément et le ciel s'obscurcit soudainement. Une gigantesque Bête des Limbes apparut brusquement!
 

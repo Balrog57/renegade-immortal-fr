@@ -24,13 +24,13 @@ Le visage de ce dernier se voila d'ombre; il recula aussitôt tout en formant un
 
 L'ensemble de la caverne commença à s'effondrer massivement. L'homme en robe noire laissa échapper un gémissement étouffé et se retira précipitamment.
 
-« Cher cultivateur, si un malentendu nous oppose, nous pouvons en discuter! Ce vieil homme est Liu Qingyun, le Vice-Maître de la Salle du Ressentiment de la Secte des Cadavres! » L'homme en robe noire était sous le choc. Il venait de s'éveiller et son esprit était encore embrumé. Cependant, une fois lucide, il réalisa que celui qui l'avait réveillé était un cultivateur au stade Scruteur du Nirvana!
+« Cher cultivateur, si un malentendu nous oppose, nous pouvons en discuter! Ce vieil homme est Liu Qingyun, le Vice-Maître de la Salle du Ressentiment de la Secte Shi Yin! » L'homme en robe noire était sous le choc. Il venait de s'éveiller et son esprit était encore embrumé. Cependant, une fois lucide, il réalisa que celui qui l'avait réveillé était un cultivateur au stade Scruteur du Nirvana!
 
 S'il avait encore possédé un corps, il n'aurait pas eu peur, mais il n'était plus qu'une âme. De plus, il n'était pas le seul de ce niveau: le garçon à la grosse tête était également un expert du Scruteur du Nirvana et, bien que la marionnette ne le fût pas, elle se situait au sommet du stade Yang Corporel.
 
 Plus il observait les trois adversaires, plus son effroi grandissait. Sans même parler de son absence de corps physique, même s'il en avait eu un, il aurait dû fuir sans délai face à une telle puissance.
 
-Sa seule chance de combat résidait dans sa capacité à posséder avec succès le corps du Clan des Démons Géants; il pourrait alors écarter l'un d'eux, utiliser la force de ce corps pour en affronter un deuxième, et enfin utiliser ses propres sorts contre le dernier. Pourtant, tout cela n'était qu'une chimère. L'homme en robe noire esquissa un sourire amer intérieurement et s'empressa de dire: « Cher compagnon cultivateur, je crains qu'il ne s'agisse d'un malentendu. Je viens de m'éveiller et mes propos ont pu vous offenser; j'espère que vous me pardonnerez. Si ce corps du Clan des Démons Géants vous plaît, je peux vous l'offrir en gage d'amitié. »
+Sa seule chance de combat résidait dans sa capacité à posséder avec succès le corps du Clan Ju Mo; il pourrait alors écarter l'un d'eux, utiliser la force de ce corps pour en affronter un deuxième, et enfin utiliser ses propres sorts contre le dernier. Pourtant, tout cela n'était qu'une chimère. L'homme en robe noire esquissa un sourire amer intérieurement et s'empressa de dire: « Cher compagnon cultivateur, je crains qu'il ne s'agisse d'un malentendu. Je viens de m'éveiller et mes propos ont pu vous offenser; j'espère que vous me pardonnerez. Si ce corps du Clan Ju Mo vous plaît, je peux vous l'offrir en gage d'amitié. »
 
 Tout en parlant, il continuait de reculer.
 
@@ -44,7 +44,7 @@ Cependant, il n'aurait jamais imaginé attirer un tel expert au moment crucial. 
 
 « Maudit soit! Pour ne pas attirer l'attention des autres Vice-Maîtres, j'avais été d'une prudence extrême. Je n'avais même pas envoyé de subordonnés pour me protéger, me contentant de manipuler les choses dans l'ombre. Je ne m'attendais pas à ce que ma position soit découverte! » Liu Qingyun était sombre; tout en reculant, il scrutait attentivement le groupe de Wang Lin.
 
-Plus il les observait, plus ils lui semblaient étrangers. En tant que Vice-Maître de la Secte des Cadavres, il n'avait peut-être pas croisé tous les cultivateurs Yin et Yang du Système Stellaire de l'Alliance, mais il connaissait presque tous ceux ayant atteint le stade Scruteur du Nirvana. Après tout, peu d'individus atteignaient ce niveau dans cette région.
+Plus il les observait, plus ils lui semblaient étrangers. En tant que Vice-Maître de la Secte Shi Yin, il n'avait peut-être pas croisé tous les cultivateurs Yin et Yang du Système Stellaire de l'Alliance, mais il connaissait presque tous ceux ayant atteint le stade Scruteur du Nirvana. Après tout, peu d'individus atteignaient ce niveau dans cette région.
 
 En particulier, ce garçon à la grosse tête le plongeait dans la confusion. Sa culture était bien au stade Scruteur du Nirvana, pourtant aucun domaine n'émanait de lui. À la place, il ressentait une source puissante d'énergie spirituelle céleste.
 
@@ -70,7 +70,7 @@ Liu Qingyun eut un sourire amer. Il savait qu'il ne pourrait échapper à un ma�
 
 Wang Lin le fixa et demanda lentement: « Comment comptez-vous me rembourser? »
 
-Liu Qingyun serra les dents: « J'ai l'esprit originel d'un cultivateur du Scruteur du Nirvana, qu'en dites-vous? » Il s'agissait de l'âme de son ennemi mortel. Des années auparavant, il avait utilisé le pouvoir de la Secte des Cadavres pour détruire le corps de son adversaire et capturer son âme. Il avait initialement prévu de l'utiliser pour raffiner une marionnette, mais en cet instant critique, il était prêt à s'en défaire, le cœur déchiré.
+Liu Qingyun serra les dents: « J'ai l'esprit originel d'un cultivateur du Scruteur du Nirvana, qu'en dites-vous? » Il s'agissait de l'âme de son ennemi mortel. Des années auparavant, il avait utilisé le pouvoir de la Secte Shi Yin pour détruire le corps de son adversaire et capturer son âme. Il avait initialement prévu de l'utiliser pour raffiner une marionnette, mais en cet instant critique, il était prêt à s'en défaire, le cœur déchiré.
 
 L'expression de Wang Lin resta impassible: « Oh? Apportez-le. »
 
@@ -108,6 +108,6 @@ Il n'aurait jamais imaginé que Liu Qingyun oserait combattre malgré un avantag
 
 Un rire dément s'échappa de la gorge de Liu Qingyun, puis sa silhouette féroce fulgura alors qu'il chargeait droit vers le ciel. Avec son tempérament, il ne se résignait pas facilement; tout ce qu'il avait fait n'était qu'une mise en scène pour tromper ses adversaires. Si l'explosion du cadavre s'était propagée normalement, elle n'aurait même pas affecté la planète. Mais en concentrant toute cette puissance, bien qu'elle restât insuffisante pour détruire le monde, il était certain que personne de son niveau de culture ne pourrait y résister.
 
-« Bien que cela me déchire le cœur de perdre ce cadavre, l'utiliser pour anéantir un cultivateur capable de manipuler l'espace en vaut la peine! Une fois cet homme mort, les deux autres ne pourront plus jamais m'atteindre! » En riant, Liu Qingyun s'élança vers les cieux. Il comptait retourner à la Secte des Cadavres au plus vite pour trouver un nouveau corps et, par la suite, se venger des autres Vice-Maîtres.
+« Bien que cela me déchire le cœur de perdre ce cadavre, l'utiliser pour anéantir un cultivateur capable de manipuler l'espace en vaut la peine! Une fois cet homme mort, les deux autres ne pourront plus jamais m'atteindre! » En riant, Liu Qingyun s'élança vers les cieux. Il comptait retourner à la Secte Shi Yin au plus vite pour trouver un nouveau corps et, par la suite, se venger des autres Vice-Maîtres.
 
 « Tu ne peux pas t'enfuir! » Cette voix froide et implacable, semblable à un vent glacial, atteignit les oreilles de Liu Qingyun. Son corps trembla, ses yeux se remplirent d'incrédulité, et soudain, il se figea dans l'air.

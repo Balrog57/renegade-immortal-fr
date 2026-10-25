@@ -22,13 +22,13 @@ Même au sein du palais impérial, ces êtres recevaient le respect de tous ceux
 
 Tôt ce matin-là, la matrice de transfert à l'extérieur du palais fonctionnait sans relâche. Elle semblait scintiller continuellement à mesure que les cultivateurs arrivaient pour assister à la cérémonie.
 
-Ces derniers contournaient les neuf portes et se dirigeaient rapidement vers la place située devant le Temple du Dao Céleste.
+Ces derniers contournaient les neuf portes et se dirigeaient rapidement vers la place située devant le Temple Xian Dao.
 
-De plus en plus de cultivateurs convergeaient vers la place du Temple du Dao Céleste. Ils n'étaient pas dispersés au hasard, mais disposés selon un ordre précis. Trois zones de mille pieds restaient vides.
+De plus en plus de cultivateurs convergeaient vers la place du Temple Xian Dao. Ils n'étaient pas dispersés au hasard, mais disposés selon un ordre précis. Trois zones de mille pieds restaient vides.
 
 Les cultivateurs occupant ces trois emplacements étaient trois des quatre rois de la cité ancestrale!
 
-Sur la place devant le Temple du Dao Céleste, outre les dizaines de milliers d'invités, deux longues rangées de soldats en armure noire se tenaient prêtes.
+Sur la place devant le Temple Xian Dao, outre les dizaines de milliers d'invités, deux longues rangées de soldats en armure noire se tenaient prêtes.
 
 Ces soldats à l'armure noire appartenaient à la famille impériale et n'étaient loyaux qu'à l'Empereur. Chacun possédait une culture considérable. Ils n'étaient que 100 000, mais tous maîtrisaient la capacité de sacrifier leur force vitale en échange d'une puissance mortelle terrifiante.
 
@@ -36,7 +36,7 @@ Peu de gens en connaissaient les détails précis, mais à cet instant, les deux
 
 Ces deux lignes semblaient fendre la place, s'étendant directement au-delà des neuf portes!
 
-À l'extérieur de la place du Temple du Dao Céleste se trouvaient neuf portes espacées de 100 000 pieds les unes des autres. En réalité, il s'agissait de neuf immenses édifices en forme de portes, d'un noir profond, exhalant une puissante intention meurtrière. Au terme de la dernière porte, un éclair jaillit tandis que les membres de la famille Li apparaissaient. Ils contournèrent les neuf portes et se dirigèrent respectueusement vers la place.
+À l'extérieur de la place du Temple Xian Dao se trouvaient neuf portes espacées de 100 000 pieds les unes des autres. En réalité, il s'agissait de neuf immenses édifices en forme de portes, d'un noir profond, exhalant une puissante intention meurtrière. Au terme de la dernière porte, un éclair jaillit tandis que les membres de la famille Li apparaissaient. Ils contournèrent les neuf portes et se dirigèrent respectueusement vers la place.
 
 « Le temps est venu, scellez les neuf portes! » Peu après, une silhouette vêtue de vert sortit du temple. C'était un vieil homme à l'apparence ordinaire, mais dont les yeux brillaient d'un éclat vif. Il scruta les environs en émergeant du sanctuaire.
 
@@ -68,7 +68,7 @@ L'homme qui avait parlé était le vieil homme en vert sorti du temple. Il obser
 
 « Wang Lin, chaque Ascendant Empyréen recevra un titre de Sa Majesté, mais avant la cérémonie de titre, il doit subir une épreuve. Cette épreuve est constituée de ces neuf portes. Une fois que vous aurez franchi les neuf portes et que vous vous serez tenu devant moi, la cérémonie débutera! »
 
-« À ce moment-là, Sa Majesté viendra personnellement vous nommer et le Maître Impérial viendra diviner votre destin! Toutes vos actions devant le Temple du Dao Céleste seront enregistrées et diffusées auprès de toutes les sectes des 72 continents! » Les paroles du vieil homme étaient empreintes de calme. Lorsqu'il eut fini, il ferma les yeux, ne lui accordant plus aucune attention.
+« À ce moment-là, Sa Majesté viendra personnellement vous nommer et le Maître Impérial viendra diviner votre destin! Toutes vos actions devant le Temple Xian Dao seront enregistrées et diffusées auprès de toutes les sectes des 72 continents! » Les paroles du vieil homme étaient empreintes de calme. Lorsqu'il eut fini, il ferma les yeux, ne lui accordant plus aucune attention.
 
 Cependant, tous les cultivateurs, y compris les quatre rois, avaient les yeux rivés sur Wang Lin.
 
@@ -106,6 +106,6 @@ Devant lui, le passage formé par la lueur sombre couvrant les huit portes resta
 
 Lorsque ce coup percuta sa cible, le monde trembla et l'ombre du tigre se désintégra. Le passage noir formé par les huit portes restantes s'effondra avec la lumière noire. Les 100 000 soldats en armure noire crachèrent tous du sang et furent projetés en arrière, sans qu'aucun ne succombe.
 
-Les pupilles de Wang Lin se contractèrent imperceptiblement tandis qu'il observait attentivement leurs armures. Il passa calmement entre les 100 000 soldats, traversa les huit portes restantes et arriva devant le Temple du Dao Céleste. Son regard se posa avec acuité sur le vieil homme en vert qui reculait!
+Les pupilles de Wang Lin se contractèrent imperceptiblement tandis qu'il observait attentivement leurs armures. Il passa calmement entre les 100 000 soldats, traversa les huit portes restantes et arriva devant le Temple Xian Dao. Son regard se posa avec acuité sur le vieil homme en vert qui reculait!
 
 « Vous aussi, reculez! » Wang Lin lança froidement un regard au vieillard aux vêtements verts.

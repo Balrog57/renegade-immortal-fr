@@ -66,9 +66,9 @@ Wang Lin avait utilisé le Son Démoniaque Céleste. Sa voix, chargée d'une pui
 
 Si Wang Lin n'avait pas utilisé le sort de recherche d'âme, c'était parce que, bien que la culture au stade intermédiaire de l'Ascendant du vieil homme ne soit qu'une apparence, son âme originelle possédait une puissance très différente de celle des gardiens célestes. Fidèle à sa prudence, Wang Lin n'aurait utilisé le sort de recherche d'âme qu'en dernier recours ou s'il avait la maîtrise totale de la situation.
 
-Le regard vide du vieillard murmura: « Je viens de la Secte du Raffinement des Plumes, et mon nom est Huang Yu. Je suis entré dans cette Terre des Esprits Démoniaques car j'étais pourchassé par mes ennemis. Par la suite, je n'ai pas osé partir et j'ai décidé de m'installer ici. C'est plus sûr ainsi; tant que je reste prudent, il n'y a aucun danger. »
+Le regard vide du vieillard murmura: « Je viens de la Secte Lian Yu, et mon nom est Huang Yu. Je suis entré dans cette Terre Yao Ling car j'étais pourchassé par mes ennemis. Par la suite, je n'ai pas osé partir et j'ai décidé de m'installer ici. C'est plus sûr ainsi; tant que je reste prudent, il n'y a aucun danger. »
 
-Les yeux de Wang Lin s'illuminèrent: « Où avez-vous obtenu la graine céleste et les trésors célestes? Dans cette Terre des Esprits Démoniaques? »
+Les yeux de Wang Lin s'illuminèrent: « Où avez-vous obtenu la graine céleste et les trésors célestes? Dans cette Terre Yao Ling? »
 
 Le vieil homme répondit: « À mon arrivée, j'ai accidentellement pénétré dans une grotte abandonnée et je les y ai trouvés. »
 

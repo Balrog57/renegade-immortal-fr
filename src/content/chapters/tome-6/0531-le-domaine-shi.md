@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 531 - Shi Realm
 slug: le-domaine-shi
 ---
-« La Terre des Esprits Démoniaques est divisée en neuf pays, et chaque pays abrite un ancien esprit démoniaque scellé. Un ancien esprit démoniaque se forme naturellement du ciel et de la terre et possède des pouvoirs prodigieux. Une fois qu'un cultivateur fusionne avec lui, sa culture augmente considérablement et il a la chance d'apprendre un sort puissant. Selon les souvenirs de Lou Yun, chaque ancien esprit démoniaque est un trésor rare; après avoir fusionné avec lui, on a une chance d'entrer dans un état appelé le Début de l'Âme. »
+« La Terre Yao Ling est divisée en neuf pays, et chaque pays abrite un ancien esprit démoniaque scellé. Un ancien esprit démoniaque se forme naturellement du ciel et de la terre et possède des pouvoirs prodigieux. Une fois qu'un cultivateur fusionne avec lui, sa culture augmente considérablement et il a la chance d'apprendre un sort puissant. Selon les souvenirs de Lou Yun, chaque ancien esprit démoniaque est un trésor rare; après avoir fusionné avec lui, on a une chance d'entrer dans un état appelé le Début de l'Âme. »
 
 « Ce qu'on appelle le Début de l'Âme est un état très mystérieux. Une fois qu'un cultivateur entre dans cet état, la vitesse à laquelle il peut comprendre les lois célestes atteint un degré inimaginable. Si ce n'était que là, cela ne serait pas si exceptionnel. Ce qui rend tous les cultivateurs si fous, c'est qu'une fois dans cet état, il y a une chance de pouvoir créer son propre sort céleste en se fondant sur son domaine! »
 
@@ -20,9 +20,9 @@ La seule façon d'en obtenir un est de s'illustrer par ses accomplissements!
 
 Chaque pays ne possède qu'un seul ancien esprit démoniaque. Ces esprits ne sont contrôlés par personne et constituent les symboles de leurs pays respectifs. Ils évoluent une fois tous les 100 000 ans, et si l'un d'eux fusionne avec quelqu'un avant son évolution, il faudra un million d'années pour qu'un nouveau se forme.
 
-Le rang de l'ancien esprit démoniaque de chaque pays diffère également. Par exemple, l'ancien démon du Pays du Démon Céleste est né il y a un million d'années et possède le rang le plus bas.
+Le rang de l'ancien esprit démoniaque de chaque pays diffère également. Par exemple, l'ancien démon du Pays Tian Yao est né il y a un million d'années et possède le rang le plus bas.
 
-L'ancien démon du Pays des Neuf Extinctions n'a jamais été fusionné depuis sa naissance, sa force a donc atteint un degré inimaginable.
+L'ancien démon du Pays Jiu Jue n'a jamais été fusionné depuis sa naissance, sa force a donc atteint un degré inimaginable.
 
 Seuls ceux qui possèdent de grands accomplissements ont la chance de prier devant un ancien esprit démoniaque. Seuls ceux qui ont tué d'innombrables personnes ont la possibilité d'en devenir le maître.
 
@@ -40,13 +40,13 @@ Wang Lin afficha une expression pensive alors qu'il volait rapidement vers l'end
 
 « Si Lou Yun savait tout cela, c'est parce qu'il y a des dizaines de milliers d'années, un membre de sa secte est venu ici. Bien que cet homme n'ait pas obtenu d'ancien démon, il a réussi à s'en sortir vivant, alors que ses chances de survie étaient infimes.
 
-Après son retour à la Secte du Fantôme Céleste, il a immédiatement consigné ses 500 ans d'expérience dans la Terre des Esprits Démoniaques. C'est ainsi que Lou Yun savait tout cela. Désormais, ses connaissances me facilitent la tâche!
+Après son retour à la Secte Tian Gui, il a immédiatement consigné ses 500 ans d'expérience dans la Terre Yao Ling. C'est ainsi que Lou Yun savait tout cela. Désormais, ses connaissances me facilitent la tâche!
 
 Lou Yun avait appris de son ancêtre que pour trouver rapidement ses racines ici, il devait rejoindre un pays au plus vite.
 
 C'est le seul moyen d'obtenir des exploits militaires, mais plus important encore, une fois ces exploits acquis, on n'est plus seul. On aura des soldats et des commandants démoniaques à son commandement. C'est la meilleure façon de prendre l'avantage dès le départ!
 
-Le pays le plus proche est le Pays du Démon Céleste. Lou Yun s'était rendu plus tôt à la Cité de l'Ancien Démon et avait obtenu un jeton d'entrée du général démoniaque de l'aile gauche, mais il devait acquérir trois rangs d'énergie spirituelle démoniaque pour y pénétrer!
+Le pays le plus proche est le Pays Tian Yao. Lou Yun s'était rendu plus tôt à la Cité Gu Yao et avait obtenu un jeton d'entrée du général démoniaque de l'aile gauche, mais il devait acquérir trois rangs d'énergie spirituelle démoniaque pour y pénétrer!
 
 Cet endroit utilise des rangs pour mesurer l'énergie spirituelle démoniaque. Trois rangs d'énergie spirituelle démoniaque équivalent à la quantité dont un cultivateur de l'Établissement des Fondations a besoin! »
 
@@ -68,7 +68,7 @@ Le corps de Wang Lin trembla; il s'arrêta brusquement, figé dans les airs. Ses
 
 « Ji, Dao, Shi! » Son cœur battait la chamade.
 
-Après avoir obtenu le Royaume Ji, Wang Lin avait entrepris une recherche effrénée d'informations à son sujet. Sa plus grande découverte provenait d'une grotte située profondément sous une plaine de la Mer des Démons, sur la planète Suzaku. Il y avait là une vaste collection de livres anciens, et c'est là qu'il avait trouvé une description détaillée du Royaume Ji.
+Après avoir obtenu le Royaume Ji, Wang Lin avait entrepris une recherche effrénée d'informations à son sujet. Sa plus grande découverte provenait d'une grotte située profondément sous une plaine de la Mer Xiu Mo, sur la planète Suzaku. Il y avait là une vaste collection de livres anciens, et c'est là qu'il avait trouvé une description détaillée du Royaume Ji.
 
 En cherchant des informations sur le Royaume Ji, il avait également découvert des détails sur les deux autres domaines, tout aussi célèbres!
 
@@ -100,9 +100,9 @@ Wang Lin ouvrit la bouche et aspira. Les âmes primaires autour de lui se transf
 
 Après avoir rangé les âmes primaires, Wang Lin atterrit près de la fissure et la dévisagea froidement.
 
-« Selon les souvenirs de Lou Yun, le fantôme céleste est une entité surnaturelle unique que seule la Secte du Fantôme Céleste possède. Ces êtres naissent du vide et n'ont normalement pas de forme, mais les membres de la Secte du Fantôme Céleste utilisent une rivière de sang de femmes enceintes mortelles comme appât, le sang chaud d'hommes vigoureux comme guide, et ajoutent l'âme originelle d'un cultivateur comme médium. Il faut 49 ans pour invoquer un fantôme céleste, puis ils utilisent un sort secret pour en faire leur fantôme céleste lié à la vie.
+« Selon les souvenirs de Lou Yun, le fantôme céleste est une entité surnaturelle unique que seule la Secte Tian Gui possède. Ces êtres naissent du vide et n'ont normalement pas de forme, mais les membres de la Secte Tian Gui utilisent une rivière de sang de femmes enceintes mortelles comme appât, le sang chaud d'hommes vigoureux comme guide, et ajoutent l'âme originelle d'un cultivateur comme médium. Il faut 49 ans pour invoquer un fantôme céleste, puis ils utilisent un sort secret pour en faire leur fantôme céleste lié à la vie.
 
-Lou Yun occupait un rang très élevé au sein de la Secte du Fantôme Céleste. Avant de venir ici, son maître lui avait donné le plus faible de ses neuf fantômes célestes liés à la vie pour le protéger. Lou Yun n'avait pas eu beaucoup de temps pour l'affiner, et c'est pourquoi le fantôme céleste l'a trahi. »
+Lou Yun occupait un rang très élevé au sein de la Secte Tian Gui. Avant de venir ici, son maître lui avait donné le plus faible de ses neuf fantômes célestes liés à la vie pour le protéger. Lou Yun n'avait pas eu beaucoup de temps pour l'affiner, et c'est pourquoi le fantôme céleste l'a trahi. »
 
 Les yeux de Wang Lin devinrent glacials et il agita sa main droite. Deux filaments de gaz gris apparurent soudainement et commencèrent à danser entre ses doigts. D'un coup de doigt, les deux filaments jaillirent vers la fissure au sol.
 

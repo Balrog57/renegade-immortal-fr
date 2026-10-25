@@ -92,13 +92,13 @@ Dans la deuxième image, l'éclair nageait dans la paume d'un homme. C'était un
 
 — Hélas, cet ancien éclair divin du vide ne retrouvera sans doute jamais, même en d'innombrables âges, la moindre fraction de ce qu'il était autrefois... Peu importe, je vais simplement t'envoyer dehors et voir ce que te réserve ta fortune, dit l'homme d'âge moyen en secouant la tête et en agitant la main. L'éclair gronda alors qu'il plongeait dans l'infini avant de disparaître.
 
-Le décor de la troisième image était la terre sacrée du Clan du Tonnerre Dispersé, au-dessus d'un temple. Un éclair reliait les cieux et la terre, comme s'il avait existé depuis l'origine des temps et qu'il serait éternel.
+Le décor de la troisième image était la terre sacrée du Clan Shan Lei, au-dessus d'un temple. Un éclair reliait les cieux et la terre, comme s'il avait existé depuis l'origine des temps et qu'il serait éternel.
 
 Huit cultivateurs flottaient autour de cet éclair. L'un d'eux était un vieil homme portant une marque de tonnerre entre les sourcils!
 
 Les sept autres portaient des vêtements étranges faits d'une substance inconnue; on aurait dit que chacun d'eux portait une rivière sur lui!
 
-Une personne se tenait en tête, occupant clairement le rôle de chef. Même le vieil homme du Clan du Tonnerre Dispersé regardait cet individu avec respect et une pointe de crainte.
+Une personne se tenait en tête, occupant clairement le rôle de chef. Même le vieil homme du Clan Shan Lei regardait cet individu avec respect et une pointe de crainte.
 
 Une ligne dorée entourait le corps de cette personne. Wang Lin sentit que cette ligne dorée lui était extrêmement familière!
 

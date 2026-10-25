@@ -32,7 +32,7 @@ Cette arme ne pouvait plus être qualifiée d'épée; elle ressemblait plutôt �
 
 C'était bien Richesse!
 
-Lorsqu'il était à la Secte Heng Yue, avant l'arrivée de la Secte Xuan Dao, il avait pris le jade de son maître pour aller choisir une épée volante au Pavillon des Épées. Celle qu'il avait choisie fut l'épée réputée la plus extravagante de tout le pays de Zhao: Richesse!
+Lorsqu'il était à la Secte Heng Yue, avant l'arrivée de la Secte Xuan Dao, il avait pris le jade de son maître pour aller choisir une épée volante au Pavillon Jian. Celle qu'il avait choisie fut l'épée réputée la plus extravagante de tout le pays de Zhao: Richesse!
 
 Wang Lin redescendit de la pagode, l'esprit confus. Il se tint à l'extérieur, fixant la grande épée.
 
@@ -54,7 +54,7 @@ Ce senior du pays Zhao n'était au maximum qu'un cultivateur de l'Âme Naissante
 
 Wang Lin se mit à réfléchir, tentant de se remémorer la vie de ce senior telle qu'elle était inscrite sur la plaque à côté de Richesse.
 
-Cet homme avait été considéré comme un bon à rien au sein de la Secte Heng Yue, mais il avait réussi à sauver la secte d'un grand désastre. Puis, il était mort, ne laissant que Richesse, déposée au Pavillon des Épées pour quiconque en aurait le destin.
+Cet homme avait été considéré comme un bon à rien au sein de la Secte Heng Yue, mais il avait réussi à sauver la secte d'un grand désastre. Puis, il était mort, ne laissant que Richesse, déposée au Pavillon Jian pour quiconque en aurait le destin.
 
 « Un homme totalement inutile a pu sauver la Secte Heng Yue... Je n'y avais pas prêté attention à l'époque, mais avec le recul, ce senior devait bien cacher un secret! » Les yeux de Wang Lin s'illuminèrent. Il reporta son regard sur l'épée céleste.
 
@@ -96,7 +96,7 @@ Dès qu'elle eut quitté la pièce, une autre présence apparut.
 
 Wang Lin fixait le bébé d'un regard empreint de tendresse. Sa main trembla lorsqu'il effleura délicatement l'enfant en murmurant: « Wan Er... »
 
-« J'ai oublié le jour, le mois et l'année où nous nous sommes rencontrés aux abords de la Mer des Démons, mais je me souviens de ton expression, à la fois souriante et triste, face à moi. »
+« J'ai oublié le jour, le mois et l'année où nous nous sommes rencontrés aux abords de la Mer Xiu Mo, mais je me souviens de ton expression, à la fois souriante et triste, face à moi. »
 
 Les cils du bébé frémirent tandis que ses yeux clairs s'ouvraient pour fixer silencieusement Wang Lin.
 
@@ -138,7 +138,7 @@ Wang Lin monta sur le dos de la bête moustique et s'envola vers le Cimetière d
 
 ***
 
-À cet instant, au cœur de la Mer des Démons, quelque chose s'agitait parmi les Étoiles Brisées du Chaos.
+À cet instant, au cœur de la Mer Xiu Mo, quelque chose s'agitait parmi les Étoiles Brisées du Chaos.
 
 Dans la mer de sang située dans le corps de l'Ancien Dieu.
 

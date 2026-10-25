@@ -10,7 +10,7 @@ slug: raffinement-pourpre
 
 Wang Lin resta assis devant la vallée, le regard glacial, et cracha le Drapeau des Âmes d'un Milliard. Alors que l'étendard de trente-trois mètres flottait dans les airs, des hurlements fantomatiques s'en échappèrent.
 
-Bien que le Drapeau des Âmes d'un Milliard ne contienne plus un milliard d'âmes, il demeurait le trésor emblématique de la Secte de l'Affinement des Âmes. Puisque tous les habitants de la vallée pratiquaient le sort d'affinement des âmes, dès qu'ils aperçurent le drapeau, ils ressentirent une irrésistible envie de le vénérer.
+Bien que le Drapeau des Âmes d'un Milliard ne contienne plus un milliard d'âmes, il demeurait le trésor emblématique de la Secte Lian Hun des Âmes. Puisque tous les habitants de la vallée pratiquaient le sort d'affinement des âmes, dès qu'ils aperçurent le drapeau, ils ressentirent une irrésistible envie de le vénérer.
 
 Wang Lin saisit le drapeau et, d'un revers de main, libéra les âmes primaires. Les six âmes primaires restantes, dont le Qilin, apparurent immédiatement pour encercler la zone de cinq kilomètres de large.
 
@@ -94,7 +94,7 @@ Le vieillard en robe blanche répondit amèrement: « Tu veux dire... »
 
 D'un ton solennel, le vieillard en robe grise reprit: « Tu as commis l'erreur, tu dois donc en assumer la responsabilité. C'est l'unique moyen pour notre tribu de survivre. Ne t'inquiète pas; si tu meurs, je trouverai un moyen de te venger! »
 
-« De plus, une fois libérés, j'irai immédiatement à la Cité de l'Ancien Démon pour rapporter tes actes au général de l'aile gauche. Je suis certain qu'il y trouvera un intérêt. »
+« De plus, une fois libérés, j'irai immédiatement à la Cité Gu Yao pour rapporter tes actes au général de l'aile gauche. Je suis certain qu'il y trouvera un intérêt. »
 
 Le vieillard en robe blanche garda le silence un long moment. Il observa les environs d'un regard complexe, puis posa ses yeux sur les autres membres de la tribu. Voyant la terreur sur leurs visages, il prit une profonde inspiration et s'éleva vers la lisière de la formation.
 

@@ -34,9 +34,9 @@ Le roi des moustiques était plus féroce encore. En sortant, ses yeux froids fi
 
 Après une courte méditation silencieuse, Wang Lin agita la main droite et le roi des moustiques fut aspiré dans les restrictions de la grotte.
 
-« Avec suffisamment de cristaux d'origine, tout ira bien! » Wang Lin sortit une grande quantité d'âmes de bêtes qu'il avait rassemblées tout au long de sa route dans le Système Stellaire de la Mer des Nuages, ainsi que l'âme de la bête mutée qu'il avait cultivée sur le continent de Mo Luo. Il y injecta ensuite des dizaines de milliers de cristaux d'origine et scella le tout.
+« Avec suffisamment de cristaux d'origine, tout ira bien! » Wang Lin sortit une grande quantité d'âmes de bêtes qu'il avait rassemblées tout au long de sa route dans le Système Stellaire de la Mer Yun, ainsi que l'âme de la bête mutée qu'il avait cultivée sur le continent de Mo Luo. Il y injecta ensuite des dizaines de milliers de cristaux d'origine et scella le tout.
 
-« J'utiliserai les méthodes de la Secte des Cinq Poisons pour raffiner ces âmes de bêtes mutées, afin d'augmenter artificiellement la force de la bête moustique et qu'elle puisse se transformer en un roi des moustiques plus puissant. Ce n'est qu'ainsi qu'elle pourra commander l'immense essaim dans le Royaume Céleste du Vent! » Le sens divin de Wang Lin s'étendit dans la grotte. Il vit clairement la bête moustique pourpre se précipiter avec agressivité vers chaque âme de bête, les combattant et les dévorant.
+« J'utiliserai les méthodes de la Secte Wu Du pour raffiner ces âmes de bêtes mutées, afin d'augmenter artificiellement la force de la bête moustique et qu'elle puisse se transformer en un roi des moustiques plus puissant. Ce n'est qu'ainsi qu'elle pourra commander l'immense essaim dans le Royaume Céleste du Vent! » Le sens divin de Wang Lin s'étendit dans la grotte. Il vit clairement la bête moustique pourpre se précipiter avec agressivité vers chaque âme de bête, les combattant et les dévorant.
 
 Simultanément, grâce aux restrictions, les cristaux d'origine se transformaient en une énergie d'origine dense qui pénétrait le corps de la bête moustique.
 

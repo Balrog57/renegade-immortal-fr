@@ -54,7 +54,7 @@ L'expression de Wang Lin était complexe tandis qu'il regardait Wu Feng et médi
 
 « Juste de la chance. » L'Exalté Empyréen Hai Zi était très proche de Wang Lin, et son parfum vint jusqu'à lui. Wang Lin ne recula pas, mais resta immobile. Il se souvenait encore de ses paroles lorsque tout le monde s'était retourné contre lui.
 
-L'Exalté Empyréen Hai Zi regarda Wang Lin et dit doucement: « Très bien, ne parlons plus de cela. Te souviens-tu quand je t'ai parlé du Mont de l'Empereur? Allons voir les feuilles d'automne ensemble, d'accord? »
+L'Exalté Empyréen Hai Zi regarda Wang Lin et dit doucement: « Très bien, ne parlons plus de cela. Te souviens-tu quand je t'ai parlé du Mont Di? Allons voir les feuilles d'automne ensemble, d'accord? »
 
 Wang Lin hésita un instant et soupira en contemplant la beauté absolue qui se tenait devant lui.
 
@@ -68,7 +68,7 @@ Cependant, Wang Lin ne pouvait laisser cela arriver. Il ne voulait pas qu'elle f
 
 Le silence de Wang Lin fit soupirer Hai Zi intérieurement, mais elle sourit. Elle leva la main droite et tapota l'épaule de Wang Lin.
 
-« Toi, enfin... Je voulais juste t'inviter au Mont de l'Empereur pour te présenter quelques femmes de double culture. Humph, si tu ne veux pas venir, tant pis. J'irai trouver quelqu'un d'autre. »
+« Toi, enfin... Je voulais juste t'inviter au Mont Di pour te présenter quelques femmes de double culture. Humph, si tu ne veux pas venir, tant pis. J'irai trouver quelqu'un d'autre. »
 
 Wang Lin esquissa un sourire amer.
 

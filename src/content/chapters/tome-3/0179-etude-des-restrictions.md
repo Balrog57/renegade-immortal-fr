@@ -146,7 +146,7 @@ Le Chemin sans Retour n'était pour lui qu'un jeu d'enfant. S'il n'avait pas eu 
 
 Bien que la protection d'autrui ait ralenti sa progression, le résultat restait inchangé.
 
-Sa seule inquiétude concernait cette seconde épreuve: la fameuse Montagne des Restrictions. Elle portait ce nom car toute la montagne était couverte de restrictions, et plus on montait, plus elles devenaient complexes et puissantes.
+Sa seule inquiétude concernait cette seconde épreuve: la fameuse Montagne Jin. Elle portait ce nom car toute la montagne était couverte de restrictions, et plus on montait, plus elles devenaient complexes et puissantes.
 
 À l'époque, ils étaient arrivés à quatre en restant tout près des puissants d'alors, et n'avaient franchi l'épreuve que de justesse. Cependant, les pertes furent lourdes: la plupart furent forcés par ces puissants à tester la force des restrictions, et moururent sous leurs yeux.
 
@@ -168,7 +168,7 @@ Pendant ces mille ans, il avait dépensé une énergie mentale considérable à 
 
 Il avait également ajouté des restrictions supplémentaires par-dessus. Son objectif était le même que celui de Wang Lin.
 
-Cependant, les restrictions sur la Montagne des Restrictions devenaient progressivement plus complexes à mesure qu'il montait, ce qui ralentissait sa progression. À ce stade, il devait étudier longuement chaque restriction avant de faire un seul pas.
+Cependant, les restrictions sur la Montagne Jin devenaient progressivement plus complexes à mesure qu'il montait, ce qui ralentissait sa progression. À ce stade, il devait étudier longuement chaque restriction avant de faire un seul pas.
 
 Par exemple, ce nuage n'était pas là il y a mille ans, mais il l'était maintenant, ce qui l'avait surpris.
 

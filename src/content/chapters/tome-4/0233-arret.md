@@ -30,7 +30,7 @@ Au cours du mois nécessaire pour atteindre ce lieu, Wang Lin avait étudié en 
 
 Bien que le principe des anciens réseaux de transfert fût complexe, Wang Lin avait déjà quelques notions des formations et des réseaux de transfert. De plus, il ne cherchait pas à tout approfondir mais seulement à réparer; il parvint ainsi à trouver quelques pistes.
 
-Toutefois, ses seules connaissances ne lui permettaient pas de savoir s'il y parviendrait; trouver un spécialiste des anciens réseaux de transfert dans la Mer des Démons serait extrêmement difficile, à moins que le Seigneur Démon des Six Désirs ne revienne à la vie.
+Toutefois, ses seules connaissances ne lui permettaient pas de savoir s'il y parviendrait; trouver un spécialiste des anciens réseaux de transfert dans la Mer Xiu Mo serait extrêmement difficile, à moins que le Seigneur Démon des Six Désirs ne revienne à la vie.
 
 Wang Lin chercha pendant sept jours selon les indications de la carte avant de finalement découvrir un autre ancien réseau de transfert. Ce réseau se trouvait dans un canyon; des bêtes démoniaques rôdaient alentour, mais la bête moustique les élimina et l'endroit fut bientôt dégagé.
 
@@ -42,7 +42,7 @@ Un instant plus tard, Wang Lin retira certaines pièces du réseau. Après une b
 
 Une quinzaine de jours plus tard, Wang Lin avait déjà démonté trois réseaux de transfert, mais il avait le cœur lourd comme sous une grosse pierre. Sur les trois sites visités, deux étaient parfaitement intacts et, après un examen attentif, tous deux avaient manifestement été réparés récemment. Si un seul réseau avait été réparé, cela n'aurait pas été alarmant, mais plusieurs réseaux réparés signifiaient qu'un événement majeur se tramait.
 
-Wang Lin pressentait que quelque chose d'important allait se produire dans la Mer des Démons. Vraisemblablement, si le réseau dont il avait besoin n'avait pas été réparé, c'était soit parce qu'il était recouvert de plantes, soit parce qu'il ne menait pas au bon endroit, ou encore parce qu'il n'avait pas été découvert.
+Wang Lin pressentait que quelque chose d'important allait se produire dans la Mer Xiu Mo. Vraisemblablement, si le réseau dont il avait besoin n'avait pas été réparé, c'était soit parce qu'il était recouvert de plantes, soit parce qu'il ne menait pas au bon endroit, ou encore parce qu'il n'avait pas été découvert.
 
 Après avoir prélevé les pièces nécessaires sur les réseaux intacts, il les détruisait systématiquement. Ce n'était qu'ainsi qu'il parvenait à apaiser son anxiété.
 
@@ -98,17 +98,17 @@ Il n'hésita pas, mais au moment où il s'apprêtait à le démonter, l'appareil
 
 Au même instant où la lumière jaillit, Wang Lin saisit les composants du coin nord-est. Son énergie spirituelle afflua pour arracher de force cette pièce. Alors qu'il l'extrayait, un rugissement colérique retentit parmi les silhouettes: « Arrête! »
 
-Loin de s'arrêter, Wang Lin accéléra son geste et retira la pièce. Il leva ensuite la tête et fixa froidement les silhouettes alors qu'elles disparaissaient lentement dans la lumière. S'il s'était arrêté, il aurait été tué à l'instant même de leur arrivée. Puisque ce groupe osait envahir la Mer des Démons, des cultivateurs en étape de Formation de l'Âme devaient faire partie du cortège.
+Loin de s'arrêter, Wang Lin accéléra son geste et retira la pièce. Il leva ensuite la tête et fixa froidement les silhouettes alors qu'elles disparaissaient lentement dans la lumière. S'il s'était arrêté, il aurait été tué à l'instant même de leur arrivée. Puisque ce groupe osait envahir la Mer Xiu Mo, des cultivateurs en étape de Formation de l'Âme devaient faire partie du cortège.
 
-À cet instant précis, presque tous les anciens réseaux de la Mer des Démons s'activèrent simultanément. Tous n'étaient pas gardés par un homme en noir — seuls les sites stratégiques l'étaient — mais dès leur arrivée dans la Mer des Démons, ils libérèrent une intention meurtrière monstrueuse.
+À cet instant précis, presque tous les anciens réseaux de la Mer Xiu Mo s'activèrent simultanément. Tous n'étaient pas gardés par un homme en noir — seuls les sites stratégiques l'étaient — mais dès leur arrivée dans la Mer Xiu Mo, ils libérèrent une intention meurtrière monstrueuse.
 
 Quant au réseau où se trouvait Wang Lin, il y avait bien un homme en noir, mais celui-ci avait déjà été éliminé par lui.
 
-La Mer des Démons fut plongée dans un chaos total. La tension accumulée finit par exploser: quatre pays de culture de rang 4 s'étaient alliés pour attaquer la Mer des Démons, envoyant des dizaines de milliers de cultivateurs via les anciens réseaux. Une bataille titanesque venait de commencer. Les 999 cités de la Mer des Démons devinrent instantanément des champs de bataille sanglants.
+La Mer Xiu Mo fut plongée dans un chaos total. La tension accumulée finit par exploser: quatre pays de culture de rang 4 s'étaient alliés pour attaquer la Mer Xiu Mo, envoyant des dizaines de milliers de cultivateurs via les anciens réseaux. Une bataille titanesque venait de commencer. Les 999 cités de la Mer Xiu Mo devinrent instantanément des champs de bataille sanglants.
 
-Wang Lin avait pressenti l'événement dès qu'il avait vu les réseaux intacts et les gardes en noir. La vue des silhouettes dans le réseau n'avait fait que confirmer ses soupçons. Il comprit qu'il devait quitter la Mer des Démons au plus vite. En s'élançant, il toucha le sac de rangement contenant le dernier matériau de réparation et prit une profonde inspiration.
+Wang Lin avait pressenti l'événement dès qu'il avait vu les réseaux intacts et les gardes en noir. La vue des silhouettes dans le réseau n'avait fait que confirmer ses soupçons. Il comprit qu'il devait quitter la Mer Xiu Mo au plus vite. En s'élançant, il toucha le sac de rangement contenant le dernier matériau de réparation et prit une profonde inspiration.
 
-Quelques jours plus tard, Wang Lin revint au réseau de transfert pour y réinsérer la pièce du coin nord-est. Il jeta un dernier regard sur la Mer des Démons et inséra la pierre spirituelle de qualité supérieure dans le logement.
+Quelques jours plus tard, Wang Lin revint au réseau de transfert pour y réinsérer la pièce du coin nord-est. Il jeta un dernier regard sur la Mer Xiu Mo et inséra la pierre spirituelle de qualité supérieure dans le logement.
 
 Des cercles de lumière apparurent. Au moment où le réseau s'ouvrit, Wang Lin lança un sceau, provoquant l'explosion vers l'extérieur de toutes les restrictions du drapeau. Le drapeau balaya rapidement la zone, laissant le sol noyé de liquide rouge.
 

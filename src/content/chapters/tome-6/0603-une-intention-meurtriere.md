@@ -16,17 +16,17 @@ Le cœur de Wang Lin était empreint d'une folie féroce, et l'énergie spiritue
 
 Ses yeux étaient injectés de sang alors qu'il faisait un pas dans les airs. Des échos sourds résonnaient, comme si ses foulées brisaient le ciel lui-même. Il progressait rapidement, fendant l'azur de ses grandes enjambées.
 
-Il était encore loin de l'ancien champ de bataille. Ses yeux rougis par le sang alors qu'il traversait le ciel attiraient l'attention de nombreuses personnes au sein de la Terre des Esprits Démoniaques.
+Il était encore loin de l'ancien champ de bataille. Ses yeux rougis par le sang alors qu'il traversait le ciel attiraient l'attention de nombreuses personnes au sein de la Terre Yao Ling.
 
-Parmi elles se trouvaient des cultivateurs et des généraux démons du Pays du Démon de Feu. Tant qu'ils ne provoquaient pas Wang Lin, il les ignorait, mais dès qu'ils manifestaient la moindre intention meurtrière à son égard, il pouvait immédiatement les détecter en raison de son état actuel.
+Parmi elles se trouvaient des cultivateurs et des généraux démons du Pays Huo Yao. Tant qu'ils ne provoquaient pas Wang Lin, il les ignorait, mais dès qu'ils manifestaient la moindre intention meurtrière à son égard, il pouvait immédiatement les détecter en raison de son état actuel.
 
 Quiconque nourrirait une intention meurtrière serait tué par Wang Lin sans la moindre hésitation!
 
 Il existait une planète privée, loin de la planète Tian Yun, nommée planète Mo. Cette planète appartenait à un être appelé l'Ancêtre Mo. Sa culture avait atteint le stade de l'Yin Illusoire de la phase Yin et Yang.
 
-Cette fois-ci, avec son niveau de culture actuel, il avait dépassé le niveau autorisé pour entrer dans la Terre des Esprits Démoniaques. Cependant, parmi ses trois disciples, hormis le disciple principal, les deux autres étaient entrés.
+Cette fois-ci, avec son niveau de culture actuel, il avait dépassé le niveau autorisé pour entrer dans la Terre Yao Ling. Cependant, parmi ses trois disciples, hormis le disciple principal, les deux autres étaient entrés.
 
-À cet instant, deux jeunes hommes vêtus de robes grises volaient à travers le ciel du Pays du Démon de Feu. Il s'agissait des deux disciples directs de l'Ancêtre Mo!
+À cet instant, deux jeunes hommes vêtus de robes grises volaient à travers le ciel du Pays Huo Yao. Il s'agissait des deux disciples directs de l'Ancêtre Mo!
 
 En plein vol, l'un d'eux eut soudain un éclair de lucidité. Il scruta l'horizon et sentit clairement qu'une bête primale émettant une intention meurtrière inimaginable se dirigeait vers eux.
 
@@ -68,15 +68,15 @@ Tandis que Wang Lin volait, la terre continuait de se dessécher sur son passage
 
 Il semblait surgir des enfers, dévorant toute forme de vie!
 
-Wang Lin volait presque en ligne droite à travers le Pays du Démon de Feu, et tout ce qui croisait sa trajectoire se flétrissait!
+Wang Lin volait presque en ligne droite à travers le Pays Huo Yao, et tout ce qui croisait sa trajectoire se flétrissait!
 
 Une traînée de mort immense restait derrière lui. C'était une humiliation et une provocation sans précédent pour un pays. Des dizaines de généraux démons furent dépêchés pour encercler et réprimer ce cultivateur diabolique!
 
-Le point de jonction de l'encerclement se situait près de la frontière entre le Pays du Démon de Feu et le Pays du Démon Céleste, en un lieu nommé la Montagne des Dix Mille Démons!
+Le point de jonction de l'encerclement se situait près de la frontière entre le Pays Huo Yao et le Pays Tian Yao, en un lieu nommé la Montagne Wan Yao!
 
-Un brouillard épais et éternel recouvrait la Montagne des Dix Mille Démons. Deux cités se trouvaient à proximité de ces montagnes, l'une de chaque côté: la Cité du Ciel Paisible du Pays du Démon de Feu, et la Cité du Feu Fondant du Pays du Démon Céleste.
+Un brouillard épais et éternel recouvrait la Montagne Wan Yao. Deux cités se trouvaient à proximité de ces montagnes, l'une de chaque côté: la Cité Tian Yi du Pays Huo Yao, et la Cité Rong Huo du Pays Tian Yao.
 
-À cet instant, 100 000 soldats démons étaient en position dans la Cité du Ciel Paisible, tandis que plus de dix généraux démons scrutaient l'horizon.
+À cet instant, 100 000 soldats démons étaient en position dans la Cité Tian Yi, tandis que plus de dix généraux démons scrutaient l'horizon.
 
 Parmi les généraux, un homme se distinguait par son rang. C'était un homme d'âge moyen au visage sombre.
 
@@ -86,7 +86,7 @@ Un autre général démon rit: « C'est vrai. Avec le Vice-Commandant en Chef ic
 
 L'homme d'âge moyen répondit calmement: « Que vous tous terminiez cette bataille rapidement. Une fois ce cultivateur éliminé, je partirai. » Malgré sa sévérité, une pointe de fierté brillait dans ses yeux. En tant que vice-commandant en chef, son statut était très élevé, et il n'aurait normalement pas quitté la capitale pour un simple cultivateur.
 
-Il devait initialement se rendre au Pays du Démon Céleste pour une affaire personnelle, mais à son arrivée, il avait reçu l'ordre de l'Empereur Démon de rester quelques jours pour mener les généraux démons dans une lutte contre un cultivateur.
+Il devait initialement se rendre au Pays Tian Yao pour une affaire personnelle, mais à son arrivée, il avait reçu l'ordre de l'Empereur Démon de rester quelques jours pour mener les généraux démons dans une lutte contre un cultivateur.
 
 Il subissait cet arrangement avec résignation. À ses yeux, il était inutile d'envoyer autant de troupes pour abattre un seul homme. C'était trop fastidieux.
 
@@ -96,7 +96,7 @@ Il réfléchit un instant et demanda: « Êtes-vous certains que cet individu pa
 
 « Vice-Commandant en Chef, une chose me trouble. Sur les dix hommes que nous avons envoyés, seuls trois sont morts au lieu de tous être éliminés. Il semble que ce cultivateur ait une manière bien particulière de tuer. »
 
-Alors que les généraux discutaient, l'expression de l'homme d'âge moyen changea. Il regarda au loin avec impatience: « Un simple cultivateur Ascendant, et en plus gravement blessé, ose faire preuve d'une telle audace dans mon Pays du Démon de Feu? Que vous tous finissiez ce combat sans délai! »
+Alors que les généraux discutaient, l'expression de l'homme d'âge moyen changea. Il regarda au loin avec impatience: « Un simple cultivateur Ascendant, et en plus gravement blessé, ose faire preuve d'une telle audace dans mon Pays Huo Yao? Que vous tous finissiez ce combat sans délai! »
 
 Les dix généraux démons furent surpris et dirigèrent leurs regards glacials vers l'horizon. Un homme portant une armure bleue fit quelques pas vers le vice-commandant et déclara: « Seigneur Vice-Commandant en Chef, votre subordonné, Yin Dong, est prêt à aller éliminer cet individu! »
 

@@ -10,7 +10,7 @@ Cinq respirations!
 
 Le temps nécessaire pour prendre cinq respirations pourrait être considéré comme un instant, mais c'était à peine plus lent qu'un éclair traversant le ciel!
 
-Que ce soit le Patriarche du Clan du Dragon Blindé, le vieil homme du Clan des Moineaux de Feu ou Maître Simo, aucun d'entre eux ne croyait qu'il fût possible de clore le combat en seulement cinq respirations!
+Que ce soit le Patriarche du Clan Long Jia, le vieil homme du Clan Huo Que ou Maître Simo, aucun d'entre eux ne croyait qu'il fût possible de clore le combat en seulement cinq respirations!
 
 Après tout, l'ennemi auquel Wang Lin faisait face était Maître Simo!
 
@@ -62,13 +62,13 @@ Ces trois éclairs jaillirent avec une puissance colossale, faisant briller le t
 
 En un éclair, d'innombrables serpents argentés apparurent dans le ciel. Ils remplirent l'espace et convergèrent vers le tatouage de tonnerre.
 
-Ce tatouage de tonnerre était phénoménal; dès qu'il apparut, Wang Lin le projeta en avant. Il lança son attaque sur Maître Simo, tout comme il avait attaqué la Porte du Vide!
+Ce tatouage de tonnerre était phénoménal; dès qu'il apparut, Wang Lin le projeta en avant. Il lança son attaque sur Maître Simo, tout comme il avait attaqué la Porte Kong!
 
 Le tatouage de tonnerre envahit le ciel et chargea vers Maître Simo!
 
-L'expression de Maître Simo devint grave. Tout au long de ce combat, c'était le sort de tonnerre de Wang Lin qu'il redoutait le plus. Bien qu'il n'ait jamais vu cette technique de tonnerre ni affronté Wang Lin, la seule scène aperçue sur la planète de culture du Clan Zhenyan, où Wang Lin avait frappé la Porte du Vide, suffisait à lui donner la chair de poule.
+L'expression de Maître Simo devint grave. Tout au long de ce combat, c'était le sort de tonnerre de Wang Lin qu'il redoutait le plus. Bien qu'il n'ait jamais vu cette technique de tonnerre ni affronté Wang Lin, la seule scène aperçue sur la planète de culture du Clan Zhenyan, où Wang Lin avait frappé la Porte Kong, suffisait à lui donner la chair de poule.
 
-À cet instant, en voyant le tatouage de tonnerre, il se remémora la scène où Wang Lin avait tenté de briser la Porte du Vide. Il agita la main et la Restriction Temporelle l'enveloppa.
+À cet instant, en voyant le tatouage de tonnerre, il se remémora la scène où Wang Lin avait tenté de briser la Porte Kong. Il agita la main et la Restriction Temporelle l'enveloppa.
 
 « Voyons si votre tonnerre est plus fort que mes Restrictions Temporelles! »
 
@@ -118,4 +118,4 @@ Alors que l'avatar de Maître Simo était repoussé par l'explosion, Wang Lin fi
 
 Tout cela semble long, mais en réalité, tout se produisit en un instant!
 
-« Pas bon! » Le Patriarche du Clan du Dragon Blindé suivait attentivement la bataille. En voyant cela, son expression changea radicalement!
+« Pas bon! » Le Patriarche du Clan Long Jia suivait attentivement la bataille. En voyant cela, son expression changea radicalement!

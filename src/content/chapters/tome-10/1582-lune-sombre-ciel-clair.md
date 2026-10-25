@@ -26,7 +26,7 @@ Des grondements de tonnerre résonnèrent lorsque la femme porta son coup. La po
 
 « Concubine Impériale Céleste! » Dans un fracas, Wang Lin percuta la surface de l'eau mais ne coula pas. Il endura la douleur tandis que sa main droite frappait la surface, lui permettant de rebondir vers le haut.
 
-Il tenta d'entrer dans la fissure de la Mer des Nuages en utilisant le jade que la femme mystérieuse lui avait donné, mais cela fut sans effet. Il essaya d'invoquer la Bête des Limbes, mais ce lieu scellé recelait une force qu'il ne pouvait briser; il ne parvenait pas à ressentir la créature.
+Il tenta d'entrer dans la fissure de la Mer Yun en utilisant le jade que la femme mystérieuse lui avait donné, mais cela fut sans effet. Il essaya d'invoquer la Bête des Limbes, mais ce lieu scellé recelait une force qu'il ne pouvait briser; il ne parvenait pas à ressentir la créature.
 
 « Tu n'as aucune voie de survie, tu ne peux t'échapper! Mais si tu te soumets, si tu t'agenouilles et me supplies, je pourrais peut-être t'accorder une chance de vivre », dit doucement la femme en sortant de la glace où se trouvait l'homme en blanc pour marcher vers Wang Lin.
 
@@ -64,7 +64,7 @@ Cependant, juste au moment où elle émergeait, Wang Lin poussa un rugissement v
 
 Par ce geste, une lune éclatante apparut sur son visage! Dès l'apparition de la lune, l'expression de la femme changea et ses pas s'arrêtèrent pour la première fois.
 
-« Secte de la Lune Sombre, le premier style... Oui, avant que Bai Fan ne soit recueilli par cette vieille chose, il était un traître de la Secte de la Lune Sombre... »
+« Secte Yin Yue, le premier style... Oui, avant que Bai Fan ne soit recueilli par cette vieille chose, il était un traître de la Secte Yin Yue... »
 
 La lune sombre sur le visage de la femme se condensa rapidement et des fissures apparurent, comme si elle cherchait à la défigurer. Les fissures étaient choquantes et du sang frais s'en écoulait.
 
@@ -72,7 +72,7 @@ La femme laissa échapper un gémissement et ses yeux devinrent extrêmement fro
 
 « Si tu connaissais le deuxième style, *Lune Sombre sans Pluie*, et le troisième, *Vent Froid de la Lune Sombre*, tu aurais peut-être pu échapper à la mort aujourd'hui. Cependant, avec seulement le premier style, tant que je te tue, je peux l'annuler! » La femme endura la douleur intense qui lui lacérait le visage et chargea vers Wang Lin.
 
-Elle connaissait les sorts de la Secte de la Lune Sombre. Leurs techniques étaient extrêmement vicieuses; elles ne tuaient pas instantanément, mais infligeaient une douleur croissante. Plus elles duraient, plus il était difficile de les dissiper.
+Elle connaissait les sorts de la Secte Yin Yue. Leurs techniques étaient extrêmement vicieuses; elles ne tuaient pas instantanément, mais infligeaient une douleur croissante. Plus elles duraient, plus il était difficile de les dissiper.
 
 À cet instant, elle fondit sur Wang Lin et le rejoignit en un éclair. Sa main prit la forme d'une griffe et s'abattit impitoyablement sur lui!
 

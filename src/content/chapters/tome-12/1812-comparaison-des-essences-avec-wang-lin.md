@@ -22,7 +22,7 @@ Tout cela rendait impossible pour Du Qing de juger l'identité et l'origine de W
 
 « Mais si c'est le second cas... » Les pupilles de Du Qing se rétractèrent.
 
-« Si c'est le second cas, cet homme est intouchable! Le fait que la Secte Dong Lin et la Secte Mondiale lui aient cédé ces sorts est déjà prodigieux. Mais faire en sorte que Song Yun Dao de la Secte des Trois Dao, nommé par l'Empereur Céleste, transmette l'Ombrelle Brûlante du Royaume... C'est... C'est tout simplement terrifiant... »
+« Si c'est le second cas, cet homme est intouchable! Le fait que la Secte Dong Lin et la Secte Mondiale lui aient cédé ces sorts est déjà prodigieux. Mais faire en sorte que Song Yun Dao de la Secte San Dao, nommé par l'Empereur Céleste, transmette l'Ombrelle Brûlante du Royaume... C'est... C'est tout simplement terrifiant... »
 
 « Quel genre de lignée peut permettre cela... » Du Qing songea à quelque chose, et son visage devint encore plus pâle.
 
@@ -62,7 +62,7 @@ Dès que la lune se manifesta, Wang Lin désigna Du Qing qui approchait. Une mar
 
 « Que pensez-vous de ce sort?! » Wang Lin agita sa manche, debout sur la tête du dragon de feu, et surplomba Du Qing dont le visage était devenu livide sous le choc!
 
-« Sombre... La Secte de la Lune Sombre... Le premier sort de l'Art de la Lune Sombre... » Un tonnerre éclata dans l'esprit de Du Qing. La Secte de la Lune Sombre était l'une des neuf sectes et treize factions du Continent de l'Est!
+« Sombre... La Secte Yin Yue... Le premier sort de l'Art de la Lune Sombre... » Un tonnerre éclata dans l'esprit de Du Qing. La Secte Yin Yue était l'une des neuf sectes et treize factions du Continent de l'Est!
 
 Du Qing leva soudain la tête, les yeux injectés de sang. Il avait été ébranlé par la démonstration de sorts de Wang Lin, mais ayant traqué ce dernier depuis si longtemps, il n'avait plus la face pour battre en retraite!
 
@@ -82,7 +82,7 @@ Au cœur de cette brume résidait une aura dense d'essence terrestre. L'aura se 
 
 « Essence du Poids! » Du Qing leva les yeux vers le ciel dans un rugissement. S'il avait pu devenir un cultivateur du Vide Arcanique et traverser plusieurs Tribulations Arcanes, outre son corps, c'était grâce à son essence du poids.
 
-La raison pour laquelle il était protégé par la Secte de la Grande Âme était également liée à cette essence!
+La raison pour laquelle il était protégé par la Secte Da Hun était également liée à cette essence!
 
 L'essence du poids est la compréhension de toute masse dans le monde, d'un simple grain de sable jusqu'à un continent entier. Lorsqu'elle s'étend, elle englobe la maîtrise des variations de masse, lui permettant de modifier le poids d'une simple pensée.
 

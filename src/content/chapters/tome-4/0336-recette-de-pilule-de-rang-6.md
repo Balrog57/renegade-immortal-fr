@@ -16,11 +16,11 @@ Toutefois, en raison de la personnalité de Wang Lin, même s'il tenait absolume
 
 Wang Lin réfléchit un instant. Il frappa son sac de rangement et une sculpture en bois apparut dans sa main. C'était l'une des statues défectueuses qu'il avait fabriquées, contenant le domaine du temps. Elle portait les traces du domaine d'un cultivateur de la Formation de l'Âme, mais elle contenait la puissance d'un cultivateur au stade avancé de l'Âme Naissante.
 
-Elle contenait également plusieurs veines sanguines; cette sculpture en bois était donc semblable à une marionnette, sans limite quant au nombre de fois qu'elle pouvait être utilisée. Un tel trésor serait extrêmement précieux pour les cultivateurs de la Mer des Démons.
+Elle contenait également plusieurs veines sanguines; cette sculpture en bois était donc semblable à une marionnette, sans limite quant au nombre de fois qu'elle pouvait être utilisée. Un tel trésor serait extrêmement précieux pour les cultivateurs de la Mer Xiu Mo.
 
 Les yeux du vieil homme aux cheveux blancs s'illuminèrent lorsqu'il jeta un coup d'œil à la sculpture. Il fut légèrement ému. Ce qui l'intéressait n'était pas l'objet en lui-même, mais la méthode utilisée pour sa fabrication.
 
-Le Pavillon de Raffinage des Trésors était célèbre pour son expertise dans le raffinage d'objets précieux. Ce vieil homme étant un maître en la matière, il fut capable de remarquer instantanément le caractère extraordinaire de la sculpture.
+Le Pavillon Lian Qi était célèbre pour son expertise dans le raffinage d'objets précieux. Ce vieil homme étant un maître en la matière, il fut capable de remarquer instantanément le caractère extraordinaire de la sculpture.
 
 Qu'il s'agisse du faible domaine d'un cultivateur de la Formation de l'Âme ou des veines sanguines à l'intérieur, les deux étaient d'une complexité extrême. Cependant, les veines sanguines lui semblaient étrangement familières pour une raison quelconque.
 
@@ -30,7 +30,7 @@ Xu Luo, qui surveillait attentivement le troisième étage, l'attrapa immédiate
 
 Le vieil homme aux cheveux blancs réfléchit un instant, puis son regard devint soudainement sérieux. Il interrogea Wang Lin: « Camarade cultivateur, les veines sanguines à l'intérieur de cette sculpture ne seraient-elles pas issues de la technique des marionnettes de glace de Xue Yu? »
 
-Wang Lin regarda le vieil homme. Il fut surpris qu'il puisse la reconnaître. Cependant, après réflexion, ce vieil homme devait avoir vécu très longtemps et, en tant que chef du Pavillon de Raffinage des Trésors, il avait dû voir énormément de choses.
+Wang Lin regarda le vieil homme. Il fut surpris qu'il puisse la reconnaître. Cependant, après réflexion, ce vieil homme devait avoir vécu très longtemps et, en tant que chef du Pavillon Lian Qi, il avait dû voir énormément de choses.
 
 Wang Lin hocha la tête. À cet instant précis, les évaluateurs relevèrent la tête. L'un d'eux déclara: « Je n'ai jamais rien vu de tel auparavant, mais nous sommes certains que sa puissance équivaut à celle d'un cultivateur au stade avancé de l'Âme Naissante. Nous estimons sa valeur à 5 000 pierres spirituelles de haute qualité. »
 
@@ -44,7 +44,7 @@ Ces 5 000 pierres spirituelles ne suffiraient même pas pour la recette de pilul
 
 Wang Lin resta calme et ne dit mot. Au lieu de cela, il regarda vers la porte de la pièce. Peu après, une très belle jeune fille monta du deuxième étage. Elle salua Wang Lin, déposa un jade violet et repartit.
 
-Le vieil homme aux cheveux blancs dit: « Camarade cultivateur, je vais acheter votre marionnette. Ce jade violet peut être échangé contre 20 000 pierres spirituelles de haute qualité dans n'importe quel Pavillon de Raffinage des Trésors. »
+Le vieil homme aux cheveux blancs dit: « Camarade cultivateur, je vais acheter votre marionnette. Ce jade violet peut être échangé contre 20 000 pierres spirituelles de haute qualité dans n'importe quel Pavillon Lian Qi. »
 
 Wang Lin sourit. Sans même regarder le jade, il s'écria: « J'offre 20 000 pierres spirituelles de haute qualité! »
 
@@ -68,7 +68,7 @@ Wang Lin sourit. « Attends-moi ici. Je dois obtenir cette recette! »
 
 Li Muwan hésita un instant avant d'acquiescer doucement. Wang Lin posa son regard sur Lu Fei et Tie Yan et ordonna: « Restez ici et surveillez-la. » Les deux acquiescèrent immédiatement.
 
-Le corps de Wang Lin disparut. Lorsqu'il réapparut, il se trouvait déjà à l'extérieur de la Cité des Rebelles Démoniaques. Il déploya son Sens Divin, puis son corps s'évanouit à nouveau. Cette fois, il apparut sur une montagne située à 1 500 kilomètres de là. Il y vit une jeune fille vêtue d'une robe verte. Son visage était dissimulé par un voile blanc. À ses côtés se tenait un vieil homme.
+Le corps de Wang Lin disparut. Lorsqu'il réapparut, il se trouvait déjà à l'extérieur de la Cité Mo Ni. Il déploya son Sens Divin, puis son corps s'évanouit à nouveau. Cette fois, il apparut sur une montagne située à 1 500 kilomètres de là. Il y vit une jeune fille vêtue d'une robe verte. Son visage était dissimulé par un voile blanc. À ses côtés se tenait un vieil homme.
 
 Le regard du vieil homme restait calme; il ne semblait dégager aucune énergie spirituelle. Lorsque Wang Lin apparut, les yeux de l'homme s'illuminèrent.
 
@@ -78,7 +78,7 @@ Le regard du vieil homme restait calme; il ne semblait dégager aucune énergie 
 
 Les yeux de la jeune fille en robe verte pétillèrent. Elle répliqua: « Le Senior est très perspicace. Cette petite junior vous admire. »
 
-Cette jeune fille était présente au troisième étage; elle savait donc tout ce qui s'était passé. Elle savait que Wang Lin était un cultivateur de la Formation de l'Âme, et après l'avoir vu offrir 20 000 pierres spirituelles, elle avait augmenté le prix de 10 000 supplémentaires. Il y avait forcément une raison à cela. De plus, après avoir quitté le Pavillon de Raffinage des Trésors, ils n'étaient pas partis immédiatement mais l'avaient attendu ici. Wang Lin comprit instantanément son stratagème.
+Cette jeune fille était présente au troisième étage; elle savait donc tout ce qui s'était passé. Elle savait que Wang Lin était un cultivateur de la Formation de l'Âme, et après l'avoir vu offrir 20 000 pierres spirituelles, elle avait augmenté le prix de 10 000 supplémentaires. Il y avait forcément une raison à cela. De plus, après avoir quitté le Pavillon Lian Qi, ils n'étaient pas partis immédiatement mais l'avaient attendu ici. Wang Lin comprit instantanément son stratagème.
 
 « Ne perdez pas de temps en futilités », trancha la voix froide de Wang Lin.
 
@@ -106,7 +106,7 @@ Wang Lin répondit calmement: « Je n'ai pas le temps! » Il sortit le jade viol
 
 Sur ces mots, il disparut dans un rayon de lumière arc-en-ciel.
 
-La jeune fille regarda l'endroit où Wang Lin avait disparu avec un air de désespoir. Elle avait initialement perdu espoir, mais lorsqu'elle avait aperçu Wang Lin au troisième étage, le vieil homme à ses côtés lui avait assuré qu'il était un cultivateur de la Formation de l'Âme. Cela avait ravivé l'espoir dans son cœur. Puis, en voyant le vieil homme du Pavillon de Raffinage des Trésors, elle s'était sentie encore plus confiante. C'était pour cela qu'elle avait acheté la recette: son but était d'attirer Wang Lin.
+La jeune fille regarda l'endroit où Wang Lin avait disparu avec un air de désespoir. Elle avait initialement perdu espoir, mais lorsqu'elle avait aperçu Wang Lin au troisième étage, le vieil homme à ses côtés lui avait assuré qu'il était un cultivateur de la Formation de l'Âme. Cela avait ravivé l'espoir dans son cœur. Puis, en voyant le vieil homme du Pavillon Lian Qi, elle s'était sentie encore plus confiante. C'était pour cela qu'elle avait acheté la recette: son but était d'attirer Wang Lin.
 
 Wang Lin n'avait effectivement pas le temps. La recette concernait la pilule de rang 6 "Retour à l'Origine", une pilule que même les cultivateurs des pays de rang 1 ou 2 pouvaient raffiner. Cependant, ceux qu'ils produisaient n'étaient que des pilules de rang 1 ou 2.
 

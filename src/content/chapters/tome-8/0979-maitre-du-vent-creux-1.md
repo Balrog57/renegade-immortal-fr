@@ -20,7 +20,7 @@ Da Tou demanda respectueusement: « Maître, puis-je les tuer? »
 
 L'expression du vieil homme devint sombre alors qu'il fixait Lei Ji, qui se rapprochait de plus en plus. Ses yeux trahissaient une lueur étrange tandis qu'il observait attentivement Lei Ji, et la cupidité s'empara de son cœur.
 
-« Une monture du Clan des Démons Géants est effectivement un atout précieux. Que Wang Lin rencontre ce vieil homme est sa perte! Ce garde à grosse tête est un cultivateur au stade Scruteur du Nirvana... Et cette marionnette possède aussi une certaine force... Bien que ce Wang Lin puisse combattre Ling Tianhou, ce n'était dû qu'à la puissance de son trésor. Qui n'a pas de trésors?! »
+« Une monture du Clan Ju Mo est effectivement un atout précieux. Que Wang Lin rencontre ce vieil homme est sa perte! Ce garde à grosse tête est un cultivateur au stade Scruteur du Nirvana... Et cette marionnette possède aussi une certaine force... Bien que ce Wang Lin puisse combattre Ling Tianhou, ce n'était dû qu'à la puissance de son trésor. Qui n'a pas de trésors?! »
 
 Da Tou fit un pas et arriva devant les sept hommes en noir. Un sourire étira ses lèvres alors que sa main droite se tendait vers l'un d'eux!
 
@@ -84,13 +84,13 @@ Le visage de ce dernier était livide. Même à cet instant, il ne pouvait croir
 
 Cependant, il ressentait désormais de plein fouet l'aura puissante qui émanait du corps de Wang Lin!
 
-Une lueur meurtrière traversa les yeux du vieil homme. Il avait toujours été un être impitoyable, et l'intention de tuer l'avait saisi dès le premier regard sur Wang Lin. Cette intention naissait de la cupidité qui rongeait son cœur. Non seulement il convoitait la monture du Clan des Démons Géants, mais il était encore plus avide de cette clé de grotte céleste!
+Une lueur meurtrière traversa les yeux du vieil homme. Il avait toujours été un être impitoyable, et l'intention de tuer l'avait saisi dès le premier regard sur Wang Lin. Cette intention naissait de la cupidité qui rongeait son cœur. Non seulement il convoitait la monture du Clan Ju Mo, mais il était encore plus avide de cette clé de grotte céleste!
 
-« Si je le tue, je pourrai obtenir la clé de la grotte céleste. Cela m'apportera d'immenses bénéfices lors du voyage vers la Terre des Esprits Démoniaques! » Le vieil homme se lécha les lèvres, puis pointa son corps à plusieurs reprises.
+« Si je le tue, je pourrai obtenir la clé de la grotte céleste. Cela m'apportera d'immenses bénéfices lors du voyage vers la Terre Yao Ling! » Le vieil homme se lécha les lèvres, puis pointa son corps à plusieurs reprises.
 
 À chaque geste, son corps tremblait. En continuant ainsi, il recula tout en arborant une expression féroce.
 
-Le vieil homme projeta impitoyablement sa main vers l'avant en criant: « Wang Lin, si tu es intelligent, remets-moi la clé de la grotte et la monture du Clan des Démons Géants, et je te laisserai la vie sauve. Sinon, meurs! »
+Le vieil homme projeta impitoyablement sa main vers l'avant en criant: « Wang Lin, si tu es intelligent, remets-moi la clé de la grotte et la monture du Clan Ju Mo, et je te laisserai la vie sauve. Sinon, meurs! »
 
 Son corps commença à bouger de manière singulière. Sa silhouette, autrefois grasse, commença à s'amincir.
 

@@ -16,15 +16,15 @@ Un vieil homme se tenait respectueusement derrière lui, accompagnant l'homme d'
 
 Le vieil homme dit doucement: « Maître de Secte, à la vitesse actuelle du tigre, nous arriverons sur le continent de Mo Luo dans une journée. »
 
-Ces personnes étaient les cultivateurs de la Secte du Dao Pourpre. Normalement, leur voyage n'aurait pas dû être aussi long, mais en raison de l'affaire du jade et de la recette qui avait provoqué l'invasion de la région de rang 5, ils avaient dû retarder leur arrivée sur le continent de Mo Luo.
+Ces personnes étaient les cultivateurs de la Secte Zi Dao. Normalement, leur voyage n'aurait pas dû être aussi long, mais en raison de l'affaire du jade et de la recette qui avait provoqué l'invasion de la région de rang 5, ils avaient dû retarder leur arrivée sur le continent de Mo Luo.
 
-Après avoir réglé toutes les affaires et coopéré avec les sectes de rang 6, la Secte du Dao Pourpre avait enfin envoyé ses membres vers le continent de Mo Luo.
+Après avoir réglé toutes les affaires et coopéré avec les sectes de rang 6, la Secte Zi Dao avait enfin envoyé ses membres vers le continent de Mo Luo.
 
 Le regard de l'homme d'âge moyen se posa sur le brouillard stellaire devant lui, comme plongé dans une profonde réflexion. Après un long moment, il hocha la tête et dit calmement: « Il y aura enfin une réponse à ce qui doit être tranché. »
 
-Le vieil homme fut surpris et ne comprit pas le sens des paroles de l'honorable Maître de Secte. À ses yeux, il ne s'agissait que d'un simple voyage vers la Secte de l'Origine; quelle réponse pouvait-on bien obtenir?
+Le vieil homme fut surpris et ne comprit pas le sens des paroles de l'honorable Maître de Secte. À ses yeux, il ne s'agissait que d'un simple voyage vers la Secte Gui Yuan; quelle réponse pouvait-on bien obtenir?
 
-« Maître de Secte... » Le vieil homme s'apprêta à parler, mais l'homme d'âge moyen secoua la tête et lui dit: « Tu ne comprends pas. Le chaos va surgir, la Mer des Nuages ne sera plus calme. »
+« Maître de Secte... » Le vieil homme s'apprêta à parler, mais l'homme d'âge moyen secoua la tête et lui dit: « Tu ne comprends pas. Le chaos va surgir, la Mer Yun ne sera plus calme. »
 
 Le vieil homme réfléchit en silence.
 
@@ -32,21 +32,21 @@ Le vieil homme réfléchit en silence.
 
 Le vieil homme murmura: « Cette recette et ce jade valent bien trop cher. Il était inévitable que les gens soient tentés. »
 
-« Cette recette est un objet funeste. La première fois qu'elle est apparue, elle a causé une calamité dans la Mer des Nuages. Aujourd'hui, c'est sa seconde apparition... Je ne sais simplement pas qui l'a emportée. Plus longtemps elle restera en liberté, plus grande sera la calamité. » L'homme d'âge moyen secoua la tête et poussa un soupir.
+« Cette recette est un objet funeste. La première fois qu'elle est apparue, elle a causé une calamité dans la Mer Yun. Aujourd'hui, c'est sa seconde apparition... Je ne sais simplement pas qui l'a emportée. Plus longtemps elle restera en liberté, plus grande sera la calamité. » L'homme d'âge moyen secoua la tête et poussa un soupir.
 
-Le vieil homme hésita un instant avant de murmurer: « Selon les enquêtes, c'est la Vieille Poisonneuse de la Secte des Cinq Poisons qui a dérobé la recette et le jade avant de se terrer dans l'ombre. »
+Le vieil homme hésita un instant avant de murmurer: « Selon les enquêtes, c'est la Vieille Poisonneuse de la Secte Wu Du qui a dérobé la recette et le jade avant de se terrer dans l'ombre. »
 
 « Ne sous-estime pas ces vieux monstres des sectes de rang 6! » L'homme d'âge moyen esquissa un léger sourire.
 
 Le vieil homme fut interdit. Après une réflexion approfondie, il questionna: « Pourrait-il y avoir quelqu'un d'autre? »
 
-« Si c'était vraiment la Vieille Poisonneuse, pourquoi la Secte des Cinq Poisons existe-t-elle encore? » Les yeux de l'homme d'âge moyen brillèrent de sagesse. Il reprit lentement: « Comment cette Vieille Poisonneuse pourrait-elle résister à l'autodestruction de Shi Luoxing, compte tenu de son niveau de culture, et ne laisser aucune trace sous de telles recherches? Et comment aurait-elle pu tuer le Noble Argent de la Secte de la Fleur Claire tout en s'échappant? »
+« Si c'était vraiment la Vieille Poisonneuse, pourquoi la Secte Wu Du existe-t-elle encore? » Les yeux de l'homme d'âge moyen brillèrent de sagesse. Il reprit lentement: « Comment cette Vieille Poisonneuse pourrait-elle résister à l'autodestruction de Shi Luoxing, compte tenu de son niveau de culture, et ne laisser aucune trace sous de telles recherches? Et comment aurait-elle pu tuer le Noble Argent de la Secte Hua Qing tout en s'échappant? »
 
-« Le Noble Argent de la Secte de la Fleur Claire était un cultivateur au stade Briseur du Nirvana. Qui aurait pu le tuer dans le court laps de temps précédant l'arrivée de la seconde vague de cultivateurs de la Secte de la Fleur Claire? »
+« Le Noble Argent de la Secte Hua Qing était un cultivateur au stade Briseur du Nirvana. Qui aurait pu le tuer dans le court laps de temps précédant l'arrivée de la seconde vague de cultivateurs de la Secte Hua Qing? »
 
 Le vieil homme inspira brusquement et son esprit vacilla. Il lui fallut un long moment pour reprendre ses esprits, les yeux empreints de terreur.
 
-« Le Noble Argent de la Secte de la Fleur Claire a été tué! » Il ignorait manifestement cette affaire.
+« Le Noble Argent de la Secte Hua Qing a été tué! » Il ignorait manifestement cette affaire.
 
 « La Vieille Poisonneuse ne peut pas avoir fait ça. Seule la personne qui a réellement obtenu le jade et la recette pourrait posséder une telle force. Cette personne a dû être contrainte de tuer le Noble Argent. On peut supposer qu'en quittant les terres sauvages, elle a croisé le Noble Argent; éveillant les soupçons de celui-ci, elle a été forcée d'attaquer. » L'homme d'âge moyen afficha un regard mêlant admiration et estime.
 
@@ -60,15 +60,15 @@ Sans même se retourner, l'homme sembla lire clairement le doute sur le visage d
 
 « Ce dont ils ont besoin, c'est d'une explication! Une explication pour les régions de rang 7, 8, ou même 9... »
 
-Le vieil homme sembla soudain réaliser la situation et fut envahi par l'incrédulité. Sa poitrine se soulevait violemment tandis qu'il s'exclamait: « C'est donc pour cela qu'ils ont laissé la Secte des Cinq Poisons exister et qu'ils sont convaincus que c'était la Vieille Poisonneuse! Même la mort du Noble Argent sera perçue comme l'œuvre d'un puissant cultivateur de la Secte des Cinq Poisons! »
+Le vieil homme sembla soudain réaliser la situation et fut envahi par l'incrédulité. Sa poitrine se soulevait violemment tandis qu'il s'exclamait: « C'est donc pour cela qu'ils ont laissé la Secte Wu Du exister et qu'ils sont convaincus que c'était la Vieille Poisonneuse! Même la mort du Noble Argent sera perçue comme l'œuvre d'un puissant cultivateur de la Secte Wu Du! »
 
 L'homme d'âge moyen sourit, puis parla à voix basse, comme dans un monologue.
 
-« Ce mystérieux cultivateur est intelligent; il a offert une excuse aux sectes de rang 6. Peu importe l'issue finale, grâce à cette explication, leur désastre sera bien moindre. Pourquoi n'y a-t-il aucun cultivateur au stade Briseur du Nirvana parmi les escouades de recherche? Il n'y a que des Purificateurs de Nirvana qui traquent un individu capable d'éliminer un Briseur du Nirvana en moins d'un bâton d'encens... Si j'étais le maître de l'une des sectes de rang 6, je l'aiderais probablement à effacer toutes les traces. De cette façon, seule la Secte des Cinq Poisons serait anéantie! »
+« Ce mystérieux cultivateur est intelligent; il a offert une excuse aux sectes de rang 6. Peu importe l'issue finale, grâce à cette explication, leur désastre sera bien moindre. Pourquoi n'y a-t-il aucun cultivateur au stade Briseur du Nirvana parmi les escouades de recherche? Il n'y a que des Purificateurs de Nirvana qui traquent un individu capable d'éliminer un Briseur du Nirvana en moins d'un bâton d'encens... Si j'étais le maître de l'une des sectes de rang 6, je l'aiderais probablement à effacer toutes les traces. De cette façon, seule la Secte Wu Du serait anéantie! »
 
 Le vieil homme à ses côtés était totalement stupéfait. Il regarda l'homme d'âge moyen avec un mélange de révérence et d'effroi; une trace de peur perçait même dans son regard.
 
-Il suivait Lu Yuncong depuis de nombreuses années et l'avait vu partir de rien pour atteindre les sommets. La Secte du Dao Pourpre n'était qu'une infime secte de la région de rang 5 il y a trois mille ans. Cependant, entre les mains de cet homme, elle était devenue redoutable. Bien qu'elle ne fût pas la plus puissante de la région de rang 5, le nom de « Lu Yuncong » était connu dans les régions de rang 6, 7 et 8.
+Il suivait Lu Yuncong depuis de nombreuses années et l'avait vu partir de rien pour atteindre les sommets. La Secte Zi Dao n'était qu'une infime secte de la région de rang 5 il y a trois mille ans. Cependant, entre les mains de cet homme, elle était devenue redoutable. Bien qu'elle ne fût pas la plus puissante de la région de rang 5, le nom de « Lu Yuncong » était connu dans les régions de rang 6, 7 et 8.
 
 « Je voudrais vraiment rencontrer ce mystérieux cultivateur... J'ai le pressentiment que nos chemins se croiseront un jour... » Les yeux de l'homme d'âge moyen brillaient d'attente. Les mains derrière le dos, il paraissait aussi immuable qu'une montagne aux yeux du vieil homme.
 
@@ -82,7 +82,7 @@ Le tigre s'arrêta net, faisant preuve d'une grande vigilance. Une trace de crai
 
 Cet événement soudain poussa les trente cultivateurs à ouvrir les yeux simultanément. Ils se levèrent calmement et fixèrent l'horizon avec froideur. À la surprise générale, aucun signe de panique ne se lisait sur leurs visages!
 
-C'était parce qu'ils étaient les disciples de proue de la Secte du Dao Pourpre, les disciples directs choisis par le Maître de Secte lui-même! Ils étaient habités par la fierté. Ils pouvaient mourir ou être vaincus, mais ils ne pouvaient point céder à la panique. Même si une montagne s'effondrait devant eux, ils devaient rester imperturbables.
+C'était parce qu'ils étaient les disciples de proue de la Secte Zi Dao, les disciples directs choisis par le Maître de Secte lui-même! Ils étaient habités par la fierté. Ils pouvaient mourir ou être vaincus, mais ils ne pouvaient point céder à la panique. Même si une montagne s'effondrait devant eux, ils devaient rester imperturbables.
 
 Le vieil homme aux côtés de Lu Yuncong prit un air grave face à cette étrange lueur bleue. Seul Lu Yuncong restait de marbre, observant la brume avec calme, comme si rien ne se passait.
 
@@ -98,7 +98,7 @@ C'était comme un lac paisible et enivrant. Quiconque croisait son regard, aussi
 
 « Li Qianmei! » Lu Yuncong, les mains toujours derrière le dos, la dévisagea. Bien que frappé par cette élégance et cette beauté qui semblaient constituer un domaine en soi, son expression ne changea pas.
 
-« Li Qianmei, de la Secte Brise-Ciel de rang 9! » Le vieil homme aux côtés de Lu Yuncong recula de quelques pas, sur ses gardes. Il l'avait reconnue instantanément: elle était la seule femme aux cheveux bleus de toute la Mer des Nuages, Li Qianmei!
+« Li Qianmei, de la Secte Brise-Ciel de rang 9! » Le vieil homme aux côtés de Lu Yuncong recula de quelques pas, sur ses gardes. Il l'avait reconnue instantanément: elle était la seule femme aux cheveux bleus de toute la Mer Yun, Li Qianmei!
 
 « Qianmei salue le Frère Lu, » dit la femme avec un sourire en s'inclinant légèrement vers lui.
 

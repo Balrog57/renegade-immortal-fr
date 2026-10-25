@@ -18,13 +18,13 @@ Wang Lin leva lentement la tête. Lorsqu'il se redressa, ses yeux projetèrent u
 
 « J'en ai accompli un tiers... » Les yeux de Wang Lin se posèrent sur Du Tian, assis dans un coin.
 
-Du Tian ouvrit les yeux et sourit: « Bien. Maintenant, suis-moi, je vais t'emmener voler quelques jades célestes. Bien que la guerre plonge tout dans le chaos, rien ne pourra arrêter cette tradition de ma Secte de l'Affinement de l'Âme. »
+Du Tian ouvrit les yeux et sourit: « Bien. Maintenant, suis-moi, je vais t'emmener voler quelques jades célestes. Bien que la guerre plonge tout dans le chaos, rien ne pourra arrêter cette tradition de ma Secte Lian Hun. »
 
 Du Tian rit en déchirant l'espace devant lui, créant un vortex noir dans lequel il s'engouffra.
 
 Wang Lin esquissa un léger sourire et le suivit dans le vortex.
 
-Lorsqu'ils réapparurent, ils se trouvaient déjà dans le ciel, au-dessus de la Secte de l'Affinement de l'Âme. Du Tian, les mains derrière le dos, volait en avant sur un nuage.
+Lorsqu'ils réapparurent, ils se trouvaient déjà dans le ciel, au-dessus de la Secte Lian Hun. Du Tian, les mains derrière le dos, volait en avant sur un nuage.
 
 En suivant tranquillement Du Tian, Wang Lin sentit à quel point l'énergie spirituelle céleste avait transformé son corps.
 
@@ -62,11 +62,11 @@ Tout le secteur fut enveloppé par des fragments d'âmes qui émettaient des gé
 
 Plus de dix fragments d'âmes aux lueurs pourpres et dorées chargèrent avec une excitation manifeste, fonçant en avant sans même attendre d'ordre. Tous les insectes venimeux s'enfuirent comme s'ils avaient rencontré leur prédateur naturel.
 
-Les yeux de Du Tian s'illuminèrent et il hurla: « Rats de la Secte des Insectes Démoniaques, votre grand-père Du Tian de la Secte de l'Affinement de l'Âme est arrivé! La règle est la même que d'habitude: remettez vite les jades célestes! »
+Les yeux de Du Tian s'illuminèrent et il hurla: « Rats de la Secte des Insectes Démoniaques, votre grand-père Du Tian de la Secte Lian Hun est arrivé! La règle est la même que d'habitude: remettez vite les jades célestes! »
 
 En entendant cela, Wang Lin ne put s'empêcher de rire. Existait-il vraiment une règle pour le vol de jades célestes?
 
-Wang Lin ignorait que la Secte de l'Affinement de l'Âme avait pris l'habitude de se montrer despotique. Lorsque le maître de Du Tian l'avait emmené ici, il avait tenu les mêmes propos, et la rumeur disait que le maître de son propre maître avait fait de même.
+Wang Lin ignorait que la Secte Lian Hun avait pris l'habitude de se montrer despotique. Lorsque le maître de Du Tian l'avait emmené ici, il avait tenu les mêmes propos, et la rumeur disait que le maître de son propre maître avait fait de même.
 
 En somme, il y avait bel et bien une tradition en la matière.
 
@@ -76,17 +76,17 @@ Cependant, les deux connaissaient la manœuvre; ils se contentèrent de repousse
 
 L'un était un vieil homme vêtu d'une robe violette, avec deux mille-pattes rouge sang enroulés autour des oreilles. Il cria brusquement: « Vieux fantôme Du Tian, il n'y a plus de jades célestes! »
 
-L'autre était une vieille femme vêtue d'une robe de lin grossier. Bien que son visage fût marqué par les rides, ses yeux brillaient d'éclat. Elle toussa pour couper la parole au vieil homme et, fixant Du Tian, déclara: « Vieux fantôme Du Tian, nous ne pouvons rien vous donner. Lors de l'attaque du Clan des Immortels Délaissés, j'ai été gravement blessée et j'ai utilisé des jades célestes pour me soigner; je ne suis remise qu'en grande partie. Compte tenu de l'avenir, nous n'avons rien à vous céder. »
+L'autre était une vieille femme vêtue d'une robe de lin grossier. Bien que son visage fût marqué par les rides, ses yeux brillaient d'éclat. Elle toussa pour couper la parole au vieil homme et, fixant Du Tian, déclara: « Vieux fantôme Du Tian, nous ne pouvons rien vous donner. Lors de l'attaque du Clan Xian Yi, j'ai été gravement blessée et j'ai utilisé des jades célestes pour me soigner; je ne suis remise qu'en grande partie. Compte tenu de l'avenir, nous n'avons rien à vous céder. »
 
 Le regard de Du Tian se fit sérieux et se posa sur la vieille femme. Il pointa son front, libérant l'aura de mort qu'il contenait jusque-là. Sa voix était rauque: « Yan Hong, il me reste moins de deux ans à vivre. »
 
 La vieille femme trembla et son expression vacilla.
 
-Le visage du vieil homme à la robe violette se renfrogna et il grommela: « Vous, les gens de la Secte de l'Affinement de l'Âme, vous êtes tous des fous. Quand votre espérance de vie touche à sa fin, vous sortez le drapeau d'âmes d'un milliard pour voler les autres... »
+Le visage du vieil homme à la robe violette se renfrogna et il grommela: « Vous, les gens de la Secte Lian Hun, vous êtes tous des fous. Quand votre espérance de vie touche à sa fin, vous sortez le drapeau d'âmes d'un milliard pour voler les autres... »
 
 Du Tian rit: « C'est exact. Il ne me reste pas deux ans, alors je ne crains plus la mort. Donnez-moi les jades et je partirai. Si vous refusez, je ne me battrai pas, mais je vais anéantir tous les insectes venimeux de ce marais. »
 
-Le vieil homme à la robe violette eut un rire colérique et s'apprêta à répliquer quand la vieille femme l'interrompit par une quinte de toux: « Vieux fantôme, pourquoi agir ainsi? Sans parler de la vengeance que nous deux pourrions exercer contre votre Secte de l'Affinement de l'Âme, ce junior à vos côtés mourra à coup sûr. »
+Le vieil homme à la robe violette eut un rire colérique et s'apprêta à répliquer quand la vieille femme l'interrompit par une quinte de toux: « Vieux fantôme, pourquoi agir ainsi? Sans parler de la vengeance que nous deux pourrions exercer contre votre Secte Lian Hun, ce junior à vos côtés mourra à coup sûr. »
 
 Wang Lin esquissa un léger sourire et, d'un geste de la main droite, fit jaillir son épée céleste. Il y injecta une parcelle d'énergie spirituelle céleste. Bien qu'il n'ait pas encore atteint le stade de la Transformation de l'Âme, il pouvait déjà manipuler un peu de cette essence.
 

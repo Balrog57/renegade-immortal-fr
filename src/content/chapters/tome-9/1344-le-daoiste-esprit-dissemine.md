@@ -44,11 +44,11 @@ Les yeux de Wang Lin s'éclairèrent et il s'arrêta net dans les airs, fixant f
 
 Le jeune homme chauve reprit lentement: « Le nom de ce vieil homme est Esprit Dispersé. J'ai vécu des dizaines de milliers d'années. J'ai atteint le quatrième Fléau Céleste...
 
-« Ce vieil homme possède 971 avatars comme celui-ci, Compagnon Cultivateur, et chacun d'eux contient ma volonté. Grâce à ces avatars, je peux me déplacer dans l'espace tel les cultivateurs du Clan du Tonnerre Dispersé sans être remarqué par quiconque.
+« Ce vieil homme possède 971 avatars comme celui-ci, Compagnon Cultivateur, et chacun d'eux contient ma volonté. Grâce à ces avatars, je peux me déplacer dans l'espace tel les cultivateurs du Clan Shan Lei sans être remarqué par quiconque.
 
 « Je vous ai suivi secrètement sans malveillance, car je voulais solliciter votre aide et conclure un accord! Si Compagnon Cultivateur est intéressé, cela nous sera bénéfique à tous les deux! » dit lentement le jeune homme en regardant Wang Lin.
 
-Wang Lin resta impassible et demanda calmement: « Vous connaissez le Clan du Tonnerre Dispersé? »
+Wang Lin resta impassible et demanda calmement: « Vous connaissez le Clan Shan Lei? »
 
 Le jeune homme afficha une expression complexe et hocha la tête.
 
@@ -66,7 +66,7 @@ Les yeux de Wang Lin brillèrent d'intérêt et il s'avança à son tour, traver
 
 Wang Lin gardait une expression sereine tout en voyageant avec lui à travers les mondes. À cet instant, des capitales mortelles, des pans entiers de l'espace, et même la pluie printanière ou le vent d'automne défilaient sans cesse autour d'eux.
 
-« Malheureusement, bien que mon talent fût excellent, je ne pouvais plus contenir ma culture. À deux cents ans, elle déborda et déclencha la rétribution divine... Le Céleste qui apparut était l'actuel Grand Ancien du Clan du Tonnerre Dispersé...
+« Malheureusement, bien que mon talent fût excellent, je ne pouvais plus contenir ma culture. À deux cents ans, elle déborda et déclencha la rétribution divine... Le Céleste qui apparut était l'actuel Grand Ancien du Clan Shan Lei...
 
 « Son niveau de culture à l'époque n'était que celui d'un Scruteur du Nirvana. J'étais gravement blessé et au bord de la mort; je ne pouvais tout simplement pas résister... Cependant, au lieu de m'achever, il a réduit ma culture à néant avant de partir...
 

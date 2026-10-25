@@ -16,7 +16,7 @@ Par la suite, cinq mille cultivateurs furent répartis en équipes, chacune ayan
 
 Les équipes devaient se disperser et grignoter le territoire alentour en éliminant tout cultivateur croisé sur leur route. Des experts de l'Âme Naissante patrouilleraient aux alentours, prêts à les soutenir à tout moment et à contrer les cultivateurs ennemis du même niveau.
 
-Wang Lin fut affecté à la 8e escouade de la 10e brigade. L'escouade comptait près de trente personnes, issues de diverses sectes. Elle comprenait cinq cultivateurs au stade de l'Établissement des Fondations, tandis que les autres étaient aux 13e ou 14e niveaux de Condensation de Qi environ. Le chef de groupe était un cultivateur au stade de la Formation du Noyau de la Secte des Démons Maléfiques. Pour une raison quelconque, Wang Lin était le seul membre du Sanctuaire du Dieu de la Guerre au sein de son unité.
+Wang Lin fut affecté à la 8e escouade de la 10e brigade. L'escouade comptait près de trente personnes, issues de diverses sectes. Elle comprenait cinq cultivateurs au stade de l'Établissement des Fondations, tandis que les autres étaient aux 13e ou 14e niveaux de Condensation de Qi environ. Le chef de groupe était un cultivateur au stade de la Formation du Noyau de la Secte Xie Mo. Pour une raison quelconque, Wang Lin était le seul membre du Sanctuaire du Dieu de la Guerre au sein de son unité.
 
 Leur mission consistait à aider la 10e brigade à prendre le contrôle d'une veine spirituelle de taille moyenne. En tant que cultivateur de l'Établissement des Fondations du Sanctuaire du Dieu de la Guerre, Wang Lin reçut un trésor de stade Formation du Noyau. Ce trésor n'était pas très puissant: comme ils étaient distribués en grand nombre, la qualité de chacun était médiocre. On aurait pu dire qu'il était assez insignifiant.
 
@@ -46,7 +46,7 @@ L'équipe d'invasion de l'Union de Huo Fen se dispersa le deuxième jour. Dix cu
 
 Une escouade de trente cultivateurs vola vers le nord sur leurs épées volantes et s'arrêta au-dessus d'une montagne désolée. Un vieil homme à l'apparence ordinaire, dont les yeux laissaient parfois transparaître une féroce intention meurtrière, déclara avec fierté: « Les cultivateurs de la 10e brigade ont déjà commencé leur assaut sur les environs de la veine spirituelle. Je suppose qu'ils recevront des renforts; notre tâche est donc d'empêcher quiconque de franchir cette zone de 250 kilomètres. Dispersez-vous et rapportez-moi immédiatement toute anomalie. »
 
-Sur ce, le vieil homme s'assit au sol et ferma les yeux. Cet homme, Zhang Zili, était le capitaine de la 8e escouade, un cultivateur au début du stade de la Formation du Noyau de la Secte des Démons Maléfiques. Il ne se souciait que des cinq cultivateurs de l'Établissement des Fondations; les autres n'étaient pas dignes de son attention.
+Sur ce, le vieil homme s'assit au sol et ferma les yeux. Cet homme, Zhang Zili, était le capitaine de la 8e escouade, un cultivateur au début du stade de la Formation du Noyau de la Secte Xie Mo. Il ne se souciait que des cinq cultivateurs de l'Établissement des Fondations; les autres n'étaient pas dignes de son attention.
 
 Wang Lin fit un pas et s'envola au loin. Il atterrit sur une canopée et commença à cultiver. Quant au reste de l'équipe, tous se dispersèrent pour trouver un lieu propice à la culture. Bientôt, un silence absolu régna dans la zone, interrompu seulement par le bruit des respirations.
 

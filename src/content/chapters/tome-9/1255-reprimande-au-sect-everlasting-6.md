@@ -40,7 +40,7 @@ Une intention de combat jaillit des yeux de Yun Shan; ses mains formèrent un sc
 
 Le monde sembla se teindre de rouge avec l'apparition de ces neuf tigres.
 
-L'expression de Wang Lin resta neutre, imperturbable. La clé pour atteindre son objectif au sein de la Secte Éternelle était la rapidité. C'était le seul moyen de choquer l'assistance et de faire connaître la Secte de l'Origine.
+L'expression de Wang Lin resta neutre, imperturbable. La clé pour atteindre son objectif au sein de la Secte Éternelle était la rapidité. C'était le seul moyen de choquer l'assistance et de faire connaître la Secte Gui Yuan.
 
 S'il s'éternisait et que ses blessures refoulées s'aggravaient, cela n'en vaudrait pas la peine.
 
@@ -92,7 +92,7 @@ Les cultivateurs environnants se levèrent tous pour fixer Wang Lin après la d�
 
 Les anciens de la Secte Éternelle étaient terrifiés. Bien qu'ils aient entendu parler de la force de Wang Lin, ce n'étaient que des rumeurs. Même s'ils y croyaient, rien ne les avait préparés à un tel choc visuel.
 
-Lorsqu'il avait tué les membres de la Secte de la Musique Céleste et Zhao Long, on pouvait croire qu'il ne faisait que s'en prendre aux faibles. Bien que ses sorts fussent impressionnants, les anciens pensaient qu'ils auraient pu en faire autant, ils n'avaient donc pas accordé d'importance à ces faits.
+Lorsqu'il avait tué les membres de la Secte Xian Yin et Zhao Long, on pouvait croire qu'il ne faisait que s'en prendre aux faibles. Bien que ses sorts fussent impressionnants, les anciens pensaient qu'ils auraient pu en faire autant, ils n'avaient donc pas accordé d'importance à ces faits.
 
 Mais ceci était totalement différent!
 
@@ -106,7 +106,7 @@ L'ancien qui cultivait le feu regarda Wang Lin avec une pointe de crainte. Lui q
 
 Le regard de Wang Lin était serein alors qu'il scrutait le ciel et déclara lentement: « Aujourd'hui, je veux combattre. Qui m'accompagnera? »
 
-« Du Lin, de la Vallée du Pin Pourpre de rang 7, combattra le Compagnon Cultivateur Lu! »
+« Du Lin, de la Vallée Zi Song de rang 7, combattra le Compagnon Cultivateur Lu! »
 
 « Je suis Yin Yue, de la Secte Ciel Yin de rang 7. Veuillez me donner vos conseils! »
 

@@ -196,7 +196,7 @@ C'était le vieil homme du deuxième étage. Il était sorti pour capturer l'ép
 
 « Salutations, Senior Frère Ma. » Les trois autres personnes, immobilisées par l'explosion de l'Ombre du Dao Antique, joignirent également les mains avec déférence.
 
-Wang Lin, reculant dans la distance, observa la scène. Il comprit qu'il avait forcé tous les cultivateurs étrangers à se dévoiler. Cet homme nommé Ma ressemblerait exactement à Na Duo s'il était plus jeune. Il était évident qu'il s'agissait de l'individu aperçu au sein du Clan du Tonnerre Dispersé; il était le chef de ce groupe de cultivateurs étrangers!
+Wang Lin, reculant dans la distance, observa la scène. Il comprit qu'il avait forcé tous les cultivateurs étrangers à se dévoiler. Cet homme nommé Ma ressemblerait exactement à Na Duo s'il était plus jeune. Il était évident qu'il s'agissait de l'individu aperçu au sein du Clan Shan Lei; il était le chef de ce groupe de cultivateurs étrangers!
 
 Les masques étaient tombés, rien n'était plus caché. Wang Lin ayant tout vu, il n'avait aucune intention de rester!
 

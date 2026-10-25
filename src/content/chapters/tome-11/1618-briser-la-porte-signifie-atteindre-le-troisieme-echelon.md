@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1618 - Breaking the Gate Means Reaching the Third Step
 slug: briser-la-porte-signifie-atteindre-le-troisieme-echelon
 ---
-À l'extérieur de la planète Suzaku, un vortex apparut aux côtés de la Porte du Vide. Tandis que le vortex tournait, une aura terrifiante se propagea.
+À l'extérieur de la planète Suzaku, un vortex apparut aux côtés de la Porte Kong. Tandis que le vortex tournait, une aura terrifiante se propagea.
 
 Au moment où Xushen Tianzun se retourna, le jeune homme aux robes vertes trembla; sentant quelque chose, il tourna les yeux vers la source. Zhou Jin fit de même. Même les dizaines de milliers de cultivateurs sur le point de charger la planète Suzaku ressentirent cette aura effroyable.
 
@@ -14,15 +14,15 @@ Ils connaissaient cette aura. Le jeune homme aux robes vertes la connaissait. Xu
 
 Zhou Jin, lui, la connaissait encore mieux, et cela le fit presque perdre la raison!
 
-De même, l'aura émanant du vortex près de la Porte du Vide fit ressentir aux milliers de cultivateurs du Royaume Intérieur gravitant autour de la statue un sentiment de familiarité enfoui depuis des décennies!
+De même, l'aura émanant du vortex près de la Porte Kong fit ressentir aux milliers de cultivateurs du Royaume Intérieur gravitant autour de la statue un sentiment de familiarité enfoui depuis des décennies!
 
 « J'ai dit qu'il ne pouvait pas mourir. Il ne peut pas mourir. C'est mon frère, il ne peut pas mourir! » s'écria Situ Nan en tremblant, les yeux brillants de joie, avant d'éclater de rire.
 
-Le Maître Nan Yunzi eut le souffle coupé. Il devinait déjà qui avait eu la chance de déclencher la Porte du Vide avec six essences, mais maintenant qu'il ressentait cette aura, il se mit lui aussi à rire.
+Le Maître Nan Yunzi eut le souffle coupé. Il devinait déjà qui avait eu la chance de déclencher la Porte Kong avec six essences, mais maintenant qu'il ressentait cette aura, il se mit lui aussi à rire.
 
 « Bien, bien, bien! Comment le Seigneur du Royaume Scellé pourrait-il mourir! »
 
-Treize, Maître Lu Fu et l'affaibli Empereur Divin Dragon Azure tremblèrent tous, regardant le vortex près de la Porte du Vide avec une excitation fébrile. En particulier, Treize était transporté par l'émotion.
+Treize, Maître Lu Fu et l'affaibli Empereur Divin Dragon Azure tremblèrent tous, regardant le vortex près de la Porte Kong avec une excitation fébrile. En particulier, Treize était transporté par l'émotion.
 
 Le Maître Long Pan sourit en contemplant le vortex. Il semblait voir la silhouette qui, autrefois, l'avait vertement réprimandé.
 
@@ -36,7 +36,7 @@ Le Seigneur du Royaume Scellé, Wang Lin!
 
 Les rugissements des milliers de cultivateurs autour de la statue devinrent encore plus puissants. Finalement, leurs voix fusionnèrent en une seule et se propagèrent dans l'espace, atteignant les oreilles des dizaines de milliers de cultivateurs du Royaume Extérieur.
 
-Au moment où le cauchemar oublié par les cultivateurs du Royaume Extérieur s'éveillait, un jeune homme aux cheveux blancs et vêtu de blanc sortit du vortex à côté de la Porte du Vide.
+Au moment où le cauchemar oublié par les cultivateurs du Royaume Extérieur s'éveillait, un jeune homme aux cheveux blancs et vêtu de blanc sortit du vortex à côté de la Porte Kong.
 
 Ses cheveux blancs dansaient et ses vêtements flottaient au vent. À cet instant, il dégageait l'impression de revenir tout juste des enfers, d'avoir échappé de justesse aux griffes de la mort. C'était Wang Lin, le Seigneur du Royaume Scellé!
 
@@ -44,7 +44,7 @@ Ses cheveux blancs dansaient et ses vêtements flottaient au vent. À cet instan
 
 En particulier Zhou Jin, qui transpirait à grosses gouttes tout en battant en retraite précipitamment.
 
-Les yeux du jeune homme aux robes vertes étaient empreints d'incrédulité. Dans son esprit, Wang Lin aurait dû être mort depuis longtemps; pourtant, non seulement il était vivant, mais il revenait pour déclencher la Porte du Vide avec six essences.
+Les yeux du jeune homme aux robes vertes étaient empreints d'incrédulité. Dans son esprit, Wang Lin aurait dû être mort depuis longtemps; pourtant, non seulement il était vivant, mais il revenait pour déclencher la Porte Kong avec six essences.
 
 Cela fit s'effondrer tout son calme.
 
@@ -54,7 +54,7 @@ Cela fit s'effondrer tout son calme.
 
 « Gloire au Seigneur du Royaume Scellé! » Les milliers de cultivateurs sur la planète Suzaku semblaient soudain animés d'une puissance infinie. Ils s'élancèrent avec une aura sans précédent, faisant trembler les étoiles.
 
-Alors que l'apparition de Wang Lin exaltait les cultivateurs du Royaume Intérieur, l'expression de Xushen Tianzun devint extrêmement sombre. Une intention meurtrière jaillit de ses yeux et il fit un pas vers Wang Lin, sous la Porte du Vide.
+Alors que l'apparition de Wang Lin exaltait les cultivateurs du Royaume Intérieur, l'expression de Xushen Tianzun devint extrêmement sombre. Une intention meurtrière jaillit de ses yeux et il fit un pas vers Wang Lin, sous la Porte Kong.
 
 « Petit enfant, tu n'es pas mort autrefois, mais tu mourras aujourd'hui! Ce vieil homme veut voir comment un jeune junior qui n'a pas encore atteint la troisième étape survivra face à moi. Autrefois, ce vieil homme n'avait pas réussi à prendre ton corps, mais puisque tu viens à moi, je m'en saisirai! » Ce qui s'était passé autrefois était une grande disgrâce pour Xushen Tianzun, mais cela l'avait aussi profondément effrayé. Il craignait la flèche!
 
@@ -82,21 +82,21 @@ Le jeune homme aux robes vertes fut tout aussi frappé. Il avait initialement vo
 
 Si ces trois-là étaient ainsi affectés, il ne fallait même pas parler des dizaines de milliers de cultivateurs du Royaume Extérieur. Ils reculèrent tous devant les paroles de Wang Lin, le fixant avec une peur infinie.
 
-Wang Lin agita ses manches. Après avoir fait reculer Xushen Tianzun par un rugissement, sans même le regarder, il leva la main droite vers la Porte du Vide.
+Wang Lin agita ses manches. Après avoir fait reculer Xushen Tianzun par un rugissement, sans même le regarder, il leva la main droite vers la Porte Kong.
 
-« Tonnerre, feu, karma, vie et mort, vrai et faux, massacre. Six essences portant mon nom, Wang Lin, je vous ordonne de briser la Porte du Vide! » Les paroles de Wang Lin se propagèrent et la Porte du Vide émit une pression infinie.
+« Tonnerre, feu, karma, vie et mort, vrai et faux, massacre. Six essences portant mon nom, Wang Lin, je vous ordonne de briser la Porte Kong! » Les paroles de Wang Lin se propagèrent et la Porte Kong émit une pression infinie.
 
-Franchir la Porte du Vide!
+Franchir la Porte Kong!
 
 Wang Lin leva la tête vers la Porte qui surplombait la scène. Il avait attendu ce jour pendant plus de 2 000 ans. Il avait trop longtemps attendu!
 
 Lorsqu'il avait commencé sa culture, il n'avait jamais pensé qu'il deviendrait un cultivateur de la troisième étape, mais ce jour était enfin là!
 
-C'était la deuxième fois que Wang Lin faisait face à la Porte du Vide. La première fois, lorsque son essence de tonnerre avait atteint sa perfection, il n'avait pas été capable de l'ouvrir. Cependant, aujourd'hui, Wang Lin était certain de pouvoir briser la porte et atteindre la troisième étape!
+C'était la deuxième fois que Wang Lin faisait face à la Porte Kong. La première fois, lorsque son essence de tonnerre avait atteint sa perfection, il n'avait pas été capable de l'ouvrir. Cependant, aujourd'hui, Wang Lin était certain de pouvoir briser la porte et atteindre la troisième étape!
 
 Les six essences apparurent sur sa main levée, formant une sphère de lumière tourbillonnante. Il l'écrasa pour qu'elles fusionnent avec son corps.
 
-Il s'élança vers le haut. Sous les yeux des dizaines de milliers de cultivateurs du Royaume Extérieur, des milliers de cultivateurs du Royaume Intérieur et de plusieurs experts de la troisième étape, Wang Lin chargea la Porte du Vide.
+Il s'élança vers le haut. Sous les yeux des dizaines de milliers de cultivateurs du Royaume Extérieur, des milliers de cultivateurs du Royaume Intérieur et de plusieurs experts de la troisième étape, Wang Lin chargea la Porte Kong.
 
 Une fois la porte brisée, il serait un cultivateur de la troisième étape!
 
@@ -104,18 +104,18 @@ Une fois la porte brisée, il pourrait dominer le monde!
 
 Une fois la porte brisée, il serait qualifié pour connaître le secret ultime séparant les Royaumes Intérieur et Extérieur!
 
-Dans sa jeunesse, il manquait de talent et sa culture était laborieuse. Il avait surmonté la première et la deuxième étape. Aujourd'hui, il briserait la Porte du Vide sous les yeux de dizaines de milliers de cultivateurs pour atteindre la troisième étape!
+Dans sa jeunesse, il manquait de talent et sa culture était laborieuse. Il avait surmonté la première et la deuxième étape. Aujourd'hui, il briserait la Porte Kong sous les yeux de dizaines de milliers de cultivateurs pour atteindre la troisième étape!
 
-Wang Lin se souvenait clairement de l'attaque que Qing Shui avait utilisée avec l'essence de massacre contre la Porte du Vide; cette attaque qui avait fait s'effondrer un pan de la structure.
+Wang Lin se souvenait clairement de l'attaque que Qing Shui avait utilisée avec l'essence de massacre contre la Porte Kong; cette attaque qui avait fait s'effondrer un pan de la structure.
 
-Avoir le pouvoir de briser un fragment de la porte était extrêmement rare. Pour des gens comme Zhou Jin, « briser » la Porte du Vide consistait simplement à faire tout leur possible pour l'ouvrir. C'était comme un mortel tentant de pousser un rocher de mille livres. Même avec l'aide des flammes sacrificielles, on se sentait épuisé après avoir réussi à l'ouvrir.
+Avoir le pouvoir de briser un fragment de la porte était extrêmement rare. Pour des gens comme Zhou Jin, « briser » la Porte Kong consistait simplement à faire tout leur possible pour l'ouvrir. C'était comme un mortel tentant de pousser un rocher de mille livres. Même avec l'aide des flammes sacrificielles, on se sentait épuisé après avoir réussi à l'ouvrir.
 
 Depuis les temps anciens, très peu de personnes avaient pu le faire aussi aisément que Qing Shui.
 
-Plus il y avait d'essences pour créer la Porte du Vide, plus elle était difficile à ouvrir, et encore plus à briser. Six essences n'étaient jamais apparues auparavant; la Porte qu'elles formaient était donc la plus puissante jamais vue dans les deux Royaumes!
+Plus il y avait d'essences pour créer la Porte Kong, plus elle était difficile à ouvrir, et encore plus à briser. Six essences n'étaient jamais apparues auparavant; la Porte qu'elles formaient était donc la plus puissante jamais vue dans les deux Royaumes!
 
-La difficulté de briser cette porte était plusieurs fois supérieure à celle de Qing Shui. Comparée à la Porte du Vide de Zhou Jin, la différence était abyssale.
+La difficulté de briser cette porte était plusieurs fois supérieure à celle de Qing Shui. Comparée à la Porte Kong de Zhou Jin, la différence était abyssale.
 
 Mais de la même manière, une fois que Wang Lin aurait brisé la porte, il pourrait absorber sa puissance et l'intégrer à ses six essences. Sa force progresserait alors par bonds prodigieux.
 
-« Briser cette porte n'est pas difficile! Je l'ai observée maintes fois et j'en ai une certaine compréhension. Cette fois, je vais la briser d'une manière inédite, comme personne ne l'a jamais fait et ne le fera jamais! » Wang Lin leva les yeux, ses cheveux blancs dansant au vent. Sa main droite se serra en un poing alors qu'il se rapprochait de plus en plus de la Porte du Vide!
+« Briser cette porte n'est pas difficile! Je l'ai observée maintes fois et j'en ai une certaine compréhension. Cette fois, je vais la briser d'une manière inédite, comme personne ne l'a jamais fait et ne le fera jamais! » Wang Lin leva les yeux, ses cheveux blancs dansant au vent. Sa main droite se serra en un poing alors qu'il se rapprochait de plus en plus de la Porte Kong!

@@ -10,13 +10,13 @@ Lorsque Wang Lin atterrit sur la planète Suzaku, un grondement assourdissant re
 
 La montagne s'effondra et les roches volèrent en éclats sous l'impact de Wang Lin. La terre trembla et une fissure béante se forma tandis qu'il s'enfonçait plus profondément.
 
-Des grondements tonitruants résonnèrent alors que Wang Lin perçait les profondeurs de la planète Suzaku, son corps s'effondrant et se reformant sans cesse. Il traversa ainsi les cavernes du Clan du Tatouage.
+Des grondements tonitruants résonnèrent alors que Wang Lin perçait les profondeurs de la planète Suzaku, son corps s'effondrant et se reformant sans cesse. Il traversa ainsi les cavernes du Clan Fu Wen.
 
 Bien que cette planète Suzaku ait été extraite par la technique « Pêcher la Lune dans le Puits » du Souverain, elle demeurait la planète Suzaku. Hormis l'absence de toute forme de vie, tout le reste était intact!
 
-Les cavernes du Clan du Tatouage étaient toujours là!
+Les cavernes du Clan Fu Wen étaient toujours là!
 
-En perçant les profondeurs, Wang Lin traversa la terre et apparut dans la 18e couche des grottes du Clan du Tatouage!
+En perçant les profondeurs, Wang Lin traversa la terre et apparut dans la 18e couche des grottes du Clan Fu Wen!
 
 Tout ici était resté identique à son départ. L'un des murs de la chambre de pierre s'était effondré, et par l'ouverture se dévoilait le Champ de Bataille Extérieur!
 
@@ -50,7 +50,7 @@ Wang Lin laissa échapper un rugissement de douleur, mais celui-ci s'affaiblit p
 
 « Avec ce corps, ce vieil homme pourra faire tout ce qu'il voudra dans ce monde! Il ne me reste plus qu'à achever cet ultime affinage et même la Perle Défiant le Ciel sera à moi! » Le rire du vieillard sortit de la bouche de Wang Lin. Son expression était déformée alors qu'il s'envolait hors de la planète Suzaku.
 
-Cependant, alors qu'il s'élevait dans les airs, la main gauche de Wang Lin traça un sceau et pointa vers le Champ de Bataille Extérieur, situé dans la 18e couche du Clan du Tatouage.
+Cependant, alors qu'il s'élevait dans les airs, la main gauche de Wang Lin traça un sceau et pointa vers le Champ de Bataille Extérieur, situé dans la 18e couche du Clan Fu Wen.
 
 À ce geste répondit le frémissement d'innombrables âmes errantes au sein du Champ de Bataille Extérieur. Wang Lin ayant été autrefois un dévoreur d'âmes, il possédait un contrôle extrême sur ces entités.
 

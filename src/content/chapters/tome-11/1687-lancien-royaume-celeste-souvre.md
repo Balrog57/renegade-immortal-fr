@@ -22,7 +22,7 @@ Un grondement assourdissant retentit parmi ces magnifiques lumières. Ce rugisse
 
 C'était comme si un géant bombardait la porte avec acharnement, cherchant désespérément à la briser pour en sortir!
 
-Tandis que les grondements assourdissants se propageaient, le même rugissement sourd émana également de la Rivière Invoquée. Ce tumulte était audible et résonnait jusque dans la Mer des Nuages et Luotian.
+Tandis que les grondements assourdissants se propageaient, le même rugissement sourd émana également de la Rivière Invoquée. Ce tumulte était audible et résonnait jusque dans la Mer Yun et Luotian.
 
 Ce son violent apparut lors du premier souffle et atteignit son apogée au cinquième. Il se propagea dans chaque recoin du Royaume Intérieur, touchant chaque planète et percutant les oreilles de chaque créature vivante!
 
@@ -58,7 +58,7 @@ Alors que ce grondement résonnait, une fissure apparut dans le Vide Brillant, s
 
 Dès l'apparition de la faille, des rugissements empreints d'excitation et de folie jaillirent. L'aura de l'Ancien Royaume Céleste s'engouffra hors de cette brèche et balaya le Vide Brillant. Simultanément, des regards hideux apparurent dans la faille, tandis que des mains desséchées tentaient de s'étendre vers l'extérieur. On aurait dit un groupe d'êtres devenus fous, prêts à déchirer le système stellaire!
 
-À ce moment précis, une fissure similaire apparut dans la Rivière Invoquée, Luotian et la Mer des Nuages. Les quatre failles déchirèrent le système stellaire, libérant l'aura de l'Ancien Royaume Céleste!
+À ce moment précis, une fissure similaire apparut dans la Rivière Invoquée, Luotian et la Mer Yun. Les quatre failles déchirèrent le système stellaire, libérant l'aura de l'Ancien Royaume Céleste!
 
 L'Ancien Royaume Céleste était sur le point de s'éveiller!
 

@@ -24,7 +24,7 @@ Vêtu d'une longue chemise blanche, il se tenait à l'extérieur du bassin de la
 
 « Et il y a aussi... Li Qianmei... » L'expression de Wang Lin devint complexe. Dans un soupir, il s'élança avec une vélocité bien supérieure à celle d'autrefois, volant à cent fois la vitesse qu'il avait employée pour parcourir cette distance la première fois.
 
-« En fin de compte, je retourne à la Secte des Sept Dao, vers le monde des grottes, vers la planète Suzaku... C'est là ma maison. »
+« En fin de compte, je retourne à la Secte Qi Dao, vers le monde des grottes, vers la planète Suzaku... C'est là ma maison. »
 
 En chemin, Wang Lin ne marqua aucune pause. Il ne lui fallut que quelques jours pour atteindre le centre de la vaste mer, là où l'océan tout entier avait formé un mur infini de tempêtes marines.
 
@@ -118,7 +118,7 @@ Il possédait également cet avatar dans le vide. Cela faisait plusieurs centain
 
 Alors que la brume s'agitait autour de Gu Dao et que les éclats de tonnerre retentissaient, le Grand Empyréen Gu Dao fit un pas en avant. Le brouillard environnant rugit et s'étendit jusqu'à former une gigantesque créature de brume dont le cri secoua les cieux.
 
-Cette bête de brume était étrange, dotée de neuf têtes. Elle ressemblait étrangement à la bête Ji Qiong qu'il avait vue dans la Terre de l'Ancien Dieu!
+Cette bête de brume était étrange, dotée de neuf têtes. Elle ressemblait étrangement à la bête Ji Qiong qu'il avait vue dans la Terre Gu Shen!
 
 Ses neuf têtes rugissaient avec des expressions féroces, tout en dégageant une aura ancestrale. On aurait dit que cette créature possédait une âme et existait depuis des éternités.
 

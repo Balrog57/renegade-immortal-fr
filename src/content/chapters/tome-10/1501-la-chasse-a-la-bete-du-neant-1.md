@@ -16,13 +16,13 @@ C'était une terre interdite à Luotian!
 
 Les cultivateurs venaient rarement en ces lieux. Quiconque passait à proximité choisissait d'éviter cet endroit, n'osant même pas s'en approcher.
 
-D'étranges et féroces bêtes étaient dissimulées dans ce vaste brouillard, rappelant la Mer des Nuages. Bien qu'elles ne fussent pas nombreuses, elles possédaient leur propre monde ici!
+D'étranges et féroces bêtes étaient dissimulées dans ce vaste brouillard, rappelant la Mer Yun. Bien qu'elles ne fussent pas nombreuses, elles possédaient leur propre monde ici!
 
 Le Sens Divin était affecté par la brume, rendant toute exploration de la zone difficile.
 
 La silhouette de Wang Lin apparut à la lisière de cette zone alors que des ondulations se propageaient sous lui. En contemplant le brouillard dense qui se dressait devant lui, ses yeux s'illuminèrent.
 
-Après avoir quitté le Royaume Céleste du Tonnerre, il avait été envoyé ici dans le corps de cette créature exotique. Puis, il avait fait sortir les membres du Clan des Immortels Élus.
+Après avoir quitté le Royaume Céleste du Tonnerre, il avait été envoyé ici dans le corps de cette créature exotique. Puis, il avait fait sortir les membres du Clan Xian Xuan.
 
 Il avait également entrevu, en se retournant, cette immense créature semblable à une baleine: la Bête des Limbes!
 

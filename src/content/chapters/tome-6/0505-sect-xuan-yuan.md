@@ -6,11 +6,11 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 505 - Xuan Yuan Secte
 slug: sect-xuan-yuan
 ---
-Planète Tian Yun, une planète de culture de rang 7 sous l'autorité de l'Alliance de la Culture.
+Planète Tian Yun, une planète de culture de rang 7 sous l'autorité de l'Alliance Xiu Zhen.
 
 On peut dire que, même parmi les planètes de culture de rang 7, elle représente une existence de premier ordre, et cela s'explique par la présence d'un homme nommé Tian Yunzi sur la planète Tian Yun.
 
-Tian Yunzi est considéré comme un sage extrêmement respecté de sa génération; il siège même au sein de l'Alliance de la Culture! C'est un homme avec qui beaucoup préféreraient ne pas s'attirer les foudres!
+Tian Yunzi est considéré comme un sage extrêmement respecté de sa génération; il siège même au sein de l'Alliance Xiu Zhen! C'est un homme avec qui beaucoup préféreraient ne pas s'attirer les foudres!
 
 Une planète de culture de rang 7 contrôlerait normalement de nombreuses planètes de rang 6 pour renforcer sa propre puissance, mais ce n'est pas le cas de Tian Yun.
 
@@ -20,11 +20,11 @@ Un gigantesque réseau de transfert relie ces cinq planètes à la planète Tian
 
 Outre ces cinq planètes, de nombreux autres astres plus modestes orbitent autour de Tian Yun. Il s'agit là de grottes de culture personnelles appartenant à de vieux monstres. Bien que des réseaux de transfert les relient, ils sont généralement scellés et ne s'ouvrent pas aisément.
 
-À l'extrême est de la planète Tian Yun se trouve un immense réseau de transfert. Ce dernier est contrôlé par la Secte du Destin Céleste et une sentinelle y est postée en permanence.
+À l'extrême est de la planète Tian Yun se trouve un immense réseau de transfert. Ce dernier est contrôlé par la Secte Tian Yun et une sentinelle y est postée en permanence.
 
 Zhao Si était l'un des gardes chargés de cette zone. Il s'était réveillé tôt le matin et n'avait cessé de rester assis en position de lotus devant le réseau depuis lors.
 
-Zhao Si était un disciple de la cinquième génération de la Division Verte. Il cultivait depuis plus de 700 ans et avait atteint le stade intermédiaire de la Formation de l'Âme. Il était plus ou moins satisfait de sa vie. Il faut dire que le simple fait d'être un disciple de la Secte du Destin Céleste lui conférait un rang très élevé sur cette planète. Partout où il allait, il était admiré et respecté.
+Zhao Si était un disciple de la cinquième génération de la Division Verte. Il cultivait depuis plus de 700 ans et avait atteint le stade intermédiaire de la Formation de l'Âme. Il était plus ou moins satisfait de sa vie. Il faut dire que le simple fait d'être un disciple de la Secte Tian Yun lui conférait un rang très élevé sur cette planète. Partout où il allait, il était admiré et respecté.
 
 Zhao Si ouvrit les yeux et laissa échapper un long soupir.
 
@@ -40,7 +40,7 @@ Cependant, à cet instant précis, un rayon de lumière violette fendit le ciel 
 
 L'expression de Zhao Si devint grave. Sans se lever, il fixa froidement le rayon de lumière qui fonçait sur lui.
 
-D'autres personnes utilisaient le réseau de transfert quotidiennement. Hormis quelques cultivateurs extrêmement puissants, même si leur niveau de culture surpassait le sien, Zhao Si les méprisait car il était, lui, un disciple de la Secte du Destin Céleste!
+D'autres personnes utilisaient le réseau de transfert quotidiennement. Hormis quelques cultivateurs extrêmement puissants, même si leur niveau de culture surpassait le sien, Zhao Si les méprisait car il était, lui, un disciple de la Secte Tian Yun!
 
 Au moment où le soleil commençait à poindre à l'horizon, le rayon de lumière violette ralentit, permettant à Zhao Si d'apercevoir l'individu qu'il transportait.
 
@@ -60,7 +60,7 @@ Cet homme avait utilisé sa culture au stade intermédiaire de la Transformation
 
 Mais ce n'était pas là le point crucial du récit. Le plus important était que le sixième frère de la Division Pourpre, un cultivateur Ascendant, était soudainement revenu, déclenchant une bataille titanesque.
 
-Bien que Wang Lin eût perdu ce combat, la perception qu'avaient les disciples de la Secte du Destin Céleste à son égard avait radicalement changé.
+Bien que Wang Lin eût perdu ce combat, la perception qu'avaient les disciples de la Secte Tian Yun à son égard avait radicalement changé.
 
 Les trois sorts mortels étaient devenus la signature de Wang Lin, et sa puissante aura démoniaque lui conférait un charisme sans égal.
 
@@ -102,7 +102,7 @@ Ce jour-là, les environs du réseau de transfert adjacent à la Secte Xuan Yuan
 
 À l'extérieur du réseau, le jeune maître de la secte Xuan Yuan, Xu Yunshan, se tenait là en silence. Il tenait un éventail précieux en jade qu'il frappait occasionnellement contre sa paume.
 
-Trois jours plus tôt, il avait appris par un ami proche de la Secte du Destin Céleste qu'un membre de la Division Pourpre viendrait pour servir d'émissaire à Ling Yue.
+Trois jours plus tôt, il avait appris par un ami proche de la Secte Tian Yun qu'un membre de la Division Pourpre viendrait pour servir d'émissaire à Ling Yue.
 
 En temps normal, Xu Yunshan n'aurait accordé aucune importance à une telle affaire, mais lorsqu'il apprit que l'arrivant était le septième frère de la Division Pourpre — le nouveau disciple que Tian Yunzi venait d'accepter, Wang Lin — son attitude changea radicalement.
 

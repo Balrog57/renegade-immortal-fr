@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 907 - Vermillion Bird Series
 slug: la-serie-de-loiseau-vermillon
 ---
-Au 17e niveau du Clan des Immortels Délaissés sur la planète Suzaku. Au moment où Ta Shan était sur le point de franchir le 18e niveau, une voix extrêmement solennelle résonna dans le 17e niveau!
+Au 17e niveau du Clan Xian Yi sur la planète Suzaku. Au moment où Ta Shan était sur le point de franchir le 18e niveau, une voix extrêmement solennelle résonna dans le 17e niveau!
 
 « Le 18e niveau est interdit d'accès! »
 
@@ -22,7 +22,7 @@ Une ondulation résonna dans l'air et le vieux cultivateur qui ressemblait à Hu
 
 Le vieux cultivateur dégageait l'aura d'un être céleste et exerçait une pression immense sans même paraître en colère. Sa simple présence imposait un respect profond. Cependant, cette aura disparut aussitôt pour se rétracter en lui, ce qui le rendait encore plus redoutable.
 
-Après être apparu, il agita sa manche. Yun Quezi, Ta Shan, le garçon à la grosse tête et Lei Ji ne ressentirent qu'une puissante bourrasque de vent. Ils disparurent, directement expulsés hors du territoire du Clan des Immortels Délaissés.
+Après être apparu, il agita sa manche. Yun Quezi, Ta Shan, le garçon à la grosse tête et Lei Ji ne ressentirent qu'une puissante bourrasque de vent. Ils disparurent, directement expulsés hors du territoire du Clan Xian Yi.
 
 Les pupilles de Wang Lin se rétractèrent tandis que des centaines d'idées traversaient son esprit. Ce vieux cultivateur avait renvoyé tout le monde sauf lui; ses actions recelaient donc une signification profonde. Ses yeux brillèrent imperceptiblement avant qu'il ne s'incline immédiatement avec respect: « Le disciple Wang Lin de la Secte Heng Yue salue le Maître de Secte! »
 
@@ -38,7 +38,7 @@ Le vieux cultivateur réfléchit un instant avant de sourire. « Petit gars, on 
 
 L'esprit de Wang Lin trembla, mais son expression demeura imperturbable. Il dit: « Junior s'est trompé de personne. »
 
-Le vieux cultivateur afficha une lueur d'admiration, très satisfait de la réaction et de la réponse de Wang Lin. Ses yeux s'illuminèrent: « Nous pourrons discuter de cette méprise plus tard. Sais-tu que tu as failli commettre une erreur terrible? Ce 18e niveau n'est pas un endroit où l'on peut entrer, surtout pas en compagnie d'un membre du Clan des Immortels Délaissés. S'il obtenait la source originelle, oublie la planète Suzaku, c'est tout le Système Stellaire de l'Alliance qui ferait face à une catastrophe! »
+Le vieux cultivateur afficha une lueur d'admiration, très satisfait de la réaction et de la réponse de Wang Lin. Ses yeux s'illuminèrent: « Nous pourrons discuter de cette méprise plus tard. Sais-tu que tu as failli commettre une erreur terrible? Ce 18e niveau n'est pas un endroit où l'on peut entrer, surtout pas en compagnie d'un membre du Clan Xian Yi. S'il obtenait la source originelle, oublie la planète Suzaku, c'est tout le Système Stellaire de l'Alliance qui ferait face à une catastrophe! »
 
 L'expression de Wang Lin était empreinte de respect. Aucune trace de rébellion ne figurait sur son visage, comme s'il recevait sincèrement cette réprimande.
 
@@ -56,7 +56,7 @@ Le regard du vieil homme semblait pouvoir transpercer le cœur de Wang Lin. Apr�
 
 Wang Lin hocha la tête, le visage serein.
 
-« Cette guerre contre le Système Stellaire de Luotian est la bataille de l'Alliance de la Culture. Elle n'a rien à voir avec mes Quatre Sectes Divines! » lança le vieux cultivateur avec une désinvolture apparente.
+« Cette guerre contre le Système Stellaire de Luotian est la bataille de l'Alliance Xiu Zhen. Elle n'a rien à voir avec mes Quatre Sectes Divines! » lança le vieux cultivateur avec une désinvolture apparente.
 
 L'expression de Wang Lin changea alors qu'il fixait l'homme.
 
@@ -90,7 +90,7 @@ Les poissons du Yin et du Yang apparurent dans son esprit. En tournoyant, ils ba
 
 À cet instant, Wang Lin était immergé dans un ciel étoilé. Il voyait d'innombrables êtres célestes maniant divers trésors magiques. Devant eux s'étendaient des talismans jaunes de dizaines, de centaines, voire de milliers de pieds de long!
 
-Sur chaque talisman se tenaient d'étranges individus. Bien que leurs vêtements ne diffèrent guère de ceux des cultivateurs, ils arboraient des totems représentant les plantes du Clan des Immortels Délaissés. La distinction résidait dans le nombre de feuilles sur ces totems.
+Sur chaque talisman se tenaient d'étranges individus. Bien que leurs vêtements ne diffèrent guère de ceux des cultivateurs, ils arboraient des totems représentant les plantes du Clan Xian Yi. La distinction résidait dans le nombre de feuilles sur ces totems.
 
 Chacun d'eux avait une rune scintillante entre les sourcils.
 

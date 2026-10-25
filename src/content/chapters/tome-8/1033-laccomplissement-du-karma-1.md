@@ -120,4 +120,4 @@ Si la personne que Yao Xixue voulait tuer avait été faible, elle aurait pu aid
 
 De plus, son niveau de culture actuel était bien inférieur à celui d'autrefois, elle ne pouvait se permettre aucun risque.
 
-« Ceci est l'une des restrictions de la Grotte de l'Empereur Céleste. Si toutes les restrictions sont déclenchées, cela ne sera bon ni pour toi, ni pour moi. Puisqu'il n'y a pas de querelle entre nous, je m'en vais. » Après avoir parlé, le Démon du Vent continua de reculer.
+« Ceci est l'une des restrictions de la Grotte Xian Di. Si toutes les restrictions sont déclenchées, cela ne sera bon ni pour toi, ni pour moi. Puisqu'il n'y a pas de querelle entre nous, je m'en vais. » Après avoir parlé, le Démon du Vent continua de reculer.

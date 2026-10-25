@@ -10,7 +10,7 @@ Après le troisième coup de tambour, l'écho résonna sur toute la place. Le si
 
 À cet instant précis, un homme vêtu d'une armure dorée sortit du palais situé derrière la place. Il balaya les environs du regard avant de fixer la place et de hurler: « Généraux démons, avancez! »
 
-Sa voix, semblable à un tonnerre grondant, résonna sur toute la place. La Porte du Démon Céleste s'ouvrit et les divers généraux démons entrèrent en scène.
+Sa voix, semblable à un tonnerre grondant, résonna sur toute la place. La Porte Tian Yao s'ouvrit et les divers généraux démons entrèrent en scène.
 
 Chacun de ces généraux démons était suivi par des cultivateurs. À cet instant, tous les regards quittèrent le siège vide pour se porter sur les généraux démons.
 
@@ -20,7 +20,7 @@ La personne qu'il observait n'était autre que Wang Lin. Ce dernier, marchant au
 
 Mo Lihai fronça les sourcils en contemplant le siège vide au loin et murmura pour lui-même: « Étrange, pourquoi l'Empereur Démon n'est-il pas encore là... »
 
-Alors que des centaines de généraux démons traversaient la Porte du Démon Céleste en deux rangées, une puissante intention de combat émanait d'eux et emplissait l'espace.
+Alors que des centaines de généraux démons traversaient la Porte Tian Yao en deux rangées, une puissante intention de combat émanait d'eux et emplissait l'espace.
 
 L'homme à l'armure dorée déclara d'une voix grave: « Suivant l'ordre de l'Empereur, la règle reste inchangée. La compétition se déroulera par défis! »
 
@@ -38,7 +38,7 @@ L'homme à l'armure dorée reprit: « La mort peut survenir durant la compétiti
 
 Wang Lin fronça les sourcils et lança un regard glacial à l'homme en armure dorée.
 
-« Utiliser la compétition entre généraux démons et le massacre des cultivateurs pour s'élever... Si l'on veut obtenir une position dans la Terre des Esprits Démoniaques, il faut être capable de marcher sous une pluie de sang! » Wang Lin détourna le regard et réfléchit en silence.
+« Utiliser la compétition entre généraux démons et le massacre des cultivateurs pour s'élever... Si l'on veut obtenir une position dans la Terre Yao Ling, il faut être capable de marcher sous une pluie de sang! » Wang Lin détourna le regard et réfléchit en silence.
 
 « Je vais désigner celui qui commence! » L'homme à l'armure dorée pointa un individu du doigt. Il s'agissait d'un homme chétif.
 
@@ -96,9 +96,9 @@ Shi Xiao retira sa main et déclara calmement: « Je l'ai dit, tu n'es pas à la
 
 À peine eut-il fini de parler que le sol se mit à trembler et qu'un individu émergea de la foule des généraux démons. Ce colosse pesait au moins plusieurs centaines de kilos. Son torse était nu et chacun de ses pas faisait vaciller la terre.
 
-Il atteignit Shi Xiao en trois enjambées et grimaça: « Petite poupée, moi, le vénérable Tian Kui de la Secte des Esprits Géants, je suis l'adjoint du général démon Mu Yun! »
+Il atteignit Shi Xiao en trois enjambées et grimaça: « Petite poupée, moi, le vénérable Tian Kui de la Secte Ju Ling, je suis l'adjoint du général démon Mu Yun! »
 
-Wang Lin observa l'homme massif. La Secte des Esprits Géants était une puissance majeure de la planète Tian Yun, semblable au Clan des Démons Géants par son culte de la force brute!
+Wang Lin observa l'homme massif. La Secte Ju Ling était une puissance majeure de la planète Tian Yun, semblable au Clan Ju Mo par son culte de la force brute!
 
 Le géant poussa un rugissement et fit un pas en avant; alors, une énergie spirituelle céleste jaillit de ses pores pour se transformer en brume. Dissimulé dans ce nuage, il fonça sur Shi Xiao!
 

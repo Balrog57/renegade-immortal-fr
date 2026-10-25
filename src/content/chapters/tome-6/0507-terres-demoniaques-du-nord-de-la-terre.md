@@ -24,11 +24,11 @@ Wang Lin serra le poing; les restrictions scintillantes à l'intérieur s'effond
 
 « Puisque je cultive l'Art du Massacre Céleste, autant affiner également le drapeau d'âme. Ainsi, mes chances de survie sur la planète Tian Yun augmenteront! »
 
-« De plus, Maître veut que j'aille dans la Mer de l'Est dans trois mois. Il ne me reste guère plus d'un mois. Dois-je y aller ou non... » Le Sens Divin de Wang Lin se propagea sur Ling Yue avant que son corps ne se change en fumée et ne disparaisse.
+« De plus, Maître veut que j'aille dans la Mer Dong dans trois mois. Il ne me reste guère plus d'un mois. Dois-je y aller ou non... » Le Sens Divin de Wang Lin se propagea sur Ling Yue avant que son corps ne se change en fumée et ne disparaisse.
 
-Ling Yue, Montagne des Cinq Esprits.
+Ling Yue, Montagne Wu Ling.
 
-Le cultivateur numéro un de Ling Yue, le vieil homme qui se trouvait à une demi-étape du stade Ascendant, était le vieux Tian Tai de la Montagne des Cinq Esprits. Il était actuellement assis au sommet de la montagne, absorbant la puissance de la lune pour sa culture.
+Le cultivateur numéro un de Ling Yue, le vieil homme qui se trouvait à une demi-étape du stade Ascendant, était le vieux Tian Tai de la Montagne Wu Ling. Il était actuellement assis au sommet de la montagne, absorbant la puissance de la lune pour sa culture.
 
 Le vieux Tian Tai ouvrit les yeux. Son regard était calme alors qu'il contemplait le vide et dit lentement: « Le vieux Tian Tai salue le Messager. »
 
@@ -110,7 +110,7 @@ Parmi les trois hommes, l'un était d'une grande beauté et d'âge moyen. Il por
 
 Après avoir entendu la jeune fille, il sourit légèrement et dit: « Ce n'est pas un lieu interdit, et de nombreuses personnes de diverses sectes viennent s'y entraîner; voir d'autres individus ici n'a donc rien d'anormal. Une fois que l'Oncle-Maître et les autres seront arrivés, nous entrerons ensemble. À ce moment-là, tous les cultivateurs que nous croiserons nous éviteront, ne t'en fais pas. »
 
-Un autre des trois hommes, qui semblait avoir vingt-sept ou vingt-huit ans et portait une robe bleue, sourit et ajouta: « C'est vrai. Le frère Guo appartient à la Secte de l'Épée Da Luo, l'une des deux plus grandes sectes de la planète Tian Yun. Même s'il rencontre des disciples de la Secte du Destin Céleste, s'ils sont trop faibles, ils s'écarteront de lui. Quant aux petites sectes de la planète Terre, n'en parlons même pas. »
+Un autre des trois hommes, qui semblait avoir vingt-sept ou vingt-huit ans et portait une robe bleue, sourit et ajouta: « C'est vrai. Le frère Guo appartient à la Secte Da Luo Jian, l'une des deux plus grandes sectes de la planète Tian Yun. Même s'il rencontre des disciples de la Secte Tian Yun, s'ils sont trop faibles, ils s'écarteront de lui. Quant aux petites sectes de la planète Terre, n'en parlons même pas. »
 
 Quant au dernier homme et à la dernière femme, ils restèrent silencieux. La femme laissa même paraître une pointe de haine en regardant les trois autres, particulièrement l'homme nommé Guo, et sa rancœur n'était nullement dissimulée.
 
@@ -118,10 +118,10 @@ En termes d'apparence, cette femme était la plus belle des deux. Elle portait u
 
 L'homme nommé Guo eut un léger sourire. Il ne semblait nullement affecté par l'attitude de la femme et dit doucement: « Dame Qian Qin, détendez-vous. Je vous promets de vous laisser un Fruit d'Or Brillant, suffisamment pour que vous puissiez en rapporter à votre secte! »
 
-Le visage de la femme nommée Qian Qin se crispa d'une intention meurtrière alors qu'elle fixait l'homme nommé Guo et lança froidement: « Même avec la renommée de la Secte de l'Épée Da Luo, je ne peux croire que vous utilisiez des méthodes aussi méprisables. Je suis vraiment aveugle d'avoir pu croire en vous! »
+Le visage de la femme nommée Qian Qin se crispa d'une intention meurtrière alors qu'elle fixait l'homme nommé Guo et lança froidement: « Même avec la renommée de la Secte Da Luo Jian, je ne peux croire que vous utilisiez des méthodes aussi méprisables. Je suis vraiment aveugle d'avoir pu croire en vous! »
 
 L'homme nommé Guo secoua la tête et répondit: « Si l'on a de la chance, n'importe qui peut apprendre l'existence de ces trésors célestes. Le Fruit d'Or Brillant est d'une utilité immense pour mon Oncle-Maître. Puisque vous m'avez sollicité, je me dois d'en informer ma secte. »
 
 La silhouette de Wang Lin progressait dans la chaîne de montagnes avec la rapidité de l'éclair, et son regard devint glacial.
 
-« La Secte de l'Épée Da Luo... intéressant. Ce sera une bonne occasion de tenter de trouver des informations sur l'emplacement du senior Zhou Yi. Je me demande simplement ce qu'est ce Fruit d'Or Brillant... »
+« La Secte Da Luo Jian... intéressant. Ce sera une bonne occasion de tenter de trouver des informations sur l'emplacement du senior Zhou Yi. Je me demande simplement ce qu'est ce Fruit d'Or Brillant... »

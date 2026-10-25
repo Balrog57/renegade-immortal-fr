@@ -10,7 +10,7 @@ En conséquence, leur vitesse augmenta.
 
 Tandis que Wang Lin volait, il ajusta son Royaume Ji. Après cette série de combats, celui-ci était légèrement épuisé; les éclairs rouges se fondirent profondément dans sa conscience pour le nourrir lentement.
 
-À midi le second jour, la Secte de la Lutte contre le Mal apparut à l'horizon. À ce moment-là, le Royaume Ji de Wang Lin s'était rétabli. En observant la montagne, il vit que son sommet avait été transformé pour prendre la forme d'un dragon. On aurait dit qu'un dragon reposait sur la cime. Sur la tête de la créature se tenait un vieil homme aux cheveux blancs. Son visage était sombre et son regard glacial alors qu'il fixait Wang Lin.
+À midi le second jour, la Secte Dou Xie apparut à l'horizon. À ce moment-là, le Royaume Ji de Wang Lin s'était rétabli. En observant la montagne, il vit que son sommet avait été transformé pour prendre la forme d'un dragon. On aurait dit qu'un dragon reposait sur la cime. Sur la tête de la créature se tenait un vieil homme aux cheveux blancs. Son visage était sombre et son regard glacial alors qu'il fixait Wang Lin.
 
 Dix cultivateurs du stade de Formation du Noyau flottaient dans les airs, formant ensemble une formation d'épées. Lorsqu'ils aperçurent Wang Lin, leurs visages se muèrent en expressions complexes, empreintes de peur et de choc. Les dix hommes formèrent un cercle dont le centre était occupé par dix épées volantes entrelacées. Les lames s'entrechoquaient dans un fracas métallique, projetant des gerbes d'étincelles.
 
@@ -18,11 +18,11 @@ L'homme au sommet du dragon fit un geste de la main. Les yeux du dragon s'illumi
 
 Shang Guanmo observa attentivement avant de s'exclamer: « La Grande Formation du Dragon de Bataille! »
 
-Mu Bei expliqua rapidement: « Cette Grande Formation du Dragon de Bataille est la formation de protection de la Secte de la Lutte contre le Mal. La rumeur prétend que seuls des cultivateurs au niveau de l'Âme Naissante peuvent la briser, mais peu de membres de la secte y croient. Après tout, personne dans cette région ne possède une formation aussi puissante. »
+Mu Bei expliqua rapidement: « Cette Grande Formation du Dragon de Bataille est la formation de protection de la Secte Dou Xie. La rumeur prétend que seuls des cultivateurs au niveau de l'Âme Naissante peuvent la briser, mais peu de membres de la secte y croient. Après tout, personne dans cette région ne possède une formation aussi puissante. »
 
 Wang Lin possédait une certaine expertise en matière de formations et, après l'avoir examinée un instant, Li Muwan déclara soudain: « Ce n'est pas une formation, mais un sortilège incroyable qui canalise les âmes de tous ceux présents sur le dragon vers la personne située au sommet de sa tête, lui conférant ainsi temporairement un certain niveau de culture. »
 
-À cet instant, les yeux de l'homme debout sur la tête du dragon s'illuminèrent et il rugit: « Camarade cultivateur visé par l'ordre de mise à mort, je suis Jie Donglei, chef de la Secte de la Lutte contre le Mal. Toute la secte, 13 562 personnes, est réunie ici. Le Grand Ancien Qian Kun t'a provoqué; tu l'as tué, soit. Mais puisque tu es venu en ce lieu aujourd'hui, si tu parviens à briser la formation d'épées des Anciens de ma secte, la Secte de la Lutte contre le Mal obéira à tes ordres à partir de maintenant; mais si tu perds, ne blâme pas ce vieil homme de t'arracher ta pilule de culture. Oses-tu relever le défi? »
+À cet instant, les yeux de l'homme debout sur la tête du dragon s'illuminèrent et il rugit: « Camarade cultivateur visé par l'ordre de mise à mort, je suis Jie Donglei, chef de la Secte Dou Xie. Toute la secte, 13 562 personnes, est réunie ici. Le Grand Ancien Qian Kun t'a provoqué; tu l'as tué, soit. Mais puisque tu es venu en ce lieu aujourd'hui, si tu parviens à briser la formation d'épées des Anciens de ma secte, la Secte Dou Xie obéira à tes ordres à partir de maintenant; mais si tu perds, ne blâme pas ce vieil homme de t'arracher ta pilule de culture. Oses-tu relever le défi? »
 
 Sa voix tonna comme le tonnerre et se propagea dans toute la zone. Les 13 562 disciples hurlèrent à l'unisson, et sous ce cri, l'épaisse brume du ciel se changea en ondulations qui se dispersèrent en vagues successives. Des dizaines de milliers de lueurs d'épées scintillèrent, et l'énergie spirituelle se transmit rapidement depuis les disciples du bas; peu à peu apparut un anneau d'énergie spirituelle visible à l'œil nu, montant du bas vers le haut. Plus il se concentrait vers la tête du dragon, plus l'anneau était grand, et plus la pression de l'énergie spirituelle était lourde.
 
@@ -32,7 +32,7 @@ Wang Lin lâcha Li Muwan et bondit en avant, des éclairs rouges brillant dans s
 
 Le regard de Wang Lin les balaya avant qu'il ne traîne le tendon de dragon derrière lui, projetant des milliers de corps contre la créature.
 
-Lorsque ces milliers de corps percutèrent le dragon dans un fracas, ils furent tous arrêtés par un voile de lumière apparu soudain et se changèrent en brume de sang. Aussitôt, tout le voile de lumière défensif extérieur de la Secte de la Lutte contre le Mal fut teinté d'un rouge sombre.
+Lorsque ces milliers de corps percutèrent le dragon dans un fracas, ils furent tous arrêtés par un voile de lumière apparu soudain et se changèrent en brume de sang. Aussitôt, tout le voile de lumière défensif extérieur de la Secte Dou Xie fut teinté d'un rouge sombre.
 
 Le grand anneau de lumière passa du corps du dragon à l'homme au sommet de sa tête. Une aura puissante émana de son corps et ses vêtements se déchirèrent alors qu'il grandissait soudainement pour atteindre plusieurs fois sa taille originelle.
 
@@ -48,7 +48,7 @@ Le regard de Jie Donglei se posa sur Wang Lin, puis il eut un sourire sardonique
 
 Le visage de Li Muwan pâlit. Elle regarda Wang Lin avec inquiétude. Cependant, en apercevant une pointe de dédain dans les yeux de celui-ci, elle se détendit pour une raison inconnue.
 
-Mu Nan et Mu Bei gémirent intérieurement. Ils pensaient initialement que la victoire de Wang Lin était certaine, mais la situation venait de basculer. Ce qui les attendait désormais, c'était la fureur du chef de secte Jie Donglei; il faut dire que la Secte de la Lutte contre le Mal avait un système cruel pour traiter les traîtres.
+Mu Nan et Mu Bei gémirent intérieurement. Ils pensaient initialement que la victoire de Wang Lin était certaine, mais la situation venait de basculer. Ce qui les attendait désormais, c'était la fureur du chef de secte Jie Donglei; il faut dire que la Secte Dou Xie avait un système cruel pour traiter les traîtres.
 
 Le sang d'essence d'âme de Shang Guanmo était entre les mains de Wang Lin; si ce dernier mourait, il mourrait également. Le cœur battant, il cherchait en secret comment briser la formation.
 
@@ -88,7 +88,7 @@ Li Muwan, très perspicace, comprit immédiatement la situation. Elle demanda do
 
 « La blessure infligée par la flamme de glace était réelle, mais lorsqu'il a reculé à moins de trois cents pieds de la tête du dragon, l'énergie spirituelle l'avait déjà complètement guéri. Il essayait simplement de me forcer à combattre dans un rayon de trois cents pieds autour de la tête du dragon. » C'était la première fois que Wang Lin s'adressait autant à Li Muwan, mais bien qu'il conversât avec elle, son regard ne quittait jamais Jie Donglei.
 
-Lorsqu'il avait vu la formation pour la première fois, il avait été stupéfait. Si une telle chose existait, ne serait-il pas invincible dans cette région? Tant qu'il disposerait de suffisamment de personnes pour fournir l'énergie spirituelle, il pourrait véritablement atteindre un niveau de puissance comparable à celui d'un cultivateur au stade de la Formation de l'Âme. Dans ce cas, la Secte de la Lutte contre le Mal aurait déjà pris le contrôle de la ville de Nan Dou et serait la première dans un rayon d'un million de lieues.
+Lorsqu'il avait vu la formation pour la première fois, il avait été stupéfait. Si une telle chose existait, ne serait-il pas invincible dans cette région? Tant qu'il disposerait de suffisamment de personnes pour fournir l'énergie spirituelle, il pourrait véritablement atteindre un niveau de puissance comparable à celui d'un cultivateur au stade de la Formation de l'Âme. Dans ce cas, la Secte Dou Xie aurait déjà pris le contrôle de la ville de Nan Dou et serait la première dans un rayon d'un million de lieues.
 
 En conséquence, cette technique devait impérativement présenter une faille fatale. La première chose à laquelle on aurait pu penser était la durée limitée de l'effet, et l'utilisateur de la technique devait en être conscient; il devait donc utiliser un moyen pour masquer ce défaut.
 

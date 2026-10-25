@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1211 - Azure Dragon Divine Emperor
 slug: empereur-divin-du-dragon-azure
 ---
-Quatre anciens étaient assis à l'extérieur du Temple du Dragon Azure, là où se trouvait l'Empereur Divin du Dragon Azure. Tous quatre étaient des anciens de la Secte Divine du Dragon Azure, et l'anxiété se lisait sur leurs visages.
+Quatre anciens étaient assis à l'extérieur du Temple Qing Long, là où se trouvait l'Empereur Divin du Dragon Azure. Tous quatre étaient des anciens de la Secte Divine du Dragon Azure, et l'anxiété se lisait sur leurs visages.
 
 Des rugissements continuaient d'émaner du temple, résonnant à travers le monde. Ces hurlements étaient empreints d'une douleur infinie, faisant trembler l'esprit de quiconque les entendait.
 
@@ -16,7 +16,7 @@ L'homme à ses côtés s'apprêtait à répondre lorsque les hurlements provenan
 
 Le temple trembla, et une multitude de restrictions apparurent pour empêcher son effondrement. Les quatre hommes à l'extérieur se regardèrent, partageant la même panique et la même angoisse.
 
-À l'intérieur du Temple du Dragon Azure, un vieil homme était assis. Ce dernier était chétif et son visage était déformé par une douleur inimaginable. Des perles de sueur trempaient ses vêtements tandis que des rugissements incessants résonnaient dans les halls.
+À l'intérieur du Temple Qing Long, un vieil homme était assis. Ce dernier était chétif et son visage était déformé par une douleur inimaginable. Des perles de sueur trempaient ses vêtements tandis que des rugissements incessants résonnaient dans les halls.
 
 Sur ses épaules, ses jambes, ses hanches et sa poitrine, huit chaînes noires l'immobilisaient, reliées aux parois de la chambre. Quatre trésors flottaient également autour de lui; n'importe qui au sein des Quatre Sectes Divines les reconnaîtrait immédiatement: c'étaient les Quatre Trésors Sacrés!
 
@@ -46,7 +46,7 @@ D'un revers de manches, il sortit de la chambre. Il regarda les quatre hommes de
 
 « L'ancien dieu à l'intérieur de la fissure spatiale liée à la planète Suzaku est sur le point de s'éveiller! Cependant, nous avons suivi les ordres du Souverain Divin et avons mis en place la grande formation primordiale en utilisant le sang et les sceaux des quatre clans! »
 
-En entendant ces mots, l'Empereur Divin du Dragon Azure hocha silencieusement la tête. Il regarda au loin d'un regard complexe et, après un long moment, une froideur glaciale passa dans ses yeux. Sa voix, empreinte d'une intention meurtrière, tonna: « Le Royaume du Vide Brillant est plongé dans le chaos depuis trop longtemps, et Luotian en a profité pour envahir. Convoquez tous les membres des Quatre Sectes Divines. Je vais reprendre le contrôle du Royaume du Vide Brillant. Tous les cultivateurs devront soit se soumettre, soit mourir! »
+En entendant ces mots, l'Empereur Divin du Dragon Azure hocha silencieusement la tête. Il regarda au loin d'un regard complexe et, après un long moment, une froideur glaciale passa dans ses yeux. Sa voix, empreinte d'une intention meurtrière, tonna: « Le Royaume Kun Xu est plongé dans le chaos depuis trop longtemps, et Luotian en a profité pour envahir. Convoquez tous les membres des Quatre Sectes Divines. Je vais reprendre le contrôle du Royaume Kun Xu. Tous les cultivateurs devront soit se soumettre, soit mourir! »
 
 Les quatre anciens tressaillirent, et leurs yeux s'illuminèrent d'excitation. Ils se précipitèrent pour transmettre cet ordre à l'ensemble de la Secte Divine des Quatre!
 

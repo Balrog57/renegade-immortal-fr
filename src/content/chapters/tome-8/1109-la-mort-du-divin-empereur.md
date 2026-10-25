@@ -20,13 +20,13 @@ Une aura de mort émanait de l'ancien Divin Empereur. Wang Lin n'avait même pas
 
 L'ancien Divin Empereur leva la tête. Une lueur subsistait dans ses yeux qui ne crachaient plus que du sang noir.
 
-« Ton Senior Frère, Qing Shui, est bel et bien au siège de l'Alliance de Culture. Il y a quelques années, l'activation de la grande formation de l'Alliance de Culture était directement liée à lui... Il n'est pas mort... mais... il est devenu fou! »
+« Ton Senior Frère, Qing Shui, est bel et bien au siège de l'Alliance Xiu Zhen. Il y a quelques années, l'activation de la grande formation de l'Alliance Xiu Zhen était directement liée à lui... Il n'est pas mort... mais... il est devenu fou! »
 
-« L'Alliance de Culture cache un secret capable de faire trembler les cieux depuis d'innombrables années. Lorsque Maître Zhong Xuan et les autres se sont rendus dans le Royaume Céleste de la Pluie pour la première fois, ils n'ont pas seulement obtenu la plupart des héritages, ils ont aussi découvert des choses mystérieuses. Ils les étudient depuis toutes ces années... »
+« L'Alliance Xiu Zhen cache un secret capable de faire trembler les cieux depuis d'innombrables années. Lorsque Maître Zhong Xuan et les autres se sont rendus dans le Royaume Céleste de la Pluie pour la première fois, ils n'ont pas seulement obtenu la plupart des héritages, ils ont aussi découvert des choses mystérieuses. Ils les étudient depuis toutes ces années... »
 
-« Je crains que même le Royaume du Vide Brillant n'en sache rien. Ces choses mystérieuses sont trop importantes; elles pourraient affecter les quatre Royaumes Célestes! »
+« Je crains que même le Royaume Kun Xu n'en sache rien. Ces choses mystérieuses sont trop importantes; elles pourraient affecter les quatre Royaumes Célestes! »
 
-« Wang Lin, va vite sauver l'Empereur Divin du Dragon Azure, puis envoie immédiatement ce jade au Royaume du Vide Brillant. Cette affaire est trop terrifiante! Ton niveau de culture n'est pas assez élevé, ne t'implique pas dans tout cela! » L'ancien Divin Empereur était déjà sur son lit de mort; après avoir déversé tant de paroles d'un coup, il fut contraint de chercher son souffle.
+« Wang Lin, va vite sauver l'Empereur Divin du Dragon Azure, puis envoie immédiatement ce jade au Royaume Kun Xu. Cette affaire est trop terrifiante! Ton niveau de culture n'est pas assez élevé, ne t'implique pas dans tout cela! » L'ancien Divin Empereur était déjà sur son lit de mort; après avoir déversé tant de paroles d'un coup, il fut contraint de chercher son souffle.
 
 Cependant, il lutta encore pour lever sa main droite et pointer l'espace entre ses sourcils. Son âme originelle s'échappa soudainement de son corps et regarda Wang Lin avec un regard empreint de douceur.
 
@@ -74,7 +74,7 @@ La gloire passée s'était envolée avec le vent. La quête sans regret n'appart
 
 Après le décès de l'ancien Empereur Divin de l'Oiseau Vermillon, Luotian rappela tous ses cultivateurs. Sous le commandement du Maître Yan Leizi, ils se dirigèrent vers la planète Suzaku! Même la seule famille possédant un héritage du monde antique de la culture vint de Luotian pour les rejoindre! Les palais du Temple Céleste du Tonnerre se déplaçaient parmi les cultivateurs, dégageant des vagues de pression écrasantes.
 
-Non seulement eux, mais la Secte des Cadavres envoya presque l'intégralité de ses membres vers la planète Suzaku! De longues processions de disciples portant des cercueils traversaient les étoiles, telle une marche funèbre.
+Non seulement eux, mais la Secte Shi Yin envoya presque l'intégralité de ses membres vers la planète Suzaku! De longues processions de disciples portant des cercueils traversaient les étoiles, telle une marche funèbre.
 
 Ces mouvements attirèrent immédiatement l'attention des diverses forces de l'Alliance. Après avoir pris connaissance des informations transmises par les jades, les différentes factions se réunirent en secret et déployèrent leurs propres troupes!
 

@@ -20,7 +20,7 @@ Un sentiment de mépris l'envahit, et sa voix devint naturellement plus glaciale
 
 Wang Lin ne fut pas affecté par son ton et répondit calmement: « Les trésors et les méthodes de culture, je n'en manque pas. Le mieux serait de les convertir en davantage de jades célestes! »
 
-Le mépris dans le cœur de Yao Xixue s'intensifia et elle déclara: « La caverne de mon père, Xue Zu, regorge de jades célestes. Je vous donnerai un jeton de sang et, une fois que vous aurez quitté la Terre des Esprits Démoniaques, vous pourrez aller les chercher vous-même! »
+Le mépris dans le cœur de Yao Xixue s'intensifia et elle déclara: « La caverne de mon père, Xue Zu, regorge de jades célestes. Je vous donnerai un jeton de sang et, une fois que vous aurez quitté la Terre Yao Ling, vous pourrez aller les chercher vous-même! »
 
 Wang Lin hocha la tête: « Très bien, mais cette affaire est périlleuse, je dois encore y réfléchir. »
 
@@ -118,7 +118,7 @@ Cao Yidou semblait ne pas l'avoir entendu. Pour lui seul, la pilule comptait. Il
 
 En voyant son état, Wang Lin fronça les sourcils et laissa échapper un reniflement glacial. Ce souffle pénétra l'âme de Cao Yidou comme un seau d'eau glacée, le ramenant brusquement à la raison.
 
-Surpris par la question, il secoua amèrement la tête: « Pas élevée, sinon la Secte des Cadavres ne m'aurait pas envoyé sur la planète Suzaku pour posséder un corps. »
+Surpris par la question, il secoua amèrement la tête: « Pas élevée, sinon la Secte Shi Yin ne m'aurait pas envoyé sur la planète Suzaku pour posséder un corps. »
 
 Les yeux de Wang Lin s'illuminèrent: « Si ton statut n'est pas élevé, comment peux-tu connaître autant de choses sur la Pilule de l'Âme Sanguine, au point de savoir différencier le vrai du faux? »
 

@@ -56,7 +56,7 @@ D'un geste de Lanmeng Daozun, le monde trembla et reprit son état normal. Une p
 
 « Que tu puisses comprendre ces trois sorts dépendra de ton propre destin. » Lanmeng Daozun fit un pas en avant et se changea en une lueur bleue. Seules ses dernières paroles, murmurées comme pour lui-même, résonnèrent après sa disparition:
 
-« Si elle peut recouvrer la mémoire, que m'importe le Clan de la Soie Bleue... même si je deviens un traître au Système Stellaire Antique, qu'importe? » Ses mots étaient empreints de détermination, révélant son caractère et répondant à la question que Wang Lin s'était posée plus tôt...
+« Si elle peut recouvrer la mémoire, que m'importe le Clan Lan Si... même si je deviens un traître au Système Stellaire Antique, qu'importe? » Ses mots étaient empreints de détermination, révélant son caractère et répondant à la question que Wang Lin s'était posée plus tôt...
 
 Les environs devinrent silencieux et le monde retrouva sa paix. Tout ce qui venait de se produire semblait n'être qu'une illusion, un simple souvenir.
 

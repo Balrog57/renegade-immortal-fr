@@ -6,21 +6,21 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1852 - Speculation!"
 slug: speculations
 ---
-Wang Lin était perplexe face à une chose: ce sentiment étrange qu'il avait éprouvé en voyant les grues de papier. Qu'il s'agisse du Continent du Démon Vert ou du Continent du Taureau Céleste, tous appartenaient au Clan Céleste.
+Wang Lin était perplexe face à une chose: ce sentiment étrange qu'il avait éprouvé en voyant les grues de papier. Qu'il s'agisse du Continent Lu Mo ou du Continent Tian Niu, tous appartenaient au Clan Céleste.
 
-Les sectes des deux continents s'étaient peut-être entretuées par le passé, mais l'idée de raffiner la Mer des Pilules pour faire exploser de force la barrière d'un autre continent et l'envahir laissait à Wang Lin d'autres réflexions.
+Les sectes des deux continents s'étaient peut-être entretuées par le passé, mais l'idée de raffiner la Mer Dan pour faire exploser de force la barrière d'un autre continent et l'envahir laissait à Wang Lin d'autres réflexions.
 
 Il ne s'agissait plus de querelles privées entre sectes, mais d'une véritable guerre!
 
 « Intéressant... J'espère que mes spéculations ne se réaliseront pas. Sinon, plus il y aura de morts, moins je ressentirai de liens avec le Clan Céleste. »
 
-« Si c'est réellement ce que je soupçonne, alors cela glace le sang! Que ce soit le Continent du Démon Vert ou le Continent du Taureau Céleste, peut-être que... » Wang Lin méditait silencieusement, assis sur le dos du Roi Moustique. Ses pensées étaient nombreuses: il songeait à la façon dont la Secte de la Grande Âme lui avait laissé trois cadeaux, et au fait que l'Illustre Taureau Vert avait affirmé que l'Ancêtre Fondateur de la Secte de la Grande Âme avait diviné son arrivée.
+« Si c'est réellement ce que je soupçonne, alors cela glace le sang! Que ce soit le Continent Lu Mo ou le Continent Tian Niu, peut-être que... » Wang Lin méditait silencieusement, assis sur le dos du Roi Moustique. Ses pensées étaient nombreuses: il songeait à la façon dont la Secte Da Hun lui avait laissé trois cadeaux, et au fait que l'Illustre Taureau Vert avait affirmé que l'Ancêtre Fondateur de la Secte Da Hun avait diviné son arrivée.
 
-Tout cela avait un but immense. Un but crucial pour la Secte de la Grande Âme et le Continent du Démon Vert!
+Tout cela avait un but immense. Un but crucial pour la Secte Da Hun et le Continent Lu Mo!
 
-C'est pourquoi le Continent du Démon Vert avait lancé d'innombrables petites incursions contre le Continent du Taureau Céleste. Mais cette fois, ils passaient à l'offensive majeure en raffinant la Mer des Pilules pour forcer le passage vers le Continent du Taureau Céleste!
+C'est pourquoi le Continent Lu Mo avait lancé d'innombrables petites incursions contre le Continent Tian Niu. Mais cette fois, ils passaient à l'offensive majeure en raffinant la Mer Dan pour forcer le passage vers le Continent Tian Niu!
 
-Ainsi, il y a de nombreuses années, la Secte de la Grande Âme s'était installée ici. L'Ancêtre Fondateur de la Secte de la Grande Âme avait diviné les bouleversements à venir, tout cela pour ce secret longtemps gardé!
+Ainsi, il y a de nombreuses années, la Secte Da Hun s'était installée ici. L'Ancêtre Fondateur de la Secte Da Hun avait diviné les bouleversements à venir, tout cela pour ce secret longtemps gardé!
 
 Wang Lin médita en silence et ouvrit sa paume. Une petite silhouette apparut dans sa main; il l'observa longuement. Finalement, il ne l'utilisa pas pour diviner l'avenir, mais referma sa main pour la ranger.
 
@@ -28,23 +28,23 @@ Wang Lin médita en silence et ouvrit sa paume. Une petite silhouette apparut da
 
 Wang Lin excellait dans ce genre d'exercice. Il pouvait aussi ne pas se soucier de cette guerre et partir plus tôt.
 
-Dix jours plus tard, Wang Lin apparut aux abords de la Secte de la Grande Âme. À l'instant même de son arrivée, plusieurs rayons de lumière foncèrent vers lui. Il sentit que la Secte de la Grande Âme semblait plongée dans un brouillard et enveloppée de distorsions.
+Dix jours plus tard, Wang Lin apparut aux abords de la Secte Da Hun. À l'instant même de son arrivée, plusieurs rayons de lumière foncèrent vers lui. Il sentit que la Secte Da Hun semblait plongée dans un brouillard et enveloppée de distorsions.
 
-Des vagues d'intention meurtrière, si intenses qu'elles firent se rétracter ses pupilles, émanaient de ces distorsions. Cette intention ne lui était pas destinée; elle faisait simplement partie de la formation de protection de la Secte de la Grande Âme.
+Des vagues d'intention meurtrière, si intenses qu'elles firent se rétracter ses pupilles, émanaient de ces distorsions. Cette intention ne lui était pas destinée; elle faisait simplement partie de la formation de protection de la Secte Da Hun.
 
-La distorsion enveloppait la secte, rendant l'intérieur invisible. Wang Lin sentit que la Secte de la Grande Âme était en mode combat. C'était comme un volcan sur le point d'entrer en éruption, une atmosphère oppressante.
+La distorsion enveloppait la secte, rendant l'intérieur invisible. Wang Lin sentit que la Secte Da Hun était en mode combat. C'était comme un volcan sur le point d'entrer en éruption, une atmosphère oppressante.
 
 Ce n'était que son ressenti face à ce spectacle; cela pouvait être une réalité ou une simple illusion. Les rayons de lumière se rapprochèrent de lui, empreints de prudence et d'hostilité.
 
 Cependant, dès que cette intention meurtrière identifia clairement Wang Lin, elle se dissipa lentement, bien qu'ils restassent sur leurs gardes. Les rayons de lumière se matérialisèrent pour former sept personnes devant lui.
 
-Parmi elles se trouvaient deux Anciens de la Secte de la Grande Âme et cinq disciples.
+Parmi elles se trouvaient deux Anciens de la Secte Da Hun et cinq disciples.
 
 « Ancien Wang, pardonnez notre offense! » L'un des Anciens avait déjà parlé à Wang Lin par le passé; il avait observé son combat contre Yan Luan.
 
-L'un des Anciens joignit les mains et déclara solennellement: « Le Continent du Démon Vert a brisé la barrière de mon Continent du Taureau Céleste, et l'Ancêtre a ordonné le scellement de la secte. Quiconque revient, qu'il soit Ancien ou disciple, quel que soit son statut, doit être rigoureusement inspecté avant d'entrer. »
+L'un des Anciens joignit les mains et déclara solennellement: « Le Continent Lu Mo a brisé la barrière de mon Continent Tian Niu, et l'Ancêtre a ordonné le scellement de la secte. Quiconque revient, qu'il soit Ancien ou disciple, quel que soit son statut, doit être rigoureusement inspecté avant d'entrer. »
 
-L'autre Ancien s'inclina également devant Wang Lin. Après avoir vu Wang Lin gravir les septième et huitième étages l'un après l'autre, peu de membres de la Secte de la Grande Âme osaient l'offenser.
+L'autre Ancien s'inclina également devant Wang Lin. Après avoir vu Wang Lin gravir les septième et huitième étages l'un après l'autre, peu de membres de la Secte Da Hun osaient l'offenser.
 
 Les cinq disciples à leurs côtés baissèrent la tête, jetant parfois des regards furtifs vers Wang Lin. C'était la première fois qu'ils le rencontraient en personne.
 
@@ -56,7 +56,7 @@ Devant l'attitude décontractée de Wang Lin, les deux hommes sourirent égaleme
 
 « Ancien Wang, veuillez présenter votre jeton. Marquez-le ensuite avec votre Sens Divin pour vérifier votre âme d'origine, puis déposez une goutte de sang pour authentifier votre corps », demanda l'un des Anciens en joignant les mains.
 
-Wang Lin hocha la tête et tendit sa main droite vers le vide. Le jeton qu'il avait utilisé pour entrer dans le Pavillon des Écritures de l'Âme apparut. Il le marqua de son Sens Divin, y déposa une goutte de sang, puis lança le jeton aux deux Anciens.
+Wang Lin hocha la tête et tendit sa main droite vers le vide. Le jeton qu'il avait utilisé pour entrer dans le Pavillon Cang Hun apparut. Il le marqua de son Sens Divin, y déposa une goutte de sang, puis lança le jeton aux deux Anciens.
 
 L'un d'eux saisit le jeton, traça un sceau, puis pointa la restriction derrière lui. Une pression puissante jaillit et frappa Wang Lin, traversant instantanément son corps.
 
@@ -66,15 +66,15 @@ Ces méthodes servaient à authentifier son identité. La pression se fixa ensui
 
 À ce moment précis, les deux Anciens furent totalement rassurés. Ils rendirent le jeton à Wang Lin et l'un d'eux rit: « Ancien Wang, excusez-nous pour ce désagrément. Vous pouvez franchir la restriction et regagner la secte. Nous sommes toujours de garde et devons retourner à notre poste, nous ne pouvons donc pas vous accompagner. Nous espérons que l'Ancien Wang comprendra. »
 
-Puisque les autres étaient polis envers lui, il l'était naturellement en retour. Ayant acquis, dans le Dao des Rêves du Monde des Cavernes, une aura de grand érudit, il dégageait un tempérament mystérieux. Il sourit et salua les deux hommes. Alors qu'il s'apprêtait à partir, il posa soudain une question:
+Puisque les autres étaient polis envers lui, il l'était naturellement en retour. Ayant acquis, dans le Dao des Rêves du Monde Dong Fu, une aura de grand érudit, il dégageait un tempérament mystérieux. Il sourit et salua les deux hommes. Alors qu'il s'apprêtait à partir, il posa soudain une question:
 
 « Quelque chose s'est-il passé récemment au sein de la secte...? »
 
-Les deux Anciens échangèrent un regard. L'un d'eux murmura: « Il y a sept jours, un cultivateur du Continent du Démon Vert tentait de s'infiltrer dans la Secte de la Grande Âme. Il a été découvert par l'Ancien Xu Dongde et tué sur-le-champ! »
+Les deux Anciens échangèrent un regard. L'un d'eux murmura: « Il y a sept jours, un cultivateur du Continent Lu Mo tentait de s'infiltrer dans la Secte Da Hun. Il a été découvert par l'Ancien Xu Dongde et tué sur-le-champ! »
 
 « L'Ancêtre était furieux, et puis... » L'Ancien eut un sourire amer et s'inclina une dernière fois avant de repartir.
 
-Wang Lin réfléchit en silence, puis s'envola vers la Secte de la Grande Âme. La sensation de pression y était encore plus intense.
+Wang Lin réfléchit en silence, puis s'envola vers la Secte Da Hun. La sensation de pression y était encore plus intense.
 
 Toute la secte grouillait d'activité; des rayons de lumière fusaient entre les différents sommets tandis que les disciples volaient. Des matériaux de raffinage massifs, trop volumineux pour être stockés, étaient transportés manuellement par des cultivateurs d'un pic à l'autre.
 
@@ -112,10 +112,10 @@ Un instant plus tard, la petite personne effectua six prosternations consécutiv
 
 « J'ai obtenu ton jade. Cette affaire sera comptée comme un mérite! » L'Illustre Taureau Vert ouvrit lentement les yeux et regarda Wang Lin avec un sourire.
 
-« Le Continent du Démon Vert a eu de nombreux petits conflits avec mon Continent du Taureau Céleste, mais c'est la première fois qu'ils entreprennent une action d'une telle ampleur. Ils ont réellement trouvé un moyen de raffiner la Mer des Pilules... »
+« Le Continent Lu Mo a eu de nombreux petits conflits avec mon Continent Tian Niu, mais c'est la première fois qu'ils entreprennent une action d'une telle ampleur. Ils ont réellement trouvé un moyen de raffiner la Mer Dan... »
 
-« Cette affaire ne se réglera pas de sitôt. Le Continent du Démon Vert possède trois grandes sectes, et leurs Ancêtres sont tous au même niveau de culture que moi. Cependant, ce n'est pas un problème. Je peux affronter deux d'entre eux à moi seul! » Les yeux de l'Illustre Taureau Vert brillaient d'une lueur froide. Le fait qu'il prenne l'initiative de dire cela signifiait que ce qu'il percevait via le Dao de l'Œil de l'Âme n'était guère encourageant.
+« Cette affaire ne se réglera pas de sitôt. Le Continent Lu Mo possède trois grandes sectes, et leurs Ancêtres sont tous au même niveau de culture que moi. Cependant, ce n'est pas un problème. Je peux affronter deux d'entre eux à moi seul! » Les yeux de l'Illustre Taureau Vert brillaient d'une lueur froide. Le fait qu'il prenne l'initiative de dire cela signifiait que ce qu'il percevait via le Dao de l'Œil de l'Âme n'était guère encourageant.
 
 L'expression de Wang Lin resta imperturbable. Il s'assit face à l'Illustre Taureau Vert et prit soudain la parole:
 
-« Je veux l'illusion multicouche du neuvième étage du Pavillon des Écritures de l'Âme! »
+« Je veux l'illusion multicouche du neuvième étage du Pavillon Cang Hun! »

@@ -46,7 +46,7 @@ En un clin d'œil, l'amas de jades célestes devint totalement noir!
 
 Toute l'énergie spirituelle céleste qu'elle contenait fut intégralement convertie en énergie spirituelle démoniaque!
 
-Dans la Terre des Esprits Démoniaques, le Doigt Démoniaque n'avait plus rien à voir avec ce qu'il était auparavant. Même si Situ Nan était venu personnellement pour utiliser le Doigt Démoniaque, il ne serait pas bien plus puissant que celui que Wang Lin employait en cet instant!
+Dans la Terre Yao Ling, le Doigt Démoniaque n'avait plus rien à voir avec ce qu'il était auparavant. Même si Situ Nan était venu personnellement pour utiliser le Doigt Démoniaque, il ne serait pas bien plus puissant que celui que Wang Lin employait en cet instant!
 
 Car Wang Lin n'avait pas seulement converti l'énergie spirituelle céleste de son propre corps, mais aussi celle de toute la colline de jades sous ses pieds, créant ainsi une quantité infinie d'énergie spirituelle démoniaque!
 
@@ -60,7 +60,7 @@ La lumière noire fondit sur la lumière rouge. À cet instant, le monde semblai
 
 Le rouge représentait la rétribution divine, et le noir représentait l'intention de défier les cieux!
 
-La collision entre le rouge et le noir fit trembler les cieux, et toute la Cité du Démon Céleste en fut ébranlée. Le séisme se propagea jusqu'aux montagnes et aux plaines environnantes!
+La collision entre le rouge et le noir fit trembler les cieux, et toute la Cité Tian Yao en fut ébranlée. Le séisme se propagea jusqu'aux montagnes et aux plaines environnantes!
 
 Des bruits d'explosions jaillirent du sol, comme si d'innombrables coups de tonnerre éclataient sous terre!
 
@@ -72,7 +72,7 @@ Les expressions de tous les commandants changèrent et ils battirent en retraite
 
 Dans le ciel surplombant Wang Lin, le rouge et le noir s'annulaient mutuellement. Grâce à la puissance du drapeau de restriction, aux Cent Doigts de la Mort, au dragon de massacre formé de plus de 3 700 brins d'énergie de massacre et imprégné du cœur de Wang Lin voulant tuer les cieux, et à l'innombrable jade céleste converti en énergie démoniaque pour forger le Doigt Démoniaque le plus puissant que Wang Lin ait jamais créé, la lumière rouge fut finalement neutralisée par cette fusion de sorts.
 
-Dès que la lumière rouge disparut, les tremblements cessèrent et tout sembla revenir à la normale. Cependant, la panique des innombrables habitants de la Cité du Démon Céleste créa une atmosphère oppressante qui enveloppa toute la ville.
+Dès que la lumière rouge disparut, les tremblements cessèrent et tout sembla revenir à la normale. Cependant, la panique des innombrables habitants de la Cité Tian Yao créa une atmosphère oppressante qui enveloppa toute la ville.
 
 Alors que l'éclair rouge s'éteignait, le visage de Wang Lin était d'une pâleur extrême. Il rattrapa la fiole de jade donnée par le Commandant Céleste. Une pilule se trouvait à l'intérieur, mais il ne la consomma pas. Il leva les yeux vers le ciel avec une expression grave.
 
@@ -98,7 +98,7 @@ Ce sort était extrêmement complexe. Même pour un tel individu, il fallut reco
 
 À peine eut-il terminé que le ciel changea subitement!
 
-Le nuage rouge se rassembla promptement au-dessus de la Cité du Démon Céleste. Une sensation de majesté émana des nuages rouges avant qu'ils ne recouvrent la ville entière.
+Le nuage rouge se rassembla promptement au-dessus de la Cité Tian Yao. Une sensation de majesté émana des nuages rouges avant qu'ils ne recouvrent la ville entière.
 
 Le jeune homme, suspendu dans les airs à l'extérieur de la cité, vit son expression changer une fois de plus en ressentant cette majesté!
 
@@ -122,7 +122,7 @@ Sous la puissance des cieux, l'onde de choc n'avait même pas la moindre capacit
 
 Wang Lin sentit son corps devenir pesant, comme si cinq tonnes s'abattaient sur lui. Il entendait des craquements sinistres émaner de ses propres os. À cet instant, Wang Lin eut l'illusion d'être broyé par le monde lui-même!
 
-C'était la même sensation qu'autrefois, lorsqu'il cultivait sous la pression du filon spirituel au sein de la Secte de l'Affinement de l'Âme. À l'époque, sa culture avait été gaspillée et il était redevenu un simple mortel.
+C'était la même sensation qu'autrefois, lorsqu'il cultivait sous la pression du filon spirituel au sein de la Secte Lian Hun. À l'époque, sa culture avait été gaspillée et il était redevenu un simple mortel.
 
 Peu après, la Puissance des Cieux bougea à nouveau, et tous les nuages rouges descendirent encore! Cette fois, la pression s'intensifia davantage et tous les palais entourant la place s'effondrèrent en mille morceaux!
 
@@ -134,7 +134,7 @@ Il leva la tête vers le nuage rouge et murmura doucement: « Je ne céderai pas
 
 Des éclats de tonnerre jaillirent du nuage rouge alors qu'il entamait une nouvelle descente. 3,3 centimètres, 3,3 centimètres, 3,3 centimètres! Cette fois, il descendit de près de dix centimètres d'affilée, et la Puissance des Cieux s'abattit avec fracas!
 
-La terre poussa un cri comme si elle ne pouvait plus supporter le poids. Tous les édifices du palais impérial furent broyés par cette pression. La cité impériale du Pays du Démon Céleste, qui s'était dressée pendant d'innombrables années, fut réduite en poussière, à l'exception du tambour démoniaque, objet sacré!
+La terre poussa un cri comme si elle ne pouvait plus supporter le poids. Tous les édifices du palais impérial furent broyés par cette pression. La cité impériale du Pays Tian Yao, qui s'était dressée pendant d'innombrables années, fut réduite en poussière, à l'exception du tambour démoniaque, objet sacré!
 
 À cet instant précis, c'était comme si le ciel lui-même s'était effondré!
 

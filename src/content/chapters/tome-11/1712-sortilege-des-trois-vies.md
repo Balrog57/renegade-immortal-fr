@@ -60,31 +60,31 @@ Une aura familière se dégagea de ce bassin octogonal, et Wang Lin fut envahi p
 
 « C'est donc bien cela!! »
 
-Il existait un clan dans le Système Stellaire Antique appelé le Clan de l'Extermination des Sceaux, et ils possédaient un sortilège nommé le Sortilège des Trois Vies! Pour cultiver ce sort, il fallait l'autel complet, mais pour une raison inconnue, celui-ci avait été divisé en trois parties qui s'étaient égarées.
+Il existait un clan dans le Système Stellaire Antique appelé le Clan Feng Mie, et ils possédaient un sortilège nommé le Sortilège des Trois Vies! Pour cultiver ce sort, il fallait l'autel complet, mais pour une raison inconnue, celui-ci avait été divisé en trois parties qui s'étaient égarées.
 
-Wang Lin avait eu la chance d'obtenir le Pavillon de Sang de Xue Zu dans le Vide Brillant. Ce pavillon était l'un des trois autels! Puis, il avait appris l'existence du Sortilège des Trois Vies et obtenu le deuxième autel auprès de l'Ancien Démon à Luotian.
+Wang Lin avait eu la chance d'obtenir le Pavillon Xue de Xue Zu dans le Vide Brillant. Ce pavillon était l'un des trois autels! Puis, il avait appris l'existence du Sortilège des Trois Vies et obtenu le deuxième autel auprès de l'Ancien Démon à Luotian.
 
-Quant au troisième autel, Wang Lin l'avait cherché sans succès. Mais en voyant cette lumière rouge, un grondement résonna dans son esprit et il commença à spéculer. Il était désormais certain que ce bassin de sang dégageait la même aura que le pavillon et l'autre autel. C'était l'aura du Clan de l'Extermination des Sceaux!
+Quant au troisième autel, Wang Lin l'avait cherché sans succès. Mais en voyant cette lumière rouge, un grondement résonna dans son esprit et il commença à spéculer. Il était désormais certain que ce bassin de sang dégageait la même aura que le pavillon et l'autre autel. C'était l'aura du Clan Feng Mie!
 
 « Le Sortilège des Trois Vies!! Je ne m'attendais pas à trouver le dernier autel ici. Si je parviens à l'apprendre, ma puissance globale augmentera considérablement! » Le cœur de Wang Lin battait la chamade. Il avait toujours été tenté par ce sort, et maintenant qu'il détenait le troisième autel, il était transporté de bonheur.
 
-Sans hésiter, Wang Lin agita la main: l'autel obtenu de l'Ancien Démon s'envola, suivi peu après par le Pavillon de Sang de Xue Zu!
+Sans hésiter, Wang Lin agita la main: l'autel obtenu de l'Ancien Démon s'envola, suivi peu après par le Pavillon Xue de Xue Zu!
 
-Une femme était autrefois entrée dans le Pavillon de Sang, une personne que Wang Lin connaissait. Cependant, au fil des années, son corps avait disparu pour ne laisser qu'un lambeau de son âme.
+Une femme était autrefois entrée dans le Pavillon Xue, une personne que Wang Lin connaissait. Cependant, au fil des années, son corps avait disparu pour ne laisser qu'un lambeau de son âme.
 
 Les trois autels flottaient devant lui, et les lueurs rouges qu'ils émettaient commencèrent à s'entremêler. Il était évident qu'ils étaient attirés l'un par l'autre!
 
-Wang Lin avait appris la méthode de culture du Sortilège des Trois Vies dans les souvenirs de cette femme du Clan de l'Extermination des Sceaux, dans la Tombe Antique. Après une courte réflexion, il s'assit.
+Wang Lin avait appris la méthode de culture du Sortilège des Trois Vies dans les souvenirs de cette femme du Clan Feng Mie, dans la Tombe Antique. Après une courte réflexion, il s'assit.
 
-« Le Sortilège des Trois Vies du Clan de l'Extermination des Sceaux est dangereux à apprendre... Cependant, comparés aux bénéfices, les risques en valent la peine! » La main droite de Wang Lin plongea vers le vide. Un emblème de clan émettant une lueur spectrale apparut dans sa paume.
+« Le Sortilège des Trois Vies du Clan Feng Mie est dangereux à apprendre... Cependant, comparés aux bénéfices, les risques en valent la peine! » La main droite de Wang Lin plongea vers le vide. Un emblème de clan émettant une lueur spectrale apparut dans sa paume.
 
-Cet emblème portait encore des traces de sang séché. C'était la marque du Clan de l'Extermination des Sceaux! Wang Lin l'avait extraite de la femme qui avait tenté de le tuer dans la Tombe Antique!
+Cet emblème portait encore des traces de sang séché. C'était la marque du Clan Feng Mie! Wang Lin l'avait extraite de la femme qui avait tenté de le tuer dans la Tombe Antique!
 
 Fixant l'emblème, Wang Lin le pressa entre ses sourcils. Une sensation de brûlure se propagea à partir du signe. Puis, d'innombrables ramifications s'étendirent de l'emblème pour s'attacher à lui.
 
 Cette douleur était insignifiante pour Wang Lin. Il resta calme, mordit le bout de sa langue et cracha une gorgée de sang.
 
-« Par le sceau, j'ouvre les Enfers. Je possède la marque du Clan de l'Extermination des Sceaux : j'invoque l'esprit ancestral du clan, qui perdure entre ciel et terre! Transforme-toi en lame de sceau pour trancher trois âmes, trois âmes originelles, trois corps! »
+« Par le sceau, j'ouvre les Enfers. Je possède la marque du Clan Feng Mie : j'invoque l'esprit ancestral du clan, qui perdure entre ciel et terre! Transforme-toi en lame de sceau pour trancher trois âmes, trois âmes originelles, trois corps! »
 
 Dès que la voix de Wang Lin résonna, le sang qu'il avait craché se condensa et commença à onduler frénétiquement devant lui. Puis, les trois autels libérèrent une lumière rouge aveuglante qui fut absorbée par le sang.
 

@@ -14,7 +14,7 @@ Bien qu'il paraisse calme, de puissantes ondes s'agitaient dans son cœur.
 
 « Serait-il possible... qu'il existe réellement un moyen de faire évoluer le Royaume Ji...? » Le cœur de Wang Lin s'emballa et sa bouche se dessécha. Ces quelques centaines d'années passées au sein du Royaume Ji lui avaient permis de comprendre profondément la nature de ce pouvoir incroyable.
 
-« Ji, Dao, Shi... » Wang Lin commença à méditer. Il en savait trop peu pour pouvoir tout analyser. Il poussa un soupir et cessa d'y songer pour concentrer son esprit sur le Pavillon des Collections.
+« Ji, Dao, Shi... » Wang Lin commença à méditer. Il en savait trop peu pour pouvoir tout analyser. Il poussa un soupir et cessa d'y songer pour concentrer son esprit sur le Pavillon Cang Jue.
 
 Traverser le vide aurait dû être une affaire fort ennuyeuse. Après tout, le vide était immense et la plupart des cultivateurs passaient le plus clair de leur temps sur les fragments; ils ne traversaient l'espace que pour passer d'un fragment à un autre. Cependant, après environ un demi-mois de progression dans le vide, ils commencèrent à voir de nombreux rayons de lumière apparaître au loin et à proximité.
 

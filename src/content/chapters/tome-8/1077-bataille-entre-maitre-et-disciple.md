@@ -112,10 +112,10 @@ L'aura émanant de son corps fit pousser un cri de stupeur à l'assistance. Mêm
 
 « Cela fait presque 20 000 ans que ce premier sceau n'avait pas été ouvert... Wang Lin, tu as réussi à me forcer à briser mon premier sceau et à libérer toute la puissance du premier Fléau Céleste. Je ne t'ai pas pris pour disciple pour rien! »
 
-À ce moment précis, une armée de plus de 10 000 cultivateurs apparut dans l'espace au-delà du nuage de poussière qui recouvrait la Terre des Esprits Démoniaques. À leur tête se tenait un vieil homme vêtu de blanc, débordant d'énergie spirituelle céleste. Il dégageait l'aura d'un être céleste, et derrière lui marchaient près de cent autres êtres de ce rang.
+À ce moment précis, une armée de plus de 10 000 cultivateurs apparut dans l'espace au-delà du nuage de poussière qui recouvrait la Terre Yao Ling. À leur tête se tenait un vieil homme vêtu de blanc, débordant d'énergie spirituelle céleste. Il dégageait l'aura d'un être céleste, et derrière lui marchaient près de cent autres êtres de ce rang.
 
 C'étaient les vestiges du Royaume Céleste de la Pluie. Ce vieillard en robe blanche était le Seigneur Céleste, second seulement au Seigneur Céleste Qing Shuang. En même temps, il était un Ancien de l'Alliance; sa puissance se situait juste en dessous de celle du Maître Zhong Xuan!
 
 De l'autre côté, une silhouette illusoire glissait à travers les étoiles. Bien que ses mouvements parussent lents, il franchissait en réalité des distances incommensurables d'un seul pas. C'était l'âme d'origine de l'Empereur Divin de l'Oiseau Vermillon.
 
-Deux autres personnes convergeaient vers la Terre des Esprits Démoniaques. Il s'agissait du vieil homme du Royaume du Vide Brillant et... de Mu Bingmei!
+Deux autres personnes convergeaient vers la Terre Yao Ling. Il s'agissait du vieil homme du Royaume Kun Xu et... de Mu Bingmei!

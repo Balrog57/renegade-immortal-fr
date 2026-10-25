@@ -66,7 +66,7 @@ Alors qu'il fuyait, l'espace derrière lui trembla; il sentait la présence du D
 
 Non seulement il avait pesé le gain potentiel face au risque, mais il avait également utilisé l'âme de Tian Yunzi pour diviner l'avenir. Il avait découvert que l'autel représentait la voie de la survie!
 
-Fan Shanlu avait mentionné que cette faille spatiale dans la Mer des Nuages s'était ouverte lors de la bataille où Lian Daofei fut dévoré par le Dao Céleste et où le Souverain Céleste aux Sept Couleurs fut brisé.
+Fan Shanlu avait mentionné que cette faille spatiale dans la Mer Yun s'était ouverte lors de la bataille où Lian Daofei fut dévoré par le Dao Céleste et où le Souverain Céleste aux Sept Couleurs fut brisé.
 
 Elle avait aussi précisé que cet endroit était relié à un espace mystérieux, ce qui expliquait l'apparition de tant de bêtes féroces.
 

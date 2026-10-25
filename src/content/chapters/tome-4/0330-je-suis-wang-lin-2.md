@@ -12,33 +12,33 @@ Aux yeux de Zhan Bai, son voyage vers le Royaume Céleste n'était qu'une source
 
 Zhan Bai ricana, puis fronça bientôt les sourcils en marmonnant: « La grenouille tonitruante de Ceng Niu est l'ennemie naturelle de mes insectes, ce sera donc un peu difficile. » Ses yeux s'illuminèrent et il prit une décision. Cette fois, il devait s'enfoncer plus profondément dans la Vallée Désolée des Neuf Fantômes pour obtenir le Roi des Insectes. Avec le Roi des Insectes, même la grenouille tonitruante perdrait de son efficacité.
 
-« Il est plus prudent de ne pas provoquer Ceng Niu avant cela. Si cet homme a pu arracher un bras à Hongdie, alors son niveau de culture ne doit pas être réellement celui d'un début de stade de Formation de l'Âme comme il le laisse paraître. Cependant, Suzaku est vaste. Même si je veux m'en prendre à lui, il sera difficile de le localiser. » Zhan Bai renifla. En un clin d'œil, il arriva devant la Secte du Ciel Nuageux.
+« Il est plus prudent de ne pas provoquer Ceng Niu avant cela. Si cet homme a pu arracher un bras à Hongdie, alors son niveau de culture ne doit pas être réellement celui d'un début de stade de Formation de l'Âme comme il le laisse paraître. Cependant, Suzaku est vaste. Même si je veux m'en prendre à lui, il sera difficile de le localiser. » Zhan Bai renifla. En un clin d'œil, il arriva devant la Secte Yun Tian.
 
-La Secte du Ciel Nuageux était entourée de nuages blancs. Ces nuages n'étaient pas naturels, mais constituaient une formation de protection de la secte. Non seulement cette formation protégeait la secte, mais elle avait également la capacité de masquer les fluctuations d'énergie spirituelle provenant de l'intérieur.
+La Secte Yun Tian était entourée de nuages blancs. Ces nuages n'étaient pas naturels, mais constituaient une formation de protection de la secte. Non seulement cette formation protégeait la secte, mais elle avait également la capacité de masquer les fluctuations d'énergie spirituelle provenant de l'intérieur.
 
-Zhan Bai flotta dans le ciel et observa les nuages un instant. Il afficha un sourire méprisant et cria: « Jeunes de la Secte du Ciel Nuageux, écoutez bien! Ouvrez la formation de protection, sortez toutes vos pilules, et que votre Maître de Secte vienne me saluer personnellement! »
+Zhan Bai flotta dans le ciel et observa les nuages un instant. Il afficha un sourire méprisant et cria: « Jeunes de la Secte Yun Tian, écoutez bien! Ouvrez la formation de protection, sortez toutes vos pilules, et que votre Maître de Secte vienne me saluer personnellement! »
 
-Le silence régna sur la Secte du Ciel Nuageux. Après un moment, une voix faible et douce s'éleva de la secte. Cependant, cette voix était empreinte de détermination.
+Le silence régna sur la Secte Yun Tian. Après un moment, une voix faible et douce s'éleva de la secte. Cependant, cette voix était empreinte de détermination.
 
-« L'Aîné est un cultivateur de la Formation de l'Âme; pourquoi imposer de telles difficultés à une petite secte comme la nôtre? Si vous avez besoin de pilules, veuillez nous le demander. Ma Secte du Ciel Nuageux fera de son mieux pour satisfaire vos besoins. »
+« L'Aîné est un cultivateur de la Formation de l'Âme; pourquoi imposer de telles difficultés à une petite secte comme la nôtre? Si vous avez besoin de pilules, veuillez nous le demander. Ma Secte Yun Tian fera de son mieux pour satisfaire vos besoins. »
 
-Zhan Bai afficha une expression moqueuse et dit: « Oh? Je suppose que c'est toi, la Maîtresse de la Secte du Ciel Nuageux. »
+Zhan Bai afficha une expression moqueuse et dit: « Oh? Je suppose que c'est toi, la Maîtresse de la Secte Yun Tian. »
 
-« Cette junior est la Maîtresse de la Secte du Ciel Nuageux. Aîné, je vous prie de ne pas accabler une petite secte comme la nôtre... » La voix de Li Muwan continua. Elle était toujours aussi mélodieuse qu'autrefois, empreinte d'une infinie douceur.
+« Cette junior est la Maîtresse de la Secte Yun Tian. Aîné, je vous prie de ne pas accabler une petite secte comme la nôtre... » La voix de Li Muwan continua. Elle était toujours aussi mélodieuse qu'autrefois, empreinte d'une infinie douceur.
 
 Zhan Bai renifla et déclara: « Je veux voir quel genre de beauté se cache derrière cette Maîtresse de Secte. » Sur ce, il tendit la main vers les nuages blancs dans un geste de saisie.
 
 Dans une série de craquements, les nuages blancs s'effondrèrent rapidement, mais ils se reformèrent aussitôt.
 
-« Qu'est-ce que c'est? Cette formation est mystérieuse. Elle n'a pas été placée par votre Secte du Ciel Nuageux? » Les yeux de Zhan Bai s'illuminèrent.
+« Qu'est-ce que c'est? Cette formation est mystérieuse. Elle n'a pas été placée par votre Secte Yun Tian? » Les yeux de Zhan Bai s'illuminèrent.
 
-Li Muwan soupira et dit: « Aîné, cette formation a été placée par le Clan des Démons Géants pour protéger notre Secte du Ciel Nuageux. Veuillez accorder un peu de respect au Clan des Démons Géants et ne nous compliquez pas la tâche. »
+Li Muwan soupira et dit: « Aîné, cette formation a été placée par le Clan Ju Mo pour protéger notre Secte Yun Tian. Veuillez accorder un peu de respect au Clan Ju Mo et ne nous compliquez pas la tâche. »
 
-« Le Clan des Démons Géants... » Zhan Bai réfléchit un instant avant d'agiter la main. Tous les insectes qui l'entouraient attaquèrent les nuages.
+« Le Clan Ju Mo... » Zhan Bai réfléchit un instant avant d'agiter la main. Tous les insectes qui l'entouraient attaquèrent les nuages.
 
 Une série de craquements émana des nuages blancs. Ce son devint finalement si fort qu'il couvrit le bourdonnement des insectes.
 
-« Et alors, le Clan des Démons Géants? Même si Chi Hu venait lui-même, il ne se mettrait pas en colère contre moi pour une simple Secte du Ciel Nuageux. » Zhan Bai sourit et tendit à nouveau la main.
+« Et alors, le Clan Ju Mo? Même si Chi Hu venait lui-même, il ne se mettrait pas en colère contre moi pour une simple Secte Yun Tian. » Zhan Bai sourit et tendit à nouveau la main.
 
 Bang!
 
@@ -46,15 +46,15 @@ Dans un fracas assourdissant, l'un des nuages blancs s'effondra, entraînant la 
 
 Alors que les nuages blancs s'évanouissaient, une série de bâtiments en pierre spirituelle apparut devant Zhan Bai.
 
-En contemplant les rangées infinies de bâtiments de pierre spirituelle qui semblaient ne jamais finir, les yeux de Zhan Bai s'écarquillèrent. Il observa longuement avant de laisser échapper un rire: « Cette Secte du Ciel Nuageux est incroyablement riche; elle est construite en pierres spirituelles! Bien que cette échelle ne puisse rivaliser avec le Royaume Céleste, il n'y a que peu d'endroits comme celui-ci à Suzaku. Haha, à partir d'aujourd'hui, cet endroit m'appartient! »
+En contemplant les rangées infinies de bâtiments de pierre spirituelle qui semblaient ne jamais finir, les yeux de Zhan Bai s'écarquillèrent. Il observa longuement avant de laisser échapper un rire: « Cette Secte Yun Tian est incroyablement riche; elle est construite en pierres spirituelles! Bien que cette échelle ne puisse rivaliser avec le Royaume Céleste, il n'y a que peu d'endroits comme celui-ci à Suzaku. Haha, à partir d'aujourd'hui, cet endroit m'appartient! »
 
-La formation de protection de la secte avait été facilement détruite. Les habitants de la Secte du Ciel Nuageux étaient plongés dans le désespoir.
+La formation de protection de la secte avait été facilement détruite. Les habitants de la Secte Yun Tian étaient plongés dans le désespoir.
 
 Zhan Bai fit un pas et pénétra dans la secte. Il était entouré d'un mur d'insectes s'étendant sur plusieurs centaines de mètres autour de lui. Certaines disciples féminines, dont le niveau de culture était faible, étaient si terrifiées qu'elles se mirent à pleurer.
 
 Zhan Bai tendit la main. Plusieurs disciples furent saisis par une force invisible. Un groupe d'insectes se détacha de l'essaim et bondit sur elles. Des cris déchirants résonnèrent rapidement alors que les disciples étaient submergés par les insectes. Ces derniers rampaient partout sur elles, certains s'introduisant même dans leurs corps.
 
-Des hurlements stridents perçèrent les oreilles des disciples de la Secte du Ciel Nuageux. Ces cris étaient si atroces qu'ils semblaient leur déchirer le cœur.
+Des hurlements stridents perçèrent les oreilles des disciples de la Secte Yun Tian. Ces cris étaient si atroces qu'ils semblaient leur déchirer le cœur.
 
 « Arrêtez! » Li Muwan s'élança dans les airs. Autour d'elle se tenaient plusieurs personnes, fixant Zhan Bai avec des expressions de pure horreur.
 
@@ -68,7 +68,7 @@ Le regard de Zhan Bai se posa sur Li Muwan. Il dit: « Pas mal. Tu es vraiment u
 
 Li Muwan resta silencieuse.
 
-« Oh? Tu refuses de parler? C'est bien dommage. » Zhan Bai sourit et agita la main. Les insectes autour de lui se dispersèrent pour recouvrir l'intégralité de la Secte du Ciel Nuageux.
+« Oh? Tu refuses de parler? C'est bien dommage. » Zhan Bai sourit et agita la main. Les insectes autour de lui se dispersèrent pour recouvrir l'intégralité de la Secte Yun Tian.
 
 Il suffisait à Zhan Bai d'un geste pour que les insectes se jettent sur toute créature vivante afin de la dévorer. Bien que ces insectes n'aient que la taille d'un pouce, ils étaient d'une férocité sanguinaire.
 
@@ -76,7 +76,7 @@ Si l'on regardait de près, on remarquerait que les yeux de Zhan Bai étaient pr
 
 « Arrêtez... mon nom est Li Muwan... » Une vague de honte envahit Li Muwan. Elle n'avait pas le choix; elle ne pouvait rester là sans rien faire alors que les disciples de la secte mouraient sous ses yeux.
 
-Quelques jours auparavant, elle avait commencé à envoyer des disciples partir, mais des milliers avaient décidé de rester. Ils restaient parce qu'ils considéraient la Secte du Ciel Nuageux comme leur foyer. Ils étaient prêts à se battre pour lui. Même en mourant, ils ne le regretteraient pas.
+Quelques jours auparavant, elle avait commencé à envoyer des disciples partir, mais des milliers avaient décidé de rester. Ils restaient parce qu'ils considéraient la Secte Yun Tian comme leur foyer. Ils étaient prêts à se battre pour lui. Même en mourant, ils ne le regretteraient pas.
 
 Même Liu Fei et Song Qing, ainsi que deux Grands Anciens au stade avancé de l'Âme Naissante, avaient décidé de rester.
 
@@ -86,19 +86,19 @@ Les yeux de Zhan Bai s'illuminèrent. Il fixa le vieil homme et déclara avec m�
 
 L'une des cultivatrices de l'Âme Naissante, une vieille femme, s'écria: « Vous allez trop loin! » Elle n'avait atteint le stade de l'Âme Naissante que grâce à Li Muwan. En entendant ces paroles, elle perdit tout sang-froid et, oubliant la différence de niveau de culture, hurla de rage.
 
-L'expression de Zhan Bai s'assombrit. Ses yeux devinrent injectés de sang alors qu'il disait: « Il semble que j'aie été trop clément. Très bien, je vais détruire la Secte du Ciel Nuageux! » Sur ce, il agita sa main droite et les insectes environnants se mirent à attaquer tout le monde.
+L'expression de Zhan Bai s'assombrit. Ses yeux devinrent injectés de sang alors qu'il disait: « Il semble que j'aie été trop clément. Très bien, je vais détruire la Secte Yun Tian! » Sur ce, il agita sa main droite et les insectes environnants se mirent à attaquer tout le monde.
 
 Quant à la vieille femme, dès que Zhan Bai fit son geste, une multitude d'insectes l'assaillirent. Elle poussa des cris déchirants. Même son Âme Naissante fut dévorée.
 
 Cette scène glaça le sang de tous les témoins.
 
-Des hurlements de douleur emplirent la Secte du Ciel Nuageux. Li Muwan esquissa un sourire triste. Elle toussa ensuite une bouchée de sang et mordit sa lèvre inférieure.
+Des hurlements de douleur emplirent la Secte Yun Tian. Li Muwan esquissa un sourire triste. Elle toussa ensuite une bouchée de sang et mordit sa lèvre inférieure.
 
 Même les anciens autour d'elle étaient attaqués par d'innombrables insectes. Chacun d'eux se débattait, mais à l'exception des deux Grands Anciens au stade avancé de l'Âme Naissante, qui parvenaient à résister un peu, les autres étaient en position de faiblesse et au bord du gouffre.
 
 Ces insectes étaient très étranges. Aucun trésor ni aucun sortilège ne semblait avoir d'effet sur eux.
 
-À cet instant, à l'exception de Li Muwan, tous les membres de la Secte du Ciel Nuageux luttaient contre l'essaim.
+À cet instant, à l'exception de Li Muwan, tous les membres de la Secte Yun Tian luttaient contre l'essaim.
 
 Li Muwan mordit sa lèvre, le regard rempli de désespoir.
 

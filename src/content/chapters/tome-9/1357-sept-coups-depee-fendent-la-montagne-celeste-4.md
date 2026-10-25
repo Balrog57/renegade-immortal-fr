@@ -10,7 +10,7 @@ Le Grand Ancien fut totalement ébranlé par la puissance de cette épée. Il é
 
 « Quel genre d'épée est-ce là?! Même l'armure de tonnerre éternel ne peut y résister, et je suis gravement blessé! » Le visage de l'Ancien était pâle, empreint d'horreur.
 
-L'armure de tonnerre éternel était l'un des trois trésors majeurs du Clan du Tonnerre Dispersé, bien plus puissante que le Miroir de Massacre de la Foudre. Raffinée par l'ancêtre du troisième pas du Clan du Tonnerre Dispersé, elle avait été transmise de génération en génération et protégeait le clan depuis des dizaines de milliers d'années!
+L'armure de tonnerre éternel était l'un des trois trésors majeurs du Clan Shan Lei, bien plus puissante que le Miroir de Massacre de la Foudre. Raffinée par l'ancêtre du troisième pas du Clan Shan Lei, elle avait été transmise de génération en génération et protégeait le clan depuis des dizaines de milliers d'années!
 
 Seules les personnes ayant atteint le cinquième Fléau Céleste pouvaient porter cette armure. Même face à un cultivateur de la troisième étape, elle permettait de lui résister un moment!
 
@@ -72,15 +72,15 @@ D'innombrables âmes s'engouffrèrent dans son corps pour le dévorer. La douleu
 
 « Même si je meurs, ce vieil homme t'entraînera avec lui dans le cycle de la réincarnation! »
 
-Cependant, au moment où il s'élançait, le quatrième coup de Wang Lin s'abattit. Il était chargé de la haine des peuples des 7 Millions de Mondes envers le Clan du Tonnerre Dispersé!
+Cependant, au moment où il s'élançait, le quatrième coup de Wang Lin s'abattit. Il était chargé de la haine des peuples des 7 Millions de Mondes envers le Clan Shan Lei!
 
 À cet instant, la main droite de Wang Lin bougea et il n'hésita pas à frapper une cinquième fois!
 
 Les deux rayons d'énergie d'épée volèrent l'un après l'autre, formant presque une vague, portée par les hurlements des âmes. L'Ancien, déjà rendu fou par la douleur, ne se souciait plus de sa longévité et agita la main:
 
-« Je sacrifie 10 000 ans de vie et je brise mon héritage de l'essence de tonnerre du troisième pas pour utiliser les membres du Clan du Tonnerre Dispersé comme Flammes Joss afin d'activer le Sort du Boisseau du Sud! » Son rugissement fit trembler le ciel, sacrifiant instantanément 10 000 ans de vie!
+« Je sacrifie 10 000 ans de vie et je brise mon héritage de l'essence de tonnerre du troisième pas pour utiliser les membres du Clan Shan Lei comme Flammes Joss afin d'activer le Sort du Boisseau du Sud! » Son rugissement fit trembler le ciel, sacrifiant instantanément 10 000 ans de vie!
 
-Le Sort du Boisseau du Sud était l'art le plus puissant du Clan du Tonnerre Dispersé. Empruntant le pouvoir des astres, il se manifestait sous la forme de neuf étoiles meurtrières. L'espace devant l'Ancien se déforma et brilla intensément alors que neuf étoiles apparurent en formation. Un seul regard suffisait à donner l'impression que l'esprit était aspiré.
+Le Sort du Boisseau du Sud était l'art le plus puissant du Clan Shan Lei. Empruntant le pouvoir des astres, il se manifestait sous la forme de neuf étoiles meurtrières. L'espace devant l'Ancien se déforma et brilla intensément alors que neuf étoiles apparurent en formation. Un seul regard suffisait à donner l'impression que l'esprit était aspiré.
 
 Ces neuf étoiles émettaient une lueur démoniaque et s'élancèrent pour contrer les quatrième et cinquième rayons d'énergie de Wang Lin!
 

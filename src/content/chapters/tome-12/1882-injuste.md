@@ -60,7 +60,7 @@ Ta Jia prit un air sérieux et déclara doucement: « Secte Xiu Sheng, Ta Jia! �
 
 « Cultivateur errant, Bord-des-Nuages! » Le vieil homme se leva et joignit les mains en direction de la salle.
 
-« Secte de la Grande Âme, Wang Lin! » dit lentement Wang Lin avant d'inspecter les lieux. Il remarqua que lorsque la voix avait résonné, une restriction invisible avait enveloppé la zone, empêchant quiconque de communiquer avec l'extérieur.
+« Secte Da Hun, Wang Lin! » dit lentement Wang Lin avant d'inspecter les lieux. Il remarqua que lorsque la voix avait résonné, une restriction invisible avait enveloppé la zone, empêchant quiconque de communiquer avec l'extérieur.
 
 Ce qui le surprit secrètement était que les fluctuations du monde étaient également perturbées ici; il était donc impossible de diviner ce qui s'y passait par les arts divinatoires. Il ne s'agissait pas d'une simple restriction individuelle, mais d'une partie de la formation protégeant l'intégralité de la secte.
 
@@ -104,8 +104,8 @@ Les trois autres avaient reçu deux récompenses, tandis que Wang Lin n'en avait
 
 À cet instant, l'expression de Yun Yifeng changea et il fit signe à Wang Lin de se taire. Ta Jia regarda elle aussi Wang Lin, stupéfaite qu'il ose prendre la parole dans un tel moment. Même Bord-des-Nuages se tourna vers lui.
 
-« Votre mission est de vous rendre sur le Continent du Démon Vert, d'infiltrer le Temple du Démon Vert et de détruire la Statue du Démon Vert afin de blesser gravement l'âme du Démon Vert. Une fois cela accompli, vous aurez tous quatre réalisé un exploit immense pour le Continent du Taureau Céleste! » La voix ignora totalement l'interruption de Wang Lin et poursuivit son énoncé.
+« Votre mission est de vous rendre sur le Continent Lu Mo, d'infiltrer le Temple Lü Mo et de détruire la Statue du Démon Vert afin de blesser gravement l'âme du Démon Vert. Une fois cela accompli, vous aurez tous quatre réalisé un exploit immense pour le Continent Tian Niu! » La voix ignora totalement l'interruption de Wang Lin et poursuivit son énoncé.
 
-À ces mots, le visage de Bord-des-Nuages se crispa, tout comme celui de Ta Jia. Il semblait que c'était aussi la première fois que Yun Yifeng entendait parler de cela; leurs expressions changèrent toutes simultanément. Pénétrer sur le Continent du Démon Vert était un acte d'une dangerosité extrême. La moindre erreur et ils ne pourraient jamais revenir.
+À ces mots, le visage de Bord-des-Nuages se crispa, tout comme celui de Ta Jia. Il semblait que c'était aussi la première fois que Yun Yifeng entendait parler de cela; leurs expressions changèrent toutes simultanément. Pénétrer sur le Continent Lu Mo était un acte d'une dangerosité extrême. La moindre erreur et ils ne pourraient jamais revenir.
 
-« Le Continent du Démon Vert est pratiquement désert pour l'instant. Quant aux ancêtres qui y résident, il y aura naturellement des êtres pour les contenir... Maintenant que la mission a été énoncée, que voulais-tu dire, Wang Lin? » La voix demeurait calme et posée, comme si rien ne pouvait troubler sa sérénité.
+« Le Continent Lu Mo est pratiquement désert pour l'instant. Quant aux ancêtres qui y résident, il y aura naturellement des êtres pour les contenir... Maintenant que la mission a été énoncée, que voulais-tu dire, Wang Lin? » La voix demeurait calme et posée, comme si rien ne pouvait troubler sa sérénité.

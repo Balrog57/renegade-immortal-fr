@@ -10,15 +10,15 @@ Wang Lin fixait le fourneau à pilules, l'esprit tourné vers Yun Fei. Il tapota
 
 Il posa le jade sur la table et dit: « Ce fragment était en possession de la personne qui détenait le fourneau. Voyez s'il existe un lien entre eux. »
 
-Les yeux magnifiques de Li Muwan s'illuminèrent. Elle saisit le morceau de jade et l'examina attentivement. Après un moment, elle fronça légèrement les sourcils et murmura: « Secte Qi Huang... cela doit provenir de la Secte Qi Huang. Les recettes contenues dans ce jade sont clairement issues de cette secte. Frère Wang, l'avez-vous obtenu dans la partie intérieure de la Mer des Démons? »
+Les yeux magnifiques de Li Muwan s'illuminèrent. Elle saisit le morceau de jade et l'examina attentivement. Après un moment, elle fronça légèrement les sourcils et murmura: « Secte Qi Huang... cela doit provenir de la Secte Qi Huang. Les recettes contenues dans ce jade sont clairement issues de cette secte. Frère Wang, l'avez-vous obtenu dans la partie intérieure de la Mer Xiu Mo? »
 
 Wang Lin acquiesça.
 
-Li Muwan mordilla discrètement sa lèvre inférieure et poursuivit: « Dans ce cas, il s'agit bien de la Secte Qi Huang. Elle était autrefois une secte issue d'un pays de rang 4, mais après des conflits avec une secte ennemie, elle s'est déplacée dans la Mer des Démons avant de disparaître sans laisser de trace. Il semble que ce fourneau appartenait à la Secte Qi Huang, mais la méthode pour briser le sceau est perdue. Wan Er sait seulement que ce sceau ne peut être ouvert n'importe comment; il nécessite une série de procédés, le bon moment et le bon lieu. Si on le force, cela endommagera la qualité de la pilule qu'il contient, voire la réduira en cendres. De plus, Wan Er sent que la pilule n'est pas encore prête. Même si nous l'ouvrions correctement, elle n'aurait pas atteint son plein potentiel si nous ne la laissions pas scellée un peu plus longtemps. »
+Li Muwan mordilla discrètement sa lèvre inférieure et poursuivit: « Dans ce cas, il s'agit bien de la Secte Qi Huang. Elle était autrefois une secte issue d'un pays de rang 4, mais après des conflits avec une secte ennemie, elle s'est déplacée dans la Mer Xiu Mo avant de disparaître sans laisser de trace. Il semble que ce fourneau appartenait à la Secte Qi Huang, mais la méthode pour briser le sceau est perdue. Wan Er sait seulement que ce sceau ne peut être ouvert n'importe comment; il nécessite une série de procédés, le bon moment et le bon lieu. Si on le force, cela endommagera la qualité de la pilule qu'il contient, voire la réduira en cendres. De plus, Wan Er sent que la pilule n'est pas encore prête. Même si nous l'ouvrions correctement, elle n'aurait pas atteint son plein potentiel si nous ne la laissions pas scellée un peu plus longtemps. »
 
 Wang Lin approuva intérieurement. C'était la seule explication pour laquelle Yun Fei ne l'avait pas ouverte elle-même, tentant plutôt de l'échanger contre la levée de sa restriction.
 
-Li Muwan reprit d'un ton déterminé: « Frère Wang, Wan Er se rendra à la bibliothèque de la Secte du Ciel Nuageux pour voir si des informations sur l'ouverture du sceau existent. Si cette pilule est destinée à accroître la culture, elle augmentera vos chances d'atteindre le stade de l'Âme Naissante. »
+Li Muwan reprit d'un ton déterminé: « Frère Wang, Wan Er se rendra à la bibliothèque de la Secte Yun Tian pour voir si des informations sur l'ouverture du sceau existent. Si cette pilule est destinée à accroître la culture, elle augmentera vos chances d'atteindre le stade de l'Âme Naissante. »
 
 Li Muwan sortit plusieurs flacons de pilules et les tendit à Wang Lin. Après lui avoir expliqué en détail les précautions à prendre pour les consommer, Wang Lin prit congé.
 
@@ -66,9 +66,9 @@ Suivant les instructions de Li Muwan, il disposa les flacons par ordre de consom
 
 Cette préparation s'appelait la Pilule Qi-Zuo, une pilule spirituelle de rang 2, niveau supérieur. Grâce à ses nombreux ingrédients rares, elle ne fournissait pas seulement une immense quantité d'énergie spirituelle, mais aidait également à élargir les canaux du corps.
 
-La Pilule Qi-Zuo était l'une des dix-huit pilules aux neuf transformations de l'ancienne Secte Luo He. Dans un pays de culture de rang 3, c'était une chose extrêmement rare, d'un grade supérieur à la Pilule d'Établissement des Fondations. Sa rareté résidait dans sa capacité à élargir les canaux; même au sein de la Secte du Ciel Nuageux, peu de pilules possédaient cette vertu, et elles étaient toutes de rang 4 ou plus. Qu'une pilule de rang 2 puisse accomplir cela était exceptionnel.
+La Pilule Qi-Zuo était l'une des dix-huit pilules aux neuf transformations de l'ancienne Secte Luo He. Dans un pays de culture de rang 3, c'était une chose extrêmement rare, d'un grade supérieur à la Pilule d'Établissement des Fondations. Sa rareté résidait dans sa capacité à élargir les canaux; même au sein de la Secte Yun Tian, peu de pilules possédaient cette vertu, et elles étaient toutes de rang 4 ou plus. Qu'une pilule de rang 2 puisse accomplir cela était exceptionnel.
 
-Au sein de la Secte du Ciel Nuageux, on n'en comptait moins d'une vingtaine, et toutes avaient été confectionnées par Li Muwan.
+Au sein de la Secte Yun Tian, on n'en comptait moins d'une vingtaine, et toutes avaient été confectionnées par Li Muwan.
 
 Wang Lin prit une pilule et l'avala, entamant immédiatement sa culture. L'énergie spirituelle inonda son corps, et il nota instantanément la différence avec la Pilule d'Établissement des Fondations: la Pilule Qi-Zuo contenait plus du double de cette dernière.
 
@@ -90,6 +90,6 @@ Li Muwan n'avait pas nommé cette pilule, lui disant simplement qu'il la reconna
 
 Le flacon contenait cinq pilules pourpres. Wang Lin les identifia immédiatement: c'étaient les Pilules Tian Li qu'il avait utilisées auparavant.
 
-Il semblait que Li Muwan ait consacré énormément de sang et de sueur ces deux cents dernières années pour raffiner à nouveau ces précieuses préparations. C'était le cas: la Pilule Tian Li était un remède de rang 3, niveau initial, dont les ingrédients s'étaient éteints avec le pays de Huo Fen. Ce n'est qu'en rejoignant la Secte du Ciel Nuageux et en utilisant son statut d'Ancien que Li Muwan avait pu obtenir les composants nécessaires pour en produire davantage.
+Il semblait que Li Muwan ait consacré énormément de sang et de sueur ces deux cents dernières années pour raffiner à nouveau ces précieuses préparations. C'était le cas: la Pilule Tian Li était un remède de rang 3, niveau initial, dont les ingrédients s'étaient éteints avec le pays de Huo Fen. Ce n'est qu'en rejoignant la Secte Yun Tian et en utilisant son statut d'Ancien que Li Muwan avait pu obtenir les composants nécessaires pour en produire davantage.
 
-Cependant, même la Secte du Ciel Nuageux ne disposait que de peu de ces matériaux. Après avoir raffiné ces cinq pilules, toutes les réserves avaient été épuisées. En vérité, une grande partie des ingrédients utilisés par Wang Lin provenaient des stocks de la Secte du Ciel Nuageux; on pouvait donc dire que le coût de cette avancée de culture était entièrement supporté par la secte.
+Cependant, même la Secte Yun Tian ne disposait que de peu de ces matériaux. Après avoir raffiné ces cinq pilules, toutes les réserves avaient été épuisées. En vérité, une grande partie des ingrédients utilisés par Wang Lin provenaient des stocks de la Secte Yun Tian; on pouvait donc dire que le coût de cette avancée de culture était entièrement supporté par la secte.

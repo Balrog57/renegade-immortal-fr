@@ -68,7 +68,7 @@ Fixant la tour, Wang Lin ressentit un sentiment d'effroi rare. Même maintenant,
 
 « Il en manque un... Qu'est-ce que cela signifie? » Wang Lin médita en silence. Un instant plus tard, il jeta un regard à la tour avant de repartir.
 
-Sur le Continent du Démon Vert, là où se trouvait le temple du scorpion, la zone était désormais balayée par une tempête. Un jeune homme aux cheveux blancs s'y tenait debout, et ses yeux clos s'ouvrirent brusquement. À l'instant même où il les ouvrit, une profonde appréhension y transparaissait encore!
+Sur le Continent Lu Mo, là où se trouvait le temple du scorpion, la zone était désormais balayée par une tempête. Un jeune homme aux cheveux blancs s'y tenait debout, et ses yeux clos s'ouvrirent brusquement. À l'instant même où il les ouvrit, une profonde appréhension y transparaissait encore!
 
 Wang Lin prit une grande inspiration et observa la Perle Défiant le Ciel qui fusionnait dans sa paume. Son expression était complexe.
 
@@ -78,8 +78,8 @@ Wang Lin prit une grande inspiration et observa la Perle Défiant le Ciel qui fu
 
 Il avait l'intuition que, du fait qu'il pouvait voir la tour, il était désormais très proche du secret de la perle!
 
-À cet instant, le regard de Wang Lin devint glacial et se tourna vers l'horizon. C'était la direction de la Secte du Dao Démoniaque!
+À cet instant, le regard de Wang Lin devint glacial et se tourna vers l'horizon. C'était la direction de la Secte Dao Mo!
 
-« Secte du Dao Démoniaque... Autrefois, j'avais fait la promesse de détruire l'intégralité de la Secte du Dao Démoniaque et son Dao. De faire en sorte qu'il n'y ait plus jamais de Secte du Dao Démoniaque sur le Continent Astral Immortel! » Wang Lin agita sa manche et la tempête autour de lui tourna avec une intensité accrue, formant une tornade noire qui l'emporta au loin.
+« Secte Dao Mo... Autrefois, j'avais fait la promesse de détruire l'intégralité de la Secte Dao Mo et son Dao. De faire en sorte qu'il n'y ait plus jamais de Secte Dao Mo sur le Continent Astral Immortel! » Wang Lin agita sa manche et la tempête autour de lui tourna avec une intensité accrue, formant une tornade noire qui l'emporta au loin.
 
-Le châtiment de la Secte du Dao Démoniaque était arrivé!
+Le châtiment de la Secte Dao Mo était arrivé!

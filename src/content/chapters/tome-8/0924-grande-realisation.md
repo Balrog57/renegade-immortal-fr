@@ -88,7 +88,7 @@ De loin, les étoiles semblaient peuplées par ces structures. Pas moins de cent
 
 Une pression écrasante s'abattit soudainement. Outre les cent tours, quatre planètes de culture gigantesques apparaissaient également. Quatre géants de dix mille pieds transportaient ces planètes.
 
-Chacun de ces quatre géants portait une marque de hache sur le front: c'étaient des membres du Clan des Démons Géants!
+Chacun de ces quatre géants portait une marque de hache sur le front: c'étaient des membres du Clan Ju Mo!
 
 Quatre silhouettes flottaient au-dessus des planètes portées par les géants. Trois d'entre elles étaient des vieillards aux cheveux blancs, à l'aura céleste. Leur puissance était manifeste, sans qu'ils aient besoin de manifester la moindre colère!
 

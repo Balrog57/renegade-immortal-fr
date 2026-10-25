@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1071 - Arrival
 slug: arrivee
 ---
-Le mirage du palais suspendu dans le ciel au-dessus de la Terre des Esprits Démoniaques se mua progressivement en une forme solide. C'était comme s'il avait été téléporté depuis la grotte de Wang Lin.
+Le mirage du palais suspendu dans le ciel au-dessus de la Terre Yao Ling se mua progressivement en une forme solide. C'était comme s'il avait été téléporté depuis la grotte de Wang Lin.
 
 Au moment où la Concubine Impériale Fleur sortit du palais, l'édifice entier ainsi que les milliers de fleurs multicolores qui l'entouraient se rétractèrent pour ne devenir qu'une miniature de la taille d'une paume, qui se posa dans sa main au milieu des effluves floraux.
 
@@ -24,7 +24,7 @@ Malgré son rire, l'Ancien Démon Ta Jia était empreint de prudence. Il ne crai
 
 « Qing Lin était l'Empereur Céleste le plus puissant; il était si illustre que même les gens du royaume extérieur connaissaient son nom. En plus de sa culture prodigieuse, il était capable de calculer l'avenir comme s'il était lui-même les cieux, et il ne manquait jamais sa cible; un simple pouce carré renfermait les affaires du monde! »
 
-Alors que l'Ancien Démon Ta Jia s'élançait, la Terre des Esprits Démoniaques trembla soudainement. Un brouillard noir apparut dans le ciel et se répandit. Tandis que la main droite de Ta Jia s'étendait, le brouillard noir se condensa en un bras gigantesque qui se projeta vers la Concubine Impériale Fleur.
+Alors que l'Ancien Démon Ta Jia s'élançait, la Terre Yao Ling trembla soudainement. Un brouillard noir apparut dans le ciel et se répandit. Tandis que la main droite de Ta Jia s'étendait, le brouillard noir se condensa en un bras gigantesque qui se projeta vers la Concubine Impériale Fleur.
 
 Simultanément, l'entité humanoïde aux côtés de Ta Jia lança un regard glacial à l'assemblée et verrouilla sa cible sur Wang Lin. En un éclair, elle chargea Wang Lin, et avant même qu'elle ne soit à portée, des détonations soniques se firent déjà entendre.
 
@@ -38,7 +38,7 @@ Ses yeux étaient exorbités, ses globes injectés de sang semblaient léthargiq
 
 Il fixait également Wang Lin. Son dernier vestige de mémoire était sa haine et son intention meurtrière envers lui. Le Maître du Vide poussa un rugissement et fonça sur Wang Lin, juste après l'entité humanoïde.
 
-Tian Yunzi restait calme, son regard suggérant que tout était limpide et normal. C'était comme si ce voyage dans la Grotte de l'Empereur Céleste était entièrement contenu dans ses calculs.
+Tian Yunzi restait calme, son regard suggérant que tout était limpide et normal. C'était comme si ce voyage dans la Grotte Xian Di était entièrement contenu dans ses calculs.
 
 Ling Tianhou gardait la tête basse, luttant contre lui-même. Son expression était complexe, mêlant hébétude et, par-dessus tout, une profonde culpabilité...
 
@@ -94,8 +94,8 @@ L'énergie d'origine résidait au cœur de ces neuf sphères, lesquelles flottè
 
 À cet instant, l'endroit où elle se tenait devint le point le plus lumineux du système stellaire.
 
-Simultanément, dans l'espace au-delà de la Terre des Esprits Démoniaques, alors que l'esprit véritable de l'Oiseau Vermillon et la Secte Divine de l'Oiseau Vermillon continuaient d'assaillir le sceau, celui-ci commença enfin à céder.
+Simultanément, dans l'espace au-delà de la Terre Yao Ling, alors que l'esprit véritable de l'Oiseau Vermillon et la Secte Divine de l'Oiseau Vermillon continuaient d'assaillir le sceau, celui-ci commença enfin à céder.
 
-Avec lui, tout le ciel de la Terre des Esprits Démoniaques s'effondra. La voûte céleste se brisa pouce par pouce, comme si le sceau lui-même se désintégrait... pour être remplacée par l'immensité du ciel étoilé...
+Avec lui, tout le ciel de la Terre Yao Ling s'effondra. La voûte céleste se brisa pouce par pouce, comme si le sceau lui-même se désintégrait... pour être remplacée par l'immensité du ciel étoilé...
 
 La Secte Divine de l'Oiseau Vermillon était arrivée!

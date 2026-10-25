@@ -60,7 +60,7 @@ Il regarda le vieillard et, sans un mot, sauta dans la fosse.
 
 « Oh, une odeur de mort! Oui, c'est bien l'odeur de la mort. Je ne me tromperais jamais sur le parfum d'un être céleste! Il doit s'agir d'un cadavre féminin, haha, un cadavre féminin, c'est encore mieux! » Les yeux du vieil homme s'illuminèrent. Il regarda autour de lui et fixa soudainement la fosse où l'homme d'âge moyen était descendu avant de s'y précipiter.
 
-Le vieillard affichait une expression ravie et songea: « Ainsi, je pourrai accomplir la tâche du Maître de Secte et quitter ce Suzaku immonde. Le Maître de Secte est bien étrange; notre Secte des Cadavres possède toutes sortes de corps, alors pourquoi veut-il le corps d'un être céleste? Je me demande quel client de quelle planète peut avoir un goût aussi unique. »
+Le vieillard affichait une expression ravie et songea: « Ainsi, je pourrai accomplir la tâche du Maître de Secte et quitter ce Suzaku immonde. Le Maître de Secte est bien étrange; notre Secte Shi Yin possède toutes sortes de corps, alors pourquoi veut-il le corps d'un être céleste? Je me demande quel client de quelle planète peut avoir un goût aussi unique. »
 
 Le groupe de Wang Lin descendait la fosse à une vitesse fulgurante. Ils descendaient depuis un temps indéterminé sans voir la fin, mais une force de résistance qui les repoussait vers le haut devenait de plus en plus puissante.
 
@@ -104,7 +104,7 @@ Hongdie était sur le point de perdre patience. Elle fixa Chi Hu et lui lança f
 
 Wang Lin fouilla calmement partout sans rien trouver. Finalement, son regard se posa sur la mare d'eau. En y regardant de plus près, il constata que son eau était d'un noir profond et qu'il ne pouvait en voir le fond.
 
-En entendant les paroles de Hongdie, le visage de Chi Hu devint immédiatement livide, mais il maîtrisa son tempérament et dit d'un ton grave: « Hongdie, une fois de retour à Suzaku, je te donnerai une explication complète. Cependant, prétendre que j'ai un autre objectif est totalement faux. Je suis le jeune maître du Clan des Démons Géants. Bien que je ne puisse pas t'égaler, je suis un homme de parole. »
+En entendant les paroles de Hongdie, le visage de Chi Hu devint immédiatement livide, mais il maîtrisa son tempérament et dit d'un ton grave: « Hongdie, une fois de retour à Suzaku, je te donnerai une explication complète. Cependant, prétendre que j'ai un autre objectif est totalement faux. Je suis le jeune maître du Clan Ju Mo. Bien que je ne puisse pas t'égaler, je suis un homme de parole. »
 
 Hongdie ricana et s'apprêtait à répliquer quand Wang Lin intervint soudainement: « Chi Hu, tu as dit plus tôt que cet endroit possédait une troisième couche? »
 
@@ -128,10 +128,10 @@ Wang Lin, qui était déjà sur ses gardes car il sentait une présence les suiv
 
 Chi Hu s'écria: « Zhou Yi, de la Secte des Cinq Éléments! »
 
-L'homme d'âge moyen esquissa un sourire et demanda: « Petit gars du Clan des Démons Géants, tu me connais? »
+L'homme d'âge moyen esquissa un sourire et demanda: « Petit gars du Clan Ju Mo, tu me connais? »
 
 En entendant le nom de « Zhou Yi », l'expression de Hongdie changea brusquement, tandis qu'elle tentait de masquer son dégoût.
 
-Chi Hu s'inclina rapidement et respectueusement: « Le junior Chi Hu, du Clan des Démons Géants, salue l'Aîné. Ce junior connaît le nom de l'Aîné depuis sa tendre enfance. » Étant né jeune maître du Clan des Démons Géants, il avait été au centre de toutes les attentions dès son plus jeune âge. Il avait étudié les portraits de tous les cultivateurs au stade de la Transformation de l'Âme et au-delà. Dès qu'il eut aperçu la gourde rouge, il reconnut immédiatement l'individu.
+Chi Hu s'inclina rapidement et respectueusement: « Le junior Chi Hu, du Clan Ju Mo, salue l'Aîné. Ce junior connaît le nom de l'Aîné depuis sa tendre enfance. » Étant né jeune maître du Clan Ju Mo, il avait été au centre de toutes les attentions dès son plus jeune âge. Il avait étudié les portraits de tous les cultivateurs au stade de la Transformation de l'Âme et au-delà. Dès qu'il eut aperçu la gourde rouge, il reconnut immédiatement l'individu.
 
 Ce Zhou Yi avait un passe-temps très singulier. Une fois ce penchant confirmé, Chi Hu s'en était très bien souvenu.

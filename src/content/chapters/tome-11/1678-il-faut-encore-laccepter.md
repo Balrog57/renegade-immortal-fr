@@ -110,7 +110,7 @@ Voir le père de son propre enfant faire ses adieux à une autre femme infligeai
 
 Elle serra doucement Wang Lin dans ses bras, et ses pleurs mouillèrent la robe blanche de Wang Lin.
 
-« Si tu ne m'aimes pas, pourquoi m'as-tu sauvée dans la Mer des Nuages... N'aurait-il pas été préférable que je meure avec un espoir, pour rester gravée dans ta mémoire... Wang Lin... un bienfait n'est pas de l'amour... » murmura Li Qianmei à son oreille avant de se détacher. Elle tendit la main vers le tableau pour partir.
+« Si tu ne m'aimes pas, pourquoi m'as-tu sauvée dans la Mer Yun... N'aurait-il pas été préférable que je meure avec un espoir, pour rester gravée dans ta mémoire... Wang Lin... un bienfait n'est pas de l'amour... » murmura Li Qianmei à son oreille avant de se détacher. Elle tendit la main vers le tableau pour partir.
 
 Cependant, ses mains s'immobilisèrent brusquement car Wang Lin serrait fermement l'œuvre.
 

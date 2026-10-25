@@ -12,7 +12,7 @@ slug: affiner-un-gardien-celeste
 
 « Trop de secrets pour que ce disciple puisse rester serein. Il semble que je ne puisse plus séjourner sur la planète Tian Yun. Si j'y étais encore, j'aurais probablement été dévoré dès l'instant où j'aurais découvert le secret de Maître! » Wang Lin prit une profonde inspiration. Il avait décidé de quitter rapidement la planète Tian Yun.
 
-« Après avoir quitté cette Terre des Esprits Démoniaques, je me fondrai dans mon corps originel et je partirai. Les eaux de la planète Tian Yun sont trop troubles pour moi! » Les yeux de Wang Lin s'illuminèrent alors qu'il regardait autour de lui en laissant échapper un soupir.
+« Après avoir quitté cette Terre Yao Ling, je me fondrai dans mon corps originel et je partirai. Les eaux de la planète Tian Yun sont trop troubles pour moi! » Les yeux de Wang Lin s'illuminèrent alors qu'il regardait autour de lui en laissant échapper un soupir.
 
 « Je ne suis toujours pas certain de pouvoir quitter cet endroit. »
 

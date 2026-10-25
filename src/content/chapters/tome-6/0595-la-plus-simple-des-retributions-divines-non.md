@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 595 - The Simplest Divine Retribution No!"
 slug: la-plus-simple-des-retributions-divines-non
 ---
-À l'extérieur de la Terre des Esprits Démoniaques, à l'entrée de la Mer des Esprits Démoniaques Orientale, l'obscurité était totale. De nombreuses étoiles lointaines parsemaient la zone de lueurs.
+À l'extérieur de la Terre Yao Ling, à l'entrée de la Mer des Esprits Démoniaques Orientale, l'obscurité était totale. De nombreuses étoiles lointaines parsemaient la zone de lueurs.
 
 À cet instant précis, un rayon de lumière jaillit du vide à une vitesse qu'aucun cultivateur ni aucun sortilège ne pourrait jamais atteindre!
 
@@ -18,13 +18,13 @@ Une lueur rouge descendit de l'espace. Elle émergeait du vide, et nul n'en conn
 
 Dès que cette lumière rouge commença sa descente, une aura capable de faire trembler toute vie dans l'univers se mit à se propager.
 
-Sur la planète Tian Yun, Tian Yunzi avait les yeux clos, se préparant pour le plan prévu dans deux cents ans. Soudain, il ouvrit les yeux, révélant une lueur mystérieuse alors qu'il fixait l'espace. Son expression changea légèrement et sa main traça un sceau. Après avoir calculé pendant un moment, il fronça les sourcils et murmura: « Une rétribution divine est descendue... Avec l'interférence de la puissance céleste, je ne peux pas tout calculer avec précision. Mais j'ai pu déterminer que la rétribution divine a frappé la Terre des Esprits Démoniaques et qu'elle a un lien avec ma planète Tian Yun... Étrange! »
+Sur la planète Tian Yun, Tian Yunzi avait les yeux clos, se préparant pour le plan prévu dans deux cents ans. Soudain, il ouvrit les yeux, révélant une lueur mystérieuse alors qu'il fixait l'espace. Son expression changea légèrement et sa main traça un sceau. Après avoir calculé pendant un moment, il fronça les sourcils et murmura: « Une rétribution divine est descendue... Avec l'interférence de la puissance céleste, je ne peux pas tout calculer avec précision. Mais j'ai pu déterminer que la rétribution divine a frappé la Terre Yao Ling et qu'elle a un lien avec ma planète Tian Yun... Étrange! »
 
-Sur la planète Da Luo, au sein de la Secte de l'Épée Da Luo, le Saint de l'Épée Ling Tianhou se tenait près d'un gigantesque fourneau alchimique, les yeux étincelants.
+Sur la planète Da Luo, au sein de la Secte Da Luo Jian, le Saint de l'Épée Ling Tianhou se tenait près d'un gigantesque fourneau alchimique, les yeux étincelants.
 
 « Cette Pilule de Bonne Fortune Fondamentale nécessite encore quelques pilules auxiliaires... » À cet instant précis, son expression changea brusquement. Il fit un pas et disparut complètement pour réapparaître dans l'espace, au-dessus de la planète. Il observa la lumière rouge avec surprise.
 
-« Une rétribution divine! » Il fronça les sourcils, le visage empreint d'incertitude. Après avoir observé attentivement la disparition de la lumière, il murmura pour lui-même: « La rétribution divine descend sur la Terre des Esprits Démoniaques... Ce n'est pas bon! Se pourrait-il que quelque chose soit arrivé à Tan Lang?! » Les sourcils de Ling Tianhou se contractèrent.
+« Une rétribution divine! » Il fronça les sourcils, le visage empreint d'incertitude. Après avoir observé attentivement la disparition de la lumière, il murmura pour lui-même: « La rétribution divine descend sur la Terre Yao Ling... Ce n'est pas bon! Se pourrait-il que quelque chose soit arrivé à Tan Lang?! » Les sourcils de Ling Tianhou se contractèrent.
 
 Au même moment, sur une planète très éloignée de Tian Yun, l'astre semblait recouvert de sang. C'était une planète de sang!
 
@@ -32,13 +32,13 @@ Dans un pavillon de sang sur cette planète, un homme aux cheveux et aux sourcil
 
 Sans lever la tête, il ressentit silencieusement l'onde de choc créée par le passage de la puissance céleste. Après un long moment, il referma les yeux.
 
-« La rétribution divine est descendue sur la Terre des Esprits Démoniaques. Je me demande comment se porte cet enfant, Yao Xixue... »
+« La rétribution divine est descendue sur la Terre Yao Ling. Je me demande comment se porte cet enfant, Yao Xixue... »
 
 Non seulement ces trois-là, mais de nombreux vieux monstres remarquèrent la descente de la rétribution divine.
 
 Rien ne pouvait arrêter la chute de cette lumière rouge. Bien que la porte de la Mer des Esprits Démoniaques Orientale ne fût pas ouverte, la lueur rouge réussit tout de même à la percer.
 
-Sur la place de la cité impériale du Pays du Démon Céleste, Wang Lin se tenait en silence. Après que le tambour eut résonné pour la quinzième fois, le domaine à l'intérieur de son corps entama une métamorphose à une vitesse inimaginable.
+Sur la place de la cité impériale du Pays Tian Yao, Wang Lin se tenait en silence. Après que le tambour eut résonné pour la quinzième fois, le domaine à l'intérieur de son corps entama une métamorphose à une vitesse inimaginable.
 
 Le stade Ascendant exige que l'on possède suffisamment d'énergie spirituelle céleste et que son cœur Dao soit achevé. Une fois ces deux conditions réunies, elles fusionnent, et cette fusion constitue l'ascension!
 
@@ -64,13 +64,13 @@ L'expression du jeune homme sur le bateau changea soudainement. Puis il laissa �
 
 « Cependant, ceci est un test pour cet enfant. S'il parvient à résister à cette rétribution divine, il n'aura plus, du moins au stade Ascendant, d'interférence du Dao des cieux... Et d'après ce que je vois, la puissance de cette rétribution n'est pas si grande... »
 
-Tous les habitants de la Cité du Démon Céleste remarquèrent le changement dans le ciel, et la foule sur la place fut totalement stupéfaite.
+Tous les habitants de la Cité Tian Yao remarquèrent le changement dans le ciel, et la foule sur la place fut totalement stupéfaite.
 
 La lumière rouge dans le ciel se condensa rapidement en une multitude de nuages écarlates. Ces nuages semblaient pesants alors qu'ils recouvraient le ciel, centrés sur la place impériale.
 
 Alors que Wang Lin se tenait près du tambour démoniaque, il regarda le ciel et exhala longuement.
 
-« Le Dao des cieux ne peut arrêter mon cœur Dao, mais il peut envoyer un châtiment pour effacer mon existence... C'est cela, la rétribution divine. J'ai déjà vu une rétribution divine à Ville de Qilin, dans la Mer des Démons. Comparé à cela, ceci est bien plus puissant... »
+« Le Dao des cieux ne peut arrêter mon cœur Dao, mais il peut envoyer un châtiment pour effacer mon existence... C'est cela, la rétribution divine. J'ai déjà vu une rétribution divine à Ville de Qilin, dans la Mer Xiu Mo. Comparé à cela, ceci est bien plus puissant... »
 
 Les nuages rouges s'amassèrent et, en un instant, des éclairs rouges commencèrent à se former. Si ces éclairs ne tombaient pas ou ne dégageaient pas d'aura, cette scène serait d'une beauté extrême!
 
@@ -88,7 +88,7 @@ C'était comme un météore chutant soudainement du firmament pour s'écraser su
 
 L'intention meurtrière des cieux!
 
-La Cité du Démon Céleste, en plein printemps, vit la neige tomber. Les flocons descendaient du ciel, et chaque flocon de neige contenait l'intention meurtrière des cieux!
+La Cité Tian Yao, en plein printemps, vit la neige tomber. Les flocons descendaient du ciel, et chaque flocon de neige contenait l'intention meurtrière des cieux!
 
 L'éclair rouge s'abattit au milieu de cette chute de neige.
 
@@ -108,7 +108,7 @@ Wang Lin ouvrit soudainement les yeux, dégageant une lueur éclatante alors que
 
 D'un mouvement de doigt, le gaz noir autour de lui s'élança vers le ciel. Les innombrables restrictions contenues dans ce gaz formèrent une tornade noire qui vint accueillir la rétribution divine!
 
-L'éclair rouge descendit et percuta la tornade noire. À cet instant, une explosion inimaginable retentit, faisant trembler la terre entière. Les oreilles d'innombrables personnes de la Cité du Démon Céleste saignèrent et beaucoup furent assommées par le choc.
+L'éclair rouge descendit et percuta la tornade noire. À cet instant, une explosion inimaginable retentit, faisant trembler la terre entière. Les oreilles d'innombrables personnes de la Cité Tian Yao saignèrent et beaucoup furent assommées par le choc.
 
 Les spectateurs sur la place subirent le même sort. Bien que les généraux démoniaques s'en soient mieux sortis, leur énergie spirituelle démoniaque circulait dans leurs corps sans qu'ils puissent la contrôler. C'était comme si leurs corps allaient imploser sous l'effet du son s'ils n'avaient pas canalisé l'énergie.
 

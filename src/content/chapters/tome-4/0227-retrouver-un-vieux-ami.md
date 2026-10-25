@@ -12,7 +12,7 @@ Le paysage devant lui devint soudainement flou. Des ondulations apparurent, comm
 
 Le corps de Wang Lin disparut pour réapparaître à l'intérieur du réseau de transfert. Il sortit quelques matériaux de son sac de rangement et les posa sur le réseau de transfert pour rétablir les parties qu'il avait démontées autrefois.
 
-Peu après, il jeta un regard vers la direction de la Secte du Ciel Nuageux. Le visage empreint de détermination, il sortit une pierre spirituelle de haute qualité en forme de losange, prit une profonde inspiration et la plaça lentement dans le réseau de transfert.
+Peu après, il jeta un regard vers la direction de la Secte Yun Tian. Le visage empreint de détermination, il sortit une pierre spirituelle de haute qualité en forme de losange, prit une profonde inspiration et la plaça lentement dans le réseau de transfert.
 
 Soudain, l'autel s'anima et des rayons de lumière en jaillirent. Des vagues d'énergie spirituelle émanèrent de la pierre jusqu'à ce que celle-ci soit réduite en poussière.
 
@@ -20,27 +20,27 @@ Au même instant, la silhouette de Wang Lin devint floue au cœur de la lumière
 
 Après un long moment, le réseau retrouva son état normal.
 
-Dans les terres désolées de la Mer des Démons, un grondement sourd émana du sol. Les vibrations se dissipèrent alors que Wang Lin sortait, le regard froid.
+Dans les terres désolées de la Mer Xiu Mo, un grondement sourd émana du sol. Les vibrations se dissipèrent alors que Wang Lin sortait, le regard froid.
 
 Il observa la scène familière qui s'offrait à lui et poussa un soupir. Il s'éleva dans les airs et, après une brève pause, s'élança rapidement vers l'est.
 
 L'objectif de Wang Lin était de trouver une carte des anciens réseaux de transfert ainsi qu'une carte de la planète Suzaku. Il avait rassemblé de nombreuses cartes à Chu, mais n'y avait jamais vu l'emplacement de Zhao.
 
-Après avoir analysé les cartes, Wang Lin en déduisit que Zhao devait se trouver de l'autre côté de la Mer des Démons.
+Après avoir analysé les cartes, Wang Lin en déduisit que Zhao devait se trouver de l'autre côté de la Mer Xiu Mo.
 
 Alors qu'il volait, son expression changea soudainement et un sourire étira ses lèvres. En utilisant son Sens Divin, semblable à celui de la Formation de l'Âme, il parvint à débusquer un vieil ami.
 
-Depuis l'apparition de la rétribution divine dans la Mer des Démons, le brouillard qui la recouvrait avait totalement disparu. Après plusieurs années de pluie noire, la Mer des Démons était désormais exposée aux yeux de tous. Son ancien voile de mystère s'était évanoui sans laisser de trace.
+Depuis l'apparition de la rétribution divine dans la Mer Xiu Mo, le brouillard qui la recouvrait avait totalement disparu. Après plusieurs années de pluie noire, la Mer Xiu Mo était désormais exposée aux yeux de tous. Son ancien voile de mystère s'était évanoui sans laisser de trace.
 
-Dans les 999 cités et les vastes étendues sauvages de la Mer des Démons vivaient de nombreux individus odieux. Beaucoup d'entre eux, recherchés par différents pays, cherchaient refuge dans cette région.
+Dans les 999 cités et les vastes étendues sauvages de la Mer Xiu Mo vivaient de nombreux individus odieux. Beaucoup d'entre eux, recherchés par différents pays, cherchaient refuge dans cette région.
 
-La disparition du brouillard déclencha une série d'événements. D'abord, quelques pays ambitieux de rang 4 jetèrent leur dévolu sur la Mer des Démons.
+La disparition du brouillard déclencha une série d'événements. D'abord, quelques pays ambitieux de rang 4 jetèrent leur dévolu sur la Mer Xiu Mo.
 
 Peu après, diverses sectes et familles de culture envoyèrent des groupes de disciples dans la zone. Une tempête était sur le point de déferler sur cette région.
 
-Quant à la pluie noire, elle fut éliminée par quelques cultivateurs extrêmement puissants, sans quoi la Mer des Démons serait devenue inhabitable. Cette eau contenait un poison qui semblait inoffensif au début, mais qui provoquait des épidémies après une exposition prolongée. Normalement, les cultivateurs n'étaient pas affectés par les maux terrestres, mais cette pluie avait tué de nombreux cultivateurs de bas niveau au cours de ces dernières années.
+Quant à la pluie noire, elle fut éliminée par quelques cultivateurs extrêmement puissants, sans quoi la Mer Xiu Mo serait devenue inhabitable. Cette eau contenait un poison qui semblait inoffensif au début, mais qui provoquait des épidémies après une exposition prolongée. Normalement, les cultivateurs n'étaient pas affectés par les maux terrestres, mais cette pluie avait tué de nombreux cultivateurs de bas niveau au cours de ces dernières années.
 
-Finalement, plusieurs puissants experts firent front commun pour chasser la pluie noire de la Mer des Démons. Cependant, cette vague de maladies avait gravement affaibli la région.
+Finalement, plusieurs puissants experts firent front commun pour chasser la pluie noire de la Mer Xiu Mo. Cependant, cette vague de maladies avait gravement affaibli la région.
 
 Si la pluie noire était aussi dangereuse que des bêtes sauvages pour les cultivateurs, elle s'avérait très nutritive pour la faune locale. La force de toutes les bêtes sauvages avait considérablement augmenté grâce à cette pluie, menant même à l'apparition de certaines bêtes désolées.
 
@@ -48,7 +48,7 @@ Bien que le chaos causé par la pluie noire se fût dissipé, celui provoqué pa
 
 Parallèlement, une nouvelle activité spécialisée dans la chasse et la vente de cœurs de bêtes apparut. Ces cultivateurs se déplaçaient en petits groupes et possédaient tous un certain niveau de culture. Ils chassaient les monstres et vendaient leurs cœurs pour subsister.
 
-Ce jour-là, dans la partie intérieure de la Mer des Démons, aux abords de la ville de Xuan Di, un cultivateur vêtu d'une robe de brocart blanc contemplait l'horizon. C'était un homme d'âge moyen, très beau, au regard empreint de sagesse.
+Ce jour-là, dans la partie intérieure de la Mer Xiu Mo, aux abords de la ville de Xuan Di, un cultivateur vêtu d'une robe de brocart blanc contemplait l'horizon. C'était un homme d'âge moyen, très beau, au regard empreint de sagesse.
 
 Après un long moment, il fronça les sourcils. D'un revers de manche, il descendit lentement le long des remparts de la ville.
 
@@ -104,7 +104,7 @@ Qiu Siping ricana intérieurement. Avec sa culture au début du stade de l'Âme 
 
 Il les suivit tranquillement tandis que les cris de la jeune fille résonnaient au loin et que des éclats de lumière provenant de trésors magiques déchiraient l'air.
 
-La Bête aux Huit Griffes n'était, en fin de compte, qu'un poulpe géant de la Mer des Démons. Sa culture n'était pas négligeable et, grâce à la pluie noire, elle avait acquis une certaine intelligence, atteignant le niveau d'une bête spirituelle de faible qualité.
+La Bête aux Huit Griffes n'était, en fin de compte, qu'un poulpe géant de la Mer Xiu Mo. Sa culture n'était pas négligeable et, grâce à la pluie noire, elle avait acquis une certaine intelligence, atteignant le niveau d'une bête spirituelle de faible qualité.
 
 Cependant, cette créature était singulière. Même des cultivateurs au stade de l'Âme Naissante pouvaient s'arracher les cheveux face à elle. Ses pouvoirs divins n'étaient que de faible qualité et faciles à affronter, mais sa chair et sa peau atteignaient le niveau d'une bête spirituelle de qualité moyenne. À moins d'atteindre le stade avancé de l'Âme Naissante, il était impossible de la blesser.
 

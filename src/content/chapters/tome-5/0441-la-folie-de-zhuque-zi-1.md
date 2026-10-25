@@ -32,13 +32,13 @@ Situ Nan éclata de rire et se lança aussitôt à sa poursuite.
 
 « Ne fuis pas! Viens jouer avec ce vieux! »
 
-Les quatre armées du Clan des Immortels Délaissés couvraient les cieux des directions nord, est, ouest et sud du continent Suzaku.
+Les quatre armées du Clan Xian Yi couvraient les cieux des directions nord, est, ouest et sud du continent Suzaku.
 
 Dans l'armée de l'est, le regard du cinquième ancêtre se fit glacial. D'un geste de la main, il déclara d'une voix feutrée: « L'attente de trois mois touche à sa fin. Le jour de la destruction du pays de Suzaku est imminent! »
 
 Aussitôt ses paroles prononcées, il entama sa progression, entraîné par l'immense nuage noir qui le suivait. Sa cible était le centre du pays de Suzaku: le Mont Suzaku!
 
-Simultanément, les trois autres armées du Clan des Immortels Délaissés se mirent en mouvement pour lancer l'assaut final contre le pays de Suzaku.
+Simultanément, les trois autres armées du Clan Xian Yi se mirent en mouvement pour lancer l'assaut final contre le pays de Suzaku.
 
 Les deux arbres de réincarnation géants du continent Suzaku se mirent à briller intensément, et deux Esprits Ancestraux rayonnants en émergèrent.
 
@@ -50,15 +50,15 @@ C'était une guerre titanesque; tout le continent Suzaku tremblait tandis que le
 
 Zhu Quezi se tenait au sommet du Mont Suzaku. Sa robe rouge flottait au vent, accompagnant le mouvement de ses cheveux blancs. Il restait là, parfaitement immobile.
 
-Chu Yunfei était parti. L'ancêtre Ascendant de la Secte de la Terre Brisée s'était retiré en culture à huis clos. À présent, le seul cultivateur Ascendant de Suzaku était Zhu Quezi.
+Chu Yunfei était parti. L'ancêtre Ascendant de la Secte Di Po s'était retiré en culture à huis clos. À présent, le seul cultivateur Ascendant de Suzaku était Zhu Quezi.
 
 Sa silhouette dégageait une pointe de tristesse et de solitude, mais plus encore, une véritable folie!
 
-« Cultivateurs de la planète Suzaku, je suis Zhu Quezi. Vous n'avez plus besoin de vous défendre; laissez venir le Clan des Immortels Délaissés! Qian Feng, Liu Mei, venez ici. » Le message divin de Zhu Quezi balaya l'intégralité du continent Suzaku.
+« Cultivateurs de la planète Suzaku, je suis Zhu Quezi. Vous n'avez plus besoin de vous défendre; laissez venir le Clan Xian Yi! Qian Feng, Liu Mei, venez ici. » Le message divin de Zhu Quezi balaya l'intégralité du continent Suzaku.
 
 Tous les cultivateurs qui tenaient la défense cessèrent le combat, poussèrent des soupirs en entendant cela et se dispersèrent pour sauver leur vie.
 
-Sans que les cultivateurs ne puissent les entraver, les quatre armées du Clan des Immortels Délaissés chargèrent vers le centre de Suzaku telles des tempêtes déchaînées.
+Sans que les cultivateurs ne puissent les entraver, les quatre armées du Clan Xian Yi chargèrent vers le centre de Suzaku telles des tempêtes déchaînées.
 
 Vu d'en haut, on aurait dit que le continent entier était recouvert par quatre nuages noirs gigantesques convergeant rapidement vers le centre.
 
@@ -70,19 +70,19 @@ Qian Feng portait une robe noire et ses yeux dégageaient une aura maléfique. I
 
 Liu Mei était toujours aussi belle. Sa robe de gaze blanche lui donnait l'allure d'une fée. En cet instant, ses sourcils étaient étroitement froncés, mais elle restait également silencieuse.
 
-La silhouette de Zhu Quezi trahissait une trace de solitude lorsqu'il dit d'un ton pesant: « La planète Suzaku ne peut repousser le Clan des Immortels Délaissés. Qian Feng, Liu Mei, vous allez tous deux traverser une épreuve de vie ou de mort aujourd'hui. Que vous surviviez ou que vous mouriez dépendra de votre chance. »
+La silhouette de Zhu Quezi trahissait une trace de solitude lorsqu'il dit d'un ton pesant: « La planète Suzaku ne peut repousser le Clan Xian Yi. Qian Feng, Liu Mei, vous allez tous deux traverser une épreuve de vie ou de mort aujourd'hui. Que vous surviviez ou que vous mouriez dépendra de votre chance. »
 
-À ce moment précis, les nuages noirs se refermèrent comme des vagues furieuses. Le nuage venant de l'est ne comptait qu'un seul individu: un homme d'âge moyen vêtu d'une robe grise qui ressemblait à un érudit. D'un seul pas, il atteignit une distance de 330 mètres de Zhu Quezi. « Zhu Quezi, je suis le cinquième ancêtre du Clan des Immortels Délaissés. »
+À ce moment précis, les nuages noirs se refermèrent comme des vagues furieuses. Le nuage venant de l'est ne comptait qu'un seul individu: un homme d'âge moyen vêtu d'une robe grise qui ressemblait à un érudit. D'un seul pas, il atteignit une distance de 330 mètres de Zhu Quezi. « Zhu Quezi, je suis le cinquième ancêtre du Clan Xian Yi. »
 
 Une autre personne émergea du nuage noir de l'ouest. Cet homme paraissait très jeune et son corps entier était couvert de tatouages; cependant, ces derniers n'étaient pas noirs, mais dorés!
 
 Si Wang Lin avait été présent, il l'aurait reconnu d'un seul coup d'œil.
 
-L'individu dit lentement: « Le jeune maître du Clan des Immortels Délaissés salue Zhu Quezi. »
+L'individu dit lentement: « Le jeune maître du Clan Xian Yi salue Zhu Quezi. »
 
 Trois personnes sortirent du nuage noir du sud. Elles comblèrent la distance en un pas et s'arrêtèrent à 330 mètres de Zhu Quezi.
 
-Deux d'entre elles étaient dans un état illusoire. Elles fixaient Zhu Quezi sans dire un mot. La troisième était une femme. Elle était très belle et son regard exhalait un certain charme. Elle regarda Zhu Quezi, esquissa un sourire et dit: « Cette jeune fille est la troisième ancêtre du Clan des Immortels Délaissés, et ces deux-là sont les esprits ancestraux de mon clan. »
+Deux d'entre elles étaient dans un état illusoire. Elles fixaient Zhu Quezi sans dire un mot. La troisième était une femme. Elle était très belle et son regard exhalait un certain charme. Elle regarda Zhu Quezi, esquissa un sourire et dit: « Cette jeune fille est la troisième ancêtre du Clan Xian Yi, et ces deux-là sont les esprits ancestraux de mon clan. »
 
 Du nuage noir du nord, Yun Quezi apparut. Il murmura vers Zhu Quezi: « Frère aîné. »
 
@@ -90,7 +90,7 @@ Zhu Quezi se tourna brusquement vers lui et demanda: « Dois-je t'appeler Yun Qu
 
 Yun Quezi secoua la tête et répondit: « Peu importe. Tu peux m'appeler comme bon te semble, frère aîné. »
 
-« Vous êtes tous venus. Le seul chaman à onze feuilles du Clan des Immortels Délaissés, le premier ancêtre, tu pourrais tout aussi bien sortir de l'ombre. » Les yeux de Zhu Quezi brillèrent alors qu'il scrutait le ciel.
+« Vous êtes tous venus. Le seul chaman à onze feuilles du Clan Xian Yi, le premier ancêtre, tu pourrais tout aussi bien sortir de l'ombre. » Les yeux de Zhu Quezi brillèrent alors qu'il scrutait le ciel.
 
 Un rayon de lumière aux cinq couleurs se rassembla dans les cieux et une silhouette transparente prit lentement forme. La figure descendit avec lenteur et dit: « Zhu Quezi. »
 

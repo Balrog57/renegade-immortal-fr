@@ -62,19 +62,19 @@ Les yeux de Tan Lang brillaient de joie. Durant ces centaines d'années, il avai
 
 « Je ne prendrai pas tes trésors sans raison, tu peux partir... » Tan Lang se remémora les paroles de Wang Lin avant son départ, et une expression complexe se dessina sur son visage.
 
-Après avoir laissé Tan Lang filer, Wang Lin fit volte-face pour retourner vers le Clan du Scorpion Noir. Tan Lang, malgré la barrière entre le Royaume Intérieur et le Royaume Extérieur, était arrivé avant lui dans le Système Stellaire Antique et lui avait remis tous ces trésors. Après avoir obtenu les richesses durement acquises de Tan Lang, sans compter la joie de retrouver une connaissance en terre étrangère, comment Wang Lin aurait-il pu vouloir le tuer?
+Après avoir laissé Tan Lang filer, Wang Lin fit volte-face pour retourner vers le Clan An Xie. Tan Lang, malgré la barrière entre le Royaume Intérieur et le Royaume Extérieur, était arrivé avant lui dans le Système Stellaire Antique et lui avait remis tous ces trésors. Après avoir obtenu les richesses durement acquises de Tan Lang, sans compter la joie de retrouver une connaissance en terre étrangère, comment Wang Lin aurait-il pu vouloir le tuer?
 
-« Ce Tan Lang est mon étoile porte-bonheur. Je ne peux pas le tuer, je dois le laisser partir. J'ai hâte de notre troisième rencontre. Il aura probablement encore plus de trésors à m'offrir! » Wang Lin sourit alors qu'il apparaissait au-dessus de la planète du Clan du Scorpion Noir.
+« Ce Tan Lang est mon étoile porte-bonheur. Je ne peux pas le tuer, je dois le laisser partir. J'ai hâte de notre troisième rencontre. Il aura probablement encore plus de trésors à m'offrir! » Wang Lin sourit alors qu'il apparaissait au-dessus de la planète du Clan An Xie.
 
-Les quelque 1 000 cultivateurs du Clan de l'Évasion Nuageuse n'avaient pas osé partir et attendaient toujours là. Zhong Dahong était devenu plus enjoué et avait choisi quelques cultivateurs de haut niveau pour le soigner. Allongé, il continuait de laisser échapper des reniflements méprisants.
+Les quelque 1 000 cultivateurs du Clan Yun Dun n'avaient pas osé partir et attendaient toujours là. Zhong Dahong était devenu plus enjoué et avait choisi quelques cultivateurs de haut niveau pour le soigner. Allongé, il continuait de laisser échapper des reniflements méprisants.
 
 Chaque fois qu'il émettait un tel bruit, les cultivateurs environnants tremblaient.
 
 Ils regardaient Zhong Dahong avec respect. Ce n'était pas lui qu'ils craignaient, mais le Maître qui se trouvait derrière lui! L'expression de leur patriarche après avoir vu le jeton de jade leur avait fait comprendre qu'ils avaient provoqué une entité qu'ils ne devaient pas et qu'une calamité approchait.
 
-Les membres du Clan du Scorpion Noir qui s'étaient dispersés furent respectueusement reconduits les uns après les autres. Des pilules furent distribuées pour les aider à récupérer. Même le vieil homme nommé Zhang fut ramené.
+Les membres du Clan An Xie qui s'étaient dispersés furent respectueusement reconduits les uns après les autres. Des pilules furent distribuées pour les aider à récupérer. Même le vieil homme nommé Zhang fut ramené.
 
-Deux cultivatrices du Clan de l'Évasion Nuageuse massaient les épaules de Zhong Dahong. Se sentant très à son aise, il déclara avec arrogance: « Je vous l'avais bien dit! Ce vieux vous l'avait clairement annoncé, mais personne ne m'a cru! À quoi servent vos yeux?! »
+Deux cultivatrices du Clan Yun Dun massaient les épaules de Zhong Dahong. Se sentant très à son aise, il déclara avec arrogance: « Je vous l'avais bien dit! Ce vieux vous l'avait clairement annoncé, mais personne ne m'a cru! À quoi servent vos yeux?! »
 
 « Ce n'est pas que ce vieux vous méprise, mais avec vos niveaux de culture, sans même parler de mon Maître, même moi je ne vous considère pas comme une menace. Un simple revers suffit pour vous écraser comme des fourmis! » Zhong Dahong leva le menton et les réprimanda avec dédain.
 
@@ -98,7 +98,7 @@ Zhong Dahong la saisit et l'examina. La joie illumina ses yeux lorsqu'il la rang
 
 « Ce n'est qu'en voyant le Maître et en étant à ses côtés que ce petit peut enfin trouver la paix. » Zhong Dahong s'avança rapidement en utilisant son art invincible. Simultanément, il veillait scrupuleusement à ne pas trop exagérer pour ne pas irriter Wang Lin.
 
-À cet instant, toute l'arrogance qu'il montrait devant le Clan de l'Évasion Nuageuse avait disparu, remplacée par une flatterie constante.
+À cet instant, toute l'arrogance qu'il montrait devant le Clan Yun Dun avait disparu, remplacée par une flatterie constante.
 
 C'était la première fois que les cultivateurs de l'Évasion Nuageuse assistaient à un tel spectacle et ils en restèrent stupéfaits. Même le patriarche, qui venait d'offrir le présent, était pétrifié. Il ne pouvait imaginer comment quelqu'un pouvait changer si radicalement en un instant.
 

@@ -1,12 +1,12 @@
 ---
 n: 397
-title: Le Clan des Démons Géants
+title: Le Clan Ju Mo
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 397 - Giant Demon Clan
 slug: le-clan-des-demons-geants
 ---
-L'âme originelle de Wang Lin émit une lumière dorée. Cette lueur provenait de l'activation de la technique de scellement de l'âme. Les douze âmes étaient celles de douze cultivateurs du stade de la Transformation de l'Âme de la Secte de l'Affinement de l'Âme, qui, à l'approche de leur mort, avaient volontairement offert leur âme pour être scellées dans le drapeau.
+L'âme originelle de Wang Lin émit une lumière dorée. Cette lueur provenait de l'activation de la technique de scellement de l'âme. Les douze âmes étaient celles de douze cultivateurs du stade de la Transformation de l'Âme de la Secte Lian Hun, qui, à l'approche de leur mort, avaient volontairement offert leur âme pour être scellées dans le drapeau.
 
 Avec ces douze fragments d'âmes de la Transformation de l'Âme, la puissance de ce drapeau était déjà suffisante pour ébranler les cieux.
 
@@ -22,17 +22,17 @@ L'âme originelle de Wang Lin s'avança et saisit le drapeau. Il sentit soudain 
 
 Au sommet de la Montagne de l'Affinement de l'Âme, Wang Lin ouvrit les yeux. Rien ne semblait être devant lui, pourtant il pouvait sentir, au plus profond de lui, un drapeau pourpre et doré que son âme originelle était en train de raffiner.
 
-« Ancêtre du Clan des Démons Géants, vous ne pourrez pas échapper à cette calamité! » Les yeux de Wang Lin s'illuminèrent et il disparut de la Secte de l'Affinement de l'Âme.
+« Ancêtre du Clan Ju Mo, vous ne pourrez pas échapper à cette calamité! » Les yeux de Wang Lin s'illuminèrent et il disparut de la Secte Lian Hun.
 
 Après le départ de Wang Lin, un soupir s'éleva de l'anneau de sang où Du Tian pratiquait sa culture en méditation fermée.
 
 Wang Lin apparut rapidement près de l'ancien réseau de transfert, l'ouvrit et disparut de Pilu.
 
-Le Clan des Démons Géants.
+Le Clan Ju Mo.
 
-Le territoire du Clan des Démons Géants était vaste. Lorsqu'ils avaient migré depuis une autre planète, ils avaient conclu un accord avec celui qui occupait alors la fonction de Suzaku, et ce territoire leur avait été octroyé pour qu'ils puissent y prospérer.
+Le territoire du Clan Ju Mo était vaste. Lorsqu'ils avaient migré depuis une autre planète, ils avaient conclu un accord avec celui qui occupait alors la fonction de Suzaku, et ce territoire leur avait été octroyé pour qu'ils puissent y prospérer.
 
-Au sein du Clan des Démons Géants se trouvaient douze Palais de Démons Géants. Les douze palais étaient identiques et d'une taille immense, hauts d'environ 330 mètres.
+Au sein du Clan Ju Mo se trouvaient douze Palais Ju Mo. Les douze palais étaient identiques et d'une taille immense, hauts d'environ 330 mètres.
 
 Depuis deux ans, lorsque l'ancêtre avait perdu son corps pour en posséder un autre, plus personne au sein du clan ne savait où il se trouvait.
 
@@ -42,17 +42,17 @@ Ce jour-là, Chi Hu était assis dans le troisième palais, un morceau de jade �
 
 « Ceng Niu a tué Li Yuanfeng de Xue Yu. D'après ce que je sais de lui, je pense que sa prochaine cible sera forcément l'ancêtre... S'il vient, c'est qu'il est certain de son coup... Que dois-je faire... »
 
-« Bien que l'ancêtre ait tort, il est l'espoir du Clan des Démons Géants; tout ce qu'il a fait l'était pour le futur de notre clan. »
+« Bien que l'ancêtre ait tort, il est l'espoir du Clan Ju Mo; tout ce qu'il a fait l'était pour le futur de notre clan. »
 
 « Mais Ceng Niu me considère comme un ami... Ah! »
 
 Chi Hu secoua amèrement la tête, les yeux perdus dans ses pensées.
 
-Wang Lin apparut à la lisière du Clan des Démons Géants. Il ne se pressait pas d'y pénétrer. Au lieu de cela, il se rendit dans un vallon caché à la frontière et commença à utiliser divers matériaux contenus dans son sac pour ériger une formation.
+Wang Lin apparut à la lisière du Clan Ju Mo. Il ne se pressait pas d'y pénétrer. Au lieu de cela, il se rendit dans un vallon caché à la frontière et commença à utiliser divers matériaux contenus dans son sac pour ériger une formation.
 
 L'unique but de cette formation était de servir de balise.
 
-C'était la solution trouvée par Wang Lin pour contrer le pouvoir de la lignée de l'ancêtre du Clan des Démons Géants. Même s'il venait à être téléporté dans l'espace, il pourrait utiliser cette formation comme un phare pour revenir et ne pas s'égarer dans le vide sidéral.
+C'était la solution trouvée par Wang Lin pour contrer le pouvoir de la lignée de l'ancêtre du Clan Ju Mo. Même s'il venait à être téléporté dans l'espace, il pourrait utiliser cette formation comme un phare pour revenir et ne pas s'égarer dans le vide sidéral.
 
 C'était comme s'attacher une corde de sécurité: même en cas de téléportation, il ne serait pas projeté trop loin et pourrait retrouver son chemin.
 
@@ -60,13 +60,13 @@ Cette formation provenait du jade que Du Tian lui avait laissé. Wang Lin l'étu
 
 Il lui fallut trois mois pour achever l'installation de cette formation, utilisant même un jade céleste comme source d'énergie. Il disposa ensuite d'innombrables restrictions autour de la zone pour la protéger.
 
-Une fois sa tâche accomplie, Wang Lin leva les yeux vers le Clan des Démons Géants. Son regard devint glacial, puis il disparut.
+Une fois sa tâche accomplie, Wang Lin leva les yeux vers le Clan Ju Mo. Son regard devint glacial, puis il disparut.
 
-Lorsqu'il réapparut, il se trouvait déjà au cœur du territoire du Clan des Démons Géants.
+Lorsqu'il réapparut, il se trouvait déjà au cœur du territoire du Clan Ju Mo.
 
 Il déploya son sens divin, qui couvrit immédiatement la majeure partie du pays.
 
-« Ancêtre du Clan des Démons Géants, sortez maintenant! » Le message de Wang Lin, porté par son sens divin, fut instantanément entendu par d'innombrables membres du clan.
+« Ancêtre du Clan Ju Mo, sortez maintenant! » Le message de Wang Lin, porté par son sens divin, fut instantanément entendu par d'innombrables membres du clan.
 
 Certains étaient en pleine culture ou s'affrontaient, mais dès qu'ils entendirent l'appel, ils cessèrent toute activité et tournèrent leurs regards vers Wang Lin, stupéfaits.
 
@@ -84,7 +84,7 @@ Le vieil homme s'arrêta à 330 mètres de Wang Lin. Il fronça les sourcils et 
 
 Le regard de Wang Lin fut comme un éclair lorsqu'il fixa le vieillard et lâcha: « Ceng Niu! »
 
-À l'instant même où ces deux mots furent prononcés, un silence de mort tomba sur les environs. Les yeux de presque tous les membres du Clan des Démons Géants s'emplirent de terreur.
+À l'instant même où ces deux mots furent prononcés, un silence de mort tomba sur les environs. Les yeux de presque tous les membres du Clan Ju Mo s'emplirent de terreur.
 
 « Ceng Niu... c'est lui qui a vaincu Hongdie! »
 
@@ -98,9 +98,9 @@ Même le vieillard qui avait pris la parole prit une profonde inspiration. Il re
 
 Les yeux de Wang Lin étaient glacials lorsqu'il répondit: « Tuer! »
 
-L'expression du vieillard se décomposa. Il laissa échapper un rire furieux en pointant Wang Lin du doigt: « On m'avait dit que tu étais arrogant. Maintenant que je te vois, je constate que c'est vrai! Ceng Niu, mon Clan des Démons Géants n'est pas Xue Yu; comment pourrions-nous te laisser massacrer qui bon te semble? Aujourd'hui, sans même que l'ancêtre ait besoin de se montrer, mon clan va te tuer! »
+L'expression du vieillard se décomposa. Il laissa échapper un rire furieux en pointant Wang Lin du doigt: « On m'avait dit que tu étais arrogant. Maintenant que je te vois, je constate que c'est vrai! Ceng Niu, mon Clan Ju Mo n'est pas Xue Yu; comment pourrions-nous te laisser massacrer qui bon te semble? Aujourd'hui, sans même que l'ancêtre ait besoin de se montrer, mon clan va te tuer! »
 
-Sur ces mots, le vieillard frappa son sac de rangement et un jeton noir en émergea. Il brandit le jeton et hurla: « En ma qualité d'Ancien du Clan des Démons Géants, j'ordonne à tous les membres du clan de tuer Ceng Niu à tout prix! »
+Sur ces mots, le vieillard frappa son sac de rangement et un jeton noir en émergea. Il brandit le jeton et hurla: « En ma qualité d'Ancien du Clan Ju Mo, j'ordonne à tous les membres du clan de tuer Ceng Niu à tout prix! »
 
 À l'instant même, le jeton se changea en poussière et une puissance mystérieuse se propagea instantanément dans tout le territoire.
 
@@ -114,7 +114,7 @@ L'aura qu'ils dégageaient était capable de briser les cieux!
 
 « Tuez!!! » Les membres du clan environnants chargèrent Wang Lin dans un fracas de hurlements. Leurs cris fusionnèrent en une onde sonore qui accompagnait leur assaut.
 
-Le Clan des Démons Géants différait grandement des autres clans. Une fois qu'un ennemi était identifié par un Ancien, ils ne combattaient jamais isolément, mais attaquaient toujours en meute.
+Le Clan Ju Mo différait grandement des autres clans. Une fois qu'un ennemi était identifié par un Ancien, ils ne combattaient jamais isolément, mais attaquaient toujours en meute.
 
 Ils ne cherchaient plus à discuter; le mot « tuer » était leur unique langage.
 
@@ -126,11 +126,11 @@ L'intention meurtrière de Wang Lin était terrifiante. Il avait passé presque 
 
 Son avatar ayant fusionné avec son corps originel, toute la soif de sang de ce dernier résidait ici. Les yeux de Wang Lin devinrent froids alors que toute l'intention meurtrière de son être explosait.
 
-« Dites-moi où se cache l'ancêtre du Clan des Démons Géants, ou mourez! »
+« Dites-moi où se cache l'ancêtre du Clan Ju Mo, ou mourez! »
 
 Hormis Chi Hu, Wang Lin n'avait aucune intention bienveillante envers le reste du clan. Comme il n'avait pas réussi à localiser l'ancêtre en déployant son sens divin, il perdait patience.
 
-Alors qu'il parlait, il ne daigna même pas regarder les membres qui chargeaient vers lui et activa plutôt son domaine. Le ciel au-dessus du Clan des Démons Géants s'obscurcit soudainement.
+Alors qu'il parlait, il ne daigna même pas regarder les membres qui chargeaient vers lui et activa plutôt son domaine. Le ciel au-dessus du Clan Ju Mo s'obscurcit soudainement.
 
 Une puissance mystérieuse enveloppa le ciel et la terre. Le parchemin de la réincarnation de la vie et de la mort apparut dans les cieux, accompagné de la silhouette du Dieu Ancien.
 

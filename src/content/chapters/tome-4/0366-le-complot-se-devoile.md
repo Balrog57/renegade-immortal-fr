@@ -58,7 +58,7 @@ L'expression de Hongdie changea et elle cria: « Oses-tu?! »
 
 Le visage de Hongdie était sombre. Après une brève hésitation, elle lâcha prise, recula pour esquiver l'énergie de l'épée et lança un ricanement méprisant à Wang Lin.
 
-« Ceng Niu, ce Fouet Kunji porte un sceau posé par la Secte du Jade Céleste. Même si tu le voles, tu seras incapable de l'utiliser! »
+« Ceng Niu, ce Fouet Kunji porte un sceau posé par la Secte Tian Yu. Même si tu le voles, tu seras incapable de l'utiliser! »
 
 Alors qu'elle parlait, la ligne noire sur le front de Hongdie s'estompa lentement jusqu'à disparaître sans laisser de trace.
 

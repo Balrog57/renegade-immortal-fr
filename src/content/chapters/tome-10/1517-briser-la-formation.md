@@ -12,7 +12,7 @@ Maître Dong Dizi sourit, mais il balaya cette idée d'un revers de cœur. Il co
 
 Le but principal de cette première bataille est de tuer et de piller. Le second est de déployer le réseau de transfert. Enfin, il s'agira d'éliminer ce petit cultivateur, Wang Lin, en chemin! »
 
-Alors qu'il songeait à cela, Maître Dong Dizi tourna soudainement son regard vers l'horizon. Au même instant, Nanzhao Shangren, l'ancêtre du Clan des Moineaux de Feu et le Grand Maître Yun Luo fixèrent tous également le lointain.
+Alors qu'il songeait à cela, Maître Dong Dizi tourna soudainement son regard vers l'horizon. Au même instant, Nanzhao Shangren, l'ancêtre du Clan Huo Que et le Grand Maître Yun Luo fixèrent tous également le lointain.
 
 Une pression écrasante se propagea depuis un grondement sourd, étouffant instantanément les rugissements furieux des 90 000 cultivateurs. Ce son assourdissant attira rapidement tous les regards vers la source du fracas.
 
@@ -24,17 +24,17 @@ Chaque cultivateur en noir dégageait une aura d'une froideur extrême, affichan
 
 Un hurlement d'intention meurtrière enveloppa tout le domaine stellaire!
 
-« C'est le Clan de l'Épée! »
+« C'est le Clan Shi Jian! »
 
-« Les gardes du Palais de la Punition Céleste du Conseil Souverain sont issus du Clan de l'Épée! »
+« Les gardes du Palais Tian Fa du Conseil Zhang Zun sont issus du Clan Shi Jian! »
 
-« La rumeur dit que chaque membre du Clan de l'Épée possède un pouvoir terrifiant. Ils cultivent également le Coup Briseur d'Âme, une technique d'une puissance incroyable! »
+« La rumeur dit que chaque membre du Clan Shi Jian possède un pouvoir terrifiant. Ils cultivent également le Coup Briseur d'Âme, une technique d'une puissance incroyable! »
 
-« Le Clan de l'Épée est apparu. Il doit s'agir du Palais de la Punition Céleste du Conseil Souverain! Je ne m'attendais pas à ce que le Conseil Souverain mobilise l'un des quatre palais dès la première bataille! »
+« Le Clan Shi Jian est apparu. Il doit s'agir du Palais Tian Fa du Conseil Zhang Zun! Je ne m'attendais pas à ce que le Conseil Souverain mobilise l'un des quatre palais dès la première bataille! »
 
 Le grand palais noir s'approcha lentement, propageant une pression de plus en plus pesante. Les 90 000 cultivateurs s'inclinèrent tous face à l'édifice.
 
-« Nous saluons tous le Palais de la Punition Céleste! » La voix des 90 000 cultivateurs monta telle une vague déferlante.
+« Nous saluons tous le Palais Tian Fa! » La voix des 90 000 cultivateurs monta telle une vague déferlante.
 
 À l'extérieur de la Formation de Scellement du Royaume, le palais géant s'immobilisa lentement. Les milliers de cultivateurs en noir fixaient froidement l'horizon.
 
@@ -60,7 +60,7 @@ Levant les yeux vers le ciel, un éclat de froideur traversa son regard. Elle le
 
 « Puisque vous n'avez pas encore tranché, je vais vous donner un coup de main! » murmura la femme en retirant une épingle dorée de sa chevelure de la main gauche avant de la projeter en avant!
 
-Des vagues de musique de cithare émanaient du sommet du Mont Bleu, au sein du Clan de la Soie Bleue. Bien que mélodieuse, cette musique était étrange. Parfois empreinte d'une volonté d'embuscade et de mort, elle était parfois d'une douceur extrême. Ces deux extrêmes fusionnaient pour former une émotion complexe.
+Des vagues de musique de cithare émanaient du sommet du Mont Bleu, au sein du Clan Lan Si. Bien que mélodieuse, cette musique était étrange. Parfois empreinte d'une volonté d'embuscade et de mort, elle était parfois d'une douceur extrême. Ces deux extrêmes fusionnaient pour former une émotion complexe.
 
 Lanmeng Daozun ferma les yeux, ses mains dansant sur la cithare. Il semblait hésiter, comme s'il était face à un choix crucial!
 

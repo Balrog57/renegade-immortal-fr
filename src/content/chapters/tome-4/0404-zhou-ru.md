@@ -6,17 +6,17 @@ bookTitle: Clean Sweep
 en: Chapter 404 - Zhou Ru
 slug: zhou-ru
 ---
-Dès qu'elle acquit une conscience, tous ceux qu'elle rencontrait tombaient sous son charme. Même l'ancêtre du Clan des Démons Géants fut séduit. Bien qu'il ait fini par réussir à se libérer de son emprise, il ne put jamais lui faire le moindre mal; il se contenta donc de la sceller.
+Dès qu'elle acquit une conscience, tous ceux qu'elle rencontrait tombaient sous son charme. Même l'ancêtre du Clan Ju Mo fut séduit. Bien qu'il ait fini par réussir à se libérer de son emprise, il ne put jamais lui faire le moindre mal; il se contenta donc de la sceller.
 
-Une fois scellée, elle cherchait toujours un moyen d'échapper à l'ancêtre du Clan des Démons Géants. Un jour, elle rencontra Xu Liguo. Elle le charma aisément, et celui-ci s'était démené pour la sauver.
+Une fois scellée, elle cherchait toujours un moyen d'échapper à l'ancêtre du Clan Ju Mo. Un jour, elle rencontra Xu Liguo. Elle le charma aisément, et celui-ci s'était démené pour la sauver.
 
 Cependant, elle n'aurait jamais imaginé qu'un tel homme puisse exister. Non seulement tout son charme était vain contre lui, mais il avait même eu le cœur de la faire souffrir.
 
 « Quel est ce domaine qui émane de ton corps? » Wang Lin n'avait pas été affecté par son charme grâce à sa vaste expérience de vie et à sa maîtrise de la technique de scellement de l'âme.
 
-Au cours de ses 500 ans de culture, Wang Lin n'avait jamais été avec une femme; son cœur était donc bien plus déterminé que celui de l'ancêtre du Clan des Démons Géants.
+Au cours de ses 500 ans de culture, Wang Lin n'avait jamais été avec une femme; son cœur était donc bien plus déterminé que celui de l'ancêtre du Clan Ju Mo.
 
-Parallèlement, la technique de scellement de l'âme était la technique ultime de la Secte de l'Affinement de l'Âme. Outre le contrôle du drapeau des mille millions d'âmes, son autre usage consistait à rendre son âme imperméable à toutes les influences maléfiques.
+Parallèlement, la technique de scellement de l'âme était la technique ultime de la Secte Lian Hun. Outre le contrôle du drapeau des mille millions d'âmes, son autre usage consistait à rendre son âme imperméable à toutes les influences maléfiques.
 
 C'est grâce à cela qu'il pouvait contrôler les mille millions de fragments d'âme sans subir de contrecoup.
 

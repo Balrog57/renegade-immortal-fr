@@ -34,7 +34,7 @@ Cette paume contenait une immense quantité de sa puissance du tonnerre.
 
 Le vieil homme aux cheveux blancs n'était pas mieux loti. Il recula, chaque pas creusant une empreinte profonde dans le sol. Son visage était livide et du sang s'échappait du coin de sa bouche, mais son expression demeurait d'une férocité extrême. D'un coup de pied impétueux, il s'élança à travers la poussière, visant droit sur Wang Lin.
 
-« Tatouage du Clan du Tonnerre Dispersé, je vais te sceller à nouveau! Je ne crois pas que tu auras un troisième tatouage après que j'aurai scellé tes tatouages de feu et de foudre!!! » Le corps du vieil homme fut tel un éclair traversant la poussière. Sa main droite frappa violemment entre ses propres sourcils, et la fissure réapparut. Une seconde rune, émettant une puissante lueur noire, s'en échappa.
+« Tatouage du Clan Shan Lei, je vais te sceller à nouveau! Je ne crois pas que tu auras un troisième tatouage après que j'aurai scellé tes tatouages de feu et de foudre!!! » Le corps du vieil homme fut tel un éclair traversant la poussière. Sa main droite frappa violemment entre ses propres sourcils, et la fissure réapparut. Une seconde rune, émettant une puissante lueur noire, s'en échappa.
 
 Après avoir utilisé deux sceaux, le vieil homme avait perdu la majeure partie de sa vitalité. Il ressemblait à un mort sortant de sa tombe, exhalant une odeur de décomposition.
 
@@ -100,7 +100,7 @@ Même les bêtes féroces de la périphérie qui luttaient dans les flammes s'ef
 
 Les innombrables âmes de Dao du Royaume aux Sept Couleurs se rassemblèrent devant le vieil homme. Elles fusionnèrent en une seule entité, puis une lumière jaune envahit le monde, enveloppant Wang Lin.
 
-« Dispersion du Dao! » La voix féroce du vieil homme résonna alors qu'il engageait toute sa puissance. Hormis le sceau céleste, c'était le sort qui terrifiait le plus. C'est ce sort qui permit au Clan de l'Extermination des Sceaux de diriger les Hauts Anciens Clans; ce clan n'était surpassé que par les anciens dieux, démons et monstres!
+« Dispersion du Dao! » La voix féroce du vieil homme résonna alors qu'il engageait toute sa puissance. Hormis le sceau céleste, c'était le sort qui terrifiait le plus. C'est ce sort qui permit au Clan Feng Mie de diriger les Hauts Anciens Clans; ce clan n'était surpassé que par les anciens dieux, démons et monstres!
 
 Ce n'était pas un simple sort ou une capacité, mais le rare Sortilège du Dao!
 

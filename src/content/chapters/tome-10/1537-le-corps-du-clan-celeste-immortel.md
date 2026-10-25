@@ -18,7 +18,7 @@ Même les cultivateurs du stade avancé du Vide du Nirvana seraient ébranlés p
 
 Tandis que le nouveau sang généré par sa moelle osseuse circulait dans le corps de Wang Lin, les trois essences restantes — vie et mort, karma, et vrai et faux — commencèrent lentement à atteindre la perfection. Elles n'avaient plus besoin que d'une opportunité, sous l'effet de cette lignée céleste, pour atteindre le Grand Dao!
 
-L'apparition du fou était une chance immense, comparable à l'héritage qu'il avait obtenu dans la Terre de l'Ancien Dieu. Cela suffisait à changer sa destinée!
+L'apparition du fou était une chance immense, comparable à l'héritage qu'il avait obtenu dans la Terre Gu Shen. Cela suffisait à changer sa destinée!
 
 Et cette immense fortune n'était pas encore terminée!
 

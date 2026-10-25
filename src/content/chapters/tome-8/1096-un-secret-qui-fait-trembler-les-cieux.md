@@ -26,7 +26,7 @@ Après avoir hésité, elle dit prudemment: « Je crains de ne pas pouvoir assis
 
 Wang Lin ne chercha pas à la retenir et laissa Li Yingzhi quitter la salle. Elle se transforma en un rayon de lumière et disparut rapidement.
 
-Wang Lin détourna le regard du point où la femme avait disparu. Il avait déjà lancé l'appât; il ne lui restait plus qu'à voir si Luotian et la Secte des Cadavres mordraient à l'hameçon.
+Wang Lin détourna le regard du point où la femme avait disparu. Il avait déjà lancé l'appât; il ne lui restait plus qu'à voir si Luotian et la Secte Shi Yin mordraient à l'hameçon.
 
 « Ils seront certainement tentés! » Wang Lin se retourna vers Mo Zhi avec un sourire. Il se leva, et son armure ainsi que sa cape disparurent. Vêtu d'une robe blanche, il joignit les mains en signe de respect envers Mo Zhi: « Frère Mo, de nombreuses années ont passé depuis notre dernière rencontre. Vous avez toujours l'air aussi éblouissant! »
 
@@ -44,7 +44,7 @@ Mo Zhi ramassa la bouteille et s'assit à son tour. Ses yeux étaient empreints 
 
 Wang Lin secoua la tête. Parfois, lorsque l'on frôle la compréhension sans toutefois la saisir, peu importe les efforts de réflexion, on a l'impression qu'un obstacle bloque le chemin. Malgré toute la volonté du monde, l'illumination refuse de venir.
 
-« La deuxième fois que j'ai rencontré le frère Wang dans le Tombeau de Suzaku, je voulais initialement qu'il devienne le seigneur de la planète Suzaku, mais il semble que je l'aie sous-estimé. » Mo Zhi parut sincère en prenant une gorgée de vin. « Je ne m'attendais pas à ce que le frère Wang soit l'Empereur Divin Oiseau Vermillon lors de notre troisième rencontre. J'en suis très heureux pour vous. »
+« La deuxième fois que j'ai rencontré le frère Wang dans le Tombeau Zhu Que, je voulais initialement qu'il devienne le seigneur de la planète Suzaku, mais il semble que je l'aie sous-estimé. » Mo Zhi parut sincère en prenant une gorgée de vin. « Je ne m'attendais pas à ce que le frère Wang soit l'Empereur Divin Oiseau Vermillon lors de notre troisième rencontre. J'en suis très heureux pour vous. »
 
 Les deux hommes poursuivirent leur discussion en buvant du vin. Les souvenirs des mille dernières années furent partagés et le temps passa rapidement, comme s'ils étaient retournés dans ce temple par cette nuit de pluie.
 
@@ -85,7 +85,7 @@ Il lança un dernier regard profond à Wang Lin avant de se détourner. Il march
 À l'âge de 6 215 ans, on me remit la Marque de l'Oiseau Vermillon et j'atteignis mon premier éveil. Je surpassai tous les autres éveillés pour devenir le premier d'entre eux.
 À l'âge de 7 912 ans, avec l'aide du quatrième Empereur Divin, je terminai mon second éveil. Dès lors, je fus choisi pour être le prochain Empereur Divin, le jeune seigneur de la Secte!
 
-À l'âge de 11 463 ans, le Clan du Tatouage, venu du monde extérieur, sema le chaos. Notre Secte aida le Royaume Céleste à combattre ce clan! Par la suite, le quatrième Empereur Divin partit avec les trois autres vers le monde extérieur. Avant leur départ, je fus désigné cinquième Empereur Divin! À cette époque, je venais de franchir mon deuxième Fléau Céleste grâce à son aide.
+À l'âge de 11 463 ans, le Clan Fu Wen, venu du monde extérieur, sema le chaos. Notre Secte aida le Royaume Céleste à combattre ce clan! Par la suite, le quatrième Empereur Divin partit avec les trois autres vers le monde extérieur. Avant leur départ, je fus désigné cinquième Empereur Divin! À cette époque, je venais de franchir mon deuxième Fléau Céleste grâce à son aide.
 
 C'est alors que j'appris un secret qui fait trembler les cieux sur nos Quatre Sectes Divines! Les Quatre Sectes ne sont pas originaires de ce Royaume Scellé. Ils sont venus de l'extérieur il y a fort longtemps...
 

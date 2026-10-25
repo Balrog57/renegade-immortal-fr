@@ -22,11 +22,11 @@ La région orientale des Quatre Sectes Divines n'était pas trop impliquée dans
 
 Toutefois, ces intrus ne purent provoquer de grands remous et furent éliminés par les gardes des Quatre Sectes Divines. Même ceux possédant une culture puissante qui réussirent à échapper aux gardes furent balayés par les Anciens des Quatre Sectes Divines dès qu'ils s'enfoncèrent plus profondément dans le territoire.
 
-La guerre entre Luotian et l'Alliance se poursuivait, tandis que la Secte des Cadavres restait relativement calme. Néanmoins, des membres de la Secte des Cadavres étaient toujours présents sur les champs de bataille. Ils semblaient collecter les corps, qu'ils soient intacts ou endommagés. Parallèlement, ils commencèrent à contacter les deux camps pour reprendre leur commerce originel: la vente de cadavres.
+La guerre entre Luotian et l'Alliance se poursuivait, tandis que la Secte Shi Yin restait relativement calme. Néanmoins, des membres de la Secte Shi Yin étaient toujours présents sur les champs de bataille. Ils semblaient collecter les corps, qu'ils soient intacts ou endommagés. Parallèlement, ils commencèrent à contacter les deux camps pour reprendre leur commerce originel: la vente de cadavres.
 
-La prolongation du conflit permit à la Secte des Cadavres d'être accueillie favorablement par tous; de grandes quantités de corps étaient vendues aux forces de Luotian et de l'Alliance. De même, le jade céleste, les trésors, les matériaux et toutes sortes d'objets d'échange affluèrent vers la Secte des Cadavres.
+La prolongation du conflit permit à la Secte Shi Yin d'être accueillie favorablement par tous; de grandes quantités de corps étaient vendues aux forces de Luotian et de l'Alliance. De même, le jade céleste, les trésors, les matériaux et toutes sortes d'objets d'échange affluèrent vers la Secte Shi Yin.
 
-Seuls le Royaume du Vide Brillant et les Quatre Sectes Divines jouissaient de la paix, comme s'ils étaient coupés du reste du monde.
+Seuls le Royaume Kun Xu et les Quatre Sectes Divines jouissaient de la paix, comme s'ils étaient coupés du reste du monde.
 
 Au fil de cette année, le niveau de culture de Wang Lin progressait de plus en plus vite. Les grondements de tonnerre émanant de son corps se faisaient de plus en plus fréquents, résonnant à travers toute la Secte Divine de l'Oiseau Vermillon. Bien que beaucoup ne l'aient pas vu, tous le connaissaient.
 
@@ -56,7 +56,7 @@ Au moment où son énergie originelle fut maîtrisée, un huitième tatouage de 
 
 « La première transformation des Neuf Transformations Mystérieuses requiert neuf vies de culture. Tu dois continuer à absorber l'énergie originelle du feu jusqu'à ce que neuf tatouages se forment. Ces neuf tatouages représentent neuf vies de culture. Tu empruntes la puissance de ces neuf existences pour voiler le ciel, puis tu absorbes toute cette force en une seule unité pour achever la première transformation! »
 
-« La transformation ne changera pas ta nature, elle te rendra plus fort. Elle te permettra de libérer une puissance extrême une fois accomplie. Ce n'est que lorsque tu l'auras fait que je me sentirai assez serein pour te laisser devenir l'Empereur Divin et entreprendre mon voyage vers l'Alliance de Culture. » La voix du vieil Empereur Divin de l'Oiseau Vermillon résonna derrière lui.
+« La transformation ne changera pas ta nature, elle te rendra plus fort. Elle te permettra de libérer une puissance extrême une fois accomplie. Ce n'est que lorsque tu l'auras fait que je me sentirai assez serein pour te laisser devenir l'Empereur Divin et entreprendre mon voyage vers l'Alliance Xiu Zhen. » La voix du vieil Empereur Divin de l'Oiseau Vermillon résonna derrière lui.
 
 « Cependant, ce vieil homme ne dispose plus de beaucoup de temps; je sens l'ombre de la mort approcher. Je dois accélérer ta neuvième absorption. Ce processus sera extrêmement douloureux, mais tu dois l'endurer. Es-tu d'accord? »
 

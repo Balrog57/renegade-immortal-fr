@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1429 - Fishing the Moon in the Well!"
 slug: pecher-la-lune-dans-le-puits
 ---
-Dans les terres sacrées du Clan des Moineaux de Feu, Liu Jinbiao était entravé par d'innombrables filaments, poussant des cris plaintifs. Xu Liguo, terrifié, ne cessait d'appeler Wang Lin.
+Dans les terres sacrées du Clan Huo Que, Liu Jinbiao était entravé par d'innombrables filaments, poussant des cris plaintifs. Xu Liguo, terrifié, ne cessait d'appeler Wang Lin.
 
 La silhouette à l'intérieur de la flamme aux sept couleurs ne s'arrêta pas pour Xu Liguo et ne prononça qu'un seul mot:
 
@@ -36,7 +36,7 @@ La silhouette au cœur des flammes ne tenta pas d'arrêter Wang Lin.
 
 « C'est exact! » Une lueur d'intention meurtrière jaillit des yeux de Wang Lin alors que son visage se durcissait. Il fit un pas en avant et chargea la flamme aux sept couleurs. Le feu aux neuf couleurs de son œil gauche jaillit, formant un brasier éthéré qui bombarda les flammes septicolores.
 
-Dans son œil droit, la foudre éclata tandis que le tatouage de tonnerre apparaissait. Les neuf éclairs accompagnateurs se métamorphosèrent en neuf anciens dragons de tonnerre. Une légère fissure apparut dans le tatouage de tonnerre, ouvrant un passage vers le Royaume du Tonnerre Antique!
+Dans son œil droit, la foudre éclata tandis que le tatouage de tonnerre apparaissait. Les neuf éclairs accompagnateurs se métamorphosèrent en neuf anciens dragons de tonnerre. Une légère fissure apparut dans le tatouage de tonnerre, ouvrant un passage vers le Royaume Tai Gu Lei!
 
 Sa main gauche traça un sceau et pointa vers le ciel. Instantanément, un parfum d'herbe fraîche emplit le monde. Les fantômes d'innombrables arbres surgirent et l'esprit de la forêt antique se redressa. Il poussa un rugissement et bondit sur la flamme aux sept couleurs.
 
