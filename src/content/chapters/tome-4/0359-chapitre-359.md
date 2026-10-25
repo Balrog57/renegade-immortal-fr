@@ -62,7 +62,7 @@ Quant au vieil homme, il baissa la tête et but son thé en silence.
 
 Le regard de l'homme d'âge moyen devint glacial et il dit lentement à la vieille femme: « Je ne l'ai pas oublié, et je n'ai pas besoin que tu me le rappelles! »
 
-La vieille femme réfléchit longuement avant de dire: « Je vais tout de même demander au Maître de secte d'agir. »
+La vieille femme resta longtemps silencieuse, puis dit: « Je vous en prie, Maître de secte, agissez! »
 
 L'homme d'âge moyen prit sa tasse, en but une gorgée et reprit: « Ce Ceng Niu possède un crapaud tonnerre, une paire de cloches, un petit drapeau capable de créer d'innombrables restrictions, une épée volante capable de briser n'importe quelle défense et, en plus de tout cela, Liao Fan a pu confirmer qu'il maîtrise les techniques de l'ancien Dao des Enfers. Ces choses ne sont même pas les plus importantes. Ce qui compte par-dessus tout, c'est que Ceng Niu possède un petit drapeau contenant une aura capable de tout détruire. »
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 810 - Wings of the Butterfly (1)
 slug: les-ailes-du-papillon-1
 ---
-Cet homme vêtu de bleu était d'âge moyen. Ses yeux étaient froids, mais d'un éclat éblouissant. Ses lèvres étaient fines et il avait un air légèrement cruel. Ses cheveux ébouriffés lui donnaient l'apparence d'un démon parmi les êtres célestes.
+Cet homme vêtu de bleu était d'âge moyen. Ses yeux étaient froids, mais d'un éclat éblouissant. Ses lèvres étaient fines et il avait un air légèrement cruel. Ses cheveux noirs détachés lui donnaient l'apparence d'un diable parmi les êtres célestes.
 
 Il sortit de la porte de l'autel et s'éleva dans les airs. Sa silhouette n'était pas encore tout à fait solidifiée; si on le regardait, on pouvait encore distinguer l'autel derrière lui.
 
@@ -50,7 +50,7 @@ Deux filets de sang coulèrent de ses yeux. Son regard mêlait tristesse et obst
 
 Il n'avait d'autre choix que de s'agenouiller!
 
-L'homme d'âge moyen ricana: « Clan inférieur, vous osez résister à l'empreinte d'esclave! Si je n'avais pas refusé de vous tuer, vous seriez déjà morts sur une simple pensée de cet être céleste! Maintenant, disparaissez! »
+L'homme d'âge moyen ricana: « Clan inférieur, vous osez résister à l'empreinte d'esclave! Si je ne voulais pas vous épargner, une simple pensée de cet être céleste suffirait à vous anéantir, corps et âme! Maintenant, disparaissez! »
 
 Comme si le corps de Ta Shan avait été frappé par un poing invisible, des bruits d'explosions résonnèrent en lui alors qu'il était projeté en arrière. Il s'écrasa au sol à environ 330 mètres de là.
 

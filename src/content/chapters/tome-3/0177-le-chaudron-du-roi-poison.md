@@ -148,7 +148,7 @@ Wang Lin ramassa les éclats de l'épée cristalline. Il en saisit un morceau et
 
 Dès son entrée, le cristal fondit et se mêla au contenu du fourneau.
 
-Wang Lin continua d'y jeter les morceaux avec calme. Une heure plus tard, tous les fragments étaient à l'intérieur. Il poussa un soupir de soulagement, puis ses mains formèrent de nouveaux sceaux.
+Wang Lin continua d'y jeter les morceaux avec calme. En l'espace de deux heures, tous les fragments étaient à l'intérieur. Il poussa un soupir de soulagement, puis ses mains formèrent de nouveaux sceaux.
 
 La rotation s'accéléra encore, deux fois plus vite. Il ne pouvait plus distinguer le contenu; ce n'était plus qu'une masse informe. Le vortex vert semblait immobile, mais en y regardant de près, on percevait un mouvement si rapide qu'il paraissait statique.
 

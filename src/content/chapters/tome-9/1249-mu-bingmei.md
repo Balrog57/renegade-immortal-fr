@@ -56,7 +56,7 @@ La pensée de Wang Lin était d'une précision absolue. Ce n'était pas que les 
 
 À cet instant, Wang Lin songeait à la fissure qui lui permettrait de quitter le Royaume Céleste du Vent. L'énergie originelle commença à s'accumuler, et le rugissement assourdissant de la horde de moustiques s'estompa peu à peu à ses oreilles.
 
-C'était comme s'il était entré dans un royaume étrange où son corps devenait néant, sans aucune sensation d'existence. C'était comme s'il était devenu une partie du monde même. La fissure spatiale menant hors du Royaume Céleste devint de plus en plus nette dans son esprit, jusqu'à ce qu'elle remplace tout le reste!
+C'était comme s'il était entré dans un royaume étrange où son corps devenait néant, sans aucune sensation d'existence. C'était comme s'il était devenu une partie du monde même. La fissure spatiale menant hors du Royaume Céleste devint de plus en plus nette dans son esprit, jusqu'à ce qu'elle remplace tout le reste! Tout cela paraît long à raconter, mais en réalité ce ne fut qu'un instant!
 
 Lorsque Wang Lin sentit cette sensation de non-existence s'estomper, il fit un pas. À cet instant, l'énergie originelle se rassembla et son corps se reforma rapidement au moment même où il franchissait l'espace.
 

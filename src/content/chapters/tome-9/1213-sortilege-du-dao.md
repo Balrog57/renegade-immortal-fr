@@ -104,6 +104,6 @@ Les innombrables âmes de Dao du Royaume aux Sept Couleurs se rassemblèrent dev
 
 Ce n'était pas un simple sort ou une capacité, mais le rare Sortilège du Dao!
 
-Quiconque était enveloppé par cette lumière jaune verrait tous les Dao accumulés se disperser, et même un immortel pourrait sombrer au rang de mortel! Le vieil homme ne pouvait pas utiliser ce sort pleinement par lui-même et ne pouvait le maintenir que trois secondes! Ces trois seules secondes consommeraient plus de 90 % de son espérance de vie. Cependant, pour accomplir l'ordre du Souverain, il n'hésita pas une seconde!
+Quiconque était enveloppé par cette lumière jaune verrait tous les Dao accumulés se disperser, et même un immortel pourrait sombrer au rang de mortel! Le vieil homme ne pouvait pas utiliser ce sort pleinement par lui-même et ne pouvait le maintenir que trois respirations! Ces trois seules respirations consommeraient 90 % de son espérance de vie. Cependant, pour accomplir l'ordre du Souverain, il n'hésita pas une seconde!
 
 Le vainqueur serait décidé ici!

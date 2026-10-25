@@ -15,7 +15,7 @@ Wang Lin observa son corps originel, plongé dans la culture. Il ouvrit son sac 
 
 Les cheveux blancs du corps originel devinrent instantanément rouges et son intention meurtrière atteignit son apogée. À cet instant, il ressemblait étrangement à Tuo Sen, issu de la terre des Anciens Dieux.
 
-Après un long moment, le corps originel finit d'absorber toute l'énergie spirituelle et ouvrit les yeux. Ses pupilles avaient disparu, laissant place à deux masses rouges incandescentes. Avec ses cheveux rouges, il ne ressemblait plus à un humain, mais plutôt à un démon ancestral.
+Après un long moment, le corps originel finit d'absorber toute l'énergie spirituelle et ouvrit les yeux. Ses pupilles avaient disparu, laissant place à deux masses rouges incandescentes. Avec ses cheveux rouges, il ne ressemblait plus à un humain, mais plutôt à un Seigneur Diable des temps anciens.
 
 Wang Lin et son corps originel esquissèrent tous deux un léger sourire. Pourtant, leurs sourires auraient terrifié quiconque les aurait vus: celui du corps originel était empreint d'une soif de sang dévorante, tandis que celui de l'avatar exhalait une certaine élégance.
 
@@ -35,7 +35,7 @@ Ses yeux n'étaient plus rouges mais avaient considérablement foncé; pourtant,
 
 La quantité d'énergie spirituelle nécessaire pour qu'un Ancien Dieu subisse une telle transformation était désormais d'innombrables fois supérieure à ce qui l'était autrefois.
 
-Une fois apparu, le corps originel resta en méditation silencieuse avant de regarder l'avatar. Ce dernier frappa son sac de rangement et en sortit une épée volante. Il la pointa vers le corps originel, qui la laissa l'attaquer sans lever le petit doigt. Au moment de l'impact, un bruit de collision métallique retentit, accompagné d'étincelles.
+Une fois apparu, le corps originel resta silencieux avant de regarder l'avatar. Ce dernier frappa son sac de rangement et en sortit une épée volante. Il la pointa vers le corps originel, qui la laissa l'attaquer sans lever le petit doigt. Au moment de l'impact, un bruit de collision métallique retentit, accompagné d'étincelles.
 
 Le corps originel saisit simplement l'épée volante. D'une simple torsion, il la brisa en deux dans un craquement, ne laissant plus que des morceaux de métal inutile.
 

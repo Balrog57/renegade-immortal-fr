@@ -76,7 +76,7 @@ Non seulement la flamme ne put l'affecter, mais dès qu'elle s'en approchait, el
 
 Le Cristal d'Ascendant de Zhou Yi atteignit le cocon d'âme originelle et y pénétra sans aucune obstruction, venant se placer aux côtés du Cristal d'Ascendant de Wang Lin.
 
-Les deux Cristaux d'Ascension: l'un représentant la vie et la mort, l'autre l'obsession jusqu'à la mort. Le Cristal de Zhou Yi fit une fois le tour de celui de Wang Lin avant de s'effondrer!
+Les deux Cristaux d'Ascendant: l'un représentant la vie et la mort, l'autre l'obsession jusqu'à la mort. Le Cristal de Zhou Yi fit une fois le tour de celui de Wang Lin avant de s'effondrer!
 
 Au moment de son effondrement, toute l'énergie originelle qu'il contenait fut absorbée par le Cristal d'Ascendant de Wang Lin!
 

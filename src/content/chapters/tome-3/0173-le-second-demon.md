@@ -86,7 +86,7 @@ Wang Lin fut désormais pleinement stimulé. Ses yeux s'illuminèrent et il poin
 
 À cet instant, l'âme de la petite créature se mit soudainement à bouger, percutant les âmes une à une. À chaque collision, elle fusionnait avec elles, gagnant en puissance avant de passer à la suivante.
 
-En moins d'une heure, la petite créature avait fini de fusionner avec plusieurs dizaines d'âmes. Elle semblait même sur le point de passer du stade initial de la Formation du Noyau au stade intermédiaire.
+En moins de quinze minutes, la petite créature avait fini de fusionner avec plusieurs dizaines d'âmes. Elle semblait même sur le point de passer du stade initial de la Formation du Noyau au stade intermédiaire.
 
 L'intérêt de Wang Lin décupla lorsqu'il saisit l'un des drapeaux et le secoua. Plus d'une centaine d'âmes s'en échappèrent. Après avoir marqué chacune d'elles, il les envoya vers la petite créature.
 
@@ -96,7 +96,7 @@ Il savait qu'il tenait un trésor. Pour une raison inconnue, l'âme de cette pet
 
 En y regardant de plus près, il réalisa que cette onde sonore était conçue pour attaquer l'âme elle-même. Une fois l'onde propagée, toutes les âmes qui fonçaient vers elle ralentirent, comme si elles mouraient.
 
-À cet instant précis, l'âme de la petite créature jaillit. En moins d'une demi-heure, elle avait complètement dévoré ces cent âmes. Peu après, l'âme explosa en un brouillard rouge d'environ trois mètres de large qui retomba lentement.
+À cet instant précis, l'âme de la petite créature jaillit. En moins de sept minutes, elle avait complètement dévoré ces cent âmes. Peu après, l'âme explosa en un brouillard rouge d'environ trois mètres de large qui retomba lentement.
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il agitait le drapeau d'âmes. Les dix-neuf âmes restantes furent aspirées dans le drapeau avant que celui-ci ne soit rangé dans son sac de rangement. Il se retourna et fixa le brouillard rouge, sentant les fragments de sens divin qu'il avait marqués fusionner lentement avec l'âme de la petite créature.
 

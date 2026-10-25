@@ -118,7 +118,7 @@ Ji Du ne dit mot et ne bougea pas.
 
 Le garde agenouillé derrière lui resta également silencieux.
 
-Après la durée d'un demi-bâton d'encens, un soupir s'échappa des lèvres de Ji Du. Il ouvrit les yeux et regarda le temple ancestral. Il se leva silencieusement et s'inclina pour accomplir trois prosternations vers le temple.
+Au bout de sept minutes, un soupir s'échappa des lèvres de Ji Du. Il ouvrit les yeux et regarda le temple ancestral. Il se leva silencieusement et s'inclina pour accomplir trois prosternations vers le temple.
 
 « Parrain... Votre enfant s'en va. » Ji Du se redressa, jeta un dernier regard au temple, puis marcha vers les gardes. Ces derniers le suivirent et ils s'éloignèrent lentement.
 

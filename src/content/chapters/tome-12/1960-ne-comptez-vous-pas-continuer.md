@@ -28,7 +28,7 @@ Tandis qu'il descendait, les cultivateurs alentour restèrent silencieux.
 
 Alors que cette voix résonnait à travers l'Épreuve Empyrée, les cœurs de tous les cultivateurs qui l'entendirent tremblèrent. Un sentiment d'attente naquit en eux; ils sentaient qu'une tempête approchait!
 
-L'expression du Grand Empyréen Dao Yi resta calme et il ne dit mot. Le Grand Empyréen Wu Feng sourit, comme s'il n'avait rien entendu. Ces deux Ascendants étaient tous deux d'une grande excellence, et ils voulaient voir ce qu'ils feraient ensuite.
+L'expression du Grand Empyréen Dao Yi resta calme et il ne dit mot. Le Grand Empyréen Wu Feng sourit, comme s'il n'avait rien entendu. Il regardait ces deux Ascendants du clan céleste, Wang Lin et Ming Dao, tous deux d'une grande excellence, et voulait voir ce qu'ils feraient ensuite.
 
 Cette scène était encore plus fascinante pour les cultivateurs environnants que la tentative de Wang Lin dans l'Épreuve Empyrée elle-même.
 

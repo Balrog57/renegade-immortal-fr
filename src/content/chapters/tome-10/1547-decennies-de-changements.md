@@ -32,7 +32,7 @@ Non pas la démence ni la frénésie, mais une folie née de la pure épouvante!
 
 Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultivateurs du Royaume Extérieur était aussi simple que d'écraser des fourmis. Il se retourna et regarda Maître Yan Leizi, qui était à la fois stupéfait et exalté.
 
-« Vice-commandant de la ligne de front du Nord-Ouest de Luotian, cinquante-troisième rang du Seigneur du Royaume Scellé, Maître Yan Leizi salue le Seigneur du Royaume Scellé! » Maître Yan Leizi, fébrile, joignit les mains et s'inclina avec respect.
+« Vice-commandant de la ligne de front du Nord-Ouest de Luotian, cinquante-troisième au classement des Seigneurs du Royaume Scellé, Maître Yan Leizi salue le Seigneur du Royaume Scellé! » Maître Yan Leizi, fébrile, joignit les mains et s'inclina avec respect.
 
 « Seigneur du Royaume Scellé, le Royaume Intérieur a succombé... Les Royaumes aux Sept Couleurs ont été laissés ici il y a des dizaines de milliers d'années par le Souverain. Après sa disparition, Maître Hong Shan et les autres ont mobilisé toute la force du Royaume Intérieur pour les retrouver. Au final, en incluant celui qui se trouvait au Siège de l'Alliance, nous n'en avons trouvé que cinq au total!
 

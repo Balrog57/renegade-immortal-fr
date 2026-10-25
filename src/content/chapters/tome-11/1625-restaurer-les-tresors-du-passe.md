@@ -92,7 +92,7 @@ Dès que le fragment apparut, la puissance de la Porte du Vide que Wang Lin avai
 
 C'était le Bouclier de Lumière Azur, un trésor acquis par Wang Lin lors de ses jeunes années. Il avait montré sa plus grande puissance autrefois, dans la Terre des Esprits Démoniaques!
 
-Qu'il s'agisse de Tian Yunzi ou de l'ancien démon, tous avaient été terrifiés devant lui. Pour le niveau de culture de Wang Lin à l'époque, c'était déjà stupéfiant. Si cela pouvait être réparé maintenant, avec l'ajout de la puissance de la Porte du Vide et la culture actuelle de Wang Lin, sa puissance serait phénoménale!
+Qu'il s'agisse de Tian Yunzi ou de l'Ancien Diable et des autres, tous avaient été terrifiés devant lui. Pour le niveau de culture de Wang Lin à l'époque, c'était déjà stupéfiant. Si cela pouvait être réparé maintenant, avec l'ajout de la puissance de la Porte du Vide et la culture actuelle de Wang Lin, sa puissance serait phénoménale!
 
 Le plus grand atout de ce trésor n'était pas sa défense, mais le sort qu'il contenait. Ce sort s'appelait... Rêve des Temps Anciens!
 

@@ -72,7 +72,7 @@ Dans le monde de la cinquième fleur, Wang Lin avait pris l'apparence du jeune S
 
 Le jeune homme devant lui faisait partie de ceux qui le harcelaient régulièrement. Ils ne l'attaquaient jamais ouvertement, agissant toujours dans l'ombre, utilisant souvent les règles de la secte comme prétexte pour le punir.
 
-Le Souverain Céleste aux Sept Couleurs ne fut pris sous l'aile de l'Ancêtre que plus de dix ans plus tard, et commença alors peu à peu à se faire un nom au sein de la secte.
+Le Souverain Céleste aux Sept Couleurs ne fut pris sous l'aile de son grand-maître que plus de dix ans plus tard, et commença alors peu à peu à se faire un nom au sein de la secte.
 
 Toutefois, Wang Lin n'était pas Su Dao, et il n'avait pas l'intention de laisser l'histoire se répéter. Alors que le jeune homme reculait, terrifié, Wang Lin fit un pas en avant et se posta à ses côtés. Le visage du garçon pâlit et ses yeux se remplirent d'effroi; il ne pouvait concevoir un tel changement.
 

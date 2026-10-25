@@ -12,9 +12,9 @@ Wang Lin venait de le nourrir avec trois âmes originelles. En particulier, l'un
 
 Après avoir posé certaines restrictions autour de Li Yuan, Wang Lin s'assit à ses côtés et commença à réfléchir.
 
-« Xue Zu appartient bel et bien à la famille Yao. Il s'avère que la famille Yao est très puissante, surtout l'ancêtre de la famille Yao, le Dieu Sanguin... » Le regard de Wang Lin devint glacial.
+« Xue Zu appartient bel et bien à la famille Yao. Il s'avère que la famille Yao est très puissante, surtout l'ancêtre de la famille Yao, Xue Shenzi... » Le regard de Wang Lin devint glacial.
 
-« Je n'ai jamais manqué d'ennemis redoutables depuis que j'ai commencé ma culture, alors ajouter un Dieu Sanguin ne change pas grand-chose! » Wang Lin savait que même s'il avait été informé de l'existence du Dieu Sanguin auparavant, il n'aurait tout de même pas pu laisser Li Yuan mourir...
+« Je n'ai jamais manqué d'ennemis redoutables depuis que j'ai commencé ma culture, alors ajouter un Xue Shenzi de plus ne change pas grand-chose! » Wang Lin savait que même s'il avait été informé de l'existence de Xue Shenzi auparavant, il n'aurait tout de même pas pu laisser Li Yuan mourir...
 
 De plus, puisqu'il avait déjà offensé Xue Zu, il prit une décision.
 

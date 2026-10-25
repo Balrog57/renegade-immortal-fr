@@ -52,7 +52,7 @@ La plupart d'entre eux cultivaient les yeux fermés. Certains s'amusaient ou abu
 
 Wang Lin percevait tout cela avec une clarté absolue grâce à l'extension de son Sens Divin.
 
-Ses yeux brillaient d'une intensité féroce, mêlés à la lumière rouge qui les imprégnait. Avec les centaines de têtes derrière lui, Wang Lin ressemblait à un démon surgissant tout droit des Enfers.
+Ses yeux brillaient d'une intensité féroce, mêlés à la lumière rouge qui les imprégnait. Avec les centaines de têtes derrière lui, Wang Lin ressemblait à un Diable surgissant tout droit des Enfers.
 
 « Ces gens méritent de mourir! » Wang Lin agita sa manche, et sa main droite en sortit. Sa main tendue prit la forme d'une paume gigantesque qui s'abattit sur la planète.
 

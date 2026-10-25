@@ -16,7 +16,7 @@ La puissance de l'adoration des innombrables âmes se transforma en un vent viol
 
 Ce sort de la Flamme Joss faisait trembler les cieux et était suffisamment puissant pour détruire un cultivateur du cinquième Fléau Céleste. Cependant, l'essence de tonnerre de Wang Lin était complète et son essence de feu avait atteint le Feu Éthéré. Il avait également combattu Shui Daozi; ainsi, bien qu'il soit confronté à cette crise, il ne ressentait aucune peur. Au contraire, une intention de combat embrasait ses yeux.
 
-Pour être plus précis, c'était la première fois que Wang Lin affrontait un cultivateur du troisième pas. Lorsqu'il avait combattu Shui Daozi, il ne pouvait que se défendre sans pouvoir attaquer. Cependant, son niveau de culture avait augmenté rapidement durant son séjour dans le Système Stellaire Antique.
+Pour être plus précis, c'était la première fois que Wang Lin affrontait un cultivateur de la troisième étape. Lorsqu'il avait combattu Shui Daozi, il ne pouvait que se défendre sans pouvoir attaquer. Cependant, son niveau de culture avait augmenté rapidement durant son séjour dans le Système Stellaire Antique.
 
 Auparavant, il ne pouvait que se protéger, mais désormais, il pouvait tenir tête à son adversaire!
 
@@ -102,7 +102,7 @@ Non seulement le Maître Simo était stupéfait, mais les pupilles du vieil Oise
 
 « Ce petit gars possède un tel trésor?! »
 
-Le visage de la Grande Maîtresse Yun Luo devint encore plus pâle et la peur dans ses yeux ne pouvait plus être dissimulée. Son esprit vacilla et elle recula de quelques pas. Elle se souvenait clairement d'une image où une silhouette, d'un geste de la main, avait fait apparaître 99 de ces feuilles pour sceller le Système Stellaire Antique. Elles avaient totalement scellé un sortilège du Dao Céleste extrêmement puissant lancé par de nombreux cultivateurs du système!
+Le visage de la Grande Maîtresse Yun Luo devint encore plus pâle et la peur dans ses yeux ne pouvait plus être dissimulée. Son esprit vacilla et elle recula de quelques pas. Elle se souvenait clairement d'une image où une silhouette, d'un geste de la main, avait fait apparaître 99 de ces feuilles identiques qui scellaient le ciel et la terre. Elles avaient totalement scellé un sortilège du Dao Céleste extrêmement puissant lancé par de nombreux cultivateurs du système!
 
 Les yeux de Wang Lin étaient injectés de sang. Après avoir utilisé la Feuille Ancienne pour sceller le Royaume des Flammes Joss du Maître Simo, il ne recula pas, mais chargea au contraire vers lui!
 

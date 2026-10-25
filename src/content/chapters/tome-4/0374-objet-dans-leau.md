@@ -44,7 +44,7 @@ Il regarda alors le parchemin s'envoler et s'ouvrir lentement. Le parchemin éta
 
 Une sphère de lumière violette, de la taille d'un poing, apparut devant le squelette et fut intégralement absorbée par le parchemin.
 
-Le squelette se brisa instantanément en une poussière grise, mais cette poussière ne se mélangea pas mystérieusement à l'eau; elle recouvrit plutôt le fond du puits.
+Le squelette se brisa instantanément en un amas de cendres noires qui, étrangement, ne se dissolvèrent pas dans l'eau mais s'étalèrent au fond de la prison aquatique.
 
 Tout cela se produisit avec une rapidité fulgurante. Une fois la lumière violette absorbée, le parchemin commença à descendre lentement et Wang Lin le rattrapa. Après avoir pesé la situation, il décida de ne pas enquêter davantage sur le parchemin et s'extirpa précipitamment de l'eau.
 

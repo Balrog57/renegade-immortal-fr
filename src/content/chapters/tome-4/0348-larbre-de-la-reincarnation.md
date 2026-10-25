@@ -86,7 +86,7 @@ Le vieil homme Hu garda le silence et tourna son regard vers Xu Luo et Yun Meng.
 
 Qiu Siping lança un regard plein de gratitude à Wang Lin avant de se concentrer intensément sur sa culture. Il savait que le temps pressait: sa capacité à atteindre le stade de la Formation de l'Âme dépendait entièrement des résultats de cet instant.
 
-Le vieil homme Hu reprit: « Frère Wang, Xu Luo et Yun Meng auront besoin de trois heures pour forcer l'arbre de la réincarnation à produire ses fruits. Nous devrons les protéger durant ce laps de temps. »
+Le vieil homme Hu reprit: « Frère Wang, Xu Luo et Yun Meng auront besoin de six heures pour forcer l'arbre de la réincarnation à produire ses fruits. Nous devrons les protéger durant ces six heures. »
 
 Les yeux de Wang Lin brillèrent d'intérêt: « Je me demande combien de fruits de la réincarnation apparaîtront. »
 

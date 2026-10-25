@@ -52,11 +52,11 @@ De la lave rougeja également avec cette onde thermique. Mais d'un geste de la m
 
 Cette fois, Wang Lin était prêt à tout pour affiner totalement cette épée de massacre de Tian Yunzi en robe grise. Il utilisait sa seconde âme originelle, Maître du Vide, Tian Yunzi, l'énergie originelle du feu planétaire et enfin la lave pour créer une enveloppe destinée à accélérer le processus.
 
-Wang Lin se tenait sous cette sphère de cent pieds tout en contrôlant l'énergie originelle du feu qui y pénétrait. Le temps s'écoula lentement; douze heures s'étaient déjà écoulées depuis le début de l'opération.
+Wang Lin se tenait sous cette sphère de cent pieds tout en contrôlant l'énergie originelle du feu qui y pénétrait. Le temps s'écoula lentement; vingt-quatre heures s'étaient déjà écoulées depuis le début de l'opération.
 
 Wang Lin ne pouvait maintenir cette méthode d'affinage intense très longtemps. Si cela perdurait, non seulement son énergie originelle ne pourrait plus suivre, mais il consumerait également l'énergie originelle céleste obtenue en dévorant les âmes originelles de dizaines de Célestes.
 
-Après douze heures, les yeux de Wang Lin brillèrent d'un éclat vif et il poussa un rugissement. D'un revers de main, il fit éclater la sphère de magma en une multitude de débris brûlants. À cet instant, l'épée brisée ne put plus résister à la chaleur extrême et fondit complètement. La seconde âme originelle de Wang Lin dévora l'acier fondu et retourna dans son corps.
+Après vingt-quatre heures, les yeux de Wang Lin brillèrent d'un éclat vif et il poussa un rugissement. D'un revers de main, il fit éclater la sphère de magma en une multitude de débris brûlants. À cet instant, l'épée brisée ne put plus résister à la chaleur extrême et fondit complètement. La seconde âme originelle de Wang Lin dévora l'acier fondu et retourna dans son corps.
 
 Les âmes du Maître du Vide et de Tian Yunzi regagnèrent également le Sceau Céleste des 18 Enfers.
 
@@ -88,7 +88,7 @@ En voyant Wang Lin, l'expression de la femme devint encore plus amère, mais ell
 
 Wang Lin adressa un signe de tête à Treize et dit doucement à la femme: « Ling Er, emmène-moi rencontrer ton arrière-grand-père. »
 
-« Arri-grand-père... il... il ne va plus durer longtemps. » Les larmes coulèrent sur les joues de Ling Er.
+« Arrière-grand-père... il... il ne va plus durer longtemps. » Les larmes coulèrent sur les joues de Ling Er.
 
 La culpabilité dans les yeux de Wang Lin s'intensifia. D'un mouvement de manches, il disparut avec Ling Er. Après leur départ, une paire d'yeux s'alluma à l'intérieur de la grotte au sommet de la montagne.
 

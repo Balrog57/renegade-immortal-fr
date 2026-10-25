@@ -12,7 +12,7 @@ slug: bataille-feroce
 
 Les yeux du vieil homme aux robes grises s'illuminèrent. Au moment où l'Empreinte de l'Esprit de Guerre se rapprochait, il agita la main et une bouteille ronde apparut dans sa paume.
 
-La bouteille était transparente et remplie d'une terre jaune. D'un geste, il fit jaillir la terre; celle-ci s'éleva en une masse de plus en plus dense jusqu'à atteindre près de dix mille pieds de large.
+La bouteille était transparente et remplie à ras bord d'une terre jaune. Il la broya d'une main et la terre jaillit; d'un coup de manche, il la fit s'éleva en une masse de plus en plus dense jusqu'à atteindre près de dix mille pieds de large.
 
 « Essence terrestre, Enterrement Spirituel! »
 

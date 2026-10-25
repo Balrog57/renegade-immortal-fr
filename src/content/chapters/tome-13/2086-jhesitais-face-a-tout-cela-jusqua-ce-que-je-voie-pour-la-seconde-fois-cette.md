@@ -1,6 +1,6 @@
 ---
 n: 2086
-title: "« J'hésitais face à tout cela, jusqu'à ce que je voie pour la seconde fois cette montagne couverte de neige aux sept couleurs, ainsi que cette silhouette tenant le corps dans le temple ancestral de Shi Antique. J'ai senti que quelque chose clochait, mais en même temps, une idée folle est née! » Wang Lin ne regarda pas Tian Yunzi, mais fixa le pont situé derrière lui."
+title: "La réincarnation est juste là"
 book: 13
 bookTitle: Light of the coming end
 en: Chapter 2086 - Reincarnation is Right There

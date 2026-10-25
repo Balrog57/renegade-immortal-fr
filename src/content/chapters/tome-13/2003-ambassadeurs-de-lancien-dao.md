@@ -61,13 +61,13 @@ C'était la première fois que Wang Lin voyait autant de membres du clan Ancien 
 
 Sept hommes robustes en armure de cuir montaient la garde devant la porte. Chacun d'eux arborait cinq ou six étoiles scintillantes entre les sourcils ou dans les yeux. Ils regardaient la foule avec impatience et n'hésitaient pas à hurler sur les passants:
 
-« Dépêchez-vous! Vous, derrière, accélérez le pas! La ville sera scellée dans un demi-encens de temps! »
+« Dépêchez-vous! Vous, derrière, accélérez le pas! La ville sera scellée dans sept minutes! »
 
 « Une fois entrés dans la cité de la Pierre Noire, dispersez-vous immédiatement et restez dans la ville pendant trois jours! Nul n'est autorisé à sortir sans l'ordre du seigneur de la ville! »
 
 Alors que l'homme rugissait, l'agitation devant la porte s'apaisa progressivement. Ceux qui souhaitaient entrer pressèrent le pas.
 
-En moins d'un demi-encens, l'extérieur de la cité devint désert, créant un contraste saisissant avec l'animation précédente. Les membres du clan Ancien entrés dans la ville s'étaient rapidement dispersés, laissant peu de silhouettes visibles. On ne distinguait plus que près de cent hommes massifs en armure de cuir, postés aux angles stratégiques de la cité. Leurs regards oscillaient entre la porte et l'imposant édifice qui trônait au centre de la ville.
+En moins de sept minutes, l'extérieur de la cité devint désert, créant un contraste saisissant avec l'animation précédente. Les membres du clan Ancien entrés dans la ville s'étaient rapidement dispersés, laissant peu de silhouettes visibles. On ne distinguait plus que près de cent hommes massifs en armure de cuir, postés aux angles stratégiques de la cité. Leurs regards oscillaient entre la porte et l'imposant édifice qui trônait au centre de la ville.
 
 Le vide de cet endroit révéla la silhouette de Wang Lin et attira l'attention des sept gardes.
 
@@ -125,7 +125,7 @@ La cité de la Pierre Noire se situait à la périphérie du pays Mu Sang, au se
 
 Wang Lin tint la pierre de jade et demanda lentement: « Je me demande pourquoi la ville est ainsi scellée? »
 
-L'un des deux gardes répondit sans rien lui cacher: « Je rapporte au Seigneur Dieu: j'ai reçu l'ordre du seigneur de la ville de libérer les accès de Pierre Noire en un bâton d'encens, afin de préparer l'arrivée du Prince Ji Du et des ambassadeurs de l'Ancien Dao. »
+L'un des deux gardes répondit sans rien lui cacher: « Je rapporte au Seigneur Dieu: j'ai reçu l'ordre du seigneur de la ville de libérer les accès de Pierre Noire en quinze minutes, afin de préparer l'arrivée du Prince Ji Du et des ambassadeurs de l'Ancien Dao. »
 
 « Les ambassadeurs de l'Ancien Dao? Je sors tout juste de ma retraite et j'ignore tout de cela. Donne-moi plus de détails. » Les yeux de Wang Lin s'illuminèrent imperceptiblement.
 

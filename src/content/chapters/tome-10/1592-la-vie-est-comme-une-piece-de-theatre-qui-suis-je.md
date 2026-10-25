@@ -116,4 +116,4 @@ Un jeune homme élégant sortit d'un autre rayon de lumière et demanda doucemen
 
 « Rien, j'ai l'impression d'avoir déjà vu cet érudit quelque part… » La femme secoua la tête et s'envola au loin.
 
-« Un simple mortel. Nous devrions vite rejoindre le Maître et nous rendre là où cette lumière dorée a jailli. » Le jeune homme jeta un regard vers Wang Lin avant de détourner les yeux vers la femme.
+« Un simple mortel. Nous devrions vite rejoindre notre secte et nous rendre là où cette lumière dorée a jailli. » Le jeune homme jeta un regard vers Wang Lin avant de détourner les yeux vers la femme.

@@ -44,7 +44,7 @@ Quant à Ling Tianhou, le visage déformé par la panique et le cuir chevelu eng
 
 Presque à bout de nerfs, Ling Tianhou atteignit la lisière du noyau planétaire et s'y engouffra en serrant les dents.
 
-« Lorsque j'ai obtenu la planète Da Luo, je savais qu'une étincelle de flamme sacrificielle, laissée par le Shangren Xuling de la cultivation Kunxu lors du raffinage de cette planète, subsistait encore! En ce moment de crise, j'espère pouvoir utiliser cette flamme pour résister. » À l'instant où il pénétra le noyau, une vague de chaleur lui cingla le visage.
+« Lorsque j'ai obtenu la planète Da Luo, je savais qu'une étincelle de flamme sacrificielle, laissée par le Vénérable Xu Ling de la Secte de Culture du Vide Brillant lors du raffinage de cette planète, subsistait encore! En ce moment de crise, j'espère pouvoir utiliser cette flamme pour résister. » À l'instant où il pénétra le noyau, une vague de chaleur lui cingla le visage.
 
 La lumière invisible s'approcha rapidement et pénétra directement dans le noyau. En un éclair, elle se mua en une main géante qui tendit les doigts vers Ling Tianhou.
 

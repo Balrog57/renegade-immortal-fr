@@ -32,7 +32,7 @@ Tan Lang ricana.
 
 Tan Lang agita la main droite et une vague d'énergie originelle s'engouffra dans le corps de Zhong Grand Rouge. Ce dernier cracha du sang comme si son corps entier allait se briser, puis s'effondra non loin de là.
 
-« Si vous étiez membres du Clan du Scorpion Noir, il serait regrettable de vous tuer tous les deux, mais puisque ce n'est pas le cas, je brûle d'envie de voir comment votre maître compte me tuer! » D'un revers de manche, Tan Lang déchaîna une bourrasque monumentale qui balaya tous les membres du Clan du Scorpion Noir hors de la planète.
+« Si vous étiez membres du Clan du Scorpion Noir, il me serait vraiment difficile de vous tuer, mais puisque ce n'est pas le cas, je brûle d'envie de voir comment votre maître compte me tuer! » D'un revers de manche, Tan Lang déchaîna une bourrasque monumentale qui balaya tous les membres du Clan du Scorpion Noir hors de la planète.
 
 Après cela, il agita à nouveau sa manche et s'adressa avec arrogance au Clan de l'Évasion Nuageuse: « Tous, accompagnez ce vieil homme et attendez le maître de cet esclave. Je vais vous montrer la puissance de mes trésors! »
 
@@ -60,7 +60,7 @@ Le corps de Tan Lang vacilla puis il se tint sur la tête du géant d'arbres, so
 
 « Le Fourneau Impérial!! C'est l'un des trésors légendaires de Tan Lang, le Fourneau Impérial! »
 
-« J'ai entendu dire que lorsque Tan Lang était encore au stade de la Purification du Nirvana, il utilisa ce trésor contre trois cultivateurs du Briseur du Nirvana qui le poursuivaient. Il en tua un et en blessa gravement deux autres! »
+« J'ai entendu dire que lorsque Tan Lang était encore au stade de la Purification du Nirvana, il utilisa ce trésor contre trois cultivateurs du Briseur du Nirvana de Grande Perfection qui le poursuivaient. Il en tua un et en blessa gravement deux autres! »
 
 Tan Lang agita une fois de plus la main droite et une brume noire apparut, se contractant finalement pour former une lance. Cette lance de brume dégageait une aura destructrice et terrifiante!
 

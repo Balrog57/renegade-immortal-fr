@@ -40,7 +40,7 @@ L'instant d'après, les deux forces entrèrent en collision. La lumière septico
 
 Une intention meurtrière s'alluma dans les yeux de la jeune femme alors qu'elle chargeait Wang Lin, portée par le visage fantomatique.
 
-« Puisque tu es venue toi-même, alors reste! » Une voix froide résonna à travers la veine de feu terrestre et atteignit les oreilles de Wang Lin.
+« Puisque tu es venu toi-même, alors reste! » Une voix froide résonna à travers la veine de feu terrestre et atteignit les oreilles de Wang Lin.
 
 Wang Lin recula et agita sa manche. L'empreinte dorée de Xuan Luo apparut et réprima le visage fantomatique.
 

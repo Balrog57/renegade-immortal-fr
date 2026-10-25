@@ -42,9 +42,9 @@ Il y avait quelques individus que Wang Lin n'avait pas encore amenés pour ne pa
 
 Wang Lin salua Xuan Luo d'un geste respectueux, puis fit un pas en avant. Sa silhouette se déforma et disparut. Lorsqu'il réapparut, il se trouvait à la lisière de la formation séparant les Royaumes Intérieur et Extérieur.
 
-Cette nouvelle formation était une création personnelle de Wang Lin. Familier avec ses mécanismes, il n'hésita pas à la franchir. Il ne lui fallut qu'un demi-bâton d'encens pour pénétrer dans le Système Stellaire Antique!
+Cette nouvelle formation était une création personnelle de Wang Lin. Familier avec ses mécanismes, il n'hésita pas à la franchir. Il ne lui fallut que sept minutes pour traverser la formation et pénétrer dans le Système Stellaire Antique!
 
-« Les cinq Maîtres du Système Stellaire Antique... Le Souverain a été scellé par moi et Rêve Bleu s'est établi au Royaume Céleste. Il ne reste que Miaoyin Daozun, Xushen Tianzun et Jiutian Mozun. Si je les laisse tranquilles, ces trois-là deviendront un problème. Puisqu'ils sont affaiblis, je vais les traquer un par un pour les envoyer à la réincarnation! » Le regard de Wang Lin était glacial alors qu'il pénétrait dans le Système Stellaire Antique. Son Sens Divin se déploya soudainement dans toutes les directions.
+« Les cinq Maîtres du Système Stellaire Antique... Le Souverain a été scellé par moi et Lanmeng Daozun s'est établi au Royaume Céleste. Il ne reste que Miaoyin Daozun, Xushen Tianzun et Jiutian Mozun. Si je les laisse tranquilles, ces trois-là deviendront un problème. Puisqu'ils sont affaiblis, je vais les traquer un par un pour les envoyer à la réincarnation! » Le regard de Wang Lin était glacial alors qu'il pénétrait dans le Système Stellaire Antique. Son Sens Divin se déploya soudainement dans toutes les directions.
 
 Depuis les événements au cœur du monde des grottes, il avait atteint le sommet du stade Vide Spirituel et son héritage du Dao Antique était presque complet. À cet instant, Wang Lin possédait la puissance nécessaire pour affronter des cultivateurs de stade Vide Arcanique tardif!
 
@@ -60,7 +60,7 @@ Au sommet de la structure en croissant, le sable jaune flottait dans les airs au
 
 Tandis qu'il guérissait, des auras semblables à de la fumée émanaient de la planète pour pénétrer son corps par ses sept orifices et favoriser sa convalescence.
 
-Ce vieil homme n'était autre que Jiutian Mozun, gravement blessé par Rêve Bleu!
+Ce vieil homme n'était autre que Jiutian Mozun, gravement blessé par Lanmeng Daozun!
 
 À l'époque, son Royaume des Flammes Joss avait été détruit et son âme endommagée. Il avait survécu de justesse, parvenant à préserver le peu de force vitale qui lui restait. Il utilisait l'aura de mort de la planète pour restaurer son Royaume des Flammes Joss. Le silence régnait et le ciel était obscur, mais soudain, le vieil homme leva la tête. Ses yeux s'ouvrirent brusquement et ses pupilles se rétractèrent.
 
@@ -100,7 +100,7 @@ Miaoyin Daozun était assis au fond de l'océan, entouré par l'obscurité. Pour
 
 Ces ossements étaient principalement ceux d'animaux. Tandis que Miaoyin Daozun se soignait dans les abysses, un rugissement sembla se propager à travers l'eau par une méthode mystérieuse.
 
-« Wang Lin, Rêve Bleu... vous deux ne mourrez pas une belle mort! » Les yeux de Miaoyin Daozun s'ouvrirent grand, son visage déformé par la rage. Blessé par Rêve Bleu, son niveau de culture avait chuté au stade Vide Spirituel. Il lui faudrait cent ans pour retrouver son apogée, et il se soignait avec acharnement pour tenter de réduire ce délai.
+« Wang Lin, Lanmeng Daozun... vous deux ne mourrez pas une belle mort! » Les yeux de Miaoyin Daozun s'ouvrirent grand, son visage déformé par la rage. Blessé par Lanmeng Daozun, son niveau de culture avait chuté au stade Vide Spirituel. Il lui faudrait cent ans pour retrouver son apogée, et il se soignait avec acharnement pour tenter de réduire ce délai.
 
 Dans son rugissement, Miaoyin Daozun tendit la main droite vers l'océan. Un vortex apparut, aspirant un long serpent de mer noir, long de mille pieds, qui trembla, incapable de lutter face à la puissance du tourbillon.
 

@@ -21,7 +21,7 @@ Après mille ans de culture, Wang Lin n'avait pas pour habitude de se bercer d'i
 
 À cet instant, le visage de Wang Lin devint grave, ses yeux se glacèrent et il recula promptement. Le Serpent aux yeux de lune fondit sur lui, dévorant sans relâche l'aura qui émanait du corps de Wang Lin.
 
-Les cultivateurs étaient incapables de ressentir cette aura, et les bêtes possédant des héritages d'époques anciennes ne pouvaient pas non plus la détecter. Seules quelques créatures, outre les Serpents aux yeux de lune, pouvaient percevoir l'aura d'un Ancien Dieu.
+Les cultivateurs étaient incapables de ressentir cette aura, et les bêtes possédant des héritages d'époques anciennes ne pouvaient pas non plus la détecter. Dans ce monde, hormis quelques rares créatures comme la martre à marques stellaires, seuls les Serpents aux yeux de lune étaient extrêmement sensibles à l'aura d'un Ancien Dieu.
 
 Le regard de Wang Lin devint encore plus froid. Il était fort probable que, tout en dévorant l'aura de l'Ancien Dieu, ce Serpent aux yeux de lune cherche également à le dévorer lui!
 

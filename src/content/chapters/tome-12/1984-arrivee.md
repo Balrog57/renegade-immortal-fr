@@ -98,7 +98,7 @@ Wang Lin leva le pied et fit un pas en avant. Son corps se dilata soudainement p
 
 Les dizaines de milliers de soldats affichaient des visages graves face au nuage noir formé par Wang Lin. Ils poussèrent des rugissements, et une lumière noire émana de leurs armures, se transformant en une aura puissante. C'était l'aura combinée de dizaines de milliers d'hommes!
 
-Cette masse d'intention meurtrière monstrueuse laissa échapper un rugissement et se métamorphosa en une tortue-dragon géante! Cette bête possédait la tête et la queue d'un dragon, mais pas le corps; son corps était celui d'une tortue, couvert d'innombrables tatouages fantomatiques.
+Cette masse d'intention meurtrière monstrueuse laissa échapper un rugissement et se métamorphosa en une tortue-dragon géante! Cette bête possédait la tête et la queue d'un dragon, mais pas son corps; son corps était celui d'une tortue, sans cornes, mais marqué au fer d'innombrables totems hideux de créatures fantomatiques.
 
 Cette créature n'était pas la Tortue Noire. Dans le clan céleste, elle portait un nom spécial: on l'appelait le Dragon-Fantôme!
 

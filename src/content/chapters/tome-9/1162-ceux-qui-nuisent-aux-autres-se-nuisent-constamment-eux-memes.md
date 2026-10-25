@@ -60,7 +60,7 @@ Le visage du disciple était livide et son corps tremblait. Une lueur bleue éma
 
 Les yeux de Lu Yanfei devinrent glacials et elle déclara d'une voix lente: « La raison pour laquelle les sectes supérieures sont venues ici est-elle simplement de blesser un disciple de la Secte de l'Origine? »
 
-Feng Peishan esquissa un sourire et secoua la tête. « Compagnons cultivateurs de la Secte de l'Origine, nul besoin de s'alarmer. Cette affaire est d'une importance capitale, et presque toutes les sectes de rang 6 ont dépêché des hommes pour une recherche. Cette personne est extrêmement douée pour se dissimuler, et le seul indice réside dans le poison qu'elle porte. Si le compagnon cultivateur Zhou a attaqué, c'est parce que ce junior portait une trace de ce poison sur lui. »
+Feng Peishan esquissa un sourire et secoua la tête. « Compagnons cultivateurs de la Secte de l'Origine, nul besoin de s'alarmer. Cette affaire est d'une importance capitale, et toutes les sectes de rang 6 ont dépêché des hommes pour rechercher une seule personne. Cette personne est extrêmement douée pour se dissimuler, et le seul indice réside dans le poison qu'elle porte. Si le compagnon cultivateur Zhou a attaqué, c'est parce que ce junior portait une trace de ce poison sur lui. »
 
 Le regard de Lu Yanfei se fit plus froid encore. Elle pointa sa main droite vers le disciple blessé. Le corps de celui-ci trembla et un vortex apparut. Peu après, son Âme Naissante s'en échappa, révélant un petit serpent rouge à l'intérieur: c'était son esprit de bête spirituelle.
 

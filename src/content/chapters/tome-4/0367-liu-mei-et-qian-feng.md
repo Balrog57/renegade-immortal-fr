@@ -144,7 +144,7 @@ Liu Mei regarda calmement Hongdie sans prononcer un mot.
 
 Qian Feng s'arrêta à 10 mètres de Liu Mei. Il afficha un sourire révélant ses dents blanches et dit: « Jeune sœur apprentie, t'en vas-tu déjà? »
 
-Liu Mei hocha la tête et murmura: « Senior frère Qian Feng, la personne derrière vous est-elHongdie? »
+Liu Mei hocha la tête et murmura: « Senior frère Qian Feng, la personne derrière vous est-ce Hongdie? »
 
 Qian Feng éclata de rire. « Hongdie est déjà morte. Elle n'est plus que mon fourneau de concubine. Appelons-la simplement "Sans-Cœur". »
 

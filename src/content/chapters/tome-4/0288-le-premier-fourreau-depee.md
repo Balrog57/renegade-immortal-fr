@@ -62,7 +62,7 @@ Bien que cette énergie spirituelle ne fût pas démesurément puissante, elle c
 
 L'ombre poussa un cri misérable tandis qu'un gaz noir jaillissait de son corps. Si l'on regardait de près, on aurait pu voir une puissance mystérieuse entourer l'ombre, provoquant son rétrécissement. En quelques respirations, elle disparut complètement.
 
-Cependant, au moment même où elle allait s'évanouir, Wang Lin lança un second faisceau d'énergie spirituelle qui pénétra l'ombre en train de se dissiper, la forçant à se reformer pour se transformer en une immense statue de démon!
+Cependant, au moment même où elle allait s'évanouir, Wang Lin lança un second faisceau d'énergie spirituelle qui pénétra l'ombre en train de se dissiper, la forçant à se reformer pour se transformer en une immense statue de Dieu Diable!
 
 Cette statue était basée sur un ennemi nommé « You » dans les souvenirs de Tu Si. Elle avait été façonnée par son domaine de vie et de mort. Dès son apparition, elle poussa un rugissement et chargea les trois ombres restantes.
 

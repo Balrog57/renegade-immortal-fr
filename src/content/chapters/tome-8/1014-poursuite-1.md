@@ -96,7 +96,7 @@ L'expression de Wang Lin était plus sombre qu'à l'accoutumée. Cet endroit res
 
 Même si les cultivateurs ne pouvaient être comparés aux mortels, s'ils restaient ici trop longtemps, ils subiraient cette oppression. Non seulement leur âme originelle se transformerait et leur personnalité deviendrait hostile, mais ils finiraient presque par devenir des démons.
 
-Si un cultivateur démoniaque se trouvait ici, cet endroit serait pour lui une terre sainte favorisant sa culture. Cependant, à la fin, son âme originelle se transformerait totalement en celle d'un démon et il deviendrait un humain-démon dépourvu de toute conscience.
+Si un cultivateur diabolique se trouvait ici, cet endroit serait pour lui une terre sainte favorisant sa culture. Cependant, à la fin, son âme originelle se transformerait totalement en celle d'un démon et il deviendrait un humain-démon dépourvu de toute conscience.
 
 Tout au long du chemin, Wang Lin réfléchissait en silence tout en avançant lentement. Durant ce mois, il ne revit pas le mystérieux gaz gris. Pourtant, loin de disparaître, le sentiment de crise s'intensifiait à mesure qu'il progressait.
 
@@ -110,9 +110,9 @@ Debout sur le sable, l'expression de Wang Lin devint plus lugubre encore. Des va
 
 Wang Lin réfléchit, leva la main et effleura son visage. Des filaments noirs s'en échappèrent pour pénétrer dans sa main droite.
 
-En observant le gaz noir dans sa paume, Wang Lin sentit l'aura d'un Démon Dispersé.
+En observant le gaz noir dans sa paume, Wang Lin sentit l'aura d'un Démon Dispersé d'autrefois.
 
-« Une énergie démoniaque... » Les yeux de Wang Lin s'illuminèrent et il serra la main sans pitié.
+« Une énergie diabolique... » Les yeux de Wang Lin s'illuminèrent et il serra la main de toutes ses forces.
 
 Instantanément, le gaz noir se comprima puis explosa, couvrant mille pieds avant de se dissiper lentement. Wang Lin s'immobilisa en contemplant l'énergie démoniaque qui s'évanouissait, et une pensée lui traversa l'esprit.
 
@@ -120,6 +120,6 @@ Instantanément, le gaz noir se comprima puis explosa, couvrant mille pieds avan
 
 Il ignorait sa destination. Dans ce désert de sable noir sans fin, rien ne pouvait lui indiquer les directions. Il n'avait d'autre choix que de continuer à marcher pour trouver la sortie.
 
-Le temps s'écoula de nouveau. En un clin d'œil, un autre mois passa. Après deux mois de captivité dans ce lieu, le gaz noir enveloppait désormais Wang Lin. De loin, il paraissait amaigri, tel un dieu démon.
+Le temps s'écoula de nouveau. En un clin d'œil, un autre mois passa. Après deux mois de captivité dans ce lieu, le gaz noir enveloppait désormais Wang Lin. De loin, il paraissait amaigri, tel un Dieu Diable.
 
 Il avançait lentement.

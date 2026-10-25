@@ -7,7 +7,7 @@ en: Chapter 474 - Void Wood Stone
 slug: pierre-de-bois-du-vide
 ---
 
-Il faut dire que la plupart des personnes qui se rendaient ici entraient par la porte ouest, car elle était plus proche du marché libre de la place. On y trouvait de nombreux articles introuvables dans les boutiques spécialisées, et les prix y étaient légèrement plus bas. Le seul inconvénient résidait dans la difficulté de distinguer le vrai du faux, contrairement aux magasins qui ne vendaient aucun article contrefait. Faire ses achats sur la place reposait donc entièrement sur la capacité de l'acheteur à discerner la valeur des objets.
+Il faut dire que la plupart des cultivateurs qui y étaient déjà venus entraient par la porte ouest, car elle était plus proche du marché libre de la place. On y trouvait de nombreux articles introuvables dans les boutiques spécialisées, et les prix y étaient légèrement plus bas. Le seul inconvénient résidait dans la difficulté de distinguer le vrai du faux, contrairement aux magasins qui ne vendaient aucun article contrefait. Faire ses achats sur la place reposait donc entièrement sur la capacité de l'acheteur à discerner la valeur des objets.
 
 Quant à ceux qui entraient par la porte est, il s'agissait soit de leur première visite en ville, soit de clients de grande importance!
 
@@ -67,7 +67,7 @@ Wang Lin réfléchit un instant et dit: « Laisse-moi la voir. »
 
 L'homme hésita, puis frappa son sac de rangement. Une pierre bleue de la taille d'une paume apparut dans sa main. Des veines semblables à des branches parcouraient la pierre, comme si une plante y avait poussé.
 
-Une fine couche de lumière entourait la pierre. C'était un sort que tout marchand devait maîtriser pour opérer ici: le « Sceau Piège ». Il empêchait quiconque de s'emparer des objets par la force. À moins que l'acheteur ne soit d'un niveau supérieur à celui du vendeur, il fallait dix respirations pour briser ce sort. Ces dix secondes étaient cruciales, car elles permettaient au vendeur de ranger l'objet en sécurité.
+Une fine couche de lumière entourait la pierre. C'était un sort que tout marchand devait maîtriser pour opérer ici: le « Sceau Piège ». Il empêchait quiconque de s'emparer des objets par la force. À moins que l'acheteur ne soit d'un niveau supérieur à celui du vendeur, il fallait dix respirations pour briser ce sort. Ces dix respirations étaient cruciales, car elles permettaient au vendeur de ranger aussitôt l'objet en sécurité.
 
 Wang Lin fit un geste de la main. La pierre s'envola instantanément de la main du vieil homme pour atterrir dans celle de Wang Lin. La lumière ne sembla avoir aucun effet et se brisa dès que la pierre de bois du vide eut quitté la main du vendeur.
 

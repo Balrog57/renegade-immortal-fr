@@ -80,7 +80,7 @@ C'est ce qui lui donnait cet aspect chaotique. Cependant, Wang Lin réalisa que 
 
 « Vide Brillant... » Wang Lin digéra silencieusement les paroles de Ling Tianhou. Un instant plus tard, ses yeux s'illuminèrent: « Puisque des gens y entrent tous les 3 000 ans, je suppose que des membres de la Secte de Culture du Vide Brillant en sortent aussi... »
 
-« Bien sûr qu'il y a des gens qui en sortent. Te souviens-tu de la femme qui ressemblait à une mortelle lors de ton retour? À l'époque, la troisième personne qui accompagnait Tian Yunzi et moi était elle! Elle avait une disciple à ses côtés et, si je ne me trompe pas, cette disciple vient de la Secte de Culture du Vide Brillant. »
+« Bien sûr qu'il y a des gens qui en sortent. Quand tu es arrivé à la Secte du Destin Céleste il y a quelques jours, as-tu remarqué la femme qui avait l'air d'une simple paysanne mortelle? À l'époque, la troisième personne qui est entrée avec Tian Yunzi et moi dans la Secte de Culture du Vide Brillant, c'était elle! Elle avait une disciple à ses côtés et, si je ne me trompe pas, cette disciple vient de la Secte de Culture du Vide Brillant. »
 
 Wang Lin fut stupéfait. La première personne à laquelle il pensa fut la femme en rose qui l'avait invité.
 

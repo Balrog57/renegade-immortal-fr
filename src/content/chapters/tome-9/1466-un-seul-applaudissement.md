@@ -64,7 +64,7 @@ Des grondements de tonnerre jaillirent du vide infini devant lui. Il vit clairem
 
 Bien que le bras n'ait pas touché Tuo Sen, l'onde de choc qui en résulta frappa son corps. Malgré sa constitution puissante, il fut projeté en arrière et cracha du sang. Il lui fallut un effort considérable pour se stabiliser, et une rare trace de peur apparut sur le visage de Tuo Sen, lui qui n'avait peur de rien, alors qu'il regardait le bras géant s'éloigner rapidement dans la distance.
 
-Ce bras balaya le Tombe de l'Ordre Antique en direction de la huitième carte.
+Ce bras balaya la Tombe de l'Ordre Antique en direction de la huitième carte.
 
 Simultanément, dans la première carte, un autre bras gigantesque fendit la brume. Plusieurs dizaines de cultivateurs se trouvaient encore dans cette zone et progressaient à travers le brouillard. En un instant, un fracas tonitruant couvrit tout son environnement et, avant qu'ils ne puissent réagir, le bras passa derrière eux.
 
@@ -78,7 +78,7 @@ Certains possédaient des plateformes de rang 4, mais cela ne changea rien; ils 
 
 Les deux bras apparus dans la tombe ressemblaient à un géant écartant les mains puis les balayant de l'extérieur vers l'intérieur au-dessus de sa tête, comme pour les joindre en un applaudissement!
 
-Leur vitesse ne pouvait être décrite que par le terme instantané. Juste au moment où la plateforme de rang 9 de Wang Lin apparut et où Jiutian Mozun et les autres s'élancèrent, les deux bras balayèrent le Tombe de l'Ordre Antique pour atteindre la huitième carte!
+Leur vitesse ne pouvait être décrite que par le terme instantané. Juste au moment où la plateforme de rang 9 de Wang Lin apparut et où Jiutian Mozun et les autres s'élancèrent, les deux bras balayèrent la Tombe de l'Ordre Antique pour atteindre la huitième carte!
 
 Les hurlements qui perçèrent les oreilles de chacun provenaient de ces deux bras colossaux!
 

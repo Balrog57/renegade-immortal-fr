@@ -66,7 +66,7 @@ C'était un homme d'âge moyen vêtu de peaux de bêtes, les cheveux noués nég
 
 Son visage subissait le même sort: la moitié de ses traits était couverte de tatouages.
 
-L'homme d'âge moyen déclara d'une voix lente: « Envahisseurs de cette planète, vous avez rompu l'accord! Les cent ans ne sont pas encore écoulés; quiconque pénètre ici est condamné à mort! »
+L'homme d'âge moyen déclara d'une voix lente: « Étrangers de la planète Zhoufu, vous avez rompu l'accord! Les cent ans ne sont pas encore écoulés; quiconque pénètre ici est condamné à mort! »
 
 Les yeux de Wang Lin s'illuminèrent. Il ne détectait aucune énergie spirituelle dans le corps de cet homme, mais les tatouages lui infligeaient un sentiment de danger imminent.
 

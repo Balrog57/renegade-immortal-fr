@@ -104,7 +104,7 @@ Le regard de Wang Lin était d'une noirceur extrême. Lie Yunzi savait que s'il 
 
 « Seigneur Empereur Divin, cette affaire... j'ai eu tort! » Lie Yunzi serra les poings, le corps tremblant. Depuis le début de sa culture, il n'avait jamais été aussi humilié!
 
-Wang Lin abaissa sa main droite, fixa Lie Yunzi et asséna, mot pour mot: « Je veux tous les Parchemins de Bataille de votre famille Zhan! Donnez-les-moi et je passerai outre! Je vous accorde quinze minutes pour y réfléchir. »
+Wang Lin abaissa sa main droite, fixa Lie Yunzi et asséna, mot pour mot: « Je veux tous les Parchemins de Bataille de votre famille Zhan! Donnez-les-moi et je passerai outre! Je vous accorde sept minutes pour y réfléchir. »
 
 Une fois ses paroles prononcées, il agita la main droite; une énergie originelle de feu se rassembla devant lui pour former un bâton d'encens qui flottait dans les airs.
 

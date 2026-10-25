@@ -62,7 +62,7 @@ Une plante à treize feuilles bougeait entre ses sourcils, lui conférant une au
 
 « Treize feuilles! » Les yeux de Wang Lin se rétrécirent. D'après ses souvenirs, le membre le plus puissant du Clan des Immortels Délaissés sur la planète Suzaku n'en possédait que onze.
 
-« Équivalent à un cultivateur Corporel Yang... » L'expression de Wang Lin resta neutre tandis qu'il fixait froidement l'homme.
+« Équivalent à un cultivateur Yang Corporel... » L'expression de Wang Lin resta neutre tandis qu'il fixait froidement l'homme.
 
 L'homme costaud avança en quelques enjambées. Sa présence fit pousser des acclamations parmi les membres du Clan des Immortels Délaissés qui l'entouraient, leurs yeux brillant de respect.
 

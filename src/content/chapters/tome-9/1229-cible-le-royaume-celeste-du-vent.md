@@ -82,7 +82,7 @@ Un instant plus tard, Wang Lin leva la main droite et une bourrasque de vent pro
 
 Ce n'est que lorsqu'elle fut à des dizaines de milliers de kilomètres que le vent se dissipa. La vieille femme, encore plus impressionnée, s'inclina en direction de Wang Lin avant de poursuivre sa route.
 
-La dernière âme originelle était celle de Maître Âme Nuageuse. Puisque Wang Lin l'avait accepté comme esclave, il ne lui traiterait pas mal. Cependant, ce n'était pas le moment de l'aider à guérir. D'un revers de manche, Wang Lin rangea son âme dans son espace de stockage. Il réfléchit un instant avant de sortir une Imitation de Perle Défiant le Ciel.
+La dernière âme originelle était celle de Maître Nuage-Âme. Puisque Wang Lin l'avait accepté comme esclave, il ne lui traiterait pas mal. Cependant, ce n'était pas le moment de l'aider à guérir. D'un revers de manche, Wang Lin rangea son âme dans son espace de stockage. Il réfléchit un instant avant de sortir une Imitation de Perle Défiant le Ciel.
 
 Il en prit une et y plongea son sens divin. Comme il s'y attendait, dès que la perle quitta le Royaume aux Sept Couleurs, elle devint inutile.
 

@@ -102,7 +102,7 @@ En rencontrant Xu Liguo et Liu Jinbiao, les deux groupes échangèrent des souri
 
 Liu Jinbiao se frappa la poitrine de la main droite et cracha du sang.
 
-La cultivatrice laissa échapper un reniflement méprisant. Accompagnée de ses dix compagnons, elle déchira violemment l'écran de lumière.
+La cultivatrice laissa échapper un reniflement méprisant. Accompagnée de plus de dix compagnons, elle déchira violemment l'écran de lumière.
 
 Derrière l'écran, le fou était assis face à Fa Huazi. Il resta pétrifié en découvrant la troupe de cultivateurs qui faisait irruption.
 

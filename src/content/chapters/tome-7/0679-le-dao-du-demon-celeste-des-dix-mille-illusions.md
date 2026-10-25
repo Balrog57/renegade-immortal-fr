@@ -26,7 +26,7 @@ Il était venu ici pour comprendre pourquoi Liu Mei se trouvait dans la partie s
 
 Puisque les trois lui avaient menti au sujet des clones, il n'avait plus aucune raison de se mettre en danger pour eux. Il suffisait qu'il fasse un petit effort.
 
-De plus, ce qui troublait le cœur de Wang Lin était que la culture de cette Liu Mei avait déjà atteint le sommet du dernier stade d'Ascendant. Ce niveau de culture fit imperceptiblement rétrécir les pupilles de Wang Lin.
+De plus, ce qui troublait le cœur de Wang Lin était que la culture de cette Liu Mei avait déjà atteint la grande perfection du stade tardif de l'Ascendant. Ce niveau de culture fit imperceptiblement rétrécir les pupilles de Wang Lin.
 
 « Comment la culture de cette Liu Mei a-t-elle pu atteindre un tel niveau? Cela pourrait être lié à l'ancêtre de la famille Huan... C'est forcément le cas! » Le regard de Wang Lin balaya le corps de Liu Mei, révélant une pointe de lucidité.
 
@@ -76,7 +76,7 @@ Cette femme était bien Hongdie!
 
 Hongdie fixa Wang Lin et dit calmement: « Notre querelle doit également être réglée! » Sur ce, elle frappa son sac de rangement et une rose rouge apparut. Elle la lança en avant, et tous les pétales se dispersèrent, flottant vers Wang Lin avec une force mystérieuse.
 
-« Quel genre de sort est-ce là?! » Les pupilles de Wang Lin se rétractèrent imperceptiblement. La Liu Mei qu'il voyait venait de se transformer en Hongdie. Grâce à son sens divin, il confirma qu'il s'agissait de la véritabHongdie, sans aucune trace de l'aura de Liu Mei.
+« Quel genre de sort est-ce là?! » Les pupilles de Wang Lin se rétractèrent imperceptiblement. La Liu Mei qu'il voyait venait de se transformer en Hongdie. Grâce à son sens divin, il confirma qu'il s'agissait de la véritable Hongdie, sans aucune trace de l'aura de Liu Mei.
 
 Face aux pétales, la main droite de Wang Lin forma un sceau et, d'une pensée, la Formation d'Épées aux Sept Étoiles s'approcha aussitôt. Les sept épées formèrent un cercle et tournèrent à une vitesse fulgurante, créant un puissant vent d'épées qui broya les pétales de fleurs.
 

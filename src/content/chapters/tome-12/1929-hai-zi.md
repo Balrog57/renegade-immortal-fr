@@ -56,7 +56,7 @@ Le dragon marin doré était extrêmement rapide. Il ne resta pas en l'air mais 
 
 Il laissa échapper une série de hurlements aigus qui déchirèrent le silence de la nuit.
 
-« L'armure d'âme du Taureau Céleste ne peut être utilisée longtemps. Même maintenant, elle ne tient pas plus d'une demi-heure. L'Exalté Empyréen Hai Zi est très puissante, mais avec mon armure d'âme et mon Art Magique Rapide, il lui sera impossible de me vaincre! Cependant, je ne peux pas la battre en peu de temps. C'est pourquoi je dois agir ainsi! » Les yeux de Wang Lin s'illuminèrent et le dragon marin plongea encore plus profondément dans les abysses de la Mer Montagneuse.
+« L'armure d'âme du Taureau Céleste ne peut être utilisée longtemps. Même maintenant, elle ne tient pas plus d'une heure. L'Exalté Empyréen Hai Zi est très puissante, mais avec mon armure d'âme et mon Art Magique Rapide, il lui sera impossible de me vaincre! Cependant, je ne peux pas la battre en peu de temps. C'est pourquoi je dois agir ainsi! » Les yeux de Wang Lin s'illuminèrent et le dragon marin plongea encore plus profondément dans les abysses de la Mer Montagneuse.
 
 Les fluctuations qu'il provoquait créaient un vortex gigantesque, et ses rugissements faisaient vibrer l'océan. D'innombrables créatures marines, ébranlées par la puissance du dragon, reculèrent toutes, n'osant aucunement s'approcher.
 

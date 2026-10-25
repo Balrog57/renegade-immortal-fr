@@ -56,19 +56,19 @@ S'il n'avait pas encore obtenu sa septième étoile, Wang Lin aurait attaqué sa
 
 Tuo Sen réfléchissait en silence tout en régénérant rapidement son corps. Après avoir fui la planète Suzaku, il avait pris possession du corps de Tu Si. Le corps de Tu Si était celui d'un Dieu Antique royal à huit étoiles ayant survécu durant des éons!
 
-Les sept étoiles entre les sourcils de Wang Lin tournaient rapidement, et une énergie de démon ancien tourbillonnait dans son œil droit, condensant l'étoile de démon ancien. Cependant, l'héritage manquant d'énergie de démon ancien le rendait incomplet; ainsi, l'étoile de démon ancien ne pouvait pas se condenser pleinement!
+Les sept étoiles entre les sourcils de Wang Lin tournaient rapidement, et une énergie de Diable Ancien tourbillonnait dans son œil droit, condensant l'étoile de Diable Ancien. Cependant, l'héritage manquant d'énergie de Démon Ancien le rendait incomplet; ainsi, l'étoile de Diable Ancien ne pouvait pas se condenser pleinement!
 
-À moins qu'il ne possède un avatar de démon ancien complet!
+À moins qu'il ne possède un avatar de Diable Ancien complet!
 
 Un tel avatar serait difficile à trouver n'importe où ailleurs. Pourtant, il pouvait en trouver un dans cette tombe, et plus précisément dans ce palais!
 
-Il restait encore quelques corps pétrifiés appartenant aux trois clans de l'Ordre Antique. Parmi eux se trouvait un démon ancien de dix mille pieds de haut, qui conservait encore son expression féroce. Il était particulièrement frappant parmi les autres cadavres!
+Il restait encore quelques corps pétrifiés appartenant aux trois clans de l'Ordre Antique. Parmi eux se trouvait un Diable Ancien de dix mille pieds de haut, qui conservait encore son expression féroce. Il était particulièrement frappant parmi les autres cadavres!
 
-Wang Lin leva la main droite et fit un geste. Le corps du démon ancien vola vers lui et atterrit devant ses pieds. Il pressa alors sa main droite sur le corps.
+Wang Lin leva la main droite et fit un geste. Le corps du Diable Ancien vola vers lui et atterrit devant ses pieds. Il pressa alors sa main droite sur le corps.
 
-« Hélas, il n'y a pas de démon ancien royal ici... Ce cadavre ne possède que quelques vestiges d'une aura royale... » La main de Wang Lin s'enfonça sur la dépouille du démon. L'énergie démoniaque de son œil droit se déversa dans le corps pétrifié à travers sa paume.
+« Hélas, il n'y a pas de Diable Ancien royal ici... Ce cadavre ne possède que quelques vestiges d'une aura royale... » La main de Wang Lin s'enfonça sur la dépouille du Diable. L'énergie démoniaque de son œil droit se déversa dans le corps pétrifié à travers sa paume.
 
-L'aura de démon ancien au sein de Wang Lin était immense. À cet instant, elle jaillit dans le corps pétrifié du démon, qui agissait comme un gouffre sans fond.
+L'aura de Diable Ancien au sein de Wang Lin était immense. À cet instant, elle jaillit dans le corps pétrifié du Diable, qui agissait comme un gouffre sans fond.
 
 Tout en restant assis, Wang Lin laissait son énergie démoniaque inonder le corps devant lui. Ses yeux restaient fixés sur Tuo Sen, qui se guérissait rapidement à l'extérieur du réseau illusoire.
 

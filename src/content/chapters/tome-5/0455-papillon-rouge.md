@@ -56,7 +56,7 @@ Cette énergie était la seule chose qui inquiétait réellement Wang Lin. Chaqu
 
 La lame en forme de demi-lune était singulière. Grâce à son Sens Divin, il remarqua que chaque fois que cette lame atteignait une certaine vitesse, une force mystérieuse la contraignait à ralentir. Autrement, elle aurait sans doute rattrapé Wang Lin bien trop facilement.
 
-Les trois individus volaient à leur vitesse maximale. Après le temps de brûler trois bâtons d'encens, la limite de la zone des bassins apparut à l'horizon. Les yeux de Wang Lin s'illuminèrent et il utilisa immédiatement la téléportation. Lorsqu'il réapparut, il se trouvait déjà à la lisière de la zone. Dès son apparition, il s'élança sans marquer la moindre pause.
+Les trois individus volaient à leur vitesse maximale. Au bout de quarante-cinq minutes, la limite de la zone des bassins apparut à l'horizon. Les yeux de Wang Lin s'illuminèrent et il utilisa immédiatement la téléportation. Lorsqu'il réapparut, il se trouvait déjà à la lisière de la zone. Dès son apparition, il s'élança sans marquer la moindre pause.
 
 Zhou Wutai hésita un instant avant de suivre Wang Lin. La femme, elle, choisit aussitôt une autre direction et se sépara de Zhou Wutai.
 

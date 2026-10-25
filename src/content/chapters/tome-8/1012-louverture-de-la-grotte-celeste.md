@@ -10,7 +10,7 @@ slug: louverture-de-la-grotte-celeste
 
 « Cependant, peu importe désormais. Même si la Terre des Esprits Démoniaques revenait à son état d'origine, cela n'aurait aucune importance! Maintenant que la grotte est ouverte, je réussirai cette fois-ci! »
 
-« Ancien Démon, Empereur Céleste, moi, Bei Luo, j'arrive! » L'ancien démon afficha une expression féroce alors qu'il jaillissait du bassin d'eau dans un rayon de lumière démoniaque.
+« Ancien Diable, Empereur Céleste, moi, Bei Luo, j'arrive! » L'ancien démon afficha une expression féroce alors qu'il jaillissait du bassin d'eau dans un rayon de lumière démoniaque.
 
 L'énergie spirituelle céleste l'enveloppait, mais dès qu'elle s'approchait de lui, elle était absorbée par la lueur démoniaque qui l'entourait, renforçant ainsi son énergie démoniaque.
 
@@ -88,7 +88,7 @@ Wang Lin répondit calmement: « C'est bien moi. »
 
 Hu Juan, aux côtés de Wang Wei, lui adressa un sourire. « Tu as perdu notre pari de l'époque. »
 
-Wang Wei sourit et hocha la tête, avant de se tourner vers Wang Lin. « L'interdiction à l'entrée du Abîme des Marées, dans le Pays du Démon de Feu, a-t-elle été placée par toi? » En parlant, il agita la main et une simple lame d'herbe apparut.
+Wang Wei sourit et hocha la tête, avant de se tourner vers Wang Lin. « L'interdiction à l'entrée de l'Abîme des Marées, dans le Pays du Démon de Feu, a-t-elle été placée par toi? » En parlant, il agita la main et une simple lame d'herbe apparut.
 
 Dès que Wang Lin vit l'herbe, il reconnut l'interdiction qu'il avait lui-même posée autrefois. Son expression ne changea pas et il acquiesça.
 

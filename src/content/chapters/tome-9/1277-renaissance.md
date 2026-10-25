@@ -18,7 +18,7 @@ Cependant, malgré cela, la puissance du Souverain était telle qu'il avait pu e
 
 C'étaient les paroles du Souverain après avoir percé les secrets du temps; il n'avait pas caché cette vérité, mais l'avait proclamée au monde entier. Dès lors, la réputation des Clous Divins du Vide aux Sept Couleurs s'envola. Tous les puissants en connaissaient l'existence!
 
-Shui Daozi avait personnellement vu le Souverain les utiliser contre son propre maître. Shui Daozi n'était pas la force principale de ce combat, mais alors que son maître pratiquait la culture en porte fermée pour étudier la Perle Défiant le Ciel, Shui Daozi avait lancé une attaque surprise avec un trésor extrêmement vicieux, raffiné avec l'aide de cultivateurs du Royaume Céleste Antique, pour blesser son maître!
+Shui Daozi avait personnellement vu le Souverain les utiliser contre son propre maître. Shui Daozi n'était pas la force principale de ce combat, mais alors que son maître pratiquait la culture en porte fermée pour étudier la Perle Défiant le Ciel, Shui Daozi avait lancé une attaque surprise avec un trésor extrêmement vicieux, raffiné pendant d'innombrables dizaines de milliers d'années avec plusieurs puissants du Royaume Céleste Antique, pour blesser son maître!
 
 Ensuite, les trois seigneurs du Système Stellaire Antique et plusieurs cultivateurs du Royaume Céleste Antique avaient entamé une bataille à mort contre son maître. Ce que le Souverain avait déployé, c'étaient les 108 Clous Divins du Vide aux Sept Couleurs!
 

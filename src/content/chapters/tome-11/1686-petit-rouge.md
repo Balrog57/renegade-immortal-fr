@@ -50,7 +50,7 @@ Plus important encore, le corps de ce dragon contenait une infime trace de lign�
 
 Wang Lin se tenait au-dessus de la tête gigantesque du dragon. Ses yeux brillaient alors qu'il contemplait la créature sous lui.
 
-Il ne restait que trois heures avant la fin de la période de trois ans. Ces trois heures suffiraient amplement à Wang Lin pour extorquer des informations au dragon.
+Il ne restait que six heures avant la fin de la période de trois ans. Ces six heures suffiraient amplement à Wang Lin pour extorquer des informations au dragon.
 
 « Le Continent Astral Immortel est votre patrie, n'est-ce pas... » Le sens divin de Wang Lin qui entourait le dragon projeta soudain un message.
 
@@ -64,9 +64,9 @@ L'horreur se lut dans les yeux de la créature, mais pour une raison obscure, el
 
 Wang Lin fronça les sourcils. Il ne pouvait pas utiliser le sort de recherche d'âme pour l'instant. Ils étaient dans le Système Stellaire Antique, et les sens divins de plusieurs cultivateurs puissants rôdaient. S'il utilisait ce sort, il leur donnerait une occasion de l'attaquer.
 
-Cela compromettrait son plan prévu dans trois heures.
+Cela compromettrait son plan prévu dans six heures.
 
-Son regard se fit plus glacial encore. Wang Lin dissipa le sort de recherche d'âme et s'apprêta à envoyer le dragon dans son espace de stockage. Il obtiendrait ses réponses après avoir réglé la question du Royaume Céleste Ancien.
+Son regard se fit plus glacial encore. Wang Lin dissipa le sort de recherche d'âme et s'apprêta à envoyer le dragon dans son espace de stockage. Il obtiendrait ses réponses après avoir réglé la question du Royaume Céleste Antique.
 
 Cependant, juste au moment où il allait rompre le sort, les supplications du dragon de feu pénétrèrent son esprit.
 
@@ -130,6 +130,6 @@ Le temps pressait; il devait garder les idées claires pour pouvoir mobiliser to
 
 S'il obtenait davantage d'informations, il lui serait impossible de garder son sang-froid. Wang Lin s'assit donc, les yeux clos, tentant de calmer le tumulte qui agitait son cœur.
 
-Le temps passa. Tandis que les cultivateurs observant Wang Lin par leur sens divin continuaient de spéculer, les trois dernières heures s'écoulèrent lentement.
+Le temps passa. Tandis que les cultivateurs observant Wang Lin par leur sens divin continuaient de spéculer, les six dernières heures s'écoulèrent lentement.
 
 À l'instant précis où le compte à rebours toucha à sa fin, Wang Lin ouvrit brusquement les yeux!

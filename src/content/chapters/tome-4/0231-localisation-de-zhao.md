@@ -152,7 +152,7 @@ Wang Lin le regarda et hocha la tête.
 
 Tout le monde comprit ce qui se passait et cessa de s'y intéresser, bien qu'ils fussent tous curieux de savoir avec quoi Wang Lin pourrait payer un objet aussi précieux.
 
-Une heure plus tard, le marché secret prit fin et chacun partit. Wang Lin quitta la pièce et retira sa robe. Une cultivatrice au charme séduisant l'attendait déjà.
+Deux heures plus tard, le marché secret prit fin et chacun partit. Wang Lin quitta la pièce et retira sa robe. Une cultivatrice au charme séduisant l'attendait déjà.
 
 En le voyant, elle s'avança et dit respectueusement: « Senior, mon maître dit avoir rendez-vous avec vous; il m'a chargée de vous conduire à lui. »
 

@@ -62,9 +62,9 @@ Un cultivateur de ce niveau était véritablement insignifiant face à Wang Lin!
 
 Tout comme dans la Terre des Esprits Démoniaques, lorsque le Démon Dispersé pouvait faire s'effondrer le corps de Wang Lin par un simple grognement glacial; le Wang Lin d'aujourd'hui avait atteint le niveau que possédait alors le Démon Dispersé!
 
-L'âme originelle de l'homme d'âge moyen s'échappa et commença à se dissiper. Alors qu'elle était sur le point de s'éteindre, une voix féminine émana du vide:
+L'âme originelle de l'homme d'âge moyen s'échappa et commença à se dissiper. Alors qu'elle était sur le point de s'éteindre, une voix doucereuse et glaçante émana du vide:
 
-« Tu es bel et bien digne d'être le Céleste du Tonnerre de Luotian, Xu Mu! » À l'instant où cette voix apparut, une silhouette surgit des étoiles lointaines. C'était un homme d'âge moyen vêtu d'une robe bleue, au visage jaune terreux. Derrière lui s'étendaient d'innombrables ombres noires semblables à de longs manteaux flottant parmi les astres.
+« Tu es bel et bien digne d'être le véritable Céleste du Tonnerre de Luotian, Xu Mu! » À l'instant où cette voix apparut, une silhouette surgit des étoiles lointaines. C'était un homme d'âge moyen vêtu d'une robe bleue, au visage jaune terreux. Derrière lui s'étendaient d'innombrables ombres noires semblables à de longs manteaux flottant parmi les astres.
 
 L'être qui parlait était le cultivateur aux six doigts!
 
@@ -108,7 +108,7 @@ Les yeux de Zhou Tian brillèrent alors qu'il fixait Wang Lin, et cette lueur é
 
 Plusieurs ombres jaillirent de derrière Zhou Tian pour foncer vers elle.
 
-« Tu veux sauver cette femme, mais je ne te laisserai pas réussir! » Tandis que la voix féminine de Zhou Tian résonnait, les ombres encerclèrent Xi Zifeng.
+« Tu veux sauver cette femme, mais je ne te laisserai pas réussir! » Tandis que la voix doucereuse de Zhou Tian résonnait, les ombres encerclèrent Xi Zifeng.
 
 Le visage de la jeune femme pâlit et elle recula précipitamment.
 
@@ -124,4 +124,6 @@ Des ondulations apparurent près de Xi Zifeng alors que Wang Lin avançait et la
 
 L'expression de Wang Lin resta neutre alors qu'il pointait le ciel. Le tonnerre fut aspiré du vide sur un rayon de dizaines de milliers de kilomètres pour converger instantanément en ce point.
 
-Les environs devinrent un lac de tonnerre!
+Les environs devinrent un lac de tonnerre! Les grondements se répandirent dans le monde et, à mesure que Wang Lin avançait, des éclairs tombèrent du ciel, l'un après l'autre : les dizaines de milliers d'ombres illusoires s'effondrèrent toutes.
+
+Les yeux de Zhou Tian scintillèrent ; il joignit les mains en un sceau et pointa son propre front, où des motifs noirs se répandirent sur son visage. « Âmes, tuez! » cria-t-il.

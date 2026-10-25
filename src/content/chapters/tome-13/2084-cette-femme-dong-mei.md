@@ -28,11 +28,11 @@ Xuan Luo saisit le jade. Il ne l'examina pas immédiatement, mais fixa Wang Lin.
 
 Wang Lin hocha la tête.
 
-Xuan Luo ferma les yeux. Lorsqu'il les rouvrit, il se changea en un rayon de lumière aux côtés de Song Tian et du Grand Empyréen Ji Antique. En un éclair, ils disparurent sans laisser de trace.
+Xuan Luo ferma les yeux. Lorsqu'il les rouvrit, il se changea en un rayon de lumière aux côtés de Song Tian et du Grand Empyréen Ancien Ji. En un éclair, ils disparurent sans laisser de trace.
 
 À cet instant, à l'extérieur de la tempête marine, seuls Wang Lin et Gu Dao restèrent.
 
-Le temps s'écoulait lentement. Soudainement, le crépuscule tomba. Il ne restait plus qu'une demi-heure avant l'ouverture du Royaume Divin Immémorial, et les grondements de la tempête marine atteignirent leur paroxysme. Le vortex tournait si rapidement qu'au premier regard, il semblait immobile.
+Le temps s'écoulait lentement. Soudainement, le crépuscule tomba. Il ne restait plus qu'une heure avant l'ouverture du Royaume Divin Immémorial, et les grondements de la tempête marine atteignirent leur paroxysme. Le vortex tournait si rapidement qu'au premier regard, il semblait immobile.
 
 Pourtant, cette apparence trompeuse signifiait qu'il avait atteint une vitesse alarmante.
 
@@ -68,7 +68,7 @@ Gu Dao détourna les yeux de Wang Lin et fixa la tempête qui se contractait, av
 
 Wang Lin resta plongé dans une réflexion silencieuse.
 
-La demi-heure s'écoula progressivement. Une fois que toute l'eau eut été dévorée par le vortex, les grondements tonitruants continuèrent de résonner. Les neuf piliers colossaux, désormais libérés des flots, émettaient une lumière éclatante aux neuf couleurs. La porte du Royaume Divin Immémorial, formée par ces neuf piliers, s'ouvrit lentement!
+L'heure s'écoula progressivement. Une fois que toute l'eau eut été dévorée par le vortex, les grondements tonitruants continuèrent de résonner. Les neuf piliers colossaux, désormais libérés des flots, émettaient une lumière éclatante aux neuf couleurs. La porte du Royaume Divin Immémorial, formée par ces neuf piliers, s'ouvrit lentement!
 
 Dès son ouverture, une onde se propagea depuis la porte avec une vitesse inimaginable. Elle balaya instantanément le vaste bassin en direction des clans Antique et Céleste.
 

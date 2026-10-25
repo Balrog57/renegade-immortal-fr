@@ -112,4 +112,4 @@ Boum!
 
 Le corps de Lei Ji s'effondra et son âme originelle faillit se dissiper. Maître Fu Fengzi agita ses manches pour recueillir l'âme originelle de Lei Ji, mais au prix d'une épée de l'un des avatars de Tian Yunzi qui lui transperça la poitrine.
 
-Maître Fu Fengzi cracha du sang et recula avec un sourire amer, avant de se précipiter vers les deux frères Chen, également grièvement blessés.
+Maître Fu Fengzi cracha du sang et recula avec un sourire amer, pour se rapprocher de Chen Daozi, lui aussi grièvement blessé.

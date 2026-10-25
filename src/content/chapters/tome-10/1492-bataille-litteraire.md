@@ -16,7 +16,7 @@ Cependant, il restait convaincu d'avoir plus d'expérience que lui, ayant attein
 
 Bien que Wang Lin n'ait pas encore atteint le troisième niveau, son corps pouvait rivaliser avec celui d'un cultivateur de ce rang. Il avait également affronté de nombreux cultivateurs du troisième niveau dans le Royaume Extérieur, ainsi Maître Lu Fu ne représentait rien à ses yeux!
 
-Puisque Maître Lu Fu s'obstinait, Wang Lin n'avait rien contre l'idée de lui donner une leçon. Depuis qu'il était devenu un Dieu Antique à sept étoiles, il n'avait combattu personne d'autre que Tuo Sen. À cet instant, Wang Lin avait l'intention de défier Maître Lu Fu.
+Puisque Maître Lu Fu s'obstinait, Wang Lin n'avait rien contre l'idée de lui donner une leçon. Depuis qu'il était devenu un Dieu Antique à sept étoiles, hormis le combat contre Tuo Sen, il n'avait affronté aucun cultivateur du troisième pas. À cet instant, Wang Lin avait l'intention de défier Maître Lu Fu.
 
 Le regard de Maître Lu Fu eut un éclair, et il fixa le point entre les sourcils de Wang Lin. Il perçut une intention de combat monstrueuse qui fit se rétracter ses pupilles, et il changea rapidement d'avis.
 

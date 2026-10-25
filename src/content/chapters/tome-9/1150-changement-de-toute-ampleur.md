@@ -14,7 +14,7 @@ Pour les régions de rang 1 à 4, la région de rang 5 représentait une existen
 
 Le brouillard se mit à tourbillonner avec une intensité accrue, et les bêtes environnantes s'éparpillèrent, terrifiées. Plusieurs autres rayons de lumière passèrent en sifflant.
 
-Ce n'était pas un cas isolé. En l'espace de quelques courtes minutes, plusieurs dizaines de traînées lumineuses percèrent la brume pour traverser rapidement la région de rang 5.
+Ce n'était pas un cas isolé. En l'espace de quinze minutes à peine, plusieurs dizaines de traînées lumineuses percèrent la brume pour traverser rapidement la région de rang 5.
 
 Diverses bêtes spirituelles se trouvaient au sein de ces éclats de lumière, chacune portant un cultivateur sur son dos.
 

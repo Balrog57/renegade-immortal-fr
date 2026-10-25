@@ -88,7 +88,7 @@ Il leva sa main droite vers le vide. Une fissure apparut devant lui et trois ray
 
 La lumière se mua en une cape blanche devant lui. Neuf oiseaux vermillon l'entouraient, dégageant une aura majestueuse.
 
-« J'ai retiré cette cape lors de ma troisième Fléau Céleste. Je ne pensais jamais avoir l'occasion de la porter à nouveau... Aujourd'hui, je te la transmets! » Le vieil Empereur Divin afficha une expression mélancolique.
+« J'ai retiré cette cape lors de mon troisième Fléau Céleste. Je ne pensais jamais avoir l'occasion de la porter à nouveau... Aujourd'hui, je te la transmets! » Le vieil Empereur Divin afficha une expression mélancolique.
 
 Wang Lin toucha la cape de sa main droite. Celle-ci se transforma en lumière et enveloppa Wang Lin. Lorsque l'éclat s'estompa, Wang Lin la portait déjà.
 
@@ -108,7 +108,7 @@ Une tempête se déchaîna dans son esprit. Il prit une profonde inspiration et 
 
 Il percevait une aura très diffuse émanant de cette pierre... une aura similaire à celle de la Perle Défiant le Ciel... Cette sensation était ténue, mais elle était bien réelle. S'il ne l'avait pas tenue en main, il ne l'aurait jamais ressentie.
 
-« Le sang du Trésor Saint se trouve toujours entre les sourcils de Qing Lin. Tu pourras l'enlever à tout moment! » Le vieil Empereur Divin regarda Wang Lin avec une pointe de soulagement.
+« Le sang du Trésor Saint se trouve toujours entre les sourcils du corps de Qing Lin. Tu pourras l'enlever à tout moment! » Le vieil Empereur Divin regarda Wang Lin avec une pointe de soulagement.
 
 « Ces trois choses ont été transmises par le premier Empereur Divin de l'Oiseau Vermillon. Seule chaque génération d'Empereur Divin peut les transmettre à la suivante. Tu dois les garder en sécurité... » Le vieil Empereur Divin peinait à se redresser. Son corps était devenu très faible, et le simple fait de se tenir debout lui était douloureux.
 

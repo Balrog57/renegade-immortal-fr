@@ -96,9 +96,9 @@ Les mains de l'homme frappèrent le vide devant lui tandis que l'énergie origin
 
 À cet instant précis, une lumière blanche jaillit du sol et un vieil homme vêtu de vert apparut. Il se lécha les lèvres et chargea, le regard brillant d'avidité.
 
-« La raison pour laquelle ce vieux s'est caché si longtemps en refusant l'appel de l'Alliance était d'éviter les ennuis. En présence de Qing Shui, je ne me serais montré sous aucun prétexte et j'aurais cherché une chance de m'enfuir. Mais avec le Maître Fantôme Vide qui combat Xu Mu, cela donne au Shen Mozi une chance de récolter du mérite! »
+« La raison pour laquelle ce vieux s'est caché si longtemps en refusant l'appel de l'Alliance était d'éviter les ennuis. En présence de Qing Shui, je ne me serais montré sous aucun prétexte et j'aurais cherché une chance de m'enfuir. Mais maintenant que Huan Xuzi affronte Xu Mu, cela donne à moi, Shen Mozi, une chance de récolter du mérite! »
 
-La silhouette du vieil homme était d'une rapidité extrême alors qu'il fonçait sur Wang Lin. Tandis que Wang Lin reculait, ses yeux brillèrent d'une lueur malveillante et ses mains formèrent un sceau. Deux flammes vertes se condensèrent dans ses paumes.
+La silhouette du vieil homme était d'une rapidité extrême alors qu'il fonçait sur Wang Lin. Tandis que Wang Lin reculait, les yeux du vieil homme brillèrent d'une lueur féroce et ses mains formèrent un sceau. Deux flammes vertes se condensèrent dans ses paumes.
 
 Ce vieil homme avait toujours été extrêmement prudent, n'agissant jamais sans une certitude absolue. Il en était de même dans le Royaume de la Boucherie.
 

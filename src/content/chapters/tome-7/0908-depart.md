@@ -14,7 +14,7 @@ Wang Lin se leva, joignit les mains et répondit: « J'ai vu certaines scènes. 
 
 Le vieux cultivateur esquissa un léger sourire tout en levant la main droite vers la flamme. Celle-ci vacilla, puis fut capturée dans la paume du vieil homme.
 
-« Cette chose a été formée par l'essence originelle d'un membre de haut niveau du clan Fu de la Feuille Dorée. Comprendre cette origine originelle profitera grandement à ta culture. C'est également un test que chacun doit affronter pour devenir un disciple interne de la branche de l'Oiseau Vermillon des Quatre Sectes Divines. Si tu parviens à en saisir l'essence, tu deviendras un disciple interne! »
+« Cette chose a été formée par l'essence originelle d'un Maître Fu à la Feuille Dorée du clan Fu, qui avait atteint une fois la Grande Perfection. Comprendre cette origine originelle profitera grandement à ta culture. C'est également un test que chacun doit affronter pour devenir un disciple interne de la branche de l'Oiseau Vermillon des Quatre Sectes Divines. Si tu parviens à en saisir l'essence, tu deviendras un disciple interne! »
 
 Sur ces mots, le vieux cultivateur sembla absorber une trace du pouvoir de cette flamme, et son visage devint légèrement rubescent. Après un long moment, il retrouva son aspect normal et agita ses manches. Wang Lin disparut sur-le-champ.
 
@@ -82,7 +82,7 @@ Cette aura était imprégnée d'une odeur de sang qui se propagea pour former un
 
 Dans ce rugissement, une voix froide et impitoyable s'éleva:
 
-« Domaine de la Boucherie de l'Alliance de Culture, Yu Fei, venu réclamer votre tête, Xu Mu! » Au moment où cette voix résonna, le rocher sous lui accéléra encore. Il allait si vite que des flammes rouges apparurent sur la pierre à cause de la friction, fonçant droit sur Lei Ji.
+« Domaine de la Boucherie de l'Alliance de Culture, Tueur Yu Fei, venu réclamer votre tête, Xu Mu! » Au moment où cette voix résonna, le rocher sous lui accéléra encore. Il allait si vite que des flammes rouges apparurent sur la pierre à cause de la friction, fonçant droit sur Lei Ji.
 
 L'expression de Lei Ji devint paniquée et il s'apprêta à esquiver. À cet instant, le garçon à grosse tête regarda Wang Lin, serra les dents et s'avança. Ses deux mains tracèrent un sceau et l'énergie d'origine céleste jaillit. Cette énergie forma une tempête autour de son corps et, bientôt, un sortilège céleste apparut.
 

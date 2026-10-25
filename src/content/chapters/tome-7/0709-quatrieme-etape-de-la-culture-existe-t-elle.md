@@ -50,7 +50,7 @@ La Bête du Tonnerre emmena Wang Lin vers la planète Qianhuan. La planète Ran 
 
 « À l'époque, sur la planète Tian Yun, un messager de l'Alliance de la Culture était arrivé avec une Zibeline Marquée d'Étoiles. Cette créature est extrêmement sensible à l'aura d'un Dieu Ancien. Si cette bête était ici, elle m'aiderait grandement dans ma recherche... »
 
-La Bête du Tonnerre poussa un rugissement en traversant l'espace. Une demi-lune plus tard, la planète Qianhuan apparut aux yeux de Wang Lin. Son regard restait calme tandis que la Bête du Tonnerre fonçait vers la planète.
+La Bête du Tonnerre poussa un rugissement en traversant l'espace. Quinze jours plus tard, la planète Qianhuan apparut aux yeux de Wang Lin. Son regard restait calme tandis que la Bête du Tonnerre fonçait vers la planète.
 
 À l'instant où il s'approcha, d'innombrables nuages de tonnerre apparurent et le grondement des foudres résonna dans le ciel. Ce phénomène attira immédiatement l'attention des cultivateurs de la planète Qianhuan.
 

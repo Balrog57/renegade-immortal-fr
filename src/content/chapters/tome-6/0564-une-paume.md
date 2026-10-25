@@ -94,7 +94,7 @@ Les yeux de Wang Lin s'illuminèrent alors qu'il reculait de plusieurs pas: « U
 
 « Si je devais te tuer, je n'aurais plus aucun moyen de rester dans ce Pays du Démon Céleste. Regarde attentivement, et tu sauras par toi-même si tu peux supporter ce coup! » Wang Lin ne chercha pas à contrer les quarante vagues. Au lieu de cela, il s'éleva à 330 mètres dans les airs et regarda soudainement vers le bas.
 
-Les yeux du général démon révélèrent une lueur mystérieuse; d'une simple pensée, il fit revenir les quarante vagues vers lui. Elles tourbillonnaient désormais autour de lui comme quarante dragons, et il ressemblait à un Dieu de la Mer Démoniaque!
+Les yeux du général démon révélèrent une lueur mystérieuse; d'une simple pensée, il fit revenir les quarante vagues vers lui. Elles tourbillonnaient désormais autour de lui comme quarante dragons des mers lui rendant hommage, et il ressemblait à un Immortel démon de la mer!
 
 Suspendu dans les airs, Wang Lin ferma les yeux. Le général démon était bien plus fort qu'il ne l'avait pensé. L'intention de poing des Dix Effondrements n'était qu'une de ses techniques; cette Mer Démoniaque aux Cent Vagues devait être son véritable coup fatal. Quant à savoir si le général possédait d'autres capacités cachées, bien que Wang Lin fût curieux, il ne voulait pas le découvrir!
 

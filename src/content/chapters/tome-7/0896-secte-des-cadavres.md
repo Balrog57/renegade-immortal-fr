@@ -74,7 +74,7 @@ La brume noire disparut du reste des membres de la famille Wang, qui retrouvère
 
 L'éducation de chaque membre de la famille Wang consistait, dès l'enfance, à contempler le portrait de l'ancêtre de la lignée. L'apparence de Wang Lin était gravée dans leurs cœurs. Maintenant que leur esprit était clair, ils le reconnurent instantanément.
 
-Ils n'étaient pas étrangers à son nom avec toutes les rumeurs qui circulaient. Si tant de cultivateurs existaient dans la Grande Dynastie Wang, c'était parce que la famille Wang avait engendré Wang Lin!
+Ils n'étaient pas étrangers à son nom avec toutes les rumeurs qui circulaient. Si tant de cultivateurs venaient en aide à la Grande Dynastie Wang, c'était précisément parce que la famille Wang avait engendré Wang Lin!
 
 « Ancêtre, nous avons eu tort... » Les huit vieillards étaient tous agenouillés au sol.
 

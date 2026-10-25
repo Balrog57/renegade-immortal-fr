@@ -42,7 +42,7 @@ Da Tou devait continuer à raffiner ce corps et à s'en familiariser pour pouvoi
 
 Da Tou n'était pas le seul ici. Lei Ji était assis dans un creux au loin, le corps couvert d'une sueur brûlante. Devant lui se trouvaient quelques fioles de jade rouge contenant les pilules qu'il absorbait.
 
-Le tonnerre rugissant dans le ciel s'estompa et s'éloigna à travers le champ d'étoiles ardent. Au sein de ce champ d'étoiles, une planète de forme irrégulière était traversée par une tempête sur un désert rouge.
+Le tonnerre rugissant dans le ciel s'estompa et s'éloigna à travers le champ d'étoiles ardent. Au sein de ce champ d'étoiles, une planète de forme irrégulière était traversée par une tempête qui hurlait sur un désert rouge s'étendant sur des milliers de kilomètres.
 
 Cette tempête s'élevait vers le ciel, emportant une quantité massive de sable dans son sillage. À mesure que les grains de sable s'entrechoquaient, d'innombrables étincelles volaient partout, et la tempête elle-même dégageait une chaleur intense. Même le vent généré par cette tempête ressemblait à des vagues de chaleur.
 
@@ -104,9 +104,9 @@ Il était impossible de décrire la nature de ce regard; on ne pouvait que le co
 
 Wang Lin dit calmement: « L'Empereur Divin peut être serein. Je ferai de mon mieux. »
 
-« Vous avez dit que vous soupçonniez l'Empereur Divin Dragon Azure d'être piégé dans le Royaume Céleste de la Pluie. Cette affaire est de grande envergure... mais l'ouverture du Royaume Céleste de la Pluie est contrôlée par l'Alliance de Culture, qui a reçu la plus grande part de l'héritage du Royaume Céleste de la Pluie. Sans le Cristal du Royaume Céleste de la Pluie, il est impossible de l'ouvrir... »
+« Tu as dit que tu soupçonnais l'Empereur Divin Dragon Azure d'être piégé dans le Royaume Céleste de la Pluie. Cette affaire est de grande envergure... mais l'ouverture du Royaume Céleste de la Pluie est contrôlée par l'Alliance de Culture, qui a reçu la plus grande part de l'héritage du Royaume Céleste de la Pluie. Sans le Cristal du Royaume Céleste de la Pluie, il est impossible de l'ouvrir... »
 
-« Avec la puissance actuelle de nos quatre Sectes Divines, nous ne pouvons pas encore rivaliser avec l'Alliance de Culture. Je trouverai un moyen d'obtenir le Cristal du Royaume Céleste de la Pluie, mais je vous laisse le soin de secourir l'Empereur Divin Dragon Azure. »
+« Avec la puissance actuelle de nos quatre Sectes Divines, nous ne pouvons pas encore rivaliser avec l'Alliance de Culture. Je trouverai un moyen d'obtenir le Cristal du Royaume Céleste de la Pluie, mais je te laisse le soin de secourir l'Empereur Divin Dragon Azure. »
 
 La voix du vieil homme était empreinte de fatigue. Survivre aussi longtemps l'avait épuisé tant physiquement que mentalement. Mais il ne pouvait pas simplement abandonner les quatre Sectes Divines, alors il tenait bon pour la cause. Il devait endurer chaque jour la douleur incessante de son troisième Fléau Céleste.
 

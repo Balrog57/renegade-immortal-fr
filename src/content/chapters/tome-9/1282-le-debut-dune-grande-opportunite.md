@@ -20,7 +20,7 @@ Mobilisant sa puissante culture du troisième niveau, Shui Daozi parvint de just
 
 Pourtant, il n'aurait jamais pu imaginer qu'au moment même où son sort s'abattait pour achever Wang Lin, le jade de son maître apparaîtrait!
 
-Le choc provoqué par la pierre n'était en rien inférieur à celui de voir la Perle Défiant le Ciel ou son propre maître! Mais rien de tout cela ne lui inspira le désespoir, jusqu'à... l'apparition du doigt!
+Le choc provoqué par le jade n'était en rien inférieur à celui de voir la Perle Défiant le Ciel ou son propre maître! Mais rien de tout cela ne lui inspira le désespoir, jusqu'à... l'apparition du doigt!
 
 Shui Daozi connaissait trop bien ce doigt. Il le reconnut d'un seul regard. C'était... le doigt de son maître!
 

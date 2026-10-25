@@ -20,7 +20,7 @@ Parmi les neuf étoiles des Dieux Antiques, chaque étoile au-delà de la cinqui
 
 Le Dieu Antique à 7 étoiles Wang Lin n'était pas plus faible que Tu Si lorsqu'il était à sept étoiles. Bien que Tu Si possédât l'héritage complet, Wang Lin était la première existence à être la fusion d'un cultivateur et d'un Dieu Antique!
 
-Wang Lin oserait même affronter des cultivateurs du Vide du Nirvana au stade intermédiaire. Bien qu'il risquât probablement de perdre, ils auraient extrêmement de mal à le tuer!
+Wang Lin oserait même affronter des cultivateurs du Vide du Nirvana au stade intermédiaire. Bien qu'il risquât probablement de perdre, ils auraient énormément de mal à le tuer!
 
 Au troisième pas, les stades Vide du Nirvana, Vide Spirituel, Vide Arcanique et Tribulation du Vide comprenaient toutes les phases initiale, intermédiaire, tardive et parfaite, tout comme au second pas. La différence entre chaque niveau était immense, comparable à celle entre un cultivateur du Purificateur du Nirvana et un Briseur du Nirvana!
 
@@ -30,7 +30,7 @@ Dans la continuité du dix-huitième souffle, il s'agissait maintenant des dix-n
 
 Ces trois souffles passèrent en un instant, et la force de rejet augmenta considérablement. Alors que cette force percutait Wang Lin, l'aura de l'héritage jaillit également.
 
-Cette aura d'héritage fut dévorée par Wang Lin avec frénésie. Son corps et le démon ancien étaient comme deux trous noirs terrifiants; l'aura de l'héritage était scindée en deux et absorbée par chacun d'eux.
+Cette aura d'héritage fut dévorée par Wang Lin avec frénésie. Son corps et le Diable Ancien étaient comme deux trous noirs terrifiants; l'aura de l'héritage était scindée en deux et absorbée par chacun d'eux.
 
 Absorber l'héritage était extrêmement difficile avec la force de rejet qui entrait constamment en collision avec lui, mais Wang Lin n'abandonna pas. Il savait que s'il manquait cette chance maintenant, il serait extrêmement difficile d'obtenir une autre opportunité!
 
@@ -50,9 +50,9 @@ Cependant, devenir un dieu à 8 étoiles était trop difficile; cela exigeait bi
 
 Dès que Wang Lin relâcherait sa concentration un instant, ce faible cyclone se dissiperait, ne laissant aucune trace derrière lui!
 
-Au même moment, le corps du démon ancien se remplissait de l'énergie de démon ancien que Wang Lin y déversait avec acharnement. Wang Lin avait même transféré dans le démon ancien l'étoile de démon ancien qui n'avait pas encore pris forme dans son œil droit. Le corps pétrifié commençait à montrer des signes de régénération; certaines parties n'étaient plus aussi dures que la pierre et redevenaient souples.
+Au même moment, le corps du Diable Ancien se remplissait de l'énergie de Diable Ancien que Wang Lin y déversait avec acharnement. Wang Lin avait même transféré dans le Diable Ancien l'étoile de Diable Ancien qui n'avait pas encore pris forme dans son œil droit. Le corps pétrifié commençait à montrer des signes de régénération; certaines parties n'étaient plus aussi dures que la pierre et redevenaient souples.
 
-Son œil droit, autrefois terne, brillait intensément et une étoile de démon ancien était sur le point de se former! Elle se condensait lentement, devenant de plus en plus nette!
+Son œil droit, autrefois terne, brillait intensément et une étoile de Diable Ancien était sur le point de se former! Elle se condensait lentement, devenant de plus en plus nette!
 
 À ce moment précis, Tuo Sen, qui guérissait à plusieurs milliers de pieds, à l'extérieur du filet, bougea soudainement. Sa chair s'animait et il avait récupéré 80 % de ses forces!
 

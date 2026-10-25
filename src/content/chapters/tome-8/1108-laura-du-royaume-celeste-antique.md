@@ -94,7 +94,7 @@ Le Sens Divin de Wang Lin se projeta sans hésiter vers la tête de l'âme origi
 
 « Le Système d'Étoiles de la Mer des Nuages... » Après avoir approfondi ses recherches, Wang Lin explora à nouveau les souvenirs de cette âme originelle pour trouver le passage vers ce système.
 
-Quinze minutes plus tard, Wang Lin retira son Sens Divin et sourit.
+Sept minutes plus tard, Wang Lin retira son Sens Divin et sourit.
 
 « La structure de ce Système d'Étoiles de la Mer des Nuages est radicalement différente de celle de l'Alliance et de Luotian, elle me convient parfaitement... De plus, ce Royaume Céleste du Vent est en fait rempli de bêtes moustiques... Je ne pensais pas que la barrière entourant la Mer des Nuages serait la plus faible des quatre systèmes stellaires. Il suffira d'une formation spéciale pour la briser. » Les yeux de Wang Lin brillèrent alors qu'il regardait l'âme originelle dans sa main, avant de la ranger soigneusement dans son espace de stockage.
 

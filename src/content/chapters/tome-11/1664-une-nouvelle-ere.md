@@ -18,23 +18,23 @@ Après son apparition, elle ne se dissipa pas comme les sept autres esprits. Ell
 
 Allait-elle choisir de reconnaître Wang Lin comme son maître, ou s'autodétruire?
 
-Le temps passa lentement. Le grondement de la Formation de Scellement du Royaume devint encore plus assourdissant. Après quinze minutes, Wang Lin fronça les sourcils en voyant que la hache restait immobile.
+Le temps passa lentement. Le grondement de la Formation de Scellement du Royaume devint encore plus assourdissant. Après sept minutes, Wang Lin fronça les sourcils en voyant que la hache restait immobile.
 
-« Puisque tu ne veux pas me suivre, alors disparais! » Wang Lin leva sa main droite et pressa la Hache de la Fente Céleste. La formation s'effondra plus rapidement encore; la hache trembla, puis son corps gigantesque vola vers Wang Lin.
+« Puisque tu ne veux pas me suivre, alors disparais! » Wang Lin leva sa main droite et pressa la Hache Brise-Ciel. La formation s'effondra plus rapidement encore; la hache trembla, puis son corps gigantesque vola vers Wang Lin.
 
-En un instant, la Hache de la Fente Céleste sembla se libérer de l'emprise de la Formation de Scellement du Royaume. Elle poussa un hurlement capable de fendre les cieux en s'abattant sur Wang Lin!
+En un instant, la Hache Brise-Ciel sembla se libérer de l'emprise de la Formation de Scellement du Royaume. Elle poussa un hurlement capable de fendre les cieux en s'abattant sur Wang Lin!
 
 « Un simple trésor de Dieu Ancien Royal ose prétendre me blesser? » Un éclair de froideur traversa le regard de Wang Lin tandis qu'il faisait un pas en avant. Son corps se dilata instantanément jusqu'à plus de dix mille pieds de haut, se transformant en son corps de Dieu Ancien!
 
 Ce corps titanesque trônait comme un géant debout sur la Formation de Scellement du Royaume. Alors que la hache s'approchait, Wang Lin lui asséna un coup de poing.
 
-Des grondements tonitruants se propagèrent follement et l'espace lui-même trembla. La Formation de Scellement du Royaume se brisa et s'effondra davantage. La Hache de la Fente Céleste ne put achever sa course et fut repoussée par la puissance du coup de poing de Wang Lin.
+Des grondements tonitruants se propagèrent follement et l'espace lui-même trembla. La Formation de Scellement du Royaume se brisa et s'effondra davantage. La Hache Brise-Ciel ne put achever sa course et fut repoussée par la puissance du coup de poing de Wang Lin.
 
-Cependant, l'impact ne fut pas sans conséquence pour Wang Lin; il fut projeté en arrière de plusieurs milliers de pieds. Une entaille profonde atteignant l'os apparut sur son poing, et même ses os étaient fissurés. La Hache de la Fente Céleste était d'une puissance extrême!
+Cependant, l'impact ne fut pas sans conséquence pour Wang Lin; il fut projeté en arrière de plusieurs milliers de pieds. Une entaille profonde atteignant l'os apparut sur son poing, et même ses os étaient fissurés. La Hache Brise-Ciel était d'une puissance extrême!
 
 Tout en reculant, les yeux de Wang Lin brillèrent. Tandis que sa main droite se rétablissait, il tendit le bras. Une lumière sanglante surgit avec l'Épée de Sang. D'un geste, il fit s'étendre l'épée sur mille pieds; la lueur rouge, éblouissante, enveloppa les huit directions.
 
-Armé de son épée de sang, Wang Lin chargea. Il leva l'arme bien haut et trancha l'air. Un rayon monstrueux d'énergie d'épée jaillit vers la Hache de la Fente Céleste.
+Armé de son épée de sang, Wang Lin chargea. Il leva l'arme bien haut et trancha l'air. Un rayon monstrueux d'énergie d'épée jaillit vers la Hache Brise-Ciel.
 
 Tous deux étaient des trésors invincibles. Leurs collisions se multiplièrent, provoquant des fracas de tonnerre. L'épée et la hache continuèrent de s'affronter, mais la hache demeurait légèrement inférieure. Après tout, elle n'avait personne pour la diriger et ne bougeait que selon l'instinct de son esprit de trésor. Elle était acculée!
 
@@ -46,29 +46,29 @@ Un fracas assourdissant retentit lorsque la hache fut repoussée. Dans un gronde
 
 L'Épée de Sang disparut de la main de Wang Lin et, simultanément, il s'élança en avant. Alors que la hache volait vers la faille, libérant sa monstrueuse puissance de Dieu Ancien, Wang Lin agrippa le manche de l'arme!
 
-La main droite de Wang Lin serra implacablement; peu importait l'agitation de la Hache de la Fente Céleste, elle ne pouvait s'échapper. Cependant, à cet instant, l'ombre d'un Dieu Ancien apparut au sommet de la hache et sembla pousser un rugissement. Bien qu'il fût impossible de distinguer son visage, il se précipita vers Wang Lin telle une bourrasque, comme s'il voulait le dévorer.
+La main droite de Wang Lin serra implacablement; peu importait l'agitation de la Hache Brise-Ciel, elle ne pouvait s'échapper. Cependant, à cet instant, l'ombre d'un Dieu Ancien apparut au sommet de la hache et sembla pousser un rugissement. Bien qu'il fût impossible de distinguer son visage, il se précipita vers Wang Lin telle une bourrasque, comme s'il voulait le dévorer.
 
 L'ombre mesurait des dizaines de milliers de pieds et avait une forme conique, plus large dans sa partie haute. Elle ressemblait à une fumée s'étendant d'innombrables fois en montant vers le ciel.
 
-Cette ombre était l'esprit du trésor de la Hache de la Fente Céleste. Elle fonça sur Wang Lin dans un hurlement.
+Cette ombre était l'esprit du trésor de la Hache Brise-Ciel. Elle fonça sur Wang Lin dans un hurlement.
 
 Le corps de dix mille pieds de Wang Lin semblait n'être qu'un adolescent face à un homme dans la force de l'âge; il paraissait ne pas avoir de chance de résister. Pourtant, Wang Lin fixa les yeux de l'ombre qui fonçait sur lui et poussa un rugissement.
 
 « Tu oses?! Je suis un Dieu Ancien Royal et je possède l'héritage du Dao Ancien. Tu veux me dévorer? Tu cherches la mort! » Derrière Wang Lin, la tête géante du Dao Ancien apparut et rugit en chœur avec lui!
 
-Ce fut comme si un ouragan surgissait du vide pour frapper l'ombre de la Hache de la Fente Céleste. L'ombre poussa un cri de terreur et recula précipitamment. Son corps fut déchiré, mais se reforma rapidement.
+Ce fut comme si un ouragan surgissait du vide pour frapper l'ombre de la Hache Brise-Ciel. L'ombre poussa un cri de terreur et recula précipitamment. Son corps fut déchiré, mais se reforma rapidement.
 
-Une fois reconstituée, son corps trembla et elle lutta pour s'incliner devant Wang Lin. Puis, elle retourna promptement dans la Hache de la Fente Céleste et disparut.
+Une fois reconstituée, son corps trembla et elle lutta pour s'incliner devant Wang Lin. Puis, elle retourna promptement dans la Hache Brise-Ciel et disparut.
 
 La hache ne résista plus et finit par s'apaiser lentement.
 
 Wang Lin saisit l'arme, mordit le bout de sa langue et cracha son sang. Une marque écarlate se déposa sur la hache et fusionna avec elle.
 
-La Hache de la Fente Céleste s'était soumise. Cette fois, il avait soumis l'arme par sa propre force. Autrefois, faute de puissance de culture suffisante, il avait dû solliciter l'aide de l'ancien Seigneur du Royaume Scellé pour la contrôler.
+La Hache Brise-Ciel s'était soumise. Cette fois, il avait soumis l'arme par sa propre force. Autrefois, faute de puissance de culture suffisante, il avait dû solliciter l'aide de l'ancien Seigneur du Royaume Scellé pour la contrôler.
 
 Armé de cette hache gigantesque, ses cheveux blancs flottaient au vent. À cet instant, Wang Lin ne différait presque en rien de sa statue sur la planète Suzaku!
 
-D'un geste de la main droite, il fit se transformer la Hache de la Fente Céleste en une multitude de particules de lumière dorée qui s'enfoncèrent entre les sourcils de Wang Lin et disparurent.
+D'un geste de la main droite, il fit se transformer la Hache Brise-Ciel en une multitude de particules de lumière dorée qui s'enfoncèrent entre les sourcils de Wang Lin et disparurent.
 
 Wang Lin contempla la Formation de Scellement du Royaume qui s'effondrait, une lueur étrange dans le regard. Ce dernier esprit était le plus puissant, et l'ancien Seigneur du Royaume Scellé s'était intégré à lui pour contrôler la formation.
 

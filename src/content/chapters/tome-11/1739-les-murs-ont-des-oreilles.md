@@ -50,7 +50,7 @@ Son but était de forcer l'apparition de toutes les forces cachées de la planè
 
 Ce n'est qu'une fois cela pleinement compris qu'il pourrait mettre à exécution son plan pour trouver la troisième âme!
 
-Il allait les arracher à l'ombre!
+Il allait les forcer à sortir de l'ombre où ils se cachaient!
 
 Le monde sembla s'obscurcir sous l'impact de l'explosion de l'ombre de l'Ancien Dao. L'onde de choc puissante se propagea à partir de Wang Lin, empêchant quiconque de progresser.
 

@@ -132,4 +132,4 @@ En utilisant la même méthode, ils trompèrent davantage de bêtes féroces et 
 
 « Sur le chemin du retour, je récolterai plus de cristaux d'origine pour le compagnon Lu en empruntant un autre sentier. D'après mes expériences passées, nous devrions atteindre un total de 60 000 à 70 000 cristaux. »
 
-« Éclairez, prisonnier de la Voie du Ciel, tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la profonde prison. Attendez la Voie de la Culture... » Les informations gravées sur le jade près du squelette résonnèrent dans l'esprit de Wang Lin. Il observa le Royaume aux Sept Couleurs et hocha silencieusement la tête.
+« Éveillé, prisonnier de la Voie du Ciel, tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la profonde prison. Attendez la Voie de la Culture... » Les informations gravées sur le jade près du squelette résonnèrent dans l'esprit de Wang Lin. Il observa le Royaume aux Sept Couleurs et hocha silencieusement la tête.

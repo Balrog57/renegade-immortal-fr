@@ -110,7 +110,7 @@ S'il avait eu le choix, il aurait choisi sa famille plutôt que la vie de ses r�
 
 Il ignorait qu'un regard l'observait depuis la voûte céleste.
 
-Wang Lin contemplait la famille du forgeron. Il percevait le bonheur et la plénitude de Qing Lin. Qing Lin était un Empereur Céleste dans le monde des cavernes, et bien qu'il ait été réincarné en mortel, il avait trouvé la paix et la chaleur.
+Wang Lin contemplait la famille du forgeron. Il percevait le bonheur et la plénitude de Qing Lin. Qing Lin était un Empereur Céleste dans le monde des grottes, et bien qu'il ait été réincarné en mortel, il avait trouvé la paix et la chaleur.
 
 Wang Lin éprouva une pointe d'envie en l'observant, puis, après un long moment, il s'éloigna.
 

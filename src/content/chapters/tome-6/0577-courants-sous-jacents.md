@@ -62,7 +62,7 @@ Oublions la Prison Hong pour l'instant.
 
 Il ne restait que quinze jours avant la bataille des généraux démons. Une aura oppressante pesait sur toute la Cité du Démon Céleste, tandis que les divers généraux démons affinaient leurs préparatifs.
 
-Outre les préparatifs conventionnels, de nombreux mouvements se tramaient en coulisses. Qu'il s'agisse de pactes secrets ou de manœuvres occultes, l'Empereur Démon n'y prêtait aucune attention. Bien qu'un ordre règne sur la Terre des Esprits Démons, un chaos sans fin se cachait sous cette apparente stabilité. C'était une époque de troubles!
+Outre les préparatifs conventionnels, de nombreux mouvements se tramaient en coulisses. Qu'il s'agisse de pactes secrets ou de manœuvres occultes, l'Empereur Démon n'y prêtait aucune attention. Bien qu'un ordre règne sur la Terre des Esprits Démoniaques, un chaos sans fin se cachait sous cette apparente stabilité. C'était une époque de troubles!
 
 La bataille entre les généraux démons était cruciale, car elle représentait une opportunité céleste pour gravir les échelons. S'ils la manquaient, ils risquaient de rester à jamais au rang de général démon! Par conséquent, ces généraux accordaient à cet événement une importance sans précédent.
 

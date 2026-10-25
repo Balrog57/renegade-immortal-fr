@@ -36,7 +36,7 @@ Le gros homme bondit immédiatement, le visage marqué par la stupeur. En tant q
 
 Seul lors du recrutement des disciples la puissance de la formation était affaiblie d'innombrables fois, afin que l'énergie des épées puisse être libérée pour tester leurs aptitudes.
 
-« La formation est-elle brisée? » Le gros homme n'en croyait pas ses yeux. Convaincu qu'une telle rupture était inévitable, il s'avança pour vérifier par lui-même.
+« La formation est-elle brisée? » Le gros homme n'en croyait pas ses yeux. Après avoir longuement réfléchi, il en conclut que la formation devait être défaillante, et s'avança à grands pas pour l'essayer lui-même.
 
 Dès qu'il pénétra dans le périmètre des 16,5 mètres, une pression écrasante le frappa, le faisant se sentir aussi vulnérable qu'une barque solitaire sur une mer déchaînée. Il fut violemment projeté en arrière, son corps décrivant un arc dans les airs avant de s'écraser au sol. En retombant, il cracha plusieurs bouffées de sang. Il lui fallut un long moment pour retrouver ses esprits, le visage déformé par la terreur. Il s'exclama: « Ce n'est pas... ce n'est pas brisée! »
 

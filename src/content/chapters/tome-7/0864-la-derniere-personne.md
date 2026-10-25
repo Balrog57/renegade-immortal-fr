@@ -16,7 +16,7 @@ Par conséquent, il était rare que des cultivateurs au stade Scruteur du Nirvan
 
 Après tout, le nom « Xu Mu » était devenu trop célèbre et celui de « Maître Démon » exhalait encore une odeur de sang. Ce Xu Mu avait toujours été discret, mais il agissait désormais avec une ostentation frappante. Il était clair qu'il visait la première place; autant la lui offrir. Il n'y avait aucun intérêt à rivaliser avec lui et à déclencher une querelle inutile.
 
-Sept jours passèrent rapidement. Durant cette période, Wang Lin cultiva dans une résidence préparée par une famille de cultivateurs sur la planète Flamme de Terre. Il ajusta son énergie originelle et maintint son état à son apogée afin de se préparer pour les finales dans le système stellaire de Luotian!
+Sept jours passèrent rapidement. Durant cette période, Wang Lin cultiva dans une résidence préparée par une famille de cultivateurs sur la Planète Diyan. Il ajusta son énergie originelle et maintint son état à son apogée afin de se préparer pour les finales dans le système stellaire de Luotian!
 
 Au cours de ces sept jours, Shengong Hu fut le premier à venir le voir. Il n'interrogea pas Wang Lin sur sa culture, il discuta simplement du Dao et repartit avec quelques enseignements. Il s'inclina devant Wang Lin avec respect dans le regard. Bien que son attitude ne fût plus aussi intense qu'auparavant, l'actuel Wang Lin avait désormais gagné son approbation.
 

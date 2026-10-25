@@ -23,7 +23,7 @@ Cependant, au cours de cette guerre entre les deux continents, certains individu
 
 Du côté du Continent du Taureau Céleste, Yun Yifeng était l'un de ces hommes! Il avait tué de nombreux cultivateurs du Continent du Démon Vert et avait atteint un haut niveau de culture grâce à son art des Huit Lames Coupent l'Âme, ce qui lui avait valu une immense renommée. Il y a plusieurs mois, il avait quitté le Temple du Scorpion et, grâce à une technique secrète, était revenu sur le Continent du Taureau Céleste afin de participer à cette bataille finale!
 
-Outre lui, Tang Jia et Bord-des-Nuages s'étaient également illustrés grâce à l'armure d'âme du Taureau Céleste! Plusieurs membres de la Secte de la Grande Âme s'étaient aussi distingués, devenant, après les ancêtres, les lumières les plus éclatantes.
+Outre lui, Tang Jia et Bian Yun s'étaient également illustrés grâce à l'armure d'âme du Taureau Céleste! Plusieurs membres de la Secte de la Grande Âme s'étaient aussi distingués, devenant, après les ancêtres, les lumières les plus éclatantes.
 
 Le Continent du Démon Vert comptait également des cultivateurs de cette trempe, tel que Yun Kong, que Wang Lin avait tué à deux reprises. Son corps originel se trouvait toujours sur le Continent du Taureau Céleste, car Wang Lin n'avait tué que ses avatars. La culture à l'épée de Yun Kong était extraordinaire et avait captivé l'attention de tous. Sous les ordres de Yun Kong se trouvaient plusieurs autres individus; avec les talents émergents du Continent du Taureau Céleste, ces moins de vingt personnes étaient désormais les chefs de cette guerre!
 

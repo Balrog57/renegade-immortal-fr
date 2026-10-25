@@ -10,7 +10,7 @@ Après le départ de Xu Tao, la vie de Wang Lin retrouva son calme. C'était com
 
 Wang Lin continuait de se lever tôt chaque jour pour ouvrir sa boutique et attendre que le fils de Da Niu lui apporte une cruche de vin. Il s'asseyait alors pour sculpter tout en buvant. Il avait vécu ainsi durant de nombreuses années, au point que ce mode de vie était gravé dans ses os.
 
-Il était désormais loin du chemin de la mort. C'était comme si l'homme d'autrefois et celui d'aujourd'hui étaient deux êtres totalement différents. Aucune intention meurtrière n'émanait plus de lui; il dégageait au contraire une aura sereine, celle d'un simple mortel.
+Il s'était éloigné des massacres. C'était comme si l'homme d'autrefois et celui d'aujourd'hui étaient deux êtres totalement différents. Aucune intention meurtrière n'émanait plus de lui; il dégageait au contraire une aura sereine, celle d'un simple mortel.
 
 Wang Lin ignorait quel serait le domaine qu'il finirait par comprendre, mais il n'était pas pressé et contemplait calmement les lois du ciel.
 

@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1608 - This Gaze
 slug: ce-regard
 ---
-Une heure plus tard, l'image illusoire disparut sous les yeux de tous, devant le regard de Wang Lin. Tous les membres de l'équipage tremblaient encore et restaient silencieux.
+Deux heures plus tard, l'image illusoire disparut sous les yeux de tous, devant le regard de Wang Lin. Tous les membres de l'équipage tremblaient encore et restaient silencieux.
 
 Ils ne pouvaient oublier ce qu'ils avaient vu au cœur de l'illusion, en particulier ces roches incandescentes qui s'étaient dispersées lors de l'éruption du volcan, dont une grande partie semblait foncer droit vers eux, comme prête à jaillir de l'image pour s'abattre sur le navire.
 

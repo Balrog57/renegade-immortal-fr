@@ -16,7 +16,7 @@ La Bête des Limbes n'avait pas ouvert la bouche depuis des dizaines de milliers
 
 Pour elle, une simple fente représentait mille pieds de large. Dès qu'elle s'ouvrit, le rugissement qu'elle semblait contenir depuis des dizaines de milliers d'années jaillit avec une fureur déchaînée!
 
-ROAR!!!
+GRAAAAH!!!
 
 Il était impossible de décrire la puissance de ce rugissement. En se propageant, l'espace lui-même trembla. Tout Luotian put l'entendre distinctement!
 

@@ -41,7 +41,7 @@ Soudain, un autre rayon de lumière noire surgit du lointain. Un visage gigantes
 
 « Frère Wang, protège-moi pendant que je sors les combattre! » Le vieil homme Hu franchit les couches de restrictions et entama le combat contre les sauvages.
 
-Un quart d'heure plus tard, le vieil homme Hu réapparut, le visage sombre et le corps marqué par deux blessures. Il était dans un état lamentable. S'asseyant précipitamment, il déclara: « Je les ai tués, mais deux autres sont arrivés. Je ne peux pas les vaincre. »
+Sept minutes plus tard, le vieil homme Hu réapparut, le visage sombre et le corps marqué par deux blessures. Il était dans un état lamentable. S'asseyant précipitamment, il déclara: « Je les ai tués, mais deux autres sont arrivés. Je ne peux pas les vaincre. »
 
 Wang Lin se leva et sortit à son tour.
 

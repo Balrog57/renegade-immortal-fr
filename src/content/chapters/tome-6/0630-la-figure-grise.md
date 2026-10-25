@@ -94,7 +94,7 @@ La scène trembla et se brisa. Le jeune garçon sortit alors de la vision et reg
 
 Une autre scène montrait un jeune homme au visage froid et aux longs cheveux flottants. Ses yeux étaient clos, mais lorsqu'il les ouvrit, une lueur glaciale en jaillit. Une intention meurtrière inimaginable émanait de son regard. Devant lui, d'innombrables cultivateurs de la Formation du Noyau voyaient leurs noyaux volés en éclats avant de mourir.
 
-Ce jeune homme sortit également de la scène. Après avoir regardé Wang Lin, il s'assit à son tour. Alors que ses cheveux flottaient au vent, une étincelle de l'intention meurtrière du Royaume Ji émanait de son corps.
+Ce jeune homme sortit également de la scène. Après avoir regardé Wang Lin, il s'assit à son tour. Alors que ses cheveux flottaient au vent, une intention meurtrière à son paroxysme scintillait par instants sur son corps.
 
 Il y eut aussi des scènes où Wang Lin utilisait le Doigt de la Mort, le Doigt Démoniaque ou la rivière des enfers; tous ces "Wang Lin" utilisant ces divers sorts sortirent de leurs visions pour venir s'asseoir.
 

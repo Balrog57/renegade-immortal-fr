@@ -62,7 +62,7 @@ La belle femme fut la dernière à lever les yeux. Au moment où leurs regards c
 
 À cet instant, l'énergie originelle du feu sembla s'animer, devenant vibrante et exaltée. En tournoyant, elle s'écarta comme pour céder le passage en signe de respect.
 
-Un homme entra lentement dans la salle sous les yeux médusés des trois interlocuteurs. Il portait une armure rouge qui lui couvrait le visage, ne laissant apparaître que ses cheveux blancs. Une cape blanche flottait derrière lui, s'harmonisant avec le emblème blanc de l'Oiseau Vermillon, dégageant une pression écrasante.
+Un homme entra lentement dans la salle sous les yeux médusés des trois interlocuteurs. Il portait une armure rouge qui lui couvrait le visage, ne laissant apparaître que ses cheveux blancs. Une cape blanche flottait derrière lui, s'harmonisant avec l'emblème blanc de l'Oiseau Vermillon qui ornait son armure, dégageant une pression écrasante.
 
 Alors qu'il avançait, son armure émettait des cliquetis métalliques; il ignorait totalement l'assistance. Sa cape ondulait au rythme de ses cheveux blancs tandis qu'une vague de chaleur inimaginable envahissait la pièce.
 

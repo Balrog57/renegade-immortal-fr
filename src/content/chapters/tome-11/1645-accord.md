@@ -42,7 +42,7 @@ Sans l'Arc de Li Guang, les quatre généraux n'auraient pas cru Wang Lin, mais 
 
 « L'Arc de Li Guang est une arme extrêmement puissante du Continent Astral Immortel. Cet arc n'est pas aisé à manier. J'ignore d'où vous avez tiré cette goutte de sang céleste, mais même si vous pouvez utiliser l'arc grâce à elle, chaque flèche consumera l'énergie céleste contenue dans ce sang. Vous n'êtes pas un être céleste, vous ne pourrez donc pas reconstituer la force de cette goutte. Combien de flèches pourrez-vous tirer? » Ce n'était pas l'Oiseau Vermillon qui parlait, mais le Dragon Azure. En observant Wang Lin, ses yeux brillaient d'une intensité vive.
 
-« Trois flèches me suffiraient pour détruire cet endroit! Et ce, malgré les innombrables statues qui vous entourent et ce temple étrange niché dans les profondeurs! Si je ne m'abuse, ce temple est la sortie de cette grotte, une issue censée être totalement scellée et inviolable. Il s'y trouve de nombreuses créatures étranges, et c'est probablement le lieu le plus puissant de l'Ancien Royaume Céleste.
+« Trois flèches me suffiraient pour détruire cet endroit! Et ce, malgré les nombreuses statues des trois clans anciens qui se dressent derrière vous et ce temple étrange niché dans les profondeurs! Si je ne m'abuse, ce temple est la sortie de cette grotte, une issue censée être totalement scellée et inviolable. Il s'y trouve de nombreuses créatures étranges, et c'est probablement le lieu le plus puissant de l'Ancien Royaume Céleste.
 
 « Je peux le faire, vous le savez tous. » Le regard de Wang Lin balaya les quatre généraux avant de se porter vers l'horizon.
 

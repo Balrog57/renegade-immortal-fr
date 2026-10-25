@@ -29,7 +29,7 @@ Lorsqu'ils réapparurent, ils se trouvaient tous à l'intérieur de l'écran de 
 — Il est en effet étrange que des moustiques géants de mon système stellaire de la Mer des Nuages apparaissent ici. Heureusement qu'ils n'étaient pas plus nombreux. S'il s'était agi d'une horde de dizaines de milliers, comme ce que nous avons vu dans le Royaume Céleste du Vent...
 
 Il trembla, le regard empli de terreur.
-— Oublie cela. Il est inutile d'y songer davantage. Nous avons accompli la mission demandée par la secte. Nous devons partir au plus vite; j'ai un mauvais pressentiment.
+— Oublie cela. Il est inutile d'y songer davantage. Quant à la mission confiée par la secte, nous avons déjà un peu exploré les lieux; mieux vaut partir au plus vite, j'ai un mauvais pressentiment.
 
 Ils échangèrent un regard et poursuivirent leur vol. Un instant plus tard, une immense formation composée de débris apparut devant eux. Des éclats de lumière verte émanaient de la structure. En outre, près d'une centaine de cultivateurs vêtus de jaune s'affairaient à déplacer des débris pour les ajouter à l'édifice.
 

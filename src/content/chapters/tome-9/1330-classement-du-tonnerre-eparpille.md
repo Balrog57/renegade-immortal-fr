@@ -72,7 +72,7 @@ Ce jade abritait une formation toujours active, vaguement fusionnée avec le mon
 
 Cette liste comptait au total 800 noms, chacun associé à un nombre représentant les cristaux de tonnerre possédés. Il y avait manifestement bien plus de 800 personnes dans le Clan du Tonnerre Dispersé, mais seuls les 800 premiers figuraient sur cette liste!
 
-Wang Lin regarda le premier nom et fronça les sourcils. « 1 900 007 000... » La personne en tête de liste s'appelait Maître Spruce.
+Wang Lin regarda le premier nom et fronça les sourcils. « 1 900 007 000... » La personne en tête de liste s'appelait Yunshanzi.
 
 « 1 300 009 000... » Le second était nommé Furong.
 

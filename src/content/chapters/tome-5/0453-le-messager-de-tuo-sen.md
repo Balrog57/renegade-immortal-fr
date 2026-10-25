@@ -60,13 +60,13 @@ Un homme vêtu d'une robe bleue se tenait au sommet des vagues et avançait pas 
 
 Un motif floral doré, d'une grande complexité, était brodé sur sa robe.
 
-« Avidité! Se pourrait-il que cet endroit te fasse aussi envie?! » Bien que l'apparence de cet homme fût ordinaire, une lueur de cruauté perçait dans son regard.
+« Tan Lang! Se pourrait-il que cet endroit te fasse aussi envie?! » Bien que l'apparence de cet homme fût ordinaire, une lueur de cruauté perçait dans son regard.
 
 L'individu entouré d'une aura mortelle renifla et répliqua: « Tu m'agaces rien qu'en te voyant. Si ce lieu te plaît tant, entre donc. Moi, je m'en vais! » Sur ces mots, il disparut et s'élança vers l'horizon.
 
 L'homme au sommet des vagues resta pensif, puis sauta. Il atterrit à l'extérieur des Étoiles Brisées et Chaotiques. L'eau de mer sous ses pieds se mua en un cristal qu'il avala aussitôt.
 
-« Étrange, cet Avidité ne se rend jamais nulle part sans que des trésors n'y soient cachés. Partout où il va, il doit y avoir des richesses. Il y a dix mille ans, quand je suis venu sur la planète Suzaku, il était déjà là depuis longtemps. Bien qu'il se remette de ses blessures, se pourrait-il que ce fût réellement pour cet endroit? »
+« Étrange, ce Tan Lang ne se rend jamais nulle part sans que des trésors n'y soient cachés. Partout où il va, il doit y avoir des richesses. Il y a dix mille ans, quand je suis venu sur la planète Suzaku, il était déjà là depuis longtemps. Bien qu'il se remette de ses blessures, se pourrait-il que ce fût réellement pour cet endroit? »
 
 L'homme réfléchit encore un instant avant de pénétrer dans les Étoiles Brisées et Chaotiques...
 

@@ -34,9 +34,9 @@ Une fois les disciples des Sectes de l'Épée Da Luo et du Destin Céleste entr�
 
 Yao Xixue, perchée sur son jade de sang, hésita un instant avant de serrer les dents et de charger vers l'ouverture.
 
-Pendant une demi-heure, la foule continua de s'engouffrer dans la brèche. Parmi les centaines de personnes qui passèrent, on trouvait des disciples de certains vieux monstres extrêmement renommés.
+Pendant une heure, la foule continua de s'engouffrer dans la brèche. Parmi les centaines de personnes qui passèrent, on trouvait des disciples de certains vieux monstres extrêmement renommés.
 
-Une demi-heure plus tard, le Saint de l'Épée Ling Tianhou agita la main et les quatre vortex qui maintenaient l'ouverture tremblèrent. Puis ils cessèrent de tourner pour se transformer en quatre rayons d'énergie d'épée qui revinrent vers lui, redevenant quatre épées illusoires scintillantes.
+Une heure plus tard, le Saint de l'Épée Ling Tianhou agita la main et les quatre vortex qui maintenaient l'ouverture tremblèrent. Puis ils cessèrent de tourner pour se transformer en quatre rayons d'énergie d'épée qui revinrent vers lui, redevenant quatre épées illusoires scintillantes.
 
 Alors que les quatre épées disparaissaient, une immense quantité de lumière verte et rouge s'échappa de l'ouverture. En un clin d'œil, la brèche disparut sans laisser de trace.
 

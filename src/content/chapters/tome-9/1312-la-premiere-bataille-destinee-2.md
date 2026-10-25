@@ -90,7 +90,7 @@ Alors que sa main se refermait, Wang Lin absorba l'aura d'Ancien Dieu avec frén
 
 L'aura d'Ancien Dieu fut scindée en deux. Bien que Wang Lin ne puisse rivaliser avec Tuo Sen, il parvint à s'approprier près de 40 % de cette énergie. Tandis que la main de Tuo Sen tendait vers lui, Wang Lin poussa un rugissement et sa puissance d'Ancien Dieu déferla. Dans cet élan, l'épée de sang s'envola, dégageant une lumière rouge monstrueuse.
 
-« Sortilège d'Ancien Dieu: le Coup Divin! » Le cri de Wang Lin fit trembler les cieux. Il n'utilisait pas aisément ces sorts, car ils exigeaient des quantités colossales d'énergie divine. Il n'était qu'un Ancien Dieu ayant vécu moins de 2 000 ans et ne pouvait égaler Tu Si; cependant, après avoir emprunté cette aura dense, il n'hésita pas à déclencher un sort qu'un Ancien Dieu à six étoiles pourrait utiliser!
+« Sortilège d'Ancien Dieu: le Poing Divin! » Le cri de Wang Lin fit trembler les cieux. Il n'utilisait pas aisément ces sorts, car ils exigeaient des quantités colossales d'énergie divine. Il n'était qu'un Ancien Dieu ayant vécu moins de 2 000 ans et ne pouvait égaler Tu Si; cependant, après avoir emprunté cette aura dense, il n'hésita pas à déclencher un sort qu'un Ancien Dieu à six étoiles pourrait utiliser!
 
 Le Coup Divin!
 

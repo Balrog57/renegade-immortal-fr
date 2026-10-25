@@ -72,7 +72,7 @@ Soudain, la ligne dorée tressaillit et pénétra dans la tête de la bête mous
 
 La créature poussa quelques gémissements misérables avant de s'effondrer au sol en se débattant, mais ses yeux rayonnaient de joie.
 
-Wang Lin observa la bête avec stupéfaction. Après environ le temps de trois bâtons d'encens, les convulsions cessèrent. Des bruits de craquements émanèrent de son corps tandis qu'elle grandissait.
+Wang Lin observa la bête avec stupéfaction. Après environ quarante-cinq minutes, les convulsions cessèrent. Des bruits de craquements émanèrent de son corps tandis qu'elle grandissait.
 
 La bête moustique mesurait désormais près de cent mètres de long, semblable à une petite colline. Sa trompe était devenue encore plus longue, lui donnant un aspect plus effrayant.
 

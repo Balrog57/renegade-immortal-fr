@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1719 - Strange!"
 slug: etrange
 ---
-« L’Tian Yunzi! » Tout ce qui entourait Wang Lin s'effondra et la lumière bleue autour de lui se dissipa. Son corps trembla et il fit un pas en avant. Il quitta le Royaume Céleste pour traverser la rivière argentée qui l'entourait!
+« Tian Yunzi! » Tout ce qui entourait Wang Lin s'effondra et la lumière bleue autour de lui se dissipa. Son corps trembla et il fit un pas en avant. Il quitta le Royaume Céleste pour traverser la rivière argentée qui l'entourait!
 
 Qing Lin regarda l'endroit où Wang Lin avait disparu, l'inquiétude se lisant sur son visage.
 

@@ -14,7 +14,7 @@ Le vieil homme aux robes vertes avait à peine commencé à parler que Wang Lin 
 
 « Wang Lin salue l'Empereur Céleste! » Wang Lin joignit les mains devant le Temple du Dao Céleste. Ce lieu était toujours le palais impérial, et l'interlocuteur était l'Empereur Céleste, un Grand Empyréen. Le respect qu'il devait témoigner demeurait nécessaire.
 
-Les regards de dizaines de milliers de cultivateurs se fixèrent sur Wang Lin. Les cent mille soldats également les scrutaient, silencieux, le regard froid.
+Les regards de dizaines de milliers de cultivateurs se fixèrent sur Wang Lin. Autour de la place, des dizaines de milliers de soldats en armure noire les scrutaient eux aussi, silencieux, le regard froid.
 
 Parmi les quatre rois, à l'exception du Manoir Li, les trois autres familles observaient Wang Lin d'un œil différent. En particulier, les chefs de ces trois manoirs le regardaient avec des expressions complexes et impuissantes.
 

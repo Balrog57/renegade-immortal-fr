@@ -58,9 +58,9 @@ Ce qui choqua Wang Lin fut l'écriture des mots sur la pierre. Plus il regardait
 
 Une écriture peut être imitée, mais l'aura qu'elle dégage est extrêmement difficile à reproduire. Wang Lin ne se contentait pas de reconnaître l'écriture; il reconnaissait son aura!
 
-« Ciel… L’Tian Yunzi… » Wang Lin fut stupéfait. Comment avait-il pu oublier cette aura? C'était un être qu'il redoutait profondément dans le monde des grottes.
+« Ciel… Tian Yunzi… » Wang Lin fut stupéfait. Comment avait-il pu oublier cette aura? C'était un être qu'il redoutait profondément dans le monde des grottes.
 
-Cet individu faisait partie du Dao Céleste, et bien qu'il ait été détruit par Wang Lin, ce dernier soupçonnait que l’Tian Yunzi n’était pas mort!
+Cet individu faisait partie du Dao Céleste, et bien qu'il ait été détruit par Wang Lin, ce dernier soupçonnait que Tian Yunzi n'était pas mort!
 
 L'écriture et l'aura ici ne sont pas identiques à celles de la stèle du Royaume aux Sept Couleurs : elles ont été laissées par deux personnes différentes. Cependant, l'apparence même de cette pierre brouillait la compréhension qu'avait Wang Lin du monde des grottes.
 
@@ -80,7 +80,7 @@ L'écriture et l'aura ici ne sont pas identiques à celles de la stèle du Royau
 
 « Si vous avez déjà vu cette écriture et cette aura au cours de votre vie, je vous en supplie, dites-le-moi… » La voix rauque et mélancolique du vieil homme résonna derrière lui.
 
-« Vous devez me le dire. Si je peux obtenir ma vengeance, je suis prêt à devenir l'esclave jusqu'à la mort de celui qui me fournira cet indice… » Le vieil homme parlait lentement, ses paroles empreintes d'une foi et d'une détermination stupéfiantes.
+« Vous devez me le dire. Si je peux obtenir ma vengeance et n'avoir plus aucun regret, je suis prêt à devenir, jusqu'à ma propre mort, l'esclave de celui qui me fournira cet indice… » Le vieil homme parlait lentement, ses paroles empreintes d'une foi et d'une détermination stupéfiantes.
 
 Une fois son discours terminé, le vieil homme agita sa main droite et une brise légère souffla. Le temple retrouva son apparence originelle. La montagne redevint verte, l'eau claire, les oiseaux chantèrent de nouveau, et le parfum des fleurs embauma la secte. Les disciples, ignorant qu'ils étaient déjà morts, vivaient joyeusement dans une Secte Dong Lin débordant de vitalité.
 

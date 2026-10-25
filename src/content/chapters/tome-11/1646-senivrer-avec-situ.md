@@ -84,7 +84,7 @@ Situ Nan vida une cruche entière avant de la jeter brusquement et de hurler à 
 
 « Le sommet... Je n'ai pas atteint le sommet. Et même si je l'avais atteint, alors quoi? Je comprends tout, mais je ne suis pas comme vous. Je n'ai jamais voulu cultiver. Jeune, je le faisais pour mes parents, pour ne pas les décevoir. J'ai serré les dents et je suis allé à la Secte Heng Yue! »
 
-« Mais quel en fut le résultat? Le destin s'est moqué de nous. Je cultivais pour mes parents, mais cela a fini par causer leur mort. Après cela, j'ai cultivé pour la vengeance; je suis devenu un démon et j'ai massacré toute la famille Teng. Le sang coulait à flots! »
+« Mais quel en fut le résultat? Le destin s'est moqué de nous. Je cultivais pour mes parents, mais cela a fini par causer leur mort. Après cela, j'ai cultivé pour la vengeance; je suis devenu un Diable et j'ai massacré toute la famille Teng. Le sang coulait à flots! »
 
 « Une fois ma vengeance accomplie, j'étais égaré. J'ai vu Da Niu grandir et ses parents mourir. J'ai observé toute sa vie. Je ne savais plus quoi faire, je ne savais plus quel était mon chemin... »
 

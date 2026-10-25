@@ -58,11 +58,11 @@ Malgré leur résistance, ils ne purent se libérer de cette attraction. En un �
 
 Après ce coup de poing et ce geste, la main droite de Wang Lin resta suspendue. Puis, son index s'étendit et pointa vers l'avant!
 
-« Dao Démoniaque, Inversion de la Vie et de la Mort! »
+« Dao Diabolique, Inversion de la Vie et de la Mort! »
 
 Des mots étranges franchirent les lèvres de Wang Lin. Dès qu'il pointa le doigt, les grands chars derrière les foules tremblèrent et une ondulation commença à se propager sur eux. À mesure que l'onde progressait, toute force vitale à l'intérieur des chars se transformait en mort. Bientôt, ils cessèrent tout mouvement, figés sur place.
 
-Alors que les ondulations se propageaient, les huit dragons géants qui chargeaient la plateforme furent ébranlés. Ils ne purent rien opposer à ce Dao Démoniaque, et toute leur force vitale se mua en une aura de mort!
+Alors que les ondulations se propageaient, les huit dragons géants qui chargeaient la plateforme furent ébranlés. Ils ne purent rien opposer à ce Dao Diabolique, et toute leur force vitale se mua en une aura de mort!
 
 L'inversion de la vie et de la mort, la transition du vivant vers le mort, fut accomplie en un instant!
 

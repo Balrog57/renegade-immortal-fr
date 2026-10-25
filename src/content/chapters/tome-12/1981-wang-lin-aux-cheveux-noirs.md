@@ -76,7 +76,7 @@ Une fois l'armure rejetée, la folie dans les yeux de Wang Lin disparut pour lai
 
 Après avoir perdu son armure d'âme, le niveau de culture du Wang Lin aux cheveux noirs diminua, mais son aura de massacre augmenta de plusieurs fois. En quelques respirations à peine, le gaz noir autour de lui devint plus dense encore, et il se précipita vers les milliers de personnes!
 
-Le massacre se poursuivait tandis que le cœur de l'Exalté Empyréen Hai Zi tremblait. Wang Lin ressemblait à un dieu démon. Pour chaque personne qu'il abattait, un nouveau filament noir apparaissait autour de lui.
+Le massacre se poursuivait tandis que le cœur de l'Exalté Empyréen Hai Zi tremblait. Wang Lin ressemblait à un Exalté Diable. Pour chaque personne qu'il abattait, un nouveau filament noir apparaissait autour de lui.
 
 Chaque mort infligée renforçait le sentiment d'étrangeté que l'Exalté Empyréen Hai Zi éprouvait envers Wang Lin!
 

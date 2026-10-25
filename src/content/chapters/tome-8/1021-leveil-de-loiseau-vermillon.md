@@ -16,7 +16,7 @@ Wang Lin ouvrit ses yeux fatigués. Dès qu'il les entrouvrit, la mer de flammes
 
 Cependant, cette fois, Wang Lin ne sentit que son corps se réchauffer; les flammes fusionnèrent rapidement avec son énergie originelle.
 
-« Mon énergie originelle a légèrement augmenté... Bien que cette méthode soit périlleuse, elle peut fonctionner! » Wang Lin prit une profonde inspiration et ferma les yeux. Un bâton d'encens plus tard, il se leva. Bien qu'il paraisse encore épuisé, il sortit de la tour noire!
+« Mon énergie originelle a légèrement augmenté... Bien que cette méthode soit périlleuse, elle peut fonctionner! » Wang Lin prit une profonde inspiration et ferma de nouveau les yeux. Quinze minutes plus tard, il se leva. Bien qu'il paraisse encore épuisé, il sortit de la tour noire!
 
 À l'extérieur, c'était un monde de flammes où des gaz noirs recouvraient le ciel. Cette fois, Wang Lin resta dehors un peu plus longtemps que précédemment. Sa main droite s'étira pour saisir une flamme de la taille d'un poing d'enfant avant qu'il ne regagnât la tour.
 
@@ -94,7 +94,7 @@ Les flammes sans fin chargèrent vers l'Oiseau Vermillon devant Wang Lin à une 
 
 La marque s'était éveillée et l'esprit de l'Oiseau Vermillon était apparu! Autrefois, un tel éveil était un événement majeur au sein des Quatre Sectes Divines! Quiconque appartenait à la lignée du Vermillon et s'éveillait devenait sans doute l'un des futurs Quatre Saints, sauf accident!
 
-En cet instant, Wang Lin était le seul de la lignée du Vermillon à s'être éveillé! À condition qu'aucun autre n'ait fait de même!
+En cet instant, Wang Lin était le seul de la lignée du Vermillon à s'être éveillé, sans aucun autre! À condition toutefois qu'avant lui, après lui, et tant qu'il ne serait pas devenu l'un des Quatre Saints, aucun autre membre de la lignée n'éveille son marquage!
 
 Ce cri ne fit pas que secouer le royaume où se trouvait Wang Lin! À cet instant précis, tous les autres royaumes du monde en bouteille entendirent ce cri fracassant!
 

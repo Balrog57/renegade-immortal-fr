@@ -8,7 +8,7 @@ slug: le-maitre-de-la-secte-du-dao-demoniaque
 ---
 « Nuit Brisée! » Wang Lin se retourna soudainement. Il savait qu'il serait extrêmement difficile de s'échapper. La Secte du Dao Démoniaque était prête à tout pour le tuer!
 
-Les cultivateurs environnants et les cadavres qui jonchaient la terre suffisaient à tout expliquer!
+Les cultivateurs environnants et les têtes qui jonchaient le sol suffisaient à tout expliquer!
 
 S'il voulait partir, il devait se donner corps et âme! Il devait être rapide, sinon d'autres cultivateurs de la Secte du Dao Démoniaque arriveraient via les réseaux de transfert. À un moment donné, Wang Lin n'aurait plus aucune chance de s'enfuir!
 

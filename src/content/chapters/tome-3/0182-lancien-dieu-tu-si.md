@@ -162,7 +162,7 @@ Xu Liguo affichait un visage amer. Il maudit Wang Lin intérieurement de nombreu
 
 Wang Lin sortit un petit animal et le lança vers le tourbillon. Cette fois, l'animal passa sans encombre et commença à s'enfoncer dans le vortex. À cet instant précis, le lien ténu que Wang Lin entretenait avec l'animal par l'intermédiaire du second démon fut brusquement rompu.
 
-Le visage de Wang Lin s'assombrit. Après réflexion, il comprit que ce tourbillon devait être celui qui avait fait fuir le Seigneur Démon des Six Désirs et les autres dans une panique totale: la troisième barrière.
+Le visage de Wang Lin s'assombrit. Après réflexion, il comprit que ce tourbillon devait être celui qui, mille ans plus tôt, avait arrêté le Seigneur Démon des Six Désirs et les autres et les avait fait fuir dans une panique totale: la troisième barrière.
 
 Selon les propos de Duanmu, c'était la troisième barrière, celle qui exigeait le sort de mort, réputé pour ses attaques de Sens Divin, pour être franchie. Ses paroles étaient vagues et peu détaillées, mais Wang Lin en avait tout de même saisi quelque chose.
 

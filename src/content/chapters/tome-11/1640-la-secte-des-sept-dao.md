@@ -40,7 +40,7 @@ Le vieil homme était né sur ce continent. En grandissant, il avait rejoint une
 
 Les maîtres de la Secte des Sept Dao étaient un couple de pratiquants du Dao. L'un d'eux était l'être de la statue aux sept couleurs, appelé le Souverain Céleste aux Sept Couleurs!
 
-Sa culture était mystérieuse; il avait fondé sa propre secte et rassemblé une multitude de disciples. Au cours des dizaines de milliers d'années écoulées depuis la fondation de la secte, celle-ci avait traversé de nombreuses crises. Mais finalement, le couple du Dao parvenait toujours à désamorcer le danger, et ils finirent par devenir célèbres dans toute la région.
+Sa culture était mystérieuse; il avait fondé sa propre secte et rassemblé une multitude de disciples. Au cours des innombrables dizaines de milliers d'années écoulées depuis la fondation de la secte, celle-ci avait traversé d'innombrables crises. Mais finalement, le couple du Dao parvenait toujours à désamorcer le danger, et ils finirent par devenir célèbres dans toute la région.
 
 Avec le temps, le vieil homme finit par devenir l'un des Cent Soldats Célestes, un expert puissant de la Secte des Sept Dao!
 

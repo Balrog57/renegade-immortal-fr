@@ -72,7 +72,7 @@ Cette planète n'était pas très éloignée de Suzaku. La nuit étant tombée, 
 
 « Cette lune est en réalité une planète, bien que beaucoup plus petite », pensa Wang en volant dans le ciel, laissant derrière lui une traînée de lumière.
 
-Les yeux de Wang Lin s'illuminèrent: « Quel dommage de n'avoir fait que passer sur cette lune avant que le transfert ne reprenne. Bien qu'elle soit dépourvue d'énergie spirituelle, j'ai ressenti une force mystérieuse profondément enfouie sous terre. Lorsque ma culture sera assez élevée, je devrai aller y jeter un œil. »
+Les yeux de Wang Lin s'illuminèrent: « Quel dommage de n'avoir fait que passer sur cette lune avant que le transfert ne reprenne. Bien qu'elle soit dépourvue d'énergie spirituelle, j'ai ressenti une étrange fluctuation. Lorsque ma culture sera assez élevée, je devrai aller y jeter un œil. »
 
 Wang Lin ne fit aucune escale en chemin. Cependant, Chu était si éloigné qu'il fut contraint d'utiliser plusieurs anciens tableaux de transfert pour réduire la distance.
 

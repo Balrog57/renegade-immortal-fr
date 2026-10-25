@@ -56,13 +56,13 @@ Cette scène fit changer radicalement l'expression du vieil homme nommé Tang. M
 
 Non seulement lui, mais tous les chefs des familles soutenant Wang Lin fermèrent les yeux, feignant l'indifférence. Toutefois, si quiconque osait remettre en question les qualifications de leurs lignées, ils exigeraient des explications!
 
-« La famille Meng de la Planète Flamme de Terre recommande Senior Xu Mu. J'ignore si ma famille Meng en a les qualifications! » Un autre cultivateur s'avança et fixa l'Ancien de la famille Tang sans aucune crainte.
+« La famille Meng de la Planète Diyan recommande Senior Xu Mu. J'ignore si ma famille Meng en a les qualifications! » Un autre cultivateur s'avança et fixa l'Ancien de la famille Tang sans aucune crainte.
 
 « La famille Baili de la Planète Nuage de Tonnerre recommande Senior Xu Mu... »
 
 « La famille Si Kong de la Planète Eau Noire recommande Senior Xu Mu... »
 
-« La famille Zhou de la Planète Flamme de Terre recommande Senior Xu Mu... »
+« La famille Zhou de la Planète Diyan recommande Senior Xu Mu... »
 
 « La famille Ning de la Planète Ciel Bleu recommande également Senior Xu Mu. Je ne sais pas si ma famille Ning, en tant que l'une des lignées des planètes principales, a les qualifications! »
 

@@ -52,7 +52,7 @@ Le palais était lui aussi en ruines; il n'en conservait que l'allure digne.
 
 Wang Lin eut un léger sourire: « La maîtrise des restrictions du Frère Li est vraiment prodigieuse. Ces dernières semaines, vous avez été capable de percer les mystères des restrictions instantanément. Bien que la plupart du temps quelqu'un soit déjà passé par là, avec le temps, peut-être trouverons-nous un jour un palais céleste intact! »
 
-« Chacune des quatre anciennes restrictions devient un sortilège surpuissant lorsqu'elle est cultivée à son apogée. Qu'il s'agisse des êtres célestes, des démons qui trônent en haut ou des bêtes mortelles en bas, tous peuvent être scellés! »
+« Chacune des quatre anciennes restrictions devient un sortilège surpuissant lorsqu'elle est cultivée à son apogée. Qu'il s'agisse des Immortels et des Diables en haut ou des bêtes mortelles en bas, tous peuvent être scellés! »
 
 « La Restriction des 18 Pruniers est une déclinaison de la Restriction d'Annihilation. Cependant, elle a été diffusée à l'extérieur, et c'est ainsi que le monde profane en a découvert l'existence. » Li Yuan parlait avec une assurance profonde.
 

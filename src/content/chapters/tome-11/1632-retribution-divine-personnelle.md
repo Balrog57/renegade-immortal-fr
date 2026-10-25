@@ -18,7 +18,7 @@ Cette barrière était imprégnée d'une puissante énergie céleste. Elle dissi
 
 « Tu ne peux pas entrer », déclara l'étrange jeune homme aux cheveux blancs qui se trouvait derrière la barrière aqueuse en secouant la tête.
 
-« Tu veux connaître la rétribution divine, tu veux en découvrir l'origine. Bat-moi et tu sauras tout... Ne sois pas surpris que je lise dans tes pensées, car je suis toi. » Le jeune homme s'avança, ses cheveux blancs flottant au vent, dégageant un tempérament d'une grande grâce.
+« Tu veux connaître la rétribution divine, tu veux en découvrir l'origine. Bats-moi et tu sauras tout... Ne sois pas surpris que je lise dans tes pensées, car je suis toi. » Le jeune homme s'avança, ses cheveux blancs flottant au vent, dégageant un tempérament d'une grande grâce.
 
 Il sourit et ajouta doucement: « À travers les âges, tu n'es pas le premier cultivateur défiant le ciel à atteindre la troisième étape, mais aucun d'entre eux n'a survécu à cette rétribution divine personnelle... J'ai hâte de voir si toi, tu y parviendras. »
 
@@ -99,7 +99,7 @@ C'est alors que Wang Lin agita sa main droite.
 
 « Avec le Dao du Vrai et du Faux, tout peut être faux tant que mon cœur l'ordonne. De la poussière à la poussière, de la terre à la terre, que tout disparaisse! »
 
-Le jeune homme fit le même geste et vit exactement la même chose.
+Le jeune homme agita lui aussi la main droite vers l'extérieur et prononça exactement les mêmes paroles.
 
 Tous deux utilisèrent le Dao du Vrai et du Faux pour dissiper la réalité. Si un seul avait utilisé ce sort, il aurait été d'une puissance absolue, mais comme ils l'utilisèrent simultanément, les deux hommes tremblèrent. Ils crachèrent une quantité massive de sang et furent projetés en arrière.
 

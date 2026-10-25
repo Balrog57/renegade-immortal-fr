@@ -114,7 +114,7 @@ Ce vieillard était Chu Yunfei, l'ancêtre Ascendant du stade précoce que toute
 
 La Secte de l'Âme Terrestre se trouvait dans la partie occidentale de Suzaku. Une grotte s'étendait profondément sous la secte, et à l'intérieur y siégeait un homme d'âge moyen.
 
-Soudain, cet homme ouvrit les yeux. Son regard portait une aura antique tandis qu'il soupirait: « Ce jour est enfin arrivé. Je n'arrive pas à croire que je sois entraîné là-dedans, ah! »
+Soudain, cet homme ouvrit les yeux. Son regard portait une aura antique tandis qu'il soupirait: « Ce jour est enfin arrivé. Je n'aurais jamais cru qu'il me serait donné de le voir, ah! »
 
 La dernière secte de Suzaku était la Secte du Chemin de l'Immortel; pourtant, aucun mouvement ne fut perceptible ici. L'ancêtre Ascendant de ce secteur était très mystérieux. Très peu de gens connaissaient sa demeure ou même son apparence.
 

@@ -24,7 +24,7 @@ Simultanément, l'énergie originelle de Wang Lin commença à circuler. Elle se
 
 À cet instant précis, le corps de Wang Lin disparut.
 
-Il existait des sorts plus rapides que le déplacement instantané au stade de l'Âme Naissante, des techniques dépassant la téléportation au stade de l'Ascendant, et même la capacité d'utiliser simultanément d'innombrables téléportations majeures! Pourtant, ce sort était encore plus rapide.
+Il existait un sort supérieur au déplacement instantané de l'Âme Naissante, qui surpassait la téléportation de l'Ascendant et même la grande téléportation formée d'innombrables téléportations simultanées, étant encore plus rapide d'environ trois dixièmes!
 
 Ce sort s'appelait la Distorsion Spatiale!
 
@@ -58,7 +58,7 @@ Pourtant, durant ce processus, c'était comme s'il avait pénétré dans les mé
 
 Wang Lin ne poursuivit pas la silhouette déclinante de Xue Zu. Il médita silencieusement sur le sentiment éprouvé plus tôt. Comparé à la traque de Xue Zu, Wang Lin savait que la compréhension de ce phénomène était bien plus précieuse.
 
-Le temps semblait s'écouler extrêmement lentement, tout en paraissant soudainement s'accélérer. Après le temps d'écoulement d'un demi-encens, une lueur d'illumination apparut dans les yeux de Wang Lin. Il baissa le regard vers le vide, leva son pied droit et fit un pas en avant.
+Le temps semblait s'écouler extrêmement lentement, tout en paraissant soudainement s'accélérer. Au bout de sept minutes, une lueur d'illumination apparut dans les yeux de Wang Lin. Il baissa le regard vers le vide, leva son pied droit et fit un pas en avant.
 
 En un seul pas, l'ondulation réapparut, mais son corps resta là où il était. La sensation de fusionner avec le monde ne revint pas.
 

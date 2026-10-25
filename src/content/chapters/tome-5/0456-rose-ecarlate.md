@@ -18,7 +18,7 @@ Mais c'était la première fois qu'il la rencontrait véritablement après leur 
 
 Dans les yeux de Hongdie, Wang Lin ne voyait qu'un silence de mort.
 
-L'actuelHongdie était toujours belle, mais Wang Lin ne pouvait plus y déceler la fierté et l'arrogance de la fille du ciel qu'elle avait été autrefois.
+L'actuelle Hongdie était toujours belle, mais Wang Lin ne pouvait plus y déceler la fierté et l'arrogance de la fille du ciel qu'elle avait été autrefois.
 
 La Hongdie d'autrefois était le génie de Xue Yu, la fille bénie des cieux, celle qui avait atteint le stade de la Formation de l'Âme en seulement cent ans. Elle considérait Wang Lin comme une simple fourmi, et leurs différends, creusés peu à peu, les avaient finalement menés à leur bataille décisive.
 

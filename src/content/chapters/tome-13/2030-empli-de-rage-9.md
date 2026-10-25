@@ -26,7 +26,7 @@ Xuan Luo sourit avec colère, une lueur glaciale traversant ses yeux. Cet Empere
 
 « Si je m'agenouille, me laisserez-vous l'emmener? »
 
-« Ne cherchais-tu pas à me tuer auparavant? N'étais-tu pas arrogant? N'étais-tu pas réticent à l'idée de t'incliner? Et maintenant, tu veux t'agenouiller? Tu n'es qu'une simple fourmi provenant d'un monde de caverne, tandis que je suis le fier fils des cieux. Viens donc t'agenouiller devant moi, supplie-moi, et si mon humeur est clémente, je pourrais même te faire don de cette femme. » L'Empereur du Dao Antique sourit, mais son sourire était venimeux.
+« Ne cherchais-tu pas à me tuer auparavant? N'étais-tu pas arrogant? N'étais-tu pas réticent à l'idée de t'incliner? Et maintenant, tu veux t'agenouiller? Tu n'es qu'une simple fourmi provenant du monde des grottes, tandis que je suis le fier fils des cieux. Viens donc t'agenouiller devant moi, supplie-moi, et si mon humeur est clémente, je pourrais même te faire don de cette femme. » L'Empereur du Dao Antique sourit, mais son sourire était venimeux.
 
 « Moi, Wang Lin, je peux continuer à protéger le Dao Antique jusqu'à la fin de mes jours... Je peux m'agenouiller, je ne vous tuerai pas. Je veux seulement le fragment d'âme dans le corps de cette femme... Rendez-la-moi... s'il vous plaît... » murmura Wang Lin. Ses yeux étaient empreints d'une tristesse infinie, l'accumulation de millénaires de douleur.
 
@@ -110,7 +110,7 @@ Xuan Luo savait l'ampleur des conséquences, mais en voyant son disciple endurer
 
 Le corps de Xuan Luo trembla. Il ferma les yeux pour dissimuler la tristesse et la confusion qui les habitaient.
 
-« J'ai protégé le Dao Antique jusqu'à ce jour sans jamais rien regretter... Je n'ai qu'un seul disciple... Je l'ai amené ici depuis le monde de caverne. Il occupait une position suprême dans le clan céleste, et pourtant, il est venu me chercher... Je n'ai qu'un seul disciple! » Xuan Luo ouvrit les yeux, révélant une détermination désespérée.
+« J'ai protégé le Dao Antique jusqu'à ce jour sans jamais rien regretter... Je n'ai qu'un seul disciple... Je l'ai amené ici depuis le monde des grottes. Il occupait une position suprême dans le clan céleste, et pourtant, il est venu me chercher... Je n'ai qu'un seul disciple! » Xuan Luo ouvrit les yeux, révélant une détermination désespérée.
 
 Au moment où Xuan Luo prit sa décision, Wang Lin murmura doucement: « Maître... » Il regarda Xuan Luo en esquissant un sourire. C'était la première fois qu'il souriait depuis qu'il avait retrouvé le fragment d'âme de Wan Er.
 

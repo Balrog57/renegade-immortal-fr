@@ -86,7 +86,7 @@ La vieille femme en vert regarda la faille et demanda: « Où cette fissure aux 
 
 « Vous le saurez une fois sur place! » rit Cang Songzi tout en pilotant le continent pour accélérer la course. En un clin d'œil, ils s'étaient déjà éloignés de la faille.
 
-« Cette fissure est instable et ne peut être abordée directement. Si deux d'entre nous tentent d'y entrer, elle s'effondrera. Bien qu'elle ne disparaisse pas totalement, elle se rétractera, rendant le retour périlleux! Nous devons donc utiliser ce continent sauvage comme un guide pour forcer le passage. De cette façon, la fissure ne s'effondrera pas et, grâce au sceau qui protège ce continent, l'impact sera bien moindre lors de notre retour. »
+« Cette fissure est instable et ne peut être abordée directement. Si deux d'entre nous tentent d'y entrer, elle s'effondrera. Bien qu'elle ne disparaisse pas totalement, elle se rétractera, rendant le retour périlleux! Nous devons donc utiliser ce continent sauvage comme amorce et le projeter dans la fissure pour l'élargir; nous devrons alors y entrer en un instant. De cette façon, la fissure ne s'effondrera pas et, grâce au sceau qui protège ce continent, l'impact sera bien moindre lors de notre retour. »
 
 Tandis que Cang Songzi terminait ses explications, la fissure aux sept couleurs s'estompait à l'horizon. Le continent sous leurs pieds accéléra brusquement, avant de s'arrêter net.
 

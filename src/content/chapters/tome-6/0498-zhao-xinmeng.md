@@ -20,7 +20,7 @@ L'expression calme de Zhao Xinmeng disparut, remplacée par un air étrange. Ell
 
 La peur inscrite sur le visage de Yundao Zi n'avait toujours pas quitté l'esprit de Wang Lin. Après avoir entendu les paroles de Tian Yunzi, il réfléchit un instant avant de répondre: « Le niveau de culture de ce disciple n'est pas assez élevé pour rivaliser avec celui de la quatrième sœur... »
 
-« Wang Lin! » Tian Yunzi l'interrompit, lui lança un regard plein de sens et déclara d'un ton solennel: « Ton Maître souhaite que tu te battes pour l'obtenir, ne serait-ce qu'une fois! Mes disciples ne doivent pas être des lâches. De plus, tu ne dois pas te laisser envoûter par les autres au point d'avoir le cœur rempli de pensées inutiles. Souviens-toi simplement que tu dois suivre tes propres désirs en toute chose. Je te donne le temps d'un demi-bâton d'encens pour y réfléchir sérieusement. Si tu décides toujours d'abandonner, je ne t'en empêcherai pas! » Tian Yunzi fronça les sourcils, puis il tourna un regard sombre vers Yundao Zi.
+« Wang Lin! » Tian Yunzi l'interrompit, lui lança un regard plein de sens et déclara d'un ton solennel: « Ton Maître souhaite que tu te battes pour l'obtenir, ne serait-ce qu'une fois! Mes disciples ne doivent pas être des lâches. De plus, tu ne dois pas te laisser envoûter par les autres au point d'avoir le cœur rempli de pensées inutiles. Souviens-toi simplement que tu dois suivre tes propres désirs en toute chose. Je te donne sept minutes pour y réfléchir sérieusement. Si tu décides toujours d'abandonner, je ne t'en empêcherai pas! » Tian Yunzi fronça les sourcils, puis il tourna un regard sombre vers Yundao Zi.
 
 Lorsque Yundao Zi sentit le regard de son maître, son cœur trembla et il baissa précipitamment la tête.
 
@@ -82,7 +82,7 @@ Le visage de Zhao Xinmeng s'assombrit et ses sourcils se froncèrent. Elle regar
 
 Wang Lin la regarda. Bien qu'ils aient eu des interactions par le passé, ils ne se devaient rien l'un à l'autre. Il répondit calmement: « Quatrième sœur, je ne peux pas t'aider en cela. »
 
-Zhao Xinmeng fixa Wang Lin. Un instant plus tard, elle leva le bras et déclara doucement: « Tactique de Raffinement Céleste à Neuf Cycles! »
+Zhao Xinmeng fixa Wang Lin. Un instant plus tard, elle leva la main droite et déclara doucement: « Tactique de Raffinement Céleste en Neuf Cycles! »
 
 Soudain, une puissante lumière dorée émana du corps de Zhao Xinmeng. Son visage fut baigné d'un éclat doré, lui conférant un air mystérieux. Sa main droite semblait coulée dans l'or, projetant des éclats dorés.
 

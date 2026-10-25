@@ -92,7 +92,7 @@ Le sang ne formait pas une rivière, mais le spectacle était encore plus terrif
 
 À mesure que la dévoration progressait, Wang Lin récupérait rapidement. Son âme originelle s'était rétablie et son esprit s'était solidifié. Seule la blessure sur sa poitrine guérissait lentement.
 
-La majorité des centaines de cultivateurs avaient été dévorée dans cette frénésie. Les cent restants, possédant les niveaux de culture les plus élevés, s'étaient enfuis au loin, les yeux écarquillés par l'effroi.
+La majorité des centaines de cultivateurs avaient été dévorée dans cette frénésie. Près d'une centaine de cultivateurs restants, possédant les niveaux de culture les plus élevés, s'étaient enfuis au loin, les yeux écarquillés par l'effroi.
 
 Après s'être léché les lèvres, Wang Lin se retourna soudainement vers les fuyards. Le brouillard noir se déploya pour couvrir toute la zone!
 

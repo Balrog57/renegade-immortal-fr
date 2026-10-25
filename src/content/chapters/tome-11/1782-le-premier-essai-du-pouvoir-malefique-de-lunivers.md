@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1782 - The First Trial of the Evil Power of the Universe
 slug: le-premier-essai-du-pouvoir-malefique-de-lunivers
 ---
-Une demi-heure plus tard, Wang Lin quitta la jungle. Il paraissait calme, mais il laissa échapper un soupir. Le python était bel et bien l'une des huit portes, mais ce n'était pas la véritable porte.
+Une heure plus tard, Wang Lin quitta la jungle. Il paraissait calme, mais il laissa échapper un soupir. Le python était bel et bien l'une des huit portes, mais ce n'était pas la véritable porte.
 
 « Cinq fleurs, huit portes. Si je vérifie les portes une à une, j'aurais une chance de la trouver. Cependant, même si je cultivais pleinement l'Art Céleste du Dao des Nuages, cela ne provoquerait pas de changement suffisant dans la mémoire de la troisième âme... Dans ce cas, je serais incapable de chercher les huit portes. »
 
@@ -70,7 +70,7 @@ Lorsque Wang Lin arriva sur la place, la plupart des participants étaient déj�
 
 Par conséquent, une pression invisible se répandit naturellement dans le cœur de chacun. Cette pression s'intensifia à mesure que les arrivées se multipliaient, faisant battre les cœurs plus vite et intimidant les disciples au point qu'ils n'osaient plus faire le moindre bruit.
 
-Une demi-heure plus tard, les disciples des 321 lignées furent tous arrivés. Ils étaient tous nerveux et silencieux.
+Une heure plus tard, les disciples des 321 lignées furent tous arrivés. Ils étaient tous nerveux et silencieux.
 
 Wang Lin demeurait calme, mais Qin Mei, à ses côtés, ne souriait plus; elle semblait nerveuse. Zhou Li s'en sortait mieux, bien qu'il soit évident qu'il était très tendu.
 

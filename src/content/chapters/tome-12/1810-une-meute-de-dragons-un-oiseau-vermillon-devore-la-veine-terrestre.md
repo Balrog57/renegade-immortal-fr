@@ -54,13 +54,13 @@ Après sept jours, l'Oiseau Vermillon sous Wang Lin était devenu encore plus gi
 
 Les 14 âmes de feu terrestre avaient considérablement accru la puissance du feu de Wang Lin. Il était deux fois plus puissant que lorsqu'il se trouvait dans le monde des grottes!
 
-Une heure plus tard, Du Qing atteignit la veine de feu terrestre que Wang Lin avait occupée précédemment, le visage pâle. Ces jours de poursuite étaient une forme de torture qu'il n'avait jamais connue auparavant.
+Deux heures plus tard, Du Qing atteignit la veine de feu terrestre que Wang Lin avait occupée précédemment, le visage pâle. Ces jours de poursuite étaient une forme de torture qu'il n'avait jamais connue auparavant.
 
 Ce supplice n'affectait pas son corps, mais son esprit! Voir ces veines de feu terrestres se dessécher les unes après les autres suffisait à le rendre fou. Il aurait préféré ne jamais poursuivre Wang Lin, ou même endommager sa propre culture en l'affrontant, plutôt que de continuer à subir cette torture mentale.
 
 Quatre jours plus tard, dans une autre région du Continent du Taureau Céleste, le rugissement d'un dragon s'estompa lentement. Un gigantesque Oiseau Vermillon jaillit des profondeurs de la terre.
 
-Une demi-heure plus tard, la silhouette de Du Qing réapparut. Il resta de longues minutes à fixer le sol, l'air abasourdi...
+Une heure plus tard, la silhouette de Du Qing réapparut. Il resta de longues minutes à fixer le sol, l'air abasourdi...
 
 « 16... » À cet instant, Du Qing se demanda si ce mystérieux individu nommé Wang n'était pas lui-même une âme issue d'une veine de feu terrestre...
 

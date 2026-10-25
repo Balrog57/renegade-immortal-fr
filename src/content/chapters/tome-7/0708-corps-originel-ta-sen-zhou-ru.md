@@ -22,7 +22,7 @@ La zone environnante devint aussi lisse qu'un miroir. Toutes les roches saillant
 
 Wang Lin redescendit et s'assit au centre. Il frappa sa sacoche de stockage, et tout le jade céleste qu'il avait obtenu des trois familles s'en échappa pour retomber autour de lui en amas denses.
 
-Il frappa à nouveau sa sacoche, et l'étendard de l'âme d'un milliard d'âmes vola hors du sac. Tous les fragments fusionnèrent pour former les trois grandes âmes primaires qui commencèrent à patrouiller la zone. Le garde céleste s'éleva également dans les airs pour observer attentivement les environs. Quiconque tenterait de s'approcher serait instantanément tué.
+Il frappa à nouveau sa sacoche, et l'Étendard des Mille Millions d'Âmes vola hors du sac. Tous les fragments fusionnèrent pour former les trois grandes âmes primaires qui commencèrent à patrouiller la zone. Le garde céleste s'éleva également dans les airs pour observer attentivement les environs. Quiconque tenterait de s'approcher serait instantanément tué.
 
 Une fois ces préparatifs achevés, Wang Lin prit une profonde inspiration, forma un sceau de la main et ferma les yeux.
 
@@ -108,7 +108,7 @@ Le brouillard de la Mer des Démons avait disparu depuis longtemps, transformant
 
 À l'intérieur du Pays de l'Ancien Dieu, au cœur des Étoiles Brisées du Chaos.
 
-D'innombrables cultivateurs étaient assis dans une mer de sang. Leur niveau de culture augmentait lentement à mesure que le sang les envahissait, les rendant de plus en plus puissants. Sur le plus grand pilier émergeant de cette mer de sang siégeait un homme aux cheveux rouges. Son aura était si puissante qu'elle faisait trembler tous les êtres!
+D'innombrables cultivateurs étaient assis dans une mer de sang. Leur niveau de culture augmentait lentement à mesure que le sang les envahissait, les rendant de plus en plus puissants, surtout les cultivateurs de l'Antiquité, dont la force croissait encore davantage. Sur le plus grand pilier émergeant de cette mer de sang siégeait un homme aux cheveux rouges. Son aura était si puissante qu'elle faisait trembler tous les êtres!
 
 Une épée rouillée, tachée de sang séché, était plantée dans le sol à ses côtés. À cet instant, un bruit de grattement se fit entendre. La tête basse, ses cheveux rouges recouvrant son corps, il gravait les deux mots « Wang Lin » avec l'ongle acéré. En regardant de près, on pouvait voir que l'intégralité du pilier était couverte par ces deux caractères!
 

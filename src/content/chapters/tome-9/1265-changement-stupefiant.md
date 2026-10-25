@@ -94,7 +94,7 @@ Choqué, Wang Lin retira son Sens Divin. Il rendit le jade à la Secte Éternell
 
 Les membres de la Secte Éternelle étaient tous partagés par des sentiments complexes. Beaucoup étaient furieux, mais impuissants, contraints à l'acceptation.
 
-« Li Qianmei a répondu à la convocation de la Secte Brise-Ciel et est partie précipitamment... Mu Bingmei et Wang Shanshan ont été rappelées sans en connaître la raison. Ces événements isolés ne sont pas suspects, mais l'annulation simultanée de la compétition de rang 8 par la Secte Divine... Tout cela est trop étrange! »
+« Li Qianmei a répondu à la convocation de la Secte Brise-Ciel et est partie précipitamment... Mu Bingmei est partie tout aussi précipitamment, et ni l'une ni l'autre ne connaissait la raison. Ces événements isolés ne sont pas suspects, mais l'annulation simultanée de la compétition de rang 8 par la Secte Divine... Tout cela est trop étrange! »
 
 « Se pourrait-il qu'un événement majeur se prépare dans la Mer des Nuages? » Wang Lin fronça les sourcils, profondément perplexe.
 

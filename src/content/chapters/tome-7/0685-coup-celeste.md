@@ -120,6 +120,6 @@ En pensant à l'esprit vengeur logé dans la Perle Défiant le Ciel, le cœur de
 
 Dans son âme originelle, un appel impérieux résonna:
 
-« Cette bataille est finie, je te libère! »
+« Une fois ce combat terminé, je te rendrai ta liberté! »
 
 Un hurlement féroce jaillit de l'âme originelle de Wang Lin.

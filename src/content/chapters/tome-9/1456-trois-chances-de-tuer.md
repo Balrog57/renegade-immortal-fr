@@ -82,7 +82,7 @@ Grande Désolation était également extrêmement rapide. Il volait tel une mét
 
 « Cet homme est extrêmement prudent et d'une ruse sans pareille... J'ai voulu le tuer à trois reprises, mais il a déjoué chacun de mes plans... Je comptais profiter de sa faiblesse au moment où nous étions projetés pour l'empoisonner, mais il m'a démasqué et a utilisé la force de l'impact pour s'échapper! » Grande Désolation était sombre alors qu'il disparaissait dans la brume.
 
-Wang Lin se déplaçait à une vitesse fulgurante tandis que la brume lui fouettait le visage. Le Bouclier de Lumière et d'Ombre qui l'entourait s'effondrait et se reformait sans cesse. Les couches de restrictions qu'il avait placées se désintégraient une à une. La force qui poussait son corps dura plus d'une demi-heure avant de commencer à se dissiper.
+Wang Lin se déplaçait à une vitesse fulgurante tandis que la brume lui fouettait le visage. Le Bouclier de Lumière et d'Ombre qui l'entourait s'effondrait et se reformait sans cesse. Les couches de restrictions qu'il avait placées se désintégraient une à une. La force qui poussait son corps ne commença à se dissiper qu'au bout d'une heure.
 
 Une fois sa vitesse ralentie et la brume ne pouvant plus le blesser, Wang Lin essuya le sang au coin de sa bouche. Il jeta un regard en arrière, une lueur de froideur dans les yeux.
 
@@ -110,7 +110,7 @@ Une fois qu'il eut localisé sa position, les yeux de Wang Lin se plissèrent!
 
 « J'ai donc réellement atteint cet endroit!! »
 
-En seulement trente minutes après avoir été projeté par le bras, Wang Lin avait traversé trois cartes. Il avait même franchi la quatrième pour arriver près des limites de la cinquième!
+En à peine une heure après avoir été projeté par le bras, Wang Lin avait traversé trois cartes. Il avait même franchi la quatrième pour arriver près des limites de la cinquième!
 
 Il avait complètement quitté les abords extérieurs de l'Ancien Tombeau: cet endroit en était la partie intérieure!
 

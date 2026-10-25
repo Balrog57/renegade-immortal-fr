@@ -24,7 +24,7 @@ Quel que soit leur niveau de culture, qu'il s'agisse des plus jeunes disciples, 
 
 Tout cela était dû au regard terrifiant de Wang Lin!
 
-L'Ancien Taureau Vert se trouvait également au Pic Céleste Vert. Après que Wang Lin eut jeté un regard à Yan Luan, il tourna immédiatement les yeux vers lui. Lorsque le regard de l'Estimé Taureau Vert croisa celui de Wang Lin, son expression changea radicalement. Son corps trembla et une vapeur verte jaillit derrière lui pour former son corps véritable d'essence.
+L'Ancien Taureau Vert se trouvait également dans sa grotte du Pic du Ciel Vert. Après que Wang Lin eut jeté un regard à Yan Luan, il tourna immédiatement les yeux vers lui. Lorsque le regard de l'Estimé Taureau Vert croisa celui de Wang Lin, son expression changea radicalement. Son corps trembla et une vapeur verte jaillit derrière lui pour former son corps véritable d'essence.
 
 Le regard de Wang Lin disparut bientôt, mais l'Estimé Taureau Vert sentait encore son cœur palpiter, les yeux emplis de choc. Ce regard était impitoyable, indifférent, comme si le monde entier n'était qu'une poussière sous ses pieds et devait lui rendre culte!
 
@@ -80,7 +80,7 @@ Le craquement des pas résonna dans le Pavillon des Écritures de l'Âme. Wang L
 
 « Vous avez conclu ce pari, mais vous voulez revenir sur votre décision. Je n'ai rien demandé, c'est vous qui l'avez proposé! » La voix de Wang Lin était calme lorsqu'elle parvint aux oreilles de Yan Luan depuis le niveau supérieur.
 
-Les pupilles de Yan Luan se rétractèrent lorsqu'elle vit le pied droit de Wang Lin se poser sur l'escalier. De sa position, elle ne pouvait pas voir son visage, seulement ce pied. Lorsque celui-ci toucha la marche, Yan Luan eut l'impression d'être face au monde entier.
+Les pupilles de Yan Luan se rétractèrent lorsqu'elle vit le pied droit de Wang Lin se poser sur l'escalier. De sa position, elle ne pouvait pas voir son visage, seulement ce pied. Lorsque celui-ci toucha la marche, Yan Luan eut l'impression de se tenir entre ciel et terre, face à un soleil immense et vaste.
 
 « Êtes-vous sûre de vouloir rompre ce pari? » Wang Lin descendait lentement, sa voix empreinte d'une majesté absolue. Ses paroles semblaient outrepasser les restrictions du lieu et transcender les lois du Continent Astral Immortel pour s'abattre sur la Secte de la Grande Âme.
 

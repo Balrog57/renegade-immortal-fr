@@ -90,7 +90,7 @@ Au plafond pendait une perle bleue de la taille d'un poing. La fumée de la boug
 
 Ce phénomène piqua la curiosité de Wang Lin. Il n'avait jamais vu une conception aussi ingénieuse. Il observa la perle bleue dont la lumière gagnait en éclat.
 
-Un quart d'heure plus tard, la perle projeta une lumière bleue intense. Celle-ci était très douce, mais elle éteignit la bougie. La perle était désormais la seule source de lumière dans la pièce.
+Sept minutes plus tard, la perle projeta une lumière bleue intense. Celle-ci était très douce, mais elle éteignit la bougie. La perle était désormais la seule source de lumière dans la pièce.
 
 « Il y a trois formations à l'intérieur de cette perle. Les trois servent à recueillir la fumée, à la transformer en chaleur, puis à utiliser cette chaleur pour produire de la lumière. Sur ce point, le système stellaire de Luotian est bien supérieur. »
 

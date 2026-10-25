@@ -8,7 +8,7 @@ slug: le-tout-voyant-a-la-robe-grise
 ---
 Le dragon de vent aux sept couleurs et le Qilin se livraient un combat acharné, provoquant des grondements incessants qui résonnaient à travers le monde. Le dragon de vent laissait échapper des rugissements tonitruants.
 
-Le Qilin se montrait plus féroce encore, entouré d'une mer de flammes. Ces flammes se propageaient et, loin d'être éteint par le vent, celui-ci ne faisait que les renforcer.
+Le Qilin se montrait plus féroce encore, entouré d'une mer de flammes. Ces flammes se propageaient et, loin d'être éteintes par le vent, elles n'en devenaient que plus ardentes.
 
 Cependant, le dragon de vent aux sept couleurs étant composé de vent, il n'avait pas de substance corporelle. Même si son corps s'effondrait, il se reformerait instantanément. Il possédait un corps de dragon indestructible!
 

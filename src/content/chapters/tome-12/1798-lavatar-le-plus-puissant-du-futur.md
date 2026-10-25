@@ -38,7 +38,7 @@ Grâce à ses cinq métamorphoses, il possédait quelques souvenirs vagues de ce
 
 Cependant, cet endroit était extrêmement bien caché, et même lui dut chercher très longtemps pour le débusquer.
 
-Il vola sur une distance et une durée inconnues. Le Roi Moustique chercha longuement jusqu'à ce qu'il aperçoive enfin un continent circulaire!
+Il vola sur une distance et une durée inconnues. Le Roi Moustique chercha longuement jusqu'à ce qu'il aperçoive enfin le premier continent légèrement incurvé!
 
 Ou plutôt qu'un continent, il s'agissait davantage d'une immense plateforme.
 

@@ -14,9 +14,9 @@ Après avoir réfléchi un instant, la main gauche de Wang Lin traça un sceau e
 
 Finalement, Wang Lin ramassa délicatement la sphère de restriction contenant l'enfant et la pressa contre son front pour la stocker à l'intérieur de la Perle Défiant le Ciel. Il divisa une partie de son âme originelle pour qu'elle réside dans la perle, afin d'aider l'enfant à continuer de dissiper son ressentiment.
 
-Wang Lin murmura: « Quand j'aurai réglé les affaires en cours, je me retirerai en culture fermée pour dissiper ton ressentiment. Ping Er, ne t'inquiète pas. » Puis sa main droite s'étira et saisit immédiatement la quatrième âme. Il sortit le Étendard de l'Âme et y projeta l'âme.
+Wang Lin murmura: « Quand j'aurai réglé les affaires en cours, je me retirerai en culture fermée pour dissiper ton ressentiment. Ping Er, ne t'inquiète pas. » Puis sa main droite s'étira et saisit immédiatement la quatrième âme. Il sortit l'Étendard de l'Âme et y projeta l'âme.
 
-« Maître Dun Tian, ce disciple a récupéré la puissance de la quatrième âme. La véritable puissance du Étendard de l'Âme va apparaître une fois de plus! » Wang Lin se retourna et son regard se posa sur la ville au loin.
+« Maître Dun Tian, ce disciple a récupéré la puissance de la quatrième âme. La véritable puissance de l'Étendard de l'Âme va apparaître une fois de plus! » Wang Lin se retourna et son regard se posa sur la ville au loin.
 
 Wang Lin dit calmement: « Sors. »
 

@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1459 - Granting Dao
 slug: loctroi-du-dao
 ---
-« Il est fort probable que l’autre méthode envisagée par l’Empereur Céleste Antique soit liée à l’Ordre Antique! L’Empereur Céleste Antique a attiré l’Ordre Antique ici… Il a manigancé autour de l’Ordre Antique et même des trois clans. Il voulait les utiliser, à la place des esprits du Dao, pour nourrir le Dao Céleste!
+« Si je suppose que ce Ye Mo est bien de l’Ordre Antique, alors il est fort probable que l’autre méthode envisagée par l’Empereur Céleste Antique soit liée à l’Ordre Antique! L’Empereur Céleste Antique a tendu un piège et a attiré l’Ordre Antique ici depuis le monde où il se trouvait… Il a manigancé autour de l’Ordre Antique et même des trois clans. Il voulait les utiliser, à la place des esprits du Dao, pour nourrir le Dao Céleste!
 
 « Un être comme l’Empereur Céleste Antique n'agirait que s'il était sûr à 100 % de son coup, il a donc dû réussir… Cependant, comment le Dao Céleste a-t-il pu être détruit en fin de compte?
 

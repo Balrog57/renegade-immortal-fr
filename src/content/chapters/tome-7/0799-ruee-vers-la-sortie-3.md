@@ -32,9 +32,9 @@ Alors qu'il volait, Shengong Hu se retourna soudainement et vit le fragment fonc
 
 Shengong Hu s'arrêta devant Wang Lin et dit respectueusement: « Shengong Hu salue mon seigneur! » Son regard était empreint d'une profonde déférence.
 
-Un léger sourire apparut sur les lèvres de Wang Lin. Il hocha la tête et ordonna: « Assieds-toi à mes côtés et conduis-moi vers la réseau de transfert du Temple Céleste du Tonnerre! »
+Un léger sourire apparut sur les lèvres de Wang Lin. Il hocha la tête et ordonna: « Assieds-toi à mes côtés et conduis-moi vers le réseau de transfert du Temple Céleste du Tonnerre! »
 
-Shengong Hu ne daigna même pas regarder les autres sur le fragment. Il s'assit aussitôt et répondit respectueusement: « Mon seigneur, nous ne sommes plus loin de la réseau de transfert! » Tout en parlant, il indiqua la direction à suivre.
+Shengong Hu ne daigna même pas regarder les autres sur le fragment. Il s'assit aussitôt et répondit respectueusement: « Mon seigneur, nous ne sommes plus loin du réseau de transfert! » Tout en parlant, il indiqua la direction à suivre.
 
 Les occupants du fragment furent stupéfaits par cette scène. Certains connaissaient Shengong Hu; en l'entendant appeler Wang Lin « mon seigneur », ils ne purent s'empêcher de laisser libre cours à leurs pensées.
 
@@ -110,4 +110,4 @@ Chacun utilisa toute sa puissance, fusionnant sous la direction de Wang Lin avan
 
 Un grondement titanesque secoua le vide lorsque le fragment percuta l'écran de lumière, provoquant son effondrement final.
 
-D'innombrables éclats de l'écran se dispersèrent et plus de la moitié du fragment pénétra dans cet écran de lumière. Les cultivateurs s'y précipitèrent immédiatement; soudain, ce fragment céleste abritant la réseau de transfert fut envahi par une foule de cultivateurs enragés cherchant désespérément un moyen de survivre!
+D'innombrables éclats de l'écran se dispersèrent et plus de la moitié du fragment pénétra dans cet écran de lumière. Les cultivateurs s'y précipitèrent immédiatement; soudain, ce fragment céleste abritant le réseau de transfert fut envahi par une foule de cultivateurs enragés cherchant désespérément un moyen de survivre!

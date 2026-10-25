@@ -38,7 +38,7 @@ Après avoir réfléchi un moment, Wang Lin pointa la poitrine de Treize et y in
 
 Le corps de Treize redescendit lentement vers le sol.
 
-Après le temps d'écoulement d'un bâton d'encens, Treize commença à tousser violemment. Lorsqu'il parvint enfin à se redresser, il cracha une large bouffée de sang noir. Après avoir expulsé ce sang, il sentit tout son corps s'alléger.
+Quinze minutes plus tard, Treize commença à tousser violemment. Lorsqu'il parvint enfin à se redresser, il cracha une large bouffée de sang noir. Après avoir expulsé ce sang, il sentit tout son corps s'alléger.
 
 Ce n'est qu'alors qu'il réalisa qu'il se trouvait dans la vallée. Il remarqua aussitôt Wang Lin à ses côtés. Une immense excitation l'envahit. Dès qu'il l'aperçut, il se leva, s'agenouilla et resta d'une déférence absolue.
 
@@ -100,7 +100,7 @@ Cette fois, Wang Lin ne partirait pas seul. Deux jeunes l'accompagneraient, et l
 
 L'autre s'appelait Hu Pao. Originaire d'une petite tribu, il avait déjà éveillé son énergie spirituelle démoniaque. Il possédait deux étoiles de cette énergie lorsqu'il rejoignit la tribu, étant alors le premier expert de son clan d'origine.
 
-Ouyang Hua l'avait personnellement capturé et contraint à boire une soupe d'effacement de mémoire, faisant de lui un membre de la Tribu de l'Affinement de l'Âme. Ce jeune homme était doté d'un talent exceptionnel pour la culture. Avec son point de départ de deux étoiles, il avait rapidement surpassé tout le monde, talonnant même Ouyang Hua.
+Ouyang Hua l'avait personnellement capturé et contraint à boire la soupe de Séparation des Démons, faisant de lui un membre de la Tribu de l'Affinement de l'Âme. Ce jeune homme était doté d'un talent exceptionnel pour la culture. Avec son point de départ de deux étoiles, il avait rapidement surpassé tout le monde, talonnant même Ouyang Hua.
 
 À l'heure actuelle, il avait déjà atteint le cinquième stade et possédait 93 drapeaux d'âme ainsi que 31 âmes primaires. Sa force actuelle n'était guère différente de celle d'un cultivateur de la Formation du Noyau.
 

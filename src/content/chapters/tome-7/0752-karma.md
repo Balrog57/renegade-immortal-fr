@@ -72,7 +72,7 @@ Lorsque le fouet atteignit Li Yuan en plein conflit intérieur, son corps trembl
 
 Sort d'Arrêt!
 
-Le corps de Li Yuan, en pleine retraite, se figea brusquement sous l'impact du Fouet du Karma qui le frappa de nouveau.
+Le corps de Li Yuan, en pleine retraite, se figea brusquement sous l'effet du Sort d'Arrêt, et c'est alors que le Fouet du Karma le frappa de nouveau.
 
 Un claquement sec retentit, faisant frémir le corps de Li Yuan une fois de plus. La lutte sur son visage devint féroce.
 

@@ -38,7 +38,7 @@ Elle avait les yeux fermés, mais à cet instant, elle les ouvrit lentement. Ses
 
 Dans la Rivière Invoquée, un homme vêtu de vert se déplaçait parmi les étoiles. D'un air paresseux, il bâilla et marmonna en avançant:
 
-« Cette chose dont l'Oncle-Maître a parlé devrait être dans la Rivière Invoquée, mais où exactement... »
+« Cette chose dont l'Oncle-Maître Ma a parlé devrait être dans la Rivière Invoquée, mais où exactement... »
 
 Juste à ce moment, l'expression du jeune homme changea comme s'il avait ressenti quelque chose, et une expression étrange apparut sur son visage.
 

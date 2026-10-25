@@ -40,7 +40,7 @@ Sur ces mots, il leva la main droite et la pointa légèrement, provoquant un sp
 
 Le sang que Zhou Wutai avait recraché se condensa en une goutte de sang violet sombre dans la main de l'homme d'âge moyen. Celui-ci fit ensuite jaillir la goutte sur le front du dragon azur.
 
-Le dragon azur poussa un rugissement de colère, empreint de tristesse, mais une sensation de libération accompagnait ce cri. Le dragon regarda le sol, puis tout son corps s'immobilisa soudainement tandis que l'âme du dragon s'envolait pour disparaître au loin.
+Le dragon azur poussa un rugissement de colère, empreint de tristesse, mais une sensation de libération accompagnait ce cri. Le dragon contempla longuement la terre, puis tout son corps tressaillit soudainement tandis que l'âme du dragon s'envolait de sa tête pour disparaître au loin.
 
 Privé de son âme, le dragon azur se changea rapidement en montagne et retomba lourdement sur le sol.
 

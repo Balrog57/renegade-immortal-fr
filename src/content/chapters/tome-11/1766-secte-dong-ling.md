@@ -1,9 +1,9 @@
 ---
 n: 1766
-title: Secte Dong Ling
+title: Secte Dong Lin
 book: 11
 bookTitle: Mysteries of the Ancient Era
-en: Chapter 1766 - Dong Ling Secte
+en: Chapter 1766 - Dong Lin Secte
 slug: secte-dong-ling
 ---
 Grâce à l'utilisation du fou comme bouclier, la force destructrice fut affaiblie au point que l'héritage du Dao Antique de Wang Lin put y résister.
@@ -90,7 +90,7 @@ Une immense force vitale imprégnait ce monde. Cette vitalité semblait dormir a
 
 Un instant plus tard, l'expression de Wang Lin changea brusquement et il tourna la tête vers sa gauche. L'aura d'Ancien Dieu provenant de cette direction était extrêmement puissante.
 
-Après un moment de réflexion, Wang Lin réprima ses blessures et se dirigea vers cette aura. Après le temps nécessaire pour brûler un bâton d'encens, il s'arrêta. Il laissa le vent glacial fouetter son visage en regardant devant lui.
+Après un moment de réflexion, Wang Lin réprima ses blessures et se dirigea vers cette aura. Au bout d'un quart d'heure, il s'arrêta. Il laissa le vent glacial fouetter son visage en regardant devant lui.
 
 À 100 000 kilomètres de là se trouvait un autre monde gelé, où siégeait, sur un rocher conique, une femme aux longs cheveux. Elle faisait face à Wang Lin, et entre ses sourcils brillaient sept étoiles d'Ancien Dieu. Ces étoiles tournaient lentement, dégageant des vagues d'aura divine!
 

@@ -26,7 +26,7 @@ Les trois clans de l'Ordre Antique. Ces trois-là étaient totalement morts, ne 
 
 La main droite de Wang Lin toucha le corps de l'Ancien Diable. Tandis que son énergie originelle y circulait, il murmura pour lui-même: « Si je pouvais trouver le corps d'un Ancien Diable qui n'est pas encore totalement éteint... peut-être mon avatar d'Ancien Diable réussirait-il enfin! »
 
-Une demi-heure plus tard, les rivières étaient complètement asséchées, sans qu'une seule goutte de sang ne subsistât. Wang Lin semblait avoir tout pris. Même la plateforme qui reposait sur le dos de l'Ancien Dieu avait été récupérée et rangée dans son espace de stockage.
+Une heure plus tard, les rivières étaient complètement asséchées, sans qu'une seule goutte de sang ne subsistât. Wang Lin semblait avoir tout pris. Même la plateforme qui reposait sur le dos de l'Ancien Dieu avait été récupérée et rangée dans son espace de stockage.
 
 Après être revenu à la plateforme de rang 3 qu'il avait dérobée à l'estimé Ling Dong, Wang Lin agita la main. Les cent mille bêtes moustiques, dont le corps avait plus que doublé de volume, l'encerclèrent, offrant un spectacle saisissant.
 

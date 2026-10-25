@@ -36,7 +36,7 @@ Pour lui, que ce soit sur le Continent Astral Immortel ou dans le monde des grot
 
 C'était comme le sentiment d'un homme rentrant dans son petit village natal après avoir voyagé dans de grandes villes.
 
-Il était clairement écrit sur leurs visages: « Regardez, je suis allé sur le Continent Astral Immortel! Là-bas, c'est moi le patron. »
+Il était clairement écrit sur leurs visages: « Vous savez quoi, je suis allé sur le Continent Astral Immortel! Cet endroit, il est immense. »
 
 Wang Lin leva les yeux vers le ciel et dit: « Nous sommes de retour à la maison, faites ce que vous voulez. Je vais aller saluer de vieux amis. » Puis, d'un seul pas, il s'élança dans les airs.
 

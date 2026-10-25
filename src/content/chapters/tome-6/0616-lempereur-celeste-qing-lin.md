@@ -18,11 +18,11 @@ Une fois cette ouverture créée, Yao Xixue avait failli s'effondrer sous la pre
 
 Yao Xixue mordit sa lèvre inférieure. Elle n'était toujours pas disposée à répondre à cette question.
 
-Les yeux de Wang Lin s'illuminèrent d'une lueur ténue et il dit lentement: « Tu es entre mes mains depuis plus de vingt ans. Serait-il possible que tu ne désires pas ta liberté... Si tu me dis tout, je te promets de te libérer après avoir quitté le Domaine des Esprits Démoniaques! »
+Les yeux de Wang Lin s'illuminèrent d'une lueur ténue et il dit lentement: « Tu es entre mes mains depuis plus de vingt ans. Serait-il possible que tu ne désires pas ta liberté... Si tu me dis tout, je te promets de te libérer après avoir quitté le Terre des Esprits Démoniaques! »
 
 Sa voix était empreinte d'une certaine énergie démoniaque. C'était un petit sort qu'il avait appris du démon errant après avoir passé dix ans à graver son empreinte en lui.
 
-Yao Xixue poussa un léger soupir et murmura: « Je peux tout te dire, mais tu dois jurer sur ton cœur dao que tu me laisseras partir une fois que tu auras quitté le Domaine des Esprits Démoniaques! »
+Yao Xixue poussa un léger soupir et murmura: « Je peux tout te dire, mais tu dois jurer sur ton cœur dao que tu me laisseras partir une fois que tu auras quitté le Terre des Esprits Démoniaques! »
 
 « Tu n'as pas la qualification pour m'imposer des conditions. Je respecterai naturellement ma promesse! Parle, tu n'as qu'une seule chance. Si tu te tais, je te scellerai à jamais! » La voix de Wang Lin était calme, mais elle dégageait une intention glaciale.
 
@@ -32,11 +32,11 @@ Yao Xixue joua avec ses cheveux en regardant Wang Lin. Après un long moment, el
 
 L'expression de Wang Lin demeura sereine tandis qu'il la fixait froidement.
 
-Yao Xixue soupira et reprit: « C'est mon père qui m'a dit qu'il y avait au total quatre grottes ici. À l'époque, lorsque mon père, Tian Yunzi, Ling Tianhou et leurs compagnons sont venus au Domaine des Esprits Démoniaques, ils ont découvert un... secret! »
+Yao Xixue soupira et reprit: « C'est mon père qui m'a dit qu'il y avait au total quatre grottes ici. À l'époque, lorsque mon père, Tian Yunzi, Ling Tianhou et leurs compagnons sont venus au Terre des Esprits Démoniaques, ils ont découvert un... secret! »
 
 Les yeux de Wang Lin se plissèrent et il demanda calmement: « Quel secret? »
 
-« Ce Domaine des Esprits Démoniaques est, en réalité, une grotte. Je pense que tu l'as déjà deviné. Je peux te dire que ce Domaine est une grotte, et qu'elle est immense. Elle est d'une ampleur dépassant l'imagination, mais elle n'est pas seule! Il y a un total de cinq grottes! Quatre sont des leurres et une est la vraie! »
+« Ce Terre des Esprits Démoniaques est, en réalité, une grotte. Je pense que tu l'as déjà deviné. Je peux te dire que cette Terre est une grotte, et qu'elle est immense. Elle est d'une ampleur dépassant l'imagination, mais elle n'est pas seule! Il y a un total de cinq grottes! Quatre sont des leurres et une est la vraie! »
 
 Le visage de Wang Lin ne trahit aucune émotion lorsqu'il dit lentement: « Je présume que celle où tu m'as emmené était une grotte factice. »
 
@@ -70,7 +70,7 @@ Wang Lin ne pourrait jamais oublier ce qu'il avait entendu lorsqu'il était entr
 
 « Je suis Qing Lin... »
 
-« Quel genre de grotte est-ce là... Elle contient des démons anciens et un démon errant... L'ancien démon a été divisé en neuf parties par quelqu'un, il ne peut donc pas se reformer. J'en sais peu sur les démons errants, mais d'après ce qu'il disait, c'était un démon subordonné à un Diable Ancien. Ce Domaine des Esprits Démoniaques pourrait-il lui aussi abriter un Diable Ancien... »
+« Quel genre de grotte est-ce là... Elle contient des démons anciens et un démon errant... L'ancien démon a été divisé en neuf parties par quelqu'un, il ne peut donc pas se reformer. J'en sais peu sur les démons errants, mais d'après ce qu'il disait, c'était un démon subordonné à un Diable Ancien. Ce Terre des Esprits Démoniaques pourrait-il lui aussi abriter un Diable Ancien... »
 
 Plus Wang Lin obtenait d'informations, plus il avait l'impression qu'un voile de brume se dressait devant lui, une brume qu'il ne parvenait pas à déchirer. Il regarda calmement Yao Xixue et demanda: « Comment les quatre grottes factices étaient-elles réparties entre eux à l'époque? »
 
@@ -84,7 +84,7 @@ Wang Lin réfléchit un instant, puis ses yeux s'illuminèrent soudainement alor
 
 À ces mots, le cœur de Yao Xixue trembla violemment. Cependant, son visage afficha une surprise feinte et elle répondit: « Je n'ai aucune idée de ce que tu veux dire! » Son expression était parfaitement naturelle, ne laissant paraître aucun indice.
 
-« Au cours de ces dizaines de milliers d'années, le Domaine des Esprits Démoniaques a été ouvert d'innombrables fois. J'ignore combien de fois tu es venue ici, mais avec les capacités de Xue Zu, prolonger ta vie ne devrait pas être difficile. Dans cette optique, il se trouve que c'est précisément le moment où tu dois entrer dans la grotte, même au risque qu'un étranger s'en aperçoive. S'il n'y avait pas un secret derrière tout cela, je crains que tu ne sois pas aussi anxieuse! »
+« Au cours de ces dizaines de milliers d'années, le Terre des Esprits Démoniaques a été ouvert d'innombrables fois. J'ignore si tu es déjà venue ici auparavant, mais avec les capacités de Xue Zu, prolonger ta vie ne devrait pas être difficile. Dans cette optique, il se trouve que c'est précisément le moment où tu dois entrer dans la grotte, même au risque qu'un étranger s'en aperçoive. S'il n'y avait pas un secret derrière tout cela, je crains que tu ne sois pas aussi anxieuse! »
 
 « Je soupçonne que durant ces dizaines de milliers d'années, ton père, Xue Zu, n'a toujours pas pu entrer pour certaines raisons. C'est pourquoi tu es venue. Tu étais très impatiente d'obtenir le droit d'entrer dans la grotte. Je crois que tu te préparais pour l'arrivée de ton père! »
 
@@ -114,4 +114,4 @@ Yao Xixue réfléchit un instant et hocha la tête.
 
 Yao Xixue hésita un instant avant de répondre: « Dans l'Abîme des Marées. Son entrée se trouve à l'intérieur du Pays du Démon de Feu! »
 
-Wang Lin ne posa plus de questions. Sa main droite s'étira et Yao Xixue fut scellée une fois de plus. Après l'avoir remise dans le sac de stockage, il resta seul dans la tour. Ses yeux émettaient une lueur démoniaque tandis qu'il murmurait pour lui-même: « Il s'avère que ce Domaine des Esprits Démoniaques cachait un tel secret... Mon niveau de culture est bien trop faible par rapport à ces vieux maîtres. Cependant, pourquoi Tian Yunzi a-t-il été si déterminé à ce que je vienne dans ce Domaine des Esprits Démoniaques... »
+Wang Lin ne posa plus de questions. Sa main droite s'étira et Yao Xixue fut scellée une fois de plus. Après l'avoir remise dans le sac de stockage, il resta seul dans la tour. Ses yeux émettaient une lueur démoniaque tandis qu'il murmurait pour lui-même: « Il s'avère que ce Terre des Esprits Démoniaques cachait un tel secret... Mon niveau de culture est bien trop faible par rapport à ces vieux maîtres. Cependant, pourquoi Tian Yunzi a-t-il été si déterminé à ce que je vienne dans ce Terre des Esprits Démoniaques... »

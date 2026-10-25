@@ -48,7 +48,7 @@ La teinte sanglante de l'anneau de brume devint de plus en plus intense; il s'é
 
 Partout où l'anneau passait, de la brume rouge jaillissait des cratères de volcans grands et petits. Elle rejoignait l'anneau, accélérant sans cesse son expansion.
 
-Après une heure, l'anneau recouvrait tout le pays de Huo Fen tel un bol renversé. La formation de scellement du pays était désormais activée.
+Au bout de quinze minutes, l'anneau recouvrait tout le pays de Huo Fen tel un bol renversé. La formation de scellement du pays était désormais activée.
 
 Une fois la formation déployée, seuls les mortels pouvaient circuler librement. Cultivateurs comme bêtes spirituelles, tout être doté de pouvoirs et de niveau inférieur au stade de la Formation de l'Âme ne pouvait plus franchir la barrière.
 

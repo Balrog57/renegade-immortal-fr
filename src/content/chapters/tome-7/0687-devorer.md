@@ -38,7 +38,7 @@ Deux sorts inimaginables se rapprochèrent jusqu'à leur collision finale.
 
 Boum! Boum! Boum!
 
-Un rugissement tonnerre retentit à travers la planète. À cet instant, environ trente à quarante pour cent des veines spirituelles de Mille Illusions s'effondrèrent, générant de puissantes ondes de choc qui se propagèrent dans toutes les directions.
+Un rugissement tonnerre retentit à travers la planète. À cet instant, environ trente à quarante pour cent des veines spirituelles de la planète Qianhuan s'effondrèrent, générant de puissantes ondes de choc qui se propagèrent dans toutes les directions.
 
 L'impact fut si violent que tous les membres de la famille Huan furent contraints de reculer immédiatement. Ils commencèrent à activer l'énergie spirituelle ou l'énergie spirituelle céleste en eux, sentant que sans cela, leur propre corps s'effondrerait sous le choc.
 
@@ -48,7 +48,7 @@ Dès son apparition, une série de craquements s'en échappa. Sous les yeux de t
 
 Cependant, au moment de sa destruction, un rayon de lumière blanche jaillit du jade. Cette lumière forma un écran protecteur couvrant tout dans un rayon de cinq kilomètres.
 
-Le visage de l'ancêtre de la famille Huan était livide. La famille avait transmis cet héritage: si le jade se brisait, il subsisterait un ultime sort défensif. Toutefois, ce sort était très faible. Sa seule utilité consistait à gagner un peu de temps en cas de crise pour s'enfuir, se rendre, se suicider ou laisser ses dernières volontés.
+Le visage de l'ancêtre de la famille Huan était livide. La famille avait transmis cet héritage: si le jade se brisait, il subsisterait un ultime sort défensif. Toutefois, ce sort était très faible. Sa seule utilité consistait à gagner un peu de temps en cas de crise pour se rendre, se suicider ou laisser ses dernières volontés.
 
 La main droite du démon dispersé trembla, puis l'âme de la planète Qianhuan disparut. L'aura antique fusionna de nouveau avec la terre avant de s'évanouir progressivement.
 
@@ -100,7 +100,7 @@ Ces deux sorts étaient en réalité issus d'un seul domaine originel: le Dao du
 
 Après la perte de leur protection lors de l'effondrement du Royaume Céleste, la famille Huan n'avait pu maintenir sa position que grâce au Dao du Démon Céleste Sans Identité. Mais leur gloire passée s'était éteinte.
 
-C'est le domaine des Mille Illusions de Liu Mei qui avait tenté Huan Wuqing. Afin de la dévorer plus aisément par la suite, il avait délibérément altéré sa propre culture pour modifier sa lignée. Il avait également accéléré sa progression; bien que cela ne l'empêchât pas d'augmenter son niveau, cela la condamnait à n'atteindre que le stade Yin et Yang. Ainsi, elle resterait sous son contrôle total, sans poser de problème lorsqu'il la dévorerait.
+C'est le Démon Céleste des Dix Mille Illusions de Liu Mei qui avait tenté Huan Wuqing et lui avait donné l'idée de la prendre pour disciple. Afin de la dévorer plus aisément par la suite, il avait délibérément altéré sa propre culture pour modifier sa lignée. Il avait également accéléré sa progression; bien que cela ne l'empêchât pas d'augmenter son niveau, cela la condamnait à n'atteindre que le stade Yin et Yang. Ainsi, elle resterait sous son contrôle total, sans poser de problème lorsqu'il la dévorerait.
 
 Tout était calculé: il lui suffisait d'attendre que Liu Mei atteigne le stade Yin et Yang. Une fois que son domaine aurait subi sa transformation pour devenir le véritable Dao du Démon Céleste des Dix Mille Illusions, il la dévorerait pour cultiver le vrai domaine de la famille Huan: le Dao du Démon Céleste Sans Identité.
 

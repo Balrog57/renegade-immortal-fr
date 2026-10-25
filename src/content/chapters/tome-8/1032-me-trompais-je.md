@@ -26,7 +26,7 @@ Après un temps indéterminé, l'homme ouvrit lentement les yeux, laissant appar
 
 Wang Lin, qui se trouvait dans les profondeurs de l'océan, détacha son regard de la grande épée. Il la rappela, retira le Tatou Flétri et le rangea dans son sac de rangement.
 
-« Avec ce Tatou Flétri, j'aurai un moyen supplémentaire de me sauver en cas de danger, mais il est véritablement mystérieux. Après avoir quitté la Terre des Esprits Démoniques, je devrai trouver l'occasion d'en fabriquer d'autres. Cependant, d'après le gaz vert, le meilleur matériau consiste à utiliser la peau située entre les sourcils d'une bête féroce. »
+« Avec ce Tatou Flétri, j'aurai un moyen supplémentaire de me sauver en cas de danger, mais il est véritablement mystérieux. Après avoir quitté la Terre des Esprits Démoniaques, je devrai trouver l'occasion d'en fabriquer d'autres. Cependant, d'après le gaz vert, le meilleur matériau consiste à utiliser la peau située entre les sourcils d'une bête féroce. »
 
 « Plus la bête est féroce, plus cette peau sera de qualité; cela affecte même la puissance du Tatou Flétri lui-même. Il faut utiliser un sortilège pour figer l'âme et l'essence sanguine de la bête entre ses sourcils avant de prélever la peau... »
 
@@ -76,7 +76,7 @@ Ce n'est pas que Wang Lin n'avait pas envisagé de rendre Yao Xixue; il avait m�
 
 Cependant, Xue Zu n'avait laissé aucune chance à Wang Lin de s'expliquer, et les choses avaient fini par tourner ainsi. Chaque fois que Wang Lin y pensait, il soupirait. Il savait séparer la gratitude de la rancœur. Il admirait Xue Zu, c'est pourquoi il lui avait promis une autre occasion de retrouver sa fille.
 
-En arrivant en Terre des Esprits Démoniques, Wang Lin savait qu'il était probable qu'il croise Yao Xixue. Cependant, la femme dont il se souvenait était trop différente de cette figure enveloppée d'énergie démoniaque pour qu'il la reconnaisse d'emblée.
+En arrivant en Terre des Esprits Démoniaques, Wang Lin savait qu'il était probable qu'il croise Yao Xixue. Cependant, la femme dont il se souvenait était trop différente de cette figure enveloppée d'énergie démoniaque pour qu'il la reconnaisse d'emblée.
 
 En regardant Yao Xixue flotter dans les cieux, Wang Lin ne put s'empêcher de soupirer. Ces pensées traversèrent son esprit tandis que la voix de la femme continuait de lui parvenir.
 

@@ -160,7 +160,7 @@ Le visage de Zhong Grand Rouge était d'une pâleur extrême. Cette épreuve lui
 
 « Les pilules ont attiré trop l'attention, hélas... J'ai mal agi. Non seulement j'ai blessé le Compagnon Cultivateur Zhang, mais j'ai failli provoquer une catastrophe. » Zhong Grand Rouge vola à toute vitesse vers la grotte de Wang Lin.
 
-« La culture! Si j'avais eu un niveau plus élevé, comme celui de Xu Liguo, cela ne se serait pas passé ainsi! Moi, Zhong Grand Rouge, je dois devenir fort! » Il serra les dents, habité par une détermination farouche. Une heure plus tard, la grotte de Wang Lin apparut devant lui.
+« La culture! Si j'avais eu un niveau plus élevé, comme celui de Xu Liguo, cela ne se serait pas passé ainsi! Moi, Zhong Grand Rouge, je dois devenir fort! » Il serra les dents, l'esprit rempli d'incertitude. Deux heures plus tard, la montagne où se trouvait la grotte de Wang Lin apparut au bout de son regard.
 
 Après avoir atterri sur la montagne, Zhong Grand Rouge afficha une mine amère et se dirigea vers l'entrée. Il cracha une nouvelle bouchée de sang en se posant.
 

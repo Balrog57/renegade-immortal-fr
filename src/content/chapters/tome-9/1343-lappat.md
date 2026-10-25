@@ -90,7 +90,7 @@ En seulement quinze minutes, plus d'une douzaine de membres du Clan du Tonnerre 
 
 L'homme d'âge moyen, plongé dans sa rétribution, était désormais anesthésié par la terreur qui ne cessait de croître en lui. Il esquissa un sourire amer et décida simplement de fermer les yeux pour ne plus rien voir.
 
-Cette méthode était bien plus efficace que de les traquer un par un. Après une autre demi-heure, au moins cent personnes avaient été éliminées par Wang Lin!
+Cette méthode était bien plus efficace que de les traquer un par un. Après encore une heure, au moins cent personnes avaient été éliminées par Wang Lin!
 
 « Un cultivateur Briseur du Nirvana arrive enfin... » Les yeux de Wang Lin s'illuminèrent et il sourit en observant le vieil homme qui sortait de la brèche dans les nuages de rétribution, enveloppé d'éclairs!
 

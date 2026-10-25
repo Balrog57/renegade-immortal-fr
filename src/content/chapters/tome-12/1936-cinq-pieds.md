@@ -14,7 +14,7 @@ Alors que la silhouette rugissait violemment, des ondulations résonnèrent à t
 
 Il passa de 500 à 300 pieds, rapprochant encore davantage Wang Lin et l'Exalté Empyréen Hai Zi.
 
-La silhouette vague martela le rideau de lumière pendant une demi-heure avant de s'apaiser lentement. Elle fixa Wang Lin et l'Exalté Empyréen Hai Zi avant de se retirer dans les ténèbres.
+La silhouette vague martela le rideau de lumière pendant près d'une heure avant de s'apaiser lentement. Elle fixa Wang Lin et l'Exalté Empyréen Hai Zi avant de se retirer dans les ténèbres.
 
 L'Exalté Empyréen Hai Zi mordilla sa lèvre inférieure en observant le rideau de lumière au-dessus d'eux. Un instant plus tard, elle dit d'une voix sombre: « Ce rideau de lumière ne durera pas longtemps... »
 

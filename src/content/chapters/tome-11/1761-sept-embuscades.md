@@ -54,7 +54,7 @@ Le corps original, porteur de l'héritage du Dao Ancien, s'élança vers le ciel
 
 L'attaque à pleine puissance de l'héritage du Dao Ancien constituait la troisième embuscade!
 
-Après ces trois assauts, le visage de Wang Lin s'assombrit et son souffle devint court. Il se régénéra pendant la durée d'un demi-encens avant de rouvrir les yeux. D'un revers de main, il fit apparaître la Voile Fantôme. Cet objet issu du Continent Astral Immortel était un trésor puissant! Bien qu'il ne le maîtrisait pas encore totalement, il pouvait l'utiliser pour projeter des illusions. Après une courte réflexion, Wang Lin mordit son index gauche et laissa couler son sang sur le visage spectral.
+Après ces trois assauts, le visage de Wang Lin s'assombrit et son souffle devint court. Il se régénéra pendant sept minutes avant de rouvrir les yeux. D'un revers de main, il fit apparaître la Voile Fantôme. Cet objet issu du Continent Astral Immortel était un trésor puissant! Bien qu'il ne le maîtrisait pas encore totalement, il pouvait l'utiliser pour projeter des illusions. Après une courte réflexion, Wang Lin mordit son index gauche et laissa couler son sang sur le visage spectral.
 
 Le sang fut instantanément absorbé par le visage fantomatique. En seulement trois respirations, la moitié de son sang avait disparu, rendant le teint de Wang Lin livide. À la quatrième respiration, le visage cessa l'absorption et ses yeux brillèrent d'une lueur démoniaque. Wang Lin brandit la voile et l'agita; le visage fantomatique s'envola en poussant un rugissement silencieux, son corps se dilatant jusqu'à engloutir la planète avant de disparaître.
 
@@ -78,7 +78,7 @@ Une lueur froide traversa le regard de Wang Lin, mêlée à une pointe de lumiè
 
 L'Arc de Li Guang était sa dernière embuscade: la septième! Ces sept pièges composaient une trappe absolument terrifiante!
 
-Le temps s'écoula lentement. En un éclair, un autre encens se consuma. Wang Lin ouvrit les yeux, résolu. Il agita la main gauche et une baguette d'encens noire, non allumée, apparut devant lui. Il l'alluma d'un geste, et une fumée noire s'éleva dans l'air comme un signal de détresse.
+Le temps s'écoula lentement. En un éclair, quinze minutes de plus passèrent. Wang Lin ouvrit les yeux, résolu. Il agita la main gauche et une baguette d'encens noire, non allumée, apparut devant lui. Il l'alluma d'un geste, et une fumée noire s'éleva dans l'air comme un signal de détresse.
 
 Ce n'était pas fini. Une fois l'encens allumé, Wang Lin le jeta à trente pieds de là, dans les sables jaunes. La flamme vacillait tandis que la fumée devenait plus dense encore.
 

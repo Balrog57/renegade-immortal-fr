@@ -84,7 +84,7 @@ Wang Lin secoua la tête: « Ce n'est qu'une bagatelle; le Frère Mo n'a pas à 
 
 Mo Lihai reprit d'un ton lent: « Cet homme s'appelle Shi Xiao, et le pouvoir de son sort, l'Épée Démoniaque aux Six Doigts, est imprévisible! Avec l'aide de ton frère aîné, il sera l'une de mes principales menaces cette fois-ci! »
 
-Ils progressèrent rapidement sur la route militaire et, après le temps qu'il faut pour brûler un bâton d'encens, ils s'arrêtèrent devant un manoir. Bien que l'endroit ne fût pas vaste, il possédait tout le nécessaire; on y trouvait même des montagnes artificielles et des bassins d'eau. C'était fort élégant.
+Ils progressèrent rapidement sur la route militaire et, quinze minutes plus tard, ils s'arrêtèrent devant un manoir. Bien que l'endroit ne fût pas vaste, il possédait tout le nécessaire; on y trouvait même des montagnes artificielles et des bassins d'eau. C'était fort élégant.
 
 Wang Lin logea dans le bâtiment sud, juste en face de la montagne artificielle.
 

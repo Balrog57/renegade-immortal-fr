@@ -32,7 +32,7 @@ Il réfléchit un instant, puis prit la perle et quitta le jardin des herbes. À
 
 Dès son entrée, conscient que le temps pressait, il déploya rapidement son sens divin.
 
-Un quart d'heure, une demi-heure, une heure...
+Sept minutes, un quart d'heure, une demi-heure...
 
 Rien ne changeait autour de lui. Wang Lin, contrarié, se frotta le menton et marmonna: « Est-il vraiment impossible de laisser mon sens divin à l'intérieur de la perle mystérieuse? »
 

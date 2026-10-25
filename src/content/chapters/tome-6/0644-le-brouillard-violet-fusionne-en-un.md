@@ -128,7 +128,7 @@ Le sens divin de Wang Lin se déploya. Lorsqu'il vit ce qui l'attendait, il fut 
 
 La scène devant lui provoquait chez Wang Lin un intense sentiment d'incrédulité. Il eut l'impression de replonger dans le souvenir de l'ancien dieu: une planète mystérieuse grouillante de bêtes-moustiques.
 
-Le choc de Wang Lin était prévisible pour Chen Long et les autres. Cependant, ils ignoraient que non seulement Wang Lin avait reconnu ces créatures, mais qu'il les connaissait intimement. Même Tan Lang ne s'y attendait pas!
+Le choc de Wang Lin n'avait rien d'inattendu pour Chen Long et les autres : à l'époque, ils avaient réagi exactement de la même manière. Cependant, ils ignoraient que non seulement Wang Lin avait reconnu ces créatures, mais qu'il les connaissait intimement. Même Tan Lang ne s'y attendait pas!
 
 L'immense horde de bêtes-moustiques formait une masse compacte et émettait des cris stridents. En voyant apparaître des humains, elles redressèrent leurs longs appendices buccaux, révélant leur nature féroce et tyrannique!
 

@@ -83,6 +83,6 @@ Il ne fuyait plus. Alors qu'il avançait, le fourneau du Dieu Ancien brilla et i
 
 Au fond de la cinquième grotte du Royaume Céleste des Esprits, se trouvait un pont de bois. Sous le pont coulait une eau noire. Parfois, une ombre hideuse passait furtivement dans les eaux. Une personne était assise sur ce pont.
 
-Il était impossible de distinguer ses traits, mais on pouvait vaguement deviner que la silhouette portait une armure. Elle était enveloppée d'un brouillard noir dense, saturé d'énergie démoniaque. Cette énergie était si épaisse qu'on aurait dit un royaume des démons!
+Il était impossible de distinguer ses traits, mais on pouvait vaguement deviner que la silhouette portait une armure. Elle était enveloppée d'un brouillard noir dense, saturé d'énergie diabolique. Cette énergie était si épaisse qu'on aurait dit un royaume des diables!
 
 Le corps restait immobile, assis. Devant lui flottait une petite bouteille scellée par un bouchon en bois, rendant impossible de voir son contenu. L'individu dans le brouillard noir ouvrit lentement les yeux. Son regard était empreint d'une soif de sang et il se lécha les lèvres. Il parla d'une voix rauque, semblable au frottement d'ossements: « Qui sera le premier à sortir... Cela fait de nombreuses années que je n'ai pas goûté à la chair humaine... »

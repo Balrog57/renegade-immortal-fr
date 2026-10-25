@@ -124,7 +124,7 @@ C'est à cet instant qu'une voix faible, empreinte d'incertitude, retentit:
 
 Wang Ping s'arrêta, se retourna et son regard croisa celui d'une villageoise. C'était une femme d'environ quarante ans. Elle semblait un peu vieillie, mais aux yeux de Wang Ping, il crut voir la jeune fille qui lui avait dit: « Je te déteste ».
 
-À ce même instant, non loin de la lointaine planète Yun Xia, Tan Lang fonçait comme une météorite. Il observa la planète Yun Xia en reniflant, ses yeux brillant d'une lueur étrange.
+À ce même instant, dans la lointaine étendue des étoiles, aux abords de la planète Yun Xia, née de la métamorphose de Wang Yue, Tan Lang fonçait comme une météorite. Il observa la planète Yun Xia en reniflant, ses yeux brillant d'une lueur étrange.
 
 « Dès mon entrée dans le domaine nord, j'ai eu l'intuition qu'un trésor se cachait ici et j'ai suivi son aura. Cette odeur m'a conduit jusqu'ici. Il n'y a aucun doute, la brume dense dissimule manifestement la lumière du trésor. »
 

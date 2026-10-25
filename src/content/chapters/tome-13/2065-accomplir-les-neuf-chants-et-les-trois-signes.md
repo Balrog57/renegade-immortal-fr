@@ -24,7 +24,7 @@ Le corps de Gu Dao trembla et il cracha une bouchée de sang. Il recula de plus 
 
 Tandis que Wang Lin se tenait là, tout ce qui venait de se produire ressemblait à une illusion. Ses yeux restèrent clos pendant un long moment avant qu'il ne les ouvre lentement, une trace de tristesse y demeurant toujours présente. Il contempla le ciel durant un temps infiniment long.
 
-Après la durée d'un bâton d'encens, Gu Dao regarda Wang Lin d'un regard complexe et demanda lentement: « Quel pont as-tu traversé? »
+Au bout de quinze minutes, Gu Dao regarda Wang Lin d'un regard complexe et demanda lentement: « Quel pont as-tu traversé? »
 
 « Le septième pont, puis j'ai échoué au huitième. » Wang Lin ferma les yeux, comme s'il voulait préserver sa douleur.
 

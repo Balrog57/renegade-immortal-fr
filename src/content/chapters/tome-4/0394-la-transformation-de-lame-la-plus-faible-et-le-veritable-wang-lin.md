@@ -90,7 +90,7 @@ Le Parchemin de la Réincarnation Vie et Mort!
 
 Une pensée lui traversa l'esprit, puis les trois étoiles apparurent rapidement sur son front et se mirent à tourner. Bientôt, une silhouette colossale se dessina lentement derrière lui.
 
-La tête de cette figure perçait les cieux tandis que ses pieds reposaient sur le sol. Dès qu'elle apparut, sa main s'étira pour saisir le parchemin.
+La tête de cette figure perçait les cieux tandis que ses pieds reposaient sur le sol. Dès qu'elle apparut, la figure tendit les deux mains, saisit le parchemin suspendu dans le ciel et déploya les bras pour le dérouler.
 
 Cette scène bizarre laissa Li Yuanfeng pétrifié, le regard fixé vers le ciel. Il resta muet pendant un long moment. Bien qu'il sût que le domaine de Ceng Niu était lié à la vie et à la mort, l'apparition soudaine de cette entité fit trembler son cœur.
 

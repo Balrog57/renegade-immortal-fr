@@ -22,13 +22,13 @@ Son visage devint légèrement rouge. C'était le contrecoup de l'utilisation de
 
 « Il y a une tour de démon dispersé ici... Et l'Ancien Démon Bei Luo était impatient d'arriver... La Concubine Impériale Fleur avait dit qu'après l'effondrement du Royaume Céleste, l'Empereur Céleste Qing Lin avait rencontré deux êtres venus d'au-delà du monde et, gravement blessé, s'était retiré ici en culture isolée! »
 
-« Ces deux étrangers étaient probablement l'Ancien Démon Bei Luo et un ancien démon! » Au moment où Wang Lin vit la tour noire, ce fut comme si un éclair traversait son esprit; il fut soudainement illuminé.
+« Ces deux étrangers étaient probablement l'Ancien Démon Bei Luo et l'Ancien Diable! » Au moment où Wang Lin vit la tour noire, ce fut comme si un éclair traversait son esprit; il fut soudainement illuminé.
 
 Diverses pensées lui traversèrent l'esprit. Les yeux de Wang Lin brillèrent alors qu'il semblait enfin saisir la situation.
 
 « L'Ancien Démon Bei Luo a été divisé en neuf parties, puis scellé dans les Terres des Esprits Démoniaques. Après d'innombrables années, ce qui était autrefois une terre céleste est devenu une terre démoniaque... Qui a donc scellé l'Ancien Démon Bei Luo, et pourquoi n'y avait-il que des démons dispersés et non des anciens démons dans les Terres des Esprits Démoniaques? »
 
-« Où se cache l'ancien démon? En suivant cette analyse, cet ancien démon doit se trouver ici, dans la cinquième grotte, là où réside l'Empereur Céleste Qing Lin! »
+« Où se cache l'Ancien Diable? En suivant cette analyse, cet Ancien Diable doit se trouver ici, dans la cinquième grotte, là où réside l'Empereur Céleste Qing Lin! »
 
 Wang Lin fut soudainement éclairé! Il le soupçonnait depuis longtemps, et la vue de la tour du démon dispersé n'avait fait que confirmer ses spéculations!
 

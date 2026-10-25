@@ -86,7 +86,7 @@ Liu Mei se tenait au sommet d'une montagne. Une fois la montagne disparue, elle 
 
 Xu Fei et Zhou Rui volaient dans les airs. À cet instant, le temps s'arrêta et le vent se leva. Leurs corps se changèrent en cendres et furent emportés.
 
-Wang Zhuo, vêtu d'une robe noire, se tenait sur le montagne Heng Yue. Le vent souffla et son corps s'effondra.
+Wang Zhuo, vêtu d'une robe noire, se tenait sur la montagne Heng Yue. Le vent souffla et son corps s'effondra.
 
 Il y eut aussi Huang Long, ainsi que l'ancêtre de la famille Teng, et les innombrables cultivateurs de Zhao. Même hors de Zhao, il y avait Zhou Wutai qui contemplait un jeune homme devant lui: son disciple. En regardant son disciple, Zhou Wutai disparut avec lui sous l'effet du vent.
 

@@ -98,7 +98,7 @@ Une boussole gigantesque surgit de nulle part. Large de 10 000 pieds, elle déga
 
 Dans sa rotation, une force puissante se propagea.
 
-Les yeux de Wang Lin s'illuminèrent alors que son esprit se sépare de celui de Tian Yunzi. Son visage pâlit; après tout, il était trop gravement blessé et ne s'était pas encore rétabli. À cet instant, au lieu de contempler le résultat du sort des Désobéissants, il ouvrit les bras. Un gaz noir apparut et se transforma en dragons sombres qui encerclèrent les dix mille bêtes de son essaim, qui reprit sa fuite au loin!
+Les yeux de Wang Lin s'illuminèrent alors que son esprit se séparait de celui de Tian Yunzi. Son visage pâlit; après tout, il était trop gravement blessé et ne s'était pas encore rétabli. À cet instant, au lieu de contempler le résultat du sort des Désobéissants, il ouvrit les bras. Un gaz noir apparut et se transforma en dragons sombres qui encerclèrent les dix mille bêtes de son essaim, qui reprit sa fuite au loin!
 
 Peu après, un grondement sourd provint de derrière Wang Lin. Le monde lui-même semblait trembler sous l'onde de choc puissante qui se propageait. Sans se retourner, Wang Lin fonça comme un fou avec son essaim.
 

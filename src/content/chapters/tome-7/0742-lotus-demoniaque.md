@@ -22,7 +22,7 @@ Il leva la main et saisit l'un des fragments. Après l'avoir examiné avec soin,
 
 À la manière dont il déduisait les restrictions, il entreprit de déduire mentalement la combinaison la plus exacte.
 
-Le temps s'écoula lentement. Une heure plus tard, Wang Lin ouvrit les yeux et fronça les sourcils en observant les fragments devant lui.
+Le temps s'écoula lentement. Deux heures plus tard, Wang Lin ouvrit les yeux et fronça les sourcils en observant les fragments devant lui.
 
 « Il est impossible que ces pièces forment un trésor magique complet, car il en manque. » Après un moment de réflexion silencieuse, Wang Lin agita la main. Les fragments furent entourés d'énergie spirituelle céleste et se mirent à bouger, s'assemblant pour former une cruche.
 

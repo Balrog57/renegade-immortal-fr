@@ -44,7 +44,7 @@ Planète Yun Dong, domaine de la famille Zhao. La famille Zhao était la deuxiè
 
 Le chef actuel de la famille Zhao possédait un haut niveau de culture. Il avait apporté d'immenses contributions lors de la guerre contre l'Alliance et avait reçu une pilule précieuse; il se trouvait désormais au stade intermédiaire du Purificateur du Nirvana.
 
-Son statut sur la planète Yun Dong était immense et il jouissait du respect de tous. Cependant, peu savaient qu'il y a huit cents ans, il faisait partie de ceux qui avaient harcelé Xi Zifeng. Lorsque la famille Xi s'effondra, il avait secrètement tenté, par divers moyens, de capturer Xi Zifeng pour en faire son fourneau de culture.
+Son statut sur la planète Yun Dong était immense et il jouissait du respect de tous. Cependant, peu savaient qu'il y a huit cents ans, il avait été l'un des prétendants de Xi Zifeng. Lorsque la famille Xi s'effondra, il avait secrètement tenté, par des moyens brutaux, de capturer Xi Zifeng pour en faire son fourneau de culture.
 
 Bien qu'un tiers fût intervenu, cet acte avait profondément blessé Xi Zifeng, dont la famille venait de périr.
 

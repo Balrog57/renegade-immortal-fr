@@ -16,7 +16,7 @@ Dans le tournoiement de cette lumière, une ombre vague se dessinait. Cette ombr
 
 L'œil droit de l'Ancêtre Céleste était un autre monde. Les yeux de Wang Lin étaient clos alors qu'il flottait dans cet univers ténébreux, un lieu vide et imprégné d'une aura de mort.
 
-Les cheveux de Wang Lin passaient rapidement du noir au blanc. Il ne semblait pas conscient de ce changement, ses paupières restant fermées.
+Les cheveux de Wang Lin changeaient rapidement, tantôt blancs, tantôt noirs. Il ne semblait pas conscient de ce changement, ses paupières restant fermées.
 
 À l'intérieur de son corps, une lumière dorée s'échappait lentement, comme si elle traversait sa peau. Cette clarté était vacillante, pareille à une flamme prête à s'éteindre à tout instant. Wang Lin paraissait serein au cœur de cette lueur, comme s'il dormait, insensible à tout.
 

@@ -22,7 +22,7 @@ Wang Lin regarda la silhouette de Qing Shui s'éloigner et réfléchit longuemen
 
 « Cependant, j'ai pu percevoir la direction de la troisième étape grâce à la Perle Défiant le Ciel... Un jour... » Les yeux de Wang Lin brillèrent davantage alors qu'il traversait l'espace en utilisant la Déformation Spatiale.
 
-Il existait une planète de culture dans un système reculé du Domaine Sud. Cette planète se nommait Annihilation. Il y a fort longtemps, elle était célèbre non seulement dans le Domaine Sud, mais à travers tout le Système Stellaire de Luotian!
+Il existait une planète de culture dans un système reculé du Domaine Sud. Cette planète se nommait Pomie. Il y a fort longtemps, elle était célèbre non seulement dans le Domaine Sud, mais à travers tout le Système Stellaire de Luotian!
 
 C'était la famille Li, détentrice de restrictions héritées des temps anciens! Maîtrisant la Restriction d'Annihilation, la famille Li était extrêmement puissante et son nom avait autrefois ébranlé le Système Stellaire de Luotian. Cependant, avec le déclin de la lignée et la fuite de la Restriction d'Annihilation, la famille Li perdit son pouvoir.
 

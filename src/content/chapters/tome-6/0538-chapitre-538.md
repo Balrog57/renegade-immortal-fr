@@ -60,7 +60,7 @@ D'un mouvement de doigt aussi rapide que l'éclair, il pressa le front de Treize
 
 Wang Lin leva la main droite et ferma les yeux pour cultiver.
 
-Une demi-baguette d'encens plus tard, Treize ouvrit lentement les yeux. Il contempla le ciel au-dessus de la vallée dans un long silence. Puis, il se leva et s'agenouilla devant Wang Lin, le visage marqué par la douleur.
+Sept minutes plus tard, Treize ouvrit lentement les yeux. Il contempla le ciel au-dessus de la vallée dans un long silence. Puis, il se leva et s'agenouilla devant Wang Lin, le visage marqué par la douleur.
 
 Cette douleur ne venait pas de son corps, mais de son cœur.
 

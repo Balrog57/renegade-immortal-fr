@@ -100,7 +100,7 @@ Wang Lin ferma les yeux et s'immergea dans son Dao.
 
 Son Dao se composait de deux parties: le fleuve des enfers, et la formation de l'âme du fleuve des enfers.
 
-Cependant, cette prétendue « âme » du fleuve des enfers n'était en réalité que des centaines de millions d'âmes issues du drapeau d'âme, condensées ensemble. Il lui manquait encore l'intention de tuer.
+Cependant, cette prétendue « âme » du fleuve des enfers n'était en réalité que plus de cent millions d'âmes issues du drapeau d'âme, condensées ensemble. Il lui manquait encore l'intention de tuer.
 
 Bien que le fantôme céleste possédât la férocité, elle était insuffisante pour devenir l'âme du fleuve des enfers de Wang Lin. Car il n'était que féroce, mais dépourvu d'intention de tuer!
 

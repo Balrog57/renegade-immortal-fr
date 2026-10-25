@@ -60,7 +60,7 @@ Quelques êtres, également dévoreurs d'âmes, furent lentement intégrés à c
 
 Des grondements tonitruants éclatèrent alors que la puissante tempête d'âmes errantes jaillissait de la brèche de la 18e couche!
 
-C'était la première fois qu'elles quittaient le Champ de Bataille Extérieur. C'était la première fois qu'elles chargeaient sans être entravées par cette étrange loi. Bien que le Souverain les ait extraites avec Pêcher la Lune dans le Puits, même lui n'avait pu extraire la loi mystérieuse qui scellait le Champ de Bataille Extérieur.
+C'était la première fois qu'elles quittaient le Champ de Bataille Extérieur. C'était la première fois qu'elles chargeaient sans être entravées par cette étrange loi. Bien que le Souverain les ait extraites avec Pêcher la Lune dans le Puits, même lui n'avait pu faire surgir la loi mystérieuse émanant de la porte qui scellait le Champ de Bataille Extérieur.
 
 Par conséquent, ces âmes errantes pouvaient désormais se mouvoir sans aucune restriction. Leur rugissement exalté balaya la planète Suzaku.
 

@@ -28,7 +28,7 @@ Un fracas retentit. Malgré sa puissance, Qing Shui fut repoussé de 330 mètres
 
 Maître Yan Leizi fronça les sourcils; il n'avait pas imaginé que ce jeune homme maléfique entrerait dans un tel état après avoir vu le jade céleste, et il fut pris au dépourvu. En voyant son état, son cœur sombra.
 
-« Serait-il possible que l'état dans lequel il se trouve soit celui qu'il a connu après sa transformation, lorsqu'il était envahi par des pensées démoniaques? » Maître Yan Leizi bouillonnait intérieurement. Alors que Qing Shui chargeait de nouveau, les deux mains de Maître Yan Leizi formèrent un sceau. Les 49 fragments se dispersèrent soudainement et libérèrent une lueur dorée.
+« Serait-il possible que l'état dans lequel il se trouve soit celui qu'il a connu après sa transformation, lorsqu'il était envahi par des pensées diaboliques? » Maître Yan Leizi bouillonnait intérieurement. Alors que Qing Shui chargeait de nouveau, les deux mains de Maître Yan Leizi formèrent un sceau. Les 49 fragments se dispersèrent soudainement et libérèrent une lueur dorée.
 
 Les lumières d'or s'entrecroisèrent pour former une formation.
 

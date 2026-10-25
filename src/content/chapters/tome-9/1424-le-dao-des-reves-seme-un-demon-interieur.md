@@ -28,7 +28,7 @@ Le Rêve des Temps Anciens était un sort de Dieu Ancien; il ne pouvait donc pas
 
 Pourtant, ce sort était tout simplement trop magnifique. Normalement, Wang Lin n'aurait pas été capable de le comprendre, mais en s'appuyant sur le Royaume du Dao, il avait fait preuve d'une persévérance et d'une ténacité sans faille pour fusionner les deux en un seul: le Dao du Rêve!
 
-Autrefois, à l'extérieur de la faille de la Secte Démon dans la Mer des Nuages, Wang Lin ne l'avait testé que sur l'Ancien Fléau Céleste. Si Wang Lin ne le lui avait pas fait remarquer après coup, le cœur de Dao de cet Ancien se serait effondré, entraînant sa mort!
+Autrefois, à l'extérieur de la faille de la Secte Démon dans la Mer des Nuages, Wang Lin n'avait fait qu'un bref essai sur l'Ancien Fléau Céleste, qui avait failli voir son cœur de Dao s'effondrer sans même s'en apercevoir. Si Wang Lin ne le lui avait pas fait remarquer après coup, le cœur de Dao de cet Ancien se serait effondré, entraînant sa mort!
 
 Le Dao du Rêve, bien que son nom paraisse complexe, était en réalité une forme de démon intérieur!
 
@@ -56,7 +56,7 @@ Dans le Système Stellaire de la Mer des Nuages, dans un village mortel sur un c
 
 « Petite Lan, laisse-moi dormir encore un peu. Hier soir, je suis allé avec Petit Tiger et les autres voler des œufs chez les Xu, je suis épuisé... »
 
-Le garçon était un peu plus âgé. Après avoir ouvert les yeux pour marmonner quelques mots, il se rendormit.
+Le garçon était un peu plus âgé, huit ou neuf ans environ. Après avoir ouvert ses yeux ensommeillés pour marmonner quelques mots, il se rendormit.
 
 Le temps sembla s'écouler et les années passèrent... « Grand Frère, Tiger m'a harcelée aujourd'hui. Il... Il m'a embrassée en cachette! » Sur un sentier du village, un adolescent et une adolescente marchaient sous le soleil couchant.
 

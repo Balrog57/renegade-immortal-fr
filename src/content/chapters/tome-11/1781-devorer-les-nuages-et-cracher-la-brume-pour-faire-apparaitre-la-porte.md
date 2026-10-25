@@ -12,7 +12,7 @@ Quant à Su Dao, après avoir perdu l'accès à l'Art Céleste du Dao des Nuages
 
 Il avait échoué à la compétition. On pouvait dire que cet événement fut un tournant majeur dans la vie de Su Dao, une raison fondamentale de son changement de caractère.
 
-Au cours des années suivantes, Su Dao sombra dans le déclin et se raréfia, ne parlant plus guère à personne. Il s'enferma dans une culture en porte close jusqu'à ce qu'il rencontre par hasard son ancêtre. Ce dernier lui enseigna les voies, et il finit lentement par relever la tête.
+Au cours des années suivantes, Su Dao sombra dans le déclin et se raréfia, ne parlant plus guère à personne. Il s'enferma dans une culture en porte close jusqu'à ce qu'il rencontre par hasard son grand-maître. Ce dernier l'instruisit en personne, et il finit lentement par relever la tête.
 
 Malheureusement, cette période de grâce fut de courte durée. Une rencontre inattendue provoqua l'expulsion de Su Dao de la Secte Dong Lin. Après cela, au fil des éternités, le Su Dao de la Secte Dong Lin cessa d'exister. Ce qu'il restait n'était plus que le Souverain Céleste aux Sept Couleurs, qui, par sa lutte et son refus de se résigner, se transforma en cruauté et en massacres, jusqu'à ce qu'il fonde finalement la Secte des Sept Dao!
 

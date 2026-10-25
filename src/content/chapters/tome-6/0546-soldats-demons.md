@@ -94,7 +94,7 @@ Wang Lin semblait ne rien remarquer, assis là, parfaitement immobile.
 
 Dès son entrée dans le restaurant, l'homme au visage sombre avait remarqué Wang Lin et l'avait trouvé très étrange. C'était comme si deux forces s'affrontaient à mort à l'intérieur du corps de cet homme.
 
-Le premier pot de vin servait à tâter le terrain; la signification des deux suivants était évidente!
+Le premier pot de vin servait à tâter le terrain; la signification du second était bien plus évidente!
 
 Voyant que le groupe de Wang Lin ne s'était toujours pas retiré, les soldats démons s'impatientèrent. L'un d'eux cria: « Tu cherches la mort! »
 

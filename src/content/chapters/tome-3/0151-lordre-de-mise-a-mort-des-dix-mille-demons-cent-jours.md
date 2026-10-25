@@ -68,7 +68,7 @@ Par conséquent, il n'y avait aucune intention meurtrière. Au contraire, il ava
 
 L'homme gras fixa le caractère au-dessus de la tête de Wang Lin, laissa échapper un grand rire et s'exclama: « Hé hé! L'Ordre de mise à mort des Dix Mille Démons, quelle merveille! Quelle merveille! »
 
-« Cadet, je te donne un quart d'heure pour régler tes affaires avant que tu ne meures. Ne tente pas de résister; avec ta simple culture au stade initial de la Formation du Noyau, tu ne fais pas le poids face à moi, le Seigneur Démon au Manteau Noir. » Après avoir parlé, il leva les yeux vers le ciel, les mains derrière le dos, affichant une attitude comme s'il méprisait les cieux eux-mêmes.
+« Cadet, je te donne sept minutes pour régler tes affaires avant que tu ne meures. Ne tente pas de résister; avec ta simple culture au stade initial de la Formation du Noyau, tu ne fais pas le poids face à moi, le Seigneur Démon au Manteau Noir. » Après avoir parlé, il leva les yeux vers le ciel, les mains derrière le dos, affichant une attitude comme s'il méprisait les cieux eux-mêmes.
 
 Li Muwan esquissa un sourire en regardant l'arrogant homme gras, puis elle tourna les yeux vers Wang Lin et son sourire s'élargit.
 

@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 969 - Approach
 slug: approche
 ---
-Tian Yunzi était un membre du groupe des Anciens de l'Alliance, il connaissait donc naturellement des sorts puissants. Il faut dire que lorsque Tian Yunzi était à son apogée, même le Estimé Xuan Bao le craignait profondément et n'osait pas l'offenser sans réfléchir.
+Tian Yunzi était un membre du groupe des Anciens de l'Alliance, il connaissait donc naturellement des sorts puissants. Il faut dire que lorsque Tian Yunzi était à son apogée, même l'Estimé Xuan Bao le craignait profondément et n'osait pas l'offenser sans réfléchir.
 
 Bien que Tian Yunzi ne fût pas le plus puissant du groupe des Anciens de l'Alliance, même les membres les plus forts ne voulaient pas se mettre à dos Tian Yunzi! Tout cela expliquait indirectement sa puissance phénoménale.
 

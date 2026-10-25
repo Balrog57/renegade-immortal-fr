@@ -10,7 +10,7 @@ Le système stellaire de Luotian.
 
 La lueur des étoiles se répandait infiniment dans toutes les directions. Le système stellaire de Luotian était vaste et comptait de nombreuses planètes de culture. Hormis quelques individus au sein du système stellaire de l'Alliance, la plupart des cultivateurs ignoraient l'existence d'autres systèmes.
 
-Cependant, le système stellaire de Luotian était différent. Presque tous savaient qu'il existait un système stellaire sous chacun des Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de la Foudre.
+Cependant, le système stellaire de Luotian était différent. Presque tous savaient qu'il existait un système stellaire sous chacun des Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair.
 
 Cela tenait au fait que l'Alliance de Culture était la seule puissance du système stellaire de l'Alliance et qu'elle avait dissimulé bien des secrets. Wang Lin compris, la grande majorité des cultivateurs pensait que l'Alliance de Culture était l'unique puissance sous les étoiles.
 

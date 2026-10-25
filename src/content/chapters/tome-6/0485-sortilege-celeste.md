@@ -34,7 +34,7 @@ Après tout, Situ Nan ne pouvait pas désintégrer une âme originelle d'un simp
 
 Au cours du mois passé ensemble, Situ Nan lui avait expliqué les différents types de sorts utilisés par les cultivateurs, et ceux qui avaient le plus marqué Wang Lin étaient les sorts célestes.
 
-L'usage d'énergie spirituelle céleste ne faisait pas automatiquement d'un sort un sort céleste. Les véritables sorts célestes étaient des techniques si puissantes qu'elles s'équivalaient aux sceaux que l'alliance de culture octroyait aux dirigeants des planètes de culture!
+L'usage d'énergie spirituelle céleste ne faisait pas automatiquement d'un sort un sort céleste. Les véritables sorts célestes étaient des techniques si puissantes qu'elles s'équivalaient aux sceaux du Dao céleste que l'Alliance de Culture octroie aux planètes de culture!
 
 Cependant, les sceaux nécessitaient une transmission, tandis que les sorts célestes ne requéraient que le sceau et l'incantation.
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 732 - Reaching the Peak and Xu Liguos Evil Interests
 slug: atteindre-le-sommet-et-les-desseins-malefiques-de-xu-liguo
 ---
-Le cercle formé par le Fouet du Karma se relâcha, puis se transforma en un rayon de lumière avant de disparaître.
+Le cercle formé par le Fouet Kunji se relâcha, puis se transforma en un rayon de lumière avant de disparaître.
 
 Une fois fondu dans le domaine, il n'avait plus de forme physique. Comme le domaine, il se confondait avec le vide : invisible, mais que l'on pouvait ressentir.
 
@@ -36,7 +36,7 @@ Xu Liguo, qui observait la scène, eut les yeux grands ouverts. Il scruta attent
 
 « Cependant, je dois dire que le Maître a vraiment de la chance avec les bêtes. Sur ce point, moi, le vieux Xu, je ne lui arrive pas à la cheville. Moi, c'est avec les beautés que j'ai de la chance! » L'expression de Xu Liguo sombra dans la rêverie alors qu'il pensait à la petite beauté de la Terre des Esprits Démoniaques.
 
-« Hélas, depuis l'Antiquité, les sentiments mènent au regret... C'est une vérité que le vieux démon Wang ne peut comprendre. » Xu Liguo soupira, ému. Il regarda la Bête du Tonnerre, le crapaud tonnerre et les moustiques avant de lever les yeux vers Wang Lin. Il éprouva un mélange de solitude et de fierté.
+« Hélas, depuis l'Antiquité, les sentiments mènent au regret... C'est une vérité que cette étoile de malheur, le vieux diable Wang, ne peut comprendre. » Xu Liguo soupira, ému. Il regarda la Bête du Tonnerre, le crapaud tonnerre et les moustiques avant de lever les yeux vers Wang Lin. Il éprouva un mélange de solitude et de fierté.
 
 Le raffinage des trésors se poursuivit, mais ce n'était plus l'objectif principal car le temps était compté. Wang Lin décida d'utiliser ce qu'il avait perçu de la troisième étape pour ajuster ses sorts.
 
@@ -44,7 +44,7 @@ Il commença à méditer. Parmi les sorts qu'il maîtrisait, le plus puissant é
 
 Vient ensuite le sort d'Arrêt. Ce sort n'était pas moins puissant que le Coup Céleste. S'il était utilisé au moment opportun, il jouerait un rôle décisif.
 
-Outre ces deux sorts, il y avait le Doigt de la Mort, le Doigt Démoniaque et le Doigt des Enfers! Il y avait aussi les trois pensées du Dao issues du domaine de vie, de mort et de réincarnation: la Forme de la Rivière des Enfers, la Formation de l'âme de la rivière et la Puissance de la Rivière des Enfers.
+Outre ces deux sorts, il y avait le Doigt de la Mort, le Doigt Démoniaque et le Doigt des Enfers! Il y avait aussi les trois pensées du Dao issues du domaine de vie, de mort et de réincarnation: la Transformation de la Rivière des Enfers, la Condensation de l'âme de la rivière et la Puissance de la Rivière des Enfers.
 
 Ce qu'il devait ajuster, c'étaient les trois doigts! S'il continuait à les utiliser ainsi, cela lui porterait grand préjudice sur son chemin vers la troisième étape. Ces trois sorts étaient incomplets et nuiraient à son corps. Quant à savoir pourquoi ils entraveraient son ascension vers la troisième étape, Wang Lin ne le savait pas précisément, mais il en avait l'intuition.
 

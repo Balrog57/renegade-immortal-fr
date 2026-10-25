@@ -98,7 +98,7 @@ Après ses paroles, Song Tian et les autres lui jetèrent des regards froids.
 
 « Vous êtes tous venus avec l'intention d'observer la bataille. Cependant, celle-ci est terminée et les lois ici sont en plein chaos. D'après mes calculs, le monde s'effondrera totalement dans quelques jours pour devenir une zone morte.
 
-« À ce moment-là, nous perdrons tous la chance de percevoir les détails de cet affrontement. Nous n'aurons plus l'occasion d'en être les témoins.
+« À ce moment-là, à moins d'être l'un des deux combattants, nul ne pourra plus percevoir les détails de cet affrontement, et nous perdrons tous l'occasion de l'observer.
 
 « Ce vieil homme possède un sort, et je suis convaincu qu'en unissant nos forces, nous pourrons temporairement inverser le temps. Ainsi, nos Sens Divins pourront pénétrer dans le passé et nous pourrons assister personnellement à la bataille!
 
@@ -114,7 +114,7 @@ Le groupe de Song Tian se regarda et, après réflexion, acquiesça également. 
 
 Les trois possédaient aussi leurs propres méthodes; ils n'avaient donc pas peur que Jiu Di les trompe.
 
-Après la moitié d'un bâton d'encens, les sept étaient prêts. Jiu Di sortit un jade et le montra aux six autres. Ils formèrent tous des sceaux et entamèrent l'incantation.
+Sept minutes plus tard, les sept étaient prêts. Jiu Di sortit un jade et le montra aux six autres. Ils formèrent tous des sceaux et entamèrent l'incantation.
 
 Sept rayons de lumière jaillirent et enveloppèrent le champ de bataille. Un instant plus tard, un grondement de tonnerre retentit et les sept portèrent leur attention sur la scène.
 

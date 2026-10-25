@@ -61,7 +61,7 @@ Après un long moment, son regard se posa sur un petit miroir. D'après ses obse
 
 Par conséquent, il n'était pas impossible de détruire la protection de ce miroir. Wang Lin réfléchit encore un instant, rangea les autres instruments et commença à s'emparer du miroir par la force.
 
-Le temps s'écoula. Un mois et demi plus tard, Wang Lin sortit de la grotte, l'expression toujours aussi calme. Il avait réussi à détruire le Sens Divin sur le miroir et à le faire sien en trente jours, puis il lui avait fallu sept jours de raffinage pour pouvoir le contrôler sommairement. Enfin, il l'avait raffiné avec son propre feu et, après quarante-neuf jours, le miroir lui appartenait totalement.
+Le temps s'écoula. Un mois et demi plus tard, Wang Lin sortit de la grotte, l'expression toujours aussi calme. Dès trente jours plus tôt, il avait réussi à détruire le Sens Divin sur le miroir et à y imprimer le sien; après sept jours de raffinage supplémentaires, il pouvait le contrôler sommairement. Il continuait ensuite de le raffiner avec son propre feu: au bout de sept fois sept, soit quarante-neuf jours, le miroir lui appartiendrait totalement.
 
 Il avait pu ressentir les effets de cet objet durant cette période. Le pouvoir de ce miroir antique était véritablement mystérieux, semblable à celui de l'anneau des Étoiles Brisées du Chaos; il était lié aux avatars. Wang Lin était convaincu qu'il s'agissait d'un trésor célèbre autrefois, sans quoi il n'aurait pas été le trésor de vie d'un cultivateur antique.
 
@@ -141,7 +141,7 @@ Alors qu'il s'apprêtait à poser la treizième restriction après un court repo
 
 Elle hésita, serra les dents et, au lieu de ranger l'objet dans son sac de rangement, elle le glissa contre sa poitrine et sortit silencieusement de la pièce. Dehors, elle lança un regard chargé de haine vers la chambre de Wang Lin avant de le dissimuler promptement.
 
-Elle se tint devant sa porte et demanda: « Senior, êtes-vous là? » Elle resta immobile, attendant. Le temps d'un bâton d'encens plus tard, elle reprit respectueusement: « Senior, junior doit partir en voyage et souhaite solliciter votre permission. » Après avoir parlé, elle recula lentement. Même lorsqu'elle atteignit l'entrée de la grotte, Wang Lin ne réagit pas.
+Elle se tint devant sa porte et demanda: « Senior, êtes-vous là? » Elle resta immobile, attendant. Environ quinze minutes plus tard, elle reprit respectueusement: « Senior, junior doit partir en voyage et souhaite solliciter votre permission. » Après avoir parlé, elle recula lentement. Même lorsqu'elle atteignit l'entrée de la grotte, Wang Lin ne réagit pas.
 
 Le regard de la femme vacilla. Elle tapota doucement la paroi de la grotte et partit. Durant le mois où Wang Lin était resté cloîtré, elle procédait ainsi à chaque départ. Wang Lin ricana intérieurement et, après son départ, se leva pour la suivre.
 

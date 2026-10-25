@@ -22,7 +22,7 @@ Elle fixa le jade devant elle. Tandis que la lueur se diffusait, elle révéla u
 
 Après un long moment, lorsque Xi Zifeng finit par ouvrir les yeux, un sourire gracieux se dessina sur son visage. C'était un sourire d'une grande beauté.
 
-Également dans le monde des grottes, au sein d'un système stellaire désolé de la Région Extérieure, d'immenses rochers flottaient. Ils semblaient suivre une loi étrange et tournaient lentement selon un arc gigantesque.
+Également dans le monde des grottes, au sein d'un système stellaire désolé du Royaume Extérieur, d'immenses rochers flottaient. Ils semblaient suivre une loi étrange et tournaient lentement selon un arc gigantesque.
 
 Sur le grand rocher central siégeait un vieil homme. Le visage rubicond, il cultivait avec calme. De temps à autre, un rayon de lumière grise quittait son corps pour pénétrer la roche, avant de se propager afin d'être absorbé par les autres blocs de pierre.
 
@@ -50,7 +50,7 @@ En contemplant la pilule et en se remémorant le sens divin, le vieil homme ress
 
 « C'est lui... »
 
-Au même moment, alors que Wang Lin quittait le monde des grottes, les yeux du bébé endormi à l'intérieur d'une planète de la Région Extérieure tremblèrent, comme s'il allait s'éveiller.
+Au même moment, alors que Wang Lin quittait le monde des grottes, les yeux du bébé endormi à l'intérieur d'une planète du Royaume Extérieur tremblèrent, comme s'il allait s'éveiller.
 
 Mais après un long moment, il ne rouvrit pas les yeux et se calma pour replonger dans le sommeil. Une énergie spirituelle infinie convergea de l'intérieur et de l'extérieur de la planète vers le nourrisson, lui servant de nutriments pour sa croissance.
 

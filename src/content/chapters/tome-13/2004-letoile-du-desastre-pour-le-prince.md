@@ -32,7 +32,7 @@ Cependant, l'homme en armure dorée les ignora. Il observa Wang Lin avec confusi
 
 « Ce membre du clan m'est très inconnu. Je suis Liang Yun, le seigneur de la ville de la Pierre Noire. Je me demande si ce membre du clan a besoin d'aide? » L'homme à l'armure dorée joignit les mains en signe de salut vers Wang Lin.
 
-« Je suis Kong Shi », sourit l'homme d'âge mûr aux yeux démoniaques en joignant également les mains.
+« Je suis Kong Si », sourit l'homme d'âge mûr aux yeux démoniaques en joignant également les mains.
 
 Seul le jeune homme en noir fixa Wang Lin en gardant le silence.
 
@@ -56,11 +56,11 @@ En observant son interlocuteur, et plus particulièrement lorsqu'il perçut la p
 
 « Aucun problème », répondit Wang Lin avec un sourire. Ces détails insignifiants ne l'importunaient guère.
 
-Ils discutèrent encore un moment. L'homme en armure dorée et Kong Shi tentèrent de déterminer l'origine de Wang Lin, mais sans succès.
+Ils discutèrent encore un moment. L'homme en armure dorée et Kong Si tentèrent de déterminer l'origine de Wang Lin, mais sans succès.
 
 Le dialogue s'étiola peu à peu pour laisser place au silence.
 
-Ce silence ne dura pas longtemps avant que Wang Lin ne remarque quelque chose; il leva nonchalamment les yeux vers le ciel. Kong Shi, qui observait Wang Lin, fit de même en voyant son geste, mais ne vit rien.
+Ce silence ne dura pas longtemps avant que Wang Lin ne remarque quelque chose; il leva nonchalamment les yeux vers le ciel. Kong Si, qui observait Wang Lin, fit de même en voyant son geste, mais ne vit rien.
 
 Pourtant, au moment où il allait détourner le regard, ses pupilles se contractèrent. L'homme corpulent et le jeune homme en noir levèrent également les yeux vers le ciel, empreints de respect et d'excitation.
 
@@ -88,7 +88,7 @@ Non seulement eux, mais les mille soldats aux alentours s'agenouillèrent égale
 
 La seule personne, à l'intérieur comme à l'extérieur de la cité, qui ne s'était pas agenouillée était Wang Lin.
 
-L'homme en armure dorée remarqua immédiatement que Wang Lin restait debout. Il fut saisi de stupéfaction et d'incrédulité. Kong Shi éprouva le même choc, et même le jeune homme en noir laissa paraître une lueur de terreur.
+L'homme en armure dorée remarqua immédiatement que Wang Lin restait debout. Il fut saisi de stupéfaction et d'incrédulité. Kong Si éprouva le même choc, et même le jeune homme en noir laissa paraître une lueur de terreur.
 
 Comment un simple prince pourrait-il contraindre Wang Lin à s'agenouiller? Même un Grand Empyréen ne l'y aurait pas forcé. Devant l'Empereur Céleste lui-même, Wang Lin n'avait eu besoin que de joindre les mains.
 

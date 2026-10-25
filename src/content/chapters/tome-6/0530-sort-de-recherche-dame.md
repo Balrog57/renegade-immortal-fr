@@ -100,7 +100,7 @@ Il existait de nombreuses restrictions à ce sort, mais avec le niveau de cultur
 
 Des hurlements de douleur s'échappèrent de la bouche de Lou Yun. Le sort de recherche d'âme était une technique tyrannique et destructrice. Lorsqu'il est utilisé sur un être corporel, la douleur est atténuée, mais lorsqu'il frappe directement une âme originelle, elle est multipliée plusieurs fois.
 
-Les cris de Lou Yun s'étouffèrent progressivement. Au bout d'un temps équivalent à la combustion d'un bâton d'encens, ses hurlements cessèrent et son âme originelle devint presque transparente.
+Les cris de Lou Yun s'étouffèrent progressivement. Au bout de quinze minutes, ses hurlements cessèrent et son âme originelle devint presque transparente.
 
 Wang Lin leva la main gauche et plongea directement dans le dantian de Lou Yun. Lorsqu'il la retira, un cristal reposait au creux de sa paume.
 

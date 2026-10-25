@@ -26,7 +26,7 @@ Après un long moment, Wang Lin rangea le jade et regarda Yan Luan et sa compagn
 
 Wang Lin était parti avec une grande décontraction. Il n'appartenait pas au Continent du Taureau Céleste; son arrivée ou son départ n'avait donc que peu d'importance. Tel le vent, il ne laisserait peut-être aucune trace après son passage.
 
-Yan Luan et ses compagnons fixèrent l'endroit où Wang Lin avait disparu, les traits empreints de complexité, pendant la durée d'un demi-bâton d'encens. Ces mois de coexistence avaient été difficiles à oublier; c'était une expérience qu'ils garderaient en mémoire pour le reste de leur vie.
+Yan Luan et ses compagnons fixèrent l'endroit où Wang Lin avait disparu, les traits empreints de complexité, pendant sept minutes. Ces mois de coexistence avaient été difficiles à oublier; c'était une expérience qu'ils garderaient en mémoire pour le reste de leur vie.
 
 Le lendemain du départ de Wang Lin, tous les cultivateurs accompagnant Yan Luan sortirent du palais souterrain et quittèrent la Prairie de l'Extrême Ciel, abandonnant les lieux pour se diriger vers l'endroit indiqué par Ouyang Zhen, en plus d'un millier de traînées de lumière.
 

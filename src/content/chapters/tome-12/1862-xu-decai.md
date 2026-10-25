@@ -84,11 +84,11 @@ Les corps des quatre autres tremblèrent et ils tentèrent de fuir, mais leur vi
 
 Après avoir éliminé ces deux individus, la boussole interne de Wang Lin lui indiqua clairement que trois groupes de cultivateurs du Continent du Démon Vert fonçaient vers lui. Parmi eux, deux vieux monstres au stade intermédiaire de la Tribulation du Vide s'étaient détachés de leur groupe et chargeaient à pleine vitesse.
 
-À ce rythme, ils ne mettraient qu'une demi-heure à le rattraper.
+À ce rythme, ils ne mettraient pas plus d'une heure à le rattraper.
 
-Un autre cultivateur de la Tribulation du Vide, ayant quitté son groupe, chargeait également vers lui.
+Le dernier cultivateur du stade initial de la Tribulation du Vide, ayant lui aussi quitté son groupe, chargeait également vers lui.
 
-« Une demi-heure... » Les yeux de Wang Lin s'illuminèrent et il fonça sur Xu Decai. À cet instant précis, Xu Decai lança le signal de la fleur. Il était convaincu que, puisqu'il avait localisé Wang Lin, le retarder constituerait un immense mérite.
+« Une heure... » Les yeux de Wang Lin s'illuminèrent et il fonça sur Xu Decai. À cet instant précis, Xu Decai lança le signal de la fleur. Il était convaincu que, puisqu'il avait localisé Wang Lin, le retarder constituerait un immense mérite.
 
 Xu Decai ricana, indifférent au sort des autres. Alors que Wang Lin approchait, il leva brusquement sa main droite avant de la laisser retomber.
 

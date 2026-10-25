@@ -14,7 +14,7 @@ De loin, le corps colossal du Serpent aux yeux de lune et ses innombrables tenta
 
 Lie Yunzi observa Wang Lin. Il ressentit une pointe de suspicion en remarquant le changement d'expression de ce dernier lorsque le son émana de la pierre de jade.
 
-Wang Lin, qui avait cultivé pendant des milliers d'années, était extrêmement rusé. Il ne laisserait rien passer inaperçu; il esquissa alors un sourire amer et dit: « Je ne m'attendais pas à ce que cette bête nourrisse une telle rancune. Je ne m'en suis servi à l'époque que pour échapper à la traque de la famille Yao, et pourtant, elle s'est encore souvenue de moi en me voyant. »
+Wang Lin, qui cultivait depuis mille ans, était extrêmement rusé. Il ne laisserait rien passer inaperçu; il esquissa alors un sourire amer et dit: « Je ne m'attendais pas à ce que cette bête nourrisse une telle rancune. Je ne m'en suis servi à l'époque que pour échapper à la traque de la famille Yao, et pourtant, elle s'est encore souvenue de moi en me voyant. »
 
 Lie Yunzi hocha la tête et répondit: « Une fois cette bataille terminée, n'oublie pas de venir me voir pour consulter les Parchemins de Bataille restants! »
 

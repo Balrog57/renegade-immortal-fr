@@ -126,6 +126,6 @@ Le rugissement secoua le monde et fit bourdonner les oreilles de tous les cultiv
 
 « Ceci... ceci est... »
 
-Le petit serpent s'envola rapidement et grandit à vue d'œil sous les regards stupéfaits des cultivateurs. Il retrouva promptement sa taille originelle de dragon marin géant et rugit face à Maître Âme Écarlate, pétrifié:
+Le petit serpent s'envola rapidement et grandit à vue d'œil sous les regards stupéfaits des cultivateurs. Il retrouva promptement sa taille originelle, celle d'un gigantesque dragon marin long d'environ trente-trois kilomètres, et rugit face à Maître Âme Écarlate, pétrifié:
 
 « Dragon Marin... d'Or... Exalté!!! » Maître Âme Écarlate eut l'impression de rêver.

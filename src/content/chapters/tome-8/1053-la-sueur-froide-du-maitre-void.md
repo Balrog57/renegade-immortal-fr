@@ -24,7 +24,7 @@ Le ciel fut saturé de restrictions et, sous le geste de Hu Juan, toutes ces for
 
 L'Ancien Démon Bei Luo plaça ses mains sur les côtés, provoquant une puissante éruption d'énergie démoniaque qui forma un vortex tourbillonnant.
 
-« Ce démon ne veut pas se battre avec vous deux. Vous voulez sauver Qing Lin, et moi je poursuis cet ancien démon, Ta Jia. Bien que nos objectifs diffèrent, nous pouvons coopérer. Je crains que vous ne soyez pas assez forts pour briser le sceau posé par Ta Jia. Avec moi, nos chances de réussir seront plus grandes! » Bei Luo était au cœur du vortex, et l'énergie démoniaque tourbillonnait autour de lui. Sa voix, distordue par le vortex, faisait trembler quiconque l'entendait.
+« Ce démon ne veut pas se battre avec vous deux. Vous voulez sauver Qing Lin, et moi je poursuis cet Ancien Diable, Ta Jia. Bien que nos objectifs diffèrent, nous pouvons coopérer. Je crains que vous ne soyez pas assez forts pour briser le sceau posé par Ta Jia. Avec moi, nos chances de réussir seront plus grandes! » Bei Luo était au cœur du vortex, et l'énergie démoniaque tourbillonnait autour de lui. Sa voix, distordue par le vortex, faisait trembler quiconque l'entendait.
 
 Wang Lin était déjà blessé, son visage pâlit instantanément. Il sortit plusieurs pilules et les avala. Sans même prendre le temps de les digérer, il fit circuler l'énergie originelle dans son corps.
 
@@ -48,9 +48,9 @@ Il était évidemment peu opportun de sortir le corps de Qing Shuang pour le mom
 
 « Voici une pilule verte que Maître m'a donnée. Que tu cultives l'énergie spirituelle céleste ou l'énergie originelle, tant qu'il s'agit d'une énergie de ce monde, toutes les blessures peuvent être instantanément guéries par cette pilule. Je n'en ai plus beaucoup. Tu peux choisir de la prendre maintenant ou de la garder pour plus tard. » Tandis qu'il parlait, Wang Wei lança un regard froid à Bei Luo. Ce n'était pas seulement qu'il en manquait; il n'en possédait que trois au total: une avec Hu Juan et deux avec lui.
 
-Dès que Bei Luo aperçut la cire verte, la cupidité envahit son regard; il connaissait trop bien ce remède. Lorsque lui et l'Ancien Démon Ta Jia avaient attaqué Qing Lin par surprise, même avec les blessures étranges de Qing Lin, la pilule n'avait déjà plus qu'un effet limité, mais elle en avait tout de même un.
+Dès que Bei Luo aperçut la cire verte, la cupidité envahit son regard; il connaissait trop bien ce remède. Lorsque lui et l'Ancien Diable Ta Jia avaient attaqué Qing Lin par surprise, même avec les blessures étranges de Qing Lin, la pilule n'avait déjà plus qu'un effet limité, mais elle en avait tout de même un.
 
-Elle avait permis à Qing Lin de résister vigoureusement, et c'était finalement pour cela que l'ancien démon avait échoué.
+Elle avait permis à Qing Lin de résister vigoureusement, et c'était finalement pour cela que l'Ancien Diable avait échoué.
 
 « Offrir cette pilule signifie qu'ils entretiennent une relation très étroite avec Wang Lin. Cela signifie aussi qu'il leur en reste peut-être d'autres... Bien que j'ignore si c'est vrai, si un véritable combat éclate, cela sera problématique. » Le regard de Bei Luo se détourna de la pilule.
 
@@ -58,7 +58,7 @@ Tenant la pilule, Wang Lin ne la prit pas immédiatement et la rangea dans son s
 
 Zhou Yi flottait toujours aux côtés de Wang Lin. Ce dernier était très affaibli et avait besoin d'une protection, Zhou Yi ne comptait donc naturellement pas le quitter.
 
-Bientôt, le brouillard sombre apparut devant eux. Bei Luo le regarda avec haine. Si ce n'était pas pour son propre échec, l'Ancien Démon Ta Jia n'aurait jamais pu saisir cette opportunité.
+Bientôt, le brouillard sombre apparut devant eux. Bei Luo le regarda avec haine. Si ce n'était pas pour son propre échec, l'Ancien Diable Ta Jia n'aurait jamais pu saisir cette opportunité.
 
 « Cependant, ce n'est pas une mauvaise chose. Comment Qing Lin aurait-il pu être si facile à vaincre? Ta Jia n'a sans doute pas réussi, sinon il aurait quitté cet endroit depuis longtemps. »
 
@@ -94,7 +94,7 @@ Une silhouette entra lentement dans la salle. C'était une femme entourée de fl
 
 Son expression était calme. Ses yeux magnifiques balayèrent la salle et se posèrent particulièrement sur Wang Lin. Sans dire un mot, elle trouva un coin et s'assit.
 
-Moins d'un demi-bâton d'encens après l'installation de la jeune fille, Wang Lin sentit à nouveau des fluctuations à l'extérieur. Il leva les yeux et vit trois silhouettes pénétrer dans la salle!
+Moins de sept minutes après l'installation de la jeune fille, Wang Lin sentit à nouveau des fluctuations à l'extérieur. Il leva les yeux et vit trois silhouettes pénétrer dans la salle!
 
 Le Maître du Vide, la belle femme et l'homme vêtu de noir.
 

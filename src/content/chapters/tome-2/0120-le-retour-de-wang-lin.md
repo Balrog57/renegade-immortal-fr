@@ -68,7 +68,7 @@ Ma Liang avait repéré un objet magique. Il ressemblait énormément à la lueu
 
 Il adressa un sourire amer à l'épée violette devant lui, pensant secrètement que si sa navette ne lui avait pas été volée, il aurait facilement pu la rattraper sans être dans un tel état.
 
-En repensant à la navette, ses pensées dérivèrent vers cette lueur noire. Depuis plus de dix ans, il ne pouvait s'empêcher de fantasmer sur ce trésor. Puisque des membres du Clan des Démons Géants le pourchassaient pour s'en emparer, il devait s'agir d'un objet défiant les cieux.
+En repensant à la navette, ses pensées dérivèrent vers cette lueur noire. Depuis plus de dix ans, il ne pouvait s'empêcher de fantasmer sur ce trésor. Puisque des membres du Clan des Diables Géants le pourchassaient pour s'en emparer, il devait s'agir d'un objet défiant les cieux.
 
 Chaque fois qu'il y pensait, il ne pouvait que soupirer.
 

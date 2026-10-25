@@ -78,7 +78,7 @@ Le cœur de Wang Lin s'alourdit. Après réflexion, il posa sa main sur le logem
 
 Peu après, Wang Lin sentit que son énergie spirituelle s'épuisait dangereusement. Il sortit rapidement une fiole de jade et en avala le contenu pour maintenir ses réserves.
 
-Après un long moment, il cessa d'injecter son énergie et se mit à cultiver. Environ une heure plus tard, une fois totalement récupéré, il se dirigea vers le coin nord-est du réseau. Lorsqu'il avait injecté son énergie précédemment, il ne cherchait pas à l'activer, mais à vérifier son intégrité. En atteignant le coin nord-est, il sentit une immense quantité d'énergie spirituelle s'y dissiper.
+Après un long moment, il cessa d'injecter son énergie et se mit à cultiver. Environ une demi-heure plus tard, une fois totalement récupéré, il se dirigea vers le coin nord-est du réseau. Lorsqu'il avait injecté son énergie précédemment, il ne cherchait pas à l'activer, mais à vérifier son intégrité. En atteignant le coin nord-est, il sentit une immense quantité d'énergie spirituelle s'y dissiper.
 
 Il comprit alors le problème.
 

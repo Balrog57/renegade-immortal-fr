@@ -44,13 +44,13 @@ L'Exalté Empyréen Hai Zi avait de nombreux amis et avait rencontré la plupart
 
 « Ils ne sont pas des cultivateurs de niveau Exalté Empyréen, leur culture a été augmentée de force! Cela ne durera pas! » La raison pour laquelle Wang Lin en était si sûr était qu'il avait dévoré les âmes originelles de plus de trente d'entre eux. Il voulait les utiliser pour former une autre Veine Magique, mais il constata que leurs âmes n'étaient pas pures et qu'il faudrait du temps pour les raffiner.
 
-Cependant, même après les avoir toutes rassemblées, cela ne suffirait qu'à former une seule Veine Magique. En absorbant leurs âmes originelles, Wang Lin put déterminer qu'il ne leur restait qu'une heure à vivre!
+Cependant, même après les avoir toutes rassemblées, cela ne suffirait qu'à former une seule Veine Magique. En absorbant leurs âmes originelles, Wang Lin put déterminer qu'il ne leur restait que deux heures à vivre!
 
-Ils payaient un prix exorbitant, leur propre vie, en échange d'un surcroît de culture d'une heure seulement!
+Ils payaient un prix exorbitant, leur propre vie, en échange d'un surcroît de culture de deux heures seulement!
 
 Wang Lin possédait désormais cinq Veines Magiques et pouvait créer 98 images spectrales. S'il pouvait en ajouter une de plus, sa puissance de combat augmenterait considérablement.
 
-« L'ombre de l'Enseignant Impérial plane sur ce piège. Je n'ai pas encore résolu le pouvoir du motif carré, je ne l'ai fait que légèrement retarder. Si je ne parviens pas à briser ce sceau, ma puissance de combat en sera affectée! » Wang Lin s'élança dans la tempête et se rapprocha de la fin de la rue.
+« L'ombre du Maître Impérial plane sur ce piège. Je n'ai pas encore résolu le pouvoir du motif carré, je ne l'ai fait que légèrement retarder. Si je ne parviens pas à briser ce sceau, ma puissance de combat en sera affectée! » Wang Lin s'élança dans la tempête et se rapprocha de la fin de la rue.
 
 Il avait rapidement fouillé les souvenirs des âmes originelles, mais tout était un flou total. Quelqu'un avait déjà effacé ces traces.
 

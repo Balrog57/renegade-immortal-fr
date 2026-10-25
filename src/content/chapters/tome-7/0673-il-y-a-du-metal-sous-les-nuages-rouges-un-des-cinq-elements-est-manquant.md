@@ -102,7 +102,7 @@ Il se transforma en un rayon de lumière arc-en-ciel et plongea dans l'atmosphè
 
 « Je suis Huan Dong, garde de deuxième rang de la famille Huan de la planète principale des Mille Illusions. Que tous les cultivateurs Ascendants de la planète Ran Yun viennent me voir sans tarder! » Sa voix froide, chargée d'arrogance, tonna comme le tonnerre à travers la planète. Tous les cultivateurs sous le stade Ascendant furent choqués par ce cri; certains, de bas niveau, crachèrent même du sang sous l'effet du choc.
 
-La jeune femme sous le rocher était l'une d'entre eux. Elle était en pleine culture lorsqu'il fut frappé par le sens divin de Huan Dong infusé d'énergie céleste. Son cœur fut endommagé, la faisant cracher du sang et l'affaiblissant instantanément.
+Le jeune homme sous le rocher était l'un d'entre eux. Il était en pleine culture lorsqu'il fut frappé par le sens divin de Huan Dong infusé d'énergie céleste. Son cœur fut endommagé, le faisant cracher du sang et l'affaiblissant instantanément.
 
 Beaucoup de cultivateurs subissaient le même sort sur Ran Yun. L'ancêtre de la famille Ran, Xiaoyao Sanren et Sun Xi devinrent soudainement livides.
 

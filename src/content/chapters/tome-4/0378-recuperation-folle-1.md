@@ -80,7 +80,7 @@ L'expression de l'homme d'âge mûr ne trahissait aucune émotion lorsqu'il dit:
 
 Une trace d'intention meurtrière apparut dans les yeux de Wang Lin. Il se posa à 33 mètres de l'homme.
 
-« Le sommet du dernier stade de l'Établissement des Fondations... » Les pupilles de l'homme d'âge mûr se contractèrent et son cœur se mit à battre la chamade. Il avait le pressentiment que ce Qing Mu cachait quelque chose de suspect. Sa vitesse de culture était trop rapide. Lorsqu'il était arrivé ici, il n'était qu'au début du stade de l'Établissement des Fondations.
+« Le sommet du dernier stade de l'Établissement des Fondations... » Les pupilles de l'homme d'âge mûr se contractèrent et son cœur se mit à battre la chamade. Il avait le pressentiment que ce Qing Mu cachait quelque chose de suspect. En quelques mois seulement, sa culture avait progressé de façon stupéfiante. Lorsqu'il était arrivé ici, il n'était qu'au début du stade de l'Établissement des Fondations.
 
 La prochaine fois que l'homme l'avait revu, il en était au milieu du stade de l'Établissement des Fondations.
 

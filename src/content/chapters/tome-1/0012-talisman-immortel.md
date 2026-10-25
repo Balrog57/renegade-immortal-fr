@@ -18,7 +18,7 @@ Fort de cette détermination, il feignit l'indifférence, faisant mine d'être s
 
 Il procéda par expérimentations, trempant la perle dans divers liquides. Il essaya de tremper la perle dans de l'eau de source, de la rosée, de la sueur, et même du sang. Finalement, il découvrit que la rosée était, de loin, le meilleur élément.
 
-Mais il existait différents types de rosée. Celle qui apparaissait sur la perle au matin était la plus efficace, suivie par celle qui se formait durant la nuit. Si la rosée était collectée ailleurs, elle perdait son efficacité.
+Mais il existait différents types de rosée. Celle qui apparaissait sur la perle au matin était la plus efficace, suivie par celle qui se formait durant la nuit. Si la rosée était collectée sur d'autres objets pour y tremper la perle, l'effet était encore moindre.
 
 Venait ensuite l'eau de source. Le sang et la sueur étaient les moins utiles; ils n'avaient presque aucun effet.
 

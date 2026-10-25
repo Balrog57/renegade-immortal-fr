@@ -62,7 +62,7 @@ Il devait également concentrer tout son esprit pour la comprendre tout en lutta
 
 Il se devait donc d'être vigilant, mais il refusait de renoncer à cette chance de comprendre l'Origine Source. Son intention meurtrière envers Wang Lin avait atteint son paroxysme.
 
-« Il ne me faut que le temps d'un demi-bâton d'encens et je serai certain de percer le mystère de cette Origine Source! » Maître du Vide frappa son sac de rangement, et un cube de glace violet apparut dans sa main. À l'instant où il se matérialisa, toute la salle fut enveloppée d'un froid glacial.
+« Il ne me faut que sept minutes de plus et je serai certain de percer le mystère de cette Origine Source! » Maître du Vide frappa son sac de rangement, et un cube de glace violet apparut dans sa main. À l'instant où il se matérialisa, toute la salle fut enveloppée d'un froid glacial.
 
 Sentant son cœur se serrer, la moitié de l'âme originelle du Maître du Vide se divisa pour former un avatar. Ce double avala le cube de glace violet et chargea Wang Lin tel un éclair.
 

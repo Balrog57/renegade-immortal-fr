@@ -88,7 +88,7 @@ Non seulement lui, mais tous ceux qui contemplèrent les yeux argentés de Wang 
 
 « J'ai entendu dire que deux des neuf chants étaient les yeux d'argent et le corps doré! Cela... Wang Lin n'a obtenu que l'héritage de Ye Mo, comment peut-il avoir des yeux d'argent?! Même Ye Mo ne les possédait pas! »
 
-Tandis que la stupeur régnait, Xuan Luo observait Wang Lin sortir de l'entrée de la dernière couche avec une excitation manifeste. Lorsqu'il avait vu ces yeux argentés pour la première fois dans cette couche, un immense tumulte s'était emparé de son cœur.
+Tandis que la stupeur régnait, Xuan Luo observait Wang Lin sortir de l'entrée de la dernière couche avec une excitation manifeste. Lorsqu'il avait vu ces yeux argentés pour la première fois dans la dernière couche de la tombe, un immense tumulte s'était emparé de son cœur.
 
 En les revoyant maintenant, le même sentiment l'envahissait.
 

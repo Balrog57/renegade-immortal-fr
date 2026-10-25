@@ -42,7 +42,7 @@ Tenant son arc, Wang Lin ferma les yeux. De loin, il ne ressemblait plus à un c
 
 Après un long moment, de nombreux vortex apparurent dans ce monde. Une foule de personnes à sa recherche surgit de toutes parts.
 
-Outre le Tigre Blanc, les trois généraux firent leur apparition. La sixième et la troisième concubine arrivèrent également. Tous les disciples de la Secte des Sept Dao furent là, menés par un vieil homme vêtu d'une robe bleue grossière.
+À l'exception du Tigre Blanc, les trois autres généraux firent leur apparition. La sixième et la troisième concubine arrivèrent également. Tous les disciples de la Secte des Sept Dao furent là, menés par un vieil homme vêtu d'une robe bleue grossière.
 
 Le Souverain et le Maître Dao Bleu Rêve apparurent dans ce monde, tous deux l'air épuisé. Ils se regardèrent avec froideur; il était évident qu'ils s'étaient affrontés au sein des 300 mondes détruits.
 

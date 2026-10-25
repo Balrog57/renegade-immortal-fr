@@ -98,7 +98,7 @@ Une fois tout le monde parti, une voix rauque résonna dans la cavité.
 
 Ye Zizai répondit calmement: « L'énergie Yin de Wang Lin est très pure, il doit donc receler des secrets. Si c'était il y a quelques années, j'aurais pris le temps d'enquêter, mais il ne me reste plus que trois mois à vivre. Le jour où le champ de bataille s'ouvrira sera le jour où je serai entièrement dévoré, cela n'a donc plus d'intérêt. Puisque j'ai décidé de ne pas le choisir comme chaudron, autant en faire l'amorce des marionnettes, pour leur ajouter un peu de puissance. »
 
-« Luo Cha, je te demande de faire progresser Adai jusqu'au stade de la Formation du Noyau: il sera mon chaudron. Quant à la marionnette cadavérique, j'espère qu'une fois le champ de bataille ouvert, tu y entreras pour m'en choisir une. En échange, je me rendrai dans la jungle de Ku Mang pour aider le Seigneur Zi à dévorer mon jeune frère de discipline, Wu Yu. »
+« Luo Sha, je te demande de faire progresser Adai jusqu'au stade de la Formation du Noyau: il sera mon chaudron. Quant à la marionnette cadavérique, j'espère qu'une fois le champ de bataille ouvert, tu y entreras pour m'en choisir une. En échange, je me rendrai dans la jungle de Ku Mang pour aider le Seigneur Zi à dévorer mon jeune frère de discipline, Wu Yu. »
 
 La voix rauque éclata d'un rire dément et accepta la proposition.
 

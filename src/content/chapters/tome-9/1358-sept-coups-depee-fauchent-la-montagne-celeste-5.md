@@ -80,15 +80,15 @@ Voyant sa fin imminente, ses yeux s'écarquillèrent et il poussa un dernier rug
 
 « Tonnerre sacré éternel, sauve-moi, sauve-moi!!! »
 
-Alors que son cri résonnait, l'tonnerre éternel qui bombardait la tempête s'arrêta net, comme s'il avait senti le cri de mort de son serviteur. Le tonnerre gronda avec violence et se mua en un éclair divin d'environ 100 000 pieds d'épaisseur!
+Alors que son cri résonnait, le tonnerre éternel qui bombardait la tempête s'arrêta net, comme s'il avait senti le cri de mort de son serviteur. Le tonnerre gronda avec violence et se mua en un éclair divin d'environ 100 000 pieds d'épaisseur!
 
 Il chargea directement vers la tempête. La puissance du tonnerre éternel décupla et s'abattit sur l'orage. La tempête qui persistait jusqu'alors s'effondra brusquement!
 
 Des fissures lacérèrent la tempête, se multipliant jusqu'à ce qu'elle éclate et se disperse dans toutes les directions.
 
-Le Daoïste Esprit Dispersé cracha du sang et fut expulsé de sa fusion avec les 7 Millions de Mondes. L'tonnerre éternel fonça instantanément dans les 7 Millions de Mondes pour atteindre le Grand Ancien mourant. Il entra en collision avec l'inimaginable septième coup!
+Le Daoïste Esprit Dispersé cracha du sang et fut expulsé de sa fusion avec les 7 Millions de Mondes. Le tonnerre éternel fonça instantanément dans les 7 Millions de Mondes pour atteindre le Grand Ancien mourant. Il entra en collision avec l'inimaginable septième coup!
 
-Le rayon d'énergie de l'épée trembla, montrant des signes de rupture. Cependant, la lame elle-même était à l'intérieur et chargea l'tonnerre éternel!
+Le rayon d'énergie de l'épée trembla, montrant des signes de rupture. Cependant, la lame elle-même était à l'intérieur et chargea le tonnerre éternel!
 
 À cet instant, le Daoïste Esprit Dispersé forma un sceau et rugit:
 

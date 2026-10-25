@@ -96,7 +96,7 @@ Wang Lin avança d'un pas calme vers l'entrée. Là, il découvrit le cadavre d'
 
 Les yeux du singe étaient grands ouverts et ternes. Son corps était couvert de blessures d'épée, dont une plaie béante de la taille d'un bol dans l'abdomen. Il ne s'écoulait plus de sang, seule une légère odeur métallique flottait encore dans l'air.
 
-Wang Lin s'accroupit et passa la main sur sa patte droite. Il constata que toute la patte droite était brisée en plusieurs endroits. C'était manifestement le singe spirituel qui était venu plusieurs jours auparavant livrer le jade contenant la recette, et qui avait aussi autrefois emmené Cheng Xian jusqu'au patio oriental.
+Wang Lin s'accroupit et passa la main sur sa patte droite. Il constata que toute la patte droite était brisée en plusieurs endroits. C'était manifestement le singe spirituel qui était venu plusieurs jours auparavant livrer le jade contenant la recette, et qui avait aussi autrefois emmené Cheng Xian jusqu'à la cour est.
 
 Les yeux de Wang Lin s'illuminèrent. La blessure à l'abdomen du singe avait été déchirée par une main humaine. Le but était clairement de s'emparer du noyau du singe spirituel.
 

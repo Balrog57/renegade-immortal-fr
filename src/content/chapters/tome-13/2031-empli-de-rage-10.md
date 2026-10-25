@@ -10,7 +10,7 @@ Wang Lin dit doucement: « Maître... si nous devions tout recommencer, le Disci
 
 La tristesse dans les yeux de Xuan Luo s'intensifia. Il comprenait Wang Lin.
 
-« La bonté de Maître est aussi pesante qu'une montagne, et le Disciple ne l'oubliera jamais... » soupira Wang Lin avant de se lever. Il épousseta ses vêtements. En balayant la poussière, c'était comme s'il balayait ses sentiments et sa passée tolérance.
+« La bonté de Maître est aussi pesante qu'une montagne, et le Disciple ne l'oubliera jamais... » soupira Wang Lin avant de se lever. Il épousseta ses vêtements. En balayant la poussière, c'était comme s'il balayait ses attaches et toute sa patience passée, ces endurances répétées.
 
 Pour que son maître ne meure pas, il aurait pu s'agenouiller, offrir des trésors, ou endurer l'impossibilité de tuer l'Empereur Dao Antique... Il aurait pu tout faire. Il voulait simplement récupérer l'âme de Wan Er sans infliger trop de chagrin à son maître. Il cherchait un équilibre car il ne voulait pas que ceux qui lui avaient fait du bien souffrent. Il ne voulait pas blesser son maître.
 

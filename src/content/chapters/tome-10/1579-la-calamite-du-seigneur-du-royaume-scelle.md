@@ -56,7 +56,7 @@ Lanmeng Daozun observa silencieusement Wang Lin. Le temps passa lentement. Aprè
 
 « La dernière fois que le Seigneur du Royaume Scellé est mort, je ne me suis pas impliqué... Cette fois non plus, je ne t'attaquerai pas. Ce monde a été formé par l'effort conjoint de tous les puissants du Vide Arcanique du Système Stellaire Antique. Une concubine impériale céleste antique a également contribué à ce qu'il puisse briser le vide et te piéger ici sans que personne dans le Royaume Intérieur ne s'en aperçoive...
 
-« Ce monde ne peut subsister que trois heures... Durant ces trois heures, tu... trouveras difficile d'échapper à la mort!
+« Ce monde ne peut subsister que six heures... Durant ces six heures, tu... trouveras difficile d'échapper à la mort!
 
 « Ce vieil homme te connaît, alors je suis venu te prévenir. Si tu veux blâmer quelqu'un, blâme le fait que tu sois... le Seigneur du Royaume Scellé! Le Seigneur du Royaume Scellé doit mourir! » Lanmeng Daozun soupira, et sa silhouette se changea en une multitude de particules bleues qui se dissipèrent dans le vide.
 
@@ -74,7 +74,7 @@ Les yeux de Wang Lin s'illuminèrent et son expression devint extrêmement séri
 
 C'était la calamité du Seigneur du Royaume Scellé! Le précédent Seigneur était mort encerclé et tué par plusieurs puissants du Système Stellaire Antique. Tel un cycle de réincarnation, cette calamité se manifestait aujourd'hui pour Wang Lin!
 
-Trois heures!
+Six heures!
 
 Le dragon gris se rapprochait. Sans hésiter, Wang Lin fit un pas en avant et pointa le ciel. L'Appel du Vent surgit dans ce monde bleu et se divisa en treize dragons noirs d'une puissance extrême. Les treize dragons rugirent et soufflèrent un vent d'anéantissement teinté d'une lueur dorée ténue alors qu'ils fonçaient sur le dragon gris.
 
@@ -92,7 +92,7 @@ Le poing et le doigt entrèrent en collision à l'instant même. Le corps de Wan
 
 « Tu as quelques talents! »
 
-Le sang coulait au coin de sa bouche, mais son regard restait serein. Il savait que la calamité d'aujourd'hui serait périlleuse et que les trois heures qui s'annonçaient étaient aussi profondes qu'un précipice. Pourtant, accepter la mort était impensable!
+Le sang coulait au coin de sa bouche, mais son regard restait serein. Il savait que la calamité d'aujourd'hui serait très difficile à surmonter et que les six heures qui s'annonçaient étaient aussi profondes qu'un précipice. Pourtant, accepter la mort était impensable!
 
 « Personne ne peut contrôler mon destin, pas même une calamité de vie ou de mort! »
 

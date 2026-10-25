@@ -62,7 +62,7 @@ Wang Lin leva sa main droite, tenant la Restriction d'Annihilation, et ses yeux 
 
 Des grondements tonitruants retentirent tandis que toutes les Restrictions d'Annihilation du pont tremblaient et s'effondraient. Sur les dizaines de millions de sceaux présents, des millions étaient des Restrictions d'Annihilation. Elles s'écroulèrent toutes, faisant vibrer violemment le Navire Démon des Âmes.
 
-Simultanément, la Restriction de Vie et de Mort et la Restriction du Temps apparurent dans la main droite de Wang Lin. Il balaya l'ensemble du pont et, en moins de quinze minutes, d'innombrables restrictions s'effondrèrent, remplissant l'air de gaz noir.
+Simultanément, la Restriction de Vie et de Mort et la Restriction du Temps apparurent dans la main droite de Wang Lin. Il balaya l'ensemble du pont et, en l'espace de sept minutes à peine, d'innombrables restrictions s'effondrèrent, remplissant l'air de gaz noir.
 
 Le gaz noir envahit toute la zone. Même le Daoïste aux Sept Couleurs, à l'extérieur, plissa les yeux pour observer de plus près.
 

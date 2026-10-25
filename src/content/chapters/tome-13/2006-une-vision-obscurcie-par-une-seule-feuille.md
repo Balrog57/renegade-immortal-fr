@@ -50,7 +50,7 @@ Wang Lin regarda le Prince et déclara lentement: « Wang Lin. »
 
 En observant le respect affiché par le Prince, si contrastant avec son indifférence passée, les yeux de Wang Lin brillèrent d'une lueur imperceptible.
 
-« Le pouvoir impérial... reste bien faible face au véritable pouvoir... La raison pour laquelle la famille impériale dispose d'une telle autorité est principalement due au Grand Empyréen Gu Dao. Une fois que Gu Dao aura disparu, la famille impériale perdra son pouvoir, tout comme le clan céleste! » Wang Lin médita silencieusement, puis hocha la tête.
+« Le pouvoir impérial... reste bien faible face au véritable pouvoir... Si le pouvoir impérial du clan Antique peut écraser même les Grands Empyréens, c'est en réalité à cause de son lien profond avec le Grand Empyréen Gu Dao. Le jour où la menace de Gu Dao disparaîtra, le pouvoir impérial du clan Antique deviendra peu à peu semblable à celui du clan céleste! » Wang Lin médita silencieusement, puis hocha la tête.
 
 Le Prince Ji Du, ravi, s'écarta respectueusement pour laisser Wang Lin monter en premier sur le démon ancien. La femme aux côtés du Prince voulut parler, mais le regard de son frère la contra à taire ses paroles.
 

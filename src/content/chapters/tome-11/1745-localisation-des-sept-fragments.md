@@ -26,7 +26,7 @@ Cependant, alors qu'ils approchaient, l'homme leva soudainement les yeux, révé
 
 En un instant seulement, ces centaines de cultivateurs tremblèrent avant de s'effondrer, sans vie.
 
-« Le Royaume Ji... » murmura Wang Lin en observant les environs. Il fixa l'homme couvert de sang, et une lueur d'illumination traversa son regard.
+« Le Royaume Ultime... » murmura Wang Lin en observant les environs. Il fixa l'homme couvert de sang, et une lueur d'illumination traversa son regard.
 
 « Ce n'est que la première illusion, celle du pays de Qing Shui... » Wang Lin traversa les flaques de sang qui jonchaient le sol pour marcher vers l'homme.
 

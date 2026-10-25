@@ -13,7 +13,7 @@ Tandis que Wang Lin restait assis là, il s'était complètement fondu dans son 
 
 Le Tonnerre Céleste avait déjà été raffiné avec succès et était devenu l'un de ses tonnerres accompagnateurs. Le Tonnerre Terrestre avait également été dévoré par Wang Lin quelques heures auparavant.
 
-Wang Lin savait que le temps pressait. Sans hésiter, il se lança vers le quatrième type de tonnerre: le Tonnerre Originel. Ce dernier était formé par l'énergie originelle du ciel et de la terre. Après trois heures de raffinage par Wang Lin, il trembla et ne put plus résister!
+Wang Lin savait que le temps pressait. Sans hésiter, il se lança vers le quatrième type de tonnerre: le Tonnerre Originel. Ce dernier était formé par l'énergie originelle du ciel et de la terre. Après six heures de raffinage par Wang Lin, il trembla et ne put plus résister, avalé d'une seule bouchée!
 
 À cet instant, quatre types de tonnerres accompagnateurs tournaient autour de l'âme originelle du tonnerre de Wang Lin. À mesure que ces quatre types de tonnerres effectuaient leur rotation, son âme originelle devenait plus puissante encore, et sa culture du tonnerre se rapprochait du sommet du stade Briseur du Nirvana.
 

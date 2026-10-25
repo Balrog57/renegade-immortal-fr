@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 907 - Vermillion Bird Series
 slug: la-serie-de-loiseau-vermillon
 ---
-Au 17e niveau du Cimetière des Immortels sur la planète Suzaku. Au moment où Ta Shan était sur le point de franchir le 18e niveau, une voix extrêmement solennelle résonna dans le 17e niveau!
+Au 17e niveau du Clan des Immortels Délaissés sur la planète Suzaku. Au moment où Ta Shan était sur le point de franchir le 18e niveau, une voix extrêmement solennelle résonna dans le 17e niveau!
 
 « Le 18e niveau est interdit d'accès! »
 
@@ -22,7 +22,7 @@ Une ondulation résonna dans l'air et le vieux cultivateur qui ressemblait à Hu
 
 Le vieux cultivateur dégageait l'aura d'un être céleste et exerçait une pression immense sans même paraître en colère. Sa simple présence imposait un respect profond. Cependant, cette aura disparut aussitôt pour se rétracter en lui, ce qui le rendait encore plus redoutable.
 
-Après être apparu, il agita sa manche. Yun Quezi, Ta Shan, le garçon à la grosse tête et Lei Ji ne ressentirent qu'une puissante bourrasque de vent. Ils disparurent, directement expulsés hors du Cimetière des Immortels.
+Après être apparu, il agita sa manche. Yun Quezi, Ta Shan, le garçon à la grosse tête et Lei Ji ne ressentirent qu'une puissante bourrasque de vent. Ils disparurent, directement expulsés hors du territoire du Clan des Immortels Délaissés.
 
 Les pupilles de Wang Lin se rétractèrent tandis que des centaines d'idées traversaient son esprit. Ce vieux cultivateur avait renvoyé tout le monde sauf lui; ses actions recelaient donc une signification profonde. Ses yeux brillèrent imperceptiblement avant qu'il ne s'incline immédiatement avec respect: « Le disciple Wang Lin de la Secte Heng Yue salue le Maître de Secte! »
 

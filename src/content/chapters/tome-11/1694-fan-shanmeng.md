@@ -38,7 +38,7 @@ Bien qu'il fût plongé dans un silence absolu, lorsque Wang Lin fut fixé par c
 
 Ce son pénétra son mental et fit changer son expression. Il ne put s'empêcher de reculer de quelques pas.
 
-« Restriction du Temps, Restriction de la Vie et de la Mort, Restriction de l'Âme Ancienne, Restriction de l'Annihilation... Non seulement ce navire possède les quatre anciennes restrictions, mais il y en a aussi beaucoup que je n'ai jamais vues auparavant... »
+« Restriction du Temps, Restriction de la Vie et de la Mort, Restriction de l'Âme Ancienne, Restriction de l'Annihilation... Non seulement ce navire possède les quatre grandes restrictions, mais il y en a aussi beaucoup que je n'ai jamais vues auparavant... »
 
 « Si j'avais le temps de maîtriser et d'étudier toutes ces restrictions, je pourrais atteindre un stade de petite maîtrise dans mon essence des restrictions! » Les yeux de Wang Lin reflétaient une lueur étrange. Sa connaissance des restrictions était extraordinaire, mais malheureusement, la plupart d'entre elles dans ce monde caverneux étaient incomplètes. S'il essayait de les déduire par la force, cela ne ferait que lui faire perdre du temps et ses efforts seraient vains.
 
@@ -52,7 +52,7 @@ Peu après que Wang Lin eut observé les lieux, une lumière vive et multicolore
 
 Des grondements tonitruants résonnèrent soudainement!
 
-Alors que le pont du navire tremblait violemment, un fracas sourd provint de l'extérieur. Wang Lin se tourna pour regarder à travers les couches de protection. Il vit qu'au cœur de la lumière multicolore se trouvait le calme Daoïste aux Sept Couleurs, qui semblait tenir le monde entre ses doigts.
+Alors que le pont du navire tremblait violemment, un fracas sourd provint de l'extérieur. Wang Lin se tourna pour regarder à travers les couches de protection. Il vit qu'au cœur de la lumière multicolore se trouvait le Daoïste aux Sept Couleurs, toujours impassible, comme si rien au monde ne pouvait le faire ciller ni changer d'expression.
 
 Les grondements tonitruants retentirent une fois de plus et, alors que le pont vacillait, la couche de protection la plus externe s'effondra. L'impact repoussa le navire géant de plusieurs centaines de pieds.
 

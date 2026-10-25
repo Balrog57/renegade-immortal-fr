@@ -28,7 +28,7 @@ Une vaste cité apparut au loin. Cette ville, semblable à un dragon enroulé, e
 
 Avant même de s'en approcher, Wang Lin perçut la présence de nombreuses restrictions puissantes à l'intérieur de la ville. Elles étaient si nombreuses que, si elles étaient toutes activées, elles représenteraient une menace réelle, même pour des cultivateurs Ascendants.
 
-C'était la seule cité impériale mortelle de la planète Suzaku en dehors des terres occupées par le Clan des Immortels Délaissés!
+C'était la capitale du seul empire mortel du pays de Suzaku, sur la planète Suzaku, en dehors des terres occupées par le Clan des Immortels Délaissés!
 
 La Grande Dynastie Wang!
 

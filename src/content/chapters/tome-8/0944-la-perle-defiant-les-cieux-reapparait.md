@@ -34,7 +34,7 @@ Les étoiles tournèrent rapidement entre ses sourcils jusqu'à ce qu'il soit im
 
 Ce coup déclencha immédiatement une tempête. Le vide devant lui fut repoussé comme s'il était lacéré, et une force puissante balaya l'espace.
 
-La grande main de lumière cristalline fut stoppée par le coup de poing de Wang Lin. Cependant, dans un fracas qui fit trembler les cieux, la main de Wang Lin et la main dorée entrèrent en collision.
+La grande main de lumière cristalline fut stoppée par le coup de poing de Wang Lin. Cependant, dans un fracas qui fit trembler les cieux, le poing de Wang Lin et la grande main de lumière cristalline entrèrent en collision.
 
 Bang! Bang! Bang! Bang!
 
@@ -60,7 +60,7 @@ Une goutte de liquide noir apparut et disparut au sein du vortex.
 
 Au moment où le filet dans le vide allait se retirer totalement, la marque lunaire perça soudainement la barrière. Elle grandit dans le vide jusqu'à atteindre plus d'un kilomètre de haut, devenant comparable à Wang Lin.
 
-« Dieu Dévoreur Lunaire Céleste! » Les yeux du vieil homme s'écarquillèrent et une multitude de veines saillirent sur son visage. En s'étendant, elles se rassemblèrent sous la marque lunaire, lui donnant un aspect féroce.
+« Immortel de la Lune, dévore le dieu! » Les yeux du vieil homme se firent féroces et une multitude de veines saillirent sur son visage. En s'étendant, elles se rassemblèrent sous la marque lunaire, lui donnant un aspect féroce.
 
 Dès qu'il eut prononcé ces mots, la marque sembla bouillir et émit une lueur démoniaque. Puis, une bouche gigantesque apparut sur l'empreinte lunaire et chargea pour dévorer Wang Lin.
 

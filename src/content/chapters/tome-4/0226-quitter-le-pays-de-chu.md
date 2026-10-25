@@ -110,11 +110,11 @@ Le vieil homme sembla lutter intérieurement. Après un long moment, il soupira:
 
 Le vieil homme aux allures féeriques laissa échapper un sourire amer et regarda les autres ancêtres. L'un d'eux, voyant le corps de Chen Bailiang, soupira: « Soit! Soit! » Il pointa son doigt vers son front et remit son sang d'âme. Il s'assit au sol et commença à cultiver les yeux fermés, délaissant tout le reste.
 
-À ce stade, seul le vieil homme aux allures féeriques restait. Il réfléchit un instant, puis désigna la personne piégée dans le drapeau de restriction. Il dit avec un sourire amer: « Pourriez-vous s'il vous plaît ne pas tuer Yun Tianzi? »
+À ce stade, seul le vieil homme aux allures féeriques restait. Il réfléchit un instant, puis désigna la personne piégée dans le drapeau de restriction. Il dit avec un sourire amer: « Pourriez-vous, s'il vous plaît, ne pas tuer Tian Yunzi? »
 
-Wang Lin agita la main droite. Une fissure apparut immédiatement dans le drapeau et Yun Tianzi s'en échappa rapidement. Le visage de Yun Tianzi était sombre. À peine sorti, alors qu'il s'apprêtait à parler, il sentit que quelque chose n'allait pas. Après avoir observé attentivement les environs, son expression changea radicalement.
+Wang Lin agita la main droite. Une fissure apparut immédiatement dans le drapeau et Tian Yunzi s'en échappa rapidement. Le visage de Tian Yunzi était sombre. À peine sorti, alors qu'il s'apprêtait à parler, il sentit que quelque chose n'allait pas. Après avoir observé attentivement les environs, son expression changea radicalement.
 
-Le vieil homme aux allures féeriques soupira et envoya rapidement une transmission vocale à Yun Tianzi. Ce dernier parut troublé en regardant le vieillard.
+Le vieil homme aux allures féeriques soupira et envoya rapidement une transmission vocale à Tian Yunzi. Ce dernier parut troublé en regardant le vieillard.
 
 Les deux hommes réfléchirent un moment. Leurs visages étaient blêmes lorsqu'ils remirent finalement leur sang d'âme à Wang Lin.
 
@@ -228,11 +228,11 @@ Les trois autres levèrent également les sourcils. La longévité était une qu
 
 « J'en ai cinq ici. Vous quatre pouvez les examiner. » Li Muwan sourit et sortit une bouteille. Elle versa les pilules et les tendit aux anciens.
 
-Le vieil homme regarda les pilules, puis les deux autres ancêtres, avant que leurs regards ne se posent sur Yun Tianzi. Ce dernier, ému, examina la pilule avec sérieux. Il leva les yeux vers Li Muwan: « Vous avez raffiné cette pilule? »
+Le vieil homme regarda les pilules, puis les deux autres ancêtres, avant que leurs regards ne se posent sur Tian Yunzi. Ce dernier, ému, examina la pilule avec sérieux. Il leva les yeux vers Li Muwan: « Vous avez raffiné cette pilule? »
 
 Li Muwan sourit faiblement: « Je l'ai raffinée, mais mon mari a fourni les matériaux. » Ces pilules avaient été créées à partir de liquide spirituel.
 
-Yun Tianzi réfléchit un instant. Il regarda Wang Lin et s'exclama: « Très bien! Le fait que vous remettiez nos sangs d'âme à l'ancienne Li signifie que vous allez partir. Si vous nous fournissez ces pilules à temps, je garantis sa sécurité pendant 500 ans! »
+Tian Yunzi réfléchit un instant. Il regarda Wang Lin et s'exclama: « Très bien! Le fait que vous remettiez nos sangs d'âme à l'ancienne Li signifie que vous allez partir. Si vous nous fournissez ces pilules à temps, je garantis sa sécurité pendant 500 ans! »
 
 Wang Lin hocha la tête: « Très bien! »
 
@@ -242,7 +242,7 @@ Song Qing regarda Wang Lin et répondit rapidement: « Il est en train de raffin
 
 Li Muwan eut un petit rire: « Le frère Ouyang Zi est un alchimiste de rang 5 comme moi. S'il en veut, il peut en avoir. Ce ne sont que des pilules de rang 5. »
 
-Puis, elle s'adressa à Wang Lin pour expliquer: « Parmi les trois alchimistes de rang 5 de la Secte du Ciel Nuageux, outre Wan Er et Ouyang Zi, le troisième est le senior Yun Tianzi. »
+Puis, elle s'adressa à Wang Lin pour expliquer: « Parmi les trois alchimistes de rang 5 de la Secte du Ciel Nuageux, outre Wan Er et Ouyang Zi, le troisième est le senior Tian Yunzi. »
 
 Wang Lin acquiesça, observant silencieusement Li Muwan gérer la situation.
 

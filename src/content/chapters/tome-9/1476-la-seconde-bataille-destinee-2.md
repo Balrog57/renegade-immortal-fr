@@ -68,7 +68,7 @@ S'il continuait ainsi, son corps s'effondrerait une fois de plus et il mourrait!
 
 Alors que la force de rejet devenait plus féroce, l'aura d'héritage déferla également. Wang Lin l'absorba avec frénésie, et le cyclone représentant la huitième étoile devint de plus en plus distinct!
 
-Le corps de démon ancien qui n'avait pas été détruit reposait à ses côtés. Tandis que l'énergie démoniaque y affluait, les deuxième, troisième et quatrième étoiles de démon ancien apparurent dans son œil droit!
+Le corps de Diable Ancien qui n'avait pas été détruit reposait à ses côtés. Tandis que l'énergie démoniaque y affluait, les deuxième, troisième et quatrième étoiles de Diable Ancien apparurent dans son œil droit!
 
 Alors que Wang Lin continuait d'absorber l'aura d'héritage par la force, du sang jaillit de son œil gauche, lui infligeant une douleur atroce!
 

@@ -10,7 +10,7 @@ Cette mer de sang noire bougeait au rythme du vortex. De loin, elle ressemblait 
 
 Cette fontaine de sang était semblable à une immense gueule béante qui ne cessait de s'élever. En un instant, plus de la moitié de la distance de 10 000 pieds séparant le vortex de Wang Lin fut parcourue.
 
-Wang Lin tenait Situ Nan dans ses bras alors que son énergie originelle bouillonnait frénétiquement et que des flammes infinies enveloppaient son corps. Sa main traça un sceau, et les plus de dix grandes épées plongèrent dans les flammes. La rotation des lames attisait le feu pour repousser la mer de sang et son odeur infecte.
+Wang Lin tenait Situ Nan par une prise à distance, tandis que toute son énergie originelle circulait à toute vitesse et que des flammes infinies enveloppaient son corps. Sa main traça un sceau, et les plus de dix grandes épées plongèrent dans les flammes. La rotation des lames attisait le feu pour repousser la mer de sang et son odeur infecte.
 
 Alors que la mer de flammes brûlait en craquant, l'aura maléfique était constamment consumée, l'empêchant de s'approcher.
 

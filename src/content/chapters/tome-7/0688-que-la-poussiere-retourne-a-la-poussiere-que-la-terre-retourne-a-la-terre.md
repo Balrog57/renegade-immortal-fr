@@ -72,7 +72,7 @@ Le sort du Démon Céleste Sans Identité était prodigieux, et il n'en avait pa
 
 Pourtant, à cet instant précis, une masse de fumée noire jaillit soudainement du sommet de la tête de Wang Lin. Le démon dispersé s'extirpa du corps de Wang Lin et bondit dans les airs avec un rire extatique. Simultanément, il ouvrit la bouche et commença à dévorer. En un instant, la majorité des illusions furent englouties par lui.
 
-« Quelles délicieuses nutriments! Vous, les petits enfants, convenez parfaitement aux goûts de ce démon. Vous savez vraiment comment honorer ma présence. Si je n'avais pas déjà fait une promesse, je ne voudrais vraiment pas vous tuer! » Le démon dispersé rit et prit une autre bouchée.
+« Quel délicieux festin fortifiant! Vous, les petits enfants, convenez parfaitement aux goûts de ce démon. Vous savez vraiment comment honorer ma présence. Si je n'avais pas déjà fait une promesse, je ne voudrais vraiment pas vous tuer! » Le démon dispersé rit et prit une autre bouchée.
 
 Privé du démon dispersé, Wang Lin reprit le contrôle de son corps. En un éclair, il atteignit le sol et, d'un seul pas, se tint devant Liu Mei.
 

@@ -108,7 +108,7 @@ Une sueur froide perla sur le front du vieil homme. Son calme s'était évanoui 
 
 Ce qui le terrifiait davantage était l'aura émanant de l'ondulation: celle du jeune homme qui en sortait semblait fusionner parfaitement avec le ciel et la terre.
 
-« Trop terrifiant... Je connais tous les cultivateurs du Yang Corporel, mais qui est-il?! » Son visage était livide et la sueur coulait sur son front. L'intention meurtrière de l'inconnu était si intense qu'elle faisait trembler son esprit. Inconsciemment, il recula de quelques pas, avec l'envie irrépressible de s'enfuir immédiatement.
+« Trop terrifiant... Je connais tous les cultivateurs du Yang Corporel entrés dans le Royaume Céleste du Tonnerre, mais qui est-il?! » Son visage était livide et la sueur coulait sur son front. L'intention meurtrière de l'inconnu était si intense qu'elle faisait trembler son esprit. Inconsciemment, il recula de quelques pas, avec l'envie irrépressible de s'enfuir immédiatement.
 
 Non loin de là, la femme était pétrifiée. La scène qui venait de se dérouler avait laissé son esprit totalement vide.
 

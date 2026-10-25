@@ -60,7 +60,7 @@ Il ne fallut pas longtemps pour que tous les pétales dorés tombent. Cependant,
 
 Après les pétales vinrent les Fruits d'Or Brillants. Ils fondirent également en gouttes de liquide doré qui s'imprégnèrent dans la terre.
 
-Enfin, ce furent les tiges. Tout ce processus dura la moitié d'un bâtonnet d'encens. Passé ce délai, il ne restait plus rien au sol.
+Enfin, ce furent les tiges. Tout ce processus dura environ sept minutes. Passé ce délai, il ne restait plus rien au sol.
 
 Le moustique poussa un cri de détresse. Sa tête s'affaissa et il commença à errer tristement dans les airs.
 

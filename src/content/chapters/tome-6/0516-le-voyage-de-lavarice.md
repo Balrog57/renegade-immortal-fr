@@ -48,7 +48,7 @@ Les vêtements des centaines de disciples furent violemment projetés en arrièr
 
 Peu après, un arc-en-ciel large d'environ 330 mètres jaillit soudainement vers le haut, perçant les cieux. Des cercles de lumière commencèrent à se propager dans l'éther, et la majeure partie de la voûte céleste de la planète fut recouverte par cette ondulation de lumière.
 
-Les ondulations durèrent la moitié d'un bâton d'encens avant de s'estomper.
+Les ondulations durèrent environ sept minutes avant de s'estomper.
 
 Au moment où l'arc-en-ciel fendit le ciel, la jeune fille restée près de la matrice afficha une pointe de fierté. Sa main droite effleura son sac de rangement et un jade apparut dans sa paume.
 

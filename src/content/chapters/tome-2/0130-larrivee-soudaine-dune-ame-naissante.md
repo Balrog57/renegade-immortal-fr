@@ -84,7 +84,7 @@ L'apparence de cet homme était tout à fait ordinaire, si ce n'est que ses yeux
 
 Wang Lin le regarda, puis s'envola sans même lui accorder une seconde attention.
 
-Sun Youcai le suivit rapidement et demanda d'un ton volubile: « Camarade cultivateur, de quelle secte venez-vous? Je suis un disciple de la Secte Démon. »
+Sun Youcai le suivit rapidement et demanda d'un ton volubile: « Camarade cultivateur, de quelle secte venez-vous? Je suis un disciple de la Secte Démoniaque. »
 
 Le sourcil de Wang Lin se fronça légèrement. Sans dire un mot, il utilisa son énergie spirituelle pour accélérer. Sa vitesse augmenta soudainement, laissant Sun Youcai loin derrière. Ce dernier le regarda et ricana intérieurement tout en gardant une expression neutre. Il se tapa les cuisses et, d'un bond, rattrapa Wang Lin en un clin d'œil. Il poursuivit: « Camarade cultivateur, je suis vraiment désolé pour ce qui s'est passé. C'est entièrement la faute de cette fille. Ah, vous allez à l'Atelier du Ravin, n'est-ce pas? Et si nous faisions route ensemble? Je connais beaucoup de monde dans les environs et je peux même vous dénicher quelques femmes-fourneaux du pays de Zhou au stade de la Condensation de Qi. »
 

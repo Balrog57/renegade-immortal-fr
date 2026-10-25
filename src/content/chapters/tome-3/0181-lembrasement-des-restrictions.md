@@ -108,7 +108,7 @@ Certaines restrictions ne pouvaient plus être simplement brisées; d'autres exi
 
 Alors qu'il sortait d'une autre restriction, il se trouvait à moins de six cent soixante mètres du sommet. Comme aucun obstacle ne bloquait plus sa vue, il aperçut le Seigneur Démon des Six Désirs dont l'expression était sombre. Derrière lui trônait un tourbillon noir menant vers l'inconnu, et au centre se trouvait le jeune homme qui suivait le démon.
 
-Le Seigneur Démon des Six Désirs observa l'Empereur Antique. Il ne s'attendait pas à ce qu'il arrive si vite. S'il avait eu le temps de brûler un bâton d'encens, il aurait pu achever la restriction du tourbillon. Bien que cela n'eût duré que trois respirations, c'était amplement suffisant pour lui.
+Le Seigneur Démon des Six Désirs observa l'Empereur Antique. Il ne s'attendait pas à ce qu'il arrive si vite. S'il avait disposé de quinze minutes de plus, il aurait pu achever la restriction du tourbillon. Bien que cela n'eût duré que trois respirations, c'était amplement suffisant pour lui.
 
 Mais l'apparition soudaine de l'Empereur Antique l'obligea à modifier ses plans.
 

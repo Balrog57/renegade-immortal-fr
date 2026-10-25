@@ -50,23 +50,23 @@ C'était un homme d'âge moyen vêtu de noir, portant une couronne taoïste, les
 
 « Un vieux monstre Ascendant! »
 
-« C'est le Roi Démon Noir du Mont Wuyi! La rumeur dit qu'il est au sommet de la phase initiale de l'Ascendance et qu'il pourrait atteindre la phase médiane à tout moment! »
+« C'est le Roi Diable Noir du Mont Wuyi! La rumeur dit qu'il est au sommet de la phase initiale de l'Ascendance et qu'il pourrait atteindre la phase médiane à tout moment! »
 
 « On raconte que ce vieux monstre ne quitte jamais le Mont Wuyi sans raison. Il doit préparer quelque chose de grandiose! »
 
-« Bien sûr, le Roi Démon Noir occupe le 766e rang du Classement du Tonnerre Dispersé. Après ses échanges, il pourrait bien grimper de quelques places. »
+« Bien sûr, le Roi Diable Noir occupe le 766e rang du Classement du Tonnerre Dispersé. Après ses échanges, il pourrait bien grimper de quelques places. »
 
 Les cultivateurs environnants joignirent respectueusement les mains et commencèrent à murmurer dès que l'homme eut passé.
 
-« Maître, cet homme est le Roi Démon Noir du Mont Wuyi. Le Mont Wuyi compte quatre rois, et ce sont tous des vieux monstres Ascendants », expliqua Grand Rouge d'une voix basse.
+« Maître, cet homme est le Roi Diable Noir du Mont Wuyi. Le Mont Wuyi compte quatre rois, et ce sont tous des vieux monstres Ascendants », expliqua Grand Rouge d'une voix basse.
 
-Bien que Wang Lin ait exploré les souvenirs de Grand Rouge, il n'avait consulté que les informations cruciales, parcourant ses pensées sans s'y attarder. Son regard se posa sur le Roi Démon Noir; il hocha légèrement la tête sans un mot.
+Bien que Wang Lin ait exploré les souvenirs de Grand Rouge, il n'avait consulté que les informations cruciales, parcourant ses pensées sans s'y attarder. Son regard se posa sur le Roi Diable Noir; il hocha légèrement la tête sans un mot.
 
-Le Roi Démon Noir, habitué aux rumeurs, les ignorait superbement. Pourtant, au moment où le regard de Wang Lin l'effleura, son esprit vacilla. Il se sentit mis à nu et fut envahi d'une sueur froide. Heureusement, cette sensation disparut aussitôt. N'osant pas se retourner, il s'envola prestement.
+Le Roi Diable Noir, habitué aux rumeurs, les ignorait superbement. Pourtant, au moment où le regard de Wang Lin l'effleura, son esprit vacilla. Il se sentit mis à nu et fut envahi d'une sueur froide. Heureusement, cette sensation disparut aussitôt. N'osant pas se retourner, il s'envola prestement.
 
 Wang Lin resta serein tandis qu'ils approchaient du Temple. Le temple devenait de plus en plus visible, et le brouillard vert entourant la montagne se précisait. Une brèche dans la brume, comme si elle avait été fendue par une lame invisible, formait un passage de cent pieds de large.
 
-Deux cultivateurs impassibles, vêtus de rouge, montaient la garde. Ils paraissaient avoir la quarantaine, mais c'étaient des vieux monstres ayant cultivé durant des millénaires. Ils avaient dépassé la première étape pour atteindre le stade du Yin Illusoire! Leur regard froid balayait les arrivants, et quiconque croisait leurs yeux tremblait de peur et de respect. Même le Roi Démon Noir s'était montré extrêmement déférent face à eux.
+Deux cultivateurs impassibles, vêtus de rouge, montaient la garde. Ils paraissaient avoir la quarantaine, mais c'étaient des vieux monstres ayant cultivé durant des millénaires. Ils avaient dépassé la première étape pour atteindre le stade du Yin Illusoire! Leur regard froid balayait les arrivants, et quiconque croisait leurs yeux tremblait de peur et de respect. Même le Roi Diable Noir s'était montré extrêmement déférent face à eux.
 
 Sans qu'on ait besoin de lui expliquer, Wang Lin comprit que ces deux-là gardaient l'entrée. À cet instant, une foule de cultivateurs traversait le passage pour s'enfoncer dans les profondeurs. Il y avait là au moins mille personnes, mais pas un bruit, aucune agitation; tous entraient silencieusement.
 

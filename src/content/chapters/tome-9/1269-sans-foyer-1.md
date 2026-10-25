@@ -38,7 +38,7 @@ En regardant les disciples de la Secte de l'Origine s'éloigner, Wang Lin prit u
 
 D'un geste de la main droite, il fit apparaître son espace de stockage. Deux épées courtes en sortirent. Il les avait obtenues dans le Royaume aux Sept Couleurs. Un sceau marquait chacune d'elles, et il ne les avait jamais brisés. Face à cette crise, il décida de les ouvrir par la force pour accroître sa puissance.
 
-Tandis que Wang Lin se préparait à affronter la calamité de vie ou de mort, loin de là, dans la région de rang 9, au sein de la Secte Brise-Ciel, Li Qianmei se trouvait piégée par une formation dressée par trois Anciens. Li Qianmei regarda son maître et dit doucement: « Maître, ne voulez-vous pas que Qianmei parte? Pouvez-vous m'en donner la raison? »
+Tandis que Wang Lin se préparait à affronter la calamité de vie ou de mort, loin de là, dans la région de rang 9, au sein de la Secte Brise-Ciel, Li Qianmei se trouvait piégée par une formation dressée par trois Anciens de la Punition. Li Qianmei regarda son maître et dit doucement: « Maître, ne voulez-vous pas que Qianmei parte? Pouvez-vous m'en donner la raison? »
 
 Le maître de Li Qianmei, le chef de la Secte Brise-Ciel, resta silencieux. Il semblait avoir perdu toute étincelle de vie, n'étant plus qu'une enveloppe vide.
 

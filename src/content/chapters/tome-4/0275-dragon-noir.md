@@ -1,6 +1,6 @@
 ---
 n: 275
-title: Dragon Noir
+title: Dragon Azur
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 275 - Black Dragon
@@ -98,14 +98,14 @@ Cette femme n'était peut-être pas le véritable génie.
 
 À la base de chaque pilier de lumière, d'innombrables cultivateurs étaient assis au sol. Les yeux clos, ils déversaient toute leur culture et leur énergie spirituelle dans cette formation.
 
-La terre entière commença à trembler violemment au centre de l'Alliance des Quatre Sectes, dans la chaîne de montagnes du Nuage Céleste. Bien que recouverte de neige, la montagne fut secouée de tremblements si puissants que la couche neigeuse se détacha et que d'énormes blocs de glace éclatèrent. Rapidement, toute la chaîne de montagnes se mua en un dragon noir de 33 kilomètres de long.
+La terre entière commença à trembler violemment au centre de l'Alliance des Quatre Sectes, dans la chaîne de montagnes du Nuage Céleste. Bien que recouverte de neige, la montagne fut secouée de tremblements si puissants que la couche neigeuse se détacha et que d'énormes blocs de glace éclatèrent. Rapidement, toute la chaîne de montagnes se mua en un dragon azur de 33 kilomètres de long.
 
 Alors que le dragon redressait la tête, la neige et la glace tombèrent de ses écailles, et ses immenses yeux de dragon se fixèrent sur les cultivateurs de Xue Yu.
 
-Sur la tête du dragon noir se tenait un homme. Wang Lin le reconnut: c'était le cultivateur aux grandes oreilles, Zhou Wutai.
+Sur la tête du dragon azur se tenait un homme. Wang Lin le reconnut: c'était le cultivateur aux grandes oreilles, Zhou Wutai.
 
-Si le statut de Zhou Wutai était si élevé au sein de l'Alliance des Quatre Sectes, c'est parce qu'il possédait le lignage du dragon gardien de l'Alliance. Lui seul pouvait contrôler avec succès le dragon noir une fois la formation activée pour protéger le pays.
+Si le statut de Zhou Wutai était si élevé au sein de l'Alliance des Quatre Sectes, c'est parce qu'il possédait le lignage du dragon gardien de l'Alliance. Lui seul pouvait contrôler avec succès le dragon azur une fois la formation activée pour protéger le pays.
 
-Le dragon noir poussa un rugissement alors qu'il levait la tête, un cri qui se propagea à travers toute l'Alliance des Quatre Sectes. En entendant ce rugissement, le moral des combattants de l'Alliance s'envola.
+Le dragon azur poussa un rugissement alors qu'il levait la tête, un cri qui se propagea à travers toute l'Alliance des Quatre Sectes. En entendant ce rugissement, le moral des combattants de l'Alliance s'envola.
 
 Selon le plan, dès que ce rugissement retentissait, la bataille finale commençait. D'innombrables cultivateurs sortirent des quatre sectes pour rejoindre le combat contre les forces de Xue Yu.

@@ -10,7 +10,7 @@ Les Exaltés Empyréens en contrebas étaient plongés dans un silence total. To
 
 Les actions de Wang Lin avaient totalement renversé la situation défavorable d'autrefois. Toutes les questions et tous les doutes avaient été balayés par une force absolue, ne laissant aucune trace derrière eux.
 
-Puisque l'Empereur Céleste avait affirmé que l'armure de l'âme et les forces externes n'étaient pas parfaites, alors Wang Lin allait prouver à tous que le 13e palais n'était pas sa limite!
+Puisque l'Empereur Céleste avait affirmé que l'armure de l'âme et les forces externes n'étaient pas parfaites, alors Wang Lin allait prouver à tous que le 14e palais n'était pas sa limite!
 
 Wang Lin n'avait pas ouvert la bouche une seule fois pour s'expliquer face aux milliers de questions qui lui étaient adressées. Au lieu de cela, il avait franchi le 14e palais, puis le 15e, et maintenant le 16e palais, un exploit que nul n'avait accompli depuis d'innombrables années!
 

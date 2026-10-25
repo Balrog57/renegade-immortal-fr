@@ -30,7 +30,7 @@ Tous trois étaient terrifiés et regardaient Wang Lin avec effroi. Si même eux
 
 Les âmes originelles des six génies tremblèrent alors qu'ils fixaient Wang Lin, debout sur la tête du Dragon des Neuf Abîmes au sein de la faille spatiale. La silhouette de Wang Lin était gravée dans leurs cœurs!
 
-Ses vêtements blancs et ses cheveux d'albâtre lui donnaient l'apparence d'un dieu de la guerre invincible, un être capable de secouer les cieux et que tout le monde devrait vénérer!
+Ses vêtements blancs et ses cheveux d'albâtre lui donnaient l'apparence d'un Immortel guerrier invincible, un être capable de secouer les cieux et que tout le monde devrait vénérer!
 
 « Li Qianmei a dû faire cela pour lui... Il est sûrement venu pour elle... Li Qianmei, je suis secrètement en compétition avec toi depuis cent ans. Je pensais que tu mourrais après avoir été envoyée dans la faille spatiale, mais je ne m'attendais pas à ce qu'un être aussi puissant vienne te sauver... » La femme indifférente laissa échapper un soupir.
 
@@ -104,12 +104,12 @@ Le vieil homme observa le dos de Wang Lin et dit: « Cher cultivateur, c'est ce 
 
 « Cette faille est immense. Si tu cherches au hasard, il sera très difficile de trouver Li Qianmei. Ce jade contient une carte où j'ai marqué sa position. Avec ta vitesse, tu pourras peut-être la rattraper. »
 
-Wang Lin s'arrêta et saisit le jade. Après l'avoir scanné avec son sens divin, la froideur sur son visage s'adoucit légèrement. Il se tourna vers le vieil homme et dit: « Retournez en retrait et entrez en culture de méditation isolée pendant trois jours. N'utilisez pas votre intention du Dao et concentrez uniquement votre esprit. Durant les cinq dernières heures du troisième jour, votre intention du Dao s'effondrera. Tenez bon; si vous survivez à cela, il n'y aura aucun mal! »
+Wang Lin s'arrêta et saisit le jade. Après l'avoir scanné avec son sens divin, la froideur sur son visage s'adoucit légèrement. Il se tourna vers le vieil homme et dit: « Retournez en retrait et entrez en culture de méditation isolée pendant trois jours. N'utilisez pas votre intention du Dao et concentrez uniquement votre esprit. Durant les dix dernières heures du troisième jour, votre intention du Dao s'effondrera. Tenez bon; si vous survivez à cela, il n'y aura aucun mal! »
 
 Une fois ses paroles prononcées, Wang Lin laissa le vieil homme stupéfait et pénétra dans la faille spatiale. Il atterrit sur le dos du Dragon des Neuf Abîmes et s'engouffra dans les profondeurs de la faille!
 
 Le vieil homme fixa l'endroit où Wang Lin avait disparu, son expression changeant radicalement. Il vérifia soigneusement son corps, puis son visage pâlit peu à peu, envahi par la terreur. Il remarqua un changement mystérieux dans son intention du Dao. C'était comme si une force étrangère l'avait envahi, affaiblissant progressivement sa compréhension.
 
-« Ceci... ceci est... un Sortilège du Dao!!! » Le visage de l'homme devint livide. Il se sentit chanceux: si ce n'était pas pour sa bonne intention en offrant ce jade, l'autre ne lui aurait jamais révélé cela. S'il avait seulement remarqué que son intention du Dao était endommagée, il serait simplement entré en méditation pour guérir. Mais lors des cinq dernières heures du troisième jour, il aurait été pris au dépourvu. S'il ne mourait pas, il en sortirait gravement blessé.
+« Ceci... ceci est... un Sortilège du Dao!!! » Le visage de l'homme devint livide. Il se sentit chanceux: si ce n'était pas pour sa bonne intention en offrant ce jade, l'autre ne lui aurait jamais révélé cela. S'il avait seulement remarqué que son intention du Dao était endommagée, il serait simplement entré en méditation pour guérir. Mais lors des dix dernières heures du troisième jour, il aurait été pris au dépourvu. S'il ne mourait pas, il en sortirait gravement blessé.
 
 « Cet homme pourrait réellement sauver Li Qianmei. Même avec mon deuxième Fléau Céleste, je ne suis pas certain de pouvoir l'emporter, et j'ai été secrètement blessé par lui. Le plus terrifiant est qu'il porte encore un sceau sur lui. S'il avait brisé ce sceau tout à l'heure... » Les yeux du vieil homme devinrent graves alors qu'il regardait vers la faille spatiale. Puis il fit demi-tour pour retourner sur la planète de culture et entra immédiatement en méditation isolée.

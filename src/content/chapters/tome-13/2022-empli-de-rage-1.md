@@ -96,7 +96,7 @@ Wang Lin pleurait rarement, mais tandis qu'il buvait, des larmes coulèrent au c
 
 La femme en robe de phénix retourna aux côtés de l'Empereur et retrouva son calme. Elle garda la tête basse sans dire un mot. Le sourire de l'Empereur Dao Antique s'élargit, son regard se posant par intermittence sur Wang Lin avec des éclairs de fierté et de joie.
 
-« Il semble fort probable que Wang Lin connaisse ce fragment d'âme... Et la confusion que le fragment avait montrée après sa fusion avec un corps était sans doute due à lui... Malheureusement, peu importe votre niveau de culture, peu importe la quantité de sang spirituel que vous possédez, et même avec Xuan Luo pour maître, le plus grand des tourments est de ne pas pouvoir se reconnaître alors que l'on est l'un face à l'autre... Mais cela m'excite au plus haut point... » L'Empereur Dao Antique leva sa coupe et but avec les près de dix mille convives du banquet.
+« Il semble fort probable que Wang Lin connaisse ce fragment d'âme... Et la confusion que le fragment avait montrée après sa fusion avec un corps était sans doute due à lui... Malheureusement, peu importe votre niveau de culture, peu importe la quantité de sang d'âme que vous possédez, et même avec Xuan Luo pour maître, le plus grand des tourments est de ne pas pouvoir se reconnaître alors que l'on est l'un face à l'autre... Mais cela m'excite au plus haut point... » L'Empereur Dao Antique leva sa coupe et but avec les près de dix mille convives du banquet.
 
 Selon la tradition du Dao Antique, il aurait dû laisser partir la femme, mais il choisit de la faire rester. Il continuait d'observer Wang Lin, comme si cela lui procurait le plus grand des plaisirs.
 

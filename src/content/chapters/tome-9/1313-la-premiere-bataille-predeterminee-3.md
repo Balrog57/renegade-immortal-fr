@@ -94,7 +94,7 @@ En un instant, ces plus de 10 000 membres décédés apparurent sous forme d'âm
 
 Ces 10 000 lunes grondèrent, et plus de la moitié fonça vers Tuo Sen, tandis que les autres visèrent Wang Lin!
 
-« Invoquer le trésor du Clan Dévorant la Lune, les Ailes de la Lune Sanguine!! Sacrifice de sang! » La voix antique résonna une fois de plus. Cette fois, des milliers de membres du Clan Dévorant la Lune apparurent dans le monde lunaire. Ils tenaient des bêtes féroces entre leurs mains, lesquelles se débattaient en rugissant.
+« Invoquer le trésor du Clan Dévorant la Lune, les Ailes de la Lune Sanglante!! Sacrifice de sang! » La voix antique résonna une fois de plus. Cette fois, des milliers de membres du Clan Dévorant la Lune apparurent dans le monde lunaire. Ils tenaient des bêtes féroces entre leurs mains, lesquelles se débattaient en rugissant.
 
 Alors que la voix antique retentissait, ces membres du Clan Dévorant la Lune affichèrent tous des expressions féroces et abattirent les bêtes. Des torrents de sang et de chair éclatèrent, mais ils furent immédiatement absorbés par la formation.
 

@@ -102,7 +102,7 @@ L'épée volante brilla instantanément d'un rouge intense, comme si elle était
 
 C'était un trésor céleste.
 
-Les yeux de l'être de nuages s'illuminèrent et il agita sa main droite. Sa main entière se détacha pour devenir une épée identique à l'Épée de Suzaku. À l'exception de la couleur, elle était son exacte réplique; même l'immense quantité d'énergie spirituelle céleste était identique.
+Les yeux de l'être de nuages s'illuminèrent et il agita sa main droite. Tout son bras droit se détacha de son corps pour devenir une épée volante blanche identique à l'Épée de Suzaku. À l'exception de la couleur, elle était son exacte réplique; même l'immense quantité d'énergie spirituelle céleste était identique.
 
 Puis, il pointa Zhu Quezi et la petite épée blanche s'élança.
 

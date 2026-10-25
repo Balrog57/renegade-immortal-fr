@@ -26,7 +26,7 @@ Wang Lin sentit clairement le départ de Song Tian. Alors qu'il était assis à 
 
 Avec son niveau de culture actuel, même une infime augmentation de force était prodigieuse!
 
-« Si je peux surmonter cette calamité avec perfection à chaque fois et obtenir le sang de l'âme... serai-je capable de franchir le quatrième pont lorsque je retournerai aux Ponts du Piétinement Céleste? » murmura Wang Lin pour lui-même.
+« Si je peux surmonter cette calamité avec perfection à chaque fois et obtenir le sang d'âme... serai-je capable de franchir le quatrième pont lorsque je retournerai aux Ponts du Piétinement des Cieux? » murmura Wang Lin pour lui-même.
 
 Wang Lin prit une profonde inspiration et ses yeux brillèrent. Il leva les yeux vers l'ombre au-dessus de lui.
 
@@ -110,7 +110,7 @@ Ji Du s'élança dans les airs et observa la scène avec nervosité, serrant inc
 
 Song Tian, debout au sommet de la corne de la Montagne d'Origine, affichait une expression incertaine.
 
-L'un des 18 halos s'assombrit rapidement puis, un bâton d'encens plus tard, il se brisa soudainement en d'innombrables fragments.
+L'un des 18 halos s'assombrit rapidement puis, quinze minutes plus tard, il se brisa soudainement en d'innombrables fragments.
 
 Désormais, il ne restait que 17 halos autour de la statue de l'Ancêtre!
 

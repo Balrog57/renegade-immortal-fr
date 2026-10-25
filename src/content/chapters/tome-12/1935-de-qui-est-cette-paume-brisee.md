@@ -79,7 +79,7 @@ En levant la tête, son expression changea et il fit un pas en avant. À l'insta
 
 Il fut réduit de moitié, n'atteignant plus que 500 pieds! L'Exalté Empyréen Hai Zi s'éveilla également et avança.
 
-Le fracas dura près d'une demi-heure avant de s'estomper lentement; le rideau de lumière ne faisait plus que 500 pieds! Cette distance était extrêmement réduite pour Wang Lin et l'Exalté Empyréen. Les deux se regardèrent.
+Le fracas dura près d'une heure avant de s'estomper lentement; le rideau de lumière ne faisait plus que 500 pieds! Cette distance était extrêmement réduite pour Wang Lin et l'Exalté Empyréen. Les deux se regardèrent.
 
 « On dirait que ce rideau ne tiendra pas même cent ans… Je l'ai réduit pour résister à la paume brisée, mais malgré cela, après trois ans, il n'est plus qu'à 500 pieds...
 S'il faisait encore près de 100 000 pieds et que sa force était dispersée, il aurait peut-être déjà été brisé. » L'apparence et le ton de l'Exalté Empyréen Hai Zi différaient de ce qu'ils étaient quelques années auparavant; elle semblait être redevenue normale.

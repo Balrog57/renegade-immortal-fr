@@ -54,7 +54,7 @@ En vérité, Wang Lin n'avait rien caché durant tout ce temps. Quiconque avait 
 
 Wang Lin n'avait pas l'intention de les tuer, mais si ces trois-là manquaient d'intelligence, il n'aurait pas d'autre choix. Le fait qu'il ait possédé un corps devait à tout prix rester secret, mais une fois qu'il aurait quitté le champ de bataille étranger, cela serait facile à justifier. Après tout, cinquante ans sont amplement suffisants pour que la personnalité de quelqu'un change.
 
-Une fois devenus les esclaves de Wang Lin, Zhou Zihong, Yang Xiong et Lin Tao se détendirent immédiatement et se postèrent derrière lui. Zhou Zihong le regarda avec une expression complexe. Elle savait qu'elle était très séduisante; au sein du Temple du Dieu de la Guerre, de nombreux disciples la courtisaient, mais elle les avait tous rejetés.
+Une fois devenus les esclaves de Wang Lin, Zhou Zihong, Yang Xiong et Lin Tao se détendirent immédiatement et se postèrent derrière lui. Zhou Zihong le regarda avec une expression complexe. Elle savait qu'elle était très séduisante; au sein du Sanctuaire du Dieu de la Guerre, de nombreux disciples la courtisaient, mais elle les avait tous rejetés.
 
 Elle s'était juré qu'avant d'atteindre le stade de la Formation du Noyau, elle ne formerait aucun couple de culture. Mais voilà qu'elle était l'esclave de quelqu'un. Si son maître exigeait qu'elle partage sa couche, elle ne pourrait pas refuser. Cette pensée troublait profondément son cœur.
 
@@ -74,9 +74,9 @@ Les trois voisins réfléchirent un instant avant de répondre.
 
 « Face à la puissance des âmes, ces cultivateurs de bas niveau n'ont aucune chance de résister. Même si les cultivateurs de haut niveau ne sont pas effrayés, tant qu'il y a suffisamment d'âmes errantes, le résultat est le même. Pour nous, les âmes errantes sont des armes, des esclaves et aussi de la nourriture. As-tu songé aux conséquences de l'apparition d'une âme errante dans le monde des vivants? »
 
-« Nouveau dévoreur d'âmes, laisse-moi être clair: si les âmes errantes se libéraient dans le monde des vivants, même en petit nombre, ce serait une catastrophe. Les âmes errantes dans le monde des vivants sont aussi appelées démons. »
+« Nouveau dévoreur d'âmes, laisse-moi être clair: si les âmes errantes se libéraient dans le monde des vivants, même en petit nombre, ce serait une catastrophe. Les âmes errantes dans le monde des vivants sont aussi appelées diables. »
 
-« Si elles s'y engouffrent massivement, le monde des vivants deviendra un monde de décomposition, tout comme l'est le nôtre. Et parmi les démons, l'un d'eux finira par devenir un dévoreur d'âmes. »
+« Si elles s'y engouffrent massivement, le monde des vivants deviendra un monde de décomposition, tout comme l'est le nôtre. Et parmi les diables, l'un d'eux finira par devenir un dévoreur d'âmes. »
 
 « Il existe une loi entre le monde des vivants et le monde de la décomposition: quiconque tente de briser cette loi sera tué. »
 

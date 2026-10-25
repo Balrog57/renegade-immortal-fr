@@ -22,7 +22,7 @@ L'organisateur toussa et intervint: « Bien, puisque personne n'échange la Pilu
 
 Peu de temps après, un autre participant sortit pour présenter ses marchandises. Bientôt, ce fut au tour de Wang Lin. Il s'avança, sortit un petit flacon et annonça: « Un liquide mystérieux dont une seule goutte équivaut à une pilule de rassemblement de Qi. Ce flacon en contient environ cent. Je recherche uniquement les incantations à partir du 3e niveau. » Une fois ses paroles prononcées, il ouvrit le flacon. Tout le monde put ressentir l'énergie spirituelle qui s'en dégageait.
 
-Beaucoup furent instantanément fascinés. Bien que les Pilules de Rassemblement de Qi regorgent d'énergie spirituelle, elles demeuraient des produits finis. Ce liquide, en revanche, offrait de multiples usages, comme le raffinage de nouvelles pilules. Même pour la forge de trésors, tels que des épées volantes, il permettrait d'accroître leur puissance spirituelle.
+Beaucoup furent instantanément fascinés. Bien que les Pilules de Rassemblement de Qi regorgent d'énergie spirituelle, elles demeuraient des produits finis qui ne pouvaient être qu'avalés. Ce liquide, en revanche, offrait de multiples usages, comme le raffinage de nouvelles pilules. Même pour la forge de trésors, tels que des épées volantes, il permettrait d'accroître leur puissance spirituelle.
 
 Quelqu'un s'exclama aussitôt: « Je propose l'incantation du 4e niveau en échange! »
 

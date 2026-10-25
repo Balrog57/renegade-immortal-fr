@@ -56,11 +56,11 @@ La situation s'inversa. Le doigt du dieu ancien siffla à travers l'espace, et t
 
 L'expression du Saint Démon Noir de l'Alliance changea radicalement. Alors que le doigt approchait, il serra les dents et cracha une brume noire tout en formant un sceau de ses mains. Cette brume se transforma immédiatement en une grue noire gigantesque.
 
-La grue tenait une feuille noire dans son bec. Dès qu'elle apparut, elle lâcha la feuille, qui commença à croître de manière effrénée.
+La grue tenait dans son bec une herbe de lingzhi, noire elle aussi. Dès qu'elle apparut, elle la lâcha, et l'herbe se mit à croître de manière effrénée.
 
-En un instant presque imperceptible, cette feuille mesurait plus de 10 000 pieds de haut et s'étendit latéralement pour créer une barrière.
+En un instant presque imperceptible, cette herbe mesurait plus de 10 000 pieds de haut et s'étendit latéralement pour créer une barrière.
 
-Le doigt du dieu ancien percuta la feuille. Un grondement assourdissant retentit, suivi de craquements, puis la feuille se désintégra en filaments de gaz noir.
+Le doigt du dieu ancien percuta l'herbe. Un grondement assourdissant retentit, suivi de craquements, puis l'herbe se désintégra en filaments de gaz noir.
 
 Le visage du Saint Démon Noir pâlit; il cracha du sang et recula. Cependant, sa main droite plongea dans le vide et une sculpture sur bois apparut dans sa paume.
 

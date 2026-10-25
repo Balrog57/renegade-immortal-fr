@@ -32,7 +32,7 @@ Son regard balaya la végétation au sol, empreint de méfiance. Il était trop 
 
 D'après ses souvenirs, la carte indiquait que l'entrée n'était pas loin.
 
-Après le temps nécessaire pour brûler un demi-bâton d'encens, le paysage changea. À plus de 100 000 pieds de là se trouvait une zone dégagée de 10 000 pieds, dépourvue de toute végétation. Un ancien réseau de transfert était édifié en son centre.
+Au bout de sept minutes, le paysage changea. À plus de 100 000 pieds de là se trouvait une zone dégagée de 10 000 pieds, dépourvue de toute végétation. Un ancien réseau de transfert était édifié en son centre.
 
 Cette formation existait depuis une éternité et était toujours opérationnelle. Bien que silencieuse, elle laissait échapper des éclats de lumière fantomatique qui dégageaient un sentiment de puissance immense.
 
@@ -50,7 +50,7 @@ La troisième concubine progressait rapidement dans le brouillard. Elle ne conna
 
 Ses yeux s'illuminèrent et elle se dirigea immédiatement, avec prudence, vers la source de cette lueur.
 
-Après le temps d'un bâton d'encens, elle aperçut l'ancien réseau de transfert au sol. Wang Lin avait déjà disparu à l'intérieur. Elle hésita longuement devant la formation avant de serrer les dents et d'y pénétrer à son tour.
+Au bout d'un quart d'heure, elle aperçut enfin l'ancien réseau de transfert au sol. Wang Lin avait déjà disparu à l'intérieur. Elle hésita longuement devant la formation avant de serrer les dents et d'y pénétrer à son tour.
 
 Dans l'avant-dernière couche de la Tombe Antique, le brouillard n'était pas aussi dense que dans les couches supérieures. Wang Lin progressait avec précaution. Bien qu'il y eût de la lumière, elle était rouge, semblable à du sang frais.
 

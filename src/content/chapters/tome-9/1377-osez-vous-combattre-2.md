@@ -48,7 +48,7 @@ La sueur perla sur le front du vieil homme qui s'empressa de dire: « Ce junior 
 
 Wang Lin demanda nonchalamment: « Combien de Cristaux de Mutation de Feu Déchaîné possédez-vous? »
 
-« J'en ai 100 de la même taille que celle que le Senior a vue précédemment! » L'esprit du vieil homme était secoué par l'audace de Wang Lin. En quelques phrases seulement, ses vêtements étaient déjà trempés de sueur.
+« J'en ai cent, de la même taille que les trois que le Senior a échangés tout à l'heure! » L'esprit du vieil homme était secoué par l'audace de Wang Lin. En quelques phrases seulement, ses vêtements étaient déjà trempés de sueur.
 
 Wang Lin dit calmement: « Apportez-les. »
 

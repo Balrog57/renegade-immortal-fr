@@ -56,7 +56,7 @@ En repensant au Royaume Céleste, lorsqu'elle avait déployé toute sa force pou
 
 Dans son cœur, ce Ceng Niu n'était pas son égal. Il était faible; un insecte, un marchepied né pour se soumettre aux puissants.
 
-Elle avait tué de nombreux cultivateurs de la Formation de l'Âme comme Wang Lin lorsque l'Alliance des Quatre Sectes avait balayé les derniers survivants de ses ennemis. Même à Suzaku, elle avait conservé cette mentalité.
+Elle avait tué bon nombre de cultivateurs comme Wang Lin lorsque l'Alliance des Quatre Sectes avait balayé les derniers survivants de ses ennemis. Même à Suzaku, elle avait conservé cette mentalité.
 
 C'était là sa fierté!
 
@@ -90,9 +90,9 @@ Les deux étamines fusionnèrent pour former une silhouette magnifique, envelopp
 
 Un avatar ressemblant trait pour trait à Hongdie apparut, avec la seule différence qu'il possédait tous ses membres.
 
-L'avatar de Hongdie ouvrit les yeux, d'un calme olympien. Si la véritabHongdie était froide et impitoyable, cet avatar ne manifestait aucune émotion et restait d'une sérénité absolue.
+L'avatar de Hongdie ouvrit les yeux, d'un calme olympien. Si la véritable Hongdie était froide et impitoyable, cet avatar ne manifestait aucune émotion et restait d'une sérénité absolue.
 
-Depuis le géant, la véritabHongdie lança: « Ceng Niu, je me fiche de renoncer à mon ascension vers le stade de la Transformation de l'Âme pour te tuer! »
+Depuis le géant, la véritable Hongdie lança, les yeux emplis de haine: « Ceng Niu, même si je dois renoncer pour un temps à la Transformation de l'Âme, je jure de te tuer! »
 
 Cet avatar était une entité qu'elle avait cultivée pour faciliter son passage vers la Transformation de l'Âme. À moins d'une nécessité absolue, elle ne l'aurait jamais invoqué.
 

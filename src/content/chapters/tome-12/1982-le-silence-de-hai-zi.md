@@ -12,7 +12,7 @@ slug: le-silence-de-hai-zi
 
 Le corps véritable des cinq éléments de Wang Lin affichait une expression extrêmement grave. Il se tenait aux côtés de l'Exalté Empyréen Hai Zi, fixant le Wang Lin aux cheveux noirs. Autour de lui, l'essence du tonnerre, l'essence du commencement absolu et les trois essences éthérées s'illuminaient, comme si elles s'unissaient pour résister au Wang Lin aux cheveux noirs.
 
-« Le Massacre est descendu sur ce monde et a remplacé la lumière pour devenir destruction... Toute vie doit endurer d'innombrables éons... » L'Exalté Empyréen Hai Zi recula de terreur lorsque le corps véritable des cinq éléments de Wang Lin fit un pas en avant. Il manifestait ses nombreuses essences pour affronter le Wang Lin aux cheveux noirs.
+« Le Massacre est descendu sur ce monde et a remplacé la lumière pour devenir destruction... Toute vie doit endurer d'innombrables éons... » Tandis que l'Exalté Empyréen Hai Zi reculait de terreur, le corps véritable des cinq éléments de Wang Lin fit un pas en avant. Il manifestait ses nombreuses essences pour affronter le Wang Lin aux cheveux noirs.
 
 « Tu n'es que mon corps véritable des cinq éléments et mes essences, et tu prétends m'arrêter? » Le Wang Lin aux cheveux noirs regarda le corps véritable des cinq éléments.
 
@@ -34,7 +34,7 @@ Le visage de l'Exalté Empyréen Hai Zi était livide; elle ouvrit la bouche pou
 
 « Ce qui signifie que la secte de l'Enseignant Impérial provient de l'extérieur du Continent Astral Immortel... » dit calmement le Wang Lin aux cheveux noirs, chaque mot rendant le visage de l'Exalté Empyréen Hai Zi encore plus pâle. Elle mordit sa lèvre inférieure et resta silencieuse un long moment avant de lever les yeux vers Wang Lin.
 
-« Mon corps originel a encore le cœur un peu trop tendre... Il aurait dû s'en douter, mais il a choisi de ne pas y croire. » Le Wang Lin aux cheveux noirs secoua la tête. Son regard était impitoyable lorsqu'il leva sa paume et la frappa violemment, l'Exalté Empyréen Hai Zi.
+« Mon corps originel a encore le cœur un peu trop tendre... Il aurait dû s'en douter, mais il a choisi de ne pas y croire. » Le Wang Lin aux cheveux noirs secoua la tête. Son regard était impitoyable lorsqu'il leva sa paume et l'abattit violemment sur l'Exalté Empyréen Hai Zi.
 
 Il allait la tuer!
 

@@ -58,13 +58,13 @@ Peu après, de fins filaments rouges s'échappèrent du sommet de leurs têtes e
 
 Leurs corps rétrécirent rapidement tandis que des faisceaux de lumière rouge sombre sortaient de leurs corps pour se fondre dans le cercle de feu.
 
-Ce processus dura près d'une heure. Certains cultivateurs remarquèrent le changement et tentèrent de les en empêcher, mais dès qu'ils s'approchèrent à moins de mille pieds, ils furent réduits en poussière par une force destructrice. Voyant cela, personne n'osa plus s'approcher.
+Ce processus dura près de deux heures. Certains cultivateurs remarquèrent le changement et tentèrent de les en empêcher, mais dès qu'ils s'approchèrent à moins de mille pieds, ils furent réduits en poussière par une force destructrice. Voyant cela, personne n'osa plus s'approcher.
 
-Une heure plus tard, les corps des seize bêtes géantes se dissipèrent. Elles avaient toutes fusionné avec le cercle de feu. Ce dernier ne grandit pas, mais sa couleur devint d'un rouge sombre. Finalement, il éclata silencieusement en une multitude de poussières rouges avant de disparaître.
+Deux heures plus tard, les corps des seize bêtes géantes se dissipèrent. Elles avaient toutes fusionné avec le cercle de feu. Ce dernier ne grandit pas, mais sa couleur devint d'un rouge sombre. Finalement, il éclata silencieusement en une multitude de poussières rouges avant de disparaître.
 
 À cet instant, toutes les bêtes de feu à l'intérieur de Huo Fen cessèrent tout mouvement et s'agenouillèrent au sol, émettant simultanément des sons plaintifs. Soudain, l'une d'elles s'effondra en tremblant. Si l'on regardait de près, on aurait pu voir une tache rouge apparaître sur son front. Son corps se dilata rapidement et, en moins d'une heure, elle atteignit 33 mètres de haut.
 
-Peu après, une bête de feu après l'autre vit apparaître ces taches rouges sur son front, son corps gonflant à toute vitesse. En moins de deux heures, toutes les bêtes de feu de Huo Fen semblaient avoir subi une métamorphose et avaient toutes atteint la même taille de 33 mètres. Leur puissance avait été multipliée par plus de dix.
+Peu après, une bête de feu après l'autre vit apparaître ces taches rouges sur son front, son corps gonflant à toute vitesse. En moins de quatre heures, toutes les bêtes de feu de Huo Fen semblaient avoir subi une métamorphose et avaient toutes atteint la même taille de 33 mètres. Leur puissance avait été multipliée par plus de dix.
 
 Les créatures transformées s'envolèrent dans les airs pour poursuivre l'armée des cultivateurs. De plus en plus de bêtes de feu mutantes rejoignirent la traque, créant un spectacle terrifiant.
 

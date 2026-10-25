@@ -56,7 +56,7 @@ Le zombie fixa Wang Lin et poussa un cri. Il s'apprêtait à charger quand son r
 
 Le zombie poussa un rugissement et lança un regard de frustration vers la direction de Wang Lin. Il sauta dans la faille, récupéra l'épée de Teng Li avec un air d'excitation et l'avala.
 
-Wang Lin tenait la sculpture de glace, le visage pâle, alors qu'il s'enfonçait rapidement à travers la forêt. Après s'être assuré que personne ne le suivait, il se détendit enfin. Il sortit une gourde d'eau spirituelle, la vida d'un trait, puis s'assit en tailleur pour cultiver.
+Wang Lin tenait la sculpture de glace, le visage pâle, alors qu'il s'enfonçait rapidement à travers la forêt. Après s'être assuré que personne ne le suivait, il se détendit enfin. Il sortit une gourde de liquide spirituel, la vida d'un trait, puis s'assit en tailleur pour cultiver.
 
 La forêt était silencieuse. Après un long moment, Wang Lin ouvrit les yeux alors que la voix mécontente de Situ Nan retentissait:
 

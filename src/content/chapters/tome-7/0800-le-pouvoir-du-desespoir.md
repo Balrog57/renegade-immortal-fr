@@ -62,7 +62,7 @@ Une tempête pour la survie!
 
 À cet instant, nul ne se souciait de savoir qu'ils combattaient les messagers du Temple Céleste du Tonnerre. Peu importait leur rang! La majesté des messagers n'avait aucun poids face à ces gens luttant pour leur propre existence! Cela n'avait absolument aucun effet!
 
-Quiconque tenterait de les arrêter serait tué! Si un céleste fait obstacle, tuez le céleste; si un démon fait obstacle, tuez le démon!
+Quiconque tenterait de les arrêter serait tué! Si un céleste fait obstacle, tuez le céleste; si un diable fait obstacle, tuez le diable!
 
 C'était comme si tous les cultivateurs étaient devenus fous! L'un des messagers leva un doigt et l'écrasa entre les sourcils d'un Ascendant en pleine charge. Le corps de ce dernier trembla instantanément avant de s'effondrer, son âme originelle se dissipant. Cependant, avant de mourir, il s'était précipité pour mordre le bras du messager. La lueur rouge dans ses yeux fit vaciller l'esprit du messager, bien que cette morsure ne vînt plus que d'une tête en train de se désintégrer.
 

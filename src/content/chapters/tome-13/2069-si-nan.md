@@ -50,7 +50,7 @@ En tant que Grand Général de la frontière, contrôlant près d'un demi-millio
 
 « On raconte que le Roi Nan est extrêmement arrogant et attache une importance démesurée aux apparences. Si la cérémonie d'accueil n'est pas assez grandiose, il risque de s'offusquer... Grand Général, ne devrions-nous pas envoyer plus d'hommes? »
 
-« Grand Général, ce humble serviteur pense aussi que nous devrions multiplier les salutations. Puisque le Roi Nan aime le faste, accueillons-le avec notre armée de cent mille hommes! Alignons nos soldats tout au long des rues pour qu'il contemple la puissance de notre nation! »
+« Grand Général, cet humble serviteur pense aussi que nous devrions envoyer davantage d'hommes pour l'accueillir. Puisque le Roi Nan aime le faste, accueillons-le avec notre armée de cent mille hommes! Alignons nos soldats tout au long des rues pour qu'il contemple la puissance de notre nation! »
 
 « Grand Général, n'hésitez pas. Le Roi Nan est un homme méprisable qui vise déjà votre position. Face à un tel individu, nous devrions... »
 
@@ -82,7 +82,7 @@ Alors que le convoi reprenait sa route, un bataillon de mille hommes envoyé pou
 
 Pourtant, le cortège ne s'arrêta pas et continua d'avancer sous la protection des mille soldats.
 
-Une heure plus tard, le convoi atteignit les abords du camp militaire. Des gémissements s'échappaient par intermittence de la grande calèche.
+Deux heures plus tard, le convoi atteignit les abords du camp militaire. Des gémissements s'échappaient par intermittence de la grande calèche.
 
 À mesure qu'ils approchaient, ces sons devinrent plus distincts et furent entendus par l'ensemble des soldats présents. Le vieux général fronça les sourcils, un net déplaisir se lisant dans ses yeux.
 

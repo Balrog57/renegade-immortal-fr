@@ -136,7 +136,7 @@ Chi Hu hésita encore avant d'abandonner toute résistance. Ses yeux brillèrent
 
 L'expression de Wang Lin resta sereine. Il lança un regard glacial au vieil homme avant de se retourner pour partir. Il ne voulait pas s'impliquer dans ce chaos. Puisqu'on lui avait dit de partir, il s'exécutait.
 
-Hongdie afficha un regard désespéré et s'écria soudainement: « Ai... Aîné, tuez-le! Si vous le tuez, je cesserai de résister et vous soutiendrai pleinement! Mais vous devez me promettre d'assurer ma sécurité! »
+Hongdie laissa transparaître un regard venimeux et s'écria soudainement: « Ai... Aîné, tuez-le! Si vous le tuez, je cesserai de résister et vous soutiendrai pleinement! Mais vous devez me promettre d'assurer ma sécurité! »
 
 Le vieil homme fut surpris. Il leva la tête, les yeux brillants, comme s'il s'apprêtait à tendre la main vers Wang Lin.
 

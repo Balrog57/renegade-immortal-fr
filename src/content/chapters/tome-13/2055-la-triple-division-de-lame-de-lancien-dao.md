@@ -38,7 +38,7 @@ Au lieu de cela, il devait endurer trois cycles complets de division et de fusio
 
 Après chaque fusion, son âme originelle et son corps deviendraient bien plus puissants qu'auparavant. Une fois les trois cycles accomplis, il aurait survécu à cette calamité.
 
-Il n'y avait pas de mort inhérente à cette épreuve, mais la clé résidait dans le temps nécessaire pour l'endurer. Plus on persistait, plus les bénéfices étaient grands.
+Il n'y avait pas de mort inhérente à cette épreuve, mais la clé résidait dans la durée pendant laquelle on endurait la division: plus elle était longue, plus la division était complète et plus les bénéfices étaient grands, mais plus il fallait aussi supporter une douleur extrême.
 
 Une telle douleur était au-delà des capacités d'un être ordinaire; même la famille impériale ne pouvait tenir longtemps. La plupart des gens ne supportaient pas l'attente d'une division complète et choisissaient souvent de fusionner à mi-chemin. Par conséquent, les fortunes obtenues différaient grandement d'un individu à l'autre.
 

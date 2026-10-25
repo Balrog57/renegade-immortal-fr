@@ -20,7 +20,7 @@ Wang Lin n'était pas le seul à bouger. Tous les cultivateurs qui se précipita
 
 C'était comme s'ils s'apprêtaient à briser le monde de leurs pas. Wang Lin ne s'arrêta pas; il continua, pas après pas. Chaque foulée faisait trembler l'univers alors qu'il avançait vers les six messagers du Temple Céleste du Tonnerre.
 
-Cet élan était trop puissant; pour quiconque n'était pas sur place, il aurait été impossible d'en ressentir le choc. Plus de cent cultivateurs rugissaient en chargeant sur ce chemin vers la survie, les yeux injectés de sang, vers la réseau de transfert.
+Cet élan était trop puissant; pour quiconque n'était pas sur place, il aurait été impossible d'en ressentir le choc. Plus de cent cultivateurs rugissaient en chargeant sur ce chemin vers la survie, les yeux injectés de sang, vers le réseau de transfert.
 
 Cette scène fit trembler le cœur des six messagers du Temple Céleste. Bien qu'ils fussent puissants, ils furent tout de même ébranlés par une telle ferveur.
 
@@ -44,11 +44,11 @@ Leur présence, conjuguée à la charge de la foule, fit naître une terreur dan
 
 Ils ne pouvaient pas résister! Ils ne pouvaient que reculer, encore et toujours reculer!
 
-Les six reculèrent de plus en plus vite jusqu'à atteindre l'entrée de la réseau de transfert!
+Les six reculèrent de plus en plus vite jusqu'à atteindre le centre du réseau de transfert!
 
 « Ouvrez la formation pour que nous puissions partir! Ils sont fous! Une bande de lunatiques! » L'expression de l'un des hommes d'âge moyen était livide alors qu'il regardait les cultivateurs aux yeux rouges fondre sur eux.
 
-Il n'avait même pas besoin de parler. Trois d'entre eux s'assirent immédiatement et commencèrent à former des sceaux pour activer la réseau de transfert afin de s'échapper.
+Il n'avait même pas besoin de parler. Trois d'entre eux s'assirent immédiatement et commencèrent à former des sceaux pour activer le réseau de transfert afin de s'échapper.
 
 Une lueur de froideur passa dans les yeux de Wang Lin; il fit un pas et chargea dans la formation. De nombreux cultivateurs s'engouffrèrent derrière lui!
 
@@ -78,7 +78,7 @@ Le corps du messager s'immobilisa instantanément. Bien que ce ne fût que pour 
 
 Un bruit de craquement retentit aussitôt, puis le corps du messager se fragmenta en morceaux de pierre qui tombèrent au sol. Cependant, les petits drapeaux autour de lui emportèrent son âme originelle et s'enfuirent.
 
-« Je vous en prie, ne me tuez pas, j'utiliserai un trésor puissant... » Avant que l'homme n'ait pu achever sa phrase, les yeux de Wang Lin brillèrent et il s'élança. Il pointa la main droite et le Fouet du Karma jaillit, faisant pousser un gémissement misérable à l'âme originelle emprisonnée dans la brume violette. Wang Lin saisit l'âme originelle et les trois drapeaux. Il cracha ensuite un souffle de son âme originelle pour former d'innombrables restrictions afin de sceller les drapeaux ainsi que l'âme originelle, avant de les ranger dans son sac.
+« Je vous en prie, ne me tuez pas, je vous offrirai en échange un trésor précieux... » Avant que l'homme n'ait pu achever sa phrase, les yeux de Wang Lin brillèrent et il s'élança. Il pointa la main droite et le Fouet du Karma jaillit, faisant pousser un gémissement misérable à l'âme originelle emprisonnée dans la brume violette. Wang Lin saisit l'âme originelle et les trois drapeaux. Il cracha ensuite un souffle de son âme originelle pour former d'innombrables restrictions afin de sceller les drapeaux ainsi que l'âme originelle, avant de les ranger dans son sac.
 
 À ce moment-là, les deux autres messagers qui avaient chargé furent encerclés par les autres cultivateurs. Sous l'assaut conjoint des deux cultivateurs Yang Corporel — soutenus par certains cultivateurs de l'Yin Illusoire — et de nombreux cultivateurs Ascendants, les deux messagers furent contraints de reculer.
 
@@ -86,7 +86,7 @@ C'est à cet instant qu'un éclat argenté jaillit et que du sang jaillit de la 
 
 Avant que Wang Lin n'ait pu agir, des dizaines de cultivateurs Ascendants attaquèrent avec des yeux injectés de sang, accompagnant le rayon argenté qui poursuivait l'âme. Un instant plus tard, ce messager était mort!
 
-À cet instant, les trois messagers avaient fini d'activer la formation. Puis, sans aucune hésitation, ils entrelacèrent leurs bras et murmurèrent un chant complexe. Immédiatement, une lumière aveuglante jaillit de ses bords et la réseau de transfert commença à s'effondrer!
+À cet instant, les trois messagers avaient fini d'activer la formation. Puis, sans aucune hésitation, ils entrelacèrent leurs bras et murmurèrent un chant complexe. Immédiatement, une lumière aveuglante jaillit de ses bords et le réseau de transfert commença à s'effondrer!
 
 En sacrifiant la stabilité des bords de la formation, ils accélérèrent son activation. En un instant, des ondulations apparurent et s'élancèrent vers le ciel. À l'intérieur de ces ondes, les trois messagers affichaient des regards malveillants tandis que leurs silhouettes se déformaient et disparaissaient lentement.
 

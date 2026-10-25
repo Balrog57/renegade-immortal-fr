@@ -50,7 +50,7 @@ Les murmures, bien que couverts par le rugissement du tambour, ne parvinrent pas
 
 Aussitôt après l'apparition des 108 guerriers, 72 tornades surgirent au loin. Chaque tourbillon abritait une personne qui fonçait vers la place.
 
-Une pression écrasante descendit soudainement, enveloppant la zone à l'arrivée des 72 tornades. À l'intérieur se trouvaient des hommes et des femmes, jeunes ou vieux, mais chacun possédait sans exception l'aura d'un Dieu, d'un Démon ou d'un Seigneur Démoniaque. De plus, en observant leurs yeux et leurs fronts, on pouvait distinguer un total de 27 étoiles!
+Une pression écrasante descendit soudainement, enveloppant la zone à l'arrivée des 72 tornades. À l'intérieur se trouvaient des hommes et des femmes, jeunes ou vieux, mais chacun possédait sans exception l'aura d'un Dieu, d'un Démon ou d'un Diable. De plus, en observant leurs yeux et leurs fronts, on pouvait distinguer un total de 27 étoiles!
 
 « Les 72 Saints! Les 72 Saints qui ont accompli de grands mérites pour l'Ancien Dao! »
 
@@ -82,7 +82,7 @@ Leurs dix-huit paires d'yeux argentés projetaient une énergie démoniaque infi
 
 « C'est exact, ce sont les montures draconiques démoniaques des 18 Rois! Si ces dragons sont là, cela signifie que les 18 Rois sont arrivés! »
 
-« Ils font partie de la famille royale, juste sous l'Empereur. J'ai entendu dire qu'ils sont tous d'une puissance phénoménale et que douze d'entre eux ne sont pas autorisés à entrer dans la capitale, car ils doivent garder les douze nations! »
+« Ils font partie de la famille royale, juste sous l'Empereur. J'ai entendu dire qu'ils sont tous d'une puissance phénoménale et que douze d'entre eux ne sont pas autorisés à entrer dans la capitale, car ils doivent garder les douze commanderies! »
 
 Un immense tumulte s'éleva devant cette vision. Dans le ciel lointain, encore loin du palais, Wang Lin observait la scène.
 

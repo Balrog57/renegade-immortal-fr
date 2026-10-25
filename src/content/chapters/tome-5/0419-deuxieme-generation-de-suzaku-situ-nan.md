@@ -14,7 +14,7 @@ Du Tian rit et poursuivit: « Il n'existe pas vraiment de méthode unique pour u
 
 Alors qu'il se dirigeait en hâte vers Pilu, Du Tian en apporta davantage à Wang Lin sur le drapeau d'âmes au milliard d'âmes: « Le domaine de l'ancêtre de la dixième génération était la dévoration; il utilisait donc le drapeau pour dévorer les âmes afin de renforcer sa puissance face à ses ennemis. »
 
-« Cependant, la seule compétence constante du drapeau d'âmes au milliard d'âmes est la fusion. L'âme Ascendante que tu as vue a été créée par fusion. Bien qu'elle ne puisse durer éternellement, elle peut tenir tête à un cultivateur Ascendant pendant le temps de la combustion d'un bâton d'encens. »
+« Cependant, la seule compétence constante du drapeau d'âmes au milliard d'âmes est la fusion. L'âme Ascendante que tu as vue a été créée par fusion. Bien qu'elle ne puisse durer éternellement, elle peut tenir tête à un cultivateur Ascendant pendant quinze minutes. »
 
 « Pourtant, ce ne sont là que les atouts secondaires du drapeau. Ce qui peut véritablement menacer les cultivateurs Ascendants du stade avancé, c'est la quatrième âme primaire. En des dizaines de milliers d'années, cette quatrième âme n'est apparue qu'une seule fois. À cette époque, le dernier ancêtre de notre secte au début du stade Ascendant se battait aux côtés de la deuxième génération de Suzaku contre quatre cultivateurs Ascendants du stade avancé provenant d'autres planètes. »
 

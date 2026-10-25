@@ -56,7 +56,7 @@ Aussitôt qu'elle entendit les paroles glaciales de Wang Lin, le corps de la Bê
 
 Cette tempête était si vaste qu'elle affecta les nuages eux-mêmes. Les éclairs et le tonnerre furent aspirés vers l'orage, formant un filet autour de lui.
 
-« Brisez la formation! » Wang Lin poussa un rugissement et la puissance de la Bête du Tonnerre atteignit son apogée. À cet instant, une quantité massive de sable et de gravier flottait dans les airs, comme si une force mystérieuse enveloppait le monde.
+« Brisez la formation! » Wang Lin poussa un rugissement et la puissance de la Bête du Tonnerre atteignit son apogée. À cet instant, dans un rayon d'une cinquantaine de kilomètres, une quantité massive de sable et de gravier flottait dans les airs, comme si une force mystérieuse enveloppait le monde.
 
 De plus, même les membres de la famille Huan à l'intérieur de la formation ressentirent cette puissance infinie, ce qui les fit pâlir. Certains d'entre eux, très érudits, reconnurent la Bête du Tonnerre au premier coup d'œil, et leurs visages changèrent radicalement.
 

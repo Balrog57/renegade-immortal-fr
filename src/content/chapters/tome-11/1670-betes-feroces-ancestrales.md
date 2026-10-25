@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1670 - Ancient Fierce Beasts
 slug: betes-feroces-ancestrales
 ---
-Le vin tiède entra dans sa bouche avec une pointe de fraîcheur avant de brûler l'intérieur de son estomac. Il leva les yeux et rit en rejetant la cruche de vin dans l'eau bouillante. Puis, il pointa du doigt le Système Stellaire Antique.
+Le vin encore froid entra dans sa bouche avec une pointe de fraîcheur avant de se changer en feu brûlant dans son estomac. Il leva les yeux et rit en rejetant la cruche de vin dans l'eau bouillante. Puis, il pointa du doigt le Système Stellaire Antique.
 
 « Quiconque souhaite entrer dans le Royaume Intérieur au cours de ces trois années devra passer sur mon cadavre! »
 

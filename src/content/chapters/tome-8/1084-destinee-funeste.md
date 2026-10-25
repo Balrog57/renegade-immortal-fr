@@ -84,13 +84,13 @@ La longue épée rouge resta suspendue, immobile, dans les airs.
 
 L'Empereur Divin de l'Oiseau Vermillon médita silencieusement tandis que son corps devenait de plus en plus transparent. En regardant la direction de la fuite de Tian Yunzi, il secoua la tête: « Je vieillis... Si j'avais été dans la force de l'âge, cet Tian Yunzi n'aurait pas pu échapper au deuxième style des Quatre Trésors Sacrés... »
 
-Il poussa un soupir en observant l'assemblée. Lorsque son regard finit par se poser sur le vieil homme du Vide Brillant, il dit d'une voix lente: « Vieux ami, allez-vous redevenir l'ennemi de ma Secte des Quatre Divinités? »
+Il poussa un soupir en observant l'assemblée. Lorsque son regard finit par se poser sur le vieil homme du Vide Brillant, il dit d'une voix lente: « Vieux ami, allez-vous redevenir l'ennemi de mes Quatre Sectes Divines? »
 
 Le vieil homme du Vide Brillant réfléchit un instant. Il observa l'Ancien Démon Ta Jia, désormais scellé, puis les Trésors Sacrés qui flottaient encore là.
 
 Avec sa puissance, s'il décidait d'agir, la seule chose dont il devrait craindre était les Trésors Sacrés...
 
-« Ce vieil homme ne peut que rendre une faveur à Qing Lin. Puisque l'Ancien Démon a été scellé par vos Trésors Sacrés, cette affaire est close. Adieu! » Après avoir pesé le pour et le contre, il renonça à l'attaque. Il éprouvait une crainte profonde envers les Quatre Trésors Sacrés. Bien qu'ils fussent bien moins puissants qu'autrefois, si l'on acculait la Secte des Quatre Divinités au point de les pousser à utiliser des sacrifices de sang...
+« Ce vieil homme ne peut que rendre une faveur à Qing Lin. Puisque l'Ancien Démon a été scellé par vos Trésors Sacrés, cette affaire est close. Adieu! » Après avoir pesé le pour et le contre, il renonça à l'attaque. Il éprouvait une crainte profonde envers les Quatre Trésors Sacrés. Bien qu'ils fussent bien moins puissants qu'autrefois, si l'on acculait les Quatre Sectes Divines au point de les pousser à utiliser des sacrifices de sang...
 
 Le vieil homme soupira en s'élançant vers le ciel. Là-haut, il se retourna pour regarder Mu Bingmei.
 
@@ -108,14 +108,14 @@ L'Empereur Divin de l'Oiseau Vermillon acquiesça.
 
 L'Empereur Divin sourit et hocha la tête: « Très bien! »
 
-Sur ces mots, les disciples de la Secte des Quatre Divinités se dispersèrent pour secourir les blessés. Quant aux cultivateurs de l'Alliance, ils se retirèrent tous, la peur au ventre.
+Sur ces mots, les disciples des Quatre Sectes Divines se dispersèrent pour secourir les blessés. Quant aux cultivateurs de l'Alliance, ils se retirèrent tous, la peur au ventre.
 
 « Beaucoup de mes compagnons ont perdu leur corps... »
-« La Secte des Quatre Divinités les aidera à reconstruire leurs corps! »
+« Les Quatre Sectes Divines les aideront à reconstruire leurs corps! »
 « Mon frère, Situ, est empoisonné par un venin de la Secte des Cadavres... »
 « Je m'en chargerai! »
 « Mon bienfaiteur, Zhou Yi, a besoin de Qing Lin pour ressusciter! »
-« Je vous donnerai le corps de Qing Lin! Si vous avez besoin de l'aide de la Secte des Quatre Divinités, nous vous apporterons tout notre soutien! »
+« Je vous donnerai le corps de Qing Lin! Si vous avez besoin de l'aide des Quatre Sectes Divines, nous vous apporterons tout notre soutien! »
 « Dans la Terre des Esprits Démoniaques, j'ai une branche de disciples directs... »
 « J'enverrai quelqu'un pour les escorter jusqu'à la Secte de l'Oiseau Vermillon! »
 
@@ -141,7 +141,7 @@ L'Empereur Divin agita sa manche et le corps de Wang Lin s'éleva dans les airs.
 
 Déjà gravement blessé, ce rugissement chargé de siècles de souffrance refoulée affecta son esprit. Il cracha une bouchée de sang et sa vision s'obscurcit...
 
-La Secte des Quatre Divinités... était partie. Ils avaient emmené tout le monde...
+Les Quatre Sectes Divines... étaient parties. Ils avaient emmené tout le monde...
 
 Deux larmes coulèrent des yeux de Mu Bingmei, une douleur déchirante lui broyant le cœur. Elle cracha du sang à son tour et s'effondra.
 

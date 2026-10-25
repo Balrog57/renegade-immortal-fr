@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2067 - Can’t Find Her
 slug: je-ne-peux-pas-la-trouver
 ---
-Pendant que Ji Du et les autres utilisaient le sort secret pour observer la bataille, Wang Lin arriva au clan céleste. Dans le Continent du Nord, il contempla ce paysage légèrement familier et fut envahi par l'émotion.
+Pendant que Jiu Di et les autres utilisaient le sort secret pour observer la bataille, Wang Lin arriva au clan céleste. Dans le Continent du Nord, il contempla ce paysage légèrement familier et fut envahi par l'émotion.
 
 « Il y a des centaines d'années, je quittais cet endroit pour me diriger vers le clan Ancien... Me voici de retour. » Wang Lin laissa échapper un soupir tandis que son regard balayait les environs. Son Sens Divin se déploya vers les 72 continents et, un instant plus tard, il couvrait l'intégralité des 72 continents du clan céleste.
 
@@ -28,7 +28,7 @@ Le sourire de Wang Lin s'élargit, comme s'il venait de distinguer quelque chose
 
 « C'est... Shengong Hu? Il est devenu le maître d'une secte! » Wang Lin fut quelque peu stupéfait.
 
-« Serait-elHongdie... Cette marque ne peut pas se tromper... »
+« Est-ce Hongdie?... Cette marque ne peut pas se tromper... »
 
 « Qing Lin... Lui aussi a choisi de ne pas cultiver et s'est réincarné plusieurs fois comme un simple mortel... »
 

@@ -18,7 +18,7 @@ L'une des principales raisons pour lesquelles Wang Lin avait pu survivre si long
 
 Ces mots décrivaient parfaitement la véritable nature de Wang Lin.
 
-Être capable de tirer une telle conclusion à partir d'une simple expression de Yao Xixue et des paroles nonchalantes de Cao Yidou était une prouesse que même la plupart des cultivateurs ayant vécu des milliers d'années ne pourraient accomplir. Seuls les vieux monstres ayant cultivé pendant des dizaines de milliers d'années et ayant percé les secrets du cœur humain pouvaient faire preuve d'une telle clairvoyance, tout comme Wang Lin.
+Être capable de tirer une telle conclusion à partir d'une simple expression de Yao Xixue et des paroles nonchalantes de Cao Yidou était une prouesse que même la plupart des cultivateurs ayant vécu des milliers d'années ne pourraient accomplir. Seuls les vieux monstres ayant cultivé pendant dix mille ans et ayant percé les secrets du cœur humain pouvaient faire preuve d'une telle clairvoyance, tout comme Wang Lin.
 
 C'était semblable à ce qu'il avait vécu sur la planète Suzaku, lorsqu'il avait pu déceler le Domaine de l'Illusion Impitoyable de Liu Mei à travers les deux personnalités distinctes de ses deux disciples féminines.
 

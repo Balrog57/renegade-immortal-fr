@@ -42,15 +42,15 @@ Le visage de Wang Lin se mua en une expression de colère. Animé par un élan d
 
 « J'ai dû redoubler d'efforts pour sortir cette gourde de la rivière. Si elle vous intéresse, prenez-la, tout simplement! Pourquoi dire que je mens? Et quel est le rapport avec la vigne? Quelqu'un a pu la détacher et la jeter à l'eau. Vous me questionnez, mais à qui dois-je poser la question, moi? »
 
-L'Ancien Sun regarda les patates douces restantes, puis la gourde. Il réfléchit un instant: « Bien que je convoite cette gourde, voler le trésor d'un disciple honorifique pour ensuite l'expulser serait trop indigne. Si la nouvelle se répandait, ma réputation serait ruinée. Et si les autres membres de la secte découvraient l'existence de cette gourde, je ne pourrais empêcher personne de s'en emparer. Ce gamin me ment encore; il doit exister d'autres gourdes de ce type. Si je parviens à toutes les obtenir, ma culture fera un bond en avant grâce aux pilules que je raffinerai. »
+L'Ancien Sun regarda les patates douces restantes, puis la gourde. Il réfléchit un instant: « Bien que je convoite cette gourde, voler le trésor d'un disciple honoraire pour ensuite l'expulser serait trop indigne. Si la nouvelle se répandait, ma réputation serait ruinée. Et si les autres membres de la secte découvraient l'existence de cette gourde, je ne pourrais empêcher personne de s'en emparer. Ce gamin me ment encore; il doit exister d'autres gourdes de ce type. Si je parviens à toutes les obtenir, ma culture fera un bond en avant grâce aux pilules que je raffinerai. »
 
-Sur cette pensée, il changea soudainement d'expression et s'exclama: « Tu as vraiment eu une vie difficile, petit. J'ignorais que tu devais rester une semaine entière sans manger. Maintenant que je suis au courant, je vais régler cela. Même les disciples honorifiques restent des disciples de la Secte Heng Yue! »
+Sur cette pensée, il changea soudainement d'expression et s'exclama: « Tu as vraiment eu une vie difficile, petit. J'ignorais que tu devais rester une semaine entière sans manger. Maintenant que je suis au courant, je vais régler cela. Même les disciples honoraires restent des disciples de la Secte Heng Yue! »
 
 Voyant que Wang Lin était toujours en colère, il eut un rire intérieur moqueur, mais dit d'un ton bienveillant: « Wang Lin, je veux cette gourde, mais je souhaite te traiter dignement. Veux-tu devenir mon assistant? »
 
 Wang Lin grommela: « Je ne veux pas. Un assistant n'est rien d'autre qu'un serviteur. Si mon père apprenait que je suis devenu un serviteur, il me battrait à mort. »
 
-L'Ancien Sun faillit perdre son sang-froid. Il aurait aimé le battre à mort avant même que le père de Wang Lin ne le fasse. Bien qu'il fût au bas de la deuxième génération, s'il annonçait chercher un assistant dans la secte, tous les disciples honorifiques se précipiteraient pour le poste.
+L'Ancien Sun faillit perdre son sang-froid. Il aurait aimé le battre à mort avant même que le père de Wang Lin ne le fasse. Bien qu'il fût au bas de la deuxième génération, s'il annonçait chercher un assistant dans la secte, tous les disciples honoraires se précipiteraient pour le poste.
 
 Refoulant sa colère, il tonna: « Très bien! Je t'accepte comme disciple. Je vais en informer le Patriarche immédiatement. Prépare tes affaires et viens m'attendre dans mon jardin. » Sur ces mots, il quitta la chambre de Wang Lin. D'un pas, un nuage apparut et il s'élança vers le Patriarche.
 

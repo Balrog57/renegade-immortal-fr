@@ -20,11 +20,11 @@ Un point lumineux apparut soudainement dans la déchirure spatiale et s'y mit à
 
 Le temps passa lentement. Après une durée indéterminée, ce point lumineux continua de dériver dans l'espace. Ce feu d'âme montrait des signes de dissipation. Le temps s'écoulait, et la lumière restait très ténue; il ne subsistait plus qu'une petite flamme du feu d'âme.
 
-Un jour, une ombre gigantesque flotta soudainement vers la lumière. À y regarder de plus près, cette ombre était un cadavre imposant. Ce corps semblait être celui d'un membre du Clan des Démons Géants. Cependant, si l'on observait attentivement le front de ce corps, on n'y voyait pas un marteau, mais une hache.
+Un jour, une ombre gigantesque flotta soudainement vers la lumière. À y regarder de plus près, cette ombre était un cadavre imposant. Ce corps semblait être celui d'un membre du Clan des Diables Géants. Cependant, si l'on observait attentivement le front de ce corps, on n'y voyait pas un marteau, mais une hache.
 
 Une hache noire!
 
-Si des membres du Clan des Démons Géants se trouvaient ici, ils reconnaîtraient instantanément que cette hache désignait un démon ancestral de leur clan, autrement dit un démon de la haute Antiquité.
+Si des membres du Clan des Diables Géants se trouvaient ici, ils reconnaîtraient instantanément que cette hache désignait un Diable ancestral de leur clan, autrement dit un Diable de la haute Antiquité.
 
 Au moment où le corps toucha la lumière, un filet de fumée s'en échappa. Cette fumée se changea en une créature illusoire dotée de deux cornes sur la tête et, animée par un regard avide, bondit vers la lumière. Il s'agissait d'une espèce mystérieuse propre à l'intérieur des failles spatiales: elle dévorait tout, qu'il s'agisse de cadavres, de trésors magiques ou d'âmes.
 
@@ -38,7 +38,7 @@ Lors de son réveil, il n'avait aucune conscience, car il n'était qu'une boule 
 
 La lumière pénétra soudainement la tête du géant et s'y installa lentement.
 
-L'âme de Wang Lin pouvait être considérée comme entourée d'une flamme démoniaque; le froid disparut et son âme se calma progressivement. Le temps passa à nouveau, et cette période fut encore plus longue que la précédente. Durant cet intervalle, le corps qui abritait Wang Lin flottait lentement dans le vide.
+L'âme de Wang Lin pouvait être considérée comme entourée d'une flamme diabolique; le froid disparut et son âme se calma progressivement. Le temps passa à nouveau, et cette période fut encore plus longue que la précédente. Durant cet intervalle, le corps qui abritait Wang Lin flottait lentement dans le vide.
 
 Sans certitude, peut-être parce que ce corps contenait l'âme de Wang Lin, davantage de ces créatures apparurent pour tenter de le dévorer. Cependant, c'est lui qui finit par toutes les dévorer. Son Sens Divin s'étendit et son feu d'âme se renforça.
 

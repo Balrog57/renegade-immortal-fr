@@ -22,7 +22,7 @@ Plusieurs silhouettes émergèrent du vortex dans le ciel. Ling Tianhou se tenai
 
 Sa voix retentit comme un coup de tonnerre grondant à travers les cieux. Le sol commença immédiatement à se fissurer sous la puissance de l'onde de choc. En un clin d'œil, la voix de Ling Tianhou s'était propagée dans toute la Terre des Esprits Démoniaques.
 
-Étrangement, il semblait que tous savaient déjà que Tan Lang était arrivé, car personne ne manifesta la moindre surprise.
+Étrangement, Tian Yunzi et les autres semblaient savoir depuis longtemps que Tan Lang se trouvait là, car aucun d'eux ne manifesta la moindre surprise.
 
 Xue Zu fronça les sourcils, le visage assombri. Dès qu'il avait posé le pied sur la Terre des Esprits Démoniaques, il avait balayé toute la contrée de son sens divin, mais n'avait trouvé aucune trace de Yao Xixue. C'était comme si elle s'était volatilisée, ce qui accroissait son inquiétude.
 
@@ -94,7 +94,7 @@ Wang Lin fonça droit vers le fond du gouffre et atteignit bientôt le vortex. �
 
 Ling Tianhou aperçut immédiatement la formation d'épée des sept étoiles, ce qui le fit entrer dans une rage folle.
 
-Tian Yunzi vit également que Wang Lin ne portait aucune marque du Massacre Céleste. Un éclair de froideur passa dans son regard.
+Tian Yunzi vit également que Wang Lin ne portait aucune marque de l'Art Céleste du Massacre. Un éclair de froideur passa dans son regard.
 
 Wang Lin posa le pied sur le vortex, se retourna pour lancer un dernier regard glacial à l'assemblée, avant de s'y enfoncer progressivement.
 

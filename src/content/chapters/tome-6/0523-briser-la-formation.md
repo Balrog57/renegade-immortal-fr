@@ -122,7 +122,7 @@ Cependant, dès l'apparition de cette lumière, d'innombrables symboles de restr
 
 Le regard de Wang Lin était aussi vif que l'éclair alors qu'il levait le pied et marchait vers la vallée, pas à pas.
 
-À chacun de ses pas, de nouvelles lueurs vertes surgissaient dans la vallée. Ces lumières se rassemblèrent pour former un immense pilier qui s'abattit sur lui.
+À chacun de ses pas, de nouvelles lueurs vertes surgissaient dans la vallée. Ces lumières se rassemblèrent pour former un immense pilier de lumière verte, épais d'une dizaine de mètres, qui jaillit avec fureur et s'abattit sur lui.
 
 L'expression de Wang Lin resta imperturbable; il ne ralentit nullement sa marche!
 

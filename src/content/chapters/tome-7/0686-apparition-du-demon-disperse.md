@@ -30,7 +30,7 @@ Le cœur de Qian Kuizi, de la famille Qian, s'emballa sauvagement. Ce Démon Dis
 
 Le vieil homme de la famille Xu fut ému pour la première fois. Son sens divin laissa même paraître une pointe d'excitation alors qu'il contemplait la silhouette du Démon Dispersé.
 
-« Un Démon Dispersé! Le démon dispersé d'un Ancien Démon! »
+« Un Démon Dispersé! Le démon dispersé d'un Ancien Diable! »
 
 Après son rugissement, le Démon Dispersé laissa échapper un rire sinistre. Il s'élança du sommet de la tête de Wang Lin vers les cieux et prit une stature immense. Il ne daigna même pas regarder la figure céleste, restée immobile, préférant fixer Wang Lin d'un regard féroce.
 
@@ -54,7 +54,7 @@ Même avec sa puissance, le Démon Dispersé ne pouvait briser cette empreinte e
 
 En raison de son tempérament démoniaque, le Démon Dispersé ne communiquait normalement pas avec Wang Lin. Cependant, l'empreinte dans son corps était si puissante que, même après son éveil complet, il ne pouvait quitter l'âme originelle de Wang Lin. Et s'il tentait de le faire, ses racines resteraient liées à l'âme originelle de ce dernier.
 
-C'est ainsi qu'un accord fut conclu pour obtenir sa liberté. Ce n'était pas qu'il refusait d'occuper le corps de Wang Lin après son réveil, mais avec une telle empreinte, cela aurait été inutile. Maintenant que Wang Lin lui offrait cette chance, il lui suffirait de combattre pour obtenir sa délivrance. Toutefois, à cause de l'Ancien Démon Bei Luo, il serait impossible de lever le sceau à moins que la culture de Wang Lin n'atteigne un certain niveau.
+C'est ainsi qu'un accord fut conclu pour obtenir sa liberté. Ce n'était pas qu'il n'avait jamais songé à s'emparer du corps de Wang Lin après son réveil, mais avec une telle empreinte, tout cela était inutile. Maintenant que Wang Lin lui offrait cette chance, il lui suffirait de combattre pour obtenir sa délivrance. Toutefois, à cause de l'Ancien Démon Bei Luo, il serait impossible de lever le sceau à moins que la culture de Wang Lin n'atteigne un certain niveau.
 
 Pourtant, le Démon Dispersé avait d'autres projets. Tant que Wang Lin lui rendrait sa liberté, il était certain de pouvoir détruire le sceau de l'Ancien Démon Bei Luo en quelques centaines d'années. À ce moment-là, il serait véritablement libre!
 
@@ -66,23 +66,23 @@ Ce coup de poing portait la puissance du Démon Dispersé et la force de l'armur
 
 La main droite de la figure céleste traça un sceau et pointa vers l'avant. L'énergie spirituelle céleste environnante se condensa immédiatement pour former un vortex gigantesque. Celui-ci se précipita sur le dragon noir et, en un instant, les deux furent réduits à néant.
 
-La figure céleste retira sa main et ouvrit les bras. Chacune de ses mains portait un sceau différent. Mille Illusions frémit soudain, et une énergie spirituelle infinie convergeait vers lui depuis toute la planète. Par une méthode mystérieuse, cette énergie fut transformée en énergie spirituelle céleste.
+La figure céleste retira sa main et ouvrit les bras. Chacune de ses mains portait un sceau différent. La planète Qianhuan frémit soudain, et une énergie spirituelle infinie convergeait vers lui depuis toute la planète. Par une méthode mystérieuse, cette énergie fut transformée en énergie spirituelle céleste.
 
 Cette énergie était si dense qu'elle semblait devenir solide, se condensant frénétiquement au-dessus de la main droite de l'entité céleste. En un clin d'œil, une faille apparut soudainement dans le cycle de l'énergie spirituelle de la planète Qianhuan!
 
-À cet instant précis, Mille Illusions fut privée de toute énergie spirituelle!
+À cet instant précis, La planète Qianhuan fut privée de toute énergie spirituelle!
 
 Toute l'énergie avait été convertie en énergie spirituelle céleste, formant une sphère blanc laiteux au-dessus de la paume de la figure céleste.
 
 Cette méthode fit plisser les yeux de Wang Lin, mais le Démon Dispersé qui dirigeait son corps eut un sourire glacial: « Un simple sort de transformation céleste. Ce n'est qu'un art provenant d'une branche du clan des anciens démons, et tu oses l'exhiber devant moi! »
 
-Le regard de Wang Lin restait calme, mais la fumée démoniaque autour de lui s'épaissit. Sous le contrôle du Démon Dispersé, il pointa le ciel de sa main droite et tonna: « Ancien Démon! »
+Le regard de Wang Lin restait calme, mais la fumée démoniaque autour de lui s'épaissit. Sous le contrôle du Démon Dispersé, il pointa le ciel de sa main droite et tonna: « Ancien Diable! »
 
 Ces deux mots furent prononcés dans la langue du clan ancien. À cet instant, la main droite de Wang Lin se mua en griffe, entourée de flammes démoniaques. Ces flammes quittèrent son corps pour former une gigantesque griffe démoniaque de plusieurs dizaines de pieds de long.
 
 Tendant sa main vers la terre en contrebas, Wang Lin prononça à nouveau les mots de la langue ancienne: « Extrayez l'âme de la planète! »
 
-À cet instant, Mille Illusions trembla et une aura antique commença à s'élever. La poigne du Démon Dispersé était capable d'arracher l'âme planétaire de Mille Illusions.
+À cet instant, la planète Qianhuan trembla et une aura antique commença à s'élever. La poigne du Démon Dispersé était capable d'arracher l'âme planétaire de Qianhuan.
 
 « Si tu utilises toute l'énergie spirituelle de la planète, alors j'utiliserai son âme! Voyons laquelle est la plus puissante! » Le Démon Dispersé rit et libéra une quantité phénoménale de flammes démoniaques.
 

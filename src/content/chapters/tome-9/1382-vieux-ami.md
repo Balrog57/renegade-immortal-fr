@@ -102,4 +102,4 @@ Après sa parole, une joie immense se répandit parmi les cultivateurs environna
 
 Au fil des ans, qui ne connaissait pas Tan Lang?
 
-Tan Lang n'allait jamais nulle part sans trésors. Ses paroles avaient été confirmées maintes et maintes fois par les cultivateurs. Les avantages qu'il offrait n'étaient jamais de qualité inférieure!
+Tan Lang ne se rendait jamais dans un lieu sans trésor. Cet adage avait été confirmé maintes et maintes fois par les cultivateurs de la Terre Déchue. Les avantages qu'il offrait n'étaient jamais de qualité inférieure!

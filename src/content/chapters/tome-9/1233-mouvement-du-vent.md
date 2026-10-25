@@ -62,7 +62,7 @@ Lorsque Lu Yanfei arriva, chacun pénétra dans la formation. Au moment où cell
 
 Simultanément, dans la région de rang 9, après l'abattage de vagues successives de bêtes féroces à l'extérieur de la faille, la marée de bêtes semblait s'être apaisée. Cela permit aux cultivateurs de la Mer des Nuages de jouir d'un moment de répit.
 
-Parmi eux, Li Qianmei, aux cheveux bleus, était le centre de toutes les attentions. Elle essuya le sang des bêtes sur son épée, conservant un calme imperturbable.
+Parmi eux, Li Qianmei, aux cheveux bleus, était le centre de toutes les attentions. Elle essuya le sang des bêtes sur son épée; la fatigue se lisait sur son visage, mais son calme restait intact.
 
 Regardant au loin, Li Qianmei quitta silencieusement le champ de bataille et se dirigea vers le portail de montagne de la branche locale de la Secte Démon.
 

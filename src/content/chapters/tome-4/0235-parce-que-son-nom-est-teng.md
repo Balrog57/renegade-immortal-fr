@@ -176,7 +176,7 @@ Soudain, le dieu démon illusionnaire ouvrit la bouche et engloutit la goutte de
 
 La lumière descendit lentement. Wang Lin la saisit et l'illusion du dieu démon se dissipe peu à peu.
 
-C'était une technique mineure apprise des souvenirs hérités de l'Ancien Dieu Tu Si. Elle permettait de récupérer l'âme de quiconque avait été tué, bien que celle-ci ne durât que quinze minutes.
+C'était une technique mineure apprise des souvenirs hérités de l'Ancien Dieu Tu Si. Elle permettait de récupérer l'âme de quiconque avait été tué, bien que celle-ci ne durât que sept minutes.
 
 L'âme récupérée n'avait aucun souvenir, seulement quelques instincts primaires. Pour un Ancien Dieu, c'était une technique inutile qui ne servait qu'à augmenter temporairement la puissance des trésors magiques.
 
@@ -188,7 +188,7 @@ Anéantir une famille ne consistait pas simplement à tuer ses membres. Wang Lin
 
 Progressivement, les points lumineux se multiplièrent dans son sens divin et son sourire devint de plus en plus sinistre. Au fil des années, le nombre de descendants des Teng avait atteint un nombre considérable, et Wang Lin mémorisait chaque signature d'âme.
 
-Un quart d'heure passa en un instant et l'âme de Teng Li, dévorée par Wang Lin, se dissipa.
+Sept minutes passèrent en un instant et l'âme de Teng Li, dévorée par Wang Lin, se dissipa.
 
 Wang Lin frappa son sac de rangement et la bête moustique apparut soudainement. Il monta dessus et vola vers la secte la plus proche. Sept membres de la famille Teng s'y trouvaient.
 

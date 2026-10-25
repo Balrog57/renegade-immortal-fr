@@ -42,7 +42,7 @@ Le vieil homme au visage balafré avait observé tout le combat. Il fit tourner 
 
 Il y avait également cette vieille femme en vert qui restait assise tranquillement, les yeux clos. Elle ne jetait pas même un regard à ce qui venait de se passer, comme plongée en méditation.
 
-Le temps passa peu à peu. Le jour et la nuit se confondaient sur ce continent sauvage enveloppé de brume, rendant toute distinction impossible. Après environ une heure, un rayon d'énergie d'épée jaillit du lointain.
+Le temps passa peu à peu. Le jour et la nuit se confondaient sur ce continent sauvage enveloppé de brume, rendant toute distinction impossible. Après environ deux heures, un rayon d'énergie d'épée jaillit du lointain.
 
 Cette énergie semblait extrêmement tranchante et empreinte d'une férocité redoutable. Elle ne fit pas bouger la brume stellaire et perça directement vers les cinq individus.
 

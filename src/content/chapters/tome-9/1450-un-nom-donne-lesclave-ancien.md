@@ -12,7 +12,7 @@ L'estimé Ling Dong, qui gisait là, ouvrit soudain les yeux, révélant une exp
 
 L'expression de Wang Lin resta calme; sa seule réponse fut d'injecter davantage de son pouvoir de Dieu Ancien dans le Fourneau Impérial. La puissance de raffinage du fourneau déferla, et des cris déchirants résonnèrent alors à l'intérieur.
 
-« Tu veux me raffiner? C'est impossible! Bien que ce vieil homme ait été gravement blessé par toi, j'ai cultivé durant d'innombrables années. Mon cœur de Dao est inébranlable, il t'est donc impossible de me raffiner! » ricana l'estimé Ling Dong. Voyant que Wang Lin ne répondait pas, il ferma les yeux pour entamer sa guérison.
+« Tu veux me raffiner? C'est impossible! Bien que ce vieil homme ait été gravement blessé par toi, j'ai cultivé pendant des dizaines de milliers d'années. Mon cœur de Dao est inébranlable, il t'est donc impossible de me raffiner! » ricana l'estimé Ling Dong. Voyant que Wang Lin ne répondait pas, il ferma les yeux pour entamer sa guérison.
 
 Il en conclut que Wang Lin ne pourrait le raffiner en peu de temps. Dès qu'il aurait recouvré une partie de ses forces, il pourrait briser ce fourneau étrange et s'échapper. En effet, Wang Lin n'avait pas le niveau de culture nécessaire pour raffiner un cultivateur du troisième pas. Même avec le Fourneau Impérial, cela prendrait un temps dont il ne disposait pas dans la Tombe de l'Ordre Antique.
 

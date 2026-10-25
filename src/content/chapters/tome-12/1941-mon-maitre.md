@@ -56,13 +56,13 @@ Un instant plus tard, le vieil homme ouvrit soudainement les yeux, révélant un
 
 « J'ai trouvé ce Jin Biaozi. Il se trouve à des centaines de milliers de kilomètres d'ici. Vous tous, utilisez rapidement la formation de transfert pour le capturer. N'oubliez pas de ne pas détruire son âme originelle. Je veux fouiller son âme! » dit le vieil homme avant de lancer un jade.
 
-« Tenez ce jade et vous pourrez trouver ce Jin Biaozi. Quant à ce disciple... Expulsez-le vers la secte extérieure, le reste dépendra de ses propres efforts. »
+« Tenez ce jade et vous pourrez trouver ce Jin Biaozi. Quant à ce disciple... Envoyez-le dans la secte extérieure, le reste dépendra de ses propres efforts. »
 
 Les yeux de Wang Lin s'illuminèrent et son Sens Divin se retira des ondulations. Il regarda Liu Jinbiao qui n'avait rien remarqué, puis secoua la tête dans un soupir.
 
 « Laisse tomber. S'il ne subit pas un peu de souffrance, il n'apprendra jamais sa leçon. »
 
-Le temps passa vite. Une demi-heure plus tard, alors que Liu Jinbiao volait, quatre silhouettes apparurent devant lui. Ces cultivateurs étaient ceux que Wang Lin avait vus partir de la secte pour capturer Liu Jinbiao.
+Le temps passa vite. Environ une heure plus tard, alors que Liu Jinbiao volait, quatre silhouettes apparurent devant lui. Ces cultivateurs étaient ceux que Wang Lin avait vus partir de la secte pour capturer Liu Jinbiao.
 
 Les quatre avaient effectué une téléportation sur des centaines de milliers de kilomètres et avaient traqué Liu Jinbiao grâce au jade. Ils se resserrèrent sur lui.
 
@@ -88,7 +88,7 @@ Wang Lin n'apparut qu'une fois qu'ils furent éloignés. Il regarda devant lui e
 
 « Même capturé, il s'obstine à maintenir son mensonge. Ce Liu Jinbiao... Qui est donc ce maître dont il parle? » Wang Lin afficha une expression étrange et reprit sa course. Ces cultivateurs devaient utiliser une formation de transfert, mais pour Wang Lin, parcourir quelques centaines de milliers de kilomètres ne nécessitait qu'une simple courbure spatiale.
 
-Près d'une heure plus tard, dans la partie nord du Continent du Grand Sage, se trouvait une vallée. De nombreux palais y étaient érigés et une formation protégeait les lieux. C'était une secte ordinaire du Continent du Grand Sage.
+Après plus d'une heure, dans la partie nord du Continent du Grand Sage, se trouvait une vallée. De nombreux palais y étaient érigés et une formation protégeait les lieux. C'était une secte ordinaire du Continent du Grand Sage.
 
 Liu Jinbiao fut conduit dans un palais de cette vallée. Bien que son cœur tremblât de peur, son expression demeurait sereine. Un sourire froid et méprisant flottait même au coin de ses lèvres.
 

@@ -40,23 +40,23 @@ Il était impossible de la percevoir du regard, mais si l'on utilisait son Sens 
 
 Cette tempête était forgée par la volonté et la vie de chaque habitant des 7 Millions de Mondes, et elle était partout! Elle formait un mur gigantesque empêchant toute force extérieure d'entrer!
 
-Tout cela semble lent, mais cela se produisit en un instant. À l'instant même où la tempête de volonté et de vie prit forme, l'tonnerre éternel du Clan du Tonnerre Dispersé perça le vide et arriva. Il s'écrasa contre la tempête dans une tentative de pénétration!
+Tout cela semble lent, mais cela se produisit en un instant. À l'instant même où la tempête de volonté et de vie prit forme, le tonnerre éternel du Clan du Tonnerre Dispersé perça le vide et arriva. Il s'écrasa contre la tempête dans une tentative de pénétration!
 
-Un grondement tonnerre résonna, ébranlant le monde entier. La tempête commença à trembler et des rugissements empreints de résistance en jaillirent. C'étaient les cris d'innombrables cultivateurs et de millions de mortels. Ces rugissements fusionnèrent pour former un son capable de défier le ciel lui-même!
+Un grondement de tonnerre résonna, ébranlant le monde entier. La tempête commença à trembler et des rugissements empreints de résistance en jaillirent. C'étaient les cris d'innombrables cultivateurs et de millions de mortels. Ces rugissements fusionnèrent pour former un son capable de défier le ciel lui-même!
 
 Wang Lin resta stupéfait devant ce spectacle, son esprit tremblant sous l'effet du rugissement. Son âme sembla entrer en résonance avec ce cri, et il eut la sensation d'être purifié. La confirmation de son propre Dao devint plus limpide.
 
-L'tonnerre éternel ne brisa pas la tempête dès le premier assaut, et celle-ci devint plus forte encore. Le rugissement de millions de personnes éclata simultanément!
+Le tonnerre éternel ne brisa pas la tempête dès le premier assaut, et celle-ci devint plus forte encore. Le rugissement de millions de personnes éclata simultanément!
 
-Sous la pression de cette force, l'tonnerre éternel fut repoussé de plusieurs milliers de pieds!
+Sous la pression de cette force, le tonnerre éternel fut repoussé de plusieurs milliers de pieds!
 
-Des tonnerres sourds retentirent. L'tonnerre éternel jaillit à nouveau, semblant se connecter au ciel lui-même, et redescendit immédiatement!
+Des tonnerres sourds retentirent. Le tonnerre éternel jaillit à nouveau, semblant se connecter au ciel lui-même, et redescendit immédiatement!
 
 Cette scène terrifiante remplit les yeux du Grand Ancien de peur. Pour la première fois, il tremblait! Il n'avait jamais imaginé qu'un tel événement puisse survenir dans les 7 Millions de Mondes! Ni lui, ni même l'ancêtre du Clan du Tonnerre Dispersé de l'époque n'aurait pu concevoir une telle chose!
 
 « Fous... vous êtes tous devenus fous. Tous les cultivateurs des 7 Millions de Mondes sont devenus fous. Même tous les mortels aussi... tous sont devenus fous! »
 
-L'tonnerre éternel atteignit la limite de la tempête entourant les 7 Millions de Mondes et frappa la tempête une seconde fois.
+Le tonnerre éternel atteignit la limite de la tempête entourant les 7 Millions de Mondes et frappa la tempête une seconde fois.
 
 La tempête gronda; d'innombrables mortels des 7 Millions de Mondes crachèrent du sang et s'effondrèrent, mais encore plus de personnes sortirent pour remplacer ceux qui étaient tombés.
 
@@ -72,7 +72,7 @@ Les yeux du Daoïste Esprit Dispersé étaient remplis d'une tristesse infinie a
 
 C'était comme si la formation avait acquis un esprit de formation!
 
-La tempête rugissait. Peu importait le nombre de bombardements de l'tonnerre éternel, la tempête ne bougeait pas!
+La tempête rugissait. Peu importait le nombre de bombardements du tonnerre éternel, la tempête ne bougeait pas!
 
 Une épée cristalline commença à se condenser au cœur de cette tempête. Dès son apparition, le monde trembla et elle flotta au-dessus du Daoïste Esprit Dispersé.
 
@@ -88,7 +88,7 @@ Qu'était cette épée? Elle était manifestement l'espoir de toute vie dans les
 
 Tout cela se déroula en un laps de temps infime. L'expression du Grand Ancien changea radicalement. Il fixa l'épée de sept pieds, une lueur de froideur dans le regard.
 
-« Arrogant! Vous n'êtes rien de plus que les 7 Millions de Mondes! » Il ricana en s'avançant vers Wang Lin, la main droite levée, déclenchant un grondement tonnerre!
+« Arrogant! Vous n'êtes rien de plus que les 7 Millions de Mondes! » Il ricana en s'avançant vers Wang Lin, la main droite levée, déclenchant un grondement de tonnerre!
 
 Wang Lin restait silencieux, comme s'il ne voyait pas le Grand Ancien approcher. L'éclair infini se referma instantanément, formant d'innombrables sphères de tonnerre. Elles étaient sur le point de percuter Wang Lin, et le Grand Ancien n'était plus qu'à moins de cent pieds!
 

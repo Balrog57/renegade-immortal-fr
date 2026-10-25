@@ -24,7 +24,7 @@ Le bavardage du fou devint plus intense encore et ne s'interrompit jamais. Sans 
 
 « Transformez-les en feuilles, je vais les piétiner, piétiner, piétiner! »
 
-« Assez! » Après que le fou l'eut fait tournoyer des milliers de fois, la concentration de Wang Lin fut rompue. Il leva la main droite et contraignit le fou à s'arrêter devant lui.
+« Assez! » Après que le fou eut répété ces mots des milliers de fois, la concentration de Wang Lin fut rompue. Il leva la main droite et contraignit le fou à s'arrêter devant lui.
 
 Wang Lin regarda le fou et dit lentement: « Calme-toi un peu. »
 
@@ -42,7 +42,7 @@ Wang Lin lui lança un regard éloquent, puis relâcha sa prise pour reprendre s
 
 « Le sang que tu as donné à Xu Liguo et Liu Jinbiao était inutile. Tout ce sang, même après avoir été raffiné, ne vaudrait pas la moitié d'une goutte de ton véritable sang! »
 
-« Ils te trompaient, et tu les trompais aussi. Comptes-tu encore jouer à ce genre de jeu devant moi? Moi, Wang Lin, j'ai déjà rendu justice. La punition qu'ils ont subie est suffisante, n'en parle plus. » Wang Lin se détourna du fou tandis que ses paroles résonnaient doucement.
+« Ils te trompaient, et tu les trompais aussi. Comptes-tu encore jouer à ce genre de jeu devant moi? Moi, Wang Lin, j'agis en recherchant l'équité. La punition qu'ils ont subie est suffisante, n'en parle plus. » Wang Lin se détourna du fou tandis que ses paroles résonnaient doucement.
 
 Le fou cligna des yeux, son visage devint rouge et il gloussa. Un instant plus tard, il dit: « Comment ce Roi sage pourrait-il être dupé par eux... Cependant, ce Xu Liguo et ce Liu Jinbiao ont vraiment eu la capacité de tromper ce Roi. Humph, ils sont trop malfaisants; heureusement que ce Roi sait à quel point son sang est précieux. Autrefois, celui qui, qui, qui... »
 

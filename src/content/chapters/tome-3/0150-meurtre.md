@@ -46,7 +46,7 @@ Un fil doré perça le sol, agrippa le corps de Chen Hai et l'extirpa avec une g
 
 Après avoir tué deux personnes, la froideur dans le regard de Wang Lin ne s'était pas atténuée; elle s'était intensifiée alors qu'il poursuivait sa traque.
 
-Une demi-heure plus tard, le nombre de corps derrière Wang Lin était passé de quatre à neuf.
+Quinze minutes plus tard, le nombre de corps derrière Wang Lin était passé de quatre à neuf.
 
 Le dernier survivant était le Grand Ancien Qian Kun, qui avait été le premier à s'enfuir. Plus il courait, plus sa terreur grandissait. Cette peur atteignit son paroxysme lorsque son sens divin détecta Wang Lin et les neuf corps qui volaient derrière lui. Il en eut le vertige.
 

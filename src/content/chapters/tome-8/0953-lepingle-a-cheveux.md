@@ -20,7 +20,7 @@ L'éclair rouge ne s'arrêta pas après avoir transpercé le corps du vieil homm
 
 C'était là la puissance du Royaume Ji de Qing Shui!
 
-Wang Lin s'était déjà préparé à ouvrir son troisième œil et à utiliser l'énergie d'origine pour faire face à l'assaut de Shen Mozi. Cependant, grâce à l'intervention de Qing Shui, il put immédiatement poursuivre le Maître Fantôme Vide.
+Wang Lin s'était déjà préparé à ouvrir son troisième œil et à utiliser l'énergie d'origine pour faire face à l'assaut de Shen Mozi. Cependant, grâce à l'intervention de Qing Shui, il put immédiatement poursuivre Huan Xuzi.
 
 La brume pourpre tourbillonnait dans le ciel avant de se contracter rapidement en une sphère de la taille d'un poing qui flotta dans la main de Qing Shui. Près de lui flottait également une épingle à cheveux pourpre sculptée d'un phénix.
 
@@ -60,7 +60,7 @@ La fissure que l'homme aux cheveux violets avait ouverte s'effondra immédiateme
 
 « Malheureusement, je suis le seul cultivateur Briseur du Nirvana dans le Royaume de la Boucherie et la plupart des cultivateurs du Purificateur du Nirvana se trouvent au quartier général de l'Alliance. Sinon, avec suffisamment d'aide, j'aurais pu utiliser la formation des 99 épées. Pourtant, je crains que même cette formation ne puisse résister à ce sortilège! »
 
-Quant au Maître Fantôme Vide, son visage pâlit et il renonça à combattre Wang Lin. Voyant Wang Lin le poursuivre, il jura et projeta les neuf épées derrière lui. Il savait que Wang Lin était attiré par ces armes et espérait s'en servir pour le distraire.
+Quant à Huan Xuzi, son visage pâlit et il renonça à combattre Wang Lin. Voyant Wang Lin le poursuivre, il jura et projeta les neuf épées derrière lui. Il savait que Wang Lin était attiré par ces armes et espérait s'en servir pour le distraire.
 
 Les yeux de Wang Lin s'illuminèrent et il cessa sa poursuite. Sa main droite s'étira et saisit instantanément les neuf épées, qui se mirent à se débattre violemment.
 
@@ -82,9 +82,9 @@ Alors que la montagne s'effondrait, un magma infini déferla tel un océan, occu
 
 Le ciel était saturé de flammes éternelles. La terre était recouverte de magma. Entre les deux régnait un épais brouillard toxique!
 
-Des cris de douleur résonnèrent. En un laps de temps infime, tous les habitants furent terrassés, à l'exception de l'homme aux cheveux violets et du Maître Fantôme Vide!
+Des cris de douleur résonnèrent. En un laps de temps infime, tous les habitants furent terrassés, à l'exception de l'homme aux cheveux violets et de Huan Xuzi!
 
-Même l'énergie originelle du Maître Fantôme Vide se dissipa, laissant apparaître une terreur intense dans ses yeux.
+Même l'énergie originelle de Huan Xuzi se dissipa, laissant apparaître une terreur intense dans ses yeux.
 
 L'homme aux cheveux violets esquissa un sourire amer. Il cessa de résister et regarda Qing Shui d'un regard complexe. Il savait que Qing Shui ne cherchait pas encore à les achever; sans quoi, ils seraient déjà morts dans la brume pourpre.
 
@@ -100,17 +100,17 @@ Qing Shui agita ses manches et 88 rayons de lumière argentée jaillirent du mag
 
 Wang Lin saisit la sphère d'argent et la rangea dans son sac.
 
-Qing Shui vacilla et se mua en un vent noir pour saisir le Maître Fantôme Vide et le cultivateur aux cheveux violets. Puis, d'un pas impitoyable, il déclencha l'effondrement final du Royaume de la Boucherie.
+Qing Shui vacilla et se mua en un vent noir pour saisir Huan Xuzi et le cultivateur aux cheveux violets. Puis, d'un pas impitoyable, il déclencha l'effondrement final du Royaume de la Boucherie.
 
 Le Royaume de la Boucherie avait été édifié au sein d'une fissure spatiale du Royaume Céleste de la Pluie. Maintenant que l'espace se dérobait, le royaume était dévoré par le vide.
 
-Un immense vortex apparut sous les pieds de Qing Shui et son corps s'y enfonça. Il adressa un signe de tête à Wang Lin et dit d'une voix lente: « J'ai encore d'autres affaires à régler. Xu Mu, après notre séparation aujourd'hui, nul ne sait quand nous nous reverrons. Prends... prends soin de toi! » Sur ces mots, il disparut dans le vortex avec le Maître Fantôme Vide et le cultivateur aux cheveux violets.
+Un immense vortex apparut sous les pieds de Qing Shui et son corps s'y enfonça. Il adressa un signe de tête à Wang Lin et dit d'une voix lente: « J'ai encore d'autres affaires à régler. Xu Mu, après notre séparation aujourd'hui, nul ne sait quand nous nous reverrons. Prends... prends soin de toi! » Sur ces mots, il disparut dans le vortex avec Huan Xuzi et le cultivateur aux cheveux violets.
 
 Wang Lin réfléchit en silence avant d'entrer lui aussi dans le vortex pour quitter ce royaume en ruine!
 
 La silhouette de Wang Lin apparut parmi les étoiles. Il poussa un soupir et regarda en arrière. Après un long moment, son corps vacilla et se fondit dans l'univers, mettant le cap sur la planète Tian Yun.
 
-Au loin, Qing Shui avançait calmement. Derrière lui, le Maître Fantôme Vide et le cultivateur aux cheveux violets le suivaient, l'air abattu. Une marque unique au Royaume Céleste scintillait entre leurs sourcils: la marque d'esclave!
+Au loin, Qing Shui avançait calmement. Derrière lui, Huan Xuzi et le cultivateur aux cheveux violets le suivaient, l'air abattu. Une marque unique au Royaume Céleste scintillait entre leurs sourcils: la marque d'esclave!
 
 Dans sa main, Qing Shui tenait l'épingle à cheveux pourpre. Son regard s'adoucissait peu à peu, mais il était empreint de douleur et de nostalgie.
 

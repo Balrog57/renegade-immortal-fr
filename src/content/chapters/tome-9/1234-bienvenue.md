@@ -98,7 +98,7 @@ Ce ne fut que lorsque l'homme en blanc pénétra dans la brume et franchit la fi
 
 La brume rouge ondula comme si le temps lui-même s'était altéré, et tout commença à s'inverser. Une fois les moustiques de retour dans la brume, celle-ci se contracta et fut aspirée dans la fissure.
 
-De l'instant où la brume avait expulsé les bêtes jusqu'à leur retour et leur disparition, moins de quinze minutes s'étaient écoulées. Tous les cultivateurs en eurent le vertige, et même une fois le calme revenu, ils restèrent pétrifiés par le choc.
+De l'instant où la brume avait expulsé les bêtes jusqu'à leur retour et leur disparition, moins de sept minutes s'étaient écoulées. Tous les cultivateurs en eurent le vertige, et même une fois le calme revenu, ils restèrent pétrifiés par le choc.
 
 « Qui... qui est-il?! »
 

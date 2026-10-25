@@ -92,7 +92,7 @@ Maître Nan Yunzi ne prêta aucune attention aux paroles de Situ Nan. Il réflé
 
 Le regard de Situ Nan se posa sur les nuages et il serra les poings. Après un court instant de réflexion, sa voix rauque résonna:
 
-« J'attendrai la durée d'un demi-encens. Si après cela, le silence persiste, je devrai y aller! »
+« J'attendrai sept minutes. Si après cela, le silence persiste, je devrai y aller! »
 
 Maître Nan Yunzi ne répondit rien. Il contemplait les nuages, l'anxiété grandissant en lui.
 
@@ -100,7 +100,7 @@ De l'autre côté, le Vieux Fantôme Zhan était de plus en plus exalté. Ses ye
 
 « Le Pinceau Trois-Neuf, la Pagode de Suppression Céleste... Il devrait y avoir un autre trésor nommé l'Anneau de Scellement du Destin... Lorsqu'il a mis en place la rétribution divine dans la grotte, il avait placé ces trois trésors à l'intérieur... » Les paroles du Vieux Fantôme Zhan devinrent inintelligibles et son regard vers les nuages prit une tournure encore plus étrange.
 
-Le temps s'écoulait lentement. La durée d'un demi-encens semblait durer des années pour Situ Nan. Les milliers de cultivateurs du Royaume Intérieur étaient nerveux, le cœur lourd de mauvais présages.
+Le temps s'écoulait lentement. Ces sept minutes semblaient durer des années pour Situ Nan. Les milliers de cultivateurs du Royaume Intérieur étaient nerveux, le cœur lourd de mauvais présages.
 
 « Le Seigneur du Royaume Scellé pourra-t-il survivre à sa rétribution divine...? »
 
@@ -108,7 +108,7 @@ Le temps s'écoulait lentement. La durée d'un demi-encens semblait durer des an
 
 « Cela fait si longtemps qu'il n'y a aucun bruit, que se passe-t-il là-dedans...? »
 
-La panique commença à gagner les milliers de cultivateurs, accentuant leur angoisse. Situ Nan avait de plus en plus de mal à se contenir. Juste au moment où le délai du demi-encens touchait à sa fin et que Situ Nan s'apprêtait à charger dans les nuages, un grondement assourdissant fit trembler les cieux!
+La panique commença à gagner les milliers de cultivateurs, accentuant leur angoisse. Situ Nan avait de plus en plus de mal à se contenir. Juste au moment où le délai de sept minutes touchait à sa fin et que Situ Nan s'apprêtait à charger dans les nuages, un grondement assourdissant fit trembler les cieux!
 
 Au plus profond des nuages, la pagode trembla soudainement. Le fracas provenait de l'intérieur même de la structure.
 

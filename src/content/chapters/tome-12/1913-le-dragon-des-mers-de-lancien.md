@@ -38,7 +38,7 @@ Tandis que tous les cultivateurs de la Secte Gui Yi s'inclinaient, la silhouette
 
 D'un mouvement de la main droite, la lumière dorée brilla de plus belle. Un édit impérial, fait d'une matière inconnue, fut déployé par cet être.
 
-« Le lignage céleste perdure depuis l'Antiquité jusqu'à ce jour. Les cultivateurs du Continent du Taureau Céleste et du Continent du Démon Vert doivent cesser immédiatement cette guerre! Yun Yifeng, Tang Jia, Bord-des-Nuages, Zhou Hai, Zhao Dongqing... Ces huit personnes devront se rendre au palais et entrer dans le temple ancestral pour subir l'épreuve!! »
+« Le lignage céleste perdure depuis l'Antiquité jusqu'à ce jour. Les cultivateurs du Continent du Taureau Céleste et du Continent du Démon Vert doivent cesser immédiatement cette guerre! Yun Yifeng, Tang Jia, Bian Yun, Zhou Hai, Zhao Dongqing... Ces huit personnes devront se rendre au palais et entrer dans le temple ancestral pour subir l'épreuve!! »
 
 La voix de la silhouette dorée était lente, mais chaque mot résonnait comme un coup de tonnerre. Les huit cultivateurs ainsi nommés furent envahis par l'excitation.
 

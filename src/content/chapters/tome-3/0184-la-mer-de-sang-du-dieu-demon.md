@@ -62,7 +62,7 @@ Ce sort devait être utilisé spécifiquement à un tourbillon de sortie. S'il �
 
 « Si vous me conduisez simplement à la sortie de la troisième épreuve, je vous enseignerai le sort en échange! » L'Empereur Antique paraissait calme, mais intérieurement, il cherchait à comprendre les motivations de cet individu. Bien qu'il ignorât ses intentions, il devait répondre, sous peine de subir l'assaut incessant des âmes errantes. À ce stade, la seule autre option était la mort.
 
-Wang Lin ne répondit plus. Il projeta son Sens Divin et, une fois de plus, toutes les âmes errantes environnantes lancèrent l'attaque. Wang Lin calcula avec précision: selon les informations recueillies par les âmes errantes, Bossu Meng devrait arriver dans le temps qu'il faut pour que deux bâtons d'encens brûlent.
+Wang Lin ne répondit plus. Il projeta son Sens Divin et, une fois de plus, toutes les âmes errantes environnantes lancèrent l'attaque. Wang Lin calcula avec précision: selon les informations recueillies par les âmes errantes, Bossu Meng devrait arriver dans une trentaine de minutes.
 
 Sous les ordres de Wang Lin, les attaques des âmes errantes s'intensifièrent. Pour accélérer le processus, Wang Lin étendit son Sens Divin afin d'appeler davantage d'âmes errantes à rejoindre l'assaut.
 
@@ -72,7 +72,7 @@ Mais les assauts des âmes errantes étaient incessants. Au moment le plus criti
 
 « Je vous donnerai le sort! Je vous en prie, dites à ces étranges créatures d'arrêter l'attaque... » L'Empereur Antique sortit rapidement un morceau de jade et le plaça contre son front pendant un instant. Puis, il le serra fermement dans sa main tout en scrutant les environs.
 
-Une fois le temps nécessaire pour qu'un bâton d'encens brûle écoulé, Wang Lin envoya son Sens Divin et toutes les âmes errantes cessèrent leurs attaques. L'Empereur Antique se détendit légèrement. Il hésita un instant, serra les dents, puis projeta le jade hors du périmètre de la lumière.
+Quinze minutes s'étaient écoulées lorsque Wang Lin envoya son Sens Divin et toutes les âmes errantes cessèrent leurs attaques. L'Empereur Antique se détendit légèrement. Il hésita un instant, serra les dents, puis projeta le jade hors du périmètre de la lumière.
 
 Dès que le morceau de jade vola, Wang Lin l'attrapa immédiatement avec son âme. En l'examinant, il découvrit qu'il contenait des instructions extrêmement détaillées pour le sort.
 
@@ -110,7 +110,7 @@ Lorsque l'Empereur Antique fut projeté là, son Âme Naissante n'ayant pas ét�
 
 Le Seigneur Démon du Feu Rouge avait été tué lors de la deuxième épreuve. L'Empereur Antique avait vu personnellement son corps être détruit par l'éclair violet. L'Âme Naissante du Seigneur Démon du Feu Rouge n'avait même pas eu le temps de s'échapper.
 
-Il y avait aussi le Fou du Sud Wu Bai, submergé par des dizaines de milliers de ces étranges créatures, mort en moins de temps qu'il n'en faut pour que la moitié d'un bâton d'encens brûle.
+Il y avait aussi le Fou du Sud Wu Bai, submergé par des milliers et des milliers de ces étranges créatures, mort en moins de sept minutes.
 
 Quant au Magicien Démon Céleste, le maître du Seigneur Démon des Six Désirs, l'Empereur Antique l'avait suivi de près il y a mille ans. Il avait vu personnellement ce dernier créer un tunnel grâce au trésor de l'héritage pour s'échapper, avant d'être attaqué par un Sens Divin très inhabituel et de mourir instantanément.
 
@@ -160,7 +160,7 @@ Wang Lin voyagea à toute allure, le visage sombre, calculant sans cesse. S'ils 
 
 C'est alors que le démon Bossu Meng utilisa une étrange méthode inconnue de Wang Lin. Il recouvrit son corps d'une lueur rouge sang et sa vitesse fut multipliée par plusieurs. À mesure que la distance se réduisait, la vitesse de Bossu Meng ne diminuait pas; elle augmentait encore.
 
-Le cœur de Wang Lin sombra: s'il continuait ainsi, Bossu Meng le rattraperait en moins du temps qu'il faut pour qu'un bâton d'encens brûle.
+Le cœur de Wang Lin sombra: s'il continuait ainsi, Bossu Meng le rattraperait dans quinze minutes.
 
 Il lui faudrait au moins le temps de deux bâtons d'encens pour atteindre la sortie. Wang Lin balaya les environs de son Sens Divin, utilisant les âmes errantes pour scanner rapidement la zone. Ses yeux restèrent fixés dans une direction tandis qu'il élaborait un plan audacieux.
 

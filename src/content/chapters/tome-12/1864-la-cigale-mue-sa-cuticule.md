@@ -14,7 +14,7 @@ Elle avait déjà vu le point représentant Wang Lin disparaître, puis réappar
 
 « Il doit posséder un trésor lui permettant de se téléporter. Notre secte n'en possède qu'un seul, et il n'y en a pas plus de trois dans le Continent du Démon Vert. Même sur le Continent du Taureau Céleste, ils ne peuvent en avoir beaucoup. Mais cet homme en possède un! »
 
-Sous son regard, elle fut terrifiée de voir la lumière représentant Wang Lin apparaître au milieu d'un groupe de points verts, avant de disparaître instantanément. Peu après, Wang Lin disparut à nouveau pour réapparaître près d'un autre groupe de points verts, très loin!
+Sous son regard, elle découvrit avec effroi que la lumière représentant Wang Lin apparaissait à côté d'un groupe de points verts et qu'en un instant tous ces points verts disparaissaient. Aussitôt après, la lumière de Wang Lin disparut à nouveau pour réapparaître près d'un autre groupe de points verts, très loin!
 
 « La troisième fois!! » La femme n'hésita pas une seconde et informa tous les cultivateurs de la Tribulation du Vide.
 
@@ -22,7 +22,7 @@ Sous son regard, elle fut terrifiée de voir la lumière représentant Wang Lin 
 
 Le visage de Wang Lin n'était plus pâle, mais légèrement rougi. Lors de son combat contre Xu Decai, il avait été gravement blessé; il avait donc choisi la même méthode qu'il avait utilisée dans le monde des grottes: dévorer la chair et les âmes originelles de cultivateurs pour se guérir.
 
-Après avoir dévoré deux groupes consécutifs de cultivateurs du Continent du Démon Vert, les yeux de Wang Lin s'illuminèrent et il disparut. Après l'équivalent du temps d'un bâton d'encens, le troisième groupe de cultivateurs mourut à son tour, devenant une partie intégrante du processus de guérison de Wang Lin.
+Après avoir dévoré deux groupes consécutifs de cultivateurs du Continent du Démon Vert, les yeux de Wang Lin s'illuminèrent et il disparut. Quinze minutes plus tard, le troisième groupe de cultivateurs mourut à son tour, devenant une partie intégrante du processus de guérison de Wang Lin.
 
 À ce stade, au centre de la prairie, il ne restait plus que deux vieux monstres au stade intermédiaire de la Tribulation du Vide et deux cultivateurs au stade initial! Ces quatre individus étaient très prudents et ne se dispersèrent pas. Chaque expert du stade intermédiaire resta aux côtés d'un cultivateur du stade initial alors qu'ils convergeaient vers Wang Lin.
 
@@ -52,7 +52,7 @@ Telle la cigale qui mue sa carapace, Wang Lin passa du statut de proie à celui 
 
 Son corps vacilla et il quitta les lieux pour réapparaître dans une autre partie de la prairie. Il s'assit et surveilla l'évolution de la boussole. Possédant l'essence du feu, la boue sous lui sécha naturellement.
 
-Le temps passa lentement, et en un éclair, une heure s'écoula. Durant cette heure, la distance entre les quatre cultivateurs s'accroît. Les deux vieux monstres de la Tribulation du Vide ne souhaitaient évidemment pas continuer à cette allure. Une fois la direction de Wang Lin identifiée, ils accélérèrent pour poursuivre la boussole.
+Le temps passa lentement, et en un éclair, deux heures s'écoulèrent. Durant ces deux heures, un écart se creusa peu à peu entre les quatre cultivateurs. Les deux vieux monstres de la Tribulation du Vide ne souhaitaient évidemment pas continuer à cette allure. Une fois la direction de Wang Lin identifiée, ils accélérèrent pour poursuivre la boussole.
 
 Les deux cultivateurs du stade initial restèrent à la traîne, et l'écart entre eux et les deux vieux monstres s'élargit davantage. Wang Lin ouvrit les yeux, révélant un éclat glacial.
 

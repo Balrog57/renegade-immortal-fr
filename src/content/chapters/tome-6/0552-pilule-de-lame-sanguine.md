@@ -20,7 +20,7 @@ Un sentiment de mépris l'envahit, et sa voix devint naturellement plus glaciale
 
 Wang Lin ne fut pas affecté par son ton et répondit calmement: « Les trésors et les méthodes de culture, je n'en manque pas. Le mieux serait de les convertir en davantage de jades célestes! »
 
-Le mépris dans le cœur de Yao Xixue s'intensifia et elle déclara: « La grotte de sang de mon père regorge de jades célestes. Je vous donnerai un jeton et, une fois que vous aurez quitté la Terre des Esprits Démoniaques, vous pourrez aller les chercher vous-même! »
+Le mépris dans le cœur de Yao Xixue s'intensifia et elle déclara: « La caverne de mon père, Xue Zu, regorge de jades célestes. Je vous donnerai un jeton de sang et, une fois que vous aurez quitté la Terre des Esprits Démoniaques, vous pourrez aller les chercher vous-même! »
 
 Wang Lin hocha la tête: « Très bien, mais cette affaire est périlleuse, je dois encore y réfléchir. »
 

@@ -8,7 +8,7 @@ slug: forcer-le-maitre-du-vide
 ---
 « L'Alliance de Culture... » Wang Wei regarda froidement le Maître du Vide en secouant la tête. « Quelle prétention. »
 
-Hu Juan sourit et observa le Maître du Vide avec désinvolture. Elle et son mari n'avaient jamais accordé beaucoup d'importance à l'Alliance de Culture. Ce n'était pas que le Maître Zhong Xuan ou l'Alliance étaient faibles, mais ils tiraient une fierté légitime de leur statut. Surtout Wang Wei, dont l'orgueil était connu de tous dans le Royaume Céleste à l'époque.
+Hu Juan sourit et observa le Maître du Vide avec désinvolture. Elle et son mari n'avaient jamais accordé beaucoup d'importance à l'Alliance de Culture. Ce n'était pas que le Maître Zhong Xuan ou l'Alliance fussent faibles, mais leur propre statut, à eux deux, leur donnait une fierté légitime. Surtout Wang Wei, dont l'orgueil était connu de tous dans le Royaume Céleste à l'époque.
 
 Cependant, après d'innombrables années de changements, la personnalité de Wang Wei s'était faite plus discrète et ne se révélait plus aussi facilement. Mais cette fierté ancrée dans ses os n'était pas une chose que le temps pouvait effacer.
 

@@ -58,7 +58,7 @@ La raison pour laquelle tant de cultivateurs marginaux vivaient ici était la de
 
 « La Prairie de l'Extrême Ciel... Selon le jade de Yan Luan, une fois arrivé ici, il faudra encore six mois pour atteindre la mer intérieure qui relie au Continent du Démon Vert... » Wang Lin réfléchit tout en s'élançant rapidement.
 
-Sur le Continent Astral Immortel, même en ayant compris cette technique grâce à la puissance de son avatar, il ne pouvait pas utiliser la Courbure Spatiale de manière répétée sur de très longues distances. Sur de courtes distances, comme lorsqu'il s'était éloigné de la Montagne Céleste, cela ne posait aucun problème, mais là, il venait de traverser près de trois mois de voyage en un instant; il lui faudrait donc du temps avant de pouvoir l'utiliser à nouveau.
+Sur le Continent Astral Immortel, même en ayant compris cette technique grâce à la puissance de son avatar, il ne pouvait pas utiliser la Distorsion Spatiale de manière répétée sur de très longues distances. Sur de courtes distances, comme lorsqu'il s'était éloigné de la Montagne Céleste, cela ne posait aucun problème, mais là, il venait de traverser près de trois mois de voyage en un instant; il lui faudrait donc du temps avant de pouvoir l'utiliser à nouveau.
 
 Alors qu'il volait, il leva la main droite et un rugissement s'échappa du tatouage du Roi Moustique sur son poignet. Le Roi Moustique apparut sous la forme d'une encre noire et transporta Wang Lin. Il poussa un cri de joie et s'envola vers l'horizon.
 
@@ -72,7 +72,7 @@ La prairie était sans fin. Au bout de trois jours, la bête moustique de Wang L
 
 Parmi ces trois Sens Divins, deux appartenaient à des cultivateurs au stade intermédiaire du Vide Arcanique, tandis que le dernier n'était qu'au stade avancé du Vide Spirituel. Leurs puissances suffisaient à dissuader les autres de les suivre.
 
-Après sept jours, alors que la prairie touchait presque à sa fin, Wang Lin sentit qu'il pourrait à nouveau utiliser la Courbure Spatiale pour un déplacement de grande envergure. Quant aux trois Sens Divins qui le talonnaient, il n'en avait cure. Il se redressa sur le dos de la bête moustique.
+Après sept jours, alors que la prairie touchait presque à sa fin, Wang Lin sentit qu'il pourrait à nouveau utiliser la Distorsion Spatiale pour un déplacement de grande envergure. Quant aux trois Sens Divins qui le talonnaient, il n'en avait cure. Il se redressa sur le dos de la bête moustique.
 
 C'est alors qu'une voix lugubre retentit derrière lui:
 

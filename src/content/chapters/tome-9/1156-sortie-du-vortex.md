@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1156 - Leaving the Vortex
 slug: sortie-du-vortex
 ---
-Tenant l'épée de fer rouillée, Wang Lin recula tandis que Noble Argent chargeait. D'un geste de la main gauche, Wang Lin projeta les âmes de Maître Vide et d'Tian Yunzi vers l'avant.
+Tenant l'épée de fer rouillée, Wang Lin recula tandis que Noble Argent chargeait. D'un geste de la main gauche, Wang Lin projeta les âmes de Maître Vide et de Tian Yunzi vers l'avant.
 
 Ces deux âmes de combat étaient les atouts les plus puissants de Wang Lin, après la faible source originelle qu'il lui restait. Accompagné de cette épée de fer, il engageait désormais toute sa puissance.
 
@@ -24,13 +24,13 @@ Wang Lin n'avait pas de temps à perdre en réflexions; il devait mettre fin à 
 
 Face à ces deux âmes puissantes, même Noble Argent se montra extrêmement prudent. Dans toute sa vie de culture, il n'avait jamais vu un cultivateur du niveau Purificateur du Nirvana posséder des sorts capables de menacer des Briseurs de Nirvana.
 
-L'âme d'Tian Yunzi semblait presque avoir sombré dans la folie, formant frénétiquement des sceaux pour lancer des sorts. Ces derniers étaient souvent flous et immatériels, mais ils dirigeaient les lois du monde vers Noble Argent.
+L'âme de Tian Yunzi semblait presque avoir sombré dans la folie, formant frénétiquement des sceaux pour lancer des sorts. Ces derniers étaient souvent flous et immatériels, mais ils dirigeaient les lois du monde vers Noble Argent.
 
 Il y avait aussi l'âme de Maître Vide. Ayant atteint son premier Fléau Céleste avant de mourir, il agita ses manches et une tempête de tonnerre surgit pour contrer le sort de Noble Argent.
 
 Si Wang Lin n'avait pas eu la contrainte du temps, il aurait pu utiliser Maître Vide et Tian Yunzi pour épuiser et broyer Noble Argent. Cependant, il manquait de temps et d'énergie originelle céleste pour maintenir ces deux âmes puissantes.
 
-L'Arsenal Magique avait déjà consommé la majeure partie de son énergie originelle céleste!
+L'Arsenal Magique était celui de ses sorts qui consommait le plus d'énergie originelle céleste!
 
 Tandis que Maître Vide et Tian Yunzi harcelaient Noble Argent, Wang Lin leva sa main droite et fixa l'épée de fer. Il trancha l'air impitoyablement, libérant un rayon d'énergie d'épée capable de faire trembler la terre. Cette énergie se mua en l'illusion d'une épée gigantesque qui s'abattit sur Noble Argent.
 

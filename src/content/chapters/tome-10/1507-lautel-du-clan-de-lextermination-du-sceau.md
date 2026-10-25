@@ -16,7 +16,7 @@ Contemplant le Luotian au loin, Wang Lin constata qu'il avait accompli les quatr
 
 Wang Lin ne pouvait espérer davantage et s'enfonça dans l'immensité avec un soupir.
 
-Le royaume à l'intérieur de la Bête des Limbes était sans limites; un chaos capable de s'étendre ou de se contracter à sa guise. En cet instant, l'intérieur était chaotique, et le cultivateur au triste sort explorait ces entrailles depuis des centaines d'années... « Cette bête est vraiment patiente. Elle m'a attendu des siècles, mais aucun vieux Daoïste n'a pu tenir aussi longtemps, et elle est partie quand même. Seulement, après l'effondrement du Royaume aux Sept Couleurs, où diable suis-je donc... »
+Le royaume à l'intérieur de la Bête des Limbes était sans limites; un chaos capable de s'étendre ou de se contracter à sa guise. En cet instant, l'intérieur était chaotique, et le cultivateur au triste sort explorait ces entrailles depuis des centaines d'années... « Cette bête est vraiment patiente. Elle m'a attendu des siècles, mais au bout du compte elle n'a pas pu tenir plus longtemps que ce vieux Daoïste, et elle est partie quand même. Seulement, après l'effondrement du Royaume aux Sept Couleurs, où diable suis-je donc... »
 
 Le cultivateur était confus et perplexe. Il songeait à cela depuis des centaines d'années... « Bon sang, de quel domaine stellaire s'agit-il? Je n'ai rencontré aucune créature vivante depuis des siècles. Pourrais-je être dans une faille spatiale? Je ne le crois pas! Il doit bien y avoir un moyen de sortir! » Le vieux Daoïste s'encourageait ainsi depuis des centaines d'années afin de préserver sa santé mentale tout en poursuivant ses recherches...
 

@@ -150,6 +150,6 @@ Une fois le fouet saisi par Gong Sunpo, celui-ci pointa l'air de sa main droite,
 
 « Allons-y! » dit-il en franchissant le portail.
 
-Hongdie suivit rapidement. Elle se retourna pour lancer un regard glacial à Wang Lin et murmura: « La prochaine fois, tu seras mort! » L'actuelHongdie ignorait qu'il ne lui restait plus que trois jours à vivre!
+Hongdie suivit rapidement. Elle se retourna pour lancer un regard glacial à Wang Lin et murmura: « La prochaine fois, tu seras mort! » Mais la Hongdie d'aujourd'hui ignorait qu'il ne lui restait plus que trois jours à vivre!
 
 Un complot secret commençait à se tramer, suite à l'ordre donné par une puissance occulte de la Montagne Suzaku!

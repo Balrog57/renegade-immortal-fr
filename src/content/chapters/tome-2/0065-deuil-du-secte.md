@@ -20,7 +20,7 @@ Après avoir réfléchi un instant, il ne parvint toujours pas à apaiser ses in
 
 Situ Nan se targua avec fierté: « C'est la bonne attitude, Wang Lin! Héhé, tu aurais dû être comme ça depuis longtemps. Ce n'est que du meurtre, qu'est-ce qu'il y a de si terrible? J'ai dix mille façons de faire en sorte que mes ennemis ne puissent ni vivre ni mourir. »
 
-Wang Lin fronça les sourcils et répondit à Situ Nan: « Tuer des gens n'est pas la solution. Si j'en tue un, un autre apparaîtra, à moins que je ne massacre tous les disciples de la Secte Xuan Dao. »
+Wang Lin fronça les sourcils et répondit à Situ Nan: « Tuer des gens n'est pas la solution. Si j'en tue un, un autre apparaîtra, à moins que je ne massacre tous les disciples de la Secte Xuan Dao que j'ai vaincus. »
 
 Situ Nan insista pour le pousser: « Qu'y a-t-il de si difficile? Je vais t'enseigner une technique, la technique des marionnettes. Tu pourras ainsi capturer quelqu'un et le transformer vivant en une marionnette loyale. Qu'en dis-tu? De cette façon, tu pourras vivre sans aucun souci. »
 

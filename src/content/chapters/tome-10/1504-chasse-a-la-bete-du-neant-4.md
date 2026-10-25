@@ -38,7 +38,7 @@ La septième étoile brilla intensément!!
 
 Les sept étoiles dans la bouche de l'âme de la Bête des Limbes brillèrent de mille feux et, dans leur rotation, le sceau de l'âme fut achevé!
 
-Le sceau extérieur, le sceau de l'âme et le sceau intérieur; Wang Lin en avait complété deux et n'en avait besoin que d'un seul de plus! Une fois que les sept étoiles de l'Ancien Dieu eurent terminé le sceau, elles laissèrent leur empreinte et retournèrent entre les sourcils de Wang Lin.
+Le sceau extérieur, le sceau de l'âme et le sceau intérieur; Wang Lin en avait complété deux et n'en avait besoin que d'un seul de plus! Une fois que les sept étoiles du Dieu Ancien furent toutes allumées, elles laissèrent leur empreinte et retournèrent entre les sourcils de Wang Lin.
 
 Cependant, à ce moment précis, un changement stupéfiant se produisit!
 

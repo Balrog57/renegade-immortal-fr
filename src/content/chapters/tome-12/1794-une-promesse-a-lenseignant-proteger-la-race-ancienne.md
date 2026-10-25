@@ -86,7 +86,7 @@ Malgré les pertes innombrables, aucune bête moustique ne choisit de battre en 
 
 La reine des moustiques de Wang Lin était la plus imposante et son aspect était saisissant. Son corps mesurait des centaines de milliers de pieds de haut, une taille comparable à celle que Wang Lin avait vue jadis dans la faille du Royaume Céleste du Vent. Une aura terrifiante émanait d'elle.
 
-Un demi-encens de temps s'écoula. L'anxiété de Wang Lin grandissait alors que les moins de cent bêtes restantes s'effondraient à nouveau. Cette fois, il ne put plus se contenir. Il préférait voir la reine échouer dans son évolution plutôt que de la voir mourir!
+Sept minutes s'écoulèrent. L'anxiété de Wang Lin grandissait alors que les moins de cent bêtes restantes s'effondraient à nouveau. Cette fois, il ne put plus se contenir. Il préférait voir la reine échouer dans son évolution plutôt que de la voir mourir!
 
 La reine des moustiques était comme une parente pour Wang Lin; elle l'avait accompagné durant plus de deux mille ans! Alors que les bêtes s'effondraient, Wang Lin bondit hors de la glace et chargea vers elles.
 

@@ -64,7 +64,7 @@ La scène créée par le Sortilège de Guidance Céleste n'avait manifestement p
 
 Après avoir démontré ce sort, Tian Yunzi ne déclara pas la fin de cette séance d'enseignement du Dao. Au lieu de cela, ses yeux brillèrent d'une lueur mystérieuse et il dit lentement: « Aujourd'hui, outre la célébration de mon anniversaire, je souhaite que mes compagnons cultivateurs soient témoins. Je possède au total sept divisions de disciples, et seules les Divisions Jaune et Pourpre n'ont aucun détenteur du titre de véritable disciple. Aujourd'hui est le jour où les véritables disciples de ces deux divisions seront choisis! »
 
-À ces mots, les regards des cultivateurs environnants se tournèrent vers les Divisions Jaune et Violette. Cependant, la plupart fixaient la Division Jaune; peu s'intéressaient à la Division Pourpre.
+À ces mots, les regards des cultivateurs environnants se tournèrent vers les Divisions Jaune et Pourpre. Cependant, la plupart fixaient la Division Jaune; peu s'intéressaient à la Division Pourpre.
 
 Après tout, nul n'ignorait que la Division Pourpre était bien trop faible.
 

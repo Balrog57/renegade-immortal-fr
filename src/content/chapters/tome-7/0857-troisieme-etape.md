@@ -112,6 +112,6 @@ C'était comme s'il n'avait besoin que d'une seule pensée pour provoquer l'effo
 
 Wang Lin ferma les yeux. Après un long moment, il réprima le choc dans son cœur, joignit les mains vers Qing Shui et dit: « Merci... Je me souviendrai à jamais que Senior m'a sauvé! »
 
-Les yeux de Qing Shui se tournèrent vers les étoiles lointaines, empreints de mélancolie. Après un long moment, cette tristesse se dissipa avant qu'il ne regarde Wang Lin et ne dise calmement: « Ne me remercie pas! Je me moque de la manière dont tu as appris "Invoquer le Vent", mais puisque tu l'as appris, tu es un disciple d'une génération postérieure à mon Maître. Moi, Qing Shui, n'ai aucun lien dans ce système. Te rencontrer était peut-être l'arrangement de mon Maître... »
+Les yeux de Qing Shui se tournèrent vers les étoiles lointaines, empreints de mélancolie. Après un long moment, cette tristesse se dissipa avant qu'il ne regarde Wang Lin et ne dise calmement: « Ne me remercie pas! Je me moque de la manière dont tu as appris "Invoquer le Vent", mais puisque tu l'as appris, tu es un disciple d'une génération postérieure à mon Maître. Moi, Qing Shui, je n'ai plus aucune attache dans ce Système Stellaire de Luotian. Te rencontrer était peut-être l'arrangement de mon Maître... »
 
 « Tu n'as pas encore formé ton origine céleste, et sans le Bassin Céleste, cela te sera impossible. Maintenant que la compétition des 108 titres célestes du Temple Céleste du Tonnerre approche, les 36 Célestes du Ciel ont le droit d'accéder au Bassin Céleste. Tu devrais aller te battre pour l'obtenir! »

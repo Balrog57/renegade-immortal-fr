@@ -62,11 +62,11 @@ Le Maître Lu Fu n'était pas non plus retourné à Luotian, bien qu'il fût l'a
 
 « Ce vieil homme combattra jusqu'à la mort... » Les yeux du Maître Lu Fu étaient injectés de folie.
 
-Il y avait une autre personne, quelqu'un que Wang Lin connaissait bien: l'Empereur Divin du Dragon Azure! Il n'était pas mort et était réapparu il y a quelques décennies avec la Secte des Quatre Divinités, devenant une force majeure pour le Vide Brillant.
+Il y avait une autre personne, quelqu'un que Wang Lin connaissait bien: l'Empereur Divin du Dragon Azure! Il n'était pas mort et était réapparu il y a quelques décennies avec les Quatre Sectes Divines, devenant une force majeure pour le Vide Brillant.
 
-Aujourd'hui, il avait amené de nombreux Anciens de la Secte des Quatre Divinités pour livrer un combat à mort contre les cultivateurs du Royaume Extérieur sur la planète Suzaku.
+Aujourd'hui, il avait amené de nombreux Anciens des Quatre Sectes Divines pour livrer un combat à mort contre les cultivateurs du Royaume Extérieur sur la planète Suzaku.
 
-L'Empereur Divin du Dragon Azure avait disparu avec la Secte des Quatre Divinités. Puis, quelques décennies plus tard, il était soudainement réapparu avec elle pour engager une lutte de vie ou de mort contre le Royaume Extérieur.
+L'Empereur Divin du Dragon Azure avait disparu avec les Quatre Sectes Divines. Puis, quelques décennies plus tard, il était soudainement réapparu avec eux pour engager une lutte de vie ou de mort contre le Royaume Extérieur.
 
 Son niveau de culture était déjà très élevé par le passé. Au fil des ans, bien qu'il n'ait pas atteint la troisième étape, il avait atteint le sommet du cinquième Fléau Céleste.
 

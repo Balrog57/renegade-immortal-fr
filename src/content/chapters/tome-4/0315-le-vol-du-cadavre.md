@@ -112,7 +112,7 @@ L'âme originelle suivait comme l'éclair, mais à cet instant, le vieil homme s
 
 Alors qu'il riait, la griffe derrière lui se mua en un jeune homme. Ses traits ressemblaient à ceux du vieillard et il tenait la pagode dans sa main.
 
-Wang Lin observa la scène et prit une grande inspiration. Son regard se tourna soudainement vers la faibHongdie. Les yeux de Zhou Yi brillaient d'une lueur démente tandis qu'il fixait le vieil homme tel une bête prête à dévorer sa proie.
+Wang Lin observa la scène et prit une grande inspiration. Son regard se tourna soudainement vers Hongdie, affaiblie et étendue sur le sol. Les yeux de Zhou Yi brillaient d'une lueur démente tandis qu'il fixait le vieil homme tel une bête prête à dévorer sa proie.
 
 « Rends-moi Ting Er!!! »
 

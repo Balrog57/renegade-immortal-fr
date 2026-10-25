@@ -96,7 +96,7 @@ Derrière ce bouclier, des éclats de lumières colorées scintillèrent et un p
 
 « Ce n'est pas encore le moment... » Les yeux de Wang Lin brillaient d'une lueur étrange. Tout se déroula en un instant. L'empreinte de la paume de mille pieds percuta l'index droit de Wang Lin.
 
-*Rumble, rumble, rumble, rumble!*
+Boum, boum, boum, boum!
 
 Dès le contact, Wang Lin sentit son corps sur le point de s'effondrer. Il cracha du sang et fut repoussé. L'index droit de Wang Lin fut instantanément désintégré par l'empreinte, mais se reforma aussitôt. En quelques respirations seulement, son doigt fut détruit et reconstitué plus de mille fois!
 

@@ -38,7 +38,7 @@ Wang Lin marqua une pause. Après quelques respirations, il frappa son sac de ra
 
 Les yeux clos, Wang Lin projeta son Sens Divin dans chaque fragment d'âme. De cette manière, c'était comme s'il se trouvait lui-même à l'intérieur des failles, lui permettant de les inspecter minutieusement. Il fut d'une rigueur absolue, ne laissant passer aucune trace.
 
-Trente minutes passèrent avant que tous les fragments d'âmes ne reviennent vers lui. Wang Lin ouvrit les yeux, le visage extrêmement disgracieux.
+Quinze minutes passèrent avant que tous les fragments d'âmes ne reviennent vers lui. Wang Lin ouvrit les yeux, le visage extrêmement disgracieux.
 
 « J'ai scrupuleusement vérifié toutes les fissures, en haut comme en bas, et pourtant la présence de Zhou Yi m'échappe! Cet Ancien Démon Bei Luo m'a-t-il vraiment trompé? » Wang Lin agita ses manches, le regard froid, avant que ses yeux ne se plissent soudainement.
 

@@ -46,7 +46,7 @@ Des centaines de jades flottaient dans les airs, chacun émettant une intensité
 
 Outre Wang Lin et les six vieillards chargés des lieux, plus d'une dizaine d'autres cultivateurs étaient dispersés ici. Leurs sens divins s'étendaient sur les jades flottants.
 
-Le Roi Démon Noir était parmi eux!
+Le Roi Diable Noir était parmi eux!
 
 Même Maître Zhou Tian, pourtant extrêmement respecté à l'extérieur, se tenait là. Il contemplait calmement le jade le plus brillant, plongé dans ses pensées.
 

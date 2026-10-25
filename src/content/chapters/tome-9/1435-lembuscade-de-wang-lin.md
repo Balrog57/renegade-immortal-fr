@@ -46,7 +46,7 @@ La tortue apparut et protégea Wang Lin sous son dôme. Elle laissa échapper un
 
 De loin, la scène était saisissante. La tempête provoquée par l'effondrement des six planètes se propageait, et à l'extérieur de ce chaos, un loup vert géant hurlait en collision avec une tortue gigantesque!
 
-Des grondements tonitruants résonnèrent dans les étoiles, se transformant en ondulations qui se propagèrent comme les vagues d'une mer déchaînée. La carapace de tortue se rétracta rapidement et fut rangée dans l'espace de stockage de Wang Lin alors qu'il continuait sa retraite.
+Des grondements tonitruants résonnèrent dans les étoiles, se transformant en ondulations qui se propagèrent comme les vagues d'une mer déchaînée. La carapace de tortue se rétracta rapidement et Wang Lin la reprit en main tout en continuant sa retraite précipitée.
 
 Quant au loup vert, il avait d'abord été endommagé par l'effondrement des six planètes, puis percuté par la Restriction d'Âme Antique. Plus de la moitié de son corps s'était désintégrée et il fut repoussé de plus de 100 000 pieds.
 
@@ -84,7 +84,7 @@ Cette scène fit rétrécir les pupilles de l'homme du clan de l'Estimé Loup C�
 
 Ce qu'il craignait n'était pas la culture de Wang Lin, mais ces trésors infinis et ces stratagèmes aussi profonds que l'océan!
 
-Il ignorait que la véritable raison pour laquelle Wang Lin avait ciblé la jeune fille était qu'il avait reconnu la marque entre ses sourcils. Le pouvoir et la terreur que représentait cette marque avaient laissé une empreinte indélébile dans l'esprit de Wang Lin!
+Il ignorait que la véritable raison pour laquelle Wang Lin avait ciblé la jeune fille était surtout qu'il avait reconnu la marque entre ses sourcils. Le pouvoir et la terreur que représentait cette marque avaient laissé une empreinte indélébile dans l'esprit de Wang Lin!
 
 Le Clan de l'Extermination des Sceaux! L'une des races rares du Système Stellaire Antique, dont les membres sont extrêmement peu nombreux! Avec cette femme, tous les sorts de Wang Lin auraient pu être scellés. Et une fois scellés, les conséquences auraient été imprévisibles!
 

@@ -78,7 +78,7 @@ Au moment même où Wang Lin perçut l'essence de la statue, toutes les pointes 
 
 Avec le niveau de culture de Wang Lin, s'il avait utilisé des trésors magiques ou l'un de ses trois sorts mortels, il aurait brisé la statue bien plus vite. Mais son but n'était pas de vaincre par la force brute, mais de parvenir à une compréhension totale.
 
-Aux yeux de Wang Lin, ces pointes qui volaient vers lui étaient elles aussi façonnées par des restrictions. Et tant qu'il s'agissait de restrictions, il n'avait aucune crainte. Il étudiait cet art depuis son stade de Formation du Noyau. Hormis les vieux monstres ayant vécu des dizaines de milliers d'années, personne ne pouvait égaler Wang Lin en matière de compréhension des restrictions!
+Aux yeux de Wang Lin, ces pointes qui volaient vers lui étaient elles aussi façonnées par des restrictions. Et tant qu'il s'agissait de restrictions, il n'avait aucune crainte. Il étudiait cet art depuis son stade de Formation du Noyau. Hormis les vieux monstres vieux de dix mille ans, personne ne pouvait égaler Wang Lin en matière de compréhension des restrictions!
 
 D'un visage impassible, il agita le drapeau de restriction, libérant un gaz dense. Ces restrictions se déplacèrent selon des motifs mystérieux sous ses ordres, balayant la pluie de pointes. Les innombrables projectiles furent immédiatement et impitoyablement déconstruits pour être absorbés par le drapeau.
 

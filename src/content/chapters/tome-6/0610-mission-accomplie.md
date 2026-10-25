@@ -24,7 +24,7 @@ Le regard de Wang Lin devint de plus en plus intense. À force d'observer, il ab
 
 Bien qu'il forme ces sceaux, ils étaient dépourvus de toute puissance d'attaque.
 
-Cependant, à cet instant précis, grâce à une connexion mystérieuse avec son âme originelle, une puissance oppressante éclata sur une petite planète située à d'innombrables kilomètres de la Porte de la Mer des Esprits Démoniaques de l'Est, aux confins de la Terre des Esprits Démoniaques.
+Cependant, à cet instant précis, grâce à une connexion mystérieuse avec son âme originelle, une puissance oppressante éclata sur une petite planète à moitié abandonnée, très loin au-delà de la Terre des Esprits Démoniaques, à d'innombrables kilomètres de la Porte de la Mer de l'Est.
 
 Le corps original, dont la chevelure était d'un rouge vif, ouvrit soudainement les yeux. Son regard semblait contenir l'immensité du ciel. Dès l'ouverture de ses paupières, ses mains s'animèrent pour former divers sceaux.
 
@@ -42,7 +42,7 @@ Tout en observant calmement le ciel, sa main droite traça un sceau et pointa de
 
 « Démon dispersé, bien que moi, Wang Lin, je sois faible, je ne suis pas quelqu'un que tu peux tuer avec autant de désinvolture! »
 
-Wang Lin frappa son sac de rangement, et l'étendard d'un milliard d'âmes apparut dans sa main. Il le projeta dans la rivière des enfers.
+Wang Lin frappa son sac de rangement, et l'étendard d'âme apparut dans sa main. Il le projeta dans la rivière des enfers.
 
 Dès que le drapeau toucha l'eau de la rivière, les cent millions de fragments d'âmes en jaillirent.
 

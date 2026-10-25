@@ -72,9 +72,9 @@ Wang Lin volait presque en ligne droite à travers le Pays du Démon de Feu, et 
 
 Une traînée de mort immense restait derrière lui. C'était une humiliation et une provocation sans précédent pour un pays. Des dizaines de généraux démons furent dépêchés pour encercler et réprimer ce cultivateur diabolique!
 
-Le point de jonction de l'encerclement se situait près de la frontière entre le Pays du Démon de Feu et le Pays du Démon Céleste, en un lieu nommé la Montagne des Millions de Démons!
+Le point de jonction de l'encerclement se situait près de la frontière entre le Pays du Démon de Feu et le Pays du Démon Céleste, en un lieu nommé la Montagne des Dix Mille Démons!
 
-Un brouillard épais et éternel recouvrait la Montagne des Millions de Démons. Deux cités se trouvaient à proximité de ces montagnes, l'une de chaque côté: la Cité du Ciel Paisible du Pays du Démon de Feu, et la Cité du Feu Fondant du Pays du Démon Céleste.
+Un brouillard épais et éternel recouvrait la Montagne des Dix Mille Démons. Deux cités se trouvaient à proximité de ces montagnes, l'une de chaque côté: la Cité du Ciel Paisible du Pays du Démon de Feu, et la Cité du Feu Fondant du Pays du Démon Céleste.
 
 À cet instant, 100 000 soldats démons étaient en position dans la Cité du Ciel Paisible, tandis que plus de dix généraux démons scrutaient l'horizon.
 

@@ -40,7 +40,7 @@ L'expression de Wang Lin était d'un sérieux extrême, refusant de laisser ses 
 
 Wang Lin ne pouvait voir l'expression de Qing Shui, toute son attention étant concentrée sur ses doigts. Il tirait lentement, maintenant une cadence régulière et douce; il n'osait agir avec trop de violence. Bien que cette épine molle ne fût pas totalement intégrée à la colonne vertébrale, la majeure partie l'était déjà, et il devait être d'une prudence absolue.
 
-Le temps passa. La neuvième épine était très longue. Après quinze minutes, Wang Lin en avait extrait la plus grande partie. La sueur inondait son front, mais il l'ignora pour rester focalisé sur sa tâche.
+Le temps passa. La neuvième épine était très longue. Après sept minutes, Wang Lin en avait extrait la plus grande partie. La sueur inondait son front, mais il l'ignora pour rester focalisé sur sa tâche.
 
 L'épine extraite était d'un noir absolu, et chaque goutte de sang noir qui tombait au sol produisait un sifflement brûlant.
 

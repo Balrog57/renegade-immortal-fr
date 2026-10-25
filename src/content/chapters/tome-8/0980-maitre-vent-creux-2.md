@@ -82,7 +82,7 @@ Chen Feng hocha la tête et ne perdit plus de temps en paroles avant de s'asseoi
 
 Tout au long du voyage, ils restèrent silencieux. Bientôt, une planète bleue apparut devant eux. Cette planète était magnifique et dégageait une riche aura d'énergie spirituelle.
 
-« C'est la planète Shuiling, elle appartient aux trois frères Chen. On dit que la planète a été nommée d'après une jeune fille de la descendance du Maître Yi Chen », dit Chen Feng en ouvrant les yeux. Une trace d'intention malveillante brillait dans son regard.
+« C'est la planète Shuiling, elle appartient aux trois frères Chen. On dit que la planète a été nommée d'après une jeune fille de la descendance du Maître Yi Chen », dit Chen Feng en ouvrant les yeux. Une lueur de lubricité passa dans son regard.
 
 Il avait été très attiré par cette femme au corps d'esprit de l'eau. S'il n'avait pas craint la personne qui protégeait les trois frères Chen, il l'aurait déjà prise pour en faire son fourneau de culture.
 

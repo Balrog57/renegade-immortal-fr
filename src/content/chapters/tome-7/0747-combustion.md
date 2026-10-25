@@ -26,7 +26,7 @@ La femme nommée Ge savait qu'il s'agissait d'une opportunité unique. Si elle l
 
 Cependant, à cet instant précis, Wang Lin ouvrit soudainement les yeux. Ils n'étaient plus empreints de tonnerre, mais de flammes. Il fixa la femme qui tenait l'arme et dit d'une voix rauque: « Ce poignard est intéressant; comptais-tu me l'offrir? »
 
-Effrayée, la femme nommée Ge vit ses yeux se remplir de terreur. Elle recula instinctivement de quelques pas et balbutia: « Oui... oui... » avant de précipiter le poignard au sol.
+Terrifiée, la femme nommée Ge laissa la peur emplir son regard. Elle recula instinctivement de quelques pas et balbutia: « Oui... oui... » avant de précipiter le poignard au sol.
 
 Wang Lin ferma les yeux. Lorsqu'il les rouvrit, il avait retrouvé toute sa lucidité. Sa main droite s'étira et le poignard vola vers lui. Après l'avoir examiné avec attention, Wang Lin le rangea dans son sac de rangement.
 

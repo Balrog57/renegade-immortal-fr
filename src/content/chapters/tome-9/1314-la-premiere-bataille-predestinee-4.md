@@ -60,7 +60,7 @@ Tuo Sen contracta son corps et poussa un rugissement. Un impact puissant repouss
 
 Ces mots frappèrent une fois de plus le point faible de Tuo Sen. Il poussa un rugissement de folie et ses yeux brillèrent d'un rouge ardent.
 
-« Tu ne cherches qu'à obtenir la connaissance du sort capable de détruire ce sceau. Tu n'as pas besoin de me dévorer pour cela. Si nous travaillons ensemble, nous en tirerons tous deux profit. Bien que moi, Wang Lin, je ne sois pas ton égal, si tu restes obstiné, tu mourras dès que Tu Si s'éveillera! Es-tu certain de pouvoir échapper à Tu Si? »
+« Tu veux seulement que la loi de l'héritage lève le sceau qui t'empêche d'utiliser tes pouvoirs divins. Pour cela, point n'est besoin de me dévorer. Si nous travaillons ensemble, nous en tirerons tous deux profit. Bien que moi, Wang Lin, je ne sois pas ton égal, si tu restes obstiné, tu mourras dès que Tu Si s'éveillera! Es-tu certain de pouvoir échapper à Tu Si? »
 
 À ce moment précis, alors que la mer de sang se refermait, le regard des Yeux de l'Ancien Dieu se verrouilla sur eux, créant une aura oppressante. Les ondulations de la cloche approchèrent et enfin, le fantôme chargea avec une aura destructrice!
 

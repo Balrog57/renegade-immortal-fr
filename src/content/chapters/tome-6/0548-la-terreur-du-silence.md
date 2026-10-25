@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 548 - The Terror Of Silence
 slug: la-terreur-du-silence
 ---
-Lorsqu'il franchit le réseau de transfert, ces dix mille soldats démons lui adressèrent un rugissement empreint d'une intention meurtrière. Ce cri collectif, saturé d'énergie spirituelle démoniaque, n'était en rien inférieur au rugissement d'un cultivateur de la Transformation de l'Âme.
+Lorsqu'il franchit la formation de transfert, ces dix mille soldats démons lui adressèrent un rugissement empreint d'une intention meurtrière. Ce cri collectif, saturé d'énergie spirituelle démoniaque, n'était en rien inférieur au rugissement d'un cultivateur de la Transformation de l'Âme.
 
 L'intendant de l'armée laissa paraître une pointe de moquerie; il toussa et demanda: « Où est le commandant Sima? »
 
@@ -32,7 +32,7 @@ L'intendant afficha une expression impénétrable, joignit les mains en signe de
 
 Wang Lin esquissa un léger sourire. « Merci, noble intendant! »
 
-L'intendant sourit et hocha la tête, puis fit un pas de plus pour s'enfoncer dans le réseau. Une fois son départ effectué, le camp militaire fut plongé dans un silence absolu; seul le bruit des respirations résonnait encore dans l'air.
+L'intendant sourit et hocha la tête, puis fit un pas de plus pour s'enfoncer dans la formation. Une fois son départ effectué, le camp militaire fut plongé dans un silence absolu; seul le bruit des respirations résonnait encore dans l'air.
 
 Sima Yan lança un regard glacial à Wang Lin et assura: « Les dix mille soldats en armure noire sont tous présents, à l'exception des six qui sont inconscients et incapables de se relever! »
 
@@ -76,7 +76,7 @@ S'il n'avait pas agi immédiatement, c'était parce qu'il comprenait parfaitemen
 
 Tout étranger arrivant en Terre des Esprits Démoniaques devait d'abord s'intégrer à l'un des neuf pays et obtenir un commandement militaire. C'était l'unique moyen de s'imposer. Si l'on se retrouvait seul face à un homme commandant des dizaines de milliers de soldats, le combat était inutile. Bien que la culture de ces soldats ne fût pas élevée, certains d'entre eux étaient de véritables maîtres; leur nombre les rendait redoutables, d'autant plus qu'ils étaient experts en formations mystérieuses et imprévisibles.
 
-De plus, si l'on massacrait trop de soldats démons, le commandant en chef — un être presque aussi puissant que le Général Démon — finirait par apparaître. À ce moment-là, un cultivateur solitaire ne pourrait plus jamais s'imposer dans ce pays! Il serait contraint de fuir vers la nation voisine, et ce, de façon répétée jusqu'à ne plus pouvoir circuler en Terre des Esprits Démoniaques. Il finirait par devoir se terrer dans un lieu isolé pour cultiver, perdant ainsi toute chance d'obtenir des mérites militaires ou de fusionner avec un démon ancien!
+De plus, si l'on massacrait trop de soldats démons, des experts du rang de commandant en chef de la province ou de Général Démon finiraient par intervenir. À ce moment-là, un cultivateur solitaire ne pourrait plus jamais s'imposer dans ce pays! Il serait contraint de fuir vers la nation voisine, et ce, de façon répétée jusqu'à ne plus pouvoir circuler en Terre des Esprits Démoniaques. Il finirait par devoir se terrer dans un lieu isolé pour cultiver, perdant ainsi toute chance d'obtenir des mérites militaires ou de fusionner avec un démon ancien!
 
 C'est pour cette raison que tous les cultivateurs cherchaient à obtenir une position officielle au sein d'un pays. Par conséquent, Wang Lin devait respecter la loi militaire, sous peine de tout perdre!
 

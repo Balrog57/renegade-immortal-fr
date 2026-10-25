@@ -40,7 +40,7 @@ L'index de Wang Lin était toujours pointé vers le front de l'âme originelle d
 
 Le vieil homme trembla et hocha la tête. Il murmura: « La Terre Déchue obéit toujours au fort. Avoir un maître aussi puissant que vous est une chance pour mon Clan du Scorpion Noir. Les 176 membres de mon clan obéiront au Maître. Personne n'osera désobéir! »
 
-Zhong Grand Rouge leva les yeux au ciel et dit rapidement: « Maître, vous ne pouvez absolument pas vous contenter de leurs paroles. Faites-leur prêter serment avec leurs marques de clan. S'ils violent ce serment, leur marque de clan se retournera contre eux et tout le Clan du Scorpion Noir sera anéanti pour l'éternité! »
+Les yeux de Zhong Grand Rouge pivotèrent aussitôt d'un air rusé et il dit rapidement: « Maître, vous ne pouvez absolument pas vous contenter de leurs paroles. Faites-leur prêter serment avec leurs marques de clan. S'ils violent ce serment, leur marque de clan se retournera contre eux et tout le Clan du Scorpion Noir sera anéanti pour l'éternité! »
 
 En entendant les paroles de Zhong Grand Rouge, le corps du vieil homme trembla et il lui lança un regard venimeux. Cependant, cette malveillance s'effondra rapidement pour laisser place à une expression amère tandis qu'il hochait la tête. « Très bien, ce vieil homme prêtera un serment de clan pour que vous soyez notre maître. Si nous vous trahissons, nous mourrons sans sépulture! »
 

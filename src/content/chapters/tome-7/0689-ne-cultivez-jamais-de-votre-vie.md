@@ -8,9 +8,9 @@ slug: ne-cultivez-jamais-de-votre-vie
 ---
 Le ciel était d'un bleu limpide, tel un rouleau de soie satinée déployé à l'infini. Quelques nuages blancs y étaient parsemés comme des ornements, sublimant encore davantage l'éclat de la soie azurée.
 
-Au pied du mont Quilian, une petite rivière serpentait, s'étirant sur plusieurs kilomètres avant de se jeter dans un fleuve plus large. Dans ce paysage se nichait un village de montagne, luxuriant et plein de vie.
+Au pied du mont Qilian, une petite rivière serpentait, s'étirant sur plusieurs kilomètres avant de se jeter dans un fleuve plus large. Dans ce paysage se nichait un village de montagne, luxuriant et plein de vie.
 
-« À l'époque, l'eau de cette rivière était douce, et parfois, des nuages descendaient jusqu'au sommet du Quilian. On disait que si quelqu'un parvenait à respirer la brume de ces nuages, son corps deviendrait vigoureux et il ne tomberait pas malade pendant dix ans! » Une voix juvénile résonna depuis le village.
+« À l'époque, l'eau de cette rivière était douce, et parfois, des nuages descendaient jusqu'au sommet du Qilian. On disait que si quelqu'un parvenait à respirer la brume de ces nuages, son corps deviendrait vigoureux et il ne tomberait pas malade pendant dix ans! » Une voix juvénile résonna depuis le village.
 
 Ce jeune homme avait environ quatorze ou quinze ans et avait l'air robuste et vif. À cet instant, il s'adressait à sept ou huit enfants rassemblés devant lui, leur contant les souvenirs d'il y a cinq ans.
 
@@ -22,7 +22,7 @@ Ce jeune homme avait environ quatorze ou quinze ans et avait l'air robuste et vi
 
 Ce garçon avait environ cinq ou six ans. Son visage était pâle et sa constitution fragile. Bien qu'il fût bien plus petit que les autres enfants, il possédait une grande beauté; sans sa mine maladive, il aurait eu l'apparence délicate d'une poupée de porcelaine. Vêtu d'une petite chemise de toile de kudzu, ses yeux brillaient d'excitation lorsqu'il répondit: « Grand frère Zhou, je demanderai à mon père de m'y emmener dès que je serai rentré. »
 
-Le jeune homme éclata de rire: « L'oncle charpentier Wang est doué pour la menuiserie, mais les nuages du sommet Quilian ont disparu, alors comment pourrait-il t'y emmener? Écoutez-moi, vous feriez mieux de m'imiter: nous nous exerçons à l'escrime chaque jour. Cela fortifie le corps et, une fois adultes, nous parcourrons le monde martial, l'épée à la main! »
+Le jeune homme éclata de rire: « L'oncle charpentier Wang est doué pour la menuiserie, mais les nuages du sommet Qilian ont disparu, alors comment pourrait-il t'y emmener? Écoutez-moi, vous feriez mieux de m'imiter: nous nous exerçons à l'escrime chaque jour. Cela fortifie le corps et, une fois adultes, nous parcourrons le monde martial, l'épée à la main! »
 
 Les idéaux grandioses du jeune homme enflammèrent davantage l'enthousiasme des autres enfants.
 
@@ -30,7 +30,7 @@ Alors qu'il s'emportait lui aussi dans son élan, divers appels vinrent du villa
 
 Le jeune homme leva la tête et soupira: « Bon, l'assemblée du monde martial est terminée pour aujourd'hui. Nous la rouvrirons après le dîner. »
 
-Les enfants se dispersèrent avec une pointe de regret. Le petit Wang Ping marcha vers le village, les yeux brillants, jetant parfois des regards vers le sommet du Quilian.
+Les enfants se dispersèrent avec une pointe de regret. Le petit Wang Ping marcha vers le village, les yeux brillants, jetant parfois des regards vers le sommet du Qilian.
 
 En chemin, un homme corpulent sortit du village. C'était un colosse qui portait une fourche d'acier et des flèches de chasseur, avec un cerf suspendu sur l'épaule.
 
@@ -74,7 +74,7 @@ Ce père et ce fils étaient Wang Lin et Wang Ping.
 
 Le regard de Wang Lin était empreint d'une infinie douceur lorsqu'il répondit doucement: « Bientôt. »
 
-Tard dans la nuit, le clair de lune baignait la terre comme un voile de soie argentée. La fraîcheur nocturne se répandait, plongeant le village au pied du mont Quilian dans un silence profond. Hormis quelques aboiements lointains et faibles, aucun autre son ne troublait la nuit.
+Tard dans la nuit, le clair de lune baignait la terre comme un voile de soie argentée. La fraîcheur nocturne se répandait, plongeant le village au pied du mont Qilian dans un silence profond. Hormis quelques aboiements lointains et faibles, aucun autre son ne troublait la nuit.
 
 À l'intérieur de la chambre, Wang Ping dormait déjà. Bien que son visage fût pâle, il semblait paisible; un léger sourire étirait ses lèvres, signe qu'il faisait un beau rêve.
 

@@ -102,7 +102,7 @@ Des éclairs verts crépitèrent au sein de l'énergie démoniaque qui se conden
 
 À l'instant où les trois drapeaux apparurent, le ciel changea de couleur. L'océan en dessous sembla être fendu par une force mystérieuse, l'eau étant repoussée sur les côtés dans un fracas assourdissant.
 
-D'innombrables ombres surgirent au-dessus des drapeaux verts. Parmi elles, à la stupéfaction générale, apparurent un Dieu Ancien et deux démons antiques à une seule corne!
+D'innombrables ombres surgirent au-dessus des drapeaux verts. Parmi elles, à la stupéfaction générale, apparurent un Dieu Ancien et deux Diables Anciens à une seule corne!
 
 Plus terrifiant encore: après l'apparition des trois drapeaux, non seulement la mer fut transformée, mais le monde entier devint instable. En se fendant, l'océan activa toutes les restrictions du lieu!
 

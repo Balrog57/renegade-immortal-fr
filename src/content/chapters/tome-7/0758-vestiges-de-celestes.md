@@ -85,7 +85,7 @@ Dans la vallée, les yeux de Wang Lin étaient injectés de sang alors qu'il agr
 
 Le grondement fit vibrer toute la vallée et même l'espace de stockage commença à trembler. Le garde céleste souleva la montagne et se glissa dessous. Son corps émit un éclat doré tandis qu'il portait entièrement la masse sur son dos.
 
-Les vibrations violentes affectèrent la vallée, forçant les huit courtes épées à marquer une pause. La brume verte ignora totalement Wang Lin pour s'engouffrer sous la montagne soulevée, tout comme les insectes.
+Les vibrations violentes affectèrent la vallée, forçant les huit courtes épées à marquer une pause. La brume verte ignora totalement Wang Lin et s'échappa tout entière par la partie soulevée de la montagne, et les insectes firent de même.
 
 Des craquements sinistres émanaient du corps du garde céleste. Semblant être entré en transe, il poussa un rugissement et souleva la montagne d'une dizaine de mètres supplémentaires.
 

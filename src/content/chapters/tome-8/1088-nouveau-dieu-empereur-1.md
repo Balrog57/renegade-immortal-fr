@@ -108,7 +108,7 @@ Il y avait un autre endroit au sein de ce champ stellaire ardent. Bien que la ch
 
 « Seigneur Wang, ayez pitié du petit Xu. Cet endroit est trop douloureux! »
 
-« Diable Wang, si tu pousses ton Grand-père Xu à bout, je me battrai jusqu'à la mort! »
+« Wang l'Étoile funeste, si tu pousses ton Grand-père Xu à bout, je me battrai jusqu'à la mort! »
 
 Les jurons et les supplications misérables ne s'étaient jamais interrompus durant ces trois années. Parfois, des cris de douleur déchiraient l'air. Cela faisait que, chaque fois qu'un disciple de la Secte Divine de l'Oiseau Vermillon passait par là, il faisait un détour pour éviter ce bruit agaçant.
 

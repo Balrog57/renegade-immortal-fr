@@ -36,7 +36,7 @@ Wang Lin répondit: « Suivez ma règle: répondez à l'une de mes questions, et
 
 Yao Xixue baissa la tête, ses yeux trahissant une lutte intérieure. Wang Lin attendit patiemment.
 
-Après le temps qu'il faut pour consumer une demi-tige d'encens, elle releva la tête et dit froidement: « Même si vous me scellez, avec les capacités de mon père, il finira par me trouver. Le moment venu, je verrai personnellement mon père détruire votre corps, extraire votre âme, la raffiner et l'enfermer dans les profondeurs du néant. Vous saurez alors ce que signifie être pire que la mort! »
+Après sept minutes, elle releva la tête et dit froidement: « Même si vous me scellez, avec les capacités de mon père, il finira par me trouver. Le moment venu, je verrai personnellement mon père détruire votre corps, extraire votre âme, la raffiner et l'enfermer dans les profondeurs du néant. Vous saurez alors ce que signifie être pire que la mort! »
 
 Wang Lin poussa un soupir: « Vous avez gaspillé votre deuxième chance. J'espère que vous chérirez la prochaine! » Sur ces mots, ses yeux s'illuminèrent et il fit un pas en avant. Il arriva devant Yao Xixue, lui saisit la mâchoire et, avec une légère force, lui força la bouche à s'ouvrir.
 
@@ -102,7 +102,7 @@ Wang Lin fendit le ciel, telle une traînée de lumière, et chargea directement
 
 Le général démon Mo Lihai, vêtu d'une chemise verte, se tenait au sommet de la porte est de la Cité du Démon Antique. Derrière lui se trouvaient le commandant en chef et les autres officiers.
 
-Mo Lihai regarda au loin sans dire un mot. Après un long moment, il détourna son regard et se retourna pour observer attentivement la ville. En un instant, il aperçut les décombres qui gisaient sur dix li au centre de la cité.
+Mo Lihai regarda au loin sans dire un mot, et ceux qui se tenaient derrière lui restaient tous silencieux. Après un long moment, il détourna son regard et se retourna pour observer attentivement la ville. En un instant, il aperçut les décombres qui gisaient sur dix li au centre de la cité.
 
 Mo Lihai pensa: « Après mon départ cette fois, je ne reviendrai pas. Un autre général démon prendra la gestion de la ville; ces ruines n'auront donc plus rien à me voir! »
 

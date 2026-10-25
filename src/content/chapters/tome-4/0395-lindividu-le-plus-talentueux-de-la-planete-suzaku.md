@@ -106,7 +106,7 @@ Alors qu'il flottait dans les cieux, le Sens Divin de Wang Lin balaya Xue Yu pou
 
 « À compter de ce jour, aucun cultivateur du stade de la Formation de l'Âme ou supérieur n'est autorisé à résider à Xue Yu, et aucune secte de culture ne pourra y subsister, sans quoi je reviendrai! »
 
-Le domaine de son âme originelle s'activa de nouveau et le Parchemin de la Réincarnation du Cycle de la Vie et de la Mort apparut une fois de plus dans le ciel. Plus d'une dizaine de rayons de gaz gris jaillirent pour pénétrer le corps de chaque cultivateur de Formation de l'Âme présent à Xue Yu.
+Le domaine de son âme originelle s'activa de nouveau et le Parchemin de la Réincarnation Vie et Mort apparut une fois de plus dans le ciel. Plus d'une dizaine de rayons de gaz gris jaillirent pour pénétrer le corps de chaque cultivateur de Formation de l'Âme présent à Xue Yu.
 
 « Scelle! »
 

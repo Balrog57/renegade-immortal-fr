@@ -16,15 +16,15 @@ Au moment où les deux se touchèrent, le cristal de bois disparut dans la perle
 
 « Désormais, il ne me manque que l'élément métal! » Les yeux de Wang Lin étincelèrent alors qu'il tournait son regard vers Xue Yu. « L'élément métal peut attendre. Li Yuanfeng, je suis là! »
 
-Il rangea la perle défiant le ciel, se posa sur la crapaud tonnerre et éclata de rire. « Vieux ami, allons-y! »
+Il rangea la perle défiant le ciel, se posa sur le crapaud tonnerre et éclata de rire. « Vieux ami, allons-y! »
 
-La crapaud tonnerre poussa un rugissement joyeux et frappa le sol, le faisant éclater. Elle s'élança vers le ciel telle une météorite.
+Le crapaud tonnerre poussa un rugissement joyeux et frappa le sol, qui se fendit en d'innombrables crevasses; il s'élança vers le ciel telle une météorite.
 
-Wang Lin laissa échapper un rire et frappa son sac de rangement. Le moustique apparut en poussant un rugissement, puis sa bouche acérée se projeta vers la crapaud tonnerre.
+Wang Lin laissa échapper un rire et frappa son sac de rangement. Le moustique apparut en poussant un rugissement, puis sa bouche acérée se projeta vers le crapaud tonnerre.
 
-La crapaud tonnerre roula des yeux. Sa langue jaillit comme l'éclair et commença à jouer avec le moustique.
+Le crapaud tonnerre roula des yeux. Sa langue jaillit comme l'éclair et commença à jouer avec le moustique.
 
-Assis sur le dos de la crapaud tonnerre, Wang Lin souriait en regardant les deux bêtes s'amuser. Il se tourna ensuite vers Xue Yu. Bien que son sourire soit toujours présent, il contenait désormais une pointe de froideur.
+Assis sur le dos du crapaud tonnerre, Wang Lin souriait en regardant les deux bêtes s'amuser. Il se tourna ensuite vers Xue Yu. Bien que son sourire soit toujours présent, il contenait désormais une pointe de froideur.
 
 Xue Yu.
 

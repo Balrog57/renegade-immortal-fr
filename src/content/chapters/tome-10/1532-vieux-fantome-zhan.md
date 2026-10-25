@@ -66,7 +66,7 @@ L'espace lui-même se brisait sous leur vitesse et d'innombrables ondulations se
 
 Elles avançaient avec une rapidité fulgurante, se rapprochant en un clin d'œil. Elles chargèrent l'arc qui flottait à l'extérieur de la Formation de Scellement du Royaume!
 
-La paume géante, en pleine régénération, s'agita pour intercepter l'arc. Elle percuta la première planète ardente.
+La paume géante, en pleine régénération, se projeta aussitôt en avant pour barrer la route devant l'arc. Elle percuta de plein fouet la première planète ardente.
 
 Dans un fracas de tonnerre, la première planète se mua en une force colossale. En frappant la paume, elle s'effondra, mais son impact puissant força la main à reculer.
 

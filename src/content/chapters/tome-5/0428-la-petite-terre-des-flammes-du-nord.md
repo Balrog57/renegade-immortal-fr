@@ -22,7 +22,7 @@ La glace qui s'y trouve n'est pas froide, mais faite de flammes.
 
 C'est un phénomène très rare; le feu existant au cœur de la glace forme une puissance capable d'émerveiller les hommes. C'est ainsi que les cultivateurs de la planète Suzaku nommèrent ce lieu la Petite Terre des Flammes du Nord.
 
-Il existe dans cette terre des restrictions anciennes qui perdurent depuis fort longtemps; la Brume de Jiuli en est l'une. Il y a également la Lumière de la Flamme Sanguine. Elle n'a aucun effet sur les choses dépourvues de sang, mais si un être vivant est touché par sa lumière, son sang se met à bouillir et il meurt dans les dix secondes.
+Il existe dans cette terre des restrictions anciennes qui perdurent depuis fort longtemps; la Brume de Jiuli en est l'une. Il y a également la Lumière de la Flamme Sanguine. Elle n'a aucun effet sur les choses dépourvues de sang, mais si un être vivant est touché par sa lumière, son sang se met à bouillir et il meurt en moins de dix respirations.
 
 En plus de cela, il existe une glace capable d'absorber le Sens Divin. Cette glace affaiblit constamment le Sens Divin dès que les deux entrent en contact.
 

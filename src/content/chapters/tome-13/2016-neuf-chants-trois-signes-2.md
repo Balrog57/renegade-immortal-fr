@@ -28,7 +28,7 @@ Un peu plus de la puissance née de la fusion céleste et ancienne apparut en lu
 
 Après un long moment, une lueur jaillit dans les yeux de Wang Lin. Il leva le pied et reprit sa progression lente. Son expression n'était plus féroce, mais empreinte d'un calme absolu. Ses yeux n'étaient plus injectés de sang et il avançait avec sérénité.
 
-Le ciel doré était la lumière, la terre noire était la route, le tonnerre était le tambour, le vent était le rythme, et le souffle du vent était la flûte. Tous ces éléments accompagnaient Wang Lin alors qu'il montait avec constance vers la 250e marche.
+Le ciel doré était la lumière, la terre noire était la route, le tonnerre était le tambour, le chant du vent était la mélodie, et la flûte des nuages les accompagnait. Tous ces éléments accompagnaient Wang Lin alors qu'il montait avec constance vers la 250e marche.
 
 Au moment où son pied toucha le sol, un son supplémentaire apparut, semblable au bruit de la pluie frappant la terre.
 

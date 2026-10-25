@@ -12,7 +12,7 @@ Wang Lin transforma sa compréhension du tonnerre et du feu en une graine, qu'il
 
 « Je ne te donnerai aucun trésor, seulement cette graine d'essence! »
 
-Le corps de Treize trembla. Lorsque la paume de Wang Lin se posa sur son front, une graine dorée apparut dans son esprit. Cette graine contenait l'intégralité de la compréhension que Wang Lin avait de ses essences de feu et de tonnerre. C'était l'aura du troisième niveau!
+Le corps de Treize trembla. Lorsque la paume de Wang Lin se posa sur son front, une graine dorée apparut dans son esprit. Cette graine contenait l'intégralité de la compréhension que Wang Lin avait de ses essences de feu et de tonnerre. C'était l'aura de la troisième étape!
 
 Cette graine contenait également la force immortelle du sang de Wang Lin, ce qui expliquait sa couleur dorée!
 
@@ -90,7 +90,7 @@ Sous l'impatience du fou, le trio atteignit le bord de la rue où se trouvait un
 
 Un réseau de transfert se trouvait dans l'arrière-boutique. Ce dispositif était rudimentaire et semblait avoir été installé récemment. Le fou, debout devant le réseau, hurla sur Xu Liguo.
 
-Xu Liguo afficha un sourire mielleux et se frotta les mains: « Majesté, ce humble serviteur vous a trouvé un cultivateur au stade du Yang Corporel. Il avait refusé au départ, mais j'ai dû déployer de grands efforts pour la convaincre. Cependant, en raison de son statut noble, il craint que cela se sache et doit donc être particulièrement prudent. »
+Xu Liguo afficha un sourire mielleux et se frotta les mains: « Majesté, ce humble serviteur vous a trouvé un cultivateur au stade du Yang Corporel. Il avait refusé au départ, mais j'ai dû déployer de grands efforts pour le convaincre. Cependant, en raison de son statut noble, il craint que cela se sache et doit donc être particulièrement prudent. »
 
 Le visage du fou était marqué par l'impatience et il pinça les lèvres. « Nous venons ici depuis tant de jours et nous n'avons pas réussi une seule fois! Si ce n'est pas un succès cette fois, ce Roi ne jouera plus! Ce n'est pas aussi amusant que tu le prétends; quel genre de divertissement ce Roi n'a-t-il pas déjà expérimenté? »
 

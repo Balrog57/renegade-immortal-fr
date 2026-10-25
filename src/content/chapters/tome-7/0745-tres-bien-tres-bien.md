@@ -80,7 +80,7 @@ Wang Lin avait déjà remarqué l'endroit que Li Yuan désignait. Après une cou
 
 Li Yuan hocha la tête. Il partageait cette pensée. Ils avaient parcouru un chemin trop long pour faire marche arrière maintenant. Bien que les cultivateurs doivent être prudents, face à une voie sans issue, ils se doivent d'avancer avec courage.
 
-Li Yuan s'adressa à la femme: « Madame Ge, bien que ces vibrations soient liées à notre progression dans le vide, il est trop tard pour fuir! »
+Li Yuan s'adressa à la femme: « Mademoiselle Ge, bien que ces vibrations soient liées à notre progression dans le vide, ce n'est pas le point essentiel. Il est trop tard pour reculer! »
 
 Wang Lin ne dit plus rien; son corps vacilla et il accéléra sa course. Il dépassa les deux autres et chargea en avant.
 

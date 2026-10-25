@@ -6,11 +6,11 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1898 - Last Breath!!"
 slug: dernier-souffle
 ---
-À l'extérieur du four vert, les deux Messagers du Démon Vert déversaient leur essence originelle depuis dix ans. Leurs âmes originelles étaient désormais très faibles et ils ne pourraient plus le supporter bien longtemps.
+À l'extérieur du Fourneau du Démon Vert, les deux Messagers du Démon Vert déversaient leur essence originelle depuis dix ans. Leurs âmes originelles étaient désormais très faibles et ils ne pourraient plus le supporter bien longtemps.
 
 Quelques jours plus tard, l'âme originelle de l'un des Messagers du Démon Vert recracha les dernières traces de son essence originelle. Son âme originelle se dissipa et son corps s'effondra. Il était mort.
 
-Moins d'un demi-bâton d'encens après sa mort, l'âme originelle de l'autre messager se dissipa également.
+Moins de sept minutes après sa mort, l'âme originelle de l'autre messager s'assombrit puis se dissipa à son tour.
 
 La mort des deux Messagers du Démon Vert qui avaient accompagné le vieil homme pendant si longtemps ne fit pas changer l'expression de ce dernier. Le vieil homme dégageait une aura de mort et se trouvait dans un état semi-mort. S'il n'avait pas été soutenu par sa volonté puissante, il serait déjà mort.
 
@@ -96,7 +96,7 @@ Bien que très faible, elle devint féroce lorsque Wang Lin commença à la dév
 
 Mais le scorpion n'était absolument pas préparé, tandis que Wang Lin s'était préparé pendant plus de cent ans. Wang Lin devint fou et dévora avec désespoir.
 
-Le temps passa en un instant. Après un bâton d'encens, la bataille de dévoration entre Wang Lin et l'âme du scorpion atteignit un point critique. L'âme du scorpion continuait de hurler. Elle était faible et n'était venue qu'avec une partie de son âme. Face à Wang Lin, qui s'était préparé durant plus d'un siècle, elle perdait progressivement pied.
+Le temps passa en un instant. Au bout de quinze minutes, la bataille de dévoration entre Wang Lin et l'âme du scorpion atteignit un point critique. L'âme du scorpion continuait de hurler. Elle était faible et n'était venue qu'avec une partie de son âme. Face à Wang Lin, qui s'était préparé durant plus d'un siècle, elle perdait progressivement pied.
 
 À l'extérieur, personne ne pouvait ressentir la bataille périlleuse qui se jouait dans le corps de Wang Lin. Le vieil homme aux robes vertes regardait avec impatience le four et l'âme du scorpion qui était en grande partie entrée à l'intérieur. L'âme du scorpion trembla, ce qui surprit le vieil homme.
 

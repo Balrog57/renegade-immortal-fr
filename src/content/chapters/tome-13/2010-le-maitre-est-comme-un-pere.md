@@ -54,7 +54,7 @@ Le vieil homme hocha précipitamment la tête, couvert de sueur. On ignorait si 
 
 « Ce puissant cultivateur, premier sous les Grands Empyréens, est un membre de mon Ancien Dao! C'est une nouvelle merveilleuse! » L'Empereur de l'Ancien Dao souriait comme s'il était transporté par le bonheur.
 
-« Chang Shi! » Tandis que l'Empereur souriait, un autre vieil homme derrière lui s'inclina immédiatement.
+« Chambellan! » Tandis que l'Empereur souriait, un autre vieil homme derrière lui s'inclina immédiatement.
 
 « Votre humble serviteur est à votre service! »
 

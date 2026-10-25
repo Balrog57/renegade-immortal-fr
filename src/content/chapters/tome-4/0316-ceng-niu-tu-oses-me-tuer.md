@@ -78,7 +78,7 @@ Zhou Yi rattrapa le cadavre. Ses yeux, noyés d'émotion, laissèrent échapper 
 
 « Ting Er, personne ne pourra t'emmener, personne... »
 
-L'effondrement des environs s'accéléra à mesure que les failles spatiales se multipliaient dans le ciel. Wang Lin, qui surveillait Hongdie depuis longtemps, vit une lueur briller dans ses yeux. « C'est le moment! »
+L'effondrement des environs s'accéléra à mesure que les failles spatiales se multipliaient dans le ciel. Wang Lin, qui avait verrouillé Hongdie depuis longtemps, eut un éclair dans le regard. « C'est le moment! »
 
 Le corps de Wang Lin fonça vers Hongdie comme un éclair. Chi Hu vit la scène et ouvrit la bouche, mais resta muet. S'échapper vivant était sa priorité absolue.
 
@@ -102,7 +102,7 @@ Wang Lin franchit les 99 mètres d'un bond, pointant sa lance de restriction ver
 
 « Ceng Niu, tu es devenu fou?! Cet endroit s'effondre! Si tu ne t'échappes pas maintenant, tu ne sortiras jamais d'ici! » L'expression de Hongdie se décomposa. Elle sortit précipitamment une épée volante blanche pour parer l'attaque.
 
-Ne pouvant ni esquiver ni se téléporter, elle fut contrainte de bloquer. Derrière elle, une faille; à côté, une autre; elle était encerclée par le vide. Si elle restait piégée ni boussole stellaire ni volonté de brûler son âme originelle, seule la mort lui serait offerte.
+Ne pouvant ni esquiver ni se téléporter, elle fut contrainte de bloquer. Derrière elle, une faille; à côté, une autre; elle était encerclée par le vide. Une fois tombée dans ces failles, sans boussole stellaire ni courage de brûler son âme originelle, seule la mort l'attendait.
 
 Bang!
 

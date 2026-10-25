@@ -46,11 +46,11 @@ En un instant, le réseau cessa d'émettre une lumière rouge pour projeter une 
 
 Simultanément, à l'entrée du quatrième essai, de nombreux démons de la Mer de Sang apparurent et accoururent vers le réseau de transfert.
 
-L'un des cultivateurs démons inspecta le dispositif et déclara: « Le réseau a été endommagé. Il faudra trois heures pour sa restauration. »
+L'un des cultivateurs démons inspecta le dispositif et déclara: « Le réseau a été endommagé. Il faudra environ six heures pour qu'il redevienne normal. »
 
-« Peu importe. Le corps est immense. Même s'il y est entré, le dévoreur d'âmes ne pourra pas atteindre la Mer de la Connaissance en trois heures. Tant qu'il ne l'atteint pas, il ne pourra pas s'échapper. »
+« Peu importe. Le corps est immense. Même s'il y est entré, le dévoreur d'âmes ne pourra pas atteindre la Mer de la Connaissance en six heures. Tant qu'il ne l'atteint pas, il ne pourra pas s'échapper. »
 
-« Dans trois heures, nous nous séparerons pour lancer les recherches. Cette fois, nous devons le capturer vivant. »
+« Dans six heures, nous nous séparerons pour lancer les recherches. Cette fois, nous devons le capturer vivant. »
 
 Wang Lin eut la sensation que sa chair et ses os se séparaient. Peu après, il sentit clairement une force invisible l'entraîner vers un vortex. Durant tout ce processus, il eut l'impression que son corps s'évanouissait pour ne laisser place qu'à son sens divin.
 

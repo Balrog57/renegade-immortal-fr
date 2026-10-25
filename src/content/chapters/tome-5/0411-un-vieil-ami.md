@@ -24,9 +24,9 @@ Wang Zhuo laissa échapper un sourire amer en regardant un autre membre de sa se
 
 À ce moment précis, une météorite traversa le ciel, dégageant une aura terrifiante. Les quatre membres du Clan des Immortels Délaissés furent frappés de stupeur et regardèrent immédiatement dans cette direction.
 
-En un instant, la météorite disparut et un homme aux longs cheveux blancs apparut, parcourant la distance en quelques pas seulement.
+En un instant, la météorite disparut et un homme aux longs cheveux flottants, vêtu de blanc, apparut, parcourant la distance en quelques pas seulement.
 
-Les expressions des quatre membres du Clan changèrent radicalement. Ils réalisèrent que cet homme aux cheveux blancs dégageait une aura qui les faisait trembler; ils n'avaient ressenti un tel pouvoir que chez les chamans à sept feuilles ou plus de leur propre clan.
+Les expressions des quatre membres du Clan changèrent radicalement. Ils réalisèrent que cet homme vêtu de blanc dégageait une aura qui les faisait trembler; ils n'avaient ressenti un tel pouvoir que chez les chamans à sept feuilles ou plus de leur propre clan.
 
 « Transformation de l'Âme… » L'un des quatre membres du Clan Délaissé trembla et s'exclama. Sans la moindre hésitation, il fit demi-tour et s'enfuit. Les trois autres le suivirent précipitamment.
 

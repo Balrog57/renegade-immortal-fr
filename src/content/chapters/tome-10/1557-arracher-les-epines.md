@@ -88,7 +88,7 @@ Au sol gisait la Tortue Noire au dos brisé, mais sa tête restait tournée vers
 
 Cependant, au plus profond de son dos, un cristal gris brisé émettait une faible lueur vacillante.
 
-Il semblait que tout le Royaume aux Sept Couleurs se soit apaisé, mais quinze minutes plus tard, une série de craquements retentit depuis la sphère d'épines. C'était comme si quelqu'un tentait de briser cette prison à coups de poing!
+Il semblait que tout le Royaume aux Sept Couleurs se soit apaisé, mais sept minutes plus tard, une série de craquements retentit depuis la sphère d'épines. C'était comme si quelqu'un tentait de briser cette prison à coups de poing!
 
 Les craquements devinrent plus intenses, rompant le silence du Royaume aux Sept Couleurs. Un instant plus tard, une partie de la sphère s'effondra et un poing doré en surgit!
 

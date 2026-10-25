@@ -32,7 +32,7 @@ Ce coup fut si rapide qu'il déclencha un bang dont la puissance semblait capabl
 
 Le corps de Zhou Tian s'effondra sitôt l'impact produit, se transformant en une brume de sang. Pourtant, des rires jaillirent du vide, et des ombres violettes s'élancèrent immédiatement depuis le néant vers Wang Lin.
 
-« Moi, Zhou Tian, je vais prendre ce corps! » Alors que cette voix féminine résonnait, ces ombres violettes s'engouffrèrent avec frénésie dans le corps de Wang Lin pour charger vers son âme originelle.
+« Moi, Zhou Tian, je vais prendre ce corps! » Alors que cette voix doucereuse et glaciale résonnait, ces ombres violettes s'engouffrèrent avec frénésie dans le corps de Wang Lin pour charger vers son âme originelle.
 
 Cependant, juste au moment où ces ombres approchèrent de l'âme originelle de Wang Lin, celle-ci ouvrit les yeux. L'Armure de Cuir de l'Ancien Dieu dégageait une aura antique qui fusionna avec l'âme originelle de Wang Lin, provoquant un contrecoup inimaginable.
 

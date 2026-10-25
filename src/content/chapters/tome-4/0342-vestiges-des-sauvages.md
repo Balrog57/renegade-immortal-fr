@@ -86,7 +86,7 @@ Personne, hormis Suzaku, ne connaissait le nombre exact de couches du Cimetière
 
 « L'Arbre de Réincarnation pousse sous terre et est considéré comme sacré par les sauvages. Cependant, il existe au total neuf Arbres de Réincarnation, ce qui nous donne une chance. »
 
-« Quant au Fruit de la Réincarnation, dès que nous trouverons un arbre, j'ai une méthode secrète pour le faire porter des fruits en moins de trois heures. »
+« Quant au Fruit de la Réincarnation, dès que nous trouverons un arbre, j'ai une méthode secrète pour le faire porter des fruits en moins de six heures. »
 
 Wang Lin réfléchit encore. Il regarda la femme au voile blanc et demanda: « Pourquoi votre père s'est-il rendu au Cimetière des Immortels? »
 

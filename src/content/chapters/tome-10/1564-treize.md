@@ -36,7 +36,7 @@ Qing Shui partit. Sa robe verte flottait parmi les étoiles, empreinte d'une sen
 
 Cependant, quoi qu'il arrive, tant que Wang Lin le demanderait, il reviendrait des confins du monde. Il n'était pas nécessaire de trop parler entre eux; les épreuves qu'ils avaient traversées ensemble étaient des choses que Qing Shui n'oublierait jamais.
 
-Parmi les étoiles, il n'y avait que deux personnes dont Qing Shui se souciait encore. L'une d'elles était son frère cadet, Wang Lin.
+Parmi les étoiles, il n'y avait que deux personnes dont Qing Shui se souciait encore. L'une d'elles était son Junior Frère de secte, Wang Lin.
 
 L'évasion du Maître Hong Shan apporta la joie au Royaume Intérieur. La reprise de la Rivière Invoquée redonna espoir aux cultivateurs restants!
 

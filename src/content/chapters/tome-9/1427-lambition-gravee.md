@@ -38,7 +38,7 @@ La tempête semblait avoir formé une immense ombrelle qui ne s'était pas encor
 
 Le ciel entier était occupé par ces dragons de feu qui encerclaient l'ombrelle en rugissant. Ce spectacle pouvait être vu depuis n'importe quel point de la Planète du Grand Empereur!
 
-« Ombrelle Brûlante du Royaume! » Le vieux Oiseau Vermillon poussa un cri et la tempête cessa soudainement de tourner. Elle resta suspendue, immobile, dans les airs!
+« Parapluie du Royaume Brûlant! » Le vieux Oiseau Vermillon poussa un cri et la tempête cessa soudainement de tourner. Elle resta suspendue, immobile, dans les airs!
 
 Une pression indicible descendit lentement du ciel. La végétation se courba et d'épaisses brumes d'eau jaillirent. Les poissons du lac nagèrent frénétiquement et des bulles bouillonnèrent à la surface de l'eau.
 

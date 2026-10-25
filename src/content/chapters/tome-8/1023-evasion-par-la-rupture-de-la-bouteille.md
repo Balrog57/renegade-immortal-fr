@@ -96,7 +96,7 @@ Ses cheveux pâles flottaient au-dessus d'une armure noir pourpre. Dès que les 
 
 À cet instant, un homme sortit soudainement de l'entrée de la bouteille en suivant la mer de flammes. Il avait une allure audacieuse et tenait un parchemin vert. C'était l'Ancien Démon Bei Luo.
 
-Il esquissa un sourire en regardant l'homme en armure et secoua la tête: « Un ancien membre des quatre gardes de l'Empereur Céleste, Lame Sauvage, n'est plus qu'un démon dispersé raffiné par l'Ancien Diable. Pitoyable! »
+Il esquissa un sourire en regardant l'homme en armure et secoua la tête: « Un ancien membre des quatre gardes de l'Empereur Céleste, Lame Brisée, n'est plus aujourd'hui qu'un diable dispersé raffiné par l'Ancien Diable. Pitoyable! »
 
 Tian Yunzi, Ling Tianhou, Maître du Vide, Situ Nan et la belle femme d'âge moyen apparurent l'un après l'autre derrière Bei Luo!
 
@@ -114,7 +114,7 @@ Le sourcil de Tian Yunzi se fronça légèrement avant de se détendre.
 
 Quant aux autres, leurs expressions étaient diverses. Qu'il s'agisse de la belle femme d'âge moyen avec ses quatre disciples ou de l'homme en noir, tous portaient des regards différents sur Wang Lin.
 
-Même le démon dispersé en armure le dévisagea d'un regard glacial.
+Même le diable dispersé en armure le dévisagea d'un regard glacial.
 
 Tout le monde savait d'où provenait cette mer de flammes stupéfiante! Ils se souvenaient désormais tous de Wang Lin, celui qu'ils n'avaient initialement pas jugé digne d'intérêt.
 

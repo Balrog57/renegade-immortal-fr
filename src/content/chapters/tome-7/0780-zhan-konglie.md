@@ -42,7 +42,7 @@ Wang Lin réfléchit un instant. Sans ajouter un mot, il prit Li Yuan sous son a
 
 À ce moment précis, plus de dix rayons d'énergie d'épée, dans un grondement de tonnerre, traversèrent le vide lointain. Une riche énergie originelle émanait de ces éclairs, faisant en sorte que les cultivateurs environnants n'osassent bloquer leur passage.
 
-Ces dix rayons d'énergie d'épée dégageaient une pression dominante en balayant la zone. Même les clans regroupant un grand nombre de cultivateurs reculèrent immédiatement lorsqu'ils virent ces traînées fulgurantes.
+Ces rayons d'énergie d'épée, plus d'une dizaine, dégageaient une pression dominante en balayant la zone. Même les clans regroupant un grand nombre de cultivateurs reculèrent immédiatement lorsqu'ils virent ces traînées fulgurantes.
 
 Quant aux cultivateurs solitaires, il allait sans dire qu'ils s'arrêtèrent net, n'osant se mettre en travers de leur route.
 
@@ -78,7 +78,7 @@ Zhan Konglie était très célèbre, et certains cultivateurs environnants le re
 
 Diverses pensées traversèrent l'esprit des cultivateurs alentour.
 
-En particulier, les dix personnes accompagnant Zhan Konglie fixaient Wang Lin avec des regards incrédules. Chacun d'eux était le prodige de sa propre famille, et lorsque Zhan Konglie avait brusquement changé de direction, il ne leur avait rien expliqué. En l'entendant traiter cet inconnu de « Senior », leur curiosité fut piquée au vif.
+En particulier, la dizaine de personnes et plus qui accompagnaient Zhan Konglie fixaient Wang Lin avec des regards incrédules. Chacun d'eux était le prodige de sa propre famille, et lorsque Zhan Konglie avait brusquement changé de direction, il ne leur avait rien expliqué. En l'entendant traiter cet inconnu de « Senior », leur curiosité fut piquée au vif.
 
 Il faut dire que Zhan Konglie possédait l'un des niveaux de culture les plus élevés parmi eux. Ils savaient également qu'il était d'une arrogance extrême. Ce n'était pas une simple façade, mais un trait de caractère profondément ancré en lui.
 

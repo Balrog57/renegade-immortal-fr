@@ -20,7 +20,7 @@ Si quitter ce monde signifiait devenir un être céleste, alors les paroles de W
 
 Après avoir médité un instant, le premier Oiseau Vermillon laissa échapper un soupir.
 
-« Peut-être as-tu raison... Soit, tu as réussi l'Épreuve Céleste... Je sais que tu as laissé une goutte de sang de Oiseau Vermillon sur une planète abandonnée des Terres Déchues pour attirer le Clan des Moineaux de Feu... Ton véritable but est l'essence de feu du Clan des Moineaux de Feu... Ton Oiseau Vermillon s'est éveillé quatre fois et tu as donné naissance au Feu Éthéré. Si tu parviens à dévorer l'essence de feu laissée par le traître, le troisième Oiseau Vermillon, ton essence de feu augmentera considérablement!
+« Peut-être as-tu raison... Soit, tu as réussi l'Épreuve Céleste... Je sais que tu as laissé une goutte de sang d'Oiseau Vermillon sur une planète abandonnée des Terres Déchues pour attirer le Clan des Moineaux de Feu... Ton véritable but est l'essence de feu du Clan des Moineaux de Feu... Ton Oiseau Vermillon s'est éveillé quatre fois et tu as donné naissance au Feu Éthéré. Si tu parviens à dévorer l'essence de feu laissée par le traître, le troisième Oiseau Vermillon, ton essence de feu augmentera considérablement!
 
 « Bien que ce traître ait été fabriqué par quelqu'un, c'était la personne la plus talentueuse que j'aie jamais vue. Bien que je l'aie gravement blessé, sa culture était puissante et son esprit rusé. Il a dû se ménager une issue de secours.
 
@@ -28,11 +28,11 @@ Après avoir médité un instant, le premier Oiseau Vermillon laissa échapper u
 
 Alors que le premier Oiseau Vermillon parlait, le feu aux neuf couleurs entre ses sourcils brilla. Il se condensa en une plume de neuf couleurs qui vola lentement vers Wang Lin.
 
-« Le traître possède un trésor de mon Clan de Oiseau Vermillon, mais il ignore comment le contrôler. Je vais t'enseigner la méthode, et si tu as la puissance nécessaire pour le reprendre, je te ferai don de ce trésor! »
+« Le traître possède un trésor de mon Clan d'Oiseau Vermillon, mais il ignore comment le contrôler. Je vais t'enseigner la méthode, et si tu as la puissance nécessaire pour le reprendre, je te ferai don de ce trésor! »
 
 Au moment où Wang Lin saisit la plume aux neuf couleurs, une incantation complexe fut gravée dans son âme.
 
-« Essaie de garder les membres du Clan des Moineaux de Feu en vie, car ils me seront d'une grande utilité! Je t'aiderai à rendre plus réelle cette goutte de sang de Oiseau Vermillon que tu as laissée sur la planète abandonnée. Personne d'autre que le troisième Oiseau Vermillon ne pourra percer son secret. Tu peux partir. » La voix du premier Oiseau Vermillon s'affaiblit progressivement jusqu'à disparaître totalement. La statue perdit sa vitalité et sembla redevenir un objet inanimé.
+« Essaie de garder les membres du Clan des Moineaux de Feu en vie, car ils me seront d'une grande utilité! Je t'aiderai à rendre plus réelle cette goutte de sang d'Oiseau Vermillon que tu as laissée sur la planète abandonnée. Personne d'autre que le troisième Oiseau Vermillon ne pourra percer son secret. Tu peux partir. » La voix du premier Oiseau Vermillon s'affaiblit progressivement jusqu'à disparaître totalement. La statue perdit sa vitalité et sembla redevenir un objet inanimé.
 
 Wang Lin regarda la statue du premier Oiseau Vermillon et, après un instant, s'inclina profondément. Puis il fit volte-face et disparut.
 

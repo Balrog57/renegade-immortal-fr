@@ -49,9 +49,9 @@ L'homme costaud avait lancé ces paroles dans un moment de désespoir. Ayant ét
 
 Levant la tête, il regarda la fumée verte que Wang Lin était devenu à l'horizon. Il hésita un instant et dit: « Il y a six mois, le général démon est entré en culture de méditation et a verrouillé tous les tableaux de transfert. Si tu veux entrer, la seule façon est de forcer le passage! » Il porta la main à sa poitrine en s'éloignant. Gravement blessé, il devait retourner à son palais pour se rétablir.
 
-Tandis que Wang Lin volait dans le ciel sous forme de nuage de fumée verte, il déploya son sens divin pour balayer la zone. Tous les tableaux de transfert à l'intérieur de la Cité du Démon Antique menant au palais du général démon étaient fermés. Ces tableaux avaient été verrouillés de l'intérieur et n'avaient rien à voir avec le mécanisme des tableaux eux-mêmes. À moins que le général démon ne les ouvre lui-même, il était impossible de les utiliser.
+Tandis que Wang Lin volait dans le ciel sous forme de nuage de fumée verte, il déploya son sens divin pour balayer la zone. Tous les tableaux de transfert à l'intérieur de la Cité de l'Ancien Démon menant au palais du général démon étaient fermés. Ces tableaux avaient été verrouillés de l'intérieur et n'avaient rien à voir avec le mécanisme des tableaux eux-mêmes. À moins que le général démon ne les ouvre lui-même, il était impossible de les utiliser.
 
-« Treize et Hu Pao ont été amenés dans cette Cité du Démon Antique par ma faute; c'est donc moi qui les ai entraînés dans tout cela... » Wang Lin soupira intérieurement. À l'origine, lorsqu'il était parti, il ne s'attendait pas à s'endormir dans la grotte. En raison d'une suite de circonstances, il avait causé du tort à Treize et Hu Pao.
+« Treize et Hu Pao ont été amenés dans cette Cité de l'Ancien Démon par ma faute; c'est donc moi qui les ai entraînés dans tout cela... » Wang Lin soupira intérieurement. À l'origine, lorsqu'il était parti, il ne s'attendait pas à s'endormir dans la grotte. En raison d'une suite de circonstances, il avait causé du tort à Treize et Hu Pao.
 
 « Dans ce monde, certaines choses arrivent et d'autres non. Les cultivateurs aspirent à la longévité et à échapper au destin, pour éviter les calamités et rencontrer la fortune! Treize et Hu Pao ne sont pas proches de moi, et risquer de s'opposer au général démon et au Pays du Démon Céleste pour eux signifie défier ces deux puissances!
 
@@ -157,7 +157,7 @@ Une fois ces formations complétées, elles se condensaient instantanément en b
 
 Face à cette marée de soldats, Wang Lin comprit qu'un homme seul n'avait pas assez de puissance pour défier le ciel!
 
-À moins d'une culture de niveau céleste, il serait extrêmement difficile de s'extraire de ces formations composées par des dizaines de milliers de soldats démons.
+À moins de posséder des sorts capables de défier les cieux, il serait extrêmement difficile de s'extraire de ces formations composées par des dizaines de milliers de soldats démons.
 
 Il pouvait tuer un homme, dix, cent, mille ou dix mille individus. Mais une fois ce massacre achevé, toute son énergie spirituelle céleste serait épuisée!
 
@@ -191,7 +191,7 @@ Le sort meurtrier suprême que Situ Nan lui avait enseigné. Le sort le plus pui
 
 « Si j'avais dix millions de soldats au stade de la Formation du Noyau, des commandants et un général au niveau de culture du commandant en chef, je pourrais combattre un cultivateur Ascendant de fin de stade!
 
-« Il en irait de même si j'avais le pouvoir d'un empereur démoniaque avec des centaines de millions de soldats, de grands généraux démons et des généraux démons. Je ne craindrais même pas ceux qui ont atteint le stade Yin et Yang! »
+« Il en irait de même si j'avais le pouvoir d'un empereur démoniaque avec des centaines de millions de soldats, de grands généraux démons et des généraux démons. Je ne craindrais même pas un cultivateur Ascendant ayant compris les deux intentions du vide et du réel, du yin et du yang! »
 
 Wang Lin soupira face à cette armée et aux cinq anciens dont la puissance égalait celle de cultivateurs au stade avancé de la Transformation de l'Âme. Il leva alors son petit doigt droit et traça lentement un cercle!
 

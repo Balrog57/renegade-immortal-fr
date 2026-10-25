@@ -58,7 +58,7 @@ Les yeux de Wang Lin s'illuminèrent et il pénétra dans l'ancien réseau de tr
 
 Wang Lin toucha l'un des points de sa main droite. La carte disparut et le réseau de transfert s'activa. Alors que la lumière devenait de plus en plus intense, la silhouette de Wang Lin s'effaça lentement.
 
-Un ancien réseau de transfert dans le pays de Pilu scintilla, et une silhouette en émergea. Celle-ci ne marqua pas de pause et fonça directement vers la Secte de l'Affinement de l'Âme.
+Dans le nord du continent Suzaku, un ancien réseau de transfert du pays de Pilu se mit à briller d'une lumière éblouissante; lorsqu'elle s'estompa, Wang Lin en sortit. Sans marquer de pause, il fonça directement vers la Secte de l'Affinement de l'Âme.
 
 La nuit, les trois montagnes de la Secte de l'Affinement de l'Âme ressemblaient à trois épées acérées pointées vers les cieux. La silhouette de Wang Lin apparut aux abords de la secte; il traversa la formation défensive et s'élança vers les neuf anneaux dorés.
 

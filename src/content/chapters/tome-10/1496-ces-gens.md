@@ -120,7 +120,7 @@ Dans le système stellaire de Luotian, au cœur de la magnifique formation plan�
 
 Le visage de Maître Lu Fu était livide; il laissa Wang Lin passer sans chercher à l'arrêter. Son expression complexe trahissait une profonde amertume.
 
-Maître Lu Fu avait autrefois aidé Wang Lin dans la Terre de l'Ancien Dieu. Même si cet acte n'avait été qu'un simple caprice, comme un mortel aidant une fourmi à traverser une rivière, Wang Lin ne l'oublierait pas.
+Maître Lu Fu avait autrefois aidé Wang Lin sur la planète Zhuque, dans la Terre de l'Ancien Dieu. Même si cet acte n'avait été qu'un simple caprice, comme un mortel aidant une fourmi à traverser une rivière, Wang Lin ne l'oublierait pas.
 
 C'est pourquoi Wang Lin avait accepté la Bataille Littéraire sans intention de lui faire perdre la face. C'était sa façon de lui rendre cette faveur; autrement, il n'aurait pas consenti à tout ce déploiement.
 

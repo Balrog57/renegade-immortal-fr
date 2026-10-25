@@ -98,7 +98,7 @@ La vitesse de Wang Lin ne ralentit pas; au contraire, il devint encore plus rapi
 
 En plus de cela, tous ceux qui tentaient de fuir étaient terrifiés par la lumière cristalline. Chaque fois qu'elle apparaissait, quelqu'un mourait d'une mort mystérieuse.
 
-En seulement une demi-heure, la majorité des fuyards furent éliminés par l'épée cristalline, et un nombre incalculable de personnes périrent sous le poids du Royaume Ji de Wang Lin.
+En seulement quinze minutes, la majorité des fuyards furent éliminés par l'épée cristalline, et un nombre incalculable de personnes périrent sous le poids du Royaume Ji de Wang Lin.
 
 Plus de 1 000 cadavres étaient déjà entremêlés dans le tendon de dragon derrière lui. Le tendon ressemblait à une cape de mort flottant derrière Wang Lin.
 

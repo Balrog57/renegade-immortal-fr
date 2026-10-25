@@ -86,6 +86,6 @@ Dès que Wang Lin reprit conscience, il ouvrit les yeux et vit le véritable cor
 
 En voyant cette entité, Wang Lin frémit un instant. Il était encore hébété, mais comprit bientôt la situation!
 
-Il fut saisi par l'effroi face à la scène de choc qui s'était révélée lorsqu'il avait utilisé pour la première fois le Dao de l'Œil de l'Âme dans la Secte de la Grande Âme! Cette scène était exactement la même que celle qu'il contemplait maintenant!
+Il fut saisi par l'effroi face à la scène de choc qui lui était apparue, parmi les changements de l'avenir qu'il avait entrevus, lorsqu'il avait utilisé pour la première fois le Dao de l'Œil de l'Âme dans la Secte de la Grande Âme! Cette scène était exactement la même que celle qu'il contemplait maintenant!
 
 À l'époque, Wang Lin avait vu son propre corps d'essence de tonnerre s'apprêter à utiliser la foudre pour le supprimer. Il ne comprenait pas comment son propre corps d'essence pouvait agir ainsi! Après tout, ce corps avait été formé par lui et lui appartenait entièrement. Ce qu'il avait vu paraissait impossible, et pourtant, c'était devenu réalité!

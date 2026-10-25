@@ -44,7 +44,7 @@ Jiutian Mozun fronça les sourcils et demanda: « Pourrait-il s'agir d'un piège
 
 « C'est entendu, mais ce petit gars est à moi! »
 
-Les deux conclurent un accord et chargèrent vers la faille qui flottait calmement après avoir dévoré toute la brume. Juste au moment où ils s'apprêtaient à entrer, le Système des Anciennes Étoiles trembla.
+Les deux conclurent un accord et chargèrent vers la faille qui flottait calmement après avoir dévoré toute la brume. Juste au moment où ils s'apprêtaient à entrer, le Système Stellaire Antique trembla.
 
 Une force puissante commença à se condenser de toutes parts. En un éclair, elle prit la forme d'une paume illusoire flottant au-dessus de la faille.
 

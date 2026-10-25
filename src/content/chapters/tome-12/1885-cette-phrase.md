@@ -66,7 +66,7 @@ Après un long moment, Wang Lin ouvrit les yeux et sortit du hall principal. Seu
 
 Il devait encore affronter la cruelle réalité.
 
-« Un changement radical a dû avoir lieu sur le Continent du Taureau Céleste durant ces derniers mois! Ce changement a provoqué une modification de leur récompense à mon égard… ou m'a forcé à partir… Mais ils m'ont laissé partir librement… »
+« Un changement radical a dû avoir lieu sur le Continent du Taureau Céleste durant ces derniers mois! Ce changement a conduit la Secte Gui Yi à modifier sa récompense à mon égard… ou plutôt, à me forcer à trahir le Continent du Taureau Céleste… Mais ils m'ont laissé partir librement… »
 
 « Quant à la Secte de la Grande Âme… » Les yeux de Wang Lin s'illuminèrent. Il sentait vaguement qu'il touchait du doigt une vérité, sans toutefois pouvoir la cerner. Il leva la main droite et ouvrit la paume. Une silhouette miniature de trois pouces apparut instantanément.
 
@@ -90,7 +90,7 @@ Wang Lin répéta la phrase plusieurs fois, puis son corps fut soudain secoué p
 
 « Même avec le niveau de culture de l'Ancêtre Taureau Vert, il a dû passer par cette périphrase. Il craignait même que je ne comprenne pas et a collaboré avec le maître de la Secte Gui Yi pour m'offrir une récompense injuste afin de me pousser hors du Continent du Taureau Céleste… »
 
-« Une fois parti, cela signifie que je ne pourrai plus rester sur le Continent du Taureau Céleste et que je devrai m'en éloigner au plus vite… L'Ancêtre Taureau Vert veut que je quitte ce continent le plus rapidement possible… » Wang Lin réfléchit en silence. Il sentait qu'un immense mystère pesait sur le Continent du Taureau Céleste, et que c'était là la cause du revirement soudain de la Secte de la Grande Âme et de la Secte Gui Yi.
+« Avoir trahi le Continent du Taureau Céleste signifie que je ne pourrai plus rester sur le Continent du Taureau Céleste et que je devrai m'en éloigner au plus vite… L'Ancêtre Taureau Vert veut que je quitte ce continent le plus rapidement possible… » Wang Lin réfléchit en silence. Il sentait qu'un immense mystère pesait sur le Continent du Taureau Céleste, et que c'était là la cause du revirement soudain de la Secte de la Grande Âme et de la Secte Gui Yi.
 
 De la même manière, Wang Lin soupçonnait que ce mystère était probablement lié au Continent du Démon Vert. Il avait toujours douté de la véritable raison pour laquelle les deux continents s'étaient lancés dans la guerre...
 

@@ -38,7 +38,7 @@ Il n'avait pas choisi le Maître du Vide car le danger était imminent et il dev
 
 L'expression de l'homme en noir changea radicalement lorsqu'il sentit une lumière l'envelopper. L'énergie de la lame approchait si près que Wang Lin pouvait ressentir l'oppressante acuité qui s'en dégageait.
 
-« Changez de position! » cria Wang Lin, tandis que la lumière autour du fourneau atteignait son paroxysme. Les yeux de l'homme en noir se remplirent de terreur et, au moment où il allait être transféré, il cessa de vouloir dissimuler son identité. La marque du dragon de feu apparut entre ses sourcils et jaillit directement, se transformant en un dragon de flammes rugissant.
+« Changez de position! » cria Wang Lin, tandis que la lumière autour du fourneau atteignait son paroxysme. Les yeux de l'homme en noir se remplirent de terreur et, au moment où il allait être transféré, il cessa de vouloir dissimuler son identité. La marque du dragon de flammes apparut entre ses sourcils et jaillit directement, se transformant en un dragon de flammes rugissant.
 
 Dès son apparition, le dragon poussa un cri et entoura l'homme en noir pour tenter de résister à la puissance du fourneau du dieu antique.
 
@@ -60,7 +60,7 @@ Une puissance divine de dieu antique inonda son corps et s'engouffra dans le fou
 
 « Transformez-vous, changez de position! » rugit Wang Lin, sa voix devenant rauque sous l'effort. Lorsqu'elle atteignit les oreilles des spectateurs, ils eurent l'impression que leurs esprits étaient déchirés.
 
-Alors qu'il poussait ce cri déchirant, le dragon de feu entourant l'homme en noir sembla incapable de supporter l'augmentation soudaine de puissance de la lumière. L'homme en noir recula précipitamment pour s'enfuir.
+Alors qu'il poussait ce cri déchirant, le dragon de flammes entourant l'homme en noir sembla incapable de supporter l'augmentation soudaine de puissance de la lumière. L'homme en noir recula précipitamment pour s'enfuir.
 
 Cependant, avant qu'il ne puisse aller bien loin, la lumière envahit son corps et il disparut. Au moment même où le bouclier azur semblait sur le point de céder face à l'énergie de la lame, Wang Lin disparut également.
 
@@ -68,7 +68,7 @@ Lorsque Wang Lin réapparut, il se trouvait à la place de l'homme en noir, tand
 
 À l'instant où l'homme en noir apparut, ses yeux furent saturés par l'énergie tranchante qui balaya son corps. Des bruits de craquement retentirent et il fut fendu en deux.
 
-Toutefois, alors que son corps volait en éclats, son âme originelle s'échappa grâce à l'aide du dragon de feu. Son âme était décolorée et ses yeux étaient pétris de terreur.
+Toutefois, alors que son corps volait en éclats, son âme originelle s'échappa à toute vitesse, entourée par un dragon de flammes. Son âme était décolorée et ses yeux étaient pétris de terreur.
 
 Mais le danger n'était pas écarté. L'énergie de la lame qui avait pulvérisé son corps fonça droit sur son âme originelle, sur le point de la transpercer.
 

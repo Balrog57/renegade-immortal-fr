@@ -44,7 +44,7 @@ Parallèlement, le sang doré condensé de son corps céleste n'avait pas été 
 
 Wang Lin choisirait plutôt de le raffiner en un trésor, un Trésor Céleste! Il intégrerait ensuite ce trésor à son corps pour profiter de sa puissance tout en évitant le problème de la force de rejet.
 
-Lorsque le fou lui avait imposé cette fortune, il n'avait eu d'autre choix que de l'absorber. S'il avait pu choisir, il n'aurait jamais tenté de fusionner les pouvoirs anciens et célestes avec son niveau de culture actuel. Même dans le monde du fou, personne n'avait jamais essayé une telle prouesse.
+Lorsque le fou lui avait imposé cette fortune, il n'avait eu d'autre choix que de l'absorber. S'il avait pu choisir, il n'aurait jamais tenté de fusionner les pouvoirs anciens et célestes avec son niveau de culture actuel. Même dans le monde du fou, personne, de tout temps, n'avait jamais réussi une telle prouesse.
 
 Tenter de le faire de force ne menait qu'à la mort!
 
@@ -86,7 +86,7 @@ Dans le Royaume Céleste du Tonnerre, un grondement sourd retentit. Le mystérie
 
 De nombreux cultivateurs puissants remarquèrent la rupture du sceau par Maître Âme Écarlate et convergèrent tous de toutes parts.
 
-Tout cela se produisit en un instant. Wang Lin était sur le point d'atteindre la brèche. Voyant Wang Lin s'apprêter à partir, les yeux du Souverain brillèrent d'une lueur mystérieuse. Il ne permettrait pas que son plan échoue, même si tout le Royaume Intérieur avait senti la rupture du sceau. Même si le Vieux Fantôme Zhan ou l'être mystérieux qui l'avait gravement blessé par un rugissement auparavant pouvaient le sentir instantanément, il n'allait pas laisser Wang Lin s'échapper!
+Tout cela se produisit en un instant. Wang Lin était sur le point d'atteindre la brèche. Voyant Wang Lin s'apprêter à partir, les yeux du Souverain brillèrent d'une lueur mystérieuse. Il ne permettrait pas que son plan échoue, même si tout le Royaume Intérieur avait senti la rupture du sceau. Même si le Vieux Fantôme Zhan ou l'être mystérieux au rugissement d'autrefois pouvaient le sentir instantanément, il n'allait pas laisser Wang Lin s'échapper!
 
 « Rêve Bleu! N'oubliez pas notre accord. Je vous aiderai à récupérer le corps de votre femme. » La voix du Souverain était calme. Simultanément, sa main droite desséchée pointa vers le ciel.
 

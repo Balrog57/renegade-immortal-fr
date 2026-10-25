@@ -46,7 +46,7 @@ Plus important encore, « Haut Céleste » n'était pas qu'un simple titre. Avan
 
 Le regard de Wang Lin demeura serein lorsqu'il demanda lentement: « Vous pouvez percevoir mon niveau de culture? »
 
-Le vieil homme hocha la tête en fixant la main droite de Wang Lin. L'excitation dans ses yeux s'intensifia lorsqu'il répondit: « Un Haut Céleste de rang 8. Ce humble serviteur peut reconnaître votre culture. »
+Le vieil homme hocha la tête en fixant la main droite de Wang Lin. L'excitation dans ses yeux s'intensifia lorsqu'il répondit: « Un Haut Céleste de rang 8. Cet humble serviteur peut reconnaître votre culture. »
 
 Wang Lin réfléchit silencieusement tout en observant le vieillard. L'autre se qualifiait de « humble serviteur » et ne cessait de fixer sa main droite. Wang Lin trouva cela étrange et, face à l'exaltation de son interlocuteur, une idée audacieuse germa dans son esprit.
 

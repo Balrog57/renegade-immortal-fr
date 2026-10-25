@@ -68,13 +68,13 @@ On pouvait le toucher, le sentir et le saisir!
 
 Lorsque Wang Lin toucha l'astre, son cœur trembla. Il percevait clairement une aura vacillante au sein du soleil, une force qu'il ne comprenait pas mais qui faisait frémir son âme.
 
-« Est-ce là le pouvoir des neuf soleils... » Wang Lin contempla le soleil écarlate dans sa main et médita un instant avant de fermer les yeux. Son Dao du Rêve s'activa dès l'instant où ses paupières se fermèrent.
+« Est-ce là la puissance du Grand Empyréen Jiuyang... » Wang Lin contempla le soleil écarlate dans sa main et médita un instant avant de fermer les yeux. Son Dao du Rêve s'activa dès l'instant où ses paupières se fermèrent.
 
 Le Dao du Rêve était un sort que Wang Lin avait créé lui-même, déjà d'une puissance remarquable. Avec le trésor de Xuan Luo, sa force se multiplia plusieurs fois, atteignant presque un stade où les rêves devenaient réalité!
 
 Une ondulation invisible se propagea depuis le corps de Wang Lin pour envelopper tout le monde. Lentement, chaque personne, y compris Li Qianmei, ferma les yeux et fut plongée dans un songe.
 
-Le temps s'écoula lentement. En un instant, la durée d'un bâton d'encens passa. Une marque floue apparut entre les sourcils de Wang Lin. La même marque clignota également sur le front de tous les autres présents.
+Le temps s'écoula lentement. En un instant, quinze minutes passèrent. Une marque floue apparut entre les sourcils de Wang Lin. La même marque clignota également sur le front de tous les autres présents.
 
 Ces marques semblaient entrer en résonance, comme liées par une étrange connexion. Ce lien permettrait à Wang Lin de les retrouver dans le futur.
 

@@ -86,7 +86,7 @@ Les yeux de Wang Lin s'illuminèrent. Il eut un rire froid et cessa de perdre so
 
 Une fois Wang Lin parti, le corps du géant trembla et poussa un rugissement.
 
-« Encore une demi-tige d'encens! Si cette personne avait continué à drainer mon sang jusqu'à ce qu'il n'en reste plus que moins d'un tiers, j'aurais certainement pu faire sortir la vigne ancestrale de mon corps. Une fois la vigne ancestrale sortie, j'aurais eu le moyen de libérer mon âme de cette enveloppe! »
+« Encore sept minutes, il ne me manquait que sept minutes! Si cette personne avait continué à drainer mon sang jusqu'à ce qu'il n'en reste plus que moins d'un tiers, j'aurais certainement pu faire sortir la vigne ancestrale de mon corps. Une fois la vigne ancestrale sortie, j'aurais eu le moyen de libérer mon âme de cette enveloppe! »
 
 Le rugissement de l'homme était empreint de frustration. Ses yeux clos s'ouvrirent soudainement, deux lueurs plus éclatantes que la foudre jaillissant de ses pupilles.
 

@@ -138,7 +138,7 @@ Il utilisa immédiatement la technique de Vol d'Énergie Spirituelle du premier 
 
 L'énergie spirituelle tourbillonna dans son noyau, se changeant en autant de petits ouragans en spirale qui parcoururent rapidement ses méridiens.
 
-En l'espace de deux bâtons d'encens, toute l'énergie contenue dans la pilule avait disparu.
+En l'espace d'une demi-heure, toute l'énergie contenue dans la pilule avait disparu.
 
 Sans la technique de Vol d'Énergie Spirituelle, il lui aurait fallu au moins des mois, voire des années de respiration pour digérer cette pilule, et il n'en aurait absorbé que 70 à 80 % au mieux, le reste étant dépensé en pure perte.
 

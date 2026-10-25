@@ -78,7 +78,7 @@ Des filaments de gaz noir se rassemblèrent dans l'air au-dessus de la place et,
 
 Une fois apparus, ils ne daignèrent même pas regarder le palais impérial. Ils se transformèrent en trois traînées de gaz noir et foncèrent vers l'avant.
 
-Alors que Wang Lin avançait, son regard se fit plus froid. La rune devant lui était devenue plus dense, et il se trouvait désormais devant les portes du palais impérial. Les innombrables soldats à l'extérieur affichaient des visages graves en fixant le groupe de Wang Lin.
+Alors que Wang Lin avançait, son regard se fit plus froid. La rune devant lui avait déjà atteint les abords des portes de la cité impériale, et il s'y trouvait désormais. Les innombrables soldats à l'extérieur affichaient des visages graves en fixant le groupe de Wang Lin.
 
 À cet instant précis, les trois filaments de gaz noir arrivèrent et chargèrent Wang Lin. Avant même qu'ils ne soient sur lui, une vague de pression surgit et un hurlement spectral déchira les cieux et la terre.
 

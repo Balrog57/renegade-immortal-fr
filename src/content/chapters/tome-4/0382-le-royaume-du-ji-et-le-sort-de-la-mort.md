@@ -22,13 +22,13 @@ Cependant, du point de vue de Wang Lin, bien que le pays Suzaku soit le dirigean
 
 « Je crains que Suzaku n'ait atteint sa fin... » Wang Lin leva la tête et regarda au loin, vers la direction où se trouvait le pays Suzaku.
 
-Deux jours plus tard, la compétition de la secte extérieure commença. Les dizaines de milliers de disciples étaient répartis entre plus d'une centaine d'arènes. Sur chaque arène, plusieurs combats se déroulaient par jour. Parmi ces disciples de la secte extérieure se trouvaient des cultivateurs marginaux et des membres de familles de cultivateurs. Tous n'avaient qu'un seul but: rejoindre la secte intérieure.
+Deux jours plus tard, la compétition de la secte extérieure commença. Plus de dix mille disciples étaient répartis entre plus d'une centaine d'arènes. Sur chaque arène, plusieurs combats se déroulaient par jour. Parmi ces disciples de la secte extérieure se trouvaient des cultivateurs marginaux et des membres de familles de cultivateurs. Tous n'avaient qu'un seul but: rejoindre la secte intérieure.
 
 Il n'y avait qu'une seule règle: gagner. Ils se souciaient peu de la vie ou de la mort des autres disciples. Si vous en aviez la capacité, vous pouviez tous les tuer sans que cela ne les dérange.
 
 Une rumeur circulait même selon laquelle plus l'on tuait, plus les chances d'intégrer la secte intérieure étaient grandes. Si quelqu'un éliminait tous ses adversaires, ses chances de réussite seraient incommensurables.
 
-Cette rumeur resurgissait à chaque début de compétition. Il y a longtemps, un démon s'était frayé un chemin à travers le tournoi en tuant tout sur son passage. Bien qu'il n'ait pas remporté la victoire finale, il finit par être accepté dans la secte intérieure. Cet événement extraordinaire avait fait se répandre la rumeur comme une traînée de poudre.
+Cette rumeur resurgissait à chaque début de compétition. Il y a longtemps, un tueur sanguinaire s'était frayé un chemin à travers le tournoi en tuant tout sur son passage. Bien qu'il n'ait pas remporté la victoire finale, il finit par être accepté dans la secte intérieure. Cet événement extraordinaire avait fait se répandre la rumeur comme une traînée de poudre.
 
 À chaque compétition, moins de la moitié des disciples de la secte extérieure survivaient à la fin des épreuves, sans une seule exception. Les survivants devaient verser encore plus de pierres spirituelles pour s'assurer de pouvoir participer à la prochaine édition, qui leur ouvrirait la voie vers la secte intérieure.
 

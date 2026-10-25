@@ -6,23 +6,23 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1024 - She, the Buried Celestial
 slug: elle-la-celeste-enterree
 ---
-« J'ai déjà attendu votre arrivée pendant très longtemps... J'ai sacrifié ma chair et mon sang aux anciens. Mon âme se muera en néant. Je deviendrai l'âme du démon ancien. Moi, le démon dispersé issu de la division de l'Ancien Démon Ta Jia, je dissipe mes pensées démoniaques pour emprunter la puissance de l'objet sacré du Clan du Tatouage afin d'ouvrir le Bassin Funéraire Céleste! »
+« J'ai déjà attendu votre arrivée pendant très longtemps... J'ai sacrifié ma chair et mon sang aux anciens. Mon âme se muera en néant. Je deviendrai l'âme du Diable Ancien. Moi, le diable dispersé issu de la division de l'Ancien Diable Ta Jia, je dissipe mes pensées démoniaques pour emprunter la puissance de l'objet sacré du Clan du Tatouage afin d'ouvrir le Bassin Funéraire Céleste! »
 
-Ce démon dispersé en armure afficha un sourire étrange tandis que sa voix résonnait. Puis, il leva le pied et l'abattit avec impitoyabilité!
+Ce diable dispersé en armure afficha un sourire étrange tandis que sa voix résonnait. Puis, il leva le pied et l'abattit avec impitoyabilité!
 
-Lorsque le démon dispersé frappa le sol, un fracas assourdissant retentit. La zone environnante avait déjà été réduite en ruines par les flammes. À cet instant précis, des fissures commencèrent à apparaître sur le sol.
+Lorsque le diable dispersé frappa le sol, un fracas assourdissant retentit. La zone environnante avait déjà été réduite en ruines par les flammes. À cet instant précis, des fissures commencèrent à apparaître sur le sol.
 
 De plus en plus de crevasses surgirent, finissant par se rejoindre. Après une série de craquements sinistres, la terre s'effondra!
 
-C'était comme si le coup de pied du démon dispersé avait brisé le monde. Lors de l'effondrement, une puissante force d'aspiration émana des profondeurs. Un autre monde se cachait inopinément sous la terre!
+C'était comme si le coup de pied du diable dispersé avait brisé le monde. Lors de l'effondrement, une puissante force d'aspiration émana des profondeurs. Un autre monde se cachait inopinément sous la terre!
 
 Il s'agissait d'un vortex colossal, assez vaste pour engloutir tout le terrain environnant. Des gémissements fantomatiques s'échappèrent du tourbillon, comme si l'on ouvrait les portes des enfers!
 
-« Votre arrivée avait déjà été prédite par le seigneur Ta Jia il y a d'innombrables années. Ce lieu d'enterrement des Célestes de l'Empereur Céleste Qing Lin a été délibérément préparé pour vous tous! Ce vieil homme vous attendra là-bas! » Le rire du démon dispersé résonna dans la brume noire et dense.
+« Votre arrivée avait déjà été prédite par le seigneur Ta Jia il y a d'innombrables années. Ce lieu d'enterrement des Célestes de l'Empereur Céleste Qing Lin a été délibérément préparé pour vous tous! Ce vieil homme vous attendra là-bas! » Le rire du diable dispersé résonna dans la brume noire et dense.
 
 Le sol s'était dérobé, et cette force d'aspiration agissait comme une gueule béante dévorant tout sur son passage!
 
-Le démon dispersé fut le premier à être aspiré par le vortex. Son rire s'estompa progressivement jusqu'à disparaître totalement.
+Le diable dispersé fut le premier à être aspiré par le vortex. Son rire s'estompa progressivement jusqu'à disparaître totalement.
 
 Presque tout le monde était pétrifié par la situation. Personne ne s'attendait à faire face à une telle crise sitôt le monde de la bouteille quitté!
 
@@ -82,7 +82,7 @@ Le calme du Maître du Vide s'était totalement évaporé. Après avoir identifi
 
 Au moment où la silhouette apparut, l'Ancien Sun luttait contre la force d'aspiration. Mais face à cette aura maléfique, même avec son niveau de culture, il fut impuissant. Son énergie originelle se figea et il fut aspiré par le vortex.
 
-Ses yeux étaient empreints de terreur et, au moment où il allait être englouti, le Blaireau Marqué d'Étoiles sortit la tête de ses vêtements. Le regard froid, elle bondit hors de lui en s'appuyant sur son corps. Cette zibeline était extraordinaire, capable de fouler l'air pour s'appuyer sur la force ambiante. Elle lutta pour remonter et fixa Wang Lin de ses yeux brillants d'un éclat vif.
+Ses yeux étaient empreints de terreur et, au moment où il allait être englouti, la Zibeline Marquée d'Étoiles sortit la tête de ses vêtements. Le regard froid, elle bondit hors de lui en s'appuyant sur son corps. Cette zibeline était extraordinaire, capable de fouler l'air pour s'appuyer sur la force ambiante. Elle lutta pour remonter et fixa Wang Lin de ses yeux brillants d'un éclat vif.
 
 À cet instant, Bei Luo observa la silhouette qui émergeait lentement; son œil droit brilla et il murmura: « Vieux ami... Je pensais qu'elle avait simplement disparu pour se cacher quelque part et guérir. Je n'aurais jamais cru que Qing Lin l'avait scellée ici... Qing Lin... Il était extrêmement puissant, si puissant! S'il n'avait pas été gravement blessé lors de l'effondrement du Royaume Céleste, Ta Jia et moi n'aurions jamais osé convoiter sa puissance! »
 

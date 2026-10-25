@@ -10,11 +10,11 @@ Yun Quezi fut surpris et demanda: « Est-ce là ton ancien domaine de la luxure?
 
 Le troisième ancêtre hocha la tête et répondit: « C'est mon domaine de la luxure. Si elle réussit sa possession, elle s'emparera certainement d'une partie de ma puissance. Comment pourrais-je la laisser faire? »
 
-« Cette chose s'est séparée de moi et a été trouvée par un petit cultivateur. Je crois que ce dernier se trouve actuellement à l'intérieur du Tombeau Suzaku. Bien que je ne puisse pas détruire le domaine, je peux y apporter quelques modifications. En temps normal, cela n'aurait guère d'importance, mais lors d'une possession, cela fera échouer sa tentative! »
+« Cette chose s'est séparée de moi et a été trouvée par un petit cultivateur. Je crois que ce dernier se trouve actuellement à l'intérieur du Tombeau de Suzaku. Bien que je ne puisse pas détruire le domaine, je peux y apporter quelques modifications. En temps normal, cela n'aurait guère d'importance, mais lors d'une possession, cela fera échouer sa tentative! »
 
 Après avoir fini de parler, le troisième ancêtre pointa son front. La plante sur son front commença à bouger de manière mystérieuse. Des runes s'échappèrent de son front avant de disparaître dans les airs.
 
-Dans le Tombeau Suzaku, Wang Lin monta sur l'autel, s'accroupit et posa la main dessus pour l'activer. Il sentit l'autel entamer sa téléportation et il était sur le point de disparaître.
+Dans le Tombeau de Suzaku, Wang Lin monta sur l'autel, s'accroupit et posa la main dessus pour l'activer. Il sentit l'autel entamer sa téléportation et il était sur le point de disparaître.
 
 Mais à ce moment précis, une immense quantité de brouillard rose jaillit soudainement des sept orifices de Liu Mei, suivie par le cri de Mei Ji.
 
@@ -56,7 +56,7 @@ La propagation fut bien plus rapide que les mouvements de Wang Lin. En un clin d
 
 Wang Lin n'était pas loin de Liu Mei; ils se trouvaient au centre du phénomène. En temps normal, avec sa force mentale, il aurait pu résister s'il avait contenu sa respiration et activé son propre domaine.
 
-Mais lors de sa retraite précédente, une partie du brouillard était entrée dans son corps. Normalement, il lui aurait suffi de cultiver pendant le temps d'un bâton d'encens pour l'expulser totalement, mais il n'en avait pas le luxe.
+Mais lors de sa retraite précédente, une partie du brouillard était entrée dans son corps. Normalement, il lui aurait suffi de cultiver pendant quinze minutes pour l'expulser totalement, mais il n'en avait pas le temps.
 
 Alors que le brouillard l'encerclait, la brume emprisonnée en lui brisa ses sceaux et se propagea dans tout son organisme. Entre la menace intérieure et extérieure, Wang Lin perdit le contrôle pour la première fois.
 
@@ -86,7 +86,7 @@ Elle se leva, observa les taches rouges sur l'autel et commença à réfléchir.
 
 Les sourcils de Liu Mei se froncèrent intensément alors qu'elle regardait au loin, avant de laisser échapper un soupir. Elle éprouvait des sentiments complexes et, à cet instant, se sentit soudainement perdue. Tout ce qui venait de se produire dépassait toutes ses attentes.
 
-Le corps de Wang Lin apparut dans une terre désolée de la section intérieure du Tombeau Suzaku. Une fois apparu, il leva les yeux vers le ciel avec une expression tourmentée.
+Le corps de Wang Lin apparut dans une terre désolée de la section intérieure du Tombeau de Suzaku. Une fois apparu, il leva les yeux vers le ciel avec une expression tourmentée.
 
 Alors qu'il était entouré par la brume rose, il avait eu l'impression de vivre un rêve. Et lorsque celle-ci s'était dissipée, il avait vu une femme sous lui. À cet instant, son cœur avait été troublé.
 
@@ -96,7 +96,7 @@ L'Âme Naissante de Li Muwan se rétablissait lentement à l'intérieur de la pe
 
 Wang Lin réfléchit un instant avant de disparaître pour s'envoler rapidement au loin.
 
-La section intérieure du Tombeau Suzaku différait également de ce que Situ Nan lui avait décrit. Ce dernier lui avait dit que l'intérieur n'était pas vaste et qu'une montagne trônait en son centre. Le premier Suzaku avait laissé le Tao du Sceau Suzaku dans cette montagne, qui était aussi le lieu où reposait son cadavre. Chaque Suzaku cultivait ici durant plusieurs mois pour obtenir l'héritage du sceau.
+La section intérieure du Tombeau de Suzaku différait également de ce que Situ Nan lui avait décrit. Ce dernier lui avait dit que l'intérieur n'était pas vaste et qu'une montagne trônait en son centre. Le premier Suzaku avait laissé le Tao du Sceau Suzaku dans cette montagne, qui était aussi le lieu où reposait son cadavre. Chaque Suzaku cultivait ici durant plusieurs mois pour obtenir l'héritage du sceau.
 
 Le Sens Divin de Wang Lin se déploya pour balayer la zone. L'endroit était trop vaste pour qu'il puisse le couvrir entièrement, mais il détecta de multiples présences puissantes. Dès qu'elles remarquèrent sa présence, ces entités libérèrent leur aura, comme pour le provoquer.
 

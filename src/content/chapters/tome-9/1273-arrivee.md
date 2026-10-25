@@ -30,7 +30,7 @@ Si elle l'avait su, comment aurait-elle choisi...
 
 Le temps s'écoulait lentement, et Wang Lin était toujours assis sur le continent sauvage. Son âme originelle s'était transformée en feu sous les deux fragments de l'épée brisée, forçant l'extraction des taches de sang qui les maculaient.
 
-Une heure, deux heures, trois heures... jusqu'à ce que dix heures ne se soient écoulées.
+Deux heures, quatre heures, six heures... jusqu'à ce que vingt heures ne se soient écoulées.
 
 Après avoir consommé tous les cristaux d'origine, il avait finalement réussi à extraire 30 % du sang de l'épée de fer. Ce sang sombre se mua en une pilule de la taille d'un haricot qui dégageait une aura étrange et flottait dans l'âme originelle de Wang Lin.
 
@@ -40,7 +40,7 @@ Il rangea ensuite l'épée de fer et la femme vêtue d'argent. Il se rassit pour
 
 Un silence de mort régnait.
 
-Les deux dernières heures passèrent lentement. Au dernier moment, Wang Lin ouvrit les yeux et regarda calmement le ciel.
+Les quatre dernières heures passèrent lentement, à la fois longues et rapides. Au dernier moment, Wang Lin ouvrit les yeux et regarda calmement le ciel.
 
 À cet instant précis, le brouillard stellaire commença à bouillonner et une pression inimaginable émergea lentement de la brume.
 

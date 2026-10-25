@@ -62,7 +62,7 @@ Finalement, un rugissement tonitruant retentit et, une fois le son dissipé, il 
 
 Une immense quantité de lumière argentée apparut soudainement dans le ciel clair du nord de la planète. Le bleu limpide du ciel commença à changer tandis que des ondulations silencieuses se propageaient.
 
-Après quelques respirations, un éclat argenté jaillit au centre des ondulations. La luminosité était telle qu'elle rivalisait avec celle du soleil; on aurait dit qu'il y avait deux soleils, l'un doré et l'autre argenté.
+Après trois respirations, un éclat argenté éblouissant jaillit soudain au centre des ondulations. La luminosité était telle qu'elle rivalisait avec celle du soleil; on aurait dit qu'il y avait deux soleils, l'un doré et l'autre argenté.
 
 La silhouette de Wang Lin émergea de la lumière argentée.
 

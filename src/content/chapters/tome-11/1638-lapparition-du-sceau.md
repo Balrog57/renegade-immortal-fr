@@ -34,7 +34,7 @@ Les environs étaient plongés dans un silence absolu, comme si tel était l'ét
 
 Après une courte réflexion, la voix d'Oiseau Vermillon résonna: « Il ne faisait pas partie de mon plan initial. Je suis surpris qu'il soit le premier à arriver ici... »
 
-« Cet enfant n'est pas ordinaire; il est le premier cultivateur défiant les cieux à atteindre la troisième étape. Malheureusement, il est un cultivateur du royaume inférieur. S'il venait du Continent Astral Immortel, il serait déjà célèbre! Cependant, il ne devrait pas tenter de fouiller l'âme de ce Soldat Céleste. Le sceau du Souverain Céleste est une chose que même nous ne pourrions briser, même en joignant nos forces. Je crains qu'il ne meure en moins de quinze minutes... Quel dommage, c'est regrettable... » Une quatrième voix, empreinte de regret, émana de la dernière statue.
+« Cet enfant n'est pas ordinaire; il est le premier cultivateur défiant les cieux à atteindre la troisième étape. Malheureusement, il est un cultivateur du royaume inférieur. S'il venait du Continent Astral Immortel, il serait déjà célèbre! Cependant, il ne devrait pas tenter de fouiller l'âme de ce Soldat Céleste. Le sceau du Souverain Céleste est une chose que même nous ne pourrions briser, même en joignant nos forces. Je crains qu'il ne meure en moins de sept minutes... Quel dommage, c'est regrettable... » Une quatrième voix, empreinte de regret, émana de la dernière statue.
 
 Leurs voix se dissipèrent peu à peu et le silence revint. Même Oiseau Vermillon poussa un soupir intérieur. Il connaissait Wang Lin, mais il ne pensait pas que celui-ci pourrait briser le sceau du Souverain Céleste.
 
@@ -80,7 +80,7 @@ L'empreinte palmaire convergea instantanément vers l'homme assis en tailleur po
 
 Les yeux de Wang Lin se rétrécirent. Dès que l'empreinte se brisa, il pointa son doigt vers l'avant. Un souffle d'air jaillit de son doigt vers l'homme d'âge moyen. Cette fois encore, Wang Lin observa attentivement et vit le souffle disparaître silencieusement à trois pouces de sa cible.
 
-Wang Lin fixa l'homme d'âge moyen et fit un pas de plus. Il se tint devant lui et joignit ses deux doigts pour former une épée. Ses étoiles de Dieu Antique tournèrent, injectant une quantité massive de puissance de Dieu Antique dans ses doigts. À cet instant, ses doigts contenaient assez de force pour briser la terre ou même anéantir une planète entière.
+Wang Lin fixa l'homme d'âge moyen et fit un pas de plus. Il se tint devant lui et joignit ses deux doigts pour former une épée. Ses étoiles de Dieu Ancien tournèrent, injectant une quantité massive de puissance de Dieu Ancien dans ses doigts. À cet instant, ses doigts contenaient assez de force pour briser la terre ou même anéantir une planète entière.
 
 Ses doigts émirent un grondement tonitruant en se refermant sur l'homme d'âge moyen. En un éclair, ils ne furent plus qu'à trois pouces de lui.
 
@@ -92,6 +92,6 @@ S'il avait tenté de forcer le passage, sa main droite aurait disparu sans laiss
 
 Il recula de quelques pas et observa calmement l'homme d'âge moyen, puis ses propres doigts qui, bien que sans blessure apparente, avaient perdu une bonne partie.
 
-« Quelle puissance étrange... » murmura Wang Lin alors que sa puissance de Dieu Antique remplissait son corps et pénétrait ses doigts. La chair autour de ses phalanges bougea lentement pour régénérer la section manquante.
+« Quelle puissance étrange... » murmura Wang Lin alors que sa puissance de Dieu Ancien remplissait son corps et pénétrait ses doigts. La chair autour de ses phalanges bougea lentement pour régénérer la section manquante.
 
 Après réflexion, Wang Lin hésita. Avec le sceau imposé par cet homme, obtenir les souvenirs du vieil homme serait difficile, mais pas impossible.

@@ -44,7 +44,7 @@ Il en allait de même pour le Vieux Fantôme Zhan. L'ombre qui l'entourait fixai
 
 Les deux n'accordèrent aucune importance aux paroles de Wang Lin, mais les autres ressentirent un frisson dans leur cœur. En particulier les quatre généraux et les concubines qui, tout en reculant, réfléchissaient silencieusement.
 
-Le temps passa lentement. Une demi-heure après l'entrée de Wang Lin, la porte s'ouvrit complètement. À cet instant précis, la tempête se déchaîna avec une violence folle, repoussant chacun à des dizaines de milliers de pieds. Pourtant, soudainement, la tempête disparut.
+Le temps passa lentement. Une heure après l'entrée de Wang Lin, la porte s'ouvrit complètement. À cet instant précis, la tempête se déchaîna avec une violence folle, repoussant chacun à des dizaines de milliers de pieds. Pourtant, soudainement, la tempête disparut.
 
 C'était comme si elle n'avait jamais existé. La force qui bloquait tout le monde s'était évanouie, révélant clairement la porte devant eux!
 
@@ -92,7 +92,7 @@ Wang Lin réfléchit silencieusement tout en survolant les décombres. Toutes le
 
 « Bien que les restrictions se soient effondrées, certains fragments subsistent encore. Ils peuvent servir à former de nouvelles barrières... » Wang Lin fixa le sol. Ses mains formèrent des sceaux sans hésiter et des lignes de sang apparurent dans son regard.
 
-Tandis qu'il exécutait ses sceaux, des restrictions invisibles se déposèrent sur les ruines en contrebas. Une immense quantité de lumière fantomatique jaillit des décombres. Après le temps d'écoulement d'un bâton d'encens, cette lumière brilla intensément et enveloppa Wang Lin, faisant apparaître davantage de lignes de sang dans ses yeux. Il les ferma un instant, puis lorsqu'il les rouvrit, ces lignes de sang se matérialisèrent devant lui.
+Tandis qu'il exécutait ses sceaux, des restrictions invisibles se déposèrent sur les ruines en contrebas. Une immense quantité de lumière fantomatique jaillit des décombres. Au bout de quinze minutes, cette lumière brilla intensément et enveloppa Wang Lin, faisant apparaître davantage de lignes de sang dans ses yeux. Il les ferma un instant, puis lorsqu'il les rouvrit, ces lignes de sang se matérialisèrent devant lui.
 
 Ces veines écarlates commencèrent immédiatement à s'étendre au-delà de lui pour recouvrir entièrement les ruines. De loin, le spectacle était saisissant! Les lignes de sang, aussi épaisses qu'un bras, offraient une vision spectaculaire.
 

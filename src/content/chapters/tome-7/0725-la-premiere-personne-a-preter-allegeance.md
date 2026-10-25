@@ -86,7 +86,7 @@ En repensant au regard de tout à l'heure, Shengong Hu n'en doutait pas: ce Seni
 
 Son esprit tremblant et son choc s'étaient transformés en fanatisme et en révérence. Après une profonde inspiration, il dit: « Senior, Junior est Shengong Hu, un membre de la famille Shengong dans le domaine sud. Je suis un messager de deuxième niveau du Temple Céleste du Tonnerre et un cultivateur au stade Yang Corporel. Je prie le Senior de me permettre de lui prêter allégeance! »
 
-Ce n'était pas qu'il ne parvenait pas à percevoir le niveau de culture de Wang Lin, mais ce regard terrifiant l'avait fait tout oublier. Il croyait même qu'il s'agissait d'un véritable expert surpuissant! Si un cultivateur puissant cachait son niveau, il ferait croire aux autres qu'il était un cultivateur Ascendant.
+Ce n'était pas qu'il ne parvenait pas à percevoir le niveau de culture de Wang Lin, mais ce regard terrifiant l'avait fait tout oublier. Il croyait même qu'il s'agissait d'un véritable expert surpuissant! Un véritable expert, même lorsqu'il dissimule son niveau de culture, prend l'air de quelqu'un dont on ne peut déceler la dissimulation, exactement comme un véritable cultivateur Ascendant.
 
 « Prêter allégeance? » Wang Lin fut surpris et fixa Shengong Hu.
 

@@ -14,7 +14,7 @@ En y réfléchissant, les sourcils de Wang Lin se froncèrent. Le dernier fragme
 
 Il localisa immédiatement Lin Tao et Yang Xiong grâce à son Sens Divin, puis s'éloigna silencieusement avant de voler vers Yang Xiong.
 
-Yang Xiong était l'un des disciples chargés de patrouiller la zone. Il n'osait aucunement se relâcher, gardant une vigilance constante, mais ses yeux ne pouvaient s'empêcher de se tourner vers le sommet de la montagne. Lorsque cette Âme Naissante brisée passa devant lui, il eut la sensation que quelque chose de majeur allait se produire.
+Yang Xiong était l'un des disciples du Sanctuaire du Dieu de la Guerre restés sur le pic pour patrouiller la zone. Il n'osait aucunement se relâcher, gardant une vigilance constante, mais ses yeux ne pouvaient s'empêcher de se tourner vers le sommet de la montagne. Lorsque cette Âme Naissante brisée passa devant lui, il eut la sensation que quelque chose de majeur allait se produire.
 
 Yang Xiong poussa un soupir en réprimant le poids qui pesait sur son cœur. Alors qu'il s'apprêtait à patrouiller dans la zone nord-ouest, il ressentit soudainement une présence et vola vers la forêt dense du nord. Une fois entré dans les bois, il scruta les environs et dit respectueusement: « Yang Xiong salue le Maître. »
 
@@ -34,7 +34,7 @@ Wang Lin fronça les sourcils, mais hocha la tête.
 
 Sans un mot, Yang Xiong sortit un morceau de jade et le plaça sur son front et murmura on ne sait quoi. Le jade brilla à plusieurs reprises, puis Yang Xiong le lança et il se changea en une lueur grise qui s'éteignit aussitôt.
 
-Une heure plus tard, le sifflement d'une épée volante fendant l'air retentit au loin et une silhouette féminine, aux lèvres rouges, aux dents blanches et aux sourcils délicatement fardés, se posa. Cette personne n'était autre que Zhou Zihong.
+Quinze minutes plus tard, le sifflement d'une épée volante fendant l'air retentit au loin et une silhouette féminine, aux lèvres rouges, aux dents blanches et aux sourcils délicatement fardés, se posa. Cette personne n'était autre que Zhou Zihong.
 
 Elle rangea son épée volante et, au moment où elle allait parler, elle aperçut Wang Lin aux côtés de Yang Xiong; son visage pâlit instantanément.
 
@@ -56,7 +56,7 @@ Le regard de Zhou Zihong devint glacial alors qu'elle répondait: « L'une est a
 
 « D'accord! » Wang Lin accepta sans hésiter.
 
-« Tu devrais les connaître. L'une est Xu Si, la sœur junior de Ma Liang, son amie d'enfance. L'autre est Zhou An, qui a une liaison avec elle. Tu n'as pas besoin de les tuer maintenant, tu pourras le faire lors de ton départ. Quant à la carte, je te l'apporterai d'ici une heure. » Après avoir parlé, Zhou Zihong lança un regard significatif à Wang Lin avant de s'élancer sur son épée volante.
+« Tu devrais les connaître. L'une est Xu Si, la sœur junior de Ma Liang, son amie d'enfance. L'autre est Zhou An, qui a une liaison avec elle. Tu n'as pas besoin de les tuer maintenant, tu pourras le faire lors de ton départ. Quant à la carte, je te l'apporterai d'ici deux heures. » Après avoir parlé, Zhou Zihong lança un regard significatif à Wang Lin avant de s'élancer sur son épée volante.
 
 « Ma Liang, c'est la dernière fois que je t'aide... » murmura Zhou Zihong avec mélancolie en s'éloignant lentement.
 
@@ -64,7 +64,7 @@ Wang Lin fixa longuement le dos de Zhou Zihong avant de déployer son Sens Divin
 
 Une fois la position de Xu Si trouvée, Wang Lin fit un pas en avant et s'enfonça sous terre.
 
-Une demi-heure plus tard, il refit surface. Il s'assit en tailleur, attendant le retour de Zhou Zihong.
+Une heure plus tard, il refit surface. Il s'assit en tailleur, attendant le retour de Zhou Zihong.
 
 Une expression étrange passa sur son visage. Il avait trouvé Xu Si dans un coin isolé de l'arrière-montagne, en plein ébats avec Zhou An; elle gémissait sans retenue et leurs deux corps blancs s'entrechoquaient dans des claquements répétés.
 
@@ -126,7 +126,7 @@ Sans attendre la fin de ses explications, les yeux de Wang Lin s'illuminèrent: 
 
 Le regard de Wang Lin terrifia Li Muwan. Elle était une personne très intelligente, sans quoi elle n'aurait pas osé prononcer ces trois mots dans l'espoir d'être sauvée.
 
-Après tout, ils étaient tous deux originaires de Huo Fen; tomber entre ses mains était préférable à celle de ce cultivateur de la Formation du Noyau. Pensant cela, elle ajouta immédiatement: « Je n'ai pas de Pilule du Ciel Lointain achevée, seulement un produit semi-complet... » Ses yeux s'embuèrent alors qu'elle percevait le regard peu amical de Wang Lin et expliqua précipitamment: « Aucune des pilules de la Secte Luo He n'est complète; elles sont toutes dans un état semi-fini. Cependant, il ne faut que trente minutes de raffinage pour la rendre parfaite. C'est parce qu'une fois la Pilule du Ciel Lointain achevée, elle est impossible à stocker. Elle doit être consommée dans l'année, sinon son efficacité diminue drastiquement. »
+Après tout, ils étaient tous deux originaires de Huo Fen; tomber entre ses mains était préférable à celle de ce cultivateur de la Formation du Noyau. Pensant cela, elle ajouta immédiatement: « Je n'ai pas de Pilule du Ciel Lointain achevée, seulement un produit semi-complet... » Ses yeux s'embuèrent alors qu'elle percevait le regard peu amical de Wang Lin et expliqua précipitamment: « Aucune des pilules de la Secte Luo He n'est complète; elles sont toutes dans un état semi-fini. Cependant, il ne faut qu'une heure de raffinage pour la rendre parfaite. C'est parce qu'une fois la Pilule du Ciel Lointain achevée, elle est impossible à stocker. Elle doit être consommée dans l'année, sinon son efficacité diminue drastiquement. »
 
 L'esprit de Wang Lin tourna à toute vitesse. Il avait initialement prévu de faire un détour pour atteindre la Mer des Démons, mais désormais, tenant la main délicate de Li Muwan, il chargea vers la frontière de Huo Fen.
 
@@ -142,7 +142,7 @@ Le jeune homme continuait sa poursuite. Voyant sa proie s'éloigner davantage, i
 
 La distance entre les deux parties se réduisait, et le visage de Li Muwan devint encore plus livide. Elle n'osait imaginer ce qui arriverait si le jeune homme la rattrapait. Elle en voulait à Wang Lin de ne pas s'être dirigé vers la montagne de l'Union de Huo Fen, mais elle garda sa colère pour elle, craignant qu'il ne l'abandonne.
 
-L'expression de Wang Lin restait calme tandis qu'il calculait précisément le temps. Environ trois heures s'étaient écoulées depuis la nouvelle de la rupture de la formation. En retranchant le temps que l'Âme Naissante avait mis à se téléporter à tout prix pour porter la nouvelle, et en y ajoutant le délai écoulé depuis que les bêtes de feu avaient brisé la formation, celles-ci devaient déjà avoir atteint la frontière de Xuan Wu.
+L'expression de Wang Lin restait calme tandis qu'il calculait précisément le temps. Environ six heures s'étaient écoulées depuis la nouvelle de la rupture de la formation. En retranchant le temps que l'Âme Naissante avait mis à se téléporter à tout prix pour porter la nouvelle, et en y ajoutant le délai écoulé depuis que les bêtes de feu avaient brisé la formation, celles-ci devaient déjà avoir atteint la frontière de Xuan Wu.
 
 Alors qu'il calculait, son Sens Divin détecta un nuage rouge approchant au loin.
 

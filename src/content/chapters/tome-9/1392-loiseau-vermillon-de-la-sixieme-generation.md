@@ -60,7 +60,7 @@ Un feu entourait Liu Jinbiao, révélant l'apparence d'un Oiseau Vermillon. Son 
 
 La culture de Liu Jinbiao était erratique; tantôt extrêmement puissante, tantôt ordinaire, mais c'était cette instabilité qui le rendait mystérieux. Bien que son regard fût indifférent, une profonde sensation d'ancienneté émanait de ses yeux.
 
-Ce sentiment de sagesse millénaire n'était pas l'apanage d'un cultivateur ordinaire. C'était une lassitude qui n'apparaissait qu'après avoir vécu des dizaines de milliers d'années et avoir tout vu du monde!
+Ce sentiment de sagesse millénaire n'était pas l'apanage d'un cultivateur ordinaire. C'était une lassitude qui n'apparaissait qu'après avoir vécu d'innombrables dizaines de milliers d'années et avoir tout vu de la vie!
 
 C'était un épuisement de la vie, né d'une existence trop longue.
 

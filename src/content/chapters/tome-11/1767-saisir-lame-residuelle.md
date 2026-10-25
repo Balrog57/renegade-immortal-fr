@@ -104,7 +104,7 @@ Par conséquent, il était une existence encore plus noble que Ye Mo; Ye Mo ne p
 
 Au moment où Ye Mo entra, Wang Lin ouvrit les yeux, mais son expression resta sereine. Il avait remarqué ce processus lors de l'intégration précédente et savait ce qui se produisait, tout en sachant que Ye Mo ne pourrait pas le posséder.
 
-L'âme originelle de Ye Mo pénétra ainsi dans le corps de Wang Lin. Après trois heures, Wang Lin expira profondément. Son corps rétrécit progressivement sous une lumière fantomatique jusqu'à retrouver la taille d'un homme ordinaire.
+L'âme originelle de Ye Mo pénétra ainsi dans le corps de Wang Lin. Après six heures, Wang Lin expira profondément. Son corps rétrécit progressivement sous une lumière fantomatique jusqu'à retrouver la taille d'un homme ordinaire.
 
 Ses yeux étaient aussi profonds que les étoiles. L'âme originelle de Ye Mo s'était dissipée à l'intérieur de lui. Ye Mo n'avait pu résister au sang d'âme de l'Ancêtre Ancien et était devenu, lentement, une partie de l'héritage de l'Ancien Dao de Wang Lin.
 

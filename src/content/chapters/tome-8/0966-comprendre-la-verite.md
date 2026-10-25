@@ -34,7 +34,7 @@ Les réactions de Wang Lin firent se regarder les trois frères Chen. Ils ne pou
 
 Une fois que les paroles de Maître Yi Xing eurent dissipé le brouillard dans son esprit, les pensées de Wang Lin devinrent incroyablement claires. Il repensa au comportement de Bai Wei et sembla saisir la situation.
 
-« Il y avait un arbre blanc planté dans la montagne arrière; on disait qu'il ne fleurirait jamais, et pourtant, il a fleuri. Cependant, la couleur de la fleur n'était pas blanche, mais noire. Elle n'a duré que trois respirations avant de se dissiper en brume... Si l'on pouvait sauver cette fleur, ce serait merveilleux. »
+« Il y avait un Bois Yang Blanc planté je ne sais par qui dans la montagne arrière; on disait qu'il ne fleurirait jamais, et pourtant, il a fleuri. Cependant, la couleur de la fleur n'était pas blanche, mais noire. Elle n'a duré que trois respirations avant de se dissiper en brume... Si l'on pouvait sauver cette fleur, ce serait merveilleux. »
 
 « Il y avait un sens caché derrière ses paroles. Cet arbre blanc faisait référence à Bai Wei lui-même! Le fait que l'arbre blanc ne puisse pas fleurir signifie qu'il était initialement un homme, mais qu'il est devenu une femme... Puis il a dit que l'arbre blanc avait inopinément fleuri, mais que sa fleur, au lieu d'être blanche, était noire. C'est encore plus explicite: il me disait que pour une raison quelconque, le noir et le blanc s'étaient inversés et qu'il était passé du masculin au féminin! »
 

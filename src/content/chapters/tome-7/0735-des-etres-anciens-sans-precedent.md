@@ -14,7 +14,7 @@ Avec le temps, les gens cessèrent de s'interroger sur l'origine de ce phénomè
 
 À cet instant précis, le tonnerre céleste arriva au moment même où Wang Lin rangeait son fourneau. Bien que l'éclair ne fût pas encore tombé, chargé d'une énergie céleste dense, son grondement se faisait déjà entendre.
 
-Les yeux de Wang Lin laissèrent poindre une lueur étrange et son âme originelle s'activa avec frénésie. Des décharges de tonnerre jaillirent de son corps, se propageant jusqu'au sol alentour. À cet instant, il semblait être le celui qui contrôlait le tonnerre et la foudre.
+Les yeux de Wang Lin laissèrent poindre une lueur étrange et son âme originelle s'activa avec frénésie. Des décharges de tonnerre jaillirent de son corps, se propageant jusqu'au sol alentour. À cet instant, il semblait être celui qui contrôlait le tonnerre et la foudre.
 
 Au moment où le tonnerre descendit, le corps de Wang Lin jaillit vers l'avant tel un météore. Il ouvrit la bouche et dévora l'éclair sans la moindre hésitation!
 

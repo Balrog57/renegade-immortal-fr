@@ -66,7 +66,7 @@ Le combat intérieur de Wang Lin s'intensifia et sa respiration devint anxieuse.
 
 L'Oiseau Vermillon de la première génération réfléchit, et un instant plus tard, sa voix résonna dans le monde:
 
-« Vous emmener tous les trois est ma limite... Soit, le jour du départ viendra, ce vieil homme pourra t'accorder une place supplémentaire! S'il y en a plus, je crains que nous ne puissions pas rentrer. »
+« Vous emmener tous les trois est ma limite... Soit... si le jour du départ vient réellement, ce vieil homme pourra tout au plus t'accorder une place supplémentaire! S'il y en a davantage, je crains que nous ne puissions pas rentrer. »
 
 « Une place... » Li Muwan apparut dans l'esprit de Wang Lin... Puis Situ Nan, Qing Shui et Zhou Ru... Li Qianmei apparut également... Toutes les figures rencontrées au cours de ses deux mille ans de culture, celles qui rendaient cette décision si déchirante, se manifestèrent à lui.
 

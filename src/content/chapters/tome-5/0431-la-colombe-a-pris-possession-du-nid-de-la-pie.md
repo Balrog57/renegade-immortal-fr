@@ -102,7 +102,7 @@ Le chaman à six feuilles sauta dans l'entrée et les cultivateurs le suivirent 
 
 Cette strate était plus lumineuse que les précédentes. Le chaman à six feuilles reprit sa forme de visage géant, enveloppa tous les cultivateurs dans une brume noire et s'envola au loin. Wang Lin fut lui aussi emporté avec eux. Grâce à son niveau de culture, le chaman ne remarqua rien.
 
-Le chaman se déplaçait très vite; après le temps d'écoulement d'un bâton d'encens, ils arrivèrent au centre de la quatrième couche. Un Arbre de la Réincarnation, d'environ un mètre d'épaisseur et dix mètres de haut, s'y trouvait.
+Le chaman se déplaçait très vite; quinze minutes plus tard, ils arrivèrent au centre de la quatrième couche. Un Arbre de la Réincarnation, d'environ un mètre d'épaisseur et dix mètres de haut, s'y trouvait.
 
 Cependant, cet arbre était étrange: au lieu de branches, une lumière ovale flottait au sommet. À l'intérieur de cette lumière était assis un vieil homme aux yeux clos, totalement nu, présentant un trou de la taille d'un poing dans la poitrine. Son corps était couvert de tatouages et une plante à huit feuilles scintillait lentement sur son front.
 

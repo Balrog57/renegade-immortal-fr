@@ -96,7 +96,7 @@ Teng Xiu Xiu sursauta, puis éclata de nouveau en sanglots. Durant tout le temps
 
 Cependant, son sourire s'éteignit instantanément: la main de Wang Zhuo était posée sur son Tian Ling. Dans un jaillissement d'énergie spirituelle, il mit fin à la vie de son épouse.
 
-Teng Xiu Xiu mourut sans douleur, dans les bras de son amant...
+Teng Xiu Xiu mourut sans douleur, dans les bras de celui qu'elle aimait...
 
 Serrant le cadavre de sa femme, les yeux de Wang Zhuo étaient noyés de chagrin. Il regarda dans la direction où Wang Lin avait disparu et déclara: « Wang Lin, je ne deviendrai pas un traître à la famille Wang, et je ne permettrai pas qu'une seule trace du lignage des Teng subsiste! »
 

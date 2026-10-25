@@ -16,7 +16,7 @@ Un cultivateur aux vêtements déchirés et à la barbe broussailleuse était ac
 
 « Étrange, cet homme est-il mort? Il y a quelques jours, avant que je ne parte, il n'était pas aussi grand, et après seulement quelques jours d'absence, il a bien grandi. À en juger, il faudra encore quelques années pour qu'il soit complètement formé... Eh bien, cela semble avoir un rapport avec mon sang... » Le cultivateur aux yeux vitreux se toucha le menton tout en tournant autour du cadavre, lui donnant même quelques coups de pied.
 
-« Bon sang, tu oses faire semblant d'être mort devant ce roi? » Le cultivateur lança un regard noir au corps et le frappa. Constatant l'absence de réaction, il multiplia les coups. Finalement, il gloussa et sauta sur le corps. Après avoir bondi dessus pendant une heure, il se sentit satisfait et s'allongea sur le sol, contemplant le ciel d'un air absent.
+« Bon sang, tu oses faire semblant d'être mort devant ce roi? » Le cultivateur lança un regard noir au corps et le frappa. Constatant l'absence de réaction, il multiplia les coups. Finalement, il gloussa et sauta sur le corps. Après avoir bondi dessus pendant près de deux heures, il se sentit satisfait et s'allongea sur le sol, contemplant le ciel d'un air absent.
 
 Il avait erré dans cet endroit durant d'innombrables années sans jamais croiser une seconde âme. Il se souvenait qu'il y a un nombre indéterminé d'années, il était également allongé ici, regardant le ciel avec vacuité.
 

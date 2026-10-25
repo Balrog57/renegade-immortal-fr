@@ -54,7 +54,7 @@ Une fois expulsé, ce sang sembla doué d'une volonté propre, formant un filet 
 
 La montagne de glace apparut soudainement et bloqua immédiatement le sang noir. Cependant, ce dernier semblait dégager une chaleur extrême; dès qu'il toucha la glace, la montagne commença à fondre, se teintant de noir dans le même temps.
 
-« Wang Lin, c'est le premier des cinq Fléaux Célestes auxquels les cultivateurs du Briseur du Nirvana font face: le Fléau Corporel. Son corps continuera de se détériorer jusqu'à se décomposer entièrement, et corps comme âme seront anéantis! » Wang Wei voulut continuer à bloquer, mais en raison de ses blessures passées, Hu Juan était constamment repoussée par l'entité humanoïde.
+« Wang Lin, c'est le premier des cinq Fléaux Célestes auxquels les cultivateurs au sommet du Briseur du Nirvana font face: le Fléau Corporel. Son corps continuera de se détériorer jusqu'à se décomposer entièrement, et corps comme âme seront anéantis! » Wang Wei voulut continuer à bloquer, mais en raison de ses blessures passées, Hu Juan était constamment repoussée par l'entité humanoïde.
 
 En ce moment de crise, Wang Wei agita la main et une multitude d'icebergs apparurent devant Wang Lin. Puis il chargea vers Hu Juan pour l'aider à contenir l'entité.
 

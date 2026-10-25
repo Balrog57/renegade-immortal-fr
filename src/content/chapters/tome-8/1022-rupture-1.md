@@ -78,7 +78,7 @@ Situ Nan leva brusquement la tête, affichant une expression féroce et impatien
 
 Une autre personne se trouvait dans le monde de la bouteille! Cet homme au crâne rasé marchait à travers le désert de sable noir avec un sourire démoniaque. Son corps scintillait et franchissait sans cesse les frontières des royaumes. Bien qu'il réapparaisse toujours dans le désert de sable noir, il se trouvait déjà dans un autre royaume!
 
-« Ce "Tableau de la Fumée du Désert Solitaire" doit se trouver dans ces quelques royaumes! Ancien Démon Ta Jia... Bien que moi, Bei Luo, ne sois pas complet, j'ai recouvré environ 80 % de ma puissance. Cette fois, tu n'auras pas la même chance qu'autrefois! »
+« Ce "Tableau de la Fumée du Désert Solitaire" doit se trouver dans ces quelques royaumes! Ancien Diable Ta Jia... Bien que moi, Bei Luo, je ne sois pas encore complet, j'ai recouvré environ 80 % de ma puissance d'autrefois. Cette fois, tu n'auras pas la même chance qu'autrefois! »
 
 L'œil droit de Bei Luo s'illumina. Sept étoiles étincelantes, saturées d'énergie démoniaque, brillaient dans son regard.
 

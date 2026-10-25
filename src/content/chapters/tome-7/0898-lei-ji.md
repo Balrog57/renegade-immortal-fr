@@ -92,7 +92,7 @@ Le visage de Wang Lin s'assombrit. La Secte des Cadavres recelait trop de secret
 
 Quoi qu'il en soit, cette affaire permettait à Wang Lin de percer certains mystères entourant la secte. Alors que l'armée Luotian approchait, il était convaincu que tous les secrets de la Secte des Cadavres finiraient par éclater au grand jour.
 
-Alors que la plante démoniaque poussait un cri strident, ses vignes chargèrent Wang Lin avec fureur, cherchant à le mettre en pièces. Wang Lin eut un sourire et cracha le Sceau Céleste. Celui-ci grandit instantanément, libérant des centaines de milliers de runes dorées vers la plante.
+Alors que la plante démoniaque poussait un cri strident, ses vignes chargèrent Wang Lin avec fureur, cherchant à le mettre en pièces. Wang Lin eut un sourire glacial et cracha le Sceau Céleste. Celui-ci grandit instantanément, libérant des centaines de milliers de runes dorées vers la plante.
 
 Le Sceau Céleste provoqua un grondement sourd en s'abattant sur l'ennemi.
 

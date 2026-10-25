@@ -49,7 +49,7 @@ Wang Lin reprit son couteau et commença à tracer les traits de la créature, t
 
 Mais Wang Lin avait tué de nombreux spécimens de ce genre et en avait avalé de nombreux noyaux. Ainsi, l'image était parfaitement gravée dans son esprit et sa main ne marquait aucune pause.
 
-Une demi-heure plus tard, Wang Lin pressa fermement le couteau là où devaient se trouver les yeux. À cet instant précis, la sculpture sembla s'animer.
+Une heure plus tard, Wang Lin pressa fermement le couteau là où devaient se trouver les yeux. À cet instant précis, la sculpture sembla s'animer.
 
 La bête parut lever le regard vers le ciel. Ses yeux trahissaient une pointe de frustration et de crainte. Sa gueule était grande ouverte, comme si elle laissait échapper des vagues de rugissements silencieux. Une aura invisible, indétectable pour les mortels, s'en dégageait.
 
@@ -83,7 +83,7 @@ Sur ces mots, il repartit en courant.
 
 Wang Lin n'en fut pas perturbé. Il prit un autre morceau de bois et commença à se remémorer les scènes du Pays de l'Ancien Dieu, et cette immense bête désolée qui avait marqué son esprit. Il hésita un instant, puis se remit au travail.
 
-Le temps s'écoula lentement. Plus d'une heure plus tard, la porte de la boutique fut poussée. Da Niu entra joyeusement, suivi d'un jeune homme à l'allure très robuste. Ce dernier parcourut les sculptures du regard et ses yeux s'illuminèrent.
+Le temps s'écoula lentement. Plus de deux heures plus tard, la porte de la boutique fut poussée. Da Niu entra joyeusement, suivi d'un jeune homme à l'allure très robuste. Ce dernier parcourut les sculptures du regard et ses yeux s'illuminèrent.
 
 Da Niu se faufila rapidement près de Wang Lin et murmura rapidement en lui faisant des clins d'œil:
 — Ne les vendez pas trop cher!

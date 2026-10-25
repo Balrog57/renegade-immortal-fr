@@ -114,7 +114,7 @@ Au milieu du massacre incessant et des tonnerres, les bêtes féroces à l'inté
 
 « À l'époque, Li Qianmei et deux autres ont tué ensemble une bête royale et ont été reconnues par la Secte Démon! Une autre bête royale est là aujourd'hui. C'est notre chance! »
 
-Dès que les cultivateurs environnants perçurent cette aura émanant de la fissure, ils furent frappés de stupeur. Ils reculèrent immédiatement pour se concentrer sur la faille spatiale.
+Dès que les cultivateurs environnants perçurent cette aura émanant de la fissure, leur moral se redressa aussitôt. Ils reculèrent immédiatement pour se concentrer sur la faille spatiale.
 
 Les six puissants combattants firent de même. L'une des femmes, au regard glacial, laissa éclater son intention meurtrière.
 

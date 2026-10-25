@@ -24,13 +24,13 @@ Wang Lin tendit silencieusement la cruche qu'il tenait à Maître Yi Chen. Ce de
 
 À cet instant, Ling Er apporta du vin depuis la ville. Les yeux rougis par l'émotion, elle posa délicatement les cruches à côté de Maître Yi Chen.
 
-Wang Lin saisit une cruche et la vida d'un seul trait. Son regard devint résolu lorsqu'il déclara: « Maître Yi Chen, je suis responsable de cette affaire. Si je ne vous avais pas emmenés tous les trois, une telle tragédie ne serait pas survenue. L'homme qui a tué votre cadet est l'Ancien Démon Ta Jia. Il ne faudra plus longtemps avant que vous puissiez le tuer de vos propres mains et venger votre cadet! »
+Wang Lin saisit une cruche et la vida d'un seul trait. Son regard devint résolu lorsqu'il déclara: « Maître Yi Chen, je suis responsable de cette affaire. Si je ne vous avais pas emmenés tous les trois, une telle tragédie ne serait pas survenue. L'homme qui a tué votre cadet est l'Ancien Diable Ta Jia. Il ne faudra plus longtemps avant que vous puissiez le tuer de vos propres mains et venger votre cadet! »
 
 Le corps de Maître Yi Chen trembla, ses yeux brillant d'excitation face à Wang Lin.
 
 « Est-ce vrai? »
 
-« C'est ma promesse! » Wang Lin posa la cruche au sol et regarda au loin. Comme s'il se remémorait quelque chose, il dit lentement: « La vie et la mort imprègnent l'existence. Une fois que vous les aurez comprises, vous les transcenderez... Vos deux frères ont encore vous pour leur rendre hommage, cela suffit. Nous, cultivateurs, ne maîtrisons plus notre propre vie ni notre propre mort. Dans l'immensité du champ d'étoiles, des cultivateurs meurent chaque jour. Combien de personnes se souviennent d'eux, et combien peuvent leur rendre hommage? »
+« C'est ma promesse! » Wang Lin posa la cruche au sol et regarda au loin. Comme s'il se remémorait quelque chose, il dit lentement: « La vie et la mort imprègnent l'existence. Une fois que vous les aurez comprises, vous les transcenderez... Il reste au moins vous pour rendre hommage à vos deux frères, cela suffit. Nous, cultivateurs, ne maîtrisons plus notre propre vie ni notre propre mort. Dans l'immensité du champ d'étoiles, des cultivateurs meurent chaque jour. Combien de personnes se souviennent d'eux, et combien peuvent leur rendre hommage? »
 
 « Après avoir emprunté cette voie sans retour, nous devons percer les mystères de la vie et de la mort. Nous devons comprendre notre propre fin, ainsi que celle des autres... Lorsque j'ai ramené les cendres d'un vieil ami dans sa ville natale, j'ai entendu la comptine d'un enfant. »
 

@@ -24,11 +24,11 @@ Une fois la voix dissipée, une puissance encore plus grande jaillit du vortex p
 
 Wang Lin leva la main droite et fouilla son espace de stockage pour en sortir un drapeau brisé. Outre la Perle Défiant le Ciel, c'était le trésor le plus précieux qu'il ait jamais reçu.
 
-Il s'agissait du Étendard de l'Âme!
+Il s'agissait de l'Étendard de l'Âme!
 
-Ce drapeau lui avait été donné par Du Tian il y a de nombreuses années, et il en avait confié une partie à Treize. Actuellement, il ne lui restait que ce fragment brisé, mais lorsque la puissance de la Porte du Vide s'y engouffra, le Étendard de l'Âme dégagea une aura puissante.
+Ce drapeau lui avait été donné par Du Tian il y a de nombreuses années, et il en avait confié une partie à Treize. Actuellement, il ne lui restait que ce fragment brisé, mais lorsque la puissance de la Porte du Vide s'y engouffra, l'Étendard de l'Âme dégagea une aura puissante.
 
-Une fois le Étendard de l'Âme réparé, la puissance de la Porte du Vide se dissipa rapidement du monde.
+Une fois l'Étendard de l'Âme réparé, la puissance de la Porte du Vide se dissipa rapidement du monde.
 
 Le vortex de la Porte du Vide disparut. Wang Lin se tenait là, ses cheveux blancs flottant au vent. Son œil gauche contenait le feu, son œil droit contenait le tonnerre, et entre ses sourcils, outre les étoiles de l'Ancien Dieu, trois marques verticales étaient apparues!
 

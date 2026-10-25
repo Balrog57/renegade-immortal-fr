@@ -48,7 +48,7 @@ Le vieil homme réfléchit un instant, puis se leva. Il jeta une pierre spiritue
 
 Dès leur départ, les cultivateurs de l'auberge furent envahis par la terreur. Un seul mot résonnait dans leurs esprits: « Cultivateur Âme Naissante! »
 
-Sous la conduite de Xu Mu, le vieil homme atteignit la Secte de la Lutte contre le Mal en seulement une demi-heure. Il déploya son puissant Sens Divin et localisa Shang Guanmo.
+Sous la conduite de Xu Mu, le vieil homme atteignit la Secte de la Lutte contre le Mal en seulement une heure. Il déploya son puissant Sens Divin et localisa Shang Guanmo.
 
 À la stupéfaction de Shang Guanmo, le vieil homme parvint à prélever, entre ses sourcils, une autre goutte de son sang d'essence de l'âme pour utiliser le lien entre les deux gouttes afin de traquer Wang Lin. Il relâcha ensuite Xu Mu et repartit à toute allure vers le sud-ouest.
 

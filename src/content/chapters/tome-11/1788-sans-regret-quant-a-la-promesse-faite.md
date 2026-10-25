@@ -30,7 +30,7 @@ Sans regret!!
 
 Sans regret!!!
 
-Ces deux mots révélaient le cœur Dao de Wang Lin depuis plus de deux mille ans! Ils témoignaient de cette rencontre fatidique aux abords de la Mer des Démons, il y a plus de deux millénaires.
+Ces deux mots révélaient le cœur Dao de Wang Lin depuis plus de deux mille ans! Ils témoignaient de cette rencontre fatidique aux abords de la Mer des Diables, il y a plus de deux millénaires.
 
 Ces mots libérèrent l'amour, la nostalgie, le remords et la lassitude qui habitaient Wang Lin tandis qu'il rugissait!
 

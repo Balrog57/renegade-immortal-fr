@@ -94,7 +94,7 @@ Cette scène glaça le sang de tous les témoins.
 
 Des hurlements de douleur emplirent la Secte du Ciel Nuageux. Li Muwan esquissa un sourire triste. Elle toussa ensuite une bouchée de sang et mordit sa lèvre inférieure.
 
-Même les anciens autour d'elle étaient attaqués par d'innombrables insectes. Chacun d'eux faisait de son mieux pour résister, mais même les deux Grands Anciens au stade avancé de l'Âme Naissante avaient beaucoup de mal.
+Même les anciens autour d'elle étaient attaqués par d'innombrables insectes. Chacun d'eux se débattait, mais à l'exception des deux Grands Anciens au stade avancé de l'Âme Naissante, qui parvenaient à résister un peu, les autres étaient en position de faiblesse et au bord du gouffre.
 
 Ces insectes étaient très étranges. Aucun trésor ni aucun sortilège ne semblait avoir d'effet sur eux.
 

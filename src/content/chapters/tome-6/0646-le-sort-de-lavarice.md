@@ -10,7 +10,7 @@ Ce moustique transperça le groupe de sa propre espèce comme un rayon de lumiè
 
 L'essaim de bêtes moustiques qui chargeait vers Wang Lin s'arrêta net. Bien que leurs regards fussent toujours belliqueux, une lueur de doute passa dans leurs yeux.
 
-Cette scène laisTan Lang totalement stupéfait. Cela fit également briller les yeux de Chen Long.
+Cette scène laissa Tan Lang totalement stupéfait. Cela fit également briller les yeux de Chen Long.
 
 Le visage de Tan Lang s'assombrit alors qu'il formait des sceaux des deux mains et criait: « Sept Aiguilles Magiques, imprégnation! »
 
@@ -76,7 +76,7 @@ Une puissance incomparable se manifesta instantanément. Une fois l'âme de la m
 
 Cependant, l'âme illusoire de la montagne était toujours entre les mains de Tan Lang!
 
-« La culture de ce vieil homme ne peut égaler celle du vieux Ling Tianhou ou de ce vieux voleur d'Tian Yunzi, mais les sorts du vieux Tan Lang sont sans faille! Vous, juniors, vous n'avez fait qu'apprendre des techniques que d'autres vous ont accordées, en croyant qu'elles étaient les vôtres! » Les yeux de Tan Lang débordaient de mépris alors que sa main droite s'abaissait.
+« La culture de ce vieil homme ne peut égaler celle du vieux Ling Tianhou ou de ce vieux voleur de Tian Yunzi, mais les sorts du vieux Tan Lang sont sans faille! Vous, juniors, vous n'avez fait qu'apprendre des techniques que d'autres vous ont accordées, en croyant qu'elles étaient les vôtres! » Les yeux de Tan Lang débordaient de mépris alors que sa main droite s'abaissait.
 
 Dans un fracas assourdissant, l'âme de la montagne descendit.
 

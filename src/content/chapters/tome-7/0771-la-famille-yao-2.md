@@ -15,7 +15,7 @@ Des bruits d'explosions résonnèrent de l'intérieur et le nuage noir commença
 
 Le rugissement de Xue Zu retentit: « Espèce de gamin, Wang Lin, tu n'es pas digne de sceller ce vieil homme! » Les nuages noirs denses s'effondrèrent à nouveau; ils étaient désormais très fins et sur le point de disparaître.
 
-Une fois les nuages noirs dissipés, cela signifierait que le drapeau du milliard d'âmes était détruit!
+Une fois les nuages noirs dissipés, cela signifierait que le drapeau des âmes était détruit!
 
 Wang Lin cria: « Trois âmes primaires, apparaissez! » À l'intérieur du nuage, les trois âmes primaires, incluant le Qilin et la quatrième âme, se condensèrent immédiatement et lancèrent leur attaque contre Xue Zu.
 
@@ -63,7 +63,7 @@ La silhouette de Xue Zu était saisissante, avec le Fouet du Karma autour de lui
 
 C'est ainsi que l'image sur le drapeau prit forme.
 
-En contemplant le drapeau du milliard d'âmes, Wang Lin resta silencieux. Il ne ressentit aucune fierté d'avoir vaincu Xue Zu; son cœur était empreint de mélancolie.
+En contemplant le drapeau des âmes, Wang Lin resta silencieux. Il ne ressentit aucune fierté d'avoir vaincu Xue Zu; son cœur était empreint de mélancolie.
 
 Il avait dû lutter avec acharnement pour vaincre Xue Zu et n'était pas aussi calme qu'il en avait l'air. Ce combat avait été jalonné de moments de vie ou de mort, et le moindre instant d'inattention aurait signifié la fin. Cette bataille n'avait rien été de moins que sa fuite face au Serpent aux yeux de lune. En réalité, elle était même un peu plus périlleuse.
 

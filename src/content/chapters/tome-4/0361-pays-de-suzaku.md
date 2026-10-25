@@ -8,7 +8,7 @@ slug: pays-de-suzaku
 ---
 Ce fut un tournant majeur dans l'histoire du Clan des Démons Géants. À partir de cet instant, ils ne furent plus un pays de culture de rang 4, mais de rang 5.
 
-Suzaku accordait une importance capitale à cet événement; ainsi, l'un des Ascendants de Suzaku vint personnellement rencontrer l'ancêtre de la Transformation de l'Âme du Clan des Démons Géants.
+Suzaku accordait une importance capitale à cet événement; ainsi, un vieil Ascendant qui ne se mêlait plus des affaires du monde vint personnellement recevoir l'ancêtre de la Transformation de l'Âme du Clan des Démons Géants.
 
 En vérité, des rumeurs circulaient selon lesquelles le Clan des Démons Géants comptait un cultivateur au stade de la Transformation de l'Âme, mais personne ne pouvait le confirmer. Toutefois, la probabilité était élevée, car le jeune maître du clan, Chi Hu, était revenu avec une quantité prodigieuse de jade céleste.
 

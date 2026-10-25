@@ -76,7 +76,7 @@ Wang Lin connaissait bien ce soupir. En l'entendant, son cœur sombra. Il tourna
 
 La puissance d'un cultivateur à la grande perfection du sommet du Vide Arcanique était terrifiante au-delà de l'imagination! Parmi les cinq maîtres, ni Jiutian Mozun ni Miaoyin Daozun ne pouvaient rivaliser avec Lanmeng Daozun. Il n'y avait qu'une infime différence dans leurs niveaux de culture, mais cette mince marge était un gouffre!
 
-Personne ne pouvait contraindre le Souverain à changer d'avis. Miaoyin Daozun ne le pouvait pas, Jiutian Mozun non plus, mais Rêve Bleu le pouvait!
+Personne ne pouvait contraindre le Souverain à changer d'avis. Miaoyin Daozun ne le pouvait pas, Jiutian Mozun non plus, mais Lanmeng le pouvait!
 
 Le Maître Hong Shan, qui combattait le jeune homme au regard froid, devint lui aussi grave. Le nom de Lanmeng Daozun était trop célèbre pour être ignoré!
 
@@ -116,6 +116,6 @@ Les yeux de Wang Lin se rétrécirent alors qu'il observait la faille de la Form
 
 Il vit une silhouette, un homme vêtu de blanc. Il tenait un arc, et celui-ci était pointé directement vers Wang Lin!
 
-« Le disciple principal du Souverain, Feng Yi! »
+« Le disciple principal du Souverain, Pouce, Feng Yi! »
 
 Wang Lin avait déjà vu cet arc auparavant!

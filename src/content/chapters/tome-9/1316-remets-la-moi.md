@@ -70,7 +70,7 @@ La rumeur voulait que ce soit grâce à cet amour que Lanmeng Daozun avait pu at
 
 Le Clan de la Soie Bleue était devenu un grand clan du Système Stellaire Antique grâce à lui, mais la nature profonde de son peuple n'avait pas changé. Ils vivaient paisiblement au sein de leur vaste domaine stellaire, et la tristesse de leur musique avait été progressivement remplacée par la joie.
 
-Ils avaient retrouvé cette joie sous la protection de Lanmeng Daozun. Pour le Clan de la Soie Bleue, Rêve Bleu était leur divinité, recevant l'admiration et le respect de tout son peuple.
+Ils avaient retrouvé cette joie sous la protection de Lanmeng Daozun. Pour le Clan de la Soie Bleue, Lanmeng Daozun était leur divinité, recevant l'admiration et le respect de tout son peuple.
 
 Le Mont Bleu, son lieu de résidence, était devenu une terre sacrée pour le clan! Cependant, malgré cette joie retrouvée, une subtile tristesse émanant du Mont Bleu allait pour toujours subsister.
 

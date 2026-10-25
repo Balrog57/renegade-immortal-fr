@@ -118,7 +118,7 @@ Il était midi et le soleil brillait au zénith. Le bateau arriva, et le jeune h
 
 Alors que la musique flottait jusqu'à lui, le jeune homme se leva près de la femme, prit sa coupe de vin et la leva vers Wang Lin en signe de salut.
 
-Wang Lin saisit sa cruche, la secoua et but une gorgée. Le jeune homme secoua la tête en désignant la proue du bateau; il n'avait pas encore bu une seule goutte.
+Wang Lin saisit sa cruche, la leva de loin pour trinquer avec lui, puis but une gorgée. Le jeune homme secoua la tête en désignant la proue du bateau; il n'avait pas encore bu une seule goutte.
 
 Wang Lin eut un petit rire. Bien que ce jeune homme paraisse ordinaire, il dégageait une aura de liberté. Après une courte réflexion, Wang Lin traversa la rivière et atterrit sur la proue du bateau.
 

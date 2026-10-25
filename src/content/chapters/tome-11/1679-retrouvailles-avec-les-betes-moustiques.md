@@ -10,9 +10,9 @@ Li Qianmei finit par partir avec son père, Rêve Bleu. La cinquième concubine 
 
 Ils retourneraient au clan Soie Bleue pour y ramener tout le clan. Ils choisiraient ensuite une région dans le Royaume Intérieur pour en faire la nouvelle demeure du clan Soie Bleue.
 
-Avec Lanmeng Daozun présent, bien qu'il fût blessé, il n'y aurait aucun danger à moins que le Souverain n'agisse personnellement. Même le Souverain n'oserait pas trop contraindre Lanmeng Daozun maintenant que son cœur de Dao n'était plus imparfait et qu'il se tenait au sommet du Vide Arcanique.
+Avec le Maître Dao Bleu Rêve présent, bien qu'il fût blessé, il n'y aurait aucun danger à moins que le Souverain n'agisse personnellement. Même le Souverain n'oserait pas trop contraindre le Maître Dao Bleu Rêve maintenant que son cœur de Dao n'était plus imparfait et qu'il se tenait au sommet du Vide Arcanique.
 
-En effet, Lanmeng Daozun pouvait entrer dans la Tribulation Arcane dès qu'il le souhaitait. Une fois la Tribulation Arcane commencée, même le Souverain devrait se retirer.
+En effet, le Maître Dao Bleu Rêve pouvait entrer dans la Tribulation Arcane dès qu'il le souhaitait. Une fois la Tribulation Arcane commencée, même le Souverain devrait se retirer.
 
 Li Qianmei disparut dans le Royaume Extérieur avec son père. Après leur départ, la lumière bleue à l'extérieur de la formation se dissipa lentement et le système stellaire redevint sombre.
 

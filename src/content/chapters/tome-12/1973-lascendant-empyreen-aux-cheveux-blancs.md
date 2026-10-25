@@ -122,4 +122,4 @@ Lors de la cérémonie, il existait une possibilité d'être défié, mais par l
 
 Une fois la lecture terminée, l'homme en robe verte constata que Wang Lin ne sortait pas, ce qui accroissait sa frustration. Il laissa l'édit derrière lui et s'en alla en agitant rageusement ses manches.
 
-« Je me demande ce que Lian Daofei fera lors de cette cérémonie... Je devrais pouvoir voir ce fou... » Songea Wang Lin. Il avait étendu son Sens Divin à travers toute la ville est, mais il n'avait pas trouvé trace de Lian Daofei.
+« Je me demande ce que fera Lian Daozhen lors de cette cérémonie de titre... Là-bas, je devrais pouvoir voir le fou... » Songea Wang Lin. Il avait étendu son Sens Divin à travers toute la ville est, mais il n'avait pas trouvé trace de Lian Daofei.

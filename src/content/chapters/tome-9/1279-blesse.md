@@ -62,7 +62,7 @@ Une fois frappé par cela, Wang Lin serait détruit cent fois, sans aucune chanc
 
 Il scruta soudainement le vide, l'expression sombre.
 
-« Vieux fou, tu veux m'arrêter? Tu as été scellé dans une pierre par le Royaume Céleste Antique. Ils t'ont emprisonné pendant cent mille ans pour te raffiner en trésor magique. Actuellement, tu ne fais que survivre en empruntant la puissance du système stellaire extérieur aux bêtes-moustiques, et pourtant tu veux intervenir? Tu veux m'empêcher de faire? De quelle légitimité disposes-tu pour m'arrêter? » Le Shui Daozi laissa échapper un renâclement froid. Sans plus hésiter, sa main droite s'abattit sur Wang Lin.
+« Vieux fou, tu veux m'arrêter? Tu as été scellé dans une pierre par le Royaume Céleste Antique. Ils t'ont emprisonné pendant cent mille ans pour te raffiner en trésor magique. Actuellement, tu ne survis qu'en empruntant la puissance du système stellaire extérieur aux bêtes-moustiques ; que ce vieil homme ne soit pas venu te chercher querelle est déjà bien, et pourtant tu veux intervenir? Tu veux m'empêcher de faire? De quelle légitimité disposes-tu pour m'arrêter? » Le Shui Daozi laissa échapper un renâclement froid. Sans plus hésiter, sa main droite s'abattit sur Wang Lin.
 
 Cependant, à cet instant même, le vent se mua en une main gigantesque qui s'élança vers le cycle de réincarnation!
 

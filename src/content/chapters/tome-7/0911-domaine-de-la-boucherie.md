@@ -50,7 +50,7 @@ Son trésor de vie ayant été détruit, Yu Fei cracha une bouffée de sang et s
 
 Yu Fei s'engouffra directement dans le vortex.
 
-« Xu Mu, du Duo Tueur d'Âmes, un autre membre m'accompagne! Bien que ton corps soit puissant, face aux sorts d'un Tueur d'Âmes, tu mourras quand même! » Les yeux de Yu Fei brillaient d'une haine monstrueuse alors qu'il disparaissait dans le vortex.
+« Xu Mu, le Domaine de la Boucherie compte deux Tueurs, celui des Âmes et celui du Meurtre; outre moi, il y en a un autre! Bien que ton corps soit puissant, face aux sorts du Tueur d'Âmes, tu mourras quand même! » Les yeux de Yu Fei brillaient d'une haine monstrueuse alors qu'il disparaissait dans le vortex.
 
 Voyant Yu Fei sur le point de s'échapper, les yeux de Wang Lin se remplirent d'intention meurtrière. Sa nature était constante: « S'ils ne me cherchent pas, je ne les cherche pas. S'ils me cherchent, je les tue! »
 

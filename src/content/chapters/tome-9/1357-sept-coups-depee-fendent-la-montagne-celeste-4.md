@@ -10,7 +10,7 @@ Le Grand Ancien fut totalement ébranlé par la puissance de cette épée. Il é
 
 « Quel genre d'épée est-ce là?! Même l'armure de tonnerre éternel ne peut y résister, et je suis gravement blessé! » Le visage de l'Ancien était pâle, empreint d'horreur.
 
-L'armure de tonnerre éternel était l'un des trois trésors majeurs du Clan du Tonnerre Dispersé, bien plus puissante que le Miroir de Massacre de la Foudre. Raffinée par l'ancêtre du troisième pas du Clan du Tonnerre Dispersé, elle avait été transmise de génération en génération pour protéger le clan!
+L'armure de tonnerre éternel était l'un des trois trésors majeurs du Clan du Tonnerre Dispersé, bien plus puissante que le Miroir de Massacre de la Foudre. Raffinée par l'ancêtre du troisième pas du Clan du Tonnerre Dispersé, elle avait été transmise de génération en génération et protégeait le clan depuis des dizaines de milliers d'années!
 
 Seules les personnes ayant atteint le cinquième Fléau Céleste pouvaient porter cette armure. Même face à un cultivateur de la troisième étape, elle permettait de lui résister un moment!
 
@@ -22,7 +22,7 @@ Cette épée était lourde, terriblement lourde...
 
 Voyant Wang Lin lever le bras, les pupilles de l'Ancien se rétractèrent violemment. Sa main traça un sceau et pointa vers le ciel tandis qu'il rugissait comme un possédé: « Éclair éternel, brise cette tempête et descends! »
 
-Dans son rugissement, il activa sa marque de clan, libérant toute sa puissance pour invoquer l'tonnerre éternel ici même. Il pressentait que sa seule chance de survie résidait dans la capacité de cet éclair à pénétrer la tempête!
+Dans son rugissement, il activa sa marque de clan, libérant toute sa puissance pour invoquer le tonnerre éternel ici même. Il pressentait que sa seule chance de survie résidait dans la capacité de cet éclair à pénétrer la tempête!
 
 Autrement, il mourrait sans aucun doute aujourd'hui!
 
@@ -36,23 +36,23 @@ Le rayon d'énergie tranchante jaillit, chargé des âmes de vies innombrables e
 
 L'Ancien rugit: « Éclair éternel, descends! Descends! Descends! » La marque de clan entre ses sourcils éclata à moitié et une force fulgurante l'enveloppa.
 
-Simultanément, son cri sembla atteindre l'tonnerre éternel hors de la tempête. Par un procédé inconnu, l'éclair s'étendit instantanément pour devenir un tonnerre de 10 000 pieds d'épaisseur qui s'abattit sur la tempête!
+Simultanément, son cri sembla atteindre le tonnerre éternel hors de la tempête. Par un procédé inconnu, l'éclair s'étendit instantanément pour devenir un tonnerre de 10 000 pieds d'épaisseur qui s'abattit sur la tempête!
 
 Le tumulte fut violent et les morts continuèrent de pleuvoir dans les 7 Millions de Mondes. Même le second coup que Wang Lin préparait fut affecté, une grande partie de sa puissance s'étant dissipée avant d'atteindre l'Ancien.
 
 Le Daoïste Esprit Dispersé traça un sceau et le pressa contre sa poitrine. Il cracha du sang et sembla faiblir, mais une force puissante émana des 7 Millions de Mondes!
 
-Cette puissance provenait des montagnes, des rivières, de la terre, de l'herbe, de toutes les bêtes et des oiseaux! Elle fut infusée dans la tempête pour empêcher l'tonnerre éternel de percer!
+Cette puissance provenait des montagnes, des rivières, de la terre, de l'herbe, de toutes les bêtes et des oiseaux! Elle fut infusée dans la tempête pour empêcher le tonnerre éternel de percer!
 
 L'Ancien recula dans un cri misérable en crachant six bouffées de sang. La protection formée par sa marque de clan s'effondra et une blessure réapparut sur son torse, si profonde que ses os étaient visibles!
 
 Si cela n'avait été que cela, la puissance de cette énergie d'épée n'aurait pas été aussi manifeste. Les deux plaies causées par les premiers coups étaient saturées des âmes innombrables des 7 Millions de Mondes. Celles-ci se transformèrent en esprits lugubres qui commencèrent à dévorer les plaies, laissant s'en échapper un gaz noir.
 
-Si l'tonnerre éternel n'avait pas utilisé sa puissance pour perturber la tempête et dissiper 70 % de la force, l'Ancien n'aurait eu aucune chance de survie!
+Si le tonnerre éternel n'avait pas utilisé sa puissance pour perturber la tempête et dissiper 70 % de la force, l'Ancien n'aurait eu aucune chance de survie!
 
 Pourtant, malgré cela, il restait gravement blessé!
 
-Une douleur intense peut mener à la folie, et le désespoir peut rendre fou. C'était précisément ce que vivait l'Ancien. La souffrance des âmes dévorantes envahissait son corps, tandis que le désespoir embrumait son esprit lorsqu'il réalisa que même l'tonnerre éternel ne parvenait pas à rompre l'assaut. Comment pourrait-il s'en sortir?
+Une douleur intense peut mener à la folie, et le désespoir peut rendre fou. C'était précisément ce que vivait l'Ancien. La souffrance des âmes dévorantes envahissait son corps, tandis que le désespoir embrumait son esprit lorsqu'il réalisa que même le tonnerre éternel ne parvenait pas à rompre l'assaut. Comment pourrait-il s'en sortir?
 
 Sombrant dans la démence, il cessa de fuir. Ses mains formèrent un sceau et il agita le bras en rugissant: « Nul ne peut tuer ce vieil homme! Je sacrifie 3 000 ans de vie pour éveiller ma marque de tonnerre et utiliser le sort de mon ancêtre du troisième pas! Éternel Tonnerre Yin et Yang, apparais! »
 

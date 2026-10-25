@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1388 - Don’t Be Afraid!"
 slug: nayez-pas-peur
 ---
-« Némésis... Il est ma némésis! Même mes trésors sont contrés! » hurTan Lang en reculant précipitamment. Voyant Wang Lin se rapprocher, il jeta sans ménagement la bouteille de jade dans une autre direction!
+« Némésis... Il est ma némésis! Même mes trésors sont contrés! » hurla Tan Lang en reculant précipitamment. Voyant Wang Lin se rapprocher, il jeta sans ménagement la bouteille de jade dans une autre direction!
 
 Il avait déjà fait cela auparavant... Depuis son arrivée dans le Système Stellaire Antique, chaque fois qu'il repensait à ce qui s'était passé, son cœur lui faisait une douleur atroce. Il avait juré de ne plus jamais sacrifier un trésor pour créer une diversion lors d'une fuite. À ses yeux, perdre un trésor était pire que la mort.
 
@@ -16,7 +16,7 @@ S'il avait su tout cela, il en aurait certainement recraché du sang, mourant pr
 
 « Ce vieil homme a eu une chance insolente, d'immenses opportunités, et est favorisé par le Ciel lui-même. Béni par les cieux à l'âge de huit ans, j'ai déterré une essence jaune de 500 ans que j'ai dévorée. À 13 ans, je suis tombé d'une falaise pour atterrir aux côtés d'un Fruit Vermillon de 500 ans. À 18 ans, alors que j'atteignais le stade de l'Établissement des Fondations, j'ai obtenu le dragon de tonnerre ancien! Au stade de la Formation du Noyau, en combattant un ennemi puissant, alors que j'étais sur le point de perdre, un fourneau géant est tombé du ciel et l'a écrasé à mort!
 
-« Après cela, mon chemin fut toujours semé de succès. La Peinture des Montagnes et des Rivières, l'âme de la montagne, l'aiguille d'âme, tout cela a été obtenu sans encombre. Seule ma quête de la Perle Défiant le Ciel ne s'est pas déroulée sans encombre!
+« Après cela, mon chemin fut toujours semé de succès. La Peinture des Montagnes et des Rivières, le Pic Arrache-Âme, l'Aiguille de Raffinage d'Âme, et tous les autres trésors, je les ai obtenus un à un sans encombre. Seule ma quête de la Perle Défiant le Ciel ne s'est pas déroulée sans encombre!
 
 « Puis j'ai rencontré cette némésis qui a dérobé tous mes trésors et tout ce pour quoi j'avais tant lutté. Pourtant, j'ai eu de la chance et je ne suis pas mort. Au contraire, j'ai trouvé encore plus de trésors lors de mes aventures et je suis devenu puissant. Mais ce maudit Wang Lin ne m'a pas lâché et est venu jusqu'ici, dans le Système Stellaire Antique! »
 

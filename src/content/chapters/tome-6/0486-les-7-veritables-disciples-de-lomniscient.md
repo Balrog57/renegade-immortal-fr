@@ -60,7 +60,7 @@ Bai Wei fut stupéfait. Il fixa Wang Lin un long moment avant d'éclater de rire
 
 « En plus de cela, chacun des sept véritables disciples peut disposer d'un pays de culture entier pour s'entraîner. Tu pourras choisir n'importe quel pays sur la planète Tian Yun, ou même l'un des pays des planètes environnantes! »
 
-« Et ce n'est pas le point le plus crucial. Toi et moi sommes des cultivateurs au stade de la Transformation de l'Âme, et notre désir le plus ardent est d'atteindre le stade Ascendant! Atteindre le stade Ascendant, c'est chercher le Dao ou mourir en essayant; tu as dû en entendre parler. Le moment où un cultivateur tente d'atteindre le stade Ascendant est extrêmement périlleux. Il arrive que l'on ne puisse plus jamais cultiver. Le taux de survie n'est que de 10 %! »
+« Et ce n'est pas le point le plus crucial. Toi et moi sommes des cultivateurs au stade de la Transformation de l'Âme, et notre désir le plus ardent est d'atteindre le stade Ascendant! Atteindre le stade Ascendant, c'est chercher le Dao ou mourir en essayant; tu as dû en entendre parler. Le moment où un cultivateur tente d'atteindre le stade Ascendant est extrêmement périlleux. En cas d'échec, il n'a même pas la possibilité de recommencer à zéro: neuf chances sur dix de mourir. Le taux de survie n'est que de 10 %! »
 
 « Mais si tu deviens l'un des sept véritables disciples, Maître interviendra personnellement. Bien que cela ne garantisse pas un succès à 100 %, il peut augmenter tes chances de 30 %! Dis-moi, qui ne serait pas tenté? »
 

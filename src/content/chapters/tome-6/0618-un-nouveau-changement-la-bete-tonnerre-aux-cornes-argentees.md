@@ -91,9 +91,9 @@ Un autre le suivait: un jeune homme vêtu de blanc comme la neige. Il était bea
 
 L'homme en or regarda le jeune homme et renifla froidement: « À quoi penses-tu, Sun Yunshan? »
 
-Le jeune homme en robe blanche était celui qui était venu dans les Terres de l'Esprit Démoniaque avec Wang Lin. Le jeune maître de la Secte Xuan Yuan, Sun Yunshan!
+Le jeune homme en robe blanche était celui qui était venu dans la Terre des Esprits Démoniaques avec Wang Lin. Le jeune maître de la Secte Xuan Yuan, Sun Yunshan!
 
-Lorsqu'il était entré dans les Terres de l'Esprit Démoniaque, il était protégé par plusieurs Anciens de haut niveau. Désormais, il se retrouvait seul.
+Lorsqu'il était entré dans la Terre des Esprits Démoniaques, il était protégé par plusieurs Anciens de haut niveau. Désormais, il se retrouvait seul.
 
 Après avoir entendu les paroles de l'homme en or, le corps de Sun Yunshan trembla et il dit respectueusement: « Seigneur, ce subordonné... »
 

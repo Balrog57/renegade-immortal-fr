@@ -20,9 +20,9 @@ C'était comme si un tonnerre cataclysmique, surgissant du début des temps, s'�
 
 « Voilà le Dao! Qu'il s'agisse de la vie ou de la mort, ou du karma, tout cela est façonné par la volonté du Dao! Je suis le karma! »
 
-Le vent siffla à travers les cieux et emporta Wang Lin dans les airs, ne laissant aucune trace.
+Le vent hurla et, emportant avec lui l'illumination de Wang Lin, s'éleva soudain jusqu'à l'horizon avant de disparaître sans laisser de trace.
 
-Il laissa derrière lui le vieil homme terrifié sous sa cape de pluie; quant au vieil homme nommé Xie, il sentit une chaleur envahir son corps.
+Il ne resta au bord de la rivière que le vieil homme terrifié sous sa cape de pluie et, figé sur place, le vieil homme nommé Xie, il sentit une chaleur envahir son corps.
 
 Le vieil homme nommé Xie marmonna: « Lui... est-il un homme ou un fantôme...? »
 

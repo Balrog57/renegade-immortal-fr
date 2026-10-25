@@ -24,7 +24,7 @@ Alors que l'Empereur Divin Vermillon s'apprêtait à interrompre Wang Lin, ce de
 
 « Toi... » L'Empereur Divin Vermillon plongea son regard dans celui de Wang Lin. Les yeux du jeune homme étaient presque emplis de folie, de refus de se résigner, d'obstination et de ce courage farouche qui défie les cieux.
 
-Tel un démon impitoyable et sans égal, scellé par le ciel dans les profondeurs de l'enfer, il ne céderait jamais, peu importe le temps qui passerait!
+Tel un Diable féroce sans égal, scellé par le Dao céleste dans les profondeurs des Neuf Sources, il ne céderait jamais, peu importe le temps qui passerait!
 
 À cet instant, l'Empereur Divin Vermillon comprit que le Dao de Wang Lin était le Dao de la Rébellion!
 

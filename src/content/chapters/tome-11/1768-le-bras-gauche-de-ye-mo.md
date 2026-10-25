@@ -102,7 +102,7 @@ Après une réflexion, Wang Lin rangea la glace dans son espace de stockage. Ell
 
 Fixant le fragment, Wang Lin prit une profonde inspiration et leva sa main droite. Alors que le Dao Antique Immortel imprégnait sa main, il griffa à nouveau la glace. Des grondements tonitruants se succédèrent. Par cette méthode brute et laborieuse, Wang Lin mit plusieurs heures à creuser une cavité dans la glace.
 
-Un demi-bâton d'encens plus tard, un dernier fracas retentit. Wang Lin arracha un morceau de glace, exposant enfin le bras gauche de Ye Mo!
+Sept minutes plus tard, un dernier fracas retentit. Wang Lin arracha un morceau de glace, exposant enfin le bras gauche de Ye Mo!
 
 Seule une petite zone de peau, de la taille d'une paume, était visible. Elle était grise mais dégageait une puissante aura du Dao Antique qui pénétra l'esprit de Wang Lin. Il prit une profonde inspiration et s'assit, pressant sa main gauche contre la peau exposée.
 

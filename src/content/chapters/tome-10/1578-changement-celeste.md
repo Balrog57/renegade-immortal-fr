@@ -32,7 +32,7 @@ Tout en réfléchissant silencieusement, Wang Lin fit un pas en avant. Après pl
 
 Après un long moment, le sens divin de Wang Lin continua de s'étendre à travers le Champ de Bataille Extérieur. Il vit une profusion de cadavres et d'âmes errantes. Toutes ces âmes hurlaient et reculaient de peur. Pourtant, faute de pouvoir s'échapper, elles ne pouvaient que trembler devant son sens divin.
 
-Certains de ces cadavres appartenaient à des cultivateurs, mais la plupart étaient des bêtes étranges. Wang Lin n'en avait pas vu plus de la moitié.
+Certains de ces cadavres appartenaient à des cultivateurs, mais la plupart étaient des bêtes étranges. Wang Lin n'avait jamais vu plus de la moitié de ces espèces.
 
 Son sens divin se propageait de plus en plus, dépassant tous les lieux qu'il avait explorés par le passé, et même toutes les zones que les cultivateurs de la planète Suzaku avaient défrichées. Wang Lin voyait toujours plus de cadavres.
 
@@ -74,7 +74,7 @@ Il rétracta lentement son sens divin jusqu'à ce qu'il soit de nouveau contenu 
 
 Wang Lin avait découvert trop de choses lors de ce retour sur la planète Suzaku. Ces révélations étaient accablantes et rendaient sa planète natale plus étrangère que jamais.
 
-« Hongdie n'est pas mort... »
+« Hongdie n'est pas morte... »
 « Le 19e niveau du Clan du Tatouage scellait la flèche de Li Guang... »
 « Le Champ de Bataille Extérieur d'autrefois n'était qu'une zone restreinte, et il existe un monde bien plus vaste au-delà. Il s'avère que tout cela fait partie de la porte... »
 
@@ -112,10 +112,10 @@ Le pied droit de Wang Lin, qui venait de se lever, s'immobilisa soudainement et 
 
 « Quelque chose ne va pas!! » Les trois images vues précédemment lui traversèrent l'esprit: l'oiseau qui mourait, la poussière qui ne dérivait pas et les cailloux qui ne bougeaient pas!
 
-Cette crise de vie ou de mort surpassait tout ce qu'il avait ressenti dans la Tombe Antique ou lors de ses rencontres après son retour dans le Royaume Intérieur. C'était comparable à la calamité que Hongdie avait provoquée; c'était une épreuve que Wang Lin devait affronter!
+Cette crise de vie ou de mort surpassait tout ce qu'il avait ressenti dans la Tombe Antique ou lors de ses rencontres après son retour dans le Royaume Intérieur. C'était comparable à la calamité mortelle que Hongdie avait dû affronter; c'était une épreuve que Wang Lin devait lui aussi traverser!
 
 Ce n'est qu'en survivant à cette calamité qu'il serait digne de continuer à vivre! Telle fut l'illumination qui le frappa au moment même où il vit les nuages noirs tourbillonner au loin!
 
-Les nuages ne possédaient pas une véritable intention meurtrière; celle-ci émanait du changement dans le tonnerre généré par les nuages. Cela venait de l'intuition propre de Wang Lin. Ce changement ne s'était produit ni plus tôt, ni maintenant, mais précisément au moment où Wang Lin l'avait remarqué. C'était un changement céleste!
+Les nuages ne possédaient pas une véritable intention meurtrière; celle-ci émanait du changement dans le tonnerre généré par les nuages. Cela venait de l'intuition propre de Wang Lin. Ce changement ne s'était produit ni plus tôt ni plus tard, mais précisément à ce moment-là, devant Wang Lin. C'était un changement céleste!
 
 « Changement céleste! » Les pupilles de Wang Lin se rétractèrent. Sans hésiter, il déploya son sens divin sur toute la planète et se précipita dans l'espace. Dès qu'il vit l'espace extérieur, son expression changea radicalement!

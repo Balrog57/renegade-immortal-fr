@@ -68,7 +68,7 @@ Une fois la neige totalement fondue, il essuya la sueur sur son front. L'usage s
 
 Il n'y avait que peu d'eau dans la jarre. Il y jeta la perle mystérieuse et la récupéra un quart d'heure plus tard.
 
-Il comprenait désormais parfaitement le fonctionnement de la perle: la laisser tremper dans l'eau de source pendant un quart d'heure était la limite optimale. Il avait testé des durées plus longues, mais avait constaté que tant qu'elle restait immergée au moins un quart d'heure, l'effet demeurait identique.
+Il comprenait désormais parfaitement le fonctionnement de la perle: la laisser tremper dans l'eau de source pendant sept minutes était la limite. Il avait testé des durées plus longues, mais avait constaté que quelle que soit la durée d'immersion, dès lors qu'elle dépassait sept minutes, l'effet demeurait identique.
 
 Il prit une gorgée de l'eau, ferma les yeux et examina attentivement la modification de l'énergie spirituelle en son sein. Un instant plus tard, il ouvrit les yeux et murmura: « L'effet est bien supérieur à celui de l'eau de source, bien qu'encore inférieur à la rosée. C'est utilisable! »
 

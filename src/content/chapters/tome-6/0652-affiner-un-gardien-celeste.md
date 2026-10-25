@@ -56,7 +56,7 @@ Bien que le taux de réussite fût infime, s'il réussissait, il obtiendrait un 
 
 Le jade mentionnait également certains sorts que seuls les Gardiens Célestes pouvaient utiliser. Lorsqu'ils étaient déployés, ces sortilèges étaient absolument prodigieux.
 
-Si Du Jian ne l'avait pas provoqué, tout aurait été différent; Wang Lin ne l'aurait pas saisi pour le transformer en gardien. Cependant, cet homme avait manifesté une intention meurtrière envers lui, et et, de par son caractère, Wang Lin ne ferait pas preuve de clémence.
+Si Du Jian ne l'avait pas provoqué, tout aurait été différent; Wang Lin ne l'aurait pas saisi pour le transformer en gardien. Cependant, cet homme avait manifesté une intention meurtrière envers lui et, de par son caractère, Wang Lin ne ferait pas preuve de clémence.
 
 « Si vous échouez et mourez sur la voie du Dao, cela pourra être considéré comme une mort digne pour un cultivateur. Si vous réussissez, je vous offrirai une grande fortune. Quant au succès ou à l'échec, tout dépendra de votre chance! »
 

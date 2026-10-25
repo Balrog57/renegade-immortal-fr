@@ -8,7 +8,7 @@ slug: le-pouvoir-de-lancien-demon
 ---
 L'effondrement du palais fut semblable à une tempête soudainement interrompue, dont toute la force se projeta violemment vers l'extérieur. L'homme d'âge mûr qui s'était redressé était celui qui, jadis, trônait au sommet des quatre Royaumes Célestes sans aucun rival: l'Empereur Céleste Qing Lin!
 
-Toutefois, ses yeux étaient désormais embrasés de puissantes flammes démoniaques et il était enveloppé d'une armure noire. Cette cuirasse écailleuse recouvrait l'intégralité de son corps. Une énergie démoniaque monstrueuse formait derrière lui une cape qui ondulait sans qu'aucun vent ne la fasse bouger. À l'extrémité de ce manteau, l'ombre imposante d'un ancien démon se dessinait.
+Toutefois, ses yeux étaient désormais embrasés de puissantes flammes démoniaques et il était enveloppé d'une armure noire. Cette cuirasse écailleuse recouvrait l'intégralité de son corps. Une énergie démoniaque monstrueuse formait derrière lui une cape qui ondulait sans qu'aucun vent ne la fasse bouger. À l'extrémité de ce manteau, l'ombre imposante d'un ancien diable se dessinait.
 
 L'armure dense dissimulait totalement ses traits, seule la lueur rouge des flammes démoniaques dans son regard perçant l'obscurité. Dès l'instant où le palais s'effondra, il s'avança.
 
@@ -60,15 +60,15 @@ Lorsque Wang Wei avait crié « Maître! », cela confirmait les soupçons de Wa
 
 « En reliant tous les indices, le karma de cette situation est sur le point d'être révélé! »
 
-« Par le passé, l'Empereur Céleste Qing Lin fut gravement blessé lors de l'effondrement du Royaume Céleste et dut se retirer. Cependant, l'Ancien Démon Ta Jia et l'Ancien Démon Bei Luo saisirent cette opportunité pour lui tendre une embuscade. Ils voulaient dérober le corps de Qing Lin afin de s'emparer de son héritage et de ses souvenirs. »
+« Par le passé, l'Empereur Céleste Qing Lin fut gravement blessé lors de l'effondrement du Royaume Céleste et dut se retirer. Cependant, l'Ancien Diable Ta Jia et l'Ancien Démon Bei Luo saisirent cette opportunité pour lui tendre une embuscade. Ils voulaient dérober le corps de Qing Lin afin de s'emparer de son héritage et de ses souvenirs. »
 
-« Pourtant, Qing Lin était si puissant que, même gravement blessé, il demeurait redoutable. Malgré l'alliance de l'Ancien Démon Ta Jia et de l'Ancien Démon Bei Luo, ils ne purent le vaincre totalement. Finalement, Qing Lin se réfugia dans le Royaume Céleste des Esprits, là où leur combat atteignit son apogée. »
+« Pourtant, Qing Lin était si puissant que, même gravement blessé, il demeurait redoutable. Malgré l'alliance de l'Ancien Diable Ta Jia et de l'Ancien Démon Bei Luo, ils ne purent le vaincre totalement. Finalement, Qing Lin se réfugia dans le Royaume Céleste des Esprits, là où leur combat atteignit son apogée. »
 
 « Lors de cette bataille, l'Ancien Démon Bei Luo fut contraint d'être divisé en neuf parties. Il n'eut d'autre choix que de devenir neuf esprits démoniaques anciens et de se dissimuler durant d'innombrables années dans le Royaume Céleste des Esprits, attendant de pouvoir se reformer. »
 
-« Quant à l'Ancien Démon Ta Jia, il réussit à pénétrer dans le corps de Qing Lin pour tenter une prise de contrôle. Mais Qing Lin parvint jusqu'au neuvième étage de cette grotte. Dès qu'il s'assit, il utilisa les 99 bougies pour résister à l'Ancien Démon! »
+« Quant à l'Ancien Diable Ta Jia, il réussit à pénétrer dans le corps de Qing Lin pour tenter de le posséder. Mais Qing Lin parvint jusqu'au neuvième étage de cette grotte. Dès qu'il s'assit, il utilisa les 99 bougies pour résister à l'Ancien Démon! »
 
-« Cependant, l'Ancien Démon Ta Jia était lui aussi un être puissant. Il parvint inopinément à saturer la grotte d'énergie démoniaque et corrompit même certains des gardes de Qing Lin, les entraînant sur la voie démoniaque. Ils finirent par passer sous son commandement. »
+« Cependant, l'Ancien Diable Ta Jia était lui aussi un être aux grands pouvoirs. Il parvint à souiller toute la grotte de son énergie diabolique et corrompit même certains des gardes de Qing Lin, les entraînant sur la voie démoniaque. Ils finirent par passer sous son commandement. »
 
 « Quant au démon dispersé qui avait occupé un corps identique à celui de Ling Tianhou et qui était apparu dans le monde extérieur... je crains qu'il n'y ait là encore un secret bien plus profond. » Les yeux de Wang Lin s'illuminèrent. Grâce à son intelligence, il avait immédiatement saisi les contours de la situation au sein de la grotte.
 

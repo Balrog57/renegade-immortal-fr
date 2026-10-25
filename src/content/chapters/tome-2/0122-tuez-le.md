@@ -1,12 +1,12 @@
 ---
 n: 122
-title: Tuez-le
+title: Va le tuer
 book: 2
 bookTitle: The Bloody Image of Cultivation
 en: Chapter 122 - Kill Him
 slug: tuez-le
 ---
-Parmi les dix membres du Temple du Dieu de la Guerre, hormis Ma Liang qui était parti quatre jours auparavant, seuls ces trois-là subsistaient. Zhou Zihong laissa échapper un soupir en contemplant les créatures étranges qui convergeaient vers eux. Elle ferma les yeux, accablée par le désespoir, et ne put s'empêcher de penser à Ma Liang.
+Parmi les dix membres du Sanctuaire du Dieu de la Guerre, hormis Ma Liang qui était parti seul quatre jours auparavant, seuls ces trois-là subsistaient. Zhou Zihong laissa échapper un soupir en contemplant les créatures étranges qui convergeaient vers eux. Elle ferma les yeux, accablée par le désespoir, et ne put s'empêcher de penser à Ma Liang.
 
 « Ce Ma Liang a toujours été aussi timide qu'une souris et craint la mort plus que tout, mais il se trouve qu'il a la peau épaisse, insensible aux coups comme aux reproches. La jeune apprentie sœur Tong n'en pouvait plus de ses importunités et avait imaginé un moyen de l'envoyer sur le champ de bataille étranger pour s'en débarrasser. Si je ne l'avais pas pris en pitié et ne l'avais pas aidé à maintes reprises, il serait déjà mort. Au moins, il possède une conscience. Il y a quelques jours, il m'a offert une pilule censée aider à préserver la jeunesse... Je me demande si c'est vrai... »
 
@@ -26,13 +26,13 @@ Plus de dix âmes errantes paniquèrent soudainement et s'enfuirent, disparaissa
 
 Zhou Zihong resta pétrifiée devant cette scène. Elle ne comprenait pas pourquoi ces créatures terrifiantes s'étaient ainsi éclipsées. Elle tourna la tête vers Wang Lin alors qu'une pensée insensée lui traversait l'esprit: « Ces créatures effrayantes auraient-elles peur de Ma Liang? »
 
-Mais elle écarta rapidement cette conjecture. Les deux autres disciples du Temple du Dieu de la Guerre étaient tout aussi perplexes, mais le soulagement de survivre à un péril si imminent les frappa de plein fouet, et ils poussèrent un long soupir de soulagement.
+Mais elle écarta rapidement cette conjecture. Les deux autres disciples du Sanctuaire du Dieu de la Guerre étaient tout aussi perplexes, mais le soulagement de survivre à un péril si imminent les frappa de plein fouet, et ils poussèrent un long soupir de soulagement.
 
 Le frère aîné Yang était le plus ancien d'entre eux. Après avoir jeté un regard inquiet autour de lui, encore tremblant, il déclara: « Jeune apprentie sœur, bien que nous ne sachions pas pourquoi ces créatures ne nous attaquent pas, rester ici n'est pas prudent. Nous devons rejoindre la matrice de transfert et partir sans tarder. »
 
 Zhou Zihong frissonna et acquiesça, puis ajouta: « Jeune frère Ma, tu es le plus faible d'entre nous, alors ne laisse surtout rien de ces choses te toucher. Si elles t'atteignent, ton âme se dispersera aussitôt! »
 
-L'autre disciple du Temple du Dieu de la Guerre s'exclama avec impatience: « De quoi discutez-vous encore? Si vous ne bougez pas, j'y vais seul! » Sur ce, il s'élança et chargea rapidement vers l'avant. Wang Lin savait, grâce aux souvenirs de Ma Liang, que cet homme se nommait Lin Tao.
+L'autre disciple du Sanctuaire du Dieu de la Guerre s'exclama avec impatience: « De quoi discutez-vous encore? Si vous ne bougez pas, j'y vais seul! » Sur ce, il s'élança et chargea rapidement vers l'avant. Wang Lin savait, grâce aux souvenirs de Ma Liang, que cet homme se nommait Lin Tao.
 
 Le frère aîné Yang partit également, refusant de rester sur place. Zhou Zihong hésita un instant avant de lancer: « Fais attention! », puis elle les suivit à son tour.
 
@@ -110,4 +110,4 @@ Mais l'âme devant lui était manifestement différente. Son corps était extrê
 
 À force d'accumuler ces marques, cette âme errante avait muté. Les yeux de Wang Lin brillèrent après l'avoir scrutée longuement. En la regardant, il ressentit la même sensation qu'autrefois en voyant l'Âme Naissante de Situ Nan dans l'espace onirique. On pouvait dire qu'ils avaient quelque chose en commun.
 
-La main droite de Wang Lin pointa vers Lin Tao. Il ordonna: « Tuez-le! »
+La main droite de Wang Lin pointa vers Lin Tao. Il ordonna: « Va le tuer! »

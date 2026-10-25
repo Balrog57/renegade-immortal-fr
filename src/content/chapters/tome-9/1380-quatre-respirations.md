@@ -66,7 +66,7 @@ Ce tatouage de tonnerre était phénoménal; dès qu'il apparut, Wang Lin le pro
 
 Le tatouage de tonnerre envahit le ciel et chargea vers Maître Simo!
 
-L'expression de Maître Simo devint grave. Tout au long de ce combat, c'était le sort de tonnerre de Wang Lin qu'il redoutait le plus. Bien qu'il ne l'ait jamais expérimenté directement, le souvenir des tentatives de Wang Lin pour briser la Porte du Vide suffisait à lui donner la chair de poule.
+L'expression de Maître Simo devint grave. Tout au long de ce combat, c'était le sort de tonnerre de Wang Lin qu'il redoutait le plus. Bien qu'il n'ait jamais vu cette technique de tonnerre ni affronté Wang Lin, la seule scène aperçue sur la planète de culture du Clan Zhenyan, où Wang Lin avait frappé la Porte du Vide, suffisait à lui donner la chair de poule.
 
 À cet instant, en voyant le tatouage de tonnerre, il se remémora la scène où Wang Lin avait tenté de briser la Porte du Vide. Il agita la main et la Restriction Temporelle l'enveloppa.
 

@@ -80,7 +80,7 @@ Peu de temps après, un autre cultivateur, puis un autre, furent désignés par 
 
 À mesure que les cultivateurs atterrissaient un à un, le mot « déchet » était lancé sans relâche. Même ceux qui réussissaient ne pouvaient échapper aux insultes de Luo Su. L'impatience du juge grandissait jusqu'à ce qu'il en vienne à déclencher le coup du géant doré avant même que le participant n'ait touché le sol.
 
-Environ une heure plus tard, plus de la moitié des cultivateurs avaient été testés et environ 40 % d'entre eux s'étaient qualifiés. L'homme aux six doigts, le garçon à la grosse tête et Nangong Han, dotés de niveaux de culture élevés, passèrent tous avec succès. Ce n'est que lors de leurs tests que l'expression de Luo Su s'adoucit et qu'il cessa de les traiter de déchets.
+Une demi-heure plus tard, plus de la moitié des cultivateurs avaient été testés et environ 40 % d'entre eux s'étaient qualifiés. L'homme aux six doigts, le garçon à la grosse tête et Nangong Han, dotés de niveaux de culture élevés, passèrent tous avec succès. Ce n'est que lors de leurs tests que l'expression de Luo Su s'adoucit et qu'il cessa de les traiter de déchets.
 
 « Toi, descends! » Luo Su pointa un individu dans le ciel. Il s'agissait de Xu Ting, venu de la planète Dong Lin. Ses yeux brillèrent d'une lueur rouge et il afficha un sourire sinistre.
 

@@ -82,7 +82,7 @@ Les yeux de Wang Lin brillèrent. Il s'engouffra dans la paroi et activa la tech
 
 Sun Lei le remarqua également et sortit précipitamment plusieurs pilules. Le cœur serré, il les avala et se remit aussitôt à cultiver.
 
-Une distance de 3,3 kilomètres n'était pas insurmontable pour un cultivateur de la Formation de l'Âme, mais il fallait traverser de nombreuses grottes et une puissance mystérieuse empêchait toute téléportation. Une demi-heure plus tard, Wang Lin apparut dans la grotte où se trouvait Sun Lei.
+Une distance de 3,3 kilomètres n'était pas insurmontable pour un cultivateur de la Formation de l'Âme, mais il fallait traverser de nombreuses grottes et une puissance mystérieuse empêchait toute téléportation. Sept minutes plus tard, Wang Lin apparut dans la grotte où se trouvait Sun Lei.
 
 Le visage de Sun Lei s'assombrit immédiatement. Il agita sa main droite en fixant Wang Lin du regard.
 
@@ -94,7 +94,7 @@ Sun Lei fut surpris par ces paroles. Bien sûr, il ne les crut pas, mais il rép
 
 Wang Lin ne répondit rien et s'assit en tailleur.
 
-Sun Lei resta sur ses gardes tout en absorbant rapidement les effets de la pilule. Trois heures plus tard, il était totalement rétabli et son regard envers Wang Lin n'était plus aussi hostile.
+Sun Lei resta sur ses gardes tout en absorbant rapidement les effets de la pilule. Quarante-cinq minutes plus tard, il était totalement rétabli et son regard envers Wang Lin n'était plus aussi hostile.
 
 Sun Lei se leva et dit: « Compagnon cultivateur, ma culture est restaurée. Et si nous repartions explorer? »
 

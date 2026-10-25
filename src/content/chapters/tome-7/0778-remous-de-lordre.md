@@ -54,7 +54,7 @@ Ce passage semblait sans fin. Les deux hommes marchaient depuis plus d'une heure
 
 Wang Lin le suivait de près, les sourcils de plus en plus froncés. À mesure qu'ils avançaient, une sensation étrange s'installa dans son cœur; c'était comme si quelqu'un pressait un doigt entre ses sourcils, provoquant une douleur diffuse.
 
-Plus ils s'enfonçaient dans le tunnel, plus cette sensation s'intensifiait. Après la durée d'une demi-bâton d'encens, les yeux de Wang Lin se plissèrent. Il saisit Li Yuan et s'arrêta net.
+Plus ils s'enfonçaient dans le tunnel, plus cette sensation s'intensifiait. Sept minutes plus tard, les yeux de Wang Lin se plissèrent. Il saisit Li Yuan, qui marchait devant lui, et s'arrêta net.
 
 Surpris, Li Yuan se retourna pour regarder Wang Lin.
 
@@ -76,7 +76,7 @@ Wang Lin demanda: « Le frère Li reconnaît-il ce symbole? »
 
 « Il m'est un peu familier... » Li Yuan fixa la rune et se mit à réfléchir. Après un long moment, il s'assit pour fouiller méthodiquement dans sa mémoire tous les symboles qu'il avait étudiés ou observés dans les anciens ouvrages.
 
-Une demi-bâton d'encens plus tard, Li Yuan fronça les sourcils: « Il existe quatre symboles similaires. Cependant, comme celui-ci est manifestement incomplet, il est impossible de déterminer lequel des quatre il s'agit! Frère Xu, où avez-vous obtenu ce symbole? »
+Sept minutes plus tard, Li Yuan fronça les sourcils: « Il existe quatre symboles similaires. Cependant, comme celui-ci est manifestement incomplet, il est impossible de déterminer lequel des quatre il s'agit! Frère Xu, où avez-vous obtenu ce symbole? »
 
 Wang Lin ne répondit pas, mais son sens divin continuait de s'étendre avec précaution. Après un long moment, il leva la main droite et poursuivit le tracé à partir des extrémités brisées du bas.
 

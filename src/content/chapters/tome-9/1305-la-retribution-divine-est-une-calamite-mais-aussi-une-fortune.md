@@ -52,7 +52,7 @@ Le Grand Ancien de la Secte Démon trembla, comme si le passé l'engloutissait. 
 
 Le corps du Grand Ancien de la Secte Démon frémit et il leva les yeux. Une lueur de froideur passa dans son regard lorsqu'il s'écria: « À vos ordres! »
 
-« Sous mes commandements, une fois la Mer des Nuages stabilisée, dirige-toi vers les trois autres grands systèmes stellaires. Va trouver Maître Nan Yunzi, Maître Hong Shan et Maître Zhan Xianzi. Dis-leur qu'ils peuvent enfin honorer l'accord passé...
+« Sous mes commandements, une fois la Mer des Nuages stabilisée, dirige-toi vers les trois autres grands systèmes stellaires. Va trouver Maître Nan Yunzi, Maître Hong Shanzi et Maître Zhan Xianzi. Dis-leur qu'ils peuvent enfin honorer l'accord passé...
 
 « Je veux que tu utilises ta vitesse maximale pour organiser les trois autres grands systèmes stellaires. Unissez les Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair en un seul pour mener... la grande guerre qui éclatera dans quelques années! »
 

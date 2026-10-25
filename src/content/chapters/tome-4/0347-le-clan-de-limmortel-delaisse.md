@@ -94,13 +94,13 @@ Les yeux de Wang Lin s'animèrent d'une lueur de satisfaction. D'un geste de la 
 
 Wang Lin leva les yeux vers l'horizon en attendant que le vieil homme retrouve ses esprits. La terreur dans les yeux de Qiu Siping et des autres était telle qu'aucun n'osait bouger. Même la tortue était terrifiée et n'osa plus grogner. La bête moustique profita de ce moment pour s'enfoncer dans le cou de la tortue afin d'en aspirer violemment le sang, avant de retourner satisfaite auprès du crapaud tonnerre.
 
-Une demi-heure plus tard, le vieil homme Hu ouvrit les yeux. Son regard était redevenu clair. Il se leva, joignit les mains et dit: « Merci, frère Wang! » Bien qu'il paraisse serein, il éprouvait désormais une crainte encore plus profonde pour Wang Lin. Si l'épée de ce dernier avait descendu d'un centimètre de plus, il serait mort sur le coup.
+Sept minutes plus tard, le vieil homme Hu ouvrit les yeux. Son regard était redevenu clair. Il se leva, joignit les mains et dit: « Merci, frère Wang! » Bien qu'il paraisse serein, il éprouvait désormais une crainte encore plus profonde pour Wang Lin. Si l'épée de ce dernier avait descendu d'un centimètre de plus, il serait mort sur le coup.
 
 Bien que cela fût dû au fait qu'il ne résistait pas et n'utilisait aucun trésor magique, cette sensation de vie ou de mort était désormais gravée dans son âme. Le vieil homme Hu pensa: « La réputation ne ment pas. Il n'est pas étonnant que le nom de Ceng Niu soit devenu si célèbre. Il est véritablement redoutable. »
 
 Wang Lin sourit simplement: « Ce n'est rien. »
 
-Un jour plus tard, la femme au voile blanc et le vieil homme à la robe verte n'étant toujours pas arrivés, ils décidèrent de ne plus les attendre après avoir discuté avec Wang Lin. Bien que le vieil homme Hu ignore l'emplacement exact de l'Arbre de Réincarnation, il en connaissait la direction approximative; ils choisirent donc de chercher tout en progressant.
+Un jour plus tard, la femme au voile blanc et le vieil homme à la robe bleue n'étant toujours pas arrivés, ils décidèrent de ne plus les attendre après avoir discuté avec Wang Lin. Bien que le vieil homme Hu ignore l'emplacement exact de l'Arbre de Réincarnation, il en connaissait la direction approximative; ils choisirent donc de chercher tout en progressant.
 
 Wang Lin acquiesça. Tous pénétrèrent au troisième étage.
 

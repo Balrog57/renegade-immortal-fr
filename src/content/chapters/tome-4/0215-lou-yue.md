@@ -1,9 +1,9 @@
 ---
 n: 215
-title: Lou Yue
+title: Luo Yue
 book: 4
 bookTitle: Clean Sweep
-en: Chapter 215 - Lou Yue
+en: Chapter 215 - Luo Yue
 slug: lou-yue
 ---
 Le vin n'était pas épicé. Il possédait une certaine douceur, bien différente du liquide spirituel de la Perle Défiant le Ciel, qui n'a aucun goût. Cependant, dès que le vin atteignit son estomac, une sensation de chaleur envahit tout son corps.
@@ -14,17 +14,17 @@ Cheng Xian laissa échapper un rire et dit: « C'est de l'eau de source spiritue
 
 Dès qu'il prononça ces mots, les deux singes laissèrent échapper quelques grognements de colère. Ils étaient manifestement très mécontents de ce que Cheng Xian venait de faire.
 
-Peu après, les singes spirituels ayant pris un détour, le patio oriental, qui aurait dû être assez éloigné, apparut peu à peu devant Wang Lin.
+Peu après, les singes spirituels ayant pris un détour, la cour est, qui aurait dû être assez éloignée, apparut peu à peu devant Wang Lin.
 
-Le patio oriental était très différent du patio sud. L'ensemble du secteur flottait dans les airs, entouré de nuages. Si l'on ne regardait pas attentivement, on ne pouvait même pas distinguer les édifices de jade blanc nichés au cœur des brumes.
+La cour est était très différente de la cour sud. L'ensemble du secteur flottait dans les airs, entouré de nuages. Si l'on ne regardait pas attentivement, on ne pouvait même pas distinguer les édifices de jade blanc nichés au cœur des brumes.
 
-Des grues volaient à travers les nuages et des éclats de rire cristallins s'échappaient du patio oriental. Dans un certain périmètre autour de celui-ci, un parfum agréable emplissait l'air.
+Des grues volaient à travers les nuages et des éclats de rire cristallins s'échappaient de la cour est. Dans un certain périmètre autour de celle-ci, un parfum agréable emplissait l'air.
 
-Cheng Xian regarda le patio oriental d'un air rêveur. Il soupira et marmonna: « Presque toutes les cultivatrices se trouvent dans le patio oriental. Imagine un peu toutes ces beautés à l'intérieur... Si je pouvais seulement y vivre un an, j'en serais comblé. »
+Cheng Xian regarda la cour est d'un air rêveur. Il soupira et marmonna: « Presque toutes les cultivatrices se trouvent dans la cour est. Imagine un peu toutes ces beautés à l'intérieur... Si je pouvais seulement y vivre un an, j'en serais comblé. »
 
-Les yeux de Wang Lin s'illuminèrent légèrement. Il ignora les propos de Cheng Xian et concentra son attention sur la restriction placée sous le patio oriental. Cette barrière servait non seulement à maintenir le patio en suspension, mais elle avait également pour effet de bloquer la vue depuis l'extérieur.
+Les yeux de Wang Lin s'illuminèrent légèrement. Il ignora les propos de Cheng Xian et concentra son attention sur la restriction placée sous la cour est. Cette barrière servait non seulement à maintenir la cour en suspension, mais elle avait également pour effet de bloquer la vue depuis l'extérieur.
 
-Un groupe de grues émergea de la brume. Sept ou huit jeunes filles étaient assises sur les créatures, chacune aussi belle qu'une fleur et dotée de formes graciles; la jeune fille en tête avait un visage légèrement plus beau que celui des autres. Arrivée devant Cheng et Wang, elle cria: « Le patio oriental est une zone interdite! Entrée strictement interdite! »
+Un groupe de grues émergea de la brume. Sept ou huit jeunes filles étaient assises sur les créatures, chacune aussi belle qu'une fleur et dotée de formes graciles; la jeune fille en tête avait un visage légèrement plus beau que celui des autres. Arrivée devant Cheng et Wang, elle cria: « La cour est est une zone interdite! Entrée strictement interdite! »
 
 Une fois ses mots lâchés, elle lança un regard furieux à Cheng Xian et ajouta avec méchanceté: « Cheng Xian, pourquoi es-tu encore ici? Si tu viens encore importuner la sœur Tong, ne me reproche pas d'être impitoyable! »
 
@@ -64,7 +64,7 @@ Quant aux tintements qui se dirigeaient vers Wang Lin, ils s'immobilisèrent sou
 
 Le singe né des effluves du chaudron tourna soudainement la tête et regarda Wang Lin avec une grande surprise. Puis, son corps se dissipa de nouveau pour redevenir le petit chaudron, que Cheng Xian avala à nouveau d'une aspiration.
 
-« N'attaquez pas! Je ne suis pas venu pour me battre, mais pour accompagner ce compagnon dans sa recherche », dit Cheng Xian d'un air amer. Il pensait qu'il n'arriverait jamais à pénétrer dans le patio. C'était de sa faute: s'il n'avait pas offensé cette fille, Cheng Ling, il n'en serait pas là.
+« N'attaquez pas! Je ne suis pas venu pour me battre, mais pour accompagner ce compagnon dans sa recherche », dit Cheng Xian d'un air amer. Il pensait qu'il n'arriverait jamais à pénétrer dans la cour. C'était de sa faute: s'il n'avait pas offensé cette fille, Cheng Ling, il n'en serait pas là.
 
 « Chercher qui? Ce n'est pas la sœur aînée Tong, j'espère?! » Cheng Ling prit une pilule dans son sac de rangement et l'avala. Son visage retrouva son aspect normal; elle regarda Wang Lin et dit froidement, avec un profond dégoût dans le regard.
 
@@ -76,7 +76,7 @@ La jeune fille, Cheng Ling, fronça les sourcils et demanda d'un ton féroce: «
 
 Wang Lin eut un petit rire et répliqua: « Qu'est-ce que ça peut vous faire? »
 
-La colère brilla dans ses yeux, mais elle la réprima de force. Elle sortit un morceau de jade de son sac et, après l'avoir tenu un instant, le lança derrière elle. Le jade s'envola rapidement vers le patio oriental.
+La colère brilla dans ses yeux, mais elle la réprima de force. Elle sortit un morceau de jade de son sac et, après l'avoir tenu un instant, le lança derrière elle. Le jade s'envola rapidement vers la cour est.
 
 Puis, elle se tourna vers Cheng Xian: « Cheng Xian, si tu continues à ressortir ces vieilleries, je rentrerai chez moi pour dire à ton père que tu me harcèles! »
 
@@ -88,7 +88,7 @@ Cheng Xian soupira secrètement et se rapprocha de Wang Lin. Il sourit ironiquem
 
 Wang Lin garda son calme et répondit lentement: « J'ai fait tout ce que je devais faire pour t'aider. Que Luo Yue sorte ou non, j'aurai tenu ma promesse envers toi. »
 
-Cheng Xian soupira. Il retourna la main droite, sortit un jade de transmission vocale de son sac de rangement et le lança à Wang Lin. Il allait parler lorsque, soudain, une grue s'élança du patio oriental, portant sur son dos une jeune fille d'une beauté exquise dont les yeux étaient écarquillés par l'incrédulité en fixant Wang Lin.
+Cheng Xian soupira. Il retourna la main droite, sortit un jade de transmission vocale de son sac de rangement et le lança à Wang Lin. Il allait parler lorsque, soudain, une grue s'élança de la cour est, portant sur son dos une jeune fille d'une beauté exquise dont les yeux étaient écarquillés par l'incrédulité en fixant Wang Lin.
 
 En approchant, elle sauta de la grue et demanda à Wang Lin: « Vous êtes venu me chercher? »
 
@@ -100,7 +100,7 @@ Cheng Ling observa Wang Lin un instant, puis lança un regard d'avertissement à
 
 Luo Yue cligna des yeux, ignora totalement Cheng Xian et demanda à Wang Lin: « Comment connaissez-vous mon nom? »
 
-Wang Lin réfléchit un instant et dit d'un ton neutre: « Si cela ne vous dérange pas, je vous prie de conduire cet homme dans le patio oriental. S'il peut voir la sœur aînée Tong, ce serait l'idéal. Sinon, tant pis. »
+Wang Lin réfléchit un instant et dit d'un ton neutre: « Si cela ne vous dérange pas, je vous prie de conduire cet homme dans la cour est. S'il peut voir la sœur aînée Tong, ce serait l'idéal. Sinon, tant pis. »
 
 Sur ces mots, il partit sans même se retourner, laissant Luo Yue et Cheng Xian stupéfaits. Ils restèrent là un long moment, incapables de trouver leurs mots.
 
@@ -114,9 +114,9 @@ Luo Yue lança un regard mécontent à Cheng Xian: « C'est toi, le vénérable,
 
 Cheng Xian affichait un visage amer, mais alors qu'il s'apprêtait à partir, la voix claire de Luo Yue tomba du ciel: « Suivez-moi par vos propres moyens. Mais ce sera la seule et unique fois! »
 
-Soudainement enthousiasmé, Cheng Xian suivit rapidement la grue vers le patio oriental.
+Soudainement enthousiasmé, Cheng Xian suivit rapidement la grue vers la cour est.
 
-Après avoir quitté le patio oriental, Wang Lin retourna dans sa cour du patio nord. Rien n'avait changé à l'intérieur, et les restrictions qu'il avait posées avant de partir n'avaient pas été déclenchées.
+Après avoir quitté la cour est, Wang Lin retourna dans sa demeure de la cour nord. Rien n'avait changé à l'intérieur, et les restrictions qu'il avait posées avant de partir n'avaient pas été déclenchées.
 
 Une fois de retour chez lui, il sortit le fourneau à pilules que Li Muwan lui avait offert, le posa dans la pièce et reprit sa vie d'alchimie et de culture.
 

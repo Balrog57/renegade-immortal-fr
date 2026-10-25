@@ -22,7 +22,7 @@ Zhao Xinmeng regarda Wang Lin et, après avoir hésité un instant, elle dit dou
 
 Elle mordit sa lèvre inférieure, rabattit sa manche, puis regarda Wang Lin avant de s'en aller.
 
-« C'est mon dernier espoir. S'il peut combattre Ling Tianhou, sa culture ne peut pas être seulement au stade du Scruteur du Nirvana; il est probablement au stade du Purificateur du Nirvana. S'il m'aide, il doit être capable de supprimer complètement le sceau... » Zhao Xinmeng laissa échapper un soupir et sa silhouette disparut à l'horizon.
+« C'est mon dernier espoir. S'il peut combattre Ling Tianhou, sa culture ne peut pas être seulement au stade du Scruteur du Nirvana; il est probablement au stade du Purificateur du Nirvana. S'il m'aide, il pourra sûrement maintenir le sceau complètement scellé... » Zhao Xinmeng laissa échapper un soupir et sa silhouette disparut à l'horizon.
 
 « Si je demande l'aide d'autrui, avec Maître présent, je crains que personne n'ose m'aider... »
 
@@ -94,7 +94,7 @@ En conséquence, il y avait peu de disciples ordinaires sur la Montagne Pourpre,
 
 En descendant la montagne, il ne croisa personne. Xu Liguo suivait Wang Lin, et la lumière du soleil qui tombait sur lui ne lui causait aucun inconfort. Au contraire, cela lui semblait agréable, surtout à l'idée de rencontrer bientôt cette beauté. Le cœur de Xu Liguo s'agita, et il en voulut à Wang Lin d'être aussi lent.
 
-En observant l'ombre de Wang Lin, Xu Liguo pensa: « Ce démon a cultivé pendant tant d'années sans avoir connu le moindre plaisir, mais même ce Grand-père Xu doit admirer sa progression! Ce petit cultivateur de la Formation du Noyau est devenu une puissance... » Aussitôt, il chassa cette pensée: « Je ne peux pas devenir comme lui. Quel intérêt y a-t-il à vivre ainsi? On peut dire que la culture de ce démon s'est bâtie sur le danger et le massacre. Moi, Xu Liguo, je ne suis pas fait pour ça. C'est bien plus agréable de tenir des beautés dans ses bras. »
+En regardant Wang Lin de dos, Xu Liguo pensa: « Ce démon a cultivé pendant tant d'années sans avoir connu le moindre plaisir, mais même ce Grand-père Xu doit admirer sa progression! Ce petit cultivateur de la Formation du Noyau est devenu une puissance... » Aussitôt, il chassa cette pensée: « Je ne peux pas devenir comme lui. Quel intérêt y a-t-il à vivre ainsi? On peut dire que la culture de ce démon s'est bâtie sur le danger et le massacre. Moi, Xu Liguo, je ne suis pas fait pour ça. C'est bien plus agréable de tenir des beautés dans ses bras. »
 
 « Si j'étais comme lui, je serais certainement détruit tôt ou tard. Je me demande quand la malchance frappera ce démon et qu'il sera tué... Non, s'il meurt, mon sort ne sera pas meilleur. Peut-être que mon esprit sera effacé pour n'être qu'un simple esprit d'épée. » Tandis qu'Xu Liguo divaguait, Wang Lin était arrivé au pied de la montagne.
 

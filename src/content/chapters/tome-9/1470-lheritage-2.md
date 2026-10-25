@@ -16,7 +16,7 @@ Le temps s'écoulait lentement tandis que Wang Lin demeurait immobile. Les image
 
 Après un laps de temps indéterminé, les cultivateurs environnants étaient tous devenus silencieux. Seuls les flammes au-dessus de leurs têtes continuaient de brûler, enveloppant la zone d'une atmosphère irréelle.
 
-En ce jour, une silhouette vêtue d'une robe Qicai Daoren apparut soudainement dans le silence du palais. Il se tint devant l'homme d'âge moyen qui avait ouvert le parapluie et resta longuement en méditation silencieuse.
+En ce jour, une silhouette vêtue d'une robe de Dao aux sept couleurs apparut soudainement dans le silence du palais. Il se tint devant l'homme d'âge moyen qui avait ouvert le parapluie et resta longuement en méditation silencieuse.
 
 « J'ai recueilli trois enfants au cours de ma vie... Et vous étiez celui qui comptait le plus... » Le cultivateur aux sept couleurs laissa échapper un soupir et passa devant l'homme d'âge moyen. Il s'arrêta devant Li Guang, qui semblait toujours tenir son arc.
 

@@ -42,7 +42,7 @@ Le cœur de Wang Lin se mit à trembler lorsqu'il effleura doucement la lame de 
 
 La trace d'intention d'épée sur cette lame était précisément celle que Zhou Yi dégageait lorsqu'il s'était transformé en esprit d'épée!
 
-À l'époque, Zhou Yi avait poursuivi le Saint de l'Épée Ling Tianhou. Plus de cent ans s'étaient écoulés depuis cet événement.
+À l'époque, Zhou Yi avait poursuivi le Saint de l'Épée Ling Tianhou. Plus de cent ans s'étaient écoulés depuis, sans la moindre nouvelle de lui !
 
 C'était la première fois qu'il ressentait l'intention d'épée de Zhou Yi. S'il n'avait pas passé de longues années sous la pagode à comprendre le domaine d'Ascendant de Zhou Yi, il n'aurait jamais pu identifier d'un simple coup d'œil que cette intention appartenait à ce dernier.
 

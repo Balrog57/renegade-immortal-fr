@@ -12,7 +12,7 @@ Il leva la main pour observer le poisson sur sa ligne. La lumière du soleil sci
 
 L'homme sourit et déposa le poisson dans un récipient rempli d'eau, puis s'éloigna avec celui-ci.
 
-Wang Lin observa la scène, les spéculations emplissant son esprit. Après un moment de stupeur, il suivit l'homme. Ce dernier marcha pendant environ le temps d'un bâton d'encens avant d'arriver devant une humble demeure nichée près de la rivière.
+Wang Lin observa la scène, les spéculations emplissant son esprit. Après un moment de stupeur, il suivit l'homme. Ce dernier marcha pendant environ quinze minutes avant d'arriver devant une humble demeure nichée près de la rivière.
 
 La maison était entourée d'une cour délimitée par des bambous. Quelques volailles criaient en se disputant de la nourriture autour d'une femme enceinte.
 
@@ -30,7 +30,7 @@ L'homme rit et s'avança pour aider sa femme à entrer dans la pièce.
 
 Un instant plus tard, une fumée s'éleva haut dans les airs. De loin, cette volute ressemblait à un tableau et dégageait une certaine beauté.
 
-La silhouette de Wang Lin flottait dans la forêt de bambous tandis qu'il observait tout cela en méditant silencieusement. Il comprenait vaguement que ce pouvait être la dernière réincarnation de la troisième âme.
+La silhouette de Wang Lin flottait dans la forêt de bambous tandis qu'il observait tout cela en méditant silencieusement. Il comprenait vaguement qu'il s'agissait peut-être de la réincarnation la plus récente de la troisième âme.
 
 Trois jours plus tard, tard dans la nuit, le monde changea de teinte et le tonnerre gronda sous une pluie battante. De lourdes gouttes frappaient les bambous et la demeure.
 

@@ -10,7 +10,7 @@ Mais, après avoir comparé l'eau spirituelle à l'eau de la source des montagne
 
 Si on la consommait régulièrement, on pourrait paraître jeune éternellement. Il n'en avait pris que quelques gouttes et en avait immédiatement remarqué l'effet. Cette révélation le plongea dans une immense excitation.
 
-Il faut dire que seule l'atteinte du stade de l'Âme Naissante permettait de garder une apparence éternellement jeune, mais à ce stade, des centaines, voire des milliers d'années s'étaient déjà écoulées.
+Il faut dire que seule l'atteinte du stade de l'Âme Naissante permettait de garder une apparence éternellement jeune, mais à ce stade, des centaines d'années, voire plus d'un millier, s'étaient déjà écoulées.
 
 Zhang Kuang savait que si cette eau spirituelle était proposée en échange auprès d'autres sectes, elles en deviendraient folles, en particulier les cultivatrices aux stades de l'Établissement des Fondations ou de la Formation du Noyau.
 
@@ -28,7 +28,7 @@ Il y avait aussi cet incident au bord de la rivière. En y repensant, Zhang Kuan
 
 Ce n'est pas qu'il ne se demandait pas comment Wang Lin était devenu si fort, mais face au niveau de culture actuel de ce dernier, il s'interrompit aussitôt. Il sentait que s'il continuait à chercher la réponse, il mettrait sa propre vie en péril.
 
-Le frère Zhang, qui avait toujours réprimandé Wang Lin pour qu'il s'entraîne plus dur, se sentait profondément perplexe. Il regarda Wang Lin et dit d'un ton sombre: « Ce Wang Lin est un jeune homme que j'ai personnellement ramené de la famille Wang. C'était clairement un adolescent ordinaire. Quand il a tenté de se suicider, c'est moi qui l'ai sauvé. Cinq ans ont passé, et tant de choses ont changé. Il est désormais le plus grand expert parmi les disciples internes de la Secte Heng Yue. Le destin est vraiment étrange, chacun suit un chemin différent! Moi qui ai cultivé avec acharnement pendant plus de dix ans, je n'ai atteint que le 6ème niveau. »
+Le frère Zhang, qui avait toujours réprimandé Wang Lin pour qu'il s'entraîne plus dur, se sentait profondément perplexe. Il regarda Wang Lin sur l'estrade et songea avec mélancolie: « Ce Wang Lin est un jeune homme que j'ai personnellement ramené de la grande demeure de la famille Wang. C'était clairement un adolescent ordinaire. Quand il a tenté de se suicider, c'est moi qui l'ai sauvé. Cinq ans ont passé, et tant de choses ont changé. Il est désormais le plus grand expert parmi les disciples internes de la Secte Heng Yue. Le destin est vraiment étrange, chacun suit un chemin différent! Moi qui ai cultivé avec acharnement pendant plus de dix ans, je n'ai atteint que le 6ème niveau. »
 
 Si la Secte Xuan Dao avait été surprise auparavant, elle était maintenant sous le choc!
 

@@ -22,7 +22,7 @@ Au lieu de dégager de la chaleur, cette flamme émettait un froid glacial. Elle
 
 Dès l'apparition de la Flamme des Enfers, la glace bleue qui l'entourait commença immédiatement à dégager une vapeur blanche, comme si elle était sur le point de fondre. Wang Lin agita la main et la flamme disparut. La vapeur se dissipa lentement, révélant un creux dans la glace.
 
-Wang Lin s'étonna intérieurement de la puissance de la flamme avant de regarder autour de lui et d'enfiler un nouvel ensemble de vêtements. Les yeux fixés sur les ossements, il se mit à réfléchir. Une demi-heure plus tard, il s'assit en position de lotus et sortit le crâne du dragon.
+Wang Lin s'étonna intérieurement de la puissance de la flamme avant de regarder autour de lui et d'enfiler un nouvel ensemble de vêtements. Les yeux fixés sur les ossements, il se mit à réfléchir. Quinze minutes plus tard, il s'assit en position de lotus et sortit le crâne du dragon.
 
 En contemplant le crâne, les yeux de Wang Lin s'illuminèrent. Il décida de se rendre à la ville de Nan Dou pour échanger un fourneau à pilules afin que Li Muwan puisse achever la Pilule du Ciel Lointain. Bien que trois ans se soient écoulés en un clin d'œil, il savait, grâce au lien ténu qui l'unissait à son sang d'essence de l'âme, que Li Muwan n'avait couru aucun danger.
 
@@ -52,7 +52,7 @@ Après une courte réflexion, il sortit la Flamme des Enfers. Dès que la flamme
 
 Sans hésiter, Wang Lin pressa les fils d'énergie spirituelle. Cette fois, ils s'enroulèrent directement autour du crâne.
 
-Cependant, après un quart d'heure, le crâne changea de couleur trois fois avant de se briser en cendres. Il restait désormais beaucoup moins de fils; ils semblaient avoir perdu une grande partie de leur énergie spirituelle.
+Cependant, au bout de sept minutes, le crâne changea de couleur trois fois avant de se briser en cendres. Il restait désormais beaucoup moins de fils; ils semblaient avoir perdu une grande partie de leur énergie spirituelle.
 
 Wang Lin fronça les sourcils. La difficulté de fabriquer ce fourneau était bien plus élevée qu'il ne l'avait imaginé. Il comprit que si peu de personnes maîtrisaient la technique de raffinage, c'était précisément à cause de ce fourneau de réaction.
 
@@ -66,7 +66,7 @@ Wang Lin laissa échapper un léger reniflement en contemplant l'océan infini d
 
 « Je ne crois pas être incapable de fabriquer un seul fourneau avec autant de restes de bêtes spirituelles. » Les yeux de Wang Lin s'illuminèrent. Il referma la main pour générer davantage de fils d'énergie spirituelle. Une fois les fils reconstitués, il les saisit et les plaça sur un autre crâne.
 
-Une demi-heure plus tard, le crâne vola à nouveau en éclats.
+Quinze minutes plus tard, le crâne vola à nouveau en éclats.
 
 Il continua ainsi, sans relâche. Wang Lin ne savait plus combien de crânes il avait brisés, mais il savait qu'il avait dû reconstituer ses fils plus de cent fois.
 

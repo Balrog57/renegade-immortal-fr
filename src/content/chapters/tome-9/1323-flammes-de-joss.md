@@ -10,7 +10,7 @@ Le royaume de 10 000 pieds se rétracta dans le corps de Wang Lin, mais celui-ci
 
 Tout en réfléchissant, son corps vacilla et il disparut. Il réapparut sur la montagne et s'assit. Il resta hébété un instant, trouvant encore difficile de croire ce qui venait de se produire.
 
-Après quinze minutes, Wang Lin ferma les yeux et projeta son esprit à l'intérieur de son corps. Au-dessus de son âme originelle flottait une sphère tourbillonnante, et à l'intérieur se trouvait le Monde du Vent et de la Pluie!
+Après sept minutes, Wang Lin ferma les yeux et projeta son esprit à l'intérieur de son corps. Au-dessus de son âme originelle flottait une sphère tourbillonnante, et à l'intérieur se trouvait le Monde du Vent et de la Pluie!
 
 Bien que le Monde du Vent et de la Pluie ne couvrait que 10 000 pieds lorsqu'il était à l'extérieur de son corps, il était sans limites une fois à l'intérieur! À cet instant, de nombreux continents flottaient dans ce royaume, tous formés par l'effondrement du Sceau Céleste...
 

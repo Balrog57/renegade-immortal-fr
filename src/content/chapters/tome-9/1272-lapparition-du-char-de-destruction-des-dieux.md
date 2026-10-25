@@ -88,11 +88,11 @@ Il atterrit soudainement et, alors que Wang Lin bougeait, les deux chars de guer
 
 « Ces deux chars sont ma quatrième contre-attaque! Malheureusement, je manque de temps. Si j'en avais davantage, je pourrais en préparer d'autres! » Wang Lin leva les yeux vers le ciel. Il ne restait plus qu'un jour!
 
-Il ne restait que 12 heures!
+Il ne restait que vingt-quatre heures!
 
-Il prédisait que dans 12 heures, l'ennemi qui cherchait sa mort arriverait, et la crise de vie ou de mort commencerait!
+Il prédisait que dans vingt-quatre heures, l'ennemi qui cherchait sa mort arriverait, et la crise de vie ou de mort commencerait!
 
-« Ma dernière préparation consistera à extraire la rouille de sang de l'épée de fer brisée durant ces 12 prochaines heures! » Wang Lin agita la main droite et l'épée de fer s'envola.
+« Ma dernière préparation consistera à extraire la rouille de sang de l'épée de fer brisée durant ces vingt-quatre prochaines heures! » Wang Lin agita la main droite et l'épée de fer s'envola.
 
 Même réparée, cette épée ne suffirait pas à contrer cette crise, et Wang Lin n'avait nullement l'intention de la restaurer; il était trop tard pour cela. Ce qu'il convoitait, c'étaient les taches de sang sur le fer!
 

@@ -24,7 +24,7 @@ Bien que ce fût le cas, Wang Lin ne le considérait pas comme un fardeau.
 
 « Quoi qu'il en soit, le sort contenu dans le troisième œil sera mon atout ultime pour sauver ma vie! »
 
-Après Wang Lin, les autres cultivateurs poursuivirent l'épreuve. Deux bâtons d'encens plus tard, tous les survivants avaient achevé la troisième épreuve.
+Après Wang Lin, les autres cultivateurs passèrent l'épreuve à tour de rôle. Une demi-heure plus tard, tous les survivants avaient achevé la troisième épreuve.
 
 La main droite de Lie Yunzi s'étira et le Parchemin de Bataille revint dans sa paume. En se retournant, une rafale de vent s'échappa de son corps. Tous ceux qui n'avaient pas réussi furent renvoyés dans la matrice de transfert dans le ciel.
 

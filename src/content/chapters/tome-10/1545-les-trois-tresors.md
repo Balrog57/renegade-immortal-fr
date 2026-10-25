@@ -84,7 +84,7 @@ Il n'y aurait aucun problème si Wang Lin le trompait lui-même, mais il ne perm
 
 La colère fit briller les yeux du fou qui se mit à rugir. Il se débattit et utilisa une méthode inconnue pour se libérer de la lumière dorée, puis hurla après Wang Lin avec un air fier:
 
-« Bon sang, tu oses essayer de forcer ce roi?! Même mon grand frère ne peut pas me contrôler! Si ce roi veut aller jouer là-bas, il ira! Même si tu es le maître de ce roi, et alors? Humph, hmph, combien d'enseignants ce roi possède-t-il? Laisse-moi compter: un, trois, huit... Peu importe, comment oses-tu me contraindre!
+« Bon sang, tu oses essayer de forcer ce roi?! Même mon grand frère ne peut pas me contrôler! Si ce roi veut aller jouer là-bas, il ira! Même si tu es le maître de ce roi, et alors? Humph, hmph, combien d'enseignants ce roi possède-t-il? Laisse-moi compter: un, trois, huit... j'ai oublié, de toute façon il y en a plein! Qui oserait me contraindre?
 
 « Je vais aller jouer là-bas! » Le fou foudroya Wang Lin du regard et montra ses dents dans une expression féroce.
 

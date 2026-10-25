@@ -88,7 +88,7 @@ Le vent noir autour de lui grandit soudainement de plusieurs fois. À cet instan
 
 Sa voix émergea du tourbillon, semblable au rugissement d'une tempête. Le vent noir changea brusquement de forme pour devenir deux dragons noirs. Ces derniers étaient d'une férocité extrême; ils encerclèrent l'homme aux cheveux blancs et ouvrirent la gueule pour cracher d'immenses rafales de vent glacial.
 
-Le corps de l'homme aux cheveux blancs fut projeté par le vent froid, faisant trembler sa stature. Cependant, ses yeux furent aussitôt envahis par une intention meurtrière.
+Le corps de l'homme aux cheveux blancs, soufflé par ce vent glacial, frissonna, chose rare chez lui. Cependant, ses yeux furent aussitôt envahis par une intention meurtrière.
 
 À ce moment précis, Wang Lin hurla intérieurement: « Pas assez, absorbe encore plus!! » La moitié du corps de sang dans sa main se contracta violemment. Simultanément, des bruits d'explosions résonnèrent dans son propre corps; manifestement, son organisme ne pouvait supporter une telle concentration d'énergie originelle opérant simultanément.
 

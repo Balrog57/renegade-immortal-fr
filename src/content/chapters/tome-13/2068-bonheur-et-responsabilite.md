@@ -110,7 +110,7 @@ Wang Lin s'avança jusqu'à lui et pointa le front du dormeur du doigt. Soudain,
 
 Wang Lin ferma les yeux et son Sens Divin se propagea à travers son doigt, pénétrant le corps du fou pour l'éveiller.
 
-Un bref instant plus tard, une demi-heure s'était écoulée. Wang Lin ouvrit les yeux, affichant une expression complexe en regardant l'homme, et dit:
+Le temps s'écoula lentement, et en un clin d'œil, une heure s'était écoulée. Wang Lin ouvrit les yeux, affichant une expression complexe en regardant l'homme, et dit:
 
 « Si tel est ton véritable choix, alors je le respecte... Prends soin de toi. » Wang Lin se leva avec un soupir et marcha vers la voûte céleste, disparaissant du palais souterrain.
 

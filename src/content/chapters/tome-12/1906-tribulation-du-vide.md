@@ -126,7 +126,7 @@ Des éclairs crépitèrent entre les sourcils de Wang Lin, tandis que son corps 
 
 En n'offrant qu'une seule année de vie pour la huitième épreuve, il avait pris sa décision. Il ne comptait pas simplement passer la neuvième tribulation, il comptait la détruire!
 
-Quelle que soit la puissance de cette épreuve, il n'en aurait cure, car son but était sa destruction! Simplement franchir les huit étapes ne suffisait pas. Se contenter de résister à la dernière ne correspondait pas à son caractère. Wang Lin nourrissait une haine envers ces calamités célestes qu'il ne comprenait même pas lui-même!
+Quelle que soit la puissance de cette épreuve, il n'en aurait cure, car son but était sa destruction! Se contenter de franchir les tribulations, huit suffisaient. Pour la dernière, résister péniblement ne correspondait pas à son caractère. Wang Lin nourrissait une haine envers ces calamités célestes qu'il ne comprenait même pas lui-même!
 
 Cette haine s'était manifestée à maintes reprises au cours de sa vie!
 
@@ -201,7 +201,7 @@ Dans l'effondrement, la poussière s'éleva, dissimulant la silhouette de Wang L
 
 Cette aura était si puissante qu'elle forma un vortex. Ce tourbillon aspira les débris du ciel et de la terre ainsi que la force destructrice de la Tribulation Arcanique. Le vortex se formait au centre même du Continent du Démon Vert, là où se trouvait le Temple du Scorpion Démon Vert!!
 
-Plus d'une douzaine de cultivateurs du continent affichèrent des visages empreints de crainte et d'admiration. Dès que la pression du Vide Arcanique se dissipa, ils s'approchèrent rapidement.
+Plus d'une douzaine de cultivateurs du continent affichèrent des visages empreints de crainte et d'admiration. Dès que la pression de la Tribulation Arcanique se dissipa, ils s'approchèrent rapidement.
 
 « Salutations, Seigneur Démon Vert! »
 « Félicitations pour votre résurrection, Seigneur Démon Vert! »

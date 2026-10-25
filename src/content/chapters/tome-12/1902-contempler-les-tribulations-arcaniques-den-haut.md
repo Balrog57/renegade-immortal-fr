@@ -98,7 +98,7 @@ Sous l'effet de ces fracas, son niveau de culture passa du stade avancé du Vide
 
 Cette fluctuation fut dissimulée par la déferlante d'énergie mondiale. Les cultivateurs du continent n'osaient pas non plus déployer leur Sens Divin, de peur d'irriter le Scorpion Vert en pleine résurrection. Ils craignaient sa colère, et personne ne remarqua rien.
 
-Atteignant le sommet de l'Arcane Vide, Wang Lin ouvrit les yeux, révélant un regard d'une froideur terrifiante. D'un geste de la main droite, il fusionna son corps véritable d'essence des cinq éléments avec son propre corps.
+Atteignant le sommet du Vide Arcanique, Wang Lin ouvrit les yeux, révélant un regard d'une froideur terrifiante. D'un geste de la main droite, il fusionna son corps véritable d'essence des cinq éléments avec son propre corps.
 
 À cet instant, sa puissance fut multipliée plusieurs fois!
 

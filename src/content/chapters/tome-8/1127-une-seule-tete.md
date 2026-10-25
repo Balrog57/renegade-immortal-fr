@@ -26,7 +26,7 @@ Lorsqu'il sortit du vortex, ce qui apparut devant lui fut un cimetière d'épée
 
 Une puissante mélancolie émanait des lames, qui dégageaient une aura de solitude.
 
-Wang Lin n'eut pas le temps d'observer son environnement et chargea immédiatement. Simultanément, son œil droit s'illumina et le tonnerre enveloppa son corps. De loin, Wang Lin ressemblait à un céleste du tonnerre des temps anciens.
+Wang Lin n'eut pas le temps d'observer son environnement et chargea immédiatement. Simultanément, son œil droit s'illumina et le tonnerre enveloppa son corps. De loin, Wang Lin semblait faire renaître son ancien titre de Céleste du Tonnerre.
 
 Sans la moindre hésitation, il fonça en avant, puis pointa la main derrière lui. Le tonnerre qui l'entourait sembla trouver une ouverture et fut projeté dans son sillage.
 

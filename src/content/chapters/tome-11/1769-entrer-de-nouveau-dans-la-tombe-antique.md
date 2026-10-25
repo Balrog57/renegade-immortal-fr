@@ -10,7 +10,7 @@ Une pointe de douleur jaillit du bras gauche de Wang Lin. Il avait l'impression 
 
 Ce gaz semblait infini et continuait de pénétrer dans le membre de Wang Lin. Son bras gauche devint progressivement rugueux, tandis que des runes complexes y scintillaient.
 
-Ce n'est qu'après le temps d'un bâton d'encens que la dernière parcelle de gaz pénétra dans son bras gauche. Cette sensation de pouvoir déchirer le monde, qu'il avait ressentie lorsqu'il avait obtenu le bras droit, envahit son cœur.
+Ce n'est qu'au bout de quinze minutes que la dernière parcelle de gaz pénétra dans son bras gauche. Cette sensation de pouvoir déchirer le monde, qu'il avait ressentie lorsqu'il avait obtenu le bras droit, envahit son cœur.
 
 Il fit bouger lentement ses cinq doigts de la main gauche dans un craquement sinistre. Après un long moment, Wang Lin serra le poing, se leva et avança d'un pas dans le vide. Il se retrouva en plein ciel, au-dessus du bassin de glace.
 
@@ -62,7 +62,7 @@ Wang Lin connaissait cette voix!
 
 « Tuo Sen... » Wang Lin fut surpris et son regard se fit grave. Il examina de plus près la fleur noire qui recouvrait près de la moitié du ciel. Ses yeux s'illuminèrent, il posa le pied sur un pétale noir, puis il disparut sans laisser de trace.
 
-Une demi-heure après l'entrée de Wang Lin dans la fleur, les autres arrivèrent. Lorsqu'ils virent l'océan mort en contrebas, leurs visages se crispèrent.
+Environ une heure après l'entrée de Wang Lin dans la fleur, les autres arrivèrent. Lorsqu'ils virent l'océan mort en contrebas, leurs visages se crispèrent.
 
 Cependant, sans trop hésiter, ils pénétrèrent tous dans le monde contenu dans la quatrième fleur.
 
@@ -86,7 +86,7 @@ Lorsqu'il avait obtenu l'héritage de Ye Mo, il avait eu la sensation qu'un cœu
 
 S'il parvenait à absorber le cœur de Ye Mo au fond, son héritage serait complet. Bien sûr, cette complétude resterait incomplète sans l'œil gauche!
 
-Toutefois, s'il absorbait ce cœur, même sans l'œil gauche, il était probable que Wang Lin puisse former sa neuvième étoile de Dieu Antique! Même son étoile de Démon Antique pourrait atteindre le rang de neuf!
+Toutefois, s'il absorbait ce cœur, même sans l'œil gauche, il était probable que Wang Lin puisse former sa neuvième étoile de Dieu Antique! Même son étoile de Diable Antique pourrait atteindre le rang de neuf!
 
 En conséquence, Wang Lin deviendrait un Dieu Antique à 9 étoiles et son pouvoir du Dao Ancien entrerait en éruption!
 

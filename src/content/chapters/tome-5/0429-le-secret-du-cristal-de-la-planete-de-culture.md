@@ -91,7 +91,7 @@ Presque chaque jour, une multitude de cultivateurs mouraient au combat.
 
 Simultanément, une suite de nouvelles fracassantes se propageait parmi les survivants qui parvenaient à s'échapper.
 
-Toutes les sectes du pays de culture de rang 5 d'Eau encre avaient changé de camp!
+Toutes les sectes du pays de culture de rang 5 de Shuimo avaient changé de camp!
 
 Le pays de culture de rang 5 de la Pivoine avait changé de camp!
 

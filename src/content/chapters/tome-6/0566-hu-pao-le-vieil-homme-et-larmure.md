@@ -56,7 +56,7 @@ Une brume noire peu épaisse enveloppait son corps, et sa seule présence provoq
 
 Chaque fois qu'un fragment d'âme s'éveillait, un violent jet de gaz noir jaillissait du sol. Il tournait avec la brume noire pendant quelques tours avant de pénétrer dans l'un des petits drapeaux.
 
-À 330 mètres du jeune homme se tenait un vieil homme vêtu de noir. Ce dernier observait froidement le jeune homme et, après le temps d'un bâton d'encens, déclara: « Bien, termine! »
+À 330 mètres du jeune homme se tenait un vieil homme vêtu de noir. Ce dernier observait froidement le jeune homme et, après quinze minutes, déclara: « Bien, termine! »
 
 Le jeune homme hocha la tête, forma un sceau de sa main, et tous les petits drapeaux libérèrent une lueur noire avant de converger dans sa paume. À cet instant, le jeune homme ouvrit les yeux!
 

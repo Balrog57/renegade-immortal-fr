@@ -104,7 +104,7 @@ Le rythme devint plus pressant et pénétra l'esprit de Wang Lin, lui donnant l'
 
 « La musique de ma cithare, jadis le Souverain Céleste l'a entendue. Pour que tu aies la chance de l'entendre aujourd'hui, tu peux sourire en mourant. Écoute mon chant: *Enterré dans les Enfers*... » La voix de la femme était calme, tandis que sa main sur la cithare s'agitait de plus en plus vite.
 
-La musique emplissait le monde, mais Wang Lin avait l'impression que des pensées démoniaques envahissaient son esprit. Ces innombrables pensées voulaient lui déchirer le cœur. Wang Lin esquissa un sourire misérable alors que le sang coulait de sa bouche, puis il se mit à rire.
+La musique emplissait le monde, mais Wang Lin avait l'impression que des pensées diaboliques envahissaient son esprit. Ces innombrables pensées diaboliques voulaient lui déchirer l'esprit. Wang Lin esquissa un sourire misérable alors que le sang coulait de sa bouche, puis il se mit à rire.
 
 « Quel magnifique *Enterré dans les Enfers*! » Tout en riant, Wang Lin se retourna et une lueur sanglante jaillit. L'épée de sang sombre apparut et hurla dans les airs.
 
@@ -122,4 +122,4 @@ L'épée de sang fut inefficace et fut repoussée, tournoyant autour de Wang Lin
 
 « Je ne veux vraiment pas te tuer... » La femme sans corps réel regarda Wang Lin. Elle leva sa main semblable au jade et pointa doucement vers lui.
 
-« Je prédis par mon âme céleste que tu mourras dans trois respirations... Ma prédiction s'accomplit à l'instant, ayant mon âme pour catalyseur. » La femme sourit et hocha la tête vers Wang Lin.
+« Moi qui divine le sort des immortels et des dieux, je prédis que tu mourras dans trois respirations... Ma prédiction, ayant mon âme pour catalyseur, se réalise à l'instant. » La femme sourit et hocha la tête vers Wang Lin.

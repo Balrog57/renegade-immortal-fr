@@ -118,6 +118,6 @@ Le corps du Patriarche trembla et son visage devint livide. Il resta hébété, 
 
 « Poison... La Pilule de Vie Empoisonnée... Ceci... Ceci est... »
 
-L'expression de l'homme d'âge moyen resta neutre alors qu'il disait lentement: « Il y a des gens que l'on ne peut ni provoquer, ni trahir, sous peine d'en payer le prix! » Lorsqu'il eut fini, il tourna immédiatement les yeux vers Wang Lin. Son expression n'était plus froide. Il sourit et joignit respectueusement ses mains.
+L'expression de l'homme d'âge moyen resta neutre alors qu'il disait lentement: « Il y a des gens que l'on ne peut ni provoquer, ni comploter contre, sous peine d'en payer le prix! » Lorsqu'il eut fini, il tourna immédiatement les yeux vers Wang Lin. Son expression n'était plus froide. Il sourit et joignit respectueusement ses mains.
 
 « Ce subordonné salue le Jeune Empereur! »

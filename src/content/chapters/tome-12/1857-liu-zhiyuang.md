@@ -1,9 +1,9 @@
 ---
 n: 1857
-title: Liu Zhiyuang
+title: Liu Zhiyuan
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
-en: Chapter 1857 - Liu Zhiyuang
+en: Chapter 1857 - Liu Zhiyuan
 slug: liu-zhiyuang
 ---
 Wang Lin, qui s'était mêlé à l'armée des dix mille cultivateurs, n'attira pas trop l'attention. Seule Yan Luan jeta un regard vers l'armée, comme si elle cherchait Wang Lin du regard. Mais il y avait bien trop de cultivateurs et les lieux étaient enveloppés d'un brouillard épais; elle ne put le trouver.

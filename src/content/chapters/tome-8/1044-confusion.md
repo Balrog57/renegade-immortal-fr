@@ -100,7 +100,7 @@ De loin, on pouvait apercevoir l'angle d'un palais émergeant de la brume noire.
 
 C'était le centre de toute la grotte, mais Wang Lin savait qu'il ne s'agissait que de l'entrée du deuxième étage. Avant de découvrir la carte, il était resté perplexe face à cette structure.
 
-Désormais, hormis les derniers étages, il connaissait l'architecture de toute la grotte. Elle comptait neuf étages au total, chacun possédant un style radicalement différent. Les restrictions devenaient également plus puissantes à chaque niveau.
+Désormais, hormis le dernier étage, il connaissait l'architecture de toute la grotte. Elle comptait neuf étages au total, chacun possédant un style radicalement différent. Les restrictions devenaient également plus puissantes à chaque niveau.
 
 Celles du premier étage n'étaient déjà pas faibles, mais en descendant plus profondément, leur puissance atteindrait un niveau terrifiant.
 

@@ -18,7 +18,7 @@ Effondrement des Montagnes!
 
 La colère qui bouillonnait dans le cœur de Wang Lin se manifesta sous la forme de ces volcans alors qu'il suivait la bête-moustique. Ces créatures dégageaient une odeur unique que seul leur propre clan pouvait détecter. À cet instant, la bête-moustique affichait une expression féroce; l'effluve de ses congénères était si puissante qu'il n'était même pas nécessaire de chercher pour la trouver.
 
-Ainsi, l'homme et la bête progressèrent rapidement à travers le système stellaire. Après quinze minutes, Wang Lin fronça les sourcils. La bête-moustique, blessée, était lente; s'ils continuaient à ce rythme, qui savait combien de temps il leur faudrait pour retrouver ceux qui avaient dérobé les bêtes-moustiques?
+Ainsi, l'homme et la bête progressèrent rapidement à travers le système stellaire. Après sept minutes, Wang Lin fronça les sourcils. La bête-moustique, blessée, était lente; s'ils continuaient à ce rythme, qui savait combien de temps il leur faudrait pour retrouver ceux qui avaient dérobé les bêtes-moustiques?
 
 De plus, Wang Lin sentait progressivement la rétribution divine approcher. Le sceau qu'il avait posé grâce aux Neuf Transformations Mystérieuses commençait à se relâcher.
 

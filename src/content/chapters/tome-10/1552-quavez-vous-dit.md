@@ -62,7 +62,7 @@ Les trois autres statues principales étaient identiques.
 
 La main droite de la silhouette dorée heurta le sceau et fut violemment repoussée. Un rugissement de colère jaillit du creux.
 
-Dans la deuxième statue, une autre silhouette dorée s'exclama lentement: « Ne gaspillez plus d'énergie spirituelle céleste. Ce sceau nous retient prisonniers depuis des années, mais il ne faudra plus longtemps avant que nous puissions en briser les chaînes! »
+Dans la deuxième statue, une autre silhouette dorée s'exclama lentement: « Tigre Blanc, ne gaspillez plus d'énergie spirituelle céleste. Ce sceau nous retient prisonniers depuis des années, mais il ne faudra plus longtemps avant que nous puissions en briser les chaînes! »
 
 « Oiseau Vermillon, tu es doué pour les complots. Quelles sont les chances de réussite de ton plan? » Une voix sombre émana de la troisième statue.
 

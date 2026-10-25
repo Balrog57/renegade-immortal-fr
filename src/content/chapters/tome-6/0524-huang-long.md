@@ -8,7 +8,7 @@ slug: huang-long
 ---
 La voix d'Ouyang Hua était précipitée et empreinte d'amertume.
 
-Après avoir fini de parler, plusieurs dizaines de personnes sortirent, Ouyang Hua en tête. Bien que les âges fussent très disparates parmi ces individus, ils étaient tous des hommes et s'étaient enduits le corps d'une grande quantité de liquide vert.
+Après avoir fini de parler, plusieurs dizaines de personnes sortirent, Ouyang Hua en tête. Bien que les âges fussent très disparates parmi ces individus, ils étaient tous des hommes et, pour la plupart, s'étaient enduit le corps d'une grande quantité de liquide vert.
 
 Une fois sorti, Ouyang Hua regarda Wang Lin, qui se tenait à dix pas de lui, et un regard complexe traversa ses yeux. Il laissa échapper un soupir secret avant de joindre les mains avec respect devant Wang Lin et dit, d'une voix empreinte de résignation: « Ce vieil homme Ouyang Hua ignorait que vous étiez un Céleste Suprême. Tout ce qui vient de se passer est de ma faute, et je suis prêt à en assumer la responsabilité. Je prie le Céleste Suprême de faire preuve de vertu et de ne pas détruire la formation, car cela exposerait mon village aux esprits démoniaques, et nous deviendrions leur nourriture. »
 
@@ -30,7 +30,7 @@ Ouyang Hua dit respectueusement: « Par ici, Céleste Suprême! »
 
 Wang Lin ne perdit pas de temps; il avait effectivement trop de questions à poser. Il fit un pas en avant.
 
-À l'intérieur de la vallée, on avait l'impression que même au cœur de la nuit la plus noire, l'espoir subsistait. L'endroit ressemblait à un marché pour cultivateurs. Cependant, il n'y avait là que d'innombrables maisons, sans aucun jade ni trésor magique à vendre.
+À l'intérieur de la vallée, on éprouvait soudain l'impression de déboucher sur un paysage riant après l'obscurité. L'endroit ressemblait à un marché pour cultivateurs. Cependant, il n'y avait là que d'innombrables maisons, sans aucun jade ni trésor magique à vendre.
 
 L'environnement de la vallée était très verdoyant et foisonnant de feuillage. Bien que le soleil se couchât, toute la zone conservait une teinte émeraude.
 

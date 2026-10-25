@@ -28,7 +28,7 @@ Des hymnes de combat résonnèrent de l'épée céleste. Une épée est, par ess
 
 Après l'apparition du bras osseux noir, celui-ci griffa une nouvelle fois Wang Lin, tandis que le Vent Démoniaque Céleste soufflait doucement vers lui.
 
-Wang Lin était prêt; ses yeux devinrent glacials et son cœur de massacre se manifesta. D'un geste vif, il abattit l'épée céleste pour projeter un rayon d'énergie, tandis que l'arme elle-même s'élançait dans les airs sous la forme d'un dragon d'acier.
+Wang Lin était prêt; ses yeux devinrent glacials et son cœur de massacre se manifesta. D'un geste vif, il abattit l'épée céleste pour projeter un rayon d'énergie, tandis que l'épée elle-même lui échappa des mains et s'élança dans les airs sous la forme d'un dragon d'épée.
 
 Sous le contrôle de Xu Liguo, l'épée céleste balaya le bras osseux avec une puissance imposante et engagea un combat acharné contre lui.
 
@@ -92,7 +92,7 @@ Une goutte de liquide rouge sang!
 
 Contemplant cette perle écarlate, Wang Lin n'hésita pas et la porta à sa bouche.
 
-Dès que le liquide toucha sa langue, le corps entier de Wang Lin fut secoué. La sensation mystérieuse du Fruit de l'Ascension Céleste décupla mille fois et explosa dans son esprit comme un coup de tonnerre.
+Dès que le liquide toucha sa langue, le corps entier de Wang Lin fut secoué. La sensation mystérieuse du Fruit de l'Ascension Céleste fut décuplée d'innombrables fois et explosa dans son esprit comme une succession de coups de tonnerre.
 
 Sous cette stimulation colossale, l'esprit de Wang Lin atteignit un paroxysme d'excitation. Il réprima cette exaltation pour la convertir en puissance physique. À cet instant, son âme originelle, qui allait être arrachée par l'énergie démoniaque, s'immobilisa brusquement!
 

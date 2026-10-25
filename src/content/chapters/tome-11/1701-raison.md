@@ -26,7 +26,7 @@ Sous la protection de ce halo, elle vola jusqu'à atteindre la limite des 1 000 
 
 Dès qu'elle franchit cette distance, le halo formé par les 98 gouttes se désintégra silencieusement, ne laissant que la goutte imprégnée de pouvoir ancien! Cependant, ces gouttes avaient servi de rempart pour absorber la première vague de destruction destinée à la goutte principale.
 
-Cette dernière fonça sur des centaines de pieds. Durant son trajet, elle fut détruite des dizaines de milliers de fois, mais se régénérait instantanément grâce au pouvoir ancien.
+Cette dernière fonça sur des centaines de pieds. Durant son trajet, elle fut détruite des milliers, voire des dizaines de milliers de fois, mais se régénérait instantanément grâce au pouvoir ancien.
 
 En un éclair, la goutte atteignit les 100 pieds entourant le Daoïste aux Sept Couleurs. À ce stade, la régénération par le pouvoir ancien ne suffisait plus à compenser les dégâts. La goutte se dissipa rapidement jusqu'à n'être plus qu'un minuscule éclat.
 

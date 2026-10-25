@@ -90,7 +90,7 @@ Cependant, même si le poison était inoffensif, la force de percussion des huit
 
 Bien que brisées, les épines ralentirent la main qui tendait vers l'arme. À ce moment-là, l'épée volante parvint à s'échapper. Le Bossu Meng ne put saisir que le bord de la lame avant qu'elle ne disparaisse de sa main. Mais sa culture était si puissante qu'en la touchant, il réussit à ternir la couleur de l'épée et à y provoquer une fissure. L'arme disparut rapidement sans laisser de trace, s'éloignant à plus de trois cent trente mètres du Bossu Meng.
 
-Le visage du Bossu Meng s'assombrit. Fixant la direction de l'échappée, il agita la main droite et déchira l'espace. Un Sens Divin extrêmement autoritaire jaillit de la faille, balaya les environs puis enveloppa l'intégralité du Monde de la Décomposition du troisième essai, tout en contournant soigneusement l'endroit où le dévoreur d'âmes dormait.
+Le visage du Bossu Meng s'assombrit. Fixant la direction de l'échappée, il agita la main droite et déchira l'espace. Un Sens Divin extrêmement autoritaire jaillit de la faille, balaya les environs puis enveloppa l'intégralité du Nirvana de la troisième épreuve, tout en contournant soigneusement l'endroit où le dévoreur d'âmes dormait.
 
 « Qu'est-ce que c'est? » lança le Sens Divin par un message froid.
 Le Bossu Meng s'agenouilla immédiatement dès l'apparition de cette présence et dit: « Messager, un cultivateur est trop proche de la sortie. Je sollicite votre aide. »
@@ -137,7 +137,7 @@ Aussitôt, tous les cultivateurs de la Mer de Sang sautèrent de leurs piliers o
 
 À côté de ces lignes, plusieurs autres paragraphes manuscrits apparurent:
 
-« En entrant dans le troisième essai, j'ai immédiatement réalisé que cet endroit était une faille reliée au Monde de la Décomposition. Après avoir cherché, j'ai trouvé l'entrée du Monde de la Décomposition, mais je n'y suis pas entré.
+« En entrant dans le troisième essai, j'ai immédiatement réalisé que cet endroit était une faille reliée au Nirvana. Après avoir cherché, j'ai trouvé l'entrée du Nirvana, mais je n'y suis pas entré.
 
 « La Terre de l'Ancien Dieu a été exagérée par les rumeurs. Hormis le troisième essai qui est un peu intéressant, les autres épreuves ne valent pas la peine d'être mentionnées. Je voulais initialement partir, mais puisque je suis ici, autant explorer, sinon j'aurais simplement perdu mon temps.
 

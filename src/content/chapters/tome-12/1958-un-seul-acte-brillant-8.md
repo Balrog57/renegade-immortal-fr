@@ -70,9 +70,9 @@ En entendant cela, la petite fille sourit immédiatement, l'air très fière.
 
 « Hmph, c'est ce que ça fait quand on désobéit, Petit Gu Ya. Maintenant tu sais à quel point Han Han et moi sommes puissantes et perspicaces. Je t'avais déjà dit d'oublier ceux qui sont partis, mais tu n'as pas écouté. »
 
-« Moi, le Grand Empyréen Shuangzi, je ne force jamais personne à rester. S'ils veulent partir, qu'ils partent. Qui contrôle le cours du destin? Comment peux-tu, ou eux, comprendre cela? » Plus la petite fille parlait, plus elle se sentait fière.
+« Moi, le Grand Empyréen Shuangzi, je ne force jamais personne à rester. S'ils veulent partir, qu'ils partent. Je planifie tout depuis ma tente de stratège : comment eux ou toi pourriez-vous le comprendre? » Plus la petite fille parlait, plus elle se sentait fière.
 
-« Oui, oui, oui. Le Grand Empyréen Shuangzi contrôle le cours du destin. Gu Ya vous admire, vous admire énormément... » Le cultivateur sourit rapidement et regarda la fillette avec un regard empreint de dévotion.
+« Oui, oui, oui. Le Grand Empyréen Shuangzi planifie tout depuis sa tente de stratège. Gu Ya vous admire, vous admire énormément... » Le cultivateur sourit rapidement et regarda la fillette avec un regard empreint de dévotion.
 
 Bien que sa culture fût limitée, lorsque le Grand Empyréen Shuangzi avait subi cet accident lors de sa réincarnation, il avait choisi de rester pour s'occuper des deux petites filles alors que tous les autres étaient partis. Tout ce qu'il avait accompli jusqu'à présent était en reconnaissance de la grâce qu'elle lui avait témoignée à son apogée.
 

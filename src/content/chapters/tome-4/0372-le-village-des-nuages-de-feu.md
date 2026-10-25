@@ -74,7 +74,7 @@ Dès que les torches s'allumèrent, la poudre appliquée sur Wang Lin se dissolu
 
 « C'est exact. C'est le poison spécial utilisé par les dix-huit Héros des Nuages de Feu! Héhé, le sang éveille ce poison et le feu le déclenche. Aujourd'hui, aucun d'entre vous n'échappera à la mort! »
 
-Le massacre commença. En moins d'un quart d'heure, plus de la moitié de l'escorte fut massacrée.
+Le massacre commença. En moins de sept minutes, plus de la moitié de l'escorte fut massacrée.
 
 Des cris successifs déchirèrent la nuit. Sous la lumière des torches, les dix-huit bandits paraissaient particulièrement démoniaques alors qu'ils achevaient les survivants.
 

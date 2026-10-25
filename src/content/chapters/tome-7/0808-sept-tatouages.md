@@ -84,9 +84,9 @@ Dans un fracas assourdissant, la rune qui résistait finit par s'effondrer. À l
 
 Des grondements sourds résonnèrent dans l'âme originelle de Wang Lin. Après un moment, la rune se dissipa totalement pour fusionner avec son âme.
 
-Wang Lin mit moins de temps qu'il n'en faut pour brûler la moitié d'un bâton d'encens pour absorber la première rune. Les yeux calmes, il passa à la deuxième.
+Wang Lin mit moins de sept minutes pour absorber la première rune. Les yeux calmes, il passa à la deuxième.
 
-Celle-ci était bien plus puissante, mais grâce à la force de son âme originelle, il parvint à la raffiner complètement, bien que cela lui ait pris le temps de brûler un bâton d'encens entier.
+Celle-ci était bien plus puissante, mais grâce à la force de son âme originelle, il parvint à la raffiner complètement, bien que cela lui ait pris quinze minutes.
 
 Il ne s'arrêta pas là. Le regard brillant, il engloutit les troisième et quatrième runes simultanément. Deux heures plus tard, le pouvoir mystérieux des quatre runes résidait désormais dans son âme originelle.
 

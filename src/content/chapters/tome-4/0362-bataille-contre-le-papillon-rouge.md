@@ -84,7 +84,7 @@ Si cela avait été tout, l'événement n'aurait pas suscité autant d'intérêt
 
 Désormais, c'était leur second combat, et l'attention de tous était rivée sur eux.
 
-Hongdie se tenait du côté droit de l'autel. Elle portait une robe de cour bleue, ornée d'une fleur pourpre sombre brodée sur l'ourlet. Sa tenue était sobre et élégante. Ses cheveux descendaient comme une cascade, retenus par un simple ruban.
+Hongdie se tenait du côté droit de l'autel. Elle portait une robe de cour bleu pâle, ornée seulement d'un fin motif pourpre sombre brodé sur l'ourlet et les manches. Sa tenue était sobre et élégante; sa fraîcheur distinguée ne parvenait pas à cacher la beauté délicate de son visage de jade. Ses cheveux descendaient comme une cascade, retenus par un simple ruban.
 
 Cependant, la brise légère qui faisait flotter sa manche vide entachait l'image presque picturale de Hongdie.
 

@@ -112,7 +112,7 @@ Lorsqu'il avait reçu le jade de l'Empereur Céleste Qing Lin, outre les méthod
 
 Même l'empreinte d'esclave utilisée sur Li Yuan était mentionnée dans le jade de l'Empereur Céleste Qing Lin. Pourtant, malgré ses analyses, Wang Lin n'avait jamais pu en saisir l'essence. Ce n'est qu'en découvrant l'origine céleste que tout devint limpide.
 
-Ces sorts de scellement étaient destinés aux êtres célestes. En l'absence d'une origine céleste, ils ne pouvaient naturellement pas manifester leur véritable puissance. L'énergie originelle céleste se rassembla pour former la rune, qui vint ensuite se loger entre les sourcils du garçon à la grosse tête.
+Ces sorts de scellement ne pouvaient être lancés que par un être céleste. En l'absence d'une origine céleste, ils ne pouvaient naturellement pas manifester toute leur puissance. L'énergie originelle céleste se rassembla pour former la rune, qui vint ensuite se loger entre les sourcils du garçon à la grosse tête.
 
 À cet instant précis, Wang Lin eut la certitude qu'il lui suffisait d'une seule pensée pour que ce garçon périsse!
 

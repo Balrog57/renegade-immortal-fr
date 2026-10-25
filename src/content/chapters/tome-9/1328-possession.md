@@ -56,7 +56,7 @@ Même son espace de stockage aurait été pulvérisé par cette foudre, et tous 
 
 Wang Lin ferma les yeux et son corps fut recouvert d'électricité. Le lac de tonnerre était comme une gueule béante dévorant Wang Lin. Cela le plongea dans un tourbillon de foudre sans fin!
 
-Les grondements continuaient de résonner tandis que le corps de Wang Lin demeurait immobile, la moitié de son pied immergé dans le lac. Le temps passa lentement. En un clin d'œil, trente minutes s'écoulèrent.
+Les grondements continuaient de résonner tandis que le corps de Wang Lin demeurait immobile, la moitié de son pied immergé dans le lac. Le temps passa lentement. En un clin d'œil, quinze minutes s'écoulèrent.
 
 C’est à cet instant qu'une vague colossale se propagea dans l'immense lac et qu'un rugissement retentit. Les yeux de Wang Lin s'ouvrirent soudainement, révélant une marque de tonnerre clignotant frénétiquement dans l'un d'eux. En un instant, elle pulsa des milliers de fois!
 

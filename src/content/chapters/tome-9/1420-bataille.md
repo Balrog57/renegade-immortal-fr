@@ -104,7 +104,7 @@ Au cœur de ce trouble résidait une aura antique qui se mua en l'aura de la ré
 
 « Neuf Extinctions du Brise-Ciel, Neuf Pas pour Éteindre le Ciel! » Le monde trembla. Au moment où la paume de Maître Simo descendit, toutes les illusions derrière lui s'effondrèrent en d'innombrables fragments. Ces débris se transformèrent en rivières de puissance qui affluèrent dans la paume droite du maître tandis qu'elle s'abattait!
 
-Tout cela fut fulgurant. Les yeux de Wang Lin brillèrent; sa main droite prit la forme d'une épée et pointa soudainement vers l'avant. Les neuf dragons autour de lui poussèrent des rugissements avant de fusionner avec son doigt, qu'il tendit vers Maître Simo!
+Tout cela fut fulgurant. Les yeux de Wang Lin brillèrent; deux doigts de sa main droite se joignirent en forme d'épée et pointèrent soudainement vers l'avant. Les neuf dragons autour de lui poussèrent des rugissements avant de fusionner avec son doigt, qu'il tendit vers Maître Simo!
 
 De loin, le spectacle était époustouflant!
 

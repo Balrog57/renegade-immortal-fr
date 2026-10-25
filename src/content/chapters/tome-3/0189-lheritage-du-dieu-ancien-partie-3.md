@@ -58,13 +58,13 @@ L'homme d'âge moyen ordonna: « Viens avec moi, nous allons chercher ce dévore
 
 Une fois le cristal brisé, d'infimes fragments commencèrent à se dissiper. Wang Lin les regarda disparaître. À plusieurs reprises, il voulut sortir de l'espace pour les examiner, mais il parvint à se contenir.
 
-Le temps d'une combustion de bâton d'encens s'écoulant, l'homme d'âge moyen réapparut soudainement. Il fronça les sourcils en scannant à nouveau la zone, avant de disparaître au loin.
+Quinze minutes plus tard, l'homme d'âge moyen réapparut soudainement. Il fronça les sourcils en scannant à nouveau la zone, avant de disparaître au loin.
 
 Plus tôt, lorsqu'il avait inspecté le cristal, il n'avait détecté qu'une certaine énergie spirituelle. S'il l'avait brisé, c'est parce qu'il soupçonnait que quelque chose d'autre se cachait à cet endroit précis.
 
 Le dévoreur d'âmes aurait pu s'y trouver. La fluctuation ressentie ici était extrêmement étrange.
 
-Après le temps de combustion d'un second bâton d'encens, Wang Lin poussa un soupir. Bien qu'il ignorât la nature exacte du cristal, au vu des efforts déployés par le Magicien Démon Céleste pour l'obtenir, il ne pouvait être aussi médiocre que l'avait affirmé l'homme d'âge moyen.
+Environ quinze minutes plus tard, Wang Lin poussa un soupir. Bien qu'il ignorât la nature exacte du cristal, au vu des efforts déployés par le Magicien Démon Céleste pour l'obtenir, il ne pouvait être aussi médiocre que l'avait affirmé l'homme d'âge moyen.
 
 Hélas, le cristal avait déjà été détruit. Wang Lin aurait tant voulu découvrir sa composition.
 
@@ -80,7 +80,7 @@ Une pensée traversa l'esprit de Wang Lin. Il serra les dents et, sans hésiter,
 
 Une fois le cristal saisi, il ne s'arrêta pas et s'envola prestement. En chemin, il ne chercha pas à économiser ses forces, utilisant la quasi-totalité de son énergie spirituelle pour voler le plus vite possible.
 
-Après près d'une heure de vol, il finit par ralentir légèrement. Il jeta un regard derrière lui avant de fixer le cristal dans sa main, l'air hésitant. Il ignorait ce que c'était. En volant, il avait tenté de le ranger dans son sac de rangement, mais l'objet était si étrange qu'il refusait d'y entrer.
+Après près de deux heures de vol, il finit par ralentir légèrement. Il jeta un regard derrière lui avant de fixer le cristal dans sa main, l'air hésitant. Il ignorait ce que c'était. En volant, il avait tenté de le ranger dans son sac de rangement, mais l'objet était si étrange qu'il refusait d'y entrer.
 
 Le visage de Wang Lin s'anima d'une résolution audacieuse. Si le Magicien Démon Céleste y accordait une telle importance, c'est que ce n'était pas un objet ordinaire. Se remémorant le geste du Magicien, il pressa brusquement le cristal contre son front.
 

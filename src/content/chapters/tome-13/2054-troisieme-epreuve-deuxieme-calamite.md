@@ -44,7 +44,7 @@ Wang Lin rendit la salutation à Song Tian, prit une profonde inspiration et mar
 
 Sa démarche n'était pas rapide, mais chaque pas était d'une stabilité absolue. Pas après pas, il atteignit la porte ouverte et pénétra à l'intérieur sans hésiter.
 
-À l'instant où il entra dans le temple, la porte se referma lentement. Il ne fallut que la moitié d'un bâton d'encens pour qu'elle soit totalement close.
+À l'instant où il entra dans le temple, la porte se referma lentement. Il ne fallut que sept minutes pour qu'elle soit totalement close.
 
 La lumière sombre sur la statue de l'Ancêtre s'estompa progressivement. Elle redevint un simple rayon lumineux qui disparut en retournant vers le palais impérial.
 

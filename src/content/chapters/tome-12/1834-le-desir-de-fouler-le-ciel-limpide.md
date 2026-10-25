@@ -122,7 +122,7 @@ Toute la Secte de la Grande Âme était en émoi. Même certains des vieux monst
 
 « Je l'avais sous-estimé... Son corps véritable d'essence est très proche de devenir un véritable Céleste... Corps véritable d'essence, véritable Céleste. Il n'y a qu'un mot de différence, mais l'écart est un gouffre! »
 
-« Cependant, treize marches représentent probablement sa limite. Au mieux, il pourra en faire trois de plus! » La culture de l'Estimé Taureau Vert était insondable. Son intuition était infaillible et il se trompait rarement.
+« Cependant, treize marches représentent probablement sa limite. Au mieux, il pourra en faire trois de plus! » La culture de l'Estimé Taureau Vert était insondable. Son regard était acéré : il se trompait très rarement.
 
 À l'intérieur du Pavillon des Écritures de l'Âme, Wang Lin se tenait sur la treizième marche. Il avait réussi cet exploit grâce à la puissance de son corps véritable d'essence, mais désormais, la voix dans son esprit s'était intensifiée de plusieurs crans!
 

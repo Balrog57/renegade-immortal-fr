@@ -93,8 +93,8 @@ Li Muwan serra les dents et s'avança sans mot dire. Elle sortit des drapeaux no
 
 Après ce travail, elle contracta la mâchoire et sortit un os de bête cristalline bleu. À l'aide de son épée volante, elle le dépeça en morceaux et, après quelques calculs, en plaça un.
 
-Elle continua ainsi jusqu'à ce que les dix-huit fragments de l'os soient en place, trois heures plus tard. Le front de Li Muwan était couvert de sueur. Épuisée, elle déclara:
-« En incluant vos formations, il y a un total de 214 dispositifs. Cependant, ce ne sont que des formations de base qui ne peuvent bloquer que des cultivateurs de l'Établissement des Fondations. J'ai utilisé l'os d'une bête cristalline pour poser la formation aux neuf squelettes. Bien qu'elle ne puisse déployer que trois niveaux de sa puissance faute d'ossements suffisants, elle peut tout de même stopper un cultivateur de la Formation du Noyau pendant au moins une heure. »
+Elle continua ainsi jusqu'à ce que les dix-huit fragments de l'os soient en place, six heures plus tard. Le front de Li Muwan était couvert de sueur. Épuisée, elle déclara:
+« En incluant vos formations, il y a un total de 214 dispositifs. Cependant, ce ne sont que des formations de base qui ne peuvent bloquer que des cultivateurs de l'Établissement des Fondations. J'ai utilisé l'os d'une bête cristalline pour poser la formation aux neuf squelettes. Bien qu'elle ne puisse déployer que trois niveaux de sa puissance faute d'ossements suffisants, elle peut tout de même stopper un cultivateur de la Formation du Noyau pendant au moins deux heures. »
 
 « Je n'ai que ces os de bête cristalline. Si vous voulez une formation plus stable, il nous faudra davantage d'ossements de bêtes spirituelles. »
 

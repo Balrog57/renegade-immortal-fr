@@ -58,7 +58,7 @@ La rivière des enfers balaya le groupe et emporta avec elle plus de dix génér
 
 Les yeux de Wang Lin devinrent rouges alors qu'il se changea en ombre pour pénétrer dans la rivière des enfers. Une fois à l'intérieur, celle-ci devint aussi stable que le Mont Tai!
 
-« Quiconque cherchera à me tuer sera piégé dans ma rivière des enfers. C'est mon propre cycle de réincarnation, affranchi du contrôle des cieux! » La voix de Wang Lin propagea son Dao. Elle fusionna avec la rivière et se mua en un pouvoir de réincarnation!
+« Quiconque cherchera à me tuer sera piégé dans ma rivière des enfers. Il nourrira ma réincarnation, hors du contrôle du ciel et de la terre! » La voix de Wang Lin propagea son Dao. Elle fusionna avec la rivière et se mua en un pouvoir de réincarnation!
 
 La rivière des enfers tourbillonna avant de disparaître du monde, emportant avec elle les généraux démons!
 
@@ -94,7 +94,7 @@ Alors que Wang Lin quittait la ville, à la frontière entre le Pays du Démon d
 
 La puissance du Fruit de l'Ascension Céleste en lui était toujours aussi intense. Loin de diminuer son intention de combat, les tueries ne faisaient que l'accroître! Son intention meurtrière s'intensifiait de plus en plus.
 
-Il se transforma en un météore féroce, franchit la Montagne des Millions de Démons et fonça vers le lieu qu'il percevait!
+Il se transforma en un météore féroce, franchit la Montagne des Dix Mille Démons et fonça vers le lieu qu'il percevait!
 
 Ces derniers jours, ce grognement glacial ne se fit plus entendre. Le corps de Wang Lin s'était déjà rétabli grâce à toute la force vitale qu'il avait puisée dans la terre. En réalité, son corps progressait vers son apogée grâce à cette immense énergie de massacre.
 

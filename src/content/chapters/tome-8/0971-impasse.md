@@ -10,7 +10,7 @@ Wang Lin avait attendu et s'était préparé durant un long moment pour ce coup 
 
 L'énergie d'origine à l'intérieur de son corps fusionna avec la puissance de l'Ancien Dieu lorsqu'il abattit son poing. Tandis que le coup partait, c'était comme si le monde changeait de couleur. De loin, le poing de Wang Lin ne ressemblait en rien au doigt géant. Pourtant, ce coup de poing déchaîna une tempête qui se mua en un dragon furieux, lequel poussa un rugissement et chargea contre le doigt en pleine désintégration.
 
-À cet instant précis, le poing droit de Wang Lin percuta l'artifice.
+À cet instant précis, le poing droit de Wang Lin percuta le doigt géant.
 
 Une explosion fracassante retentit, projetant le corps de Wang Lin en arrière; il recula de plusieurs pas sur le fragment du Royaume Céleste. À chacun de ses pas, il laissait une empreinte profonde, tandis que des bruits sourds retentissaient.
 
@@ -18,7 +18,7 @@ En jetant un regard vers le doigt géant, il vit encore plus de lueurs rouges ja
 
 Après avoir fait quelques pas, Wang Lin s'élança impitoyablement, frappant le sol de son pied droit pour charger le doigt.
 
-Boum, boum, boum, boum! Wang Lin asséna quatre coups de poing consécutifs. La puissance de l'Ancien Dieu jaillit de son corps et frappa l'artifice.
+Boum, boum, boum, boum! Wang Lin asséna quatre coups de poing consécutifs. La puissance de l'Ancien Dieu jaillit de son corps et frappa le doigt.
 
 Après un instant, le doigt se désintégra complètement dans un grand fracas, se dispersant en filaments d'énergie d'origine. Cela souleva une quantité immense de poussière et créa des tempêtes de sable lors de sa dispersion.
 

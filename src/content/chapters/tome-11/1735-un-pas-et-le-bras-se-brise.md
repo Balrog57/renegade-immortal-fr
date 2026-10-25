@@ -100,7 +100,7 @@ La vieille voix s'exclama et le bras changea brusquement de direction. Il tenta 
 
 Dans un fracas assourdissant, on entendit le bruit d'os qui volaient en éclats. Le bras se tordit et gonfla instantanément. Il se rétracta rapidement dans le vortex, mais il explosa en projetant du sang partout.
 
-« Tu oses me voler quelque chose? En as-tu assez de vivre? » Wang Lin se tenait derrière l'armure, le regard aussi froid que la glace alors qu'il fixait le vortex.
+« Tu oses voler ce qui appartient à Wang Lin? En as-tu assez de vivre? » Wang Lin se tenait derrière l'armure, le regard aussi froid que la glace alors qu'il fixait le vortex.
 
 D'un geste nonchalant de la main gauche, il s'empara de l'armure et de la lance d'eau bleue. Tout ce qui venait de se passer s'était accompli en un mouvement fluide, du pas initial à la rupture du bras jusqu'à la saisie de l'armure. Il dégageait l'aura d'un maître absolu!
 

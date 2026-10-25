@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 355 - Remaining people
 slug: les-survivants
 ---
-Wang Lin sentit la plante géante invoquée par le vieil homme alors qu'il se tenait au sommet de la boussole stellaire. Il hésita, le regard vacillant, puis ne chercha plus à harceler le vieil homme et préféra s'éloigner.
+Debout sur la boussole stellaire, Wang Lin sentit au loin la plante géante en laquelle le vieil homme s'était transformé. Il hésita, le regard vacillant, puis ne chercha plus à harceler le vieil homme et préféra s'éloigner.
 
 Il avait fait preuve d'une grande prudence tout ce temps. Il n'agissait que lorsqu'il était certain de sa propre sécurité.
 

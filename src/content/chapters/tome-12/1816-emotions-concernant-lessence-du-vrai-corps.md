@@ -58,7 +58,7 @@ Du Qing ne parla pas mais devina ce que Wang Lin attendait. L'âme du dragon qu'
 
 Elle s'en approcha instantanément et la boule de feu absorba l'âme du dragon. Tandis que l'âme rugissait, elle fut totalement assimilée par la sphère incandescente.
 
-Après avoir absorbé une autre veine de feu terrestre enfantine, le feu jaillit de plus belle. Le torse du corps véritable d'essence se forma de nouveau et, au bout d'un demi-bâton d'encens, il était entièrement formé!
+Après avoir absorbé une autre veine de feu terrestre enfantine, le feu jaillit de plus belle. Le torse du corps véritable d'essence se forma de nouveau et, au bout de sept minutes, il était entièrement formé!
 
 À ce moment, le corps véritable d'essence possédait un torse et des membres. Seule sa tête restait celle d'un Oiseau Vermillon, ce qui lui donnait une apparence très étrange.
 

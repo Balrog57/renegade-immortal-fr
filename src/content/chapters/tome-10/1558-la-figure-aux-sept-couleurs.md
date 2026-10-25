@@ -22,7 +22,7 @@ Cependant, alors que Wang Lin regardait en arrière, le doigt aux sept couleurs 
 
 Bien que cette figure fût floue, son regard était d'une clarté limpide alors qu'elle fixait Wang Lin.
 
-Wang Lin réfléchit en silence tandis que ses étoiles de Dieu Ancien tournaient rapidement. Les étoiles de Démon Ancien dans son œil droit tournaient également avec frénésie. Sa main gauche forma un sceau tandis que sa main droite se détacha de l'épine.
+Wang Lin réfléchit en silence tandis que ses étoiles de Dieu Ancien tournaient rapidement. Les étoiles de Diable Ancien dans son œil droit tournaient également avec frénésie. Sa main gauche forma un sceau tandis que sa main droite se détacha de l'épine.
 
 La silhouette floue aux sept couleurs dit doucement: « Ne soyez pas nerveux, vous pouvez continuer à le sauver. Je ne vous arrêterai pas... »
 
@@ -98,13 +98,13 @@ Wang Lin essuya le sang au coin de sa bouche et sourit à Qing Shui. Cependant, 
 
 La figure aux sept couleurs sourit en fixant Wang Lin. Elle commença à parler avec une pointe de nostalgie.
 
-« Au commencement, il n'y avait aucun cultivateur du Pays Antique, et encore moins l'Ancien Ye Mo... Pourtant, il est venu. Avant sa mort, il dispersa 3 000 gouttes de son sang. 1 000 devinrent des Dieux Anciens, 1 000 devinrent des Démons Anciens et 1 000 devinrent des Bêtes Anciennes. Au fil des âges, ces 3 000 gouttes ont fusionné ou se sont diluées. »
+« Au commencement, il n'y avait aucun cultivateur du Pays Antique, et encore moins l'Ancien Ye Mo... Pourtant, il est venu. Avant sa mort, il dispersa 3 000 gouttes de son sang. 1 000 devinrent des Dieux Anciens, 1 000 devinrent des Diables Anciens et 1 000 devinrent des Démons Anciens. Au fil des âges, ces 3 000 gouttes ont fusionné ou se sont diluées. »
 
 « C'est là l'origine de vos trois Clans Anciens. »
 
 L'esprit de Wang Lin vacilla. Il ne pouvait croire entièrement ces paroles, mais elles ressemblaient étrangement à ce que l'âme de l'Ancien Démon dans le tambour avait affirmé lors de son Ascendant dans la Terre des Esprits Démoniaques!
 
-L'Ancien Démon Bei Luo avait un jour déclaré que l'Ancien était la première génération de cultivateurs défiant le ciel. Il était mort en combattant le Dao Céleste, et c'est après cela que les Dieux Anciens, les Démons Anciens et les Bêtes Anciennes étaient apparus!
+L'Ancien Démon Bei Luo avait un jour déclaré que l'Ancien était la première génération de cultivateurs défiant le ciel. Il était mort en combattant le Dao Céleste, et c'est après cela que les Dieux Anciens, les Démons Anciens et les Diables Anciens étaient apparus!
 
 Les trois Clans Anciens constituaient la seconde génération de cultivateurs défiant le ciel!
 

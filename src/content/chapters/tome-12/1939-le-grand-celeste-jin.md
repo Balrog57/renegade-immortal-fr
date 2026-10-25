@@ -22,7 +22,7 @@ Des nuages blancs parsemaient le ciel au-dessus du Continent du Grand Sage, le c
 
 Le reste de la foule faisait preuve d'une grande patience, comme si leur simple présence ici était un honneur. Tous scrutaient l'horizon, comme en attente d'un événement imminent.
 
-Toutefois, le temps semblait long. Une heure plus tard, il était déjà midi. Le soleil brûlant frappait la terre et même la brise était cuisante.
+Toutefois, le temps semblait long. Deux heures plus tard, il était déjà midi. Le soleil brûlant frappait la terre et même la brise était cuisante.
 
 Certains ne pouvaient plus supporter cette épreuve. Malgré leur force de caractère, la chaleur accablante les faisait vaciller. Près de l'avant, un homme d'âge moyen vêtu d'une robe de notable reçut un morceau de glace de la part d'un serviteur. En le plaçant sur son front, il ne put s'empêcher de marmonner une plainte:
 

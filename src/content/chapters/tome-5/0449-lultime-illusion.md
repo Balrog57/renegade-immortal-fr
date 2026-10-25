@@ -105,7 +105,7 @@ Une fois son fragment d'âme en sa possession, les affaires de la planète Suzak
 
 Ces dernières années, Wang Lin avait le pressentiment que Tuo Sen, issu de la Terre des Dieux Anciens, s'échapperait bientôt. Il était convaincu qu'il n'avait aucune chance de l'affronter.
 
-Pendant ce temps, sur le flanc est du continent Suzaku, dans une zone enveloppée de nuages noirs, l'ancêtre du Clan des Immortels Délaissés, Yun Quezi, le troisième ancêtre et deux esprits ancestraux à dix feuilles étaient réunis.
+Pendant ce temps, sur le flanc est du continent Suzaku, dans une zone enveloppée de nuages noirs, le premier ancêtre du Clan des Immortels Délaissés, Yun Quezi, le troisième ancêtre et deux esprits ancestraux à dix feuilles étaient réunis.
 
 Leurs plantes de vie scintillaient sur leurs fronts et, entre eux, reposait un crâne.
 

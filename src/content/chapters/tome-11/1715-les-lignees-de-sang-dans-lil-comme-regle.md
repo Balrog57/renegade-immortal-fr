@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1715 - Blood Lines in the Eye as the Rule
 slug: les-lignees-de-sang-dans-lil-comme-regle
 ---
-Qu'étaient les règles? Peu de gens, sans doute, pouvaient l'expliquer clairement. Et quelle était la distinction avec les lois? C'était une question sur laquelle les hommes méditaient depuis des millions d'années sans jamais trouver de réponse.
+Qu'étaient les règles? Peu de gens, sans doute, pouvaient l'expliquer clairement. Et quelle était la distinction avec les lois? C'était une question sur laquelle les hommes méditaient depuis des centaines de millions d'années sans jamais trouver de réponse.
 
 C'était un sujet qui déconcertait même Wang Lin. Parfois, il pensait avoir enfin compris, mais la plupart du temps, il ne faisait que réfuter ses propres hypothèses.
 
@@ -42,7 +42,7 @@ Un œil rouge illusoire apparut devant lui, laissant entrevoir clairement ses ve
 
 À cet instant, Wang Lin leva sa main droite et pressa son œil gauche. Une illusion de son œil gauche apparut, formant un second globe oculaire gigantesque.
 
-Une fois ces deux pupilles apparues, les veines sanguines scintillèrent et se déployèrent, fusionnant avec les restrictions. Après un demi-bâton d'encens, il ne restait plus aucune restriction, seulement deux yeux géants flottant dans l'espace.
+Une fois ces deux pupilles apparues, les veines sanguines scintillèrent et se déployèrent, fusionnant avec les restrictions. Après sept minutes, il ne restait plus aucune restriction, seulement deux yeux géants flottant dans l'espace.
 
 D'une simple pensée, Wang Lin fit scintiller les deux globes illusoires avant qu'ils ne se dissipent rapidement. Ils disparurent dans ses propres yeux, puis il les ferma.
 

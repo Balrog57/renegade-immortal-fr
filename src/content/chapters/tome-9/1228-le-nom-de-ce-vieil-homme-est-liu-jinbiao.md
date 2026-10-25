@@ -92,7 +92,7 @@ Zhu Yunming prit une profonde inspiration pour réprimer le choc et demanda: « 
 
 « Nous ne possédons pas autant de cristaux d'origine... »
 
-« Le temps de ce vieil homme est compté; je ne vous donne que 15 minutes pour réfléchir. Si vous refusez, ce vieil homme devra passer à l'acte. Si vous n'avez pas les cristaux, donnez-moi quelque chose de valeur égale. »
+« Le temps de ce vieil homme est compté; je ne vous donne que sept minutes pour réfléchir. Si vous refusez, ce vieil homme devra passer à l'acte. Si vous n'avez pas les cristaux, donnez-moi quelque chose de valeur égale. »
 
 Tandis que Liu Jinbiao déployait sa puissance, sur un continent sauvage situé au plus profond de la région de rang 5, une explosion retentit, comme si un impact colossal venait des profondeurs du sol. D'innombrables fissures apparurent et une silhouette aux cheveux blancs jaillit des entrailles de la terre!
 
