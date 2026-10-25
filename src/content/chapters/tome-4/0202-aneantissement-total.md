@@ -16,7 +16,7 @@ Même ceux de sa génération l'appelaient au moins le Maître du Palais Meng. O
 
 Le disciple de l'un des experts de l'Âme Naissante de cette secte avait croisé le Bossu Meng. Non seulement il ignorait son identité, mais il s'était permis de se moquer de lui.
 
-Cette nuit-là, Meng Qingfan pénétra seul dans la secte. Une heure plus tard, lorsqu'il en repartit, les 3 456 membres de l'organisation — disciples internes, externes, travailleurs et même ces experts de l'Âme Naissante au stade avancé — étaient tous morts.
+Cette nuit-là, Meng Qingfan pénétra seul dans la secte. Deux heures plus tard, lorsqu'il en repartit, les 3 456 membres de l'organisation — disciples internes, externes, travailleurs et même ces experts de l'Âme Naissante au stade avancé — étaient tous morts.
 
 Lorsque Meng Qingfan tuait, il aimait laisser une explication derrière lui. C’est ainsi que tout le monde finit par connaître ses actes. En conséquence, la cruauté de Meng Qingfan suffisait à faire pâlir quiconque dans la Mer des Démons.
 

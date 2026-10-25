@@ -96,7 +96,7 @@ Ce pont était une illusion sans substance. On pouvait le voir, mais le Sens Div
 
 Des particules de lumière cristallines s'y trouvaient. Chaque particule recelait une vitalité puissante et toutes repartirent vers le premier pont.
 
-Wang Lin ferma les yeux et resta immobile durant la moitié de la durée d'un bâtonnet d'encens. Il les rouvrit soudainement et leva le pied pour franchir le premier Pont du Piétinement Céleste!
+Wang Lin ferma les yeux et resta immobile durant sept minutes. Il les rouvrit soudainement et leva le pied pour franchir le premier Pont du Piétinement Céleste!
 
 Dès qu'il posa le pied sur le pont, il sentit clairement son corps spirituel subir une transformation, comme si une immense quantité de lois mondiales lui devenait intelligible. Il n'avait jamais ressenti cela auparavant et resta immobile un instant.
 

@@ -18,7 +18,7 @@ Le secret entourant la Secte Dong Lin les rendait très discrètes parmi les neu
 
 Des nuages blancs parsemaient le ciel au-dessus du Continent du Grand Sage, le couvrant presque en permanence depuis des années. Ces nuages semblaient faire partie intégrante de l'azur; si un jour le ciel se dégageait, les mortels en étaient profondément surpris.
 
-À cet instant précis, aux abords d'une cité mortelle sur le Continent du Grand Sage, près d'une centaine de personnes se tenaient debout. Elles étaient guidées par trois ou quatre vieillards à l'apparence maladive, vêtus de façon fastueuse, qui s'efforçaient de garder leur énergie. Leurs serviteurs les soutenaient tandis qu'ils attendaient depuis déjà deux heures.
+À cet instant précis, aux abords d'une cité mortelle sur le Continent du Grand Sage, près d'une centaine de personnes se tenaient debout. Elles étaient guidées par trois ou quatre vieillards à l'apparence maladive, vêtus de façon fastueuse, qui s'efforçaient de garder leur énergie. Leurs serviteurs les soutenaient tandis qu'ils attendaient depuis déjà près de quatre heures.
 
 Le reste de la foule faisait preuve d'une grande patience, comme si leur simple présence ici était un honneur. Tous scrutaient l'horizon, comme en attente d'un événement imminent.
 
@@ -26,7 +26,7 @@ Toutefois, le temps semblait long. Deux heures plus tard, il était déjà midi.
 
 Certains ne pouvaient plus supporter cette épreuve. Malgré leur force de caractère, la chaleur accablante les faisait vaciller. Près de l'avant, un homme d'âge moyen vêtu d'une robe de notable reçut un morceau de glace de la part d'un serviteur. En le plaçant sur son front, il ne put s'empêcher de marmonner une plainte:
 
-« Le Grand Céleste a-t-il oublié de venir... Cela fait presque trois heures que nous attendons. Il est midi, l'heure la plus chaude. Combien de temps devrons-nous encore patienter... »
+« Le Grand Céleste a-t-il oublié de venir... Cela fait plus de six heures que nous attendons. Il est midi, l'heure la plus chaude. Combien de temps devrons-nous encore patienter... »
 
 Un vieillard à l'allure maladive situé devant lui entendit le fonctionnaire et se retourna immédiatement pour lui lancer un regard noir. « Silence! Même si le Grand Céleste ne venait pas, ce serait normal. Si tu ne veux pas attendre, personne ne te force! »
 

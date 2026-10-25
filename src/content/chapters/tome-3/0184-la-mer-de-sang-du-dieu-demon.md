@@ -162,7 +162,7 @@ C'est alors que le démon Bossu Meng utilisa une étrange méthode inconnue de W
 
 Le cœur de Wang Lin sombra: s'il continuait ainsi, Bossu Meng le rattraperait dans quinze minutes.
 
-Il lui faudrait au moins le temps de deux bâtons d'encens pour atteindre la sortie. Wang Lin balaya les environs de son Sens Divin, utilisant les âmes errantes pour scanner rapidement la zone. Ses yeux restèrent fixés dans une direction tandis qu'il élaborait un plan audacieux.
+Il lui faudrait au moins trente minutes pour atteindre la sortie. Wang Lin balaya les environs de son Sens Divin, utilisant les âmes errantes pour scanner rapidement la zone. Ses yeux restèrent fixés dans une direction tandis qu'il élaborait un plan audacieux.
 
 Il hésita un instant, puis sans plus attendre, changea légèrement sa trajectoire et s'enfuit par ce nouveau chemin.
 

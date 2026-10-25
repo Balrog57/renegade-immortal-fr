@@ -72,7 +72,7 @@ Une fois en retrait, il lança un regard froid à la Bête des Limbes désormais
 
 Le corps de la Bête des Limbes trembla violemment alors que les trois sceaux s'activaient simultanément, une lueur spectrale brillant autour d'elle. La lutte dans ses yeux s'estompa progressivement pour laisser place à une forme de docilité.
 
-Après quinze minutes, la Bête des Limbes cessa toute résistance. Elle flotta silencieusement et inclina la tête devant Wang Lin.
+Après sept minutes, la Bête des Limbes cessa toute résistance. Elle flotta silencieusement et inclina la tête devant Wang Lin.
 
 Un lien de chair apparut dans le cœur de Wang Lin. C'était un sentiment inexplicable, comme si cette Bête des Limbes était devenue une partie intégrante de lui-même.
 

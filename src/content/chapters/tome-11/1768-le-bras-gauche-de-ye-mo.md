@@ -46,7 +46,7 @@ En traversant la glace, il ressentit tout de même une certaine fraîcheur. Cepe
 
 La glace agissait comme un miroir; elle reflétait vaguement sa silhouette lors de ses mouvements, donnant l'impression qu'une ombre incertaine le suivait. Wang Lin n'y prêta qu'un bref regard et poursuivit sa route comme si de rien n'était.
 
-L'espace était vaste, mais avec la vitesse de Wang Lin, il ne fallut que la moitié d'un bâton d'encens pour que l'appel devienne plus distinct. Il se trouvait à moins de 100 000 pieds!
+L'espace était vaste, mais avec la vitesse de Wang Lin, il ne fallut que sept minutes pour que l'appel devienne plus distinct. Il se trouvait à moins de 100 000 pieds!
 
 Bien que ce monde fût scellé, Wang Lin pouvait voir qu'il s'agissait d'une haute montagne enveloppée de glace. Après avoir franchi la montagne, il aperçut un vaste bassin derrière elle!
 

@@ -42,7 +42,7 @@ Il se tint au cœur du brasier et avança sereinement.
 
 Sa progression n'était pas rapide, mais traverser cette mer de flammes relevait de l'exploit. Si Ling Tianhou avait été présent, il aurait été stupéfait de voir Wang Lin dans cet état! Même lui ne pourrait traverser cette mer de flammes avec une telle désinvolture!
 
-Wang Lin marcha calmement pendant un bâton d'encens avant de s'arrêter. C'était sa limite. Plus il progressait, plus les flammes étaient puissantes et la chaleur intense.
+Wang Lin marcha calmement pendant quinze minutes avant de s'arrêter. C'était sa limite. Plus il progressait, plus les flammes étaient puissantes et la chaleur intense.
 
 Après avoir contemplé la mer de flammes qui s'étendait devant lui, Wang Lin s'assit et ouvrit grand les bras. Deux filaments de feu commencèrent à converger de chaque côté pour former une sphère de feu de la taille de son corps.
 

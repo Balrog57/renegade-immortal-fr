@@ -112,6 +112,6 @@ Puis Wang Lin arracha Li Muwan de l'eau, tel une épée transperçant les cieux.
 
 Sous la surface, l'épée de cristal lumineux oscillait au rythme des vagues, guettant le moment opportun pour frapper.
 
-Une demi-heure plus tard, un immense tourbillon apparut en mer. Il mesurait environ trois cents mètres de large ; il soulevait d'innombrables vagues gigantesques et tournoyait à toute vitesse dans un seul sens.
+Une heure plus tard, un immense tourbillon apparut en mer. Il mesurait environ trois cents mètres de large ; il soulevait d'innombrables vagues gigantesques et tournoyait à toute vitesse dans un seul sens.
 
 Au centre du tourbillon, un tunnel noir communiquait avec les profondeurs de la Mer des Démons. Une calebasse verte remonta lentement depuis l'intérieur de ce conduit.

@@ -180,7 +180,7 @@ Même s'il était grièvement atteint, il possédait les moyens de quitter cet e
 
 Sous l'effet du sort « Arrête », la main droite du vieil homme se figea. Ce ne fut qu'un instant avant que le sort ne s'épuise. Wang Lin fut frappé par le contrecoup et des craquements résonnèrent dans son corps. Une brume de sang jaillit de ses pores, mais dans ses yeux, l'échange en valait la peine!
 
-L'hésitation du vieil homme permit à l'Épée de Sang de pénétrer au premier étage, créant une ouverture d'environ huit centimètres avant de jaillir de l'autre côté de la tour!
+L'hésitation du vieil homme permit à l'Épée de Sang de pénétrer au premier étage, créant une ouverture d'environ dix centimètres avant de jaillir de l'autre côté de la tour!
 
 Wang Lin recula, les yeux fixés sur cette brèche, le choc se lisant sur son visage!
 

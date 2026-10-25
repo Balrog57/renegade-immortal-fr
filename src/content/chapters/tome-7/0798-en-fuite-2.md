@@ -38,7 +38,7 @@ Wang Lin observa la femme. Elle était un peu plus belle que Zhan Yun. Il se sou
 
 Fronçant les sourcils, Wang Lin sentit que la situation devenait embarrassante. S'il avait su que cela arriverait, il n'aurait jamais sauvé Zhan Yun, quoi qu'il advienne. Il demanda: « Avez-vous des jades célestes, tous les trois? »
 
-Xi Zifeng fut surprise, mais avant qu'elle ne puisse répondre, Zhan Yun s'empressa de dire: « 10 000 jades célestes pour vous avoir sauvé la vie, et 10 000 autres par heure pour votre présence ici! »
+Xi Zifeng fut surprise, mais avant qu'elle ne puisse répondre, Zhan Yun s'empressa de dire: « 10 000 jades célestes pour vous avoir sauvé la vie, et 10 000 autres toutes les deux heures pour votre présence ici! »
 
 Xi Zifeng acquiesça: « C'est bien naturel! » Elle et ses deux compagnons sortirent immédiatement des jades célestes de leurs sacs et les rassemblèrent dans un même sac de rangement et les tendirent respectueusement à Wang Lin.
 

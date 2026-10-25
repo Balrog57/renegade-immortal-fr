@@ -30,7 +30,7 @@ Le front de Wang Lin était couvert de sueur froide alors qu'il regardait sur le
 
 Il scruta attentivement les environs. À cet instant, le danger dans ce fragment pouvait rivaliser avec celui des terres de l'Ancien Dieu.
 
-La manière dont cette faille spatiale était apparue était tout simplement trop sinistre. Wang Lin n'avait même pas été capable de la détecter à l'avance. Après une courte réflexion, il reprit sa descente lente. Il lui fallut le temps d'un bâtonnet d'encens pour se poser à une trentaine de mètres du sol.
+La manière dont cette faille spatiale était apparue était tout simplement trop sinistre. Wang Lin n'avait même pas été capable de la détecter à l'avance. Après une courte réflexion, il reprit sa descente lente. Il lui fallut quinze minutes pour se poser à une trentaine de mètres du sol.
 
 Cette altitude constituait un niveau relativement sûr. Peu de failles spatiales apparaissaient à cette hauteur et la chaleur de la lave n'était pas trop intense. Mais la prudence de Wang Lin ne diminua d'un iota tandis qu'il progressait lentement. Il voulait comprendre pourquoi la Secte Da Luo avait placé une matrice de transfert ici.
 

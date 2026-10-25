@@ -66,7 +66,7 @@ La bête moustique chargea soudainement en poussant un rugissement qui fit tremb
 
 Mais ce rugissement terrifia tous les habitants du village. Chacun gémit intérieurement, n'osant pas sortir.
 
-Le regard de la bête moustique devint féroce alors qu'elle chargeait et percutait une maison. Sa gueule acérée s'arrêta à peine à trois centimètres de l'individu à l'intérieur.
+Le regard de la bête moustique devint féroce alors qu'elle chargeait et percutait une maison. Sa gueule acérée s'arrêta à peine à une dizaine de centimètres de l'individu à l'intérieur.
 
 Il s'agissait du scribe d'âge moyen. En voyant cette gueule menaçante devant lui, il s'évanouit de peur.
 

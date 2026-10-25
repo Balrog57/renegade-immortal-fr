@@ -22,7 +22,7 @@ Les regards des six âmes primaires projetèrent soudain une lueur spectrale et 
 
 Ces flammes étaient l'essence même de ces six âmes primaires de la Transformation de l'Âme, ce qui les rendait extrêmement puissantes. Tandis que les flammes rugissaient, des bruits de crépitements et de sifflements déchirèrent le silence sur cette étendue de terre.
 
-Des cris de terreur se mêlaient au grondement du brasier. Après la durée d'une demi-baguette d'encens, seule la moitié du terrain subsistait, la terre restante étant devenue totalement rouge incandescente.
+Des cris de terreur se mêlaient au grondement du brasier. Après sept minutes, seule la moitié du terrain subsistait, la terre restante étant devenue totalement rouge incandescente.
 
 Cependant, sous la protection de la lumière verte, les flammes ne parvinrent pas à tout raffiner. Les éclats violents de lueur émeraude résistaient à l'invasion du feu, et un point d'équilibre fut atteint.
 

@@ -78,7 +78,7 @@ Il ne reçut aucune réponse jusqu'à ce que les cris des 72 âmes ne se muent e
 
 « Cette personne... est partie... »
 
-En entendant cela, Jiu Di resta incliné le temps de brûler un bâton d'encens avant de se redresser et de redescendre, le visage pâle.
+En entendant cela, Jiu Di resta incliné quinze minutes de plus avant de se redresser et de redescendre, le visage pâle.
 
 Wang Lin retira son regard du clan céleste. En voyant le Taureau Céleste et Lian Daofei, il eut l'envie de les sauver, mais il en était incapable.
 

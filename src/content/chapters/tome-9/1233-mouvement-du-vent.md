@@ -40,7 +40,7 @@ La compétition des sectes principales approchait. Tous les participants étaien
 
 Les réseaux de transfert construits dans chaque branche ne pouvaient être activés que par la secte principale; elles n'en avaient pas l'autorité.
 
-Cela faisait déjà une heure que Lu Yanfei se tenait là. Elle scrutait sans cesse le ciel, espérant revoir cette silhouette. Elle avait attendu dix ans, cinquante ans, cent ans... mais même à présent, cet homme ne s'était toujours pas manifesté.
+Cela faisait déjà deux heures que Lu Yanfei se tenait là. Elle scrutait sans cesse le ciel, espérant revoir cette silhouette. Elle avait attendu dix ans, cinquante ans, cent ans... mais même à présent, cet homme ne s'était toujours pas manifesté.
 
 Après un long moment, la terre trembla et une lumière éclatante jaillit de la Secte de l'Origine. Une immense quantité d'énergie d'origine commença à s'accumuler au sein de la secte, mais rien de tout cela n'attira l'attention de Lu Yanfei. Elle se mordit la lèvre inférieure et fixa le ciel, les yeux emplis de tristesse.
 

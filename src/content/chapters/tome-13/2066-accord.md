@@ -88,7 +88,7 @@ En vérité, la raison pour laquelle ils étaient venus, outre le choc provoqué
 
 Quant au Grand Empyréen Shuangzi, les deux fillettes s'étaient depuis longtemps fusionnées en une magnifique femme. Elle restait silencieuse, et même elle doutait de l'identité de celui qui avait combattu Gu Dao.
 
-Le temps passa. Les sept restèrent là pendant la durée d'un bâton d'encens. Ils se regardèrent, rendant l'atmosphère pesante et chargée d'intentions meurtrières.
+Le temps passa. Les sept restèrent là pendant quinze minutes. Ils se regardèrent, rendant l'atmosphère pesante et chargée d'intentions meurtrières.
 
 Alors qu'ils étaient tous plongés dans leurs pensées, Jiu Di prit soudain la parole: « Trois compagnons cultivateurs du clan Ancien, ce vieil homme a une suggestion. »
 

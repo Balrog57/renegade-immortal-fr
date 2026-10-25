@@ -136,7 +136,7 @@ Dans un rayon de 500 kilomètres autour de la Vallée de Wu Feng, un enfer d'asu
 
 Le sol se teintait peu à peu de rouge. Ce rouge n'était pas très profond, car il n'y avait que cent morts, pas assez pour un fleuve de sang, mais il s'en dégageait une aura à rendre fou.
 
-Trente minutes plus tard, Wang Lin sortit de ce périmètre de 500 kilomètres, une tête à la main. Cette tête appartenait au membre le plus haut placé de la famille Teng dans la Vallée de Wu Feng: Teng Gao.
+Quinze minutes plus tard, Wang Lin sortit de ce périmètre de 500 kilomètres, une tête à la main. Cette tête appartenait au membre le plus haut placé de la famille Teng dans la Vallée de Wu Feng: Teng Gao.
 
 Les yeux de Teng Gao étaient pétrifiés par la peur; cependant, parce qu'il portait le nom de Teng, il ne put rien y faire.
 
