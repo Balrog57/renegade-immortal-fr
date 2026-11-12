@@ -148,9 +148,9 @@ Une fois le massacre terminé, deux vieillards sortirent de la Vallée de Wu Fen
 
 L'autre hocha la tête en riant. « C'est vrai. Le niveau de culture de cet individu est prodigieux. Il doit être issu d'une secte démoniaque d'un pays de culture de rang supérieur. À en juger par ses actes, il compte anéantir la famille Teng. Je me demande si, au cas où Pu Nanzi interviendrait, cet homme pourrait lui résister. S'il n'y parvient pas, cela ne nous affectera pas non plus. »
 
-« Jeune frère apprenti, j'ai l'impression que ce visage m'est très familier, mais malgré mes efforts, je n'arrive pas à me souvenir où je l'ai déjà vu. »
+« Junior frère, j'ai l'impression que ce visage m'est très familier, mais malgré mes efforts, je n'arrive pas à me souvenir où je l'ai déjà vu. »
 
-« Vraiment? Grand frère apprenti, je pensais être le seul à le penser, mais nous avons forcément déjà rencontré cet homme! »
+« Vraiment? Senior frère, je pensais être le seul à le penser, mais nous avons forcément déjà rencontré cet homme! »
 
 Les deux réfléchirent longuement, sans pour autant parvenir à s'en souvenir. Ils avaient déjà oublié le jeune homme dont le corps avait été détruit lors d'un combat contre Teng Huayuan, à l'extérieur de la Vallée de Jue Ming, alors qu'il n'était qu'au stade de l'Établissement des Fondations.
 

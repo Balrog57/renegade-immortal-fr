@@ -1,6 +1,6 @@
 ---
 n: 482
-title: Palais de la Forêt Violette
+title: Pavillon Zi Lin
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 482 - Purple Forest Palace

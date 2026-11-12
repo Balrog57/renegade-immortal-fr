@@ -16,7 +16,7 @@ Wang Lin ferma légèrement les yeux et utilisa sa connexion avec le second dém
 
 Après une très longue attente, il ouvrit soudainement les yeux et s'envola vers le nord-ouest. Les petites créatures commencèrent à converger de toutes les directions pour reformer les tornades derrière lui.
 
-Peu de temps après, Wang Lin s'arrêta devant une stèle de pierre haute d'environ 99 mètres. Sa couleur tirait légèrement sur le rouge et elle dégageait une aura maléfique. Quelques petites créatures se trouvaient sur la pierre, battant des ailes dans un bourdonnement incessant.
+Peu de temps après, Wang Lin s'arrêta devant une stèle de pierre haute d'environ 300 pieds. Sa couleur tirait légèrement sur le rouge et elle dégageait une aura maléfique. Quelques petites créatures se trouvaient sur la pierre, battant des ailes dans un bourdonnement incessant.
 
 En voyant arriver Wang Lin, ces créatures volèrent vers lui et rejoignirent les tornades derrière lui. Wang Lin vit alors trois grands caractères inscrits sur la stèle: « Chemin sans Retour ».
 
@@ -62,19 +62,19 @@ Toutefois, ce Sens Divin était trop puissant; après plusieurs tentatives, Wang
 
 Bien qu'il ne fût pas assez puissant pour effacer ce Sens Divin, il réussit tout de même à le dissimuler grâce à son Sens Divin du Royaume Ji.
 
-L'autre sac de rangement était celui qu'il avait volé à Bossu Meng. Le Sens Divin qui l'habitait avait déjà disparu, signifiant que Bossu Meng était mort.
+L'autre sac de rangement était celui qu'il avait volé à Meng Tuozi. Le Sens Divin qui l'habitait avait déjà disparu, signifiant que Meng Tuozi était mort.
 
 Wang Lin ricana intérieurement. Ses yeux s'illuminèrent en l'ouvrant. Il contenait effectivement les économies de plusieurs milliers d'années d'un cultivateur au stade de la Formation de l'Âme. Rien qu'en pierres spirituelles, plus de 300 000 étaient entassées comme une petite montagne, toutes de haute qualité.
 
 Ce qui fit briller davantage le regard de Wang Lin fut la présence, paisiblement rangés à l'intérieur, de deux cristaux en forme de losange entourés d'un halo: des pierres spirituelles extrêmement rares et de qualité suprême.
 
-Le cœur de Wang Lin rata un battement. Ces deux seules pierres valaient à elles seules le risque de voler Bossu Meng.
+Le cœur de Wang Lin rata un battement. Ces deux seules pierres valaient à elles seules le risque de voler Meng Tuozi.
 
 En plus des pierres spirituelles, il y avait plusieurs flacons. Enfin, concernant les trésors magiques, il n'y avait que le chaudron vert, fendu en deux, et rien d'autre.
 
-Wang Lin comprit rapidement après réflexion. Bossu Meng étant resté piégé durant une longue période, il avait dû épuiser tous ses trésors.
+Wang Lin comprit rapidement après réflexion. Meng Tuozi étant resté piégé durant une longue période, il avait dû épuiser tous ses trésors.
 
-Sa supposition était très juste. Bossu Meng possédait de nombreux trésors, tous de niveau Âme Naissante ou supérieur. Cependant, après avoir tenté à plusieurs reprises de franchir les tornades, il avait tout consommé, particulièrement lors de l'épreuve où il utilisa plus de dix bêtes spirituelles comme substituts. Il avait jeté d'innombrables richesses dans cette tentative, allant même jusqu'à faire exploser ses trésors pour tenter de frayer un passage, sans succès.
+Sa supposition était très juste. Meng Tuozi possédait de nombreux trésors, tous de niveau Âme Naissante ou supérieur. Cependant, après avoir tenté à plusieurs reprises de franchir les tornades, il avait tout consommé, particulièrement lors de l'épreuve où il utilisa plus de dix bêtes spirituelles comme substituts. Il avait jeté d'innombrables richesses dans cette tentative, allant même jusqu'à faire exploser ses trésors pour tenter de frayer un passage, sans succès.
 
 C'est pour cette raison que le seul trésor magique qu'il lui restait était ce chaudron vert.
 
@@ -82,7 +82,7 @@ Outre cela, le sac contenait de nombreux jades. Wang Lin les examina un à un, e
 
 Ces connaissances étaient précieuses pour le Wang Lin actuel; il n'aurait plus jamais de mal à identifier un matériau de valeur.
 
-De plus, Bossu Meng était spécialisé dans l'alchimie et le poison, et le sac contenait de nombreux jades dédiés à ces disciplines. Wang Lin passa un long moment à les étudier, ce qui multiplia ses connaissances par plus de cent.
+De plus, Meng Tuozi était spécialisé dans l'alchimie et le poison, et le sac contenait de nombreux jades dédiés à ces disciplines. Wang Lin passa un long moment à les étudier, ce qui multiplia ses connaissances par plus de cent.
 
 Un jade vert foncé attira particulièrement son attention. C'était une méthode de culture dont le nom ne tenait qu'en un mot: *Ming* (Sous-monde).
 
@@ -92,19 +92,19 @@ Cependant, cette méthode était extrêmement tyrannique. Le pratiquant devait e
 
 De plus, ce n'est qu'en atteignant le neuvième niveau, celui du retour à la simplicité originelle, que le corps expulserait le poison pour former le véritable Poison Ming et que le pratiquant redeviendrait un être normal. Avant cela, le corps subirait toutes sortes de mutations, la plus flagrante étant l'apparition de pustules.
 
-Après avoir fini sa lecture, Wang Lin réfléchit et renonça à cette voie. Bossu Meng devait avoir cette odeur fétide précisément parce qu'il pratiquait cette méthode. Bien que Wang Lin ne se soucie guère de son propre corps, le jade précisait que la culture de cette technique remplissait le corps de poison. Il existait un risque que le venin envahisse la conscience, transformant l'individu en un mort-vivant qui ne sait que tuer.
+Après avoir fini sa lecture, Wang Lin réfléchit et renonça à cette voie. Meng Tuozi devait avoir cette odeur fétide précisément parce qu'il pratiquait cette méthode. Bien que Wang Lin ne se soucie guère de son propre corps, le jade précisait que la culture de cette technique remplissait le corps de poison. Il existait un risque que le venin envahisse la conscience, transformant l'individu en un mort-vivant qui ne sait que tuer.
 
 C'était la raison principale de son renoncement. Bien qu'il ne puisse pas pratiquer cette méthode, les jades contenaient de nombreuses techniques qu'il pourrait utiliser s'il disposait du poison nécessaire.
 
-Quant au raffinage des poisons, Wang Lin avait déjà parcouru les jades contenant l'expérience de Bossu Meng, ce qui faisait trembler son cœur d'excitation.
+Quant au raffinage des poisons, Wang Lin avait déjà parcouru les jades contenant l'expérience de Meng Tuozi, ce qui faisait trembler son cœur d'excitation.
 
 Il sortit tous les flacons du sac et utilisa les jades pour les identifier. Presque tous étaient des poisons, à l'exception d'un seul flacon contenant des pilules familières: celles qu'il avait prises pour se protéger de l'empoisonnement.
 
 Cette pilule anti-poison n'était que de qualité moyenne. Pour accroître son efficacité, il fallait la consommer avec un poison léger.
 
-Wang Lin rangea tout dans son sac et jeta au sol le sac de rangement de Bossu Meng. Puis, il saisit un objet et son expression se fit grave.
+Wang Lin rangea tout dans son sac et jeta au sol le sac de rangement de Meng Tuozi. Puis, il saisit un objet et son expression se fit grave.
 
-Il s'agissait du trésor vital de Bossu Meng: le chaudron vert.
+Il s'agissait du trésor vital de Meng Tuozi: le chaudron vert.
 
 Bien que fendu en deux, l'objet dégageait encore une puissante énergie spirituelle. Cependant, cette énergie était saturée de poison. La substance verte capable de détruire le Sens Divin incitait Wang Lin à la plus grande prudence lors de son examen.
 
@@ -114,7 +114,7 @@ En consultant les jades, il trouva une explication: lorsqu'on atteint le deuxiè
 
 Ce chaudron était une imitation du légendaire Chaudron Médicinal Royal. Bien qu'il s'agînt d'une copie, les matériaux dont il était constitué n'étaient pas inférieurs à ceux de l'original. Sa seule faiblesse résidait dans le manque de l'essence de dizaines de milliers d'années d'absorption de l'énergie des plantes par le véritable Chaudron Médicinal Royal.
 
-Ce chaudron représentait le trésor le plus important d'une secte dans un pays de culture de rang 3. Bossu Meng avait mis des centaines d'années à l'obtenir. Il avait d'abord rejoint la secte et était devenu le disciple personnel du chef grâce à son talent. Puis, dès qu'il en eut l'occasion, il vola l'objet, tua son maître et s'enfuit vers la Mer Xiu Mo, utilisant le chaudron comme trésor vital.
+Ce chaudron représentait le trésor le plus important d'une secte dans un pays de culture de rang 3. Meng Tuozi avait mis des centaines d'années à l'obtenir. Il avait d'abord rejoint la secte et était devenu le disciple personnel du chef grâce à son talent. Puis, dès qu'il en eut l'occasion, il vola l'objet, tua son maître et s'enfuit vers la Mer Xiu Mo, utilisant le chaudron comme trésor vital.
 
 Il avait pris un Chaudron Médicinal Royal pour le transformer en Chaudron du Roi Poison. S'il avait atteint le neuvième niveau, bien qu'il n'aurait pas égalé l'original, il s'en serait approché. Mais au lieu d'un chaudron de médecine, ce serait devenu un chaudron de poison.
 
@@ -196,16 +196,16 @@ Au sein du fluide, l'image d'un petit chaudron apparaissait et disparaissait. Wa
 
 L'esprit du chaudron rejoignit la fusion. L'expression de Wang Lin devint sérieuse. Contrairement à ses prévisions, les deux esprits ne s'attaquèrent pas immédiatement. Après une brève résistance, l'esprit du chaudron se transforma en gaz vert et pénétra l'esprit de l'épée.
 
-Une fois la fusion accomplie, Wang Lin se détendit enfin. Ses mains tracèrent plusieurs sceaux tandis que le liquide vert se solidifiait selon sa volonté pour prendre la forme d'une courte épée de vingt centimètres.
+Une fois la fusion accomplie, Wang Lin se détendit enfin. Ses mains tracèrent plusieurs sceaux tandis que le liquide vert se solidifiait selon sa volonté pour prendre la forme d'une courte épée de six pouces.
 
 Deux rangées d'innombrables petites épines poussèrent sur les flancs de l'arme, dégageant une lueur verte éblouissante.
 
 L'épée volante était désormais d'un vert sombre et parfaitement solidifiée. Elle contenait le venin du Chaudron du Roi Poison: si quelqu'un était touché, même si la lame ne tuait pas instantanément, le poison finirait par achever sa victime.
 
-Même un cultivateur au stade de l'Âme Naissante ne pourrait échapper à la mort s'il était frappé par surprise par cette arme. Après tout, ce venin provenait du trésor de Bossu Meng.
+Même un cultivateur au stade de l'Âme Naissante ne pourrait échapper à la mort s'il était frappé par surprise par cette arme. Après tout, ce venin provenait du trésor de Meng Tuozi.
 
 Cependant, après avoir reformé cette épée, il n'osait plus l'avaler pour la nourrir de son Noyau d'Or. Même lors de son utilisation, il devrait rester vigilant, car s'il était touché par sa propre arme, sa survie serait compromise.
 
-Il n'existait aucun antidote pour le poison du Chaudron du Roi Poison. Hormis Bossu Meng, personne ne pouvait en guérir les victimes.
+Il n'existait aucun antidote pour le poison du Chaudron du Roi Poison. Hormis Meng Tuozi, personne ne pouvait en guérir les victimes.
 
 Wang Lin était confiant quant à sa puissance, particulièrement grâce aux épines latérales. D'une simple pensée, celles-ci pouvaient se détacher pour attaquer l'ennemi, rendant toute défense extrêmement périlleuse.

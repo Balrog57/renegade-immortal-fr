@@ -32,15 +32,15 @@ Un autre cria: « Et si nous échangions les incantations des 4e, 5e et 6e nivea
 
 Wang Lin réfléchit un instant, secoua la tête et déclara: « Je veux les incantations du 3e au 15e niveau. »
 
-« Frère, ne nous mets pas la barre trop haut! Même le second frère apprenti Zhang Kuang, qui a remporté la compétition l'an dernier, n'est qu'au 6e niveau et il ne possède que les incantations des 7e, 8e et 9e niveaux. Quant aux niveaux allant du 10e au 15e, à part quelques Anciens, personne ne les possède! »
+« Junior frère, ne nous mets pas la barre trop haut! Même le second Senior frère Zhang Kuang, qui a remporté la compétition l'an dernier, n'est qu'au 6e niveau et il ne possède que les incantations des 7e, 8e et 9e niveaux. Quant aux niveaux allant du 10e au 15e, à part quelques Anciens, personne ne les possède! »
 
 Wang Lin fut interdit. Il hésita un moment lorsqu'une voix s'éleva non loin de là: « Si tu possèdes 200 gouttes de ce liquide, je peux te donner les incantations des niveaux 4 à 9! »
 
-Tous les regards se tournèrent vers la provenance de la voix et virent un homme vêtu de pourpre s'avancer vers le Wang Lin déguisé. Il semblait avoir vingt-huit ou vingt-neuf ans, mais son expression était glaciale, et il n'avait pas pris de pilule de déguisement. Lorsqu'il arriva, il inspecta les environs, plongeant l'assistance dans un silence craintif. Ils s'inclinèrent respectueusement: « Salutations, second frère apprenti! »
+Tous les regards se tournèrent vers la provenance de la voix et virent un homme vêtu de pourpre s'avancer vers le Wang Lin déguisé. Il semblait avoir vingt-huit ou vingt-neuf ans, mais son expression était glaciale, et il n'avait pas pris de pilule de déguisement. Lorsqu'il arriva, il inspecta les environs, plongeant l'assistance dans un silence craintif. Ils s'inclinèrent respectueusement: « Salutations, second Senior frère! »
 
 L'homme en pourpre ne leur prêta aucune attention et s'adressa directement à Wang Lin: « En as-tu 200 gouttes? »
 
-Le visage de Wang Lin se crispa et ses pupilles se rétractèrent. Il ressentait une sensation de danger extrême émanant de cet homme, une menace bien supérieure à tout ce qu'il avait rencontré jusqu'ici au sein de la Secte Heng Yue. Même le maître Sun Dazhu ou le frère Zhang ne pouvaient l'égaler.
+Le visage de Wang Lin se crispa et ses pupilles se rétractèrent. Il ressentait une sensation de danger extrême émanant de cet homme, une menace bien supérieure à tout ce qu'il avait rencontré jusqu'ici au sein de la Secte Heng Yue. Même le maître Sun Dazhu ou le Senior frère Zhang ne pouvaient l'égaler.
 
 Wang Lin répondit avec respect: « Ce liquide est une trouvaille fortuite. En plus de ces cent gouttes, il m'en reste encore quelques dizaines pour mon usage personnel. Je n'en ai pas autant. »
 

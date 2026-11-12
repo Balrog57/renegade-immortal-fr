@@ -58,7 +58,7 @@ Le visage de Qian Feng était féroce lorsqu'il rugit: « Ceng Niu!!! Je jure qu
 
 Liu Mei fixait silencieusement la mer, l'expression sombre. Voyant que Qian Feng continuait de maudire et de rugir, elle fronça les sourcils: « Tais-toi! Si tu n'avais pas eu ces intentions malveillantes et si nous avions vraiment travaillé ensemble tous les trois, nous serions déjà à l'intérieur du palais au lieu d'être ici. »
 
-Qian Feng eut un regard féroce. Il lança un regard de rage à Liu Mei et dit: « Crois-tu que je n'ai pas remarqué comment vous deux flirtiez en vous lançant des regards? Jeune sœur apprentie, n'oublie pas ce que tu m'as promis! »
+Qian Feng eut un regard féroce. Il lança un regard de rage à Liu Mei et dit: « Crois-tu que je n'ai pas remarqué comment vous deux flirtiez en vous lançant des regards? Junior sœur, n'oublie pas ce que tu m'as promis! »
 
 Liu Mei le regarda froidement: « Avec Yun Quezi ici, il sera difficile pour Ceng Niu de récupérer son fragment d'âme. Yun Quezi ne le laissera pas réussir si facilement. »
 

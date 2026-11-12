@@ -20,7 +20,7 @@ Peu après, il agita ses manches, pénétra dans sa grotte et s'assit en positio
 
 « Je dois trouver une pression spirituelle encore plus puissante. Ce n'est qu'ainsi que je pourrai forcer la reformation de mon âme originelle. » Wang Lin réfléchit un instant avant de disparaître.
 
-Il réapparut dans les profondeurs du sol, là où se trouvait la veine spirituelle de la Montagne de l'Affinement de l'Âme.
+Il réapparut dans les profondeurs du sol, là où se trouvait la veine spirituelle de la Montagne Lian Hun.
 
 C'était la partie la plus basse de la veine spirituelle. À 990 mètres sur la gauche se trouvait le drapeau doré. À cette distance, le Qilin contenu dans le drapeau d'âmes ne pouvait pas le déranger.
 
@@ -40,7 +40,7 @@ Les yeux de Wang Lin étincelèrent. Il déploya son Sens Divin et verrouilla le
 
 L'illusion recula prestement après le rugissement pour prendre rapidement forme.
 
-Wang Lin reconnut cet homme; c'était le vieil homme de la grande salle de pierre bleue, le Grand Ancien de la Montagne de l'Affinement de l'Âme, un cultivateur du stade avancé de l'Âme Naissante qui n'avait besoin que de comprendre son domaine pour atteindre le stade de la Formation de l'Âme.
+Wang Lin reconnut cet homme; c'était le vieil homme de la grande salle de pierre bleue, le Grand Ancien de la Montagne Lian Hun, un cultivateur du stade avancé de l'Âme Naissante qui n'avait besoin que de comprendre son domaine pour atteindre le stade de la Formation de l'Âme.
 
 « Maudit soit-il! Ce drapeau de 100 000 âmes devient de plus en plus puissant. Quand serai-je enfin capable d'en affiner le drapeau avec ma vitesse de culture? » Le visage du vieil homme était sombre.
 
@@ -74,7 +74,7 @@ Le visage du vieil homme se décomposa. La dernière fois qu'il avait combattu l
 
 Il frappa de nouveau son sac de rangement et une lumière noire apparut dans sa main. L'objet contenu dans cette lueur était une cloche dotée d'un manche en bois pourpre sur lequel étaient gravés des motifs complexes.
 
-« J'ai emprunté, contre un trésor extrêmement rare, cette cloche de scellement d'âmes de la Montagne du Scellement de l'Âme, juste pour te traiter! » hurla le vieil homme. Il secoua alors la cloche. Au son de l'instrument, des créatures humanoïdes à corne unique apparurent et chargèrent les Qilin.
+« J'ai emprunté, contre un trésor extrêmement rare, cette cloche de scellement d'âmes de la Montagne Suo Shen, juste pour te traiter! » hurla le vieil homme. Il secoua alors la cloche. Au son de l'instrument, des créatures humanoïdes à corne unique apparurent et chargèrent les Qilin.
 
 Les deux Qilin continuèrent de rugir tandis qu'ils étaient pris au piège. Le vieil homme afficha un sourire de triomphe en se concentrant sur le contrôle de son trésor.
 
@@ -110,4 +110,4 @@ Alors que Wang Lin se tenait face à l'homme inconscient, il tendit la main: le 
 
 « Ainsi, voici la véritable âme principale de ce drapeau. Les autres Qilin n'étaient que ses lieutenants. »
 
-Après que l'aura dorée eut absorbé tous les fragments d'âmes, elle poussa un rugissement qui ébranla toute la Montagne de l'Affinement de l'Âme. Un Qilin doré, paraissant parfaitement réel et sans aucun signe qu'il fût constitué de fragments d'âmes, apparut devant Wang Lin.
+Après que l'aura dorée eut absorbé tous les fragments d'âmes, elle poussa un rugissement qui ébranla toute la Montagne Lian Hun. Un Qilin doré, paraissant parfaitement réel et sans aucun signe qu'il fût constitué de fragments d'âmes, apparut devant Wang Lin.

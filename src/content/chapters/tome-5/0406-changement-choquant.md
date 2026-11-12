@@ -112,15 +112,15 @@ Vêtu d'une robe noire et très maigre, ses yeux s'illuminèrent lorsqu'il tourn
 
 Ce vieillard était Chu Yunfei, l'ancêtre Ascendant du stade précoce que toute la Secte Tian Yu respectait.
 
-La Secte de l'Âme Terrestre se trouvait dans la partie occidentale de Suzaku. Une grotte s'étendait profondément sous la secte, et à l'intérieur y siégeait un homme d'âge moyen.
+La Secte Di Po se trouvait dans la partie occidentale de Suzaku. Une grotte s'étendait profondément sous la secte, et à l'intérieur y siégeait un homme d'âge moyen.
 
 Soudain, cet homme ouvrit les yeux. Son regard portait une aura antique tandis qu'il soupirait: « Ce jour est enfin arrivé. Je n'aurais jamais cru qu'il me serait donné de le voir, ah! »
 
 La dernière secte de Suzaku était la Secte Ren Dao Xian; pourtant, aucun mouvement ne fut perceptible ici. L'ancêtre Ascendant de ce secteur était très mystérieux. Très peu de gens connaissaient sa demeure ou même son apparence.
 
-Pays de Pilu, dans la Secte Lian Hun, où Du Tian était en retraite.
+Pays de Pilu, dans la Secte Lian Hun, où Dun Tian était en retraite.
 
-Du Tian ouvrit les yeux et ricana avant de les refermer une fois de plus.
+Dun Tian ouvrit les yeux et ricana avant de les refermer une fois de plus.
 
 Cette calamité sur la planète Suzaku n'avait rien à voir avec Wang Lin. Il était uniquement concentré sur sa seconde confrontation avec le Dao céleste, afin que Li Muwan puisse renaître.
 

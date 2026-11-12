@@ -10,7 +10,7 @@ Les deux anciens de la Secte Da Luo Jian se regardèrent, puis le plus petit d'e
 
 Au moment même où il basculait dans l'abîme, un son strident capable de percer les cieux résonna au fond de la vallée. En un clin d'œil, une multitude de points rouges jaillirent des feuilles mortes qui recouvraient le sol et commencèrent à s'agglutiner. De loin, ce spectacle était terrifiant.
 
-« Frère aîné! » Qian Qin se retourna brusquement. Elle fixa les membres de la Secte Da Luo Jian et hurla: « Que signifie cela, Senior?! »
+« Senior frère! » Qian Qin se retourna brusquement. Elle fixa les membres de la Secte Da Luo Jian et hurla: « Que signifie cela, Senior?! »
 
 À peine avait-elle fini sa phrase que les innombrables points rouges s'animèrent. Ils fusionnèrent pour former un immense nuage écarlate qui se mit à émettre un bourdonnement assourdissant avant de fondre sur le jeune homme en robe blanche.
 
@@ -22,15 +22,15 @@ Des hurlements et des cris déchirants s'échappèrent de sa bouche. La douleur 
 
 Son corps se tordit et roula violemment dans la vallée. Ses yeux n'exprimaient plus qu'un profond désespoir et une haine inimaginable.
 
-« Frère aîné... » Qian Qin trembla de tout son corps, affichant un sourire pitoyable.
+« Senior frère... » Qian Qin trembla de tout son corps, affichant un sourire pitoyable.
 
 À cet instant, presque tous les points rouges de la vallée apparurent pour pénétrer le corps du jeune homme. Ses yeux s'éteignirent lentement et ses cris misérables s'étouffèrent peu à peu.
 
 Tout s'était déroulé avec une rapidité fulgurante, mais l'impact fut tel que les visages de l'assistance devinrent livides.
 
-« Tout ceci est de ma faute. Si le frère aîné de Qian Qin n'était pas mort, tout se serait bien passé et il n'y aurait point de rancune entre nous, mais à présent... » Guo Xingyi serra l'épée précieuse dans sa main, médita un instant, puis lança un regard où brilla une lueur d'intention meurtrière vers Qian Qin.
+« Tout ceci est de ma faute. Si le Senior frère de Qian Qin n'était pas mort, tout se serait bien passé et il n'y aurait point de rancune entre nous, mais à présent... » Guo Xingyi serra l'épée précieuse dans sa main, médita un instant, puis lança un regard où brilla une lueur d'intention meurtrière vers Qian Qin.
 
-Quant à l'autre femme, celle qui appelait Guo Xingyi « frère aîné », son visage était livide; elle pressait sa petite main contre sa bouche, comme sur le point de vomir. Son corps tremblait, manifestement terrifiée par ce qui venait de se produire.
+Quant à l'autre femme, celle qui appelait Guo Xingyi « Grand Senior frère », son visage était livide; elle pressait sa petite main contre sa bouche, comme sur le point de vomir. Son corps tremblait, manifestement terrifiée par ce qui venait de se produire.
 
 Seul l'homme en robe bleue, qui n'avait cessé de faire l'éloge de Guo Xingyi, ne montrait aucun signe d'inconfort. Au contraire, lorsqu'il tourna les yeux vers la vallée, une expression d'extase illumina son visage.
 
@@ -76,7 +76,7 @@ Ce mouvement changea soudainement toute l'atmosphère ambiante; une aura de mort
 
 En conséquence, le vieillard nommé Lu, qui s'apprêtait à récolter les fruits, s'interrompit net, le visage frappé par la stupeur.
 
-Les autres subirent le même sort. Seuls les yeux de Qian Qin restaient calmes tandis qu'elle contemplait le cadavre de son frère aîné. C'était comme si tout ce qui se passait autour d'elle ne la concernait plus.
+Les autres subirent le même sort. Seuls les yeux de Qian Qin restaient calmes tandis qu'elle contemplait le cadavre de son Senior frère. C'était comme si tout ce qui se passait autour d'elle ne la concernait plus.
 
 Shi Fang réfléchit un instant, puis cria: « Camarade cultivateur qui vient d'arriver, nul besoin de feindre ou de se cacher! Je suis l'un des anciens de la Secte Da Luo Jian, Shi Fang. Je vous prie de bien vouloir sortir pour converser! » Les deux anciens échangèrent un regard où transparaissait leur choc mutuel.
 

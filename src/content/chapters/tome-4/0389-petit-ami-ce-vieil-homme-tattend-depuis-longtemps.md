@@ -14,21 +14,21 @@ Le regard venu de l'anneau de sang disparut instantanément. Wang Lin réfléchi
 
 Wang Lin regarda les Montagnes Chou Po et Suo Shen avec une détermination sans faille.
 
-Il se transforma en un rayon de lumière, quitta la Montagne de l'Affinement de l'Âme et vola vers la Montagne Chou Po de l'Âme.
+Il se transforma en un rayon de lumière, quitta la Montagne Lian Hun et vola vers la Montagne Chou Po.
 
-Sur son chemin, une femme d'une grande élégance l'observait calmement depuis le flanc de la Montagne de l'Affinement de l'Âme. Elle poussa un soupir et murmura: « Sa récupération est tout simplement trop rapide... Si je veux laisser mon ombre dans son Dao cœur, je dois découvrir ce qu'est son Dao cœur... Cependant, malgré nos interactions, je n'ai pas réussi à percer son mystère. Grand frère aîné Wang, quel est donc ton véritable Dao cœur... »
+Sur son chemin, une femme d'une grande élégance l'observait calmement depuis le flanc de la Montagne Lian Hun. Elle poussa un soupir et murmura: « Sa récupération est tout simplement trop rapide... Si je veux laisser mon ombre dans son Dao cœur, je dois découvrir ce qu'est son Dao cœur... Cependant, malgré nos interactions, je n'ai pas réussi à percer son mystère. Senior frère Wang, quel est donc ton véritable Dao cœur... »
 
-Wang Lin atterrit sur la Montagne Chou Po de l'Âme et déploya son Sens Divin avant de foncer vers une grotte. Le cultivateur qui se trouvait à l'intérieur était celui dont le niveau de culture était le plus élevé après le Grand Ancien, Su Jinshi!
+Wang Lin atterrit sur la Montagne Chou Po et déploya son Sens Divin avant de foncer vers une grotte. Le cultivateur qui se trouvait à l'intérieur était celui dont le niveau de culture était le plus élevé après le Grand Ancien, Su Jinshi!
 
 Dès que la silhouette de Wang Lin apparut, Su Jinshi, qui était en pleine méditation, ouvrit les yeux et afficha une expression disgracieuse.
 
 Wang Lin se tint à l'intérieur de la demeure de Su Jinshi, observa les lieux et demanda calmement: « Possédez-vous le jade d'extraction de l'âme? »
 
-Su Jinshi réfléchit un instant et hocha la tête. Il ne parvenait pas à sonder le niveau de culture de cet homme, qu'il n'avait jamais vu auparavant, mais il pouvait déduire par ses vêtements que celui-ci appartenait à la Montagne de l'Affinement de l'Âme.
+Su Jinshi réfléchit un instant et hocha la tête. Il ne parvenait pas à sonder le niveau de culture de cet homme, qu'il n'avait jamais vu auparavant, mais il pouvait déduire par ses vêtements que celui-ci appartenait à la Montagne Lian Hun.
 
 Au sein de la Secte Lian Hun, les disciples des trois montagnes étaient autorisés à interagir entre eux. Si l'on possédait les capacités nécessaires, on pouvait apprendre les trois techniques à sa guise.
 
-Su Jinshi s'était rendu à la Montagne de l'Affinement de l'Âme il y a de nombreuses années et y avait obtenu un jade d'affinement de l'âme.
+Su Jinshi s'était rendu à la Montagne Lian Hun il y a de nombreuses années et y avait obtenu un jade d'affinement de l'âme.
 
 Su Jinshi serra les dents et déclara: « Je peux te donner le jade d'extraction de l'âme, mais il me manque plus de 300 fragments d'âme pour raffiner ce drapeau en un drapeau de mille âmes. Si tu peux me fournir ces 300 fragments, je te laisserai consulter le jade. »
 
@@ -36,7 +36,7 @@ Wang Lin regarda Su Jinshi. Compte tenu de son rang, il jugeait indigne de lui d
 
 Wang Lin tendit la main gauche et les 300 fragments se transformèrent en une perle noire de la taille d'un poing, qu'il lança à Su Jinshi.
 
-Su Jinshi était un homme de décision; il sortit un jade pourpre et le tendit à Wang Lin. Il demanda: « Quel est le nom du grand frère aîné? »
+Su Jinshi était un homme de décision; il sortit un jade pourpre et le tendit à Wang Lin. Il demanda: « Quel est le nom du Senior frère? »
 
 « Qing Mu! » Wang Lin prit le jade et l'examina. Le jade contenait effectivement la méthode pour extraire une âme vivante, la manière de l'empêcher de se dissiper, et enfin comment l'utiliser pour raffiner un drapeau d'âme.
 
@@ -44,11 +44,11 @@ Le jade d'extraction de l'âme comprenait également trois techniques: l'apaisem
 
 L'apaisement était le fondement de l'extraction; sans lui, les chances de succès étaient dérisoires. Une fois utilisé, le taux de réussite augmentait considérablement. L'attrait de l'âme était la technique proprement dite pour arracher une âme à un être vivant.
 
-Quant à la dernière, l'élevage de gu, c'était la plus vicieuse et la plus puissante des trois, comparable au sacrifice de sang de la Montagne de l'Affinement de l'Âme.
+Quant à la dernière, l'élevage de gu, c'était la plus vicieuse et la plus puissante des trois, comparable au sacrifice de sang de la Montagne Lian Hun.
 
 L'élevage de gu utilisait une méthode mystérieuse pour transformer une âme vivante en une sorte de gu capable de tuer sans laisser de trace. Avec le temps et un raffinage continu, elle finissait par devenir une bête d'âme gu, dotée de la puissance d'un cultivateur au stade de la Formation du Noyau.
 
-Si elle n'en était pas là, cette technique n'aurait pas eu grand intérêt, mais il y a longtemps, un disciple de la Montagne Chou Po de l'Âme avait trahi son ordre pour s'enfuir. Grâce à cette méthode, sous une identité transformée, il sema la terreur dans un pays de culture de rang 4 et fonda sa propre secte: la Secte Dan Mo Dao.
+Si elle n'en était pas là, cette technique n'aurait pas eu grand intérêt, mais il y a longtemps, un disciple de la Montagne Chou Po avait trahi son ordre pour s'enfuir. Grâce à cette méthode, sous une identité transformée, il sema la terreur dans un pays de culture de rang 4 et fonda sa propre secte: la Secte Dan Mo Dao.
 
 Cet homme utilisait une méthode occulte pour raffiner les bêtes d'âme gu en pilules, puis y fondait le qi vert des cadavres pour accroître leur puissance, formant ainsi un noyau vert. Il nomma cela la Méthode du Noyau Vert, ce qui lui permit d'atteindre le stade de la Formation de l'Âme. Il était considéré comme un génie de son temps.
 
@@ -58,17 +58,17 @@ Lorsqu'il attaquait, il projetait d'innombrables noyaux verts qui explosaient. S
 
 La Secte Lian Hun n'avait jamais pris de mesures contre lui pour sa trahison, ce qui avait laissé beaucoup de gens perplexes. À mesure que cet homme disparaissait, sa légende s'estompa lentement dans les annales de l'histoire.
 
-Su Jinshi regarda Wang Lin et demanda: « Le grand frère aîné Qing Mu compte-t-il se rendre à la Montagne du Scellement de l'Âme pour obtenir le jade de scellement? »
+Su Jinshi regarda Wang Lin et demanda: « Le Senior frère Qing Mu compte-t-il se rendre à la Montagne Suo Shen pour obtenir le jade de scellement? »
 
 Wang Lin rangea le jade d'extraction et hocha la tête.
 
-Su Jinshi esquissa un sourire amer et dit: « Il vaut mieux que tu n'y ailles pas. Il n'existe pas un seul jade de scellement à la Montagne du Scellement de l'Âme. Seuls les ancêtres de la Formation de l'Âme sont autorisés à les étudier. Ce que les disciples de la Montagne du Scellement de l'Âme pratiquent réellement n'est pas différent de ce que nous pratiquons; chez eux, il y a des adeptes de l'affinement comme de l'extraction. »
+Su Jinshi esquissa un sourire amer et dit: « Il vaut mieux que tu n'y ailles pas. Il n'existe pas un seul jade de scellement à la Montagne Suo Shen. Seuls les ancêtres de la Formation de l'Âme sont autorisés à les étudier. Ce que les disciples de la Montagne Suo Shen pratiquent réellement n'est pas différent de ce que nous pratiquons; chez eux, il y a des adeptes de l'affinement comme de l'extraction. »
 
 L'expression de Wang Lin resta de marbre. Il hocha la tête, puis disparut.
 
-Lorsqu'il réapparut, il était arrivé à la Montagne du Scellement de l'Âme. Il trouva un disciple au hasard et reçut la même confirmation que celle de Su Jinshi.
+Lorsqu'il réapparut, il était arrivé à la Montagne Suo Shen. Il trouva un disciple au hasard et reçut la même confirmation que celle de Su Jinshi.
 
-Wang Lin inspecta également les veines spirituelles sous les Montagnes Chou Po et Suo Shen. Seule la Montagne du Scellement possédait un drapeau d'âme en dessous, mais celui-ci n'était guère puissant. Les fragments d'âme qu'il contenait étaient également très hétérogènes en termes de puissance. Wang Lin ne fournit presque aucun effort pour le récupérer.
+Wang Lin inspecta également les veines spirituelles sous les Montagnes Chou Po et Suo Shen. Seule la Montagne Suo Shen possédait un drapeau d'âme en dessous, mais celui-ci n'était guère puissant. Les fragments d'âme qu'il contenait étaient également très hétérogènes en termes de puissance. Wang Lin ne fournit presque aucun effort pour le récupérer.
 
 Quant à la Montagne Chou Po, elle était totalement vide. Il était clair que quelqu'un avait emporté le drapeau des années auparavant.
 

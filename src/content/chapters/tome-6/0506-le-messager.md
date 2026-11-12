@@ -74,7 +74,7 @@ L'expression de Wang Lin demeura impassible alors qu'il agita ses manches pour e
 
 La zone fut soudainement plongée dans un brouillard noir dégageant une aura lugubre.
 
-Une fois cela accompli, Wang Lin réfléchit un instant, puis frappa son front de la paume et cracha un drapeau d'une dizaine de mètres de long. Bien que le Drapeau des Âmes d'un Milliard ait perdu la plupart de ses fragments, il restait plusieurs âmes primaires. Wang Lin agita le drapeau, libérant ces âmes dans le brouillard noir pour renforcer la protection. Il libéra chaque âme primaire à l'exception du fragment d'âme du Qilin, car cela n'aurait pas été pratique.
+Une fois cela accompli, Wang Lin réfléchit un instant, puis frappa son front de la paume et cracha un drapeau d'une dizaine de mètres de long. Bien que l'Étendard de l'Âme ait perdu la plupart de ses fragments, il restait plusieurs âmes primaires. Wang Lin agita le drapeau, libérant ces âmes dans le brouillard noir pour renforcer la protection. Il libéra chaque âme primaire à l'exception du fragment d'âme du Qilin, car cela n'aurait pas été pratique.
 
 Après ces préparatifs, Wang Lin prit une profonde inspiration, puis d'un geste de la main, un jade apparut!
 

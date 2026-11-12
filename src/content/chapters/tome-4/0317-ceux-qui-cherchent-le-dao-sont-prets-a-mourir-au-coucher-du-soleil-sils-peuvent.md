@@ -26,7 +26,7 @@ Il leva sa main droite. Soudain, un éventail ne portant que deux plumes apparut
 
 Les yeux de Hongdie se fixèrent instantanément sur l'éventail, empreints de choc. Ses pas s'immobilisèrent inconsciemment un court instant.
 
-« L'éventail de la sœur aînée! »
+« L'éventail de la Senior sœur! »
 
 C'était précisément ce moment d'hésitation que Wang Lin attendait. Endurant la morsure du domaine impitoyable dans son corps, il projeta l'éventail en avant et laissa s'élancer son âme originelle.
 

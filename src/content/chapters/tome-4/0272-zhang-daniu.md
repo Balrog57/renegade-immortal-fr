@@ -1,6 +1,6 @@
 ---
 n: 272
-title: Zhang Daniu
+title: Da Niu
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 272 - Zhang Daniu

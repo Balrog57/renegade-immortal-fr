@@ -14,7 +14,7 @@ Tian Yunzi est considéré comme un sage extrêmement respecté de sa générati
 
 Une planète de culture de rang 7 contrôlerait normalement de nombreuses planètes de rang 6 pour renforcer sa propre puissance, mais ce n'est pas le cas de Tian Yun.
 
-Il n'existe que cinq planètes gravitant autour de la planète Tian Yun, et elles sont toutes de rang 6. Elles se nomment Ciel, Terre, Humain, Vie et Destin.
+Il n'existe que cinq planètes gravitant autour de la planète Tian Yun, et elles sont toutes de rang 6. Elles se nomment Tian, Di, Ren, Ming et Yun.
 
 Un gigantesque réseau de transfert relie ces cinq planètes à la planète Tian Yun. Cependant, le coût nécessaire pour l'activer est colossal, ce qui explique pourquoi il n'est pas utilisé à tout propos.
 
@@ -66,7 +66,7 @@ Les trois sorts mortels étaient devenus la signature de Wang Lin, et sa puissan
 
 Ces divers échos avaient circulé entre de nombreuses personnes avant d'atteindre les oreilles de Zhao Si. D'après ce qu'il savait, ce Wang Lin était un cultivateur démoniaque assoiffé de sang qui, en plus d'avoir un tempérament de feu, n'hésitait pas à tuer instantanément quiconque l'irritait!
 
-« Ouvrez la formation vers la planète Terre! » La voix de Wang Lin était calme. Il dépassa Zhao Si et pénétra directement dans le réseau de transfert.
+« Ouvrez la formation vers la planète Di! » La voix de Wang Lin était calme. Il dépassa Zhao Si et pénétra directement dans le réseau de transfert.
 
 Lorsqu'il planait dans les airs, il avait déjà observé le dispositif. Le réseau s'étendait sur une zone de près de cinq kilomètres et présentait d'innombrables symboles complexes gravés au sol. Des ondes d'une aura puissante émanaient du mécanisme et se propageaient tout autour. De loin, on aurait dit qu'un brouillard dense empêchait toute observation précise.
 
@@ -84,15 +84,15 @@ C'était un glyphe couvrant une zone de cinq kilomètres de large, d'une complex
 
 En un clin d'œil, le gigantesque glyphe libéra un éclat puissant. Cette lumière enveloppa toute la zone, et à cet instant, le ciel et la terre furent baignés d'une lueur fantomatique.
 
-Habitué à ce spectacle, Zhao Si ferma les yeux dès que le réseau s'anima. Après avoir compté cinq secondes, il les rouvrit.
+Habitué à ce spectacle, Zhao Si ferma les yeux dès que le réseau s'anima. Après avoir compté cinq respirations, il les rouvrit.
 
 Le réseau était vide; tout semblait être revenu à son état initial. Seule subsistait la lueur spectrale qui, telle un nuage de lucioles, dérivait lentement pour retourner dans les ravins.
 
-Zhao Si observa le réseau de transfert désormais désert avec envie, puis soupira en murmurant: « Je me demande bien ce que ce septième ancêtre de la Division Pourpre va chercher sur la planète Terre. Enfin, cela ne me regarde pas; je dois me concentrer sur ma culture pour atteindre le stade avancé de la Formation de l'Âme au plus vite! »
+Zhao Si observa le réseau de transfert désormais désert avec envie, puis soupira en murmurant: « Je me demande bien ce que ce septième ancêtre de la Division Pourpre va chercher sur la planète Di. Enfin, cela ne me regarde pas; je dois me concentrer sur ma culture pour atteindre le stade avancé de la Formation de l'Âme au plus vite! »
 
 Zhao Si secoua la tête, se rassit et reprit sa méditation.
 
-La planète Terre était l'une des cinq planètes orbitant autour de Tian Yun. Vue de loin, elle présentait une teinte jaune terreuse et d'innombrables halos mouvaient à sa surface. Sa taille était comparable à celle de la planète Suzaku.
+La planète Di était l'une des cinq planètes orbitant autour de Tian Yun. Vue de loin, elle présentait une teinte jaune terreuse et d'innombrables halos mouvaient à sa surface. Sa taille était comparable à celle de la planète Suzaku.
 
 La Secte Xuan Yuan était le seul pays de culture de rang 6 sur cette planète. Le secteur de la Secte Xuan Yuan constituait un État entier peuplé d'innombrables cultivateurs. Leur ancêtre, nommé Xuan Ming, avait déjà dépassé le stade Ascendant.
 

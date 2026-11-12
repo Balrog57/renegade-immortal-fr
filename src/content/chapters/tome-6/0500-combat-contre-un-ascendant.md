@@ -64,11 +64,11 @@ Au final, il ne restait que le tendon de dragon tenant le vide, et Chen Tao, don
 
 Après l'ouverture du premier sceau, la bête ne comptait plus uniquement sur la dévoration pour attaquer; elle pouvait désormais utiliser certaines de ses capacités innées.
 
-Bien que le visage de Chen Tao fût assombri, l'intention de combat dans ses yeux s'intensifia. Il se retourna brusquement vers Wang Lin et dit d'un ton lugubre: « Jeune frère apprenti, tu as désormais la qualification pour être mon cadet! Cependant, cette qualification a un prix! »
+Bien que le visage de Chen Tao fût assombri, l'intention de combat dans ses yeux s'intensifia. Il se retourna brusquement vers Wang Lin et dit d'un ton lugubre: « Petit Junior frère, tu as désormais la qualification pour être mon Junior frère! Cependant, cette qualification a un prix! »
 
-Wang Lin fixa Chen Tao et répondit lentement: « Tu n'as pas les qualifications pour être mon aîné! »
+Wang Lin fixa Chen Tao et répondit lentement: « Tu n'as pas les qualifications pour être mon Senior frère! »
 
-Chen Tao regarda Wang Lin, éclata de rire et déclara: « Combattre cette bête va me coûter un peu de temps, mais dès que je t'aurai capturé, cette bête ne pourra plus s'échapper! Regarde donc si j'ai, oui ou non, la qualification pour être ton aîné! »
+Chen Tao regarda Wang Lin, éclata de rire et déclara: « Combattre cette bête va me coûter un peu de temps, mais dès que je t'aurai capturé, cette bête ne pourra plus s'échapper! Regarde donc si j'ai, oui ou non, la qualification pour être ton Senior frère! »
 
 L'adversaire était un cultivateur Ascendant; Wang Lin savait qu'il n'était pas de taille, mais il ne pouvait pas simplement capituler. Même en cas de défaite, il voulait que cet homme sache qu'on ne devait pas s'en prendre à lui.
 

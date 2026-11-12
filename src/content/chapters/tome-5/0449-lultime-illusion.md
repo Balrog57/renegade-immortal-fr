@@ -109,15 +109,15 @@ Pendant ce temps, sur le flanc est du continent Suzaku, dans une zone enveloppé
 
 Leurs plantes de vie scintillaient sur leurs fronts et, entre eux, reposait un crâne.
 
-Un tatouage était gravé sur cet os. Ce motif était bien plus complexe que tous ceux que Wang Lin avait pu obtenir; il n'y avait aucune comparaison possible.
+Une rune était gravée sur cet os. Ce motif était bien plus complexe que tous ceux que Wang Lin avait pu obtenir; il n'y avait aucune comparaison possible.
 
 Une aura puissante s'accumulait au-dessus du crâne.
 
-Yun Quezi observa l'objet avec respect et déclara d'un ton grave: « L'Ancêtre Originel a reçu les conseils des dieux antiques de la planète Fu Wen et a transcendé le stade des onze feuilles pour devenir le troisième shaman à douze feuilles de l'histoire du clan. Ce tatouage possède un pouvoir tel que, si nous unissons nos forces, nous devrions être capables d'envoyer l'un d'entre nous à l'intérieur. »
+Yun Quezi observa l'objet avec respect et déclara d'un ton grave: « L'Ancêtre Originel a reçu les conseils des dieux antiques de la planète Fu Wen et a transcendé le stade des onze feuilles pour devenir le troisième shaman à douze feuilles de l'histoire du clan. Cette rune possède un pouvoir tel que, si nous unissons nos forces, nous devrions être capables d'envoyer l'un d'entre nous à l'intérieur. »
 
 Le premier ancêtre demanda lentement: « Qui s'y rendra alors? »
 
-La troisième ancêtre, cette femme belle et charmante, n'avait plus le cœur à rire et soupira: « L'idéal serait que le premier ancêtre y aille, mais votre corps est enfoui profondément dans la Nécropole Immortelle. Si vous tentez d'y pénétrer avec votre âme tatouée, nous ignorons si le Tombeau Zhu Que aura un impact sur vous. Que diriez-vous de... »
+La troisième ancêtre, cette femme belle et charmante, n'avait plus le cœur à rire et soupira: « L'idéal serait que le premier ancêtre y aille, mais votre corps est enfoui au plus profond du Clan Xian Yi. Si vous tentez d'y pénétrer avec votre esprit de rune, nous ignorons si le Tombeau Zhu Que aura un impact sur vous. Que diriez-vous de... »
 
 Elle s'interrompit brusquement en se levant pour regarder vers le Tombeau Zhu Que, affichant une expression étrange.
 

@@ -76,13 +76,13 @@ Une fois sorti de la demeure de Cheng Xian, Wang Lin se déplaça à toute vites
 
 À peine son corps eut-il disparu que Li Muwan, vive comme l'éclair, arriva sur les lieux. Derrière elle se trouvait l'homme d'âge moyen, gardant toujours un visage empreint de douceur.
 
-L'homme fronça les sourcils et demanda lentement: « Sœur cadette, que cherches-tu exactement? »
+L'homme fronça les sourcils et demanda lentement: « Junior sœur, que cherches-tu exactement? »
 
 Li Muwan s'immobilisa. Grâce au Sens Divin logé entre ses sourcils, elle sentait distinctement que cet homme se tenait là, mais pourquoi ne pouvait-elle pas le voir? Un sourire amer étira ses lèvres. Elle était une femme d'esprit et comprit immédiatement qu'il refusait simplement de se montrer.
 
 Li Muwan se mordit la lèvre inférieure, le visage empreint de chagrin: « Je sais que tu es là. Pourquoi ne veux-tu même pas me rencontrer, ne serait-ce qu'une fois? »
 
-L'expression de l'homme d'âge moyen changea brusquement. Il déploya son Sens Divin, mais ne trouva personne. Il fronça les sourcils et regarda Li Muwan avec suspicion: « Sœur cadette, qui est là? Il n'y a personne d'autre ici. »
+L'expression de l'homme d'âge moyen changea brusquement. Il déploya son Sens Divin, mais ne trouva personne. Il fronça les sourcils et regarda Li Muwan avec suspicion: « Junior sœur, qui est là? Il n'y a personne d'autre ici. »
 
 Li Muwan ne daigna même pas le regarder. Elle ferma les yeux pour tenter de retrouver son calme et dit: « Wan Er ne demande rien d'autre que de te voir une fois. Durant ces deux cents ans, Wan Er n'a maintenu sa vitalité que grâce à ce flacon de liquide spirituel que tu m'avais offert alors. Si tu n'apparais pas aujourd'hui, Wan Er se donnera la mort ici même, mettant ainsi fin à l'obsession de son cœur. » Sa voix était basse, mais empreinte d'une détermination inébranlable.
 
@@ -98,7 +98,7 @@ Wang Lin esquissa un sourire amer et demanda: « Pourquoi faut-il que tu agisses
 
 La main droite de l'homme s'immobilisa net. Son visage se décomposa à nouveau. La sensation que Wang Lin dégageait était trop étrange; bien qu'il n'en fût manifestement qu'au stade avancé de la Formation du Noyau, la pression qu'il exerçait était comparable à celle d'un cultivateur de l'Âme Naissante.
 
-Il n'avait aucun doute: si sa main touchait son sac, Wang Lin l'exécuterait instantanément. Des perles de sueur apparurent sur son front alors qu'il balbutiait: « Puisque ce frère est un ancien ami de la sœur cadette Li, vous êtes donc un ami de la Secte Yun Tian. Comment oserais-je être impoli? Ce frère m'a mal compris. »
+Il n'avait aucun doute: si sa main touchait son sac, Wang Lin l'exécuterait instantanément. Des perles de sueur apparurent sur son front alors qu'il balbutiait: « Puisque ce frère est un ancien ami de la Junior sœur Li, vous êtes donc un ami de la Secte Yun Tian. Comment oserais-je être impoli? Ce frère m'a mal compris. »
 
 Li Muwan regardait Wang Lin. Elle avait mille choses à lui dire, mais aucun mot ne pouvait franchir ses lèvres. Après un moment de réflexion, elle demanda: « Possèdes-tu toujours ce morceau de jade? »
 
@@ -126,7 +126,7 @@ Wang Lin réfléchit longuement. Puis, la voix basse et le dos tourné vers Li M
 
 Le corps de Li Muwan fut secoué par un tressaillement. Après un long silence, des larmes coulèrent sur ses joues et elle murmura pour elle-même: « Je te hais... je te hais!!! »
 
-L'homme d'âge moyen poussa un soupir de soulagement et dit doucement: « Sœur cadette, il est déjà parti. »
+L'homme d'âge moyen poussa un soupir de soulagement et dit doucement: « Junior sœur, il est déjà parti. »
 
 Li Muwan se mordit la lèvre inférieure, ignora l'homme et retourna dans sa demeure.
 

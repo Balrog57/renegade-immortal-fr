@@ -6,17 +6,17 @@ bookTitle: The Mediocre Youth
 en: Chapter 37 - Four Years
 slug: quatre-ans
 ---
-Le frère Zhang lança un regard froid à Wang Zhuo et déclara: « La clé pour franchir un palier est en effet étroitement liée au talent. Certains réussissent dès la première tentative, tandis que d'autres ont besoin de centaines ou de milliers de tentatives, voire ne parviennent jamais à progresser de toute leur vie. »
+Le Senior frère Zhang lança un regard froid à Wang Zhuo et déclara: « La clé pour franchir un palier est en effet étroitement liée au talent. Certains réussissent dès la première tentative, tandis que d'autres ont besoin de centaines ou de milliers de tentatives, voire ne parviennent jamais à progresser de toute leur vie. »
 
-Wang Lin afficha une expression mélancolique et demanda soudainement: « Frère Zhang, est-ce aussi difficile de franchir chaque étape? Le passage du deuxième au troisième niveau est-il aussi ardu que celui du troisième au quatrième? »
+Wang Lin afficha une expression mélancolique et demanda soudainement: « Senior frère Zhang, est-ce aussi difficile de franchir chaque étape? Le passage du deuxième au troisième niveau est-il aussi ardu que celui du troisième au quatrième? »
 
-Le frère Zhang hocha la tête: « Oui. Plus on avance dans les stades, plus c'est difficile, particulièrement lors des passages du troisième au quatrième, et du cinquième au sixième niveau. »
+Le Senior frère Zhang hocha la tête: « Oui. Plus on avance dans les stades, plus c'est difficile, particulièrement lors des passages du troisième au quatrième, et du cinquième au sixième niveau. »
 
-La réponse du frère Zhang attira également l'attention de quelques autres disciples. Une disciple demanda soudainement: « Frère Zhang, qu'est-ce qui rend si difficile le passage du troisième au quatrième niveau? Je suis actuellement au troisième niveau. »
+La réponse du Senior frère Zhang attira également l'attention de quelques autres disciples. Une disciple demanda soudainement: « Senior frère Zhang, qu'est-ce qui rend si difficile le passage du troisième au quatrième niveau? Je suis actuellement au troisième niveau. »
 
 Wang Lin reconnut la personne qui venait de parler. C'était la jeune fille nommée Zhou, celle que Wang Zhuo courtisait.
 
-Le frère Zhang réfléchit un instant et dit: « Très bien. Aujourd'hui, je vais vous parler des deux goulots d'étranglement que vous rencontrerez avant d'atteindre le sixième niveau de Condensation de Qi. Le premier est le passage du troisième au quatrième niveau. Pour certains, c'est très facile, mais pour d'autres, c'est un obstacle qu'ils ne surmonteront peut-être jamais de leur existence. La clé n'a rien à voir avec le talent, mais plutôt avec la capacité de chacun à comprendre le sens de l'expression: "la voie est impitoyable". »
+Le Senior frère Zhang réfléchit un instant et dit: « Très bien. Aujourd'hui, je vais vous parler des deux goulots d'étranglement que vous rencontrerez avant d'atteindre le sixième niveau de Condensation de Qi. Le premier est le passage du troisième au quatrième niveau. Pour certains, c'est très facile, mais pour d'autres, c'est un obstacle qu'ils ne surmonteront peut-être jamais de leur existence. La clé n'a rien à voir avec le talent, mais plutôt avec la capacité de chacun à comprendre le sens de l'expression: "la voie est impitoyable". »
 
 Il lança un regard pensif à l'assemblée et continua: « Les immortels doivent rompre leurs liens mortels. Si vous y parvenez, alors le passage du troisième au quatrième niveau sera aisé; sinon, il deviendra ardu. Quant à l'obstacle entre le cinquième et le sixième niveau, il s'agit d'un changement qualitatif de la Condensation de Qi: votre corps, remodelé par l'énergie spirituelle, atteint un petit accomplissement et subit alors une série de changements plus profonds. Cela nécessite une quantité massive d'énergie spirituelle, ce qui en fait un goulot d'étranglement qui bloque de nombreux cultivateurs. »
 
@@ -30,11 +30,11 @@ De fines traces d'énergie spirituelle émanaient de l'eau. Wang Lin s'approcha 
 
 Il sortit alors des gourdes et les remplit une à une. Après un long moment, il finit par remplir toutes ses gourdes et se retourna. Ses pupilles se rétractèrent instantanément lorsqu'il vit Zhang Kuang debout à distance derrière lui, tel un fantôme. Alors qu'il puisait l'eau, il balayait constamment la zone avec son Sens Divin, mais n'avait rien détecté. Pourtant, il semblait que Zhang Kuang était là depuis longtemps. Le cœur de Wang Lin sombra.
 
-Les yeux de Zhang Kuang étincelèrent et il dit: « Jeune frère Wang, cette rivière contient effectivement beaucoup d'énergie spirituelle et est bénéfique pour ta culture, mais je vois que tu as déjà préparé de nombreuses gourdes. Savais-tu que tu en aurais besoin avant même de venir ici? »
+Les yeux de Zhang Kuang étincelèrent et il dit: « Junior frère Wang, cette rivière contient effectivement beaucoup d'énergie spirituelle et est bénéfique pour ta culture, mais je vois que tu as déjà préparé de nombreuses gourdes. Savais-tu que tu en aurais besoin avant même de venir ici? »
 
-Wang Lin rangea ses affaires sans laisser transparaître l'ombre d'une émotion et répondit: « Maître m'avait précédemment informé que la rivière favoriserait ma culture, votre cadet en a donc préparé beaucoup. »
+Wang Lin rangea ses affaires sans laisser transparaître l'ombre d'une émotion et répondit: « Maître m'avait précédemment informé que la rivière favoriserait ma culture, ce Junior frère en a donc préparé beaucoup. »
 
-Zhang Kuang fixa Wang Lin un long moment avant de dire: « Il est normal que Sun Dazhu soit au courant. Tu devrais retourner pratiquer. Réussir à atteindre le premier niveau en seulement deux ans montre que le jeune frère est vraiment déterminé. C'est une bonne chose. J'espère que lorsque je te reverrai, tu seras au deuxième niveau. »
+Zhang Kuang fixa Wang Lin un long moment avant de dire: « Il est normal que Sun Dazhu soit au courant. Tu devrais retourner pratiquer. Réussir à atteindre le premier niveau en seulement deux ans montre que ce Junior frère est vraiment déterminé. C'est une bonne chose. J'espère que lorsque je te reverrai, tu seras au deuxième niveau. »
 
 Wang Lin joignit les mains et partit. Ce n'est qu'une fois de retour dans sa grotte qu'il put enfin se détendre. Ses vêtements étaient trempés de sueur. Heureusement qu'il s'était entraîné à utiliser constamment cette technique pour dissimuler son niveau de culture, sinon, si Zhang avait su qu'il avait déjà atteint le troisième niveau, il serait devenu méfiant. Et si Zhang tentait de le tuer, il n'aurait aucune force pour riposter.
 
@@ -44,7 +44,7 @@ Après avoir actionné le levier pour sceller à nouveau la grotte, Wang Lin s'a
 
 Le principe consistant à couper tous les désirs et liens mortels visait à empêcher ces choses de distraire les cultivateurs de leur voie. Pourtant, après être entré dans la Secte Heng Yue, Wang Lin découvrit que la plupart des immortels, loin de se détacher de leurs désirs, devenaient encore plus esclaves de ceux-ci, plusieurs fois plus que les mortels.
 
-Par conséquent, le terme « couper les désirs mortels » était une expression très vague, mais selon le frère Zhang, c'était la clé pour passer du troisième au quatrième niveau, ce qui semblait être une contradiction.
+Par conséquent, le terme « couper les désirs mortels » était une expression très vague, mais selon le Senior frère Zhang, c'était la clé pour passer du troisième au quatrième niveau, ce qui semblait être une contradiction.
 
 Après avoir été perplexe pendant longtemps sans trouver d'indices, Wang Lin comprit qu'il ne pourrait jamais rompre les liens avec sa famille. Sa chance résidait dans le fait que le troisième niveau n'était pas comme les deux premiers. Même s'il ne parvenait pas à franchir le palier, son énergie spirituelle continuait de croître. Finalement, il renonça à l'idée de progresser rapidement vers le quatrième niveau pour consolider tranquillement le troisième niveau.
 
@@ -54,7 +54,7 @@ Quatre ans dans le monde réel équivalaient à 25 ans dans l'espace onirique. E
 
 Son niveau de Condensation de Qi était toujours bloqué au troisième niveau, mais la quantité d'énergie spirituelle dans son corps ne cessait d'augmenter.
 
-C'était le dernier jour de ces quatre années d'entraînement intensif. Dehors, à l'aube, la voix de Zhang Kuang retentit: « Chers frères cadets, les quatre ans sont écoulés! Sortez vite! Le chef de secte vous attend au grand hall de la secte et va employer son pouvoir pour vous renvoyer tous! »
+C'était le dernier jour de ces quatre années d'entraînement intensif. Dehors, à l'aube, la voix de Zhang Kuang retentit: « Chers Junior frères, les quatre ans sont écoulés! Sortez vite! Le chef de secte vous attend au grand hall de la secte et va employer son pouvoir pour vous renvoyer tous! »
 
 Toutes les grottes de la falaise s'ouvrirent. Les disciples internes en sortirent un à un.
 
@@ -62,7 +62,7 @@ Grâce à son Sens Divin, Wang Lin sentit que ces plus de 40 personnes avaient t
 
 Wang Zhuo avait déjà atteint le sommet du cinquième niveau et était prêt à percer le sixième. Beaucoup d'autres en étaient au même stade. La culture de chacun avait considérablement progressé.
 
-La jeune fille nommée Xu était au troisième niveau, et quant au frère Zhang, il était déjà au sixième!
+La jeune fille nommée Xu était au troisième niveau, et quant au Senior frère Zhang, il était déjà au sixième!
 
 Wang Lin sentait vaguement que sa propre culture différait de celle des autres. À l'instant où il avait utilisé son Sens Divin pour scanner l'assemblée, il semblait que personne d'autre ne s'en soit rendu compte.
 

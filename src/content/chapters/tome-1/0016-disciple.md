@@ -10,7 +10,7 @@ Sous le regard de l’Ancien, Wang Lin se sentait transparent, comme si ce derni
 
 L'Ancien fronça les sourcils. Ne trouvant rien d'anormal chez Wang Lin, il demanda: « Wang Lin, quand es-tu revenu? »
 
-Le cœur de Wang Lin battait encore la chamade après ce simple regard. Il répondit promptement: « Ce disciple est revenu tard hier soir. Ce matin, en allant accomplir mes tâches quotidiennes, le frère Liu m'a informé que l'Ancien me cherchait. »
+Le cœur de Wang Lin battait encore la chamade après ce simple regard. Il répondit promptement: « Ce disciple est revenu tard hier soir. Ce matin, en allant accomplir mes tâches quotidiennes, le Senior frère Liu m'a informé que l'Ancien me cherchait. »
 
 Le visage de l'Ancien Sun était sombre. Sans un mot, il saisit Wang Lin et, d'un pas, ils disparurent dans un nuage arc-en-ciel pour foncer vers la chambre du garçon.
 

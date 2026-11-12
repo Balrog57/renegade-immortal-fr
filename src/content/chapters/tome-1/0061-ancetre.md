@@ -42,9 +42,9 @@ Il s'assit en tailleur, plaça la perle contre sa poitrine, prit une gorgée de 
 
 Dès son arrivée au-dessus de la salle principale, Huang Long sortit et afficha un sourire bienveillant en voyant Wang Lin. Ce sourire était un peu plus chaleureux que celui de la veille. Il dit: « Wang Lin, viens avec moi. »
 
-Sur ce, il agita ses manches et s'élança dans les airs, foulant un nuage auspicieux. Wang Lin le suivit rapidement. Après un moment, ils arrivèrent à un sous-sommet de la Montagne Heng Yue: le Pic des Pins.
+Sur ce, il agita ses manches et s'élança dans les airs, foulant un nuage auspicieux. Wang Lin le suivit rapidement. Après un moment, ils arrivèrent à un sous-sommet de la Montagne Heng Yue: le Pic Cang Song.
 
-Alors qu'ils survolaient la zone où s'était déroulée la compétition la veille, Huang Long ne s'arrêta pas; il continua de voler pour s'enfoncer plus profondément dans le Pic des Pins, jusqu'à ce qu'il s'immobilise devant d'étranges rochers. Il dit alors: « Wang Lin, c'est un lieu interdit de la Secte Heng Yue. C'est ici que les véritables Anciens de la Formation du Noyau et les Anciens de l'Établissement des Fondations cultivent. Ne déploie donc pas ton sens divin n'importe comment, au risque de les offenser. »
+Alors qu'ils survolaient la zone où s'était déroulée la compétition la veille, Huang Long ne s'arrêta pas; il continua de voler pour s'enfoncer plus profondément dans le Pic Cang Song, jusqu'à ce qu'il s'immobilise devant d'étranges rochers. Il dit alors: « Wang Lin, c'est un lieu interdit de la Secte Heng Yue. C'est ici que les véritables Anciens de la Formation du Noyau et les Anciens de l'Établissement des Fondations cultivent. Ne déploie donc pas ton sens divin n'importe comment, au risque de les offenser. »
 
 Wang Lin acquiesça immédiatement.
 

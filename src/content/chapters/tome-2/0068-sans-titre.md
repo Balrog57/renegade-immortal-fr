@@ -6,11 +6,11 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 68 - Zhou Peng's Scheme
 slug: le-complot-de-zhou-peng
 ---
-Zhang Kuang secoua la tête et dit: « Frère aîné, dans toute la Secte Xuan Dao, nous sommes les seuls à le savoir. Je n'en ai parlé à personne d'autre. »
+Zhang Kuang secoua la tête et dit: « Senior frère, dans toute la Secte Xuan Dao, nous sommes les seuls à le savoir. Je n'en ai parlé à personne d'autre. »
 
 Les yeux de Zhou Peng se plissèrent. Il saisit Zhang Kuang par le cou et hurla: « Zhang Kuang, tu mens! »
 
-Zhang Kuang n'osa pas riposter. Son visage devint pourpre sous l'intensité de l'intention de meurtre qui émanait du regard de Zhou Peng. Il serra les dents et déclara: « Frère aîné, si tu ne me crois pas, utilise la technique de recherche d'âme. Ce que je dis est absolument vrai. Je n'ai rien révélé à quiconque. »
+Zhang Kuang n'osa pas riposter. Son visage devint pourpre sous l'intensité de l'intention de meurtre qui émanait du regard de Zhou Peng. Il serra les dents et déclara: « Senior frère, si tu ne me crois pas, utilise la technique de recherche d'âme. Ce que je dis est absolument vrai. Je n'ai rien révélé à quiconque. »
 
 Les yeux de Zhou Peng s'illuminèrent. Il laissa échapper un reniflement méprisant: « Je te croirai pour l'instant. Va, capture les parents de Wang Lin et tue-les. Je raffinerai leurs âmes pour en faire une bannière de retour des âmes. Elle nous permettra de traquer Wang Lin. Ensuite, en utilisant les âmes de ses propres parents pour l'attirer, tant qu'il n'aura pas atteint le stade de l'Établissement des Fondations, nous pourrons capturer son âme. »
 
@@ -30,15 +30,15 @@ Le pas de Zhang Kuang ralentit jusqu'à presque s'arrêter, mais finalement, il 
 
 À cet instant précis, son expression changea brusquement. Il tourna la tête et vit Wang Lin le suivre, tel un spectre flottant dans les airs.
 
-Zhang Kuang recula de quelques pas en forçant un sourire: « Frère aîné, vous... vous... »
+Zhang Kuang recula de quelques pas en forçant un sourire: « Senior frère, vous... vous... »
 
 Wang Lin resta silencieux, affichant un sourire glacial.
 
-« Frère aîné, je... » En voyant l'expression de Wang Lin, le cœur de Zhang Kuang rata un battement. Il recula encore tout en portant la main à son sac de rangement.
+« Senior frère, je... » En voyant l'expression de Wang Lin, le cœur de Zhang Kuang rata un battement. Il recula encore tout en portant la main à son sac de rangement.
 
 « Zhang Kuang, tu ne cherchais pas ma maison? Elle est juste là », dit Wang Lin en désignant sa demeure du doigt.
 
-Le cœur de Zhang Kuang martelait sa poitrine comme un fou. Il s'effondra à genoux, le visage déformé par la honte, et cria: « Frère aîné, j'ai eu tort! C'est la faute de Zhou Peng! Il m'a forcé à venir! Je... » À cet instant, il sortit un morceau de jade et le lança en l'air d'un geste rapide de la main droite, le visage soudain féroce.
+Le cœur de Zhang Kuang martelait sa poitrine comme un fou. Il s'effondra à genoux, le visage déformé par la honte, et cria: « Senior frère, j'ai eu tort! C'est la faute de Zhou Peng! Il m'a forcé à venir! Je... » À cet instant, il sortit un morceau de jade et le lança en l'air d'un geste rapide de la main droite, le visage soudain féroce.
 
 Le jade se transforma soudainement en une épée volante qui fonça vers Wang Lin. Zhang Kuang commença aussitôt une incantation tout en sortant des fragments de bois noir. Ces morceaux fusionnèrent pour former un fouet.
 

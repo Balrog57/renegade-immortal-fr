@@ -8,7 +8,7 @@ slug: le-cristal-de-la-planete-de-culture
 ---
 « Oh? » Wang Lin tourna le regard vers Situ Nan.
 
-Les yeux de Situ Nan brillaient de joie. Dans un sourire, il déclara: « Bien! Ce vieil homme a enfin choisi son corps! Wang Lin, suis-moi à la Petite Terre Bei Yan Ji, sur la planète Suzaku. C'est là que se trouve mon futur corps! »
+Les yeux de Situ Nan brillaient de joie. Dans un sourire, il déclara: « Bien! Le corps de cet enfant, ce vieil homme l'a choisi! Wang Lin, suis-moi à la Petite Terre Bei Yan Ji, sur la planète Suzaku. C'est là que se trouve mon futur corps! »
 
 Sur ces mots, il s'élança dans les airs.
 

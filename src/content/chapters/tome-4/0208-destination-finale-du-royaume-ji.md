@@ -172,7 +172,7 @@ La porte s'ouvrit sur une pièce vide.
 
 « Celle-ci contenait les restes de l'ancien cultivateur, mais ils ont disparu. Mon maître les a raffinés en pilules. » Il ouvrit une autre porte, tout aussi vide.
 
-Qiu Siping jeta un regard à Wang Lin et dit lentement: « Mon maître et mon frère aîné se trouvent dans la pièce à droite. Une fois ouverte, nous prendrons chacun une Âme Naissante. L'Âme Naissante de mon maître te reviendra, et je prendrai celle de mon frère aîné. Frère Wang, je sais que nos premières rencontres furent marquées par des malentendus, mais je crois qu'ils sont désormais résolus. »
+Qiu Siping jeta un regard à Wang Lin et dit lentement: « Mon maître et mon Senior frère se trouvent dans la pièce à droite. Une fois ouverte, nous prendrons chacun une Âme Naissante. L'Âme Naissante de mon maître te reviendra, et je prendrai celle de mon Senior frère. Frère Wang, je sais que nos premières rencontres furent marquées par des malentendus, mais je crois qu'ils sont désormais résolus. »
 
 Wang Lin répondit calmement: « Et si votre conclusion est erronée et que les deux Âmes Naissantes ne sont pas en état de Gui Xi? »
 

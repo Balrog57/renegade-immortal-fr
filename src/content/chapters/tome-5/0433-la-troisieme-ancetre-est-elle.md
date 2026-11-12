@@ -28,7 +28,7 @@ Les yeux de Wang Lin devinrent froids. Chacune de ces créatures possédait la c
 
 Wang Lin murmura: « Âmes, dispersez-vous! »
 
-Les âmes surgirent une à une pour encercler l'étendard. L'Étendard de l'Âme au Milliard d'Âmes contenait un peu plus de 600 millions de fragments d'âmes et 26 âmes primaires, dont celle de Du Tian.
+Les âmes surgirent une à une pour encercler l'étendard. L'Étendard de l'Âme au Milliard d'Âmes contenait un peu plus de 600 millions de fragments d'âmes et 26 âmes primaires, dont celle de Dun Tian.
 
 Ces fragments d'âmes ne pouvaient former, une fois fusionnés, ni un cultivateur Ascendant du stade avancé, ni même du stade intermédiaire. Ils pouvaient toutefois se fondre pour créer un cultivateur Ascendant du stade initial.
 
@@ -64,7 +64,7 @@ Arrivé à la dixième couche, l'âme Ascendante s'effondra en de faibles fragme
 
 Wang Lin rangea l'Étendard de l'Âme au Milliard d'Âmes. En chemin, il avait pu étudier l'artefact. Bien que l'âme Ascendante fût puissante, sa durée était trop courte et une différence de puissance subsistait par rapport à un véritable cultivateur Ascendant.
 
-De plus, chaque utilisation endommageait considérablement les fragments d'âmes, qui avaient besoin de beaucoup de temps pour se rétablir. C'était la raison pour laquelle Du Tian ne s'en servait que pour intimider ses adversaires plutôt que pour combattre.
+De plus, chaque utilisation endommageait considérablement les fragments d'âmes, qui avaient besoin de beaucoup de temps pour se rétablir. C'était la raison pour laquelle Dun Tian ne s'en servait que pour intimider ses adversaires plutôt que pour combattre.
 
 Au total, en comptant celui qu'il avait tué précédemment, Wang Lin avait éliminé 19 chamans à huit feuilles. Tous étaient déjà gravement blessés et périrent les yeux grands ouverts, sans même comprendre ce qui leur arrivait. Toutes les couches suivantes possédaient des plantes mystérieuses agissant comme gardiennes, tout comme la sixième couche.
 
@@ -100,7 +100,7 @@ Il ignorait combien de couches composaient la Nécropole Immortelle et, sans son
 
 Pourtant, un sentiment mystérieux lui soufflait que quelque chose dans cette couche l'appelait. Wang Lin eut un sourire froid; au lieu de s'élancer tête baissée, il entreprit de dresser une formation.
 
-Il s'agissait de la formation que Du Tian lui avait enseignée pour contrer le pouvoir de lignée de l'ancêtre du Clan Ju Mo: un petit réseau de transfert.
+Il s'agissait de la formation que Dun Tian lui avait enseignée pour contrer le pouvoir de lignée de l'ancêtre du Clan Ju Mo: un petit réseau de transfert.
 
 Il installa la formation avec aisance et y déposa un morceau de jade céleste. Wang Lin tourna son regard vers la onzième couche. Elle était plongée dans une obscurité totale d'où s'échappait une fumée noire. Cela différait nettement des couches précédentes.
 

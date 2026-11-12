@@ -132,7 +132,7 @@ Ils se rapprochaient sans cesse de leur but. Voyager dans le vide était une ent
 
 Wang Lin, assis en position du lotus à l'extrémité est de la boussole, discutait occasionnellement du Dao avec Chi Hu. Tous deux sentaient avoir acquis de vastes connaissances.
 
-Chi Hu sourit: « Mon clan des Démons Géants n'est pas originaire de Suzaku. Mes ancêtres s'y sont installés il y a des millénaires, il est donc naturel que nos techniques diffèrent des vôtres à certains égards. »
+Chi Hu sourit: « Mon Clan Ju Mo n'est pas originaire de Suzaku. Mes ancêtres s'y sont installés il y a des millénaires, il est donc naturel que nos techniques diffèrent des vôtres à certains égards. »
 
 Wang Lin acquiesça intérieurement.
 

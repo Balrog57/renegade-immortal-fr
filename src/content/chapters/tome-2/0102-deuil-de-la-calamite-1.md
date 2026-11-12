@@ -82,7 +82,7 @@ Wang Lin haussa les sourcils et agita ses manches; une technique d'attraction fo
 
 Wang Lin lança un regard froid au jeune homme. Grâce à son Sens Divin, il nota que les trois individus cachés dans la jungle accéléraient pour converger vers eux. Ne voulant pas perdre de temps avec eux, il entreprit de s'éloigner rapidement.
 
-Le jeune homme s'irrita. Bien que leurs niveaux de culture fussent tous deux au début du stade de l'Établissement des Fondations, il avait derrière lui trois frères aînés de discipline, dont l'un atteignait le milieu de l'Établissement des Fondations. Ces quatre-là appartenaient à la Secte Tian Dao sans suivre les autres disciples et avaient décidé d'en profiter pour dépouiller les passants.
+Le jeune homme s'irrita. Bien que leurs niveaux de culture fussent tous deux au début du stade de l'Établissement des Fondations, il avait derrière lui trois Seniors frères, dont l'un atteignait le milieu de l'Établissement des Fondations. Ces quatre-là appartenaient à la Secte Tian Dao sans suivre les autres disciples et avaient décidé d'en profiter pour dépouiller les passants.
 
 Il faut dire que lors de cette compétition, toutes les sectes avaient distribué de nombreux trésors magiques afin d'accroître la puissance de leurs disciples au stade de l'Établissement des Fondations.
 

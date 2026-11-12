@@ -66,7 +66,7 @@ Sur ces mots, le regard de Qiu Siping se posa sur Wang Lin.
 
 Wang Lin fixa la coupe un instant de plus avant de la reposer. Il dit d'un ton neutre: « Tuer votre maître? Ce n'est pas un problème. Je l'ai déjà fait par le passé. »
 
-Qiu Siping laissa échapper un rire et déclara: « Pour ne rien vous cacher, cher compagnon, il n'avait aucune intention pure lorsqu'il m'a pris comme disciple. Lui et mon frère martial sont tous deux des cultivateurs de l'Âme Naissante. Lorsqu'ils étaient en retraite de culture, je les ai secrètement sabotés. Avec le recul, ils sont en état de Gui Xi depuis trente ans. D'après mes calculs, ces deux-là devraient être presque totalement possédés par les démons, ce qui signifie que c'est le moment idéal pour s'emparer de leurs Âmes Naissantes. En en avalant une chacun, vous et moi, nos chances de progresser vers le stade de l'Âme Naissante seront considérablement accrues. »
+Qiu Siping laissa échapper un rire et déclara: « Pour ne rien vous cacher, cher compagnon, il n'avait aucune intention pure lorsqu'il m'a pris comme disciple. Lui et mon Senior frère sont tous deux des cultivateurs de l'Âme Naissante. Lorsqu'ils étaient en retraite de culture, je les ai secrètement sabotés. Avec le recul, ils sont en état de Gui Xi depuis trente ans. D'après mes calculs, ces deux-là devraient être presque totalement possédés par les démons, ce qui signifie que c'est le moment idéal pour s'emparer de leurs Âmes Naissantes. En en avalant une chacun, vous et moi, nos chances de progresser vers le stade de l'Âme Naissante seront considérablement accrues. »
 
 Wang Lin arqua les sourcils. Il réfléchit un moment, puis dit lentement: « Quel rapport cela a-t-il avec les anciennes restrictions? »
 
@@ -86,7 +86,7 @@ Qiu Siping demanda: « Cher compagnon cultivateur, qu'en pensez-vous? »
 
 Wang Lin réfléchit longuement avant de lever la tête. Il regarda Qiu Siping et demanda: « À quel niveau de culture se trouvent ces deux cultivateurs de l'Âme Naissante? »
 
-Qiu Siping répondit immédiatement: « Mon maître est au début du stade de l'Âme Naissante, tandis que mon frère martial vient tout juste de former la sienne. Si vous parvenez à ouvrir la grotte, alors l'Âme Naissante de mon maître vous appartiendra. »
+Qiu Siping répondit immédiatement: « Mon maître est au début du stade de l'Âme Naissante, tandis que mon Senior frère vient tout juste de former la sienne. Si vous parvenez à ouvrir la grotte, alors l'Âme Naissante de mon maître vous appartiendra. »
 
 Wang Lin réfléchit encore un moment, puis dit: « Je ne peux pas décider immédiatement. Je vais y réfléchir quelques jours, puis je prendrai ma décision. »
 
@@ -268,7 +268,7 @@ De chaque côté se tenaient un homme et une femme. L'homme avait le regard somb
 
 Qiu Siping observa silencieusement ces trois figures. Lorsque son regard se posa sur la femme, il fut empreint de tendresse, mais lorsqu'il se tourna vers le vieillard, ses yeux furent remplis de haine.
 
-« Vieux fou, frère aîné... J'ai enfin trouvé quelqu'un capable d'utiliser les anciennes restrictions. Vous n'auriez jamais imaginé que je puisse pénétrer dans ce lieu pour vous retrouver. Cette fois, ce trésor sera mien! »
+« Vieux fou, Senior frère... J'ai enfin trouvé quelqu'un capable d'utiliser les anciennes restrictions. Vous n'auriez jamais imaginé que je puisse pénétrer dans ce lieu pour vous retrouver. Cette fois, ce trésor sera mien! »
 
 Qiu Siping éclata soudain d'un rire empreint de folie. Il tendit la main pour caresser doucement le visage de la femme et murmura: « Je te ramènerai à la vie, même si le prix à payer est l'intégralité de la Mer Xiu Mo! »
 

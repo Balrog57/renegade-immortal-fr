@@ -28,7 +28,7 @@ Comparée au blanc pur de la montagne du milieu, cette noirceur offrait un contr
 
 De loin, la scène n'avait rien de réel; on aurait dit que quelqu'un avait utilisé le pouvoir des cieux et de la terre pour peindre un paysage de montagnes et de rivières en noir et blanc d'une force incroyable.
 
-Alors que Wang Lin contemplait la secte principale du Destin Céleste, son regard se calma progressivement après l'étonnement initial.
+Alors que Wang Lin contemplait la secte principale de Tian Yun, son regard se calma progressivement après l'étonnement initial.
 
 Tian Yunzi agita ses manches et le nuage aux sept couleurs qui les entourait disparut soudainement. À sa disparition, une aura glaciale s'engouffra et tenta d'envahir le corps de Wang Lin.
 

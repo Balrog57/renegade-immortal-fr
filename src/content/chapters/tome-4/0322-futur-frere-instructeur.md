@@ -1,6 +1,6 @@
 ---
 n: 322
-title: Futur frère instructeur
+title: Futur Senior frère
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 322 - Future senior apprentice brother
@@ -52,7 +52,7 @@ Peu de temps après le passage des lames, les cultivateurs restants, y compris l
 
 Une lueur diffuse passa rapidement. Les deux sacs de rangement qui n'avaient pas été détruits par les épées disparurent.
 
-Au loin, cette lueur se mua en une boussole stellaire sur laquelle Chi Hu tenait deux sacs de rangement. Il les posa de côté et dit: « Frère Ceng, voici notre 37e sac. Notre récolte en chemin est excellente. »
+Au loin, cette lueur se mua en une boussole stellaire sur laquelle Chi Hu tenait deux sacs de rangement. Il les posa de côté et dit: « Frère Zeng, voici notre 37e sac. Notre récolte en chemin est excellente. »
 
 Wang Lin sourit. Tout au long du trajet, ils avaient vu de nombreuses personnes tenter d'intercepter les épées, sans jamais y parvenir. Certains sacs furent détruits par les lames, mais ceux qui restaient intacts tombaient entre leurs mains.
 
@@ -72,7 +72,7 @@ Les yeux de Chi Hu brillèrent et il murmura: « Stade avancé de la Formation d
 
 Wang Lin resta calme et dit: « C'est au frère Chi Hu de décider si nous devons fuir ou combattre. » Wang Lin n'utilisait pas la vitesse maximale de la boussole. S'il l'activait pleinement, il pourrait facilement semer un cultivateur au stade avancé de la Formation de l'Âme.
 
-Chi Hu laissa échapper un rire, se redressa, craqua ses articulations et déclara: « Le frère Ceng, alors qu'il n'était qu'au début de la Formation de l'Âme, a osé combattre Hongdie. Moi, Chi Hu, au milieu de la Formation de l'Âme, je veux aussi défier un cultivateur au stade avancé! Une fois le combat terminé, nous fuirons! » Il sauta de la boussole et hurla: « Si tu veux chevaucher cette boussole, montre-moi d'abord ta force! »
+Chi Hu laissa échapper un rire, se redressa, craqua ses articulations et déclara: « Le frère Zeng, alors qu'il n'était qu'au début de la Formation de l'Âme, a osé combattre Hongdie. Moi, Chi Hu, au milieu de la Formation de l'Âme, je veux aussi défier un cultivateur au stade avancé! Une fois le combat terminé, nous fuirons! » Il sauta de la boussole et hurla: « Si tu veux chevaucher cette boussole, montre-moi d'abord ta force! »
 
 Le visage de l'homme d'âge moyen resta sombre, empreint d'un certain dédain. Loin de s'arrêter, il accéléra encore et lança: « Ainsi, ce sont des membres du Clan Ju Mo. Dégagez! »
 
@@ -116,7 +116,7 @@ L'homme lança un regard froid vers l'horizon avant de s'éloigner.
 
 « Le junior assis au centre de la boussole semblait reconnaître ce cristal. Il semble posséder une certaine connaissance... »
 
-Chi Hu, assis en position de lotus sur la boussole, demanda: « Frère Ceng, qu'était ce cristal en forme de diamant? Pourquoi ne m'as-tu pas laissé combattre? Bien que cet homme fût au stade avancé de la Formation de l'Âme, mon Clan Ju Mo est spécial. Je ne pouvais peut-être pas le vaincre, mais je n'avais pas peur! »
+Chi Hu, assis en position de lotus sur la boussole, demanda: « Frère Zeng, qu'était ce cristal en forme de diamant? Pourquoi ne m'as-tu pas laissé combattre? Bien que cet homme fût au stade avancé de la Formation de l'Âme, mon Clan Ju Mo est spécial. Je ne pouvais peut-être pas le vaincre, mais je n'avais pas peur! »
 
 Tout en dirigeant la boussole stellaire, Wang Lin répondit: « Lorsqu'une personne tue trop, son aura meurtrière se transforme en qi maléfique. Lorsque l'on tue encore davantage, celle-ci se condense en liquide. Et quand elle devient encore plus dense, elle se mue en cristal. C'est le cristal de sang de qi maléfique. À moins que tu ne cultives toi-même un domaine de mort, il endommagera ton âme originelle dès l'instant où tu le toucheras! »
 

@@ -50,13 +50,13 @@ Les environs étaient plongés dans un silence total. Wang Lin restait là, aux 
 
 Après un long moment, Tian Yunzi poussa un soupir et détourna le regard. Il regarda Wang Lin avec un sourire: « Quel beau "Forêt"! Pas mal. Une aura indomptable émane de ce mot, prête à en jaillir. Oui, il y a quelqu'un que tu connais très bien qui cultive la voie démoniaque, et cette personne a laissé une trace d'aura démoniaque en toi! »
 
-Le cœur de Wang Lin tressaillit. Bien que son visage restât impassible, ses pensées s'emballèrent. Finalement, sa mémoire se fixa sur le Deuxième Frère, celui qui avait utilisé la technique interdite pour obtenir le corps d'un démon immortel. Il prit alors une décision et hocha la tête avec franchise: « Le disciple connaissait effectivement quelqu'un, mais nos chemins se sont séparés lors de notre voyage. »
+Le cœur de Wang Lin tressaillit. Bien que son visage restât impassible, ses pensées s'emballèrent. Finalement, sa mémoire se fixa sur le Deuxième Senior frère, celui qui avait utilisé la technique interdite pour obtenir le corps d'un démon immortel. Il prit alors une décision et hocha la tête avec franchise: « Le disciple connaissait effectivement quelqu'un, mais nos chemins se sont séparés lors de notre voyage. »
 
 Tian Yunzi caressa sa barbe blanche en souriant. « Même s'il était venu sur la planète Tian Yun, cela n'aurait pas posé de problème. Aux yeux de ton maître, il n'existe ni bien ni mal; on ne fait que suivre sa nature! Destin céleste, destin céleste! Tout dans ce monde dépend du destin! Tant que le cœur est déterminé, on peut cultiver l'un des millions de Dao qui existent! »
 
-Wang Lin acquiesça. Il pensa à la technique utilisée par le Deuxième Frère, qui était de nature presque démoniaque. C’est pourquoi il avait choisi de dire la vérité plutôt que de mentir et de se faire démasquer par Tian Yunzi.
+Wang Lin acquiesça. Il pensa à la technique utilisée par le Deuxième Senior frère, qui était de nature presque démoniaque. C’est pourquoi il avait choisi de dire la vérité plutôt que de mentir et de se faire démasquer par Tian Yunzi.
 
-« Repose-toi bien. Dans trois mois aura lieu la célébration de mon anniversaire. De nombreux puissants cultivateurs de la planète Tian Yun et des planètes environnantes seront présents. Je saisirai cette occasion pour annoncer que je te prends comme disciple, afin que les habitants de la planète Tian Yun puissent se faire une idée de toi. Je suppose que très bientôt, ton frère aîné viendra t'en dire plus! » Tandis qu'il parlait, Tian Yunzi s'éleva dans les airs et disparut lentement à l'horizon, pas après pas.
+« Repose-toi bien. Dans trois mois aura lieu la célébration de mon anniversaire. De nombreux puissants cultivateurs de la planète Tian Yun et des planètes environnantes seront présents. Je saisirai cette occasion pour annoncer que je te prends comme disciple, afin que les habitants de la planète Tian Yun puissent se faire une idée de toi. Je suppose que très bientôt, ton Grand Senior frère viendra t'en dire plus! » Tandis qu'il parlait, Tian Yunzi s'éleva dans les airs et disparut lentement à l'horizon, pas après pas.
 
 Wang Lin salua respectueusement Tian Yunzi avant de pénétrer dans le Pavillon Zi Lin.
 
@@ -64,7 +64,7 @@ Dans la chambre secrète située au troisième étage du pavillon, Wang Lin pous
 
 « Il semble que j'aie trouvé ma place au sein de cette Secte Tian Yun. Il semble aussi que je ne puisse pas me permettre de trop céder. On dirait que ceux qui font preuve de plus de dominance ont de meilleures chances de survie ici. »
 
-« Tian Yunzi observait probablement tout le long, et il a clairement vu tous les trésors que j'ai utilisés. Le char de guerre est une chose, mais l'essentiel réside dans l'épée céleste... Tout se déroule comme prévu, mais si je veux m'implanter solidement ici, je ne peux pas cacher cette épée. Il est impossible de la dissimuler à Tian Yunzi, et je l'ai donc utilisée ouvertement, sans rien pour la couvrir. Cependant, je crois que Tian Yunzi n'aurait pas la face de réclamer cela à son disciple. S'il le demande, je la lui donnerai directement, ce qui me permettra probablement d'en tirer de grands bénéfices. Cette technique interdite que le Deuxième Frère utilisait était excellente! »
+« Tian Yunzi observait probablement tout le long, et il a clairement vu tous les trésors que j'ai utilisés. Le char de guerre est une chose, mais l'essentiel réside dans l'épée céleste... Tout se déroule comme prévu, mais si je veux m'implanter solidement ici, je ne peux pas cacher cette épée. Il est impossible de la dissimuler à Tian Yunzi, et je l'ai donc utilisée ouvertement, sans rien pour la couvrir. Cependant, je crois que Tian Yunzi n'aurait pas la face de réclamer cela à son disciple. S'il le demande, je la lui donnerai directement, ce qui me permettra probablement d'en tirer de grands bénéfices. Cette technique interdite que le Deuxième Senior frère utilisait était excellente! »
 
 « Désormais, ma culture a atteint le sommet du début de la phase de Transformation de l'Âme, et durant l'Essai Humain, j'ai traversé d'innombrables cycles qui ont solidifié mon cœur Dao. »
 
@@ -88,7 +88,7 @@ Les yeux de Zhao Xingsha brillèrent d'une lueur diabolique alors qu'il fixait l
 
 « Septième Frère, je vais te laisser affronter la Quatrième Sœur en premier! Je ne te tuerai pas, mais je te blesserai si gravement qu'il te faudra des années pour t'en remettre. D'ici là, je serai déjà l'un des sept disciples directs et ma culture sera en voie de rétablissement; tu ne vaudras plus alors mon attention! »
 
-Sur le côté ouest de la Division Pourpre se trouvait un pavillon très élégant d'un blanc laiteux. C'était le Pavillon Wei Pourpre! Bai Wei était assis tranquillement à l'intérieur, face à une branche d'arbre.
+Sur le côté ouest de la Division Pourpre se trouvait un pavillon très élégant d'un blanc laiteux. C'était le Pavillon Zi Wei! Bai Wei était assis tranquillement à l'intérieur, face à une branche d'arbre.
 
 C'était une branche fraîchement coupée, sur laquelle poussaient encore de jeunes bourgeons.
 
@@ -110,6 +110,6 @@ Au matin du deuxième jour, lorsque le premier rayon de lumière perça le toit 
 
 Peu après, une voix douce parvint de l'extérieur.
 
-« Septième Frère, aurais-tu un moment? »
+« Septième Junior frère, aurais-tu un moment? »
 
-L'expression de Wang Lin devint immédiatement étrange. Au sein de la Division Pourpre, il n'avait pas peur de Zhao Xingsha ni de la Quatrième Sœur, mais face à Bai Wei, il ressentait le besoin impérieux de l'éviter.
+L'expression de Wang Lin devint immédiatement étrange. Au sein de la Division Pourpre, il n'avait pas peur de Zhao Xingsha ni de la Quatrième Senior sœur, mais face à Bai Wei, il ressentait le besoin impérieux de l'éviter.

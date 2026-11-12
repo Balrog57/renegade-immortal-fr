@@ -179,7 +179,7 @@ La Secte Yun Tian était organisée en quatre secteurs — est, ouest, sud et no
 
 Soudain, le cri des grues retentit, suivi par un vol de grues blanches. Alors qu'elles passaient au-dessus de lui, des rires s'élevèrent du groupe. Une voix claire lança: « Oh, c'est toi. »
 
-Wang Lin leva les yeux et vit la jeune fille agaçante qui l'avait accompagné à la montagne. Elle dépassait de sa grue avec un air fier. Avant qu'elle ne puisse parler, une autre voix intervint: « Sœur cadette, si tu traînes encore, tu seras en retard et le maître te fera nettoyer les fours à nouveau! »
+Wang Lin leva les yeux et vit la jeune fille agaçante qui l'avait accompagné à la montagne. Elle dépassait de sa grue avec un air fier. Avant qu'elle ne puisse parler, une autre voix intervint: « Junior sœur, si tu traînes encore, tu seras en retard et le maître te fera nettoyer les fours à nouveau! »
 
 La jeune fille bouda et, après avoir jeté un regard à Wang Lin, s'envola.
 
@@ -189,11 +189,11 @@ Remarquant le regard de Wang Lin, le jeune homme lui adressa un sourire espiègl
 
 Wang Lin resta impassible et secoua la tête.
 
-L'adolescent arqua les sourcils: « Jeune frère martial, ne sois pas si avare! Elle a clairement fait mine de te connaître. Ne t'inquiète pas, je n'ai aucun intérêt pour elle. La seule que j'aime est la grande sœur Wang Tong, qui allie beauté et intelligence. »
+L'adolescent arqua les sourcils: « Junior frère, ne sois pas si avare! Elle a clairement fait mine de te connaître. Ne t'inquiète pas, je n'ai aucun intérêt pour elle. La seule que j'aime est la Senior sœur Wang Tong, qui allie beauté et intelligence. »
 
 Wang Lin le regarda: « Je ne la connais vraiment pas. » Et il tourna les talons.
 
-Le jeune homme le rattrapa rapidement: « Je dois te demander, jeune frère martial, quel est ton nom? Ton frère aîné ici est un disciple de la cour sud. Vu ta direction, vas-tu aussi à la cour sud? »
+Le jeune homme le rattrapa rapidement: « Je dois te demander, Junior frère, quel est ton nom? Ton Senior frère ici est un disciple de la cour sud. Vu ta direction, vas-tu aussi à la cour sud? »
 
 Wang Lin esquissa un léger sourire: « Je m'appelle Wang Lin. »
 
@@ -201,7 +201,7 @@ Le jeune homme sourit malicieusement: « Moi, je m'appelle Cheng Xian. Alors, va
 
 Wang Lin acquiesça.
 
-« Les quatre cours de la Secte Yun Tian sont très distinctement divisés. Jeune frère Wang, entrer dans la cour sud est une tâche ardue. Si c'était facile, je passerais mes journées à la cour ouest. Tu sais, les belles femmes y sont aussi nombreuses que les nuages. Si je pouvais en avoir une ou deux pour une culture duelle, la cultivation ne me dérangerait plus! » Cheng Xian marqua une pause de regret avant de reprendre: « Alors, pourquoi vas-tu au sud? Je pourrais peut-être t'aider. »
+« Les quatre cours de la Secte Yun Tian sont très distinctement divisés. Junior frère Wang, entrer dans la cour sud est une tâche ardue. Si c'était facile, je passerais mes journées à la cour ouest. Tu sais, les belles femmes y sont aussi nombreuses que les nuages. Si je pouvais en avoir une ou deux pour une culture duelle, la cultivation ne me dérangerait plus! » Cheng Xian marqua une pause de regret avant de reprendre: « Alors, pourquoi vas-tu au sud? Je pourrais peut-être t'aider. »
 
 Wang Lin rit devant le rêve de Cheng Xian: « Ce n'est pas nécessaire. Je ne pense pas que mon voyage soit entravé. »
 
@@ -211,13 +211,13 @@ Wang Lin feignit la surprise: « Pourquoi donc? Ses talents d'alchimiste sont-il
 
 Les yeux de Cheng Xian brillèrent d'admiration: « Bien que ses compétences ne soient pas médiocres, elles ne sont pas extraordinaires non plus. Il ne peut raffiner que des pilules de rang 3, ce qui n'est rien de spécial. Moi, je peux déjà faire du rang 2, et je serai bientôt capable de produire du rang 3. »
 
-Wang Lin hocha la tête tout en continuant sa marche vers le sud. Mais Cheng Xian s'arrêta, affichant son air espiègle: « Je peux te le dire, jeune frère martial, mais tu devras me promettre de m'emmener à la cour ouest une fois. Qu'en dis-tu? »
+Wang Lin hocha la tête tout en continuant sa marche vers le sud. Mais Cheng Xian s'arrêta, affichant son air espiègle: « Je peux te le dire, Junior frère, mais tu devras me promettre de m'emmener à la cour ouest une fois. Qu'en dis-tu? »
 
 Wang Lin resta calme: « Si tu ne veux pas le dire, ce n'est pas grave. »
 
-Voyant que Wang Lin ne céderait pas, Cheng Xian s'empressa: « Frère aîné Wang, regarde, je t'appelle même frère maintenant! Il te suffit de quelques mots pour me donner accès à la cour ouest. C'est une bien petite faveur! »
+Voyant que Wang Lin ne céderait pas, Cheng Xian s'empressa: « Senior frère Wang, regarde, je t'appelle même frère maintenant! Il te suffit de quelques mots pour me donner accès à la cour ouest. C'est une bien petite faveur! »
 
-Wang Lin se tourna vers lui: « Tu veux que j'aille chercher cette fille pour que tu puisses utiliser ce prétexte, entrer dans la cour ouest et rencontrer la grande sœur Wang Tong dont tu rêves? »
+Wang Lin se tourna vers lui: « Tu veux que j'aille chercher cette fille pour que tu puisses utiliser ce prétexte, entrer dans la cour ouest et rencontrer la Senior sœur Wang Tong dont tu rêves? »
 
 Cheng Xian fut déstabilisé, puis sourit de plus belle: « Oui, oui! C'est une toute petite tâche. Alors, qu'en dis-tu, frère aîné? »
 

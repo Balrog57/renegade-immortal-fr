@@ -40,15 +40,15 @@ Wang Lin observa calmement l'horizon. Il y aurait probablement d'autres créatur
 
 « Cet homme a fait preuve d'une grande détermination en renonçant si vite... Malheureusement, je n'ai pas pu saisir cette opportunité pour jauger l'étendue de sa culture. Cependant, peu importe sa puissance, un cultivateur au stade initial de la Transformation de l'Âme n'est pas grand-chose. »
 
-En un instant, son regard s'éclaircit, ses sourcils se relevèrent et le sourire revint sur son visage. Sans se retourner, il dit doucement: « Troisième frère apprenti junior, je ne t'ai pas vu depuis de nombreux jours. Ton voyage s'est-il bien déroulé? »
+En un instant, son regard s'éclaircit, ses sourcils se relevèrent et le sourire revint sur son visage. Sans se retourner, il dit doucement: « Troisième Junior frère, je ne t'ai pas vu depuis de nombreux jours. Ton voyage s'est-il bien déroulé? »
 
-« Puisque mon frère aîné pense à moi, mon voyage fut, bien sûr, sans encombre, » répondit une voix doucereuse au loin.
+« Puisque mon Senior frère pense à moi, mon voyage fut, bien sûr, sans encombre, » répondit une voix doucereuse au loin.
 
 Au même moment, un jeune homme vêtu de blanc s'avança. Après quelques pas, il arriva sous l'arbre Bodhi. Cette personne n'était autre que le jeune homme que Wang Lin avait rencontré sur la planète commerciale: Bai Wei!
 
-L'homme au visage doux se retourna vers Bai Wei et sourit. « Troisième frère apprenti junior, as-tu trouvé le cadeau pour l'anniversaire du Maître? »
+L'homme au visage doux se retourna vers Bai Wei et sourit. « Troisième Junior frère, as-tu trouvé le cadeau pour l'anniversaire du Maître? »
 
-Bai Wei lança un regard nonchalant vers le vide au loin et sourit. « Le cadeau que j'ai préparé n'est qu'un modeste jouet qui ne peut rivaliser avec ce que mon frère aîné a préparé... Qu'est-ce que c'est? »
+Bai Wei lança un regard nonchalant vers le vide au loin et sourit. « Le cadeau que j'ai préparé n'est qu'un modeste jouet qui ne peut rivaliser avec ce que mon Senior frère a préparé... Qu'est-ce que c'est? »
 
 Après avoir parlé, les yeux de Bai Wei devinrent sérieux tandis qu'il fixait le vide, son regard brillant d'une lueur mystérieuse.
 
@@ -58,7 +58,7 @@ Le cœur de l'homme au visage doux trembla un instant et il déclara: « Cet hom
 
 L'homme au visage doux fit semblant de dire avec désinvolture: « Maître a disposé pour qu'il réside au Pavillon Zi Yun! »
 
-« Le Pavillon Zi Yun! » La lueur mystérieuse dans les yeux de Bai Wei s'éteignit, remplacée par une froideur soudaine. Après avoir réfléchi un moment, il dit lentement: « Frère aîné, j'ai encore d'importantes affaires à régler, je ne resterai donc pas. Donne-moi une feuille de ta plante à cinq feuilles de 3 000 ans et je te donnerai un cristal de feu en échange. Qu'en dis-tu? »
+« Le Pavillon Zi Yun! » La lueur mystérieuse dans les yeux de Bai Wei s'éteignit, remplacée par une froideur soudaine. Après avoir réfléchi un moment, il dit lentement: « Senior frère, j'ai encore d'importantes affaires à régler, je ne resterai donc pas. Donne-moi une feuille de ta plante à cinq feuilles de 3 000 ans et je te donnerai un cristal de feu en échange. Qu'en dis-tu? »
 
 L'homme au visage doux rit: « Très bien. Va simplement dans ma grotte, et le garçon t'accompagnera pour la prendre. »
 
@@ -90,11 +90,11 @@ Sitôt ces mots prononcés, le monde autour de lui devint flou, comme s'il tourn
 
 Wang Lin se retrouva debout là où il se tenait précédemment. Devant lui se trouvait un homme vêtu de pourpre qui l'observait avec un sourire serein.
 
-« Jeune frère apprenti Wang Lin, je suis Zhao Xingsha. Parmi les disciples de la Division Pourpre de Maître, je suis celui qui est entré le plus tôt dans la secte. Tu peux m'appeler Frère Aîné. »
+« Junior frère Wang Lin, je suis Zhao Xingsha. Parmi les disciples de la Division Pourpre de Maître, je suis celui qui est entré le plus tôt dans la secte. Tu peux m'appeler Senior frère. »
 
-Wang Lin regarda l'homme, puis joignit les mains: « Wang Lin salue le Frère Aîné. »
+Wang Lin regarda l'homme, puis joignit les mains: « Wang Lin salue le Senior frère. »
 
-Zhao Xingsha sourit légèrement, fit un geste de la main et dit: « Suis-moi, jeune frère apprenti Wang Lin. Maître a déjà organisé ton séjour provisoire au Pavillon Zi Yun. »
+Zhao Xingsha sourit légèrement, fit un geste de la main et dit: « Suis-moi, Junior frère Wang Lin. Maître a déjà organisé ton séjour provisoire au Pavillon Zi Yun. »
 
 Sur ce, Zhao Xingsha prit la tête du guidage et Wang Lin le suivit.
 
@@ -104,9 +104,9 @@ Tout au long du vol, Zhao Xingsha parlait sans relâche, fournissant des descrip
 
 Cet homme était empreint d'humour et doté d'une grande éloquence. Il savait transmettre ses propos avec aisance, ce qui permit à Wang Lin d'acquérir une compréhension rudimentaire de la secte.
 
-Wang Lin demanda: « Frère Aîné Zhao, combien de disciples le Senior Tian Yunzi possède-t-il? »
+Wang Lin demanda: « Senior frère Zhao, combien de disciples le Senior Tian Yunzi possède-t-il? »
 
-Zhao Xingsha sourit doucement, puis sa main droite forma un sceau qu'il pointa devant lui. Les nuages qui les obstruaient se brisèrent soudainement, ouvrant un passage. Tandis qu'il s'avançait dans l'ouverture, il rit: « Jeune frère apprenti, Maître a accepté des disciples dans sept divisions. Nous sommes répartis en rouge, orange, jaune, vert, cyan, bleu et pourpre. Nous appartenons tous deux à la Division Pourpre. »
+Zhao Xingsha sourit doucement, puis sa main droite forma un sceau qu'il pointa devant lui. Les nuages qui les obstruaient se brisèrent soudainement, ouvrant un passage. Tandis qu'il s'avançait dans l'ouverture, il rit: « Junior frère, Maître a accepté des disciples dans sept divisions. Nous sommes répartis en rouge, orange, jaune, vert, cyan, bleu et pourpre. Nous appartenons tous deux à la Division Pourpre. »
 
 « La Division Pourpre... » Les yeux de Wang Lin s'illuminèrent.
 
@@ -116,7 +116,7 @@ Après avoir survolé les montagnes pendant un certain temps, un sommet perçant
 
 Ce lieu semblait être la source même du « souffle pourpre venu de l'Est »; sa simple vue faisait trembler le cœur.
 
-« Jeune frère apprenti Wang Lin, suis-moi! » Zhao Xingsha fondit droit vers le sommet et Wang Lin le suivit de près.
+« Junior frère Wang Lin, suis-moi! » Zhao Xingsha fondit droit vers le sommet et Wang Lin le suivit de près.
 
 D'innombrables disciples de la Secte Tian Yun cultivaient au sommet de la montagne et au pied de la tour. En les observant, on pouvait compter au moins plusieurs dizaines de milliers de personnes.
 
@@ -126,7 +126,7 @@ D'un seul regard, Wang Lin estima qu'il y avait au moins 100 000 disciples ici.
 
 Cette montagne était d'une démesure absolue, particulièrement sa face arrière qui semblait infinie. On aurait dit un dragon géant endormi. Si l'on n'était pas vigilant, on se perdrait aisément dans cette immense secte.
 
-Zhao Xingsha joignit les mains avec un léger sourire: « Voici la Division Pourpre de la Secte Tian Yun. Jeune frère apprenti Wang Lin, le Pavillon Zi Yun se trouve à l'ouest. Si tu déploies ton Sens Divin, tu le trouveras. J'ai encore d'importantes affaires à régler, je ne t'accompagnerai donc pas! »
+Zhao Xingsha joignit les mains avec un léger sourire: « Voici la Division Pourpre de la Secte Tian Yun. Junior frère Wang Lin, le Pavillon Zi Yun se trouve à l'ouest. Si tu déploies ton Sens Divin, tu le trouveras. J'ai encore d'importantes affaires à régler, je ne t'accompagnerai donc pas! »
 
 Wang Lin acquiesça, salua Zhao Xingsha et s'élança vers l'ouest tel un éclair.
 

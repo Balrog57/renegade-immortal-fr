@@ -100,28 +100,28 @@ Le cultivateur en vert se leva brusquement et s'approcha de l'œuvre. Il l'exami
 
 L'homme en noir, qui gardait habituellement les yeux fermés, les ouvrit lentement et déclara: « C'est une sculpture sur bois. »
 
-Le cultivateur en vert fut déconcerté. Il esquissa un sourire amer et répliqua: « Frère aîné, je sais bien que c'est une sculpture sur bois. Je me demande ce qu'elle représente! »
+Le cultivateur en vert fut déconcerté. Il esquissa un sourire amer et répliqua: « Senior frère, je sais bien que c'est une sculpture sur bois. Je me demande ce qu'elle représente! »
 
-Le cultivateur en noir, appelé frère aîné, réfléchit un instant avant de dire lentement: « Je n'ai jamais vu cela auparavant. »
+Le cultivateur en noir, appelé Senior frère, réfléchit un instant avant de dire lentement: « Je n'ai jamais vu cela auparavant. »
 
-Le cultivateur en vert eut un sourire désabusé. Il était habitué aux excentricités de son frère aîné.
+Le cultivateur en vert eut un sourire désabusé. Il était habitué aux excentricités de son Senior frère.
 
 L'homme d'âge moyen fixa la sculpture et sourit: « Deux vénérables immortels, y a-t-il quelque chose de spécial dans cette œuvre? »
 
 Le cultivateur en vert s'approcha pour saisir l'objet. Soudain, une aura ancestrale le percuta. Cette aura était si puissante qu'elle le glaça d'effroi. Avec sa culture au stade intermédiaire de l'Établissement des Fondations, il eut l'impression que ses fondations allaient s'effondrer. Horrifié, il lâcha brusquement la sculpture.
 
-Son frère aîné fit un mouvement de manche et la sculpture vola vers sa main. Le visage du cultivateur en noir pâlit instantanément alors que son noyau devenait instable. Il lui fallut un long moment avant de parvenir à maîtriser les fluctuations de son noyau.
+Son Senior frère fit un mouvement de manche et la sculpture vola vers sa main. Le visage du cultivateur en noir pâlit instantanément alors que son noyau devenait instable. Il lui fallut un long moment avant de parvenir à maîtriser les fluctuations de son noyau.
 
 Plus le niveau de culture est élevé, plus l'effet de la sculpture de Wang Lin est violent; pour un mortel, l'impact reste minime.
 
 L'homme en noir dit d'une voix calme: « Cet objet n'est pas une sculpture ordinaire. La créature représentée est presque identique au dragon mentionné dans les anciens registres de notre secte. »
 
-Le cultivateur en vert demanda, avec une expression étrange: « Frère aîné, ne veniez-vous pas de dire que vous ne l'aviez jamais vue? Comment pouvez-vous affirmer qu'il s'agit d'un dragon maintenant? »
+Le cultivateur en vert demanda, avec une expression étrange: « Senior frère, ne veniez-vous pas de dire que vous ne l'aviez jamais vue? Comment pouvez-vous affirmer qu'il s'agit d'un dragon maintenant? »
 
-Le cultivateur en noir regarda son cadet avec étonnement. Ses yeux brillaient de surprise lorsqu'il répondit: « Jeune frère, je comprends enfin pourquoi ta culture ne progresse pas... »
+Le cultivateur en noir regarda son Junior frère avec étonnement. Ses yeux brillaient de surprise lorsqu'il répondit: « Junior frère, je comprends enfin pourquoi ta culture ne progresse pas... »
 
 Le visage du cultivateur en vert se crispa, mais il garda le silence.
 
 Le cultivateur en noir soupira: « Je n'ai jamais vu la bête qui est sculptée, mais je n'ai jamais dit que je ne reconnaissais pas ce qu'elle était. »
 
-Le Dao de cœur du cultivateur en vert n'étant pas assez stable, il faillit cracher du sang. Après un long moment, il retrouva son calme et eut un rire amer. Il finit par s'avouer vaincu face à son frère aîné.
+Le Dao de cœur du cultivateur en vert n'étant pas assez stable, il faillit cracher du sang. Après un long moment, il retrouva son calme et eut un rire amer. Il finit par s'avouer vaincu face à son Senior frère.

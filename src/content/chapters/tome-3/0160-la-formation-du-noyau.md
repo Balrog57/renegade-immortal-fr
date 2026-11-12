@@ -22,7 +22,7 @@ Wang Lin contempla la scène, stupéfait.
 
 Puis le mot « Punir » au-dessus de sa tête rétrécit peu à peu et une énorme fluctuation d'énergie spirituelle apparut soudain dans l'espace de la Perle Défiant le Ciel. Celle-ci s'intensifia jusqu'à ce qu'une pilule ronde grise, de la taille d'un poing, apparaisse dans le vide.
 
-Des filaments semblables à des flammes se détachaient peu à peu de la pilule et flottaient lentement alentour. Wang Lin inspira profondément et tendit la main droite : la pilule descendit aussitôt et s'immobilisa à environ trois centimètres de sa paume.
+Des filaments semblables à des flammes se détachaient peu à peu de la pilule et flottaient lentement alentour. Wang Lin inspira profondément et tendit la main droite : la pilule descendit aussitôt et s'immobilisa à environ un pouce de sa paume.
 
 Il l'examina avec son Sens Divin et découvrit que l'énergie spirituelle contenue dans cette pilule correspondait exactement à la somme de toute la culture d'un cultivateur au stade intermédiaire de la Formation du Noyau. Li Muwan lui avait expliqué en détail, ce jour-là, tout ce qui concernait l'ordre de mise à mort des Dix Mille Démons. Après réflexion, Wang Lin ne l'avala pas immédiatement et la rangea dans son sac de rangement.
 

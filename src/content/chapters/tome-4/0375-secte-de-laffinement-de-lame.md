@@ -74,7 +74,7 @@ Wang Lin soutint son regard avec déférence: « C'est précisément ce que le d
 
 Le vieil homme agita ses manches et déclara: « Tu arrives trop tard; la période d'admission des disciples extérieurs est depuis longtemps révolue. Rentre chez toi et reviens dans quelques années. » Sur ces mots, il s'apprêta à franchir l'entrée de la secte.
 
-Wang Lin ricana intérieurement mais garda un air respectueux. Affichant une expression peinée, il sortit une boîte scellée et dit: « Aîné, ceci est une épée volante que ce junior a trouvée il y a de nombreuses années et qu'il n'a jamais osé utiliser. Je vous prie de l'accepter, Aîné. Ce disciple souhaite seulement devenir un disciple extérieur. »
+Wang Lin ricana intérieurement mais garda un air respectueux. Affichant une expression peinée, il sortit une boîte scellée et dit: « Senior, ceci est une épée volante que ce junior a trouvée il y a de nombreuses années et qu'il n'a jamais osé utiliser. Je vous prie de l'accepter, Senior. Ce disciple souhaite seulement devenir un disciple extérieur. »
 
 Wang Lin comprit aisément que cet homme n'était qu'au début du stade de la Formation du Noyau. Pour un cultivateur de ce niveau, l'épée qu'il présentait était une pièce de grande valeur.
 
@@ -122,7 +122,7 @@ Wang Lin répondit honnêtement: « Une épée volante qu'un aîné m'a offerte 
 
 « Pas étonnant que Hong Maozi ait été si joyeux! Qing Mu, bien que tu sois au stade de l'Établissement des Fondations, ne sois pas présomptueux. S'il n'y a pas beaucoup de cultivateurs de ce niveau parmi les disciples extérieurs, ils ne sont pas inexistants. Dans six mois, la compétition des disciples extérieurs commencera. Si tu as du talent, tu pourrais avoir une chance d'accéder à l'intérieur de la secte et de devenir disciple central. » L'homme secoua la tête et retourna dans sa demeure.
 
-À cet instant précis, à 25 kilomètres de là, Liu Mei observait la Secte Lian Hun depuis le sommet d'une montagne. Elle tenait un morceau de jade qui lui avait été envoyé par l'Ancêtre via un messager un mois plus tôt. Bien qu'il ne puisse pas localiser précisément Ceng Niu, il réagirait si celui-ci se trouvait dans un rayon de 50 kilomètres.
+À cet instant précis, à 25 kilomètres de là, Liu Mei observait la Secte Lian Hun depuis le sommet d'une montagne. Elle tenait un morceau de jade qui lui avait été envoyé par l'Ancêtre via un messager un mois plus tôt. Bien qu'il ne puisse pas localiser précisément Zeng Niu, il réagirait si celui-ci se trouvait dans un rayon de 50 kilomètres.
 
 À cet instant, le jade émettait une lueur verte.
 

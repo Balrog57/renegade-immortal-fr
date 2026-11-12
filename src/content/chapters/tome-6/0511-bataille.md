@@ -72,7 +72,7 @@ L'ancien trapu serra les dents et, sans un mot, se lança dans l'action. Il frap
 
 Simultanément, l'ancien se mordit la langue et cracha une importante quantité de sang essentiel. Ce sang possédait des reflets dorés; après l'avoir expulsé, il entama une incantation. Sa voix, semblable à un murmure spectral, était difficile à saisir, mais une force mystérieuse apparut soudainement, comme descendue des cieux.
 
-« Dévoration de l'Esprit Céleste! » Une fois le sort prononcé, les yeux de l'ancien s'illuminèrent. Dans un cri retentissant, le sang essentiel doré se mit à bouger de manière occulte et disparut en un clin d'œil.
+« Dévoration du Fantôme Céleste! » Une fois le sort prononcé, les yeux de l'ancien s'illuminèrent. Dans un cri retentissant, le sang essentiel doré se mit à bouger de manière occulte et disparut en un clin d'œil.
 
 Au moment de sa disparition, une tête illusoire haute d'une trentaine de mètres apparut derrière l'ancien. Cette tête, immense et d'un noir verdâtre, était dépourvue de cheveux et ressemblait à un spectre malveillant. Bien qu'illusoire, elle paraissait presque tangible et dégageait une aura glaciale.
 
@@ -118,4 +118,4 @@ Le sort de vie de l'ancien trapu fut brisé, faisant pâlir instantanément son 
 
 Il était véritablement terrifié!
 
-Il avait déjà utilisé ce sort de Dévoration de l'Esprit Céleste contre un cultivateur de la Transformation de l'Âme au stade intermédiaire. Bien que ce dernier ait fini par briser le sort, il avait été en grand péril tout au long du combat. Mais Wang Lin l'avait dissipé avec une telle désinvolture... Comment ne pas fuir?
+Il avait déjà utilisé ce sort de Dévoration du Fantôme Céleste contre un cultivateur de la Transformation de l'Âme au stade intermédiaire. Bien que ce dernier ait fini par briser le sort, il avait été en grand péril tout au long du combat. Mais Wang Lin l'avait dissipé avec une telle désinvolture... Comment ne pas fuir?

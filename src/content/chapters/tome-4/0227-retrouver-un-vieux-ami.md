@@ -110,7 +110,7 @@ Cependant, cette créature était singulière. Même des cultivateurs au stade d
 
 En conséquence, tous les chasseurs de bêtes sauvages la fuyaient dès qu'ils l'apercevaient.
 
-Pourtant, elle restait une proie très lucrative. Contrairement aux autres monstres, elle possédait huit cœurs. De plus, la poudre corrosive du Palais Enchanté était extrêmement efficace contre elle. La chasse à cette bête était devenue l'activité exclusive du Palais Enchanté, et tous ses disciples se réjouissaient de s'y essayer.
+Pourtant, elle restait une proie très lucrative. Contrairement aux autres monstres, elle possédait huit cœurs. De plus, la poudre corrosive du Palais Du Mo était extrêmement efficace contre elle. La chasse à cette bête était devenue l'activité exclusive du Palais Du Mo, et tous ses disciples se réjouissaient de s'y essayer.
 
 Qiu Siping avait déjà pris sa décision: une fois que ces deux juniors auraient tué la bête, il les assassinerait pour s'emparer de leurs cœurs.
 

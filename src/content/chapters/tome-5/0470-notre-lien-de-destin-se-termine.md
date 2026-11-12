@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 470 - Our fateful connection ends
 slug: notre-lien-de-destin-se-termine
 ---
-Planète Suzaku, à l'extérieur de la ville de Phoenix dans le pays de Chu, au sein d'un village de mortels.
+Planète Suzaku, à l'extérieur de la Cité Feng Huang dans le pays de Chu, au sein d'un village de mortels.
 
 C'était un matin de printemps. De la fumée s'échappait des diverses demeures et l'on entendait les aboiements des chiens mêlés aux jeux des enfants.
 
@@ -34,7 +34,7 @@ L'homme leva la main droite et la femme l'aida promptement à se redresser.
 
 Les larmes de la femme commencèrent à couler. « Oui, elle reviendra bientôt... » dit-elle.
 
-« Je regrette ma décision d'alors. Je n'aurais pas dû laisser ce taoïste l'emporter. En un clin d'œil, près de vingt ans ont passé et je ne sais absolument pas comment elle va... » L'homme semblait avoir vieilli de plusieurs années.
+« Je regrette ma décision d'alors. Je n'aurais pas dû laisser ce Daoïste l'emporter. En un clin d'œil, près de vingt ans ont passé et je ne sais absolument pas comment elle va... » L'homme semblait avoir vieilli de plusieurs années.
 
 La femme essuya ses larmes et murmura: « Ne t'inquiète pas, notre fille a une bonne fortune; elle est certainement en sécurité. »
 
@@ -42,7 +42,7 @@ Ces deux personnes étaient les parents de Zhou Ru. Lors de la guerre opposant l
 
 Pourtant, ces deux anciens ne cessaient de penser à Zhou Ru.
 
-Le fait que Zhou Ru ait été emmenée par ce taoïste était une épine constante dans leur cœur. Les années de nostalgie n'avaient fait qu'agrandir et renforcer cette épine, rendant la douleur plus vive encore.
+Le fait que Zhou Ru ait été emmenée par ce Daoïste était une épine constante dans leur cœur. Les années de nostalgie n'avaient fait qu'agrandir et renforcer cette épine, rendant la douleur plus vive encore.
 
 Le père de Zhou Ru ne parvenait pas à oublier cela. Depuis qu'il était tombé malade, son état ne s'était jamais amélioré, et il s'étiolait de jour en jour.
 
@@ -96,7 +96,7 @@ Tie Yan avait atteint la Formation de l'Âme, et le pays de Chu était devenu un
 
 « Tie Yan est là! » Le vieil homme joignit les mains et se tint respectueusement. Son cœur débordait d'admiration pour Wang Lin. Sur la planète Suzaku, le nom de ce dernier était une légende.
 
-Wang Lin, également connu sous le nom de Ceng Niu, avait tranché le bras de Hongdie, tué Qian Feng, surpris Liu Mei, forcé Zi Xin à battre en retraite, décliné le titre de Suzaku et, d'un seul mot, avait fait de Zhou Wutai le 15e Suzaku.
+Wang Lin, également connu sous le nom de Ceng Niu, avait tué Hongdie, tué Qian Feng, surpris Liu Mei, forcé Zi Xin à battre en retraite, décliné le titre de Suzaku et, d'un seul mot, avait fait de Zhou Wutai le 15e Suzaku.
 
 Tous ces récits s'étaient propagés parmi les cultivateurs de la planète Suzaku; presque personne n'ignorait ses exploits.
 
@@ -140,7 +140,7 @@ Alors que le jeune homme s'éloignait, toutes les roses blanches commencèrent �
 
 Une fois la rose bleue emportée, elles perdirent leur raison d'être et ne purent que se disperser...
 
-Pays de Zhao, au pied de la montagne Heng Yue, dans le domaine ancestral de la famille Wang.
+Pays de Zhao, au pied de la Secte Heng Yue, dans le domaine ancestral de la famille Wang.
 
 Ce jour-là, un jeune homme vêtu d'une robe d'un blanc immaculé apparut silencieusement dans le temple ancestral. Il observa calmement la rangée de tablettes avant de fixer les deux situées au sommet.
 

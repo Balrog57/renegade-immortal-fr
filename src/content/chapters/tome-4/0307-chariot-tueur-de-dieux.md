@@ -34,7 +34,7 @@ La silhouette traça d'étranges sceaux et pointa la porte violette avant de dis
 
 Wang Lin prit une profonde inspiration et se tourna vers la porte violette. En incluant celle-ci, la grotte comptait désormais un total de dix salles.
 
-Wang Lin songea intérieurement: « Cette silhouette devait être le Céleste des Trésors Célestes. C'est véritablement un maître du raffinage de trésors. Même si des gens trouvaient cette grotte, très peu seraient capables de débusquer la salle contenant le véritable trésor. »
+Wang Lin songea intérieurement: « Cette silhouette devait être l'Estimé Tian Bao. C'est véritablement un maître du raffinage de trésors. Même si des gens trouvaient cette grotte, très peu seraient capables de débusquer la salle contenant le véritable trésor. »
 
 Ses yeux brillèrent alors qu'il s'approchait de la porte violette. Après avoir hésité un instant, il reproduisit rapidement les sceaux montrés par la silhouette et pressa la porte.
 
@@ -92,7 +92,7 @@ Wang Lin l'examina avant de le ranger dans son sac de rangement.
 
 S'il voulait utiliser ces chars, il devait être capable de soumettre les âmes de bêtes. Cependant, il n'était pas encore assez puissant pour cela; il ne pouvait donc qu'utiliser la méthode du morceau de métal pour plonger les âmes dans un état de sommeil.
 
-En vérité, le Céleste des Trésors Célestes n'aurait jamais imaginé qu'un cultivateur de la Formation de l'Âme puisse mettre la main sur les Chars de Guerre Divin. Il était convaincu qu'il fallait atteindre au moins le stade de la Transformation de l'Âme pour espérer les contrôler.
+En vérité, l'Estimé Tian Bao n'aurait jamais imaginé qu'un cultivateur de la Formation de l'Âme puisse mettre la main sur les Chars de Guerre Divin. Il était convaincu qu'il fallait atteindre au moins le stade de la Transformation de l'Âme pour espérer les contrôler.
 
 Après avoir rangé le premier char, il se tourna vers celui de gauche et utilisa la même méthode pour sceller l'âme qui l'habitait.
 
@@ -100,7 +100,7 @@ Enfin, il ne restait plus qu'un seul chariot. Celui-ci abritait la plus petite �
 
 Voyant ses deux compagnons ainsi scellés, la bête continua de rugir.
 
-Si c'était le Céleste des Trésors Célestes d'autrefois, il aurait obéi; mais face à ce minuscule cultivateur qu'il pourrait tuer d'une simple gifle s'il était à pleine puissance, son orgueil refusait toute soumission.
+Si c'était l'Estimé Tian Bao d'autrefois, il aurait obéi; mais face à ce minuscule cultivateur qu'il pourrait tuer d'une simple gifle s'il était à pleine puissance, son orgueil refusait toute soumission.
 
 Wang Lin fixa la créature. Il hésitait: devait-il prendre le risque? S'il réussissait, il pourrait temporairement contrôler la bête, mais en cas d'échec, il courrait un grand danger.
 
@@ -108,14 +108,14 @@ Après réflexion, il toucha le piège à bêtes à son poignet. Logiquement, ce
 
 Il pesa le pour et le contre, puis renonça à prendre le risque et scella également ce dernier chariot.
 
-« Dommage que je ne connaisse pas la véritable puissance de ces Chars de Guerre Divin, mais au vu de l'assurance du Céleste des Trésors Célestes, je suppose qu'ils sont redoutables. De plus, les âmes scellées dans ces chars sont très puissantes, leur force ne devrait pas me décevoir. Hélas, je suis encore trop faible pour les utiliser. » Wang Lin laissa échapper un soupir avant de porter son regard sur les matériaux de raffinage de trésors à proximité.
+« Dommage que je ne connaisse pas la véritable puissance de ces Chars de Guerre Divin, mais au vu de l'assurance de l'Estimé Tian Bao, je suppose qu'ils sont redoutables. De plus, les âmes scellées dans ces chars sont très puissantes, leur force ne devrait pas me décevoir. Hélas, je suis encore trop faible pour les utiliser. » Wang Lin laissa échapper un soupir avant de porter son regard sur les matériaux de raffinage de trésors à proximité.
 
 Il rangea rapidement tout dans son sac de rangement, puis les examina avec soin. Enfin, il se dirigea vers la porte violette et utilisa la même méthode qu'auparavant pour relever la grotte et en sortir.
 
 Wang Lin songea: « Ces Chars de Guerre Divin sont vraiment extraordinaires. Ils ne nécessitent aucune pierre spirituelle pour s'activer, utilisant uniquement la puissance de l'âme de bête emprisonnée. Cela permet d'économiser énormément de ressources, mais si ces chars avaient eu besoin de pierres spirituelles, ils auraient probablement exigé des jades célestes. »
 
-« Je me demande seulement si l'activation du char affecte l'âme de la bête. En temps normal, aucune source d'énergie n'est infinie dans ce monde. L'âme de la bête risque d'être endommagée après un certain nombre d'utilisations, voire de disparaître totalement. Malheureusement, le Céleste des Trésors Célestes n'a laissé aucune information à ce sujet. » Wang Lin leva les yeux vers le ciel et s'enfonça dans une profonde réflexion.
+« Je me demande seulement si l'activation du char affecte l'âme de la bête. En temps normal, aucune source d'énergie n'est infinie dans ce monde. L'âme de la bête risque d'être endommagée après un certain nombre d'utilisations, voire de disparaître totalement. Malheureusement, l'Estimé Tian Bao n'a laissé aucune information à ce sujet. » Wang Lin leva les yeux vers le ciel et s'enfonça dans une profonde réflexion.
 
-« Je pense que le Céleste des Trésors Célestes n'a pas eu assez de temps avant sa mort pour inscrire toutes les informations dans le métal; il n'a laissé que l'essentiel. Cela signifie que je vais devoir mener mes propres recherches pour mieux comprendre ces Chars de Guerre Divin. » Wang Lin prit une profonde inspiration, puis toucha son sac de rangement en affichant un léger sourire.
+« Je pense que l'Estimé Tian Bao n'a pas eu assez de temps avant sa mort pour inscrire toutes les informations dans le métal; il n'a laissé que l'essentiel. Cela signifie que je vais devoir mener mes propres recherches pour mieux comprendre ces Chars de Guerre Divin. » Wang Lin prit une profonde inspiration, puis toucha son sac de rangement en affichant un léger sourire.
 
 « La récolte de ce voyage dans le Royaume Céleste est excellente, mais le danger fut tout aussi grand. Si quelque chose s'était mal passé lors de l'effondrement de ce fragment, je serais sans doute mort à présent. Plus le risque est grand, plus la récompense est immense. Cette maxime est bien vraie! Par conséquent, je devrai réfléchir avec soin à l'invitation de Chi Hu. » Wang Lin flotta dans les airs, plongé dans ses pensées.

@@ -39,13 +39,13 @@ Tian Yunzi célébrait son anniversaire tous les 10 000 ans. Très peu de gens s
 
 Même pour une planète de culture de rang 7, rares étaient celles qui y parvenaient; seul Tian Yunzi en était capable!
 
-Un mois auparavant, la formation défensive de brume violette avait été transformée en une ceinture pourpre entourant la planète, et d'innombrables disciples de la Secte Céleste avaient été dépêchés pour accueillir les invités. Outre les étrangers, de nombreux natifs de la planète Tian Yun arrivèrent également, chargés de cadeaux.
+Un mois auparavant, la formation défensive de brume violette avait été transformée en une ceinture pourpre entourant la planète, et d'innombrables disciples de la Secte Tian Yun avaient été dépêchés pour accueillir les invités. Outre les étrangers, de nombreux natifs de la planète Tian Yun arrivèrent également, chargés de cadeaux.
 
 Une foule immense provenant des cinq planètes mineures gravitant autour de Tian Yun vint aussi célébrer l'anniversaire de Tian Yunzi. Même les vieux monstres qui contrôlaient eux-mêmes les planètes extérieures se rendirent sur la planète Tian Yun. On pouvait dire que personne sur la planète n'ignorait cet événement. Durant le mois précédant la fête, une multitude de logements furent construits pour les convives.
 
 Tous les disciples des sept divisions de la Secte Tian Yun étaient extrêmement occupés. Avec une telle concentration de membres d'autres sectes et d'étrangers, les échanges et les conversations étaient inévitables. Personne présent ici n'était faible; échanger avec autrui était donc pour eux une opportunité très bénéfique.
 
-Ce jour-là, la personne chargée d'accueillir ceux qui arrivaient sur la planète Tian Yun était le frère aîné de la Division Pourpre, Zhao Xingsha. Il portait une robe violette brodée de fils de soie dorés, un pendentif de jade chaud pendait à sa taille et une épée ancienne reposait dans son dos. Son allure était très élégante et, avec son sourire empreint de douceur, quiconque le voyait éprouvait instinctivement un sentiment de sympathie envers lui.
+Ce jour-là, la personne chargée d'accueillir ceux qui arrivaient sur la planète Tian Yun était le Senior frère de la Division Pourpre, Zhao Xingsha. Il portait une robe violette brodée de fils de soie dorés, un pendentif de jade chaud pendait à sa taille et une épée ancienne reposait dans son dos. Son allure était très élégante et, avec son sourire empreint de douceur, quiconque le voyait éprouvait instinctivement un sentiment de sympathie envers lui.
 
 Il se tenait actuellement au sommet de la brume violette, contemplant la planète en contrebas. Il esquissa un sourire et murmura pour lui-même: « C'est la première fois que je participe à l'anniversaire du Maître, et j'ai effectivement rencontré beaucoup d'amis. Surtout le jeune maître de la Secte Yun Luo; sa culture est plutôt impressionnante et sa personnalité me plaît. »
 
@@ -61,13 +61,13 @@ Ces rugissements émanaient des quatre bêtes qui tiraient le char. Leurs corps 
 
 Dix personnes se tenaient à dix endroits différents sur ce char de guerre. Elles portaient toutes des robes argentées et affichaient des expressions glaciales. Au centre du char trônait un siège où était allongé un individu extrêmement corpulent; il ressemblait à une masse de chair posée sur une chaise. Cependant, sa peau était aussi lisse et limpide que du cristal, si éclatante que quiconque la regardait en serait ébloui.
 
-Dès que Zhao Xingsha vit le char de guerre doré, il fut frappé de stupeur. Il s'avança immédiatement et dit respectueusement: « Ce junior est Zhao Xingsha, disciple de la Division Pourpre de la Secte Tian Yun. Salutations, Senior Démon Doré. »
+Dès que Zhao Xingsha vit le char de guerre doré, il fut frappé de stupeur. Il s'avança immédiatement et dit respectueusement: « Ce junior est Zhao Xingsha, disciple de la Division Pourpre de la Secte Tian Yun. Salutations, Senior Jin Mozi. »
 
 Lorsque le char s'arrêta à 330 mètres de lui, une aura puissante se verrouilla instantanément sur lui. C'étaient les regards venimeux des quatre bêtes féroces; certaines laissaient même couler de la bave au coin de leur gueule. Au sommet du char, les dix individus fixaient silencieusement Zhao Xingsha de leurs yeux froids.
 
-Une sueur froide perla sur le front de Zhao Xingsha. Il avait perdu une partie de son assurance car il connaissait l'identité du Démon Doré. Ce dernier était le souverain d'une des petites planètes du système. Il régnait seul et de manière très autoritaire; si quelqu'un osait s'opposer à lui, il cherchait la vengeance quelles que soient les conséquences. C'était un excentrique qui favorisait excessivement ses propres partisans et pouvait tuer sans la moindre réflexion; d'innombrables vies s'étaient éteintes sur un simple caprice de sa part.
+Une sueur froide perla sur le front de Zhao Xingsha. Il avait perdu une partie de son assurance car il connaissait l'identité de Jin Mozi. Ce dernier était le souverain d'une des petites planètes du système. Il régnait seul et de manière très autoritaire; si quelqu'un osait s'opposer à lui, il cherchait la vengeance quelles que soient les conséquences. C'était un excentrique qui favorisait excessivement ses propres partisans et pouvait tuer sans la moindre réflexion; d'innombrables vies s'étaient éteintes sur un simple caprice de sa part.
 
-La culture de cet homme était trop puissante. Hormis quelques élus, personne ne pouvait l'arrêter. La rumeur prétendait que la culture du Démon Doré avait dépassé le stade du Yin Illusoire et du Yang Corporel pour atteindre le domaine légendaire.
+La culture de cet homme était trop puissante. Hormis quelques élus, personne ne pouvait l'arrêter. La rumeur prétendait que la culture de Jin Mozi avait dépassé le stade du Yin Illusoire et du Yang Corporel pour atteindre le domaine légendaire.
 
 La masse de chair allongée sur le siège fronça les sourcils et s'exclama: « Pourquoi ce petit garçon reste-t-il là, figé? Montrez-moi le chemin! »
 
@@ -85,4 +85,4 @@ Les arrivées se poursuivirent jusqu'à ce que le jour de l'anniversaire de Tian
 
 Ce jour-là, le ciel était sans nuages, d'un bleu serein, et une brise légère portait le parfum des fleurs. Au total, huit lieux accueillaient la célébration. Rouge, orange, jaune, vert, cyan, bleu, violet: chacune des sept divisions avait son propre lieu de fête. En plus de ces sept célébrations, la dernière avait lieu dans la section principale, là où se tenait la cérémonie majeure. Quiconque pouvait être présent ici n'était aucun homme ordinaire.
 
-Le Démon Doré n'était pas qualifié pour y assister. Malgré son statut, il ne pouvait participer qu'à l'une des célébrations secondaires, celle de la division rouge.
+Jin Mozi n'était pas qualifié pour y assister. Malgré son statut, il ne pouvait participer qu'à l'une des célébrations secondaires, celle de la division rouge.

@@ -26,7 +26,7 @@ Après avoir entendu les paroles de Zhao Chuanliang, le Seigneur Démon des Huit
 
 Wang Lin jeta un regard aux membres sinistres de la Secte Shi Yin et répondit calmement: « Je l'ignore. »
 
-Les yeux de Zhao Chuanliang brillèrent comme des éclairs alors qu'il fixait Wang Lin: « Vous l'ignorez? Vous avez tué des disciples de la Secte Shi Yin dans la chaîne de montagnes de l'Or Brûlant et vous osez dire que vous l'ignorez? »
+Les yeux de Zhao Chuanliang brillèrent comme des éclairs alors qu'il fixait Wang Lin: « Vous l'ignorez? Vous avez tué des disciples de la Secte Shi Yin dans la chaîne de montagnes Fen Jin et vous osez dire que vous l'ignorez? »
 
 Wang Lin leva les yeux au ciel et répliqua: « Je l'ignore toujours. » Sur ce, il ne daigna même plus regarder Zhao Chuanliang; il ferma les yeux et commença à cultiver. Cependant, dans son cœur, il était prêt à s'enfuir dans la Mer Xiu Mo grâce à sa technique d'évasion terrestre si le vieil homme décidait de ne pas l'aider.
 

@@ -26,7 +26,7 @@ La vision montrait un homme empreint de majesté et de fierté, debout au sommet
 
 Devant cet homme flottait une pagode dans l'espace, sur laquelle étaient inscrits trois grands caractères clairs:
 
-« Pagode du Sceau Céleste »
+« Palais Xian Yin »
 
 L'homme pénétra rapidement dans la pagode.
 
@@ -122,7 +122,7 @@ La poupée de bronze, ayant absorbé une quantité massive de lumière blanche, 
 
 Le Zhu Quezi actuel n'était plus aussi vieux, mais il paraissait plus vibrant de vie.
 
-« Jeune frère apprenti, ce jeu atteint maintenant son apogée. Ce vieux s'est servi de la vie de Qian Feng pour prendre forme ici, afin que nous puissions avoir de belles retrouvailles! » Tout en parlant, il agita sa main droite et le cristal blanc vola vers lui comme un éclair.
+« Junior frère, ce jeu atteint maintenant son apogée. Ce vieux s'est servi de la vie de Qian Feng pour prendre forme ici, afin que nous puissions avoir de belles retrouvailles! » Tout en parlant, il agita sa main droite et le cristal blanc vola vers lui comme un éclair.
 
 Zhu Quezi pressa soudainement le cristal contre son front, et celui-ci fusionna avec son corps.
 

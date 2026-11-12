@@ -44,7 +44,7 @@ En un clin d'œil, l'ombre arriva et s'arrêta à trente-trois mètres devant le
 
 Il fixa le Seigneur Démon des Six Désirs avec des yeux qui contenaient à peine son extase et éclata de rire: « Bien! Comme on peut s'y attendre de mon disciple. Tu as osé absorber le désir du Dieu Ancien. Yi Er, ton maître doit vraiment te remercier. »
 
-Wang Lin était stupéfait. Grâce à la Perle Défiant le Ciel, il pouvait tout voir. L'apparition du Magicien Démon Céleste le choqua profondément; le corps démoniaque de cet homme ressemblait énormément à celui de Bossu Meng.
+Wang Lin était stupéfait. Grâce à la Perle Défiant le Ciel, il pouvait tout voir. L'apparition du Magicien Démon Céleste le choqua profondément; le corps démoniaque de cet homme ressemblait énormément à celui de Meng Tuozi.
 
 Ce qui l'étonna davantage fut de comprendre que cet homme semblait être le maître du Seigneur Démon des Six Désirs.
 
@@ -104,7 +104,7 @@ Après sa fuite, la tentation était devenue trop immense pour être ignorée; a
 
 Depuis sa mort jusqu'au moment où il remit le trésor d'héritage au Seigneur Démon des Six Désirs, tout avait été minutieusement orchestré par le Magicien Démon Céleste.
 
-Au troisième essai, même si Bossu Meng ne l'avait pas appelé, il serait apparu dès que le Seigneur Démon des Six Désirs serait en danger. Son but était de le faire pénétrer dans le quatrième essai.
+Au troisième essai, même si Meng Tuozi ne l'avait pas appelé, il serait apparu dès que le Seigneur Démon des Six Désirs serait en danger. Son but était de le faire pénétrer dans le quatrième essai.
 
 On pourrait même dire que depuis le jour où il avait accepté le Seigneur Démon des Six Désirs comme disciple, tout n'avait été fait que pour aboutir à ce jour.
 
@@ -126,7 +126,7 @@ Wang Lin observait la scène depuis l'espace de la Perle Défiant le Ciel. Le c�
 
 Mais ce qui exalta encore plus le cœur de Wang Lin fut l'endroit où le dragon noir avait frappé. Une pensée traversa son esprit alors qu'il fixait cette zone.
 
-« Désir de Tan Lang du Dieu Ancien, va! »
+« Désir de Cupidité du Dieu Ancien, va! »
 
 Dans la brume sanglante, un dragon rouge apparut. Il engloutit un sixième de l'énergie spirituelle du Seigneur Démon des Six Désirs et percuta sans pitié le même endroit.
 

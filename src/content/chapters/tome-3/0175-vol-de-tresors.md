@@ -28,7 +28,7 @@ Le démon Xu Liguo voulut le suivre, mais il fut repoussé par le tourbillon. Il
 
 À l'intérieur du tourbillon noir, il n'avait même pas besoin de voler; il se tenait sur quelques-unes des petites créatures. De plus, il était entouré par les sens divins combinés de toutes ces créatures, de sorte que ceux des autres tourbillons pouvaient à peine le remarquer.
 
-Les yeux de Wang Lin s'illuminèrent. Il donna un ordre au second démon et le tourbillon s'élança aussitôt vers l'endroit où se trouvait Bossu Meng. Derrière lui, les autres tourbillons le suivirent lentement. Ainsi, plus d'une dizaine de tourbillons fusèrent en rugissant et arrivèrent bientôt au groupe de tourbillons qui avait jadis fait frémir Wang Lin.
+Les yeux de Wang Lin s'illuminèrent. Il donna un ordre au second démon et le tourbillon s'élança aussitôt vers l'endroit où se trouvait Meng Tuozi. Derrière lui, les autres tourbillons le suivirent lentement. Ainsi, plus d'une dizaine de tourbillons fusèrent en rugissant et arrivèrent bientôt au groupe de tourbillons qui avait jadis fait frémir Wang Lin.
 
 Lorsqu'ils s'approchèrent, un puissant sens divin passa près d'eux. Wang Lin se mit en alerte, mais le sens divin ne s'arrêta pas et continua sa course. Il n'avait manifestement pas observé attentivement; il s'était contenté d'un coup d'œil sans rien remarquer d'anormal.
 
@@ -38,9 +38,9 @@ Il avait déjà une certaine compréhension de ces petites créatures. Dans chaq
 
 C'était la différence entre les généraux et les soldats. Les petites créatures normales étaient les soldats, les variantes plus puissantes étaient les généraux, et celle du tourbillon qui semblait atteindre les cieux était le roi.
 
-En s'approchant, Wang Lin put voir qu'au milieu de cet immense amas de tourbillons se dressait une tour noire vertigineuse. Bossu Meng devait être à l'intérieur.
+En s'approchant, Wang Lin put voir qu'au milieu de cet immense amas de tourbillons se dressait une tour noire vertigineuse. Meng Tuozi devait être à l'intérieur.
 
-Wang Lin n'était pas pressé. S'il avait ordonné au second démon de le mener ici, c'était parce qu'il avait réalisé qu'il pouvait s'approcher sans être détecté. Il agissait selon les opportunités offertes. Il ne comptait pas tuer Bossu Meng, mais s'il s'y prenait bien, il pourrait encore lui dérober quelques trésors.
+Wang Lin n'était pas pressé. S'il avait ordonné au second démon de le mener ici, c'était parce qu'il avait réalisé qu'il pouvait s'approcher sans être détecté. Il agissait selon les opportunités offertes. Il ne comptait pas tuer Meng Tuozi, mais s'il s'y prenait bien, il pourrait encore lui dérober quelques trésors.
 
 Le marquage du sens divin laissé sur le second démon différait de celui laissé sur Xu Liguo. Le démon Xu Liguo avait été cultivé pendant très longtemps, si bien que le marquage de Wang Lin y était profondément ancré. En réalité, Wang Lin n'aurait même pas eu besoin de son Royaume Ji; une simple pensée lui aurait suffi pour détruire Xu Liguo. Cependant, en circonstances normales, il n'utiliserait pas ce marquage pour attaquer. Il le gardait comme dernier recours.
 
@@ -52,7 +52,7 @@ S'il avait empêché le second démon de continuer à fusionner avec les autres 
 
 Si même quelqu'un d'aussi tenace que Xu Liguo avait été totalement apprivoisé par Wang Lin, un démon façonné à partir d'âmes de bêtes ne pouvait faire le poids.
 
-Le visage de Bossu Meng était aussi sombre que l'eau boueuse alors qu'il regardait amèrement les tourbillons extérieurs. Il fixa longuement le plus grand d'entre eux, le regard empreint de méfiance. Le sens divin à l'intérieur du plus grand tourbillon était presque aussi puissant que celui de tous les autres réunis; sous son impulsion, même son poison destructeur du ciel avait été brisé de force et chassé très loin.
+Le visage de Meng Tuozi était aussi sombre que l'eau boueuse alors qu'il regardait amèrement les tourbillons extérieurs. Il fixa longuement le plus grand d'entre eux, le regard empreint de méfiance. Le sens divin à l'intérieur du plus grand tourbillon était presque aussi puissant que celui de tous les autres réunis; sous son impulsion, même son poison destructeur du ciel avait été brisé de force et chassé très loin.
 
 Durant ce temps, il avait épuisé toutes les bêtes spirituelles de son sac de rangement. Bien que ses techniques lui aient permis d'en tuer beaucoup en utilisant des substituts, de nouvelles créatures arrivaient sans cesse.
 
@@ -64,7 +64,7 @@ Quant aux trésors, il en avait également consommé plusieurs. Malgré leur eff
 
 À cet instant, il était au bout du rouleau. Ce n'était pas qu'il n'avait pas envisagé de charger; il l'avait déjà tenté. Il avait alors utilisé plus de dix bêtes spirituelles comme substituts, mais juste au moment où il allait briser le siège, le plus grand tourbillon l'avait frappé. Non seulement cela l'avait empêché de s'échapper, mais cela l'avait aussi gravement blessé.
 
-Bossu Meng pensa amèrement: « Les cieux veulent-ils ma mort? J'ai cultivé en cachette du ciel et j'ai enfin atteint, aujourd'hui, le stade intermédiaire de la Formation de l'Âme. Je pensais pouvoir obtenir ici une pilule de Transformation de l'Âme et atteindre d'un seul coup le stade de la Transformation de l'Âme, mais hélas... » Il ne put s'empêcher de repenser à ce qui s'était passé il y a mille ans, lors de l'arrivée du dernier groupe. Tous étaient morts, sauf eux quatre.
+Meng Tuozi pensa amèrement: « Les cieux veulent-ils ma mort? J'ai cultivé en cachette du ciel et j'ai enfin atteint, aujourd'hui, le stade intermédiaire de la Formation de l'Âme. Je pensais pouvoir obtenir ici une pilule de Transformation de l'Âme et atteindre d'un seul coup le stade de la Transformation de l'Âme, mais hélas... » Il ne put s'empêcher de repenser à ce qui s'était passé il y a mille ans, lors de l'arrivée du dernier groupe. Tous étaient morts, sauf eux quatre.
 
 Parmi eux, beaucoup possédaient un niveau de culture supérieur au leur, et pourtant, tous avaient péri. Les quatre survivants n'avaient tenu que par une chance insolente.
 
@@ -72,17 +72,17 @@ Après mille ans de préparation, il avait réussi à passer du stade avancé de
 
 C'était aussi la raison pour laquelle il était traqué par le Clan Ju Mo!
 
-Bossu Meng afficha une expression de dépit. Il serra les dents, son regard tombant sur le crapaud. Ce crapaud, Li Tian, l'accompagnait depuis des milliers d'années sans jamais l'abandonner. Il l'avait vu grandir, passant du rang de bête spirituelle de faible qualité au sommet de la haute qualité. Il appartenait déjà au rang de pseudo-bête désolée. Avec encore quelques milliers d'années et l'aide de quelques remèdes spirituels, il pourrait très probablement devenir une véritable bête désolée.
+Meng Tuozi afficha une expression de dépit. Il serra les dents, son regard tombant sur le crapaud. Ce crapaud, Li Tian, l'accompagnait depuis des milliers d'années sans jamais l'abandonner. Il l'avait vu grandir, passant du rang de bête spirituelle de faible qualité au sommet de la haute qualité. Il appartenait déjà au rang de pseudo-bête désolée. Avec encore quelques milliers d'années et l'aide de quelques remèdes spirituels, il pourrait très probablement devenir une véritable bête désolée.
 
-Mais maintenant, Bossu Meng n'avait plus d'autre choix. Il caressa le crapaud et murmura: « Si je pouvais me téléporter dans cet endroit maudit, je ne serais pas dans cette situation. Li Tian, cette fois, je compte sur toi! »
+Mais maintenant, Meng Tuozi n'avait plus d'autre choix. Il caressa le crapaud et murmura: « Si je pouvais me téléporter dans cet endroit maudit, je ne serais pas dans cette situation. Li Tian, cette fois, je compte sur toi! »
 
 Alors qu'il parlait, sa main droite plongea soudainement dans la gueule du crapaud. Le corps de l'animal trembla et une expression de douleur apparut sur son visage. Cependant, il ne résista pas; il regarda simplement calmement son maître.
 
-Bossu Meng ferma les yeux avant de les rouvrir brusquement. Son regard était devenu impitoyable lorsqu'il déclara d'une voix lourde: « Li Tian, je suis désolé! » Sur ce, sa main droite se retira violemment. Il tenait dans sa main un noyau d'origine noir d'encre, gros comme un poing, qui émettait de puissantes fluctuations d'énergie spirituelle.
+Meng Tuozi ferma les yeux avant de les rouvrir brusquement. Son regard était devenu impitoyable lorsqu'il déclara d'une voix lourde: « Li Tian, je suis désolé! » Sur ce, sa main droite se retira violemment. Il tenait dans sa main un noyau d'origine noir d'encre, gros comme un poing, qui émettait de puissantes fluctuations d'énergie spirituelle.
 
 Le crapaud, Li Tian, s'affaiblit jusqu'à basculer sur le côté. Il laissa échapper un faible croassement alors que toutes les pustules de son dos éclataient, libérant un liquide noir fétide qui recouvrit son corps. Même le gargouillis du liquide semblait sans force.
 
-Sans l'ombre d'une hésitation, Bossu Meng engouffra le noyau d'origine du crapaud dans sa bouche. Son corps se mit immédiatement à convulser et une fumée noire jaillit de son visage. Il poussa quelques rugissements alors que toutes les pustules de sa face éclataient. Un liquide noir jaillit de partout, dégageant une fumée sombre en frappant les murs.
+Sans l'ombre d'une hésitation, Meng Tuozi engouffra le noyau d'origine du crapaud dans sa bouche. Son corps se mit immédiatement à convulser et une fumée noire jaillit de son visage. Il poussa quelques rugissements alors que toutes les pustules de sa face éclataient. Un liquide noir jaillit de partout, dégageant une fumée sombre en frappant les murs.
 
 Il existe plusieurs niveaux de noyaux chez les bêtes spirituelles, mais un véritable noyau ne se forme que lorsqu'une créature atteint le rang de bête spirituelle proprement dite. Bien que certaines bêtes étranges possèdent des noyaux, ce ne sont que des faux noyaux, formés par leur énergie spirituelle pour servir de stockage.
 
@@ -92,65 +92,65 @@ Lorsqu'elles deviennent des bêtes spirituelles de qualité moyenne, leurs noyau
 
 Ce n'est que lorsqu'elles atteignent le rang de bête désolée que leurs noyaux d'origine se transforment en âmes d'origine. À partir de là, elles deviennent de formidables bêtes sauvages du ciel et de la terre.
 
-La vapeur noire sur Bossu Meng devint plus dense alors qu'il gisait au sol et agrippait le crapaud. Il le pressa contre son front.
+La vapeur noire sur Meng Tuozi devint plus dense alors qu'il gisait au sol et agrippait le crapaud. Il le pressa contre son front.
 
-De plus en plus de liquide noir s'échappait de l'animal. Ce fluide recouvrit les pustules du visage de Bossu Meng et y pénétra. Finalement, le crapaud entier se mua en un liquide noir qui fut absorbé par l'homme.
+De plus en plus de liquide noir s'échappait de l'animal. Ce fluide recouvrit les pustules du visage de Meng Tuozi et y pénétra. Finalement, le crapaud entier se mua en un liquide noir qui fut absorbé par l'homme.
 
-La bosse dans le dos de Bossu Meng gonfla soudainement et de nombreuses pustules apparurent, couvrant tout son dos. En le regardant ainsi, il ressemblait désormais au crapaud.
+La bosse dans le dos de Meng Tuozi gonfla soudainement et de nombreuses pustules apparurent, couvrant tout son dos. En le regardant ainsi, il ressemblait désormais au crapaud.
 
-Bossu Meng ferma les yeux. Une vapeur noire s'accumula sur son front pour former un vortex. Puis, il ouvrit brusquement les paupières. Ses pupilles étaient désormais triangulaires et reflétaient un regard impitoyable.
+Meng Tuozi ferma les yeux. Une vapeur noire s'accumula sur son front pour former un vortex. Puis, il ouvrit brusquement les paupières. Ses pupilles étaient désormais triangulaires et reflétaient un regard impitoyable.
 
 Alors qu'il serrait les poings, des éclairs noirs crépitèrent dans ses mains. Il prit une profonde inspiration et murmura d'une voix rauque: « Cette ancienne technique démoniaque est vraiment incroyable. En utilisant le noyau d'origine de ce crapaud de haute qualité, j'ai pu atteindre, pour un court moment, la perfection de la Formation de l'Âme. Cette fois, je pourrai percer! Cependant, le prix est bien trop lourd. Si seulement je n'avais pas été acculé dans cette situation désespérée... hélas! »
 
-Sur ces mots, il sortit lentement de la tour noire. Dès qu'il fut dehors, des éclairs formés par la fusion des sens divins descendirent sur lui. Bossu Meng, le regard féroce, cracha un gaz vert. Au moment où l'éclair divin entra en contact avec ce gaz, sa progression ralentit légèrement. Saisissant cette opportunité, Bossu Meng bondit dans l'un des tourbillons.
+Sur ces mots, il sortit lentement de la tour noire. Dès qu'il fut dehors, des éclairs formés par la fusion des sens divins descendirent sur lui. Meng Tuozi, le regard féroce, cracha un gaz vert. Au moment où l'éclair divin entra en contact avec ce gaz, sa progression ralentit légèrement. Saisissant cette opportunité, Meng Tuozi bondit dans l'un des tourbillons.
 
 Le tourbillon cessa soudainement de tourner et les petites créatures à l'intérieur se dispersèrent. Cependant, elles n'eurent pas le temps de s'éloigner qu'elles explosèrent, faisant pleuvoir une pluie de sang du ciel.
 
-Le regard impitoyable de Bossu Meng ne quitta pas le tourbillon suivant vers lequel il bondissait.
+Le regard impitoyable de Meng Tuozi ne quitta pas le tourbillon suivant vers lequel il bondissait.
 
-Mais peu après, des centaines de millions de sens divins fusionnèrent pour former une lance aux reflets noirs qui apparut en silence dans le ciel et jaillit avec la force de qui brise le vide. Cette lance laissa de multiples images rémanentes dans son sillage. Un instant elle était dans les airs, l'instant d'après elle s'abattait sur Bossu Meng en provoquant des détonations soniques. Même les restrictions de l'épreuve terrestre furent affectées, laissant échapper des rugissements tonitruants.
+Mais peu après, des centaines de millions de sens divins fusionnèrent pour former une lance aux reflets noirs qui apparut en silence dans le ciel et jaillit avec la force de qui brise le vide. Cette lance laissa de multiples images rémanentes dans son sillage. Un instant elle était dans les airs, l'instant d'après elle s'abattait sur Meng Tuozi en provoquant des détonations soniques. Même les restrictions de l'épreuve terrestre furent affectées, laissant échapper des rugissements tonitruants.
 
-Le tourbillon où se trouvait Wang Lin étant loin derrière, cela ne l'affecta que peu. Il observa la silhouette inhumaine de Bossu Meng, portant une attention particulière au sac de rangement à sa taille.
+Le tourbillon où se trouvait Wang Lin étant loin derrière, cela ne l'affecta que peu. Il observa la silhouette inhumaine de Meng Tuozi, portant une attention particulière au sac de rangement à sa taille.
 
-Quant à la lance de sens divin, Bossu Meng lui jeta un seul regard avant de former un sceau avec ses mains et de lancer un chant complexe. Soudain, un petit chaudron quadrupède enveloppé de gaz jaillit de sa bouche.
+Quant à la lance de sens divin, Meng Tuozi lui jeta un seul regard avant de former un sceau avec ses mains et de lancer un chant complexe. Soudain, un petit chaudron quadrupède enveloppé de gaz jaillit de sa bouche.
 
 Dès l'apparition du chaudron, un épais gaz vert commença à s'en échapper. La lance percuta le petit objet. La collision provoqua un grondement de tonnerre et une onde de choc d'une épaisseur de 33 mètres se propagea rapidement. Même les tourbillons furent contraints de s'écarter; ceux qui ne furent pas assez rapides furent frappés par l'onde, transformant les petites créatures à l'intérieur en poussière.
 
-Les yeux de Wang Lin brillèrent tandis qu'il reculait avec les autres tourbillons, mais son regard restait verrouillé sur Bossu Meng sans ciller.
+Les yeux de Wang Lin brillèrent tandis qu'il reculait avec les autres tourbillons, mais son regard restait verrouillé sur Meng Tuozi sans ciller.
 
 Le petit chaudron vert se brisa en deux dans un craquement et tomba du ciel. Mais la lance qui l'avait frappé commença à virer au vert depuis sa pointe. Bientôt, la lance entière devint verte. Elle trembla avant de se fragmenter en une multitude de sens divins individuels.
 
 C'est alors qu'un phénomène étrange se produisit. Presque chaque sens divin issu de la lance portait une trace de vert. Cette teinte commença à se propager rapidement et, en quelques secondes, tous les sens divins composant la lance devinrent totalement verts.
 
-Au moment où le chaudron verdoyant se brisa, le corps de Bossu Meng faiblit soudainement. Il cracha plusieurs bouffées de sang essentiel. Ce chaudron vert était son trésor de vie. Grâce à sa culture au stade avancé de la Formation de l'Âme, il avait pu s'en servir pour tenir bon face à l'attaque de centaines de millions de sens divins, mais il finit par être scindé en deux.
+Au moment où le chaudron verdoyant se brisa, le corps de Meng Tuozi faiblit soudainement. Il cracha plusieurs bouffées de sang essentiel. Ce chaudron vert était son trésor de vie. Grâce à sa culture au stade avancé de la Formation de l'Âme, il avait pu s'en servir pour tenir bon face à l'attaque de centaines de millions de sens divins, mais il finit par être scindé en deux.
 
-Bossu Meng n'eut pas le temps de déplorer cette perte. Ses yeux injectés de sang fixaient les sens divins verts qui couvraient le ciel. « Mon trésor de vie ne se brise pas sans qu'il en coûte! Même brisé, il vous entraînera avec lui dans la tombe! Explosez! Explosez! Explosez!!! » Tous les sens divins teintés de vert explosèrent un à un en se transformant en énergie spirituelle. Une fois leurs sens divins brisés, leurs corps moururent également.
+Meng Tuozi n'eut pas le temps de déplorer cette perte. Ses yeux injectés de sang fixaient les sens divins verts qui couvraient le ciel. « Mon trésor de vie ne se brise pas sans qu'il en coûte! Même brisé, il vous entraînera avec lui dans la tombe! Explosez! Explosez! Explosez!!! » Tous les sens divins teintés de vert explosèrent un à un en se transformant en énergie spirituelle. Une fois leurs sens divins brisés, leurs corps moururent également.
 
 Alors que les sens divins explosaient un à un, plus de la moitié des tourbillons environnants disparurent soudain; les autres cessèrent tous de tourner et les petites créatures qu'ils contenaient tombèrent du ciel.
 
-Bossu Meng récupéra les morceaux du chaudron vert pour les ranger dans son sac de rangement. Il profita de l'occasion pour s'enfuir, et la direction qu'il prit menait précisément vers le tourbillon de Wang Lin.
+Meng Tuozi récupéra les morceaux du chaudron vert pour les ranger dans son sac de rangement. Il profita de l'occasion pour s'enfuir, et la direction qu'il prit menait précisément vers le tourbillon de Wang Lin.
 
 À cet instant, le tourbillon roi poussa un rugissement tonitruant. Il cessa brusquement de tourner, révélant une créature volante de trente pieds de long. Sa taille était bien supérieure à celle de ses congénères, mais pour Wang Lin, elle ne rivalisait pas avec le dragon désolé du tunnel.
 
 Alors que la bête rugissait, elle bondit en avant. Des ondes sonores jaillirent de son bec tranchant tandis qu'elle volait. Partout où passaient ces ondes, l'espace de l'épreuve terrestre semblait se déchirer, témoignant de sa puissance phénoménale.
 
-Simultanément, tous les tourbillons restants chargèrent Bossu Meng, en particulier ceux qui interceptaient sa trajectoire. Ils foncèrent sans souci de leur propre vie pour tenter de l'arrêter. Sens divins, ondes sonores et divers assauts pleuvaient sur lui. Pourtant, aucun ne parvint à le stopper; chaque tourbillon était pulvérisé lorsque Bossu Meng le percutait.
+Simultanément, tous les tourbillons restants chargèrent Meng Tuozi, en particulier ceux qui interceptaient sa trajectoire. Ils foncèrent sans souci de leur propre vie pour tenter de l'arrêter. Sens divins, ondes sonores et divers assauts pleuvaient sur lui. Pourtant, aucun ne parvint à le stopper; chaque tourbillon était pulvérisé lorsque Meng Tuozi le percutait.
 
 Cependant, à chaque collision, le vortex noir sur son front s'estompait un peu. Il se plaignit intérieurement: il savait que l'effet de sa hausse de culture touchait à sa fin. S'il ralentissait ne serait-ce qu'un instant, l'onde sonore du tourbillon roi l'atteindrait. Pensant cela, il accéléra encore davantage.
 
 Wang Lin, qui avait l'œil vif, remarqua qu'au moment où la créature libérait son onde sonore, une lueur dorée jaillit soudain de sa tête, laissant entrevoir la moitié d'un os de doigt doré.
 
-Il n'eut pas le temps d'analyser la situation car Bossu Meng approchait à grands pas. Les yeux de Wang Lin s'illuminèrent; il ricana et frappa son sac de rangement. Le tendon de dragon apparut aussitôt dans sa main. D'un geste de la main droite, ses deux extrémités se tordirent l'une avec l'autre, et plusieurs ramifications qui en naquirent s'y tordirent également, formant une seule corde épaisse.
+Il n'eut pas le temps d'analyser la situation car Meng Tuozi approchait à grands pas. Les yeux de Wang Lin s'illuminèrent; il ricana et frappa son sac de rangement. Le tendon de dragon apparut aussitôt dans sa main. D'un geste de la main droite, ses deux extrémités se tordirent l'une avec l'autre, et plusieurs ramifications qui en naquirent s'y tordirent également, formant une seule corde épaisse.
 
-Au moment où Bossu Meng approchait, le tourbillon dans lequel il se trouvait recula. Parmi tous les autres, celui-ci devint presque imperceptible.
+Au moment où Meng Tuozi approchait, le tourbillon dans lequel il se trouvait recula. Parmi tous les autres, celui-ci devint presque imperceptible.
 
-Alors que Bossu Meng passait, Wang Lin lança le tendon de dragon. L'homme venait tout juste de disperser un tourbillon en le percutant lorsqu'il nota une fluctuation anormale d'énergie spirituelle. Mais la zone était si saturée d'énergie provenant des créatures mortes qu'à moins d'une inspection minutieuse, il était difficile de détecter l'origine de cette fluctuation.
+Alors que Meng Tuozi passait, Wang Lin lança le tendon de dragon. L'homme venait tout juste de disperser un tourbillon en le percutant lorsqu'il nota une fluctuation anormale d'énergie spirituelle. Mais la zone était si saturée d'énergie provenant des créatures mortes qu'à moins d'une inspection minutieuse, il était difficile de détecter l'origine de cette fluctuation.
 
-Bossu Meng, déterminé à fuir, n'y prêta pas attention. Il ne pensait aucun autre cultivateur humain être présent ici.
+Meng Tuozi, déterminé à fuir, n'y prêta pas attention. Il ne pensait aucun autre cultivateur humain être présent ici.
 
 Cependant, lorsqu'il sentit soudain sa jambe droite tirée par une force puissante, son expression changea radicalement. Sans même baisser les yeux, son expérience lui permit de comprendre qu'il s'agissait d'un trésor magique fait de tendon de bête. Ces petites créatures ne pouvaient utiliser de tels objets; la seule conclusion possible était la présence d'un cultivateur humain!
 
-D'ordinaire, Bossu Meng n'aurait accordé que peu d'importance à ce genre de trésor. Il lui suffisait d'utiliser un peu d'énergie spirituelle pour le briser et d'y injecter du poison pour empoisonner l'utilisateur.
+D'ordinaire, Meng Tuozi n'aurait accordé que peu d'importance à ce genre de trésor. Il lui suffisait d'utiliser un peu d'énergie spirituelle pour le briser et d'y injecter du poison pour empoisonner l'utilisateur.
 
 Mais il était actuellement encerclé par des tourbillons noirs lançant des vagues incessantes d'attaques sonores et de sens divins. Il peinait déjà à progresser en utilisant ses dernières réserves d'énergie spirituelle, d'autant plus que son trésor de vie s'était brisé. Sans la combinaison de l'ancienne technique démoniaque et du crapaud, il serait déjà mort.
 
@@ -158,18 +158,18 @@ Mais il était actuellement encerclé par des tourbillons noirs lançant des vag
 
 Une paille ne peut pas tuer un chameau, mais elle peut être le point de rupture qui cause l'écrasement fatal du chameau. L'effet du tendon de dragon fut précisément cette paille.
 
-Frappé au dos par les ondes sonores, Bossu Meng cracha du sang et fut projeté vers l'avant. À cet instant précis, un tourbillon passa près de lui. Une main en sortit et s'empara du sac de rangement à sa taille.
+Frappé au dos par les ondes sonores, Meng Tuozi cracha du sang et fut projeté vers l'avant. À cet instant précis, un tourbillon passa près de lui. Une main en sortit et s'empara du sac de rangement à sa taille.
 
-Bossu Meng aperçut vaguement Wang Lin à travers le tourbillon. Son sourire moqueur le rendit furieux; il cracha une nouvelle bouchée de sang qui répandit un gaz étourdissant et se lança à la poursuite du tourbillon.
+Meng Tuozi aperçut vaguement Wang Lin à travers le tourbillon. Son sourire moqueur le rendit furieux; il cracha une nouvelle bouchée de sang qui répandit un gaz étourdissant et se lança à la poursuite du tourbillon.
 
 Une fois le sac récupéré, Wang Lin ordonna au second démon de foncer sans hésiter vers le vortex: l'entrée de la seconde épreuve. Quant au sang, il fut intercepté par les petites créatures du tourbillon. Mais les toxines contenues dans ce sang étaient redoutables; par prudence, Wang Lin quitta le tourbillon dès que celui-ci fut touché par le fluide. Les deux démons le suivirent de près.
 
 Dès qu'il eut atterri, Wang Lin déploya sa technique d'évasion terrestre et courut à toute vitesse. Le tourbillon, quant à lui, fut totalement infecté par le sang, tuant toutes les créatures en son sein.
 
-Tout s'était déroulé à une vitesse fulgurante. En un clin d'œil, le sac de rangement de Bossu Meng avait disparu.
+Tout s'était déroulé à une vitesse fulgurante. En un clin d'œil, le sac de rangement de Meng Tuozi avait disparu.
 
-Frappé par l'onde sonore, Bossu Meng sentit ses os et sa chair se briser. Les pustules de son dos éclatèrent, libérant un liquide noir fétide qui tuait instantanément toute petite créature au contact.
+Frappé par l'onde sonore, Meng Tuozi sentit ses os et sa chair se briser. Les pustules de son dos éclatèrent, libérant un liquide noir fétide qui tuait instantanément toute petite créature au contact.
 
 En voyant que son attaque de sang avait été bloquée et que Wang Lin s'était échappé, il ne ressentit même pas de chagrin pour son sac volé. Au lieu de cela, une soif de vengeance absolue l'envahit. Si ce n'était pas pour Wang Lin, il aurait déjà franchi le barrage pour atteindre la seconde épreuve.
 
-Tout avait basculé à cause de l'apparition de ce garçon. Avec son intelligence, Bossu Meng réalisa immédiatement qu'il n'avait fait que servir d'avant-garde à Wang Lin, en retenant pour lui tous les tourbillons. Sinon, avec une culture de la Formation du Noyau, comment ce gamin aurait-il pu franchir la première épreuve en toute sécurité?
+Tout avait basculé à cause de l'apparition de ce garçon. Avec son intelligence, Meng Tuozi réalisa immédiatement qu'il n'avait fait que servir d'avant-garde à Wang Lin, en retenant pour lui tous les tourbillons. Sinon, avec une culture de la Formation du Noyau, comment ce gamin aurait-il pu franchir la première épreuve en toute sécurité?

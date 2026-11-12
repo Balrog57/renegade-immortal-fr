@@ -8,7 +8,7 @@ slug: semparer-des-fondations
 ---
 L'homme d'âge moyen baissa la tête et observa les environs un instant, puis marmonna: « Cet endroit est véritablement étrange. Il y a deux ans, un léger jaillissement d'énergie spirituelle s'y est soudain produit et a attiré bon nombre de ces bêtes. Depuis lors, de faibles souffles d'énergie spirituelle s'en échappent de temps à autre, et c'est pourquoi les bêtes rôdent ici sans vouloir partir. »
 
-Les yeux du jeune homme s'illuminèrent soudainement. Il demanda: « Frère aîné, pourrait-il y avoir un trésor ici? »
+Les yeux du jeune homme s'illuminèrent soudainement. Il demanda: « Senior frère, pourrait-il y avoir un trésor ici? »
 
 L'homme ricana et répondit: « Certains Anciens ont pensé qu'un trésor était apparu ici et sont venus explorer les lieux, mais ils ont finalement conclu qu'il s'agissait de l'émanation d'une veine spirituelle souterraine, chose ordinaire, et non d'un trésor. »
 
@@ -40,7 +40,7 @@ L'homme d'âge moyen gémit intérieurement. S'il avait été seul, il se serait
 
 Mais après cette unique phrase, l'autre retomba dans le silence. Le cœur battant la chamade, l'homme serra les dents et se dit que sa vie était prioritaire: si le Senior passait à l'acte pour tuer, il ne se soucierait pas des autres et se sauverait d'abord.
 
-Le front de Xu Fei était couvert de perles de sueur. Elle fut prise de panique en voyant son troisième frère aîné, d'ordinaire si calme, pâlir de peur. Elle hésita longuement, puis dit d'une voix douce et soumise: « Senior, ce junior estime que nous n'avons rien fait pour vous offenser. Vous... »
+Le front de Xu Fei était couvert de perles de sueur. Elle fut prise de panique en voyant son troisième Senior frère, d'ordinaire si calme, pâlir de peur. Elle hésita longuement, puis dit d'une voix douce et soumise: « Senior, ce junior estime que nous n'avons rien fait pour vous offenser. Vous... »
 
 Avant qu'elle n'ait pu terminer, la vieille voix laissa échapper un son de surprise: « Tu as dit tout à l'heure que ton nom de famille est Xu? »
 

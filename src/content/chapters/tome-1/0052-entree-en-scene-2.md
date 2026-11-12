@@ -22,7 +22,7 @@ Huang Long était sidéré. Il pensa: « C'est... c'est... » Son cœur était e
 
 « Impossible! Quand Wang Lin est-il devenu aussi fort?! Son adversaire est pourtant le disciple principal de la Secte Xuan Dao! » Dao Xu se frotta les yeux, incrédule.
 
-Le frère Zhang, disciple vêtu de noir, celui qui avait introduit Wang Lin au sein de la Secte Heng Yue, afficha lui aussi un visage de choc. Il songea: « C'est ce jeune frère Wang, celui à qui je dis sans cesse de redoubler d'efforts? Il n'est qu'au 3ème niveau de Condensation de Qi. Comment est-ce possible... »
+Le Senior frère Zhang, disciple vêtu de noir, celui qui avait introduit Wang Lin au sein de la Secte Heng Yue, afficha lui aussi un visage de choc. Il songea: « C'est ce Junior frère Wang, celui à qui je dis sans cesse de redoubler d'efforts? Il n'est qu'au 3ème niveau de Condensation de Qi. Comment est-ce possible... »
 
 « C'est lui, Wang Lin? Celui qui est entré dans la secte en tentant de se suicider... ce déchet? » L'Ancien au visage rouge était sous le choc. Il ouvrit la bouche, mais en oublia de respirer.
 
@@ -42,7 +42,7 @@ Zhang Kuang s'était déjà réveillé, mais par peur de perdre la face, il fais
 
 La réaction de Lu Song fut moins intense. C'était la première fois qu'il entendait le nom de Wang Lin. Il le regarda et pensa: « Quand un tel expert est-il apparu parmi les disciples intérieurs? Humph, si j'avais su, pourquoi serais-je monté? Le chef de secte, lui, aurait dû l'envoyer directement! »
 
-« Ai-je fait une erreur lors de mon test? Le talent de Wang Lin est-il réellement aussi exceptionnel? » Songea le troisième frère aîné de la maison des pilules, toujours sous le choc de la scène.
+« Ai-je fait une erreur lors de mon test? Le talent de Wang Lin est-il réellement aussi exceptionnel? » Songea le troisième Senior frère de la maison des pilules, toujours sous le choc de la scène.
 
 Tous les disciples intérieurs restaient figés, arborant des expressions de pure stupéfaction.
 

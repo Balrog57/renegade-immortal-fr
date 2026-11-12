@@ -38,7 +38,7 @@ Cet homme était vêtu de bleu, avec trois dragons azur brodés sur sa poitrine.
 
 « Stade avancé de la Transformation de l'Âme! Et un niveau de culture légèrement supérieur à celui de la Quatrième Sœur; il doit être au sommet du stade avancé de la Transformation de l'Âme! » Les pupilles de Wang Lin se contractèrent imperceptiblement.
 
-Sima Rufeng déclara d'une voix forte: « Jeune frère apprenti Wang Lin, bien que nous ne soyons pas de la même division, j'ai entendu parler de vous. Aujourd'hui, je vais vous présenter un autre frère aîné. Frère aîné Wang, votre homonyme est venu ici; montrez-vous donc. »
+Sima Rufeng déclara d'une voix forte: « Junior frère Wang Lin, bien que nous ne soyons pas de la même division, j'ai entendu parler de vous. Aujourd'hui, je vais vous présenter un autre Senior frère. Senior frère Wang, votre homonyme est venu ici; montrez-vous donc. »
 
 « Humph! » Un son glacial résonna dans le vide, empreint d'une froideur tranchante. Wang Lin se retourna et constata qu'une autre personne s'était manifestée à plus d'une centaine de mètres derrière lui sans qu'il ne s'en aperçoive.
 
@@ -80,15 +80,15 @@ La Quatrième Sœur reprit lentement: « Si le Septième Frère est intéressé 
 
 L'expression de Wang Lin resta inchangée tandis qu'il inspectait les lieux. L'endroit était entouré de rochers mystérieux, dont beaucoup étaient entaillés de profonds sillons. Vu d'en haut, il était évident qu'il s'agissait d'une formation de restrictions.
 
-« La Sœur aînée pense vraiment qu'une simple formation peut me piéger? » Les yeux de Wang Lin brillèrent et il agita sa main droite. Un rayon de lumière blanche apparut et se mua en une épée. Wang Lin saisit l'arme et la projeta vers un rocher au sol.
+« Senior sœur, pensez-vous vraiment qu'une simple formation peut me piéger? » Les yeux de Wang Lin brillèrent et il agita sa main droite. Un rayon de lumière blanche apparut et se mua en une épée. Wang Lin saisit l'arme et la projeta vers un rocher au sol.
 
 Mais avant que l'épée n'ait parcouru 330 mètres, elle ralentit, se brisa en éclats de lumière et disparut.
 
 Wang Lin fronça les sourcils.
 
-« Jeune frère apprenti, cette restriction a été posée par le Frère aîné lui-même. À moins qu'il n'en soit certain, il ne vous laisserait pas ici sans raison; ne gaspillez donc pas votre énergie. » La Quatrième Sœur soupira et s'envola hors de la zone délimitée par la lumière argentée.
+« Junior frère, cette restriction a été posée par le Senior frère lui-même. À moins qu'il n'en soit certain, il ne vous laisserait pas ici sans raison; ne gaspillez donc pas votre énergie. » La Quatrième Sœur soupira et s'envola hors de la zone délimitée par la lumière argentée.
 
-Elle se retourna pour lancer un regard éloquent à Wang Lin avant de murmurer: « Frère aîné, la dette que je vous ai contractée autrefois est désormais remboursée. À partir de maintenant, il n'y a plus aucun lien entre nous! » Sur ces mots, elle s'élança vers la Secte Tian Yun.
+Elle se retourna pour lancer un regard éloquent à Wang Lin avant de murmurer: « Senior frère, la dette que je vous ai contractée autrefois est désormais remboursée. À partir de maintenant, il n'y a plus aucun lien entre nous! » Sur ces mots, elle s'élança vers la Secte Tian Yun.
 
 Wang Lin observa sa silhouette disparaître lentement, le regard brillant d'une lueur étrange. Ses yeux devinrent plus froids et il sortit l'épée céleste. D'un geste vif, il libéra une onde d'énergie d'épée large d'une dizaine de mètres qui fendit le vide voisin.
 

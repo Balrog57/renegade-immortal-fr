@@ -40,7 +40,7 @@ Un chemin pavé de galets descendait du temple, bordé de saules pleureurs. Lors
 
 À cet instant, bien qu'une brise soufflât, le frémissement du feuillage fut couvert par le sifflement du vol. Transformé en arc-en-ciel, le jeune cultivateur se posa soudainement devant la porte du temple et cracha un jet de sang. Le visage livide, il ouvrit les portes et s'engouffra à l'intérieur.
 
-Les quelques cultivateurs assis en tailleur dans le temple ouvrirent les yeux. L'un d'eux, constatant l'état critique du jeune homme, s'approcha et demanda: « Cher frère apprenti, comment un simple mortel a-t-il pu t'infliger de telles blessures? »
+Les quelques cultivateurs assis en tailleur dans le temple ouvrirent les yeux. L'un d'eux, constatant l'état critique du jeune homme, s'approcha et demanda: « Junior frère, comment un simple mortel a-t-il pu t'infliger de telles blessures? »
 
 Le jeune cultivateur repoussa l'homme et s'écria: « Je dois voir le Maître! Maître! »
 
@@ -66,7 +66,7 @@ Le jeune homme hocha vigoureusement la tête: « Oui, Maître, c'est exact. Au d
 
 Une lueur singulière passa dans les yeux du maître. Sans que l'on pût lire ni joie ni colère sur son visage, il dit au jeune apprenti: « Accompagne-moi et montre-moi le chemin. Nul besoin d'utiliser de technique; nous irons à pied. »
 
-Le jeune cultivateur, ravi, guida promptement son maître hors du temple. Quant aux autres disciples, certains furent tentés de les suivre, mais devant le silence du Maître, ils hésitèrent. L'un d'eux soupira: « Le Maître gâte bien trop son jeune frère apprenti. »
+Le jeune cultivateur, ravi, guida promptement son maître hors du temple. Quant aux autres disciples, certains furent tentés de les suivre, mais devant le silence du Maître, ils hésitèrent. L'un d'eux soupira: « Le Maître gâte bien trop son petit Junior frère. »
 
 Un homme d'âge mûr esquissa un sourire amer et répondit lentement: « Ce n'est pas la première fois. Il n'y a pas de quoi en être jaloux. Avec la sagesse du Maître, comment pourrait-il ne pas voir les mensonges dans les paroles de ce jeune frère? Le mieux est de ne pas nous en préoccuper. »
 

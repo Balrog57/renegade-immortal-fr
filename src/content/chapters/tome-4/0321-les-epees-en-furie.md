@@ -18,7 +18,7 @@ Wang Lin pointa la boussole, qui s'agrandit immédiatement. Sa taille était au 
 
 Cette boussole contenait une parcelle du sens divin de Wang Lin; ainsi, lorsqu'il s'assit, elle sembla fusionner avec lui comme si elle faisait partie de son propre corps. D'une simple pensée, la boussole commença à se déplacer à une vitesse plusieurs fois plus grande qu'auparavant et disparut.
 
-Chi Hu envoya un message: « Le frère Ceng est vraiment incroyable. La boussole est bien plus rapide qu'avant! »
+Chi Hu envoya un message: « Le frère Zeng est vraiment incroyable. La boussole est bien plus rapide qu'avant! »
 
 Wang Lin répondit: « Frère Chi Hu, maintenant que j'ai affiné cette boussole, elle n'a plus besoin de guide; vous pouvez donc vous reposer et cultiver! »
 
@@ -98,7 +98,7 @@ Simultanément, de nombreuses épées convergèrent depuis le lointain. Même av
 
 Il n'était pas le seul cultivateur à avoir cette idée. À cet instant, presque tous les cultivateurs quittaient leurs fragments célestes pour suivre les lames. Ils voulaient tous découvrir ce qui pouvait bien pousser toutes ces épées à la folie!
 
-Wang Lin était sur la boussole lorsqu'il entendit l'hymne d'épée. Il s'arrêta brusquement. Le visage de Chi Hu se décomposa: « Frère Ceng, je crains que quelque chose de grave ne soit arrivé! »
+Wang Lin était sur la boussole lorsqu'il entendit l'hymne d'épée. Il s'arrêta brusquement. Le visage de Chi Hu se décomposa: « Frère Zeng, je crains que quelque chose de grave ne soit arrivé! »
 
 Avant qu'il n'ait fini sa phrase, il vit des rangées d'épées au loin. Elles dégageaient toutes une puissante énergie d'épée en fonçant vers lui. Chi Hu regarda de plus près et s'écria: « Ceci... ce sont toutes... des épées célestes! »
 
@@ -106,6 +106,6 @@ Ces épées étaient extrêmement rapides et se rapprochaient à toute allure. W
 
 Wang Lin était sous le choc: « Que s'est-il passé exactement? »
 
-Le visage de Chi Hu était pétrifié par la terreur tandis qu'il pointait l'horizon: « Regarde, frère Ceng, il y a encore plus d'épées célestes là-bas! »
+Le visage de Chi Hu était pétrifié par la terreur tandis qu'il pointait l'horizon: « Regarde, frère Zeng, il y a encore plus d'épées célestes là-bas! »
 
 Ils virent d'innombrables épées célestes surgir, se dirigeant dans la même direction que les premières.

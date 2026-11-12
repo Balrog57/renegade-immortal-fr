@@ -60,7 +60,7 @@ Pourtant, à cet instant, ce drapeau était l'exacte réplique de celui de sa m�
 
 Le drapeau d'un milliard d'âmes était utilisé par Wang Lin pour la première fois.
 
-À ce moment précis, aux confins du Clan Ju Mo, la femme en robe violette qui observait la scène fronça soudainement les sourcils. « Du Tian m'a expulsée de la Secte Lian Hun pour pouvoir transmettre le drapeau d'un milliard d'âmes à Wang Lin. Bien qu'il ne s'agisse que d'une illusion, ce n'est pas une chose à laquelle l'ancêtre du Clan Ju Mo peut résister. »
+À ce moment précis, aux confins du Clan Ju Mo, la femme en robe violette qui observait la scène fronça soudainement les sourcils. « Dun Tian m'a expulsée de la Secte Lian Hun pour pouvoir transmettre le drapeau d'un milliard d'âmes à Wang Lin. Bien qu'il ne s'agisse que d'une illusion, ce n'est pas une chose à laquelle l'ancêtre du Clan Ju Mo peut résister. »
 
 La femme en robe violette soupira. Elle observait Wang Lin depuis longtemps sans parvenir à sonder son cœur de Dao. Elle pourrait peut-être y parvenir en utilisant une technique secrète pendant qu'il serait inconscient.
 

@@ -6,21 +6,21 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 155 - After Image Sword Cultivation
 slug: cultivation-de-lepee-par-image-remanente
 ---
-Si cette impasse devait se poursuivre, ce serait une catastrophe pour Jie Donglei. Après tout, la formation ne durerait que deux bâtons d'encens, et la moitié du temps s'était déjà écoulée. Il réfléchit intensément à la marche à suivre.
+Si cette impasse devait se poursuivre, ce serait une catastrophe pour Xie Donglai. Après tout, la formation ne durerait que deux bâtons d'encens, et la moitié du temps s'était déjà écoulée. Il réfléchit intensément à la marche à suivre.
 
 À l'origine, il avait prévu d'utiliser les cultivateurs de la Formation du Noyau pour piéger Wang Lin le temps de préparer son attaque. Cependant, au moment crucial, la peur de la mort avait submergé ces anciens, les forçant à battre en retraite. Sa seule option était désormais d'agir seul, mais il n'avait pas prévu que Wang Lin serait capable de percer les failles de la formation.
 
 Maintenant qu'il était engagé dans cette voie sans retour, il fixa silencieusement Wang Lin du regard.
 
-Wang Lin le dévisagea, puis saisit Li Muwan et recula de cent pieds supplémentaires. L'expression moqueuse sur son visage s'intensifia. Jie Donglei laissa échapper un soupir. Il remonta sur la tête du dragon et déclara: « Laisse tomber. Ce vieil homme admet sa défaite. » Sur ces mots, il frappa légèrement du pied la tête du dragon, et toute l'énergie spirituelle de son corps reflua rapidement dans la créature.
+Wang Lin le dévisagea, puis saisit Li Muwan et recula de cent pieds supplémentaires. L'expression moqueuse sur son visage s'intensifia. Xie Donglai laissa échapper un soupir. Il remonta sur la tête du dragon et déclara: « Laisse tomber. Ce vieil homme admet sa défaite. » Sur ces mots, il frappa légèrement du pied la tête du dragon, et toute l'énergie spirituelle de son corps reflua rapidement dans la créature.
 
-La lumière sombre au fond des yeux du dragon s'intensifia, et un épais anneau d'énergie spirituelle se propagea rapidement de la tête vers le bas. Le corps de Jie Donglei trembla à mesure que l'énergie s'écoulait, et une expression de douleur marqua ses traits.
+La lumière sombre au fond des yeux du dragon s'intensifia, et un épais anneau d'énergie spirituelle se propagea rapidement de la tête vers le bas. Le corps de Xie Donglai trembla à mesure que l'énergie s'écoulait, et une expression de douleur marqua ses traits.
 
 Peu à peu, sa souffrance s'accentua et son corps gonflé commença à se rétrécir. À la fin, haletant, il se retrouva à demi agenouillé sur la tête du dragon. Il semblait avoir vieilli de plusieurs décennies d'un coup. Levant la tête, il dit d'une voix faible: « Ce vieil homme admet sa défaite. Désormais, je suis prêt à suivre vos ordres. C'est le commandement du chef de la Secte Dou Xie. » Les mains tremblantes, il sortit un jeton triangulaire rouge-violet de la taille d'une paume et parvint à grand-peine à y insuffler un peu d'énergie spirituelle; le jeton se mit aussitôt à flotter lentement vers l'avant.
 
-Les yeux de Wang Lin scintillèrent. Il regarda Jie Donglei, puis le jeton, et soudain ses pupilles se contractèrent; sans un mot, il tira Li Muwan en arrière de plusieurs dizaines de pieds.
+Les yeux de Wang Lin scintillèrent. Il regarda Xie Donglai, puis le jeton, et soudain ses pupilles se contractèrent; sans un mot, il tira Li Muwan en arrière de plusieurs dizaines de pieds.
 
-À l'instant même où Wang Lin reculait, une image rémanente de Jie Donglei apparut juste devant lui, se transforma tout entière en un rayon d'énergie d'épée et fonça sur lui à une vitesse extrême.
+À l'instant même où Wang Lin reculait, une image rémanente de Xie Donglai apparut juste devant lui, se transforma tout entière en un rayon d'énergie d'épée et fonça sur lui à une vitesse extrême.
 
 La vitesse de Wang Lin était impressionnante, mais elle ne pouvait rivaliser avec celle d'une épée volante. Lorsqu'il eut reculé de trois cents pieds, l'épée l'avait déjà atteint. Cette arme était fulgurante; elle n'était guère plus lente qu'une épée de cristal utilisant la téléportation.
 
@@ -30,9 +30,9 @@ Le visage de Wang Lin était sombre. L'épée volante de l'ennemi était impossi
 
 L'épée volante trembla un instant avant de se briser net en son centre. Une flamme noire surgit de la cassure et transmuta rapidement l'arme entière en poussière.
 
-Dès que le feu noir apparut, Wang Lin lâcha prise et lança un regard glacial à Jie Donglei, qui trônait toujours au sommet de la tête du dragon.
+Dès que le feu noir apparut, Wang Lin lâcha prise et lança un regard glacial à Xie Donglai, qui trônait toujours au sommet de la tête du dragon.
 
-Jie Donglei afficha un regard de regret alors que son corps se changeait en cendres. Cette ultime attaque était son atout ultime, son plus grand secret.
+Xie Donglai afficha un regard de regret alors que son corps se changeait en cendres. Cette ultime attaque était son atout ultime, son plus grand secret.
 
 « C'est... c'était un cultivateur d'épée! » Le visage de Li Muwan était empreint de choc. La scène précédente faisait encore trembler tout son corps.
 
@@ -40,21 +40,21 @@ Dans l'Antiquité, les cultivateurs d'épée étaient nombreux, mais de nos jour
 
 La vitesse et la puissance d'un cultivateur d'épée surpassent celles des cultivateurs ordinaires. Bien qu'il existe de multiples méthodes de culture de l'épée, il faut une technique de rang supérieur et une épée d'une qualité exceptionnelle pour véritablement libérer la puissance terrifiante d'un tel combattant.
 
-La culture de l'épée de Jie Donglei n'était pas exemplaire, tout comme son épée volante. Autrement, avec sa puissance de cultivateur d'épée, il aurait facilement balayé les experts de la ville de Nan Dou au lieu d'être contraint de rester ici.
+La culture de l'épée de Xie Donglai n'était pas exemplaire, tout comme son épée volante. Autrement, avec sa puissance de cultivateur d'épée, il aurait facilement balayé les experts de la ville de Nan Dou au lieu d'être contraint de rester ici.
 
 S'il luttait en duel, son épée était redoutable, mais il ne pouvait pas diviser son attention lors d'un combat de groupe; il n'avait donc eu qu'une seule chance de frapper.
 
-Jie Donglei avait sacrifié son noyau d'épée pour ce coup final. On pouvait considérer cela comme son propre noyau doré. C'était censé être une attaque surprise dévastatrice, mais hélas, elle avait échoué.
+Xie Donglai avait sacrifié son noyau d'épée pour ce coup final. On pouvait considérer cela comme son propre noyau doré. C'était censé être une attaque surprise dévastatrice, mais hélas, elle avait échoué.
 
-Avec la mort de Jie Donglei, Mu Nan et Mu Bei furent les plus ravis. Réalisant promptement la situation, ils s'agenouillèrent devant Wang Lin: « Félicitations, chef de secte! »
+Avec la mort de Xie Donglai, Mu Nan et Mu Bei furent les plus ravis. Réalisant promptement la situation, ils s'agenouillèrent devant Wang Lin: « Félicitations, chef de secte! »
 
 Shang Guanmo maudit intérieurement ces deux frères pour leur impudence, mais il s'élança rapidement vers Wang Lin pour s'incliner: « Félicitations, Maître, pour votre accession au rang de chef de la Secte Dou Xie. »
 
 Les dix anciens de la Secte Dou Xie qui formaient la formation d'épée rengainèrent leurs armes. Un malaise pesait sur eux. Après un court instant de réflexion, ils s'inclinèrent tous devant Wang Lin. Leur intention était limpide.
 
-Quant aux dizaines de milliers de disciples de la formation du dragon, la majeure partie de leur énergie spirituelle avait été consumée par Jie Donglei. Ils luttaient pour se tenir debout tout en regardant le mot « Punir » d'un rouge sanglant et accueillaient Wang Lin à grands cris.
+Quant aux dizaines de milliers de disciples de la formation du dragon, la majeure partie de leur énergie spirituelle avait été consumée par Xie Donglai. Ils luttaient pour se tenir debout tout en regardant le mot « Punir » d'un rouge sanglant et accueillaient Wang Lin à grands cris.
 
-Wang Lin ne ressentit aucune joie face au trépas de Jie Donglei. Au contraire, il éprouva un sentiment d'impuissance. Dans le monde de la culture, il n'y a ni bien ni mal; seule règne la loi de la jungle. Pour survivre, il devait anéantir tout ce qui menaçait son existence. Il imaginait que s'il n'était pas venu ici en personne, il aurait dû faire face aux représailles incessantes de la Secte Dou Xie.
+Wang Lin ne ressentit aucune joie face au trépas de Xie Donglai. Au contraire, il éprouva un sentiment d'impuissance. Dans le monde de la culture, il n'y a ni bien ni mal; seule règne la loi de la jungle. Pour survivre, il devait anéantir tout ce qui menaçait son existence. Il imaginait que s'il n'était pas venu ici en personne, il aurait dû faire face aux représailles incessantes de la Secte Dou Xie.
 
 Pour se protéger, il devait faire comprendre à tous qu'il était un être avec lequel on ne jouait pas et que toute provocation entraînerait des conséquences funestes. La première démonstration de puissance de Wang Lin dans la Mer Xiu Mo s'achevait ainsi.
 
@@ -68,7 +68,7 @@ Shang Guanmo fut stupéfait. Il s'apprêtait à répliquer, mais face à la froi
 
 « Préparez-moi une chambre. Je vais entrer en culture de méditation intensive. » Wang Lin saisit Li Muwan et s'envola vers la Secte Dou Xie.
 
-La chambre fut rapidement préparée. Il s'agissait du lieu de retraite que Jie Donglei s'était fait construire, situé dans la tête du dragon. Wang Lin s'assit en tailleur et regarda Li Muwan, dont l'expression était complexe, puis dit: « Une fois ma méditation terminée, je te ramènerai chez toi. D'ici là, tu es libre de faire ce que tu souhaites. » Sur ces mots, il ferma les yeux pour se plonger dans sa culture.
+La chambre fut rapidement préparée. Il s'agissait du lieu de retraite que Xie Donglai s'était fait construire, situé dans la tête du dragon. Wang Lin s'assit en tailleur et regarda Li Muwan, dont l'expression était complexe, puis dit: « Une fois ma méditation terminée, je te ramènerai chez toi. D'ici là, tu es libre de faire ce que tu souhaites. » Sur ces mots, il ferma les yeux pour se plonger dans sa culture.
 
 Li Muwan fixa Wang Lin. Après un long silence, elle murmura: « Merci... » Le cœur serré par l'émotion, elle se détourna et partit.
 

@@ -82,7 +82,7 @@ Peu après, le brouillard disparut totalement et la vallée retrouva son aspect 
 
 Elle se leva, observa les taches rouges sur l'autel et commença à réfléchir.
 
-« Je n'arrive pas à croire que la dernière illusion du Domaine de la Cruauté des Mille Illusions soit celle-ci. À l'instant où elle apparaît, le domaine devient le Domaine Qian Huan Qing Yu. Tout cela ressemble à un songe, et pourtant c'est si réel. Je n'aurais jamais pensé que la dernière illusion de mon domaine s'obtiendrait ainsi... Le Maître voulait que je laisse ma marque dans le cœur taoïste de Wang Lin, mais il n'aurait jamais imaginé que ma dernière illusion contiendrait son aura... »
+« Je n'arrive pas à croire que la dernière illusion du Domaine de la Cruauté des Mille Illusions soit celle-ci. À l'instant où elle apparaît, le domaine devient le Domaine Qian Huan Qing Yu. Tout cela ressemble à un songe, et pourtant c'est si réel. Je n'aurais jamais pensé que la dernière illusion de mon domaine s'obtiendrait ainsi... Le Maître voulait que je laisse ma marque dans le cœur du Dao de Wang Lin, mais il n'aurait jamais imaginé que ma dernière illusion contiendrait son aura... »
 
 Les sourcils de Liu Mei se froncèrent intensément alors qu'elle regardait au loin, avant de laisser échapper un soupir. Elle éprouvait des sentiments complexes et, à cet instant, se sentit soudainement perdue. Tout ce qui venait de se produire dépassait toutes ses attentes.
 
@@ -96,7 +96,7 @@ L'Âme Naissante de Li Muwan se rétablissait lentement à l'intérieur de la pe
 
 Wang Lin réfléchit un instant avant de disparaître pour s'envoler rapidement au loin.
 
-La section intérieure du Tombeau Zhu Que différait également de ce que Situ Nan lui avait décrit. Ce dernier lui avait dit que l'intérieur n'était pas vaste et qu'une montagne trônait en son centre. Le premier Suzaku avait laissé le Tao du Sceau Suzaku dans cette montagne, qui était aussi le lieu où reposait son cadavre. Chaque Suzaku cultivait ici durant plusieurs mois pour obtenir l'héritage du sceau.
+La section intérieure du Tombeau Zhu Que différait également de ce que Situ Nan lui avait décrit. Ce dernier lui avait dit que l'intérieur n'était pas vaste et qu'une montagne trônait en son centre. Le premier Suzaku avait laissé le Dao du Sceau Suzaku dans cette montagne, qui était aussi le lieu où reposait son cadavre. Chaque Suzaku cultivait ici durant plusieurs mois pour obtenir l'héritage du sceau.
 
 Le Sens Divin de Wang Lin se déploya pour balayer la zone. L'endroit était trop vaste pour qu'il puisse le couvrir entièrement, mais il détecta de multiples présences puissantes. Dès qu'elles remarquèrent sa présence, ces entités libérèrent leur aura, comme pour le provoquer.
 

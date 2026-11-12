@@ -36,23 +36,23 @@ Li Qingping, plongé dans sa culture, ne détecta absolument pas le Sens Divin d
 
 Cependant, ce que ces yeux révélaient n'était point le calme ou la froideur habituels; ils étaient empreints d'effroi et de terreur.
 
-« Aîné... » La silhouette trembla et s'apprêta à parler.
+« Senior... » La silhouette trembla et s'apprêta à parler.
 
 « Tu es un petit être intéressant pour être capable de détecter mon arrivée avec seulement un stade intermédiaire de la Formation de l'Âme! » La voix de Wang Lin résonna dans les oreilles du brouillard noir.
 
 Le brouillard noir se mit à trembler davantage. Lorsque le Sens Divin de Wang Lin l'effleura, il ressentit un vent glacial, au point que son âme originelle devint instable, menaçant de s'effondrer. Ce genre de sensation ne lui arrivait que lorsqu'il affrontait les Anciens de sa propre secte.
 
-La silhouette noire dit rapidement d'une voix tremblante: « Veuillez avoir pitié, Aîné. Si le disciple a pu remarquer votre présence, c'est parce que sa méthode de culture est liée au Sens Divin; il n'a donc fait qu'effleurer votre arrivée. »
+La silhouette noire dit rapidement d'une voix tremblante: « Veuillez avoir pitié, Senior. Si le disciple a pu remarquer votre présence, c'est parce que sa méthode de culture est liée au Sens Divin; il n'a donc fait qu'effleurer votre arrivée. »
 
-Il savait qu'avec le niveau de culture de cet aîné, même s'il possédait un corps, celui-ci pourrait l'éliminer sans le moindre effort. Il devinait que cet individu était un vieux monstre du stade de la Transformation de l'Âme.
+Il savait qu'avec le niveau de culture de ce Senior, même s'il possédait un corps, celui-ci pourrait l'éliminer sans le moindre effort. Il devinait que cet individu était un vieux monstre du stade de la Transformation de l'Âme.
 
 « Oh? De quelle secte viens-tu? » lança Wang Lin par message de Sens Divin.
 
-« Aîné, je ne suis pas originaire de la planète Suzaku, mais un disciple de la Secte Mile sur la planète Tian Yun. Le disciple a perdu son corps et a dépensé d'immenses ressources pour en acheter un auprès de la Secte Shi Yin », répondit promptement le brouillard noir, n'osant mentir sur quoi que ce soit.
+« Senior, je ne suis pas originaire de la planète Suzaku, mais un disciple de la Secte Mile sur la planète Tian Yun. Le disciple a perdu son corps et a dépensé d'immenses ressources pour en acheter un auprès de la Secte Shi Yin », répondit promptement le brouillard noir, n'osant mentir sur quoi que ce soit.
 
 « Si tu es de la planète Tian Yun, pourquoi es-tu sur la planète Suzaku? » Le Sens Divin de Wang Lin était glacial.
 
-La perception sensorielle du brouillard noir était excellente, et il décela immédiatement la froideur dans le message de Wang Lin. Son corps trembla et il répondit précipitamment: « Aîné, ne soyez pas en colère, je vous en prie! Si je devais récupérer sur la planète Tian Yun, cela coûterait trop cher. Le disciple n'a pas les moyens de payer autant de jades célestes. Je n'ai donc pu que choisir de récupérer sur la planète Suzaku. Bien que la possession du corps prenne plus de temps, c'est le meilleur choix pour moi. »
+La perception sensorielle du brouillard noir était excellente, et il décela immédiatement la froideur dans le message de Wang Lin. Son corps trembla et il répondit précipitamment: « Senior, ne soyez pas en colère, je vous en prie! Si je devais récupérer sur la planète Tian Yun, cela coûterait trop cher. Le disciple n'a pas les moyens de payer autant de jades célestes. Je n'ai donc pu que choisir de récupérer sur la planète Suzaku. Bien que la possession du corps prenne plus de temps, c'est le meilleur choix pour moi. »
 
 Wang Lin demanda: « Quel est ton nom? »
 
@@ -70,17 +70,17 @@ Ce simple regard fit trembler le corps du maître de la secte, qui fut soudain c
 
 Wang Lin dit froidement: « Toi, tais-toi! » Puis il tourna son regard vers le brouillard noir qui se recroquevillait dans un coin de la grotte.
 
-Li Qingping prit une inspiration saccadée. Il n'osait plus bouger d'un pouce, le front trempé de sueur. Même lorsqu'il rencontrait des aînés au stade de la Formation de l'Âme au quartier général, aucun ne possédait ne serait-ce le dix-millième de l'aura de cet individu.
+Li Qingping prit une inspiration saccadée. Il n'osait plus bouger d'un pouce, le front trempé de sueur. Même lorsqu'il rencontrait des Seniors au stade de la Formation de l'Âme au quartier général, aucun ne possédait ne serait-ce le dix-millième de l'aura de cet individu.
 
 Le cœur de Li Qingping battait à tout rompre tandis qu'il pensait amèrement: « Transformation de l'Âme!!! C'est un vieux monstre de la Transformation de l'Âme!! Que vient faire ce monstre ici... »
 
-La main droite de Wang Lin s'étira et l'âme originelle de Cao Yidou fut arrachée du coin de la grotte. Le visage de ce dernier était déformé par la panique alors qu'il hurlait: « Aîné, je suis un client de la Secte Shi Yin! Si vous me capturez pour me raffiner en trésor, la Secte Shi Yin ne vous lâchera jamais! »
+La main droite de Wang Lin s'étira et l'âme originelle de Cao Yidou fut arrachée du coin de la grotte. Le visage de ce dernier était déformé par la panique alors qu'il hurlait: « Senior, je suis un client de la Secte Shi Yin! Si vous me capturez pour me raffiner en trésor, la Secte Shi Yin ne vous lâchera jamais! »
 
 Wang Lin ricana et répondit calmement: « Qui a dit que j'allais te raffiner en trésor? Tu n'en vaux même pas la peine! »
 
 Cao Yidou frissonna. Il se disait que si un cultivateur de la Transformation de l'Âme voulait capturer l'âme d'un cultivateur de la Formation de l'Âme, ce serait d'une facilité déconcertante; il n'aurait aucune raison de venir le chercher lui.
 
-Réprimant sa peur, Cao Yidou demanda avec prudence: « Aîné, vous... voudriez-vous que je fasse quelque chose? »
+Réprimant sa peur, Cao Yidou demanda avec prudence: « Senior, vous... voudriez-vous que je fasse quelque chose? »
 
 La voix de Wang Lin ne trahissait aucune arrogance lorsqu'il dit calmement: « Deviens mon esclave pendant cent ans. Après ces cent ans, je t'offrirai un corps de la Transformation de l'Âme. Acceptes-tu? »
 
@@ -88,7 +88,7 @@ Cao Yidou fut stupéfait. Un corps de la Transformation de l'Âme était une cho
 
 Au sein de la Secte Shi Yin, le coût d'un cadavre de la Transformation de l'Âme était inimaginable. Même en utilisant toute sa longévité, il lui aurait fallu plus de mille ans pour acheter ne serait-ce que la moitié d'un tel corps.
 
-Il serra les dents. « Aîné, vous devez me promettre que je ne mourrai pas durant ces cent ans! »
+Il serra les dents. « Senior, vous devez me promettre que je ne mourrai pas durant ces cent ans! »
 
 Wang Lin répondit avec calme: « Tant que je ne meurs pas, tu ne mourras pas! »
 

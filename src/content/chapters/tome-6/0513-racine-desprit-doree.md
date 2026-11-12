@@ -60,7 +60,7 @@ Il ne fallut pas longtemps pour que tous les pétales dorés tombent. Cependant,
 
 Après les pétales vinrent les Fruits d'Or Brillants. Ils fondirent également en gouttes de liquide doré qui s'imprégnèrent dans la terre.
 
-Enfin, ce furent les tiges. Tout ce processus dura la moitié d'un bâtonnet d'encens. Passé ce délai, il ne restait plus rien au sol.
+Enfin, ce furent les tiges. Tout ce processus dura un demi-bâton d'encens. Passé ce délai, il ne restait plus rien au sol.
 
 Le moustique poussa un cri de détresse. Sa tête s'affaissa et il commença à errer tristement dans les airs.
 
@@ -118,6 +118,6 @@ Qian Qin resta là un long moment avant de ranger le filament. Elle alla auprès
 
 Le corps de Wang Lin se déplaçait comme l'éclair. Il ne lui fallut pas longtemps pour franchir une chaîne de montagnes et pénétrer dans les profondeurs de cette terre.
 
-C'est là que le petit Ancien de la Secte Da Luo Jian était assis en position du lotus sur un arbre gigantesque, le visage extrêmement pâle. À environ trois centimètres de ses sourcils flottait une lame en croissant de lune.
+C'est là que le petit Ancien de la Secte Da Luo Jian était assis en position du lotus sur un arbre gigantesque, le visage extrêmement pâle. À environ un pouce de ses sourcils flottait une lame en croissant de lune.
 
-À environ trois centimètres au-dessus de sa tête, l'épée céleste dérivait également. Bien qu'immobile, elle dégageait une puissante énergie d'épée.
+À environ un pouce au-dessus de sa tête, l'épée céleste dérivait également. Bien qu'immobile, elle dégageait une puissante énergie d'épée.

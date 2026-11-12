@@ -52,13 +52,13 @@ Li Muwan prit le fourneau. Après l'avoir observé un moment, elle leva la tête
 
 Une fois les objets reçus, Wang Lin les rangea dans son sac. Il regarda ensuite Li Muwan et joignit ses mains. « Il y a quatre ans, je t'avais promis d'assurer ta sécurité. Maintenant que j'y suis parvenu, nous ne nous devons plus rien. Adieu! »
 
-Alors que Wang Lin s'apprêtait à partir, Li Muwan cria soudainement: « Frère aîné, ceci est mon cadeau pour vous! » Elle sortit un jade blanc et le lança vers lui. Puis, sans se retourner, elle s'envola en direction de l'Union de Huo Fen.
+Alors que Wang Lin s'apprêtait à partir, Li Muwan cria soudainement: « Senior frère, ceci est mon cadeau pour vous! » Elle sortit un jade blanc et le lança vers lui. Puis, sans se retourner, elle s'envola en direction de l'Union de Huo Fen.
 
 Wang Lin rattrapa le jade et l'examina. Le message que Li Muwan y avait laissé résonna dans ses oreilles:
 
-« Frère aîné, Wan Er ne connaît pas votre nom car vous ne me l'avez jamais dit durant ces quatre années. Je crois que vous ignorez le mien également... Wan Er vous remercie pour les nombreuses fois où vous m'avez sauvé la vie. Le temps passé dans la Mer Xiu Mo est une chose que je n'oublierai jamais... Puisque notre séparation est inévitable, et sachant que le frère aîné se retire souvent en culture fermée, Wan Er vous offre ce jade. Il est l'apogée de mes compétences en formations. Il contient la Grande Formation du Dragon de Bataille de la Secte Dou Xie, avec de légères modifications raffinées. »
+« Senior frère, Wan Er ne connaît pas votre nom car vous ne me l'avez jamais dit durant ces quatre années. Je crois que vous ignorez le mien également... Wan Er vous remercie pour les nombreuses fois où vous m'avez sauvé la vie. Le temps passé dans la Mer Xiu Mo est une chose que je n'oublierai jamais... Puisque notre séparation est inévitable, et sachant que Senior frère se retire souvent en culture fermée, Wan Er vous offre ce jade. Il est l'apogée de mes compétences en formations. Il contient la Grande Formation du Dragon de Bataille de la Secte Dou Xie, avec de légères modifications raffinées. »
 
-« Cette formation fusionne attaque et défense, mais par rapport à l'attaque, la défense en est le véritable dessein. Si elle peut protéger le frère aîné une ou deux fois face au danger, alors Wan Er sera satisfaite... »
+« Cette formation fusionne attaque et défense, mais par rapport à l'attaque, la défense en est le véritable dessein. Si elle peut protéger Senior frère une ou deux fois face au danger, alors Wan Er sera satisfaite... »
 
 Tenant le jade, écoutant les paroles de Li Muwan et regardant sa silhouette s'effacer au loin, Wang Lin resta silencieux. Il rangea le jade, puis son corps toucha soudainement le sol. Après un seul pas, il disparut. S'étant éloigné, il se toucha le front et son corps s'évanouit dans un éclat de lumière sous terre.
 

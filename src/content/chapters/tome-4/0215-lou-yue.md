@@ -26,7 +26,7 @@ Les yeux de Wang Lin s'illuminèrent légèrement. Il ignora les propos de Cheng
 
 Un groupe de grues émergea de la brume. Sept ou huit jeunes filles étaient assises sur les créatures, chacune aussi belle qu'une fleur et dotée de formes graciles; la jeune fille en tête avait un visage légèrement plus beau que celui des autres. Arrivée devant Cheng et Wang, elle cria: « La cour est est une zone interdite! Entrée strictement interdite! »
 
-Une fois ses mots lâchés, elle lança un regard furieux à Cheng Xian et ajouta avec méchanceté: « Cheng Xian, pourquoi es-tu encore ici? Si tu viens encore importuner la sœur Tong, ne me reproche pas d'être impitoyable! »
+Une fois ses mots lâchés, elle lança un regard furieux à Cheng Xian et ajouta avec méchanceté: « Cheng Xian, pourquoi es-tu encore ici? Si tu viens encore importuner la Senior sœur Tong, ne me reproche pas d'être impitoyable! »
 
 Cheng Xian fit une moue. Tout en caressant le pelage du singe spirituel, il dit: « Cheng Ling, nous venons du même village, pourquoi agir ainsi? Je t'ai même tenu dans mes bras quand tu étais bébé. T'en souviens-tu? Moi, je me rappelle encore la fois où je te tenais et que tu as fait pipi sur moi. »
 
@@ -66,13 +66,13 @@ Le singe né des effluves du chaudron tourna soudainement la tête et regarda Wa
 
 « N'attaquez pas! Je ne suis pas venu pour me battre, mais pour accompagner ce compagnon dans sa recherche », dit Cheng Xian d'un air amer. Il pensait qu'il n'arriverait jamais à pénétrer dans la cour. C'était de sa faute: s'il n'avait pas offensé cette fille, Cheng Ling, il n'en serait pas là.
 
-« Chercher qui? Ce n'est pas la sœur aînée Tong, j'espère?! » Cheng Ling prit une pilule dans son sac de rangement et l'avala. Son visage retrouva son aspect normal; elle regarda Wang Lin et dit froidement, avec un profond dégoût dans le regard.
+« Chercher qui? Ce n'est pas la Senior sœur Tong, j'espère?! » Cheng Ling prit une pilule dans son sac de rangement et l'avala. Son visage retrouva son aspect normal; elle regarda Wang Lin et dit froidement, avec un profond dégoût dans le regard.
 
-Wang Lin resta impassible face à la jeune fille. Il dit simplement: « La personne que je cherche n'est pas la sœur aînée Tong. »
+Wang Lin resta impassible face à la jeune fille. Il dit simplement: « La personne que je cherche n'est pas la Senior sœur Tong. »
 
 Cheng Xian enchaîna rapidement: « La personne qu'il cherche, c'est Luo Yue. »
 
-La jeune fille, Cheng Ling, fronça les sourcils et demanda d'un ton féroce: « Et pourquoi cherchez-vous la junior sœur Luo Yue? »
+La jeune fille, Cheng Ling, fronça les sourcils et demanda d'un ton féroce: « Et pourquoi cherchez-vous la Junior sœur Luo Yue? »
 
 Wang Lin eut un petit rire et répliqua: « Qu'est-ce que ça peut vous faire? »
 
@@ -94,13 +94,13 @@ En approchant, elle sauta de la grue et demanda à Wang Lin: « Vous êtes venu 
 
 Cheng Ling fronça les sourcils: « Junior sœur Yue, vous connaissez cet homme? »
 
-Luo Yue se retourna rapidement: « Je le connais, sœur aînée. Il a rejoint la secte en même temps que moi. »
+Luo Yue se retourna rapidement: « Je le connais, Senior sœur. Il a rejoint la secte en même temps que moi. »
 
 Cheng Ling observa Wang Lin un instant, puis lança un regard d'avertissement à Cheng Xian avant de partir avec les autres, si bien qu'il ne resta plus que les trois sur le sol.
 
 Luo Yue cligna des yeux, ignora totalement Cheng Xian et demanda à Wang Lin: « Comment connaissez-vous mon nom? »
 
-Wang Lin réfléchit un instant et dit d'un ton neutre: « Si cela ne vous dérange pas, je vous prie de conduire cet homme dans la cour est. S'il peut voir la sœur aînée Tong, ce serait l'idéal. Sinon, tant pis. »
+Wang Lin réfléchit un instant et dit d'un ton neutre: « Si cela ne vous dérange pas, je vous prie de conduire cet homme dans la cour est. S'il peut voir la Senior sœur Tong, ce serait l'idéal. Sinon, tant pis. »
 
 Sur ces mots, il partit sans même se retourner, laissant Luo Yue et Cheng Xian stupéfaits. Ils restèrent là un long moment, incapables de trouver leurs mots.
 
@@ -108,7 +108,7 @@ Luo Yue frappa le sol du pied en criant: « Quoi?! Il m'a fait sortir juste pour
 
 Cheng Xian soupira intérieurement, pensant que le frère Wang Lin était un véritable maître: face à une fille aussi ravissante, il restait de marbre. Cheng Xian eut l'impression qu'il n'atteindrait jamais un tel degré de maîtrise de soi.
 
-Il prit une grande inspiration et dit: « Yue Yue, junior sœur... enfin, sœur aînée, auriez-vous un moment, vous qui êtes si vénérable? Je suis un très bon ami du frère Wang Lin. Il m'est redevable de m'être bien occupé de lui lors de son entrée dans la secte; voudriez-vous donc nous rendre un petit service, comme il vient de le dire? »
+Il prit une grande inspiration et dit: « Yue Yue, Junior sœur... enfin, Senior sœur, auriez-vous un moment, vous qui êtes si vénérable? Je suis un très bon ami du frère Wang Lin. Il m'est redevable de m'être bien occupé de lui lors de son entrée dans la secte; voudriez-vous donc nous rendre un petit service, comme il vient de le dire? »
 
 Luo Yue lança un regard mécontent à Cheng Xian: « C'est toi, le vénérable, hmph. » Elle fusilla du regard la direction où Wang Lin avait disparu. Après avoir marmonné quelques mots, elle se retourna et agita la clochette à son poignet. Une grue vola jusqu'à elle depuis les airs et se posa à ses côtés. D'un léger bond, elle monta sur la grue qui s'éleva dans les airs.
 
@@ -154,7 +154,7 @@ Les pilules d'Établissement des Fondations étant trop rares et aucun cultivate
 
 À présent, son avatar se trouvait de nouveau à ce stade, mais cette fois il n'avait besoin ni de la technique de vol des fondations, ni de l'aide d'un cultivateur de l'Âme Naissante, car il maîtrisait désormais l'alchimie. Cependant, la recette de la pilule d'Établissement des Fondations n'était pas facile à obtenir. Normalement, le maître la raffine puis l'offre à son disciple, mais Zhou Lin était toujours en isolement. Il n'aurait jamais imaginé que Wang Lin, en moins de six mois, passerait d'un débutant tout juste entré au 3e niveau de la Condensation de Qi à la grande perfection de ce stade, le 15e niveau.
 
-Assis dans sa cour, Wang Lin réfléchissait. Il agita la main et sortit le jade de transmission vocale de Cheng Xian. Ces derniers mois, Cheng Xian lui rendait souvent visite pour bavarder. Selon lui, ce jour-là, grâce à la guidance discrète de Luo Yue, il avait enfin pu revoir la sœur aînée Tong et ils s'entendaient à merveille.
+Assis dans sa cour, Wang Lin réfléchissait. Il agita la main et sortit le jade de transmission vocale de Cheng Xian. Ces derniers mois, Cheng Xian lui rendait souvent visite pour bavarder. Selon lui, ce jour-là, grâce à la guidance discrète de Luo Yue, il avait enfin pu revoir la Senior sœur Tong et ils s'entendaient à merveille.
 
 Wang Lin plongea son sens divin dans le jade de transmission vocale et y laissa un message, puis le lança, et le jade s'envola au loin. Sans aucune hâte, il s'assit pour attendre Cheng Xian.
 
@@ -166,7 +166,7 @@ Cheng Xian fut surpris: « La pilule d'Établissement des Fondations est une pil
 
 Wang Lin fronça légèrement les sourcils. Il soupira intérieurement, pensant qu'il devrait retourner chercher Li Muwan.
 
-« Mais puisque le frère le demande, je vais essayer de t'aider. Je ne l'ai pas, mais mon maître doit certainement la posséder. Donne-moi trois jours. Je serai capable de la lui voler en trois jours! » Cheng Xian afficha un sourire fier avant de discuter un peu avec Wang Lin. Il regarda le ciel et ajouta: « Aujourd'hui, la sœur aînée Tong a organisé un rendez-vous avec moi à l'extérieur, je n'aurai pas le temps de rester. Quant à la pilule d'Établissement des Fondations, ne t'inquiète pas, je m'en occupe! » Il repartit en hâte, très excité, sur son singe spirituel qui n'y mettait guère du sien.
+« Mais puisque le frère le demande, je vais essayer de t'aider. Je ne l'ai pas, mais mon maître doit certainement la posséder. Donne-moi trois jours. Je serai capable de la lui voler en trois jours! » Cheng Xian afficha un sourire fier avant de discuter un peu avec Wang Lin. Il regarda le ciel et ajouta: « Aujourd'hui, la Senior sœur Tong a organisé un rendez-vous avec moi à l'extérieur, je n'aurai pas le temps de rester. Quant à la pilule d'Établissement des Fondations, ne t'inquiète pas, je m'en occupe! » Il repartit en hâte, très excité, sur son singe spirituel qui n'y mettait guère du sien.
 
 Il ne fallut pas trois jours: le lendemain à midi, Cheng Xian ne vint pas lui-même; ce fut le plus grand des deux singes spirituels qui rugit quelques fois devant la cour de Wang Lin, jeta un jade et repartit.
 

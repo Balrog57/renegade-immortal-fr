@@ -28,7 +28,7 @@ Il y avait aussi cet incident au bord de la rivière. En y repensant, Zhang Kuan
 
 Ce n'est pas qu'il ne se demandait pas comment Wang Lin était devenu si fort, mais face au niveau de culture actuel de ce dernier, il s'interrompit aussitôt. Il sentait que s'il continuait à chercher la réponse, il mettrait sa propre vie en péril.
 
-Le frère Zhang, qui avait toujours réprimandé Wang Lin pour qu'il s'entraîne plus dur, se sentait profondément perplexe. Il regarda Wang Lin sur l'estrade et songea avec mélancolie: « Ce Wang Lin est un jeune homme que j'ai personnellement ramené de la grande demeure de la famille Wang. C'était clairement un adolescent ordinaire. Quand il a tenté de se suicider, c'est moi qui l'ai sauvé. Cinq ans ont passé, et tant de choses ont changé. Il est désormais le plus grand expert parmi les disciples internes de la Secte Heng Yue. Le destin est vraiment étrange, chacun suit un chemin différent! Moi qui ai cultivé avec acharnement pendant plus de dix ans, je n'ai atteint que le 6ème niveau. »
+Le Senior frère Zhang, qui avait toujours réprimandé Wang Lin pour qu'il s'entraîne plus dur, se sentait profondément perplexe. Il regarda Wang Lin sur l'estrade et songea avec mélancolie: « Ce Wang Lin est un jeune homme que j'ai personnellement ramené de la grande demeure de la famille Wang. C'était clairement un adolescent ordinaire. Quand il a tenté de se suicider, c'est moi qui l'ai sauvé. Cinq ans ont passé, et tant de choses ont changé. Il est désormais le plus grand expert parmi les disciples internes de la Secte Heng Yue. Le destin est vraiment étrange, chacun suit un chemin différent! Moi qui ai cultivé avec acharnement pendant plus de dix ans, je n'ai atteint que le 6ème niveau. »
 
 Si la Secte Xuan Dao avait été surprise auparavant, elle était maintenant sous le choc!
 
@@ -36,15 +36,15 @@ Zhou Peng pouvait expliquer la première fois par une simple négligence, mais l
 
 Cela laissa tous les membres de la Secte Xuan Dao stupéfaits.
 
-Liu Feng en resta la bouche bée et ne retrouva pas ses esprits pendant un long moment. Il était désormais convaincu que Wang Lin était l'atout majeur de la Secte Heng Yue. Il pensa: « Mon frère aîné n'était pas négligent, il était simplement plus faible que Wang Lin. Pourtant, mon frère est déjà au 12ème niveau. Quel niveau de culture Wang Lin a-t-il donc atteint? »
+Liu Feng en resta la bouche bée et ne retrouva pas ses esprits pendant un long moment. Il était désormais convaincu que Wang Lin était l'atout majeur de la Secte Heng Yue. Il pensa: « Mon Senior frère n'était pas négligent, il était simplement plus faible que Wang Lin. Pourtant, mon Senior frère est déjà au 12ème niveau. Quel niveau de culture Wang Lin a-t-il donc atteint? »
 
 Liu Feng murmura d'un ton incrédule: « Pourrait-il avoir déjà atteint l'Établissement des Fondations? »
 
-La disciple nommée Ouyang, qui s'était moquée de Wang Lin auparavant lorsqu'il tentait de nourrir le mille-pattes avec de petits animaux, était elle aussi pétrifiée. Le frère aîné qu'elle admirait tant venait de perdre...
+La disciple nommée Ouyang, qui s'était moquée de Wang Lin auparavant lorsqu'il tentait de nourrir le mille-pattes avec de petits animaux, était elle aussi pétrifiée. Le Senior frère qu'elle admirait tant venait de perdre...
 
 Les yeux de Liu Mei brillèrent d'un éclat nouveau. Elle se sentait encore plus intriguée par Wang Lin. Elle pensa secrètement: « Il possède effectivement de nombreux secrets. Je l'ai remarqué il y a trois jours, lorsqu'il fut le premier à se remettre de ma technique de charme. »
 
-Plusieurs autres disciples restèrent muets. Leur frère aîné était leur héros, un expert; et pourtant, cet expert venait d'être terrassé par quelqu'un d'autre, en un seul mouvement, sans aucune possibilité de riposter. Cela les fit tous douter des techniques enseignées à la Secte Xuan Dao.
+Plusieurs autres disciples restèrent muets. Leur Senior frère était leur héros, un expert; et pourtant, cet expert venait d'être terrassé par quelqu'un d'autre, en un seul mouvement, sans aucune possibilité de riposter. Cela les fit tous douter des techniques enseignées à la Secte Xuan Dao.
 
 L'expression de l'Ancien Ouyang ressemblait à celle de Huang Long lorsque les disciples de la Secte Heng Yue avaient perdu toutes leurs précédentes batailles. Son visage était empreint d'une grande amertume. Il observa Wang Lin intensément et fut choqué. Avec sa culture au 14ème niveau, peu importe comment il scrutait Wang Lin, il ne pouvait y voir qu'un cultivateur au 3ème niveau.
 

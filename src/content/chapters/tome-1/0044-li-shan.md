@@ -50,7 +50,7 @@ Les disciples de la Secte Heng Yue échangèrent quelques mots entre eux. Puis, 
 
 Parmi les disciples internes, certains qui connaissaient l'épée se moquèrent: « Ce n'est qu'une simple épée de fer avec quelques fragments d'or spirituel, et quelqu'un ose essayer de la vendre? On dirait que la Secte Xuan Dao ne vaut pas grand-chose. »
 
-Li Shan répliqua immédiatement: « Ce que ce frère dit est erroné! Mon jeune frère a lui-même dit qu'elle était fausse, et pourtant, quelqu'un de votre Secte Heng Yue l'a quand même achetée. C'est le genre d'objet qu'on achète surtout pour la collection! »
+Li Shan répliqua immédiatement: « Ce que ce frère dit est erroné! Mon Junior frère a lui-même dit qu'elle était fausse, et pourtant, quelqu'un de votre Secte Heng Yue l'a quand même achetée. C'est le genre d'objet qu'on achète surtout pour la collection! »
 
 Le disciple de la Secte Heng Yue qui avait acquis l'épée rit et dit: « Frère Li Shan, tu te trompes. Je ne l'ai pas achetée pour ma collection, mais pour la donner à mon père. Ma famille tue des porcs, cette épée sera donc parfaite pour les abattre! »
 

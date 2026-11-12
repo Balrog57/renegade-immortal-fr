@@ -130,7 +130,7 @@ Après avoir rangé l'objet, il regarda la grotte avec regret. Il en sortit, fit
 
 Wang Lin ne se retourna pas et prit son envol vers l'est.
 
-D'après les souvenirs de Ma Liang, le Sanctuaire du Dieu de la Guerre se situait à l'est. Wang Lin avait pris sa décision. Puisqu'il n'avait pu localiser Zhao dans la mémoire de Ma Liang, il devait aller consulter la carte conservée au Pavillon Cang Hun du Sanctuaire du Dieu de la Guerre.
+D'après les souvenirs de Ma Liang, le Sanctuaire du Dieu de la Guerre se situait à l'est. Wang Lin avait pris sa décision. Puisqu'il n'avait pu localiser Zhao dans la mémoire de Ma Liang, il devait aller consulter la carte conservée au Pavillon Cang Jing du Sanctuaire du Dieu de la Guerre.
 
 Par ailleurs, son épée verte, raffinée avec du sang, n'était plus qu'un simple morceau de métal dont la puissance avait considérablement diminué. Face à des cultivateurs de l'Établissement des Fondations, elle n'était pas nécessaire. Cependant, face à un cultivateur de la Formation du Noyau, contre lequel le Royaume Ji serait sans effet, ce morceau de métal pourrait lui sauver la vie.
 
@@ -184,7 +184,7 @@ Yang Xiong et Zhou Zihong n'allaient pas beaucoup mieux; ils ne faisaient que r�
 
 Wang Lin retira son Sens Divin du Royaume Ji. Ce n'est qu'à ce moment que le sentiment de danger disparut. Les trois poussèrent un soupir de soulagement, puis Yang Xiong et Zhou Zihong s'inclinèrent pour saluer Wang Lin.
 
-En s'inclinant, une trace d'amertume traversa le visage de Yang Xiong tandis qu'il serrait un talisman de jade dans sa main droite. Il était venu avec deux intentions. La première consistait à tromper Wang Lin pour qu'il retourne au Sanctuaire du Dieu de la Guerre afin de demander aux anciens de l'aider à reprendre l'essence de sang de leur âme. La seconde, si Wang Lin refusait de partir, consistait à transmettre secrètement sa position via le talisman de jade. Au Sanctuaire, son jeune frère de discipline possédait un autre talisman de jade; il suffisait d'y injecter une onde d'énergie spirituelle pour que celui de son cadet s'illumine, et celui-ci, suivant ses instructions, le remettrait aussitôt à leur Maître.
+En s'inclinant, une trace d'amertume traversa le visage de Yang Xiong tandis qu'il serrait un talisman de jade dans sa main droite. Il était venu avec deux intentions. La première consistait à tromper Wang Lin pour qu'il retourne au Sanctuaire du Dieu de la Guerre afin de demander aux anciens de l'aider à reprendre l'essence de sang de leur âme. La seconde, si Wang Lin refusait de partir, consistait à transmettre secrètement sa position via le talisman de jade. Au Sanctuaire, son Junior frère possédait un autre talisman de jade; il suffisait d'y injecter une onde d'énergie spirituelle pour que celui de son cadet s'illumine, et celui-ci, suivant ses instructions, le remettrait aussitôt à leur Maître.
 
 Mais il venait de comprendre à quel point son idée était stupide. S'il avait agi ainsi, il aurait été le premier à mourir.
 
@@ -194,7 +194,7 @@ Yang Xiong soupira intérieurement et renonça à toute idée de résistance. Il
 
 Après avoir reçu le jade, Wang Lin l'examina avec son Sens Divin. Sans changer d'expression, il hocha la tête, puis son regard se posa sur Lin Tao.
 
-Le cœur de Lin Tao s'emballa et il murmura: « Maître, cette carte est placée au sommet du Pavillon Cang Hun. Je... je ne peux pas y accéder car mon niveau de culture n'est pas assez élevé. »
+Le cœur de Lin Tao s'emballa et il murmura: « Maître, cette carte est placée au sommet du Pavillon Cang Jing. Je... je ne peux pas y accéder car mon niveau de culture n'est pas assez élevé. »
 
 Voyant le visage impassible de Wang Lin, Lin Tao serra les dents: « Dix jours! Maître, donnez-moi juste dix jours. Dans dix jours, ce sera le tour de mon cousin de prendre son service. Je ferai en sorte, quoi qu'il arrive, qu'il m'en fasse une copie! »
 

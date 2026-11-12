@@ -48,9 +48,9 @@ Wang Lin s'approcha et s'agenouilla devant elle, le regard empreint de nostalgie
 
 « Toi... comment as-tu pu être aussi impitoyable? Tu n'es pas revenu nous voir durant ces cinq ans. Existons-nous encore dans ton cœur? Pendant toutes ces années, ton père et moi avons sans cesse pensé à toi... » En continuant de parler, elle finit par serrer Tie Zhu contre elle en pleurant.
 
-Le père de Tie Zhu lança un regard à sa femme, puis déclara: « Raisonnement de femme! Notre enfant est un immortel, il doit se consacrer à des desseins plus importants. Regarde comment tu te comportes, on va finir par se moquer de nous au village. Petit Six, tu peux rentrer chez toi. Ne reviens pas avant quelques jours. Je t'appellerai quand Tie Zhu repartira. »
+Le père de Tie Zhu lança un regard à sa femme, puis déclara: « Raisonnement de femme! Notre enfant est un immortel, il doit se consacrer à des desseins plus importants. Regarde comment tu te comportes, on va finir par se moquer de nous au village. Xiao Liu, tu peux rentrer chez toi. Ne reviens pas avant quelques jours. Je t'appellerai quand Tie Zhu repartira. »
 
-Petit Six sourit, répondit promptement et partit après avoir lancé un regard admiratif à Wang Lin.
+Xiao Liu sourit, répondit promptement et partit après avoir lancé un regard admiratif à Wang Lin.
 
 Ce soir-là, la mère de Wang Lin prépara une multitude de mets délicieux. Tous étaient les plats préférés de son fils. Ils mangèrent en discutant des changements survenus au cours des cinq dernières années.
 
@@ -62,9 +62,9 @@ En cinq ans, beaucoup de choses avaient changé. Les proches rendaient souvent v
 
 Son père ne pratiquait plus guère la sculpture lui-même, mais il avait accepté quelques apprentis pour transmettre son savoir-faire.
 
-Petit Six était le plus doué des apprentis; il maîtrisait déjà cinquante ou soixante pour cent de l'art de la sculpture.
+Xiao Liu était le plus doué des apprentis; il maîtrisait déjà cinquante ou soixante pour cent de l'art de la sculpture.
 
-En entendant cela, Wang Lin sourit et dit: « Père, j'ai vu les sculptures que Petit Six a réalisées. Elles sont plutôt réussies, loin d'être aussi médiocres que tu le disais. »
+En entendant cela, Wang Lin sourit et dit: « Père, j'ai vu les sculptures que Xiao Liu a réalisées. Elles sont plutôt réussies, loin d'être aussi médiocres que tu le disais. »
 
 Le père de Wang Lin renifla: « Elles sont encore bien trop pauvres! Aucun d'eux ne t'arrive à la cheville. Quand je t'apprenais à sculpter, tu n'avais que huit ans et tu faisais déjà mieux qu'eux! »
 

@@ -20,9 +20,9 @@ Si l'on gagnait en souplesse dans la Technique d'Attraction et que l'on atteigna
 
 Après de longues heures de pratique, Wang Lin commença à regagner son domicile avant que la nuit ne tombe. Maintenant qu'il avait atteint le premier niveau de Condensation de Qi, sa vue et son ouïe s'étaient grandement affinées. En franchissant la porte est, il perçut des voix familières en passant devant la maison des tâches subalternes.
 
-« Frère Liu, quand tu m'as chargé pour la première fois de ramasser du bois, tu avais dit que 100 livres suffiraient pour accomplir la tâche. Pourquoi est-ce 1 000 livres maintenant? Je ne suis pas nouveau, moi, Zhang Hu, et au cours de ces dernières années, je t'ai offert bien des présents. Veux-tu vraiment me forcer à quitter la secte? »
+« Senior frère Liu, quand tu m'as chargé pour la première fois de ramasser du bois, tu avais dit que 100 livres suffiraient pour accomplir la tâche. Pourquoi est-ce 1 000 livres maintenant? Je ne suis pas nouveau, moi, Zhang Hu, et au cours de ces dernières années, je t'ai offert bien des présents. Veux-tu vraiment me forcer à quitter la secte? »
 
-« Zhang Hu, ne dis pas que je te rends la vie difficile. L'année touche à sa fin, et même moi, ton frère, je ne passe pas un moment facile. Mais toi, au lieu de travailler, tu choisis ce moment pour me mettre des bâtons dans les roues. Quand j'ai apporté le bois que tu avais ramassé à la maison des pilules, je me suis fait réprimander. Je l'ai repris et je l'ai vérifié. Espèce de petit bâtard, tu es vraiment trop malin. Dans tes 100 livres de bois, il y avait au moins 30 livres d'eau! »
+« Zhang Hu, ne dis pas que je te rends la vie difficile. L'année touche à sa fin, et même moi, ton Senior frère, je ne passe pas un moment facile. Mais toi, au lieu de travailler, tu choisis ce moment pour me mettre des bâtons dans les roues. Quand j'ai apporté le bois que tu avais ramassé à la maison des pilules, je me suis fait réprimander. Je l'ai repris et je l'ai vérifié. Espèce de petit bâtard, tu es vraiment trop malin. Dans tes 100 livres de bois, il y avait au moins 30 livres d'eau! »
 
 Zhang Hu était furieux. Il cria: « C'est impossible! Tu m'accuses à tort. N'est-ce pas parce qu'il y a quelques jours, j'ai vu Zhao Fugui te donner un talisman immortel pour que tu puisses lui choisir des tâches plus faciles? Et alors? Parmi les disciples honoraires, qui ne sait comment tu agis? Quant à essayer de me chasser de la secte Heng Yue, tu as vraiment merdé, espèce de saloperie. Je n'en ferai plus une miette. Je vais aller en parler aux Anciens! »
 
@@ -42,13 +42,13 @@ Choqué, le jeune Liu se mit aussitôt à se débattre avec acharnement. Le fron
 
 C'était la première fois que Wang Lin utilisait cette méthode sur un être humain. De toute évidence, il ne la maîtrisait pas encore assez bien; de plus, les mouvements convulsifs de sa cible rendaient le contrôle extrêmement difficile. Le corps de Wang Lin tremblait. Voyant que Zhang Hu n'était plus en danger immédiat, il se détendit légèrement, ce qui provoqua un relâchement de la Technique d'Attraction.
 
-En voyant que Liu allait réussir à se libérer, l'expression de Zhang Hu changea étrangement. Il regarda Wang Lin, puis le frère Liu. Son visage se mua en une grimace impitoyable. Il saisit une hachette de bûcheron et s'avança vers le frère Liu.
+En voyant que Liu allait réussir à se libérer, l'expression de Zhang Hu changea étrangement. Il regarda Wang Lin, puis le Senior frère Liu. Son visage se mua en une grimace impitoyable. Il saisit une hachette de bûcheron et s'avança vers Senior frère Liu.
 
-Le visage du frère Liu fut envahi par la terreur tandis qu'il se débattait avec encore plus de ferveur. Zhang Hu serra les dents et murmura pour lui-même: « Un homme sans venin n'est pas un homme. Frère Liu, tu m'as forcé à faire ça. Tu voulais tuer toute ma famille? »
+Le visage du Senior frère Liu fut envahi par la terreur tandis qu'il se débattait avec encore plus de ferveur. Zhang Hu serra les dents et murmura pour lui-même: « Un homme sans venin n'est pas un homme. Senior frère Liu, tu m'as forcé à faire ça. Tu voulais tuer toute ma famille? »
 
 « Zhang Hu, qu'est-ce que tu vas faire? » s'exclama Wang Lin, surpris, ce qui fit perdre son effet à la Technique d'Attraction.
 
-À l'instant même où le jeune Liu retrouva la maîtrise de ses mouvements, Zhang Hu abattit la hachette sur la tête du frère Liu. Ce dernier fut trop lent pour esquiver. Un bruit sec, semblable au fracas d'une pastèque que l'on brise, emplit brièvement la pièce. Le corps du frère Liu tressaillit au sol avant de s'immobiliser définitivement.
+À l'instant même où le jeune Liu retrouva la maîtrise de ses mouvements, Zhang Hu abattit la hachette sur la tête du Senior frère Liu. Ce dernier fut trop lent pour esquiver. Un bruit sec, semblable au fracas d'une pastèque que l'on brise, emplit brièvement la pièce. Le corps du Senior frère Liu tressaillit au sol avant de s'immobiliser définitivement.
 
 La hachette tomba des mains de Zhang Hu. Il contemplait le cadavre ensanglanté avec une expression complexe.
 

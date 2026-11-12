@@ -1,6 +1,6 @@
 ---
 n: 222
-title: "Le Four de l'Héritage Céleste"
+title: "Les Sept Fours Vol de Ciel"
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 222 - Heaven Stealing Seven Furnace
@@ -180,7 +180,7 @@ Wang Lin se méfiait de tous. Bien que Zhou Lin lui ait été sympathique et soi
 
 Sous le balayage de son Sens Divin, il ne perçut qu'une fluctuation d'énergie spirituelle provenant du fourneau à pilules; tout le reste semblait normal.
 
-Dès que Zhou Lin entra dans la pièce, il toucha son sac de rangement et en sortit trois morceaux de jade qu'il plaça sous le fourneau. Il recula de deux pas, retourna les mains et projeta un éclat de lumière spirituelle. Les trois jades brillèrent d'une lueur verte et le fourneau, secoué tout entier, s'enfonça lentement de dix centimètres dans le sol.
+Dès que Zhou Lin entra dans la pièce, il toucha son sac de rangement et en sortit trois morceaux de jade qu'il plaça sous le fourneau. Il recula de deux pas, retourna les mains et projeta un éclat de lumière spirituelle. Les trois jades brillèrent d'une lueur verte et le fourneau, secoué tout entier, s'enfonça lentement de trois pouces dans le sol.
 
 Zhou Lin prit une grande inspiration et saisit le fourneau. Après l'avoir fait pivoter d'un demi-tour de gauche à droite, un rayon de lumière apparut sur le mur devant lui.
 

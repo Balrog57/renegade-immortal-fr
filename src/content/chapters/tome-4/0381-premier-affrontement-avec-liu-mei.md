@@ -42,7 +42,7 @@ Si le bienfaiteur avait dit qu'il reviendrait dans neuf ans, alors il reviendrai
 
 Un regard de foi inébranlable brilla dans les yeux de Tie Yan.
 
-À 330 mètres de Tie Yan se trouvait le crapaud tonnerre. Il restait simplement là, profitant du soleil chaud. Cela faisait presque un an qu'il n'avait pas bougé d'un pouce.
+À mille pieds de Tie Yan se trouvait le crapaud tonnerre. Il restait simplement là, profitant du soleil chaud. Cela faisait presque un an qu'il n'avait pas bougé d'un pouce.
 
 Tout en contemplant les nuages blancs dans le ciel, le crapaud tonnerre repensait parfois à sa vie dans la terre de l'Ancien Dieu. Depuis sa naissance, il y avait grandi. Des batailles incessantes contre d'autres bêtes pour la nourriture et le territoire y étaient monnaie courante, et c'étaient souvent des combats à mort.
 
@@ -104,21 +104,21 @@ Le vent de la montagne souffla, soulevant ses cheveux noirs et lui donnant l'all
 
 Liu Mei laissa échapper un léger soupir, puis sourit. Son sourire était comme une fleur éclose qui illumina instantanément les environs.
 
-« Senior apprenti Wang Lin, le jeune homme qui portait la grande épée dans son dos à la Secte Heng Yue. Ne vous souvenez-vous vraiment pas? »
+« Senior frère Wang Lin, le jeune homme qui portait la grande épée dans son dos à la Secte Heng Yue. Ne vous souvenez-vous vraiment pas? »
 
 Wang Lin ne fut nullement surpris lorsqu'elle révéla son identité. Dès qu'elle s'était nommée Liu Mei, il l'avait déjà deviné.
 
 Wang Lin dit avec indifférence: « La Liu Mei que je connais est une disciple de la Secte Xuan Dao possédant des racines spirituelles d'eau, et non une disciple de Suzaku! »
 
-Liu Mei fut stupéfaite. Une telle expression apparaissait rarement sur son visage. Elle demanda doucement: « Que veut dire le senior apprenti Wang? »
+Liu Mei fut stupéfaite. Une telle expression apparaissait rarement sur son visage. Elle demanda doucement: « Que veut dire le Senior frère Wang? »
 
 Wang Lin ne répondit pas, se contentant de regarder Liu Mei avec calme.
 
-Peu après, Liu Mei baissa la tête et dit d'une voix feutrée: « Je crains que le senior apprenti Wang n'ait un malentendu... »
+Peu après, Liu Mei baissa la tête et dit d'une voix feutrée: « Je crains que le Senior frère Wang n'ait un malentendu... »
 
 « Pour que vous puissiez apparaître à la Secte Xuan Dao tout en étant présente ici, à la Secte Lian Hun, je ne crois pas qu'un autre pays que Suzaku puisse accomplir une telle chose! » Wang Lin l'interrompit et se détourna pour partir.
 
-Liu Mei esquissa un sourire ténu: « Rien qu'avec cela, le senior apprenti Wang a pu déduire que je venais de Suzaku. Êtes-vous si sûr... Je pense que vous me testez simplement. Senior apprenti Wang, je ne vous mentirai pas; je suis bel et bien une disciple de Suzaku. »
+Liu Mei esquissa un sourire ténu: « Rien qu'avec cela, le Senior frère Wang a pu déduire que je venais de Suzaku. Êtes-vous si sûr... Je pense que vous me testez simplement. Senior frère Wang, je ne vous mentirai pas; je suis bel et bien une disciple de Suzaku. »
 
 Wang Lin secoua la tête, affichant un sourire moqueur: « Est-ce vraiment moi qui vous teste... J'ai vu un bracelet semblable au vôtre sur la main de Hongdie... »
 

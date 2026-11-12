@@ -70,23 +70,23 @@ Wang Lin le regarda et répondit calmement: « Un fragment du royaume céleste s
 
 L'homme fut stupéfait, puis il rit amèrement en se rendant compte qu'il disait une évidence. Il regarda Wang Lin avec une admiration non feinte: « Cher compagnon, quiconque peut réchapper d'un tel effondrement n'est pas un être ordinaire. Je vous admire sincèrement! Je suis Chi Hu, du Clan Ju Mo. Quel est votre nom? »
 
-Wang Lin secoua la tête et dit: « Ce n'était que de la chance. Mon nom est Ceng Niu! » En repensant à l'effondrement du fragment, il ne put s'empêcher d'être saisi par la peur. S'il n'avait pas avalé imprudemment le cristal d'énergie céleste, il serait déjà mort.
+Wang Lin secoua la tête et dit: « Ce n'était que de la chance. Mon nom est Zeng Niu! » En repensant à l'effondrement du fragment, il ne put s'empêcher d'être saisi par la peur. S'il n'avait pas avalé imprudemment le cristal d'énergie céleste, il serait déjà mort.
 
-« Ceng Niu... » Chi Hu réfléchit un instant avant que son regard ne devienne sérieux: « Cher compagnon, seriez-vous un membre de la famille Ceng, issue du pays de culture de rang 5 nommé Tianhun, dans le sud de Suzaku? »
+« Zeng Niu... » Chi Hu réfléchit un instant avant que son regard ne devienne sérieux: « Cher compagnon, seriez-vous un membre de la famille Zeng, issue du pays de culture de rang 5 nommé Tianhun, dans le sud de Suzaku? »
 
 Wang Lin fut surpris et secoua silencieusement la tête.
 
-Chi Hu resta pensif un long moment. Le seul pays de culture de haut rang possédant une famille nommée Ceng était Tianhun. Bien que Ceng Niu ne l'admette pas, Chi Hu ne croyait pas qu'il ait acquis sa culture par ses propres moyens; il soupçonnait qu'il s'agissait d'un disciple central formé par l'un des pays de rang 5. Autrement, s'il venait d'un pays de rang 4, il l'aurait forcément reconnu.
+Chi Hu resta pensif un long moment. Le seul pays de culture de haut rang possédant une famille nommée Zeng était Tianhun. Bien que Zeng Niu ne l'admette pas, Chi Hu ne croyait pas qu'il ait acquis sa culture par ses propres moyens; il soupçonnait qu'il s'agissait d'un disciple central formé par l'un des pays de rang 5. Autrement, s'il venait d'un pays de rang 4, il l'aurait forcément reconnu.
 
 Le Clan Ju Mo étant lui-même un pays de culture de rang 4, ils connaissaient parfaitement les génies de leurs pairs. Après cette réflexion, son attitude envers Wang Lin changea notablement, bien qu'il ne le laissa paraître compte tenu de son niveau de culture.
 
-Chi Hu hésita, puis demanda avec retenue: « Frère Ceng, me permettriez-vous de m'approcher pour discuter? »
+Chi Hu hésita, puis demanda avec retenue: « Frère Zeng, me permettriez-vous de m'approcher pour discuter? »
 
 Wang Lin le regarda calmement et acquiesça d'un signe de tête.
 
 Chi Hu s'avança rapidement jusqu'au bord de la plateforme. D'un geste nonchalant, il dressa un écran de lumière. L'expression de Wang Lin resta de marbre, mais il se mit secrètement sur ses gardes.
 
-Chi Hu dit avec sincérité: « Frère Ceng, puisque nous venons tous deux de Suzaku, j'espère que vous pourrez m'aider! »
+Chi Hu dit avec sincérité: « Frère Zeng, puisque nous venons tous deux de Suzaku, j'espère que vous pourrez m'aider! »
 
 Wang Lin esquissa un sourire: « Oh? Si le frère Chi Hu a des préoccupations, n'hésitez pas à me les confier. »
 
@@ -100,8 +100,8 @@ En outre, plusieurs plantes flottaient sur l'eau, et il était évident qu'elles
 
 Après un moment de réflexion, Wang Lin rendit le jade à Chi Hu en gardant le silence.
 
-Chi Hu murmura: « Frère Ceng, cet endroit a été découvert il y a de nombreuses années par l'un des génies de mon clan lors d'une expédition. Il est tombé dessus par accident, mais le lieu est gardé par des bêtes célestes et de puissantes restrictions. N'étant pas assez puissant, il s'est contenté d'enregistrer la scène avant de s'enfuir. »
+Chi Hu murmura: « Frère Zeng, cet endroit a été découvert il y a de nombreuses années par l'un des génies de mon clan lors d'une expédition. Il est tombé dessus par accident, mais le lieu est gardé par des bêtes célestes et de puissantes restrictions. N'étant pas assez puissant, il s'est contenté d'enregistrer la scène avant de s'enfuir. »
 
 Wang Lin réfléchit et répondit: « Cela remonte à bien longtemps. Il est probable que quelqu'un d'autre l'ait déjà trouvé. »
 
-Chi Hu sourit: « C'est impossible, frère Ceng. Je vous garantis que cet endroit demeure secret. Je regrette de ne pouvoir vous en dire davantage pour le moment. »
+Chi Hu sourit: « C'est impossible, frère Zeng. Je vous garantis que cet endroit demeure secret. Je regrette de ne pouvoir vous en dire davantage pour le moment. »

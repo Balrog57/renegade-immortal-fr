@@ -12,39 +12,39 @@ De plus, la boule de lumière tenue dans la main du squelette contenait une infi
 
 Wang Lin ne savait pourquoi, mais il ressentit un sentiment de danger. Il réfléchit un instant avant de rester en retrait pour observer froidement la scène.
 
-Les yeux du troisième frère aîné s'illuminèrent et il dit: « Sixième frère cadet, monte et va voir ce qu'est cette boule de lumière. »
+Les yeux du troisième Senior frère s'illuminèrent et il dit: « Sixième Junior frère, monte et va voir ce qu'est cette boule de lumière. »
 
-Le sixième frère cadet hésita, puis hocha la tête et s'avança. Au moment même où il s'approchait pour examiner l'objet, Wang Lin sentit soudainement ce sentiment de danger s'intensifier.
+Le sixième Junior frère hésita, puis hocha la tête et s'avança. Au moment même où il s'approchait pour examiner l'objet, Wang Lin sentit soudainement ce sentiment de danger s'intensifier.
 
-À cet instant précis, le troisième frère aîné cria brusquement: « Recule! » Tout en parlant, il agita la main, et l'épée qui reposait dans son dos s'envola pour trancher l'espace juste devant le sixième frère cadet.
+À cet instant précis, le troisième Senior frère cria brusquement: « Recule! » Tout en parlant, il agita la main, et l'épée qui reposait dans son dos s'envola pour trancher l'espace juste devant le sixième Junior frère.
 
-Le squelette se changea en poussière et la boule de lumière s'élança dans les airs. Un fil ténu jaillit de la sphère et fonça vers le front du sixième frère cadet.
+Le squelette se changea en poussière et la boule de lumière s'élança dans les airs. Un fil ténu jaillit de la sphère et fonça vers le front du sixième Junior frère.
 
 À ce moment-là, l'énergie de l'épée atteignit sa cible. Le fil laissa échapper un rugissement réticent avant de s'enfoncer dans le mur et de disparaître.
 
-La scène se déroula en un clin d'œil. Le front du sixième frère cadet était couvert de sueur froide alors qu'il fixait silencieusement son troisième frère aîné.
+La scène se déroula en un clin d'œil. Le front du sixième Junior frère était couvert de sueur froide alors qu'il fixait silencieusement son troisième Senior frère.
 
-« Sixième frère cadet, poursuis-la! » Le troisième frère aîné afficha une expression de vive excitation en lançant cette injonction, avant de se précipiter à sa suite.
+« Sixième Junior frère, poursuis-la! » Le troisième Senior frère afficha une expression de vive excitation en lançant cette injonction, avant de se précipiter à sa suite.
 
-Le sixième frère cadet hésita un instant, puis serra les dents et le suivit.
+Le sixième Junior frère hésita un instant, puis serra les dents et le suivit.
 
-« Frère aîné, qu'est-ce que c'était que ce truc? »
+« Senior frère, qu'est-ce que c'était que ce truc? »
 
-« Notre chance est plutôt bonne. Si mes soupçons sont exacts, il s'agit de nourriture pour les bêtes célestes, une chose dont elles raffolent. En général, là où se trouve cette nourriture, il peut y avoir des âmes de bêtes célestes dans les parages. Ce squelette a dû être pris en embuscade par elle et voir toute sa chair dévorée. Je te prie de ne pas m'en vouloir, je viens seulement de réaliser ce que c'était, sinon, je ne t'aurais pas demandé de vérifier. » Expliqua le troisième frère aîné tout en poursuivant sa course.
+« Notre chance est plutôt bonne. Si mes soupçons sont exacts, il s'agit de nourriture pour les bêtes célestes, une chose dont elles raffolent. En général, là où se trouve cette nourriture, il peut y avoir des âmes de bêtes célestes dans les parages. Ce squelette a dû être pris en embuscade par elle et voir toute sa chair dévorée. Je te prie de ne pas m'en vouloir, je viens seulement de réaliser ce que c'était, sinon, je ne t'aurais pas demandé de vérifier. » Expliqua le troisième Senior frère tout en poursuivant sa course.
 
-Le sixième frère cadet baissa la tête et dit lentement: « De simples aliments pour bêtes célestes possèdent une telle puissance... Si cette chose avait pénétré mon front, je me serais transformé en squelette... »
+Le sixième Junior frère baissa la tête et dit lentement: « De simples aliments pour bêtes célestes possèdent une telle puissance... Si cette chose avait pénétré mon front, je me serais transformé en squelette... »
 
-Le troisième frère aîné rit et répondit: « Ne t'inquiète pas, frère cadet. Cette chose repose entièrement sur les attaques physiques et n'a absolument aucune capacité propre. Elle craint par-dessus tout les techniques et les capacités spéciales. Tant que tu ne la laisses pas entrer dans ton corps, il te suffit d'utiliser ton énergie d'épée pour la fendre facilement en deux. »
+Le troisième Senior frère rit et répondit: « Ne t'inquiète pas, Junior frère. Cette chose repose entièrement sur les attaques physiques et n'a absolument aucune capacité propre. Elle craint par-dessus tout les techniques et les capacités spéciales. Tant que tu ne la laisses pas entrer dans ton corps, il te suffit d'utiliser ton énergie d'épée pour la fendre facilement en deux. »
 
-Tandis que les deux s'élançaient, Wang Lin les suivait. Bien que ces deux frères de secte semblassent entretenir de bonnes relations, Wang Lin percevait aisément les intentions malveillantes du troisième frère aîné.
+Tandis que les deux s'élançaient, Wang Lin les suivait. Bien que ces deux frères de secte semblassent entretenir de bonnes relations, Wang Lin percevait aisément les intentions malveillantes du troisième Senior frère.
 
-La scène précédente n'était manifestement qu'un stratagème: le troisième frère aîné, ayant remarqué une anomalie, avait utilisé son cadet comme appât pour faire sortir la proie.
+La scène précédente n'était manifestement qu'un stratagème: le troisième Senior frère, ayant remarqué une anomalie, avait utilisé son Junior frère comme appât pour faire sortir la proie.
 
 Wang Lin les suivit avec désinvolture, son sens divin concentré sur ce qui se déroulait devant lui.
 
 Il vit les deux frères poursuivre leur chemin à travers le réseau de grottes en descendant toujours plus bas. Peu de temps après, ils atteignirent les profondeurs du système souterrain.
 
-Le troisième frère aîné commença à ressentir un léger malaise. Bien qu'il fût déjà venu ici, il n'était jamais descendu aussi loin et se demandait s'il devait poursuivre la poursuite.
+Le troisième Senior frère commença à ressentir un léger malaise. Bien qu'il fût déjà venu ici, il n'était jamais descendu aussi loin et se demandait s'il devait poursuivre la poursuite.
 
 À cet instant, Wang Lin remarqua que la vitesse de la nourriture pour bêtes célestes ralentit et qu'elle disparut dans un trou de la taille d'un poing dans la paroi.
 
@@ -60,41 +60,41 @@ Mais ce qui choqua le plus Wang Lin fut la ligne noire qui entrait et sortait du
 
 Wang Lin s'immobilisa et, sans hésiter, recula rapidement vers une anfractuosité dans le mur. Il sortit son drapeau de restriction pour l'envelopper autour de lui, se fondant ainsi parfaitement avec la paroi à ses côtés.
 
-Le troisième frère aîné, qui volait en tête, déploya également son sens divin et remarqua immédiatement la grotte avant de s'arrêter net. Son visage pâlit instantanément. Dans cette petite cavité, il y avait au moins des dizaines de milliers de ces nourritures pour bêtes célestes.
+Le troisième Senior frère, qui volait en tête, déploya également son sens divin et remarqua immédiatement la grotte avant de s'arrêter net. Son visage pâlit instantanément. Dans cette petite cavité, il y avait au moins des dizaines de milliers de ces nourritures pour bêtes célestes.
 
-Le sixième frère cadet remarqua la situation à son tour, son expression devenant lugubre. Les deux se regardèrent et reculèrent lentement.
+Le sixième Junior frère remarqua la situation à son tour, son expression devenant lugubre. Les deux se regardèrent et reculèrent lentement.
 
 Mais il était trop tard. Des filaments jaillirent du petit trou et apparurent devant eux en un clin d'œil.
 
-L'expression du troisième frère aîné changea radicalement. Sans la moindre hésitation, il cria: « Deux Épées descendues en ce monde! »
+L'expression du troisième Senior frère changea radicalement. Sans la moindre hésitation, il cria: « Deux Épées descendues en ce monde! »
 
-Son épée s'élança dans les airs et frappa violemment vers le bas. Le sixième frère cadet serra les dents et envoya lui aussi son épée pour trancher la menace.
+Son épée s'élança dans les airs et frappa violemment vers le bas. Le sixième Junior frère serra les dents et envoya lui aussi son épée pour trancher la menace.
 
 Soudain, deux rayons d'énergie d'épée fusionnèrent comme deux dragons entrelacés, détruisant toutes les nourritures qui chargeaient vers eux. L'impact percuta le trou dans le mur, ouvrant une brèche d'une dizaine de mètres. Cette puissance provoqua l'effondrement de nombreuses parties de ce Temple Xian Shou déjà instable.
 
 De nouveaux filaments sortirent de la brèche. Parmi eux, une ligne noire était extrêmement frappante.
 
-« Fuyons! » Le troisième frère aîné ordonna immédiatement en faisant demi-tour, et le sixième frère cadet le suivit précipitamment, le cuir chevelu lui lançant des picotements.
+« Fuyons! » Le troisième Senior frère ordonna immédiatement en faisant demi-tour, et le sixième Junior frère le suivit précipitamment, le cuir chevelu lui lançant des picotements.
 
-La vitesse de leur retraite ne suffisait pas à distancer les filaments; après seulement quelques pas, ces derniers les avaient déjà rattrapés. Un regard vicieux passa dans les yeux du troisième frère aîné qui, d'un geste brusque, frappa le dos du sixième frère cadet.
+La vitesse de leur retraite ne suffisait pas à distancer les filaments; après seulement quelques pas, ces derniers les avaient déjà rattrapés. Un regard vicieux passa dans les yeux du troisième Senior frère qui, d'un geste brusque, frappa le dos du sixième Junior frère.
 
-La tête de ce dernier se retourna soudainement avec une expression moqueuse. Sa main saisit rapidement celle du troisième frère aîné et il dit: « Troisième frère aîné, que comptiez-vous faire? »
+La tête de ce dernier se retourna soudainement avec une expression moqueuse. Sa main saisit rapidement celle du troisième Senior frère et il dit: « Troisième Senior frère, que comptiez-vous faire? »
 
-À cet instant, son aura changea brusquement. Son niveau de culture passa de celui d'un cultivateur venant tout juste d'entrer au début du stade de la Formation de l'Âme à celui du milieu du stade de la Formation de l'Âme. Il s'empara prestement de la sacoche et de l'épée du troisième frère aîné avant de le projeter vers la nuée de nourritures pour bêtes célestes.
+À cet instant, son aura changea brusquement. Son niveau de culture passa de celui d'un cultivateur venant tout juste d'entrer au début du stade de la Formation de l'Âme à celui du milieu du stade de la Formation de l'Âme. Il s'empara prestement de la sacoche et de l'épée du troisième Senior frère avant de le projeter vers la nuée de nourritures pour bêtes célestes.
 
-« Tu... » L'expression du troisième frère aîné se décomposa, mais avant qu'il ne puisse achever sa phrase, l'essaim de filaments s'engouffra dans son corps. En un instant, le corps d'un cultivateur au début de la Formation de l'Âme fut transformé en squelette.
+« Tu... » L'expression du troisième Senior frère se décomposa, mais avant qu'il ne puisse achever sa phrase, l'essaim de filaments s'engouffra dans son corps. En un instant, le corps d'un cultivateur au début de la Formation de l'Âme fut transformé en squelette.
 
-Son âme originelle s'échappa soudainement, mais le sixième frère cadet forma aussitôt des sceaux pour lui barrer la route.
+Son âme originelle s'échappa soudainement, mais le sixième Junior frère forma aussitôt des sceaux pour lui barrer la route.
 
 Cette interruption fit perdre à l'âme originelle sa chance de s'enfuir, mais la ligne noire se changea en éclair noir, s'enfonça dans elle et la parcourut. Lorsque la ligne noire se retira, l'âme originelle avait déjà été dévorée.
 
-« Pardonnez-moi, frère aîné! » Voyant ce qui venait de se passer, le sixième frère cadet s'enfuit rapidement, profitant du temps que le troisième frère aîné lui avait offert au prix de sa vie.
+« Pardonnez-moi, Senior frère! » Voyant ce qui venait de se passer, le sixième Junior frère s'enfuit rapidement, profitant du temps que le troisième Senior frère lui avait offert au prix de sa vie.
 
 Lorsque l'individu passa près de la cachette de Wang Lin, les yeux de ce dernier s'illuminèrent, mais il ne bougea pas de manière imprudente.
 
-Le sixième frère cadet fila devant Wang Lin. Quelques respirations plus tard, l'essaim passa lui aussi. Wang Lin sentit une vive tension alors que la nuée glissait à ses côtés.
+Le sixième Junior frère fila devant Wang Lin. Quelques respirations plus tard, l'essaim passa lui aussi. Wang Lin sentit une vive tension alors que la nuée glissait à ses côtés.
 
-En passant, la ligne noire marqua un bref arrêt avant de reprendre leur poursuite effrénée du sixième frère cadet.
+En passant, la ligne noire marqua un bref arrêt avant de reprendre leur poursuite effrénée du sixième Junior frère.
 
 Une fois l'essaim passé, Wang Lin attendit quelques instants avant de charger vers la grotte ouverte par l'énergie de l'épée.
 

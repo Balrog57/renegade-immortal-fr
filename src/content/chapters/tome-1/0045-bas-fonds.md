@@ -30,7 +30,7 @@ Li Shan sortit plusieurs dizaines de bombes fétides de son sac de rangement et 
 
 Le disciple de la secte intérieure qui avait pris la parole était Sun Hao. Ce dernier s'avança, ramassa prudemment l'une des bombes au hasard et l'examina dans sa main.
 
-L'expression de Li Shan resta impassible, mais il se moqua silencieusement de lui: « Petit imbécile, tu crois pouvoir comprendre? À part les Anciens de la secte, même les frères aînés ne parviennent pas à percer son secret. »
+L'expression de Li Shan resta impassible, mais il se moqua silencieusement de lui: « Petit imbécile, tu crois pouvoir comprendre? À part les Anciens de la secte, même le Grand Senior frère ne parvient pas à percer son secret. »
 
 Sun Hao l'observa longuement sans rien trouver de spécial. Il lança finalement la bombe dans une clairière éloignée et, alors que l'objet décrivait une courbe dans les airs, au moment précis où elle allait toucher le sol, Li Shan pensa: *« Explose! »*
 

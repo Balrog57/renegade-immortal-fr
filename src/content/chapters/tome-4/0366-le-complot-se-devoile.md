@@ -124,29 +124,29 @@ Les yeux de Wang Lin devinrent encore plus froids alors qu'il pressait son sceau
 
 Mais à cet instant précis, une puissance douce descendit du ciel et enveloppa les trois esprits d'une lueur dorée. La force destructrice se dissipa et les esprits furent épargnés.
 
-Une silhouette apparut silencieusement devant Hongdie: il s'agissait de Gong Sunpo, de Suzaku.
+Une silhouette apparut silencieusement devant Hongdie: il s'agissait de Gongsun Po, de Suzaku.
 
-D'un geste nonchalant de la main droite, il repoussa Wang Lin à plus de 33 mètres de distance. Wang Lin fixa Gong Sunpo en réfléchissant intensément.
+D'un geste nonchalant de la main droite, il repoussa Wang Lin à plus de 33 mètres de distance. Wang Lin fixa Gongsun Po en réfléchissant intensément.
 
 Cette puissance était hors de sa portée, sans oublier qu'il était lourdement blessé.
 
-« Ceng Niu, tu as gagné! Rends-toi à la Montagne Suzaku pour recevoir tes ordres et on s'occupera de toi. Après cela, tu seras un disciple invité de Suzaku. En tant que tel, Suzaku pourra t'accorder un vœu. Une fois ton choix fait, tu n'auras qu'à venir à la Montagne Suzaku pour l'exprimer. » Gong Sunpo saisit les trois esprits et les réintégra en Hongdie.
+« Ceng Niu, tu as gagné! Rends-toi à la Montagne Suzaku pour recevoir tes ordres et on s'occupera de toi. Après cela, tu seras un disciple invité de Suzaku. En tant que tel, Suzaku pourra t'accorder un vœu. Une fois ton choix fait, tu n'auras qu'à venir à la Montagne Suzaku pour l'exprimer. » Gongsun Po saisit les trois esprits et les réintégra en Hongdie.
 
 Cependant, alors que l'esprit de bois s'approchait, Wang Lin serra les dents, abattit son épée céleste et le trancha en deux. Il transforma rapidement la moitié de l'esprit de bois en un cristal vert qu'il rangea aussitôt dans son sac.
 
-Après ce geste, il leva la tête vers Gong Sunpo.
+Après ce geste, il leva la tête vers Gongsun Po.
 
-« Hmph, tu es bien audacieux! Puisque tu as gagné, je ne poursuivrai pas cette affaire, mais ton vœu est annulé! » lança froidement Gong Sunpo à l'adresse de Wang Lin.
+« Hmph, tu es bien audacieux! Puisque tu as gagné, je ne poursuivrai pas cette affaire, mais ton vœu est annulé! » lança froidement Gongsun Po à l'adresse de Wang Lin.
 
 Puis, pointant le ciel, il fit en sorte que l'esprit qui avait explosé se reforme. Le vieil homme le remit également en Hongdie.
 
 Le teint de Hongdie revint et elle dit respectueusement: « Merci, Ancien. »
 
-Le regard de Gong Sunpo envers elle n'était pas bienveillant. Il tendit la main droite vers Wang Lin et ordonna: « Remets-moi le Fouet Kunji! »
+Le regard de Gongsun Po envers elle n'était pas bienveillant. Il tendit la main droite vers Wang Lin et ordonna: « Remets-moi le Fouet Kunji! »
 
-Wang Lin fixa l'homme et réfléchit un instant. Voyant que Gong Sunpo perdait patience, il poussa un soupir intérieur. Dans le monde de la culture, seule la force importait. Il sortit le Fouet Kunji et le lui remit avec amertume.
+Wang Lin fixa l'homme et réfléchit un instant. Voyant que Gongsun Po perdait patience, il poussa un soupir intérieur. Dans le monde de la culture, seule la force importait. Il sortit le Fouet Kunji et le lui remit avec amertume.
 
-Une fois le fouet saisi par Gong Sunpo, celui-ci pointa l'air de sa main droite, faisant apparaître une porte de lumière.
+Une fois le fouet saisi par Gongsun Po, celui-ci pointa l'air de sa main droite, faisant apparaître une porte de lumière.
 
 « Allons-y! » dit-il en franchissant le portail.
 

@@ -24,7 +24,7 @@ De plus, une vague pointe de danger se dégageait du talisman, ce qui accroissai
 
 Une fois cela fait, il sortit la perle mystérieuse et pénétra dans l'espace du rêve.
 
-Cette fois, il ne consacra pas tout son temps à la culture, mais s'appliqua à pratiquer la Technique d'Attraction. Il avait senti que cette technique était très utile après l'avoir testée sur le frère Liu, c'est pourquoi il était si déterminé à la pratiquer.
+Cette fois, il ne consacra pas tout son temps à la culture, mais s'appliqua à pratiquer la Technique d'Attraction. Il avait senti que cette technique était très utile après l'avoir testée sur le Senior frère Liu, c'est pourquoi il était si déterminé à la pratiquer.
 
 Il prit d'abord la gourde comme cible. Il tenta d'utiliser la Technique d'Attraction pour la saisir à distance. La gourde était légère; après plusieurs tentatives, il finit par réussir. Il cessa immédiatement l'exercice pour recommencer depuis le début.
 
@@ -62,10 +62,10 @@ Il ne savait plus combien de fois il avait traversé ce processus. Chaque tentat
 
 Deux heures plus tard, Wang Lin redressa la tête. Il était de nouveau exténué, son corps vidé de toute énergie. Il murmura pour lui-même avec un sourire amer: « Encore un échec. Franchir la deuxième étape est bien trop difficile! » Soudain, son regard se tourna vers la porte.
 
-Une voix froide retentit de l'autre côté de la porte: « Frère cadet Wang, sors me voir. »
+Une voix froide retentit de l'autre côté de la porte: « Junior frère Wang, sors me voir. »
 
 La voix lui était familière. Wang Lin se leva et ouvrit la porte pour découvrir un jeune homme d'environ vingt-sept ou vingt-huit ans, vêtu de noir, qui se tenait là, dégageant une aura glaciale.
 
 « Les vêtements noirs! » Le cœur de Wang Lin se serra. Il reconnut le jeune homme nommé Zhang qui l'avait amené, lui, Wang Zhuo et Wang Hao à la Secte Heng Yue, et celui qui avait conduit son père pour le retrouver au fond du précipice.
 
-Pourtant, Wang Lin se souvenait qu'il portait des vêtements blancs à l'époque. Désormais, après seulement quelques mois, il était passé au noir! Il se remémora soudainement le jour des tests au pied de la montagne. Le troisième Grand Frère Apprenti, qui avait pris Wang Hao comme assistant, avait alors déclaré que cet individu avait atteint un moment critique dans sa culture et que le chef de la secte, craignant de perturber celle-ci, l'avait chargé de faire passer les tests à sa place.
+Pourtant, Wang Lin se souvenait qu'il portait des vêtements blancs à l'époque. Désormais, après seulement quelques mois, il était passé au noir! Il se remémora soudainement le jour des tests au pied de la montagne. Le troisième Senior frère, qui avait pris Wang Hao comme assistant, avait alors déclaré que cet individu avait atteint un moment critique dans sa culture et que le chef de la secte, craignant de perturber celle-ci, l'avait chargé de faire passer les tests à sa place.

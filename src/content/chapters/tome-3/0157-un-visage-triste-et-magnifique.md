@@ -16,7 +16,7 @@ Le démon se détendit secrètement tout en fixant Wang Lin, mais il se plaignit
 
 Alors qu'il réfléchissait à la manière dont il se débarrasserait de Wang Lin une fois revenu au stade de l'Âme Naissante, son corps fut saisi par ce dernier et projeté en arrière dans le tendon du dragon. Le démon poussa quelques soupirs de frustration. L'envie de tout donner contre Wang Lin ressurgit, mais elle s'éteignit aussitôt lorsqu'il réalisa qu'il n'obtiendrait aucun résultat satisfaisant, même en brisant son noyau doré.
 
-Après avoir bu une gorgée de liquide spirituel, Wang Lin s'assit pour cultiver. Repensant à la puissance du cultivateur à l'épée Jie Donglei, il sortit aussitôt des pierres spirituelles. Il allait les utiliser pour déployer sur lui plus d'une centaine de formations défensives de la carapace de tortue.
+Après avoir bu une gorgée de liquide spirituel, Wang Lin s'assit pour cultiver. Repensant à la puissance du cultivateur à l'épée Xie Donglai, il sortit aussitôt des pierres spirituelles. Il allait les utiliser pour déployer sur lui plus d'une centaine de formations défensives de la carapace de tortue.
 
 Une fois cela terminé, il prit une profonde inspiration et frappa le flanc de la paroi. Les crocs du dragon émirent un grondement et s'ouvrirent lentement. Il se leva et sortit.
 
@@ -58,7 +58,7 @@ Le terme « beauté triste » la décrivait à la perfection en cet instant.
 
 Après un long moment, elle mordit sa lèvre inférieure et sortit une à une des tablettes de jade de son sac de rangement. Il y en avait au total 18 974, soit le nombre exact d'écailles sur tout le corps du dragon.
 
-Plus tôt, Jie Donglei n'avait pas eu assez de disciples pour recouvrir chaque écaille.
+Plus tôt, Xie Donglai n'avait pas eu assez de disciples pour recouvrir chaque écaille.
 
 Ces morceaux de jade étaient le fruit de ses efforts acharnés durant une demi-lune sans sommeil. Elle avait passé tout ce temps à enregistrer chaque motif. La charge mentale accumulée lui avait coûté au moins cinq ans de vie...
 
@@ -70,11 +70,11 @@ Trois jours plus tard, le visage de Li Muwan était livide et son corps extrême
 
 Wang Lin, resté assis en silence trois jours sur la tête du dragon, tenait un objet entre ses mains. En voyant Li Muwan sortir, il rangea l'objet avant de descendre à sa hauteur. Voyant son visage encore plus épuisé, il fronça les sourcils et demanda: « Qu'as-tu fait ces trois derniers jours? Bois ceci. » Il lui tendit une fiole de jade contenant plus de 300 gouttes de liquide spirituel.
 
-Li Muwan rangea la fiole comme un trésor précieux et murmura: « Merci, frère aîné. Je vais bien. Allons... partons... » Sur ces mots, son visage retrouva un peu d'éclat alors qu'elle s'appuyait contre l'épaule de Wang Lin: « Allez... rentrons à la maison... »
+Li Muwan rangea la fiole comme un trésor précieux et murmura: « Merci, Senior frère. Je vais bien. Allons... partons... » Sur ces mots, son visage retrouva un peu d'éclat alors qu'elle s'appuyait contre l'épaule de Wang Lin: « Allez... rentrons à la maison... »
 
 Wang Lin resta pensif un long moment avant de passer son bras gauche autour de la taille de Li Muwan. Son corps s'élança instantanément dans les airs, tandis que l'épée volante à la lumière cristalline ouvrait la voie devant eux ; en un instant, les deux disparurent à l'horizon.
 
-Dans une auberge de la ville de Nan Dou, un vieil homme au nez aquilin et au visage glacial poussa la porte et entra. Grand et maigre, il portait une longue robe de toile bleu-vert dont le bas, à une dizaine de centimètres de l'ourlet, était brodé de sept fleurs de prunier dorées, chacune ornée d'un point rouge en son centre.
+Dans une auberge de la ville de Nan Dou, un vieil homme au nez aquilin et au visage glacial poussa la porte et entra. Grand et maigre, il portait une longue robe de toile bleu-vert dont le bas, à trois pouces de l'ourlet, était brodé de sept fleurs de prunier dorées, chacune ornée d'un point rouge en son centre.
 
 La fleur de prunier est une chose élégante. Si elle était dorée, elle paraîtrait vulgaire; mais ce rouge en son centre transforme toute l'impression qu'elle donne, le vulgaire devenant sinistre et l'élégance, étrange.
 
@@ -84,7 +84,7 @@ Une fois entré, le vieil homme ne prit même pas garde aux alentours et s'assit
 
 À ce moment-là, le brouhaha reprit dans l'auberge.
 
-À une table voisine, quelques cultivateurs aux visages inquiets chuchotaient: « Ce démon s'est frayé un chemin jusqu'ici et a combattu Jie Donglei de la Secte Dou Xie, au mont du Dragon, pendant trois jours et trois nuits. Finalement, il a utilisé un mystérieux trésor magique pour terrasser Jie Donglei en un instant, avant de suppliciter son corps pendant sept jours et sept nuits. Héhé, je parie que la ville de Nan Dou aura un nouveau maître. »
+À une table voisine, quelques cultivateurs aux visages inquiets chuchotaient: « Ce démon s'est frayé un chemin jusqu'ici et a combattu Xie Donglai de la Secte Dou Xie, au mont du Dragon, pendant trois jours et trois nuits. Finalement, il a utilisé un mystérieux trésor magique pour terrasser Xie Donglai en un instant, avant de suppliciter son corps pendant sept jours et sept nuits. Héhé, je parie que la ville de Nan Dou aura un nouveau maître. »
 
 L'expression du vieil homme changea à l'évocation d'un « mystérieux trésor magique ».
 

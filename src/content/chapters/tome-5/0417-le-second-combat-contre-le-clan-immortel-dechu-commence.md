@@ -6,39 +6,39 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 417 - The second battle with the Forsaken Immortal Clan begins
 slug: le-second-combat-contre-le-clan-immortel-dechu-commence
 ---
-Wang Lin sourit à la question de la vieille femme et répondit: « Je m'appelle Ceng Niu. »
+Wang Lin sourit à la question de la vieille femme et répondit: « Je m'appelle Zeng Niu. »
 
 L'expression de la vieille femme changea. Elle fixa Wang Lin et dit: « Tuer Li Yuanfeng de Xue Yu et l'ancêtre du Clan Ju Mo alors que tu n'étais qu'au stade de la Formation de l'Âme... Aujourd'hui, cette vieille femme est effectivement incapable de te tuer. »
 
-La vieille femme poussa un soupir. Bien qu'elle fût au stade avancé de la Transformation de l'Âme et qu'elle pût facilement tuer Wang Lin, elle n'avait aucune chance de le faire en présence de Du Tian. Après avoir jeté un regard au vieil homme à ses côtés, elle poussa un autre soupir intérieur.
+La vieille femme poussa un soupir. Bien qu'elle fût au stade avancé de la Transformation de l'Âme et qu'elle pût facilement tuer Wang Lin, elle n'avait aucune chance de le faire en présence de Dun Tian. Après avoir jeté un regard au vieil homme à ses côtés, elle poussa un autre soupir intérieur.
 
 L'homme aux robes violettes qui se tenait près de la femme affichait une expression sombre. Il était au stade initial de la Transformation de l'Âme. Il savait qu'il aurait pu tuer Li Yuanfeng sans l'ombre d'un doute, mais contre l'ancêtre du Clan Ju Mo, la victoire aurait été bien difficile à obtenir. Pourtant, ce jeune homme devant lui avait réussi à éliminer les deux. Bien que Wang Lin ne fût pas encore un cultivateur de la Transformation de l'Âme, il le considérait déjà comme un égal en termes de culture.
 
-Du Tian laissa échapper un rire. Il était très satisfait des actions de Wang Lin. Les membres de la Secte Lian Hun devaient agir ainsi.
+Dun Tian laissa échapper un rire. Il était très satisfait des actions de Wang Lin. Les membres de la Secte Lian Hun devaient agir ainsi.
 
-Du Tian déclara: « Ne perdons plus de temps. Selon les règles, donnez-moi la moitié de vos jades célestes! »
+Dun Tian déclara: « Ne perdons plus de temps. Selon les règles, donnez-moi la moitié de vos jades célestes! »
 
-La vieille femme réfléchit un instant. Elle observa Du Tian avant que ses yeux ne s'illuminent et qu'elle ne dise: « Je peux vous donner la moitié de nos jades célestes, mais alors que le combat contre le Clan Xian Yi approche, si ma Secte des Insectes Démoniaques est en danger, vous devrez nous aider une fois! »
+La vieille femme réfléchit un instant. Elle observa Dun Tian avant que ses yeux ne s'illuminent et qu'elle ne dise: « Je peux vous donner la moitié de nos jades célestes, mais alors que le combat contre le Clan Xian Yi approche, si ma Secte Zhi Mo Dao est en danger, vous devrez nous aider une fois! »
 
-Du Tian la regarda et répondit: « Cela dépendra du nombre de jades célestes que vous me remettrez. »
+Dun Tian la regarda et répondit: « Cela dépendra du nombre de jades célestes que vous me remettrez. »
 
-La vieille femme eut un sourire amer. Elle sortit un sac de rangement et le lança à Du Tian sans même y regarder. Elle dit: « Cela devrait vous satisfaire. »
+La vieille femme eut un sourire amer. Elle sortit un sac de rangement et le lança à Dun Tian sans même y regarder. Elle dit: « Cela devrait vous satisfaire. »
 
-Du Tian attrapa le sac. Après l'avoir scanné avec son Sens Divin, son expression devint étrange. Il regarda la vieille femme et dit: « Vous, les membres de la Secte des Insectes Démoniaques, devez vraiment avoir été des rats dans votre vie antérieure. Mon maître vous a pris tant de jades célestes, et pourtant vous en possédez encore autant. Avez-vous trouvé un moyen de les accumuler? »
+Dun Tian attrapa le sac. Après l'avoir scanné avec son Sens Divin, son expression devint étrange. Il regarda la vieille femme et dit: « Vous, les membres de la Secte Zhi Mo Dao, devez vraiment avoir été des rats dans votre vie antérieure. Mon maître vous a pris tant de jades célestes, et pourtant vous en possédez encore autant. Avez-vous trouvé un moyen de les accumuler? »
 
 La vieille femme répondit calmement: « Cela ne te regarde pas. Souviens-toi de notre accord. » Sur ce, elle s'envola vers l'horizon.
 
 L'Ancien aux robes violettes regarda une dernière fois Wang Lin avant de lui faire une salutation respectueuse et de partir.
 
-C'est ainsi que Du Tian emmena Wang Lin à travers Pilu, pillant une quantité massive de jades célestes. En chemin, Wang Lin comprit réellement à quel point Du Tian était tyrannique. Du Tian sortait le drapeau d'âmes d'un milliard pour exiger des pierres spirituelles. S'ils refusaient, il libérait les fragments d'âmes et utilisait le peu de temps qu'il lui restait à vivre pour tenir tête à la secte.
+C'est ainsi que Dun Tian emmena Wang Lin à travers Pi Lu, pillant une quantité massive de jades célestes. En chemin, Wang Lin comprit réellement à quel point Dun Tian était tyrannique. Dun Tian sortait le drapeau d'âmes d'un milliard pour exiger des pierres spirituelles. S'ils refusaient, il libérait les fragments d'âmes et utilisait le peu de temps qu'il lui restait à vivre pour tenir tête à la secte.
 
-La notoriété de la Secte Lian Hun était tristement célèbre. Les deux autres sectes de Pilu étaient furieuses, mais comme la Secte Lian Hun avait toujours agi ainsi, elles finissaient par céder les jades célestes.
+La notoriété de la Secte Lian Hun était tristement célèbre. Les deux autres sectes de Pi Lu étaient furieuses, mais comme la Secte Lian Hun avait toujours agi ainsi, elles finissaient par céder les jades célestes.
 
-Du Tian tapota son sac de rangement et sourit à Wang Lin: « Tu vois tout ceci? C'est ainsi que ma Secte Lian Hun a agi pendant des dizaines de milliers d'années. Lorsque tu posséderas le drapeau d'âmes d'un milliard, tu devras agir de même, sans quoi tu terniras le nom de ma Secte. »
+Dun Tian tapota son sac de rangement et sourit à Wang Lin: « Tu vois tout ceci? C'est ainsi que ma Secte Lian Hun a agi pendant des dizaines de milliers d'années. Lorsque tu posséderas le drapeau d'âmes d'un milliard, tu devras agir de même, sans quoi tu terniras le nom de ma Secte. »
 
-Bien que son corps fût imprégné d'une aura de mort, Wang Lin pouvait ressentir un certain soulagement dans le cœur de Du Tian.
+Bien que son corps fût imprégné d'une aura de mort, Wang Lin pouvait ressentir un certain soulagement dans le cœur de Dun Tian.
 
-« Il y a bien longtemps, un ancêtre de ma Secte voulait atteindre le stade Ascendant. La quantité de jades célestes dont il avait besoin était bien supérieure à ce que tu requiers. Finalement, après avoir presque balayé toute la planète, il se rendit dans le pays de Suzaku. Avec le drapeau d'âmes d'un milliard, même les cultivateurs Ascendants ne voulaient pas facilement s'en mêler. Il a ainsi pu s'emparer des jades célestes par la force », raconta Du Tian.
+« Il y a bien longtemps, un ancêtre de ma Secte voulait atteindre le stade Ascendant. La quantité de jades célestes dont il avait besoin était bien supérieure à ce que tu requiers. Finalement, après avoir presque balayé toute la planète, il se rendit dans le pays de Suzaku. Avec le drapeau d'âmes d'un milliard, même les cultivateurs Ascendants ne voulaient pas facilement s'en mêler. Il a ainsi pu s'emparer des jades célestes par la force », raconta Dun Tian.
 
 Wang Lin eut un sourire amer. Il pouvait imaginer le mal de tête que les cultivateurs Ascendants de Suzaku avaient dû ressentir à l'époque. Donner les jades célestes revenait presque à leur offrir de l'argent gratuitement. Après tout, chaque génération détenant ce drapeau était une tyrannie.
 
@@ -48,37 +48,37 @@ Wang Lin pensa secrètement: « Je crois comprendre comment la Secte Lian Hun es
 
 Wang Lin sourit une fois de plus amèrement.
 
-Les actes tyranniques de Du Tian ne se limitaient pas à Pilu. En réalité, il s'était montré plutôt réservé sur Pilu; après tout, ils étaient voisins et il ne pouvait pas les pousser trop loin. Cependant, dès qu'ils quittèrent la région, Wang Lin vit la véritable nature de sa tyrannie.
+Les actes tyranniques de Dun Tian ne se limitaient pas à Pi Lu. En réalité, il s'était montré plutôt réservé sur Pi Lu; après tout, ils étaient voisins et il ne pouvait pas les pousser trop loin. Cependant, dès qu'ils quittèrent la région, Wang Lin vit la véritable nature de sa tyrannie.
 
-En trois mois, Du Tian traversa quatre pays de culture de rang 5. Lorsqu'ils passaient, c'était comme le passage d'une nuée de sauterelles. Même certaines familles de cultivateurs furent touchées et durent céder les quelques jades célestes qu'elles possédaient.
+En trois mois, Dun Tian traversa quatre pays de culture de rang 5. Lorsqu'ils passaient, c'était comme le passage d'une nuée de sauterelles. Même certaines familles de cultivateurs furent touchées et durent céder les quelques jades célestes qu'elles possédaient.
 
-Quant aux sectes, Du Tian n'attendait même pas de discuter avant de sortir le drapeau d'âmes d'un milliard. Les fragments d'âmes enveloppaient la secte, puis plus de dix âmes de la Transformation de l'Âme en émergeaient. Ce n'était pas une attaque qu'une secte de rang 5 pouvait espérer repousser.
+Quant aux sectes, Dun Tian n'attendait même pas de discuter avant de sortir le drapeau d'âmes d'un milliard. Les fragments d'âmes enveloppaient la secte, puis plus de dix âmes de la Transformation de l'Âme en émergeaient. Ce n'était pas une attaque qu'une secte de rang 5 pouvait espérer repousser.
 
-Du Tian collectait une quantité prodigieuse de jades célestes et les rangeait dans son sac. Dans le quatrième pays, il provoqua enfin une réaction des cultivateurs locaux: quatre experts de la Transformation de l'Âme s'unirent pour l'attaquer.
+Dun Tian collectait une quantité prodigieuse de jades célestes et les rangeait dans son sac. Dans le quatrième pays, il provoqua enfin une réaction des cultivateurs locaux: quatre experts de la Transformation de l'Âme s'unirent pour l'attaquer.
 
-Cette fois, Wang Lin comprit réellement la puissance du drapeau. Avant même qu'il n'ait le temps d'agir, les quatre hommes furent repoussés. Cela ne fut possible que parce que Du Tian ne souhaitait pas tuer; autrement, l'un d'eux serait certainement devenu une nouvelle âme primaire pour le drapeau.
+Cette fois, Wang Lin comprit réellement la puissance du drapeau. Avant même qu'il n'ait le temps d'agir, les quatre hommes furent repoussés. Cela ne fut possible que parce que Dun Tian ne souhaitait pas tuer; autrement, l'un d'eux serait certainement devenu une nouvelle âme primaire pour le drapeau.
 
-Face à la tyrannie dont Du Tian faisait preuve durant les deux dernières années de sa vie, Wang Lin dut sortir son chapeau de paille pour dissimuler son apparence, afin d'éviter que, une fois Du Tian devenu âme primaire du drapeau, les sectes pillées ne partent à sa recherche dans le futur.
+Face à la tyrannie dont Dun Tian faisait preuve durant les deux dernières années de sa vie, Wang Lin dut sortir son chapeau de paille pour dissimuler son apparence, afin d'éviter que, une fois Dun Tian devenu âme primaire du drapeau, les sectes pillées ne partent à sa recherche dans le futur.
 
-Quatre pays de culture de rang 5, 13 sectes et plus de 100 familles de cultivateurs. En incluant celles de Pilu, cela faisait un total de 16 sectes. En trois mois, Du Tian leur avait dérobé une fortune en jades célestes. Ce jour-là, il s'arrêta.
+Quatre pays de culture de rang 5, 13 sectes et plus de 100 familles de cultivateurs. En incluant celles de Pi Lu, cela faisait un total de 16 sectes. En trois mois, Dun Tian leur avait dérobé une fortune en jades célestes. Ce jour-là, il s'arrêta.
 
-Du Tian dit à Wang Lin d'un ton solennel: « Cette quantité de jades devrait suffire pour que tu atteignes le stade de la Transformation de l'Âme. Il en restera peut-être même. À l'avenir, si tu veux augmenter ton niveau de culture, tu devras obtenir tes propres jades célestes. Souviens-toi, dans le monde de la culture, surtout pour les experts de la Transformation de l'Âme, la seule façon d'obtenir des jades est de voler. Peu importe le nombre de disciples que tu envoies au Royaume Céleste, tu n'en auras jamais assez. »
+Dun Tian dit à Wang Lin d'un ton solennel: « Cette quantité de jades devrait suffire pour que tu atteignes le stade de la Transformation de l'Âme. Il en restera peut-être même. À l'avenir, si tu veux augmenter ton niveau de culture, tu devras obtenir tes propres jades célestes. Souviens-toi, dans le monde de la culture, surtout pour les experts de la Transformation de l'Âme, la seule façon d'obtenir des jades est de voler. Peu importe le nombre de disciples que tu envoies au Royaume Céleste, tu n'en auras jamais assez. »
 
-Wang Lin hocha la tête. Il n'avait aucun problème avec le fait de voler, mais il ne partageait pas les méthodes de Du Tian. Il estimait qu'il fallait soit tout prendre, soit ne rien prendre du tout. Peut-être que le processus aurait été plus ardu, mais la quantité de jades en leur possession aurait été plus du double de ce qu'ils possédaient actuellement.
+Wang Lin hocha la tête. Il n'avait aucun problème avec le fait de voler, mais il ne partageait pas les méthodes de Dun Tian. Il estimait qu'il fallait soit tout prendre, soit ne rien prendre du tout. Peut-être que le processus aurait été plus ardu, mais la quantité de jades en leur possession aurait été plus du double de ce qu'ils possédaient actuellement.
 
-Une fois les ressources réunies, Du Tian emmena Wang Lin vers la Secte Lian Hun pour le protéger pendant sa percée vers la Transformation de l'Âme.
+Une fois les ressources réunies, Dun Tian emmena Wang Lin vers la Secte Lian Hun pour le protéger pendant sa percée vers la Transformation de l'Âme.
 
-Du Tian soupira: « La planète Suzaku est bien trop petite. Quand j'étais jeune, je suis parti une fois pour me rendre à Tian Yun. Cette planète est dix fois plus vaste que Suzaku. Les sectes y sont légion et les jades célestes encore plus nombreux. Si je n'avais pas été trop faible, il aurait été délicieux de piller leurs sectes. On dit qu'au sein de l'Alliance Xiu Zhen, de nombreux pays de rang 6 et plus organisent des raids pour dépouiller d'autres planètes. »
+Dun Tian soupira: « La planète Suzaku est bien trop petite. Quand j'étais jeune, je suis parti une fois pour me rendre à Tian Yun. Cette planète est dix fois plus vaste que Suzaku. Les sectes y sont légion et les jades célestes encore plus nombreux. Si je n'avais pas été trop faible, il aurait été délicieux de piller leurs sectes. On dit qu'au sein de l'Alliance Xiu Zhen, de nombreux pays de rang 6 et plus organisent des raids pour dépouiller d'autres planètes. »
 
 « La planète Tian Yun... » Les yeux de Wang Lin s'illuminèrent.
 
-Du Tian poursuivit: « Cet Tian Yunzi sur la planète Tian Yun possède un niveau de culture extrêmement élevé. On dit même qu'il siège au sein de l'Alliance Xiu Zhen. Ce n'est pas une chose avec laquelle le petit Zhu Quezi peut rivaliser. »
+Dun Tian poursuivit: « Cet Tian Yunzi sur la planète Tian Yun possède un niveau de culture extrêmement élevé. On dit même qu'il siège au sein de l'Alliance Xiu Zhen. Ce n'est pas une chose avec laquelle le petit Zhu Quezi peut rivaliser. »
 
-Wang Lin réfléchissait. Alors qu'il s'apprêtait à poser d'autres questions, l'expression de Du Tian changea et il scruta l'horizon. Wang Lin déploya son Sens Divin et tourna la tête.
+Wang Lin réfléchissait. Alors qu'il s'apprêtait à poser d'autres questions, l'expression de Dun Tian changea et il scruta l'horizon. Wang Lin déploya son Sens Divin et tourna la tête.
 
 Un brouillard noir approchait de l'horizon, dévorant les nuages sur son passage. Ce brouillard était si vaste qu'on ne pouvait en percevoir la fin. Une puissante aura de pouvoir de tatouage se propageait lentement.
 
-« Le Clan Xian Yi! » Les yeux de Du Tian s'illuminèrent.
+« Le Clan Xian Yi! » Les yeux de Dun Tian s'illuminèrent.
 
 Au fil de leurs échanges, Wang Lin avait appris que plusieurs années auparavant, le Clan Xian Yi avait rassemblé une armée immense pour lancer une attaque directe sur le continent de Suzaku. D'innombrables cultivateurs étaient morts lors de ce combat. Certains chamans du Clan Xian Yi, aussi puissants que des Ascendants, avaient affronté Zhu Quezi et les deux autres experts Ascendants.
 

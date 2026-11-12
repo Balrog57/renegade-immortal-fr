@@ -36,9 +36,9 @@ Un bâton d'encens plus tard, la grotte était achevée. Wang Lin y pénétra, u
 
 Une fois tout cela terminé, il s'assit au sol, sortit les sacs de stockage obtenus auprès de l'homme d'âge moyen et de Sun Youcai, et les fouilla. Il en retira trois fragments de jade.
 
-Il plaça le premier jade contre son front. Après l'avoir examiné un moment, il le mit de côté. Celui-ci contenait une méthode de culture de la Secte Démoniaque nommée Art Shura de la Grande Liberté.
+Il plaça le premier jade contre son front. Après l'avoir examiné un moment, il le mit de côté. Celui-ci contenait une méthode de culture de la Secte Xie Mo nommée Art Shura de la Grande Liberté.
 
-La Secte Démoniaque était l'une des sectes démoniaques de Huo Fen, et la plupart de ses méthodes donnaient la chair de poule. Cet Art Shura de la Grande Liberté possédait six niveaux et mettait l'accent sur la voie impitoyable du Shura.
+La Secte Xie Mo était l'une des sectes démoniaques de Huo Fen, et la plupart de ses méthodes donnaient la chair de poule. Cet Art Shura de la Grande Liberté possédait six niveaux et mettait l'accent sur la voie impitoyable du Shura.
 
 Les instructions du jade étaient les suivantes: Tuer des gens pour tremper son cœur, puis, par cette trempe, s'engager sur la voie de l'impitoyabilité. Immergez-vous dans cette voie pour forger une âme Shura qui remplace votre Âme Naissante; alors, l'Art Shura de la Grande Liberté sera accompli.
 
@@ -96,7 +96,7 @@ Les quatre grandes sectes étaient très accoutumées à sceller les volcans et 
 
 L'un des vieillards à gauche prit la parole d'une voix sombre: « Que pense chacun de cette affaire? »
 
-« Senior Song, je n'ai vu ces bêtes de feu que dans de vieux registres. Ils indiquent qu'il s'agit de bêtes spirituelles. Les descriptions sont exagérées, il est inutile de s'en soucier. Puisque ce sont des bêtes spirituelles, elles peuvent forcément être soumises. Si nous six unissons nos forces, je ne crois pas que nous, cultivateurs de l'Âme Naissante, ne puissions venir à bout de simples bêtes de feu. » La personne qui parlait était un lettré d'âge moyen, svelte et aux tempes argentées. Bien que son visage fût doux comme le jade et sa voix calme, elle était empreinte de fierté.
+« Senior frère Song, je n'ai vu ces bêtes de feu que dans de vieux registres. Ils indiquent qu'il s'agit de bêtes spirituelles. Les descriptions sont exagérées, il est inutile de s'en soucier. Puisque ce sont des bêtes spirituelles, elles peuvent forcément être soumises. Si nous six unissons nos forces, je ne crois pas que nous, cultivateurs de l'Âme Naissante, ne puissions venir à bout de simples bêtes de feu. » La personne qui parlait était un lettré d'âge moyen, svelte et aux tempes argentées. Bien que son visage fût doux comme le jade et sa voix calme, elle était empreinte de fierté.
 
 La belle femme qui avait croisé Wang Lin une fois répliqua sans ménagement: « Absurde! Quand j'étais encore à la Formation du Noyau, j'ai croisé une fois ces bêtes spirituelles de feu avec mon maître. Ce sont des esprits de feu naturels : les techniques liées au feu non seulement sont inutiles contre elles, mais accroissent même leur puissance. Seules les techniques de nature froide peuvent leur résister un peu. Quant à les tuer, il ne faut même pas y songer, et encore moins à les soumettre. »
 
@@ -106,7 +106,7 @@ Le lettré d'âge moyen ne s'en sentit pas gêné. Il regarda la femme avec tend
 
 Voyant que le silence s'était installé, l'homme nommé Song dit: « Peu importe. J'espère que l'apparition des bêtes de feu ne fera pas céder les sceaux. Faisons ce que nous faisons d'ordinaire et scellons les volcans dont nous avons la charge. »
 
-La même scène se déroula à la Secte Luo He, à la Secte Démoniaque et à la Secte Shi Yin. Les résultats furent sensiblement les mêmes, et tous les cultivateurs de l'Âme Naissante de Huo Fen s'attelèrent au scellement des volcans.
+La même scène se déroula à la Secte Luo He, à la Secte Xie Mo et à la Secte Shi Yin. Les résultats furent sensiblement les mêmes, et tous les cultivateurs de l'Âme Naissante de Huo Fen s'attelèrent au scellement des volcans.
 
 Soudain, dans tout le pays de Huo Fen, on put voir divers cultivateurs de l'Âme Naissante de différentes sectes planer autour des volcans pour les sceller. Les fluctuations d'énergie spirituelle devinrent également plus violentes ces derniers jours.
 
@@ -158,7 +158,7 @@ Wang Lin réfléchit après cet échec. Quant aux bêtes spirituelles, il n'avai
 
 Il pointa le morceau de métal qui se mit immédiatement à tourner frénétiquement. Bientôt, des gouttes de métal liquide tombèrent tandis que l'objet rétrécissait. Finalement, il se transforma en une flaque de métal fondu. Le démon était déjà sorti du métal et regardait Wang Lin à la dérobée, servile, sur le côté.
 
-L'image de la petite épée verte s'envola et tourbillonna autour de Wang Lin. Il sortit ensuite du sac de stockage l'épée noire appartenant au frère martial aîné de Sun Youcai, ce qui tombait à point nommé pour lui.
+L'image de la petite épée verte s'envola et tourbillonna autour de Wang Lin. Il sortit ensuite du sac de stockage l'épée noire appartenant au Senior frère de Sun Youcai, ce qui tombait à point nommé pour lui.
 
 Wang Lin pointa l'image de la petite épée, qui vola vers l'épée noire pour fusionner lentement avec elle. Cette méthode était la plus directe et la moins raffinée. On ne pouvait même pas parler de raffinage; c'était plutôt comme trouver un nouveau corps pour son épée volante, à l'instar d'un cultivateur qui s'empare d'un corps.
 

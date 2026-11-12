@@ -14,7 +14,7 @@ Peu de temps après, il atteignit le pavillon des épées dans la cour principal
 
 Devant le pavillon des épées siégeait un disciple vêtu de blanc. Il semblait âgé d'une trentaine d'années et était plutôt corpulent. Wang Lin ne le reconnut pas, ce qui laissait entendre qu'il n'avait pas participé aux entraînements intensifs.
 
-Le disciple tourna les yeux vers Wang Lin et s'exclama: « Jeune frère, tu n'es qu'au troisième niveau. Que fais-tu ici? Cet endroit est réservé aux disciples du quatrième niveau ou plus. »
+Le disciple tourna les yeux vers Wang Lin et s'exclama: « Junior frère, tu n'es qu'au troisième niveau. Que fais-tu ici? Cet endroit est réservé aux disciples du quatrième niveau ou plus. »
 
 Wang Lin resta silencieux. Il sortit le jeton que Sun Dazhu lui avait confié et le lui lança.
 
@@ -22,7 +22,7 @@ Lorsque le disciple corpulent réceptionna le jeton, son expression devint étra
 
 Wang Lin se sentit embarrassé, surtout en repensant à l'expression solennelle de Sun Dazhu plus tôt. Il esquissa un sourire amer.
 
-L'homme corpulent rit de bon cœur. Après avoir fini de s'esclaffer, il fit un geste de la main et dit: « Jeune frère, tu peux passer. Je te recommande l'épée numéro 3 sur la droite. Cette épée volante est vraiment prodigieuse. La première fois que je l'ai vue, j'ai cru que c'était l'épée volante la plus extraordinaire du pays de Zhao. »
+L'homme corpulent rit de bon cœur. Après avoir fini de s'esclaffer, il fit un geste de la main et dit: « Junior frère, tu peux passer. Je te recommande l'épée numéro 3 sur la droite. Cette épée volante est vraiment prodigieuse. La première fois que je l'ai vue, j'ai cru que c'était l'épée volante la plus extraordinaire du pays de Zhao. »
 
 Wang Lin le remercia rapidement et se dirigea vers le pavillon. Lorsqu'il fut à 16,5 mètres de l'entrée, il détecta soudainement des ondes d'énergie émanant du bâtiment, comme si elles tentaient de lui barrer la route.
 

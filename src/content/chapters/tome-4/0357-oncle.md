@@ -148,4 +148,4 @@ Cependant, les provocateurs ne cessèrent jamais de venir. Parmi eux se trouvaie
 
 Depuis qu'il avait commencé à tuer, il ne faisait aucun quartier. Chaque challenger qui osait approcher était exécuté. Les gens finirent par cesser de le défier, mais quelques rares individus apparaissaient encore occasionnellement.
 
-Une voix glaciale s'éleva des montagnes: « Ceng Niu, Liao Fan de Xue Yu est ici pour réclamer les trésors restants de l'éventail à plumes! »
+Une voix glaciale s'éleva des montagnes: « Ceng Niu, Liao Fan du Pays Xue Yu est ici pour réclamer les trésors restants de l'éventail à plumes! »

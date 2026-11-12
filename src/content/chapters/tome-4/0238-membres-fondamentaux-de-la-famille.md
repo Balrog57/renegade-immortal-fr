@@ -14,7 +14,7 @@ L'homme hésita un instant. Il esquissa un sourire amer et dit: « Senior, junio
 
 Wang Lin l'observa attentivement et répliqua: « Ah bon? Pour qui m'avez-vous pris? »
 
-L'homme sourit amèrement et s'exclama: « Senior, junior avait autrefois un frère instructeur junior. C'est moi qui l'avais amené au sein de la secte... »
+L'homme sourit amèrement et s'exclama: « Senior, junior avait autrefois un Junior frère. C'est moi qui l'avais amené au sein de la secte... »
 
 Le cœur de Wang Lin chancela. Il se souvint enfin de l'identité de cet homme. Après une courte réflexion, il agita ses manches et disparut de la Secte He Huan, emportant l'homme d'âge moyen avec lui.
 
@@ -22,7 +22,7 @@ Sur une falaise située à une cinquantaine de kilomètres de là, Wang Lin et l
 
 L'homme regarda autour de lui, affichant une expression complexe, et murmura doucement: « Vous... »
 
-Wang Lin soupira discrètement et dit: « Senior frère instructeur Zhang, si vous m'aviez reconnu, pourquoi ne pas l'avoir simplement dit? »
+Wang Lin soupira discrètement et dit: « Senior frère Zhang, si vous m'aviez reconnu, pourquoi ne pas l'avoir simplement dit? »
 
 Le corps de l'homme tressaillit. Après un moment de réflexion, il eut un sourire amer et répondit: « Je... eh bien... »
 
@@ -34,7 +34,7 @@ L'homme murmura: « Je n'y suis pas retourné depuis de nombreuses années... »
 
 L'homme sourit amèrement et expliqua: « Après votre départ et votre absence prolongée, les ancêtres ont concentré tous leurs efforts sur moi. Ils se sont investis pour élever mon niveau de culture jusqu'à la Formation du Noyau. Je suis ensuite parti de la Secte Heng Yue avec l'intention de parcourir le monde et d'affronter les épreuves, dans l'espoir d'atteindre un jour le stade de l'Âme Naissante afin de restaurer la secte. Mais je ne m'attendais pas à rencontrer une femme. C'était une disciple de la Secte He Huan... Hélas, toute ma culture a été perdue. Cependant, cette traînée ne m'a pas tué par égard pour notre passé et utilise mon corps pour raffiner une Pilule He Huan. Bien que je sois devenu un moins que rien, je resterai en vie jusqu'à ce que la pilule soit achevée. Si cela n'avait pas été le cas, je ne serais déjà plus qu'un tas d'os. »
 
-Wang Lin réfléchit un instant. Il tapota sa sacoche de rangement et en sortit une petite bouteille de jade blanc. Il la tendit à l'homme et dit: « Il y a sept pilules dans cette bouteille. Vous devez en prendre une par mois. Après sept mois, vous devriez être capable de recouvrer au moins la moitié de votre culture. Senior frère instructeur Zhang, j'ai encore des affaires impérieuses à régler. J'espère qu'après ces adieux, nous aurons l'occasion de nous revoir. »
+Wang Lin réfléchit un instant. Il tapota sa sacoche de rangement et en sortit une petite bouteille de jade blanc. Il la tendit à l'homme et dit: « Il y a sept pilules dans cette bouteille. Vous devez en prendre une par mois. Après sept mois, vous devriez être capable de recouvrer au moins la moitié de votre culture. Senior frère Zhang, j'ai encore des affaires impérieuses à régler. J'espère qu'après ces adieux, nous aurons l'occasion de nous revoir. »
 
 Sur ces mots, Wang Lin posa un regard profond sur l'homme, puis son corps s'anima et disparut. Lorsqu'il réapparut, il était déjà en plein ciel, debout sur la bête moustique qui transportait les cadavres derrière elle.
 
@@ -78,11 +78,11 @@ Ces sept devaient mourir!
 
 Par une nuit sans lune et battue par le vent, propice au meurtre, une légère odeur de sang se répandit lentement dans le ciel. La silhouette de Wang Lin, pareille à un rakshasa venu réclamer des vies, vola lentement vers une étendue de dunes au loin.
 
-« Teng Neuf » était un nom, mais aussi un titre honorifique.
+« Teng Jiu » était un nom, mais aussi un titre honorifique.
 
 Ce nom avait changé de titulaire à plusieurs reprises. Pour être précis, six fois.
 
-Teng Neuf se trouvait dans une pièce cachée. La chambre semblait très modeste, mais il savait qu'elle susciterait l'envie la plus féroce chez n'importe quel autre membre de la famille.
+Teng Jiu se trouvait dans une pièce cachée. La chambre semblait très modeste, mais il savait qu'elle susciterait l'envie la plus féroce chez n'importe quel autre membre de la famille.
 
 Après tout, il avait lui-même été l'un de ces membres envieux.
 
@@ -98,13 +98,13 @@ Par divers moyens, il était devenu progressivement l'un des neuf. Ce poste avai
 
 Pour remporter ses défis, il pratiquait l'art le plus vicieux de la famille Teng. Cette technique lui permettait de consommer l'énergie spirituelle d'autrui pour accroître sa propre culture. Bien que cela réduisît considérablement son espérance de vie, cela lui permettait de progresser avec une rapidité fulgurante.
 
-Après tout, son adversaire était le précédent titulaire du nom de Teng Neuf, dont la culture avait déjà atteint le stade avancé de la Formation du Noyau.
+Après tout, son adversaire était le précédent titulaire du nom de Teng Jiu, dont la culture avait déjà atteint le stade avancé de la Formation du Noyau.
 
-Teng Neuf contempla la chambre cachée avec satisfaction. Celle-ci contenait dix fois plus d'énergie spirituelle que l'extérieur. Bien que simple en apparence, elle était entièrement construite en pierres spirituelles de haute qualité.
+Teng Jiu contempla la chambre cachée avec satisfaction. Celle-ci contenait dix fois plus d'énergie spirituelle que l'extérieur. Bien que simple en apparence, elle était entièrement construite en pierres spirituelles de haute qualité.
 
 Sous cette chambre coulait une veine spirituelle. Bien qu'elle ne fût pas immense, son usage exclusif pour la culture d'un seul homme représentait un luxe inimaginable.
 
-Des pilules? Teng Neuf n'en manquait jamais. S'il en réclamait, la famille Teng déploierait tous les moyens nécessaires pour lui en procurer.
+Des pilules? Teng Jiu n'en manquait jamais. S'il en réclamait, la famille Teng déploierait tous les moyens nécessaires pour lui en procurer.
 
 Des techniques? Il en possédait de nombreuses. Quelle que soit la technique d'une secte qu'il désirait voir, la famille Teng se chargeait de la lui procurer par tous les moyens.
 
@@ -112,7 +112,7 @@ Des trésors magiques? Il en était pourvu, et chacun d'eux était un trésor de
 
 Des femmes? Il n'en manquait pas non plus. Dès qu'il en avait besoin, la famille Teng lui envoyait aussitôt d'innombrables femmes possédant un certain niveau de culture, pour qu'il les absorbe.
 
-Teng Neuf n'avait aucune inquiétude à se faire. C'était là le privilège d'un membre fondamental. Sa seule tâche était de cultiver, cultiver et encore cultiver!
+Teng Jiu n'avait aucune inquiétude à se faire. C'était là le privilège d'un membre fondamental. Sa seule tâche était de cultiver, cultiver et encore cultiver!
 
 Le corps de Wang Lin flottait dans les airs. Grâce à son Sens Divin, il pouvait clairement percevoir la chambre cachée sous les dunes de sable. À l'intérieur se trouvait sa proie.
 
@@ -126,6 +126,6 @@ Il faut dire que pour devenir un démon, il fallait posséder une nature féroce
 
 Wang Lin forma un sceau de sa main droite et le pressa vers le sol. Sur la dune de sable, l'empreinte d'une main apparut et s'enfonça lentement dans la terre.
 
-Dans la chambre cachée, Teng Neuf ouvrit soudainement les yeux et, sans aucune hésitation, disparut de la pièce. À l'instant même de sa disparition, la chambre s'effondra, formant un tourbillon de sable.
+Dans la chambre cachée, Teng Jiu ouvrit soudainement les yeux et, sans aucune hésitation, disparut de la pièce. À l'instant même de sa disparition, la chambre s'effondra, formant un tourbillon de sable.
 
-Lorsque Teng Neuf réapparut, il flottait déjà dans les airs, exhalant une aura meurtrière. Il regarda la chambre effondrée, puis Wang Lin, tandis que son intention meurtrière atteignait son paroxysme.
+Lorsque Teng Jiu réapparut, il flottait déjà dans les airs, exhalant une aura meurtrière. Il regarda la chambre effondrée, puis Wang Lin, tandis que son intention meurtrière atteignait son paroxysme.

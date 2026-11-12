@@ -14,7 +14,7 @@ Après que ces mains monstrueuses eurent traversé la faille, elles s'en saisire
 
 Il mesurait plus de 33 mètres de haut et son corps était semblable à ses mains, couvert de pustules. Certaines étaient même rompues, laissant suinter un liquide noir et fétide. Une épine osseuse émergeait de chaque pustule. Si l'on regardait cet être en dehors de ses articulations, il était entièrement recouvert d'épines osseuses.
 
-Des lambeaux de tissu déchiré pendaient sur ces pointes. En observant son visage hideux, on pouvait constater qu'il ressemblait grandement à Bossu Meng, mais sa stature était bien plus imposante.
+Des lambeaux de tissu déchiré pendaient sur ces pointes. En observant son visage hideux, on pouvait constater qu'il ressemblait grandement à Meng Tuozi, mais sa stature était bien plus imposante.
 
 Sur sa tête trônaient deux cornes en spirale entre lesquelles crépitaient des éclairs bleus. Il ressemblait actuellement à un démon surgi des enfers. Il se traîna hors de la déchirure, puis pinça du doigt de sa main droite. La faille se rétracta instantanément jusqu'à redevenir une simple étincelle de lumière. Elle trembla violemment avant de disparaître sans laisser de trace.
 
@@ -28,7 +28,7 @@ Depuis que Wang Lin était devenu un dévoreur d'âmes, il avait perdu toutes le
 
 Peu après, l'âme errante sous son contrôle utilisa une technique spéciale pour transmettre ce qu'elle voyait à Wang Lin.
 
-« Ceci... ceci est... Bossu Meng! » Wang Lin fut surpris. Bien que Bossu Meng ait énormément changé, Wang Lin pouvait toujours reconnaître que ce démon était bel et bien lui.
+« Ceci... ceci est... Meng Tuozi! » Wang Lin fut surpris. Bien que Meng Tuozi ait énormément changé, Wang Lin pouvait toujours reconnaître que ce démon était bel et bien lui.
 
 Wang Lin rétracta son Sens Divin, arrêta l'attaque des âmes errantes et transmit un message à l'Empereur Antique.
 
@@ -42,7 +42,7 @@ Soudainement, il ajouta: « Senior, si vous recherchez le trésor de l'héritage
 
 Wang Lin réfléchit un instant tout en sentant la forte fluctuation d'âme approcher. Il utilisa les âmes errantes sous son contrôle pour évaluer précisément la distance qui les séparait. Tout en discutant avec l'Empereur Antique, il dirigeait les âmes errantes pour lui barrer la route.
 
-Cependant, le corps de Bossu Meng était très étrange; peu importait le nombre d'âmes errantes qui l'attaquaient, elles ne parvenaient pas à lui infliger la moindre blessure. Cela surprit Wang Lin.
+Cependant, le corps de Meng Tuozi était très étrange; peu importait le nombre d'âmes errantes qui l'attaquaient, elles ne parvenaient pas à lui infliger la moindre blessure. Cela surprit Wang Lin.
 
 Wang Lin ne croyait pas l'Empereur Antique lorsqu'il affirmait que l'héritage n'était pas avec lui, mais chez le Seigneur Démon des Six Désirs. Même si ce qu'il disait était vrai, des gens comme l'Empereur Antique n'entreraient pas aussi imprudemment dans la Terre Gu Shen, sans quoi ils seraient totalement à la merci du Seigneur Démon des Six Désirs. Après tout, ce dernier détenait la clé pour entrer et sortir de cet endroit.
 
@@ -62,7 +62,7 @@ Ce sort devait être utilisé spécifiquement à un tourbillon de sortie. S'il �
 
 « Si vous me conduisez simplement à la sortie de la troisième épreuve, je vous enseignerai le sort en échange! » L'Empereur Antique paraissait calme, mais intérieurement, il cherchait à comprendre les motivations de cet individu. Bien qu'il ignorât ses intentions, il devait répondre, sous peine de subir l'assaut incessant des âmes errantes. À ce stade, la seule autre option était la mort.
 
-Wang Lin ne répondit plus. Il projeta son Sens Divin et, une fois de plus, toutes les âmes errantes environnantes lancèrent l'attaque. Wang Lin calcula avec précision: selon les informations recueillies par les âmes errantes, Bossu Meng devrait arriver dans le temps qu'il faut pour que deux bâtons d'encens brûlent.
+Wang Lin ne répondit plus. Il projeta son Sens Divin et, une fois de plus, toutes les âmes errantes environnantes lancèrent l'attaque. Wang Lin calcula avec précision: selon les informations recueillies par les âmes errantes, Meng Tuozi devrait arriver dans le temps qu'il faut pour que deux bâtons d'encens brûlent.
 
 Sous les ordres de Wang Lin, les attaques des âmes errantes s'intensifièrent. Pour accélérer le processus, Wang Lin étendit son Sens Divin afin d'appeler davantage d'âmes errantes à rejoindre l'assaut.
 
@@ -92,7 +92,7 @@ Dans l'espace vide, le corps de l'Empereur Antique rétrécissait, son visage li
 
 Même si son trésor de vie n'avait pas été brisé, ou si sa culture était encore au stade intermédiaire de la Formation de l'Âme, il n'aurait tout de même pas pu faire face à tant d'âmes errantes tentant de le dévorer.
 
-Peu après le départ de Wang Lin, Bossu Meng arriva. Son corps se déplaçait telle une étoile filante. Il jeta un regard sur l'Empereur Antique et fronça les sourcils; l'odeur répugnante avait disparu. Alors qu'il s'apprêtait à la suivre, il s'arrêta brusquement et fixa l'Empereur Antique. Une pensée traversa son esprit.
+Peu après le départ de Wang Lin, Meng Tuozi arriva. Son corps se déplaçait telle une étoile filante. Il jeta un regard sur l'Empereur Antique et fronça les sourcils; l'odeur répugnante avait disparu. Alors qu'il s'apprêtait à la suivre, il s'arrêta brusquement et fixa l'Empereur Antique. Une pensée traversa son esprit.
 
 Il tendit la main, saisit le corps flétri de l'Empereur Antique et le secoua violemment jusqu'à ce que toutes les âmes errantes soient expulsées de son corps.
 
@@ -100,7 +100,7 @@ Une fois les âmes errantes évacuées, un sourire glacial aux lèvres, le démo
 
 À travers la faille ainsi ouverte, on pouvait clairement voir que l'autre côté était un monde rouge sang. Le sol était recouvert d'une épaisse couche de sang, et même le ciel était écarlate, comme un morceau de tissu bleu trempé dans le sang.
 
-Sur ce sol ensanglanté siégeaient de nombreux cultivateurs qui ressemblaient tous au Bossu Meng actuel. Ils étaient tous immenses et possédaient entre une et quatre cornes sur la tête.
+Sur ce sol ensanglanté siégeaient de nombreux cultivateurs qui ressemblaient tous à Meng Tuozi actuel. Ils étaient tous immenses et possédaient entre une et quatre cornes sur la tête.
 
 Dans cette terre de sang, de nombreux piliers de pierre s'élevaient, et un cultivateur trônait au sommet de chacun d'eux. En regardant au loin, on distinguait de nombreux piliers de tailles diverses, mais le plus imposant semblait s'élancer vers les cieux. Au sommet de ce pilier siégeait un cultivateur aux cheveux roux. Bien que son visage fût difficilement discernable, une aura d'arrogance et de fierté émanait de lui.
 
@@ -114,33 +114,33 @@ Il y avait aussi le Fou du Sud Wu Bai, submergé par des dizaines de milliers de
 
 Quant au Magicien Démon Céleste, le maître du Seigneur Démon des Six Désirs, l'Empereur Antique l'avait suivi de près il y a mille ans. Il avait vu personnellement ce dernier créer un tunnel grâce au trésor de l'héritage pour s'échapper, avant d'être attaqué par un Sens Divin très inhabituel et de mourir instantanément.
 
-En voyant tous ces êtres censés être morts, il ne put s'empêcher de ressentir un frisson dans son cœur. Soudain, il tourna la tête et vit, à travers la faille, un démon ressemblant à Bossu Meng.
+En voyant tous ces êtres censés être morts, il ne put s'empêcher de ressentir un frisson dans son cœur. Soudain, il tourna la tête et vit, à travers la faille, un démon ressemblant à Meng Tuozi.
 
-« Bossu Meng! » Les pupilles de l'Empereur Antique se rétractèrent. La faille se referma à cet instant précis. L'Empereur Antique était très prudent; bien que cet endroit fût peuplé de cultivateurs, il était évident qu'il s'agissait de ceux qui étaient morts dans la Terre Gu Shen au fil des ans.
+« Meng Tuozi! » Les pupilles de l'Empereur Antique se rétractèrent. La faille se referma à cet instant précis. L'Empereur Antique était très prudent; bien que cet endroit fût peuplé de cultivateurs, il était évident qu'il s'agissait de ceux qui étaient morts dans la Terre Gu Shen au fil des ans.
 
 Une voix rauque parvint de loin: « Bienvenue dans la Mer de Sang Yao Shen... »
 
-La vitesse de Wang Lin était très élevée. En peu de temps, il pourrait traverser cette troisième épreuve. Mais à mi-chemin, il s'arrêta, remarquant le changement de position de l'Empereur Antique grâce à sa connexion avec les âmes errantes. Il vit Bossu Meng ouvrir la faille et l'Empereur Antique y être jeté. Même la lueur rouge émanant de la brèche fut perçue par Wang Lin via les âmes errantes.
+La vitesse de Wang Lin était très élevée. En peu de temps, il pourrait traverser cette troisième épreuve. Mais à mi-chemin, il s'arrêta, remarquant le changement de position de l'Empereur Antique grâce à sa connexion avec les âmes errantes. Il vit Meng Tuozi ouvrir la faille et l'Empereur Antique y être jeté. Même la lueur rouge émanant de la brèche fut perçue par Wang Lin via les âmes errantes.
 
 Wang Lin réfléchit un instant. Bien qu'il possède le morceau de jade contenant le sort pour s'échapper, il ignorait si l'Empereur Antique l'avait altéré. Par sécurité, il allait chercher Duanmu, Wang Qingyue et le Seigneur Démon des Six Désirs pour leur demander la méthode d'évasion.
 
-Cependant, l'apparition de Bossu Meng et la lumière rouge de la faille lui firent pressentir un terrible présage. Il renonça à chercher Duanmu ou Wang Qingyue et décida de battre en retraite vers son corps caché.
+Cependant, l'apparition de Meng Tuozi et la lumière rouge de la faille lui firent pressentir un terrible présage. Il renonça à chercher Duanmu ou Wang Qingyue et décida de battre en retraite vers son corps caché.
 
-En chemin, il suivait les mouvements de Bossu Meng grâce aux âmes errantes. Il nota que le démon ne se dirigeait pas vers lui, mais vers Duanmu et Wang Qingyue. Wang Lin accéléra pour rejoindre son corps au plus vite. Lorsque le démon Xu Liguo et le second démon remarquèrent son retour, ils s'envolèrent immédiatement de la roche.
+En chemin, il suivait les mouvements de Meng Tuozi grâce aux âmes errantes. Il nota que le démon ne se dirigeait pas vers lui, mais vers Duanmu et Wang Qingyue. Wang Lin accéléra pour rejoindre son corps au plus vite. Lorsque le démon Xu Liguo et le second démon remarquèrent son retour, ils s'envolèrent immédiatement de la roche.
 
 Wang Lin utilisa rapidement sa conscience divine pour réintégrer son corps physique. Après un court instant, ses yeux s'ouvrirent. Au cours de ce voyage, son âme avait considérablement progressé.
 
 Il déplaça son corps et sortit de la roche. Sans aucune hésitation, il se dirigea vers le quatrième royaume.
 
-Le visage de Wang Lin était sombre. L'apparition de Bossu Meng perturbait ses plans et lui inspirait l'horreur. Plus important encore, Bossu Meng était immunisé contre les attaques des âmes errantes.
+Le visage de Wang Lin était sombre. L'apparition de Meng Tuozi perturbait ses plans et lui inspirait l'horreur. Plus important encore, Meng Tuozi était immunisé contre les attaques des âmes errantes.
 
 C'était la raison principale pour laquelle Wang Lin avait décidé de quitter la troisième épreuve le plus vite possible. Il savait qu'en termes de culture, il était bien trop faible face à ces anciens briscards. Sans la présence massive d'âmes errantes, il ne pourrait absolument pas rivaliser avec eux; il n'aurait même pas les qualifications pour discuter avec eux.
 
-Maintenant que les âmes errantes étaient inutiles contre Bossu Meng, Wang Lin avait perdu son seul avantage. S'ils se rencontraient, sa seule issue serait la mort. Un simple geste de la main de Bossu Meng suffirait à le faire disparaître comme de la fumée.
+Maintenant que les âmes errantes étaient inutiles contre Meng Tuozi, Wang Lin avait perdu son seul avantage. S'ils se rencontraient, sa seule issue serait la mort. Un simple geste de la main de Meng Tuozi suffirait à le faire disparaître comme de la fumée.
 
 Wang Lin connaissait parfaitement ses limites. Bien qu'il ait eu l'avantage jusqu'ici, il savait que c'était uniquement parce qu'il pouvait emprunter une force extérieure.
 
-Si Bossu Meng n'avait pas été encerclé par les tornades à l'époque, Wang Lin n'aurait même pas eu l'occasion de frapper un chien qui se noie.
+Si Meng Tuozi n'avait pas été encerclé par les tornades à l'époque, Wang Lin n'aurait même pas eu l'occasion de frapper un chien qui se noie.
 
 Mais maintenant que cette force externe avait disparu et que les deux adversaires partaient sur un pied d'égalité, aussi courageux fût-il, il n'avait d'autre choix que de fuir immédiatement.
 
@@ -150,17 +150,17 @@ S'il avait abandonné son corps physique pour voyager uniquement sous forme d'â
 
 Alors qu'il n'avait parcouru que la moitié du chemin, Wang Lin s'arrêta brusquement. Il tourna la tête vers Duanmu et Wang Qingyue. Son visage devint livide en témoignant d'une scène d'horreur à travers les âmes errantes.
 
-Duanmu et Wang Qingyue ne firent pas long feu sous l'assaut de Bossu Meng. Ce dernier ouvrit une faille d'où surgit une main démoniaque gigantesque qui empoigna les deux hommes sans qu'ils puissent opposer la moindre résistance. Cette main démoniaque était hérissée d'épines osseuses, et une aura maléfique s'en dégageait, faisant trembler de peur quiconque la croisait.
+Duanmu et Wang Qingyue ne firent pas long feu sous l'assaut de Meng Tuozi. Ce dernier ouvrit une faille d'où surgit une main démoniaque gigantesque qui empoigna les deux hommes sans qu'ils puissent opposer la moindre résistance. Cette main démoniaque était hérissée d'épines osseuses, et une aura maléfique s'en dégageait, faisant trembler de peur quiconque la croisait.
 
 L'incertitude se lut sur le visage de Wang Lin. Il récupéra les démons Xu Liguo et le second, puis avala une grande gorgée de liquide énergétique spirituel pour utiliser toute son énergie spirituelle afin de fuir rapidement.
 
-Il sentait déjà que Bossu Meng, tel un démon, le poursuivait à une vitesse extrême.
+Il sentait déjà que Meng Tuozi, tel un démon, le poursuivait à une vitesse extrême.
 
-Wang Lin voyagea à toute allure, le visage sombre, calculant sans cesse. S'ils maintenaient leur vitesse actuelle, il devrait atteindre le tourbillon de sortie de la troisième épreuve avant d'être rattrapé par Bossu Meng.
+Wang Lin voyagea à toute allure, le visage sombre, calculant sans cesse. S'ils maintenaient leur vitesse actuelle, il devrait atteindre le tourbillon de sortie de la troisième épreuve avant d'être rattrapé par Meng Tuozi.
 
-C'est alors que le démon Bossu Meng utilisa une étrange méthode inconnue de Wang Lin. Il recouvrit son corps d'une lueur rouge sang et sa vitesse fut multipliée par plusieurs. À mesure que la distance se réduisait, la vitesse de Bossu Meng ne diminuait pas; elle augmentait encore.
+C'est alors que le démon Meng Tuozi utilisa une étrange méthode inconnue de Wang Lin. Il recouvrit son corps d'une lueur rouge sang et sa vitesse fut multipliée par plusieurs. À mesure que la distance se réduisait, la vitesse de Meng Tuozi ne diminuait pas; elle augmentait encore.
 
-Le cœur de Wang Lin sombra: s'il continuait ainsi, Bossu Meng le rattraperait en moins du temps qu'il faut pour qu'un bâton d'encens brûle.
+Le cœur de Wang Lin sombra: s'il continuait ainsi, Meng Tuozi le rattraperait en moins du temps qu'il faut pour qu'un bâton d'encens brûle.
 
 Il lui faudrait au moins le temps de deux bâtons d'encens pour atteindre la sortie. Wang Lin balaya les environs de son Sens Divin, utilisant les âmes errantes pour scanner rapidement la zone. Ses yeux restèrent fixés dans une direction tandis qu'il élaborait un plan audacieux.
 
@@ -182,7 +182,7 @@ Alors que le Seigneur Démon des Six Désirs s'apprêtait à agir, il s'arrêta 
 
 Il n'osa pas agir avec précipitation et fixa froidement Wang Lin, voulant voir ce que ce maudit jeune homme allait tenter. Wang Lin s'arrêta à la limite du rayon de mille pieds du Seigneur Démon des Six Désirs; la présence de ces âmes errantes servait d'avertissement pour que ce dernier ne commette aucune imprudence.
 
-Le message de Wang Lin fut reçu et le Seigneur Démon des Six Désirs ne fit rien de risqué. Wang Lin poussa un soupir de soulagement. Bien qu'il ne craignît pas le Seigneur Démon des Six Désirs grâce aux âmes errantes, ce dernier possédait un trésor magique très étrange. S'ils entraient en combat, cela durerait, et Bossu Meng se rapprochait trop vite.
+Le message de Wang Lin fut reçu et le Seigneur Démon des Six Désirs ne fit rien de risqué. Wang Lin poussa un soupir de soulagement. Bien qu'il ne craignît pas le Seigneur Démon des Six Désirs grâce aux âmes errantes, ce dernier possédait un trésor magique très étrange. S'ils entraient en combat, cela durerait, et Meng Tuozi se rapprochait trop vite.
 
 Wang Lin regarda le Seigneur Démon des Six Désirs avec une expression embarrassée tout en calculant silencieusement le temps restant. Le Seigneur Démon des Six Désirs plissa les yeux. N'ayant pas la capacité de Wang Lin à contrôler les âmes errantes, il ignorait l'existence du démon qui fonçait sur lui. En voyant l'hésitation de Wang Lin, bien qu'il ait des doutes, il eut un sourire froid.
 
@@ -192,20 +192,20 @@ Wang Lin compta secrètement quelques respirations et afficha un sourire étrang
 
 Aussitôt ses paroles prononcées, il chargea vers le nord-ouest, s'engouffrant dans la foule d'âmes errantes.
 
-Le Seigneur Démon des Six Désirs fronça les sourcils. Alors qu'il analysait la situation, son visage pâlit soudainement. Il vit une météorite rouge sang foncer sur lui. En un clin d'œil, elle se trouvait déjà à mille pieds de lui. La silhouette démoniaque gigantesque de Bossu Meng venait d'apparaître.
+Le Seigneur Démon des Six Désirs fronça les sourcils. Alors qu'il analysait la situation, son visage pâlit soudainement. Il vit une météorite rouge sang foncer sur lui. En un clin d'œil, elle se trouvait déjà à mille pieds de lui. La silhouette démoniaque gigantesque de Meng Tuozi venait d'apparaître.
 
-« Toi... Tu es le Bossu Meng? Tu... tu as consommé une pilule de Transformation de l'Âme? » Les pupilles du Seigneur Démon des Six Désirs se rétractèrent. Il percevait, à la pression dégagée par Bossu Meng, qu'il était déjà au stade avancé de la Formation de l'Âme, n'étant qu'à un pas de la Transformation de l'Âme.
+« Toi... Tu es Meng Tuozi? Tu... tu as consommé une pilule de Transformation de l'Âme? » Les pupilles du Seigneur Démon des Six Désirs se rétractèrent. Il percevait, à la pression dégagée par Meng Tuozi, qu'il était déjà au stade avancé de la Formation de l'Âme, n'étant qu'à un pas de la Transformation de l'Âme.
 
 La seule façon d'atteindre ce niveau de culture était de consommer une pilule de Transformation de l'Âme!
 
-Cependant, le Seigneur Démon des Six Désirs déplaça immédiatement le corps du jeune homme devant lui et le mit à l'horizontale. En fixant Bossu Meng, il demanda: « Ce n'est pas dû à une pilule de Transformation de l'Âme. Qu'as-tu donc mangé pour te transformer ainsi?! »
+Cependant, le Seigneur Démon des Six Désirs déplaça immédiatement le corps du jeune homme devant lui et le mit à l'horizontale. En fixant Meng Tuozi, il demanda: « Ce n'est pas dû à une pilule de Transformation de l'Âme. Qu'as-tu donc mangé pour te transformer ainsi?! »
 
-Bossu Meng fixa le Seigneur Démon des Six Désirs de ses grands yeux. L'individu devant lui lui semblait très familier. En fait, ce n'était pas la première fois qu'il ressentait cela. Lorsqu'il voyait l'Empereur Antique, Duanmu ou Wang Qingyue, ils lui procuraient tous une sensation familière. Pourtant, malgré ses efforts, il ne parvenait absolument pas à se souvenir de quoi.
+Meng Tuozi fixa le Seigneur Démon des Six Désirs de ses grands yeux. L'individu devant lui lui semblait très familier. En fait, ce n'était pas la première fois qu'il ressentait cela. Lorsqu'il voyait l'Empereur Antique, Duanmu ou Wang Qingyue, ils lui procuraient tous une sensation familière. Pourtant, malgré ses efforts, il ne parvenait absolument pas à se souvenir de quoi.
 
-Il balaya rapidement cette sensation de son esprit. Il esquissa un sourire cruel et déclara: « Mon nom n'est pas Bossu Meng, je suis le Dieu Démon Tu Si! »
+Il balaya rapidement cette sensation de son esprit. Il esquissa un sourire cruel et déclara: « Mon nom n'est pas Meng Tuozi, je suis le Dieu Démon Tu Si! »
 
 Tout en parlant, il balaya l'espace vide de sa main droite couverte d'épines osseuses, créant une immense déchirure. Dès que la faille apparut, des vagues de lumière rouge en jaillirent. Peu après, une silhouette écarlate haute de cent pieds émergea de la brèche.
 
-« Je te laisse cette personne. Je vais poursuivre le prochain! » lança Bossu Meng avant de s'envoler.
+« Je te laisse cette personne. Je vais poursuivre le prochain! » lança Meng Tuozi avant de s'envoler.
 
 Le Seigneur Démon des Six Désirs resta bouche bée devant l'individu. Il murmura pour lui-même: « Maître... »

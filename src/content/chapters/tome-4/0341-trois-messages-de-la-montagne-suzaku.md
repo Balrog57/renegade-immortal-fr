@@ -44,27 +44,27 @@ Après avoir hésité, il fit quelques pas en avant. Soudain, une pression terri
 
 Curieux, le vieil homme Hu scruta la vallée et aperçut une pagode. Au pied de celle-ci siégeait un individu, mais aucune trace de vie ne s'en dégageait. On aurait dit un corps momifié.
 
-Le jeune homme tenta plusieurs fois de progresser, mais ne parvint pas à pénétrer plus de cinq kilomètres au sein de la barrière. Son expression était troublée et, finalement, il joignit les mains et déclara: « Je suis Feng Yushan de Suzaku. Je souhaite saluer le cultivateur Ceng Niu! »
+Le jeune homme tenta plusieurs fois de progresser, mais ne parvint pas à pénétrer plus de cinq kilomètres au sein de la barrière. Son expression était troublée et, finalement, il joignit les mains et déclara: « Je suis Feng Yushan de Suzaku. Je souhaite saluer le cultivateur Zeng Niu! »
 
-« Ceng Niu! » Les yeux du vieil homme Hu devinrent graves. Il était sous le choc. Son regard se posa instinctivement sur le corps momifié au pied de la pagode. Rien n'était étonnant à ce qu'il soit si bouleversé. Le nom de Ceng Niu était devenu légendaire dans la Mer Xiu Mo, et les récits à son sujet semblaient ne jamais finir.
+« Zeng Niu! » Les yeux du vieil homme Hu devinrent graves. Il était sous le choc. Son regard se posa instinctivement sur le corps momifié au pied de la pagode. Rien n'était étonnant à ce qu'il soit si bouleversé. Le nom de Zeng Niu était devenu légendaire dans la Mer Xiu Mo, et les récits à son sujet semblaient ne jamais finir.
 
 Une rumeur disait qu'il avait été secrètement entraîné par Suzaku et qu'il serait l'héritier du titre de Suzaku. Autrement, comment expliquer que Suzaku n'ait pas réagi avec son habituelle arrogance après qu'il eut arraché un bras à Hongdie?
 
-Une autre rumeur affirmait qu'il était le disciple d'une puissance occulte et que son talent surpassait de loin celui de Hongdie. On disait également qu'au sein de cette force secrète résidaient de nombreux cultivateurs bien plus puissants que Ceng Niu, raison pour laquelle Suzaku n'osait pas s'en prendre à lui.
+Une autre rumeur affirmait qu'il était le disciple d'une puissance occulte et que son talent surpassait de loin celui de Hongdie. On disait également qu'au sein de cette force secrète résidaient de nombreux cultivateurs bien plus puissants que Zeng Niu, raison pour laquelle Suzaku n'osait pas s'en prendre à lui.
 
-De plus, des rumeurs plus insensées encore prétendaient que Ceng Niu ne pratiquait la culture que depuis moins de soixante ans, ce qui le rendait plus précieux aux yeux de Suzaku que Hongdie elle-même.
+De plus, des rumeurs plus insensées encore prétendaient que Zeng Niu ne pratiquait la culture que depuis moins de soixante ans, ce qui le rendait plus précieux aux yeux de Suzaku que Hongdie elle-même.
 
 Les histoires et les légendes de ce genre étaient légion.
 
-« Ceng Niu! » Les yeux de la femme voilée s'illuminèrent et sa respiration devint saccadée. Elle se persuada que si Ceng Niu l'aidait, tout serait réglé.
+« Zeng Niu! » Les yeux de la femme voilée s'illuminèrent et sa respiration devint saccadée. Elle se persuada que si Zeng Niu l'aidait, tout serait réglé.
 
 L'homme à ses côtés laissa transparaître une pointe de respect dans son regard.
 
-« Je n'aurais jamais cru que le célèbre Ceng Niu se trouverait ici! » Qiu Siping prit une profonde inspiration.
+« Je n'aurais jamais cru que le célèbre Zeng Niu se trouverait ici! » Qiu Siping prit une profonde inspiration.
 
 « Pas étonnant qu'un messager de Suzaku soit venu en Chu! » Xu Luo afficha un air d'incrédulité.
 
-La belle femme murmura doucement: « Je me demande quel lien unit ce Ceng Niu à Chu... »
+La belle femme murmura doucement: « Je me demande quel lien unit ce Zeng Niu à Chu... »
 
 À l'instant même où elle prononça ces mots, le vieil homme Hu réfléchit un instant et ordonna: « Annulez l'ordre d'envoyer quelqu'un à la Secte Yun Tian. »
 
@@ -82,7 +82,7 @@ Dès qu'il eut fini de parler, une force colossale jaillit de la vallée. Cette 
 
 Une série de craquements retentit au sein de cette main. Le front de Feng Yushan était perlé de sueur et ses yeux étaient emplis de terreur.
 
-« Je suis un messager de Suzaku! Ceng Niu, ne sois pas téméraire! Je ne suis venu que pour remettre la lettre de défi! »
+« Je suis un messager de Suzaku! Zeng Niu, ne sois pas téméraire! Je ne suis venu que pour remettre la lettre de défi! »
 
 Une voix calme émana de la vallée: « La date! »
 
@@ -96,7 +96,7 @@ Feng Yushan répondit sans hésiter: « Je l'ignore réellement. Ce message prov
 
 Après un silence, la voix de Wang Lin résonna de nouveau dans la vallée: « Je n'ai pas le temps. »
 
-La main invisible qui entravait Feng Yushan disparut, lui rendant sa liberté. Son dos était trempé de sueur froide; il comprenait enfin l'étendue de la terreur que représentait Ceng Niu. Il avait d'abord cru que Ceng Niu n'avait pu arracher le bras de la sœur apprentie Hongdie qu'en utilisant des ruses.
+La main invisible qui entravait Feng Yushan disparut, lui rendant sa liberté. Son dos était trempé de sueur froide; il comprenait enfin l'étendue de la terreur que représentait Zeng Niu. Il avait d'abord cru que Zeng Niu n'avait pu arracher le bras de la Senior sœur Hongdie qu'en utilisant des ruses.
 
 Désormais, il n'en pensait plus rien.
 
@@ -134,10 +134,10 @@ Le vieil homme Hu regarda Wang Lin avec un sourire amer: « Je ne sais si je doi
 
 Wang Lin prit une tasse, en but une gorgée et sourit: « Les noms ne sont que des étiquettes par lesquelles nous nous nommons. Nul besoin de s'en inquiéter outre mesure. »
 
-La femme au voile blanc ne quittait pas Wang Lin des yeux, le visage empreint d'une émotion complexe. Elle n'aurait jamais imaginé que le célèbre Ceng Niu fût cet homme.
+La femme au voile blanc ne quittait pas Wang Lin des yeux, le visage empreint d'une émotion complexe. Elle n'aurait jamais imaginé que le célèbre Zeng Niu fût cet homme.
 
 Wang Lin la regarda et dit: « Dix ans se sont écoulés depuis notre séparation, et Madame est toujours aussi belle qu'autrefois. Je présume que vous vous rendez au Cimetière des Immortels, puisque vous accompagnez l'honorable cultivateur Hu? »
 
-La femme voilée murmura: « En ce temps-là, cette humble personne ignorait l'identité de l'Aîné. J'espère que l'Aîné pardonnera ma rudesse passée. »
+La femme voilée murmura: « En ce temps-là, cette humble personne ignorait l'identité du Senior. J'espère que le Senior pardonnera ma rudesse passée. »
 
-Comme on dit, le nom d'un homme est l'ombre d'un arbre : celui de Ceng Niu résonnait avec force sur toute la Planète Suzaku. Si le vieil homme Hu en avait été bouleversé, elle ne saurait l'être moins.
+Comme on dit, le nom d'un homme est l'ombre d'un arbre : celui de Zeng Niu résonnait avec force sur toute la Planète Suzaku. Si le vieil homme Hu en avait été bouleversé, elle ne saurait l'être moins.

@@ -74,13 +74,13 @@ La Division Jaune comptait six personnes. Le Troisième Frère de la Division Ja
 
 Après elle, les autres disciples de la Division Jaune sortirent également un à un, abandonnant leur place, jusqu'à ce qu'il n'en reste que deux.
 
-Parmi les deux restants, Wang Lin n'avait qu'un vague souvenir de l'un d'eux: celui qui avait reçu l'épée de Tian Yunzi plus tôt, Kunpeng Zi!
+Parmi les deux restants, Wang Lin n'avait qu'un vague souvenir de l'un d'eux: celui qui avait reçu plus tôt l'artefact céleste de qualité moyenne de Tian Yunzi, Kunpeng Zi!
 
 À côté de Kunpeng Zi se tenait un vieil homme. Son visage était sillonné de rides et son apparence n'avait rien de remarquable. Bien qu'il portât une robe jaune, il ressemblait à un singe décharné.
 
 C'était Yundao Zi, le plus ancien disciple de la Division Jaune; il avait détenu le titre de véritable disciple pendant plus de huit cents ans avant que leur Troisième Frère ne le lui ravisse. Cependant, cet homme n'avait aucun esprit de compétition et menait une vie très paisible.
 
-À ce moment, il regarda Tian Yunzi, fit un pas en avant et dit respectueusement: « Ce disciple renonce également. La personne la plus apte à recevoir le titre de véritable disciple de la Division Jaune est le Deuxième Frère, qui a reçu le trésor céleste du Maître. »
+À ce moment, il regarda Tian Yunzi, fit un pas en avant et dit respectueusement: « Ce disciple renonce également. La personne la plus apte à recevoir le titre de véritable disciple de la Division Jaune est le Deuxième Junior frère, qui a reçu le trésor céleste du Maître. »
 
 Tian Yunzi lança un regard significatif à Yundao Zi. Ce regard fit baisser précipitamment la tête de ce dernier, qui resta silencieux.
 
@@ -102,11 +102,11 @@ Kunpeng Zi prit une profonde inspiration, s'efforçant de réprimer son excitati
 
 En réalité, il savait au fond de lui que les autres disciples de la Division Jaune n'étaient pas faibles et que chacun d'eux excellait dans l'art de dissimuler sa culture. À moins d'un véritable combat, il serait impossible de percer leurs secrets.
 
-S'ils devaient lutter, il n'aurait aucune confiance en sa victoire, d'autant plus que la Division Jaune comptait le frère aîné Yundao Zi.
+S'ils devaient lutter, il n'aurait aucune confiance en sa victoire, d'autant plus que la Division Jaune comptait le Senior frère Yundao Zi.
 
-Kunpeng Zi suivait le Maître depuis plus de deux ans, mais lorsqu'il avait rejoint la secte, le frère aîné était déjà là. Il ignorait exactement depuis combien de temps ce dernier suivait Tian Yunzi.
+Kunpeng Zi suivait le Maître depuis plus de deux ans, mais lorsqu'il avait rejoint la secte, le Senior frère était déjà là. Il ignorait exactement depuis combien de temps ce dernier suivait Tian Yunzi.
 
-Cependant, bien que ce frère aîné fût un peu solitaire et ne parlât à personne, il n'avait manifesté aucun intérêt pour le poste de véritable disciple; il n'avait même pas tenté de s'y disputer la place.
+Cependant, bien que ce Senior frère fût un peu solitaire et ne parlât à personne, il n'avait manifesté aucun intérêt pour le poste de véritable disciple; il n'avait même pas tenté de s'y disputer la place.
 
 Wang Lin observait silencieusement la scène. Son regard se portait davantage sur Yundao Zi que sur les autres.
 

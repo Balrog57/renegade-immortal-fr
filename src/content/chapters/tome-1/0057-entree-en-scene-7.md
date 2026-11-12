@@ -14,15 +14,15 @@ Tous les disciples de la Secte Heng Yue furent transportés par l'excitation et 
 
 « Les déchets de la Secte Xuan Dao ont-ils trop peur de sortir? Où est passée toute votre arrogance? Sortez donc! »
 
-« Le frère aîné Wang Lin est invincible! Frappez la Secte Xuan Dao! Donnez des coups de pied à la Secte Xuan Dao! Même sa salive pourrait noyer la Secte Xuan Dao! »
+« Le Senior frère Wang Lin est invincible! Frappez la Secte Xuan Dao! Donnez des coups de pied à la Secte Xuan Dao! Même sa salive pourrait noyer la Secte Xuan Dao! »
 
-« Votre premier frère aîné n'était pas assez fort! Votre deuxième frère aîné ne l'était pas non plus! Avez-vous un troisième frère aîné? Venez tous ensemble! »
+« Votre premier Senior frère n'était pas assez fort! Votre deuxième Senior frère ne l'était pas non plus! Avez-vous un troisième Senior frère? Venez tous ensemble! »
 
 « Liu Feng, sors et meurs! »
 
 Les disciples de la Secte Heng Yue devinrent encore plus turbulents, et le sourire de Huang Long s'élargissait sans cesse, jusqu'à ce qu'un des disciples de la Secte Xuan Dao, incapable de supporter davantage, finisse par hurler:
 
-« Wang Lin, tu es trop arrogant! C'est toi qui veux que nous venions tous, tu vas le regretter! Frères aînés, allons tous l'éliminer! »
+« Wang Lin, tu es trop arrogant! C'est toi qui veux que nous venions tous, tu vas le regretter! Seniors frères, allons tous l'éliminer! »
 
 « C'est vrai! C'est sa propre requête, ce n'est donc pas contre les règles. Anciens, laissez-nous monter! »
 
@@ -40,7 +40,7 @@ Plus Wang Lin combattait, plus il gagnait en aisance. Sa maîtrise de la techniq
 
 Wang Lin éclata de rire et sortit sa dernière bombe puante.
 
-L'expression de Liu Feng changea brusquement. Il ne se souciait plus des deux autres. Il cria: « Frère Wang, ayez pitié! Je me rends, je me rends! » Tout en parlant, il recula rapidement et descendit de l'estrade. Ayant déjà vu ce qui était arrivé à Zhou Peng et Yang Yi, il ne voulait pas subir le même sort.
+L'expression de Liu Feng changea brusquement. Il ne se souciait plus des deux autres. Il cria: « Senior frère Wang, ayez pitié! Je me rends, je me rends! » Tout en parlant, il recula rapidement et descendit de l'estrade. Ayant déjà vu ce qui était arrivé à Zhou Peng et Yang Yi, il ne voulait pas subir le même sort.
 
 Les deux derniers étaient Xu Mu et Li Shan.
 
@@ -48,7 +48,7 @@ Xu Mu vit que la situation tournait mal. Il se rendit rapidement et quitta l'est
 
 Le visage de Li Shan était empreint de douleur. Il cria bruyamment vers Wang Lin: « Wang Lin, viens! Utilise ta dernière bombe puante sur moi! » Avec sa force, il n'aurait normalement pas été le dernier survivant, mais dès qu'il était monté sur l'estrade, il avait immédiatement feint la mort. Bien qu'il eût été piétiné à plusieurs reprises, cela en valait la peine pour son avenir au sein de la secte.
 
-Li Shan avait bien calculé son coup. S'il était lui aussi touché par la bombe puante, comme le premier et le second frère aîné, il pourrait susciter leur pitié et sa punition ne serait pas aussi sévère.
+Li Shan avait bien calculé son coup. S'il était lui aussi touché par la bombe puante, comme le premier et le second Senior frère, il pourrait susciter leur pitié et sa punition ne serait pas aussi sévère.
 
 Wang Lin lui adressa un sourire discret. Il rangea la bombe puante et dit: « C'est un trésor, il ne doit donc pas être utilisé avec légèreté. Tu peux descendre de l'estrade. »
 

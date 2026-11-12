@@ -94,7 +94,7 @@ Cela alerta même les quelques ancêtres de l'Âme Naissante qui se préparaient
 
 Tous les proches des défunts, tels que Cheng Xian et Lu Song, furent interrogés. Même Wang Lin fut soumis à un examen. Finalement, un cultivateur de l'Âme Naissante utilisa son Sens Divin pour vérifier si Wang Lin mentait. Cependant, comme l'âme de Wang Lin était bien plus vaste que la sienne, il ne put rien déceler. Pour une raison inconnue, l'affaire fut abandonnée.
 
-Quant à Li Muwan, elle ne fut impliquée dans rien. Elle le devait à son frère aîné. Ses stratagèmes étaient d'une profondeur abyssale. Il savait que le responsable était un ami de Li Muwan et la technique de cet individu l'effrayait. Même trois cultivateurs de l'Âme Naissante n'avaient pu empêcher cette personne de circuler à sa guise dans la Secte Yun Tian. Dès lors, comment oserait-il parler? S'il ouvrait la bouche, cet individu réapparaîtrait sans être remarqué pour l'exécuter.
+Quant à Li Muwan, elle ne fut impliquée dans rien. Elle le devait à son Senior frère. Ses stratagèmes étaient d'une profondeur abyssale. Il savait que le responsable était un ami de Li Muwan et la technique de cet individu l'effrayait. Même trois cultivateurs de l'Âme Naissante n'avaient pu empêcher cette personne de circuler à sa guise dans la Secte Yun Tian. Dès lors, comment oserait-il parler? S'il ouvrait la bouche, cet individu réapparaîtrait sans être remarqué pour l'exécuter.
 
 La vie de Wang Lin retrouva son calme, mais dans son esprit, le sourire triste de Li Muwan ne cessait de ressurgir. Chaque fois qu'elle lui apparaissait ainsi, il avait l'impression que son cœur était transpercé.
 

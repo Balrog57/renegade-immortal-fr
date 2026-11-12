@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 479 - Dao
 slug: le-dao
 ---
-« Intéressant! La méthode de cette personne est la même que celle de mon jeune frère apprenti Sun Yun! Cependant, le jeune frère Sun Yun n'a tenu que 67 jours. Je me demande combien de temps lui, il pourra tenir! » L'homme à l'apparence douce se frotta le menton et afficha un sourire impénétrable.
+« Intéressant! La méthode de cette personne est la même que celle de mon Junior frère Sun Yun! Cependant, le Junior frère Sun Yun n'a tenu que 67 jours. Je me demande combien de temps lui, il pourra tenir! » L'homme à l'apparence douce se frotta le menton et afficha un sourire impénétrable.
 
 Son regard était calme, mais une lueur mystérieuse traversait ses yeux.
 
@@ -78,11 +78,11 @@ Le garçon détourna le regard vers sa sculpture et, après un long silence, mur
 
 Au sein de la Secte Tian Yun, sous l'arbre Bodhi, l'expression de l'homme à l'apparence douce devint très sérieuse. Il fixa le vide devant lui et ses yeux s'assombrirent.
 
-« 83 jours... cette personne n'est certainement pas ordinaire! Même mon jeune frère apprenti Sun Yun n'a tenu que 67 jours! Bien que les trois épreuves soient un test, si l'on peut en tirer une illumination, c'est alors une opportunité céleste! Ces trois épreuves sont des expériences que chacun ne peut vivre qu'une seule fois dans sa vie, et le Maître a déployé d'immenses efforts pour les créer! Que ce Wang Lin puisse tenir 83 jours dans la première épreuve... cet homme... ne peut pas rester! »
+« 83 jours... cette personne n'est certainement pas ordinaire! Même mon Junior frère Sun Yun n'a tenu que 67 jours! Bien que les trois épreuves soient un test, si l'on peut en tirer une illumination, c'est alors une opportunité céleste! Ces trois épreuves sont des expériences que chacun ne peut vivre qu'une seule fois dans sa vie, et le Maître a déployé d'immenses efforts pour les créer! Que ce Wang Lin puisse tenir 83 jours dans la première épreuve... cet homme... ne peut pas rester! »
 
 Son visage devint encore plus sombre, son expression hésitante. Puis, ses mains formèrent un sceau et une lumière arc-en-ciel jaillit de ses paumes.
 
-« Futur frère apprenti, laissez-moi vous aider! » Sur ces mots, il pointa le doigt vers l'avant et la lumière colorée disparut au loin.
+« Futur Junior frère, laissez-moi vous aider! » Sur ces mots, il pointa le doigt vers l'avant et la lumière colorée disparut au loin.
 
 Dans l'épreuve Humaine, le garçon sculptait encore lorsqu'il leva soudainement la tête. Dans le ciel, un rayon de lumière arc-en-ciel apparut, dégageant des éclats aveuglants.
 

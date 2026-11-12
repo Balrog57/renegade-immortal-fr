@@ -92,7 +92,7 @@ Da Niu fut frappé par la réponse et cessa d'interroger son hôte. Il s'approch
 
 Wang Lin jeta un coup d'œil et sourit discrètement en regardant le père de Da Niu. Depuis trois ans, il fréquentait souvent cet homme franc, mais c'était la première fois qu'il le voyait ainsi. Il était évident que le père de Da Niu venait solliciter son aide, sans oser l'exprimer.
 
-Wang Lin dit: « Frère Ceng, si vous avez quelque chose à dire, dites-le simplement. »
+Wang Lin dit: « Frère Zeng, si vous avez quelque chose à dire, dites-le simplement. »
 
 Le père de Da Niu hésita. Il se frotta les mains et bafouilla: « Rien, rien... »
 
@@ -114,7 +114,7 @@ Wang Lin acquiesça. Sans dire un mot, il se leva et se rendit dans la pièce ar
 
 En voyant l'or, le père de Da Niu sursauta et s'exclama: « Je n'ai pas besoin de tant! Frère Wang, reprenez vite cela. Je ne veux emprunter que 30 pièces d'argent. » De son point de vue, ce morceau d'or faisait au moins dix pièces d'or, bien plus que nécessaire.
 
-Wang Lin reprit la cruche et sourit: « Frère Ceng, je ne vous prête pas cet argent. C'est le prix du vin. Désormais, j'aimerais acheter une cruche de votre vin de fruits chaque jour. Votre vin de fruits n'est pas mauvais, et l'argent de dix ans de vin, cela en vaut la peine. »
+Wang Lin reprit la cruche et sourit: « Frère Zeng, je ne vous prête pas cet argent. C'est le prix du vin. Désormais, j'aimerais acheter une cruche de votre vin de fruits chaque jour. Votre vin de fruits n'est pas mauvais, et l'argent de dix ans de vin, cela en vaut la peine. »
 
 Le père de Da Niu marqua un temps d'arrêt, le visage illuminé par l'excitation. Il dit: « Frère Wang, ceci... »
 

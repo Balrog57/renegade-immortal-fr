@@ -142,16 +142,16 @@ Wang Lin monta sur le dos de la bête moustique et s'envola vers le Cimetière d
 
 Dans la mer de sang située dans le corps de l'Ancien Dieu.
 
-L'aspect de la mer de sang avait radicalement changé. La plupart des piliers avaient disparu; seul celui sur lequel trônait Ta Sen subsistait.
+L'aspect de la mer de sang avait radicalement changé. La plupart des piliers avaient disparu; seul celui sur lequel trônait Tuo Sen subsistait.
 
 Moins de cent cultivateurs se trouvaient dans cette mer de sang. Chacun d'eux portait une fine ligne rouge entre les sourcils et tous cultivaient en silence. Parmi eux, beaucoup étaient familiers de Wang Lin, comme l'Empereur Antique.
 
 Ils dégageaient tous une aura démoniaque imprégnée d'une odeur de sang. Tandis qu'ils cultivaient, le fluide écarlate pénétrait lentement dans leurs corps.
 
-Sur le pilier où siégeait Ta Sen se trouvait un homme aux longs cheveux rouges, la tête baissée. Au sol, sous lui, d'innombrables mots avaient été gravés par ses ongles. Un seul mot, répété inlassablement:
+Sur le pilier où siégeait Tuo Sen se trouvait un homme aux longs cheveux rouges, la tête baissée. Au sol, sous lui, d'innombrables mots avaient été gravés par ses ongles. Un seul mot, répété inlassablement:
 
 « Wang Lin! »
 
-Cet homme aux cheveux rouges était Ta Sen, celui qui avait obtenu l'héritage de force de l'Ancien Dieu. Ses cheveux dissimulaient son visage, mais ses yeux, brûlants de haine, étaient visibles.
+Cet homme aux cheveux rouges était Tuo Sen, celui qui avait obtenu l'héritage de force de l'Ancien Dieu. Ses cheveux dissimulaient son visage, mais ses yeux, brûlants de haine, étaient visibles.
 
 « Wang Lin, la durée de vie du corps de l'Ancien Dieu approche de sa limite. Une fois ce moment venu, je pourrai m'échapper d'ici. Wang Lin, tu ferais mieux de ne pas mourir. Continue de garder cet héritage des souvenirs en sécurité pour moi! »

@@ -43,7 +43,7 @@ L'homme couvert d'écailles fut stupéfait. Sans un mot, il agita ses deux mains
 
 Mais à cet instant, Tuo Sen, encerclé au centre de la forme irrégulière, fixa les tornades noires. Ses yeux s'illuminèrent lorsqu'il comprit ce qui se tramait, et il laissa éclater un rire. Ignorant l'adversaire qu'il combattait, il récita quelques incantations extrêmement complexes et son corps se transforma soudainement en une brume de sang.
 
-Une fois apparue, la brume de sang se dissipa aussitôt en des milliers de filaments de sang qui fusèrent dans toutes les directions. La forme irrégulière qui l'entourait s'effondra sans la moindre hésitation, libérant une puissante onde de choc vers l'extérieur. Cela fit apparaître des expressions de terreur sur les visages des dix personnes qui maintenaient la formation. Six d'entre elles, dont Dou Mu, furent frappées par l'onde de choc. Les filaments de sang qui suivaient l'onde de choc pénétrèrent aussitôt dans leurs corps, y circulèrent furieusement, ravagèrent leurs organes internes, puis s'échappèrent par le sommet de leur crâne.
+Une fois apparue, la brume de sang se dissipa aussitôt en des milliers de filaments de sang qui fusèrent dans toutes les directions. La forme irrégulière qui l'entourait s'effondra sans la moindre hésitation, libérant une puissante onde de choc vers l'extérieur. Cela fit apparaître des expressions de terreur sur les visages des dix personnes qui maintenaient la formation. Six d'entre elles, dont Duo Mu, furent frappées par l'onde de choc. Les filaments de sang qui suivaient l'onde de choc pénétrèrent aussitôt dans leurs corps, y circulèrent furieusement, ravagèrent leurs organes internes, puis s'échappèrent par le sommet de leur crâne.
 
 Au moment où les filaments émergèrent, les six individus affichèrent un regard d'incrédulité alors que leurs corps inertes et vides tombaient directement dans la Mer des Âmes Mortes.
 
@@ -63,7 +63,7 @@ Cette personne était Wang Lin, mais cette fois, son corps semblait irréel, sem
 
 Dès l'apparition de Wang Lin, l'homme couvert d'écailles, qui combattait le clone de Tuo Sen tout en se rapprochant sans cesse, fut frappé de stupeur en le fixant. Ses yeux trahissaient l'incrédulité: il percevait, dans le Sens Divin de Wang Lin, un fragment de l'héritage de la mémoire.
 
-Tout cela s'était produit en un temps record. Wang Lin avait toujours été d'une prudence extrême lorsqu'il entrait dans une faille; ayant ressenti la force destructrice des objets obtenus auprès du groupe de Dou Mu, il s'était montré particulièrement vigilant. Comment aurait-il pu réapparaître sans préparation?
+Tout cela s'était produit en un temps record. Wang Lin avait toujours été d'une prudence extrême lorsqu'il entrait dans une faille; ayant ressenti la force destructrice des objets obtenus auprès du groupe de Duo Mu, il s'était montré particulièrement vigilant. Comment aurait-il pu réapparaître sans préparation?
 
 Il avait donc utilisé la méthode de l'héritage de la mémoire pour se dissimuler dans la faille, profitant de sa capacité à bloquer le sens divin pour neutraliser les effets de ces trésors. Ce n'est qu'après avoir soigneusement examiné les objets et constaté que leur lueur s'était estompée et leur force destructrice dissipée qu'il s'était un peu détendu.
 

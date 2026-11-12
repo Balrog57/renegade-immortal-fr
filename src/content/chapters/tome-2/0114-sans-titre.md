@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 114 - The Celestial Tower Messenger
 slug: le-messager-de-la-tour-celeste
 ---
-Xin Hai regarda Shangguan Yun et dit: « Mon frère aîné est allé accueillir le messager de la Tour Céleste. Je pense qu'il sera bientôt de retour. »
+Xin Hai regarda Shangguan Yun et dit: « Mon Senior frère est allé accueillir le messager de la Tour Céleste. Je pense qu'il sera bientôt de retour. »
 
 À cet instant, la formation s'illumina à nouveau. À l'extérieur de la vallée, les conversations cessèrent et tous se tournèrent pour observer la scène. Teng Huayuan serra les poings, fixant la formation d'un regard sombre. Il avait déjà pris la décision que, dès l'instant où Wang Lin apparaîtrait, il utiliserait la malédiction pour se téléporter à ses côtés et lui infliger les pires tourments du monde.
 
@@ -74,7 +74,7 @@ Xu Mei, qui se tenait aux côtés de Lin Yi, laissa échapper un rire: « Seigne
 
 Lin Yi acquiesça: « Ces cinq sont bel et bien des marionnettes humaines. »
 
-Le vieillard maigre et sec de la Secte Tian Dao observa les environs en fronçant les sourcils: « Pourquoi le compagnon de culture Ye n'est-il pas ici...? »
+Le vieillard maigre et sec de la Secte Tian Dao observa les environs en fronçant les sourcils: « Pourquoi le Daoïste Ye n'est-il pas ici...? »
 
 Lin Yi secoua la tête et répondit: « La Secte Shi Yin n'a pas respecté la règle exigeant de conserver le jeton au sein de la Vallée Jue Ming; ils sont donc disqualifiés. Son absence n'a aucune importance. » Sur ces mots, il jeta un regard nonchalant vers la foule du nord-ouest et pensa secrètement: « La Secte Shi Yin... Cette fois, plusieurs membres supplémentaires achèveront leur possession pour recouvrer leur culture... »
 

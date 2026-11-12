@@ -59,15 +59,15 @@ Ce geste fit brusquement changer l'expression de Xu Li. Il saisit rapidement son
 
 Wang Lin le regarda. Il ouvrit la main pour en sortir un morceau de jade. En plaçant le jade contre son front, une carte apparut dans son esprit. C'était le morceau de jade qu'il avait obtenu de Zhou Zihong au Temple Zhan Shen; il contenait la carte des pays situés près du pays de Huo Fen.
 
-En entendant le nom de Chu, il eut l'impression de l'avoir déjà entendu quelque part. Après avoir consulté le jade, il situa immédiatement sa position approximative. Le pays de Chu partageait une frontière avec Huo Fen au nord et Xuan Wu à l'est, et possédait même une petite frontière avec la Mer Xiu Mo. Pour le reste, il y avait une chaîne de montagnes appelée les Roches Brisées, aussi nommée terre des reliques immortelles.
+En entendant le nom de Chu, il eut l'impression de l'avoir déjà entendu quelque part. Après avoir consulté le jade, il situa immédiatement sa position approximative. Le pays de Chu partageait une frontière avec Huo Fen au nord et Xuan Wu à l'est, et possédait même une petite frontière avec la Mer Xiu Mo. Pour le reste, il y avait une chaîne de montagnes appelée les Montagnes Sui Shi, aussi nommée terre des reliques immortelles.
 
 On pouvait dire que le pays de culture Chu était très proche de cette chaîne de montagne. Selon les descriptions du jade, ce pays était vaste et abritait de nombreux cultivateurs. En tant que nation de culture, Chu était sur le point d'accéder au rang 4. Cela s'expliquait par la présence de plus de dix personnes au stade avancé de l'Âme Naissante; ces puissants cultivateurs constituaient le cœur du pays. Dès que l'un d'eux parviendrait au stade de la Formation de l'Âme, le pays entier serait élevé au rang 4. C'est d'ailleurs pour cette raison qu'après les bouleversements de Huo Fen, ses cultivateurs choisirent d'envahir Xuan Wu plutôt que Chu. Après tout, comparé à Chu, Xuan Wu était un choix bien plus opportun.
 
 Le jade contenait également des informations sur certaines sectes du pays de Chu. Wang Lin l'examina un instant, puis le rangea. Il regarda Xu Li et demanda: « Collègue cultivateur, dans quelle partie de Chu nous trouvons-nous? »
 
-Xu Li garda la main sur son sac de rangement, extrêmement vigilant. En entendant la question, il réfléchit un instant avant de répondre: « Nous sommes dans la chaîne de montagnes Ciel Nuageux! »
+Xu Li garda la main sur son sac de rangement, extrêmement vigilant. En entendant la question, il réfléchit un instant avant de répondre: « Nous sommes dans la chaîne de montagnes Yun Tian! »
 
-Wang Lin hocha la tête. Il scruta l'horizon et dit d'un ton neutre: « Ainsi, si je continue sur 5 000 kilomètres, au sommet de la chaîne de montagnes Ciel Nuageux, se trouve la Secte Yun Tian? »
+Wang Lin hocha la tête. Il scruta l'horizon et dit d'un ton neutre: « Ainsi, si je continue sur 5 000 kilomètres, au sommet de la chaîne de montagnes Yun Tian, se trouve la Secte Yun Tian? »
 
 Les yeux de Xu Li trahirent un choc immense. Il demanda: « Monsieur a-t-il des affaires avec la Secte Yun Tian? »
 
@@ -75,7 +75,7 @@ Wang Lin esquissa un mince sourire. Il regarda Xu Li et joignit les mains. « Me
 
 Ce n'est que lorsque Wang Lin fut loin qu'Xu Li laissa échapper un soupir. Son dos était trempé de sueur et, au contact d'une légère brise, il en ressentit le frisson glacé. La pression exercée par Wang Lin avait été monumentale. Le fait qu'Xu Li soit alchimiste lui avait permis de garder une volonté plus ferme que celle d'autres cultivateurs de son rang; sans cela, il aurait totalement paniqué lors de l'échange.
 
-Il prit une profonde inspiration, puis regarda son disciple. Les yeux de Mai Guorong étaient encore empreints de terreur. Il fixa la direction prise par Wang Lin et demanda: « Ma... maître, quel était le niveau de culture de cet homme? Était-ce un aîné de l'Âme Naissante? »
+Il prit une profonde inspiration, puis regarda son disciple. Les yeux de Mai Guorong étaient encore empreints de terreur. Il fixa la direction prise par Wang Lin et demanda: « Ma... maître, quel était le niveau de culture de cet homme? Était-ce un Senior de l'Âme Naissante? »
 
 Xu Li secoua la tête: « Cet homme dégageait une intention meurtrière telle que, si mes soupçons sont corrects, il doit s'être échappé de la Mer Xiu Mo. Ces individus ne sont pas rares dans ce pays de Chu, mais c'est la première fois que je rencontre quelqu'un doté d'une intention meurtrière aussi terrifiante. »
 
@@ -119,7 +119,7 @@ Le temps s'écoula, et une année passa. Durant cette période, hormis la collec
 
 En un an, Wang Lin avait réussi à réprimer totalement cette ligne rouge, mais il ne relâchait pas sa vigilance. Bien que minuscule, elle contenait le pouvoir d'une rétribution divine; une manipulation erronée aurait pu détruire son corps. Bien que celui-ci eût déjà subi une reconstruction, il refusait de s'en servir comme cobaye.
 
-En parallèle, Wang Lin consacrait son temps à l'étude de la technique de l'avatar. C'était là son moyen de contourner son incapacité à franchir le stade de l'Âme Naissante. Il se remémorait avec précision la technique du Chemin Divin, gravée de mémoire par l'Ancêtre Chen Chong au temple du Dieu de la Guerre.
+En parallèle, Wang Lin consacrait son temps à l'étude de la technique de l'avatar. C'était là son moyen de contourner son incapacité à franchir le stade de l'Âme Naissante. Il se remémorait avec précision la technique du Chemin Divin, gravée de mémoire par l'Ancêtre Chen Chong au Temple Zhan Shen.
 
 Cette technique consistait à créer un second corps réel, un double. L'idée était d'utiliser l'avatar pour accélérer la vitesse de culture, puis, au moment de franchir le stade de l'Âme Naissante, de fusionner les deux corps pour maximiser les chances de réussite. Cependant, cette technique étant incomplète, l'avatar présentait un défaut fatal: il ne possédait aucune culture lors de sa création et sa durée de vie n'atteignait pas trente ans.
 
@@ -131,4 +131,4 @@ Mais un autre problème crucial subsistait: les pilules! Ce problème serait ré
 
 L'expression de Wang Lin restait sereine. Devant lui reposaient trois fioles blanches remplies du liquide recueilli auprès de la perle défiant le ciel durant l'année écoulée. Ce liquide constituerait le premier présent offert à son avatar.
 
-Après une réflexion, ses yeux brillèrent d'une détermination sans faille. Ses mains formèrent un sceau et il entama les étapes de la technique pour créer son incarnation. Cette technique n'était pas difficile pour qui en comprenait tous les détails, car elle ne dépendait ni du talent ni de la puissance brute. Autrement, Chen Chong, qui possédait le pire talent du temple du Dieu de la Guerre, n'aurait pu être le seul, après son maître, à percer le secret de cette technique du Chemin Divin.
+Après une réflexion, ses yeux brillèrent d'une détermination sans faille. Ses mains formèrent un sceau et il entama les étapes de la technique pour créer son incarnation. Cette technique n'était pas difficile pour qui en comprenait tous les détails, car elle ne dépendait ni du talent ni de la puissance brute. Autrement, Chen Chong, qui possédait le pire talent du Temple Zhan Shen, n'aurait pu être le seul, après son maître, à percer le secret de cette technique du Chemin Divin.

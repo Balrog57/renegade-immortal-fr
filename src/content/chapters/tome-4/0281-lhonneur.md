@@ -8,7 +8,7 @@ slug: lhonneur
 ---
 Un jeune homme d'une grande beauté, vêtu de noir et de cuir, se tenait debout sur une épée volante. Son allure tranchait avec celle des autres cultivateurs de Xue Yu, ce qui apportait une bouffée de fraîcheur.
 
-Les yeux de la disciple s'illuminèrent soudainement et elle s'écria: « Le frère aîné est de retour! »
+Les yeux de la disciple s'illuminèrent soudainement et elle s'écria: « Le Senior frère est de retour! »
 
 Quant au second disciple, relevé à plus de dix pieds de là, son visage se voila d'une ombre soudaine, avant que cette expression ne soit instantanément remplacée par une joie manifeste.
 

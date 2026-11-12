@@ -44,7 +44,7 @@ Il faut dire que, bien qu'elle ait consulté de nombreux experts, elle n'avait j
 
 En voyant ce jade, le cœur hésitant de Yun Fei s'était raffermi; elle avait décidé de tenter sa chance. Et c'est ainsi qu'ils en étaient arrivés là.
 
-À cet instant, Yun Fei leva les yeux vers le pavillon au sommet de la montagne, mais à cause de la brume environnante, elle ne pouvait distinguer la silhouette de l'occupant. Elle se mordit la lèvre inférieure et murmura: « L'Aîné peut-il vraiment lever la restriction sur la junior? »
+À cet instant, Yun Fei leva les yeux vers le pavillon au sommet de la montagne, mais à cause de la brume environnante, elle ne pouvait distinguer la silhouette de l'occupant. Elle se mordit la lèvre inférieure et murmura: « Senior peut-il vraiment lever la restriction sur cette junior? »
 
 « Monte et parle! » La voix portait une puissance écrasante. À l'instant où il eut parlé, la brume noire bougea soudainement pour former un chemin en forme de dragon, dont la tête atteignait le sommet et la queue se trouvait devant Yun Fei.
 
@@ -54,11 +54,11 @@ Bientôt, elle atteignit le pavillon au sommet. L'occupant était un homme d'âg
 
 L'homme pensa: « C'est bel et bien une restriction antique! », mais son expression resta impassible lorsqu'il dit d'un ton neutre: « Je peux lever la restriction, mais tu dois me dire qui l'a placée sur toi. »
 
-Yun Fei hésita un instant et murmura: « Aîné, la junior ne peut vous le dire. Pourrait-on plutôt échanger une fournée de pilules? »
+Yun Fei hésita un instant et murmura: « Senior, cette junior ne peut vous le dire. Pourrait-on plutôt échanger une fournée de pilules? »
 
 L'homme réfléchit un moment avant de secouer la tête. Il déclara: « Si tu ne me le dis pas, je ne lèverai rien. Sache qu'au sein de la Mer Xiu Mo, peu peuvent briser cette restriction. Réfléchis-y. »
 
-Le visage de Yun Fei se troubla. Après une longue réflexion, elle finit par dire: « Très bien. Je demande d'abord à l'Aîné de lever la restriction. Si vous réussissez, alors je vous le dirai. »
+Le visage de Yun Fei se troubla. Après une longue réflexion, elle finit par dire: « Très bien. Je demande d'abord à Senior de lever la restriction. Si vous réussissez, alors je vous le dirai. »
 
 L'homme laissa échapper un rire. D'un revers de main, il fit apparaître un rocher pourpre, une sphère parfaitement ronde et lisse. Il utilisa rapidement une technique spirituelle sur l'objet, qui se mit à briller d'une couleur arc-en-ciel. Peu après, une lumière rouge apparut et se posa sur le front de Yun Fei.
 

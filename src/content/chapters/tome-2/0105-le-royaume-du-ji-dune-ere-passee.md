@@ -59,7 +59,7 @@ Teng Huayuan, utilisant le lien entre Wang Lin et sa famille, laissa un message 
 
 Les deux cultivateurs masculins et la femme de la Secte Tian Dao finirent par le rattraper. Ils s'arrêtèrent brusquement à plusieurs dizaines de mètres, car la glace recouvrant le sol leur serra le cœur. Le jeune homme figé au milieu de la glace était particulièrement terrifiant. L'aura destructrice qu'il dégageait fit même frissonner le disciple en phase intermédiaire de l'Établissement des Fondations.
 
-Après une courte hésitation, le cultivateur de l'Établissement des Fondations prit une décision. Il agita la main et ordonna: « Repli! » Mais alors qu'il s'apprêtait à partir, la femme fixa la Perle Défiant le Ciel au-dessus de la tête de Wang Lin et s'exclama: « Frère aîné, cette perle me semble très familière... »
+Après une courte hésitation, le cultivateur de l'Établissement des Fondations prit une décision. Il agita la main et ordonna: « Repli! » Mais alors qu'il s'apprêtait à partir, la femme fixa la Perle Défiant le Ciel au-dessus de la tête de Wang Lin et s'exclama: « Senior frère, cette perle me semble très familière... »
 
 L'autre homme ajouta: « C'est... c'est... c'est la perle dont le Premier Ancêtre nous a parlé! Attendez, non, les motifs sont différents. Sur le jade que le Premier Ancêtre nous a remis, c'étaient clairement des nuages qui étaient gravés, mais ici ce sont des feuilles. »
 
@@ -97,7 +97,7 @@ La surprise fut générale. Avant que quiconque ne puisse réagir, Wang Lin éta
 
 À cet instant, la foule s'écarta tandis qu'un disciple en robe blanche joignit les mains: « De quelle secte venez-vous, cher compagnon de culture? Je suis Zhou Quan, disciple de la Secte Yuan Tian. »
 
-Wang Lin l'ignora et poursuivit sa route. Peu à peu, les gens s'écartèrent sur son passage. Alors qu'il s'éloignait de plus de trois cents mètres de la foule, un jeune disciple d'une secte démoniaque le fixa et ricana intérieurement: « Tu as tué mon frère aîné de discipline. Je ne t'oublierai pas! »
+Wang Lin l'ignora et poursuivit sa route. Peu à peu, les gens s'écartèrent sur son passage. Alors qu'il s'éloignait de plus de trois cents mètres de la foule, un jeune disciple d'une secte démoniaque le fixa et ricana intérieurement: « Tu as tué mon Senior frère. Je ne t'oublierai pas! »
 
 Wang Lin s'arrêta brusquement. Il sentit une intention meurtrière puissante émaner de derrière lui. Il se retourna et lança un regard glacial au disciple démoniaque. Sous ce regard, le disciple sentit son corps entier, de l'intérieur comme de l'extérieur, devenir aussi froid que la glace. Il baissa précipitamment la tête, n'osant plus croiser les yeux de Wang Lin.
 

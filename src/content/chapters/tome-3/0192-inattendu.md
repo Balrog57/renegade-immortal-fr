@@ -10,33 +10,33 @@ Il jeta un coup d'œil à Wang Lin, puis s'engouffra dans la faille. Wang Lin re
 
 Derrière eux, les cultivateurs démoniaques, leurs corps changés en minces filets de fumée, les suivirent un à un.
 
-Mais au moment même où ils s'apprêtaient à franchir la fissure, celle-ci commença à se refermer. En un clin d'œil, la faille disparut sans laisser de trace. Hormis Wang Lin et Dou Mu, personne d'autre ne put entrer.
+Mais au moment même où ils s'apprêtaient à franchir la fissure, celle-ci commença à se refermer. En un clin d'œil, la faille disparut sans laisser de trace. Hormis Wang Lin et Duo Mu, personne d'autre ne put entrer.
 
 Alors que la faille se repliait, ce qui apparut devant Wang Lin n'était pas la Mer de Sang qu'il attendait, mais un espace baigné d'une lueur violette sombre.
 
 Cet espace n'était pas vaste, il ne faisait qu'environ 330 mètres de large dans chaque direction. Aux quatre coins flottaient des instruments aux formes étranges, d'où émanaient des ondes de lumière douce.
 
-À côté de chaque instrument siégeait un cultivateur, chacun assis en tailleur auprès de son instrument. Leurs silhouettes ressemblaient à celles de Dou Mu; ils conservaient leur forme humaine sans se transformer en démons. Wang Lin balaya la zone du regard et compta, Dou Mu non compris, un total de neuf personnes.
+À côté de chaque instrument siégeait un cultivateur, chacun assis en tailleur auprès de son instrument. Leurs silhouettes ressemblaient à celles de Duo Mu; ils conservaient leur forme humaine sans se transformer en démons. Wang Lin balaya la zone du regard et compta, Duo Mu non compris, un total de neuf personnes.
 
 Dès l'entrée des deux intrus, tous les cultivateurs ouvrirent les yeux. Un à un, ils activèrent plusieurs techniques sur chacun des instruments, faisant jaillir une lumière pourpre.
 
-Dou Mu se retourna. Son regard fixe et imperturbable était rivé sur Wang Lin.
+Duo Mu se retourna. Son regard fixe et imperturbable était rivé sur Wang Lin.
 
 Wang Lin recula de quelques pas, ses pupilles se contractant légèrement. Il plaça sa main droite près de son sac de rangement tout en fixant l'individu devant lui. La situation s'écartait beaucoup de ses calculs.
 
-L'un des neuf cultivateurs déclara: « Dou Mu, nous ne pourrons pas maintenir cela longtemps, le temps de trois bâtons d'encens tout au plus. Vite, explique-nous tout. »
+L'un des neuf cultivateurs déclara: « Duo Mu, nous ne pourrons pas maintenir cela longtemps, le temps de trois bâtons d'encens tout au plus. Vite, explique-nous tout. »
 
-Un éclat vif jaillit des yeux de Dou Mu alors qu'il fixait Wang Lin. Il dit: « Petit gars, tu avais réussi à disparaître. Pourquoi réapparais-tu ainsi? »
+Un éclat vif jaillit des yeux de Duo Mu alors qu'il fixait Wang Lin. Il dit: « Petit gars, tu avais réussi à disparaître. Pourquoi réapparais-tu ainsi? »
 
-Wang Lin fronça les sourcils et fixa Dou Mu. Juste au moment où il allait parler, sa main gauche traça un sceau. D'un mouvement vif, il saisit l'espace derrière lui; les sceaux formés par les cinq doigts de sa main gauche étaient la méthode, tirée de la mémoire du Dieu Ancien, qui lui permettait de se déplacer à son gré dans le corps du Dieu Ancien.
+Wang Lin fronça les sourcils et fixa Duo Mu. Juste au moment où il allait parler, sa main gauche traça un sceau. D'un mouvement vif, il saisit l'espace derrière lui; les sceaux formés par les cinq doigts de sa main gauche étaient la méthode, tirée de la mémoire du Dieu Ancien, qui lui permettait de se déplacer à son gré dans le corps du Dieu Ancien.
 
 À peine la faille apparut-elle derrière lui, avant même que Wang Lin ne recule, qu'une lumière pourpre jaillit de l'un des instruments, la frappa et la dissipa aussitôt.
 
-L'expression de Dou Mu resta sereine, dénuée de toute émotion.
+L'expression de Duo Mu resta sereine, dénuée de toute émotion.
 
-Le cœur de Wang Lin sombra. Il fixa Dou Mu et articula lentement: « Pour quitter la Terre Gu Shen. »
+Le cœur de Wang Lin sombra. Il fixa Duo Mu et articula lentement: « Pour quitter la Terre Gu Shen. »
 
-Un grand cultivateur au visage rouge dit en fronçant les sourcils: « Dou Mu, tu es toujours aussi bavard. Petit gars, laisse-moi te dire les choses: dès que le sceau de Tuo Sen sera levé, tout le monde ici mourra. Lui sera le seul à partir. »
+Un grand cultivateur au visage rouge dit en fronçant les sourcils: « Duo Mu, tu es toujours aussi bavard. Petit gars, laisse-moi te dire les choses: dès que le sceau de Tuo Sen sera levé, tout le monde ici mourra. Lui sera le seul à partir. »
 
 « À l'époque, nous sommes arrivés à onze sur cette planète sauvage. Nous avions initialement prévu d'y établir une résidence. Mais nous ne nous attendions pas à découvrir que ce lieu recelait l'aura d'un Dieu Ancien. Après quelques investigations, nous avons rencontré un cultivateur nommé Tuo Sen à l'extérieur du corps du Dieu Ancien. Sa culture était extrêmement puissante. Même en unissant nos forces, nous n'étions pas de taille face à lui. » La voix du vieil homme aux cheveux roux était sonore et il parlait très vite. Dès qu'il eut fini, un autre cultivateur leva la tête et dit d'un ton lugubre:
 
@@ -70,25 +70,25 @@ Un grand cultivateur au visage rouge dit en fronçant les sourcils: « Dou Mu, t
 
 Chacun des dix individus, à l'exception d'un vieillard au visage parcheminé qui semblait sortir tout juste d'une tombe, narra un fragment de cette histoire. Wang Lin fut profondément stupéfait, bien qu'il ne choisît pas de tout croire sur parole.
 
-« Il reste un point crucial qui nous laisse perplexes: l'identité de Tuo Sen. Pourquoi connaît-il si intimement le corps du Dieu Ancien? Après l'avoir observé pendant d'innombrables années, nous avons supposé que Tuo Sen n'est pas un humain comme nous, mais très probablement un démon formé par un fragment de ressentiment dans le corps du Dieu Ancien Tu Si après sa mort. » Ces derniers mots furent prononcés par Dou Mu, dont l'expression demeurait calme.
+« Il reste un point crucial qui nous laisse perplexes: l'identité de Tuo Sen. Pourquoi connaît-il si intimement le corps du Dieu Ancien? Après l'avoir observé pendant d'innombrables années, nous avons supposé que Tuo Sen n'est pas un humain comme nous, mais très probablement un démon formé par un fragment de ressentiment dans le corps du Dieu Ancien Tu Si après sa mort. » Ces derniers mots furent prononcés par Duo Mu, dont l'expression demeurait calme.
 
 Si Wang Lin avait obtenu l'intégralité de l'héritage de la mémoire, il saurait si ces propos étaient vrais ou faux; mais là, face à une perspective aussi terrifiante, il ne put s'empêcher de laisser transparaître son trouble.
 
 « C'est la seule explication possible: pourquoi, lorsqu'il nous a invités dans le corps du Dieu Ancien il y a toutes ces années, connaissait-il si bien les lieux et pourquoi avons-nous senti qu'il avait changé après la rupture du sceau? Ce sceau était manifestement semblable à celui qui, dans le corps d'un cultivateur, emprisonne les pensées démoniaques lorsque la pratique d'une technique attire un démon intérieur. Cela expliquerait aussi pourquoi Tuo Sen maîtrisait toutes les techniques du géant. Après tout, obtenir l'héritage du pouvoir ne suffit pas; il faut posséder les deux héritages pour détenir la puissance du Dieu Ancien. Toutes ces spéculations convergent vers une seule conclusion: cet homme est soit le Dieu Ancien Tu Si, soit le Démon Ancien Tu Si! »
 
-Tandis que les paroles de Dou Mu résonnaient, Wang Lin prit une profonde inspiration. Une pensée traversa son esprit, mais il garda le silence.
+Tandis que les paroles de Duo Mu résonnaient, Wang Lin prit une profonde inspiration. Une pensée traversa son esprit, mais il garda le silence.
 
 « Nous n'avons vraiment pas besoin de te tromper. Si tu te précipites dans la Mer de Sang, tu finiras comme le dévoreur d'âmes du troisième essai: un simple outil pour rompre ses sceaux, et le jour où ils seront levés sera celui de ta mort. »
 
 Wang Lin réfléchit en silence un instant, puis eut un ricanement froid: « La mort? Quand je mourrai, ce sera sans doute aussi le moment où votre Sens Divin se dissipera. Si votre histoire est vraie, une fois libéré, l'homme prisonnier de la Mer de Sang commencera sans doute par reprendre ses fragments d'âme! »
 
-Le groupe de Dou Mu resta muet.
+Le groupe de Duo Mu resta muet.
 
 Parmi les dix personnes, le vieillard qui s'était tu jusqu'ici laissa échapper une légère toux. Il dit d'un ton empreint de douceur: « Ce cher cultivateur est en effet perspicace. Une fois que Tuo Sen aura fusionné avec l'héritage de la mémoire et obtenu toute la culture du Dieu Ancien, il récupérera les fragments d'âme logés dans nos corps afin de restaurer la complétude de son Sens Divin. Durant toutes ces années, ces fragments ont fusionné avec nos propres âmes. Les reprendre reviendrait à nous dévorer. Ami, nous aider, c'est aussi t'aider toi-même; cependant, nous ne te laisserons pas nous aider gratuitement. Si tu acceptes, nous avons un riche présent à t'offrir. »
 
 Wang Lin n'accepta pas immédiatement. Il évaluait secrètement la crédibilité de ces propos.
 
-Dou Mu lança à Wang Lin un regard glacial: « Cadet, ne crois pas que nous dépendions de toi. Nous pourrions tout aussi bien te tuer et nous séparer, pour éviter toute complication future. »
+Duo Mu lança à Wang Lin un regard glacial: « Cadet, ne crois pas que nous dépendions de toi. Nous pourrions tout aussi bien te tuer et nous séparer, pour éviter toute complication future. »
 
 Un cultivateur au visage sombre ricana: « Le temps presse et l'essentiel a été dit. Puisque ce gamin s'obstine dans son entêtement, nous ferions mieux de lui imposer une restriction. Bien que cela soit un peu gênant, cela nous permettrait de le contrôler à notre guise et serait plus simple. »
 

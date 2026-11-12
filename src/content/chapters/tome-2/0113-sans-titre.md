@@ -50,7 +50,7 @@ En voyant ces huit personnes émerger, les cultivateurs de Zhao présents hors d
 
 « Frère Zhang, l'homme le plus fort de ta secte n'est qu'au stade initial de la Formation du Noyau. La Secte Piao Miao peut envoyer n'importe quel ancêtre et il raserait ta lignée. À mon avis, si la Secte Piao Miao a échoué, c'est parce que les disciples des sectes démoniaques sont trop puissants. »
 
-Parmi les huit grandes sectes des deux camps, à l'exception de la Secte Jie Mie — dont le cultivateur d'Âme Naissante était décédé, de sorte qu'elle n'avait obtenu aucun jeton et n'avait pas participé —, tous les ancêtres au stade de l'Âme Naissante des sept autres sectes étaient présents.
+Parmi les huit grandes sectes des deux camps, à l'exception de la Secte Ji Mie — dont le cultivateur d'Âme Naissante était décédé, de sorte qu'elle n'avait obtenu aucun jeton et n'avait pas participé —, tous les ancêtres au stade de l'Âme Naissante des sept autres sectes étaient présents.
 
 Actuellement, l'ancêtre de la Secte Piao Miao, Xin Hai, affichait un visage sombre tout en fixant silencieusement l'entrée.
 
@@ -60,7 +60,7 @@ Xin Hai faisait de son mieux pour contenir sa colère. Il avait consenti d'énor
 
 Tandis que Xin Hai observait ses huit disciples, l'ancêtre de la Secte Yuan Tian, nommé Shangguan Yun, se tenait à proximité et se gaussait de lui. Il lança: « Frère Xin, ce n'est pas si grave d'avoir échoué à entrer dans le champ de bataille. Le nettoyage à l'intérieur est extrêmement périlleux. Normalement, un seul disciple sur dix en ressort vivant. Désormais, tu n'as plus à te soucier de tes disciples. Il ne faut attendre que cent ans pour le prochain cycle. »
 
-Xin Hai ricana: « Frère Shangguan, inutile d'être sarcastique. Puisque j'ai perdu mon pari, je ne reviendrai pas sur notre accord. » Sur ces mots, il regarda ses huit disciples et demanda d'un ton lugubre: « Votre frère aîné est mort? »
+Xin Hai ricana: « Frère Shangguan, inutile d'être sarcastique. Puisque j'ai perdu mon pari, je ne reviendrai pas sur notre accord. » Sur ces mots, il regarda ses huit disciples et demanda d'un ton lugubre: « Votre Grand Senior frère est mort? »
 
 L'un d'eux s'agenouilla et murmura: « Ancêtre, ils sont tous morts... tous les autres disciples sont morts. »
 
@@ -74,4 +74,4 @@ Le premier disciple à genoux hésita. Xin Hai fit un geste de la main et une ba
 
 Après avoir bloqué le Sens Divin des autres, Xin Hai fit signe au disciple de parler, et celui-ci ouvrit la bouche et lui transmit tout rapidement par transmission vocale. En écoutant le récit, Xin Hai fut stupéfait et son regard se glaça. Après un silence, il laissa échapper un reniflement froid: « Restez derrière moi. Je dois voir qui est vraiment cet individu. » Sur ce, d'un revers de main, il fit disparaître la barrière.
 
-Shangguan Yun, sur le côté, demanda: « Pourquoi le compagnon de culture Xu Mei n'est-il pas là? »
+Shangguan Yun, sur le côté, demanda: « Pourquoi le Daoïste Xu Mei n'est-il pas là? »

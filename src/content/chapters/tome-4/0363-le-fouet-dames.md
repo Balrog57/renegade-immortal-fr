@@ -1,6 +1,6 @@
 ---
 n: 363
-title: "Le Fouet de l'Âmes"
+title: Le Fouet Kunji
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 363 - Soul Lasher

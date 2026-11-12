@@ -95,9 +95,9 @@ Il en avait effectivement une. Même si l'homme de Xue Yu n'était pas venu le s
 
 Il savait que le vrai nom de Ceng Niu était Wang Lin!
 
-Récupérer la boussole stellaire n'était qu'un prétexte pour éliminer Wang Lin. La véritable raison résidait dans l'information rapportée par un membre du clan envoyé il y a 500 ans dans le pays de Zhao pour ouvrir le passage vers le champ de bataille étranger!
+Récupérer la boussole stellaire n'était qu'un prétexte pour éliminer Wang Lin. La véritable raison résidait dans l'information rapportée par un membre du clan envoyé il y a 500 ans dans le Pays Zhao pour ouvrir le passage vers le champ de bataille étranger!
 
-« La perle défiant le ciel est un trésor que même l'Alliance Xiu Zhen convoite! Si mon Clan Ju Mo l'obtient et la remet à l'Alliance, nous obtiendrons certainement le rang 6. Nous pourrons alors quitter la planète Suzaku et fonder la planète des Démons Géants. Ma branche des Démons Géants acquerrait alors la qualification d'un clan Ascendant. »
+« La perle défiant le ciel est un trésor que même l'Alliance Xiu Zhen convoite! Si mon Clan Ju Mo l'obtient et la remet à l'Alliance, nous obtiendrons certainement le rang 6. Nous pourrons alors quitter la planète Suzaku et fonder la planète Ju Mo. Ma branche Ju Mo acquerrait alors la qualification d'un clan Ascendant. »
 
 « La perle défiant le ciel a été obtenue par ce Wang Lin! » Toutes ces pensées traversèrent son esprit. Il s'était fait une certitude: personne ne volerait Wang Lin aujourd'hui!
 
@@ -115,7 +115,7 @@ L'ancêtre devint instantanément méfiant. Après quelques investigations, il d
 
 Il fut alors transporté par la joie, mais à cause de l'influence de Suzaku, il ne pouvait pas agir sans risquer de voir ses espoirs s'effondrer.
 
-Cependant, il avait bien tué l'autre personne au courant de cette affaire: un messager d'un pays de culture de rang 4, en poste dans le pays de Zhao. En fouillant son âme, l'ancêtre avait vu que le messager n'était pas certain de ses informations et ne les avait pas rapportées. Rassuré, il avait décidé d'attendre le moment opportun pour frapper Wang Lin.
+Cependant, il avait bien tué l'autre personne au courant de cette affaire: un messager d'un pays de culture de rang 4, en poste dans le Pays Zhao. En fouillant son âme, l'ancêtre avait vu que le messager n'était pas certain de ses informations et ne les avait pas rapportées. Rassuré, il avait décidé d'attendre le moment opportun pour frapper Wang Lin.
 
 Un jour, Li Yuanfeng de Xue Yu était venu lui demander de mettre en place une formation pour aider à tuer Ceng Niu. Il avait immédiatement accepté, en exigeant de récupérer la boussole stellaire.
 

@@ -56,7 +56,7 @@ Bang, bang, bang.
 
 Les collisions répétées firent cracher du sang au vieil homme. Voyant que Wang Lin s'apprêtait à continuer, il cria précipitamment: « Grand-père, je t'en prie, arrête! Je suis prêt à t'appeler grand-père! Si tu continues à me projeter ainsi, ce vieux corps va se briser! »
 
-Wang Lin relâcha sa prise. Le vieil homme s'effondra au sol et se releva après un moment. Il esquissa un sourire amer: « Jeune frère apprenti, avec une telle force, va simplement voler ce que tu désires. Tant que tu ne tues pas trop de monde, personne ne viendra te déranger. »
+Wang Lin relâcha sa prise. Le vieil homme s'effondra au sol et se releva après un moment. Il esquissa un sourire amer: « Junior frère, avec une telle force, va simplement voler ce que tu désires. Tant que tu ne tues pas trop de monde, personne ne viendra te déranger. »
 
 Wang Lin jeta un dernier regard au vieil homme et s'en alla. Peu après, il arriva devant la grotte que l'homme avait désignée. Des restrictions protégeaient l'entrée. Wang Lin déploya son Sens Divin et découvrit qu'un homme d'âge moyen y cultivait. Une pièce latérale abritait également deux femmes cultivatrices.
 
@@ -94,13 +94,13 @@ Wang Lin observa l'homme. Sans l'attaquer, il agita la main pour faire voler le 
 
 « C'est là la véritable méthode pour fabriquer les drapeaux de l'âme; cependant, elle semble incomplète... » Wang Lin rétracta son Sens Divin en fronçant les sourcils.
 
-L'une des femmes, vêtue d'une robe vert jade, remarqua l'expression de Wang Lin et demanda: « Senior frère apprenti, avez-vous remarqué que la méthode semble incomplète? »
+L'une des femmes, vêtue d'une robe vert jade, remarqua l'expression de Wang Lin et demanda: « Senior frère, avez-vous remarqué que la méthode semble incomplète? »
 
 Wang Lin leva les yeux vers elles. Toutes deux étaient au stade intermédiaire de la Formation du Noyau.
 
 Il demanda: « Pourquoi en est-il ainsi? »
 
-La femme en robe vert jade répondit promptement: « Vous devez être Qing Mu, le vainqueur de la récente compétition des disciples de la secte extérieure. Moi, votre sœur apprentie, je m'appelle Xu Yun. Xu Yun salue son senior frère apprenti. Quant à l'incomplétude du drapeau, c'est parce que la méthode est divisée en trois parties. Chaque partie correspond au nom des trois montagnes: l'Affinement de l'Âme, l'Extraction de l'Âme et le Scellement de l'Âme. »
+La femme en robe vert jade répondit promptement: « Vous devez être Qing Mu, le vainqueur de la récente compétition des disciples de la secte extérieure. Moi, votre Junior sœur, je m'appelle Xu Yun. Xu Yun salue son Senior frère. Quant à l'incomplétude du drapeau, c'est parce que la méthode est divisée en trois parties. Chaque partie correspond au nom des trois montagnes: l'Affinement de l'Âme, l'Extraction de l'Âme et le Scellement de l'Âme. »
 
 « En combinant les trois méthodes, vous obtiendrez la véritable technique de fabrication du drapeau de l'âme. »
 
@@ -116,7 +116,7 @@ Le senior frère sur lequel elles comptaient ayant été mis en fuite par Wang L
 
 En plein vol, Wang Lin fronça les sourcils. Il se retourna et cria: « Ne me suivez pas! » Il lança un regard glacial aux deux femmes avant de repartir.
 
-La femme aux côtés de Xu Yun demanda anxieusement: « Sœur aînée, que devons-nous faire? »
+La femme aux côtés de Xu Yun demanda anxieusement: « Senior sœur, que devons-nous faire? »
 
 Xu Yun frappa le sol du pied en reniflant de mépris. « Que pourrions-nous faire d'autre? S'il refuse notre présence, nous ne l'importunons pas. Dès qu'il trouvera une grotte, nous ouvrirons la nôtre juste à côté de la sienne. Peut-être que les autres lui feront l'honneur de ne pas perturber notre culture. »
 

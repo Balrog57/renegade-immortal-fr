@@ -38,7 +38,7 @@ Li Shan monta sur scène avec enthousiasme, le cœur battant d'excitation. Il pe
 
 En voyant Li Shan approcher, l'expression de Sun Hao devint étrange.
 
-Li Shan s'exclama bruyamment: « Frère Sun Hao, viens donc! Sors ton art immortel le plus éclatant et attaque-moi de toutes tes forces; moi, Li Shan, je le recevrai! »
+Li Shan s'exclama bruyamment: « Senior frère Sun Hao, viens donc! Sors ton art immortel le plus éclatant et attaque-moi de toutes tes forces; moi, Li Shan, je le recevrai! »
 
 Sun Hao hésita un instant. Il avait déjà atteint le niveau requis pour utiliser des armes volantes. D'une main, il forma un sceau et une épée rouge jaillit rapidement de derrière lui, fit le tour de son corps et brilla d'un éclat froid.
 
@@ -48,7 +48,7 @@ Li Shan laissa échapper un grand rire. Il esquiva aisément l'épée volante et
 
 Les bombes puantes dans les mains de Sun Hao explosèrent avec fracas avant même qu'il ne puisse les lancer. Une odeur putride se propagea instantanément. Sun Hao resta là, couvert de cendres noires, totalement abasourdi. Il ne comprenait pas pourquoi elles avaient explosé si tôt. Avait-il serré trop fort?
 
-Li Shan poussa un soupir et dit: « La technique du frère Sun Hao est bien trop puissante. Comment appelle-t-on cela? L'autodestruction? Je t'avais pourtant prévenu d'être prudent avec ces bombes, mais tu les as manipulées avec trop de force et elles ont explosé. »
+Li Shan poussa un soupir et dit: « La technique du Senior frère Sun Hao est bien trop puissante. Comment appelle-t-on cela? L'autodestruction? Je t'avais pourtant prévenu d'être prudent avec ces bombes, mais tu les as manipulées avec trop de force et elles ont explosé. »
 
 Tous les disciples de la Secte Xuan Dao éclatèrent de rire, et des railleries fusèrent de toutes parts. Même les disciples de la Secte Heng Yue furent tentés par le rire, mais ils s'en abstinrent de peur d'offenser les Anciens.
 
@@ -70,10 +70,10 @@ L'homme d'âge moyen qui se tenait à l'arrière de la Secte Xuan Dao se tourna 
 
 Lorsque les trois hommes apparurent, ils jetèrent un regard glacial sur l'assistance. L'un d'eux, un quadragénaire, déclara: « La Secte Xuan Dao? Humph. Il y a 20 ans, moi, Lu Song, j'ai perdu. Mais cette fois, ce ne sera pas le cas. »
 
-Les pupilles de Wang Lin se contractèrent. Parmi ces trois personnes, il n'en connaissait qu'une seule: son second frère apprenti, Zhang Kuang.
+Les pupilles de Wang Lin se contractèrent. Parmi ces trois personnes, il n'en connaissait qu'une seule: son deuxième Senior frère, Zhang Kuang.
 
 Huang Long déclara simplement: « Lu Song, c'est à toi cette fois. »
 
 Lu Song acquiesça. Les deux autres quittèrent la scène pour se placer aux côtés de Huang Long.
 
-« Lu Song! Le cinquième frère aîné Lu Song! J'ai entendu dire qu'il était déjà au 6ème niveau il y a 20 ans. Cette fois, notre Secte Heng Yue va assurément gagner! »
+« Lu Song! Le cinquième Senior frère Lu Song! J'ai entendu dire qu'il était déjà au 6ème niveau il y a 20 ans. Cette fois, notre Secte Heng Yue va assurément gagner! »

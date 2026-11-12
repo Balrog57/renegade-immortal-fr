@@ -26,9 +26,9 @@ Ce jour-là, les quatre sectes avaient envoyé leurs disciples en avance. Chaque
 
 Il y avait au total trois disciples de la Secte Shi Yin: deux hommes et une femme. Ils portaient des cercueils sur leur dos et se tenaient à l'ouverture du volcan, attendant le moment opportun pour descendre.
 
-Le temps passa lentement. Voyant qu'un qi vert et parfumé s'élevait des trois autres volcans, les trois autres sectes plongèrent dans leurs cratères respectifs. Les trois disciples de la Secte Shi Yin affichèrent des visages perplexes. La femme fronça les sourcils et demanda: « Frère aîné Ma, sais-tu ce qui se passe? »
+Le temps passa lentement. Voyant qu'un qi vert et parfumé s'élevait des trois autres volcans, les trois autres sectes plongèrent dans leurs cratères respectifs. Les trois disciples de la Secte Shi Yin affichèrent des visages perplexes. La femme fronça les sourcils et demanda: « Senior frère Ma, sais-tu ce qui se passe? »
 
-L'homme nommé Ma fronçait également les sourcils lorsqu'il répondit: « Le qi vert signifie que le Fruit de l'Or Brûlant est mûr et prêt pour la récolte. Les quatre volcans devraient atteindre la maturité exactement au même moment. Frère aîné Zhou, penses-tu que nous devrions descendre vérifier? »
+L'homme nommé Ma fronçait également les sourcils lorsqu'il répondit: « Le qi vert signifie que le Fruit de l'Or Brûlant est mûr et prêt pour la récolte. Les quatre volcans devraient atteindre la maturité exactement au même moment. Senior frère Zhou, penses-tu que nous devrions descendre vérifier? »
 
 Le jeune homme nommé Zhou réfléchit un instant, puis secoua la tête: « Attendons encore un peu. Si le qi vert ne sort pas pour dissoudre le poison de feu du volcan, nous courrons un grand danger en descendant. »
 

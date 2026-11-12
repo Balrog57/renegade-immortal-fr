@@ -24,7 +24,7 @@ Au moment où il saisit la lance, un rugissement tonitruant résonna dans les en
 
 L'homme aux cheveux roux flottait toujours dans les airs, le regard empreint d'arrogance. Quant aux fragments d'âme, il semblait s'en moquer éperdument. D'un geste de la lance, il figea tous les fragments en plein vol, les maintenant à 33 mètres de lui.
 
-Puis, l'homme chargea vers la faille. Simultanément, au sein du groupe de Dou Mu, et particulièrement chez le vieil homme qui avait conclu le marché avec Wang Lin, l'inquiétude se lut sur les visages. Sans un mot, ils se levèrent brusquement pour suivre Tuo Sen dans la brèche.
+Puis, l'homme chargea vers la faille. Simultanément, au sein du groupe de Duo Mu, et particulièrement chez le vieil homme qui avait conclu le marché avec Wang Lin, l'inquiétude se lut sur les visages. Sans un mot, ils se levèrent brusquement pour suivre Tuo Sen dans la brèche.
 
 En passant devant Wang Lin, le vieil homme lui adressa un léger signe de tête. Après un bref instant d'hésitation, le Sens Divin de Wang Lin réintégra son corps, et il s'engagea dans la faille.
 
@@ -34,11 +34,11 @@ Une fois dans la faille, Wang Lin réalisa immédiatement qu'ils se trouvaient j
 
 La Mer de la Connaissance était scindée en deux: d'un côté la Mer de Sang, et de l'autre la Mer des Âmes Mortes.
 
-Une pensée traversa l'esprit de Wang Lin. Depuis son entrée dans la faille, il s'était montré extrêmement prudent. En observant discrètement les alentours, il vit que le groupe de Dou Mu s'était positionné de manière à l'encercler, lui et l'homme aux cheveux roux.
+Une pensée traversa l'esprit de Wang Lin. Depuis son entrée dans la faille, il s'était montré extrêmement prudent. En observant discrètement les alentours, il vit que le groupe de Duo Mu s'était positionné de manière à l'encercler, lui et l'homme aux cheveux roux.
 
 Cette formation était d'une grande subtilité; sans une attention soutenue, nul n'aurait décelé leur intention. Mais Wang Lin, fort de ses expériences passées, la repéra d'un seul regard.
 
-Son expression resta impassible, mais il ricana intérieurement. Premièrement, Wang Lin ne croyait pas que les petites manœuvres de Dou Mu et des autres, durant d'innombrables années, n'aient laissé filtrer aucun indice et que Tuo Sen n'en ait rien remarqué.
+Son expression resta impassible, mais il ricana intérieurement. Premièrement, Wang Lin ne croyait pas que les petites manœuvres de Duo Mu et des autres, durant d'innombrables années, n'aient laissé filtrer aucun indice et que Tuo Sen n'en ait rien remarqué.
 
 Toutefois, même si Tuo Sen s'en apercevait, cela ne concernait pas Wang Lin. Son seul but était d'être présent lors de l'ouverture de la Mer des Âmes Mortes pour pouvoir y pénétrer et utiliser sa part d'héritage de la mémoire afin de quitter ce lieu étouffant.
 
@@ -52,7 +52,7 @@ Ce fossé était si profond que l'on ne pouvait en voir le fond. Des grondements
 
 Cette fois, il effectua une entaille verticale qui, croisant la précédente, forma une immense croix. Au centre de cette croix se creusa un gouffre d'une centaine de mètres de large. Tuo Sen s'y engouffra.
 
-Une fois l'homme aux cheveux roux passé, la nervosité du groupe de Dou Mu monta d'un cran, mais ils suivirent rapidement ses traces. Wang Lin, les yeux brillants, s'élança à son tour. Parallèlement, les cultivateurs démoniaques survivants poussèrent des cris de joie.
+Une fois l'homme aux cheveux roux passé, la nervosité du groupe de Duo Mu monta d'un cran, mais ils suivirent rapidement ses traces. Wang Lin, les yeux brillants, s'élança à son tour. Parallèlement, les cultivateurs démoniaques survivants poussèrent des cris de joie.
 
 En tête, l'homme aux cheveux roux se retourna pour observer ceux qui le suivaient, un sourire glacial étirant ses lèvres. Bientôt, il atteignit le fond du brouillard gris, où le passage était obstrué par une épaisse couche de nuages traversés par des éclairs violets incessants.
 

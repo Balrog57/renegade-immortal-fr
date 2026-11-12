@@ -56,14 +56,14 @@ Comme si un aimant géant l'attirait au loin, ce fragment de Sens Divin faillit 
 
 Une telle chose ne s'était jamais produite en deux cents ans. Mais au fond d'elle, elle éprouva à la fois une soudaine compréhension et une attente. Se pourrait-il que l'homme qu'elle attendait depuis deux siècles... soit tout près?!
 
-Li Muwan prit une profonde inspiration et s'élança hors du pavillon. Alors qu'elle s'apprêtait à quitter la cour, une voix douce l'interpella: « Sœur cadette, où vas-tu? »
+Li Muwan prit une profonde inspiration et s'élança hors du pavillon. Alors qu'elle s'apprêtait à quitter la cour, une voix douce l'interpella: « Junior sœur, où vas-tu? »
 
 Une lueur froide passa dans ses yeux. Elle tenta d'avancer, mais une silhouette blanche apparut soudainement devant elle, lui barrant la route. Il s'agissait de l'homme d'âge moyen rencontré précédemment.
 
-Il regarda Li Muwan avec une légère surprise et dit: « Sœur cadette, tu ne m'as pas dit où tu comptais aller. Oh? Il est rare de te voir si pressée. »
+Il regarda Li Muwan avec une légère surprise et dit: « Junior sœur, tu ne m'as pas dit où tu comptais aller. Oh? Il est rare de te voir si pressée. »
 
-Le regard de Li Muwan devint encore plus glacial. Elle fixa l'homme tout en contenant la poussée du Sens Divin qui menaçait de déborder de son corps. Elle lâcha, d'un ton glacial et sans détour: « Sun Zhenwei, penses-tu vraiment qu'avec ta culture au stade avancé de la Formation du Noyau, tu puisses m'arrêter? Si tu ne t'écartes pas immédiatement, ta sœur cadette sera impolie! »
+Le regard de Li Muwan devint encore plus glacial. Elle fixa l'homme tout en contenant la poussée du Sens Divin qui menaçait de déborder de son corps. Elle lâcha, d'un ton glacial et sans détour: « Sun Zhenwei, penses-tu vraiment qu'avec ta culture au stade avancé de la Formation du Noyau, tu puisses m'arrêter? Si tu ne t'écartes pas immédiatement, ta Junior sœur sera impolie! »
 
-L'homme afficha un sourire empreint de douceur: « Sœur cadette, nous sommes dans la Secte Yun Tian. Comment oserais-je te barrer le passage? Dis-moi, où vas-tu? Je serais ravi de t'accompagner. »
+L'homme afficha un sourire empreint de douceur: « Junior sœur, nous sommes dans la Secte Yun Tian. Comment oserais-je te barrer le passage? Dis-moi, où vas-tu? Je serais ravi de t'accompagner. »
 
 À ce moment précis, Wang Lin atteignit le patio sud. Il fixa le brouillard blanc qui enveloppait les lieux, le visage absolument impassible.

@@ -64,7 +64,7 @@ Les yeux de la jeune fille restèrent de glace alors qu'elle pointait le sol. Ce
 
 Le mouvement des premiers provoqua une réaction en chaîne: tous les membres de Xue Yu entamèrent leur descente.
 
-Mais alors qu'ils tombaient du ciel, quatre rayons de lumière jaillirent de l'ouest, du sud, de l'est et du nord.
+Mais alors qu'ils tombaient du ciel, quatre rayons de lumière jaillirent de l'est, du sud, de l'ouest et du nord.
 
 Des piliers de lumière cyan, rouge, violet et blanc, semblant pouvoir soutenir la voûte céleste, apparurent. Au sommet de ces colonnes, des figures gigantesques se condensèrent lentement. Lorsqu'elles furent pleinement formées, elles révélèrent être d'antiques barbares revêtus d'armures de cuir.
 
@@ -82,9 +82,9 @@ Peu après, un rugissement monta de la Secte Shui Mo, au sud. Un colossal chaudr
 
 La Secte Qing Mu, à l'ouest, ne voulut pas non plus rester en retrait. Tandis que les rugissements venaient de l'est et du sud, une immense mare de boue noire, large d'environ 330 mètres, dégageant une odeur de pourriture, s'éleva dans les airs depuis la Secte Qing Mu. La boue bouillonnait, et par intermittence, des visages emplis de souffrance apparaissaient à sa surface. À l'apparition de cette substance, même la neige environnante sembla frémir.
 
-L'instant suivant, un jeune homme à l'allure fragile de la Secte de l'Âme Noire apparut au nord, accompagné par les cris nets et ordonnés d'une troupe de jeunes hommes. Il avait le teint légèrement pâle, comme s'il sortait à peine d'une grave maladie.
+L'instant suivant, un jeune homme à l'allure fragile de la Secte Hei Hun apparut au nord, accompagné par les cris nets et ordonnés d'une troupe de jeunes hommes. Il avait le teint légèrement pâle, comme s'il sortait à peine d'une grave maladie.
 
-Alors que son corps flottait dans les airs, il agita la main droite pour invoquer quelque chose. Soudain, une masse de gaz noir s'échappa de la Secte de l'Âme Noire. Ce gaz se tressa pour former un pinceau d'encre noire. Dès l'apparition du pinceau, les couleurs du ciel changèrent. Même le vieillard sur le chaudron et celui enchaîné au rocher furent frappés de stupeur.
+Alors que son corps flottait dans les airs, il agita la main droite pour invoquer quelque chose. Soudain, une masse de gaz noir s'échappa de la Secte Hei Hun. Ce gaz se tressa pour former un pinceau d'encre noire. Dès l'apparition du pinceau, les couleurs du ciel changèrent. Même le vieillard sur le chaudron et celui enchaîné au rocher furent frappés de stupeur.
 
 Ce pinceau d'apparence ordinaire flotta lentement vers la main du jeune homme. Dès qu'il le saisit, une couleur rouge et saine revint sur son visage.
 

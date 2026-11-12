@@ -44,7 +44,7 @@ Les yeux de Wang Lin s'illuminèrent alors qu'il scrutait les visages de ces dix
 
 La jeune femme ouvrit soudainement les yeux. Au début, en voyant Li Shan, elle ne parut pas s'en soucier, mais lorsqu'elle aperçut Wang Lin à ses côtés, elle fut saisie de stupeur. Après avoir attentivement observé Wang Lin, une lueur étrange passa dans son regard. Elle agita la main et le plumeau retomba dans sa paume. Le pilier de lumière se dissipa lentement.
 
-Parmi les dix membres de la Secte Xuan Dao, un jeune homme d'une trentaine d'années regarda Wang Lin avec une expression complexe et dit: « Wang... frère aîné Wang, cela faisait longtemps... »
+Parmi les dix membres de la Secte Xuan Dao, un jeune homme d'une trentaine d'années regarda Wang Lin avec une expression complexe et dit: « Wang... Senior frère Wang, cela faisait longtemps... »
 
 Cet homme était le frère de Liu Mei, Liu Feng. Wang Lin l'examina de son Sens Divin et découvrit qu'il avait atteint le stade précoce de l'Établissement des Fondations. Cependant, son énergie spirituelle était instable; il était évident qu'il venait tout juste d'entrer dans ce stade.
 
@@ -52,7 +52,7 @@ Wang Lin les fixa et soupira: « Secte Xuan Dao... peu importe. Remettez-moi vot
 
 L'un des dix disciples, un vieil homme, se leva, le visage sombre, fixa Wang Lin et dit avec un ricanement froid: « D'où sort ce junior? Quelle arrogance, exigeant de nous remettre notre jeton sur-le-champ. Liu Feng, le connais-tu? »
 
-Liu Feng sourit amèrement et répondit: « Frère aîné Ma, il... c'est Wang Lin. »
+Liu Feng sourit amèrement et répondit: « Senior frère Ma, il... c'est Wang Lin. »
 
 Le vieil homme nommé Ma fut surpris, puis il ricana: « La vermine de la Secte Heng Yue, c'est donc toi. Mais même si tu as atteint l'Établissement des Fondations, tu n'as pas le droit d'être aussi arrogant devant nous. Dégage! » Sur ces mots, il secoua sa manche et un ouragan se leva à même le sol pour atteindre Wang Lin en un clin d'œil.
 
@@ -64,7 +64,7 @@ L'épée brillait d'un éclat vert et dégageait une aura sinistre en rôdant au
 
 L'expression des disciples de la Secte Xuan Dao changea radicalement. Liu Feng, stupéfait, sentit son cœur trembler et des perles de sueur perler sur son front. Il avait toujours secrètement considéré Wang Lin comme un but à dépasser; lorsqu'il avait atteint l'Établissement des Fondations grâce à Pu Nanzi un an auparavant, il avait cru l'avoir complètement surpassé.
 
-Mais au vu de la situation, non seulement Wang Lin avait déjà atteint l'Établissement des Fondations, mais sa culture était également d'une étrangeté absolue. Le frère aîné Ma, qui se trouvait au stade intermédiaire de l'Établissement des Fondations, était mort en une seule attaque.
+Mais au vu de la situation, non seulement Wang Lin avait déjà atteint l'Établissement des Fondations, mais sa culture était également d'une étrangeté absolue. Le Senior frère Ma, qui se trouvait au stade intermédiaire de l'Établissement des Fondations, était mort en une seule attaque.
 
 Quel niveau de culture Wang Lin avait-il donc atteint? Plus Liu Feng y réfléchissait, plus la terreur l'envahissait.
 

@@ -32,7 +32,7 @@ De plus, Wang Lin remarqua un phénomène étrange. Chaque fois que la rosée no
 
 Face à ce phénomène mystérieux, Wang Lin ne pouvait conclure que la perle absorbait la rosée. Bien que son explication fût un peu absurde, il ne parvenait vraiment pas à envisager d'autre possibilité.
 
-Ce jour, au crépuscule, Wang Lin remplit les trois dernières jarres et dit au disciple vêtu de jaune qui méditait: « Frère Liu, je dois rentrer chez moi, je ne viendrai donc pas demain. »
+Ce jour, au crépuscule, Wang Lin remplit les trois dernières jarres et dit au disciple vêtu de jaune qui méditait: « Senior frère Liu, je dois rentrer chez moi, je ne viendrai donc pas demain. »
 
 Le jeune homme, Liu, leva les yeux au ciel, jeta un regard à Wang Lin, puis émit un « hm » du nez.
 

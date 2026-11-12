@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 108 - Old Friend
 slug: vieux-ami
 ---
-Alors qu'il sortait de la grotte, Wang Lin jeta un regard froid autour de lui et vit une centaine de personnes réparties en cinq groupes. Ils encerclaient un jeune homme. Un homme d'âge moyen s'avança de la foule, joignit ses mains et déclara: « Jeune frère Li Shan, votre Secte Xuan Dao n'a besoin que d'un seul jeton de qualification. Pourquoi en avez-vous besoin de tant? Si vous nous les remettez, nous ne vous importunerons plus. »
+Alors qu'il sortait de la grotte, Wang Lin jeta un regard froid autour de lui et vit une centaine de personnes réparties en cinq groupes. Ils encerclaient un jeune homme. Un homme d'âge moyen s'avança de la foule, joignit ses mains et déclara: « Junior frère Li Shan, votre Secte Xuan Dao n'a besoin que d'un seul jeton de qualification. Pourquoi en avez-vous besoin de tant? Si vous nous les remettez, nous ne vous importunerons plus. »
 
 Parmi les disciples de la Vallée Wu Feng, l'un d'eux renifla et lança: « Li Shan, remets ces jetons ou tu mourras à coup sûr! »
 

@@ -8,7 +8,7 @@ slug: voler-lesprit-de-la-terre
 ---
 Wang Lin affichait un visage sombre alors qu'il se dissimulait dans la montagne enneigée. Si Xue Yu ne possédait que cela, l'Alliance des Quatre Sectes l'emporterait sans aucun doute, mais il ressentait pourtant un étrange sentiment de danger.
 
-Il réfléchit un instant, puis ses yeux s'illuminèrent: son sens divin venait de détecter l'Esprit de la Terre. Son corps, à 5 000 kilomètres de là, dégageait une fumée noire et s'envolait depuis la Secte de l'Âme Noire en direction de la montagne. Derrière lui, le jeune homme au pinceau le poursuivait avec désinvolture. À chaque mouvement du pinceau dans sa main, l'Esprit de la Terre tremblait et une quantité accrue de fumée noire émanait de lui.
+Il réfléchit un instant, puis ses yeux s'illuminèrent: son sens divin venait de détecter l'Esprit de la Terre. Son corps, à 5 000 kilomètres de là, dégageait une fumée noire et s'envolait depuis la Secte Hei Hun en direction de la montagne. Derrière lui, le jeune homme au pinceau le poursuivait avec désinvolture. À chaque mouvement du pinceau dans sa main, l'Esprit de la Terre tremblait et une quantité accrue de fumée noire émanait de lui.
 
 En voyant cela, Wang Lin hésita. Après un moment, il prit une décision. Il quitta silencieusement la montagne enneigée et chargea vers l'Esprit de la Terre en utilisant sa technique d'évasion tellurique.
 

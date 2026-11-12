@@ -34,7 +34,7 @@ Des murmures parcoururent les rangs des disciples des six autres divisions.
 
 Le regard de Tian Yunzi se posa sur Chen Tao. Il afficha une lueur d'admiration et dit: « Tu as réussi à revenir. Très bien! »
 
-Chen Tao, le visage couvert de poussière, répondit: « Le disciple ne devait pas être en retard, mais en passant par la planète Encre Noire, j'y ai découvert un trésor rare. Je voulais l'offrir à Maître en guise de présent, ce qui a causé mon retard. »
+Chen Tao, le visage couvert de poussière, répondit: « Le disciple ne devait pas être en retard, mais en passant par la planète Hei Mo, j'y ai découvert un trésor rare. Je voulais l'offrir à Maître en guise de présent, ce qui a causé mon retard. »
 
 Tian Yunzi rit et demanda: « Quel genre de trésor a attiré ton attention? »
 
@@ -44,7 +44,7 @@ Il s'agissait d'une fleur aux six couleurs. La fleur elle-même était blanche, 
 
 Ces six teintes disparates ne dénaturaient pas la fleur blanche; au contraire, elles lui conféraient une aura surnaturelle.
 
-Chen Tao tendit la fleur vers Tian Yunzi et dit respectueusement: « C'est à cause de cette fleur mystérieuse! Les connaissances du disciple sont insuffisantes pour identifier sa véritable nature. Cependant, sur la planète Encre Noire, trois bêtes désolées de haut rang se disputaient ce trésor. Le disciple a dû déployer bien des efforts pour s'en emparer. »
+Chen Tao tendit la fleur vers Tian Yunzi et dit respectueusement: « C'est à cause de cette fleur mystérieuse! Les connaissances du disciple sont insuffisantes pour identifier sa véritable nature. Cependant, sur la planète Hei Mo, trois bêtes désolées de haut rang se disputaient ce trésor. Le disciple a dû déployer bien des efforts pour s'en emparer. »
 
 La fleur vola lentement vers Tian Yunzi et s'immobilisa devant lui. Ce dernier l'observa, réfléchit un instant, puis dit: « Cette fleur s'appelle le Glaçage aux Sept Couleurs. Il faut dix ans pour qu'elle prenne racine, cent ans pour que ses feuilles poussent, mille ans pour qu'elle émette de la lumière et dix mille ans pour qu'elle fleurisse. À chaque floraison, elle libère une couleur, jusqu'à ce qu'elle ait fleuri six fois. Lors de la septième éclosion, elle dégage une lumière aux sept couleurs. »
 

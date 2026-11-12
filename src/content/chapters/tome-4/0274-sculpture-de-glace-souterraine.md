@@ -16,7 +16,7 @@ Peu après, chaque cultivateur de Xue Yu choisit l'une des quatre sectes et enga
 
 Des vagues de froid émanaient de la neige et de la glace qui jonchaient le sol. Si les cultivateurs de l'Alliance des Quatre Sectes ressentaient un frisson en touchant la neige, pour les cultivateurs de Xue Yu, elle constituait l'arme ultime. Cette énergie glaciale permettait même aux membres de Xue Yu de récupérer, dans une certaine mesure, leur énergie spirituelle.
 
-Le ciel au-dessus de l'Alliance des Quatre Sectes était parsemé d'éclats provenant de trésors magiques. Les sites de la Secte Shui Mo, de la Secte Bai Yun, de la Secte Qing Mu et de la Secte de l'Âme Noire devinrent les théâtres des combats finaux.
+Le ciel au-dessus de l'Alliance des Quatre Sectes était parsemé d'éclats provenant de trésors magiques. Les sites de la Secte Shui Mo, de la Secte Bai Yun, de la Secte Qing Mu et de la Secte Hei Hun devinrent les théâtres des combats finaux.
 
 Certains mortels ayant eu la chance de survivre se terrèrent dans leurs maisons et prièrent en silence. Ils ignoraient tout de ce qui se tramait, et la plupart n'avaient jamais vu autant de cultivateurs de toute leur vie.
 
@@ -62,7 +62,7 @@ L'esprit élémentaire du bois, quant à lui, luttait contre la gigantesque mare
 
 D'innombrables traits noirs jaillissaient de la boue. Tout cultivateur de Xue Yu touché par l'un d'eux voyait son corps pourrir et mourait instantanément. Même l'esprit élémentaire du bois éprouvait des difficultés.
 
-Le personnage le plus singulier restait le jeune homme de la Secte de l'Âme Noire. L'esprit élémentaire de la terre se battait contre lui et peinait sérieusement. Le jeune homme demeurait parfaitement immobile; seule sa main bougeait, maniant un pinceau à encre.
+Le personnage le plus singulier restait le jeune homme de la Secte Hei Hun. L'esprit élémentaire de la terre se battait contre lui et peinait sérieusement. Le jeune homme demeurait parfaitement immobile; seule sa main bougeait, maniant un pinceau à encre.
 
 Mais à chaque coup de pinceau, l'esprit élémentaire de la terre s'échappait avec un regard empreint d'effroi. Finalement, le jeune homme ferma les yeux.
 

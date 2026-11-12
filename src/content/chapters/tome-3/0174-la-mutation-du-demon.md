@@ -40,17 +40,17 @@ Peu de temps après, le nuage noir arriva en rugissant. Derrière lui se trouvai
 
 Le roi des tornades poussa le nuage noir qui traversa en un éclair le lieu où Wang Lin se cachait, puis s'éloigna au loin. Peu après, le roi des tornades revint. Cette fois, il se déplaçait encore plus vite, poussant des hurlements violents avant de repasser en un éclair et de disparaître au loin.
 
-Une fois qu'il fut parti, Wang Lin continua lentement sa progression. Il ricana intérieurement. Ce nuage noir était sans aucun doute l'œuvre de Bossu Meng; vu sa puissance, si le roi des tornades ne l'avait pas dispersé, une fois répandu, les petites créatures auraient sans doute subi de lourdes pertes.
+Une fois qu'il fut parti, Wang Lin continua lentement sa progression. Il ricana intérieurement. Ce nuage noir était sans aucun doute l'œuvre de Meng Tuozi; vu sa puissance, si le roi des tornades ne l'avait pas dispersé, une fois répandu, les petites créatures auraient sans doute subi de lourdes pertes.
 
-Après réflexion, ses yeux s'illuminèrent: si ces petites créatures parvenaient à tuer Bossu Meng, il y aurait sûrement sur lui de nombreux trésors et pilules. En songeant aux richesses d'un puissant cultivateur de la Formation de l'Âme, Wang Lin ne put s'empêcher d'être tenté. Cependant, il chassa rapidement cette idée. Comparés aux trésors, sa vie était bien plus précieuse.
+Après réflexion, ses yeux s'illuminèrent: si ces petites créatures parvenaient à tuer Meng Tuozi, il y aurait sûrement sur lui de nombreux trésors et pilules. En songeant aux richesses d'un puissant cultivateur de la Formation de l'Âme, Wang Lin ne put s'empêcher d'être tenté. Cependant, il chassa rapidement cette idée. Comparés aux trésors, sa vie était bien plus précieuse.
 
-Après un soupir, Wang Lin abandonna ces pensées irréalistes et reprit sa marche. Toutefois, après avoir confirmé la position de Bossu Meng, il ne marcha plus en ligne droite, mais fit un détour.
+Après un soupir, Wang Lin abandonna ces pensées irréalistes et reprit sa marche. Toutefois, après avoir confirmé la position de Meng Tuozi, il ne marcha plus en ligne droite, mais fit un détour.
 
 Une demi-lune plus tard, grâce à sa grande prudence, il contourna un groupe de tornades noires qui l'avait stupéfié dès qu'il l'avait perçu par son Sens Divin.
 
 Le groupe de tornades était extrêmement dense. Le nombre de petites créatures qu'il contenait devait dépasser plusieurs centaines de millions. Wang Lin en eut la chair de poule. Cela le rendit encore plus prudent; au bout d'une demi-lune, il finit par contourner ce groupe de tourbillons.
 
-La plupart des tornades de cette terre avaient été attirées par Bossu Meng, ainsi, bien qu'il y eût quelques frayeurs en chemin, il n'y eut pas de véritable danger. Wang Lin se trouvait alors à l'intérieur d'une tour noire et, se retournant pour regarder derrière lui, il vit que Bossu Meng se trouvait là-bas!
+La plupart des tornades de cette terre avaient été attirées par Meng Tuozi, ainsi, bien qu'il y eût quelques frayeurs en chemin, il n'y eut pas de véritable danger. Wang Lin se trouvait alors à l'intérieur d'une tour noire et, se retournant pour regarder derrière lui, il vit que Meng Tuozi se trouvait là-bas!
 
 Après un ricanement intérieur, il quitta la tour et poursuivit sa route. Au loin, il pouvait distinguer un vortex gigantesque dans le ciel.
 
@@ -62,11 +62,11 @@ Cependant, l'évasion terrestre n'augmentait pas la vitesse uniquement lorsqu'on
 
 Ces derniers mois, Wang Lin avait utilisé cette technique sans relâche, et sa maîtrise s'en trouvait grandement accrue. Il sentait que sa maîtrise n'était qu'un vernis comparée à la véritable technique d'évasion terrestre décrite dans la tablette de jade de l'évasion terrestre, celle qui permettait de raccourcir le sol et de parcourir plusieurs milliers de kilomètres en un instant.
 
-Tout en soupirant, il n'oublia pas de maintenir son Sens Divin déployé pour inspecter les environs. Par chance, de vastes quantités de tornades noires étaient attirées par Bossu Meng. En avançant ainsi, Wang Lin ne rencontra guère de danger.
+Tout en soupirant, il n'oublia pas de maintenir son Sens Divin déployé pour inspecter les environs. Par chance, de vastes quantités de tornades noires étaient attirées par Meng Tuozi. En avançant ainsi, Wang Lin ne rencontra guère de danger.
 
 Trois jours plus tard, le vortex était désormais à portée de vue. Alors qu'il progressait, l'expression de Wang Lin changea brusquement et il s'enfouit dans le sol. Soudain, une force puissante se mit à lui résister. Il avala une grande gorgée de liquide spirituel et mobilisa l'énergie spirituelle de son corps pour y résister.
 
-Non loin de là, plus d'une dizaine de tornades noires apparurent soudainement. Elles venaient du vortex, et leur cible était la direction de Bossu Meng. Lorsqu'elles atteignirent l'endroit où se cachait Wang Lin, elles s'arrêtèrent brusquement et commencèrent à encercler la zone.
+Non loin de là, plus d'une dizaine de tornades noires apparurent soudainement. Elles venaient du vortex, et leur cible était la direction de Meng Tuozi. Lorsqu'elles atteignirent l'endroit où se cachait Wang Lin, elles s'arrêtèrent brusquement et commencèrent à encercler la zone.
 
 Le cœur de Wang Lin sombra. Il avait tenté d'entrer dans l'espace de la perle défiant le ciel auparavant, mais il n'y était pas parvenu depuis son arrivée dans ce désert. Autrement, il se serait contenté de s'y réfugier jusqu'à ce que les tornades passent.
 

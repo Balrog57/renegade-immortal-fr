@@ -52,18 +52,18 @@ Wang Lin sonda la zone de son Sens Divin. Wang Zhuo avait atteint comme lui le t
 
 Wang Zhuo déclara d'un ton orgueilleux: « Wang Lin, tu étais bien malin lors du grand tournoi d'il y a deux ans. Tu savais que tu n'étais pas mon égal, alors tu as simplement abandonné. Mais laisse-moi te dire une chose: une poubelle restera toujours une poubelle. Tu ne me rattraperas jamais. J'étais le meilleur nouveau venu il y a deux ans, et toi, en es-tu capable? »
 
-Le jeune homme en blanc à ses côtés ricana: « Cher frère cadet, va me chercher de l'eau à la rivière là-bas. Ton frère aîné est d'humeur clémente, je pourrais peut-être te donner quelques conseils. » En parlant, il lança une bouteille qui atterrit aux pieds de Wang Lin.
+Le jeune homme en blanc à ses côtés ricana: « Junior frère, va me chercher de l'eau à la rivière là-bas. Ton Senior frère est d'humeur clémente, je pourrais peut-être te donner quelques conseils. » En parlant, il lança une bouteille qui atterrit aux pieds de Wang Lin.
 
 Wang Lin resta silencieux et fixa le jeune homme en blanc.
 
-Ce dernier reprit avec un regard méprisant: « Qu'est-ce que ça signifie? Tu veux te battre? Laisse-moi te prévenir, le deuxième frère apprenti a déjà dit que dans la montagne arrière, les disciples intérieurs pouvaient se battre entre eux. Si tu ne te comportes pas comme il se doit, ne t'étonne pas si je te donne une leçon. »
+Ce dernier reprit avec un regard méprisant: « Qu'est-ce que ça signifie? Tu veux te battre? Laisse-moi te prévenir, le deuxième Senior frère a déjà dit que dans la montagne arrière, les disciples intérieurs pouvaient se battre entre eux. Si tu ne te comportes pas comme il se doit, ne t'étonne pas si je te donne une leçon. »
 
-« Ça suffit! Taisez-vous tous! » Un cri retentit depuis la falaise. Rapidement, une ombre fendit l'air comme un éclair: c'était celle du frère apprenti Zhang. Il fronça les sourcils en regardant l'assemblée et grogna: « Wang Zhuo, Sun Hao, au lieu de cultiver, vous êtes ici à intimider un junior qui n'est qu'au premier niveau de Condensation de Qi? Est-ce là un divertissement si intéressant que cela? »
+« Ça suffit! Taisez-vous tous! » Un cri retentit depuis la falaise. Rapidement, une ombre fendit l'air comme un éclair: c'était celle du Senior frère Zhang. Il fronça les sourcils en regardant l'assemblée et grogna: « Wang Zhuo, Sun Hao, au lieu de cultiver, vous êtes ici à intimider un Junior frère qui n'est qu'au premier niveau de Condensation de Qi? Est-ce là un divertissement si intéressant que cela? »
 
-Le visage des deux compères changea instantanément. Ils jetèrent des regards noirs à Wang Lin avant de renifler avec mépris, ne disant plus un mot. Ils craignaient manifestement le frère Zhang.
+Le visage des deux compères changea instantanément. Ils jetèrent des regards noirs à Wang Lin avant de renifler avec mépris, ne disant plus un mot. Ils craignaient manifestement le Senior frère Zhang.
 
-Le regard du frère apprenti Zhang se tourna vers Wang Lin et il ajouta d'un ton tout aussi sévère: « Wang Lin, tu n'aurais vraiment pas dû venir. Mais puisque tu es là, concentre-toi sur ta culture. Dans le monde de la culture, la puissance est tout. »
+Le regard du Senior frère Zhang se tourna vers Wang Lin et il ajouta d'un ton tout aussi sévère: « Wang Lin, tu n'aurais vraiment pas dû venir. Mais puisque tu es là, concentre-toi sur ta culture. Dans le monde de la culture, la puissance est tout. »
 
-Wang Lin hocha la tête. Après une courte hésitation, il demanda: « Frère apprenti Zhang, j'ai une question. Une fois que l'on atteint le sommet du premier niveau de Condensation de Qi, pourquoi, malgré tous mes efforts, ne parviens-je pas à passer au deuxième niveau? »
+Wang Lin hocha la tête. Après une courte hésitation, il demanda: « Senior frère Zhang, j'ai une question. Une fois que l'on atteint le sommet du premier niveau de Condensation de Qi, pourquoi, malgré tous mes efforts, ne parviens-je pas à passer au deuxième niveau? »
 
 Wang Zhuo eut un ricanement méprisant: « Avec ton talent, n'espère même pas atteindre le deuxième niveau de ta vie! »

@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 19 - Chased out
 slug: chasse
 ---
-En repensant à ces gourdes, il ne put contenir sa colère. Peu importe la manière dont il les examinait sur le chemin du retour, elles semblaient tout à fait ordinaires. Il en avait même évidé l'intérieur pour les remplir d'eau de source, mais plusieurs frères de discipline l'avaient vu en chemin et s'étaient tous moqués de lui.
+En repensant à ces gourdes, il ne put contenir sa colère. Peu importe la manière dont il les examinait sur le chemin du retour, elles semblaient tout à fait ordinaires. Il en avait même évidé l'intérieur pour les remplir d'eau de source, mais plusieurs Senior frères l'avaient vu en chemin et s'étaient tous moqués de lui.
 
 Wang Lin ricana intérieurement, mais afficha un visage d'innocence en disant: « Je ne sais pas ce qu'est l'énergie spirituelle. J'ai simplement entendu dire que vous me donneriez une pierre spirituelle si je vous rapportais une gourde. Pourriez-vous m'expliquer ce qu'est l'énergie spirituelle? »
 

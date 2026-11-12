@@ -116,7 +116,7 @@ Bien qu'il paraisse calme, il fronça les sourcils. Lors du premier essai, il av
 
 De nombreux monstres peuplaient l'épreuve du feu, et il en avait tué d'innombrables. Bien qu'il aurait pu s'échapper plus tôt en utilisant toute sa puissance, l'Empereur Antique était un homme très patient. Il préférait perdre du temps à combattre plutôt que de prendre des risques.
 
-Cette patience infinie était ce qui le distinguait grandement de Bossu Meng.
+Cette patience infinie était ce qui le distinguait grandement de Meng Tuozi.
 
 L'Empereur Antique était bien préparé pour surmonter les épreuves cette fois-ci. Même dans la mer de flammes, où sa nature était contraire au feu, il avait tenu bon et avancé pas à pas.
 
@@ -128,7 +128,7 @@ Après être entré dans la deuxième épreuve, l'Empereur Antique poussa un pro
 
 Pour entrer dans le troisième essai, il fallait maîtriser les restrictions. C'était une leçon qu'il avait profondément comprise après avoir échappé de justesse à cet endroit. S'il n'avait pas eu, autrefois, cette vitesse qui lui avait permis, dans les trois respirations de l'ouverture du tunnel, de prendre les autres de vitesse et de tuer l'une après l'autre plusieurs personnes qui lui barraient la route, il ne serait plus aujourd'hui qu'un tas de terre jaune.
 
-Il n'était pas comme le Seigneur Démon des Six Désirs, Duanmu ou Bossu Meng. Il y a plus de 1000 ans, il était déjà au stade intermédiaire de la Formation de l'Âme; il comptait parmi les puissants d'alors et faisait partie des principaux membres de l'expédition d'autrefois.
+Il n'était pas comme le Seigneur Démon des Six Désirs, Duanmu ou Meng Tuozi. Il y a plus de 1000 ans, il était déjà au stade intermédiaire de la Formation de l'Âme; il comptait parmi les puissants d'alors et faisait partie des principaux membres de l'expédition d'autrefois.
 
 À l'époque, le Seigneur Démon des Six Désirs et les autres n'étaient que des juniors à ses yeux. Sans sa blessure grave après sa fuite, comment ces trois pourraient-ils encore être en vie aujourd'hui?
 

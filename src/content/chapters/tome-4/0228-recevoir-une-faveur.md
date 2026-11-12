@@ -6,9 +6,9 @@ bookTitle: Clean Sweep
 en: Capturing a Spirit Pet
 slug: recevoir-une-faveur
 ---
-Wang Lin regarda Qiu Siping. Il esquissa un léger sourire et dit: « Ces deux juniors sont issus du Palais Enchanté, qui protège toujours les siens. Frère Qiu devrait redoubler de prudence dorénavant. »
+Wang Lin regarda Qiu Siping. Il esquissa un léger sourire et dit: « Ces deux juniors sont issus du Palais Du Mo, qui protège toujours les siens. Frère Qiu devrait redoubler de prudence dorénavant. »
 
-Qiu Siping eut un sourire amer. La jeune fille était sans danger, mais l'homme était l'un des disciples centraux du Palais Enchanté. S'il les laissait réellement s'échapper, cela ne serait pas une simple nuisance; il ne pourrait probablement plus mettre le pied dans aucune ville sous leur contrôle.
+Qiu Siping eut un sourire amer. La jeune fille était sans danger, mais l'homme était l'un des disciples centraux du Palais Du Mo. S'il les laissait réellement s'échapper, cela ne serait pas une simple nuisance; il ne pourrait probablement plus mettre le pied dans aucune ville sous leur contrôle.
 
 Mais ce n'était pas le moment de songer à ces deux-là. Actuellement, la personne devant lui dégageait une pression intimidante qui l'obligeait à une extrême vigilance. La puissance actuelle de Wang Lin lui donnait la chair de poule.
 

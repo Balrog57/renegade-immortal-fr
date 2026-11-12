@@ -52,7 +52,7 @@ En voyant Wang Lin sortir, Huang Long fut surpris et demanda: « Tu as choisi si
 
 L'expression de Wang Lin était étrange. Les moqueries de Situ Nan et les éloges de l'Ancien créaient un profond conflit en lui. Il répondit: « Ce disciple a déjà choisi. »
 
-Huang Long fronça les sourcils, s'apprêtant à lui demander quelle technique il avait sélectionnée, quand soudain, tout le Pic des Pins se mit à trembler comme sous l'effet d'un séisme.
+Huang Long fronça les sourcils, s'apprêtant à lui demander quelle technique il avait sélectionnée, quand soudain, tout le Pic Cang Song se mit à trembler comme sous l'effet d'un séisme.
 
 « Je suis Pu Nanzi de la Secte Xuan Dao. Juniors de la Secte Heng Yue, venez vite me voir! »
 
@@ -72,7 +72,7 @@ Une silhouette imposante apparut dans les airs. Son visage était empreint de di
 
 Sur ce, il agita la main et une petite colline noire apparut. Cette colline grandit aussitôt dans le vent et se changea en une montagne gigantesque. Ses deux mains formèrent des sceaux tandis que des incantations complexes s'échappaient de sa bouche.
 
-La montagne gigantesque s'abattit vers le sol. Un écran de lumière apparut au-dessus du Pic des Pins et du Pic Heng Yue. Cet écran prit la forme d'un bol renversé pour protéger la Secte Heng Yue de l'impact.
+La montagne gigantesque s'abattit vers le sol. Un écran de lumière apparut au-dessus du Pic Cang Song et du Pic Heng Yue. Cet écran prit la forme d'un bol renversé pour protéger la Secte Heng Yue de l'impact.
 
 « Pas moins impressionnant que les grandes sectes d'il y a 500 ans. Cette formation défensive doit dissimuler des techniques avancées. Elle parvient à disperser la puissance du choc, mais je veux voir combien de mes attaques elle peut encaisser sans qu'une Âme Naissante ne soit là pour la maintenir. » Pu Nanzi laissa échapper un sourire glacial; sa main bougea rapidement et fit tournoyer la montagne gigantesque, qui s'abattit à nouveau.
 
@@ -84,7 +84,7 @@ Wang Lin fit un pas et les suivit de près.
 
 À cet instant, la montagne s'abattit à nouveau. Un rugissement de tonnerre retentit lorsqu'elle percuta l'écran de lumière. Des éclats multicolores jaillirent de la barrière qui tenait tant bien que mal.
 
-Wang Lin traversa la faille et réapparut sur la plateforme du Pic des Pins. À cet instant, le vieillard aux cheveux blancs et la vieille femme étaient assis chacun au sommet d'un des huit piliers de jade blanc. Leurs mains traçaient divers sceaux tout en psalmodiant des incantations complexes.
+Wang Lin traversa la faille et réapparut sur la plateforme du Pic Cang Song. À cet instant, le vieillard aux cheveux blancs et la vieille femme étaient assis chacun au sommet d'un des huit piliers de jade blanc. Leurs mains traçaient divers sceaux tout en psalmodiant des incantations complexes.
 
 Sur les six autres piliers de jade blanc siégeaient six autres Anciens de l'Établissement des Fondations. Leurs visages étaient empreints d'amertume et d'inquiétude.
 
@@ -92,6 +92,6 @@ La vieille femme ordonna: « Huang Long, vite! Rassemble tous les disciples inte
 
 Le corps de Huang Long trembla. Sans dire un mot, il s'élança vers le pont menant au Pic Heng Yue.
 
-« Hmph. Elle a résisté à deux attaques. Que cette troisième attaque la brise! » Pu Nanzi laissa échapper un ricanement froid. Il projeta une bouffée d'énergie de l'Âme Naissante dans la montagne, qui grandit alors dix fois, obscurcissant le ciel au-dessus du Pic des Pins, puis s'abattit violemment.
+« Hmph. Elle a résisté à deux attaques. Que cette troisième attaque la brise! » Pu Nanzi laissa échapper un ricanement froid. Il projeta une bouffée d'énergie de l'Âme Naissante dans la montagne, qui grandit alors dix fois, obscurcissant le ciel au-dessus du Pic Cang Song, puis s'abattit violemment.
 
 Dans un fracas assourdissant, l'un des piliers de jade blanc se brisa. L'Ancien de l'Établissement des Fondations qui siégeait dessus saigna abondamment par tous les orifices et s'effondra au sol.

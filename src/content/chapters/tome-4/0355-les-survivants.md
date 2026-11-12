@@ -108,7 +108,7 @@ Le corps original poursuivait sa traque.
 
 « Cher compagnon cultivateur, nous ne nous connaissons même pas; pourquoi agir ainsi?! » La voix du vieil homme était étranglée par la peur. Il était déjà terrifié par la puissance des coups de cet homme.
 
-Hormis le guerrier du clan des Immortels Délaissés, il n'avait jamais rencontré un tel cultivateur. D'un seul coup de poing, il pouvait détruire des trésors magiques; d'un simple pas, il créait des déchirures spatiales. Tout cela terrifiait le vieillard.
+Hormis le guerrier du Clan Xian Yi, il n'avait jamais rencontré un tel cultivateur. D'un seul coup de poing, il pouvait détruire des trésors magiques; d'un simple pas, il créait des déchirures spatiales. Tout cela terrifiait le vieillard.
 
 Le corps original grogna et se fit encore plus féroce. D'un coup de poing, un sort semblable à une restriction apparut soudainement autour du vieil homme et de la femme au voile blanc.
 

@@ -20,7 +20,7 @@ Après un certain temps, cette question fut mise de côté, mais quelques rares 
 
 Juste avant cette guerre, le maître de Hongdie eut soudainement une vision. En saisissant cette chance, elle put discerner un indice sur son épreuve.
 
-C'est pourquoi, avant le conflit, elle avait demandé à Hongdie de remettre ses Cinq Esprits Élémentaires à sa sœur apprentie aînée, afin que celle-ci puisse mener Xue Yu dans la bataille contre l'Alliance des Quatre Sectes.
+C'est pourquoi, avant le conflit, elle avait demandé à Hongdie de remettre ses Cinq Esprits Élémentaires à sa Senior sœur, afin que celle-ci puisse mener Xue Yu dans la bataille contre l'Alliance des Quatre Sectes.
 
 En vérité, tout s'était déroulé selon les plans de son maître. En utilisant sa sœur comme substitut, Hongdie avait brisé cette épreuve: il s'agissait de répondre à la tribulation, non de l'éviter.
 
@@ -84,7 +84,7 @@ Soudain, les démons explosèrent à l'intérieur de la glace bleue, se transfor
 
 Le corps de Wang Lin ne ralentit jamais. Il utilisa la fumée pour disparaître de la vue. Lorsqu'il réapparut, il se trouvait déjà à plus de 1 000 kilomètres. Il reprit sa course effrénée tout en pointant à nouveau son front du doigt. Cette fois, il ordonna à tous les démons, excepté Xu Liguo, d'exploser.
 
-Ce n'est qu'après quelques secondes de fuite que Wang Lin sentit que les démons avaient tous explosé. Bien que la fumée fût désormais plus épaisse, cette sensation d'une aiguille dans son dos persistait.
+Ce n'est qu'après quelques respirations de fuite que Wang Lin sentit que les démons avaient tous explosé. Bien que la fumée fût désormais plus épaisse, cette sensation d'une aiguille dans son dos persistait.
 
 « Tu ne pourras pas t'échapper! » La voix lugubre de la vieille femme retentit derrière lui. La tour de glace de quatre-vingts étages émergea de la fumée noire, la vieille femme siégeant à son sommet. Son visage était sombre.
 

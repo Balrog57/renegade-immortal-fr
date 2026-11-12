@@ -6,13 +6,13 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 179 - Studying Restrictions
 slug: etude-des-restrictions
 ---
-Ce n'était pas que Wang Lin n'ait pas envisagé de revenir sur ses pas après avoir obtenu les pierres spirituelles de qualité suprême, mais la situation était trop périlleuse dans le premier essai; sans le Bossu Meng pour lui ouvrir la voie, il ignorait s'il pourrait seulement en revenir. Et même s'il parvenait à rentrer au prix de mille efforts, si cet endroit interdisait le retour, il n'y trouverait que la mort, car il n'aurait aucune chance de réussir à nouveau le premier essai.
+Ce n'était pas que Wang Lin n'ait pas envisagé de revenir sur ses pas après avoir obtenu les pierres spirituelles de qualité suprême, mais la situation était trop périlleuse dans le premier essai; sans Meng Tuozi pour lui ouvrir la voie, il ignorait s'il pourrait seulement en revenir. Et même s'il parvenait à rentrer au prix de mille efforts, si cet endroit interdisait le retour, il n'y trouverait que la mort, car il n'aurait aucune chance de réussir à nouveau le premier essai.
 
 La personnalité de Wang Lin ne lui permettait pas de prendre des risques facilement, surtout lorsque des enjeux qu'il ne pouvait se permettre de perdre étaient en jeu.
 
-Cependant, d'après l'analyse de Wang Lin, si le Bossu Meng et les autres avaient pu quitter cet endroit il y a mille ans, cela signifiait qu'il existait une formation de transfert pour en sortir. Autrement, ces quatre individus n'auraient jamais osé revenir ici.
+Cependant, d'après l'analyse de Wang Lin, si Meng Tuozi et les autres avaient pu quitter cet endroit il y a mille ans, cela signifiait qu'il existait une formation de transfert pour en sortir. Autrement, ces quatre individus n'auraient jamais osé revenir ici.
 
-Malheureusement, le jade laissé par le Bossu Meng ne contenait aucune présentation de ce lieu. L'objet d'héritage qu'ils avaient obtenu n'était pas entre les mains du Bossu Meng.
+Malheureusement, le jade laissé par Meng Tuozi ne contenait aucune présentation de ce lieu. L'objet d'héritage qu'ils avaient obtenu n'était pas entre les mains de Meng Tuozi.
 
 Les yeux de Wang Lin s'illuminèrent. Il était convaincu que s'il pouvait mettre la main sur cet objet d'héritage, il trouverait un moyen de s'échapper.
 
@@ -20,7 +20,7 @@ Après avoir soigneusement inspecté les environs, Wang Lin avança. Peu de temp
 
 Le ciel était sombre, dégageant une sensation d'oppression, comme si un rocher géant pesait sur le cœur. Wang Lin traversa prudemment l'interstice entre deux restrictions avant de pousser un soupir de soulagement.
 
-Il regarda autour de lui. Un parcours de moins de cent mètres lui avait pris plusieurs heures. Il devait s'assurer qu'aucun problème ne subsistait à chaque pas avant de le faire.
+Il regarda autour de lui. Un parcours de moins de trois cents pieds lui avait pris plusieurs heures. Il devait s'assurer qu'aucun problème ne subsistait à chaque pas avant de le faire.
 
 Il leva les yeux vers la montagne qui semblait infinie. Il se demanda combien d'années il lui faudrait pour atteindre le sommet s'il continuait à ce rythme.
 

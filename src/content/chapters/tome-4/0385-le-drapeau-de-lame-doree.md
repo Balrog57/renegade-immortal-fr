@@ -40,11 +40,11 @@ La créature agita la tête et expulsa deux volutes de brume noire par ses narin
 
 « Un Qilin? » Sans l'ombre d'une hésitation, Wang Lin disparut.
 
-La bête manqua sa cible. Elle regarda au loin et poussa un rugissement. Le cri se propagea vers les veines spirituelles, mais fut stoppé par une force douce après 330 mètres.
+La bête manqua sa cible. Elle regarda au loin et poussa un rugissement. Le cri se propagea vers les veines spirituelles, mais fut stoppé par une force douce après mille pieds.
 
 La bête laissa échapper quelques autres rugissements de rage avant de redevenir un brouillard noir et de disparaître à nouveau dans le petit drapeau doré.
 
-Wang Lin réapparut dans une veine spirituelle située à plus de mille mètres de là, où les minerais spirituels répandaient un éclat cristallin. Il fronça légèrement les sourcils en jetant un regard vers l'endroit où se trouvait le brouillard noir.
+Wang Lin réapparut dans une veine spirituelle située à plusieurs milliers de pieds de là, où les minerais spirituels répandaient un éclat cristallin. Il fronça légèrement les sourcils en jetant un regard vers l'endroit où se trouvait le brouillard noir.
 
 « Ce n'est pas un Qilin, mais il est similaire au Qilin que possédait Ling Tianhou dans le Royaume Céleste. Ce petit drapeau doré doit être un trésor de la Secte Lian Hun. Cette bête est à la fois la gardienne du drapeau et l'une des âmes qu'il renferme. »
 
@@ -70,27 +70,27 @@ Cela conférait à l'endroit une aura de paradis céleste.
 
 Xu Yun et Liu Wei étaient assises dans l'un des pavillons, une assiette de fruits devant elles. Elles discutaient tout en jetant parfois un regard vers l'entrée de la grotte.
 
-Le sourcil de Liu Wei tressaillit alors qu'elle demandait: « Sœur apprentie aînée Xu Yun, pensez-vous que lorsque le frère aîné Qing Mu sortira, il nous détestera pour avoir fait tout cela sans sa permission? »
+Le sourcil de Liu Wei tressaillit alors qu'elle demandait: « Senior sœur Xu Yun, pensez-vous que lorsque le Senior frère Qing Mu sortira, il nous détestera pour avoir fait tout cela sans sa permission? »
 
 Liu Wei était l'une des deux jeunes filles mentionnées plus tôt. Elle avait une petite silhouette et était d'une tête plus courte qu'Xu Yun, mais son corps était très beau et gracieux.
 
-« Cela ne devrait pas arriver, car tout cultivateur aime la propreté et la beauté. Nous avons rendu cet endroit magnifique; même s'il n'exprime aucune joie en surface, il ne sera pas en colère. Sœur apprentie Liu Wei, détends-toi. » Xu Yun sourit en prenant un fruit et en croquant dedans.
+« Cela ne devrait pas arriver, car tout cultivateur aime la propreté et la beauté. Nous avons rendu cet endroit magnifique; même s'il n'exprime aucune joie en surface, il ne sera pas en colère. Junior sœur Liu Wei, détends-toi. » Xu Yun sourit en prenant un fruit et en croquant dedans.
 
-Liu Wei afficha un air joyeux et dit: « Ces derniers mois, la réputation du frère aîné Qing Mu a été propagée par nous, sœurs, et notre vie s'en est trouvée bien meilleure. Si cela peut continuer, ce serait merveilleux. J'ai réussi à collecter plus d'âmes brisées ces derniers mois qu'en une année entière auparavant. »
+Liu Wei afficha un air joyeux et dit: « Ces derniers mois, la réputation du Senior frère Qing Mu a été propagée par nous, sœurs, et notre vie s'en est trouvée bien meilleure. Si cela peut continuer, ce serait merveilleux. J'ai réussi à collecter plus d'âmes brisées ces derniers mois qu'en une année entière auparavant. »
 
 Xu Yun acquiesça: « Avec notre talent, tant que personne ne nous vole, nous pourrons certainement fabriquer un drapeau de cent âmes. Nous pourrons alors l'utiliser pour cultiver et atteindre à coup sûr le stade avancé de la Formation du Noyau! »
 
-Liu Wei murmura: « Sœur apprentie, je suis toujours un peu inquiète car nous avons de plus en plus de visiteurs chaque jour. Si le frère aîné Qing Mu découvre que c'est nous qui sommes à l'origine de tout cela, il ne nous fera peut-être pas de cadeau. »
+Liu Wei murmura: « Senior sœur, je suis toujours un peu inquiète car nous avons de plus en plus de visiteurs chaque jour. Si le Senior frère Qing Mu découvre que c'est nous qui sommes à l'origine de tout cela, il ne nous fera peut-être pas de cadeau. »
 
 « Il ne devrait pas... » Avant qu'Xu Yun n'ait pu terminer sa phrase, un arc-en-ciel descendit soudainement du sommet de la montagne et, en atterrissant devant l'entrée de la grotte, se mua en un homme d'âge mûr vêtu d'une robe grise, très beau. Ses longs cheveux flottant au vent lui donnaient une allure céleste.
 
-« Frère apprenti Qing Mu, je suis Guo Dongjian. J'espère que tu sortiras pour que nous puissions discuter. »
+« Junior frère Qing Mu, je suis Guo Dongjian. J'espère que tu sortiras pour que nous puissions discuter. »
 
-Xu Yun se leva et dit: « Frère aîné Guo, je vous prie de repartir; le frère aîné Qing Mu est toujours en culture de méditation fermée. »
+Xu Yun se leva et dit: « Senior frère Guo, je vous prie de repartir; le Senior frère Qing Mu est toujours en culture de méditation fermée. »
 
 Guo Dongjian fronça les sourcils. Il se tourna vers Xu Yun et demanda: « Vous deux êtes les concubines de Qing Mu? »
 
-Le visage de Liu Wei devint rouge et elle resta muette. L'expression d'Xu Yun resta impassible alors qu'elle répondait: « Frère aîné, nous sommes effectivement les concubines du frère aîné Qing Mu. »
+Le visage de Liu Wei devint rouge et elle resta muette. L'expression d'Xu Yun resta impassible alors qu'elle répondait: « Senior frère, nous sommes effectivement les concubines du Senior frère Qing Mu. »
 
 Les yeux de Guo Dongjian devinrent glacials et il s'écria: « Quelles idioties! Vous pouvez bien vouloir tromper les autres, mais vous osez me tromper, moi?! Vous deux, dégagez! »
 
@@ -116,7 +116,7 @@ Les fragments d'âmes autour de lui chargèrent soudainement Wang Lin. Certains 
 
 Wang Lin resta impassible. Il pointa sa main droite et dit: « Vortex! »
 
-Un immense tourbillon noir apparut devant lui. Guo Dongjian pâlit aussitôt et dit d'une voix amère: « Frère aîné Qing Mu, ta retraite n'était donc qu'un entraînement aux arts de raffinement des âmes : en seulement trois mois, tu as réussi à créer un tourbillon d'âmes. Je suis admiratif. »
+Un immense tourbillon noir apparut devant lui. Guo Dongjian pâlit aussitôt et dit d'une voix amère: « Senior frère Qing Mu, ta retraite n'était donc qu'un entraînement aux arts de raffinement des âmes : en seulement trois mois, tu as réussi à créer un tourbillon d'âmes. Je suis admiratif. »
 
 À peine eut-il prononcé ce mot que les fragments d'âmes qui chargeaient vers lui poussèrent des cris déchirants et furent aspirés par le vortex. Rapidement, tous les fragments disparurent, à l'exception de celui dégageant l'aura de l'Âme Naissante.
 
@@ -128,4 +128,4 @@ Wang Lin regarda ce fragment, puis tourna son regard vers Guo Dongjian. « Où a
 
 Guo Dongjian soupira intérieurement. En voyant Wang Lin utiliser le vortex d'âmes, il avait déjà renoncé à toute résistance.
 
-« Frère aîné Qing Mu, félicitations pour être la troisième personne de la Montagne de l'Affinement de l'Âme à maîtriser le vortex d'âmes. Quant au fragment de l'Âme Naissante, je l'ai échangé avec Su Jinshi de la Montagne Chou Po de l'Âme contre un drapeau de cent âmes contenant neuf cents âmes. »
+« Senior frère Qing Mu, félicitations pour être la troisième personne de la Montagne de l'Affinement de l'Âme à maîtriser le vortex d'âmes. Quant au fragment de l'Âme Naissante, je l'ai échangé avec Su Jinshi de la Montagne de l'Extraction de l'Âme contre un drapeau de cent âmes contenant neuf cents âmes. »

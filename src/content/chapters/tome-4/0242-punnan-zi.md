@@ -68,7 +68,7 @@ Dans les profondeurs de cette fosse se trouvait un cercueil de cristal noir. Ce 
 
 Parmi ces ossements, il y avait des os d'humains et de bêtes, ceux de tous les infortunés qui avaient été aspirés en ces lieux au cours des quatre derniers siècles.
 
-C'était là que cultivait l'individu que Teng Huit craignait le plus. C'était la zone de culture de Teng Yi.
+C'était là que cultivait l'individu que Teng Ba craignait le plus. C'était la zone de culture de Teng Yi.
 
 Teng Yi était une légende au sein de la famille Teng.
 

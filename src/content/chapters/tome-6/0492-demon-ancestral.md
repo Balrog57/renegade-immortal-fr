@@ -18,7 +18,7 @@ Un étrange symbole scintillait sur le front de Zhao Xingsha. À chaque fois que
 
 Dès l'apparition de cette entité, tous les membres des diverses sectes furent frappés de stupeur et se dispersèrent rapidement. Même les six cultivateurs Ascendants laissèrent transparaître une lueur mystérieuse dans leurs yeux.
 
-L'homme qui n'avait pas prononcé un seul mot depuis sept jours, celui dont l'attention ne s'était déplacée qu'en voyant Wang Lin utiliser la flamme démoniaque, l'unique cultivateur Ascendant de stade avancé présent ici, le Grand Ancien de la Secte Nuage d'Eau, Jiang Tianzun, fronça les sourcils et murmura: « Démon Ancestral! »
+L'homme qui n'avait pas prononcé un seul mot depuis sept jours, celui dont l'attention ne s'était déplacée qu'en voyant Wang Lin utiliser la flamme démoniaque, l'unique cultivateur Ascendant de stade avancé présent ici, le Grand Ancien de la Secte Shui Yun, Jiang Tianzun, fronça les sourcils et murmura: « Démon Ancestral! »
 
 Sa voix était empreinte d'incertitude, car même lui n'en était pas certain.
 
@@ -80,7 +80,7 @@ L'homme au visage rouge scruta Zhao Xingsha et demanda: « Tu me connais? »
 
 Zhao Xingsha hocha la tête et répondit respectueusement: « Lorsque le disciple est entré dans la Secte Tian Yun il y a plus de mille ans, j'ai rencontré l'Oncle-Maître une fois. »
 
-Le vieil homme renifla: « Même si tu me connais, cela ne sert à rien. L'esprit démoniaque en ton corps vient à peine de croître et tu as déjà tenté de l'utiliser de force. Attends-toi donc à la punition de ton maître! » Sur ce, il tendit la main pour saisir Zhao Xingsha, puis son regard se porta vers Wang Lin. Un air d'intérêt apparut sur son visage et il sourit: « Petit, ton maître place de grands espoirs en toi. Ce frère aîné ne participera pas à la compétition pour le titre de disciple véritable de ta Division Pourpre, tu peux donc te détendre! »
+Le vieil homme renifla: « Même si tu me connais, cela ne sert à rien. L'esprit démoniaque en ton corps vient à peine de croître et tu as déjà tenté de l'utiliser de force. Attends-toi donc à la punition de ton maître! » Sur ce, il tendit la main pour saisir Zhao Xingsha, puis son regard se porta vers Wang Lin. Un air d'intérêt apparut sur son visage et il sourit: « Petit, ton maître place de grands espoirs en toi. Ton Premier Senior frère ne participera pas à la compétition pour le titre de disciple véritable de ta Division Pourpre, tu peux donc te détendre! »
 
 Puis, l'homme joignit les mains vers les cultivateurs environnants et déclara: « Je crois que certains d'entre vous me connaissent. Aujourd'hui, la bataille entre les juniors de la Division Pourpre a gâché l'ambiance. J'espère que vous ne m'en tiendrez pas rigueur! »
 
@@ -88,7 +88,7 @@ Jiang Tianzun regarda Chi Lie et répondit avec respect: « Senior est trop mode
 
 À peine eut-il fini de parler que d'autres s'empressèrent de l'imiter. Bientôt, presque tous les cultivateurs présents exprimèrent la même opinion.
 
-Chi Lie rit en secouant la tête: « Ne faites pas trop de compliments à ces quelques disciples indisciplinés. Demain, mon frère aîné, Tian Yunzi, enseignera le Dao. Tout le monde, j'ai encore des affaires importantes à régler, je prends donc congé. »
+Chi Lie rit en secouant la tête: « Ne faites pas trop de compliments à ces quelques disciples indisciplinés. Demain, mon Senior frère, Tian Yunzi, enseignera le Dao. Tout le monde, j'ai encore des affaires importantes à régler, je prends donc congé. »
 
 Sur ce, Chi Lie s'élança, emportant Zhao Xingsha dans sa main. Il s'évapora tel un nuage rouge vers l'horizon.
 

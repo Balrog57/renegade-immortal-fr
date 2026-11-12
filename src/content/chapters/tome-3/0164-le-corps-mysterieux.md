@@ -38,7 +38,7 @@ Une voix glaciale résonna à l'intérieur du corps de Zhao Chuanliang. « Annul
 
 Zhao Chuanliang soupira et demanda: « Ye Zizai, que dois-je faire? »
 
-« Que faire? Je l'ignore aussi, mais en tant qu'ancien chef de la Secte Shi Yin de Zhao, j'ai déjà rencontré une situation similaire. Le cas de mon disciple junior était proche, bien que légèrement différent. La lampe spirituelle de l'âme numéro 4876 ne s'est pas encore éteinte, ce qui signifie qu'il est toujours en vie. Si tu peux le trouver, ce sera pour le mieux; mais si tu échoues, tu seras en danger. »
+« Que faire? Je l'ignore aussi, mais en tant qu'ancien chef de la Secte Shi Yin de Zhao, j'ai déjà rencontré une situation similaire. Le cas de mon Junior frère était proche, bien que légèrement différent. La lampe spirituelle de l'âme numéro 4876 ne s'est pas encore éteinte, ce qui signifie qu'il est toujours en vie. Si tu peux le trouver, ce sera pour le mieux; mais si tu échoues, tu seras en danger. »
 
 « Cependant, je suis très curieux. Shang Zong a dit qu'il t'accordait dix jours parce que c'est "ce" corps. Quel est ton lien avec l'ancien propriétaire de ce corps? »
 

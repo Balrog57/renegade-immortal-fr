@@ -16,17 +16,17 @@ Cependant, à cet instant précis, des grondements retentirent de toutes parts e
 
 Si un mortel avait été témoin de cela, il aurait été frappé de stupeur, mais Wang Lin avait déjà atteint le stade de la Formation de l'Âme; tant qu'il n'aurait pas à affronter cette ligne noire, il n'avait rien à craindre.
 
-Il réfléchit un instant, mais ne partit pas immédiatement. Il déploya son sens divin et fut stupéfait de constater que le sixième frère cadet n'était pas mort. Il se déplaçait dans les grottes environnantes.
+Il réfléchit un instant, mais ne partit pas immédiatement. Il déploya son sens divin et fut stupéfait de constater que le sixième Junior frère n'était pas mort. Il se déplaçait dans les grottes environnantes.
 
 Et d'après la direction qu'il suivait, il ne montait pas, mais venait vers Wang Lin.
 
-Les yeux de Wang Lin s'illuminèrent et il esquissa un sourire malicieux. Ce sixième frère cadet était un homme impitoyable; il avait caché son niveau de culture jusqu'au moment opportun.
+Les yeux de Wang Lin s'illuminèrent et il esquissa un sourire malicieux. Ce sixième Junior frère était un homme impitoyable; il avait caché son niveau de culture jusqu'au moment opportun.
 
 D'après sa trajectoire, il se dirigeait vers Wang Lin, mais ce dernier n'était pas certain de ses intentions. S'il venait avec la volonté de tuer Wang Lin, alors celui-ci n'hésiterait pas à l'éliminer une fois de plus pour s'emparer de ses trésors.
 
 Bien que cet homme fût au stade intermédiaire de la Formation de l'Âme, Wang Lin était convaincu qu'avec les trésors magiques dont il disposait, il avait plus de 80 % de chances de l'emporter.
 
-Wang Lin agita le drapeau de restriction et la brume noire disparut dans les parois environnantes. Il posa sa main sur le piège à bêtes à son poignet et attendit silencieusement l'arrivée du sixième frère.
+Wang Lin agita le drapeau de restriction et la brume noire disparut dans les parois environnantes. Il posa sa main sur l'anneau de contrôle des bêtes à son poignet et attendit silencieusement l'arrivée du sixième frère.
 
 Peu de temps après, une silhouette émergea du mur que Wang Lin observait. Dès qu'il apparut, l'homme se montra extrêmement prudent en fixant Wang Lin du regard.
 
@@ -36,11 +36,11 @@ Wang Lin eut un petit rire étouffé. Il réalisa que cet homme savait qu'il le 
 
 Wang Lin demanda calmement: « Cet endroit est déjà effondré. Pourquoi ce compagnon cultivateur vient-il à ma rencontre au lieu de chercher une issue? »
 
-Le sixième frère cadet regarda autour de lui et, sans avancer, répondit: « Le compagnon cultivateur nous a suivis tout le long. Je suppose que vous avez également aperçu la nourriture pour bêtes célestes. »
+Le sixième Junior frère regarda autour de lui et, sans avancer, répondit: « Le compagnon cultivateur nous a suivis tout le long. Je suppose que vous avez également aperçu la nourriture pour bêtes célestes. »
 
 Wang Lin sourit légèrement, esquiva la question et demanda: « Que voulez-vous dire par là? »
 
-Les yeux du sixième frère cadet s'illuminèrent d'une expression mystérieuse: « Ne vous inquiétez pas, compagnon cultivateur. Mon nom est Sun Lei. Je n'ai aucune crainte à vous l'avouer: je ne fais pas réellement partie de la Secte Da Luo. Je m'y suis simplement infiltré. »
+Les yeux du sixième Junior frère s'illuminèrent d'une expression mystérieuse: « Ne vous inquiétez pas, compagnon cultivateur. Mon nom est Sun Lei. Je n'ai aucune crainte à vous l'avouer: je ne fais pas réellement partie de la Secte Da Luo. Je m'y suis simplement infiltré. »
 
 Wang Lin resta silencieux.
 
@@ -96,7 +96,7 @@ Wang Lin dit avec nonchalance: « J'ai remarqué qu'avant d'arriver ici, vous se
 
 Sun Lei laissa échapper un rire. Il tapa sur son sac de rangement et en sortit un morceau de jade. Il le lança à Wang Lin en disant: « La Tactique de Recherche Complète. C'est une technique de la Secte Da Luo. Je peux vous l'offrir comme présent sans problème. »
 
-Wang Lin prit le jade, le rangea après l'avoir inspecté, puis dit: « Vous êtes effectivement franc, je ne vais donc plus tourner autour du pot non plus. Je veux la gourde verte qui se trouve dans le sac de votre troisième frère aîné, et alors je serai prêt à prendre ce risque avec vous. »
+Wang Lin prit le jade, le rangea après l'avoir inspecté, puis dit: « Vous êtes effectivement franc, je ne vais donc plus tourner autour du pot non plus. Je veux la gourde verte qui se trouve dans le sac de votre troisième Senior frère, et alors je serai prêt à prendre ce risque avec vous. »
 
 « Impossible! » répondit Sun Lei sans l'ombre d'une hésitation. « Cette gourde est la raison même de mon infiltration dans la Secte Da Luo, alors ne me compliquez pas la tâche. »
 
@@ -116,6 +116,6 @@ Les yeux de Wang Lin s'illuminèrent. Il agita ses manches et dit: « Compagnon 
 
 Sans un mot, Sun Lei se dirigea vers l'une des grottes qui ne s'étaient pas encore effondrées. Les deux hommes marchèrent vers la grotte en maintenant une certaine distance. Il était évident qu'aucun d'eux ne se faisait confiance, et chacun restait sur ses gardes face à l'autre.
 
-Sun Lei ricana intérieurement: « Même si vous cachez votre niveau de culture, dès que j'aurai l'épée et que vous tenterez de la voler, je quitterai le Royaume Céleste et utiliserai le trésor de la secte pour vous anéantir. »
+Sun Lei ricana intérieurement: « Même si vous cachez votre niveau de culture, dès que j'aurai l'épée et que je vous dépouillerai de force, je quitterai le Royaume Céleste et utiliserai le trésor de la secte pour vous anéantir. »
 
 C'était l'une des raisons pour lesquelles il avait sollicité l'aide de Wang Lin, malgré sa crainte que celui-ci ne dissimule sa véritable puissance.

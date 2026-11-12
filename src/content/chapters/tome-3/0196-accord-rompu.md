@@ -40,7 +40,7 @@ Après réflexion, Wang Lin prit le sac de pierres spirituelles de qualité sup�
 
 Au même instant, un changement survint.
 
-Le groupe de Dou Mu se regarda et, l'ancien en tête, chacun forma des sceaux de ses deux mains. Des colonnes de lumière jaillirent de leurs mains et les relièrent les uns aux autres, formant une figure irrégulière qui encerclait Tuo Sen.
+Le groupe de Duo Mu se regarda et, l'ancien en tête, chacun forma des sceaux de ses deux mains. Des colonnes de lumière jaillirent de leurs mains et les relièrent les uns aux autres, formant une figure irrégulière qui encerclait Tuo Sen.
 
 Le regard glacial de Tuo Sen balaya les dix personnes. Son visage laissa apparaître un sourire sardonique. Il ricana: « Vous dix avez attendu si longtemps pour enfin saisir cette opportunité. Très bien! »
 

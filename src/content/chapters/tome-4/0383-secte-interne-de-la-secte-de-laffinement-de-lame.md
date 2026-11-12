@@ -58,7 +58,7 @@ Wang Lin secoua légèrement la tête. Bien que ce sortilège fût mystérieux, 
 
 Sans aucune ambiguïté, Wang Lin était le vainqueur de cette compétition.
 
-Le disciple de la secte interne chargé du combat joignit les mains en signe de respect envers Wang Lin et dit: « Je m'appelle Wang Zhen. La prochaine fois que nous nous croiserons, je devrai t'appeler junior frère apprenti. Qing Mu, viens, suis-moi pour rencontrer l'Ancien. »
+Le disciple de la secte interne chargé du combat joignit les mains en signe de respect envers Wang Lin et dit: « Je m'appelle Wang Zhen. La prochaine fois que nous nous croiserons, je devrai t'appeler Junior frère. Qing Mu, viens, suis-moi pour rencontrer l'Ancien. »
 
 Wang Lin hocha la tête avec un sourire et suivit Wang Zhen dans la secte interne.
 
@@ -76,19 +76,19 @@ Wang Lin observa les anneaux de lumière. De là, il pouvait clairement sentir q
 
 « Si je parviens à récupérer mes forces, aucun des cultivateurs de ces neuf anneaux ne fera le poids face à moi! » Les yeux de Wang Lin restaient calmes.
 
-Wang Zhen se tourna vers lui et demanda: « Qing Mu, connais-tu Ceng Niu? »
+Wang Zhen se tourna vers lui et demanda: « Qing Mu, connais-tu Zeng Niu? »
 
-« Ceng Niu? » Wang Lin hocha la tête avec calme et répondit: « J'en ai entendu parler. »
+« Zeng Niu? » Wang Lin hocha la tête avec calme et répondit: « J'en ai entendu parler. »
 
-« Ma Secte Lian Hun comptait dix cultivateurs au stade de la Formation de l'Âme, mais l'un d'eux a été tué par Ceng Niu. » Les yeux de Wang Zhen brillaient d'admiration. « Il est mon objectif. Un jour, je deviendrai le premier cultivateur sous le stade de la Transformation de l'Âme sur Suzaku! »
+« Ma Secte Lian Hun comptait dix cultivateurs au stade de la Formation de l'Âme, mais l'un d'eux a été tué par Zeng Niu. » Les yeux de Wang Zhen brillaient d'admiration. « Il est mon objectif. Un jour, je deviendrai le premier cultivateur sous le stade de la Transformation de l'Âme sur Suzaku! »
 
 « Oh, vraiment? » Wang Lin réfléchit un long moment, mais ne se souvenait pas avoir tué un jour un cultivateur au stade de la Formation de l'Âme de la Secte Lian Hun.
 
-Wang Zhen poursuivit: « Peu de gens sont au courant, pourtant. Ce patriarche de la Formation de l'Âme voyageait dans d'autres pays lorsqu'il est entré en conflit avec Ceng Niu et qu'il a été tué par lui. »
+Wang Zhen poursuivit: « Peu de gens sont au courant, pourtant. Ce patriarche de la Formation de l'Âme voyageait dans d'autres pays lorsqu'il est entré en conflit avec Zeng Niu et qu'il a été tué par lui. »
 
 Wang Lin se frotta le nez. Il ne s'en souvenait vraiment absolument pas.
 
-« Ce Ceng Niu a vraiment disparu au moment opportun. Dun Tian, de notre Secte Lian Hun, allait justement aller lui demander des comptes à ce sujet. » Wang Zhen soupira.
+« Ce Zeng Niu a vraiment disparu au moment opportun. Dun Tian, de notre Secte Lian Hun, allait justement aller lui demander des comptes à ce sujet. » Wang Zhen soupira.
 
 « Le patriarche Dun Tian? » Les yeux de Wang Lin s'illuminèrent.
 
@@ -132,17 +132,17 @@ Wang Lin hocha la tête et partit respectueusement.
 
 Peu après son départ, deux puissants sens divins apparurent dans le hall.
 
-« Junior frère apprenti, comment trouves-tu cet individu? »
+« Junior frère, comment trouves-tu cet individu? »
 
 Le vieil homme eut un ricanement méprisant: « Rien de préoccupant! »
 
-« Junior frère apprenti, ces dernières années, tous les patriarches sont en culture fermée. Nous devons tenir bon et ne laisser entrer personne ayant de mauvaises intentions. »
+« Junior frère, ces dernières années, tous les patriarches sont en culture fermée. Nous devons tenir bon et ne laisser entrer personne ayant de mauvaises intentions. »
 
-La voix du vieil homme se fit glaciale: « Quelle plaisanterie. Ce n'est pas comme si nous n'avions pas déjà assez de personnes avec des motifs cachés au sein de la Secte Lian Hun. Un de plus ou un de moins ne changera rien. Un disciple sur dix sous la direction de mes deux frères aînés est animé par des desseins secrets. Occupez-vous de vos propres montagnes. Les affaires de ma Montagne de l'Affinement de l'Âme ne vous concernent pas. »
+La voix du vieil homme se fit glaciale: « Quelle plaisanterie. Ce n'est pas comme si nous n'avions pas déjà assez de personnes avec des motifs cachés au sein de la Secte Lian Hun. Un de plus ou un de moins ne changera rien. Un disciple sur dix sous la direction de mes deux Senior frères est animé par des desseins secrets. Occupez-vous de vos propres montagnes. Les affaires de ma Montagne de l'Affinement de l'Âme ne vous concernent pas. »
 
 « La frustration du disciple junior est grande. Ce jeune homme doté d'une intuition anticipatrice a été choisi par moi. Celui qui maîtrise le sortilège de la mort a été choisi par le frère cadet en charge de la Montagne du Scellement de l'Âme. Le dernier restant est le vainqueur de la compétition. Le cadet n'est-il toujours pas satisfait? »
 
-L'expression du vieil homme se crispa: « Quelles absurdités! Ils ont tous deux des capacités spéciales, mais cet individu n'a qu'un niveau de culture légèrement plus élevé! Mes deux frères aînés, je ne vous raccompagne pas! »
+L'expression du vieil homme se crispa: « Quelles absurdités! Ils ont tous deux des capacités spéciales, mais cet individu n'a qu'un niveau de culture légèrement plus élevé! Mes deux Senior frères, je ne vous raccompagne pas! »
 
 Les deux sens divins éclatèrent d'un rire sonore avant de se dissiper.
 

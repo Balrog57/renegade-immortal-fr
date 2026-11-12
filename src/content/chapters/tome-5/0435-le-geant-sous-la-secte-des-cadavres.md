@@ -81,7 +81,7 @@ Ses yeux brillèrent, il laissa échapper un reniflement froid et marmonna pour 
 
 « Cependant, il vaut mieux ne pas utiliser le trésor du vieil homme, sauf nécessité absolue. Ce vieux sac d'os a bien caché ses intentions, mais j'ai remarqué depuis longtemps que son attitude envers moi était singulière.
 
-« J'aurai besoin de l'aide de ma sœur apprentie pour dévorer le domaine de Ceng Niu. Je devrai planifier cela avec soin! Une fois que j'aurai dévoré le domaine de cet homme et capturé ma sœur apprentie, je quitterai cette planète. L'univers est vaste et je serai libre de faire ce que je veux. Auparavant, le titre de Suzaku m'importait, mais maintenant que la planète est en plein chaos, ce titre ne me sert à rien! Cependant, avant de partir, je dois torturer à mort cette traînée de Zi Xin! »
+« J'aurai besoin de l'aide de ma Junior sœur pour dévorer le domaine de Ceng Niu. Je devrai planifier cela avec soin! Une fois que j'aurai dévoré le domaine de cet homme et capturé ma Junior sœur, je quitterai cette planète. L'univers est vaste et je serai libre de faire ce que je veux. Auparavant, le titre de Suzaku m'importait, mais maintenant que la planète est en plein chaos, ce titre ne me sert à rien! Cependant, avant de partir, je dois torturer à mort cette traînée de Zi Xin! »
 
 Un mois plus tard, une silhouette apparut près de la Secte Shi Yin, à Zhao. C'était un jeune homme vêtu d'une robe blanche, dont le visage trahissait un profond vécu.
 

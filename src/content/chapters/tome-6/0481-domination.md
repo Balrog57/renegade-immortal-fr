@@ -27,13 +27,13 @@ Peu après, Wang Lin détourna les yeux, se leva et s'éloigna.
 
 Ce n'est que lorsque sa silhouette disparut de sa vue qu'une brise souffla et que la femme sentit son dos être trempé de sueur froide.
 
-Elle se mordilla la lèvre inférieure. Le regard abattu, elle sortit du Pavillon Zi Yun. Elle s'assit à ses côtés, fixa le ciel d'un air absent et murmura: « Senior frère Sun Yun, tant que ta sœur junior est ici, personne ne te remplacera, personne! »
+Elle se mordilla la lèvre inférieure. Le regard abattu, elle sortit du Pavillon Zi Yun. Elle s'assit à ses côtés, fixa le ciel d'un air absent et murmura: « Senior frère Sun Yun, tant que ta Junior sœur est ici, personne ne te remplacera, personne! »
 
 Sur une magnifique falaise située à 50 kilomètres du Pavillon Zi Yun, Wang Lin s'arrêta. Il agita la main et une épée volante apparut. L'épée vola vers la paroi rocheuse et, peu après, une grotte fut formée.
 
 Wang Lin rangea l'épée volante et entra. Après avoir posé plusieurs restrictions, il s'assit et poussa un soupir. Ses yeux brillaient d'une lueur méditative.
 
-« L'atmosphère de la Secte Tian Yun est étrange. Je n'ai pas entièrement franchi les trois épreuves et pourtant ce Zhao Xingsha m'a appelé "frère junior" en prétendant que Tian Yunzi m'avait assigné le Pavillon Zi Yun.
+« L'atmosphère de la Secte Tian Yun est étrange. Je n'ai pas entièrement franchi les trois épreuves et pourtant ce Zhao Xingsha m'a appelé "Junior frère" en prétendant que Tian Yunzi m'avait assigné le Pavillon Zi Yun.
 
 « Et maintenant, ce pavillon est gardé par une femme qui refuse que quiconque s'en approche...
 

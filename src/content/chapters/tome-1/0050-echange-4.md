@@ -8,7 +8,7 @@ slug: echange-4
 ---
 « C'est lui, Lu Song! Mon maître me l'a répété bien des fois: le plus grand génie de la Secte Heng Yue depuis cent ans! Cette fois, la Secte Xuan Dao va certainement perdre! »
 
-« Cinquième frère aîné, foncez! Je suivrai votre exemple! »
+« Cinquième Senior frère, foncez! Je suivrai votre exemple! »
 
 Les disciples de la Secte Heng Yue applaudirent avec enthousiasme. Toute la confiance qu'ils avaient perdue lors des deux premiers affrontements commençait à renaître. Certaines disciples féminines furent même prises d'admiration et se sentirent éprises de Lu Song.
 

@@ -16,13 +16,13 @@ Ce geste dégageait une pression colossale. Les neuf cultivateurs au stade de la
 
 Les yeux de Wang Lin s'illuminèrent, révélant un désir de combat. Il ne parvenait pas à percer le niveau de culture du vieil homme, mais il était certain que celui-ci se trouvait au stade de la Transformation de l'Âme.
 
-« Petit ami Ceng Niu, ce vieux a attendu ce jour pendant deux ans! » Le vieil homme regarda Wang Lin avec une lueur mystérieuse dans le regard.
+« Petit ami Zeng Niu, ce vieux a attendu ce jour pendant deux ans! » Le vieil homme regarda Wang Lin avec une lueur mystérieuse dans le regard.
 
 Wang Lin reconnut immédiatement ces yeux; c'étaient les mêmes qu'hier. Il ne fut pas surpris que ce vieil homme connaisse son identité. Si Liu Mei avait pu le trouver, il n'était pas étonnant que l'ancêtre de la Transformation de l'Âme de la Secte Lian Hun le connaisse également.
 
-« Pour célébrer notre rencontre aujourd'hui, je vais d'abord offrir un petit cadeau au petit ami, nous parlerons en détail ensuite », dit-il, avant de pointer du doigt la Montagne de l'Affinement de l'Âme. Sa voix perdit sa douceur initiale pour se charger de pression et d'une intention meurtrière. « Junior Liu Mei, tu as dix respirations pour t'éloigner de plus de 5 000 km de ma Secte Lian Hun. Si tu ne le fais pas, même si tu es la disciple de l'actuel Suzaku, je te tuerai quand même! Hors de ma vue! »
+« Pour célébrer notre rencontre aujourd'hui, je vais d'abord offrir un petit cadeau au petit ami, nous parlerons en détail ensuite », dit-il, avant de pointer du doigt la Montagne Lian Hun. Sa voix perdit sa douceur initiale pour se charger de pression et d'une intention meurtrière. « Junior Liu Mei, tu as dix respirations pour t'éloigner de plus de 5 000 km de ma Secte Lian Hun. Si tu ne le fais pas, même si tu es la disciple de l'actuel Suzaku, je te tuerai quand même! Hors de ma vue! »
 
-La silhouette exquise de Liu Mei apparut au-dessus de la Montagne de l'Affinement de l'Âme. Elle regarda le vieil homme avec une expression charmante et murmura: « Senior, junior a reçu des ordres de mon maître et je ne vous ai pas offensé. Pourquoi agir ainsi… »
+La silhouette exquise de Liu Mei apparut au-dessus de la Montagne Lian Hun. Elle regarda le vieil homme avec une expression charmante et murmura: « Senior, junior a reçu des ordres de mon maître et je ne vous ai pas offensé. Pourquoi agir ainsi… »
 
 L'expression de Wang Lin resta impassible, mais il commença rapidement à analyser la situation.
 
@@ -36,7 +36,7 @@ Bien que ce drapeau ne fût qu'une illusion, une pression écrasante s'en dégag
 
 « Le drapeau d'un milliard d'âmes… » Elle fixa le vieil homme et serra les dents avant de disparaître pour quitter la Secte Lian Hun.
 
-Le vieil homme ne daigna même pas regarder où Liu Mei s'était rendue. Il se tourna vers Wang Lin, une lueur mystérieuse dans les yeux: « Petit ami Ceng Niu, comment as-tu trouvé ce petit cadeau? »
+Le vieil homme ne daigna même pas regarder où Liu Mei s'était rendue. Il se tourna vers Wang Lin, une lueur mystérieuse dans les yeux: « Petit ami Zeng Niu, comment as-tu trouvé ce petit cadeau? »
 
 L'existence de Liu Mei était comme une épine dans le flanc de Wang Lin. En sa présence, il avait l'impression d'être la cible d'un cobra. Maintenant qu'elle était partie, cette sensation s'était soudainement dissipée.
 
@@ -52,7 +52,7 @@ Le vieil homme rit et déclara: « Cela ne suffit pas pour offenser le pays de S
 
 Wang Lin réfléchit un instant, puis regarda le vieil homme: « Que voulez-vous, Senior? Vous n'avez qu'à me le dire. »
 
-Une lueur d'appréciation brilla dans les yeux du vieil homme: « Ne sois pas si pressé; ce n'était que le premier cadeau. Voici maintenant le second. Ceng Niu, ton âme originelle est presque rétablie. La raison pour laquelle tu es venu me trouver était d'emprunter ma pression pour accélérer ta guérison. Mon second cadeau est de t'aider à recouvrer ta culture! »
+Une lueur d'appréciation brilla dans les yeux du vieil homme: « Ne sois pas si pressé; ce n'était que le premier cadeau. Voici maintenant le second. Zeng Niu, ton âme originelle est presque rétablie. La raison pour laquelle tu es venu me trouver était d'emprunter ma pression pour accélérer ta guérison. Mon second cadeau est de t'aider à recouvrer ta culture! »
 
 Sans attendre la réponse de Wang Lin, ses yeux s'illuminèrent. Une pression incomparablement plus puissante que celle de la veine spirituelle apparut soudainement autour du corps de Wang Lin.
 
@@ -74,7 +74,7 @@ Wang Lin pouvait désormais sentir clairement les fragments de son âme originel
 
 Wang Lin prit une profonde inspiration et dit: « Pas assez! »
 
-« Oh, vraiment? Très bien, Ceng Niu; cela fait plus de deux cents ans que je n'ai pas utilisé mon énergie spirituelle céleste. Je dépense énormément pour ce second cadeau! » Le vieil homme rit et mobilisa sans hésitation l'énergie spirituelle céleste de son corps. Une pression radicalement différente de la simple pression spirituelle descendit sur lui.
+« Oh, vraiment? Très bien, Zeng Niu; cela fait plus de deux cents ans que je n'ai pas utilisé mon énergie spirituelle céleste. Je dépense énormément pour ce second cadeau! » Le vieil homme rit et mobilisa sans hésitation l'énergie spirituelle céleste de son corps. Une pression radicalement différente de la simple pression spirituelle descendit sur lui.
 
 Cette force contenait de l'énergie spirituelle céleste. Cela rappela à Wang Lin la puissance d'un fragment céleste en plein effondrement. Son corps trembla et son âme originelle se reconnecta à une vitesse prodigieuse.
 
@@ -94,7 +94,7 @@ Wang Lin prit une profonde inspiration. Ayant recouvré sa culture, il dégageai
 
 Il comprit que si l'ancêtre de la Transformation de l'Âme était prêt à un tel déploiement de force, c'est qu'il attendait quelque chose en retour; il ne comprenait simplement pas de quoi un tel être aurait pu avoir besoin de sa part.
 
-« Bien! Ceng Niu, le dernier cadeau de ce vieux est d'élever ton niveau de culture jusqu'au sommet du stade avancé de la Formation de l'Âme. Quant à ton domaine, tu seras livré à toi-même; je ne peux rien faire pour toi. » Sur ce, le vieil homme s'envola vers l'anneau de sang.
+« Bien! Zeng Niu, le dernier cadeau de ce vieux est d'élever ton niveau de culture jusqu'au sommet du stade avancé de la Formation de l'Âme. Quant à ton domaine, tu seras livré à toi-même; je ne peux rien faire pour toi. » Sur ce, le vieil homme s'envola vers l'anneau de sang.
 
 Wang Lin réfléchit un instant, puis le suivit sans mot dire.
 
@@ -110,7 +110,7 @@ Ces dix fragments dégageaient tous des auras violettes et dorées empreintes d'
 
 « Pas étonnant qu'il puisse affronter des Ascendants avec ce drapeau… », pensa Wang Lin, commençant à comprendre.
 
-Le vieil homme murmura: « Petit ami Ceng Niu, toutes les âmes de la Transformation de l'Âme contenues dans ce drapeau sont des ancêtres de la Secte Lian Hun. Lorsqu'un ancêtre de la Transformation de l'Âme est sur le point de mourir, il abandonne son corps et sa conscience, et accepte de bon gré de devenir un fragment d'âme sans conscience, offert en sacrifice au drapeau. N'oublie pas que lorsque je mourrai, tu devras toi aussi ajouter mon fragment d'âme dans le drapeau… »
+Le vieil homme murmura: « Petit ami Zeng Niu, toutes les âmes de la Transformation de l'Âme contenues dans ce drapeau sont des ancêtres de la Secte Lian Hun. Lorsqu'un ancêtre de la Transformation de l'Âme est sur le point de mourir, il abandonne son corps et sa conscience, et accepte de bon gré de devenir un fragment d'âme sans conscience, offert en sacrifice au drapeau. N'oublie pas que lorsque je mourrai, tu devras toi aussi ajouter mon fragment d'âme dans le drapeau… »
 
 Cette dernière phrase, totalement imprévue, fit trembler le cœur de Wang Lin. Il comprenait désormais mieux la portée de ce qui se jouait.
 
@@ -124,4 +124,4 @@ L'énergie spirituelle à l'intérieur du corps de Wang Lin augmenta à une vite
 
 Deux fois, trois fois, quatre fois… jusqu'à huit fois, et la progression ne s'arrêtait pas.
 
-« Ceng Niu, souviens-toi du nom de ce vieux: Du Tian! Absorbe tout ce que tu peux; ce vieux n'est pas avare! »
+« Zeng Niu, souviens-toi du nom de ce vieux: Dun Tian! Absorbe tout ce que tu peux; ce vieux n'est pas avare! »

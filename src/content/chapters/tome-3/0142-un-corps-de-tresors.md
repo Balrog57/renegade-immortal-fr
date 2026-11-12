@@ -22,7 +22,7 @@ La chose étrange était que, de temps à autre, les cadavres de nouvelles bête
 
 Bien que la Vallée Shi fût mystérieuse, tant que l'on ne pénétrait pas dans sa partie centrale, rien de dangereux ne se produisait généralement.
 
-Quant à l'os que Sang Muya utilisait pour s'en prendre à son frère de discipline aîné, il provenait de la Vallée Shi; il était fait d'ossements d'une mystérieuse bête corbeau. Après une longue étude, Wang Lin découvrit que ce poison ne fonctionnait que sur les cultivateurs de l'Établissement des Fondations. Son effet s'affaiblissait à mesure que le cultivateur progressait : il était presque nul au stade avancé de l'Établissement des Fondations, et sans effet contre la Formation du Noyau.
+Quant à l'os que Sang Muya utilisait pour s'en prendre à son Senior frère, il provenait de la Vallée Shi; il était fait d'ossements d'une mystérieuse bête corbeau. Après une longue étude, Wang Lin découvrit que ce poison ne fonctionnait que sur les cultivateurs de l'Établissement des Fondations. Son effet s'affaiblissait à mesure que le cultivateur progressait : il était presque nul au stade avancé de l'Établissement des Fondations, et sans effet contre la Formation du Noyau.
 
 La destination actuelle de Wang Lin était la Vallée Shi. Il vola rapidement dans la direction indiquée par Sang Muya.
 

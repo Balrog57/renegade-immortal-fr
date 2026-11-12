@@ -122,7 +122,7 @@ Sans répondre, elle secoua doucement la tête. Elle fixa le ciel bleu à l'ext�
 
 Une créature de la taille d'un poing s'échappa du front de Li Muwan. Elle plana un instant avant de se poser sur la cithare.
 
-Li Muwan caressa la tête de la petite créature en murmurant: « Petite Ling, où est ton maître? »
+Li Muwan caressa la tête de la petite créature en murmurant: « Xiao Ling, où est ton maître? »
 
 Wang Lin ne marqua aucun temps d'arrêt durant ce voyage de 400 000 kilomètres. Il se tenait au bord de la Mer Xiu Mo, contemplant Chu, et pour une raison inconnue, son cœur trembla légèrement.
 

@@ -18,7 +18,7 @@ L'Ancien Sun tonna d'une voix profonde: « Quel disciple est responsable ici? »
 
 L'Ancien Sun dit d'un ton impatient: « As-tu l'enregistrement de Wang Lin? »
 
-Le cœur du disciple Liu manqua un battement. Il n'aurait jamais imaginé qu'un Ancien de si haut rang vienne s'enquérir de ce déchet de Wang Lin. En repensant aux fois où il avait harcelé ce dernier, son visage pâlit. « Ce disciple... possède... possède l'enregistrement du frère Wang Lin. Le frère Wang est assidu et avide d'apprendre, et il accomplit chaque tâche avec le plus grand sérieux. Ce disciple... ce disciple l'a toujours considéré comme un modèle. »
+Le cœur du disciple Liu manqua un battement. Il n'aurait jamais imaginé qu'un Ancien de si haut rang vienne s'enquérir de ce déchet de Wang Lin. En repensant aux fois où il avait harcelé ce dernier, son visage pâlit. « Ce disciple... possède... possède l'enregistrement du Junior frère Wang Lin. Le Junior frère Wang est assidu et avide d'apprendre, et il accomplit chaque tâche avec le plus grand sérieux. Ce disciple... ce disciple l'a toujours considéré comme un modèle. »
 
 L'Ancien Sun ne savait s'il devait rire ou pleurer, mais au fond de lui, cela lui fit grand plaisir. Plus quelqu'un était nerveux en lui parlant, plus cela signifiait qu'il le respectait et le craignait. Le titre d'Ancien est, en réalité, un titre assez dérisoire au sein de la Secte Heng Yue. Tous les disciples de la deuxième génération sont des Anciens, mais ce terme n'est employé que par les disciples honoraires; la plupart des disciples intérieurs les appellent « Oncle-Maître ».
 

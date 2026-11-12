@@ -10,7 +10,7 @@ Tous deux étaient des hommes de décision; lorsqu'ils conclurent leur accord, i
 
 Depuis leur position actuelle, ils pouvaient apercevoir la grotte à une centaine de mètres.
 
-Non loin de là reposait le cadavre du troisième frère aîné, tué par Sun Lei.
+Non loin de là reposait le cadavre du troisième Senior frère, tué par Sun Lei.
 
 Sun Lei observa la grotte à distance et murmura: « La nourriture pour bêtes célestes est destinée aux bêtes elles-mêmes. Lorsqu'elles s'en nourrissent, cela renforce leur corps, mais c'est totalement inutile pour nous. Je ne peux croire qu'il reste encore autant de provisions dans ce Temple Xian Shou. Cela doit être dû à cette nourriture noire pour bêtes célestes. Ce compagnon cultivateur sait-il pourquoi elle existe? »
 
@@ -22,7 +22,7 @@ Wang Lin resta silencieux.
 
 Sun Lei reprit d'un ton solennel: « Compagnon cultivateur, dans un instant, je vais utiliser une technique pour attirer ces nourritures hors de la grotte. Nous en tuerons autant que possible, et dès que cette ligne noire se mettra en mouvement, nous nous retrouverons au point de rendez-vous initial. »
 
-Wang Lin acquiesça. D'un geste de la main droite, il transforma le piège à bêtes en crapaud de tonnerre.
+Wang Lin acquiesça. D'un geste de la main droite, il transforma l'anneau de contrôle des bêtes en crapaud de tonnerre.
 
 « Un crapaud de tonnerre! » Les pupilles de Sun Lei se rétractèrent en fixant Wang Lin. Il était désormais intimement convaincu que ce dernier dissimulait son niveau de culture. Comment aurait-il pu capturer une bête spirituelle aussi rare et de si haute qualité autrement?
 
@@ -54,7 +54,7 @@ L'éclair rugit vers les créatures. Pour la première fois, l'innombrable nuée
 
 Mais à cet instant précis, un rugissement strident retentit et une ligne noire apparut au milieu de la masse. La ligne noire, plus épaisse que les autres, se faufila hors de la masse et chargea la boule d'éclairs sans l'ombre d'une crainte.
 
-Après avoir expulsé deux boules de foudre, le crapaud de tonnerre était épuisé et semblait affaibli. Voyant la nourriture noire pour bêtes célestes, Wang Lin n'hésita pas: il récupéra promptement son piège et s'enfuit. En courant, il pointa son front, libérant une multitude d'âmes errantes.
+Après avoir expulsé deux boules de foudre, le crapaud de tonnerre était épuisé et semblait affaibli. Voyant la nourriture noire pour bêtes célestes, Wang Lin n'hésita pas: il récupéra promptement son anneau et s'enfuit. En courant, il pointa son front, libérant une multitude d'âmes errantes.
 
 Quant à Sun Lei, il marqua un instant d'hésitation avant de pousser un soupir et d'abandonner l'idée d'attendre que les nourritures poursuivent Wang Lin pour entrer dans la grotte. Après tout, le danger était trop grand; le moindre faux pas signifiait la mort.
 
@@ -66,9 +66,9 @@ La nourriture noire poussa un cri strident. On pouvait voir que son corps n'éta
 
 Elle condensa son corps et jaillit avec une célérité telle que même le Sens Divin ne pouvait la verrouiller la plupart du temps. Sa cible n'était pas Wang Lin, mais Sun Lei.
 
-Tout en s'enfuyant, l'expression de Wang Lin changea soudainement; il agita son drapeau de restriction, s'assit en tailleur et avala quelques pilules. Une force d'aspiration émanait du piège à bêtes qui finit par s'interrompre après un long moment. Wang Lin se redressa, le visage sombre.
+Tout en s'enfuyant, l'expression de Wang Lin changea soudainement; il agita son drapeau de restriction, s'assit en tailleur et avala quelques pilules. Une force d'aspiration émanait de l'anneau de contrôle des bêtes qui finit par s'interrompre après un long moment. Wang Lin se redressa, le visage sombre.
 
-« Cette fois, le piège a commencé à absorber l'énergie spirituelle une demi-journée plus tôt. Le crapaud de tonnerre a dû dépenser trop d'énergie. Bien que ce piège soit facile à utiliser, son coût est bien trop élevé. » Wang Lin réfléchit un instant avant de reprendre son envol.
+« Cette fois, l'anneau a commencé à absorber l'énergie spirituelle une demi-journée plus tôt. Le crapaud de tonnerre a dû dépenser trop d'énergie. Bien que cet anneau soit facile à utiliser, son coût est bien trop élevé. » Wang Lin réfléchit un instant avant de reprendre son envol.
 
 En chemin, les âmes errantes traversaient les parois pour revenir vers lui une à une. Une fois toutes rassemblées, Wang Lin constata qu'aucune n'avait disparu. Cela le réjouit profondément, car cela signifiait que la bête noire avait choisi de poursuivre Sun Lei.
 

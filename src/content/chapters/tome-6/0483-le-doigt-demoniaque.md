@@ -42,9 +42,9 @@ Peu à peu, les rangs s'épaissirent jusqu'à ce que le ciel entier soit couvert
 
 Les expressions variaient, mais l'émotion prédominante était le choc.
 
-L'homme d'âge moyen qui avait hurlé s'apprêtait à charger, mais Zhao Xingsha l'en empêcha. L'homme lança un regard noir à Zhao Xingsha: « Que signifie cela, frère aîné?! »
+L'homme d'âge moyen qui avait hurlé s'apprêtait à charger, mais Zhao Xingsha l'en empêcha. L'homme lança un regard noir à Zhao Xingsha: « Que signifie cela, Grand Senior frère?! »
 
-Le visage de Zhao Xingsha était empreint d'une grande gravité. Ignorant l'homme, il fixa Wang Lin d'un regard sombre et déclara: « Wang Lin, tu es le septième disciple, je t'appellerai donc septième frère cadet. Que s'est-il passé? »
+Le visage de Zhao Xingsha était empreint d'une grande gravité. Ignorant l'homme, il fixa Wang Lin d'un regard sombre et déclara: « Wang Lin, tu es le septième disciple, je t'appellerai donc Septième Junior frère. Que s'est-il passé? »
 
 L'expression de Wang Lin demeura imperturbable. L'apparition de ces gens était prévisible. Il soupçonnait que tout ceci était manipulé en secret par Tian Yunzi, sans pour autant comprendre ses motivations. Malgré l'incertitude de la situation, aucune trace de peur ne transparaissait sur son visage.
 
@@ -54,15 +54,15 @@ Zhao Xingsha était au milieu du stade de la Transformation de l'Âme! Bai Wei �
 
 Face à la question de Zhao Xingsha, Wang Lin demanda calmement: « Qui est Sun Yun? »
 
-À ces mots, les visages de l'assistance changèrent instantanément. Zhao Xingsha fixa Wang Lin un moment avant de dire: « Septième frère, tu as tort. Ton frère aîné ne peut rien pour toi ici! » Sur ce, il relâcha l'homme d'âge moyen.
+À ces mots, les visages de l'assistance changèrent instantanément. Zhao Xingsha fixa Wang Lin un moment avant de dire: « Septième frère, tu as tort. Ton Senior frère ne peut rien pour toi ici! » Sur ce, il relâcha l'homme d'âge moyen.
 
 En une seule enjambée, l'homme franchit près de 330 mètres pour s'arrêter à 33 mètres de Wang Lin. Il se dressa devant lui et cracha: « Cultivateur autochtone d'une planète de culture stérile, aujourd'hui, je vais te montrer ce qu'est un véritable sort! »
 
 Une aura meurtrière émanait de cet homme. Wang Lin le dévisagea et posa la main sur son sac de rangement.
 
-À cet instant critique, Bai Wei eut un mouvement d'hésitation: « Deuxième frère, utiliser une technique interdite contre un compagnon disciple va à l'encontre des règles de la secte! »
+À cet instant critique, Bai Wei eut un mouvement d'hésitation: « Deuxième Senior frère, utiliser une technique interdite contre un compagnon disciple va à l'encontre des règles de la secte! »
 
-L'homme d'âge moyen tourna un regard cinglant vers Bai Wei: « Il a tué la cinquième sœur. Se pourrait-il que tu aies des vues sur lui, Bai Wei? »
+L'homme d'âge moyen tourna un regard cinglant vers Bai Wei: « Il a tué la cinquième Junior sœur. Se pourrait-il que tu aies des vues sur lui, Bai Wei? »
 
 Un éclat mystérieux passa dans les yeux de Bai Wei alors qu'il répondait: « Tes paroles ont touché l'un de mes tabous. Je m'en souviendrai! »
 
@@ -84,7 +84,7 @@ En un instant, la lumière dorée sembla s'animer et bouger avec frénésie. Au 
 
 Wang Lin esquissa un sourire moqueur, retira promptement son pouce et effleura son sac de rangement. Le Fouet Kunji apparut soudainement dans sa main et, d'un coup sec, brisa le pouce de lumière. Une partie de la protection dorée entourant l'homme s'effondra également.
 
-« C'était la première attaque. Voici la seconde. Deuxième frère, tu ferais mieux de ne pas esquiver! » Alors qu'il parlait, Wang Lin abattit à nouveau son fouet. Le Fouet Kunji jaillit tel un dragon avec une puissance terrifiante.
+« C'était la première attaque. Voici la seconde. Deuxième Senior frère, tu ferais mieux de ne pas esquiver! » Alors qu'il parlait, Wang Lin abattit à nouveau son fouet. Le Fouet Kunji jaillit tel un dragon avec une puissance terrifiante.
 
 Dans un grand « pa », le fouet frappa l'homme d'âge moyen. Son visage devint livide; son âme originelle fut presque arrachée de son corps et sa lumière dorée disparut totalement.
 

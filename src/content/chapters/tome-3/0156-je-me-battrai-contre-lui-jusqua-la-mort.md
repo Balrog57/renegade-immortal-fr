@@ -18,7 +18,7 @@ Wang Lin apparut dans la pièce et s'assit en position du lotus avant de sortir 
 
 En outre, Wang Lin avait récupéré la quasi-totalité des sacs de rangement des cultivateurs décédés. Il les tria rapidement et constata qu'ils contenaient de nombreux trésors et épées volantes. Cependant, à l'exception d'un rouleau, aucun n'était assez remarquable pour captiver son attention.
 
-Ce rouleau mesurait environ soixante centimètres de long et était aussi épais que son bras. Il émanait également une légère aura spirituelle. Wang Lin se souvint qu'il provenait d'un cultivateur du stade de la Formation du Noyau qui l'avait déjà ouvert à moitié. À ce moment-là, des rugissements furieux en sortaient par vagues.
+Ce rouleau mesurait environ deux pieds de long et était aussi épais que son bras. Il émanait également une légère aura spirituelle. Wang Lin se souvint qu'il provenait d'un cultivateur du stade de la Formation du Noyau qui l'avait déjà ouvert à moitié. À ce moment-là, des rugissements furieux en sortaient par vagues.
 
 Hélas, le Sens Divin du Royaume Ji de Wang Lin ne faisait pas de différence entre une seule personne et un groupe : dès qu'il les balayait, tous ceux qui étaient en dessous du stade de l'Âme Naissante mouraient aussitôt. Quant au Royaume Ji, Wang Lin éprouvait encore un sentiment indicible à son sujet. Dans la matrice de transfert du Champ de Bataille Extérieur, sous la pression des lois du monde, il avait clairement ressenti son existence pour la première fois et en avait obtenu un aperçu. Les années suivantes d'usage et de combats lui avaient permis de comprendre la puissance terrifiante du Royaume Ji, un effet qui surpassait tout.
 
@@ -28,7 +28,7 @@ Le propriétaire original du rouleau étant déjà mort, le sens divin qui y ét
 
 Un intérêt manifeste apparut dans les yeux de Wang Lin. S'il s'était agi d'un trésor ordinaire, il aurait pu l'utiliser librement après avoir effacé le sens divin du précédent propriétaire pour y graver le sien. Tant que ce n'était pas un trésor de niveau Âme Naissante, cela était toujours vrai.
 
-À en juger par les fluctuations d'énergie spirituelle émanant du rouleau, il ne semblait pas s'agir d'un trésor de niveau Âme Naissante. Wang Lin possédait lui-même quelques trésors de ce rang, dont le talisman de jade que lui avait offert, au royaume de Huo Fen, Zhou Jin, un cultivateur de l'Âme Naissante du Sanctuaire du Dieu de la Guerre.
+À en juger par les fluctuations d'énergie spirituelle émanant du rouleau, il ne semblait pas s'agir d'un trésor de niveau Âme Naissante. Wang Lin possédait lui-même quelques trésors de ce rang, dont le talisman de jade que lui avait offert, au pays de Huo Fen, Zhou Jin, un cultivateur de l'Âme Naissante du Sanctuaire du Dieu de la Guerre.
 
 La caractéristique la plus notable des trésors de niveau Âme Naissante était les puissantes fluctuations d'énergie spirituelle qu'ils émettaient. Un trésor de niveau Formation du Noyau ne pouvait jamais rivaliser.
 

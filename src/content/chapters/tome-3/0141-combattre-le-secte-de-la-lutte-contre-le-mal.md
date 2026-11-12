@@ -45,7 +45,7 @@ Au début de cette bataille, un phénomène étrange frappait les cultivateurs d
 Si cela n'avait concerné qu'un ou deux individus, ce n'aurait pas été si grave, mais Xuan Wu ne comptait pas plus de deux cents personnes à ce stade, et près de la moitié d'entre elles s'étaient éteintes ainsi. Lorsqu'elle en avait entendu parler, elle n'y avait pas cru, pensant à une simple rumeur; mais en voyant la mort de ces trois cultivateurs, elle ne put s'empêcher de repenser à cette histoire.
 
 Elle suivit Wang Lin et demanda d'une voix tremblante:
-« Senior... senior frère apprenti, dans l'Union de Huo Fen, de quelle brigade faisiez-vous partie? »
+« Senior... senior frère, dans l'Union de Huo Fen, de quelle brigade faisiez-vous partie? »
 
 Wang Lin ne tourna pas la tête et répondit froidement:
 « La dixième brigade. »
@@ -105,7 +105,7 @@ Li Muwan savait qu'il ne lui faisait pas confiance et, sans protester, elle entr
 Une fois les couches de formations franchies et la grotte atteinte, Li Muwan sortit un petit drapeau. Elle l'agita doucement, activant toutes les protections qui libérèrent une brume épaisse. De loin, on ne pouvait rien distinguer; même en s'approchant, on n'apercevrait que la montagne.
 
 À l'intérieur, le regard de Wang Lin sur Li Muwan la fit pâlir davantage. Elle recula de quelques pas et murmura:
-« Senior frère apprenti, dois-je commencer à raffiner la Pilule du Ciel Lointain pour vous? »
+« Senior frère, dois-je commencer à raffiner la Pilule du Ciel Lointain pour vous? »
 
 Wang Lin secoua la tête:
 « Je n'ose pas consommer les pilules que tu raffines. »
@@ -127,7 +127,7 @@ Li Muwan inspecta les sacs avec son Sens Divin et s'exclama:
 Wang Lin se frotta le menton et lança plus d'une dizaine de sacs supplémentaires: ses récents butins. Après avoir retiré les trésors et les pierres spirituelles, il ne restait que des composants qu'il ignorait, ce qui permettait à Li Muwan de les identifier.
 
 En examinant tout, la tristesse de Li Muwan s'évanouit pour laisser place à l'excitation. Elle leva la tête:
-« Senior frère apprenti, puis-je utiliser librement tous ces matériaux? »
+« Senior frère, puis-je utiliser librement tous ces matériaux? »
 
 Wang Lin acquiesça:
 « Je ne veux que des pilules. Quant au processus, fais comme bon te semble. »
@@ -141,7 +141,7 @@ Le visage de Wang Lin resta impassible:
 « Je ne m'intéresse pas aux détails du raffinage. » Il marqua une pause et ajouta: « Je compte sortir pendant quelques jours, entre trois jours et deux semaines. Prends soin de toi. »
 
 Il s'apprêtait à partir quand Li Muwan hésita, puis l'interpella rapidement:
-« Senior frère apprenti, lorsque vous sortirez, pourriez-vous me trouver un fourneau à pilules? Mes matériaux sont corrects, et mon fourneau actuel convient aux pilules ordinaires. Mais avec lui, le taux de réussite de la Pilule du Ciel Lointain ne serait que de 50 %. Normalement, on utilise le Fourneau de Fusion Céleste de la Secte pour ce genre de préparation. »
+« Senior frère, lorsque vous sortirez, pourriez-vous me trouver un fourneau à pilules? Mes matériaux sont corrects, et mon fourneau actuel convient aux pilules ordinaires. Mais avec lui, le taux de réussite de la Pilule du Ciel Lointain ne serait que de 50 %. Normalement, on utilise le Fourneau de Fusion Céleste de la Secte pour ce genre de préparation. »
 
 Wang Lin fronça légèrement les sourcils. Il la regarda, puis partit sans un mot.
 
@@ -166,7 +166,7 @@ Le visage de Wang Lin se mua en une expression étrange: le poursuivant n'était
 
 Le jeune homme au regard sinistre tenait un os de bête noir. Tout en poursuivant l'homme d'âge mûr, il soufflait dessus avec nonchalance, libérant à chaque expiration une fumée noire. Dès qu'elle apparaissait, la fumée rattrapait le cultivateur et s'infiltrait dans son corps.
 
-« Senior frère apprenti, cours plus vite! Ton cadet veut voir combien de temps tu pourras tenir avec ces seize poisons mortels en toi! » Le jeune homme souffla à nouveau sur l'os noir et continua d'une voix lugubre: « Mon cher aîné, j'ai passé beaucoup de temps à préparer ces seize poisons pour toi. Sans cela, avec ta culture de l'Établissement des Fondations, comment aurais-je osé m'en prendre à toi? Mais maintenant, tu ne t'échapperas pas! »
+« Senior frère, cours plus vite! Ton Junior frère veut voir combien de temps tu pourras tenir avec ces seize poisons mortels en toi! » Le jeune homme souffla à nouveau sur l'os noir et continua d'une voix lugubre: « Mon cher Senior frère, j'ai passé beaucoup de temps à préparer ces seize poisons pour toi. Sans cela, avec ta culture de l'Établissement des Fondations, comment aurais-je osé m'en prendre à toi? Mais maintenant, tu ne t'échapperas pas! »
 
 L'homme d'âge mûr serra les dents, silencieux, tandis que son épée volante montait péniblement le long de la montagne.
 

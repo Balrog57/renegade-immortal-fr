@@ -28,7 +28,7 @@ Une fois son entraînement commencé, le temps s'écoula à une vitesse folle. U
 
 Les membres de la Secte Heng Yue du mont Serpent-Éléphant finirent peu à peu par oublier Wang Lin, la plupart pensant qu'il était mort au loin. Liu Wenju et la vieille femme Wang le regrettèrent beaucoup.
 
-Le plus content fut Lu Song, qui devint le grand frère aîné des disciples internes de cette petite secte aux effectifs réduits.
+Le plus content fut Lu Song, qui devint le grand Senior frère des disciples internes de cette petite secte aux effectifs réduits.
 
 Quant à Huang Long et aux autres, ils n'avaient guère eu de contacts approfondis avec Wang Lin. Ils ne l'avaient remarqué qu'après son apparition soudaine; après quatre ans sans nouvelles, ils l'avaient peu à peu oublié.
 
@@ -40,25 +40,25 @@ Au cours de ces quatre ans, les lieux devinrent un rassemblement de bêtes sauva
 
 Un jour, deux traînées de lumière arc-en-ciel volèrent vers la grotte. Deux hommes et une femme apparurent alors qu'ils s'immobilisaient près de l'entrée. L'homme en tête, déjà d'âge mûr, était vêtu de noir, le regard fulgurant comme l'éclair. Il flottait dans les airs, dégageant un souffle d'une grâce éthérée, tel un immortel, et sous ses pieds une petite épée verte, à l'éclat glacial, inspirait la crainte.
 
-À ses côtés se tenait une jeune fille très séduisante, aux dents blanches et aux yeux clairs, à la voix cristalline: « Troisième frère aîné, cette fois tu dois m'aider à choisir une bête de cristal d'encre dotée d'un peu plus d'esprit. Le mois prochain a lieu le concours pour se disputer les places d'accès aux montagnes arrières ; avec une bête de cristal d'encre comme esprit d'épée, ma victoire sera assurée. »
+À ses côtés se tenait une jeune fille très séduisante, aux dents blanches et aux yeux clairs, à la voix cristalline: « Troisième Senior frère, cette fois tu dois m'aider à choisir une bête de cristal d'encre dotée d'un peu plus d'esprit. Le mois prochain a lieu le concours pour se disputer les places d'accès aux montagnes arrières ; avec une bête de cristal d'encre comme esprit d'épée, ma victoire sera assurée. »
 
 Si Wang Lin avait vu cette jeune fille, il l'aurait trouvée très familière. C'était la jeune femme nommée Xu qui éprouvait des sentiments secrets pour Wang Zhuo. Elle était passée du statut de jolie adolescente à celui de femme magnifique.
 
-L'homme d'âge mûr semblait perdu dans ses pensées. Après un long moment, il reprit ses esprits et dit: « Petite sœur, travaille dur et efforce-toi d'intégrer les montagnes arrières. Une fois que je t'aurai aidée à capturer cette bête de cristal d'encre, je devrai moi aussi entrer en culture fermée pour un temps. »
+L'homme d'âge mûr semblait perdu dans ses pensées. Après un long moment, il reprit ses esprits et dit: « Junior sœur, travaille dur et efforce-toi d'intégrer les montagnes arrières. Une fois que je t'aurai aidée à capturer cette bête de cristal d'encre, je devrai moi aussi entrer en culture fermée pour un temps. »
 
-Un autre adolescent se tenait près de la jeune fille. Âgé d'environ huit ou neuf ans, il s'agrippait fermement à elle, le petit visage livide, et s'exclama: « Frère et sœur aînés, vous volez trop vite! Je n'arrive même pas à garder les yeux ouverts. Puisque nous sommes déjà là, descendons! »
+Un autre adolescent se tenait près de la jeune fille. Âgé d'environ huit ou neuf ans, il s'agrippait fermement à elle, le petit visage livide, et s'exclama: « Senior frère, Senior sœur, vous volez trop vite! Je n'arrive même pas à garder les yeux ouverts. Puisque nous sommes déjà là, descendons! »
 
-La jeune femme nommée Xu rétorqua: « Jeune frère, n'avais-tu pas absolument tenu à nous suivre? Je t'avais dit que ta culture n'était pas suffisante et tu ne voulais pas me croire. Ce n'est même pas si rapide, et tu ne le supportes déjà pas! »
+La jeune femme nommée Xu rétorqua: « Junior frère, n'avais-tu pas absolument tenu à nous suivre? Je t'avais dit que ta culture n'était pas suffisante et tu ne voulais pas me croire. Ce n'est même pas si rapide, et tu ne le supportes déjà pas! »
 
-L'homme d'âge mûr se tourna vers les deux jeunes gens et ajouta: « Jeune frère, ton talent est certain, mais si tu es incapable de supporter une telle épreuve, comment pourras-tu cultiver à l'avenir? »
+L'homme d'âge mûr se tourna vers les deux jeunes gens et ajouta: « Junior frère, ton talent est certain, mais si tu es incapable de supporter une telle épreuve, comment pourras-tu cultiver à l'avenir? »
 
-Le jeune homme, visiblement intimidé par l'homme d'âge mûr, répondit: « Troisième frère, je sais que j'ai eu tort. »
+Le jeune homme, visiblement intimidé par l'homme d'âge mûr, répondit: « Troisième Senior frère, je sais que j'ai eu tort. »
 
-La jeune Xu lui tapota la tête et dit: « Patience, jeune frère, dans un moment tout ira mieux. Une fois la bête de cristal d'encre capturée, nous retournerons à la secte. »
+La jeune Xu lui tapota la tête et dit: « Patience, Junior frère, dans un moment tout ira mieux. Une fois la bête de cristal d'encre capturée, nous retournerons à la secte. »
 
-Le garçon hocha précipitamment la tête en murmurant: « Grande sœur, tu es l'un des génies de la Secte Xuan Dao. Tu as réussi à passer du 4ème au 7ème niveau en seulement quatre ans. Une fois cette bête de cristal d'encre capturée et devenue ton esprit d'épée, tu deviendras d'un bond l'une des expertes de la Secte. Tu devras m'aider quand Li Shan s'en prendra à moi plus tard. »
+Le garçon hocha précipitamment la tête en murmurant: « Senior sœur, tu es l'un des génies de la Secte Xuan Dao. Tu as réussi à passer du 4ème au 7ème niveau en seulement quatre ans. Une fois cette bête de cristal d'encre capturée et devenue ton esprit d'épée, tu deviendras d'un bond l'une des expertes de la Secte. Tu devras m'aider quand Li Shan s'en prendra à moi plus tard. »
 
-La jeune fille secoua la tête avec un sourire amer: « Si l'on parle de génies, le frère aîné Liu Feng en est un véritable. Il a presque atteint le niveau du grand frère aîné et va bientôt franchir le 13ème niveau. Il y a aussi la grande sœur Liu Mei qui, dit-on, a déjà atteint le 12ème niveau. Comme ils étaient tous originaires de la Secte Xuan Dao, l'accès aux montagnes arrières leur est naturel. Moi, venant de la Secte Heng Yue, je dois me battre pour l'une des places restantes. J'espère gagner cette fois-ci. »
+La jeune fille secoua la tête avec un sourire amer: « Si l'on parle de génies, le Senior frère Liu Feng en est un véritable. Il a presque atteint le niveau du grand Senior frère et va bientôt franchir le 13ème niveau. Il y a aussi la Senior sœur Liu Mei qui, dit-on, a déjà atteint le 12ème niveau. Comme ils étaient tous originaires de la Secte Xuan Dao, l'accès aux montagnes arrières leur est naturel. Moi, venant de la Secte Heng Yue, je dois me battre pour l'une des places restantes. J'espère gagner cette fois-ci. »
 
 L'homme d'âge mûr laissa échapper un grognement mécontent: « Ce gamin de Liu Feng n'a progressé si vite que parce qu'il a pu accéder aux montagnes arrières. N'est-ce pas parce que l'Ancêtre avait jeté son dévolu sur les montagnes arrières de la Secte Heng Yue, et se les était fait céder, à l'époque? Sans l'Ancêtre, comment Liu Feng aurait-il pu progresser si rapidement? Même avec un grand talent, sans une immense quantité d'énergie spirituelle, il lui faudrait plusieurs années pour franchir un seul niveau. »
 

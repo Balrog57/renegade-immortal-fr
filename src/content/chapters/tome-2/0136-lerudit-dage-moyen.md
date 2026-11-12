@@ -8,9 +8,9 @@ slug: lerudit-dage-moyen
 ---
 Dès que Qingxuan eut fini de parler, l'expression de la cultivatrice qui se tenait sur une épée volante changea soudainement en entendant le nom de « Ma Liang », son visage passant de l'ombre à la lumière. Elle serra les dents, marqua un temps d'arrêt et fit volte-face. Cette femme, vêtue et coiffée en jeune épouse, avait des formes pleines et rondes et une beauté naturelle ; ses doigts étaient fins comme des racines d'oignon et ses lèvres rouges comme du cinabre, et elle s'approcha en flottant à petits pas.
 
-Cette femme n'était autre que la sœur apprentie de Ma Liang, Xu Si, celle qui hantait ses pensées jusque sur le champ de bataille étranger.
+Cette femme n'était autre que la Junior sœur de Ma Liang, Xu Si, celle qui hantait ses pensées jusque sur le champ de bataille étranger.
 
-Elle salua Qingxuan, puis tourna un regard glacial et méprisant vers Wang Lin en déclarant: « D'où vient cet être maléfique? Comment ose-t-il prétendre être un disciple du Sanctuaire du Dieu de la Guerre? Frère Qingxuan, je vous en prie, aidez-moi à éliminer cet individu! » Sur ces mots, elle frappa son sac de rangement, et une aiguille de plume noire d'environ deux pouces apparut dans sa main. D'un mouvement fluide du poignet, les aiguilles de plume s'abattirent sur Wang Lin comme une pluie torrentielle.
+Elle salua Qingxuan, puis tourna un regard glacial et méprisant vers Wang Lin en déclarant: « D'où vient cet être maléfique? Comment ose-t-il prétendre être un disciple du Sanctuaire du Dieu de la Guerre? Senior frère Qingxuan, je vous en prie, aidez-moi à éliminer cet individu! » Sur ces mots, elle frappa son sac de rangement, et une aiguille de plume noire d'environ deux pouces apparut dans sa main. D'un mouvement fluide du poignet, les aiguilles de plume s'abattirent sur Wang Lin comme une pluie torrentielle.
 
 Les aiguilles grossirent au vent, striées de filaments de lumière grise, et se changèrent en une véritable averse noire qui, comme portée par le vent, couvrit le ciel avant de pleuvoir sur Wang Lin.
 
@@ -84,7 +84,7 @@ Feng Luan se tourna vers Wang Lin et demanda: « Wang Lin, es-tu prêt à deveni
 
 Wang Lin remercia aussitôt et hocha la tête.
 
-Les yeux de Zhou Jin se rétrécirent, devenant glacials. Le niveau de culture de Feng Luan était égal au sien, au stade initial de l'Âme Naissante, mais son partenaire de culture, Yang Sen, se trouvait au stade intermédiaire de l'Âme Naissante. Il n'était pas raisonnable d'offenser deux cultivateurs de l'Âme Naissante pour une affaire aussi dérisoire. Zhou Jin grogna: « Puisque la sœur apprentie Feng Luan est disposée à prendre cet homme comme disciple, je ne poursuivrai pas cette affaire. Laissons son identité de côté pour l'instant; compte tenu des batailles qui s'enchaînent, avec son simple niveau d'Établissement des Fondations au stade intermédiaire, il lui sera difficile de garantir sa propre sécurité. »
+Les yeux de Zhou Jin se rétrécirent, devenant glacials. Le niveau de culture de Feng Luan était égal au sien, au stade initial de l'Âme Naissante, mais son partenaire de culture, Yang Sen, se trouvait au stade intermédiaire de l'Âme Naissante. Il n'était pas raisonnable d'offenser deux cultivateurs de l'Âme Naissante pour une affaire aussi dérisoire. Zhou Jin grogna: « Puisque la Junior sœur Feng Luan est disposée à prendre cet homme comme disciple, je ne poursuivrai pas cette affaire. Laissons son identité de côté pour l'instant; compte tenu des batailles qui s'enchaînent, avec son simple niveau d'Établissement des Fondations au stade intermédiaire, il lui sera difficile de garantir sa propre sécurité. »
 
 Sur ces mots, il agita ses manches et partit.
 

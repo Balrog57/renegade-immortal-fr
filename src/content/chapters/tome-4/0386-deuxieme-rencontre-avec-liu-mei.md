@@ -10,11 +10,11 @@ Au cours de ces trois mois de culture en isolement, grâce à l'aide du filon sp
 
 Il ne restait que trois marques de thé sur son visage et le sceau de Sun Tai était sur le point de se briser.
 
-Par rapport à tout cela, sa plus grande réussite fut d'avoir découvert que toute la Montagne de l'Affinement de l'Âme était recouverte par une présence invisible.
+Par rapport à tout cela, sa plus grande réussite fut d'avoir découvert que toute la Montagne Lian Hun était recouverte par une présence invisible.
 
-Cette entité invisible qui recouvrait la montagne libérait occasionnellement des fragments d'âme, et des centaines d'énergies spirituelles différentes surgissaient alors pour s'en disputer. Ces fragments d'âme n'apparaissaient pas toujours au même endroit; ils étaient dispersés dans chaque recoin de la Montagne de l'Affinement de l'Âme.
+Cette entité invisible qui recouvrait la montagne libérait occasionnellement des fragments d'âme, et des centaines d'énergies spirituelles différentes surgissaient alors pour s'en disputer. Ces fragments d'âme n'apparaissaient pas toujours au même endroit; ils étaient dispersés dans chaque recoin de la Montagne Lian Hun.
 
-Après avoir remarqué cela, son cœur fut saisi par la curiosité. Il sortit rapidement le manuel du drapeau d'âmes et, après l'avoir examiné un moment, il parvint à en percer certains secrets.
+Après avoir remarqué cela, son cœur fut saisi par la curiosité. Il sortit rapidement le jade d'affinement de l'âme et, après l'avoir examiné un moment, il parvint à en percer certains secrets.
 
 Les trois méthodes d'affinement du drapeau d'âmes se divisaient en: affinement de l'âme, extraction de l'âme et scellement de l'âme.
 
@@ -24,7 +24,7 @@ L'extraction de l'âme était différente. Elle ne pouvait pas raffiner les frag
 
 Quant à la dernière, le scellement de l'âme, Wang Lin n'avait rien pour la comparer et restait un peu confus.
 
-Selon les enseignements de la Montagne de l'Affinement de l'Âme, les drapeaux d'âmes étaient classés par dizaines, centaines, milliers ou dizaines de milliers. Plus un drapeau contenait d'âmes, plus il était puissant.
+Selon les enseignements de la Montagne Lian Hun, les drapeaux d'âmes étaient classés par dizaines, centaines, milliers ou dizaines de milliers. Plus un drapeau contenait d'âmes, plus il était puissant.
 
 Les drapeaux contenant dix ou cent âmes étaient très courants, mais une fois qu'un drapeau atteignait le millième, il pouvait utiliser certains sorts et sa puissance dépendrait alors de l'âme principale.
 
@@ -44,13 +44,13 @@ Parmi ces fragments, il y avait des âmes fortes et faibles. Durant cette pério
 
 Peu de fragments de niveau Âme Naissante apparaissaient; seulement deux ou trois par an. Chaque fois que l'un d'eux surgissait, les meilleurs disciples de la Secte Lian Hun se livraient bataille pour s'en emparer.
 
-Les paroles de Guo Dongjian avaient fait réfléchir Wang Lin. C'était exactement ce qu'il avait pensé: les disciples de la Montagne Chou Po de l'Âme extrayaient les âmes des corps pour les sceller dans leurs drapeaux. Il décida qu'il devait trouver le moment opportun pour s'approprier la méthode de production des drapeaux de la Montagne Chou Po de l'Âme et l'étudier.
+Les paroles de Guo Dongjian avaient fait réfléchir Wang Lin. C'était exactement ce qu'il avait pensé: les disciples de la Montagne Chou Po extrayaient les âmes des corps pour les sceller dans leurs drapeaux. Il décida qu'il devait trouver le moment opportun pour s'approprier la méthode de production des drapeaux de la Montagne Chou Po et l'étudier.
 
 Quant au vortex d'âme, c'était l'une des trois techniques du manuel. Les trois techniques étaient: condensation, vortex d'âme et sacrifice de sang.
 
-La condensation était plutôt simple. Bien qu'il n'y ait que dix jades au Sommet de l'Affinement de l'Âme, beaucoup en avaient fait des copies pour les vendre. Cette technique reposait sur l'affinement de l'âme. Elle permettait de donner forme à un fragment d'âme éthéré et de le placer dans un drapeau d'âmes.
+La condensation était plutôt simple. Bien qu'il n'y ait que dix jades sur la Montagne Lian Hun, beaucoup en avaient fait des copies pour les vendre. Cette technique reposait sur l'affinement de l'âme. Elle permettait de donner forme à un fragment d'âme éthéré et de le placer dans un drapeau d'âmes.
 
-Le vortex d'âme était une technique très rare, du moins au sein de la Montagne de l'Affinement de l'Âme. Elle exigeait au moins un niveau de culture Âme Naissante pour être apprise, mais tous les cultivateurs de ce stade ne pouvaient pas la maîtriser. Par exemple, Guo Dongjian n'avait toujours pas réussi à l'apprendre. Une fois activée, cette technique absorbait une quantité massive d'âmes. Que ce soit pour le combat ou pour le vol d'âmes, elle était extrêmement puissante.
+Le vortex d'âme était une technique très rare, du moins au sein de la Montagne Lian Hun. Elle exigeait au moins un niveau de culture Âme Naissante pour être apprise, mais tous les cultivateurs de ce stade ne pouvaient pas la maîtriser. Par exemple, Guo Dongjian n'avait toujours pas réussi à l'apprendre. Une fois activée, cette technique absorbait une quantité massive d'âmes. Que ce soit pour le combat ou pour le vol d'âmes, elle était extrêmement puissante.
 
 La dernière technique était le sacrifice de sang. Son usage multipliait par plusieurs la puissance du drapeau d'âmes. Elle expliquait pour un tiers pourquoi la Secte Lian Hun comptait si peu de disciples tout en étant aussi renommée. Cependant, cette technique était très difficile à cultiver. Même la plupart des disciples au stade avancé de l'Âme Naissante ne parvenaient pas à l'apprendre.
 
@@ -60,13 +60,13 @@ L'expression de Guo Dongjian devint très disgracieuse. Il lui avait fallu des a
 
 Wang Lin plaça l'Âme Naissante qu'il venait de capturer dans son drapeau d'âmes. Celle-ci commença bientôt à lutter contre l'Âme Naissante déjà présente. Wang Lin ne regarda plus le drapeau; il savait que le vainqueur deviendrait la nouvelle âme principale et que le perdant deviendrait le subordonné du gagnant.
 
-Xu Yun et Liu Wei avaient le cœur battant, debout en silence sur le côté. Bien que Xu Yun ait paru confiante auparavant, elle n'aurait jamais imaginé que ce frère aîné, Qing Mu, parviendrait à maîtriser le vortex d'âme.
+Xu Yun et Liu Wei avaient le cœur battant, debout en silence sur le côté. Bien que Xu Yun ait paru confiante auparavant, elle n'aurait jamais imaginé que ce Senior frère Qing Mu, parviendrait à maîtriser le vortex d'âme.
 
 Wang Lin observa les environs. L'endroit était très élégant et possédait un certain charme. Il déclara calmement et lentement:
 — Je vais oublier que vous avez modifié l'environnement de ma grotte. Vous deux, partez vite.
 
 Xu Yun afficha une expression suppliante et dit:
-— Frère aîné Qing Mu, nous ne vous dérangerons plus. Si nous partons maintenant, les fragments d'âme pour lesquels nous avons tant travaillé seront volés. Nous voulons seulement un endroit sûr pour cultiver. Nous ne causerons certainement aucun problème.
+— Senior frère Qing Mu, nous ne vous dérangerons plus. Si nous partons maintenant, les fragments d'âme pour lesquels nous avons tant travaillé seront volés. Nous voulons seulement un endroit sûr pour cultiver. Nous ne causerons certainement aucun problème.
 
 Wang Lin ne répondit pas, mais son regard devint glacial. Le cœur de Xu Yun trembla sous cette pression.
 
@@ -94,7 +94,7 @@ Les yeux de Wang Lin s'illuminèrent. Tout devint soudainement clair dans son es
 En écoutant Liu Mei, il fit le lien et en tira une conclusion terrifiante.
 
 Liu Mei laissa paraître un soupçon d'admiration. Elle regarda Wang Lin et dit:
-— Hongdie... a été tuée par mon frère aîné.
+— Hongdie... a été tuée par mon Senior frère.
 
 Wang Lin prit une inspiration glacée. Après avoir confirmé ses soupçons, il déclara:
 — Il semble que ma bataille contre Hongdie n'était qu'un simple combat de bêtes aux yeux de certaines personnes.

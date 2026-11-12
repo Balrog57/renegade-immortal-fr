@@ -26,7 +26,7 @@ En somme, les légendes sur cet endroit sont innombrables, et chacune est conté
 
 Cette mer d'origine inconnue se situant sur le flanc oriental de la planète Tian Yun, elle fut nommée, au fil du temps, la Mer Dong!
 
-Il y a bien longtemps, lorsque Tian Yunzi eut achevé son Tao, il invita plusieurs amis — dont le Saint de l'Épée Ling Tianhou, avant que leur relation ne se brise — pour explorer ce lieu à trois reprises!
+Il y a bien longtemps, lorsque Tian Yunzi eut achevé son Dao, il invita plusieurs amis — dont le Saint de l'Épée Ling Tianhou, avant que leur relation ne se brise — pour explorer ce lieu à trois reprises!
 
 Les deux premières expéditions furent vaines, mais lors de la troisième, moins de la moitié des participants revint!
 

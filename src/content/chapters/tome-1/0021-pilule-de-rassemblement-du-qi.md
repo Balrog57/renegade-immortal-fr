@@ -6,13 +6,13 @@ bookTitle: The Mediocre Youth
 en: Seizing the Spirit
 slug: pilule-de-rassemblement-du-qi
 ---
-Le dernier homme était un homme d'environ vingt-huit ou vingt-neuf ans au visage long et chevalin. Il releva le menton et lança d'un air dédaigneux: « Frère apprenti Wang, tu as passé plusieurs mois en méditation intensive, alors tu n'es pas au courant. Ce Wang Lin est la risée de la secte en ce moment même. Comme l'a dit la sœur apprentie Xu, il a utilisé des méthodes peu avouables pour devenir disciple intérieur. »
+Le dernier homme était un homme d'environ vingt-huit ou vingt-neuf ans au visage long et chevalin. Il releva le menton et lança d'un air dédaigneux: « Junior frère Wang, tu as passé plusieurs mois en méditation intensive, alors tu n'es pas au courant. Ce Wang Lin est la risée de la secte en ce moment même. Comme l'a dit Junior sœur Xu, il a utilisé des méthodes peu avouables pour devenir disciple intérieur. »
 
 En entendant cela, Wang Zhuo éclata d'un rire sonore. « Tu m'as vraiment fait peur un instant. C'est donc ainsi que tu as intégré la secte. Avec un tel talent, tu n'atteindras jamais le premier niveau de Condensation de Qi, même une fois ici. Pourquoi venir ici pour ne faire qu'entacher le nom de la famille Wang? »
 
-« Frère apprenti Wang, ce que vous dites est erroné. Si le talent est important, la persévérance l'est tout autant. La culture consiste déjà à défier les lois célestes; si l'on manque de détermination, le talent n'est plus qu'une vaine promesse », déclara la jeune fille nommée Zhou d'une voix douce et mélodieuse.
+« Junior frère Wang, ce que vous dites est erroné. Si le talent est important, la persévérance l'est tout autant. La culture consiste déjà à défier les lois célestes; si l'on manque de détermination, le talent n'est plus qu'une vaine promesse », déclara la jeune fille nommée Zhou d'une voix douce et mélodieuse.
 
-Alors qu'elle faisait quelques pas vers Wang Zhuo, la jeune fille nommée Xu ajouta: « Ce que le frère Wang dit n'est pas totalement faux pour autant. Ce Wang Lin a l'air si stupide... Il ne ressemble absolument pas à un cultivateur. »
+Alors qu'elle faisait quelques pas vers Wang Zhuo, la jeune fille nommée Xu ajouta: « Ce que Senior frère Wang dit n'est pas totalement faux pour autant. Ce Wang Lin a l'air si stupide... Il ne ressemble absolument pas à un cultivateur. »
 
 Wang Lin esquissa un sourire. Il comprenait que les relations entre ces personnes étaient complexes. Wang Zhuo éprouvait des sentiments pour la jeune fille nommée Zhou, mais la jeune fille nommée Xu, éprise de lui, tentait de saboter leur lien depuis tout à l'heure.
 
@@ -42,7 +42,7 @@ Alors qu'il parlait, la porte de la maison des pilules s'ouvrit. Un garçon robu
 
 Il toussa bruyamment pour attirer l'attention de l'assemblée et dit d'un air satisfait de lui-même: « Les Pilules de Rassemblement de Qi sont encore dans le fourneau aujourd'hui. Attendez un peu: quand mon maître aura fini de les raffiner, je vous ferai entrer un par un. »
 
-Wang Zhuo fixa Wang Hao en serrant les dents, mais il ne pouvait se permettre de l'offenser pour le moment. Wang Hao était l'assistant du troisième Grand Frère Apprenti et gérait les affaires quotidiennes de la maison des pilules. Si Wang Hao se plaignait au troisième Grand Frère Apprenti, la dotation mensuelle de Wang Zhuo en serait considérablement réduite.
+Wang Zhuo fixa Wang Hao en serrant les dents, mais il ne pouvait se permettre de l'offenser pour le moment. Wang Hao était l'assistant du troisième Senior frère et gérait les affaires quotidiennes de la maison des pilules. Si Wang Hao se plaignait au troisième Senior frère, la dotation mensuelle de Wang Zhuo en serait considérablement réduite.
 
 Après avoir fini de parler, Wang Hao scruta les environs et eut la joyeuse surprise d'apercevoir Wang Lin. Il le tira sur le côté et lui dit: « Grand frère Tie Zhu, félicitations pour ton accession au rang de disciple intérieur. J'ai entendu parler de ce qui s'est passé. Je voulais venir te parler, mais les règles ici sont trop strictes et on ne peut pas sortir facilement. Ne prête pas attention à ce que disent les autres. Une fois que tu auras maîtrisé les arts immortels, tu montreras à tous ceux qui t'ont méprisé de quoi tu es capable. »
 

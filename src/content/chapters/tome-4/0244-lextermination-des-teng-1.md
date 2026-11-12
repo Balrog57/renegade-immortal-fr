@@ -6,9 +6,9 @@ bookTitle: Clean Sweep
 en: Chapter 244 - Exterminating Teng (1)
 slug: lextermination-des-teng-1
 ---
-Non seulement Wang Lin n'avait pas eu à utiliser le fil de rétribution divine, mais il avait également obtenu une goutte de sang du Dieu Ancien. Bien que cette goutte ne fût guère pure et qu'elle disparût après une seule utilisation, elle était néanmoins suffisante pour lui sauver la vie une fois.
+Non seulement Wang Lin n'avait pas eu à utiliser le fil de la Tribulation Céleste, mais il avait également obtenu une goutte de sang du Dieu Ancien. Bien que cette goutte ne fût guère pure et qu'elle disparût après une seule utilisation, elle était néanmoins suffisante pour lui sauver la vie une fois.
 
-Wang Lin agita la main et le drapeau de restriction lui revint. Il observa l'objet et décida qu'une fois l'affaire avec la famille Teng réglée, il devrait trouver un lieu capable de résister à la foudre de la rétribution divine afin d'y placer la dernière restriction sur le drapeau. Ainsi, celui-ci atteindrait son premier niveau de perfectionnement et sa puissance augmenterait considérablement; il ne serait plus comme aujourd'hui, où il n'avait presque aucun effet sur l'ennemi.
+Wang Lin agita la main et le drapeau de restriction lui revint. Il observa l'objet et décida qu'une fois l'affaire avec la famille Teng réglée, il devrait trouver un lieu capable de résister à la foudre de la Tribulation Céleste afin d'y placer la dernière restriction sur le drapeau. Ainsi, celui-ci atteindrait son premier niveau de perfectionnement et sa puissance augmenterait considérablement; il ne serait plus comme aujourd'hui, où il n'avait presque aucun effet sur l'ennemi.
 
 C'était la première fois que Wang Lin ressentait qu'il manquait cruellement de trésors magiques.
 
@@ -42,7 +42,7 @@ Au moment où sa main toucha le sac, une force puissante lui opposa une résista
 
 Il prit une profonde inspiration et pressa sa main sur le sac. À chaque pression, un fragment du sens divin de l'Empereur Ancien était extrait, mais la progression était extrêmement lente et, parallèlement, la contre-attaque que Wang Lin ressentait augmentait.
 
-Après sept minutes, le front de Wang Lin était couvert de sueur. Il prit une profonde inspiration et consomma quelques pilules pour stabiliser son corps. Serrant les dents, il activa son Royaume Ji dans sa main droite et pressa le sac avec toute son énergie spirituelle.
+Après un demi-bâton d'encens, le front de Wang Lin était couvert de sueur. Il prit une profonde inspiration et consomma quelques pilules pour stabiliser son corps. Serrant les dents, il activa son Royaume Ji dans sa main droite et pressa le sac avec toute son énergie spirituelle.
 
 Cette fois, la vitesse augmenta considérablement, mais la consommation d'énergie spirituelle de Wang Lin s'intensifia également. Après avoir englouti plusieurs flacons de pilules, une lumière blanche jaillit soudainement du sac de rangement avant de se dissiper.
 

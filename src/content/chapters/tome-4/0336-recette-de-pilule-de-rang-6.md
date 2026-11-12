@@ -98,7 +98,7 @@ Ce dernier saisit la boîte, la brisa d'une légère tape, examina le jade avec 
 
 La jeune fille rattrapa le jade, prit une profonde inspiration et dit: « Senior, cette junior a été impolie, mais elle y a été contrainte. Veuillez considérer la valeur de cette recette de pilule de rang 6 et aidez-moi une fois. »
 
-L'expression de Wang Lin demeura imperturbable. La jeune fille serra les dents: « Cette junior est issue de la Secte Piao Miao de Zhou. Mon père est le maître de notre secte. Il y a 20 ans, il est entré dans le Cimetière des Immortels et n'en est jamais revenu. Ce Cimetière est l'un des deux endroits les plus dangereux de Suzaku, au même titre que la Vallée Désolée des Neuf Fantômes. Ma culture n'est pas assez élevée; j'espérais donc que le Senior puisse m'accompagner là-bas pour récupérer les restes de mon père. »
+L'expression de Wang Lin demeura imperturbable. La jeune fille serra les dents: « Cette junior est issue de la Secte Piao Miao du Pays Zhou. Mon père est le maître de notre secte. Il y a 20 ans, il est entré dans le Cimetière des Immortels et n'en est jamais revenu. Ce Cimetière est l'un des deux endroits les plus dangereux de Suzaku, au même titre que la Vallée Désolée des Neuf Fantômes. Ma culture n'est pas assez élevée; j'espérais donc que le Senior puisse m'accompagner là-bas pour récupérer les restes de mon père. »
 
 Sur ces mots, elle afficha un air de tristesse, se mordit la lèvre et attendit la réponse de Wang Lin.
 

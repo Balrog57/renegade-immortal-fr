@@ -34,9 +34,9 @@ La brume de l'un des bassins se transformait immédiatement en givre avant de se
 
 L'un était glacial, l'autre brûlant!
 
-Le bassin froid contenait une eau glacée vieille de 30 000 ans provenant de la planète Givre Céleste. Suzaku avait payé un prix exorbitant pour l'obtenir.
+Le bassin froid contenait une eau glacée vieille de 30 000 ans provenant de la planète Tian Shuang. Suzaku avait payé un prix exorbitant pour l'obtenir.
 
-Le bassin de flammes contenait un feu inextinguible vieux de 30 000 ans issu de la planète Feu Flamboyant, dont le coût était identique à celui du bassin froid.
+Le bassin de flammes contenait un feu inextinguible vieux de 30 000 ans issu de la planète Huo Yan, dont le coût était identique à celui du bassin froid.
 
 Autour de ces deux bassins se trouvaient 99 pierres spirituelles de qualité supérieure qui alimentaient deux formations distinctes, dégageant une quantité d'énergie spirituelle inimaginable.
 
@@ -66,7 +66,7 @@ L'homme se leva. En faisant ce mouvement, une brume blanche s'échappa de son co
 
 Le vieil homme soupira. « C'est un peu regrettable pour Hongdie. Cette fille... Ah, je vieillis et je ne peux plus supporter certaines choses... Laisse tomber, vas-y. »
 
-L'homme esquissa un léger sourire: « Ancêtre, vous dites toujours que c'est regrettable, mais le titre de Suzaku ne sera pas transmis à un étranger. Ce sera soit moi, soit ma jeune sœur apprentie! »
+L'homme esquissa un léger sourire: « Ancêtre, vous dites toujours que c'est regrettable, mais le titre de Suzaku ne sera pas transmis à un étranger. Ce sera soit moi, soit ma Junior sœur! »
 
 Sur ces mots, son corps s'estompa lentement jusqu'à disparaître.
 
@@ -98,7 +98,7 @@ La femme dans le bassin froid ouvrit les yeux. Son regard était calme alors qu'
 
 Cette femme était Liu Mei, de la Secte Tian Dao.
 
-L'Ancien déclara: « Tu as créé mille avatars pour cultiver au sein de diverses sectes à travers différents pays afin de comprendre les lois célestes. L'un de ces avatars est allé à la Secte Xuan Dao, dans l'État de Zhao. Te souviens-tu de Wang Lin? Il était un disciple de la Secte Heng Yue! »
+L'Ancien déclara: « Tu as créé mille avatars pour cultiver au sein de diverses sectes à travers différents pays afin de comprendre les lois célestes. L'un de ces avatars est allé à la Secte Xuan Dao, dans le Pays Zhao. Te souviens-tu de Wang Lin? Il était un disciple de la Secte Heng Yue! »
 
 Liu Mei réfléchit un instant et répondit: « Cette disciple en a un vague souvenir, mais ce n'est pas très clair. »
 
@@ -106,7 +106,7 @@ Liu Mei réfléchit un instant et répondit: « Cette disciple en a un vague sou
 
 Aucun signe de choc ne passa dans les yeux de Liu Mei. Elle se contenta d'acquiescer sans dire un mot.
 
-« La personne que j'avais préparée pour toi était Zhou Yi de la Secte des Cinq Éléments. Il possédait le domaine de l'amour obsessionnel. Si tu avais pu marquer son cœur dao, tu aurais pu dévorer son domaine... Malheureusement, cet homme a disparu dans le Royaume Céleste. »
+« La personne que j'avais préparée pour toi était Zhou Yi de la Secte Wu Xing. Il possédait le domaine de l'amour obsessionnel. Si tu avais pu marquer son cœur dao, tu aurais pu dévorer son domaine... Malheureusement, cet homme a disparu dans le Royaume Céleste. »
 
 Liu Mei resta pensive.
 
@@ -120,7 +120,7 @@ Liu Mei murmura: « La disciple obéit! »
 
 Le vieil homme leva la tête et regarda au loin. Ses yeux semblaient capables de percer la grotte pour voir jusqu'à un pays de culture de rang 1, où un vieillard était en train de manger une cuisse de poulet.
 
-« Jeune frère apprenti, parmi les quatre personnes que tu as choisies, Ceng Niu est la plus faible; je suppose que cela ne te dérangera pas! »
+« Junior frère, parmi les quatre personnes que tu as choisies, Ceng Niu est la plus faible; je suppose que cela ne te dérangera pas! »
 
 « Je vais entrer en culture de méditation prolongée. J'espère qu'à mon retour, tu auras déjà réussi. » Après un long moment, le vieil homme détourna son regard et disparut dans un éclair de lumière rouge.
 
@@ -142,7 +142,7 @@ Cependant, les yeux de Hongdie étaient comme des trous noirs; elle ne présenta
 
 Liu Mei regarda calmement Hongdie sans prononcer un mot.
 
-Qian Feng s'arrêta à 10 mètres de Liu Mei. Il afficha un sourire révélant ses dents blanches et dit: « Jeune sœur apprentie, t'en vas-tu déjà? »
+Qian Feng s'arrêta à 10 mètres de Liu Mei. Il afficha un sourire révélant ses dents blanches et dit: « Junior sœur, t'en vas-tu déjà? »
 
 Liu Mei hocha la tête et murmura: « Senior frère Qian Feng, la personne derrière vous est-ce Hongdie? »
 
@@ -154,6 +154,6 @@ Le fait qu'une beauté légendaire de cette génération ait subi un tel sort pl
 
 L'Ancêtre était prêt à tout pour former le prochain Suzaku.
 
-Qian Feng fixa le dos de Liu Mei d'un regard malveillant et murmura: « Jeune sœur apprentie, un jour, tu deviendras ma concubine. Qu'en penses-tu, Sans-Cœur? »
+Qian Feng fixa le dos de Liu Mei d'un regard malveillant et murmura: « Junior sœur, un jour, tu deviendras ma concubine. Qu'en penses-tu, Sans-Cœur? »
 
 Hongdie resta immobile derrière lui. Il n'y avait plus aucune lueur dans ses yeux. Elle n'était plus qu'une dépouille.

@@ -24,11 +24,11 @@ Il observa le réseau de transfert brisé. Le réseau était gravement endommag�
 
 Le jeune homme soupira secrètement et murmura pour lui-même: « Il n'y a pas beaucoup de personnes sur cette planète capables d'ouvrir mon sac de rangement. Mais avec mon niveau de culture instable actuel, si je ne retourne pas bientôt sur ma planète natale, ma culture diminuera encore davantage... » Il fronça légèrement les sourcils et disparut.
 
-Le continent Kong, l'un des six principaux continents de la planète Suzaku.
+Le continent Kong Meng, l'un des six principaux continents de la planète Suzaku.
 
-On trouvait d'innombrables pays de culture dans le continent Kong, mais la plupart étaient des nations de rang 1 ou 2, avec quelques-unes de rang 3 et très peu de rang 4. Après tout, les ressources sur ce continent étaient bien trop pauvres.
+On trouvait d'innombrables pays de culture dans le continent Kong Meng, mais la plupart étaient des nations de rang 1 ou 2, avec quelques-unes de rang 3 et très peu de rang 4. Après tout, les ressources sur ce continent étaient bien trop pauvres.
 
-À la frontière du continent Kong et de la Mer Xiu Mo se trouvait une petite ville frontalière. Cette ville n'était pas très grande. La personne la plus puissante y était seulement au stade de la Formation du Noyau. Dans cette ville, il y avait un ancien réseau de transfert.
+À la frontière du continent Kong Meng et de la Mer Xiu Mo se trouvait une petite ville frontalière. Cette ville n'était pas très grande. La personne la plus puissante y était seulement au stade de la Formation du Noyau. Dans cette ville, il y avait un ancien réseau de transfert.
 
 Ce réseau s'illumina soudainement et bientôt, la silhouette de Wang Lin en sortit.
 
@@ -88,7 +88,7 @@ La femme suivit rapidement. Les deux autres cultivateurs de la Formation du Noya
 
 Guidés par la femme, ils arrivèrent bientôt au sommet. Un pavillon fort élégant y avait été construit, avec des cloches suspendues aux angles du bâtiment. Ces cloches émettaient des sons très limpides et mélodieux.
 
-Une fois la cultivatrice posée au sol, son visage rougit alors qu'elle disait: « Senior, c'est ici ma demeure. Cette zone n'appartenait pas à l'origine à la Secte Zi Yun. C'est pourquoi mon frère aîné ignorait l'existence de l'ancien réseau de transfert. La junior a découvert un passage secret par chance et a trouvé qu'un ancien réseau se trouvait sous le bâtiment. »
+Une fois la cultivatrice posée au sol, son visage rougit alors qu'elle disait: « Senior, c'est ici ma demeure. Cette zone n'appartenait pas à l'origine à la Secte Zi Yun. C'est pourquoi mon Senior frère ignorait l'existence de l'ancien réseau de transfert. La junior a découvert un passage secret par chance et a trouvé qu'un ancien réseau se trouvait sous le bâtiment. »
 
 Wang Lin hocha la tête. Auparavant, lorsqu'il avait balayé la zone avec son sens divin, il avait pourtant inspecté ce secteur sans rien trouver.
 
@@ -100,7 +100,7 @@ Sous la conduite de la cultivatrice, ils entrèrent dans le pavillon. Dès qu'il
 
 Le regard de Wang Lin parcourut la pièce. Ses yeux se posèrent un instant sur un paravent, avant de se détourner rapidement.
 
-Le visage de la cultivatrice devint encore plus rouge. Profitant du moment où ses deux frères aînés franchissaient la porte pour entrer, elle se précipita vers le paravent afin d'y ranger les sous-vêtements presque transparents qui y étaient suspendus. Elle baissa la tête, le visage cramoisi, n'osant croiser le regard de Wang Lin.
+Le visage de la cultivatrice devint encore plus rouge. Profitant du moment où ses deux Seniors frères franchissaient la porte pour entrer, elle se précipita vers le paravent afin d'y ranger les sous-vêtements presque transparents qui y étaient suspendus. Elle baissa la tête, le visage cramoisi, n'osant croiser le regard de Wang Lin.
 
 Wang Lin fit semblant de n'avoir rien vu. Sous la conduite de la femme, ils descendirent par le passage secret jusqu'au niveau inférieur. Bien qu'il paraisse parfaitement calme, Wang Lin restait sur ses gardes; au moindre signe anormal, il agirait sans hésitation.
 
@@ -118,13 +118,13 @@ Le réseau s'illumina et Wang Lin disparut.
 
 La cultivatrice regarda le réseau désormais vide avec une pointe de tristesse au cœur. Soudain, elle se souvint de quelque chose et son visage rougit à nouveau.
 
-Zhao se situait à l'extrême bord du continent Kong. Ce n'était pas un grand pays; en réalité, il ne faisait que la moitié de la taille de Huo Fen.
+Zhao se situait à l'extrême bord du continent Kong Meng. Ce n'était pas un grand pays; en réalité, il ne faisait que la moitié de la taille de Huo Fen.
 
 Bien qu'il possédât des veines spirituelles, leur production était très faible, suffisant à peine à soutenir le pays; même lors des périodes d'exploitation minière, l'extraction restait limitée. En raison de la rareté des veines spirituelles, les herbes spirituelles étaient également devenues très rares. On pouvait dire que Zhao était un tout petit pays frontalier.
 
 De nos jours, la secte numéro un à Zhao était la Secte Xuan Dao, et son ancêtre, Pu Nanzi, avait atteint le stade avancé de l'Âme Naissante il y a 400 ans. Après 400 ans de retraite, bien qu'il n'ait pas atteint le stade de la Formation de l'Âme, sa culture avait encore progressé d'un cran, et les autres cultivateurs au stade avancé de l'Âme Naissante n'étaient absolument pas de taille face à lui.
 
-Outre la Secte Xuan Dao, les sectes orthodoxes de Zhao, comme la Secte Piao Miao, ne s'en sortaient plus aussi bien et étaient progressivement devenues des sectes de seconde zone. Parallèlement, la Secte Nirvana et la Secte Yuan Kui avaient subi le même sort. En raison de l'ascension de Pu Nanzi, leurs sectes avaient été reléguées au second rang.
+Outre la Secte Xuan Dao, les sectes orthodoxes de Zhao, comme la Secte Piao Miao, ne s'en sortaient plus aussi bien et étaient progressivement devenues des sectes de seconde zone. Parallèlement, la Secte Ji Mie et la Secte Yuan Kui avaient subi le même sort. En raison de l'ascension de Pu Nanzi, leurs sectes avaient été reléguées au second rang.
 
 Quant aux sectes démoniaques — la Secte Tian Dao, la Secte He Huan et la Vallée Wu Feng —, elles s'en sortaient mieux. Bien qu'elles ne pussent rivaliser avec Pu Nanzi, elles étaient un cran au-dessus des sectes orthodoxes.
 

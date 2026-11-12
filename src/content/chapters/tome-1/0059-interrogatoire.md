@@ -6,9 +6,9 @@ bookTitle: The Mediocre Youth
 en: Chapter 59 - Questioning
 slug: interrogatoire
 ---
-Lu Yunjie frissonna. Il força un sourire et dit: « Wang... frère Wang, avez-vous besoin de quelque chose? Si vous avez besoin de pilules de rassemblement de Qi, j'en ai encore beaucoup en réserve et je peux vous en donner. »
+Lu Yunjie frissonna. Il força un sourire et dit: « Wang... Senior frère Wang, avez-vous besoin de quelque chose? Si vous avez besoin de pilules de rassemblement de Qi, j'en ai encore beaucoup en réserve et je peux vous en donner. »
 
-« Troisième frère, il y a une chose que je veux de votre part: votre assistant, Wang Hao. » Wang Lin fixa Lu Yunjie. Auparavant, il n'avait pas eu assez d'assurance pour s'opposer à lui, alors il n'était pas intervenu pour Wang Hao. Mais après ces combats, il avait une bien meilleure compréhension de sa propre puissance.
+« Troisième Senior frère, il y a une chose que je veux de votre part: votre assistant, Wang Hao. » Wang Lin fixa Lu Yunjie. Auparavant, il n'avait pas eu assez d'assurance pour s'opposer à lui, alors il n'était pas intervenu pour Wang Hao. Mais après ces combats, il avait une bien meilleure compréhension de sa propre puissance.
 
 L'expression de Lu Yunjie devint instable. Il eut un rire amer au fond du cœur. Serrant les dents, il déclara: « Wang Lin, ce Wang Hao est mon assistant et il est essentiel à la création de mes élixirs, je ne peux donc pas accepter! »
 
@@ -38,7 +38,7 @@ Le visage de Lu Yunjie était d'une pâleur cadavérique. Il s'agenouilla et mur
 
 Wang Lin ouvrit les yeux. Auparavant, l'état de Wang Hao était critique, mais après avoir injecté de l'énergie spirituelle dans son corps, il avait réussi à lui sauver la vie. En entendant les paroles de Lu Yunjie, il laissa échapper quelques reniflements méprisants.
 
-Huang Long fronça les sourcils. D'un côté se trouvait le génie Wang Lin, et de l'autre, un disciple fidèle depuis 25 ans, Lu Yunjie. Cette décision lui était extrêmement difficile à prendre. Après avoir longuement réfléchi, il trancha et dit à Dao Xu: « Jeune frère Dao Xu, tu es responsable de la discipline. Comment souhaites-tu traiter Lu Yunjie? »
+Huang Long fronça les sourcils. D'un côté se trouvait le génie Wang Lin, et de l'autre, un disciple fidèle depuis 25 ans, Lu Yunjie. Cette décision lui était extrêmement difficile à prendre. Après avoir longuement réfléchi, il trancha et dit à Dao Xu: « Junior frère Dao Xu, tu es responsable de la discipline. Comment souhaites-tu traiter Lu Yunjie? »
 
 Dès qu'il entendit cela, Dao Xu comprit immédiatement la décision du Maître de secte et déclara: « Lu Yunjie sera placé en retraite spirituelle pour une durée de 20 ans. »
 

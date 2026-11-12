@@ -16,9 +16,9 @@ Wang Lin attrapa le sac et l'examina avec son Sens Divin. Le sac contenait effec
 
 Wang Lin joignit les mains et dit: « Merci infiniment! »
 
-Bai Wei sourit. « Je t'en prie. Tu ne connais pas encore bien la Division Pourpre; que dirais-tu que ton frère aîné te fasse visiter les lieux? »
+Bai Wei sourit. « Je t'en prie. Tu ne connais pas encore bien la Division Pourpre; que dirais-tu que ton Senior frère te fasse visiter les lieux? »
 
-Un éclat étrange passa dans les yeux de Wang Lin, qui refusa catégoriquement: « Je te remercie pour ta bienveillance, frère aîné, mais je suis encore occupé par ma culture. Faisons cela un autre jour. »
+Un éclat étrange passa dans les yeux de Wang Lin, qui refusa catégoriquement: « Je te remercie pour ta bienveillance, Senior frère, mais je suis encore occupé par ma culture. Faisons cela un autre jour. »
 
 En parlant, Wang Lin recula de deux pas. Il ressentait une sensation étrange émanant de Bai Wei, et discuter avec lui le mettait profondément mal à l'aise.
 
@@ -32,27 +32,27 @@ Bai Wei esquissa un léger sourire en s'asseyant. Il versa d'abord une tasse pou
 
 Wang Lin se contenta de sourire sans dire un mot.
 
-Bai Wei prit sa tasse et en but une gorgée, puis ses yeux s'illuminèrent: « Wang Lin, méfie-toi de ton frère aîné! »
+Bai Wei prit sa tasse et en but une gorgée, puis ses yeux s'illuminèrent: « Wang Lin, méfie-toi de ton Senior frère! »
 
 L'expression de Wang Lin resta sereine. Il leva la tête vers Bai Wei, attendant la suite.
 
-Bai Wei posa sa tasse et reprit lentement: « Ton frère aîné est celui qui suit Maître depuis le plus longtemps au sein de la Division Pourpre; il connaît donc des secrets que nous ignorons, comme la raison pour laquelle Maître réside sur cette planète depuis des dizaines de milliers d'années. Parmi ses disciples, hormis une infime minorité, la plupart ne cultivent que depuis un millénaire environ, et très peu dépassent les dix mille ans. Ton frère aîné connaît certainement la vérité derrière tout cela. »
+Bai Wei posa sa tasse et reprit lentement: « Ton Senior frère est celui qui suit Maître depuis le plus longtemps au sein de la Division Pourpre; il connaît donc des secrets que nous ignorons, comme la raison pour laquelle Maître réside sur cette planète depuis des dizaines de milliers d'années. Parmi ses disciples, hormis une infime minorité, la plupart ne cultivent que depuis un millénaire environ, et très peu dépassent les dix mille ans. Ton Senior frère connaît certainement la vérité derrière tout cela. »
 
 Le regard de Wang Lin devint sérieux. Il avait déjà envisagé cette question, mais faute de connaissances, il n'y avait pas approfondi le sujet. En entendant Bai Wei en parler, ses pensées s'emballèrent.
 
 « Où sont passés tous les anciens disciples de Maître? Pas seulement toi et moi, même Deuxième Frère, Quatrième Sœur et Cinquième Sœur n'ont jamais réussi à le comprendre. »
 
-« La seule autre personne qui aurait pu connaître ce secret, outre ton frère aîné, était le précédent Septième Frère, Sun Yun! Je soupçonne que c'est précisément pour cette raison qu'il a trahi la secte à l'époque! »
+« La seule autre personne qui aurait pu connaître ce secret, outre ton Senior frère, était le précédent Septième Frère, Sun Yun! Je soupçonne que c'est précisément pour cette raison qu'il a trahi la secte à l'époque! »
 
 Wang Lin réfléchit un instant. Peu après, il dit calmement: « Troisième Frère, en l'absence de preuves concluantes, il vaut mieux ne pas faire de conjectures sauvages. »
 
-Une lueur mystérieuse traversa les yeux de Bai Wei. Il marqua une pause avant de poursuivre: « La Division Pourpre est la plus faible de toutes les divisions, mais la compétition y reste féroce; ton frère aîné convoite cette position de véritable disciple depuis très longtemps. »
+Une lueur mystérieuse traversa les yeux de Bai Wei. Il marqua une pause avant de poursuivre: « La Division Pourpre est la plus faible de toutes les divisions, mais la compétition y reste féroce; ton Senior frère convoite cette position de véritable disciple depuis très longtemps. »
 
-« Ne sous-estime pas ton frère aîné; sa culture n'a pas toujours été ainsi. Autrefois, il avait échoué dans son combat contre Sixième Frère pour le titre de véritable disciple et en était ressorti avec des blessures irréparables, ce qui avait fait chuter son niveau de culture. Cependant, il est d'une détermination sans faille; il s'est retiré en culture fermée pendant des centaines d'années pour se préparer à laver son affront. »
+« Ne sous-estime pas ton Senior frère; sa culture n'a pas toujours été ainsi. Autrefois, il avait échoué dans son combat contre Sixième Frère pour le titre de véritable disciple et en était ressorti avec des blessures irréparables, ce qui avait fait chuter son niveau de culture. Cependant, il est d'une détermination sans faille; il s'est retiré en culture fermée pendant des centaines d'années pour se préparer à laver son affront. »
 
-« Malheureusement, Sun Yun est apparu, et il a vaincu Sixième Frère ainsi que ton frère aîné pour obtenir la position de véritable disciple de Maître. »
+« Malheureusement, Sun Yun est apparu, et il a vaincu Sixième Frère ainsi que ton Senior frère pour obtenir la position de véritable disciple de Maître. »
 
-« Lors de la célébration de l'anniversaire de Maître dans trois mois, le nouveau véritable disciple de la Division Pourpre sera choisi. À moins que Sixième Frère ne revienne de son entraînement à l'extérieur, tu seras la personne que ton frère aîné devra impérativement éliminer! »
+« Lors de la célébration de l'anniversaire de Maître dans trois mois, le nouveau véritable disciple de la Division Pourpre sera choisi. À moins que Sixième Frère ne revienne de son entraînement à l'extérieur, tu seras la personne que ton Senior frère devra impérativement éliminer! »
 
 Wang Lin fronça légèrement les sourcils: « Le titre des sept véritables disciples de Tian Yunzi n'est qu'un titre. Pourquoi se battre ainsi? »
 
@@ -86,7 +86,7 @@ Bai Wei sourit en se levant: « Très bien. Je ne te dérangerai plus. Septième
 
 Au moment où il se détourna, le sourire disparut de son visage sans laisser de trace, remplacé par une expression lugubre.
 
-« Cher frère aîné, tu veux devenir l'un des sept véritables disciples, mais tant que je, Bai Wei, serai en vie, je ne te laisserai jamais réussir! Je ferai en sorte que tu échoues à chaque fois! C'est la seule façon pour moi de me venger de ce que tu m'as fait autrefois! »
+« Cher Senior frère, tu veux devenir l'un des sept véritables disciples, mais tant que je, Bai Wei, serai en vie, je ne te laisserai jamais réussir! Je ferai en sorte que tu échoues à chaque fois! C'est la seule façon pour moi de me venger de ce que tu m'as fait autrefois! »
 
 Wang Lin retourna au Pavillon Zi Lin, l'esprit en éveil.
 
@@ -110,7 +110,7 @@ Alors qu'il traversait la Division Pourpre, chaque disciple croisé s'arrêtait 
 
 En chemin, Wang Lin réalisa progressivement une chose: cette Secte Tian Yun ne ressemblait pas aux sectes de la planète Suzaku où seul le plus fort était respecté. Elle maintenait les traditions ancestrales où l'ancienneté dictait le respect, et la position d'un individu dépendait de son ancienneté au sein de la secte.
 
-Par conséquent, à l'exception de quelqu'un comme Wang Lin qui était apparu soudainement, les rangs étaient extrêmement stables de génération en génération. C'est pourquoi même Sun Yun, bien qu'étant devenu l'un des sept véritables disciples, devait encore appeler Zhao Xingsha « frère aîné » lorsqu'ils se rencontraient.
+Par conséquent, à l'exception de quelqu'un comme Wang Lin qui était apparu soudainement, les rangs étaient extrêmement stables de génération en génération. C'est pourquoi même Sun Yun, bien qu'étant devenu l'un des sept véritables disciples, devait encore appeler Zhao Xingsha « Senior frère » lorsqu'ils se rencontraient.
 
 La Division Pourpre était immense. Ayant déjà exploré la zone à plusieurs reprises, il n'était pas étranger au chemin. Sa destination cette fois-ci: le pavillon des trésors de la Division Pourpre!
 

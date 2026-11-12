@@ -36,7 +36,7 @@ Parmi eux se trouvaient quatre vieux cultivateurs particulièrement frappants, d
 
 Les quatre levèrent la tête pour contempler les tours de glace en descente. L'un d'eux se redressa soudainement, son corps chétif reprenant brusquement du volume. Des craquements résonnèrent dans sa carcasse tandis que ses os s'élargissaient; les rides de sa peau s'effacèrent et ses muscles se développèrent.
 
-En un instant, il passa de l'état de vieillard flétri à celui d'un homme d'âge moyen d'une grande dignité. Il fixa la femme en blanc d'un regard sérieux et déclara: « Je suis Zhou Yun, de la Secte de l'Âme Noire. Puis-je me permettre de vous demander si vous êtes Hongdie, de Xue Yu? »
+En un instant, il passa de l'état de vieillard flétri à celui d'un homme d'âge moyen d'une grande dignité. Il fixa la femme en blanc d'un regard sérieux et déclara: « Je suis Zhou Yun, de la Secte Hei Hun. Puis-je me permettre de vous demander si vous êtes Hongdie, de Xue Yu? »
 
 Hongdie, le génie de Xue Yu que Suzaku cherchait à recruter, était un prodige absolu ayant réussi à atteindre le stade avancé de la Formation de l'Âme en seulement cent ans.
 
@@ -80,7 +80,7 @@ La mort du prodige de Xue Yu marquerait un tournant décisif dans cette guerre. 
 
 Lorsque les neuf assauts se déchaînèrent, de nombreux cultivateurs chargés de maintenir la formation périrent sur le coup. Ce furent eux qui absorbèrent une partie du contre-coup de l'attaque de la femme.
 
-Si celle-ci osait flotter seule dans les airs, c'était grâce à cet éventail. Pourtant, elle s'était montrée trop confiante. Depuis qu'elle avait obtenu cet éventail précieux, fabriqué dans un pays de culture de rang 5, aucun cultivateur de la Formation de l'Âme ne pouvait l'égaler, hormis sa jeune sœur de discipline qui l'avait toujours dominée.
+Si celle-ci osait flotter seule dans les airs, c'était grâce à cet éventail. Pourtant, elle s'était montrée trop confiante. Depuis qu'elle avait obtenu cet éventail précieux, fabriqué dans un pays de culture de rang 5, aucun cultivateur de la Formation de l'Âme ne pouvait l'égaler, hormis sa Junior sœur qui l'avait toujours dominée.
 
 Parmi les neuf figures, cinq se trouvaient au stade avancé de la Formation de l'Âme, tandis que les quatre autres maîtrisaient des domaines spéciaux. Personne ne pouvait survivre à une telle attaque, à moins d'avoir atteint le stade de la Transformation de l'Âme.
 
@@ -98,7 +98,7 @@ Cette femme n'était peut-être pas le véritable génie.
 
 À la base de chaque pilier de lumière, d'innombrables cultivateurs étaient assis au sol. Les yeux clos, ils déversaient toute leur culture et leur énergie spirituelle dans cette formation.
 
-La terre entière commença à trembler violemment au centre de l'Alliance des Quatre Sectes, dans la chaîne de montagnes du Nuage Céleste. Bien que recouverte de neige, la montagne fut secouée de tremblements si puissants que la couche neigeuse se détacha et que d'énormes blocs de glace éclatèrent. Rapidement, toute la chaîne de montagnes se mua en un dragon azur de 33 kilomètres de long.
+La terre entière commença à trembler violemment au centre de l'Alliance des Quatre Sectes, dans la chaîne de montagnes Tian Yun. Bien que recouverte de neige, la montagne fut secouée de tremblements si puissants que la couche neigeuse se détacha et que d'énormes blocs de glace éclatèrent. Rapidement, toute la chaîne de montagnes se mua en un dragon azur de 33 kilomètres de long.
 
 Alors que le dragon redressait la tête, la neige et la glace tombèrent de ses écailles, et ses immenses yeux de dragon se fixèrent sur les cultivateurs de Xue Yu.
 

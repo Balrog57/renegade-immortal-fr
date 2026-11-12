@@ -34,7 +34,7 @@ Wang Lin le rattrapa et pénétra dans la grotte.
 
 Sun Lei maudit intérieurement, mais sachant que le temps pressait — car la moitié du délai s'était déjà écoulée — il se précipita à son tour à l'intérieur.
 
-Une fois entré, il vit Wang Lin ramasser le morceau de métal doré sur la poitrine du squelette et, sans un mot, s'avancer pour saisir l'épée céleste.
+Une fois entré, il vit Wang Lin ramasser le morceau de métal doré sur la poitrine du squelette. Sans un mot, il s'avança lui-même pour saisir l'épée céleste.
 
 Mais dès que sa main toucha l'arme, il poussa un gémissement misérable alors que de petites taches de sang apparaissaient sur sa main.
 

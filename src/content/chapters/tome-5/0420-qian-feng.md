@@ -6,15 +6,15 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 420 - Qian Feng
 slug: qian-feng
 ---
-Le jeune homme au regard malveillant hocha doucement la tête et dit: « Je ne pensais pas que le frère Ceng connaissait mon nom. Je crois que c'est ma jeune sœur apprentie, si espiègle, qui vous l'a dit. Elle a dû dire beaucoup de mal de moi. »
+Le jeune homme au regard malveillant hocha doucement la tête et dit: « Je ne pensais pas que le frère Zeng connaissait mon nom. Je crois que c'est ma Junior sœur, si espiègle, qui vous l'a dit. Elle a dû dire beaucoup de mal de moi. »
 
-D'une voix glaciale, Du Tian trancha: « Assez. Qian Feng, ouvre la formation. Je n'ai pas de temps à perdre avec toi. Si tu ne l'ouvres pas maintenant, tu ne repartiras pas d'ici aujourd'hui. »
+D'une voix glaciale, Dun Tian trancha: « Assez. Qian Feng, ouvre la formation. Je n'ai pas de temps à perdre avec toi. Si tu ne l'ouvres pas maintenant, tu ne repartiras pas d'ici aujourd'hui. »
 
-Qian Feng éclata de rire. « Aîné, je n'ai aucune intention malveillante. Se pourrait-il que le successeur que vous avez choisi n'ait même pas le courage de me combattre? Soyez rassuré, Aîné; je n'utiliserai aucun mouvement mortel, nous ne ferons que nous mesurer. »
+Qian Feng éclata de rire. « Senior, je n'ai aucune intention malveillante. Se pourrait-il que le successeur que vous avez choisi n'ait même pas le courage de me combattre? Soyez rassuré, Senior; je n'utiliserai aucun mouvement mortel, nous ne ferons que nous mesurer. »
 
-Du Tian ricana. Il leva la main et s'apprêtait à lancer un sort lorsque Wang Lin intervint: « Très bien, je vais te combattre. »
+Dun Tian ricana. Il leva la main et s'apprêtait à lancer un sort lorsque Wang Lin intervint: « Très bien, je vais te combattre. »
 
-Les yeux de Qian Feng s'illuminèrent. Il laissa échapper un rire en sortant du rideau de lumière verte. Il s'arrêta à 33 mètres de Wang Lin et sourit: « Bien. Ce n'est pas étonnant que le frère Ceng soit celui qui a tué Li Yuanfeng et l'ancêtre du Clan Ju Mo... »
+Les yeux de Qian Feng s'illuminèrent. Il laissa échapper un rire en sortant du rideau de lumière verte. Il s'arrêta à 33 mètres de Wang Lin et sourit: « Bien. Ce n'est pas étonnant que le frère Zeng soit celui qui a tué Li Yuanfeng et l'ancêtre du Clan Ju Mo... »
 
 Wang Lin ne perdit pas de temps en paroles avec cet individu. Dès que Qian Feng fut sorti, Wang Lin sortit son épée céleste, activa son énergie spirituelle céleste et trancha Qian Feng, interrompant net sa phrase. Bien que ce fût la première fois que Wang Lin rencontrait Qian Feng, il n'éprouvait aucune sympathie pour lui. Sa première attaque fut portée avec 120 % de sa puissance.
 
@@ -48,15 +48,15 @@ De son point de vue, Wang Lin était tout bonnement vil. Compte tenu de son stat
 
 Même lorsqu'il combattait le jeune chef du Clan Xian Yi, il n'avait jamais été placé dans une position aussi humiliante.
 
-Cette scène ravissait Du Tian. Il éclata de rire en pensant: « Ce Ceng Niu possède véritablement l'essence de ma Secte Lian Hun. Si l'on doit agir, il faut savoir saisir la meilleure opportunité. »
+Cette scène ravissait Dun Tian. Il éclata de rire en pensant: « Ce Zeng Niu possède véritablement l'essence de ma Secte Lian Hun. Si l'on doit agir, il faut savoir saisir la meilleure opportunité. »
 
 À cet instant, Qian Feng était encerclé par le sous-étendard des âmes d'un milliard. Les innombrables fragments d'âmes créaient une pression écrasante, particulièrement les douze âmes primaires qui représentaient un danger mortel pour lui.
 
 La douceur disparut du visage de Qian Feng, remplacée par une trace d'hostilité. Il frappa son sac de rangement et un poinçon rouge flamboyant en sortit.
 
-« Le Poinçon de Suzaku! » Du Tian fronça les sourcils. Il pensait que l'actuel Suzaku choyait trop ce Qian Feng, sans quoi il ne lui aurait pas confié un tel trésor.
+« Le Poinçon de Suzaku! » Dun Tian fronça les sourcils. Il pensait que l'actuel Suzaku choyait trop ce Qian Feng, sans quoi il ne lui aurait pas confié un tel trésor.
 
-Du Tian envoya une transmission vocale: « Ceng Niu, ce trésor appartient à Zhu Quezi. C'est un pseudo-trésor céleste, il est donc extrêmement puissant. »
+Dun Tian envoya une transmission vocale: « Zeng Niu, ce trésor appartient à Zhu Quezi. C'est un pseudo-trésor céleste, il est donc extrêmement puissant. »
 
 Les yeux de Wang Lin s'illuminèrent. Homme d'une grande détermination, son regard devint glacial alors qu'il ordonnait: « Exploser! »
 
@@ -70,21 +70,21 @@ Son corps émettait désormais une lumière verte pareille à un arc-en-ciel, qu
 
 L'impact violent de l'explosion des cent millions d'âmes fit trembler violemment la lumière verte et Qian Feng, resté à l'intérieur, cracha une bouchée de sang.
 
-Wang Lin soupira intérieurement tout en agitant la main pour rappeler les douze âmes primaires. La formation Suzaku ayant disparu, il pénétra calmement sur le continent et se tint aux côtés de Du Tian.
+Wang Lin soupira intérieurement tout en agitant la main pour rappeler les douze âmes primaires. La formation Suzaku ayant disparu, il pénétra calmement sur le continent et se tint aux côtés de Dun Tian.
 
-Une fois les douze âmes primaires revenues, le sous-étendard des âmes d'un milliard de Wang Lin se mua en un filet de gaz noir qui quitta son âme originelle pour retourner vers Du Tian, réintégrant ainsi le véritable étendard des âmes d'un milliard.
+Une fois les douze âmes primaires revenues, le sous-étendard des âmes d'un milliard de Wang Lin se mua en un filet de gaz noir qui quitta son âme originelle pour retourner vers Dun Tian, réintégrant ainsi le véritable étendard des âmes d'un milliard.
 
 Les deux utilisations du sous-étendard de Wang Lin étaient épuisées.
 
-Le regard de Du Tian devint froid. Il leva la main avant de la baisser. Pour l'instant, il ne pouvait pas tuer Qian Feng car celui-ci était protégé par la formation Suzaku. À moins d'utiliser sa quatrième âme, il n'y avait aucun moyen de briser cette formation qui ne protégeait désormais plus qu'une seule personne.
+Le regard de Dun Tian devint froid. Il leva la main avant de la baisser. Pour l'instant, il ne pouvait pas tuer Qian Feng car celui-ci était protégé par la formation Suzaku. À moins d'utiliser sa quatrième âme, il n'y avait aucun moyen de briser cette formation qui ne protégeait désormais plus qu'une seule personne.
 
 Les yeux de Wang Lin restaient calmes, comme si le combat précédent n'avait jamais eu lieu.
 
-Après trois respirations, le rideau de lumière verte disparut et Qian Feng en sortit, l'expression sombre. Il fixa Wang Lin avec colère et frustration, mais réprima aussitôt ses émotions. Après une profonde inspiration, son visage retrouva sa douceur habituelle. Il dit: « Le frère Ceng a vraiment du talent! J'ai pu constater de quoi vous êtes capable. »
+Après trois respirations, le rideau de lumière verte disparut et Qian Feng en sortit, l'expression sombre. Il fixa Wang Lin avec colère et frustration, mais réprima aussitôt ses émotions. Après une profonde inspiration, son visage retrouva sa douceur habituelle. Il dit: « Le frère Zeng a vraiment du talent! J'ai pu constater de quoi vous êtes capable. »
 
 Wang Lin répondit calmement: « Ce n'est rien! » Son regard s'attarda sur la forêt non loin de là, puis il poussa un soupir et s'envola vers la Secte Lian Hun.
 
-Du Tian esquissa un sourire malicieux en regardant Qian Feng, avant de parcourir distraitement la forêt du regard et de disparaître à son tour vers la Secte.
+Dun Tian esquissa un sourire malicieux en regardant Qian Feng, avant de parcourir distraitement la forêt du regard et de disparaître à son tour vers la Secte.
 
 La colère revint dans les yeux de Qian Feng. Il serra les poings, fixant l'endroit où Wang Lin avait disparu, et cria: « Hongdie, sors! »
 
@@ -98,34 +98,34 @@ Il retira sa main et observa la plaie sur son doigt, d'où continuait de suinter
 
 « Lèche-la pour la nettoyer! » Qian Feng tendit son doigt vers Hongdie. Celle-ci ouvrit sa petite bouche, prit le doigt de Qian Feng et le lécha doucement de sa langue...
 
-Qian Feng ne daigna même pas regarder Hongdie; il continuait de fixer l'endroit où Wang Lin avait disparu en marmonnant: « Wang Lin, tu oses me blesser? Tu es mort! Le Maître est vieux et confus; sinon, pourquoi aurait-il envoyé ma jeune sœur apprentie pour s'emparer de ton cœur de Dao? Ton domaine m'appartient, et celui de la petite sœur m'appartient aussi. Même le domaine du Maître, si je trouve un moyen, je le dévorerai également... »
+Qian Feng ne daigna même pas regarder Hongdie; il continuait de fixer l'endroit où Wang Lin avait disparu en marmonnant: « Wang Lin, tu oses me blesser? Tu es mort! Le Maître est vieux et confus; sinon, pourquoi aurait-il envoyé ma Junior sœur pour s'emparer de ton cœur de Dao? Ton domaine m'appartient, et celui de la Junior sœur m'appartient aussi. Même le domaine du Maître, si je trouve un moyen, je le dévorerai également... »
 
-« L'étendard d'âme de ce Ceng Niu est trop puissant. Ce vieux Du Tian a perdu la tête aussi, mais au lieu de le donner au pays de Suzaku, il le donne à Ceng Niu! Cependant, l'étendard a déjà attiré l'attention du Maître, et il est déterminé à s'en saisir. Je veux voir combien de temps tu pourras encore tenir! »
+« L'étendard d'âme de ce Zeng Niu est trop puissant. Ce vieux Dun Tian a perdu la tête aussi, mais au lieu de le donner au pays de Suzaku, il le donne à Zeng Niu! Cependant, l'étendard a déjà attiré l'attention du Maître, et il est déterminé à s'en saisir. Je veux voir combien de temps tu pourras encore tenir! »
 
-Wang Lin et Du Tian regagnèrent rapidement la Secte Lian Hun.
+Wang Lin et Dun Tian regagnèrent rapidement la Secte Lian Hun.
 
-La Secte était restée telle qu'ils l'avaient laissée. À leur retour, Du Tian ne prit même pas de repos avant d'emmener Wang Lin directement vers la montagne arrière.
+La Secte était restée telle qu'ils l'avaient laissée. À leur retour, Dun Tian ne prit même pas de repos avant d'emmener Wang Lin directement vers la montagne arrière.
 
-Une fois à l'intérieur, Du Tian tendit un sac de rangement à Wang Lin. Il le regarda et dit: « Concentre-toi uniquement sur l'atteinte du stade de la Transformation de l'Âme. Avec moi pour te protéger, tant que je serai en vie, personne ne t'importunera! »
+Une fois à l'intérieur, Dun Tian tendit un sac de rangement à Wang Lin. Il le regarda et dit: « Concentre-toi uniquement sur l'atteinte du stade de la Transformation de l'Âme. Avec moi pour te protéger, tant que je serai en vie, personne ne t'importunera! »
 
-Wang Lin fixa Du Tian. Après un moment, il murmura: « Merci. »
+Wang Lin fixa Dun Tian. Après un moment, il murmura: « Merci. »
 
-Du Tian rit et fit un geste de la main. « Pas besoin de me remercier, souviens-toi simplement de ce que tu m'as promis. »
+Dun Tian rit et fit un geste de la main. « Pas besoin de me remercier, souviens-toi simplement de ce que tu m'as promis. »
 
-Wang Lin prit une grande inspiration et dit avec sérieux: « Aîné, soyez rassuré! »
+Wang Lin prit une grande inspiration et dit avec sérieux: « Senior, soyez rassuré! »
 
-Du Tian hocha la tête et disparut de la grotte. Lorsqu'il réapparut, il se trouvait à l'extérieur. Il s'assit, déployant son sens divin pour commencer à monter la garde autour de Wang Lin.
+Dun Tian hocha la tête et disparut de la grotte. Lorsqu'il réapparut, il se trouvait à l'extérieur. Il s'assit, déployant son sens divin pour commencer à monter la garde autour de Wang Lin.
 
 L'étendard des âmes d'un milliard flottait silencieusement devant lui.
 
-« Ce Ceng Niu a vraiment du cran. Faire exploser les fragments d'âmes... Heureusement qu'il n'utilisait que le sous-étendard, ainsi tous les fragments d'âmes n'étaient que des illusions créées par l'étendard principal. Bien que cent millions de fragments aient explosé, ils n'ont pas été détruits, ils sont seulement affaiblis. J'aurais eu le cœur brisé s'ils avaient été réels. »
+« Ce Zeng Niu a vraiment du cran. Faire exploser les fragments d'âmes... Heureusement qu'il n'utilisait que le sous-étendard, ainsi tous les fragments d'âmes n'étaient que des illusions créées par l'étendard principal. Bien que cent millions de fragments aient explosé, ils n'ont pas été détruits, ils sont seulement affaiblis. J'aurais eu le cœur brisé s'ils avaient été réels. »
 
-Du Tian regarda l'étendard et songea au passé. Il ne semblait pas contempler un trésor, mais plutôt ses aînés.
+Dun Tian regarda l'étendard et songea au passé. Il ne semblait pas contempler un trésor, mais plutôt ses aînés.
 
-Une pointe de tristesse apparut dans ses yeux alors qu'il murmurait: « Ancêtres de la Secte Lian Hun, votre junior Du Tian, dont la durée de vie touche à sa fin, est sur le point de vous rejoindre. »
+Une pointe de tristesse apparut dans ses yeux alors qu'il murmurait: « Ancêtres de la Secte Lian Hun, votre junior Dun Tian, dont la durée de vie touche à sa fin, est sur le point de vous rejoindre. »
 
 Il désigna l'étendard et une âme primaire s'en échappa. Cette âme affichait une expression douce et dégageait une aura céleste.
 
-Du Tian fixa l'âme. Il soupira et murmura pour lui-même: « Grand frère apprenti, je ne sais pas si j'ai raison ou tort d'avoir confié l'étendard à Ceng Niu. Cependant, avec la guerre entre le Clan Xian Yi et le pays de Suzaku, notre Secte Lian Hun sera difficile à sauver. Mais ce Ceng Niu quittera la planète, il pourra ainsi aider ma Secte à renaître ailleurs. C'est peut-être là le véritable sens de votre prédiction... »
+Dun Tian fixa l'âme. Il soupira et murmura pour lui-même: « Senior frère, je ne sais pas si j'ai raison ou tort d'avoir confié l'étendard à Zeng Niu. Cependant, avec la guerre entre le Clan Xian Yi et le pays de Suzaku, notre Secte Lian Hun sera difficile à sauver. Mais ce Zeng Niu quittera la planète, il pourra ainsi aider ma Secte à renaître ailleurs. C'est peut-être là le véritable sens de votre prédiction... »
 
-Du Tian regarda l'âme primaire si paisible et murmura: « J'ai vécu ma vie non pas en espérant l'éternité, mais en espérant mourir en paix. Tous les anciens de ma Secte ont volontairement renoncé au cycle de la réincarnation et ont effacé leur conscience pour devenir des âmes primaires. Moi, Du Tian, je ne ferai pas exception! Grand frère apprenti, attends-moi! Je te rejoindrai bientôt! »
+Dun Tian regarda l'âme primaire si paisible et murmura: « J'ai vécu ma vie non pas en espérant l'éternité, mais en espérant mourir en paix. Tous les anciens de ma Secte ont volontairement renoncé au cycle de la réincarnation et ont effacé leur conscience pour devenir des âmes primaires. Moi, Dun Tian, je ne ferai pas exception! Senior frère, attends-moi! Je te rejoindrai bientôt! »

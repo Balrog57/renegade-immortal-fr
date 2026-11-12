@@ -70,7 +70,7 @@ Il n'avait plus du tout envie de faire le fier. Après avoir laissé quelques in
 
 À ses yeux, un cultivateur au stade de la Formation de l'Âme capable de sortir ainsi du champ de bataille étranger devait être quelqu'un de très célèbre.
 
-Lorsque Wang Lin réapparut, il se trouvait au sommet d'une montagne nommée Brise-Ciel. Selon les cartes, c'était le plus haut sommet de ce pays.
+Lorsque Wang Lin réapparut, il se trouvait au sommet d'une montagne nommée Po Tian. Selon les cartes, c'était le plus haut sommet de ce pays.
 
 Au sommet, Wang Lin commença à méditer. Après des années d'utilisation, il ne lui restait plus beaucoup de pierres spirituelles de haute qualité, lesquelles étaient très rares à Suzaku. Il décida de ne plus s'en servir pour ses déplacements et de les garder comme ultime recours.
 

@@ -58,7 +58,7 @@ Sur ces mots, il toucha le mille-pattes de mille pieds qui, lançant un regard n
 
 Il resta stupéfait, son esprit résonnant encore des paroles de l'Ancien Ouyang. Quant au propriétaire de ce regard captivant, après l'avoir observé un instant, il ne lui accorda plus aucune attention.
 
-Une fois la Secte Xuan Dao partie, le silence retomba sur le Pic des Pins. Le regard de Huang Long balaya la zone. Un sourire aux lèvres, il déclara: « Aujourd'hui, l'échange est remporté par ma Secte Heng Yue! Tous les disciples intérieurs seront récompensés! Rendez-vous à la maison des pilules pour recevoir une fiole de pilules de rassemblement de Qi. Et vous tous, cultivez-vous avec ardeur et prenez exemple sur Wang Lin! »
+Une fois la Secte Xuan Dao partie, le silence retomba sur le Pic Cang Song. Le regard de Huang Long balaya la zone. Un sourire aux lèvres, il déclara: « Aujourd'hui, l'échange est remporté par ma Secte Heng Yue! Tous les disciples intérieurs seront récompensés! Rendez-vous à la maison des pilules pour recevoir une fiole de pilules de rassemblement de Qi. Et vous tous, cultivez-vous avec ardeur et prenez exemple sur Wang Lin! »
 
 Les disciples intérieurs, un à un, se réjouirent et fixèrent Wang Lin. Désormais, plus personne n'osait le traiter de déchet.
 
@@ -70,4 +70,4 @@ Wang Zhuo esquissa un sourire amer mais garda le silence.
 
 Huang Long reprit la parole: « Vous pouvez tous partir. Wang Lin, viens avec moi. »
 
-Wang Lin acquiesça. Son regard parcourut la foule et se posa sur son troisième frère aîné, Lu Yunjie. Il dit: « Troisième frère aîné, attends un instant! »
+Wang Lin acquiesça. Son regard parcourut la foule et se posa sur son troisième Senior frère, Lu Yunjie. Il dit: « Troisième Senior frère, attends un instant! »

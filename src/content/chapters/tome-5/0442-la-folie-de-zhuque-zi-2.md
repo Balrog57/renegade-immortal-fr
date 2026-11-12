@@ -21,9 +21,9 @@ Le premier ancêtre fixa Zhu Quezi et prononça, mot pour mot: « Sceau de Suzak
 
 La mort du cinquième ancêtre ne semblait pas affecter ces gens; aucun d'eux ne manifesta la moindre colère.
 
-Yun Quezi dit calmement: « Cher frère aîné, il vous en reste encore un! Cependant, après l'avoir utilisé, votre force vitale sera épuisée. Je vous ai accordé trois mois, j'imagine donc que vous avez mûrement réfléchi à tout cela. Soit vous sacrifiez chaque vie sur la planète Suzaku pour anéantir mon Clan Xian Yi, soit vous suivez ma suggestion et nous divisons la planète en deux! J'attends votre réponse! »
+Yun Quezi dit calmement: « Cher Senior frère, il vous en reste encore un! Cependant, après l'avoir utilisé, votre force vitale sera épuisée. Je vous ai accordé trois mois, j'imagine donc que vous avez mûrement réfléchi à tout cela. Soit vous sacrifiez chaque vie sur la planète Suzaku pour anéantir mon Clan Xian Yi, soit vous suivez ma suggestion et nous divisons la planète en deux! J'attends votre réponse! »
 
-Une lueur de folie apparut dans les yeux de Zhu Quezi et il éclata de rire. « Mon cher frère cadet, si vous me connaissez bien, que pensez-vous que je vais choisir? Et si nous jouions à un jeu? Si vous gagnez, je vous cède cette planète, mais si vous perdez, votre Clan Xian Yi mourra avec tous les cultivateurs de ce monde! »
+Une lueur de folie apparut dans les yeux de Zhu Quezi et il éclata de rire. « Mon cher Junior frère, si vous me connaissez bien, que pensez-vous que je vais choisir? Et si nous jouions à un jeu? Si vous gagnez, je vous cède cette planète, mais si vous perdez, votre Clan Xian Yi mourra avec tous les cultivateurs de ce monde! »
 
 Les yeux d'Yun Quezi restèrent sereins lorsqu'il répondit: « Oh? Expliquez-moi cela. »
 

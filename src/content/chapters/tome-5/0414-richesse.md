@@ -60,7 +60,7 @@ Cependant, une pensée persistait dans l'esprit de Wang Lin: la Secte Heng Yue. 
 
 Il déploya son Sens Divin et toutes les montagnes et grottes environnantes apparurent dans son esprit. D'un simple mouvement, son corps disparut.
 
-Suivant ses souvenirs, la silhouette de Wang Lin apparut devant une montagne nommée le Mont Serpent-Éléphant.
+Suivant ses souvenirs, la silhouette de Wang Lin apparut devant une montagne nommée le Mont Xiang She.
 
 Wang Lin observa les environs avec une expression complexe. Une formation protégeait les lieux. Au lieu de la briser, il la traversa pour pénétrer dans la montagne.
 

@@ -30,7 +30,7 @@ Le front de Wang Lin était couvert de sueur froide alors qu'il regardait sur le
 
 Il scruta attentivement les environs. À cet instant, le danger dans ce fragment pouvait rivaliser avec celui des terres de l'Ancien Dieu.
 
-La manière dont cette faille spatiale était apparue était tout simplement trop sinistre. Wang Lin n'avait même pas été capable de la détecter à l'avance. Après une courte réflexion, il reprit sa descente lente. Il lui fallut le temps d'un bâtonnet d'encens pour se poser à une trentaine de mètres du sol.
+La manière dont cette faille spatiale était apparue était tout simplement trop sinistre. Wang Lin n'avait même pas été capable de la détecter à l'avance. Après une courte réflexion, il reprit sa descente lente. Il lui fallut le temps d'un bâton d'encens pour se poser à une trentaine de mètres du sol.
 
 Cette altitude constituait un niveau relativement sûr. Peu de failles spatiales apparaissaient à cette hauteur et la chaleur de la lave n'était pas trop intense. Mais la prudence de Wang Lin ne diminua d'un iota tandis qu'il progressait lentement. Il voulait comprendre pourquoi la Secte Da Luo avait placé une matrice de transfert ici.
 
@@ -46,7 +46,7 @@ Ses yeux s'illuminèrent et, juste au moment où il s'apprêtait à entrer, une 
 
 Une expression de joie apparut sur le visage de Wang Lin. Il hésitait justement à entrer, mais si quelqu'un d'autre acceptait de s'y risquer avant lui, ce serait bien plus sûr. Son corps disparut aussitôt sur place.
 
-À cet instant, deux silhouettes apparurent dans la matrice de transfert, chacune portant une épée dans le dos. Une fois descendus, l'un d'eux déclara immédiatement: « Sixième frère cadet, c'est ta première fois ici, alors fais bien attention aux failles spatiales. N'oublie pas de maintenir la Tactique de Recherche Complète activée en permanence! »
+À cet instant, deux silhouettes apparurent dans la matrice de transfert, chacune portant une épée dans le dos. Une fois descendus, l'un d'eux déclara immédiatement: « Sixième Junior frère, c'est ta première fois ici, alors fais bien attention aux failles spatiales. N'oublie pas de maintenir la Tactique de Recherche Complète activée en permanence! »
 
 L'homme à ses côtés hocha rapidement la tête, puis tous deux volèrent prudemment vers le gouffre.
 
@@ -54,17 +54,17 @@ En chemin, de nombreuses failles spatiales apparurent près d'eux, mais les deux
 
 Le niveau de culture des deux était celui du début de la Formation de l'Âme; ils n'étaient donc pas en mesure de détecter Wang Lin, dont le sens divin avait déjà atteint le stade avancé de la Formation de l'Âme.
 
-Le sixième frère cadet regarda le gouffre et demanda: « Troisième frère aîné, est-ce bien le Temple Xian Shou? »
+Le sixième Junior frère regarda le gouffre et demanda: « Troisième Senior frère, est-ce bien le Temple Xian Shou? »
 
-« C'est exact. Cet endroit est l'un des seize Temples des Bêtes Célestes. L'Ancêtre a découvert ce lieu par hasard après de nombreux voyages dans le Royaume Céleste, mais cet endroit devrait être connu de beaucoup. La dernière fois que je suis venu, trois groupes de personnes cherchaient déjà des âmes de bêtes célestes », répondit le troisième frère aîné, avant de sembler se souvenir de quelque chose: « N'oublie pas que tu ne peux pas utiliser de techniques de déplacement instantané à l'intérieur, alors sois prudent. »
+« C'est exact. Cet endroit est l'un des seize Temples des Bêtes Célestes. L'Ancêtre a découvert ce lieu par hasard après de nombreux voyages dans le Royaume Céleste, mais cet endroit devrait être connu de beaucoup. La dernière fois que je suis venu, trois groupes de personnes cherchaient déjà des âmes de bêtes célestes », répondit le troisième Senior frère, avant de sembler se souvenir de quelque chose: « N'oublie pas que tu ne peux pas utiliser de techniques de déplacement instantané à l'intérieur, alors sois prudent. »
 
 Tandis qu'ils discutaient, leurs corps s'enfoncèrent et pénétrèrent dans le gouffre.
 
 L'ombre de Wang Lin apparut à l'extérieur, puis son corps disparut tandis qu'il pénétrait silencieusement dans la cavité. Il déploya son sens divin pour inspecter attentivement les environs tout en gardant une trace des deux individus devant lui.
 
-« Troisième frère aîné, après tant d'années, restera-t-il seulement des âmes de bêtes célestes? Et même s'il en reste, il sera difficile de les obtenir à nous deux seuls. »
+« Troisième Senior frère, après tant d'années, restera-t-il seulement des âmes de bêtes célestes? Et même s'il en reste, il sera difficile de les obtenir à nous deux seuls. »
 
-« Sixième frère cadet, tu ne comprends pas. S'il reste des âmes de bêtes célestes, elles seront très faibles faute d'énergie spirituelle céleste pour se nourrir. Si nous en trouvons une et que nous la ramenons à la secte pour l'élever, nous aurons accompli un grand exploit. Autrefois, l'Ancêtre avait trouvé une âme de bête céleste Qi Lin ici, ce qui lui permit d'unifier la planète Tian Dun et de rendre la Secte Da Luo célèbre. »
+« Sixième Junior frère, tu ne comprends pas. S'il reste des âmes de bêtes célestes, elles seront très faibles faute d'énergie spirituelle céleste pour se nourrir. Si nous en trouvons une et que nous la ramenons à la secte pour l'élever, nous aurons accompli un grand exploit. Autrefois, l'Ancêtre avait trouvé une âme de bête céleste Qi Lin ici, ce qui lui permit d'unifier la planète Tian Dun et de rendre la Secte Da Luo célèbre. »
 
 Wang Lin fut intrigué en les écoutant. Bien qu'il ignorât ce qu'était précisément le Temple Xian Shou, à en juger par son nom et les propos de ces deux hommes, il avait ses propres conjectures.
 
@@ -78,30 +78,30 @@ Il réfléchit un instant avant de voler vers l'une des ouvertures, précisémen
 
 En plein vol, il s'arrêta soudainement lorsqu'il perçut, grâce à son sens divin, que ses deux cibles s'étaient immobilisées à environ trois cents mètres devant lui. Devant eux se dressait une statue de pierre haute de plusieurs dizaines de pieds. Cette statue représentait une immense créature aviaire.
 
-« Autrefois, l'Ancêtre a trouvé la bête céleste Qi Lin ici. Jeune frère cadet, protège-moi pendant que je rassemble l'énergie spirituelle céleste des environs. »
+« Autrefois, l'Ancêtre a trouvé la bête céleste Qi Lin ici. Junior frère, protège-moi pendant que je rassemble l'énergie spirituelle céleste des environs. »
 
-En entendant cela, le sixième frère cadet toucha vivement l'épée dans son dos; celle-ci jaillit et flotta au-dessus de lui. Il observa attentivement les alentours, prêt à remarquer le moindre signe suspect.
+En entendant cela, le sixième Junior frère toucha vivement l'épée dans son dos; celle-ci jaillit et flotta au-dessus de lui. Il observa attentivement les alentours, prêt à remarquer le moindre signe suspect.
 
-Le troisième frère aîné regarda son cadet avec un air satisfait et prit une profonde inspiration. Après avoir utilisé une technique inconnue, les veines de ses mains saillirent alors qu'il poussait la statue de pierre. Après une série de grondements, la statue glissa lentement sur le côté. L'homme, le visage blême, recula de quelques pas, changea de sceaux de la main et fit lever un vent puissant qui s'abattit sur la statue.
+Le troisième Senior frère regarda son cadet avec un air satisfait et prit une profonde inspiration. Après avoir utilisé une technique inconnue, les veines de ses mains saillirent alors qu'il poussait la statue de pierre. Après une série de grondements, la statue glissa lentement sur le côté. L'homme, le visage blême, recula de quelques pas, changea de sceaux de la main et fit lever un vent puissant qui s'abattit sur la statue.
 
 La pierre bougea à nouveau, révélant un trou de la taille d'un poing dans le sol. Des filaments d'énergie spirituelle céleste s'en échappèrent.
 
 L'homme frappa rapidement sa sacoche de rangement et en sortit une petite calebasse verte. L'énergie spirituelle fut aussitôt absorbée par l'objet.
 
-« Sixième frère cadet, la récolte est excellente cette fois-ci. Il y a assez d'énergie pour condenser deux cristaux, un pour chacun de nous, ce qui suffit pour satisfaire le minimum requis par la secte. » Le troisième frère aîné laissa échapper un rire tout en repoussant lentement la statue à sa place.
+« Sixième Junior frère, la récolte est excellente cette fois-ci. Il y a assez d'énergie pour condenser deux cristaux, un pour chacun de nous, ce qui suffit pour satisfaire le minimum requis par la secte. » Le troisième Senior frère laissa échapper un rire tout en repoussant lentement la statue à sa place.
 
-Le sixième frère cadet hocha la tête, observa la calebasse et demanda: « Est-ce donc la Calebasse de Purification de l'Âme? »
+Le sixième Junior frère hocha la tête, observa la calebasse et demanda: « Est-ce donc la Calebasse de Purification de l'Âme? »
 
-Le troisième frère aîné sortit une pilule et l'avala. Il agita la calebasse d'un geste fier: « C'est exact. C'est l'une des trois Calebasses de Purification de l'Âme personnellement raffinées par l'Ancêtre. Grâce à elle, on peut absorber l'énergie spirituelle céleste à la vitesse maximale sans perdre de temps à la raffiner. »
+Le troisième Senior frère sortit une pilule et l'avala. Il agita la calebasse d'un geste fier: « C'est exact. C'est l'une des trois Calebasses de Purification de l'Âme personnellement raffinées par l'Ancêtre. Grâce à elle, on peut absorber l'énergie spirituelle céleste à la vitesse maximale sans perdre de temps à la raffiner. »
 
 Wang Lin observa la scène via son sens divin et son attention se porta instantanément sur la calebasse. C'était un trésor inestimable. S'il en possédait une, cela réduirait considérablement le temps nécessaire pour raffiner l'énergie spirituelle céleste et lui permettrait d'en accumuler davantage.
 
 Il esquissa un sourire glacial. À en juger par leur allure, ces deux-là appartenaient à la Secte Da Luo. Puisqu'il avait déjà offensé la secte, autant trouver un moyen de lui dérober ce trésor.
 
-Les deux étaient des cultivateurs au stade initial de la Formation de l'Âme, bien que le sixième frère cadet vienne tout juste d'atteindre ce stade et que sa culture ne fût pas encore stable. Cependant, ils devaient avoir des ressources pour se défendre; Wang Lin n'agit pas avec imprudence et attendit le moment opportun.
+Les deux étaient des cultivateurs au stade initial de la Formation de l'Âme, bien que le sixième Junior frère vienne tout juste d'atteindre ce stade et que sa culture ne fût pas encore stable. Cependant, ils devaient avoir des ressources pour se défendre; Wang Lin n'agit pas avec imprudence et attendit le moment opportun.
 
 Les deux hommes discutèrent encore un peu avant de s'envoler vers une entrée de grotte.
 
-Le lieu était un véritable labyrinthe. Si Wang Lin n'avait pas maintenu son sens divin verrouillé sur eux, il les aurait perdus. Après avoir progressé longtemps, le troisième frère aîné s'arrêta brusquement, fixant l'obscurité avec une expression étrange.
+Le lieu était un véritable labyrinthe. Si Wang Lin n'avait pas maintenu son sens divin verrouillé sur eux, il les aurait perdus. Après avoir progressé longtemps, le troisième Senior frère s'arrêta brusquement, fixant l'obscurité avec une expression étrange.
 
 Au loin, à l'endroit que fixait l'homme, un squelette était appuyé contre la paroi. Dans sa main, une sphère de lumière émettait de douces ondulations lumineuses.

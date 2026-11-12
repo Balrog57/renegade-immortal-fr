@@ -14,17 +14,17 @@ Ses yeux brillaient d'un rouge intense et fixaient le Seigneur Démon des Six D�
 
 En entendant ces deux mots, le cœur du Seigneur Démon des Six Désirs fut ébranlé; il n'en croyait pas ses yeux. Il avait déjà été stupéfait en voyant que ce visage était identique à celui de son maître, et cet individu l'appelait désormais par un surnom que seuls quelques rares initiés connaissaient. Hormis son maître, le Magicien Démon Céleste, qui d'autre pouvait être?
 
-Le Seigneur Démon des Six Désirs prit une profonde inspiration. Le visage empreint d'incertitude, il fixa l'homme devant lui et demanda: « Toi... toi, es-tu un humain ou un démon? Pourquoi as-tu été transformé en démon comme le Bossu Meng? Et aussi, il y a mille ans, est-ce que tu... »
+Le Seigneur Démon des Six Désirs prit une profonde inspiration. Le visage empreint d'incertitude, il fixa l'homme devant lui et demanda: « Toi... toi, es-tu un humain ou un démon? Pourquoi as-tu été transformé en démon comme Meng Tuozi? Et aussi, il y a mille ans, est-ce que tu... »
 
 Le Magicien Démon Céleste ferma les yeux, mais les rouvrit aussitôt: « Ce que tu voulais dire, c'est que j'aurais dû mourir il y a mille ans, et tu veux savoir comment je suis ressuscité, n'est-ce pas? »
 
-Le Seigneur Démon des Six Désirs était secrètement terrifié. Entre l'apparition du Bossu Meng et la résurrection de son maître défunt, il sentait que cet endroit était d'une étrangeté absolue. Une sensation d'horreur l'envahissait, car il savait qu'un immense secret se cachait ici.
+Le Seigneur Démon des Six Désirs était secrètement terrifié. Entre l'apparition de Meng Tuozi et la résurrection de son maître défunt, il sentait que cet endroit était d'une étrangeté absolue. Une sensation d'horreur l'envahissait, car il savait qu'un immense secret se cachait ici.
 
 Il commençait même à douter: la Terre Gu Shen n'était peut-être pas ce qu'il avait imaginé, un lieu où, dès qu'on entrait dans le corps du Dieu Ancien, des artefacts magiques, des pilules et autres trésors sans fin attendaient qu'on vienne les prendre. Ce doute avait germé il y a mille ans, lorsque son maître avait reçu l'héritage de la Terre Gu Shen et était devenu une personne totalement différente.
 
 Ce point l'avait intrigué durant toutes ces années, mais désormais, comme un éclair de lucidité, une spéculation audacieuse traversa son esprit.
 
-« Je ne suis pas possédé! » déclara le Magicien Démon Céleste, tout en tournant lentement son regard vers la direction prise par le Bossu Meng.
+« Je ne suis pas possédé! » déclara le Magicien Démon Céleste, tout en tournant lentement son regard vers la direction prise par Meng Tuozi.
 
 Le Seigneur Démon des Six Désirs fut surpris intérieurement, mais garda un visage impassible tandis qu'il fixait son maître et reculait lentement.
 
@@ -56,49 +56,49 @@ Le Seigneur Démon des Six Désirs avait toujours été un homme décisif. Dès 
 
 Son corps bougeait si vite qu'il n'était plus qu'un sillage flou. Il se rapprochait inexorablement de la sortie. Quant au sort du Seigneur Démon des Six Désirs, Wang Lin n'avait pas le temps de s'en soucier; ils se connaissaient à peine. Dans cette fuite pour sauver sa vie, tout surcroît de chances de réussite comptait plus que n'importe quoi.
 
-Cependant, il fut déçu de constater qu'à travers les âmes errantes, il avait pu voir l'instant où le Seigneur Démon des Six Désirs avait rencontré son maître, et que le Bossu Meng n'avait fait qu'une brève pause avant de reprendre sa poursuite.
+Cependant, il fut déçu de constater qu'à travers les âmes errantes, il avait pu voir l'instant où le Seigneur Démon des Six Désirs avait rencontré son maître, et que Meng Tuozi n'avait fait qu'une brève pause avant de reprendre sa poursuite.
 
 Wang Lin prit une profonde inspiration et but une autre gorgée d'énergie spirituelle liquide. D'un geste de la main droite, il fit apparaître une flamme bleue glaciale. Il frappa son sac de stockage et l'épée noire empoisonnée en sortit, dégageant une pression glaciale.
 
-Le corps de Wang Lin vacilla un instant alors qu'il projetait en arrière la flamme bleue et l'épée noire, avant de poursuivre sa charge. La flamme et l'épée se séparèrent pour fondre sur le Bossu Meng depuis deux directions distinctes.
+Le corps de Wang Lin vacilla un instant alors qu'il projetait en arrière la flamme bleue et l'épée noire, avant de poursuivre sa charge. La flamme et l'épée se séparèrent pour fondre sur Meng Tuozi depuis deux directions distinctes.
 
-En poursuivant sa traque, le Bossu Meng conclut secrètement que c'était là l'individu qui dégageait cette odeur répugnante qu'il ne supportait pas. Confus et agité par l'impulsion, il brûlait de rattraper et de déchirer cet homme pour apaiser sa rage.
+En poursuivant sa traque, Meng Tuozi conclut secrètement que c'était là l'individu qui dégageait cette odeur répugnante qu'il ne supportait pas. Confus et agité par l'impulsion, il brûlait de rattraper et de déchirer cet homme pour apaiser sa rage.
 
-Pourtant, au fond de lui, le Bossu Meng éprouvait une certaine admiration pour cette personne. Il pouvait sentir qu'elle n'était qu'au stade intermédiaire de la Formation du Noyau et qu'elle était extrêmement rusée. S'il s'engageait dans la poursuite, elle s'échapperait aussitôt avec toute la célérité possible.
+Pourtant, au fond de lui, Meng Tuozi éprouvait une certaine admiration pour cette personne. Il pouvait sentir qu'elle n'était qu'au stade intermédiaire de la Formation du Noyau et qu'elle était extrêmement rusée. S'il s'engageait dans la poursuite, elle s'échapperait aussitôt avec toute la célérité possible.
 
-Ce qui stupéfia véritablement le Bossu Meng, c'est que toutes les âmes errantes présentes n'affichaient aucune agressivité envers cet homme. Bien qu'il chargeât sans ménagement à travers le troisième essai, elles ne l'attaquaient pas.
+Ce qui stupéfia véritablement Meng Tuozi, c'est que toutes les âmes errantes présentes n'affichaient aucune agressivité envers cet homme. Bien qu'il chargeât sans ménagement à travers le troisième essai, elles ne l'attaquaient pas.
 
-Cela lui causait une sensation étrange. La seule raison pour laquelle il n'était pas attaqué était que son maître lui avait offert un trésor magique qui gardait encore une trace de l'aura d'un dévoreur d'âmes. Mais comment l'autre pouvait-il faire de même? Perplexe, le Bossu Meng prit une profonde inspiration et s'élança en avant.
+Cela lui causait une sensation étrange. La seule raison pour laquelle il n'était pas attaqué était que son maître lui avait offert un trésor magique qui gardait encore une trace de l'aura d'un dévoreur d'âmes. Mais comment l'autre pouvait-il faire de même? Perplexe, Meng Tuozi prit une profonde inspiration et s'élança en avant.
 
 Cependant, peu après avoir entamé sa course, il sentit immédiatement la flamme bleue fondre sur lui. Il ricana et accéléra encore davantage. Il ne prit même pas la peine d'esquiver et percuta de plein fouet le brasier. La flamme bleue vacilla quelques instants avant d'exploser en une multitude de fleurs de glace qui se dissipèrent.
 
-Le Bossu Meng ricana, prêt à accélérer, quand son visage changea soudainement. Bien que les fleurs de glace se dissipent lentement, il remarqua que sa poitrine, là où il avait percuté la flamme, était devenue bleu sombre, recouverte d'une couche de cristaux de glace. La glace commença rapidement à se propager sur tout son corps.
+Meng Tuozi ricana, prêt à accélérer, quand son visage changea soudainement. Bien que les fleurs de glace se dissipent lentement, il remarqua que sa poitrine, là où il avait percuté la flamme, était devenue bleu sombre, recouverte d'une couche de cristaux de glace. La glace commença rapidement à se propager sur tout son corps.
 
-Le Bossu Meng s'arrêta. Il baissa les yeux et posa sa main droite sur la glace, ce qui la fit craquer et stoppa sa progression. À cet instant précis, il aperçut un éclair au loin. En suivant cette lueur, une épée noire à la forme singulière arriva instantanément près de son épaule. La silhouette de l'épée volante était très étrange: de minuscules épines bleues ornaient la lame courte, signe qu'elle était imprégnée de toxines redoutables.
+Meng Tuozi s'arrêta. Il baissa les yeux et posa sa main droite sur la glace, ce qui la fit craquer et stoppa sa progression. À cet instant précis, il aperçut un éclair au loin. En suivant cette lueur, une épée noire à la forme singulière arriva instantanément près de son épaule. La silhouette de l'épée volante était très étrange: de minuscules épines bleues ornaient la lame courte, signe qu'elle était imprégnée de toxines redoutables.
 
-À la vue de cette épée, le cœur du Bossu Meng fut ébranlé. Il ressentit un profond sentiment de familiarité, comme si cet objet lui était essentiel. Pendant un bref instant, il perdit sa concentration, et l'épée s'enfonça dans son épaule droite. Un tintement retentit lors de l'impact. Bien que la vitesse de l'arme fût prodigieuse, elle ne parvint qu'à peine à percer la peau du Bossu Meng.
+À la vue de cette épée, le cœur de Meng Tuozi fut ébranlé. Il ressentit un profond sentiment de familiarité, comme si cet objet lui était essentiel. Pendant un bref instant, il perdit sa concentration, et l'épée s'enfonça dans son épaule droite. Un tintement retentit lors de l'impact. Bien que la vitesse de l'arme fût prodigieuse, elle ne parvint qu'à peine à percer la peau de Meng Tuozi.
 
-Mais malgré cette pénétration superficielle, la toxine commença déjà à envahir son corps. Le Bossu Meng ne se soucia guère du poison et saisit l'épée; il avait le sentiment viscéral que cette arme lui appartenait autrefois. Avec son niveau de culture, attraper une épée volante était un jeu d'enfant. Alors qu'il tendait la main, des couches de Qi enveloppèrent l'arme, formant un tourbillon qui l'empêchait de s'échapper.
+Mais malgré cette pénétration superficielle, la toxine commença déjà à envahir son corps. Meng Tuozi ne se soucia guère du poison et saisit l'épée; il avait le sentiment viscéral que cette arme lui appartenait autrefois. Avec son niveau de culture, attraper une épée volante était un jeu d'enfant. Alors qu'il tendait la main, des couches de Qi enveloppèrent l'arme, formant un tourbillon qui l'empêchait de s'échapper.
 
 Wang Lin était presque à la sortie quand son visage se décomposa. Il perçut le danger auquel l'épée volante faisait face. Sans s'arrêter, ses mains s'activèrent rapidement pour former des signes, jusqu'à ce qu'il crache une bouffée de Qi du noyau doré. Au même moment, l'épée piégée dans le tourbillon de Qi en ressentit l'effet, et la toxine bleue sur sa lame s'intensifia.
 
-Alors que le Bossu Meng tentait de saisir l'arme, le tourbillon se relâcha brusquement. Dans un bruit sec, huit épines se détachèrent de l'épée et furent projetées vers lui à une vitesse extrême. Si l'on avait analysé la toxine sur l'épée, on aurait constaté qu'elle était inférieure à celle des épines. Lors de la fabrication de cette arme, Wang Lin avait porté une attention particulière aux 99 épines. Presque toute la toxicité était concentrée dans ces dernières; par conséquent, la dose contenue dans les huit épines projetées était phénoménale.
+Alors que Meng Tuozi tentait de saisir l'arme, le tourbillon se relâcha brusquement. Dans un bruit sec, huit épines se détachèrent de l'épée et furent projetées vers lui à une vitesse extrême. Si l'on avait analysé la toxine sur l'épée, on aurait constaté qu'elle était inférieure à celle des épines. Lors de la fabrication de cette arme, Wang Lin avait porté une attention particulière aux 99 épines. Presque toute la toxicité était concentrée dans ces dernières; par conséquent, la dose contenue dans les huit épines projetées était phénoménale.
 
-Contre n'importe qui d'autre, l'attaque aurait été fatale. Mais le Bossu Meng était un cultivateur de poison. La toxine principale des épines était le poison du Chaudron du Roi Poison. Ce chaudron ayant été autrefois son trésor de vie, le poison ne put lui nuire. Lorsqu'il avait été percé par l'épée plus tôt, il n'avait fallu qu'un instant pour qu'il absorbe la substance.
+Contre n'importe qui d'autre, l'attaque aurait été fatale. Mais Meng Tuozi était un cultivateur de poison. La toxine principale des épines était le poison du Chaudron du Roi Poison. Ce chaudron ayant été autrefois son trésor de vie, le poison ne put lui nuire. Lorsqu'il avait été percé par l'épée plus tôt, il n'avait fallu qu'un instant pour qu'il absorbe la substance.
 
-Cependant, même si le poison était inoffensif, la force de percussion des huit épines était comparable à celle de huit épées volantes. N'importe qui d'autre aurait vu sa paume transpercée, mais le corps démoniaque du Bossu Meng avait atteint une dureté inimaginable. Lorsque les épines frappèrent sa main, elles se brisèrent en deux sous l'impact.
+Cependant, même si le poison était inoffensif, la force de percussion des huit épines était comparable à celle de huit épées volantes. N'importe qui d'autre aurait vu sa paume transpercée, mais le corps démoniaque de Meng Tuozi avait atteint une dureté inimaginable. Lorsque les épines frappèrent sa main, elles se brisèrent en deux sous l'impact.
 
-Bien que brisées, les épines ralentirent la main qui tendait vers l'arme. À ce moment-là, l'épée volante parvint à s'échapper. Le Bossu Meng ne put saisir que le bord de la lame avant qu'elle ne disparaisse de sa main. Mais sa culture était si puissante qu'en la touchant, il réussit à ternir la couleur de l'épée et à y provoquer une fissure. L'arme disparut rapidement sans laisser de trace, s'éloignant à plus de trois cent trente mètres du Bossu Meng.
+Bien que brisées, les épines ralentirent la main qui tendait vers l'arme. À ce moment-là, l'épée volante parvint à s'échapper. Meng Tuozi ne put saisir que le bord de la lame avant qu'elle ne disparaisse de sa main. Mais sa culture était si puissante qu'en la touchant, il réussit à ternir la couleur de l'épée et à y provoquer une fissure. L'arme disparut rapidement sans laisser de trace, s'éloignant à plus de trois cent trente mètres de Meng Tuozi.
 
-Le visage du Bossu Meng s'assombrit. Fixant la direction de l'échappée, il agita la main droite et déchira l'espace. Un Sens Divin extrêmement autoritaire jaillit de la faille, balaya les environs puis enveloppa l'intégralité du Nirvana de la troisième épreuve, tout en contournant soigneusement l'endroit où le dévoreur d'âmes dormait.
+Le visage de Meng Tuozi s'assombrit. Fixant la direction de l'échappée, il agita la main droite et déchira l'espace. Un Sens Divin extrêmement autoritaire jaillit de la faille, balaya les environs puis enveloppa l'intégralité du Nirvana de la troisième épreuve, tout en contournant soigneusement l'endroit où le dévoreur d'âmes dormait.
 
 « Qu'est-ce que c'est? » lança le Sens Divin par un message froid.
-Le Bossu Meng s'agenouilla immédiatement dès l'apparition de cette présence et dit: « Messager, un cultivateur est trop proche de la sortie. Je sollicite votre aide. »
+Meng Tuozi s'agenouilla immédiatement dès l'apparition de cette présence et dit: « Messager, un cultivateur est trop proche de la sortie. Je sollicite votre aide. »
 « Très bien », répondit le Sens Divin.
 
-Entendant cela, le Bossu Meng chargea aussitôt vers Wang Lin. Il était certain qu'avec l'aide du messager, ce gamin au stade intermédiaire de la Formation du Noyau ne pourrait jamais atteindre la sortie.
+Entendant cela, Meng Tuozi chargea aussitôt vers Wang Lin. Il était certain qu'avec l'aide du messager, ce gamin au stade intermédiaire de la Formation du Noyau ne pourrait jamais atteindre la sortie.
 
-Aux yeux du Bossu Meng, parmi les souverains de ce troisième essai, hormis le grand colosse que son maître avait plongé dans le sommeil par un sortilège, seul le messager pouvait lui être comparé.
+Aux yeux de Meng Tuozi, parmi les souverains de ce troisième essai, hormis le grand colosse que son maître avait plongé dans le sommeil par un sortilège, seul le messager pouvait lui être comparé.
 
 Le Sens Divin du messager scanna rapidement le troisième essai et localisa Wang Lin et le Seigneur Démon des Six Désirs. Il concentra d'abord son attention sur ce dernier, qui était enveloppé d'un rayon de lumière rouge sang augmentant considérablement sa vitesse. Cependant, plus il progressait, plus les âmes errantes se multipliaient; la quantité dépassait ce que son trésor pouvait gérer. En conséquence, il fut frappé par de nombreuses âmes en chemin et dut utiliser son énergie spirituelle pour lutter contre celles qui ravageaient son corps.
 

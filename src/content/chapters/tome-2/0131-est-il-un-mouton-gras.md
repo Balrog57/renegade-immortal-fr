@@ -38,7 +38,7 @@ Cet homme était vêtu de noir intégral. Même l'épée volante sous ses pieds 
 
 Wang Lin l'observa et nota que le niveau de culture de cet homme était supérieur à celui de Sun Youcai. Cet individu avait déjà atteint le stade pseudo Formation du Noyau et pouvait rivaliser avec Li Qiqing.
 
-Le visage de Sun Youcai s'illumina soudainement comme une fleur. Sa voix sonnait comme celle d'un courtisan cherchant à plaire: « Senior frère martial, c'est bien lui. J'ai remarqué que cette fille, Li Muwan, et son frère Li Qiqing, ont une bonne impression de lui. Si nous le transformons en marionnette pour les approcher, nous aurons de meilleures chances. »
+Le visage de Sun Youcai s'illumina soudainement comme une fleur. Sa voix sonnait comme celle d'un courtisan cherchant à plaire: « Senior frère, c'est bien lui. J'ai remarqué que cette fille, Li Muwan, et son frère Li Qiqing, ont une bonne impression de lui. Si nous le transformons en marionnette pour les approcher, nous aurons de meilleures chances. »
 
 L'homme vêtu de noir tourna la tête vers Wang Lin. Il fut surpris de voir que ce dernier ne s'enfuyait pas. Wang Lin n'étant qu'un cultivateur de stade intermédiaire de l'Établissement des Fondations, il ne le considérait nullement comme une menace et déclara froidement: « Morveux, tu peux mourir maintenant. » Sur ces mots, l'épée volante sous ses pieds fonça vers la poitrine de Wang Lin.
 
@@ -76,9 +76,9 @@ Au fil des ans, il avait utilisé tous les trésors trouvés et échangés à l'
 
 La Secte Luo He était célèbre pour ses formations et son alchimie. Si une pilule venait de cette secte, sa qualité était infaillible. La cible de Sun Youcai était Li Muwan, de la branche d'alchimie de la secte. Il voulait obtenir des pilules ou des recettes auprès d'elle, mais le niveau de son frère aîné, Li Qiqing, était supérieur au sien, atteignant le stade pseudo Formation du Noyau. Un niveau bien au-dessus du sien, qui venait d'entrer dans le stade avancé de l'Établissement des Fondations sans l'avoir encore stabilisé.
 
-Le Sun Youcai actuel aurait voulu que sa vitesse fût encore plus grande. Son esprit revoyait sans cesse le moment terrifiant qu'il venait de vivre: son quatrième frère martial, un cultivateur pseudo Formation du Noyau, avait été tué si aisément.
+Le Sun Youcai actuel aurait voulu que sa vitesse fût encore plus grande. Son esprit revoyait sans cesse le moment terrifiant qu'il venait de vivre: son quatrième Senior frère, un cultivateur pseudo Formation du Noyau, avait été tué si aisément.
 
-S'il avait utilisé un trésor puissant, il n'aurait pas eu aussi peur, mais il n'avait même pas aperçu l'ombre d'un artefact magique. Il avait seulement entendu Ma Liang prononcer le mot « détruis », et le quatrième frère martial était mort sur-le-champ.
+S'il avait utilisé un trésor puissant, il n'aurait pas eu aussi peur, mais il n'avait même pas aperçu l'ombre d'un artefact magique. Il avait seulement entendu Ma Liang prononcer le mot « détruis », et le quatrième Senior frère était mort sur-le-champ.
 
 Quelle... quelle sorte de technique est-ce là? En y pensant, Sun Youcai sentit son crâne s'engourdir. Plus il ne comprenait pas, plus sa terreur grandissait. Quel niveau de culture fallait-il pour tuer un pseudo Formation du Noyau d'un seul mot? Ma Liang avait-il déjà atteint la Formation du Noyau?
 
@@ -86,10 +86,10 @@ Non! Sun Youcai rejeta aussitôt cette idée car il avait déjà rencontré des 
 
 Le cœur de Sun Youcai trembla. S'agirait-il d'un cultivateur de l'Âme Naissante?
 
-Il rejeta aussi cette hypothèse. Il avait déjà vu un cultivateur de l'Âme Naissante agir, lorsque l'ancêtre de la Secte Démoniaque avait exécuté un traître au stade avancé de l'Établissement des Fondations. Sous les yeux de la plupart des disciples, il n'avait lancé qu'une épée et le traître était mort en fuyant, sans même avoir eu la chance d'esquiver ou de résister.
+Il rejeta aussi cette hypothèse. Il avait déjà vu un cultivateur de l'Âme Naissante agir, lorsque l'ancêtre de la Secte Xie Mo avait exécuté un traître au stade avancé de l'Établissement des Fondations. Sous les yeux de la plupart des disciples, il n'avait lancé qu'une épée et le traître était mort en fuyant, sans même avoir eu la chance d'esquiver ou de résister.
 
 Pourtant, à ses yeux, si l'on comparait Wang Lin tuant un pseudo Formation du Noyau par un simple mot à l'ancêtre de l'Âme Naissante tuant avec une épée volante un cultivateur du stade avancé de l'Établissement des Fondations, la supériorité était évidente. Soudain, son esprit se vida.
 
 « Pourrait-il... pourrait-il être... qu'il soit... à la Formation de l'Âme? » En prononçant ces mots, toute la force quitta le corps de Sun Youcai.
 
-Plus il y réfléchissait, plus cela lui semblait exact. Sun Youcai murmura amèrement: « Un expert de la Formation de l'Âme... c'est un être de légende. Comment est-ce possible... mais s'il n'est pas au stade de la Formation de l'Âme, comment a-t-il pu tuer le quatrième frère martial d'un seul mot... La rumeur dit que les cultivateurs de la Formation de l'Âme peuvent contrôler les lois des cieux; il serait donc logique qu'il puisse achever un pseudo Formation du Noyau par une parole... Je... je suis traqué par un expert de la Formation de l'Âme... »
+Plus il y réfléchissait, plus cela lui semblait exact. Sun Youcai murmura amèrement: « Un expert de la Formation de l'Âme... c'est un être de légende. Comment est-ce possible... mais s'il n'est pas au stade de la Formation de l'Âme, comment a-t-il pu tuer le quatrième Senior frère d'un seul mot... La rumeur dit que les cultivateurs de la Formation de l'Âme peuvent contrôler les lois des cieux; il serait donc logique qu'il puisse achever un pseudo Formation du Noyau par une parole... Je... je suis traqué par un expert de la Formation de l'Âme... »

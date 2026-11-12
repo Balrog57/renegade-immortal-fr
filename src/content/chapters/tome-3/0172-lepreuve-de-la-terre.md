@@ -38,7 +38,7 @@ Le démon afficha une expression amère et déclara fermement: « Qui sait ce qu
 
 Wang Lin frappa son sac de rangement et en sortit plusieurs drapeaux d'âmes. Tous appartenaient autrefois à d'autres personnes. Il en saisit un, ses yeux s'illuminant alors qu'il tendait la main pour capturer l'âme de Sang Muya.
 
-Lorsqu'il avait rencontré Sang Muya — celui qui avait tué son propre frère aîné pour dérober sa fondation —, Wang Lin lui avait posé de nombreuses questions avant de l'exécuter et de sceller son âme dans son propre drapeau d'âmes.
+Lorsqu'il avait rencontré Sang Muya — celui qui avait tué son propre Senior frère pour dérober sa fondation —, Wang Lin lui avait posé de nombreuses questions avant de l'exécuter et de sceller son âme dans son propre drapeau d'âmes.
 
 Une lumière blanche vacilla dans la main de Wang Lin, révélant le visage terrifié de Sang Muya. D'un geste de la main droite, il projeta la lueur blanche vers le démon.
 
@@ -102,7 +102,7 @@ Cette fois, Wang Lin sentit nettement une force s'opposer à son utilisation de 
 
 Arrivé à la deuxième tour, il l'explora sans rien trouver. Il ignorait si l'Empereur Antique et ses compagnons avaient également affronté cette épreuve terrestre. Toutefois, d'après leurs propos et la mention du Bouclier du Vent Glacial, il semblait qu'ils comptaient plus probablement passer par l'épreuve aquatique, la terre des glaciers.
 
-À cet instant précis, à plus de dix mille kilomètres devant Wang Lin, Bossu Meng se tenait dans une tour noire, l'air sombre. Il regarda dehors et vit que les vents noirs encerclaient la zone. Le hurlement du vent, s'infiltrant dans la tour, ressemblait aux lamentations des fantômes.
+À cet instant précis, à plus de dix mille kilomètres devant Wang Lin, Meng Tuozi se tenait dans une tour noire, l'air sombre. Il regarda dehors et vit que les vents noirs encerclaient la zone. Le hurlement du vent, s'infiltrant dans la tour, ressemblait aux lamentations des fantômes.
 
 Il était dans un état lamentable. Même le crapaud sur son épaule semblait affaibli, la tête pendante, en émettant de faibles gargouillis.
 
@@ -114,13 +114,13 @@ Ils avaient initialement prévu de traverser la première épreuve ensemble pour
 
 Malheureusement, le dragon rouge était trop puissant et ses techniques surnaturelles trop difficiles à contrer, si bien qu'ils n'avaient pu que fuir à toute vitesse. Arrivés devant le vortex, ils s'y étaient précipités sans autre pensée que celle de survivre. En conséquence, chacun s'était retrouvé projeté dans un environnement différent.
 
-Bossu Meng était tombé sur l'épreuve terrestre. En voyant le désert, son cœur sombra. Ils avaient prévu de passer par l'épreuve aquatique, le monde de glace. La dernière fois qu'ils étaient venus ici, ils avaient réussi à franchir l'épreuve de l'eau après de nombreux échecs mortels. Bien que périlleuse, cette étape était connue de ces quatre chanceux qui s'étaient préparés en conséquence.
+Meng Tuozi était tombé sur l'épreuve terrestre. En voyant le désert, son cœur sombra. Ils avaient prévu de passer par l'épreuve aquatique, le monde de glace. La dernière fois qu'ils étaient venus ici, ils avaient réussi à franchir l'épreuve de l'eau après de nombreux échecs mortels. Bien que périlleuse, cette étape était connue de ces quatre chanceux qui s'étaient préparés en conséquence.
 
-Cependant, Bossu Meng n'avait jamais affronté l'épreuve terrestre. Il n'avait eu d'autre choix que de serrer les dents et de tenter le tout pour le tout. Les cinq mille premiers kilomètres furent relativement sûrs, mais ensuite, le vent noir obscurcit le ciel et se mit à le frapper violemment. Des créatures mystérieuses nichées dans ces vents utilisaient des attaques sonores, rendant toute défense extrêmement difficile.
+Cependant, Meng Tuozi n'avait jamais affronté l'épreuve terrestre. Il n'avait eu d'autre choix que de serrer les dents et de tenter le tout pour le tout. Les cinq mille premiers kilomètres furent relativement sûrs, mais ensuite, le vent noir obscurcit le ciel et se mit à le frapper violemment. Des créatures mystérieuses nichées dans ces vents utilisaient des attaques sonores, rendant toute défense extrêmement difficile.
 
 Au début, ces créatures n'étaient pas nombreuses et il les éliminait une à une avec son poison. Mais il réalisa vite que plus il en tuait, plus elles apparaissaient. Lors de la dernière grande bataille, il avait entendu rugir en chœur au moins plusieurs dizaines de milliers de ces êtres.
 
-Pourtant, Bossu Meng était un cultivateur de la Formation de l'Âme spécialisé dans le poison. Bien que les attaques sonores l'aient obligé à redoubler de vigilance, il finit par toutes les terrasser. Mais sitôt qu'il reprenait sa marche, plus de cent mille nouvelles créatures surgissaient.
+Pourtant, Meng Tuozi était un cultivateur de la Formation de l'Âme spécialisé dans le poison. Bien que les attaques sonores l'aient obligé à redoubler de vigilance, il finit par toutes les terrasser. Mais sitôt qu'il reprenait sa marche, plus de cent mille nouvelles créatures surgissaient.
 
 Après en avoir tué cent mille, il y en avait un million. Après un million, dix millions. Dans chaque tornade noire grouillaient des créatures innombrables. En réalité, ces vents noirs étaient générés par le battement d'ailes de ces êtres.
 
@@ -128,7 +128,7 @@ Il continua son massacre jusqu'à perdre le compte. Son énergie spirituelle s'�
 
 Bien qu'il fût un cultivateur de la Formation de l'Âme doté de poisons, il était ébranlé. L'ennemi était trop nombreux; il craignait que s'il parvenait à éliminer les bêtes à l'extérieur, dix fois plus n'apparaîtraient aussitôt.
 
-Les tornades noires étaient omniprésentes dans ce désert infini. Sans parler de dix fois plus, cent, mille ou même dix mille fois plus de créatures était tout à fait possible. À cette pensée, le cœur de Bossu Meng se glaça.
+Les tornades noires étaient omniprésentes dans ce désert infini. Sans parler de dix fois plus, cent, mille ou même dix mille fois plus de créatures était tout à fait possible. À cette pensée, le cœur de Meng Tuozi se glaça.
 
 Bien qu'aucune créature ne fût puissante individuellement, si elles dépassaient cent millions ou un milliard, leurs attaques sonores combinées pourraient broyer sur-le-champ le sens divin d'un cultivateur de la Formation de l'Âme comme lui et même réduire son corps en miettes.
 
@@ -152,7 +152,7 @@ Il avait pris l'habitude de grimper au sommet de chaque tour pour scruter l'hori
 
 Les yeux de Wang Lin brillèrent d'intérêt. Il les observa un moment avant de redescendre et de s'enfoncer de nouveau sous terre.
 
-La résistance souterraine était devenue écrasante. Il devait désormais consacrer 80 % de son énergie spirituelle à lutter contre la pression pour maintenir sa technique d'évasion terrestre. Soudain, son Sens Divin détecta une lueur noire dans le sable devant lui. Une odeur nauséabonde s'en dégagea; sans hésiter, Wang Lin sortit la pilule antipoison que Bossu Meng lui avait donnée et la garda dans sa bouche. Puis, il remonta à la surface.
+La résistance souterraine était devenue écrasante. Il devait désormais consacrer 80 % de son énergie spirituelle à lutter contre la pression pour maintenir sa technique d'évasion terrestre. Soudain, son Sens Divin détecta une lueur noire dans le sable devant lui. Une odeur nauséabonde s'en dégagea; sans hésiter, Wang Lin sortit la pilule antipoison que Meng Tuozi lui avait donnée et la garda dans sa bouche. Puis, il remonta à la surface.
 
 C'était la première fois qu'il émergeait avant d'atteindre une tour.
 
@@ -164,7 +164,7 @@ Ces créatures, de la taille d'un poing, possédaient de fines ailes et des visa
 
 Le Sens Divin de Wang Lin se propagea, mais il fronça les sourcils face au spectacle: pas moins de dix mille cadavres jonchaient le sol, tous noircis par un poison puissant.
 
-Wang Lin comprit instantanément que l'homme qui l'avait précédé était Bossu Meng.
+Wang Lin comprit instantanément que l'homme qui l'avait précédé était Meng Tuozi.
 
 En pensant à lui, Wang Lin eut un rictus méprisant, tout en redoublant de vigilance. Il se replongea sous terre pour poursuivre sa route vers la tour suivante.
 

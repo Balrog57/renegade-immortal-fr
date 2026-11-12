@@ -110,7 +110,7 @@ Si Tian Yunzi l'avait su, Wang Lin ne serait pas resté un simple disciple honor
 
 À l'intérieur de la Perle Défiant le Ciel, la grande âme de Situ Nan flottait. Wang Lin apparut à ses côtés et la contempla en silence.
 
-Après avoir absorbé les deux bras, l'âme de Situ Nan n'était plus transparente; elle était désormais plus dense. Son âme dégageait une pression colossale, incomparablement supérieure à celle de l'ancêtre Du Tian.
+Après avoir absorbé les deux bras, l'âme de Situ Nan n'était plus transparente; elle était désormais plus dense. Son âme dégageait une pression colossale, incomparablement supérieure à celle de l'ancêtre Dun Tian.
 
 « Situ... » Wang Lin fixa silencieusement Situ Nan pendant un long moment avant de faire un pas et d'apparaître dans la partie est de la Perle Défiant le Ciel.
 

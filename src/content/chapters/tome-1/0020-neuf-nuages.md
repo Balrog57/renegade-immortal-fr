@@ -52,12 +52,12 @@ Il connaissait désormais très bien la secte. Après un moment de marche, il at
 
 Avant d'arriver, une voix familière lui parvint de loin.
 
-— Sœur apprentie Zhou, le Maître m'a permis de me retirer en méditation recluse pendant trois mois pour atteindre le premier niveau de Condensation de Qi, mais je n'ai cessé de penser à vous! Je n'ai pas pu apaiser mon cœur un seul instant! Je voulais atteindre ce premier niveau au plus vite, juste pour pouvoir vous voir. La nuit dernière, j'y suis enfin parvenu, alors je me suis précipité dans la montagne pour cueillir cette fleur pour vous. Regardez comme elle est belle! Un énorme serpent gardait la fleur, j'ai eu toutes les peines du monde à le tuer. Regardez, mon bras est même blessé à cause de cela!
+— Senior sœur Zhou, le Maître m'a permis de me retirer en méditation recluse pendant trois mois pour atteindre le premier niveau de Condensation de Qi, mais je n'ai cessé de penser à vous! Je n'ai pas pu apaiser mon cœur un seul instant! Je voulais atteindre ce premier niveau au plus vite, juste pour pouvoir vous voir. La nuit dernière, j'y suis enfin parvenu, alors je me suis précipité dans la montagne pour cueillir cette fleur pour vous. Regardez comme elle est belle! Un énorme serpent gardait la fleur, j'ai eu toutes les peines du monde à le tuer. Regardez, mon bras est même blessé à cause de cela!
 
 Wang Lin fronça les sourcils et s'arrêta. Il ricana intérieurement et poursuivit son chemin.
 
 Puis, une voix féminine cristalline répondit:
-— Frère apprenti Wang, ma famille est une lignée de médecins. Cette fleur est une plante très commune appelée mingrixiang. J'en vois souvent lorsque je monte à la montagne. C'est la première fois que j'entends parler d'un serpent pour la garder. Si c'était vrai, les montagnes de notre Secte Heng Yue seraient infestées de serpents. Sœur apprentie Zhou, ne le croyez pas.
+— Senior frère Wang, ma famille est une lignée de médecins. Cette fleur est une plante très commune appelée mingrixiang. J'en vois souvent lorsque je monte à la montagne. C'est la première fois que j'entends parler d'un serpent pour la garder. Si c'était vrai, les montagnes de notre Secte Heng Yue seraient infestées de serpents. Senior sœur Zhou, ne le croyez pas.
 
 À cet instant, Wang Lin pénétra dans la cour de la maison des pilules. Quatre autres personnes s'y trouvaient, deux hommes et deux femmes, tous vêtus de rouge.
 
@@ -70,4 +70,4 @@ Ses cheveux noirs et brillants étaient tressés en une longue natte. Elle avait
 
 Les deux autres affichaient un visage empreint de choc, leurs regards rivés sur Wang Lin. L'une des filles avait de grands yeux enfantins, soulignés par de magnifiques cils. Ses yeux ressemblaient à deux grains de raisin de cristal et scintillaient d'un vif intérêt.
 
-Le visage de Wang Lin resta impassible tandis qu'il inspectait les personnes devant lui. Dès qu'il entendit la voix de la jeune fille, il comprit qu'il s'agissait de celle qui s'était moquée de Wang Zhuo. Mais en l'observant, elle lui parut très familière. Après une réflexion attentive, il se souvint qu'elle avait été choisie lors de la sélection des disciples quelques mois auparavant. Une fois l'avoir reconnue, il en déduisit que l'autre devait être la sœur apprentie Zhou, à qui Wang Zhuo tentait d'offrir la fleur.
+Le visage de Wang Lin resta impassible tandis qu'il inspectait les personnes devant lui. Dès qu'il entendit la voix de la jeune fille, il comprit qu'il s'agissait de celle qui s'était moquée de Wang Zhuo. Mais en l'observant, elle lui parut très familière. Après une réflexion attentive, il se souvint qu'elle avait été choisie lors de la sélection des disciples quelques mois auparavant. Une fois l'avoir reconnue, il en déduisit que l'autre devait être la Senior sœur Zhou, à qui Wang Zhuo tentait d'offrir la fleur.

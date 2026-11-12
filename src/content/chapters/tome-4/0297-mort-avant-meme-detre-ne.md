@@ -32,7 +32,7 @@ Cette cloche était un trésor magique laissé par des cultivateurs de l'Antiqui
 
 Une fois qu'un cultivateur de la Formation de l'Âme a formé son âme originelle, il est difficile de le tuer définitivement lors d'un duel singulier, même en l'emportant, à moins qu'il ne soit attaqué simultanément par plusieurs adversaires. Cependant, si un expert au stade tardif de la Formation de l'Âme passe à l'action, tout change.
 
-Bien entendu, si la cible est déjà considérablement affaiblie, la donne est différente. C'était ce qui était arrivé à Meng le Bossu: lourdement affaibli, il fut piégé par Wang Lin et finit par mourir sous le coup de la main d'os dorée du Seigneur Démon de l'Ouragan.
+Bien entendu, si la cible est déjà considérablement affaiblie, la donne est différente. C'était ce qui était arrivé à Meng Tuozi: lourdement affaibli, il fut piégé par Wang Lin et finit par mourir sous le coup de la main d'os dorée du Seigneur Démon de l'Ouragan.
 
 À mesure que les sceaux de Wang Lin se posaient un à un sur la cloche, les cris misérables s'affaiblirent progressivement jusqu'à disparaître totalement. Wang Lin continua de tracer des sceaux pendant un certain temps avant de s'interrompre enfin.
 

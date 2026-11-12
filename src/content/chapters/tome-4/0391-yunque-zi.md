@@ -102,7 +102,7 @@ Wang Lin réfléchissait en silence.
 
 « Devenir un pays de culture de rang 6 était le rêve de notre ancêtre fondateur, et le rêve de chaque génération de la Secte Lian Hun. Bien avant qu'un seul cultivateur ne foule la planète Suzaku, à l'époque où le pays Suzaku n'était qu'un pays de culture de rang 5 sur la planète Sisheng, les six sectes travaillèrent de concert. Par une lutte acharnée, nous avons atteint le rang 6 et nous sommes affranchis de la planète Sisheng. C'est alors que l'Alliance Xiu Zhen nous a octroyé la planète Suzaku. »
 
-« À cette époque, ma Secte Lian Hun comptait trois cultivateurs Ascendants. Les cinq autres sectes en possédaient également plusieurs. Le pays Suzaku était si puissant, mais notre arrivée ici ne fut pas sans heurts. Une autre race occupait déjà les lieux, utilisant le pouvoir des tatouages, et elle était extrêmement puissante. »
+« À cette époque, ma Secte Lian Hun comptait trois cultivateurs Ascendants. Les cinq autres sectes en possédaient également plusieurs. Le pays Suzaku était si puissant, mais notre arrivée ici ne fut pas sans heurts. Une autre race occupait déjà les lieux, utilisant le pouvoir des runes, et elle était extrêmement puissante. »
 
 « Ce fut une bataille sanglante qui dura des éons. Le drapeau d'un milliard d'âmes fut achevé durant ce conflit. »
 
@@ -128,7 +128,7 @@ Du Tian agita la main et une sculpture en bois apparut dans sa paume. C'était l
 
 «... C'est lui! » Wang Lin fut stupéfait, son expression devenant étrange. C'était le vieil homme débraillé qui lui avait donné ce chapeau de paille et pour qui il avait sculpté ce portrait à l'époque. La culture de ce vieillard était prodigieuse; il en avait eu les soupçons à l'époque, mais il tenait enfin la réponse.
 
-« Il est Yun Quezi. Il est le jeune frère apprenti du Suzaku actuel... » Du Tian observa la sculpture et ajouta: « Cette sculpture a été faite par toi. Elle lui ressemble étrangement... »
+« Il est Yun Quezi. Il est le Junior frère du Suzaku actuel... » Du Tian observa la sculpture et ajouta: « Cette sculpture a été faite par toi. Elle lui ressemble étrangement... »
 
 « Vous m'avez offert ces trois cadeaux à cause de lui... » L'expression de Wang Lin devint encore plus déconcertée.
 

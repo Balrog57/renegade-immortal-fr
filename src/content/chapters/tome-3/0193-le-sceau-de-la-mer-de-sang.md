@@ -8,7 +8,7 @@ slug: le-sceau-de-la-mer-de-sang
 ---
 L'expression de Wang Lin resta normale, mais intérieurement il ricana. Il secoua la tête: « Ce n'est pas assez! »
 
-Les yeux de Dou Mu lancèrent un éclat glacial. Alors qu'il s'apprêtait à parler, l'homme âgé l'arrêta d'un geste de la main droite. Ce dernier fixa Wang Lin et déclara d'une voix lente: « Cet Anneau Hunyuan de Contrôle des Bêtes appartient déjà à la catégorie des trésors légendaires. Si cela ne te satisfait toujours pas, nous n'avons rien de meilleur à t'offrir. »
+Les yeux de Duo Mu lancèrent un éclat glacial. Alors qu'il s'apprêtait à parler, l'homme âgé l'arrêta d'un geste de la main droite. Ce dernier fixa Wang Lin et déclara d'une voix lente: « Cet Anneau Hunyuan de Contrôle des Bêtes appartient déjà à la catégorie des trésors légendaires. Si cela ne te satisfait toujours pas, nous n'avons rien de meilleur à t'offrir. »
 
 Wang Lin resta impassible. Il observa les instruments qui l'entouraient sans prononcer un mot.
 
@@ -18,7 +18,7 @@ Wang Lin ne ressentait nul besoin de les pousser davantage. La réalité était 
 
 Wang Lin dit calmement: « Cent pierres! »
 
-Sans attendre la réponse du vieillard, Dou Mu s'exclama: « Impossible! » Les regards des autres devinrent également glacials.
+Sans attendre la réponse du vieillard, Duo Mu s'exclama: « Impossible! » Les regards des autres devinrent également glacials.
 
 Wang Lin ne se laissa pas intimider. Il attendit simplement que l'homme âgé réponde.
 
@@ -50,13 +50,13 @@ Le vieillard fronça les sourcils: « Puisque ce vieil homme te l'a promis, il n
 
 Wang Lin ne bougea pas. Il secoua la tête et répondit: « Senior est un maître, et ce junior devrait vous croire, mais il s'agit ici d'une question de vie ou de mort. Si je ne peux en avoir la certitude absolue, même si j'accepte de sceller le maître, je garderai des réserves et il me sera difficile de donner toute ma mesure. »
 
-Dou Mu renifla, laissant poindre une intention meurtrière: « Cadet, tes manières de tourner autour du pot sont vraiment agaçantes. Je t'ai déjà donné ma parole. Si tu ne me crois pas, ne sois pas si difficile. Laisse-moi plutôt t'envoyer en enfer pour apaiser mon esprit! » Il agita soudainement sa main droite, créant dans les airs une main noire massive qui, une fois déployée, s'abattit violemment vers Wang Lin.
+Duo Mu renifla, laissant poindre une intention meurtrière: « Cadet, tes manières de tourner autour du pot sont vraiment agaçantes. Je t'ai déjà donné ma parole. Si tu ne me crois pas, ne sois pas si difficile. Laisse-moi plutôt t'envoyer en enfer pour apaiser mon esprit! » Il agita soudainement sa main droite, créant dans les airs une main noire massive qui, une fois déployée, s'abattit violemment vers Wang Lin.
 
 Le regard de Wang Lin se glaça. Sans même daigner regarder la main géante, il fixa le vieillard.
 
-La main s'immobilisa à dix centimètres au-dessus de la tête de Wang Lin. Le vieillard fit un geste et Dou Mu rétracta son attaque.
+La main s'immobilisa à trois pouces au-dessus de la tête de Wang Lin. Le vieillard fit un geste et Duo Mu rétracta son attaque.
 
-L'homme âgé fronça les sourcils en lançant un regard sévère à Dou Mu, puis dit lentement: « Que veux-tu? »
+L'homme âgé fronça les sourcils en lançant un regard sévère à Duo Mu, puis dit lentement: « Que veux-tu? »
 
 Wang Lin observa les instruments environnants et proposa: « Puisque ces outils sont vos trésors de vie, pourquoi ne pas les confier à ce junior pour le moment? Une fois que nous aurons quitté cet endroit, je vous les rendrai naturellement. Je doute que des seniors craignent qu'un junior comme moi, qui n'est qu'au stade de la Formation du Noyau, ne s'approprie de tels trésors. »
 
@@ -68,19 +68,19 @@ Privé de la lueur violette des dix instruments, l'espace commença à se dissip
 
 Wang Lin entra dans la faille, le visage serein.
 
-Une fois qu'il eut franchi le seuil, Dou Mu afficha une expression de dépit: « Grand frère... »
+Une fois qu'il eut franchi le seuil, Duo Mu afficha une expression de dépit: « Grand frère... »
 
-« Toi, tais-toi! » L'expression du vieillard changea radicalement; il n'était plus aussi calme qu'avec Wang Lin, mais brûlant de colère. Il fixa Dou Mu, puis pénétra dans la faille.
+« Toi, tais-toi! » L'expression du vieillard changea radicalement; il n'était plus aussi calme qu'avec Wang Lin, mais brûlant de colère. Il fixa Duo Mu, puis pénétra dans la faille.
 
-Les autres membres du groupe suivirent l'un après l'autre. Le dernier fut l'homme à l'expression perpétuellement sombre. Alors qu'il s'apprêtait à entrer dans la faille, il lança: « Dou Mu, n'as-tu toujours rien compris? Ce petit morveux a sans doute parfaitement compris notre but. Ton comportement de tout à l'heure n'était que de l'humiliation que tu t'es attirée toi-même! Après tout, que nous réalisions notre souhait ou non dépend entièrement de ce gamin. Grand frère a attendu d'innombrables années pour cela. Hélas, le Seigneur Messager est d'une loyauté absolue envers Tuo Sen; sinon, nous n'aurions pas besoin de nous donner tant de mal. »
+Les autres membres du groupe suivirent l'un après l'autre. Le dernier fut l'homme à l'expression perpétuellement sombre. Alors qu'il s'apprêtait à entrer dans la faille, il lança: « Duo Mu, n'as-tu toujours rien compris? Ce petit morveux a sans doute parfaitement compris notre but. Ton comportement de tout à l'heure n'était que de l'humiliation que tu t'es attirée toi-même! Après tout, que nous réalisions notre souhait ou non dépend entièrement de ce gamin. Grand frère a attendu d'innombrables années pour cela. Hélas, le Seigneur Messager est d'une loyauté absolue envers Tuo Sen; sinon, nous n'aurions pas besoin de nous donner tant de mal. »
 
-Sur ces mots, il franchit la faille. Dou Mu réfléchit un instant avant de s'y engouffrer à son tour.
+Sur ces mots, il franchit la faille. Duo Mu réfléchit un instant avant de s'y engouffrer à son tour.
 
 Après avoir traversé la faille, ce qui apparut devant Wang Lin fut un monde teinté de sang. D'innombrables piliers de pierre coniques, pointe vers le bas, s'offraient à la vue, et plus loin, l'un d'eux, immense, semblait percer les cieux. En le voyant, les pupilles de Wang Lin se rétractèrent. Cet endroit était bel et bien la Mer de Sang.
 
 Le regard de Wang Lin se posa sur l'homme situé au sommet du pilier céleste. L'individu arborait des cheveux rouge sang et dégageait une arrogance écrasante. À sa seule vue, Wang Lin eut l'impression que l'air lui manquait.
 
-À ce moment-là, les autres cultivateurs démoniaques revinrent tous, y compris le groupe de Dou Mu. Une fois dans la Mer de Sang, ils s'assirent chacun sur un pilier différent.
+À ce moment-là, les autres cultivateurs démoniaques revinrent tous, y compris le groupe de Duo Mu. Une fois dans la Mer de Sang, ils s'assirent chacun sur un pilier différent.
 
 Les cultivateurs démoniaques trouvèrent leurs places respectives et fixèrent Wang Lin du regard. Ils étaient tous assis en tailleur, à l'exception de Wang Lin qui était le seul à flotter dans les airs.
 
@@ -116,7 +116,7 @@ Une douleur fulgurante envahit son Sens Divin et son corps fut secoué de trembl
 
 S'il avait osé se montrer ainsi, c'était parce que l'héritage du pouvoir et l'héritage de la connaissance étaient radicalement différents; personne ne pourrait remarquer la différence à moins que le même héritage ne soit détenu par deux personnes. De cette façon, hormis lui-même, nul ne saurait qu'il avait reçu une partie de l'héritage.
 
-Quant à la lumière rouge, Wang Lin avait entendu dans le groupe de Dou Mu qu'elle faisait partie de l'âme du Dieu Ancien. Si n'importe qui d'autre l'avait vue, il aurait tremblé de peur faute de pouvoir la contrôler, mais en tant que dévoreur d'âmes, il pouvait la consumer.
+Quant à la lumière rouge, Wang Lin avait entendu dans le groupe de Duo Mu qu'elle faisait partie de l'âme du Dieu Ancien. Si n'importe qui d'autre l'avait vue, il aurait tremblé de peur faute de pouvoir la contrôler, mais en tant que dévoreur d'âmes, il pouvait la consumer.
 
 Voyant le fragment d'âme dévoré, l'homme aux cheveux rouges fixa Wang Lin d'un regard glacial. Après un long silence, il dit: « Bien que tu sois un dévoreur d'âmes, tu n'as pas encore formé ton noyau d'âme. Cependant, ta capacité à dévorer de force un fragment d'âme est très satisfaisante. Âme Errante, aide-le à former son noyau d'âme. »
 
@@ -162,7 +162,7 @@ La silhouette s'étira comme un nuage à travers la faille pour révéler son co
 
 À l'instant où sa voix retentit, d'innombrables lueurs rouges furent expulsées de son corps. Elles se mirent à tourbillonner comme un cyclone écarlate, imprégné d'une aura démoniaque.
 
-Les cultivateurs démoniaques environnants baissèrent la tête de crainte, sauf le groupe de Dou Mu qui observait les lueurs avec des expressions sombres.
+Les cultivateurs démoniaques environnants baissèrent la tête de crainte, sauf le groupe de Duo Mu qui observait les lueurs avec des expressions sombres.
 
 L'ombre formée par le dévoreur d'âmes prit la forme d'une gueule qui s'élargit progressivement jusqu'à se refermer devant l'homme aux cheveux rouges. Des dizaines de lueurs rouges furent ainsi englouties.
 

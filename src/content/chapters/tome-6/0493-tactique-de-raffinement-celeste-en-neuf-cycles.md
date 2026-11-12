@@ -6,17 +6,17 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 493 - Nine Cycle Celestial Refining Tactic
 slug: tactique-de-raffinement-celeste-en-neuf-cycles
 ---
-Les yeux de Wang Lin s'illuminèrent et il dit lentement: « Quatrième Sœur, je me demande quand tu pourras enseigner ce sort de téléportation à ton Frère Cadet. »
+Les yeux de Wang Lin s'illuminèrent et il dit lentement: « Quatrième Sœur, je me demande quand tu pourras enseigner ce sort de téléportation à ton Junior frère. »
 
 La Quatrième Sœur regarda Wang Lin avant de laisser échapper un sourire. Elle toucha sa sacoche de rangement, en retira un morceau de jade et le lança à Wang Lin.
 
-« J'avais initialement prévu de te libérer après la célébration de l'anniversaire du Maître, mais je ne m'attendais pas à ce que tu puisses t'échapper par tes propres moyens, Septième Frère. J'étais impuissante face à cette situation, et j'espère que Frère Cadet ne m'en tiendra pas rigueur. Dans ce jade, en plus du sort de téléportation, se trouve également une restriction que le Maître m'a enseignée autrefois. Cette restriction est une technique que le Maître a réussi à créer après avoir étudié un sort céleste de qualité inférieure; sa puissance est correcte. Considère cela comme un cadeau pour compenser mes actions passées. »
+« J'avais initialement prévu de te libérer après la célébration de l'anniversaire du Maître, mais je ne m'attendais pas à ce que tu puisses t'échapper par tes propres moyens, Septième Frère. J'étais impuissante face à cette situation, et j'espère que Junior frère ne m'en tiendra pas rigueur. Dans ce jade, en plus du sort de téléportation, se trouve également une restriction que le Maître m'a enseignée autrefois. Cette restriction est une technique que le Maître a réussi à créer après avoir étudié un sort céleste de qualité inférieure; sa puissance est correcte. Considère cela comme un cadeau pour compenser mes actions passées. »
 
 Wang Lin accepta le jade, puis il regarda la Quatrième Sœur et hocha la tête après réflexion.
 
 À moins que ce ne soit absolument nécessaire, il ne voulait pas que leur relation se brise totalement. Après tout, elle était au stade avancé de la Transformation de l'Âme et n'avait manifesté aucune malice envers lui durant tout ce temps. Même il y a trois mois, elle s'était contentée de le sceller avec une restriction sans tenter de lui nuire.
 
-Quant à Bai Wei, il esquissa un léger sourire et dit: « Septième Frère, il semble que la position de véritable disciple de la Division Pourpre te revienne assurément. Ton frère aîné lèvera un toast en ton honneur pour te féliciter d'avance! » Il prit sa coupe de vin et en but une gorgée.
+Quant à Bai Wei, il esquissa un léger sourire et dit: « Septième Frère, il semble que la position de véritable disciple de la Division Pourpre te revienne assurément. Ton Senior frère lèvera un toast en ton honneur pour te féliciter d'avance! » Il prit sa coupe de vin et en but une gorgée.
 
 Wang Lin sourit discrètement, puis il prit également sa coupe et but à son tour. Il se leva, joignit les mains et dit: « J'ai encore quelques affaires à régler. Nous nous reverrons demain. »
 
@@ -28,9 +28,9 @@ Wang Lin fit un pas et se transforma en un rayon de lumière avant de disparaît
 
 Après son départ, Bai Wei et la Quatrième Sœur discutèrent un instant avant de se séparer.
 
-Sur le chemin du retour vers le Pavillon Wei Pourpre, les yeux de Bai Wei révélèrent une lueur malveillante. Il regarda vers le siège principal de la Secte Céleste et murmura pour lui-même: « Le Maître a été trop injuste en plantant cette graine démoniaque en notre frère aîné. Maintenant que le démon s'est éveillé, il ne faudra pas longtemps avant que la culture de ce dernier ne se rétablisse. Si cela arrive, je ne pourrai plus accomplir ma vengeance. Comment puis-je gérer cela? »
+Sur le chemin du retour vers le Pavillon Zi Wei, les yeux de Bai Wei révélèrent une lueur malveillante. Il regarda vers le siège principal de la Secte Tian Yun et murmura pour lui-même: « Le Maître a été trop injuste en plantant cette graine démoniaque en notre frère aîné. Maintenant que le démon s'est éveillé, il ne faudra pas longtemps avant que la culture de ce dernier ne se rétablisse. Si cela arrive, je ne pourrai plus accomplir ma vengeance. Comment puis-je gérer cela? »
 
-Il retourna au Pavillon Wei Pourpre, le visage sombre.
+Il retourna au Pavillon Zi Wei, le visage sombre.
 
 Pendant que Wang Lin volait, il croisa plusieurs cultivateurs d'autres sectes et les salua. Après un moment, il finit par regagner le Pavillon Zi Lin.
 
@@ -112,7 +112,7 @@ Ce que la Tactique de Raffinement Céleste en Neuf Cycles produisait était une 
 
 Wang Lin réfléchit un instant tout en contrôlant cette force pour qu'elle tourne lentement, cherchant à achever un second cycle.
 
-Le second cycle fut beaucoup plus lent que le premier. Il fallut l'équivalent de la combustion de trois bâtonnets d'encens pour le terminer.
+Le second cycle fut beaucoup plus lent que le premier. Il fallut trois bâtons d'encens pour le terminer.
 
 Une fois le deuxième cycle accompli, la force tranchante augmenta de plus de dix fois. Une douleur aiguë lui lacéra l'intérieur du corps, et il fallut un long moment avant qu'elle ne commence à s'estomper.
 

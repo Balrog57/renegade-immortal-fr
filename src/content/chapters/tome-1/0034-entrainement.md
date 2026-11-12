@@ -50,7 +50,7 @@ De retour à la maison des corvées, Wang Lin réfléchit un moment. Puisqu'il n
 
 Le lendemain, la compétition commença dans une ambiance très animée. Wang Lin hésita un instant mais n'alla pas y assister; il utilisa ce temps pour cultiver et consolider ses fondations au sein de la deuxième couche.
 
-Au cours des jours suivants, les rumeurs parmi les disciples honoraires apprirent à Wang Lin que, parmi les disciples internes, le frère aîné Zhang avait remporté la première place, mais uniquement parce qu'aucun disciple de rang violet n'avait participé. Quant à Wang Zhuo, sans surprise, il devint le roi des nouveaux disciples. Il était devenu encore plus arrogant, ne considérant plus les disciples de son âge comme ses égaux.
+Au cours des jours suivants, les rumeurs parmi les disciples honoraires apprirent à Wang Lin que, parmi les disciples internes, le Senior frère Zhang avait remporté la première place, mais uniquement parce qu'aucun disciple de rang violet n'avait participé. Quant à Wang Zhuo, sans surprise, il devint le roi des nouveaux disciples. Il était devenu encore plus arrogant, ne considérant plus les disciples de son âge comme ses égaux.
 
 Une semaine plus tard, au matin, une cloche retentit dans toute la secte. Elle sonna cinq fois, signal indiquant que tous les disciples internes devaient se rassembler promptement devant la salle principale.
 
@@ -58,7 +58,7 @@ Wang Lin ne pouvait entendre la cloche depuis l'espace de rêve. Ce n'est que lo
 
 Wang Lin haussa un sourcil et resta silencieux.
 
-Sun Dazhu lança un regard noir à Wang Lin. Il savait que ce n'était pas le moment de réprimander son disciple, car le Chef et les frères aînés attendaient tous. Sans dire un mot, il saisit Wang Lin, monta sur le nuage aux sept couleurs et s'élança dans les airs.
+Sun Dazhu lança un regard noir à Wang Lin. Il savait que ce n'était pas le moment de réprimander son disciple, car le Chef et les Senior frères attendaient tous. Sans dire un mot, il saisit Wang Lin, monta sur le nuage aux sept couleurs et s'élança dans les airs.
 
 À toute vitesse, ils arrivèrent devant la salle principale. Sun Dazhu jeta Wang Lin au sol sans ménagement et murmura d'une voix basse: « Wang Lin, suis-moi à l'intérieur. Si tu me fais encore perdre la face, dussé-je être châtié par le Chef, je t'abattrai d'une seule paume! » Ces derniers mots étaient empreints d'une véritable intention meurtrière. Il était à bout de patience avec ce disciple; il avait déjà décidé qu'il devait trouver l'occasion de le chasser de sa tutelle.
 

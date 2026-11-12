@@ -1,6 +1,6 @@
 ---
 n: 294
-title: Insinuation
+title: Intimidation
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 294 - Intimation

@@ -8,11 +8,11 @@ slug: grande-calamite
 ---
 Quelque part dans un pays de culture de rang 1 à Suzaku, un vieil homme sale qui dévorait une cuisse de poulet toussa soudainement plusieurs fois et recracha la viande qu'il avait en bouche. Il leva la tête et regarda au loin en direction du pays de Suzaku. Son visage était sombre comme l'eau lorsqu'il se redressa pour partir, mais après avoir réfléchi un instant, il se rassit lentement.
 
-Son expression était particulièrement laide alors qu'il marmonnait pour lui-même: « Frère apprenti aîné, nous avons combattu tout au long de nos vies. Allons-nous continuer à nous battre même alors que nous sommes sur le point de mourir... J'ai perdu la bataille pour le titre de Suzaku à l'époque pour te laisser la victoire... Mais tu ne devrais pas aller trop loin! Puisque Wang Lin a pu revenir du Royaume Céleste, il est mon choisi! Si tu le ruines, je ruinerai Qian Feng! »
+Son expression était particulièrement laide alors qu'il marmonnait pour lui-même: « Senior frère, nous avons combattu tout au long de nos vies. Allons-nous continuer à nous battre même alors que nous sommes sur le point de mourir... J'ai perdu la bataille pour le titre de Suzaku à l'époque pour te laisser la victoire... Mais tu ne devrais pas aller trop loin! Puisque Wang Lin a pu revenir du Royaume Céleste, il est mon choisi! Si tu le ruines, je ruinerai Qian Feng! »
 
 Il jeta la cuisse de poulet qu'il tenait et ses yeux eurent un éclat fugace.
 
-« Cependant, je me demande quelles sont les chances que ce junior Wang Lin transforme cette petite fille Liu Mei en son propre fourneau de culture... Frère apprenti aîné, voyons si ton disciple est meilleur ou si mon candidat choisi est supérieur. Ce sera fort divertissant! »
+« Cependant, je me demande quelles sont les chances que ce junior Wang Lin transforme cette petite fille Liu Mei en son propre fourneau de culture... Senior frère, voyons si ton disciple est meilleur ou si mon candidat choisi est supérieur. Ce sera fort divertissant! »
 
 Wang Lin cultivait, les yeux fermés, assis sur la bête moustique. Après un long moment, il ouvrit les yeux et soupira.
 
@@ -32,7 +32,7 @@ En un clin d'œil, son corps disparut dans le dispositif.
 
 La formation s'estompa lentement et un vieil homme en sortit calmement. Il marmonna: « Pays de Xue Yu, tu dois une faveur à ce vieux! »
 
-Cet homme était celui qui siégeait aux côtés de Gong Sunpo. C'était un Ancien des affaires étrangères de la Secte Tian Yu!
+Cet homme était celui qui siégeait aux côtés de Gongsun Po. C'était un Ancien des affaires étrangères de la Secte Tian Yu!
 
 Dans une zone déserte de l'extrémité nord du continent Suzaku, une formation gigantesque s'ouvrit brusquement et un individu en fut expulsé.
 

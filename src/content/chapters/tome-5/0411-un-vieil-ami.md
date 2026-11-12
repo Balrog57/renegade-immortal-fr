@@ -28,7 +28,7 @@ En un instant, la météorite disparut et un homme aux longs cheveux flottants, 
 
 Les expressions des quatre membres du Clan changèrent radicalement. Ils réalisèrent que cet homme vêtu de blanc dégageait une aura qui les faisait trembler; ils n'avaient ressenti un tel pouvoir que chez les chamans à sept feuilles ou plus de leur propre clan.
 
-« Transformation de l'Âme… » L'un des quatre membres du Clan Délaissé trembla et s'exclama. Sans la moindre hésitation, il fit demi-tour et s'enfuit. Les trois autres le suivirent précipitamment.
+« Transformation de l'Âme… » L'un des quatre membres du Clan Xian Yi trembla et s'exclama. Sans la moindre hésitation, il fit demi-tour et s'enfuit. Les trois autres le suivirent précipitamment.
 
 Le regard de Wang Lin était glacial lorsqu'il frappa son sac de rangement pour libérer la bête moustique. La créature n'attendit même pas d'ordre avant de foncer sur les quatre fuyards. Des cris retentirent au loin alors que les quatre devenaient le festin de la moustique.
 

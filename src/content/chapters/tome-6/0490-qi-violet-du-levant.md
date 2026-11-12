@@ -104,7 +104,7 @@ De loin, toute la Division Pourpre semblait recouverte par cette couche de nuage
 
 Les convives de la Division Pourpre provenaient de diverses sectes de la planète Tian Yun. Parmi eux se trouvaient des individus à haut niveau de culture, mais en petit nombre. Ces sectes, dont la puissance se situait au bas de l'échelle de la planète, ne pouvaient que s'asseoir aux banquets de la Division Pourpre.
 
-Sur les nuages surplombant la Division Pourpre, le frère aîné Zhao Xingsha occupait naturellement la place d'honneur. À sa droite siégeaient le Deuxième Frère, puis le Troisième Frère Bai Wei, suivi de la Quatrième Sœur, au stade avancé de la Transformation de l'Âme. Après elle, trois sièges restaient vides.
+Sur les nuages surplombant la Division Pourpre, le Senior frère Zhao Xingsha occupait naturellement la place d'honneur. À sa droite siégeaient le Deuxième Frère, puis le Troisième Frère Bai Wei, suivi de la Quatrième Sœur, au stade avancé de la Transformation de l'Âme. Après elle, trois sièges restaient vides.
 
 La Cinquième Sœur était en train de subir une punition et se trouvait en culture recluse; le Sixième Frère était parti en aventure sans être revenu; et le Septième Frère, Wang Lin, était absent. Voilà pourquoi les sièges étaient vacants.
 

@@ -90,7 +90,7 @@ Profitant du recul des plantes, Wang Lin frappa son sac de rangement et fit appa
 
 Un bruit de friction métallique retentit et des étincelles jaillirent au point d'impact. Une pression colossale repoussa soudainement l'arme.
 
-Cette force renvoya l'épée céleste en arrière de quelques centimètres, provoquant une exclamation de surprise chez Wang Lin. Voyant la facilité avec laquelle les plantes perçaient la peau du géant, il s'était imaginé qu'une entaille serait aisée.
+Cette force renvoya l'épée céleste en arrière de trois pouces, provoquant une exclamation de surprise chez Wang Lin. Voyant la facilité avec laquelle les plantes perçaient la peau du géant, il s'était imaginé qu'une entaille serait aisée.
 
 Les yeux de Wang Lin s'illuminèrent tandis qu'il inspectait les plantes environnantes. Il s'élança aussitôt, l'épée céleste à la main.
 

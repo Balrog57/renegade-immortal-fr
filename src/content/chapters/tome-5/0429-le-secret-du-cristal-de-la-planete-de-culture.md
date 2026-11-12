@@ -43,7 +43,7 @@ Wang Lin resta immobile. Après un long moment, son regard devint glacial.
 
 « Si Zhu Quezi pouvait encore contrôler le Cristal de la Planète de Culture, la situation ne serait pas telle qu'elle est aujourd'hui. Avec une attaque concertée de tous les cultivateurs de la planète, le Clan Xian Yi risquerait d'être anéanti. »
 
-« S'il en avait eu le contrôle, Zhu Quezi aurait pu s'emparer de l'Étendard de l'Âme au Milliard d'Âmes du senior Du Tian bien plus tôt, plutôt que d'attendre jusqu'à maintenant. »
+« S'il en avait eu le contrôle, Zhu Quezi aurait pu s'emparer de l'Étendard de l'Âme au Milliard d'Âmes du senior Dun Tian bien plus tôt, plutôt que d'attendre jusqu'à maintenant. »
 
 « Le Cristal de la Planète de Culture! Na Duo n'avait aucune raison de me mentir, mais son ton était aussi empreint d'incertitude à l'époque. » La silhouette de Wang Lin disparut de la Petite Terre Bei Yan Ji.
 
@@ -93,7 +93,7 @@ Simultanément, une suite de nouvelles fracassantes se propageait parmi les surv
 
 Toutes les sectes du pays de culture de rang 5 de Shuimo avaient changé de camp!
 
-Le pays de culture de rang 5 de la Pivoine avait changé de camp!
+Le pays de culture de rang 5 de Mudan avait changé de camp!
 
 Le pays de culture de rang 5 de Qin avait changé de camp!
 

@@ -74,7 +74,7 @@ Jusqu'à son dernier souffle, il n'avait eu aucune chance de lever les sceaux su
 
 La silhouette de Wang Lin apparut dans le vide, à l'extérieur de la planète Suzaku. Son visage était d'une pâleur cadavérique, sans la moindre trace de sang.
 
-« Quel puissant pouvoir de lignée... Si l'ancêtre du Clan Ju Mo avait atteint le milieu ou la fin de la Transformation de l'Âme, la formation que l'ancêtre Du Tian m'a donnée n'aurait servi à rien. »
+« Quel puissant pouvoir de lignée... Si l'ancêtre du Clan Ju Mo avait atteint le milieu ou la fin de la Transformation de l'Âme, la formation que l'ancêtre Dun Tian m'a donnée n'aurait servi à rien. »
 
 Wang Lin réfléchit un instant avant de frapper son sac de rangement pour en extraire la boussole stellaire. Il s'assit dessus et la dirigea vers la planète Suzaku.
 

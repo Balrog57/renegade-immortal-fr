@@ -20,7 +20,7 @@ Les corps fournis par la Secte Shi Yin possèdent tous un excellent talent et on
 
 La Secte Shi Yin traite avec de nombreuses sectes des pays de rang 4 ou 5, et certaines d'entre elles concluent des accords exclusifs afin d'obtenir des corps plus rapidement. L'une des clauses de ces accords stipule que la secte doit fournir sa méthode de culture de base, faisant ainsi d'une branche une véritable ferme à corps personnelle pour ladite secte.
 
-La méthode de culture de la Secte Shi Yin de Zhao provient d'une secte démoniaque d'un pays de rang 5, appelée la Voie des Enfers.
+La méthode de culture de la Secte Shi Yin de Zhao provient d'une secte démoniaque d'un pays de rang 5, appelée la Voie Huang Quan.
 
 Ye Zizai poussa un soupir. Ce n'était pas qu'il n'avait jamais pensé à se rebeller, mais plus il en apprenait, plus il sentait sa propre force insignifiante; comparé à cette organisation, il n'avait absolument pas qualité pour se rebeller, et une fois que la dévoration par la marionnette cadavérique a commencé, rien ne peut l'inverser, à moins que son niveau de culture ne surpasse largement celui de la marionnette cadavérique.
 
@@ -38,7 +38,7 @@ Luo Sha laissa échapper un rire. Ses yeux s'illuminèrent tandis qu'il disait: 
 
 Ye Zizai laissa échapper un reniflement glacial. Il avait en effet cette idée à l'esprit. Dès qu'il avait vu Adai pour la première fois, il avait décidé de préparer le corps de ce garçon pour lui-même.
 
-La silhouette esquissa un léger sourire et dit: « Ce gamin, Wang Lin, possède une méthode de culture étrange. Il dégage un soupçon de l'aura authentique de ma Voie des Enfers. Peu importe sa façon de pratiquer, ce serait un excellent fourneau. Ye Zizai, tu n'as toujours pas répondu à ma question: pourquoi n'as-tu pas scellé une partie de son âme plus tôt? »
+La silhouette esquissa un léger sourire et dit: « Ce gamin, Wang Lin, possède une méthode de culture étrange. Il dégage un soupçon de l'aura authentique de ma Voie Huang Quan. Peu importe sa façon de pratiquer, ce serait un excellent fourneau. Ye Zizai, tu n'as toujours pas répondu à ma question: pourquoi n'as-tu pas scellé une partie de son âme plus tôt? »
 
 Ye Zizai ferma les yeux et répondit: « Adai n'est pas mon seul choix. Entre lui et Wang Lin, j'ai plusieurs candidats potentiels. De plus, je n'ai pas encore décidé qui sera l'hôte et qui sera la marionnette cadavérique. Je ne scellerai pas une partie de leur âme avant qu'ils n'atteignent le stade de la Formation du Noyau car, dès que je scelle une part de leur âme, ils sont enregistrés au sein de la Secte Shi Yin. S'ils venaient à être pris par quelqu'un d'autre, j'aurais alors travaillé pour rien. » Ye Zizai se moquait bien que Luo Sha soit au courant. S'il agissait ainsi, c'était pour se ménager une porte de sortie. Indirectement, cela revenait à accepter tacitement d'être dévoré par l'autre.
 
@@ -98,6 +98,6 @@ Tous les cultivateurs de l'Établissement des Fondations et de la Formation du N
 
 Dans une zone secrète à l'arrière de la montagne de la Secte Xuan Dao, Pu Nanzi ouvrit soudainement les yeux. Son expression changea plusieurs fois avant de laisser place à une extase totale. Sans dire un mot, il disparut de son sanctuaire pour réapparaître cinquante kilomètres plus loin.
 
-Dans la région de Zhao, plusieurs traînées de lumière jaillirent dans le ciel, convergeant toutes vers la Tour Céleste, au centre du pays de Zhao.
+Dans la région de Zhao, plusieurs traînées de lumière jaillirent dans le ciel, convergeant toutes vers la Tour Tong Tian, au centre du pays de Zhao.
 
 Si même les cultivateurs réagissaient ainsi, que dire des mortels: à cet instant, la plupart des mortels de Zhao s'agenouillèrent et se prosternèrent. Une ancienne rumeur du monde profane disait que tous les cent ans, le ciel faisait descendre la puissance céleste aux sept couleurs. Ce jour était arrivé.

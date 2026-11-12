@@ -40,11 +40,11 @@ Peu après, plus de dix rayons de lumière s'échappèrent de la secte intérieu
 
 L'un des érudits d'âge moyen se situait au stade avancé de l'Âme Naissante. Vêtu d'une robe noire, il dégageait une aura glaciale, comme si d'innombrables fantômes vengeurs l'entouraient. Dès son apparition, la température environnante chuta instantanément.
 
-Ses yeux, semblables à des éclairs, fixèrent froidement la montagne et il demanda: « Jeune frère apprenti, que s'est-il passé pour que tu envoies ce jade? »
+Ses yeux, semblables à des éclairs, fixèrent froidement la montagne et il demanda: « Junior frère, que s'est-il passé pour que tu envoies ce jade? »
 
-Le vieil homme devint immédiatement respectueux et répondit: « Troisième frère apprenti, la veine spirituelle de cette montagne a été vidée en un instant. Je soupçonne que ces disciples de la secte extérieure y soient pour quelque chose. »
+Le vieil homme devint immédiatement respectueux et répondit: « Troisième Senior frère, la veine spirituelle de cette montagne a été vidée en un instant. Je soupçonne que ces disciples de la secte extérieure y soient pour quelque chose. »
 
-Les yeux de l'homme d'âge moyen s'illuminèrent et il ordonna: « Scellez les environs. Si quelqu'un ose partir, tuez-le! Jeune frère apprenti, suis-moi en haut de la montagne pour rencontrer le Maître de la secte. »
+Les yeux de l'homme d'âge moyen s'illuminèrent et il ordonna: « Scellez les environs. Si quelqu'un ose partir, tuez-le! Junior frère, suis-moi en haut de la montagne pour rencontrer le Maître de la secte. »
 
 Sur ces mots, il se transforma en un rayon de lumière et chargea vers la secte intérieure.
 

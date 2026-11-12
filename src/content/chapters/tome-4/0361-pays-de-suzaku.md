@@ -1,6 +1,6 @@
 ---
 n: 361
-title: Pays de Zhu Que
+title: Pays de Suzaku
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 361 - Country of Suzaku
@@ -28,13 +28,13 @@ Le pays de Suzaku se situait sur le plus vaste continent de la planète Suzaku, 
 
 Il n'existait que quatre pays de culture sur ce continent. Les trois autres étaient tous des puissances de rang 5, constituant les trois nations les plus influentes.
 
-Ces trois pays étaient le Dragon Vert, les Mille Fantaisies et Pilu.
+Ces trois pays étaient Qing Long, Qian Huan et Pilu.
 
 Au centre du continent, occupant la moitié de sa superficie, se trouvait le pays de Suzaku.
 
 Même les mortels de Suzaku possédaient un rang supérieur à celui des mortels ordinaires, car ils étaient les sujets de Suzaku.
 
-Le pays de Suzaku comptait au total trois sectes: la Secte Tian Yu, la Secte Di et la Secte Ren Dao Xian.
+Le pays de Suzaku comptait au total trois sectes: la Secte Tian Yu, la Secte Di Po et la Secte Ren Dao Xian.
 
 Chaque secte possédait un cultivateur Ascendant. Conjoints à l'Ascendant du stade tardif résidant au Mont Suzaku, qui portait le titre de Suzaku, ils constituaient la force maîtresse de la planète.
 
@@ -54,23 +54,23 @@ Cette femme portait une robe violette ornée d'un papillon pourpre sur un lys. E
 
 Elle se tenait là, silencieuse, le regard posé sur Wang Lin.
 
-En voyant la femme, Feng Yushan s'inclina rapidement et respectueusement: « Salutations, troisième sœur aînée. »
+En voyant la femme, Feng Yushan s'inclina rapidement et respectueusement: « Salutations, troisième Senior sœur. »
 
 La femme hocha doucement sa jolie tête et demanda: « Est-ce bien le cultivateur Ceng Niu? »
 
 Wang Lin observa la femme. Sa beauté ne l'intimidait guère. Il joignit les mains et répondit: « Je suis Ceng Niu. »
 
-« Cher cultivateur Ceng, cette jeune fille est une disciple de la Secte Ren Dao Xian. Mon nom de famille est Blanc et mon prénom est Neige. » La femme sourit. Sa peau était aussi blanche que la neige et deux mèches de ses longs cheveux noirs, longs d'un mètre, retombaient sur sa poitrine. Le reste de sa chevelure était relevé en un chignon au sommet de sa tête.
+« Cher cultivateur Ceng, cette jeune fille est une disciple de la Secte Ren Dao Xian. Mon nom de famille est Bai et mon prénom est Xue. » La femme sourit. Sa peau était aussi blanche que la neige et deux mèches de ses longs cheveux noirs, longs d'un mètre, retombaient sur sa poitrine. Le reste de sa chevelure était relevé en un chignon au sommet de sa tête.
 
 « Mon maître m'a ordonné de vous attendre ici, afin de vous conduire jusqu'à lui. »
 
 L'expression de Wang Lin resta impassible. Il la regarda et demanda: « La Secte Ren Dao Xian? »
 
-Neige Blanche acquiesça: « Le Mont Suzaku a fixé la date de l'affrontement entre le cultivateur Ceng et Hongdie. Cela aura lieu dans une quinzaine de jours. À cette occasion, de nombreux émissaires des autres pays de culture viendront assister au combat. D'ici là, ma Secte Ren Dao Xian est chargée de votre accueil. »
+Bai Xue acquiesça: « Le Mont Suzaku a fixé la date de l'affrontement entre le cultivateur Ceng et Hongdie. Cela aura lieu dans une quinzaine de jours. À cette occasion, de nombreux émissaires des autres pays de culture viendront assister au combat. D'ici là, ma Secte Ren Dao Xian est chargée de votre accueil. »
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 
-Neige Blanche esquissa un léger sourire et sauta de l'autel. Un rayon de lumière blanche jaillit, sans le moindre souffle de vent, pour la porter dans les airs.
+Bai Xue esquissa un léger sourire et sauta de l'autel. Un rayon de lumière blanche jaillit, sans le moindre souffle de vent, pour la porter dans les airs.
 
 C'était une grue d'un blanc immaculé.
 
@@ -78,23 +78,23 @@ Une fois que Wang Lin fut installé sur la grue, celle-ci poussa un cri, battit 
 
 Feng Yushan regarda la grue avec envie avant de quitter l'autel pour s'envoler vers le Mont Suzaku.
 
-Neige Blanche jetait parfois des regards furtifs à Wang Lin. Au cours des dernières années, le nom de Ceng Niu était devenu célèbre. En voyant Wang Lin, elle ne put s'empêcher d'éprouver une pointe de déception. Elle était certaine que ce Ceng Niu possédait un talent hors du commun, mais en le voyant ainsi, il paraissait extrêmement ordinaire.
+Bai Xue jetait parfois des regards furtifs à Wang Lin. Au cours des dernières années, le nom de Ceng Niu était devenu célèbre. En voyant Wang Lin, elle ne put s'empêcher d'éprouver une pointe de déception. Elle était certaine que ce Ceng Niu possédait un talent hors du commun, mais en le voyant ainsi, il paraissait extrêmement ordinaire.
 
-Après un long silence, Neige Blanche demanda doucement: « Cher cultivateur Ceng, quelle est votre certitude quant à votre combat contre Hongdie? »
+Après un long silence, Bai Xue demanda doucement: « Cher cultivateur Ceng, quelle est votre certitude quant à votre combat contre Hongdie? »
 
 Wang Lin détourna son regard de la vue sur Suzaku et secoua la tête: « Aucune certitude! »
 
-Neige Blanche fut stupéfaite, mais elle sourit: « Le cultivateur Ceng n'a pas besoin de faire preuve de modestie. »
+Bai Xue fut stupéfaite, mais elle sourit: « Le cultivateur Ceng n'a pas besoin de faire preuve de modestie. »
 
 Wang Lin ne prêta plus attention à la femme et observa attentivement le paysage en contrebas. Il mémorisa avec soin la configuration des lieux, car sa tablette de jade cartographique n'offrait qu'une description très vague de Suzaku.
 
 Bien que Wang Lin soupçonnât secrètement que Suzaku tentait de le recruter comme disciple central, il restait sur ses gardes.
 
-Il réfléchit un instant et demanda: « Chère cultivatrice Neige Blanche, quelles sont les sectes présentes à Suzaku? »
+Il réfléchit un instant et demanda: « Chère cultivatrice Bai Xue, quelles sont les sectes présentes à Suzaku? »
 
-La voix de Neige Blanche était mélodieuse. Après ses explications, Wang Lin eut une vision globale du pays.
+La voix de Bai Xue était mélodieuse. Après ses explications, Wang Lin eut une vision globale du pays.
 
-« La sœur cadette Hongdie est une disciple de la Secte Tian Yu. » Sur ces mots, Neige Blanche soupira en regardant Ceng Niu. D'après ce qu'elle avait entendu de son maître, il semblait que le Mont Suzaku souhaitait que cet homme rejoigne sa secte après le combat.
+« La sœur cadette Hongdie est une disciple de la Secte Tian Yu. » Sur ces mots, Bai Xue soupira en regardant Ceng Niu. D'après ce qu'elle avait entendu de son maître, il semblait que le Mont Suzaku souhaitait que cet homme rejoigne sa secte après le combat.
 
 Le regard de Wang Lin resta calme et il garda le silence.
 
@@ -108,7 +108,7 @@ Alors qu'il volait, le regard de Wang Lin devint soudainement sérieux en scruta
 
 La grue ne se dirigea pas vers la montagne, mais prit plutôt le tour autour. Bien que son visage fût serein, son cœur était troublé.
 
-Neige Blanche murmura: « C'est là que se situe la Secte Tian Yu. À cause de la formation, elle demeure invisible. »
+Bai Xue murmura: « C'est là que se situe la Secte Tian Yu. À cause de la formation, elle demeure invisible. »
 
 À cet instant précis, une silhouette rouge descendit de la montagne et se tint sur un nuage blanc. Cette personne observait leur direction.
 
@@ -118,17 +118,17 @@ Hongdie se tenait aux abords de la Secte Tian Yu et regarda Wang Lin disparaîtr
 
 « Il est bien venu! » Hongdie se retourna et disparut à nouveau dans l'enceinte de la secte.
 
-Perché sur la grue, Wang Lin lança un regard froid à Neige Blanche. Cette femme avait délibérément choisi cet itinéraire; elle devait avoir ses propres desseins.
+Perché sur la grue, Wang Lin lança un regard froid à Bai Xue. Cette femme avait délibérément choisi cet itinéraire; elle devait avoir ses propres desseins.
 
 Peu de temps après, la grue pénétra dans une montagne dont la forme rappelait un dragon immense. Elle traversa des couches de nuages pour s'enfoncer dans les profondeurs de la montagne. Un immense bassin s'étendit alors devant Wang Lin, couvert d'innombrables pavillons aux balustrades sculptées et aux ornements de jade.
 
 Wang Lin descendit de l'oiseau.
 
-Une fois au sol, Neige Blanche murmura: « Cher cultivateur Ceng, ceci n'est pas la Secte Ren Dao Xian, mais la grotte immortelle personnelle de mon maître. Il est actuellement en pleine culture. Choisissez une chambre parmi les trois rangées du nord. Mon maître vous recevra lorsqu'il sera prêt. »
+Une fois au sol, Bai Xue murmura: « Cher cultivateur Ceng, ceci n'est pas la Secte Ren Dao Xian, mais la grotte immortelle personnelle de mon maître. Il est actuellement en pleine culture. Choisissez une chambre parmi les trois rangées du nord. Mon maître vous recevra lorsqu'il sera prêt. »
 
 Sur ces mots, elle joignit les mains devant Wang Lin et disparut parmi les habitations.
 
-Wang Lin savait qu'il ne devait pas déployer son Sens Divin sans précaution à Suzaku, sous peine d'attirer de graves ennuis. Il suivit les instructions de Neige Blanche et se dirigea vers les bâtiments du nord.
+Wang Lin savait qu'il ne devait pas déployer son Sens Divin sans précaution à Suzaku, sous peine d'attirer de graves ennuis. Il suivit les instructions de Bai Xue et se dirigea vers les bâtiments du nord.
 
 En chemin, il croisa de nombreux serviteurs. Tous affichaient des expressions apathiques. Aucun ne daigna même le regarder en passant rapidement devant lui.
 
@@ -138,7 +138,7 @@ Tout avait été préparé pour lui dans la pièce. Wang Lin s'y assit et commen
 
 Depuis son entrée à Suzaku, il ressentait un sentiment de danger. Bien que ténu, il était bien réel. Wang Lin savait qu'avec son niveau actuel, de nombreuses personnes à Suzaku pouvaient l'abattre. N'importe quel cultivateur de la Transformation de l'Âme pouvait le tuer.
 
-L'attitude de Suzaku à son égard lui semblait très étrange. Il était suspect que l'on lui ait envoyé quelqu'un pour l'accueillir, et il semblait que le maître de Neige Blanche allait bientôt le recevoir.
+L'attitude de Suzaku à son égard lui semblait très étrange. Il était suspect que l'on lui ait envoyé quelqu'un pour l'accueillir, et il semblait que le maître de Bai Xue allait bientôt le recevoir.
 
 Après avoir médité un moment, Wang Lin ferma les yeux et commença sa culture.
 

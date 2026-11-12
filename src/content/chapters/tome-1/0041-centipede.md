@@ -42,23 +42,23 @@ Wang Lin, ne souhaitant pas se mêler à la foule, s'écarta pour s'asseoir dans
 
 Comme lui, de nombreux disciples fuyaient la cohue, dont une jeune femme nommée Zhou. En voyant Wang Lin, elle s'approcha de lui avec désinvolture.
 
-« Jeune frère Wang, je tiens à te féliciter pour avoir atteint le 3ème niveau. Peu de disciples intérieurs sont aussi travailleurs que toi », dit la jeune femme Zhou avec un sourire. Elle s'assit sur les marches, sans se soucier de la saleté.
+« Junior frère Wang, je tiens à te féliciter pour avoir atteint le 3ème niveau. Peu de disciples intérieurs sont aussi travailleurs que toi », dit la jeune femme Zhou avec un sourire. Elle s'assit sur les marches, sans se soucier de la saleté.
 
 Wang Lin eut un petit rire. Il secoua la tête et répondit: « Ce n'est pas tout à fait vrai. Je vois bien que la plupart d'entre eux cultivent également avec acharnement. »
 
 La jeune femme Zhou regarda les nuages et soupira: « Ne te sous-estime pas, jeune frère Wang. Durant ces quatre années de retraite, presque tous les disciples intérieurs sortaient très souvent, mais je t'ai rarement vu. La culture est une activité bien ennuyeuse... Pour être honnête, je t'admire. Atteindre le 3ème niveau en quatre ans demande une immense persévérance! »
 
-Wang Lin se frotta le nez en souriant: « Aînée Zhou, n'avez-vous pas vous aussi atteint le 3ème niveau? »
+Wang Lin se frotta le nez en souriant: « Senior sœur Zhou, n'avez-vous pas vous aussi atteint le 3ème niveau? »
 
 La jeune femme soupira d'un air morose: « J'ai atteint le 3ème niveau il y a trois ans, mais désormais, tous les disciples qui étaient plus faibles que moi à l'époque m'ont dépassée. C'est peut-être parce que je n'arrive pas à rompre mes liens avec le monde mortel. »
 
-Wang Lin réfléchit un instant avant de dire: « Le Grand Dao est impitoyable. Si l'aînée Zhou souhaite progresser, elle doit couper ses liens avec le monde mortel. »
+Wang Lin réfléchit un instant avant de dire: « Le Grand Dao est impitoyable. Si la Senior sœur Zhou souhaite progresser, elle doit couper ses liens avec le monde mortel. »
 
-La jeune femme Zhou fixa Wang Lin de ses beaux yeux et, dévoilant sa dentition éclatante, dit: « Jeune frère Wang, je vois que tu as déjà atteint le sommet du 3ème niveau et que tu peux percer à tout moment. Je pense que tu me dépasseras bientôt toi aussi. »
+La jeune femme Zhou fixa Wang Lin de ses beaux yeux et, dévoilant sa dentition éclatante, dit: « Junior frère Wang, je vois que tu as déjà atteint le sommet du 3ème niveau et que tu peux percer à tout moment. Je pense que tu me dépasseras bientôt toi aussi. »
 
 Wang Lin contempla cette beauté à couper le souffle. Il eut un sourire amer et répondit: « Je ne pourrai pas percer de sitôt. Ces liens mortels sont des choses qu'on ne rompt pas facilement; je n'y arrive pas. »
 
-La jeune femme Zhou resta stupéfaite. Elle hésita, puis demanda: « Jeune frère Wang, pardonne mon impudence, mais quels sont ces liens mortels que tu ne peux rompre? »
+La jeune femme Zhou resta stupéfaite. Elle hésita, puis demanda: « Junior frère Wang, pardonne mon impudence, mais quels sont ces liens mortels que tu ne peux rompre? »
 
 Wang Lin secoua la tête sans répondre. Le visage vieilli de ses parents surgit dans son esprit. La piété filiale est la première des vertus; comment trancher d'un simple geste la dette envers ses parents? Il en était incapable.
 
@@ -68,6 +68,6 @@ Wang Lin s'apprêtait à répliquer, quand soudain il tourna la tête et vit Wan
 
 À cet instant, la voix de Wang Zhuo retentit: « Frères et sœurs de la Secte Xuan Dao, vous avez dit que ce mille-pattes aimait manger des animaux vivants. Laissez-nous, membres de la Secte Heng Yue, nous en occuper durant votre séjour. J'ai un jeune frère, voyez-vous. La culture est une perte de temps pour lui; le charger d'attraper des animaux pour nourrir ce mille-pattes est une tâche bien plus appropriée à sa condition. »
 
-Le disciple aux racines spirituelles d'eau hésita et dit: « Frère Wang Zhuo, c'est un peu déplacé. La nature de ce mille-pattes est sauvage. Si un étranger tente de la nourrir, il pourrait être en danger. »
+Le disciple aux racines spirituelles d'eau hésita et dit: « Senior frère Wang Zhuo, c'est un peu déplacé. La nature de ce mille-pattes est sauvage. Si un étranger tente de la nourrir, il pourrait être en danger. »
 
-Wang Zhuo répondit avec une expression douce: « Ne t'inquiète pas, frère Liu. Comment un cultivateur pourrait-il reculer devant le danger? Vous êtes nos invités; ces corvées doivent nous incomber, à nous, la Secte Heng Yue. »
+Wang Zhuo répondit avec une expression douce: « Ne t'inquiète pas, Senior frère Liu. Comment un cultivateur pourrait-il reculer devant le danger? Vous êtes nos invités; ces corvées doivent nous incomber, à nous, la Secte Heng Yue. »

@@ -54,7 +54,7 @@ Le mille-pattes afficha une expression de surprise. Il dévisagea Wang Lin d'un 
 
 Tout en réfléchissant, il se dirigea d'un pas vif vers les montagnes. En utilisant son Sens Divin, il captura aisément quelques petits animaux avant de revenir.
 
-En chemin, Wang Lin croisa certains disciples de la Secte Xuan Dao escortés par des disciples aînés. Lorsqu'ils aperçurent Wang Lin tenant les petites bêtes dans ses mains, ils éclatèrent de rire, attirant l'attention des membres de la Secte Xuan Dao.
+En chemin, Wang Lin croisa certains disciples de la Secte Xuan Dao escortés par des Senior frères de la secte intérieure. Lorsqu'ils aperçurent Wang Lin tenant les petites bêtes dans ses mains, ils éclatèrent de rire, attirant l'attention des membres de la Secte Xuan Dao.
 
 Une des jeunes femmes de la Secte Xuan Dao, d'une grande beauté avec un visage si délicat qu'il semblait pouvoir se briser au contact d'une goutte d'eau, rit: « Junior frère, tous ces petits animaux ne suffiront pas à nourrir le mille-pattes. Tu devrais plutôt chercher un gros serpent; c'est son mets préféré. »
 

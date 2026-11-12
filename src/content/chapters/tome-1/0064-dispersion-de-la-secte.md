@@ -64,9 +64,9 @@ Parmi les deux anciens de l'Établissement des Fondations se trouvait l'Ancien S
 
 L'autre ancien de l'Établissement des Fondations, un homme massif au visage large, regarda les disciples restants avec inquiétude et soupira: « Quand le désastre est arrivé, tout le monde s'est dispersé dans toutes les directions. Au final, vous êtes les seuls à avoir été prêts à suivre la Secte Heng Yue. »
 
-Parmi les disciples intérieurs qui l'avaient suivi, Wang Lin ne connaissait pas les noms de ceux qui l'accompagnaient, hormis le frère Zhang et Lu Song, mais leurs visages lui semblaient familiers. Il y avait aussi un petit gros, celui qu'il avait rencontré devant le pavillon des épées.
+Parmi les disciples intérieurs qui l'avaient suivi, Wang Lin ne connaissait pas les noms de ceux qui l'accompagnaient, hormis le Senior frère Zhang et Lu Song, mais leurs visages lui semblaient familiers. Il y avait aussi un petit gros, celui qu'il avait rencontré devant le pavillon des épées.
 
-Liu Wenju prit une profonde inspiration et dit d'un ton sérieux: « Il ne sert à rien de ressasser le passé. Le plus important est de trouver un endroit où réinstaller notre secte. Il y a de nombreuses années, j'ai une demeure au mont Serpent-Éléphant, à des milliers de kilomètres d'ici. Pour l'instant, allons nous y installer. »
+Liu Wenju prit une profonde inspiration et dit d'un ton sérieux: « Il ne sert à rien de ressasser le passé. Le plus important est de trouver un endroit où réinstaller notre secte. Il y a de nombreuses années, j'ai une demeure au mont Xiang She, à des milliers de kilomètres d'ici. Pour l'instant, allons nous y installer. »
 
 La vieille femme réfléchit un instant, hocha la tête et dit: « C'est une bonne idée. Une fois arrivés, nous devrons entrer en méditation de retraite pour atteindre le stade de l'Âme Naissante d'ici cent ans, avant la fin de notre longévité. »
 

@@ -8,11 +8,11 @@ slug: pays-de-culture-de-rang-6
 ---
 « Même si Yun Quezi m'avait sollicité personnellement, si je ne l'avais pas voulu, je me contenterais d'expulser Liu Mei sans pour autant vous offrir les deux autres cadeaux. » La lueur mystérieuse dans les yeux de Du Tian devint plus intense encore.
 
-« Que tu sois Ceng Niu ou Wang Lin, cela n'a aucune importance. Depuis que ma Secte Lian Hun est arrivée sur la planète Suzaku, nous avons compté un total de 36 ancêtres de Transformation de l'Âme. Leurs âmes résident toutes dans le drapeau de l'âme. Je suis le 37ème, et mon frère aîné était le 36ème! »
+« Que tu sois Ceng Niu ou Wang Lin, cela n'a aucune importance. Depuis que ma Secte Lian Hun est arrivée sur la planète Suzaku, nous avons compté un total de 36 ancêtres de Transformation de l'Âme. Leurs âmes résident toutes dans le drapeau de l'âme. Je suis le 37ème, et mon Senior frère était le 36ème! »
 
 L'expression de Wang Lin changea. Il leva la tête et fixa les deux anneaux de sang.
 
-Du Tian dit d'une voix lente: « Jeune ami, nul besoin de regarder; mon frère aîné est décédé il y a deux ans, sa longévité étant arrivée à son terme. Même le Suzaku actuel n'en est pas informé. »
+Du Tian dit d'une voix lente: « Jeune ami, nul besoin de regarder; mon Senior frère est décédé il y a deux ans, sa longévité étant arrivée à son terme. Même le Suzaku actuel n'en est pas informé. »
 
 Wang Lin réfléchit en silence.
 
@@ -20,13 +20,13 @@ La lueur mystérieuse dans les yeux de Du Tian s'intensifia alors qu'il fixait W
 
 Wang Lin ne répondit pas immédiatement, mais demanda: « Pourquoi moi? »
 
-« Yun Quezi n'est qu'une partie de la raison. La raison principale réside toutefois dans mon frère aîné. Jeune ami Ceng Niu, le domaine de mon frère n'avait aucune capacité offensive, mais il était le seul à posséder un tel don sur toute la planète. Même sur d'autres mondes, c'est extrêmement rare. » Du Tian afficha un regard empreint de respect.
+« Yun Quezi n'est qu'une partie de la raison. La raison principale réside toutefois dans mon Senior frère. Jeune ami Ceng Niu, le domaine de mon frère n'avait aucune capacité offensive, mais il était le seul à posséder un tel don sur toute la planète. Même sur d'autres mondes, c'est extrêmement rare. » Du Tian afficha un regard empreint de respect.
 
 « Ce domaine est celui de la prescience! Il lui restait initialement cent ans de vie, mais il les a tous consumés pour activer son domaine afin de trouver une voie d'avenir pour ma Secte Lian Hun, et pourtant, il a échoué... »
 
-Wang Lin fronça les sourcils, attendant la fin de son récit. Si le vieil homme commençait à prétendre que le frère aîné avait prédit que Wang Lin serait leur espoir, il ne l'écouterait plus.
+Wang Lin fronça les sourcils, attendant la fin de son récit. Si le vieil homme commençait à prétendre que le Senior frère avait prédit que Wang Lin serait leur espoir, il ne l'écouterait plus.
 
-Du Tian fixa Wang Lin avec une pointe de folie: « Bien que mon frère aîné soit mort, le moment de son trépas fut aussi celui de ton arrivée aux portes de ma secte! »
+Du Tian fixa Wang Lin avec une pointe de folie: « Bien que mon Senior frère soit mort, le moment de son trépas fut aussi celui de ton arrivée aux portes de ma secte! »
 
 Wang Lin fut stupéfait.
 

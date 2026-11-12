@@ -104,25 +104,25 @@ Après lecture, Wang Lin exécuta les sceaux prescrits et les projeta sur le fro
 
 Wang Lin rangea le sac, remonta sur la bête moustique et se dirigea rapidement vers la Secte He Huan.
 
-Au sein de la Secte He Huan, l'ancêtre principal, le vieux Ying Yang, affichait une mine sombre et faisait les cent pas dans la salle principale, les mains derrière le dos, incapable de se décider.
+Au sein de la Secte He Huan, l'ancêtre principal, le vieux Yin Yang, affichait une mine sombre et faisait les cent pas dans la salle principale, les mains derrière le dos, incapable de se décider.
 
 Trois autres personnes se trouvaient dans la salle: deux femmes et un homme. Tous trois étaient des cultivateurs de l'Âme Naissante. Ils fronçaient également les sourcils, plongés dans l'indécision.
 
-L'une des deux femmes portait une robe de soie jaune. Sa voix avait de quoi ensorceler les cœurs. Elle dit doucement: « Grand frère aîné, ce cultivateur possède-t-il réellement le niveau de la Formation de l'Âme? Je n'y crois pas. » Ses vêtements moulants révélaient des courbes qui auraient fait battre le cœur de n'importe qui; sans son air préoccupé, elle aurait été d'un charme irrésistible.
+L'une des deux femmes portait une robe de soie jaune. Sa voix avait de quoi ensorceler les cœurs. Elle dit doucement: « Senior frère, ce cultivateur possède-t-il réellement le niveau de la Formation de l'Âme? Je n'y crois pas. » Ses vêtements moulants révélaient des courbes qui auraient fait battre le cœur de n'importe qui; sans son air préoccupé, elle aurait été d'un charme irrésistible.
 
-Le vieux Ying Yang laissa échapper un léger grognement: « Huang Dashan, de la Secte Tian Dao, était au début du stade de l'Âme Naissante et il est mort d'un simple regard de cet homme. Dire qu'il n'est que de la Formation de l'Âme serait le sous-estimer. »
+Le vieux Yin Yang laissa échapper un léger grognement: « Huang Dashan, de la Secte Tian Dao, était au début du stade de l'Âme Naissante et il est mort d'un simple regard de cet homme. Dire qu'il n'est que de la Formation de l'Âme serait le sous-estimer. »
 
 La femme en jaune se tut, les sourcils encore plus contractés.
 
-L'homme d'âge moyen qui s'était tu finit par dire: « Grand frère aîné, et si nous expulsions tous les membres de la famille Teng de la secte? Ainsi, ce cultivateur n'aurait plus aucune raison de venir nous défier. »
+L'homme d'âge moyen qui s'était tu finit par dire: « Senior frère, et si nous expulsions tous les membres de la famille Teng de la secte? Ainsi, ce cultivateur n'aurait plus aucune raison de venir nous défier. »
 
-Ying Yang se frotta les tempes: « Cela reviendrait à nous faire un ennemi de la famille Teng. La culture de Teng Huayuan touche déjà au divin. Bien que nous soyons tous deux au stade avancé de l'Âme Naissante, je sais que je ne serais pas son égal en combat. »
+Yin Yang se frotta les tempes: « Cela reviendrait à nous faire un ennemi de la famille Teng. La culture de Teng Huayuan touche déjà au divin. Bien que nous soyons tous deux au stade avancé de l'Âme Naissante, je sais que je ne serais pas son égal en combat. »
 
-Un silence pesant s'installa. Après un moment, les yeux d'Ying Yang s'illuminèrent alors qu'il tranchait: « Ce vieux voleur Pu Nanzi n'est toujours pas apparu, il doit y avoir quelque chose qui cloche. Peu importe. Teng Huayuan est connu pour sa rancune tenace. Si nous livrons les membres de la famille Teng maintenant et que Teng Huayuan survit, nos problèmes ne feront que commencer. Cadet, donne l'ordre d'activer toutes les formations défensives. Je les contrôlerai personnellement. Nous devons repousser cet homme. »
+Un silence pesant s'installa. Après un moment, les yeux d'Yin Yang s'illuminèrent alors qu'il tranchait: « Ce vieux voleur Pu Nanzi n'est toujours pas apparu, il doit y avoir quelque chose qui cloche. Peu importe. Teng Huayuan est connu pour sa rancune tenace. Si nous livrons les membres de la famille Teng maintenant et que Teng Huayuan survit, nos problèmes ne feront que commencer. Junior frère, donne l'ordre d'activer toutes les formations défensives. Je les contrôlerai personnellement. Nous devons repousser cet homme. »
 
-L'homme hocha la tête, mais hésita: « Grand frère, et si Teng Huayuan... finissait par mourir? »
+L'homme hocha la tête, mais hésita: « Senior frère, et si Teng Huayuan... finissait par mourir? »
 
-Les yeux d'Ying Yang brillèrent d'un éclat malicieux: « Ne sous-estime pas Pu Nanzi. Il interviendra à coup sûr. Et même si son propre niveau n'est pas suffisant, la présence de la personne de la Tour Céleste ne suffira-t-elle pas? »
+Les yeux d'Yin Yang brillèrent d'un éclat malicieux: « Ne sous-estime pas Pu Nanzi. Il interviendra à coup sûr. Et même si son propre niveau n'est pas suffisant, la présence de la personne de la Tour Céleste ne suffira-t-elle pas? »
 
 L'homme fut stupéfait, avant d'acquiescer d'un regard comprenant la situation.
 
@@ -142,37 +142,37 @@ Wang Lin contemplait la Secte He Huan en contrebas. Il sentait que la formation 
 
 Les membres de la famille Teng se trouvaient dans la salle principale; il était clair que la Secte He Huan comptait se battre jusqu'au bout. Le regard de Wang Lin balaya calmement le sol et s'arrêta sur un vieil homme. Il lui lança: « Si vous n'ouvrez pas cette formation, une rivière de sang coulera ici. »
 
-Ce vieil homme était Ying Yang. En voyant Wang Lin, il fronça les sourcils et demanda: « Camarade cultivateur, que venez-vous faire ici? »
+Ce vieil homme était Yin Yang. En voyant Wang Lin, il fronça les sourcils et demanda: « Camarade cultivateur, que venez-vous faire ici? »
 
 Wang Lin eut un ricanement méprisant et des éclairs rouges jaillirent de ses yeux. Bien que la formation fût robuste, si tous ceux qui l'alimentaient mouraient, elle s'effondrerait d'elle-même.
 
-Le Sens Divin du Royaume Ji se changea en un éclair rouge et frappa la formation. Celle-ci ne vacilla même pas, mais Ying Yang fut saisi de stupeur. Rapidement, plus de dix disciples au sol poussèrent des cris de douleur atroces tandis que le sang jaillissait de tous leurs orifices. Ils s'écroulèrent, et les anneaux de lumière sous eux s'éteignirent brusquement.
+Le Sens Divin du Royaume Ji se changea en un éclair rouge et frappa la formation. Celle-ci ne vacilla même pas, mais Yin Yang fut saisi de stupeur. Rapidement, plus de dix disciples au sol poussèrent des cris de douleur atroces tandis que le sang jaillissait de tous leurs orifices. Ils s'écroulèrent, et les anneaux de lumière sous eux s'éteignirent brusquement.
 
 La voix de Wang Lin tonna froidement: « Allez-vous ouvrir la formation? »
 
-Ying Yang rit intérieurement avec mépris et resta silencieux.
+Yin Yang rit intérieurement avec mépris et resta silencieux.
 
 Le Sens Divin du Royaume Ji frappa à nouveau. Cette fois, dix éclairs rouges percutèrent la barrière. Plus de cent disciples crachèrent du sang, leurs corps se convulsant avant de s'effondrer dans la mort. Une terreur panique commença à se propager parmi les survivants.
 
 Wang Lin demanda calmement: « Allez-vous ouvrir la formation? »
 
-L'expression d'Ying Yang était sombre, mais il resta de marbre. Il s'assit pour injecter son énergie spirituelle dans la défense. Les trois autres cultivateurs de l'Âme Naissante serrèrent les dents et firent de même.
+L'expression d'Yin Yang était sombre, mais il resta de marbre. Il s'assit pour injecter son énergie spirituelle dans la défense. Les trois autres cultivateurs de l'Âme Naissante serrèrent les dents et firent de même.
 
 Soudain, plus de cent éclairs rouges s'abattirent sur la formation. Sur la place, le corps de près d'un millier de disciples explosa en nuages de sang. Les survivants, terrifiés, abandonnèrent leurs anneaux de lumière et s'enfuirent, ignorant les cris de leurs anciens.
 
 La voix de Wang Lin résonna une nouvelle fois: « Allez-vous ouvrir la formation? »
 
-Ying Yang cracha du sang, son visage oscillant entre le rouge et le bleu alors qu'il luttait pour décider. Les trois autres cultivateurs de l'Âme Naissante étaient visiblement blessés et chancelants.
+Yin Yang cracha du sang, son visage oscillant entre le rouge et le bleu alors qu'il luttait pour décider. Les trois autres cultivateurs de l'Âme Naissante étaient visiblement blessés et chancelants.
 
 Wang Lin prit une profonde inspiration et sortit nonchalamment une fiole de jade de son sac. Après l'avoir brisée, trois masses d'essence d'Âme Naissante s'en échappèrent. Sous les yeux ébahis de tous, il les avala une à une. Une lueur froide passa dans ses yeux, parmi un éclat rouge éblouissant, tandis qu'il levait la main droite, où se concentra une sphère d'éclairs rouges.
 
 Cette sphère était composée purement de Royaume Ji. Une fois de la taille d'un poing, elle commença à descendre lentement vers le sol.
 
-Ying Yang fut saisi par l'horreur; c'était la première fois qu'il voyait quelqu'un consommer des Âmes Naissantes comme de simples pilules. En voyant la sphère rouge descendre, il hurla: « Camarade cultivateur, arrêtez! Je vais l'ouvrir! Je l'ouvre! Je ne me soucierai plus de la famille Teng! »
+Yin Yang fut saisi par l'horreur; c'était la première fois qu'il voyait quelqu'un consommer des Âmes Naissantes comme de simples pilules. En voyant la sphère rouge descendre, il hurla: « Camarade cultivateur, arrêtez! Je vais l'ouvrir! Je l'ouvre! Je ne me soucierai plus de la famille Teng! »
 
 Il se leva brusquement, saisit une tablette de jade et y injecta frénétiquement son énergie. La formation protégeant la Secte He Huan disparut juste avant que la sphère d'éclairs ne percute le sol.
 
-Ying Yang essuya la sueur froide qui perlait sur son front. Une fois la formation levée, il se fit plus conciliant: « Senior, il ne manque aucun membre de la famille Teng, ils sont tous dans la salle principale. »
+Yin Yang essuya la sueur froide qui perlait sur son front. Une fois la formation levée, il se fit plus conciliant: « Senior, il ne manque aucun membre de la famille Teng, ils sont tous dans la salle principale. »
 
 Wang Lin ne lui adressa même pas un regard et pénétra dans le bâtiment. Aucun bruit ne sortit de la salle, mais une odeur de sang s'en échappa lentement.
 

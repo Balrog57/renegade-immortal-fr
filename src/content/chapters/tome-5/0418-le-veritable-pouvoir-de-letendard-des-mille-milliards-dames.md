@@ -1,6 +1,6 @@
 ---
 n: 418
-title: "Le véritable pouvoir de l'Étendard des Mille Milliards d'Âmes"
+title: "Le véritable pouvoir de l'Étendard d'un Milliard d'Âmes"
 book: 5
 bookTitle: Cultivation Planet Crystal
 en: Chapter 418 - The true power of the 1 billion soul soul flag
@@ -10,7 +10,7 @@ Dès son apparition, il s'enfonça au cœur du Clan Xian Yi et tua plusieurs de 
 
 Leur affrontement était un duel prédestiné entre les futurs chefs de chaque camp.
 
-Bien que Qian Feng n'ait pas remporté la victoire et que le combat se soit soldé par un match nul, sa renommée s'envola vers les cieux. Ce n'est qu'après ce duel que chacun apprit qu'il était le frère aîné de Liu Mei et un disciple du Suzaku actuel, classé au second rang juste derrière elle.
+Bien que Qian Feng n'ait pas remporté la victoire et que le combat se soit soldé par un match nul, sa renommée s'envola vers les cieux. Ce n'est qu'après ce duel que chacun apprit qu'il était le Senior frère de Liu Mei et un disciple du Suzaku actuel, classé au second rang juste derrière elle.
 
 De plus, il possédait une autre identité qui captiva l'attention générale.
 
@@ -18,13 +18,13 @@ Cet homme était le descendant du précédent Suzaku.
 
 Qian Feng fut tel une lune éclatante lors de la bataille contre le Clan Xian Yi. Finalement, au nom du Suzaku, il conclut un accord avec le jeune maître du clan ennemi: le pays de Suzaku céda tous les pays de culture de rang 3 afin que le Clan Xian Yi suspende son offensive.
 
-Les yeux de Du Tian s'illuminèrent alors qu'il fixait l'immense nuage noir approchant au loin, et il déclara d'une voix grave: « Le Clan Xian Yi a lancé sa seconde attaque. Ceng Niu, je sens qu'un chaman aussi puissant qu'un cultivateur de la Transformation de l'Âme au stade intermédiaire se cache dans ce nuage noir. Quant à savoir s'il y a un Ascendant, je l'ignore. Sors l'étendard et chargeons! »
+Les yeux de Dun Tian s'illuminèrent alors qu'il fixait l'immense nuage noir approchant au loin, et il déclara d'une voix grave: « Le Clan Xian Yi a lancé sa seconde attaque. Zeng Niu, je sens qu'un chaman aussi puissant qu'un cultivateur de la Transformation de l'Âme au stade intermédiaire se cache dans ce nuage noir. Quant à savoir s'il y a un Ascendant, je l'ignore. Sors l'étendard et chargeons! »
 
 L'expression de Wang Lin resta sereine tandis qu'il observait le nuage sombre. Il tendit la main, faisant apparaître le drapeau d'âmes d'un milliard. Dès qu'il s'en saisit, une brume noire en jaillit pour l'envelopper.
 
-Du Tian sortit également le drapeau d'âmes d'un milliard. D'un revers de manche, il s'enveloppa lui aussi de brume noire et chargea vers le nuage noir aux côtés de Wang Lin. Dans leur course, les sifflements de l'air et les lamentations déchirantes des fragments d'âmes les entouraient.
+Dun Tian sortit également le drapeau d'âmes d'un milliard. D'un revers de manche, il s'enveloppa lui aussi de brume noire et chargea vers le nuage noir aux côtés de Wang Lin. Dans leur course, les sifflements de l'air et les lamentations déchirantes des fragments d'âmes les entouraient.
 
-Des rugissements soudains jaillirent du nuage noir alors qu'une multitude de membres du Clan Xian Yi surgissaient pour les intercepter. À cet instant précis, Du Tian et Wang Lin s'engouffrèrent directement au cœur de la masse obscure.
+Des rugissements soudains jaillirent du nuage noir alors qu'une multitude de membres du Clan Xian Yi surgissaient pour les intercepter. À cet instant précis, Dun Tian et Wang Lin s'engouffrèrent directement au cœur de la masse obscure.
 
 Alors que les membres du clan s'apprêtaient à attaquer, un cri retentit de l'intérieur du nuage; les combattants s'arrêtèrent net pour ouvrir un passage.
 
@@ -34,21 +34,21 @@ Wang Lin reconnut immédiatement ce vieillard: c'était l'homme qui l'avait pour
 
 Leur vendetta était profonde; si cet homme reconnaissait Wang Lin, il ne lâcherait pas sa proie avant de mourir. Cependant, Wang Lin portait son chapeau de paille et était enveloppé par l'étendard des âmes, ce qui le rendit méconnaissable.
 
-« Secte Lian Hun! » murmura l'homme d'âge moyen, les yeux brillants. Il fit un pas en avant pour barrer la route à Du Tian et Wang Lin.
+« Secte Lian Hun! » murmura l'homme d'âge moyen, les yeux brillants. Il fit un pas en avant pour barrer la route à Dun Tian et Wang Lin.
 
 « Vous deux, membres de la Secte Lian Hun, restez là! » L'homme sourit et agita la main.
 
 Boum!
 
-Un fracas retentit. D'un simple geste, une force invisible surgit et emprisonna Du Tian et Wang Lin comme dans une cage.
+Un fracas retentit. D'un simple geste, une force invisible surgit et emprisonna Dun Tian et Wang Lin comme dans une cage.
 
 L'expression de Wang Lin changea légèrement. Sous cette pression invisible, il ressentit un intense sentiment de péril.
 
-« Un chaman à neuf feuilles! » la voix de Du Tian résonna depuis l'intérieur de l'étendard.
+« Un chaman à neuf feuilles! » la voix de Dun Tian résonna depuis l'intérieur de l'étendard.
 
-Aussitôt, le brouillard d'âmes entourant Du Tian libéra d'innombrables fragments d'âmes, tandis que les treize âmes primaires, aux reflets pourpre et doré, descendirent tels des dieux.
+Aussitôt, le brouillard d'âmes entourant Dun Tian libéra d'innombrables fragments d'âmes, tandis que les treize âmes primaires, aux reflets pourpre et doré, descendirent tels des dieux.
 
-Du Tian hurla: « Chargez! »
+Dun Tian hurla: « Chargez! »
 
 Les fragments d'âmes devinrent soudainement frénétiques, s'élançant dans toutes les directions. Les treize fragments de la Transformation de l'Âme étaient particulièrement redoutables: tous les membres du Clan Xian Yi dont la puissance était inférieure au stade de la Transformation de l'Âme périrent d'un seul contact avec eux.
 
@@ -56,17 +56,17 @@ L'homme d'âge moyen fronça les sourcils. Il n'avait atteint le stade des neuf 
 
 En la voyant de ses propres yeux, son visage s'assombrit. Il agita la main: le nuage noir se dispersa aussitôt, et les membres du clan reculèrent, laissant une zone vide autour d'eux.
 
-Du Tian rit en entraînant Wang Lin pour charger hors du nuage et s'éloigner au loin.
+Dun Tian rit en entraînant Wang Lin pour charger hors du nuage et s'éloigner au loin.
 
-« Mu Ye, emmène les membres du clan rejoindre le jeune maître. Je vais tester la puissance du drapeau d'âmes d'un milliard! » ordonna l'homme d'âge moyen avant de poursuivre Du Tian.
+« Mu Ye, emmène les membres du clan rejoindre le jeune maître. Je vais tester la puissance du drapeau d'âmes d'un milliard! » ordonna l'homme d'âge moyen avant de poursuivre Dun Tian.
 
 Le vieillard voûté acquiesça et guida ses partisans pour reformer le nuage noir, avant de reprendre leur progression.
 
-Du Tian s'éloigna puis marqua un arrêt soudain. « Le chaman à neuf feuilles nous suit. Ceng Niu, observe attentivement pour comprendre pourquoi les Ascendants craignent le drapeau d'âmes d'un milliard. »
+Dun Tian s'éloigna puis marqua un arrêt soudain. « Le chaman à neuf feuilles nous suit. Zeng Niu, observe attentivement pour comprendre pourquoi les Ascendants craignent le drapeau d'âmes d'un milliard. »
 
-Tandis qu'il parlait, Du Tian se retourna pour faire face au membre du Clan Xian Yi. Un arc-en-ciel traversa le ciel et atterrit devant lui: c'était l'homme d'âge moyen.
+Tandis qu'il parlait, Dun Tian se retourna pour faire face au membre du Clan Xian Yi. Un arc-en-ciel traversa le ciel et atterrit devant lui: c'était l'homme d'âge moyen.
 
-Du Tian ne perdit pas de temps en paroles. Sa main traça un sceau et il cracha un jet de sang. « Cinq cents millions d'âmes et treize âmes primaires, apparaissez! »
+Dun Tian ne perdit pas de temps en paroles. Sa main traça un sceau et il cracha un jet de sang. « Cinq cents millions d'âmes et treize âmes primaires, apparaissez! »
 
 Le ciel s'obscurcit brusquement comme si une ombre colossale l'avait recouvert, transformant la terre en enfer.
 
@@ -74,17 +74,17 @@ Un vacarme infini de lamentations provenant des fragments d'âmes commença à r
 
 Les fragments sortirent un à un de l'étendard, saturant l'espace. Les treize âmes primaires dorées et pourpres fixèrent l'homme d'âge moyen qui venait de surgir.
 
-« Regarde bien. Voici la véritable manière d'utiliser l'étendard des âmes. Formation des Treize Âmes! » cria Du Tian, alors que le brouillard noir autour de lui se matérialisait à nouveau en un étendard de dix mètres qu'il agita vigoureusement.
+« Regarde bien. Voici la véritable manière d'utiliser l'étendard des âmes. Formation des Treize Âmes! » cria Dun Tian, alors que le brouillard noir autour de lui se matérialisait à nouveau en un étendard de dix mètres qu'il agita vigoureusement.
 
-Les cinq cents millions de fragments commencèrent à se mouvoir selon une logique mystérieuse autour des treize âmes primaires, formant une vaste formation qui encercla Wang Lin, Du Tian et l'homme d'âge moyen.
+Les cinq cents millions de fragments commencèrent à se mouvoir selon une logique mystérieuse autour des treize âmes primaires, formant une vaste formation qui encercla Wang Lin, Dun Tian et l'homme d'âge moyen.
 
 Malgré sa compréhension des formations, Wang Lin ne put en saisir que les contours superficiels sans pouvoir en étudier les détails.
 
-« Affinement des Âmes! » tonna Du Tian en tendant la main.
+« Affinement des Âmes! » tonna Dun Tian en tendant la main.
 
 La formation trembla soudainement tandis que tous les fragments d'âmes émettaient un cri unanime, semblable à une incantation occulte.
 
-Peu après, une aura noire jaillit de la masse de fragments pour former une main gigantesque. Cette main agissait comme l'avatar de Du Tian.
+Peu après, une aura noire jaillit de la masse de fragments pour former une main gigantesque. Cette main agissait comme l'avatar de Dun Tian.
 
 Alors que celui-ci tendait le bras, une silhouette blanche apparut autour de l'homme d'âge moyen: c'était son âme. À cet instant, la main géante s'abattit.
 
@@ -100,7 +100,7 @@ Puis il murmura: « Affiner! » Les cinq grands creusets tremblèrent, parcourus
 
 Ces creusets engendrèrent cinq vortex massifs au sein de la formation. Une aura ancestrale envahit le champ de bataille, et certains fragments d'âmes furent aspirés dans ces tourbillons et broyés.
 
-L'expression de Du Tian resta imperturbable: « Tu es bel et bien un chaman à neuf feuilles, et tu as du talent. Treize âmes primaires, rassemblez-vous! »
+L'expression de Dun Tian resta imperturbable: « Tu es bel et bien un chaman à neuf feuilles, et tu as du talent. Treize âmes primaires, rassemblez-vous! »
 
 La formation changea une nouvelle fois alors que les cinq cents millions de fragments convergeaient vers les treize âmes primaires; ces dernières commencèrent alors à se densifier.
 
@@ -108,7 +108,7 @@ En fusionnant avec les fragments, les treize âmes acquièrent chacune la puissa
 
 Cette fois, le visage de l'homme d'âge moyen changea enfin.
 
-Le regard de Du Tian devint glacial: « Ce n'est pas fini. Treize âmes primaires, ne faites qu'une! »
+Le regard de Dun Tian devint glacial: « Ce n'est pas fini. Treize âmes primaires, ne faites qu'une! »
 
 Les treize âmes s'élancèrent dans un mouvement si rapide qu'elles créèrent d'innombrables images rémanentes. Lorsque celles-ci se dissipèrent, les âmes n'en formaient plus qu'une seule.
 
@@ -124,13 +124,13 @@ Et ce n'était là que la puissance partielle du drapeau d'âmes d'un milliard.
 
 Cette force suffisait à combattre un Ascendant du stade précoce, mais ne pouvait rivaliser avec un Ascendant du stade avancé comme le Suzaku actuel. Ce qui terrifiait véritablement le Suzaku, c'était la puissance de l'ensemble des trente-six âmes primaires, et tout particulièrement la quatrième.
 
-Du Tian fixa l'homme d'âge moyen et lâcha froidement: « Dégage. Je ne te tuerai pas aujourd'hui. Ma Secte Lian Hun ne prendra pas part à la guerre entre vous et le pays de Suzaku! »
+Dun Tian fixa l'homme d'âge moyen et lâcha froidement: « Dégage. Je ne te tuerai pas aujourd'hui. Ma Secte Lian Hun ne prendra pas part à la guerre entre vous et le pays de Suzaku! »
 
-Le visage de l'homme s'assombrit, la colère bouillonnant en lui. Avec son niveau de culture, si Du Tian n'avait pas possédé cet étendard, il l'aurait déjà éliminé sans difficulté.
+Le visage de l'homme s'assombrit, la colère bouillonnant en lui. Avec son niveau de culture, si Dun Tian n'avait pas possédé cet étendard, il l'aurait déjà éliminé sans difficulté.
 
-Il fixa Du Tian, plongé dans ses pensées. Après un instant, il reprit: « Une telle puissance ne suffit pas à me menacer. Le drapeau d'âmes d'un milliard n'est-il donc capable que de cela? »
+Il fixa Dun Tian, plongé dans ses pensées. Après un instant, il reprit: « Une telle puissance ne suffit pas à me menacer. Le drapeau d'âmes d'un milliard n'est-il donc capable que de cela? »
 
-Du Tian eut un rire éclatant et ses yeux brillèrent: « Dix âmes primaires, apparaissez! »
+Dun Tian eut un rire éclatant et ses yeux brillèrent: « Dix âmes primaires, apparaissez! »
 
 Il agita l'étendard et dix autres âmes primaires de la Transformation de l'Âme s'envolèrent.
 
@@ -138,8 +138,8 @@ Cette fois, l'homme d'âge moyen esquissa un sourire amer. Il comprenait enfin p
 
 « Puisque la Secte Lian Hun refuse de participer à cette guerre, alors je parlerai au nom du Clan Xian Yi et je promets que nous ne mettrons pas un pied dans votre Secte! »
 
-Sur ces mots, il salua Du Tian d'un geste respectueux avant de se retirer prudemment.
+Sur ces mots, il salua Dun Tian d'un geste respectueux avant de se retirer prudemment.
 
-Du Tian agita l'étendard pour récupérer tous les fragments d'âmes et partit rapidement avec Wang Lin.
+Dun Tian agita l'étendard pour récupérer tous les fragments d'âmes et partit rapidement avec Wang Lin.
 
 « Le drapeau d'âmes d'un milliard... » Après avoir été témoin de ce prodige, les yeux de Wang Lin étaient empreints d'une passion ardente. Le monde était vaste, et avec un tel étendard, il pourrait conquérir n'importe quel horizon!

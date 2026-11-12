@@ -6,21 +6,21 @@ bookTitle: The Mediocre Youth
 en: Chapter 29 - Locked Door
 slug: porte-verrouillee
 ---
-Sans attendre que l'individu ait fini de parler, quelqu'un sur le côté s'exclama avec colère: « Zhao Xiao Er, à l'époque, c'est toi qui l'injuriais le plus fort. Frère Wang, ne l'écoutez pas! Il disait sur vous des horreurs pires que celles de n'importe qui. »
+Sans attendre que l'individu ait fini de parler, quelqu'un sur le côté s'exclama avec colère: « Zhao Xiao Er, à l'époque, c'est toi qui l'injuriais le plus fort. Senior frère Wang, ne l'écoutez pas! Il disait sur vous des horreurs pires que celles de n'importe qui. »
 
 Le visage de Zhao Xiao Er se décomposa. Il répliqua avec rage: « Zhao Xiao San, je suis ton frère aîné, espèce de traître! Tout à l'heure, quand tu seras de retour dans ta chambre, tu verras comment je vais te rouer de coups! »
 
-« C'est ce qu'on appelle sacrifier les liens du sang à la justice! Frère Wang, ayez bon cœur, donnez-moi une tâche plus légère. »
+« C'est ce qu'on appelle sacrifier les liens du sang à la justice! Senior frère Wang, ayez bon cœur, donnez-moi une tâche plus légère. »
 
-« Frère Wang, ne prêtez pas attention à ces deux frères. Ils sont célèbres pour leur complicité malveillante. Qui sait combien de disciples honoraires ils ont déjà escroqués? Frère Wang, en vérité, c'est moi le véritable brave homme qui n'a jamais dit un seul mot contre vous, du début à la fin. »
+« Senior frère Wang, ne prêtez pas attention à ces deux frères. Ils sont célèbres pour leur complicité malveillante. Qui sait combien de disciples honoraires ils ont déjà escroqués? Senior frère Wang, en vérité, c'est moi le véritable brave homme qui n'a jamais dit un seul mot contre vous, du début à la fin. »
 
-Une très jolie disciple honoraire dit d'un air pitoyable et touchant: « Frère Wang, votre Junior a toujours eu une constitution fragile depuis l'enfance et ne peut accomplir de lourdes corvées. Que diriez-vous que je vienne chaque soir vous masser les épaules et le dos? Serait-ce acceptable? »
+Une très jolie disciple honoraire dit d'un air pitoyable et touchant: « Senior frère Wang, votre Junior sœur a toujours eu une constitution fragile depuis l'enfance et ne peut accomplir de lourdes corvées. Que diriez-vous que je vienne chaque soir vous masser les épaules et le dos? Serait-ce acceptable? »
 
 Parmi les disciples honoraires de la Secte Heng Yue, les femmes étaient rares; elles ne représentaient pas même un dixième de l'effectif. Après tout, lors des épreuves d'endurance, les hommes avaient un avantage certain.
 
 Les quelques disciples honoraires féminines étaient, bien entendu, très courtisées. Grâce à leurs atouts naturels, certaines jouissaient même de la faveur des disciples internes.
 
-Soudain, une autre disciple honoraire lança un regard de séduction à Wang Lin et ajouta d'un ton coquet: « Frère Wang, le frère Liu ne m'a jamais imposé de travail difficile; je n'avais qu'à venir le servir chaque nuit. Je connais bien plusieurs sœurs parmi les disciples honoraires... Je les amènerai vous voir ce soir, voulez-vous? »
+Soudain, une autre disciple honoraire lança un regard de séduction à Wang Lin et ajouta d'un ton coquet: « Senior frère Wang, Senior frère Liu ne m'a jamais imposé de travail difficile; je n'avais qu'à venir le servir chaque nuit. Je connais bien plusieurs sœurs parmi les disciples honoraires... Je les amènerai vous voir ce soir, voulez-vous? »
 
 Tous s'efforçaient désespérément d'assurer à Wang Lin qu'ils n'avaient jamais dit de mal de lui. Après avoir écouté ce vacarme pendant un long moment, Wang Lin perdit patience et hurla: « Taisez-vous tous! Quel désordre! »
 
@@ -48,7 +48,7 @@ L'homme, ravi, tomba aussitôt à genoux et se prosterna devant Wang Lin. Il ré
 
 Tous les disciples honoraires restèrent médusés. Auparavant, le disciple Liu était discret sur ces questions, mais ce Wang Lin réclamait des pots-de-vin de la manière la plus audacieuse qui soit.
 
-Un instant plus tard, un disciple honoraire s'avança et sortit trois talismans utilisés pour les visites familiales. Il les présenta à Wang Lin en disant: « Frère Wang, c'est là mon humble offrande, pour vous témoigner mon respect. »
+Un instant plus tard, un disciple honoraire s'avança et sortit trois talismans utilisés pour les visites familiales. Il les présenta à Wang Lin en disant: « Senior frère Wang, c'est là mon humble offrande, pour vous témoigner mon respect. »
 
 Wang Lin accepta d'un simple bruit d'assentiment. Il rangea les talismans et demanda: « Quelle tâche t'avait-on assignée plus tôt? »
 

@@ -196,7 +196,7 @@ Au moment où la main de Meng allait s'abattre sur lui, une voix glaciale retent
 
 « Arrête! »
 
-À l'instant même, Bossu Meng eut l'impression d'être saisi par une main invisible et fut projeté en arrière. Après avoir craché plusieurs bouffées de sang noir, il mit un genou à terre. Aucune rancœur ne marquait son visage lorsqu'il dit respectueusement: « Salutations, Seigneur Dou Mu. »
+À l'instant même, Bossu Meng eut l'impression d'être saisi par une main invisible et fut projeté en arrière. Après avoir craché plusieurs bouffées de sang noir, il mit un genou à terre. Aucune rancœur ne marquait son visage lorsqu'il dit respectueusement: « Salutations, Seigneur Duo Mu. »
 
 Simultanément, tous les autres cultivateurs démoniaques mirent eux aussi un genou à terre.
 

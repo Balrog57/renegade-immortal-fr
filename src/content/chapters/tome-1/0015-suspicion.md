@@ -16,17 +16,17 @@ Wang Lin ne lui accorda pas plus d'attention et sortit. La pluie tombait toujour
 
 Wang Lin se rendit à l'un des endroits où il avait précédemment caché une gourde contenant de la rosée. Il était très tôt le matin et peu de personnes s'étaient encore éveillées. Il s'assura que personne ne le suivait avant d'y cacher la perle de pierre.
 
-Après cela, il laissa échapper un soupir de soulagement. Il avait l'intention d'attendre que la pluie cesse pour revenir récupérer son trésor. Wang Lin repartit avec une prudence extrême, veillant à ce qu'il n'y ait personne aux alentours, et se dirigea vers le local des corvées. Lorsqu'il arriva, il s'apprêtait à saisir un seau quand un disciple vêtu de jaune au visage de belette apparut. Le disciple Liu fut un peu surpris en voyant Wang Lin, mais changea promptement d'expression pour afficher un enthousiasme débordant, se précipitant pour arracher le seau des mains de Wang Lin. Il s'exclama: « Mais c'est le frère Wang! Comment s'est passé ton voyage chez tes parents? Sont-ils en bonne santé? Ton aîné s'est ennuyé de toi pendant ton absence. »
+Après cela, il laissa échapper un soupir de soulagement. Il avait l'intention d'attendre que la pluie cesse pour revenir récupérer son trésor. Wang Lin repartit avec une prudence extrême, veillant à ce qu'il n'y ait personne aux alentours, et se dirigea vers le local des corvées. Lorsqu'il arriva, il s'apprêtait à saisir un seau quand un disciple vêtu de jaune au visage de belette apparut. Le disciple Liu fut un peu surpris en voyant Wang Lin, mais changea promptement d'expression pour afficher un enthousiasme débordant, se précipitant pour arracher le seau des mains de Wang Lin. Il s'exclama: « Mais c'est le Junior frère Wang! Comment s'est passé ton voyage chez tes parents? Sont-ils en bonne santé? Ton Senior frère s'est ennuyé de toi pendant ton absence. »
 
 Wang Lin était stupéfait; il connaissait très bien ce visage. C'était exactement celui des membres de sa famille lors de la fête, mais il ne savait pas ce que le disciple Liu essayait d'accomplir.
 
-« Frère Liu, mes parents vont bien. Ne vous en faites pas », répondit prudemment Wang Lin, incertain des intentions de l'homme.
+« Senior frère Liu, mes parents vont bien. Ne vous en faites pas », répondit prudemment Wang Lin, incertain des intentions de l'homme.
 
-Le disciple Liu reprit chaleureusement, en bombant le torse: « Mon frère, à partir de maintenant, tu n'as plus besoin de te lever si tôt. Ton grand frère plaisantait avec toi en te disant de remplir dix jarres par jour, mais tu m'as pris au sérieux. Désormais, une seule jarre par jour suffira. Même si tu ne finis pas à temps, tu pourras aller manger dès que le repas sera servi. Et si quelqu'un t'importune, n'hésite pas à citer le nom de ton grand frère, ça marche! »
+Le disciple Liu reprit chaleureusement, en bombant le torse: « Junior frère, à partir de maintenant, tu n'as plus besoin de te lever si tôt. Ton Senior frère plaisantait avec toi en te disant de remplir dix jarres par jour, mais tu m'as pris au sérieux. Désormais, une seule jarre par jour suffira. Même si tu ne finis pas à temps, tu pourras aller manger dès que le repas sera servi. Et si quelqu'un t'importune, n'hésite pas à citer le nom de ton Senior frère, ça marche! »
 
-Wang Lin eut un regard étrange. Il demanda avec hésitation: « Grand frère, y a-t-il une affaire que tu souhaiterais me voir traiter? »
+Wang Lin eut un regard étrange. Il demanda avec hésitation: « Senior frère, y a-t-il une affaire que tu souhaiterais me voir traiter? »
 
-Le visage du disciple Liu se mua en un masque de mécontentement, feignant la colère: « Petit frère, comment peux-tu être si froid envers ton grand frère? Tu es mon cadet, il est naturel que je prenne soin de toi. À l'avenir, tes problèmes seront les miens. Quant à ces corvées, contente-toi de faire le minimum pour montrer que tu travailles. Au final, que tu sois bon ou mauvais ne sera que mon opinion. Puisqu'il pleut aujourd'hui, tu n'as pas besoin de travailler. D'ailleurs, l'Ancien Sun est venu te chercher il y a quelques jours. Maintenant que tu es revenu, le mieux est d'aller lui rendre visite. » Il termina ainsi son discours en observant attentivement la réaction de Wang Lin.
+Le visage du disciple Liu se mua en un masque de mécontentement, feignant la colère: « Junior frère, comment peux-tu être si froid envers ton Senior frère? Tu es mon Junior frère, il est naturel que je prenne soin de toi. À l'avenir, tes problèmes seront les miens. Quant à ces corvées, contente-toi de faire le minimum pour montrer que tu travailles. Au final, que tu sois bon ou mauvais ne sera que mon opinion. Puisqu'il pleut aujourd'hui, tu n'as pas besoin de travailler. D'ailleurs, l'Ancien Sun est venu te chercher il y a quelques jours. Maintenant que tu es revenu, le mieux est d'aller lui rendre visite. » Il termina ainsi son discours en observant attentivement la réaction de Wang Lin.
 
 Wang Lin réfléchit un instant, un sourire à demi esquissé aux lèvres. Dans son cœur, il avait déjà deviné la majeure partie de l'histoire en écoutant le disciple Liu. L'Ancien Sun avait dû venir le chercher après son départ, et le disciple Liu s'y méprenait sans doute, ce qui expliquait sa soudaine amabilité. Il ne prit pas la peine de dissiper le malentendu et imita l'attitude du disciple Liu lors de leur première rencontre en émettant un « hm » du nez.
 
@@ -36,13 +36,13 @@ Le disciple Liu était un disciple honoraire depuis treize ans et avait passé s
 
 Ce n'est pas qu'il n'avait pas songé que Wang Lin ait pu offenser l'Ancien, auquel cas il se serait trompé dans sa supposition, mais il n'en était pas certain. Il ne craignait pas les dix mille possibilités, mais la seule qui tournerait mal. Il était au sein de la Secte Heng Yue depuis de nombreuses années et savait combien les eaux y étaient profondes et à quel point, simple disciple honoraire, il était insignifiant.
 
-Sur cette pensée, il serra les dents, sortit une feuille de papier jaune et la tendit à Wang Lin: « Petit frère, dès que ton aîné t'a vu le mois dernier, j'ai eu l'impression de retrouver un vieil ami. Ce petit présent est bien modeste, mais tu dois l'accepter. Si tu ne... »
+Sur cette pensée, il serra les dents, sortit une feuille de papier jaune et la tendit à Wang Lin: « Junior frère, dès que ton Senior frère t'a vu le mois dernier, j'ai eu l'impression de retrouver un vieil ami. Ce petit présent est bien modeste, mais tu dois l'accepter. Si tu ne... »
 
 Avant qu'il ne puisse finir, Wang Lin avait déjà saisi la feuille jaune. En la voyant, il reconnut le talisman immortel utilisé lorsque les disciples honoraires rentraient chez eux.
 
-« Merci, aîné. Ce petit frère ne saurait refuser, mais l'Ancien m'attend. Demain, ce petit frère viendra renouer avec toi », dit Wang Lin avec un léger rire.
+« Merci, Senior frère. Ce Junior frère ne saurait refuser, mais l'Ancien m'attend. Demain, ce Junior frère viendra renouer avec toi », dit Wang Lin avec un léger rire.
 
-Le frère Liu hocha la tête, un brin envieux: « L'Ancien est plus important, petit frère, va vite! »
+Le Senior frère Liu hocha la tête, un brin envieux: « L'Ancien est plus important, Junior frère, va vite! »
 
 Wang Lin paraissait calme en surface, mais intérieurement, il était assailli de doutes concernant l'Ancien Sun. Pourquoi était-il venu le chercher personnellement? Wang Lin marcha tranquillement vers la cour, ces questions tournant dans son esprit. Il avait analysé la situation en profondeur, mais ne parvenait pas à conclure.
 

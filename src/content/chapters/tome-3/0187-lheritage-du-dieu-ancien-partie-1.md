@@ -12,9 +12,9 @@ S'il parvenait à entrer dans l'espace de la Perle Défiant le Ciel, ses chances
 
 Il n'y avait aucune restriction dans l'espace de la Perle Défiant le Ciel; on pouvait y accéder à tout moment.
 
-Wang Lin poussa un soupir de soulagement. D'un geste de la main droite, il sortit le sac de rangement de l'Empereur Antique. En y projetant son Sens Divin, il ressentit une force de résistance émaner du sac. Wang Lin resta impassible : il était clair que la faille spatiale dans laquelle Bossu Meng avait jeté l'Empereur Antique et la gigantesque faille de la sortie du troisième essai menaient au même endroit.
+Wang Lin poussa un soupir de soulagement. D'un geste de la main droite, il sortit le sac de rangement de l'Empereur Antique. En y projetant son Sens Divin, il ressentit une force de résistance émaner du sac. Wang Lin resta impassible : il était clair que la faille spatiale dans laquelle Meng Tuozi avait jeté l'Empereur Antique et la gigantesque faille de la sortie du troisième essai menaient au même endroit.
 
-Le Sens Divin du sac de rangement bloquait celui de Wang Lin. Cela signifiait que l'Empereur Antique était toujours en vie, bien que Wang Lin n'en fût pas tout à fait certain: à l'époque, le sac de rangement de Bossu Meng avait perdu son Sens Divin, ce qui aurait dû signifier sa mort, et pourtant Bossu Meng était réapparu.
+Le Sens Divin du sac de rangement bloquait celui de Wang Lin. Cela signifiait que l'Empereur Antique était toujours en vie, bien que Wang Lin n'en fût pas tout à fait certain: à l'époque, le sac de rangement de Meng Tuozi avait perdu son Sens Divin, ce qui aurait dû signifier sa mort, et pourtant Meng Tuozi était réapparu.
 
 Désormais, Wang Lin possédait deux sacs de rangement qu'il ne pouvait ouvrir. L'un appartenait à l'Empereur Antique, l'autre provenait d'un squelette mystérieux trouvé dans une grotte du Sanctuaire de la Guerre Shinto.
 
@@ -72,7 +72,7 @@ La gigantesque faille près de la sortie s'était déjà refermée. Libéré de 
 
 Il ressentit un immense soulagement à cet instant. Le troisième essai était trop terrifiant. S'il parvenait à s'en échapper, il jurait de ne jamais y revenir.
 
-Lorsqu'il était venu ici pour la première fois il y a mille ans, bien qu'il ait également atteint le troisième essai, l'endroit n'avait pas été aussi étrange. La résurrection de son maître, la transformation de Bossu Meng en démon et la série d'événements qui suivirent avaient créé un brouillard de confusion dans son esprit. Ce brouillard ne faisait que s'étendre, le plongeant dans une nervosité constante.
+Lorsqu'il était venu ici pour la première fois il y a mille ans, bien qu'il ait également atteint le troisième essai, l'endroit n'avait pas été aussi étrange. La résurrection de son maître, la transformation de Meng Tuozi en démon et la série d'événements qui suivirent avaient créé un brouillard de confusion dans son esprit. Ce brouillard ne faisait que s'étendre, le plongeant dans une nervosité constante.
 
 Il se trouvait désormais à l'intérieur du tourbillon. Au moment où les éclairs violets tombèrent, il agita les mains et exécuta une série de techniques manuelles. Une fois terminé, son Âme Naissante avait considérablement diminué de taille.
 
@@ -138,7 +138,7 @@ Le temps s'écoulait. La brume noire infinie couvrait désormais une zone de dix
 
 Après un laps de temps indéterminé, la brume noire se dissipa. Le Seigneur Démon des Six Désirs affichait une lueur de démence; sa culture avait atteint un niveau prodigieux.
 
-« Désir de Tan Lang, sois absorbé! » lança-t-il à nouveau. Peu après, une brume rouge apparut soudainement, couvrant elle aussi un rayon de dix mille milles autour de lui.
+« Désir de Cupidité, sois absorbé! » lança-t-il à nouveau. Peu après, une brume rouge apparut soudainement, couvrant elle aussi un rayon de dix mille milles autour de lui.
 
 Par la suite, le Désir d'Illusion, le Désir de Plaisir, le Désir de Jalousie et le Désir d'Obsession furent tous dévorés par le Seigneur Démon des Six Désirs. Ce que son maître, le Magicien Démon Céleste, avait prédit était vrai: sa plus grande faiblesse était son désir de croître en culture. S'il en avait l'opportunité, il ne la laisserait absolument pas passer.
 

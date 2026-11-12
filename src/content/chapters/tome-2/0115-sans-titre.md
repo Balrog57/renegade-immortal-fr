@@ -12,7 +12,7 @@ Teng Huayuan était sur le point de se téléporter lorsqu'il s'arrêta brusquem
 
 Le visage de Teng Huayuan devint d'une noirceur extrême. De sa main droite, il écrasa plus d'une dizaine d'âmes avant de retrouver son calme.
 
-Dès l'apparition du disciple, celui-ci courut précipitamment vers Teng Huayuan et le vieillard au visage sombre. Il s'agenouilla au sol et, la voix tremblante de terreur, s'exclama: « Ancêtre, ils sont morts... ils sont tous morts! Même le frère aîné Wang Peng est mort! J'étais loin, alors j'ai pu m'échapper... »
+Dès l'apparition du disciple, celui-ci courut précipitamment vers Teng Huayuan et le vieillard au visage sombre. Il s'agenouilla au sol et, la voix tremblante de terreur, s'exclama: « Ancêtre, ils sont morts... ils sont tous morts! Même le Grand Senior frère Wang Peng est mort! J'étais loin, alors j'ai pu m'échapper... »
 
 Le vieillard au visage sombre fixa le disciple. Soudain, il frappa le jeune homme de la paume sur le sommet du crâne et lâcha: « S'ils sont tous morts, tu ne devrais pas être le seul survivant. » Sur ces mots, la tête du disciple vola en éclats comme une pastèque.
 
@@ -26,7 +26,7 @@ Soudain, l'expression de Teng Huayuan changea radicalement, son visage se muant 
 
 Un éclat glacial passa dans les yeux du jeune homme. Au moment où la main de Teng Huayuan allait le saisir, il disparut pour réapparaître en plein ciel, provoquant les exclamations de la foule.
 
-« C'est lui! C'est lui qui a tué le frère aîné! »
+« C'est lui! C'est lui qui a tué le Grand Senior frère! »
 
 « Il a volé notre jeton! Ancêtre, c'est lui! »
 
@@ -42,7 +42,7 @@ Teng Huayuan n'avait pas imaginé que Wang Lin puisse se téléporter et, pris d
 
 À ces mots, tous les cultivateurs présents commencèrent à s'agiter en fixant le jeune homme. Même Lin Yi montra un intérêt certain; il afficha une expression de surprise avant de ricaner en secouant silencieusement la tête.
 
-Teng Huayuan tonna: « Chers compagnons de culture, cet individu a tué mon arrière-arrière-petit-fils, nous avons donc une haine irréconciliable. Aujourd'hui, je vais l'exécuter et je ne prendrai rien de ses possessions, mais que celui qui ose s'interposer ne me reproche pas de faire de lui mon ennemi! »
+Teng Huayuan tonna: « Chers Daoïstes, cet individu a tué mon arrière-arrière-petit-fils, nous avons donc une haine irréconciliable. Aujourd'hui, je vais l'exécuter et je ne prendrai rien de ses possessions, mais que celui qui ose s'interposer ne me reproche pas de faire de lui mon ennemi! »
 
 Lin Yi éclata soudain de rire: « Très bien, cultivateurs de Zhao, ne vous mêlez pas de cela. Je veux voir si toi, Teng Huayuan, tu oseras vraiment le tuer. »
 

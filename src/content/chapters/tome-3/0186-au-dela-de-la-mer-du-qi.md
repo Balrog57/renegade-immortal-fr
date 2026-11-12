@@ -68,11 +68,11 @@ Il réfléchit un instant et soupira. Il n'aurait jamais cru être le premier pa
 
 Avant le troisième essai, Wang Lin nourrissait encore l'espoir d'atteindre ce lieu, mais désormais, il sentait que cet endroit n'était pas, comme l'avait dit Duanmu Ji, un lieu où les artefacts magiques jonchaient le sol et où l'on trouvait des pilules à chaque pas.
 
-Surtout après avoir vu ces démons tels que le Bossu Meng à la sortie du troisième essai; cela lui avait laissé un poids oppressant sur le cœur. Wang Lin pressentait qu'il venait d'entrer dans un lieu où il n'était pas censé mettre les pieds.
+Surtout après avoir vu ces démons tels que Meng Tuozi à la sortie du troisième essai; cela lui avait laissé un poids oppressant sur le cœur. Wang Lin pressentait qu'il venait d'entrer dans un lieu où il n'était pas censé mettre les pieds.
 
 En particulier l'extase pure et nue dans les yeux de ces démons lorsqu'ils le regardaient. Avec son intelligence, Wang Lin n'eut besoin que d'un peu d'analyse pour faire le lien avec le cri de cette puissante âme errante sur le point de devenir un dévoreur d'âmes.
 
-« Auparavant, seul le Bossu Meng était apparu, mais au moment de partir, ils ont surgi en grand nombre au même endroit. Ils me traquent sûrement. Cela doit avoir un lien avec la prise de conscience par cette grande âme de mon identité de dévoreur d'âmes. »
+« Auparavant, seul Meng Tuozi était apparu, mais au moment de partir, ils ont surgi en grand nombre au même endroit. Ils me traquent sûrement. Cela doit avoir un lien avec la prise de conscience par cette grande âme de mon identité de dévoreur d'âmes. »
 
 Tandis qu'il réfléchissait, son corps continuait d'avancer sans relâche. Il sentait que ces démons n'abandonneraient pas si facilement et pourraient surgir devant lui à tout moment.
 

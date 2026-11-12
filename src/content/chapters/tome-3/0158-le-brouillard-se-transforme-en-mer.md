@@ -26,7 +26,7 @@ Les cultivateurs de l'auberge étaient pétrifiés. Ils brûlaient de partir, ma
 
 Le vieil homme réfléchit un instant. Il ouvrit les yeux et fixa le cultivateur au stade initial de la Formation du Noyau: « Toi, approche. »
 
-Le corps du cultivateur trembla alors qu'il se levait prestement pour se tenir à trois mètres du vieil homme. D'une voix chevrotante, il dit respectueusement: « Le junior Xu Mu salue le Senior. Que le Senior pose ses questions sans retenue. Je jure sur mon propre Noyau Doré que tout ce que je dis est la vérité; je vous en prie, faites preuve de clémence. »
+Le corps du cultivateur trembla alors qu'il se levait prestement pour se tenir à dix pieds du vieil homme. D'une voix chevrotante, il dit respectueusement: « Le junior Xu Mu salue le Senior. Que le Senior pose ses questions sans retenue. Je jure sur mon propre Noyau Doré que tout ce que je dis est la vérité; je vous en prie, faites preuve de clémence. »
 
 Le vieil homme se versa une coupe de vin. Après avoir bu, il déclara: « Depuis que je suis entré dans cette auberge, chaque fois que cette personne est mentionnée, l'énergie spirituelle de ton corps s'emballe. Je suppose que tu l'as vue en personne. »
 
@@ -70,7 +70,7 @@ Li Muwan murmura: « Ça va devenir une mer... »
 
 Wang Lin ne répondit pas. Il s'arrêta soudainement pour regarder derrière lui et observa le brouillard environnant. Il remarqua que la brume, qui bougeait lentement, avait légèrement accéléré. C'était comme si elle était poussée par une force vers l'avant. Même les créatures alentour se dispersaient dans toutes les directions, sauf vers l'avant.
 
-Voyant l'expression de Wang Lin, Li Muwan demanda doucement: « Qu'y a-t-il, frère aîné? »
+Voyant l'expression de Wang Lin, Li Muwan demanda doucement: « Qu'y a-t-il, Senior frère? »
 
 « Rien. » Après avoir répondu, Wang Lin s'élança encore plus vite. Un léger malaise l'habitait. D'après le mouvement du brouillard, il était clair que quelqu'un volait dans leur direction à une vitesse fulgurante. Le poursuivant devait être un cultivateur extrêmement puissant pour produire un tel effet de poussée sur la brume.
 

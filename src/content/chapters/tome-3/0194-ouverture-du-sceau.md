@@ -12,7 +12,7 @@ Le dévoreur d'âmes eut fini de digérer ces lumières rouges et, alors que Wan
 
 Il semblait que la Mer de Sang mette du temps à régénérer ces lueurs. Les yeux de l'homme aux cheveux roux s'éclairèrent; bien que forcer ces lumières à sortir de son corps lui inflige une douleur inimaginable, voir leur nombre diminuer devant lui le confortait dans l'idée que, même si la douleur était dix fois plus intense, il serait prêt à la subir.
 
-Le temps s'écoulait lentement. Tous les cultivateurs démoniaques observaient la scène en silence, retenant leur souffle. Même le groupe de Dou Mu était nerveux. La capacité de Wang Lin à briser le sceau jouait un rôle vital dans leurs projets futurs; si le sceau ne pouvait être rompu, peu importait la minutie de leur plan, tout serait vain.
+Le temps s'écoulait lentement. Tous les cultivateurs démoniaques observaient la scène en silence, retenant leur souffle. Même le groupe de Duo Mu était nerveux. La capacité de Wang Lin à briser le sceau jouait un rôle vital dans leurs projets futurs; si le sceau ne pouvait être rompu, peu importait la minutie de leur plan, tout serait vain.
 
 Au fil du temps, les lumières rouges autour de l'homme aux cheveux roux tournoyaient de plus en plus vite, mais leur quantité diminuait inexorablement. Il laissa échapper plusieurs rugissements puissants. Le fait de forcer continuellement ces lumières à sortir épuisait son corps. Son visage devint féroce et ses veines saillirent, devenant d'un vert spectral, comme si des vers s'agitaient sous sa peau.
 
@@ -26,13 +26,13 @@ Le Magicien Démon Céleste poussa un rire amer intérieurement. Il leva les yeu
 
 Tout cela ne pouvait être décrit que par le karma.
 
-Le Magicien Démon Céleste soupira à nouveau, mais en regardant le groupe de Dou Mu, sa haine s'estompa pour laisser place à la réflexion. Son expression demeura calme, ne trahissant aucune de ses pensées. C'était un vieil homme extrêmement rusé; même face à une telle épreuve, son visage ne vacilla point.
+Le Magicien Démon Céleste soupira à nouveau, mais en regardant le groupe de Duo Mu, sa haine s'estompa pour laisser place à la réflexion. Son expression demeura calme, ne trahissant aucune de ses pensées. C'était un vieil homme extrêmement rusé; même face à une telle épreuve, son visage ne vacilla point.
 
 L'homme aux cheveux roux utilisait simplement les fragments d'âme pour marquer ces individus et les contrôler. Si le Magicien Démon Céleste avait pu conserver sa santé mentale, c'était principalement grâce à sa technique de culture. Outre la Méthode de Culture Démoniaque Céleste Mystérieuse, il possédait aussi une formule mystérieuse qu'il avait obtenue par hasard lors de son premier voyage dans cette Terre Gu Shen.
 
 Il n'avait transmis cette formule à personne; même le Seigneur Démon des Six Désirs en ignorait l'existence. C'est grâce à cette formule et à ses innombrables années de culture que, lorsqu'il fut capturé par l'homme aux cheveux roux et forcé de fusionner avec un fragment d'âme, il put prendre l'initiative de le supprimer au lieu de s'y fondre.
 
-Il observa le groupe de Dou Mu. Il y a de nombreuses années, il avait commencé à soupçonner que, parmi les milliers de cultivateurs présents, il n'était pas le seul à avoir pu supprimer son fragment d'âme. Il soupçonnait qu'il y en avait d'autres, qui attendaient leur heure.
+Il observa le groupe de Duo Mu. Il y a de nombreuses années, il avait commencé à soupçonner que, parmi les milliers de cultivateurs présents, il n'était pas le seul à avoir pu supprimer son fragment d'âme. Il soupçonnait qu'il y en avait d'autres, qui attendaient leur heure.
 
 Ces personnes étaient très probablement les dix Généraux de la Mer de Sang.
 
@@ -76,7 +76,7 @@ L'homme aux cheveux roux ne dit rien, mais ses mains saisirent à nouveau plus d
 
 Le sourire froid de l'homme aux cheveux roux s'élargit. Il ne tua pas ces cultivateurs immédiatement, mais détourna son regard après les avoir observés un instant. Bien que les tuer fût facile, le retour des fragments d'âme vers lui aurait trop impacté sa barrière. Il n'était pas pressé de les achever.
 
-Wang Lin observait la scène. Il savait que l'homme aux cheveux roux ne s'en prendrait pas à lui, car il avait encore besoin de lui pour absorber les fragments restants. Parmi ceux qui avaient réussi à fuir, le groupe de Dou Mu ne figurait pas. Tous les dix restaient assis là, calmes et sans expression.
+Wang Lin observait la scène. Il savait que l'homme aux cheveux roux ne s'en prendrait pas à lui, car il avait encore besoin de lui pour absorber les fragments restants. Parmi ceux qui avaient réussi à fuir, le groupe de Duo Mu ne figurait pas. Tous les dix restaient assis là, calmes et sans expression.
 
 À l'extérieur de la barrière, près de quatre cents cercles dorés flottaient. Dans chacun d'eux se trouvait un cultivateur ensanglanté, contenant chacun plus de dix fragments d'âme.
 

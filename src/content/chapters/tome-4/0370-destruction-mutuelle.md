@@ -62,7 +62,7 @@ Le corps de l'ancêtre du Clan Ju Mo trembla et du sang perla au coin de sa bouc
 
 Dans un fracas, un éclair noir déchira le ciel et fondit sur lui.
 
-Sun Tai hurla: « Mon domaine du tonnerre est le fruit d'un prix colossal, après avoir cultivé sur la planète du Tonnerre Céleste pendant cent ans! Tu n'es qu'un vulgaire bâtard du Clan Ju Mo. Meurs! »
+Sun Tai hurla: « Mon domaine du tonnerre est le fruit d'un prix colossal, après avoir cultivé sur la planète Tian Lei pendant cent ans! Tu n'es qu'un vulgaire bâtard du Clan Ju Mo. Meurs! »
 
 Le visage de l'ancêtre s'assombrit en voyant l'éclair noir. Il poussa un rugissement, son corps grandissant de dix mètres, et frappa l'éclair descendant d'un coup de poing.
 

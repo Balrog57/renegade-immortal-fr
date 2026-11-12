@@ -7,7 +7,7 @@ en: Chapter 190 - The Ancient Gods Inheritance (part 4)
 slug: lheritage-du-dieu-ancien-partie-4
 ---
 
-Dans le corps du Dieu Ancien, des cultivateurs démoniaques fouillaient presque chaque recoin de son immense anatomie. Bien que la tâche fût laborieuse pour eux, ils connaissaient parfaitement les lieux, y compris Bossu Meng. Ils ne craignaient même pas les ondes de Qi; certains s'y précipitaient même pour poursuivre leurs recherches.
+Dans le corps du Dieu Ancien, des cultivateurs démoniaques fouillaient presque chaque recoin de son immense anatomie. Bien que la tâche fût laborieuse pour eux, ils connaissaient parfaitement les lieux, y compris Meng Tuozi. Ils ne craignaient même pas les ondes de Qi; certains s'y précipitaient même pour poursuivre leurs recherches.
 
 Malgré leurs efforts, ils ne trouvaient rien. Pourtant, aucun des cultivateurs démoniaques ne renonçait, car la découverte ou non du Dévoreur d'Âmes conditionnait directement leur avenir.
 

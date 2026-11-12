@@ -1,6 +1,6 @@
 ---
 n: 343
-title: Pays de Zhu Que
+title: Pays de Suzaku
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 343 - Country of Suzaku
@@ -13,25 +13,25 @@ Après avoir terminé tout cela, d'un geste de la main droite, Wang Lin fit se c
 
 La zone était entourée d'eaux claires et bleues et d'une verdure luxuriante. Des bêtes spirituelles rôdaient même à proximité. Dans l'eau, quelques carpes aux moustaches très longues glissaient; leurs yeux brillaient d'une étincelle de vie, signe qu'elles avaient manifestement acquis une certaine intelligence.
 
-Hongdie portait une robe rouge dont seule la manche de son bras droit était vide. Assis sur un lotus à une dizaine de mètres face à elle se tenait un homme d'âge moyen, très beau. Il contemplait Hongdie avec tendresse et dit: « Jeune sœur de discipline Hongdie, je t'ai offert l'esprit de la mer orientale pour que ton bras repousse. Pourquoi ne l'as-tu pas utilisé? »
+Hongdie portait une robe rouge dont seule la manche de son bras droit était vide. Assis sur un lotus à une dizaine de mètres face à elle se tenait un homme d'âge moyen, très beau. Il contemplait Hongdie avec tendresse et dit: « Junior sœur Hongdie, je t'ai offert l'esprit de la mer orientale pour que ton bras repousse. Pourquoi ne l'as-tu pas utilisé? »
 
-Hongdie ouvrit les yeux et répondit froidement: « Chaque fois que je contemple ma manche vide, mon envie de tuer Ceng Niu grandit! Tant que je ne l'aurai pas tué, mon bras restera manquant. Grand frère de discipline, n'essaie pas de me faire changer d'avis. »
+Hongdie ouvrit les yeux et répondit froidement: « Chaque fois que je contemple ma manche vide, mon envie de tuer Zeng Niu grandit! Tant que je ne l'aurai pas tué, mon bras restera manquant. Senior frère, n'essaie pas de me faire changer d'avis. »
 
-« Ceng Niu! » Une lueur d'intention meurtrière traversa les yeux de l'homme d'âge moyen.
+« Zeng Niu! » Une lueur d'intention meurtrière traversa les yeux de l'homme d'âge moyen.
 
-« Ceng Niu voulait détruire mon Dao de cœur; cependant, grâce à la haine de mon bras perdu, non seulement mon Dao de cœur n'a pas été brisé, mais il est désormais plus complet encore. Le Mont Suzaku veut qu'il m'affronte, cela unifiera ma volonté! » Hongdie leva la tête et regarda au loin.
+« Zeng Niu voulait détruire mon Dao de cœur; cependant, grâce à la haine de mon bras perdu, non seulement mon Dao de cœur n'a pas été brisé, mais il est désormais plus complet encore. Le Mont Suzaku veut qu'il m'affronte, cela unifiera ma volonté! » Hongdie leva la tête et regarda au loin.
 
-« Hmph, si ce n'était pour le Mont Suzaku, je serais déjà sorti pour capturer Ceng Niu afin que tu puisses l'exécuter, jeune sœur de discipline. » Les yeux de l'homme d'âge moyen étincelaient.
+« Hmph, si ce n'était pour le Mont Suzaku, je serais déjà sorti pour capturer Zeng Niu afin que tu puisses l'exécuter, Junior sœur. » Les yeux de l'homme d'âge moyen étincelaient.
 
 Hongdie s'apprêtait à parler quand son expression changea soudainement. Une ligne noire striée de rouge apparut sur son front et se propagea rapidement. Elle pressa précipitamment sa main gauche contre son front. Son visage changeait constamment de couleur tandis qu'elle luttait. Après un long moment, la ligne noire recula, laissant sur son visage une expression de haine profonde.
 
-« Ceng Niu essaie de me blesser en raffinant mon bras perdu. »
+« Zeng Niu essaie de me blesser en raffinant mon bras perdu. »
 
 La main gauche de Hongdie forma de multiples sceaux qu'elle envoya vers son front. Après un long combat, elle parvint péniblement à se redresser avant de se rasseoir, le visage sombre.
 
-« Je vais tuer Ceng Niu, même si cela va à l'encontre des ordres du Mont Suzaku. Au pire, ils me puniront en m'imposant une culture en ermitage pendant cent ans. » Le cœur de l'homme d'âge moyen se serra alors qu'il se détournait pour partir.
+« Je vais tuer Zeng Niu, même si cela va à l'encontre des ordres du Mont Suzaku. Au pire, ils me puniront en m'imposant une culture en ermitage pendant cent ans. » Le cœur de l'homme d'âge moyen se serra alors qu'il se détournait pour partir.
 
-Hongdie murmura: « Grand frère de discipline, si quelqu'un doit tuer Ceng Niu, ce sera moi. Le Mont Suzaku a envoyé deux messages concernant lui. Si tu le tues, la punition ne se limitera pas à cent ans de culture en ermitage. »
+Hongdie murmura: « Senior frère, si quelqu'un doit tuer Zeng Niu, ce sera moi. Le Mont Suzaku a envoyé deux messages concernant lui. Si tu le tues, la punition ne se limitera pas à cent ans de culture en ermitage. »
 
 L'expression de l'homme devint maussade et il se rassea. Cependant, il sortit un morceau de jade, y enregistra quelques informations, puis le lança.
 
@@ -45,13 +45,13 @@ Ce jour-là, un jeune homme vêtu de blanc arriva au pied de la montagne. Dans u
 
 Après un long moment, une voix émana du palais: « Que désires-tu? »
 
-« Le disciple avait reçu l'ordre d'aller en Chu remettre une lettre de défi à Ceng Niu. Cependant, Ceng Niu ne l'a pas acceptée et a repoussé l'échéance de dix ans. » Feng Yushan n'osait absolument pas mentir.
+« Le disciple avait reçu l'ordre d'aller en Chu remettre une lettre de défi à Zeng Niu. Cependant, Zeng Niu ne l'a pas acceptée et a repoussé l'échéance de dix ans. » Feng Yushan n'osait absolument pas mentir.
 
-La voix dans le palais répondit d'un ton sombre: « Hmph! Ceng Niu ne connaît vraiment pas sa place. Tu peux partir. Quelqu'un d'autre le fera venir ici. »
+La voix dans le palais répondit d'un ton sombre: « Hmph! Zeng Niu ne connaît vraiment pas sa place. Tu peux partir. Quelqu'un d'autre le fera venir ici. »
 
 Le front de Feng Yushan était couvert de sueur alors qu'il s'éclipsait rapidement.
 
-« Zi Wu, va chercher Ceng Niu! » Alors que la voix résonnait dans le palais, une silhouette enveloppée de brume apparut soudainement.
+« Zi Wu, va chercher Zeng Niu! » Alors que la voix résonnait dans le palais, une silhouette enveloppée de brume apparut soudainement.
 
 Zi Wu demanda d'un ton paresseux: « Mort ou vif? »
 
@@ -63,7 +63,7 @@ Pourtant, à cet instant précis, une lumière rouge descendit du sommet du Mont
 
 Après un long silence, un léger reniflement s'échappa du palais: « Laisse tomber, tu n'as pas besoin d'y aller; nous l'attendrons dix ans. »
 
-Zi Wu haussa les épaules et disparut dans le Mont Suzaku. À l'intérieur du palais, un vieil homme aux cheveux et aux sourcils entièrement blancs fixait le jade rouge dans sa main en marmonnant: « Quel genre d'arrière-plan Ceng Niu possède-t-il pour que l'Ancien ait dû intervenir trois fois? »
+Zi Wu haussa les épaules et disparut dans le Mont Suzaku. À l'intérieur du palais, un vieil homme aux cheveux et aux sourcils entièrement blancs fixait le jade rouge dans sa main en marmonnant: « Quel genre d'arrière-plan Zeng Niu possède-t-il pour que l'Ancien ait dû intervenir trois fois? »
 
 ***
 

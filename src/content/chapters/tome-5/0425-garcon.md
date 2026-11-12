@@ -76,7 +76,7 @@ L'arrivée de Zhu Quezi avait plongé Du Tian dans le désespoir; pourtant, les 
 
 Il s'assit en position de lotus, un sourire aux lèvres, et ferma lentement les yeux.
 
-« Grand frère, ta prédiction s'est réalisée… Moi, Du Tian, je peux te rencontrer, ainsi que notre Maître et tous nos ancêtres, avec le sourire. Je, Du Tian, ne suis pas un pécheur envers la Secte Lian Hun. J'ai trouvé un nouvel espoir pour lui. Je vois déjà qu'à l'avenir, ma Secte deviendra une puissance dépassant les pays de culture de rang 6. Moi, Du Tian, j'ai laissé ma marque dans l'histoire de la Secte Lian Hun… »
+« Senior frère, ta prédiction s'est réalisée… Moi, Du Tian, je peux te rencontrer, ainsi que notre Maître et tous nos ancêtres, avec le sourire. Je, Du Tian, ne suis pas un pécheur envers la Secte Lian Hun. J'ai trouvé un nouvel espoir pour lui. Je vois déjà qu'à l'avenir, ma Secte deviendra une puissance dépassant les pays de culture de rang 6. Moi, Du Tian, j'ai laissé ma marque dans l'histoire de la Secte Lian Hun… »
 
 « Maître, j'ai réussi à accomplir ce que je vous avais promis. Je, Du Tian, suis prêt à effacer ma conscience pour entrer dans le drapeau des âmes pour l'éternité! »
 
@@ -88,7 +88,7 @@ Il s'assit en position de lotus, un sourire aux lèvres, et ferma lentement les 
 
 *Le jeune homme grandit au sein de la Secte Lian Hun. Ce talentueux disciple se distingua immédiatement des autres. Il fit tout cela pour cette unique phrase.*
 
-*Afin de suivre les traces du vieil homme, il cultiva sans relâche chaque jour. Jour après jour, année après année, il poursuivit cette austère culture jusqu'à ce qu'il comprenne les cieux et atteigne le stade de la Formation de l'Âme. Il devint le disciple du vieil homme, reçut pour nom taoïste Du Tian, et le suivit partout.*
+*Afin de suivre les traces du vieil homme, il cultiva sans relâche chaque jour. Jour après jour, année après année, il poursuivit cette austère culture jusqu'à ce qu'il comprenne les cieux et atteigne le stade de la Formation de l'Âme. Il devint le disciple du vieil homme, reçut pour nom daoïste Du Tian, et le suivit partout.*
 
 *Le temps est comme une chanson; il vient un jour où elle s'achève et où les gens s'en vont. Avant que l'âme de son maître n'entre dans le drapeau des âmes d'un milliard, il avait fait la promesse de protéger la Secte Lian Hun pour le restant de ses jours, simplement pour cette phrase entendue dans sa jeunesse.*
 

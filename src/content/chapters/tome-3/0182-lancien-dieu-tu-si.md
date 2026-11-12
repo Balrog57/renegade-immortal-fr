@@ -128,7 +128,7 @@ La pagode ne semblait présenter aucune restriction. Il se dirigea rapidement ve
 
 Il s'était ennuyé à mourir ces derniers jours et était ravi d'être libéré. Cependant, lorsqu'il vit Wang Lin, son expression se figea instantanément, laissant place à la stupéfaction.
 
-Wang Lin avait changé depuis la dernière fois que Xu Liguo l'avait vu. Les cheveux de ce démon étaient devenus d'un blanc immaculé et ses yeux semblaient pouvoir percer les cœurs. Au premier regard, Xu Liguo fut terrifié. Il gémit intérieurement: « Comment ce démon est-il encore devenu plus fort... à ce rythme, quand pourrai-je échapper à sa main... même si je me battais sans souci de ma vie, ce serait vain. »
+Wang Lin avait changé depuis la dernière fois que Xu Liguo l'avait vu. Les cheveux de Wang Lin étaient devenus d'un blanc immaculé et ses yeux semblaient pouvoir percer les cœurs. Au premier regard, Xu Liguo fut terrifié. Il gémit intérieurement: « Comment ce démon est-il encore devenu plus fort... à ce rythme, quand pourrai-je échapper à sa main... même si je me battais sans souci de ma vie, ce serait vain. »
 
 Auparavant, Xu Liguo ne ressentait cela que lorsque Wang Lin utilisait toute la puissance de son âme. Désormais, il éprouvait cette crainte même alors que Wang Lin n'utilisait aucune force particulière. Cela démontrait clairement à quel point la maîtrise des restrictions de Wang Lin avait progressé durant ces 13 années.
 

@@ -14,7 +14,7 @@ Ces morts survinrent silencieusement; elles étaient impossibles à éviter et n
 
 Heureusement, peu de personnes périrent, mais si le Cristal de la Planète de Culture s'effondrait, la planète entière serait condamnée...
 
-Le rire dément de Zhu Quezi résonna dans le Mont Suzaku. Assis à l'intérieur de la montagne, ses yeux étaient empreints de folie. Il afficha un sourire cruel et murmura pour lui-même: « Mon cher frère cadet, comment profites-tu du jeu... Le jeu ne fait que commencer et n'a pas encore atteint son apogée. Mon bon disciple, Qian Feng, j'espère que tu utiliseras ce trésor que je t'ai confié. Une fois ce trésor utilisé, le paroxysme de ce jeu pourra enfin débuter... »
+Le rire dément de Zhu Quezi résonna dans le Mont Suzaku. Assis à l'intérieur de la montagne, ses yeux étaient empreints de folie. Il afficha un sourire cruel et murmura pour lui-même: « Mon cher Junior frère, comment profites-tu du jeu... Le jeu ne fait que commencer et n'a pas encore atteint son apogée. Mon bon disciple, Qian Feng, j'espère que tu utiliseras ce trésor que je t'ai confié. Une fois ce trésor utilisé, le paroxysme de ce jeu pourra enfin débuter... »
 
 Sur la montagne spirituelle, dans la partie intérieure du tombeau de Suzaku, l'effondrement dura soixante respirations. De nouvelles fissures apparurent sur la porte, la recouvrant presque entièrement.
 

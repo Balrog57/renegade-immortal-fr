@@ -56,11 +56,11 @@ Huo Hongfei fit un geste de la main. En les observant, il fronça les sourcils e
 
 Il est vrai que si l'apparence ne changeait pas à l'intérieur du champ de bataille étranger, on vieillissait instantanément de cinquante ans dès la sortie. Bien que la méthode de culture utilisée par les trois ait aidé à maintenir leur jeunesse, ils ne devraient pas ressembler exactement à ce qu'ils étaient avant leur départ.
 
-Yang Xiong était le disciple aîné et également le disciple favori du maître du Sanctuaire. Après avoir entendu Huo Hongfei, il répondit rapidement: « L'Ancien l'ignore, mais mon jeune frère de discipline, Ma Liang, s'est procuré des pilules capables de préserver notre apparence pendant cent ans chacune. Nous en avons tous les trois pris deux. »
+Yang Xiong était le Senior frère et également le disciple favori du maître du Sanctuaire. Après avoir entendu Huo Hongfei, il répondit rapidement: « L'Ancien l'ignore, mais mon Junior frère Ma Liang, s'est procuré des pilules capables de préserver notre apparence pendant cent ans chacune. Nous en avons tous les trois pris deux. »
 
-Les disciples aux alentours, en entendant cela, les regardèrent avec envie. Surtout la jeune femme qui, jusqu'alors, observait Zhou Zihong d'un air dubitatif. Elle demanda soudain: « Sœur aînée Zhou, possédez-vous encore ces pilules? »
+Les disciples aux alentours, en entendant cela, les regardèrent avec envie. Surtout la jeune femme qui, jusqu'alors, observait Zhou Zihong d'un air dubitatif. Elle demanda soudain: « Senior sœur Zhou, possédez-vous encore ces pilules? »
 
-Zhou Zihong lui lança un regard froid et répondit: « Tu devrais demander à mon jeune frère de discipline, Ma Liang. »
+Zhou Zihong lui lança un regard froid et répondit: « Tu devrais demander à mon Junior frère Ma Liang. »
 
 La jeune femme fut irritée, mais elle se contenta de sourire sans plus rien dire. Elle pensa secrètement que le timide Ma Liang devait déjà être mort, alors comment pourrait-elle encore l'interroger? De toute évidence, Zhou Zihong ne voulait pas lui répondre.
 
@@ -68,13 +68,13 @@ Le jeune homme à ses côtés lui murmura quelque chose à l'oreille. La jeune f
 
 Huo Hongfei ignora les deux jeunes gens. Il se tourna de nouveau vers le groupe de Zhou Zihong et dit: « Bien, puisque tout le monde est revenu, nous allons rentrer. L'Ancêtre Luanfeng est sorti de sa culture en porte fermée pour que vous lui rapportiez ce qui s'est passé sur le champ de bataille étranger. » Il lança un regard significatif aux trois disciples.
 
-Lin Tao hésita un instant et murmura: « Mon jeune frère Ma Liang est encore là-bas. La situation était critique, alors il nous a dit de rentrer en premier et qu'il nous suivrait. »
+Lin Tao hésita un instant et murmura: « Mon Junior frère Ma Liang est encore là-bas. La situation était critique, alors il nous a dit de rentrer en premier et qu'il nous suivrait. »
 
 Huo Hongfei haussa les sourcils et demanda avec une pointe de surprise: « Ma Liang? Est-il lui aussi l'un des rares survivants chanceux? »
 
 À ces mots, les expressions des disciples du Sanctuaire du Dieu de la Guerre devinrent étranges. Surtout celle de la belle jeune femme qui s'exclama: « Ma Liang n'est pas mort? »
 
-L'expression de Zhou Zihong était indéchiffrable. Elle regarda la jeune femme et dit: « Ma petite sœur peut se détendre. Durant ces années sur le champ de bataille étranger, sa personnalité a changé. Celui qu'il est aujourd'hui ne te dérangera plus. »
+L'expression de Zhou Zihong était indéchiffrable. Elle regarda la jeune femme et dit: « Junior sœur, tu peux te détendre. Durant ces années sur le champ de bataille étranger, sa personnalité a changé. Celui qu'il est aujourd'hui ne te dérangera plus. »
 
 La jeune femme fronça les sourcils. Elle secoua la tête en disant: « Vous ne comprenez pas. Ah, comment Ma Liang pourrait-il encore être en vie? »
 
@@ -82,7 +82,7 @@ Huo Hongfei la fixa et tonna: « Quelles absurdités! Xu Si, souhaites-tu que Ma
 
 La jeune femme baissa la tête et n'osa plus parler. Le jeune homme à ses côtés intervint: « De quoi as-tu peur? S'il ose encore te déranger, je serai là. »
 
-Yang Xiong soupira et dit d'une voix profonde: « Petite sœur, le jeune frère Ma Liang ne te dérangera plus. Sois tranquille. » En pensée, il ajouta: « La personnalité de cet aîné est glaciale. Comment pourrait-il bien pouvoir te courtiser? »
+Yang Xiong soupira et dit d'une voix profonde: « Junior sœur, le Junior frère Ma Liang ne te dérangera plus. Sois tranquille. » En pensée, il ajouta: « La personnalité de ce senior est glaciale. Comment pourrait-il bien pouvoir te courtiser? »
 
 À ce moment précis, le réseau de transfert s'illumina soudainement de nouveau. Tous les regards se tournèrent vers lui pour voir une silhouette mince et frêle en sortir.
 

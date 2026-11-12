@@ -20,11 +20,11 @@ Le bras droit du Magicien Démon Céleste trembla. Il connaissait trop bien cett
 
 On pouvait affirmer avec justesse que cet homme était un cultivateur antique qui n'était encore en vie aujourd'hui que grâce à des circonstances exceptionnelles.
 
-« Ce subordonné, grand Seigneur Dou Mu... »
+« Ce subordonné, grand Seigneur Duo Mu... »
 
 Le Magicien Démon Céleste força un sourire. Il n'osa pas bouger sa main droite. Même s'il parvenait à absorber le cristal de glace, il lui faudrait du temps pour le digérer, et si l'homme devant lui décidait de le tuer, cela ne prendrait qu'une seconde.
 
-À ce moment-là, un homme d'âge moyen aux cheveux violets, vêtu d'une tenue daoïste rouge, apparut en flottant lentement au loin. Sa taille était celle d'un homme ordinaire. Contrairement à Bossu Meng ou au Magicien Démon Céleste, il ne s'était pas transformé en démon et conservait une apparence humaine.
+À ce moment-là, un homme d'âge moyen aux cheveux violets, vêtu d'une tenue daoïste rouge, apparut en flottant lentement au loin. Sa taille était celle d'un homme ordinaire. Contrairement à Meng Tuozi ou au Magicien Démon Céleste, il ne s'était pas transformé en démon et conservait une apparence humaine.
 
 Il semblait tout à fait banal, mais il était enveloppé d'une aura singulière. Quiconque posait les yeux sur lui en ressentait une nervosité immédiate.
 
@@ -44,7 +44,7 @@ Bien que le Magicien Démon Céleste eût le cœur déchiré, aucune trace de m�
 
 « Qu'est-ce que c'est? » La voix de l'homme d'âge moyen était neutre, mais empreinte d'une dignité indescriptible. Il jeta un coup d'œil au cristal, sans parvenir à y déceler quoi que ce soit de spécial.
 
-Le Magicien Démon Céleste s'exécuta rapidement et respectueusement: « Seigneur Dou Mu, ce cristal de glace est issu de toute la culture de mon disciple, le Seigneur Démon des Six Désirs. La raison pour laquelle je l'ai pris pour disciple à l'époque était de prélever plus tard son cristal cérébral afin d'accroître ma culture. Si cela vous plaît, Seigneur, considérez-le comme un présent de votre subordonné. »
+Le Magicien Démon Céleste s'exécuta rapidement et respectueusement: « Seigneur Duo Mu, ce cristal de glace est issu de toute la culture de mon disciple, le Seigneur Démon des Six Désirs. La raison pour laquelle je l'ai pris pour disciple à l'époque était de prélever plus tard son cristal cérébral afin d'accroître ma culture. Si cela vous plaît, Seigneur, considérez-le comme un présent de votre subordonné. »
 
 L'homme d'âge moyen lança un regard au Magicien Démon Céleste, puis saisit le cristal entre deux doigts et dit d'un ton neutre: « Vraiment? » Tout en parlant, il exerça une légère pression. Le cristal de glace vola en éclats et se dissipa dans l'air environnant.
 

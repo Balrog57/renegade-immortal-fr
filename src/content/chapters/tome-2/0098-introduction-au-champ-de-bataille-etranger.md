@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 98 - Introduction to the Foreign Battleground
 slug: introduction-au-champ-de-bataille-etranger
 ---
-Dans tout le pays de Zhao, les quelques rares experts de l'Âme Naissante se dirigèrent tous aussitôt vers la Tour Céleste.
+Dans tout le pays de Zhao, les quelques rares experts de l'Âme Naissante se dirigèrent tous aussitôt vers la Tour Tong Tian.
 
 Au plus profond des cavernes de la Secte Shi Yin, un éclat vif passa dans les yeux de Ye Zizai alors qu'il disparaissait de la pièce pour se téléporter et s'enfuir au loin. Avant de partir, il utilisa son jade vert pour transmettre un ordre à tous les disciples de la Secte Shi Yin:
 
@@ -16,17 +16,17 @@ L'ancêtre de la famille Teng, Teng Huayuan, méditait dans la demeure ancestral
 
 La même scène se produisit au même moment dans les sectes démoniaques comme la Secte Tian Dao, la Secte He Huan et la Vallée Wu Feng, et dans les sectes orthodoxes comme la Secte Piao Miao, la Secte Yuan Tian et la Secte Jie Mie.
 
-Depuis plusieurs endroits du territoire de Zhao, des traînées de lumière convergèrent à toute vitesse vers la Tour Céleste.
+Depuis plusieurs endroits du territoire de Zhao, des traînées de lumière convergèrent à toute vitesse vers la Tour Tong Tian.
 
-La Tour Céleste était le bâtiment emblématique de l'adhésion à l'Union de la Culture. Lorsqu'un pays membre rejoignait l'Union, celle-ci faisait ériger la tour en son nom. Un messager de l'Union y résidait en permanence; ce dernier ne s'immisçait pas dans les affaires du pays hôte et n'intervenait que pour résoudre les crises majeures.
+La Tour Tong Tian était le bâtiment emblématique de l'adhésion à l'Union de la Culture. Lorsqu'un pays membre rejoignait l'Union, celle-ci faisait ériger la tour en son nom. Un messager de l'Union y résidait en permanence; ce dernier ne s'immisçait pas dans les affaires du pays hôte et n'intervenait que pour résoudre les crises majeures.
 
-Pu Nanzi fut le premier cultivateur de l'Âme Naissante à atteindre la Tour Céleste. Après tout, il était le dernier survivant des cultivateurs de l'Âme Naissante d'il y a cinq cents ans. Son niveau de culture atteignait déjà le stade intermédiaire de l'Âme Naissante, et il n'était plus qu'à un pas du stade avancé.
+Pu Nanzi fut le premier cultivateur de l'Âme Naissante à atteindre la Tour Tong Tian. Après tout, il était le dernier survivant des cultivateurs de l'Âme Naissante d'il y a cinq cents ans. Son niveau de culture atteignait déjà le stade intermédiaire de l'Âme Naissante, et il n'était plus qu'à un pas du stade avancé.
 
 Grâce à l'expérience acquise sur le champ de bataille étranger, il occupait solidement la position de cultivateur le plus puissant de Zhao.
 
-Vêtu d'une robe grise, il apparut au pied de l'édifice. La Tour Céleste, une structure octogonale, s'élançait jusqu'aux cieux. Des éclats de lumière jaillissaient de la tour, lui conférant un aspect profondément mystérieux.
+Vêtu d'une robe grise, il apparut au pied de l'édifice. La Tour Tong Tian, une structure octogonale, s'élançait jusqu'aux cieux. Des éclats de lumière jaillissaient de la tour, lui conférant un aspect profondément mystérieux.
 
-Pu Nanzi leva les yeux vers la Tour Céleste, une pointe de crainte subsistant dans son regard. C'était la deuxième fois qu'il venait ici. La première fois, il y a cinq cents ans, lorsque les vingt-trois cultivateurs de l'Âme Naissante de Zhao furent contraints par un pays de rang 4 à pénétrer dans le champ de bataille étranger.
+Pu Nanzi leva les yeux vers la Tour Tong Tian, une pointe de crainte subsistant dans son regard. C'était la deuxième fois qu'il venait ici. La première fois, il y a cinq cents ans, lorsque les vingt-trois cultivateurs de l'Âme Naissante de Zhao furent contraints par un pays de rang 4 à pénétrer dans le champ de bataille étranger.
 
 Cinq cents ans plus tard, il était le seul à être revenu.
 
@@ -38,7 +38,7 @@ Il avait vu de ses propres yeux l'un des cultivateurs de l'Âme Naissante de Zha
 
 Plus Pu Nanzi en voyait, plus sa terreur grandissait; et plus il avait peur, plus son désir de franchir le stade de l'Âme Naissante devenait impérieux. Durant ces cinq cents ans sur le champ de bataille étranger, il avait appris qu'au-delà du stade de la Formation de l'Âme, existait celui de la Transformation de l'Âme.
 
-Le cœur lourd de sentiments partagés, il s'inclina devant la Tour Céleste et déclara: « Messager, Pu Nanzi de la Secte Xuan Dao est ici. »
+Le cœur lourd de sentiments partagés, il s'inclina devant la Tour Tong Tian et déclara: « Messager, Pu Nanzi de la Secte Xuan Dao est ici. »
 
 « Pu Nanzi, nous pouvons être considérés comme de vieilles connaissances. Nul besoin d'être si formel. » Une voix chaleureuse émana de la tour, suivie de l'apparition d'un vieil homme. Ce dernier était légèrement rondouillard, d'apparence insignifiante, sans rien de remarquable, et portait une robe verte en satin qui accentuait son ventre rond, lui donnant un air presque comique.
 
@@ -58,9 +58,9 @@ Peu après, plus d'une dizaine de personnes arrivèrent, dont Teng Huayuan. Le d
 
 Une fois que tous les cultivateurs de l'Âme Naissante furent réunis, l'arc-en-ciel dans le ciel devint plus dense encore. L'expression du messager se fit solennelle; il traça quelques sceaux qu'il projeta vers la voûte céleste.
 
-Aussitôt, les nuages s'agitèrent et un rayon de lumière rouge descendit du ciel pour frapper la Tour Céleste. Rapidement, les six autres couleurs de l'arc-en-ciel vinrent également se poser sur la tour.
+Aussitôt, les nuages s'agitèrent et un rayon de lumière rouge descendit du ciel pour frapper la Tour Tong Tian. Rapidement, les six autres couleurs de l'arc-en-ciel vinrent également se poser sur la tour.
 
-Après avoir absorbé ces sept rayons, la Tour Céleste trembla et un immense pilier de lumière de plusieurs dizaines de mètres de diamètre jaillit en tournoyant de son sommet. Ce pilier s'élança jusqu'aux nuages pour former un immense trou noir, autour duquel des anneaux d'éclairs blancs se déplaçaient.
+Après avoir absorbé ces sept rayons, la Tour Tong Tian trembla et un immense pilier de lumière de plusieurs dizaines de mètres de diamètre jaillit en tournoyant de son sommet. Ce pilier s'élança jusqu'aux nuages pour former un immense trou noir, autour duquel des anneaux d'éclairs blancs se déplaçaient.
 
 En levant les yeux, on pouvait voir des ondulations se propager vers l'extérieur, le pilier de lumière en servant de centre. Les nuages autour du pilier de lumière fondaient, à une vitesse visible à l'œil nu, comme de la neige sous une eau bouillante.
 
@@ -84,7 +84,7 @@ Sur ces mots, le géant ouvrit la bouche et sept rayons de lumière s'en échapp
 
 Si Wang Lin avait été présent, il aurait immédiatement reconnu la perle qu'il gardait près de sa poitrine.
 
-Le géant marmonna quelques mots, puis une main colossale surgit du trou noir pour saisir le pilier de lumière au sommet de la Tour Céleste. Il rugit: « Lin Yi, je prends ce trésor magique aux sept couleurs. Je ne peux pas venir pour rien. »
+Le géant marmonna quelques mots, puis une main colossale surgit du trou noir pour saisir le pilier de lumière au sommet de la Tour Tong Tian. Il rugit: « Lin Yi, je prends ce trésor magique aux sept couleurs. Je ne peux pas venir pour rien. »
 
 Dans une violente secousse, le pilier de lumière fut arraché de force par le géant et tiré dans le trou noir, qui disparut aussitôt sans laisser de trace. Les nuages de sept couleurs se dispersèrent, le ciel retrouva son aspect normal en un clin d'œil et l'immense pression qui pesait sur tout Zhao s'évanouit.
 

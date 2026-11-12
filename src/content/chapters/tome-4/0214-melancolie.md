@@ -16,7 +16,7 @@ D'une voix empreinte de regret, Cheng Xian dit: « L'Ancienne Li est d'une grâc
 
 Wang Lin hocha la tête, mais resta silencieux tout en continuant d'avancer.
 
-Cheng Xian cligna des yeux à plusieurs reprises avant de suivre rapidement Wang Lin. Il demanda: « Grand frère martial, quand irons-nous à la cour ouest? »
+Cheng Xian cligna des yeux à plusieurs reprises avant de suivre rapidement Wang Lin. Il demanda: « Senior frère, quand irons-nous à la cour ouest? »
 
 Wang Lin regarda le ciel et répondit: « Après avoir rendu visite au grand-maître, je t'accompagnerai à la cour ouest. Mais, comme je te l'ai déjà dit, je ne connais pas cette jeune fille. Je ne connais même pas son nom. Si cela ne fonctionne pas, tant pis. »
 
@@ -142,23 +142,23 @@ C'était le présent que Wang Lin lui avait offert avant son départ. Cette gout
 
 « Si c'était vraiment lui, pourquoi ce sang n'a-t-il pas réagi? » Li Muwan se mordit la lèvre et soupira.
 
-À cet instant, une voix retentit de l'extérieur: « Jeune sœur martiale, pourriez-vous sortir un instant? »
+À cet instant, une voix retentit de l'extérieur: « Junior sœur, pourriez-vous sortir un instant? »
 
 Li Muwan fronça légèrement les sourcils et ouvrit la porte. Elle vit un beau cultivateur d'âge mûr s'avancer vers elle avec un sourire chaleureux.
 
-En voyant Li Muwan, il afficha une affection non dissimulée et dit doucement: « Jeune sœur, il y a un mois, je vous ai entendue dire qu'il vous manquait un Long Yan Zhi. J'ai fouillé tout le pays de Chu et je l'ai enfin trouvé à la lisière des monts de Pierres Brisées, dans la Terre Xian Yi. » Il sortit alors une boîte en jade contenant un zhi entièrement violet-rouge, de l'épaisseur d'un bras.
+En voyant Li Muwan, il afficha une affection non dissimulée et dit doucement: « Junior sœur, il y a un mois, je vous ai entendue dire qu'il vous manquait un Long Yan Zhi. J'ai fouillé tout le pays de Chu et je l'ai enfin trouvé à la lisière des monts de Pierres Brisées, dans la Terre Xian Yi. » Il sortit alors une boîte en jade contenant un zhi entièrement violet-rouge, de l'épaisseur d'un bras.
 
-Le visage de Li Muwan resta impassible. Elle ne daigna même pas regarder la boîte et répondit: « Je vous remercie pour votre gentillesse, Senior Frère Sun, mais j'ai déjà trouvé un substitut et réussi à raffiner la pilule il y a trois jours. Le frère Sun n'a qu'à le garder. »
+Le visage de Li Muwan resta impassible. Elle ne daigna même pas regarder la boîte et répondit: « Je vous remercie pour votre gentillesse, Senior frère Sun, mais j'ai déjà trouvé un substitut et réussi à raffiner la pilule il y a trois jours. Le frère Sun n'a qu'à le garder. »
 
-L'homme sourit chaleureusement. Il mit la boîte de côté et dit avec douceur: « Jeune sœur, l'Ancêtre a de bonnes intentions. Après tout, vous n'êtes pas une disciple directe de la Secte Yun Tian. Si vous souhaitez acquérir de meilleures techniques d'alchimie, vous devrez choisir un disciple direct pour former un couple de culture. Nous nous connaissons depuis longtemps; je suis sûr que vous comprenez mes sentiments. »
+L'homme sourit chaleureusement. Il mit la boîte de côté et dit avec douceur: « Junior sœur, l'Ancêtre a de bonnes intentions. Après tout, vous n'êtes pas une disciple directe de la Secte Yun Tian. Si vous souhaitez acquérir de meilleures techniques d'alchimie, vous devrez choisir un disciple direct pour former un couple de culture. Nous nous connaissons depuis longtemps; je suis sûr que vous comprenez mes sentiments. »
 
 Un éclair de froideur traversa les yeux de Li Muwan. Elle fixa l'homme et trancha: « Ne reparlez plus jamais de cette affaire! »
 
-L'homme la regarda silencieusement. Après un long moment, il dit calmement: « Jeune sœur, si je ne vous avais pas sauvée lorsque vous êtes venue ici depuis le pays de Huo Fen, vous seriez morte. Comment ai-je agi envers vous ces dernières années? Je veux comprendre pourquoi vous vous y opposez ainsi. »
+L'homme la regarda silencieusement. Après un long moment, il dit calmement: « Junior sœur, si je ne vous avais pas sauvée lorsque vous êtes venue ici depuis le pays de Huo Fen, vous seriez morte. Comment ai-je agi envers vous ces dernières années? Je veux comprendre pourquoi vous vous y opposez ainsi. »
 
 Li Muwan réfléchit. La silhouette d'un homme flotta inconsciemment dans son esprit. Elle refoula cette pensée et dit: « Sans raison... »
 
-L'homme soupira, la voix toujours douce: « Jeune sœur, l'Ancêtre a personnellement donné ses ordres. Tout est déjà décidé, je vous prie donc d'y réfléchir à nouveau. » Après cela, il lui lança un regard profond, puis se détourna avec un sourire amer et partit.
+L'homme soupira, la voix toujours douce: « Junior sœur, l'Ancêtre a personnellement donné ses ordres. Tout est déjà décidé, je vous prie donc d'y réfléchir à nouveau. » Après cela, il lui lança un regard profond, puis se détourna avec un sourire amer et partit.
 
 Li Muwan resta un moment immobile devant sa demeure avant de rentrer. Son dos dégageait une tristesse et une solitude infinies.
 

@@ -130,4 +130,4 @@ Le dernier doute qui habitait Mu Rong à l'égard de Wang Lin s'évanouit après
 
 Les pupilles de Wang Lin se contractèrent. Sous le poids de cette présence, il ressentit un effroi indicible. Il tourna la tête vers Mu Rong, qui était déjà à genoux sur le sol.
 
-Une voix sinistre émana de la silhouette: « Es-tu le disciple du frère cadet apprenti Wu Yu? »
+Une voix sinistre émana de la silhouette: « Es-tu le disciple du Junior frère Wu Yu? »

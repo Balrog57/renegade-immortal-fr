@@ -64,7 +64,7 @@ La Quatrième Sœur soupira et demanda: « Sais-tu pourquoi? »
 
 « Dis-le moi, je t'en prie! » Le ton de Wang Lin était calme.
 
-« Le problème principal est que la Division Pourpre est en proie à trop de luttes intestines, et la position de disciple véritable change trop souvent. Contrairement aux six autres divisions où des disciples véritables ont régné pendant plus de mille ans. En conséquence, la Division Pourpre a progressivement décliné et n'a plus la vigueur qu'elle possédait à l'époque du jeune frère Sun Yun. » La Quatrième Sœur laissa échapper un amer soupir et se tut.
+« Le problème principal est que la Division Pourpre est en proie à trop de luttes intestines, et la position de disciple véritable change trop souvent. Contrairement aux six autres divisions où des disciples véritables ont régné pendant plus de mille ans. En conséquence, la Division Pourpre a progressivement décliné et n'a plus la vigueur qu'elle possédait à l'époque du Junior frère Sun Yun. » La Quatrième Sœur laissa échapper un amer soupir et se tut.
 
 Une fois que tous les disciples ordinaires des sept divisions furent apparus, les invités venus pour la célébration se tenaient encore plus loin du centre. Pour ceux qui venaient chercher le Dao, leur niveau de culture ou leur rang n'avaient aucune importance; tant qu'ils participaient à la célébration, ils étaient autorisés à être présents pour l'enseignement.
 

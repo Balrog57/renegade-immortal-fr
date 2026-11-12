@@ -6,15 +6,15 @@ bookTitle: Clean Sweep
 en: Chapter 371 - Mortal
 slug: mortel
 ---
-Après l'affrontement entre Wang Lin et Hongdie, le nom de Ceng Niu acquit un prestige encore plus grand, et les trésors qu'il avait utilisés furent aperçus et retenus par tous les émissaires des différents pays de culture. Une fois ces émissaires retournés dans leurs contrées respectives, la nouvelle se répandit comme une traînée de poudre.
+Après l'affrontement entre Wang Lin et Hongdie, le nom de Zeng Niu acquit un prestige encore plus grand, et les trésors qu'il avait utilisés furent aperçus et retenus par tous les émissaires des différents pays de culture. Une fois ces émissaires retournés dans leurs contrées respectives, la nouvelle se répandit comme une traînée de poudre.
 
 Qu'il s'agisse du drapeau de restriction, de l'épée céleste ou du Char de Guerre Divin, ces objets devinrent soudainement les sujets de conversation les plus brûlants parmi les cultivateurs.
 
-L'individu nommé Ceng Niu fut désormais considéré comme l'être le plus puissant de toute la planète Suzaku en dessous du stade de la Transformation de l'Âme.
+L'individu nommé Zeng Niu fut désormais considéré comme l'être le plus puissant de toute la planète Suzaku en dessous du stade de la Transformation de l'Âme.
 
 Simultanément, le Mont Suzaku diffusa un message indiquant que Hongdie entrait en culture de méditation pendant plus d'un siècle pour tenter de franchir le stade de la Transformation de l'Âme. Personne ne mit cela en doute; après tout, si Hongdie avait gagné une compréhension lors de son combat, il était naturel qu'elle se retire en méditation pour consolider ses acquis.
 
-Cependant, au fil du temps, les gens découvrirent que Ceng Niu avait disparu.
+Cependant, au fil du temps, les gens découvrirent que Zeng Niu avait disparu.
 
 Nul ne savait où il s'était rendu; on savait seulement qu'il s'était volatilisé sans laisser de trace alors qu'il se rendait au Mont Suzaku pour rendre compte de sa mission.
 
@@ -24,7 +24,7 @@ Trois jours auparavant, des ondes contenant de l'énergie spirituelle céleste �
 
 En outre, il avait également ressenti la puissance de la lignée du Clan Ju Mo.
 
-Bien que la culture sur Suzaku fût puissante, il n'était pas un dieu capable de lire l'avenir. Suzaku était vaste et complexe; ainsi, après de longues recherches, il découvrit que l'affaire concernant Ceng Niu avait été déclenchée par Xue Yu et que le Clan Ju Mo y avait pris part.
+Bien que la culture sur Suzaku fût puissante, il n'était pas un dieu capable de lire l'avenir. Suzaku était vaste et complexe; ainsi, après de longues recherches, il découvrit que l'affaire concernant Zeng Niu avait été déclenchée par Xue Yu et que le Clan Ju Mo y avait pris part.
 
 Toutefois, il ne parvint pas à identifier l'autre cultivateur du stade de la Transformation de l'Âme.
 

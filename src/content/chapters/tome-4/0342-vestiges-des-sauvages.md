@@ -26,7 +26,7 @@ Wang Lin eut un léger sourire. « Cette question n'est pas urgente. Nous pourro
 
 Le vieil homme Hu pensa secrètement que bien que Wang Lin ne cultivât pas depuis longtemps, il était un vieux renard capable de détourner la conversation avec aisance. Après avoir entendu Wang Lin, il rit et dit: « C'est vrai. Alors, lorsque ce vieil homme sera sur le point d'atteindre le stade de la Transformation de l'Âme, je devrai revenir vous en demander. Quant au Cimetière des Immortels, vous devrez demander à la cultivatrice Zi Xin de vous l'expliquer. »
 
-La femme au voile blanc regarda Wang Lin et dit: « Aîné, il y a un Arbre de Réincarnation au plus profond du Cimetière des Immortels. Cette junior possède une carte qui peut nous y conduire. »
+La femme au voile blanc regarda Wang Lin et dit: « Senior, il y a un Arbre de Réincarnation au plus profond du Cimetière des Immortels. Cette junior possède une carte qui peut nous y conduire. »
 
 Wang Lin prit calmement une gorgée de thé.
 
@@ -36,7 +36,7 @@ En entendant parler de l'« Arbre de Réincarnation », les yeux de Qiu Siping f
 
 La femme au voile blanc observa Wang Lin et constata que son expression n'avait nullement changé après avoir entendu parler de l'Arbre de Réincarnation. Sa réaction était identique à celle du vieil homme Hu. Elle ne put s'empêcher de soupirer intérieurement. Wang Lin était extrêmement rusé, elle ne pouvait absolument pas lire en lui. Il semblait qu'outre la force, la malice d'un cultivateur au stade de la Formation de l'Âme surpassait de loin celle d'un cultivateur de l'Âme Naissante.
 
-Le vieil homme Hu regarda Wang Lin et vit que son expression demeurait de marbre. Désormais, il croyait encore plus les rumeurs concernant Ceng Niu.
+Le vieil homme Hu regarda Wang Lin et vit que son expression demeurait de marbre. Désormais, il croyait encore plus les rumeurs concernant Zeng Niu.
 
 « S'asseoir sous l'Arbre de Réincarnation permet à un cultivateur d'expérimenter un cycle de vie supplémentaire. C'est une chose très bénéfique pour les cultivateurs de la Formation de l'Âme, car cela leur permet d'approfondir leur compréhension de leur domaine », dit la femme au voile blanc en regardant Wang Lin. Elle ne croyait pas qu'il puisse ne pas être tenté.
 
@@ -102,7 +102,7 @@ Le vieil homme Hu se leva et sourit. « Alors, je ne vous dérange plus. Je vous
 
 Qiu Siping et ses compagnons se levèrent rapidement pour prendre congé.
 
-La femme au voile blanc se leva, hésita, puis murmura: « Zi Xin espère vous voir là-bas, aîné. » Elle s'envola ensuite.
+La femme au voile blanc se leva, hésita, puis murmura: « Zi Xin espère vous voir là-bas, Senior. » Elle s'envola ensuite.
 
 Le vieil homme qui l'accompagnait joignit les mains et la suivit.
 

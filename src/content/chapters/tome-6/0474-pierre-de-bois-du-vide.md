@@ -1,6 +1,6 @@
 ---
 n: 474
-title: Pierre de bois du vide
+title: Pierre Kunmu
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 474 - Void Wood Stone
@@ -17,11 +17,11 @@ Wang Lin regarda le jeune homme, réfléchit un instant, puis hocha la tête. Di
 
 Li Dannan afficha immédiatement une expression respectueuse et demanda: « Senior, recherchez-vous des trésors magiques, des jades célestes, des pilules ou des matériaux? Ou peut-être des runes ou des sorts? »
 
-Wang Lin répondit calmement: « Je cherche la pierre de bois du vide. En avez-vous entendu parler? »
+Wang Lin répondit calmement: « Je cherche la pierre Kunmu. En avez-vous entendu parler? »
 
-« La pierre de bois du vide... » Li Dannan eut un air pensif avant que ses yeux ne s'illuminent: « S'agit-il de la pierre de bois du vide qui possède l'élément bois, mais qui croît comme une pierre et ne gagne que 3,3 centimètres tous les mille ans? »
+« La pierre Kunmu... » Li Dannan eut un air pensif avant que ses yeux ne s'illuminent: « S'agit-il de la pierre Kunmu qui possède l'élément bois, mais qui croît comme une pierre et ne gagne que 3,3 centimètres tous les mille ans? »
 
-Wang Lin fut très surpris que cet homme connaisse la pierre de bois du vide. Cela prouvait qu'il en savait long. Cette pierre était l'un des matériaux mentionnés dans les souvenirs de Tu Si pour la fabrication de la boussole stellaire d'un Dieu Ancien.
+Wang Lin fut très surpris que cet homme connaisse la pierre Kunmu. Cela prouvait qu'il en savait long. Cette pierre était l'un des matériaux mentionnés dans les souvenirs de Tu Si pour la fabrication de la boussole stellaire d'un Dieu Ancien.
 
 Les membres du clan des Dieux Anciens n'avaient généralement pas besoin d'un tel objet, car ils pouvaient traverser l'espace par la seule force de leur corps.
 
@@ -55,7 +55,7 @@ Le propriétaire du stand était un homme au visage rubicond. Il regarda Li Dann
 
 Grâce à sa culture, il comprit d'un seul coup d'œil que Wang Lin n'était pas un individu ordinaire. Il devint immédiatement respectueux: « Senior, junior est Zhang Hualin. Je me demande ce que le Senior recherche. »
 
-Wang Lin fixa le vieil homme au visage rouge et dit: « La pierre de bois du vide! »
+Wang Lin fixa le vieil homme au visage rouge et dit: « La pierre Kunmu! »
 
 Le vieil homme fut stupéfait: « Le prix de cet objet n'est pas bas, et je ne le vends que pour le compte d'autrui. Cette personne a précisé qu'il n'est pas sujet à l'échange; il ne peut être vendu que pour cinq pierres d'esprit de qualité supérieure! »
 
@@ -69,11 +69,11 @@ L'homme hésita, puis frappa son sac de rangement. Une pierre bleue de la taille
 
 Une fine couche de lumière entourait la pierre. C'était un sort que tout marchand devait maîtriser pour opérer ici: le « Sceau Piège ». Il empêchait quiconque de s'emparer des objets par la force. À moins que l'acheteur ne soit d'un niveau supérieur à celui du vendeur, il fallait dix respirations pour briser ce sort. Ces dix respirations étaient cruciales, car elles permettaient au vendeur de ranger aussitôt l'objet en sécurité.
 
-Wang Lin fit un geste de la main. La pierre s'envola instantanément de la main du vieil homme pour atterrir dans celle de Wang Lin. La lumière ne sembla avoir aucun effet et se brisa dès que la pierre de bois du vide eut quitté la main du vendeur.
+Wang Lin fit un geste de la main. La pierre s'envola instantanément de la main du vieil homme pour atterrir dans celle de Wang Lin. La lumière ne sembla avoir aucun effet et se brisa dès que la pierre Kunmu eut quitté la main du vendeur.
 
 L'expression du vieil homme changea et il prit une profonde inspiration. Il avait pourtant jugé très haut la culture de ce jeune homme, mais il l'avait en réalité sous-estimée. Ce jeune homme devait être au moins au stade de la Transformation de l'Âme!
 
-Wang Lin examina la pierre de bois du vide. Après avoir confirmé qu'il s'agissait du bon article, il fit un geste pour la ranger dans son propre sac de rangement.
+Wang Lin examina la pierre Kunmu. Après avoir confirmé qu'il s'agissait du bon article, il fit un geste pour la ranger dans son propre sac de rangement.
 
 « Senior... » L'expression du vieil homme était devenue lugubre.
 
@@ -85,7 +85,7 @@ Lorsqu'il reporta son attention sur Wang Lin, il n'en vit que le dos disparaîtr
 
 Le vieil homme réfléchit un instant. Après être resté une demi-journée de plus, il quitta précipitamment la ville. Il savait que posséder un trésor attire le malheur et qu'avec cinq pierres d'esprit de qualité supérieure, des cultivateurs du milieu du stade de Formation de l'Âme viendraient le traquer.
 
-Il n'aurait jamais cru vendre un jour cette pierre de bois du vide.
+Il n'aurait jamais cru vendre un jour cette pierre Kunmu.
 
 Quant à Wang Lin, après avoir quitté le marché, il jeta un regard distrait derrière lui. Au moment où il avait acheté la pierre, il avait remarqué trois regards se braquer sur lui comme des éclairs.
 

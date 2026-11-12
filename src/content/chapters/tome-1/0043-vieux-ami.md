@@ -28,7 +28,7 @@ Tenté, il fixa le monstre et se dirigea aussitôt vers la maison des pilules. C
 
 L'obscurité tombait déjà lorsque Wang Lin atteignit la maison des pilules et aperçut Wang Hao sortir prudemment par la porte latérale. En voyant Wang Lin, Wang Hao lui fit signe de se taire et de sortir d'abord.
 
-Wang Lin fut stupéfait. Il déploya son Sens Divin et découvrit que le troisième frère aîné jetait sans relâche diverses drogues dans le fourneau, avec une expression grave et concentrée.
+Wang Lin fut stupéfait. Il déploya son Sens Divin et découvrit que le Troisième Senior frère jetait sans relâche diverses drogues dans le fourneau, avec une expression grave et concentrée.
 
 Peu après, Wang Hao, qui venait de sortir sur la pointe des pieds, vit que Wang Lin restait silencieux. Il le saisit et s'enfuit en courant. Ce n'est qu'après avoir parcouru une certaine distance qu'il put enfin reprendre son souffle.
 
@@ -62,6 +62,6 @@ Wang Lin posa la question cruciale: « Quel intérêt Lu Yunjie y trouve-t-il? �
 
 Le regard de Wang Hao se glaça. Il dit d'une voix sombre: « Il veut m'utiliser comme un fourneau de pilules. Lorsque le disciple des archives m'a transmis l'information, il était écrit que si une personne meurt en pratiquant l'Épreuve du Fourneau de Feu, on peut, en utilisant une méthode spécifique et avec une certaine chance, créer une Pilule de Longévité capable de prolonger la vie de trois ans. »
 
-Wang Lin retint un souffle glacial; ce troisième frère aîné, Lu Yunjie, était d'une cruauté sans nom.
+Wang Lin retint un souffle glacial; ce Troisième Senior frère, Lu Yunjie, était d'une cruauté sans nom.
 
 L'expression de Wang Hao était empreinte de désespoir. Il reprit durement: « Je n'ose pas en parler aux autres Anciens ou au Chef de la secte car, après tout, je suis l'assistant de Lu Yunjie. Selon les lois de la secte, ma vie ne m'appartient plus, elle appartient à Lu Yunjie. Si j'avais su, je n'aurais jamais accepté ce rôle. Hélas, il est trop tard pour les regrets. Il y a un an, Lu Yunjie a découvert que je connaissais le secret et m'a menacé en utilisant mes parents. Désormais, je n'ai plus aucun contrôle sur mon existence. Chaque jour, je dois prendre plusieurs pilules de rassemblement de Qi, et l'énergie spirituelle dans mon corps grandit malgré moi de jour en jour. Selon mes calculs, il ne me reste plus qu'un an à vivre. »

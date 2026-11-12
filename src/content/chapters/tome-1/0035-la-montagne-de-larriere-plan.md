@@ -6,15 +6,15 @@ bookTitle: The Mediocre Youth
 en: Chapter 35 - Back Mountain
 slug: la-montagne-de-larriere-plan
 ---
-Plus de quarante disciples internes se tenaient dans la salle. On y trouvait des disciples de rang noir, blanc et rouge, mais aucun de rang violet. Tous arboraient des expressions graves. Parmi eux, Wang Lin reconnut de nombreux visages familiers, tels que Wang Zhuo, les jeunes filles nommées Xu et Zhou, le frère apprenti Zhang, et bien d'autres encore.
+Plus de quarante disciples internes se tenaient dans la salle. On y trouvait des disciples de rang noir, blanc et rouge, mais aucun de rang violet. Tous arboraient des expressions graves. Parmi eux, Wang Lin reconnut de nombreux visages familiers, tels que Wang Zhuo, les jeunes filles nommées Xu et Zhou, le Senior frère Zhang, et bien d'autres encore.
 
-Juste devant eux siégeaient deux rangées de plus de dix Anciens, tous au visage impassible. Au centre trônait un homme d'une quarantaine d'années, vêtu d'une robe bleue, à l'allure de sage immortel, dont le regard était aussi vif que l'éclair. Il demanda: « Jeune frère Sun, est-ce là votre disciple? »
+Juste devant eux siégeaient deux rangées de plus de dix Anciens, tous au visage impassible. Au centre trônait un homme d'une quarantaine d'années, vêtu d'une robe bleue, à l'allure de sage immortel, dont le regard était aussi vif que l'éclair. Il demanda: « Junior frère Sun, est-ce là votre disciple? »
 
-Sun Dazhu afficha promptement un sourire de circonstance et répondit: « Grand frère Chef de secte, voici mon disciple, Wang Lin. Son entrée dans la secte est tardive, c'est pourquoi il ignore la signification des cinq coups de cloche. »
+Sun Dazhu afficha promptement un sourire de circonstance et répondit: « Senior frère Chef de secte, voici mon disciple, Wang Lin. Son entrée dans la secte est tardive, c'est pourquoi il ignore la signification des cinq coups de cloche. »
 
 Un homme au visage rubicond, assis sur la droite, ricana: « Le disciple ressemble vraiment à son maître. Il est aussi stupide que vous l'étiez autrefois. »
 
-L'homme à ses côtés éclata de rire: « Tu exagères, mon frère. Le jeune frère Sun possédait au moins un certain talent, il valait donc bien mieux que son disciple. »
+L'homme à ses côtés éclata de rire: « Tu exagères, mon frère. Le Junior frère Sun possédait au moins un certain talent, il valait donc bien mieux que son disciple. »
 
 Le visage de Sun Dazhu oscilla entre le rouge et le blanc pendant un instant. Il lança un regard sévère à Wang Lin, poussa un grognement mécontent et, ignorant le garçon, retourna s'asseoir.
 
@@ -36,9 +36,9 @@ Cette vallée était dépourvue de végétation. C'était une falaise percée de
 
 Soudain, Wang Lin sentit qu'on l'observait. Il se retourna et vit Wang Zhuo lui adresser un sourire glacial, empli de mépris.
 
-À ce moment-là, un jeune homme émergea de l'un des orifices de la falaise. Vêtu de pourpre, il lança un regard froid à l'assemblée et déclara: « Chers frères cadets, voici la montagne arrière de la Secte Heng Yue. Même si on l'appelle ainsi, elle ne se trouve pas réellement derrière la montagne Heng Yue: c'est un terrain de culture pour les disciples internes, aménagé il y a 500 ans par plusieurs ancêtres fondateurs au stade de l'Âme Naissante unissant leurs forces. L'énergie spirituelle ici est bien plus dense qu'à l'extérieur. Puisque vous êtes ici, mettez à profit chaque instant pour cultiver et ne relâchez pas vos efforts; sinon, ne reprochez pas à votre frère aîné de vous jeter hors de la montagne. »
+À ce moment-là, un jeune homme émergea de l'un des orifices de la falaise. Vêtu de pourpre, il lança un regard froid à l'assemblée et déclara: « Chers Junior frères, voici la montagne arrière de la Secte Heng Yue. Même si on l'appelle ainsi, elle ne se trouve pas réellement derrière la montagne Heng Yue: c'est un terrain de culture pour les disciples internes, aménagé il y a 500 ans par plusieurs ancêtres fondateurs au stade de l'Âme Naissante unissant leurs forces. L'énergie spirituelle ici est bien plus dense qu'à l'extérieur. Puisque vous êtes ici, mettez à profit chaque instant pour cultiver et ne relâchez pas vos efforts; sinon, ne reprochez pas à votre Senior frère de vous jeter hors de la montagne. »
 
-Wang Lin reconnut ce disciple aux vêtements violets. C'était le second frère apprenti Zhang Kuang, celui qui lui avait pris son liquide d'énergie spirituelle en échange des incantations. La rumeur disait qu'il avait déjà atteint le sixième niveau de la Condensation de Qi et qu'il était insondable.
+Wang Lin reconnut ce disciple aux vêtements violets. C'était le second Senior frère Zhang Kuang, celui qui lui avait pris son liquide d'énergie spirituelle en échange des incantations. La rumeur disait qu'il avait déjà atteint le sixième niveau de la Condensation de Qi et qu'il était insondable.
 
 Wang Lin baissa légèrement la tête. Il connaissait bien les manigances de Zhang Kuang pour en avoir déjà fait les frais: quelques mots de sa part l'avaient plongé, ce jour-là, dans une situation périlleuse.
 
@@ -48,7 +48,7 @@ Certains disciples s'avancèrent pour prendre un flacon avant de commencer à ch
 
 Wang Lin prit une profonde inspiration. Comme il avait utilisé une pilule de déguisement auparavant, cet homme ignorait son identité; il s'approcha donc pour prendre un flacon. Zhang Kuang se tenait sur le côté, observant les disciples récupérer les flacons un à un, lorsqu'il aperçut soudainement Wang Lin. Un regard étrange traversa son visage et il demanda: « Quel est ton nom? Comment se fait-il que tu n'aies même pas atteint le premier niveau de la Condensation de Qi? Qui est ton maître? »
 
-Wang Lin s'arrêta et se retourna. Il dit respectueusement: « Grand frère, mon nom est Wang Lin. Mon maître est Sun Dazhu. Je manque de talent, c'est pourquoi je n'ai pas encore atteint le premier niveau. »
+Wang Lin s'arrêta et se retourna. Il dit respectueusement: « Senior frère, mon nom est Wang Lin. Mon maître est Sun Dazhu. Je manque de talent, c'est pourquoi je n'ai pas encore atteint le premier niveau. »
 
 Zhang Kuang fut stupéfait. Il sourit: « Tu es Wang Lin? J'ai déjà entendu parler de toi. Bien que le talent soit important, la persévérance est également essentielle. Puisque ton talent fait défaut, tu devras travailler encore plus dur! »
 
@@ -56,7 +56,7 @@ Wang Lin promit rapidement d'obéir.
 
 « Cette falaise est trop haute pour toi, puisque tu n'es même pas au premier niveau. Je vais t'aider à monter. » Zhang Kuang agita ses manches. Une force invisible apparut sous les pieds de Wang Lin et le propulsa jusqu'à une grotte.
 
-Wang Lin remercia respectueusement Zhang Kuang. Mais une fois qu'il eut tourné le dos pour entrer dans la cavité, son visage s'assombrit brusquement. S'il n'avait pas déjà rencontré ce frère apprenti, il l'aurait jugé affable; mais connaissant sa véritable nature, il ne prit évidemment pas cette petite faveur à cœur.
+Wang Lin remercia respectueusement Zhang Kuang. Mais une fois qu'il eut tourné le dos pour entrer dans la cavité, son visage s'assombrit brusquement. S'il n'avait pas déjà rencontré ce Senior frère, il l'aurait jugé affable; mais connaissant sa véritable nature, il ne prit évidemment pas cette petite faveur à cœur.
 
 La grotte n'était pas vaste. On n'y trouvait qu'un lit de pierre et un levier sur le mur. Wang Lin s'approcha et tira le levier. Soudain, un grondement retentit tandis qu'une immense paroi de pierre descendait lentement sur l'entrée, jusqu'à la sceller complètement dans un fracas.
 

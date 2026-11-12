@@ -32,7 +32,7 @@ Yun Quezi regarda calmement la figure et dit: « Dès que tu agiras, Zhu Quezi l
 
 « Yun Quezi! Montre-toi! » rugit Zhu Quezi, le visage dévoré par la colère. Sa voix se propagea soudainement dans toutes les directions.
 
-« Frère aîné, l'affrontement entre nous est inévitable. Puisque nous avons appartenu à la même secte pendant mille ans, je te donne trois mois pour te remettre. Après cela, notre combat aura lieu au pied du mont Suzaku! »
+« Senior frère, l'affrontement entre nous est inévitable. Puisque nous avons appartenu à la même secte pendant mille ans, je te donne trois mois pour te remettre. Après cela, notre combat aura lieu au pied du mont Suzaku! »
 
 La voix de Yun Quezi résonna lentement dans le vide.
 
@@ -68,7 +68,7 @@ Yun Quezi reprit lentement: « Premier Ancêtre, si vous voulez que notre clan p
 
 « Cependant, ce qui est fascinant, c'est qu'alors que j'étais à l'Alliance des Quatre Sectes, j'ai rencontré un cultivateur nommé Wang Lin. Son talent était ordinaire et il n'avait rien de spécial, et pourtant, il a été capable de comprendre le Domaine de la Vie et de la Mort. Sur un coup de tête, je l'ai fait devenir mon quatrième candidat. »
 
-« Au départ, je ne prêtais que peu d'attention à cet homme, mais son évolution ultérieure m'a profondément stupéfié. Au Royaume Céleste, il a tranché un bras à Hongdie. À son retour, son niveau de culture avait grimpé en flèche et il avait même attiré l'attention de Zhu Quezi. Du Tian, de la Secte Lian Hun, l'a lui aussi considéré comme son disciple direct et lui a transmis l'Étendard de l'Âme au Milliard d'Âmes. »
+« Au départ, je ne prêtais que peu d'attention à cet homme, mais son évolution ultérieure m'a profondément stupéfié. Au Royaume Céleste, il a tranché un bras à Hongdie. À son retour, son niveau de culture avait grimpé en flèche et il avait même attiré l'attention de Zhu Quezi. Dun Tian, de la Secte Lian Hun, l'a lui aussi considéré comme son disciple direct et lui a transmis l'Étendard de l'Âme au Milliard d'Âmes. »
 
 « Cet homme possède également trop de secrets; parfois, même moi, je ne parviens pas à le percer. Ainsi, finalement, je l'ai désigné comme exécutant de mon plan Suzaku! »
 

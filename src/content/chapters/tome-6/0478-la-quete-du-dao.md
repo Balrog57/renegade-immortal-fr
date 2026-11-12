@@ -50,15 +50,15 @@ L'homme au regard doux et l'homme au visage froid s'inclinèrent avec respect ju
 
 L'homme au visage froid ricana: « Le Pavillon Zi Yun... Intéressant! »
 
-« Frère cadet Zhou, qu’y a-t-il d’intéressant? » demanda l'homme au regard doux en se tournant vers lui.
+« Junior frère Zhou, qu’y a-t-il d’intéressant? » demanda l'homme au regard doux en se tournant vers lui.
 
-« Frère aîné, cherchez-vous à me tester? Le Pavillon Zi Yun n'est pas un lieu où un simple disciple honoraire peut séjourner. Le Pavillon Zi Tian et mon propre Pavillon Zi Meng sont les seuls domaines réservés aux véritables disciples de notre Maître! Je crains que le Pavillon Zi Yun ne soit bientôt rebaptisé le Pavillon Zi Lin! »
+« Senior frère, cherchez-vous à me tester? Le Pavillon Zi Yun n'est pas un lieu où un simple disciple honoraire peut séjourner. Le Pavillon Zi Tian et mon propre Pavillon Zi Meng sont les seuls domaines réservés aux véritables disciples de notre Maître! Je crains que le Pavillon Zi Yun ne soit bientôt rebaptisé le Pavillon Zi Lin! »
 
 L'homme au regard doux sourit: « Wang Lin n'est pas un homme ordinaire, et il semble que le Maître ait été véritablement touché au point d'accepter un nouveau disciple. Nous allons bientôt gagner un autre frère cadet. N'est-ce pas une joie? »
 
 « Frère aîné, épargnez-nous vos paroles de convenance », renifla Zhou avant de s'éloigner.
 
-Seul l'homme au regard doux resta. Ses yeux étaient calmes, mais trahissaient une réflexion profonde. Il murmura pour lui-même: « Le Pavillon Zi Yun... Le choix du Maître est vraiment intrigant... Frère cadet Sun Yun, il semble que le Maître ait véritablement perdu toute foi en toi... »
+Seul l'homme au regard doux resta. Ses yeux étaient calmes, mais trahissaient une réflexion profonde. Il murmura pour lui-même: « Le Pavillon Zi Yun... Le choix du Maître est vraiment intrigant... Junior frère Sun Yun, il semble que le Maître ait véritablement perdu toute foi en toi... »
 
 Quant à Wang Lin, après avoir pénétré dans l'anneau de lumière, sa vision se troubla et il se retrouva dans un monde vaste et immaculé. Il ne percevait aucune limite à cet espace; c’était comme s'il errait dans le cosmos. La solitude commença à peser sur son cœur.
 

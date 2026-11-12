@@ -84,11 +84,11 @@ Trois personnes sortirent du nuage noir du sud. Elles comblèrent la distance en
 
 Deux d'entre elles étaient dans un état illusoire. Elles fixaient Zhu Quezi sans dire un mot. La troisième était une femme. Elle était très belle et son regard exhalait un certain charme. Elle regarda Zhu Quezi, esquissa un sourire et dit: « Cette jeune fille est la troisième ancêtre du Clan Xian Yi, et ces deux-là sont les esprits ancestraux de mon clan. »
 
-Du nuage noir du nord, Yun Quezi apparut. Il murmura vers Zhu Quezi: « Frère aîné. »
+Du nuage noir du nord, Yun Quezi apparut. Il murmura vers Zhu Quezi: « Senior frère. »
 
 Zhu Quezi se tourna brusquement vers lui et demanda: « Dois-je t'appeler Yun Quezi ou deuxième ancêtre? »
 
-Yun Quezi secoua la tête et répondit: « Peu importe. Tu peux m'appeler comme bon te semble, frère aîné. »
+Yun Quezi secoua la tête et répondit: « Peu importe. Tu peux m'appeler comme bon te semble, Senior frère. »
 
 « Vous êtes tous venus. Le seul chaman à onze feuilles du Clan Xian Yi, le premier ancêtre, tu pourrais tout aussi bien sortir de l'ombre. » Les yeux de Zhu Quezi brillèrent alors qu'il scrutait le ciel.
 
@@ -96,7 +96,7 @@ Un rayon de lumière aux cinq couleurs se rassembla dans les cieux et une silhou
 
 Ce premier ancêtre paraissait extrêmement ordinaire, et pourtant, d'un seul coup de paume, il avait fait fuir Chu Yunfei. Sa puissance était comparable à celle d'un cultivateur Ascendant au stade avancé, voire, dans une certaine mesure, supérieure.
 
-Yun Quezi dit d'une voix grave: « Frère aîné, notre objectif n'est pas de détruire la planète Suzaku, mais de trouver un moyen pour que nous puissions coexister. Si tu promets de remettre le Cristal de la Planète de Culture, nous pourrons arrêter cette guerre. Nous diviserons la planète en deux et ne nous dérangerons plus jamais! »
+Yun Quezi dit d'une voix grave: « Senior frère, notre objectif n'est pas de détruire la planète Suzaku, mais de trouver un moyen pour que nous puissions coexister. Si tu promets de remettre le Cristal de la Planète de Culture, nous pourrons arrêter cette guerre. Nous diviserons la planète en deux et ne nous dérangerons plus jamais! »
 
 Zhu Quezi laissa échapper un rire teinté de moquerie: « Si ce n'était pas parce que vous craignez que je détruise le Cristal de la Planète de Culture, vous auriez déjà attaqué sans perdre de temps en ces futilités. »
 

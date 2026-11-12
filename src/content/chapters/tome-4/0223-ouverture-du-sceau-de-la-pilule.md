@@ -59,9 +59,9 @@ Ouyang Zi avait la tête couverte de cheveux blancs et paraissait très vieux, m
 
 Il avait acquis cette capacité en consommant une Pilule de Vision Fantôme, un remède très mystérieux: seul un individu sur dix réussissait à obtenir cette vision; tous les autres devenaient aveugles. Une pilule aussi cruelle offrait évidemment des effets prodigieux pour celui qui parvenait à l'absorber. La vision fantomatique était l'une des raisons de son ascension fulgurante sur le chemin de l'alchimie.
 
-Vêtu d'une large robe grise, Ouyang Zi fixait le ciel. Après un moment, il fronça les sourcils: « Quand je raffine une pilule, je déteste être observé. Jeune frère Chef de Secte, ne le sais-tu pas? »
+Vêtu d'une large robe grise, Ouyang Zi fixait le ciel. Après un moment, il fronça les sourcils: « Quand je raffine une pilule, je déteste être observé. Junior frère Chef de Secte, ne le sais-tu pas? »
 
-Trois personnes sortirent du hall principal. L'une d'elles était le chef de la secte intérieure. Il afficha un sourire amer et dit: « Ne vous l'ai-je pas déjà dit? Lorsque l'Aîné raffine une pilule, il n'autorise personne à regarder. » Puis, s'inclinant devant Ouyang Zi, il ajouta: « Aîné, ces deux personnes sont des invités du pays de culture de rang 3, Tianwu. Ils souhaitent vous voir raffiner une pilule, qu'en dites-vous...? »
+Trois personnes sortirent du hall principal. L'une d'elles était le chef de la secte intérieure. Il afficha un sourire amer et dit: « Ne vous l'ai-je pas déjà dit? Lorsque Senior frère raffine une pilule, il n'autorise personne à regarder. » Puis, s'inclinant devant Ouyang Zi, il ajouta: « Senior frère, ces deux personnes sont des invités du pays de culture de rang 3, Tian Wu. Ils souhaitent vous voir raffiner une pilule, qu'en dites-vous...? »
 
 Les deux individus derrière lui étaient grands et fins, mais dégageaient tous deux une aura puissante. Il était évident que leur niveau de culture était très élevé. Ouyang Zi fronça les sourcils et lança froidement: « Fichez le camp! »
 

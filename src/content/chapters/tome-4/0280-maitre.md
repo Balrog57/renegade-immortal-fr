@@ -62,7 +62,7 @@ Ces comportements étaient devenus si banaux que personne ne méprisait ceux qui
 
 Wang Lin ne put qu'esquisser un sourire amer face à ce constat. Cela ne faisait qu'aggraver l'opinion qu'il avait de Xue Yu.
 
-Quant au disciple masculin, bien qu'il paraisse âgé, il était le deuxième plus ancien. Il montrait un respect de façade envers son maître, mais il détestait profondément la relation de ce dernier avec sa sœur cadette.
+Quant au disciple masculin, bien qu'il paraisse âgé, il était le deuxième plus ancien. Il montrait un respect de façade envers son maître, mais il détestait profondément la relation de ce dernier avec sa Junior sœur.
 
 Wang Lin avait obtenu toutes ces informations auprès du cultivateur au stade avancé de la Formation du Noyau, qui avait initialement prévu d'éloigner ce disciple afin qu'il ne soit plus une telle gêne à ses yeux.
 

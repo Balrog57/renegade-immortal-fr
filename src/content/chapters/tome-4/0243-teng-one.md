@@ -118,6 +118,6 @@ Un jour plus tard, Wang Lin ouvrit les yeux et prit une profonde inspiration. Sa
 
 Il se leva et observa la marionnette qui avait subi quelques dommages. Selon les informations du jade, elle serait capable de s'auto-réparer; Wang Lin traça alors un sceau qu'il pressa sur le front de la marionnette, laquelle se mua en fumée pour retourner dans sa sacoche. Wang Lin regarda vers l'endroit où Teng Yi avait péri avec une expression complexe. La famille Teng était bien plus puissante qu'il ne l'avait imaginé. S'il ne parvenait pas à utiliser la technique du Dieu Ancien comme prévu, il devrait recourir à son ultime recours.
 
-Le fil de rétribution divine était une chose qu'il ne voulait absolument pas utiliser, car s'il s'en servait, il y avait de fortes chances que son plan de vengeance soit finalement interrompu.
+Le fil de la Tribulation Céleste était une chose qu'il ne voulait absolument pas utiliser, car s'il s'en servait, il y avait de fortes chances que son plan de vengeance soit finalement interrompu.
 
-Ce fil de rétribution divine était ce que Wang Lin avait préparé pour affronter le messager supérieur de la Tour Céleste d'autrefois.
+Ce fil de la Tribulation Céleste était ce que Wang Lin avait préparé pour affronter le messager supérieur de la Tour Céleste d'autrefois.

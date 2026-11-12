@@ -1,6 +1,6 @@
 ---
 n: 51
-title: Quatorzième niveau de condensation du Qi?
+title: Entrée en scène (1)
 book: 1
 bookTitle: The Mediocre Youth
 en: Fourteenth Level of Qi Condensation?
@@ -56,7 +56,7 @@ Voyant que Wang Lin ne répondait pas, Zhou Peng ricana: « Sur les quatre comba
 
 L'Ancien Dao Xu, debout aux côtés de Huang Long, déclara: « Pardonne-moi, junior frère Sun. Wang Lin, monte! »
 
-Sun Dazhu fut stupéfait et comprit immédiatement la situation. Il s'exclama avec colère: « Dao Xu, bien que tu sois mon frère aîné, tu ne peux pas m'humilier ainsi! Mon disciple n'est qu'au 3e niveau! Le faire monter ne fera que me faire perdre la face! Ne crois pas que j'ignore tes intentions! Leur disciple principal est trop fort, et vous avez tous peur que vos propres disciples soient vaincus, humiliés et blessés; alors vous envoyez mon disciple en bouc émissaire. Mon disciple a toujours été considéré comme un moins que rien à l'école, ainsi, même s'il perd, vous pourrez trouver une excuse. Je refuse de cautionner une telle ignominie! »
+Sun Dazhu fut stupéfait et comprit immédiatement la situation. Il s'exclama avec colère: « Dao Xu, bien que tu sois mon Senior frère, tu ne peux pas m'humilier ainsi! Mon disciple n'est qu'au 3e niveau! Le faire monter ne fera que me faire perdre la face! Ne crois pas que j'ignore tes intentions! Leur disciple principal est trop fort, et vous avez tous peur que vos propres disciples soient vaincus, humiliés et blessés; alors vous envoyez mon disciple en bouc émissaire. Mon disciple a toujours été considéré comme un moins que rien à l'école, ainsi, même s'il perd, vous pourrez trouver une excuse. Je refuse de cautionner une telle ignominie! »
 
 Dao Xu fronça les sourcils. Il avait effectivement cette intention, mais Sun Dazhu lui avait fait perdre toute dignité en déclarant cela devant la Secte Xuan Dao.
 
@@ -72,11 +72,11 @@ Sur ces mots, il prit une profonde inspiration, puis avança lentement vers la s
 
 Tous les disciples de la Secte Xuan Dao se mirent à le railler bruyamment.
 
-« Secte Heng Yue, vous n'avez aucune pudeur, envoyant un déchet pour affronter notre frère aîné! »
+« Secte Heng Yue, vous n'avez aucune pudeur, envoyant un déchet pour affronter notre Senior frère! »
 
-« Notre frère aîné n'a même pas besoin de s'occuper de ce moins que rien! Je pourrais le tuer d'un simple pouce! »
+« Notre Senior frère n'a même pas besoin de s'occuper de ce moins que rien! Je pourrais le tuer d'un simple pouce! »
 
-« Frère martial, ils ont déjà abandonné. Ils ont envoyé ce pion pour servir de chair à canon. Il est vraiment pitoyable. Sois clément et laisse-le descendre avec un peu de dignité. »
+« Senior frère, ils ont déjà abandonné. Ils ont envoyé ce pion pour servir de chair à canon. Il est vraiment pitoyable. Sois clément et laisse-le descendre avec un peu de dignité. »
 
 L'Ancien Ouyang et les deux anciens à ses côtés échangèrent un regard dédaigneux. Il rit et dit: « Je découvre enfin la véritable nature de Huang Long et de la Secte Heng Yue! »
 

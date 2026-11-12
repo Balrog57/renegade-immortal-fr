@@ -56,7 +56,7 @@ Les parents de Wang Lin ne cessaient de lui adresser des paroles de réconfort. 
 
 À ce moment précis, dans une salle de la Secte Heng Yue, plusieurs Anciens étaient assis et écoutaient le disciple Zhang raconter comment il avait retrouvé Wang Lin. Au bout d'un long moment, un vieil homme au visage rouge frappa la table et dit avec mécontentement: « Que nous importe, à nous qui cultivons le Dao, la vie ou la mort d'un mortel? Regardez les autres écoles immortelles; laquelle d'entre elles agit comme nous en envoyant des gens chercher un enfant qui a tenté de se suicider parce qu'il n'a pas été sélectionné? C'est honteux! »
 
-À ses côtés, un homme d'âge moyen au visage froid répliqua: « Ce que l'Ancien Ma dit est juste. De toutes les sectes du royaume de Zhao, seule notre Secte Heng Yue agit ainsi. Mais si cet enfant mourait réellement dans nos montagnes, les parents craindraient que tous leurs enfants ne tentent de se suicider en cas de rejet. Dès lors, qui oserait nous confier ses enfants? »
+À ses côtés, un homme d'âge moyen au visage froid répliqua: « Ce que l'Ancien Ma dit est juste. De toutes les sectes du Pays Zhao, seule notre Secte Heng Yue agit ainsi. Mais si cet enfant mourait réellement dans nos montagnes, les parents craindraient que tous leurs enfants ne tentent de se suicider en cas de rejet. Dès lors, qui oserait nous confier ses enfants? »
 
 Un vieil homme en robe prit une gorgée de thé et dit lentement: « En réalité, n'est-ce pas parce que notre Secte Heng Yue est en déclin que nous devons désormais sélectionner des disciples aptes à la culture parmi les mortels? S'il y a cinq cents ans, qui se serait soucié de la vie ou de la mort des mortels, et encore moins de leurs pensées? »
 

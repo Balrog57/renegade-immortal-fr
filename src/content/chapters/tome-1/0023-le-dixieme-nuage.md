@@ -42,7 +42,7 @@ Il se souvint que la dernière fois, c'était en fixant la perle qu'il s'était 
 
 L'espace infini réapparut. Le regard de Wang Lin devint pensif. Cette fois, il ne vagabonda pas; il se mit à sauter de haut en bas de manière répétée.
 
-Au fil du temps, ses bonds devinrent de plus en plus hauts. Il finit par atteindre près de 1,65 mètre. Lorsque son corps fut totalement exténué, la sensation de déchirure revint.
+Au fil du temps, ses bonds devinrent de plus en plus hauts. Il finit par atteindre un peu moins de cinq pieds. Lorsque son corps fut totalement exténué, la sensation de déchirure revint.
 
 Puis, il se réveilla.
 

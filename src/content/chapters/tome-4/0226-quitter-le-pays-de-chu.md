@@ -236,11 +236,11 @@ Tian Yunzi réfléchit un instant. Il regarda Wang Lin et s'exclama: « Très bi
 
 Wang Lin hocha la tête: « Très bien! »
 
-Les beaux yeux de Li Muwan se tournèrent vers Song Qing et Liu Fei. Elle sourit: « Pourquoi le frère Ouyang Zi n'est-il pas venu? »
+Les beaux yeux de Li Muwan se tournèrent vers Song Qing et Liu Fei. Elle sourit: « Pourquoi le Senior frère Ouyang Zi n'est-il pas venu? »
 
 Song Qing regarda Wang Lin et répondit rapidement: « Il est en train de raffiner une pilule. Il a dit que si vous pouviez lui donner toutes les pilules de rang 5 pour son raffinage sacrificiel, alors remettre son sang d'âme ne serait plus un problème. »
 
-Li Muwan eut un petit rire: « Le frère Ouyang Zi est un alchimiste de rang 5 comme moi. S'il en veut, il peut en avoir. Ce ne sont que des pilules de rang 5. »
+Li Muwan eut un petit rire: « Le Senior frère Ouyang Zi est un alchimiste de rang 5 comme moi. S'il en veut, il peut en avoir. Ce ne sont que des pilules de rang 5. »
 
 Puis, elle s'adressa à Wang Lin pour expliquer: « Parmi les trois alchimistes de rang 5 de la Secte Yun Tian, outre Wan Er et Ouyang Zi, le troisième est le senior Tian Yunzi. »
 
@@ -260,7 +260,7 @@ Wang Lin saisit la substance de sa main droite et le liquide spirituel pénétra
 
 Seul Wang Lin pouvait faire cela. Personne d'autre n'aurait disposé d'une telle quantité de liquide spirituel, et personne d'autre que lui n'aurait utilisé une ressource aussi précieuse pour soigner quelqu'un.
 
-Après deux heures, Wang Lin eut terminé.
+Après quatre heures, Wang Lin eut terminé.
 
 Passant quelques mois supplémentaires à la Secte Yun Tian, Wang Lin continua de collecter du liquide spirituel. Tout en reconstituant ses propres réserves, il en laissait également pour Li Muwan.
 

@@ -94,7 +94,7 @@ Wang Lin observa attentivement la scène. Après avoir réfléchi un instant, il
 
 À ce moment précis, plusieurs rayons d'énergie d'épée apparurent à l'horizon. Ces énergies arboraient des couleurs vives et dégageaient une puissance évidente; il était clair qu'aucun de ces individus n'avait une culture faible.
 
-« Frère aîné, nous y sommes! » Avant que les énergies d'épée ne s'approchent, une voix s'éleva de l'un d'eux.
+« Grand Senior frère, nous y sommes! » Avant que les énergies d'épée ne s'approchent, une voix s'éleva de l'un d'eux.
 
 La marche de Wang Lin ne ralentit pas d'un iota face à cette apparition. Il continua de pénétrer dans la chaîne de montagnes et sa silhouette disparut dans la fine couche de brume.
 
@@ -102,7 +102,7 @@ Peu après sa disparition, les rayons d'énergie d'épée se posèrent devant la
 
 Parmi les cinq, trois étaient des hommes et deux des femmes. Leurs tenues se répartissaient nettement en deux camps; tous étaient élégamment vêtus, de belle apparence et dégageaient des auras puissantes.
 
-Parmi les deux femmes, l'une portait une robe rouge et avait un grain de beauté au-dessus de la bouche. Elle dit doucement: « Frère aîné, je crois que je viens de voir quelqu'un entrer dans cette zone! »
+Parmi les deux femmes, l'une portait une robe rouge et avait un grain de beauté au-dessus de la bouche. Elle dit doucement: « Grand Senior frère, je crois que je viens de voir quelqu'un entrer dans cette zone! »
 
 Cette jeune fille ne semblait pas très âgée, mais son niveau de culture était au stade avancé de la Formation du Noyau.
 

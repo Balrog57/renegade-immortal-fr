@@ -26,7 +26,7 @@ Il ne voyait plus Wang Lin comme un faible, contrairement à leur première renc
 
 Selon lui, si Wang Lin n'avait pas possédé ce drapeau des âmes d'un milliard, il n'aurait jamais pu être comparé à lui.
 
-Après avoir entendu la réponse de Wang Lin, Qian Feng réfléchit un instant et dit: « Cher cultivateur Ceng, nous deux irons en premier, puis ma jeune sœur apprentie prendra le relais. Qu'en pensez-vous? »
+Après avoir entendu la réponse de Wang Lin, Qian Feng réfléchit un instant et dit: « Cher cultivateur Ceng, nous deux irons en premier, puis ma Junior sœur prendra le relais. Qu'en pensez-vous? »
 
 Le regard de Wang Lin restait calme tandis qu'il observait Qian Feng et Liu Mei. À ce moment précis, Liu Mei tourna également les yeux vers lui et esquissa un sourire, prête à prendre la parole, mais Wang Lin détourna son regard et trancha: « Inutile de compliquer les choses. J'irai en premier, et vous deux me suivrez. »
 

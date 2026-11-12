@@ -70,7 +70,7 @@ La froideur quitta les yeux du jeune homme. Il joignit les mains devant Wang Lin
 
 L'expression de Wang Lin resta imperturbable tandis qu'il répondait calmement: « Aucun problème. Puisqu'il s'agit d'un malentendu, comment pourrais-je vous en vouloir? »
 
-Li Qiqing laissa échapper un rire et dit: « Je suppose que le camarade est ici pour assister à l'Assemblée de l'Atelier du Ravin. Peut-être nous reverrons-nous à l'avenir, mais j'ai une affaire importante à régler aujourd'hui, je vais donc prendre congé. »
+Li Qiqing laissa échapper un rire et dit: « Je suppose que le camarade est ici pour assister à la Grande Assemblée du Marché Xi Gu. Peut-être nous reverrons-nous à l'avenir, mais j'ai une affaire importante à régler aujourd'hui, je vais donc prendre congé. »
 
 Sur ces mots, il joignit de nouveau les mains, saisit la jeune fille à ses côtés et partit avec les six ou sept autres personnes.
 
@@ -84,9 +84,9 @@ L'apparence de cet homme était tout à fait ordinaire, si ce n'est que ses yeux
 
 Wang Lin le regarda, puis s'envola sans même lui accorder une seconde attention.
 
-Sun Youcai le suivit rapidement et demanda d'un ton volubile: « Camarade cultivateur, de quelle secte venez-vous? Je suis un disciple de la Secte Démoniaque. »
+Sun Youcai le suivit rapidement et demanda d'un ton volubile: « Camarade cultivateur, de quelle secte venez-vous? Je suis un disciple de la Secte Xie Mo. »
 
-Le sourcil de Wang Lin se fronça légèrement. Sans dire un mot, il utilisa son énergie spirituelle pour accélérer. Sa vitesse augmenta soudainement, laissant Sun Youcai loin derrière. Ce dernier le regarda et ricana intérieurement tout en gardant une expression neutre. Il se tapa les cuisses et, d'un bond, rattrapa Wang Lin en un clin d'œil. Il poursuivit: « Camarade cultivateur, je suis vraiment désolé pour ce qui s'est passé. C'est entièrement la faute de cette fille. Ah, vous allez à l'Atelier du Ravin, n'est-ce pas? Et si nous faisions route ensemble? Je connais beaucoup de monde dans les environs et je peux même vous dénicher quelques femmes-fourneaux du pays de Zhou au stade de la Condensation de Qi. »
+Le sourcil de Wang Lin se fronça légèrement. Sans dire un mot, il utilisa son énergie spirituelle pour accélérer. Sa vitesse augmenta soudainement, laissant Sun Youcai loin derrière. Ce dernier le regarda et ricana intérieurement tout en gardant une expression neutre. Il se tapa les cuisses et, d'un bond, rattrapa Wang Lin en un clin d'œil. Il poursuivit: « Camarade cultivateur, je suis vraiment désolé pour ce qui s'est passé. C'est entièrement la faute de cette fille. Ah, vous allez au Marché Xi Gu, n'est-ce pas? Et si nous faisions route ensemble? Je connais beaucoup de monde dans les environs et je peux même vous dénicher quelques femmes-fourneaux du pays de Zhou au stade de la Condensation de Qi. »
 
 « Quelle vitesse! » Le cœur de Wang Lin tressaillit lorsqu'il se tourna vers Sun Youcai avec un sourire. En voyant ce sourire, Sun Youcai sentit soudain sa peau se hérisser. Ce sentiment disparut aussi vite qu'il était apparu et il secoua la tête. Il pensait que cet homme n'était qu'au stade intermédiaire de l'Établissement des Fondations; avec sa propre culture au stade avancé, il ne pouvait absolument pas échouer. Il sourit et dit: « Qu'en dites-vous, camarade? »
 
@@ -98,8 +98,8 @@ Le cœur de Sun Youcai fit un bond. Il ne s'attendait pas à ce que Wang Lin acc
 
 Sun Youcai afficha un sourire malicieux. Il regarda autour de lui et murmura: « Frère Ma, j'ai entendu dire que votre Sanctuaire du Dieu de la Guerre possède une beauté nommée Zhou Ziwei. Notre jeune chef de secte l'a vue il y a six mois et en a été totalement envoûté. Puisque vous venez de là-bas, est-elle vraiment si belle? »
 
-Wang Lin fut surpris et demanda: « Zhou Ziwei? Parlez-vous de la sœur aînée Zhou Zihong? »
+Wang Lin fut surpris et demanda: « Zhou Ziwei? Parlez-vous de Senior sœur Zhou Zihong? »
 
 Sun Youcai se frappa soudain le front en souriant. « Quelle mémoire! C'est bien elle, Zhou Zihong. Alors, comment est-elle? »
 
-Wang Lin hocha la tête et répondit: « La sœur aînée Zhou est certes magnifique, mais son tempérament est un peu froid; je ne l'ai vue que quelques fois. »
+Wang Lin hocha la tête et répondit: « Senior sœur Zhou est certes magnifique, mais son tempérament est un peu froid; je ne l'ai vue que quelques fois. »
