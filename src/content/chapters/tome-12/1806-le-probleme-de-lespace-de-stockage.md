@@ -28,7 +28,7 @@ L'un des Anciens qui s'était transformé en dragon trembla et dit: « Vieil... 
 
 À peine eut-il fini de parler que le cœur de l'homme d'âge moyen qui avait perdu ses bras rata un battement et qu'il laissa échapper un soupir.
 
-« Ce Sun Mengde n'est pas resté assez longtemps au sein de la Secte Cang Long pour comprendre le tempérament du Vieil Ancêtre... Le Vieil Ancêtre ne se soucie guère du sort de la Secte Cang Long, il ne tient qu'à son honneur... »
+« Ce Sun Mengde n'est pas resté assez longtemps au sein de la Secte Cang Long pour comprendre le tempérament du Vieil Ancêtre... Le Vieil Ancêtre ne se soucie guère de la vie de ses disciples, il ne tient qu'à son honneur... »
 
 Alors que le vieil homme parlait, le jeune homme se retourna et fixa Sun avec un regard féroce.
 
@@ -118,6 +118,6 @@ Il l'avait utilisé comme une expérience pour confirmer sa théorie!
 
 « L'Épée Sanglante doit être extraite... Tout comme le sceau doré dans lequel le Maître a solidifié la technique divine du Souverain. Il contient un coup d'un cultivateur de la Tribulation du Vide au stade initial et me sera très utile...
 
-« Aussi, le Fouet des Âmes. Il est redoutable contre l'âme originelle. Ce serait dommage qu'il disparaisse dans l'espace de stockage...
+« Aussi, le Fouet Kunji. Il est redoutable contre l'âme originelle. Ce serait dommage qu'il disparaisse dans l'espace de stockage...
 
 « De plus, il y a la marionnette Yi Si, qui est aussi puissante qu'un cultivateur de la Tribulation du Vide... Et aussi la Voile Fantôme... »

@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1662 - Eight Imperial Concubine
 slug: huitieme-concubine-imperiale
 ---
-Debout devant la brèche de la Formation de Scellement du Royaume, Wang Lin regarda la cultivatrice venue de la Rivière Invoquée. La femme froide s'arrêta à cent pieds de lui.
+Debout devant la brèche de la Formation de Scellement du Royaume, Wang Lin regarda la cultivatrice venue de Zhao He. La femme froide s'arrêta à cent pieds de lui.
 
 Elle était d'une grande beauté; bien qu'inférieure à Mu Bingmei, elle n'en demeurait pas moins éblouissante. Debout là, sa robe violette flottait au vent, lui donnant l'allure d'une immortelle céleste.
 

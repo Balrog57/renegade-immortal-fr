@@ -38,7 +38,7 @@ Cependant, quoi qu'il arrive, tant que Wang Lin le demanderait, il reviendrait d
 
 Parmi les étoiles, il n'y avait que deux personnes dont Qing Shui se souciait encore. L'une d'elles était son Junior Frère de secte, Wang Lin.
 
-L'évasion du Maître Hong Shan apporta la joie au Royaume Intérieur. La reprise de la Rivière Invoquée redonna espoir aux cultivateurs restants!
+L'évasion du Maître Hong Shan apporta la joie au Royaume Intérieur. La reprise de la Rivière Zhao He redonna espoir aux cultivateurs restants!
 
 La mort de Tianzhao Shangshi, l'arrivée du Maître Long Pan et la capture du Seigneur du Palais Tian Fa ravivèrent la confiance du Royaume Intérieur.
 
@@ -46,21 +46,21 @@ Il n'y avait plus de Royaumes aux Sept Couleurs dans le Royaume Intérieur, et p
 
 La nouvelle répandue par le Maître Hong Shan selon laquelle le Seigneur du Royaume Scellé était de retour eut l'impact le plus puissant! Cela poussa les cultivateurs du Royaume Intérieur à redresser la tête, et la flamme de la bataille dans leurs cœurs devint plus intense encore.
 
-Dans le Royaume Kun Xu, il existait un lieu près des jonctions avec la Mer Yun, la Rivière Invoquée et Luotian. Cet endroit s'était peu à peu transformé en une vaste zone commerciale.
+Dans le Royaume Kun Xu, il existait un lieu près des jonctions avec la Mer Yun, la Rivière Zhao He et Luotian. Cet endroit s'était peu à peu transformé en une vaste zone commerciale.
 
 De nombreuses planètes semblables étaient apparues aux confins des quatre grands systèmes stellaires. De nombreux cultivateurs des quatre systèmes s'y rassemblaient pour échanger les ressources dont ils avaient besoin.
 
 Cela entraînait une lente fusion des quatre systèmes stellaires.
 
-À ce moment précis, sur cette planète du Vide Brillant nommée Un Esprit, se trouvaient des cultivateurs des quatre systèmes. Le va-et-vient incessant rendait l'endroit extrêmement animé.
+À ce moment précis, sur cette planète nommée Kun Xu Yi Ling, se trouvaient des cultivateurs des quatre systèmes. Le va-et-vient incessant rendait l'endroit extrêmement animé.
 
-Les femmes cultivatrices de la Rivière Invoquée étaient les plus célèbres. Bien que beaucoup d'entre elles fussent mortes, nombre d'entre elles avaient réussi à briser l'encerclement lors de cette contre-attaque d'alors.
+Les femmes cultivatrices de la Rivière Zhao He étaient les plus célèbres. Bien que beaucoup d'entre elles fussent mortes, nombre d'entre elles avaient réussi à briser l'encerclement lors de cette contre-attaque d'alors.
 
-Bien que la Rivière Invoquée ne fût que récemment reconquise, un grand nombre de ses femmes cultivatrices y étaient retournées. La Rivière Invoquée montrait des signes de renaissance.
+Bien que la Rivière Zhao He ne fût que récemment reconquise, un grand nombre de ses femmes cultivatrices y étaient retournées. La Rivière Zhao He montrait des signes de renaissance.
 
-La Rivière Invoquée comptait le plus grand nombre de femmes cultivatrices, et toutes étaient magnifiques. Le parfum qu'elles dégageaient incitait les hommes célibataires des trois autres systèmes à faire tout leur possible pour trouver un partenaire Dao qui les accompagnerait pour le reste de leur vie, ou du moins une compagne d'un passage.
+La Rivière Zhao He comptait le plus grand nombre de femmes cultivatrices, et toutes étaient magnifiques. Le parfum qu'elles dégageaient incitait les hommes célibataires des trois autres systèmes à faire tout leur possible pour trouver un partenaire Dao qui les accompagnerait pour le reste de leur vie, ou du moins une compagne d'un passage.
 
-Avec la présence des femmes de la Rivière Invoquée, la ville devint encore plus vivante.
+Avec la présence des femmes de la Rivière Zhao He, la ville devint encore plus vivante.
 
 Certaines auberges de cette cité offraient des lieux de méditation pour les voyageurs. Chaque chambre était dotée d'une grande quantité de pierres spirituelles et de quelques jades célestes.
 
@@ -82,7 +82,7 @@ En face de l'érudit se trouvaient deux femmes magnifiques. Cependant, leurs âg
 
 La femme en violet à ses côtés était plus âgée, d'un âge mûr. Les marques du temps se lisaient sur son visage, et elle restait assise là, calme, sans dire un mot.
 
-À côté de l'érudit se trouvait un vieil homme. Il sourit et intervint: « Dame Xu, ne croyez pas les paroles du compagnon Zhou. Chaque fois qu'il rencontre des femmes de la Rivière Invoquée comme vous, il raconte la même chose. J'ai presque développé des callosités aux oreilles à force de l'écouter! »
+À côté de l'érudit se trouvait un vieil homme. Il sourit et intervint: « Dame Xu, ne croyez pas les paroles du compagnon Zhou. Chaque fois qu'il rencontre des femmes de la Rivière Zhao He comme vous, il raconte la même chose. J'ai presque développé des callosités aux oreilles à force de l'écouter! »
 
 « C'était sur la planète Suzaku. Le Seigneur du Royaume Scellé de l'époque ne pouvait rien comparer à sa culture actuelle. Je me souviens qu'à l'époque, il n'était encore qu'un simple cultivateur au stade de la Formation du Noyau. Je n'aurais jamais imaginé qu'il deviendrait un jour le Seigneur du Royaume Scellé! » L'érudit sourit, ignorant les moqueries du vieil homme, le visage empreint d'émotion.
 
@@ -100,7 +100,7 @@ Non seulement lui, mais le vieil homme et la foule des cultivateurs environnants
 
 Un tel événement n'était pas commun dans les quatre systèmes stellaires, mais cela était arrivé quelques fois. La renommée du Seigneur du Royaume Scellé n'était pas une gloire personnelle, mais le fruit d'événements fracassants survenus durant la guerre. Dans l'esprit des cultivateurs du Royaume Intérieur, il était l'âme même de leur monde!
 
-Le Seigneur du Royaume Scellé étant originaire du Vide Brillant, les cultivateurs de ce système étaient respectés par ceux des trois autres. Bien que ce ne fût pas immense, c'était un fait. Et le fait qu'il vienne de la planète Suzaku était désormais connu de tous.
+Le Seigneur du Royaume Scellé étant originaire de Kun Xu, les cultivateurs de ce système étaient respectés par ceux des trois autres. Bien que ce ne fût pas immense, c'était un fait. Et le fait qu'il vienne de la planète Suzaku était désormais connu de tous.
 
 Il y avait naturellement un profond respect pour les cultivateurs de la planète Suzaku!
 

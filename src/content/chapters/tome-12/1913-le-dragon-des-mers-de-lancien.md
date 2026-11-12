@@ -34,7 +34,7 @@ En conséquence, même les quatre autres Grands Empyréens témoignaient un cert
 
 Tandis que tous les cultivateurs de la Secte Gui Yi s'inclinaient, la silhouette dorée surplombait la terre du regard.
 
-« Il y a trois édits impériaux: l'un ici, l'un à la Secte Da Hun, et le dernier à la Secte Dao Mo du Continent Lü Mo! »
+« Il y a trois édits impériaux: l'un ici, l'un à la Secte Da Hun, et le dernier à la Secte Dao Mo du Continent Lu Mo! »
 
 D'un mouvement de la main droite, la lumière dorée brilla de plus belle. Un édit impérial, fait d'une matière inconnue, fut déployé par cet être.
 
@@ -62,7 +62,7 @@ Tous les cultivateurs s'inclinèrent, et l'édit impérial portait un message qu
 
 Une fois la silhouette dorée partie, un silence absolu tomba sur la Secte Da Hun, à l'intérieur comme à l'extérieur.
 
-L'Ancien Taureau Vert regarda le ciel après la dissipation de la lumière dorée, l'expression tourmentée. Il soupira; trop de cultivateurs étaient morts dans cette guerre entre les deux continents, mais pour saisir cette chance, ils n'avaient pas d'autre choix!
+L'Ancêtre Qing Niu regarda le ciel après la dissipation de la lumière dorée, l'expression tourmentée. Il soupira; trop de cultivateurs étaient morts dans cette guerre entre les deux continents, mais pour saisir cette chance, ils n'avaient pas d'autre choix!
 
 C'était l'opportunité unique d'entrer dans le temple ancestral!
 

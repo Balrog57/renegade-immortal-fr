@@ -44,7 +44,7 @@ Sur ce geste, tous les points noirs tremblèrent et devinrent pâles, comme s'il
 
 L'expression de la silhouette entourée des dix couleurs changea, et il s'exclama: « Ils... »
 
-À ce moment précis, dans la cité impériale du Dao Antique, alors que le soupir tombait du ciel, Wang Lin s'arrêta soudainement. Il semblait avoir oublié le danger, les 36 Démons qui chargeaient vers lui et l'Empereur du Dao Antique situé à des dizaines de milliers de pieds de là.
+À ce moment précis, dans la cité impériale du Dao Antique, alors que le soupir tombait du ciel, Wang Lin s'arrêta soudainement. Il semblait avoir oublié le danger, les 36 Fléaux qui chargeaient vers lui et l'Empereur du Dao Antique situé à des dizaines de milliers de pieds de là.
 
 Le rouge dans les yeux de Wang Lin se dissipa progressivement, et la folie ainsi que la férocité sur son visage s'estompèrent lentement, remplacées par une amertume face à la silhouette familière qui descendait du ciel.
 
@@ -64,11 +64,11 @@ Mais s'il agissait en assassin, cela signifierait qu'il était d'un calme glacia
 
 Wang Lin n'utiliserait pas de telles méthodes. Il allait reprendre l'âme de Wan Er, tuer l'Empereur du Dao Antique, et le faire ouvertement, la tête haute. La seule chose qu'il devait considérer était les sentiments de son maître...
 
-« Maître... » Wang Lin joignit les mains et s'inclina devant la personne qui s'avançait vers lui. Il ne se redressa pas et continua de s'incliner, même lorsque les 36 Démons profitèrent de cette occasion pour se rapprocher.
+« Maître... » Wang Lin joignit les mains et s'inclina devant la personne qui s'avançait vers lui. Il ne se redressa pas et continua de s'incliner, même lorsque les 36 Fléaux profitèrent de cette occasion pour se rapprocher.
 
 Dans le ciel, Xuan Luo apparut et regarda Wang Lin. Il semblait avoir beaucoup vieilli et fit un geste de la main vers le sol en contrebas.
 
-D'un seul mouvement, les 36 Démons crachèrent du sang et reculèrent, terrifiés. Tous ceux qui se trouvaient aux côtés de Wang Lin furent projetés à 10 000 pieds, ne laissant que Wang Lin, qui poursuivait son inclinaison.
+D'un seul mouvement, les 36 Fléaux crachèrent du sang et reculèrent, terrifiés. Tous ceux qui se trouvaient aux côtés de Wang Lin furent projetés à 10 000 pieds, ne laissant que Wang Lin, qui poursuivait son inclinaison.
 
 L'Empereur du Dao Antique ricana intérieurement en voyant Xuan Luo apparaître. Ses yeux s'illuminèrent et il s'avança rapidement: « Seigneur Xuan, Wang Lin a forcé l'entrée du palais pour tenter de voler mon impératrice. Il est coupable d'une trahison inouïe, indigne d'être le disciple de votre Seigneurie! J'espère que le Seigneur Xuan... »
 

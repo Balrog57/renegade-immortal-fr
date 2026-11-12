@@ -56,7 +56,7 @@ Il caressa tendrement les traits de Li Muwan. La douleur dans son cœur se mua e
 
 « Wan Er... » Des larmes coulèrent des yeux de Wang Lin, tombant sur Li Muwan et mouillant ses vêtements.
 
-« Ton fragment d'âme a disparu... Il n'est plus dans la rétribution divine, mais peu importe où il se trouve, peu importe qui le détient, je le reprendrai! » murmura Wang Lin en saisissant la cruche pour boire une longue gorgée. Ses larmes se mêlèrent au vin, le rendant amer, mais il but jusqu'à la dernière goutte!
+« Ton fragment d'âme a disparu... Il n'est plus dans la Tribulation Céleste, mais peu importe où il se trouve, peu importe qui le détient, je le reprendrai! » murmura Wang Lin en saisissant la cruche pour boire une longue gorgée. Ses larmes se mêlèrent au vin, le rendant amer, mais il but jusqu'à la dernière goutte!
 
 Wang Lin jeta la cruche et pointa son doigt droit vers l'espace entre ses sourcils. De sa main gauche, il désigna le même point sur le front de Li Muwan, puis ferma les yeux.
 
@@ -98,7 +98,7 @@ Soudain, tout devint silencieux. Li Muwan resta stupéfaite, oubliant même de l
 
 Voyant l'état de Li Muwan, Wang Lin ressentit un pincement au cœur et desserra doucement sa prise.
 
-« Je m'appelle Wang Lin. » À ces mots, Li Muwan recula brusquement de plusieurs centaines de pieds. Elle marqua une pause, le regardant avec timidité, puis s'inclina devant lui pour le remercier avant de partir précipitamment.
+« Je m'appelle Wang Lin. » À ces mots, Li Muwan recula brusquement de plusieurs milliers de pieds. Elle marqua une pause, le regardant avec timidité, puis s'inclina devant lui pour le remercier avant de partir précipitamment.
 
 En observant la silhouette manifestement effrayée de Li Muwan, Wang Lin afficha un sourire heureux. Cependant, l'amertume et la tristesse dissimulées sous ce sourire restaient invisibles pour autrui.
 

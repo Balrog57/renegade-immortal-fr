@@ -14,7 +14,7 @@ La Secte Dao Mo s'était effondrée!
 
 L'émissaire impérial, baigné dans une lumière dorée, resta là avec une expression embarrassée. Ce n'est que lorsque Wang Lin ouvrit les yeux qu'il joignit les mains avec un sourire amer.
 
-« Cher Cultivateur Wang, ne me blâmez pas... Ceci... Je ne m'attendais pas à ce que le contenu de l'édit impérial soit ainsi... Si j'avais su plus tôt, je me serais allié au Cher Cultivateur pour tuer ce traître! »
+« Daoïste Wang, ne me blâmez pas... Ceci... Je ne m'attendais pas à ce que le contenu de l'édit impérial soit ainsi... Si j'avais su plus tôt, je me serais allié au Daoïste pour tuer ce traître! »
 
 Wang Lin gardait une expression calme en regardant l'émissaire impérial, mais il ne dit mot. Il était lui aussi surpris par le contenu de l'édit, en particulier les dernières lignes mentionnant son aide à Lian Daofei.
 
@@ -28,11 +28,11 @@ Wang Lin gardait une expression calme en regardant l'émissaire impérial, mais 
 
 « Ce Wang Lin possède un tel pouvoir et... il attire certainement l'attention de l'Empereur Céleste. Ah, je dois réparer les choses le plus vite possible. »
 
-« Cher Cultivateur, ne me blâmez pas, je vous en prie... J'étais vraiment confus auparavant. Le Maître de la Secte Dao Mo méritait sa mort! » Tout en parlant, l'émissaire impérial observa Wang Lin. En voyant que celui-ci conservait une expression sombre, son cœur sombra.
+« Daoïste, ne me blâmez pas, je vous en prie... J'étais vraiment confus auparavant. Le Maître de la Secte Dao Mo méritait sa mort! » Tout en parlant, l'émissaire impérial observa Wang Lin. En voyant que celui-ci conservait une expression sombre, son cœur sombra.
 
 « C'est mauvais. Cette personne doit encore m'en vouloir pour mes deux attaques de tout à l'heure... S'il parle en mal de moi devant l'Empereur Céleste, alors je... je... » De la sueur perla sur son front et, sous la brise, il sentit un frisson le parcourir.
 
-« Héhé... Cher Cultivateur Wang, j'ai quelques spécialités du Continent Central. Puisque c'est notre première rencontre, veuillez accepter ces modestes présents. » Le cœur serré, il sortit une pierre de jade et la tendit à Wang Lin en même temps que l'édit.
+« Héhé... Daoïste Wang, j'ai quelques spécialités du Continent Central. Puisque c'est notre première rencontre, veuillez accepter ces modestes présents. » Le cœur serré, il sortit une pierre de jade et la tendit à Wang Lin en même temps que l'édit.
 
 Wang Lin songeait au karma de cette situation lorsqu'il tourna son regard vers l'émissaire. Il accepta l'édit impérial, mais sans le consulter, préférant examiner la pierre de jade.
 
@@ -42,7 +42,7 @@ Après avoir rangé le jade, Wang Lin fixa silencieusement l'émissaire impéria
 
 Sous ce regard, l'émissaire se plaignit intérieurement. Il serra les dents et agita la main pour sortir une fiole de jade. Le cœur meurtri, il força un sourire.
 
-« Ah, j'ai oublié ceci! C'est une spécialité du Continent Central. Ce n'est rien de très précieux, alors le Cher Cultivateur doit l'accepter! » Il tendit la fiole à Wang Lin.
+« Ah, j'ai oublié ceci! C'est une spécialité du Continent Central. Ce n'est rien de très précieux, alors le Daoïste doit l'accepter! » Il tendit la fiole à Wang Lin.
 
 Une fois la fiole acceptée, Wang Lin l'examina avec son Sens Divin sous les yeux de l'émissaire. Elle contenait une grande quantité de pilules; toutes étaient destinées à la guérison et beaucoup étaient extrêmement rares.
 
@@ -82,7 +82,7 @@ Le cœur de Wang Lin fit un bond. Il sourit et ne dit plus rien.
 
 Voyant cela, l'émissaire comprit qu'il était temps de savoir s'il devait avancer ou reculer. Il joignit les mains devant Wang Lin.
 
-« Cher Cultivateur Wang, cet édit impérial peut servir pour un transfert vers le Continent Central. Cet endroit étant loin, vous devrez effectuer huit transferts. Je dois rentrer pour faire mon rapport à l'Empereur. Lorsque vous arriverez à la cité impériale, je viendrai vous saluer. » L'émissaire sourit et partit précipitamment. Il craignait de s'attarder davantage, et qu'une parole de trop ne mette Wang Lin en colère et ne l'oblige à offrir un autre objet « pas très précieux ».
+« Daoïste Wang, cet édit impérial peut servir pour un transfert vers le Continent Central. Cet endroit étant loin, vous devrez effectuer huit transferts. Je dois rentrer pour faire mon rapport à l'Empereur. Lorsque vous arriverez à la cité impériale, je viendrai vous saluer. » L'émissaire sourit et partit précipitamment. Il craignait de s'attarder davantage, et qu'une parole de trop ne mette Wang Lin en colère et ne l'oblige à offrir un autre objet « pas très précieux ».
 
 Ce n'est que lorsque l'émissaire fut parti que le sourire de Wang Lin disparut, remplacé par une expression sombre.
 

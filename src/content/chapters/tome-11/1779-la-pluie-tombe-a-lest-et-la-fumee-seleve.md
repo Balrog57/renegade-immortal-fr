@@ -58,7 +58,7 @@ Ce monde appartenait au Souverain aux Sept Couleurs; il était façonné par ses
 
 « Su Dao! Tu as du cran. La cloche a sonné deux fois et tu n'es pas encore allé rendre hommage au Maître qui vient de sortir de sa culture isolée! » Une voix perçante résonna derrière Wang Lin. Un jeune homme d'environ vingt ans descendait la montagne, vêtu de la même robe bleue que lui. Il fixait Wang Lin d'un regard glacial.
 
-« Je suis venu te chercher pour te ramener, sur ordre du Frère Aîné, afin que tu sois puni selon les règles de la secte! » Le jeune homme ricana en s'approchant. Il tendit la main vers les cheveux de Wang Lin, semblant vouloir le traîner de force jusqu'à la salle.
+« Je suis venu te chercher pour te ramener, sur ordre du Grand Senior frère, afin que tu sois puni selon les règles de la secte! » Le jeune homme ricana en s'approchant. Il tendit la main vers les cheveux de Wang Lin, semblant vouloir le traîner de force jusqu'à la salle.
 
 Alors que sa main approchait, Wang Lin se retourna et lui lança un regard glacial. Ce regard fit trembler le jeune homme, comme si les yeux de Wang Lin étaient deux lames de sabre transperçant son âme.
 

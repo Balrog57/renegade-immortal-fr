@@ -84,7 +84,7 @@ On aurait dit qu'il n'appartenait pas à ce monde caverneux!
 
 *Zeng!*
 
-La musique de la cithare résonna. Le Vieux Fantôme Zhan, qui venait de dépasser Rêve Bleu, s'écarta soudainement de trois pas sur le côté et tourna la tête.
+La musique de la cithare résonna. Le Vieux Fantôme Zhan, qui venait de dépasser Rêve Bleu, s'écarta soudainement de trente pieds sur le côté et tourna la tête.
 
 Au moment où il se retourna, les ondes musicales se propagèrent. Le son émanant de la cithare enveloppa le Vieux Fantôme Zhan, scellant toutes les directions autour de lui, devant, derrière, à gauche et à droite.
 

@@ -102,7 +102,7 @@ L'Empreinte de l'Esprit Guerrier qui avait anéanti les quatre démons se retour
 
 Au moment où il ferma les paupières, un grondement de tonnerre retentit. Les quatre Dieux Anciens disparurent tous. Avant de mourir, ils semblèrent afficher un visage empreint de soulagement.
 
-« La divine rétribution doit être terminée! » Wang Lin leva la tête et rouvrit les yeux. Il contempla la faille et s'en dirigea pas à pas. Lorsqu'il pénétra dans la brèche et découvrit ce qui s'y cachait, ses pupilles se contractèrent.
+« La Tribulation Céleste doit être terminée! » Wang Lin leva la tête et rouvrit les yeux. Il contempla la faille et s'en dirigea pas à pas. Lorsqu'il pénétra dans la brèche et découvrit ce qui s'y cachait, ses pupilles se contractèrent.
 
 Il vit le monde qu'il avait entrevu par le passé. C'était un univers infini sous un ciel sombre, dont le sol était hérissé d'innombrables statues gigantesques.
 

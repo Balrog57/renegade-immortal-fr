@@ -92,7 +92,7 @@ De plus, le Maître de la Secte savait pertinemment que Wang Lin possédait enco
 
 « Et alors s'ils meurent? Même si toute la Secte Dao Mo disparaît, tant que je suis en vie, il pourra être reconstruit. Plus il y aura de mort et de destruction, plus l'Ancêtre sera en colère! »
 
-« Et j'ai aussi un plan de secours. L'accord entre moi et l'Ancien Taureau Vert de la Secte Da Hun arrive à son terme. La bataille finale doit avoir lieu en ce moment même... »
+« Et j'ai aussi un plan de secours. L'accord entre moi et l'Ancêtre Qing Niu de la Secte Da Hun arrive à son terme. La bataille finale doit avoir lieu en ce moment même... »
 
 « Les deux continents jouent cette pièce depuis des dizaines de milliers d'années. Au cours des cent dernières années, nous l'avons rendue plus crédible encore en sacrifiant de nombreux cultivateurs! »
 

@@ -6,11 +6,11 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1729 - Planet Five Elements
 slug: planete-des-cinq-elements
 ---
-Le Vide Brillant existait depuis d'innombrables années. Quant à la durée exacte de son existence, nul ne le savait. Peut-être que le propriétaire originel de cette demeure, le Souverain Céleste aux Sept Couleurs, en avait le secret.
+Le Kun Xu existait depuis d'innombrables années. Quant à la durée exacte de son existence, nul ne le savait. Peut-être que le propriétaire originel de cette demeure, le Souverain Céleste aux Sept Couleurs, en avait le secret.
 
-Depuis la naissance de Wang Lin jusqu'à aujourd'hui, plus de 2 000 ans s'étaient écoulés, et le Vide Brillant avait traversé deux guerres. La première fut la guerre contre Luotian; ce fut un chaos absolu marqué par d'innombrables morts.
+Depuis la naissance de Wang Lin jusqu'à aujourd'hui, plus de 2 000 ans s'étaient écoulés, et le Kun Xu avait traversé deux guerres. La première fut la guerre contre Luotian; ce fut un chaos absolu marqué par d'innombrables morts.
 
-Cependant, comparée à la seconde, la première n'était rien. Il s'agissait de la guerre entre les Royaumes Intérieur et Extérieur. Le Vide Brillant était alors devenu une ruine désolée. Que ce soient les cultivateurs ou les mortels, tous poussaient des hurlements de désespoir.
+Cependant, comparée à la seconde, la première n'était rien. Il s'agissait de la guerre entre les Royaumes Intérieur et Extérieur. Le Kun Xu était alors devenu une ruine désolée. Que ce soient les cultivateurs ou les mortels, tous poussaient des hurlements de désespoir.
 
 De nombreuses planètes foisonnant de vie s'effondrèrent en poussière. Ce système stellaire autrefois éclatant était désormais silencieux, plongé dans l'obscurité par la poussière qui le recouvrait.
 
@@ -22,7 +22,7 @@ C'était une planète imprégnée d'énergie spirituelle; même la planète Tian
 
 Ces cinq anneaux s'intersectaient, évoquant une fleur en pleine éclosion. De loin, la planète était d'une beauté saisissante.
 
-Les mortels étaient nombreux sur cette planète; on comptait probablement plus d'un milliard d'âmes. Ils menaient une vie paisible, épargnée par les guerres, ce qui était une rareté dans le Vide Brillant.
+Les mortels étaient nombreux sur cette planète; on comptait probablement plus d'un milliard d'âmes. Ils menaient une vie paisible, épargnée par les guerres, ce qui était une rareté dans le Kun Xu.
 
 Il semblait que la richesse de l'énergie spirituelle protégeait les mortels de la maladie. La plupart possédaient des corps sains et une grande beauté. De plus, au fil des générations, de plus en plus de mortels dotés d'un talent pour la culture apparaissaient.
 
@@ -30,7 +30,7 @@ Cette planète était la Planète des Cinq Éléments!
 
 Il n'existait qu'une seule secte sur la Planète des Cinq Éléments: la Secte Gui Yi! Le nom de la secte suggérait l'idée de fusionner les cinq éléments en un seul.
 
-Dans le Vide Brillant, la Planète des Cinq Éléments était une anomalie. Bien qu'elle fût située dans ce système stellaire, elle était difficile à débusquer. Sans les coordonnées exactes de l'Alliance Xiu Zhen, il était presque impossible de la localiser. Même en utilisant son Sens Divin, on n'y percevait que le vide, tout comme pour la Bête des Limbes.
+Dans le Kun Xu, la Planète des Cinq Éléments était une anomalie. Bien qu'elle fût située dans ce système stellaire, elle était difficile à débusquer. Sans les coordonnées exactes de l'Alliance Xiu Zhen, il était presque impossible de la localiser. Même en utilisant son Sens Divin, on n'y percevait que le vide, tout comme pour la Bête des Limbes.
 
 C'est grâce à cela que la planète avait échappé aux deux guerres. Cependant, l'imprévu survient toujours. Lors de la guerre entre les Royaumes Intérieur et Extérieur, un groupe de plusieurs centaines de cultivateurs du Royaume Extérieur pénétra accidentellement sur la planète. Ils n'en ressortirent jamais.
 
@@ -44,7 +44,7 @@ En route vers la Planète des Cinq Éléments, Wang Lin songeait au passé. Il a
 
 « Na Duo possède un Royaume Ji aux cinq couleurs... » murmura Wang Lin alors que la Bête des Limbes pénétrait dans un domaine stellaire totalement inconnu.
 
-Ce domaine était invisible au Sens Divin depuis l'extérieur, quelle que soit la puissance de sa culture. C'était comme si cet endroit était détaché du Vide Brillant.
+Ce domaine était invisible au Sens Divin depuis l'extérieur, quelle que soit la puissance de sa culture. C'était comme si cet endroit était détaché du Kun Xu.
 
 Soudain, Wang Lin vit la Planète des Cinq Éléments, telle une fleur épanouie, surgir devant lui.
 
@@ -52,7 +52,7 @@ Soudain, Wang Lin vit la Planète des Cinq Éléments, telle une fleur épanouie
 
 « Cette planète n'appartient pas au Monde des Grottes... » Wang Lin ferma les yeux. En tant que maître du Dao Céleste, il pouvait ressentir les pensées de la Bête des Limbes qui flottait sous lui.
 
-Si cette planète ne pouvait être détectée par le Sens Divin et semblait isolée du Vide Brillant, c'était parce qu'elle n'appartenait pas au Monde des Grottes.
+Si cette planète ne pouvait être détectée par le Sens Divin et semblait isolée du Kun Xu, c'était parce qu'elle n'appartenait pas au Monde des Grottes.
 
 « Après être arrivés ici, ces cultivateurs étrangers ont utilisé une méthode inconnue pour transplanter une planète provenant du Continent Astral Immortel. » Wang Lin ferma les yeux et s'intégra au Dao Céleste. Lorsqu'il les rouvrit lentement, son regard était empreint d'une clarté absolue.
 

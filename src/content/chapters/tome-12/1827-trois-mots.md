@@ -80,7 +80,7 @@ Le temps s'écoulait lentement. Peu après, alors qu'il ne restait plus que la m
 
 « Comment saviez-vous que je réapparaîtrais ici après mon départ? »
 
-« Ma Secte Da Hun possède un sort taoïste nommé "Le Dao de l'Œil de l'Âme". Ce sort permet de diviner bien des choses... Il existe une multitude de personnes sur le Continent Astral Immortel, et parmi elles, de nombreuses méthodes de divination. Dans mon clan céleste, l'Enseignant Impérial de la Capitale Impériale est le premier. »
+« Ma Secte Da Hun possède un sort taoïste nommé "Le Dao de l'Œil de l'Âme". Ce sort permet de diviner bien des choses... Il existe une multitude de personnes sur le Continent Astral Immortel, et parmi elles, de nombreuses méthodes de divination. Dans mon clan céleste, l'Enseignant Impérial Dao Xuan de la Capitale Impériale est le premier. »
 
 « Avec son seul pouvoir, en matière de divination, il pourrait rivaliser avec les trois Enseignants Impériaux des trois Anciens Pays! »
 

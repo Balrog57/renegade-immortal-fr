@@ -50,11 +50,11 @@ Il sentait qu'au plus profond du Continent Lu Mo résidait une force mystérieus
 
 Le Continent Tian Niu ne possédait pas de Temple Tian Niu. Ce genre d'édifice nécessitait l'autorisation de l'Empereur; sans elle, aucun temple ne pouvait être érigé.
 
-L'énergie démoniaque était si intense qu'elle pouvait affecter l'esprit. Wang Lin n'approcha pas le lieu, mais le contourna, continuant sa téléportation vers la frontière du Continent Terre-Meng.
+L'énergie démoniaque était si intense qu'elle pouvait affecter l'esprit. Wang Lin n'approcha pas le lieu, mais le contourna, continuant sa téléportation vers la frontière du Continent Meng Tu.
 
 Le temps s'écoula lentement. En un éclair, plusieurs mois passèrent. Durant cette période, Wang Lin croisa quelques cultivateurs, mais aucun ne put l'arrêter. Après plusieurs mois, il atteignit la bordure du Continent Lu Mo.
 
-À la frontière du Continent Terre-Meng se dressait l'une des rares chaînes de montagnes du Continent Lu Mo. Elle était si haute qu'elle semblait toucher le ciel. Une fois franchie, il atteindrait le Continent Terre-Meng.
+À la frontière du Continent Meng Tu se dressait l'une des rares chaînes de montagnes du Continent Lu Mo. Elle était si haute qu'elle semblait toucher le ciel. Une fois franchie, il atteindrait le Continent Meng Tu.
 
 Debout au pied de cette chaîne, Wang Lin contempla calmement les sommets imposants. Il perçut deux sources monstrueuses d'énergie démoniaque au sommet, lesquelles se condensaient en deux géants scorpions enroulés devant la montagne.
 

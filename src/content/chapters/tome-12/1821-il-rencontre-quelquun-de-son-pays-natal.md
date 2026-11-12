@@ -36,7 +36,7 @@ D'après les observations de Wang Lin, la montagne comptait au total dix-neuf gr
 
 Peu après, la femme arriva devant la dernière grotte. À présent, elle était trempée de sueur à cause de la vague de chaleur.
 
-« Senior Sister, le fruit de la division de l'âme est arrivé », dit-elle d'une voix affaiblie devant l'entrée.
+« Senior sœur, le fruit de la division de l'âme est arrivé », dit-elle d'une voix affaiblie devant l'entrée.
 
 « Dépose-le », répondit une voix douce derrière la porte close. En entendant cela, l'esprit de Wang Lin vacilla.
 

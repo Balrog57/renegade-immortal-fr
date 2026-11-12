@@ -60,7 +60,7 @@ Les grondements tonitruants retentirent une fois de plus et, alors que le pont v
 
 Wang Lin ne pouvait pas remettre l'Arc de Li Guang; il lui était d'une utilité immense. C'était son appui pour traiter avec ces grands cultivateurs du Vide Arcanique! Plus important encore, il ne voulait pas laisser sa vie entre les mains d'autrui. Il refusait que son existence soit contrôlée par une simple pensée!
 
-« Même s'il était à pleine puissance, ce Navire Démon des Âmes pourrait l'arrêter pendant des dizaines d'heures. » À cet instant précis, une voix froide retentit derrière Wang Lin.
+« Même s'il était à pleine puissance, ce Navire Démon des Âmes pourrait l’arrêter pendant des dizaines de périodes de deux heures. » À cet instant précis, une voix froide retentit derrière Wang Lin.
 
 Fan Shanlu ouvrit lentement les yeux.
 
@@ -74,7 +74,7 @@ La femme détourna son regard de l'extérieur du bateau pour fixer Wang Lin. Un 
 
 Les yeux de Wang Lin se rétrécirent et il l'observa attentivement sans dire un mot.
 
-« Tu devrais connaître mon identité grâce à ma petite sœur: je suis la partenaire taoïste du Souverain Céleste aux Sept Couleurs. » Tout en parlant, elle leva sa main droite et forma un sceau. D'un geste, une lumière aux sept couleurs jaillit de sa paume et vola vers la barrière extérieure.
+« Tu devrais connaître mon identité grâce à ma petite sœur: je suis la partenaire Dao du Souverain Céleste aux Sept Couleurs. » Tout en parlant, elle leva sa main droite et forma un sceau. D'un geste, une lumière aux sept couleurs jaillit de sa paume et vola vers la barrière extérieure.
 
 Après avoir fusionné avec la protection, une aura puissante émana du navire et la barrière devint encore plus robuste. Les grondements provenant de l'extérieur furent presque totalement étouffés, les sons atteignant leurs oreilles n'étant plus qu'un murmure imperceptible.
 

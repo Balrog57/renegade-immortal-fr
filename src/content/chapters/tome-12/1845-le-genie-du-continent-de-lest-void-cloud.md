@@ -1,6 +1,6 @@
 ---
 n: 1845
-title: "Le Génie du Continent de l'Est: Nuage du Vide!"
+title: "Le Génie du Continent de l'Est: Yun Kong!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1845 - The Eastern Continent’s Genius Void Cloud!"
@@ -52,7 +52,7 @@ Sous les éclats de tonnerre, le bras se dissipa avec les dix mille chevaux. Qua
 
 De l'autre côté de la Mer Dan, près du Continent Lu Mo là où se trouvaient les trois grands fanions, le jeune homme réapparut aux côtés de la femme tenant la boussole. Dès son apparition, il cracha du sang. Son visage était marqué par la terreur et ses yeux trahissaient une peur persistante.
 
-Il essuya le sang au coin de sa bouche et dit: « Un accident est survenu. Il est probable que le frère Qian soit mort... Quand le Continent Tian Niu a-t-il engendré un tel cultivateur? Son nom est Wang Lin! Nous devons en informer immédiatement notre secte. »
+Il essuya le sang au coin de sa bouche et dit: « Un accident est survenu. Il est probable que le Senior Frère Qian soit mort... Quand le Continent Tian Niu a-t-il engendré un tel cultivateur? Son nom est Wang Lin! Nous devons en informer immédiatement notre secte. »
 
 La femme à ses côtés fixait toujours la boussole. Ses yeux étaient rivés sur le point blanc représentant Wang Lin.
 

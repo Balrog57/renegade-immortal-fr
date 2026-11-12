@@ -24,7 +24,7 @@ Wang Lin laissa échapper un soupir, serra Song Zhi contre lui et descendit vers
 
 Wang Lin se tint devant Luo Chen et contempla ce visage familier.
 
-« Luo Chen salue Senior... » soupira l'homme costaud en joignant les mains en signe de respect envers Wang Lin.
+« Luo Chen salue Seigneur... » soupira l'homme costaud en joignant les mains en signe de respect envers Wang Lin.
 
 « Toi... Quand t'es-tu séparé du Serpent aux yeux de lune? » demanda Wang Lin.
 

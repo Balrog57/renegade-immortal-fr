@@ -1,6 +1,6 @@
 ---
 n: 1707
-title: "Les attentes de l'Immortal Astral Continent"
+title: "Les attentes du Continent Astral Immortel"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1707 - Expectations from the Immortal Astral Contient

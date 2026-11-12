@@ -44,7 +44,7 @@ Les yeux du premier Tian Yunzi apparu dans la partie orientale de la Rivière In
 
 À cet instant, les corps de Tian Yunzi s'effondrèrent soudainement, et des grondements tonitruants résonnèrent à travers les quatre systèmes stellaires. Près de 3 000 Tian Yunzis s'écroulèrent, et une âme jaillit de chacun d'eux. Chaque âme se précipita vers l'avatar de Wang Lin!
 
-« Voyons si tu es plus rapide que moi! Lorsque ce vieil homme complotait contre toi, tu n'étais qu'un simple cultivateur de l'Âme Naissante. Sans lui, ton corps aurait déjà pourri! Tout ce que tu es m'appartient! » Les 3 000 âmes chargèrent, projetant des ondes de force d'âme qui fusionnèrent entre elles. Cela créa un son fracassant qui résonna dans l'esprit de l'avatar de Wang Lin.
+« Voyons si tu es plus rapide que moi! Lorsque ce vieil homme complotait contre toi, tu n'étais qu'un simple cultivateur de l'Âme Naissante. Sans moi, ton corps aurait déjà pourri! Tout ce que tu es m'appartient! » Les 3 000 âmes chargèrent, projetant des ondes de force d'âme qui fusionnèrent entre elles. Cela créa un son fracassant qui résonna dans l'esprit de l'avatar de Wang Lin.
 
 Tandis que les trois mille âmes fonçaient sur l'avatar de Wang Lin, son corps original vit défiler encore plus d'éveils de la réincarnation de Tian Yunzi!
 

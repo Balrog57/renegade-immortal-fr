@@ -6,19 +6,19 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1801 - There is Something Strange, There is a Problem, There is a Treasure!"
 slug: il-y-a-quelque-chose-detrange-il-y-a-un-probleme-il-y-a-un-tresor
 ---
-Le continent du Taureau Céleste faisait partie du Continent de l'Est. C'était une région reculée et montagneuse; vue d'en haut, la majeure partie du continent n'était qu'une succession de sommets.
+Le Continent Tian Niu faisait partie du Continent de l'Est. C'était une région reculée et montagneuse; vue d'en haut, la majeure partie du continent n'était qu'une succession de sommets.
 
-La rumeur prétendait qu'aux premiers âges, le continent du Taureau Céleste était une bête maléfique venue d'au-delà du ciel, que l'Ancêtre Céleste avait tuée, et dont le corps s'était transformé en ce continent. D'autres rumeurs allaient jusqu'à dire que les 72 continents n'étaient en réalité que 72 sceaux destinés à réprimer 72 bêtes extraterrestres féroces!
+La rumeur prétendait qu'aux premiers âges, le Continent Tian Niu était une bête maléfique venue d'au-delà du ciel, que l'Ancêtre Céleste avait tuée, et dont le corps s'était transformé en ce continent. D'autres rumeurs allaient jusqu'à dire que les 72 continents n'étaient en réalité que 72 sceaux destinés à réprimer 72 bêtes extraterrestres féroces!
 
 Même les 36 États des pays antiques possédaient des légendes similaires. Cependant, tant de temps avait passé que nul ne savait si ces récits étaient vrais. Peut-être seuls des êtres tels que les Neuf Soleils et les familles royales des deux races en détenaient la vérité.
 
 Pour les autres cultivateurs, cela n'avait aucune importance, car ils ne pouvaient de toute façon pas ressentir l'existence de telles bêtes féroces.
 
-La légende du continent du Taureau Céleste remontait à l'Antiquité. Si le continent comptait tant de montagnes, c'était parce que chacune d'elles était formée par un os de cette créature maléfique.
+La légende du Continent Tian Niu remontait à l'Antiquité. Si le continent comptait tant de montagnes, c'était parce que chacune d'elles était formée par un os de cette créature maléfique.
 
-Sur le continent du Taureau Céleste existaient deux sectes célèbres: la Secte Gui Yi et la Secte Da Hun.
+Sur le Continent Tian Niu existaient deux sectes célèbres: la Secte Gui Yi et la Secte Da Hun.
 
-Ces deux puissances étaient immenses et faisaient partie des neuf sectes et treize factions du Continent de l'Est! Elles comptaient un nombre prodigieux de disciples, mais comme le continent du Taureau Céleste équivalait à des dizaines de mondes caverneux, il était rare qu'elles se rencontrent, ce qui limitait les frictions entre elles.
+Ces deux puissances étaient immenses et faisaient partie des neuf sectes et treize factions du Continent de l'Est! Elles comptaient un nombre prodigieux de disciples, mais comme le Continent Tian Niu équivalait à des dizaines de mondes caverneux, il était rare qu'elles se rencontrent, ce qui limitait les frictions entre elles.
 
 La Secte Da Hun était très singulière. Elle pratiquait une multitude de méthodes de culture, mais ses spécialités majeures étaient l'âme et l'illusion!
 
@@ -28,11 +28,11 @@ Quant à la Secte Gui Yi, elle se concentrait sur les cinq éléments. De plus, 
 
 Sous la Secte Gui Yi et la Secte Da Hun se trouvaient de nombreuses petites sectes éparpillées. Elles étaient sous la tutelle de l'une ou l'autre et devaient périodiquement leur verser des tributs.
 
-La Secte Qi Dao, fondée par le Souverain Céleste aux Sept Couleurs, était l'une de ces sectes. Cependant, comme il avait pris une disciple de la Secte Da Hun pour partenaire de dao, il bénéficiait de la protection de cette dernière sur le continent du Taureau Céleste. Son talent étant exceptionnel, il était légitimement estimé par la Secte Da Hun.
+La Secte Qi Dao, fondée par le Souverain Céleste aux Sept Couleurs, était l'une de ces sectes. Cependant, comme il avait pris une disciple de la Secte Da Hun pour partenaire de dao, il bénéficiait de la protection de cette dernière sur le Continent Tian Niu. Son talent étant exceptionnel, il était légitimement estimé par la Secte Da Hun.
 
 Toutefois, au cours des dernières décennies, un disciple central de la Secte Gui Yi nommé Yun Yifeng était devenu célèbre. On murmurait qu'il s'était retiré en culture fermée pendant une longue période et qu'à sa sortie, il était devenu extraordinaire. Il avait défié plusieurs disciples centraux de la Secte Da Hun et les avait tous vaincus. Même les anciens ordinaires de la Secte Da Hun n'étaient pas de taille contre lui.
 
-Par conséquent, la réputation de Yun Yifeng s'était envolée, le hissant peu à peu au premier rang de la nouvelle génération de disciples du continent du Taureau Céleste!
+Par conséquent, la réputation de Yun Yifeng s'était envolée, le hissant peu à peu au premier rang de la nouvelle génération de disciples du Continent Tian Niu!
 
 Certains l'incluaient même parmi les quatre génies célestes précédemment nommés du Continent de l'Est, formant ainsi les « Cinq Pics »!
 
@@ -40,7 +40,7 @@ Pourtant, ce Yun Yifeng se montrait très modeste et secouait souvent la tête l
 
 Il y a dix ans, lors d'un affrontement entre la Secte Da Hun et la Secte Gui Yi, Yun Yifeng avait blessé neuf disciples et trois anciens de la Secte Da Hun en une seule attaque.
 
-Lorsqu'on le compara alors aux quatre génies célestes du Continent de l'Est, il prononça des paroles qui choquèrent tout le continent du Taureau Céleste:
+Lorsqu'on le compara alors aux quatre génies célestes du Continent de l'Est, il prononça des paroles qui choquèrent tout le Continent Tian Niu:
 
 « Mon épée peut blesser de nombreux adversaires; je n'hésiterais pas à affronter ces quatre génies. Bien que je ne sois pas certain de gagner, je ne reculerai pas d'un demi-pas! »
 
@@ -68,13 +68,13 @@ Qui était-il?
 
 « Il apparaîtra. Et le jour où il apparaîtra, vous saurez! » Ce furent les derniers mots de Yun Yifeng concernant ce mystérieux individu.
 
-Bien que plusieurs années se soient écoulées, la rumeur ne cessait de se propager sur tout le continent du Taureau Céleste. À force de se transmettre de bouche à oreille, elle devenait chaque jour plus extravagante.
+Bien que plusieurs années se soient écoulées, la rumeur ne cessait de se propager sur tout le Continent Tian Niu. À force de se transmettre de bouche à oreille, elle devenait chaque jour plus extravagante.
 
 Pourtant, la question restait sans réponse. Et ceux qui détenaient la vérité gardaient le silence!
 
 Le temps passa, et l'agitation finit par s'estomper, laissant la rumeur s'enraciner dans les cœurs. Peut-être qu'un jour, ils découvriraient enfin l'identité de cet homme...
 
-La Secte Cang Long était une secte de niveau intermédiaire, dont le territoire couvrait moins de la moitié du Vide Brillant. Du point de vue d'un cultivateur de monde caverneux, elle n'était pas aussi vaste que le Temple Céleste du Tonnerre ou l'Alliance Xiu Zhen, mais elle demeurait un colosse. En revanche, sur le Continent Astral Immortel, elle était considérée comme moyenne.
+La Secte Cang Long était une secte de niveau intermédiaire, dont le territoire couvrait moins de la moitié du Domaine Stellaire Kun Xu. Du point de vue d'un cultivateur de monde caverneux, elle n'était pas aussi vaste que le Temple Céleste du Tonnerre ou l'Alliance Xiu Zhen, mais elle demeurait un colosse. En revanche, sur le Continent Astral Immortel, elle était considérée comme moyenne.
 
 On racontait que le Continent Astral Immortel comptait 30 000 sectes célestes. Nul ne savait si cela était vrai, mais chaque secte était effectivement unique. Le nom de « Secte Cang Long » laissait supposer un lien avec les dragons, mais les méthodes de culture de ses disciples n'en avaient rien à voir.
 
@@ -86,7 +86,7 @@ L'art des marionnettes n'était pas si mystérieux; les cultivateurs d'autres se
 
 La rumeur disait que le premier membre de la secte à avoir atteint le stade initial de la Tribulation du Vide, le Grand Ancien Du Qing, était un être fait de bois. En apparence, il ressemblait à un homme ordinaire, mais dès qu'il utilisait ses sorts, son corps ligneux devenait visible.
 
-Sur le continent du Taureau Céleste, la Secte Cang Long jouissait d'une réputation sinistre. Ses disciples, et même ses anciens, utilisaient tous les moyens pour obtenir ce qu'ils désiraient, y compris le massacre pour s'emparer de trésors.
+Sur le Continent Tian Niu, la Secte Cang Long jouissait d'une réputation sinistre. Ses disciples, et même ses anciens, utilisaient tous les moyens pour obtenir ce qu'ils désiraient, y compris le massacre pour s'emparer de trésors.
 
 Cependant, le Grand Ancien Du Qing entretenait des liens profonds avec la Secte Da Hun; ils pouvaient donc agir à leur guise, et peu de sectes osaient les provoquer.
 
@@ -98,7 +98,7 @@ Kang Ren était un disciple de troisième génération de la Secte Cang Long. Ru
 
 Il était un bel homme, ce qui rendait sa cruauté difficile à imaginer. Même certains disciples de deuxième génération hésitaient à le provoquer.
 
-Ce jour-là, Kang Ren volait dans les airs, les yeux plissés, patrouillant aux frontières du continent du Taureau Céleste pour débusquer d'éventuels étrangers. Soudain, alors qu'il survolait la région, un changement brusque se produisit au loin!
+Ce jour-là, Kang Ren volait dans les airs, les yeux plissés, patrouillant aux frontières du Continent Tian Niu pour débusquer d'éventuels étrangers. Soudain, alors qu'il survolait la région, un changement brusque se produisit au loin!
 
 Il vit une déchirure apparaître dans l'espace et, dans un éclat de lumière spectrale, une silhouette en tomba. La forme semblait porter un cercueil en chutant vers le sol.
 

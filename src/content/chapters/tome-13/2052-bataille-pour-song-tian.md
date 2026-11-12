@@ -24,7 +24,7 @@ Sur le Mont Empereur, dans la cité ancestrale, le Grand Empyréen Jiu Di regard
 
 « Normalement, le fait qu'il devienne un Grand Empyréen ne serait pas une surprise totale, mais c'est... cela ne fait que cent ans et il a déjà raffiné la tête de l'Ancêtre Céleste!! »
 
-« Et le moment où il est devenu un Grand Empyréen... » Le cœur de Jiu Di tressaillit. Il était le seul à connaître la vérité sur les 72 âmes qui avaient causé ce tumulte. Il repensa au regard échangé plus tôt et ne put s'empêcher de faire le lien avec l'ascension de Wang Lin.
+« Et le moment où il est devenu un Grand Empyréen... » Le cœur de Jiu Di tressaillit. Il était le seul à connaître la vérité sur le trouble des âmes dans les soixante-douze continents. Il repensa au regard échangé plus tôt et ne put s'empêcher de faire le lien avec l'ascension de Wang Lin.
 
 Jiu Di laissa paraître son effroi et murmura pour lui-même: « Cela devrait être... impossible!! »
 

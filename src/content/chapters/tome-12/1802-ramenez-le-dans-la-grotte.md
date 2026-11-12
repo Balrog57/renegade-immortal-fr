@@ -54,7 +54,7 @@ Alors que Kang Ren s'apprêtait à entrer dans la vallée, un rugissement retent
 
 Un éclat de froideur traversa le regard de Kang Ren. Il s'arrêta à l'entrée de la vallée et rugit: « Xu Yun, qu'est-ce que cela signifie? »
 
-« Oh? Il s'agit donc du Frère Cadet Kang. Le brouillard était trop épais pour que je te reconnaisse. Le Frère Cadet n'était-il pas parti? Comment se fait-il que tu sois déjà de retour? Qu'as-tu capturé avec ton filet à marionnettes? » La voix était désinvolte, et un jeune homme bossu sortit de la vallée.
+« Oh? Il s'agit donc du Junior frère Kang. Le brouillard était trop épais pour que je te reconnaisse. Le Junior frère n'était-il pas parti? Comment se fait-il que tu sois déjà de retour? Qu'as-tu capturé avec ton filet à marionnettes? » La voix était désinvolte, et un jeune homme bossu sortit de la vallée.
 
 Le jeune homme était très beau, mais sa bosse gâchait toute l'aura positive que son visage aurait dû dégager; il dégageait une impression profondément discordante.
 

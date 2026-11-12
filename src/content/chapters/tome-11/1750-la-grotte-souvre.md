@@ -26,7 +26,7 @@ Simultanément, dans les diverses régions du Royaume Extérieur, les concubines
 
 « Le cœur de la grotte s'est ouvert!! » Un instant plus tard, les concubines s'élancèrent depuis divers points du Royaume Extérieur vers le Royaume Intérieur!
 
-Au même moment, dans le Royaume Intérieur, au sein du Vide Brillant, la zone entourant la planète Suzaku trembla. Le brouillard tourbillonna et le vide à l'extérieur de la planète se déchira silencieusement! L'aura du champ de bataille étranger s'échappa de la faille tandis que des fragments volaient rapidement pour se rassembler et former une autre plaque de schiste! Cette plaque, semblable à un petit continent, vola vers Luotian dès son apparition!
+Au même moment, dans le Royaume Intérieur, au sein du Système Stellaire Kun Xu, la zone entourant la planète Suzaku trembla. Le brouillard tourbillonna et le vide à l'extérieur de la planète se déchira silencieusement! L'aura du champ de bataille étranger s'échappa de la faille tandis que des fragments volaient rapidement pour se rassembler et former une autre plaque de schiste! Cette plaque, semblable à un petit continent, vola vers Luotian dès son apparition!
 
 Ce n'était pas le seul endroit. Des plaques identiques se formaient également dans les trois autres systèmes stellaires. Un nombre inconnu de plaques se précipitait vers Luotian depuis tous les recoins du monde de la grotte!
 
@@ -52,7 +52,7 @@ C'est à cet instant que le monde de la grotte connut un bouleversement sans pr�
 
 Il y avait aussi la femme qui n'était pas allée dans le Royaume Céleste mais était restée sur une planète de la Rivière Invoquée. Cette femme, nommée Zi Xia, était l'une des concubines. Elle réfléchit silencieusement un instant avant de serrer les dents et de s'élancer.
 
-Tandis que tout le monde de la grotte basculait, les grandes plaques commençaient à charger vers Luotian. Dans le Vide Brillant, sur la planète cachée des Cinq Éléments, le groupe de cultivateurs mené par le vieil homme nommé Ma hésita un court instant. Puis, dans un soupir, ils se précipitèrent vers Luotian!
+Tandis que tout le monde de la grotte basculait, les grandes plaques commençaient à charger vers Luotian. Dans le Système Stellaire Kun Xu, sur la planète cachée des Cinq Éléments, le groupe de cultivateurs mené par le vieil homme nommé Ma hésita un court instant. Puis, dans un soupir, ils se précipitèrent vers Luotian!
 
 Yun Yifeng suivit le vieil homme Ma et tourna son regard vers Luotian. Ses yeux brillaient d'une lueur étrange.
 
@@ -64,7 +64,7 @@ Le monde de la grotte grondait violemment et le brouillard se mouvait comme une 
 
 Soudain, une voix puissante résonna dans l'esprit de Situ Nan et de Qing Shui. Cette voix était celle de Lanmeng Daozun!
 
-« J'avais promis à Wang Lin de l'aider... Cet endroit étrange s'est ouvert, mais ne possédant pas le lignage d'un être céleste, je ne peux y pénétrer. Je dois emprunter vos âmes... Êtes-vous d'accord? »
+« J'avais promis à Wang Lin de l'aider... Cet endroit étrange s'est ouvert, mais ne possédant pas le lignage du Continent Astral Immortel, je ne peux y pénétrer. Je dois emprunter vos âmes... Êtes-vous d'accord? »
 
 Les nuages de brume et les fragments de dalles affluèrent de toutes les directions du monde de la grotte pour converger vers Luotian!
 

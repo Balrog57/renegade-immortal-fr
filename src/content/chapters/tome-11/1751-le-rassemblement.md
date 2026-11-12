@@ -100,7 +100,7 @@ L'une d'elles observa Wang Lin avec une expression complexe. C'était la troisi�
 
 Les disciples de la Secte Qi Dao, venus de l'Ancien Royaume Céleste dans le Royaume Extérieur, arrivèrent avec les concubines. Ils encerclèrent la zone, les yeux rivés sur Wang Lin.
 
-Bientôt, Zi Xia arriva de la Rivière Invoquée. Après avoir inspecté les lieux, son regard tomba sur Wang Lin, encerclé, et une lueur meurtrière traversa ses yeux.
+Bientôt, Zi Xia arriva de la Rivière Zhao He. Après avoir inspecté les lieux, son regard tomba sur Wang Lin, encerclé, et une lueur meurtrière traversa ses yeux.
 
 Elle lui en voulait depuis l'instant où il avait refusé de s'allier à elle; l'intention de tuer avait déjà germé dans son cœur à cette époque. Si elle n'avait pas su qu'elle ne pouvait rivaliser avec lui, elle l'aurait attaqué depuis longtemps. En voyant Wang Lin ainsi acculé, elle laissa échapper un ricanement méprisant.
 

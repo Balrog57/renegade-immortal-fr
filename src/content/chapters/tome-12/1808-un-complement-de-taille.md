@@ -46,7 +46,7 @@ Ils furent absorbés instantanément par son œil gauche, y formant une empreint
 
 L'empreinte scintilla, projetant une lueur éclatante dans la grotte désormais privée de la lumière des flammes!
 
-« Ma propre essence de feu est déjà formée et s'avère même plus puissante que lorsqu'elle était dans le monde des grottes... Mais elle est incompatible avec le feu terrestre de ce continent du Taureau Céleste... »
+« Ma propre essence de feu est déjà formée et s'avère même plus puissante que lorsqu'elle était dans le monde des grottes... Mais elle est incompatible avec le feu terrestre de ce Continent Tian Niu... »
 
 « Je dois trancher entre ces deux feux... Sinon, si je rencontre une autre personne possédant une essence de feu, elle verra immédiatement que quelque chose ne va pas. De plus, le feu terrestre ici est trop différent, ce qui me place en position de faiblesse! » Wang Lin était sur le Continent Astral Immortel depuis plus d'un mois, et il en ressentait déjà les divergences.
 
@@ -64,7 +64,7 @@ La force de rejet était extrêmement puissante. Sous la manipulation forcée de
 
 L'oiseau vermillon, façonné par l'âme originelle de Wang Lin, emplit la grotte d'une chaleur torride avant de disparaître sous terre.
 
-Tout le continent du Taureau Céleste était parcouru par de nombreuses veines de feu terrestre s'étendant sous toutes les montagnes. Dès que l'âme originelle de Wang Lin s'enfonça dans les profondeurs, il ressentit une chaleur suffocante montant des entrailles du monde.
+Tout le Continent Tian Niu était parcouru par de nombreuses veines de feu terrestre s'étendant sous toutes les montagnes. Dès que l'âme originelle de Wang Lin s'enfonça dans les profondeurs, il ressentit une chaleur suffocante montant des entrailles du monde.
 
 Cette aura était très nocive pour une âme originelle, mais elle ne posait aucun problème à Wang Lin. Tandis qu'il chargeait vers le bas, une vague de chaleur émanant de son propre corps se déploya pour contrer le feu terrestre.
 

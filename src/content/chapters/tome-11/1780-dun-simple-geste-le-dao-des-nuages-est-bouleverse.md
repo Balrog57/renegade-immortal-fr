@@ -32,7 +32,7 @@ L'expression de Wang Lin restait calme. D'après les souvenirs qu'il avait extra
 
 Dans ses premières années, la personnalité de Sept-Couleurs était lâche et il ne disait jamais rien.
 
-Quant à Zhou Li, c'était le frère aîné de Sept-Couleurs, également très talentueux. En apparence, il était doux, mais en vérité, il méprisait Sept-Couleurs et ignorait délibérément tous ceux qui le harcelaient.
+Quant à Zhou Li, c'était le Grand Senior frère de Sept-Couleurs, également très talentueux. En apparence, il était doux, mais en vérité, il méprisait Sept-Couleurs et ignorait délibérément tous ceux qui le harcelaient.
 
 S’avançant sous la pluie, Wang Lin entra dans la salle sous les regards envieux de l'assemblée. À l'intérieur, l'homme d'âge moyen était assis sur une chaise, tandis que Zhou Li se tenait respectueusement à ses côtés.
 

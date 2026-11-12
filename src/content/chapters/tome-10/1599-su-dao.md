@@ -32,9 +32,9 @@ Sur la rive se trouvait une forêt de pêchers en fleurs. Tandis que les flocons
 
 Outre le batelier et ces deux hommes, trois magnifiques femmes se trouvaient également sur le bateau. L'une jouait de la cithare tandis que les deux autres chantaient et dansaient. La barque dérivait le long de la rivière, passant sous les ponts de pierre qui enjambaient la rivière, accompagnée des flocons de saule, pour s'éloigner paisiblement vers l'horizon.
 
-« Grande Fortune, apporte le vin! » Wang Lin se retourna vers l'homme d'âge mûr en riant.
+« Da Fu, apporte le vin! » Wang Lin se retourna vers l'homme d'âge mûr en riant.
 
-Grande Fortune eut une expression de détresse et continua de soupirer. Il saisit une cruche et la tendit à contrecœur à Wang Lin, commençant à parler comme s'il était sur le point de pleurer.
+Da Fu eut une expression de détresse et continua de soupirer. Il saisit une cruche et la tendit à contrecœur à Wang Lin, commençant à parler comme s'il était sur le point de pleurer.
 
 « Jeune Maître, il ne reste vraiment plus beaucoup d'argent... Nous louons ce bateau, mais nous achetons aussi du vin. Ces trois jeunes filles qui nous accompagnent coûtent cher également, les dépenses quotidiennes sont tout simplement trop élevées... Et si... et si nous débarquions pour trouver une auberge bon marché afin d'économiser un peu? »
 
@@ -42,9 +42,9 @@ Grande Fortune eut une expression de détresse et continua de soupirer. Il saisi
 
 « Jeune Maître, j'ai sorti tout l'argent que je cachais. Vous... vous... Maudit soit! Ce vieil homme a fait le compte. Si nous continuons ainsi, nous finirons mendiants dans sept jours! »
 
-« Cela fait plus d'un mois, un mois! Qui diable attendez-vous et pourquoi n'est-il pas encore venu? » Grande Fortune se plaignait amèrement, le cœur serré.
+« Cela fait plus d'un mois, un mois! Qui diable attendez-vous et pourquoi n'est-il pas encore venu? » Da Fu se plaignait amèrement, le cœur serré.
 
-Comme la scène était cocasse, la femme qui marquait une pause dans sa danse éclata de rire. Les yeux de Grande Fortune s'écarquillèrent et il fixa la jeune femme. Après avoir marmonné quelques mots, il saisit lui-même une cruche et en prit une grande gorgée.
+Comme la scène était cocasse, la femme qui marquait une pause dans sa danse éclata de rire. Les yeux de Da Fu s'écarquillèrent et il fixa la jeune femme. Après avoir marmonné quelques mots, il saisit lui-même une cruche et en prit une grande gorgée.
 
 « Je dois boire davantage, c'est un excellent vin. Une gorgée pour une demi-pièce d'argent... »
 
@@ -58,7 +58,7 @@ Les deux femmes qui se reposaient sur le bateau restèrent stupéfaites et regar
 
 On ignorait depuis combien de temps Wang Lin était assis devant l'instrument avant de commencer à jouer. La musicienne s'était assise à ses côtés. Une splendeur indicible brillait dans ses beaux yeux, comme si elle était perdue dans la mélodie.
 
-Même Grande Fortune était pétrifié. Il buvait des gorgées de vin les unes après les autres, oubliant sa douleur pour fixer son poignet droit.
+Même Da Fu était pétrifié. Il buvait des gorgées de vin les unes après les autres, oubliant sa douleur pour fixer son poignet droit.
 
 Cette musique était celle que Li Muwan jouait jadis. Ce n'était pas la même mélodie, mais elle avait le même charme, et elle avait aussi résonné entre les mains de la femme aveugle de la Terre Yao Ling.
 

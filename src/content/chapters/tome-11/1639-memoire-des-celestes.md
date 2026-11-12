@@ -100,7 +100,7 @@ Les trois autres étaient également sous le choc.
 
 « Cet enfant n'est pas ordinaire... Nous devons modifier nos plans à son égard. Le fait qu'il puisse briser le sceau du Souverain Céleste signifie qu'il possède un sort stupéfiant. Un tel pouvoir pourrait même ébranler le Continent Astral Immortel! » Un vieil homme sortit du vortex de la troisième statue. Il scruta l'horizon et eut le souffle coupé.
 
-L'Oiseau Vermillon resta silencieux. Il contemplait le monde à l'intérieur du vortex, son expression changeant sans cesse.
+Suzaku resta silencieux. Il contemplait le monde à l'intérieur du vortex, son expression changeant sans cesse.
 
 Alors que les restes du vieil homme s'effondraient, Wang Lin se retira de la force d'explosion. Son visage demeura impassible tandis qu'il regardait au loin, affichant un sourire narquois.
 

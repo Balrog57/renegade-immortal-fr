@@ -96,7 +96,7 @@ Simultanément, un fracas retentit et le bouclier lumineux entourant Mu Bingmei 
 
 Le regard de Mu Bingmei ne trahissait qu'une détermination de martyr. Les membres de la Secte Divine se ruèrent en avant, prêts à mourir avec le Royaume Intérieur!
 
-À cet instant précis, à l'extérieur de la formation planétaire, Qing Lin, la femme de la Rivière Invoquée et le Maître Hong Shan, qui combattaient les cultivateurs du Vide Arcanique du Royaume Extérieur, affrontaient eux aussi leurs plus grands combats pour la survie!
+À cet instant précis, à l'extérieur de la formation planétaire, Qing Lin, la femme de Zhao He et le Maître Hong Shan, qui combattaient les cultivateurs du Vide Arcanique du Royaume Extérieur, affrontaient eux aussi leurs plus grands combats pour la survie!
 
 Cette crise de vie ou de mort pourrait décider de l'issue de cette guerre! Une puissance capable de subjuguer tout le domaine stellaire apparut au-dessus de la formation planétaire, venue de très loin. Cette pression se propagea à travers le système, ébranlant les esprits et les cœurs de tous les cultivateurs du Royaume Intérieur. Les centaines de milliers de cultivateurs du Royaume Extérieur, quant à eux, poussèrent des cris de joie.
 
@@ -106,7 +106,7 @@ Ce palais était vénéré par d'innombrables cultivateurs de l'Ancien Système 
 
 Le Souverain était entré pour la première fois dans le Royaume Intérieur sous sa forme originelle! Vêtu d'une robe noire, il se tenait au sommet de l'édifice. Son visage restait indistinct, mais on pouvait distinguer sa main desséchée. Cette main était aussi sèche qu'un os, et pourtant, elle dégageait une aura destructrice terrifiante!
 
-Après avoir levé la main, il pressa Maître Hong Shan, la femme de la Rivière Invoquée et Qing Lin!
+Après avoir levé la main, il pressa Maître Hong Shan, la femme de Zhao He et Qing Lin!
 
 « Tout est terminé! » Une voix ancienne et rauque s'éleva du Souverain. Tandis qu'il parlait, une empreinte de paume gigantesque apparut.
 

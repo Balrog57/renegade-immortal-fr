@@ -1,6 +1,6 @@
 ---
 n: 1740
-title: Senior Frère Ma!
+title: Armure aux Doubles Éléments (I)
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Senior Brother Ma!
@@ -24,7 +24,7 @@ Une fois sorti, il agita la main droite vers la tour, faisant apparaître un éc
 
 « S'introduire sur la Planète des Cinq Éléments et inverser la Roue du Cœur... Tu as du cran, gamin. Puisque tu es venu aujourd'hui, ne repars pas si vite. Je vais te faire comprendre qu'il y a des lieux où ton clan du Dao Antique ne peut pas pénétrer! » Le vieil homme fixa Wang Lin d'un regard glacial.
 
-« Je te capturerai, puis je laisserai ton Senior venir assumer tes péchés! » Il ignorait que Wang Lin provenait du Monde des Grottes. Après avoir constaté la puissance du Dao Antique de Wang Lin, il supposa que celui-ci venait également du Continent Astral Immortel, tout comme eux!
+« Je te capturerai, puis je laisserai l'un de tes aînés venir assumer tes péchés! » Il ignorait que Wang Lin provenait du Monde des Grottes. Après avoir constaté la puissance du Dao Antique de Wang Lin, il supposa que celui-ci venait également du Continent Astral Immortel, tout comme eux!
 
 Il ne pensait pas que Wang Lin soit venu seul; d'autres membres du clan du Dao Antique étaient probablement présents. Il était fort probable qu'ils ne fussent pas là pour le trésor, mais pour trouver Ye Mo!
 
@@ -180,7 +180,7 @@ Même s'il était grièvement atteint, il possédait les moyens de quitter cet e
 
 Sous l'effet du sort « Arrête », la main droite du vieil homme se figea. Ce ne fut qu'un instant avant que le sort ne s'épuise. Wang Lin fut frappé par le contrecoup et des craquements résonnèrent dans son corps. Une brume de sang jaillit de ses pores, mais dans ses yeux, l'échange en valait la peine!
 
-L'hésitation du vieil homme permit à l'Épée de Sang de pénétrer au premier étage, créant une ouverture d'environ dix centimètres avant de jaillir de l'autre côté de la tour!
+L'hésitation du vieil homme permit à l'Épée de Sang de pénétrer au premier étage, créant une ouverture d'environ trois pouces avant de jaillir de l'autre côté de la tour!
 
 Wang Lin recula, les yeux fixés sur cette brèche, le choc se lisant sur son visage!
 

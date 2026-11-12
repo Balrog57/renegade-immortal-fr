@@ -96,7 +96,7 @@ Une cinquième essence apparut sur la Porte Kong!
 
 Cette cinquième essence était faite de Vérité et de Faux. Après son apparition, elle devint floue, comme si une autre Porte Kong s'était formée derrière elle. Deux Portes se dressaient là, et il devenait difficile de distinguer laquelle était réelle et laquelle était illusoire!
 
-« Une cinquième essence!!! C'est... c'est... » L'expression du jeune homme en robe verte changea totalement. Son corps, jusque-là immobile, recula de plusieurs dizaines de pas tout en pointant la Porte Kong. Une peur inédite se lut dans ses yeux.
+« Une cinquième essence!!! C'est... c'est... » L'expression du jeune homme en robe verte changea totalement. Son corps, jusque-là immobile, recula de plusieurs centaines de pieds tout en pointant la Porte Kong. Une peur inédite se lut dans ses yeux.
 
 « Cinq essences... ce sont réellement cinq essences. Si cette personne ne parvient pas à ouvrir la Porte Kong, ce n'est pas un problème, mais s'il y parvient, il pourra affronter des cultivateurs du stade avancé de Vide Spirituel! »
 
@@ -104,7 +104,7 @@ L'esprit de tous les cultivateurs alentour trembla de manière incontrôlable. I
 
 Les yeux du Maître Nan Yunzi s'illuminèrent. Il ignorait quel camp déclenchait la Porte, mais il savait qu'il s'agissait d'une occasion unique dans une vie.
 
-« Cultivateurs du Vide Brillant, ne fixez pas la Porte, chargeons! » rugit le Maître Nan Yunzi, sa voix réveillant les milliers de cultivateurs du Royaume Intérieur. Il chargea vers le jeune homme en robe verte qui était resté pétrifié.
+« Cultivateurs de Kun Xu, ne fixez pas la Porte, chargeons! » rugit le Maître Nan Yunzi, sa voix réveillant les milliers de cultivateurs du Royaume Intérieur. Il chargea vers le jeune homme en robe verte qui était resté pétrifié.
 
 Situ Nan, le Maître Long Pan et le Maître Lu Fu lancèrent également l'assaut. Ils engagèrent une bataille acharnée contre les cultivateurs du Royaume Extérieur tandis que le grondement de la Porte Kong résonnait.
 

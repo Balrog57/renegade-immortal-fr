@@ -54,21 +54,21 @@ Wang Lin garda la tombe pendant trois ans, jusqu'à ce que ses cheveux deviennen
 
 « 38 ans... » Des rides marquaient son visage. Il était devenu un vieil homme proche de soixante ans.
 
-Grande Fortune était encore plus âgé. S'appuyant sur une canne, il se tenait derrière Wang Lin. Il observa silencieusement son poignet droit et, après un long moment, hocha doucement la tête.
+Da Fu était encore plus âgé. S'appuyant sur une canne, il se tenait derrière Wang Lin. Il observa silencieusement son poignet droit et, après un long moment, hocha doucement la tête.
 
-« La vie... combien de tranches de 38 ans peut-on avoir... Je ne sais pas pour les autres, mais pour moi, il ne devrait plus y en avoir de suivantes », murmura Wang Lin en s'agenouillant devant la tombe de ses parents pour lui rendre un ultime kowtow.
+« La vie... combien de tranches de 38 ans peut-on avoir... Je ne sais pas pour les autres, mais pour moi, il ne devrait plus y en avoir de suivantes », murmura Wang Lin en s'agenouillant devant la tombe de ses parents pour s'incliner une dernière fois.
 
-« Te souviens-tu encore de ce vieux temple... » Wang Lin se redressa et regarda Grande Fortune, qui semblait désormais incapable de marcher très longtemps.
+« Te souviens-tu encore de ce vieux temple... » Wang Lin se redressa et regarda Da Fu, qui semblait désormais incapable de marcher très longtemps.
 
-« Dans ce vieux temple, j'ai dit que je cherchais un serviteur et tu m'as suivi. » Un sourire apparut sur les lèvres de Wang Lin en regardant Grande Fortune. Durant ces plus de trente années, Grande Fortune l'avait accompagné à chaque pas.
+« Dans ce vieux temple, j'ai dit que je cherchais un serviteur et tu m'as suivi. » Un sourire apparut sur les lèvres de Wang Lin en regardant Da Fu. Durant ces plus de trente années, Da Fu l'avait accompagné à chaque pas.
 
-« Grande Fortune peut encore être ton serviteur! » Grande Fortune roula des yeux avec un sourire malicieux.
+« Da Fu peut encore être ton serviteur! » Da Fu roula des yeux avec un sourire malicieux.
 
-« Tu es vieux, et je le suis aussi... Pourtant, il reste des choses que je veux accomplir... Grande Fortune, aide-moi à garder ma demeure. Attends-moi, attends mon retour. » Wang Lin leva les yeux vers le ciel et aperçut l'oiseau blanc.
+« Tu es vieux, et je le suis aussi... Pourtant, il reste des choses que je veux accomplir... Da Fu, aide-moi à garder ma demeure. Attends-moi, attends mon retour. » Wang Lin leva les yeux vers le ciel et aperçut l'oiseau blanc.
 
 « Il me manque encore une part de compréhension du monde. Je veux passer le reste de mes jours à parcourir les différents royaumes de la planète Suzaku. À mon retour, peut-être n'aurai-je rien appris, ou peut-être aurai-je atteint l'éveil. »
 
-Au printemps de la 38e année, Wang Lin quitta seul le village de montagne. Grande Fortune resta là, attendant silencieusement le retour de Wang Lin. Peut-être serait-ce dans dix ans, peut-être dans vingt ans, ou peut-être au terme d'une vie entière.
+Au printemps de la 38e année, Wang Lin quitta seul le village de montagne. Da Fu resta là, attendant silencieusement le retour de Wang Lin. Peut-être serait-ce dans dix ans, peut-être dans vingt ans, ou peut-être au terme d'une vie entière.
 
 Wang Lin était assis dans sa calèche et buvait du vin en solitaire tandis qu'elle s'éloignait de la montagne Heng Yue. Quelques mois plus tard, la calèche atteignit la frontière de Zhao, où Wang Lin descendit. Il congédia le cocher et prit une profonde inspiration. Il jeta un dernier regard vers Zhao avant de faire un pas en avant pour franchir la frontière.
 
@@ -80,13 +80,13 @@ Un son léger émana des rayons de lumière. Il provenait d'une femme magnifique
 
 Elle s'arrêta en plein vol et observa Wang Lin qui s'éloignait. Ses sourcils se froncèrent et ses yeux se remplirent de confusion.
 
-« Qu'y a-t-il, Junior Sister Liu? » s'étonna un cultivateur à ses côtés.
+« Qu'y a-t-il, Junior sœur Liu? » s'étonna un cultivateur à ses côtés.
 
 « Rien. Retournez d'abord à la secte. J'ai quelques affaires personnelles à régler », dit doucement la belle femme. Elle ne leur prêta plus attention et redescendit vers le sol.
 
 Le cultivateur surpris s'apprêta à la suivre.
 
-« Senior Brother, je souhaite être seule. » La voix de la femme, douce mais déterminée, résonna. Le cultivateur s'arrêta, hésita un instant, puis partit avec le reste du groupe, tout aussi étonné.
+« Senior frère, je souhaite être seule. » La voix de la femme, douce mais déterminée, résonna. Le cultivateur s'arrêta, hésita un instant, puis partit avec le reste du groupe, tout aussi étonné.
 
 Wang Lin s'arrêta et se retourna. Il leva les yeux vers le ciel alors que le magnifique rayon de lumière se rapprochait. La lumière se stabilisa à cent pieds de lui et se mua en une femme sublime vêtue de pourpre.
 

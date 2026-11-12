@@ -26,7 +26,7 @@ Par ce moyen, Wang Lin espérait localiser Tian Yunzi en exploitant le lien entr
 
 Ce n'était pas la première fois qu'il utilisait cette méthode. Il avait soigneusement pesé les risques, mais aucun danger ne lui était apparu.
 
-Alors que Wang Lin fusionnait avec l'avatar de Tian Yunzi, une météorite flottait lentement à travers la Rivière Invoquée. Tian Yunzi était assis à l'intérieur du météore, arborant un sourire étrange.
+Alors que Wang Lin fusionnait avec l'avatar de Tian Yunzi, une météorite flottait lentement à travers la Rivière Zhao He. Tian Yunzi était assis à l'intérieur du météore, arborant un sourire étrange.
 
 Ses cheveux blancs ondulaient d'une manière singulière, lui conférant l'allure d'un être céleste. Pourtant, son sourire brisait cette image et lui donnait un air extrêmement sinistre.
 
@@ -104,7 +104,7 @@ Bien que Qing Lin ait mentionné vouloir faire de Wang Lin son disciple, ce suje
 
 Voyant le sérieux de son interlocuteur, Qing Lin cessa immédiatement de sourire. Il répondit d'un ton grave: « Très bien, je ferai de mon mieux! Dites-moi ce qu'il en est. »
 
-« L'âme que je tiens appartient à un avatar de Tian Yunzi du Vide Brillant. Cet Tian Yunzi est célèbre pour sa divination et se cache quelque part. Je crains qu'il ne provoque des événements imprévus, c'est pourquoi je veux le traquer via son avatar... Mais... » Wang Lin exposa ses soupçons. Il agita la main droite et l'âme de l'avatar de Tian Yunzi apparut dans sa paume.
+« L'âme que je tiens appartient à un avatar de Tian Yunzi de Kun Xu. Ce Tian Yunzi est célèbre pour sa divination et se cache quelque part. Je crains qu'il ne provoque des événements imprévus, c'est pourquoi je veux le traquer via son avatar... Mais... » Wang Lin exposa ses soupçons. Il agita la main droite et l'âme de l'avatar de Tian Yunzi apparut dans sa paume.
 
 À ces mots, le visage de Qing Lin se durcit. Ses yeux brillèrent alors qu'il fixait l'âme de Tian Yunzi.
 

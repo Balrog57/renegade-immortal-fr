@@ -6,27 +6,27 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1885 - That Sentence!"
 slug: cette-phrase
 ---
-Le Taureau Céleste chargea vers le soleil avec une fureur déchaînée. Le niveau de culture de Bord-des-Nuages était très élevé grâce à l'armure de l'âme, mais après que le Taureau Céleste se fut précipité vers le soleil, son propre niveau de culture chuta considérablement. Il retomba du stade avancé de la Tribulation du Vide au stade intermédiaire.
+Le Taureau Céleste chargea vers le soleil avec une fureur déchaînée. Le niveau de culture de Bian Yun était très élevé grâce à l'armure de l'âme, mais après que le Taureau Céleste se fut précipité vers le soleil, son propre niveau de culture chuta considérablement. Il retomba du stade avancé de la Tribulation du Vide au stade intermédiaire.
 
 Ce sort consistait en réalité à abandonner brièvement l'armure qu'il portait : il l'avait jetée, la transformant en une véritable âme de Taureau Céleste, pour briser la nuit résiduelle de Nuit Brisée!
 
 Tout cela se produisit en un éclair. Le Taureau Céleste percuta violemment le soleil dans un fracas de tonnerre. Wang Lin cracha du sang; lorsque Nuit Brisée s'effondra, il fut projeté en arrière sur des milliers de pieds.
 
-Quant à Bord-des-Nuages, il semblait avoir vieilli de mille ans et du sang coulait de sa bouche alors qu'il reculait. Cependant, comment Wang Lin pouvait-il le laisser s'échapper? Ignorant ses blessures, il se précipita vers Bord-des-Nuages. Il comptait profiter de la dissipation de l'armure de l'âme pour l'exterminer.
+Quant à Bian Yun, il semblait avoir vieilli de mille ans et du sang coulait de sa bouche alors qu'il reculait. Cependant, comment Wang Lin pouvait-il le laisser s'échapper? Ignorant ses blessures, il se précipita vers Bian Yun. Il comptait profiter de la dissipation de l'armure de l'âme pour l'exterminer.
 
-Ta Jia resta silencieuse, son attaque cessant net. Elle n'avait agi que pour le compte de sa sœur. À cet instant, elle lança à Wang Lin un regard complexe avant de disparaître au loin.
+Tang Jia resta silencieuse, son attaque cessant net. Elle n'avait agi que pour le compte de sa sœur. À cet instant, elle lança à Wang Lin un regard complexe avant de disparaître au loin.
 
-Habité par une intention meurtrière, Wang Lin se rapprocha de Bord-des-Nuages. Il leva la main droite et l'abattit sur lui. Ce coup, imprégné de son pouvoir du Dao Antique, fit changer les couleurs du monde. Bord-des-Nuages fut repoussé et cracha du sang.
+Habité par une intention meurtrière, Wang Lin se rapprocha de Bian Yun. Il leva la main droite et l'abattit sur lui. Ce coup, imprégné de son pouvoir du Dao Antique, fit changer les couleurs du monde. Bian Yun fut repoussé et cracha du sang.
 
 Le corps de Wang Lin trembla également, mais il serra les dents et chargea une fois de plus.
 
-Les deux s'affrontèrent à plusieurs reprises, et la peur finit par poindre dans les yeux de Bord-des-Nuages. Il avait déjà croisé des fous, mais il n'avait jamais rencontré un tel dément que Wang Lin, qui était prêt à tout pour tuer, sans aucun égard pour sa propre vie.
+Les deux s'affrontèrent à plusieurs reprises, et la peur finit par poindre dans les yeux de Bian Yun. Il avait déjà croisé des fous, mais il n'avait jamais rencontré un tel dément que Wang Lin, qui était prêt à tout pour tuer, sans aucun égard pour sa propre vie.
 
-Alors que Wang Lin et Bord-des-Nuages étaient en plein combat, à plusieurs milliers de kilomètres de là, une main gigantesque et noire apparut et s'étira vers eux.
+Alors que Wang Lin et Bian Yun étaient en plein combat, à plusieurs milliers de kilomètres de là, une main gigantesque et noire apparut et s'étira vers eux.
 
-L'expression de Wang Lin s'assombrit et il renonça à poursuivre Bord-des-Nuages. Des ondulations résonnèrent sous ses pieds et il disparut, se fondant dans le monde.
+L'expression de Wang Lin s'assombrit et il renonça à poursuivre Bian Yun. Des ondulations résonnèrent sous ses pieds et il disparut, se fondant dans le monde.
 
-La main noire géante se referma et emporta Bord-des-Nuages vers la Secte Gui Yi.
+La main noire géante se referma et emporta Bian Yun vers la Secte Gui Yi.
 
 Cette bataille fut très brève. Ce ne fut qu'après le départ de Wang Lin que les quatre étoiles du ciel chutèrent sur terre. Des grondements tonitruants résonnèrent sur un rayon de mille kilomètres, et une épaisse poussière recouvrit toute la région. Il fallut longtemps pour que la poussière se dissipe, laissant le sol profondément affaissé et couvert d'innombrables fragments de pierres noires fumantes.
 
@@ -76,7 +76,7 @@ Le cœur de Wang Lin trembla et il referma sa main. Sa divination était trouble
 
 « La question des récompenses a ses propres raisons. Ce vieil homme ne changera pas d'avis. Si Wang Lin tarde à obéir, que ceci serve de preuve pour le juger! »
 
-Cette phrase provenait des cheveux que l'Ancêtre Taureau Vert avait laissés au maître de la Secte Gui Yi à l'intention de Wang Lin.
+Cette phrase provenait des cheveux que l'Ancêtre Qing Niu avait laissés au maître de la Secte Gui Yi à l'intention de Wang Lin.
 
 Wang Lin médita attentivement ces mots. L'Œil de l'Âme n'avait révélé qu'un flou, et seule cette phrase était apparue. Il devait y avoir un sens caché!
 
@@ -86,11 +86,11 @@ Wang Lin répéta la phrase plusieurs fois, puis son corps fut soudain secoué p
 
 « Les derniers caractères de chaque segment sont: 事, 由, 变, 速, 判! »
 « Il y a un changement, trahis vite! »
-« Quelque chose a changé, trahis! » Wang Lin prit une profonde inspiration. Cette phrase était un avertissement secret. Quelle que soit la manière dont on l'interprétait, c'était le moyen utilisé par l'Ancêtre Taureau Vert pour ordonner à Wang Lin de trahir sans tarder!
+« Quelque chose a changé, trahis! » Wang Lin prit une profonde inspiration. Cette phrase était un avertissement secret. Quelle que soit la manière dont on l'interprétait, c'était le moyen utilisé par l'Ancêtre Qing Niu pour ordonner à Wang Lin de trahir sans tarder!
 
-« Même avec le niveau de culture de l'Ancêtre Taureau Vert, il a dû passer par cette périphrase. Il craignait même que je ne comprenne pas et a collaboré avec le maître de la Secte Gui Yi pour m'offrir une récompense injuste afin de me pousser hors du Continent Tian Niu… »
+« Même avec le niveau de culture de l'Ancêtre Qing Niu, il a dû passer par cette périphrase. Il craignait même que je ne comprenne pas et a collaboré avec le maître de la Secte Gui Yi pour m'offrir une récompense injuste afin de me pousser hors du Continent Tian Niu… »
 
-« Avoir trahi le Continent Tian Niu signifie que je ne pourrai plus rester sur le Continent Tian Niu et que je devrai m'en éloigner au plus vite… L'Ancêtre Taureau Vert veut que je quitte ce continent le plus rapidement possible… » Wang Lin réfléchit en silence. Il sentait qu'un immense mystère pesait sur le Continent Tian Niu, et que c'était là la cause du revirement soudain de la Secte Da Hun et de la Secte Gui Yi.
+« Avoir trahi le Continent Tian Niu signifie que je ne pourrai plus rester sur le Continent Tian Niu et que je devrai m'en éloigner au plus vite… L'Ancêtre Qing Niu veut que je quitte ce continent le plus rapidement possible… » Wang Lin réfléchit en silence. Il sentait qu'un immense mystère pesait sur le Continent Tian Niu, et que c'était là la cause du revirement soudain de la Secte Da Hun et de la Secte Gui Yi.
 
 De la même manière, Wang Lin soupçonnait que ce mystère était probablement lié au Continent Lu Mo. Il avait toujours douté de la véritable raison pour laquelle les deux continents s'étaient lancés dans la guerre...
 
@@ -110,14 +110,14 @@ Cependant, à cet instant précis, une voix résonna sur la place:
 
 Il s'agissait de Du Qing. En entendant quelqu'un hurler son nom, il s'envola brusquement dans les airs, pris de panique. Mais très vite, cette frayeur se mua en joie!
 
-« Camarade cultivateur Wang Lin! » Il reconnut la voix de Wang Lin.
+« Daoïste Wang Lin! » Il reconnut la voix de Wang Lin.
 
 Wang Lin fronça les sourcils et apparut. Il regarda Du Qing, qu'il n'avait pas revu depuis un certain temps, et demanda brusquement:
 
 « Qui vous a dit de venir ici? »
 
-« Ancien Wang, c'est l'Ancêtre Taureau Vert de la Secte Da Hun qui m'a trouvé et m'a fait partir plusieurs mois à l'avance pour arriver ici il y a trois jours et vous remettre quelque chose. » Du Qing atterrit rapidement devant Wang Lin et tendit la main droite. Une pierre noire apparut dans sa paume.
+« Ancien Wang, c'est l'Ancêtre Qing Niu de la Secte Da Hun qui m'a trouvé et m'a fait partir plusieurs mois à l'avance pour arriver ici il y a trois jours et vous remettre quelque chose. » Du Qing atterrit rapidement devant Wang Lin et tendit la main droite. Une pierre noire apparut dans sa paume.
 
-Cette pierre semblait tout à fait ordinaire. Du Qing avait passé tout son voyage à chercher des indices, sans rien trouver. Pourtant, se souvenant du sérieux de l'expression de l'Ancêtre Taureau Vert, il était convaincu qu'il s'agissait d'un trésor.
+Cette pierre semblait tout à fait ordinaire. Du Qing avait passé tout son voyage à chercher des indices, sans rien trouver. Pourtant, se souvenant du sérieux de l'expression de l'Ancêtre Qing Niu, il était convaincu qu'il s'agissait d'un trésor.
 
 Les yeux de Wang Lin s'illuminèrent lorsqu'il saisit la pierre noire et l'examina. Ses pupilles se rétractèrent: il percevait en elle l'aura de l'Œil de l'Âme.

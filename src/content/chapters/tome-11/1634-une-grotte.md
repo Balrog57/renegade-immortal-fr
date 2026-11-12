@@ -52,15 +52,15 @@ Une lueur de froideur traversa son regard et il agita de nouveau sa main droite.
 
 Des grondements de tonnerre résonnèrent, emplissant ce vaste monde. Le grand soleil devant lui rétrécissait rapidement. Bien qu'il restât immense, il n'avait plus rien de comparable à sa taille initiale.
 
-« Quel genre de soleil est-ce? C'est une entité formée par un sort! Elle contient le pouvoir de la rétribution divine. En est la source même! » Les yeux de Wang Lin brillèrent et il agita sa main droite à plusieurs reprises. À chaque mouvement, le soleil diminuait de volume.
+« Quel genre de soleil est-ce? C'est une entité formée par un sort! Elle contient le pouvoir de la Tribulation Céleste. En est la source même! » Les yeux de Wang Lin brillèrent et il agita sa main droite à plusieurs reprises. À chaque mouvement, le soleil diminuait de volume.
 
 Un instant plus tard, lors d'un ultime geste, le soleil émit un fracas tonitruant et s'effondra totalement devant lui.
 
-Dans son effondrement, un éclair déformé apparut devant Wang Lin. L'éclair arborait neuf couleurs et semblait avoir été scellé à l'intérieur du soleil. En raison de sa nature, la première rétribution divine consistait principalement en du tonnerre!
+Dans son effondrement, un éclair déformé apparut devant Wang Lin. L'éclair arborait neuf couleurs et semblait avoir été scellé à l'intérieur du soleil. En raison de sa nature, la première Tribulation Céleste consistait principalement en du tonnerre!
 
-En contemplant cet éclair aux neuf couleurs scellé dans le soleil, Wang Lin revit vaguement l'éclair destructeur qui avait dévalé du ciel la première fois qu'il avait affronté la rétribution divine.
+En contemplant cet éclair aux neuf couleurs scellé dans le soleil, Wang Lin revit vaguement l'éclair destructeur qui avait dévalé du ciel la première fois qu'il avait affronté la Tribulation Céleste.
 
-« J'ai longtemps soupçonné que rien dans ce monde n'apparaissait sans raison... Même la rétribution divine ne surgit pas d'elle-même. Elle est le fait d'une puissance étrange ou d'une existence puissante! »
+« J'ai longtemps soupçonné que rien dans ce monde n'apparaissait sans raison... Même la Tribulation Céleste ne surgit pas d'elle-même. Elle est le fait d'une puissance étrange ou d'une existence puissante! »
 
 Tout en murmurant, Wang Lin tendit la main vers l'éclair aux neuf couleurs. Des grondements de tonnerre éclatèrent alors qu'il volait vers lui, et il le saisit dans sa main.
 
@@ -68,7 +68,7 @@ L'éclair continuait de se tordre, comme s'il refusait de se soumettre à Wang L
 
 Tenant l'éclair, Wang Lin hésita.
 
-« Je peux comprendre comment la rétribution divine a été créée... J'ai aussi une hypothèse. Mais dois-je vraiment le savoir, dois-je vraiment confirmer cette hypothèse... » Après un long moment, le regard de Wang Lin devint résolu. Son puissant Sens Divin se déploya et pénétra l'éclair qu'il tenait. Il voulait découvrir qui avait créé la rétribution divine.
+« Je peux comprendre comment la Tribulation Céleste a été créée... J'ai aussi une hypothèse. Mais dois-je vraiment le savoir, dois-je vraiment confirmer cette hypothèse... » Après un long moment, le regard de Wang Lin devint résolu. Son puissant Sens Divin se déploya et pénétra l'éclair qu'il tenait. Il voulait découvrir qui avait créé la Tribulation Céleste.
 
 À l'instant où son Sens Divin pénétra l'éclair, un fracas de tonnerre résonna dans son esprit. Sa vision devint floue, comme si le temps reculait de millions d'années!
 
@@ -90,11 +90,11 @@ Bien qu'ils partagassent de nombreuses similitudes, si quelqu'un voyait les deux
 
 « Ma grotte forme déjà son propre monde et contient la création du ciel et de la terre. Tout dans ce monde pourra être changé par ma seule pensée... Bien qu'elle ne soit pas à la hauteur du Monde Sen Luo du Grand Souverain Sen Dao, elle s'en rapproche... Malheureusement, elle ne possède pas de Dao Céleste, le temps ne peut donc s'écouler. Cela signifie qu'elle ne peut donner naissance à aucun être vivant ni en tirer des Flammes Joss... Cependant, tout cela va changer aujourd'hui, car j'ai réussi à voler un Dao Céleste! »
 
-« Avec un Dao Céleste, désormais, ma grotte pourra engendrer des êtres sensibles et le temps commencera à couler. Des cultivateurs commenceront à apparaître... Et s'il y a des cultivateurs, il doit y avoir une rétribution divine... La première rétribution sera le tonnerre... » L'homme aux sept couleurs murmura pour lui-même avant d'agiter la main vers le ciel. Le firmament gronda et le tonnerre surgit du vide pour se rassembler dans sa paume.
+« Avec un Dao Céleste, désormais, ma grotte pourra engendrer des êtres sensibles et le temps commencera à couler. Des cultivateurs commenceront à apparaître... Et s'il y a des cultivateurs, il doit y avoir une Tribulation Céleste... La première Tribulation sera le tonnerre... » L'homme aux sept couleurs murmura pour lui-même avant d'agiter la main vers le ciel. Le firmament gronda et le tonnerre surgit du vide pour se rassembler dans sa paume.
 
-Sa main droite traça un sceau et, un instant plus tard, le tonnerre incessant se condensa pour former un éclair de rétribution divine.
+Sa main droite traça un sceau et, un instant plus tard, le tonnerre incessant se condensa pour former un éclair de Tribulation Céleste.
 
-« À partir de maintenant, tu seras le tonnerre de la rétribution divine pour ce vieil homme. Punis tout être qui cultive avec une volonté défiant les cieux! »
+« À partir de maintenant, tu seras le tonnerre de la Tribulation Céleste pour ce vieil homme. Punis tout être qui cultive avec une volonté défiant les cieux! »
 
 L'image se dissipa et le Sens Divin de Wang Lin retourna en lui. Son corps trembla tandis qu'il contemplait l'éclair qui luttait dans sa main, l'expression complexe.
 
@@ -104,6 +104,6 @@ Wang Lin murmura: « J'aurais dû le deviner depuis longtemps... »
 
 « Grotte... Grotte... Ainsi, il s'avère que mon monde, les Royaumes Intérieur et Extérieur, n'est qu'une grotte appartenant à un Grand Souverain du Continent Astral Immortel!!! »
 
-« Voilà donc la vérité. C'est tout simplement absurde. Il se trouve que tous les êtres sensibles des Royaumes Intérieur et Extérieur sont nés de cela... Ce cultivateur défiant le ciel, ce cultivateur défiant le ciel... La raison pour laquelle la rétribution divine punit les cultivateurs défiant les cieux est que la plupart d'entre eux finiront par chercher à découvrir la véritable nature du ciel. Et c'est alors que la rétribution divine les frappe... »
+« Voilà donc la vérité. C'est tout simplement absurde. Il se trouve que tous les êtres sensibles des Royaumes Intérieur et Extérieur sont nés de cela... Ce cultivateur défiant le ciel, ce cultivateur défiant le ciel... La raison pour laquelle la Tribulation Céleste punit les cultivateurs défiant les cieux est que la plupart d'entre eux finiront par chercher à découvrir la véritable nature du ciel. Et c'est alors que la Tribulation Céleste les frappe... »
 
 « C'est bien plus brillant que les 7 Millions de Mondes. J'aurais dû le deviner depuis longtemps... Je l'avais deviné... Je ne voulais juste pas y croire... » Wang Lin éclata d'un rire en pointant le ciel. Ce rire devint de plus en plus puissant, résonnant dans toute l'immensité.

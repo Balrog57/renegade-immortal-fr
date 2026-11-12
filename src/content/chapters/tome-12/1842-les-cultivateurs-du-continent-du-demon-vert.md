@@ -22,9 +22,9 @@ La femme était d'une grande beauté; la tête baissée, elle consultait une bou
 
 Parmi les trois, un jeune homme au visage de jade blanc rompit le silence après une courte réflexion: « Senior Frère Qian, Junior Sœur Zhao, le massacre dans la Mer Dan dure déjà depuis sept jours. Si nous n'accélérons pas la cadence, je crains que nous ne puissions accomplir l'ordre des Ancêtres. »
 
-L'autre jeune homme avait une apparence ordinaire, mais son regard pouvait soudainement se faire venimeux. Après avoir entendu les paroles du jeune homme au visage de jade, il répondit lentement: « Au plus tard dans quatre jours, ce massacre prendra fin et tous les cultivateurs du Taureau Céleste dans la Mer Dan seront morts! »
+L'autre jeune homme avait une apparence ordinaire, mais son regard pouvait soudainement se faire venimeux. Après avoir entendu les paroles du jeune homme au visage de jade, il répondit lentement: « Au plus tard dans quatre jours, ce massacre prendra fin et tous les cultivateurs du Continent Tian Niu dans la Mer Dan seront morts! »
 
-« La Mer Dan est la porte d'entrée par laquelle mon Continent Lu Mo pourra accéder au Continent Tian Niu. De nombreux cultivateurs puissants se trouvent ici, il est donc difficile de tous les éliminer rapidement. Cependant, comme l'a dit le frère aîné Qian, quatre jours devraient suffire. » La femme sourit en écartant une mèche de cheveux derrière son oreille de la main gauche.
+« La Mer Dan est la porte d'entrée par laquelle mon Continent Lu Mo pourra accéder au Continent Tian Niu. De nombreux cultivateurs puissants se trouvent ici, il est donc difficile de tous les éliminer rapidement. Cependant, comme l'a dit le Senior Frère Qian, quatre jours devraient suffire. » La femme sourit en écartant une mèche de cheveux derrière son oreille de la main gauche.
 
 « Frères, regardez la boussole de la Mer Dan. » Tandis qu'elle parlait, la boussole dans sa main droite brilla, révélant la carte complète de la mer.
 
@@ -44,7 +44,7 @@ La femme sourit et leva sa main gauche. D'un geste gracieux de sa main semblable
 
 « Avec ce trésor de la Secte Du Mo, le Liquide de Corruption des Dix Mille Raffinements, pensez-vous que les cultivateurs de la Mer Dan aient la moindre chance, mes frères? » demanda-t-elle en levant les yeux vers les deux jeunes gens.
 
-Le jeune homme au visage de jade blanc sourit et répondit posément: « Nous ne devons pas être négligents. Puisque nos trois sectes ont uni leurs forces, aucun incident ne doit survenir et nous ne pouvons rien laisser paraître au Continent Tian Niu. Les trois Ancêtres ont déjà commencé à utiliser des sorts pour empêcher quiconque de diviner l'avenir. Nous devons massacrer les cultivateurs du Taureau Céleste dans la Mer Dan et raffiner la Mer Dan pour la ramener à l'état de demi-pilule céleste. C'est cette demi-pilule qui nous permettra de faire exploser la barrière invisible entourant le Continent Tian Niu! »
+Le jeune homme au visage de jade blanc sourit et répondit posément: « Nous ne devons pas être négligents. Puisque nos trois sectes ont uni leurs forces, aucun incident ne doit survenir et nous ne pouvons rien laisser paraître au Continent Tian Niu. Les trois Ancêtres ont déjà commencé à utiliser des sorts pour empêcher quiconque de diviner l'avenir. Nous devons massacrer les cultivateurs du Continent Tian Niu dans la Mer Dan et raffiner la Mer Dan pour la ramener à l'état de demi-pilule céleste. C'est cette demi-pilule qui nous permettra de faire exploser la barrière invisible entourant le Continent Tian Niu! »
 
 Aucun des trois ne remarqua que sur la carte de la boussole, près du Continent Tian Niu, se trouvait un point blanc tout à fait ordinaire.
 
@@ -72,7 +72,7 @@ La femme continuait de déployer ses troupes en suivant la carte de sa boussole.
 
 « Senior Frère Qian, Senior Frère Zhao, c'est à vous de jouer. Sur les neuf, quatre sont morts et cinq subsistent. Deux se sont dispersés, ce qui n'est pas un problème, mais trois se sont regroupés... »
 
-« Ces trois-là sont probablement des alliés proches et excellents en attaques combinées. Je vous demande, mes frères aînés, de les éliminer ensemble! » Sur la boussole, trois points lumineux légèrement plus grands progressaient vers le Continent Tian Niu. Les points verts qui s'approchaient d'eux s'éteignaient les uns après les autres, signe de leur mort imminente.
+« Ces trois-là sont probablement des alliés proches et excellents en attaques combinées. Je vous demande, mes Senior frères, de les éliminer ensemble! » Sur la boussole, trois points lumineux légèrement plus grands progressaient vers le Continent Tian Niu. Les points verts qui s'approchaient d'eux s'éteignaient les uns après les autres, signe de leur mort imminente.
 
 Le jeune homme au visage de jade blanc sourit et leva la main droite. Un éventail apparut dans sa paume; il frappa le centre de sa main gauche avec celui-ci en regardant le jeune homme nommé Qian.
 

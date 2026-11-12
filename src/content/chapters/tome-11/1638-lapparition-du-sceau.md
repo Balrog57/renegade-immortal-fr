@@ -24,19 +24,19 @@ Au plus profond de l'Ancien Royaume Céleste, au centre de ces statues monumenta
 
 Les environs étaient plongés dans un silence absolu, comme si tel était l'état des lieux depuis l'aube des temps. À cet instant, une voix rauque résonna depuis l'une des statues.
 
-« Oiseau Vermillon, la culture de ton descendant n'est pas faible, mais il fait preuve d'une arrogance déplacée en voulant fouiller la mémoire d'un Soldat Céleste. Bien qu'ils ne soient pas aussi puissants que nous, ils possèdent toujours le lignage céleste. Comment une simple fourmi pourrait-elle espérer sonder leurs souvenirs? » Une voix empreinte de moquerie résonna.
+« Suzaku, la culture de ton descendant n'est pas faible, mais il fait preuve d'une arrogance déplacée en voulant fouiller la mémoire d'un Soldat Céleste. Bien qu'ils ne soient pas aussi puissants que nous, ils possèdent toujours le lignage céleste. Comment une simple fourmi pourrait-elle espérer sonder leurs souvenirs? » Une voix empreinte de moquerie résonna.
 
-« Il a franchi la troisième étape et brisé la rétribution divine pour parvenir jusqu'ici. Il a même retiré son propre destin du neuvième soleil. Cet exploit est incroyable, et il l'a accompli. Tigre Blanc, tu te moques de lui, mais si tu étais un cultivateur du royaume inférieur, aurais-tu pu faire une telle chose...? » Une voix froide et antique émana d'une autre statue.
+« Il a franchi la troisième étape et brisé la Tribulation Céleste pour parvenir jusqu'ici. Il a même retiré son propre destin du neuvième soleil. Cet exploit est incroyable, et il l'a accompli. Tigre Blanc, tu te moques de lui, mais si tu étais un cultivateur du royaume inférieur, aurais-tu pu faire une telle chose...? » Une voix froide et antique émana d'une autre statue.
 
 « Si c'était moi, cela ne signifie pas que je serais incapable de le faire! Nous, les êtres célestes, portons sur nos souvenirs des sceaux imposés par le Souverain Céleste. C'est une chance immense que seuls les disciples centraux de ma Secte Qi Dao peuvent recevoir. Je ne suis pas surpris par le fait que cette petite fourmi puisse terrasser un Soldat Céleste gravement blessé et en convalescence, mais je suis certain qu'il trouvera sa propre mort s'il tente de briser le sceau du Souverain Céleste! »
 
-« Assez, pourquoi vous disputez-vous? Oiseau Vermillon, ton descendant est effectivement un peu trop arrogant. Et s'il venait à mourir à cause du sceau du Souverain Céleste? Cela aurait-il un impact sur ton plan? » Une troisième voix s'éleva de la troisième statue.
+« Assez, pourquoi vous disputez-vous? Suzaku, ton descendant est effectivement un peu trop arrogant. Et s'il venait à mourir à cause du sceau du Souverain Céleste? Cela aurait-il un impact sur ton plan? » Une troisième voix s'éleva de la troisième statue.
 
-Après une courte réflexion, la voix d'Oiseau Vermillon résonna: « Il ne faisait pas partie de mon plan initial. Je suis surpris qu'il soit le premier à arriver ici... »
+Après une courte réflexion, la voix de Suzaku résonna: « Il ne faisait pas partie de mon plan initial. Je suis surpris qu'il soit le premier à arriver ici... »
 
 « Cet enfant n'est pas ordinaire; il est le premier cultivateur défiant les cieux à atteindre la troisième étape. Malheureusement, il est un cultivateur du royaume inférieur. S'il venait du Continent Astral Immortel, il serait déjà célèbre! Cependant, il ne devrait pas tenter de fouiller l'âme de ce Soldat Céleste. Le sceau du Souverain Céleste est une chose que même nous ne pourrions briser, même en joignant nos forces. Je crains qu'il ne meure en moins d'un demi-bâton d'encens... Quel dommage, c'est regrettable... » Une quatrième voix, empreinte de regret, émana de la dernière statue.
 
-Leurs voix se dissipèrent peu à peu et le silence revint. Même Oiseau Vermillon poussa un soupir intérieur. Il connaissait Wang Lin, mais il ne pensait pas que celui-ci pourrait briser le sceau du Souverain Céleste.
+Leurs voix se dissipèrent peu à peu et le silence revint. Même Suzaku poussa un soupir intérieur. Il connaissait Wang Lin, mais il ne pensait pas que celui-ci pourrait briser le sceau du Souverain Céleste.
 
 Le sens divin du vieil homme avait déjà formé son propre royaume, entouré d'une épaisse couche de brouillard qui empêchait le sens divin de Wang Lin de pénétrer.
 

@@ -62,19 +62,19 @@ C'était la deuxième fois qu'il la traquait. Cette fois, il n'y avait ni Daoïs
 
 Wang Lin sentait que l'identité et la localisation de la troisième âme étaient sur le point d'être révélées!
 
-La troisième âme traversa la Rivière Invoquée et atteignit le Vide Brillant. Elle ralentit dans le Vide Brillant, comme si elle cherchait un lieu pour se réincarner.
+La troisième âme traversa la Rivière Invoquée et atteignit le Système Stellaire Kun Xu. Elle ralentit dans le Système Stellaire Kun Xu, comme si elle cherchait un lieu pour se réincarner.
 
 Wang Lin la suivait, utilisant toute sa vitesse pour espérer la rattraper. Il observa la troisième âme, mais elle était nuageuse, dépourvue de toute silhouette intérieure. Elle était manifestement différente des deux autres âmes; avant de se réincarner, elle n'avait aucune apparence!
 
 La troisième âme marqua un temps d'arrêt devant une planète sauvage. Cependant, finalement, elle ne choisit pas cet endroit et passa son chemin.
 
-Après un temps indéterminé, Wang Lin suivait toujours la troisième âme. Après avoir fait le tour du Vide Brillant, celle-ci accéléra soudainement et fonça vers la Mer Yun!
+Après un temps indéterminé, Wang Lin suivait toujours la troisième âme. Après avoir fait le tour du Système Stellaire Kun Xu, celle-ci accéléra soudainement et fonça vers la Mer Yun!
 
-Les yeux de Wang Lin brillèrent intensément. Il estima le temps écoulé. À l'époque, le Daoïste aux Sept Couleurs n'avait certainement vu que la troisième âme entrer dans le Vide Brillant sans jamais la voir voler vers la Mer Yun, car il avait été réveillé par Wang Lin!
+Les yeux de Wang Lin brillèrent intensément. Il estima le temps écoulé. À l'époque, le Daoïste aux Sept Couleurs n'avait certainement vu que la troisième âme entrer dans le Système Stellaire Kun Xu sans jamais la voir voler vers la Mer Yun, car il avait été réveillé par Wang Lin!
 
 Pourtant, en y réfléchissant, un frisson soudain parcourut le cœur de Wang Lin. Ce frisson venait d'une pensée qui traversa son esprit.
 
-« Cette troisième âme a tourné autour du Vide Brillant comme si elle cherchait quelque chose... Ou peut-être savait-elle que le Daoïste aux Sept Couleurs la chercherait des millénaires plus tard, et qu'elle s'était donc intentionnellement attardée dans le Vide Brillant... » Wang Lin secoua la tête. Il trouvait cette idée tout simplement trop absurde.
+« Cette troisième âme a tourné autour du Système Stellaire Kun Xu comme si elle cherchait quelque chose... Ou peut-être savait-elle que le Daoïste aux Sept Couleurs la chercherait des millénaires plus tard, et qu'elle s'était donc intentionnellement attardée dans le Système Stellaire Kun Xu... » Wang Lin secoua la tête. Il trouvait cette idée tout simplement trop absurde.
 
 La troisième âme vola vers la Mer Yun de l'époque future et disparut en un éclair sur une planète sauvage! Wang Lin arriva et fixa l'astre du regard.
 
@@ -94,7 +94,7 @@ Une fois, la troisième âme se réincarna en un arbre majestueux. Durant ces mi
 
 Une autre fois, elle se réincarna en un cultivateur. Le niveau de culture de ce dernier n'était pas élevé; il n'avait réussi à atteindre que le stade de la Formation du Noyau au cours de sa vie. Il mourut lorsque son espérance de vie fut épuisée.
 
-Le temps continua de s'écouler jusqu'à ce que la troisième âme choisisse de se réincarner sur une planète du Vide Brillant. Cette planète lui était très familière. Wang Lin fut stupéfait de découvrir qu'il s'agissait de la planète Suzaku!
+Le temps continua de s'écouler jusqu'à ce que la troisième âme choisisse de se réincarner sur une planète du Système Stellaire Kun Xu. Cette planète lui était très familière. Wang Lin fut stupéfait de découvrir qu'il s'agissait de la planète Suzaku!
 
 En voyant cela, l'esprit de Wang Lin trembla. Il ignorait si c'était le terme de sa quête, mais devant la planète Suzaku, il pressentit quelque chose.
 

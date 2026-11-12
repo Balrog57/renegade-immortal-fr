@@ -62,7 +62,7 @@ Des grondements tonitruants secouèrent le monde. Le bras de Tuo Sen trembla et 
 
 Au même moment, le sort du singe de Yun Yifeng atteignit sa cible et bondit sur le Souverain. Il se mua en un gaz pourpre qui pénétra le corps de ce dernier par les sept orifices, faisant apparaître l'ombre d'un singe entre ses sourcils.
 
-Le Souverain frémit. Les attaques de Wang Lin et Tuo Sen avaient déjà fait bouillir son sang. Puis, le sort de Yun Yifeng issu du Continent Astral Immortel lui donna la sensation que son corps était en train d'être déchiré. Enfin, le dragon doré de Tang Shan percuta violemment le Souverain.
+Le Souverain frémit. Les attaques de Wang Lin et Tuo Sen avaient déjà fait bouillir son sang. Puis, le sort de Yun Yifeng issu du Continent Xian Gang lui donna la sensation que son corps était en train d'être déchiré. Enfin, le dragon doré de Tang Shan percuta violemment le Souverain.
 
 Le Souverain se retourna et frappa le dragon d'or de sa main droite. Tandis que le dragon s'effondrait, le Souverain cracha une bouffée de sang pour la première fois. Son expression s'assombrit et la terreur dans ses yeux s'intensifia.
 
@@ -70,7 +70,7 @@ La puissance des Dieux Anciens de Wang Lin et Tuo Sen était ce que le Souverain
 
 Ce qui l'effrayait par-dessus tout restait ce qui était arrivé à l'empreinte dorée. Il avait la sensation qu'une cinquième paire d'yeux l'observait, imperturbable.
 
-Cette intuition était si forte qu'elle le rendait presque fou. Il sentait également l'aura de Lanmeng Daozun approcher. Si Rêve Bleu intervenait, il serait perdu!
+Cette intuition était si forte qu'elle le rendait presque fou. Il sentait également l'aura de Lanmeng Daozun approcher. Si Lanmeng intervenait, il serait perdu!
 
 Les yeux injectés de sang après avoir craché son sang, le Souverain leva brusquement la tête et des ondulations se propagèrent sous ses pieds alors qu'il tentait de fuir. Cependant, à ce moment précis, la main droite de Wang Lin plongea vers le vide pour ouvrir son espace de stockage. Plusieurs dizaines de Feuilles Anciennes s'en échappèrent.
 

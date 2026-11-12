@@ -122,12 +122,12 @@ Non seulement eux, mais tous les participants à l'Épreuve Empyrée levèrent l
 
 Alors que l'Ascendant Ming Dao observait la silhouette de Wang Lin, son cœur rata un battement. Il avait un mauvais pressentiment.
 
-Au même moment, à l'extérieur de l'Épreuve Empyrée, sur le Mont Empereur, le Grand Empyréen Jiu Di se leva brusquement et fixa la feuille d'automne devant lui.
+Au même moment, à l'extérieur de l'Épreuve Empyrée, sur le Mont Di, le Grand Empyréen Jiu Di se leva brusquement et fixa la feuille d'automne devant lui.
 
 Il avait tout vu et était en accord avec les paroles de l'Empereur Céleste. En voyant Wang Lin s'envoler, il manifesta un rare signe de surprise.
 
 « De quoi cet enfant dispose-t-il pour continuer ainsi? »
 
-À cet instant, au sein de la Secte Yang Pourpre, le Grand Empyréen Shuangzi avait terminé ses jeux et était retourné auprès du cultivateur d'âge moyen. Elles avaient vu Wang Lin se faire rabaisser et étaient furieuses. En voyant Wang Lin s'élancer dans le ciel, elles furent envahies par l'attente.
+À cet instant, au sein de la Secte Zi Yang, le Grand Empyréen Shuangzi avait terminé ses jeux et était retourné auprès du cultivateur d'âge moyen. Elles avaient vu Wang Lin se faire rabaisser et étaient furieuses. En voyant Wang Lin s'élancer dans le ciel, elles furent envahies par l'attente.
 
 « Wang... Wang Lin?! » Tan Lang, qui subissait les tourments du Grand Empyréen Shuangzi, fixa le miroir, l'esprit totalement vide.

@@ -76,7 +76,7 @@ Du Qing murmura: « La Secte Da Hun fait partie des neuf sectes et treize factio
 
 Les yeux de Wang Lin se rétrécirent; il retint ce nom.
 
-« Avec mon niveau actuel, je ne suis qualifié que pour être un Ancien extérieur à la Secte Da Hun. J'ai un aîné de mon clan qui est Ancien intérieur. C'est grâce à cette relation et à mon rang d'Ancien extérieur que la Secte Cang Long bénéficie de la protection de la Secte Da Hun. »
+« Avec mon niveau actuel, je ne suis qualifié que pour être un Ancien extérieur à la Secte Da Hun. J'ai un Senior de mon clan qui est Ancien intérieur. C'est grâce à cette relation et à mon rang d'Ancien extérieur que la Secte Cang Long bénéficie de la protection de la Secte Da Hun. »
 
 « Le camarade cultivateur Wang possédant un trésor offert par un Grand Empyréen, vous devez être traité comme un hôte d'honneur. Mais si jamais vous veniez à affecter la principale veine de feu terrestre, alors... » Du Qing laissa sa menace en suspens.
 

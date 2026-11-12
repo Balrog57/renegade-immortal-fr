@@ -1,6 +1,6 @@
 ---
 n: 1632
-title: Rétribution Divine Personnelle
+title: Tribulation Céleste Personnelle
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1632 - Self Divine Retribution
@@ -18,9 +18,9 @@ Cette barrière était imprégnée d'une puissante énergie céleste. Elle dissi
 
 « Tu ne peux pas entrer », déclara l'étrange jeune homme aux cheveux blancs qui se trouvait derrière la barrière aqueuse en secouant la tête.
 
-« Tu veux connaître la rétribution divine, tu veux en découvrir l'origine. Bats-moi et tu sauras tout... Ne sois pas surpris que je lise dans tes pensées, car je suis toi. » Le jeune homme s'avança, ses cheveux blancs flottant au vent, dégageant un tempérament d'une grande grâce.
+« Tu veux connaître la Tribulation Céleste, tu veux en découvrir l'origine. Bats-moi et tu sauras tout... Ne sois pas surpris que je lise dans tes pensées, car je suis toi. » Le jeune homme s'avança, ses cheveux blancs flottant au vent, dégageant un tempérament d'une grande grâce.
 
-Il sourit et ajouta doucement: « À travers les âges, tu n'es pas le premier cultivateur défiant le ciel à atteindre la troisième étape, mais aucun d'entre eux n'a survécu à cette rétribution divine personnelle... J'ai hâte de voir si toi, tu y parviendras. »
+Il sourit et ajouta doucement: « À travers les âges, tu n'es pas le premier cultivateur défiant le ciel à atteindre la troisième étape, mais aucun d'entre eux n'a survécu à cette Tribulation Céleste personnelle... J'ai hâte de voir si toi, tu y parviendras. »
 
 Tout en parlant, le jeune homme sortit de la barrière d'eau, à plus de cent pieds de Wang Lin. Il leva sa main droite et pointa Wang Lin du doigt.
 
@@ -28,7 +28,7 @@ Tout en parlant, le jeune homme sortit de la barrière d'eau, à plus de cent pi
 
 Un éclair de froideur traversa le regard de Wang Lin. Sans perdre une seconde et sans un mot de trop, il chargea. Sa paume droite se leva pour percuter celle du jeune homme aux cheveux blancs.
 
-« La rétribution divine personnelle... Voilà qui est intéressant. »
+« La Tribulation Céleste personnelle... Voilà qui est intéressant. »
 
 Le jeune homme resta calme et fit également un pas vers Wang Lin, levant sa propre paume droite. La scène était d'une étrangeté absolue; si un observateur extérieur avait vu cela, il en aurait été stupéfait.
 

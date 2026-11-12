@@ -28,7 +28,7 @@ Cependant, cette force de lignée n'eut aucun effet sur Qing Shui; c'était comm
 
 Il était néanmoins un peu trop lent. Une douzaine de Célestes sortis en premier étaient déjà arrivés au-dessus du nouveau Royaume Céleste. Ils contemplèrent les dizaines de milliers de cultivateurs qui les observaient avec effroi et éclatèrent de rire.
 
-Quelques-uns libérèrent immédiatement leur suppression de lignée pour que les cultivateurs en bas n'osent plus bouger. Puis, certains d'entre eux descendirent. L'un d'eux saisit une cultivatrice de la Rivière Invoquée et s'apprêta à l'aspirer.
+Quelques-uns libérèrent immédiatement leur suppression de lignée pour que les cultivateurs en bas n'osent plus bouger. Puis, certains d'entre eux descendirent. L'un d'eux saisit une cultivatrice de Zhao He et s'apprêta à l'aspirer.
 
 Une fois qu'il l'aurait inhalée, il pourrait transformer cette femme en Flammes Joss pour les absorber.
 
@@ -62,7 +62,7 @@ Avec ce rugissement, une intention meurtrière fulgurante se propagea, réveilla
 
 À l'extérieur du nouveau Royaume Céleste, parmi les dizaines de Célestes arrivés à la suite des premiers, se trouvait un vieil homme: le Dragon Azure. Il affichait une expression sombre en observant ceux qui avaient forcé l'entrée du nouveau Royaume Céleste. Il laissa échapper un reniflement froid avant de faire un pas en avant et de joindre les mains en signe de respect.
 
-« Ce vieux n'a pas été assez strict et est arrivé trop tard. J'espère que, cher Compagnon Cultivateur, vous nous pardonnerez. Ce vieux vous donnera une explication! Heureusement, il n'y a eu aucune victime; alors, cher Compagnon, ne soyez pas en colère... Notre accord tient toujours. Nous, du Royaume Céleste Antique, ne tuerons pas un seul cultivateur du Royaume Intérieur! »
+« Ce vieux n'a pas été assez strict et est arrivé trop tard. J'espère que, cher Daoïste, vous nous pardonnerez. Ce vieux vous donnera une explication! Heureusement, il n'y a eu aucune victime; alors, cher Daoïste, ne soyez pas en colère... Notre accord tient toujours. Nous, du Royaume Céleste Antique, ne tuerons pas un seul cultivateur du Royaume Intérieur! »
 
 Dans le Royaume Extérieur, Wang Lin ouvrit les yeux, révélant un regard glacial. Il s'était attendu à cela depuis longtemps, c'est pourquoi il avait laissé ce jade à l'époque. Voyant ces Célestes battre en retraite, il s'apprêtait à parler lorsqu'il tourna soudainement son regard vers le lointain.
 

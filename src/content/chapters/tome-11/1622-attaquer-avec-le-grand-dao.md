@@ -84,7 +84,7 @@ La Porte Kong étant présente auparavant, il n'avait pu attaquer, mais maintena
 
 Le jeune homme en robe verte partageait cette pensée. Il était déjà en train de battre en retraite lorsqu'il vit Xushen Tianzun agir. Il serra les dents, les yeux injectés de sang, enveloppa son corps d'une glace infinie et chargea Wang Lin.
 
-Il y avait aussi Zhou Jin, terrifié au plus haut point. Cependant, il demeurait un cultivateur du troisième niveau et l'ancêtre du clan du Loup Céleste. Avec une expression désespérée, il poussa un rugissement et un loup de sang de plusieurs dizaines de milliers de pieds apparut.
+Il y avait aussi Zhou Jin, terrifié au plus haut point. Cependant, il demeurait un cultivateur du troisième niveau et l'ancêtre du clan Feng Tian Lang. Avec une expression désespérée, il poussa un rugissement et un loup de sang de plusieurs centaines de milliers de pieds apparut.
 
 Ces mouvements poussèrent le Maître Nan Yunzi et ses compagnons à se précipiter en avant, faisant fi de leurs blessures. Pourtant, à cet instant, une voix douce résonna dans leurs oreilles comme une brise printanière.
 

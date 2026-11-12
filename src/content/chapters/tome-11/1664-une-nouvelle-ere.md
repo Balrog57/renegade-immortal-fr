@@ -102,7 +102,7 @@ Wang Lin observa le jade et, après une courte réflexion, agita sa main droite.
 
 Dès que le jade se brisa, la Formation de Scellement du Royaume s'effondra soudainement!
 
-À cet instant, le Vide Brillant ne fut plus ceint par la Formation de Scellement du Royaume. La Rivière Invoquée était désormais totalement exposée au Royaume Extérieur.
+À cet instant, le système stellaire Kun Xu ne fut plus ceint par la Formation de Scellement du Royaume. Le système stellaire Zhao He était désormais totalement exposé au Royaume Extérieur.
 
 En cet instant, Luotian et la Mer Yun étaient enfin libres!
 

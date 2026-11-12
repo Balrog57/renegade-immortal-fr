@@ -44,11 +44,11 @@ Après les êtres célestes vinrent les cultivateurs de cette ère, ceux qui ava
 
 À ces mots, les âmes infinies du Royaume Intérieur se distordirent pour se transformer en une aura invisible qui vola vers Wang Lin.
 
-Le premier à l'atteindre fut un ancien cultivateur. Son expression était évanescente et son âme lugubre. Il apparut à cent pieds de Wang Lin et le regarda avec profondeur. Wang Lin maintint sa posture de révérence. L'âme joignit les mains en signe de respect devant lui.
+Le premier à l'atteindre fut un ancien cultivateur. Son expression était évanescente et son âme lugubre. Il apparut à mille pieds de Wang Lin et le regarda avec profondeur. Wang Lin maintint sa posture de révérence. L'âme joignit les mains en signe de respect devant lui.
 
 Après avoir salué, il se précipita dans la roue géante formée des trois essences, acceptant volontairement de devenir l'un des esprits de la formation!
 
-Derrière lui, toutes les âmes mortes de l'ère antique suivirent le mouvement. Elles joignirent toutes les mains vers Wang Lin à cent pieds de distance avant d'entrer sans hésitation dans la roue de la formation.
+Derrière lui, toutes les âmes mortes de l'ère antique suivirent le mouvement. Elles joignirent toutes les mains vers Wang Lin à mille pieds de distance avant d'entrer sans hésitation dans la roue de la formation.
 
 Bien qu'elles portaient encore le ressentiment de leur mort, l'instant où elles saluèrent, tout regret s'évanouit; elles s'intégrèrent volontairement à la formation. Elles étaient mortes pour le Royaume Intérieur et, même par-delà la mort, offraient leurs âmes à sa cause.
 
@@ -78,7 +78,7 @@ Non seulement eux, mais dans les trois autres systèmes stellaires, les rares gr
 
 Il y avait aussi les trois femmes réunies dans la Mer Yun, encore un peu éloignées de Wang Lin. Leur expression était empreinte de tristesse alors qu'elles saluaient les ombres qui passaient.
 
-Au même instant, dans le Vide Brillant, au sein du système stellaire désert, le Vieux Fantôme Zhan affichait une rare expression sombre. Il se tenait là, observant les âmes défiler avec un visage tourmenté.
+Au même instant, dans le système stellaire Kun Xu, au sein d'un espace désert, le Vieux Fantôme Zhan affichait une rare expression sombre. Il se tenait là, observant les âmes défiler avec un visage tourmenté.
 
 « Lu Cai... Li Dong, Chang Yi... Êtes-vous tous là... Vous êtes morts depuis si longtemps et je suis le seul à être encore en vie... À l'époque, nous cherchions à comprendre pourquoi les Royaumes Intérieur et Extérieur se déchiraient... Je n'aurais jamais pensé devenir un jour la source de cette guerre que je détestais tant... Nous avions juré ensemble de changer tout cela, de détruire la Formation de Scellement du Royaume pour permettre au Royaume Intérieur de s'en libérer... »
 
@@ -92,13 +92,13 @@ Pourtant, au moment même où il s'inclinait, son expression se crispa de douleu
 
 « Je peux vous aider, mais vous ne m'empêcherez pas de saluer ces âmes qui me plongent dans la culpabilité! » Le Vieux Fantôme Zhan serra les dents, prononçant chaque mot avec force. Il ignora la puissance qui tentait de le contraindre et acheva sa révérence.
 
-Simultanément, dans la Rivière Invoquée, sur un météore que Wang Lin avait pourtant croisé, sans que son Sens Divin ne le détecte, Tian Yunzi ouvrit lentement les yeux.
+Simultanément, dans le système stellaire Zhao He, sur un météore que Wang Lin avait pourtant croisé, sans que son Sens Divin ne le détecte, Tian Yunzi ouvrit lentement les yeux.
 
 Son expression était sereine. Il nota les âmes invoquées depuis les étoiles et médita en silence. Après un long moment, il sortit du météore et se tint là, contemplant l'innombrable procession.
 
 « Je devrais être, hormis ces deux-là, le premier à retrouver la mémoire... Pourtant, j'étais aussi un cultivateur du Royaume Intérieur... Vous méritez tous une révérence de la part de ce vieil homme. » Tian Yunzi soupira et, d'un mouvement de manche, s'inclina devant les étoiles.
 
-Toujours dans la Rivière Invoquée, il y avait une personne que même Tian Yunzi n'avait pas remarquée. C'était le jeune homme issu de la rétribution divine de Wang Lin, provenant de la faille menant au Royaume Céleste Antique.
+Toujours dans le système stellaire Zhao He, il y avait une personne que même Tian Yunzi n'avait pas remarquée. C'était le jeune homme issu de la Tribulation Céleste de Wang Lin, provenant de la faille menant au Royaume Céleste Antique.
 
 Il était assis, son corps flou et indistinct, impossible à saisir clairement.
 

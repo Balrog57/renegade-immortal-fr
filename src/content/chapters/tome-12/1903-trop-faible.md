@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1903 - Too Weak!"
 slug: trop-faible
 ---
-La Tribulation Arcanique était une métamorphose située entre le Vide Arcanique et la Tribulation du Vide. Elle différait de la Tribulation Divine, qui n'utilisait que des formes de tonnerre; elle employait au contraire une méthode spéciale pour provoquer l'effondrement de chaque étape chez un cultivateur.
+La Tribulation Arcanique était une métamorphose située entre le Vide Arcanique et la Tribulation du Vide. Elle différait de la Tribulation Céleste, qui n'utilisait que des formes de tonnerre; elle employait au contraire une méthode spéciale pour provoquer l'effondrement de chaque étape chez un cultivateur.
 
 Si l'on ne parvenait pas à surmonter une Tribulation Arcanique, on mourait. De nombreux cultivateurs du Vide Arcanique redoutaient ces tribulations. Beaucoup préféraient rester au stade du Vide Arcanique plutôt que de faire face à ces terrifiantes épreuves!
 

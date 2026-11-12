@@ -24,15 +24,15 @@ S'il n'y avait pas eu de Dao Céleste, si le Souverain Céleste ne l'avait pas v
 
 Une fois que tu sauras tout cela, seras-tu confus? Ne te demanderas-tu pas pour quoi nous vivons? Pourquoi existons-nous, pour quoi respirons-nous, et quelle est notre raison d'être?
 
-Et puis, il y a la rétribution divine. Le Dao Céleste est élevé par le Souverain Céleste, et tous les êtres vivants ici existent grâce à lui. Il a créé la rétribution divine pour qu'elle puisse éliminer quiconque tenterait de détourner les desseins du Dao Céleste...
+Et puis, il y a la Tribulation Céleste. Le Dao Céleste est élevé par le Souverain Céleste, et tous les êtres vivants ici existent grâce à lui. Il a créé la Tribulation Céleste pour qu'elle puisse éliminer quiconque tenterait de détourner les desseins du Dao Céleste...
 
 Qu'est-ce qu'un cultivateur défiant le ciel? Voici ce qu'est un cultivateur défiant le ciel... À l'image d'un simple paysan qui planifie tout et plante ses cultures. Il y aura toujours des choses qui ne pousseront pas selon ses souhaits, alors il les change.
 
 Cependant, avec le temps, des mauvaises herbes tenaces surgissent parmi ces cultures. Elles poussent trop vite et ne peuvent être contrôlées. Elles tenteront de détruire les plans; ce sont elles, les cultivateurs défiant le ciel!
 
-Le rôle de la rétribution divine est d'exterminer ces mauvaises herbes apparues arbitrairement! Je suis l'une de ces mauvaises herbes... Sauf que la rétribution divine ne peut me détruire et qu'elle a été détruite par moi!
+Le rôle de la Tribulation Céleste est d'exterminer ces mauvaises herbes apparues arbitrairement! Je suis l'une de ces mauvaises herbes... Sauf que la Tribulation Céleste ne peut me détruire et qu'elle a été détruite par moi!
 
-J'ai brisé la rétribution divine et j'ai récupéré mon propre destin. J'ai également découvert le secret de ce monde... Puisque tu me l'as demandé, je te dis tout, mais croiras-tu mes paroles? »
+J'ai brisé la Tribulation Céleste et j'ai récupéré mon propre destin. J'ai également découvert le secret de ce monde... Puisque tu me l'as demandé, je te dis tout, mais croiras-tu mes paroles? »
 
 Situ Nan resta songeur, hébété. Après un long moment, il s'assit et continua de boire son vin sans prononcer un mot. Un conflit intérieur faisait rage dans ses yeux; il ne pouvait y croire, et pourtant, il y croyait.
 

@@ -38,7 +38,7 @@ Le feu, le tonnerre et le karma. Les collisions de ces essences rejouaient dans 
 
 « Aucun indice... » Wang Lin fronça les sourcils et s'arrêta brusquement. Ses yeux brillèrent intensément alors qu'il se plongeait dans ses pensées. Un instant plus tard, son regard devint résolu et il disparut en un éclair.
 
-Dans une autre partie de la Rivière Invoquée, parmi les décombres, Tian Yunzi était assis en tailleur sur un fragment de roche, le regard porté vers l'avant. Il arborait toujours ce sourire énigmatique.
+Dans une autre partie de la Rivière Zhao He, parmi les décombres, Tian Yunzi était assis en tailleur sur un fragment de roche, le regard porté vers l'avant. Il arborait toujours ce sourire énigmatique.
 
 « Cette fois, il est arrivé un peu tard... Disciple, comparé à ton Maître, tu es encore bien jeune. »
 

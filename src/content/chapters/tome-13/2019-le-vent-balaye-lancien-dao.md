@@ -14,13 +14,13 @@ Cependant, le geste de Wang Lin était très lent, comme si des couches de barri
 
 Un instant plus tard, Wang Lin retira son doigt et ne tenta plus l'expérience. Il baissa la tête et resta pensif.
 
-« À travers ce sortilège, je vois que la puissance de l'Ancêtre Ancien a atteint un royaume inimaginable... Mais avec ce fragment de mémoire et l'Art Rapide du Sort, je peux le copier. »
+« À travers ce sortilège, je vois que la puissance de l'Ancêtre Ancien a atteint un royaume inimaginable... Mais avec ce fragment de mémoire et l'Art de la Vitesse Divine, je peux le copier. »
 
 Wang Lin leva la tête et fixa les fragments de jade tout en fermant les yeux.
 
-Son corps abritait de nombreuses âmes originelles chaotiques, récupérées lors du massacre dans la cité ancestrale céleste. Il les affinait lentement, et il en possédait désormais suffisamment pour créer une nouvelle Veine de Sort.
+Son corps abritait de nombreuses âmes originelles chaotiques, récupérées lors du massacre dans la cité ancestrale céleste. Il les affinait lentement, et il en possédait désormais suffisamment pour créer une nouvelle Veine Divine.
 
-« J'ai cinq Veines de Sort dans mon corps; avec un seul mouvement, je peux ainsi créer 99 images rémanentes. Je me demande ce qu'il adviendra lorsque j'en condenserai la sixième. » Wang Lin activa promptement l'Art Rapide du Sort pour condenser sa sixième Veine de Sort. Bientôt, sept jours s'écoulèrent.
+« J'ai cinq Veines Divines dans mon corps; avec un seul mouvement, je peux ainsi créer 99 images rémanentes. Je me demande ce qu'il adviendra lorsque j'en condenserai la sixième. » Wang Lin activa promptement l'Art de la Vitesse Divine pour condenser sa sixième Veine Divine. Bientôt, sept jours s'écoulèrent.
 
 Il ne restait plus que trois jours avant la grande cérémonie, lors de laquelle l'Empereur proclamerait son impératrice.
 
@@ -87,7 +87,7 @@ Wang Lin ignorait tout de cette scène et ne pouvait la percevoir. Bien que sa c
 
 Il ignorait que le fragment d'âme de Wan Er qu'il cherchait tant était si près de lui... Si proche... La femme, elle aussi, ignorait que l'être qui la tourmentait respirait la même énergie spirituelle qu'elle.
 
-Au matin de la veille de la cérémonie, Wang Lin ouvrit les yeux dans sa grotte souterraine. Une lueur de doute perçait son regard, malgré l'apparition de la sixième Veine de Sort dans son corps. Ce doute venait d'un pressentiment inexplicable, une pointe d'inquiétude nichée au fond de son cœur.
+Au matin de la veille de la cérémonie, Wang Lin ouvrit les yeux dans sa grotte souterraine. Une lueur de doute perçait son regard, malgré l'apparition de la sixième Veine Divine dans son corps. Ce doute venait d'un pressentiment inexplicable, une pointe d'inquiétude nichée au fond de son cœur.
 
 Après une méditation silencieuse, Wang Lin se leva et sortit de la grotte pour rejoindre la maison en bois. Une silhouette humaine émergeait de l'essence métallique, commençant à prendre forme.
 

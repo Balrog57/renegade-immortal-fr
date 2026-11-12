@@ -12,9 +12,9 @@ Des ondulations résonnaient autour du massif. Ces vibrations semblaient conteni
 
 Cet endroit était l'une des deux sectes les plus puissantes du Continent Tian Niu: la Secte Da Hun!
 
-Une neige verdâtre tombait sur la Montagne Céleste. Elle recouvrait le corps et les cheveux de Wang Lin, ainsi que le sol. Il restait immobile au milieu des flocons.
+Une neige verdâtre tombait sur la Montagne Tian. Elle recouvrait le corps et les cheveux de Wang Lin, ainsi que le sol. Il restait immobile au milieu des flocons.
 
-D'ici, la Secte Da Hun ne semblait pas très éloigné, mais même en volant, il faudrait plusieurs jours pour l'atteindre. Si la distance paraissait si courte, outre la hauteur de la Montagne Céleste, c'était parce que les ondulations émanant de la Secte Da Hun créaient un décalage visuel.
+D'ici, la Secte Da Hun ne semblait pas très éloigné, mais même en volant, il faudrait plusieurs jours pour l'atteindre. Si la distance paraissait si courte, outre la hauteur de la Montagne Tian, c'était parce que les ondulations émanant de la Secte Da Hun créaient un décalage visuel.
 
 Après un long moment, Wang Lin ferma les yeux et déploya son Sens Divin. Il perçut vaguement la principale veine de feu terrestre sous la Secte Da Hun. Celle-ci se ramifiait en d'innombrables branches qui s'étendaient à travers tout le Continent Tian Niu.
 
@@ -40,7 +40,7 @@ Il s'était déjà préparé à cela. Après tout, c'était comparable à la con
 
 À moins de pouvoir dévorer des pilules de qualité supérieure, telle que la volonté de cette principale veine de feu terrestre!
 
-Wang Lin ferma légèrement les yeux et son corps flotta silencieusement depuis la Montagne Céleste vers l'avant, sans le moindre bruit, en direction de la Secte Da Hun.
+Wang Lin ferma légèrement les yeux et son corps flotta silencieusement depuis la Montagne Tian vers l'avant, sans le moindre bruit, en direction de la Secte Da Hun.
 
 Tout en avançant, son corps clignotait. Il franchissait de grandes distances comme s'il se téléportait.
 
@@ -120,4 +120,4 @@ Il ne s'attarda pas, mais balaya directement la distance. Après avoir couvert t
 
 « Ce n'est pas que j'ai été découvert, c'est simplement que la Secte Da Hun a pour habitude d'avoir un puissant cultivateur en alerte qui déploie périodiquement son Sens Divin... » Wang Lin se rassembla à l'intérieur du corps de l'homme et forma un vortex entouré de restrictions.
 
-Tandis que Wang Lin réfléchissait, la femme à ses côtés le réprimanda: « Pourquoi restes-tu là debout? Si nous sommes en retard pour livrer le Fruit de la Division de l'Âme aux Senior Sisters, nous serons punis! »
+Tandis que Wang Lin réfléchissait, la femme à ses côtés le réprimanda: « Pourquoi restes-tu là debout? Si nous sommes en retard pour livrer le Fruit de la Division de l'Âme aux Senior sœurs, nous serons punis! »

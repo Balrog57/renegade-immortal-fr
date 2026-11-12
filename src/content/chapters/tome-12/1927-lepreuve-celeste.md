@@ -6,13 +6,13 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1927 - Empyrean Trial
 slug: lepreuve-celeste
 ---
-Sur le Continent Shan Hai du Sud, il existait une mer intérieure nommée la Mer Montagneuse. Cette mer était vaste; parfois, on pouvait apercevoir d'innombrables oiseaux marins survolant l'azur du ciel. Le fracas des vagues résonnait tandis que des brises marines humides soufflaient vers le rivage.
+Sur le Continent Shan Hai du Sud, il existait une mer intérieure nommée la Mer Shan Hai. Cette mer était vaste; parfois, on pouvait apercevoir d'innombrables oiseaux marins survolant l'azur du ciel. Le fracas des vagues résonnait tandis que des brises marines humides soufflaient vers le rivage.
 
-La Mer Montagneuse occupait près de 70 % du Continent Shan Hai, les 30 % restants étant constitués de terres entourant cette étendue marine.
+La Mer Shan Hai occupait près de 70 % du Continent Shan Hai, les 30 % restants étant constitués de terres entourant cette étendue marine.
 
-À cet instant précis, au nord de la Mer Montagneuse, Wang Lin se tenait au sommet d'une montagne, observant calmement l'océan qui s'étendait devant lui.
+À cet instant précis, au nord de la Mer Shan Hai, Wang Lin se tenait au sommet d'une montagne, observant calmement l'océan qui s'étendait devant lui.
 
-C'était le lieu le plus proche de l'Arbre de la Mer Montagneuse, mais Wang Lin ne choisit pas de s'y rendre immédiatement. Son corps vacilla et il disparut du sommet pour réapparaître à l'intérieur d'une grotte qu'il avait créée.
+C'était le lieu le plus proche de l'Arbre Shan Hai, mais Wang Lin ne choisit pas de s'y rendre immédiatement. Son corps vacilla et il disparut du sommet pour réapparaître à l'intérieur d'une grotte qu'il avait créée.
 
 Wang Lin vivait dans cette grotte depuis trois ans et y avait disposé une multitude de restrictions. Cet endroit lui offrait une certaine protection.
 
@@ -20,7 +20,7 @@ Dans la grotte flottait un brouillard bleuâtre. Dissimulé en son sein se trouv
 
 Assis au fond de la cavité, Wang Lin ferma lentement les yeux tandis que ses mains exécutaient rapidement des sceaux. Ces sceaux étaient extrêmement spéciaux; Wang Lin les avait perfectionnés après les avoir vérifiés à maintes reprises.
 
-« Avant de m'emparer de l'Arbre de la Mer Montagneuse, je vais découvrir quel genre d'endroit mystérieux est cette Épreuve Céleste! » Wang Lin allait utiliser la méthode d'entrée qu'il avait étudiée durant les cinquante dernières années. Son Sens Divin se concentra au sommet de son crâne avant de jaillir vers le haut en une lumière éclatante.
+« Avant de m'emparer de l'Arbre Shan Hai, je vais découvrir quel genre d'endroit mystérieux est cette Épreuve Céleste! » Wang Lin allait utiliser la méthode d'entrée qu'il avait étudiée durant les cinquante dernières années. Son Sens Divin se concentra au sommet de son crâne avant de jaillir vers le haut en une lumière éclatante.
 
 Cette lueur était celle de son Sens Divin. Après s'être concentrée un instant sur la tête de Wang Lin, elle s'élança vers le ciel à une vitesse inimaginable.
 

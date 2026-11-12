@@ -78,19 +78,19 @@ Il n'y eut ni cri déchirant, ni résistance. L'épée de sang traversa le crân
 
 Quant au cadavre de Yun Kong, Wang Lin n'eut pas le temps de vérifier s'il s'agissait du corps original ou d'un avatar. Il sentit une crise grandissante monter en lui, un sentiment similaire à celui qu'il avait éprouvé lors de sa première rencontre avec Shui Daozi.
 
-Depuis la chaîne de montagnes infinie, Wang Lin contemplait un désert sans fin. C'était le paysage le plus courant du continent Terre-Meng; près de 70 % de ce territoire en était ainsi constitué.
+Depuis la chaîne de montagnes infinie, Wang Lin contemplait un désert sans fin. C'était le paysage le plus courant du continent Meng Tu; près de 70 % de ce territoire en était ainsi constitué.
 
 La rumeur disait qu'il y a fort longtemps, un cultivateur étranger s'était rendu ici et avait été vaincu par l'Ancêtre Céleste. Le cultivateur fut scellé sur place, et comme il possédait une puissance terrestre terrifiante, le continent prit cette forme après son enfermement.
 
-On racontait que cet homme portait le nom de famille « Meng »; ainsi, après d'innombrables années, ce lieu fut nommé le continent Terre-Meng!
+On racontait que cet homme portait le nom de famille « Meng »; ainsi, après d'innombrables années, ce lieu fut nommé le continent Meng Tu!
 
 L'endroit était saturé de l'aura de l'essence terrestre, semblable au continent du Démon Vert. Le continent du Démon Vert était une terre d'essence terrestre, où vivait le Scorpion du Démon Vert, une bête féroce venue d'au-delà des cieux qui vivait dans la terre.
 
 Cependant, cette essence était masquée par son aura démoniaque, ce qui la rendait difficile à percevoir.
 
-Ces rumeurs étaient consignées en détail sur la carapace de tortue confiée à Wang Lin. Ces pensées traversèrent son esprit, mais il n'avait pas le temps de s'y attarder. Il profita de la vitesse de l'armure d'âme pour se précipiter vers le continent Terre-Meng, faute de pouvoir utiliser la Distorsion Spatiale.
+Ces rumeurs étaient consignées en détail sur la carapace de tortue confiée à Wang Lin. Ces pensées traversèrent son esprit, mais il n'avait pas le temps de s'y attarder. Il profita de la vitesse de l'armure d'âme pour se précipiter vers le continent Meng Tu, faute de pouvoir utiliser la Distorsion Spatiale.
 
-Il se rapprochait inexorablement. La plus grande partie des dizaines de milliers de kilomètres fut franchie rapidement. Il ne lui restait plus qu'un millier de kilomètres; le continent Terre-Meng était en vue!
+Il se rapprochait inexorablement. La plus grande partie des dizaines de milliers de kilomètres fut franchie rapidement. Il ne lui restait plus qu'un millier de kilomètres; le continent Meng Tu était en vue!
 
 Mais à cet instant précis, le monde changea de teinte et une lumière aveuglante jaillit de six points distincts devant lui. Des ondulations se propagèrent: c'étaient les signes de l'activation de matrices de transfert!
 
@@ -110,7 +110,7 @@ Wang Lin avait reconnu ce symbole sur la carapace de tortue. Ce motif appartenai
 
 Le blocus et la traque visant Wang Lin n'étaient pas l'œuvre de tout le continent du Démon Vert, mais uniquement celle de la Secte Dao Mo!
 
-Le continent Terre-Meng était à mille kilomètres, mais la Secte Dao Mo venait de surgir pour lui barrer la route. Le sentiment qu'une crise imminente approchait devint d'autant plus oppressant!
+Le continent Meng Tu était à mille kilomètres, mais la Secte Dao Mo venait de surgir pour lui barrer la route. Le sentiment qu'une crise imminente approchait devint d'autant plus oppressant!
 
 Les pupilles de Wang Lin se contractèrent. Alors qu'il fonçait en avant, les centaines de cultivateurs sortis des six matrices s'élancèrent. Simultanément, ils projetèrent tous quelque chose vers lui!
 

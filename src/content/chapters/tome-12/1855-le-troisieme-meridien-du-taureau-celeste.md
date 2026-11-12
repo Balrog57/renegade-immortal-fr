@@ -1,6 +1,6 @@
 ---
 n: 1855
-title: Le troisième méridien du Taureau Céleste
+title: Le troisième méridien Tian Niu
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1855 - Heavenly Bull’s Third Meridian
@@ -12,7 +12,7 @@ Si la Secte Da Hun l'avait voulu, la Mer Dan n'aurait pas été si facilement ra
 
 Car ce premier ancêtre appartenait à la même lignée que l'actuel Maître Impérial. Un héritier du Dao issu des temps anciens!
 
-L'Illustre Taureau Vert n'avait pas seulement offert un jade à Wang Lin, mais à quatre anciens au total au sein de la Secte Da Hun!
+Qing Niu n'avait pas seulement offert un jade à Wang Lin, mais à quatre anciens au total au sein de la Secte Da Hun!
 
 Après avoir rangé le jade, Wang Lin se leva et épousseta ses vêtements avant de sortir calmement de la montagne. À l'instant où il franchit le seuil, la mer de feu de la montagne se rassembla derrière lui pour former son corps véritable d'essence de feu. Celui-ci fusionna lentement avec son propre corps avant de disparaître.
 
@@ -50,7 +50,7 @@ Xu Dongde regarda Wang Lin et pensa intérieurement: « Quelqu'un capable d'acc�
 
 « Cet homme a quitté la Mer Dan en toute sécurité et a également provoqué l'explosion prématurée de la Mer Dan. Je ne peux le juger sur les seules apparences... De plus, sa capacité à revenir si rapidement de la Mer Dan est tout aussi prodigieuse! » Lu Wenran observait Wang Lin. Lui aussi était revenu de la Mer Dan, mais grâce au Bateau Nuageux du premier ancêtre que possédait l'Oncle-Maître Meng. C'était l'un des trésors les plus mystérieux du premier ancêtre, et sa vitesse était inimaginable.
 
-« Bien, puisque tout le monde est présent, notre mission consiste à nous rendre au troisième méridien du Taureau Céleste pour parer à l'invasion du Continent Lu Mo. Ce voyage sera une lutte entre la vie et la mort, et l'imprévisible sera la règle... Soyez tous sur vos gardes! » Lu Wenran prit une profonde inspiration et joignit les mains en signe de respect envers les trois autres.
+« Bien, puisque tout le monde est présent, notre mission consiste à nous rendre au troisième méridien Tian Niu pour parer à l'invasion du Continent Lu Mo. Ce voyage sera une lutte entre la vie et la mort, et l'imprévisible sera la règle... Soyez tous sur vos gardes! » Lu Wenran prit une profonde inspiration et joignit les mains en signe de respect envers les trois autres.
 
 Wang Lin garda le silence. Yan Luan et Xu Dongde ne dirent rien non plus, se contentant d'un signe de tête. Les quatre quittèrent rapidement la Secte Da Hun.
 

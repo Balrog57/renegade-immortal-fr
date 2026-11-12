@@ -74,7 +74,7 @@ Après quelques kilomètres, un jeune homme vêtu de bleu, assis près de la cal
 
 À ces ordres, la longue colonne de véhicules s'immobilisa progressivement. De magnifiques femmes sortirent de l'immense calèche de tête. Leurs vêtements étaient en désordre, preuve qu'elles venaient à peine de se rhabiller. Elles paraissaient épuisées alors qu'elles se dirigeaient vers les calèches de queue.
 
-Elles étaient nombreuses, des dizaines de femmes. Il était difficile d'imaginer qu'elles puissent toutes tenir dans cette seule calèche de trente mètres.
+Elles étaient nombreuses, des dizaines de femmes. Il était difficile d'imaginer qu'elles puissent toutes tenir dans cette seule calèche de cent pieds.
 
 Tandis que les premières sortaient, des dizaines d'autres femmes charmantes émergèrent des calèches arrière. Telles des remplaçantes, elles s'engouffrèrent rapidement dans la calèche principale. Bientôt, la musique, les gémissements et le rire de l'homme résonnèrent de nouveau.
 

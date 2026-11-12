@@ -106,7 +106,7 @@ Après avoir expulsé ce sang, Wang Lin agita sa manche. Le sang se divisa en 3 
 
 « Restriction sanguine, neuvième fusion!! » rugit Wang Lin. Il utilisait son propre sang pour fusionner ces restrictions une ultime fois. La lumière sanguine brilla intensément. À mesure que les restrictions commençaient à se superposer, l'éclat sanguin s'intensifia. Finalement, il ne resta que neuf restrictions devant Wang Lin!
 
-Ces neuf restrictions mesuraient des dizaines de milliers de pieds de haut, telles de petites montagnes, dégageant une aura ancestrale alors qu'elles flottaient là.
+Ces neuf restrictions mesuraient dix mille pieds de haut, telles de petites montagnes, dégageant une aura ancestrale alors qu'elles flottaient là.
 
 Cependant, au moment même où ces neuf restrictions se stabilisaient, l'une d'entre elles s'effondra soudainement en une multitude de fragments qui se dispersèrent dans toutes les directions.
 

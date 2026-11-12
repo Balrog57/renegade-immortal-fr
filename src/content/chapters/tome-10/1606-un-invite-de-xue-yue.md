@@ -28,7 +28,7 @@ Dans le pays de Wu, au cœur d'un palais entouré de milliers de soldats, l'empe
 
 Dans le pays de Sun, l'empereur et ses innombrables sujets suivirent Wang Lin sur des milliers de kilomètres pour lui faire ses adieux.
 
-Dans le pays du Chien Céleste, où régnaient d'innombrables êtres malveillants, la présence de Wang Lin finit par réformer des dizaines de milliers de personnes lors de son départ.
+Dans le Pays Tian Gou, où régnaient d'innombrables êtres malveillants, la présence de Wang Lin finit par réformer des dizaines de milliers de personnes lors de son départ.
 
 Au fil de son errance, le nom de « Grand Érudit Wang Lin » déclencha une tempête sur la planète Suzaku. Cette tempête devint de plus en plus intense et resta gravée dans la mémoire de tant de gens.
 
@@ -76,9 +76,9 @@ Le garçon regarda Wang Lin avec curiosité. À l'appel de sa mère, il se leva 
 
 Wang Lin sourit sans répondre. Il prit la coupe, y trempa les lèvres, puis but d'un trait.
 
-« Senior, le vin de ma famille Ceng est excellent, n'est-ce pas? Haha! Mon grand-père n'était pas forgeron, mais vendeur de vin. C'est moi qui ai ouvert cette forge. » L'homme but à son tour et éclata de rire.
+« Senior, le vin de ma famille Zeng est excellent, n'est-ce pas? Haha! Mon grand-père n'était pas forgeron, mais vendeur de vin. C'est moi qui ai ouvert cette forge. » L'homme but à son tour et éclata de rire.
 
-Le feu de la forge brûlait avec force, créant un contraste saisissant avec la neige extérieure et repoussant la morsure du froid. Wang Lin resta là, buvant le vin des Ceng, incapable de dire s'il était encore dans un rêve.
+Le feu de la forge brûlait avec force, créant un contraste saisissant avec la neige extérieure et repoussant la morsure du froid. Wang Lin resta là, buvant le vin des Zeng, incapable de dire s'il était encore dans un rêve.
 
 Après un long moment, alors que la chute de neige s'allégeait, Wang Lin se leva pour prendre congé. L'homme, prenant pitié de son grand âge, lui offrit une cruche de vin pour le réchauffer durant son trajet.
 

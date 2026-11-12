@@ -1,6 +1,6 @@
 ---
 n: 1650
-title: "Tuer l'étape de la troisième étape!"
+title: "Trancher la troisième étape!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1650 - Kill Third Step!"
@@ -14,7 +14,7 @@ L'homme chauve ouvrit soudainement les yeux, révélant une lueur étrange. Il f
 
 « Seul dans le Royaume Intérieur mon Clan Ming Ling a une chance de s'élever! Plus il y a de morts, plus l'aura de mort est puissante, et il y a en plus ces esprits vivants à dévorer... Si cela s'était produit dans le Système Stellaire Antique, tuer autant de personnes aurait entraîné la punition du Conseil Souverain. » L'homme afficha un sourire satisfait en agitant sa manche, et les 300 bulles explosèrent une à une.
 
-L'effondrement des bulles exposa les 300 cultivatrices de la Rivière Invoquée à l'aura de mort. Leurs visages se tordirent de douleur et, une fois les bulles éclatées, leurs corps commencèrent lentement à dépérir.
+L'effondrement des bulles exposa les 300 cultivatrices de Zhao He à l'aura de mort. Leurs visages se tordirent de douleur et, une fois les bulles éclatées, leurs corps commencèrent lentement à dépérir.
 
 Des filaments de force vitale s'échappèrent de leurs orifices et se rassemblèrent autour d'elles pour former des ombres. Ces ombres étaient comme des âmes originelles; elles étaient l'exact reflet de leurs corps.
 
@@ -68,7 +68,7 @@ Flottant dans les airs, Wang Lin leva la main droite et pressa la terre. L'innom
 
 Finalement, cette aura de mort infinie se condensa dans la main droite de Wang Lin, incarnant la Mort elle-même. Elle forma une sphère de brume tournant à une vitesse fulgurante.
 
-Alors que l'aura de mort était extraite par Wang Lin, la vie revint sur la planète. Les nombreuses bulles éclatèrent toutes, rendant leur liberté aux cultivateurs de la Rivière Invoquée.
+Alors que l'aura de mort était extraite par Wang Lin, la vie revint sur la planète. Les nombreuses bulles éclatèrent toutes, rendant leur liberté aux cultivateurs de Zhao He.
 
 Wang Lin détourna son regard de la planète et s'élança vers le ciel, la sphère d'aura de mort à la main. Il écrasa sans pitié cette sphère, libérant une quantité monstrueuse d'aura de mort vers les cieux.
 

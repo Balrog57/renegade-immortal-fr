@@ -12,7 +12,7 @@ Ce choc vint de l'extérieur comme un vent impétueux. La secousse fit vibrer to
 
 Ce changement soudain fit vaciller l'expression de Fan Shanmeng, qui tourna précipitamment le regard vers l'extérieur.
 
-Wang Lin bondit et resta en lévitation à quelques centimètres du pont, dérivant au rythme du bateau. Ses yeux brillaient alors qu'il scrutait les environs.
+Wang Lin bondit et resta en lévitation à trois pouces du pont, dérivant au rythme du bateau. Ses yeux brillaient alors qu'il scrutait les environs.
 
 À l'extérieur du Navire Démon des Âmes, le Daoïste aux Sept Couleurs continuait d'agiter la main; chaque mouvement générait des rafales de vent massives. Ces vents percutaient la barrière protectrice du navire, la faisant s'effondrer strate après strate. Rapidement, près de la moitié de la protection avait disparu.
 
@@ -30,11 +30,11 @@ Wang Lin ne laissa rien paraître de ses pensées et dit d'un ton lent: « Il n'
 
 « Ce Navire Démon des Âmes est un trésor de mon Secte Da Hun. Bien qu'il ne soit pas de rang suprême, il demeure un trésor de rang moyen. Même moi, je ne l'ai pas encore pleinement maîtrisé, sans parler de vous.
 
-« Cher Cultivateur Wang, je vous conseille d'utiliser ces trois jours pour tenter d'atteindre l'autel. Si vous parvenez à absorber la puissance qu'il renferme, votre niveau de culture progressera sûrement, grâce à votre corps de l'Ancienne Nation. » Les paroles de Fan Shanmeng étaient douces, mais son intention était limpide. Elle ne pensait pas que Wang Lin fût qualifié pour étudier ce navire et jugeait même ses propos parfaitement absurdes.
+« Daoïste Wang, je vous conseille d'utiliser ces trois jours pour tenter d'atteindre l'autel. Si vous parvenez à absorber la puissance qu'il renferme, votre niveau de culture progressera sûrement, grâce à votre corps de l'Ancienne Nation. » Les paroles de Fan Shanmeng étaient douces, mais son intention était limpide. Elle ne pensait pas que Wang Lin fût qualifié pour étudier ce navire et jugeait même ses propos parfaitement absurdes.
 
 « Ce n'est qu'un simple cultivateur insecte du monde des grottes, et il prétend vouloir étudier un trésor de mon Secte Da Hun? C'est ridicule! Il se surestime totalement! »
 
-« Oh? Se pourrait-il que le Cultivateur craigne que je ne prenne le contrôle du navire une fois que j'aurai compris ses restrictions? » Wang Lin afficha un sourire qui n'en était pas un en fixant Fan Shanmeng.
+« Oh? Se pourrait-il que le Daoïste craigne que je ne prenne le contrôle du navire une fois que j'aurai compris ses restrictions? » Wang Lin afficha un sourire qui n'en était pas un en fixant Fan Shanmeng.
 
 Wang Lin savait parfaitement ce qu'elle pensait. Durant sa vie, il avait été capable de lire en chacun, à l'exception de Tian Yunzi.
 
@@ -56,11 +56,11 @@ S'il parvenait réellement à comprendre le Navire Démon des Âmes et à en pre
 
 L'expression de Fan Shanmeng se crispa un instant avant de redevenir normale. Elle afficha un sourire et dit doucement:
 
-« Cher Cultivateur Wang, vous plaisantez. Puisque vous êtes si confiant, étudiez ce navire. Je vais attendre sur le côté. » Bien qu'elle ait dit cela, elle ricana intérieurement; elle ne croyait absolument pas que Wang Lin en fût capable.
+« Daoïste Wang, vous plaisantez. Puisque vous êtes si confiant, étudiez ce navire. Je vais attendre sur le côté. » Bien qu'elle ait dit cela, elle ricana intérieurement; elle ne croyait absolument pas que Wang Lin en fût capable.
 
-« Il semble que le Cultivateur soit un peu mécontent, mais détendez-vous. Même si je comprends toutes les restrictions et que j'en prends le contrôle, je ne le garderai pas; je vous le rendrai », dit lentement Wang Lin tout en conservant son sourire énigmatique.
+« Il semble que le Daoïste soit un peu mécontent, mais détendez-vous. Même si je comprends toutes les restrictions et que j'en prends le contrôle, je ne le garderai pas; je vous le rendrai », dit lentement Wang Lin tout en conservant son sourire énigmatique.
 
-Fan Shanmeng regarda calmement Wang Lin et sourit: « Le Cultivateur est donc si sûr de lui? Soit. Si vous êtes si certain de pouvoir comprendre entièrement les restrictions de ce navire, alors je n'ai aucun problème à vous l'offrir!
+Fan Shanmeng regarda calmement Wang Lin et sourit: « Le Daoïste est donc si sûr de lui? Soit. Si vous êtes si certain de pouvoir comprendre entièrement les restrictions de ce navire, alors je n'ai aucun problème à vous l'offrir!
 
 « Cependant, si vous échouez, ne perdons plus de temps. Procédons à l'échange du Serment de Sang et je vous escorterai en sécurité. »
 

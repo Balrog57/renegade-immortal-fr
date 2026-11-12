@@ -70,7 +70,7 @@ S'il se contentait de parler, on le soupçonnerait ou ne le croirait pas. La mei
 
 Après réflexion, Wang Lin effaça la séquence où il obtenait la boussole, ne laissant que celle où il tranchait la Pilule Céleste. Cela suffisait amplement!
 
-« Avec cela, je pourrai réclamer le sortilège d'illusion multicouche du neuvième étage auprès de l'Ancêtre Taureau Vert! » Wang Lin rangea le jade et la boussole. Après avoir levé sa restriction, il s'envola vers les profondeurs du Continent Tian Niu.
+« Avec cela, je pourrai réclamer le sortilège d'illusion multicouche du neuvième étage auprès de Qing Niu, l'Ancêtre! » Wang Lin rangea le jade et la boussole. Après avoir levé sa restriction, il s'envola vers les profondeurs du Continent Tian Niu.
 
 Après avoir parcouru plus de 100 000 pieds, des ondulations se firent entendre et il disparut. Lorsqu'il réapparut, il se trouvait loin de la Mer Dan, dans les terres intérieures du Continent Tian Niu.
 

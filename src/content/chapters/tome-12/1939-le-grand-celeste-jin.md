@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1939 - Great Celestial Jin!"
 slug: le-grand-celeste-jin
 ---
-Au nord du Continent de l'Est se trouvait un continent nommé le Grand Sage!
+Au nord du Continent de l'Est se trouvait un continent nommé Da Sheng!
 
 Le Continent Da Sheng était extrêmement reculé et plus désolé encore que le Continent Tian Niu, mais cela n'était vrai que pour les cultivateurs. La terre y était fertile et la végétation y poussait en abondance; les mortels du Continent Da Sheng y menaient une vie paisible et aisée.
 

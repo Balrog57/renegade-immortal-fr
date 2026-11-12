@@ -1,22 +1,22 @@
 ---
 n: 1627
-title: Ma Rétribution
+title: Ma Tribulation
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1627 - My Retribution
 slug: ma-retribution
 ---
-Wang Lin ignorait si quelqu'un avait déjà affronté la rétribution divine avec un cœur aussi calme et puissant, pour finalement infliger cette même rétribution aux cieux.
+Wang Lin ignorait si quelqu'un avait déjà affronté la Tribulation Céleste avec un cœur aussi calme et puissant, pour finalement infliger cette même Tribulation aux cieux.
 
-Il ne savait pas si quelqu'un ferait de même dans les innombrables années à venir. Il savait seulement qu'il devait tout donner pour réprimer cette rétribution divine. Il se transformerait en la Voie des Cieux, non pas pour punir la vie, mais pour punir cette rétribution divine!
+Il ne savait pas si quelqu'un ferait de même dans les innombrables années à venir. Il savait seulement qu'il devait tout donner pour réprimer cette Tribulation Céleste. Il se transformerait en la Voie des Cieux, non pas pour punir la vie, mais pour punir cette Tribulation Céleste!
 
-C'était une bataille entre deux rétributions divines. Un événement sans précédent dans l'histoire.
+C'était une bataille entre deux Tribulations Célestes. Un événement sans précédent dans l'histoire.
 
 Alors que Wang Lin parlait, le marquage de tonnerre dans son œil droit clignota et des éclairs incessants jaillirent sous le vortex géant.
 
 En un instant, plusieurs décharges de tonnerre jaillirent de son œil droit pour se propager sur son visage et son corps. Finalement, la foudre s'infiltra dans ses cheveux blancs en produisant des craquements stridents. De loin, Wang Lin semblait vêtu d'éclairs; il était tel le Roi du Tonnerre.
 
-Des grondements tonitruants résonnèrent et le vortex au-dessus de lui tourna avec une violence accrue. Tandis qu'il pivotait, un tonnerre infini se rassembla en son centre. Une lumière verte jaillit alors du cœur du vortex: la première rétribution divine de Wang Lin, la Rétribution du Tonnerre, venait d'apparaître!
+Des grondements tonitruants résonnèrent et le vortex au-dessus de lui tourna avec une violence accrue. Tandis qu'il pivotait, un tonnerre infini se rassembla en son centre. Une lumière verte jaillit alors du cœur du vortex: la première Tribulation Céleste de Wang Lin, la Tribulation du Tonnerre, venait d'apparaître!
 
 La lueur verte perça un million de kilomètres de nuages. De l'extérieur, les cieux semblaient teintés de vert. C'était une scène aussi spectaculaire qu'effrayante.
 
@@ -28,15 +28,15 @@ Elle voulait dévorer Wang Lin et l'anéantir pour empêcher l'existence d'un cu
 
 Wang Lin resta calme, fixant froidement le vortex au-dessus de lui. Son regard se verrouilla sur l'éclair vert et ses yeux s'illuminèrent.
 
-« Aujourd'hui, moi, Wang Lin, infligerai une rétribution à la rétribution divine. La première sera nommée: Ma Rétribution du Tonnerre! » À ces mots, le tonnerre éclata de son corps et se répandit avec frénésie. Instantanément, un marquage de tonnerre gigantesque, large de cent mille pieds, apparut au-dessus de lui.
+« Aujourd'hui, moi, Wang Lin, infligerai une Tribulation à la Tribulation Céleste. La première sera nommée: Ma Tribulation du Tonnerre! » À ces mots, le tonnerre éclata de son corps et se répandit avec frénésie. Instantanément, un marquage de tonnerre gigantesque, large de cent mille pieds, apparut au-dessus de lui.
 
-Ce marquage était radicalement différent de l'éclair vert. Il était rouge, d'un rouge sang! Cette lumière écarlate dégageait une lueur infinie et se mua en une rétribution de tonnerre propre à Wang Lin. Ce tonnerre écarlate fit changer les couleurs du monde; les nuages furent repoussés et le Vide Brillant tout entier trembla.
+Ce marquage était radicalement différent de l'éclair vert. Il était rouge, d'un rouge sang! Cette lumière écarlate dégageait une lueur infinie et se mua en une Tribulation du Tonnerre propre à Wang Lin. Ce tonnerre écarlate fit changer les couleurs du monde; les nuages furent repoussés et le Vide Brillant tout entier trembla.
 
 Wang Lin leva la main droite et pointa l'éclair céleste vert qui descendait. Le marquage rouge frémit et se transforma en un éclair céleste projeté vers le haut.
 
 La scène était absolument saisissante! Vu de loin, on voyait distinctement un éclair vert et un éclair rouge se précipiter l'un vers l'autre à des vitesses inimaginables, l'un venant d'en haut, l'autre d'en bas.
 
-Il devenait impossible de distinguer laquelle était la rétribution divine. Certains auraient pu croire que les deux l'étaient. On ne savait plus si les cieux punissaient Wang Lin ou... si Wang Lin punissait les cieux!
+Il devenait impossible de distinguer laquelle était la Tribulation Céleste. Certains auraient pu croire que les deux l'étaient. On ne savait plus si les cieux punissaient Wang Lin ou... si Wang Lin punissait les cieux!
 
 En un instant, les deux éclairs célestes entrèrent en collision dans un fracas tonitruant, créant un impact violent.
 
@@ -76,23 +76,23 @@ Il se fragmenta en d'innombrables particules de lumière verte qui se répandire
 
 Alors que Wang Lin se tenait au milieu des résidus de la foudre, sa silhouette paraissait floue. Il leva les yeux vers le vortex et pointa la main droite vers le ciel.
 
-« Par ma volonté, crée une rétribution de tonnerre pour punir les cieux et la terre! »
+« Par ma volonté, crée une Tribulation du Tonnerre pour punir les cieux et la terre! »
 
-Un instant plus tard, un éclair de rétribution rouge apparut de nulle part à sa gauche et fonça vers le vortex. Puis un deuxième, un troisième... D'innombrables éclairs surgirent autour de Wang Lin, prenant le centre de la scène pour bombarder le vortex.
+Un instant plus tard, un éclair de Tribulation rouge apparut de nulle part à sa gauche et fonça vers le vortex. Puis un deuxième, un troisième... D'innombrables éclairs surgirent autour de Wang Lin, prenant le centre de la scène pour bombarder le vortex.
 
 En un clin d'œil, la zone occupée par Wang Lin devint un véritable domaine de tonnerre. Les éclairs passèrent de dizaines à des centaines, puis à des dizaines de milliers de projectiles lancés avec fureur.
 
-Dix Mille Éclairs de Rétribution pour punir la rétribution divine!
+Dix Mille Éclairs de Tribulation pour punir la Tribulation Céleste!
 
 Des dizaines de milliers d'éclairs rouges s'élancèrent vers le vortex. En un instant, ces éclairs percutèrent le cœur du tourbillon!
 
-Un fracas capable de briser les cieux résonna alors que la rétribution de Wang Lin bombardait le vortex, le rendant si ténu qu'il semblait prêt à s'évaporer. Finalement, le vortex céleste se désintégra et disparut.
+Un fracas capable de briser les cieux résonna alors que la Tribulation de Wang Lin bombardait le vortex, le rendant si ténu qu'il semblait prêt à s'évaporer. Finalement, le vortex céleste se désintégra et disparut.
 
 Cependant, au moment même où il s'évanouissait, une immense faille apparut là où se trouvait le vortex. Cette déchirure mesurait cent mille pieds de long et exhalait des grondements tonitruants. Un gigantesque pavillon quadrangulaire, semblable à un autel, en émergea lentement.
 
 À son apparition, les grondements devinrent encore plus nets. En un instant, la moitié de l'autel fut révélée, montrant deux de ses angles. Wang Lin aperçut une silhouette vague assise au centre, entourée de quatre épées plantées dans l'autel.
 
-« Par mon intention, déclenche la rétribution du feu et consume les cieux et la terre! » Le tatouage de feu sur l'œil gauche de Wang Lin brilla, et une flamme menaçante se propagea autour de lui, formant des flammes dévastatrices.
+« Par mon intention, déclenche la Tribulation du Feu et consume les cieux et la terre! » Le tatouage de feu sur l'œil gauche de Wang Lin brilla, et une flamme menaçante se propagea autour de lui, formant des flammes dévastatrices.
 
 Alors que Wang Lin pointait le ciel de sa main gauche, les flammes s'étendirent subitement. Mille pieds, dix mille pieds, cent mille pieds, cent kilomètres, mille kilomètres, dix mille kilomètres...
 

@@ -24,7 +24,7 @@ Cette scène fut vue par tous les disciples de la Secte Da Hun et fit trembler l
 
 Même les vieux monstres de la Secte Da Hun, d'ordinaire en culture retirée, sortirent pour observer la scène de leurs propres yeux.
 
-« Ma volonté ne peut être détruite par la rétribution divine. J'ai repris mon propre destin des mains de la rétribution divine. Je suis venu sur le Continent Astral Immortel non pas pour me soumettre, mais pour me maîtriser moi-même! Je suis venu sur le Continent Astral Immortel non pas pour obéir, mais pour marcher au-dessus des cieux! » Les yeux de Wang Lin brillèrent tandis que son essence karmique jaillissait. Son pied se posa sur la 19e marche et il pénétra au septième étage!
+« Ma volonté ne peut être détruite par la Tribulation Céleste. J'ai repris mon propre destin des mains de la Tribulation Céleste. Je suis venu sur le Continent Astral Immortel non pas pour me soumettre, mais pour me maîtriser moi-même! Je suis venu sur le Continent Astral Immortel non pas pour obéir, mais pour marcher au-dessus des cieux! » Les yeux de Wang Lin brillèrent tandis que son essence karmique jaillissait. Son pied se posa sur la 19e marche et il pénétra au septième étage!
 
 Au moment où son pied toucha le sol, l'illusion surplombant la Secte Da Hun brilla intensément. Autour d'eux, tout était silencieux. Tous les disciples de la secte levèrent les yeux vers l'illusion avec respect.
 
@@ -34,7 +34,7 @@ Tous ceux qui n'avaient pas une bonne opinion de lui tremblèrent intérieuremen
 
 « Désormais, le septième étage n'est plus un lieu où seuls cinq individus, aux côtés de l'Ancêtre, peuvent entrer. Il y en a maintenant un de plus... » Alors que le silence régnait, un soupir parvint de loin.
 
-Au même instant, au Pic du Ciel Vert, l'Estimé Taureau Vert réfléchissait. Il était toujours assis là, sans avoir levé les yeux, mais son regard était grave.
+Au même instant, au Pic Qing Tian, l'Estimé Taureau Vert réfléchissait. Il était toujours assis là, sans avoir levé les yeux, mais son regard était grave.
 
 « Il... est réellement entré au septième étage... L'Ancêtre avait prédit que cet homme entrerait au septième étage dans trois ans, au huitième dans 30 ans et au neuvième dans 300 ans afin d'apporter la plus grande fortune à ma Secte Da Hun! »
 
@@ -118,7 +118,7 @@ La silhouette de Wang Lin réapparut sur les marches. Cette chevelure blanche ch
 
 « C'est un événement rarissime, même sur des centaines d'années! Je vais assister à quelqu'un qui tente de franchir les septième et huitième étages d'un seul coup! »
 
-Un tumulte éclata alors que les anciens en culture retirée tournaient tous leurs regards avec des expressions graves. Au Pic du Ciel Vert, l'Estimé Taureau Vert ne put plus maintenir son calme. Il se leva, son expression changeant sans cesse; il ne pouvait plus cacher le choc qui agitait son cœur.
+Un tumulte éclata alors que les anciens en culture retirée tournaient tous leurs regards avec des expressions graves. Au Pic Qing Tian, l'Estimé Taureau Vert ne put plus maintenir son calme. Il se leva, son expression changeant sans cesse; il ne pouvait plus cacher le choc qui agitait son cœur.
 
 « Il va au huitième étage!! Atteindre le septième étage avec trois ans d'avance est une chose, mais entrer au huitième étage 30 ans prématurément est... » L'Ancien ne savait pas si cela serait bénéfique ou néfaste pour la Secte Da Hun. Cependant, ce décalage par rapport à la divination de l'Ancêtre originel lui causait un profond malaise.
 

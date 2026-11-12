@@ -40,7 +40,7 @@ Zhou Wutai était toujours assis sur la statue de Suzaku, buvant son vin en sile
 
 Dans la ville impériale du pays de Zhao, la vieille maison et la cour étaient toujours là. La tombe restait solitaire; seule la figure pleurant et gémissant avait disparu.
 
-Quelques cruches de vin vides reposaient sur le sol; il n'y avait plus une goutte du vin de la famille Ceng à l'intérieur.
+Quelques cruches de vin vides reposaient sur le sol; il n'y avait plus une goutte du vin de la famille Zeng à l'intérieur.
 
 Seule subsistait la statue géante, tenant la hache fend-ciel et fixant le ciel. Elle semblait être devenue une existence éternelle...
 

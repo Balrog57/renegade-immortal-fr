@@ -64,7 +64,7 @@ Wang Lin était déjà venu ici. Il avait non seulement vu le bébé Tuo Sen, ma
 
 Après le départ de Wang Lin, le monde des grottes retrouva son calme. Il se reposait et se renforçait peu à peu. Une force que presque personne ne pouvait détecter emplit le monde après son départ.
 
-Cette puissance pourrait protéger cet endroit pendant des générations, afin que des incidents tels que celui du Maître Âme Écarlate ne se reproduisent plus jamais.
+Cette puissance pourrait protéger cet endroit pendant des générations, afin que des incidents tels que celui du Maître Chi Hunzi ne se reproduisent plus jamais.
 
 Sur le Continent Astral Immortel, dans les terres du clan céleste, dans le Continent de l'Est, dans le Continent Tian Niu, une montagne était entourée de brume. Ce jour-là, une force puissante jaillit, et une lumière cristalline infinie se répandit dans toutes les directions.
 

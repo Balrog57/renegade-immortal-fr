@@ -36,7 +36,7 @@ Les observateurs extérieurs auraient eu du mal à croire que le Su Dao d'alors 
 
 L'environnement pouvait tout changer, et l'expérience pouvait transformer la personnalité. C'était une forme de destin; elle pouvait être aussi bien une bénédiction qu'une malédiction.
 
-Alors que Wang Lin méditait, une voix mélodieuse résonna à ses oreilles. « Jeune frère Su, je ne vous ai pas encore félicité pour l'obtention de la qualification pour cultiver l'Art Céleste du Dao des Nuages. Je n'ai même pas pu croiser votre ombre ces derniers temps et je ne vous vois que maintenant. »
+Alors que Wang Lin méditait, une voix mélodieuse résonna à ses oreilles. « Junior frère Su, je ne vous ai pas encore félicité pour l'obtention de la qualification pour cultiver l'Art Céleste du Dao des Nuages. Je n'ai même pas pu croiser votre ombre ces derniers temps et je ne vous vois que maintenant. »
 
 C'était Qin Mei, qui lui adressait un sourire malicieux en le regardant. Ses paroles étaient douces et son parfum vint caresser le visage de Wang Lin porté par la brise.
 

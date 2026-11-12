@@ -26,7 +26,7 @@ Wang Lin leva la main droite et fouilla son espace de stockage pour en sortir un
 
 Il s'agissait de l'Étendard de l'Âme!
 
-Ce drapeau lui avait été donné par Du Tian il y a de nombreuses années, et il en avait confié une partie à Treize. Actuellement, il ne lui restait que ce fragment brisé, mais lorsque la puissance de la Porte Kong s'y engouffra, l'Étendard de l'Âme dégagea une aura puissante.
+Ce drapeau lui avait été donné par Dun Tian il y a de nombreuses années, et il en avait confié une partie à Treize. Actuellement, il ne lui restait que ce fragment brisé, mais lorsque la puissance de la Porte Kong s'y engouffra, l'Étendard de l'Âme dégagea une aura puissante.
 
 Une fois l'Étendard de l'Âme réparé, la puissance de la Porte Kong se dissipa rapidement du monde.
 
@@ -42,19 +42,19 @@ Il n'était pas étranger à cette marque; c'était la sixième porte qu'il avai
 
 La Porte Wan Kong Gu ressemblait à un tatouage dans la paume droite de Wang Lin, et elle formait lentement une empreinte profonde. En baissant les yeux, il vit des milliers de cultivateurs s'élever lentement depuis la planète Suzaku. Maître Nan Yunzi, Situ Nan et d'autres volaient en tête pour saluer Wang Lin. Seul Maître Nan Yunzi semblait inquiet. Il fixa l'horizon, écoutant les grondements sourds, et une conjecture germa dans son cœur.
 
-À ce moment précis, les grondements au loin devinrent plus pressants et violents. Wang Lin leva la tête et regarda vers l'horizon, l'intention de combat brillant dans ses yeux. Il allait faire face à la rétribution divine; il voulait voir si cette rétribution serait plus redoutable que les précédentes!
+À ce moment précis, les grondements au loin devinrent plus pressants et violents. Wang Lin leva la tête et regarda vers l'horizon, l'intention de combat brillant dans ses yeux. Il allait faire face à la Tribulation Céleste; il voulait voir si cette rétribution serait plus redoutable que les précédentes!
 
-« Situ, nous en parlerons plus tard. La rétribution divine arrive. Une fois que je l'aurai brisée, nous nous enivrerons! »
+« Situ, nous en parlerons plus tard. La Tribulation Céleste arrive. Une fois que je l'aurai brisée, nous nous enivrerons! »
 
-« C'est bel et bien une rétribution divine! » Les yeux du Maître Nan Yunzi se plissèrent. Il s'arrêta et agita ses manches pour ordonner à tous de ne pas avancer.
+« C'est bel et bien une Tribulation Céleste! » Les yeux du Maître Nan Yunzi se plissèrent. Il s'arrêta et agita ses manches pour ordonner à tous de ne pas avancer.
 
-« Le Seigneur du Royaume Scellé subit la rétribution divine. Nous attendrons à l'extérieur pour le protéger! » Alors que les paroles du Maître Nan Yunzi résonnaient, les milliers de cultivateurs s'arrêtèrent puis reculèrent lentement.
+« Le Seigneur du Royaume Scellé subit la Tribulation Céleste. Nous attendrons à l'extérieur pour le protéger! » Alors que les paroles du Maître Nan Yunzi résonnaient, les milliers de cultivateurs s'arrêtèrent puis reculèrent lentement.
 
 Situ Nan lança un regard anxieux à Wang Lin.
 
-« Une rétribution divine... Quand j'ai brisé la Porte Kong, il n'y en a pas eu. Wang Lin, lui... » Situ Nan regarda Maître Nan Yunzi et y vit également une pointe d'inquiétude.
+« Une Tribulation Céleste... Quand j'ai brisé la Porte Kong, il n'y en a pas eu. Wang Lin, lui... » Situ Nan regarda Maître Nan Yunzi et y vit également une pointe d'inquiétude.
 
-« Le Seigneur du Royaume Scellé possède la volonté de défier les cieux et est appelé cultivateur défiant le ciel. Les cultivateurs défiant le ciel doivent affronter la rétribution divine, c'est une loi transmise depuis l'Antiquité... Ce vieil homme en a vu passer plusieurs. Ainsi, le Seigneur du Royaume Scellé est également un cultivateur défiant le ciel... » Maître Nan Yunzi regarda au loin et vit une masse de nuages se précipiter vers eux.
+« Le Seigneur du Royaume Scellé possède la volonté de défier les cieux et est appelé cultivateur défiant le ciel. Les cultivateurs défiant le ciel doivent affronter la Tribulation Céleste, c'est une loi transmise depuis l'Antiquité... Ce vieil homme en a vu passer plusieurs. Ainsi, le Seigneur du Royaume Scellé est également un cultivateur défiant le ciel... » Maître Nan Yunzi regarda au loin et vit une masse de nuages se précipiter vers eux.
 
 Les nuages étaient infinis et se rapprochaient sans cesse. Moins de dix respirations après le retrait de la foule, les grondements tonitruants résonnèrent dans les oreilles de chacun.
 
@@ -70,11 +70,11 @@ De loin, la scène était extrêmement terrifiante. Les nuages s'étendirent jus
 
 Wang Lin était seul à l'intérieur!
 
-Devant cet événement inimaginable, tous les cultivateurs devinrent anxieux, particulièrement Situ Nan qui fixait l'horizon d'un air sombre, brûlant d'envie d'aider. Cependant, il savait qu'en dehors de celui qui subissait la rétribution, il serait presque impossible pour quiconque de s'approcher.
+Devant cet événement inimaginable, tous les cultivateurs devinrent anxieux, particulièrement Situ Nan qui fixait l'horizon d'un air sombre, brûlant d'envie d'aider. Cependant, il savait qu'en dehors de celui qui subissait la Tribulation, il serait presque impossible pour quiconque de s'approcher.
 
 Wang Lin devait affronter cela seul.
 
-« Le Seigneur du Royaume Scellé est un cultivateur défiant le ciel. Grâce à cette rétribution divine, sa culture sera fortifiée et il accédera à l'Ascendant, au-dessus de nous tous! » murmura Maître Nan Yunzi, comme s'il se parlait à lui-même autant qu'aux autres.
+« Le Seigneur du Royaume Scellé est un cultivateur défiant le ciel. Grâce à cette Tribulation Céleste, sa culture sera fortifiée et il accédera à l'Ascendant, au-dessus de nous tous! » murmura Maître Nan Yunzi, comme s'il se parlait à lui-même autant qu'aux autres.
 
 Chacun resta plongé dans une réflexion silencieuse.
 
@@ -116,10 +116,10 @@ Ce rocher était creux, et un vieil homme vêtu de blanc y était assis. Ce viei
 
 Il était Tian Yunzi, qui avait disparu depuis de nombreuses années!
 
-Dans le Vide Brillant, Wang Lin se trouvait au cœur des nuages infinis, là où seul celui qui subit la rétribution divine peut se trouver. Sa robe blanche flottait et son regard était serein. Les mains derrière le dos, il leva les yeux vers le ciel.
+Dans le Vide Brillant, Wang Lin se trouvait au cœur des nuages infinis, là où seul celui qui subit la Tribulation Céleste peut se trouver. Sa robe blanche flottait et son regard était serein. Les mains derrière le dos, il leva les yeux vers le ciel.
 
 Les nuages au-dessus de lui tourbillonnaient, laissant entrevoir d'innombrables serpents argentés s'agitant à l'intérieur. Un vortex, semblable à une gueule béante, se forma.
 
-« J'ai une question: de quelle qualification le ciel dispose-t-il pour m'infliger une rétribution? Aujourd'hui, je ne suis pas seulement celui qui subit la rétribution, je suis aussi celui qui va en infliger une! »
+« J'ai une question: de quelle qualification le ciel dispose-t-il pour m'infliger une Tribulation? Aujourd'hui, je ne suis pas seulement celui qui subit la Tribulation, je suis aussi celui qui va en infliger une! »
 
-« Rétribution du tonnerre, en mon nom, Wang Lin, commencez! »
+« Tribulation du Tonnerre, en mon nom, Wang Lin, commencez! »

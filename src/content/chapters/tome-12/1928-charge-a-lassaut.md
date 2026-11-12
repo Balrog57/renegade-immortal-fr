@@ -138,4 +138,4 @@ Dans le ciel, Wang Lin se tenait au cœur de la lumière dorée entourant le qua
 
 « Le quatrième niveau comportait 36 planètes dont deux dorées. J'ai utilisé tous mes avatars, et sans l'armure de l'âme, le quatrième niveau est ma limite. »
 
-« Mais si je revêts l'armure de l'âme... Je me demande combien de niveaux je pourrais franchir! Malheureusement, je dois me rendre à la Mer Montagneuse pour obtenir l'Arbre, il serait peu opportun de montrer toute ma puissance ici. Une fois que j'aurai obtenu l'Arbre de la Mer Montagneuse, je reviendrai pour tenter à nouveau! »
+« Mais si je revêts l'armure de l'âme... Je me demande combien de niveaux je pourrais franchir! Malheureusement, je dois me rendre à la Mer Shan Hai pour obtenir l'Arbre, il serait peu opportun de montrer toute ma puissance ici. Une fois que j'aurai obtenu l'Arbre Shan Hai, je reviendrai pour tenter à nouveau! »

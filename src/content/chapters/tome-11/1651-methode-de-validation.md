@@ -34,11 +34,11 @@ Au fil des millénaires, quiconque tentait de découvrir si le monde dans lequel
 
 Le seul moyen de le prouver était le suivant: si, en partant, toute votre culture disparaissait et que vous redeveniez un mortel, alors votre existence n'était qu'une Flamme Joss. En revanche, si votre culture restait inchangée après votre départ, alors tout était réel!
 
-Tandis que Wang Lin traversait la Rivière Invoquée, son Sens Divin revint de la tête qu'il tenait. Lorsqu'il avait saisi la tête pour la première fois, il avait utilisé la recherche d'âme et avait ainsi extrait de nombreux souvenirs de l'homme d'âge moyen.
+Tandis que Wang Lin traversait Zhao He, son Sens Divin revint de la tête qu'il tenait. Lorsqu'il avait saisi la tête pour la première fois, il avait utilisé la recherche d'âme et avait ainsi extrait de nombreux souvenirs de l'homme d'âge moyen.
 
 D'un revers de main, il ajouta une nouvelle tête aux dizaines de milliers qui le suivaient. C'était la première tête de cultivateur de la troisième étape parmi les près de 10 000 cultivateurs du Royaume Extérieur, mais ce ne serait certainement pas la dernière.
 
-Il n'y avait plus aucun cultivateur de la troisième étape dans la Rivière Invoquée; même s'il y en avait eu, ils n'auraient fait qu'ajouter des âmes aux morts. Wang Lin se déplaça comme un éclair, balayant la Rivière Invoquée.
+Il n'y avait plus aucun cultivateur de la troisième étape dans Zhao He; même s'il y en avait eu, ils n'auraient fait qu'ajouter des âmes aux morts. Wang Lin se déplaça comme un éclair, balayant Zhao He.
 
 Les planètes qu'il survolait devenaient des charniers. C'était comme si une tempête violente passait, arrachant d'innombrables têtes qui se mettaient à sa suite.
 
@@ -46,11 +46,11 @@ Souvent, une lueur blanche surgissait près d'une planète ou d'une garnison, su
 
 Le chiffre de 50 000 peut paraître abstrait, mais le spectacle de toutes ces têtes aurait pu terrifier n'importe quel cultivateur. Ce n'était pas qu'un simple nombre, mais des têtes réelles et visibles. L'odeur du sang était si épaisse que même à distance, on pouvait distinctement la sentir.
 
-Lorsque Situ Nan et les milliers de cultivateurs arrivèrent, ils découvrirent une Rivière Invoquée reconquise et débarrassée des cultivateurs du Royaume Extérieur! En volant vers l'avant, ils rencontrèrent des planètes teintées de pourpre par le sang. Un à un, les cultivateurs de la Rivière Invoquée suivirent les traces de Wang Lin.
+Lorsque Situ Nan et les milliers de cultivateurs arrivèrent, ils découvrirent Zhao He reconquis et débarrassé des cultivateurs du Royaume Extérieur! En volant vers l'avant, ils rencontrèrent des planètes teintées de pourpre par le sang. Un à un, les cultivateurs de Zhao He suivirent les traces de Wang Lin.
 
 Wang Lin avançait et ils le suivaient. Bien qu'une vaste distance les séparât, Wang Lin était tel une épée menant la charge. Tous les autres n'avaient d'autre choix que de le suivre!
 
-Wang Lin quitta la Rivière Invoquée. Après avoir déterminé qu'aucun cultivateur du Royaume Extérieur ne subsistait, il pénétra dans la Mer Yun tandis que les près de 50 000 têtes poussaient des hurlements lugubres!
+Wang Lin quitta Zhao He. Après avoir déterminé qu'aucun cultivateur du Royaume Extérieur ne subsistait, il pénétra dans la Mer Yun tandis que les près de 50 000 têtes poussaient des hurlements lugubres!
 
 La Mer Yun était à l'origine le front de guerre, et une multitude de cultivateurs des deux camps y avaient péri. Dès son entrée, Wang Lin eut l'impression d'entendre les cris d'innombrables fantômes.
 
@@ -70,7 +70,7 @@ Sur les continents, les cultivateurs du Royaume Extérieur s'éveillèrent lorsq
 
 Le Sens Divin de Wang Lin était comme une tempête balayant la Mer Yun, tel un lourd gourdin frappant au cœur de chaque cultivateur du Royaume Extérieur.
 
-Au plus profond de la Mer Yun se trouvait une planète rare. C'était autrefois la planète de la Secte Brise-Ciel, mais elle n'était plus que ruines. D'innombrables algues bleues et violettes y poussaient, atteignant environ 1 000 pieds de hauteur. De loin, on aurait dit que la planète avait poussé des poils.
+Au plus profond de la Mer Yun se trouvait une planète rare. C'était autrefois la planète de la Secte Po Tian, mais elle n'était plus que ruines. D'innombrables algues bleues et violettes y poussaient, atteignant environ 1 000 pieds de hauteur. De loin, on aurait dit que la planète avait poussé des poils.
 
 La planète entière était recouverte par ces algues. Au centre de cette étendue végétale se trouvaient d'immenses branches de plusieurs centaines de pieds d'épaisseur, et là trônait une fleur géante et violette!
 

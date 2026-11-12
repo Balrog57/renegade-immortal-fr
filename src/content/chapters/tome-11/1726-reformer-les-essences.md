@@ -104,7 +104,7 @@ En particulier, ses yeux ressemblaient à des étoiles. Quiconque les fixait tom
 
 Au moment où il rouvrit les yeux, l'essence du Vrai et du Faux se rassembla.
 
-Pendant que Wang Lin reformait les essences de son avatar de cultivateur, la Bête des Limbes dérivait lentement en dessous de lui. Elle avait quitté la Rivière Invoquée pour atteindre la Mer Yun.
+Pendant que Wang Lin reformait les essences de son avatar de cultivateur, la Bête des Limbes dérivait lentement en dessous de lui. Elle avait quitté la Rivière Zhao pour atteindre la Mer Yun.
 
 À cet instant, dans la Mer Yun, un groupe de personnes traversait le système stellaire.
 

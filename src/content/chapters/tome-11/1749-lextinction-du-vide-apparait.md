@@ -90,7 +90,7 @@ Wang Lin regarda Xie Qing sans pouvoir prononcer un mot. Il l'écoutait, et voir
 
 Soudain, il leva les yeux vers le ciel. Son expression devint féroce alors qu'il laissait échapper un rugissement.
 
-« Moi, Wang Lin, j'ai arraché mon propre destin aux griffes du destin céleste et je suis devenu le maître du Dao Céleste. Mais pourquoi ne puis-je toujours pas décider de ma propre destinée? Pourquoi suis-je forcé de faire face à un tel dilemme?! »
+« Moi, Wang Lin, j'ai arraché mon propre destin à la Tribulation Céleste et je suis devenu le maître du Dao Céleste. Mais pourquoi ne puis-je toujours pas décider de ma propre destinée? Pourquoi suis-je forcé de faire face à un tel dilemme?! »
 
 « Cieux! Que vous soyez les cieux du monde caverneux ou ceux du Continent Astral Immortel, voyez-vous cela?! Si les cieux sont si impitoyables, alors moi, Wang Lin, je jure de détruire les cieux de mon vivant!! » Les veines du visage de Wang Lin saillirent et il parut possédé par la folie en rugissant. Son corps irradia une aura puissante. Cette aura, semblable à de la fumée, se rassembla rapidement pour former une épée illusoire. Cette lame dégageait une présence terrifiante capable de briser les cieux!
 

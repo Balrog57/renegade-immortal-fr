@@ -1,6 +1,6 @@
 ---
 n: 1819
-title: Neige sur la Montagne Céleste
+title: Neige sur la Montagne Tian
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1819 - Snow on the Heavenly Mountain
@@ -54,9 +54,9 @@ Après un long moment, le visage de Du Qing devint livide et il recula inconscie
 
 Non loin de là, sur l'herbe où Wang Lin s'était tenu, reposait une fine couche de neige verte. Elle scintillait sous le soleil tout en fondant lentement.
 
-Dans tout le continent du Taureau Céleste, la neige verte n'existait que sur la Montagne Céleste, à l'extrême ouest. Même en volant à pleine vitesse, il aurait fallu plusieurs mois à Du Qing pour faire l'aller-retour.
+Dans tout le Continent Tian Niu, la neige verte n'existait que sur la Montagne Tian, à l'extrême ouest. Même en volant à pleine vitesse, il aurait fallu plusieurs mois à Du Qing pour faire l'aller-retour.
 
-« La neige de la Montagne Céleste... Cet homme... est un génie céleste! » Du Qing resta silencieux un long moment avant de marmonner cette phrase. À cet instant, le dédain et le mépris qu'il avait éprouvés envers Wang Lin ces sept derniers mois disparurent, remplacés par un sentiment de mystère et d'incertitude.
+« La neige de la Montagne Tian... Cet homme... est un génie céleste! » Du Qing resta silencieux un long moment avant de marmonner cette phrase. À cet instant, le dédain et le mépris qu'il avait éprouvés envers Wang Lin ces sept derniers mois disparurent, remplacés par un sentiment de mystère et d'incertitude.
 
 Une peur viscérale envers Wang Lin grandit en lui. Cela n'avait rien à voir avec la culture, mais plutôt avec les mystères qui entouraient l'homme.
 
@@ -74,11 +74,11 @@ Tout cela était dû à son avatar!
 
 Au moment où son sens divin fusionna avec le monde, son corps disparut pour se fondre dans l'environnement. Il ressentit alors la même sensation qu'au moment où il utilisait la Déformation Spatiale dans le monde des grottes; une sensation qu'il n'avait pas éprouvée depuis longtemps.
 
-D'une simple pensée, il apparut sur la Montagne Céleste de ce continent et vit la neige verte tomber. La première fois qu'il avait utilisé la Déformation Spatiale ici, il l'avait fait sans direction précise, en faisant simplement quelques pas au hasard pour se familiariser avec la technique.
+D'une simple pensée, il apparut sur la Montagne Tian de ce continent et vit la neige verte tomber. La première fois qu'il avait utilisé la Déformation Spatiale ici, il l'avait fait sans direction précise, en faisant simplement quelques pas au hasard pour se familiariser avec la technique.
 
 Mais lorsqu'il retourna à la Secte Cang Long, l'image de la secte apparut clairement dans son esprit. Il se matérialisa dans les montagnes arrières de la Secte Cang Long, juste derrière Du Qing.
 
-Il ne lui fallut que la moitié du temps de brûler un bâton d'encens pour faire ce voyage aller-retour. Sans la neige verte déposée sur ses pieds, même Du Qing n'aurait pas su où Wang Lin était allé.
+Il ne lui fallut même pas un demi-bâton d'encens pour faire ce voyage aller-retour. Sans la neige verte déposée sur ses pieds, même Du Qing n'aurait pas su où Wang Lin était allé.
 
 « L'avatar n'a grandi que quelques jours et il apporte déjà un tel renforcement... Avec plus de temps, mon avatar deviendra le corps le plus puissant! » Wang Lin l'avait compris depuis longtemps.
 
@@ -86,7 +86,7 @@ Il ne lui fallut que la moitié du temps de brûler un bâton d'encens pour fair
 
 Pour former la tête, l'essence de feu ne suffisait pas. Ce dont il avait le plus besoin était la volonté du feu.
 
-Une heure plus tard, Du Qing vint le saluer, apportant certaines des âmes de feu terrestre récupérées par les disciples, ainsi qu'une carte. Il s'agissait d'une carte complète du continent du Taureau Céleste, sur laquelle les veines secondaires et enfantines étaient marquées.
+Une heure plus tard, Du Qing vint le saluer, apportant certaines des âmes de feu terrestre récupérées par les disciples, ainsi qu'une carte. Il s'agissait d'une carte complète du Continent Tian Niu, sur laquelle les veines secondaires et enfantines étaient marquées.
 
 Wang Lin ne prit pas la peine de feindre la politesse et absorba directement ces âmes de feu terrestre. Cependant, elles contenaient peu de volonté de feu, ce qui n'aidait que très peu à la formation de son corps véritable d'essence de feu.
 
@@ -96,9 +96,9 @@ Plus important encore, le regard que Wang Lin lui avait lancé avant de partir �
 
 Le cœur de Du Qing trembla en voyant Wang Lin disparaître, et après un long moment, il laissa échapper un soupir.
 
-« Je me souviendrai de l'aide du Compagnon Cultivateur Du. Si l'occasion se présente, je vous revaudrai cela. » Après le départ de Wang Lin, ses paroles résonnèrent encore dans les oreilles de Du Qing.
+« Je me souviendrai de l'aide du Daoïste Du. Si l'occasion se présente, je vous revaudrai cela. » Après le départ de Wang Lin, ses paroles résonnèrent encore dans les oreilles de Du Qing.
 
-Le septième jour suivant le départ de Wang Lin, les veines enfantines de feu terrestre à travers tout le continent du Taureau Céleste s'effondrèrent, et une explosion de feu déferla sur le continent. L'air lui-même devint brûlant, et la simple respiration suffisait à rendre irritable.
+Le septième jour suivant le départ de Wang Lin, les veines enfantines de feu terrestre à travers tout le Continent Tian Niu s'effondrèrent, et une explosion de feu déferla sur le continent. L'air lui-même devint brûlant, et la simple respiration suffisait à rendre irritable.
 
 Comme ce phénomène se produisit en de nombreux endroits du continent, il attira l'attention des diverses sectes. Elles envoyèrent de nombreux disciples, et parfois même des Anciens pour inspecter les lieux, mais ils ne trouvèrent aucune trace. Lorsqu'ils arrivaient, ils ne voyaient plus que des ruines.
 
@@ -110,7 +110,7 @@ Wang Lin émergea du brouillard noir et jeta un regard vers la montagne voilée 
 
 « Situ, Qing Shui, Li Qianmei, et tous ceux qui se sont réincarnés... Où êtes-vous tous maintenant...? » Wang Lin tourna le dos pour partir, son allure dégageant une profonde solitude.
 
-Un jour plus tard, à l'extrême ouest du continent du Taureau Céleste, sur la Montagne Céleste, dans la zone couverte par la Secte Da Hun, un jeune homme vêtu de blanc aux cheveux blancs se tenait au sommet de la montagne alors que la neige verte tombait. Il pouvait voir l'autre versant de la montagne à travers les flocons.
+Un jour plus tard, à l'extrême ouest du Continent Tian Niu, sur la Montagne Tian, dans la zone couverte par la Secte Da Hun, un jeune homme vêtu de blanc aux cheveux blancs se tenait au sommet de la montagne alors que la neige verte tombait. Il pouvait voir l'autre versant de la montagne à travers les flocons.
 
 Depuis cet endroit, le jeune homme pouvait vaguement apercevoir l'immensité de la chaîne de montagnes, et au sein de celle-ci, une montagne rouge perçait les nuages au loin.
 

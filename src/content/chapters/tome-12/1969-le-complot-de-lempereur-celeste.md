@@ -104,7 +104,7 @@ Des ondulations se propagèrent à la surface du bassin tandis que l'Empereur C�
 
 « Cet empereur restaurera la gloire de l'Ancêtre Céleste en cette génération! Ce vieux Jiu Di se prévaut de son âge: une fois que j'aurai réussi, je commencerai par lui. S'il se soumet, qui osera me désobéir? »
 
-« Quant à Dao Yi, cet homme est extrêmement rusé. Autrefois, le titre de Grand Empyréen aurait dû revenir à son frère aîné, mais il a fait assassiner ce dernier pour lui voler sa qualification! »
+« Quant à Dao Yi, cet homme est extrêmement rusé. Autrefois, le titre de Grand Empyréen aurait dû revenir à son Senior frère, mais il a fait assassiner ce dernier pour lui voler sa qualification! »
 
 « Cet empereur admire un tel individu. Il sera d'une grande utilité! »
 

@@ -60,7 +60,7 @@ Soudain, Wang Lin lança un coup de poing vers le fond marin. Ce coup provoqua u
 
 Dans un fracas de tonnerre, le fond de la mer s'effondra et un trou gigantesque se forma. Une quantité phénoménale d'eau s'y engouffra, transformant l'orifice en un véritable trou noir.
 
-Wang Lin n'hésita pas. Il avait exploré la Mer Montagneuse pendant les trois dernières années; il savait comment trouver l'Arbre de la Mer Montagneuse qui soutenait l'océan!
+Wang Lin n'hésita pas. Il avait exploré la Mer Shan Hai pendant les trois dernières années; il savait comment trouver l'Arbre Shan Hai qui soutenait l'océan!
 
 Il s'élança dans le trou noir et disparut sans laisser de trace.
 
@@ -68,17 +68,17 @@ Il s'élança dans le trou noir et disparut sans laisser de trace.
 
 Le dragon marin, sur le côté, affichait de la fierté dans les yeux. Il rugit vers la pieuvre dans une langue que seuls les êtres marins comme eux pouvaient comprendre. Quant à ce qu'il disait exactement, seul le dragon, ou peut-être la pieuvre si elle l'entendait, aurait pu le comprendre.
 
-Le temps passa. Au huitième souffle, Wang Lin apparut au fond de la Mer Montagneuse. Dans ce monde de néant englouti par la mer, situé à l'intérieur du trou noir, se dressait un arbre absolument colossal!
+Le temps passa. Au huitième souffle, Wang Lin apparut au fond de la Mer Shan Hai. Dans ce monde de néant englouti par la mer, situé à l'intérieur du trou noir, se dressait un arbre absolument colossal!
 
-Cet arbre constituait la moitié de la Mer Montagneuse, et on ne pouvait en percevoir les limites d'un seul coup d'œil. Le tronc était desséché, mais ses branches s'étendaient pour soutenir l'immensité marine.
+Cet arbre constituait la moitié de la Mer Shan Hai, et on ne pouvait en percevoir les limites d'un seul coup d'œil. Le tronc était desséché, mais ses branches s'étendaient pour soutenir l'immensité marine.
 
 En comparaison, Wang Lin paraissait si minuscule qu'il était presque invisible. L'arbre était imprégné d'une aura de mort et de multiples couches de sceaux. De plus, il dégageait une intention meurtrière si puissante que l'on aurait dit que cet arbre avait autrefois tué d'innombrables êtres!
 
 Autour du vaste tronc desséché flottaient sept amas de lumière verte. Chacun n'était pas plus grand qu'un poing et semblait dérisoire face à la démesure de l'arbre.
 
-Ces amas verts étaient ce que Wang Lin recherchait. Il s'agissait des Esprits de l'Arbre de la Mer Montagneuse, nés après la mort de l'arbre originel. Ces esprits pouvaient aider un cultivateur à obtenir l'essence de bois.
+Ces amas verts étaient ce que Wang Lin recherchait. Il s'agissait des Esprits de l'Arbre Shan Hai, nés après la mort de l'arbre originel. Ces esprits pouvaient aider un cultivateur à obtenir l'essence de bois.
 
-L'Arbre de la Mer Montagneuse en possédait autrefois une multitude, mais après sa mort, beaucoup avaient été emportés. Désormais, il n'en restait que sept!
+L'Arbre Shan Hai en possédait autrefois une multitude, mais après sa mort, beaucoup avaient été emportés. Désormais, il n'en restait que sept!
 
 Ces Esprits ne se trouvaient pas à l'intérieur du sceau, mais flottaient à l'extérieur pour une raison inconnue. Il semblait que le sceau n'ait aucune prise sur eux.
 
@@ -88,15 +88,15 @@ Sans hésiter, Wang Lin s'approcha de l'Arbre et fit un geste de la main. Il sai
 
 Alors qu'il faisait volte-face, Wang Lin ressentit soudain une douleur lancinante dans les yeux, et la lumière dorée de son regard brilla de manière incontrôlée. Ce changement brusque le força à s'arrêter.
 
-Cette douleur était accompagnée d'un sentiment d'appel. C'était comme si quelque chose, au cœur de l'Arbre de la Mer Montagneuse, appelait ses yeux!
+Cette douleur était accompagnée d'un sentiment d'appel. C'était comme si quelque chose, au cœur de l'Arbre Shan Hai, appelait ses yeux!
 
-Les yeux de Wang Lin contenaient un fragment de l'Épée de l'Ancêtre Céleste, ce qui leur conférait le pouvoir de suppression de l'arme.
+Les yeux de Wang Lin contenaient un fragment de l'Épée Xian Ji, ce qui leur conférait le pouvoir de suppression de l'arme.
 
 Il se retourna brusquement. Tandis que la lumière dorée jaillissait de son regard, il vit un rayon doré foncer vers lui.
 
-Tout cela se produisit en un éclair. En remarquant cette lueur, Wang Lin s'aperçut qu'un fragment doré de la taille d'une paume se trouvait dans l'Arbre de la Mer Montagneuse!
+Tout cela se produisit en un éclair. En remarquant cette lueur, Wang Lin s'aperçut qu'un fragment doré de la taille d'une paume se trouvait dans l'Arbre Shan Hai!
 
-« Un fragment de l'Épée de l'Ancêtre Céleste! » Les yeux de Wang Lin se plissèrent.
+« Un fragment de l'Épée Xian Ji! » Les yeux de Wang Lin se plissèrent.
 
 Le fragment doré vola vers lui. Plus qu'il n'appelait Wang Lin, c'était comme si Wang Lin l'appelait.
 
@@ -104,9 +104,9 @@ Cependant, le sceau entourant l'arbre brilla intensément alors que le fragment 
 
 Dès que la moitié fut libérée, les yeux de Wang Lin brillèrent d'un éclat plus intense encore. C'était comme si un fragment similaire dans ses propres yeux était sur le point de jaillir.
 
-« Comment l'Arbre de la Mer Montagneuse peut-il posséder un fragment de l'Épée de l'Ancêtre Céleste?! » Au cours des 50 dernières années, Wang Lin avait délibérément recherché les objets que le vieil homme du Temple Lü Mo Xie avait injectés dans son corps. Après tout, pour maîtriser son propre corps, il devait comprendre l'origine de ces substances.
+« Comment l'Arbre Shan Hai peut-il posséder un fragment de l'Épée Xian Ji?! » Au cours des 50 dernières années, Wang Lin avait délibérément recherché les objets que le vieil homme du Temple Lü Mo Xie avait injectés dans son corps. Après tout, pour maîtriser son propre corps, il devait comprendre l'origine de ces substances.
 
-La rumeur disait que l'Épée de l'Ancêtre Céleste avait été brisée lors de la bataille contre le Démon Scorpion Vert par la queue du scorpion. Pourtant, Wang Lin avait entendu pas moins de dix légendes différentes à ce sujet!
+La rumeur disait que l'Épée Xian Ji avait été brisée lors de la bataille contre le Lü Mo Xie par la queue du scorpion. Pourtant, Wang Lin avait entendu pas moins de dix légendes différentes à ce sujet!
 
 Presque chaque continent possédait une légende affirmant que l'âme venue d'outre-ciel scellée sur leur terre avait causé le bris de l'épée. Wang Lin ne pouvait savoir laquelle était vraie.
 
@@ -120,7 +120,7 @@ Depuis le début, 15 souffles s'étaient écoulés. Wang Lin, le regard détermi
 
 « Le Temple Lü Mo Xie possédait également un sceau, mais ce n'était pas un problème majeur. Cependant, celui-ci est différent... Mais la richesse se trouve dans le danger, je ne peux repartir les mains vides! » Le Corps Véritable d'Essence de Tonnerre tendit la main et empoigna le fragment d'épée.
 
-Au moment même où sa main droite saisit l'objet, la force de scellement de l'Arbre de la Mer Montagneuse explosa!
+Au moment même où sa main droite saisit l'objet, la force de scellement de l'Arbre Shan Hai explosa!
 
 Des ondulations apparurent là où se trouvait le fragment. Elles formèrent un visage gigantesque empreint de majesté, et une force de suppression s'abattit sur le Corps Véritable d'Essence de Tonnerre de Wang Lin.
 

@@ -76,7 +76,7 @@ Grâce à son Sens Divin, Wang Lin vit clairement un cœur gigantesque vers lequ
 
 Tout ici différait de ce qu'il avait perçu lors de sa première approche de l'héritage, mais l'essence restait la même. Après tout, il n'avait alors entrevu que l'ombre de ce lieu, et c'était la première fois qu'il y pénétrait réellement.
 
-Wang Lin savait que le temps pressait. Il ignorait combien de temps Rêve Bleu et les autres pourraient contenir le Vieux Fantôme Zhan. Chaque seconde perdue pouvait permettre à ce dernier de les rattraper.
+Wang Lin savait que le temps pressait. Il ignorait combien de temps Lanmeng et les autres pourraient contenir le Vieux Fantôme Zhan. Chaque seconde perdue pouvait permettre à ce dernier de les rattraper.
 
 Il ne pouvait se permettre d'observer prudemment avant d'avancer lentement. Il se déplaça à sa vitesse maximale, naviguant entre les vaisseaux sanguins.
 
@@ -110,7 +110,7 @@ Cependant, au moment où sa conscience s'étendit, le cœur se mit à battre ave
 
 « J'ai traversé la plupart des Trois Épreuves et des Sept Calamités, et j'ai obtenu l'approbation de l'Ancêtre Ancien! J'ai acquis plus de la moitié de tes héritages, et il ne reste que le cœur. Je sais que tu y es réticent, mais tu es déjà mort! »
 
-« Tu es déjà mort, alors donne-moi ton héritage et j'accomplirai tes dernières volontés! Je prendrai soin de tes proches sur le Continent Astral Immortel et je les protégerai! »
+« Tu es déjà mort, alors donne-moi ton héritage et j'accomplirai tes dernières volontés! Je prendrai soin de tes proches sur le Continent Xian Gang et je les protégerai! »
 
 « Tu as combattu le Souverain Céleste aux Sept Couleurs et tu as perdu. Moi, Wang Lin, je combattrai l'âme du Souverain Céleste aux Sept Couleurs. Que je gagne ou que je perde, je poursuivrai cette bataille entamée autrefois! »
 

@@ -26,7 +26,7 @@ En contemplant ce lieu, l'expression de Wang Lin perdit sa froideur. C'était un
 
 Beaucoup de personnes qu'il connaissait se trouvaient ici; il ne pouvait donc abandonner cet endroit.
 
-« La rivière argentée de la Rivière Invoquée contient de nombreuses restrictions, mais elle n'est pas assez puissante... » Auparavant, Wang Lin n'avait pas eu la capacité de renforcer ces restrictions, mais désormais, il le pouvait.
+« La rivière argentée de la Rivière Zhao He contient de nombreuses restrictions, mais elle n'est pas assez puissante... » Auparavant, Wang Lin n'avait pas eu la capacité de renforcer ces restrictions, mais désormais, il le pouvait.
 
 Wang Lin ne pénétra pas dans le Royaume Céleste mais resta à l'extérieur, fixant la rivière argentée. Après l'avoir observée un instant, les lignes de sang horizontales qui avaient disparu de son regard réapparurent, émettant une lueur rouge fantomatique.
 
@@ -106,7 +106,7 @@ Hormis les anciens êtres célestes menés par les quatre généraux, le Vieux F
 
 Il ne cachait nullement ses intentions, et bien que les quatre généraux l'aient senti, ils s'en moquaient étrangement. Ils semblaient avoir un appui sur lequel compter, et peu leur importait d'être surveillés.
 
-Quant au Daoïste aux Sept Couleurs, après avoir quitté la Mer Yun, il avait convoqué le Souverain et quelques concubines venues du Royaume Extérieur. Ils s'étaient précipités dans le Royaume Intérieur, en direction du Vide Brillant, pour entamer des recherches minutieuses.
+Quant au Daoïste aux Sept Couleurs, après avoir quitté la Mer Yun, il avait convoqué le Souverain et quelques concubines venues du Royaume Extérieur. Ils s'étaient précipités dans le Royaume Intérieur, en direction de Kun Xu, pour entamer des recherches minutieuses.
 
 Ils semblaient employer un type de sort spécifique, né des batailles entre les Royaumes Intérieur et Extérieur. Les morts innombrables de ces cultivateurs semblaient avoir offert une opportunité au Daoïste aux Sept Couleurs.
 

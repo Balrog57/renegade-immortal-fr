@@ -10,7 +10,7 @@ Plusieurs mois plus tard, au centre du Continent Lu Mo. Cet endroit était un va
 
 Dans ce marécage qui s'étendait sur des millions de kilomètres se dressait un édifice imposant. Dès le premier regard, il était évident que cette structure était un scorpion géant!
 
-Le scorpion mesurait des centaines de milliers de pieds de long. Entièrement noir et allongé sur le marécage, il paraissait d'un réalisme saisissant! Il dégageait une puissante énergie démoniaque qui empêchait la plupart des cultivateurs de s'approcher; cette énergie, en pénétrant leurs corps, risquait de les plonger dans la folie.
+Le scorpion mesurait cent mille pieds de long. Entièrement noir et allongé sur le marécage, il paraissait d'un réalisme saisissant! Il dégageait une puissante énergie démoniaque qui empêchait la plupart des cultivateurs de s'approcher; cette énergie, en pénétrant leurs corps, risquait de les plonger dans la folie.
 
 À l'exception du Maître de Secte, tous les membres de la Secte Dao Mo étaient retournés à leur base. Seul le Maître de Secte s'était rendu devant le Temple Lü Mo Xie avec Wang Lin. Grâce à son niveau de culture, il n'était pas affecté par l'énergie démoniaque ambiante.
 

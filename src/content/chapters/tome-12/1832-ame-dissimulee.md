@@ -8,11 +8,11 @@ slug: ame-dissimulee
 ---
 Au plus profond de la Secte Da Hun se dressait une montagne qui perçait les cieux. D'un vert éclatant, elle semblait d'une hauteur vertigineuse, comme si elle soutenait le monde entier. C’était une terre interdite de la Secte Da Hun; le lieu où résidait l'Ancêtre Taureau Vert.
 
-Wang Lin vola rapidement. Toutes les restrictions qui se dressaient devant lui résonnèrent, mais aucune ne parvint à l'arrêter. Il s'arrêta devant le Pic du Ciel Vert et joignit les mains. Sa voix résonna distinctement vers la montagne:
+Wang Lin vola rapidement. Toutes les restrictions qui se dressaient devant lui résonnèrent, mais aucune ne parvint à l'arrêter. Il s'arrêta devant le Pic Qing Tian et joignit les mains. Sa voix résonna distinctement vers la montagne:
 
 « C’est le Junior Wang Lin. Le Senior Taureau Vert est-il présent? »
 
-Le Pic du Ciel Vert trembla et toutes les restrictions environnantes disparurent. Une voix ancienne s'éleva de la montagne:
+Le Pic Qing Tian trembla et toutes les restrictions environnantes disparurent. Une voix ancienne s'éleva de la montagne:
 
 « Au sommet. Je t'attendrai ici. »
 
@@ -20,7 +20,7 @@ Inconsciemment, Wang Lin déploya son Sens Divin pour scanner la montagne. Bien 
 
 « C’est une montagne formée par un trésor... » Wang Lin fendit les nuages en direction du sommet et atteignit bientôt le pic.
 
-Au Pic du Ciel Vert, l'Estimé Taureau Vert était assis, sa robe verte flottant au vent avec ses longs cheveux blancs. Wang Lin resta calme lorsqu'il arriva face à lui et prit place.
+Au Pic Qing Tian, l'Estimé Taureau Vert était assis, sa robe verte flottant au vent avec ses longs cheveux blancs. Wang Lin resta calme lorsqu'il arriva face à lui et prit place.
 
 Une fois installé, Wang Lin prit la parole lentement: « Le Dao de l’Œil de l'Âme est en effet extraordinaire. Après 178 000 ans de culture, il pourrait peut-être rivaliser avec l'Instructeur Impérial Céleste. J'admire la profondeur de la Secte Da Hun. »
 

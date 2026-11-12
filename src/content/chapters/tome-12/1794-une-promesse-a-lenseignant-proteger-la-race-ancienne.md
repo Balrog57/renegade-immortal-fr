@@ -1,6 +1,6 @@
 ---
 n: 1794
-title: "Une promesse à l'Enseignant: protéger la race ancienne"
+title: "Une promesse au Maître: protéger la race ancienne"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1794 - A Promise to Teacher to Guard the Ancient Race
@@ -38,27 +38,27 @@ Son regard était empreint de bienveillance, contemplant Wang Lin comme s'il reg
 
 Wang Lin resta silencieux, son regard ancré dans celui de Xuan Luo. Il n'oublierait jamais tout ce que cet homme avait fait pour lui.
 
-« À présent, avant que tu ne partes, dis-moi: es-tu prêt à me prendre pour enseignant? » La voix de Xuan Luo était douce et chaleureuse lorsqu'elle atteignit les oreilles de Wang Lin.
+« À présent, avant que tu ne partes, dis-moi: es-tu prêt à me prendre pour maître? » La voix de Xuan Luo était douce et chaleureuse lorsqu'elle atteignit les oreilles de Wang Lin.
 
 La détermination de Xuan Luo à accepter Wang Lin dès maintenant, plutôt que d'attendre qu'il ait atteint le Continent Astral Immortel, fit trembler le cœur du jeune homme.
 
-« Enseignant... » Wang Lin n'avait plus aucune raison de refuser cette immense faveur et cette lourde responsabilité. Il comprit que cela signifiait qu'il était désormais lié au clan Dao Antique par un lien dont il ne pourrait se défaire.
+« Maître... » Wang Lin n'avait plus aucune raison de refuser cette immense faveur et cette lourde responsabilité. Il comprit que cela signifiait qu'il était désormais lié au clan Dao Antique par un lien dont il ne pourrait se défaire.
 
 Cela signifiait qu'il protégerait le clan Dao Antique, dût-il en payer le prix de sa vie! C'était ainsi qu'il rembourserait tout ce que Xuan Luo avait accompli pour lui.
 
 Xuan Luo rit, transporté par la joie. Il regarda Wang Lin et l'aida à se relever. Tout en l'observant avec attention, son rire résonna de nouveau.
 
-« Disciple, ton Enseignant t'attendra sur le Continent Astral Immortel! » Tandis qu'il parlait, Xuan Luo agita la main droite, faisant fondre une partie de la glace le long du chemin du dragon pour créer une brèche. Des éclats de lumière fantomatique jaillirent de l'ouverture; cette lumière faisait partie intégrante de la loi du Continent Astral Immortel.
+« Disciple, ton Maître t'attendra sur le Continent Astral Immortel! » Tandis qu'il parlait, Xuan Luo agita la main droite, faisant fondre une partie de la glace le long du chemin du dragon pour créer une brèche. Des éclats de lumière fantomatique jaillirent de l'ouverture; cette lumière faisait partie intégrante de la loi du Continent Astral Immortel.
 
 « Tu es mon disciple, alors je t'offrirai un présent en célébration! » Xuan Luo frappa son front de sa main droite et mordit le bout de sa langue pour cracher une bouchée de sang. Le sang émit une lueur rouge et se métamorphosa en un dragon sanguin. Ce dernier rugit, enveloppa Wang Lin et l'entraîna vers la brèche dans la glace.
 
-« L'Enseignant est l'un des neuf soleils; une gorgée de mon sang essentiel te protégera sur un bout de chemin. Je vais maintenant lancer le sort pour t'aider à résister à la loi du Continent Astral Immortel! » Wang Lin s'élança vers l'ouverture, porté par le dragon de sang. Sa main droite plongea dans le vide et des rayons de lumière fantomatique en jaillirent.
+« Le Maître est l'un des neuf soleils; une gorgée de mon sang essentiel te protégera sur un bout de chemin. Je vais maintenant lancer le sort pour t'aider à résister à la loi du Continent Astral Immortel! » Wang Lin s'élança vers l'ouverture, porté par le dragon de sang. Sa main droite plongea dans le vide et des rayons de lumière fantomatique en jaillirent.
 
 Ces rayons étaient constitués de toutes les créatures vivantes et des âmes présentes dans l'espace de stockage de Wang Lin. Hormis le fou, presque tout le monde était là!
 
 Xu Liguo, Liu Jinbiao, les bêtes moustiques, et tous les autres; chaque être présent dans l'espace de stockage de Wang Lin apparut. Même le Serpent aux yeux de lune, malgré sa taille démesurée, montrait des signes d'apparition.
 
-« Ces créatures suivent le Disciple depuis longtemps, je demande à l'Enseignant de les envoyer vers le Continent Astral Immortel... » À peine Wang Lin eut-il prononcé ces mots que le groupe de bêtes moustiques, mené par la reine des moustiques, manifesta une folie dévorante dans ses yeux. Elles s'élancèrent désespérément vers la brèche de glace.
+« Ces créatures suivent le Disciple depuis longtemps, je demande au Maître de les envoyer vers le Continent Astral Immortel... » À peine Wang Lin eut-il prononcé ces mots que le groupe de bêtes moustiques, mené par la reine des moustiques, manifesta une folie dévorante dans ses yeux. Elles s'élancèrent désespérément vers la brèche de glace.
 
 Il semblait qu'un désir irrésistible les poussait vers l'extérieur et elles se précipitèrent comme des possédées. Ce changement soudain stupéfia Wang Lin, et même Xuan Luo fut surpris.
 
@@ -86,7 +86,7 @@ Malgré les pertes innombrables, aucune bête moustique ne choisit de battre en 
 
 La reine des moustiques de Wang Lin était la plus imposante et son aspect était saisissant. Son corps mesurait des centaines de milliers de pieds de haut, une taille comparable à celle que Wang Lin avait vue jadis dans la faille du Royaume Céleste du Vent. Une aura terrifiante émanait d'elle.
 
-Un demi-encens de temps s'écoula. L'anxiété de Wang Lin grandissait alors que les moins de cent bêtes restantes s'effondraient à nouveau. Cette fois, il ne put plus se contenir. Il préférait voir la reine échouer dans son évolution plutôt que de la voir mourir!
+Un demi-bâton d'encens s'écoula. L'anxiété de Wang Lin grandissait alors que les moins de cent bêtes restantes s'effondraient à nouveau. Cette fois, il ne put plus se contenir. Il préférait voir la reine échouer dans son évolution plutôt que de la voir mourir!
 
 La reine des moustiques était comme une parente pour Wang Lin; elle l'avait accompagné durant plus de deux mille ans! Alors que les bêtes s'effondraient, Wang Lin bondit hors de la glace et chargea vers elles.
 

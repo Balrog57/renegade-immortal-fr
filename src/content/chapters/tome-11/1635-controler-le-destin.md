@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1635 - Controlling Fate
 slug: controler-le-destin
 ---
-« Quelle vie intéressante, quel ciel fascinant, quelle création prodigieuse! Mais après tout, qu'est-ce que cela change? Puisque moi, Wang Lin, je peux pénétrer dans l’Ancien Royaume Céleste et briser la divine rétribution pour découvrir comment elle fut créée, alors un jour, je serais capable de sortir de cette grotte. Je pourrais entrer dans le Continent Astral Immortel et voir à quel point les grands cultivateurs qui s'y trouvent sont puissants!
+« Quelle vie intéressante, quel ciel fascinant, quelle création prodigieuse! Mais après tout, qu'est-ce que cela change? Puisque moi, Wang Lin, je peux pénétrer dans l’Ancien Royaume Céleste et briser la Tribulation Céleste pour découvrir comment elle fut créée, alors un jour, je serais capable de sortir de cette grotte. Je pourrais entrer dans le Continent Astral Immortel et voir à quel point les grands cultivateurs qui s'y trouvent sont puissants!
 
 « De quels droits se permettent-ils d'élever des êtres sensibles en captivité? De quels droits se croient-ils maîtres d'autres êtres?
 
@@ -22,9 +22,9 @@ Pourtant, aujourd'hui, il avait tout vu clair. Qu'importe s'il connaissait la v�
 
 Même si c'était la vérité, qu'importe? Tant qu'il posséderait en lui un cœur et une volonté indomptables, il continuerait sa route!
 
-Tout en riant, il s'avança vers le second soleil, porté par sa compréhension de la vérité. Ce soleil contenait la divine rétribution du feu. Il lança un coup de poing en se rapprochant.
+Tout en riant, il s'avança vers le second soleil, porté par sa compréhension de la vérité. Ce soleil contenait la Tribulation Céleste du feu. Il lança un coup de poing en se rapprochant.
 
-Des grondements tonitruants résonnèrent et le second soleil s'effondra. La divine rétribution du feu formée par l'homme aux sept couleurs fut révélée.
+Des grondements tonitruants résonnèrent et le second soleil s'effondra. La Tribulation Céleste du feu formée par l'homme aux sept couleurs fut révélée.
 
 Sans marquer de pause, Wang Lin s'avança vers le troisième soleil. Un fracas de tonnerre retentit et une pression se propagea depuis l'intérieur de l'astre. Cette pression était comparable à la puissance des cieux et pouvait supprimer toute forme de vie.
 
@@ -32,25 +32,25 @@ Après avoir brisé trois soleils consécutifs, Wang Lin s'élança en avant, ri
 
 Le quatrième soleil contenait quatre épées et dégageait une énergie d'épée terrifiante. Cependant, Wang Lin ne se souciait absolument pas de cette énergie!
 
-Le cinquième soleil renfermait d'innombrables silhouettes illusoires. Ces figures fusionnaient en une forme floue et insaisissable. C'était la racine de la rétribution de l'illusion et du réel.
+Le cinquième soleil renfermait d'innombrables silhouettes illusoires. Ces figures fusionnaient en une forme floue et insaisissable. C'était la racine de la Tribulation de l'illusion et du réel.
 
 Le sixième soleil contenait les auras de trois trésors. Il s'agissait de la Pagode de Suppression Céleste, de l'Anneau de Scellement du Destin et d'autres trésors qui avaient été utilisés contre Wang Lin précédemment. Maintenant que Wang Lin les avait détruits, leurs auras s'étaient fusionnées.
 
 Le septième soleil contenait la force de l'âme des trois clans anciens. D'innombrables âmes de ces trois clans y étaient scellées. C'était la méthode ultime pour manipuler les messagers des cieux.
 
-En approchant du huitième soleil, Wang Lin ressentit l'aura de la rétribution personnelle. Cette aura changeait si rapidement qu'il était difficile de la distinguer.
+En approchant du huitième soleil, Wang Lin ressentit l'aura de la Tribulation Céleste personnelle. Cette aura changeait si rapidement qu'il était difficile de la distinguer.
 
 Après avoir brisé huit soleils d'affilée, un grondement tonitruant déchira l'Ancien Royaume Céleste. Ce fracas sourd fit trembler la terre, et les statues au sol vibrèrent également.
 
-Cependant, Wang Lin n'en avait cure. Son regard se posa sur le neuvième soleil. Il n'avait jamais vu la divine rétribution qui résidait dans ce neuvième soleil auparavant.
+Cependant, Wang Lin n'en avait cure. Son regard se posa sur le neuvième soleil. Il n'avait jamais vu la Tribulation Céleste qui résidait dans ce neuvième soleil auparavant.
 
 Il percevait vaguement des auras très familières à l'intérieur du neuvième soleil. Ces auras appartenaient à lui, à Li Muwan, à ses parents et aux innombrables personnes qu'il avait rencontrées.
 
 Debout près du neuvième soleil, Wang Lin se calma et ferma les yeux. Il resta là très longtemps; on ignorait combien de temps s'était écoulé avant qu'il ne les rouvre. Une lueur d'illumination brillait dans son regard.
 
-« Ce neuvième soleil, la neuvième divine rétribution, l'origine même de la rétribution divine... Elle contient le destin de tous les êtres sensibles, vivants ou morts, des Royaumes Intérieur et Extérieur. Cette neuvième divine rétribution était le plan directeur. Quiconque naît dans cette grotte est inscrit ici... »
+« Ce neuvième soleil, la neuvième Tribulation Céleste, l'origine même de la Tribulation Céleste... Elle contient le destin de tous les êtres sensibles, vivants ou morts, des Royaumes Intérieur et Extérieur. Cette neuvième Tribulation Céleste était le plan directeur. Quiconque naît dans cette grotte est inscrit ici... »
 
-En contemplant le neuvième soleil, un éclat de froideur passa dans les yeux de Wang Lin. Il voulait détruire cette divine rétribution et, avec son niveau de culture actuel, il en avait la possibilité. Cependant, selon sa compréhension, le monde serait plongé dans le chaos s'il agissait ainsi. Après tout, ce monde n'était pas naturel; il avait été créé par l'homme aux sept couleurs.
+En contemplant le neuvième soleil, un éclat de froideur passa dans les yeux de Wang Lin. Il voulait détruire cette Tribulation Céleste et, avec son niveau de culture actuel, il en avait la possibilité. Cependant, selon sa compréhension, le monde serait plongé dans le chaos s'il agissait ainsi. Après tout, ce monde n'était pas naturel; il avait été créé par l'homme aux sept couleurs.
 
 Tout en méditant, Wang Lin leva la main droite et pressa le neuvième soleil. Son Sens Divin se propagea à travers sa main et s'engouffra dans le neuvième soleil telle une tempête.
 
@@ -70,7 +70,7 @@ Contemplant son propre destin, Wang Lin médita silencieusement. Après un long 
 
 Tandis qu'il tremblait, son être sembla devenir complet, comme si, désormais, il pouvait déterminer sa propre destinée. Aucune force dans ce monde ne pourrait plus changer son sort!
 
-Cette divine rétribution ne le pourrait pas! Pas même cet homme aux sept couleurs!
+Cette Tribulation Céleste ne le pourrait pas! Pas même cet homme aux sept couleurs!
 
 C'était comme s'il était devenu entier, comme s'il avait arraché son destin au ciel pour s'en libérer! À travers les âges, les mortels avaient presque tous rêvé de pouvoir décider de leur propre sort, mais depuis l'Antiquité, presque aucun n'y était parvenu.
 

@@ -50,7 +50,7 @@ Wang Lin esquissa un sourire amer et se frotta inconsciemment le nez. Il ne dit 
 
 Wang Lin accepta la cruche et en prit une gorgée.
 
-« Et aussi, sur la planète Suzaku, pendant notre combat, tu m'as volé mon Fouet de l'Âme... » rit Hongdie.
+« Et aussi, sur la planète Suzaku, pendant notre combat, tu m'as volé mon Fouet Kunji... » rit Hongdie.
 
 « Tout cela appartient au passé désormais, mais tu t'en souviens encore. » Wang Lin sourit amèrement, ne sachant que dire.
 

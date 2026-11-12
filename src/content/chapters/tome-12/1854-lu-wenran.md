@@ -6,23 +6,23 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1854 - Lu Wenran
 slug: lu-wenran
 ---
-Après le départ de Wang Lin du Pic Céleste Vert, l'Illustre Taureau Vert resta assis au sommet de la montagne, contemplant l'horizon. Après un long moment, il murmura des paroles que lui seul pouvait entendre.
+Après le départ de Wang Lin du Pic Qing Tian, Qing Niu resta assis au sommet de la montagne, contemplant l'horizon. Après un long moment, il murmura des paroles que lui seul pouvait entendre.
 
 « L'Empereur Céleste n'est sorti de sa retraite depuis seulement quelques années. Le Continent Lu Mo ne pouvait effectivement plus se contenir... La divination de la première génération est très précise... Cependant, certains détails subtils sont déplacés, et la méthode de l'Ancêtre était trop indulgente. Elle n'est pas adaptée à la situation actuelle... »
 
-« L'objectif du Continent Lu Mo est aussi celui de ma Secte Da Hun... C'est également l'objectif de la Secte Gui Yi... » L'Illustre Taureau Vert sourit soudainement.
+« L'objectif du Continent Lu Mo est aussi celui de ma Secte Da Hun... C'est également l'objectif de la Secte Gui Yi... » Qing Niu sourit soudainement.
 
 « Lu Wenran! »
 
-Alors que ses paroles résonnaient, des ondulations semblables à celles de l'eau apparurent derrière lui et un homme d'âge moyen en sortit. Cet homme portait une robe taoïste verte et paraissait ordinaire, mais il dégageait les fluctuations d'un expert au stade intermédiaire de la Tribulation du Vide. Il s'avança et se tint derrière l'Illustre Taureau Vert, les mains jointes avec respect.
+Alors que ses paroles résonnaient, des ondulations semblables à celles de l'eau apparurent derrière lui et un homme d'âge moyen en sortit. Cet homme portait une robe taoïste verte et paraissait ordinaire, mais il dégageait les fluctuations d'un expert au stade intermédiaire de la Tribulation du Vide. Il s'avança et se tint derrière Qing Niu, les mains jointes avec respect.
 
 « Le disciple Lu Wenran salue le Maître! »
 
-Le Taureau Vert ne se retourna pas. Fixant les nuages au loin, il dit calmement: « L'avez-vous rencontré à la Mer Dan? »
+Qing Niu ne se retourna pas. Fixant les nuages au loin, il dit calmement: « L'avez-vous rencontré à la Mer Dan? »
 
 « Le disciple était aux côtés d'Ouyang Hui de la Secte Gui Yi et de l'Oncle-Maître Meng Zihai pour combattre les émissaires du Continent Lu Mo. Conformément aux ordres du Maître, l'Oncle-Maître Meng nous a emmenés tous deux et, feignant de ne pas être de taille, s'est enfui à bord du Bateau Nuageux laissé par le premier ancêtre; je n'ai donc pas vu cette personne. »
 
-« Dans sept jours, rends-toi avec lui au troisième Méridien du Taureau Céleste! » L'Illustre Taureau Vert ferma les yeux.
+« Dans sept jours, rends-toi avec lui au troisième Méridien Tian Niu! » Qing Niu ferma les yeux.
 
 « Le disciple obéit. » L'expression de l'homme d'âge moyen resta impassible, mais ses yeux brillèrent d'une lueur indéchiffrable. Des ondulations résonnèrent et il disparut.
 
@@ -34,17 +34,17 @@ Cependant, elle n'était pas encore achevée. Son corps était formé, mais il m
 
 Les yeux de Wang Lin s'illuminèrent dans la grotte et sa main droite se tendit vers la voile. Il s'en saisit et quitta la grotte pour la première fois en cinq jours.
 
-Il se souvenait que l'Illustre Taureau Vert lui avait accordé sept jours. Il ne lui restait plus que deux jours; il allait donc au Pic Fantôme pour trouver une âme morte à fusionner avec la voile.
+Il se souvenait que Qing Niu lui avait accordé sept jours. Il ne lui restait plus que deux jours; il allait donc au Pic Gui pour trouver une âme morte à fusionner avec la voile.
 
-Sa silhouette disparut et, lorsqu'il réapparut, il se trouvait devant la montagne ardente. Il regarda vers le nord. Selon la carte de la Secte Da Hun, le Pic Fantôme se trouvait là!
+Sa silhouette disparut et, lorsqu'il réapparut, il se trouvait devant la montagne ardente. Il regarda vers le nord. Selon la carte de la Secte Da Hun, le Pic Gui se trouvait là!
 
-Sans hésiter, Wang Lin s'élança vers le Pic Fantôme.
+Sans hésiter, Wang Lin s'élança vers le Pic Gui.
 
 À l'extrémité nord de la Secte Da Hun se trouvait une terre interdite entourée d'un brouillard infini. Peu de disciples s'y aventuraient. Ils n'y venaient qu'en cas de besoin d'une âme morte, accompagnés de leurs maîtres respectifs.
 
 Seuls les disciples centraux possédant un haut niveau de culture pouvaient s'y rendre seuls.
 
-La Secte Da Hun y avait rassemblé d'immenses quantités d'âmes mortes. Bien que leur qualité fût médiocre, elles étaient faciles à obtenir. Après tout, la Secte Da Hun était célèbre pour ses illusions, et sans le Pic Fantôme, la plupart des disciples ne pourraient achever leurs Voiles Fantômes.
+La Secte Da Hun y avait rassemblé d'immenses quantités d'âmes mortes. Bien que leur qualité fût médiocre, elles étaient faciles à obtenir. Après tout, la Secte Da Hun était célèbre pour ses illusions, et sans le Pic Gui, la plupart des disciples ne pourraient achever leurs Voiles Fantômes.
 
 Au fil des âges, bien que les âmes mortes fussent constamment renouvelées, les stocks restaient limités, car la demande de la Secte Da Hun était immense.
 
@@ -52,17 +52,17 @@ Beaucoup de ces âmes avaient été collectées il y a d'innombrables années pa
 
 La grande majorité d'entre elles étaient directement scellées ici, en attendant qu'un disciple vienne les chercher.
 
-Le soir du cinquième jour, le ciel était brumeux et l'atmosphère oppressante lorsque Wang Lin atteignit les abords du Pic Fantôme. La montagne, drapée de brouillard, était extrêmement lugubre. Des rafales de vent glacial soufflaient, donnant au lieu des airs d'outre-tombe.
+Le soir du cinquième jour, le ciel était brumeux et l'atmosphère oppressante lorsque Wang Lin atteignit les abords du Pic Gui. La montagne, drapée de brouillard, était extrêmement lugubre. Des rafales de vent glacial soufflaient, donnant au lieu des airs d'outre-tombe.
 
 Pourtant, Wang Lin ne ressentit aucun inconfort, comme s'il marchait sur un sol plat. C'était peut-être dû à sa culture, ou au fait qu'il avait déjà transformé son domaine en une rivière des enfers par le passé.
 
-Le cycle de la vie et de la mort, les flux de la rivière des enfers... Wang Lin n'était pas étranger à ces phénomènes. Il ne marqua aucune pause et s'avança vers le Pic Fantôme.
+Le cycle de la vie et de la mort, les flux de la rivière des enfers... Wang Lin n'était pas étranger à ces phénomènes. Il ne marqua aucune pause et s'avança vers le Pic Gui.
 
 Lorsqu'il approcha, une ondulation de restrictions résonna autour de lui, comme pour tester s'il possédait les qualifications requises pour entrer.
 
-Bientôt, la restriction se dissipa et Wang Lin pénétra calmement dans le Pic Fantôme!
+Bientôt, la restriction se dissipa et Wang Lin pénétra calmement dans le Pic Gui!
 
-Le Pic Fantôme était une montagne dénuée de végétation et très haute, comme si elle allait percer le ciel. Il n'y avait aucune herbe, seulement des tombes!
+Le Pic Gui était une montagne dénuée de végétation et très haute, comme si elle allait percer le ciel. Il n'y avait aucune herbe, seulement des tombes!
 
 Ces sépultures étaient si denses qu'elles couvraient la montagne par milliers.
 
@@ -98,7 +98,7 @@ La femme effleura les inscriptions sur la pierre tombale et murmura: « Vous n'�
 
 Wang Lin leva les yeux vers le sommet de la montagne. Il y avait sept ou huit autres tombes dégageant une aura sombre. Elles abritaient un certain nombre d'âmes mortes, dont deux ou trois étaient suffisamment puissantes pour être raffinées en Voiles Fantômes de qualité intermédiaire.
 
-C'étaient les âmes de la meilleure qualité sur le Pic Fantôme.
+C'étaient les âmes de la meilleure qualité sur le Pic Gui.
 
 « Je ne peux pas trouver mon corps, je ne trouve que cette pierre tombale... » Après avoir parlé, la femme recommença à pleurer.
 
@@ -122,7 +122,7 @@ Un son de pleurs s'échappait désormais de la voile blanche et pénétrait le c
 
 Le septième jour, au crépuscule, un jade perça plusieurs couches de protection pour arriver devant Wang Lin, alors qu'il se trouvait dans sa grotte.
 
-« Wang Lin, écoute cet ordre: rends-toi au troisième Méridien du Taureau Céleste et garde-le! » La voix de l'Illustre Taureau Vert résonna dans la grotte tandis que le jade flottait, immobile, devant lui.
+« Wang Lin, écoute cet ordre: rends-toi au troisième Méridien Tian Niu et garde-le! » La voix de Qing Niu résonna dans la grotte tandis que le jade flottait, immobile, devant lui.
 
 Wang Lin ouvrit les yeux, le regard serein. Son Sens Divin scruta le jade et les informations imprégnèrent son esprit.
 

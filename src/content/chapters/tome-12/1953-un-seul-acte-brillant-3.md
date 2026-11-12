@@ -42,37 +42,37 @@ La belle femme resta silencieuse, plongée dans ses pensées, et mordilla sa lè
 
 Également dans le Continent Central, au sein de la cité impériale, se trouvait un palais luxueux. Bien que personne n'y résidât, un rideau d'eau révélait clairement la scène de Wang Lin dans l'Épreuve Empyrée.
 
-Continent de l'Est, la secte numéro un parmi les neuf sectes et treize factions: la Secte Yang Pourpre.
+Continent de l'Est, la secte numéro un parmi les neuf sectes et treize factions: la Secte Zi Yang.
 
-Dans la terre interdite de la Secte Yang Pourpre, au sein d'une chambre de pierre, un homme d'âge moyen observait intensément un immense miroir reflétant l'Épreuve Empyrée. Cependant, une lumière dorée saturait le miroir, rendant la silhouette floue.
+Dans la terre interdite de la Secte Zi Yang, au sein d'une chambre de pierre, un homme d'âge moyen observait intensément un immense miroir reflétant l'Épreuve Empyrée. Cependant, une lumière dorée saturait le miroir, rendant la silhouette floue.
 
 Près de lui se trouvaient deux fillettes, l'une vêtue de rouge et l'autre de violet. Elles semblaient avoir sept ou huit ans. Telles de petites poupées de jade, leurs yeux brillaient d'éclat. Elles étaient adorables. À cet instant, la petite en rouge soutenait son menton de la main tout en bâillant, les yeux fixés sur le miroir, bien qu'en réalité elle ne songeait qu'à aller jouer dehors. Elle lança un regard à la fillette en violet et elles clignèrent des yeux avant de faire la moue en même temps.
 
 Un cultivateur se tenait aux côtés de la petite en violet. Il affichait une mine déconfite, accroupi avec une chaîne autour du cou. On aurait dit que des larmes étaient sur le point de couler de ses yeux; il semblait ainsi en raison d'années de dépression, dans un état pitoyable.
 
-« Oh, Petit Loup, quelle mine fais-tu? Petit Loup, sois sage, ne sois pas désobéissant! » La fillette en violet regarda le cultivateur au visage amer et leva la main pour lui tapoter la tête. À chaque geste, le cultivateur baissait davantage le front, les larmes montant dans ses yeux.
+« Oh, Xiao Lang, quelle mine fais-tu? Xiao Lang, sois sage, ne sois pas désobéissant! » La fillette en violet regarda le cultivateur au visage amer et leva la main pour lui tapoter la tête. À chaque geste, le cultivateur baissait davantage le front, les larmes montant dans ses yeux.
 
 « Deux petits ancêtres, par pitié... Ne pensez pas toujours à jouer... Hélas, regardez cet homme. J'ai fait des recherches sur lui — il vient aussi du Continent de l'Est. Qu'il réussisse ou non le neuvième palais, il doit être recruté », murmura l'homme d'âge moyen avec amertume à l'adresse des deux fillettes.
 
-« Ah, occupe-toi de ça comme bon te semble. Han Han, tu dois donner une leçon à ce Petit Loup désobéissant. Nous devrions le jeter dans la Mare du Neuf Yin, comme la dernière fois qu'il a fait des siennes. Après quelques jours, il est devenu très sage et nous a même trouvé une cloche amusante pour jouer! » La petite en rouge sourit sans prêter la moindre attention à l'homme d'âge moyen et s'approcha du cultivateur au visage amer. Avec la fillette en violet, elle commença à lui tapoter la tête sans aucune pitié.
+« Ah, occupe-toi de ça comme bon te semble. Han Han, tu dois donner une leçon à ce Xiao Lang désobéissant. Nous devrions le jeter dans la Mare Jiu Yin, comme la dernière fois qu'il a fait des siennes. Après quelques jours, il est devenu très sage et nous a même trouvé une cloche amusante pour jouer! » La petite en rouge sourit sans prêter la moindre attention à l'homme d'âge moyen et s'approcha du cultivateur au visage amer. Avec la fillette en violet, elle commença à lui tapoter la tête sans aucune pitié.
 
 L'homme d'âge moyen observa la scène, stupéfait, avec un sourire amer. Il se leva et s'inclina devant les deux fillettes qui jouaient, l'air très sérieux.
 
 « Grand Empyréen Shuangzi! »
 
-Les deux fillettes continuaient de tapoter la tête du cultivateur nommé Petit Loup, dont les larmes finirent par couler.
+Les deux fillettes continuaient de tapoter la tête du cultivateur nommé Xiao Lang, dont les larmes finirent par couler.
 
 « Ah, Wa Wa, est-ce qu'il pleure? »
 
-« Il fait semblant! Ce Petit Loup est désobéissant, il simule! »
+« Il fait semblant! Ce Xiao Lang est désobéissant, il simule! »
 
 L'homme d'âge moyen, au bord de la folie, rugit vers les deux fillettes: « Grand Empyréen Shuangzi!!! » Sa voix tonna comme le tonnerre, faisant trembler le monde. Les deux fillettes se retournèrent enfin pour le regarder.
 
-« Petit Gu Ya, es-tu désobéissant toi aussi? » La petite nommée Wa Wa fronça les sourcils en fixant l'homme.
+« Xiao Gu Ya, es-tu désobéissant toi aussi? » La petite nommée Wa Wa fronça les sourcils en fixant l'homme.
 
 Ignorant la remarque, l'homme prit une profonde inspiration et dit d'un ton solennel: « Grand Empyréen Shuangzi, cet homme doit être recruté! »
 
-« Alors va le recruter. Vas-y, ramène-le et nous le verrons. » La fillette nommée Han Han agita la main, saisit le cultivateur nommé Petit Loup et, avec l'autre enfant, disparut en un éclair de la chambre de pierre.
+« Alors va le recruter. Vas-y, ramène-le et nous le verrons. » La fillette nommée Han Han agita la main, saisit le cultivateur nommé Xiao Lang et, avec l'autre enfant, disparut en un éclair de la chambre de pierre.
 
 L'homme d'âge moyen resta seul. Il se prit la tête entre les mains, tirant ses cheveux, et sourit amèrement.
 

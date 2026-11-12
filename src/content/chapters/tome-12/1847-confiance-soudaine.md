@@ -1,6 +1,6 @@
 ---
 n: 1847
-title: "Confiance soudaine!"
+title: "Coup en retour!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1847 - Sudden Trust!"
@@ -20,7 +20,7 @@ De plus, avec le cultivateur nommé Yun Kong sur ses talons, il ne disposait que
 
 Au moment où Wang Lin chargea, la sixième couche de brouillard sous lui se déchira. L'énergie de l'épée jaillit, et la puissante intention de l'épée semblait capable de tout détruire!
 
-« Cher confrère, reste ici! » La voix de Yun Kong résonna alors que l'ombre de l'épée brisait le sixième étage. Elle se reforma rapidement en une ombre d'épée fendant les cieux et vola vers Wang Lin.
+« Daoïste, reste ici! » La voix de Yun Kong résonna alors que l'ombre de l'épée brisait le sixième étage. Elle se reforma rapidement en une ombre d'épée fendant les cieux et vola vers Wang Lin.
 
 Si Wang Lin était stoppé par cette énergie, il ne pourrait jamais quitter le septième étage. Bien qu'il fût en pleine crise, Wang Lin avait déjà affronté de nombreux ennemis; plus la situation était périlleuse, plus il devenait calme.
 
@@ -64,9 +64,9 @@ Le timing était parfait, et son intention meurtrière se rapprochait. L'express
 
 Tout cela se passa à une vitesse vertigineuse. En un éclair, l'énergie de l'épée atteignit Yi Si et lui trancha le bras droit. La marionnette poussa un cri et recula brusquement. Cependant, le bras sectionné se transforma en cinq brins de gaz noir qui s'engouffrèrent dans le corps de Yun Kong!
 
-Yun Kong laissa échapper un gémissement étouffé tandis que du sang coulait du coin de sa bouche. Ces cinq filaments de gaz noir, chargés d'une intention meurtrière puissante, commencèrent à ravager son intérieur. Ils étaient très difficiles à extirper car ils contenaient également la puissance de la lignée du Dao Antique!
+Yun Kong laissa échapper un gémissement étouffé tandis que du sang coulait du coin de sa bouche. Ces cinq filaments de gaz noir, chargés d'une intention meurtrière puissante, commencèrent à ravager son intérieur. Ils étaient très difficiles à extirper car ils contenaient également la puissance de la lignée de Dao Gu!
 
-« Cher confrère Yun Kong, nul besoin de m'escorter davantage. Nous nous reverrons dans le futur! » La voix de Wang Lin résonna dans les airs. Yun Kong leva les yeux pour voir la marionnette Yi Si, privée de son bras droit, se dissiper en une brume noire avant d'être récupérée par Wang Lin. Puis, Wang Lin emmena Tigre Blanc et sa compagnie au septième étage et disparut sans laisser de trace.
+« Daoïste Yun Kong, nul besoin de m'escorter davantage. Nous nous reverrons dans le futur! » La voix de Wang Lin résonna dans les airs. Yun Kong leva les yeux pour voir la marionnette Yi Si, privée de son bras droit, se dissiper en une brume noire avant d'être récupérée par Wang Lin. Puis, Wang Lin emmena Tigre Blanc et sa compagnie au septième étage et disparut sans laisser de trace.
 
 Ce n'est que lorsque Wang Lin fut loin que Yun Kong esquissa un sourire, mais c'était un sourire d'une noirceur extrême.
 

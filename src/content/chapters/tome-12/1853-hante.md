@@ -6,37 +6,37 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1853 - Haunted
 slug: hante
 ---
-L’Illustre Taureau Vert plissa les yeux et médita en silence. L'illusion multicouche du neuvième étage était le sortilège le plus puissant de la Secte Da Hun. À l'origine, il aurait été acceptable de le transmettre à Wang Lin, mais l'Ancêtre Fondateur avait prédit qu'il faudrait trois cents ans à Wang Lin pour atteindre le neuvième étage.
+Qing Niu plissa les yeux et médita en silence. L'illusion multicouche du neuvième étage était le sortilège le plus puissant de la Secte Da Hun. À l'origine, il aurait été acceptable de le transmettre à Wang Lin, mais l'Ancêtre Fondateur avait prédit qu'il faudrait trois cents ans à Wang Lin pour atteindre le neuvième étage.
 
-Tout en réfléchissant, l’Illustre Taureau Vert dit soudain: « Le Pavillon Cang Hun possède un dixième étage! »
+Tout en réfléchissant, Qing Niu dit soudain: « Le Pavillon Cang Hun possède un dixième étage! »
 
 Wang Lin resta calme, mais ses pupilles se contractèrent légèrement.
 
-« Même moi, je ne peux accéder au dixième étage. Seul l'Ancêtre Fondateur le pouvait. C'est là qu'il s'est éteint en méditation! » Après avoir dit cela, l’Illustre Taureau Vert redevint silencieux.
+« Même moi, je ne peux accéder au dixième étage. Seul l'Ancêtre Fondateur le pouvait. C'est là qu'il s'est éteint en méditation! » Après avoir dit cela, Qing Niu redevint silencieux.
 
-Wang Lin réfléchit également en silence. Il ne parvenait pas à deviner pourquoi l’Illustre Taureau Vert lui révélait cela.
+Wang Lin réfléchit également en silence. Il ne parvenait pas à deviner pourquoi Qing Niu lui révélait cela.
 
-Après un long moment, environ le temps d'un encens, l’Illustre Taureau Vert regarda le ciel au loin et reprit la parole.
+Après un long moment, environ le temps d'un bâton d'encens, Qing Niu regarda le ciel au loin et reprit la parole.
 
 « Ton mérite n'est pas suffisant pour obtenir le sortilège complet de l'illusion multicouche du neuvième étage... »
 
-Wang Lin leva la main droite et un morceau de jade apparut dans sa paume. Il le tendit à l’Illustre Taureau Vert.
+Wang Lin leva la main droite et un morceau de jade apparut dans sa paume. Il le tendit à Qing Niu.
 
 « En ajoutant ceci, est-ce suffisant? »
 
-L’Illustre Taureau Vert fronça les sourcils et fixa Wang Lin. Il prit le jade et y plongea son Sens Divin. Son expression changea instantanément. Il leva les yeux vers Wang Lin avant de se concentrer à nouveau sur le jade.
+Qing Niu fronça les sourcils et fixa Wang Lin. Il prit le jade et y plongea son Sens Divin. Son expression changea instantanément. Il leva les yeux vers Wang Lin avant de se concentrer à nouveau sur le jade.
 
-Après avoir vu tout ce que Wang Lin avait accompli pour trancher la Pilule Céleste, l’Illustre Taureau Vert prit une profonde inspiration. Il regarda Wang Lin avec un éclat mystérieux dans les yeux.
+Après avoir vu tout ce que Wang Lin avait accompli pour trancher la Pilule Céleste, Qing Niu prit une profonde inspiration. Il regarda Wang Lin avec un éclat mystérieux dans les yeux.
 
 Avec son niveau de culture, il pouvait naturellement juger que tout ce qu'il avait vu dans le jade était vrai. Grâce à ses propres divinations sur les bouleversements du ciel et de la terre et aux rapports secrets qu'il avait reçus, il parvint à reconstituer clairement dans son esprit ce qui s'était passé dans la Mer Dan.
 
 Bien que Wang Lin fût guéri à 80 ou 90 %, il restait cette trace de blessure qui ne pouvait cicatriser rapidement. Tout cela confirmait l'authenticité de ce qui était enregistré dans le jade.
 
-« Bien, bien, bien! » L’Illustre Taureau Vert tint le jade et se mit à rire. Il agita la main gauche et une puissante vague d'énergie déferla sur le corps de Wang Lin. Des bruits de craquements résonnèrent et toutes les blessures restantes de Wang Lin furent instantanément guéries!
+« Bien, bien, bien! » Qing Niu tint le jade et se mit à rire. Il agita la main gauche et une puissante vague d'énergie déferla sur le corps de Wang Lin. Des bruits de craquements résonnèrent et toutes les blessures restantes de Wang Lin furent instantanément guéries!
 
-« Cette fois, tu as accompli un immense mérite! Dans ma Secte Da Hun, quiconque accomplit un mérite est récompensé. Je peux te donner le sortilège complet de l'illusion multicouche du neuvième étage! Mais tu dois me promettre une chose! » L’Illustre Taureau Vert regarda Wang Lin. Plus il le scrutait, plus son admiration grandissait. L'Ancêtre Fondateur avait vraiment été visionnaire en choisissant quelqu'un doté d'une telle bravoure et d'une telle audace!
+« Cette fois, tu as accompli un immense mérite! Dans ma Secte Da Hun, quiconque accomplit un mérite est récompensé. Je peux te donner le sortilège complet de l'illusion multicouche du neuvième étage! Mais tu dois me promettre une chose! » Qing Niu regarda Wang Lin. Plus il le scrutait, plus son admiration grandissait. L'Ancêtre Fondateur avait vraiment été visionnaire en choisissant quelqu'un doté d'une telle bravoure et d'une telle audace!
 
-Wang Lin ne ressentit aucune satisfaction face aux paroles de l’Illustre Taureau Vert. Il le regarda calmement et demanda: « Quelle est la condition? »
+Wang Lin ne ressentit aucune satisfaction face aux paroles de Qing Niu. Il le regarda calmement et demanda: « Quelle est la condition? »
 
 « Tuer dix cultivateurs du stade de début de la Tribulation du Vide du Continent Lu Mo, ainsi que trois cultivateurs du stade intermédiaire de la Tribulation du Vide du même continent. Puis, accéder aux neuvième et dixième étages du Pavillon Cang Hun! »
 
@@ -46,21 +46,21 @@ Wang Lin ne ressentit aucune satisfaction face aux paroles de l’Illustre Taure
 
 Après tout, ses objectifs étaient la Secte Dong Lin et la lointaine lignée du Dao Antique; il ne pouvait donc pas rester longtemps sur le Continent Tian Niu. De plus, il avait ses propres spéculations concernant cette guerre et n'était pas disposé à s'y impliquer trop profondément.
 
-L’Illustre Taureau Vert l'avait manifestement compris, mais il ne força pas Wang Lin à rester. Au lieu de cela, il posa trois conditions, ce qui rappela à Wang Lin les trois cadeaux.
+Qing Niu l'avait manifestement compris, mais il ne força pas Wang Lin à rester. Au lieu de cela, il posa trois conditions, ce qui rappela à Wang Lin les trois cadeaux.
 
-Après une longue réflexion, Wang Lin regarda l’Illustre Taureau Vert et hocha la tête avec sérieux.
+Après une longue réflexion, Wang Lin regarda Qing Niu et hocha la tête avec sérieux.
 
 Peu importaient les objectifs de la Secte Da Hun, ils l'avaient effectivement aidé, et Wang Lin rendait toujours les faveurs. Bien que ces conditions fussent difficiles, il était déterminé à les relever.
 
-Voyant Wang Lin acquiescer, l’Illustre Taureau Vert sourit et ne dit plus rien. Il agita sa manche et un jade antique vola vers Wang Lin.
+Voyant Wang Lin acquiescer, Qing Niu sourit et ne dit plus rien. Il agita sa manche et un jade antique vola vers Wang Lin.
 
 Wang Lin attrapa le jade. Il contenait le sortilège extrêmement puissant de la Secte Da Hun: le sort complet de l'illusion multicouche du neuvième étage.
 
-« Pour cultiver ce sort, tu dois affiner la Voile Fantôme. Maintenant que la guerre approche, je vais t'offrir tous les matériaux nécessaires. Cependant, la Voile Fantôme nécessite une âme; si tu n'en as pas de convenable, tu pourras aller en chercher une au Pic Fantôme. » Tandis qu’il parlait, l’Illustre Taureau Vert tendit la main vers le vide et une sphère de lumière apparut. Cette sphère contenait de nombreux matériaux d'affinage, qu'il remit à Wang Lin.
+« Pour cultiver ce sort, tu dois affiner la Voile Fantôme. Maintenant que la guerre approche, je vais t'offrir tous les matériaux nécessaires. Cependant, la Voile Fantôme nécessite une âme; si tu n'en as pas de convenable, tu pourras aller en chercher une au Pic Gui. » Tandis qu’il parlait, Qing Niu tendit la main vers le vide et une sphère de lumière apparut. Cette sphère contenait de nombreux matériaux d'affinage, qu'il remit à Wang Lin.
 
-Wang Lin agita sa manche pour ranger la sphère de lumière. Il se leva, salua l’Illustre Taureau Vert en joignant les mains, puis partit.
+Wang Lin agita sa manche pour ranger la sphère de lumière. Il se leva, salua Qing Niu en joignant les mains, puis partit.
 
-« Tu n'as pas beaucoup de temps. Dans sept jours, je t'enverrai avec d'autres Anciens pour garder l'un des sept méridiens du Taureau Céleste! » Les paroles de l’Illustre Taureau Vert résonnèrent dans son sillage, mais Wang Lin ne se retourna pas en quittant le Pic Céleste Vert.
+« Tu n'as pas beaucoup de temps. Dans sept jours, je t'enverrai avec d'autres Anciens pour garder l'un des sept méridiens Tian Niu! » Les paroles de Qing Niu résonnèrent dans son sillage, mais Wang Lin ne se retourna pas en quittant le Pic Qing Tian.
 
 Wang Lin vola vers sa propre montagne. Le feu à l'intérieur semblait s'être éteint après son départ, mais il restait rouge. Cependant, dès que Wang Lin atterrit, les flammes reprirent et un faible grondement se fit entendre.
 
@@ -68,7 +68,7 @@ Fan Shanmeng, qui avait les yeux clos, les ouvrit brusquement, paniquée. Elle s
 
 À cet instant, Wang Lin n'avait pas le temps de se soucier de Fan Shanmeng. Il entra dans sa grotte et s'assit. Une sphère de lumière sortit de sa manche et, une fois brisée, des matériaux pour affiner la Voile Fantôme apparurent dans la grotte.
 
-Ces matériaux étaient tous différents mais extrêmement précieux. Après tout, l’Illustre Taureau Vert les lui avait offerts; ils étaient donc d'une qualité exceptionnelle.
+Ces matériaux étaient tous différents mais extrêmement précieux. Après tout, Qing Niu les lui avait offerts; ils étaient donc d'une qualité exceptionnelle.
 
 Après avoir examiné ces composants, il sortit le jade antique contenant le sort de l'illusion multicouche. Son Sens Divin s'y plongea et il mémorisa tout son contenu, y compris la méthode pour affiner la Voile Fantôme.
 

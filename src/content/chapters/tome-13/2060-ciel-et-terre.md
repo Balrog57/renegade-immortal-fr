@@ -26,7 +26,7 @@ Même au sein des cités impériales du Dao Antique et de Ji Antique, les regard
 
 Dès que l'encens fut allumé, une fumée verte s'éleva dans les airs et le ciel changea de teinte. Les nuages se dispersèrent sous un grondement sourd provenant des hauteurs. Une immense déchirure s'ouvrit dans la voûte céleste, laissant échapper des rugissements.
 
-Un géant, un dieu antique de plusieurs dizaines de milliers de pieds de haut, apparut; à ses côtés se trouvaient un démon et un diable antiques. Ils portaient un tambour colossal alors qu'ils émergeaient du ciel pour flotter dans les airs.
+Un géant, un dieu antique de plusieurs centaines de milliers de pieds de haut, apparut; à ses côtés se trouvaient un démon et un diable antiques. Ils portaient un tambour colossal alors qu'ils émergeaient du ciel pour flotter dans les airs.
 
 Le corps de Ji Du trembla et il s'élança dans les airs. Lorsqu'il fut à la hauteur du tambour de guerre, il n'hésita pas une seconde et lui asséna un coup de poing.
 

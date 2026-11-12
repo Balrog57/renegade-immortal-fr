@@ -42,23 +42,23 @@ Les grondements de tonnerre résonnèrent dans toutes les directions. L'onde de 
 
 Tandis que les roulements de tonnerre continuaient de faire écho, la gigantesque Porte Kong trembla comme si elle ne pouvait supporter l'assaut, et s'entrouvrit lentement.
 
-À l'instant même où la porte s'entrouvrit, Wang Lin poussa un rugissement. Alors que ce cri résonnait à travers le Vide Brillant, des éclairs surgirent partout dans l'espace. C'était comme si quelque chose les avait appelés, et ils se précipitaient tous vers la planète Suzaku.
+À l'instant même où la porte s'entrouvrit, Wang Lin poussa un rugissement. Alors que ce cri résonnait à travers Kun Xu, des éclairs surgirent partout dans l'espace. C'était comme si quelque chose les avait appelés, et ils se précipitaient tous vers la planète Suzaku.
 
-L'ensemble du Vide Brillant tremblait sans relâche. Les éclairs semblaient être extraits de chaque planète pour converger vers la planète Suzaku. Même des filaments de foudre traversaient l'espace.
+L'ensemble de Kun Xu tremblait sans relâche. Les éclairs semblaient être extraits de chaque planète pour converger vers la planète Suzaku. Même des filaments de foudre traversaient l'espace.
 
-De nombreux cultivateurs du Royaume Extérieur se trouvaient dans le Vide Brillant, souvent en groupes de dizaines, de centaines ou de milliers pour traquer les derniers survivants du Vide Brillant. Tous furent ébranlés par ce grondement sourd. Ils ignoraient ce qui se passait, mais ils sentaient que tout le Vide Brillant était saturé de tonnerre!
+De nombreux cultivateurs du Royaume Extérieur se trouvaient dans Kun Xu, souvent en groupes de dizaines, de centaines ou de milliers pour traquer les derniers survivants de Kun Xu. Tous furent ébranlés par ce grondement sourd. Ils ignoraient ce qui se passait, mais ils sentaient que tout Kun Xu était saturé de tonnerre!
 
 C'était comme si tout le tonnerre du monde avait retrouvé son roi après d'innombrables années de confusion. Le Roi du Tonnerre venait de pousser un rugissement et les appelait!
 
-Tout le tonnerre du Vide Brillant se connecta, semblant former un océan alors que des vagues de foudre déferlaient. Elles passèrent devant les planètes, balayèrent l'espace et rugirent aux côtés des cultivateurs du Royaume Extérieur.
+Tout le tonnerre de Kun Xu se connecta, semblant former un océan alors que des vagues de foudre déferlaient. Elles passèrent devant les planètes, balayèrent l'espace et rugirent aux côtés des cultivateurs du Royaume Extérieur.
 
 « Que se passe-t-il?! »
 « Ceci... Que diable se passe-t-il?! »
 « Comment tant de tonnerre peut-il déferler ainsi? Un trésor du tonnerre serait-il apparu? »
 « Tout ce tonnerre converge vers une seule direction. Que se passe-t-il là-bas? »
-« La planète Suzaku n'est-elle pas dans cette direction? Un changement cataclysmique s'y produit-il?! » Un tumulte éclata parmi les nombreux groupes de cultivateurs du Royaume Extérieur dans le Vide Brillant.
+« La planète Suzaku n'est-elle pas dans cette direction? Un changement cataclysmique s'y produit-il?! » Un tumulte éclata parmi les nombreux groupes de cultivateurs du Royaume Extérieur dans Kun Xu.
 
-Ils étaient confus, totalement dépassés par les événements! Pourtant, le Vide Brillant était saturé d'un tonnerre infini. Certains éclairs frappèrent ceux qui ne purent esquiver assez vite, les foudroyant dans un cri misérable. Ce spectacle changea radicalement l'expression des cultivateurs du Royaume Extérieur.
+Ils étaient confus, totalement dépassés par les événements! Pourtant, Kun Xu était saturé d'un tonnerre infini. Certains éclairs frappèrent ceux qui ne purent esquiver assez vite, les foudroyant dans un cri misérable. Ce spectacle changea radicalement l'expression des cultivateurs du Royaume Extérieur.
 
 Les Sens Divins se déployèrent un à un, tentant de percer le mystère.
 
@@ -74,26 +74,26 @@ Il n'était pas le seul: même Xushen Tianzun fut stupéfait un instant, l'incr�
 
 « Ce n'est pas une essence de tonnerre ordinaire! Ce vieil homme a vu des cultivateurs du tonnerre au troisième niveau, mais aucun de cette trempe. Comment Wang Lin a-t-il pu façonner son essence pour qu'elle soit aussi puissante? » Les yeux de Xushen Tianzun s'illuminèrent.
 
-« Hmph, même si c'était tout le tonnerre du Vide Brillant... » À peine eut-il pensé cela qu'un grondement encore plus violent, surpassant celui du Vide Brillant, retentit. Son Sens Divin se prolongea, et ce qu'il vit le fit chanceler de plusieurs pas.
+« Hmph, même si c'était tout le tonnerre de Kun Xu... » À peine eut-il pensé cela qu'un grondement encore plus violent, surpassant celui de Kun Xu, retentit. Son Sens Divin se prolongea, et ce qu'il vit le fit chanceler de plusieurs pas.
 
 Xushen Tianzun s'exclama: « Impossible! »
 
 Seule une chose pouvait faire perdre son sang-froid à Xushen Tianzun, l'un des Cinq Maîtres du Système Stellaire Antique! En balayant les environs de son Sens Divin, il vit surgir un tonnerre infini en provenance du système stellaire de la Mer Yun.
 
-Xushen Tianzun ne craignait pas que Wang Lin déclenche le tonnerre du Vide Brillant. Cependant, il n'avait pas prévu que le rugissement de Wang Lin déclencherait également la Mer Yun!
+Xushen Tianzun ne craignait pas que Wang Lin déclenche le tonnerre de Kun Xu. Cependant, il n'avait pas prévu que le rugissement de Wang Lin déclencherait également la Mer Yun!
 
-Dans la Mer Yun, la situation était identique à celle du Vide Brillant. Des éclairs quittaient les continents comme s'ils répondaient à un appel ancestral, fonçant vers le Vide Brillant!
+Dans la Mer Yun, la situation était identique à celle de Kun Xu. Des éclairs quittaient les continents comme s'ils répondaient à un appel ancestral, fonçant vers Kun Xu!
 
-Un grondement émanait également des rares nuages de la Mer Yun. D'innombrables éclairs jaillirent et se lièrent entre eux, brisant la barrière qui les séparait du Vide Brillant pour s'y engouffrer.
+Un grondement émanait également des rares nuages de la Mer Yun. D'innombrables éclairs jaillirent et se lièrent entre eux, brisant la barrière qui les séparait de Kun Xu pour s'y engouffrer.
 
-Mais ce n'était pas tout. Après que le rugissement de Wang Lin eut résonné à travers le Vide Brillant et la Mer Yun, il se propagea également dans la Rivière Invoquée. La foudre déchira l'obscurité spatiale. D'innombrables cultivateurs du Royaume Extérieur virent passer des météores de lumière ou des éclairs argentés serpentant à travers le ciel.
+Mais ce n'était pas tout. Après que le rugissement de Wang Lin eut résonné à travers Kun Xu et la Mer Yun, il se propagea également dans la Rivière Zhao. La foudre déchira l'obscurité spatiale. D'innombrables cultivateurs du Royaume Extérieur virent passer des météores de lumière ou des éclairs argentés serpentant à travers le ciel.
 
-Un grondement tonitruant balaya la Rivière Invoquée. Des masses de cultivateurs sortirent des planètes de culture pour contempler ces vagues d'éclairs traversant l'espace. Ils étaient totalement stupéfaits.
+Un grondement tonitruant balaya la Rivière Zhao. Des masses de cultivateurs sortirent des planètes de culture pour contempler ces vagues d'éclairs traversant l'espace. Ils étaient totalement stupéfaits.
 
 « Que... s'est-il passé... »
 
-Alors que le tonnerre et la foudre de la Mer Yun, du Vide Brillant et de la Rivière Invoquée se mettaient en mouvement, le dernier à être affecté fut Luotian! Luotian n'avait pas été capturé et appartenait toujours au Royaume Intérieur. À cet instant, les cultivateurs du Royaume Intérieur observaient tous le tonnerre déferler vers le Vide Brillant de toutes parts.
+Alors que le tonnerre et la foudre de la Mer Yun, de Kun Xu et de la Rivière Zhao se mettaient en mouvement, le dernier à être affecté fut Luotian! Luotian n'avait pas été capturé et appartenait toujours au Royaume Intérieur. À cet instant, les cultivateurs du Royaume Intérieur observaient tous le tonnerre déferler vers Kun Xu de toutes parts.
 
-Alors que l'appel de Wang Lin résonnait à travers tout Luotian, la barrière des systèmes stellaires se brisa. Le tonnerre ancien qui servait de porte au Royaume Céleste du Tonnerre, immobile depuis des éons, jaillit pour la première fois telle une rivière d'argent. Il fonça droit vers le Vide Brillant!
+Alors que l'appel de Wang Lin résonnait à travers tout Luotian, la barrière des systèmes stellaires se brisa. Le tonnerre ancien qui servait de porte au Royaume Céleste du Tonnerre, immobile depuis des éons, jaillit pour la première fois telle une rivière d'argent. Il fonça droit vers Kun Xu!
 
-Le Vide Brillant, Luotian, la Mer Yun et la Rivière Invoquée... le tonnerre des quatre grands systèmes stellaires convergeait vers la planète Suzaku. Vers Wang Lin, vêtu de blanc, les longs cheveux flottant au vent, qui levait la main et poussait un long cri vers les cieux!
+Kun Xu, Luotian, la Mer Yun et la Rivière Zhao... le tonnerre des quatre grands systèmes stellaires convergeait vers la planète Suzaku. Vers Wang Lin, vêtu de blanc, les longs cheveux flottant au vent, qui levait la main et poussait un long cri vers les cieux!

@@ -42,7 +42,7 @@ Dans cette pénombre, la silhouette d'une femme apparut au loin, glissant comme 
 
 Elle observa l'antre avec hésitation. Après avoir longuement réfléchi en silence, elle était sur le point de lui transmettre un message mental quand la voix calme de Wang Lin résonna depuis l'intérieur.
 
-« La camarade cultivatrice Yan Luan vient me rendre visite au plus profond de la nuit. Pourquoi hésiter ainsi dehors? Je vous en prie, entrez. »
+« Daoïste Yan Luan, vous venez me rendre visite au plus profond de la nuit. Pourquoi hésiter ainsi dehors? Je vous en prie, entrez. »
 
 Alors que les paroles de Wang Lin s'évanouissaient, la porte de la grotte s'ouvrit silencieusement, révélant une ouverture. L'entrebâillement était plongé dans un noir absolu, rendant tout intérieur invisible.
 
@@ -64,7 +64,7 @@ Sans qu'elle sache pourquoi, dès qu'elle ressentit cette intention meurtrière,
 
 Elle eut l'impression d'avoir vu Wang Lin terrasser Liu Zhiyuan en un instant.
 
-« Camarade Yan Luan, la nuit est avancée et vous restez là, immobile dans ma grotte, sans dire un mot. Prévoyez-vous de rester ainsi toute la nuit? » lança Wang Lin d'une voix sereine.
+« Daoïste Yan Luan, la nuit est avancée et vous restez là, immobile dans ma grotte, sans dire un mot. Prévoyez-vous de rester ainsi toute la nuit? » lança Wang Lin d'une voix sereine.
 
 Yan Luan réfléchit un instant avant que sa voix ne résonne lentement dans la cavité: « Avez-vous tué le cultivateur de stade initial de la Tribulation du Vide du Continent Lu Mo? »
 
@@ -104,6 +104,6 @@ Bien qu'il doutât que Wang Lin possède une telle capacité, c'était une quest
 
 Durant ces deux jours, Wang Lin avait largement récupéré. Au crépuscule du deuxième jour, un autre invité arriva devant sa grotte après le passage de Yan Luan. Un nouvel invité non désiré!
 
-« Camarade cultivateur Wang Lin de la Secte Da Hun. Je vous demande de cesser votre culture pour patrouiller durant la nuit! » L'homme qui parlait était le vieillard nommé Zhou, exécutant les ordres de Lu Wenran.
+« Daoïste Wang Lin de la Secte Da Hun. Je vous demande de cesser votre culture pour patrouiller durant la nuit! » L'homme qui parlait était le vieillard nommé Zhou, exécutant les ordres de Lu Wenran.
 
 Il se tenait devant la grotte de Wang Lin, l'air calme, s'exprimant d'un ton froid et impérieux, comme si aucune contestation n'était possible.

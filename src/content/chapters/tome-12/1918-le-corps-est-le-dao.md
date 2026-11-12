@@ -12,9 +12,9 @@ Même lors d'une recherche forcée, on ne pouvait obtenir que quelques fragments
 
 Bien que Wang Lin puisse vaincre des Exaltés Dorés, cela était dû à la fusion de son corps de Dao Antique et de sa culture, lui permettant d'atteindre une telle puissance de combat. En réalité, son niveau de culture n'était qu'au début du stade Tribulation du Vide.
 
-Pendant que l'âme originelle du Maître de la Secte Dao Mo était raffinée en une Veine Magique dans le corps de Wang Lin, celui-ci tenta de sonder son âme. Cependant, il ne put trouver aucun souvenir crucial, tel que le secret de la guerre entre le Continent Tian Niu et le Continent Lu Mo. Il ne trouva que quelques pensées concernant l'ancêtre Exalté du Dao Démoniaque.
+Pendant que l'âme originelle du Maître de la Secte Dao Mo était raffinée en une Veine Magique dans le corps de Wang Lin, celui-ci tenta de sonder son âme. Cependant, il ne put trouver aucun souvenir crucial, tel que le secret de la guerre entre le Continent Tian Niu et le Continent Lu Mo. Il ne trouva que quelques pensées concernant l'ancêtre Exalté de la Secte Dao Mo.
 
-« L'ancêtre Exalté du Dao Démoniaque, un Exalté sous les ordres du Grand Empyréen Dao Yi... » Le soleil était haut dans le ciel et inondait la terre de sa lumière. Wang Lin ouvrit les yeux, et son regard s'illumina.
+« L'ancêtre Exalté de la Secte Dao Mo, un Exalté sous les ordres du Grand Empyréen Dao Yi... » Le soleil était haut dans le ciel et inondait la terre de sa lumière. Wang Lin ouvrit les yeux, et son regard s'illumina.
 
 Dans son corps, la quatrième et la cinquième Veine Magique apparurent!
 

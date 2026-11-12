@@ -10,7 +10,7 @@ La voix de Tian Yunzi résonna dans le Royaume Divin Immémorial, en partant de 
 
 Il refusait d'accepter cette issue. Il avait attendu si longtemps, traversé d'innombrables réincarnations jusqu'à ce jour fatidique, mais il ne s'était jamais attendu à ce que tout se termine ainsi.
 
-Wang Lin avait trompé tout le monde. Même Tian Yunzi ignorait que tout n'était pas un rêve de Wang Lin, mais plutôt la Voie de l'avatar de massacre.
+Wang Lin avait trompé tout le monde. Même Tian Yunzi ignorait que tout n'était pas un rêve de Wang Lin, mais plutôt la Voie de Lu Mo.
 
 Le cœur de Tian Yunzi était envahi par un sentiment absurde, une sensation suffisante pour le rendre fou. Il était l'esprit précieux de la Boussole des Limites, et il avait vu Wang Lin revenir ici encore et encore, se dissipant à chaque réincarnation.
 
@@ -34,7 +34,7 @@ Il avait même décidé qu'une fois libre et parvenu à prendre possession du co
 
 Selon lui, après avoir pris le contrôle de Wang Lin, la Boussole des Limites deviendrait son trésor suprême. Il était l'esprit de l'objet, et personne n'en connaissait mieux la puissance que lui.
 
-Outre sa force, son utilité la plus cruciale était de permettre de quitter le Royaume Ni Chen Liang!
+Outre sa force, son utilité la plus cruciale était de permettre de quitter le Royaume Ni Chen!
 
 Quant à l'origine de la Boussole des Limites, il y avait déjà songé, mais tout restait flou, sans aucun souvenir. Il ignorait qui l'avait créée et pourquoi il se trouvait en son sein.
 
@@ -62,7 +62,7 @@ La grue noire vola en éclats.
 
 Le sens divin de Tian Yunzi était en plein chaos, et lorsque la grue se désintégra, Tian Yunzi disparut avec elle. Juste au moment où le dernier fragment de son sens divin allait être anéanti, il sembla se souvenir de quelque chose du passé — des choses qu'il croyait absentes de sa mémoire.
 
-« Royaume Dao du Matin... Mon foyer... » murmura Tian Yunzi alors que son sens divin se dissipait complètement et qu'il mourait définitivement. Son corps de grue se transforma en d'innombrables filaments de brume noire. Parmi eux, un brin de gaz gris était nettement visible. Wang Lin regarda ce gaz gris se précipiter vers le pont relié au ciel et disparaître dans l'illusion située derrière celui-ci.
+« Royaume Dao Chen... Mon foyer... » murmura Tian Yunzi alors que son sens divin se dissipait complètement et qu'il mourait définitivement. Son corps de grue se transforma en d'innombrables filaments de brume noire. Parmi eux, un brin de gaz gris était nettement visible. Wang Lin regarda ce gaz gris se précipiter vers le pont relié au ciel et disparaître dans l'illusion située derrière celui-ci.
 
 Ce gaz gris ne portait aucune trace de l'aura de Tian Yunzi.
 

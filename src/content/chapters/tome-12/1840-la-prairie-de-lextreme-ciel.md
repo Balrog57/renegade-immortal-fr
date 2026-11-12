@@ -76,7 +76,7 @@ Après sept jours, alors que la prairie touchait presque à sa fin, Wang Lin sen
 
 C'est alors qu'une voix lugubre retentit derrière lui:
 
-« Camarade cultivateur démoniaque, tu arrives sur ma Prairie Ji Tian et tu penses pouvoir repartir aussi tranquillement? »
+« Daoïste cultivateur démoniaque, tu arrives sur ma Prairie Ji Tian et tu penses pouvoir repartir aussi tranquillement? »
 
 « Pourquoi perdre ton temps à discuter avec lui? Nous l'avons suivi pour voir s'il n'était qu'un simple voyageur ou s'il avait des alliés ici, dans la Prairie Ji Tian. Maintenant que nous savons qu'il ne fait que passer, laisse ta bête et ce vieil homme t'épargnera! » Une autre voix, empreinte d'une aura dominante, surgit devant Wang Lin. Si celui-ci refusait, les conséquences seraient funestes.
 

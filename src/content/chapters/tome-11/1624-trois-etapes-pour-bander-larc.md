@@ -28,9 +28,9 @@ Xushen Tianzun laissa échapper un cri silencieux tandis qu'un sentiment de mort
 
 Il y avait aussi le jeune homme en robe verte. S'échappant avec précipitation dans la terreur, il déchira une faille spatiale pour s'y engouffrer.
 
-Il y avait également les dizaines de milliers de cultivateurs qui fuyaient à travers le Vide Brillant. Ils étaient partis plus tôt et n'avaient pas été témoins de ce qui se passait près de la planète, mais à cet instant précis, ils ressentirent l'appel de la mort au plus profond de leurs âmes.
+Il y avait également les dizaines de milliers de cultivateurs qui fuyaient à travers Kun Xu. Ils étaient partis plus tôt et n'avaient pas été témoins de ce qui se passait près de la planète, mais à cet instant précis, ils ressentirent l'appel de la mort au plus profond de leurs âmes.
 
-« Avec cette flèche, je reprendrai le Vide Brillant! » Wang Lin garda les yeux fermés. Sa voix était d'un calme absolu. Il tira sur la corde et une flèche illusoire dont la pointe formait un anneau commença à prendre forme. Bientôt, elle devint une véritable flèche.
+« Avec cette flèche, je reprendrai Kun Xu! » Wang Lin garda les yeux fermés. Sa voix était d'un calme absolu. Il tira sur la corde et une flèche illusoire dont la pointe formait un anneau commença à prendre forme. Bientôt, elle devint une véritable flèche.
 
 Dès que la flèche apparut, la main droite de Wang Lin se détendit. Au moment où il lâcha prise, un vrombissement retentit. L'espace lui-même sembla trembler et s'effondrer lorsque la corde frappa la flèche. Toute la force fut transférée et la flèche jaillit!
 
@@ -48,33 +48,33 @@ Il ouvrit son Royaume des Flammes Joss et en extraya toutes ses âmes de Flamme 
 
 C'est à ce moment précis que la flèche arriva. Dès qu'elle toucha la glace, celle-ci se désintégra immédiatement. Au centre, les yeux du jeune homme étaient empreints de désespoir. Il frappa son front et sacrifia sa propre marque de clan pour obtenir assez de puissance afin de tenter de résister!
 
-Cependant, la flèche finit par percer la glace dans un grondement qui résonna à travers tout le Vide Brillant. Elle transperça le jeune homme en robe verte. Son corps trembla et il cracha du sang avant d'exploser. Son âme originelle tenta de s'échapper, mais elle finit par chanceler et s'éteindre.
+Cependant, la flèche finit par percer la glace dans un grondement qui résonna à travers tout Kun Xu. Elle transperça le jeune homme en robe verte. Son corps trembla et il cracha du sang avant d'exploser. Son âme originelle tenta de s'échapper, mais elle finit par chanceler et s'éteindre.
 
 Ce fut le premier cultivateur du Vide Arcanique à périr dans cette guerre!
 
-De nombreux cultivateurs du Royaume Extérieur se trouvaient dans le Vide Brillant, et tous ressentirent la menace de la mort. La flèche suivait une trajectoire rectiligne, mais les ondulations qu'elle générait affectaient l'ensemble du Vide Brillant. Tout cultivateur touché par une onde explosait et mourait sur le coup.
+De nombreux cultivateurs du Royaume Extérieur se trouvaient dans Kun Xu, et tous ressentirent la menace de la mort. La flèche suivait une trajectoire rectiligne, mais les ondulations qu'elle générait affectaient l'ensemble de Kun Xu. Tout cultivateur touché par une onde explosait et mourait sur le coup.
 
-Dans la partie orientale du Vide Brillant, des centaines de cultivateurs du Royaume Extérieur chassaient quelques dizaines de cultivateurs du Royaume Intérieur lorsqu'ils ressentirent cela. Ces derniers étaient livides, tels des lampes à huile s'éteignant peu à peu.
+Dans la partie orientale de Kun Xu, des centaines de cultivateurs du Royaume Extérieur chassaient quelques dizaines de cultivateurs du Royaume Intérieur lorsqu'ils ressentirent cela. Ces derniers étaient livides, tels des lampes à huile s'éteignant peu à peu.
 
 « Combattre jusqu'à la mort! Même si je dois mourir, ce sera dans ma terre natale! » L'homme d'âge moyen qui fuyait afficha un sourire désespéré. Il se retourna soudainement, décidant de déclencher son autodestruction.
 
 Pourtant, à cet instant, une ondulation venue des étoiles les traversa sans leur causer le moindre mal. Mais ils restèrent stupéfaits de voir les centaines de cultivateurs du Royaume Extérieur qui les traquaient pousser des cris misérables et mourir sous l'effet de l'onde.
 
-Dans la partie sud du Vide Brillant, deux cultivateurs du Royaume Extérieur ayant atteint le stade du Fléau Céleste tentaient de réprimer leur pressentiment funeste tout en poursuivant un jeune homme couvert de sang frais.
+Dans la partie sud de Kun Xu, deux cultivateurs du Royaume Extérieur ayant atteint le stade du Fléau Céleste tentaient de réprimer leur pressentiment funeste tout en poursuivant un jeune homme couvert de sang frais.
 
 Soudain, l'onde résonna. Les deux cultivateurs extérieurs, qui souriaient encore, tremblèrent et s'effondrèrent, laissant le jeune homme dans la stupeur.
 
-À l'ouest du Vide Brillant se trouvait une planète de culture. La plupart des sectes y avaient été détruites et étaient désormais occupées par des cultivateurs du Royaume Extérieur. Certains d'entre eux, rendus fous par les massacres, s'en prenaient même aux mortels. Des cris résonnaient dans les cités, mêlés à leurs rires.
+À l'ouest de Kun Xu se trouvait une planète de culture. La plupart des sectes y avaient été détruites et étaient désormais occupées par des cultivateurs du Royaume Extérieur. Certains d'entre eux, rendus fous par les massacres, s'en prenaient même aux mortels. Des cris résonnaient dans les cités, mêlés à leurs rires.
 
 Certains envahisseurs avaient capturé de magnifiques cultivatrices de diverses sectes pour les transformer en fourneaux de culture et les revendre dans le Royaume Extérieur.
 
 Cependant, l'onde balaya la planète de culture. Après son passage, tous les cultivateurs du Royaume Extérieur présents sur la planète tremblèrent et s'effondrèrent en amas de chair et de sang.
 
-Dans la partie nord du Vide Brillant, plusieurs milliers de rayons de lumière, figurant autant de cultivateurs du Royaume Extérieur, se précipitaient vers les bords du Vide Brillant pour prêter main-forte à d'autres systèmes stellaires. Ils furent percutés par l'onde, et pas une seule âme ne survécut.
+Dans la partie nord de Kun Xu, plusieurs milliers de rayons de lumière, figurant autant de cultivateurs du Royaume Extérieur, se précipitaient vers les bords de Kun Xu pour prêter main-forte à d'autres systèmes stellaires. Ils furent percutés par l'onde, et pas une seule âme ne survécut.
 
-Il en fut de même partout dans le Vide Brillant. À mesure que les ondulations se propageaient, un nombre terrifiant de cultivateurs du Royaume Extérieur succombait!
+Il en fut de même partout dans Kun Xu. À mesure que les ondulations se propageaient, un nombre terrifiant de cultivateurs du Royaume Extérieur succombait!
 
-À la frontière entre le Vide Brillant et la Mer Yun, l'avatar de Xushen Tianzun reconstitua son corps. Son expression était sombre et ses yeux brillaient de peur alors qu'il regardait devant lui.
+À la frontière entre Kun Xu et la Mer Yun, l'avatar de Xushen Tianzun reconstitua son corps. Son expression était sombre et ses yeux brillaient de peur alors qu'il regardait devant lui.
 
 « Qui peut le tuer quand il possède cette flèche?! Damnation, sans elle, je ne serais au pire que blessé, et ce n'est pas impossible de l'abattre. C'est juste... c'est juste que... pourquoi doit-il avoir cet arc et cette flèche!?! »
 
@@ -90,7 +90,7 @@ Au moment même où son avatar périait, un cri déchirant retentit dans un doma
 
 Il cracha une bouchée de sang et tituba en reculant de quelques pas. Il regarda vers le Royaume Intérieur, les yeux emplis d'effroi.
 
-Dans le Vide Brillant, aux abords de la planète Suzaku, Wang Lin ouvrit les yeux. L'arc disparut de sa main et la flèche retourna du vide pour se loger à nouveau dans la goutte de sang doré qu'il tenait dans sa main droite.
+Dans Kun Xu, aux abords de la planète Suzaku, Wang Lin ouvrit les yeux. L'arc disparut de sa main et la flèche retourna du vide pour se loger à nouveau dans la goutte de sang doré qu'il tenait dans sa main droite.
 
 Il pressa la goutte de sang contre son front et s'élança vers le vortex formé par l'effondrement de la Porte Kong. Sa troisième étape était presque condensée : il ne lui manquait plus qu'un dernier fil.
 
@@ -106,4 +106,4 @@ Situ Nan éclata de rire en observant Wang Lin au cœur du vortex, les yeux bril
 
 « Gloire au Seigneur du Royaume Scellé! » On ne sut qui parla le premier, mais bientôt, tout le monde suivit. Des milliers de cultivateurs poussèrent des cris d'allégresse. Derrière eux, la statue de Wang Lin sur la planète Suzaku semblait lever les yeux vers le ciel, comme s'il regardait le ciel et la terre tels des fourmis!
 
-Cependant, seul Wang Lin savait que sa rétribution divine, sa rétribution divine de la troisième étape, était sur le point d'arriver!
+Cependant, seul Wang Lin savait que sa Tribulation Céleste, sa Tribulation Céleste de la troisième étape, était sur le point d'arriver!

@@ -10,7 +10,7 @@ Une lueur sanglante jaillit. Wang Lin leva la main droite et l'épée de sang s'
 
 « Cette épée suffit! »
 
-Le regard de Yan Luan parcourut l'épée de sang. Elle savait qu'il s'agissait d'un trésor du clan Dao Antique, digne d'être parié contre son parapluie bleu.
+Le regard de Yan Luan parcourut l'épée de sang. Elle savait qu'il s'agissait d'un trésor du clan Dao Gu, digne d'être parié contre son parapluie bleu.
 
 « Bien! Je ferai un pari avec toi. Je veux voir comment tu seras repoussé par les restrictions du septième étage! » Les pupilles de Yan Luan se rétractèrent soudainement. Elle ne parvenait plus à percer le mystère de Wang Lin.
 
@@ -118,7 +118,7 @@ Le corps véritable d'essence de Wang Lin n'était pas un concept connu de tous 
 
 Toute la Secte Da Hun était en émoi. Même certains des vieux monstres en culture isolée furent tirés de leur méditation.
 
-« Treize marches... » Au Pic du Ciel Vert, l'Estimé Taureau Vert devint sérieux. Cependant, il resta assis sans sortir.
+« Treize marches... » Au Pic Qing Tian, l'Estimé Taureau Vert devint sérieux. Cependant, il resta assis sans sortir.
 
 « Je l'avais sous-estimé... Son corps véritable d'essence est très proche de devenir un véritable Céleste... Corps véritable d'essence, véritable Céleste. Il n'y a qu'un mot de différence, mais l'écart est un gouffre! »
 

@@ -126,7 +126,7 @@ Les feuilles jaunes volaient dans le ciel en cet automne. Elles roulaient lentem
 
 Wang Lin se pencha et lutta pour saisir la feuille avec sa main tachée par l'âge.
 
-« La feuille tombée retourne à ses racines... Wan Er, je dois partir... Accompagne-moi pour un dernier voyage. Conduis-moi jusqu'à Zhao, et avec Grande Fortune, nous irons dans la ville de Su pour accomplir la dernière chose de ce rêve. Ma toute dernière rencontre avec moi-même. »
+« La feuille tombée retourne à ses racines... Wan Er, je dois partir... Accompagne-moi pour un dernier voyage. Conduis-moi jusqu'à Zhao, et avec Da Fu, nous irons dans la ville de Su pour accomplir la dernière chose de ce rêve. Ma toute dernière rencontre avec moi-même. »
 
 « À l'époque, il n'était pas venu. Cette fois, il viendra certainement. »
 
@@ -140,10 +140,10 @@ Durant ces plusieurs dizaines d'années, les Royaumes Intérieur et Extérieur s
 
 La barrière que Qing Lin avait érigée en empruntant une puissance antique s'était effondrée il y a plus de 30 ans. D'innombrables cultivateurs du Royaume Extérieur s'étaient précipités, et la bataille faisait rage sans relâche. Les deux camps subissaient de lourdes pertes et le ciel était saturé de sang. L'odeur de la mort était d'une densité inimaginable et les quatre grands systèmes stellaires étaient devenus un véritable enfer.
 
-Alors que la situation devenait de plus en plus désespérée, les nombreux grands puissants du Royaume Intérieur abandonnèrent la Rivière Invoquée et la Mer Yun. Ils concentrèrent leurs forces à Luotian et dans le Vide Brillant pour leur ultime lutte.
+Alors que la situation devenait de plus en plus désespérée, les nombreux grands puissants du Royaume Intérieur abandonnèrent Zhao He et la Mer Yun. Ils concentrèrent leurs forces à Luotian et dans Kun Xu pour leur ultime lutte.
 
 Alors que l'agonie s'accentuait, la rumeur de la mort du Seigneur du Royaume Scellé s'enracina. Bien que Qing Shui se soit transformé en Wang Lin, il avait été gravement blessé par Xushen Tianzun et avait failli mourir il y a plus de 10 ans.
 
 En conséquence, la nouvelle de la mort du Seigneur du Royaume Scellé ne pouvait plus être contenue. Elle infligea un coup irrémédiable aux cultivateurs du Royaume Intérieur.
 
-Il y a un mois, le Vide Brillant fut confronté à un choix déchirant. Devaient-ils abandonner et se replier vers Luotian pour la bataille finale, ou rester dans la terre natale du Seigneur du Royaume Scellé? Rester aux abords de la planète Suzaku et se battre jusqu'à la mort?!
+Il y a un mois, Kun Xu fut confronté à un choix déchirant. Devaient-ils abandonner et se replier vers Luotian pour la bataille finale, ou rester dans la terre natale du Seigneur du Royaume Scellé? Rester aux abords de la planète Suzaku et se battre jusqu'à la mort?!

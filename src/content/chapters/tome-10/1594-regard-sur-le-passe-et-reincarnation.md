@@ -128,6 +128,6 @@ Les pas de Wang Lin s'arrêtèrent. Il leva les yeux vers le ciel. Un instant pl
 
 « Je... Je manque d'un serviteur. Vous êtes un peu âgé, mais cela ne devrait pas poser de problème... »
 
-À cet instant, Wang Lin ignorait qu'il venait de prononcer des paroles qui résonnaient comme un cycle de réincarnation. Lorsqu'il avait rencontré le fou pour la première fois, il avait eu cette sensation diffuse de l'avoir déjà vu. C'était lors de l'épreuve humaine de l'Oiseau Vermillon dans les Terres Déchues, lorsqu'il avait croisé une autre version de lui-même et ce serviteur à l'allure d'intendant.
+À cet instant, Wang Lin ignorait qu'il venait de prononcer des paroles qui résonnaient comme un cycle de réincarnation. Lorsqu'il avait rencontré le fou pour la première fois, il avait eu cette sensation diffuse de l'avoir déjà vu. C'était lors de l'épreuve humaine de Suzaku dans les Terres Déchues, lorsqu'il avait croisé une autre version de lui-même et ce serviteur à l'allure d'intendant.
 
 Cet homme tenait le pichet de vin d'osmanthe de la ville de Su et s'inquiétait sans cesse du prix du vin.

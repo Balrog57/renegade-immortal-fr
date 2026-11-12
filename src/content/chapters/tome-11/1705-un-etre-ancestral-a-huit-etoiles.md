@@ -8,19 +8,19 @@ slug: un-être-ancestral-a-huit-etoiles
 ---
 Les continents du Royaume Céleste du Vent avaient été pris par Wang Lin, mais le royaume existait toujours. Le passage que Wang Lin avait scellé était également toujours là.
 
-Au moment où cette aura se répandit, la porte au bout du passage trembla violemment. Elle ne put empêcher l'aura de se répandre, et l'aura qui terrorisait le monde des grottes s'infiltra par cette porte dans la Secte Gui Yi du Continent Astral Immortel.
+Au moment où cette aura se répandit, la porte au bout du passage trembla violemment. Elle ne put empêcher l'aura de se répandre, et l'aura qui terrorisait le monde des grottes s'infiltra par cette porte dans la Secte Gui Yi du Continent Xian Gang.
 
 Dès que l'aura apparut, les expressions de tous les cultivateurs de la secte changèrent radicalement. Ceux possédant un haut niveau de culture furent saisis de choc et d'incrédulité!
 
 « L'un des neuf soleils, l'aura d'un Grand Empyréen... Ceci... Quel Grand Empyréen est apparu là-bas? »
 
-Sur le Continent Astral Immortel, Fan Shanmeng, qui était assise à l'intérieur de la montagne de glace, pâlit instantanément. La montagne de glace s'effondra soudainement et elle en sortit en bondissant, le visage pétrifié par l'horreur.
+Sur le Continent Xian Gang, Fan Shanmeng, qui était assise à l'intérieur de la montagne de glace, pâlit instantanément. La montagne de glace s'effondra soudainement et elle en sortit en bondissant, le visage pétrifié par l'horreur.
 
 « C'est... C'est l'aura d'un Grand Empyréen!! »
 
-Sur le Continent Astral Immortel, parmi les neuf sectes et treize factions de l'Est, la première était la Secte Zi Yang! La puissance de cette seule secte suffisait à balayer les huit autres sectes.
+Sur le Continent Xian Gang, parmi les neuf sectes et treize factions de l'Est, la première était la Secte Zi Yang! La puissance de cette seule secte suffisait à balayer les huit autres sectes.
 
-C'était parce que l'un des légendaires Grands Empyréens était un membre de la Secte Zi Yang. L'un des neuf soleils du Continent Astral Immortel!
+C'était parce que l'un des légendaires Grands Empyréens était un membre de la Secte Zi Yang. L'un des neuf soleils du Continent Xian Gang!
 
 Cependant, ce Grand Empyréen était très mystérieux, et peu de gens savaient à quoi il ressemblait. On ignorait même si ce Grand Empyréen était un homme ou une femme. Pourtant, plus ce Grand Empyréen était mystérieux, moins les gens osaient provoquer la Secte Zi Yang.
 
@@ -42,7 +42,7 @@ Le soleil dans la main de Tan Lang s'étendit rapidement jusqu'à atteindre la t
 
 Il y avait aussi le Daoïste aux Sept Couleurs, qui fut stupéfait un instant. Bien qu'il n'ait pas hérité de la totalité des souvenirs, certains étaient gravés dans son âme. Même divisé en trois âmes, ils ne pouvaient être effacés.
 
-Ce souvenir était la peur et le respect envers les neuf soleils du Continent Astral Immortel.
+Ce souvenir était la peur et le respect envers les neuf soleils du Continent Xian Gang.
 
 « C'est... l'aura d'un Grand Empyréen... » L'expression du Daoïste aux Sept Couleurs changea. Tandis que la lumière solaire se rapprochait, son corps trembla et il cracha du sang. Il recula comme un fou. Il ne songeait plus à affiner Wang Lin, terrifié par l'aura émanant du soleil!
 
@@ -84,7 +84,7 @@ Même à présent, Wang Lin restait perplexe. Il resta assis sur l'autel, songea
 
 L'espace était plongé dans un silence absolu et toute lumière s'était éteinte. Wang Lin resta assis en silence sur l'autel, remémorant chaque événement.
 
-« Ces deux enfants sont en réalité des Grands Empyréens... Les légendaires Grands Empyréens du Continent Astral Immortel. Leur seule aura a suffi à faire fuir le Daoïste aux Sept Couleurs de terreur... » Les yeux de Wang Lin brillaient de plus en plus intensément.
+« Ces deux enfants sont en réalité des Grands Empyréens... Les légendaires Grands Empyréens du Continent Xian Gang. Leur seule aura a suffi à faire fuir le Daoïste aux Sept Couleurs de terreur... » Les yeux de Wang Lin brillaient de plus en plus intensément.
 
 « Un jour, je deviendrai moi aussi un Grand Empyréen!! » Wang Lin ferma les yeux, puis les rouvrit un instant plus tard, le cœur apaisé.
 

@@ -1,6 +1,6 @@
 ---
 n: 1628
-title: Rétribution de la Réalité Fantastique
+title: Tribulation de la Réalité Fantastique
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1628 - Fantasy Reality Retribution
@@ -42,11 +42,11 @@ Dès que le Sceau fut achevé, un grondement tonitruant secoua la silhouette vag
 
 Le messager des cieux qui avait tant fait souffrir Wang Lin était désormais si faible qu'il ne pouvait même pas résister à un seul coup.
 
-« Rétribution divine... De quel droit prétendez-vous m'infliger une rétribution divine? » Les paroles de Wang Lin étaient calmes, mais elles se propagèrent à travers la brume jusqu'aux oreilles du Maître Nan Yunzi, de Situ Nan et des milliers de cultivateurs à l'extérieur.
+« Tribulation Céleste... De quel droit prétendez-vous m'infliger une Tribulation Céleste? » Les paroles de Wang Lin étaient calmes, mais elles se propagèrent à travers la brume jusqu'aux oreilles du Maître Nan Yunzi, de Situ Nan et des milliers de cultivateurs à l'extérieur.
 
 Cette unique phrase suffit à faire bouillir le sang des cultivateurs du Royaume Intérieur. Elle était d'une arrogance extrême, mais personne n'osa la remettre en question!
 
-Wang Lin avait enduré plus de mille ans pour prononcer ces mots. Depuis la première rétribution divine qui s'abattit sur lui lorsqu'il atteignit l'Ascendant dans la Terre Yao Ling, il avait persévéré jusqu'à ce jour. Désormais, il avait la légitimité pour pointer le ciel et lui demander quel droit il avait de le punir!
+Wang Lin avait enduré plus de mille ans pour prononcer ces mots. Depuis la première Tribulation Céleste qui s'abattit sur lui lorsqu'il atteignit l'Ascendant dans la Terre Yao Ling, il avait persévéré jusqu'à ce jour. Désormais, il avait la légitimité pour pointer le ciel et lui demander quel droit il avait de le punir!
 
 Demander aux cieux quel droit ils avaient d'emporter Li Muwan!
 Demander aux cieux qui leur avait donné le pouvoir de punir les êtres!
@@ -70,7 +70,7 @@ Il vit Liu Mei, tenant un nourrisson entouré d'un gaz noir. Les cris du bébé 
 
 Il voyait tout, il voyait énormément.
 
-Cette scène était d'un réalisme absolu; forgée par la rétribution divine, il était presque impossible de distinguer le vrai du faux, car les apparences naissent du cœur. Elle créait l'illusion qu'un instant suffisait pour basculer de l'un à l'autre. Si vous croyiez que tout était faux et que vous détruisiez tout, vous pourriez découvrir que tout était réel: vous auriez alors anéanti les dernières âmes de vos êtres chers en ce monde!
+Cette scène était d'un réalisme absolu; forgée par la Tribulation Céleste, il était presque impossible de distinguer le vrai du faux, car les apparences naissent du cœur. Elle créait l'illusion qu'un instant suffisait pour basculer de l'un à l'autre. Si vous croyiez que tout était faux et que vous détruisiez tout, vous pourriez découvrir que tout était réel: vous auriez alors anéanti les dernières âmes de vos êtres chers en ce monde!
 
 Tandis qu'il réfléchissait, d'autres silhouettes l'encerclèrent. Wang Lin laissa échapper un soupir, observa profondément ces apparitions et ferma les yeux.
 
@@ -92,7 +92,7 @@ Et bien d'autres encore...
 
 On y trouvait aussi les innombrables âmes des 7 Millions de Mondes issues du Clan Shan Lei. Les cultivateurs tombés et le Daoïste Esprit Dispersé lui-même, poussant un rugissement de folie pure face à ce qu'il croyait être le ciel.
 
-Ces silhouettes surgies du Dao du Vrai et du Faux formaient une forme unique de rétribution divine. La rétribution des cieux ayant utilisé l'illusion contre Wang Lin, celui-ci lui répondit par la même arme, utilisant son propre Dao pour ériger cette réponse divine.
+Ces silhouettes surgies du Dao du Vrai et du Faux formaient une forme unique de Tribulation Céleste. La Tribulation des cieux ayant utilisé l'illusion contre Wang Lin, celui-ci lui répondit par la même arme, utilisant son propre Dao pour ériger cette réponse divine.
 
 Alors que les rugissements résonnaient vers les hauteurs, une force invisible se précipita dans la faille. Cependant, celle-ci ne manifesta aucune réaction et le grondement intérieur ne fut point interrompu.
 
@@ -100,9 +100,9 @@ Alors que les rugissements résonnaient vers les hauteurs, une force invisible s
 
 Depuis des temps immémoriaux, quiconque avait vécu dans le Royaume Kun Xu, mortel ou cultivateur, avait poussé un rugissement de ressentiment en levant les yeux vers le ciel. Peut-être personne ne les avait vus, peut-être étaient-ils morts depuis longtemps, mais les planètes sur lesquelles ils avaient foulé le sol s'en souvenaient toutes.
 
-À cet instant, le Sens Divin de Wang Lin capta cette résonance et, fusionnant avec son Dao du Vrai et du Faux, se mua en une rétribution divine ciblant le Ciel lui-même.
+À cet instant, le Sens Divin de Wang Lin capta cette résonance et, fusionnant avec son Dao du Vrai et du Faux, se mua en une Tribulation Céleste ciblant le Ciel lui-même.
 
-La faille qui incarnait la rétribution divine trembla pour la première fois, et le rugissement provenant de l'intérieur s'arrêta brusquement.
+La faille qui incarnait la Tribulation Céleste trembla pour la première fois, et le rugissement provenant de l'intérieur s'arrêta brusquement.
 
 Au même moment, de l'autre côté des nuages, les yeux du Vieux Fantôme Zhan brillèrent comme jamais auparavant, animés par une cupidité effrénée.
 

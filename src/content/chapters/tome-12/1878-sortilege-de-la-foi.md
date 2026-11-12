@@ -66,7 +66,7 @@ Les sorts de la foi surpassaient les sorts Dao et leur puissance était indescri
 
 La volonté et la foi étaient deux concepts radicalement différents, aussi distincts que le ciel et la terre. Ce n'est qu'une fois la volonté devenue assez puissante qu'elle se transformait en foi! Une foi inébranlable qui ne regarderait jamais en arrière!
 
-Cette foi n'était pas composée de flammes de Joss, mais d'une conviction profonde en soi. Une certitude absolue en ses actes et la volonté de persévérer envers et contre tout.
+Cette foi n'était pas composée d'offrandes d'encens, mais d'une conviction profonde en soi. Une certitude absolue en ses actes et la volonté de persévérer envers et contre tout.
 
 Domaine, essence, foi!
 

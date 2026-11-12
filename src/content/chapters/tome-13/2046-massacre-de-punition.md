@@ -90,7 +90,7 @@ Au même moment, les véritables corps d'essence du commencement absolu et de la
 
 « Je m'appelle Massacre!!! » Les grognements du Wang Lin aux cheveux noirs devinrent un rugissement puissant. Quatre ombres superposées apparurent, comme s'il cherchait à expulser ses propres corps véritables.
 
-« Personne ne peut me contrôler, je suis Massacre! » Alors qu'il rugissait, les ombres superposées furent repoussées de quelques centimètres hors de son corps. La scène était d'un grand mystère!
+« Personne ne peut me contrôler, je suis Massacre! » Alors qu'il rugissait, les ombres superposées furent repoussées de quelques pouces hors de son corps. La scène était d'un grand mystère!
 
 Un second ricanement glacial retentit. Le Wang Lin aux cheveux noirs frissonna et, simultanément, le véritable corps des cinq éléments apparut dans le ciel. Celui-ci rétrécit et se mua en une immense paume d'énergie des cinq éléments qui s'abattit sur lui.
 

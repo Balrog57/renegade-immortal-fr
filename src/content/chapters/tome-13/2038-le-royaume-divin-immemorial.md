@@ -74,7 +74,7 @@ C'était là sa limite: il ne pouvait y faire entrer tout son être, mais son pi
 
 Dans l'espace de la formation, le gaz noir s'agglutina sur les bords pour donner forme à un Wang Lin aux cheveux noirs. Ses yeux étaient froids et indifférents, dépourvus de toute émotion. C'était le véritable corps d'essence de la Foudre de Massacre de Wang Lin. Son nom était...
 
-« Massacre! » C'est l'Ancien Maître Impérial Dao qui prononça ce nom!
+« Lu Mo! » C'est l'Ancien Maître Impérial Dao qui prononça ce nom!
 
 Alors que le vieil homme fixait ce corps aux cheveux noirs, une lueur de peur traversa son regard.
 

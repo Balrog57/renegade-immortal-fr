@@ -6,31 +6,31 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1629 - Unable to Withstand a Single Blow
 slug: incapable-dencaisser-un-seul-coup
 ---
-Wang Lin utilisait son Dao du Vrai et du Faux pour créer une illusion de rétribution divine. Les innombrables silhouettes au sein de la brume laissaient échapper des rugissements de lutte, toutes dirigées vers la faille surplombant Wang Lin.
+Wang Lin utilisait son Dao du Vrai et du Faux pour créer une illusion de Tribulation Céleste. Les innombrables silhouettes au sein de la brume laissaient échapper des rugissements de lutte, toutes dirigées vers la faille surplombant Wang Lin.
 
-Un grondement de tonnerre résonna à travers tout le Vide Brillant. La faille, frappée par la rétribution divine de Wang Lin, trembla violemment. Les cheveux blancs de Wang Lin flottaient alors qu'il fixait froidement la brèche et, d'un ample revers de manche, s'avançait calmement vers elle.
+Un grondement de tonnerre résonna à travers tout le Vide Brillant. La faille, frappée par la Tribulation Céleste de Wang Lin, trembla violemment. Les cheveux blancs de Wang Lin flottaient alors qu'il fixait froidement la brèche et, d'un ample revers de manche, s'avançait calmement vers elle.
 
 Son pas n'était pas rapide, mais chaque enjambée provoquait un fracas tonitruant qui intensifiait les grondements provenant de la faille.
 
 Le tremblement de la faille et le calme imperturbable de Wang Lin créaient un contraste saisissant.
 
-Wang Lin ne craignait pas la rétribution divine. Il possédait le cœur d'un grand érudit et une aura puissante. Dans ce monde, tout était égal, et même la rétribution divine ne faisait pas exception.
+Wang Lin ne craignait pas la Tribulation Céleste. Il possédait le cœur d'un grand érudit et une aura puissante. Dans ce monde, tout était égal, et même la Tribulation Céleste ne faisait pas exception.
 
-« Tout a une origine. Aujourd'hui, je veux voir pourquoi la rétribution divine existe, comment elle est apparue et d'où elle vient! » Les yeux de Wang Lin s'illuminèrent tandis qu'il se rapprochait inexorablement de la faille.
+« Tout a une origine. Aujourd'hui, je veux voir pourquoi la Tribulation Céleste existe, comment elle est apparue et d'où elle vient! » Les yeux de Wang Lin s'illuminèrent tandis qu'il se rapprochait inexorablement de la faille.
 
 Lorsqu'il fut à moins de 100 000 pieds de la brèche, une lumière aveuglante en jaillit, se répandit alentour et illumina entièrement le brouillard obscur de cet espace étoilé.
 
-Tandis que l'éclat resplendissait, un objet flotta lentement hors de la faille. C'était un pinceau à queue de cheval d'apparence très ordinaire, ne mesurant que sept pieds de long. Il possédait un manche en bois violet et des poils blancs pour le pinceau. Les 3 000 poils symbolisaient les 3 000 Grands Daos.
+Tandis que l'éclat resplendissait, un objet flotta lentement hors de la faille. C'était un chasse-mouches d'apparence très ordinaire, ne mesurant que sept pieds de long. Il possédait un manche en bois violet et des poils blancs pour le chasse-mouches. Les 3 000 poils symbolisaient les 3 000 Grands Daos.
 
-Cet objet s'échappa lentement de la faille et l'agita doucement vers Wang Lin. Les 3 000 poils bougèrent sans qu'aucun vent ne soit présent, puis se dispersèrent. Une ondulation invisible se propagea à partir du pinceau.
+Cet objet s'échappa lentement de la faille et l'agita doucement vers Wang Lin. Les 3 000 poils bougèrent sans qu'aucun vent ne soit présent, puis se dispersèrent. Une ondulation invisible se propagea à partir du chasse-mouches.
 
-À l'écho de cette onde, les pas de Wang Lin marquèrent un léger temps d'arrêt et ses yeux brillèrent intensément. Puis, il reprit sa marche sans la moindre hésitation, fonçant comme une météore vers le pinceau qui venait de sortir de la faille.
+À l'écho de cette onde, les pas de Wang Lin marquèrent un léger temps d'arrêt et ses yeux brillèrent intensément. Puis, il reprit sa marche sans la moindre hésitation, fonçant comme une météore vers le chasse-mouches qui venait de sortir de la faille.
 
-L'ondulation se propagea et pénétra les nuages. Alors que Wang Lin convergeait vers lui, l'un des 3 000 poils se détacha du pinceau et flotta comme de la fumée. Le poil blanc se transforma silencieusement en un sortilège.
+L'ondulation se propagea et pénétra les nuages. Alors que Wang Lin convergeait vers lui, l'un des 3 000 poils se détacha du chasse-mouches et flotta comme de la fumée. Le poil blanc se transforma silencieusement en un sortilège.
 
 Sort d'attraction!
 
-Simultanément, un deuxième poil blanc se sépara du pinceau pour devenir un second sort: le sort de Boule de Feu.
+Simultanément, un deuxième poil blanc se sépara du chasse-mouches pour devenir un second sort: le sort de Boule de Feu.
 
 Le troisième suivit rapidement, se muant en une aura de massacre. Il devint l'aura meurtrière d'une épée de carnage.
 
@@ -42,13 +42,13 @@ Après ces centaines de poils, les restants des 3 000 suivirent, se transformant
 
 Tout cela se produisit en un instant. Les 3 000 poils s'étaient transformés en 3 000 sorts différents que Wang Lin avait croisés au cours de sa vie.
 
-Il y avait aussi les sorts de Qing Lin, du Shui Daozi et du Maître Lu Fu. On y trouvait même les sorts des Cinq Maîtres du Système Stellaire Antique, les Oiseaux Vermillon de la première et de la deuxième génération, et bien d'autres encore!
+Il y avait aussi les sorts de Qing Lin, du Shui Daozi et du Maître Lu Fu. On y trouvait même les sorts des Cinq Maîtres du Système Stellaire Antique, les Suzaku de la première et de la deuxième génération, et bien d'autres encore!
 
 3 000 poils, 3 000 Grands Daos, 3 000 sorts! La majorité des sortilèges gravés dans la mémoire de Wang Lin apparaissaient devant lui.
 
-Ces 3 000 sorts fusionnèrent parfaitement. D'un seul balayage du pinceau, les sortilèges encerclèrent l'espace autour de Wang Lin pour se refermer sur lui.
+Ces 3 000 sorts fusionnèrent parfaitement. D'un seul balayage du chasse-mouches, les sortilèges encerclèrent l'espace autour de Wang Lin pour se refermer sur lui.
 
-Peut-être que quelques-uns, ou même une centaine, n'auraient posé aucun problème, et même les 3 000 n'auraient été rien pour Wang Lin. Cependant, ces 3 000 sorts étaient formés par les poils de ce pinceau qui dégageait une aura familière. Cette aura était de l'énergie céleste!
+Peut-être que quelques-uns, ou même une centaine, n'auraient posé aucun problème, et même les 3 000 n'auraient été rien pour Wang Lin. Cependant, ces 3 000 sorts étaient formés par les poils de ce chasse-mouches qui dégageait une aura familière. Cette aura était de l'énergie céleste!
 
 Par conséquent, sa puissance était suffisante pour ébranler le monde.
 
@@ -56,7 +56,7 @@ Cette énergie céleste n'était pas l'aura de jade céleste contenue dans les q
 
 À cet instant, il la sentit immédiatement, ce qui fit se rétracter ses pupilles. Il fixa les 3 000 sorts qui convergeaient vers lui, et une intention meurtrière embrasa son regard.
 
-« J'avais déjà soupçonné que la rétribution divine provenait du Royaume Céleste Antique. Maintenant que je ressens cette pure énergie céleste, il est clair que l'ancien royaume céleste possède un lien profond avec le Continent Astral Immortel! »
+« J'avais déjà soupçonné que la Tribulation Céleste provenait du Royaume Céleste Antique. Maintenant que je ressens cette pure énergie céleste, il est clair que l'ancien royaume céleste possède un lien profond avec le Continent Astral Immortel! »
 
 Des éclats de lumière dorée et douce jaillirent des 3 000 sorts alors qu'ils convergeaient vers Wang Lin pour s'abattre sur lui.
 
@@ -64,13 +64,13 @@ Un grondement de tonnerre retentit, faisant trembler les cieux. La silhouette de
 
 Au même moment, un autre objet sortit de la faille: une pagode à neuf étages. La pagode était d'or et dégageait une pression infinie. Elle prit de l'ampleur dès sa sortie. En un clin d'œil, elle mesurait des centaines de milliers de pieds de haut. Rayonnante d'une lumière dorée, elle fonça vers Wang Lin.
 
-Les 3 000 poils du pinceau étaient la rétribution divine!
+Les 3 000 poils du chasse-mouches étaient la Tribulation Céleste!
 
-La suppression par la pagode était une autre forme de rétribution divine!
+La suppression par la pagode était une autre forme de Tribulation Céleste!
 
-La troisième étape de la rétribution divine visant Wang Lin était extrêmement puissante! Si la culture de Wang Lin n'avait été qu'au stade initial du Vide du Nirvana, il serait sans aucun doute mort ici!
+La troisième étape de la Tribulation Céleste visant Wang Lin était extrêmement puissante! Si la culture de Wang Lin n'avait été qu'au stade initial du Vide du Nirvana, il serait sans aucun doute mort ici!
 
-Même au sommet du Vide du Nirvana, il aurait péri face à cette rétribution divine!
+Même au sommet du Vide du Nirvana, il aurait péri face à cette Tribulation Céleste!
 
 Et même avec sa culture de milieu de stade Vide Spirituel, s'il l'avait atteinte normalement avec une seule essence, il n'aurait eu aucune chance de survie contre un tel assaut!
 
@@ -88,27 +88,27 @@ Il savait qu'il n'était pas de taille face à Maître Nan Yunzi, mais à cet in
 
 Maître Nan Yunzi ne prêta aucune attention aux paroles de Situ Nan. Il réfléchit un instant, puis parla d'un ton grave:
 
-« Le Seigneur du Royaume Scellé subit une rétribution divine, nous ne devons pas interférer... Si vous forcez le passage, non seulement vous ne l'aiderez pas, mais vous le distrairez également. »
+« Le Seigneur du Royaume Scellé subit une Tribulation Céleste, nous ne devons pas interférer... Si vous forcez le passage, non seulement vous ne l'aiderez pas, mais vous le distrairez également. »
 
 Le regard de Situ Nan se posa sur les nuages et il serra les poings. Après un court instant de réflexion, sa voix rauque résonna:
 
-« J'attendrai la durée d'un demi-encens. Si après cela, le silence persiste, je devrai y aller! »
+« J'attendrai la durée d'un demi-bâton d'encens. Si après cela, le silence persiste, je devrai y aller! »
 
 Maître Nan Yunzi ne répondit rien. Il contemplait les nuages, l'anxiété grandissant en lui.
 
 De l'autre côté, le Vieux Fantôme Zhan était de plus en plus exalté. Ses yeux brillaient tandis qu'il se léchait les lèvres en murmurant:
 
-« Le Pinceau Trois-Neuf, la Pagode de Suppression Céleste... Il devrait y avoir un autre trésor nommé l'Anneau de Scellement du Destin... Lorsqu'il a mis en place la rétribution divine dans la grotte, il avait placé ces trois trésors à l'intérieur... » Les paroles du Vieux Fantôme Zhan devinrent inintelligibles et son regard vers les nuages prit une tournure encore plus étrange.
+« Le Chasse-mouches Trois-Neuf, la Pagode de Suppression Céleste... Il devrait y avoir un autre trésor nommé l'Anneau de Scellement du Destin... Lorsqu'il a mis en place la Tribulation Céleste dans la grotte, il avait placé ces trois trésors à l'intérieur... » Les paroles du Vieux Fantôme Zhan devinrent inintelligibles et son regard vers les nuages prit une tournure encore plus étrange.
 
-Le temps s'écoulait lentement. La durée d'un demi-encens semblait durer des années pour Situ Nan. Les milliers de cultivateurs du Royaume Intérieur étaient nerveux, le cœur lourd de mauvais présages.
+Le temps s'écoulait lentement. La durée d'un demi-bâton d'encens semblait durer des années pour Situ Nan. Les milliers de cultivateurs du Royaume Intérieur étaient nerveux, le cœur lourd de mauvais présages.
 
-« Le Seigneur du Royaume Scellé pourra-t-il survivre à sa rétribution divine...? »
+« Le Seigneur du Royaume Scellé pourra-t-il survivre à sa Tribulation Céleste...? »
 
 « Impossible, le Seigneur du Royaume Scellé ne peut pas échouer... »
 
 « Cela fait si longtemps qu'il n'y a aucun bruit, que se passe-t-il là-dedans...? »
 
-La panique commença à gagner les milliers de cultivateurs, accentuant leur angoisse. Situ Nan avait de plus en plus de mal à se contenir. Juste au moment où le délai du demi-encens touchait à sa fin et que Situ Nan s'apprêtait à charger dans les nuages, un grondement assourdissant fit trembler les cieux!
+La panique commença à gagner les milliers de cultivateurs, accentuant leur angoisse. Situ Nan avait de plus en plus de mal à se contenir. Juste au moment où le délai du demi-bâton d'encens touchait à sa fin et que Situ Nan s'apprêtait à charger dans les nuages, un grondement assourdissant fit trembler les cieux!
 
 Au plus profond des nuages, la pagode trembla soudainement. Le fracas provenait de l'intérieur même de la structure.
 
@@ -116,9 +116,9 @@ Le chaos régnait dans la pagode. Le corps de Wang Lin était entravé par les 3
 
 À l'intérieur de la pagode, des éclats de lumière dorée d'une domination absolue jaillissaient. Cette lumière cherchait à raffiner Wang Lin, elle voulait utiliser l'énergie céleste pour le fondre!
 
-Cependant, la rétribution divine ignorait qu'entre les sourcils de Wang Lin résidait la lignée céleste la plus pure!
+Cependant, la Tribulation Céleste ignorait qu'entre les sourcils de Wang Lin résidait la lignée céleste la plus pure!
 
-« Les prétendues rétributions divines ne sont que ces sorts... Si c'est le cas, cette rétribution est... trop faible! » Enveloppé par les 3 000 poils, Wang Lin secoua la tête, et tout son corps se gonfla brusquement. Les étoiles de Dieu Ancien entre ses sourcils commencèrent à tourner rapidement; alors que la puissance du Dieu Ancien déferlait dans son corps, celui-ci grandissait à une vitesse fulgurante.
+« Les prétendues Tribulations Célestes ne sont que ces sorts... Si c'est le cas, cette Tribulation est... trop faible! » Enveloppé par les 3 000 poils, Wang Lin secoua la tête, et tout son corps se gonfla brusquement. Les étoiles de Dieu Ancien entre ses sourcils commencèrent à tourner rapidement; alors que la puissance du Dieu Ancien déferlait dans son corps, celui-ci grandissait à une vitesse fulgurante.
 
 100 pieds, 300 pieds, 1 000 pieds... Jusqu'à ce qu'il atteigne des milliers de pieds de haut, tel un géant. Les poils autour de lui furent tendus à l'extrême, certains finissant par rompre. Une fois que Wang Lin prit sa forme de Dieu Ancien, son pouvoir divin se propagea et tous les poils s'effondrèrent!
 

@@ -46,7 +46,7 @@ Le cultivateur cracha du sang et fut expulsé de la terre. À l'instant où il f
 
 À cet instant, le cultivateur poussa un cri déchirant tandis que son corps se flétrissait à vue d'œil. Il perdit toute trace d'eau et de sang; alors que son corps rendait l'âme, son âme originelle s'en échappa. Cependant, des gaz noirs enveloppèrent son âme et, alors qu'il tentait de fuir, la Poupée Yi Si le rattrapa dans un rictus féroce. Son âme originelle fut plongée dans un brouillard noir, et après des cris de douleur qui s'étouffèrent peu à peu, tout disparut.
 
-« Cher cultivateur, ce vieil homme est Zuo Zou. La personne qui vous a provoqué est morte, veuillez donc dissiper cet art dao. C'est le point le plus bas de tout le continent du Taureau Céleste, nous ne pouvons pas nous permettre une telle perte. Je vous en prie, ne détruisez pas les fondations de tous les cultivateurs marginaux de la Prairie Ji Tian! » Le vieil homme aux cheveux blancs apparut dans le ciel. Il regarda Wang Lin au loin et joignit les mains en signe de respect.
+« Cher cultivateur, ce vieil homme est Zuo Zou. La personne qui vous a provoqué est morte, veuillez donc dissiper cet art dao. C'est le point le plus bas de tout le Continent Tian Niu, nous ne pouvons pas nous permettre une telle perte. Je vous en prie, ne détruisez pas les fondations de tous les cultivateurs marginaux de la Prairie Ji Tian! » Le vieil homme aux cheveux blancs apparut dans le ciel. Il regarda Wang Lin au loin et joignit les mains en signe de respect.
 
 Après ces paroles, l'herbe cessa de se faner et la vapeur d'eau retourna vers le corps de Wang Lin. Cependant, cette quantité d'eau, ajoutée à l'essence du cultivateur décédé, ne suffisait pas pour que Wang Lin complète son neuvième cycle.
 
@@ -64,13 +64,13 @@ Ce n'est qu'une fois Wang Lin parti que le vieil homme se détendit. Des ombres 
 
 « Le Senior Zuo est décisif. Cet homme n'est pas quelqu'un que nous pouvons provoquer. Sa poupée est très puissante et sa bête est très étrange. Lui-même est extrêmement fort! Un tel être ne peut pas être sans secte! »
 
-« Oui, cet homme est très tranchant, il a même tué les quatre membres du Dao de la Montagne Noire. Il est véritablement féroce et, à en juger par son apparence, c'est clairement un cultivateur démoniaque! »
+« Oui, cet homme est très tranchant, il a même tué les quatre membres du Dao Hei Shan. Il est véritablement féroce et, à en juger par son apparence, c'est clairement un cultivateur démoniaque! »
 
-« Les quatre du Dao de la Montagne Noire ne peuvent s'en prendre qu'à eux-mêmes. Ils l'ont suivi pendant trop de jours. Ils sont morts, alors que cette affaire se termine ici. Cultivateurs, dispersez-vous! » dit le vieil homme avant de faire demi-tour.
+« Les quatre du Dao Hei Shan ne peuvent s'en prendre qu'à eux-mêmes. Ils l'ont suivi pendant trop de jours. Ils sont morts, alors que cette affaire se termine ici. Cultivateurs, dispersez-vous! » dit le vieil homme avant de faire demi-tour.
 
 Quant à Wang Lin, après avoir utilisé une seconde fois la Distorsion Spatiale, il apparut dans une chaîne de montagnes. Selon la carte de Yan Luan, il lui restait trois mois de route vers l'est pour atteindre la mer intérieure.
 
-« Le continent du Taureau Céleste est trop vaste... » murmura Wang Lin en invoquant la bête moustique pour s'installer sur son dos alors qu'elle s'envolait vers l'est. La bête était très rapide. Cet endroit se situait près du Continent Lu Mo, il n'y avait donc guère de cultivateurs aux alentours; seules quelques cités mortelles apparaissaient occasionnellement.
+« Le Continent Tian Niu est trop vaste... » murmura Wang Lin en invoquant la bête moustique pour s'installer sur son dos alors qu'elle s'envolait vers l'est. La bête était très rapide. Cet endroit se situait près du Continent Lu Mo, il n'y avait donc guère de cultivateurs aux alentours; seules quelques cités mortelles apparaissaient occasionnellement.
 
 Wang Lin ne savait pas grand-chose sur le Continent Lu Mo, mais Kang Ren en avait une peur viscérale, comme si quiconque en était issu était terrifiant.
 

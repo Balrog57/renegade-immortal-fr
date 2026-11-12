@@ -16,15 +16,15 @@ Wang Lin fixa le grand hall et dit lentement: « Puisque cette décision a été
 
 À peine Wang Lin eut-il fini de parler qu'un rayon de lumière fantomatique jaillit du grand hall. Un brin de cheveux blancs se trouvait au cœur de ce rayon. Le cheveu explosa et une silhouette apparut.
 
-Il s'agissait de l'Ancêtre Taureau Vert!
+Il s'agissait de l'Ancêtre Qing Niu!
 
 « La question des récompenses a ses propres raisons. Ce vieil homme ne changera pas d'avis. Si Wang Lin tarde à obéir, que ceci serve de preuve pour le juger! »
 
-Wang Lin fixa la projection de l'Ancêtre Taureau Vert. Il savait qu'il ne s'agissait pas d'un avatar, mais d'une empreinte de Sens Divin.
+Wang Lin fixa la projection de l'Ancêtre Qing Niu. Il savait qu'il ne s'agissait pas d'un avatar, mais d'une empreinte de Sens Divin.
 
 « La preuve t'a été donnée. Recule! » La voix glaciale du Maître de la Secte Gui Yi provint du grand hall.
 
-L'expression de Wang Lin demeura impassible. Si cette affaire était réellement une décision conjointe entre la Secte Gui Yi et la Secte Da Hun, alors face à une telle injustice, il n'aurait pas à s'inquiéter de son accord avec l'Ancêtre Taureau Vert.
+L'expression de Wang Lin demeura impassible. Si cette affaire était réellement une décision conjointe entre la Secte Gui Yi et la Secte Da Hun, alors face à une telle injustice, il n'aurait pas à s'inquiéter de son accord avec l'Ancêtre Qing Niu.
 
 Wang Lin réfléchit silencieusement et ne parla plus, restant immobile et calme. Il fit mine de rien, ne montrant aucune amertume pour l'armure d'élément feu qui venait de lui être retirée.
 
@@ -34,9 +34,9 @@ En entendant parler des âmes de vie, les pupilles de Wang Lin se rétractèrent
 
 Yun Yifeng, disciple de la Secte Gui Yi, n'hésita pas. Sa main droite toucha le point entre ses sourcils et son corps trembla. Une parcelle d'âme s'en échappa pour former une sphère qui vola vers le grand hall.
 
-Le vieil homme nommé Bord-des-Nuages hésita un instant, mais ne refusa pas non plus. Il extirpa également une parcelle de son âme de vie et l'envoya vers le grand hall.
+Le vieil homme nommé Bian Yun hésita un instant, mais ne refusa pas non plus. Il extirpa également une parcelle de son âme de vie et l'envoya vers le grand hall.
 
-Quant à Ta Jia, elle réfléchit un moment puis serra les dents. Elle était prête à payer n'importe quel prix pour le développement de sa secte. Sans compter que c'était nécessaire, sinon elle ne pourrait jamais être téléportée depuis le Continent Lu Mo.
+Quant à Tang Jia, elle réfléchit un moment puis serra les dents. Elle était prête à payer n'importe quel prix pour le développement de sa secte. Sans compter que c'était nécessaire, sinon elle ne pourrait jamais être téléportée depuis le Continent Lu Mo.
 
 Les trois envoyèrent leurs âmes de vie, ne laissant que Wang Lin.
 
@@ -48,7 +48,7 @@ Wang Lin songea en silence. Après un long moment, il regarda le grand hall et d
 
 Une lueur de froideur traversa le regard de Wang Lin. D'innombrables pensées traversèrent son esprit. Tout allait trop vite pour qu'il puisse comprendre la cause de ce revirement.
 
-Le changement d'attitude de l'Ancêtre Taureau Vert et les difficultés imposées par la Secte Gui Yi... Quelque chose dont Wang Lin n'avait pas conscience était en train de se jouer.
+Le changement d'attitude de l'Ancêtre Qing Niu et les difficultés imposées par la Secte Gui Yi... Quelque chose dont Wang Lin n'avait pas conscience était en train de se jouer.
 
 Il sentait même que s'il remettait l'armure d'âme, il lui serait très difficile de quitter la Secte Gui Yi. Sans le renforcement de culture offert par l'armure, il se retrouverait dans une situation périlleuse.
 
@@ -66,7 +66,7 @@ Faute d'informations, il ne pouvait pas se permettre de perdre l'armure d'âme. 
 
 « Il y a un problème ici! La Secte Gui Yi connaît mon identité, sait que je viens du monde des grottes et connaît mon lien avec Xuan Luo, et pourtant... » Wang Lin ne comprenait pas, et il n'avait pas le temps de comprendre. Entre abandonner l'armure et affronter l'inconnu, ou garder l'armure et se battre, il choisit sans hésiter la seconde option!
 
-Au moment où la main géante se refermait, le tatouage du Taureau Céleste sur le côté droit du visage de Wang Lin libéra une lumière noire infinie, stupéfiant Yun Yifeng, Ta Jia et Bord-des-Nuages. La lueur noire enveloppa instantanément tout le corps de Wang Lin pour se transformer en d'innombrables filaments noirs. Ils prirent la forme d'une armure noire qui lui enveloppait même le visage; seuls ses cheveux blancs flottaient sans qu'aucun vent ne soufflât.
+Au moment où la main géante se refermait, le tatouage du Taureau Céleste sur le côté droit du visage de Wang Lin libéra une lumière noire infinie, stupéfiant Yun Yifeng, Tang Jia et Bian Yun. La lueur noire enveloppa instantanément tout le corps de Wang Lin pour se transformer en d'innombrables filaments noirs. Ils prirent la forme d'une armure noire qui lui enveloppait même le visage; seuls ses cheveux blancs flottaient sans qu'aucun vent ne soufflât.
 
 Le niveau de culture de Wang Lin bondit soudainement du stade avancé du Vide Spirituel au stade précoce de la Tribulation du Vide dès qu'il revêtit l'armure. Il leva la main droite et utilisa l'Empreinte de l'Esprit Guerrier. L'immense empreinte démoniaque à six doigts apparut et percuta de plein fouet la gigantesque main noire.
 
@@ -78,7 +78,7 @@ Avec son niveau de culture actuel, après avoir été frappé par les vestiges d
 
 Alors qu'il était repoussé, Wang Lin entendit ces mots. Il serra les dents, envahi par une émotion indescriptible. Il avait le sentiment diffus que ces trois objets étaient, à l'origine, ses propres récompenses...
 
-À la suite de cette annonce, l'expression de Bord-des-Nuages changea radicalement, révélant un regard d'incrédulité. Sans hésiter, le tatouage du Taureau Céleste sur le côté droit de son visage s'illumina et enveloppa tout son corps, formant la même armure d'âme que celle de Wang Lin. Son niveau de culture augmenta considérablement, passant du stade intermédiaire de la Tribulation du Vide au stade avancé. En un éclair, il se lança à la poursuite de Wang Lin!
+À la suite de cette annonce, l'expression de Bian Yun changea radicalement, révélant un regard d'incrédulité. Sans hésiter, le tatouage du Taureau Céleste sur le côté droit de son visage s'illumina et enveloppa tout son corps, formant la même armure d'âme que celle de Wang Lin. Son niveau de culture augmenta considérablement, passant du stade intermédiaire de la Tribulation du Vide au stade avancé. En un éclair, il se lança à la poursuite de Wang Lin!
 
 S'il était si déterminé, c'était à cause de la Perle de Taureau Céleste!
 
@@ -96,21 +96,21 @@ Cette terre sainte ne pouvait atteindre sa perfection que lorsque trois perles �
 
 La Voile Fantôme de protection de la Secte Da Hun était un secret hautement protégé. Son drapeau secondaire pouvait libérer une puissance colossale, même à distance.
 
-Ces deux objets suffisaient à rendre n'importe qui fou! C'était la raison pour laquelle Bord-des-Nuages s'était lancé à la poursuite de Wang Lin avec une telle détermination et les yeux injectés de sang.
+Ces deux objets suffisaient à rendre n'importe qui fou! C'était la raison pour laquelle Bian Yun s'était lancé à la poursuite de Wang Lin avec une telle détermination et les yeux injectés de sang.
 
-Ta Jia trembla. Après un bref instant de réflexion, elle serra les dents et une lumière noire l'enveloppa. Son armure d'âme apparut, son niveau de culture atteignant le stade intermédiaire de la Tribulation du Vide, et elle partit également à sa poursuite.
+Tang Jia trembla. Après un bref instant de réflexion, elle serra les dents et une lumière noire l'enveloppa. Son armure d'âme apparut, son niveau de culture atteignant le stade intermédiaire de la Tribulation du Vide, et elle partit également à sa poursuite.
 
-Seul Yun Yifeng resta silencieux, l'expression sombre. Il ne poursuivit pas. Cependant, alors que Ta Jia s'élançait, il ouvrit la bouche et lui envoya un message par Sens Divin.
+Seul Yun Yifeng resta silencieux, l'expression sombre. Il ne poursuivit pas. Cependant, alors que Tang Jia s'élançait, il ouvrit la bouche et lui envoya un message par Sens Divin.
 
-Ta Jia fut secouée par le message de Yun Yifeng peu après son départ. Elle se retourna brusquement vers lui.
+Tang Jia fut secouée par le message de Yun Yifeng peu après son départ. Elle se retourna brusquement vers lui.
 
 « Est-ce vrai? »
 
 Yun Yifeng la regarda et hocha la tête.
 
-L'expression de Ta Jia devint complexe et elle reprit sa course. Cependant, son état d'esprit avait radicalement changé.
+L'expression de Tang Jia devint complexe et elle reprit sa course. Cependant, son état d'esprit avait radicalement changé.
 
-Ce n'est qu'après le départ de Ta Jia que Yun Yifeng se retourna et s'agenouilla devant le grand hall.
+Ce n'est qu'après le départ de Tang Jia que Yun Yifeng se retourna et s'agenouilla devant le grand hall.
 
 « Maître de Secte, vous devez donner des explications à ce disciple! Ce disciple a déjà informé la secte de l'identité de Wang Lin et de son lien avec le Grand Empyréen Xuan Luo... »
 

@@ -30,7 +30,7 @@ Dans le palais impérial, un grondement tonitruant retentit. Le trône du dragon
 
 Cette fois, Ming Dao n'hésita pas comme auparavant et hocha sobrement la tête.
 
-Continent Central, au sommet du Mont Empereur. Le Grand Empyréen Jiu Di se tenait sur la cime de la montagne et détourna son regard d'une feuille d'automne. Après un long moment, il ouvrit les yeux, laissant poindre une lueur.
+Continent Central, au sommet du Mont Di. Le Grand Empyréen Jiu Di se tenait sur la cime de la montagne et détourna son regard d'une feuille d'automne. Après un long moment, il ouvrit les yeux, laissant poindre une lueur.
 
 « Je n'ai pu recruter l'Ascendant Empyréen Ming Dao, et l'Empereur Céleste a un contentieux avec Wang Lin. Je veux voir qui pourra rivaliser avec moi! » Le Grand Empyréen Jiu Di se tourna vers l'Exalté Empyréen Hai Zi, qui ouvrait lentement les yeux, et rit.
 
@@ -38,7 +38,7 @@ Continent Central, au sommet du Mont Empereur. Le Grand Empyréen Jiu Di se tena
 
 L'Exalté Empyréen Hai Zi fut surprise et son cœur se remplit de joie.
 
-Continent de l'Est, au sein de la Secte Yang Pourpre. Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il continuait de murmurer:
+Continent de l'Est, au sein de la Secte Zi Yang. Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il continuait de murmurer:
 
 « Le 17e palais... cet homme a réellement franchi le 17e palais. Il sera certainement disputé par les autres Grands Empyréens! Petit Ancêtre, tu dois diviner sa position, nous devons le trouver au plus vite! »
 

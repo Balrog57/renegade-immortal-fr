@@ -84,7 +84,7 @@ Son père et sa mère n'étaient pas des cultivateurs, et les mortels ne peuvent
 
 Après neuf pas, il revit ses parents; après neuf autres pas, il vit Mu Bingmei, Li Qianmei et Li Muwan. Après encore neuf pas, il vit Wang Ping. Il vit ce pauvre enfant lui prendre la main et lui dire, avec obstination mais sérieux, qu'il cultivait pour accompagner son père toute sa vie. Il ne voulait pas que ce monde ne garde que le dos solitaire de son père; s'il fallait vraiment rester seul, il espérait qu'à côté de ce dos, sa présence subsisterait.
 
-Wang Lin vit Situ Nan, Qing Shui, Dun Tian, le vieil Oiseau Vermillon et tant d'autres qui l'avaient aidé. Il les regarda les yeux grands ouverts et continua d'avancer.
+Wang Lin vit Situ Nan, Qing Shui, Dun Tian, le vieux Suzaku et tant d'autres qui l'avaient aidé. Il les regarda les yeux grands ouverts et continua d'avancer.
 
 Da Tou, Hongdie, Qing Shuang, Zhou Yi, Qing Lin... et bien d'autres encore. Wang Lin semblait revivre toute son existence à mesure que ces visages apparaissaient.
 

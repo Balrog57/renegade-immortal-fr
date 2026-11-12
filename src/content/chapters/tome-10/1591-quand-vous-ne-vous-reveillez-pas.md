@@ -26,7 +26,7 @@ Le visage de Wang Lin, d'ordinaire empreint d'une aura de lettré, devint encore
 
 Le rire de la jeune fille résonna. En observant l'expression gauche de Wang Lin, elle s'apprêtait à parler quand une voix douce et mélodieuse s'éleva de l'intérieur du bateau.
 
-« Junior Sister! »
+« Junior sœur! »
 
 Alors que la voix résonnait, le coin de l'auvent du bateau fut écarté par une main semblable au jade, révélant la silhouette délicate d'une autre jeune femme. Lorsque le visage de cette dernière apparut aux yeux de Wang Lin, la pluie du monde sembla s'immobiliser.
 
@@ -38,7 +38,7 @@ On y décelait également une trace d'agacement alors qu'elle regardait la jeune
 
 La jeune fille en vert sourit et attira la jeune femme en violet vers elle. Elle pointa Wang Lin du doigt, sa voix s'élevant comme celle d'un oiseau chanteur:
 
-« Senior Sister, cet érudit est vraiment impoli. Il a d'abord parlé sans respect, puis il m'a dévisagée. Mais il a l'air un peu niais, c'est assez amusant! »
+« Senior sœur, cet érudit est vraiment impoli. Il a d'abord parlé sans respect, puis il m'a dévisagée. Mais il a l'air un peu niais, c'est assez amusant! »
 
 La jeune femme en violet sourit et son regard suivit la pluie vers Wang Lin, qui cherchait refuge sur la rive. En le voyant, elle fut surprise un instant. Après l'avoir observé de plus près, une lueur de confusion traversa ses yeux.
 
@@ -56,7 +56,7 @@ Bien que ses paroles fussent légères, elles perçèrent l'averse et se propag�
 
 « Nous vous proposons de nous abriter sur notre bateau avec de bonnes intentions, et vous hésitez encore? Pensez-vous que nous allons vous dévorer? » La jeune fille en vert, voyant l'hésitation de Wang Lin, le fixa d'un air provocateur.
 
-« Junior Sister. » La jeune femme en violet lança un regard impuissant à la jeune fille en vert.
+« Junior sœur. » La jeune femme en violet lança un regard impuissant à la jeune fille en vert.
 
 Wang Lin esquissa un sourire amer et hocha la tête en ramassant son sac en bambou. Il prit son ombrelle et marcha sur le sentier boueux vers la rive.
 
@@ -88,7 +88,7 @@ Au loin, alors que le ciel s'obscurcissait, le bateau finissait par disparaître
 
 La jeune fille en vert réfléchit longuement avant de lever la tête. Elle sourit à Wang Lin et dit d'une voix mélodieuse: « C'est étrange, je ne pense pas vous avoir déjà vu, et votre nom ne me dit rien du tout... »
 
-« Je m'appelle Xu Fei, et voici ma sœur aînée Zhou. Quant à son nom, vous n'aurez qu'à lui demander! » Xu Fei fit un clin d'œil, d'un air espiègle et mignon.
+« Je m'appelle Xu Fei, et voici ma Senior sœur Zhou. Quant à son nom, vous n'aurez qu'à lui demander! » Xu Fei fit un clin d'œil, d'un air espiègle et mignon.
 
 « Je me nomme Zhou Rui », dit doucement la jeune femme en violet. La confusion persistait dans ses yeux, car même Xu Fei trouvait le nom de Wang Lin familier. Elle ne parvenait simplement pas à comprendre pourquoi.
 
@@ -102,7 +102,7 @@ En observant la scène, Wang Lin fut soudainement saisi d'une transe.
 
 Dans cette nuit noire sur la rivière silencieuse, il semblait que ce bateau était la seule chose subsistant au monde. Les deux magnifiques jeunes filles à bord lui donnaient l'impression que rien de tout cela n'était réel.
 
-Le corps de Wang Lin se refroidit durant son état de transe. Sa vision se brouilla et une somnolence l'envahit, mais il lutta pour rester conscient. S'appuyant contre la paroi, il murmura lentement: « Vous vous appelez respectivement sœur cadette et sœur aînée... Mademoiselle Zhou m'a également porté à bord d'un bond... Vous devez être des expertes en arts martiaux. »
+Le corps de Wang Lin se refroidit durant son état de transe. Sa vision se brouilla et une somnolence l'envahit, mais il lutta pour rester conscient. S'appuyant contre la paroi, il murmura lentement: « Vous vous appelez Senior sœur et Junior sœur... Mademoiselle Zhou m'a également porté à bord d'un bond... Vous devez être des expertes en arts martiaux. »
 
 « Nous ne sommes pas des gens du monde des arts martiaux. Vous êtes vraiment intéressant, l'érudit. Nous sommes des êtres qui cultivent vers l'immortalité, de véritables immortels... » La voix devint indistincte, semblant s'éloigner de plus en plus à mesure que la somnolence de Wang Lin progressait.
 
@@ -112,7 +112,7 @@ Il lui sembla vaguement entendre quelqu'un mentionner la Secte Heng Yue...
 
 Le bateau tangua légèrement, faisant osciller le chandelier. La jeune fille en vert regarda son aînée avec une expression confuse.
 
-« Senior Sister, il n'est qu'un mortel. Pourquoi avez-vous utilisé un sort pour l'endormir? »
+« Senior sœur, il n'est qu'un mortel. Pourquoi avez-vous utilisé un sort pour l'endormir? »
 
 La jeune femme en violet contempla Wang Lin endormi. Après un long silence, elle dit doucement: « Je dois absolument avoir déjà rencontré cet homme! Pourtant, je ne parviens pas à me souvenir d'où. Même toi as trouvé son nom familier. »
 
@@ -122,4 +122,4 @@ Un instant plus tard, la jeune femme en violet secoua la tête et soupira. « La
 
 « Une vie antérieure? » La jeune fille en vert rit en levant les yeux vers le ciel nocturne.
 
-« Senior Sister, il est temps. Nous devons rejoindre Wang Zhuo et les autres. Cette fois, le Maître de la Secte a détecté une lumière dorée provenant de l'Est et a prédit la naissance d'un trésor. De nombreuses sectes pourraient se mettre en quête, nous devons donc nous dépêcher. Bien que nos niveaux de culture ne soient pas assez élevés pour y participer, ce sera une expérience enrichissante. »
+« Senior sœur, il est temps. Nous devons rejoindre Wang Zhuo et les autres. Cette fois, le Maître de la Secte a détecté une lumière dorée provenant de l'Est et a prédit la naissance d'un trésor. De nombreuses sectes pourraient se mettre en quête, nous devons donc nous dépêcher. Bien que nos niveaux de culture ne soient pas assez élevés pour y participer, ce sera une expérience enrichissante. »

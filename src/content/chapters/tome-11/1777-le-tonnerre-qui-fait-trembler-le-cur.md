@@ -106,7 +106,7 @@ Wang Lin ne l'arrêta pas, et il n'y avait aucune raison de le faire!
 
 Après la fusion, l'Âme aux Sept Couleurs entoura le Vieux Fantôme Zhan et recouvrit le ciel derrière lui. Il ricana et chargea Wang Lin. Lanmeng Daozun et le vieil homme Ma s'apprêtaient à intervenir quand les paroles de Wang Lin résonnèrent calmement entre deux battements de cœur:
 
-« Deux aînés, vous avez assez travaillé, je m'en charge. » Wang Lin voyait bien qu'ils étaient blessés, et il voulait tester sa propre force après avoir obtenu l'héritage. Aussitôt qu'il eut parlé, son rythme cardiaque devint monstrueux!
+« Deux Seniors, vous avez assez travaillé, je m'en charge. » Wang Lin voyait bien qu'ils étaient blessés, et il voulait tester sa propre force après avoir obtenu l'héritage. Aussitôt qu'il eut parlé, son rythme cardiaque devint monstrueux!
 
 Les grondements tonitruants affectaient le pouls de chacun. Alors que le Vieux Fantôme Zhan s'approchait, ce vacarme titanesque pénétra dans son corps et frappa directement son cœur!
 

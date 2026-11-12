@@ -64,7 +64,7 @@ Son poing gronda. Ce coup était chargé de sa détermination et de la totalité
 
 Cependant, à cet instant précis, une aura puissante émana du quatrième étage de la tour. Tandis que cette aura se répandait, un jeune homme vêtu de noir en sortit!
 
-Ce jeune homme paraissait ordinaire, mais ses yeux brillaient d'une lueur étrange. C'était le même qui était sorti de la faille spatiale lors de la rétribution divine de Wang Lin!
+Ce jeune homme paraissait ordinaire, mais ses yeux brillaient d'une lueur étrange. C'était le même qui était sorti de la faille spatiale lors de la Tribulation Céleste de Wang Lin!
 
 Ce jeune homme cherchait quelque chose dans la Rivière Invoquée, mais des années auparavant, il était revenu, impuissant, pour s'isoler en culture secrète au quatrième étage. Il était désormais contraint de sortir par Wang Lin!
 

@@ -8,7 +8,7 @@ slug: une-pensee-de-lempereur-les-racines-des-ennuis-apparaissent
 ---
 Wang Lin ressentit une vive excitation dans son cœur. Il regarda les dix bêtes-moustiques restantes ainsi que son roi moustique. Il s'élança, enveloppé par le dragon de sang, et atterrit sur la tête du roi moustique.
 
-« Enseignant, nous nous reverrons sur le Continent Astral Immortel! » Wang Lin se retourna et joignit les mains en signe de respect envers Xuan Luo. Le roi moustique laissa échapper un hurlement féroce et chargea dans les profondeurs avec Wang Lin.
+« Maître, nous nous reverrons sur le Continent Astral Immortel! » Wang Lin se retourna et joignit les mains en signe de respect envers Xuan Luo. Le roi moustique laissa échapper un hurlement féroce et chargea dans les profondeurs avec Wang Lin.
 
 Derrière lui, les neuf bêtes-moustiques suivaient comme une garde d'honneur!
 

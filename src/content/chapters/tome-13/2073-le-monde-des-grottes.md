@@ -128,6 +128,6 @@ Le corps du Maître Nan Yunzi s'était effondré, ne laissant subsister que son 
 
 Le ciel du Royaume Céleste était rouge sang, strié d'ombres révélant des expressions féroces. On aurait dit qu'une légion de spectres hantait cette teinte écarlate.
 
-« Le Maître vous a donné cinq jours pour choisir. Trois jours se sont écoulés, il n'en reste que deux. J'espère que vous choisirez avec sagesse et rejoindrez ma Secte de l'Âme Écarlate. Sinon... mourez! » Dans ce ciel sanglant, un jeune homme vêtu d'une robe rouge s'adressait aux nombreux cultivateurs en contrebas d'un ton sinistre.
+« Le Maître vous a donné cinq jours pour choisir. Trois jours se sont écoulés, il n'en reste que deux. J'espère que vous choisirez avec sagesse et rejoindrez ma Secte Chi Hun. Sinon... mourez! » Dans ce ciel sanglant, un jeune homme vêtu d'une robe rouge s'adressait aux nombreux cultivateurs en contrebas d'un ton sinistre.
 
 « Quant à toi, Mu Bingmei, il ne te reste que deux jours. Dans deux jours, une fois la formation entourant le Nouveau Royaume Céleste brisée, soit tu deviendras ma partenaire de Dao, soit je massacrerai la planète Suzaku et je détruirai cette statue de cet individu nommé Lin! »

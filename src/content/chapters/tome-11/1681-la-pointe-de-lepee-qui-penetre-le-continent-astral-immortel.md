@@ -80,7 +80,7 @@ Le Continent Astral Immortel était surnommé « le bord du ciel et la fin de la
 
 Dans la partie orientale du Continent Astral Immortel, s'étendait une chaîne de montagnes infinie, drapée de brume et imprégnée d'énergie céleste. Les oiseaux et les fleurs embaumaient l'air, tandis que des bêtes célestes et des grues volantes dansaient dans le ciel.
 
-Cette chaîne de montagnes représentait environ 10 % du Système Stellaire du Vide Brillant. Elle paraissait sans fin, mais elle n'était qu'un grain de poussière comparée à l'immensité du Continent Astral Immortel!
+Cette chaîne de montagnes représentait environ 10 % du Système Stellaire Kun Xu. Elle paraissait sans fin, mais elle n'était qu'un grain de poussière comparée à l'immensité du Continent Astral Immortel!
 
 Au sein de ce massif, une montagne perçait le ciel telle une épée pointée vers les cieux. Bien qu'elle semblât infiniment haute de près, elle ne ressemblait qu'à une modeste colline vue de loin!
 
@@ -108,13 +108,13 @@ Sous leurs yeux, la pointe de l'épée se rétracta lentement et la lumière rou
 
 Chacun réfléchissait en silence, fixant froidement la cloche. Le silence était total.
 
-L'un d'eux finit par dire lentement: « Frère aîné, Chef de Secte, devrions-nous ouvrir cette Cloche des Pilules de l'Est... »
+L'un d'eux finit par dire lentement: « Senior frère, Chef de Secte, devrions-nous ouvrir cette Cloche des Pilules de l'Est... »
 
-« Pas besoin pour le moment. Avant que le Frère Ma ne parte avec quelques disciples, il a dit que cette cloche ne devait pas être ouverte. Il reviendra de lui-même! »
+« Pas besoin pour le moment. Avant que le Senior frère Ma ne parte avec quelques disciples, il a dit que cette cloche ne devait pas être ouverte. Il reviendra de lui-même! »
 
 « L'épée de sang de Ye Mo! Il semble que la rumeur disant que Ye Mo a été attiré dans la grotte de la Secte Qi Dao soit vraie! »
 
-« Ce Souverain aux Sept Couleurs a abandonné son partenaire de Dao et a scellé la Secte Qi Dao. Il a dû obtenir un trésor inestimable... Le Frère Ma a étudié la situation longtemps et a utilisé un trésor de notre Secte Gui Yi pour ouvrir un passage vers la grotte. Avec le niveau de culture et les méthodes du Frère Ma, nous n'avons pas à nous inquiéter! »
+« Ce Souverain aux Sept Couleurs a abandonné son partenaire de Dao et a scellé la Secte Qi Dao. Il a dû obtenir un trésor inestimable... Le Senior frère Ma a étudié la situation longtemps et a utilisé un trésor de notre Secte Gui Yi pour ouvrir un passage vers la grotte. Avec le niveau de culture et les méthodes du Senior frère Ma, nous n'avons pas à nous inquiéter! »
 
 À l'intérieur du passage étrange, l'épée de sang se retira de la porte de pierre, laissant l'âme originelle de Wang Lin sous le choc. La force de rejet avait repoussé l'arme sur 500 pieds. Son âme retourna dans son corps, puis il saisit l'épée et recula de 1 000 pieds. Wang Lin regarda la porte de pierre avec une expression grave, le rythme cardiaque accéléré.
 

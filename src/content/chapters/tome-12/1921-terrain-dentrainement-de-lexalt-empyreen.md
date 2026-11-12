@@ -48,7 +48,7 @@ L'ancêtre de la Secte Dao Mo poussa un soupir et joignit les mains devant Wang 
 
 Après avoir parlé, le vieil homme se détourna pour partir.
 
-« Confrère cultivateur, veuillez attendre. La raison pour laquelle j'ai détruit la Secte Dao Mo est que l'ensemble de la secte a utilisé toute sa puissance pour me placer dans une situation de vie ou de mort, et non un seul homme », dit lentement Wang Lin. Il se justifiait rarement, mais l'ancêtre de la Secte Dao Mo avait gagné son respect.
+« Daoïste, veuillez attendre. La raison pour laquelle j'ai détruit la Secte Dao Mo est que l'ensemble de la secte a utilisé toute sa puissance pour me placer dans une situation de vie ou de mort, et non un seul homme », dit lentement Wang Lin. Il se justifiait rarement, mais l'ancêtre de la Secte Dao Mo avait gagné son respect.
 
 Le vieil homme aux cheveux roux s'arrêta et réfléchit un instant.
 
@@ -58,13 +58,13 @@ Le vieil homme aux cheveux roux s'arrêta et réfléchit un instant.
 
 « Parmi les Grands Empyréens, l'Empereur Céleste, le Grand Empyréen des Huit Extrêmes, est le plus fier. Le Grand Empyréen Jiu Di du Continent Central est le plus autoritaire. Le Grand Empyréen Wu Feng du Continent Bei est le plus détaché; hormis les Ascendants Empyréens, il recrute rarement des Exalté Empyréens. »
 
-« Et le Grand Empyréen Shuangzi de la Secte Yang Pourpre du Continent de l'Est... était à l'origine le plus puissant des Grands Empyréens. Mais lors de la dernière réincarnation, son âme s'est scindée en deux et s'est transformée en deux individus distincts. Elle ne pourra pas se rétablir dans cette vie. Bien qu'on dise que sa personnalité est très douce, elle ne serait pas mon choix. » Le vieil homme savait qu'en comparaison d'un Exalté Empyréen, la Secte Dao Mo n'était qu'une fourmi. Il ne valait pas la peine de se mettre à dos un tel être pour une telle secte.
+« Et le Grand Empyréen Shuangzi de la Secte Zi Yang du Continent de l'Est... était à l'origine le plus puissant des Grands Empyréens. Mais lors de la dernière réincarnation, son âme s'est scindée en deux et s'est transformée en deux individus distincts. Elle ne pourra pas se rétablir dans cette vie. Bien qu'on dise que sa personnalité est très douce, elle ne serait pas mon choix. » Le vieil homme savait qu'en comparaison d'un Exalté Empyréen, la Secte Dao Mo n'était qu'une fourmi. Il ne valait pas la peine de se mettre à dos un tel être pour une telle secte.
 
 Le plus important était que cet Exalté Empyréen était extrêmement puissant! Par conséquent, il partagea ces connaissances essentielles afin d'effacer l'amertume des affrontements passés.
 
 Wang Lin ignorait tout de cela jusqu'alors. Bien qu'il parût impassible, il fut intérieurement touché par ces révélations.
 
-« Merci, confrère cultivateur, pour ces informations », dit Wang Lin en joignant les mains.
+« Merci, Daoïste, pour ces informations », dit Wang Lin en joignant les mains.
 
 « Il y a aussi l'Épreuve Empyréenne... Puisque je suis le premier Exalté Empyréen que vous avez combattu, vous ignorez sans doute ce qu'est cette épreuve. C'est un lieu étrange créé par l'Ancêtre Céleste. Il est spécialement destiné aux cultivateurs Exalté Empyréens, qui peuvent y obtenir une évaluation précise de leur force. »
 
@@ -84,7 +84,7 @@ Le vieil homme regarda le ciel et répondit lentement: « C'est très simple. D�
 
 « On raconte même que, surplombant ces deux épreuves, existerait une Épreuve de Grand Empyréen créée conjointement par les deux Ancêtres. Cependant, ce n'est qu'une rumeur et je n'en sais pas plus. » Le vieil homme termina son récit et joignit les mains vers Wang Lin.
 
-« Confrère cultivateur, ce vieil homme vous a dit tout ce qu'il devait vous dire. Adieu! » Sans même jeter un regard aux ruines de la Secte Dao Mo, il se transforma en un rayon de lumière et disparut en un éclair.
+« Daoïste, ce vieil homme vous a dit tout ce qu'il devait vous dire. Adieu! » Sans même jeter un regard aux ruines de la Secte Dao Mo, il se transforma en un rayon de lumière et disparut en un éclair.
 
 Wang Lin resta immobile, le regard perdu dans le vide, même après le départ du vieil homme. Il avait refusé l'offre du Grand Empyréen Dao Yi, renonçant ainsi à une opportunité immense, mais il n'avait aucun regret.
 

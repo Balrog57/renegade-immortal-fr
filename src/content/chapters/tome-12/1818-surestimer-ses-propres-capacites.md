@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1818 - Overestimating your own capabilities
 slug: surestimer-ses-propres-capacites
 ---
-« Cela... Je ne suis allé que sur le Continent Yun Tao, le Continent Kang Yang et le Continent de l'Âme Paisible. Ce n'est qu'environ la moitié du continent oriental tout entier. Au sein de ces trois continents, il n'existe aucune veine de tonnerre.
+« Cela... Je ne suis allé que sur le Continent Yun Tao, le Continent Kang Yang et le Continent Ning Shen. Ce n'est qu'environ la moitié du continent oriental tout entier. Au sein de ces trois continents, il n'existe aucune veine de tonnerre.
 
 « Je ne connais vraiment pas la réponse à votre question... Mais je peux vous aider à vous renseigner. Peut-être que quelqu'un au sein de la Secte Da Hun le sait. Après tout, la Secte Da Hun est l'une des neuf sectes et treize factions. Leurs disciples partent pour se tester et rapportent souvent leurs découvertes à la secte. Cela fait partie de leur entraînement. » Du Qing secoua la tête. Le Continent Astral Immortel était infini, et peu de personnes avaient parcouru l'intégralité du continent oriental. Du Qing n'avait visité que quatre continents au cours de sa vie, ce qui était déjà extraordinaire.
 
@@ -16,11 +16,11 @@ Wang Lin hocha la tête et réfléchit. Un instant plus tard, il regarda Du Qing
 
 « La Secte Dong Lin? » L'expression de Du Qing se figea soudainement. Après un court moment de réflexion, il prit la parole:
 
-« La Secte Dong Lin est l'une des neuf sectes et treize factions. Elle se situe dans la partie nord du continent oriental, sur le Grand Continent Sage. La rumeur dit que cette secte est très mystérieuse et que peu de disciples en sortent jamais. »
+« La Secte Dong Lin est l'une des neuf sectes et treize factions. Elle se situe dans la partie nord du continent oriental, sur le Continent Da Sheng. La rumeur dit que cette secte est très mystérieuse et que peu de disciples en sortent jamais. »
 
 Wang Lin posa quelques questions supplémentaires, puis afficha un air de lassitude. Du Qing était aussi rusé qu'un démon, comment ne pas deviner l'intention de Wang Lin? Il se leva rapidement pour partir et, avant de s'en aller, prononça un serment:
 
-« Cher Cultivateur, soyez assuré. Ce vieil homme mobilisera l'ensemble de la secte pour trouver les veines de feu terrestre, secondaires et enfantines. Si leur âme peut être extraite, je ferai en sorte que les disciples vous l'apportent. »
+« Cher Daoïste, soyez assuré. Ce vieil homme mobilisera l'ensemble de la secte pour trouver les veines de feu terrestre, secondaires et enfantines. Si leur âme peut être extraite, je ferai en sorte que les disciples vous l'apportent. »
 
 Après le départ de Du Qing, il émit immédiatement plusieurs décrets, conformément à sa promesse envers Wang Lin. Les trois anciens dirigèrent chacun un groupe de disciples de la Secte Cang Long dans trois directions différentes.
 

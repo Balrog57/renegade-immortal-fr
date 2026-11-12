@@ -36,7 +36,7 @@ L'homme en robe royale resta calme, mais un rictus méprisant naquit en lui.
 
 L'homme en robe royale ne révéla nullement ses véritables pensées, affichant plutôt une pointe de regret. Il secoua la tête et sourit amèrement en s'adressant doucement au Grand Empyréen Xuan Luo à ses côtés:
 
-« Oncle, quatre gouttes, c'est considérable. L'héritier de Ye Mo peut aussi servir de palanquin à notre clan Dao. »
+« Oncle, quatre gouttes, c'est considérable. L'héritier de Ye Mo peut aussi être compté parmi les fils prodiges de notre clan Dao. »
 
 L'expression du Grand Empyréen Xuan Luo resta impassible, comme s'il n'avait pas entendu l'homme en robe royale. Il fixait les sourcils de la statue et observait la lumière rouge s'amenuiser jusqu'à ne devenir qu'un mince filet.
 

@@ -56,7 +56,7 @@ Simultanément, elle vit la brume émanant de la terre envahir le monde. Des hur
 
 Les trois cultivateurs de la Tribulation du Vide tentèrent de s'extraire de la brume, mais la voix sombre de Lu Wenran résonna:
 
-« Cher compagnon, pourquoi cette hâte de partir? » Tandis que ses paroles résonnaient, tous les cultivateurs de la Tribulation du Vide du palais souterrain surgirent et le combat éclata.
+« Daoïste, pourquoi cette hâte de partir? » Tandis que ses paroles résonnaient, tous les cultivateurs de la Tribulation du Vide du palais souterrain surgirent et le combat éclata.
 
 À la lisière de la Prairie Ji Tian, la femme contrôlant la boussole ouvrit soudainement les yeux. Sans hésiter, elle agita sa manche et guida les milliers de cultivateurs du Continent Lu Mo vers la prairie.
 

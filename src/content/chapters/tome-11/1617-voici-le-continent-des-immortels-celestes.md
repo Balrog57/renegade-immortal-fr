@@ -94,7 +94,7 @@ Wang Lin médita en silence et comprit vaguement certaines choses. Il était sur
 
 Sa silhouette fusionna immédiatement avec le vortex et disparut.
 
-Dans le Vide Brillant, à l'extérieur de la planète Suzaku, la Porte Kong qui était apparue était entourée de six essences, ce qui en faisait une existence de pointe jamais vue auparavant.
+Dans Kun Xu, à l'extérieur de la planète Suzaku, la Porte Kong qui était apparue était entourée de six essences, ce qui en faisait une existence de pointe jamais vue auparavant.
 
 La Porte Kong était là, mais la personne capable de la briser ne s'était pas encore manifestée. Elle dégageait une aura suffocante que même les cultivateurs du Royaume Extérieur comme Xushen Tianzun pouvaient ressentir.
 

@@ -8,7 +8,7 @@ slug: senivrer-avec-situ
 ---
 Après une journée, Wang Lin quitta l'Ancien Royaume Céleste, fort de la promesse des quatre généraux.
 
-L'Ancien Royaume Céleste ne pouvait être entré ou quitté que par la faille créée par la rétribution divine. Cette faille faisait partie du sceau de l'Ancien Royaume Céleste; quiconque venait du Continent Astral Immortel et possédait la lignée d'un être céleste aurait grand peine à s'échapper par elle, à moins que tous ne s'unissent pour propulser une seule personne vers l'extérieur, comme ils l'avaient fait pour le Seigneur du Royaume Scellé.
+L'Ancien Royaume Céleste ne pouvait être entré ou quitté que par la faille créée par la Tribulation Céleste. Cette faille faisait partie du sceau de l'Ancien Royaume Céleste; quiconque venait du Continent Astral Immortel et possédait la lignée d'un être céleste aurait grand peine à s'échapper par elle, à moins que tous ne s'unissent pour propulser une seule personne vers l'extérieur, comme ils l'avaient fait pour le Seigneur du Royaume Scellé.
 
 Peut-être la Perle Défiant le Ciel était-elle ici l'élément le plus crucial!
 
@@ -20,7 +20,7 @@ Wang Lin ne pouvait révéler aux autres que les Royaumes Intérieur et Extérie
 
 En observant ce système stellaire, Wang Lin médita en silence.
 
-À l'extérieur de la planète Suzaku, les nuages de rétribution divine avaient disparu depuis longtemps. Les milliers de cultivateurs, incluant Situ Nan et sa compagnie, attendaient toujours le retour de Wang Lin.
+À l'extérieur de la planète Suzaku, les nuages de la Tribulation Céleste avaient disparu depuis longtemps. Les milliers de cultivateurs, incluant Situ Nan et sa compagnie, attendaient toujours le retour de Wang Lin.
 
 Lorsqu'ils virent apparaître la silhouette de Wang Lin, des acclamations éclatèrent. Les yeux des milliers de cultivateurs brillaient d'une lueur fiévreuse tandis qu'ils scandaient son nom et l'appelaient: « Seigneur du Royaume Scellé! »
 

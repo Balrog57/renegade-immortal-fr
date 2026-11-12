@@ -26,7 +26,7 @@ De loin, cette scène était prodigieuse. Tandis que le grand nuage se condensai
 
 Le visage de l'avatar de Wang Lin pâlit légèrement et il retira son doigt du corps original. Il se retourna et s'inclina respectueusement vers les étoiles.
 
-« Senior Rêve Bleu, Senior Qing Lin et Senior Hong Shan. Mon corps original est ici, j'espère que vous pourrez aider à le protéger! »
+« Senior Lan Meng, Senior Qing Lin et Senior Hong Shan. Mon corps original est ici, j'espère que vous pourrez aider à le protéger! »
 
 À l'instant où Wang Lin parla, un éclair de lumière bleue jaillit et Lanmeng Daozun apparut. Derrière lui, Qing Lin et le Maître Hong Shan suivirent silencieusement.
 

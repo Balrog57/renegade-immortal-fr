@@ -108,4 +108,4 @@ Elle était toujours là. En voyant Wang Lin, son visage exprima une émotion co
 
 Elle n'avait nulle part ailleurs où aller...
 
-Wang Lin se transforma en un rayon de lumière et se dirigea vers les profondeurs de la Secte Da Hun. Le jade que l'Ancien Taureau Vert lui avait confié pour franchir les restrictions contenait une carte de tous les sommets de la secte. Il savait désormais exactement où se trouvait le Pic du Ciel Vert.
+Wang Lin se transforma en un rayon de lumière et se dirigea vers les profondeurs de la Secte Da Hun. Le jade que l'Ancien Taureau Vert lui avait confié pour franchir les restrictions contenait une carte de tous les sommets de la secte. Il savait désormais exactement où se trouvait le Pic Qing Tian.

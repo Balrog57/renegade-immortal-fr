@@ -16,7 +16,7 @@ Wang Lin était un homme audacieux. À cet instant, ses yeux se plissèrent. Apr
 
 Le regard sérieux, il agita ses manches et une goutte s'envola pour flotter devant son front.
 
-« Ancien Immortel... » murmura Wang Lin, tandis que toute son pouvoir ancien jaillissait pour se concentrer sur cette goutte de sang, accompagnée d'un fragment de son âme originelle.
+« Dao Ancien Impérissable... » murmura Wang Lin, tandis que toute son pouvoir ancien jaillissait pour se concentrer sur cette goutte de sang, accompagnée d'un fragment de son âme originelle.
 
 La goutte devint instantanément cristalline, semblable à un éclat de cristal!
 

@@ -54,7 +54,7 @@ Wang Lin observa Fan Shanmeng un instant avant de détourner les yeux.
 
 « Si vous ne voulez pas mourir, faites de votre mieux pour me gagner du temps afin que je brise la troisième couche. Je sais que vous avez encore un atout pour assurer votre sécurité. Cependant, vous et moi avons actuellement un contrôle égal sur ce vaisseau. Si je refuse de coopérer, vous ne pourrez pas partir! » Wang Lin parla lentement, puis ferma les yeux. L'ombre d'un ancien apparut autour de lui tandis qu'il s'immergeait dans l'étude des restrictions de la troisième couche.
 
-L'expression de Fan Shanmeng était extrêmement sombre. Elle fixa Wang Lin un long moment, puis se gratta lentement la tête. La peur l'envahissait car tout ce que Wang Lin venait de dire était vrai.
+L'expression de Fan Shanmeng était extrêmement sombre. Elle fixa Wang Lin un long moment, puis détourna lentement la tête. La peur l'envahissait car tout ce que Wang Lin venait de dire était vrai.
 
 Elle possédait en effet un dernier recours, et c'est précisément pour cela qu'elle s'était montrée si calme lorsqu'elle avait emprunté le pouvoir du Daoïste aux Sept Couleurs pour réprimer Wang Lin.
 

@@ -78,7 +78,7 @@ Wang Lin dit lentement: « Ling Tianhou. »
 
 « Je suis, et je ne suis pas. » Le serviteur secoua la tête sans parler. C'était l'homme en robe grise qui avait pris la parole. Il se retourna et sourit à Wang Lin.
 
-L'homme en robe grise regarda Wang Lin avec un sourire et dit: « Voici certainement Madame Wang; elle est vraiment bien assortie au Compagnon de Culture Wang. »
+L'homme en robe grise regarda Wang Lin avec un sourire et dit: « Voici certainement Madame Wang; elle est vraiment bien assortie au Daoïste Wang. »
 
 Li Muwan resta calme et silencieuse. Elle se tint aux côtés de Wang Lin, observant l'homme en gris avec sérénité.
 
@@ -100,13 +100,13 @@ L'homme en robe grise leva les yeux et sourit: « Je le suis, tout comme vous. �
 
 « Suivre le chemin du vrai Dao... Le "vrai" dans cette phrase désigne le véritable soi au sein de la réincarnation. Cela signifie que toutes les formes de vie doivent chercher leur essence pour pouvoir s'extraire du cycle des réincarnations. » L'homme en robe grise laissa transparaître son admiration en parlant.
 
-« Je n'ai pas de nom. Si je suis le premier du Royaume Ni Chen Liang à avoir atteint le Piétinement des Cieux, alors vous êtes le second. Hormis vous et moi, aucune autre forme de vie ne pourrait piétiner les cieux pour parvenir jusqu'ici.
+« Je n'ai pas de nom. Si je suis le premier du Royaume Ni Chen à avoir atteint le Piétinement des Cieux, alors vous êtes le second. Hormis vous et moi, aucune autre forme de vie ne pourrait piétiner les cieux pour parvenir jusqu'ici.
 
 « À part cet avatar... » ajouta l'homme en gris avec un sourire.
 
 Wang Lin réfléchit silencieusement. Sans jamais lâcher la main de Li Muwan, il regarda l'homme et demanda: « Avez-vous créé la Boussole des Limites? En avez-vous scellé l'esprit du trésor à l'intérieur? »
 
-« La quatrième étape, le Piétinement des Cieux, est la limite du Royaume Ni Chen Liang, mais dans le vaste univers des quatre royaumes, certains ont atteint la cinquième étape... ou même la sixième... Avant que je ne vienne ici, ce plateau existait déjà.
+« La quatrième étape, le Piétinement des Cieux, est la limite du Royaume Ni Chen, mais dans le vaste univers des quatre royaumes, certains ont atteint la cinquième étape... ou même la sixième... Avant que je ne vienne ici, ce plateau existait déjà.
 
 « Jouons, c'est à votre tour... » murmura l'homme en robe grise.
 
@@ -172,7 +172,7 @@ Wang Lin demanda soudain: « L'as-tu vu? »
 
 Leurs silhouettes s'éloignèrent peu à peu jusqu'à se fondre à l'horizon.
 
-Ils ne virent pas qu'à cet instant, dans un recoin de la ville de Pierre Noire, non loin de cette montagne, une femme en blanc tournait le dos aux lumières des innombrables foyers. Tandis qu'elle contemplait le rayon de lumière s'évanouir dans le ciel, des larmes coulèrent au coin de ses yeux, glissant sur sa joue pour perler sur ses vêtements.
+Ils ne virent pas qu'à cet instant, dans un recoin de la ville Hei Shi, non loin de cette montagne, une femme en blanc tournait le dos aux lumières des innombrables foyers. Tandis qu'elle contemplait le rayon de lumière s'évanouir dans le ciel, des larmes coulèrent au coin de ses yeux, glissant sur sa joue pour perler sur ses vêtements.
 
 « Laisse tomber, oublions tout... Le poisson de la vie passée a aussi vu l'oiseau s'effacer dans les eaux... » murmura la femme, le regard embrumé. Le poisson dans l'eau semblait pleurer, mais ses larmes se dissolvaient dans l'onde, si bien que l'oiseau ne pouvait les voir.
 

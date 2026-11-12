@@ -78,7 +78,7 @@ Cette ligne était composée d'innombrables points verts qui se multipliaient à
 
 Alors que Wang Lin percevait l'arrivée des cultivateurs du Continent Lu Mo, Lu Wenran ouvrit les yeux, le regard glacial.
 
-« Compagnons de culture, les envahisseurs du Continent Lu Mo sont là! » Sa voix résonna à travers le complexe de palais.
+« Daoïstes, les envahisseurs du Continent Lu Mo sont là! » Sa voix résonna à travers le complexe de palais.
 
 L'aura de méditation se dissipa et tous les cultivateurs présents ouvrirent les yeux.
 

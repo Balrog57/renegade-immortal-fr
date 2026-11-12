@@ -10,15 +10,15 @@ Tous les Grands Empyréens du Continent Astral Immortel furent alertés. Sept ra
 
 Du côté du clan Céleste, les quatre autres restèrent silencieux en fonçant vers l'avant. Cependant, malgré leur vitesse, il leur faudrait encore une demi-lune pour atteindre le champ de bataille. Après tout, le Continent Astral Immortel était bien trop vaste, et ils ne possédaient pas les niveaux de culture de Wang Lin ou de Gu Dao.
 
-Au centre du vaste bassin, là où la tempête marine faisait rage, un grondement tonnerreux résonna du côté faisant face au clan Ancien. Près de dix mille sphères de brume entourant Wang Lin explosèrent et, après leur disparition, du sang jaillit du coin de sa bouche. Il fut repoussé sur des centaines de pieds, cracha une nouvelle gorgée de sang, et la lumière qui l'enveloppait s'effondra.
+Au centre du vaste bassin, là où la tempête marine faisait rage, un grondement tonnerreux résonna du côté faisant face au clan Ancien. Près de dix mille sphères de brume entourant Wang Lin explosèrent et, après leur disparition, du sang jaillit du coin de sa bouche. Il fut repoussé sur des milliers de pieds, cracha une nouvelle gorgée de sang, et la lumière qui l'enveloppait s'effondra.
 
 La brume autour de Gu Dao se brisa complètement dans un cri misérable. Elle disparut rapidement avec la bête de brume. Une fois la brume dissipée, son visage mystérieux allait être révélé.
 
-À des centaines de pieds de Wang Lin, Gu Dao dit lentement: « Afin de voir mon apparence, vous n'avez pas hésité à vous blesser... » La brume autour de lui devint très ténue, ne laissant que quelques mèches de brouillard qui masquaient à peine son visage.
+À des milliers de pieds de Wang Lin, Gu Dao dit lentement: « Afin de voir mon apparence, vous n'avez pas hésité à vous blesser... » La brume autour de lui devint très ténue, ne laissant que quelques mèches de brouillard qui masquaient à peine son visage.
 
 « Puisque vous voulez voir, alors regardez... Vous êtes la première personne à découvrir mon visage depuis d'innombrables années... » Le corps de Gu Dao était svelte et il portait une robe verte dont la manche droite manquait. Ses cheveux étaient gris, et il fixait Wang Lin alors que la brume autour de son visage se dissipait totalement.
 
-Wang Lin le regarda également à des centaines de pieds de distance. Lorsque le brouillard se dispersa, Wang Lin put enfin voir à quoi ressemblait le Grand Empyréen Gu Dao. Il ne fut pas surpris et poussa un long soupir.
+Wang Lin le regarda également à des milliers de pieds de distance. Lorsque le brouillard se dispersa, Wang Lin put enfin voir à quoi ressemblait le Grand Empyréen Gu Dao. Il ne fut pas surpris et poussa un long soupir.
 
 « C'est bien vous! »
 
@@ -54,13 +54,13 @@ Wang Lin réfléchit un instant en silence, son regard rencontrant celui de Gu D
 
 Après avoir entendu Wang Lin dire qu'il avait franchi le cinquième pont, Gu Dao réfléchit un instant. Il leva ensuite sa main droite et l'agita. « Si vous pouvez résister à ce sort, alors vous serez digne de contempler celui que j'ai étudié durant d'innombrables années: Un Ciel de Dao! »
 
-D'un geste, d'innombrables particules de lumière se rassemblèrent derrière lui et, un instant plus tard, une ombre lumineuse apparut. Cette silhouette était enveloppée de clarté, rendant son apparence invisible. Cependant, dès qu'elle fut apparue, elle ouvrit la bouche et inspira. Une quantité colossale d'énergie du monde fut rapidement aspirée. Cette aspiration couvrit instantanément des millions de kilomètres, englobant même le vaste bassin tout entier.
+D'un geste, d'innombrables particules de lumière se rassemblèrent derrière lui et, un instant plus tard, une ombre lumineuse apparut. Cette silhouette était enveloppée de clarté, rendant son apparence invisible. Cependant, dès qu'elle fut apparue, elle ouvrit la bouche et inspira. Une quantité colossale d'énergie du monde fut rapidement aspirée. Cette aspiration couvrit instantanément des centaines de milliers, des millions et plus encore d'étendue, englobant même le vaste bassin tout entier.
 
 L'énergie infinie du monde fut absorbée et l'ombre lumineuse s'étendit. Le vortex d'aspiration se propagea vers le clan Céleste et le clan Ancien.
 
 Du côté du clan Céleste, près de la vaste mer, Jiu Di et les trois autres Grands Empyréens célestes s'immobilisèrent tous. Ils regardaient au loin, l'impression de perdre la raison. Il en fut de même pour le clan Ancien avec Song Tian et ses compagnons; ils sentirent cette force d'aspiration titanesque drainer l'énergie du monde vers le bassin.
 
-Au centre de la vaste mer, l'ombre lumineuse grandissait rapidement à mesure qu'elle absorbait l'énergie du monde. Elle dépassait déjà les dizaines de milliers de pieds de haut et ne cessait de croître. En quelques instants, Wang Lin ne pouvait plus voir que les jambes de cette ombre — le torse avait disparu!
+Au centre de la vaste mer, l'ombre lumineuse grandissait rapidement à mesure qu'elle absorbait l'énergie du monde. Elle dépassait déjà les centaines de milliers de pieds de haut et ne cessait de croître. En quelques instants, Wang Lin ne pouvait plus voir que les jambes de cette ombre — le torse avait disparu!
 
 Wang Lin eut le souffle coupé. Il ignorait jusqu'à quelle hauteur l'ombre atteindrait, mais il imaginait que si l'on regardait depuis l'extérieur du Continent Astral Immortel, on y verrait un géant colossal! Elle soutenait le ciel et se dressait sur la terre!
 

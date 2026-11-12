@@ -12,7 +12,7 @@ Le vortex commença à disparaître un instant plus tard, et la silhouette floue
 
 Même les cultivateurs auraient été tentés de la prendre pour leur propre fourneau de culture.
 
-Cette femme était Zi Xia, de la Rivière Invoquée, la septième concubine! Contrairement à ses sœurs, elle était extrêmement loyale envers le Souverain Céleste aux Sept Couleurs et avait même réprimandé Wang Lin. Si elle n'avait pas craint son Arc Li Guang, après avoir senti que les pensées de Wang Lin différaient des siennes, elle aurait voulu le tuer.
+Cette femme était Zi Xia, de la Rivière Zhao He, la septième concubine! Contrairement à ses sœurs, elle était extrêmement loyale envers le Souverain Céleste aux Sept Couleurs et avait même réprimandé Wang Lin. Si elle n'avait pas craint son Arc Li Guang, après avoir senti que les pensées de Wang Lin différaient des siennes, elle aurait voulu le tuer.
 
 Cette femme n'était pas faible. Avant que Wang Lin ne maîtrise l'essence de la restriction, ce combat aurait été ardu; mais avec l'Arc Li Guang en main, elle le redoutait fortement. Cependant, maintenant qu'il possédait l'essence de la restriction, que sa lignée du Dao Antique était plus puissante et qu'il disposait du bras droit de Ye Mo ainsi que de la loi qu'il avait établie, la situation était totalement inversée. Même sans l'Arc Li Guang, il avait le pouvoir de tuer cette septième concubine!
 

@@ -74,7 +74,7 @@ Après le départ de Wang Lin, le vieil homme nommé Zhou trembla et cracha une 
 
 Sans hésiter, il s'élança pour trouver des matériaux afin de réparer la grotte avant le retour de Wang Lin. Il n'osait même pas envisager de ne pas le faire.
 
-Cependant, alors qu'il était sur le point de partir, une voix douce résonna à ses oreilles: « Cher cultivateur Zhou, venez ici un instant. » Cela le cloua sur place, l'expression amère.
+Cependant, alors qu'il était sur le point de partir, une voix douce résonna à ses oreilles: « Daoïste Zhou, venez ici un instant. » Cela le cloua sur place, l'expression amère.
 
 Cette voix appartenait à Lu Wenran.
 

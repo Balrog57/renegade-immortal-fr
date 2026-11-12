@@ -6,27 +6,27 @@ bookTitle: Light of the coming end
 en: Chapter 2078 - Two Points
 slug: deux-points
 ---
-Les yeux du Maître Âme Écarlate devinrent rouges et il poussa un rugissement hystérique: « Faux! Personne ne peut créer un vortex reliant le monde des grottes au Continent Astral Immortel pour arracher le sens divin d'un Grand Empyréen, tout cela est faux! N'essayez pas de tromper ce vieil homme!!! »
+Les yeux du Maître Chi Hunzi devinrent rouges et il poussa un rugissement hystérique: « Faux! Personne ne peut créer un vortex reliant le monde des grottes au Continent Astral Immortel pour arracher le sens divin d'un Grand Empyréen, tout cela est faux! N'essayez pas de tromper ce vieil homme!!! »
 
 Son expression était féroce et les veines de son front étaient saillantes. À cet instant, il oublia sa peur et sentit son esprit sur le point de s'effondrer face à une telle absurdité.
 
-« Faux, tout est faux. Haha, cela doit être un mensonge. Wang Lin, ce vieil homme connaît le garde du corps de l'Empereur Céleste, Luo Ming. C'est un ami proche et je lui ai autrefois sauvé la vie! Il est un confident de l'Empereur Céleste... Il... » Le Maître Âme Écarlate riait comme si c'était là sa dernière once d'espoir.
+« Faux, tout est faux. Haha, cela doit être un mensonge. Wang Lin, ce vieil homme connaît le garde du corps de l'Empereur Céleste, Luo Ming. C'est un ami proche et je lui ai autrefois sauvé la vie! Il est un confident de l'Empereur Céleste... Il... » Le Maître Chi Hunzi riait comme si c'était là sa dernière once d'espoir.
 
 « Oh? Tout est faux, n'est-ce pas? Bien que je ne puisse pas amener le Sens Divin de l'Empereur Céleste ici, je peux vous montrer son âme brisée. » Wang Lin fit un geste de la main et le vortex dans le ciel disparut soudainement. L'aura de Dao Yi s'évanouit également. Au sein de la Secte Dao Yi, Dao Yi trembla; il ressentait clairement sa propre vulnérabilité face à la puissance de Wang Lin.
 
 « Voyez si c'est encore faux! » Wang Lin resta calme et, tandis qu'il parlait, trois couleurs apparurent derrière lui: le noir, le blanc et l'or!
 
-Ces trois couleurs de lumière se rassemblèrent soudainement pour former un soleil gigantesque, et l'aura d'un Grand Empyréen jaillit de Wang Lin, s'abattant violemment sur le Maître Âme Écarlate.
+Ces trois couleurs de lumière se rassemblèrent soudainement pour former un soleil gigantesque, et l'aura d'un Grand Empyréen jaillit de Wang Lin, s'abattant violemment sur le Maître Chi Hunzi.
 
 Au même instant, le visage de l'Empereur Céleste Lian Daozhen apparut au sein du soleil. Bien que ses traits fussent déformés par la douleur, quiconque avait rencontré Lian Daozhen aurait pu le reconnaître!
 
-« Faux... Tout est faux... Tout est faux... Vous êtes aussi un Grand Empyréen? Haha, tout est faux. N'essayez pas de me tromper », murmura le Maître Âme Écarlate, le regard vitreux.
+« Faux... Tout est faux... Tout est faux... Vous êtes aussi un Grand Empyréen? Haha, tout est faux. N'essayez pas de me tromper », murmura le Maître Chi Hunzi, le regard vitreux.
 
 Après avoir libéré la pression d'un Grand Empyréen, le niveau de culture de Wang Lin continua de croître jusqu'à atteindre une demi-étape vers le Piétinement Céleste. Sa pression était suffisante pour effondrer un système stellaire et anéantir toute vie.
 
-Toute cette puissance se concentra autour du Maître Âme Écarlate sans en laisser s'échapper la moindre parcelle. Il commença à rire comme un fou, et à l'instant même où il sombra dans la démence, son corps s'effondra.
+Toute cette puissance se concentra autour du Maître Chi Hunzi sans en laisser s'échapper la moindre parcelle. Il commença à rire comme un fou, et à l'instant même où il sombra dans la démence, son corps s'effondra.
 
-Lorsque son corps s'effondra, le Maître Âme Écarlate perdit la raison.
+Lorsque son corps s'effondra, le Maître Chi Hunzi perdit la raison.
 
 Il ne pouvait accepter cette réalité. Il n'osait croire qu'il avait eu des intentions hostiles envers quelqu'un qui avait raffiné l'âme de l'Empereur Céleste, que même Dao Yi craignait, et qui était lui-même un Grand Empyréen. Il avait même voulu dresser l'amante d'un Grand Empyréen et avait pris le descendant d'un Grand Empyréen pour disciple.
 
@@ -44,7 +44,7 @@ Même Gu Dao ne le pourrait pas.
 
 En partant, Wang Lin laissa une partie de son Dao et de ses sorts dans le Royaume Céleste. Il avait également rassemblé la puissance du monde pour créer une montagne de pilules. Il avait ainsi semé une graine puissante pour le Royaume Céleste. Peut-être que, avec le temps, le Royaume Céleste se remplirait de puissants êtres, peut-être même d'individus héritant du Dao de Wang Lin.
 
-Une formation de protection parfaite, une immense quantité de pilules et de textes de Dao, ainsi que la compréhension des essences éthérées par Wang Lin... Tout cela rendrait le Royaume Céleste extrêmement fort et garantirait que des incidents comme celui du Maître Âme Écarlate ne se reproduisent plus jamais.
+Une formation de protection parfaite, une immense quantité de pilules et de textes de Dao, ainsi que la compréhension des essences éthérées par Wang Lin... Tout cela rendrait le Royaume Céleste extrêmement fort et garantirait que des incidents comme celui du Maître Chi Hunzi ne se reproduisent plus jamais.
 
 Avant de s'en aller, Wang Lin et Lanmeng Daozun discutèrent longuement. Nul autre qu'eux ne sut de quoi ils avaient parlé, et après avoir regardé Wang Lin s'éloigner, Lanmeng Daozun se mit en culture isolée.
 
@@ -104,7 +104,7 @@ Désormais, il avait trouvé la réponse.
 
 Wang Lin rangea le crâne et sortit de l'espace où se trouvait la Terre Gu Shen.
 
-« L'Ancien Maître Impérial du Dao qui ressemblait à Tian Yunzi a dit que j'avais trouvé le crâne et les cheveux blancs... Maintenant, le crâne a changé. Cela signifie-t-il qu'un jour, les cheveux blancs subiront un sort similaire... » Wang Lin s'éloigna, plongé dans une profonde réflexion.
+« Le Maître Impérial Dao Gu qui ressemblait à Tian Yunzi a dit que j'avais trouvé le crâne et les cheveux blancs... Maintenant, le crâne a changé. Cela signifie-t-il qu'un jour, les cheveux blancs subiront un sort similaire... » Wang Lin s'éloigna, plongé dans une profonde réflexion.
 
 Le temps s'écoula. En un clin d'œil, dix ans passèrent.
 

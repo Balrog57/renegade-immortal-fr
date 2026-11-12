@@ -30,13 +30,13 @@ Les trois essences étaient complètes. Même si un cultivateur au sommet du Vid
 
 Au moment où les trois essences se formèrent, un grondement sourd résonna, comme s'il provenait de l'au-delà du vide.
 
-Vide Brillant, aux abords de la planète Suzaku. Des dizaines de milliers de cultivateurs avaient formé un blocus autour de la planète.
+Kun Xu, aux abords de la planète Suzaku. Des dizaines de milliers de cultivateurs avaient formé un blocus autour de la planète.
 
 Ces cultivateurs provenaient tous du Royaume Extérieur. Ils portaient tous une marque entre les sourcils et leurs visages étaient empreints de cruauté et d'intention meurtrière. Un sentiment d'excitation planait également parmi eux.
 
-Ils encerclaient le dernier bastion du Vide Brillant, sous la conduite du Maître Nan Yunzi. Ils s'apprêtaient à livrer une bataille à mort.
+Ils encerclaient le dernier bastion du Kun Xu, sous la conduite du Maître Nan Yunzi. Ils s'apprêtaient à livrer une bataille à mort.
 
-À l'origine, le Maître Nan Yunzi ne souhaitait pas rester ici. Cependant, les cultivateurs du Vide Brillant étaient déjà épuisés par ces décennies de lutte. Leurs yeux étaient injectés de sang à force de tuer, et ils ne voulaient pas évacuer vers Luotian.
+À l'origine, le Maître Nan Yunzi ne souhaitait pas rester ici. Cependant, les cultivateurs du Kun Xu étaient déjà épuisés par ces décennies de lutte. Leurs yeux étaient injectés de sang à force de tuer, et ils ne voulaient pas évacuer vers Luotian.
 
 À leurs yeux, même s'ils se réfugiaient à Luotian, tout serait inutile!
 
@@ -44,7 +44,7 @@ Lorsque l'armée du Royaume Extérieur fondrait sur eux, où pourraient-ils fuir
 
 S'ils devaient mourir, ils mourraient dans leur patrie. S'ils devaient combattre jusqu'au bout, alors ils combattraient jusqu'à la mort sur la terre natale du Seigneur du Royaume Scellé, la planète Suzaku!
 
-La statue du Seigneur du Royaume Scellé se dressait telle une montagne. Les cultivateurs du Vide Brillant affichaient des sourires comme s'ils avaient oublié la mort!
+La statue du Seigneur du Royaume Scellé se dressait telle une montagne. Les cultivateurs du Kun Xu affichaient des sourires comme s'ils avaient oublié la mort!
 
 Situ Nan était également présent. Il aurait dû partir pour Luotian avec Qing Lin, mais il était revenu en hâte. C'était la planète Suzaku, c'était la terre natale de son frère, c'était là que Wang Lin avait disparu et trouvé la mort. Lui, Situ Nan, ne pouvait accepter de partir seul.
 
@@ -56,13 +56,13 @@ Parmi eux se trouvaient aussi le Maître Long Pan et le Maître Lu Fu.
 
 Après son réveil, le Maître Long Pan gardait un souvenir profond de Wang Lin et savait qu'il était le Seigneur du Royaume Scellé. Il savait que la planète Suzaku était la patrie de Wang Lin et que c'était là que ce dernier avait disparu.
 
-Il n'était pas obligé de venir, mais le Maître Long Pan l'avait fait malgré tout. Il n'avait pas emmené son disciple, Zhong Xuan. Utilisant une puissance équivalente à celle d'un cultivateur du Vide Arcanique, il employait la peinture des Rivières et des Montagnes pour empêcher les cultivateurs du Royaume Extérieur de briser la planète Suzaku d'un seul coup.
+Il n'était pas obligé de venir, mais le Maître Long Pan l'avait fait malgré tout. Il n'avait pas emmené son disciple, Xuan Zhong. Utilisant une puissance équivalente à celle d'un cultivateur du Vide Arcanique, il employait la peinture des Rivières et des Montagnes pour empêcher les cultivateurs du Royaume Extérieur de briser la planète Suzaku d'un seul coup.
 
 Le Maître Lu Fu n'était pas non plus retourné à Luotian, bien qu'il fût l'ancêtre de Luotian. Cependant, au cours des dernières décennies, il avait été témoin d'innombrables morts et avait trop vu. Profondément ému par Wang Lin, il était resté en silence pour livrer un combat acharné!
 
 « Ce vieil homme combattra jusqu'à la mort... » Les yeux du Maître Lu Fu étaient injectés de folie.
 
-Il y avait une autre personne, quelqu'un que Wang Lin connaissait bien: l'Empereur Divin du Dragon Azure! Il n'était pas mort et était réapparu il y a quelques décennies avec les Quatre Sectes Divines, devenant une force majeure pour le Vide Brillant.
+Il y avait une autre personne, quelqu'un que Wang Lin connaissait bien: l'Empereur Divin du Dragon Azure! Il n'était pas mort et était réapparu il y a quelques décennies avec les Quatre Sectes Divines, devenant une force majeure pour le Kun Xu.
 
 Aujourd'hui, il avait amené de nombreux Anciens des Quatre Sectes Divines pour livrer un combat à mort contre les cultivateurs du Royaume Extérieur sur la planète Suzaku.
 
@@ -82,15 +82,15 @@ Parmi les deux, Zhou Jin possédait le niveau de culture le plus bas. Il affront
 
 Le jeune homme en vert ayant maîtrisé l'essence de la glace possédait un niveau de culture extrêmement élevé. Il combattait avec son corps original, qui se situait au stade précoce du Vide Arcanique. Seul, il parvenait à repousser le Maître Long Pan et Situ Nan.
 
-C'était la bataille ultime du Vide Brillant. Tout le Vide Brillant était tombé, à l'exception de ce lieu. Seule la planète Suzaku subsistait!
+C'était la bataille ultime du Kun Xu. Tout le Kun Xu était tombé, à l'exception de ce lieu. Seule la planète Suzaku subsistait!
 
 À cet instant, cette guerre touchait à sa fin. Tandis que les dizaines de milliers de cultivateurs avançaient, les milliers de défenseurs du Royaume Intérieur étaient refoulés. Le désespoir les envahissait.
 
-« Gloire au Seigneur du Royaume Scellé! Gloire au Vide Brillant! » rugit un cultivateur d'âge moyen alors qu'il était transpercé par plusieurs épées volantes. Il choisit de se faire exploser, emportant deux cultivateurs du Royaume Extérieur dans sa chute.
+« Gloire au Seigneur du Royaume Scellé! Gloire au Kun Xu! » rugit un cultivateur d'âge moyen alors qu'il était transpercé par plusieurs épées volantes. Il choisit de se faire exploser, emportant deux cultivateurs du Royaume Extérieur dans sa chute.
 
-« Gloire au Seigneur du Royaume Scellé! Gloire au Vide Brillant! » De plus en plus de voix hurlaient la même chose dans le désespoir. Les cris se chevauchaient et fusionnaient; c'étaient les derniers souffles de ces vies.
+« Gloire au Seigneur du Royaume Scellé! Gloire au Kun Xu! » De plus en plus de voix hurlaient la même chose dans le désespoir. Les cris se chevauchaient et fusionnaient; c'étaient les derniers souffles de ces vies.
 
-« Le Seigneur du Royaume Scellé a déjà été tué par nos soins. Quelle gloire peut bien rester à un mort? » lança froidement le jeune homme en vert. D'un revers de main, il fit rugir la glace, gelant sur plus de mille pieds devant lui et forçant le Maître Long Pan et Situ Nan à reculer.
+« Le Seigneur du Royaume Scellé a déjà été tué par nos soins. Quelle gloire peut bien rester à un mort? » lança froidement le jeune homme en vert. D'un revers de main, il fit rugir la glace, gelant sur dix mille pieds devant lui et forçant le Maître Long Pan et Situ Nan à reculer.
 
 En entendant les mots « Seigneur du Royaume Scellé », une pointe d'humiliation traversa le regard de Zhou Jin. Une lueur de froideur jaillit dans ses yeux et son intention meurtrière s'intensifia.
 

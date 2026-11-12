@@ -94,11 +94,11 @@ Sous la conduite de Lu Wenran, tous les cultivateurs de la Tribulation du Vide s
 
 Le regard de Lu Wenran balaya l'étendue devant lui. À cet instant, une légère excitation l'animait; il ne prêta aucune attention à la grotte environnante, son regard ne faisant que passer inconsciemment.
 
-« Ce n'est pas encore le moment critique. Si quelqu'un ose provoquer davantage de chaos, ne me reprochez pas mon manque de pitié! Compagnon Zhou, venez nous expliquer la situation! » Après avoir parlé, Lu Wenran se tourna vers le vieil homme nommé Zhou.
+« Ce n'est pas encore le moment critique. Si quelqu'un ose provoquer davantage de chaos, ne me reprochez pas mon manque de pitié! Daoïste Zhou, venez nous expliquer la situation! » Après avoir parlé, Lu Wenran se tourna vers le vieil homme nommé Zhou.
 
 Le cœur de ce dernier trembla et il hocha rapidement la tête. Il observa la foule avec une expression complexe, puis, dans un soupir, joignit les mains et prit la parole.
 
-« Compagnons cultivateurs, ce vieil homme est le responsable du palais souterrain. La plupart d'entre vous me connaissent déjà... »
+« Daoïstes, ce vieil homme est le responsable du palais souterrain. La plupart d'entre vous me connaissent déjà... »
 
 « Soyez bref! » trancha Lu Wenran en fronçant les sourcils.
 
@@ -114,7 +114,7 @@ Le vieil homme nommé Zhou, tremblant, accéléra le débit de ses paroles.
 
 Il ne croyait pas un instant que Lu Wenran choisirait de porter cette armure si elle était réellement dangereuse. Il devait y avoir d'autres avantages cachés, sans quoi Lu Wenran n'aurait jamais consenti.
 
-« Compagnons cultivateurs, bien que cette armure soit périlleuse, c'est un moment crucial pour notre Continent Tian Niu. Comment pourrais-je laisser les autres s'en charger sous prétexte de danger? »
+« Daoïstes, bien que cette armure soit périlleuse, c'est un moment crucial pour notre Continent Tian Niu. Comment pourrais-je laisser les autres s'en charger sous prétexte de danger? »
 
 « Plus elle est dangereuse, plus il est de mon devoir de la porter. Si... si je venais à mourir tragiquement à cause de cette armure, alors je vous en prie, chaque année à cette date, offrez-moi simplement une cruche de vieux vin! » Lu Wenran bouillonnait d'excitation intérieure et peinait à se contenir. Cependant, en apparence, il affichait un air de tristesse solennelle, comme s'il était prêt à tout sacrifier pour les autres.
 

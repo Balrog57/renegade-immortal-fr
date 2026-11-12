@@ -32,7 +32,7 @@ Ce n'est qu'après sa disparition que les Exaltés Empyréens environnants déto
 
 « Difficile à dire. Bien que trente ans soit une courte période, avec un peu de chance, les Exaltés Empyréens peuvent progresser. Attendons, il reviendra sûrement à l'Épreuve Céleste une seconde fois. »
 
-À l'intérieur d'une grotte, près de la Mer Montagneuse, Wang Lin ouvrit soudainement les yeux. Une lueur jaillit de son regard.
+À l'intérieur d'une grotte, près de la Mer Shan Hai, Wang Lin ouvrit soudainement les yeux. Une lueur jaillit de son regard.
 
 Dès qu'il ouvrit les yeux, le dragon marin doré qui le gardait manifesta une joie évidente. Il encercla Wang Lin en émettant des sifflements affectueux.
 
@@ -44,23 +44,23 @@ Un homme et un dragon apparurent à l'extérieur de la grotte. À cet instant, l
 
 Le ressac résonnait aux oreilles de Wang Lin tandis que la brise marine caressait son corps. Ses cheveux blancs flottaient au vent, d'une blancheur éclatante sous le clair de lune, comme s'ils en reflétaient la lumière.
 
-Contemplant la Mer Montagneuse, Wang Lin réfléchit un instant, puis monta sur son dos. Le dragon marin poussa un rugissement et fonça vers la mer.
+Contemplant la Mer Shan Hai, Wang Lin réfléchit un instant, puis monta sur son dos. Le dragon marin poussa un rugissement et fonça vers la mer.
 
 Les Exaltés Empyréens ne se situaient qu'en dessous des Grands Empyréens et des quarante-huit Ascendants Empyréens. Dans la terre du clan céleste, parmi les soixante-douze continents, ils pouvaient aller presque partout, et quatre-vingt-dix-neuf pour cent des sectes étaient à leurs pieds. Ils étaient au sommet du clan céleste!
 
-Même ces âmes anciennes pouvaient être combattues lorsqu'elles étaient scellées! Tout comme en ce moment même: Wang Lin se dirigeait vers l'Arbre de la Mer Montagneuse qui était scellé ici. Avant d'acquérir la puissance d'un Exalté Empyréen, une telle entreprise lui aurait été impossible.
+Même ces âmes anciennes pouvaient être combattues lorsqu'elles étaient scellées! Tout comme en ce moment même: Wang Lin se dirigeait vers l'Arbre Shan Hai qui était scellé ici. Avant d'acquérir la puissance d'un Exalté Empyréen, une telle entreprise lui aurait été impossible.
 
 L'Exalté Empyréen Hai Zi, capable d'intégrer soixante-dix sorts en un seul doigt, vivait ici. Mais Wang Lin pouvait s'y rendre!
 
-Le dragon marin doré était extrêmement rapide. Il ne resta pas en l'air mais plongea dans les eaux dès qu'il atteignit la Mer Montagneuse. Étant un dragon marin à l'origine, il était comme un poisson dans l'eau et se déplaçait avec une célérité accrue.
+Le dragon marin doré était extrêmement rapide. Il ne resta pas en l'air mais plongea dans les eaux dès qu'il atteignit la Mer Shan Hai. Étant un dragon marin à l'origine, il était comme un poisson dans l'eau et se déplaçait avec une célérité accrue.
 
 Il laissa échapper une série de hurlements aigus qui déchirèrent le silence de la nuit.
 
-« L'armure d'âme du Taureau Céleste ne peut être utilisée longtemps. Même maintenant, elle ne tient pas plus d'une heure. L'Exalté Empyréen Hai Zi est très puissante, mais avec mon armure d'âme et mon Art Magique Rapide, il lui sera impossible de me vaincre! Cependant, je ne peux pas la battre en peu de temps. C'est pourquoi je dois agir ainsi! » Les yeux de Wang Lin s'illuminèrent et le dragon marin plongea encore plus profondément dans les abysses de la Mer Montagneuse.
+« L'armure d'âme du Taureau Céleste ne peut être utilisée longtemps. Même maintenant, elle ne tient pas plus d'une heure. L'Exalté Empyréen Hai Zi est très puissante, mais avec mon armure d'âme et mon Art Magique Rapide, il lui sera impossible de me vaincre! Cependant, je ne peux pas la battre en peu de temps. C'est pourquoi je dois agir ainsi! » Les yeux de Wang Lin s'illuminèrent et le dragon marin plongea encore plus profondément dans les abysses de la Mer Shan Hai.
 
 Les fluctuations qu'il provoquait créaient un vortex gigantesque, et ses rugissements faisaient vibrer l'océan. D'innombrables créatures marines, ébranlées par la puissance du dragon, reculèrent toutes, n'osant aucunement s'approcher.
 
-Ne tarda pas le moment où, alors que Wang Lin approchait du centre de la Mer Montagneuse, une vague monstrueuse surgit devant lui. Cette onde s'éleva vers le ciel, formant un mur d'eau qui barra la route au dragon marin.
+Ne tarda pas le moment où, alors que Wang Lin approchait du centre de la Mer Shan Hai, une vague monstrueuse surgit devant lui. Cette onde s'éleva vers le ciel, formant un mur d'eau qui barra la route au dragon marin.
 
 Le dragon afficha une expression féroce et percuta de sa tête géante le mur aqueux. Dans un fracas de tonnerre, la paroi s'effondra tandis que le dragon chargeait, l'eau explosant comme si elle bouillait.
 
@@ -70,15 +70,15 @@ Une fois la bête apparue, une magnifique femme se révéla, debout sur sa tête
 
 Une étoile de mer aux cinq couleurs ornait son joli front, tel un point de lumière qui permettait à sa beauté de s'épanouir pleinement en ce monde.
 
-« Wang Lin, que fais-tu encore ici? Bien que l'Esprit de l'Arbre de la Mer Montagneuse ne me soit d'aucune utilité, je ne te laisserai pas le prendre! » La femme fronça les sourcils en fixant Wang Lin, qui se tenait sur le dos du dragon marin ayant brisé le mur d'eau.
+« Wang Lin, que fais-tu encore ici? Bien que l'Esprit de l'Arbre Shan Hai ne me soit d'aucune utilité, je ne te laisserai pas le prendre! » La femme fronça les sourcils en fixant Wang Lin, qui se tenait sur le dos du dragon marin ayant brisé le mur d'eau.
 
 Le dragon poussa un rugissement, non pas contre la femme, mais contre la pieuvre située sous elle. L'animal possédait un regard sombre qui fixait également le dragon. Il était évident que ces souverains des mers s'étaient déjà rencontrés et avaient déjà combattu par le passé.
 
-Wang Lin resta calme sur le dos du dragon et, tournant son regard vers la belle femme, déclara: « Cet Esprit de l'Arbre de la Mer Montagneuse est d'une grande utilité pour moi. Je n'en ai pas besoin en entier, seulement d'une partie. Il ne vous est point utile et n'affectera pas la Mer Montagneuse. Pourquoi me compliquez-vous la tâche? De plus, il ne vous appartient pas, Exalté Empyréen Hai Zi. Il a été scellé par l'Ancêtre Céleste. Ce n'est pas parce que votre grotte se trouve ici que vous pouvez vous approprier cet objet unique! »
+Wang Lin resta calme sur le dos du dragon et, tournant son regard vers la belle femme, déclara: « Cet Esprit de l'Arbre Shan Hai est d'une grande utilité pour moi. Je n'en ai pas besoin en entier, seulement d'une partie. Il ne vous est point utile et n'affectera pas la Mer Shan Hai. Pourquoi me compliquez-vous la tâche? De plus, il ne vous appartient pas, Exalté Empyréen Hai Zi. Il a été scellé par l'Ancêtre Céleste. Ce n'est pas parce que votre grotte se trouve ici que vous pouvez vous approprier cet objet unique! »
 
 Wang Lin avait vu cette femme il y a trois ans. Sa beauté était absolue. Dans sa vie, il était rare de croiser une femme dont la splendeur égalait celle de Mu Bingmei — elle était l'unique exception. Et cette femme étant une Exaltée Empyréenne, elle possédait un tempérament singulier.
 
-La femme releva le menton et lança un regard glacial à Wang Lin avant de le pointer du doigt: « Je suis ici, donc tout ce qui appartient à la Mer Montagneuse m'appartient! Si tu parviens à me vaincre, tu pourras le prendre, mais en es-tu capable? Il y a trois ans, tu as fait apparaître ton corps véritable et tous tes avatars, mais tu n'as pas pu encaisser trois de mes coups. Trois ans à peine se sont écoulés et tu veux déjà réessayer? Quelle insolence! »
+La femme releva le menton et lança un regard glacial à Wang Lin avant de le pointer du doigt: « Je suis ici, donc tout ce qui appartient à la Mer Shan Hai m'appartient! Si tu parviens à me vaincre, tu pourras le prendre, mais en es-tu capable? Il y a trois ans, tu as fait apparaître ton corps véritable et tous tes avatars, mais tu n'as pas pu encaisser trois de mes coups. Trois ans à peine se sont écoulés et tu veux déjà réessayer? Quelle insolence! »
 
 Sur ces mots, le monde changea de couleur et la mer rugit alors que soixante-dix vortex apparaissaient entre elle et Wang Lin. Chaque vortex contenait l'un de ses sorts. Elle commença par son attaque la plus puissante, voulant manifestement forcer Wang Lin à reculer d'un seul coup!
 

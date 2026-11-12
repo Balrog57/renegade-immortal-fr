@@ -38,7 +38,7 @@ Wang Lin ne voulait pas de ce genre de choix!
 
 « J'ai assez de foi, et mon âme originelle contient également ma foi. Je veux voir comment cette tribulation tentera de me détruire avec elle! » Wang Lin regarda le sceau dans le ciel avec détermination.
 
-Il avait affronté la divine rétribution maintes fois au cours de sa vie et ne ressentait plus aucune crainte envers elle. Il n'éprouvait que la volonté farouche de s'élever au-dessus des cieux!
+Il avait affronté la Tribulation Céleste maintes fois au cours de sa vie et ne ressentait plus aucune crainte envers elle. Il n'éprouvait que la volonté farouche de s'élever au-dessus des cieux!
 
 Lorsque le huitième souffle arriva, Wang Lin leva la tête et son âme originelle dépérit si rapidement qu'il n'en resta qu'une trace. Cependant, cette trace contenait sa foi: sa foi de ne jamais abandonner et sa détermination à ressusciter Li Muwan!
 

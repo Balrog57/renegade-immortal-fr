@@ -14,11 +14,11 @@ Son sens divin se déploya une dernière fois à l'instant de son trépas, embra
 
 Emporté par la confusion et une conjecture inimaginable, son sens divin se dissipa. Son Âme Naissante devint une âme du grand drapeau des cent mille âmes...
 
-Wang Lin fut ramené à la ville de Zhao et se tint près de l'arbre, à l'extérieur de la zone d'examen. Grande Fortune dormait encore là. Tout ce qui s'était produit semblait n'être qu'un rêve.
+Wang Lin fut ramené à la ville du pays de Zhao et se tint près de l'arbre, à l'extérieur de la zone d'examen. Da Fu dormait encore là. Tout ce qui s'était produit semblait n'être qu'un rêve.
 
 « Le Karma... je commence à comprendre... » Wang Lin leva les yeux vers le ciel et vit à nouveau l'oiseau blanc. L'oiseau décrivait des cercles dans l'azur avant de disparaître lentement parmi les nuages.
 
-Après avoir réveillé Grande Fortune, les deux retournèrent à l'auberge. La lumière lunaire tombait du ciel, étirant leurs ombres sur le sol.
+Après avoir réveillé Da Fu, les deux retournèrent à l'auberge. La lumière lunaire tombait du ciel, étirant leurs ombres sur le sol.
 
 Le classement devait être publié quelques jours après l'examen. Tous les érudits attendaient ce jour avec une anxiété fébrile. Ceux qui figureraient au classement obtiendraient le titre de xiucai et auraient la chance de passer l'étape suivante.
 
@@ -30,9 +30,9 @@ C'était le désir de presque tous les érudits de Zhao.
 
 Moins de cinquante personnes dans tout le comté obtiendraient le titre de xiucai et l'opportunité de rejoindre la ville de Su. Bien que le nom de Wang Lin ne fût pas en tête de liste, il comptait parmi ces cinquante élus.
 
-En voyant son nom, Wang Lin ne ressentit aucune excitation. Il consulta calmement le classement et partit avec Grande Fortune, qui débordait de fierté et d'enthousiasme. Il se rendit à la mairie avec son laissez-passer et sa carte de visite pour confirmer son identité et obtenir son certificat de xiucai et percevoir la prime en argent dévolue par la cour impériale.
+En voyant son nom, Wang Lin ne ressentit aucune excitation. Il consulta calmement le classement et partit avec Da Fu, qui débordait de fierté et d'enthousiasme. Il se rendit à la mairie avec son laissez-passer et sa carte de visite pour confirmer son identité et obtenir son certificat de xiucai et percevoir la prime en argent dévolue par la cour impériale.
 
-Ce qui exaltait tant Grande Fortune n'était pas la présence de Wang Lin au classement, mais bien cet argent.
+Ce qui exaltait tant Da Fu n'était pas la présence de Wang Lin au classement, mais bien cet argent.
 
 Ses expériences durant ce peu plus d'un mois avaient transformé Wang Lin sans qu'il s'en aperçoive — ou plutôt, on pourrait dire qu'il avait toujours dû être ainsi. Ces rêves persistaient chaque nuit, et il s'y était désormais habitué.
 
@@ -46,29 +46,29 @@ L'aura d'un grand érudit se manifestait désormais sur lui. Parmi les innombrab
 
 En tant qu'immortel, il contemplerait froidement les autres cultivateurs; en tant que mortel, il serait tout autant un homme d'exception parmi les mortels!
 
-« La vie est un rêve. Je ne souhaite pas m'éveiller de ce songe. » Tandis que de nombreux érudits célébraient ou sombraient dans la mélancolie, Wang Lin quitta la ville, son coffre à livres en bambou sur le dos, avec Grande Fortune.
+« La vie est un rêve. Je ne souhaite pas m'éveiller de ce songe. » Tandis que de nombreux érudits célébraient ou sombraient dans la mélancolie, Wang Lin quitta la ville, son coffre à livres en bambou sur le dos, avec Da Fu.
 
 Tout comme il était venu, il partit avec calme.
 
-Grande Fortune suivait Wang Lin tout en continuant de compter leur argent. Il marmonnait parfois, le visage marqué par la douleur de voir ses économies fondre.
+Da Fu suivait Wang Lin tout en continuant de compter leur argent. Il marmonnait parfois, le visage marqué par la douleur de voir ses économies fondre.
 
-À la porte de la ville, Wang Lin s'arrêta et son regard se posa sur un étal de vin non loin de là. « Grande Fortune, va nous acheter du vin! » Il ressentit soudain l'envie de boire, bien qu'il eût déjà sombré dans l'ivresse après seulement deux coupes auparavant.
+À la porte de la ville, Wang Lin s'arrêta et son regard se posa sur un étal de vin non loin de là. « Da Fu, va nous acheter du vin! » Il ressentit soudain l'envie de boire, bien qu'il eût déjà sombré dans l'ivresse après seulement deux coupes auparavant.
 
-« Nous n'avons presque plus d'argent et tu veux encore du vin?! » Grande Fortune leva les yeux au ciel en agrippant le tissu de sa poitrine, secouant la tête de dépit.
+« Nous n'avons presque plus d'argent et tu veux encore du vin?! » Da Fu leva les yeux au ciel en agrippant le tissu de sa poitrine, secouant la tête de dépit.
 
-« À quoi bon cet argent? On peut disperser des milliers de pièces d'or, elles finiront toujours par revenir. Vite, va chercher ce vin! » Wang Lin sourit et poussa Grande Fortune.
+« À quoi bon cet argent? On peut disperser des milliers de pièces d'or, elles finiront toujours par revenir. Vite, va chercher ce vin! » Wang Lin sourit et poussa Da Fu.
 
-Après avoir protesté, Grande Fortune laissa échapper un long soupir. Il s'approcha de l'étal à contrecœur et commença à marchander d'une manière qui laissa Wang Lin stupéfait. Il utilisa même des procédés peu orthodoxes, au point que le marchand, avec un sourire amer, finit par lui vendre deux cruches de vin à un prix dérisoire.
+Après avoir protesté, Da Fu laissa échapper un long soupir. Il s'approcha de l'étal à contrecœur et commença à marchander d'une manière qui laissa Wang Lin stupéfait. Il utilisa même des procédés peu orthodoxes, au point que le marchand, avec un sourire amer, finit par lui vendre deux cruches de vin à un prix dérisoire.
 
-Malgré cela, Grande Fortune ressentit une telle douleur en déboursant ses pièces que son visage se crispa et qu'il se mit à grommeler:
+Malgré cela, Da Fu ressentit une telle douleur en déboursant ses pièces que son visage se crispa et qu'il se mit à grommeler:
 
 « À moi... c'était à moi! »
 
-Wang Lin rit et saisit la cruche. Il prit une longue gorgée, laissant le vin couler au coin de sa bouche. Grande Fortune le suivit rapidement, l'air accablé.
+Wang Lin rit et saisit la cruche. Il prit une longue gorgée, laissant le vin couler au coin de sa bouche. Da Fu le suivit rapidement, l'air accablé.
 
 Il était alors midi. Les deux s'éloignèrent davantage. L'aura solitaire et mélancolique qui entourait Wang Lin s'était largement dissipée, remplacée par un sentiment de liberté insouciante.
 
-« Jeune Maître, où allons-nous? » La voix de Grande Fortune résonna au loin.
+« Jeune Maître, où allons-nous? » La voix de Da Fu résonna au loin.
 
 « À la ville de Su. J'ai entendu dire que le vin à l'osmanthus y est excellent. Je dois y attendre quelqu'un. » Wang Lin prit une autre gorgée. Il délia ses cheveux, les laissant flotter derrière lui dans un éclat de rire.
 
@@ -82,21 +82,21 @@ Les étals de vin à l'osmanthus y étaient aussi renommés que les beautés de 
 
 Le Grand Érudit, Su Dao, avait aimé ce breuvage dès sa jeunesse, le consommant souvent tout en méditant sur les lois du monde. Une fois sa renommée acquise, la célébrité du vin à l'osmanthus ne fit que croître.
 
-Le voyage de deux mois passa en un clin d'œil. Wang Lin et Grande Fortune voyageaient dans une humble calèche en direction de Su. Wang Lin buvait le vin acheté en chemin tout en observant le paysage. Parfois, ses rires émanant de son ivresse légère résonnaient dans l'habitacle.
+Le voyage de deux mois passa en un clin d'œil. Wang Lin et Da Fu voyageaient dans une humble calèche en direction de Su. Wang Lin buvait le vin acheté en chemin tout en observant le paysage. Parfois, ses rires émanant de son ivresse légère résonnaient dans l'habitacle.
 
-« Jeune Maître, ne buvez plus! La quantité que vous consommez est effrayante. Cela ne fait que deux mois, seulement deux mois! Regardez tout ce que vous avez déjà englouti! Presque tout notre argent est parti dans votre ivresse! » s'exclama Grande Fortune, exprimant son désespoir le plus total.
+« Jeune Maître, ne buvez plus! La quantité que vous consommez est effrayante. Cela ne fait que deux mois, seulement deux mois! Regardez tout ce que vous avez déjà englouti! Presque tout notre argent est parti dans votre ivresse! » s'exclama Da Fu, exprimant son désespoir le plus total.
 
-« Si vous continuez ainsi, même une fois arrivés à Su, il ne nous restera rien pour payer une auberge! Qui vous a dit de boire autant? Allez, buvez donc encore! » Les remontrances de Grande Fortune étaient devenues quotidiennes durant ce voyage.
+« Si vous continuez ainsi, même une fois arrivés à Su, il ne nous restera rien pour payer une auberge! Qui vous a dit de boire autant? Allez, buvez donc encore! » Les remontrances de Da Fu étaient devenues quotidiennes durant ce voyage.
 
 Pourtant, loin d'agacer Wang Lin, ces jérémiades lui procuraient un sentiment de familiarité apaisant.
 
-« Ce n'est pas grave, tu es mon serviteur et mon intendant. S'il ne reste plus rien, tu n'auras qu'à aller en gagner! » plaisanta Wang Lin en riant. Il but une gorgée tout en observant la mine déconfite de Grande Fortune.
+« Ce n'est pas grave, tu es mon serviteur et mon intendant. S'il ne reste plus rien, tu n'auras qu'à aller en gagner! » plaisanta Wang Lin en riant. Il but une gorgée tout en observant la mine déconfite de Da Fu.
 
-Tandis que Grande Fortune continuait ses palabres, le crépuscule tomba et le soleil couchant diffusa une lueur pourpre. La lumière était douce, sans être éblouissante. Tandis que la calèche tressautait sur la route, ils approchèrent de la ville de Su.
+Tandis que Da Fu continuait ses palabres, le crépuscule tomba et le soleil couchant diffusa une lueur pourpre. La lumière était douce, sans être éblouissante. Tandis que la calèche tressautait sur la route, ils approchèrent de la ville de Su.
 
 La cité était vaste, d'une allure majestueuse. Cependant, ce n'était qu'une apparence; son intérieur était parsemé de rivières sinueuses qui lui conféraient une élégance naturelle.
 
-Après avoir payé le trajet, Grande Fortune contempla les quelques pièces restantes dans sa main et faillit pleurer. La majeure partie de leur fortune s'était évaporée dans l'estomac de Wang Lin.
+Après avoir payé le trajet, Da Fu contempla les quelques pièces restantes dans sa main et faillit pleurer. La majeure partie de leur fortune s'était évaporée dans l'estomac de Wang Lin.
 
 La tolérance à l'alcool de Wang Lin avait augmenté sans qu'il ne s'en rende compte; il n'était plus cet homme qui s'enivrait après seulement deux coupes.
 
@@ -106,23 +106,23 @@ En arpentant les rues de Su, il croisa une foule dense. Les étudiants représen
 
 Bien que l'apparence de Wang Lin fût ordinaire, son tempérament était singulier. En marchant, il attira de nombreux regards, notamment ceux de plusieurs beautés, mais il resta imperturbable et poursuivit sa route.
 
-Grande Fortune le suivait, arborant toujours cette expression de détresse et poussant des soupirs incessants.
+Da Fu le suivait, arborant toujours cette expression de détresse et poussant des soupirs incessants.
 
 Le crépuscule s'installait sur la ville de Su et la lune commençait à poindre. Tandis que les bateaux glissaient sur l'eau, on percevait les mélodies de la musique et les bruits de la vie nocturne. Wang Lin se tint sur un pont, contemplant les embarcations alors que le son d'une cithare emplissait ses oreilles.
 
-« Jeune Maître, qui attendons-nous? » Grande Fortune jeta un regard furtif vers des femmes dansant sur une jonque. Il déglutit, les yeux brillants de convoitise.
+« Jeune Maître, qui attendons-nous? » Da Fu jeta un regard furtif vers des femmes dansant sur une jonque. Il déglutit, les yeux brillants de convoitise.
 
 Wang Lin resta calme et murmura: « J'attends une personne de mon rêve. Il viendra m'offrir un pichet de vin. S'il se présente, cela confirmera l'une de mes conjectures. »
 
-Regardant la cruche vide dans la main de Wang Lin, Grande Fortune demanda prudemment: « Nous allons rester plantés là à attendre? Peut-être devrions-nous d'abord chercher une auberge bon marché... » Il craignait par-dessus tout que Wang Lin ne l'envoie racheter du vin.
+Regardant la cruche vide dans la main de Wang Lin, Da Fu demanda prudemment: « Nous allons rester plantés là à attendre? Peut-être devrions-nous d'abord chercher une auberge bon marché... » Il craignait par-dessus tout que Wang Lin ne l'envoie racheter du vin.
 
-Wang Lin secoua la tête avec un sourire énigmatique. Il regarda Grande Fortune et dit avec nonchalance:
+Wang Lin secoua la tête avec un sourire énigmatique. Il regarda Da Fu et dit avec nonchalance:
 
 « Je me souviens qu'il y avait beaucoup d'argent, surtout après avoir reçu la prime de l'examen... »
 
-« Ah bon? Euh... j'ai oublié... » Grande Fortune cligna des yeux, l'air embarrassé.
+« Ah bon? Euh... j'ai oublié... » Da Fu cligna des yeux, l'air embarrassé.
 
-« Sors l'argent que tu as caché, achète du vin à l'osmanthus et loue un bateau. Nous vivrons sur le bateau quelques jours. » Wang Lin agita sa manche avec un sourire, sans plus regarder Grande Fortune.
+« Sors l'argent que tu as caché, achète du vin à l'osmanthus et loue un bateau. Nous vivrons sur le bateau quelques jours. » Wang Lin agita sa manche avec un sourire, sans plus regarder Da Fu.
 
 Un vent léger souffla, créant des ondulations à la surface de la rivière qui vint effleurer le corps de Wang Lin. C'était une brise douce et chaleureuse. Porté par ce souffle, le son de la cithare s'intensifia.
 

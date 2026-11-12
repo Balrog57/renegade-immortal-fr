@@ -58,7 +58,7 @@ Du point de vue de Wang Lin, cette haine ne semblait pas si profonde, mais compt
 
 Le temps s'écoulait lentement. L'Enseignant Impérial attendit amèrement un long moment. Face à l'indifférence de Wang Lin, il ne put s'empêcher de soupirer. Il serra les dents et reprit:
 
-« Si le Compagnon Cultivateur Wang accepte ma proposition, je peux vous offrir toutes les Flammes Joss fournies par tous les mondes caverneux du Continent Astral Immortel. Si le Compagnon Cultivateur Wang les absorbe toutes, les bénéfices seront immenses!
+« Si le Daoïste Wang accepte ma proposition, je peux vous offrir toutes les Flammes Joss fournies par tous les mondes caverneux du Continent Astral Immortel. Si le Daoïste Wang les absorbe toutes, les bénéfices seront immenses!
 
 « Peu importe votre niveau de culture, vos sorts ou votre longévité, vous subirez une métamorphose. Après un certain temps, vous aurez la chance d'atteindre un royaume de vide et de destruction! Un tel niveau suffira à vous placer au sommet! » Après avoir terminé son discours, l'Enseignant Impérial porta sa main droite vers son front. Un cristal noir de la taille d'un poing apparut lentement. Il ne dégageait aucune lumière, mais une puissante aura de Flamme Joss s'en dégageait.
 
@@ -80,11 +80,11 @@ Wang Lin réfléchit un instant, puis agita la main droite pour ranger immédiat
 
 L'Enseignant Impérial fut transporté d'excitation en voyant la goutte de sang. Il pointa le bassin où se trouvait l'Ascendant Empyréen Ming Dao et dit:
 
-« Merci infiniment, Compagnon Cultivateur! En cet instant, chaque seconde compte. Je vous demande d'entrer dans le bassin afin que je puisse lancer le sort pendant que l'Empereur Céleste est occupé et que Ming Dao ne s'est pas encore réveillé, pour ainsi vous transférer l'héritage!
+« Merci infiniment, Daoïste! En cet instant, chaque seconde compte. Je vous demande d'entrer dans le bassin afin que je puisse lancer le sort pendant que l'Empereur Céleste est occupé et que Ming Dao ne s'est pas encore réveillé, pour ainsi vous transférer l'héritage!
 
-« Cette épreuve sera douloureuse et nécessitera de modifier votre sang afin que vous possédiez celui de l'Ancêtre Céleste. Je demande au Compagnon Cultivateur de ne pas résister, car si vous résistez, tous les efforts précédents seront vains...
+« Cette épreuve sera douloureuse et nécessitera de modifier votre sang afin que vous possédiez celui de l'Ancêtre Céleste. Je demande au Daoïste de ne pas résister, car si vous résistez, tous les efforts précédents seront vains...
 
-« Compagnon Cultivateur Wang... » L'expression de l'Enseignant Impérial était grave. Il regarda Wang Lin avec une profonde gratitude. Il joignit les mains et s'inclina devant lui pour la seconde fois!
+« Daoïste Wang... » L'expression de l'Enseignant Impérial était grave. Il regarda Wang Lin avec une profonde gratitude. Il joignit les mains et s'inclina devant lui pour la seconde fois!
 
 « Mon clan se souviendra de votre grâce! Je vous remercie au nom de tous les membres de mon clan sur le Continent Astral Immortel! »
 
@@ -94,9 +94,9 @@ Wang Lin dit lentement: « Je dois d'abord sauver Lian Daofei! »
 
 L'Enseignant Impérial esquissa un sourire amer en regardant Lian Daofei, entravé par les neuf chaînes. Il secoua la tête dans un soupir.
 
-« Compagnon Cultivateur Wang, ce vieil homme ne veut pas vous tromper. Les chaînes sur le corps de Lian Daofei ont été posées par l'Empereur Céleste, je ne peux donc pas les retirer. Même s'il combat le Grand Empyréen Shuangzi, dès qu'elles seront touchées, il le remarquera immédiatement... Je ne peux donc vraiment pas les briser.
+« Daoïste Wang, ce vieil homme ne veut pas vous tromper. Les chaînes sur le corps de Lian Daofei ont été posées par l'Empereur Céleste, je ne peux donc pas les retirer. Même s'il combat le Grand Empyréen Shuangzi, dès qu'elles seront touchées, il le remarquera immédiatement... Je ne peux donc vraiment pas les briser.
 
-« Mais une fois que vous aurez obtenu le pouvoir de l'Ancêtre Céleste, tout sera résolu! Croyez-moi une fois, Compagnon Cultivateur, croyez-moi une seule fois. Je vous le jure sur la vie et l'avenir de tout mon clan!
+« Mais une fois que vous aurez obtenu le pouvoir de l'Ancêtre Céleste, tout sera résolu! Croyez-moi une fois, Daoïste, croyez-moi une seule fois. Je vous le jure sur la vie et l'avenir de tout mon clan!
 
 « Croyez-moi! » L'Enseignant Impérial était d'une sincérité absolue. Il avait sacrifié sa vie pour que Wang Lin lui accorde sa confiance une unique fois.
 

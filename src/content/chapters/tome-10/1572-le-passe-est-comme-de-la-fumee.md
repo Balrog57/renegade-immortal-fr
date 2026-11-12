@@ -80,12 +80,12 @@ Wang Lin leva la main qui effleurait la pierre tombale et s'assit silencieusemen
 — C'est... ce goût... Le vin avait une saveur familière, comme s'il avait été transporté mille ans en arrière.
 
 Zhou Wutai murmura:
-— C'est le vin de la famille Ceng. J'en ai gardé beaucoup pour pouvoir boire à nouveau avec toi.
+— C'est le vin de la famille Zeng. J'en ai gardé beaucoup pour pouvoir boire à nouveau avec toi.
 
 Il prit la cruche et en but une gorgée. Levant les yeux vers le ciel, il ajouta lentement:
-— J'ai pris cet enfant de la famille Ceng comme disciple... S'il savait que tu reviendrais, il en serait très heureux.
+— J'ai pris cet enfant de la famille Zeng comme disciple... S'il savait que tu reviendrais, il en serait très heureux.
 
-Wang Lin réfléchit en silence; l'image de l'enfant de Ceng Niu lui revint en mémoire. Cet enfant qui possédait un talent certain. Wang Lin regarda la tombe de ses parents et dit doucement:
+Wang Lin réfléchit en silence; l'image de l'enfant de Zeng Niu lui revint en mémoire. Cet enfant qui possédait un talent certain. Wang Lin regarda la tombe de ses parents et dit doucement:
 — Merci.
 
 — Pourquoi me remercier? Ma position de seigneur de la planète Suzaku, c'est toi qui me l'as donnée. Pourtant, je ne peux empêcher ces gens d'arriver sur la planète. Depuis que tu es devenu le Seigneur du Royaume Scellé, une multitude de personnes sont venues. Elles sont arrivées avec de bonnes intentions, voulant faire de ce lieu une terre sainte. Je ne peux que protéger ce pays de Zhao... dit Zhou Wutai avec amertume avant de prendre une longue gorgée.
@@ -97,10 +97,10 @@ Wang Lin ne répondit pas et vida la cruche. Zhou Wutai en sortit alors d'autres
 Le ciel s'obscurcit progressivement et le clair de lune enveloppa la terre, une lumière douce mais teintée de froideur argentée. Les deux hommes restèrent assis sous la lune, buvant du vin dans l'ancienne demeure de Wang Lin, évoquant le passé.
 
 — La vie de Yun Quezi, du Clan Fu Wen, est arrivée à son terme. Je l'ai enterré... Avant de mourir, il ne cessait de prononcer ton nom...
-— Le Nuage Céleste est désormais l'une des neuf grandes sectes, mais tous les anciens visages ont disparu. La planète Suzaku d'aujourd'hui... ne parlons même pas de toi, même moi j'ai le sentiment qu'elle est devenue méconnaissable...
+— La Secte Yun Tian est désormais l'une des neuf grandes sectes, mais tous les anciens visages ont disparu. La planète Suzaku d'aujourd'hui... ne parlons même pas de toi, même moi j'ai le sentiment qu'elle est devenue méconnaissable...
 — Très peu de personnes du passé subsistent encore... dit Zhou Wutai en buvant, ses yeux plongés dans ses souvenirs.
 
-— Te souviens-tu encore de Zhou Zihong, du pays de Huo Fen? Je n'ai appris que bien plus tard que tu la connaissais. Elle est partie avec sa mère, Feng Luan, il y a bien des années. J'ai entendu dire qu'elles avaient rejoint une secte sur la Rivière Invoquée...
+— Te souviens-tu encore de Zhou Zihong, du pays de Huo Fen? Je n'ai appris que bien plus tard que tu la connaissais. Elle est partie avec sa mère, Feng Luan, il y a bien des années. J'ai entendu dire qu'elles avaient rejoint une secte sur la Rivière Zhao He...
 — Le partenaire taoïste de Zhou Zihong est mort lors d'une grande bataille il y a quelques années...
 
 Wang Lin écoutait les récits de Zhou Wutai en buvant silencieusement, cruche après cruche.
@@ -115,6 +115,6 @@ Il prit une grande gorgée et la tristesse perça son regard.
 Il baissa la tête.
 — Mon disciple aimait profondément son foyer, il ne voulait pas quitter sa terre natale...
 
-Wang Lin resta muet. Il but le vin de la famille Ceng avec Zhou Wutai jusqu'à ce que la lune disparaisse, et que l'aube blanchisse le ciel.
+Wang Lin resta muet. Il but le vin de la famille Zeng avec Zhou Wutai jusqu'à ce que la lune disparaisse, et que l'aube blanchisse le ciel.
 
 — Wang Lin, Hongdie n'est peut-être pas morte! lança Zhou Wutai, l'âme ivre, au moment où le soleil commençait à poindre.

@@ -18,7 +18,7 @@ Lorsque le pied droit de Wang Lin toucha terre et qu'il leva la tête, la terre 
 
 Le soleil et la lune disparurent, les rivières et les mers se dissipèrent, et le ciel et la terre formant ce Monde Ancien tout entier s'effondrèrent.
 
-Le corps de Gu Dao trembla et il cracha une bouchée de sang. Il recula de plus de cent pieds avant de s'arrêter, son visage devenant pâle pour la première fois.
+Le corps de Gu Dao trembla et il cracha une bouchée de sang. Il recula de plus de mille pieds avant de s'arrêter, son visage devenant pâle pour la première fois.
 
 « Le stade du Piétinement des Cieux! C'est le stade complet du Piétinement des Cieux! » Il était sous le choc en regardant Wang Lin. Il sentait qu'une puissance terrifiante était en train de s'éveiller.
 
@@ -80,7 +80,7 @@ Wang Lin murmura tandis qu'il observait le pied gigantesque qui tombait du ciel.
 
 À l'intérieur de son corps, une nouvelle étincelle apparut aux côtés de ses trois essences éthérées. Cette étincelle était l'essence de la réincarnation qu'il venait de concevoir!
 
-« Alors c'est ainsi... » Wang Lin médita silencieusement tandis que le pied colossal grondait au-dessus de sa tête. Il ne restait plus qu'une centaine de pieds. Cependant, à ce moment précis, un son étrange s'imposa et résonna à travers le monde.
+« Alors c'est ainsi... » Wang Lin médita silencieusement tandis que le pied colossal grondait au-dessus de sa tête. Il ne restait plus qu'un millier de pieds. Cependant, à ce moment précis, un son étrange s'imposa et résonna à travers le monde.
 
 C'était le bruit du vent!
 
@@ -106,7 +106,7 @@ Désormais, au centre de la vaste cuvette, aux abords de la tempête marine et s
 
 Pourtant, cette troisième apparition ne comportait toujours que les neuf chants et manquait encore le troisième signe. C'était comme s'il manquait quelque chose, une pièce maîtresse indispensable!
 
-Wang Lin leva la tête. Ce qu'il regardait n'était pas le pied géant qui semblait s'être arrêté à une centaine de pieds de lui. Au lieu de cela, son regard semblait percer l'enchantement pour contempler le vide au-delà du ciel.
+Wang Lin leva la tête. Ce qu'il regardait n'était pas le pied géant qui semblait s'être arrêté à un millier de pieds de lui. Au lieu de cela, son regard semblait percer l'enchantement pour contempler le vide au-delà du ciel.
 
 À cet instant, son esprit était limpide et il sembla comprendre ce qui lui manquait.
 

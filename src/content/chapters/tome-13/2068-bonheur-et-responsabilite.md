@@ -16,9 +16,9 @@ On ignorait depuis combien de temps, mais un groupe de fonctionnaires venus se r
 
 De la fumée s'échappait de la cheminée. C'était le petit matin et l'on devinait qu'un petit-déjeuner se préparait à l'intérieur de la demeure.
 
-Tout en nourrissant les oiseaux, la jeune fille riait et lançait des paroles vers la maison: « Maman, j'ai encore rêvé cette nuit. J'ai rêvé que je devenais une divinité céleste. »
+Tout en nourrissant les oiseaux, la jeune fille riait et lançait des paroles vers la maison: « Maman, j'ai encore rêvé cette nuit. J'ai rêvé que je devenais Immortelle. »
 
-« Espèce d'enfant, tu es déjà grande et tu fantasmes toujours sur le fait de devenir une divinité céleste. À ton âge, j'étais déjà mariée à ton père », répondit une voix douce provenant de la maison.
+« Espèce d'enfant, tu es déjà grande et tu fantasmes toujours sur le fait de devenir Immortelle. À ton âge, j'étais déjà mariée à ton père », répondit une voix douce provenant de la maison.
 
 « Est-ce parce que mon père est le chasseur le plus puissant du village? J'ai entendu dire que beaucoup de femmes voulaient sortir avec lui à l'époque », sourit la jeune fille. Elle était très mignonne; si son apparence n'était pas d'une beauté exceptionnelle, elle dégageait un tempérament pur et adorable.
 
@@ -58,11 +58,11 @@ Wang Lin observa l'animal et, voyant la terreur dans ses yeux, son sourire s'él
 
 Pourtant, la famille ne remarqua rien d'anormal dans le comportement du chien. La jeune fille regarda son père et dit avec affection:
 
-« Papa, j'ai encore rêvé que j'étais une divinité céleste cette nuit. »
+« Papa, j'ai encore rêvé que j'étais Immortelle cette nuit. »
 
-« C'est bien, être une divinité céleste est une noble aspiration. Ma petite fille deviendra certainement une divinité céleste », rit l'homme.
+« C'est bien, être Immortelle est une noble aspiration. Ma petite fille deviendra certainement Immortelle », rit l'homme.
 
-« Je ne veux pas devenir une divinité céleste. J'ai l'impression d'avoir passé une vie entière dans cet état, mais je n'étais pas du tout heureuse. Maintenant, c'est bien mieux. Ce n'était qu'un rêve, je ne veux plus être une divinité céleste. Je resterai avec Papa et Maman pour le reste de ma vie. » Les paroles de la jeune fille étaient d'une grande gravité.
+« Je ne veux pas devenir Immortelle. J'ai l'impression d'avoir passé une vie entière dans cet état, mais je n'étais pas du tout heureuse. Maintenant, c'est bien mieux. Ce n'était qu'un rêve, je ne veux plus être Immortelle. Je resterai avec Papa et Maman pour le reste de ma vie. » Les paroles de la jeune fille étaient d'une grande gravité.
 
 Ces mots surprirent Wang Lin, qui afficha une expression complexe. Il observa le sourire radieux de la fillette, puis le calme du village de montagne. Après un long silence, Wang Lin lança un dernier regard profond avant de disparaître dans les cieux.
 

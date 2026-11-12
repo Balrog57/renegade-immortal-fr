@@ -24,7 +24,7 @@ De loin, la scène était saisissante. Le fourneau vert s'effondrait encore, dis
 
 C'est à cet instant que des ondulations résonnèrent et que trois rayons de lumière convergèrent. Pourtant, lorsqu'ils révélèrent leur présence, les trois hommes tremblèrent de stupeur face au spectacle qui s'offrait à eux!
 
-Les trois arrivants étaient les autres détenteurs de l'armure d'âme du Taureau Céleste aux côtés de Wang Lin: Yun Yifeng, Tang Jia et le vieil homme Bord-des-Nuages!
+Les trois arrivants étaient les autres détenteurs de l'armure d'âme du Taureau Céleste aux côtés de Wang Lin: Yun Yifeng, Tang Jia et le vieil homme Bian Yun!
 
 Après cent ans, ils étaient venus au Temple Lu Mo Xie pour une raison inconnue. Le voyage vers le temple avait été extrêmement ardu, mais une fois sur place, le chemin s'était révélé sans encombre. Ils n'avaient rien rencontré et avaient atteint la partie la plus profonde du sanctuaire.
 
@@ -32,7 +32,7 @@ Cependant, ce qui les attendait était cette lame capable de faire trembler les 
 
 « Wang Lin!! Il est donc vraiment ici!! » Yun Yifeng et Tang Jia furent tous deux stupéfaits.
 
-« N'était-il pas mort?! » Les pupilles de Bord-des-Nuages se rétractèrent, le visage empreint de choc.
+« N'était-il pas mort?! » Les pupilles de Bian Yun se rétractèrent, le visage empreint de choc.
 
 La lame fendit l'air dans un éclat fulgurant alors que le cri de l'âme du scorpion atteignait son paroxysme. L'entité trembla, tentant de résister, mais elle ne devait pas seulement affronter la lame de Wang Lin — les lames de ses quatre corps véritables d'essence convergeaient également sur elle!
 
@@ -56,13 +56,13 @@ Tang Jia fut frappée par la même sensation. Le visage pâle, elle fixait Wang 
 
 Ce regard possédait une acuité capable de déchirer le monde lui-même. Il dégageait une force de suppression qui pouvait briser quiconque s'y heurtait!
 
-Comparé aux deux autres, Bord-des-Nuages ressentit l'effet de manière encore plus brutale. Il avait déjà combattu Wang Lin par le passé, et ce dernier ne l'avait pas ménagé. Sous la puissance du regard, son cœur cogna violemment contre sa poitrine et il recula de trois pas. Son visage devint livide et son front se couvrit de sueur. Des échos tonitruants martelaient ses oreilles; il se sentit abandonné du monde, seul face à l'oppression des cieux.
+Comparé aux deux autres, Bian Yun ressentit l'effet de manière encore plus brutale. Il avait déjà combattu Wang Lin par le passé, et ce dernier ne l'avait pas ménagé. Sous la puissance du regard, son cœur cogna violemment contre sa poitrine et il recula de trois pas. Son visage devint livide et son front se couvrit de sueur. Des échos tonitruants martelaient ses oreilles; il se sentit abandonné du monde, seul face à l'oppression des cieux.
 
 Il eut même l'impression que les cieux qui l'écrasaient n'étaient autre que le regard de Wang Lin. Il lui semblait qu'une épée invisible résidait dans les yeux de Wang Lin, une lame qui ne s'était pas encore pleinement manifestée. Si elle le faisait, il serait instantanément mis en pièces!
 
-Cette sensation était si puissante qu'il faillit sombrer dans la folie. Alors qu'il était sur le point de s'effondrer, les paroles de Wang Lin résonnèrent comme une loi universelle. Bord-des-Nuages battit en retraite frénétiquement, et ce n'est que lorsqu'il fut à plusieurs kilomètres de là qu'il retrouva un semblant de calme. Son corps était trempé de sueur, lui laissant un frisson glacial.
+Cette sensation était si puissante qu'il faillit sombrer dans la folie. Alors qu'il était sur le point de s'effondrer, les paroles de Wang Lin résonnèrent comme une loi universelle. Bian Yun battit en retraite frénétiquement, et ce n'est que lorsqu'il fut à plusieurs kilomètres de là qu'il retrouva un semblant de calme. Son corps était trempé de sueur, lui laissant un frisson glacial.
 
-Yun Yifeng et Tang Jia reculèrent également. N'ayant pas été directement oppressés par Wang Lin, leur retraite fut moins humiliante que celle de Bord-des-Nuages. Cependant, Yun Yifeng éprouvait une immense amertume. Il n'avait jamais imaginé rencontrer Wang Lin ici après un siècle, et encore moins assister à une telle scène.
+Yun Yifeng et Tang Jia reculèrent également. N'ayant pas été directement oppressés par Wang Lin, leur retraite fut moins humiliante que celle de Bian Yun. Cependant, Yun Yifeng éprouvait une immense amertume. Il n'avait jamais imaginé rencontrer Wang Lin ici après un siècle, et encore moins assister à une telle scène.
 
 Les trois restèrent silencieux, songeant à la situation, avant de se retirer lentement. Ils ne quittèrent pas le temple du scorpion, mais s'arrêtèrent à une distance respectable de Wang Lin. Ils avaient encore une mission à accomplir et le temple n'était pas totalement détruit.
 

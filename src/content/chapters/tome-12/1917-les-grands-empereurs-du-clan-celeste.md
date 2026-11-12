@@ -42,7 +42,7 @@ En vérité, il n'avait pas grand-chose donné au fou; c'était plutôt le fou q
 
 « L'Empereur Céleste du Continent Central a hérité des Huit Dao Extrêmes de l'Ancêtre Céleste et est le Grand Empyréen Huit Extrêmes! »
 
-« La Secte Yang Pourpre du Continent de l'Est, le plus puissant des neuf sectes et treize factions, abrite le Grand Empyréen Shuangzi! »
+« La Secte Zi Yang du Continent de l'Est, le plus puissant des neuf sectes et treize factions, abrite le Grand Empyréen Shuangzi! »
 
 « La Secte Dao Yi du Continent Nan possède le Grand Empyréen Dao Yi! »
 
@@ -94,7 +94,7 @@ Bien que le fait qu'un cultivateur du monde des grottes puisse s'en extraire fû
 
 « Avec assez de renommée, les Grands Empyréens viendront d'eux-mêmes me chercher! » Les yeux de Wang Lin brillèrent, empreints d'une détermination accrue.
 
-« Au total, cinq Grands Empyréens. L'Empereur Céleste peut être ignoré. Quant aux quatre autres... Je ne sais que très peu de choses sur le Grand Empyréen Dao Yi, le Grand Empyréen Wu Feng ou le Grand Empyréen Jiu Di. Je n'ai rencontré que le Grand Empyréen Shuangzi de la Secte Yang Pourpre du Continent de l'Est... » Wang Lin se remémora sa rencontre avec Tan Lang dans le monde des grottes et les deux charmantes petites filles nommées Wa Wa et Han Han.
+« Au total, cinq Grands Empyréens. L'Empereur Céleste peut être ignoré. Quant aux quatre autres... Je ne sais que très peu de choses sur le Grand Empyréen Dao Yi, le Grand Empyréen Wu Feng ou le Grand Empyréen Jiu Di. Je n'ai rencontré que le Grand Empyréen Shuangzi de la Secte Zi Yang du Continent de l'Est... » Wang Lin se remémora sa rencontre avec Tan Lang dans le monde des grottes et les deux charmantes petites filles nommées Wa Wa et Han Han.
 
 « Je dois attirer leur attention pour qu'ils viennent à ma rencontre. C'est la meilleure stratégie! » Les yeux de Wang Lin s'illuminèrent, puis il les ferma lentement.
 
@@ -118,6 +118,6 @@ Les dizaines d'âmes originelles, de niveaux inégaux, avaient été en grande p
 
 « Je me demande combien de Veines Magiques l'âme originelle du Maître de la Secte Dao Mo pourra former... » Wang Lin ferma les yeux et commença à façonner les Veines Magiques avec l'âme du Maître de la Secte.
 
-À cet instant, le ciel était clair et la lumière du soleil brillait de mille feux. Alors que Wang Lin forgeait sa veine magique, un rayon de lumière fendit la frontière entre le Continent Terre-Meng et le Continent Lu Mo. Les cultivateurs furent ébranlés par ce flash lumineux, et aucun d'eux n'osa lever les yeux vers l'extérieur.
+À cet instant, le ciel était clair et la lumière du soleil brillait de mille feux. Alors que Wang Lin forgeait sa veine magique, un rayon de lumière fendit la frontière entre le Continent Meng Tu et le Continent Lu Mo. Les cultivateurs furent ébranlés par ce flash lumineux, et aucun d'eux n'osa lever les yeux vers l'extérieur.
 
 Les frontières entre les continents étaient totalement ignorées par les Exaltés Empyréens!

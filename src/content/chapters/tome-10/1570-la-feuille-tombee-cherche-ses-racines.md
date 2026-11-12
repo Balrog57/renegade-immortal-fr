@@ -46,7 +46,7 @@ De nombreux pays de culture sur la planète Suzaku avaient disparu; désormais, 
 
 Ces neuf grandes sectes occupaient la majeure partie du territoire.
 
-En avançant, Wang Lin aperçut la Secte Lian Hun. Le souvenir de Du Tian était toujours là, mais la Secte Lian Hun n'était plus la même. La montagne avait disparu, remplacée par un lac entouré de nombreux pavillons d'où émanaient des ondes d'énergie spirituelle, mais il s'agissait désormais d'une autre secte.
+En avançant, Wang Lin aperçut la Secte Lian Hun. Le souvenir de Dun Tian était toujours là, mais la Secte Lian Hun n'était plus la même. La montagne avait disparu, remplacée par un lac entouré de nombreux pavillons d'où émanaient des ondes d'énergie spirituelle, mais il s'agissait désormais d'une autre secte.
 
 C'était ici que Situ Nan s'était réveillé. Ses paroles tyranniques, capables de faire cesser la pluie, résonnaient encore aux oreilles de Wang Lin, mais il ne décelait plus aucune aura familière.
 
@@ -56,7 +56,7 @@ Le Clan Ju Mo du passé apparut dans son esprit, mais lui aussi avait changé. L
 
 Après un long moment, le pays de Xue Yu apparut. La terre enneigée n'était plus qu'un souvenir. La neige avait fondu depuis longtemps. L'endroit était devenu une jungle dense qui ne ressemblait en rien au passé. Même les cités avaient été rasées, n'étant plus que des ruines englouties par la végétation.
 
-Enfouie sous cette jungle se trouvait également cette capitale mortelle particulière, celle qui avait été le témoin de près de cent ans de la vie de Wang Lin. C'était là qu'un enfant nommé Ceng Niu avait grandi.
+Enfouie sous cette jungle se trouvait également cette capitale mortelle particulière, celle qui avait été le témoin de près de cent ans de la vie de Wang Lin. C'était là qu'un enfant nommé Zeng Niu avait grandi.
 
 En contemplant la jungle en contrebas, le cœur de Wang Lin se serra. C'était un sentiment indescriptible. Il avait l'impression que ce n'était plus sa maison...
 

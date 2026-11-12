@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1597 - The One Line From Hundreds of Years Ago
 slug: une-seule-phrase-venue-dil-y-a-des-siecles
 ---
-Quelques jours plus tôt, alors que Wang Lin repoussait inconsciemment la tempête, le frère aîné de Dun Tian ressentit quelque chose. Il consuma alors une grande quantité de sa durée de vie et de sa force vitale pour procéder à neuf divinations.
+Quelques jours plus tôt, alors que Wang Lin repoussait inconsciemment la tempête, le Senior frère Dun Tian ressentit quelque chose. Il consuma alors une grande quantité de sa durée de vie et de sa force vitale pour procéder à neuf divinations.
 
 Il cherchait à découvrir l'avenir de la Secte Lian Hun. Il voulait trouver à la Secte Lian Hun un chemin vers la survie!
 
@@ -18,9 +18,9 @@ En conséquence, il s'y rendit avec des attentes élevées mêlées à un sentim
 
 Ces érudits n'étaient que des mortels; comment pourraient-ils répondre à une telle question? Avec le niveau de culture de cet homme d'âge moyen, oubliez le pays de Zhao, il était considéré comme extrêmement puissant sur toute la planète. Transformation de l'Âme, Transformation de l'Âme, il n'était qu'à un pas de l'Ascendant!
 
-L'homme d'âge moyen retroussa ses manches et le vent noir rugit. D'innombrables fantômes hurlaient à l'intérieur, entourant Wang Lin et Grande Fortune. Cela fit que la zone se sépara du monde, devenant floue et indistincte.
+L'homme d'âge moyen retroussa ses manches et le vent noir rugit. D'innombrables fantômes hurlaient à l'intérieur, entourant Wang Lin et Da Fu. Cela fit que la zone se sépara du monde, devenant floue et indistincte.
 
-Grande Fortune dormait toujours. Ses ronflements résonnaient, semblant totalement déplacés. Wang Lin se retourna et regarda l'homme qui venait de sortir de ce monde ténébreux.
+Da Fu dormait toujours. Ses ronflements résonnaient, semblant totalement déplacés. Wang Lin se retourna et regarda l'homme qui venait de sortir de ce monde ténébreux.
 
 Cette personne était un immortel, Wang Lin le comprenait, mais il n'avait aucune crainte. Il pouvait voir que bien que l'homme d'âge moyen paraisse puissant, il était en fait extrêmement faible.
 
@@ -32,7 +32,7 @@ Il regarda calmement l'homme d'âge moyen qui s'approchait et dit lentement:
 
 « Parlez. »
 
-L'homme d'âge moyen fut surpris. Il se tint à quelques mètres de Wang Lin et l'observa attentivement. À ses yeux, Wang Lin était très ordinaire, un véritable mortel et non un cultivateur.
+L'homme d'âge moyen fut surpris. Il se tint à quelques dizaines de pieds de Wang Lin et l'observa attentivement. À ses yeux, Wang Lin était très ordinaire, un véritable mortel et non un cultivateur.
 
 Cependant, le calme olympien de Wang Lin permit à l'homme d'âge moyen de percevoir quelque chose d'extraordinaire. Tous les érudits qu'il avait rencontrés s'étaient effondrés devant lui. La peur et la terreur qu'ils ressentaient l'obligeaient à utiliser un sort pour les apaiser avant qu'ils ne puissent parler.
 
@@ -74,7 +74,7 @@ Wang Lin songea à ses rêves. Il se souvint de la voix qui résonnait dans son 
 
 L'homme d'âge moyen, sur le point de partir, s'arrêta et se tourna vers Wang Lin. Après un long moment, il hocha la tête et désigna Wang Lin. Le vent noir convergea de toutes les directions autour de lui. Puis, l'homme d'âge moyen s'éleva dans le ciel et disparut avec Wang Lin.
 
-Dans le comté, personne ne remarqua le sort utilisé à l'extérieur de la zone d'examen. Aucun mortel ne put voir le vent noir qui était apparu. Sous l'arbre, Grande Fortune ronflait toujours. Il se retourna en marmonnant avant de replonger dans son sommeil.
+Dans le comté, personne ne remarqua le sort utilisé à l'extérieur de la zone d'examen. Aucun mortel ne put voir le vent noir qui était apparu. Sous l'arbre, Da Fu ronflait toujours. Il se retourna en marmonnant avant de replonger dans son sommeil.
 
 Sur la planète Suzaku, dans le ciel surplombant la Secte Lian Hun, Wang Lin apparut avec une expression pâle, mais il restait extrêmement calme. Le vent noir l'entourait, lui permettant de garder une assise stable.
 

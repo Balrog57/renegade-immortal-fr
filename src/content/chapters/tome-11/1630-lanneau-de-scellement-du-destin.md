@@ -24,7 +24,7 @@ D'innombrables fragments se dispersèrent dans toutes les directions. Si l'on re
 
 On pouvait également voir une lumière dorée jaillir de la ruine de la pagode. Wang Lin en sortit calmement, les mains derrière le dos.
 
-Bien que la rétribution divine fût puissante, Wang Lin n'en avait cure. À ses yeux, la rétribution divine ne pourrait jamais le punir!
+Bien que la Tribulation Céleste fût puissante, Wang Lin n'en avait cure. À ses yeux, la Tribulation Céleste ne pourrait jamais le punir!
 
 Alors qu'il émergeait, un autre rugissement étouffé provint de la faille située plus haut. Une lumière dorée brilla et un troisième trésor s'échappa de l'interstice.
 
@@ -40,7 +40,7 @@ Certains furent trop lents et furent frappés par la pression. Ils crachèrent d
 
 La seule personne à l'extérieur des nuages qui n'était pas écrasée par la pression était le Vieux Fantôme Zhan, de l'autre côté. Ses cheveux ondulaient sans vent et ses yeux brillaient d'une lueur étrange alors qu'il fixait les nuages. Pour la première fois, son regard quitta Wang Lin pour se porter sur l'anneau doré.
 
-« L'Anneau de Scellement du Destin! C'est l'objet qu'il avait désigné comme troisième trésor pour devenir la rétribution divine dans ses souvenirs... Ce trésor avait même une certaine renommée sur le Continent Astral Immortel. Malheureusement, il est devenu une rétribution divine, et malheureusement, mon corps... » Le Vieux Fantôme Zhan secoua la tête en soupirant, mais ses yeux s'illuminèrent soudainement.
+« L'Anneau de Scellement du Destin! C'est l'objet qu'il avait désigné comme troisième trésor pour devenir la Tribulation Céleste dans ses souvenirs... Ce trésor avait même une certaine renommée sur le Continent Astral Immortel. Malheureusement, il est devenu une Tribulation Céleste, et malheureusement, mon corps... » Le Vieux Fantôme Zhan secoua la tête en soupirant, mais ses yeux s'illuminèrent soudainement.
 
 « Si Wang Lin peut obtenir ce trésor, ses chances d'être le troisième augmenteront considérablement... Cependant, il sera ardu de s'en emparer... »
 
@@ -64,7 +64,7 @@ Wang Lin ferma les yeux, son expression restant sereine, comme si l'anneau sur s
 
 Attiré par ce trésor, il utilisait son esprit pour en comprendre la structure et déceler ses failles. Le moyen le plus rapide d'y parvenir était de l'expérimenter sur lui-même!
 
-Il n'esquivait pas la rétribution divine; il acceptait qu'elle le frappe afin de trouver un moyen de s'en emparer. Depuis des temps immémoriaux, seul Wang Lin pouvait agir avec une telle impassibilité.
+Il n'esquivait pas la Tribulation Céleste; il acceptait qu'elle le frappe afin de trouver un moyen de s'en emparer. Depuis des temps immémoriaux, seul Wang Lin pouvait agir avec une telle impassibilité.
 
 Déjà d'un naturel audacieux, et après avoir traversé d'innombrables situations de vie ou de mort, il avait trop vu. Désormais, les yeux clos, le monde extérieur n'était plus qu'une illusion, tandis que son esprit traitait l'information à une vitesse terrifiante.
 
@@ -78,7 +78,7 @@ L'effet de ce trésor ressemblait fort au pouvoir de scellement du Clan Feng Mie
 
 Tout cela se produisit en un instant; en un battement de cils, il avait déjà percé de nombreux secrets.
 
-« Ce trésor est inachevé... Quelqu'un l'a fusionné à la rétribution divine et utilise cette dernière pour le parfaire. Il est presque complet; peut-être dans 10 000 ans sera-t-il parfait... Intéressant, je semble commencer à comprendre la nature de la rétribution divine. » Wang Lin sourit.
+« Ce trésor est inachevé... Quelqu'un l'a fusionné à la Tribulation Céleste et utilise cette dernière pour le parfaire. Il est presque complet; peut-être dans 10 000 ans sera-t-il parfait... Intéressant, je semble commencer à comprendre la nature de la Tribulation Céleste. » Wang Lin sourit.
 
 Cependant, à cet instant précis, le rugissement provenant de la faille devint plus clair, comme s'il résonnait à son oreille. Simultanément, une silhouette gigantesque émergea de l'interstice. Haute de dix mille pieds, elle dégageait l'aura d'un Dieu Ancien.
 

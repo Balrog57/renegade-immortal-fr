@@ -28,7 +28,7 @@ Le Maître Long Pan sourit en contemplant le vortex. Il semblait voir la silhoue
 
 « Seigneur du Royaume Scellé! Seigneur du Royaume Scellé! »
 
-Les milliers de cultivateurs autour de la statue s'emballèrent et hurlèrent: « Gloire au Seigneur du Royaume Scellé! Gloire au Vide Brillant! » Certains ne reconnaissaient pas cette aura, mais en voyant la réaction de Situ Nan et des autres, un nom leur vint à l'esprit!
+Les milliers de cultivateurs autour de la statue s'emballèrent et hurlèrent: « Gloire au Seigneur du Royaume Scellé! Gloire à Kun Xu! » Certains ne reconnaissaient pas cette aura, mais en voyant la réaction de Situ Nan et des autres, un nom leur vint à l'esprit!
 
 Un nom qu'ils ne pourraient jamais oublier!
 

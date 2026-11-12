@@ -14,7 +14,7 @@ C'était comme si une tempête s'était effondrée à l'intérieur du trou, lib�
 
 « Tu oses m'attaquer? Tu as offensé la puissance des Célestes, tu dois donc mourir! » Le rugissement était empreint d'une colère infinie tandis qu'un rayon de lumière dorée s'échappait du trou. La silhouette restait floue; on ne pouvait distinguer que l'éclat aveuglant et sombre qui l'entourait.
 
-Wang Lin laissa échapper un froid reniflement. Il avait brisé la Porte Kong et pulvérisé la rétribution divine pour atteindre le stade intermédiaire du Vide Spirituel. Même des Célestes ordinaires n'étaient pas de taille face à lui.
+Wang Lin laissa échapper un froid reniflement. Il avait brisé la Porte Kong et pulvérisé la Tribulation Céleste pour atteindre le stade intermédiaire du Vide Spirituel. Même des Célestes ordinaires n'étaient pas de taille face à lui.
 
 Dès que la silhouette se précipita hors de l'orifice, Wang Lin fit un pas en avant et tendit la main avec désinvolture. Le monde changea de couleur et d'innombrables lois furent saisies par Wang Lin, se trouvant ainsi déformées. C'était comme si sa main tenait les lois mêmes de l'univers, et que toutes devaient lui obéir.
 
@@ -44,7 +44,7 @@ Wang Lin, impassible, agita sa manche en avançant. Il arriva directement derri�
 
 Un impact assourdissant retentit; le vieil homme poussa un cri déchirant avant de cracher du sang. Gravement blessé une fois de plus, son corps chancela vers l'arrière, les yeux écarquillés par une terreur monstrueuse.
 
-« Impossible... Autrefois, Maître a instauré la Rétribution Divine pour empêcher l'apparition de cultivateurs défiant les cieux. Grâce à elle, aucun cultivateur du troisième pas ne peut émerger. C'est impossible! »
+« Impossible... Autrefois, Maître a instauré la Tribulation Céleste pour empêcher l'apparition de cultivateurs défiant les cieux. Grâce à elle, aucun cultivateur du troisième pas ne peut émerger. C'est impossible! »
 
 « Sans parler de chez Maître... même dans les grottes des nombreux grands puissants du Continent Astral Immortel, je n'ai jamais entendu dire qu'une fourmi des royaumes inférieurs ait atteint le troisième pas en tant que cultivateur défiant les cieux. Ceci est... »
 

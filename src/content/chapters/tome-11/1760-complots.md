@@ -22,7 +22,7 @@ Son regard était glacial et son visage extrêmement sombre. Si Wang Lin n'avait
 
 La chasse se poursuivit. Wang Lin utilisait divers sorts pour voyager d'un monde à l'autre, tandis que le Daoïste aux Sept Couleurs le suivait de près. La moindre erreur de la part de Wang Lin signifierait sa capture.
 
-Au fur et à mesure qu'il traversait les mondes de manière répétée, son mouvement attira l'attention des autres habitants des trois cents mondes détruits. Leurs Sens Divins convergèrent lentement pour traquer le Daoïste aux Sept Couleurs.
+Au fur et à mesure qu'il traversait les mondes de manière répétée, son mouvement attira l'attention des autres habitants des trois cents mondes détruits. Leurs Sens Divins convergèrent lentement et, dans le sillage du Daoïste aux Sept Couleurs, ils se joignirent à la traque de Wang Lin.
 
 « Je dois me défaire de lui rapidement; sinon, mes déplacements incessants entre les mondes attireront trop d'attention. Une fois que le Vieux Fantôme Zhan apparaîtra et que les deux me poursuivront, il sera bien plus difficile de leur échapper! » Wang Lin surgit d'un vortex pour pénétrer dans un autre monde détruit.
 

@@ -40,7 +40,7 @@ La terre s'effondra et le monde trembla. D'innombrables plateformes flottant dan
 
 Une fois le chaos passé, le Grand Soleil Empyréen fonça vers le palais. À cet instant, une ombre apparut. C'était un vieil homme vêtu d'une robe royale. Il dégageait une pression écrasante sans pour autant montrer de colère, et leva la paume droite pour faire face au Grand Soleil Empyréen.
 
-Le vieil homme se tenait à 60 000 pieds du palais, et derrière lui se trouvaient près de 1 000 membres puissants de la cour, incluant les 72 Saints, les 36 Démons, les 18 Rois et les neuf Généraux Immortels. Ils n'avaient pas participé aux combats précédents car ils étaient chargés de la garde du palais!
+Le vieil homme se tenait à 60 000 pieds du palais, et derrière lui se trouvaient près de 1 000 membres puissants de la cour, incluant les 72 Saints, les 36 Fléaux, les 18 Rois et les neuf Généraux Immortels. Ils n'avaient pas participé aux combats précédents car ils étaient chargés de la garde du palais!
 
 Dès l'apparition du vieil homme, ces mille personnes furent prises d'une excitation fébrile. Même l'Empereur de l'Ancien Dao se montra respectueux.
 
@@ -114,7 +114,7 @@ Bien que les 72 Saints ne fussent pas faibles et aient attaqué de concert, ils 
 
 Dès leur chute, Wang Lin se déchaîna comme une tempête, massacrant son chemin à travers la foule. S'élançant avec une fureur folle, il saisit la tête d'un homme de la main droite et l'écrasa. D'un revers de la main gauche, il en tua un autre. Après avoir abattu un nouveau combattant, il ouvrit la bouche et un rayon de lumière rouge jaillit: c'était son épée de sang, qui faucha des dizaines de vies. Wang Lin chargeait sans relâche, désormais à moins de 30 000 pieds du palais!
 
-Trente-six rayons de lumière sanguine volèrent vers lui. C'étaient les 36 Démons!
+Trente-six rayons de lumière sanguine volèrent vers lui. C'étaient les 36 Fléaux!
 
 Une lueur glaciale passa dans les yeux de Wang Lin et sa main droite traça un sceau. Une fumée verte enveloppa ses cinq doigts. La vapeur tourbillonna autour de ses phalanges et, lorsqu'elle se déploya, un feu monstrueux apparut.
 

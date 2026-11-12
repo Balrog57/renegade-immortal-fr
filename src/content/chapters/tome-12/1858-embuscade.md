@@ -46,7 +46,7 @@ Au moment où le vacarme éclata, Wang Lin s'élança vers la tempête de sang. 
 
 Alors qu'il battait en retraite, son regard resta fixé sur Wang Lin, mais celui-ci disparut soudainement. Ses pupilles se contractèrent alors qu'il se retournait et que sa main droite frappait l'espace derrière lui.
 
-La silhouette de Wang Lin surgit de ses arrières et décocha un coup de poing. Ce coup ne portait pas l'ombre du Dao Ancien, mais c'était un véritable coup de poing du Dao Ancien!
+La silhouette de Wang Lin surgit de ses arrières et décocha un coup de poing. Ce coup ne portait pas l'ombre de Dao Gu, mais c'était un véritable coup de poing de Dao Gu!
 
 Dans un fracas assourdissant, le bras droit de Liu Zhiyuan, où un lotus brilla un instant, ne fut plus qu'une masse sanglante et il fut projeté au loin. Du sang s'écoula du coin de la bouche de Wang Lin, mais il ne marqua pas de pause et poursuivit Liu Zhiyuan.
 

@@ -1,6 +1,6 @@
 ---
 n: 2074
-title: "Maître Âme Écarlate!"
+title: "Chi Hunzi!"
 book: 13
 bookTitle: Light of the coming end
 en: "Chapter 2074 - Master Scarlet Soul!"
@@ -20,7 +20,7 @@ Derrière ces figures se trouvait une dense brume de sang. La brume semblait bou
 
 Maître Nan Yunzi rugit: « Qu'y a-t-il à craindre de la mort?! »
 
-« Le créateur du Royaume Céleste, Wang Lin, reviendra un jour. Lorsqu'il reviendra, je veux voir comment une simple Secte Âme Écarlate et Maître Âme Écarlate pourront résister! »
+« Le créateur du Royaume Céleste, Wang Lin, reviendra un jour. Lorsqu'il reviendra, je veux voir comment une simple Secte Chi Hun et Chi Hunzi pourront résister! »
 
 À côté du Maître Nan Yunzi siégeait Lanmeng Daozun. Son visage était pâle tandis qu'il cultivait pour récupérer.
 
@@ -38,17 +38,17 @@ Ses mains traçaient des sceaux, envoyant constamment des runes pour accélérer
 
 « Ce Wang Lin possédait effectivement certain talent. Les restrictions qu'il a posées me prendront quelques jours à briser. Cette barrière est étrange et contient une trace d'une aura terrifiante. J'ai l'impression qu'un changement dévastateur se produirait si j'utilisais toute ma force pour la rompre. »
 
-« Cependant, tant que je ne cherche pas à la briser par la force brute mais que j'utilise plutôt la brume de sang pour l'envahir, tout sera sûr. Heureusement, cette aura n'est pas très présente; sinon, il serait encore plus difficile de briser la formation! » Le vieil homme aux cheveux rouges était Maître Âme Écarlate!
+« Cependant, tant que je ne cherche pas à la briser par la force brute mais que j'utilise plutôt la brume de sang pour l'envahir, tout sera sûr. Heureusement, cette aura n'est pas très présente; sinon, il serait encore plus difficile de briser la formation! » Le vieil homme aux cheveux rouges était Chi Hunzi!
 
 Jadis, lors de l'épreuve de vie ou de mort du Souverain, Wang Lin avait libéré une âme scellée par Ye Mo. Cette âme s'était échappée du piège et avait pris la fuite.
 
-Désormais, il avait recouvré sa culture et obtenu un corps. Après la disparition de Wang Lin pendant de nombreuses années, il avait fondé la Secte Âme Écarlate. Il avait utilisé sa puissante culture pour blesser gravement Lanmeng Daozun, puis il avait détruit le corps du Maître Nan Yunzi.
+Désormais, il avait recouvré sa culture et obtenu un corps. Après la disparition de Wang Lin pendant de nombreuses années, il avait fondé la Secte Chi Hun. Il avait utilisé sa puissante culture pour blesser gravement Lanmeng Daozun, puis il avait détruit le corps du Maître Nan Yunzi.
 
 Il fixa les terres du Royaume Céleste avec une expression cruelle.
 
 « Presque tous les êtres puissants du Royaume Intérieur sont concentrés ici, dans le Royaume Céleste. Avant que ma culture ne soit rétablie, je n'étais pas certain de pouvoir briser la formation, mais désormais, elle cédera dans deux jours. Tous ces gens deviendront ma nourriture, et après avoir dévoré leur essence sanguine, mon niveau de culture atteindra le rang d'Exalté Doré! »
 
-« Haha, une fois devenu un Exalté Doré, même en retournant sur le Continent Astral Immortel, je pourrai devenir le Grand Ancien d'une secte et j'aurai même une chance de devenir un Exalté Empyréen! » Les yeux de Maître Âme Écarlate brillaient d'excitation. Il savait qu'il y avait très peu d'Exaltés Empyréens sur le Continent Astral Immortel, tout au plus quelques centaines. Une fois devenu un Exalté Empyréen, il pourrait servir un Grand Empyréen.
+« Haha, une fois devenu un Exalté Doré, même en retournant sur le Continent Astral Immortel, je pourrai devenir le Grand Ancien d'une secte et j'aurai même une chance de devenir un Exalté Empyréen! » Les yeux de Chi Hunzi brillaient d'excitation. Il savait qu'il y avait très peu d'Exaltés Empyréens sur le Continent Astral Immortel, tout au plus quelques centaines. Une fois devenu un Exalté Empyréen, il pourrait servir un Grand Empyréen.
 
 Et à ce moment-là, en tant que cultivateur au service de l'un des Grands Empyréens, il serait célèbre à travers tout le Continent Astral Immortel.
 
@@ -60,33 +60,33 @@ Et à ce moment-là, en tant que cultivateur au service de l'un des Grands Empyr
 
 « Je ne crois pas qu'il oserait s'opposer au Grand Empyréen Dao Yi! Peut-être que son cœur tremblera et qu'il s'agenouillera en signe de dévotion dès qu'il verra le Grand Empyréen! »
 
-« Après tout, devant les Grands Empyréens, tous les cultivateurs ne sont que de simples fourmis! » Maître Âme Écarlate avait mûrement réfléchi à l'avenir. Après s'être assuré que rien ne pourrait échouer, il éclata d'un rire sonore.
+« Après tout, devant les Grands Empyréens, tous les cultivateurs ne sont que de simples fourmis! » Chi Hunzi avait mûrement réfléchi à l'avenir. Après s'être assuré que rien ne pourrait échouer, il éclata d'un rire sonore.
 
-« Maître! » Tandis qu'il riait, une autre personne était assise dans la brume rouge à ses côtés. C'était un jeune homme qui, à cet instant, ouvrit les yeux et s'inclina respectueusement devant Maître Âme Écarlate. Il était l'ombre qui avait parlé aux habitants du Royaume Céleste.
+« Maître! » Tandis qu'il riait, une autre personne était assise dans la brume rouge à ses côtés. C'était un jeune homme qui, à cet instant, ouvrit les yeux et s'inclina respectueusement devant Chi Hunzi. Il était l'ombre qui avait parlé aux habitants du Royaume Céleste.
 
-Maître Âme Écarlate rit en regardant le jeune homme. Ce dernier était quelqu'un qu'il avait rencontré dans le monde des grottes et qui semblait parfaitement fait pour devenir son disciple. Le talent du jeune homme était remarquable et, plus intéressant encore, il l'avait trouvé sur la planète Suzaku. On disait que ce jeune homme était un descendant de Wang Lin, après un nombre inconnu de générations.
+Chi Hunzi rit en regardant le jeune homme. Ce dernier était quelqu'un qu'il avait rencontré dans le monde des grottes et qui semblait parfaitement fait pour devenir son disciple. Le talent du jeune homme était remarquable et, plus intéressant encore, il l'avait trouvé sur la planète Suzaku. On disait que ce jeune homme était un descendant de Wang Lin, après un nombre inconnu de générations.
 
 Le jeune homme afficha un sourire cruel et dit respectueusement: « Maître, ils n'ont toujours pas abandonné. Ils continuent d'envoyer des cultivateurs pour renforcer la formation. En particulier, ce Maître Nan Yunzi est méprisable. Maître, une fois que vous aurez brisé la formation, donnez-moi l'âme du Maître Nan Yunzi afin que ce Disciple puisse le torturer comme il se doit. »
 
-« Ce simple Maître Nan Yunzi? Je te le donnerai! » Maître Âme Écarlate était très satisfait de voir l'expression cruelle de son disciple. Il désirait un disciple de ce genre.
+« Ce simple Maître Nan Yunzi? Je te le donnerai! » Chi Hunzi était très satisfait de voir l'expression cruelle de son disciple. Il désirait un disciple de ce genre.
 
-Maître Âme Écarlate dit lentement: « Mais cette Mu Bingmei... »
+Chi Hunzi dit lentement: « Mais cette Mu Bingmei... »
 
 Le jeune homme répondit respectueusement: « Si Maître désire cette femme, le Disciple la lui offrira de ses deux mains. »
 
-« Elle est l'amante de l'Ancêtre. » Maître Âme Écarlate afficha une expression moqueuse. Il trouvait cela très divertissant. Il se demandait même quelle grimace Wang Lin ferait s'il apprenait cela un jour.
+« Elle est l'amante de l'Ancêtre. » Chi Hunzi afficha une expression moqueuse. Il trouvait cela très divertissant. Il se demandait même quelle grimace Wang Lin ferait s'il apprenait cela un jour.
 
 Le jeune homme dit avec respect: « Et alors? Bien que le Disciple porte le nom de Wang, Wang Lin a quitté le monde des grottes et on ignore s'il est mort ou vivant. Puisqu'il a laissé son amante derrière lui, autant me laisser jouir d'elle pour apaiser ma solitude. N'est-ce pas ce que Maître me répète sans cesse? »
 
-« Ye Mo est mort, mais puisque tu as obtenu son héritage, Wang Lin, tu peux aussi hériter de ma haine! » Maître Âme Écarlate rit, une lueur de malveillance brillant dans ses yeux.
+« Ye Mo est mort, mais puisque tu as obtenu son héritage, Wang Lin, tu peux aussi hériter de ma haine! » Chi Hunzi rit, une lueur de malveillance brillant dans ses yeux.
 
-Maître Âme Écarlate sourit et ajouta: « Ce n'est pas nécessaire. Cette Mu Bingmei est la compagne que Maître t'a personnellement choisie, alors comment Maître pourrait-il te la voler? Cependant, Maître va la dresser un moment. Une fois que je me serai lassé d'elle, je te la donnerai naturellement. »
+Chi Hunzi sourit et ajouta: « Ce n'est pas nécessaire. Cette Mu Bingmei est la compagne que Maître t'a personnellement choisie, alors comment Maître pourrait-il te la voler? Cependant, Maître va la dresser un moment. Une fois que je me serai lassé d'elle, je te la donnerai naturellement. »
 
 « Comme il se doit. Merci, Maître. » Le jeune homme hocha la tête en souriant.
 
-« Très bien, attendons deux jours de plus! » Les yeux de Maître Âme Écarlate s'illuminèrent et ses mains formèrent des sceaux. La brume rouge tourbillonna tandis que les dizaines de milliers de marionnettes de sang libéraient une lumière écarlate encore plus intense, affaiblissant davantage la formation du Royaume Céleste.
+« Très bien, attendons deux jours de plus! » Les yeux de Chi Hunzi s'illuminèrent et ses mains formèrent des sceaux. La brume rouge tourbillonna tandis que les dizaines de milliers de marionnettes de sang libéraient une lumière écarlate encore plus intense, affaiblissant davantage la formation du Royaume Céleste.
 
-À cet instant, alors que Maître Âme Écarlate continuait d'utiliser la lumière sanguine pour corroder la formation, une femme en blanc se tenait sur un sommet élevé.
+À cet instant, alors que Chi Hunzi continuait d'utiliser la lumière sanguine pour corroder la formation, une femme en blanc se tenait sur un sommet élevé.
 
 Cette femme était d'une beauté absolue. Oubliez le monde des grottes, personne sur le Continent Astral Immortel ne pouvait égaler sa splendeur. Sa beauté semblait presque surnaturelle, comme si elle n'appartenait pas à ce monde.
 

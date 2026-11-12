@@ -88,27 +88,27 @@ Qu'il s'agisse de Tang Shan, de la Tortue Noire, de l'Oiseau Vermillon ou des cu
 
 Le vieil homme nommé Ma, de la Planète des Cinq Éléments, fut le premier à s'avancer après avoir médité. Il regarda Wang Lin d'un air complexe et, après un long silence, prit la parole.
 
-« Cher compagnon de culture Wang, ce vieil homme partira le premier. Si vous venez dans les terres des immortels, n'hésitez pas à visiter la Secte des Cinq Éléments! »
+« Daoïste Wang, ce vieil homme partira le premier. Si vous venez dans les terres des immortels, n'hésitez pas à visiter la Secte des Cinq Éléments! »
 
-Wang Lin hocha la tête et répondit calmement: « Merci, Ancien, pour votre aide passée. Si le destin le permet, je visiterai certainement la Secte des Cinq Éléments. »
+Wang Lin hocha la tête et répondit calmement: « Merci, Senior, pour votre aide passée. Si le destin le permet, je visiterai certainement la Secte des Cinq Éléments. »
 
 Yun Yifeng, derrière le vieil homme nommé Ma, observa les environs avec nostalgie. Finalement, il se tourna vers Wang Lin et joignit les mains.
 
 « Frère Wang, prenez soin de vous. Notre combat n'est pas terminé. Nous déciderons du vainqueur sur le Continent Astral Immortel! »
 
-« Cher compagnon Yun, prenez soin de vous également. » Wang Lin regarda Yun Yifeng. Cet homme était très rusé, et Wang Lin avait commencé à percer son jeu dans ce monde caverneux. Le regard de Wang Lin se posa ensuite sur les deux autres cultivateurs d'âge moyen de la Planète des Cinq Éléments. Se souvenant de quelque chose, il agita la main au loin.
+« Daoïste Yun, prenez soin de vous également. » Wang Lin regarda Yun Yifeng. Cet homme était très rusé, et Wang Lin avait commencé à percer son jeu dans ce monde caverneux. Le regard de Wang Lin se posa ensuite sur les deux autres cultivateurs d'âge moyen de la Planète des Cinq Éléments. Se souvenant de quelque chose, il agita la main au loin.
 
 Des ondulations résonnèrent dans l'espace. Le Général Tigre Blanc et l'autre cultivateur de la Planète des Cinq Éléments apparurent. Leur venue ne surprit pas le vieil homme nommé Ma, qui semblait s'y attendre.
 
 Cependant, les Généraux Tortue Noire et Oiseau Vermillon furent stupéfaits.
 
-« Compagnons de la Planète des Cinq Éléments, je vous salue! » Tandis que Wang Lin parlait, le Général Tigre Blanc libéra le cultivateur de la Planète des Cinq Éléments. Ce dernier, silencieux, rejoignit ses compagnons de secte.
+« Daoïstes de la Planète des Cinq Éléments, je vous salue! » Tandis que Wang Lin parlait, le Général Tigre Blanc libéra le cultivateur de la Planète des Cinq Éléments. Ce dernier, silencieux, rejoignit ses compagnons de secte.
 
 Un groupe de personnes se changea en un rayon de lumière et s'élança vers la porte dorée. Après un éclat de lumière, ils disparurent.
 
 Voyant les gens de la Planète des Cinq Éléments franchir la porte, les Généraux Tortue Noire et Oiseau Vermillon avancèrent de quelques pas et saluèrent Wang Lin en joignant les mains.
 
-« Cher compagnon Wang Lin, concernant les événements passés... Hélas, merci de nous avoir pardonnés. Nous prenons congé. Si vous avez besoin de quoi que ce soit, nous viendrons certainement à votre aide. » C'est le Général Tortue Noire qui prit la parole. D'un geste de la main droite, il fit flotter un jade vers Wang Lin.
+« Daoïste Wang Lin, concernant les événements passés... Hélas, merci de nous avoir pardonnés. Nous prenons congé. Si vous avez besoin de quoi que ce soit, nous viendrons certainement à votre aide. » C'est le Général Tortue Noire qui prit la parole. D'un geste de la main droite, il fit flotter un jade vers Wang Lin.
 
 Wang Lin accepta le jade et hocha la tête, puis il regarda le Général Tigre Blanc au loin.
 

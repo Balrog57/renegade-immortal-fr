@@ -20,7 +20,7 @@ Il ne permettrait jamais qu'une telle chose arrive! Même face à l'Empereur Cé
 
 « Le 15e palais, très bien. Puisque vous pensez tous que ma limite est le 13e palais, alors aujourd'hui, je vais faire preuve d'une arrogance totale et éclater une bonne fois pour toutes. Empereur Céleste, à voir ta bassesse, je peux lire la turpitude dans ton sang!
 
-Nul étonnement que la personne scellée sous le bassin de Dong Lin ait conservé une rancœur telle qu'elle ne s'est pas dissipée après sa mort. Nul étonnement qu'il ait traité Lian Yunjue de méprisable! » Les yeux de Wang Lin devinrent glacials. Il dépassa instantanément le 13e palais et fonça tel un dragon vers le 14e palais.
+Nul étonnement que la personne scellée sous la Secte Dong Lin ait conservé une rancœur telle qu'elle ne s'est pas dissipée après sa mort. Nul étonnement qu'il ait traité Lian Yunjue de méprisable! » Les yeux de Wang Lin devinrent glacials. Il dépassa instantanément le 13e palais et fonça tel un dragon vers le 14e palais.
 
 Arrivé au 14e palais, alors qu'il était sur le point d'y pénétrer, il s'arrêta et regarda vers le bas.
 

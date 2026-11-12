@@ -74,7 +74,7 @@ Le Vieux Fantôme Zhan suivait derrière. En fixant la bête, ses yeux brillère
 
 De l'autre côté de Luotian se trouvait le Vide Brillant. Une lueur aux sept couleurs y roulait comme un nuage de brume. Devant ce nuage, le Daoïste aux Sept Couleurs fronçait les sourcils en observant une goutte de sang cristallin dans sa main.
 
-Il avait exploré tout le Vide Brillant, à l'exception de la planète des Cinq Éléments. Il avait inspecté chaque centimètre du système stellaire, chaque planète et chaque grain de poussière, mais n'avait trouvé aucun indice.
+Il avait exploré tout le Vide Brillant, à l'exception de la planète des Cinq Éléments. Il avait inspecté chaque pouce du système stellaire, chaque planète et chaque grain de poussière, mais n'avait trouvé aucun indice.
 
 Tout en réfléchissant, le Daoïste aux Sept Couleurs leva la tête.
 
@@ -104,7 +104,7 @@ Hongdie se trouvait également là avec lui. Le père et la fille vivaient en pa
 
 « Celui qui suit la voie accorde de l'importance à l'intention et au cœur. Tout n'est que cœur... Et... » Les yeux de Qing Shui se figèrent soudainement et il leva les yeux vers le ciel. Une émotion complexe traversa son regard, puis, un instant plus tard, il se leva.
 
-« Papillon, continue ton entraînement seule. Ton père a une affaire urgente à régler. » Sur ces mots, Qing Shui fit un pas et se changea en une ombre qui disparut de la pièce.
+« Die Er, continue ton entraînement seule. Ton père a une affaire urgente à régler. » Sur ces mots, Qing Shui fit un pas et se changea en une ombre qui disparut de la pièce.
 
 Hongdie fixa l'endroit où son père s'était volatilisé, laissant paraître une trace d'inquiétude. Après avoir réfléchi un instant, elle soupira, ferma les yeux et reprit calmement sa culture.
 

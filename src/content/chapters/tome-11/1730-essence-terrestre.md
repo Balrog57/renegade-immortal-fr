@@ -112,7 +112,7 @@ L'homme d'âge mûr face à lui murmura: « S'il s'était contenté de briser la
 
 « Ce n'est rien, il reste encore quatre formations. Et après elles, les Neuf Cycles. Je veux voir comment il parviendra à les franchir! » Le regard de Na Duo devint froid. Lui et Wang Lin ne pouvaient être considérés comme des amis; au mieux, ils étaient des connaissances, et tout lien qu'ils avaient partagé s'était dissipé au fil des mille dernières années.
 
-À cet instant, personne dans le Monde des Grottes ne remarqua qu'une lueur rouge sang était apparue dans le Vide Brillant. Cette lueur se mua en un jeune homme aux cheveux noirs.
+À cet instant, personne dans le Monde des Grottes ne remarqua qu'une lueur rouge sang était apparue dans le Kun Xu. Cette lueur se mua en un jeune homme aux cheveux noirs.
 
 Vêtu d'une robe noire, le jeune homme scruta l'horizon et esquissa un sourire joyeux.
 

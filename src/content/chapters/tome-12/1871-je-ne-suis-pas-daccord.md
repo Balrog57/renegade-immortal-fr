@@ -30,7 +30,7 @@ Yan Luan désirait naturellement une telle opportunité. Xu Dongde la convoit é
 
 Les grondements sourds continuaient de résonner au-dessus d'eux. C'était comme la faux de la mort prête à faucher leurs vies à tout instant.
 
-« Compagnons cultivateurs, veuillez vous asseoir et libérer toute votre culture. Concentrez vos pensées sur le Taureau Céleste et aidez-moi à invoquer l'âme du Taureau Céleste! » Le cœur de Lu Wenran bouillonnait d'excitation. Il attendait cette opportunité depuis si longtemps. Il savait que bien que l'armure d'âme soit dangereuse, le risque n'était pas insurmontable. Surtout, s'il laissait passer sa chance, il devrait attendre des éternités avant la prochaine occasion.
+« Daoïstes, veuillez vous asseoir et libérer toute votre culture. Concentrez vos pensées sur le Taureau Céleste et aidez-moi à invoquer l'âme du Taureau Céleste! » Le cœur de Lu Wenran bouillonnait d'excitation. Il attendait cette opportunité depuis si longtemps. Il savait que bien que l'armure d'âme soit dangereuse, le risque n'était pas insurmontable. Surtout, s'il laissait passer sa chance, il devrait attendre des éternités avant la prochaine occasion.
 
 Cette fois, sept personnes au total seraient éligibles pour obtenir l'armure d'âme. Ces sept individus deviendraient légendaires sur le continent du Taureau Céleste!
 
@@ -50,7 +50,7 @@ Wang Lin était assis à l'intérieur de la grotte. Ses yeux s'illuminèrent, ma
 
 « Ô âme sainte du Taureau Céleste, par mon sang, je guide ton âme pour qu'elle revienne! » L'expression du vieil homme était solennelle lorsqu'il projeta le sceau de sang. Celui-ci libéra une lumière rouge éclatante qui enveloppa tout le palais souterrain.
 
-« Compagnons cultivateurs, transférez votre culture dans cette lumière sanguine! » cria soudainement le vieil homme nommé Zhou.
+« Daoïstes, transférez votre culture dans cette lumière sanguine! » cria soudainement le vieil homme nommé Zhou.
 
 À la suite de son rugissement, les plus de mille cultivateurs libérèrent toute leur puissance. Des ondulations résonnèrent à travers la terre. Lorsque le dernier cultivateur eut achevé l'effort, il afficha une expression de douleur: toute la culture qu'ils avaient déployée était absorbée par la lumière sanguine.
 
@@ -76,7 +76,7 @@ Dans la grotte, Wang Lin fixait le vortex dans le ciel. Il écoutait le rugissem
 
 La première étape pour invoquer l'âme du Taureau Céleste consistait à tracer l'empreinte sanguine. La seconde consistait à utiliser la culture de plus de mille cultivateurs pour ouvrir un vortex vers le Taureau Céleste scellé!
 
-« Compagnons cultivateurs, prélevez 495 grammes de sang, ni plus ni moins, et concentrez-les sur votre index droit! » Le vieil homme nommé Zhou agita sa main droite et une plaie apparut au bout de son doigt. La quantité exacte de sang s'en échappa.
+« Daoïstes, prélevez 495 grammes de sang, ni plus ni moins, et concentrez-les sur votre index droit! » Le vieil homme nommé Zhou agita sa main droite et une plaie apparut au bout de son doigt. La quantité exacte de sang s'en échappa.
 
 Simultanément, les mille cultivateurs levèrent la main droite. À ce stade, il n'y avait plus de retour en arrière possible. Ils suivirent l'exemple du vieil homme et pressèrent leurs doigts pour libérer la quantité requise de sang.
 
@@ -94,7 +94,7 @@ La chaîne rouge continua de tirer, et le rugissement du Taureau Céleste devint
 
 Cependant, la chaîne montra bientôt des signes de rupture. Voyant cela, une lueur glaciale passa dans les yeux de Lu Wenran.
 
-« Cher cultivateur Zhou! » Lu Wenran se tourna soudainement vers le vieil homme. Puis, il jeta un regard aux compagnons de Yan Luan.
+« Daoïste Zhou! » Lu Wenran se tourna soudainement vers le vieil homme. Puis, il jeta un regard aux compagnons de Yan Luan.
 
 Le vieil homme nommé Zhou sourit amèrement intérieurement. Il serra les dents et joignit les mains en signe de respect vers Yan Luan et son groupe.
 

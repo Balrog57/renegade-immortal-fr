@@ -22,9 +22,9 @@ La troisième épée était l'épée du karma. Elle contenait l'illumination de 
 
 La quatrième était l'épée de la vie et de la mort. Le monde trembla alors que des gaz noirs et blancs s'entremêlaient pour former cette lame de sept pouces.
 
-La cinquième était l'épée du vrai et du faux, mais la puissance à l'intérieur du vortex était limitée. Elle avait presque épuisé son énergie en aidant Wang Lin à former les quatre premières, et montrait désormais des signes de dissipation. Au même moment, des grondements sourds retentirent au loin; c'était le signe de la rétribution divine!
+La cinquième était l'épée du vrai et du faux, mais la puissance à l'intérieur du vortex était limitée. Elle avait presque épuisé son énergie en aidant Wang Lin à former les quatre premières, et montrait désormais des signes de dissipation. Au même moment, des grondements sourds retentirent au loin; c'était le signe de la Tribulation Céleste!
 
-Les yeux de Wang Lin s'illuminèrent. Il savait qu'une fois le vortex disparu, la rétribution divine à laquelle il ferait face serait la plus puissante de sa vie!
+Les yeux de Wang Lin s'illuminèrent. Il savait qu'une fois le vortex disparu, la Tribulation Céleste à laquelle il ferait face serait la plus puissante de sa vie!
 
 Cependant, Wang Lin n'avait aucune crainte. Son regard était calme lorsqu'il fit un pas en avant, les bras tendus. Il s'efforça de déchirer le vortex en pleine dissipation.
 

@@ -60,7 +60,7 @@ Elle s'en approcha instantanément et la boule de feu absorba l'âme du dragon. 
 
 Après avoir absorbé une autre veine de feu terrestre enfantine, le feu jaillit de plus belle. Le torse du corps véritable d'essence se forma de nouveau et, au bout d'un demi-bâton d'encens, il était entièrement formé!
 
-À ce moment, le corps véritable d'essence possédait un torse et des membres. Seule sa tête restait celle d'un Oiseau Vermillon, ce qui lui donnait une apparence très étrange.
+À ce moment, le corps véritable d'essence possédait un torse et des membres. Seule sa tête restait celle d'un Suzaku, ce qui lui donnait une apparence très étrange.
 
 Cependant, la puissance du feu avait atteint ses limites et la boule de feu s'effondra soudainement. Elle se transforma en étincelles de feu qui furent absorbées par le corps véritable d'essence sans tête.
 
@@ -88,7 +88,7 @@ Wang Lin fronça les sourcils. Il semblait avoir remarqué la modification de so
 
 « Retournons à la Secte Cang Long. Je dois m'y installer quelque temps. » Wang Lin regarda Du Qing.
 
-En entendant cela, le moral de Du Qing remonta instantanément et il sourit. Il joignit les mains en signe de respect: « C'est un honneur. Le Camarade Cultivateur Wang peut être rassuré. J'enverrai tous mes disciples chercher les veines de feu terrestre du dragon et je chargerai les Anciens de les extraire pour votre usage. »
+En entendant cela, le moral de Du Qing remonta instantanément et il sourit. Il joignit les mains en signe de respect: « C'est un honneur. Le Daoïste Wang peut être rassuré. J'enverrai tous mes disciples chercher les veines de feu terrestre du dragon et je chargerai les Anciens de les extraire pour votre usage. »
 
 L'expression de Wang Lin resta impassible tandis qu'il hochait lentement la tête. Il se transforma en un rayon de lumière aux côtés de Du Qing et partit. Sous les montagnes, la veine de feu terrestre enfantine s'étiola lentement.
 

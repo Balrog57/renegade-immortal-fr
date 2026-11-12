@@ -46,7 +46,7 @@ Avait-il vraiment compris...?
 
 Hongdie se détourna et partit. Cependant, après quelques pas, elle s'arrêta et, avec hésitation, se retourna pour poser une dernière question.
 
-« Qing Shui, ton frère aîné... Le comprends-tu vraiment...? »
+« Qing Shui, ton Senior frère... Le comprends-tu vraiment...? »
 
 Wang Lin s'extirpa avec peine de son choc. Il regarda Hongdie et dit lentement: « Que veux-tu demander? »
 
@@ -54,7 +54,7 @@ Wang Lin s'extirpa avec peine de son choc. Il regarda Hongdie et dit lentement: 
 
 Wang Lin fronça les sourcils et observa attentivement Hongdie. Il se remémora ce qui s'était passé à Luotian, lorsque Qing Shui se tenait devant elle. Wang Lin avait vu de loin qu'il bloquait une attaque pour la protéger.
 
-« Mon frère aîné a mené une vie amère... Son clan a péri durant son enfance. Après cela, il est entré dans le Royaume Céleste et sa femme est morte... Il avait aussi une fille qui est entrée de nouveau et de nouveau dans le cycle de la réincarnation. Elle a probablement tout oublié du passé... S'il lui reste vraiment un parent, ce serait cette fille... » parla doucement Wang Lin.
+« Mon Senior frère a mené une vie amère... Son clan a péri durant son enfance. Après cela, il est entré dans le Royaume Céleste et sa femme est morte... Il avait aussi une fille qui est entrée de nouveau et de nouveau dans le cycle de la réincarnation. Elle a probablement tout oublié du passé... S'il lui reste vraiment un parent, ce serait cette fille... » parla doucement Wang Lin.
 
 Le corps de Hongdie trembla et elle ferma les yeux.
 

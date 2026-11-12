@@ -20,7 +20,7 @@ L'aura du Maître Hong Shan explosa depuis le centre du Royaume Céleste. Il s'e
 
 Derrière lui, le Maître Nan Yunzi réfléchit un instant et choisit de rester. Après tout, les puissants étaient rares dans le Royaume Céleste; si tous partaient, ils se retrouveraient en position de faiblesse.
 
-Wang Lin jaillit de la rivière argentée entourant le Royaume Céleste pour se fondre dans le monde. Lorsqu'il réapparut, il se trouvait déjà dans la Rivière Invoquée. Bien qu'il parût calme, ses yeux étaient empreints d'une intention meurtrière. Beaucoup de choses restaient encore obscures, mais les paroles de Lanmeng Daozun lui avaient fait comprendre une chose essentielle.
+Wang Lin jaillit de la rivière argentée entourant le Royaume Céleste pour se fondre dans le monde. Lorsqu'il réapparut, il se trouvait déjà dans la Rivière Zhao He. Bien qu'il parût calme, ses yeux étaient empreints d'une intention meurtrière. Beaucoup de choses restaient encore obscures, mais les paroles de Lanmeng Daozun lui avaient fait comprendre une chose essentielle.
 
 Tian Yunzi complotait contre lui depuis longtemps, que ce soit sur la planète Suzaku ou dans la Terre Yao Ling!
 
@@ -28,7 +28,7 @@ Tian Yunzi complotait contre lui depuis longtemps, que ce soit sur la planète S
 
 Il se déplaçait à une vitesse fulgurante, fusionnant parfois avec le monde pour se précipiter vers le lieu qu'il avait repéré plus tôt.
 
-Tout cela se produisit en un instant. Au plus profond du météore dans la Rivière Invoquée, l'expression de Tian Yunzi changea. Il sentit le Sens Divin de quelqu'un l'observer et reconnut immédiatement qu'il appartenait à Wang Lin!
+Tout cela se produisit en un instant. Au plus profond du météore dans la Rivière Zhao He, l'expression de Tian Yunzi changea. Il sentit le Sens Divin de quelqu'un l'observer et reconnut immédiatement qu'il appartenait à Wang Lin!
 
 « Avec son niveau de culture, il n'aurait pas dû trouver cet endroit si tôt... Quelqu'un l'a aidé! Et cette personne n'est pas Qing Lin! » Les yeux de Tian Yunzi s'illuminèrent et il se redressa. Alors qu'il s'apprêtait à sortir du météore, il fit soudainement volte-face. Il regarda vers l'extérieur et son expression devint sombre.
 
@@ -88,7 +88,7 @@ Wang Lin recula en fixant Tian Yunzi. L'intention meurtrière dans ses yeux s'in
 
 À cet instant, l'aura d'une âme que seul Wang Lin pouvait percevoir jaillit du corps déchiqueté de Tian Yunzi. Que Wang Lin le voulût ou non, elle vola vers lui et fusionna avec l'âme de l'avatar de Tian Yunzi qu'il portait en lui, la renforçant ainsi.
 
-Au moment où l'âme de l'avatar se fortifia, Wang Lin sentit immédiatement l'aura de Tian Yunzi surgir dans une autre partie de la Rivière Invoquée!
+Au moment où l'âme de l'avatar se fortifia, Wang Lin sentit immédiatement l'aura de Tian Yunzi surgir dans une autre partie de la Rivière Zhao He!
 
 Wang Lin réfléchit en silence avant de s'élancer et de disparaître.
 

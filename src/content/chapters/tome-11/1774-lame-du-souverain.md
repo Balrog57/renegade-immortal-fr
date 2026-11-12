@@ -24,13 +24,13 @@ Wang Lin ne croyait tout simplement pas qu'ils ne puissent sceller le Souverain 
 
 À cet instant, la technique « Pêcher la Lune dans le Puits » du Souverain se manifesta. Ses yeux rouges étaient empreints d'une intention meurtrière. Il ne cherchait plus à fuir, car il sentait clairement l'arrivée de Lanmeng Daozun!
 
-« Peu importe que Rêve Bleu soit ici! Si vous voulez ma mort, vous devrez tous en payer le prix! De plus, le temps presse; le Vieux Fantôme Zhan arrivera bientôt. Vous ne parviendrez pas à m'abattre avant son arrivée! »
+« Peu importe que Lanmeng soit ici! Si vous voulez ma mort, vous devrez tous en payer le prix! De plus, le temps presse; le Vieux Fantôme Zhan arrivera bientôt. Vous ne parviendrez pas à m'abattre avant son arrivée! »
 
 La terre transformée en puits reflétait les silhouettes de Wang Lin et de ses alliés. Soudain, un éclat de lumière bleue jaillit. Cette lueur se propagea à travers le puits et dans le ciel. Au loin, Lanmeng Daozun fit son apparition.
 
-Les yeux de Wang Lin brillèrent. À l'arrivée de Lanmeng Daozun, il envoya un message divin: « Senior Rêve Bleu, pouvez-vous sceller le Souverain pendant trois respirations? »
+Les yeux de Wang Lin brillèrent. À l'arrivée de Lanmeng Daozun, il envoya un message divin: « Senior Lanmeng, pouvez-vous sceller le Souverain pendant trois respirations? »
 
-Rêve Bleu s'approcha et hocha la tête. D'un revers de manche, il fit trembler la terre devenue puits. Le sol s'effondra et le puits se brisa!
+Lanmeng s'approcha et hocha la tête. D'un revers de manche, il fit trembler la terre devenue puits. Le sol s'effondra et le puits se brisa!
 
 La lumière bleue pénétra dans le gouffre et s'élança dans les airs d'un geste de sa main, se transformant en un rideau azur qui enveloppa le monde.
 
@@ -40,7 +40,7 @@ Trois rayons de lumière bleue se détachèrent; les deux premiers s'enroulèren
 
 Les quatre fusionnèrent avec la lumière bleue. Au moment même où ils disparurent dans cet éclat, ils se transformèrent en quatre runes qui volèrent vers le Souverain.
 
-L'expression du Souverain changea radicalement. Tout cela s'était produit en un éclair; les quatre runes fonçaient sur lui à peine Rêve Bleu était apparu. Le Souverain ne pouvait l'éviter. Après tout, cette attaque résultait de la pleine puissance de culture de Rêve Bleu. Bien qu'il n'ait pas encore atteint le stade de la Tribulation Arcane, il pouvait combattre des cultivateurs de ce niveau!
+L'expression du Souverain changea radicalement. Tout cela s'était produit en un éclair; les quatre runes fonçaient sur lui à peine Lanmeng était apparu. Le Souverain ne pouvait l'éviter. Après tout, cette attaque résultait de la pleine puissance de culture de Lanmeng. Bien qu'il n'ait pas encore atteint le stade de la Tribulation Arcane, il pouvait combattre des cultivateurs de ce niveau!
 
 Guidées par lui et soutenues par les trois autres, ces quatre runes franchirent toutes les barrières pour percuter le corps du Souverain.
 
@@ -88,7 +88,7 @@ Les hurlements continuèrent de résonner dans la brume noire. Hormis ceux qui s
 
 Un instant plus tard, la brume tourbillonna violemment et le Souverain fut expulsé. Il atterrit au sol, les yeux clos, totalement immobile.
 
-Rêve Bleu et ses compagnons observèrent attentivement la brume noire entourant Wang Lin. Ils virent la vapeur se condenser lentement pour révéler la silhouette de ce dernier!
+Lanmeng et ses compagnons observèrent attentivement la brume noire entourant Wang Lin. Ils virent la vapeur se condenser lentement pour révéler la silhouette de ce dernier!
 
 Mais la brume continuait de s'accumuler, non pas sur Wang Lin, mais à sa droite. Une ombre y était accroupie. Lorsque la condensation fut totale, l'ombre devint limpide pour tous.
 

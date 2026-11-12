@@ -6,9 +6,9 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1679 - Reunion With the Mosquito Beasts
 slug: retrouvailles-avec-les-betes-moustiques
 ---
-Li Qianmei finit par partir avec son père, Rêve Bleu. La cinquième concubine fut emmenée par ce dernier.
+Li Qianmei finit par partir avec son père, le Maître Dao Bleu Rêve. La cinquième concubine fut emmenée par ce dernier.
 
-Ils retourneraient au clan Soie Bleue pour y ramener tout le clan. Ils choisiraient ensuite une région dans le Royaume Intérieur pour en faire la nouvelle demeure du clan Soie Bleue.
+Ils retourneraient au Clan Lan Si pour y ramener tout le clan. Ils choisiraient ensuite une région dans le Royaume Intérieur pour en faire la nouvelle demeure du Clan Lan Si.
 
 Avec le Maître Dao Bleu Rêve présent, bien qu'il fût blessé, il n'y aurait aucun danger à moins que le Souverain n'agisse personnellement. Même le Souverain n'oserait pas trop contraindre le Maître Dao Bleu Rêve maintenant que son cœur de Dao n'était plus imparfait et qu'il se tenait au sommet du Vide Arcanique.
 
@@ -32,9 +32,9 @@ Bientôt, cinq mois de la dernière demi-année passèrent, n'en laissant plus q
 
 Ce jour-là, Mu Bingmei se leva. Son regard était dépourvu de toute complication; il était limpide. Elle contempla Wang Lin pendant un long moment.
 
-« Prends soin de toi... » Ce fut sa première et unique parole. Après cela, Mu Bingmei se détourna et marcha vers le Vide Brillant.
+« Prends soin de toi... » Ce fut sa première et unique parole. Après cela, Mu Bingmei se détourna et marcha vers Kun Xu.
 
-Elle était la sainte du Vide Brillant, elle devait donc y retourner.
+Elle était la sainte de Kun Xu, elle devait donc y retourner.
 
 C'était comme si elle avait accompagné Wang Lin pendant onze mois uniquement pour prononcer cette unique phrase. Mu Bingmei partit avant que l'année ne soit achevée. Onze mois, il manquait encore un mois.
 

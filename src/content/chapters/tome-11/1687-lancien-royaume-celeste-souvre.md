@@ -14,15 +14,15 @@ Les quatre généraux de l'Ancien Royaume Céleste du Royaume Intérieur ne déc
 
 Les sens divins entourant Wang Lin ne remarquèrent point l'agitation qui secouait les Royaumes Intérieur et Extérieur!
 
-Le premier signe de ce bouleversement se manifesta dans le Vide Brillant du Royaume Intérieur.
+Le premier signe de ce bouleversement se manifesta dans le Système Stellaire Kun Xu du Royaume Intérieur.
 
-Dans l'immensité du Vide Brillant, des éclats de lumières colorées illuminèrent le système stellaire, faisant paraître l'obscurité de l'espace semblable à un champ de fleurs en pleine floraison.
+Dans l'immensité du Système Stellaire Kun Xu, des éclats de lumières colorées illuminèrent le système stellaire, faisant paraître l'obscurité de l'espace semblable à un champ de fleurs en pleine floraison.
 
 Un grondement assourdissant retentit parmi ces magnifiques lumières. Ce rugissement étouffé résonna à travers tout le système stellaire. Si ce système était une porte, alors ce grondement provenait de derrière celle-ci.
 
 C'était comme si un géant bombardait la porte avec acharnement, cherchant désespérément à la briser pour en sortir!
 
-Tandis que les grondements assourdissants se propageaient, le même rugissement sourd émana également de la Rivière Invoquée. Ce tumulte était audible et résonnait jusque dans la Mer Yun et Luotian.
+Tandis que les grondements assourdissants se propageaient, le même rugissement sourd émana également de Zhao He. Ce tumulte était audible et résonnait jusque dans la Mer Yun et Luotian.
 
 Ce son violent apparut lors du premier souffle et atteignit son apogée au cinquième. Il se propagea dans chaque recoin du Royaume Intérieur, touchant chaque planète et percutant les oreilles de chaque créature vivante!
 
@@ -36,7 +36,7 @@ Boum, boum, boum, boum!
 
 Le son était tellurique et, au huitième souffle, il devint presque démentiel, créant d'innombrables ondes qui résonnèrent à travers les quatre systèmes stellaires. À ce moment, on aurait dit que d'innombrables créatures de l'Ancien Royaume Céleste rugissaient; leur cri était ce grondement!
 
-Sur une planète de la Rivière Invoquée, habitée par seulement quelques dizaines de cultivateurs qui n'étaient pas allés vers le nouveau Royaume Céleste mais cherchaient des mortels capables de cultiver — des semences pour l'avenir du Royaume Intérieur —, les visages devinrent pâles. Ils crachèrent du sang, fixant le ciel avec effroi. Ils ignoraient la cause du phénomène, mais ce rugissement avait pénétré leur esprit, plongeant leurs âmes dans la panique.
+Sur une planète de Zhao He, habitée par seulement quelques dizaines de cultivateurs qui n'étaient pas allés vers le nouveau Royaume Céleste mais cherchaient des mortels capables de cultiver — des semences pour l'avenir du Royaume Intérieur —, les visages devinrent pâles. Ils crachèrent du sang, fixant le ciel avec effroi. Ils ignoraient la cause du phénomène, mais ce rugissement avait pénétré leur esprit, plongeant leurs âmes dans la panique.
 
 « Se pourrait-il que le Royaume Extérieur envahisse à nouveau?! » s'exclamèrent-ils, terrifiés. Ils tentèrent de prendre leur envol, mais alors qu'ils s'élançaient vers les cieux, un grondement assourdissant retentit et une pression écrasante descendit du ciel pour les clouer au sol.
 
@@ -52,13 +52,13 @@ Les évanouis ne purent voir le changement céleste. Le ciel continua de s'obscu
 
 Durant ces seize souffles, les quatre systèmes stellaires perdirent toute clarté. Planètes et continents furent enveloppés de ténèbres.
 
-Au dix-septième souffle, un fracas assourdissant, étouffant tous les sons des seize souffles précédents, retentit dans le Vide Brillant! Ce son ressemblait à une porte qui éclate, comme si le ciel lui-même s'effondrait!
+Au dix-septième souffle, un fracas assourdissant, étouffant tous les sons des seize souffles précédents, retentit dans le Système Stellaire Kun Xu! Ce son ressemblait à une porte qui éclate, comme si le ciel lui-même s'effondrait!
 
-Alors que ce grondement résonnait, une fissure apparut dans le Vide Brillant, se transformant rapidement en une faille gigantesque!
+Alors que ce grondement résonnait, une fissure apparut dans le Système Stellaire Kun Xu, se transformant rapidement en une faille gigantesque!
 
-Dès l'apparition de la faille, des rugissements empreints d'excitation et de folie jaillirent. L'aura de l'Ancien Royaume Céleste s'engouffra hors de cette brèche et balaya le Vide Brillant. Simultanément, des regards hideux apparurent dans la faille, tandis que des mains desséchées tentaient de s'étendre vers l'extérieur. On aurait dit un groupe d'êtres devenus fous, prêts à déchirer le système stellaire!
+Dès l'apparition de la faille, des rugissements empreints d'excitation et de folie jaillirent. L'aura de l'Ancien Royaume Céleste s'engouffra hors de cette brèche et balaya le Système Stellaire Kun Xu. Simultanément, des regards hideux apparurent dans la faille, tandis que des mains desséchées tentaient de s'étendre vers l'extérieur. On aurait dit un groupe d'êtres devenus fous, prêts à déchirer le système stellaire!
 
-À ce moment précis, une fissure similaire apparut dans la Rivière Invoquée, Luotian et la Mer Yun. Les quatre failles déchirèrent le système stellaire, libérant l'aura de l'Ancien Royaume Céleste!
+À ce moment précis, une fissure similaire apparut dans Zhao He, Luotian et la Mer Yun. Les quatre failles déchirèrent le système stellaire, libérant l'aura de l'Ancien Royaume Céleste!
 
 L'Ancien Royaume Céleste était sur le point de s'éveiller!
 

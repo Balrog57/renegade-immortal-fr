@@ -16,7 +16,7 @@ L'armée du Royaume Extérieur attaqua de huit directions différentes, telle hu
 
 Des grondements tonitruants résonnèrent. Une autre planète de culture s'effondra, et une onde de choc monstrueuse se propagea. Les cultivateurs du Vide Arcanique qui observaient la scène agitèrent leurs mains pour dissiper l'onde de choc afin qu'elle n'affecte pas les assaillants du Royaume Extérieur.
 
-Mu Bingmei se tenait sur une planète, entourée de milliers de cultivateurs de la Secte Divine. Au fil des années, en tant que maîtresse de la Secte Divine, Mu Bingmei avait utilisé son charme unique et les paroles que Wang Lin avait prononcées autrefois pour unir la Secte. Depuis lors, la Secte Divine l'avait toujours écoutée et avait déployé toute sa puissance lors de la bataille de la Mer Yun, de la Rivière Invoquée, du Vide Brillant et, désormais, dans cette ultime bataille.
+Mu Bingmei se tenait sur une planète, entourée de milliers de cultivateurs de la Secte Divine. Au fil des années, en tant que maîtresse de la Secte Divine, Mu Bingmei avait utilisé son charme unique et les paroles que Wang Lin avait prononcées autrefois pour unir la Secte. Depuis lors, la Secte Divine l'avait toujours écoutée et avait déployé toute sa puissance lors de la bataille de la Mer Yun, de Zhao He, de Kun Xu et, désormais, dans cette ultime bataille.
 
 Ils avaient subi d'immenses pertes, tant en vies qu'en blessures, et elle-même avait frôlé la mort à deux reprises. Désormais, il ne restait plus que quelques milliers de membres de la Secte Divine.
 
@@ -52,7 +52,7 @@ Ce Dao Feishan ne courtisait pas seulement les femmes, mais aussi les beaux homm
 
 Dans une autre direction, la femme en rose qui avait dit « Le Seigneur ne me connaît pas » se tenait sur une planète de culture. Derrière elle se trouvaient les cultivateurs de l'Alliance Xiu Zhen de Kun Xu. Bien que l'Alliance se fût effondrée des années auparavant, de nombreux cultivateurs subsistaient. Cependant, au fil de la bataille, moins de 3 000 d'entre eux restaient debout.
 
-Ces 3 000 cultivateurs venaient tous du Vide Brillant. Bien qu'épuisés, ils ne flanchaient pas. Ils se tenaient derrière la femme en rose, prêts à mourir!
+Ces 3 000 cultivateurs venaient tous de Kun Xu. Bien qu'épuisés, ils ne flanchaient pas. Ils se tenaient derrière la femme en rose, prêts à mourir!
 
 Au-dessus d'eux, hors de la lumière de la formation planétaire, des dizaines de milliers de cultivateurs du Royaume Extérieur continuaient leur assaut frénétique. Parmi eux se trouvait un homme d'âge moyen au torse nu. Son expression était féroce alors qu'il attaquait avec le vent et la foudre. Un tumulte incessant de vent et de tonnerre bombardait la formation planétaire.
 
@@ -60,7 +60,7 @@ Ses attaques, à elles seules, rivalisaient avec celles de dizaines de milliers 
 
 Cet homme était également l'un des sept cultivateurs de la troisième étape! Son corps imposant ressemblait à une montagne meurtrière. Il poussa un rugissement et attaqua aux côtés de la multitude. En souriant, il frappa l'écran lumineux, provoquant ses distorsions et son instabilité.
 
-« Tout est sur le point de s'achever... C'est ainsi, et c'est bien ainsi... » La femme en rose dissimulait son épuisement profond. Son corps semblait si fragile que le moindre souffle de vent aurait pu la faire s'effondrer. Elle détourna les yeux du ciel pour regarder ses compagnons du Vide Brillant.
+« Tout est sur le point de s'achever... C'est ainsi, et c'est bien ainsi... » La femme en rose dissimulait son épuisement profond. Son corps semblait si fragile que le moindre souffle de vent aurait pu la faire s'effondrer. Elle détourna les yeux du ciel pour regarder ses compagnons de Kun Xu.
 
 Elle allait prononcer quelque chose, mais ses mots furent interrompus par un grondement lointain.
 
@@ -94,7 +94,7 @@ La lumière verte se dissipa, révélant le corps de Qing Lin. Son visage était
 
 Depuis le début du siège, il ne cessait ainsi!
 
-Alors que Qing Lin apparaissait, une aura glaciale émana de la formation planétaire. Une femme vêtue de pourpre s'avança. Son expression était douce, mais ses yeux brûlaient d'une intention meurtrière. Elle venait de la Rivière Invoquée; elle était la maîtresse de la Rivière Invoquée!
+Alors que Qing Lin apparaissait, une aura glaciale émana de la formation planétaire. Une femme vêtue de pourpre s'avança. Son expression était douce, mais ses yeux brûlaient d'une intention meurtrière. Elle venait de Zhao He; elle était la maîtresse de Zhao He!
 
 Lorsqu'elle apparut, l'un des cultivateurs du Vide Arcanique qui observait la scène éclata de rire. La femme qui avait détruit les organes internes de Wang Lin s'élança vers la femme en pourpre.
 

@@ -26,13 +26,13 @@ Lorsque l'empreinte disparut, Du Qing ressentit secrètement un soulagement. Il 
 
 « Haha, une chance céleste, c'est une véritable bénédiction du ciel! » Les yeux de Du Qing brillèrent alors qu'il fixait la boule de feu où se trouvait Wang Lin. Il prit une profonde inspiration et força un sourire.
 
-« Un malentendu, tout n'est que malentendu. Camarade Cultivateur, c'est un malentendu. Je trouvais depuis longtemps que la porte de montagne de la Secte Cang Long était trop délabrée et je voulais la détruire pour la reconstruire. Vous êtes intervenu juste à temps pour m'aider et je vous en suis infiniment reconnaissant. En réalité, je vous ai rattrapé pour vous remercier, Camarade Cultivateur! » Du Qing ne cilla même pas en parlant.
+« Un malentendu, tout n'est que malentendu. Daoïste, c'est un malentendu. Je trouvais depuis longtemps que la porte de montagne de la Secte Cang Long était trop délabrée et je voulais la détruire pour la reconstruire. Vous êtes intervenu juste à temps pour m'aider et je vous en suis infiniment reconnaissant. En réalité, je vous ai rattrapé pour vous remercier, Daoïste! » Du Qing ne cilla même pas en parlant.
 
 « Oh? » Wang Lin regarda Du Qing avec un sourire qui n'en était pas un. C'était comme s'il avait percé à jour les pensées de Du Qing.
 
-« Puisque le Camarade Cultivateur dévore le feu, cette affaire est cruciale; comment pourrais-je partir? Soyez assuré que je vous protégerai et que je ne laisserai personne approcher! » Du Qing ne fut pas intimidé par le regard de Wang Lin. Craignant qu'il ne le croie pas, il pointa le ciel du doigt et reprit:
+« Puisque le Daoïste dévore le feu, cette affaire est cruciale; comment pourrais-je partir? Soyez assuré que je vous protégerai et que je ne laisserai personne approcher! » Du Qing ne fut pas intimidé par le regard de Wang Lin. Craignant qu'il ne le croie pas, il pointa le ciel du doigt et reprit:
 
-« Par la loi du Continent Astral Immortel qui surplombe ce monde, j'affirme aujourd'hui que je monterai la garde auprès du Camarade Cultivateur sans la moindre intention malveillante. Sinon, que le tonnerre céleste détruise mon Dao et mon âme! » Sur ces mots, un rayon de lumière rouge jaillit, portant le serment de Du Qing, avant de s'élancer au loin.
+« Par la loi du Continent Astral Immortel qui surplombe ce monde, j'affirme aujourd'hui que je monterai la garde auprès du Daoïste sans la moindre intention malveillante. Sinon, que le tonnerre céleste détruise mon Dao et mon âme! » Sur ces mots, un rayon de lumière rouge jaillit, portant le serment de Du Qing, avant de s'élancer au loin.
 
 C'était le symbole d'un serment sacré sur le Continent Astral Immortel. Peu de gens osaient rompre un tel engagement, car la loi même du Continent Astral Immortel en était le témoin!
 
@@ -42,7 +42,7 @@ Wang Lin observa Du Qing d'un regard chargé de sens et dit lentement: « Soit. 
 
 Entendant l'accord de Wang Lin, Du Qing retrouva toute sa vigueur. Son expression devint solennelle et il hocha la tête vers Wang Lin.
 
-« Le Camarade Cultivateur Wang peut être serein, ce vieil homme risquera sa vie pour assurer votre sécurité! » Tout en parlant, il recula de plusieurs pas, apparut à plusieurs milliers de pieds de là et s'assit en tailleur dans les airs. Son Sens Divin se déploya pour envelopper la zone, tout en épargnant délibérément l'espace immédiat entourant Wang Lin, afin de ne pas le troubler.
+« Le Daoïste Wang peut être serein, ce vieil homme risquera sa vie pour assurer votre sécurité! » Tout en parlant, il recula de plusieurs pas, apparut à plusieurs milliers de pieds de là et s'assit en tailleur dans les airs. Son Sens Divin se déploya pour envelopper la zone, tout en épargnant délibérément l'espace immédiat entourant Wang Lin, afin de ne pas le troubler.
 
 L'expression de Wang Lin resta neutre. Du Qing ne cachait pas ses intentions, et cela était parfaitement limpide pour lui. Tout cela était dû à l'empreinte dorée. Du Qing cherchait manifestement à se rapprocher du Grand Empyréen qui avait doté Wang Lin de ce trésor.
 
@@ -94,7 +94,7 @@ Les yeux de Du Qing brillèrent d'une lueur singulière. Il fixa la boule et une
 
 « Les essences se divisent également en strates: de la formation initiale de l'essence à la condensation d'un trésor d'essence, jusqu'à l'aboutissement final. Chaque étape doit être franchie l'une après l'autre. Cependant, la légende raconte que parmi les génies, certains peuvent aller plus loin après avoir parachevé leur essence: former un Corps Véritable d'Essence! »
 
-« Un Corps Véritable d'Essence est extrêmement rare, et lorsqu'il apparaît, sa puissance dépasse l'entendement! Dans toute ma vie, je n'ai vu que l'Ancien Suprême de la Secte Da Hun posséder un Corps Véritable d'Essence d'Âme, et personne d'autre... Ceci... Ce Camarade Cultivateur Wang essaie vraiment de former un Corps Véritable d'Essence! » Du Qing regardait Wang Lin avec une incrédulité totale.
+« Un Corps Véritable d'Essence est extrêmement rare, et lorsqu'il apparaît, sa puissance dépasse l'entendement! Dans toute ma vie, je n'ai vu que l'Ancien Suprême de la Secte Da Hun posséder un Corps Véritable d'Essence d'Âme, et personne d'autre... Ceci... Ce Daoïste Wang essaie vraiment de former un Corps Véritable d'Essence! » Du Qing regardait Wang Lin avec une incrédulité totale.
 
 Sur le Continent Astral Immortel, les pays antiques étaient divisés en 36 États. Le Pays Dao Gu occupait 12 États. L'État du Ciel abritait la capitale royale.
 

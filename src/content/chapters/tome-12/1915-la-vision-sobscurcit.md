@@ -60,7 +60,7 @@ Wang Lin fit un pas en avant et se retrouva instantanément aux côtés du maît
 
 Un grondement sourd retentit, son expression s'assombrit et l'aura de la mort envahit son corps. Repoussé, il fut suivi par Wang Lin tel une flèche qui lança un autre coup!
 
-Plus de cent ans auparavant, la scène à l'extérieur du Continent Terre-Meng — les têtes humaines volant dans les airs et Wang Lin tentant désespérément d'échapper au destin — surgit dans son esprit, à chaque coup!
+Plus de cent ans auparavant, la scène à l'extérieur du Continent Meng Tu — les têtes humaines volant dans les airs et Wang Lin tentant désespérément d'échapper au destin — surgit dans son esprit, à chaque coup!
 
 « Meurs! » Wang Lin lança un coup de poing et le corps du maître de la Secte Dao Mo s'effondra. Son âme originelle hurla en tentant de s'échapper de son enveloppe dévastée.
 

@@ -48,7 +48,7 @@ Le visage de Wang Lin pâlit instantanément, ses yeux tourmentés par un confli
 
 Le temps passa lentement tandis que le dilemme de Wang Lin agitait son cœur comme une grande vague. Après un long moment, il poussa un soupir. Il ne pouvait pas emmener le fou par la force. Le Grand Empyréen Shuangzi l'en empêcherait, et Jiu Di interviendrait également, et Hai Zi aussi. Si les trois s'alliaient, Wang Lin ne pourrait pas lutter contre eux pour emporter l'homme.
 
-De plus, emmener le fou plongerait le clan céleste dans le chaos. Wang Lin s'en souciait peu, mais cela affecterait le Grand Empyréen Shuangzi qui l'avait tant aidé... La Secte Yang Pourpre pourrait même être anéantie.
+De plus, emmener le fou plongerait le clan céleste dans le chaos. Wang Lin s'en souciait peu, mais cela affecterait le Grand Empyréen Shuangzi qui l'avait tant aidé... La Secte Zi Yang pourrait même être anéantie.
 
 Tout en méditant silencieusement, une expression amère se dessina sur le visage de Wang Lin. Il regarda le fou inconscient et ferma lentement les yeux.
 
@@ -106,7 +106,7 @@ L'expression de Wang Lin resta imperturbable alors qu'il se tournait vers elle. 
 
 « Merci... » Wang Lin joignit les mains et s'inclina devant le Grand Empyréen Shuangzi.
 
-« J'ai obtenu les yeux de l'Ancêtre Céleste, je vais donc retourner à la Secte Yang Pourpre pour entrer en retraite. Et vous? Partirez-vous, ou m'accompagnerez-vous à la Secte Yang Pourpre? »
+« J'ai obtenu les yeux de l'Ancêtre Céleste, je vais donc retourner à la Secte Zi Yang pour entrer en retraite. Et vous? Partirez-vous, ou m'accompagnerez-vous à la Secte Zi Yang? »
 
 Wang Lin tourna son regard vers le Continent de l'Est avant de déclarer: « Je veux retourner à la Secte Da Hun... Puis je quitterai le clan céleste... »
 

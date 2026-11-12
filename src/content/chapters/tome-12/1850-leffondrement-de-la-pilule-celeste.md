@@ -104,7 +104,7 @@ Wang Lin, fusionné avec le monde, s'apprêtait à partir quand l'onde de choc b
 
 Partout où passait la force destructrice, la terre s'effondrait, révélant en dessous un vide abyssal, noir comme le ciel étoilé!
 
-Cette onde balaya instantanément toute la Mer Dan, jusqu'à ce qu'elle disparaisse totalement. Puis, elle frappa de plein fouet les continents du Taureau Céleste et du Démon Vert.
+Cette onde balaya instantanément toute la Mer Dan, jusqu'à ce qu'elle disparaisse totalement. Puis, elle frappa de plein fouet le Continent Tian Niu et le Continent Lu Mo.
 
 Boum, boum, boum, boum!!
 

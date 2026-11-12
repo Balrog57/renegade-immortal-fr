@@ -101,13 +101,13 @@ Dès qu'il eut dépassé les quatre généraux, ceux-ci tremblèrent et reculèr
 
 Ils possédaient peut-être des moyens de ne pas craindre le Vieux Fantôme Zhan — après tout, son corps abritait l'âme du Souverain Céleste aux Sept Couleurs — mais face à Wang Lin et au Dao Céleste, ils ne purent que rester silencieux.
 
-Wang Lin, assis sur la Bête des Limbes, flottait vers le Vide Brillant. Bien qu'il paraisse calme, il soupira intérieurement.
+Wang Lin, assis sur la Bête des Limbes, flottait vers le Kun Xu. Bien qu'il paraisse calme, il soupira intérieurement.
 
 « Le Dao Céleste est-il incomplet...? Les quatre généraux étaient une formalité, mais la Bête des Limbes a laissé entendre qu'il serait très difficile de dévorer le Vieux Fantôme Zhan... »
 
-Également dans le Vide Brillant, un rayon de lumière aux sept couleurs traversait l'espace. Le Daoïste aux Sept Couleurs, tenant neuf sphères de sang de la taille d'un poing, volait vers l'avant.
+Également dans le Kun Xu, un rayon de lumière aux sept couleurs traversait l'espace. Le Daoïste aux Sept Couleurs, tenant neuf sphères de sang de la taille d'un poing, volait vers l'avant.
 
-« Les Neuf Mystères Sanguins sont enfin complets. Avec cette force sanguine, je peux faire apparaître la voie de la réincarnation et retrouver la troisième âme qui s'y était réfugiée autrefois... Elle doit se trouver dans le Vide Brillant. »
+« Les Neuf Mystères Sanguins sont enfin complets. Avec cette force sanguine, je peux faire apparaître la voie de la réincarnation et retrouver la troisième âme qui s'y était réfugiée autrefois... Elle doit se trouver dans le Kun Xu. »
 
 Sur le Continent Astral Immortel, dans une région appartenant aux célestes, se dressait un entrelacs de montagnes. La zone était couverte d'une forêt dense, tel un territoire sauvage et indompté.
 

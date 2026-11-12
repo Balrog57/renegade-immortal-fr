@@ -96,7 +96,7 @@ Après avoir récupéré l'objet, Wang Lin recula pour se placer près de la tê
 
 « Wang Lin, le Clan Dao Wang et moi avons élaboré ce plan, pourtant c'est toi qui en tires le plus grand profit. Ce vieil homme s'en souviendra. Quitte cet endroit, et tu ferais mieux de devenir un Grand Empyréen au plus vite. Sinon, une fois que je me serai débarrassé de la malédiction, tu devras me rendre des comptes! » dit Jiu Di en fixant Wang Lin, sans dissimuler ses pensées.
 
-« Et toi, Shuangzi. Si Dao Yi ne se rétablit pas et que nous entrons en guerre contre le clan Antique, alors tu n'auras qu'à regarder le sang de mon clan Céleste couler. Ta Secte Yang Pourpre ne s'en sortira pas seule! »
+« Et toi, Shuangzi. Si Dao Yi ne se rétablit pas et que nous entrons en guerre contre le clan Antique, alors tu n'auras qu'à regarder le sang de mon clan Céleste couler. Ta Secte Zi Yang ne s'en sortira pas seule! »
 
 « Ce vieil homme avait initialement un plan parfait. J'allais laisser tous les Grands Empyréens se partager les reliques de l'Ancêtre Céleste afin que nous devenions plus forts, pour qu'il n'y ait plus jamais d'Empereur Céleste! »
 

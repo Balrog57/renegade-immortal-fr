@@ -8,7 +8,7 @@ slug: grande-eruption
 ---
 L'homme corpulent sourit en se rapprochant de Qing Shui et de sa fille. Les yeux de Qing Shui, ternes et sur le point de se fermer, s'ouvrirent soudain. Hagard, il regarda au loin et, bien que sa vision fût floue, son esprit ressentit une aura familière.
 
-Cette aura familière appartenait à son frère, à son Junior!
+Cette aura familière appartenait à son frère, à son Junior frère!
 
 La femme en rose qui le soutenait leva également la tête. Ses yeux brillaient comme jamais auparavant alors qu'elle fixait l'horizon.
 

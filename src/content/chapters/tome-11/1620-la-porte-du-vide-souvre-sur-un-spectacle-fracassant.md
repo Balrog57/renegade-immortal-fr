@@ -1,6 +1,6 @@
 ---
 n: 1620
-title: "La Porte Kong s'ouvre sur un spectacle fracassant"
+title: "La Porte du Tonnerre s'ouvre sur un spectacle fracassant"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1620 - The Thunder Gate Opens to a Shocking Ring
@@ -96,7 +96,7 @@ Wang Lin ne faisait pas cela par simple caprice, mais il avait observé la Porte
 
 S'il voulait fusionner ses six essences, il aurait besoin d'une quantité inimaginable de l'énergie de la Porte Kong. Wang Lin ignorait la nature exacte de cette force, mais il savait que la puissance de la Porte était la clé pour les cultivateurs souhaitant atteindre le troisième stade.
 
-C'était comparable au Raffinage du Qi et à l'Établissement des Fondations!
+C'était comparable au Condensation du Qi et à l'Établissement des Fondations!
 
 Par conséquent, il devait passer par là!
 
@@ -104,7 +104,7 @@ Lorsque la Porte Kong apparut pour la seconde fois, les yeux de Wang Lin s'illum
 
 « Essence de feu, par mon nom, Wang Lin, consume la Porte Kong! » À l'instant où il parla, un feu aux neuf couleurs jaillit et envahit la zone.
 
-À cet instant précis, dans le Vide Brillant, la Mer Yun, Luotian, Rivière Invoquée, et même dans le Royaume Extérieur, un feu infini se précipita vers le doigt de Wang Lin tel le tonnerre d'autrefois. Tout ce brasier s'abattit sur la Porte Kong.
+À cet instant précis, dans Kun Xu, la Mer Yun, Luotian, Rivière Zhao, et même dans le Royaume Extérieur, un feu infini se précipita vers le doigt de Wang Lin tel le tonnerre d'autrefois. Tout ce brasier s'abattit sur la Porte Kong.
 
 Il était impossible de décrire la splendeur de ce spectacle. C'était une scène que bien des cultivateurs ne verraient jamais de leur vivant.
 

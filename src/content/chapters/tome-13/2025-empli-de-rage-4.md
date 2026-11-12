@@ -70,7 +70,7 @@ L'Empereur souriait encore, éclatant parfois de rire. Song Zhi était assise si
 
 Pourtant, l'Empereur lançait des regards joueurs à Song Zhi. Il était transporté par le bonheur; en vérité, cela faisait bien longtemps qu'il n'avait pas ressenti une telle joie.
 
-Il était convaincu à 90 % que Wang Lin et l'Âme se connaissaient. Et au vu de l'attitude de Wang Lin, leur relation semblait profonde, comme s'ils étaient des partenaires du Dao.
+Il était convaincu à 90 % que Wang Lin et le fragment d'âme se connaissaient. Et au vu de l'attitude de Wang Lin, leur relation semblait profonde, comme s'ils étaient des partenaires du Dao.
 
 Chaque fois qu'il y pensait, il éclatait de rire et buvait une coupe de vin. Il savourait cette sensation. Plus tard, lorsqu'il s'adonnerait à son impératrice, il fantasmerait sur l'expression de douleur de Wang Lin.
 

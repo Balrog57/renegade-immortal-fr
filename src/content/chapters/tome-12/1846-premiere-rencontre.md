@@ -36,7 +36,7 @@ De plus en plus de veines sanguines apparurent dans les yeux de Wang Lin, et il 
 
 Le temps s'écoulait lentement. En un éclair, une heure s'était écoulée. Le Tigre Blanc et ses compagnons restaient solennels, surveillant attentivement les environs pour protéger Wang Lin. Leur espoir de s'en sortir dépendait entièrement de la capacité de Wang Lin à briser cette formation.
 
-Après le passage d'une autre demi-baguette d'encens, les yeux de Wang Lin s'illuminèrent et il pointa le ciel à trois reprises. À chaque geste, une ligne de sang jaillissait des deux yeux géants situés derrière lui.
+Après le passage d'encore un demi-bâton d'encens, les yeux de Wang Lin s'illuminèrent et il pointa le ciel à trois reprises. À chaque geste, une ligne de sang jaillissait des deux yeux géants situés derrière lui.
 
 Pour un observateur extérieur, rien n'était visible, mais du point de vue de Wang Lin, chaque ligne volait vers les zones où le brouillard était plus ténu dans la première couche. Les trois lignes se rejoignirent pour former un cercle.
 
@@ -58,7 +58,7 @@ Wang Lin demeurait calme, l'esprit concentré sur les sept couches de restrictio
 
 Mais Wang Lin possédait l'essence de restriction; il ne comptait pas uniquement sur la déduction, mais aussi sur son regard d'essence. Sous son regard, toutes les restrictions du monde semblaient ne plus pouvoir se dissimuler.
 
-Après encore sept minutes et demie, et après avoir percé les trois premières couches, les yeux de Wang Lin brillèrent et il effectua dix-sept mouvements! Dix-sept lignes de sang jaillirent des deux yeux géants derrière lui. Dans la quatrième couche, six lignes formèrent un petit cercle là où le brouillard était fin.
+Après encore un demi-quart d'heure, et après avoir percé les trois premières couches, les yeux de Wang Lin brillèrent et il effectua dix-sept mouvements! Dix-sept lignes de sang jaillirent des deux yeux géants derrière lui. Dans la quatrième couche, six lignes formèrent un petit cercle là où le brouillard était fin.
 
 Les fines lignes restantes formèrent également un cercle dans la cinquième couche. Désormais, un passage circulaire à travers le brouillard était ouvert dans les cinq premières couches.
 

@@ -48,13 +48,13 @@ Le Maître Dao Bleu Rêve ouvrit les yeux et fixa Wang Lin, le visage assombri.
 
 « Cela ne devrait pas être difficile pour toi! Si ce n'était pour ma fille, même si tu avais atteint le stade Vide Spirituel et possédais l'héritage ancestral, même si tu pouvais tuer des cultivateurs du début du stade Vide Arcanique, tu ne représenterais rien à mes yeux. »
 
-« Tu peux très bien tirer l'Arc de Li Guang pour abattre ces vieux os! Mais même si je meurs, je n'emmènerai pas mon clan Soie Bleue dans le Royaume Intérieur! »
+« Tu peux très bien tirer l'Arc de Li Guang pour abattre ces vieux os! Mais même si je meurs, je n'emmènerai pas mon Clan Lan Si dans le Royaume Intérieur! »
 
 « Moi, Bleu Rêve, suis né dans le Système Stellaire Antique. Je suis l'un des Cinq Maîtres de ce système. Penses-tu, après avoir pris cette décision, que je mentirais à un junior comme toi? Qu'as-tu pour que je veuille te tromper? Ce vieux a cultivé pendant d'innombrables années, je ne m'abaisserais pas à cela! »
 
 « La Perle Défiant le Ciel est entre tes mains. Si j'avais été avide, je l'aurais prise depuis longtemps! Tu n'avais même pas atteint la troisième étape à l'époque; si ce vieux avait voulu te tuer, il l'aurait fait bien plus tôt. Si ce n'était pour ce qui lie Qianmei et toi, pourquoi aurais-je attendu jusqu'ici? »
 
-« La question entre toi et le Souverain, la bataille entre les Royaumes Intérieur et Extérieur, ainsi que le conflit entre le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan... Je pourrais simplement protéger mon clan Soie Bleue, et quel que soit le vainqueur final, personne ne pourrait me forcer à prendre part à cette guerre. Il est même probable qu'on chercherait à me rallier par des faveurs! »
+« La question entre toi et le Souverain, la bataille entre les Royaumes Intérieur et Extérieur, ainsi que le conflit entre le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan... Je pourrais simplement protéger mon Clan Lan Si, et quel que soit le vainqueur final, personne ne pourrait me forcer à prendre part à cette guerre. Il est même probable qu'on chercherait à me rallier par des faveurs! »
 
 « Pourtant, j'ai tout abandonné juste pour que tu fasses une promesse à ma fille. Wang Lin, ne me pousse pas à aller trop loin! » Bleu Rêve fixa Wang Lin, la colère brillant dans ses yeux.
 
@@ -72,7 +72,7 @@ Wang Lin afficha un regard tourmenté. Il se leva et joignit les mains en signe 
 
 Wang Lin songea en silence. Il se leva et regarda au loin. Après un long moment, ses yeux étaient empreints de confusion alors que son regard dérivait vers Li Qianmei. Il vit ses larmes et la façon dont elle baissait la tête pour fuir son regard.
 
-« Tu... Laisse tomber, ce vieux ne veut pas de réponse immédiate. Réfléchis-y et reviens me trouver au sein du clan Soie Bleue! » Le Maître Dao Bleu Rêve se leva, décidant de ne plus cultiver ici. En voyant la tristesse dans le regard de sa fille, il ressentit un pincement au cœur. Il était venu avec l'espoir que tout s'arrangerait et que Wang Lin accepterait, mais cela se terminait ainsi.
+« Tu... Laisse tomber, ce vieux ne veut pas de réponse immédiate. Réfléchis-y et reviens me trouver au sein du Clan Lan Si! » Le Maître Dao Bleu Rêve se leva, décidant de ne plus cultiver ici. En voyant la tristesse dans le regard de sa fille, il ressentit un pincement au cœur. Il était venu avec l'espoir que tout s'arrangerait et que Wang Lin accepterait, mais cela se terminait ainsi.
 
 « Papa, partons... » Li Qianmei essuya ses larmes et se leva doucement pour rejoindre le Maître Dao Bleu Rêve.
 

@@ -22,7 +22,7 @@ Une telle situation ne pouvait survenir que lorsque le pouvoir impérial avait a
 
 On aurait dit que Wang Lin avait été pris au piège!
 
-À la vue de ce spectacle, qu'il s'agisse de l'homme massif en armure dorée, du Seigneur Démon Kong Shi, du jeune homme en robe noire, de la foule agenouillée ou même du soldat en armure de cuir qui avait remis le jade à Wang Lin, tous affichèrent des regards glacials.
+À la vue de ce spectacle, qu'il s'agisse de l'homme massif en armure dorée, du Seigneur Démon Kong Si, du jeune homme en robe noire, de la foule agenouillée ou même du soldat en armure de cuir qui avait remis le jade à Wang Lin, tous affichèrent des regards glacials.
 
 Leurs yeux semblaient condenser une seule pensée:
 
@@ -36,7 +36,7 @@ Non seulement lui, mais tous ceux qui étaient agenouillés furent stupéfaits. 
 
 Les pupilles de l'homme massif en armure dorée se contractèrent. Il était lui aussi un dieu ancien à neuf étoiles, et il savait qu'il n'aurait pu accomplir un tel exploit. Peut-être seul le corps d'un Seigneur Démon pouvait-il être aussi étrange.
 
-Cependant, le cœur de Kong Shi était en plein chaos. Au moment où Wang Lin était sorti de l'attaque, il n'avait ressenti aucune puissance démoniaque, ce qui rendait la chose encore plus insolite!
+Cependant, le cœur de Kong Si était en plein chaos. Au moment où Wang Lin était sorti de l'attaque, il n'avait ressenti aucune puissance démoniaque, ce qui rendait la chose encore plus insolite!
 
 « Il... Qui est-il?! »
 
@@ -126,7 +126,7 @@ Voyant Wang Lin s'exprimer, le prince retrouva de l'entrain et joignit rapidemen
 
 « Je demande au Senior de bien vouloir patienter un instant. Une fois que j'aurai fait partir les ambassadeurs du Dao Antique, je saurai certainement me montrer à la hauteur de vos attentes. » Après que Wang Lin eut acquiescé, le prince envoya immédiatement un message à l'homme massif en armure dorée situé plus bas:
 
-« Veuillez inviter Lady Song Zhi à accompagner les ambassadeurs du Dao Antique. »
+« Veuillez inviter Demoiselle Song Zhi à accompagner les ambassadeurs du Dao Antique. »
 
 Peu après, une femme vêtue de bleu sortit de la porte de la ville. Sans être d'une beauté éclatante, elle dégageait un tempérament d'une grande pureté. En sortant, elle leva la tête, et c'est à cet instant précis que le regard de Wang Lin se posa sur elle.
 

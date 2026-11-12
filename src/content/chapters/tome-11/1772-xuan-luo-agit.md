@@ -102,7 +102,7 @@ Si les deux étaient simplement surpris, le Souverain, lui, était pétrifié, s
 
 Il n'avait jamais ressenti une telle peur. Quelle que soit la panique qu'il avait éprouvée auparavant, rien ne pouvait être comparé à cet instant. Il ne comprenait pas, ne pouvait imaginer, ou plus exactement, il n'osait même pas l'envisager.
 
-« C'est un prodige que seul le frère aîné de Maître... les Neuf Soleils du Continent Astral Immortel, les neuf grands Maîtres Célestes, pourraient accomplir... » Le cœur du Souverain vacilla. Il était totalement terrifié.
+« C'est un prodige que seul le frère aîné de Maître... les Neuf Soleils du Continent Xian Gang, les neuf grands Maîtres Célestes, pourraient accomplir... » Le cœur du Souverain vacilla. Il était totalement terrifié.
 
 Au loin, Yun Yifeng vit l'expression du Souverain et observa l'empreinte dorée flottant devant Wang Lin. Ses yeux se remplirent de terreur, comme s'il venait de concevoir une idée terrifiante, et il baissa soudainement la tête.
 

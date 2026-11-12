@@ -1,6 +1,6 @@
 ---
 n: 1925
-title: Secte Céleste
+title: Secte Tian Men
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1925 - Heaven Secte
@@ -8,7 +8,7 @@ slug: secte-celeste
 ---
 « Cette affaire semble injuste envers Qing Shuang et n'est pas équitable pour Qing Lin... Je n'aurais pas dû faire cela... Mais l'obsession de milliers d'années de Zhou Yi... Peu importe, je ne peux pas tout rendre parfait. » Wang Lin soupira.
 
-Tandis que le dragon de mer sous lui rugissait, ils quittèrent la Secte Di. Avant d'arriver ici, Wang Lin ne s'attendait pas à les rencontrer, elle et lui.
+Tandis que le dragon de mer sous lui rugissait, ils quittèrent la Secte Di Men. Avant d'arriver ici, Wang Lin ne s'attendait pas à les rencontrer, elle et lui.
 
 « Situ, Qing Shui, Xu Liguo, Liu Jinbiao... Tant d'amis du passé. Je me demande s'ils sont quelque part... sous le même ciel. » Assis sur la tête du dragon de mer, Wang Lin leva les yeux vers l'azur avec un regard mélancolique.
 
@@ -16,27 +16,27 @@ Tandis que le dragon de mer sous lui rugissait, ils quittèrent la Secte Di. Ava
 
 « Et aussi... Li Qianmei. » Après avoir rencontré le premier vieil ami réincarné, Wang Lin sentit des ondes de nostalgie résonner dans son cœur. Leurs visages si vivants défilèrent dans son esprit.
 
-Sous les ordres de Wang Lin, le dragon de mer fonça vers la seconde puissance du continent: la Secte Terre-Meng, une secte d'égale envergure à la Secte Di.
+Sous les ordres de Wang Lin, le dragon de mer fonça vers la seconde puissance du continent: la Secte Meng Tu, une secte d'égale envergure à la Secte Di Men.
 
-Grâce au niveau de culture d'Exalté Empyréen de Wang Lin et à la puissance du dragon de mer d'Exalté Doré, le voyage se déroula sans encombre. La Secte Terre-Meng remit respectueusement la carte de jade, craignant de déplaire à Wang Lin.
+Grâce au niveau de culture d'Exalté Empyréen de Wang Lin et à la puissance du dragon de mer d'Exalté Doré, le voyage se déroula sans encombre. La Secte Meng Tu remit respectueusement la carte de jade, craignant de déplaire à Wang Lin.
 
-Wang Lin déploya également son Sens Divin dans la Secte Terre-Meng. Bien que les chances fussent faibles, il souhaitait tenter de retrouver d'anciens amis.
+Wang Lin déploya également son Sens Divin dans la Secte Meng Tu. Bien que les chances fussent faibles, il souhaitait tenter de retrouver d'anciens amis.
 
 Mais il ne trouva rien.
 
-Dans un soupir et une bénédiction adressée à Zhou Yi et Qing Shuang, Wang Lin s'assit sur le dragon de mer qui volait désormais vers le Continent Céleste.
+Dans un soupir et une bénédiction adressée à Zhou Yi et Qing Shuang, Wang Lin s'assit sur le dragon de mer qui volait désormais vers le Continent Tian.
 
-L'ensemble du Continent de l'Est ne comptait que quelques Exaltés Empyréens. Sur le Continent Céleste, la Secte Céleste faisait partie des neuf sectes et treize factions. L'Ancien Ancestral de la Secte Céleste était réputé être un génie de la même génération que Luo Yunhai.
+L'ensemble du Continent de l'Est ne comptait que quelques Exaltés Empyréens. Sur le Continent Tian, la Secte Tian Men faisait partie des neuf sectes et treize factions. L'Ancien Ancestral de la Secte Tian Men était réputé être un génie de la même génération que Luo Yunhai.
 
 Cependant, sa culture s'était arrêtée au stade d'Exalté Empyréen. Il avait autrefois suivi le Grand Empyréen Shuangzi; mais après un événement mystérieux, il était parti en silence. Il était retourné à la secte et n'en était plus sorti depuis des dizaines de milliers d'années.
 
-La Secte Céleste était l'organisation la plus puissante du Continent Céleste. Parmi les neuf sectes et treize factions, elle seule régnait sur l'intégralité du continent. Elle se distinguait des autres par sa structure: loin d'être une entité unique, elle possédait dix-neuf sectes branches réparties sur tout le territoire, contrôlant ainsi totalement les ressources du continent.
+La Secte Tian Men était l'organisation la plus puissante du Continent Tian. Parmi les neuf sectes et treize factions, elle seule régnait sur l'intégralité du continent. Elle se distinguait des autres par sa structure: loin d'être une entité unique, elle possédait dix-neuf sectes branches réparties sur tout le territoire, contrôlant ainsi totalement les ressources du continent.
 
-À cet instant, un gigantesque dragon de mer traversait rapidement le Continent Céleste. Wang Lin, assis sur la tête de la créature, contemplait calmement la terre en contrebas.
+À cet instant, un gigantesque dragon de mer traversait rapidement le Continent Tian. Wang Lin, assis sur la tête de la créature, contemplait calmement la terre en contrebas.
 
-Si ce continent portait le nom de Continent Céleste, c'était parce que les nuages y stagnaient très bas. Normalement censés flotter haut dans le ciel, des changements étranges les avaient maintenus près du sol, comme si l'on pouvait les saisir d'un simple geste de la main.
+Si ce continent portait le nom de Continent Tian, c'était parce que les nuages y stagnaient très bas. Normalement censés flotter haut dans le ciel, des changements étranges les avaient maintenus près du sol, comme si l'on pouvait les saisir d'un simple geste de la main.
 
-Par conséquent, tout le Continent Céleste ressemblait à un monde merveilleux perpétuellement enveloppé de brume. Le continent était parsemé d'innombrables montagnes, dont le plus haut sommet se nommait le Pic Céleste. De loin, on ne pouvait en percevoir la totalité, car les nuages en masquaient une partie, lui conférant un aspect extraordinaire.
+Par conséquent, tout le Continent Tian ressemblait à un monde merveilleux perpétuellement enveloppé de brume. Le continent était parsemé d'innombrables montagnes, dont le plus haut sommet se nommait le Pic Tian Feng. De loin, on ne pouvait en percevoir la totalité, car les nuages en masquaient une partie, lui conférant un aspect extraordinaire.
 
 Ce jour-là, l'apparition du dragon de mer provoqua des ondulations dans l'air. La créature flottait dans le ciel, fixant la montagne en contrebas. Sa culture d'Exalté Doré se déploya entièrement, enveloppant toute la zone.
 
@@ -44,15 +44,15 @@ Vêtu de blanc immaculé, Wang Lin se tenait sur la tête du dragon, paraissant 
 
 Une fois au sommet du pic enneigé, il laissa le vent faire flotter ses cheveux blancs. Le dragon de mer décrivit des cercles autour de lui, scrutant les environs d'un regard froid.
 
-« Je suis Wang Lin. Je demande à rencontrer l'Ancien Ancestral de la Secte Céleste sur le Pic Céleste! » Le Sens Divin de Wang Lin se propagea comme des millions d'éclairs explosifs. Le grondement qui en résulta, tel un tonnerre véritable, couvrit plus de la moitié du Continent Céleste en un instant.
+« Je suis Wang Lin. Je demande à rencontrer l'Ancien Ancestral de la Secte Tian Men sur le Pic Tian Feng! » Le Sens Divin de Wang Lin se propagea comme des millions d'éclairs explosifs. Le grondement qui en résulta, tel un tonnerre véritable, couvrit plus de la moitié du Continent Tian en un instant.
 
-Sur tout le continent, les cultivateurs des branches de la Secte Céleste et des nombreuses sectes subordonnées tremblèrent lorsqu'ils ressentirent ce puissant Sens Divin balayer leur domaine. Même les nuages semblèrent s'effondrer. Sous la pression du Sens Divin, la brume se retira, rendant tout parfaitement clair dans un rayon de dizaines de millions de kilomètres autour de Wang Lin!
+Sur tout le continent, les cultivateurs des branches de la Secte Tian Men et des nombreuses sectes subordonnées tremblèrent lorsqu'ils ressentirent ce puissant Sens Divin balayer leur domaine. Même les nuages semblèrent s'effondrer. Sous la pression du Sens Divin, la brume se retira, rendant tout parfaitement clair dans un rayon de dizaines de millions de kilomètres autour de Wang Lin!
 
-Au cœur du Continent Céleste, alors que le Sens Divin de Wang Lin résonnait à travers les montagnes infinies, une aura fracassante éclata, modifiant la couleur même du monde. Les nuages se déchirèrent et un vieil homme aux cheveux blancs, vêtu de simples habits de toile grossière, s'avança dans les airs.
+Au cœur du Continent Tian, alors que le Sens Divin de Wang Lin résonnait à travers les montagnes infinies, une aura fracassante éclata, modifiant la couleur même du monde. Les nuages se déchirèrent et un vieil homme aux cheveux blancs, vêtu de simples habits de toile grossière, s'avança dans les airs.
 
 Sa simple présence semblait faire trembler le monde. Il scruta l'horizon vers le sommet de la montagne. Ses yeux s'illuminèrent, il agita sa manche et disparut.
 
-Lorsqu'il réapparut, il se trouvait au sommet du Pic Céleste. Des ondulations se propagèrent tandis qu'il avançait. Sans même accorder un regard au dragon de mer qui rôdait autour de la montagne, il fixa directement Wang Lin.
+Lorsqu'il réapparut, il se trouvait au sommet du Pic Tian Feng. Des ondulations se propagèrent tandis qu'il avançait. Sans même accorder un regard au dragon de mer qui rôdait autour de la montagne, il fixa directement Wang Lin.
 
 Un vide de dix mille pieds les séparait. Tandis que le vieil homme l'observait, Wang Lin leva les yeux et son regard brilla. Leurs yeux se rencontrèrent pour la première fois.
 
@@ -62,7 +62,7 @@ Le corps de Wang Lin trembla et la lumière dorée de son regard se fit plus int
 
 « Pourquoi m'as-tu convoqué ici? » Le vieil homme retira son regard et fixa Wang Lin avec une expression sérieuse.
 
-« Je viens d'atteindre le stade d'Exalté Empyréen et je souhaiterais simplement solliciter quelques conseils de la part d'un camarade, rien de plus. » Wang Lin n'avait aucune animosité envers la Secte Céleste. Ses paroles étaient polies et il joignit les mains en signe de respect devant le vieil homme.
+« Je viens d'atteindre le stade d'Exalté Empyréen et je souhaiterais simplement solliciter quelques conseils de la part d’un Daoïste, rien de plus. » Wang Lin n'avait aucune animosité envers la Secte Tian Men. Ses paroles étaient polies et il joignit les mains en signe de respect devant le vieil homme.
 
 Le vieil homme éclata de rire et une intention de combat jaillit de ses yeux. S'il était rare qu'un combat à mort oppose des Exaltés Empyréens, des échanges techniques étaient habituels. Cependant, comme ces êtres étaient si peu nombreux, il était exceptionnel que l'un d'eux renonce à l'opportunité de défier un autre. Un tel échange était bénéfique pour les deux parties.
 
@@ -76,7 +76,7 @@ Des grondements tonitruants secouèrent le monde environnant. La tempête de nei
 
 Quelques heures plus tard, la silhouette de Wang Lin émergea de la neige infinie pour se stabiliser à des dizaines de kilomètres de là.
 
-« La culture de ce camarade est extraordinaire. Cette bataille m'a beaucoup apporté, je vous en remercie! »
+« La culture de ce Daoïste est extraordinaire. Cette bataille m'a beaucoup apporté, je vous en remercie! »
 
 Au même moment, le vieil homme aux cheveux blancs avait également reculé de plusieurs dizaines de milliers de pieds avant de se stabiliser.
 
@@ -91,7 +91,7 @@ Les deux lancèrent une offensive rapide depuis deux directions opposées. Les f
 
 La bataille dura sept jours. Wang Lin et le vieil homme s'affrontèrent vingt-trois fois! Toutes les quelques escarmouches, ils se séparaient pour restaurer leur culture et méditer sur l'échange précédent, tout en discutant ensemble. Ce type de combat entre Exaltés Empyréens ne comportait aucune haine; c'était une source d'enseignement précieuse pour chacun.
 
-« Camarade Wang, je vois que tu te retiens encore un peu. Nos forces de combat sont comparables, alors pourquoi ne pas tout donner? » À l'issue du vingt-troisième affrontement, le vieil homme rit à distance.
+« Daoïste Wang, je vois que tu te retiens encore un peu. Nos forces de combat sont comparables, alors pourquoi ne pas tout donner? » À l'issue du vingt-troisième affrontement, le vieil homme rit à distance.
 
 « D'accord! » Wang Lin se leva et son Corps Véritable des Cinq Éléments apparut!
 
@@ -103,7 +103,7 @@ Ils attaquèrent simultanément, et le vieil homme ne se retint plus. Il décha�
 
 Les grondements tonitruants persistèrent durant trois jours. Enfin, Wang Lin sourit, monta sur le dos du dragon de mer et s'envola.
 
-« Camarade Murong, merci infiniment! »
+« Daoïste Murong, merci infiniment! »
 
 Tandis que la neige tombait, le vieil homme sortit et regarda dans la direction de Wang Lin avec un visage grave.
 

@@ -98,7 +98,7 @@ Alors que la barrière vacillait sous l'effort de renforcement, Wang Lin fit un 
 
 En s'approchant de la limite de la barrière, Wang Lin leva silencieusement sa main droite. Un éclat de froideur passa dans ses yeux et il lança un coup de poing.
 
-*Rumble, rumble, rumble, rumble!*
+*Boum, boum, boum, boum!*
 
 La barrière renforcée par le maître de la Secte ne dura qu'un instant avant de voler en éclats. Tous les édifices environnants sur l'île furent pulvérisés, laissant apparaître le visage désespéré du maître de la Secte!
 

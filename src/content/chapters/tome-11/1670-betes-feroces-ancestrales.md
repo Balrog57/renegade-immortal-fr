@@ -16,7 +16,7 @@ Dans son rugissement, la Lance aux Sept Couleurs chargea vers la lumière antiqu
 
 Dès que la lance apparut, les étoiles tremblèrent et une lueur septicolore brilla de mille feux. Une aura puissante se dégageait de l'arme. Cette lance n'appartenait pas à ce monde de la grotte; c'était un sort divin du Continent Astral Immortel, la technique du Souverain Céleste aux Sept Couleurs de la Secte Qi Dao!
 
-Ce sort était un secret jalousement gardé par le Souverain Céleste aux Sept Couleurs, et il était presque impossible pour des étrangers de l'apprendre. Seul un fou aurait pu utiliser son identité pour dérober une telle technique.
+Ce sort était un secret jalousement gardé par le Souverain Céleste aux Sept Couleurs, et il était presque impossible pour des étrangers de l'apprendre. Seul ce fou, grâce à son identité sur le Continent Astral Immortel, avait pu s'en emparer presque de force.
 
 Au moment où la Lance aux Sept Couleurs apparut dans le Système Stellaire Antique, le Souverain afficha un regard complexe, empreint de haine. Il apercevait la lance au loin. Il avait vu son maître utiliser ce sort et avait personnellement été témoin de sa puissance lors des guerres passées.
 
@@ -72,7 +72,7 @@ Bien que ces bêtes aient été nées dans cette grotte, leurs ancêtres avaient
 
 Bien qu'elles ne fussent pas originaires du Continent Astral Immortel, elles en portaient l'aura. Il s'agissait de diverses races de bêtes célestes issues de ce continent!
 
-Leurs âmes contenaient les souvenirs de leurs ancêtres. Parmi les dizaines de bêtes féroces surgissant des chars, on voyait des dragons de dix mille pieds, des créatures étranges et même une bête que Wang Lin avait déjà rencontrée: le Ji Qiong!
+Leurs âmes contenaient les souvenirs de leurs ancêtres. Parmi les dizaines de bêtes féroces surgissant des chars, on voyait des dragons de cent mille pieds, des créatures étranges et même une bête que Wang Lin avait déjà rencontrée: le Ji Qiong!
 
 Des rugissements tonitruants jaillirent des chars, tandis que les cultivateurs prêts à mourir s'installaient dans les bras de lancement.
 
@@ -92,7 +92,7 @@ Les grondements résonnaient à ses oreilles. Les cultivateurs du Royaume Extér
 
 Cette aura contenait la force d'âme de chaque char. À mesure que les morts s'accumulaient, cette essence funeste dessinait une étrange rune.
 
-C'est alors qu'au moment où un cultivateur fut expulsé d'un char, le dragon de dix mille pieds qui y siégeait poussa un rugissement. Ses yeux, jusque-là clos, s'ouvrirent soudainement, révélant un regard féroce avant qu'il ne dévore le cultivateur. Puis, il s'élança hors du char et chargea la formation!
+C'est alors qu'au moment où un cultivateur fut expulsé d'un char, le dragon de cent mille pieds qui y siégeait poussa un rugissement. Ses yeux, jusque-là clos, s'ouvrirent soudainement, révélant un regard féroce avant qu'il ne dévore le cultivateur. Puis, il s'élança hors du char et chargea la formation!
 
 C'était comme si la rune apparue sur la formation agissait comme une attraction mortelle. Le dragon se précipita avec désespoir.
 

@@ -92,7 +92,7 @@ Ces deux émanations se transformèrent en deux masses de gaz noir saturées d'�
 
 Simultanément, à deux autres endroits du Clan Ancien, deux piliers gigantesques jaillirent dans les airs. La terre trembla alors qu'ils disparaissaient dans l'immensité céleste.
 
-Dans le ciel, les huit vortex noirs tournèrent avec une rapidité fulgurante jusqu'à ce que l'un d'eux explose en une lumière noire. Cette clarté sombre, semblable à de l'encre, se répandit partout. En un clin d'œil, le ciel entier devint noir!
+Dans le ciel, les neuf vortex noirs tournèrent avec une rapidité fulgurante jusqu'à ce que l'un d'eux explose en une lumière noire. Cette clarté sombre, semblable à de l'encre, se répandit partout. En un clin d'œil, le ciel entier devint noir!
 
 Ce n'était pas seulement la voûte céleste locale, mais tout le ciel du Clan Ancien qui s'obscurcit. Même les cieux des vastes mers et des 72 continents du Clan Céleste furent plongés dans la nuit!
 

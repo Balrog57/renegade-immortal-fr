@@ -60,7 +60,7 @@ Simultanément, le bourgeon du lotus trembla. Les sept couleurs vacillèrent et 
 
 Toutefois, l'effondrement de la lame et de ces deux pétales généra une force destructrice colossale. Cette onde de choc se propagea avec fureur, prenant le lotus aux sept couleurs pour épicentre.
 
-Des tonnerres sourds résonnèrent à travers tout le système stellaire. Celui-ci commença à s'effondrer centimètre par centimètre, comme s'il était déchiqueté par une force invisible.
+Des tonnerres sourds résonnèrent à travers tout le système stellaire. Celui-ci commença à s'effondrer pouce par pouce, comme s'il était déchiqueté par une force invisible.
 
 Le système stellaire trembla et continua sa chute. Tandis que l'onde destructrice se propageait, tout sur son passage fut anéanti. Même les neuf planètes vibrèrent, et sept d'entre elles explosèrent, se transformant en trous noirs dévorant toute matière.
 

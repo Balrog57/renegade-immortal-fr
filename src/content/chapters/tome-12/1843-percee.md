@@ -50,7 +50,7 @@ Quelques heures plus tard, plus de la moitié de la Mer Dan avait viré au noir.
 
 Même le groupe de cultivateurs aux robes vertes ralentit dans cette mer noire, bien qu'ils ne fussent pas blessés. La femme sous les bannières ne pouvait le voir, mais la boussole révélait clairement les changements en cours.
 
-La moitié de la Carte des Pilules sur son instrument était devenue noire. Tous les points blancs touchés par l'onde sombre avaient disparu, comme effacés.
+La moitié de la carte de la Mer Dan sur son instrument était devenue noire. Tous les points blancs touchés par l'onde sombre avaient disparu, comme effacés.
 
 « Quel que soit l'être qui cause ce trouble, je veux voir comment vous absorberez la Mer Dan une fois qu'elle sera souillée... » murmura la femme, un éclat glacial dans le regard alors qu'elle passait en revue les centaines de points blancs restants.
 

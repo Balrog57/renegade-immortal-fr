@@ -6,9 +6,9 @@ bookTitle: Light of the coming end
 en: Chapter 2006 - Vision Obscured By a Single Leaf.
 slug: une-vision-obscurcie-par-une-seule-feuille
 ---
-Le vent d'automne soufflait sur la terre noire. C'était une saison qui commençait par la fraîcheur avant de se réchauffer. Au-delà de la ville de la Pierre Noire, s'étendaient montagnes et forêts où les feuilles mortes volaient au gré du vent.
+Le vent d'automne soufflait sur la terre noire. C'était une saison qui commençait par la fraîcheur avant de se réchauffer. Au-delà de la ville de Hei Shi, s'étendaient montagnes et forêts où les feuilles mortes volaient au gré du vent.
 
-Une feuille jaune, morte, tourbillonna dans l'air et tomba aux abords de la ville de la Pierre Noire, faisant écran entre l'homme et la femme, empêchant leurs regards de se croiser.
+Une feuille jaune, morte, tourbillonna dans l'air et tomba aux abords de la ville de Hei Shi, faisant écran entre l'homme et la femme, empêchant leurs regards de se croiser.
 
 Lorsque la feuille s'envola, Wang Lin détourna les yeux. C'était une femme très ordinaire. Elle possédait la lignée d'un démon ancien mais ne dégageait aucune aura démoniaque; elle émanait plutôt l'aura d'un lotus blanc pur.
 
@@ -20,7 +20,7 @@ Sous l'œil droit de la femme se trouvait une tache de naissance. Loin de ternir
 
 « Votre nom est Song? Est-ce elle la personne dont le Prince a parlé? » L'homme âgé chevauchant le diable ancien reprit ses esprits. Lorsqu'il posa les yeux sur la femme, son expression se fit grave.
 
-« C'est exact, son nom de famille est Song », répondit le Prince avec un sourire avant de poursuivre: « À ce propos, elle appartient à la famille Song du Grand Empyréen. Cependant, la famille du Grand Empyréen est vaste et elle ne provient que d'une branche lointaine. Néanmoins, à Pierre Noire, sa famille est considérée comme puissante. »
+« C'est exact, son nom de famille est Song », répondit le Prince avec un sourire avant de poursuivre: « À ce propos, elle appartient à la famille Song du Grand Empyréen. Cependant, la famille du Grand Empyréen est vaste et elle ne provient que d'une branche lointaine. Néanmoins, à Hei Shi, sa famille est considérée comme puissante. »
 
 L'homme sur le diable ancien réfléchit un instant, puis joignit les mains en signe de respect envers le Prince. « Je remercie infiniment le Prince pour son aide. Je vais emmener cette femme avec nous. Si elle n'est pas choisie, nous la lui renverrons. »
 
@@ -46,7 +46,7 @@ Le Prince Ji Du sourit et joignit les mains devant Wang Lin. « Je ne connais to
 
 Wang Lin regarda le Prince et déclara lentement: « Wang Lin. »
 
-« Ainsi, c'est bien le Senior Wang. Senior, ce n'est pas un lieu propice aux discussions. Ce Junior possède un palais dans le Pays Sombre. Si le Senior n'y voit pas d'inconvénient, nous pourrions nous y rendre afin de discuter en détail de la manière dont je compenserai mon comportement irréfléchi de tout à l'heure. » Le Prince semblait sincère et s'inclina respectueusement.
+« Ainsi, c'est bien le Senior Wang. Senior, ce n'est pas un lieu propice aux discussions. Ce Junior possède un palais dans le Pays You. Si le Senior n'y voit pas d'inconvénient, nous pourrions nous y rendre afin de discuter en détail de la manière dont je compenserai mon comportement irréfléchi de tout à l'heure. » Le Prince semblait sincère et s'inclina respectueusement.
 
 En observant le respect affiché par le Prince, si contrastant avec son indifférence passée, les yeux de Wang Lin brillèrent d'une lueur imperceptible.
 
@@ -64,7 +64,7 @@ Cependant, juste au moment où le démon ancien s'éloignait, une voix froide et
 
 Cette voix était celle du Prince Ji Du!
 
-Parmi les douze pays de la lignée Shi Antique se trouvait le Pays Sombre. Ce pays était enveloppé d'un brouillard perpétuel, ce qui lui avait valu son nom. La légende racontait qu'en dessous du Pays Sombre reposait une entité semblable à une brume, capturée puis scellée par l'Ancêtre Ancien pour former ce pays.
+Parmi les douze pays de la lignée Shi Antique se trouvait le Pays You. Ce pays était enveloppé d'un brouillard perpétuel, ce qui lui avait valu son nom. La légende racontait qu'en dessous du Pays You reposait une entité semblable à une brume, capturée puis scellée par l'Ancêtre Ancien pour former ce pays.
 
 Au cœur de la brume se dressait une montagne en forme de fer à cheval, sur laquelle trônait un immense palais dégageant une aura puissante. De nombreux serviteurs et gardes y résidaient. Ce jour-là, le brouillard au-dessus du palais se fendit, révélant le ciel nocturne. Une immense faille apparut, et un géant démon ancien en sortit!
 
@@ -106,7 +106,7 @@ Les trois lignées des clans Anciens espionnaient sans relâche les mouvements d
 
 Une lueur de surprise traversa les yeux de Wang Lin, et son regard envers le Prince Ji Du se fit progressivement glacial.
 
-« Ce Junior ne cherche pas à tester le Senior. Vous êtes apparu à Pierre Noire, près de la mer qui nous sépare du clan céleste. Vous possédez également le pouvoir d'effrayer un démon ancien d'un simple regard, et vous n'avez pas cherché à dissimuler votre identité en me donnant votre nom. »
+« Ce Junior ne cherche pas à tester le Senior. Vous êtes apparu à Hei Shi, près de la mer qui nous sépare du clan céleste. Vous possédez également le pouvoir d'effrayer un démon ancien d'un simple regard, et vous n'avez pas cherché à dissimuler votre identité en me donnant votre nom. »
 
 « De plus, ce Junior possède une liste de portraits des membres puissants du clan céleste, et le vôtre y figure. Cependant, seules les trois familles impériales ont accès à ces portraits; un étranger ne pourrait donc pas vous reconnaître. » Le Prince était couvert d'une sueur froide sous la pression du regard de Wang Lin. Néanmoins, il serra les dents pour rester immobile. Il sortit un morceau de jade et le tendit respectueusement à Wang Lin.
 

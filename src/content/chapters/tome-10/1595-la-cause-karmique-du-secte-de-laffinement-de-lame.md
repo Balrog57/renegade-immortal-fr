@@ -22,29 +22,29 @@ Le coucher du soleil projetait des éclats de lumière orangée qui perçaient l
 
 « Enfin arrivés. » Wang Lin exhala un long soupir et essuya la sueur de son front. Tout au long du voyage, il avait traversé bien des épreuves. Avec le recul, il trouvait lui-même son périple singulier.
 
-« Grande Fortune, la ville est devant nous. Nous allons y rester un moment. » Wang Lin sourit en regardant le serviteur d'âge mûr derrière lui.
+« Da Fu, la ville est devant nous. Nous allons y rester un moment. » Wang Lin sourit en regardant le serviteur d'âge mûr derrière lui.
 
 « Je n'aime pas ce nom... » L'homme d'âge moyen secoua la tête avec une expression amère.
 
-« Je trouve que c'est un très bon nom. » Wang Lin rit et conduisit Grande Fortune vers la porte de la ville. Après avoir présenté le laissez-passer délivré par le village, ils furent inspectés par les soldats avant d'être autorisés à entrer.
+« Je trouve que c'est un très bon nom. » Wang Lin rit et conduisit Da Fu vers la porte de la ville. Après avoir présenté le laissez-passer délivré par le village, ils furent inspectés par les soldats avant d'être autorisés à entrer.
 
-Bien qu'il fît nuit tombante, la ville était encore animée. Les rues grouillaient d'érudits venus de tous horizons pour l'examen. Wang Lin étant arrivé tardivement, lui et Grande Fortune ne trouvèrent aucune chambre libre, même après avoir fait le tour de quatre ou cinq auberges.
+Bien qu'il fît nuit tombante, la ville était encore animée. Les rues grouillaient d'érudits venus de tous horizons pour l'examen. Wang Lin étant arrivé tardivement, lui et Da Fu ne trouvèrent aucune chambre libre, même après avoir fait le tour de quatre ou cinq auberges.
 
-Voyant le ciel s'obscurcir davantage, l'inquiétude gagna Wang Lin. Heureusement, la dernière auberge disposait d'une ultime chambre vacante. Bien que le prix fût élevé, le tonnerre commença à gronder dans les cieux. La pluie, qui s'était arrêtée, semblait sur le point de revenir. Wang Lin serra les dents et ordonna à Grande Fortune de sortir l'argent.
+Voyant le ciel s'obscurcir davantage, l'inquiétude gagna Wang Lin. Heureusement, la dernière auberge disposait d'une ultime chambre vacante. Bien que le prix fût élevé, le tonnerre commença à gronder dans les cieux. La pluie, qui s'était arrêtée, semblait sur le point de revenir. Wang Lin serra les dents et ordonna à Da Fu de sortir l'argent.
 
-Grande Fortune sortit l'argent qu'il gardait pour Wang Lin. Son cœur se serra en puisant dans ses économies; il tendit les pièces à contrecœur en marmonnant pour lui-même:
+Da Fu sortit l'argent qu'il gardait pour Wang Lin. Son cœur se serra en puisant dans ses économies; il tendit les pièces à contrecœur en marmonnant pour lui-même:
 
 « Pas beaucoup d'argent... Ça fait mal au cœur... J'ai l'impression d'avoir déjà vécu cela, je sais que l'argent est crucial... »
 
-Tandis que Grande Fortune bredouillait, le serveur jeta un regard méprisant à Wang Lin et à l'homme d'âge moyen. Il les conduisit avec nonchalance à leur chambre. Il avait vu passer bien des érudits de ce genre: certains généreux, d'autres aussi indigents que Wang Lin.
+Tandis que Da Fu bredouillait, le serveur jeta un regard méprisant à Wang Lin et à l'homme d'âge moyen. Il les conduisit avec nonchalance à leur chambre. Il avait vu passer bien des érudits de ce genre: certains généreux, d'autres aussi indigents que Wang Lin.
 
 Wang Lin possédait une personnalité simple. Bien qu'il eût remarqué le dédain du serveur, il n'y prêta aucune importance.
 
 La chambre était exiguë mais convenait à deux personnes. Cependant, une odeur de moisi s'en échappa dès l'ouverture de la porte, faisant froncer les sourcils de Wang Lin. Ce genre d'odeur était inévitable en cette saison, à moins de séjourner dans une auberge de grand standing.
 
-Après un repas frugal, Wang Lin s'allongea sur le lit, vêtu de ses vêtements, et observa la lampe à huile sur la table. Il percevait les ronflements sonores de Grande Fortune.
+Après un repas frugal, Wang Lin s'allongea sur le lit, vêtu de ses vêtements, et observa la lampe à huile sur la table. Il percevait les ronflements sonores de Da Fu.
 
-La literie était humide, rendant le sommeil très inconfortable. Après avoir erré longtemps dans ses pensées sans trouver le repos, Wang Lin se redressa en soupirant. Tandis que Grande Fortune continuait de ronfler, Wang Lin s'assit à la table. Il sortit un livre et commença sa lecture à la lueur de la lampe.
+La literie était humide, rendant le sommeil très inconfortable. Après avoir erré longtemps dans ses pensées sans trouver le repos, Wang Lin se redressa en soupirant. Tandis que Da Fu continuait de ronfler, Wang Lin s'assit à la table. Il sortit un livre et commença sa lecture à la lueur de la lampe.
 
 Pendant qu'il lisait, le tonnerre grondait et les éclairs zébrèrent le ciel. Le fracas était d'une intensité rare. Ce tonnerre ne s'apaisait pas, mais persistait avec une vigueur telle que les grondements continus réveillèrent de nombreux habitants de la ville.
 
@@ -106,6 +106,6 @@ Au sommet de la Secte Heng Yue, un vieil homme en robe jaune contemplait le ciel
 
 À ce même instant, dans un lieu lointain du pays de Suzaku, sur la planète Suzaku, se trouvait une secte puissante, capable de dominer tous les pays de rang 5. Cette secte était peuplée d'âmes et le hurlement des spectres y résonnait sans cesse. De loin, elle ressemblait à un drapeau géant!
 
-Un homme était assis au milieu de ce ciel chargé d'âmes. C'était un homme d'âge moyen, le frère aîné de Dun Tian.
+Un homme était assis au milieu de ce ciel chargé d'âmes. C'était un homme d'âge moyen, le Senior frère de Dun Tian.
 
 « Je ne parviens pas à la trouver... Moi, ce vieil homme, j'ai pratiqué la divination trente-sept fois sans réussir une seule fois. Se pourrait-il que ma Secte Lian Hun n'ait vraiment plus aucun espoir... »

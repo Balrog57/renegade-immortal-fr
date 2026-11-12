@@ -90,15 +90,15 @@ Cependant, à cet instant précis, l'expression de Wang Lin devint soudainement 
 
 « Ses complots étaient prodigieux, et il m'a tendu des pièges à maintes reprises. Maintenant qu'il est caché, comment ai-je pu l'oublier? » L'expression de Wang Lin devint sombre.
 
-« Le Souverain Céleste aux Sept Couleurs a été divisé en trois âmes et sept fragments. Quant aux sept fragments, je sais seulement que Qing Shui est l'un d'eux. Pour les six autres, j'ai mes hypothèses. Tian Yunzi... Est-il l'un des sept fragments ou... la troisième âme! » Les yeux de Wang Lin brillèrent. Il se rappela que la troisième âme avait traversé la Rivière Invoquée pour entrer dans le Vide Brillant.
+« Le Souverain Céleste aux Sept Couleurs a été divisé en trois âmes et sept fragments. Quant aux sept fragments, je sais seulement que Qing Shui est l'un d'eux. Pour les six autres, j'ai mes hypothèses. Tian Yunzi... Est-il l'un des sept fragments ou... la troisième âme! » Les yeux de Wang Lin brillèrent. Il se rappela que la troisième âme avait traversé la Rivière Invoquée pour entrer dans Kun Xu.
 
-« Si la troisième âme s'est retrouvée dans le Vide Brillant, alors il est fort probable qu'il s'agisse de Tian Yunzi... S'il est vraiment la troisième âme, ce serait bien trop facile à trouver... Est-ce lui ou non... » Wang Lin fronça les sourcils. Il n'avait jamais pu percer le mystère de Tian Yunzi. Dès l'instant où Wang Lin était devenu son disciple, une crainte avait germé en lui. Elle ne faisait que croître à mesure que Tian Yunzi devenait plus mystérieux.
+« Si la troisième âme s'est retrouvée à Kun Xu, alors il est fort probable qu'il s'agisse de Tian Yunzi... S'il est vraiment la troisième âme, ce serait bien trop facile à trouver... Est-ce lui ou non... » Wang Lin fronça les sourcils. Il n'avait jamais pu percer le mystère de Tian Yunzi. Dès l'instant où Wang Lin était devenu son disciple, une crainte avait germé en lui. Elle ne faisait que croître à mesure que Tian Yunzi devenait plus mystérieux.
 
 « Tian Yunzi a dévoré une multitude de disciples, et j'ai vu trois mille avatars dans son esprit... J'ignorais pourquoi il agissait ainsi, pensant qu'il cherchait simplement à atteindre la troisième étape...
 
 « Cependant, avec le recul, peut-être essayait-il de former des Flammes Joss avec ces trois mille avatars. C'est possible... Ou avait-il un autre dessein? » Wang Lin songea à bien des choses, mais plus il réfléchissait, moins il comprenait les intentions de Tian Yunzi.
 
-« L'âme du destin de Tian Yunzi n'était pas non plus présente dans la tribulation divine du Royaume Céleste Antique... » Wang Lin médita longuement avant de réprimer lentement cette pensée. Il était inutile d'y songer maintenant. Avec le temps, il obtiendrait naturellement ses réponses.
+« L'âme du destin de Tian Yunzi n'était pas non plus présente dans la Tribulation Céleste du Royaume Céleste Antique... » Wang Lin médita longuement avant de réprimer lentement cette pensée. Il était inutile d'y songer maintenant. Avec le temps, il obtiendrait naturellement ses réponses.
 
 Ses yeux s'illuminèrent et il se tourna vers la Voile Fantôme. Il l'examina attentivement et vit qu'elle contenait d'innombrables restrictions, incluant les quatre grandes restrictions et bien d'autres encore.
 

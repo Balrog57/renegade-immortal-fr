@@ -1,6 +1,6 @@
 ---
 n: 1562
-title: La Rivière Invoquée
+title: La Rivière Zhao He
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: Chapter 1562 - Summoned River
@@ -30,7 +30,7 @@ Qing Shui resta silencieux; lui seul comprenait ce qu'il avait découvert et app
 
 Wang Lin ne répondit rien, mais hocha la tête.
 
-« Si un jour je meurs, et que mon corps est encore intact, prends-le et enterre-moi dans ma ville natale. Ne laisse aucun nom sur la pierre tombale; un lopin de terre d'un zhang sera le meilleur lieu de repos pour moi... » Qing Shui leva les yeux vers le ciel.
+« Si un jour je meurs, et que mon corps est encore intact, prends-le et enterre-moi dans ma ville natale. Ne laisse aucun nom sur la pierre tombale; un lopin de terre de dix pieds sera le meilleur lieu de repos pour moi... » Qing Shui leva les yeux vers le ciel.
 
 Wang Lin réfléchit en silence. Après un long moment, il demanda: « Et s'il n'y a plus de ville natale...? »
 
@@ -68,13 +68,13 @@ Bien que Qing Shui fût au début du stade Vide du Nirvana, grâce à son essenc
 
 « Tuer... Très bien! » Wang Lin se leva et s'avança vers le ciel. Des ondulations résonnèrent et il disparut du monde. Qing Shui pénétra également dans les ondulations créées par Wang Lin et disparut à son tour.
 
-Si l'ensemble du système stellaire de Vide Brillant était un lac dont les planètes seraient les objets flottants, alors les ondulations à la surface ressemblaient actuellement à deux poissons nageant avec rapidité.
+Si l'ensemble du système stellaire de Kun Xu était un lac dont les planètes seraient les objets flottants, alors les ondulations à la surface ressemblaient actuellement à deux poissons nageant avec rapidité.
 
-Il n'y avait pas beaucoup de cultivateurs du Royaume Extérieur dans le Vide Brillant. Après tout, l'Alliance n'était que leur quartier général temporaire, et la plupart d'entre eux étaient morts lors du massacre qui avait secoué les cieux plus tôt.
+Il n'y avait pas beaucoup de cultivateurs du Royaume Extérieur dans le système stellaire de Kun Xu. Après tout, l'Alliance n'était que leur quartier général temporaire, et la plupart d'entre eux étaient morts lors du massacre qui avait secoué les cieux plus tôt.
 
 Ce massacre avait été déclenché par un maître et son disciple. Avec le niveau de culture du Maître Long Pan, peu de cultivateurs du Royaume Extérieur pouvaient espérer survivre.
 
-Cependant, l'objectif du Maître Long Pan étant la Rivière Invoquée, il n'était pas resté dans le Vide Brillant. Cela permit à quelques poissons de s'échapper.
+Cependant, l'objectif du Maître Long Pan étant la Rivière Zhao He, il n'était pas resté dans le système stellaire de Kun Xu. Cela permit à quelques poissons de s'échapper.
 
 Trois cultivateurs du Royaume Extérieur, portant des marques entre les sourcils, volaient prudemment à travers les étoiles. Ils n'osaient pas se déplacer trop vite, craignant que leurs fluctuations n'attirent l'attention d'autrui.
 
@@ -86,15 +86,15 @@ Alors que les trois avançaient, ils échangeaient des messages. À cet instant 
 
 Lorsque les ondulations finirent leur course, les trois cultivateurs du Royaume Extérieur tremblèrent, incapables de pousser le moindre cri. D'innombrables fissures apparurent sur leurs corps et ils s'effondrèrent soudainement. Leurs âmes originelles furent déchirées et ils périrent.
 
-Des scènes similaires se produisaient ailleurs dans le Vide Brillant, à Luotian et dans la Mer Yun. Peu de temps après que le Maître Long Pan eut déferlé sur la zone, les cultivateurs du Royaume Extérieur restants subirent la folie de Qing Shui.
+Des scènes similaires se produisaient ailleurs dans le système stellaire de Kun Xu, à Luotian et dans la Mer Yun. Peu de temps après que le Maître Long Pan eut déferlé sur la zone, les cultivateurs du Royaume Extérieur restants subirent la folie de Qing Shui.
 
 Les fleurs de sang s'épanouissaient, révélant la beauté de leur mort.
 
-Les deux ondulations balayèrent les trois grands systèmes stellaires avant de pénétrer dans la Rivière Invoquée! La Rivière Invoquée était entièrement occupée par les cultivateurs du Royaume Extérieur, elle regorgeait donc de leurs membres.
+Les deux ondulations balayèrent les trois grands systèmes stellaires avant de pénétrer dans la Rivière Zhao He! La Rivière Zhao He était entièrement occupée par les cultivateurs du Royaume Extérieur, elle regorgeait donc de leurs membres.
 
-Dès leur entrée dans la Rivière Invoquée, une puissante odeur de sang flottait dans l'air. Cependant, cette effluve ne put arrêter ces deux ondulations qui progressaient rapidement, planète après planète.
+Dès leur entrée dans la Rivière Zhao He, une puissante odeur de sang flottait dans l'air. Cependant, cette effluve ne put arrêter ces deux ondulations qui progressaient rapidement, planète après planète.
 
-Finalement, elles chargèrent vers les profondeurs de la Rivière Invoquée, vers le dernier Royaume aux Sept Couleurs! C'était là que le corps originel du Maître Hong Shan était scellé!
+Finalement, elles chargèrent vers les profondeurs de la Rivière Zhao He, vers le dernier Royaume aux Sept Couleurs! C'était là que le corps originel du Maître Hong Shan était scellé!
 
 Parmi les étoiles, une faille géante émettait une lumière aux sept couleurs. Autour de la faille flottaient des membres brisés et d'innombrables cadavres de cultivateurs du Royaume Extérieur jonchaient la zone.
 
@@ -106,7 +106,7 @@ Les deux ondulations se rapprochèrent. L'ondulation chargée d'une intention me
 
 Wang Lin apparut également. Il paraissait quelque peu fatigué en entrant dans le Royaume aux Sept Couleurs.
 
-Dès qu'il franchit les limites du royaume au sein de la Rivière Invoquée, Wang Lin entendit immédiatement des cris déchirants. Ce Royaume aux Sept Couleurs différait des deux autres qu'il avait vus auparavant: il était composé de plusieurs vastes continents flottants.
+Dès qu'il franchit les limites du royaume au sein de la Rivière Zhao He, Wang Lin entendit immédiatement des cris déchirants. Ce Royaume aux Sept Couleurs différait des deux autres qu'il avait vus auparavant: il était composé de plusieurs vastes continents flottants.
 
 Toutefois, cette zone n'était plus que des fragments de continents; seuls trois restaient intacts. Le Maître Long Pan combattait un homme en robe noire. À chaque mouvement de leurs mains, des grondements assourdissants faisaient trembler le ciel.
 

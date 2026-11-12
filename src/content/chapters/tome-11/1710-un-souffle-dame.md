@@ -24,7 +24,7 @@ Ils contemplèrent la lumière violette et démoniaque émanant du Sang d'Âme a
 
 « La troisième épreuve comporte trois calamités, la première étant le Sang Céleste de la Race Ancienne. Il a obtenu neuf gouttes de sang suivies d'une goutte de Sang d'Âme, et ce n'est que la première étape. S'il atteint la deuxième calamité, les Trois Distractions du Dao Ancien... quelle fortune obtiendra-t-il alors? »
 
-« Et il y a aussi la dernière calamité, la Bénédiction de l'Ancêtre Ancien. S'il a obtenu une telle reconnaissance de l'Ancêtre et qu'on peut le qualifier de palanquin, je ne peux imaginer ce qu'il recevra ensuite... Peut-être l'héritage légendaire de l'Ancêtre Ancien que nul n'a jamais obtenu? »
+« Et il y a aussi la dernière calamité, la Bénédiction de l'Ancêtre Ancien. S'il a obtenu une telle reconnaissance de l'Ancêtre et qu'on peut le qualifier de fils prodige, je ne peux imaginer ce qu'il recevra ensuite... Peut-être l'héritage légendaire de l'Ancêtre Ancien que nul n'a jamais obtenu? »
 
 Les débats firent écho alors que tous restaient bouleversés par cette goutte de Sang d'Âme. Heureusement, cet endroit avait été scellé par le Grand Empyréen Xuan Luo qui, de sa puissance immense, empêcha quiconque de divulguer ce qui s'était produit ici.
 

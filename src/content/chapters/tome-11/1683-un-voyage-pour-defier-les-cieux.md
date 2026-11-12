@@ -52,7 +52,7 @@ Au moment où Wang Lin sortit du Royaume Céleste du Tonnerre, ses yeux brillèr
 
 Wang Lin n'agit pas avec imprudence et partit sans laisser paraître le moindre changement dans son humeur.
 
-« Ainsi, il se cache toujours ici! » Après avoir quitté le Royaume Céleste du Tonnerre, Wang Lin se hâta à pleine vitesse vers le dernier royaume, le Royaume Céleste de la Pluie du Vide Brillant!
+« Ainsi, il se cache toujours ici! » Après avoir quitté le Royaume Céleste du Tonnerre, Wang Lin se hâta à pleine vitesse vers le dernier royaume, le Royaume Céleste de la Pluie de Kun Xu!
 
 Quelques jours plus tard, Wang Lin se tenait à l'intersection des quatre Royaumes Célestes. En moins d'un demi-mois, il avait parcouru les quatre royaumes et rassemblé suffisamment de ressources pour reconstruire le Royaume Céleste.
 

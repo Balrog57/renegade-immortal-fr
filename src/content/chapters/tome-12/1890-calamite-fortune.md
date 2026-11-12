@@ -16,7 +16,7 @@ Il n'était qu'à un pas du sommet de la Tribulation du Vide!
 
 Une fois sorti, tous les cultivateurs de la Secte Dao Mo s'agenouillèrent à moitié, la tête baissée.
 
-Seul cet homme resta debout, fixant Wang Lin d'un regard indifférent alors que ce dernier s'enfuyait plus profondément dans le continent Terre-Meng.
+Seul cet homme resta debout, fixant Wang Lin d'un regard indifférent alors que ce dernier s'enfuyait plus profondément dans le continent Meng Tu.
 
 Le cœur de Wang Lin trembla. À l'instant où l'homme d'âge moyen avait quitté la formation, le sentiment de crise qu'il ressentait sourdement explosa soudainement.
 
@@ -26,9 +26,9 @@ Wang Lin ne se retourna pas; il se déplaça aussi vite que possible. Ne pouvant
 
 Il sentait qu'il lui suffisait de voler encore un peu pour que la force qui scellait le monde disparaisse, lui permettant alors de fusionner à nouveau avec l'environnement.
 
-Cependant, le Maître de la Secte Dao Mo resta calme et n'hésita pas, contrairement aux autres cultivateurs. Il franchit la frontière et pénétra dans le continent Terre-Meng!
+Cependant, le Maître de la Secte Dao Mo resta calme et n'hésita pas, contrairement aux autres cultivateurs. Il franchit la frontière et pénétra dans le continent Meng Tu!
 
-Dès son entrée sur le continent Terre-Meng, il flotta dans les airs et observa Wang Lin. Lentement, il leva sa main droite et pointa vers le ciel.
+Dès son entrée sur le continent Meng Tu, il flotta dans les airs et observa Wang Lin. Lentement, il leva sa main droite et pointa vers le ciel.
 
 « Dao, Démon! » Ce furent ses premiers mots.
 
@@ -48,9 +48,9 @@ Sous l'influence des sorts du vieillard aux allures célestes et du jeune homme 
 
 Le monde trembla alors que la montagne s'élevait dans les airs; de loin, on aurait dit qu'un dragon s'élançait vers le ciel!
 
-D'un geste du Maître de la Secte Dao Mo, dans un hurlement assourdissant, la chaîne de montagnes vola vers le continent Terre-Meng. Sa vitesse était inimaginable, et elle dépassa Wang Lin en un clin d'œil.
+D'un geste du Maître de la Secte Dao Mo, dans un hurlement assourdissant, la chaîne de montagnes vola vers le continent Meng Tu. Sa vitesse était inimaginable, et elle dépassa Wang Lin en un clin d'œil.
 
-Wang Lin fut stupéfait. Il vit la chaîne de montagnes passer au-dessus de lui pour atterrir à deux mille kilomètres de là, dans le désert du continent Terre-Meng. Si cette montagne marquait la limite entre les deux continents, cela signifiait qu'il se trouvait toujours sur le Continent Lu Mo!
+Wang Lin fut stupéfait. Il vit la chaîne de montagnes passer au-dessus de lui pour atterrir à deux mille kilomètres de là, dans le désert du continent Meng Tu. Si cette montagne marquait la limite entre les deux continents, cela signifiait qu'il se trouvait toujours sur le Continent Lu Mo!
 
 Le sentiment de mort imminente grandit de façon effrénée, jusqu'à former une ombre gigantesque qui enveloppa son cœur.
 
@@ -96,7 +96,7 @@ Une onde sonore se propagea dans toutes les directions. La paume saisit Wang Lin
 
 Une fois l'action accomplie, le Maître de la Secte s'envola et fusionna avec l'empreinte, plongeant ensuite dans les profondeurs du Continent Lu Mo. Les cultivateurs de la Secte Dao Mo suivirent leur maître vers l'horizon.
 
-Une fois la troupe partie, la chaîne de montagnes au loin reprit lentement sa position d'origine. Le continent Terre-Meng ne manifesta aucune réaction, comme s'ils avaient déjà conclu un accord tacite.
+Une fois la troupe partie, la chaîne de montagnes au loin reprit lentement sa position d'origine. Le continent Meng Tu ne manifesta aucune réaction, comme s'ils avaient déjà conclu un accord tacite.
 
 Des rayons de lumière emplirent le ciel. Le Maître de la Secte Dao Mo paraissait calme, mais le doute l'habitait. À cet instant, il eut le pressentiment que s'il avait tenté de tuer Wang Lin, il aurait provoqué une catastrophe majeure.
 

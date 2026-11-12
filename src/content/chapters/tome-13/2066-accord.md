@@ -32,13 +32,13 @@ Wang Lin comprit vaguement qu'une fois ses essences éthérées accomplies et so
 
 Il ignorait combien de temps s'était écoulé; cela sembla durer une éternité, ou peut-être seulement un instant. Wang Lin ouvrit les yeux et, en levant le regard, il vit le pied issu du sort de Gu Dao. Celui-ci semblait avoir perdu sa capacité à l'entraver alors qu'il descendait.
 
-À quelques dizaines de pieds de Wang Lin, il laissa échapper un soupir. Après s'être fusionné avec son avatar dans le vide et avoir provoqué l'apparition des neuf chants et des trois signes, son niveau de culture surpassait toutes les existences du Continent Astral Immortel.
+À quelques centaines de pieds de Wang Lin, il laissa échapper un soupir. Après s'être fusionné avec son avatar dans le vide et avoir provoqué l'apparition des neuf chants et des trois signes, son niveau de culture surpassait toutes les existences du Continent Astral Immortel.
 
 Même si l'Ancêtre Céleste et l'Ancêtre Ancien revenaient à la vie, il serait digne de les affronter.
 
 Désormais, sur le Continent Astral Immortel, aux côtés des légendes de l'Ancêtre Céleste et de l'Ancêtre Ancien, on trouverait également les empreintes de Wang Lin.
 
-Aux yeux de Wang Lin, le sort actuel de Gu Dao n'avait fait qu'effleurer le stade du Piétinement des Cieux. Il réfléchit silencieusement et, alors que le pied géant n'était plus qu'à dix pieds de lui, il pointa du doigt.
+Aux yeux de Wang Lin, le sort actuel de Gu Dao n'avait fait qu'effleurer le stade du Piétinement des Cieux. Il réfléchit silencieusement et, alors que le pied géant n'était plus qu'à cent pieds de lui, il pointa du doigt.
 
 Sur ce geste, le pied géant trembla et se brisa en d'innombrables fragments devant Wang Lin. Une tempête puissante dispersa les débris à travers le monde, sous les yeux du Grand Empyréen Gu Dao.
 
@@ -70,7 +70,7 @@ Xuan Luo ferma les yeux. Lorsque son Sens Divin se déploya, son corps trembla. 
 
 « Les vestiges de cette bataille ne se dissiperont pas avant des centaines d'années... » murmura Song Tian pour lui-même. Il ressentait également la puissance choquante et les fluctuations des lois issues du combat qui s'était déroulé ici.
 
-Il y avait aussi l'énigmatique Grand Empyréen Ji Antique. Il portait un masque cachant ses traits, on ne pouvait que deviner qu'il était un homme. Il se tenait là, le regard chargé de stupéfaction.
+Il y avait aussi l'énigmatique Grand Empyréen Ji Gu. Il portait un masque cachant ses traits, on ne pouvait que deviner qu'il était un homme. Il se tenait là, le regard chargé de stupéfaction.
 
 « Qui affrontait le Grand Empyréen Gu Dao...? Mais peu importe qui c'était, le Grand Empyréen Gu Dao devait avoir gagné! »
 

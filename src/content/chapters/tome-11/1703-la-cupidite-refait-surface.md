@@ -14,9 +14,9 @@ Le fracas forma un son inimaginable qui s'abattit sur les neuf soleils entourant
 
 Au sein de la deuxième illusion, le Daoïste aux Sept Couleurs était transporté par l'excitation. Normalement, un tel sentiment n'aurait pas dû animer un cultivateur de son rang, mais il ne pouvait s'en empêcher. Il avait attendu si longtemps qu'on aurait pu dire qu'il avait attendu une vie entière!
 
-Aujourd'hui, grâce au pouvoir du Continent Astral Immortel, il avait enfin trouvé une piste menant à la troisième âme. Il ignorait si cela était réel ou s'il ne faisait que l'imaginer, mais c'était la première fois qu'il se trouvait aussi proche de cette troisième âme!
+Aujourd'hui, grâce au pouvoir du Continent Xian Gang, il avait enfin trouvé une piste menant à la troisième âme. Il ignorait si cela était réel ou s'il ne faisait que l'imaginer, mais c'était la première fois qu'il se trouvait aussi proche de cette troisième âme!
 
-Sous ses yeux, il vit la troisième âme percer la Rivière Invoquée et se diriger vers ce qui deviendrait plus tard le Vide Brillant. Sa main traça un sceau pour tenter d'observer de plus près, mais à cet instant précis, un changement stupéfiant se produisit!
+Sous ses yeux, il vit la troisième âme percer la Rivière Zhao et se diriger vers ce qui deviendrait plus tard le Kun Xu. Sa main traça un sceau pour tenter d'observer de plus près, mais à cet instant précis, un changement stupéfiant se produisit!
 
 Un rugissement tonitruant retentit à ses oreilles. D'abord faible, il monta brusquement en intensité pour couvrir tous les autres sons qui parvenaient aux oreilles du Daoïste aux Sept Couleurs!
 
@@ -36,7 +36,7 @@ Ce cri jaillit de sa propre bouche, mais aussi de celle du Daoïste aux Sept Cou
 
 La corne formée par les six essences vola en éclats instantanément. Wang Lin cracha du sang, sentant son corps tout entier sur le point de se briser, et fut violemment projeté. Simultanément, les neuf soleils se dispersèrent et un impact puissant fut projeté vers lui.
 
-Face à ce danger imminent, Wang Lin utilisa son Sort de l'Ancien Immortel pour se rétablir. D'un revers de main, il fit surgir la voile fantomatique qui l'enveloppa. Au moment où l'impact allait le frapper, Wang Lin disparut.
+Face à ce danger imminent, Wang Lin utilisa son Dao Ancien Impérissable pour se rétablir. D'un revers de main, il fit surgir la voile fantomatique qui l'enveloppa. Au moment où l'impact allait le frapper, Wang Lin disparut.
 
 À mille pieds de là, à l'extérieur de l'espace mystérieux rempli de bêtes féroces où se trouvait le Daoïste aux Sept Couleurs, Wang Lin ouvrit les yeux. Il cracha du sang et son regard était terne, mais il recula sans la moindre hésitation.
 

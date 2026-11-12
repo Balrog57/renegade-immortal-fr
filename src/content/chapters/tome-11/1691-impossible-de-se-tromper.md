@@ -30,11 +30,11 @@ Les six épées atteignirent instantanément l'empreinte et la transpercèrent. 
 
 L'espace devant Wang Lin trembla et une faille se déchira devant lui. En empruntant la puissance du déchirement spatial, il parvint également à déchirer l'empreinte palmaire!
 
-À cet instant, l'ombre d'un être ancien apparut derrière Wang Lin. Cela différait de la fois précédente; ce n'était plus seulement une tête, mais un corps vague!
+À cet instant, l’ombre de Dao Gu apparut derrière Wang Lin. Cela différait de la fois précédente; ce n'était plus seulement une tête, mais un corps vague!
 
-Ce corps était celui de l'être ancien. Bien que Wang Lin n'eût pas eu le temps de raffiner ces huit gouttes de sang, il venait de se manifester.
+Ce corps était celui de Dao Gu. Bien que Wang Lin n'eût pas eu le temps de raffiner ces huit gouttes de sang, il venait de se manifester.
 
-Cette silhouette éthérée de l'ancien ouvrit également les bras et s'attaqua à l'empreinte palmaire en suivant le mouvement de Wang Lin!
+Cette silhouette éthérée de Dao Gu ouvrit également les bras et s'attaqua à l'empreinte palmaire en suivant le mouvement de Wang Lin!
 
 Le domaine stellaire trembla sous l'assaut d'une puissance indescriptible qui le déchirait. Il brisa les lois du ciel et déchira l’empreinte du Souverain!
 
@@ -42,7 +42,7 @@ L'empreinte palmaire s'effondra!
 
 Les six épées se brisèrent également, retournant dans le corps de Wang Lin en fragments. Ses mains étaient un véritable carnage sanglant. Le pouvoir de ce sort reposait sur ses doigts!
 
-Même l'ombre de l'ancien derrière lui s'effondra soudainement.
+Même l’ombre de Dao Gu derrière lui s'effondra soudainement.
 
 Wang Lin fut projeté en arrière. Il cracha des quantités massives de sang et son corps fut éclaboussé de rouge. Son visage était pâle, mais la folie qui habitait ses yeux s’était évanouie, remplacée par un calme olympien.
 

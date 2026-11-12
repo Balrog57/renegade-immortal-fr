@@ -30,7 +30,7 @@ Le regard de Fan Shanmeng devint progressivement plus froid. En fixant Wang Lin,
 
 « Comment ce Navire Démon des Âmes peut-il être si facile à déchiffrer? Plus tôt, lorsqu'il a ouvert la restriction protégeant le pont, il avait déjà atteint ses limites. Il est futile de tenter de percer les mystères de ce navire. Wang Lin, ah, Wang Lin, tu es bien trop arrogant! » Fan Shanmeng resta calme, dissimulant tout le mépris qui bouillonnait dans son cœur.
 
-« Cher Camarade Cultivateur Wang Lin, trois heures se sont écoulées. Si vous vous rendez à l'autel maintenant, il pourrait encore être temps... » Les paroles de Fan Shanmeng résonnèrent avec une pointe d'inquiétude.
+« Daoïste Wang Lin, trois heures se sont écoulées. Si vous vous rendez à l'autel maintenant, il pourrait encore être temps... » Les paroles de Fan Shanmeng résonnèrent avec une pointe d'inquiétude.
 
 Wang Lin fit mine de ne pas l'entendre. Son doigt touchait toujours la restriction et sa déduction s'accélérait dans ses yeux.
 
@@ -44,7 +44,7 @@ Wang Lin fit mine de ne pas l'entendre. Son doigt touchait toujours la restricti
 
 Fan Shanmeng fronça les sourcils. Bien que Wang Lin ait brisé une restriction, ce pont en contenait une quantité inimaginable. Ce n'était que la périphérie; les restrictions intérieures restaient à affronter.
 
-« Cinq heures pour en briser une seule. À cette vitesse, je crains que le Cher Camarade ne puisse en briser qu'une douzaine en trois jours. Vous... » Alors que Fan Shanmeng parlait, des bruits de craquements résonnèrent autour de Wang Lin.
+« Cinq heures pour en briser une seule. À cette vitesse, je crains que le Daoïste ne puisse en briser qu'une douzaine en trois jours. Vous... » Alors que Fan Shanmeng parlait, des bruits de craquements résonnèrent autour de Wang Lin.
 
 Elle resta stupéfaite en voyant neuf restrictions s'effondrer d'un simple revers de main de Wang Lin. Elles se transformèrent toutes en gaz noir avant de se reformer pour reprendre leurs positions d'origine.
 
@@ -54,9 +54,9 @@ Wang Lin agita de nouveau sa main droite et des grondements tonitruants éclatè
 
 En l'espace de quelques respirations seulement, plus aucune restriction ne subsistait dans un rayon de un millier de pieds autour de Wang Lin. La tempête finit par se diviser pour que chaque restriction retrouve sa place initiale. Le choc de Fan Shanmeng ne faisait que commencer.
 
-« Veuillez excuser cette piètre démonstration, Cher Camarade. » Wang Lin esquissa un léger sourire.
+« Veuillez excuser cette piètre démonstration, Daoïste. » Wang Lin esquissa un léger sourire.
 
-Fan Shanmeng prit une grande inspiration et força un sourire en hochant la tête. « La compréhension des restrictions du Cher Camarade est en effet extraordinaire. Cependant, il y a des dizaines de millions de restrictions sur ce pont, et vous n'en avez compris qu'un pour cent. C’est rare... mais... »
+Fan Shanmeng prit une grande inspiration et força un sourire en hochant la tête. « La compréhension des restrictions du Daoïste est en effet extraordinaire. Cependant, il y a des dizaines de millions de restrictions sur ce pont, et vous n'en avez compris qu'un pour cent. C’est rare... mais... »
 
 Wang Lin leva sa main droite, tenant la Restriction d'Annihilation, et ses yeux s'illuminèrent. Cela coupa court aux paroles de Fan Shanmeng. Wang Lin agita la main et la Restriction d'Annihilation se propagea sur tout le pont.
 
@@ -90,7 +90,7 @@ Cette méthode pouvait affaiblir la puissance globale des protections du pont, m
 
 Après le fracas des explosions, Wang Lin prit le contrôle de toutes les restrictions du pont sous le regard stupéfait de Fan Shanmeng. Il était désormais le maître du pont. Ses yeux brillaient d'une lueur étrange lorsqu'il fixa la femme.
 
-« Ce navire possède neuf couches. Ce pont est la première, et il y en a huit autres en dessous! Cher Camarade, vous aviez dit que si je brisais les restrictions de ce navire, vous me le donneriez? »
+« Ce navire possède neuf couches. Ce pont est la première, et il y en a huit autres en dessous! Daoïste, vous aviez dit que si je brisais les restrictions de ce navire, vous me le donneriez? »
 
 Le visage de Fan Shanmeng devint livide. Dès que la première couche du Navire Démon des Âmes fut brisée, elle réalisa qu'elle avait perdu une partie de son emprise sur le vaisseau. Désormais, il semblait que ce trésor ait deux maîtres!
 

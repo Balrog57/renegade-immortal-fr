@@ -92,11 +92,11 @@ En voyant l'âme spectrale, le visage de Lu Wenran pâlit et il recula de plusie
 
 À l'instant où l'âme de Xu Decai se manifesta, tous ses arguments précédents s'effondrèrent!
 
-« Compagnon Zhou, quelles sont les étapes pour fusionner avec l'armure? Ne perdons pas de temps! » Le regard de Wang Lin balaya le vieil homme nommé Zhou.
+« Daoïste Zhou, quelles sont les étapes pour fusionner avec l'armure? Ne perdons pas de temps! » Le regard de Wang Lin balaya le vieil homme nommé Zhou.
 
 Le cœur du vieil homme tressaillit et il hocha précipitamment la tête. Même Lu Wenran était désormais sans voix. À moins qu'il ne décide de tuer Wang Lin sur-le-champ, tout était déjà joué!
 
-« Compagnons cultivateurs, voici la dernière étape de la fusion des âmes. Puisque l'armure a été invoquée par votre sang et votre culture, celui qui sera choisi par la majorité d'entre vous pourra fusionner avec elle! » Le vieil homme nommé Zhou, rusé, resta évasif pour ne pas trop offenser Lu Wenran.
+« Daoïstes, voici la dernière étape de la fusion des âmes. Puisque l'armure a été invoquée par votre sang et votre culture, celui qui sera choisi par la majorité d'entre vous pourra fusionner avec elle! » Le vieil homme nommé Zhou, rusé, resta évasif pour ne pas trop offenser Lu Wenran.
 
 Une fois qu'il eut parlé, le silence retomba. Lu Wenran leva la tête, une intention meurtrière émanant de lui alors qu'il fixait Wang Lin. Il pesait le pour et le contre, mais il refusait de capituler ainsi!
 

@@ -50,7 +50,7 @@ Lanmeng Daozun ferma les yeux et murmura pour lui-même: « Tu ne l'as pas retro
 
 « Tous vous, cultivateurs du monde des grottes, vous avez résisté avec obstination, pensant que cette formation pourrait bloquer ce vieil homme. Désormais, la formation est sur le point de céder. Attendez simplement que ce vieil homme entre, et vous tous deviendrez la nourriture de ma culture! » La voix était faible au début, mais elle devint bientôt un tonnerre fracassant qui résonna à travers tout le Royaume Céleste. Tous levèrent les yeux vers le ciel.
 
-Personne dans le Royaume Céleste ne connaissait précisément le niveau de culture de Wang Lin, mais puisque celui-ci pouvait apparaître ici sans que Maître Âme Écarlate ne le remarque, il était évident que sa puissance n'était pas ordinaire. Cependant, nul ne savait s'il pourrait vaincre Maître Âme Écarlate.
+Personne dans le Royaume Céleste ne connaissait précisément le niveau de culture de Wang Lin, mais puisque celui-ci pouvait apparaître ici sans que Maître Chi Hunzi ne le remarque, il était évident que sa puissance n'était pas ordinaire. Cependant, nul ne savait s'il pourrait vaincre Maître Chi Hunzi.
 
 L'expression de Maître Nan Yunzi était détendue — il n'était nullement inquiet. À voir comment Wang Lin pouvait lui créer un nouveau corps d'un simple geste de la main, il savait à quel point l'homme était puissant.
 
@@ -72,7 +72,7 @@ En observant le visage de Wang Lin et en écoutant ses paroles, Lanmeng Daozun r
 
 Le ciel gronda et commença à s'effondrer à grande échelle, révélant une brèche. La teinte sanglante se propagea à mesure que d'autres ouvertures apparaissaient, tandis que des rires résonnaient dans tout le Royaume Céleste.
 
-Le firmament s'effritait sous l'effet d'innombrables fissures. Après plusieurs jours, Maître Âme Écarlate avait fini par corroder une ouverture dans la formation. Celle-ci continuait de s'affaiblir et, bientôt, le Royaume Céleste n'aurait plus aucune protection.
+Le firmament s'effritait sous l'effet d'innombrables fissures. Après plusieurs jours, Maître Chi Hunzi avait fini par corroder une ouverture dans la formation. Celle-ci continuait de s'affaiblir et, bientôt, le Royaume Céleste n'aurait plus aucune protection.
 
 Ce rire, empreint d'arrogance, semblait pouvoir briser les cieux.
 
@@ -114,18 +114,18 @@ Le brasier céleste disparut instantanément après le départ de Treize. Le cie
 
 « Wang Lin!! » Le vieil homme était saisi d'incrédulité, mais il devint vite féroce. Sa culture de Tribulation du Vide explosa soudainement, faisant trembler le ciel et la terre.
 
-« Tu es donc revenu dans le monde des grottes! Mais même si tu es de retour, tu n'es qu'une fourmi face à ce vieil homme! » Ce vieil homme était Maître Âme Écarlate. Aussitôt, il fonça vers Wang Lin tel un rayon de lumière.
+« Tu es donc revenu dans le monde des grottes! Mais même si tu es de retour, tu n'es qu'une fourmi face à ce vieil homme! » Ce vieil homme était Maître Chi Hunzi. Aussitôt, il fonça vers Wang Lin tel un rayon de lumière.
 
 De son point de vue, la culture de Wang Lin n'était qu'un nuage de brume; il pensait que ce dernier dissimulait son véritable niveau grâce à des trésors, une pratique courante sur le Continent Astral Immortel. Il était absolument confiant en sa culture de Tribulation du Vide.
 
-Wang Lin regarda calmement Maître Âme Écarlate se précipiter vers lui.
+Wang Lin regarda calmement Maître Chi Hunzi se précipiter vers lui.
 
 Avant qu'il ne puisse agir, le petit serpent sur l'épaule de Liu Jinbiao brilla soudainement d'un éclat intense et poussa un rugissement qui déchira les cieux.
 
-Le rugissement secoua le monde et fit bourdonner les oreilles de tous les cultivateurs du Royaume Céleste. Le corps de Maître Âme Écarlate trembla et il s'immobilisa, fixant le serpent, figé comme un coq de bois.
+Le rugissement secoua le monde et fit bourdonner les oreilles de tous les cultivateurs du Royaume Céleste. Le corps de Maître Chi Hunzi trembla et il s'immobilisa, fixant le serpent, figé comme un coq de bois.
 
 « Ceci... ceci est... »
 
-Le petit serpent s'envola rapidement et grandit à vue d'œil sous les regards stupéfaits des cultivateurs. Il retrouva promptement sa taille originelle, celle d'un gigantesque dragon marin long d'environ trente-trois kilomètres, et rugit face à Maître Âme Écarlate, pétrifié:
+Le petit serpent s'envola rapidement et grandit à vue d'œil sous les regards stupéfaits des cultivateurs. Il retrouva promptement sa taille originelle, celle d'un gigantesque dragon marin long de cent mille pieds, et rugit face à Maître Chi Hunzi, pétrifié:
 
-« Dragon Marin... d'Or... Exalté!!! » Maître Âme Écarlate eut l'impression de rêver.
+« Dragon Marin... d'Or... Exalté!!! » Maître Chi Hunzi eut l'impression de rêver.

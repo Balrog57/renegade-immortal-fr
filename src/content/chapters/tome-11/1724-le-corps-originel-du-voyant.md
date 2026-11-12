@@ -116,4 +116,4 @@ Pourtant, au moment où le brouillard se matérialisait et qu'une gueule illusoi
 
 Au même instant, une voix glaciale chargée d'intentions meurtrières retentit au loin!
 
-« Tian Yunzi! J'ai amené ton corps originel ici! »
+« Tian Yunzi! Moi, Wang, je viens prendre ton corps originel! »

@@ -66,7 +66,7 @@ Le fracas fut immense. La lumière verte entourant le Messager du Démon Vert s'
 
 L'épée de sang dans la main de Wang Lin continua de vibrer. Par ce coup, l'arme avait absorbé une partie du sang du Messager du Démon Vert et laissa échapper un chant d'épée strident.
 
-Elle avait autrefois tué de nombreux êtres célestes, mais depuis qu'elle était entre les mains de Wang Lin, c'était le niveau de cultivation le plus élevé qu'elle ait jamais terrassé!
+Elle avait autrefois tué de nombreux Immortels, mais depuis qu'elle était entre les mains de Wang Lin, c'était le niveau de cultivation le plus élevé qu'elle ait jamais terrassé!
 
 Au moment où le Messager du Démon Vert mourut, l'âme du Taureau Céleste apparut autour de Wang Lin. Elle poussa un rugissement d'excitation, comme si la mort de ce messager lui procurait une immense joie.
 

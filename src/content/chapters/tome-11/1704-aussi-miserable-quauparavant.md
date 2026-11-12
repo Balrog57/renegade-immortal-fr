@@ -110,6 +110,6 @@ Alors que Tan Lang rugissait de douleur, il sentit deux petites mains presser co
 
 Cette puissance fit briller le corps de Tan Lang d'une lumière dorée infinie. Cette clarté se propagea et les mains de Tan Lang bougèrent d'elles-mêmes jusqu'à former un motif circulaire.
 
-Dès que ce motif fut complet, un soleil doré apparut dans sa main! Ce soleil ne faisait que la taille d'une paume, mais la puissance qu'il dégageait était telle qu'elle ébranla l'espace entier. Il fit trembler la Mer Yun, la Rivière Invoquée et les autres systèmes stellaires, et ébranla les astres antiques du Royaume Extérieur.
+Dès que ce motif fut complet, un soleil doré apparut dans sa main! Ce soleil ne faisait que la taille d'une paume, mais la puissance qu'il dégageait était telle qu'elle ébranla l'espace entier. Il fit trembler la Mer Yun, la Rivière Zhao et les autres systèmes stellaires, et ébranla les astres antiques du Royaume Extérieur.
 
 Cependant, ce qui allait suivre serait encore plus terrifiant.

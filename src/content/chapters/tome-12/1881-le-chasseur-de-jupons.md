@@ -10,9 +10,9 @@ L'expression de Wang Lin était calme. Après avoir appris que le premier, le de
 
 « Un plan top secret? » fronça Wang Lin les sourcils.
 
-« Je ne suis venu que pour transmettre l'ordre et j'en ignore les détails. J'espère que ce Compagnon Cultivateur pourra se rendre rapidement à la Secte Gui Yi. Il y a au total quatre personnes comme moi, envoyées vers chaque méridien. » Ouyang Zhen tendit la main vers le vide, et un jade apparut. Il le lança vers Wang Lin.
+« Je ne suis venu que pour transmettre l'ordre et j'en ignore les détails. J'espère que ce Daoïste pourra se rendre rapidement à la Secte Gui Yi. Il y a au total quatre personnes comme moi, envoyées vers chaque méridien. » Ouyang Zhen tendit la main vers le vide, et un jade apparut. Il le lança vers Wang Lin.
 
-« Ce jade contient l'emplacement exact du réseau de transfert et peut activer la formation trois fois. J'espère que tu seras rapide, Compagnon Cultivateur. J'ai encore une autre tâche à accomplir, je dois donc te faire mes adieux! » Ouyang Zhen semblait anxieux. Après avoir joint les mains en signe de salut devant Wang Lin, il partit.
+« Ce jade contient l'emplacement exact du réseau de transfert et peut activer la formation trois fois. J'espère que tu seras rapide, Daoïste. J'ai encore une autre tâche à accomplir, je dois donc te faire mes adieux! » Ouyang Zhen semblait anxieux. Après avoir joint les mains en signe de salut devant Wang Lin, il partit.
 
 Ouyang Zhen était venu et repartit aussi vite qu'il était apparu, mais Wang Lin percevait la tension qui habitait les cultivateurs du Continent Tian Niu en cette guerre. Après un moment de réflexion, Wang Lin baissa les yeux vers le jade.
 
@@ -20,7 +20,7 @@ Au sol, plusieurs rayons de lumière jaillirent, révélant Yan Luan et les autr
 
 Après un long moment, Wang Lin rangea le jade et regarda Yan Luan et sa compagnie. Il leur adressa un salut en joignant les mains.
 
-« Compagnons cultivateurs, nous avons partagé nos chemins pendant des mois, mais l'heure est venue de se séparer. Si le destin le permet, nous aurons l'occasion de combattre à nouveau ensemble. »
+« Daoïstes, nous avons partagé nos chemins pendant des mois, mais l'heure est venue de se séparer. Si le destin le permet, nous aurons l'occasion de combattre à nouveau ensemble. »
 
 « Adieu! » Le regard de Wang Lin balaya Yan Luan et, sans hésitation, il fit demi-tour. Des ondulations résonnèrent sous ses pas tandis que sa silhouette disparaissait.
 
@@ -66,23 +66,23 @@ Ce changement soudain attira l'attention de Wang Lin et des autres cultivateurs.
 
 Peu après, l'apparence de la femme se précisa. Elle portait des vêtements violets. Elle paraissait jeune et d'une grande beauté, dégageant une sérénité qui lui donnait l'allure d'une déesse. Sur le côté droit de son visage gracieux figurait également un tatouage du Taureau Céleste. Loin de ternir sa beauté, ce tatouage lui conférait une aura mystérieuse.
 
-« Ta Jia de la Secte Xiu Sheng. Sixième méridien du Taureau Céleste, Chaîne de Montagnes Cang Ming », dit doucement la femme en balayant l'assemblée du regard. Son regard s'arrêta un instant sur Wang Lin, mais elle resta impassible.
+« Tang Jia de la Secte Xiu Sheng. Sixième méridien du Taureau Céleste, Chaîne de Montagnes Cang Ming », dit doucement la femme en balayant l'assemblée du regard. Son regard s'arrêta un instant sur Wang Lin, mais elle resta impassible.
 
-En voyant cette femme, les yeux de Wang Lin se plissèrent. Il l'observa attentivement, sentant une familiarité qu'il n'arrivait pas à identifier. Ta Jia fronça légèrement les sourcils sous ce regard et lui jeta un coup d'œil calme.
+En voyant cette femme, les yeux de Wang Lin se plissèrent. Il l'observa attentivement, sentant une familiarité qu'il n'arrivait pas à identifier. Tang Jia fronça légèrement les sourcils sous ce regard et lui jeta un coup d'œil calme.
 
-« Compagnon Cultivateur, de quel méridien venez-vous? » Sa voix était cristalline et mélodieuse.
+« Daoïste, de quel méridien venez-vous? » Sa voix était cristalline et mélodieuse.
 
 « Troisième méridien du Taureau Céleste », répondit lentement Wang Lin. Il continuait de l'observer, cherchant à comprendre pourquoi elle lui semblait si familière. Il était certain que cette femme n'était pas une réincarnation venue du monde des cavernes.
 
-Cependant, son insistance était impolie envers la femme. Celle-ci fronça les sourcils et regarda Wang Lin avec une pointe de dégoût. Elle le fixa froidement et demanda doucement: « Compagnon Cultivateur, auriez-vous déjà rencontré Ta Jia? »
+Cependant, son insistance était impolie envers la femme. Celle-ci fronça les sourcils et regarda Wang Lin avec une pointe de dégoût. Elle le fixa froidement et demanda doucement: « Daoïste, auriez-vous déjà rencontré Tang Jia? »
 
 « Non, je ne vous ai jamais vue, mais j'ai l'impression que vous me semblez familière. » Wang Lin réfléchit et réalisa que son attitude était déplacée. Il esquissa un sourire désolé et détourna les yeux.
 
-En entendant ces paroles, Ta Jia ressentit un dégoût accru. Elle avait déjà entendu des propos similaires maintes fois et considéra Wang Lin comme un simple chasseur de jupons. Sans plus rien dire, elle s'envola vers la Secte Gui Yi.
+En entendant ces paroles, Tang Jia ressentit un dégoût accru. Elle avait déjà entendu des propos similaires maintes fois et considéra Wang Lin comme un simple chasseur de jupons. Sans plus rien dire, elle s'envola vers la Secte Gui Yi.
 
 Wang Lin se frotta le nez en volant vers la secte, sous le regard étrange de l'homme d'âge moyen.
 
-Bientôt, tout le monde atteignit la Secte Gui Yi et pénétra dans la formation, guidé par l'homme d'âge moyen. Une lumière violette clignota; il semblait que ce n'était pas la première fois que Ta Jia se rendait à la Secte Gui Yi, car elle se dirigea directement vers le grand hall.
+Bientôt, tout le monde atteignit la Secte Gui Yi et pénétra dans la formation, guidé par l'homme d'âge moyen. Une lumière violette clignota; il semblait que ce n'était pas la première fois que Tang Jia se rendait à la Secte Gui Yi, car elle se dirigea directement vers le grand hall.
 
 Une heure plus tard, Wang Lin aperçut une immense place où une cloche colossale était retournée, dégageant des vagues de pression.
 
@@ -90,12 +90,12 @@ Deux cultivateurs étaient assis sous cette cloche. L'un était un vieil homme a
 
 L'autre était un jeune homme à l'expression nonchalante, mais si l'on regardait de près, on pouvait percevoir une étincelle dans ses yeux. Malgré son air paresseux, il devenait une personne tout autre dès que son expression se faisait sérieuse. Un tatouage du Taureau Céleste brillait également sur le côté droit de son visage.
 
-À l'arrivée de Ta Jia, le jeune homme tourna la tête sans lui accorder la moindre importance. Cependant, un instant plus tard, son expression se décomposa, révélant un choc profond. Il se leva brusquement et fixa Ta Jia.
+À l'arrivée de Tang Jia, le jeune homme tourna la tête sans lui accorder la moindre importance. Cependant, un instant plus tard, son expression se décomposa, révélant un choc profond. Il se leva brusquement et fixa Tang Jia.
 
 Ou plutôt, il fixait ce qui se trouvait derrière elle! Il fixait Wang Lin aux cheveux blancs, qui était escorté par plusieurs cultivateurs.
 
 Wang Lin le vit également!
 
-Ta Jia fut stupéfaite par le changement radical du jeune homme. Elle savait qui il était, connaissait son identité et sa réputation sur le Continent Tian Niu. Par le passé, elle l'avait vu de loin dans la foule, sa silhouette altière dominant ciel et terre, mais elle ne l'avait jamais vu manifester une telle émotion.
+Tang Jia fut stupéfaite par le changement radical du jeune homme. Elle savait qui il était, connaissait son identité et sa réputation sur le Continent Tian Niu. Par le passé, elle l'avait vu de loin dans la foule, sa silhouette altière dominant ciel et terre, mais elle ne l'avait jamais vu manifester une telle émotion.
 
-Après avoir été surprise un instant, Ta Jia tourna inconsciemment la tête pour regarder la silhouette qui lui avait inspiré tant de dégoût.
+Après avoir été surprise un instant, Tang Jia tourna inconsciemment la tête pour regarder la silhouette qui lui avait inspiré tant de dégoût.

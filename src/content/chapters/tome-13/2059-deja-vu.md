@@ -82,7 +82,7 @@ Il avait tout abandonné pour accompagner son parrain durant les trois dernière
 
 Au fil des jours, de plus en plus de gens voyageaient vers Shi Antique. Même les membres des deux autres clans étaient en route.
 
-Chaque jour, une foule immense pénétrait dans la cité impériale. Pourtant, comparé à l'agitation de la ville, le temple ancestral et ses mille pieds alentour étaient d'un calme absolu. Il avait été transformé en zone interdite depuis longtemps et nul n'était autorisé à s'en approcher. D'innombrables gardes du palais royal surveillaient même les lieux.
+Chaque jour, une foule immense pénétrait dans la cité impériale. Pourtant, comparé à l'agitation de la ville, le temple ancestral et ses dix mille pieds alentour étaient d'un calme absolu. Il avait été transformé en zone interdite depuis longtemps et nul n'était autorisé à s'en approcher. D'innombrables gardes du palais royal surveillaient même les lieux.
 
 Ji Du écoutait les rumeurs de la foule tout en restant assis en silence, les yeux clos.
 

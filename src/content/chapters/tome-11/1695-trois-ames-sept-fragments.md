@@ -58,7 +58,7 @@ Les faits étaient peut-être légèrement différents, mais c'était là la vé
 
 « Trois âmes, sept fragments... Il s'avère donc qu'il y a trois âmes et sept fragments! Le Souverain a dit que le Vieux Fantôme Zhan aurait dû mourir lorsqu'ils se sont rencontrés à la Mer Yun. Le choc du Souverain ne semble pas feint!
 
-« Même lui l'ignorait... De plus, dans le Royaume Qi Cai au sein du Vide Brillant, lorsque je suis allé sauver Qing Shui, le Daoïste aux Sept Couleurs est apparu. Il semblait admirer le Vieux Fantôme Zhan...
+« Même lui l'ignorait... De plus, dans le Royaume Qi Cai de Kun Xu, lorsque je suis allé sauver Qing Shui, le Daoïste aux Sept Couleurs est apparu. Il semblait admirer le Vieux Fantôme Zhan...
 
 « Il a dit que le Vieux Fantôme Zhan était différent... Se pourrait-il que le Vieux Fantôme Zhan soit la deuxième âme?
 
@@ -70,7 +70,7 @@ Les faits étaient peut-être légèrement différents, mais c'était là la vé
 
 « Et il y a aussi les sept fragments... Dans le Royaume Qi Cai de Kun Xu, j'avais remarqué que le Daoïste aux Sept Couleurs regardait Qing Shui comme s'il se regardait lui-même. Je l'avais trouvé étrange à l'époque, sans pouvoir trouver de réponse. Mais maintenant, la réponse semble évidente!
 
-« Senior Frère Qing Shui est l'un des sept fragments du Souverain Céleste aux Sept Couleurs!! Pas étonnant que sa vie soit si misérable, pas étonnant qu'il ait pu obtenir l'essence de la boucherie... Pas étonnant qu'il fût si puissant dès qu'il atteignit le troisième stade!
+« Senior frère Qing Shui est l'un des sept fragments du Souverain Céleste aux Sept Couleurs!! Pas étonnant que sa vie soit si misérable, pas étonnant qu'il ait pu obtenir l'essence de la boucherie... Pas étonnant qu'il fût si puissant dès qu'il atteignit le troisième stade!
 
 « Parmi les sept, le seul que je connaisse est Qing Shui. Quant aux six autres, qui sont-ils... Je... Suis-je moi aussi, Wang Lin, l'un d'eux... » Wang Lin médita en silence, une froideur s'installant dans son regard.
 
