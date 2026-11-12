@@ -70,7 +70,7 @@ Si cette jeune fille avait délaissé son attitude froide, ce geste aurait été
 
 Wang Lin entra dans la cour d'un pas calme. Le parfum des herbes l'assaillit, et une seule inspiration lui procura un sentiment de fraîcheur. Bien qu'il paraisse impassible, il était intérieurement stupéfait: de nombreuses plantes dans cette cour étaient déjà éteintes dans l'Alliance et à Luotian.
 
-« Vous vivrez là », dit Xu Yun en désignant la petite maison en bois devant elle. Elle avait observé Wang Lin attentivement, troublée par son calme excessif. S'il avait été un cultivateur, cela n'aurait rien eu de spécial, mais peu importait ses vérifications, ce Ceng Niu ne dégageait aucune trace d'énergie spirituelle. Cela la surprenait au plus haut point.
+« Vous vivrez là », dit Xu Yun en désignant la petite maison en bois devant elle. Elle avait observé Wang Lin attentivement, troublée par son calme excessif. S'il avait été un cultivateur, cela n'aurait rien eu de spécial, mais peu importait ses vérifications, ce Zeng Niu ne dégageait aucune trace d'énergie spirituelle. Cela la surprenait au plus haut point.
 
 Cependant, elle n'y réfléchit pas plus longtemps. Après lui avoir expliqué comment entretenir les herbes et lui avoir transmis les chants de culture, elle ignora Wang Lin pour entrer dans la maison centrale et se mettre en méditation. Elle s'efforçait désespérément d'atteindre le stade du Yang Corporel afin de pouvoir être utile à son maître.
 
@@ -90,9 +90,9 @@ Peu de temps après, le ciel s'obscurcit progressivement, plongeant la pièce da
 
 Son avatar et son corps original se séparèrent dans cette petite maison en bois de la cour sud de la Secte Gui Yuan.
 
-Son corps original était assis là, et tout ce qui se trouvait sous la taille n'était que des os. Ses ossements étaient sombres, parcourus de faibles lignes rouges. Si quelqu'un d'autre avait vu cela, il en aurait eu le souffle coupé. L'état du corps original était même pire que lorsqu'il se trouvait à la Secte Divine de l'Oiseau Vermillon; ses blessures semblaient s'être aggravées.
+Son corps original était assis là, et tout ce qui se trouvait sous la taille n'était que des os. Ses ossements étaient sombres, parcourus de faibles lignes rouges. Si quelqu'un d'autre avait vu cela, il en aurait eu le souffle coupé. L'état du corps original était même pire que lorsqu'il se trouvait à la Secte Divine de Suzaku; ses blessures semblaient s'être aggravées.
 
-En vérité, Wang Lin avait fusionné avec son corps original dès qu'il avait quitté la Secte Divine de l'Oiseau Vermillon pour sauver l'Empereur Divin du Dragon Azure dans le Royaume Céleste de la Pluie. Cependant, en raison des problèmes liés au corps original, bien qu'ils fussent fusionnés, il ne restait que peu de puissance d'Ancien Dieu utilisable.
+En vérité, Wang Lin avait fusionné avec son corps original dès qu'il avait quitté la Secte Divine de Suzaku pour sauver l'Empereur Divin du Dragon Azure dans le Royaume Céleste de la Pluie. Cependant, en raison des problèmes liés au corps original, bien qu'ils fussent fusionnés, il ne restait que peu de puissance d'Ancien Dieu utilisable.
 
 « Les anciens dieux affrontent les Trois Épreuves et Sept Calamités. Selon les souvenirs de Tu Si, ce n'est qu'après avoir atteint six étoiles que je devrais rencontrer les deux premières calamités de la première épreuve. Je ne pensais pas affronter la première épreuve si tôt... »
 

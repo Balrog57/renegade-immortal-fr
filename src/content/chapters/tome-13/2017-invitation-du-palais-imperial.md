@@ -10,7 +10,7 @@ Sa voix n'était ni forte, ni tonnante. Cependant, lorsqu'elle retentit, une pre
 
 Cette pression était suffisante pour terrasser quiconque la ressentait!
 
-Il faut dire que la pression du Mont Gu Dao provenait du Grand Empyréen Gu Dao, l'être le plus puissant du Continent Astral Immortel! Pourtant, l'aura que dégageait Wang Lin était comparable à celle du Grand Empyréen Gu Dao!
+Il faut dire que la pression du Mont Gu Dao provenait du Grand Empyréen Gu Dao, l'être le plus puissant du Continent Xian Gang! Pourtant, l'aura que dégageait Wang Lin était comparable à celle du Grand Empyréen Gu Dao!
 
 Une telle révélation suffisait à glacer le sang de n'importe qui!
 
@@ -44,7 +44,7 @@ Immobile, Wang Lin médita silencieusement et joignit les mains en direction du 
 
 De plus, il avait pu fusionner sa puissance céleste et ancienne grâce à la pression exercée par Gu Dao. Peut-être était-ce un accident, ou peut-être s'agissait-il d'une reconnaissance silencieuse de la part du Grand Empyréen.
 
-Quoi qu'il en soit, Wang Lin savait que le Grand Empyréen Gu Dao était l'être le plus puissant du Continent Astral Immortel; il se devait donc de lui témoigner son respect.
+Quoi qu'il en soit, Wang Lin savait que le Grand Empyréen Gu Dao était l'être le plus puissant du Continent Xian Gang; il se devait donc de lui témoigner son respect.
 
 Après un long moment, la voix froide du Grand Empyréen résonna depuis la tour: « Sois sans crainte, j'ai dit que si tu parvenais à franchir les 300 marches, tu pourrais partir... Maintenant que c'est fait, va-t'en! »
 

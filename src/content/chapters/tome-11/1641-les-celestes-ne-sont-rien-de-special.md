@@ -30,19 +30,19 @@ Derrière elles s'étendaient d'innombrables statues des trois anciens clans, au
 
 Un vortex tournait lentement entre les sourcils de chacune des quatre statues. Le regard de Wang Lin les balaya et il sentit quatre auras tyranniques en leur sein.
 
-Wang Lin reconnut très bien l'une de ces quatre auras; elle provenait de l'Oiseau Vermillon!
+Wang Lin reconnut très bien l'une de ces quatre auras; elle provenait de Suzaku!
 
-Cette aura ressemblait à celle de l'ancêtre de l'Oiseau Vermillon. Wang Lin avait éprouvé la même sensation lorsqu'il avait vu la première génération de l'Oiseau Vermillon dans les Terres Déchues.
+Cette aura ressemblait à celle de l'ancêtre de Suzaku. Wang Lin avait éprouvé la même sensation lorsqu'il avait vu la première génération de Suzaku dans les Terres Déchues.
 
-« Oiseau Vermillon... » Les yeux de Wang Lin se rétrécirent. L'aura de l'une des statues était presque identique à celle de la première génération de l'Oiseau Vermillon des Terres Déchues. Il était évident que l'une de ces deux auras appartenait à un avatar!
+« Oiseau Vermillon... » Les yeux de Wang Lin se rétrécirent. L'aura de l'une des statues était presque identique à celle de la première génération de Suzaku des Terres Déchues. Il était évident que l'une de ces deux auras appartenait à un avatar!
 
-« Général de l'Oiseau Vermillon du Souverain Céleste aux Sept Couleurs, viens me voir! » Wang Lin s'arrêta et flotta dans les airs en prononçant ces mots. Sa voix était calme et se propagea dans toutes les directions.
+« Général de Suzaku du Souverain Céleste aux Sept Couleurs, viens me voir! » Wang Lin s'arrêta et flotta dans les airs en prononçant ces mots. Sa voix était calme et se propagea dans toutes les directions.
 
 Il resta là, dégageant une pression si puissante que c'était comme si les cieux eux-mêmes devaient se soumettre à ses pieds.
 
 Alors que les paroles de Wang Lin résonnaient, un silence s'installa. Les sept ou huit Célestes qui le suivaient s'arrêtèrent et le fixèrent d'un regard glacial.
 
-« Quel petit poupon arrogant. Tu as détruit de nombreux embryons sur ton chemin et tué plusieurs de mes Célestes. Tu es un descendant de l'Oiseau Vermillon, et de tels actes sont déjà considérés comme profondément maléfiques! Ce vieux Tigre Blanc te donnera une leçon au nom de l'Oiseau Vermillon! » Une voix sombre brisa le silence lorsqu'un vieil homme vêtu de blanc sortit de l'un des vortex. Son visage était marqué par les rides et son corps émanait une aura antique.
+« Quel petit poupon arrogant. Tu as détruit de nombreux embryons sur ton chemin et tué plusieurs de mes Célestes. Tu es un descendant de Suzaku, et de tels actes sont déjà considérés comme profondément maléfiques! Ce vieux Tigre Blanc te donnera une leçon au nom de Suzaku! » Une voix sombre brisa le silence lorsqu'un vieil homme vêtu de blanc sortit de l'un des vortex. Son visage était marqué par les rides et son corps émanait une aura antique.
 
 D'un seul pas, il quitta le vortex de la statue et chargea Wang Lin. Sa vitesse était telle qu'elle créait un sifflement dans l'air, semblable au rugissement d'un tigre féroce.
 
@@ -66,7 +66,7 @@ Mais juste au moment où il allait faire un pas en avant, le regard calme de Wan
 
 Plus le regard de Wang Lin était serein, plus la pression exercée sur le vieillard était écrasante.
 
-« Je ne souhaite pas vous tuer. À mes yeux, le Royaume Céleste Antique n'a rien d'extraordinaire. Ce n'est qu'un groupe de cultivateurs infirmes du Continent Astral Immortel qui se font appeler "Célestes" dans cette caverne pour contrôler les soi-disant "fourmis des royaumes inférieurs". C'est tout simplement ridicule! »
+« Je ne souhaite pas vous tuer. À mes yeux, le Royaume Céleste Antique n'a rien d'extraordinaire. Ce n'est qu'un groupe de cultivateurs infirmes du Continent Xian Gang qui se font appeler "Célestes" dans cette caverne pour contrôler les soi-disant "fourmis des royaumes inférieurs". C'est tout simplement ridicule! »
 
 « À mes yeux, vous êtes tous comme des fourmis également! »
 

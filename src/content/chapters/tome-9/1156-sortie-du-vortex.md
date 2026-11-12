@@ -16,7 +16,7 @@ En cet instant, n'ayant que son avatar de cultivateur, il serait extrêmement di
 
 D'autant plus qu'actuellement, sa jambe droite n'était qu'un carnage sanglant, transpercée par la lumière blanche de Qian Guizhong. Une énergie originelle contenant une forme de loi ravageait également son corps.
 
-Sans l'Armure de Cuir d'Ancien Dieu protégeant son âme originelle, celle-ci se serait déjà effondrée. Heureusement, le corps de Wang Lin n'était pas ordinaire; après avoir été raffiné dans la Secte Divine de l'Oiseau Vermillon, il contenait les lois du feu et de la foudre.
+Sans l'Armure de Cuir d'Ancien Dieu protégeant son âme originelle, celle-ci se serait déjà effondrée. Heureusement, le corps de Wang Lin n'était pas ordinaire; après avoir été raffiné dans la Secte Divine de Suzaku, il contenait les lois du feu et de la foudre.
 
 Grâce à cela, il ne subissait que des blessures au lieu de mourir sous les sorts de Qian Guizhong! Ayant traversé de nombreux périls durant sa vie de cultivateur, Wang Lin connaissait naturellement le danger que représentaient les cultivateurs du niveau Briseur du Nirvana.
 
@@ -130,7 +130,7 @@ Le retour de Wang Lin ne suscita pas trop d'attention au sein de la Secte Gui Yu
 
 Sun Yun regarda l'amas d'herbes devant elle et eut le souffle coupé. Grâce à ses connaissances, elle comprit que beaucoup de ces plantes étaient extrêmement rares, et que leur valeur dépassait de loin celle des herbes que Wang Lin avait consommées.
 
-Elle resta stupéfaite un long moment avant de reprendre ses esprits et de pousser un soupir de soulagement. Après le départ de Wang Lin, elle subissait les réprimandes quotidiennes de son maître et était très inquiète. Elle craignait que, si le Senior Ceng Niu ne revenait pas, elle soit tenue pour responsable de la ruine de la secte lors de l'arrivée de la Secte Zi Dao.
+Elle resta stupéfaite un long moment avant de reprendre ses esprits et de pousser un soupir de soulagement. Après le départ de Wang Lin, elle subissait les réprimandes quotidiennes de son maître et était très inquiète. Elle craignait que, si le Senior Zeng Niu ne revenait pas, elle soit tenue pour responsable de la ruine de la secte lors de l'arrivée de la Secte Zi Dao.
 
 À l'intérieur de la maison, Wang Lin s'assit, le regard grave, et pressa sa poitrine de la main droite. Son visage était toujours pâle alors qu'il entamait sa culture. Bientôt, des éclairs de lignes blanches commencèrent à être expulsés de son corps.
 

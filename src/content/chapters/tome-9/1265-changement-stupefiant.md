@@ -18,7 +18,7 @@ Avant de s'en aller, la silhouette de Mu Bingmei, baignée par la lumière lunai
 
 Domaine de la Cruauté des Mille Illusions... Domaine des Dix Mille Illusions Démoniaques... Finalement, il changea lentement.
 
-Parmi les Saintesses du Vide Brillant, une seule personne avait réussi à maîtriser le sort hérité de la lignée, toutes les autres ayant échoué. Mu Bingmei avait tenté un raccourci en y fusionnant sa propre voie, mais elle avait échoué avec Liu Mei. Son cœur dao était incomplet et une fissure était ainsi apparue sur le sort le plus puissant du Royaume Kun Xu.
+Parmi les Saintesses de Kun Xu, une seule personne avait réussi à maîtriser le sort hérité de la lignée, toutes les autres ayant échoué. Mu Bingmei avait tenté un raccourci en y fusionnant sa propre voie, mais elle avait échoué avec Liu Mei. Son cœur dao était incomplet et une fissure était ainsi apparue sur le sort le plus puissant du Royaume Kun Xu.
 
 Cette fissure, c'était Liu Mei, aussi Wang Lin, mais surtout Wang Ping! Cependant, à cet instant, forte de tout ce qu'elle avait vécu, Mu Bingmei ne cherchait plus à éviter cette faille. Elle choisit de l'affronter, de l'accepter.
 
@@ -36,7 +36,7 @@ Dans la cour, sous la lune, flottaient les fragrances des deux femmes qui avaien
 
 Le temps passa lentement. En un clin d'œil, plusieurs jours s'écoulèrent. La compétition entre les sectes de rang 8 approchait; l'heure du départ avait sonné.
 
-Trois jours plus tôt, Mu Bingmei avait quitté la Secte Éternelle avec Wang Shanshan. Cette dernière avait reçu l'ordre de son maître de regagner rapidement la Secte Divine. Naturellement, la Secte Éternelle n'osa pas s'y opposer. Avant de partir, Mu Bingmei ne se retourna pas. Elle était fière, elle était la Saintesse du Vide Brillant!
+Trois jours plus tôt, Mu Bingmei avait quitté la Secte Éternelle avec Wang Shanshan. Cette dernière avait reçu l'ordre de son maître de regagner rapidement la Secte Divine. Naturellement, la Secte Éternelle n'osa pas s'y opposer. Avant de partir, Mu Bingmei ne se retourna pas. Elle était fière, elle était la Saintesse de Kun Xu!
 
 Le Royaume Kun Xu avait été détruit, et elle seule en subsistait. Dès cet instant, elle n'appartenait plus à elle-même. Il lui incombait de cultiver pour restaurer le Royaume Kun Xu, d'assumer ses responsabilités de Saintesse. C'était une charge qu'elle avait fuie longtemps, mais elle choisissait désormais de l'affronter sans plus jamais s'en dérober.
 

@@ -74,7 +74,7 @@ Le visage de Maître Zhong Xuan devint livide et il recula instinctivement de qu
 
 « Toi!! » Maître Long Pan fixa Maître Zhong Xuan, et le regret dans ses yeux se fit plus intense. En réalité, il n'avait rien trouvé de notable dans la mémoire de l'ancien; tout ce qu'il avait fait n'était que pour effrayer Maître Zhong Xuan. Ce dernier, ignorant cela, avait tout déballé sous l'effet de la terreur.
 
-« Peu importe l'âpreté des combats dans le Royaume Intérieur, cela n'a rien à voir avec le Royaume Extérieur. Tant qu'ils ne pénètrent pas ici, ce vieil homme ne s'éveillera pas. L'ascension ou la chute de l'Alliance appartient au destin. Si je vous ai permis de fonder cette Alliance, ce n'était pas pour contrôler le Vide Brillant, mais pour permettre à nos cultivateurs de se renforcer dans cet environnement cruel! Tout cela était en vue de la guerre contre le Royaume Extérieur! » Maître Long Pan soupira.
+« Peu importe l'âpreté des combats dans le Royaume Intérieur, cela n'a rien à voir avec le Royaume Extérieur. Tant qu'ils ne pénètrent pas ici, ce vieil homme ne s'éveillera pas. L'ascension ou la chute de l'Alliance appartient au destin. Si je vous ai permis de fonder cette Alliance, ce n'était pas pour contrôler le Kun Xu, mais pour permettre à nos cultivateurs de se renforcer dans cet environnement cruel! Tout cela était en vue de la guerre contre le Royaume Extérieur! » Maître Long Pan soupira.
 
 « Une Alliance Xiu Zhen, une Alliance Xiu Zhen... La seule raison pour laquelle le Royaume Extérieur a conclu un marché avec vous est qu'ils m'ont vu à l'intérieur de cette planète. Et vous leur avez révélé mon existence en échange d'une grande fortune! »
 
@@ -106,7 +106,7 @@ La tempête l'enveloppa mais ne le blessa pas. Au lieu de cela, elle le tira der
 
 Tandis qu'elle s'effondrait, des filaments de gaz blanc s'en échappèrent pour pénétrer dans le corps de Maître Long Pan. Simultanément, un Feu Éthéré commença à brûler en son sein.
 
-« Je vais sacrifier ma vitalité et, en échange, je brûlerai mon âme originelle pour atteindre la force du début du stade Arcanique... Je vais tuer tous les cultivateurs du Royaume Extérieur dans le Royaume Intérieur... détruire les Royaumes aux Sept Couleurs restants, et reprendre la Rivière Invoquée en échange de la vie de Maître Zhong Xuan... » Maître Long Pan joignit les mains devant Wang Lin avant de lancer un regard empreint de douceur à Maître Zhong Xuan.
+« Je vais sacrifier ma vitalité et, en échange, je brûlerai mon âme originelle pour atteindre la force du début du stade Arcanique... Je vais tuer tous les cultivateurs du Royaume Extérieur dans le Royaume Intérieur... détruire les Royaumes aux Sept Couleurs restants, et reprendre Zhao He en échange de la vie de Maître Zhong Xuan... » Maître Long Pan joignit les mains devant Wang Lin avant de lancer un regard empreint de douceur à Maître Zhong Xuan.
 
 « Maître!!! » Maître Zhong Xuan reprit ses esprits et se prostra sans cesse au sol, les yeux emplis d'une tristesse infinie et d'un profond remords...
 

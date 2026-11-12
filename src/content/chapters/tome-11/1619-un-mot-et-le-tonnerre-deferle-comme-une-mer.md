@@ -86,14 +86,14 @@ Dans la Mer Yun, la situation était identique à celle de Kun Xu. Des éclairs 
 
 Un grondement émanait également des rares nuages de la Mer Yun. D'innombrables éclairs jaillirent et se lièrent entre eux, brisant la barrière qui les séparait de Kun Xu pour s'y engouffrer.
 
-Mais ce n'était pas tout. Après que le rugissement de Wang Lin eut résonné à travers Kun Xu et la Mer Yun, il se propagea également dans la Rivière Zhao. La foudre déchira l'obscurité spatiale. D'innombrables cultivateurs du Royaume Extérieur virent passer des météores de lumière ou des éclairs argentés serpentant à travers le ciel.
+Mais ce n'était pas tout. Après que le rugissement de Wang Lin eut résonné à travers Kun Xu et la Mer Yun, il se propagea également dans Zhao He. La foudre déchira l'obscurité spatiale. D'innombrables cultivateurs du Royaume Extérieur virent passer des météores de lumière ou des éclairs argentés serpentant à travers le ciel.
 
-Un grondement tonitruant balaya la Rivière Zhao. Des masses de cultivateurs sortirent des planètes de culture pour contempler ces vagues d'éclairs traversant l'espace. Ils étaient totalement stupéfaits.
+Un grondement tonitruant balaya Zhao He. Des masses de cultivateurs sortirent des planètes de culture pour contempler ces vagues d'éclairs traversant l'espace. Ils étaient totalement stupéfaits.
 
 « Que... s'est-il passé... »
 
-Alors que le tonnerre et la foudre de la Mer Yun, de Kun Xu et de la Rivière Zhao se mettaient en mouvement, le dernier à être affecté fut Luotian! Luotian n'avait pas été capturé et appartenait toujours au Royaume Intérieur. À cet instant, les cultivateurs du Royaume Intérieur observaient tous le tonnerre déferler vers Kun Xu de toutes parts.
+Alors que le tonnerre et la foudre de la Mer Yun, de Kun Xu et de Zhao He se mettaient en mouvement, le dernier à être affecté fut Luotian! Luotian n'avait pas été capturé et appartenait toujours au Royaume Intérieur. À cet instant, les cultivateurs du Royaume Intérieur observaient tous le tonnerre déferler vers Kun Xu de toutes parts.
 
 Alors que l'appel de Wang Lin résonnait à travers tout Luotian, la barrière des systèmes stellaires se brisa. Le tonnerre ancien qui servait de porte au Royaume Céleste du Tonnerre, immobile depuis des éons, jaillit pour la première fois telle une rivière d'argent. Il fonça droit vers Kun Xu!
 
-Kun Xu, Luotian, la Mer Yun et la Rivière Zhao... le tonnerre des quatre grands systèmes stellaires convergeait vers la planète Suzaku. Vers Wang Lin, vêtu de blanc, les longs cheveux flottant au vent, qui levait la main et poussait un long cri vers les cieux!
+Kun Xu, Luotian, la Mer Yun et Zhao He... le tonnerre des quatre grands systèmes stellaires convergeait vers la planète Suzaku. Vers Wang Lin, vêtu de blanc, les longs cheveux flottant au vent, qui levait la main et poussait un long cri vers les cieux!

@@ -48,7 +48,7 @@ Lorsque Liu Jinbiao vit la lumière émanant de Wang Lin, son cœur trembla et i
 
 Dans l'œil gauche de Wang Lin, sous l'éclat de la lumière, les contours d'un soleil se formèrent lentement. Cependant, dès que la lumière se dissipa, la forme ne put prendre corps.
 
-« Je ne suis pas étranger à l'absolu commencement... Dans le monde des grottes, lorsque j'ai créé Nuit Brisée, elle contenait déjà le pouvoir de l'absolu commencement... Depuis lors, ma compréhension n'a cessé de croître. Puis, en arrivant sur le Continent Astral Immortel, mon Nuit Brisée intégrait la foi... »
+« Je ne suis pas étranger à l'absolu commencement... Dans le monde des grottes, lorsque j'ai créé Nuit Brisée, elle contenait déjà le pouvoir de l'absolu commencement... Depuis lors, ma compréhension n'a cessé de croître. Puis, en arrivant sur le Continent Xian Gang, mon Nuit Brisée intégrait la foi... »
 
 « Je ne m'attendais pas à ce que cet absolu commencement produise également une essence... Une essence est une chose que l'on comprend si profondément qu'on perce à jour tous ses changements et qu'on peut même l'utiliser d'un simple geste de la main... » murmura Wang Lin alors qu'il s'immergeait pour la sixième fois dans le Bassin Dong Lin.
 

@@ -102,6 +102,6 @@ Wang Lin saisit le sable blanc et l'examina attentivement. Ses pupilles se rétr
 
 Une fois celui-ci parti, la porte de la grotte se referma et Wang Lin posa des restrictions. Il regarda immédiatement le sable blanc dans sa main et ses yeux devinrent de plus en plus brillants, trahissant une pointe de choc.
 
-« Cristal de Mutation de Feu Déchaîné... C'est donc bien cela qu'on appelle le Cristal de Mutation de Feu Déchaîné!!! Autrefois, l'ancien Divin Empereur de l'Oiseau Vermillon avait dit que les Quatre Sectes Divines étaient originaires du Système Stellaire Antique avant d'entrer dans le Royaume Intérieur... C'était donc vrai! »
+« Cristal de Mutation de Feu Déchaîné... C'est donc bien cela qu'on appelle le Cristal de Mutation de Feu Déchaîné!!! Autrefois, l'ancien Divin Empereur de Suzaku avait dit que les Quatre Sectes Divines étaient originaires du Système Stellaire Antique avant d'entrer dans le Royaume Intérieur... C'était donc vrai! »
 
 « Ce Cristal de Mutation de Feu Déchaîné a été apporté ici par le mystérieux Empereur de la Terre Déchue, mais pourquoi serait-il là... À moins que... À moins que... » Les yeux de Wang Lin s'illuminèrent, révélant une pointe d'excitation incontrôlable!

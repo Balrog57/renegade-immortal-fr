@@ -18,7 +18,7 @@ Après Treize, ce fut au tour de Situ Nan. Toujours aussi imprévisible, il rit 
 
 « J'aime boire dans cette vie, mais j'ignore si j'en aurai le goût dans la prochaine! Je te laisse cette cruche. Quand tu me retrouveras, rends-la moi. Hahaha, ce vieux doit se réincarner en prince! Bon sang, un prince, absolument un prince! » Le rire de Situ Nan résonna tandis qu'il disparaissait derrière la porte.
 
-Toutefois, nul ne savait si son vœu serait exaucé. Se réincarner en prince sur le Continent Astral Immortel était une éventualité dont ni Wang Lin ni Xuan Luo ne pouvaient être certains.
+Toutefois, nul ne savait si son vœu serait exaucé. Se réincarner en prince sur le Continent Xian Gang était une éventualité dont ni Wang Lin ni Xuan Luo ne pouvaient être certains.
 
 « J'espère que ses désirs se réaliseront... » Wang Lin affichait une expression étrange. Il pressentait que les choses ne se dérouleraient pas comme Situ Nan l'avait imaginé.
 
@@ -30,9 +30,9 @@ Ses paroles étaient douces, mais la détermination qui les soustendait révéla
 
 De ce côté de la porte, seuls Wang Lin et Xuan Luo restèrent.
 
-Xuan Luo regarda Wang Lin et dit d'une voix lente: « Ils sont tous passés de l'autre côté. Ce vieux va activer ses sorts pour résister aux lois du Continent Astral Immortel. Quand comptes-tu entrer? »
+Xuan Luo regarda Wang Lin et dit d'une voix lente: « Ils sont tous passés de l'autre côté. Ce vieux va activer ses sorts pour résister aux lois du Continent Xian Gang. Quand comptes-tu entrer? »
 
-Les yeux de Wang Lin s'illuminèrent. Il fixa la porte et demanda soudainement: « Senior pourrait-il envoyer quelques personnes supplémentaires pour se réincarner sur le Continent Astral Immortel? »
+Les yeux de Wang Lin s'illuminèrent. Il fixa la porte et demanda soudainement: « Senior pourrait-il envoyer quelques personnes supplémentaires pour se réincarner sur le Continent Xian Gang? »
 
 « Aucun problème. Je pensais qu'il y en aurait des centaines, voire des milliers. Puisqu'ils sont moins de vingt, ce n'est pas une charge trop lourde pour moi. Tant que tu n'en amènes pas trop, cela ne posera aucun souci. » Xuan Luo sourit.
 

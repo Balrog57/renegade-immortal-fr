@@ -10,7 +10,7 @@ Les yeux de Wang Lin s'illuminèrent. Il savait qu'avec son niveau de culture ac
 
 À cet instant, Qian Feng et Liu Mei froncèrent également les sourcils. De toute évidence, ils avaient eux aussi percé la situation.
 
-Le regard de Qian Feng s'anima et il lança soudain: « Ceng Niu, que diriez-vous que nous travaillions tous les trois ensemble pour bloquer l'énergie de l'épée de cet homme en armure dorée? »
+Le regard de Qian Feng s'anima et il lança soudain: « Zeng Niu, que diriez-vous que nous travaillions tous les trois ensemble pour bloquer l'énergie de l'épée de cet homme en armure dorée? »
 
 Une lueur de froideur passa dans les yeux de Wang Lin alors qu'il hochait la tête et répondait: « D'accord! »
 
@@ -60,7 +60,7 @@ Cette sensation ne lui était pas étrangère; c'était exactement la même pres
 
 Avant même que l'énergie de l'épée ne le percute, le sang commença déjà à s'écouler du coin de la bouche de Wang Lin, mais son regard ne montrait aucun signe de défaite.
 
-En remarquant l'état de Wang Lin, Qian Feng marqua une pause pour réfléchir. Devait-il saisir cette opportunité pour tuer Ceng Niu et s'emparer du drapeau des âmes d'un milliard, ou devait-il aider à résister à l'énergie de l'épée?
+En remarquant l'état de Wang Lin, Qian Feng marqua une pause pour réfléchir. Devait-il saisir cette opportunité pour tuer Zeng Niu et s'emparer du drapeau des âmes d'un milliard, ou devait-il aider à résister à l'énergie de l'épée?
 
 Cette idée traversa son esprit et il prit sa décision: il tuerait Wang Lin et prendrait le drapeau. Avec cet artefact, il disposerait de toute la puissance nécessaire pour repousser l'attaque de l'épée.
 

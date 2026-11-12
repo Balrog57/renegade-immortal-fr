@@ -18,7 +18,7 @@ Tous les autres convoitaient le corps ou les sorts de l'Empereur Céleste Qing L
 
 « Puisque tu voulais sceller l'ancien démon tout en ménageant de nombreux plans pour le jour où il s'emparerait de ton corps, je vais tout détruire. L'ancien démon n'est qu'un outil pour m'offrir un duel contre l'Empereur Céleste Qing Lin! » Personne ne pouvait deviner les pensées de Tian Yunzi... Si quelqu'un le pouvait, c'était Ling Tianhou.
 
-Cependant, au sein de la Grotte Xian Di, le premier éveil de l'Oiseau Vermillon de Wang Lin était un événement imprévu pour Tian Yunzi. Dès cet instant, il ressentit une certaine pression.
+Cependant, au sein de la Grotte Xian Di, le premier éveil de Suzaku de Wang Lin était un événement imprévu pour Tian Yunzi. Dès cet instant, il ressentit une certaine pression.
 
 Dans son plan initial, l'Ancien Démon Ta Jia suivrait ses conseils et utiliserait une illusion pour tromper et chasser tout le monde. Ainsi, tous ceux qui entreraient deviendraient les instruments destinés à briser le plan que Qing Lin avait instauré au premier étage.
 
@@ -44,7 +44,7 @@ La Concubine Impériale Fleur esquissa un sourire. Dès que le changement survin
 
 Un grondement de tonnerre résonna et l'impact puissant la força à reculer. Une intention meurtrière traversa les yeux de Ta Jia avant qu'il ne charge la Concubine Impériale Fleur.
 
-Quant à Wang Lin, dès l'arrivée de l'avatar de Tian Yunzi, il se retrouva dans une situation périlleuse, d'autant plus avec l'attaque déchaînée du Maître du Vide. Le glacier que Wang Wei avait placé ne tint pas; il s'effondra, et le Maître du Vide chargea Wang Lin comme un possédé.
+Quant à Wang Lin, dès l'arrivée de l'avatar de Tian Yunzi, il se retrouva dans une situation périlleuse, d'autant plus avec l'attaque déchaînée de Xu Kongzi. Le glacier que Wang Wei avait placé ne tint pas; il s'effondra, et Xu Kongzi chargea Wang Lin comme un possédé.
 
 Il y avait aussi l'avatar de Tian Yunzi. Celui vêtu de gris était le plus rapide, se rapprochant de Wang Lin avec une expression indifférente. Deux autres avatars de Tian Yunzi suivaient de près l'avatar gris.
 
@@ -54,7 +54,7 @@ C'est à cet instant précis que le ciel s'effondra soudainement et que la loi d
 
 L'effondrement du ciel fut semblable au bris d'un miroir. Les fragments éclatés furent frappés par l'impact des flammes et projetés vers le bas.
 
-Derrière ces débris, un cri de l'Oiseau Vermillon, faisant trembler les cieux, résonna à travers toute la Terre Yao Ling, émanant de l'esprit véritable de l'oiseau!
+Derrière ces débris, un cri de Suzaku, faisant trembler les cieux, résonna à travers toute la Terre Yao Ling, émanant de l'esprit véritable de l'oiseau!
 
 Cependant, face à la crise qui le frappait, Wang Lin n'eut pas le temps de lever les yeux. Mais en reculant, il sentit une loi familière apparaître autour de lui.
 
@@ -62,7 +62,7 @@ Cette loi était celle qu'il avait comprise en observant le lever du soleil pend
 
 Le soleil de la mer fait naître la Nuit Brisée!
 
-À ce moment, bien que confronté à l'attaque du Maître du Vide et de trois avatars de Tian Yunzi, Wang Lin s'immobilisa sans hésiter en ressentant cette puissance. Ses yeux brillèrent de folie tandis qu'il levait les bras pour fixer les quatre assaillants. La loi qui venait d'apparaître sembla alors être attirée par une force invisible et se précipita vers lui.
+À ce moment, bien que confronté à l'attaque de Xu Kongzi et de trois avatars de Tian Yunzi, Wang Lin s'immobilisa sans hésiter en ressentant cette puissance. Ses yeux brillèrent de folie tandis qu'il levait les bras pour fixer les quatre assaillants. La loi qui venait d'apparaître sembla alors être attirée par une force invisible et se précipita vers lui.
 
 L'esprit de Wang Lin plongea dans un état mystérieux et tout ce qui l'entourait disparut. Sa seule pensée fut cet instant primordial, celui où il avait compris la force capable de déchirer les ténèbres de la nuit!
 
@@ -70,7 +70,7 @@ Les pupilles de Tian Yunzi vêtu de gris, qui poursuivait Wang Lin, se contract�
 
 « C'est... » haleta Tian Yunzi en robe grise.
 
-Seul le Maître du Vide ignorait tout de la situation. Bien que son corps parût réel, il n'était que la projection de son âme originelle lors de son premier Fléau Céleste. Le sang comme les entrailles n'étaient que des constructions de son âme; lorsqu'il finirait par se désagréger, son âme originelle serait détruite avec lui.
+Seul Xu Kongzi ignorait tout de la situation. Bien que son corps parût réel, il n'était que la projection de son âme originelle lors de son premier Fléau Céleste. Le sang comme les entrailles n'étaient que des constructions de son âme; lorsqu'il finirait par se désagréger, son âme originelle serait détruite avec lui.
 
 Perdu dans sa folie, il chargea, bondissant sur Wang Lin avec la seule intention de le dévorer.
 
@@ -88,7 +88,7 @@ En regardant devant eux, on pouvait vaguement distinguer une mer vaste et sans l
 
 Le vent soufflait, portant l'odeur saline de l'océan. Tout cela rendait difficile la conviction qu'il ne s'agissait pas de la réalité!
 
-Le rugissement furieux du Maître du Vide résonna sur la mer silencieuse. Incapable de trouver Wang Lin, il sombra dans la démence et continua d'attaquer l'océan, provoquant de puissantes houles.
+Le rugissement furieux de Xu Kongzi résonna sur la mer silencieuse. Incapable de trouver Wang Lin, il sombra dans la démence et continua d'attaquer l'océan, provoquant de puissantes houles.
 
 Tian Yunzi en robe grise regarda devant lui, et une peur qu'il n'avait pas ressentie depuis des éons l'envahit. C'était un sentiment étranger, mais il ne pouvait l'ignorer. Il commença à entrevoir une vérité; mais plus il comprenait, plus il était terrifié, ses paupières tremblant de manière incontrôlable.
 
@@ -100,7 +100,7 @@ La lueur rouge à l'horizon devint plus éclatante encore, et ce qui apparut dev
 
 Le soleil était d'un rouge sanglant, surplombant des vagues tumultueuses. À cet instant, presque tous eurent l'illusion que leurs corps se dissipaient pour devenir le ciel nocturne infini.
 
-Même le fou du Maître du Vide fut surpris et s'éveilla brusquement de sa confusion. Cependant, ses yeux furent bientôt remplis d'une horreur indicible.
+Même le fou de Xu Kongzi fut surpris et s'éveilla brusquement de sa confusion. Cependant, ses yeux furent bientôt remplis d'une horreur indicible.
 
 « La... Loi d'origine!!! »
 

@@ -18,7 +18,7 @@ Les cultivateurs sont aussi des êtres humains... Ils possèdent eux aussi des �
 
 Voyant que Wang Lin fixait l'horizon sans lui accorder la moindre attention, le fou cessa de hurler sur lui. Au lieu de cela, il commença à graviter autour de Wang Lin tout en rugissant. Il semblait déterminé à ne pas abandonner tant que Wang Lin ne l'aurait pas écouté.
 
-Wang Lin avançait silencieusement. Il se rapprochait de plus en plus de la planète Suzaku. Même les yeux fermés, il pouvait localiser la planète Suzaku dans le Vide Brillant. Cela était peut-être dû à ses pouvoirs divins, mais surtout, quelque chose là-bas faisait frémir son âme de tristesse.
+Wang Lin avançait silencieusement. Il se rapprochait de plus en plus de la planète Suzaku. Même les yeux fermés, il pouvait localiser la planète Suzaku dans le Kun Xu. Cela était peut-être dû à ses pouvoirs divins, mais surtout, quelque chose là-bas faisait frémir son âme de tristesse.
 
 Le bavardage du fou devint plus intense encore et ne s'interrompit jamais. Sans paraître fatigué, il continuait de tourner autour de Wang Lin en hurlant:
 
@@ -68,7 +68,7 @@ Alors qu'ils progressaient, plusieurs rayons de lumière volèrent vers la plan�
 
 Lorsque les quatre rayons de lumière approchèrent de la barrière, le vieillard dit d'un ton solennel: « Voici la planète Suzaku, la patrie du Seigneur du Royaume Scellé! »
 
-« N'oubliez pas de ne causer aucun trouble une fois entrés sur la planète Suzaku. C'est une terre sainte du Vide Brillant, et même de l'Intérieur! De nombreux vieux monstres vivent ici pour protéger la planète au nom du Seigneur du Royaume Scellé! » Le vieillard se tourna vers les trois jeunes cultivateurs qui derrière lui hochèrent rapidement la tête. Le respect sur leurs visages s'accentua tandis qu'ils contemplaient la planète Suzaku.
+« N'oubliez pas de ne causer aucun trouble une fois entrés sur la planète Suzaku. C'est une terre sainte de Kun Xu, et même de l'Intérieur! De nombreux vieux monstres vivent ici pour protéger la planète au nom du Seigneur du Royaume Scellé! » Le vieillard se tourna vers les trois jeunes cultivateurs qui derrière lui hochèrent rapidement la tête. Le respect sur leurs visages s'accentua tandis qu'ils contemplaient la planète Suzaku.
 
 Wang Lin arriva lentement à l'extérieur de la formation. Il se trouvait à plusieurs milliers de pieds des quatre cultivateurs. En regardant la planète, son émotion fut immense.
 
@@ -84,7 +84,7 @@ Le fou rugit avec enthousiasme: « Pourquoi regarder en arrière? Ce Roi ne vous
 
 Après ses paroles, mis à part le vieillard, l'expression des deux jeunes hommes changea. Ils fixèrent froidement le fou et s'apprêtèrent à parler. Le vieillard fronça les sourcils et leva la main pour stopper ses disciples. Il ne regardait pas le fou, mais Wang Lin, qui contemplait toujours la planète Suzaku avec nostalgie.
 
-« Cher compagnon de culture, je présume que vous êtes également venu en pèlerinage sur la terre natale du Seigneur du Royaume Scellé. Ce lieu est une terre sainte. J'espère que vous saurez maîtriser votre compagnon afin d'éviter tout incident. » Une fois son allocution terminée, le vieillard détourna le regard de Wang Lin. Il agita ses manches et, avec ses trois disciples, s'avança vers la formation.
+« Cher Daoïste, je présume que vous êtes également venu en pèlerinage sur la terre natale du Seigneur du Royaume Scellé. Ce lieu est une terre sainte. J'espère que vous saurez maîtriser votre compagnon afin d'éviter tout incident. » Une fois son allocution terminée, le vieillard détourna le regard de Wang Lin. Il agita ses manches et, avec ses trois disciples, s'avança vers la formation.
 
 Les trois disciples lancèrent des regards venimeux au fou. Les deux jeunes hommes, en particulier, étaient furieux.
 
@@ -96,7 +96,7 @@ Puisqu'il rentrait chez lui, il allait passer par la porte principale. Quelle lo
 
 Le vieillard menant ses trois disciples entra dans la formation. À cet instant, deux silhouettes apparurent. C'étaient des vieillards, mais des fantômes. Leurs yeux brillaient comme des éclairs alors qu'ils observaient calmement tous ceux qui pénétraient dans la formation.
 
-« Ce vieil homme est Dao Dezi, de la planète Ming Mei sur la Rivière Invoquée. J'accompagne mes trois disciples en pèlerinage. J'espère que les gardiens sacrés nous laisseront entrer. » Le vieillard s'exprima avec sérieux en joignant les mains devant les deux spectres.
+« Ce vieil homme est Dao Dezi, de la planète Ming Mei sur Zhao He. J'accompagne mes trois disciples en pèlerinage. J'espère que les gardiens sacrés nous laisseront entrer. » Le vieillard s'exprima avec sérieux en joignant les mains devant les deux spectres.
 
 L'une des figures fantomatiques répondit: « La planète Suzaku est ouverte à tous les cultivateurs du Royaume Intérieur, connaissez-vous les règles? »
 

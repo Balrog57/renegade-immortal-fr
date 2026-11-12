@@ -12,19 +12,19 @@ Du Qing aperçut Wang Lin. À l'intérieur des flammes, Wang Lin sentit égaleme
 
 Une aura infiniment proche de la Tribulation du Vide émanait du corps de Du Qing. Surtout au moment où son corps se transformait en bois, Wang Lin percevait cette présence avec une clarté accrue.
 
-L'expression de Wang Lin resta calme. Il savait depuis longtemps que Du Qing le poursuivait, et qu'il finirait par être rattrapé. À cet instant, il ne paniqua pas et n'accorda même aucune attention à Du Qing. Les seize dragons de feu et l'Oiseau Vermillon chargèrent vers le dragon de feu formé par la veine de feu terrestre.
+L'expression de Wang Lin resta calme. Il savait depuis longtemps que Du Qing le poursuivait, et qu'il finirait par être rattrapé. À cet instant, il ne paniqua pas et n'accorda même aucune attention à Du Qing. Les seize dragons de feu et Suzaku chargèrent vers le dragon de feu formé par la veine de feu terrestre.
 
 Les deux forces n'étaient plus très éloignées. Alors qu'elles convergeaient, elles entrèrent immédiatement en collision. Bien que Du Qing ait voulu charger, il eut un instant de retard.
 
-Les seize dragons de feu furent les premiers à entrer en contact avec l'âme de la veine terrestre, provoquant un grondement tonitruant qui fit vibrer la terre. Au moment du choc, Wang Lin, debout sur la tête de l'Oiseau Vermillon, forma un sceau de la main droite et la pointa vers l'avant.
+Les seize dragons de feu furent les premiers à entrer en contact avec l'âme de la veine terrestre, provoquant un grondement tonitruant qui fit vibrer la terre. Au moment du choc, Wang Lin, debout sur la tête de Suzaku, forma un sceau de la main droite et la pointa vers l'avant.
 
 Les seize dragons de feu rugirent et enveloppèrent la veine de feu terrestre tels des chaînes, la ligotant. L'âme de la veine laissa échapper un cri assourdissant.
 
-Simultanément, l'Oiseau Vermillon sous Wang Lin chargea et fusionna avec l'âme de la veine de feu terrestre. Il commença alors son processus effréné de dévoration et de fusion.
+Simultanément, Suzaku sous Wang Lin chargea et fusionna avec l'âme de la veine de feu terrestre. Il commença alors son processus effréné de dévoration et de fusion.
 
 Tout cela se produisit en un instant. Du point de vue de Du Qing, tout s'était déroulé sans accroc.
 
-Le corps de l'âme de la veine de feu terrestre se tordit dans un rugissement continu. Sa fureur fit place à une expression de douleur. On pouvait vaguement distinguer l'Oiseau Vermillon à l'intérieur, avec Wang Lin aux cheveux blancs debout entre les cornes de sa tête.
+Le corps de l'âme de la veine de feu terrestre se tordit dans un rugissement continu. Sa fureur fit place à une expression de douleur. On pouvait vaguement distinguer Suzaku à l'intérieur, avec Wang Lin aux cheveux blancs debout entre les cornes de sa tête.
 
 Wang Lin leva la main gauche et contrôla les seize chaînes formées par les dragons de feu, comme s'il tenait véritablement des entraves.
 
@@ -38,7 +38,7 @@ Alors que Du Qing approchait, Wang Lin leva soudainement les yeux. Le dragon de 
 
 Au même instant, une source inépuisable de flammes jaillit des seize chaînes dans la main gauche de Wang Lin pour pénétrer son corps. Le cri d'un Oiseau Vermillon retentit depuis le dragon de feu sous ses pieds.
 
-Lorsque l'Oiseau Vermillon poussa ce cri, une puissante vague de feu terrestre jaillit du dragon et se précipita vers Wang Lin. À cet instant, la puissance du feu qu'il maîtrisait était capable de briser le ciel!
+Lorsque Suzaku poussa ce cri, une puissante vague de feu terrestre jaillit du dragon et se précipita vers Wang Lin. À cet instant, la puissance du feu qu'il maîtrisait était capable de briser le ciel!
 
 Wang Lin leva la main droite et l'abattit violemment dans le vide devant lui!
 
@@ -64,7 +64,7 @@ Il vit Wang Lin imperturbable, debout sur le dragon de feu. Cependant, le corps 
 
 C'était parce que Wang Lin avait transféré toute la force de l'attaque de Du Qing sur le dragon de feu. Il avait emprunté la puissance de son adversaire pour blesser gravement le dragon qu'il ne parvenait toujours pas à dévorer.
 
-Le dragon poussa un cri misérable et recula. Son corps continuait de se désagréger, et à chaque effondrement, l'image de l'Oiseau Vermillon à l'intérieur devenait plus nette.
+Le dragon poussa un cri misérable et recula. Son corps continuait de se désagréger, et à chaque effondrement, l'image de Suzaku à l'intérieur devenait plus nette.
 
 L'expression de Du Qing changea, ses yeux trahissant un regard sombre. Il avait compris que ce cultivateur aux cheveux blancs utilisait sa propre puissance pour dévorer ce feu terrestre.
 
@@ -84,7 +84,7 @@ Du Qing était un homme prudent, et chaque événement rencontré jusqu'ici l'av
 
 « Qui êtes-vous? Pourquoi avez-vous détruit la Secte Cang Long? Si vous ne me donnez pas d'explication, vous resterez ici aujourd'hui! » lança Du Qing avec une froideur glaciale.
 
-« Votre disciple de la Secte Cang Long voulait me transformer en marionnette. Je me suis contenté de détruire votre secte sans tuer une seule personne. C'est déjà faire preuve de clémence. » Les seize dragons de feu contrôlés par la main gauche de Wang Lin, qui maintenaient le grand dragon, tremblèrent. L'âme du feu terrestre poussa un rugissement alors que son corps se désagrégeait davantage. L'ombre de l'Oiseau Vermillon commençait à fusionner avec le dragon, la dévoration étant sur le point de s'achever.
+« Votre disciple de la Secte Cang Long voulait me transformer en marionnette. Je me suis contenté de détruire votre secte sans tuer une seule personne. C'est déjà faire preuve de clémence. » Les seize dragons de feu contrôlés par la main gauche de Wang Lin, qui maintenaient le grand dragon, tremblèrent. L'âme du feu terrestre poussa un rugissement alors que son corps se désagrégeait davantage. L'ombre de Suzaku commençait à fusionner avec le dragon, la dévoration étant sur le point de s'achever.
 
 Voyant cela, le corps de Du Qing commença à se déformer à nouveau; il était sur le point de redevenir un être de bois. Le rugissement de cette veine de feu affecta l'essence de feu en lui, la rendant instable.
 

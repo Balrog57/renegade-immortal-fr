@@ -8,7 +8,7 @@ slug: incapable-dencaisser-un-seul-coup
 ---
 Wang Lin utilisait son Dao du Vrai et du Faux pour créer une illusion de Tribulation Céleste. Les innombrables silhouettes au sein de la brume laissaient échapper des rugissements de lutte, toutes dirigées vers la faille surplombant Wang Lin.
 
-Un grondement de tonnerre résonna à travers tout le Vide Brillant. La faille, frappée par la Tribulation Céleste de Wang Lin, trembla violemment. Les cheveux blancs de Wang Lin flottaient alors qu'il fixait froidement la brèche et, d'un ample revers de manche, s'avançait calmement vers elle.
+Un grondement de tonnerre résonna à travers tout le Kun Xu. La faille, frappée par la Tribulation Céleste de Wang Lin, trembla violemment. Les cheveux blancs de Wang Lin flottaient alors qu'il fixait froidement la brèche et, d'un ample revers de manche, s'avançait calmement vers elle.
 
 Son pas n'était pas rapide, mais chaque enjambée provoquait un fracas tonitruant qui intensifiait les grondements provenant de la faille.
 
@@ -56,7 +56,7 @@ Cette énergie céleste n'était pas l'aura de jade céleste contenue dans les q
 
 À cet instant, il la sentit immédiatement, ce qui fit se rétracter ses pupilles. Il fixa les 3 000 sorts qui convergeaient vers lui, et une intention meurtrière embrasa son regard.
 
-« J'avais déjà soupçonné que la Tribulation Céleste provenait du Royaume Céleste Antique. Maintenant que je ressens cette pure énergie céleste, il est clair que l'ancien royaume céleste possède un lien profond avec le Continent Astral Immortel! »
+« J'avais déjà soupçonné que la Tribulation Céleste provenait du Royaume Céleste Antique. Maintenant que je ressens cette pure énergie céleste, il est clair que l'ancien royaume céleste possède un lien profond avec le Continent Xian Gang! »
 
 Des éclats de lumière dorée et douce jaillirent des 3 000 sorts alors qu'ils convergeaient vers Wang Lin pour s'abattre sur lui.
 

@@ -104,7 +104,7 @@ Bien que le paon fût toujours magnifique, ses couleurs s'étaient ternies. Le v
 
 Alors qu'il rejetait sa lance, Wang Lin recula promptement et tendit la main; soudain, une bannière de dix mètres de haut apparut dans sa paume. Il ne voulait plus perdre de temps; il comptait tuer cette femme avec ce drapeau d'âme pour entrer dans la section intérieure du Tombeau Zhu Que.
 
-À l'instant où la bannière se manifesta, la froideur dans le regard de Liu Mei s'intensifia. Elle fixa le drapeau d'âme et murmura: « Je ne m'attendais pas à ce que le Senior Du Tian te remette réellement le drapeau d'âme du milliard d'âmes. Cependant, Wang Lin, je savais déjà que tu la possédais, sans quoi je n'aurais pas choisi de t'attendre sur cet autel. »
+À l'instant où la bannière se manifesta, la froideur dans le regard de Liu Mei s'intensifia. Elle fixa le drapeau d'âme et murmura: « Je ne m'attendais pas à ce que le Senior Dun Tian te remette réellement le drapeau d'âme du milliard d'âmes. Cependant, Wang Lin, je savais déjà que tu la possédais, sans quoi je n'aurais pas choisi de t'attendre sur cet autel. »
 
 « J'ai été la deuxième personne à entrer dans le Tombeau Zhu Que, et voici le champ de bataille que j'ai choisi pour nous deux. Si tu décides d'utiliser le drapeau d'âme, je détruirai l'autel. Il faudra plusieurs jours pour qu'il se reforme, ce qui te retardera considérablement. »
 

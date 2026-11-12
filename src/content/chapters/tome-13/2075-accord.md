@@ -30,13 +30,13 @@ C'étaient Xu Liguo, Liu Jinbiao et le seul disciple à avoir suivi Wang Lin de 
 
 Treize n'était pas un être ordinaire. En voyant la brume rouge, il fut un instant déconcerté, mais se reprit rapidement. Il s'inclina devant Wang Lin et resta silencieusement à ses côtés.
 
-Pour lui, que ce soit sur le Continent Astral Immortel ou dans le monde des grottes, peu importait, tant qu'il pouvait rester auprès de son maître.
+Pour lui, que ce soit sur le Continent Xian Gang ou dans le monde des grottes, peu importait, tant qu'il pouvait rester auprès de son maître.
 
 À l'inverse, Liu Jinbiao et Xu Liguo affichaient des expressions étranges. Après avoir inspecté les lieux, ils se lancèrent des regards malicieux. Wang Lin pouvait voir que les deux se sentaient extrêmement fiers et hautains.
 
 C'était comme le sentiment d'un homme rentrant dans son petit village natal après avoir voyagé dans de grandes villes.
 
-Il était clairement écrit sur leurs visages: « Vous savez quoi, je suis allé sur le Continent Astral Immortel! Cet endroit, il est immense. »
+Il était clairement écrit sur leurs visages: « Vous savez quoi, je suis allé sur le Continent Xian Gang! Cet endroit, il est immense. »
 
 Wang Lin leva les yeux vers le ciel et dit: « Nous sommes de retour à la maison, faites ce que vous voulez. Je vais aller saluer de vieux amis. » Puis, d'un seul pas, il s'élança dans les airs.
 
@@ -78,7 +78,7 @@ Dans cette averse, la silhouette de Wang Lin paraissait si singulière qu'elle l
 
 Wang Lin regarda la belle femme et esquissa un sourire tendre. Il soupira en s'approchant d'elle, et ensemble, ils contemplèrent le ciel rouge sang.
 
-Wang Lin dit doucement: « Après avoir quitté le monde des grottes, alors que j'étais sur le Continent Astral Immortel, il y avait quelque chose que je voulais te dire. Maintenant que je suis de retour, il y a quelqu'un pour m'écouter. »
+Wang Lin dit doucement: « Après avoir quitté le monde des grottes, alors que j'étais sur le Continent Xian Gang, il y avait quelque chose que je voulais te dire. Maintenant que je suis de retour, il y a quelqu'un pour m'écouter. »
 
 Mu Bingmei hocha la tête. Son cœur battait la chamade. Elle peinait encore à réaliser et ne savait quels mots employer.
 

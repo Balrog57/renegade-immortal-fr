@@ -56,15 +56,15 @@ Wang Lin répondit calmement: « Je veux la Secte Yun Tian! »
 
 Chen Bailiang laissa échapper un rire hystérique. Il dit d'un ton moqueur: « Vous êtes trop arrogant. Même si nous cinq ne pouvons pas résister à votre trésor d'éclair rouge, si nous faisons équipe, nous pourrons encore vous blesser sérieusement... »
 
-Avant qu'il n'ait pu finir, Wang Lin leva la main et une ligne rouge apparut sur sa paume. À l'instant où cette lumière rouge jaillit, le ciel changea soudainement et des nuages rouges semblèrent se rassembler. Cette scène ressemblait étrangement à la foudre de la rétribution divine dans la Mer Xiu Mo.
+Avant qu'il n'ait pu finir, Wang Lin leva la main et une ligne rouge apparut sur sa paume. À l'instant où cette lumière rouge jaillit, le ciel changea soudainement et des nuages rouges semblèrent se rassembler. Cette scène ressemblait étrangement à la foudre de la Tribulation Céleste dans la Mer Xiu Mo.
 
 Chen Bailiang s'interrompit immédiatement. Il fixa la ligne rouge en inspirant une bouffée d'air froid. À cet instant, les quatre cultivateurs de l'Âme Naissante derrière lui s'avancèrent et fixèrent la lumière rouge. L'un des ancêtres, un vieil homme aux allures féeriques, s'exclama soudain: « Ceci... ceci est cela... » Puis, il leva les yeux vers les nuages rouges dans le ciel, le visage horrifié.
 
-L'expression de Wang Lin restait calme alors qu'il disait lentement: « C'est exact. Même avec mon niveau de culture, si vous cinq m'attaquez de front, même si je parvenais à en tuer quelques-uns, je serais gravement blessé. Mais si j'utilise ce trésor, le résultat sera différent. Il s'agit de la foudre de la rétribution divine. Je suis curieux de savoir si vous cinq réunis pouvez repousser cette foudre. »
+L'expression de Wang Lin restait calme alors qu'il disait lentement: « C'est exact. Même avec mon niveau de culture, si vous cinq m'attaquez de front, même si je parvenais à en tuer quelques-uns, je serais gravement blessé. Mais si j'utilise ce trésor, le résultat sera différent. Il s'agit de la foudre de la Tribulation Céleste. Je suis curieux de savoir si vous cinq réunis pouvez repousser cette foudre. »
 
-Wang Lin avait enfin pu expulser ce fragment de foudre de rétribution divine de son corps lorsqu'il atteignit le stade de l'Âme Naissante. Bien qu'il ne puisse pas la raffiner en un trésor, il pouvait l'utiliser comme un atout ultime pour invoquer la foudre divine.
+Wang Lin avait enfin pu expulser ce fragment de foudre de Tribulation Céleste de son corps lorsqu'il atteignit le stade de l'Âme Naissante. Bien qu'il ne puisse pas la raffiner en un trésor, il pouvait l'utiliser comme un atout ultime pour invoquer la foudre divine.
 
-Les cinq hommes tombèrent soudainement dans le silence. Ils ne doutaient pas de sa réalité, car la pression qu'elle dégageait et les nuages rouges qui s'accumulaient témoignaient du pouvoir de la rétribution divine.
+Les cinq hommes tombèrent soudainement dans le silence. Ils ne doutaient pas de sa réalité, car la pression qu'elle dégageait et les nuages rouges qui s'accumulaient témoignaient du pouvoir de la Tribulation Céleste.
 
 Le vieil homme regarda la ligne rouge avec effroi et dit lentement: « Nous devons d'abord discuter de cette affaire. Veuillez patienter. »
 
@@ -74,7 +74,7 @@ Les cinq hommes levèrent les yeux, le visage paniqué.
 
 Alors qu'il lançait le fil rouge, le corps de Wang Lin s'élança, son Royaume Ji jaillissant à nouveau, suivi de près par le drapeau de restriction.
 
-L'expression des cinq cultivateurs de l'Âme Naissante changea brusquement. Ils tentèrent de reculer, mais ils furent d'un pas trop lents. Le Royaume Ji s'abattit sur Chen Bailiang et, cette fois, il n'eut pas le temps de résister. L'homme qui était pourtant toujours sur ses gardes laissa une faille dans sa défense lorsque Wang Lin lança la foudre de rétribution divine.
+L'expression des cinq cultivateurs de l'Âme Naissante changea brusquement. Ils tentèrent de reculer, mais ils furent d'un pas trop lents. Le Royaume Ji s'abattit sur Chen Bailiang et, cette fois, il n'eut pas le temps de résister. L'homme qui était pourtant toujours sur ses gardes laissa une faille dans sa défense lorsque Wang Lin lança la foudre de Tribulation Céleste.
 
 Le visage de Chen Bailiang devint livide et son regard se voila, mais en tant que cultivateur de l'Âme Naissante au stade avancé, il parvint, par la seule force de sa culture, à arrêter la destruction du Royaume Ji dans sa mer de conscience. Son corps s'effondra soudainement au sol et il commença à cultiver frénétiquement. Il ne pouvait plus se soucier de rien d'autre; s'il avait été plus lent, il serait mort. Même maintenant, il n'était pas sûr de pouvoir stopper la destruction de l'éclair rouge dans son âme.
 
@@ -150,7 +150,7 @@ Rien ne se passa comme prévu : la culture de l'avatar ne put entraîner le corp
 
 Pourtant, il avait sous-estimé la difficulté de briser le goulot d'étranglement du Royaume Ji. Combien de génies avaient été piégés par les limites du Royaume Ji, incapables de progresser?
 
-On pourrait dire qu'un dépassement au sein du Royaume Ji est une tâche impossible, car le Royaume Ji n'est en réalité qu'une autre forme de rétribution divine. Comment un simple mortel pourrait-il affecter la volonté des cieux? Même les cultivateurs n'en ont pas le pouvoir; ce pouvoir appartient aux cieux.
+On pourrait dire qu'un dépassement au sein du Royaume Ji est une tâche impossible, car le Royaume Ji n'est en réalité qu'une autre forme de Tribulation Céleste. Comment un simple mortel pourrait-il affecter la volonté des cieux? Même les cultivateurs n'en ont pas le pouvoir; ce pouvoir appartient aux cieux.
 
 Lors des dernières étapes du processus de fusion, Wang Lin ne parvint pas à faire atteindre le stade de l'Âme Naissante à son corps principal. Dans un geste de désespoir, il força son avatar à se contracter jusqu'à ce qu'il s'installe dans le dantian de son corps principal en tant que substitut à l'Âme Naissante.
 
@@ -270,7 +270,7 @@ Par ailleurs, comme il avait donné le drapeau de restriction à Li Muwan, il d�
 
 Cependant, fabriquer un drapeau de propriété unique demande énormément de temps, notamment pour concevoir les différentes restrictions à y inscrire.
 
-Après plusieurs mois, le drapeau était presque achevé. Wang Lin craignait toutefois qu'il n'attire la rétribution divine une fois terminé; il hésita donc à placer la dernière restriction. En conséquence, il ne pouvait déployer toute sa puissance, mais comme c'était un drapeau de propriété unique, bien qu'il n'atteignît pas le premier niveau, son pouvoir d'attaque n'était que légèrement inférieur à celui de son précédent drapeau.
+Après plusieurs mois, le drapeau était presque achevé. Wang Lin craignait toutefois qu'il n'attire la Tribulation Céleste une fois terminé; il hésita donc à placer la dernière restriction. En conséquence, il ne pouvait déployer toute sa puissance, mais comme c'était un drapeau de propriété unique, bien qu'il n'atteignît pas le premier niveau, son pouvoir d'attaque n'était que légèrement inférieur à celui de son précédent drapeau.
 
 Par une matinée précoce, Wang Lin marcha sur le vent, tenant les pilules que Li Muwan lui avait remises après avoir inspecté les stocks de la secte, et quitta la Secte Yun Tian. Au sommet du hall principal se tenait une femme. Son regard était empreint de tendresse alors qu'elle regardait la silhouette de Wang Lin disparaître.
 

@@ -1,20 +1,20 @@
 ---
 n: 1785
-title: Des ailes de désir pour atteindre le Continent Astral Immortel
+title: Des ailes de désir pour atteindre le Continent Xian Gang
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1785 - Burning Wings of Desire to Reach the Immortal Astral Continent
 slug: des-ailes-de-desir-pour-atteindre-le-continent-astral-immortel
 ---
-Une brèche s'ouvrit dans la porte et l'aura du Continent Astral Immortel s'y engouffra. Le monde s'effondra derrière Wang Lin, tandis que Vieux Fantôme Zhan faisait son apparition.
+Une brèche s'ouvrit dans la porte et l'aura du Continent Xian Gang s'y engouffra. Le monde s'effondra derrière Wang Lin, tandis que Vieux Fantôme Zhan faisait son apparition.
 
 L'ombre portant une cape laissa paraître une lueur spectrale et monstrueuse dans ses yeux en fixant Wang Lin. Pour une raison inconnue, un sentiment de vie ou de mort avait envahi son cœur à l'instant même où la porte s'était ouverte.
 
-Wang Lin se tenait près de la porte et tourna la tête pour observer Vieux Fantôme Zhan au loin. L'aura du Continent Astral Immortel affluait par l'entrebâillement, faisant vibrer le lignage de son Dao Antique et accélérant son flux sanguin.
+Wang Lin se tenait près de la porte et tourna la tête pour observer Vieux Fantôme Zhan au loin. L'aura du Continent Xian Gang affluait par l'entrebâillement, faisant vibrer le lignage de son Dao Antique et accélérant son flux sanguin.
 
 Il semblait absorber cette aura.
 
-Le sentiment de danger dans le cœur de Vieux Fantôme Zhan s'intensifia. Sans chercher à approcher, il commença à parler depuis la distance: « Même si tu ouvres la porte, tu n'oseras pas partir! Bien que je ne possède pas les souvenirs de la troisième âme, une certaine intuition demeure au sein des âmes. Il existe une barrière entre le monde des grottes et le Continent Astral Immortel. Seuls ceux qui possèdent le lignage du Continent Astral Immortel peuvent passer! »
+Le sentiment de danger dans le cœur de Vieux Fantôme Zhan s'intensifia. Sans chercher à approcher, il commença à parler depuis la distance: « Même si tu ouvres la porte, tu n'oseras pas partir! Bien que je ne possède pas les souvenirs de la troisième âme, une certaine intuition demeure au sein des âmes. Il existe une barrière entre le monde des grottes et le Continent Xian Gang. Seuls ceux qui possèdent le lignage du Continent Xian Gang peuvent passer! »
 
 « Même si l'appel du sang te permettait de partir, si tu ne remets pas la troisième âme, je tuerai tous ceux qui te sont chers dès que tu auras quitté cette grotte! »
 
@@ -26,15 +26,15 @@ Tout en réfléchissant silencieusement, Wang Lin leva la main droite et deux lu
 
 Xie Qing était la réincarnation de la troisième âme et, au prix de sa vie, il avait formé trois sceaux. L'un était destiné à sa propre âme, tandis que les deux autres avaient été confiés à Wang Lin. C'était l'ultime geste qu'il avait accompli pour son maître avant de mourir.
 
-Une fois fusionnés avec l'aura du Continent Astral Immortel, ces deux sceaux auraient le pouvoir de sceller les deux autres âmes!
+Une fois fusionnés avec l'aura du Continent Xian Gang, ces deux sceaux auraient le pouvoir de sceller les deux autres âmes!
 
-Dès l'apparition des deux sceaux, la masse d'aura du Continent Astral Immortel qui s'engouffrait par la brèche se précipita vers la main droite de Wang Lin. L'aura fusionna rapidement avec le sceau.
+Dès l'apparition des deux sceaux, la masse d'aura du Continent Xian Gang qui s'engouffrait par la brèche se précipita vers la main droite de Wang Lin. L'aura fusionna rapidement avec le sceau.
 
 La lumière spectrale s'intensifia soudainement, comme si deux soleils fantomatiques étaient apparus dans la paume de Wang Lin. Le corps de ce dernier devint une silhouette floue au milieu de cette clarté, et même la porte derrière lui finit par être enveloppée. De loin, l'ouverture paraissait brumeuse.
 
-Cependant, la puissance du sceau n'était pas encore complète; il continuait d'absorber l'aura du Continent Astral Immortel. La porte n'étant ouverte que d'un mince filet, le taux d'absorption était lent.
+Cependant, la puissance du sceau n'était pas encore complète; il continuait d'absorber l'aura du Continent Xian Gang. La porte n'étant ouverte que d'un mince filet, le taux d'absorption était lent.
 
-Lorsque Vieux Fantôme Zhan ressentit la force de scellement, ses pupilles se rétractèrent. Il comprit enfin pourquoi il éprouvait cette menace de mort imminente. Cela provenait de la puissance de scellement qui s'était manifestée dès que le sceau eut commencé à absorber l'aura du Continent Astral Immortel!
+Lorsque Vieux Fantôme Zhan ressentit la force de scellement, ses pupilles se rétractèrent. Il comprit enfin pourquoi il éprouvait cette menace de mort imminente. Cela provenait de la puissance de scellement qui s'était manifestée dès que le sceau eut commencé à absorber l'aura du Continent Xian Gang!
 
 Un éclat de froideur traversa le regard de Vieux Fantôme Zhan et il chargea Wang Lin sans hésiter. Il savait qu'il ne pouvait plus reculer, malgré l'intensité du danger; sinon, les conséquences seraient inimaginables!
 
@@ -42,7 +42,7 @@ Sa vitesse était fulgurante et il fut instantanément à moins de cent pieds de
 
 Peu après, l'âme à la cape ouvrit les bras. Le manteau de son corps s'étendit telle une vague et vola vers Wang Lin.
 
-L'expression de Wang Lin demeurait calme alors que les deux sceaux dans sa main continuaient d'absorber l'aura du Continent Astral Immortel. Alors que Vieux Fantôme Zhan et les deux âmes aux Sept Couleurs approchaient, il leva la main gauche et frappa vers l'avant.
+L'expression de Wang Lin demeurait calme alors que les deux sceaux dans sa main continuaient d'absorber l'aura du Continent Xian Gang. Alors que Vieux Fantôme Zhan et les deux âmes aux Sept Couleurs approchaient, il leva la main gauche et frappa vers l'avant.
 
 À cet instant, les huit corps véritables de son Essence apparurent tous et projetèrent leurs mains en avant.
 
@@ -68,9 +68,9 @@ La porte gronda et, simultanément, les huit corps véritables reculèrent égal
 
 Sous les échos des grondements, la porte fut poussée plus loin encore — passant d'une simple fissure à une ouverture atteignant près de 30 %!
 
-À cet instant, nul besoin de pousser la porte. Tandis que la puissance du Continent Astral Immortel s'engouffrait, l'ouverture s'élargissait lentement d'elle-même.
+À cet instant, nul besoin de pousser la porte. Tandis que la puissance du Continent Xian Gang s'engouffrait, l'ouverture s'élargissait lentement d'elle-même.
 
-Parallèlement, une quantité encore plus grande d'aura du Continent Astral Immortel jaillit pour fusionner avec les deux sceaux dans la main de Wang Lin. Alors que le visage de Vieux Fantôme Zhan se décomposait, Wang Lin leva sa main droite.
+Parallèlement, une quantité encore plus grande d'aura du Continent Xian Gang jaillit pour fusionner avec les deux sceaux dans la main de Wang Lin. Alors que le visage de Vieux Fantôme Zhan se décomposait, Wang Lin leva sa main droite.
 
 Les yeux de Vieux Fantôme Zhan étaient pétris de terreur. Sans avoir le temps d'hésiter, il tenta de fuir précipitamment. Wang Lin observa le sceau dans sa main; il y aperçut fugitivement Xie Qing, et une profonde tristesse envahit son regard.
 
@@ -106,6 +106,6 @@ Il regarda autour de lui et finit par poser ses yeux sur Wang Lin, puis sur la p
 
 Pourtant, le reste de son corps se transforma en un rayon de lumière. Ses yeux brillèrent comme s'il venait d'épuiser ses dernières forces vitales pour charger vers la porte entrouverte.
 
-Même en mourant, il devait voir ce Continent Astral Immortel qu'il avait tant désiré toute sa vie...
+Même en mourant, il devait voir ce Continent Xian Gang qu'il avait tant désiré toute sa vie...
 
 Wang Lin ne l'arrêta pas. Il regarda la moitié du corps de Vieux Fantôme Zhan se précipiter vers l'ouverture et s'évanouir en fumée au-delà de la porte.

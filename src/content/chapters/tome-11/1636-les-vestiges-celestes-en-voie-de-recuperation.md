@@ -22,7 +22,7 @@ Il se souvint du Royaume aux Sept Couleurs, dans le Vide Brillant, où il avait 
 
 La froideur dans les yeux de Wang Lin devint plus intense, jusqu'à devenir monstrueuse. Finalement, il leva les yeux vers le ciel et son regard se mua en une intention meurtrière.
 
-« Wan Er n'est qu'une femme ordinaire, son destin n'aurait donc pas dû attirer l'attention, et pourtant on le lui a pris. Peu importe qui est le coupable, je, Wang Lin, jure ici, dans le Royaume Céleste Antique, que je le récupérerai. Si quelqu'un ose altérer son destin, fût-ce le Continent Astral Immortel, je me vengerai et laverai le Continent Astral Immortel de son sang, comme je l'ai fait pour la famille Teng!!! »
+« Wan Er n'est qu'une femme ordinaire, son destin n'aurait donc pas dû attirer l'attention, et pourtant on le lui a pris. Peu importe qui est le coupable, je, Wang Lin, jure ici, dans le Royaume Céleste Antique, que je le récupérerai. Si quelqu'un ose altérer son destin, fût-ce le Continent Xian Gang, je me vengerai et laverai le Continent Xian Gang de son sang, comme je l'ai fait pour la famille Teng!!! »
 
 La limite ultime de Wang Lin était Wan Er. Apprendre que le destin de Wan Er avait été volé lui fit l'effet d'un poignard lui arrachant le cœur de la poitrine. Sous une telle douleur, Wang Lin aurait sombré dans la folie!
 

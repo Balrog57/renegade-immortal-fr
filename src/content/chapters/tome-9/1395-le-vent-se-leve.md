@@ -98,9 +98,9 @@ L'homme d'âge moyen tendit négligemment la main pour saisir la goutte de sang 
 
 « Ceci... ceci est... » Le calme de l'homme d'âge moyen vola en éclats, remplacé par le choc et l'incrédulité. Il rapprocha précipitamment la goutte de ses yeux et déploya son Sens Divin. Après l'avoir scrutée des centaines de fois, la stupeur dans son regard s'intensifia encore!
 
-« Le Sang de l'Oiseau Vermillon!! C'est du Sang de l'Oiseau Vermillon!! » L'homme d'âge moyen se leva brusquement et porta la goutte près de sa bouche. Après l'avoir léchée, son corps trembla de nouveau.
+« Le Sang de Suzaku!! C'est du Sang de Suzaku!! » L'homme d'âge moyen se leva brusquement et porta la goutte près de sa bouche. Après l'avoir léchée, son corps trembla de nouveau.
 
-« C'est exact, l'essence contenue dans ce sang ne peut être trompeuse, c'est bien le Sang de l'Oiseau Vermillon!! L'Oiseau Vermillon!! » L'homme d'âge moyen était transporté par l'excitation et tendit sa main gauche vers le vide.
+« C'est exact, l'essence contenue dans ce sang ne peut être trompeuse, c'est bien le Sang de Suzaku!! L'Oiseau Vermillon!! » L'homme d'âge moyen était transporté par l'excitation et tendit sa main gauche vers le vide.
 
 Le patriarche du Clan Huo Que s'apprêtait à quitter les profondeurs, le visage empreint de remords. Il poussa un soupir lorsqu'un grondement retentit soudain derrière lui. Il se retourna et ses pupilles se rétractèrent lorsqu'une gigantesque paume de feu le saisit.
 

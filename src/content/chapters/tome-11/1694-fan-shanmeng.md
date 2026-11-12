@@ -100,7 +100,7 @@ L'expression de Wang Lin resta imperturbable et il ne montra aucune fluctuation 
 
 Après avoir médité en silence un instant, Wang Lin demanda lentement: « Quel genre d'endroit est le Domaine Divin Immémorial? »
 
-« Une légende sur le Continent Astral Immortel raconte que le Domaine Divin Immémorial s'est ouvert neuf fois. À chaque ouverture, celui qui s'emparera de la fortune ultime deviendra un Grand Empyréen... Jusqu'à présent, il s'est ouvert neuf fois, et il y a effectivement neuf soleils.
+« Une légende sur le Continent Xian Gang raconte que le Domaine Divin Immémorial s'est ouvert neuf fois. À chaque ouverture, celui qui s'emparera de la fortune ultime deviendra un Grand Empyréen... Jusqu'à présent, il s'est ouvert neuf fois, et il y a effectivement neuf soleils.
 
 « Peut-être que le dixième soleil apparaîtra lors de la dixième ouverture...
 

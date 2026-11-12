@@ -10,9 +10,9 @@ Wang Lin ne souhaitait pas réellement livrer un combat à mort contre ces quatr
 
 Cependant, leur agressivité et leur refus de le rencontrer avaient provoqué l'affrontement précédent.
 
-En voyant l'Oiseau Vermillon apparaître, les yeux de Wang Lin s'illuminèrent et sa main droite se détendit. L'arc et la flèche se dissipèrent en de multiples éclats de lumière dorée. Bien que l'arc ait disparu, si Wang Lin en avait besoin, il pourrait l'invoquer instantanément. Il ne craignait pas une attaque sournoise des quatre généraux.
+En voyant Suzaku apparaître, les yeux de Wang Lin s'illuminèrent et sa main droite se détendit. L'arc et la flèche se dissipèrent en de multiples éclats de lumière dorée. Bien que l'arc ait disparu, si Wang Lin en avait besoin, il pourrait l'invoquer instantanément. Il ne craignait pas une attaque sournoise des quatre généraux.
 
-Wang Lin joignit les mains devant l'Oiseau Vermillon. Ce dernier était également un vieil homme et ressemblait étrangement au premier Oiseau Vermillon de la Terre Déchue.
+Wang Lin joignit les mains devant Suzaku. Ce dernier était également un vieil homme et ressemblait étrangement au premier Oiseau Vermillon de la Terre Déchue.
 
 Wang Lin ouvrit lentement la bouche et dit calmement: « Inutile de m'appeler "compagnon céleste". Le junior Wang Lin salue le premier Oiseau Vermillon. »
 
@@ -24,11 +24,11 @@ Wang Lin reprit calmement: « Une chose me laisse perplexe. Quel est votre lien 
 
 « Je n'ai presque aucun contrôle sur mon corps originel. Je ne peux communiquer avec lui que pour savoir ce qui se passe et ce qu'il pense, mais je n'exerce aucune influence sur ses pensées ni sur ses actes...
 
-« Il est épuisé; il désire retourner dans sa terre natale, tandis que moi, je cherche le Souverain Céleste... » Le vieil homme de l'Oiseau Vermillon secoua la tête et soupira.
+« Il est épuisé; il désire retourner dans sa terre natale, tandis que moi, je cherche le Souverain Céleste... » Le vieil homme de Suzaku secoua la tête et soupira.
 
 Le vieil homme du Tigre Blanc, dont les yeux étaient empreints de crainte, demanda soudain: « Pourquoi l'Arc de Li Guang est-il entre vos mains? »
 
-« C'est une affaire privée, cela ne vous regarde pas. » Wang Lin lança un regard glacial au Général Tigre Blanc avant de ramener son attention sur l'Oiseau Vermillon.
+« C'est une affaire privée, cela ne vous regarde pas. » Wang Lin lança un regard glacial au Général Tigre Blanc avant de ramener son attention sur Suzaku.
 
 Le visage du Général Tigre Blanc se crispa, mais il resta silencieux.
 
@@ -40,7 +40,7 @@ Le visage du Général Tigre Blanc se crispa, mais il resta silencieux.
 
 Sans l'Arc de Li Guang, les quatre généraux n'auraient pas cru Wang Lin, mais après avoir vu l'arme, une pression invisible pesait sur leurs cœurs.
 
-« L'Arc de Li Guang est une arme extrêmement puissante du Continent Astral Immortel. Cet arc n'est pas aisé à manier. J'ignore d'où vous avez tiré cette goutte de sang céleste, mais même si vous pouvez utiliser l'arc grâce à elle, chaque flèche consumera l'énergie céleste contenue dans ce sang. Vous n'êtes pas un être céleste, vous ne pourrez donc pas reconstituer la force de cette goutte. Combien de flèches pourrez-vous tirer? » Ce n'était pas l'Oiseau Vermillon qui parlait, mais le Dragon Azure. En observant Wang Lin, ses yeux brillaient d'une intensité vive.
+« L'Arc de Li Guang est une arme extrêmement puissante du Continent Xian Gang. Cet arc n'est pas aisé à manier. J'ignore d'où vous avez tiré cette goutte de sang céleste, mais même si vous pouvez utiliser l'arc grâce à elle, chaque flèche consumera l'énergie céleste contenue dans ce sang. Vous n'êtes pas un être céleste, vous ne pourrez donc pas reconstituer la force de cette goutte. Combien de flèches pourrez-vous tirer? » Ce n'était pas Suzaku qui parlait, mais le Dragon Azure. En observant Wang Lin, ses yeux brillaient d'une intensité vive.
 
 « Trois flèches me suffiraient pour détruire cet endroit! Et ce, malgré les nombreuses statues des trois clans anciens qui se dressent derrière vous et ce temple étrange niché dans les profondeurs! Si je ne m'abuse, ce temple est la sortie de cette grotte, une issue censée être totalement scellée et inviolable. Il s'y trouve de nombreuses créatures étranges, et c'est probablement le lieu le plus puissant de l'Ancien Royaume Céleste.
 
@@ -60,7 +60,7 @@ Wang Lin agita ses manches et trancha froidement: « Ils ne pourront jamais sort
 
 Sur ces mots, les quatre généraux fixèrent Wang Lin.
 
-Le Général Dragon Azure reprit rapidement: « Plus tôt, quelqu'un du royaume inférieur nous a contactés pour demander de l'aide contre l'invasion du royaume extérieur. Nous avons envoyé un trésor céleste pour qu'il soit intégré à la Formation de Scellement du Royaume. Cela devrait permettre à la formation de tenir cent ans et de nous donner le temps nécessaire pour achever notre guérison. Bien que l'effet soit limité, il sera très difficile pour les cultivateurs du royaume inférieur d'ouvrir la formation sans l'intervention d'un être du Continent Astral Immortel.
+Le Général Dragon Azure reprit rapidement: « Plus tôt, quelqu'un du royaume inférieur nous a contactés pour demander de l'aide contre l'invasion du royaume extérieur. Nous avons envoyé un trésor céleste pour qu'il soit intégré à la Formation de Scellement du Royaume. Cela devrait permettre à la formation de tenir cent ans et de nous donner le temps nécessaire pour achever notre guérison. Bien que l'effet soit limité, il sera très difficile pour les cultivateurs du royaume inférieur d'ouvrir la formation sans l'intervention d'un être du Continent Xian Gang.
 
 « J'ignore s'il a réussi, mais plus de 90 ans se sont écoulés et il ne reste que trois ans. Ces trois années sont cruciales. Une fois ce délai passé, nos blessures seront totalement guéries! »
 
@@ -84,7 +84,7 @@ L'Oiseau Vermillon regarda Wang Lin et demanda: « Que voulez-vous obtenir en re
 
 « Je veux que vous me promettiez que, une fois le Souverain Céleste aux Sept Couleurs trouvé, vous me permettrez d'emmener toutes les créatures vivantes hors de ce monde pour leur donner la liberté, afin qu'elles n'aient plus à vivre dans cette grotte et puissent contempler le véritable ciel!
 
-« Ma dernière requête est qu'une fois tout cela terminé, je puisse me rendre sur le Continent Astral Immortel! Et là-bas, vous me fournirez toutes les ressources dont j'ai besoin! » Wang Lin tapota son front de sa main droite. Un filet de son Sens Divin s'en échappa et se condensa dans sa paume en un fil de fumée semblable à des flocons de saule.
+« Ma dernière requête est qu'une fois tout cela terminé, je puisse me rendre sur le Continent Xian Gang! Et là-bas, vous me fournirez toutes les ressources dont j'ai besoin! » Wang Lin tapota son front de sa main droite. Un filet de son Sens Divin s'en échappa et se condensa dans sa paume en un fil de fumée semblable à des flocons de saule.
 
 « Si vous acceptez, utilisez vos Sens Divins pour sceller un vœu Dao. Si vous rompez ce vœu, votre Dao s'éteindra et votre être se dissipera! Si vous refusez, je sortirai l'Arc de Li Guang et je détruirai cet Ancien Royaume Céleste! » Les paroles de Wang Lin étaient inflexibles. Il ne laissait aucune place à l'hésitation.
 

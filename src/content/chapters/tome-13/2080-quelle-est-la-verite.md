@@ -100,13 +100,13 @@ Ressusciter Li Muwan était sa propre décision, et non le fruit de l'influence 
 
 « Je suis moi... » Il n'y avait aucune confusion dans le regard de Wang Lin; ses yeux étaient d'une clarté absolue.
 
-« Que ce soit Mo Zhi ou Hongdie, même le maître de Mo Zhi et Tian Yunzi... Ils pensent tous que ce monde, le monde des grottes, le Continent Astral Immortel, n'ont été formés que par un unique cycle de réincarnation de mon Dao onirique et ne sont pas réels... » murmura Wang Lin. Il avait depuis longtemps tiré des conclusions sur ces questions.
+« Que ce soit Mo Zhi ou Hongdie, même le maître de Mo Zhi et Tian Yunzi... Ils pensent tous que ce monde, le monde des grottes, le Continent Xian Gang, n'ont été formés que par un unique cycle de réincarnation de mon Dao onirique et ne sont pas réels... » murmura Wang Lin. Il avait depuis longtemps tiré des conclusions sur ces questions.
 
 « Cependant, est-ce vraiment ainsi? » Wang Lin esquissa un léger sourire. Il se leva, leva les yeux vers le ciel, et son regard brilla d'un éclat intense.
 
 « Tian Yunzi, pensez-vous vraiment que j'ignore votre origine? » Les yeux de Wang Lin s'illuminèrent alors qu'il scrutait l'immensité céleste. Il semblait capable de voir au-delà du ciel, au-delà du Royaume Céleste, par-delà les ténèbres infinies, pour percevoir une silhouette vêtue de noir, aux cheveux très longs, dégageant une aura de massacre et de destruction venant de loin.
 
-La destination de cette figure était le Continent Astral Immortel.
+La destination de cette figure était le Continent Xian Gang.
 
 « Tian Yunzi, la réponse à tout ne viendra pas de la vérité que vous me direz dans le Royaume Divin Immémorial, mais de la vérité que je vous dirai! Je vous ferai connaître la véritable réalité! » Wang Lin agita sa manche et un crâne apparut.
 
@@ -128,13 +128,13 @@ Au fil des ans, Treize revint à plusieurs reprises. Chaque fois, il restait aup
 
 Xu Liguo et Liu Jinbiao avaient utilisé une méthode inconnue pour retrouver Zhong Dahong. Les trois compères travaillaient ensemble, faisant ce qu'ils voulaient dans le monde des grottes, dans une immense joie.
 
-Leurs corps s'étant réincarnés et ayant grandi sur le Continent Astral Immortel, ils pouvaient partir et revenir à leur guise en empruntant la puissance de Wang Lin pour franchir la porte. Grâce à l'aide de Wang Lin, Zhong Dahong pouvait également le faire. Après avoir parcouru le monde des grottes, les trois hommes, accompagnés du dragon de mer qui s'était lui aussi pris de goût pour cette activité, quittèrent le monde des grottes. Ils commencèrent alors leur propre épopée légendaire sur le Continent Astral Immortel.
+Leurs corps s'étant réincarnés et ayant grandi sur le Continent Xian Gang, ils pouvaient partir et revenir à leur guise en empruntant la puissance de Wang Lin pour franchir la porte. Grâce à l'aide de Wang Lin, Zhong Dahong pouvait également le faire. Après avoir parcouru le monde des grottes, les trois hommes, accompagnés du dragon de mer qui s'était lui aussi pris de goût pour cette activité, quittèrent le monde des grottes. Ils commencèrent alors leur propre épopée légendaire sur le Continent Xian Gang.
 
 Cependant, avant leur départ, le groupe de Xu Liguo vint rendre visite à Wang Lin pour le servir et le flatter. Finalement, Wang Lin rit. Il laissa son aura et son empreinte sur eux pour assurer leur protection. Les trois partirent avec enthousiasme.
 
-Avec Wang Lin comme bouclier et la puissance de combat du dragon de mer d'Exalté Doré, ils étaient convaincus de pouvoir berner le Continent Astral Immortel comme en terrain sans défense!
+Avec Wang Lin comme bouclier et la puissance de combat du dragon de mer d'Exalté Doré, ils étaient convaincus de pouvoir berner le Continent Xian Gang comme en terrain sans défense!
 
-Soixante ans après le départ de Xu Liguo et de sa troupe, Wang Lin sortit Li Muwan de la vallée et quitta la planète Suzaku. Ils abandonnèrent le monde des grottes pour se diriger vers le Continent Astral Immortel.
+Soixante ans après le départ de Xu Liguo et de sa troupe, Wang Lin sortit Li Muwan de la vallée et quitta la planète Suzaku. Ils abandonnèrent le monde des grottes pour se diriger vers le Continent Xian Gang.
 
 Avant de partir, son Sens Divin balaya le Royaume Céleste; il y vit les cultivateurs qui assimilaient l'héritage du Dao qu'il avait laissé derrière lui. Il aperçut Treize et de nombreux anciens amis.
 

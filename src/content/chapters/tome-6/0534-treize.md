@@ -20,7 +20,7 @@ Après avoir gravé la méthode de création du nouveau drapeau sur un jade, Wan
 
 Treize était le jeune homme que Wang Lin avait secrètement suivi pour trouver la vallée.
 
-Ce dernier semblait posséder une affinité naturelle avec les sorts de la Secte Lian Hun. Si Du Tian avait été encore en vie, il en aurait été absolument stupéfait.
+Ce dernier semblait posséder une affinité naturelle avec les sorts de la Secte Lian Hun. Si Dun Tian avait été encore en vie, il en aurait été absolument stupéfait.
 
 Treize se tint rapidement devant Wang Lin. Il éprouvait envers le Suprême Céleste qui se tenait devant lui un profond respect et une crainte révérencielle immense.
 

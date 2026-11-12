@@ -78,15 +78,15 @@ Wang Lin ne bougea pas. Il regarda vers l'Union Huo Fen et dit: « Le junior a e
 
 Le vieil homme fronça les sourcils en fixant Wang Lin: « De quoi s'agit-il? »
 
-Wang Lin eut une pensée soudaine et demanda: « Le senior a-t-il entendu parler du Chemin Divin du Sanctuaire du Dieu de la Guerre? »
+Wang Lin eut une pensée soudaine et demanda: « Le senior a-t-il entendu parler du Chemin Divin du Temple Zhan Shen? »
 
-Le vieil homme ricana. « La méthode de culture qui peut augmenter les chances de former son Âme Naissante... À l'époque, quand le gamin du Sanctuaire du Dieu de la Guerre l'a obtenue, cela a fait un tel tollé. Cependant, même si vous y allez, vous ne trouverez pas le Chemin Divin original à moins de vous rendre dans un pays de culture de rang 4 nommé Tian Gang. »
+Le vieil homme ricana. « La méthode de culture qui peut augmenter les chances de former son Âme Naissante... À l'époque, quand le gamin du Temple Zhan Shen l'a obtenue, cela a fait un tel tollé. Cependant, même si vous y allez, vous ne trouverez pas le Chemin Divin original à moins de vous rendre dans un pays de culture de rang 4 nommé Tian Gang. »
 
-L'expression de Wang Lin resta impassible, mais son cœur manqua un battement. Comme il s'en doutait, le Sanctuaire du Dieu de la Guerre ne possédait plus le Chemin Divin originel.
+L'expression de Wang Lin resta impassible, mais son cœur manqua un battement. Comme il s'en doutait, le Temple Zhan Shen ne possédait plus le Chemin Divin originel.
 
 Cependant, il n'allait pas renoncer avant d'être allé vérifier par lui-même. Il s'envola donc vers l'Union Huo Fen. Le regard du vieil homme scintilla à plusieurs reprises avant qu'il ne suive Wang Lin sans se presser.
 
-Peu de temps après, la montagne de l'Union Huo Fen apparut. Il attendit que le vieil homme soit à ses côtés avant de crier: « Ma Liang salue le senior Feng Luan du Sanctuaire du Dieu de la Guerre! »
+Peu de temps après, la montagne de l'Union Huo Fen apparut. Il attendit que le vieil homme soit à ses côtés avant de crier: « Ma Liang salue le senior Feng Luan du Temple Zhan Shen! »
 
 Sa voix tonna à travers la montagne. Bientôt, plusieurs personnes sortirent des hauteurs. Une femme en tenue de cour dirigeait le groupe: c'était Feng Luan.
 
@@ -100,7 +100,7 @@ Wang Lin articula lentement: « Le junior aimerait consulter le Chemin Divin. »
 
 Feng Luan hésita, puis regarda le vieil homme et constata qu'il contemplait le ciel. Au cours des trois dernières années, ils avaient commencé à entrevoir le niveau de culture de cet étranger. Le voir ainsi arriver sur leur territoire les laissait profondément troublés.
 
-À ce moment-là, un vieillard au visage rouge sortit de derrière Feng Luan. Il fixa Wang Lin d'un regard sérieux et déclara: « Puisque vous êtes un disciple de mon Sanctuaire du Dieu de la Guerre, il n'y a aucun problème à ce que vous le voyiez. Suivez-moi. » Sur ces mots, il jeta un coup d'œil furtif au vieil homme présent.
+À ce moment-là, un vieillard au visage rouge sortit de derrière Feng Luan. Il fixa Wang Lin d'un regard sérieux et déclara: « Puisque vous êtes un disciple de mon Temple Zhan Shen, il n'y a aucun problème à ce que vous le voyiez. Suivez-moi. » Sur ces mots, il jeta un coup d'œil furtif au vieil homme présent.
 
 Sans un mot, Wang Lin vola derrière lui.
 
@@ -114,4 +114,4 @@ Le vieillard au visage rouge décida de rompre le silence en se tournant vers Wa
 
 Wang Lin acquiesça silencieusement.
 
-L'homme prit une profonde inspiration et dit d'un ton pesant: « Wang Lin, laisse tout ce qui s'est passé dans le passé derrière toi. Peu importe les ennuis dans lesquels tu t'es fourré, ne traîne pas le Sanctuaire du Dieu de la Guerre avec toi. Si tu peux jurer de t'y tenir, alors j'ouvrirai la demeure de pierre pour que tu puisses voir le Chemin Divin! »
+L'homme prit une profonde inspiration et dit d'un ton pesant: « Wang Lin, laisse tout ce qui s'est passé dans le passé derrière toi. Peu importe les ennuis dans lesquels tu t'es fourré, ne traîne pas le Temple Zhan Shen avec toi. Si tu peux jurer de t'y tenir, alors j'ouvrirai la demeure de pierre pour que tu puisses voir le Chemin Divin! »

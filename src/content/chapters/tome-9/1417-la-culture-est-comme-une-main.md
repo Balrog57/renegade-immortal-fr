@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1417 - Cultivation is Like a Hand
 slug: la-culture-est-comme-une-main
 ---
-Après dix respirations, le tatouage de tonnerre autour de Wang Lin brilla intensément, intégrant le feu de son quatrième éveil, l'Oiseau Vermillon.
+Après dix respirations, le tatouage de tonnerre autour de Wang Lin brilla intensément, intégrant le feu de son quatrième éveil, Suzaku.
 
 « Quelle est la relation entre l'Ancien Souverain Céleste et l'Ancien Empereur Céleste? »
 
@@ -16,7 +16,7 @@ Cependant, à l'instant même où il finit de parler, le feu de la paume dans la
 
 Onzième respiration!
 
-Les yeux de Wang Lin révélèrent une folie pure. Le tatouage de tonnerre qui contenait le feu s'étendit soudainement. Alors que l'Oiseau Vermillon se rapprochait, Wang Lin se redressa brusquement et poussa de toutes ses forces vers le haut.
+Les yeux de Wang Lin révélèrent une folie pure. Le tatouage de tonnerre qui contenait le feu s'étendit soudainement. Alors que Suzaku se rapprochait, Wang Lin se redressa brusquement et poussa de toutes ses forces vers le haut.
 
 En un instant, l'ancien Oiseau Vermillon percuta le tatouage de tonnerre dans un rugissement assourdissant qui résonna à travers le monde. Une puissante onde de choc se propagea dans toutes les directions.
 
@@ -28,7 +28,7 @@ Cette scène choqua tous les cultivateurs environnants. Les pupilles du vieil Oi
 
 Dès que son Sens Divin y pénétra, sa voix tonna à l'intérieur de l'Épreuve:
 
-« Ancêtre!!! Quel est le sens de tout cela!?! Se pourrait-il qu'il ne soit pas un membre de mon clan de l'Oiseau Vermillon?! Se pourrait-il qu'il ait été créé par quelqu'un d'autre?! »
+« Ancêtre!!! Quel est le sens de tout cela!?! Se pourrait-il qu'il ne soit pas un membre de mon clan de Suzaku?! Se pourrait-il qu'il ait été créé par quelqu'un d'autre?! »
 
 « Toi, pars! » Une voix bourdonnante gronda, formant une force invisible qui frappa le Sens Divin du vieil Oiseau Vermillon, l'expulsant de force de l'Épreuve Céleste.
 
@@ -38,7 +38,7 @@ Douzième respiration!
 
 Le tatouage de tonnerre s'effondra en d'innombrables fragments qui retournèrent dans l'œil de Wang Lin. Le feu de l'ancien Oiseau Vermillon se figea un instant et l'oiseau recula de plusieurs centaines de pieds dans cet effondrement.
 
-Wang Lin agita la main droite et une faille vers son espace de stockage apparut. Dans un éclair de lumière sanguine, l'Épée de Sang surgit. Wang Lin la pointa férocement vers le ciel, et l'épée poursuivit l'Oiseau Vermillon.
+Wang Lin agita la main droite et une faille vers son espace de stockage apparut. Dans un éclair de lumière sanguine, l'Épée de Sang surgit. Wang Lin la pointa férocement vers le ciel, et l'épée poursuivit Suzaku.
 
 À cet instant précis, après avoir lancé l'épée, la main de Wang Lin forma un sceau. Il pointa le ciel et hurla: « Au nom de mon tonnerre, condense à nouveau dix mille tatouages de tonnerre pour ouvrir l'Ancien Royaume Lei! »
 
@@ -50,11 +50,11 @@ Le monde trembla et commença à tourbillonner. Une gigantesque faille spatiale 
 
 Ouvrir l'Ancien Royaume Lei était le sort du Grand Ancien du Clan Shan Lei. Cependant, après avoir sondé l'âme de cet Ancien et grâce à son essence de tonnerre, Wang Lin pouvait également utiliser ce sort extrêmement puissant!
 
-Les dragons du tonnerre poussèrent des rugissements de colère en sortant de la faille spatiale. Mais à ce moment précis, la voix de la première génération de l'Oiseau Vermillon retentit:
+Les dragons du tonnerre poussèrent des rugissements de colère en sortant de la faille spatiale. Mais à ce moment précis, la voix de la première génération de Suzaku retentit:
 
-« Sceau de l'Oiseau Vermillon, scelle! » Tandis que cette voix indifférente résonnait, l'ancien Oiseau Vermillon poussa un sifflement et chargea vers la faille de 10 000 pieds. Une vague de feu jaillit et vint marquer la brèche.
+« Sceau de Suzaku, scelle! » Tandis que cette voix indifférente résonnait, l'ancien Oiseau Vermillon poussa un sifflement et chargea vers la faille de 10 000 pieds. Une vague de feu jaillit et vint marquer la brèche.
 
-L'Oiseau Vermillon se transforma en un sceau gigantesque, scellant l'accès à l'Ancien Royaume Lei! Les dragons du tonnerre luttèrent de toutes leurs forces pour s'échapper, mais malgré leurs efforts, ils ne purent briser le Sceau de l'Oiseau Vermillon!
+L'Oiseau Vermillon se transforma en un sceau gigantesque, scellant l'accès à l'Ancien Royaume Lei! Les dragons du tonnerre luttèrent de toutes leurs forces pour s'échapper, mais malgré leurs efforts, ils ne purent briser le Sceau de Suzaku!
 
 Quatorzième respiration!
 
@@ -90,7 +90,7 @@ Dix-huitième respiration!
 
 Le corps de Wang Lin continuait de s'affaisser. Il ne pouvait plus voir le ciel, car les cinq doigts couvraient l'horizon. Lorsqu'il atteignit la dix-neuvième respiration, la main se serra!
 
-Cependant, au moment où le poing se ferma, un cri d'Oiseau Vermillon jaillit de la poigne, accompagné des Flammes Éthérées. L'âme de Wang Lin se métamorphosa en Oiseau Vermillon.
+Cependant, au moment où le poing se ferma, un cri de Suzaku jaillit de la poigne, accompagné des Flammes Éthérées. L'âme de Wang Lin se métamorphosa en Oiseau Vermillon.
 
 Les yeux du premier Oiseau Vermillon brillèrent d'une lueur étrange. Il regarda son propre poing et son regard sembla le transpercer pour observer l'âme de Wang Lin qui luttait.
 
@@ -104,9 +104,9 @@ Aussitôt ces mots prononcés, une flamme monstrueuse s'alluma dans les yeux du 
 
 En entendant cela, Wang Lin, malgré sa lutte, resta un instant interdit, puis laissa échapper un rire furieux.
 
-« Puisque tu refuses de me dire la vérité, alors cet Oiseau Vermillon t'offrira la mort! » Les yeux du premier Oiseau Vermillon brillèrent d'une lueur singulière tandis qu'il fixait Wang Lin à l'intérieur de son poing. Ses Flammes Éthérées se précipitèrent vers le centre de sa paume pour pénétrer l'Oiseau Vermillon de Wang Lin.
+« Puisque tu refuses de me dire la vérité, alors cet Oiseau Vermillon t'offrira la mort! » Les yeux du premier Oiseau Vermillon brillèrent d'une lueur singulière tandis qu'il fixait Wang Lin à l'intérieur de son poing. Ses Flammes Éthérées se précipitèrent vers le centre de sa paume pour pénétrer Suzaku de Wang Lin.
 
-Au moment où les Flammes Éthérées entrèrent en contact avec l'âme de Wang Lin, des images défilèrent avec clarté: la cinquième génération d'Oiseau Vermillon apposant sa marque sur lui; ses premier, deuxième et troisième éveils.
+Au moment où les Flammes Éthérées entrèrent en contact avec l'âme de Wang Lin, des images défilèrent avec clarté: la cinquième génération de Suzaku apposant sa marque sur lui; ses premier, deuxième et troisième éveils.
 
 Le premier Oiseau Vermillon ne se contenta pas d'examiner ces souvenirs une fois, mais les revit sans cesse, les analysant des milliers de fois avec minutie. Finalement, il poussa un profond soupir et la lueur mystérieuse dans ses yeux s'estompa, laissant place à une trace de bonté jamais vue jusqu'alors.
 
@@ -118,7 +118,7 @@ L'Oiseau Vermillon de Wang Lin fixa silencieusement l'ancêtre de la première g
 
 « Autrefois, parce que je me suis trompé sur une personne en la prenant pour l'une des miennes, j'ai fini dans cet état... Je ne peux même pas faire un seul pas hors de cette Épreuve Céleste... Tu es apparu soudainement et, bien que tous tes traits correspondent à mon clan, ce vieil homme doit rester prudent. J'espère que tu comprends. »
 
-Wang Lin médita en silence alors que l'Oiseau Vermillon qu'il avait formé se dissipait lentement. Reprenant sa forme humaine, il demanda doucement: « La troisième génération de l'Oiseau Vermillon? »
+Wang Lin médita en silence alors que Suzaku qu'il avait formé se dissipait lentement. Reprenant sa forme humaine, il demanda doucement: « La troisième génération de Suzaku? »
 
 « C'est exact. Je n'ai trouvé aucune faille après avoir sondé son âme. Peu importe mon observation, aucun indice ne m'est apparu. Ce n'est qu'à la fin que j'ai découvert qu'il avait été créé par quelqu'un d'autre... » La haine imprégnait les paroles du premier Oiseau Vermillon.
 

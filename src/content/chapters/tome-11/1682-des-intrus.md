@@ -22,13 +22,13 @@ Alors que Wang Lin atteignait le bord de la faille et s'apprêtait à partir, il
 
 « Il y avait aussi le Fouet Kunji. Ce fouet était un trésor qui leur appartenait. J'avais envisagé de me rendre sur la Planète des Cinq Éléments pour trouver Na Duo! Le chef de ce groupe ressemblait trait pour trait à Na Duo! »
 
-« D'après les nouvelles du Clan Shan Lei, ces cultivateurs mystérieux venaient de l'extérieur du Système Stellaire Antique. Cependant, il n'y a rien au-delà, ils sont donc clairement des cultivateurs provenant du Continent Astral Immortel! » Les yeux de Wang Lin brillèrent d'un éclat vif et son esprit s'éclaircit alors qu'il poursuivait son analyse.
+« D'après les nouvelles du Clan Shan Lei, ces cultivateurs mystérieux venaient de l'extérieur du Système Stellaire Antique. Cependant, il n'y a rien au-delà, ils sont donc clairement des cultivateurs provenant du Continent Xian Gang! » Les yeux de Wang Lin brillèrent d'un éclat vif et son esprit s'éclaircit alors qu'il poursuivait son analyse.
 
 Il n'avait pas entendu les paroles des membres de la Secte Gui Yi, mais à mesure qu'il réfléchissait, la vérité commençait à se dessiner. Une spéculation audacieuse surgit dans son cœur!
 
 « Le Souverain Céleste aux Sept Couleurs de la Secte Qi Dao a conquis le Dao Céleste et a abandonné son partenaire de Dao. Il a scellé la Secte Qi Dao pour méditer sur le Dao Céleste à l'intérieur de sa grotte, qu'il a aussi complètement scellée. »
 
-« Cependant, son comportement a éveillé les soupçons d'autrui. Un jour, une autre secte du Continent Astral Immortel, dont l'un des membres possédait un talent prodigieux, a utilisé une méthode spéciale pour ouvrir un passage direct vers la grotte du Souverain Céleste aux Sept Couleurs! »
+« Cependant, son comportement a éveillé les soupçons d'autrui. Un jour, une autre secte du Continent Xian Gang, dont l'un des membres possédait un talent prodigieux, a utilisé une méthode spéciale pour ouvrir un passage direct vers la grotte du Souverain Céleste aux Sept Couleurs! »
 
 « Ils sont arrivés par ce passage!! »
 
@@ -98,12 +98,12 @@ Après avoir reconstitué le Royaume Céleste du Vent, Wang Lin atterrit sur le 
 
 Des grondements tonitruants retentirent. Sous le contrôle de Wang Lin, il extirpa de force le Royaume Céleste du Vent de l'univers où il se trouvait pour le transporter dans la Mer Yun!
 
-Le continent flottait là, émettant d'immenses quantités d'énergie céleste. Cette énergie était différente de celle du Continent Astral Immortel; elle avait été altérée par les Flammes Joss et constituait une énergie céleste propre au monde des grottes!
+Le continent flottait là, émettant d'immenses quantités d'énergie céleste. Cette énergie était différente de celle du Continent Xian Gang; elle avait été altérée par les Flammes Joss et constituait une énergie céleste propre au monde des grottes!
 
 Il y a fort longtemps, le Seigneur du Royaume Scellé avait créé ces quatre continents pour recueillir les Flammes Joss. En conséquence, les continents des quatre Royaumes Célestes étaient distincts des autres.
 
 Les bêtes moustiques présentes sur le continent étaient écrasées par la pression de Wang Lin; elles ne pouvaient s'envoler, mais seulement trembler, tapies au sol, en suivant le mouvement du continent.
 
-Les étoiles rugissaient tandis que Wang Lin restait assis sur le continent. Bien que ses yeux fussent clos, son Sens Divin dirigeait la masse pour qu'elle vole vers la Rivière Invoquée. Il se dirigeait vers le Royaume Céleste de l'Éclair!
+Les étoiles rugissaient tandis que Wang Lin restait assis sur le continent. Bien que ses yeux fussent clos, son Sens Divin dirigeait la masse pour qu'elle vole vers Zhao He. Il se dirigeait vers le Royaume Céleste de l'Éclair!
 
 Le Royaume Céleste de l'Éclair était le seul qu'il n'avait pas encore visité. Cet endroit diffusait d'innombrables éclats lumineux créant un reflet magnifique.

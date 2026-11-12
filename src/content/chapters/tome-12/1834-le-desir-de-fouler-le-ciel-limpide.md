@@ -56,9 +56,9 @@ Au sein de la Secte Da Hun, plusieurs rayons de lumière jaillirent des pics res
 
 Cependant, très peu pensaient que Wang Lin réussirait; la plupart espéraient le voir échouer lamentablement.
 
-Même l'Estimé Taureau Vert fronça les sourcils. Il leva les yeux, son regard perçant la montagne pour observer l'illusion céleste.
+Même l'Estimé Qing Niu fronça les sourcils. Il leva les yeux, son regard perçant la montagne pour observer l'illusion céleste.
 
-« Il est un peu téméraire... Avec un tel niveau de culture, il est impossible d'atteindre le septième étage... » L'Estimé Taureau Vert soupira en secouant la tête. « C'est aussi bien: cela émoussera son arrogance. Ne crois pas que ma Secte Da Hun soit dépourvue de mystères! »
+« Il est un peu téméraire... Avec un tel niveau de culture, il est impossible d'atteindre le septième étage... » L'Estimé Qing Niu soupira en secouant la tête. « C'est aussi bien: cela émoussera son arrogance. Ne crois pas que ma Secte Da Hun soit dépourvue de mystères! »
 
 Simultanément, sur trois à cinq pics appartenant à de vieux monstres habituellement en culture isolée, les propriétaires ouvrirent les yeux et regardèrent vers le ciel.
 
@@ -118,11 +118,11 @@ Le corps véritable d'essence de Wang Lin n'était pas un concept connu de tous 
 
 Toute la Secte Da Hun était en émoi. Même certains des vieux monstres en culture isolée furent tirés de leur méditation.
 
-« Treize marches... » Au Pic Qing Tian, l'Estimé Taureau Vert devint sérieux. Cependant, il resta assis sans sortir.
+« Treize marches... » Au Pic Qing Tian, l'Estimé Qing Niu devint sérieux. Cependant, il resta assis sans sortir.
 
 « Je l'avais sous-estimé... Son corps véritable d'essence est très proche de devenir un véritable Céleste... Corps véritable d'essence, véritable Céleste. Il n'y a qu'un mot de différence, mais l'écart est un gouffre! »
 
-« Cependant, treize marches représentent probablement sa limite. Au mieux, il pourra en faire trois de plus! » La culture de l'Estimé Taureau Vert était insondable. Son regard était acéré : il se trompait très rarement.
+« Cependant, treize marches représentent probablement sa limite. Au mieux, il pourra en faire trois de plus! » La culture de l'Estimé Qing Niu était insondable. Son regard était acéré : il se trompait très rarement.
 
 À l'intérieur du Pavillon Cang Hun, Wang Lin se tenait sur la treizième marche. Il avait réussi cet exploit grâce à la puissance de son corps véritable d'essence, mais désormais, la voix dans son esprit s'était intensifiée de plusieurs crans!
 

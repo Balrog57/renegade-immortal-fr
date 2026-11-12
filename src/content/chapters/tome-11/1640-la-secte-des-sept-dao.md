@@ -20,7 +20,7 @@ Toutefois, ces souvenirs ne pouvaient être consultés par le Sens Divin; même 
 
 Les souvenirs d'un Céleste ne pouvaient être perçus que par quelqu'un possédant une lignée céleste. C'était une restriction occulte et, bien que Wang Lin appartînt à un clan ancien, il n'aurait pas pu y accéder.
 
-C'était une question de niveau: tout comme une fourmi, si elle obtenait les souvenirs d'un éléphant, elle serait incapable de les comprendre. Cependant, Wang Lin était différent. Il possédait la goutte dorée de sang céleste qui constituait son Corps Céleste Immortel. Même sur le Continent Astral Immortel, une pureté pareille était extrêmement rare!
+C'était une question de niveau: tout comme une fourmi, si elle obtenait les souvenirs d'un éléphant, elle serait incapable de les comprendre. Cependant, Wang Lin était différent. Il possédait la goutte dorée de sang céleste qui constituait son Corps Céleste Immortel. Même sur le Continent Xian Gang, une pureté pareille était extrêmement rare!
 
 Grâce à ce sang, Wang Lin pouvait parcourir ces souvenirs aussi facilement que s'il lisait un livre. Dans un flot de lumière dorée, la goutte de sang doré jaillit d'entre ses sourcils; Wang Lin, tenant le cristal de mémoire, le pressa lentement contre son front.
 
@@ -32,9 +32,9 @@ La chose la plus éblouissante sur ce continent était les neuf soleils dans le 
 
 En absorbant les souvenirs du vieil homme, Wang Lin découvrit, à travers la vision des neuf soleils, une légende antique.
 
-Cette légende affirmait que les neuf soleils du Continent Astral Immortel étaient neuf palais célestes, qui représentaient les neuf Grands Souverains Célestes suprêmes de ce continent. Même le maître du vieil homme, l'être de la statue aux sept couleurs, n'avait pas atteint un tel niveau.
+Cette légende affirmait que les neuf soleils du Continent Xian Gang étaient neuf palais célestes, qui représentaient les neuf Grands Souverains Célestes suprêmes de ce continent. Même le maître du vieil homme, l'être de la statue aux sept couleurs, n'avait pas atteint un tel niveau.
 
-La légende disait que neuf était la limite. On racontait que si un dixième soleil apparaissait, le Continent Astral Immortel subirait des calamités sans fin!
+La légende disait que neuf était la limite. On racontait que si un dixième soleil apparaissait, le Continent Xian Gang subirait des calamités sans fin!
 
 Le vieil homme était né sur ce continent. En grandissant, il avait rejoint une secte nommée la Secte Qi Dao!
 

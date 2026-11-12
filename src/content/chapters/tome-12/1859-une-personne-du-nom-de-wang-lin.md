@@ -62,7 +62,7 @@ Wang Lin revint également parmi ces milliers de cultivateurs, le visage pâle. 
 
 Ce n'est que grâce à cette conjonction de facteurs qu'il avait pu terrasser Liu Zhiyuan. Néanmoins, il était lui aussi blessé. Des vagues de douleur intense lui lacéraient la poitrine; il devait guérir au plus vite.
 
-« C'est le premier cultivateur de la Tribulation du Vide que je tue... Ils sont bien trop difficiles à abattre! » songea Wang Lin en silence. Sans la Formation du Taureau Céleste, il n'aurait jamais pu l'emporter.
+« C'est le premier cultivateur de la Tribulation du Vide que je tue... Ils sont bien trop difficiles à abattre! » songea Wang Lin en silence. Sans la Formation du Tian Niu, il n'aurait jamais pu l'emporter.
 
 Personne d'autre n'avait remarqué qu'il était l'auteur de la mort de Liu Zhiyuan. Wang Lin s'y était attendu. En attaquant, il avait resserré les restrictions autour d'eux pour empêcher Liu Zhiyuan de fuir. Grâce à cela, même si d'autres avaient balayé la zone avec leur Sens Divin, ils n'auraient rien pu percevoir de clair.
 

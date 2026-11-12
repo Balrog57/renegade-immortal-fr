@@ -32,7 +32,7 @@ L'expression de Wang Lin resta imperturbable. Il était intéressé par la mario
 
 Les yeux de Wang Lin brillèrent d'un éclat imperceptible. Bien que son essence de tonnerre fût complète, les éclairs qui l'accompagnaient étaient encore imparfaits. Il était toutefois confiant dans sa capacité à corriger cela. S'il se trouvait toujours dans le Système Stellaire Antique, c'était pour son essence de feu!
 
-Afin de parfaire son essence de feu et d'éveiller à nouveau l'Oiseau Vermillon, il devait absorber une énergie ignée d'un niveau suffisamment élevé. Le Clan Huo Que était le premier choix de Wang Lin, et il n'avait pas l'intention de les laisser filer si facilement.
+Afin de parfaire son essence de feu et d'éveiller à nouveau Suzaku, il devait absorber une énergie ignée d'un niveau suffisamment élevé. Le Clan Huo Que était le premier choix de Wang Lin, et il n'avait pas l'intention de les laisser filer si facilement.
 
 Cependant, il ne bénéficierait pas de la même chance qu'avec le Clan Shan Lei, où l'aide lui avait facilité la traversée des obstacles. Il n'était pas non plus réaliste de tenter de s'infiltrer dans le Clan Huo Que pour en atteindre le cœur.
 

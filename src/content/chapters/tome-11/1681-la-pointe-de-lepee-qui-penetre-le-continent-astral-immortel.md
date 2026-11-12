@@ -1,6 +1,6 @@
 ---
 n: 1681
-title: "La pointe de l'épée qui pénètre le Continent Astral Immortel!"
+title: "La pointe de l'épée qui pénètre le Continent Xian Gang!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1681 - The Tip of the Sword That Entered the Immortal Astral Continent!"
@@ -72,19 +72,19 @@ Un bourdonnement retentit alors que l'arme vibrait violemment sous l'effet d'une
 
 Au moment où l'épée transperça le talisman et pénétra la porte, l'âme originelle de Wang Lin ressentit une aura qui n'appartenait pas à la grotte, mais qu'il connaissait parfaitement!
 
-C'était l'aura du Continent Astral Immortel, l'endroit que son sens divin avait exploré juste après la fin de son Dao du Rêve!
+C'était l'aura du Continent Xian Gang, l'endroit que son sens divin avait exploré juste après la fin de son Dao du Rêve!
 
-Le Continent Astral Immortel, un monde existant depuis des éons. Sa taille équivalait à celle d'innombrables Royaumes Intérieurs et Extérieurs. Même les cultivateurs de la troisième étape avaient souvent besoin de très longtemps pour le traverser.
+Le Continent Xian Gang, un monde existant depuis des éons. Sa taille équivalait à celle d'innombrables Royaumes Intérieurs et Extérieurs. Même les cultivateurs de la troisième étape avaient souvent besoin de très longtemps pour le traverser.
 
-Le Continent Astral Immortel était surnommé « le bord du ciel et la fin de la terre », l'endroit le plus spectaculaire de l'univers!
+Le Continent Xian Gang était surnommé « le bord du ciel et la fin de la terre », l'endroit le plus spectaculaire de l'univers!
 
-Dans la partie orientale du Continent Astral Immortel, s'étendait une chaîne de montagnes infinie, drapée de brume et imprégnée d'énergie céleste. Les oiseaux et les fleurs embaumaient l'air, tandis que des bêtes célestes et des grues volantes dansaient dans le ciel.
+Dans la partie orientale du Continent Xian Gang, s'étendait une chaîne de montagnes infinie, drapée de brume et imprégnée d'énergie céleste. Les oiseaux et les fleurs embaumaient l'air, tandis que des bêtes célestes et des grues volantes dansaient dans le ciel.
 
-Cette chaîne de montagnes représentait environ 10 % du Système Stellaire Kun Xu. Elle paraissait sans fin, mais elle n'était qu'un grain de poussière comparée à l'immensité du Continent Astral Immortel!
+Cette chaîne de montagnes représentait environ 10 % du Système Stellaire Kun Xu. Elle paraissait sans fin, mais elle n'était qu'un grain de poussière comparée à l'immensité du Continent Xian Gang!
 
 Au sein de ce massif, une montagne perçait le ciel telle une épée pointée vers les cieux. Bien qu'elle semblât infiniment haute de près, elle ne ressemblait qu'à une modeste colline vue de loin!
 
-Un vaste groupe de palais trônait sur cette colline. Il s'agissait d'une branche d'une secte du Continent Astral Immortel, nommée la Secte Gui Yi!
+Un vaste groupe de palais trônait sur cette colline. Il s'agissait d'une branche d'une secte du Continent Xian Gang, nommée la Secte Gui Yi!
 
 Cette secte était comparable à la Secte Qi Dao; elle ne pouvait être considérée comme une grande puissance!
 
@@ -94,7 +94,7 @@ Cependant, soudain, la cloche trembla et un bourdonnement qui résonna à traver
 
 Lorsqu'ils arrivèrent, une lumière rouge sang, terrifiante, jaillit de la cloche. Dès son apparition, elle irradia intensément.
 
-C'était comme si cette lumière avait quitté le Continent Astral Immortel depuis bien trop longtemps, mais qu'en ce jour, elle revenait enfin!
+C'était comme si cette lumière avait quitté le Continent Xian Gang depuis bien trop longtemps, mais qu'en ce jour, elle revenait enfin!
 
 Une pointe d'épée écarlate apparut au cœur de la lueur sanglante! Elle avait transpercé la cloche sur trois pouces, et c'était d'elle que provenait cette lumière choquante!
 
@@ -122,6 +122,6 @@ Toute sa culture était en éveil et il était extrêmement vigilant.
 
 Il sentit sa gorge s'assécher. Après un long moment, constatant que la porte de pierre n'avait pas changé, il finit par laisser échapper un profond soupir de soulagement.
 
-« Le Continent Astral Immortel!! Derrière cette porte de pierre se trouve le Continent Astral Immortel!!! » Wang Lin scruta le passage environnant, l'illumination brillant dans ses yeux.
+« Le Continent Xian Gang!! Derrière cette porte de pierre se trouve le Continent Xian Gang!!! » Wang Lin scruta le passage environnant, l'illumination brillant dans ses yeux.
 
 « Je comprends... »

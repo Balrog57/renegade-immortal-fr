@@ -26,7 +26,7 @@ En empruntant un fragment de pouvoir du domaine temporel, Wang Lin ne fut pas en
 
 Il se déplaça à une vitesse dépassant même celle de Sun Lei, passant devant les créatures célestes pour apparaître à l'entrée de la grotte.
 
-« Cher compagnon cultivateur Sun Lei, vous ne m'avez toujours pas donné le bois purificateur, comment avez-vous pu vous précipiter ainsi? »
+« Cher Daoïste Sun Lei, vous ne m'avez toujours pas donné le bois purificateur, comment avez-vous pu vous précipiter ainsi? »
 
 Sun Lei fut stupéfait et son visage se décomposa. Cependant, c'était un homme décisif. Sans dire un mot, il frappa son sac de rangement et en lança le bois purificateur.
 

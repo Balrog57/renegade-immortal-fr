@@ -70,7 +70,7 @@ Dès son apparition, le démon poussa un rugissement. Sa silhouette devint floue
 
 La gueule sur la falaise se referma lentement.
 
-Les yeux de Wang Lin brillèrent. Il pointa le doigt et l'épée empoisonnée, forgée avec le chaudron du Roi Poison de Bossu Meng, jaillit de son sac de rangement. Par téléportation, elle s'engouffra aussitôt dans l'ouverture de la falaise qui se refermait et la taillada de haut en bas.
+Les yeux de Wang Lin brillèrent. Il pointa le doigt et l'épée empoisonnée, forgée avec le chaudron du Roi Poison de Meng Tuozi, jaillit de son sac de rangement. Par téléportation, elle s'engouffra aussitôt dans l'ouverture de la falaise qui se refermait et la taillada de haut en bas.
 
 Des bruits de frottement de roches résonnèrent depuis l'intérieur. Wang Lin fronça les sourcils. Au moment où la fissure allait se refermer, il donna un ordre de la pensée et l'épée en jaillit, flottant autour de lui dans un bourdonnement constant.
 

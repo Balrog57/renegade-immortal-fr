@@ -12,15 +12,15 @@ Depuis leur position actuelle, ils pouvaient apercevoir la grotte à une centain
 
 Non loin de là reposait le cadavre du troisième Senior frère, tué par Sun Lei.
 
-Sun Lei observa la grotte à distance et murmura: « La nourriture pour bêtes célestes est destinée aux bêtes elles-mêmes. Lorsqu'elles s'en nourrissent, cela renforce leur corps, mais c'est totalement inutile pour nous. Je ne peux croire qu'il reste encore autant de provisions dans ce Temple Xian Shou. Cela doit être dû à cette nourriture noire pour bêtes célestes. Ce compagnon cultivateur sait-il pourquoi elle existe? »
+Sun Lei observa la grotte à distance et murmura: « La nourriture pour bêtes célestes est destinée aux bêtes elles-mêmes. Lorsqu'elles s'en nourrissent, cela renforce leur corps, mais c'est totalement inutile pour nous. Je ne peux croire qu'il reste encore autant de provisions dans ce Temple Xian Shou. Cela doit être dû à cette nourriture noire pour bêtes célestes. Ce Daoïste sait-il pourquoi elle existe? »
 
 Le regard de Wang Lin resta calme lorsqu'il répondit: « Je crois que cela a un lien avec ce squelette noir. » Il se souvenait que la première fois qu'il avait vu cette ligne noire, elle s'agitait à l'intérieur du squelette. À chaque mouvement, les ossements tremblaient comme si la créature allait reprendre vie.
 
-Sun Lei déposa quelques morceaux de jade et reprit d'une voix lente: « L'expérience de ce compagnon cultivateur est en effet hors du commun. Cette nourriture noire a dû utiliser une méthode quelconque pour dévorer la chair, et même l'âme céleste, de ce squelette lors de la catastrophe qui brisa le Royaume Céleste. Elle s'est cachée dans les os pour ensuite, après une longue période, acquérir sa propre culture! C'est sans doute pour cela qu'il y a tant de nourriture ici; elles doivent toutes être ses descendantes. »
+Sun Lei déposa quelques morceaux de jade et reprit d'une voix lente: « L'expérience de ce Daoïste est en effet hors du commun. Cette nourriture noire a dû utiliser une méthode quelconque pour dévorer la chair, et même l'âme céleste, de ce squelette lors de la catastrophe qui brisa le Royaume Céleste. Elle s'est cachée dans les os pour ensuite, après une longue période, acquérir sa propre culture! C'est sans doute pour cela qu'il y a tant de nourriture ici; elles doivent toutes être ses descendantes. »
 
 Wang Lin resta silencieux.
 
-Sun Lei reprit d'un ton solennel: « Compagnon cultivateur, dans un instant, je vais utiliser une technique pour attirer ces nourritures hors de la grotte. Nous en tuerons autant que possible, et dès que cette ligne noire se mettra en mouvement, nous nous retrouverons au point de rendez-vous initial. »
+Sun Lei reprit d'un ton solennel: « Daoïste, dans un instant, je vais utiliser une technique pour attirer ces nourritures hors de la grotte. Nous en tuerons autant que possible, et dès que cette ligne noire se mettra en mouvement, nous nous retrouverons au point de rendez-vous initial. »
 
 Wang Lin acquiesça. D'un geste de la main droite, il transforma l'anneau de contrôle des bêtes en crapaud de tonnerre.
 
@@ -90,19 +90,19 @@ Wang Lin dit calmement: « Frère Sun, continuez votre culture, je vais vous pro
 
 Wang Lin soupira intérieurement. Il ignorait quelle pilule Sun Lei avait ingérée, mais elle lui avait permis de retrouver 80 % de ses forces malgré son état d'épuisement. Ce geste poussa Wang Lin à abandonner son plan initial.
 
-Sun Lei fut surpris par ces paroles. Bien sûr, il ne les crut pas, mais il répondit néanmoins: « Merci, compagnon cultivateur. »
+Sun Lei fut surpris par ces paroles. Bien sûr, il ne les crut pas, mais il répondit néanmoins: « Merci, Daoïste. »
 
 Wang Lin ne répondit rien et s'assit en tailleur.
 
 Sun Lei resta sur ses gardes tout en absorbant rapidement les effets de la pilule. Trois bâtons d'encens plus tard, il était totalement rétabli et son regard envers Wang Lin n'était plus aussi hostile.
 
-Sun Lei se leva et dit: « Compagnon cultivateur, ma culture est restaurée. Et si nous repartions explorer? »
+Sun Lei se leva et dit: « Daoïste, ma culture est restaurée. Et si nous repartions explorer? »
 
 Wang Lin acquiesça, se leva et s'élança vers une grotte voisine, Sun Lei sur ses talons.
 
 Les deux restèrent silencieux durant tout le trajet jusqu'à ce qu'ils approchent de la grotte. Dès leur arrivée, une multitude de nourritures pour bêtes surgirent de l'antre.
 
-Les yeux de Sun Lei brillèrent et il cria: « Compagnon cultivateur, reculez! Cette fois, je vais me venger pour mon doigt! » Sur ce, il frappa son sac de rangement et un éventail noir en jaillit.
+Les yeux de Sun Lei brillèrent et il cria: « Daoïste, reculez! Cette fois, je vais me venger pour mon doigt! » Sur ce, il frappa son sac de rangement et un éventail noir en jaillit.
 
 On ignorait la matière dont cet éventail était fait, mais dès son apparition, une aura glaciale se propagea, formant une couche de glace noire sur les parois. La glace continua de s'étendre et, en un clin d'œil, atteignit Wang Lin. Ce dernier resta impassible et sortit son drapeau de restriction qu'il agita vigoureusement. Un brouillard noir enveloppa Wang Lin; l'aura glaciale contourna ce brouillard, créant une zone tampon entre lui et Sun Lei. Les yeux de Wang Lin s'illuminèrent alors qu'il sortait silencieusement la sculpture de bois du passage du temps de son sac de rangement.
 
@@ -114,6 +114,6 @@ Tenant l'éventail, son âme originelle le balaya vers la nuée de bêtes. Une v
 
 Subitement, chaque bête cessa de bouger tandis que des plaques de glace noire se propageaient. En un instant, toute la zone, Wang Lin compris, fut transformée en un monde de givre noir.
 
-Sans dire un mot, l'âme originelle de Sun Lei retourna dans son corps et chargea vers la grotte. Il sourit: « Compagnon cultivateur, ma technique a ses limites et ne durera que dix respirations. Je vais ouvrir la voie et je reviendrai vous secourir. »
+Sans dire un mot, l'âme originelle de Sun Lei retourna dans son corps et chargea vers la grotte. Il sourit: « Daoïste, ma technique a ses limites et ne durera que dix respirations. Je vais ouvrir la voie et je reviendrai vous secourir. »
 
 Wang Lin resta calme, laissant échapper un léger sourire moqueur.

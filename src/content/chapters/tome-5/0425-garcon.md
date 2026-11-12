@@ -14,15 +14,15 @@ Zhu Quezi réfléchit un instant. Son expression devint très troublée avant qu
 
 La silhouette de Wang Lin vacilla, puis il tomba du ciel après s'être assuré que Zhu Quezi était parti.
 
-Du Tian fut stupéfait et se précipita vers Wang Lin. Le visage de ce dernier était pâle et ses yeux clos; il souffrait manifestement.
+Dun Tian fut stupéfait et se précipita vers Wang Lin. Le visage de ce dernier était pâle et ses yeux clos; il souffrait manifestement.
 
-Du Tian l'examina de plus près, puis son expression changea radicalement et il s'écria: « Possession! »
+Dun Tian l'examina de plus près, puis son expression changea radicalement et il s'écria: « Possession! »
 
 Il serra les dents et leva la main. Il s'apprêtait à presser sa paume sur le front de Wang Lin pour l'aider à lutter contre la possession; cependant, juste au moment où il allait agir, Wang Lin ouvrit les yeux. Son regard était désormais limpide et ne contenait plus aucune trace de l'arrogance de tout à l'heure.
 
 Wang Lin dit d'une voix faible: « Senior, arrêtez. »
 
-Du Tian fixa Wang Lin et demanda d'un ton grave: « Que s'est-il passé exactement? »
+Dun Tian fixa Wang Lin et demanda d'un ton grave: « Que s'est-il passé exactement? »
 
 « Tu as été bien trop téméraire, petit morveux. Ne voyais-tu pas la gravité de la situation?! Si ce vieil homme avait encore son ancien tempérament, je t'aurais tué d'une simple gifle! Ne pense pas que parce que ta durée de vie touche à sa fin, ce vieil homme ne puisse pas te faire goûter à ce que signifie voir sa propre vie s'épuiser lentement. »
 
@@ -34,9 +34,9 @@ L'homme d'âge moyen leva la tête vers le ciel et rugit: « Dispersez-vous, par
 
 D'un seul cri, les nuages se dissipèrent sans laisser de trace; même la pluie qui tombait fut balayée. Pas une seule goutte ne toucha le sol.
 
-Le corps de Du Tian trembla violemment tandis qu'il contemplait la scène, hébété. Il était incapable de prononcer le moindre mot.
+Le corps de Dun Tian trembla violemment tandis qu'il contemplait la scène, hébété. Il était incapable de prononcer le moindre mot.
 
-Wang Lin eut un sourire amer et toussa. Lorsque la Flamme Sainte Suzaku arriva, l'âme originelle de Wang Lin était déjà revenue dans son corps et il avait atteint le stade de la Transformation de l'Âme. Cependant, n'ayant aucun moyen d'intervenir dans le combat entre Du Tian et Zhu Quezi, il s'était caché à l'intérieur de la perle défiant le ciel lors de l'apparition de la Flamme Sainte Suzaku.
+Wang Lin eut un sourire amer et toussa. Lorsque la Flamme Sainte Suzaku arriva, l'âme originelle de Wang Lin était déjà revenue dans son corps et il avait atteint le stade de la Transformation de l'Âme. Cependant, n'ayant aucun moyen d'intervenir dans le combat entre Dun Tian et Zhu Quezi, il s'était caché à l'intérieur de la perle défiant le ciel lors de l'apparition de la Flamme Sainte Suzaku.
 
 En y pénétrant, il avait réveillé Situ Nan!
 
@@ -50,35 +50,35 @@ Par la suite, Wang Lin lui avait demandé pourquoi il avait forcé Zhu Quezi à 
 
 La réponse de Situ Nan fut: « Parce que je suis Situ Nan! »
 
-« Tout à l'heure, tu as failli ruiner mon plan en réclamant cette quatrième âme, petit morveux. Si ce petit moineau avait réussi à me percer à jour, ce vieil homme aurait dû retourner dormir juste après son réveil! Quant à cette quatrième âme, une fois que j'aurai trouvé un corps et récupéré ma culture, je me frayerai un chemin jusqu'au Mont Suzaku pour la reprendre de force! » Situ Nan lança un regard noir à Du Tian.
+« Tout à l'heure, tu as failli ruiner mon plan en réclamant cette quatrième âme, petit morveux. Si ce petit moineau avait réussi à me percer à jour, ce vieil homme aurait dû retourner dormir juste après son réveil! Quant à cette quatrième âme, une fois que j'aurai trouvé un corps et récupéré ma culture, je me frayerai un chemin jusqu'au Mont Suzaku pour la reprendre de force! » Situ Nan lança un regard noir à Dun Tian.
 
-Cela faisait plus de mille ans que Du Tian n'avait pas été traité de « petit morveux ». Il ne put que sourire avec prudence et demander: « Quel est votre nom, Senior…? »
+Cela faisait plus de mille ans que Dun Tian n'avait pas été traité de « petit morveux ». Il ne put que sourire avec prudence et demander: « Quel est votre nom, Senior…? »
 
 Situ Nan leva la tête et déclara avec arrogance: « Wang Lin, dis à ce petit morveux qui je suis! »
 
-Wang Lin sourit amèrement. Il regarda Du Tian et dit: « C'est Situ Nan. »
+Wang Lin sourit amèrement. Il regarda Dun Tian et dit: « C'est Situ Nan. »
 
-« Situ Nan? » Du Tian réfléchit longuement, mais aucun expert de ce nom ne lui venait à l'esprit.
+« Situ Nan? » Dun Tian réfléchit longuement, mais aucun expert de ce nom ne lui venait à l'esprit.
 
 Puis Wang Lin ajouta: « La deuxième génération de Suzaku! »
 
-Le corps de Du Tian trembla et il recula en titubant, les yeux écarquillés par un choc extrême. Il comprit enfin pourquoi Zhu Quezi avait pris la fuite.
+Le corps de Dun Tian trembla et il recula en titubant, les yeux écarquillés par un choc extrême. Il comprit enfin pourquoi Zhu Quezi avait pris la fuite.
 
 La renommée de la deuxième génération de Suzaku était immense; à certains égards, elle surpassait même celle du premier.
 
-Peu après, Du Tian prit une profonde inspiration. Il s'inclina respectueusement devant Situ Nan et dit: « Le junior Du Tian, de la Secte Lian Hun, salue le Senior. »
+Peu après, Dun Tian prit une profonde inspiration. Il s'inclina respectueusement devant Situ Nan et dit: « Le junior Dun Tian, de la Secte Lian Hun, salue le Senior. »
 
 Situ Nan hocha la tête et répondit: « Étant donné que tu as protégé Wang Lin et que tu lui remets le drapeau des âmes d'un milliard, ce vieil homme te promet que, si l'occasion se présente, j'aiderai à ressusciter la Secte Lian Hun! » Situ Nan se remémora le passé. Si ce n'avait été pour son ami de la Secte Lian Hun, il n'aurait même pas eu le temps de s'échapper dans la perle défiant le ciel lors de la bataille contre les cultivateurs étrangers.
 
-Un sourire apparut sur le visage de Du Tian. Il avait sacrifié toute sa vie pour la Secte Lian Hun, et c'était son souci le plus constant. C'est pour cette raison qu'il était prêt à utiliser ses derniers instants pour se lier d'amitié avec Wang Lin; tout cela afin de trouver un moyen de maintenir sa Secte en vie.
+Un sourire apparut sur le visage de Dun Tian. Il avait sacrifié toute sa vie pour la Secte Lian Hun, et c'était son souci le plus constant. C'est pour cette raison qu'il était prêt à utiliser ses derniers instants pour se lier d'amitié avec Wang Lin; tout cela afin de trouver un moyen de maintenir sa Secte en vie.
 
-L'arrivée de Zhu Quezi avait plongé Du Tian dans le désespoir; pourtant, les choses avaient changé si vite qu'il avait l'impression d'avoir vécu une éternité. Maintenant que la deuxième génération de Suzaku s'était personnellement engagé à préserver la Secte Lian Hun, Du Tian était apaisé.
+L'arrivée de Zhu Quezi avait plongé Dun Tian dans le désespoir; pourtant, les choses avaient changé si vite qu'il avait l'impression d'avoir vécu une éternité. Maintenant que la deuxième génération de Suzaku s'était personnellement engagé à préserver la Secte Lian Hun, Dun Tian était apaisé.
 
 Il s'assit en position de lotus, un sourire aux lèvres, et ferma lentement les yeux.
 
-« Senior frère, ta prédiction s'est réalisée… Moi, Du Tian, je peux te rencontrer, ainsi que notre Maître et tous nos ancêtres, avec le sourire. Je, Du Tian, ne suis pas un pécheur envers la Secte Lian Hun. J'ai trouvé un nouvel espoir pour lui. Je vois déjà qu'à l'avenir, ma Secte deviendra une puissance dépassant les pays de culture de rang 6. Moi, Du Tian, j'ai laissé ma marque dans l'histoire de la Secte Lian Hun… »
+« Senior frère, ta prédiction s'est réalisée… Moi, Dun Tian, je peux te rencontrer, ainsi que notre Maître et tous nos ancêtres, avec le sourire. Je, Dun Tian, ne suis pas un pécheur envers la Secte Lian Hun. J'ai trouvé un nouvel espoir pour lui. Je vois déjà qu'à l'avenir, ma Secte deviendra une puissance dépassant les pays de culture de rang 6. Moi, Dun Tian, j'ai laissé ma marque dans l'histoire de la Secte Lian Hun… »
 
-« Maître, j'ai réussi à accomplir ce que je vous avais promis. Je, Du Tian, suis prêt à effacer ma conscience pour entrer dans le drapeau des âmes pour l'éternité! »
+« Maître, j'ai réussi à accomplir ce que je vous avais promis. Je, Dun Tian, suis prêt à effacer ma conscience pour entrer dans le drapeau des âmes pour l'éternité! »
 
 *Par une nuit pluvieuse sur un chemin public, des bandits avaient tué tout le monde, et parmi les décombres, un jeune homme pleurait…*
 
@@ -88,13 +88,13 @@ Il s'assit en position de lotus, un sourire aux lèvres, et ferma lentement les 
 
 *Le jeune homme grandit au sein de la Secte Lian Hun. Ce talentueux disciple se distingua immédiatement des autres. Il fit tout cela pour cette unique phrase.*
 
-*Afin de suivre les traces du vieil homme, il cultiva sans relâche chaque jour. Jour après jour, année après année, il poursuivit cette austère culture jusqu'à ce qu'il comprenne les cieux et atteigne le stade de la Formation de l'Âme. Il devint le disciple du vieil homme, reçut pour nom daoïste Du Tian, et le suivit partout.*
+*Afin de suivre les traces du vieil homme, il cultiva sans relâche chaque jour. Jour après jour, année après année, il poursuivit cette austère culture jusqu'à ce qu'il comprenne les cieux et atteigne le stade de la Formation de l'Âme. Il devint le disciple du vieil homme, reçut pour nom daoïste Dun Tian, et le suivit partout.*
 
 *Le temps est comme une chanson; il vient un jour où elle s'achève et où les gens s'en vont. Avant que l'âme de son maître n'entre dans le drapeau des âmes d'un milliard, il avait fait la promesse de protéger la Secte Lian Hun pour le restant de ses jours, simplement pour cette phrase entendue dans sa jeunesse.*
 
 « Es-tu prêt à venir avec moi? »
 
-« Maître, votre disciple… arrive… » Du Tian esquissa un sourire en fermant les yeux. La dernière parcelle de sa force vitale s'évanouit…
+« Maître, votre disciple… arrive… » Dun Tian esquissa un sourire en fermant les yeux. La dernière parcelle de sa force vitale s'évanouit…
 
 Un rayon de lumière pourpre et dorée jaillit de son front. Le drapeau des âmes d'un milliard apparut soudainement et, dans un mouvement fluide, la lueur disparut à l'intérieur.
 
@@ -102,13 +102,13 @@ Bien que le drapeau des âmes d'un milliard ait perdu un tiers de ses fragments 
 
 Ce drapeau de près de dix mètres représentait la lignée du Dao de la Secte Lian Hun. Il semblait posséder sa propre volonté alors qu'il flottait vers Wang Lin.
 
-Wang Lin leva la main droite et saisit le drapeau, puis il regarda Du Tian qui souriait avec une expression empreinte de mélancolie et de complexité. Il s'agenouilla et se prosterna trois fois devant lui.
+Wang Lin leva la main droite et saisit le drapeau, puis il regarda Dun Tian qui souriait avec une expression empreinte de mélancolie et de complexité. Il s'agenouilla et se prosterna trois fois devant lui.
 
-« Bien que vous n'ayez pas été mon maître, vous m'avez traité comme votre disciple… Je ne l'oublierai jamais… » La mélancolie dans les yeux de Wang Lin s'intensifia. En vérité, le temps passé avec Du Tian avait été court, mais la bonté de ce dernier était gravée dans son cœur.
+« Bien que vous n'ayez pas été mon maître, vous m'avez traité comme votre disciple… Je ne l'oublierai jamais… » La mélancolie dans les yeux de Wang Lin s'intensifia. En vérité, le temps passé avec Dun Tian avait été court, mais la bonté de ce dernier était gravée dans son cœur.
 
 « Zhu Quezi, un jour je te trouverai et je te ferai payer l'anéantissement de la Secte Lian Hun! » Wang Lin regarda en direction du pays de Suzaku, le regard glacial.
 
-Dans une bourrasque de vent, le corps de Du Tian commença à se désintégrer lentement, comme si tout ce qui constituait cet homme s'effaçait. Seule la mémoire de Wang Lin conservait encore sa silhouette…
+Dans une bourrasque de vent, le corps de Dun Tian commença à se désintégrer lentement, comme si tout ce qui constituait cet homme s'effaçait. Seule la mémoire de Wang Lin conservait encore sa silhouette…
 
 « Le fait que tu aies rencontré cet homme était ta chance. Il est digne d'être commémoré… » Situ Nan soupira. Sa voix n'était plus empreinte d'arrogance alors qu'il songeait à ses vieux amis du passé…
 

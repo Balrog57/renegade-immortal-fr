@@ -10,7 +10,7 @@ Normalement, un mois ne passe pas aussi vite qu'un nuage de fumée devant les ye
 
 En un éclair, dix jours passèrent.
 
-Au cours de ces dix jours, Wang Lin retrouva Fan Shanlu. Elle était la première concubine du Souverain Céleste et possédait le lignage du Continent Astral Immortel. Elle pouvait ainsi franchir la porte pour retourner chez elle.
+Au cours de ces dix jours, Wang Lin retrouva Fan Shanlu. Elle était la première concubine du Souverain Céleste et possédait le lignage du Continent Xian Gang. Elle pouvait ainsi franchir la porte pour retourner chez elle.
 
 Fan Shanlu partit, laissant derrière elle le grand navire. Wang Lin avait déjà perfectionné la Voile Fantôme principale et pouvait désormais la contrôler à sa guise. Il la rangea dans son espace de stockage.
 
@@ -34,7 +34,7 @@ Le deuxième jour après l'installation de Wang Lin, Situ Nan arriva. Il marchai
 
 Situ Nan était resté le même: ses longs cheveux flottaient au vent et sa tenue était décontractée tandis qu'il buvait une gorgée de vin. Il s'assit par terre et contempla les nuages blancs dans le ciel. Bien qu'il paraisse calme, son esprit laissait encore deviner un trouble intérieur.
 
-« Wang Lin, dis-moi, si je me réincarne, pourrais-je devenir un prince du monde mortel du Continent Astral Immortel...? » murmura Situ Nan.
+« Wang Lin, dis-moi, si je me réincarne, pourrais-je devenir un prince du monde mortel du Continent Xian Gang...? » murmura Situ Nan.
 
 Initialement, une atmosphère de séparation pesait sur eux, mais les paroles de Situ dissipèrent largement ce sentiment. Wang Lin sourit, s'empara de la cruche et en prit une longue gorgée.
 
@@ -44,7 +44,7 @@ Initialement, une atmosphère de séparation pesait sur eux, mais les paroles de
 
 « J'ai décidé! Avec le talent de ce vieil homme, ce serait dommage de ne pas mettre un peu de désordre là-bas. Je serai bien plus heureux ainsi! » rit Situ Nan, l'esprit véritablement léger.
 
-« Nous pourrons vivre librement et faire ce que nous voulons sur le Continent Astral Immortel. Ne sera-ce pas amusant? » Il reprit la cruche des mains de Wang Lin et but une grande gorgée.
+« Nous pourrons vivre librement et faire ce que nous voulons sur le Continent Xian Gang. Ne sera-ce pas amusant? » Il reprit la cruche des mains de Wang Lin et but une grande gorgée.
 
 Wang Lin regarda calmement Situ Nan. Leurs regards se croisèrent et, après un long silence, Situ Nan soupira.
 
@@ -56,7 +56,7 @@ Qing Shui fut la deuxième personne à trouver Wang Lin, accompagné de Hongdie.
 
 Qing Shui ne dit mot. Il resta là un long moment, plongé dans le silence. À ses côtés, Hongdie le regardait les yeux légèrement rougis. Il semblait qu'un événement dont Wang Lin ignorait tout s'était produit au moment de leur décision.
 
-« Han Yan, il doit exister un moyen pour que tu retournes sur le Continent Astral Immortel! Alors notre famille pourra enfin être réunie... » Le regard de Qing Shui se posa sur Hongdie avec une tendresse paternelle.
+« Han Yan, il doit exister un moyen pour que tu retournes sur le Continent Xian Gang! Alors notre famille pourra enfin être réunie... » Le regard de Qing Shui se posa sur Hongdie avec une tendresse paternelle.
 
 Outre Situ, Qing Shui et Hongdie, la quatrième personne à arriver fut Treize!
 
@@ -80,7 +80,7 @@ Wang Lin vit en elle l'impuissance et le conflit intérieur, semblables aux sien
 
 « Dois-je partir... » Li Qianmei esquissa un sourire forcé. De sa main semblable au jade, elle écarta une mèche de cheveux et se détourna pour s'en aller.
 
-Wang Lin saisit la main de Li Qianmei et sa voix retentit: « Va sur le Continent Astral Immortel... Attends que je te retrouve, jusqu'à ce que je libère tes souvenirs scellés. Cela pourra prendre dix ans, cent ans ou même mille ans. Toi... accepteras-tu d'attendre? »
+Wang Lin saisit la main de Li Qianmei et sa voix retentit: « Va sur le Continent Xian Gang... Attends que je te retrouve, jusqu'à ce que je libère tes souvenirs scellés. Cela pourra prendre dix ans, cent ans ou même mille ans. Toi... accepteras-tu d'attendre? »
 
 Li Qianmei s'arrêta et se retourna. Elle regarda Wang Lin sans parler, se contentant d'un léger signe de tête.
 
@@ -88,9 +88,9 @@ Li Qianmei s'arrêta et se retourna. Elle regarda Wang Lin sans parler, se conte
 
 À l'instant où il la toucha, deux larmes coulèrent sur les joues de Li Qianmei, mouillant ses vêtements.
 
-« Mon père ne veut pas partir... Il restera ici avec ma mère... Je ne sais pas si je dois partir ou non... Dois-je rester auprès de mon père ou t'attendre sur le Continent Astral Immortel... » Li Qianmei baissa la tête. Dans son cœur, deux voix s'affrontaient, mais lorsque Wang Lin lui prit la main, il n'en resta plus qu'une seule.
+« Mon père ne veut pas partir... Il restera ici avec ma mère... Je ne sais pas si je dois partir ou non... Dois-je rester auprès de mon père ou t'attendre sur le Continent Xian Gang... » Li Qianmei baissa la tête. Dans son cœur, deux voix s'affrontaient, mais lorsque Wang Lin lui prit la main, il n'en resta plus qu'une seule.
 
-« Tu... veux vraiment que j'aille sur le Continent Astral Immortel...? » Elle leva les yeux vers lui, le regard empli de confusion.
+« Tu... veux vraiment que j'aille sur le Continent Xian Gang...? » Elle leva les yeux vers lui, le regard empli de confusion.
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 

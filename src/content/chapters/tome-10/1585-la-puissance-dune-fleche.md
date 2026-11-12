@@ -82,7 +82,7 @@ La tête de la concubine explosa comme celle de l'homme en blanc et son corps se
 
 Ayant tué deux personnes d'affilée, la flèche avait perdu un peu de son élan, mais elle conservait une puissance monstrueuse. Elle fonça alors vers la troisième personne: la femme qui avait utilisé le sort de divination!
 
-Cette femme avait été témoin de la mort de l'homme en blanc puis de celle de sa sœur. Son visage était empreint d'une misère profonde. Bien que son corps ne fût qu'une projection et qu'une mort normale n'aurait pas eu de conséquences graves, mourir sous ce tir infligerait des blessures terribles à son corps originel. Cette flèche n'appartenait pas à ce monde; elle venait de sa terre natale, c'était un trésor célèbre de la famille Li, renommé sur tout le Continent Astral Immortel!
+Cette femme avait été témoin de la mort de l'homme en blanc puis de celle de sa sœur. Son visage était empreint d'une misère profonde. Bien que son corps ne fût qu'une projection et qu'une mort normale n'aurait pas eu de conséquences graves, mourir sous ce tir infligerait des blessures terribles à son corps originel. Cette flèche n'appartenait pas à ce monde; elle venait de sa terre natale, c'était un trésor célèbre de la famille Li, renommé sur tout le Continent Xian Gang!
 
 Sombrant dans le désespoir, la femme cessa de fuir. Elle se retourna pour faire face au projectile qui grandissait jusqu'à envahir tout son champ de vision. Elle ferma les yeux.
 

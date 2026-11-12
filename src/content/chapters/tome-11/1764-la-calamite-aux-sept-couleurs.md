@@ -26,7 +26,7 @@ L'expression du Daoïste aux Sept Couleurs changea, tout comme celle des trois g
 
 « J'avais déjà remarqué la présence d'une bête féroce en ces lieux, mais c'est un Poisson-Œil... Un Poisson-Œil ayant grandi sans aucune restriction... Il a fallu d'innombrables années pour qu'il atteigne cette taille... » Le Souverain prit une profonde inspiration, observant le Poisson-Œil avec un visage grave.
 
-« Le Continent Astral Immortel possède une bête nommée le Poisson-Œil... De sa naissance jusqu'à sa mort, ses yeux ne s'ouvrent jamais! Cependant, une légende raconte qu'une fois leurs yeux ouverts, le monde changera de couleur! » Le Général de la Tortue Noire contemplait la créature en songeant à ces rumeurs.
+« Le Continent Xian Gang possède une bête nommée le Poisson-Œil... De sa naissance jusqu'à sa mort, ses yeux ne s'ouvrent jamais! Cependant, une légende raconte qu'une fois leurs yeux ouverts, le monde changera de couleur! » Le Général de la Tortue Noire contemplait la créature en songeant à ces rumeurs.
 
 Le Poisson-Œil se remit en mouvement et chargea le Daoïste aux Sept Couleurs. La bête nourrissait une rancœur profonde, car la paume du Daoïste lui avait infligé une grande douleur. Elle fonça de nouveau pour tenter de le dévorer.
 

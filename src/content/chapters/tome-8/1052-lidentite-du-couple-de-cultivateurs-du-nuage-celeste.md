@@ -12,11 +12,11 @@ Zhou Yi afficha une expression satisfaite en regardant Wang Lin et secoua la tê
 
 « Qui t'a blessé si gravement?! Ton âme originelle est vacillante, et parce que ta récupération est trop lente, cela engendrera davantage de dangers cachés à l'avenir! » Un frisson passa dans l'expression de Zhou Yi.
 
-Wang Lin eut un sourire amer et expliqua simplement à Zhou Yi ce qui s'était passé avec le Maître du Vide. Il ne mentionna pas l'origine et parla seulement du réveil de l'Oiseau Vermillon. Ce n'était pas que Wang Lin ne faisait pas confiance à Zhou Yi, mais la question de l'origine était tout simplement trop importante.
+Wang Lin eut un sourire amer et expliqua simplement à Zhou Yi ce qui s'était passé avec Xu Kongzi. Il ne mentionna pas l'origine et parla seulement du réveil de Suzaku. Ce n'était pas que Wang Lin ne faisait pas confiance à Zhou Yi, mais la question de l'origine était tout simplement trop importante.
 
-« Maître du Vide! » Une lueur froide brilla dans les yeux de Zhou Yi, et une pointe de culpabilité apparut dans son regard envers Wang Lin.
+« Xu Kongzi! » Une lueur froide brilla dans les yeux de Zhou Yi, et une pointe de culpabilité apparut dans son regard envers Wang Lin.
 
-« Si ce n'était pas pour avoir ramené Qing Shuang, il n'aurait pas été dans un tel danger... Maître du Vide, je me souviendrai de cette personne! » Zhou Yi hocha la tête et n'insista pas, mais il grava le nom de Maître du Vide dans son cœur. Blesser Wang Lin, qui était venu lui apporter Qing Shuang, revenait à franchir sa limite. Si l'occasion se présentait, compte tenu de la personnalité de Zhou Yi, il ferait payer un terrible prix au Maître du Vide.
+« Si ce n'était pas pour avoir ramené Qing Shuang, il n'aurait pas été dans un tel danger... Xu Kongzi, je me souviendrai de cette personne! » Zhou Yi hocha la tête et n'insista pas, mais il grava le nom de Xu Kongzi dans son cœur. Blesser Wang Lin, qui était venu lui apporter Qing Shuang, revenait à franchir sa limite. Si l'occasion se présentait, compte tenu de la personnalité de Zhou Yi, il ferait payer un terrible prix à Xu Kongzi.
 
 « Tu es probablement venu pour les pilules ici, bien que la plupart aient déjà été prises par le couple de cultivateurs du Nuage Céleste. Les seules qui restent sont celles qui sont utiles aux corps spirituels. Ils ne les ont pas prises car leur méthode de stockage est très complexe. » Alors que Zhou Yi parlait, il changea soudainement de sujet: « Mais ne t'inquiète pas, je trouverai un moyen de t'obtenir ces pilules! »
 

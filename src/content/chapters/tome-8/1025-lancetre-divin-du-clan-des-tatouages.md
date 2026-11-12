@@ -14,17 +14,17 @@ Wang Lin tenait Situ Nan par une prise à distance, tandis que toute son énergi
 
 Alors que la mer de flammes brûlait en craquant, l'aura maléfique était constamment consumée, l'empêchant de s'approcher.
 
-Si cette aura maléfique pénétrait dans le corps de Wang Lin, elle stopperait le flux de son énergie originelle. Bien que celle-ci contînt la Flamme Divine de l'Oiseau Vermillon, il n'osait prendre un tel risque.
+Si cette aura maléfique pénétrait dans le corps de Wang Lin, elle stopperait le flux de son énergie originelle. Bien que celle-ci contînt la Flamme Divine de Suzaku, il n'osait prendre un tel risque.
 
 En s'appuyant sur la force centrifuge et la mer de flammes, Wang Lin parvint à peine à remonter de 1 000 pieds. Il poussa un rugissement et projeta Situ Nan vers le haut.
 
 Le corps de Situ Nan fut lancé au-delà de Wang Lin. Simultanément, ce dernier injecta une parcelle d'énergie originelle dans le corps de son compagnon.
 
-L'énergie originelle de Wang Lin, imprégnée de la Flamme Divine de l'Oiseau Vermillon, était d'une chaleur terrifiante. La culture de Situ Nan avait été affectée par l'aura maléfique, une force glaciale puissante qui avait gelé le mouvement de son énergie originelle.
+L'énergie originelle de Wang Lin, imprégnée de la Flamme Divine de Suzaku, était d'une chaleur terrifiante. La culture de Situ Nan avait été affectée par l'aura maléfique, une force glaciale puissante qui avait gelé le mouvement de son énergie originelle.
 
 Lorsque l'énergie de Wang Lin pénétra en lui, la chaleur extrême relâcha le blocage qui entravait sa propre énergie. La culture de Situ Nan n'était pas faible et, grâce à l'aide de Wang Lin, des craquements résonnèrent dans son corps tandis qu'il se forçait à s'élancer plus haut dans les airs.
 
-Si la silhouette vague avait été à son apogée, une seule parcelle d'aura maléfique aurait privé Situ Nan et Wang Lin de toute chance de fuite. Cependant, cette figure était scellée ici depuis des éons, et la Flamme Divine de l'Oiseau Vermillon de Wang Lin était si pure qu'ils avaient une chance de s'en sortir.
+Si la silhouette vague avait été à son apogée, une seule parcelle d'aura maléfique aurait privé Situ Nan et Wang Lin de toute chance de fuite. Cependant, cette figure était scellée ici depuis des éons, et la Flamme Divine de Suzaku de Wang Lin était si pure qu'ils avaient une chance de s'en sortir.
 
 Les longs cheveux de Situ Nan flottaient au vent alors que son énergie originelle reprenait sa course. Bien que des séquelles subsistent, ce moment critique n'était pas celui des soins. Alors qu'il bondissait vers le haut, sa main droite forma un sceau sans hésiter et il tendit la main!
 
@@ -62,7 +62,7 @@ Des brins d'énergie de la boucherie surgirent du vide pour encercler la zone. D
 
 Sous le commandement du doigt pointé de Tian Yunzi en robe grise, les innombrables filaments d'énergie de la boucherie convergèrent de toutes les directions. Ils se condensèrent en un seul brin massif qui chargea la main droite de la silhouette vague.
 
-À l'apparition de Tian Yunzi en robe grise, les pupilles du Maître du Vide, qui portait la belle femme d'âge moyen et la présumée Sainte de Kun Xu, se rétractèrent. Il murmura: « Robe grise... »
+À l'apparition de Tian Yunzi en robe grise, les pupilles de Xu Kongzi, qui portait la belle femme d'âge moyen et la présumée Sainte de Kun Xu, se rétractèrent. Il murmura: « Robe grise... »
 
 Le visage de Tian Yunzi en robe grise était sombre et glacial. Pointant sa main droite, il déclara calmement:
 
@@ -106,9 +106,9 @@ Profitant de cette onde de choc, Wang Lin et Situ Nan accélérèrent leur ascen
 
 « Tian Yunzi... »
 
-Maître du Vide prit une profonde inspiration en fixant Tian Yunzi en robe grise. Il n'oublierait jamais comment cet homme avait pénétré dans l'Alliance pour vaincre d'innombrables cultivateurs puissants, certains membres du groupe des Anciens n'étant pas de taille face à lui. Il avait même tué un Ancien par la force pour intégrer leurs rangs!
+Xu Kongzi prit une profonde inspiration en fixant Tian Yunzi en robe grise. Il n'oublierait jamais comment cet homme avait pénétré dans l'Alliance pour vaincre d'innombrables cultivateurs puissants, certains membres du groupe des Anciens n'étant pas de taille face à lui. Il avait même tué un Ancien par la force pour intégrer leurs rangs!
 
-« Ce qui est encore plus effrayant, c'est ce pouvoir terrifiant de la Loi qui lui permet de tout prévoir. S'il est redoutable lorsqu'il massacre, c'est son regard capable de tout percer lorsqu'il ne combat pas qui a captivé l'attention de l'Alliance... » Maître du Vide observa Tian Yunzi en robe grise, puis le corps originel de Tian Yunzi qui avait sauvé Ling Tianhou.
+« Ce qui est encore plus effrayant, c'est ce pouvoir terrifiant de la Loi qui lui permet de tout prévoir. S'il est redoutable lorsqu'il massacre, c'est son regard capable de tout percer lorsqu'il ne combat pas qui a captivé l'attention de l'Alliance... » Xu Kongzi observa Tian Yunzi en robe grise, puis le corps originel de Tian Yunzi qui avait sauvé Ling Tianhou.
 
 « C'est uniquement parce que ce Senior Frère craignait cet homme qu'il a sacrifié sa longévité et accepté que son troisième Fléau Céleste arrive prématurément pour lancer un sort puissant utilisant Ling Tianhou afin de briser le cœur Dao de cet homme. Cela a créé une faille dans son cœur Dao lors de son deuxième Fléau Céleste, faisant éclater son cœur en d'innombrables morceaux et l'empêchant de fusionner!
 
@@ -130,7 +130,7 @@ La femme s'arrêta à 2 000 pieds de tout le monde. Elle leva ses orbites vides 
 
 « Existe-t-il encore des descendants du Clan Fu Wen? » Une voix rauque sortit de sa bouche, empreinte d'un pouvoir mystérieux. Bien que rauque, elle était mélodieuse et semblait résonner longuement à l'oreille.
 
-Face à cette question soudaine, personne n'osa parler. Après un long silence, Maître du Vide prit une expression respectueuse et déclara: « Il reste encore de nombreux membres du Clan Fu Wen en vie. »
+Face à cette question soudaine, personne n'osa parler. Après un long silence, Xu Kongzi prit une expression respectueuse et déclara: « Il reste encore de nombreux membres du Clan Fu Wen en vie. »
 
 La femme resta pensive et poussa un soupir. Elle avait lutté pour sortir des profondeurs du Bassin Funéraire Céleste pour rien d'autre que poser cette question et voir une seule personne. Ses orbites vides semblèrent libérer un regard invisible qui se posa sur Wang Lin.
 

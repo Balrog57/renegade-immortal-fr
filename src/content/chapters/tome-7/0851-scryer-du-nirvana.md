@@ -16,7 +16,7 @@ Après avoir médité silencieusement un instant, Wang Lin se leva et, d'un simp
 
 D'un pas, Wang Lin s'éclipsa pour fusionner avec le monde. Lorsqu'il réapparut, il se trouvait parmi les étoiles. Sans s'attarder, il disparut de nouveau rapidement.
 
-« D'abord, je dois trouver Li Yuan et obtenir la restriction du cœur! Si quiconque ose se mettre sur mon chemin, j'activerai la rétribution divine et emprunterai leur pouvoir pour m'aider à la surmonter! » Les yeux de Wang Lin étaient glacials. Il avait déjà affronté la rétribution divine à plusieurs reprises et ne ressentait plus l'effroi qu'il éprouvait autrefois.
+« D'abord, je dois trouver Li Yuan et obtenir la restriction du cœur! Si quiconque ose se mettre sur mon chemin, j'activerai la Tribulation Céleste et emprunterai leur pouvoir pour m'aider à la surmonter! » Les yeux de Wang Lin étaient glacials. Il avait déjà affronté la Tribulation Céleste à plusieurs reprises et ne ressentait plus l'effroi qu'il éprouvait autrefois.
 
 À cet instant, il fusionna avec le monde et fonça vers le Domaine Sud. La famille Li se trouvait dans le Domaine Sud, sur la planète Pomie.
 
@@ -60,7 +60,7 @@ Un éclair de froideur traversa son regard alors qu'il levait la tête vers le c
 
 Yao Yun progressait rapidement à travers l'espace, l'expression impassible. Soudain, son visage se décomposa en voyant une masse de nuages rouges s'accumuler. Ces nuages différaient radicalement de ceux qu'il avait sous ses pieds; ils contenaient une puissance qui le terrifiait.
 
-« Ceci... Ceci est un nuage de rétribution divine! » Ses pupilles se rétractèrent brusquement. Il avait atteint le stade initial du Purificateur du Nirvana il y a des milliers d'années, mais pour une raison inconnue, sa culture avait régressé au milieu du stade Scruteur du Nirvana. Non seulement cela, mais il semblait avoir perdu la mémoire. En particulier, ses souvenirs de son départ de la Planète Xue Shen, des millénaires plus tôt, étaient totalement embrumés.
+« Ceci... Ceci est un nuage de Tribulation Céleste! » Ses pupilles se rétractèrent brusquement. Il avait atteint le stade initial du Purificateur du Nirvana il y a des milliers d'années, mais pour une raison inconnue, sa culture avait régressé au milieu du stade Scruteur du Nirvana. Non seulement cela, mais il semblait avoir perdu la mémoire. En particulier, ses souvenirs de son départ de la Planète Xue Shen, des millénaires plus tôt, étaient totalement embrumés.
 
 Il avait beau s'efforcer, il ne parvenait à rien se remémorer.
 
@@ -80,7 +80,7 @@ Se sentant impuissant, il s'était muré dans la zone interdite de sa famille, s
 
 Il avait obtenu tous les détails sur cette cible auprès de l'Ancêtre afin de maîtriser la situation.
 
-À cet instant précis, face au nuage de rétribution divine, une onde de choc frappa son esprit. Ce choc ne venait pas seulement de lui, mais d'une part immense de son âme. C'était comme si ce nuage de rétribution divine était son ennemi naturel.
+À cet instant précis, face au nuage de Tribulation Céleste, une onde de choc frappa son esprit. Ce choc ne venait pas seulement de lui, mais d'une part immense de son âme. C'était comme si ce nuage de Tribulation Céleste était son ennemi naturel.
 
 Le sentiment fut si violent qu'il devint une douleur atroce, comme si un pieu avait été planté dans son cerveau. Cette souffrance injecta ses yeux de sang.
 
@@ -92,7 +92,7 @@ C'était un visage démoniaque doté de deux cornes. Une fois apparu, il fixa le
 
 Ce cri n'avait aucun son, mais il fit trembler les nuages de rétribution et provoqua l'effondrement d'une partie d'entre eux. Cependant, les fragments qui tombaient se reformaient instantanément à une vitesse encore plus grande.
 
-En un clin d'œil, la zone fut saturée par un nuage de rétribution divine de plus de 33 kilomètres de large. Un éclair rouge descendit du ciel à une vitesse inimaginable.
+En un clin d'œil, la zone fut saturée par un nuage de Tribulation Céleste de plus de 33 kilomètres de large. Un éclair rouge descendit du ciel à une vitesse inimaginable.
 
 La douleur sur le visage de Yao Yun s'accentua. L'ombre démoniaque qui l'entourait bondit immédiatement hors de son corps, se précipitant vers l'éclair rouge pour tenter de le dévorer.
 

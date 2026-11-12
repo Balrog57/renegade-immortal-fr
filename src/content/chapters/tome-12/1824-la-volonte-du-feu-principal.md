@@ -16,7 +16,7 @@ Il était rare que la jeune femme puisse détecter cela aussi rapidement. Elle a
 
 Il y avait désormais deux volontés au sein de la veine de feu terrestre. L'une était l'âme du dragon, le propriétaire de la veine, et l'autre était son véritable corps d'essence de feu!
 
-« À mon tour d'attaquer! » Les yeux de Wang Lin s'illuminèrent. Il ne permettrait à personne de perturber le processus de dévoration de son véritable corps d'essence. C'était un changement majeur pour son essence et pour lui-même. En tant qu'être passé du Monde des Grottes au Continent Astral Immortel, cela représenterait une augmentation colossale de sa force!
+« À mon tour d'attaquer! » Les yeux de Wang Lin s'illuminèrent. Il ne permettrait à personne de perturber le processus de dévoration de son véritable corps d'essence. C'était un changement majeur pour son essence et pour lui-même. En tant qu'être passé du Monde des Grottes au Continent Xian Gang, cela représenterait une augmentation colossale de sa force!
 
 Des ondulations résonnèrent sous ses pieds et il disparut en un éclair.
 
@@ -112,7 +112,7 @@ La volonté du feu voulait tout consumer, y compris elle-même. Elle contenait u
 
 Elle allait réduire le Sens Divin de Wang Lin et tout ce qu'il était en cendres!
 
-« Le feu! L'origine de ma compréhension du feu n'est pas l'Oiseau Vermillon, mais le cœur d'une bougie qui oscille sous le vent! »
+« Le feu! L'origine de ma compréhension du feu n'est pas Suzaku, mais le cœur d'une bougie qui oscille sous le vent! »
 
 « Le vent hurle et veut souffler la flamme pour l'éteindre et la transformer en fumée. Pourtant, à chaque bourrasque, la bougie résiste et tremble violemment. Elle refuse de mourir, elle refuse de se changer en fumée! »
 

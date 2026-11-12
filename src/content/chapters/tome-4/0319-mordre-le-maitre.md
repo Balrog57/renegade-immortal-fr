@@ -70,7 +70,7 @@ Sun Tai dit calmement: « La boussole stellaire, l'un des trésors les plus pré
 
 Chi Hu eut un sourire amer. Il serra les dents tout en contrôlant la boussole pour qu'elle navigue à travers le vide.
 
-Les yeux de Sun Tai s'illuminèrent lorsqu'il dit à Wang Lin: « Ceng Niu, ce vide est extrêmement dangereux et cette boussole est trop endommagée pour parcourir une grande distance. Si tu acceptes de lever le sceau, je peux te promettre de te ramener sain et sauf à Suzaku. Qu'en dis-tu? »
+Les yeux de Sun Tai s'illuminèrent lorsqu'il dit à Wang Lin: « Zeng Niu, ce vide est extrêmement dangereux et cette boussole est trop endommagée pour parcourir une grande distance. Si tu acceptes de lever le sceau, je peux te promettre de te ramener sain et sauf à Suzaku. Qu'en dis-tu? »
 
 S'il avait appelé Wang Lin « maître », c'était uniquement parce que Zhou Yi était présent. Il devait au moins feindre son accord. Maintenant que Zhou Yi était mort, comment un cultivateur au stade intermédiaire de la Transformation de l'Âme pourrait-il accepter de devenir un esclave? Hormis la mort, c'était la plus grande des disgrâces.
 

@@ -86,7 +86,7 @@ Cette ombre était une tête. Une tête aussi vaste que le monde, occupant la ma
 
 Ce sentiment émanait de sa lignée, du sang de l'âme qu'il avait obtenu de l'Ancêtre Ancien!
 
-Si Wang Lin s'était rendu auprès du clan de l'Ancien Dao sur le Continent Astral Immortel pour voir la statue imposante dressée dans la cité céleste, qui contemplait le monde avec mépris, il aurait réalisé que la tête apparue était identique à celle de cette statue!
+Si Wang Lin s'était rendu auprès du clan de l'Ancien Dao sur le Continent Xian Gang pour voir la statue imposante dressée dans la cité céleste, qui contemplait le monde avec mépris, il aurait réalisé que la tête apparue était identique à celle de cette statue!
 
 « Ancêtre Ancien! » Au loin, le corps de Xuan Luo trembla. Il contempla la tête avec une immense révérence.
 
@@ -110,4 +110,4 @@ Le sang jaillit du coin de la bouche de Wang Lin et il ne put le contenir. Il re
 
 « J'ai utilisé le pouvoir de "l'Ancien Dao, Aucun Céleste" de force, mais il s'est quand même échappé... Je n'aurai pas la force de l'utiliser de nouveau de sitôt. Si j'avais eu l'œil gauche et que mon démon ancien avait été à neuf étoiles, cette bataille n'aurait pas été si difficile! »
 
-« Je ne suis toujours pas son égal... Peu importe, je me rendrai à la cinquième fleur pour trouver la véritable porte. J'ouvrirai alors la grande porte du monde caverneux et j'emprunterai la puissance du Continent Astral Immortel pour le sceller! » Wang Lin poussa un long soupir et disparut de l'Ancienne Tombe en plein effondrement.
+« Je ne suis toujours pas son égal... Peu importe, je me rendrai à la cinquième fleur pour trouver la véritable porte. J'ouvrirai alors la grande porte du monde caverneux et j'emprunterai la puissance du Continent Xian Gang pour le sceller! » Wang Lin poussa un long soupir et disparut de l'Ancienne Tombe en plein effondrement.

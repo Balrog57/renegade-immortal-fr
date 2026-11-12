@@ -42,7 +42,7 @@ Finalement, Lian Daofei fut gravement blessé et dévoré par le Dao Céleste, d
 
 « C'est là tout le secret de ce monde caverneux! »
 
-Une vague immense déferla dans le cœur de Wang Lin. Plus tôt, Wang Lin avait pu rester calme lorsque cette femme parlait du Continent Astral Immortel, mais après avoir entendu tout ceci, il commença à respirer profondément. Il recula de quelques pas, son expression changeant radicalement.
+Une vague immense déferla dans le cœur de Wang Lin. Plus tôt, Wang Lin avait pu rester calme lorsque cette femme parlait du Continent Xian Gang, mais après avoir entendu tout ceci, il commença à respirer profondément. Il recula de quelques pas, son expression changeant radicalement.
 
 Il savait enfin ce qu'était la troisième!
 
@@ -76,11 +76,11 @@ Les faits étaient peut-être légèrement différents, mais c'était là la vé
 
 « Mon objectif est de tuer Sept Couleurs; seule sa mort pourra apaiser ma haine envers lui. Nos buts sont identiques, ce sera une victoire pour nous deux!
 
-« Je peux demander à mon Maître de vous accueillir sur le Continent Astral Immortel afin d'atténuer la pénalité. Je ne veux pas de la Secte Qi Dao. Une fois que Sept Couleurs sera mort, tout vous appartiendra!
+« Je peux demander à mon Maître de vous accueillir sur le Continent Xian Gang afin d'atténuer la pénalité. Je ne veux pas de la Secte Qi Dao. Une fois que Sept Couleurs sera mort, tout vous appartiendra!
 
 « Quant aux autres habitants du monde caverneux, ils ne peuvent pas quitter cet endroit. Ils ne survivraient pas à la pénalité liée au départ. Même mon Maître ne pourrait rien y faire.
 
-« Cependant, j'ai une autre méthode. Bien qu'ils ne puissent pas entrer normalement sur le Continent Astral Immortel, ils peuvent toujours s'y réincarner. En utilisant la méthode de la réincarnation, leurs âmes pourront vous suivre sur le Continent Astral Immortel et, une fois leurs souvenirs éveillés, vous pourrez les retrouver.
+« Cependant, j'ai une autre méthode. Bien qu'ils ne puissent pas entrer normalement sur le Continent Xian Gang, ils peuvent toujours s'y réincarner. En utilisant la méthode de la réincarnation, leurs âmes pourront vous suivre sur le Continent Xian Gang et, une fois leurs souvenirs éveillés, vous pourrez les retrouver.
 
 « C'est la meilleure solution que je puisse concevoir! »
 
@@ -102,11 +102,11 @@ Wang Lin resta plongé dans ses pensées un long moment, levant les yeux vers la
 
 « Ma petite sœur et moi pourrons rester avec vous. Elle pourra être votre concubine et je pourrai être votre partenaire de culture. Ainsi, tout reviendra à son cours naturel.
 
-« Si vous avez d'autres femmes, elles pourront également devenir vos concubines. Même sur le Continent Astral Immortel, si une cultivatrice vous plaît, je pourrai la capturer pour vous afin que nous puissions cultiver ensemble.
+« Si vous avez d'autres femmes, elles pourront également devenir vos concubines. Même sur le Continent Xian Gang, si une cultivatrice vous plaît, je pourrai la capturer pour vous afin que nous puissions cultiver ensemble.
 
 « Sept Couleurs était ainsi autrefois; je l'ai aidé à capturer de nombreuses cultivatrices. Outre ma petite sœur, je l'ai aidé à trouver la plupart de ses huit concubines...
 
-« Avec l'aide de mon Maître, une fois que nous pratiquerons ensemble, nos âmes fusionneront et nos niveaux de culture augmenteront. Grâce au trésor que vous avez obtenu de ce fragment du Domaine Divin Immémorial, nous pourrons vivre libres et sans entrave sur le Continent Astral Immortel. C'est bien mieux que d'être coincé dans un simple monde caverneux! » La femme sourit tandis que ses paroles flottaient lentement vers Wang Lin.
+« Avec l'aide de mon Maître, une fois que nous pratiquerons ensemble, nos âmes fusionneront et nos niveaux de culture augmenteront. Grâce au trésor que vous avez obtenu de ce fragment du Domaine Divin Immémorial, nous pourrons vivre libres et sans entrave sur le Continent Xian Gang. C'est bien mieux que d'être coincé dans un simple monde caverneux! » La femme sourit tandis que ses paroles flottaient lentement vers Wang Lin.
 
 Wang Lin calma son cœur et regarda la femme. Pour une raison quelconque, il songea à une expérience passée.
 

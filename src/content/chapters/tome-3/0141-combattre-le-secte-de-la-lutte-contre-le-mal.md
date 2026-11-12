@@ -152,7 +152,7 @@ Après avoir quitté la grotte, Wang Lin vérifia sa direction et regarda au loi
 
 La froideur dans son regard s'estompa. Il fit un pas, activa la technique d'évasion tellurique et s'élança vers l'horizon. Son but était de trouver davantage d'ossements de bêtes spirituelles. Selon Li Muwan, seule une quantité accrue permettrait à la formation aux neuf squelettes d'atteindre sa puissance maximale. Wang Lin savait qu'il allait bientôt se retirer pour tenter la Formation du Noyau et que, dans un lieu aussi périlleux que la Mer Xiu Mo, il lui fallait une grotte relativement sûre pour éviter tout incident.
 
-Une autre raison était le besoin de crânes de bêtes spirituelles pour fabriquer le fourneau de réaction nécessaire à la technique de raffinage du Sanctuaire du Dieu de la Guerre. Avec les formations et ce fourneau, les ossements étaient devenus une nécessité absolue. Selon le jade de la carte, des bêtes spirituelles rôdaient dans la brume et leurs restes gisaient au fond de la mer.
+Une autre raison était le besoin de crânes de bêtes spirituelles pour fabriquer le fourneau de réaction nécessaire à la technique de raffinage du Temple Zhan Shen. Avec les formations et ce fourneau, les ossements étaient devenus une nécessité absolue. Selon le jade de la carte, des bêtes spirituelles rôdaient dans la brume et leurs restes gisaient au fond de la mer.
 
 Cependant, beaucoup avaient déjà été pillés, et malgré sa marche, Wang Lin n'en trouvait aucun. De plus, l'épaisseur de la brume rendait sa vue inutile; il devait se fier uniquement à son Sens Divin.
 

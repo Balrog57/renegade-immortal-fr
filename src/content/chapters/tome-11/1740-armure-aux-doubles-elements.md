@@ -24,7 +24,7 @@ Une fois sorti, il agita la main droite vers la tour, faisant apparaître un éc
 
 « S'introduire sur la Planète des Cinq Éléments et inverser la Roue du Cœur... Tu as du cran, gamin. Puisque tu es venu aujourd'hui, ne repars pas si vite. Je vais te faire comprendre qu'il y a des lieux où ton clan du Dao Antique ne peut pas pénétrer! » Le vieil homme fixa Wang Lin d'un regard glacial.
 
-« Je te capturerai, puis je laisserai l'un de tes aînés venir assumer tes péchés! » Il ignorait que Wang Lin provenait du Monde des Grottes. Après avoir constaté la puissance du Dao Antique de Wang Lin, il supposa que celui-ci venait également du Continent Astral Immortel, tout comme eux!
+« Je te capturerai, puis je laisserai l'un de tes aînés venir assumer tes péchés! » Il ignorait que Wang Lin provenait du Monde des Grottes. Après avoir constaté la puissance du Dao Antique de Wang Lin, il supposa que celui-ci venait également du Continent Xian Gang, tout comme eux!
 
 Il ne pensait pas que Wang Lin soit venu seul; d'autres membres du clan du Dao Antique étaient probablement présents. Il était fort probable qu'ils ne fussent pas là pour le trésor, mais pour trouver Ye Mo!
 
@@ -36,7 +36,7 @@ Ce fouet était imprégné de la force et de la vitalité du bois. Entre les mai
 
 Le monde sembla changer de couleur; c'était comme si tout devait s'effondrer sous la puissance du fouet!
 
-Le trésor pour lequel la Secte Gui Yi était célèbre résidait dans ses fouets! Ces armes étaient renommées sur le Continent Astral Immortel, chacune possédant des méthodes de fabrication uniques.
+Le trésor pour lequel la Secte Gui Yi était célèbre résidait dans ses fouets! Ces armes étaient renommées sur le Continent Xian Gang, chacune possédant des méthodes de fabrication uniques.
 
 Wang Lin ne pouvait distinguer clairement la forme du fouet, il n'y voyait qu'une lueur verdoyante. Cette lumière qui convergeait vers lui était saturée d'élément bois!
 

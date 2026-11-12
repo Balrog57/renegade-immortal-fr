@@ -128,6 +128,6 @@ Wang Lin ouvrit les yeux, le regard serein. Son Sens Divin scruta le jade et les
 
 Des générations d'ancêtres de la Secte Da Hun avaient consacré un temps incommensurable à créer sept points clés sur le Continent Tian Niu. Ils étaient issus des sept points d'essence du corps du taureau venu d'au-delà des cieux, devenu le Continent Tian Niu.
 
-En ces sept méridiens, on pouvait emprunter la puissance du Taureau Céleste grâce à une formation puissante. Parallèlement, cela apportait de nombreux bénéfices mystérieux aux cultivateurs du continent.
+En ces sept méridiens, on pouvait emprunter la puissance du Tian Niu grâce à une formation puissante. Parallèlement, cela apportait de nombreux bénéfices mystérieux aux cultivateurs du continent.
 
 L'ancêtre de la première génération de la Secte Da Hun avait diviné l'arrivée de Wang Lin ainsi que l'invasion massive du Continent Lu Mo. Comment auraient-ils pu ne rien avoir préparé?

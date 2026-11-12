@@ -64,7 +64,7 @@ Soudain, Dao Yi laissa échapper un léger cri de surprise. Non seulement lui, m
 
 La Mer et la Montagne étaient désormais recouvertes d'une couche d'encre noire. Sous cette encre s'étendait une mer infinie, et au fond se trouvait un trou noir abritant l'Arbre de la Mer et de la Montagne. Des grondements violents émanaient des couches de sceaux qui l'entouraient.
 
-C'était l'attaque de l'Exalté Empyréen Hai Zi. Le sceau ovale avait percuté l'ombre de la paume brisée, mais après son effondrement, celle-ci s'était reformée. Wang Lin leva les deux mains, le tatouage du Taureau Céleste sur son visage fulgurant d'éclat. Sa cultivation augmenta brusquement, et une armure d'âme recouvrit tout son corps alors qu'il déployait son sort le plus puissant!
+C'était l'attaque de l'Exalté Empyréen Hai Zi. Le sceau ovale avait percuté l'ombre de la paume brisée, mais après son effondrement, celle-ci s'était reformée. Wang Lin leva les deux mains, le tatouage du Tian Niu sur son visage fulgurant d'éclat. Sa cultivation augmenta brusquement, et une armure d'âme recouvrit tout son corps alors qu'il déployait son sort le plus puissant!
 
 « Il doit y avoir un Grand Empyréen dehors — que ce soit Wu Feng, Dao Yi ou Jiu Di. Puisque vous voulez tester mon origine et ma force, alors je vais vous montrer de quoi je suis capable! »
 

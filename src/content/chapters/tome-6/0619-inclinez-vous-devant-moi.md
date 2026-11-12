@@ -88,7 +88,7 @@ Au centre de la tribu se trouvait un espace ouvert d'un rayon de cinq kilomètre
 
 Treize se tint à la lisière de l'espace vide et dit respectueusement: « Ancêtre, j'ai amené les invités! »
 
-« Des compagnons de culture sont venus empreints d'intentions meurtrières... Aurais-je offensé l'un d'entre vous? » La voix de Wang Lin émana lentement de la tour. Bien que son ton fût modeste, sa voix semblait porter une puissance démoniaque en son for intérieur. Elle se propagea lentement à travers toute la Tribu de l'Affinement de l'Âme.
+« Des Daoïstes sont venus empreints d'intentions meurtrières... Aurais-je offensé l'un d'entre vous? » La voix de Wang Lin émana lentement de la tour. Bien que son ton fût modeste, sa voix semblait porter une puissance démoniaque en son for intérieur. Elle se propagea lentement à travers toute la Tribu de l'Affinement de l'Âme.
 
 Wang Lin perfectionnait progressivement le sortilège du Son du Démon Céleste tout en renforçant l'empreinte sur le démon dispersé. À cet instant, le sortilège fut propagé par le son. Chaque membre de l'Union de Culture, à l'exception de l'homme en noir, sentit la magie envahir son esprit.
 

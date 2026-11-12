@@ -14,9 +14,9 @@ Sa vitesse était telle qu'il atteignit instantanément le lieu où il restait h
 
 La température des flammes ici était absolument terrifiante; une simple étincelle suffisait à tuer un cultivateur. Pourtant, l'ancêtre du Clan Huo Que demeurait parfaitement indemne et s'approcha rapidement, tenant Liu Jinbiao par la main.
 
-L'expression de Liu Jinbiao était aussi sombre que l'eau alors qu'il lançait un regard glacial à l'ancêtre. Il avait complètement oublié son passé, se mentant à lui-même en croyant être le sixième descendant de l'Oiseau Vermillon!
+L'expression de Liu Jinbiao était aussi sombre que l'eau alors qu'il lançait un regard glacial à l'ancêtre. Il avait complètement oublié son passé, se mentant à lui-même en croyant être le sixième descendant de Suzaku!
 
-Après avoir exercé son pouvoir pendant si longtemps, il avait été capturé par le Clan Huo Que. Cependant, en tant que sixième descendant de l'Oiseau Vermillon, il possédait sa propre fierté. Même face à la mort, il ne supplierait pas pour obtenir grâce.
+Après avoir exercé son pouvoir pendant si longtemps, il avait été capturé par le Clan Huo Que. Cependant, en tant que sixième descendant de Suzaku, il possédait sa propre fierté. Même face à la mort, il ne supplierait pas pour obtenir grâce.
 
 Une porte illusoire se dressait au plus profond de la mer de feu. Un être ordinaire ne pourrait même pas faire un demi-pas à l'intérieur. De plus, avec l'ancêtre pour la garder, cet endroit était extrêmement bien protégé.
 
@@ -26,7 +26,7 @@ Arrivé devant la porte, l'ancêtre du Clan Huo Que fut pris d'une immense excit
 
 Un cultivateur du troisième niveau, l'ancêtre même du Clan Huo Que, était à genoux devant la porte!
 
-« Maître, ce vieil esclave a capturé le sixième descendant de l'Oiseau Vermillon pour vous l'offrir en présent, afin d'aider votre blessure à guérir! »
+« Maître, ce vieil esclave a capturé le sixième descendant de Suzaku pour vous l'offrir en présent, afin d'aider votre blessure à guérir! »
 
 « Maître? » Le cuir chevelu de Liu Jinbiao devint engourdi et ses yeux se remplirent de choc. Tandis qu'il fixait la porte floue, une vague monstrueuse déferla dans son cœur!
 
@@ -36,9 +36,9 @@ La porte resta silencieuse, tandis que l'ancêtre demeurait agenouillé. Il atte
 
 Il allait être tiré de son illusion par l'effroi!
 
-« Sixième descendant de l'Oiseau Vermillon? » Après un moment, une voix indistincte s'échappa de la porte.
+« Sixième descendant de Suzaku? » Après un moment, une voix indistincte s'échappa de la porte.
 
-L'ancêtre du Clan Huo Que trembla et redoubla de déférence. Ses yeux brillèrent d'excitation lorsqu'il répondit promptement: « Ce vieil esclave a mené ses investigations avec soin. J'ai dévoré son sang et fouillé son âme, je ne peux donc me tromper! C'est bien le sixième descendant de l'Oiseau Vermillon! »
+L'ancêtre du Clan Huo Que trembla et redoubla de déférence. Ses yeux brillèrent d'excitation lorsqu'il répondit promptement: « Ce vieil esclave a mené ses investigations avec soin. J'ai dévoré son sang et fouillé son âme, je ne peux donc me tromper! C'est bien le sixième descendant de Suzaku! »
 
 « Ce vieil esclave l'a capturé dans les Terres Déchues! »
 
@@ -80,7 +80,7 @@ Ce dernier trembla, l'extase illuminant son regard.
 
 Le corps de Liu Jinbiao frissonnait. Il ressentait une pression suffocante émanant du feu septicolore où siégeait l'être mystérieux. Cette pression était suffisante pour le tuer des millions de fois!
 
-« Tu n'es pas le sixième descendant de l'Oiseau Vermillon... » La voix floue résonna, pesant lourdement sur l'esprit de Liu Jinbiao. Son cuir chevelu picota et il perdit toute contenance.
+« Tu n'es pas le sixième descendant de Suzaku... » La voix floue résonna, pesant lourdement sur l'esprit de Liu Jinbiao. Son cuir chevelu picota et il perdit toute contenance.
 
 Liu Jinbiao s'effondra à genoux, les yeux inondés d'une peur intense. Sans hésiter, il implora immédiatement: « Seigneur Céleste, pardonnez-moi! Seigneur Céleste, je vous en supplie... Le Junior Liu Jinbiao n'est qu'un simple cultivateur et a été contraint de venir ici par autrui. Si je n'étais pas venu, j'aurais déjà péri. J'espère que le Seigneur Céleste aura pitié. Cet humble serviteur est prêt à tout pour vous servir... »
 
@@ -106,7 +106,7 @@ S'il avait renoncé à son plan à ce moment-là et laissé Liu Jinbiao et les a
 
 Le premier Oiseau Vermillon avait mentionné que la personne se soignant là était probablement le traître, le troisième Oiseau Vermillon, et qu'il éprouvait une haine profonde pour cet individu. S'il n'avait pas été incapable de quitter le monde de Tian Fang, il aurait massacré son chemin jusqu'au traître!
 
-Bien qu'il ne l'ait pas explicitement dit, il avait fait savoir à Wang Lin qu'il pourrait aider son plan et lui permettre d'entrer dans la terre sacrée du Clan Huo Que. Il lui avait également offert une plume d'Oiseau Vermillon en présent.
+Bien qu'il ne l'ait pas explicitement dit, il avait fait savoir à Wang Lin qu'il pourrait aider son plan et lui permettre d'entrer dans la terre sacrée du Clan Huo Que. Il lui avait également offert une plume de Suzaku en présent.
 
 Tout cela pointait vers un problème majeur!
 
@@ -120,4 +120,4 @@ Une certitude de 70 % suffisait pour décider d'entreprendre un acte capable de 
 
 La lumière de la formation clignota frénétiquement et des grondements tonitruants retentirent. La formation tourna jusqu'à former un vortex qui, dans un fracas assourdissant, disparut de la Planète du Grand Empereur. La silhouette de Wang Lin s'évanouit avec elle!
 
-Le vieil Oiseau Vermillon assis au bord du lac ouvrit les yeux. Il fixa longuement l'endroit où Wang Lin avait disparu et murmura doucement: « Premier ancêtre, tu penses toujours qu'il n'appartient pas à notre clan de l'Oiseau Vermillon... Bien qu'il ait passé l'épreuve... Mais je crois qu'il est des nôtres... J'ai désobéi à tes ordres en lui enseignant la technique la plus puissante du Clan Zhu Que sans ta permission... Car c'est ce qu'il aurait dû recevoir une fois l'épreuve accomplie... »
+Le vieil Oiseau Vermillon assis au bord du lac ouvrit les yeux. Il fixa longuement l'endroit où Wang Lin avait disparu et murmura doucement: « Premier ancêtre, tu penses toujours qu'il n'appartient pas à notre clan de Suzaku... Bien qu'il ait passé l'épreuve... Mais je crois qu'il est des nôtres... J'ai désobéi à tes ordres en lui enseignant la technique la plus puissante du Clan Zhu Que sans ta permission... Car c'est ce qu'il aurait dû recevoir une fois l'épreuve accomplie... »

@@ -90,13 +90,13 @@ Wang Lin détourna les yeux de la Mer Dan. Remarquant leurs expressions, il dit 
 
 « Prenez soin de vous! » Tigre Blanc et sa compagnie joignirent les mains. Ils ne dirent pas merci, mais que ce soit pour cette nouvelle ou pour l'oubli des rancunes dans le monde des grottes, ils garderaient cela gravé dans leur cœur.
 
-« Vous aussi, prenez soin de vous! » Wang Lin afficha un sourire sincère. Il leur rendit leur salut et jeta un coup d'œil à l'Oiseau Vermillon.
+« Vous aussi, prenez soin de vous! » Wang Lin afficha un sourire sincère. Il leur rendit leur salut et jeta un coup d'œil à Suzaku.
 
 L'Oiseau Vermillon laissa échapper un soupir, comme s'il avait quelque chose sur le cœur, mais finalement, il resta silencieux. Les trois s'envolèrent rapidement vers la Secte Gui Yi.
 
 Une fois qu'ils disparurent à l'horizon, Wang Lin se tourna de nouveau vers la Mer Dan, une intention meurtrière brillant dans ses yeux.
 
-« Depuis mon arrivée sur le Continent Astral Immortel, je n'ai jamais subi une telle perte! Yun Kong, si je ne profite pas du fait que tu sois blessé pour t'éliminer, je ne pourrai pas me le pardonner! » Les cris de Yi Si résonnaient encore dans son esprit, lui causant une douleur lancinante. La culture de Yun Kong était très étrange; son niveau n'était pas élevé, si l'on excepte cette dévastatrice énergie d'épée!
+« Depuis mon arrivée sur le Continent Xian Gang, je n'ai jamais subi une telle perte! Yun Kong, si je ne profite pas du fait que tu sois blessé pour t'éliminer, je ne pourrai pas me le pardonner! » Les cris de Yi Si résonnaient encore dans son esprit, lui causant une douleur lancinante. La culture de Yun Kong était très étrange; son niveau n'était pas élevé, si l'on excepte cette dévastatrice énergie d'épée!
 
 Wang Lin avait déjà effacé le Sens Divin de Yan Luan de plusieurs trésors qu'il avait obtenus d'elle. La gourde contenant 30 millions d'âmes dao pouvait libérer une attaque extrêmement puissante, même avec une seule chance!
 
@@ -104,4 +104,4 @@ Ayant pris sa décision, il chargea vers la Mer Dan.
 
 Son comportement semblait téméraire, mais il était certain que Yun Kong ne s'attendrait pas à ce qu'il revienne après avoir déployé tant d'efforts pour s'échapper. C'était précisément cela qui rendait Wang Lin si déterminé!
 
-« Si je veux tuer Yun Kong, je dois obtenir la boussole qui contrôle la formation! » C'était la première personne que Wang Lin souhaitait éliminer depuis son arrivée sur le Continent Astral Immortel.
+« Si je veux tuer Yun Kong, je dois obtenir la boussole qui contrôle la formation! » C'était la première personne que Wang Lin souhaitait éliminer depuis son arrivée sur le Continent Xian Gang.

@@ -14,7 +14,7 @@ Au cri de Wang Lin, les cultivateurs restants du Royaume Intérieur furent saisi
 
 « Tuez! »
 
-Parmi ceux qui s'élancèrent avec eux figuraient Qing Lin, Maître Hong Shan, la femme en violet de la Rivière Invoquée, ainsi que Mu Bingmei, la Secte Divine, et d'innombrables cultivateurs du Royaume Intérieur poussés à leurs derniers retranchements.
+Parmi ceux qui s'élancèrent avec eux figuraient Qing Lin, Maître Hong Shan, la femme en violet de Zhao He, ainsi que Mu Bingmei, la Secte Divine, et d'innombrables cultivateurs du Royaume Intérieur poussés à leurs derniers retranchements.
 
 Il restait moins de 80 000 membres du Royaume Intérieur, mais ces 80 000 âmes ne craignaient pas la mort. Sous le rugissement de Wang Lin, ils devinrent fous de rage!
 
@@ -70,7 +70,7 @@ Instantanément, ce coup illusoire percuta la concubine et entra en collision av
 
 Un fracas assourdissant secoua le champ de bataille. Le coup illusoire se brisa, révélant la concubine impériale en pleine retraite, toussant du sang.
 
-Du sang jaillit également du coin de la bouche de Wang Lin. Cette fois, il combattait le corps originel de la concubine, et non une simple ombre comme auparavant. Elle était une intruse, une habitante du Continent Astral Immortel!
+Du sang jaillit également du coin de la bouche de Wang Lin. Cette fois, il combattait le corps originel de la concubine, et non une simple ombre comme auparavant. Elle était une intruse, une habitante du Continent Xian Gang!
 
 La concubine impériale essuya le sang sur ses lèvres, la terreur dans ses yeux s'intensifiant. Elle chérissait sa vie plus que quiconque. Elle savait qu'elle n'était pas de ce monde; ceci n'était qu'un monde caverneux, et son statut était bien supérieur à cette simple grotte. Plus elle y pensait, plus elle craignait la mort.
 
@@ -106,7 +106,7 @@ L'empreinte d'une paume géante fonça sur la concubine dès son apparition.
 
 L'expression de celle-ci changea radicalement et elle forma précipitamment un sceau pour rassembler l'énergie céleste. Une ombre vague se dessina devant elle, mais avant qu'elle ne puisse prendre forme, la voix de Wang Lin pénétra son esprit:
 
-« Cultivatrice du Continent Astral Immortel. Concubine du Maître de la Secte Qi Dao. Penses-tu que je ne sache rien? »
+« Cultivatrice du Continent Xian Gang. Concubine du Maître de la Secte Qi Dao. Penses-tu que je ne sache rien? »
 
 La vérité étant exposée, le sort de la concubine vacilla un instant. Ses yeux se remplirent d'incrédulité; elle n'aurait jamais imaginé que Wang Lin soit au courant!
 

@@ -84,33 +84,33 @@ Peu de gens savaient que, deux ans plus tôt, Hongdie avait obtenu un Chaudron d
 
 La conférence était à moitié terminée lorsqu'un vortex s'ouvrit soudainement dans le ciel et que Hongdie en tomba. Elle avait perdu un bras et ne prononça qu'une seule chose avant de perdre connaissance:
 
-« Ceng Niu! »
+« Zeng Niu! »
 
 C'était le nom que Hongdie avait craché entre ses dents avant de sombrer dans l'inconscience.
 
-Tous les messagers des pays de culture de rang 5 furent stupéfaits. Rapidement, la nouvelle de la perte du bras de Hongdie et du nom de Ceng Niu qu'elle avait crié se répandit comme une traînée de poudre. Le nom de Ceng Niu devint soudainement plus célèbre que celui de Hongdie elle-même; il devint l'étoile la plus brillante de la planète.
+Tous les messagers des pays de culture de rang 5 furent stupéfaits. Rapidement, la nouvelle de la perte du bras de Hongdie et du nom de Zeng Niu qu'elle avait crié se répandit comme une traînée de poudre. Le nom de Zeng Niu devint soudainement plus célèbre que celui de Hongdie elle-même; il devint l'étoile la plus brillante de la planète.
 
-Tout le monde cherchait à savoir de quelle planète ce Ceng Niu pouvait bien venir.
+Tout le monde cherchait à savoir de quelle planète ce Zeng Niu pouvait bien venir.
 
-À un certain moment, Hongdie se réveilla et révéla l'identité de son agresseur: « Ce Ceng Niu est de Suzaku, il appartient à la famille Ceng! » Dès que cette information fut révélée, toute la planète fut sous le choc.
+À un certain moment, Hongdie se réveilla et révéla l'identité de son agresseur: « Ce Zeng Niu est de Suzaku, il appartient à la famille Ceng! » Dès que cette information fut révélée, toute la planète fut sous le choc.
 
-La première réaction fut celle des ancêtres de la famille Ceng qui consultèrent leurs registres familiaux. Ils y trouvèrent effectivement un certain Ceng Niu. Cependant, ce membre de la famille n'avait pas encore trente ans et n'était qu'au stade de l'Établissement des Fondations. L'ancêtre prit le jeune homme et les registres avec lui à Suzaku pour prouver leur innocence.
+La première réaction fut celle des ancêtres de la famille Ceng qui consultèrent leurs registres familiaux. Ils y trouvèrent effectivement un certain Zeng Niu. Cependant, ce membre de la famille n'avait pas encore trente ans et n'était qu'au stade de l'Établissement des Fondations. L'ancêtre prit le jeune homme et les registres avec lui à Suzaku pour prouver leur innocence.
 
-En conséquence, les rumeurs concernant Ceng Niu devinrent un sujet de conversation majeur parmi les cultivateurs. Beaucoup cherchaient à découvrir la véritable identité de ce mystérieux individu, mais sans succès. Le pays de Suzaku réagissait à tout cela avec une indifférence inhabituelle, comme si rien ne s'était passé.
+En conséquence, les rumeurs concernant Zeng Niu devinrent un sujet de conversation majeur parmi les cultivateurs. Beaucoup cherchaient à découvrir la véritable identité de ce mystérieux individu, mais sans succès. Le pays de Suzaku réagissait à tout cela avec une indifférence inhabituelle, comme si rien ne s'était passé.
 
-L'individu nommé Ceng Niu devint le jeune prodige numéro un de Suzaku. Bien que la famille Ceng ait affirmé que ce Ceng Niu n'était pas le Ceng Niu en question, peu de gens les croyaient et de nombreux visiteurs vinrent les interroger. Cela plongea le véritable Ceng Niu dans la terreur, tout en lui procurant une pointe de fierté.
+L'individu nommé Zeng Niu devint le jeune prodige numéro un de Suzaku. Bien que la famille Ceng ait affirmé que ce Zeng Niu n'était pas le Zeng Niu en question, peu de gens les croyaient et de nombreux visiteurs vinrent les interroger. Cela plongea le véritable Zeng Niu dans la terreur, tout en lui procurant une pointe de fierté.
 
-L'affaire refit surface brusquement lorsque le jeune maître du Clan Ju Mo revint il y a trois jours. Le retour de Chi Hu attira une foule de visiteurs, et Suzaku envoya même un émissaire pour enquêter sur l'affaire Ceng Niu.
+L'affaire refit surface brusquement lorsque le jeune maître du Clan Ju Mo revint il y a trois jours. Le retour de Chi Hu attira une foule de visiteurs, et Suzaku envoya même un émissaire pour enquêter sur l'affaire Zeng Niu.
 
-Chi Hu ne dit pas un mot sur l'identité de Ceng Niu, et lorsqu'il fut pressé par le messager de Suzaku, il se contenta de dire: « Je ne connais pas le vrai nom de cette personne, je sais seulement qu'on l'appelle Ceng Niu. Sa culture est impénétrable, et quant à sa rancœur envers Hongdie, j'en ignore la raison. Cependant, d'après ce que j'ai vu, c'est la cultivatrice Hongdie qui a continué à agir contre lui. Finalement, Ceng Niu a été contraint de réagir. Si j'ai proféré le moindre mensonge, alors que mon âme se dissipe! »
+Chi Hu ne dit pas un mot sur l'identité de Zeng Niu, et lorsqu'il fut pressé par le messager de Suzaku, il se contenta de dire: « Je ne connais pas le vrai nom de cette personne, je sais seulement qu'on l'appelle Zeng Niu. Sa culture est impénétrable, et quant à sa rancœur envers Hongdie, j'en ignore la raison. Cependant, d'après ce que j'ai vu, c'est la cultivatrice Hongdie qui a continué à agir contre lui. Finalement, Zeng Niu a été contraint de réagir. Si j'ai proféré le moindre mensonge, alors que mon âme se dissipe! »
 
-Après avoir déclaré cela, Chi Hu entra immédiatement en culture de méditation et refusa de recevoir quiconque. Cette déclaration fut divulguée et se propagea comme une traînée de poudre, faisant ressurgir le nom de Ceng Niu partout, plus célèbre que jamais.
+Après avoir déclaré cela, Chi Hu entra immédiatement en culture de méditation et refusa de recevoir quiconque. Cette déclaration fut divulguée et se propagea comme une traînée de poudre, faisant ressurgir le nom de Zeng Niu partout, plus célèbre que jamais.
 
-Par la suite, une fois rétablie, Hongdie envoya un message à travers Suzaku: « Ceng Niu, notre combat n'est pas terminé! Je t'attends! »
+Par la suite, une fois rétablie, Hongdie envoya un message à travers Suzaku: « Zeng Niu, notre combat n'est pas terminé! Je t'attends! »
 
-« Ceng Niu, qui es-tu au juste?! » Cette question brûlait non seulement les cœurs de Chi Hu et de Hongdie, mais aussi l'esprit de tous. Qui était réellement ce Ceng Niu? Bien que Hongdie ait enregistré une image, Suzaku ne le publia jamais. Personne ne savait ce que les autorités de Suzaku tramaient.
+« Zeng Niu, qui es-tu au juste?! » Cette question brûlait non seulement les cœurs de Chi Hu et de Hongdie, mais aussi l'esprit de tous. Qui était réellement ce Zeng Niu? Bien que Hongdie ait enregistré une image, Suzaku ne le publia jamais. Personne ne savait ce que les autorités de Suzaku tramaient.
 
-Dans une petite secte d'un pays de culture de rang 4, un homme d'âge mûr marmonna pour lui-même: « Ceng Niu... c'est le nom de mon père. Il s'appelait Ceng Daniu... »
+Dans une petite secte d'un pays de culture de rang 4, un homme d'âge mûr marmonna pour lui-même: « Zeng Niu... c'est le nom de mon père. Il s'appelait Ceng Daniu... »
 
 Des nuages couvraient le ciel dans la région où Wang Lin était entré dans le Royaume Céleste. La foudre déchirait les cieux et une pluie incessante tombait. Cette tempête durait déjà depuis plus d'un mois. Très peu de cultivateurs sortaient sous cette pluie, et encore moins de mortels.
 
@@ -120,8 +120,8 @@ La jeune fille rit: « Maître, voyager sous cette pluie consomme beaucoup d'én
 
 Le vieil homme sourit: « C'est vrai. Si tu restes aussi diligente, tu pourras atteindre le stade de la Formation du Noyau d'ici dix ans! »
 
-La jeune fille demanda soudainement: « Maître, à quel niveau de culture pensez-vous que Ceng Niu ait atteint pour pouvoir arracher un bras à Hongdie? Pourrait-il avoir atteint le légendaire stade de la Transformation de l'Âme? »
+La jeune fille demanda soudainement: « Maître, à quel niveau de culture pensez-vous que Zeng Niu ait atteint pour pouvoir arracher un bras à Hongdie? Pourrait-il avoir atteint le légendaire stade de la Transformation de l'Âme? »
 
-« Ceng Niu... est un aîné bien au-dessus de nous. Comment quelqu'un comme moi pourrait-il le juger? Cependant, je suppose que cet homme est un cultivateur au stade avancé de la Formation de l'Âme plutôt qu'en Transformation de l'Âme; sinon, Hongdie n'aurait pas seulement perdu un bras, elle serait morte. »
+« Zeng Niu... est un aîné bien au-dessus de nous. Comment quelqu'un comme moi pourrait-il le juger? Cependant, je suppose que cet homme est un cultivateur au stade avancé de la Formation de l'Âme plutôt qu'en Transformation de l'Âme; sinon, Hongdie n'aurait pas seulement perdu un bras, elle serait morte. »
 
 Un rugissement tonnerre retentit à leurs oreilles juste au moment où le vieil homme terminait sa phrase. Soudain, la foudre redoubla d'intensité dans le ciel et, au cœur des éclairs, un vortex gigantesque apparut.

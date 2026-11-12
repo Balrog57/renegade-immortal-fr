@@ -50,7 +50,7 @@ Alors que le Vieux Fantôme Zhan progressait, on vit clairement, à l'extérieur
 
 C'est à cet instant que le monde de la grotte connut un bouleversement sans précédent. Toute forme de vie commença à paniquer! Simultanément, cette force déchira l'Ancien Royaume Céleste dans le Royaume Extérieur que Wang Lin avait scellé à l'aide de l'arc de Li Guang. Bien que la majeure partie se soit effondrée, quelques disciples de la Secte Qi Dao survécurent. Lorsque le sceau fut rompu, ils s'en échappèrent et, malgré leur choc, se précipitèrent vers Luotian sans hésiter!
 
-Il y avait aussi la femme qui n'était pas allée dans le Royaume Céleste mais était restée sur une planète de la Rivière Invoquée. Cette femme, nommée Zi Xia, était l'une des concubines. Elle réfléchit silencieusement un instant avant de serrer les dents et de s'élancer.
+Il y avait aussi la femme qui n'était pas allée dans le Royaume Céleste mais était restée sur une planète de Zhao He. Cette femme, nommée Zi Xia, était l'une des concubines. Elle réfléchit silencieusement un instant avant de serrer les dents et de s'élancer.
 
 Tandis que tout le monde de la grotte basculait, les grandes plaques commençaient à charger vers Luotian. Dans le Système Stellaire Kun Xu, sur la planète cachée des Cinq Éléments, le groupe de cultivateurs mené par le vieil homme nommé Ma hésita un court instant. Puis, dans un soupir, ils se précipitèrent vers Luotian!
 
@@ -64,7 +64,7 @@ Le monde de la grotte grondait violemment et le brouillard se mouvait comme une 
 
 Soudain, une voix puissante résonna dans l'esprit de Situ Nan et de Qing Shui. Cette voix était celle de Lanmeng Daozun!
 
-« J'avais promis à Wang Lin de l'aider... Cet endroit étrange s'est ouvert, mais ne possédant pas le lignage du Continent Astral Immortel, je ne peux y pénétrer. Je dois emprunter vos âmes... Êtes-vous d'accord? »
+« J'avais promis à Wang Lin de l'aider... Cet endroit étrange s'est ouvert, mais ne possédant pas le lignage du Continent Xian Gang, je ne peux y pénétrer. Je dois emprunter vos âmes... Êtes-vous d'accord? »
 
 Les nuages de brume et les fragments de dalles affluèrent de toutes les directions du monde de la grotte pour converger vers Luotian!
 

@@ -38,17 +38,17 @@ Les trésors « Pseudo-Vide du Nirvana » étaient eux-mêmes divisés, de faço
 
 « Il peut absorber l'intention meurtrière d'un cultivateur, générer une illusion et posséder une telle puissance... Le trésor entre les mains de Wang Lin est au moins un Pseudo-Vide du Nirvana de haute qualité, et il pourrait même s'agir d'un Pseudo-Vide du Nirvana parfait! » La belle femme eut un souffle coupé, la terreur brillant dans ses yeux.
 
-Alors qu'ils étaient plongés dans leurs réflexions, un rugissement retentit à l'extérieur. L'homme en noir bondit immédiatement entre les statues et imita Wang Lin pour quitter les lieux. Maître du Vide et la belle femme s'envolèrent également.
+Alors qu'ils étaient plongés dans leurs réflexions, un rugissement retentit à l'extérieur. L'homme en noir bondit immédiatement entre les statues et imita Wang Lin pour quitter les lieux. Xu Kongzi et la belle femme s'envolèrent également.
 
 À cet instant, au deuxième étage de la Grotte Xian Di, un éclair de lumière violette jaillit près d'un pavillon proche du centre de l'étage. La silhouette de Wang Lin émergea de cette lueur.
 
-« Un cultivateur briseur de Nirvana est étonnamment difficile à tuer. Maître du Vide est gravement blessé, mais il n'est pas encore mort! Il y a aussi cette belle femme, et maintenant... » En apparaissant, Wang Lin cracha immédiatement une bouchée de sang, montrant un signe de fatigue inhabituel.
+« Un cultivateur briseur de Nirvana est étonnamment difficile à tuer. Xu Kongzi est gravement blessé, mais il n'est pas encore mort! Il y a aussi cette belle femme, et maintenant... » En apparaissant, Wang Lin cracha immédiatement une bouchée de sang, montrant un signe de fatigue inhabituel.
 
 « Cependant, cette épée de fer dépassait mon imagination. Je ne pensais pas qu'elle posséderait une telle puissance. Si je pouvais obtenir les cinq épées de fer pour compléter les fourreaux et les utiliser... » Wang Lin prit une profonde inspiration et secoua la tête. S'il tentait de les utiliser simultanément, il serait probablement réduit à une coquille desséchée en un instant!
 
 Il rengaina l'épée de fer et la rangea dans sa sacoche. Wang Lin sortit quelques pilules et les avala. Sans attendre qu'elles soient digérées, il serra les dents et avança.
 
-Il était à bout de forces et n'avait pu terroriser l'homme en noir et la belle femme qu'en s'appuyant sur l'élan de la blessure grave infligée au Maître du Vide. Autrement, si les deux l'avaient attaqué, Wang Lin serait sans aucun doute mort.
+Il était à bout de forces et n'avait pu terroriser l'homme en noir et la belle femme qu'en s'appuyant sur l'élan de la blessure grave infligée à Xu Kongzi. Autrement, si les deux l'avaient attaqué, Wang Lin serait sans aucun doute mort.
 
 À cet instant, il n'avait pas le temps de s'asseoir pour récupérer. Il devait profiter de sa connaissance de la disposition de la grotte pour mettre de la distance entre lui et ses poursuivants.
 
@@ -56,9 +56,9 @@ Après une profonde inspiration, Wang Lin traversa les diverses restrictions et 
 
 Il traîna son corps épuisé vers le palais central entouré de brume. Les six premiers étages de la Grotte Xian Di présentaient une structure similaire. Grâce à sa connaissance des lieux, bien qu'il fût plus lent que d'habitude, il atteignit rapidement le centre du deuxième étage, là où se trouvait l'entrée du troisième.
 
-Au même moment, l'homme en noir, la belle femme et Maître du Vide, lourdement blessé, arrivèrent également au deuxième étage.
+Au même moment, l'homme en noir, la belle femme et Xu Kongzi, lourdement blessé, arrivèrent également au deuxième étage.
 
-Le blessé Maître du Vide n'était plus aussi arrogant qu'au premier étage. Il avançait avec lenteur, ce qui laissa à Wang Lin le temps d'explorer le palais du deuxième étage. Ici, point de statues, seulement neuf chandeliers de pierre. Wang Lin calma son cœur anxieux et, après une longue observation, fronça les sourcils.
+Le blessé Xu Kongzi n'était plus aussi arrogant qu'au premier étage. Il avançait avec lenteur, ce qui laissa à Wang Lin le temps d'explorer le palais du deuxième étage. Ici, point de statues, seulement neuf chandeliers de pierre. Wang Lin calma son cœur anxieux et, après une longue observation, fronça les sourcils.
 
 Cependant, son regard se posa soudainement sur le sol, autour des chandeliers, et il remarqua de légères traces de mouvement. Les marques étaient tantôt profondes, tantôt superficielles, indiquant qu'ils avaient été déplacés à plusieurs reprises. C'était manifestement une manœuvre pour dérouter les intrus.
 

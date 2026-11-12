@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: "Chapter 2063 - Removing the Fog!"
 slug: dissipation-du-brouillard
 ---
-Le Grand Empyréen Gu Dao, l'être le plus puissant du Continent Astral Immortel!
+Le Grand Empyréen Gu Dao, l'être le plus puissant du Continent Xian Gang!
 
 Sa culture était mystérieuse et il n'avait pas fait mouvement depuis de nombreuses années. D'un simple doigt, le monde changea de couleur, les vents et les nuages se renversèrent et le ciel montra des signes d'effondrement. Même la muraille marine s'enfonça, comme si elle ne pouvait supporter une telle force.
 
@@ -90,15 +90,15 @@ Le coup de Wang Lin ne pouvait être ainsi neutralisé sans conséquence. En voy
 
 Ce poing semblait fusionner avec celui porté à la bête depuis l'extérieur. Les forces des deux coups entrèrent en collision au centre du brouillard, créant une tempête terrifiante qui déchira le corps de la bête!
 
-Cependant, Gu Dao demeurait le plus puissant du Continent Astral Immortel. Dès qu'il eut agité sa manche, les innombrables sphères de brume entourant la bête se précipitèrent toutes vers Wang Lin. Incapable d'esquiver, il fut percuté de plein fouet par la multitude de sphères.
+Cependant, Gu Dao demeurait le plus puissant du Continent Xian Gang. Dès qu'il eut agité sa manche, les innombrables sphères de brume entourant la bête se précipitèrent toutes vers Wang Lin. Incapable d'esquiver, il fut percuté de plein fouet par la multitude de sphères.
 
 Une seule sphère pouvait tuer un Ascendant Empyréen, et près de dix mille explosant ensemble suffisaient à anéantir le monde. Alors qu'elles convergeaient vers lui, Wang Lin ferma les yeux et pointa l'espace entre ses sourcils.
 
 « Dao de la Vie Extrême! » Les yeux de Wang Lin s'ouvrirent soudainement, révélant deux étranges rayons de lumière. Cette clarté se propagea autour de lui telle une aura sombre, formant une barrière protectrice.
 
-Des grondements tonitruants résonnèrent comme si des millions d'éclairs explosaient simultanément. Cette onde de choc fit trembler l'intégralité du vaste bassin, se propagea vers le clan Ancien et le clan Céleste et affecta jusqu'aux lois du monde. Le Continent Astral Immortel tout entier ressentit cette collision.
+Des grondements tonitruants résonnèrent comme si des millions d'éclairs explosaient simultanément. Cette onde de choc fit trembler l'intégralité du vaste bassin, se propagea vers le clan Ancien et le clan Céleste et affecta jusqu'aux lois du monde. Le Continent Xian Gang tout entier ressentit cette collision.
 
-Dans la Secte Dao Yi, au Mont Empereur, dans la Secte Zi Yang et sur le glacier du Continent Bei — les quatre Grands Empyréens présents, à l'exception de Lian Daofei, sentirent tous ce bouleversement planétaire et leurs cœurs tremblèrent. Ils percevaient tous la collision des deux auras provenant du vaste bassin.
+Dans la Secte Dao Yi, au Mont Di, dans la Secte Zi Yang et sur le glacier du Continent Bei — les quatre Grands Empyréens présents, à l'exception de Lian Daofei, sentirent tous ce bouleversement planétaire et leurs cœurs tremblèrent. Ils percevaient tous la collision des deux auras provenant du vaste bassin.
 
 « Gu Dao a fait mouvement! »
 

@@ -8,11 +8,11 @@ slug: une-nuit-brisee-change-tout
 ---
 Wang Lin prit sa décision et se retourna soudainement. Les deux scorpions verts devant lui affichaient une expression sombre, teintée de peur. Ils ne chargèrent plus contre lui, mais reculèrent rapidement vers la surface.
 
-La force de Wang Lin dépassait les attentes des quatre Messagers du Démon Vert. Ils ne s'attendaient pas à ce qu'il devienne si puissant après avoir obtenu la reconnaissance du Taureau Céleste. Cette puissance était suffisante pour effacer instantanément des cultivateurs du stade intermédiaire de la Tribulation du Vide, et se rapprochait infiniment de celle d'un cultivateur du stade avancé de la Tribulation du Vide!
+La force de Wang Lin dépassait les attentes des quatre Messagers du Démon Vert. Ils ne s'attendaient pas à ce qu'il devienne si puissant après avoir obtenu la reconnaissance du Tian Niu. Cette puissance était suffisante pour effacer instantanément des cultivateurs du stade intermédiaire de la Tribulation du Vide, et se rapprochait infiniment de celle d'un cultivateur du stade avancé de la Tribulation du Vide!
 
-« Cela est digne du Continent Astral Immortel... Si j'avais possédé une telle force dans le monde des grottes, ni le Daoïste aux Sept Couleurs ni le Vieux Fantôme Zhan n'auraient été de taille face à moi... » Wang Lin fut submergé par l'émotion.
+« Cela est digne du Continent Xian Gang... Si j'avais possédé une telle force dans le monde des grottes, ni le Daoïste aux Sept Couleurs ni le Vieux Fantôme Zhan n'auraient été de taille face à moi... » Wang Lin fut submergé par l'émotion.
 
-« Le Continent Astral Immortel doit avoir un moyen de réveiller Wan Er! » Un regard déterminé s'installa dans les yeux de Wang Lin alors qu'il observait les deux scorpions battre en retraite. Il esquissa un sourire glacial et se lança à leur poursuite.
+« Le Continent Xian Gang doit avoir un moyen de réveiller Wan Er! » Un regard déterminé s'installa dans les yeux de Wang Lin alors qu'il observait les deux scorpions battre en retraite. Il esquissa un sourire glacial et se lança à leur poursuite.
 
 Les deux scorpions fuyaient très vite, mais Wang Lin était encore plus rapide. D'un seul pas, la terre trembla et il réduisit instantanément la distance. Il leva sa main droite, ses yeux brillant d'une lueur étrange.
 
@@ -80,9 +80,9 @@ Cette projection servait de moyen de suppression!
 
 Zhang Daozong, le vieil homme nommé Zhao et les âmes originelles des deux cultivatrices étaient également présents. Ayant à peine survécu à l'Empreinte de l'Esprit Guerrier, ils descendaient désormais désespérément, utilisant toute leur culture pour aider les Messagers du Démon Vert dans cette suppression!
 
-Ils comprirent que s'ils ne parvenaient pas à contenir Wang Lin, qui avait obtenu la reconnaissance du Taureau Céleste, ils rencontreraient un destin atroce!
+Ils comprirent que s'ils ne parvenaient pas à contenir Wang Lin, qui avait obtenu la reconnaissance du Tian Niu, ils rencontreraient un destin atroce!
 
-« Les Messagers du Taureau Céleste sont différents de nous. Ils peuvent atteindre une puissance absolue, mais seulement temporairement. Bien que j'ignore combien de temps cela durera, ce ne sera pas éternel. Tant que nous le maintenons sous pression, nous pourrons le tuer une fois son pouvoir épuisé! » rugit l'un des Messagers du Démon Vert.
+« Les Messagers du Tian Niu sont différents de nous. Ils peuvent atteindre une puissance absolue, mais seulement temporairement. Bien que j'ignore combien de temps cela durera, ce ne sera pas éternel. Tant que nous le maintenons sous pression, nous pourrons le tuer une fois son pouvoir épuisé! » rugit l'un des Messagers du Démon Vert.
 
 Alors qu'il criait, Zhang Daozong et ses compagnons semblèrent être investis d'une puissance et d'une détermination sans limites. Ils déployèrent toute leur culture pour soutenir la suppression.
 

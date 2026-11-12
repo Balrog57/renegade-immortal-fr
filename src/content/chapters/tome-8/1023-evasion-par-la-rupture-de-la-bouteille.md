@@ -16,11 +16,11 @@ Un bruit assourdissant résonna dans chaque recoin de la bouteille et une vague 
 
 À moins qu'il n'existe une autre mer de flammes inextinguible, permettant à Wang Lin d'absorber assez longtemps pour atteindre son apogée avant de relâcher à nouveau.
 
-La lueur rouge sur le corps de Wang Lin s'estompa peu à peu, mais le tatouage de l'Oiseau Vermillon resta d'un écarlate vif. Cela lui conférait une aura indescriptible.
+La lueur rouge sur le corps de Wang Lin s'estompa peu à peu, mais le tatouage de Suzaku resta d'un écarlate vif. Cela lui conférait une aura indescriptible.
 
-Les plumes caudales de l'Oiseau Vermillon s'enroulaient autour de son cou et s'arrêtaient entre ses sourcils, comme si elles fusionnaient avec ses cheveux noirs. De loin, on aurait dit qu'une flamme pourpre entourait sa chevelure sombre.
+Les plumes caudales de Suzaku s'enroulaient autour de son cou et s'arrêtaient entre ses sourcils, comme si elles fusionnaient avec ses cheveux noirs. De loin, on aurait dit qu'une flamme pourpre entourait sa chevelure sombre.
 
-L'éveil de l'Oiseau Vermillon n'avait pas augmenté le niveau de culture de Wang Lin, mais il avait transformé l'énergie originelle à l'intérieur de son corps. La chaleur extrême contenue dans son énergie originelle rendait tous ses sorts terrifiants!
+L'éveil de Suzaku n'avait pas augmenté le niveau de culture de Wang Lin, mais il avait transformé l'énergie originelle à l'intérieur de son corps. La chaleur extrême contenue dans son énergie originelle rendait tous ses sorts terrifiants!
 
 Son corps de Dieu Ancien s'était adapté aux flammes; désormais, il pouvait invoquer le feu d'un simple geste de la main!
 
@@ -98,7 +98,7 @@ Ses cheveux pâles flottaient au-dessus d'une armure noir pourpre. Dès que les 
 
 Il esquissa un sourire en regardant l'homme en armure et secoua la tête: « Un ancien membre des quatre gardes de l'Empereur Céleste, Can Dao, n'est plus aujourd'hui qu'un diable dispersé raffiné par l'Ancien Diable. Pitoyable! »
 
-Tian Yunzi, Ling Tianhou, Maître du Vide, Situ Nan et la belle femme d'âge moyen apparurent l'un après l'autre derrière Bei Luo!
+Tian Yunzi, Ling Tianhou, Xu Kongzi, Situ Nan et la belle femme d'âge moyen apparurent l'un après l'autre derrière Bei Luo!
 
 Le vieil homme sur la gourde, l'homme en noir marqué du dragon caché, les trois frères Chen et Da Tou sortirent également de la bouteille. Suivirent ensuite la femme enveloppée d'énergie démoniaque et l'Ancien Sun, qui portait le Zibeline Marquée d'Étoiles.
 
@@ -108,7 +108,7 @@ Tous ceux qui étaient entrés dans la grotte céleste, à l'exception de Wang L
 
 Dès son apparition, il remarqua immédiatement que tous les regards se braquaient sur lui comme des éclairs.
 
-L'expression du Maître du Vide était neutre, mais en voyant Wang Lin, son cœur fut envahi par une intention meurtrière. Ling Tianhou affichait une expression complexe; plus il interagissait avec Wang Lin, plus il sentait qu'il ne pouvait le sous-estimer.
+L'expression de Xu Kongzi était neutre, mais en voyant Wang Lin, son cœur fut envahi par une intention meurtrière. Ling Tianhou affichait une expression complexe; plus il interagissait avec Wang Lin, plus il sentait qu'il ne pouvait le sous-estimer.
 
 Le sourcil de Tian Yunzi se fronça légèrement avant de se détendre.
 

@@ -54,7 +54,7 @@ Ce chapeau contenait de puissantes restrictions et, Yun Quezi étant un cultivat
 
 Comment Yao Xixue pouvait-elle le savoir?
 
-Wang Lin tint le sac de rangement de Yao Xixue et dit calmement: « Compagnon cultivateur Yao, nous nous revoyons. »
+Wang Lin tint le sac de rangement de Yao Xixue et dit calmement: « Daoïste Yao, nous nous revoyons. »
 
 Bien qu'il s'adressât à elle, son regard balaya l'homme d'âge moyen devant la porte de pierre.
 
@@ -88,7 +88,7 @@ Wang Lin afficha un sourire qui n'en était pas un en pressant sa poitrine, et l
 
 L'humiliation dans les yeux de la jeune femme était immense alors qu'elle fixait Wang Lin en grinçant des dents. Elle avait cultivé pendant de nombreuses années en préservant sa virginité; elle n'avait jamais eu un contact aussi intime avec un homme!
 
-Après avoir rangé les sacs, il déclara: « Compagnon cultivateur Yao, et si nous concluions un marché? »
+Après avoir rangé les sacs, il déclara: « Daoïste Yao, et si nous concluions un marché? »
 
 Yao Xixue le fixa sans dire un mot.
 

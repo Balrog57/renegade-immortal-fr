@@ -94,7 +94,7 @@ Mais il y avait une nuance: c'était comme si, sans ce gel, s'immerger dans le b
 
 Cependant, non seulement cette puissance était faible, mais elle fluctuait de manière irrégulière. Wang Lin réfléchit un instant et une lueur d'illumination traversa son regard.
 
-Cet endroit avait été créé par le Souverain Céleste aux Sept Couleurs à partir de ses souvenirs, nourri par sa propre force vitale. Ce Bassin de Dong Lin existait probablement sur le Continent Astral Immortel, et sa fonction était sans doute de nourrir les essences!
+Cet endroit avait été créé par le Souverain Céleste aux Sept Couleurs à partir de ses souvenirs, nourri par sa propre force vitale. Ce Bassin de Dong Lin existait probablement sur le Continent Xian Gang, et sa fonction était sans doute de nourrir les essences!
 
 La culture du Souverain Céleste aux Sept Couleurs étant limitée, il n'avait pu imiter que l'aura, mais pas l'effet réel.
 

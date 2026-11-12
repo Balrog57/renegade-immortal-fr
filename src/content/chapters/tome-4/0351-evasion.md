@@ -122,7 +122,7 @@ Wang Lin sentit son cuir chevelu se hérisser. Le drapeau de restriction était 
 
 Ses yeux devinrent encore plus froids alors qu'il sortait un second drapeau de restriction de son sac. Il créa une restriction dans sa main et fixa le vieillard.
 
-Le vieil homme observa le drapeau et secoua la tête. « Tu possèdes vraiment une profusion de trésors. Je parie que tu es le disciple direct d'une grande secte là-haut. On sent la pression des cieux sur cet objet. Je crois qu'une fois que tu auras posé cette ultime restriction, elle invoquera ce que vous, les cultivateurs, appelez la "rétribution divine". Si nous étions à la surface, cela pourrait me blesser, mais ceci est la terre sacrée du Clan Xian Yi, un monde à part. La rétribution divine ne peut nous atteindre ici. Tu es libre d'essayer. » Sur ces mots, le vieillard tendit de nouveau la main.
+Le vieil homme observa le drapeau et secoua la tête. « Tu possèdes vraiment une profusion de trésors. Je parie que tu es le disciple direct d'une grande secte là-haut. On sent la pression des cieux sur cet objet. Je crois qu'une fois que tu auras posé cette ultime restriction, elle invoquera ce que vous, les cultivateurs, appelez la "Tribulation Céleste". Si nous étions à la surface, cela pourrait me blesser, mais ceci est la terre sacrée du Clan Xian Yi, un monde à part. La Tribulation Céleste ne peut nous atteindre ici. Tu es libre d'essayer. » Sur ces mots, le vieillard tendit de nouveau la main.
 
 Il ne bougea pas plus vite cette fois-ci, mais il déploya une puissance bien supérieure. Des craquements retentirent dans un rayon de 330 mètres autour de Wang Lin et des failles spatiales apparurent.
 

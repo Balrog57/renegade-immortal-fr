@@ -14,9 +14,9 @@ Un sentiment de passion irradia de Wang Lin. Alors qu'il pointait l'ennemi, la g
 
 Dans son rugissement, la Lance aux Sept Couleurs chargea vers la lumière antique émanant du vortex formé par cent mille âmes!
 
-Dès que la lance apparut, les étoiles tremblèrent et une lueur septicolore brilla de mille feux. Une aura puissante se dégageait de l'arme. Cette lance n'appartenait pas à ce monde de la grotte; c'était un sort divin du Continent Astral Immortel, la technique du Souverain Céleste aux Sept Couleurs de la Secte Qi Dao!
+Dès que la lance apparut, les étoiles tremblèrent et une lueur septicolore brilla de mille feux. Une aura puissante se dégageait de l'arme. Cette lance n'appartenait pas à ce monde de la grotte; c'était un sort divin du Continent Xian Gang, la technique du Souverain Céleste aux Sept Couleurs de la Secte Qi Dao!
 
-Ce sort était un secret jalousement gardé par le Souverain Céleste aux Sept Couleurs, et il était presque impossible pour des étrangers de l'apprendre. Seul ce fou, grâce à son identité sur le Continent Astral Immortel, avait pu s'en emparer presque de force.
+Ce sort était un secret jalousement gardé par le Souverain Céleste aux Sept Couleurs, et il était presque impossible pour des étrangers de l'apprendre. Seul ce fou, grâce à son identité sur le Continent Xian Gang, avait pu s'en emparer presque de force.
 
 Au moment où la Lance aux Sept Couleurs apparut dans le Système Stellaire Antique, le Souverain afficha un regard complexe, empreint de haine. Il apercevait la lance au loin. Il avait vu son maître utiliser ce sort et avait personnellement été témoin de sa puissance lors des guerres passées.
 
@@ -68,9 +68,9 @@ Ces dizaines de chars étaient semblables au sixième esprit de la Formation de 
 
 Ces chars étaient des trésors appartenant au Conseil Souverain. Chacun avait nécessité d'innombrables ressources pour être raffiné et, surtout, chacun exigeait l'âme d'une bête féroce ancestrale.
 
-Bien que ces bêtes aient été nées dans cette grotte, leurs ancêtres avaient été transportés ici depuis le Continent Astral Immortel par le Souverain Céleste aux Sept Couleurs.
+Bien que ces bêtes aient été nées dans cette grotte, leurs ancêtres avaient été transportés ici depuis le Continent Xian Gang par le Souverain Céleste aux Sept Couleurs.
 
-Bien qu'elles ne fussent pas originaires du Continent Astral Immortel, elles en portaient l'aura. Il s'agissait de diverses races de bêtes célestes issues de ce continent!
+Bien qu'elles ne fussent pas originaires du Continent Xian Gang, elles en portaient l'aura. Il s'agissait de diverses races de bêtes célestes issues de ce continent!
 
 Leurs âmes contenaient les souvenirs de leurs ancêtres. Parmi les dizaines de bêtes féroces surgissant des chars, on voyait des dragons de cent mille pieds, des créatures étranges et même une bête que Wang Lin avait déjà rencontrée: le Ji Qiong!
 

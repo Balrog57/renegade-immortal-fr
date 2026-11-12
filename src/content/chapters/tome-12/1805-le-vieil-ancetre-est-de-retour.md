@@ -16,7 +16,7 @@ Cependant, Wang Lin avait compris le Tonnerre des Battements de Cœur dans la To
 
 Désormais, ils étaient à égalité!
 
-Bien que Wang Lin fût issu du monde des grottes, avec son niveau de culture, il n'était pas faible, même sur le Continent Astral Immortel! Il sortit de la grotte alors que les quatre Anciens se précipitaient à l'intérieur. Sa main s'abattit vers le sol.
+Bien que Wang Lin fût issu du monde des grottes, avec son niveau de culture, il n'était pas faible, même sur le Continent Xian Gang! Il sortit de la grotte alors que les quatre Anciens se précipitaient à l'intérieur. Sa main s'abattit vers le sol.
 
 La terre de toute la Secte Cang Long trembla et le feu souterrain jaillit avec fracas. Les flammes jaillirent de la grotte, plus intenses encore qu'auparavant.
 
@@ -54,7 +54,7 @@ Bien que leur niveau de culture ne fût pas bas, ils n'étaient que des fourmis 
 
 C'était Wang Lin!
 
-Il atteignait le sommet du monde des grottes! Bien qu'il venait de pénétrer sur le Continent Astral Immortel, il restait tout aussi redoutable!
+Il atteignait le sommet du monde des grottes! Bien qu'il venait de pénétrer sur le Continent Xian Gang, il restait tout aussi redoutable!
 
 Tout cela se produisit en quelques respirations seulement. Sur une pensée de Wang Lin, le dragon de feu sur lequel il se tenait leva la tête et laissa échapper un rugissement qui fendit les cieux!
 

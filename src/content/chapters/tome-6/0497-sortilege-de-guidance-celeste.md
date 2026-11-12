@@ -62,7 +62,7 @@ Wang Lin leva les yeux vers le ciel et commença à méditer. Ce sortilège cél
 
 La scène créée par le Sortilège de Guidance Céleste n'avait manifestement pas été générée par Tian Yunzi. En vérité, ce sort était une existence éternelle. Il suffisait de connaître la méthode pour ouvrir le passage et d'avoir les qualifications requises pour l'utiliser. Quiconque remplissait ces deux conditions pouvait l'employer n'importe où pour emmener ceux qu'il souhaitait guider vers le Royaume Céleste.
 
-Après avoir démontré ce sort, Tian Yunzi ne déclara pas la fin de cette séance d'enseignement du Dao. Au lieu de cela, ses yeux brillèrent d'une lueur mystérieuse et il dit lentement: « Aujourd'hui, outre la célébration de mon anniversaire, je souhaite que mes compagnons cultivateurs soient témoins. Je possède au total sept divisions de disciples, et seules les Divisions Jaune et Pourpre n'ont aucun détenteur du titre de véritable disciple. Aujourd'hui est le jour où les véritables disciples de ces deux divisions seront choisis! »
+Après avoir démontré ce sort, Tian Yunzi ne déclara pas la fin de cette séance d'enseignement du Dao. Au lieu de cela, ses yeux brillèrent d'une lueur mystérieuse et il dit lentement: « Aujourd'hui, outre la célébration de mon anniversaire, je souhaite que mes Daoïstes soient témoins. Je possède au total sept divisions de disciples, et seules les Divisions Jaune et Pourpre n'ont aucun détenteur du titre de véritable disciple. Aujourd'hui est le jour où les véritables disciples de ces deux divisions seront choisis! »
 
 À ces mots, les regards des cultivateurs environnants se tournèrent vers les Divisions Jaune et Pourpre. Cependant, la plupart fixaient la Division Jaune; peu s'intéressaient à la Division Pourpre.
 

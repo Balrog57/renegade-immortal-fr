@@ -10,7 +10,7 @@ L'Alliance Xiu Zhen tout entière sembla trembler sous ce rugissement. Seul un h
 
 À l'instant même où Nuit Brisée disparut et que Wang Lin réapparut dans la Terre Yao Ling, le chaos infini de la 18e couche de son Sceau Céleste des 18 Enfers fut transpercé par une puissance inimaginable, et trois âmes apparurent à l'intérieur!
 
-L'âme du Maître du Vide lors de son premier Fléau Céleste, l'avatar aux robes violettes de Tian Yunzi, et l'avatar aux robes jaunes de Tian Yunzi!
+L'âme de Xu Kongzi lors de son premier Fléau Céleste, l'avatar aux robes violettes de Tian Yunzi, et l'avatar aux robes jaunes de Tian Yunzi!
 
 Inopinément, les deux avatars commencèrent à fusionner dans la 18e couche!
 
@@ -24,15 +24,15 @@ Les trois grands avatars de Tian Yunzi étaient désespérés, mais Wang Lin l'�
 
 À cet instant, l'aura qui émanait des paroles de Wang Lin était assez imposante pour réduire Tian Yunzi au silence.
 
-Le silence régnait tout autour, mais à ce moment précis, les cris de l'Oiseau Vermillon au-dessus devinrent encore plus intenses.
+Le silence régnait tout autour, mais à ce moment précis, les cris de Suzaku au-dessus devinrent encore plus intenses.
 
-Alors que les cris de l'Oiseau Vermillon se rapprochaient, le tatouage de l'Oiseau Vermillon sur le corps de Wang Lin trembla violemment. Il s'échappa directement du corps de Wang Lin, échappant à tout contrôle.
+Alors que les cris de Suzaku se rapprochaient, le tatouage de Suzaku sur le corps de Wang Lin trembla violemment. Il s'échappa directement du corps de Wang Lin, échappant à tout contrôle.
 
-L'Oiseau Vermillon blanc leva fièrement la tête et poussa un cri vers les cieux. Les deux cris se croisèrent, et une pointe de joie perçait dans le cri de l'Oiseau Vermillon blanc de Wang Lin.
+L'Oiseau Vermillon blanc leva fièrement la tête et poussa un cri vers les cieux. Les deux cris se croisèrent, et une pointe de joie perçait dans le cri de Suzaku blanc de Wang Lin.
 
 L'oiseau blanc tourna autour de Wang Lin en continuant de crier. Puis, une mer de flammes encore plus intense apparut au-dessus de la Terre Yao Ling et recouvrit le monde!
 
-Alors que les cris de l'Oiseau Vermillon résonnaient, une tête gigantesque d'oiseau émergea de la mer de flammes. Sa taille était telle qu'elle occupait presque tout le ciel. Le feu qui émanait de son corps semblait vouloir assécher la terre entière.
+Alors que les cris de Suzaku résonnaient, une tête gigantesque d'oiseau émergea de la mer de flammes. Sa taille était telle qu'elle occupait presque tout le ciel. Le feu qui émanait de son corps semblait vouloir assécher la terre entière.
 
 Dès l'apparition de cette tête, une pression inimaginable s'abattit sur les lieux. Le Maître Fu Fengzi et ses compagnons furent tirés de leur stupeur et haletèrent. Les yeux de Situ Nan s'écarquillèrent de stupeur.
 
@@ -40,21 +40,21 @@ Même les pupilles de Ling Tianhou se rétractèrent lorsqu'il leva la tête.
 
 L'expression de Tian Yunzi devint plus sombre encore, empreinte d'une pointe d'amertume.
 
-Le regard perçant de l'Oiseau Vermillon balaya le sol jusqu'à ce qu'il se pose sur Wang Lin, puis il poussa un autre cri. L'immense créature chargea hors des flammes. À mesure que son corps émergeait, les flammes environnantes se rétractaient rapidement.
+Le regard perçant de Suzaku balaya le sol jusqu'à ce qu'il se pose sur Wang Lin, puis il poussa un autre cri. L'immense créature chargea hors des flammes. À mesure que son corps émergeait, les flammes environnantes se rétractaient rapidement.
 
-En un instant, l'esprit véritable de l'Oiseau Vermillon surgit de la mer de flammes. Cette mer devint les plumes de son corps, et le reste du brasier, derrière lui, se mua en plusieurs plumes de queue.
+En un instant, l'esprit véritable de Suzaku surgit de la mer de flammes. Cette mer devint les plumes de son corps, et le reste du brasier, derrière lui, se mua en plusieurs plumes de queue.
 
-Ce n'est qu'une fois sa forme entière révélée que tous réalisèrent que cette vaste mer de flammes faisait partie intégrante du corps de l'Oiseau Vermillon!
+Ce n'est qu'une fois sa forme entière révélée que tous réalisèrent que cette vaste mer de flammes faisait partie intégrante du corps de Suzaku!
 
 Un bruit d'aspirations saccadées résonna parmi la foule.
 
 Le géant Oiseau Vermillon chargea directement vers Wang Lin. Ce dernier fronça les sourcils, mais une illumination traversa son esprit. Cette compréhension venait du sentiment familier et chaleureux que lui transmettait son Oiseau Vermillon natal.
 
-En un instant, l'immense créature fut sur lui. Elle s'apprêtait à s'engouffrer entre ses sourcils, mais elle changea soudainement de trajectoire. L'esprit véritable de l'Oiseau Vermillon se transforma en une mer de flammes et s'engouffra dans la blessure sur la poitrine de Wang Lin.
+En un instant, l'immense créature fut sur lui. Elle s'apprêtait à s'engouffrer entre ses sourcils, mais elle changea soudainement de trajectoire. L'esprit véritable de Suzaku se transforma en une mer de flammes et s'engouffra dans la blessure sur la poitrine de Wang Lin.
 
 À cet instant, un océan de feu enveloppa Wang Lin, et son corps s'éleva dans les airs sous l'effet d'une puissance mystérieuse. Des flammes monstrueuses s'échappaient de lui tandis que son Oiseau Vermillon blanc réintégrait son corps. Puis, une armure cramoisie apparut autour de lui.
 
-Cette armure rouge était magnifique, gravée de motifs d'Oiseau Vermillon blanc. À cet instant, Wang Lin apparut absolument éblouissant aux yeux de tous!
+Cette armure rouge était magnifique, gravée de motifs de Suzaku blanc. À cet instant, Wang Lin apparut absolument éblouissant aux yeux de tous!
 
 Même l'épée de sang dans sa poitrine rétrécit progressivement pour rester à l'intérieur de son corps. De l'extérieur, il n'en restait plus aucune trace.
 
@@ -64,11 +64,11 @@ Cependant, la puissance indescriptible des flammes permit à Wang Lin de ressent
 
 Tel l'ancien dragon de tonnerre, il possédait le pouvoir de commander tout le feu du monde!
 
-Dans le ciel, près d'une centaine de personnes apparurent derrière l'Oiseau Vermillon. Les six premiers dégageaient une pression colossale. Ils avaient tous les cheveux blancs et émanaient des auras capables de bouleverser la terre.
+Dans le ciel, près d'une centaine de personnes apparurent derrière Suzaku. Les six premiers dégageaient une pression colossale. Ils avaient tous les cheveux blancs et émanaient des auras capables de bouleverser la terre.
 
 Les Briseurs du Nirvana!
 
-Derrière ces six individus, tous les membres de la Secte Divine de l'Oiseau Vermillon projetaient de puissantes auras de flammes. À leur apparition, leurs regards se fixèrent tous sur Wang Lin.
+Derrière ces six individus, tous les membres de la Secte Divine de Suzaku projetaient de puissantes auras de flammes. À leur apparition, leurs regards se fixèrent tous sur Wang Lin.
 
 Lorsque les six anciens aperçurent Wang Lin, leurs visages exprimèrent un mélange d'excitation et de choc!
 
@@ -76,6 +76,6 @@ Leur excitation venait du fait qu'ils avaient parcouru tout ce chemin pour prot�
 
 Cependant, ce qui les choqua, c'est que bien qu'ils fussent à l'extérieur, au moment où la loi d'origine apparut, ils furent eux aussi entraînés dans l'illusion de Nuit Brisée. Après avoir subi un sortilège aussi terrifiant, comment ne pas être stupéfaits?
 
-Une trace de crainte se mêlait à ce choc! Si ces six-là étaient ainsi affectés, qu'en serait-il de la centaine d'autres membres de la Secte Divine de l'Oiseau Vermillon? Ils regardaient tous Wang Lin avec un fanatisme ardent. S'il n'y avait pas d'imprévu, cet homme serait leur prochain Empereur Divin!
+Une trace de crainte se mêlait à ce choc! Si ces six-là étaient ainsi affectés, qu'en serait-il de la centaine d'autres membres de la Secte Divine de Suzaku? Ils regardaient tous Wang Lin avec un fanatisme ardent. S'il n'y avait pas d'imprévu, cet homme serait leur prochain Empereur Divin!
 
-L'un des six anciens, dont les vêtements étaient ornés de sept oiseaux vermillons, cria immédiatement: « Protégez celui qui s'est éveillé! » Aussitôt, les six anciens se précipitèrent aux côtés de Wang Lin. Le reste des disciples de la Secte Divine de l'Oiseau Vermillon se déploya, lançant des regards empreints d'une intention meurtrière à tous ceux qui les entouraient.
+L'un des six anciens, dont les vêtements étaient ornés de sept oiseaux vermillons, cria immédiatement: « Protégez celui qui s'est éveillé! » Aussitôt, les six anciens se précipitèrent aux côtés de Wang Lin. Le reste des disciples de la Secte Divine de Suzaku se déploya, lançant des regards empreints d'une intention meurtrière à tous ceux qui les entouraient.

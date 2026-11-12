@@ -32,7 +32,7 @@ Il laissa échapper un rire, sa main prenant la forme d'une griffe tandis que ci
 
 Alors que les cinq dragons noirs encerclaient l'individu, ils commencèrent aussitôt à croître. En un instant, ils atteignirent mille pieds de long. Par conséquent, l'aura du jeune homme augmenta soudainement.
 
-Le jeune homme en robe jaune déclara d'un ton lent: « L'attaque de ce compagnon de culture est plutôt remarquable. Cessons d'abord le combat, car moi, Tang Yanyun, je souhaite explorer avec vous le trou laissé par le Céleste. Qu'en dites-vous? » Il était déjà extrêmement difficile pour lui de tenir un tel discours. S'il n'avait pas eu la certitude que le niveau de culture de Wang Lin était supérieur au sien et comparable à celui de son frère, qui se trouvait au stade Corporel Yang, il n'aurait jamais osé parler ainsi.
+Le jeune homme en robe jaune déclara d'un ton lent: « L'attaque de ce Daoïste est plutôt remarquable. Cessons d'abord le combat, car moi, Tang Yanyun, je souhaite explorer avec vous le trou laissé par le Céleste. Qu'en dites-vous? » Il était déjà extrêmement difficile pour lui de tenir un tel discours. S'il n'avait pas eu la certitude que le niveau de culture de Wang Lin était supérieur au sien et comparable à celui de son frère, qui se trouvait au stade Corporel Yang, il n'aurait jamais osé parler ainsi.
 
 À l'instant où il prononça ces mots, les visages des cultivateurs proches changèrent radicalement. L'un d'eux s'exclama: « La famille Tang! Serait-ce la famille Tang du domaine sud de Luotian?! »
 

@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1459 - Granting Dao
 slug: loctroi-du-dao
 ---
-« Si je suppose que ce Ye Mo est bien de l’Ordre Antique, alors il est fort probable que l’autre méthode envisagée par l’Empereur Céleste Antique soit liée à l’Ordre Antique! L’Empereur Céleste Antique a tendu un piège et a attiré l’Ordre Antique ici depuis le monde où il se trouvait… Il a manigancé autour de l’Ordre Antique et même des trois clans. Il voulait les utiliser, à la place des esprits du Dao, pour nourrir le Dao Céleste!
+« Si je suppose que ce Ye Mo est bien de l’Dao Gu, alors il est fort probable que l’autre méthode envisagée par l’Empereur Céleste Antique soit liée à l’Dao Gu! L’Empereur Céleste Antique a tendu un piège et a attiré l’Dao Gu ici depuis le monde où il se trouvait… Il a manigancé autour de l’Dao Gu et même des trois clans. Il voulait les utiliser, à la place des esprits du Dao, pour nourrir le Dao Céleste!
 
 « Un être comme l’Empereur Céleste Antique n'agirait que s'il était sûr à 100 % de son coup, il a donc dû réussir… Cependant, comment le Dao Céleste a-t-il pu être détruit en fin de compte?
 
 « De plus, dans le Système Stellaire de l’Alliance, lorsque je subissais ma Tribulation Céleste, j'ai involontairement ouvert une faille spatiale menant à un monde étrange. Il y avait là de nombreuses statues de dieux anciens, de démons anciens et d’anciens diables… Cet endroit est-il lié à l’Ancien Tombeau, et est-il lié à Qicai Daoren?
 
-« De plus, presque chaque génération de l'Oiseau Vermillon a été scellée. Tout semble pointer vers le Maître du Souverain… Qui est donc le Maître du Souverain?
+« De plus, presque chaque génération de Suzaku a été scellée. Tout semble pointer vers le Maître du Souverain… Qui est donc le Maître du Souverain?
 
 « Il y a aussi cette femme en argent qui a hurlé et s’est déchaînée après avoir vu la statue de Qicai Daoren. Elle ne cessait de répéter qu'elle n'avait pas ouvert la porte… Quelle était donc cette porte, et pourquoi Qicai Daoren était-il si en colère qu'il en déclencha un massacre?
 
@@ -26,7 +26,7 @@ Wang Lin se frotta les tempes et ses yeux s'illuminèrent.
 
 « Quoi qu'il en soit, l'existence de l’Ancien Tombeau est forcément liée à Qicai Daoren. Cet endroit a-t-il été créé pour élever le Dao Céleste… ou est-ce un lieu que Ye Mo a créé pour transmettre son héritage après sa mort?
 
-« On appelle cela l’"Ancien Tombeau"... Serait-ce la tombe de Ye Mo de l’Ordre Antique? » Plus il réfléchissait, plus il sombrait dans la confusion.
+« On appelle cela l’"Ancien Tombeau"... Serait-ce la tombe de Ye Mo de l’Dao Gu? » Plus il réfléchissait, plus il sombrait dans la confusion.
 
 Après un long moment, il poussa un soupir et cessa de songer à ces pensées irritantes. Son regard s'anima et il observa les arbres desséchés autour de lui.
 
@@ -64,7 +64,7 @@ Le chaos à l'intérieur du fourneau se dissipa et une mer noire apparut devant 
 
 « Affine! » Wang Lin pointa l'océan du doigt et la mer de poison sembla s'enflammer. Des rugissements étouffés retentirent et de grandes vagues formèrent des tourbillons qui rageaient violemment.
 
-« Cette mer est composée du poison issu de l'étrange langue de la Grande Désolation ainsi que des âmes de Flamme Joss de Miaoyin Daozun. Une fois raffinée, elle deviendra un puissant trésor empoisonné! »
+« Cette mer est composée du poison issu de l'étrange langue de Da Huang ainsi que des âmes de Flamme Joss de Miaoyin Daozun. Une fois raffinée, elle deviendra un puissant trésor empoisonné! »
 
 L'expression de Wang Lin était calme tandis qu'il commençait le raffinage.
 

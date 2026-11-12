@@ -6,21 +6,21 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1803 - The Earth Fire is Changing!"
 slug: le-feu-terrestre-change
 ---
-C'était la première fois que Wang Lin ouvrait les yeux sur le Continent Astral Immortel, la première fois qu'il les ouvrait en ce lieu où il allait dominer les sommets!
+C'était la première fois que Wang Lin ouvrait les yeux sur le Continent Xian Gang, la première fois qu'il les ouvrait en ce lieu où il allait dominer les sommets!
 
-C'était la première fois qu'il voyait le Continent Astral Immortel de ses propres yeux. C'était la première fois qu'il ressentait lui-même l'aura de ce monde!
+C'était la première fois qu'il voyait le Continent Xian Gang de ses propres yeux. C'était la première fois qu'il ressentait lui-même l'aura de ce monde!
 
 À son réveil, Wang Lin vérifia le Cercueil d'Évitement Céleste derrière lui. Après s'être assuré que tout était en ordre, il examina le feu terrestre qui l'entourait.
 
 Comment un simple feu terrestre pourrait-il brûler Wang Lin, et même oserait-il le tenter?
 
-Le feu terrestre qui avait été extrait était insignifiant. Puisqu'il possédait l'essence du feu, non seulement ce feu ne lui causait aucun mal, mais il accélérait également son éveil. De plus, comme ce feu provenait du Continent Astral Immortel, un changement stupéfiant se produisit lorsqu'il fusionna avec l'essence de feu de Wang Lin issue du monde des grottes!
+Le feu terrestre qui avait été extrait était insignifiant. Puisqu'il possédait l'essence du feu, non seulement ce feu ne lui causait aucun mal, mais il accélérait également son éveil. De plus, comme ce feu provenait du Continent Xian Gang, un changement stupéfiant se produisit lorsqu'il fusionna avec l'essence de feu de Wang Lin issue du monde des grottes!
 
-Ce phénomène ne s'était jamais produit auparavant sur le Continent Astral Immortel. C'était une véritable bataille entre une essence de feu étrangère et l'essence même du Continent Astral Immortel!
+Ce phénomène ne s'était jamais produit auparavant sur le Continent Xian Gang. C'était une véritable bataille entre une essence de feu étrangère et l'essence même du Continent Xian Gang!
 
-Si l'essence du Continent Astral Immortel l'emportait, l'essence de Wang Lin serait dévorée et intégrée au continent. Dans ce cas, le niveau de culture de Wang Lin ne changerait pas et il conserverait son essence, mais il ne serait plus le seigneur de tous les feux du monde, car le feu appartiendrait désormais au Continent Astral Immortel!
+Si l'essence du Continent Xian Gang l'emportait, l'essence de Wang Lin serait dévorée et intégrée au continent. Dans ce cas, le niveau de culture de Wang Lin ne changerait pas et il conserverait son essence, mais il ne serait plus le seigneur de tous les feux du monde, car le feu appartiendrait désormais au Continent Xian Gang!
 
-Mais si Wang Lin triomphait, son essence de feu surpasserait celle du Continent Astral Immortel. Il deviendrait le véritable Empereur du Feu!
+Mais si Wang Lin triomphait, son essence de feu surpasserait celle du Continent Xian Gang. Il deviendrait le véritable Empereur du Feu!
 
 Wang Lin leva les yeux vers la brume. Il percevait un faible cultivateur errant autour de lui, lançant sans cesse des sceaux et des objets inconnus. Ces objets accéléraient l'ardeur du feu et soutenaient le fonctionnement de la formation en dessous.
 
@@ -36,7 +36,7 @@ Wang Lin ne jugea pas la formation digne de son attention. Bien qu'elle recèle 
 
 Il ignora Kang Ren qui, dans son enthousiasme, continuait son raffinage sans réaliser que Wang Lin s'était réveillé. Le Sens Divin de Wang Lin se propagea directement sous terre.
 
-Il voulait découvrir l'origine de ce feu terrestre. Comment le feu du Continent Astral Immortel se comparerait-il au sien?
+Il voulait découvrir l'origine de ce feu terrestre. Comment le feu du Continent Xian Gang se comparerait-il au sien?
 
 Alors que son Sens Divin s'étendait, les yeux de Wang Lin brillèrent d'une lueur étrange. Il vit que, sous les montagnes s'étendant sur des dizaines de milliers de kilomètres, se trouvait une masse de veines de feu!
 

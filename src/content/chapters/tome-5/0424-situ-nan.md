@@ -53,7 +53,7 @@ L'Ancien de la Secte Shi Yin rit: « Je suis en retard car j'ai rencontré quelq
 
 L'homme d'âge moyen le regarda avec un calme imperturbable, attendant la nouvelle.
 
-Les yeux de l'Ancien s'illuminèrent et, esquissant un sourire qui n'en était pas un, il déclara: « Zhu Quezi s'est rendu à la Secte Lian Hun; il combat Du Tian pour dérober le drapeau des âmes d'un milliard! »
+Les yeux de l'Ancien s'illuminèrent et, esquissant un sourire qui n'en était pas un, il déclara: « Zhu Quezi s'est rendu à la Secte Lian Hun; il combat Dun Tian pour dérober le drapeau des âmes d'un milliard! »
 
 L'expression de l'homme d'âge moyen resta de marbre, puis il sourit. « Quel en est le résultat? »
 
@@ -85,7 +85,7 @@ Le corps de Zhu Quezi trembla. À cet instant, il retrouva précisément ses sen
 
 « Ce vieil homme te demande de quelle génération de Suzaku tu es. » Ces mots empreints d'arrogance sortirent de la bouche de Wang Lin. Son ton portait l'autorité absolue d'une injonction: « Tu dois répondre. »
 
-Du Tian observait la scène. En regardant Wang Lin, il ressentit un profond sentiment d'étrangeté. Le temps passé aux côtés de Wang Lin n'avait pas été court, et il comprit immédiatement que cet homme n'était pas lui.
+Dun Tian observait la scène. En regardant Wang Lin, il ressentit un profond sentiment d'étrangeté. Le temps passé aux côtés de Wang Lin n'avait pas été court, et il comprit immédiatement que cet homme n'était pas lui.
 
 Il était impossible que Wang Lin dégage une telle pression et une telle arrogance de supériorité absolue. Ce genre de présence ne pouvait émaner que de vieux monstres ayant cultivé durant d'innombrables années.
 
@@ -93,7 +93,7 @@ Zhu Quezi ne voulait pas répondre, mais il finit par lâcher malgré lui: « Qu
 
 Wang Lin réfléchit un instant avant de fixer froidement Zhu Quezi et de dire: « Au nom de Ye Wuyou, ce vieil homme ne te tuera pas. Maintenant, disparais. »
 
-« Ye Wuyou? » Du Tian fut stupéfait. Il n'avait jamais entendu ce nom.
+« Ye Wuyou? » Dun Tian fut stupéfait. Il n'avait jamais entendu ce nom.
 
 Cependant, dès que Zhu Quezi entendit ce nom, son expression changea radicalement. Il recula encore davantage, et la terreur qui l'habitait ne put plus être contenue; elle se lut sans fard sur son visage.
 
@@ -109,15 +109,15 @@ En observant l'aura bleue entourant le corps de Wang Lin, Zhu Quezi remonta l'hi
 
 Sur ces mots, il se retira à toute vitesse.
 
-Les yeux de Du Tian s'illuminèrent et il cria: « Laisse derrière toi la quatrième âme! »
+Les yeux de Dun Tian s'illuminèrent et il cria: « Laisse derrière toi la quatrième âme! »
 
 Zhu Quezi s'interrompit. Ses yeux trahissaient une lutte intérieure pour prendre une décision, puis il se retourna brusquement vers Wang Lin.
 
 Une trace du passé traversa le regard de Wang Lin lorsqu'il dit: « Autrefois, ce vieil homme avait une dette envers Ye Wuyou. Peu importe; puisque tu veux cette quatrième âme pour combattre le Clan Xian Yi, ce vieil homme te la prêtera pour trois ans. Dans trois ans, tu me la rendras. »
 
-Du Tian paniqua et s'apprêta à parler quand Wang Lin tourna son regard vers lui. Lorsqu'il soutint le regard, il ne vit plus Wang Lin. Il n'y avait plus qu'une aura étrangère qui semblait dire: « Si tu parles, je te tue », et il sut que cet homme l'exécuterait sans la moindre hésitation.
+Dun Tian paniqua et s'apprêta à parler quand Wang Lin tourna son regard vers lui. Lorsqu'il soutint le regard, il ne vit plus Wang Lin. Il n'y avait plus qu'une aura étrangère qui semblait dire: « Si tu parles, je te tue », et il sut que cet homme l'exécuterait sans la moindre hésitation.
 
-Le cœur de Du Tian trembla et il n'osa plus ouvrir la bouche.
+Le cœur de Dun Tian trembla et il n'osa plus ouvrir la bouche.
 
 Zhu Quezi poussa un soupir de soulagement. Si cet homme avait voulu récupérer la quatrième âme coûte que coûte, il n'aurait su que choisir et aurait sans doute dû se battre. Cependant, d'après ce qu'il savait de lui, Zhu Quezi ne possédait pas la moindre once de confiance pour l'affronter.
 

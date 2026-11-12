@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 202 - Wiped out Completely
 slug: aneantissement-total
 ---
-Le regard de Wang Lin était glacial. Il jeta un coup d'œil à Qian Kun et demanda: « Le Bossu Meng est-il votre ancêtre? »
+Le regard de Wang Lin était glacial. Il jeta un coup d'œil à Qian Kun et demanda: « Meng Tuozi est-il votre ancêtre? »
 
 Le corps de Qian Kun trembla. S'il avait eu le moindre doute auparavant, celui-ci s'évanouit instantanément à l'audition de cette question. Il fallait dire que le nom de Meng Qingfan, du Palais Enchanté du Roi Poison, était tristement célèbre dans la Mer Xiu Mo. Les cultivateurs ordinaires, que ce soit en sa présence ou dans son dos, l'appelaient respectueusement Senior Meng chaque fois qu'ils évoquaient Meng Qingfan.
 
@@ -14,13 +14,13 @@ Même ceux de sa génération l'appelaient au moins le Maître du Palais Meng. O
 
 À cela s'ajoutait la personnalité excentrique de Meng Qingfan. Un seul mot de travers, et il pouvait anéantir votre secte tout entière. Il y eut autrefois une secte dans la Mer Xiu Mo qui, bien que dépourvue d'experts en Formation de l'Âme, comptait plusieurs experts au stade avancé de l'Âme Naissante, ce qui en faisait l'une des plus puissantes de la région.
 
-Le disciple de l'un des experts de l'Âme Naissante de cette secte avait croisé le Bossu Meng. Non seulement il ignorait son identité, mais il s'était permis de se moquer de lui.
+Le disciple de l'un des experts de l'Âme Naissante de cette secte avait croisé Meng Tuozi. Non seulement il ignorait son identité, mais il s'était permis de se moquer de lui.
 
 Cette nuit-là, Meng Qingfan pénétra seul dans la secte. Deux heures plus tard, lorsqu'il en repartit, les 3 456 membres de l'organisation — disciples internes, externes, travailleurs et même ces experts de l'Âme Naissante au stade avancé — étaient tous morts.
 
 Lorsque Meng Qingfan tuait, il aimait laisser une explication derrière lui. C’est ainsi que tout le monde finit par connaître ses actes. En conséquence, la cruauté de Meng Qingfan suffisait à faire pâlir quiconque dans la Mer Xiu Mo.
 
-Seuls quelques rares individus osaient l'appeler le Bossu Meng. Après avoir entendu les paroles de Wang Lin, Qian Kun fut plus que jamais convaincu de ses soupçons.
+Seuls quelques rares individus osaient l'appeler Meng Tuozi. Après avoir entendu les paroles de Wang Lin, Qian Kun fut plus que jamais convaincu de ses soupçons.
 
 N'osant pas mentir, il s'exécuta rapidement: « Se... Senior, l'Ancêtre Meng est bel et bien l'ancêtre de notre secte. » Après ces mots, il serra les dents. Sans attendre que Wang Lin ne réponde, il livra le secret qu'il portait.
 

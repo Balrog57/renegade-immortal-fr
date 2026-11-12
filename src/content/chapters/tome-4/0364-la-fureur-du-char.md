@@ -16,9 +16,9 @@ Wang Lin ouvrit les yeux et s'éloigna brusquement de plus de 330 mètres, le re
 
 « Quel genre de fouet est-ce là? » Les yeux de Wang Lin brillèrent tandis qu'il fixait le géant de glace.
 
-Par chance, l'énergie de son épée avait atteint le géant et la foudre de la rétribution divine était encore logée en lui. Grâce à ces deux facteurs, le géant de glace n'avait pas pu attaquer Wang Lin au moment où son âme originelle était expulsée de son corps. Dans le cas contraire, la situation aurait été désastreuse pour lui.
+Par chance, l'énergie de son épée avait atteint le géant et la foudre de la Tribulation Céleste était encore logée en lui. Grâce à ces deux facteurs, le géant de glace n'avait pas pu attaquer Wang Lin au moment où son âme originelle était expulsée de son corps. Dans le cas contraire, la situation aurait été désastreuse pour lui.
 
-Au moment même où l'énergie de l'épée frappait la taille du géant, la foudre de la rétribution divine détruisit les derniers vestiges des gaz restrictifs et disparut soudainement. Les nuages rouges s'évanouirent aussi vite qu'ils étaient apparus, et le ciel retrouva son aspect normal, comme si ces nuages n'avaient jamais existé.
+Au moment même où l'énergie de l'épée frappait la taille du géant, la foudre de la Tribulation Céleste détruisit les derniers vestiges des gaz restrictifs et disparut soudainement. Les nuages rouges s'évanouirent aussi vite qu'ils étaient apparus, et le ciel retrouva son aspect normal, comme si ces nuages n'avaient jamais existé.
 
 Le géant de glace secoua son corps, faisant tomber des fragments de glace au sol. Il ne mesurait plus que la moitié de sa taille initiale, soit 16,5 mètres de haut.
 
@@ -26,7 +26,7 @@ La blessure à sa taille se referma rapidement pour finir par disparaître. Cepe
 
 Sans dire un mot, Wang Lin fit volte-face et s'enfuit. Ce fouet était bien trop dangereux. Si son âme originelle venait à être expulsée de nouveau et que son corps était détruit, il aurait perdu, même en cas de victoire.
 
-Le visage de Hongdie apparut sur le front du géant de glace et elle hurla, les dents serrées: « Ceng Niu, je veux voir ce que tu as encore dans le ventre! »
+Le visage de Hongdie apparut sur le front du géant de glace et elle hurla, les dents serrées: « Zeng Niu, je veux voir ce que tu as encore dans le ventre! »
 
 Le géant de glace, désormais plus petit, s'avéra bien plus agile qu'auparavant. Il se redressa en faisant trembler la terre et se lança à la poursuite de Wang Lin.
 
@@ -36,9 +36,9 @@ Tout en volant, il sortit rapidement une pilule et l'avala pour stabiliser son �
 
 L'expression de Hongdie était glaciale. Elle détestait l'homme devant elle jusqu'à ses os. Si ce n'était pas pour le géant de glace, elle aurait péri ici.
 
-« Ce Ceng Niu possédait un trésor capable d'invoquer la foudre de la rétribution divine. Cependant, je ne crois pas qu'il en possède deux, sinon il les aurait utilisés simultanément. Même avec le Fouet Kunji, le géant de glace ne pourra pas résister à deux assauts de la foudre de la rétribution divine », pensa Hongdie, le regard sombre. Elle donna un ordre et le fouet apparut soudainement dans la main du géant.
+« Ce Zeng Niu possédait un trésor capable d'invoquer la foudre de la Tribulation Céleste. Cependant, je ne crois pas qu'il en possède deux, sinon il les aurait utilisés simultanément. Même avec le Fouet Kunji, le géant de glace ne pourra pas résister à deux assauts de la foudre de la Tribulation Céleste », pensa Hongdie, le regard sombre. Elle donna un ordre et le fouet apparut soudainement dans la main du géant.
 
-Hongdie cria: « Ceng Niu, accepte ta mort! »
+Hongdie cria: « Zeng Niu, accepte ta mort! »
 
 Le géant abattit le fouet. Celui-ci fendit l'air plus vite que l'éclair en direction de Wang Lin.
 
@@ -50,7 +50,7 @@ Il réapparut à 50 kilomètres de là et cracha un flot de sang. En se télépo
 
 Le regard de Hongdie restait impavide tandis qu'elle commandait au géant de glace de poursuivre Wang Lin dans une traque effrénée.
 
-Tout en le poursuivant, Hongdie l'insulta: « Ceng Niu, tu fuis maintenant comme un chien errant! Où est passée ton aura dominante d'autrefois? »
+Tout en le poursuivant, Hongdie l'insulta: « Zeng Niu, tu fuis maintenant comme un chien errant! Où est passée ton aura dominante d'autrefois? »
 
 Wang Lin laissa échapper un rire et rétorqua: « Hongdie, tu n'as pas encore résolu la malédiction de ce bras. Tu ne fais que la supprimer avec ton énergie spirituelle. C'est la véritable raison pour laquelle tu as utilisé ton trésor le plus puissant dès le début. »
 
@@ -60,7 +60,7 @@ Après un moment, Wang Lin retrouva une partie de son énergie spirituelle. Ses 
 
 Wang Lin frappa le bras de la main gauche et hurla: « Explose! »
 
-Une ligne noire apparut instantanément sur le front de Hongdie. Son corps trembla et son visage pâlit. Elle s'écria: « Ceng Niu, si je ne te tue pas, alors je ne m'appelle plus Hongdie! »
+Une ligne noire apparut instantanément sur le front de Hongdie. Son corps trembla et son visage pâlit. Elle s'écria: « Zeng Niu, si je ne te tue pas, alors je ne m'appelle plus Hongdie! »
 
 Wang Lin ricana et cria: « Contiens-le! Je veux voir combien de temps tu pourras le contenir! Explose! Explose! Explose! »
 

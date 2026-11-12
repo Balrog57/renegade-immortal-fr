@@ -34,7 +34,7 @@ Il était impossible de distinguer ses traits, si flous fussent-ils, mais ses im
 
 Avant même qu'elle ne soit proche, un grondement s'abattit sur lui comme une rafale de vent. Wang Lin recula immédiatement pour esquiver la paume approchante.
 
-« Une simple restriction formée par la rosée. Je ne te considère pas digne de mon attention! » Deux boules de flammes apparurent dans les yeux de Wang Lin et le tatouage de l'Oiseau Vermillon sur son corps brilla d'un rouge éclatant.
+« Une simple restriction formée par la rosée. Je ne te considère pas digne de mon attention! » Deux boules de flammes apparurent dans les yeux de Wang Lin et le tatouage de Suzaku sur son corps brilla d'un rouge éclatant.
 
 Au moment où la main du géant balayait l'espace, Wang Lin ouvrit les bras et une mer de flammes jaillit de son corps.
 
@@ -60,27 +60,27 @@ Lors de sa contraction, un visage gigantesque apparut au sein du mur lorsqu'il f
 
 C'était le visage du géant des mers. Dès son apparition, il poussa un rugissement et ouvrit la gueule. Il chargea alors Wang Lin pour le dévorer!
 
-La flamme dans les yeux de Wang Lin brûlait avec éclat et le tatouage de l'Oiseau Vermillon rayonnait à travers ses vêtements. D'une simple pensée, un cri d'Oiseau Vermillon jaillit de son corps.
+La flamme dans les yeux de Wang Lin brûlait avec éclat et le tatouage de Suzaku rayonnait à travers ses vêtements. D'une simple pensée, un cri de Suzaku jaillit de son corps.
 
-Ce cri était puissant et majestueux. À cet instant précis, le corps entier de Wang Lin commença à brûler; l'Oiseau Vermillon rouge s'élança hors de lui et déploya ses ailes. Un instant, une mer de flammes indescriptible apparut!
+Ce cri était puissant et majestueux. À cet instant précis, le corps entier de Wang Lin commença à brûler; Suzaku rouge s'élança hors de lui et déploya ses ailes. Un instant, une mer de flammes indescriptible apparut!
 
-Alors que la bouche du géant des mers approchait, une trace d'intention meurtrière brilla dans les yeux de Wang Lin, qui murmura doucement: « Flamme de l'Oiseau Vermillon! »
+Alors que la bouche du géant des mers approchait, une trace d'intention meurtrière brilla dans les yeux de Wang Lin, qui murmura doucement: « Flamme de Suzaku! »
 
-À ces mots, l'Oiseau Vermillon au-dessus de lui déploya soudainement ses ailes, et des flammes infinies éclatèrent, se propageant dans toutes les directions!
+À ces mots, Suzaku au-dessus de lui déploya soudainement ses ailes, et des flammes infinies éclatèrent, se propageant dans toutes les directions!
 
 Ces flammes étaient sans limites et, tandis qu'elles s'étendaient, un rugissement de douleur monta du géant des mers, contraint de reculer.
 
 Même la muraille de vagues qui se trouvait à mille pieds de Wang Lin s'évapora instantanément au contact des flammes. L'eau se changea en brume et fut repoussée!
 
-Elle recula plusieurs fois plus vite qu'elle ne s'était approchée. Cependant, les flammes de l'Oiseau Vermillon la poursuivaient de près. À ce moment-là, le mur d'eau se dissipa pour se condenser à nouveau en un géant des mers.
+Elle recula plusieurs fois plus vite qu'elle ne s'était approchée. Cependant, les flammes de Suzaku la poursuivaient de près. À ce moment-là, le mur d'eau se dissipa pour se condenser à nouveau en un géant des mers.
 
 Toutefois, la taille du géant avait considérablement changé. Il ne mesurait plus que dix mille pieds de haut et n'était plus assis, mais debout.
 
-Dès que le géant se reforma, la flamme de l'Oiseau Vermillon descendit et l'encercla. Les yeux de Wang Lin s'illuminèrent et il pointa le doigt vers l'avant.
+Dès que le géant se reforma, la flamme de Suzaku descendit et l'encercla. Les yeux de Wang Lin s'illuminèrent et il pointa le doigt vers l'avant.
 
 L'Oiseau Vermillon poussa un autre cri. Il se transforma en une boule de feu et chargea le géant tel un météore. Il perça l'eau de mer et s'engouffra à l'intérieur du colosse.
 
-Des rugissements de douleur continuaient de jaillir du géant des mers. Déjà entouré de flammes, il brûlait désormais de l'intérieur par l'impact de l'Oiseau Vermillon!
+Des rugissements de douleur continuaient de jaillir du géant des mers. Déjà entouré de flammes, il brûlait désormais de l'intérieur par l'impact de Suzaku!
 
 Alors que le géant brûlait de part et d'autre, il agitait ses bras comme s'il se débattait. Cependant, il ne pouvait empêcher l'eau qui composait son corps de se transformer en une vapeur saturant le ciel.
 
@@ -96,7 +96,7 @@ La goutte était si rapide qu'elle atteignit instantanément Wang Lin. C'était 
 
 Un rugissement tonitruant retentit lorsqu'un impact puissant frappa le bouclier azur. Celui-ci fut repoussé de quelques pouces par la force du choc, mais il ne se fissura pas. Il bloqua l'attaque de la goutte d'eau.
 
-Au même moment, l'Oiseau Vermillon s'approcha et enveloppa la goutte d'une chaleur inimaginable. La goutte d'eau rétrécit jusqu'à disparaître enfin après un ultime rugissement.
+Au même moment, Suzaku s'approcha et enveloppa la goutte d'une chaleur inimaginable. La goutte d'eau rétrécit jusqu'à disparaître enfin après un ultime rugissement.
 
 Le cri du géant des mers résonnait encore dans le ciel. Cependant, lorsque la dernière goutte disparut, le firmament entier trembla comme s'il allait s'effondrer. À cet instant, le ciel sembla se déchirer et le fond marin se brisa pouce par pouce.
 

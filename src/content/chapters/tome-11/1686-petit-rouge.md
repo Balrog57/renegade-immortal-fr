@@ -16,7 +16,7 @@ Terrorisé, il prit la fuite précipitamment. Wang Lin observa calmement sa retr
 
 Une onde de chaleur se propagea de la paume de Wang Lin dans toutes les directions. Ce dernier ne poursuivit pas la créature, mais traça simplement un sceau dans les airs.
 
-Ce sceau lui avait été transmis par l'Oiseau Vermillon de la deuxième génération pour contrôler ce dragon de feu!
+Ce sceau lui avait été transmis par Suzaku de la deuxième génération pour contrôler ce dragon de feu!
 
 Dès que le sceau apparut, le dragon qui s'était déjà éloigné poussa un cri déchirant. Un sceau identique surgit entre ses sourcils.
 
@@ -52,13 +52,13 @@ Wang Lin se tenait au-dessus de la tête gigantesque du dragon. Ses yeux brillai
 
 Il ne restait que six heures avant la fin de la période de trois ans. Ces six heures suffiraient amplement à Wang Lin pour extorquer des informations au dragon.
 
-« Le Continent Astral Immortel est votre patrie, n'est-ce pas... » Le sens divin de Wang Lin qui entourait le dragon projeta soudain un message.
+« Le Continent Xian Gang est votre patrie, n'est-ce pas... » Le sens divin de Wang Lin qui entourait le dragon projeta soudain un message.
 
 Le dragon de feu sursauta. Il cligna de ses grands yeux reptiliens et commença à secouer vigoureusement sa tête massive.
 
 Wang Lin le fixa froidement en levant la main droite, où apparut l'aura d'un sort de recherche d'âme. Il regarda le dragon et envoya lentement un message:
 
-« Avec votre intelligence, vous connaissez les effets du sort que je tiens dans ma main. Je vous le demande une dernière fois: venez-vous du Continent Astral Immortel? »
+« Avec votre intelligence, vous connaissez les effets du sort que je tiens dans ma main. Je vous le demande une dernière fois: venez-vous du Continent Xian Gang? »
 
 L'horreur se lut dans les yeux de la créature, mais pour une raison obscure, elle jeta un regard vers le millier et plus de cultivateurs de la Secte du Dragon Céleste au loin. Elle serra les dents et secoua la tête.
 
@@ -92,9 +92,9 @@ Bien qu'empreints de doute, les cultivateurs n'osèrent pas manifester leur incr
 
 Une fois la foule dispersée, l'aura majestueuse du dragon s'évapora. Il arborait une expression embarrassée et s'apprêtait à parler quand Wang Lin avança d'un pas, se tint sur sa tête et, l'entraînant avec lui, revint à l'endroit des étoiles où il était assis en tailleur auparavant.
 
-« Maître, ce petit dragon vient bel et bien du Continent Astral Immortel. Si vous avez des questions, n'hésitez pas. Ce petit dragon promet de tout vous révéler! » Le dragon adopta un ton flatteur et envoya rapidement un message par son sens divin.
+« Maître, ce petit dragon vient bel et bien du Continent Xian Gang. Si vous avez des questions, n'hésitez pas. Ce petit dragon promet de tout vous révéler! » Le dragon adopta un ton flatteur et envoya rapidement un message par son sens divin.
 
-« Comment êtes-vous arrivé ici depuis le Continent Astral Immortel? » demanda Wang Lin en s'asseyant sur le dos du dragon.
+« Comment êtes-vous arrivé ici depuis le Continent Xian Gang? » demanda Wang Lin en s'asseyant sur le dos du dragon.
 
 « J'ai suivi mon ancien maître et un maudit individu. Ce salaud savait que mon maître me préférait et ne pouvait l'accepter. Il a donc prétendu que la Secte Qi Dao possédait un trésor, trompant ainsi mon ancien maître pour nous attirer ici...
 

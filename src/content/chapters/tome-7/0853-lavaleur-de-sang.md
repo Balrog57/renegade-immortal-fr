@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 853 - Blood Swallow
 slug: lavaleur-de-sang
 ---
-Une immense quantité de rétribution divine se propagea, générant une pression colossale. Cette pression était si puissante que tout ce qui se trouvait dans son périmètre fut soumis à la foudre céleste.
+Une immense quantité de Tribulation Céleste se propagea, générant une pression colossale. Cette pression était si puissante que tout ce qui se trouvait dans son périmètre fut soumis à la foudre céleste.
 
-La puissance de la rétribution divine ne faisait que commencer. La majesté des cieux et la force destructrice contenues dans cette calamité étaient plusieurs fois plus intenses qu'auparavant.
+La puissance de la Tribulation Céleste ne faisait que commencer. La majesté des cieux et la force destructrice contenues dans cette calamité étaient plusieurs fois plus intenses qu'auparavant.
 
-L'apparition des nuages de rétribution divine ne se contenta pas d'isoler cette zone du reste du monde; tous les puissants cultivateurs du Domaine Sud pouvaient ressentir que le ciel était dans un état de violence extrême.
+L'apparition des nuages de Tribulation Céleste ne se contenta pas d'isoler cette zone du reste du monde; tous les puissants cultivateurs du Domaine Sud pouvaient ressentir que le ciel était dans un état de violence extrême.
 
 Ces fluctuations étaient si vigoureuses qu'elles semblaient pouvoir contrôler l'énergie originelle à l'intérieur des corps. Les expressions de nombreux cultivateurs changèrent alors qu'ils s'asseyaient pour sceller leur énergie originelle en eux.
 
@@ -24,7 +24,7 @@ L'individu portait une robe ample rouge sang, et ses cheveux rouges flottaient s
 
 À son apparition, il agita nonchalamment sa main droite, et le sceau démoniaque sur Yao Yun devint plus puissant, faisant trembler violemment Yao Yun. La lutte dans les yeux de Yao Yun finit par disparaître totalement.
 
-Les pupilles de Wang Lin se rétractèrent. Dès l'instant où la silhouette de Xue Shenzi apparut, Wang Lin recula rapidement en posant sa main sur son sac de stockage. S'il n'avait pas été empêché de fusionner avec le monde par la rétribution divine, il serait parti sans la moindre hésitation.
+Les pupilles de Wang Lin se rétractèrent. Dès l'instant où la silhouette de Xue Shenzi apparut, Wang Lin recula rapidement en posant sa main sur son sac de stockage. S'il n'avait pas été empêché de fusionner avec le monde par la Tribulation Céleste, il serait parti sans la moindre hésitation.
 
 À cet instant précis, il ne fut nullement lent, se déplaçant tel un rayon de lumière. Il utilisa toute sa puissance pour s'éloigner.
 
@@ -34,7 +34,7 @@ Sa voix était calme, mais lorsqu'elle franchit ses lèvres, elle se mua en des 
 
 C'était comme si la voix de Xue Shenzi incarnait la puissance des cieux! Sa voix était celle du firmament, et nul ne pouvait y résister!
 
-Alors que le tumulte se propageait, l'espace se modifia et même les nuages de la rétribution divine furent repoussés. Tout cela était dû à la voix de Xue Shenzi. C'était comme si ses paroles contenaient une force capable de plier les lois de la nature. Il semblait pouvoir modifier les lois de cette zone en un instant, afin que tout soit soumis à ses règles, sous peine de s'effondrer!
+Alors que le tumulte se propageait, l'espace se modifia et même les nuages de la Tribulation Céleste furent repoussés. Tout cela était dû à la voix de Xue Shenzi. C'était comme si ses paroles contenaient une force capable de plier les lois de la nature. Il semblait pouvoir modifier les lois de cette zone en un instant, afin que tout soit soumis à ses règles, sous peine de s'effondrer!
 
 C'était comme si, dans ce périmètre, Xue Shenzi était un véritable être céleste!
 
@@ -98,7 +98,7 @@ Xue Shenzi laissa échapper un reniflement méprisant et fit un pas en avant. D'
 
 Un vent glacial s'engouffra de l'intérieur, forçant Wang Lin à s'arrêter. Il fixa Xue Shenzi et demanda: « Le Senior va-t-il revenir sur sa promesse? »
 
-« Et alors si je romps ma promesse? » répondit Xue Shenzi d'un ton sombre en avançant. En plus de bloquer la fuite de Wang Lin, il avait injecté de l'énergie originelle au sein des nuages de la rétribution divine!
+« Et alors si je romps ma promesse? » répondit Xue Shenzi d'un ton sombre en avançant. En plus de bloquer la fuite de Wang Lin, il avait injecté de l'énergie originelle au sein des nuages de la Tribulation Céleste!
 
 Instantanément, les nuages de la rétribution se condensèrent encore plus vite. Des grondements tonitruants résonnèrent tandis que la foudre s'accumulait dans les cieux. D'innombrables éclairs rouges descendirent aussitôt.
 
@@ -110,7 +110,7 @@ Xue Shenzi ne daigna même pas regarder la foudre de la rétribution et fit un p
 
 Cette tentative de saisie était d'une simplicité absolue, dénuée de toute puissance apparente. Pourtant, quand Wang Lin la vit, son esprit vacilla comme s'il n'existait aucun moyen de l'esquiver!
 
-La rétribution divine se rapprochait, tout comme la main de Xue Shenzi. Dans ce moment de crise extrême, les yeux de Wang Lin devinrent glacials et il hurla: « Connaissez-vous l'ancien démon Bei Luo?! »
+La Tribulation Céleste se rapprochait, tout comme la main de Xue Shenzi. Dans ce moment de crise extrême, les yeux de Wang Lin devinrent glacials et il hurla: « Connaissez-vous l'ancien démon Bei Luo?! »
 
 Le corps de Xue Shenzi s'immobilisa soudainement et ses yeux projetèrent une lueur démoniaque. Une lueur maléfique apparut entre ses sourcils tandis qu'un gaz noir se rassemblait rapidement. Une silhouette démoniaque au corps verdâtre, dotée de deux cornes, surgit!
 

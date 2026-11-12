@@ -28,27 +28,27 @@ Les bêtes moustiques sombres descendirent. Elles n'étaient pas lentes, c'est s
 
 La tempête dans le ciel gronda violemment et, alors que Wang Lin la fixait d'un regard glacial, un fracas tonitruant retentit. C'était comme si une paire de mains géantes et invisibles avait saisi la tempête pour la déchirer. Le tumulte s'effondra et deux silhouettes se retirèrent brusquement l'une de l'autre!
 
-L'individu qui recula vers la droite était Grande Désolation. Une lueur de froideur traversa ses yeux tandis qu'il riait: « Bien, il est digne d'être le descendant de ce vieil oiseau. Tu as même osé capturer la servante de l'un des cinq maîtres devant lui. Ce courage, cette détermination... tu es un homme d'exception! »
+L'individu qui recula vers la droite était Da Huang. Une lueur de froideur traversa ses yeux tandis qu'il riait: « Bien, il est digne d'être le descendant de ce vieil oiseau. Tu as même osé capturer la servante de l'un des cinq maîtres devant lui. Ce courage, cette détermination... tu es un homme d'exception! »
 
 « Je ne t'ai pas donné cette armure de poison pour rien, afin de te protéger! » sourit le vieil homme. Il avait remarqué que Wang Lin n'était pas ordinaire, et si les deux venaient à unir leurs forces...
 
 L'homme sur la gauche était le jeune Miaoyin Daozun. Il surplombait Wang Lin depuis les airs et esquissa soudain un sourire.
 
-« Très bien! » Ce sourire était d'une froideur extrême. Après avoir jeté un regard à Wang Lin, il leva les yeux vers Grande Désolation. D'un revers de main, il fit apparaître un serpent vert de 10 000 pieds. Le reptile commença à se débattre et à siffler furieusement.
+« Très bien! » Ce sourire était d'une froideur extrême. Après avoir jeté un regard à Wang Lin, il leva les yeux vers Da Huang. D'un revers de main, il fit apparaître un serpent vert de 10 000 pieds. Le reptile commença à se débattre et à siffler furieusement.
 
 Dans une pression soudaine, le serpent poussa un cri lugubre et son corps illusoire s'effondra. Il se transforma alors en une pilule de la taille d'une tête qui flotta devant Miaoyin Daozun.
 
 Des effluves parfumées emplirent l'air; une seule bouffée suffisait à accélérer le flux sanguin et à revigorer l'esprit.
 
-« Vieux Poison de Grande Désolation, tu n'es pas mon égal dans cette tombe, et il est inutile de continuer ce combat. Puisque ce seigneur a volé ton esprit Dao, je vais te le rendre! »
+« Vieux Poison de Da Huang, tu n'es pas mon égal dans cette tombe, et il est inutile de continuer ce combat. Puisque ce seigneur a volé ton esprit Dao, je vais te le rendre! »
 
-« Le différend entre nous est clos, tu peux partir maintenant. Qu'en dis-tu? » Une fois qu'il eut fini de parler, le regard de Grande Désolation vacilla.
+« Le différend entre nous est clos, tu peux partir maintenant. Qu'en dis-tu? » Une fois qu'il eut fini de parler, le regard de Da Huang vacilla.
 
 Un éclair de froideur passa dans les yeux de Wang Lin. Cette phrase venait de renverser la situation, et elle était venimeuse!
 
-Les cinq maîtres étaient extrêmement rusés; ayant tous cultivé pendant des dizaines de milliers d'années, aucun n'était fou! En un coup d'œil, il avait perçu la possibilité que Wang Lin et Grande Désolation fassent équipe. Il avait donc immédiatement offert l'esprit Dao pour briser net toute chance de cette alliance!
+Les cinq maîtres étaient extrêmement rusés; ayant tous cultivé pendant des dizaines de milliers d'années, aucun n'était fou! En un coup d'œil, il avait perçu la possibilité que Wang Lin et Da Huang fassent équipe. Il avait donc immédiatement offert l'esprit Dao pour briser net toute chance de cette alliance!
 
-« N'est-ce pas cet esprit Dao que tu convoites? Je te le donne! Comparé à la Perle Défiant le Ciel que possède Wang Lin, ceci n'est rien! » Miaoyin Daozun restait calme, attendant de voir le choix de Grande Désolation.
+« N'est-ce pas cet esprit Dao que tu convoites? Je te le donne! Comparé à la Perle Défiant le Ciel que possède Wang Lin, ceci n'est rien! » Miaoyin Daozun restait calme, attendant de voir le choix de Da Huang.
 
 Wang Lin ricana. S'il avait été à l'extérieur, il aurait immédiatement fui en rencontrant Miaoyin Daozun, tant l'écart entre eux était immense. Cependant, ici, Wang Lin était sûr de son jugement. Bien que Miaoyin Daozun fût l'un des cinq maîtres, il ne pouvait manifester ici qu'une culture au début du stade Vide du Nirvana.
 
@@ -56,17 +56,17 @@ Bien que Wang Lin n'eût aucune chance de victoire, Miaoyin Daozun devrait dépl
 
 Toutefois, le fait le plus crucial était que Wang Lin possédait un esclave ancien!
 
-Grande Désolation plissa les yeux et réfléchit un instant. Il sourit et, sans même accorder un regard à Wang Lin, déclara: « Apporte l'esprit Dao, et ce vieil homme partira! »
+Da Huang plissa les yeux et réfléchit un instant. Il sourit et, sans même accorder un regard à Wang Lin, déclara: « Apporte l'esprit Dao, et ce vieil homme partira! »
 
-Miaoyin Daozun ne répondit rien et se contenta de fixer Grande Désolation.
+Miaoyin Daozun ne répondit rien et se contenta de fixer Da Huang.
 
-« Ce vieil homme Grande Désolation jure par mes Flammes Joss qu'une fois l'esprit Dao obtenu, je partirai sans jamais revenir! » Grande Désolation semblait deviner ce que Miaoyin Daozun attendait. Sans hésiter, il forma un sceau de la main droite, et une rune étrange s'en échappa.
+« Ce vieil homme Da Huang jure par mes Flammes Joss qu'une fois l'esprit Dao obtenu, je partirai sans jamais revenir! » Da Huang semblait deviner ce que Miaoyin Daozun attendait. Sans hésiter, il forma un sceau de la main droite, et une rune étrange s'en échappa.
 
 Prêter serment sur ses Flammes Joss, sous forme de rune de serment, était une méthode de contrainte à laquelle les cultivateurs du troisième niveau se fiaient plutôt entre eux. D'un geste de la main, il projeta la rune vers Miaoyin Daozun.
 
 Après avoir saisi la rune, Miaoyin Daozun se détendit et lança la pilule qu'il tenait en main.
 
-Grande Désolation agita sa manche pour récupérer la pilule. Il sourit, jeta un regard à Wang Lin, puis s'envola au loin. Au moment même où il pénétrait dans une faille spatiale, Wang Lin jaillit soudainement dans les airs.
+Da Huang agita sa manche pour récupérer la pilule. Il sourit, jeta un regard à Wang Lin, puis s'envola au loin. Au moment même où il pénétrait dans une faille spatiale, Wang Lin jaillit soudainement dans les airs.
 
 Dès son envol, le tatouage de tonnerre, rongé de flammes, apparut devant lui et il chargea Miaoyin Daozun. Ce dernier laissa échapper un reniflement froid, le regard empreint de cruauté. Face à ce cultivateur du Feu Éthéré, il verrouilla d'abord toutes ses émotions.
 
@@ -92,13 +92,13 @@ Cependant, alors qu'il se retirait, l'expression de faiblesse de Wang Lin dispar
 
 « Je veux que son corps abrite mon âme! » Une voix antique résonna à travers le monde.
 
-Miaoyin Daozun ne prêta aucune attention à Wang Lin. Le bouclier devant lui s'envola pour heurter la paume géante. La colère brûlait dans ses yeux lorsqu'il s'écria: « Vieux Poison de Grande Désolation, tu as rompu ta promesse! »
+Miaoyin Daozun ne prêta aucune attention à Wang Lin. Le bouclier devant lui s'envola pour heurter la paume géante. La colère brûlait dans ses yeux lorsqu'il s'écria: « Vieux Poison de Da Huang, tu as rompu ta promesse! »
 
-« Quelle plaisanterie. Ce vieil homme ne tient ses promesses que selon les gens! Puisque tu as volé mon trésor une fois, il y aura une deuxième fois, une troisième... comment pourrais-je te laisser faire sans réagir? » Tout en riant, la silhouette de Grande Désolation, revenu sur ses pas, apparut à l'intérieur de l'empreinte de la paume sombre.
+« Quelle plaisanterie. Ce vieil homme ne tient ses promesses que selon les gens! Puisque tu as volé mon trésor une fois, il y aura une deuxième fois, une troisième... comment pourrais-je te laisser faire sans réagir? » Tout en riant, la silhouette de Da Huang, revenu sur ses pas, apparut à l'intérieur de l'empreinte de la paume sombre.
 
-« Ce jeune cultivateur est le descendant de ce vieil oiseau. Et ce vieil oiseau est mon seul ami proche, comment pourrais-je l'abandonner? Ton corps, je le prendrai! » Tandis qu'il parlait, Grande Désolation agita sa main droite. Les cinq ongles de la paume se détachèrent pour devenir cinq lames composées de gaz noir. Extrêmement tranchantes, elles fusèrent vers Miaoyin Daozun.
+« Ce jeune cultivateur est le descendant de ce vieil oiseau. Et ce vieil oiseau est mon seul ami proche, comment pourrais-je l'abandonner? Ton corps, je le prendrai! » Tandis qu'il parlait, Da Huang agita sa main droite. Les cinq ongles de la paume se détachèrent pour devenir cinq lames composées de gaz noir. Extrêmement tranchantes, elles fusèrent vers Miaoyin Daozun.
 
-Miaoyin Daozun recula promptement alors que l'épée de sang apparaissait derrière lui. Il ne se souciait guère de Wang Lin ou de l'épée; il estimait que Wang Lin ne pouvait être qu'une distraction, son véritable ennemi étant le Vieux Poison de Grande Désolation!
+Miaoyin Daozun recula promptement alors que l'épée de sang apparaissait derrière lui. Il ne se souciait guère de Wang Lin ou de l'épée; il estimait que Wang Lin ne pouvait être qu'une distraction, son véritable ennemi étant le Vieux Poison de Da Huang!
 
 Voyant les cinq ongles s'approcher, il concentra la plus grande partie de son attention sur la menace immédiate. Tandis qu'il injectait davantage de puissance dans son bouclier, une brume violette infinie apparut jusqu'à former un océan violet.
 
@@ -110,7 +110,7 @@ S'il avait été informé, il n'aurait jamais méprisé Wang Lin de la sorte, et
 
 L'épée de sang hurla et percuta le trident dans un fracas violent. Presque rien au monde ne pouvait arrêter l'épée de sang. Elle transperça le trident ainsi que la figure, puis fonça droit sur Miaoyin Daozun!
 
-Ce changement soudain fit chanceler l'expression de Miaoyin Daozun. Il était trop tard pour esquiver. Les cinq lames de Grande Désolation approchaient inexorablement.
+Ce changement soudain fit chanceler l'expression de Miaoyin Daozun. Il était trop tard pour esquiver. Les cinq lames de Da Huang approchaient inexorablement.
 
 Au moment critique, Miaoyin Daozun poussa un rugissement et agita la main. Des écailles violettes apparurent sur son corps, dégageant une lueur violette, et recouvrirent instantanément sa peau.
 

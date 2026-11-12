@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: "Chapter 768 - Corporeal Yang! Counter Attack!"
 slug: yang-corporel-contre-attaque
 ---
-Jamais Wang Lin n'avait attendu avec autant d'impatience l'arrivée de la rétribution divine qu'en cet instant. Il contemplait l'éclair aux sept couleurs qui se condensait au cœur des nuages.
+Jamais Wang Lin n'avait attendu avec autant d'impatience l'arrivée de la Tribulation Céleste qu'en cet instant. Il contemplait l'éclair aux sept couleurs qui se condensait au cœur des nuages.
 
-De toutes les rétributions divines qu'il avait subies, c'était la première fois qu'il voyait un tonnerre aux sept couleurs.
+De toutes les Tribulations Célestes qu'il avait subies, c'était la première fois qu'il voyait un tonnerre aux sept couleurs.
 
 Les nuages multicolores se rassemblèrent rapidement, dégageant une puissance céleste colossale. Sous cette pression, des craquements sinistres résonnèrent depuis le fragment sous les pieds de Wang Lin.
 
@@ -24,7 +24,7 @@ Il expérimentait enfin ce sentiment de regarder le monde avec froideur, après 
 
 Il sentait clairement sa culture franchir la limite de la première étape! Il avait dépassé le sommet du stade avancé de l'Ascendant pour atteindre le stade Yin Illusoire!
 
-« Rétribution divine, sois encore plus agressive! » L'expression de Wang Lin était féroce alors qu'il fixait le ciel.
+« Tribulation Céleste, sois encore plus agressive! » L'expression de Wang Lin était féroce alors qu'il fixait le ciel.
 
 À cet instant, l'éclair aux sept couleurs se condensa brusquement et projeta un rayon de lumière multicolore. Il émit un son étrange avant de fondre soudainement du ciel.
 
@@ -34,7 +34,7 @@ L'éclair aux sept couleurs descendit dans un rugissement tonnerreux. C'était c
 
 En un instant, le tonnerre frappa son corps. Un rugissement apocalyptique résonna à travers le fragment, couvrant tout autre bruit.
 
-Lorsque la puissance de la foudre pénétra en lui, Wang Lin fut immédiatement projeté au sol, son corps enfoncé profondément dans la terre. La moitié du corps de sang en lui et le souffle de l'homme mystérieux se désintégrèrent rapidement en luttant contre la force de la rétribution divine.
+Lorsque la puissance de la foudre pénétra en lui, Wang Lin fut immédiatement projeté au sol, son corps enfoncé profondément dans la terre. La moitié du corps de sang en lui et le souffle de l'homme mystérieux se désintégrèrent rapidement en luttant contre la force de la Tribulation Céleste.
 
 « Encore! » Le corps de Wang Lin s'élança à nouveau dans les airs. La foudre parcourait tout son être et ses cheveux flottaient sans qu'aucun vent ne souffle. À cet instant, il ressemblait à un démon céleste!
 
@@ -58,7 +58,7 @@ Son regard était empreint de détermination. Son chemin de culture était semé
 
 Wang Lin s'élança dans les airs et fonça vers les nuages comme une flèche.
 
-C'était la première fois que Wang Lin contre-attaquait activement. Il ne subissait plus passivement la rétribution divine, il l'attaquait!
+C'était la première fois que Wang Lin contre-attaquait activement. Il ne subissait plus passivement la Tribulation Céleste, il l'attaquait!
 
 Il plongea directement dans la masse nuageuse, ouvrit les bras et aspira sans ménagement. À cet instant, un rugissement s'échappa des nuages, s'apparentant au cri d'une bête sauvage. Instantanément, tous les nuages se contractèrent et toute la foudre qu'ils contenaient se déversa sur Wang Lin avec une frénésie folle.
 
@@ -70,7 +70,7 @@ Son niveau de culture grimpa de manière effrénée alors qu'il dévorait les nu
 
 À mesure qu'il les absorbait, les nuages se raréfiaient peu à peu. Ils devinrent assez fins pour que même Xue Zu puisse distinguer clairement Wang Lin.
 
-Xue Zu retint son souffle en fixant Wang Lin. Voyant que ce dernier était littéralement en train d'avaler les nuages, il n'en crut pas ses yeux et murmura: « Fou... Ce Wang Lin est un fou... Personne n'oserait prendre l'initiative face à une rétribution divine... Je ne peux pas le laisser faire! » Les yeux de Xue Zu brillèrent d'une lueur meurtrière et il s'élança immédiatement.
+Xue Zu retint son souffle en fixant Wang Lin. Voyant que ce dernier était littéralement en train d'avaler les nuages, il n'en crut pas ses yeux et murmura: « Fou... Ce Wang Lin est un fou... Personne n'oserait prendre l'initiative face à une Tribulation Céleste... Je ne peux pas le laisser faire! » Les yeux de Xue Zu brillèrent d'une lueur meurtrière et il s'élança immédiatement.
 
 Après avoir été ainsi affaibli, il n'était plus qu'au sommet du stade Yang Corporel, à un seul pas du stade Scruteur du Nirvana. Cependant, il était convaincu que cela suffisait amplement pour tuer Wang Lin!
 
@@ -78,7 +78,7 @@ Il se mua en une ombre de sang et fonça droit sur Wang Lin au cœur des nuages.
 
 « Xue Zu! » ricana Wang Lin en se repliant dans les nuages.
 
-Xue Zu afficha une expression sombre à l'extérieur des nuages, serra les dents et chargea. Dès son entrée, il ressentit la puissance écrasante des cieux. Ne possédant pas d'âme originelle de tonnerre comme celle de Wang Lin et sa culture étant grandement affaiblie, il éprouva un profond sentiment de crainte face à cette rétribution divine.
+Xue Zu afficha une expression sombre à l'extérieur des nuages, serra les dents et chargea. Dès son entrée, il ressentit la puissance écrasante des cieux. Ne possédant pas d'âme originelle de tonnerre comme celle de Wang Lin et sa culture étant grandement affaiblie, il éprouva un profond sentiment de crainte face à cette Tribulation Céleste.
 
 Pourtant, aucun sentiment ne pouvait surpasser son envie irrépressible de tuer Wang Lin. Il laissa échapper un grognement froid et chargea. Un instant plus tard, il vit Wang Lin être frappé par d'innombrables éclairs au sein des nuages.
 
@@ -98,7 +98,7 @@ Les yeux de Wang Lin restaient calmes tandis qu'il se cachait et reculait rapide
 
 Xue Zu verrouilla sa cible et chargea. Deux sphères de sang se formèrent, une dans chacune de ses mains, avant qu'il ne fonce droit sur Wang Lin. Il voulait en finir le plus vite possible. Il ressentait un sentiment de crise au sein de ces nuages, et plus la lutte durerait, plus il craignait un imprévu.
 
-S'il n'avait pas été à l'intérieur des nuages de la rétribution divine, l'objectif de Xue Zu aurait été facile à atteindre, sa culture étant toujours supérieure. Mais dans ce chaos de foudre, tuer Wang Lin deviendrait une tâche ardue!
+S'il n'avait pas été à l'intérieur des nuages de la Tribulation Céleste, l'objectif de Xue Zu aurait été facile à atteindre, sa culture étant toujours supérieure. Mais dans ce chaos de foudre, tuer Wang Lin deviendrait une tâche ardue!
 
 L'âme originelle de tonnerre de Wang Lin était comme un poisson dans l'eau. L'énergie du mystérieux vieil homme neutralisait toute la foudre pénétrant son corps. Et par-dessus tout, il bénéficiait de la puissante poussée d'énergie originelle qui bouillonnait en lui.
 
@@ -114,12 +114,12 @@ Et cela ne s'arrêta pas là. Tandis que l'énergie originelle était absorbée 
 
 Le changement physique de Wang Lin fit vaciller l'expression de Xue Zu. Il sentit même son cuir chevelu picoter.
 
-« Je ne peux pas le laisser continuer. S'il poursuit sur cette lancée, il pourrait atteindre le début du stade Scruteur du Nirvana! » Les yeux de Xue Zu devinrent injectés de sang. En observant la rétribution divine, il avait ajusté son corps et s'était désormais reformé en chair.
+« Je ne peux pas le laisser continuer. S'il poursuit sur cette lancée, il pourrait atteindre le début du stade Scruteur du Nirvana! » Les yeux de Xue Zu devinrent injectés de sang. En observant la Tribulation Céleste, il avait ajusté son corps et s'était désormais reformé en chair.
 
 Un sentiment encore plus puissant qu'auparavant envahit Wang Lin. Ses yeux brillèrent comme des torches et il eut l'impression de tenir le monde entier entre ses mains. Il prit une profonde inspiration alors que Xue Zu se rapprochait. Il plaça ensuite son doigt entre ses sourcils, libérant son âme originelle.
 
 Son corps tomba des nuages mais fut guidé par un sortilège. Une fois au sol, il s'assit immédiatement pour cultiver.
 
-Jaillissant de son enveloppe charnelle, l'âme originelle de Wang Lin se mua en un ancien dragon de tonnerre d'environ mille pieds de long. Sa présence était terrifiante au milieu des nuages de la rétribution divine!
+Jaillissant de son enveloppe charnelle, l'âme originelle de Wang Lin se mua en un ancien dragon de tonnerre d'environ mille pieds de long. Sa présence était terrifiante au milieu des nuages de la Tribulation Céleste!
 
 « Xue Zu, puisque tu t'es livré à moi, autant exaucer mon vœu! »

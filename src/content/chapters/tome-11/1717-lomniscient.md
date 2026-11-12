@@ -26,7 +26,7 @@ Par ce moyen, Wang Lin espérait localiser Tian Yunzi en exploitant le lien entr
 
 Ce n'était pas la première fois qu'il utilisait cette méthode. Il avait soigneusement pesé les risques, mais aucun danger ne lui était apparu.
 
-Alors que Wang Lin fusionnait avec l'avatar de Tian Yunzi, une météorite flottait lentement à travers la Rivière Zhao He. Tian Yunzi était assis à l'intérieur du météore, arborant un sourire étrange.
+Alors que Wang Lin fusionnait avec l'avatar de Tian Yunzi, une météorite flottait lentement à travers Zhao He He. Tian Yunzi était assis à l'intérieur du météore, arborant un sourire étrange.
 
 Ses cheveux blancs ondulaient d'une manière singulière, lui conférant l'allure d'un être céleste. Pourtant, son sourire brisait cette image et lui donnait un air extrêmement sinistre.
 

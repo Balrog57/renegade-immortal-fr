@@ -116,6 +116,6 @@ C'était le résultat d'une intégration totale du Dao et de la volonté dans le
 
 Le monde se distordit. Alors que ses cheveux blancs flottaient, Wang Lin ne recula pas; il fit un pas en avant et projeta son propre coup de poing de la main droite!
 
-Il n'activa pas immédiatement l'armure d'âme du Taureau Céleste, préférant tester sa propre puissance. Il voulait voir comment il se mesurerait à un Exalté Empyréen sans cette protection!
+Il n'activa pas immédiatement l'armure d'âme du Tian Niu, préférant tester sa propre puissance. Il voulait voir comment il se mesurerait à un Exalté Empyréen sans cette protection!
 
 À cet instant, des grondements déchirèrent le silence et la terre commença à se briser strate après strate sous l'impact de leurs coups. Tout s'effondra, mais la distorsion empêcha la destruction de se propager loin, la matière n'ayant d'autre choix que d'être projetée dans les airs, formant une tempête de poussière!

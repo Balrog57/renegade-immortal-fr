@@ -52,7 +52,7 @@ Le dragon était mourant, ayant perdu la quasi-totalité de son sang. En entenda
 
 Wang Lin acquiesça et regarda dans la direction où le dragon s'était envolé. Le dragon, qui venait de quitter la Planète du Grand Empereur, était transporté d'excitation.
 
-« Libre, enfin libre! Grooar! Ce vieux dragon est enfin libéré des griffes du démon. Après tant d'années, tant d'années! » Des larmes perlaient dans les yeux du dragon. Il ignorait qu'il avait été trompé par l'Oiseau Vermillon de la première génération et puis directement offert par celui de la deuxième... Wang Lin détourna le regard. Il ne regarda plus la foule, mais fixa le bâton d'encens céleste. Après une courte réflexion, il prit une profonde inspiration et posa sa main sur l'encens.
+« Libre, enfin libre! Grooar! Ce vieux dragon est enfin libéré des griffes du démon. Après tant d'années, tant d'années! » Des larmes perlaient dans les yeux du dragon. Il ignorait qu'il avait été trompé par Suzaku de la première génération et puis directement offert par celui de la deuxième... Wang Lin détourna le regard. Il ne regarda plus la foule, mais fixa le bâton d'encens céleste. Après une courte réflexion, il prit une profonde inspiration et posa sa main sur l'encens.
 
 « Ancêtre Oiseau Vermillon de la première génération... L'Ancêtre du Clan Zhu Que... L'un des quatre grands généraux sous les ordres du Souverain Céleste Ancien... Un tel être doit connaître de nombreux secrets... »
 
@@ -66,7 +66,7 @@ Tout en réfléchissant, Wang Lin ferma les yeux.
 
 L'Épreuve Céleste était totalement différente des deux autres. C'était un monde rempli de nuages blancs, et il n'y avait qu'une seule autre chose à part les nuages!
 
-Il s'agissait d'une statue gigantesque. Elle était si immense qu'elle recouvrait une partie du monde. C'était un vieil homme ressemblant à un Oiseau Vermillon. Son nez évoquait un bec et il possédait même des ailes d'Oiseau Vermillon dans le dos!
+Il s'agissait d'une statue gigantesque. Elle était si immense qu'elle recouvrait une partie du monde. C'était un vieil homme ressemblant à un Oiseau Vermillon. Son nez évoquait un bec et il possédait même des ailes de Suzaku dans le dos!
 
 Ses yeux étaient clos et un feu aux neuf couleurs brûlait entre ses sourcils.
 

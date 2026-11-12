@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1869 - Upheaval!"
 slug: tumulte
 ---
-Un ancien monstre au stade intermédiaire de la Tribulation du Vide sur le Continent Astral Immortel pouvait établir sa propre secte!
+Un ancien monstre au stade intermédiaire de la Tribulation du Vide sur le Continent Xian Gang pouvait établir sa propre secte!
 
 Le Souverain Céleste aux Sept Couleurs était un cultivateur au stade intermédiaire de la Tribulation du Vide à l'époque. Il avait fondé sa propre secte et recruté des disciples. Même la Secte Da Hun se montrait très respectueuse envers lui, car ce genre de cultivateurs méritait le respect.
 

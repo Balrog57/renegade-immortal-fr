@@ -24,7 +24,7 @@ Mais à cet instant, l'ancêtre de la Secte Dao Mo remarqua qu'aucune limite tem
 
 La portée de cette phrase était vertigineuse!
 
-« Cette personne a obtenu la haute reconnaissance de l'âme du Taureau Céleste et possède une puissance proche d'un Exalté Empyréen. Après avoir revêtu l'armure de l'âme, sa puissance de combat est infiniment proche de celle d'un Ascendant Empyréen. Cet homme... Il n'est pas étonnant que le Grand Empyréen Dao Yi lui accorde autant d'importance », soupira l'ancêtre de la Secte Dao Mo intérieurement.
+« Cette personne a obtenu la haute reconnaissance de l'âme du Tian Niu et possède une puissance proche d'un Exalté Empyréen. Après avoir revêtu l'armure de l'âme, sa puissance de combat est infiniment proche de celle d'un Ascendant Empyréen. Cet homme... Il n'est pas étonnant que le Grand Empyréen Dao Yi lui accorde autant d'importance », soupira l'ancêtre de la Secte Dao Mo intérieurement.
 
 Wang Lin réfléchit silencieusement. Le Grand Empyréen Dao Yi était le premier Grand Empyréen qu'il rencontrait, et il pouvait percevoir la sincérité de la promesse dans ces mots.
 
@@ -90,7 +90,7 @@ Wang Lin resta immobile, le regard perdu dans le vide, même après le départ d
 
 « Cinq Grands Empyréens. Outre l'Empereur Céleste et Dao Yi, il en reste trois... Avec ma force actuelle, j'ai acquis de nouvelles perspectives après avoir combattu mon premier Exalté Empyréen. Plus je combattrai d'Exalté Empyréens, plus ma renommée grandira! »
 
-« Et aussi, l'Épreuve Empyréenne... Je ne m'attendais pas à ce qu'un tel lieu existe sur le Continent Astral Immortel. Je me demande seulement si les paroles de l'ancêtre de la Secte Dao Mo étaient vraies ou fausses. »
+« Et aussi, l'Épreuve Empyréenne... Je ne m'attendais pas à ce qu'un tel lieu existe sur le Continent Xian Gang. Je me demande seulement si les paroles de l'ancêtre de la Secte Dao Mo étaient vraies ou fausses. »
 
 Wang Lin s'assit et médita. Au milieu des décombres, il revoyait sans cesse son combat contre l'ancêtre de la Secte Dao Mo et le coup de poing du Grand Empyréen Dao Yi.
 

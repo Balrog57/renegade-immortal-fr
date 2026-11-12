@@ -16,7 +16,7 @@ Le dernier Messager du Démon Vert forma des sceaux et son corps commença à pi
 
 Bien qu'ils aient utilisé des méthodes variées, ils étaient tous extrêmement rapides. Au moment où Wang Lin réapparut à la surface, les quatre avaient déjà disparu sans laisser de trace.
 
-Cependant, comment Wang Lin pouvait-il les laisser s'échapper? Il devait remplir les conditions imposées par le Vieil Ancêtre Taureau Vert grâce à eux quatre. À cet instant, une lueur glaciale traversa le regard de Wang Lin et il fit un pas en avant vers l'est.
+Cependant, comment Wang Lin pouvait-il les laisser s'échapper? Il devait remplir les conditions imposées par le Vieil Ancêtre Qing Niu grâce à eux quatre. À cet instant, une lueur glaciale traversa le regard de Wang Lin et il fit un pas en avant vers l'est.
 
 Des ondulations résonnèrent sous ses pieds et il disparut instantanément.
 
@@ -42,7 +42,7 @@ En un éclair, il disparut.
 
 De son point de vue, ce qui venait de se produire était tout simplement terrifiant. Ils étaient venus ici pour accomplir la tâche confiée par le Vieil Ancêtre: tuer Wang Lin.
 
-Même si un accident s'était produit et que Wang Lin avait obtenu l'armure de l'âme, il n'avait pas été trop effrayé. Après tout, il connaissait certains détails sur l'armure du Taureau Céleste: elle avait une limite de temps.
+Même si un accident s'était produit et que Wang Lin avait obtenu l'armure de l'âme, il n'avait pas été trop effrayé. Après tout, il connaissait certains détails sur l'armure du Tian Niu: elle avait une limite de temps.
 
 Mais en voyant Wang Lin utiliser un sort de foi, il comprit soudain que ce dernier n'était pas un être ordinaire!
 
@@ -68,9 +68,9 @@ L'épée de sang dans la main de Wang Lin continua de vibrer. Par ce coup, l'arm
 
 Elle avait autrefois tué de nombreux Immortels, mais depuis qu'elle était entre les mains de Wang Lin, c'était le niveau de cultivation le plus élevé qu'elle ait jamais terrassé!
 
-Au moment où le Messager du Démon Vert mourut, l'âme du Taureau Céleste apparut autour de Wang Lin. Elle poussa un rugissement d'excitation, comme si la mort de ce messager lui procurait une immense joie.
+Au moment où le Messager du Démon Vert mourut, l'âme du Tian Niu apparut autour de Wang Lin. Elle poussa un rugissement d'excitation, comme si la mort de ce messager lui procurait une immense joie.
 
-Dès que l'âme du Taureau Céleste se manifesta, elle aspira le corps du messager. Une volute de gaz vert s'échappa du corps du messager; elle prit la forme d'un scorpion et se débattit un instant avant d'être dévorée par le Taureau Céleste.
+Dès que l'âme du Tian Niu se manifesta, elle aspira le corps du messager. Une volute de gaz vert s'échappa du corps du messager; elle prit la forme d'un scorpion et se débattit un instant avant d'être dévorée par le Tian Niu.
 
 Wang Lin fut surpris, mais ne marqua pas de pause. Il s'élança et disparut.
 
@@ -88,11 +88,11 @@ Un rugissement sortit de la bouche de Wang Lin. À cet instant, le monde s'obscu
 
 Son corps trembla et il se figea sur place.
 
-Au moment précis où il s'arrêta, un éclat de lumière sanglante balaya l'espace. Dans un grand fracas, le corps du messager s'effondra et l'âme du Taureau Céleste apparut autour de Wang Lin pour dévorer la volute de gaz vert libérée par le défunt.
+Au moment précis où il s'arrêta, un éclat de lumière sanglante balaya l'espace. Dans un grand fracas, le corps du messager s'effondra et l'âme du Tian Niu apparut autour de Wang Lin pour dévorer la volute de gaz vert libérée par le défunt.
 
 Il avait scellé un homme et tué deux personnes. L'aura de Wang Lin chuta rapidement vers le troisième ou quatrième stade de la Tribulation Arcane. Il regarda vers le sud, là où le dernier messager s'était enfui. Après une courte réflexion silencieuse, il renonça à traquer le dernier pour se diriger vers l'endroit où le premier messager avait été scellé.
 
-Un instant plus tard, un rugissement excité du Taureau Céleste retentit là où le premier messager était prisonnier. Il avait dévoré le gaz vert des trois Messagers du Démon Vert morts, et cette substance semblait être une nourriture exceptionnelle pour lui.
+Un instant plus tard, un rugissement excité du Tian Niu retentit là où le premier messager était prisonnier. Il avait dévoré le gaz vert des trois Messagers du Démon Vert morts, et cette substance semblait être une nourriture exceptionnelle pour lui.
 
 La lueur rouge de l'épée de sang devint encore plus éclatante après avoir tué les trois messagers de stade intermédiaire de la Tribulation du Vide. Quelques caractères anciens commencèrent à apparaître sur la lame.
 
@@ -102,7 +102,7 @@ Les cheveux blancs de Wang Lin flottaient au vent tandis que sa cultivation chut
 
 En chemin, son niveau de culture diminua encore pour atteindre le stade initial de la Tribulation Arcane. Lorsqu'il atteignit l'entrée du palais, sa cultivation revint à la normale, au stade avancé de la Tribulation de l'Esprit.
 
-L'armure du Taureau Céleste sembla fondre, redevenant les innombrables fils noirs qui enveloppaient son corps. Finalement, ils se rassemblèrent sur le côté droit de son visage pour former un tatouage noir de Taureau Céleste.
+L'armure du Tian Niu sembla fondre, redevenant les innombrables fils noirs qui enveloppaient son corps. Finalement, ils se rassemblèrent sur le côté droit de son visage pour former un tatouage noir de Tian Niu.
 
 Le tatouage brilla, donnant à Wang Lin une apparence très singulière.
 
@@ -118,7 +118,7 @@ Les plus de 1 000 cultivateurs, y compris Yan Luan et sa compagnie, tournèrent 
 
 Il ignora le silence de mort provoqué par ses paroles. Tous les cultivateurs restèrent plongés dans une réflexion silencieuse, regardant la grotte de Wang Lin avec un mélange de choc et d'admiration.
 
-« L'armure d'âme du Taureau Céleste... si puissante... »
+« L'armure d'âme du Tian Niu... si puissante... »
 
 « Est-ce là le véritable pouvoir de l'armure d'âme... »
 

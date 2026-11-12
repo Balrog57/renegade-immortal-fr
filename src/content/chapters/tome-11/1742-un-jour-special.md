@@ -10,7 +10,7 @@ slug: un-jour-special
 
 Les dents du vieil homme Ma claquèrent. Il observa la silhouette floue et reconnut immédiatement ce qu'elle était. Ce trouble n'était pas causé par un sortilège, mais par l'effet unique résultant de la pression des Neuf Soleils!
 
-Les légendaires Neuf Soleils du Continent Astral Immortel étaient rarement vus, à moins d'appartenir au même clan ou à la même secte. L'écart immense entre les niveaux de culture et la pression exercée par les Grands Empyréens créaient une atmosphère étrange qui rendait leurs silhouettes floues. S'ils ne le souhaitaient pas, il serait difficile, même pour un autre des Neuf Soleils, de percevoir leur véritable apparence.
+Les légendaires Neuf Soleils du Continent Xian Gang étaient rarement vus, à moins d'appartenir au même clan ou à la même secte. L'écart immense entre les niveaux de culture et la pression exercée par les Grands Empyréens créaient une atmosphère étrange qui rendait leurs silhouettes floues. S'ils ne le souhaitaient pas, il serait difficile, même pour un autre des Neuf Soleils, de percevoir leur véritable apparence.
 
 Il ne fallait même pas parler de ces êtres qui n'étaient que des fourmis face à Xuan Luo.
 
@@ -56,7 +56,7 @@ Le vieil homme Ma dit lentement: « Laisse tomber. Le plan que nous avons élabo
 
 Avec des indices aussi simples, il parvint à reconstituer 80 ou 90 % de l'histoire.
 
-« Ce que Feng Er dit est exact, c'est sans doute cela. Le Grand Empyréen Xuan Luo teste manifestement Wang Lin. Il est certainement venu du Continent Astral Immortel pour cet homme... » Les yeux du vieil homme Ma s'illuminèrent.
+« Ce que Feng Er dit est exact, c'est sans doute cela. Le Grand Empyréen Xuan Luo teste manifestement Wang Lin. Il est certainement venu du Continent Xian Gang pour cet homme... » Les yeux du vieil homme Ma s'illuminèrent.
 
 « Il y a longtemps, Ye Mo est mort dans ce monde caverneux et a dispersé 3 000 gouttes de son sang, devenues les trois clans antiques. Ce Wang Lin doit avoir obtenu l'héritage de Ye Mo et ainsi attiré l'attention du Grand Empyréen Xuan Luo... » Les yeux de Yun Yifeng brillèrent tandis qu'il se plongeait dans ses pensées.
 

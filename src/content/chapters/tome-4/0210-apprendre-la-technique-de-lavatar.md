@@ -115,9 +115,9 @@ Une fois les démons installés, Wang Lin déploya son Royaume Ji et scanna la z
 
 Ensuite, Wang Lin entra dans la pièce centrale, s'assit en tailleur et prit une profonde inspiration. Il pointa son front, d'où émergea une sphère de lumière multicolore qui devint de plus en plus solide, révélant finalement l'apparence de la perle défiant le ciel. Après l'avoir observée un instant, il la mit de côté et disposa plusieurs fioles de jade de chaque côté de lui. Puis, il ferma les yeux pour entrer en méditation.
 
-Le temps s'écoula, et une année passa. Durant cette période, hormis la collecte du liquide issu de la perle, Wang Lin était resté pratiquement immobile. Au cours de sa méditation, il avait condensé tout son surplus d'énergie spirituelle en trois tourbillons, au sein desquels résidait la ligne rouge de la rétribution divine.
+Le temps s'écoula, et une année passa. Durant cette période, hormis la collecte du liquide issu de la perle, Wang Lin était resté pratiquement immobile. Au cours de sa méditation, il avait condensé tout son surplus d'énergie spirituelle en trois tourbillons, au sein desquels résidait la ligne rouge de la Tribulation Céleste.
 
-En un an, Wang Lin avait réussi à réprimer totalement cette ligne rouge, mais il ne relâchait pas sa vigilance. Bien que minuscule, elle contenait le pouvoir d'une rétribution divine; une manipulation erronée aurait pu détruire son corps. Bien que celui-ci eût déjà subi une reconstruction, il refusait de s'en servir comme cobaye.
+En un an, Wang Lin avait réussi à réprimer totalement cette ligne rouge, mais il ne relâchait pas sa vigilance. Bien que minuscule, elle contenait le pouvoir d'une Tribulation Céleste; une manipulation erronée aurait pu détruire son corps. Bien que celui-ci eût déjà subi une reconstruction, il refusait de s'en servir comme cobaye.
 
 En parallèle, Wang Lin consacrait son temps à l'étude de la technique de l'avatar. C'était là son moyen de contourner son incapacité à franchir le stade de l'Âme Naissante. Il se remémorait avec précision la technique du Chemin Divin, gravée de mémoire par l'Ancêtre Chen Chong au Temple Zhan Shen.
 

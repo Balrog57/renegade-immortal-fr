@@ -1,6 +1,6 @@
 ---
 n: 1021
-title: "L'Éveil de l'Oiseau Vermillon"
+title: "L'Éveil de Suzaku"
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 1021 - Vermillion Bird Awakening
@@ -30,7 +30,7 @@ N'importe qui aurait eu du mal à reconnaître l'homme à l'intérieur de la tou
 
 Ses cheveux étaient totalement ternes et secs, mais ses yeux brillaient de plus en plus intensément. Quiconque croisait le regard de Wang Lin ressentirait une chaleur qui lui donnerait l'impression d'être réduit en cendres.
 
-Le phénomène le plus étrange se produisait entre les sourcils de Wang Lin. Il y a quelques jours, après avoir absorbé une certaine quantité de flammes, il avait senti un changement entre ses sourcils. Ce sentiment émanait du marquage de l'Oiseau Vermillon!
+Le phénomène le plus étrange se produisait entre les sourcils de Wang Lin. Il y a quelques jours, après avoir absorbé une certaine quantité de flammes, il avait senti un changement entre ses sourcils. Ce sentiment émanait du marquage de Suzaku!
 
 « Je ne pensais pas que l'absorption de ces flammes permettrait non seulement de restaurer mon énergie originelle, mais créerait aussi cette chaleur... Pourtant, la chaleur dans mon corps semble différente du sort "Brûle les Cieux" de Qing Lin... » Wang Lin ouvrit les yeux et toucha la zone entre ses sourcils.
 
@@ -64,7 +64,7 @@ Les fissures sur la peau de Wang Lin s'étaient brisées deux mois plus tôt, la
 
 Cependant, cette fois, Wang Lin ne fusionna pas les flammes avec son énergie originelle ou son âme originelle. Au lieu de cela, il dirigea tout sans retenue vers le marquage entre ses sourcils!
 
-Tout convergea vers la marque, la rendant beaucoup plus visible et vivante! Le marquage de l'Oiseau Vermillon!
+Tout convergea vers la marque, la rendant beaucoup plus visible et vivante! Le marquage de Suzaku!
 
 La forme de ce marquage avait radicalement changé au cours des mois depuis son apparition. À mesure que Wang Lin absorbait davantage de flammes, le motif évoluait. Ce qui n'était qu'une simple empreinte se transformait lentement en un véritable Oiseau Vermillon!
 
@@ -86,27 +86,27 @@ Les masses de feu continuèrent d'irriguer son corps pour atteindre la marque en
 
 À l'instant où l'oiseau apparut, un cri capable de déchirer le vide retentit dans ce monde en bouteille.
 
-C'était un chant de phénix, le cri de l'Oiseau Vermillon, un cri qui ébranla les cieux. Pour Wang Lin, c'était le cri d'éveil en tant que membre de la lignée du Vermillon!
+C'était un chant de phénix, le cri de Suzaku, un cri qui ébranla les cieux. Pour Wang Lin, c'était le cri d'éveil en tant que membre de la lignée du Vermillon!
 
 Cet oiseau rougeoyant était d'une majesté absolue et empreint d'intelligence. Dès qu'il poussa son cri, toutes les flammes du désert de sable noir devinrent folles.
 
-Les flammes sans fin chargèrent vers l'Oiseau Vermillon devant Wang Lin à une vitesse inimaginable!
+Les flammes sans fin chargèrent vers Suzaku devant Wang Lin à une vitesse inimaginable!
 
-La marque s'était éveillée et l'esprit de l'Oiseau Vermillon était apparu! Autrefois, un tel éveil était un événement majeur au sein des Quatre Sectes Divines! Quiconque appartenait à la lignée du Vermillon et s'éveillait devenait sans doute l'un des futurs Quatre Saints, sauf accident!
+La marque s'était éveillée et l'esprit de Suzaku était apparu! Autrefois, un tel éveil était un événement majeur au sein des Quatre Sectes Divines! Quiconque appartenait à la lignée du Vermillon et s'éveillait devenait sans doute l'un des futurs Quatre Saints, sauf accident!
 
 En cet instant, Wang Lin était le seul de la lignée du Vermillon à s'être éveillé, sans aucun autre! À condition toutefois qu'avant lui, après lui, et tant qu'il ne serait pas devenu l'un des Quatre Saints, aucun autre membre de la lignée n'éveille son marquage!
 
 Ce cri ne fit pas que secouer le royaume où se trouvait Wang Lin! À cet instant précis, tous les autres royaumes du monde en bouteille entendirent ce cri fracassant!
 
-Ling Tianhou était assis dans la tour noire de son propre royaume, en pleine culture. Soudain, un cri d'Oiseau Vermillon inimaginable résonna à travers tout le domaine, faisant trembler le monde lui-même.
+Ling Tianhou était assis dans la tour noire de son propre royaume, en pleine culture. Soudain, un cri de Suzaku inimaginable résonna à travers tout le domaine, faisant trembler le monde lui-même.
 
 Ling Tianhou ouvrit brusquement les yeux, révélant une stupeur totale!
 
-« Le cri de l'Oiseau Vermillon! »
+« Le cri de Suzaku! »
 
 Tian Yunzi flottait dans les airs, vêtu de blanc. Il regarda le ciel et se lança dans une divination. Ses yeux devinrent de plus en plus brillants et un sourire apparut sur son visage alors qu'il murmurait: « Alors, c'est donc ainsi... »
 
-Cependant, avant qu'il ne puisse achever sa phrase, le cri de l'Oiseau Vermillon retentit violemment.
+Cependant, avant qu'il ne puisse achever sa phrase, le cri de Suzaku retentit violemment.
 
 Ce cri soudain fit instantanément voler en éclats les calculs de Tian Yunzi. Le royaume où il se trouvait trembla et le ciel changea brusquement de visage. Fait rarissime, l'expression de Tian Yunzi changea!
 

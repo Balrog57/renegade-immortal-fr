@@ -6,17 +6,17 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1683 - The Trip to Defy the Celestials!"
 slug: un-voyage-pour-defier-les-cieux
 ---
-Le hurlement résonna à travers les étoiles, s'intensifiant de plus en plus. Sous le contrôle de Wang Lin, le vaste continent du Royaume Céleste du Vent s'élança hors de la Mer Yun vers la Rivière Invoquée.
+Le hurlement résonna à travers les étoiles, s'intensifiant de plus en plus. Sous le contrôle de Wang Lin, le vaste continent du Royaume Céleste du Vent s'élança hors de la Mer Yun vers Zhao He.
 
-Après avoir récupéré la Rivière Invoquée, certains cultivateurs de celle-ci qui se trouvaient à Luotian étaient retournés dans leurs terres natales au cours des trois dernières années. Ils connaissaient bien ces lieux et pourraient mieux s'y rétablir.
+Après avoir récupéré Zhao He, certains cultivateurs de celle-ci qui se trouvaient à Luotian étaient retournés dans leurs terres natales au cours des trois dernières années. Ils connaissaient bien ces lieux et pourraient mieux s'y rétablir.
 
-Le Royaume Céleste de l'Éclair de la Rivière Invoquée était très différent des trois autres. Il était totalement ouvert, et dès que l'on pénétrait dans la partie nord de la Rivière Invoquée, on pouvait clairement apercevoir une rivière argentée et étincelante.
+Le Royaume Céleste de l'Éclair de Zhao He était très différent des trois autres. Il était totalement ouvert, et dès que l'on pénétrait dans la partie nord de Zhao He, on pouvait clairement apercevoir une rivière argentée et étincelante.
 
 Cette rivière d'argent était le Royaume Céleste de l'Éclair!
 
-Wang Lin s'était rendu à la Rivière Invoquée à plusieurs reprises, mais il avait toujours été pressé. Il avait vu cette rivière argentée et savait qu'il s'agissait du Royaume Céleste de l'Éclair, mais il n'y était jamais entré.
+Wang Lin s'était rendu à Zhao He à plusieurs reprises, mais il avait toujours été pressé. Il avait vu cette rivière argentée et savait qu'il s'agissait du Royaume Céleste de l'Éclair, mais il n'y était jamais entré.
 
-Le Royaume Céleste du Vent se précipita et, dès son apparition dans la Rivière Invoquée, une ondulation se propagea, accompagnée d'une pression écrasante.
+Le Royaume Céleste du Vent se précipita et, dès son apparition dans Zhao He, une ondulation se propagea, accompagnée d'une pression écrasante.
 
 Le continent du Royaume Céleste du Vent s'arrêta lentement devant la rivière argentée au nord. Wang Lin se leva et contempla le Royaume Céleste de l'Éclair. Il fit un pas en avant et pénétra dans les eaux argentées.
 

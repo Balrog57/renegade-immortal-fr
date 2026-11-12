@@ -36,17 +36,17 @@ Li Muwan fixa la personne derrière Zhan Bai. Elle ne pouvait retenir ses larmes
 
 Zhan Bai frissonna imperceptiblement. Jusqu'à présent, il n'avait absolument pas remarqué cet homme, ce qui signifiait que son niveau de culture était supérieur au sien.
 
-Il se retourna brusquement et vit Wang Lin. Son visage fut frappé par l'incrédulité. Inconsciemment, il recula de quelques pas et hurla: « Toi... Ceng Niu! »
+Il se retourna brusquement et vit Wang Lin. Son visage fut frappé par l'incrédulité. Inconsciemment, il recula de quelques pas et hurla: « Toi... Zeng Niu! »
 
 Toute la Secte Yun Tian entra en ébullition à l'instant où Zhan Bai prononça ce nom.
 
-« Ceng Niu!! » Très peu de personnes au sein de la Secte Yun Tian ignoraient ce nom. L'homme le plus célèbre de Suzaku en ce moment même était Ceng Niu!
+« Zeng Niu!! » Très peu de personnes au sein de la Secte Yun Tian ignoraient ce nom. L'homme le plus célèbre de Suzaku en ce moment même était Zeng Niu!
 
-« Ceng Niu!! » Certains disciples de rang inférieur furent frappés par le choc.
+« Zeng Niu!! » Certains disciples de rang inférieur furent frappés par le choc.
 
-« Ceng Niu! » Liu Fei était totalement hébété.
+« Zeng Niu! » Liu Fei était totalement hébété.
 
-« Ceng Niu! » Song Qing sentit son esprit vaciller.
+« Zeng Niu! » Song Qing sentit son esprit vaciller.
 
 Les yeux des deux Grands Anciens au stade avancé de l'Âme Naissante brillèrent d'un éclat inédit.
 
@@ -58,7 +58,7 @@ Ce vent glacial frappa le corps de Zhan Bai. Pour lui, il était plus froid que 
 
 Avant même que le combat ne commence, l'idée de s'enfuir lui traversa l'esprit.
 
-Zhan Bai balbutia: « Ceng... Ceng Niu, je ne savais pas que tu appartenais à la Secte Yun Tian. Cette fois, j'ai été imprudent... »
+Zhan Bai balbutia: « Ceng... Zeng Niu, je ne savais pas que tu appartenais à la Secte Yun Tian. Cette fois, j'ai été imprudent... »
 
 « Imprudent? » Les yeux de Wang Lin s'illuminèrent et il chargea soudainement. Le drapeau de restriction sortit de son sac de rangement et se transforma en un brouillard noir qui fonça sur Zhan Bai.
 
@@ -92,7 +92,7 @@ Dans un fracas assourdissant, la lance percuta le cocon de chair. Le brouillard 
 
 D'innombrables asticots grouillaient dans ce sang; la vue en était révoltante.
 
-« Ceng Niu!! Ne me pousse pas à bout! » Les yeux de Zhan Bai étaient injectés de sang et sa voix était rauque. Il était totalement ébranlé. Le domaine contenu dans la lance de Wang Lin aggravait ses blessures. S'il n'avait pas possédé un domaine aussi spécial, il aurait déjà été gravement blessé.
+« Zeng Niu!! Ne me pousse pas à bout! » Les yeux de Zhan Bai étaient injectés de sang et sa voix était rauque. Il était totalement ébranlé. Le domaine contenu dans la lance de Wang Lin aggravait ses blessures. S'il n'avait pas possédé un domaine aussi spécial, il aurait déjà été gravement blessé.
 
 « Me pousser à bout? Alors aujourd'hui, c'est moi qui vais te pousser à bout! » Les yeux de Wang Lin restaient froids. Sa main droite pointa soudainement vers l'avant et un rayon d'énergie spirituelle, d'apparence très ordinaire, fonça sur Zhan Bai.
 
@@ -126,7 +126,7 @@ C'était la première fois qu'il utilisait son domaine à pleine puissance. Il m
 
 Zhan Bai se plaignit intérieurement, mais sa fierté l'emporta. Ses yeux devinrent rouges alors qu'il frappait son sac de rangement, faisant apparaître un essaim d'insectes rouges.
 
-Zhan Bai hurla: « Ceng Niu, il n'y a aucune haine entre nous! Pourquoi aller si loin?! Je n'ai tué que quelques disciples de ta Secte Yun Tian! »
+Zhan Bai hurla: « Zeng Niu, il n'y a aucune haine entre nous! Pourquoi aller si loin?! Je n'ai tué que quelques disciples de ta Secte Yun Tian! »
 
 « Désormais, il y en a une! » Les yeux de Wang Lin brillèrent et il pointa Zhan Bai. Un rugissement de tonnerre émana du parchemin et un vortex apparut, entouré d'un épais brouillard gris.
 

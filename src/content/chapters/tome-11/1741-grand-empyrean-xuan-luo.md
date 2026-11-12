@@ -14,7 +14,7 @@ Constatant qu'aucun changement n'intervenait sur la planète des Cinq Éléments
 
 En vérité, même s'ils avaient osé jouer ce coup, Wang Lin disposait encore d'autres options. Il possédait toujours l'Arc de Li Guang. Bien qu'il ne fût pas disposé à l'utiliser pour l'instant, il ne saurait hésiter face à une crise majeure.
 
-Bien que Wang Lin eût été blessé lors de ce voyage sur la planète des Cinq Éléments, ses gains étaient tout aussi considérables. Il pressa plusieurs points de son corps pour réprimer la douleur. La Bête des Limbes se retira lentement, quittant l'espace entourant la planète des Cinq Éléments pour réapparaître dans le Vide Brillant.
+Bien que Wang Lin eût été blessé lors de ce voyage sur la planète des Cinq Éléments, ses gains étaient tout aussi considérables. Il pressa plusieurs points de son corps pour réprimer la douleur. La Bête des Limbes se retira lentement, quittant l'espace entourant la planète des Cinq Éléments pour réapparaître dans le Kun Xu.
 
 « Le niveau de culture de ce vieil homme nommé Ma est encore plus puissant que celui du Souverain. Même s'il n'a pas atteint le stade de la Tribulation du Vide, il doit avoir traversé plusieurs Tribulations Arcanes... »
 

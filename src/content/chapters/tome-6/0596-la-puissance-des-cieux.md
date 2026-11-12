@@ -10,7 +10,7 @@ Les « Cent Doigts de la Mort » créèrent un rayon de mort qui fendit le ciel 
 
 Puis, un tonnerre encore plus assourdissant retentit. À cet instant, le firmament tout entier trembla, comme si le soleil et la lune s'étaient inversés.
 
-Le Doigt de la Mort absorbe la force vitale pour la convertir en destruction. Au moment où il percuta l'éclair rouge, il avait absorbé une immense quantité de vie, mais cela ne suffisait toujours pas à égaler la foudre de la rétribution divine!
+Le Doigt de la Mort absorbe la force vitale pour la convertir en destruction. Au moment où il percuta l'éclair rouge, il avait absorbé une immense quantité de vie, mais cela ne suffisait toujours pas à égaler la foudre de la Tribulation Céleste!
 
 Sous la force de l'éclair rouge, la lumière noire du Doigt de la Mort se dissipa rapidement jusqu'à disparaître totalement. L'éclair rouge continua sa descente, bien que sa couleur fût légèrement plus terne qu'auparavant!
 
@@ -26,9 +26,9 @@ Wang Lin rendait toujours coup pour coup. Peu importait que vous soyez les cieux
 
 Grâce à son cœur de massacre et à son intention meurtrière, le dragon formé par l'énergie sembla prendre vie. Ce dragon représentait la volonté de Wang Lin de défier les cieux!
 
-« Massacre! » Le dragon poussa un rugissement et se jeta directement pour dévorer l'éclair rouge. Même la rétribution divine des cieux sembla s'étioler au moment où elle fut engloutie par le dragon!
+« Massacre! » Le dragon poussa un rugissement et se jeta directement pour dévorer l'éclair rouge. Même la Tribulation Céleste des cieux sembla s'étioler au moment où elle fut engloutie par le dragon!
 
-Mais la rétribution divine était un châtiment céleste, empreint de l'intention meurtrière des cieux eux-mêmes. Bien que le dragon de massacre fût puissant, il n'était pas encore suffisant!
+Mais la Tribulation Céleste était un châtiment céleste, empreint de l'intention meurtrière des cieux eux-mêmes. Bien que le dragon de massacre fût puissant, il n'était pas encore suffisant!
 
 Le dragon s'effondra, mais sa destruction fit pâlir davantage l'éclair rouge et en réduisit la taille!
 
@@ -58,7 +58,7 @@ Ce doigt fit vibrer les cœurs de tous les témoins!
 
 La lumière noire fondit sur la lumière rouge. À cet instant, le monde semblait être revenu à l'ère du chaos primordial. Le rouge était le ciel, et le noir était la terre!
 
-Le rouge représentait la rétribution divine, et le noir représentait l'intention de défier les cieux!
+Le rouge représentait la Tribulation Céleste, et le noir représentait l'intention de défier les cieux!
 
 La collision entre le rouge et le noir fit trembler les cieux, et toute la Cité Tian Yao en fut ébranlée. Le séisme se propagea jusqu'aux montagnes et aux plaines environnantes!
 
@@ -76,7 +76,7 @@ Dès que la lumière rouge disparut, les tremblements cessèrent et tout sembla 
 
 Alors que l'éclair rouge s'éteignait, le visage de Wang Lin était d'une pâleur extrême. Il rattrapa la fiole de jade donnée par le Commandant Céleste. Une pilule se trouvait à l'intérieur, mais il ne la consomma pas. Il leva les yeux vers le ciel avec une expression grave.
 
-Wang Lin ne croyait pas que les cieux ne lanceraient qu'un seul éclair de rétribution divine lorsqu'ils voulaient ôter la vie!
+Wang Lin ne croyait pas que les cieux ne lanceraient qu'un seul éclair de Tribulation Céleste lorsqu'ils voulaient ôter la vie!
 
 Le jeune homme sur le bateau scruta également le ciel, le visage marqué par une trace de choc.
 
@@ -84,11 +84,11 @@ Le nuage rouge ne se dissipait pas, mais il n'y avait plus de réaction violente
 
 « Ceci... ceci est... » L'expression du jeune homme changea radicalement. Il ne put maintenir sa contenance et, d'un pas, disparut.
 
-Lorsqu'il réapparut, il se trouvait dans le ciel, au-dessus de la cité impériale. En s'approchant si près du nuage de rétribution divine, son cuir chevelu ne put s'empêcher de s'engourdir.
+Lorsqu'il réapparut, il se trouvait dans le ciel, au-dessus de la cité impériale. En s'approchant si près du nuage de Tribulation Céleste, son cuir chevelu ne put s'empêcher de s'engourdir.
 
 « Cette fois, les choses semblent avoir échappé à tout contrôle! » Le jeune homme eut un sourire amer. À peine apparu, il tendit sa main droite vers Wang Lin. Il s'apprêtait à extraire Wang Lin de la cité impériale pour qu'il subisse la rétribution loin des civils. Si la rétribution avait été ce qu'il avait d'abord imaginé, il ne serait pas si alarmé, mais cette fois, elle lui inspirait un sombre pressentiment.
 
-Alors qu'il allait tendre le bras, il s'arrêta brusquement pour lever les yeux vers le ciel. Il eut un sourire amer et songea: « Puisque ce petit gars est ainsi verrouillé par la rétribution divine, je n'ai pas la capacité de le déplacer! »
+Alors qu'il allait tendre le bras, il s'arrêta brusquement pour lever les yeux vers le ciel. Il eut un sourire amer et songea: « Puisque ce petit gars est ainsi verrouillé par la Tribulation Céleste, je n'ai pas la capacité de le déplacer! »
 
 Le jeune homme prit une profonde inspiration et, sans hésiter, ouvrit les bras. Son corps vacilla, passant de l'un à deux, de deux à quatre, pour se transformer en un instant en huit personnes!
 
@@ -108,7 +108,7 @@ Debout sur la place dévastée, Wang Lin leva les yeux vers le ciel. L'inflexibi
 
 Le second châtiment céleste descendit!
 
-Cette fois, la rétribution divine prit la forme de la Puissance des Cieux! Qu'est-ce donc que cette fameuse Puissance des Cieux? La Puissance des Cieux est l'autorité suprême du firmament. Quand la Puissance des Cieux se déplace, tout est détruit! Quand elle s'anime, le ciel change de couleur! Quand elle se manifeste, aucune créature n'est autorisée à lui résister!
+Cette fois, la Tribulation Céleste prit la forme de la Puissance des Cieux! Qu'est-ce donc que cette fameuse Puissance des Cieux? La Puissance des Cieux est l'autorité suprême du firmament. Quand la Puissance des Cieux se déplace, tout est détruit! Quand elle s'anime, le ciel change de couleur! Quand elle se manifeste, aucune créature n'est autorisée à lui résister!
 
 On doit s'incliner devant la Puissance des Cieux! Il faut être subjugué par les cieux et céder à leur force!
 

@@ -1,6 +1,6 @@
 ---
 n: 1793
-title: Ébranler tout le Continent Astral Immortel
+title: Ébranler tout le Continent Xian Gang
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1793 - Shake the Entire Immortal Astral Continent
@@ -26,7 +26,7 @@ Mais Miaoyin Daozun, lui, n'avait pas la même interprétation.
 
 « Réincarner où?! » hurla Miaoyin Daozun alors que la paume géante s'abattait sur lui.
 
-« Sur le Continent Astral Immortel! » Tandis que les paroles de Wang Lin résonnaient, un grondement tonitruant retentit. La paume colossale pénétra le vortex marin et empoigna Miaoyin Daozun.
+« Sur le Continent Xian Gang! » Tandis que les paroles de Wang Lin résonnaient, un grondement tonitruant retentit. La paume colossale pénétra le vortex marin et empoigna Miaoyin Daozun.
 
 Le cœur de Miaoyin Daozun trembla et il abandonna amèrement toute résistance inutile. Il ferma les yeux, se laissant capturer par Wang Lin. Une fois scellé, il fut placé dans l'espace de stockage de Wang Lin et fusionné avec son fragment d'âme.
 
@@ -68,7 +68,7 @@ Tout en parlant, il se leva et joignit les mains devant Wang Lin en signe de res
 
 Wang Lin se tenait sur un rocher à mille pieds de Xushen Tianzun. Après une courte réflexion silencieuse, il prit la parole lentement.
 
-« Tu n'es pas fait pour exister ici. Je me rends au Continent Astral Immortel. De nombreuses personnes ont décidé de s'y réincarner. Tu feras de même, afin que je puisse être tranquille. »
+« Tu n'es pas fait pour exister ici. Je me rends au Continent Xian Gang. De nombreuses personnes ont décidé de s'y réincarner. Tu feras de même, afin que je puisse être tranquille. »
 
 « Toi... » Le visage de Xushen Tianzun se décomposa et d'innombrables pensées traversèrent son esprit, mais il finit par laisser échapper un long soupir.
 
@@ -124,7 +124,7 @@ La silhouette de Wang Lin apparut et il s'inclina devant Xuan Luo.
 
 « Une fois votre réincarnation accomplie, il n'y aura plus aucun grief entre nous. J'espère que vous savez ce qui est bon pour vous! » Les paroles de Wang Lin étaient calmes alors qu'il agitait sa main droite. Un vent puissant poussa les huit individus dans la porte obscure.
 
-« Senior, ce junior s'en va. Nous nous reverrons sur le Continent Astral Immortel! » Wang Lin jeta un dernier regard vers les étoiles et se retourna brusquement. Il se changea en un rayon de lumière qui fonça vers la porte avant d'y disparaître.
+« Senior, ce junior s'en va. Nous nous reverrons sur le Continent Xian Gang! » Wang Lin jeta un dernier regard vers les étoiles et se retourna brusquement. Il se changea en un rayon de lumière qui fonça vers la porte avant d'y disparaître.
 
 Xuan Luo se leva et, l'expression grave, pénétra à son tour dans la porte.
 

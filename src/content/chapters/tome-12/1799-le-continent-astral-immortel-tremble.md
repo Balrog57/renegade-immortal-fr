@@ -1,6 +1,6 @@
 ---
 n: 1799
-title: "Le Continent Astral Immortel Tremble!"
+title: "Le Continent Xian Gang Tremble!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1799 - Immortal Astral Continent Trembles!"
@@ -48,7 +48,7 @@ Il essaya sous plusieurs angles, mais la force de répulsion persistait. Finalem
 
 Cette fortune résidait dans l'avatar qui, sans qu'il le sache, s'était développé à l'intérieur de cette coquille. Peut-être qu'un jour, cet avatar briserait la coque et posséderait un pouvoir terrifiant.
 
-Ce pouvoir serait celui des lois du Continent Astral Immortel, car cet avatar était né au cœur même de ces lois, tout comme l'ancêtre du Roi Moustique!
+Ce pouvoir serait celui des lois du Continent Xian Gang, car cet avatar était né au cœur même de ces lois, tout comme l'ancêtre du Roi Moustique!
 
 Il ne valait pas la peine de tenter de le briser par la force. Wang Lin comprit également que s'il avait pu s'éveiller et recouvrer sa culture, c'était grâce à cet avatar niché dans la coquille.
 
@@ -66,9 +66,9 @@ Tandis qu'ils progressaient, Wang Lin jeta un dernier regard vers l'endroit où 
 
 Portant le Cercueil d'Évitement Céleste contenant Li Muwan, Wang Lin, porté par le moustique, fonça vers les profondeurs du vide, vers la sortie!
 
-À cet instant précis, au cœur du vide, il ignorait le troisième bouleversement titanesque qui venait de frapper le Continent Astral Immortel au moment même où le Roi Moustique avait apporté le sang sur la plateforme et que celui-ci avait été absorbé.
+À cet instant précis, au cœur du vide, il ignorait le troisième bouleversement titanesque qui venait de frapper le Continent Xian Gang au moment même où le Roi Moustique avait apporté le sang sur la plateforme et que celui-ci avait été absorbé.
 
-Ce changement colossal ébranla l'intégralité du Continent Astral Immortel. D'innombrables cultivateurs puissants sortirent de leur culture de porte close. Les chefs et les Anciens de sectes infinies émergèrent, leurs Sens Divins jaillissant vers le ciel.
+Ce changement colossal ébranla l'intégralité du Continent Xian Gang. D'innombrables cultivateurs puissants sortirent de leur culture de porte close. Les chefs et les Anciens de sectes infinies émergèrent, leurs Sens Divins jaillissant vers le ciel.
 
 Cette agitation attira même l'attention des neuf soleils, créant une occurrence rare où les neuf soleils apparurent simultanément!
 

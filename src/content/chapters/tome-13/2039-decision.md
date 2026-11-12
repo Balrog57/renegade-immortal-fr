@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2039 - Decision
 slug: decision
 ---
-La voix de l'Ancien Maître Impérial du Dao était féroce lorsqu'il rugit: « Si cette formation est détruite, à moins que vous ne commettiez de nouveau d'infinis massacres, vous ne connaîtrez jamais la vérité sur le monde des grottes, sur le Continent Astral Immortel, sur tout ce qui concerne le ciel et la terre! »
+La voix de l'Ancien Maître Impérial du Dao était féroce lorsqu'il rugit: « Si cette formation est détruite, à moins que vous ne commettiez de nouveau d'infinis massacres, vous ne connaîtrez jamais la vérité sur le monde des grottes, sur le Continent Xian Gang, sur tout ce qui concerne le ciel et la terre! »
 
 « Vous devrez toujours regarder l'âme de Li Muwan mourir et retourner dans le cycle de la réincarnation. Vous ne pourrez toujours pas l'accompagner toute votre vie! »
 
@@ -14,7 +14,7 @@ Les yeux de l'avatar de massacre aux cheveux noirs s'illuminèrent et sa main dr
 
 « Vous possédez le sang de l'âme de l'Ancêtre Ancien, qui détient le pouvoir de la création, mais même si vous intégrez cette goutte entière dans le corps de Li Muwan, cela ne lui permettra pas d'entrer en toute sécurité dans le Royaume Divin Immémorial. »
 
-« Le Royaume Divin Immémorial est la terre sainte suprême du Continent Astral Immortel. Les cultivateurs ordinaires ne peuvent y pénétrer; ils ont besoin soit d'une culture puissante, soit d'un corps surpuissant. »
+« Le Royaume Divin Immémorial est la terre sainte suprême du Continent Xian Gang. Les cultivateurs ordinaires ne peuvent y pénétrer; ils ont besoin soit d'une culture puissante, soit d'un corps surpuissant. »
 
 « Cette fois, le Royaume Divin Immémorial s'ouvrira complètement. Ce sera radicalement différent des précédentes ouvertures. Si vous voulez y entrer avec Li Muwan, vous devez rendre son corps indestructible afin qu'il puisse être transporté là-bas. Ensuite, utilisez le pouvoir de la réincarnation pour trouver son véritable moi et l'extraire du cycle de la réincarnation pour en faire une existence immortelle! » déclara Tian Yunzi rapidement avant de recracher deux autres bouffées de sang.
 
@@ -96,7 +96,7 @@ Dans le ciel, les neuf vortex noirs tournèrent avec une rapidité fulgurante ju
 
 Ce n'était pas seulement la voûte céleste locale, mais tout le ciel du Clan Ancien qui s'obscurcit. Même les cieux des vastes mers et des 72 continents du Clan Céleste furent plongés dans la nuit!
 
-Le Continent Astral Immortel tout entier fut enveloppé par les ténèbres!
+Le Continent Xian Gang tout entier fut enveloppé par les ténèbres!
 
 Après neuf respirations, l'obscurité qui couvrait le continent disparut. Wang Lin leva les yeux et constata que l'un des huit vortex avait disparu. Au même moment, il ressentit une sensation étrange au fond de son cœur: il entrevit un pilier colossal émergeant de la vaste mer, à la frontière entre le Clan Ancien et le Clan Céleste.
 
@@ -104,9 +104,9 @@ Après neuf respirations, l'obscurité qui couvrait le continent disparut. Wang 
 
 Le ciel s'obscurcit à nouveau et, neuf respirations plus tard, les ténèbres se dissipèrent. Il ne restait que six vortex, mais un second pilier était apparu dans la vaste mer.
 
-Tandis que le monde oscillait entre l'ombre et la lumière, le Continent Astral Immortel commença à trembler. Des vagues titanesques s'élevèrent dans la vaste mer, provoquant des grondements capables de déchirer les cieux.
+Tandis que le monde oscillait entre l'ombre et la lumière, le Continent Xian Gang commença à trembler. Des vagues titanesques s'élevèrent dans la vaste mer, provoquant des grondements capables de déchirer les cieux.
 
-Wang Lin percevait vaguement tout ce qui se produisait par-delà l'océan. Un phénomène capable d'affecter l'intégralité du Continent Astral Immortel ne pouvait être causé que par le légendaire Royaume Divin Immémorial, celui-là même capable de transformer un être en Grand Empyréen!
+Wang Lin percevait vaguement tout ce qui se produisait par-delà l'océan. Un phénomène capable d'affecter l'intégralité du Continent Xian Gang ne pouvait être causé que par le légendaire Royaume Divin Immémorial, celui-là même capable de transformer un être en Grand Empyréen!
 
 « Le Royaume Divin Immémorial... » murmura Wang Lin. Il avait entendu parler de ce lieu depuis longtemps, mais c'était la première fois qu'il assistait à son ouverture.
 

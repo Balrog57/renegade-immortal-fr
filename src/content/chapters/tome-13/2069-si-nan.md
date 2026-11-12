@@ -12,11 +12,11 @@ Il n'avait pas le droit de décider de celles du fou. En tant qu'ami, la meilleu
 
 Wang Lin avait lui aussi un chemin à suivre. Il voulait retourner au monde de la grotte, sur la planète Suzaku, là où il avait grandi.
 
-« Peut-être que la prochaine fois que je rencontrerai le fou sera dans trois cents ans... » murmura Wang Lin en s'éloignant. Bien qu'il fût l'être le plus puissant du Continent Astral Immortel, il restait des zones d'ombre qui l'intriguaient, comme le Royaume Divin Immémorial, Tian Yunzi et la résurrection de Wan Er.
+« Peut-être que la prochaine fois que je rencontrerai le fou sera dans trois cents ans... » murmura Wang Lin en s'éloignant. Bien qu'il fût l'être le plus puissant du Continent Xian Gang, il restait des zones d'ombre qui l'intriguaient, comme le Royaume Divin Immémorial, Tian Yunzi et la résurrection de Wan Er.
 
 Errant sous l'immensité du ciel, Wang Lin se sentait également tourmenté. Il ignorait si ses anciens amis souhaiteraient que leurs souvenirs soient ravivés ou s'ils préféreraient retourner avec lui dans le monde de la grotte.
 
-« Peut-être qu'oublier le passé et recommencer une nouvelle vie sur le Continent Astral Immortel est ce qu'il y a de mieux pour eux... » songea Wang Lin en pensant à Zhou Ru. C'était son choix.
+« Peut-être qu'oublier le passé et recommencer une nouvelle vie sur le Continent Xian Gang est ce qu'il y a de mieux pour eux... » songea Wang Lin en pensant à Zhou Ru. C'était son choix.
 
 « Je ne peux pas substituer ma volonté à la leur. » Wang Lin poussa un soupir en regardant au loin. C'est là que se trouvait Situ Nan.
 

@@ -44,7 +44,7 @@ Le vortex formé par le Bassin Funéraire Céleste commença à se désintégrer
 
 C’était comme si elle s'apprêtait à arracher le vortex même du sol!
 
-Ce bouleversement radical modifia profondément les environs. Tian Yunzi observa la scène en silence, l'expression assombrie. Le Maître du Vide esquissa un sourire amer et secoua la tête. Ayant consulté les archives du Royaume Céleste, il connaissait quelques pans de ce passé. Les rumeurs disaient qu'elle était morte, mais en la voyant encore en vie, il fit le lien et devina ce qui s'était réellement produit autrefois.
+Ce bouleversement radical modifia profondément les environs. Tian Yunzi observa la scène en silence, l'expression assombrie. Xu Kongzi esquissa un sourire amer et secoua la tête. Ayant consulté les archives du Royaume Céleste, il connaissait quelques pans de ce passé. Les rumeurs disaient qu'elle était morte, mais en la voyant encore en vie, il fit le lien et devina ce qui s'était réellement produit autrefois.
 
 « Tu m'as menti. Tu m'avais promis que tu ne nuirais pas à mon clan et que tu leur ouvrirais un nouveau système stellaire pour qu'ils puissent y vivre. Ainsi, tes Célestiels et mon clan pourraient coexister. Ce sont là les promesses que tu m'avais faites! Qing Lin, pourquoi m'as-tu menti!?! »
 
@@ -68,8 +68,8 @@ Lorsque Wang Lin aperçut l'apparition, il eut un sursaut et ses pupilles se con
 
 « Qing Lin! »
 
-« Ce n'est pas le vrai Qing Lin, mais un avatar de Sens Divin servant de restriction qu'il a laissé dans le Bassin Funéraire Céleste lors du scellement de l'Ancêtre Sainte du Clan Fu Wen. Il est dépourvu d'intelligence, de souvenirs et des pouvoirs divins de son corps véritable; il ne possède que l'instinct d'empêcher l'Ancêtre Sainte du Clan Fu Wen, Qiu Yao, de s'échapper! » L'esprit du Maître du Vide fut ébranlé. À son niveau de culture, il pouvait influencer les lois du monde dans une certaine mesure. Pourtant, face à cette figure, il se sentit redevenir un simple mortel; si fragile qu'un souffle pourrait l'anéantir.
+« Ce n'est pas le vrai Qing Lin, mais un avatar de Sens Divin servant de restriction qu'il a laissé dans le Bassin Funéraire Céleste lors du scellement de l'Ancêtre Sainte du Clan Fu Wen. Il est dépourvu d'intelligence, de souvenirs et des pouvoirs divins de son corps véritable; il ne possède que l'instinct d'empêcher l'Ancêtre Sainte du Clan Fu Wen, Qiu Yao, de s'échapper! » L'esprit de Xu Kongzi fut ébranlé. À son niveau de culture, il pouvait influencer les lois du monde dans une certaine mesure. Pourtant, face à cette figure, il se sentit redevenir un simple mortel; si fragile qu'un souffle pourrait l'anéantir.
 
-À ce moment-là, loin de la Terre Yao Ling de la Mer Dong, au-delà de la sphère de la planète Tian Yun, dans le champ stellaire de l'Alliance mais en un lieu que l'Alliance Xiu Zhen elle-même ne pouvait contrôler, un système stellaire était en proie aux flammes. Au moment même où l'Oiseau Vermillon de Wang Lin s'éveillait et où celui-ci sortait du monde-bouteille, un bouleversement fracassant se produisait dans toute la Secte Divine de l'Oiseau Vermillon!
+À ce moment-là, loin de la Terre Yao Ling de la Mer Dong, au-delà de la sphère de la planète Tian Yun, dans le champ stellaire de l'Alliance mais en un lieu que l'Alliance Xiu Zhen elle-même ne pouvait contrôler, un système stellaire était en proie aux flammes. Au moment même où Suzaku de Wang Lin s'éveillait et où celui-ci sortait du monde-bouteille, un bouleversement fracassant se produisait dans toute la Secte Divine de Suzaku!
 
-Tout cela n'était dû qu'à l'éveil de l'Oiseau Vermillon!
+Tout cela n'était dû qu'à l'éveil de Suzaku!

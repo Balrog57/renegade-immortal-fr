@@ -40,7 +40,7 @@ Alors que le Serpent aux yeux de lune rugissait, le doigt devant lui s'abattit r
 
 On aurait dit qu'un véritable dieu antique était apparu, levant son doigt pour pointer vers l'avant!
 
-« Compagnons cultivateurs, nous ne pouvons résister à l'attaque la plus puissante de cette bête. Si nos corps réels étaient ici, nous pourrions peut-être encore lui tenir tête un moment. Maintenant que notre objectif est atteint, pourquoi ne pas expérimenter personnellement la puissance de cette créature? » Maître Yan Leizi rit en se précipitant vers le doigt du dieu antique.
+« Daoïstes, nous ne pouvons résister à l'attaque la plus puissante de cette bête. Si nos corps réels étaient ici, nous pourrions peut-être encore lui tenir tête un moment. Maintenant que notre objectif est atteint, pourquoi ne pas expérimenter personnellement la puissance de cette créature? » Maître Yan Leizi rit en se précipitant vers le doigt du dieu antique.
 
 Au moment où il chargea, des flammes enveloppèrent son corps. Une flamme monstrueuse jaillit et l'encercla totalement.
 

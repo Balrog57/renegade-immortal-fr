@@ -22,7 +22,7 @@ Ainsi, l'homme et la bête progressèrent rapidement à travers le système stel
 
 De plus, Wang Lin sentait progressivement la Tribulation Céleste approcher. Le sceau qu'il avait posé grâce aux Neuf Transformations Mystérieuses commençait à se relâcher.
 
-Après tout, ils se trouvaient dans l'espace profond. Contrairement au champ stellaire de la Secte Divine de l'Oiseau Vermillon, où seule l'énergie originelle du feu régnait après des millénaires de combustion, l'énergie originelle ici était extrêmement hétérogène. Et bien que sa culture fût scellée, l'énergie originelle pénétrait tout de même son corps, transformant lentement ses méridiens.
+Après tout, ils se trouvaient dans l'espace profond. Contrairement au champ stellaire de la Secte Divine de Suzaku, où seule l'énergie originelle du feu régnait après des millénaires de combustion, l'énergie originelle ici était extrêmement hétérogène. Et bien que sa culture fût scellée, l'énergie originelle pénétrait tout de même son corps, transformant lentement ses méridiens.
 
 Les cultivateurs du Purificateur du Nirvana voyaient leur corps transmué par l'énergie originelle afin de mieux appréhender les lois.
 

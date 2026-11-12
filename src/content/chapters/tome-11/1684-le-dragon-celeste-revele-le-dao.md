@@ -44,7 +44,7 @@ Après un long moment, l'avatar de Wang Lin se retourna et fit un pas vers son c
 
 « Dans trois jours, les quatre généraux du Royaume Céleste Antique apparaîtront. Le dernier secret de cette grotte sera révélé... Malheureusement, même maintenant, je ne sais pas ce qu'est cette troisième chose! » Wang Lin médita silencieusement.
 
-« Cependant, quoi qu'il en soit, cette bataille finale sera très intéressante... Le Daoïste aux Sept Couleurs, le Vieux Fantôme Zhan, les quatre généraux célestes qui veulent l'éveil du Souverain Céleste, et enfin les cultivateurs du Continent Astral Immortel venus par le passage du Royaume Céleste du Vent... »
+« Cependant, quoi qu'il en soit, cette bataille finale sera très intéressante... Le Daoïste aux Sept Couleurs, le Vieux Fantôme Zhan, les quatre généraux célestes qui veulent l'éveil du Souverain Céleste, et enfin les cultivateurs du Continent Xian Gang venus par le passage du Royaume Céleste du Vent... »
 
 « Avant tout cela, laissez-moi orchestrer un prélude chaotique pour cette bataille finale! » Les yeux de Wang Lin brillèrent et il quitta la formation en roue, se dirigeant vers le Système Stellaire Antique.
 
@@ -106,7 +106,7 @@ Le temps s'écoulait lentement. En un clin d'œil, il ne restait plus que 24 heu
 
 Cependant, à cet instant précis, hormis Wang Lin, personne ne savait ce qui allait arriver. Même le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan n'en avaient pas le contrôle total.
 
-Il se pourrait qu'une seule autre personne pressente l'imminence du changement: Tian Yunzi, assis sur ce rocher dans la Rivière Invoquée, là où Wang Lin ne l'avait pas détecté!
+Il se pourrait qu'une seule autre personne pressente l'imminence du changement: Tian Yunzi, assis sur ce rocher dans Zhao He, là où Wang Lin ne l'avait pas détecté!
 
 Les yeux de Tian Yunzi brillaient d'une lumière étrange tandis qu'il baissait la tête, ses mains s'agitant frénétiquement devant lui. Tandis qu'il divinait, son regard devenait de plus en plus intense et une expression d'exultation apparut sur son visage.
 

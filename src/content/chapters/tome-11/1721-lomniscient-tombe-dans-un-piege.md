@@ -26,7 +26,7 @@ De loin, cette scène était prodigieuse. Tandis que le grand nuage se condensai
 
 Le visage de l'avatar de Wang Lin pâlit légèrement et il retira son doigt du corps original. Il se retourna et s'inclina respectueusement vers les étoiles.
 
-« Senior Lan Meng, Senior Qing Lin et Senior Hong Shan. Mon corps original est ici, j'espère que vous pourrez aider à le protéger! »
+« Senior Lanmeng, Senior Qing Lin et Senior Hong Shan. Mon corps original est ici, j'espère que vous pourrez aider à le protéger! »
 
 À l'instant où Wang Lin parla, un éclair de lumière bleue jaillit et Lanmeng Daozun apparut. Derrière lui, Qing Lin et le Maître Hong Shan suivirent silencieusement.
 
@@ -50,7 +50,7 @@ L'âme de l'avatar était le point de convergence de toutes ses essences, et mê
 
 Sans plus hésiter, son esprit fusionna totalement avec l'âme de l'avatar de Tian Yunzi, qui gagnait en puissance. Il vola vers l'est.
 
-Dans la partie orientale de la Rivière Invoquée, parmi les étoiles infinies, Tian Yunzi apparut. Son sourire étrange avait disparu et son expression n'était plus calme; elle était désormais aussi sombre que l'eau profonde.
+Dans la partie orientale de Zhao He, parmi les étoiles infinies, Tian Yunzi apparut. Son sourire étrange avait disparu et son expression n'était plus calme; elle était désormais aussi sombre que l'eau profonde.
 
 Il scruta l'horizon, un éclat de froideur dans le regard.
 
@@ -58,13 +58,13 @@ Il scruta l'horizon, un éclat de froideur dans le regard.
 
 « Une fois terminé, je sombrerai dans le sommeil et j'attendrai le 99e éveil. À ce moment-là, j'atteindrai mon but! »
 
-« Wang Lin, ton niveau de culture est suffisamment élevé pour que mon sommeil se termine instantanément et mène au 99e éveil! » Les yeux de Tian Yunzi brillèrent d'une lumière glaciale tandis qu'il levait les mains. Il ferma les yeux et, à l'instant même, des centaines de Tian Yunzi apparurent partout dans la Rivière Invoquée!
+« Wang Lin, ton niveau de culture est suffisamment élevé pour que mon sommeil se termine instantanément et mène au 99e éveil! » Les yeux de Tian Yunzi brillèrent d'une lumière glaciale tandis qu'il levait les mains. Il ferma les yeux et, à l'instant même, des centaines de Tian Yunzi apparurent partout dans Zhao He!
 
 Dès leur apparition, tous tournèrent le regard vers une seule direction: celle où se trouvait Wang Lin en plein mouvement!
 
-Au même instant, dans le Vide Brillant, alors que des ondulations résonnaient entre les étoiles, d'autres Tian Yunzis commencèrent à apparaître.
+Au même instant, dans le Kun Xu, alors que des ondulations résonnaient entre les étoiles, d'autres Tian Yunzis commencèrent à apparaître.
 
-À l'instant même, ils fixèrent tous la Rivière Invoquée!
+À l'instant même, ils fixèrent tous Zhao He!
 
 Simultanément, des ondulations parcoururent Luotian et la Mer Yun. Le nombre total d'avatars à travers les quatre systèmes stellaires approchait désormais les 3 000!
 
@@ -90,7 +90,7 @@ C'était comme chercher un chemin: il est difficile de trouver la source au mili
 
 Les yeux de Wang Lin brillaient intensément comme la pleine lune. Un sourire étira ses lèvres alors qu'il formait un sceau et pointait entre ses sourcils!
 
-« Avec ces 3 000 âmes pour guides, avec le Dao du Rêve pour chemin, j'emprunte l'illusion de la Voile Fantôme pour rêver des 3 000 avatars et entrer dans la réincarnation! Cherchez le corps originel de Tian Yunzi! » Au moment où Wang Lin pointa son front, son propre corps original, plongé au plus profond de la Rivière Invoquée sous la garde de Lanmeng Daozun, de Qing Lin et du Maître Hong Shan, ouvrit les yeux.
+« Avec ces 3 000 âmes pour guides, avec le Dao du Rêve pour chemin, j'emprunte l'illusion de la Voile Fantôme pour rêver des 3 000 avatars et entrer dans la réincarnation! Cherchez le corps originel de Tian Yunzi! » Au moment où Wang Lin pointa son front, son propre corps original, plongé au plus profond de Zhao He sous la garde de Lanmeng Daozun, de Qing Lin et du Maître Hong Shan, ouvrit les yeux.
 
 « Je connais le chemin pour trouver son corps originel! » Ses yeux projetèrent une lumière étrange qui enveloppa tout son être. L'esprit du corps original de Wang Lin trembla. En empruntant les 3 000 âmes, il avait utilisé le Dao du Rêve pour ouvrir un passage vers un passé vieux de mille ans.
 
@@ -102,7 +102,7 @@ C'était là la méthode que Wang Lin avait conçue pour riposter!
 
 À cet instant, dans l'esprit de Wang Lin, il se trouvait dans un monde brumeux, mais bientôt la confusion se dissipa et tout devint limpide.
 
-Ce qu'il vit, ce furent les étoiles. Il connaissait bien ce système stellaire: c'était la Rivière Invoquée. Il vit une météorite, et à l'intérieur de celle-ci se trouvait Tian Yunzi! De l'autre côté siégeait un vieil homme plongé dans le coma. Ce vieil homme était Ling Tianhou!
+Ce qu'il vit, ce furent les étoiles. Il connaissait bien ce système stellaire: c'était Zhao He. Il vit une météorite, et à l'intérieur de celle-ci se trouvait Tian Yunzi! De l'autre côté siégeait un vieil homme plongé dans le coma. Ce vieil homme était Ling Tianhou!
 
 Tian Yunzi affichait une expression douloureuse. Des traces de sang maculaient encore ses mains. Si Wang Lin ne se trompait pas, il s'agissait du sang du Dao Céleste modifié, qu'il avait arraché des mains de l'Empereur Divin Dragon Azure!
 

@@ -1,6 +1,6 @@
 ---
 n: 1301
-title: La Rétribution Divine Arrive
+title: La Tribulation Céleste Arrive
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1301 - Divine Retribution Arrives
@@ -68,11 +68,11 @@ La pression ne cessa de croître. Les nuages sans fin continuaient de se propage
 
 Les milliers de cultivateurs, secoués et stupéfaits, contemplèrent les nuages au-dessus d'eux. Une terreur primordiale s'installa dans leurs cœurs. On ne sut qui recula le premier, mais la foule s'éparpilla dans une fuite désespérée pour échapper aux nuages.
 
-« La Rétribution Divine!!! C'est... c'est la Rétribution Divine!!! »
+« La Tribulation Céleste!!! C'est... c'est la Tribulation Céleste!!! »
 
 Un cri de détresse monta de la foule. En entendant cela, les visages des cultivateurs environnants devinrent livides. Ils s'enfuirent comme des possédés pour sauver leur vie!
 
-« La Rétribution Divine, c'est vraiment elle! » Les trois membres de la Secte Démon tremblaient, la peur lisible dans leurs yeux. Ils n'hésitèrent pas un instant à battre en retraite.
+« La Tribulation Céleste, c'est vraiment elle! » Les trois membres de la Secte Démon tremblaient, la peur lisible dans leurs yeux. Ils n'hésitèrent pas un instant à battre en retraite.
 
 Soudain, un rugissement de tonnerre retentit.
 
@@ -86,13 +86,13 @@ Au moment où les nuages apparurent et que le tonnerre gronda, tous les Anciens 
 
 Lorsque les seize Anciens de la Secte Démon émergèrent, ils virent les nuages et leurs pupilles se rétractèrent de stupeur.
 
-« Ceci... Quel genre de Rétribution Divine est-ce là?! »
+« Ceci... Quel genre de Tribulation Céleste est-ce là?! »
 
 Alors que les Anciens étaient sous le choc, une voix antique résonna depuis le cœur de la Secte Démon: « C'est la Rétribution Infinie! » Cette voix semblait extrêmement préoccupée par l'événement.
 
 En entendant cette voix, les seize Anciens se tournèrent respectueusement vers la Secte: « Salutations, Grand Ancien! » Un rayon de lumière jaillit de la Secte Démon et prit la forme d'un homme d'âge moyen vêtu d'une robe de daoïste. Bien qu'il paraisse jeune, il dégageait une aura ancestrale, comme s'il avait existé depuis des éternités.
 
-L'homme regarda les nuages avec émotion et déclara lentement: « Il existe de nombreux types de rétributions divines: le tonnerre, l'âme, la puissance, et bien d'autres. Mais seule la Rétribution Infinie est la plus terrifiante. Elle est en constante mutation et, selon la rumeur, sa puissance égale celle du Ciel lui-même. Elle tue sans aucun doute! Je me demande quel cultivateur a pu déclencher une telle rétribution! »
+L'homme regarda les nuages avec émotion et déclara lentement: « Il existe de nombreux types de Tribulations Célestes: le tonnerre, l'âme, la puissance, et bien d'autres. Mais seule la Rétribution Infinie est la plus terrifiante. Elle est en constante mutation et, selon la rumeur, sa puissance égale celle du Ciel lui-même. Elle tue sans aucun doute! Je me demande quel cultivateur a pu déclencher une telle rétribution! »
 
 « Le Maître de la Secte disait autrefois que toutes les créatures vivantes devront un jour subir la Rétribution Infinie. Je ne m'attendais pas à la voir aujourd'hui! Activez la formation de secte et laissez tous les cultivateurs entrer dans la Secte Démon; sinon, ils seront tous anéantis par elle! » L'homme d'âge moyen fixa les nuages, son expression devenant de plus en plus grave.
 
@@ -100,7 +100,7 @@ Ses paroles firent office d'ordre. Les seize Anciens déployèrent leur Sens Div
 
 Les disciples de la Secte Démon agissaient comme une armée disciplinée. Dès l'ordre donné, ils se déplacèrent avec efficacité, utilisant des méthodes inconnues pour acheminer rapidement tous les cultivateurs à l'intérieur de la Secte.
 
-Une fois que plus aucun cultivateur ne se trouvait à l'extérieur, la formation de la secte fut activée. Son rugissement fut tonitruant, semblant rivaliser avec la Rétribution Divine. Bientôt, toutes les planètes de la Secte Démon furent protégées par la formation.
+Une fois que plus aucun cultivateur ne se trouvait à l'extérieur, la formation de la secte fut activée. Son rugissement fut tonitruant, semblant rivaliser avec la Tribulation Céleste. Bientôt, toutes les planètes de la Secte Démon furent protégées par la formation.
 
 « Personne au sein de ma Secte Démon n'a déclenché cette rétribution, donc la secte ne risque rien tant que la formation est active! Ce vieil homme veut voir qui a pu provoquer une telle Rétribution Infinie! » Les yeux du vieil homme brillaient d'une lueur intense, comme si son regard pouvait percer le vide pour scruter la faille spatiale.
 

@@ -70,7 +70,7 @@ Des milliers de silhouettes apparurent à nouveau dans la rue, suivies d'une aut
 
 L'expression de Wang Lin était féroce et il poussa un rugissement vers le ciel. Sa main droite arracha quelque chose de sa poitrine!
 
-« Armure d'âme du Taureau Céleste, sors de là! » Dans un rugissement, il retira l'armure d'âme du Taureau Céleste. Il n'avait plus l'armure sur lui.
+« Armure d'âme du Tian Niu, sors de là! » Dans un rugissement, il retira l'armure d'âme du Tian Niu. Il n'avait plus l'armure sur lui.
 
 Une fois l'armure rejetée, la folie dans les yeux de Wang Lin disparut pour laisser place à un calme mortel. Cependant, ce sourire cruel demeurait sur son visage.
 

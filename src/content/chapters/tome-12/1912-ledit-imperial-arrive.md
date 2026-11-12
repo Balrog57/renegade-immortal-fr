@@ -86,7 +86,7 @@ Ce coup si simple en apparence avait instantanément terrassé un Exalté Doré!
 
 Après plus de mille tentatives de divination, il mourait dans 50 % des cas! Et cela ne représentait que 70 % de la puissance de Wang Lin. Si ce dernier utilisait sa pleine puissance... les conséquences étaient limpides!
 
-De plus, le Maître de la Secte savait pertinemment que Wang Lin possédait encore l'armure d'âme du Taureau Céleste! Et Wang Lin ne l'avait même pas encore utilisée!
+De plus, le Maître de la Secte savait pertinemment que Wang Lin possédait encore l'armure d'âme du Tian Niu! Et Wang Lin ne l'avait même pas encore utilisée!
 
 « Je ne peux pas sortir! J'ai déjà rapporté la situation à l'Ancêtre par un art secret. J'ignore s'il pourra revenir à temps... » Les cris extérieurs lui brisaient le cœur, mais son expression devint bientôt glaciale.
 

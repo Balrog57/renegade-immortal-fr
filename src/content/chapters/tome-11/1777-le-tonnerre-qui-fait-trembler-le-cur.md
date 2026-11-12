@@ -22,7 +22,7 @@ Même le vieil homme nommé Ma subit un violent contrecoup lorsque l'Âme aux Se
 
 Au moment même où le pouvoir de l'Âme aux Sept Couleurs et celui du Vieux Fantôme Zhan entraient en collision, ce dernier fonça vers les deux hommes d'âge moyen de la Planète des Cinq Éléments, qui combattaient les Généraux Tortue Noire et Oiseau Vermillon.
 
-La Tortue Noire et l'Oiseau Vermillon avaient déjà conclu un accord avec le Vieux Fantôme Zhan, ou peut-être étaient-ils contraints de l'aider. Ils estimaient que suivre le Vieux Fantôme Zhan était leur seule option, allant jusqu'à croire qu'il deviendrait le nouveau Souverain Céleste aux Sept Couleurs!
+La Tortue Noire et Suzaku avaient déjà conclu un accord avec le Vieux Fantôme Zhan, ou peut-être étaient-ils contraints de l'aider. Ils estimaient que suivre le Vieux Fantôme Zhan était leur seule option, allant jusqu'à croire qu'il deviendrait le nouveau Souverain Céleste aux Sept Couleurs!
 
 À cet instant, le Vieux Fantôme Zhan s'approcha et agita sa manche. Deux caractères « Bataille » volèrent et explosèrent sur les deux hommes de la Planète des Cinq Éléments, les blessant gravement et les forçant à battre en retraite.
 
@@ -36,21 +36,21 @@ La tyrannie de la bataille!
 
 Aussitôt qu'il eut fini de parler, il se retourna face au vieil homme nommé Ma. Les deux se dévisagèrent, et des grondements tonitruants semblèrent résonner entre eux alors que le combat éclatait.
 
-Comparé au vieil homme Ma, Lanmeng Daozun était plus anxieux, mais toute son attention restait focalisée sur la cithare afin de sceller l'Âme aux Sept Couleurs. Il ne pouvait consacrer aucun effort à empêcher la Tortue Noire et l'Oiseau Vermillon de perturber Wang Lin.
+Comparé au vieil homme Ma, Lanmeng Daozun était plus anxieux, mais toute son attention restait focalisée sur la cithare afin de sceller l'Âme aux Sept Couleurs. Il ne pouvait consacrer aucun effort à empêcher la Tortue Noire et Suzaku de perturber Wang Lin.
 
-Tang Shan n'avait pas perdu connaissance. Elle serra les dents et bondit dans les airs pour intercepter la Tortue Noire et l'Oiseau Vermillon.
+Tang Shan n'avait pas perdu connaissance. Elle serra les dents et bondit dans les airs pour intercepter la Tortue Noire et Suzaku.
 
-Non loin de là, Tuo Sen était scellé par trois caractères « Bataille ». À cet instant, il poussa un rugissement et, d'un coup de poing, brisa les sceaux qu'il avait affaiblis. Une fois le sceau rompu, il se précipita vers la Tortue Noire et l'Oiseau Vermillon.
+Non loin de là, Tuo Sen était scellé par trois caractères « Bataille ». À cet instant, il poussa un rugissement et, d'un coup de poing, brisa les sceaux qu'il avait affaiblis. Une fois le sceau rompu, il se précipita vers la Tortue Noire et Suzaku.
 
 Cependant, lui et Tang Shan étaient toujours plus lents que les deux généraux. Juste au moment où ces derniers atteignirent la montagne effondrée pour s'y engouffrer, un changement stupéfiant survint.
 
-Le plus rapide était la Tortue Noire, qui avait trente pieds d'avance sur l'Oiseau Vermillon. En approchant, il entendit un battement de cœur résonner comme le tonnerre. Son cœur se mit à battre violemment.
+Le plus rapide était la Tortue Noire, qui avait trente pieds d'avance sur Suzaku. En approchant, il entendit un battement de cœur résonner comme le tonnerre. Son cœur se mit à battre violemment.
 
 Ce battement soudain créa une douleur perforante dans sa poitrine. L'expression du Général Tortue Noire changea et un fracas tonitruant retentit à ses oreilles. La douleur intense qui lui déchirait le torse était telle qu'il eut l'impression qu'une main géante s'était introduite dans sa poitrine pour lui arracher le cœur!
 
 Sous la violence de la douleur, le Général Tortue Noire poussa un cri déchirant et cessa toute progression. Alors qu'il allait reculer, une main noire surgit du vide et pressa sa poitrine.
 
-Dans un bruit sourd, le Général Tortue Noire cracha du sang et fut projeté en arrière vers l'Oiseau Vermillon qui le suivait.
+Dans un bruit sourd, le Général Tortue Noire cracha du sang et fut projeté en arrière vers Suzaku qui le suivait.
 
 Le Général Oiseau Vermillon fut surpris un instant lorsqu'il entendit lui aussi ce battement de cœur. Son propre rythme devint erratique et une douleur aiguë lui lacéra la poitrine. Son visage pâlit et il recula sans hésiter.
 
@@ -60,7 +60,7 @@ Le Général Oiseau Vermillon n'eut même pas le temps de voir la silhouette noi
 
 L'ombre suivit immédiatement le Général Oiseau Vermillon pour l'enlacer. La silhouette esquissa un sourire féroce et mordit le cou du général.
 
-Le cri misérable de l'Oiseau Vermillon était terrifiant; son corps dépérissait à vue d'œil tandis que l'ombre aspirait son sang. Tout cela se produisit en un instant, avec une rapidité dépassant l'entendement. Alors qu'il était encore en l'air, l'ombre poussa sur le Général Oiseau Vermillon pour s'élancer, projetant ce dernier au sol tandis qu'elle s'envolait.
+Le cri misérable de Suzaku était terrifiant; son corps dépérissait à vue d'œil tandis que l'ombre aspirait son sang. Tout cela se produisit en un instant, avec une rapidité dépassant l'entendement. Alors qu'il était encore en l'air, l'ombre poussa sur le Général Oiseau Vermillon pour s'élancer, projetant ce dernier au sol tandis qu'elle s'envolait.
 
 C'était la Poupée Yi Si!
 

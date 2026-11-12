@@ -8,7 +8,7 @@ slug: la-cite-qi-lin
 ---
 Wang Lin n'avait aucun lien avec Yun Fei; s'il la gardait, c'était parce qu'elle lui était encore utile. Si ce n'avait pas été le cas, afin d'empêcher que la nouvelle de sa sortie des Étoiles Brisées du Chaos ne s'ébruite, il l'aurait déjà envoyée aux enfers rejoindre Qian Kun, pour y poursuivre leur jeu du chat et de la souris.
 
-Wang Lin savait que s'il laissait les disciples de Duanmu, du Seigneur Démon des Six Désirs, du Bossu Meng ou de l'Empereur Antique savoir qu'il était sorti de l'anneau des Étoiles Brisées du Chaos, l'avenir ne lui réserverait que des tourments.
+Wang Lin savait que s'il laissait les disciples de Duanmu, du Seigneur Démon des Six Désirs, de Meng Tuozi ou de l'Empereur Antique savoir qu'il était sorti de l'anneau des Étoiles Brisées du Chaos, l'avenir ne lui réserverait que des tourments.
 
 Parmi ces individus, il y en aurait certainement qui connaîtraient la vérité sur ce qui se cache au sein des Étoiles Brisées du Chaos. Une fois son secret révélé, Wang Lin serait traqué sans fin par les disciples de ces sectes. Si tous ces disciples étaient au stade inférieur à l'Âme Naissante, ils ne représenteraient pas une grande menace. Cependant, si des disciples de l'Âme Naissante se manifestaient, la situation deviendrait véritablement problématique.
 

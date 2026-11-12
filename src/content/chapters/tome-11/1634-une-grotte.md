@@ -18,11 +18,11 @@ Sans la barrière qui gênait le regard, la vaste terre apparaissait avec clart�
 
 Neuf soleils se cachaient derrière la tempête; seuls leurs contours étaient perceptibles. Ce qui fit s'arrêter Wang Lin, ce furent ces neuf soleils dissimulés dans la tourmente.
 
-« Il y a aussi neuf soleils ici... » Les pupilles de Wang Lin se rétractèrent. Lorsqu'il avait contemplé le Continent Astral Immortel, il avait vu les neuf soleils suspendus haut dans le ciel.
+« Il y a aussi neuf soleils ici... » Les pupilles de Wang Lin se rétractèrent. Lorsqu'il avait contemplé le Continent Xian Gang, il avait vu les neuf soleils suspendus haut dans le ciel.
 
 En revoyant ces neuf soleils ici, des spéculations commencèrent à germer dans son cœur.
 
-« Cet endroit pourrait faire partie du Continent Astral Immortel que j'ai vu auparavant... Même si ce n'est pas le cas, il doit avoir un lien profond avec lui... » Wang Lin leva silencieusement les yeux vers la voûte céleste. Plus son niveau de culture augmentait, plus il percevait les mystères de ce monde. Il déchirait progressivement le voile et s'apprêtait à découvrir le secret ultime des Royaumes Intérieur et Extérieur.
+« Cet endroit pourrait faire partie du Continent Xian Gang que j'ai vu auparavant... Même si ce n'est pas le cas, il doit avoir un lien profond avec lui... » Wang Lin leva silencieusement les yeux vers la voûte céleste. Plus son niveau de culture augmentait, plus il percevait les mystères de ce monde. Il déchirait progressivement le voile et s'apprêtait à découvrir le secret ultime des Royaumes Intérieur et Extérieur.
 
 Ce secret pourrait être d'une cruauté sans nom, pourrait marquer la fin de toute chose, ou bien ne serait qu'un nouveau commencement.
 
@@ -102,7 +102,7 @@ Wang Lin murmura: « J'aurais dû le deviner depuis longtemps... »
 
 « Grotte... Grotte... Le Vieux Fantôme Zhan avait dit que le Royaume Intérieur était la grotte intérieure. Cela aurait dû être une évidence, mais je refusais d'y croire... Comme le Daoïste Esprit Dispersé des 7 Millions de Mondes. Il a découvert le secret et a failli sombrer dans la folie... »
 
-« Grotte... Grotte... Ainsi, il s'avère que mon monde, les Royaumes Intérieur et Extérieur, n'est qu'une grotte appartenant à un Grand Souverain du Continent Astral Immortel!!! »
+« Grotte... Grotte... Ainsi, il s'avère que mon monde, les Royaumes Intérieur et Extérieur, n'est qu'une grotte appartenant à un Grand Souverain du Continent Xian Gang!!! »
 
 « Voilà donc la vérité. C'est tout simplement absurde. Il se trouve que tous les êtres sensibles des Royaumes Intérieur et Extérieur sont nés de cela... Ce cultivateur défiant le ciel, ce cultivateur défiant le ciel... La raison pour laquelle la Tribulation Céleste punit les cultivateurs défiant les cieux est que la plupart d'entre eux finiront par chercher à découvrir la véritable nature du ciel. Et c'est alors que la Tribulation Céleste les frappe... »
 

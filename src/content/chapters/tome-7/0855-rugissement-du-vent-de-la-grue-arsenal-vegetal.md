@@ -32,7 +32,7 @@ Il avait également une dette envers Tian Yunzi lors de sa tentative d'atteindre
 
 Pourtant, au plus profond de son âme, une trace de tristesse persistait.
 
-Et à présent, Qing Shui se tenait devant lui pour faire barrage à Xue Shenzi et à la rétribution divine. Tout cela pour un sort nommé « Appel du Vent » et un héritage qui n'existait même pas.
+Et à présent, Qing Shui se tenait devant lui pour faire barrage à Xue Shenzi et à la Tribulation Céleste. Tout cela pour un sort nommé « Appel du Vent » et un héritage qui n'existait même pas.
 
 L'expression de Xue Shenzi était d'une extrême noirceur. À cet instant, les gouttes de pluie qui l'entouraient firent vaciller sa détermination. Il n'était pas aussi intrépide qu'il en avait l'air; en vérité, quelques mois auparavant, dans le corps du Serpent aux yeux de lune, lorsqu'il avait encaissé la frappe brise-étoiles du jeune enfant de l'ancien dieu, il avait été gravement blessé.
 
@@ -108,8 +108,8 @@ L'arsenal dans « Arsenal Végétal » signifiait des armes! Dès l'apparition d
 
 Cette progression était absolument folle, et Xue Shenzi en était le centre. Si rien ne l'arrêtait, c'est tout le Domaine Sud qui ferait face à une catastrophe!
 
-Alors que son sort atteignait son apogée et approchait de Qing Shui, les nuages de la rétribution divine achevèrent leur compression. Une masse colossale de nuages disparut pour se condenser en un seul éclair céleste aux sept couleurs!
+Alors que son sort atteignait son apogée et approchait de Qing Shui, les nuages de la Tribulation Céleste achevèrent leur compression. Une masse colossale de nuages disparut pour se condenser en un seul éclair céleste aux sept couleurs!
 
 Avant même l'apparition de cet éclair, une sensation terrifiante fit trembler les cœurs. L'éclair septicolore s'abattit instantanément. Il n'y avait pas qu'un seul coup, mais sept!
 
-Les éclairs rouge, orange, jaune, vert, cyan, bleu et violet descendirent alors que le nuage de la rétribution divine se dissipait! Ces foudres portaient en elles des forces de destruction absolue!
+Les éclairs rouge, orange, jaune, vert, cyan, bleu et violet descendirent alors que le nuage de la Tribulation Céleste se dissipait! Ces foudres portaient en elles des forces de destruction absolue!

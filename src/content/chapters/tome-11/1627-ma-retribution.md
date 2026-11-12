@@ -30,7 +30,7 @@ Wang Lin resta calme, fixant froidement le vortex au-dessus de lui. Son regard s
 
 « Aujourd'hui, moi, Wang Lin, infligerai une Tribulation à la Tribulation Céleste. La première sera nommée: Ma Tribulation du Tonnerre! » À ces mots, le tonnerre éclata de son corps et se répandit avec frénésie. Instantanément, un marquage de tonnerre gigantesque, large de cent mille pieds, apparut au-dessus de lui.
 
-Ce marquage était radicalement différent de l'éclair vert. Il était rouge, d'un rouge sang! Cette lumière écarlate dégageait une lueur infinie et se mua en une Tribulation du Tonnerre propre à Wang Lin. Ce tonnerre écarlate fit changer les couleurs du monde; les nuages furent repoussés et le Vide Brillant tout entier trembla.
+Ce marquage était radicalement différent de l'éclair vert. Il était rouge, d'un rouge sang! Cette lumière écarlate dégageait une lueur infinie et se mua en une Tribulation du Tonnerre propre à Wang Lin. Ce tonnerre écarlate fit changer les couleurs du monde; les nuages furent repoussés et le Kun Xu tout entier trembla.
 
 Wang Lin leva la main droite et pointa l'éclair céleste vert qui descendait. Le marquage rouge frémit et se transforma en un éclair céleste projeté vers le haut.
 

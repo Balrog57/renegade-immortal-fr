@@ -42,7 +42,7 @@ Alors que la lumière rouge scintillait, la vitesse de Wang Lin atteignit un niv
 
 Yun Quezi, qui le poursuivait, s'exclama avec stupeur. Son visage était déformé par l'incrédulité face à ce qu'il voyait.
 
-« Le Sceau de Suzaku! Comment ce Ceng Niu peut-il émettre l'aura du Sceau de Suzaku?! »
+« Le Sceau de Suzaku! Comment ce Zeng Niu peut-il émettre l'aura du Sceau de Suzaku?! »
 
 Dans la vision qui habitait l'esprit de Wang Lin, l'homme entra dans la pagode. Celle-ci semblait comporter de nombreux étages, mais l'homme s'arrêta dès le troisième.
 

@@ -80,7 +80,7 @@ Dès que le Sens Divin se propagea, l'expression de la douzaine de cultivateurs 
 
 Wang Lin observait froidement l'âme du scorpion qui fonçait sur lui. La Perle Défiant le Ciel fonctionnait à plein régime et semblait avoir atteint ses limites. Le désir qu'elle émanait devint plus intense encore.
 
-Les yeux de Wang Lin s'illuminèrent et il leva la main droite. Il fit un geste vers le Scorpion Démon Vert, et une lueur blanche jaillit de sa paume. La Perle Défiant le Ciel apparaissait pour la première fois depuis son arrivée sur le Continent Astral Immortel!
+Les yeux de Wang Lin s'illuminèrent et il leva la main droite. Il fit un geste vers le Scorpion Démon Vert, et une lueur blanche jaillit de sa paume. La Perle Défiant le Ciel apparaissait pour la première fois depuis son arrivée sur le Continent Xian Gang!
 
 Dès son apparition, la Perle libéra une lumière blanche infinie qui illumina toute la zone. Lorsque l'âme du scorpion aperçut la Perle Défiant le Ciel, elle fut stupéfaite un instant, avant que l'horreur et la terreur ne remplissent ses yeux. Elle poussa un rugissement, puis son corps gigantesque s'immobilisa et commença à reculer frénétiquement!
 

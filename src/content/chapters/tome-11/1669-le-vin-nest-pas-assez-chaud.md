@@ -92,7 +92,7 @@ Au loin, dans le Système Stellaire Antique, le Souverain observa la scène. Mal
 
 « Ce vieillard se moque éperdument de la vie des cultivateurs des grottes. Même moi, j'aurais du mal à contrer ce sort forgé par la force vitale de 100 000 hommes. Je veux voir si tu utiliseras ton arc ou non! »
 
-Wang Lin, debout au sein de la formation, contemplait l'aura émanant du rayon de lumière jailli du trou noir. C'était une aura venue du Continent Astral Immortel, qu'il avait déjà ressentie par le passé.
+Wang Lin, debout au sein de la formation, contemplait l'aura émanant du rayon de lumière jailli du trou noir. C'était une aura venue du Continent Xian Gang, qu'il avait déjà ressentie par le passé.
 
 Le regard serein, il pointa vers le Royaume Extérieur.
 

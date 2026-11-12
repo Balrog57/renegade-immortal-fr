@@ -6,13 +6,13 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1761 - Seven Ambushes
 slug: sept-embuscades
 ---
-Il existait sur le Continent Astral Immortel une créature nommée le Poisson-Œil. Sa tête était presque entièrement constituée d'une gueule béante, et son corps ressemblait à un serpent de boue long de 10 000 pieds. La bête aimait dévorer la terre et absorber les essences terrestres pour nourrir son corps, ainsi que l'énergie spirituelle pour nourrir son âme.
+Il existait sur le Continent Xian Gang une créature nommée le Poisson-Œil. Sa tête était presque entièrement constituée d'une gueule béante, et son corps ressemblait à un serpent de boue long de 10 000 pieds. La bête aimait dévorer la terre et absorber les essences terrestres pour nourrir son corps, ainsi que l'énergie spirituelle pour nourrir son âme.
 
 Les jeunes Poissons-Œil restaient souvent tapis dans les sédiments des rivières sans jamais se manifester. Avec le temps, les spécimens adultes pouvaient atteindre 10 000 pieds de long. Ils perçaient alors les sédiments pour s'enfoncer dans les profondeurs, voyageant sous terre jusqu'à une montagne voisine où ils venaient s'endormir.
 
-Sur le Continent Astral Immortel, la plupart des Poissons-Œil étaient scellés par des sectes pour servir de bêtes protectrices, mais ils n'étaient guère aimés des cultivateurs. Lorsqu'ils pénétraient dans une montagne, ils fusionnaient avec elle; bien que cela dotât la montagne d'un esprit, celle-ci finissait bientôt par se transformer en sable jaune.
+Sur le Continent Xian Gang, la plupart des Poissons-Œil étaient scellés par des sectes pour servir de bêtes protectrices, mais ils n'étaient guère aimés des cultivateurs. Lorsqu'ils pénétraient dans une montagne, ils fusionnaient avec elle; bien que cela dotât la montagne d'un esprit, celle-ci finissait bientôt par se transformer en sable jaune.
 
-Ces Poissons-Œil, qui dévoraient l'énergie céleste, devaient être scellés. En vérité, tous ceux que l'on trouvait sur le Continent Astral Immortel étaient immédiatement mis sous sceau.
+Ces Poissons-Œil, qui dévoraient l'énergie céleste, devaient être scellés. En vérité, tous ceux que l'on trouvait sur le Continent Xian Gang étaient immédiatement mis sous sceau.
 
 Wang Lin était assis dans le désert de cette planète. Le vent hurlait, soulevant d'immenses tempêtes de sable qui enveloppaient le monde, rendant tout lugubre et terne.
 
@@ -54,7 +54,7 @@ Le corps original, porteur de l'héritage du Dao Ancien, s'élança vers le ciel
 
 L'attaque à pleine puissance de l'héritage du Dao Ancien constituait la troisième embuscade!
 
-Après ces trois assauts, le visage de Wang Lin s'assombrit et son souffle devint court. Il se régénéra pendant la durée d'un demi-bâton d'encens avant de rouvrir les yeux. D'un revers de main, il fit apparaître la Voile Fantôme. Cet objet issu du Continent Astral Immortel était un trésor puissant! Bien qu'il ne le maîtrisait pas encore totalement, il pouvait l'utiliser pour projeter des illusions. Après une courte réflexion, Wang Lin mordit son index gauche et laissa couler son sang sur le visage spectral.
+Après ces trois assauts, le visage de Wang Lin s'assombrit et son souffle devint court. Il se régénéra pendant la durée d'un demi-bâton d'encens avant de rouvrir les yeux. D'un revers de main, il fit apparaître la Voile Fantôme. Cet objet issu du Continent Xian Gang était un trésor puissant! Bien qu'il ne le maîtrisait pas encore totalement, il pouvait l'utiliser pour projeter des illusions. Après une courte réflexion, Wang Lin mordit son index gauche et laissa couler son sang sur le visage spectral.
 
 Le sang fut instantanément absorbé par le visage fantomatique. En seulement trois respirations, la moitié de son sang avait disparu, rendant le teint de Wang Lin livide. À la quatrième respiration, le visage cessa l'absorption et ses yeux brillèrent d'une lueur démoniaque. Wang Lin brandit la voile et l'agita; le visage fantomatique s'envola en poussant un rugissement silencieux, son corps se dilatant jusqu'à engloutir la planète avant de disparaître.
 

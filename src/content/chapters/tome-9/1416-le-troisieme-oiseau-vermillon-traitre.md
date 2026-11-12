@@ -10,7 +10,7 @@ slug: le-troisieme-oiseau-vermillon-traitre
 
 Cette statue était bien trop étrange; peu importe comment Wang Lin la regardait, elle ne ressemblait pas à un cultivateur. Elle semblait plutôt avoir été façonnée à partir d'un Oiseau Vermillon.
 
-Après avoir médité un instant, Wang Lin joignit les mains devant la statue et s'inclina. Il dit: « Ce junior, de la sixième génération de l'Oiseau Vermillon, salue l'Ancêtre. »
+Après avoir médité un instant, Wang Lin joignit les mains devant la statue et s'inclina. Il dit: « Ce junior, de la sixième génération de Suzaku, salue l'Ancêtre. »
 
 À peine eut-il prononcé ces mots que le feu aux neuf couleurs entre les sourcils de la statue rugit violemment et jaillit vers le ciel. Une lumière émana des yeux clos de la statue.
 
@@ -22,7 +22,7 @@ Après avoir médité un instant, Wang Lin joignit les mains devant la statue et
 
 Tandis que la voix résonnait, le feu commença à rugir sur la paume où se tenait Wang Lin. Ce feu oscillait rapidement entre un feu corporel et un Feu Éthéré. À chaque série de neuf transformations, la puissance des flammes augmentait.
 
-« Ce feu n'est pas du Feu Éthéré, mais mon feu mental. Autrefois, on l'appelait la Flamme Infinie de l'Oiseau Vermillon. »
+« Ce feu n'est pas du Feu Éthéré, mais mon feu mental. Autrefois, on l'appelait la Flamme Infinie de Suzaku. »
 
 Pendant que Wang Lin traversait l'épreuve, une aura ancienne émana de la Tombe de l'Ordre Antique, s'échappant par la fissure spatiale de mille pieds. Cette aura antique fusionna avec le Système Stellaire Antique et commença à attirer vers elle des particules de poussière minuscules, presque invisibles.
 
@@ -90,14 +90,14 @@ La blessure infligée à son âme atteignit son corps physique. Sur la Planète 
 
 Témoin de cette scène, le Vieux Oiseau Vermillon prit un air grave et son expression devint extrêmement sombre.
 
-« L'Ancêtre de la première génération a-t-il perdu la raison pour utiliser la Flamme Infinie de l'Oiseau Vermillon pour une épreuve?! Le but de l'Épreuve Céleste devrait être d'offrir une grande fortune; quel est le sens d'un tel comportement?! »
+« L'Ancêtre de la première génération a-t-il perdu la raison pour utiliser la Flamme Infinie de Suzaku pour une épreuve?! Le but de l'Épreuve Céleste devrait être d'offrir une grande fortune; quel est le sens d'un tel comportement?! »
 
 Les yeux du Maître Simo s'illuminèrent d'une pointe de surprise. Il ne put s'empêcher de regarder la Grande Maîtresse Yun Luo. Elle mordit sa lèvre inférieure et plissa les yeux. Elle voulut tenter une divination, mais en se rappelant le regard de Wang Lin, son esprit vacilla et elle n'osa point essayer.
 
 Sixième respiration... septième... huitième... Sous l'encens céleste, du sang s'écoula de la bouche de Wang Lin et sa peau se flétrit, devenant sèche; même son sang commença à s'évaporer sous la chaleur émanant de son âme.
 
-À l'intérieur de l'Épreuve Céleste, l'âme de Wang Lin serra les dents, le visage tordu par la souffrance. Le feu du premier Ancêtre de l'Oiseau Vermillon n'était plus aux neuf couleurs, mais devint chaotique. La température avait atteint les limites de résistance de Wang Lin. Sous cette chaleur intense, la douleur frappait comme des lames d'océan. Elle était plusieurs fois plus violente que l'Épreuve Humaine ou l'Épreuve Terrestre!
+À l'intérieur de l'Épreuve Céleste, l'âme de Wang Lin serra les dents, le visage tordu par la souffrance. Le feu du premier Ancêtre de Suzaku n'était plus aux neuf couleurs, mais devint chaotique. La température avait atteint les limites de résistance de Wang Lin. Sous cette chaleur intense, la douleur frappait comme des lames d'océan. Elle était plusieurs fois plus violente que l'Épreuve Humaine ou l'Épreuve Terrestre!
 
-« Est-ce là une épreuve? » Wang Lin leva soudain les yeux et fixa avec fureur la statue du premier Ancêtre de l'Oiseau Vermillon. La colère brûlait dans son regard, et le tatouage du tonnerre apparut dans son œil droit!
+« Est-ce là une épreuve? » Wang Lin leva soudain les yeux et fixa avec fureur la statue du premier Ancêtre de Suzaku. La colère brûlait dans son regard, et le tatouage du tonnerre apparut dans son œil droit!
 
 Un fracas soudain secoua le monde et un tonnerre infini envahit l'Épreuve Céleste. Les éclairs convergèrent vers son œil droit tandis que le tatouage du tonnerre se déployait autour de son corps. Grâce à cette puissance, Wang Lin parvint à franchir la neuvième, puis la dixième respiration!

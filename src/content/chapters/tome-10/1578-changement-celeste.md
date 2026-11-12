@@ -58,7 +58,7 @@ Lorsqu'il eut couvert tout le Champ de Bataille Extérieur de son sens divin, il
 
 Ce fragment possédait une forme irrégulière, comme s'il était le morceau d'un tout plus vaste!
 
-Le mental de Wang Lin fut secoué. À cet instant, il songea au secret stupéfiant que l'ancien Empereur Divin de l'Oiseau Vermillon lui avait transmis. La planète Suzaku faisait partie de la porte...
+Le mental de Wang Lin fut secoué. À cet instant, il songea au secret stupéfiant que l'ancien Empereur Divin de Suzaku lui avait transmis. La planète Suzaku faisait partie de la porte...
 
 Ces mots résonnèrent dans son esprit et fusionnèrent lentement avec le Champ de Bataille Extérieur perçu par son sens divin. Fort de cette illumination, il reconnut immédiatement que le Champ de Bataille Extérieur était une composante de cette mystérieuse porte!
 

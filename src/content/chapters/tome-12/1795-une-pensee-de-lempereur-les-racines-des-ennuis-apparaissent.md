@@ -8,33 +8,33 @@ slug: une-pensee-de-lempereur-les-racines-des-ennuis-apparaissent
 ---
 Wang Lin ressentit une vive excitation dans son cœur. Il regarda les dix bêtes-moustiques restantes ainsi que son roi moustique. Il s'élança, enveloppé par le dragon de sang, et atterrit sur la tête du roi moustique.
 
-« Maître, nous nous reverrons sur le Continent Astral Immortel! » Wang Lin se retourna et joignit les mains en signe de respect envers Xuan Luo. Le roi moustique laissa échapper un hurlement féroce et chargea dans les profondeurs avec Wang Lin.
+« Maître, nous nous reverrons sur le Continent Xian Gang! » Wang Lin se retourna et joignit les mains en signe de respect envers Xuan Luo. Le roi moustique laissa échapper un hurlement féroce et chargea dans les profondeurs avec Wang Lin.
 
 Derrière lui, les neuf bêtes-moustiques suivaient comme une garde d'honneur!
 
 Xuan Luo observa Wang Lin disparaître à travers l'interstice de la glace. Après un long moment, il ferma les yeux et agita la main. La brèche dans la glace se rétracta et fut scellée.
 
-« Cette bête semblable à un moustique... pourrait-elle être l'une des neuf créatures nées de la Loi du Continent Astral Immortel en même temps que la race antique et la race céleste... Si c'est le cas, alors l'avenir de Wang Lin est devenu imprévisible... Il... il est probable qu'il devienne, par lui-même, le dixième soleil du Continent Astral Immortel! »
+« Cette bête semblable à un moustique... pourrait-elle être l'une des neuf créatures nées de la Loi du Continent Xian Gang en même temps que la race antique et la race céleste... Si c'est le cas, alors l'avenir de Wang Lin est devenu imprévisible... Il... il est probable qu'il devienne, par lui-même, le dixième soleil du Continent Xian Gang! »
 
-« S'il devient réellement le dixième Grand Empyréen, mon clan Dao Antique existera éternellement!! » Le visage de Xuan Luo devint légèrement rubicond. Il était stupéfait que ce moustique puisse absorber la Loi du Continent Astral Immortel. À cet instant, d'innombrables pensées traversèrent son esprit.
+« S'il devient réellement le dixième Grand Empyréen, mon clan Dao Antique existera éternellement!! » Le visage de Xuan Luo devint légèrement rubicond. Il était stupéfait que ce moustique puisse absorber la Loi du Continent Xian Gang. À cet instant, d'innombrables pensées traversèrent son esprit.
 
-Après un long moment, Xuan Luo s'éloigna le long du chemin du dragon. Autour de son corps, un soleil de couleur sang apparut. Ce soleil rouge enveloppa les environs et résista à la Loi du Continent Astral Immortel!
+Après un long moment, Xuan Luo s'éloigna le long du chemin du dragon. Autour de son corps, un soleil de couleur sang apparut. Ce soleil rouge enveloppa les environs et résista à la Loi du Continent Xian Gang!
 
-La lueur du soleil sanglant perçait faiblement la glace environnante et illuminait le vide. Par ce moyen, il combattait seul la Loi du Continent Astral Immortel!
+La lueur du soleil sanglant perçait faiblement la glace environnante et illuminait le vide. Par ce moyen, il combattait seul la Loi du Continent Xian Gang!
 
-Le vide infini entre les mondes de cavernes et le Continent Astral Immortel était imprégné de la Loi de ce dernier. Il n'était pas seulement connecté au monde de caverne de Wang Lin, mais à tous les mondes de cavernes du Continent Astral Immortel.
+Le vide infini entre les mondes de cavernes et le Continent Xian Gang était imprégné de la Loi de ce dernier. Il n'était pas seulement connecté au monde de caverne de Wang Lin, mais à tous les mondes de cavernes du Continent Xian Gang.
 
 Depuis des temps immémoriaux, d'innombrables génies des mondes de cavernes avaient découvert la vérité après avoir refusé d'accepter leur destin. Ils avaient utilisé diverses méthodes pour tenter de pénétrer dans ce vide extérieur aux mondes de cavernes.
 
-Cependant, aucun d'entre eux n'avait jamais réussi à atteindre le Continent Astral Immortel; ils étaient tous morts ici. Il en avait toujours été ainsi.
+Cependant, aucun d'entre eux n'avait jamais réussi à atteindre le Continent Xian Gang; ils étaient tous morts ici. Il en avait toujours été ainsi.
 
-De la même manière, de nombreux êtres puissants du Continent Astral Immortel avaient tenté de pénétrer dans ce vide. Ils voulaient chercher à comprendre la Loi qui s'y trouvait, ou même utiliser cet endroit pour infiltrer le monde de caverne d'une autre secte.
+De la même manière, de nombreux êtres puissants du Continent Xian Gang avaient tenté de pénétrer dans ce vide. Ils voulaient chercher à comprendre la Loi qui s'y trouvait, ou même utiliser cet endroit pour infiltrer le monde de caverne d'une autre secte.
 
 Peut-être que certains avaient réussi, mais ils étaient très peu nombreux, et il était facile de se perdre ici. En conséquence, très peu de personnes étaient jamais parvenues dans ce lieu.
 
 Wang Lin voyait occasionnellement des cadavres flotter à son passage; ils restaient ainsi en suspension pour l'éternité.
 
-« Le vide est comme une mer... Peut-être que cet endroit peut être considéré comme un océan rempli de la Loi du Continent Astral Immortel... » Wang Lin, assis sur le dos du roi moustique, contemplait le vide infini devant lui. Il n'y avait ni son, ni lumière, ni trace de vie.
+« Le vide est comme une mer... Peut-être que cet endroit peut être considéré comme un océan rempli de la Loi du Continent Xian Gang... » Wang Lin, assis sur le dos du roi moustique, contemplait le vide infini devant lui. Il n'y avait ni son, ni lumière, ni trace de vie.
 
 Cet endroit était d'un silence mortel!
 
@@ -44,13 +44,13 @@ Plus important encore, il était facile de s'égarer. Une fois perdu, on ne retr
 
 Le but de Wang Lin étant d'emporter l'âme de Li Muwan avec lui, il ne pouvait se permettre de s'égarer.
 
-Plus il avançait, plus la Loi du Continent Astral Immortel devenait puissante. C'était une pression omniprésente qui entravait toute progression.
+Plus il avançait, plus la Loi du Continent Xian Gang devenait puissante. C'était une pression omniprésente qui entravait toute progression.
 
 Certains utilisaient la force de cette pression pour déterminer leur direction, mais la Loi était partout. Outre le fait que la pression s'intensifiait à mesure que l'on progressait, elle possédait une autre caractéristique unique: le temps.
 
 Plus on passait de temps ici, plus la pression devenait écrasante.
 
-Wang Lin était déjà habitué à la solitude, sans compter qu'il avait la bête-moustique avec lui. Il se répétait qu'il n'était pas seul. Il avait également le dragon de sang autour de lui qui, en plus de réduire l'effet de la Loi du Continent Astral Immortel, servait de guide.
+Wang Lin était déjà habitué à la solitude, sans compter qu'il avait la bête-moustique avec lui. Il se répétait qu'il n'était pas seul. Il avait également le dragon de sang autour de lui qui, en plus de réduire l'effet de la Loi du Continent Xian Gang, servait de guide.
 
 Le temps passa ainsi lentement. Durant le premier mois, Wang Lin resta très calme tandis qu'il traversait le vide. Il observait les cadavres qui apparaissaient occasionnellement; il pouvait ressentir l'infortune et le refus de ces corps.
 
@@ -62,7 +62,7 @@ Durant cette année, aucun son ne retentit. Dans ce lieu mystérieux, même le s
 
 Il ignorait quelle distance il avait parcourue; il savait seulement que sa direction était la bonne. Le dragon de sang autour de lui s'était affaibli, mais il persistait à briller faiblement pour lui indiquer la voie.
 
-Wang Lin ne savait pas où se trouvait Xuan Luo, mais il sentait qu'il était quelque part dans le vide, escortant ses amis vers la réincarnation. Il résistait également à la Loi du Continent Astral Immortel, si bien que Wang Lin n'en ressentait pas trop les effets.
+Wang Lin ne savait pas où se trouvait Xuan Luo, mais il sentait qu'il était quelque part dans le vide, escortant ses amis vers la réincarnation. Il résistait également à la Loi du Continent Xian Gang, si bien que Wang Lin n'en ressentait pas trop les effets.
 
 Cette sensation apportait une chaleur au cœur de Wang Lin. Parfois, il regardait le vide noir derrière lui. Il avait l'impression de voir la porte de sa ville natale l'observer alors qu'il s'éloignait.
 
@@ -74,9 +74,9 @@ Un mois, deux mois, trois mois... Un autre semestre passa. Wang Lin était dans 
 
 Ce jour-là, après un an et demi, Wang Lin murmura: « Il reste encore huit ans et demi... »
 
-Sa voix était rauque, telle celle d'un vieillard, et le dragon de sang autour de lui était devenu très pâle. Bien qu'il ne ressente pas encore pleinement la Loi du Continent Astral Immortel, la vitesse des neuf bêtes-moustiques derrière lui ralentissait.
+Sa voix était rauque, telle celle d'un vieillard, et le dragon de sang autour de lui était devenu très pâle. Bien qu'il ne ressente pas encore pleinement la Loi du Continent Xian Gang, la vitesse des neuf bêtes-moustiques derrière lui ralentissait.
 
-Au cours de la deuxième année, le dragon de sang devint presque invisible; seule sa guidance subsistait faiblement. Cependant, sa capacité à annuler la Loi du Continent Astral Immortel s'était évanouie.
+Au cours de la deuxième année, le dragon de sang devint presque invisible; seule sa guidance subsistait faiblement. Cependant, sa capacité à annuler la Loi du Continent Xian Gang s'était évanouie.
 
 À ce stade, Wang Lin ressentit clairement la pression de la Loi pour la première fois. C'était comme si une montagne s'écrasait sur son corps.
 
@@ -94,7 +94,7 @@ Dans le vide, il semblait exister une force mystérieuse empêchant toute forme 
 
 Wang Lin ne rencontra aucun autre être vivant durant ces quatre années. Il n'aperçut que des cadavres appartenant à des cultivateurs ou à des bêtes féroces.
 
-Bien que les neuf bêtes-moustiques puissent fusionner avec la Loi du Continent Astral Immortel, même elles commençaient à en souffrir. C'était comme si le système stellaire entier s'effondrait sur leur dos. Le visage de Wang Lin était devenu livide et son corps atteignait ses limites.
+Bien que les neuf bêtes-moustiques puissent fusionner avec la Loi du Continent Xian Gang, même elles commençaient à en souffrir. C'était comme si le système stellaire entier s'effondrait sur leur dos. Le visage de Wang Lin était devenu livide et son corps atteignait ses limites.
 
 Il plaça les neuf bêtes-moustiques dans son espace de stockage pour leur épargner la souffrance du voyage. Cependant, le roi moustique sous lui ne montrait aucun signe d'inconfort; il continuait de se déplacer à une vitesse fulgurante en portant Wang Lin.
 
@@ -106,7 +106,7 @@ Il comprenait que tant qu'il resterait en vie, cette force ne pourrait pas bless
 
 Heureusement, il pouvait compter sur la bête-moustique. Elle maintenait une allure rapide. Si Wang Lin avait dû compter sur sa propre force pour combattre la pression tout en avançant, la tâche serait devenue insurmontable.
 
-Wang Lin luttait pour rejoindre le Continent Astral Immortel. Sur ce continent, au cœur du clan Dao Antique, se trouvait la cité flottante. Au centre de la ville trônait le Palais Dao Antique, et un homme d'âge mûr vêtu d'une robe royale se tenait sur le plus haut pavillon, contemplant un ciel sombre qui semblait sur le point de pleuvoir.
+Wang Lin luttait pour rejoindre le Continent Xian Gang. Sur ce continent, au cœur du clan Dao Antique, se trouvait la cité flottante. Au centre de la ville trônait le Palais Dao Antique, et un homme d'âge mûr vêtu d'une robe royale se tenait sur le plus haut pavillon, contemplant un ciel sombre qui semblait sur le point de pleuvoir.
 
 Dans sa main se trouvait une perle émettant une lueur spectrale. Bien que l'intérieur de la perle soit trouble, il pouvait y voir l'ombre d'une âme féminine endormie.
 
@@ -116,7 +116,7 @@ Dans sa main se trouvait une perle émettant une lueur spectrale. Bien que l'int
 
 L'Empereur Dao Antique serra la perle dans sa main. Bien que la perle fût robuste, sa poigne était si forte que l'âme à l'intérieur trembla de peur.
 
-L'homme en robe royale leva la main et observa l'âme vacillante en murmurant: « Petite âme, pourquoi le Maître Impérial a-t-il dit que tu serais un élément essentiel pour que je règne sur le Continent Astral Immortel... »
+L'homme en robe royale leva la main et observa l'âme vacillante en murmurant: « Petite âme, pourquoi le Maître Impérial a-t-il dit que tu serais un élément essentiel pour que je règne sur le Continent Xian Gang... »
 
 « Peu importe. Puisque tu es si importante, cet Empereur fera de toi son impératrice! Ye Dao, tente de fusionner cette âme avec toutes les femmes que tu as ramenées! »
 

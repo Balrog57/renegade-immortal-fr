@@ -1,6 +1,6 @@
 ---
 n: 278
-title: Rétribution Divine
+title: Tribulation Céleste
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 278 - Divine Retribution
@@ -18,13 +18,13 @@ Il devait remporter la victoire le plus vite possible, avant que la vieille femm
 
 Wang Lin n'hésita pas un instant. Au moment où il lança la marionnette de l'Âme Naissante, il prit une profonde inspiration et un mince fil s'échappa lentement de sa main.
 
-Un fil de rétribution divine!
+Un fil de Tribulation Céleste!
 
-En complément, il pouvait également se cacher à l'intérieur de la perle défiant le ciel. Cependant, cela restait son dernier recours, car il préférait utiliser ce fil de rétribution divine plutôt que de permettre à la vieille femme de découvrir la perle.
+En complément, il pouvait également se cacher à l'intérieur de la perle défiant le ciel. Cependant, cela restait son dernier recours, car il préférait utiliser ce fil de Tribulation Céleste plutôt que de permettre à la vieille femme de découvrir la perle.
 
-La perle défiant le ciel était son secret le mieux gardé et ne devait en aucun cas être exposée. Mais sans ce fil de rétribution divine, il n'aurait eu d'autre choix que de se réfugier dans la perle.
+La perle défiant le ciel était son secret le mieux gardé et ne devait en aucun cas être exposée. Mais sans ce fil de Tribulation Céleste, il n'aurait eu d'autre choix que de se réfugier dans la perle.
 
-Wang Lin profita du moment où la vieille femme fut stupéfaite par le Royaume Ji pour activer le fil de rétribution divine.
+Wang Lin profita du moment où la vieille femme fut stupéfaite par le Royaume Ji pour activer le fil de Tribulation Céleste.
 
 Ce fil était l'atout qui avait permis à Wang Lin de survivre à de nombreuses crises, et il devait encore s'en servir aujourd'hui pour rester en vie.
 
@@ -32,7 +32,7 @@ Ce n'était pas qu'il n'avait pas envisagé de l'utiliser pour la menacer; c'ét
 
 La situation idéale était donc de la tuer avec ce fil avant même qu'elle ne s'en rende compte.
 
-Bien qu'il éprouvât un pincement au cœur en l'utilisant, Wang Lin n'était pas un homme indécis. Le fil de rétribution divine fila droit vers le ciel, et des nuages rouges surgirent.
+Bien qu'il éprouvât un pincement au cœur en l'utilisant, Wang Lin n'était pas un homme indécis. Le fil de Tribulation Céleste fila droit vers le ciel, et des nuages rouges surgirent.
 
 Ces nuages apparurent de manière mystérieuse. En un instant, la voûte céleste fut recouverte de rouge. Quant à l'aura bleu foncé, elle ne pouvait absolument rivaliser avec ces nuages; elle s'écarta du passage des nuages rouges comme si elle n'osait entraver leur route.
 
@@ -52,13 +52,13 @@ Soudain, un éclair rouge jaillit des nuages. Cet éclair était d'une rapidité
 
 La vieille femme était sur le point d'esquiver à l'intérieur de la tour de glace lorsqu'elle réalisa que ses environs étaient verrouillés par une force destructrice, la rendant incapable de tout mouvement.
 
-Un regard de désespoir se lut sur son visage. Elle n'aurait jamais cru attirer la rétribution divine alors qu'elle ne faisait que traquer un simple junior de l'Âme Naissante au stade avancé.
+Un regard de désespoir se lut sur son visage. Elle n'aurait jamais cru attirer la Tribulation Céleste alors qu'elle ne faisait que traquer un simple junior de l'Âme Naissante au stade avancé.
 
-Même si elle était peu perspicace, elle comprit qu'il s'agissait de la mythique rétribution divine.
+Même si elle était peu perspicace, elle comprit qu'il s'agissait de la mythique Tribulation Céleste.
 
-La rétribution divine violette s'écrasa sur la tour de glace. La tour et la vieille femme disparurent sans laisser de trace, comme si elles n'avaient jamais existé.
+La Tribulation Céleste violette s'écrasa sur la tour de glace. La tour et la vieille femme disparurent sans laisser de trace, comme si elles n'avaient jamais existé.
 
-Wang Lin prit une profonde inspiration et lança un regard empli d'émotion vers la rétribution divine. Sachant qu'il n'était pas temps de traîner, il fit volte-face pour s'enfuir.
+Wang Lin prit une profonde inspiration et lança un regard empli d'émotion vers la Tribulation Céleste. Sachant qu'il n'était pas temps de traîner, il fit volte-face pour s'enfuir.
 
 Mais après n'avoir parcouru que 330 mètres, il sentit un puissant Sens Divin balayer les environs. À cet instant, le chapeau de paille sur sa tête brilla, et ce Sens Divin se retira précipitamment.
 
@@ -66,9 +66,9 @@ Soudain, une énergie brûlante émana du chapeau et pénétra son esprit. Il vi
 
 Terrifié, Wang Lin n'eut pas le temps de s'émerveiller de la capacité du chapeau de paille. Il pressa rapidement son doigt contre son front et disparut dans l'espace de la perle défiant le ciel.
 
-Après que l'éclair de rétribution divine violette eut anéanti la tour de glace et la vieille femme, il commença à se dissiper lentement. Les nuages rouges commencèrent également à se disperser, mais c'est à ce moment précis que l'homme d'âge moyen de Suzaku arriva. Ses yeux étaient injectés de folie alors qu'il fixait les nuages rouges. Il poussa un rugissement et une aura inimaginable se propagea de son corps.
+Après que l'éclair de Tribulation Céleste violette eut anéanti la tour de glace et la vieille femme, il commença à se dissiper lentement. Les nuages rouges commencèrent également à se disperser, mais c'est à ce moment précis que l'homme d'âge moyen de Suzaku arriva. Ses yeux étaient injectés de folie alors qu'il fixait les nuages rouges. Il poussa un rugissement et une aura inimaginable se propagea de son corps.
 
-Soudain, la masse de nuages rouges en pleine dissipation commença à bouger à nouveau, comme si elle tentait de se condenser une seconde fois. Cependant, sans le fil de rétribution divine pour la guider, les nuages ne purent plus se reformer.
+Soudain, la masse de nuages rouges en pleine dissipation commença à bouger à nouveau, comme si elle tentait de se condenser une seconde fois. Cependant, sans le fil de Tribulation Céleste pour la guider, les nuages ne purent plus se reformer.
 
 L'homme d'âge moyen était extrêmement inquiet; il savait que c'était une opportunité rarissime. S'il la manquait, il ignorait s'il reverrait jamais une telle chance de sa vie.
 
@@ -86,7 +86,7 @@ Dès que son corps pénétra le nuage rouge, des éclairs violets le frappèrent
 
 L'homme d'âge moyen resta là, fixant le ciel d'un air hébété et lugubre. Plus tôt, lorsque son Sens Divin avait balayé les lieux, il n'avait trouvé que la tour de glace et une lueur dorée. Cette lueur avait fait souffrir son Sens Divin, l'obligeant à se retirer. Depuis, il ne parvenait plus à la ressentir.
 
-Après avoir réfléchi un instant, il joignit les mains et cria: « Compagnon cultivateur qui as attiré la rétribution divine, je suis Ou Zhi de Suzaku! Je te demande d'attirer à nouveau la rétribution divine; je te récompenserai richement! »
+Après avoir réfléchi un instant, il joignit les mains et cria: « Daoïste qui as attiré la Tribulation Céleste, je suis Ou Zhi de Suzaku! Je te demande d'attirer à nouveau la Tribulation Céleste; je te récompenserai richement! »
 
 Face au silence prolongé, l'homme soupira. Il tendit la main pour saisir le vide. Un cri retentit alors qu'un bras gigantesque ruisselant de sang bleu volait vers lui. Le bras atterrit dans sa main avant de tomber en poussière.
 

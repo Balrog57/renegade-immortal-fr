@@ -94,11 +94,11 @@ Au moment où le corps du vieil homme explosa, au plus profond du Royaume Céles
 
 Les trois autres étaient également sous le choc.
 
-« Depuis des temps immémoriaux, je n'ai jamais entendu parler de quiconque ayant brisé le sceau du Souverain Céleste. Même les autres puissants souverains du Continent Astral Immortel trouveraient cela extrêmement difficile. Après tout, c'est un sort créé par le Souverain Céleste lui-même, la méthode ultime pour protéger les secrets des disciples de premier rang de ma Secte Qi Dao! »
+« Depuis des temps immémoriaux, je n'ai jamais entendu parler de quiconque ayant brisé le sceau du Souverain Céleste. Même les autres puissants souverains du Continent Xian Gang trouveraient cela extrêmement difficile. Après tout, c'est un sort créé par le Souverain Céleste lui-même, la méthode ultime pour protéger les secrets des disciples de premier rang de ma Secte Qi Dao! »
 
 « Lui... il n'est qu'une fourmi d'un royaume inférieur, et pourtant il a réussi à le briser! » Dans l'autre statue, la Tortue Noire sortit, les yeux écarquillés par l'horreur et l'incrédulité. S'il ne l'avait pas constaté de son propre Sens Divin, il n'aurait jamais cru cela réel!
 
-« Cet enfant n'est pas ordinaire... Nous devons modifier nos plans à son égard. Le fait qu'il puisse briser le sceau du Souverain Céleste signifie qu'il possède un sort stupéfiant. Un tel pouvoir pourrait même ébranler le Continent Astral Immortel! » Un vieil homme sortit du vortex de la troisième statue. Il scruta l'horizon et eut le souffle coupé.
+« Cet enfant n'est pas ordinaire... Nous devons modifier nos plans à son égard. Le fait qu'il puisse briser le sceau du Souverain Céleste signifie qu'il possède un sort stupéfiant. Un tel pouvoir pourrait même ébranler le Continent Xian Gang! » Un vieil homme sortit du vortex de la troisième statue. Il scruta l'horizon et eut le souffle coupé.
 
 Suzaku resta silencieux. Il contemplait le monde à l'intérieur du vortex, son expression changeant sans cesse.
 

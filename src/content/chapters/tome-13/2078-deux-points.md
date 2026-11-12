@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2078 - Two Points
 slug: deux-points
 ---
-Les yeux du Maître Chi Hunzi devinrent rouges et il poussa un rugissement hystérique: « Faux! Personne ne peut créer un vortex reliant le monde des grottes au Continent Astral Immortel pour arracher le sens divin d'un Grand Empyréen, tout cela est faux! N'essayez pas de tromper ce vieil homme!!! »
+Les yeux du Maître Chi Hunzi devinrent rouges et il poussa un rugissement hystérique: « Faux! Personne ne peut créer un vortex reliant le monde des grottes au Continent Xian Gang pour arracher le sens divin d'un Grand Empyréen, tout cela est faux! N'essayez pas de tromper ce vieil homme!!! »
 
 Son expression était féroce et les veines de son front étaient saillantes. À cet instant, il oublia sa peur et sentit son esprit sur le point de s'effondrer face à une telle absurdité.
 

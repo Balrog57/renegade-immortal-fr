@@ -1,6 +1,6 @@
 ---
 n: 1817
-title: Le Très Respecté Taureau Vert
+title: Le Très Respecté Qing Niu
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1817 - Esteemed Green Bull
@@ -18,7 +18,7 @@ S'il avait découvert l'identité et l'origine de Wang Lin, et s'il avait appris
 
 En un éclair, un demi-mois s'écoula. Durant cette période, Wang Lin s'arrêta à plusieurs reprises pour attendre que Du Qing le rattrape. Après avoir volé sans interruption pendant quinze jours, le roi moustique était toujours en pleine forme et ne montrait aucun signe de fatigue. Ayant subi de nombreuses métamorphoses, sa vitesse avait atteint un degré terrifiant. Même Du Qing ne parvenait pas à tenir son rythme.
 
-En volant, la créature pouvait absorber l'aura du Continent Astral Immortel et cultiver comme un véritable cultivateur. Par conséquent, elle volait de plus en plus vite, dépassant désormais de plusieurs fois la vitesse de Wang Lin lorsqu'il volait seul.
+En volant, la créature pouvait absorber l'aura du Continent Xian Gang et cultiver comme un véritable cultivateur. Par conséquent, elle volait de plus en plus vite, dépassant désormais de plusieurs fois la vitesse de Wang Lin lorsqu'il volait seul.
 
 Du Qing, resté en retrait, était dans un état pitoyable. Durant ce demi-mois, il avait dû voler sans relâche. Chaque fois qu'il apercevait Wang Lin et la bête qu'il craignait l'attendre, il ressentait un immense découragement.
 
@@ -58,11 +58,11 @@ La salle d'alchimie était également somptueuse. Tout ce qu'elle contenait prov
 
 En entendant cela, Du Qing comprit l'intention de Wang Lin. Après une courte réflexion, il s'assit face à lui et répondit:
 
-« Le Continent Tian Niu abrite l'élément feu et est composé majoritairement de veines de feu terrestre. La rumeur prétend que ces veines sont interconnectées pour former une formation qui réprime le Taureau Céleste. La légende raconte que le Taureau Céleste, qui possédait d'immenses pouvoirs, fut massacré par l'Ancêtre Céleste au commencement du Continent Astral Immortel; son corps devint le continent et son âme originelle est maintenue sous pression par le feu. »
+« Le Continent Tian Niu abrite l'élément feu et est composé majoritairement de veines de feu terrestre. La rumeur prétend que ces veines sont interconnectées pour former une formation qui réprime le Tian Niu. La légende raconte que le Tian Niu, qui possédait d'immenses pouvoirs, fut massacré par l'Ancêtre Céleste au commencement du Continent Xian Gang; son corps devint le continent et son âme originelle est maintenue sous pression par le feu. »
 
 « Ce n'est qu'une rumeur. Beaucoup ont cherché pendant des éternités sans trouver de piste. »
 
-« Cependant, il existe une autre théorie. Les veines de feu n'auraient pas été placées par l'Ancêtre Céleste, mais seraient les propres veines du Taureau Céleste... La principale veine de feu terrestre que vous cherchez devrait être la plus grande de toutes, celle qui traverse tout le continent! »
+« Cependant, il existe une autre théorie. Les veines de feu n'auraient pas été placées par l'Ancêtre Céleste, mais seraient les propres veines du Tian Niu... La principale veine de feu terrestre que vous cherchez devrait être la plus grande de toutes, celle qui traverse tout le continent! »
 
 « Cette veine possède un point de jonction au sein de la Secte Da Hun! » En prononçant ces derniers mots, la voix de Du Qing se fit soudainement basse. Il agita sa main droite et des restrictions apparurent pour sceller la zone.
 
@@ -72,7 +72,7 @@ Du Qing murmura: « La Secte Da Hun fait partie des neuf sectes et treize factio
 
 « Selon mon analyse, c'est là que se situe la principale veine de feu terrestre du continent. Il est même probable qu'un individu possédant une essence de feu extrêmement puissante réside au sein de la Secte Da Hun. »
 
-« Je connais également l'Ancêtre de la Secte Da Hun, le Très Respecté Taureau Vert; son niveau de culture est très élevé. Il possède lui aussi, comme vous, un corps véritable d'essence! » Lorsque Du Qing parla du Très Respecté Taureau Vert, ses yeux trahirent une profonde crainte.
+« Je connais également l'Ancêtre de la Secte Da Hun, le Très Respecté Qing Niu; son niveau de culture est très élevé. Il possède lui aussi, comme vous, un corps véritable d'essence! » Lorsque Du Qing parla du Très Respecté Qing Niu, ses yeux trahirent une profonde crainte.
 
 Les yeux de Wang Lin se rétrécirent; il retint ce nom.
 

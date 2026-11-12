@@ -52,7 +52,7 @@ Dès qu'il prit place, un immense tumulte éclata sur toute la place.
 
 « L'Ascendant Empyréen aux cheveux blancs!! Je ne m'attendais pas à ce que cet homme soit réellement le disciple du Grand Empyréen Xuan Luo!! »
 
-« Quoi? C'est l'Ascendant Empyréen aux cheveux blancs? N'est-il pas un membre du clan céleste? On dit qu'il est le premier sous les Grands Empyréens!! Il y a même des rumeurs disant qu'il est le dixième soleil du Continent Astral Immortel!! »
+« Quoi? C'est l'Ascendant Empyréen aux cheveux blancs? N'est-il pas un membre du clan céleste? On dit qu'il est le premier sous les Grands Empyréens!! Il y a même des rumeurs disant qu'il est le dixième soleil du Continent Xian Gang!! »
 
 Ceux qui reconnurent Wang Lin appartenaient à la famille royale, comme le Prince Ji Du. Les membres de l'Ancien Dao en savaient davantage car ils connaissaient sa réputation; cependant, les membres des autres clans affichaient des expressions extrêmement complexes en le regardant, avec des traces cachées de peur dans les yeux.
 

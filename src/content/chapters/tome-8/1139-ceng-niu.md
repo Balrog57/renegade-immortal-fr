@@ -1,9 +1,9 @@
 ---
 n: 1139
-title: Ceng Niu
+title: Zeng Niu
 book: 8
 bookTitle: Alliance's Secret
-en: Chapter 1139 - Ceng Niu
+en: Chapter 1139 - Zeng Niu
 slug: ceng-niu
 ---
 Alors que Wang Lin marchait lentement à travers la jungle, de petits serpents se glissaient dans la boue. Il aperçut également des crapauds de la taille d'un poing bondissant entre la fange et l'eau; ils semblaient apprécier la pluie.
@@ -92,4 +92,4 @@ Dans la nuit pluvieuse, Wang Lin marchait en tête et Zhao Yu suivait derrière.
 
 Les activités de la Secte Gui Yuan durèrent près d'un mois, et ils rassemblèrent 31 mortels de la partie nord du continent de Mo Luo. Parmi eux, 17 étaient des adolescents et les autres des jeunes adultes. Tous furent envoyés à la Secte Gui Yuan dans l'est du continent de Mo Luo, pour s'installer dans le bassin entouré d'une chaîne de montagnes circulaire.
 
-Les quatre Grands Anciens de la Secte Gui Yuan accordèrent une grande importance à ces 31 individus, qui furent répartis entre eux. Parmi les sept personnes choisies par la seule femme de l'ordre, la Grande Ancienne Lu Yanfei, se trouvait un jeune homme nommé Ceng Niu, originaire du Village Bei Shui.
+Les quatre Grands Anciens de la Secte Gui Yuan accordèrent une grande importance à ces 31 individus, qui furent répartis entre eux. Parmi les sept personnes choisies par la seule femme de l'ordre, la Grande Ancienne Lu Yanfei, se trouvait un jeune homme nommé Zeng Niu, originaire du Village Bei Shui.

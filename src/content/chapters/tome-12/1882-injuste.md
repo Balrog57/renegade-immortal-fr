@@ -18,7 +18,7 @@ Ce changement soudain fit vaciller les expressions des cultivateurs qui suivaien
 
 Les pupilles de Tang Jia se rétractèrent alors qu'elle fixait la silhouette du jeune homme dont la main droite était devenue une lame. Cette forme se superposait rapidement à l'image fière qu'elle gardait en mémoire.
 
-« Si je n'active pas l'armure d'âme du Taureau Céleste, je ne pourrai pas résister à ce coup! » Tang Jia n'était qu'au huitième niveau de la Tribulation Arcane. Une fois le neuvième niveau franchi, elle pourrait véritablement entrer dans le stade initial de la Tribulation du Vide!
+« Si je n'active pas l'armure d'âme du Tian Niu, je ne pourrai pas résister à ce coup! » Tang Jia n'était qu'au huitième niveau de la Tribulation Arcane. Une fois le neuvième niveau franchi, elle pourrait véritablement entrer dans le stade initial de la Tribulation du Vide!
 
 Il y avait également le vieil homme assis sous la cloche. Il ouvrit soudainement les yeux et tourna son regard vers eux. Sa culture était insondable et il dégageait l'aura d'un cultivateur au milieu de la Tribulation du Vide. Il ressemblait étrangement au Souverain Céleste aux Sept Couleurs d'autrefois: il était manifestement au sommet du stade intermédiaire de la Tribulation du Vide!
 
@@ -64,7 +64,7 @@ Tang Jia prit un air sérieux et déclara doucement: « Secte Xiu Sheng, Tang Ji
 
 Ce qui le surprit secrètement était que les fluctuations du monde étaient également perturbées ici; il était donc impossible de diviner ce qui s'y passait par les arts divinatoires. Il ne s'agissait pas d'une simple restriction individuelle, mais d'une partie de la formation protégeant l'intégralité de la secte.
 
-« Trois des sept méridiens du Taureau Céleste ont été détruits et trois Messagers du Taureau Céleste sont tombés... Vous quatre avez défendu les méridiens et accompli de grands mérites! Après concertation avec la Secte Da Hun, ceux qui ont excellé doivent être récompensés! » La voix majestueuse dégageait une aura ancestrale, comme si elle avait vécu depuis des éons, oubliant le passage du temps.
+« Trois des sept méridiens du Tian Niu ont été détruits et trois Messagers du Tian Niu sont tombés... Vous quatre avez défendu les méridiens et accompli de grands mérites! Après concertation avec la Secte Da Hun, ceux qui ont excellé doivent être récompensés! » La voix majestueuse dégageait une aura ancestrale, comme si elle avait vécu depuis des éons, oubliant le passage du temps.
 
 « Bian Yun! » appela la voix.
 

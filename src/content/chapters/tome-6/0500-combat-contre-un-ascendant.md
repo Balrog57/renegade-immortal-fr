@@ -120,7 +120,7 @@ Tian Yunzi dit lentement: « Ce n'est pas la première fois que tu reçois ce ti
 
 Chen Tao prit une profonde inspiration, fit une révérence profonde à Tian Yunzi et répondit respectueusement: « Le disciple remercie Maître! »
 
-Tian Yunzi hocha la tête, puis son regard parcourut les cultivateurs présents. Il joignit ses mains et dit avec douceur: « Tout le monde, ma célébration d'anniversaire est désormais close. Chers compagnons cultivateurs, si vous n'avez pas d'obligations pressantes, je vous invite à séjourner quelques jours de plus dans ma Secte Tian Yun afin que nous puissions discuter du Dao et comparer nos compréhensions! »
+Tian Yunzi hocha la tête, puis son regard parcourut les cultivateurs présents. Il joignit ses mains et dit avec douceur: « Tout le monde, ma célébration d'anniversaire est désormais close. Chers Daoïstes, si vous n'avez pas d'obligations pressantes, je vous invite à séjourner quelques jours de plus dans ma Secte Tian Yun afin que nous puissions discuter du Dao et comparer nos compréhensions! »
 
 De nombreux cultivateurs répondirent poliment, mais la plupart partirent aussitôt. En une seule journée, des dizaines de milliers de rayons de lumière quittèrent la Secte Tian Yun pour s'enfoncer dans l'horizon.
 

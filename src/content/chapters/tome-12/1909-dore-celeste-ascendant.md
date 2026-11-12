@@ -10,7 +10,7 @@ La Secte Dao Mo se situait dans la partie nord-ouest du Continent Lu Mo et étai
 
 Seule une telle force permettait à une secte de se faire un nom sur une terre aussi vaste que le Continent de l'Est!
 
-Sur le Continent Astral Immortel, quiconque avait franchi le stade de la Tribulation du Vide pouvait être considéré comme un Exalté. Même les cultivateurs au stade avancé de la Tribulation du Vide étaient considérés comme des Exaltés. Seuls ceux qui étaient infiniment proches du sommet de la Tribulation du Vide, mais incapables de combler l'abîme, pouvaient être appelés Exaltés Dorés!
+Sur le Continent Xian Gang, quiconque avait franchi le stade de la Tribulation du Vide pouvait être considéré comme un Exalté. Même les cultivateurs au stade avancé de la Tribulation du Vide étaient considérés comme des Exaltés. Seuls ceux qui étaient infiniment proches du sommet de la Tribulation du Vide, mais incapables de combler l'abîme, pouvaient être appelés Exaltés Dorés!
 
 Si l'on parvenait à briser le seuil du sommet de la Tribulation du Vide, on devenait un Faux Exalté Empyréen, ou simplement un Exalté Empyréen! Même les Grands Empyréens prêtaient attention à ces cultivateurs. Non seulement les Grands Empyréens se montraient courtois, mais ils déployaient également d'immenses efforts pour les attirer à leurs côtés.
 
@@ -20,7 +20,7 @@ Après tout, les Exaltés Empyréens étaient les êtres les plus puissants sous
 
 Cependant, aucun des deux ne pouvait porter de coup décisif à l'autre. Par conséquent, les conflits entre Grands Empyréens dépendaient du nombre et de la puissance des Exaltés Empyréens qui se trouvaient sous leur commandement.
 
-On pouvait dire qu'un Exalté Empyréen pouvait obtenir une gloire et un statut inimaginables sur le Continent Astral Immortel, bénéficiant ainsi de l'attention et de la protection d'un Grand Empyréen.
+On pouvait dire qu'un Exalté Empyréen pouvait obtenir une gloire et un statut inimaginables sur le Continent Xian Gang, bénéficiant ainsi de l'attention et de la protection d'un Grand Empyréen.
 
 La rumeur disait que si les Exaltés Empyréens étaient appelés « Faux » Exaltés Empyréens, c'était parce qu'il existait un autre niveau entre eux et les Grands Empyréens: le royaume de l'Ascendant Empyréen. Les cultivateurs à ce niveau avaient transcendé le sommet de la Tribulation du Vide et étaient extrêmement rares, même parmi les partisans des Grands Empyréens!
 
@@ -32,7 +32,7 @@ Depuis la naissance du Continent Tian Niu, les étrangers ne connaissaient qu'un
 
 Exalté Doré, Exalté Empyréen, Ascendant Empyréen, Grand Empyréen. Ces quatre titres représentaient quatre sommets de puissance distincts!
 
-La Secte Da Hun possédait l'Ancêtre du Taureau Vert et un Ascendant Empyréen nommé Luo Yunhai qui avait osé défier un Grand Empyréen. Bien que cela remontât à une époque lointaine, sa renommée subsistait encore aujourd'hui. L'estimé Taureau Vert était un Exalté Doré possédant un corps véritable d'essence. Grâce aux sorts mystérieux de la Secte Da Hun, celui-ci figurait parmi les treize factions, où il occupait un rang très élevé.
+La Secte Da Hun possédait l'Ancêtre du Qing Niu et un Ascendant Empyréen nommé Luo Yunhai qui avait osé défier un Grand Empyréen. Bien que cela remontât à une époque lointaine, sa renommée subsistait encore aujourd'hui. L'estimé Qing Niu était un Exalté Doré possédant un corps véritable d'essence. Grâce aux sorts mystérieux de la Secte Da Hun, celui-ci figurait parmi les treize factions, où il occupait un rang très élevé.
 
 Quant à la Secte Gui Yi, ils ne possédaient aucun Exalté Doré. Même leur maître de secte n'était qu'un cultivateur au stade avancé de la Tribulation du Vide. Un gouffre céleste le séparait d'un véritable expert au sommet de ce stade!
 
@@ -42,7 +42,7 @@ La secte avait également hérité d'une célèbre armure antique. Un Exalté au
 
 C'est l'existence même de cette armure qui plaçait la secte dans une position délicate. Comme elle exigeait le sacrifice de la force vitale, l'armure ne pouvait être portée plus de trois fois; après cela, le porteur mourait. Cependant, la Secte Gui Yi disposait de cinq personnes capables de la revêtir, ce qui leur avait tout juste permis de compter parmi les neuf sectes.
 
-Pour ce qui est de la Secte Dao Mo, leur maître de secte était un Exalté Doré au sommet du stade avancé de la Tribulation du Vide. Sa puissante culture lui valait une renommée sur tout le Continent de l'Est! Toutefois, comparé à l'estimé Taureau Vert, bien que tous deux fussent des Exaltés Dorés, ce dernier possédait un corps véritable d'essence; ainsi, le maître de la Secte Dao Mo n'était pas son égal!
+Pour ce qui est de la Secte Dao Mo, leur maître de secte était un Exalté Doré au sommet du stade avancé de la Tribulation du Vide. Sa puissante culture lui valait une renommée sur tout le Continent de l'Est! Toutefois, comparé à l'estimé Qing Niu, bien que tous deux fussent des Exaltés Dorés, ce dernier possédait un corps véritable d'essence; ainsi, le maître de la Secte Dao Mo n'était pas son égal!
 
 Cependant, la Secte Dao Mo n'était pas une force négligeable parmi les neuf sectes et treize factions. Outre leur maître de secte Exalté Doré, ils comptaient quatre Exaltés de la Tribulation du Vide, mais surtout, ils possédaient un ancêtre vivant en dehors de la secte!
 
@@ -54,9 +54,9 @@ Toutefois, la loyauté de cet ancêtre envers la Secte Dao Mo s'était considér
 
 Mais si quelqu'un cherchait à détruire la racine dao de la Secte Dao Mo, il poursuivrait alors l'affaire pour sauver son propre honneur!
 
-Tout cela était consigné sur la carte en forme de carapace de tortue que l'Ancêtre du Taureau Vert avait remise à Wang Lin.
+Tout cela était consigné sur la carte en forme de carapace de tortue que l'Ancêtre du Qing Niu avait remise à Wang Lin.
 
-« Sur le Continent de l'Est, il ne reste plus que sept Exaltés Empyréens! Je me demande... avec mon niveau actuel, que pourrais-je accomplir en portant l'armure d'âme du Taureau Céleste et en libérant toute ma puissance... » Tandis que la tempête faisait rage, Wang Lin se tenait là, les mains derrière le dos, le regard brillant.
+« Sur le Continent de l'Est, il ne reste plus que sept Exaltés Empyréens! Je me demande... avec mon niveau actuel, que pourrais-je accomplir en portant l'armure d'âme du Tian Niu et en libérant toute ma puissance... » Tandis que la tempête faisait rage, Wang Lin se tenait là, les mains derrière le dos, le regard brillant.
 
 « Je peux ignorer les Exaltés Dorés. Quant aux Exaltés Empyréens... je n'en ai combattu aucun, mais je brûle d'envie de le faire! » Les cheveux blancs de Wang Lin flottaient au vent. D'un revers de manche, il recouvrit sa tête de ses vêtements.
 

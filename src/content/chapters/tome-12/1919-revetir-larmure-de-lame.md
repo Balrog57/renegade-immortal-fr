@@ -62,19 +62,19 @@ L'ancêtre de la Secte Dao Mo dit d'une voix posée: « Si tu parviens à encais
 
 Wang Lin savait pertinemment que sans l'armure de l'âme, il ne survivrait pas. Ce coup était assez puissant pour l'anéantir totalement. Même son corps du Dao Antique ne pourrait résister; il serait réduit en poussière!
 
-« Les Exaltés Empyréens... ils sont véritablement dignes d'être au sommet, juste sous les Ascendants Empyréens! » Wang Lin ferma les yeux et le tatouage du Taureau Céleste sur son visage commença à se propager. Simultanément, sa culture explosa.
+« Les Exaltés Empyréens... ils sont véritablement dignes d'être au sommet, juste sous les Ascendants Empyréens! » Wang Lin ferma les yeux et le tatouage du Tian Niu sur son visage commença à se propager. Simultanément, sa culture explosa.
 
-Cette aura émanant de l'âme du Taureau Céleste s'engouffra dans la chair et le corps de Wang Lin avec une fureur déchaînée. Elle pénétra également son âme originelle, faisant grimper instantanément son niveau de culture du stade initial de la Tribulation du Vide au stade intermédiaire. Mais ce n'était pas fini. Sa culture continua de progresser jusqu'au stade avancé de la Tribulation du Vide, puis atteignit le rang d'Exalté Doré avant de s'arrêter.
+Cette aura émanant de l'âme du Tian Niu s'engouffra dans la chair et le corps de Wang Lin avec une fureur déchaînée. Elle pénétra également son âme originelle, faisant grimper instantanément son niveau de culture du stade initial de la Tribulation du Vide au stade intermédiaire. Mais ce n'était pas fini. Sa culture continua de progresser jusqu'au stade avancé de la Tribulation du Vide, puis atteignit le rang d'Exalté Doré avant de s'arrêter.
 
 Ce changement soudain fit se contracter les pupilles de l'ancêtre pour la première fois.
 
-« Emprunter la force de l'âme? C'est le pouvoir de l'âme du Taureau Céleste. Tu es donc reconnu par le Taureau Céleste! Pour élever ta culture à un tel degré, tu dois être capable d'entendre la voix de son âme! » L'expression de l'ancêtre changea radicalement!
+« Emprunter la force de l'âme? C'est le pouvoir de l'âme du Tian Niu. Tu es donc reconnu par le Tian Niu! Pour élever ta culture à un tel degré, tu dois être capable d'entendre la voix de son âme! » L'expression de l'ancêtre changea radicalement!
 
 Il connaissait parfaitement les 72 âmes réprimées dans chacun des 72 continents. Bien que toutes fussent sous contrôle, le degré de répression et la puissance de chaque âme variaient d'un continent à l'autre.
 
 Certaines étaient déjà des âmes mortes; seule la moitié était encore vivante. L'âme du Scorpion Vert, par exemple, était autrefois extrêmement puissante, mais sa répression était lourde et dure depuis bien avant la formation du Continent Tian Niu, ce qui l'avait considérablement affaiblie.
 
-L'âme du Taureau Céleste était différente. Parmi les 72 continents, le Taureau Céleste avait rejoint le groupe plus tardivement, son sceau était donc moins ancien. Il était également puissant, classé au 18e rang des 72 âmes.
+L'âme du Tian Niu était différente. Parmi les 72 continents, le Tian Niu avait rejoint le groupe plus tardivement, son sceau était donc moins ancien. Il était également puissant, classé au 18e rang des 72 âmes.
 
 Obtenir la reconnaissance d'une âme n'était pas un exploit unique en soi; tout continent possédant une âme vivante aurait ses messagers. Cependant, la reconnaissance n'était que le début. Même avec la force de l'âme, on ne pouvait atteindre au maximum que le stade avancé de la Tribulation du Vide, et non le rang d'Exalté Doré!
 
@@ -88,7 +88,7 @@ Par conséquent, l'ancêtre de la Secte Dao Mo n'avait jamais entendu parler d'u
 
 À ses yeux, la probabilité d'un tel événement était moindre que celle de voir un Ascendant Empyréen apparaître, et à peine supérieure à la naissance d'un nouveau Grand Empyréen.
 
-« Endurer deux de mes coups prouve qu'il est qualifié pour être un Exalté Empyréen. Et posséder une telle reconnaissance du Taureau Céleste... ceci... » L'ancêtre laissa transparaître une émotion qu'il avait contenue depuis longtemps.
+« Endurer deux de mes coups prouve qu'il est qualifié pour être un Exalté Empyréen. Et posséder une telle reconnaissance du Tian Niu... ceci... » L'ancêtre laissa transparaître une émotion qu'il avait contenue depuis longtemps.
 
 « Tout Grand Empyréen qui verrait cet homme voudrait le prendre sous son aile... Je me demande quelle puissance de combat il atteindra maintenant qu'il a emprunté la force de l'âme! » Les yeux de l'ancêtre s'illuminèrent. Il leva la main droite et lança le troisième coup.
 

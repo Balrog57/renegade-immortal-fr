@@ -1,6 +1,6 @@
 ---
 n: 1340
-title: Ainsi est la Rétribution Divine
+title: Ainsi est la Tribulation Céleste
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1340 - So This is Divine Retribution
@@ -44,69 +44,69 @@ Cependant, au sommet d'une montagne lointaine se tenait un homme!
 
 Cet homme avait les cheveux blancs et des yeux semblables à des éclairs. Il était comme un soleil dans cette nuit venteuse et pluvieuse. Il se tenait droit, son corps dégageant une culture de pointe au stade de la Formation de l'Âme. Ses cheveux blancs flottaient au vent tandis que ses vêtements verts claquaient bruyamment.
 
-« Moi, Lu Bei, j'ai commencé la culture à l'âge de sept ans. J'ai été éclairé par les changements du monde et j'ai observé le mouvement des vents et des nuages. J'ai atteint le stade de la Formation de l'Âme à 372 ans, et maintenant, après plus de 500 ans, j'ai atteint le sommet de ce stade. Aujourd'hui, je vais briser ce monde pour accueillir la rétribution divine et entrer dans le Royaume Céleste! » La voix du vieil homme était douce, comme s'il se parlait à lui-même, mais sa tête était levée vers les cieux comme s'il rugissait face au firmament!
+« Moi, Lu Bei, j'ai commencé la culture à l'âge de sept ans. J'ai été éclairé par les changements du monde et j'ai observé le mouvement des vents et des nuages. J'ai atteint le stade de la Formation de l'Âme à 372 ans, et maintenant, après plus de 500 ans, j'ai atteint le sommet de ce stade. Aujourd'hui, je vais briser ce monde pour accueillir la Tribulation Céleste et entrer dans le Royaume Céleste! » La voix du vieil homme était douce, comme s'il se parlait à lui-même, mais sa tête était levée vers les cieux comme s'il rugissait face au firmament!
 
-« Si j'échoue à cette rétribution divine, je me réincarnerai pour cultiver à nouveau. Si je réussis, je vous attendrai au Royaume Céleste! » Les yeux du vieil homme s'illuminèrent alors qu'il agitait sa manche, déclenchant un grondement tonitruant!
+« Si j'échoue à cette Tribulation Céleste, je me réincarnerai pour cultiver à nouveau. Si je réussis, je vous attendrai au Royaume Céleste! » Les yeux du vieil homme s'illuminèrent alors qu'il agitait sa manche, déclenchant un grondement tonitruant!
 
 Le tonnerre illumina soudain l'obscurité, révélant des milliers de cultivateurs agenouillés autour de la montagne. Tous regardaient le vieil homme au sommet avec des yeux fiévreux et exaltés! Ils étaient tous les disciples et les descendants de cet homme!
 
-« Devenir un être céleste! Devenir un être céleste! Moi, Lu Bei, aujourd'hui, je veux devenir un être céleste! Si la rétribution divine m'arrête, je la surmonterai! Si les êtres célestes m'arrêtent, je les massacrerai! » rugissait le vieil homme en chargeant vers le ciel.
+« Devenir un être céleste! Devenir un être céleste! Moi, Lu Bei, aujourd'hui, je veux devenir un être céleste! Si la Tribulation Céleste m'arrête, je la surmonterai! Si les êtres célestes m'arrêtent, je les massacrerai! » rugissait le vieil homme en chargeant vers le ciel.
 
-Simultanément, le monde trembla et les nuages se dispersèrent. Les nuages de rétribution divine commencèrent à s'amonceler, et tandis que le vent hurlait, une masse colossale de nuages de rétribution divine se forma!
+Simultanément, le monde trembla et les nuages se dispersèrent. Les nuages de Tribulation Céleste commencèrent à s'amonceler, et tandis que le vent hurlait, une masse colossale de nuages de Tribulation Céleste se forma!
 
-Plus de dix silhouettes se dessinaient à l'intérieur des nuages de rétribution divine. Ces silhouettes brillaient intensément, libérant des ondes d'énergie spirituelle céleste. À première vue, elles ressemblaient à de véritables êtres célestes!
+Plus de dix silhouettes se dessinaient à l'intérieur des nuages de Tribulation Céleste. Ces silhouettes brillaient intensément, libérant des ondes d'énergie spirituelle céleste. À première vue, elles ressemblaient à de véritables êtres célestes!
 
 L'espace derrière ces dix silhouettes sembla se distordre pour révéler un continent magnifique. Il était saturé d'énergie spirituelle céleste, où volaient d'innombrables grues célestes et où des palais remplissaient la terre!
 
 « Le Royaume Céleste!!! C'est le Royaume Céleste!!! »
 
-« La rétribution divine de l'Ancêtre a fait apparaître plus de dix êtres célestes!! C'est un signe de bon augure!! Auspicieux!! »
+« La Tribulation Céleste de l'Ancêtre a fait apparaître plus de dix êtres célestes!! C'est un signe de bon augure!! Auspicieux!! »
 
 Les milliers de cultivateurs autour de la montagne écarquillèrent les yeux, transportés par l'excitation. C'était la première fois qu'ils voyaient une telle vision! En contemplant cela, leur désir de devenir des êtres célestes décupla!
 
-Dès que la rétribution divine apparut, une pression écrasante se fit sentir, faisant trembler la montagne. Les milliers de cultivateurs furent immédiatement projetés à plus de cinq kilomètres de là!
+Dès que la Tribulation Céleste apparut, une pression écrasante se fit sentir, faisant trembler la montagne. Les milliers de cultivateurs furent immédiatement projetés à plus de cinq kilomètres de là!
 
-Wang Lin était l'une de ces silhouettes dans les nuages. Fixant le sol d'un regard hébété, il ressentait une sensation des plus étranges. D'autres auraient pu être exaltés; après tout, devenir le ciel et incarner la rétribution divine était l'aspiration ultime de la plupart des cultivateurs. C'était un sentiment qu'ils ne voulaient pas manquer!
+Wang Lin était l'une de ces silhouettes dans les nuages. Fixant le sol d'un regard hébété, il ressentait une sensation des plus étranges. D'autres auraient pu être exaltés; après tout, devenir le ciel et incarner la Tribulation Céleste était l'aspiration ultime de la plupart des cultivateurs. C'était un sentiment qu'ils ne voulaient pas manquer!
 
-Cependant, Wang Lin avait personnellement expérimenté la rétribution divine, et non pas une seule fois, mais maintes fois. C'était une chose que la plupart des cultivateurs ne pouvaient même pas concevoir!
+Cependant, Wang Lin avait personnellement expérimenté la Tribulation Céleste, et non pas une seule fois, mais maintes fois. C'était une chose que la plupart des cultivateurs ne pouvaient même pas concevoir!
 
 Ce qu'il avait vécu était identique à ce que subissait le vieillard, mais avec une envergure et une puissance bien plus vastes! Une sensation terrifiante envahit le cœur de Wang Lin, l'empêchant de se laisser emporter par l'excitation.
 
-« Selon la coutume, tant que la formation est active, nous croiserons des personnes subissant la rétribution divine. Cette fois, ne vous battez pas avec moi, laissez-moi faire! » Zhang Jingyun, débordant d'enthousiasme, joignit immédiatement les mains en signe de respect envers ceux qui l'entouraient.
+« Selon la coutume, tant que la formation est active, nous croiserons des personnes subissant la Tribulation Céleste. Cette fois, ne vous battez pas avec moi, laissez-moi faire! » Zhang Jingyun, débordant d'enthousiasme, joignit immédiatement les mains en signe de respect envers ceux qui l'entouraient.
 
 « Très bien, nous laisserons le frère Zhang agir! » Les autres rirent et acquiescèrent.
 
-Zhang Jingyun devint encore plus exalté alors qu'il avançait, enveloppé d'une lumière cristalline. Il fit un pas hors des nuages pour apparaître sous les nuages de la rétribution divine!
+Zhang Jingyun devint encore plus exalté alors qu'il avançait, enveloppé d'une lumière cristalline. Il fit un pas hors des nuages pour apparaître sous les nuages de la Tribulation Céleste!
 
 À cet instant, il était entouré d'énergie spirituelle céleste. Quiconque le voyait ressentirait l'envie de le vénérer. Il leva la main droite et pointa le vieillard en contrebas. Sa voix résonna comme le tonnerre:
 
-« Cultivateur du royaume inférieur, surmonte la rétribution divine pour ascender au rang de céleste! » Alors que les paroles de Zhang Jingyun retentissaient, un éclair épais comme un seau jaillit des nuages!
+« Cultivateur du royaume inférieur, surmonte la Tribulation Céleste pour ascender au rang de céleste! » Alors que les paroles de Zhang Jingyun retentissaient, un éclair épais comme un seau jaillit des nuages!
 
 Le vieil homme nommé Lu Bei regarda avec stupeur les plus de dix silhouettes dans les nuages de rétribution et sentit son cuir chevelu s'engourdir. Il ne s'attendait pas à ce que sa rétribution attire autant d'êtres célestes!
 
-Cependant, un sentiment de fierté envahit également son cœur. Il poussa un rugissement, déploya toute sa culture et chargea vers la rétribution divine!
+Cependant, un sentiment de fierté envahit également son cœur. Il poussa un rugissement, déploya toute sa culture et chargea vers la Tribulation Céleste!
 
 Le grondement assourdissant secoua les cieux, faisant trembler le monde et dispersant la pluie! Une fois l'éclair passé, le vieil homme avait le visage livide. Plusieurs de ses trésors s'étaient brisés devant lui.
 
-Pourtant, il ne désespéra pas. Son regard restait indomptable. Ses mains formèrent un sceau et, dans un rugissement, il déploya une immense barrière de protection pour se préparer à la seconde rétribution divine!
+Pourtant, il ne désespéra pas. Son regard restait indomptable. Ses mains formèrent un sceau et, dans un rugissement, il déploya une immense barrière de protection pour se préparer à la seconde Tribulation Céleste!
 
-Tandis que Wang Lin observait la scène, son esprit vacillait. Il ne parvint pas à se calmer pendant un long moment. À ce moment-là, un jeune homme en noir, l'un des nouveaux venus, demanda: « Daoïstes, pourquoi ne pas le tuer directement avec une seule rétribution divine au lieu d'augmenter progressivement sa puissance? »
+Tandis que Wang Lin observait la scène, son esprit vacillait. Il ne parvint pas à se calmer pendant un long moment. À ce moment-là, un jeune homme en noir, l'un des nouveaux venus, demanda: « Daoïstes, pourquoi ne pas le tuer directement avec une seule Tribulation Céleste au lieu d'augmenter progressivement sa puissance? »
 
 À l'instant où cette question fut posée, les yeux de Wang Lin brillèrent d'une lueur étrange. La rétribution qu'il avait connue était identique: le premier coup n'était souvent pas le plus fort, et la puissance croissait graduellement!
 
 Avant d'entrer dans ces 7 Millions de Mondes, cette question ne s'était jamais posée à lui. Il pensait que c'était ainsi que les choses devaient être. Mais désormais, ce doute frappa son esprit comme un éclair!
 
-« Le Dao Céleste a la vertu de chérir la vie. Même au cœur des plus grands périls, il laisse une lueur d'espoir. La foudre de la rétribution divine ne sert qu'à éprouver les cultivateurs du royaume inférieur; lancer les éclairs un à un leur permet de ressentir véritablement la puissance des cieux avant d'être anéantis! Bien sûr, ce n'est là que le discours pompeux et officiel du clan! »
+« Le Dao Céleste a la vertu de chérir la vie. Même au cœur des plus grands périls, il laisse une lueur d'espoir. La foudre de la Tribulation Céleste ne sert qu'à éprouver les cultivateurs du royaume inférieur; lancer les éclairs un à un leur permet de ressentir véritablement la puissance des cieux avant d'être anéantis! Bien sûr, ce n'est là que le discours pompeux et officiel du clan! »
 
-« Mais la vraie raison pour laquelle la rétribution divine s'intensifie progressivement est de forcer l'émergence de la lutte et de la volonté indomptable chez les cultivateurs du royaume inférieur. Ce n'est qu'en procédant ainsi qu'un mystérieux Tonnerre Spirituel peut naître en leur corps », expliqua lentement le cultivateur nommé Zhou, celui qui avait échangé par transmission de pensée avec Zhang Jingyun.
+« Mais la vraie raison pour laquelle la Tribulation Céleste s'intensifie progressivement est de forcer l'émergence de la lutte et de la volonté indomptable chez les cultivateurs du royaume inférieur. Ce n'est qu'en procédant ainsi qu'un mystérieux Tonnerre Spirituel peut naître en leur corps », expliqua lentement le cultivateur nommé Zhou, celui qui avait échangé par transmission de pensée avec Zhang Jingyun.
 
 Ces paroles résonnèrent différemment aux oreilles de Wang Lin. Il ferma les yeux, et une immense vague secoua son esprit. Il commençait à comprendre...
 
-Des grondements tonitruants éclatèrent alors que la deuxième, la troisième, la quatrième et la cinquième rétribution divine s'abattaient sous le contrôle de Zhang Jingyun. À ce moment, l'expression de ce dernier était déformée par une excitation sans fin. Le sentiment qu'il éprouvait était mille, dix mille fois plus exaltant que la culture duale!
+Des grondements tonitruants éclatèrent alors que la deuxième, la troisième, la quatrième et la cinquième Tribulation Céleste s'abattaient sous le contrôle de Zhang Jingyun. À ce moment, l'expression de ce dernier était déformée par une excitation sans fin. Le sentiment qu'il éprouvait était mille, dix mille fois plus exaltant que la culture duale!
 
 « Je suis le Dao Céleste, et je fais tomber le tonnerre! »
 
-Le tonnerre grondait sans relâche. Devant la rétribution divine, le vieil homme cracha du sang et son corps n'était plus qu'un amas ensanglanté. Le désespoir commença à poindre dans ses yeux! C'est alors que la sixième rétribution divine descendit!
+Le tonnerre grondait sans relâche. Devant la Tribulation Céleste, le vieil homme cracha du sang et son corps n'était plus qu'un amas ensanglanté. Le désespoir commença à poindre dans ses yeux! C'est alors que la sixième Tribulation Céleste descendit!
 
 Cette sixième vague faisait des dizaines de pieds de large et fit trembler la terre si violemment qu'elle sembla sur le point de s'effondrer!
 

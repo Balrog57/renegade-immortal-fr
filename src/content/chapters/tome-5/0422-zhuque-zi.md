@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 422 - Zhuque Zi
 slug: zhuque-zi
 ---
-« Du Tian! » Zhu Quezi portait une robe rouge flamboyant et ses cheveux flottaient sans qu'aucun vent ne les agite. Bien que son apparence soit empreinte d'une grande ancienneté, son regard brûlait comme une torche et il dégageait une aura majestueuse.
+« Dun Tian! » Zhu Quezi portait une robe rouge flamboyant et ses cheveux flottaient sans qu'aucun vent ne les agite. Bien que son apparence soit empreinte d'une grande ancienneté, son regard brûlait comme une torche et il dégageait une aura majestueuse.
 
 L'homme se tenait là, avec désinvolture, et le ciel et la terre perdirent leur éclat. Toute la lumière se concentrait sur sa robe rouge, mettant en valeur son souffle puissant qui toisait la planète Suzaku.
 
@@ -16,13 +16,13 @@ Il était le seul cultivateur au stade avancé de l'Ascendant sur la planète Su
 
 Le véritable souverain de la planète Suzaku!
 
-Zhu Quezi dit calmement: « Autrefois, mon pays de Suzaku avait conclu un accord avec votre Secte Lian Hun. Si le pays de Suzaku est en danger, vous devez nous prêter le Étendard de l'Âme. Aujourd'hui, ce vieil homme est venu emprunter ce drapeau. Du Tian, apporte-le ici! »
+Zhu Quezi dit calmement: « Autrefois, mon pays de Suzaku avait conclu un accord avec votre Secte Lian Hun. Si le pays de Suzaku est en danger, vous devez nous prêter le Étendard de l'Âme. Aujourd'hui, ce vieil homme est venu emprunter ce drapeau. Dun Tian, apporte-le ici! »
 
-« Foutaises! » Du Tian serra fermement le Étendard de l'Âme et, fixant Zhu Quezi du regard, il hurla: « Comment se fait-il que je n'aie jamais entendu parler de cet accord? Vieux voleur Zhuque, si tu veux le voler, viens donc le prendre; inutile de jouer la comédie avec cette mascarade répugnante. »
+« Foutaises! » Dun Tian serra fermement le Étendard de l'Âme et, fixant Zhu Quezi du regard, il hurla: « Comment se fait-il que je n'aie jamais entendu parler de cet accord? Vieux voleur Zhuque, si tu veux le voler, viens donc le prendre; inutile de jouer la comédie avec cette mascarade répugnante. »
 
-Zhu Quezi regarda Du Tian, secoua légèrement la tête et soupira. « Cette affaire fut décidée entre la première génération de Suzaku et votre ancêtre fondateur, il est donc naturel que tu l'ignores, mais je l'ai découverte dans de vieux registres. Aujourd'hui, je ne suis pas venu pour voler, mais pour emprunter! » Sur ces mots, il tendit la main. Le ciel changea de teinte et une lumière rouge convergea de toutes les directions. Cette lueur forma une main gigantesque qui s'abattit sur Du Tian.
+Zhu Quezi regarda Dun Tian, secoua légèrement la tête et soupira. « Cette affaire fut décidée entre la première génération de Suzaku et votre ancêtre fondateur, il est donc naturel que tu l'ignores, mais je l'ai découverte dans de vieux registres. Aujourd'hui, je ne suis pas venu pour voler, mais pour emprunter! » Sur ces mots, il tendit la main. Le ciel changea de teinte et une lumière rouge convergea de toutes les directions. Cette lueur forma une main gigantesque qui s'abattit sur Dun Tian.
 
-Du Tian cria: « Vieux voleur! » Il agita l'étendard et, sans la moindre hésitation, libéra les mille millions de fragments d'âmes. Outre la quatrième âme, les 35 autres âmes primaires furent également projetées.
+Dun Tian cria: « Vieux voleur! » Il agita l'étendard et, sans la moindre hésitation, libéra les mille millions de fragments d'âmes. Outre la quatrième âme, les 35 autres âmes primaires furent également projetées.
 
 Un rayon de 50 kilomètres fut recouvert de fragments d'âmes. Leurs hurlements et leurs cris stridents emplirent l'espace.
 
@@ -30,13 +30,13 @@ La voix combinée des mille millions de fragments d'âmes était plus puissante 
 
 Les 35 âmes primaires arboraient des expressions féroces tandis qu'elles déchiraient la main rouge en mille morceaux. Puis, elles encerclèrent Zhu Quezi en le fixant avec acharnement.
 
-Zhu Quezi observa les mille millions de fragments d'âmes qui l'entouraient. Ses pupilles se contractèrent légèrement lorsqu'il dit calmement: « Du Tian, puisque tu t'obstines ainsi, ce vieil homme devra te punir en lieu et place de tes ancêtres. J'ai dit que je voulais seulement emprunter le Étendard de l'Âme; je vais donc l'emprunter, puis je te le rendrai. »
+Zhu Quezi observa les mille millions de fragments d'âmes qui l'entouraient. Ses pupilles se contractèrent légèrement lorsqu'il dit calmement: « Dun Tian, puisque tu t'obstines ainsi, ce vieil homme devra te punir en lieu et place de tes ancêtres. J'ai dit que je voulais seulement emprunter le Étendard de l'Âme; je vais donc l'emprunter, puis je te le rendrai. »
 
-Du Tian eut un rire moqueur. « Emprunter? Combien de temps comptes-tu le garder? »
+Dun Tian eut un rire moqueur. « Emprunter? Combien de temps comptes-tu le garder? »
 
 L'expression de Zhu Quezi devint grave: « Prête-le au pays de Suzaku pour 10 000 ans. Une fois ces 10 000 ans passés, nous le rendrons naturellement. »
 
-« Vieux voleur Zhuque, ma Secte Lian Hun a une devise: tant que l'étendard demeure, la secte subsiste. Si tu veux l'emprunter, tu n'as qu'à frapper! » Les yeux de Du Tian devinrent glacials; ses mains formèrent un sceau qu'il pointa ensuite vers Zhu Quezi.
+« Vieux voleur Zhuque, ma Secte Lian Hun a une devise: tant que l'étendard demeure, la secte subsiste. Si tu veux l'emprunter, tu n'as qu'à frapper! » Les yeux de Dun Tian devinrent glacials; ses mains formèrent un sceau qu'il pointa ensuite vers Zhu Quezi.
 
 « Condensez! »
 
@@ -58,19 +58,19 @@ La totalité de la Secte Lian Hun fut rayée de la carte de la planète Suzaku. 
 
 Les 35 fragments d'âmes primaires qui étaient sur le point de fusionner furent également encerclés par les flammes. Une vapeur noire s'échappait de leurs corps tandis qu'ils affichaient des expressions de douleur indicible.
 
-« La Flamme Sainte de Suzaku... » Le visage de Du Tian était livide. Trois jades anciens flottaient autour de lui pour contenir l'incendie.
+« La Flamme Sainte de Suzaku... » Le visage de Dun Tian était livide. Trois jades anciens flottaient autour de lui pour contenir l'incendie.
 
-Zhu Quezi, d'un ton serein, déclara lentement: « Du Tian, le Ciel a la vertu de préserver la vie. Je ne voulais pas intervenir; tout ceci, tu l'as cherché, ne m'en tiens pas rigueur! »
+Zhu Quezi, d'un ton serein, déclara lentement: « Dun Tian, le Ciel a la vertu de préserver la vie. Je ne voulais pas intervenir; tout ceci, tu l'as cherché, ne m'en tiens pas rigueur! »
 
-Du Tian prit une profonde inspiration, se mordit la langue pour cracher un large jet de sang, puis s'assit en position du lotus. Ses mains formèrent un sceau et il commanda: « Évasion d'Âme! »
+Dun Tian prit une profonde inspiration, se mordit la langue pour cracher un large jet de sang, puis s'assit en position du lotus. Ses mains formèrent un sceau et il commanda: « Évasion d'Âme! »
 
-Du Tian n'était pas son nom véritable, mais son nom daoïste reçu de son maître. Il avait autrefois confié à Wang Lin que chaque utilisateur de l'étendard possédait sa propre technique, et la sienne était l'évasion.
+Dun Tian n'était pas son nom véritable, mais son nom daoïste reçu de son maître. Il avait autrefois confié à Wang Lin que chaque utilisateur de l'étendard possédait sa propre technique, et la sienne était l'évasion.
 
-Les 35 âmes primaires libérèrent une lueur verte et disparurent du cœur des flammes. Lorsqu'elles réapparurent, elles se trouvaient devant Du Tian.
+Les 35 âmes primaires libérèrent une lueur verte et disparurent du cœur des flammes. Lorsqu'elles réapparurent, elles se trouvaient devant Dun Tian.
 
 « Qu'est-ce que c'est? » Zhu Quezi fut surpris.
 
-« Fusionnez! » Du Tian cracha de nouveau du sang. Cette fois, le sang atteignit l'une des âmes primaires. En un instant, les 34 autres fusionnèrent avec elle.
+« Fusionnez! » Dun Tian cracha de nouveau du sang. Cette fois, le sang atteignit l'une des âmes primaires. En un instant, les 34 autres fusionnèrent avec elle.
 
 En un clin d'œil, une aura capable de rivaliser avec celle de Zhu Quezi apparut, et le ciel sembla se fendre en deux. Le côté gauche était rouge flamboyant, à l'image de Zhu Quezi.
 
@@ -82,7 +82,7 @@ Dès l'apparition de cette entité, elle agita la main, repoussant toutes les fl
 
 Les pupilles de Zhu Quezi se contractèrent. Son expression se fit sombre alors qu'il fixait cette âme: « Pas mal. Avec un tel pouvoir, cet étendard peut être qualifié de trésor singulier de ma planète Suzaku. »
 
-Le visage de Du Tian était d'une pâleur mortelle. Il ne lui restait qu'un peu plus d'un an à vivre et, après avoir utilisé la grande technique de fusion de l'étendard, son corps était à bout de forces, comme une lampe sans huile. Il murmura faiblement: « Tue-le! »
+Le visage de Dun Tian était d'une pâleur mortelle. Il ne lui restait qu'un peu plus d'un an à vivre et, après avoir utilisé la grande technique de fusion de l'étendard, son corps était à bout de forces, comme une lampe sans huile. Il murmura faiblement: « Tue-le! »
 
 Le fragment d'âme de stade avancé de l'Ascendant n'avança pas directement; il leva plutôt la main. Un coup de tonnerre retentit dans le ciel, et les nuages venus de cinquante kilomètres s'amassèrent pour former un corps humanoïde.
 

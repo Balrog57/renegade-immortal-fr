@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1080 - I Dont Need You to Save Me
 slug: je-nai-pas-besoin-que-tu-me-sauves
 ---
-« Sainte du Vide Brillant! » L'expression de Tian Yunzi devint immédiatement sérieuse. Il recula rapidement de quelques pas tout en tenant son trident, mais son regard se tourna aussitôt vers le vieil homme suspendu dans les airs.
+« Sainte de Kun Xu! » L'expression de Tian Yunzi devint immédiatement sérieuse. Il recula rapidement de quelques pas tout en tenant son trident, mais son regard se tourna aussitôt vers le vieil homme suspendu dans les airs.
 
 « Lu Yundao! » Tian Yunzi fronça les sourcils et dit: « Se pourrait-il que votre Royaume Kun Xu souhaite également s'en mêler? »
 
@@ -24,7 +24,7 @@ En un clin d'œil, le démon ancien et le vieil homme furent enveloppés dans un
 
 Mu Bingmei déposa Wang Lin et s'élança droit vers Tian Yunzi.
 
-Tian Yunzi fronça les sourcils en reculant et dit calmement: « Sainte du Vide Brillant, je ne souhaite pas me faire un ennemi de votre Royaume Kun Xu. Ce Wang Lin n'a aucun lien avec vous. Personne ne peut m'empêcher de le tuer. »
+Tian Yunzi fronça les sourcils en reculant et dit calmement: « Sainte de Kun Xu, je ne souhaite pas me faire un ennemi de votre Royaume Kun Xu. Ce Wang Lin n'a aucun lien avec vous. Personne ne peut m'empêcher de le tuer. »
 
 « Vous n'êtes pas qualifié pour le tuer! » Mu Bingmei secoua la tête en s'élevant dans les airs. D'un geste de sa main droite, des illusions apparurent. Étonnamment, elles ressemblaient toutes exactement à Mu Bingmei!
 
@@ -36,7 +36,7 @@ Les yeux de Tian Yunzi révélèrent une lueur étrange et il murmura quelques m
 
 Mu Bingmei secoua la tête et dit doucement: « Votre sort de destin céleste est inutile contre moi! » Tandis qu'elle parlait, sa main droite plongea dans le vide et une énergie originelle infinie se rassembla pour former un parchemin de bambou. À l'instant où le parchemin s'ouvrit, une lumière aux sept couleurs fut libérée. De nombreuses runes s'envolèrent et entourèrent le corps de Mu Bingmei.
 
-« Bien que je ne sois qu'au premier niveau du Fléau Céleste, aucun sort au sein de ce système stellaire du Vide Brillant ne peut échapper à mon contrôle. Quant à l'énergie originelle du ciel et de la terre de ce système stellaire, si je refuse que vous la possédiez, vous n'en récupérerez pas même une parcelle! » La main de jade de Mu Bingmei pointa les runes qui l'entouraient. Celles-ci se dispersèrent soudainement et disparurent dans le monde.
+« Bien que je ne sois qu'au premier niveau du Fléau Céleste, aucun sort au sein de ce système stellaire de Kun Xu ne peut échapper à mon contrôle. Quant à l'énergie originelle du ciel et de la terre de ce système stellaire, si je refuse que vous la possédiez, vous n'en récupérerez pas même une parcelle! » La main de jade de Mu Bingmei pointa les runes qui l'entouraient. Celles-ci se dispersèrent soudainement et disparurent dans le monde.
 
 À cet instant précis, toute l'énergie originelle du monde entier changea radicalement pour converger vers le pilier d'énergie originelle.
 
@@ -48,9 +48,9 @@ Seule l'énergie originelle déjà raffinée à l'intérieur de Tian Yunzi ne fu
 
 Cependant, ce sort inconcevable dépassait l'imagination de quiconque. Même l'expression de Tian Yunzi devint sombre.
 
-« J'ai longtemps entendu dire que la Sainte du Vide Brillant possédait un sort puissant au sein du Royaume Kun Xu. Le titre de Sainte du Vide Brillant est transmis de génération en génération depuis l'Antiquité. Même à l'époque où les Célestes existaient encore, son identité était à la hauteur du Palais Céleste. Il y avait quatre Royaumes Célestes, et chacun d'eux possédait un système stellaire sous ses ordres. La rumeur prétend qu'il existe, dans chaque système stellaire, une personne détentrice de l'héritage du Royaume Céleste Antique!
+« J'ai longtemps entendu dire que la Sainte de Kun Xu possédait un sort puissant au sein du Royaume Kun Xu. Le titre de Sainte de Kun Xu est transmis de génération en génération depuis l'Antiquité. Même à l'époque où les Célestes existaient encore, son identité était à la hauteur du Palais Céleste. Il y avait quatre Royaumes Célestes, et chacun d'eux possédait un système stellaire sous ses ordres. La rumeur prétend qu'il existe, dans chaque système stellaire, une personne détentrice de l'héritage du Royaume Céleste Antique!
 
-« Les Saintes des quatre systèmes stellaires contrôlent chacune des pouvoirs différents. Lorsque je suis entré dans le Royaume Kun Xu pour ma culture, j'ai entendu bien des rumeurs sur la Sainte du Vide Brillant. Aujourd'hui, je vois que ces rumeurs sont vraies. »
+« Les Saintes des quatre systèmes stellaires contrôlent chacune des pouvoirs différents. Lorsque je suis entré dans le Royaume Kun Xu pour ma culture, j'ai entendu bien des rumeurs sur la Sainte de Kun Xu. Aujourd'hui, je vois que ces rumeurs sont vraies. »
 
 Mu Bingmei ne répondit pas et pointa le pilier d'énergie originelle. Le pilier se rétracta rapidement jusqu'à devenir une courte épée scintillante de lumière.
 
@@ -68,7 +68,7 @@ Elle n'osait baisser les yeux pour regarder Wang Lin, qui était peut-être enco
 
 Elle se contenta de tenir l'épée courte et chargea Tian Yunzi avec ce sentiment tumultueux. C'était la seule chose qui semblait pouvoir apaiser son cœur.
 
-L'expression de Tian Yunzi était lugubre. Bien qu'il connaissît beaucoup de choses sur la Sainte du Vide Brillant, il ne pensait pas qu'elle serait capable de sceller l'énergie originelle du monde. Cela signifiait que ses sorts de destin céleste n'avaient aucun effet sur elle.
+L'expression de Tian Yunzi était lugubre. Bien qu'il connaissît beaucoup de choses sur la Sainte de Kun Xu, il ne pensait pas qu'elle serait capable de sceller l'énergie originelle du monde. Cela signifiait que ses sorts de destin céleste n'avaient aucun effet sur elle.
 
 Les sorts de destin céleste étaient un moyen de communiquer avec le monde. Cette communication lui permettait d'obtenir une loi intangible à utiliser!
 

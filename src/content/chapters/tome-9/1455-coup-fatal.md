@@ -12,15 +12,15 @@ Il avait utilisé l'essence sonore pour briser la Porte Kong et atteindre la tro
 
 C'était pour lui un moment de vie ou de mort!
 
-« Vieux Poison de la Grande Désolation, ton serment est entre mes mains. Je veux voir comment tu comptes gérer le contrecoup de la Flamme Joss!! » Miaoyin Daozun agita la main et sortit la rune formée par le serment de la Grande Désolation.
+« Vieux Poison de Da Huang, ton serment est entre mes mains. Je veux voir comment tu comptes gérer le contrecoup de la Flamme Joss!! » Miaoyin Daozun agita la main et sortit la rune formée par le serment de Da Huang.
 
 Tenant la rune, Miaoyin Daozun l'écrasa, la transformant en une pluie d'étincelles lumineuses.
 
-Le visage de la Grande Désolation pâlit instantanément à l'intérieur de l'empreinte de paume sombre et il cracha une bouchée de sang, sans toutefois paraître affaibli. Il eut un sourire sardonique et dit: « La méthode de culture de ce vieil homme est différente de la vôtre. Je vole ma fortune aux cieux; comment un simple serment de Flamme Joss pourrait-il sérieusement blesser ce vieil homme? Une simple bouchée de sang suffit! »
+Le visage de Da Huang pâlit instantanément à l'intérieur de l'empreinte de paume sombre et il cracha une bouchée de sang, sans toutefois paraître affaibli. Il eut un sourire sardonique et dit: « La méthode de culture de ce vieil homme est différente de la vôtre. Je vole ma fortune aux cieux; comment un simple serment de Flamme Joss pourrait-il sérieusement blesser ce vieil homme? Une simple bouchée de sang suffit! »
 
-Au moment où la Grande Désolation cracha son sang, son corps original à l'extérieur fit de même. Bien que la planète désolée sur laquelle il se trouvait fût vivante et que ses montagnes et ses rivières fussent habitées par l'esprit, tout flétrit instantanément au moment même où il cracha son sang. Il ne resta que des ruines de sable jaune. C'était comme si la planète avait épuisé toute sa vie pour devenir un monde de mort.
+Au moment où Da Huang cracha son sang, son corps original à l'extérieur fit de même. Bien que la planète désolée sur laquelle il se trouvait fût vivante et que ses montagnes et ses rivières fussent habitées par l'esprit, tout flétrit instantanément au moment même où il cracha son sang. Il ne resta que des ruines de sable jaune. C'était comme si la planète avait épuisé toute sa vie pour devenir un monde de mort.
 
-Dans l'Ancienne Tombe, la Grande Désolation agita la main et l'énorme empreinte de paume chargea Miaoyin Daozun. À cet instant, les cinq doigts changèrent soudainement de forme.
+Dans l'Ancienne Tombe, Da Huang agita la main et l'énorme empreinte de paume chargea Miaoyin Daozun. À cet instant, les cinq doigts changèrent soudainement de forme.
 
 L'index se transforma en un centipède noir de mille pieds aux longues moustaches. Son corps se tordait de manière extrêmement hideuse. Une fois apparu, il laissa échapper un rugissement.
 
@@ -28,15 +28,15 @@ Les quatre autres doigts scintillèrent simultanément pour se transformer en un
 
 Le pouce devint un crapaud à l'apparence terrifiante, dont le dos était couvert de protubérances exsudant un poison inimaginable.
 
-Cinq poisons distincts jaillirent vers Miaoyin Daozun, la Grande Désolation se tenant au centre. Sa main forma un sceau et il cracha une bouchée de venin. Cependant, celle-ci ne fut pas projetée vers l'ennemi, mais retourna frapper le visage de la Grande Désolation! Son apparence physique commença soudainement à changer!
+Cinq poisons distincts jaillirent vers Miaoyin Daozun, Da Huang se tenant au centre. Sa main forma un sceau et il cracha une bouchée de venin. Cependant, celle-ci ne fut pas projetée vers l'ennemi, mais retourna frapper le visage de Da Huang! Son apparence physique commença soudainement à changer!
 
 Son visage devint jaune et noir, comme s'il pourrissait, dégageant une odeur fétide. Ses traits bougèrent étrangement avant de reprendre l'apparence de son corps original!
 
 Son visage était couvert de cicatrices et trois aiguilles transperçaient ses lèvres. Sous sa chevelure ébouriffée, ses yeux projetaient un regard d'une froideur infinie!
 
-« Il y a 40 000 ans, ce vieil homme a raffiné les trois Immortels de la Grande Désolation en aiguilles pour sceller mes lèvres. Afin de te tuer aujourd'hui, je vais te faire comprendre pourquoi je devais les garder scellées! Trois Immortels, libérez-vous! » rugit la Grande Désolation. Les trois aiguilles qui apparurent lorsqu'il retrouva sa forme originale transpercèrent ses lèvres et furent projetées vers l'avant.
+« Il y a 40 000 ans, ce vieil homme a raffiné les trois Immortels de Da Huang en aiguilles pour sceller mes lèvres. Afin de te tuer aujourd'hui, je vais te faire comprendre pourquoi je devais les garder scellées! Trois Immortels, libérez-vous! » rugit Da Huang. Les trois aiguilles qui apparurent lorsqu'il retrouva sa forme originale transpercèrent ses lèvres et furent projetées vers l'avant.
 
-Elles se transformèrent en trois rayons de lumière noire fonçant vers Miaoyin Daozun! Au même moment, les lèvres de Grande Désolation s'entrouvrirent légèrement!
+Elles se transformèrent en trois rayons de lumière noire fonçant vers Miaoyin Daozun! Au même moment, les lèvres de Da Huang s'entrouvrirent légèrement!
 
 Alors que Miaoyin Daozun reculait, il agita les deux mains et les grondements dans l'air s'intensifièrent. En quelques instants seulement, ce son supplanta tout le reste au monde.
 
@@ -48,7 +48,7 @@ Même les quelque cent cultivateurs au sol ne purent l'éviter. Tandis que l'oc�
 
 La terre scellée se désintégra et s'effondra instantanément. De vastes quantités de brouillard affluèrent pour fusionner avec l'océan.
 
-Wang Lin réagit très vite. Dès que Miaoyin Daozun utilisa son sort, il rassembla toutes les bêtes moustiques. Il avança ensuite pour lancer une attaque en tenaille sur Miaoyin Daozun aux côtés de la Grande Désolation!
+Wang Lin réagit très vite. Dès que Miaoyin Daozun utilisa son sort, il rassembla toutes les bêtes moustiques. Il avança ensuite pour lancer une attaque en tenaille sur Miaoyin Daozun aux côtés de Da Huang!
 
 À cet instant, il chargea Miaoyin Daozun tandis que des éclats de lumière scintillaient autour de lui pour contrer les ondes sonores. Le tatouage de tonnerre en flammes se plaça devant lui pour annuler le rugissement de la mer.
 
@@ -58,17 +58,17 @@ Wang Lin réagit très vite. Dès que Miaoyin Daozun utilisa son sort, il rassem
 
 Alors qu'il utilisait son sort, Miaoyin Daozun déchira violemment la faille de ses deux mains derrière lui, multipliant par dix sa taille. Celle-ci devint sans limites et s'étendit rapidement à partir de cette terre scellée en ruines!
 
-Le fracas des vagues était apocalyptique. À l'intérieur de la faille, l'océan créa une lame de fond haute de 100 000 pieds. Des centaines de millions d'âmes de Flamme Joss jaillirent de la faille vers la Grande Désolation qui approchait.
+Le fracas des vagues était apocalyptique. À l'intérieur de la faille, l'océan créa une lame de fond haute de 100 000 pieds. Des centaines de millions d'âmes de Flamme Joss jaillirent de la faille vers Da Huang qui approchait.
 
-Tout cela se produisit en un éclair. L'océan violet entra en collision avec les cinq poisons de la Grande Désolation sous le rugissement assourdissant des mers.
+Tout cela se produisit en un éclair. L'océan violet entra en collision avec les cinq poisons de Da Huang sous le rugissement assourdissant des mers.
 
 Des grondements tonitruants résonnèrent frénétiquement et la terre scellée vola en éclats, transformant l'endroit en un fragment de la mer de brouillard. Le brouillard fut repoussé dans toutes les directions.
 
-La silhouette de la Grande Désolation était sur le point d'être submergée par l'océan violet lorsqu'un rugissement retentit. Une lumière violet-noir jaillit des lèvres de la Grande Désolation.
+La silhouette de Da Huang était sur le point d'être submergée par l'océan violet lorsqu'un rugissement retentit. Une lumière violet-noir jaillit des lèvres de Da Huang.
 
 C'était une langue!
 
-Une langue qui ne semblait pas appartenir à un être humain. Elle était violette et noire, et percuta immédiatement l'océan violet. La Grande Désolation laissa échapper un gémissement étouffé alors que l'océan passait devant cette langue bizarre pour venir s'écraser contre son corps. Puis, la Grande Désolation cracha du sang et son corps s'effondra!
+Une langue qui ne semblait pas appartenir à un être humain. Elle était violette et noire, et percuta immédiatement l'océan violet. Da Huang laissa échapper un gémissement étouffé alors que l'océan passait devant cette langue bizarre pour venir s'écraser contre son corps. Puis, Da Huang cracha du sang et son corps s'effondra!
 
 Une âme apparut et se retira aussitôt.
 
@@ -106,13 +106,13 @@ Le timing était d'une précision extrême; c'était précisément le moment où
 
 Miaoyin Daozun poussa un cri déchirant tandis que son corps se couvrait de brume noire. Le poison en lui explosa et, sous l'effet de la force destructrice, il fut laissé à l'agonie!
 
-Il fut projeté en arrière dans une brume de sang. Au même moment, l'âme de la Grande Désolation arriva rapidement pour tenter de posséder de force le corps de Miaoyin Daozun!
+Il fut projeté en arrière dans une brume de sang. Au même moment, l'âme de Da Huang arriva rapidement pour tenter de posséder de force le corps de Miaoyin Daozun!
 
 C'était l'atout de Wang Lin, le coup le plus puissant qu'il avait préparé pour prendre l'adversaire totalement au dépourvu!!
 
 L’estimé Ling Dong, qui venait tout juste de devenir un esclave ancien, n'avait pas encore été suffisamment affiné et ne pouvait donc être invoqué que peu de temps. Il n'y avait de la place que pour un seul coup. Wang Lin saisit cette opportunité cruciale et ordonna à l’esclave ancien d'attaquer.
 
-Miaoyin Daozun était l'un des cinq grands maîtres; ainsi, bien que sa culture fût supprimée, sa puissance demeurait inimaginable. S'il n'avait pas été pris par surprise par l'épée de sang de Wang Lin alors qu'il affrontait Grande Désolation, puis frappé par le sort le plus puissant de ce dernier, il aurait été impossible pour Wang Lin de le blesser.
+Miaoyin Daozun était l'un des cinq grands maîtres; ainsi, bien que sa culture fût supprimée, sa puissance demeurait inimaginable. S'il n'avait pas été pris par surprise par l'épée de sang de Wang Lin alors qu'il affrontait Da Huang, puis frappé par le sort le plus puissant de ce dernier, il aurait été impossible pour Wang Lin de le blesser.
 
 Le plus important était que la compréhension que Miaoyin Daozun avait de Wang Lin s'était arrêtée à la Planète du Grand Empereur. Il n'aurait jamais pu imaginer que Wang Lin serait capable de prendre le contrôle de Ling Dong, qui se trouvait déjà à demi-pas du troisième niveau.
 
@@ -126,15 +126,15 @@ Cependant, juste après avoir reculé de quelques pas, Wang Lin se força à s'a
 
 Cet océan avait été empoisonné, dégageant une odeur nauséabonde. Les innombrables âmes des Flammes Joss avaient déjà été imprégnées de poison, devenant des âmes empoisonnées incapables d'offrir leurs flammes.
 
-Toutefois, cet océan de poison était un trésor extrêmement rare pour Wang Lin. Il devait le dérober avant que Grande Désolation ne s'en empare. Après l'avoir raffiné en une seule goutte grâce au Fourneau Impérial, il contiendrait un poison capable de menacer les cultivateurs du troisième niveau.
+Toutefois, cet océan de poison était un trésor extrêmement rare pour Wang Lin. Il devait le dérober avant que Da Huang ne s'en empare. Après l'avoir raffiné en une seule goutte grâce au Fourneau Impérial, il contiendrait un poison capable de menacer les cultivateurs du troisième niveau.
 
-Quant à Grande Désolation, malgré ses paroles mielleuses, comment Wang Lin pouvait-il lui faire confiance? Ils ne collaboraient que par intérêt mutuel.
+Quant à Da Huang, malgré ses paroles mielleuses, comment Wang Lin pouvait-il lui faire confiance? Ils ne collaboraient que par intérêt mutuel.
 
 Les vieux monstres ayant cultivé pendant des dizaines de milliers d'années étaient tous rusés et ne devaient pas être sous-estimés. S'il avait pu rompre son vœu envers Miaoyin Daozun, il pourrait tout aussi bien trahir sa promesse envers Wang Lin. Wang Lin le savait parfaitement.
 
-C'est pourquoi il avait délibérément repoussé Miaoyin Daozun lors de l'attaque de l'esclave ancien. Il n'avait pas non plus enfoncé complètement les trois aiguilles, laissant ainsi à Miaoyin Daozun une chance de retarder Grande Désolation.
+C'est pourquoi il avait délibérément repoussé Miaoyin Daozun lors de l'attaque de l'esclave ancien. Il n'avait pas non plus enfoncé complètement les trois aiguilles, laissant ainsi à Miaoyin Daozun une chance de retarder Da Huang.
 
-L’âme de Grande Désolation poursuivit rapidement Miaoyin Daozun. Son âme se mua en un gaz noir qui s'infiltra par les sept orifices de Miaoyin Daozun pour le posséder cruellement.
+L’âme de Da Huang poursuivit rapidement Miaoyin Daozun. Son âme se mua en un gaz noir qui s'infiltra par les sept orifices de Miaoyin Daozun pour le posséder cruellement.
 
 Si Wang Lin avait enfoncé totalement les aiguilles, Miaoyin Daozun n'aurait eu que peu de moyens de résister; mais la situation était désormais différente. Les deux entités se livraient un combat acharné avec leurs sens divins à l'intérieur du corps de Miaoyin Daozun.
 
@@ -142,9 +142,9 @@ Grâce à ce délai, Wang Lin put s'emparer de l'océan empoisonné. Sans hésit
 
 Le Fourneau Impérial abritait d'innombrables royaumes, mais avec le niveau de culture de Wang Lin, il ne pouvait en ouvrir que deux. D'un geste, il assigna un royaume à l'océan empoisonné et l'autre à l'esclave ancien.
 
-À cet instant, alors que Miaoyin Daozun et Grande Désolation se disputaient le contrôle du corps, la faille menant au Royaume des Flammes Joss commença à se refermer rapidement. Elle était sur le point de disparaître totalement.
+À cet instant, alors que Miaoyin Daozun et Da Huang se disputaient le contrôle du corps, la faille menant au Royaume des Flammes Joss commença à se refermer rapidement. Elle était sur le point de disparaître totalement.
 
-Comment Wang Lin pouvait-il laisser ce royaume s'évanouir? Il s'était allié à Grande Désolation précisément pour obtenir les Flammes Joss de Miaoyin Daozun.
+Comment Wang Lin pouvait-il laisser ce royaume s'évanouir? Il s'était allié à Da Huang précisément pour obtenir les Flammes Joss de Miaoyin Daozun.
 
 Il ne pourrait pas utiliser ces flammes lui-même, mais l’esclave ancien Ling Dong était à un demi-pas du troisième niveau. Tant qu'il obtiendrait assez de Flammes Joss, il pourrait devenir un véritable cultivateur du troisième niveau.
 
@@ -164,13 +164,13 @@ Dès l'apparition du bras, une aura surpuissante envahit toute la mer de brouill
 
 C'était la deuxième fois que Wang Lin voyait ce bras, et son expression changea radicalement. Une force inimaginable fonçait sur lui, prête à pulvériser son corps.
 
-Le bras fut si rapide qu'il percuta instantanément Miaoyin Daozun, le faisant cracher du sang. Grande Désolation en profita pour écraser l'âme de Miaoyin Daozun, mais cela eut pour effet de clouer le corps de ce dernier dans la paume par une force de succion, l'empêchant de s'échapper.
+Le bras fut si rapide qu'il percuta instantanément Miaoyin Daozun, le faisant cracher du sang. Da Huang en profita pour écraser l'âme de Miaoyin Daozun, mais cela eut pour effet de clouer le corps de ce dernier dans la paume par une force de succion, l'empêchant de s'échapper.
 
 En un éclair, la paume géante fondit sur Wang Lin. Ses cinq doigts ressemblaient à cinq piliers soutenant le monde, retombant brutalement vers lui.
 
 L'impact fut si violent qu'il fit cracher du sang à Wang Lin, mais il refusait de céder. Ce qui le tourmentait n'était pas seulement la paume qui l'écrasait, mais le fait que la faille vers le Royaume des Flammes Joss se trouvait à moins de 1 000 pieds.
 
-La faille ne mesurait plus que 10 000 pieds de long et allait bientôt disparaître. Si elle venait à s'évanouir, sa récompense pour avoir blessé Miaoyin Daozun avec Grande Désolation serait réduite à néant.
+La faille ne mesurait plus que 10 000 pieds de long et allait bientôt disparaître. Si elle venait à s'évanouir, sa récompense pour avoir blessé Miaoyin Daozun avec Da Huang serait réduite à néant.
 
 Wang Lin venait d'utiliser le sort salvateur contenu dans son gantelet de Dieu Ancien; il ne pouvait pas s'en servir immédiatement. De plus, chaque usage endommageait l'artefact jusqu'à sa destruction.
 
@@ -186,7 +186,7 @@ Profitant de cette pause, la main droite de Wang Lin jaillit comme une étoile f
 
 Simultanément, la main surgie du brouillard agrippa Wang Lin sous la poitrine. La douleur envahit son corps; la puissance de cette main semblait vouloir l'écraser totalement.
 
-Au moment où le bras saisit Wang Lin, il s'enfonça brusquement, tentant d'entraîner Wang Lin et Grande Désolation — qui venait de réussir sa possession — vers les profondeurs de la mer de brouillard.
+Au moment où le bras saisit Wang Lin, il s'enfonça brusquement, tentant d'entraîner Wang Lin et Da Huang — qui venait de réussir sa possession — vers les profondeurs de la mer de brouillard.
 
 Le bras était trop puissant. Wang Lin n'avait aucune prise et son bras allait être arraché du Royaume des Flammes Joss. Alors qu'il allait être englouti, sa main droite s'agrippa soudainement au bord droit de la faille scellée par les Feuilles Anciennes. Sa main gauche s'étendit pour saisir le bord gauche. Sa puissance de Dieu Ancien jaillit avec une intensité folle alors qu'il se cramponnait aux parois de la faille.
 

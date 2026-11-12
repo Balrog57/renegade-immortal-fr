@@ -10,7 +10,7 @@ La tempête qui avait secoué le palais impérial de l'Ancien Dao, où le discip
 
 Cette nouvelle s'était propagée progressivement après le départ des membres des deux autres clans. Presque tous ceux qui en étaient dignes en avaient entendu parler.
 
-Cet événement aurait dû provoquer une agitation plus vaste, mais un autre fait, encore plus choquant, fit que l'affaire s'estompa lentement: l'ouverture précoce du Royaume Divin Immémorial avait déclenché une onde de choc à travers tout le clan Ancien, et même à travers tout le Continent Astral Immortel.
+Cet événement aurait dû provoquer une agitation plus vaste, mais un autre fait, encore plus choquant, fit que l'affaire s'estompa lentement: l'ouverture précoce du Royaume Divin Immémorial avait déclenché une onde de choc à travers tout le clan Ancien, et même à travers tout le Continent Xian Gang.
 
 La vaste mer séparant le clan Ancien du clan Céleste était devenue un gouffre immense, sans fin, exhalant une odeur de décomposition. Au centre de cette mer, une tempête grondait avec fracas.
 
@@ -28,7 +28,7 @@ Le Mont Gu Dao n'accorda aucune importance à la mort de l'Empereur de l'Ancien 
 
 À l'instar du clan Ancien, le clan Céleste envoya également un message aux soixante-douze continents, annonçant que le Royaume Divin Immémorial s'ouvrirait dans cinq cents ans. Ils devaient consacrer ces cinq siècles à l'entraînement des puissants sous leur autorité. Les Exaltés Empyréens et les Ascendants Empyréens étaient les plus enthousiastes. Le Royaume Divin Immémorial était pour eux comme la porte du dragon: une fois qu'ils y auraient acquis une fortune, ils deviendraient des Grands Empyréens!
 
-L'apparition du Royaume Divin Immémorial avait suscité une tempête sur le Continent Astral Immortel. Cependant, en raison de l'attente de cinq cents ans, cette agitation fut contenue, telle un courant sous-jacent — le calme avant la tempête.
+L'apparition du Royaume Divin Immémorial avait suscité une tempête sur le Continent Xian Gang. Cependant, en raison de l'attente de cinq cents ans, cette agitation fut contenue, telle un courant sous-jacent — le calme avant la tempête.
 
 Qu'ils soient membres du clan Ancien ou du clan Céleste, tous ceux qui se croyaient dignes d'entrer dans le Royaume Divin Immémorial ressentaient une pression écrasante. Ils pressentaient vaguement qu'au moment de l'ouverture du royaume, un événement grandiose se produirait.
 
@@ -38,7 +38,7 @@ Le clan Ancien se préparait... Le clan Céleste en faisait autant!
 
 Cinq cents ans, seulement cinq cents ans! Pour les mortels, les cultivateurs de bas niveau ou les membres subalternes des trois clans, cinq cents ans pouvaient sembler une éternité. Pourtant, pour les puissants, ce n'était qu'un battement de cils.
 
-Les signes de guerre se manifestaient à travers le Continent Astral Immortel en raison de l'émergence du Royaume Divin Immémorial. Dans un pays situé aux frontières de l'Ancien Dao et de l'Ancien Shi, c'était la saison des pluies. La pluie n'était pas torrentielle, mais elle semblait destinée à durer longtemps.
+Les signes de guerre se manifestaient à travers le Continent Xian Gang en raison de l'émergence du Royaume Divin Immémorial. Dans un pays situé aux frontières de l'Ancien Dao et de l'Ancien Shi, c'était la saison des pluies. La pluie n'était pas torrentielle, mais elle semblait destinée à durer longtemps.
 
 Sous la pluie, les cités de l'Ancien Dao demeuraient animées, tandis que la terre alentour restait paisible. La pluie tombait sur les feuilles avec un crépitement, puis sur le sol, s'accumulant en de petits ruisseaux.
 

@@ -30,7 +30,7 @@ S'il avait encore possédé un corps, il n'aurait pas eu peur, mais il n'était 
 
 Plus il observait les trois adversaires, plus son effroi grandissait. Sans même parler de son absence de corps physique, même s'il en avait eu un, il aurait dû fuir sans délai face à une telle puissance.
 
-Sa seule chance de combat résidait dans sa capacité à posséder avec succès le corps du Clan Ju Mo; il pourrait alors écarter l'un d'eux, utiliser la force de ce corps pour en affronter un deuxième, et enfin utiliser ses propres sorts contre le dernier. Pourtant, tout cela n'était qu'une chimère. L'homme en robe noire esquissa un sourire amer intérieurement et s'empressa de dire: « Cher compagnon cultivateur, je crains qu'il ne s'agisse d'un malentendu. Je viens de m'éveiller et mes propos ont pu vous offenser; j'espère que vous me pardonnerez. Si ce corps du Clan Ju Mo vous plaît, je peux vous l'offrir en gage d'amitié. »
+Sa seule chance de combat résidait dans sa capacité à posséder avec succès le corps du Clan Ju Mo; il pourrait alors écarter l'un d'eux, utiliser la force de ce corps pour en affronter un deuxième, et enfin utiliser ses propres sorts contre le dernier. Pourtant, tout cela n'était qu'une chimère. L'homme en robe noire esquissa un sourire amer intérieurement et s'empressa de dire: « Cher Daoïste, je crains qu'il ne s'agisse d'un malentendu. Je viens de m'éveiller et mes propos ont pu vous offenser; j'espère que vous me pardonnerez. Si ce corps du Clan Ju Mo vous plaît, je peux vous l'offrir en gage d'amitié. »
 
 Tout en parlant, il continuait de reculer.
 

@@ -84,7 +84,7 @@ Observant le ciel et la direction prise par Xuan Luo, Wang Lin resta pensif. Ses
 
 « Avant de partir, je dois aller voir mon Maître... » se dit-il.
 
-« Les Ponts du Piétinement des Cieux... je me demande si je peux atteindre le quatrième pont! Mais quoi qu'il advienne, mon temps au sein du clan Antique est terminé. Il reste encore 300 ans avant l'ouverture du Royaume Divin Immémorial. Je ne veux pas passer ce temps sur le Continent Astral Immortel, je veux rentrer chez moi... »
+« Les Ponts du Piétinement des Cieux... je me demande si je peux atteindre le quatrième pont! Mais quoi qu'il advienne, mon temps au sein du clan Antique est terminé. Il reste encore 300 ans avant l'ouverture du Royaume Divin Immémorial. Je ne veux pas passer ce temps sur le Continent Xian Gang, je veux rentrer chez moi... »
 
 « Je ramènerai Wan Er à la maison. » Wang Lin détourna les yeux du ciel et fit un pas en direction du palais.
 

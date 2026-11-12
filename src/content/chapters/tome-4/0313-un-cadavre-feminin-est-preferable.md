@@ -108,7 +108,7 @@ En entendant les paroles de Hongdie, le visage de Chi Hu devint immédiatement l
 
 Hongdie ricana et s'apprêtait à répliquer quand Wang Lin intervint soudainement: « Chi Hu, tu as dit plus tôt que cet endroit possédait une troisième couche? »
 
-Chi Hu fut surpris. Ses yeux s'illuminèrent et il répondit: « Le frère Ceng Niu a raison. Mon ancêtre Xi Zu avait mentionné l'existence possible d'une troisième couche. »
+Chi Hu fut surpris. Ses yeux s'illuminèrent et il répondit: « Le frère Zeng Niu a raison. Mon ancêtre Xi Zu avait mentionné l'existence possible d'une troisième couche. »
 
 Hongdie le moqua froidement: « Xi Zu? Ton Xi Zu disait aussi qu'il y avait des trésors dans la deuxième couche! »
 

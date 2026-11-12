@@ -1,6 +1,6 @@
 ---
 n: 1790
-title: "L'Empereur Dragon apparaît, le chemin vers le Continent Astral Immortel s'ouvre"
+title: "L'Empereur Dragon apparaît, le chemin vers le Continent Xian Gang s'ouvre"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1790 - The Dragon Emperor Appears, the Path to Immortal Astral Continent Opens
@@ -42,7 +42,7 @@ Dans le ciel, Wang Lin contempla les environs familiers et son cœur s'apaisa. I
 
 « Avec cette formation, à moins qu'un être comme le Souverain n'apparaisse, il n'y aura pas d'autre guerre entre les Royaumes Intérieur et Extérieur! Bien que plusieurs des Cinq Maîtres soient toujours en vie, ils sont tous gravement blessés. Avec Lanmeng Daozun et le Maître Nan Yunzi ici, il ne devrait y avoir aucun problème. J'ai encore d'autres réflexions à mener.
 
-« Le Général Oiseau Vermillon est parti, et si la première génération de l'Oiseau Vermillon de la Terre Déchue du Royaume Extérieur et le Général ont réellement un lien de clone, alors elle a nécessairement dû se dissiper aussi... Je me demande seulement si la deuxième génération et les autres sont toujours là... » Wang Lin mena silencieusement le groupe et quitta le Royaume Céleste.
+« Le Général Oiseau Vermillon est parti, et si la première génération de Suzaku de la Terre Déchue du Royaume Extérieur et le Général ont réellement un lien de clone, alors elle a nécessairement dû se dissiper aussi... Je me demande seulement si la deuxième génération et les autres sont toujours là... » Wang Lin mena silencieusement le groupe et quitta le Royaume Céleste.
 
 Il ne se dirigea pas vers la Terre Déchue.
 
@@ -50,9 +50,9 @@ Il ne se dirigea pas vers la Terre Déchue.
 
 « Il y avait aussi Chi Hunzi, que j'ai libéré... Et cette personne mystérieuse qui semblait scellée dans le Royaume Céleste du Vent et qui m'avait aidé lors de mon combat contre le Shui Daozi... Cette personne a quitté le Royaume Céleste du Vent par la suite. J'ignore où elle se trouve, mais peut-être sera-t-elle attirée par l'ouverture de la porte.
 
-« Tant de choses et tant de lieux restent inexpliqués... » Wang Lin ferma les yeux tout en avançant. Il mit de côté tous ces doutes et spéculations pour ne les affronter qu'une fois revenu du Continent Astral Immortel.
+« Tant de choses et tant de lieux restent inexpliqués... » Wang Lin ferma les yeux tout en avançant. Il mit de côté tous ces doutes et spéculations pour ne les affronter qu'une fois revenu du Continent Xian Gang.
 
-« Le Continent Astral Immortel n'est pas ma demeure, ma maison est ici... Ce départ est comme celui d'un enfant quittant son foyer. Un jour, je reviendrai! » Wang Lin ouvrit les yeux, et son regard brilla d'une lueur intense.
+« Le Continent Xian Gang n'est pas ma demeure, ma maison est ici... Ce départ est comme celui d'un enfant quittant son foyer. Un jour, je reviendrai! » Wang Lin ouvrit les yeux, et son regard brilla d'une lueur intense.
 
 « Si je ne suis pas mort à mon retour, je résoudrai tous ces mystères! » Avec son niveau de culture actuel, Wang Lin aurait pu explorer tout cela, mais il choisit de ne pas le faire. Il laissa ces mystères comme autant de souvenirs de sa patrie.
 
@@ -102,9 +102,9 @@ Plus étrange encore, l'extrémité de sa corne n'était pas pointue mais carré
 
 La tête seule mesurait près de dix mille pieds. À ce stade, seul le haut du corps était sorti. Le dragon tordit son corps dans un fracas de tonnerre; il semblait sur le point de sortir entièrement!
 
-« Ce dragon est l'une de mes neuf armes: l'Empereur Dragon! Il provient des terres sauvages de la périphérie orientale du Continent Astral Immortel! On y trouve d'innombrables bêtes féroces, et ce dragon était l'une des existences les plus souveraines!
+« Ce dragon est l'une de mes neuf armes: l'Empereur Dragon! Il provient des terres sauvages de la périphérie orientale du Continent Xian Gang! On y trouve d'innombrables bêtes féroces, et ce dragon était l'une des existences les plus souveraines!
 
-« Il possédait une culture au stade intermédiaire de la Tribulation du Vide. À l'époque, ce vieil homme l'a tué, a pris son âme, a raffiné son corps, en a extrait les os pour en faire une arme! Cette arme est un fouet. Ce vieil homme utilisera ce fouet pour cingler les lois du Continent Astral Immortel afin de créer une brèche vous permettant à tous de vous réincarner! » Tandis que la voix de Xuan Luo résonnait, sa main droite se tendit vers le dragon.
+« Il possédait une culture au stade intermédiaire de la Tribulation du Vide. À l'époque, ce vieil homme l'a tué, a pris son âme, a raffiné son corps, en a extrait les os pour en faire une arme! Cette arme est un fouet. Ce vieil homme utilisera ce fouet pour cingler les lois du Continent Xian Gang afin de créer une brèche vous permettant à tous de vous réincarner! » Tandis que la voix de Xuan Luo résonnait, sa main droite se tendit vers le dragon.
 
 Le dragon poussa un rugissement et son corps jaillit du vide. 20 000 pieds, 30 000 pieds, 50 000 pieds... jusqu'à atteindre des centaines de milliers de pieds de long. Il apparut devant Xuan Luo avant de se rétracter rapidement pour devenir un fouet draconique couleur sang d'environ 1 000 pieds de long!
 

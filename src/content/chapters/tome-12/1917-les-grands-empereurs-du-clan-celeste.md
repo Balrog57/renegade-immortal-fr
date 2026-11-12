@@ -54,15 +54,15 @@ C'étaient les cinq êtres les plus puissants des 72 continents célestes — le
 
 Les yeux de Wang Lin s'illuminèrent tandis qu'il analysait ces cinq Grands Empyréens. S'ils apprenaient sa véritable force, ils chercheraient certainement à le recruter.
 
-Une fois qu'il aurait le soutien d'un Grand Empyréen, le danger de son voyage vers la cité impériale serait bien moindre. Après tout, même si un Grand Empyréen voulait tuer un Exalté Empyréen sous les ordres d'un autre Grand Empyréen, il devrait en justifier la raison! C'était parce que les Exaltés Empyréens surpassaient les Exalté Dorés et étaient extrêmement rares sur le Continent Astral Immortel!
+Une fois qu'il aurait le soutien d'un Grand Empyréen, le danger de son voyage vers la cité impériale serait bien moindre. Après tout, même si un Grand Empyréen voulait tuer un Exalté Empyréen sous les ordres d'un autre Grand Empyréen, il devrait en justifier la raison! C'était parce que les Exaltés Empyréens surpassaient les Exalté Dorés et étaient extrêmement rares sur le Continent Xian Gang!
 
-Chaque Grand Empyréen avait moins de 100 Exaltés Empyréens sous ses ordres! Sur l'ensemble du Continent Astral Immortel, il n'y avait pas plus de 1 000 Exaltés Empyréens!
+Chaque Grand Empyréen avait moins de 100 Exaltés Empyréens sous ses ordres! Sur l'ensemble du Continent Xian Gang, il n'y avait pas plus de 1 000 Exaltés Empyréens!
 
 S'il ne s'agissait que de tuer un Exalté Empyréen, cela resterait gérable. Cependant, si la cible était un Ascendant Empyréen, aucun Grand Empyréen ne le permettrait!
 
-Car les Ascendants Empyréens étaient encore plus rares. Sur l'ensemble du Continent Astral Immortel, il n'en existait que 48!!!
+Car les Ascendants Empyréens étaient encore plus rares. Sur l'ensemble du Continent Xian Gang, il n'en existait que 48!!!
 
-La plupart d'entre eux étaient en culture recluse, cachés à travers le Continent Astral Immortel. Moins de 30 % d'entre eux servaient un Grand Empyréen.
+La plupart d'entre eux étaient en culture recluse, cachés à travers le Continent Xian Gang. Moins de 30 % d'entre eux servaient un Grand Empyréen.
 
 De telles figures étaient respectées même par les Grands Empyréens. Après tout, ils étaient les plus puissants sous la juridiction des Grands Empyréens! S'ils ne souhaitaient pas suivre un Grand Empyréen, ces derniers ne les contraindraient pas, à moins qu'ils ne soient comme Luo Yunhai de la Secte Da Hun, qui avait défié un Grand Empyréen.
 
@@ -82,7 +82,7 @@ Le clan céleste n'autoriserait absolument jamais un cultivateur comme lui à ap
 
 « Même les Grands Empyréens ne s'offusqueront pas du fait que je possède un corps du Clan Ancien et une culture céleste, tant qu'ils ne découvrent pas ma relation avec le Maître Xuan Luo! »
 
-Wang Lin était sur le Continent Astral Immortel depuis un certain temps désormais, et il comprenait vaguement qu'au fil des millénaires, les lignées anciennes et célestes s'étaient mélangées. Il existait des cultivateurs célestes dotés de corps du Clan Ancien, mais ils n'étaient pas reconnus par le Temple Ancien.
+Wang Lin était sur le Continent Xian Gang depuis un certain temps désormais, et il comprenait vaguement qu'au fil des millénaires, les lignées anciennes et célestes s'étaient mélangées. Il existait des cultivateurs célestes dotés de corps du Clan Ancien, mais ils n'étaient pas reconnus par le Temple Ancien.
 
 Par conséquent, le corps du Clan Ancien de Wang Lin pourrait paraître stupéfiant pour un cultivateur ordinaire, mais ne surprendrait guère les Grands Empyréens.
 

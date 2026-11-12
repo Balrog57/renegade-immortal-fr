@@ -136,7 +136,7 @@ Wang Lin esquissa un sourire amer, prêt à répliquer, quand soudain son expres
 
 « D'accord. Les méchants sont encore là? Ils sont tellement agaçants! » Zhou Ru hocha la tête et retourna à l'abri de la pagode avec son bol.
 
-Un an auparavant, de nombreux cultivateurs d'autres contrées étaient venus défier Ceng Niu.
+Un an auparavant, de nombreux cultivateurs d'autres contrées étaient venus défier Zeng Niu.
 
 Au début, Wang Lin les ignorait totalement. Grâce au domaine de la pagode, ils ne pouvaient même pas s'approcher. Pourtant, ils persistaient et se montraient de plus en plus agressifs, espionnant depuis les montagnes environnantes et agitant leurs trésors magiques.
 
@@ -148,4 +148,4 @@ Cependant, les provocateurs ne cessèrent jamais de venir. Parmi eux se trouvaie
 
 Depuis qu'il avait commencé à tuer, il ne faisait aucun quartier. Chaque challenger qui osait approcher était exécuté. Les gens finirent par cesser de le défier, mais quelques rares individus apparaissaient encore occasionnellement.
 
-Une voix glaciale s'éleva des montagnes: « Ceng Niu, Liao Fan du Pays Xue Yu est ici pour réclamer les trésors restants de l'éventail à plumes! »
+Une voix glaciale s'éleva des montagnes: « Zeng Niu, Liao Fan du Pays Xue Yu est ici pour réclamer les trésors restants de l'éventail à plumes! »

@@ -58,7 +58,7 @@ La Nuit Brisée qui commençait à se reformer s'effondra totalement. À cet ins
 
 Pourtant, en un instant, le monde entier sembla s'évanouir. La mer disparut, le soleil disparut, et même le ciel brisé s'effaça. Tout disparut sans laisser de trace, laissant place à la Terre Yao Ling!
 
-C'était comme si tout ce qui venait de se produire n'avait été qu'un rêve. Le ciel était toujours rouge, saturé de feu. Le cri de l'Oiseau Vermillon perçait les flammes et se rapprochait de plus en plus!
+C'était comme si tout ce qui venait de se produire n'avait été qu'un rêve. Le ciel était toujours rouge, saturé de feu. Le cri de Suzaku perçait les flammes et se rapprochait de plus en plus!
 
 Pourtant, les regards horrifiés de tous ceux qui se trouvaient au sol suffisaient à prouver que tout ce qui s'était passé était bien réel!
 
@@ -66,7 +66,7 @@ Tian Yunzi à la robe grise continua de se dissiper jusqu'à ne devenir qu'une i
 
 La Nuit Brisée avait tué trois personnes!
 
-Ces trois individus n'étaient pas ordinaires: c'étaient Maître du Vide et deux des avatars de Tian Yunzi! Même l'avatar à la robe grise était gravement blessé, ne conservant qu'un lambeau de sa volonté!
+Ces trois individus n'étaient pas ordinaires: c'étaient Xu Kongzi et deux des avatars de Tian Yunzi! Même l'avatar à la robe grise était gravement blessé, ne conservant qu'un lambeau de sa volonté!
 
 Ling Tianhou tremblait. Auparavant, il ne redoutait que Wang Lin. Bien que cette paume géante lui ait inspiré une certaine crainte, elle ne l'avait pas terrifié comme il l'était maintenant. Il n'aurait jamais imaginé que le sortilège de Wang Lin puisse atteindre une telle puissance!
 
@@ -114,4 +114,4 @@ Cependant, les expressions de ces personnes changèrent lorsque la cloche ne s'a
 
 Dong... Lorsque la cloche sonna pour la neuvième fois, un souffle de stupeur parcourut l'assistance avant que la terreur ne l'emporte!
 
-L'homme d'âge mûr qui siégeait dans la pièce secrète leva la tête, les yeux brûlants d'indignation. Son corps vacilla et il s'élança comme une tempête à travers le siège de l'Alliance. En un instant, il atteignit le lieu des jetons de vie; il fixa le jeton du Maître du Vide avant de lâcher un rugissement qui fit trembler les cieux!
+L'homme d'âge mûr qui siégeait dans la pièce secrète leva la tête, les yeux brûlants d'indignation. Son corps vacilla et il s'élança comme une tempête à travers le siège de l'Alliance. En un instant, il atteignit le lieu des jetons de vie; il fixa le jeton de Xu Kongzi avant de lâcher un rugissement qui fit trembler les cieux!

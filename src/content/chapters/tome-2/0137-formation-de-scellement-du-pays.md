@@ -24,7 +24,7 @@ Les trois cultivateurs de l'Âme Naissante de la Secte Shi Yin ne portaient aucu
 
 Leurs expressions étaient les plus indifférentes, comme si rien ne les intéressait. Si l'énergie spirituelle de Huo Fen n'avait pas été violente et impropre à leur récupération, ils n'auraient sans doute pas participé à cette migration.
 
-L'Ancêtre Song du Sanctuaire du Dieu de la Guerre roula des yeux et déclara: « Même les ancêtres n'auraient pu prédire une telle catastrophe. Et même s'ils l'avaient prévue, ils n'auraient pu rien y changer. Le fait d'avoir rassemblé la force de milliers d'années pour établir ici une formation de scellement du pays et nous laisser ce dernier fil d'espoir est déjà bien assez. Chers compagnons cultivateurs, commençons. »
+L'Ancêtre Song du Temple Zhan Shen roula des yeux et déclara: « Même les ancêtres n'auraient pu prédire une telle catastrophe. Et même s'ils l'avaient prévue, ils n'auraient pu rien y changer. Le fait d'avoir rassemblé la force de milliers d'années pour établir ici une formation de scellement du pays et nous laisser ce dernier fil d'espoir est déjà bien assez. Chers Daoïstes, commençons. »
 
 Une fois la parole donnée par l'Ancêtre Song, six cultivateurs de l'Âme Naissante, incluant le savant d'âge moyen et Feng Luan, se regroupèrent selon une formation précise et formèrent des sceaux complexes avec leurs mains.
 
@@ -36,7 +36,7 @@ Les grondements s'intensifièrent alors qu'une brume rouge toujours plus abondan
 
 À cet instant, les cultivateurs de l'Âme Naissante issus des familles de culture qui n'étaient pas encore intervenus affichèrent un air résigné. Chacun d'eux se frappa violemment le front d'une main pour libérer son Âme Naissante, qui s'éleva rapidement jusqu'à l'espace vide au centre de l'anneau, où elle hésita, n'osant avancer.
 
-Un cultivateur de la Secte Luo He cria: « Chers compagnons cultivateurs indépendants, si vous n'agissez pas maintenant, quand le ferez-vous? »
+Un cultivateur de la Secte Luo He cria: « Chers Daoïstes indépendants, si vous n'agissez pas maintenant, quand le ferez-vous? »
 
 L'une des Âmes Naissantes à l'intérieur de l'anneau répondit d'une voix perçante: « Soit! Chers compagnons, puisque les quatre grandes sectes nous offrent des Pilules de Restauration de l'Origine, ce n'est que cent ans d'énergie spirituelle que je perds! Je me jette dans la bataille! » Sur ces mots, l'Âme Naissante se retourna, forma des sceaux de ses deux mains et, avec un grondement sourd, se précipita dans l'anneau. Dès qu'elle y pénétra, elle disparut comme si elle s'y était entièrement fondue, ne faisant plus qu'un avec lui.
 
@@ -76,9 +76,9 @@ En un clin d'œil, plus de dix mille lueurs d'épée s'engouffrèrent dans Xuan 
 
 Des rayons de lumière dorée jaillirent de la montagne, formant un écran semi-circulaire qui bloqua à grand-peine la chute de la paume.
 
-Sous cet écran lumineux, des centaines, voire des milliers de cultivateurs regardaient le ciel avec effroi. Une vieille femme aux cheveux blancs s'avança et cria d'un ton sévère: « Compagnons cultivateurs de Huo Fen, que signifie tout cela? »
+Sous cet écran lumineux, des centaines, voire des milliers de cultivateurs regardaient le ciel avec effroi. Une vieille femme aux cheveux blancs s'avança et cria d'un ton sévère: « Daoïstes de Huo Fen, que signifie tout cela? »
 
-Yang Sen, du Sanctuaire du Dieu de la Guerre, fit un mouvement fluide et apparut au sommet de l'écran de lumière. Son expression était impassible alors qu'il tendit sa main droite. L'écran se fendit immédiatement sous la pression avant de voler en éclats.
+Yang Sen, du Temple Zhan Shen, fit un mouvement fluide et apparut au sommet de l'écran de lumière. Son expression était impassible alors qu'il tendit sa main droite. L'écran se fendit immédiatement sous la pression avant de voler en éclats.
 
 Les pupilles de la vieille femme se contractèrent. Elle fit volte-face et s'enfuit sans un mot, son corps disparaissant pour réapparaître à plus de 5 kilomètres de là. Cependant, des nuages se rassemblèrent devant elle, prenant la forme de Yang Sen. Il la fixa d'un regard glacial et, sans dire un mot, agita la main vers elle. La vieille femme poussa un cri strident, se frappa le front et libéra son Âme Naissante.
 
@@ -92,9 +92,9 @@ Laissons Yang Sen de côté: dès que l'écran lumineux de la montagne eut céd�
 
 Cette vaste montagne était désormais entièrement occupée par les quatre sectes. Plus de dix mille disciples se tenaient serrés sur la cime, et au-dessus d'eux flottaient dix-huit cultivateurs de l'Âme Naissante, Yang Sen non compris.
 
-Les yeux de l'Ancêtre Song du Sanctuaire du Dieu de la Guerre brillaient comme des éclairs. Sa voix, empreinte d'une intention meurtrière, tonna: « Ceci est une guerre sans bien ni mal. Si nous ne parvenons pas à établir un point d'appui à Xuan Wu d'ici trois mois, les bêtes de feu briseront la formation pour sortir. Les bêtes de feu ne sont pas effrayantes; ce qui est terrifiant, c'est de manquer d'énergie spirituelle pour cultiver! »
+Les yeux de l'Ancêtre Song du Temple Zhan Shen brillaient comme des éclairs. Sa voix, empreinte d'une intention meurtrière, tonna: « Ceci est une guerre sans bien ni mal. Si nous ne parvenons pas à établir un point d'appui à Xuan Wu d'ici trois mois, les bêtes de feu briseront la formation pour sortir. Les bêtes de feu ne sont pas effrayantes; ce qui est terrifiant, c'est de manquer d'énergie spirituelle pour cultiver! »
 
-« À compter de ce jour, le Sanctuaire du Dieu de la Guerre, la Secte Xie Mo, la Secte Luo He et la Secte Shi Yin forment l'Union Huo Fen. Chaque disciple de l'Union au stade de l'Établissement des Fondations recevra un trésor de niveau Formation du Noyau, et chaque disciple de la Formation du Noyau recevra un trésor de niveau Âme Naissante! »
+« À compter de ce jour, le Temple Zhan Shen, la Secte Xie Mo, la Secte Luo He et la Secte Shi Yin forment l'Union Huo Fen. Chaque disciple de l'Union au stade de l'Établissement des Fondations recevra un trésor de niveau Formation du Noyau, et chaque disciple de la Formation du Noyau recevra un trésor de niveau Âme Naissante! »
 
 « En temps de guerre, tout ce que vous saisirez vous appartiendra. L'Union ne vous le reprendra pas. Disciples, ceci est une guerre, mais je veux que vous la considériez comme une invasion... une invasion pour la survie! »
 

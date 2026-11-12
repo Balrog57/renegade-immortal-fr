@@ -70,19 +70,19 @@ Tout en réfléchissant, Wang Lin resta très calme et agita sa main droite. Des
 
 Dès l'apparition du feu, des cris déchirants retentirent et plus d'une dizaine de cultivateurs en vert apparurent. Leurs corps étaient consumés par un feu noir que même l'eau de mer ne pouvait éteindre. Ce feu était le Feu Éthéré, allumé par leur propre intention meurtrière!
 
-Wang Lin utilisait rarement le Feu Éthéré, et c'était la première fois qu'il s'en servait sur le Continent Astral Immortel! Mais il restait extrêmement puissant lorsqu'il était utilisé de manière inattendue. Ces cultivateurs n'étaient même pas au troisième stade. Ils n'étaient que des éclaireurs envoyés pour trouver Wang Lin, et ils n'avaient aucune chance de résister.
+Wang Lin utilisait rarement le Feu Éthéré, et c'était la première fois qu'il s'en servait sur le Continent Xian Gang! Mais il restait extrêmement puissant lorsqu'il était utilisé de manière inattendue. Ces cultivateurs n'étaient même pas au troisième stade. Ils n'étaient que des éclaireurs envoyés pour trouver Wang Lin, et ils n'avaient aucune chance de résister.
 
 Wang Lin s'apprêtait à jaillir de l'eau pour observer la restriction couvrant la Mer Dan. Cependant, son expression changea; il se retourna et regarda au loin.
 
 « Les trois... sont donc déjà là. » Un sourire apparut sur les lèvres de Wang Lin alors qu'il changeait de direction pour avancer.
 
-Des grondements tonitruants résonnèrent dans les profondeurs de la mer. Le Tigre Blanc cracha du sang tout en transportant la Tortue Noire et l'Oiseau Vermillon pour s'échapper rapidement. Le cultivateur nommé Qian se lécha les lèvres, affichant une expression féroce.
+Des grondements tonitruants résonnèrent dans les profondeurs de la mer. Le Tigre Blanc cracha du sang tout en transportant la Tortue Noire et Suzaku pour s'échapper rapidement. Le cultivateur nommé Qian se lécha les lèvres, affichant une expression féroce.
 
 « Ton corps est assez robuste; il serait peut-être judicieux de te transformer en marionnette. »
 
 « Vous trois avez une culture très intéressante. Selon les enquêtes de notre secte, vous n'êtes arrivés ici qu'il y a quelques décennies et vous n'appartenez à aucune secte. Pourquoi ne pas rejoindre ma Secte Wu Ji pour éviter la mort? » sourit le jeune homme au visage de jade blanc.
 
-Le visage du Tigre Blanc était livide. Il ne dit mot, fuyant comme un fou avec la Tortue Noire et l'Oiseau Vermillon qui étaient à l'agonie. Cependant, peu importait sa vitesse, il ne parvenait pas à prendre de distance face aux deux cultivateurs qui le traquaient.
+Le visage du Tigre Blanc était livide. Il ne dit mot, fuyant comme un fou avec la Tortue Noire et Suzaku qui étaient à l'agonie. Cependant, peu importait sa vitesse, il ne parvenait pas à prendre de distance face aux deux cultivateurs qui le traquaient.
 
 « Tigre Blanc, vous trois ne devriez pas être des inconnus. Pourquoi nos enquêtes sur vous sont-elles restées vierges durant les innombrables années précédant votre arrivée dans la Mer Dan... » dit lentement le jeune homme au visage de jade en pointant l'avant avec son éventail.
 
@@ -96,7 +96,7 @@ Un fracas de tonnerre retentit et le céleste s'effondra, mais le tigre blanc la
 
 Puisqu'il allait mourir, il allait partir avec éclat!
 
-« Général Oiseau Vermillon, l'un des quatre grands généraux de la Secte Qi Dao! » Derrière le Tigre Blanc, l'Oiseau Vermillon avait du sang coulant au coin de la bouche tout en fixant le jeune homme.
+« Général Oiseau Vermillon, l'un des quatre grands généraux de la Secte Qi Dao! » Derrière le Tigre Blanc, Suzaku avait du sang coulant au coin de la bouche tout en fixant le jeune homme.
 
 « Général Tortue Noire! » La Tortue Noire comprit également que leur fin était proche. Il soupira et ne cacha plus son identité.
 
@@ -108,11 +108,11 @@ Puisqu'il allait mourir, il allait partir avec éclat!
 
 En entendant le nom de « Souverain Céleste aux Sept Couleurs », le Tigre Blanc et ses compagnons se turent. Des expressions complexes se dessinèrent sur leurs visages.
 
-« Bien que le chef de secte soit mort, il reste encore une personne! S'il sort de sa retraite, il deviendra immédiatement célèbre dans tout le Continent Astral Immortel! » lança soudainement le Tigre Blanc.
+« Bien que le chef de secte soit mort, il reste encore une personne! S'il sort de sa retraite, il deviendra immédiatement célèbre dans tout le Continent Xian Gang! » lança soudainement le Tigre Blanc.
 
 L'Oiseau Vermillon et la Tortue Noire se regardèrent et acquiescèrent d'un signe de tête.
 
-« Célèbre dans tout le Continent Astral Immortel? Voilà qui est intéressant. Parles-tu de Yun Yifeng de la Secte Gui Yi, ou des quatre génies du Continent de l'Est? Drôle! » Le jeune homme au visage de jade éclata de rire en chargeant avec une intention meurtrière, suivi par le cultivateur nommé Qian!
+« Célèbre dans tout le Continent Xian Gang? Voilà qui est intéressant. Parles-tu de Yun Yifeng de la Secte Gui Yi, ou des quatre génies du Continent de l'Est? Drôle! » Le jeune homme au visage de jade éclata de rire en chargeant avec une intention meurtrière, suivi par le cultivateur nommé Qian!
 
 Mais alors qu'ils se rapprochaient et que le Tigre Blanc et ses compagnons s'apprêtaient à lutter jusqu'à la mort, une voix surgit comme un vent glacial.
 

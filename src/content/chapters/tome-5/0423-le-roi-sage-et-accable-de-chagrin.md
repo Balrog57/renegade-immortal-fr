@@ -23,7 +23,7 @@ Le sceau devant lui s'était effondré. Bien qu'il n'ait pas été blessé, son 
 
 Les neuf épées volantes disparurent pour redevenir des fragments d'âme.
 
-Du Tian contempla la scène et dit d'un ton amer: « Le Sceau Mystérieux de Suzaku! »
+Dun Tian contempla la scène et dit d'un ton amer: « Le Sceau Mystérieux de Suzaku! »
 
 Le Sceau Mystérieux de Suzaku est un sort que seule chaque génération de Suzaku peut apprendre. Il ne peut être cultivé; chaque Suzaku le découvre à partir des reliques du premier Suzaku, dans la tombe de celui-ci.
 
@@ -37,19 +37,19 @@ Nul ne sait comment l'Union de la Culture a réussi à créer ce sort. Sur une p
 
 La rumeur prétend que l'usage du Sceau Mystérieux de Suzaku exige un prix, mais seuls ceux qui ont appris le sort en connaissent la contrepartie. Le sceau que Zhu Quezi venait d'utiliser était celui de la défense.
 
-L'être de nuages se désintégra. Le visage de Du Tian était livide alors qu'il fixait Zhu Quezi, puis il éclata soudain d'un rire: « Mon espérance de vie est presque épuisée. Pouvoir voir un vieux voleur comme toi dans cet état est une véritable satisfaction! »
+L'être de nuages se désintégra. Le visage de Dun Tian était livide alors qu'il fixait Zhu Quezi, puis il éclata soudain d'un rire: « Mon espérance de vie est presque épuisée. Pouvoir voir un vieux voleur comme toi dans cet état est une véritable satisfaction! »
 
 L'expression de Zhu Quezi était affreuse et il haletait. Il n'aurait pas utilisé le Sceau Mystérieux de Suzaku s'il n'y avait pas été contraint, et il répugnait tout particulièrement à employer celui de l'attaque. Il devait conserver son état optimal pour la bataille contre le Clan Xian Yi.
 
-« Du Tian, votre Secte Lian Hun était autrefois une branche de Suzaku et il y a des dizaines de milliers d'années, vos ancêtres combattirent aux côtés de la première génération de Suzaku contre le Clan Xian Yi. Pourquoi vous montrer si obstiné aujourd'hui? Si vous me remettez l'étendard de l'âme, je vous aiderai à reconstruire la secte, je vous aiderai à rassembler des disciples et même à faire de la Secte Lian Hun un pays à part entière. »
+« Dun Tian, votre Secte Lian Hun était autrefois une branche de Suzaku et il y a des dizaines de milliers d'années, vos ancêtres combattirent aux côtés de la première génération de Suzaku contre le Clan Xian Yi. Pourquoi vous montrer si obstiné aujourd'hui? Si vous me remettez l'étendard de l'âme, je vous aiderai à reconstruire la secte, je vous aiderai à rassembler des disciples et même à faire de la Secte Lian Hun un pays à part entière. »
 
-Les yeux de Du Tian s'illuminèrent, puis il afficha un sourire malicieux. « Vieux voleur Zhuque, je vois clair dans ton jeu. Tu as peur d'être blessé; sinon, tu ne te serais pas retrouvé dans une position aussi embarrassante. La guerre avec le Clan Xian Yi a déjà commencé et tu n'es pas sur le champ de bataille pour la diriger; je crains que tu ne puisses pas rester ici bien longtemps. »
+Les yeux de Dun Tian s'illuminèrent, puis il afficha un sourire malicieux. « Vieux voleur Zhuque, je vois clair dans ton jeu. Tu as peur d'être blessé; sinon, tu ne te serais pas retrouvé dans une position aussi embarrassante. La guerre avec le Clan Xian Yi a déjà commencé et tu n'es pas sur le champ de bataille pour la diriger; je crains que tu ne puisses pas rester ici bien longtemps. »
 
-Zhu Quezi fronça les sourcils et dit froidement: « Bien que l'ancêtre à onze feuilles du Clan Xian Yi soit puissant, j'ai un atout dans ma manche. Une fois qu'il sera révélé, le Clan Xian Yi périra à coup sûr! Du Tian, je te le demande une dernière fois: remettras-tu l'étendard de l'âme? »
+Zhu Quezi fronça les sourcils et dit froidement: « Bien que l'ancêtre à onze feuilles du Clan Xian Yi soit puissant, j'ai un atout dans ma manche. Une fois qu'il sera révélé, le Clan Xian Yi périra à coup sûr! Dun Tian, je te le demande une dernière fois: remettras-tu l'étendard de l'âme? »
 
-Le regard de Du Tian devint glacial. Il prit une inspiration sifflante et agita la main. Une lumière dorée et pourpre commença à scintiller sur l'étendard, mais elle était instable.
+Le regard de Dun Tian devint glacial. Il prit une inspiration sifflante et agita la main. Une lumière dorée et pourpre commença à scintiller sur l'étendard, mais elle était instable.
 
-« Vieux voleur Zhuque, je te conseille de partir maintenant et de ne pas me forcer à faire apparaître la quatrième âme! » La voix de Du Tian était empreinte de détermination.
+« Vieux voleur Zhuque, je te conseille de partir maintenant et de ne pas me forcer à faire apparaître la quatrième âme! » La voix de Dun Tian était empreinte de détermination.
 
 L'expression de Zhu Quezi était déformée par l'amertume, mais il ricana intérieurement. Il attendait justement l'apparition de la quatrième âme. En réalité, ce qu'il convoitait depuis le début, c'était cette quatrième âme.
 
@@ -57,7 +57,7 @@ Chaque génération de Suzaku avait étudié la quatrième âme dans l'espoir de
 
 Après une courte réflexion, Zhu Quezi dit lentement: « J'ai lu les récits sur la puissance de la quatrième âme, mais je ne l'ai jamais vue de mes propres yeux. Profitant de cette occasion, je veux vraiment voir ce qui rend cette quatrième âme si spéciale! »
 
-Du Tian serra les dents et pointa son front de sa main gauche. Il en sortit une sphère de lumière blanche cristalline et la pressa rapidement sur l'étendard de l'âme. Le point doré et pourpre sur l'étendard s'envola brusquement.
+Dun Tian serra les dents et pointa son front de sa main gauche. Il en sortit une sphère de lumière blanche cristalline et la pressa rapidement sur l'étendard de l'âme. Le point doré et pourpre sur l'étendard s'envola brusquement.
 
 « Les hommes se répartissent en cinq éléments qui s'engendrent et se restreignent mutuellement et créent différents types de racines spirituelles. Posséder un élément signifie que l'on peut cultiver; en avoir deux signifie que l'on est intelligent; trois signifie que l'on a du talent; quatre signifie que l'on possède un talent sans égal; et cinq signifie que l'on est parfait.
 
@@ -69,7 +69,7 @@ Du Tian serra les dents et pointa son front de sa main gauche. Il en sortit une 
 
 Zhu Quezi déclara d'un ton solennel: « Âme de Triple Métal! »
 
-Du Tian laissa échapper un rire rauque. Ses yeux étaient ternes, car le dernier reste de sa force vitale venait d'être consommé pour invoquer la quatrième âme.
+Dun Tian laissa échapper un rire rauque. Ses yeux étaient ternes, car le dernier reste de sa force vitale venait d'être consommé pour invoquer la quatrième âme.
 
 La quatrième âme ne pouvait être invoquée par des moyens ordinaires; il fallait sacrifier sa propre force vitale pour l'appeler hors de l'étendard.
 
@@ -79,7 +79,7 @@ Cette aiguille n'était pas grande, à peine longue de quelques centimètres. El
 
 L'Âme de Triple Métal était la chose la plus dure du monde, capable de percer toute matière, et l'énergie d'âme qu'elle contenait pouvait même blesser les âmes originelles.
 
-Les yeux de Du Tian brillèrent et il cria: « Quatrième âme, tue! »
+Les yeux de Dun Tian brillèrent et il cria: « Quatrième âme, tue! »
 
 L'aiguille dorée et pourpre fulgura et disparut.
 
@@ -89,29 +89,29 @@ Au même instant, Zhu Quezi poussa un rugissement en pointant l'air de son index
 
 Dans un fracas, Zhu Quezi recula de trois pas. La lumière dorée et pourpre s'était à nouveau volatilisée sans laisser de trace, mais Zhu Quezi savait que la quatrième âme rôdait toujours.
 
-D'un ton glacial, il dit: « La quatrième âme est certes puissante! Mais Du Tian, si tu étais au début du stade Ascendant et que tu avais utilisé une énergie spirituelle céleste dépassant celle d'un cultivateur de la Transformation de l'Âme, tu serais capable de la rendre plus rapide et plus dévastatrice encore. Je prendrais la fuite sur-le-champ si tel était le cas. Cependant, si tu veux me tuer, la quatrième âme n'est pas assez rapide! »
+D'un ton glacial, il dit: « La quatrième âme est certes puissante! Mais Dun Tian, si tu étais au début du stade Ascendant et que tu avais utilisé une énergie spirituelle céleste dépassant celle d'un cultivateur de la Transformation de l'Âme, tu serais capable de la rendre plus rapide et plus dévastatrice encore. Je prendrais la fuite sur-le-champ si tel était le cas. Cependant, si tu veux me tuer, la quatrième âme n'est pas assez rapide! »
 
 Les paroles de Zhu Quezi étaient calculées. La quatrième âme qu'il voulait capturer n'était pas telle qu'elle se présentait. Il convoitait la quatrième âme dans un état bien plus puissant. La seule façon pour elle d'atteindre cette puissance était de dévorer une immense quantité de fragments d'âmes et d'âmes primaires.
 
-Il faut dire qu'en matière de ruse, Du Tian ne faisait pas le poids face à Zhu Quezi! Le dicton affirme que nul n'est plus sage qu'un souverain, et il ne ment pas. Il n'y avait là rien d'étonnant: la quatrième âme était convoitée depuis des générations par les Suzaku, qui avaient tout tenté pour la capturer.
+Il faut dire qu'en matière de ruse, Dun Tian ne faisait pas le poids face à Zhu Quezi! Le dicton affirme que nul n'est plus sage qu'un souverain, et il ne ment pas. Il n'y avait là rien d'étonnant: la quatrième âme était convoitée depuis des générations par les Suzaku, qui avaient tout tenté pour la capturer.
 
-Du Tian fixa Zhu Quezi et pointa plusieurs fois l'air de sa main droite; aussitôt, les fragments d'âmes qui flottaient alentour se brisèrent un à un.
+Dun Tian fixa Zhu Quezi et pointa plusieurs fois l'air de sa main droite; aussitôt, les fragments d'âmes qui flottaient alentour se brisèrent un à un.
 
 Leur disparition était étrange. À chaque flash de lumière pourpre, un fragment d'âme se désintégrait. Le processus était si rapide qu'en peu de temps, une grande partie des fragments s'était effondrée.
 
 La lumière pourpre devint de plus en plus fulgurante, jusqu'à ne former qu'une traînée violette.
 
-D'innombrables fragments d'âmes étaient absorbés par la quatrième âme. Du Tian n'avait plus le luxe de se soucier de ces fragments.
+D'innombrables fragments d'âmes étaient absorbés par la quatrième âme. Dun Tian n'avait plus le luxe de se soucier de ces fragments.
 
 Les yeux de Zhu Quezi s'illuminèrent. Il s'apprêtait à avancer quand il recula soudainement. Un trou de la taille d'une aiguille venait de percer sa main, et du sang frais s'en écoulait.
 
 À cet instant, davantage d'âmes furent dévorées. Parce que dix âmes primaires avaient été absorbées par la quatrième âme, sa vitesse avait atteint une célérité inimaginable.
 
-Le cœur de Du Tian se serra: un tiers des âmes de l'étendard de l'âme d'un milliard d'âmes venait d'être dévoré en un instant, ainsi que dix âmes primaires. L'étendard n'avait pas subi une telle perte depuis des dizaines de milliers d'années. Du Tian prit une profonde inspiration et hurla: « Quatrième âme, arrête! »
+Le cœur de Dun Tian se serra: un tiers des âmes de l'étendard de l'âme d'un milliard d'âmes venait d'être dévoré en un instant, ainsi que dix âmes primaires. L'étendard n'avait pas subi une telle perte depuis des dizaines de milliers d'années. Dun Tian prit une profonde inspiration et hurla: « Quatrième âme, arrête! »
 
 La lueur dorée et pourpre marqua une pause dans son bourdonnement, puis fonça vers Zhu Quezi.
 
-Zhu Quezi soupira. Il voulait attendre que la quatrième âme ait dévoré tous les fragments avant d'utiliser la méthode conçue par les anciens Suzaku pour la capturer. Malheureusement, Du Tian l'avait empêchée de continuer son festin. Zhu Quezi ne pouvait plus rien dire sans risquer de révéler ses intentions.
+Zhu Quezi soupira. Il voulait attendre que la quatrième âme ait dévoré tous les fragments avant d'utiliser la méthode conçue par les anciens Suzaku pour la capturer. Malheureusement, Dun Tian l'avait empêchée de continuer son festin. Zhu Quezi ne pouvait plus rien dire sans risquer de révéler ses intentions.
 
 Zhu Quezi continua de reculer tout en pointant l'air devant lui. Une série de claquements secs retentit, forçant Zhu Quezi à battre en retraite encore plus vite. De nombreuses blessures punctiformes apparurent sur son corps, laissant couler le sang.
 
@@ -129,9 +129,9 @@ Au sein de l'océan de flammes, l'aiguille dorée et pourpre apparut et vira au 
 
 À ce moment, la quatrième âme se mit à tournoyer frénétiquement, créant une bourrasque qui fendit la mer de feu.
 
-« Âme, échappe-toi! » cria Du Tian. L'aiguille dorée et pourpre disparut pour foncer vers Zhu Quezi.
+« Âme, échappe-toi! » cria Dun Tian. L'aiguille dorée et pourpre disparut pour foncer vers Zhu Quezi.
 
-Les yeux de Zhu Quezi brillèrent de joie. Il éclata de rire: « Du Tian, puisque tu refuses de me remettre l'étendard de l'âme, je n'insisterai pas pour le prendre, mais je repartirai avec cette quatrième âme! »
+Les yeux de Zhu Quezi brillèrent de joie. Il éclata de rire: « Dun Tian, puisque tu refuses de me remettre l'étendard de l'âme, je n'insisterai pas pour le prendre, mais je repartirai avec cette quatrième âme! »
 
 Zhu Quezi frappa son sac de rangement et en sortit un morceau de boue noire. Il cracha du sang sur la substance, d'où s'échappa une volute de gaz noir.
 
@@ -145,9 +145,9 @@ Dès que le symbole disparut, un éclair doré et pourpre jaillit et l'aiguille 
 
 Zhu Quezi tendit la main et captura la quatrième âme. À cet instant précis, le temps reprit son cours.
 
-Zhu Quezi fit un pas en avant, le visage empreint d'une férocité sauvage, et tendit la main vers Du Tian.
+Zhu Quezi fit un pas en avant, le visage empreint d'une férocité sauvage, et tendit la main vers Dun Tian.
 
-Du Tian poussa un soupir. Il se retourna pour contempler la grotte dévastée par les flammes et ferma les yeux.
+Dun Tian poussa un soupir. Il se retourna pour contempler la grotte dévastée par les flammes et ferma les yeux.
 
 Mais alors que Zhu Quezi s'avançait, un rire sombre retentit depuis l'emplacement de la grotte où se trouvait Wang Lin.
 

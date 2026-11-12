@@ -36,7 +36,7 @@ L'expression de Wang Lin était singulière alors qu'il hochait de nouveau la t�
 
 « Par conséquent, non seulement tu connais le nom de ce vieil homme, mais tu connais même mon identité? » Le sourire de Xuan Luo s'élargit. Il s'était caché aux côtés de Wang Lin pendant longtemps et son humeur était excellente. Un sentiment indescriptible l'habitait, mêlé à un certain regret, car il aurait aimé que Wang Lin le découvre un peu plus tard.
 
-Wang Lin réfléchit un instant avant de prendre la parole: « L'un des neuf soleils du Continent Astral Immortel, le Grand Empyréen Dao Antique! » Lorsqu'il avait découvert cela via l'âme de l'avatar, une immense vague de choc avait déferlé dans son cœur. Cependant, il l'avait parfaitement dissimulée, si bien que personne n'avait rien remarqué.
+Wang Lin réfléchit un instant avant de prendre la parole: « L'un des neuf soleils du Continent Xian Gang, le Grand Empyréen Dao Antique! » Lorsqu'il avait découvert cela via l'âme de l'avatar, une immense vague de choc avait déferlé dans son cœur. Cependant, il l'avait parfaitement dissimulée, si bien que personne n'avait rien remarqué.
 
 Wang Lin regarda Xuan Luo et poursuivit lentement: « La raison pour laquelle les cultivateurs de la Planète des Cinq Éléments ont renoncé à la lutte pour la troisième âme est due à vous, Senior. Ils sont même venus en aide à ce Junior grâce à vous. Ce Junior vous en est reconnaissant. »
 
@@ -46,7 +46,7 @@ Il appréciait d'autant plus que, bien que Wang Lin sache sa présence, celui-ci
 
 Xuan Luo n'hésita plus: il prendrait Wang Lin pour son unique disciple.
 
-« Suis-moi pour retourner dans les terres du Clan Dao Antique, sur le Continent Astral Immortel. Deviens mon seul disciple et protège le Clan Dao Antique. Petit camarade, y consens-tu? » Xuan Luo regarda Wang Lin avec un regard bienveillant. Sa voix n'était pas exigeante, mais portait le ton d'un aîné discutant avec son cadet.
+« Suis-moi pour retourner dans les terres du Clan Dao Antique, sur le Continent Xian Gang. Deviens mon seul disciple et protège le Clan Dao Antique. Petit camarade, y consens-tu? » Xuan Luo regarda Wang Lin avec un regard bienveillant. Sa voix n'était pas exigeante, mais portait le ton d'un aîné discutant avec son cadet.
 
 Cette expression et ce ton insufflèrent une sensation de chaleur dans le cœur de Wang Lin. Pourtant, Wang Lin ne donna pas son accord immédiatement et se mit à réfléchir.
 
@@ -54,17 +54,17 @@ Xuan Luo observait Wang Lin depuis longtemps et le comprenait assez bien. En voy
 
 Il fronça les sourcils et regarda la porte dorée avec un soupir. Son mécontentement ne visait pas Wang Lin, mais ce qu'il imaginait être les préoccupations de ce dernier.
 
-« Il existe de nombreux mondes des grottes sur le Continent Astral Immortel. On peut dire que toute secte d'importance possède son propre monde des grottes. Cependant, depuis l'Antiquité, rares sont les êtres capables de sortir de ces mondes, et encore moins ceux qui parviennent à se retourner contre leur maître et à prendre sa place! »
+« Il existe de nombreux mondes des grottes sur le Continent Xian Gang. On peut dire que toute secte d'importance possède son propre monde des grottes. Cependant, depuis l'Antiquité, rares sont les êtres capables de sortir de ces mondes, et encore moins ceux qui parviennent à se retourner contre leur maître et à prendre sa place! »
 
 S'il n'avait pas été pour le fait que l'âme du Souverain Céleste aux Sept Couleurs avait été brisée, il n'aurait pas été scellé. Xuan Luo regarda Wang Lin et reprit:
 
-« Sais-tu pourquoi? C’est à cause de la loi du Continent Astral Immortel! Si les êtres vivant dans les mondes des grottes ne possèdent pas une lignée issue du Continent Astral Immortel, ils ne peuvent franchir cette loi. Bien qu'il s'agisse d'une loi, elle agit comme une pression colossale séparant les mondes des grottes. Toute vie sans la lignée appropriée est écrasée dès qu'elle tente de quitter son monde! » La voix antique de Xuan Luo résonna.
+« Sais-tu pourquoi? C’est à cause de la loi du Continent Xian Gang! Si les êtres vivant dans les mondes des grottes ne possèdent pas une lignée issue du Continent Xian Gang, ils ne peuvent franchir cette loi. Bien qu'il s'agisse d'une loi, elle agit comme une pression colossale séparant les mondes des grottes. Toute vie sans la lignée appropriée est écrasée dès qu'elle tente de quitter son monde! » La voix antique de Xuan Luo résonna.
 
-« Cette loi du Continent Astral Immortel est irrésistible! Je comprends tes pensées: tu ne veux pas partir seul. Tu souhaites que tous les autres puissent aussi partir et découvrir le Continent Astral Immortel! » soupira Xuan Luo.
+« Cette loi du Continent Xian Gang est irrésistible! Je comprends tes pensées: tu ne veux pas partir seul. Tu souhaites que tous les autres puissent aussi partir et découvrir le Continent Xian Gang! » soupira Xuan Luo.
 
 Wang Lin réfléchit un instant et dit doucement: « S'ils ne veulent pas partir, ce Junior ne les forcera pas; mais s'ils le souhaitent, alors ce Junior a effectivement cette intention en tête. »
 
-« C'est impossible! Passe encore pour toi, mais la femme nommée Wan Er que tu as vue dans ton art des rêves ne pourra jamais aller sur le Continent Astral Immortel! » À ces mots, Wang Lin leva brusquement la tête.
+« C'est impossible! Passe encore pour toi, mais la femme nommée Wan Er que tu as vue dans ton art des rêves ne pourra jamais aller sur le Continent Xian Gang! » À ces mots, Wang Lin leva brusquement la tête.
 
 « Elle non plus? »
 
@@ -72,15 +72,15 @@ Xuan Luo afficha une expression complexe. Il savait à quel point cette femme é
 
 Wang Lin resta pétrifié un long moment.
 
-« Pourtant... quelqu'un m'a dit autrefois que s'il y avait quelqu'un sur le Continent Astral Immortel pour m'accueillir, cela réduirait la puissance de la loi... »
+« Pourtant... quelqu'un m'a dit autrefois que s'il y avait quelqu'un sur le Continent Xian Gang pour m'accueillir, cela réduirait la puissance de la loi... »
 
-« Celui qui t'a dit cela t'a menti! C'est impossible, à moins que les neuf soleils n'agissent simultanément pour résister à la loi suprême du Continent Astral Immortel! Cette loi a été forgée par le lignage de l'Ancêtre Céleste et de l'Ancêtre Ancien; elle est immuable! »
+« Celui qui t'a dit cela t'a menti! C'est impossible, à moins que les neuf soleils n'agissent simultanément pour résister à la loi suprême du Continent Xian Gang! Cette loi a été forgée par le lignage de l'Ancêtre Céleste et de l'Ancêtre Ancien; elle est immuable! »
 
 Le visage de Wang Lin devint livide, comme si tout son sang s'était retiré. Il recula en titubant, et la dernière trace de vie sembla s'échapper du coin de sa bouche sous forme d'un filet de sang. La lueur dans ses yeux s'éteignit instantanément, tandis qu'une douleur lancinante née du désespoir lui transperçait le cœur.
 
-« J'ai examiné la femme nommée Wan Er. Il est très étrange que son âme soit incomplète. Une partie semble avoir disparu; j'ai inspecté l'intégralité du monde des grottes pour toi, mais sans aucun résultat. C’est une affaire mystérieuse. Cependant, quoi qu'il arrive, tant que son âme sera incomplète, elle ne pourra être réveillée. Si elle était entière, je pourrais peut-être la ranimer! Tu peux d'abord te rendre toi-même sur le Continent Astral Immortel. Plus tard, quand tu auras l'occasion de retrouver l'âme manquante, tu pourras revenir... » Xuan Luo s'interrompit. Il voyait bien que des larmes de sang emplissaient les yeux de Wang Lin.
+« J'ai examiné la femme nommée Wan Er. Il est très étrange que son âme soit incomplète. Une partie semble avoir disparu; j'ai inspecté l'intégralité du monde des grottes pour toi, mais sans aucun résultat. C’est une affaire mystérieuse. Cependant, quoi qu'il arrive, tant que son âme sera incomplète, elle ne pourra être réveillée. Si elle était entière, je pourrais peut-être la ranimer! Tu peux d'abord te rendre toi-même sur le Continent Xian Gang. Plus tard, quand tu auras l'occasion de retrouver l'âme manquante, tu pourras revenir... » Xuan Luo s'interrompit. Il voyait bien que des larmes de sang emplissaient les yeux de Wang Lin.
 
-« C’est vraiment... impossible... » Wang Lin baissa amèrement la tête. « Je n'abandonnerai pas Wan Er ici seule pour partir vers le Continent Astral Immortel par mes propres moyens... La raison pour laquelle je voulais ouvrir cette porte était pour elle! Afin de la réveiller, j'avais initialement pensé l'emmener avec moi pour chercher une occasion de la réveiller sur le Continent Astral Immortel... Si elle ne peut pas y aller et que je pars seul pour des milliers d'années... Si elle ne peut pas me suivre, autant rester dans ce monde des grottes et n'en jamais sortir avant la mort... » murmura Wang Lin, alors que ses larmes, teintées de rouge, coulaient sur son visage.
+« C’est vraiment... impossible... » Wang Lin baissa amèrement la tête. « Je n'abandonnerai pas Wan Er ici seule pour partir vers le Continent Xian Gang par mes propres moyens... La raison pour laquelle je voulais ouvrir cette porte était pour elle! Afin de la réveiller, j'avais initialement pensé l'emmener avec moi pour chercher une occasion de la réveiller sur le Continent Xian Gang... Si elle ne peut pas y aller et que je pars seul pour des milliers d'années... Si elle ne peut pas me suivre, autant rester dans ce monde des grottes et n'en jamais sortir avant la mort... » murmura Wang Lin, alors que ses larmes, teintées de rouge, coulaient sur son visage.
 
 Si l'âme est en peine, l'esprit est en peine; si tout votre être est noyé dans le désespoir, ce sont des larmes de sang qui coulent.
 
@@ -88,8 +88,8 @@ Les paroles de Wang Lin parvinrent aux oreilles de Lanmeng Daozun. Il écoutait 
 
 Xuan Luo regarda Wang Lin. Après un long silence, il poussa un soupir et prit soudain la parole.
 
-« Wang Lin, ce n'est pas impossible! Ce vieil homme déploiera toute sa puissance pour t'aider à lutter contre la loi du Continent Astral Immortel en utilisant le Sort de Réincarnation Solaire Céleste. Tous tes amis qui souhaitent quitter le monde des grottes seront réincarnés sur le Continent Astral Immortel grâce à mon sort! Après leur réincarnation, ils deviendront des habitants du Continent et obtiendront une lignée. Cependant, leurs souvenirs seront scellés; tu devras les retrouver un par un pour restaurer leur mémoire! »
+« Wang Lin, ce n'est pas impossible! Ce vieil homme déploiera toute sa puissance pour t'aider à lutter contre la loi du Continent Xian Gang en utilisant le Sort de Réincarnation Solaire Céleste. Tous tes amis qui souhaitent quitter le monde des grottes seront réincarnés sur le Continent Xian Gang grâce à mon sort! Après leur réincarnation, ils deviendront des habitants du Continent et obtiendront une lignée. Cependant, leurs souvenirs seront scellés; tu devras les retrouver un par un pour restaurer leur mémoire! »
 
-« Ce processus pourrait être très long. Ce vieil homme ne peut en calculer la durée exacte. Certains n'auront besoin que de quelques années, d'autres pourraient mettre jusqu'à mille ans. De plus, je ne peux déterminer leur lieu de réincarnation. Le Continent Astral Immortel est bien trop vaste. Tu devras être prêt et déterminé à les chercher un à un! Quant à la femme nommée Wan Er... Son âme étant incomplète, elle ne peut être réincarnée... Mais ce vieil homme t'aidera aussi pour cela. Pendant que je résisterai à la loi du Continent Astral Immortel, tu auras 50 % de chances de l'emmener en toute sécurité sur le Continent! Cependant, la chance n'est que de 50 %! Si tu échoues, tu mourras avec elle! Dis-moi ton choix! » Xuan Luo devrait payer un prix immense pour cela, mais il l'annonça sans aucune hésitation.
+« Ce processus pourrait être très long. Ce vieil homme ne peut en calculer la durée exacte. Certains n'auront besoin que de quelques années, d'autres pourraient mettre jusqu'à mille ans. De plus, je ne peux déterminer leur lieu de réincarnation. Le Continent Xian Gang est bien trop vaste. Tu devras être prêt et déterminé à les chercher un à un! Quant à la femme nommée Wan Er... Son âme étant incomplète, elle ne peut être réincarnée... Mais ce vieil homme t'aidera aussi pour cela. Pendant que je résisterai à la loi du Continent Xian Gang, tu auras 50 % de chances de l'emmener en toute sécurité sur le Continent! Cependant, la chance n'est que de 50 %! Si tu échoues, tu mourras avec elle! Dis-moi ton choix! » Xuan Luo devrait payer un prix immense pour cela, mais il l'annonça sans aucune hésitation.
 
 Il n'y a pas d'aide gratuite dans ce monde, et Wang Lin le savait. Seule la mise en pratique diffère selon les individus, comme ce fut le cas pour Dun Tian autrefois et Xuan Luo aujourd'hui. Bien qu'ils agissent selon leurs propres desseins, le cœur de Wang Lin ne ressentait aucune froideur, mais une chaleur humaine. Et Wang Lin, qui accordait une grande valeur aux bienfaits reçus, méritait que Dun Tian autrefois et Xuan Luo aujourd'hui agissent ainsi.

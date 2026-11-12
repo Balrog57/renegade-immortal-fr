@@ -94,7 +94,7 @@ L'Ascendant Empyréen Ming Dao réfléchit silencieusement et, un instant plus t
 
 Un rire sembla résonner, et la voix reprit:
 
-« Il ne peut pas franchir le douzième palais. Son armure d'âme de Taureau Céleste rencontrera le Taureau Céleste au douzième palais! Laissez les autres se disputer cet homme, cet Empereur n'y porte aucun intérêt... » Alors qu'il parlait, il s'interrompit brusquement. Des ondulations parcoururent le trône de dragon et un homme d'âge mûr, ressemblant étrangement à l'Ancêtre Céleste, apparut.
+« Il ne peut pas franchir le douzième palais. Son armure d'âme de Tian Niu rencontrera le Tian Niu au douzième palais! Laissez les autres se disputer cet homme, cet Empereur n'y porte aucun intérêt... » Alors qu'il parlait, il s'interrompit brusquement. Des ondulations parcoururent le trône de dragon et un homme d'âge mûr, ressemblant étrangement à l'Ancêtre Céleste, apparut.
 
 Une pointe de choc se lut dans ses yeux alors qu'il contemplait l'illusion dans le palais. Le douzième palais de l'illusion explosa soudainement dans une lumière dorée aveuglante!
 
@@ -114,7 +114,7 @@ Mais l'homme d'âge mûr en robe dorée restait figé devant l'illusion, plongé
 
 Au même moment, sur le Mont Di, le vieil homme se leva, les yeux brillant d'une lueur étrange. Cependant, après avoir hésité, il se rassit lentement.
 
-« Je l'ai déjà vu une fois, et cet enfant possède l'armure d'âme de Taureau Céleste... Franchir le douzième palais grâce à la puissance de l'armure signifie qu'il ne peut toujours pas égaler l'Ascendant Empyréen Ming Dao... À moins qu'il ne puisse franchir le treizième palais avec cette armure... alors il ne sera qu'un simple Ascendant Empyréen. » Le vieil homme réfléchit en se rasseyant et en fermant les yeux.
+« Je l'ai déjà vu une fois, et cet enfant possède l'armure d'âme de Tian Niu... Franchir le douzième palais grâce à la puissance de l'armure signifie qu'il ne peut toujours pas égaler l'Ascendant Empyréen Ming Dao... À moins qu'il ne puisse franchir le treizième palais avec cette armure... alors il ne sera qu'un simple Ascendant Empyréen. » Le vieil homme réfléchit en se rasseyant et en fermant les yeux.
 
 « Ah, un os de poulet... vraiment un os de poulet... Dois-je le recruter ou non... Il ne devrait pas pouvoir briser le treizième palais et devrait abandonner... Hein! » Le vieil homme ouvrit brusquement les yeux. Il vit Wang Lin devant le douzième palais, entouré d'une couche invisible de vapeur d'eau. La pression générée par les ondulations pouvait être ressentie jusqu'à sa feuille d'automne.
 

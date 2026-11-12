@@ -28,7 +28,7 @@ Wang Lin resta calme et laissa le rocher absorber son Sens Divin. Lorsqu'il fini
 
 « C'est... » Wang Lin vit que ce petit rocher renfermait un espace immense. Il semblait que chaque petit trou constituait un espace indépendant.
 
-« Ceci est un fragment de pierre spatiale... C'est mon premier cadeau pour toi... Je sais que tu viens de quitter le Monde des Grottes pour le Continent Astral Immortel, et que tu rencontreras certainement des difficultés pour ouvrir ton espace de stockage. En sacrifiant une poche d'espace au sein de cette pierre, tu pourras extraire un objet de ton espace de stockage sans l'endommager. Cependant, cela ne pourra se faire qu'une seule fois; sinon, l'amas spatial deviendra instable et s'effondrera. » Une voix antique émana de la pierre spatiale.
+« Ceci est un fragment de pierre spatiale... C'est mon premier cadeau pour toi... Je sais que tu viens de quitter le Monde des Grottes pour le Continent Xian Gang, et que tu rencontreras certainement des difficultés pour ouvrir ton espace de stockage. En sacrifiant une poche d'espace au sein de cette pierre, tu pourras extraire un objet de ton espace de stockage sans l'endommager. Cependant, cela ne pourra se faire qu'une seule fois; sinon, l'amas spatial deviendra instable et s'effondrera. » Une voix antique émana de la pierre spatiale.
 
 « Ce n'est là qu'une des fonctions de cette pierre. Elle possède un autre rôle: nourrir un Dao Céleste... Je sais que tu possèdes un Dao Céleste incomplet. Nourris-le ici, et il deviendra peu à peu complet... »
 
@@ -42,7 +42,7 @@ Sans agir de manière imprudente, il mit la pierre de côté. Son regard se posa
 
 Fixant ce jade de brume, Wang Lin fronça les sourcils. Il tendit la main et le jade vola dans sa paume. À l'instant où il le toucha, cette voix antique réapparut dans son esprit.
 
-« Voici le deuxième cadeau que j'ai préparé pour toi... Ce jade a été formé par toute une vie de culture du Dao de l'Œil de l'Âme. Il peut te permettre de percevoir les changements du Continent Astral Immortel une fois, ou bien diviner une chose pour toi... »
+« Voici le deuxième cadeau que j'ai préparé pour toi... Ce jade a été formé par toute une vie de culture du Dao de l'Œil de l'Âme. Il peut te permettre de percevoir les changements du Continent Xian Gang une fois, ou bien diviner une chose pour toi... »
 
 « Mais une seule fois... »
 
@@ -94,7 +94,7 @@ Tenant la goutte d'essence, Wang Lin y projeta son Sens Divin. Après une inspec
 
 « Si j'en ai la capacité, je protégerai la Secte Da Hun à l'avenir! » Alors que les paroles de Wang Lin résonnaient, un coup de tonnerre fit trembler l'extérieur de la Secte Da Hun.
 
-Tandis que le grondement se propageait, de nombreux cultivateurs furent ébranlés. L'Ancien Taureau Vert se redressa brusquement, les yeux grands ouverts. Son cœur fut secoué et ses pupilles se contractèrent alors qu'il fixait l'orage tonitruant au-dehors.
+Tandis que le grondement se propageait, de nombreux cultivateurs furent ébranlés. L'Ancien Qing Niu se redressa brusquement, les yeux grands ouverts. Son cœur fut secoué et ses pupilles se contractèrent alors qu'il fixait l'orage tonitruant au-dehors.
 
 « Premier Ancêtre... »
 

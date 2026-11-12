@@ -47,7 +47,7 @@ Le vieil homme qui ressemblait à une montagne de chair ouvrit soudainement les 
 
 Quant au vieil homme en robe noire et blanche assis sur une gourde, il laissa échapper un sourire inattendu. Cependant, une lueur spectrale passa dans ses yeux, rendant impossible toute lecture de ses pensées.
 
-« La marque de l'Oiseau Vermillon! » La femme d'âge moyen fut surprise et scruta attentivement Wang Lin.
+« La marque de Suzaku! » La femme d'âge moyen fut surprise et scruta attentivement Wang Lin.
 
 Si ces vieux monstres étaient ainsi affectés, il n'était pas nécessaire de mentionner les cultivateurs environnants. Beaucoup d'entre eux ne pouvaient percevoir le niveau de culture de Wang Lin, mais ils ressentaient tous une pression émanant de son corps. La femme en rose observa Wang Lin avec ses beaux yeux, laissant transparaître une pointe d'intérêt.
 
@@ -60,7 +60,7 @@ Un homme d'âge moyen derrière Ling Tianhou le pointa du doigt et s'écria: « 
 
 Wang Lin esquissa un sourire, mais ses yeux étaient aussi froids que la glace. Il regarda froidement l'homme et dit calmement: « Ancien Ling Tianhou, ce disciple a-t-il les qualifications pour me parler de la sorte? »
 
-L'expression de Ling Tianhou devint extrêmement sombre alors qu'il fixait la marque entre les sourcils de Wang Lin. Bien qu'il craignît quelque peu la marque de l'Oiseau Vermillon, ce qui le stupéfiait véritablement, c'étaient les deux autres puissances situées entre les sourcils du jeune homme.
+L'expression de Ling Tianhou devint extrêmement sombre alors qu'il fixait la marque entre les sourcils de Wang Lin. Bien qu'il craignît quelque peu la marque de Suzaku, ce qui le stupéfiait véritablement, c'étaient les deux autres puissances situées entre les sourcils du jeune homme.
 
 « Quelle fortune Wang Lin a-t-il rencontrée durant ces centaines d'années? C'est comme s'il était né de nouveau! »
 

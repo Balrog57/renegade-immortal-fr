@@ -38,7 +38,7 @@ Avec son niveau de culture actuel, il était incapable de franchir cette étape.
 
 « Il avait la foi qu'il pouvait se transformer en monde, et à cause de cette foi, je ne pouvais quitter le clan Ancien. Peut-être que dans l'esprit de l'Ancêtre Ancien, la terre des célestes n'était pas un monde qu'il avait formé, mais un lieu qu'il détestait. »
 
-« Ma foi consiste à croire que le ciel ne peut occulter mes yeux, que la terre est incapable d'entraver mon corps, que le soleil, la lune et tout le Continent Astral Immortel sont incapables d'égarer mon cœur! »
+« Ma foi consiste à croire que le ciel ne peut occulter mes yeux, que la terre est incapable d'entraver mon corps, que le soleil, la lune et tout le Continent Xian Gang sont incapables d'égarer mon cœur! »
 
 « Avec un Ciel de Dao, mon cœur est le dao, mon dao piétine les cieux, les cieux deviennent des marches, et je piétine les cieux pour regarder au loin!! » Après avoir parlé, Gu Dao agita les mains vers le ciel.
 
@@ -112,13 +112,13 @@ Wang Lin leva la tête. Ce qu'il regardait n'était pas le pied géant qui sembl
 
 « Avatar du vide, descends complètement et fusionne avec moi! » Ce qui lui manquait, c'était de naître du vide et d'être reconnu par celui-ci, tout comme l'Ancêtre Céleste et l'Ancêtre Ancien.
 
-Dans le vide du Continent Astral Immortel, saturé de lois, se trouvait un immense rocher rond. À l'intérieur du rocher siégeait une figure qui était là depuis des centaines d'années, presque un millénaire.
+Dans le vide du Continent Xian Gang, saturé de lois, se trouvait un immense rocher rond. À l'intérieur du rocher siégeait une figure qui était là depuis des centaines d'années, presque un millénaire.
 
 À cet instant, il sembla entendre un appel et ouvrit les yeux. Ses yeux brillaient d'un éclat intense et il ressemblait trait pour trait à Wang Lin. Il était l'avatar de Wang Lin dans le vide.
 
 Lorsqu'il ouvrit les yeux, le rocher dans lequel il se trouvait vola en éclats dans toutes les directions, comme une coquille d'œuf. La figure se leva, fit un pas en avant et disparut sans laisser de trace.
 
-Sur le Continent Astral Immortel, dans la vaste cuvette près de la tempête marine, alors que la voix de Wang Lin résonnait, une personne sortit du vortex céleste.
+Sur le Continent Xian Gang, dans la vaste cuvette près de la tempête marine, alors que la voix de Wang Lin résonnait, une personne sortit du vortex céleste.
 
 Cette personne fit un troisième pas. Gu Dao fut stupéfait en voyant cet individu s'avancer vers Wang Lin. Leurs corps se superposèrent alors et fusionnèrent.
 

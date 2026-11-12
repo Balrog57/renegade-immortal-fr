@@ -88,17 +88,17 @@ La belle femme dit doucement: « J'étais autrefois la première concubine du So
 
 « Puisque vous savez déjà qu'il ne s'agit que d'un monde caverneux, il n'est pas nécessaire de vous cacher quoi que ce soit. Le Souverain Céleste aux Sept Couleurs a tenté de s'emparer d'un trésor alors que deux des neuf soleils étaient en plein combat. Il a utilisé des méthodes ignobles en utilisant ma sœur comme appât pour saisir sa chance. Puis, il est revenu et a scellé la Secte Qi Dao. »
 
-« Dès notre arrivée ici, je n'ai pu croire aucun habitant du Continent Astral Immortel, et j'ai été blessée par le Souverain Céleste aux Sept Couleurs. Ma culture ne s'est toujours pas rétablie et je n'avais personne avec qui coopérer jusqu'à votre apparition. Il n'y a aucun conflit d'intérêts entre nous, nous pouvons agir ensemble! »
+« Dès notre arrivée ici, je n'ai pu croire aucun habitant du Continent Xian Gang, et j'ai été blessée par le Souverain Céleste aux Sept Couleurs. Ma culture ne s'est toujours pas rétablie et je n'avais personne avec qui coopérer jusqu'à votre apparition. Il n'y a aucun conflit d'intérêts entre nous, nous pouvons agir ensemble! »
 
 La femme poursuivit d'une voix douce:
 
-« Vous voulez emmener les cultivateurs natifs vers le Continent Astral Immortel, et je vous aiderai dans cette entreprise! Le Continent Astral Immortel est un lieu mystérieux. Il est trop vaste et les guerres y sont constantes; la paix y est rare entre les diverses sectes. Si vous voulez y établir une assise, il vous faut une secte! »
+« Vous voulez emmener les cultivateurs natifs vers le Continent Xian Gang, et je vous aiderai dans cette entreprise! Le Continent Xian Gang est un lieu mystérieux. Il est trop vaste et les guerres y sont constantes; la paix y est rare entre les diverses sectes. Si vous voulez y établir une assise, il vous faut une secte! »
 
-« Chaque zone prospère a déjà été revendiquée. Pour être honnête, avec votre niveau de culture actuel, vous ne pourrez conquérir aucune secte existante! Quant au monde caverneux, tout ici n'est qu'une illusion. Il serait juste de dire que toutes les vies ici sont en réalité factices... Au fil des âges, j'ai rarement entendu parler de personnes sortant des divers mondes caverneux des sectes à travers le Continent Astral Immortel. Je préfère vous prévenir dès maintenant. »
+« Chaque zone prospère a déjà été revendiquée. Pour être honnête, avec votre niveau de culture actuel, vous ne pourrez conquérir aucune secte existante! Quant au monde caverneux, tout ici n'est qu'une illusion. Il serait juste de dire que toutes les vies ici sont en réalité factices... Au fil des âges, j'ai rarement entendu parler de personnes sortant des divers mondes caverneux des sectes à travers le Continent Xian Gang. Je préfère vous prévenir dès maintenant. »
 
 Wang Lin réfléchit silencieusement, écoutant ses paroles.
 
-« Cependant, ce n'est pas impossible. Lorsque vous rejoindrez le Continent Astral Immortel, vous devrez payer un prix exorbitant et subir la sentence de la Loi Astrale Immortelle. J'en sais peu sur ce sujet, mais on dit que seul en atteignant le stade de la Tribulation du Vide dans le monde caverneux pourriez-vous espérer y survivre. Cependant, je peux également vous aider pour cela! » dit la femme en fixant Wang Lin.
+« Cependant, ce n'est pas impossible. Lorsque vous rejoindrez le Continent Xian Gang, vous devrez payer un prix exorbitant et subir la sentence de la Loi Astrale Immortelle. J'en sais peu sur ce sujet, mais on dit que seul en atteignant le stade de la Tribulation du Vide dans le monde caverneux pourriez-vous espérer y survivre. Cependant, je peux également vous aider pour cela! » dit la femme en fixant Wang Lin.
 
 « Je vous écoute », répondit Wang Lin d'un ton calme, sans la moindre émotion apparente. En voyant cela, la femme ne put s'empêcher de manifester une pointe d'admiration.
 
@@ -106,9 +106,9 @@ Après un moment de réflexion, elle ajouta soudainement: « Ma sœur aînée n'
 
 Les yeux de Wang Lin se plissèrent, mais il garda le silence.
 
-« Elle n'est pas ici, elle est dans le Continent Astral Immortel! Obtenir une secte là-bas est extrêmement difficile, mais si vous tuez le Souverain Céleste aux Sept Couleurs, la Secte Qi Dao sera à vous! Ma sœur et moi n'en voulons pas. En réalité, nous ne sommes pas membres de la Secte Qi Dao, mais des disciples centraux de la Secte Da Hun, l'une des neuf sectes et treize portes de l'est du Continent Astral Immortel. À l'époque, nous étions aveugles et avons suivi le Souverain Céleste aux Sept Couleurs... » La femme serra les dents, le visage marqué par la rancœur.
+« Elle n'est pas ici, elle est dans le Continent Xian Gang! Obtenir une secte là-bas est extrêmement difficile, mais si vous tuez le Souverain Céleste aux Sept Couleurs, la Secte Qi Dao sera à vous! Ma sœur et moi n'en voulons pas. En réalité, nous ne sommes pas membres de la Secte Qi Dao, mais des disciples centraux de la Secte Da Hun, l'une des neuf sectes et treize portes de l'est du Continent Xian Gang. À l'époque, nous étions aveugles et avons suivi le Souverain Céleste aux Sept Couleurs... » La femme serra les dents, le visage marqué par la rancœur.
 
-« Même après avoir pris possession de la Secte Qi Dao, si vous souhaitez poursuivre votre culture, nous pourrons vous introduire dans la Secte Da Hun! Quant à la sentence liée à votre entrée sur le Continent Astral Immortel, je demanderai à ma sœur d'en référer à Maître. Si Maître vous accueille personnellement sur le Continent Astral Immortel, la sentence sera atténuée. »
+« Même après avoir pris possession de la Secte Qi Dao, si vous souhaitez poursuivre votre culture, nous pourrons vous introduire dans la Secte Da Hun! Quant à la sentence liée à votre entrée sur le Continent Xian Gang, je demanderai à ma sœur d'en référer à Maître. Si Maître vous accueille personnellement sur le Continent Xian Gang, la sentence sera atténuée. »
 
 Wang Lin pesait chaque mot. Un instant plus tard, il demanda lentement:
 

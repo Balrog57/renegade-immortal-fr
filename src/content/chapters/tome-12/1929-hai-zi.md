@@ -22,7 +22,7 @@ Lorsque Wang Lin toucha terre, plusieurs Exaltés Empyréens environnants lui so
 
 Wang Lin esquissa un doux sourire et leur rendit leurs salutations respectives, les mains jointes.
 
-« Chers compagnons cultivateurs, j'ai encore des affaires importantes à régler, je dois donc partir. Si l'occasion se présente dans le futur, je reviendrai! » Wang Lin se changea en un rayon de lumière et s'élança vers la matrice de transfert par laquelle il était apparu. Son corps se mua en brume et disparut.
+« Chers Daoïstes, j'ai encore des affaires importantes à régler, je dois donc partir. Si l'occasion se présente dans le futur, je reviendrai! » Wang Lin se changea en un rayon de lumière et s'élança vers la matrice de transfert par laquelle il était apparu. Son corps se mua en brume et disparut.
 
 Ce n'est qu'après sa disparition que les Exaltés Empyréens environnants détournèrent le regard. Ceux qui se connaissaient commencèrent à discuter.
 
@@ -56,7 +56,7 @@ Le dragon marin doré était extrêmement rapide. Il ne resta pas en l'air mais 
 
 Il laissa échapper une série de hurlements aigus qui déchirèrent le silence de la nuit.
 
-« L'armure d'âme du Taureau Céleste ne peut être utilisée longtemps. Même maintenant, elle ne tient pas plus d'une heure. L'Exalté Empyréen Hai Zi est très puissante, mais avec mon armure d'âme et mon Art Magique Rapide, il lui sera impossible de me vaincre! Cependant, je ne peux pas la battre en peu de temps. C'est pourquoi je dois agir ainsi! » Les yeux de Wang Lin s'illuminèrent et le dragon marin plongea encore plus profondément dans les abysses de la Mer Shan Hai.
+« L'armure d'âme du Tian Niu ne peut être utilisée longtemps. Même maintenant, elle ne tient pas plus d'une heure. L'Exalté Empyréen Hai Zi est très puissante, mais avec mon armure d'âme et mon Art Magique Rapide, il lui sera impossible de me vaincre! Cependant, je ne peux pas la battre en peu de temps. C'est pourquoi je dois agir ainsi! » Les yeux de Wang Lin s'illuminèrent et le dragon marin plongea encore plus profondément dans les abysses de la Mer Shan Hai.
 
 Les fluctuations qu'il provoquait créaient un vortex gigantesque, et ses rugissements faisaient vibrer l'océan. D'innombrables créatures marines, ébranlées par la puissance du dragon, reculèrent toutes, n'osant aucunement s'approcher.
 
@@ -82,9 +82,9 @@ La femme releva le menton et lança un regard glacial à Wang Lin avant de le po
 
 Sur ces mots, le monde changea de couleur et la mer rugit alors que soixante-dix vortex apparaissaient entre elle et Wang Lin. Chaque vortex contenait l'un de ses sorts. Elle commença par son attaque la plus puissante, voulant manifestement forcer Wang Lin à reculer d'un seul coup!
 
-L'expression de Wang Lin resta sereine. Au moment où la femme leva son doigt semblable au jade, une faible lueur parcourut son visage. Le tatouage du Taureau Céleste qu'il avait longtemps dissimulé apparut et couvrit bientôt tout son corps.
+L'expression de Wang Lin resta sereine. Au moment où la femme leva son doigt semblable au jade, une faible lueur parcourut son visage. Le tatouage du Tian Niu qu'il avait longtemps dissimulé apparut et couvrit bientôt tout son corps.
 
-L'armure d'âme du Taureau Céleste réapparaissait après plus de cinquante ans!
+L'armure d'âme du Tian Niu réapparaissait après plus de cinquante ans!
 
 Dès que l'armure prit forme, l'aura de culture de Wang Lin déferla. Il sauta du dos du dragon marin et fixa l'Exalté Empyréen Hai Zi, qui fut stupéfaite par cette apparition.
 

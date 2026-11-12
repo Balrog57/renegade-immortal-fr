@@ -46,7 +46,7 @@ Hormis le bassin d'eau, tout ce qui l'entourait avait muté.
 
 « Si cet endroit n'a jamais changé, alors ce qui a changé, c'est le Souverain Céleste aux Sept Couleurs! » Wang Lin songea silencieusement.
 
-Lorsqu'il avait pénétré pour la première fois dans la Secte Dong Lin sur le Continent Astral Immortel — et non dans le rêve — une brume s'était levée dans son esprit. Il avait alors commencé à remettre en question sa compréhension du monde de la grotte.
+Lorsqu'il avait pénétré pour la première fois dans la Secte Dong Lin sur le Continent Xian Gang — et non dans le rêve — une brume s'était levée dans son esprit. Il avait alors commencé à remettre en question sa compréhension du monde de la grotte.
 
 « Est-ce que je contrôle vraiment tout ce qui se trouve dans le monde de la grotte... L'aura de Tian Yunzi, ces tablettes de pierre... Les faux souvenirs du Souverain Céleste aux Sept Couleurs... Quel secret se cache derrière tout cela? »
 
@@ -60,13 +60,13 @@ En voyant son image aux cheveux blancs et à la robe blanche, son corps trembla.
 
 « Une chose était très étrange. J'avais émis des hypothèses à ce sujet... À propos de ma Perle Défiante du Ciel. Comment le Souverain Céleste aux Sept Couleurs a-t-il pu dérober la Perle Défiante du Ciel pendant le combat du Grand Empyréen Dao Yi et de mon Maître, sans attirer leur attention... »
 
-« Pourquoi est-ce que, dans le monde de la grotte, Lan Meng et les autres, y compris le Daoïste aux Sept Couleurs, pouvaient voir que je possédais la Perle Défiante du Ciel... alors que sur le Continent Astral Immortel, même à présent, personne ne l'a remarqué... »
+« Pourquoi est-ce que, dans le monde de la grotte, Lanmeng et les autres, y compris le Daoïste aux Sept Couleurs, pouvaient voir que je possédais la Perle Défiante du Ciel... alors que sur le Continent Xian Gang, même à présent, personne ne l'a remarqué... »
 
 « Pourquoi mon propre Maître, Xuan Luo, n'a-t-il rien vu lorsqu'il s'est rendu dans le monde de la grotte? Peut-être l'avait-il décelée sans pour autant parler? »
 
 « Si c'est réellement le cas, j'ai également rencontré le Grand Empyréen Dao Yi. Pourquoi n'a-t-il rien dit et n'a-t-il pas tenté de la voler... Je crois plutôt qu'ils ne l'ont pas vue! »
 
-« Que représente exactement la Perle Défiante du Ciel? Qui a créé la boussole qui lui est destinée, et quelle est sa fonction... Pourquoi certains dans le monde de la grotte peuvent-ils voir que je la possède, alors que personne sur le Continent Astral Immortel n'en est capable... »
+« Que représente exactement la Perle Défiante du Ciel? Qui a créé la boussole qui lui est destinée, et quelle est sa fonction... Pourquoi certains dans le monde de la grotte peuvent-ils voir que je la possède, alors que personne sur le Continent Xian Gang n'en est capable... »
 
 « Lorsque j'ai absorbé l'âme du scorpion, celui-ci a murmuré "perle blanche"... Perle blanche... Cela signifie-t-il qu'il existe une perle noire? Que contient-elle? »
 

@@ -20,7 +20,7 @@ Tout se produisit en un instant. Au moment où la hache descendit, le système s
 
 Le général du Dragon Azure était le plus proche. Instantanément, sa lignée céleste s'éveilla et un Dragon Azure de 100 000 pieds de long se matérialisa autour de lui. Il chargea vers la hache en rugissant!
 
-Simultanément, la Tortue Noire, l'Oiseau Vermillon et le Tigre Blanc poussèrent tous des rugissements. Trois ombres gigantesques surgirent autour de Wang Lin. Le Tigre Blanc colossal, l'Oiseau Vermillon semblable à une flamme et la Tortue Noire soulevant d'immenses vagues de terre se précipitèrent vers lui.
+Simultanément, la Tortue Noire, Suzaku et le Tigre Blanc poussèrent tous des rugissements. Trois ombres gigantesques surgirent autour de Wang Lin. Le Tigre Blanc colossal, Suzaku semblable à une flamme et la Tortue Noire soulevant d'immenses vagues de terre se précipitèrent vers lui.
 
 L'expression de Wang Lin demeura sereine. Il allait faire ressentir la douleur à ces anciens célestes et leur donner une leçon mémorable. Il ne chercha pas à esquiver, mais son pouvoir du Dao Antique satura son corps pour former le Corps Antique Immortel!
 
@@ -80,7 +80,7 @@ Une fois le chaos passé, le système stellaire semblait inchangé et aucune tra
 
 Dans son esprit, ce qui dominait n'était plus seulement la terreur, mais surtout le désarroi. Aux yeux du général, Wang Lin était devenu une existence terrifiante qui dominait tout!
 
-Les généraux du Tigre Blanc et de l'Oiseau Vermillon restèrent pétrifiés, comme si un sort de paralysie les avait frappés.
+Les généraux du Tigre Blanc et de Suzaku restèrent pétrifiés, comme si un sort de paralysie les avait frappés.
 
 « J'ai en fait porté mon regard sur le Dao Céleste... »
 « Pas étonnant que je n'aie pu détecter son aura, pas étonnant... »
@@ -109,7 +109,7 @@ Wang Lin, assis sur la Bête des Limbes, flottait vers le Kun Xu. Bien qu'il par
 
 « Les Neuf Mystères Sanguins sont enfin complets. Avec cette force sanguine, je peux faire apparaître la voie de la réincarnation et retrouver la troisième âme qui s'y était réfugiée autrefois... Elle doit se trouver dans le Kun Xu. »
 
-Sur le Continent Astral Immortel, dans une région appartenant aux célestes, se dressait un entrelacs de montagnes. La zone était couverte d'une forêt dense, tel un territoire sauvage et indompté.
+Sur le Continent Xian Gang, dans une région appartenant aux célestes, se dressait un entrelacs de montagnes. La zone était couverte d'une forêt dense, tel un territoire sauvage et indompté.
 
 La nuit était tombée, et la lumière des étoiles se répandait sur la terre. Mais le silence n'était pas de mise; les rugissements de bêtes féroces résonnaient depuis l'épaisseur du bois.
 

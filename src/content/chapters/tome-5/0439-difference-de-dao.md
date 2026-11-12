@@ -30,7 +30,7 @@ Wang Lin se frotta le menton et rit: « Se pourrait-il que tu aies rencontré un
 
 Les yeux de Situ Nan s'écarquillèrent et il dit: « C'est exact. Moins de trois ans plus tard, un certain cultivateur de l'Âme Naissante a décidé qu'il voulait l'une de mes cultivatrices de l'Établissement des Fondations pour en faire une fournaise de culture. Ce vieux ne pouvait pas le vaincre et a dû fuir. Cette fois, j'ai cultivé jusqu'au stade avancé de l'Âme Naissante avant de sortir de ma culture en vase clos. »
 
-« Après cela, je suis allé dans des pays de culture de rang 3, tour à tour prince et profitant de toutes les beautés. À cette époque, beaucoup de compagnons de culture étaient très jaloux de moi! »
+« Après cela, je suis allé dans des pays de culture de rang 3, tour à tour prince et profitant de toutes les beautés. À cette époque, beaucoup de Daoïstes étaient très jaloux de moi! »
 
 Wang Lin rit bruyamment et demanda: « Et que s'est-il passé ensuite? Est-ce que tu as rencontré un cultivateur de la Formation de l'Âme? »
 

@@ -46,9 +46,9 @@ La forme de la plateforme était irrégulière, comme si elle faisait partie d'u
 
 La plateforme était vide, mais entourée d'une barrière invisible empêchant toute intrusion.
 
-Cette barrière était entièrement formée par les lois du Continent Astral Immortel. Sans parler de Wang Lin, même Xuan Luo aurait eu du mal à briser cette barrière pour y pénétrer.
+Cette barrière était entièrement formée par les lois du Continent Xian Gang. Sans parler de Wang Lin, même Xuan Luo aurait eu du mal à briser cette barrière pour y pénétrer.
 
-Seuls l'Ancêtre Céleste, l'Ancêtre Ancien et les neuf bêtes étranges qui les accompagnaient, nées des lois du Continent Astral Immortel, pouvaient franchir ce rempart.
+Seuls l'Ancêtre Céleste, l'Ancêtre Ancien et les neuf bêtes étranges qui les accompagnaient, nées des lois du Continent Xian Gang, pouvaient franchir ce rempart.
 
 Dans ses souvenirs flous, le Roi Moustique se rappelait que ses ancêtres étaient nés sur une plateforme ronde semblable à celle-ci... Ainsi, dès que son maître entrerait sur une telle plateforme, il s'éveillerait certainement!
 
@@ -72,17 +72,17 @@ Toutefois, l'intérieur de la barrière refusait tout ce qui provenait de l'ext�
 
 Son corps montra immédiatement des signes de dissipation et rétrécit de plus de moitié. Cependant, grâce à sa protection, bien qu'une grande partie du sang se fût évaporée, une parcelle parvint tout de même à atterrir sur la plateforme circulaire!
 
-Pour la toute première fois, une goutte de sang qui n'avait pas été formée par les lois du Continent Astral Immortel touchait cette plateforme! Plus important encore, cela se produisait après l'apparition de la lumière blanche sur le corps de Wang Lin suite à sa mort ou son sommeil.
+Pour la toute première fois, une goutte de sang qui n'avait pas été formée par les lois du Continent Xian Gang touchait cette plateforme! Plus important encore, cela se produisait après l'apparition de la lumière blanche sur le corps de Wang Lin suite à sa mort ou son sommeil.
 
 C'est précisément parce que tout cela advint qu'il obtint la plus grande fortune de ses plus de 2 000 ans de culture. Cette fortune était suffisante pour ébranler les cieux!
 
-Cette plateforme se situait dans le vide du Continent Astral Immortel. Peu de gens pouvaient atteindre ce vide, et la plupart de ceux qui tentaient l'aventure mouraient ou s'égaraient. La position de la plateforme n'était pas fixe; elle était en mouvement perpétuel. Si le Roi Moustique n'avait pas eu ces souvenirs vagues après ses métamorphoses, il aurait été presque impossible de la trouver, même en cherchant pendant des éternités.
+Cette plateforme se situait dans le vide du Continent Xian Gang. Peu de gens pouvaient atteindre ce vide, et la plupart de ceux qui tentaient l'aventure mouraient ou s'égaraient. La position de la plateforme n'était pas fixe; elle était en mouvement perpétuel. Si le Roi Moustique n'avait pas eu ces souvenirs vagues après ses métamorphoses, il aurait été presque impossible de la trouver, même en cherchant pendant des éternités.
 
-Ces deux conditions étaient déjà extrêmement difficiles à réunir, et très peu y parvenaient. De plus, la plateforme rejetait tout ce qui n'était pas issu des lois du Continent Astral Immortel. C'était comme une faille béante rendant l'accès encore plus ardu.
+Ces deux conditions étaient déjà extrêmement difficiles à réunir, et très peu y parvenaient. De plus, la plateforme rejetait tout ce qui n'était pas issu des lois du Continent Xian Gang. C'était comme une faille béante rendant l'accès encore plus ardu.
 
 À moins d'être comme le Roi Moustique, qui tentait désespérément au péril de sa vie, l'accomplissement était quasi impossible. Faire en sorte qu'une bête moustique, qui ne reconnaît presque jamais de maître, accomplisse un tel acte était une véritable providence!
 
-Cependant, ce n'étaient pas là les seules conditions. La condition finale exigeait que la personne soit morte ou endormie, et que la lumière blanche apparaisse! Cette lueur faisait en fait partie des lois du Continent Astral Immortel. Elle ne se manifestait que sur les cadavres de très rares individus après leur trépas!
+Cependant, ce n'étaient pas là les seules conditions. La condition finale exigeait que la personne soit morte ou endormie, et que la lumière blanche apparaisse! Cette lueur faisait en fait partie des lois du Continent Xian Gang. Elle ne se manifestait que sur les cadavres de très rares individus après leur trépas!
 
 Nul ne connaissait les conditions spécifiques permettant cette apparition!
 

@@ -10,15 +10,15 @@ slug: ciel-dor-terre-noire
 
 L'apparition de ce sceau fit instantanément bouillir le nouveau sang qui coulait dans ses veines.
 
-À l'origine, la puissance de son lignage et celle de l'Ordre Antique étaient parvenues à un équilibre. Bien que la puissance de l'Ordre Antique fût réprimée, elle ne pouvait être détruite.
+À l'origine, la puissance de son lignage et celle de Dao Gu étaient parvenues à un équilibre. Bien que la puissance de Dao Gu fût réprimée, elle ne pouvait être détruite.
 
-Cependant, l'apparition de cette marque agit comme un signal de guerre. La puissance de son lignage monta soudainement en flèche, tentant de briser la puissance de l'Ordre Antique.
+Cependant, l'apparition de cette marque agit comme un signal de guerre. La puissance de son lignage monta soudainement en flèche, tentant de briser la puissance de Dao Gu.
 
-En conséquence, la puissance de l'Ordre Antique, jusque-là réprimée, éclata dans une contre-attaque furieuse. Le corps de Wang Lin devint alors le champ de bataille d'un combat entre la vie et la mort!
+En conséquence, la puissance de Dao Gu, jusque-là réprimée, éclata dans une contre-attaque furieuse. Le corps de Wang Lin devint alors le champ de bataille d'un combat entre la vie et la mort!
 
-La puissance de son sang était une étrangère qui venait tout juste de fusionner avec lui, contrairement à la puissance de l'Ordre Antique qui l'avait accompagné durant presque toute sa vie. La lutte acharnée entre les deux atteignit un degré terrifiant.
+La puissance de son sang était une étrangère qui venait tout juste de fusionner avec lui, contrairement à la puissance de Dao Gu qui l'avait accompagné durant presque toute sa vie. La lutte acharnée entre les deux atteignit un degré terrifiant.
 
-L'une des étoiles entre les sourcils de Wang Lin s'effondra; une vague de puissance de l'Ordre Antique pénétra dans son corps, et celui-ci se rétablit rapidement.
+L'une des étoiles entre les sourcils de Wang Lin s'effondra; une vague de puissance de Dao Gu pénétra dans son corps, et celui-ci se rétablit rapidement.
 
 Pourtant, au moment même où il récupérait, la marque entre ses sourcils libéra une force colossale, provoquant l'effondrement total du corps de Wang Lin!
 
@@ -30,21 +30,21 @@ Dès que l'origine céleste apparut, toute la chair et le sang dispersés se ras
 
 Cependant, à l'instant où ce corps se manifesta, il trembla et s'effondra de nouveau, emportant avec lui une autre étoile entre les sourcils de Wang Lin!
 
-Le corps céleste se brisa et, tandis que la chair et le sang éclaboussaient tout autour, une puissante vague d'énergie de l'Ordre Antique surgit. La chair et le sang se rassemblèrent promptement pour donner naissance à un Dieu Ancien de 10 000 pieds!
+Le corps céleste se brisa et, tandis que la chair et le sang éclaboussaient tout autour, une puissante vague d'énergie de Dao Gu surgit. La chair et le sang se rassemblèrent promptement pour donner naissance à un Dieu Ancien de 10 000 pieds!
 
 Mais avant même que le corps du Dieu Ancien ne puisse se stabiliser, il s'effondra une fois de plus!
 
-Wang Lin subissait une douleur inimaginable. Sa puissance de l'Ordre Antique étant limitée, pour affronter ce corps céleste elle avait besoin que ses étoiles soient brisées!
+Wang Lin subissait une douleur inimaginable. Sa puissance de Dao Gu étant limitée, pour affronter ce corps céleste elle avait besoin que ses étoiles soient brisées!
 
 Il n'avait plus le choix: la puissance du Dieu Ancien en lui allait se transformer en une tempête capable de tout dévaster. Il sentait que si ce moment venait, il mourrait sans l'ombre d'un doute!
 
 Il devait maintenir l'équilibre et les faire fusionner. Autrement, cette chance providentielle se transformerait en une calamité mortelle!
 
-La septième étoile s'effondra et la septième conversion céleste eut lieu. Désormais, les sept étoiles étaient brisées, et tout cela s'était produit en un instant! Chaque étoile brisée augmentait considérablement la puissance de l'Ordre Antique en lui. Après la destruction des sept étoiles, la puissance de l'Ordre Antique au sein de Wang Lin était capable de faire trembler les cieux!
+La septième étoile s'effondra et la septième conversion céleste eut lieu. Désormais, les sept étoiles étaient brisées, et tout cela s'était produit en un instant! Chaque étoile brisée augmentait considérablement la puissance de Dao Gu en lui. Après la destruction des sept étoiles, la puissance de Dao Gu au sein de Wang Lin était capable de faire trembler les cieux!
 
 À ce moment précis, le huitième cycle commença!
 
-Ce que Wang Lin brisa fut le vortex qui ne s'était pas encore transformé en étoile. Un grondement de tonnerre résonna et son corps oscilla rapidement entre l'Ordre Antique et la nature céleste pour la huitième fois!
+Ce que Wang Lin brisa fut le vortex qui ne s'était pas encore transformé en étoile. Un grondement de tonnerre résonna et son corps oscilla rapidement entre Dao Gu et la nature céleste pour la huitième fois!
 
 Après cette huitième occurrence, Wang Lin serait confronté à une réalité brutale: il n'aurait plus d'étoiles à briser!
 
@@ -52,15 +52,15 @@ Son corps de Dieu Ancien explosa soudainement. Alors que sa chair et son sang vo
 
 Ce corps immortel provenait du Sceau de l'Ancêtre Céleste. C'est grâce à cette marque que Wang Lin possédait ce corps immortel. La marque entre ses sourcils scintilla et l'énergie spirituelle céleste dans son corps devint encore plus intense. Sa moelle osseuse produisit un sang toujours plus abondant qui irriguait son être. Il semblait que le corps céleste allait totalement supprimer son corps de Dieu Ancien!
 
-Cependant, tout cela était loin d'être terminé. Si Wang Lin n'était qu'un Dieu Ancien avant d'obtenir l'héritage de l'Ordre Antique, alors, à l'ultime instant, il perdrait son héritage de Dieu Ancien pour devenir un véritable être céleste, avant de mourir de l'explosion de son corps!
+Cependant, tout cela était loin d'être terminé. Si Wang Lin n'était qu'un Dieu Ancien avant d'obtenir l'héritage de Dao Gu, alors, à l'ultime instant, il perdrait son héritage de Dieu Ancien pour devenir un véritable être céleste, avant de mourir de l'explosion de son corps!
 
-Pourtant, cet héritage de Dieu Ancien était celui d'un Dieu Ancien Royal! Et c'était également l'héritage de l'Ordre Antique. La marque ne changeait pas seulement sa lignée, elle déclenchait aussi l'héritage de l'Ordre Antique dans son corps!
+Pourtant, cet héritage de Dieu Ancien était celui d'un Dieu Ancien Royal! Et c'était également l'héritage de Dao Gu. La marque ne changeait pas seulement sa lignée, elle déclenchait aussi l'héritage de Dao Gu dans son corps!
 
 Tout comme le fou l'avait dit, cette marque ne pouvait être donnée à des étrangers, et certainement pas aux trois clans de la Nation Ancienne!
 
-Un rugissement jaillit de la bouche de Wang Lin et d'innombrables fissures parcoururent son corps céleste. Simultanément, la puissance de l'Ordre Antique en lui déferla. Bien qu'il ne restât plus d'étoile à briser... cette poussée semblait avoir provoqué l'arrivée précoce de la deuxième perte des trois pertes et sept épreuves du Dieu Ancien de Wang Lin! Ce déclenchement anticipé était dû à la volonté même de la puissance de l'Ordre Antique, qui refusait d'être expulsée!
+Un rugissement jaillit de la bouche de Wang Lin et d'innombrables fissures parcoururent son corps céleste. Simultanément, la puissance de Dao Gu en lui déferla. Bien qu'il ne restât plus d'étoile à briser... cette poussée semblait avoir provoqué l'arrivée précoce de la deuxième perte des trois pertes et sept épreuves du Dieu Ancien de Wang Lin! Ce déclenchement anticipé était dû à la volonté même de la puissance de Dao Gu, qui refusait d'être expulsée!
 
-Deux volontés vagues résidaient dans le corps de Wang Lin: l'une issue de l'Ordre Antique et l'autre du domaine céleste. La collision de ces deux volontés était à l'origine de toute la fortune et de tous les dangers de Wang Lin!
+Deux volontés vagues résidaient dans le corps de Wang Lin: l'une issue de Dao Gu et l'autre du domaine céleste. La collision de ces deux volontés était à l'origine de toute la fortune et de tous les dangers de Wang Lin!
 
 L'arrivée précoce de la deuxième perte fit apparaître d'innombrables fissures sur le corps céleste, puis celui-ci explosa. La puissance de l'explosion heurta celle de la deuxième perte. Les deux forces se déchiraient frénétiquement, cherchant à s'anéantir mutuellement. À cet instant, il semblait que tout, y compris l'âme originelle de Wang Lin, allait être anéanti!
 

@@ -36,11 +36,11 @@ Le Seigneur Démon des Six Désirs fixa froidement le bossu. Rapidement, l'éner
 
 Le Seigneur Démon des Six Désirs répondit froidement: « Je m'occuperai de la seconde moitié du premier essai. »
 
-Le bossu Meng toucha la pustule sur son visage et dit d'une voix rauque: « Pour le deuxième essai, laissez faire ce vieux bossu! »
+Meng Tuozi toucha la pustule sur son visage et dit d'une voix rauque: « Pour le deuxième essai, laissez faire ce vieux bossu! »
 
 Duanmu Ji regarda Wang Qingyue et dit: « Cet homme est Wang Qingyue. Il connaît la technique d'évasion des cinq éléments, ce qui nous sera utile. Ce jeune ami, lui, maîtrise le sortilège de la mort. L'attaque par le Sens Divin du troisième essai dépendra de lui. »
 
-Le regard brumeux du bossu Meng balaya Wang Lin, mais il ne dit mot.
+Le regard brumeux de Meng Tuozi balaya Wang Lin, mais il ne dit mot.
 
 La main du Seigneur Démon des Six Désirs traça des sceaux mystérieux alors qu'il marchait vers la matrice de transfert. Après avoir lancé plusieurs sceaux, l'ensemble de la formation commença à se briser de l'intérieur. Des rafales de gaz vert jaillirent de la matrice jusqu'à ce que celle-ci soit complètement détruite. Puis son corps vacilla, et il se mit à se déplacer rapidement au sein des débris de la formation.
 
@@ -70,7 +70,7 @@ Cependant, l'unique moyen d'utiliser ces matrices était de posséder des pierre
 
 Duanmu Ji serra les dents et sortit ses deux dernières pierres de son sac de rangement. Le cœur serré, il les lança vers la lumière. Sur les dix piliers, huit étaient désormais alimentés par des pierres de qualité supérieure.
 
-Le dernier était le bossu Meng. Il tapota le crapaud sur son épaule; l'animal gonfla le ventre et cracha deux rayons de lumière dans les piliers de lumière.
+Le dernier était Meng Tuozi. Il tapota le crapaud sur son épaule; l'animal gonfla le ventre et cracha deux rayons de lumière dans les piliers de lumière.
 
 Désormais, les dix piliers contenaient chacun une pierre de qualité supérieure. Les colonnes de lumière disparurent soudainement, toute la luminosité s'étant concentrée sur les pierres elles-mêmes.
 
@@ -80,7 +80,7 @@ Le Seigneur Démon des Six Désirs afficha une expression d'excitation et s'écr
 
 Même l'Empereur Antique ne put s'empêcher de laisser ses yeux briller alors qu'il pénétrait dans la matrice.
 
-Derrière lui se trouvaient le bossu Meng, Duanmu Ji et le jeune homme accompagnant le Seigneur Démon des Six Désirs. Quant à Wang Qingyue, il hésita un instant avant d'entrer à son tour. Wang Lin baissa la tête, les yeux étincelants, et s'avança.
+Derrière lui se trouvaient Meng Tuozi, Duanmu Ji et le jeune homme accompagnant le Seigneur Démon des Six Désirs. Quant à Wang Qingyue, il hésita un instant avant d'entrer à son tour. Wang Lin baissa la tête, les yeux étincelants, et s'avança.
 
 Une fois que les sept furent entrés, le Seigneur Démon des Six Désirs poussa un rugissement et la matrice s'anima. Les dix pierres de qualité supérieure volèrent en éclats, créant une puissante onde d'énergie spirituelle. Les montagnes environnantes furent réduites en poussière et les Étoiles Brisées du Chaos elles-mêmes s'immobilisèrent un instant.
 
@@ -94,7 +94,7 @@ L'Empereur Antique fut le premier à sortir. Il fixa l'anneau ovale avec une poi
 
 Il ouvrit les bras et effectua des mouvements devant l'anneau, tandis que de fins éclats noirs s'en échappaient pour rejoindre sa main.
 
-Wang Lin sentit clairement que Duanmu Ji, le Seigneur Démon des Six Désirs et le bossu Meng poussaient un soupir de soulagement en entendant ces paroles.
+Wang Lin sentit clairement que Duanmu Ji, le Seigneur Démon des Six Désirs et Meng Tuozi poussaient un soupir de soulagement en entendant ces paroles.
 
 Il observa les environs: la plaine au sein des Étoiles Brisées du Chaos était totalement vide, semblant infinie sous un ciel nocturne tout aussi vaste. Wang Lin comprit qu'il s'agissait là d'une puissante restriction.
 
@@ -112,17 +112,17 @@ Le Seigneur Démon des Six Désirs regarda Wang Qingyue et Wang Lin avant de dir
 
 Les yeux de Wang Qingyue s'illuminèrent alors qu'il contemplait l'anneau ovale en réfléchissant.
 
-Le bossu Meng toucha sa pustule et demanda: « Six Désirs, Duanmu, peu importe si nous ne brisons pas la restriction, mais si nous y parvenons, comment partagerons-nous les butins? »
+Meng Tuozi toucha sa pustule et demanda: « Six Désirs, Duanmu, peu importe si nous ne brisons pas la restriction, mais si nous y parvenons, comment partagerons-nous les butins? »
 
 Le Seigneur Démon des Six Désirs répondit à Wang Qingyue: « Quant aux objets, ceux qui y entreront en recevront un chacun. Mais s'il y a une Pilule de Transformation de l'Âme, alors ce seront nos capacités qui décideront. »
 
 Duanmu Ji laissa échapper un rire sournois: « Il est bien trop tôt pour en parler. Nous déciderons une fois la restriction brisée. »
 
-Le regard du bossu Meng se posa sur le jeune homme accompagnant le Seigneur Démon des Six Désirs. Il demanda: « Je me demande ce que ce jeune ami fera pour nous aider à franchir cette barrière? »
+Le regard de Meng Tuozi se posa sur le jeune homme accompagnant le Seigneur Démon des Six Désirs. Il demanda: « Je me demande ce que ce jeune ami fera pour nous aider à franchir cette barrière? »
 
 Le Seigneur Démon des Six Désirs fixa Wang Lin et dit froidement: « Il en va de même pour lui; cet homme sera utile lors du troisième essai. C'est un cultivateur du pays de culture de rang 3, Tian Zhu. Il excelle dans les techniques spectrales qui pourraient s'avérer utiles contre les créatures du troisième essai. Il m'a fallu plusieurs années pour le trouver. »
 
-« Ainsi donc, héhé... le troisième essai. À l'époque, nous avions été stoppés par lui. J'espère que nous réussirons à le franchir cette fois! » Le bossu Meng esquissa un sourire étrange en alternant son regard entre Wang Lin et le jeune homme.
+« Ainsi donc, héhé... le troisième essai. À l'époque, nous avions été stoppés par lui. J'espère que nous réussirons à le franchir cette fois! » Meng Tuozi esquissa un sourire étrange en alternant son regard entre Wang Lin et le jeune homme.
 
 L'Empereur Antique, posté devant l'anneau, commença à mouvoir ses bras de plus en plus vite, faisant tomber des éclats noirs comme une pluie. Son expression devint sérieuse lorsqu'il ferma la main et poussa vers l'avant. Soudain, d'innombrables fragments noirs jaillirent de l'anneau, se rassemblèrent pour former la silhouette d'un dragon, qui poussa un rugissement avant de rétrécir pour atterrir dans la paume de l'Empereur Antique.
 
@@ -132,13 +132,13 @@ Tenant les deux bracelets, l'Empereur Antique hésita un instant avant de franch
 
 Les yeux du Seigneur Démon des Six Désirs se plissèrent; il saisit le jeune homme et sauta à son tour. Wang Qingyue lécha ses lèvres et suivit.
 
-Duanmu Ji et le bossu Meng étaient les derniers. Après un bref échange de regards, ils se tournèrent vers Wang Lin. Sans dire un mot, Wang Lin s'élança dans les airs et s'arrêta devant le cercle de lumière. Il tendit la main à Duanmu Ji: « Puisque je suis arrivé ici, j'espère que Senior tiendra sa promesse. »
+Duanmu Ji et Meng Tuozi étaient les derniers. Après un bref échange de regards, ils se tournèrent vers Wang Lin. Sans dire un mot, Wang Lin s'élança dans les airs et s'arrêta devant le cercle de lumière. Il tendit la main à Duanmu Ji: « Puisque je suis arrivé ici, j'espère que Senior tiendra sa promesse. »
 
 Duanmu Ji rit: « Il n'y a pas d'urgence. Une fois le troisième essai franchi, je te la donnerai naturellement. »
 
 Wang Lin le regarda froidement sans répondre.
 
-Le bossu Meng laissa échapper un ricanement en les observant. Ayant fini sa contemplation, il passa devant Duanmu Ji pour entrer dans l'anneau.
+Meng Tuozi laissa échapper un ricanement en les observant. Ayant fini sa contemplation, il passa devant Duanmu Ji pour entrer dans l'anneau.
 
 Duanmu Ji fixa Wang Lin. Après une courte réflexion, il sortit deux pilules et les lança vers lui: « Prends-les! » dit-il d'un ton pesant.
 
@@ -154,7 +154,7 @@ Wang Lin se tenait sur l'un de ces piliers. Le sommet mesurait trois cents pieds
 
 En regardant autour de lui, il vit que tous ceux qui étaient entrés étaient dans la même situation: chacun se trouvait isolé sur son propre pilier.
 
-D'après ses observations, Duanmu Ji, le Seigneur Démon des Six Désirs, le bossu Meng et l'Empereur Antique semblaient très calmes. Wang Qingyue, lui, contemplait avec réflexion le vide par-delà le bord du pilier. Enfin, il y avait le jeune homme, assis sur son pilier, fixant les environs avec un choc visible dans les yeux.
+D'après ses observations, Duanmu Ji, le Seigneur Démon des Six Désirs, Meng Tuozi et l'Empereur Antique semblaient très calmes. Wang Qingyue, lui, contemplait avec réflexion le vide par-delà le bord du pilier. Enfin, il y avait le jeune homme, assis sur son pilier, fixant les environs avec un choc visible dans les yeux.
 
 Wang Lin prit une profonde inspiration et déploya lentement son Sens Divin. Aucune force ne bloquait sa perception, mais compte tenu de la puissance des vieux monstres qui l'entouraient, il ne le déploya pas trop loin, se contentant de couvrir son propre pilier avant de s'arrêter.
 
@@ -168,13 +168,13 @@ Soudain, Wang Qingyue, qui regardait par-delà le bord du pilier, s'écria: « Q
 
 Dans le vide infini sous eux, deux lampes éclatantes s'allumèrent soudainement. Ces lueurs mesuraient plusieurs dizaines de pieds de large. Wang Lin déploya son Sens Divin et comprit qu'il ne s'agissait pas de lampes, mais d'une paire d'yeux.
 
-Peu après, la paire d'yeux disparut, pour réapparaître aussitôt, bien plus grande cette fois. Le bossu Meng s'approcha du bord de son pilier et regarda en bas avec une expression sombre. Il agita sa main droite, laissant tomber une poudre bleue qui libéra une lueur spectrale. Plus la poudre descendait, plus la lumière devenait intense; lorsqu'elle atteignit enfin les yeux, une scène qui fit frissonner tout le monde se dévoila.
+Peu après, la paire d'yeux disparut, pour réapparaître aussitôt, bien plus grande cette fois. Meng Tuozi s'approcha du bord de son pilier et regarda en bas avec une expression sombre. Il agita sa main droite, laissant tomber une poudre bleue qui libéra une lueur spectrale. Plus la poudre descendait, plus la lumière devenait intense; lorsqu'elle atteignit enfin les yeux, une scène qui fit frissonner tout le monde se dévoila.
 
 La créature en dessous était un monstre serpentiforme colossal, dont la taille était inestimable. À la seule lueur de la poudre spectrale, elle mesurait au moins plusieurs dizaines de milliers de pieds de long et mille pieds de large. Un corps aux reflets rouge-violet brillait dans l'obscurité.
 
 Neuf cornes ornaient sa tête massive, et lorsque la gueule s'ouvrit, la netteté de ses dents fit frémir quiconque les voyait.
 
-Le visage du bossu Meng se décomposa alors qu'il agitait la main pour faire disparaître la lumière, plongeant à nouveau la zone dans le noir.
+Le visage de Meng Tuozi se décomposa alors qu'il agitait la main pour faire disparaître la lumière, plongeant à nouveau la zone dans le noir.
 
 Après une réflexion rapide, il déclara d'une voix lente: « Au bas mot, c'est une bête désolée, ce qui équivaut à un cultivateur de la Formation de l'Âme au stade de la Grande Perfection! »
 
@@ -182,13 +182,13 @@ Le Seigneur Démon des Six Désirs, le visage sombre, répondit calmement: « Ne
 
 À peine eut-il fini de parler qu'un rugissement retentit depuis les profondeurs. Les yeux devinrent de plus en plus massifs et une vague d'odeur fétide s'approcha d'eux.
 
-Tout le monde se redressa instantanément. Le bossu Meng sortit précipitamment plusieurs pilules et les lança: « Gardez-les dans votre bouche, cela empêchera le poison de vous tuer! »
+Tout le monde se redressa instantanément. Meng Tuozi sortit précipitamment plusieurs pilules et les lança: « Gardez-les dans votre bouche, cela empêchera le poison de vous tuer! »
 
 Le Seigneur Démon des Six Désirs bondit aux côtés du jeune homme qu'il avait amené, l'attrapa, récupéra une pilule et s'enfuit rapidement vers la distance.
 
 Simultanément, Duanmu Ji regarda Wang Lin. Voyant que celui-ci restait calme, il hésita un instant avant de lui envoyer une transmission vocale: « Suis-moi! » Puis, il s'élança à toute vitesse.
 
-Wang Lin attrapa la pilule du bossu Meng, mais ne l'avala pas immédiatement. Il observa les autres et, après avoir vu chacun s'en saisir, il la mit dans sa bouche avant de s'élancer dans les airs.
+Wang Lin attrapa la pilule de Meng Tuozi, mais ne l'avala pas immédiatement. Il observa les autres et, après avoir vu chacun s'en saisir, il la mit dans sa bouche avant de s'élancer dans les airs.
 
 Tous fuyaient en sautant d'un pilier à l'autre, dans une progression qui semblait sans fin. Wang Lin restait à la suite de Duanmu Ji. Le rugissement en dessous devenait assourdissant et les piliers environnants se mettaient à trembler.
 

@@ -10,7 +10,7 @@ Le Royaume Intérieur était plongé dans un silence absolu. Les cultivateurs du
 
 Cependant, la concubine impériale céleste rouge affichait une expression sombre. Elle n'avait pas prévu l'apparition de cet arc et, après avoir entendu les paroles de Feng Yi, une pointe de colère traversa son visage. Elle comprit qu'elle n'était qu'un pion entre les mains de quelqu'un.
 
-La concubine impériale céleste rouge laissa échapper un ricanement glacial et lança un regard à Rêve Pourpre de la Rivière Invoquée. Sans accorder plus d'attention à qui que ce soit, elle s'élança vers l'ouverture de la Formation de Scellement du Royaume.
+La concubine impériale céleste rouge laissa échapper un ricanement glacial et lança un regard à Rêve Pourpre de Zhao He. Sans accorder plus d'attention à qui que ce soit, elle s'élança vers l'ouverture de la Formation de Scellement du Royaume.
 
 Personne ne tenta de l'arrêter, et le regard de Maître Nan Yunzi jeta un éclair à peine perceptible. La concubine impériale céleste rouge venait de pénétrer dans le Système Stellaire Antique et avait disparu sans laisser de trace.
 
@@ -28,11 +28,11 @@ Le regard de Maître Hong Shan se durcit. Tout en reculant, il fit un pas en ava
 
 Au même instant, Maître Nan Yunzi frappa son front de la paume. Son corps trembla et des ombres nuageuses apparurent derrière lui. Ces nuages se condensèrent en statues alignées pour former une matrice de combat, lesquelles suivirent le rayon rouge de Maître Hong Shan vers la paume géante.
 
-Rêve Pourpre de la Rivière Invoquée, la belle femme d'âge mûr, Maître Lu Fu et Tai Aluo attaquèrent tous simultanément. Divers sorts furent lancés et fusionnèrent avec ceux de Maître Hong Shan et de Maître Nan Yunzi, créant une tempête dévastatrice qui s'abattit sur la paume géante!
+Rêve Pourpre de Zhao He, la belle femme d'âge mûr, Maître Lu Fu et Tai Aluo attaquèrent tous simultanément. Divers sorts furent lancés et fusionnèrent avec ceux de Maître Hong Shan et de Maître Nan Yunzi, créant une tempête dévastatrice qui s'abattit sur la paume géante!
 
 Sur l'ordre de Wang Lin, l'Estimé Ling Dong et Zhou Jin lancèrent également leurs sorts. On pourrait dire que tous les cultivateurs du troisième niveau du Royaume Intérieur avaient uni leurs forces pour engendrer cette tempête.
 
-Les étoiles de l'Ancien Dieu de Wang Lin tournèrent rapidement et il agita sa main droite. La tête de l'Ordre Antique apparut soudainement, se transformant en un poing colossal enveloppé de feu et de tonnerre. Dans un fracas de tonnerre, ce coup fusionna avec la tempête pour créer l'assaut le plus puissant du Royaume Intérieur, projeté vers la paume!
+Les étoiles de l'Ancien Dieu de Wang Lin tournèrent rapidement et il agita sa main droite. La tête de Dao Gu apparut soudainement, se transformant en un poing colossal enveloppé de feu et de tonnerre. Dans un fracas de tonnerre, ce coup fusionna avec la tempête pour créer l'assaut le plus puissant du Royaume Intérieur, projeté vers la paume!
 
 En un éclair, l'attaque la plus redoutable du Royaume Intérieur percuta la paume. Au moment de l'impact, une énergie démoniaque puissante jaillit du Royaume Intérieur pour former le démon ancien à neuf étoiles. Ses yeux brûlaient de haine tandis qu'il ouvrait la bouche pour cracher une énergie démoniaque qui se mua en un immense dragon démoniaque fonçant vers l'avant.
 
@@ -42,11 +42,11 @@ Des grondements tonitruants ébranlèrent le système stellaire. Tous, dans les 
 
 Tandis que le tonnerre résonnait, Maître Hong Shan et ses compagnons crachèrent du sang et reculèrent promptement. Sous l'impact violent, quatre des cinq doigts de la paume s'effondrèrent instantanément!
 
-C'est à cet instant précis que le coup de l'Ordre Antique de Wang Lin atteignit le dernier doigt. Un fracas de tonnerre retentit, le corps de Wang Lin trembla et du sang coula au coin de sa bouche. Une douleur fulgurante irradia de sa main droite, comme si ses os s'étaient brisés.
+C'est à cet instant précis que le coup de Dao Gu de Wang Lin atteignit le dernier doigt. Un fracas de tonnerre retentit, le corps de Wang Lin trembla et du sang coula au coin de sa bouche. Une douleur fulgurante irradia de sa main droite, comme si ses os s'étaient brisés.
 
 Il recula une fois de plus.
 
-Lorsque le dernier doigt fut frappé par le coup de l'Ordre Antique de Wang Lin, il montra des signes d'effondrement imminent. À cet instant, le dragon démoniaque du démon ancien à neuf étoiles frappa et le dernier doigt céda! Seule la paume subsistait, repoussée par l'attaque combinée de tous les cultivateurs du troisième niveau du Royaume Intérieur!
+Lorsque le dernier doigt fut frappé par le coup de Dao Gu de Wang Lin, il montra des signes d'effondrement imminent. À cet instant, le dragon démoniaque du démon ancien à neuf étoiles frappa et le dernier doigt céda! Seule la paume subsistait, repoussée par l'attaque combinée de tous les cultivateurs du troisième niveau du Royaume Intérieur!
 
 L'onde de choc se propagea dans la Formation de Scellement du Royaume, faisant trembler la structure et élargissant rapidement l'ouverture.
 
@@ -74,7 +74,7 @@ Cependant, avant qu'elle n'ait pu reculer de dix mille pieds, la deuxième plan�
 
 La troisième planète de culture fondit sur la paume. La gigantesque main trembla soudainement puis explosa. De cette explosion surgit une ombre vêtue de noir.
 
-Cette silhouette noire était le Souverain que Wang Lin avait aperçu devant la Tombe de l'Ordre Antique!
+Cette silhouette noire était le Souverain que Wang Lin avait aperçu devant la Tombe de Dao Gu!
 
 Une fois apparu, il ne prononça pas un mot et agita la main. Une lumière éclatante émana de sa main desséchée, comme si celle-ci était devenue la première lumière éternelle de ce monde.
 

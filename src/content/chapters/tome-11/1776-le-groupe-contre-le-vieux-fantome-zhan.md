@@ -56,35 +56,35 @@ Les yeux du Vieux Fantôme Zhan étaient empreints de froideur. Si ces deux-là 
 
 En conséquence, même lui ne pouvait s'élancer vers la dernière couche en peu de temps.
 
-Tandis que les trois combattaient, le vieil homme nommé Ma fit plusieurs pas en arrière. Son visage était légèrement pâle et il envoya rapidement un message par sens divin: « Camarade Rêve Bleu, je vais utiliser un sort puissant! »
+Tandis que les trois combattaient, le vieil homme nommé Ma fit plusieurs pas en arrière. Son visage était légèrement pâle et il envoya rapidement un message par sens divin: « Camarade Lanmeng, je vais utiliser un sort puissant! »
 
 Dès qu'il eut envoyé son message, Lanmeng Daozun agita la main et une lumière bleue l'enveloppa alors qu'il chargeait le Vieux Fantôme Zhan. Un grondement de tonnerre retentit lorsque le Vieux Fantôme Zhan agita sa main droite. Le caractère « bataille » apparut et s'étendit rapidement. Une force monstrueuse se propagea, et la lumière bleue se déforma avant de s'effondrer promptement.
 
-« Même la lueur d'un grain de riz ose rivaliser avec la lune brillante! » Le Vieux Fantôme Zhan laissa échapper un ricanement froid et agita sa manche en chargeant le vieil homme nommé Ma. Il ne craignait pas Rêve Bleu; après tout, ce dernier n'avait pas traversé les Tribulations Arcanes.
+« Même la lueur d'un grain de riz ose rivaliser avec la lune brillante! » Le Vieux Fantôme Zhan laissa échapper un ricanement froid et agita sa manche en chargeant le vieil homme nommé Ma. Il ne craignait pas Lanmeng; après tout, ce dernier n'avait pas traversé les Tribulations Arcanes.
 
 Le vieil homme nommé Ma, en revanche, n'était pas comparable. Si le Vieux Fantôme Zhan voulait ne plus être entravé, il lui faudrait infliger de graves blessures à ce vieillard!
 
-L'homme nommé Ma recula et pointa le ciel. Il était sur le point d'utiliser un sort lorsqu'il vit le Vieux Fantôme Zhan passer devant Rêve Bleu pour foncer sur lui. Son expression devint immédiatement funeste.
+L'homme nommé Ma recula et pointa le ciel. Il était sur le point d'utiliser un sort lorsqu'il vit le Vieux Fantôme Zhan passer devant Lanmeng pour foncer sur lui. Son expression devint immédiatement funeste.
 
-« Ce Rêve Bleu ne peut même pas tenir un instant... »
+« Ce Lanmeng ne peut même pas tenir un instant... »
 
-Pourtant, que ce soit lui ou le Vieux Fantôme Zhan, ils avaient sous-estimé Rêve Bleu. Il était l'un des Cinq Maîtres du Système Stellaire Antique, un être que même le Souverain redoutait. Bien qu'il n'ait pas traversé les Tribulations Arcanes, il possédait ses propres méthodes!
+Pourtant, que ce soit lui ou le Vieux Fantôme Zhan, ils avaient sous-estimé Lanmeng. Il était l'un des Cinq Maîtres du Système Stellaire Antique, un être que même le Souverain redoutait. Bien qu'il n'ait pas traversé les Tribulations Arcanes, il possédait ses propres méthodes!
 
 À cet instant, Lanmeng Daozun mordit la pointe de sa langue et cracha du sang. Son sang fusionna avec la lumière bleue défaillante pour former une cithare antique!
 
 La cithare dégageait une aura millénaire, comme si elle avait existé depuis des éons. Elle était invisible, dissimulée dans le sang de Lanmeng Daozun durant d'innombrables années. Maintenant qu'elle était révélée au monde, elle déployait toute sa puissance!
 
-Cette cithare antique était le trésor le plus puissant et l'atout ultime de Lanmeng Daozun. C'était la véritable raison pour laquelle le Souverain le craignait. Cette cithare n'avait été utilisée qu'une seule fois — lors de la bataille qui avait rendu Rêve Bleu célèbre. Une seule note de cet instrument avait enterré dix mille ossements, et un regard en arrière révélait mille ans écoulés.
+Cette cithare antique était le trésor le plus puissant et l'atout ultime de Lanmeng Daozun. C'était la véritable raison pour laquelle le Souverain le craignait. Cette cithare n'avait été utilisée qu'une seule fois — lors de la bataille qui avait rendu Lanmeng célèbre. Une seule note de cet instrument avait enterré dix mille ossements, et un regard en arrière révélait mille ans écoulés.
 
 Bien qu'il n'ait pas subi de Tribulations Arcanes, l'effort et le sacrifice consacrés à l'affinage de cette cithare surpassaient ceux requis pour traverser les Tribulations. L'instrument possédait également une origine mystérieuse.
 
 On aurait dit qu'il n'appartenait pas à ce monde caverneux!
 
-À l'apparition de la cithare antique, les yeux de Rêve Bleu se remplirent de tristesse. Il songeait à sa femme. Bien qu'elle fût dans son espace de stockage, il était incapable de la ramener à la vie. Dans un soupir, Rêve Bleu s'assit derrière l'instrument et pinça délicatement les cordes.
+À l'apparition de la cithare antique, les yeux de Lanmeng se remplirent de tristesse. Il songeait à sa femme. Bien qu'elle fût dans son espace de stockage, il était incapable de la ramener à la vie. Dans un soupir, Lanmeng s'assit derrière l'instrument et pinça délicatement les cordes.
 
 *Zeng!*
 
-La musique de la cithare résonna. Le Vieux Fantôme Zhan, qui venait de dépasser Rêve Bleu, s'écarta soudainement de trente pieds sur le côté et tourna la tête.
+La musique de la cithare résonna. Le Vieux Fantôme Zhan, qui venait de dépasser Lanmeng, s'écarta soudainement de trente pieds sur le côté et tourna la tête.
 
 Au moment où il se retourna, les ondes musicales se propagèrent. Le son émanant de la cithare enveloppa le Vieux Fantôme Zhan, scellant toutes les directions autour de lui, devant, derrière, à gauche et à droite.
 

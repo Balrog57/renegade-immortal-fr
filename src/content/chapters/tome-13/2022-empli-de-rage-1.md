@@ -80,7 +80,7 @@ Il poursuivit lentement: « Peut-être vous connaissez-vous réellement. Mon Imp
 
 La femme en robe de phénix se leva avec grâce et regarda Wang Lin avant de descendre lentement les marches. Wang Lin la fixa et, pendant un instant, il eut l'impression que c'était Li Muwan qui marchait vers lui. Son cœur et son corps tout entiers tremblèrent.
 
-La femme s'arrêta à dix pieds de Wang Lin, et l'indignation dans ses yeux s'intensifia. Wang Lin ressentit une sensation glaciale mais familière. Cela lui fit oublier le palais du Dao Antique, oublier les terres des Anciens, oublier le Continent Astral Immortel; il se croyait de retour dans le monde des grottes, dans la vallée de la planète Suzaku. Tandis qu'ils se défiaient du regard, la tristesse dans ses yeux semblait capable de faire fondre le monde entier.
+La femme s'arrêta à dix pieds de Wang Lin, et l'indignation dans ses yeux s'intensifia. Wang Lin ressentit une sensation glaciale mais familière. Cela lui fit oublier le palais du Dao Antique, oublier les terres des Anciens, oublier le Continent Xian Gang; il se croyait de retour dans le monde des grottes, dans la vallée de la planète Suzaku. Tandis qu'ils se défiaient du regard, la tristesse dans ses yeux semblait capable de faire fondre le monde entier.
 
 Voyant cette tristesse, la femme ressentit soudain une douleur au cœur. La confusion traversa son regard, mais elle fut vite balayée par une nouvelle vague d'indignation.
 

@@ -12,7 +12,7 @@ Le corps de Yan Luan fut repoussé par cette puissance divine. Elle recula de pl
 
 Tandis que ce puissant sens divin enveloppait les environs, tous les anciens de la Secte Da Hun restèrent silencieux et songeurs. Les bouleversements drastiques qui frappaient le monde ralentirent progressivement.
 
-Entre Wang Lin et Yan Luan, la présence divine se matérialisa et un vieil homme apparut. Ce dernier portait une robe verte et avait les cheveux blancs. C'était le corps originel de l'Illustre Taureau Vert!
+Entre Wang Lin et Yan Luan, la présence divine se matérialisa et un vieil homme apparut. Ce dernier portait une robe verte et avait les cheveux blancs. C'était le corps originel de l'Illustre Qing Niu!
 
 À l'instant même où son corps prit forme, son essence, son vrai corps, arriva et fusionna avec son corps originel pour projeter une ombre vaporeuse derrière lui.
 
@@ -22,17 +22,17 @@ Une aura terrifiante émanait du vieil homme. Wang Lin sentit que cette aura sur
 
 « Salutations, Ancêtre! » Dès l'apparition du vieil homme, tous les anciens de la Secte Da Hun environnants s'inclinèrent.
 
-Même Yan Luan, dont le visage oscillait entre l'ombre et la colère, s'inclina respectueusement. Seul Wang Lin resta debout, imperturbable, fixant l'Illustre Taureau Vert.
+Même Yan Luan, dont le visage oscillait entre l'ombre et la colère, s'inclina respectueusement. Seul Wang Lin resta debout, imperturbable, fixant l'Illustre Qing Niu.
 
-« Yan Luan, l'Ancien Wang est un invité que j'ai moi-même convié. Il sera désormais l'un des anciens de ma Secte Da Hun. Quant à votre Montagne Yan Mai... ce vieil homme vous en créera une autre et vous permettra d'accéder au Pavillon Cang Hun pendant trois jours! » déclara lentement l'Illustre Taureau Vert en contemplant la belle et jeune Yan Luan.
+« Yan Luan, l'Ancien Wang est un invité que j'ai moi-même convié. Il sera désormais l'un des anciens de ma Secte Da Hun. Quant à votre Montagne Yan Mai... ce vieil homme vous en créera une autre et vous permettra d'accéder au Pavillon Cang Hun pendant trois jours! » déclara lentement l'Illustre Qing Niu en contemplant la belle et jeune Yan Luan.
 
 Yan Luan réfléchit en silence. Elle était initialement réticente, mais en songeant aux sorts terrifiants de Wang Lin, elle hocha sobrement la tête.
 
-« Cette affaire est close pour le moment. Tout ce qui concerne l'Ancien Wang est un secret de la Secte Da Hun. Quiconque enfreindra cette règle sera puni par les lois de la secte! » L'Illustre Taureau Vert lança un regard solennel à l'assemblée avant que son attention ne se porte sur Wang Lin.
+« Cette affaire est close pour le moment. Tout ce qui concerne l'Ancien Wang est un secret de la Secte Da Hun. Quiconque enfreindra cette règle sera puni par les lois de la secte! » L'Illustre Qing Niu lança un regard solennel à l'assemblée avant que son attention ne se porte sur Wang Lin.
 
-« Ancien Wang, bienvenue à la Secte Da Hun! » sourit l'Illustre Taureau Vert.
+« Ancien Wang, bienvenue à la Secte Da Hun! » sourit l'Illustre Qing Niu.
 
-Wang Lin rendit son sourire et salua poliment l'Illustre Taureau Vert en joignant les mains. Sous les regards de tous, il reprit: « Je viens à peine d'arriver ici; si j'ai fait preuve d'imprudence, j'espère que personne ne m'en tiendra rigueur. »
+Wang Lin rendit son sourire et salua poliment l'Illustre Qing Niu en joignant les mains. Sous les regards de tous, il reprit: « Je viens à peine d'arriver ici; si j'ai fait preuve d'imprudence, j'espère que personne ne m'en tiendra rigueur. »
 
 Malgré son sourire, ses paroles n'avaient rien d'arrogant; il paraissait très courtois. Après avoir été témoins de la puissance phénoménale de ses sorts et de sa politesse, les autres anciens de la Secte Da Hun répondirent promptement avec respect.
 
@@ -44,23 +44,23 @@ Malgré son sourire, ses paroles n'avaient rien d'arrogant; il paraissait très 
 
 Une cascade de paroles polies s'éleva de la foule. Wang Lin resta patient, souriant et répondant à chacun. Puis, les anciens regagnèrent leurs pics respectifs.
 
-Bientôt, seuls Yan Luan, Wang Lin et l'Illustre Taureau Vert demeurèrent devant la Secte Da Hun. Les disciples de Yan Luan se tenaient au loin. Fan Shanmeng faisait partie du groupe et lançait à Wang Lin un regard complexe.
+Bientôt, seuls Yan Luan, Wang Lin et l'Illustre Qing Niu demeurèrent devant la Secte Da Hun. Les disciples de Yan Luan se tenaient au loin. Fan Shanmeng faisait partie du groupe et lançait à Wang Lin un regard complexe.
 
 « Ancien Wang, choisissez un pic pour établir votre demeure. Ce vieil homme peut vous aider à l'aménager. Une fois que vous serez familiarisé avec la Secte Da Hun, venez me trouver. Chaque ancien a une occasion d'entrer dans le Pavillon Cang Hun; vous y trouverez de nombreux sorts à choisir. »
 
-« De plus, trois cadeaux ont été préparés pour vous depuis très longtemps. Puisque vous êtes ici, ce vieil homme vous les remettra au nom de l'Ancêtre... Ils vous seront d'une grande utilité! » Les paroles de l'Illustre Taureau Vert témoignaient de l'importance qu'il accordait à Wang Lin. En entendant cela, Yan Luan songea en silence. Elle laissa échapper un reniflement méprisant dans son cœur, mais ne dit mot.
+« De plus, trois cadeaux ont été préparés pour vous depuis très longtemps. Puisque vous êtes ici, ce vieil homme vous les remettra au nom de l'Ancêtre... Ils vous seront d'une grande utilité! » Les paroles de l'Illustre Qing Niu témoignaient de l'importance qu'il accordait à Wang Lin. En entendant cela, Yan Luan songea en silence. Elle laissa échapper un reniflement méprisant dans son cœur, mais ne dit mot.
 
 Wang Lin hocha légèrement la tête et observa la Secte Da Hun. De là où il se trouvait, il pouvait voir que la montagne, autrefois rouge, n'était plus qu'un champ de ruines.
 
 Il réfléchit un instant. Il n'existait pas de rancœur profonde entre lui et Yan Luan. C'était lui qui l'avait provoquée en premier en dévastant sa demeure. Si cela avait été un autre, elle aurait eu du mal à l'accepter.
 
-« Senior Taureau Vert, il n'est pas nécessaire de me chercher un autre pic. Cette Montagne Yan Mai me suffira! » dit Wang Lin en désignant la montagne dévastée.
+« Senior Qing Niu, il n'est pas nécessaire de me chercher un autre pic. Cette Montagne Yan Mai me suffira! » dit Wang Lin en désignant la montagne dévastée.
 
 « Quant à la nouvelle demeure, donnez-la à Yan Luan. » Il adressa un sourire à la belle jeune femme.
 
 Celle-ci fut surprise un instant et son expression s'adoucit légèrement, mais elle ne put réprimer sa colère. Voyant Wang Lin lui sourire, elle laissa échapper un froid reniflement et le fixa avec malveillance.
 
-L'Ancêtre Taureau Vert rit de cette scène. Il hocha la tête et dit: « C'est très bien ainsi. Venez me trouver au Pic du Ciel Vert dans trois jours! » Sur ces mots, sa main droite s'élança vers le vide et un morceau de jade vola vers Wang Lin.
+L'Ancêtre Qing Niu rit de cette scène. Il hocha la tête et dit: « C'est très bien ainsi. Venez me trouver au Pic du Ciel Vert dans trois jours! » Sur ces mots, sa main droite s'élança vers le vide et un morceau de jade vola vers Wang Lin.
 
 « Ce jade vous permettra d'entrer et de sortir de la plupart des restrictions de la Secte Da Hun! »
 
@@ -100,7 +100,7 @@ En voyant cela, Yan Luan serra les dents. Le soupçon de satisfaction qu'elle av
 
 « Nous ne pouvons pas coexister! »
 
-Elle réprima sa colère jusqu'à ce que l'Ancêtre Taureau Vert lui attribue un nouveau pic. Une fois celui-ci parti, elle convoqua immédiatement Fan Shanmeng.
+Elle réprima sa colère jusqu'à ce que l'Ancêtre Qing Niu lui attribue un nouveau pic. Une fois celui-ci parti, elle convoqua immédiatement Fan Shanmeng.
 
 « Fan Shanmeng, va à la Montagne Yan Mai. Cet homme nommé Wang veut que tu sois sa servante, alors va être sa servante! »
 

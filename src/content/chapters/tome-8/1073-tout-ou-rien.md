@@ -10,7 +10,7 @@ Le fracas des vagues continuait de résonner aux oreilles des quatre individus p
 
 Cependant, alors que le tumulte des ondes s'intensifiait, la bouche de Tian Yunzi aux robes grises s'assécha. Il n'était pas le seul; les deux autres avatars ressentaient la même chose. En réalité, leur état était bien pire, et une peur incontrôlable grandissait dans leurs cœurs.
 
-Le Maître du Vide s'était totalement éveillé lorsqu'il aperçut le soleil rouge vif poindre à l'horizon. Bien qu'une infime partie de l'astre ne fût encore visible, sa lumière éblouissante ressemblait à des lames cherchant à déchirer la nuit.
+Xu Kongzi s'était totalement éveillé lorsqu'il aperçut le soleil rouge vif poindre à l'horizon. Bien qu'une infime partie de l'astre ne fût encore visible, sa lumière éblouissante ressemblait à des lames cherchant à déchirer la nuit.
 
 Quiconque se trouvait au sein de l'obscurité était une part de cette nuit, et périrait avec elle.
 
@@ -24,25 +24,25 @@ La nuit profonde fut brutalement déchirée. Cette puissance était assez forte 
 
 Elle portait aussi l'intention meurtrière monstrueuse de Wang Lin. Elle contenait son refus viscéral, né après avoir été traqué dans toute la Grotte Xian Di et être devenu, en fin de compte, le rouage du plan de Tian Yunzi et de l'Ancien Démon Ta Jia. Elle contenait également la colère refoulée qu'il avait contenue durant tout ce temps!
 
-Les deux éveils de l'Oiseau Vermillon de Wang Lin provoquèrent une chaleur inimaginable. Cette chaleur surpassait tout ce que les sorts de Wang Lin pouvaient produire d'ordinaire. Grâce à la loi originelle, la Nuit Brisée de Wang Lin put capturer le moment de chaleur intense du soleil levant pour l'amplifier à un degré prodigieux.
+Les deux éveils de Suzaku de Wang Lin provoquèrent une chaleur inimaginable. Cette chaleur surpassait tout ce que les sorts de Wang Lin pouvaient produire d'ordinaire. Grâce à la loi originelle, la Nuit Brisée de Wang Lin put capturer le moment de chaleur intense du soleil levant pour l'amplifier à un degré prodigieux.
 
 Le soleil émergeant de la mer libérait une lumière dorée sans précédent et une chaleur incroyable. Il ne s'agissait pas seulement de déchirer la nuit; il allait tout écraser et réduire tout ce qui se dressait devant lui en cendres!
 
-La première personne à faire face à la Nuit Brisée fut le Maître du Vide, qui se trouvait le plus près. La lumière solaire balaya la terre avec une chaleur extrême. Le Maître du Vide était déjà mourant, son âme originelle se dissipant suite à l'échec de son premier Fléau Céleste. Sans le sceau que l'Ancien Démon Ta Jia avait placé sur lui, il serait mort depuis longtemps.
+La première personne à faire face à la Nuit Brisée fut Xu Kongzi, qui se trouvait le plus près. La lumière solaire balaya la terre avec une chaleur extrême. Xu Kongzi était déjà mourant, son âme originelle se dissipant suite à l'échec de son premier Fléau Céleste. Sans le sceau que l'Ancien Démon Ta Jia avait placé sur lui, il serait mort depuis longtemps.
 
-À cet instant, sous la lumière solaire infinie, la nuit fut lacérée et le visage du Maître du Vide pâlit. Son corps étant façonné par le premier Fléau Céleste, ses deux jambes s'effondrèrent en brume à ce moment précis. Cependant, cette brume se dissipa aussitôt sans laisser de trace sous l'éclat du soleil.
+À cet instant, sous la lumière solaire infinie, la nuit fut lacérée et le visage de Xu Kongzi pâlit. Son corps étant façonné par le premier Fléau Céleste, ses deux jambes s'effondrèrent en brume à ce moment précis. Cependant, cette brume se dissipa aussitôt sans laisser de trace sous l'éclat du soleil.
 
 Mais il ne pouvait plus ressentir la douleur. La seule chose qu'il éprouvait était une peur immense et un sentiment d'incrédulité.
 
-Une fois ses jambes effondrées, la marque de l'ancien démon entre ses sourcils ne dura qu'un instant avant de se dissiper elle aussi. Après cela, le Maître du Vide poussa un cri misérable et son corps commença à se désintégrer, tout en tentant de reculer.
+Une fois ses jambes effondrées, la marque de l'ancien démon entre ses sourcils ne dura qu'un instant avant de se dissiper elle aussi. Après cela, Xu Kongzi poussa un cri misérable et son corps commença à se désintégrer, tout en tentant de reculer.
 
-Pourtant, ce monde était vaste. Si même la nuit ne pouvait échapper au pouvoir de la Nuit Brisée, comment le Maître du Vide le pourrait-il? Peu importe la distance parcourue dans sa retraite, il ne pouvait fuir la mort. Tandis qu'il reculait, la lumière du soleil se précipita vers lui. Les hurlements du Maître du Vide résonnèrent alors que les rayons le traversaient de part en part, comme un tamis. Il disparut avec un sourire désespéré, consumé par le désespoir...
+Pourtant, ce monde était vaste. Si même la nuit ne pouvait échapper au pouvoir de la Nuit Brisée, comment Xu Kongzi le pourrait-il? Peu importe la distance parcourue dans sa retraite, il ne pouvait fuir la mort. Tandis qu'il reculait, la lumière du soleil se précipita vers lui. Les hurlements de Xu Kongzi résonnèrent alors que les rayons le traversaient de part en part, comme un tamis. Il disparut avec un sourire désespéré, consumé par le désespoir...
 
-Le Maître du Vide était un puissant cultivateur au sommet du stade de Briseur du Nirvana, doté d'un rang élevé au sein de l'Alliance, et il était même le Junior frère du Maître Zhong Xuan. Il fut autrefois si illustre, et nombre de héros périrent de sa main; pourtant, il ne put échapper au cycle de la réincarnation, au premier Fléau Céleste et aux conséquences de ses propres méfaits!
+Xu Kongzi était un puissant cultivateur au sommet du stade de Briseur du Nirvana, doté d'un rang élevé au sein de l'Alliance, et il était même le Junior frère du Maître Zhong Xuan. Il fut autrefois si illustre, et nombre de héros périrent de sa main; pourtant, il ne put échapper au cycle de la réincarnation, au premier Fléau Céleste et aux conséquences de ses propres méfaits!
 
-Le Maître du Vide s'éteignit dans un regret infini et une soif de vivre déçue...
+Xu Kongzi s'éteignit dans un regret infini et une soif de vivre déçue...
 
-Tout cela se produisit en un instant. À l'instant où le soleil se leva, le Maître du Vide mourut. Sans même marquer de pause, la lumière déchira la nuit et fondit sur Tian Yunzi aux robes grises ainsi que sur ses deux autres avatars.
+Tout cela se produisit en un instant. À l'instant où le soleil se leva, Xu Kongzi mourut. Sans même marquer de pause, la lumière déchira la nuit et fondit sur Tian Yunzi aux robes grises ainsi que sur ses deux autres avatars.
 
 À cet instant, Tian Yunzi aux robes grises ressentit la douleur d'être lacéré dans chaque fibre de son être. Même son âme originelle indépendante fut enveloppée par cette puissance. Il n'avait jamais connu une telle souffrance; c'était comme si chaque partie de son corps était mise en pièces!
 

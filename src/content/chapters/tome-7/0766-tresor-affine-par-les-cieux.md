@@ -32,9 +32,9 @@ Ce sentiment le poussait à la folie. C'était la première fois de sa vie qu'il
 
 Cependant, il craignait de bouger. Il scruta attentivement les nuages surplombant le fragment. Il sentait que la puissance qui s'y tramait grandissait en intensité.
 
-« C’est une rétribution divine… Je ne pensais pas que la culture de cet individu puisse réellement provoquer une telle rétribution. Je présume que la puissance des cieux qui a frappé la Terre Yao Ling à l'époque était également causée par lui. » Le regard de Xue Zu devint glacial.
+« C’est une Tribulation Céleste… Je ne pensais pas que la culture de cet individu puisse réellement provoquer une telle rétribution. Je présume que la puissance des cieux qui a frappé la Terre Yao Ling à l'époque était également causée par lui. » Le regard de Xue Zu devint glacial.
 
-« Plus la rétribution divine sera puissante, mieux ce sera. Si je m'y précipitais, je ne ferais que l'aider. Je vais simplement attendre ici et le regarder se faire anéantir par la rétribution divine. Ce sera fort satisfaisant. » Xue Zu ricana en fixant le fragment, ses yeux empreints de haine.
+« Plus la Tribulation Céleste sera puissante, mieux ce sera. Si je m'y précipitais, je ne ferais que l'aider. Je vais simplement attendre ici et le regarder se faire anéantir par la Tribulation Céleste. Ce sera fort satisfaisant. » Xue Zu ricana en fixant le fragment, ses yeux empreints de haine.
 
 Le fragment cessa de flotter sous l'effet de la restriction imposée par l'accumulation massive des nuages. Une immense masse nuageuse s'entassa ici, et un autre éclair frappa le fragment.
 
@@ -42,11 +42,11 @@ Ce dernier trembla une fois de plus, et ses contours se brisèrent davantage.
 
 Ce processus dura un mois, tandis que les éclairs redoublaient de fréquence. Lorsque Xue Zu regarda, il ne pouvait même plus distinguer la limite des nuages.
 
-Il se retira, refusant de provoquer la puissance de la rétribution divine. Un mélange de jubilation et de haine l'habitait lorsqu'il murmura: « Plus il y en aura, mieux ce sera. Que davantage de nuages se rassemblent pour tuer ce Wang Lin! Ce n'est qu'ainsi que la haine de ce vieil homme pourra être apaisée! »
+Il se retira, refusant de provoquer la puissance de la Tribulation Céleste. Un mélange de jubilation et de haine l'habitait lorsqu'il murmura: « Plus il y en aura, mieux ce sera. Que davantage de nuages se rassemblent pour tuer ce Wang Lin! Ce n'est qu'ainsi que la haine de ce vieil homme pourra être apaisée! »
 
 Les nuages s'intensifièrent. Quelques jours plus tard, ils ne couvraient plus seulement le fragment, mais l'enveloppaient totalement. Le fragment n'était plus visible; seul un océan de nuages subsistait.
 
-À cet instant, comme si la préparation de la rétribution divine touchait à sa fin, celle-ci survint.
+À cet instant, comme si la préparation de la Tribulation Céleste touchait à sa fin, celle-ci survint.
 
 D'innombrables éclairs jaillirent des nuages pour frapper le fragment. Le tonnerre ne venait pas seulement d'en haut, mais de la totalité des nuages qui entouraient l'objet.
 
@@ -56,7 +56,7 @@ Le corps de Wang Lin tremblait à chaque fois qu'un éclair pénétrait en lui, 
 
 À cet instant, au cœur du corps de Wang Lin, la puissance de l'homme âgé et celle de Xue Zu s'annulaient et fusionnaient mutuellement. Normalement, ce processus aurait pris très longtemps, mais les éclairs constants qui infiltraient son corps l'accéléraient prodigieusement.
 
-L'énergie originelle à l'intérieur de lui augmentait de façon effrénée. Loin de détruire son corps, le tonnerre de la rétribution divine lui apportait des bénéfices inimaginables.
+L'énergie originelle à l'intérieur de lui augmentait de façon effrénée. Loin de détruire son corps, le tonnerre de la Tribulation Céleste lui apportait des bénéfices inimaginables.
 
 Cependant, il restait inconscient. S'il avait été éveillé, les bienfaits auraient été bien plus grands sous sa propre guidance.
 
@@ -74,7 +74,7 @@ Xue Zu comprit progressivement la situation et prit une profonde inspiration. Se
 
 « Les gains et les pertes sont dictés par le destin. Ce vieil homme a trop perdu cette fois-ci. Si ce fragment est affiné par les cieux, sa puissance sera d'une tout autre dimension. Il pourrait manifester la véritable puissance du Royaume Céleste. Ce trésor m'est destiné! » L'excitation transparaissait dans le regard de Xue Zu.
 
-Le tonnerre continuait de tomber, mais soudain, tous les éclairs disparurent. Un changement radical s'opéra au sein des nuages et un éclair de tonnerre noir commença à se former. Cet éclair noir était la véritable rétribution divine.
+Le tonnerre continuait de tomber, mais soudain, tous les éclairs disparurent. Un changement radical s'opéra au sein des nuages et un éclair de tonnerre noir commença à se former. Cet éclair noir était la véritable Tribulation Céleste.
 
 Il se condensa rapidement et chargea vers le fragment.
 

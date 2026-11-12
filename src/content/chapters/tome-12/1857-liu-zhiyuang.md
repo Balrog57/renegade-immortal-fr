@@ -8,7 +8,7 @@ slug: liu-zhiyuang
 ---
 Wang Lin, qui s'était mêlé à l'armée des dix mille cultivateurs, n'attira pas trop l'attention. Seule Yan Luan jeta un regard vers l'armée, comme si elle cherchait Wang Lin du regard. Mais il y avait bien trop de cultivateurs et les lieux étaient enveloppés d'un brouillard épais; elle ne put le trouver.
 
-Au sein de cette brume, les cultivateurs du Continent Lu Mo progressaient, menés par deux vieillards au stade intermédiaire de la Tribulation du Vide. À leur passage, le brouillard se reculait, comme s'il n'osait s'approcher d'eux. Même sur le Continent Astral Immortel, les cultivateurs du stade intermédiaire de la Tribulation du Vide étaient des souverains capables de soutenir une secte de niveau moyen. Au sein même des grandes organisations, comme les neuf sectes et les treize factions, ils comptaient parmi l'élite des Anciens!
+Au sein de cette brume, les cultivateurs du Continent Lu Mo progressaient, menés par deux vieillards au stade intermédiaire de la Tribulation du Vide. À leur passage, le brouillard se reculait, comme s'il n'osait s'approcher d'eux. Même sur le Continent Xian Gang, les cultivateurs du stade intermédiaire de la Tribulation du Vide étaient des souverains capables de soutenir une secte de niveau moyen. Au sein même des grandes organisations, comme les neuf sectes et les treize factions, ils comptaient parmi l'élite des Anciens!
 
 Il est extrêmement difficile de tuer un cultivateur ayant atteint le stade intermédiaire de la Tribulation du Vide. Ils possèdent tout simplement trop de trésors de survie et de sorts protecteurs.
 
@@ -22,7 +22,7 @@ En n'importe quel autre lieu, même en unissant leurs forces, ces trois-là ne f
 
 Wang Lin, doté de sept essences, pouvait combattre des cultivateurs au stade initial de la Tribulation du Vide en engageant toutes ses techniques; mais même avec ses huit essences actuelles, il ne pouvait toujours affronter que le stade initial sans pouvoir ébranler ceux du stade intermédiaire.
 
-Cependant, à l'intérieur de la formation du Méridien du Taureau Céleste, alors que le brouillard pénétrait leurs corps, la donne changea. Les trois affrontaient de justesse le vieillard nommé Zhao! Bien qu'ils ne puissent vaincre, ils parvenaient à le contenir!
+Cependant, à l'intérieur de la formation du Méridien du Tian Niu, alors que le brouillard pénétrait leurs corps, la donne changea. Les trois affrontaient de justesse le vieillard nommé Zhao! Bien qu'ils ne puissent vaincre, ils parvenaient à le contenir!
 
 Avec quatre personnes pour freiner les deux vieillards, ces derniers ne pouvaient pleinement déployer leur terrifiant pouvoir dans cette bataille. Mais il restait encore quatre cultivateurs au stade initial de la Tribulation du Vide du Continent Lu Mo. Ces quatre individus — deux hommes et deux femmes — portaient des vêtements luxueux et affichaient un statut extraordinaire. Ils faisaient face au même problème: trois cultivateurs de la Tribulation du Vide du Continent Tian Niu, tels des ancêtres, leur barraient la route. Ces trois derniers semblaient posséder une énergie quasi illimitée dans le brouillard et commencèrent à affronter les quatre du Continent Lu Mo. Les cultivateurs de la Tribulation du Vide venaient de lancer le premier assaut de cette guerre!
 
@@ -44,7 +44,7 @@ Ces trois-là n'étaient qu'au neuvième niveau de la Tribulation Arcane, et bie
 
 Dans le monde des cavernes, seuls le Vieux Fantôme Zhan et le Daoïste aux Sept Couleurs atteignaient le stade initial de la Tribulation du Vide. S'ils avaient fusionné avec la troisième âme pour devenir le nouveau Souverain Céleste aux Sept Couleurs, ils auraient atteint le sommet du stade intermédiaire de la Tribulation du Vide.
 
-Avec son niveau de culture actuel, Wang Lin pouvait tuer des êtres inférieurs à la Tribulation du Vide. Mais pour assassiner un véritable cultivateur de la Tribulation du Vide, une préparation était nécessaire. Même sur le Continent Astral Immortel, la mort d'un tel expert était rare. Lorsqu'elle survenait, elle affectait lourdement le moral d'une secte. Sans parler de la perte d'un cultivateur au stade intermédiaire; même la Secte Da Hun ne souhaiterait pas voir un tel coup.
+Avec son niveau de culture actuel, Wang Lin pouvait tuer des êtres inférieurs à la Tribulation du Vide. Mais pour assassiner un véritable cultivateur de la Tribulation du Vide, une préparation était nécessaire. Même sur le Continent Xian Gang, la mort d'un tel expert était rare. Lorsqu'elle survenait, elle affectait lourdement le moral d'une secte. Sans parler de la perte d'un cultivateur au stade intermédiaire; même la Secte Da Hun ne souhaiterait pas voir un tel coup.
 
 Observant le brouillard tourbillonner devant lui, il regardait les sept combattants engagés dans une lutte acharnée pour leur survie. Il était extrêmement difficile de décider d'un vainqueur; en réalité, c'était presque impossible. Tant qu'ils restaient prudents, ils ne mourraient pas, au pire seraient-ils blessés.
 

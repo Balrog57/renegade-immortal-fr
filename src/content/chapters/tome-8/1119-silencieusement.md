@@ -88,7 +88,7 @@ Les yeux de Wang Lin étaient rouges et son visage d'une pâleur extrême. Son c
 
 Cette douleur était un poison qui envahissait son esprit et détruisait tout sur son passage!
 
-« Dun Tian t'a aidé, mais il est mort. L'Empereur Divin de l'Oiseau Vermillon t'a également aidé, mais lui aussi est mort. Même Zhou Yi n'a pas pu protéger le cadavre de sa bien-aimée après t'avoir rencontré. Même le Couple Céleste, à cause de ton apparition, n'a finalement, jusqu'à aujourd'hui, qu'une possibilité de sauver Qing Lin. » La voix chargée de siècles se faisait entendre lentement, et chaque mot portait la puissance des lois universelles. En atteignant les oreilles de Wang Lin, ces paroles le rendirent plus pâle encore.
+« Dun Tian t'a aidé, mais il est mort. L'Empereur Divin de Suzaku t'a également aidé, mais lui aussi est mort. Même Zhou Yi n'a pas pu protéger le cadavre de sa bien-aimée après t'avoir rencontré. Même le Couple Céleste, à cause de ton apparition, n'a finalement, jusqu'à aujourd'hui, qu'une possibilité de sauver Qing Lin. » La voix chargée de siècles se faisait entendre lentement, et chaque mot portait la puissance des lois universelles. En atteignant les oreilles de Wang Lin, ces paroles le rendirent plus pâle encore.
 
 « As-tu fini de parler...? » murmura Wang Lin en reculant. En temps normal, de tels propos ne l'auraient pas touché. Mais à cet instant, pour une raison inconnue, il sentait que chaque mot intensifiait son agonie, comme si son cœur était littéralement lacéré.
 

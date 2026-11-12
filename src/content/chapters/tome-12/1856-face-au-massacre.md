@@ -32,19 +32,19 @@ Une fois les six disparus, les membres des autres sectes se dispersèrent. Dès 
 
 À l'activation de la formation, un grondement de tonnerre retentit. Une barrière d'énergie large de 10 000 kilomètres s'étendit à travers la Prairie Ji Tian, s'étirant bien au-delà.
 
-Simultanément, les cultivateurs de la Secte Da Hun et de la Secte Gui Yi arrivèrent aux six autres méridiens du Taureau Céleste restants. Leur arrivée déclencha également les formations entourant ces méridiens.
+Simultanément, les cultivateurs de la Secte Da Hun et de la Secte Gui Yi arrivèrent aux six autres méridiens du Tian Niu restants. Leur arrivée déclencha également les formations entourant ces méridiens.
 
 Ainsi, lorsque les sept méridiens furent activés, la barrière géante se déploya sur l'ensemble des sites.
 
 Au total, sept barrières apparurent, se connectant pour former un rempart titanesque protégeant le Continent Tian Niu de la Mer Dan!
 
-Cette barrière, érigée par plus de 100 000 cultivateurs, possédait une épaisseur de 10 000 kilomètres. Ce n'était pas un obstacle qu'un cultivateur ordinaire pourrait franchir; même un être comme l'Illustre Taureau Vert aurait des difficultés à la traverser!
+Cette barrière, érigée par plus de 100 000 cultivateurs, possédait une épaisseur de 10 000 kilomètres. Ce n'était pas un obstacle qu'un cultivateur ordinaire pourrait franchir; même un être comme l'Illustre Qing Niu aurait des difficultés à la traverser!
 
-On pourrait dire que c'était presque impossible! Car au-delà de la puissance intrinsèque de la formation, elle puisait également dans la force même du Taureau Céleste!
+On pourrait dire que c'était presque impossible! Car au-delà de la puissance intrinsèque de la formation, elle puisait également dans la force même du Tian Niu!
 
 Ces sept méridiens étaient activés à pleine puissance pour la première fois depuis leur création; ils joueraient un rôle vital.
 
-Outre ces sept méridiens, soixante-douze veines terrestres étaient gardées par les membres de la Secte Da Hun, de la Secte Gui Yi et de petites sectes. Ces veines stimulaient sans cesse cette terre et rassemblaient une énergie céleste infinie pour soutenir les sept méridiens du Taureau Céleste!
+Outre ces sept méridiens, soixante-douze veines terrestres étaient gardées par les membres de la Secte Da Hun, de la Secte Gui Yi et de petites sectes. Ces veines stimulaient sans cesse cette terre et rassemblaient une énergie céleste infinie pour soutenir les sept méridiens du Tian Niu!
 
 Tout cela visait la défense, mais comment la Secte Da Hun aurait-elle pu se préparer durant tant d'années uniquement pour défendre? Un autre groupe de cultivateurs était chargé de l'offensive et des massacres!
 
@@ -94,9 +94,9 @@ Les quatre autres se situaient au stade initial de la Tribulation du Vide.
 
 Ils chargèrent en tête, suivis par le reste de l'armée qui couvrait le ciel de la Prairie Ji Tian. Une intention meurtrière se propagea telle une nuée noire sur toute la région.
 
-« Frère Zhang, unissons nos forces pour tester la puissance des sept méridiens du Taureau Céleste! » lança l'un des vieillards du stade intermédiaire avec un sourire.
+« Frère Zhang, unissons nos forces pour tester la puissance des sept méridiens du Tian Niu! » lança l'un des vieillards du stade intermédiaire avec un sourire.
 
-« L'idée est excellente, frère Zhao. J'ai entendu dire que cette formation peut engendrer l'âme du Taureau Céleste. Je brûle d'envie de voir à quoi elle ressemble! » Le vieillard nommé Zhang sourit et hocha la tête. À leur niveau, ils avaient tout vu et ne mourraient pas si facilement. Pour eux, cette invasion n'était qu'un jeu.
+« L'idée est excellente, frère Zhao. J'ai entendu dire que cette formation peut engendrer l'âme du Tian Niu. Je brûle d'envie de voir à quoi elle ressemble! » Le vieillard nommé Zhang sourit et hocha la tête. À leur niveau, ils avaient tout vu et ne mourraient pas si facilement. Pour eux, cette invasion n'était qu'un jeu.
 
 Sur le plan mental, ils surpassaient Lu Wenran, mais un fossé immense les séparait encore du Souverain Céleste aux Sept Couleurs. Bien que leurs niveaux de culture fussent comparables, leur courage et leur sérénité faisaient défaut.
 
@@ -108,9 +108,9 @@ Les trois épées foncèrent aux côtés du géant.
 
 Mais alors que les épées et le colosse approchaient, un brouillard infini jaillit de la Prairie Ji Tian. Cette brume sombre enveloppa la majeure partie de la plaine et continua sa progression.
 
-Un rugissement sourd de taureau émana de la brume. Rapidement, ce brouillard massif prit la forme d'un Taureau Céleste, qui poussa un cri assourdissant vers le géant et les trois épées.
+Un rugissement sourd de taureau émana de la brume. Rapidement, ce brouillard massif prit la forme d'un Tian Niu, qui poussa un cri assourdissant vers le géant et les trois épées.
 
-Alors que l'écho du rugissement se propageait, le Taureau Céleste explosa soudainement. Le brouillard se propagea avec une rapidité fulgurante vers les cultivateurs du Continent Lu Mo!
+Alors que l'écho du rugissement se propageait, le Tian Niu explosa soudainement. Le brouillard se propagea avec une rapidité fulgurante vers les cultivateurs du Continent Lu Mo!
 
 Simultanément, dans les profondeurs de la terre, Lu Wenran, l'expression grave, poussa un cri de ralliement:
 

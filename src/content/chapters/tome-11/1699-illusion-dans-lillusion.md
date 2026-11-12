@@ -50,7 +50,7 @@ Wang Lin se leva silencieusement et agita la main droite. L'ombre antique se dis
 
 Le visage de Fan Shanlu était d'une pâleur mortelle tandis qu'elle repensait méticuleusement à chaque événement. Son expression devint progressivement sombre. Elle était certaine que les paroles de Wang Lin étaient vraies: elle était bel et bien tombée dans l'illusion de sa sœur!
 
-« Pour que votre sœur possède un sort d'illusion aussi puissant, je présume que la Secte Da Hun est célèbre pour ses sorts d'illusion sur le Continent Astral Immortel. Des illusions, toujours des illusions... » Wang Lin prit une profonde inspiration.
+« Pour que votre sœur possède un sort d'illusion aussi puissant, je présume que la Secte Da Hun est célèbre pour ses sorts d'illusion sur le Continent Xian Gang. Des illusions, toujours des illusions... » Wang Lin prit une profonde inspiration.
 
 Fan Shanlu réfléchit un instant, puis parla d'une voix douce, le regard complexe: « La Secte Da Hun est en effet renommée pour ses sorts d'illusion. Tout le monde n'est pas apte à les apprendre. Ma sœur possède ce talent et a déjà atteint le stade de la double illusion!
 
@@ -64,7 +64,7 @@ Fan Shanlu réfléchit un instant, puis parla d'une voix douce, le regard comple
 
 « Je vais prendre ce trésor! »
 
-À cet instant précis, sur le Continent Astral Immortel, au cœur d'une montagne gelée, la femme à l'intérieur ouvrit brusquement les yeux et cracha du sang. Ses yeux étaient écarquillés par le choc.
+À cet instant précis, sur le Continent Xian Gang, au cœur d'une montagne gelée, la femme à l'intérieur ouvrit brusquement les yeux et cracha du sang. Ses yeux étaient écarquillés par le choc.
 
 « Il a réellement brisé ma Grande Illusion Véritable des Âmes!! »
 

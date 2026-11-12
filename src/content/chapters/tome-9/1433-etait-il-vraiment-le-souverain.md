@@ -8,7 +8,7 @@ slug: etait-il-vraiment-le-souverain
 ---
 Une force inexplicable poussa Wang Lin à choisir, tout en l'empêchant de le faire, après avoir affronté ce dilemme indescriptible. Il se transforma en un rayon de lumière et s'éclipsa.
 
-Lanmeng Daozun l'avait déjà poussé à choisir une première fois, et l'Oiseau Vermillon de la première génération l'avait fait une seconde fois. Ces épreuves avaient permis à son cœur dao d'atteindre celui d'un maître d'une génération.
+Lanmeng Daozun l'avait déjà poussé à choisir une première fois, et Suzaku de la première génération l'avait fait une seconde fois. Ces épreuves avaient permis à son cœur dao d'atteindre celui d'un maître d'une génération.
 
 Plus important encore, s'il n'était pas entré dans la mémoire du Maître Simo pour y découvrir un homme ayant vécu une vie similaire mais ayant choisi un chemin différent, Wang Lin aurait peut-être choisi de rester... pour devenir l'esclave du Souverain... Les paroles du Souverain avaient touché le point faible de Wang Lin!
 
@@ -62,9 +62,9 @@ Après avoir réfléchi un instant, Wang Lin leva les yeux vers le ciel bleu et 
 
 Après avoir gravement blessé l'homme d'âge moyen au sein de la flamme aux sept couleurs, celui-ci avait admis être le Souverain. Cependant, une fois calmé, Wang Lin ne pouvait s'empêcher de douter.
 
-La culture de cet homme fluctuait, tantôt haute, tantôt basse. Il avait pu s'opposer à l'esprit originel de l'Oiseau Vermillon, utiliser la technique « Pêcher la Lune dans le Puits » et celle des Quatre Éléments, il connaissait le Maître Simo et savait qui était Wang Lin. Mis bout à bout, tous ces éléments pointaient vers le rusé Souverain.
+La culture de cet homme fluctuait, tantôt haute, tantôt basse. Il avait pu s'opposer à l'esprit originel de Suzaku, utiliser la technique « Pêcher la Lune dans le Puits » et celle des Quatre Éléments, il connaissait le Maître Simo et savait qui était Wang Lin. Mis bout à bout, tous ces éléments pointaient vers le rusé Souverain.
 
-« Sa culture est liée au feu et il possède l'Oiseau Vermillon aux sept couleurs. Il devrait être le traître du troisième Oiseau Vermillon... Mais est-il vraiment le Souverain...? » La raison pour laquelle Wang Lin avait supposé que le troisième Oiseau Vermillon était le Souverain était que ce dernier demeurait la figure la plus mystérieuse du Système Stellaire Antique. Personne ne savait à quel clan il appartenait!
+« Sa culture est liée au feu et il possède Suzaku aux sept couleurs. Il devrait être le traître du troisième Oiseau Vermillon... Mais est-il vraiment le Souverain...? » La raison pour laquelle Wang Lin avait supposé que le troisième Oiseau Vermillon était le Souverain était que ce dernier demeurait la figure la plus mystérieuse du Système Stellaire Antique. Personne ne savait à quel clan il appartenait!
 
 De plus, dans les Terre Yao Ling, Wang Lin avait rencontré un individu qui s'était avéré être le disciple du Souverain! Cet homme utilisait des sorts de feu! Ce sort n'était pas celui d'un cultivateur ordinaire; il était manifeste que cet homme touchait aux limites de l'essence du feu.
 

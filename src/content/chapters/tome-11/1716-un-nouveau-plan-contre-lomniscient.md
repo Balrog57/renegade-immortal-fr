@@ -26,7 +26,7 @@ En contemplant ce lieu, l'expression de Wang Lin perdit sa froideur. C'était un
 
 Beaucoup de personnes qu'il connaissait se trouvaient ici; il ne pouvait donc abandonner cet endroit.
 
-« La rivière argentée de la Rivière Zhao He contient de nombreuses restrictions, mais elle n'est pas assez puissante... » Auparavant, Wang Lin n'avait pas eu la capacité de renforcer ces restrictions, mais désormais, il le pouvait.
+« La rivière argentée de Zhao He He contient de nombreuses restrictions, mais elle n'est pas assez puissante... » Auparavant, Wang Lin n'avait pas eu la capacité de renforcer ces restrictions, mais désormais, il le pouvait.
 
 Wang Lin ne pénétra pas dans le Royaume Céleste mais resta à l'extérieur, fixant la rivière argentée. Après l'avoir observée un instant, les lignes de sang horizontales qui avaient disparu de son regard réapparurent, émettant une lueur rouge fantomatique.
 

@@ -30,17 +30,17 @@ Le regard de l'homme d'âge moyen resta imperturbable. Il leva un doigt, provoqu
 
 « Premier candidat, avancez! Si vous résistez, vous vivrez; sinon, vous mourrez! »
 
-Yao Xixue regarda Wang Lin: « Compagnon cultivateur Wang! »
+Yao Xixue regarda Wang Lin: « Daoïste Wang! »
 
-Wang Lin esquissa un léger sourire, recula de deux pas et secoua la tête: « Les paroles du compagnon cultivateur Yao sont mensongères. J'ai besoin de temps pour réfléchir! »
+Wang Lin esquissa un léger sourire, recula de deux pas et secoua la tête: « Les paroles du Daoïste Yao sont mensongères. J'ai besoin de temps pour réfléchir! »
 
 Yao Xixue le fixa: « Qu'est-ce qui est mensonger? »
 
 « Cet endroit ne possède pas dix-huit sceaux. S'il y a réellement des sceaux, il n'y en a que douze. Derrière cette porte se trouve la grotte! »
 
-Yao Xixue ricana. Elle s'était déjà attendue à ce que Wang Lin change d'avis au dernier moment. Sans l'ombre d'une panique, elle déclara: « Compagnon cultivateur Wang, il y a une chose que j'ai oublié de vous dire. J'espère que cela ne vous dérangera pas, mais il n'est pas trop tard pour vous en informer. Une fois entré ici, l'obtention de la marque dorée vous donne le droit de tenter l'épreuve pour accéder à la grotte. Cependant, une fois ce droit acquis, vous devez impérativement réussir, sans quoi vous mourrez! Croyez-le ou non, cela ne regarde que vous! »
+Yao Xixue ricana. Elle s'était déjà attendue à ce que Wang Lin change d'avis au dernier moment. Sans l'ombre d'une panique, elle déclara: « Daoïste Wang, il y a une chose que j'ai oublié de vous dire. J'espère que cela ne vous dérangera pas, mais il n'est pas trop tard pour vous en informer. Une fois entré ici, l'obtention de la marque dorée vous donne le droit de tenter l'épreuve pour accéder à la grotte. Cependant, une fois ce droit acquis, vous devez impérativement réussir, sans quoi vous mourrez! Croyez-le ou non, cela ne regarde que vous! »
 
-L'expression de Wang Lin trahit une certaine incertitude avant qu'il ne lance un regard empreint d'impuissance et un sourire amer à Yao Xixue: « Le compagnon cultivateur Yao possède la Pilule de l'Âme Sanguine, elle n'a donc naturellement aucune inquiétude. Quel beau plan! »
+L'expression de Wang Lin trahit une certaine incertitude avant qu'il ne lance un regard empreint d'impuissance et un sourire amer à Yao Xixue: « Le Daoïste Yao possède la Pilule de l'Âme Sanguine, elle n'a donc naturellement aucune inquiétude. Quel beau plan! »
 
 L'homme d'âge moyen observa froidement Yao Xixue et Wang Lin, sans montrer le moindre signe d'impatience.
 
@@ -48,9 +48,9 @@ Yao Xixue reprit: « Si vous m'aidez à entrer dans la grotte, votre vie ne sera
 
 Wang Lin réfléchit un instant et dit: « Puisque les choses en sont arrivées là, j'agirai, mais je veux savoir précisément ce qu'est cet endroit! »
 
-Yao Xixue sourit: « Cet endroit est une grotte laissée par un certain être céleste. Mon père a obtenu cette information par accident auprès d'un empereur démon. Cette demeure est déserte depuis de nombreuses années; nombre de ses sorts ont disparu, ne laissant que cet esprit de la grotte. Vous devez être un cultivateur Ascendant pour résister aux trois rayons d'énergie de l'épée. Voilà, je vous ai dit tout ce que je devais dire. Alors, compagnon cultivateur Wang, agissez! »
+Yao Xixue sourit: « Cet endroit est une grotte laissée par un certain être céleste. Mon père a obtenu cette information par accident auprès d'un empereur démon. Cette demeure est déserte depuis de nombreuses années; nombre de ses sorts ont disparu, ne laissant que cet esprit de la grotte. Vous devez être un cultivateur Ascendant pour résister aux trois rayons d'énergie de l'épée. Voilà, je vous ai dit tout ce que je devais dire. Alors, Daoïste Wang, agissez! »
 
-Wang Lin déclara d'un ton solennel: « Une énergie d'épée qu'un seul cultivateur Ascendant peut supporter? Je ne suis qu'au stade intermédiaire de la Transformation de l'Âme; le compagnon cultivateur Yao me fait vraiment trop d'honneur. »
+Wang Lin déclara d'un ton solennel: « Une énergie d'épée qu'un seul cultivateur Ascendant peut supporter? Je ne suis qu'au stade intermédiaire de la Transformation de l'Âme; le Daoïste Yao me fait vraiment trop d'honneur. »
 
 Le visage de Yao Xixue se glaça et elle rétorqua froidement: « Wang Lin, si nous ne pouvons pas entrer dans la grotte, j'ai la Pilule de l'Âme Sanguine, mais vous, vous mourrez à coup sûr! »
 

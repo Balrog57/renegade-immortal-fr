@@ -28,7 +28,7 @@ Leurs vêtements leur donnaient des airs de sauvages, mais l'aura qui émanait d
 
 Après eux vinrent les cultivateurs qui existaient avant la destruction des quatre Royaumes Célestes — les êtres célestes de ces quatre royaumes!
 
-Bien qu'ils ne fussent pas de véritables êtres célestes du Continent Astral Immortel, ils étaient, aux yeux de Wang Lin, de véritables divinités! D'innombrables êtres s'étaient éteints en tentant de quitter la Formation de Scellement du Royaume.
+Bien qu'ils ne fussent pas de véritables êtres célestes du Continent Xian Gang, ils étaient, aux yeux de Wang Lin, de véritables divinités! D'innombrables êtres s'étaient éteints en tentant de quitter la Formation de Scellement du Royaume.
 
 Lors des multiples invasions du Royaume Extérieur, beaucoup tombèrent. Bien que Wang Lin gardât la tête inclinée, il pouvait ressentir ces âmes funèbres.
 
@@ -64,7 +64,7 @@ Ils apparurent progressivement devant Wang Lin. À l'instar des martyrs qui les 
 
 Cette scène provoqua une onde de choc dans l'esprit de tous ceux qui en furent témoins. Wang Lin resta figé dans sa révérence.
 
-Après ces âmes célestes vinrent les compagnons cultivateurs tombés durant cette guerre de cent ans. De nombreux visages, familiers ou inconnus, apparurent. Tous s'inclinèrent devant Wang Lin avant de se ruer dans la formation sans l'ombre d'une hésitation!
+Après ces âmes célestes vinrent les Daoïstes tombés durant cette guerre de cent ans. De nombreux visages, familiers ou inconnus, apparurent. Tous s'inclinèrent devant Wang Lin avant de se ruer dans la formation sans l'ombre d'une hésitation!
 
 Certains avaient été les ennemis de Wang Lin, d'autres ses proches, mais en cet instant, ils utilisaient leurs dernières forces pour protéger le Royaume Intérieur!
 

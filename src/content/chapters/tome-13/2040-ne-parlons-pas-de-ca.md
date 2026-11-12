@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: "Chapter 2040 - Don’t Talk About It!"
 slug: ne-parlons-pas-de-ca
 ---
-Alors que l'ensemble du Continent Astral Immortel alternait entre l'ombre et la lumière, au Mont Di, le Grand Empyréen Jiu Di sortit de sa retraite en porte clos. Il scruta l'horizon et son expression changea.
+Alors que l'ensemble du Continent Xian Gang alternait entre l'ombre et la lumière, au Mont Di, le Grand Empyréen Jiu Di sortit de sa retraite en porte clos. Il scruta l'horizon et son expression changea.
 
 « C'est donc bien le Royaume Divin Immémorial... Il s'ouvre depuis le Clan Ancien cette fois... Et bien plus tôt que prévu... L'ouverture du Royaume Divin Immémorial ne devrait pas se produire si tôt. Cela signifie que... »
 
@@ -46,7 +46,7 @@ Dans la zone centrale, là où les trois pays du Clan Ancien se rejoignaient, un
 
 « Tous les êtres doivent traverser d'innombrables tribulations... Quitter l'abîme d'une seule obsession... Suivre le décret et pratiquer la véritable cultivation... » murmura la silhouette floue.
 
-Après que le ciel du Continent Astral Immortel eut basculé dans la nuit pour la huitième fois avant de revenir à la normale, le dernier vortex au-dessus de la montagne disparut. Cependant, les huit piliers restaient dressés au-dessus de la mer immense; peu importait la violence des vagues qui s'écrasaient contre eux, ils ne bougeaient pas.
+Après que le ciel du Continent Xian Gang eut basculé dans la nuit pour la huitième fois avant de revenir à la normale, le dernier vortex au-dessus de la montagne disparut. Cependant, les huit piliers restaient dressés au-dessus de la mer immense; peu importait la violence des vagues qui s'écrasaient contre eux, ils ne bougeaient pas.
 
 Dans le cercle formé par les huit piliers, la mer se transformait progressivement en brume, tandis qu'au-delà, elle demeurait liquide.
 
@@ -58,7 +58,7 @@ Sa voix ressemblait au murmure de foules innombrables, mais il était impossible
 
 À l'instant même où ses mots résonnèrent, la formation libéra une lumière infinie. Puis, d'immenses filets apparurent dans cet espace! C'était le filet que Wang Lin avait brisé lorsqu'il tentait d'entrer dans cet espace! Cependant, tandis que la lumière de la formation scintillait, des fissures se propagèrent sur les mailles.
 
-L'Ancien Maître Impérial du Dao avait utilisé une méthode pour téléporter la formation hors de son espace initial afin de la projeter sur le Continent Astral Immortel!
+L'Ancien Maître Impérial du Dao avait utilisé une méthode pour téléporter la formation hors de son espace initial afin de la projeter sur le Continent Xian Gang!
 
 Il faut préciser que la formation à l'intérieur de la montagne désertée n'était qu'une illusion. Wang Lin avait déployé toute sa puissance pour briser la frontière et pénétrer cet espace; désormais, la formation utilisait cette même méthode pour s'en extraire et devenir réelle!
 
@@ -66,19 +66,19 @@ Et ce qui émergea avec elle fut l'avatar de massacre de Wang Lin! À cet instan
 
 Cette scène fit briller les yeux de Wang Lin.
 
-Lorsque la formation perça la frontière pour atteindre le Continent Astral Immortel, l'Ancien Maître Impérial du Dao poussa un rugissement. Une lumière aux dix couleurs jaillit de la formation et s'élança vers les cieux. De loin, on aurait dit qu'elle formait un neuvième pilier!
+Lorsque la formation perça la frontière pour atteindre le Continent Xian Gang, l'Ancien Maître Impérial du Dao poussa un rugissement. Une lumière aux dix couleurs jaillit de la formation et s'élança vers les cieux. De loin, on aurait dit qu'elle formait un neuvième pilier!
 
 L'avatar de massacre de Wang Lin recula de quelques pas pour fusionner avec le corps original de celui-ci tandis que la lumière s'élevait. Wang Lin apparut aux côtés du faisceau et observa cette ascension vers les cieux. Il ressentit clairement la force indescriptible et terrifiante qui en émanait.
 
 À l'intérieur du pilier de lumière, l'Ancien Maître Impérial du Dao rugit: « Neuvième pilier, ouvre le Royaume Divin Immémorial! » Le pilier de lumière s'élança vers le ciel et se dirigea vers la mer immense séparant le Clan Ancien du Clan Céleste.
 
-Au milieu de l'océan, dans le cercle formé par les huit piliers, un rayon de lumière jaillit de l'horizon et le neuvième pilier apparut en son centre. Le ciel changea de teinte et des ondulations se propagèrent dans l'éther. Bientôt, la voûte céleste du Continent Astral Immortel fut entièrement parcourue de rides.
+Au milieu de l'océan, dans le cercle formé par les huit piliers, un rayon de lumière jaillit de l'horizon et le neuvième pilier apparut en son centre. Le ciel changea de teinte et des ondulations se propagèrent dans l'éther. Bientôt, la voûte céleste du Continent Xian Gang fut entièrement parcourue de rides.
 
 La mer tout entière entra en effervescence tandis que le neuvième pilier descendait vers le centre du cercle formé par les huit autres piliers.
 
 Au moment de son assaut, une scène se déploya. Elle ébranla le cœur de tous ceux qui furent témoins de ce prodige, les plongeant dans l'incrédulité.
 
-L'océan infini laissa échapper un grondement puissant qui résonna sur tout le Continent Astral Immortel, puis la vaste mer commença à s'élever lentement! C'était comme si une main gigantesque utilisait un sortilège colossal pour soulever l'immensité des eaux!
+L'océan infini laissa échapper un grondement puissant qui résonna sur tout le Continent Xian Gang, puis la vaste mer commença à s'élever lentement! C'était comme si une main gigantesque utilisait un sortilège colossal pour soulever l'immensité des eaux!
 
 Il était impossible de décrire la magnitude de cette mer, mais soulever l'océan tout entier n'était pas l'apanage d'un Grand Empyréen. Même le Grand Empyréen Gu Dao ne pouvait en être capable.
 
@@ -88,7 +88,7 @@ La montée des eaux se poursuivit, dépassant bientôt les terres du Clan Ancien
 
 À cet instant précis, la mer sans fin bascula comme une paume que l'on redresserait soudainement! La mer s'éleva de telle sorte que sa profondeur devint sa largeur, et sa largeur devint sa profondeur. Cette scène était proprement inconcevable! Les neuf piliers dans le ciel se retrouvèrent au centre de la mer!
 
-L'océan ressemblait désormais à un mur titanesque séparant le Clan Céleste du Clan Ancien. Il semblait sans fin, presque comme une illusion. On ne savait plus si c'était le Continent Astral Immortel qui s'était retourné alors que la mer demeurait stable, ou si la mer avait bougé tandis que le continent restait immobile. Ce spectacle bouleversant donnait l'impression que le ciel lui-même avait été inversé.
+L'océan ressemblait désormais à un mur titanesque séparant le Clan Céleste du Clan Ancien. Il semblait sans fin, presque comme une illusion. On ne savait plus si c'était le Continent Xian Gang qui s'était retourné alors que la mer demeurait stable, ou si la mer avait bougé tandis que le continent restait immobile. Ce spectacle bouleversant donnait l'impression que le ciel lui-même avait été inversé.
 
 Les neuf piliers au centre de la mer commencèrent à pivoter lentement, gagnant en vitesse. De loin, ils ressemblaient à une tempête reliant le ciel et la terre. On pouvait vaguement distinguer les neuf piliers briller au cœur de la tempête, formant une porte gigantesque!
 

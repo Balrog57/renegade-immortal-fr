@@ -1,6 +1,6 @@
 ---
 n: 1341
-title: Je suis la Rétribution Divine
+title: Je suis la Tribulation Céleste
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1341 - I’m Divine Retribution
@@ -8,11 +8,11 @@ slug: je-suis-la-retribution-divine
 ---
 Des grondements tonitruants résonnèrent, et les milliers de cultivateurs repoussés poussèrent des cris plaintifs. Ils contemplèrent le ciel, l'expression stupéfaite, et restèrent sans voix pendant un long moment.
 
-Les nuages de la rétribution divine disparurent progressivement. Zhang Jingyun, n'en ayant pas assez, retourna dans les nuages.
+Les nuages de la Tribulation Céleste disparurent progressivement. Zhang Jingyun, n'en ayant pas assez, retourna dans les nuages.
 
 « Désolé, désolé, cela faisait longtemps que je n'avais pas incarné le Dao Céleste et je n'ai pas su me retenir et j'ai anéanti ces fourmis du royaume inférieur... C'est dommage qu'il ait cultivé jusqu'au sommet du stade de la Formation de l'Âme, mais il est tout simplement trop médiocre pour avoir donné naissance au moindre Tonnerre Spirituel. » Zhang Jingyun secoua la tête, savourant encore la sensation.
 
-« Peu importe. Il y a de nombreuses opportunités dans les 7 Millions de Mondes, et la naissance du Tonnerre Spirituel n'est pas aisée. Il y en aura d'autres plus tard; traitons d'abord ces nouveaux venus. » Le cultivateur nommé Zhou agita froidement sa main droite vers le bas, faisant déferler les nuages de rétribution divine qui masquèrent tout ce qui se trouvait en dessous. Puis, il lança un regard froid à Wang Lin et son groupe.
+« Peu importe. Il y a de nombreuses opportunités dans les 7 Millions de Mondes, et la naissance du Tonnerre Spirituel n'est pas aisée. Il y en aura d'autres plus tard; traitons d'abord ces nouveaux venus. » Le cultivateur nommé Zhou agita froidement sa main droite vers le bas, faisant déferler les nuages de Tribulation Céleste qui masquèrent tout ce qui se trouvait en dessous. Puis, il lança un regard froid à Wang Lin et son groupe.
 
 Il n'était pas le seul. Outre le cultivateur à l'aura Yin Illusoire qui se tenait à l'écart, les yeux clos, les quatre personnes, dont Zhang Jingyun, encerclèrent Wang Lin et près de dix autres cultivateurs.
 
@@ -30,7 +30,7 @@ Des cris déchirants résonnèrent. Le cultivateur nommé Zhou était extrêmeme
 
 La chair et le sang éclaboussèrent partout, et une odeur nauséabonde se répandit!
 
-Celui qui attaqua Wang Lin était Zhang Jingyun, dont l'apparence était auparavant douce. Il semblait ne pas encore être revenu de son état de Dao Céleste, et du mépris brillait dans ses yeux. Avec morgue, il forma un sceau et créa un tonnerre semblable à la rétribution divine.
+Celui qui attaqua Wang Lin était Zhang Jingyun, dont l'apparence était auparavant douce. Il semblait ne pas encore être revenu de son état de Dao Céleste, et du mépris brillait dans ses yeux. Avec morgue, il forma un sceau et créa un tonnerre semblable à la Tribulation Céleste.
 
 « Fourmi du royaume inférieur, remets-moi ton Tonnerre Spirituel et meurs! » Une lueur de plaisir traversa son expression tordue alors qu'il chargeait Wang Lin!
 
@@ -38,7 +38,7 @@ L'expression de Wang Lin resta calme tandis qu'il tendait la main droite. Le vis
 
 « Tu... Tu... » Sa voix tremblait alors qu'il contemplait Wang Lin avec terreur. Avant qu'il ne puisse prononcer un mot, un impact qui lui fit perdre la raison s'engouffra dans son corps. Son corps fut secoué et il poussa un cri déchirant qui frappa les oreilles des cultivateurs environnants!
 
-« Se prétendre le Dao Céleste et infliger la rétribution divine aux autres... Mais en cet instant, je suis votre Dao Céleste, je suis votre Rétribution Divine! » La voix de Wang Lin était glaciale et empreinte d'un sentiment inexplicable alors qu'il pressait sa poigne impitoyablement!
+« Se prétendre le Dao Céleste et infliger la Tribulation Céleste aux autres... Mais en cet instant, je suis votre Dao Céleste, je suis votre Tribulation Céleste! » La voix de Wang Lin était glaciale et empreinte d'un sentiment inexplicable alors qu'il pressait sa poigne impitoyablement!
 
 Dans un fracas, la chair de Zhang Jingyun s'effondra en un amas sanglant. Tout comme le vieil homme, son corps fut broyé et son âme fut détruite!
 
@@ -60,11 +60,11 @@ Pourtant, ce qui les attendait était le regard écarlate de Wang Lin. Un éclai
 
 Le Royaume Ji!
 
-La majeure partie du Royaume Ji résidait dans le corps originel de Wang Lin, et il n'en restait qu'une infime fraction dans ce corps qu'il avait saisi par son âme originelle. Néanmoins, il l'utilisa car le Royaume Ji était la Rétribution Divine elle-même!
+La majeure partie du Royaume Ji résidait dans le corps originel de Wang Lin, et il n'en restait qu'une infime fraction dans ce corps qu'il avait saisi par son âme originelle. Néanmoins, il l'utilisa car le Royaume Ji était la Tribulation Céleste elle-même!
 
-« Puisque je suis la Rétribution Divine, j'utiliserai naturellement la rétribution divine pour vous anéantir tous! » L'éclair rouge jaillit directement vers un cultivateur. Ses yeux s'illuminèrent d'une lueur rouge et il poussa un cri déchirant. En un éclair, la foudre traversa son corps et détruisit tout. Il s'effondra comme le vieil homme mort sous la rétribution divine!
+« Puisque je suis la Tribulation Céleste, j'utiliserai naturellement la Tribulation Céleste pour vous anéantir tous! » L'éclair rouge jaillit directement vers un cultivateur. Ses yeux s'illuminèrent d'une lueur rouge et il poussa un cri déchirant. En un éclair, la foudre traversa son corps et détruisit tout. Il s'effondra comme le vieil homme mort sous la Tribulation Céleste!
 
-« Se prendre pour le Dao Céleste... Quelle absurdité. Si vous êtes le Dao Céleste, alors je suis la Rétribution Divine qui exterminera les cieux! » Tandis que Wang Lin parlait, l'éclair rouge transperça le premier cultivateur et chargea vers le second. Ce dernier, les yeux emplis de terreur, frappa la marque entre ses sourcils et sortit tous ses trésors. Une folie aveugle brilla dans son regard lorsqu'il choisit l'autodestruction!
+« Se prendre pour le Dao Céleste... Quelle absurdité. Si vous êtes le Dao Céleste, alors je suis la Tribulation Céleste qui exterminera les cieux! » Tandis que Wang Lin parlait, l'éclair rouge transperça le premier cultivateur et chargea vers le second. Ce dernier, les yeux emplis de terreur, frappa la marque entre ses sourcils et sortit tous ses trésors. Une folie aveugle brilla dans son regard lorsqu'il choisit l'autodestruction!
 
 Cependant, même le Maître Zhou Tian n'aurait pu s'autodétruire devant Wang Lin, encore moins ce petit cultivateur Ascendant!
 
@@ -80,15 +80,15 @@ Au moment où le corps toucha terre, Wang Lin s'empara de la marque de clan!
 
 Les milliers de cultivateurs, plongés dans la douleur, assistèrent à une scène qu'ils n'oublieraient jamais. Un corps dégageant une énergie spirituelle céleste, le corps d'un être céleste!
 
-Un être céleste qui, alors qu'il se tenait simplement au milieu des nuages de rétribution divine, tomba du ciel. C'était comme si un voile avait été levé et que l'énergie spirituelle céleste entourant le corps s'évaporait. Ce cadavre était semblable à eux; ce n'était pas un être céleste!
+Un être céleste qui, alors qu'il se tenait simplement au milieu des nuages de Tribulation Céleste, tomba du ciel. C'était comme si un voile avait été levé et que l'énergie spirituelle céleste entourant le corps s'évaporait. Ce cadavre était semblable à eux; ce n'était pas un être céleste!
 
 C'était un cultivateur!
 
 Une marque sanglante marquait le front du cadavre gisant sur la terre. La peur restait figée dans ses yeux.
 
-Wang Lin sortit des nuages de rétribution divine et lança un regard froid à la foule en contrebas: « Voilà votre être céleste! » Puis, d'un pas, il disparut du monde. Pourtant, sa silhouette resta à jamais gravée dans le cœur de ces cultivateurs!
+Wang Lin sortit des nuages de Tribulation Céleste et lança un regard froid à la foule en contrebas: « Voilà votre être céleste! » Puis, d'un pas, il disparut du monde. Pourtant, sa silhouette resta à jamais gravée dans le cœur de ces cultivateurs!
 
-Même longtemps après le départ de Wang Lin, ces cultivateurs n'avaient toujours pas surmonté le choc. Aujourd'hui, ils avaient non seulement vu leur ancêtre être anéanti par la rétribution divine, mais ils avaient aussi vu le cadavre d'un être céleste choir. Ils avaient vu celui qui possédait la puissance de tuer un être céleste et entendu ses paroles chargées de dérision. Mais plus encore, ces mots étaient empreints d'une profonde autodérision!
+Même longtemps après le départ de Wang Lin, ces cultivateurs n'avaient toujours pas surmonté le choc. Aujourd'hui, ils avaient non seulement vu leur ancêtre être anéanti par la Tribulation Céleste, mais ils avaient aussi vu le cadavre d'un être céleste choir. Ils avaient vu celui qui possédait la puissance de tuer un être céleste et entendu ses paroles chargées de dérision. Mais plus encore, ces mots étaient empreints d'une profonde autodérision!
 
 Les cultivateurs s'approchèrent du cadavre et le contemplèrent...
 

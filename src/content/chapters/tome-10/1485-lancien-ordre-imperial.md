@@ -12,7 +12,7 @@ La puissance d'un seul coup de poing avait pulvérisé toutes les montagnes de l
 
 Le gouffre béant et l'effondrement des terres du nord donnaient l'impression que la pluie était composée des larmes de la planète Dong Lin.
 
-Le Tremblement Divin de l'Ordre Antique ne faisait pas seulement trembler la terre, il faisait aussi trembler les cœurs!
+Le Tremblement Divin de Dao Gu ne faisait pas seulement trembler la terre, il faisait aussi trembler les cœurs!
 
 Dans le sud, la famille Xu était sous le choc. La panique et le désespoir se lisaient dans leurs yeux. Même le chef de la famille et les différents Anciens étaient stupéfaits.
 

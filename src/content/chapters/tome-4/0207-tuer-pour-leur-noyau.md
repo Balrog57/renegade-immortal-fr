@@ -100,27 +100,27 @@ Le second démon s'était déjà retiré dès qu'il avait pressenti l'anomalie. 
 
 En voyant le pilier rouge via le second démon, une phrase surgit soudainement dans l'esprit de Wang Lin, issue de ses souvenirs hérités:
 
-« La Rétribution Divine... »
+« La Tribulation Céleste... »
 
-Wang Lin marmonnait pour lui-même tout en parcourant ses souvenirs à la recherche de toute mention de la rétribution divine. Durant sa vie, l'Ancien Dieu Tu Si en avait affronté d'innombrables.
+Wang Lin marmonnait pour lui-même tout en parcourant ses souvenirs à la recherche de toute mention de la Tribulation Céleste. Durant sa vie, l'Ancien Dieu Tu Si en avait affronté d'innombrables.
 
-Au début, Tu Si s'en inquiétait. Mais après que son corps eut été reconstruit quatre fois, la rétribution divine cessa d'être une menace pour devenir un véritable complément de culture.
+Au début, Tu Si s'en inquiétait. Mais après que son corps eut été reconstruit quatre fois, la Tribulation Céleste cessa d'être une menace pour devenir un véritable complément de culture.
 
-De plus, chaque fois que l'Ancien Dieu forgeait un trésor, cela déclenchait une rétribution divine; parfois, il se servait même de la force de cette rétribution pour juger de la qualité du trésor magique qu'il forgeait.
+De plus, chaque fois que l'Ancien Dieu forgeait un trésor, cela déclenchait une Tribulation Céleste; parfois, il se servait même de la force de cette rétribution pour juger de la qualité du trésor magique qu'il forgeait.
 
 Plus la rétribution était forte, plus le trésor était puissant; si elle était trop faible, cela signifiait que le trésor manquait de potentiel.
 
-Bien sûr, ce n'était qu'une estimation très approximative et souvent erronée. Par exemple, le drapeau de restriction créé par Wang Lin ne pouvait absolument pas être comparé à une rétribution divine.
+Bien sûr, ce n'était qu'une estimation très approximative et souvent erronée. Par exemple, le drapeau de restriction créé par Wang Lin ne pouvait absolument pas être comparé à une Tribulation Céleste.
 
-La véritable cause de cette rétribution provenait de la pierre d'encre. Cette pierre était restée trop longtemps dans le corps de l'Ancien Dieu et s'était imprégnée d'une trace de son aura. C'est pourquoi la rétribution divine, absente du monde de la culture depuis si longtemps, réapparaissait maintenant.
+La véritable cause de cette rétribution provenait de la pierre d'encre. Cette pierre était restée trop longtemps dans le corps de l'Ancien Dieu et s'était imprégnée d'une trace de son aura. C'est pourquoi la Tribulation Céleste, absente du monde de la culture depuis si longtemps, réapparaissait maintenant.
 
-De même, comme la rétribution divine ne s'était pas manifestée depuis des éons, bien qu'elle n'ait été déclenchée que par la création d'un trésor magique, elle contenait une puissance inimaginable.
+De même, comme la Tribulation Céleste ne s'était pas manifestée depuis des éons, bien qu'elle n'ait été déclenchée que par la création d'un trésor magique, elle contenait une puissance inimaginable.
 
-Toutes ces informations traversèrent l'esprit de Wang Lin. Il réalisa que c'était le drapeau de restriction qui avait provoqué la rétribution divine.
+Toutes ces informations traversèrent l'esprit de Wang Lin. Il réalisa que c'était le drapeau de restriction qui avait provoqué la Tribulation Céleste.
 
 Sans un mot, il se précipita dans sa grotte. Le drapeau y flottait toujours. Il commença à exécuter de nombreuses techniques pour tenter de le ranger.
 
-D'après ses souvenirs hérités, si ce drapeau était frappé par la rétribution divine, il serait réduit en poussière.
+D'après ses souvenirs hérités, si ce drapeau était frappé par la Tribulation Céleste, il serait réduit en poussière.
 
 Wang Lin ne permettrait pas que le trésor pour lequel il avait tant travaillé soit détruit ainsi. Il multiplia les techniques pour essayer de sauver l'objet.
 
@@ -148,17 +148,17 @@ Cependant, après la destruction de l'instrument, une petite quantité de fil ro
 
 Le corps de Wang Lin trembla et il cracha plusieurs bouches de sang. Même le noyau dans son corps rétrécit considérablement. Ce n'est que grâce à cela qu'il parvint à contenir l'énergie explosive du fil rouge.
 
-Le visage de Wang Lin était livide. Toute l'énergie spirituelle de son corps était plongée dans un chaos total, et il ne comptait plus que sur son noyau pour contenir la force destructrice du fil. Il savait que son temps était compté: s'il ne parvenait pas à retirer ce fil rapidement, son noyau absorberait toute son énergie spirituelle jusqu'à l'effondrement. Son corps suivrait, et même son âme ne pourrait échapper au pouvoir de la rétribution divine.
+Le visage de Wang Lin était livide. Toute l'énergie spirituelle de son corps était plongée dans un chaos total, et il ne comptait plus que sur son noyau pour contenir la force destructrice du fil. Il savait que son temps était compté: s'il ne parvenait pas à retirer ce fil rapidement, son noyau absorberait toute son énergie spirituelle jusqu'à l'effondrement. Son corps suivrait, et même son âme ne pourrait échapper au pouvoir de la Tribulation Céleste.
 
 Actuellement, de nombreux cultivateurs fuyaient la ville de Qi Lin, personne ne remarqua donc l'état anormal de Wang Lin. Ils étaient tous dispersés dans toutes les directions.
 
 La ville de Qi Lin était totalement anéantie.
 
-À ce moment-là, une pluie noire commença à tomber du ciel. Toute la brume qui s'était évaporée en nuages commença à se condenser après le passage de la rétribution divine.
+À ce moment-là, une pluie noire commença à tomber du ciel. Toute la brume qui s'était évaporée en nuages commença à se condenser après le passage de la Tribulation Céleste.
 
 Bien que ce fût une pluie noire, c'était la première fois qu'il pleuvait dans la Mer Xiu Mo depuis que l'eau s'était transformée en brume.
 
-Cette rétribution divine avait apporté un changement majeur à la Mer Xiu Mo. Si elle avait tué certaines créatures vivant dans la brume, beaucoup d'autres avaient réussi à s'échapper.
+Cette Tribulation Céleste avait apporté un changement majeur à la Mer Xiu Mo. Si elle avait tué certaines créatures vivant dans la brume, beaucoup d'autres avaient réussi à s'échapper.
 
 Même certaines bêtes puissantes qui résidaient dans la brume apparurent désormais en pleine mer. La Mer Xiu Mo gagnerait à être renommée le Bassin des Démons.
 
@@ -200,7 +200,7 @@ Bien que Wang Lin soit déjà parti, Sun Fan n'osa plus bouger. Le regard de ce 
 
 L'apparence démoniaque de ce jeune homme allait le hanter toute sa vie. Même sept cents ans plus tard, alors qu'il avait enfin atteint son rêve de l'Âme Naissante, il était encore terrifié au souvenir de ce jeune homme et en faisait des cauchemars nocturnes.
 
-Dans une zone au nord, deux petites écoles se disputaient le noyau d'une bête tuée par la rétribution divine. Épées volantes et techniques saturaient le ciel dans un combat acharné.
+Dans une zone au nord, deux petites écoles se disputaient le noyau d'une bête tuée par la Tribulation Céleste. Épées volantes et techniques saturaient le ciel dans un combat acharné.
 
 Alors que les cultivateurs étaient en plein affrontement, un jeune homme aux cheveux blancs apparut. Sans dire un mot, les yeux rougis comme ceux d'un démon, des éclairs rouges jaillirent pour foudroyer les combattants des deux camps.
 
@@ -278,7 +278,7 @@ Le visage de l'homme d'âge moyen changea pour la première fois. Il devint sér
 
 À ses yeux, un tel trésor ne pouvait appartenir qu'à quelqu'un doté de puissants antécédents; un simple cultivateur de la Formation du Noyau ne pouvait posséder une telle chose. Une pointe d'avidité s'insinua dans son cœur.
 
-Les yeux de Wang Lin s'illuminèrent. La puissance du drapeau valait bien le prix de la rétribution divine. Ce n'était qu'un drapeau aux propriétés mixtes; à propriété unique, il serait encore plus redoutable.
+Les yeux de Wang Lin s'illuminèrent. La puissance du drapeau valait bien le prix de la Tribulation Céleste. Ce n'était qu'un drapeau aux propriétés mixtes; à propriété unique, il serait encore plus redoutable.
 
 Il regarda froidement l'homme. La situation était critique: lors de leur combat, son énergie spirituelle s'était déstabilisée et son noyau avait encore rétréci. S'il ne réglait pas cela vite, son noyau s'effondrerait.
 
@@ -392,4 +392,4 @@ Qiu Siping leva les yeux et murmura: « Je suis né dans la Mer Xiu Mo et j'y vi
 
 Wang Lin allait répondre quand son regard fut capté par une silhouette au loin. Après quelques grondements, une tortue gigantesque apparut à l'horizon. Sur son dos, un vieil homme pointait le ciel en jurant copieusement. Sa voix parvint jusqu'à eux:
 
-« Ce vieux fou n'en a pas fini avec toi, maudite rétribution divine! Continuons avec ton 37 863e crime... »
+« Ce vieux fou n'en a pas fini avec toi, maudite Tribulation Céleste! Continuons avec ton 37 863e crime... »

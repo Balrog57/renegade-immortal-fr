@@ -56,11 +56,11 @@ Une intention meurtrière se propagea alors qu'un Tigre Blanc chargeait en rugis
 
 Les Quatre Esprits de la Tribulation Céleste!
 
-« C'étaient donc les Quatre Divinités! Oiseau Vermillon, reviens! » Les yeux de Wang Lin brillèrent et il sourit en pointant l'Oiseau Vermillon. La créature trembla et poussa un cri. Elle se libéra des trois autres pour charger vers Wang Lin.
+« C'étaient donc les Quatre Divinités! Oiseau Vermillon, reviens! » Les yeux de Wang Lin brillèrent et il sourit en pointant Suzaku. La créature trembla et poussa un cri. Elle se libéra des trois autres pour charger vers Wang Lin.
 
-Elle le rejoignit en un instant et l'encercla dans des rugissements d'exultation. Simultanément, un motif d'Oiseau Vermillon apparut sur le corps de dieu ancien de Wang Lin. En résonnant avec lui, l'Oiseau Vermillon fusionna avec Wang Lin et des flammes jaillirent dans le vide.
+Elle le rejoignit en un instant et l'encercla dans des rugissements d'exultation. Simultanément, un motif de Suzaku apparut sur le corps de dieu ancien de Wang Lin. En résonnant avec lui, Suzaku fusionna avec Wang Lin et des flammes jaillirent dans le vide.
 
-Après avoir absorbé le feu des Huit Diagrammes, des Cinq Éléments et de l'Oiseau Vermillon, le feu intérieur de Wang Lin avait atteint un sommet prodigieux!
+Après avoir absorbé le feu des Huit Diagrammes, des Cinq Éléments et de Suzaku, le feu intérieur de Wang Lin avait atteint un sommet prodigieux!
 
 L'Oiseau Vermillon en lui s'était déjà éveillé trois fois, et à chaque réveil, sa compréhension du feu augmentait considérablement. Ces trois éveils avaient porté sa maîtrise du feu à un niveau inimaginable et avaient donné naissance à des essences!
 
@@ -72,7 +72,7 @@ Le feu se divisait en deux. L'un était le feu corporel, englobant de multiples 
 
 La colère est une forme de feu éthéré. Elle n'a pas de forme physique, mais elle peut surpasser toutes les flammes du monde. C'est une sorte de Dao, un esprit, et aussi un domaine!
 
-Si Wang Lin pouvait éveiller l'Oiseau Vermillon une quatrième fois pour atteindre le royaume du feu éthéré, alors même si quelqu'un n'avait jamais cultivé de sorts de feu, Wang Lin pourrait enflammer la colère de cette personne. Il pourrait alors le consumer jusqu'à la mort par le feu de la colère!
+Si Wang Lin pouvait éveiller Suzaku une quatrième fois pour atteindre le royaume du feu éthéré, alors même si quelqu'un n'avait jamais cultivé de sorts de feu, Wang Lin pourrait enflammer la colère de cette personne. Il pourrait alors le consumer jusqu'à la mort par le feu de la colère!
 
 Le feu le plus puissant au monde est celui de la colère. Tout le monde le possède, et il est invisible. Si l'on ne parvient pas à le maîtriser, on meurt sans aucun doute!
 

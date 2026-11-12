@@ -10,7 +10,7 @@ Dès l'instant où la goutte de sang rouge apparut, une flamme qui semblait ne p
 
 Finalement, cette flamme, dont l'existence même défiait les lois de ce monde, convergea vers la partie sud du ciel pour prendre la forme d'un Oiseau Vermillon. Celui-ci poussa un cri et surplomba l'assemblée avec une pointe de noblesse.
 
-Simultanément, les divers anciens de la Secte Divine du Dragon Azure, aux côtés de l'Empereur Divin de l'Oiseau Vermillon, échangèrent des regards. L'ancien situé en tête, dont la robe était brodée de neuf Dragons Azure, prit une profonde inspiration et forma un sceau devant sa poitrine. Il laissa alors échapper un rugissement tandis qu'une aura puissante se propageait.
+Simultanément, les divers anciens de la Secte Divine du Dragon Azure, aux côtés de l'Empereur Divin de Suzaku, échangèrent des regards. L'ancien situé en tête, dont la robe était brodée de neuf Dragons Azure, prit une profonde inspiration et forma un sceau devant sa poitrine. Il laissa alors échapper un rugissement tandis qu'une aura puissante se propageait.
 
 Au même instant, une expression de douleur marqua son visage alors que les vêtements autour de sa poitrine fondaient, révélant sa peau. Une lueur verte jaillit de son torse et un objet en fut extrait!
 
@@ -40,13 +40,13 @@ Cette Tortue Noire paraissait quelque peu déclinante. Elle émit un long siffle
 
 Toutefois, comparée aux trois autres bêtes divines, cette Tortue Noire manquait manifestement de superbe.
 
-Les Quatre Bêtes Divines étaient désormais en position: le Dragon Azure à l'est, le Tigre Blanc à l'ouest, l'Oiseau Vermillon au sud et la Tortue Noire au nord!
+Les Quatre Bêtes Divines étaient désormais en position: le Dragon Azure à l'est, le Tigre Blanc à l'ouest, Suzaku au sud et la Tortue Noire au nord!
 
 Bien que ce processus puisse paraître long, les Quatre Bêtes Divines apparurent en un temps record, encerclant le ciel.
 
 L'expression de Tian Yunzi devint sombre. L'Ancien Démon Ta Jia fixa également les Quatre Bêtes Divines d'un regard glacial.
 
-L'Empereur Divin de l'Oiseau Vermillon s'était préparé. D'un geste de la main droite, il projeta la goutte de sang qu'il tenait vers l'Oiseau Vermillon au sud, afin qu'elle fusionne avec lui.
+L'Empereur Divin de Suzaku s'était préparé. D'un geste de la main droite, il projeta la goutte de sang qu'il tenait vers Suzaku au sud, afin qu'elle fusionne avec lui.
 
 L'Oiseau Vermillon poussa aussitôt un cri strident, et les flammes qui l'entouraient s'intensifièrent violemment. Il chargea droit sur Tian Yunzi et l'Ancien Démon Ta Jia.
 
@@ -79,19 +79,19 @@ Une fois qu'il eut absorbé toute cette énergie, le point de lumière s'étendi
 
 Tian Yunzi agita ses manches et chargea les Quatre Bêtes Divines en plein ciel.
 
-L'Empereur Divin de l'Oiseau Vermillon secoua la tête et déclara calmement: « Observez. Les Quatre Trésors Sacrés de ma Secte Divine ne possèdent que trois styles, mais ces trois seuls suffisent à assurer l'éternité de notre secte! »
+L'Empereur Divin de Suzaku secoua la tête et déclara calmement: « Observez. Les Quatre Trésors Sacrés de ma Secte Divine ne possèdent que trois styles, mais ces trois seuls suffisent à assurer l'éternité de notre secte! »
 
 Ses paroles s'adressaient naturellement à Wang Lin. Bien que le corps de ce dernier soit extrêmement affaibli, il leva la tête pour contempler la scène.
 
-« Le Dragon Azure de l'est, bois Jia Yi; le Tigre Blanc de l'ouest, métal Geng Xin; l'Oiseau Vermillon du sud, feu Bing Ding; et la Tortue Noire du nord, eau Ren Kui! Les trois styles de sceaux de ma Secte Zhu Que, Ciel, Terre et Esprit, relèvent du feu Bing Ding! »
+« Le Dragon Azure de l'est, bois Jia Yi; le Tigre Blanc de l'ouest, métal Geng Xin; Suzaku du sud, feu Bing Ding; et la Tortue Noire du nord, eau Ren Kui! Les trois styles de sceaux de ma Secte Zhu Que, Ciel, Terre et Esprit, relèvent du feu Bing Ding! »
 
-L'Empereur Divin de l'Oiseau Vermillon forma un sceau de la main droite, l'agita vers l'avant et dit calmement: « Esprit Bing! »
+L'Empereur Divin de Suzaku forma un sceau de la main droite, l'agita vers l'avant et dit calmement: « Esprit Bing! »
 
 Simultanément, les trois autres sectes divines déclamèrent les mêmes mots:
 
 « Esprit Jia! » « Esprit Geng! » « Esprit Ren! »
 
-Aussitôt, les Quatre Bêtes Divines dans le ciel poussèrent des rugissements avant de se métamorphoser en armes! Le Dragon Azure devint une lance bleue, le Tigre Blanc une lame dorée, l'Oiseau Vermillon une longue épée rouge et la Tortue Noire une hache noire!
+Aussitôt, les Quatre Bêtes Divines dans le ciel poussèrent des rugissements avant de se métamorphoser en armes! Le Dragon Azure devint une lance bleue, le Tigre Blanc une lame dorée, Suzaku une longue épée rouge et la Tortue Noire une hache noire!
 
 Les quatre armes formées par les bêtes divines chargèrent vers le bas. L'esprit du dragon invoqué par Tian Yunzi fut transpercé sans résistance par la lance bleue et se désintégra.
 
@@ -105,13 +105,13 @@ Cette sphère de lumière géante pénétra par la déchirure du ciel de la Terr
 
 Alors que cette lumière saturait le ciel, les Quatre Trésors Sacrés convergèrent et une aura colossale surgit pour entrer en collision avec elle.
 
-Un grondement tonnerre retentit. À ce moment précis, le regard de l'Empereur Divin de l'Oiseau Vermillon se fit glacial. Il forma un sceau, pointa la main en avant et cria: « Par ma volonté d'Empereur Divin de l'Oiseau Vermillon, je commande aux Trésors Sacrés de fusionner en un seul: Terre Ding! »
+Un grondement tonnerre retentit. À ce moment précis, le regard de l'Empereur Divin de Suzaku se fit glacial. Il forma un sceau, pointa la main en avant et cria: « Par ma volonté d'Empereur Divin de Suzaku, je commande aux Trésors Sacrés de fusionner en un seul: Terre Ding! »
 
 Au même instant, les dirigeants des trois autres trésors hurlèrent:
 
 « Terre Yi! » « Terre Xin! » « Terre Kui! »
 
-Alors que leurs voix résonnaient, les Quatre Trésors Sacrés brillèrent et se regroupèrent sur la longue épée rouge de l'Oiseau Vermillon. En un instant, l'arme grandit de manière prodigieuse, comme si elle pouvait fendre les cieux et la terre. Simultanément, les armes formées par le Dragon Azure, le Tigre Blanc et la Tortue Noire apparurent derrière elle.
+Alors que leurs voix résonnaient, les Quatre Trésors Sacrés brillèrent et se regroupèrent sur la longue épée rouge de Suzaku. En un instant, l'arme grandit de manière prodigieuse, comme si elle pouvait fendre les cieux et la terre. Simultanément, les armes formées par le Dragon Azure, le Tigre Blanc et la Tortue Noire apparurent derrière elle.
 
 Cette longue épée rouge s'abattit sur le démon ancien. La simple pression de sa descente, sur quelques dizaines de pieds seulement, fit trembler l'intégralité de la Terre Yao Ling. Le sol s'affaissa, formant un immense bassin.
 

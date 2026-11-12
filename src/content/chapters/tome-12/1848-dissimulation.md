@@ -24,7 +24,7 @@ Ces groupes étaient souvent composés de dizaines d'individus, affichant des ex
 
 « Il y a au moins des dizaines de milliers de cultivateurs ici. Avec une telle présence, s'ils prétendaient ne pas envahir le Continent Tian Niu, personne ne les croirait. » Wang Lin se transforma en brume, leva les yeux vers les cultivateurs qui survolaient la zone et soupira.
 
-Le massacre entre les sectes et la cruauté entre les continents étaient les mêmes partout. Il en allait de même dans le Monde Dong Fu, et le Continent Astral Immortel n'échappait pas à cette règle.
+Le massacre entre les sectes et la cruauté entre les continents étaient les mêmes partout. Il en allait de même dans le Monde Dong Fu, et le Continent Xian Gang n'échappait pas à cette règle.
 
 Il n'y avait aucune terre pure en ce monde. S'il en existait, c'était uniquement parce que des cultivateurs puissants s'érigeaient pour tout réprimer aux huit directions, empêchant ainsi quiconque d'oser nourrir de mauvaises pensées.
 

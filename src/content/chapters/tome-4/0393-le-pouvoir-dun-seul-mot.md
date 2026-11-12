@@ -48,7 +48,7 @@ Au cours des deux dernières années, il avait envoyé des gens au mont Suzaku p
 
 Li Yuanfeng était très perplexe. Avec le temps, la suspicion s'installa et il ne put s'empêcher de nourrir de la rancœur envers Hongdie.
 
-Après tout, il avait été blessé en tentant de tuer Ceng Niu, et tout cela pour Hongdie.
+Après tout, il avait été blessé en tentant de tuer Zeng Niu, et tout cela pour Hongdie.
 
 Il avait passé ces deux années à tenter de soigner ses blessures. Selon ses calculs, il lui faudrait encore une année pour s'en remettre complètement.
 
@@ -70,7 +70,7 @@ Une silhouette illusoire avançait lentement à travers la tempête de neige. El
 
 Le Wang Lin actuel affichait une expression glaciale en contemplant le Li Yuanfeng stupéfait.
 
-Les pupilles de Li Yuanfeng se rétractèrent alors qu'il fixait Wang Lin. Après un instant, il dit d'une voix sombre: « Ceng Niu! » Bien que son visage restât calme, son cœur était bouleversé. Il n'aurait jamais imaginé que Ceng Niu puisse non seulement guérir des blessures causées par son domaine en seulement deux ans, mais qu'il ait également augmenté son niveau de culture, passant du milieu au stade tardif de la Formation de l'Âme.
+Les pupilles de Li Yuanfeng se rétractèrent alors qu'il fixait Wang Lin. Après un instant, il dit d'une voix sombre: « Zeng Niu! » Bien que son visage restât calme, son cœur était bouleversé. Il n'aurait jamais imaginé que Zeng Niu puisse non seulement guérir des blessures causées par son domaine en seulement deux ans, mais qu'il ait également augmenté son niveau de culture, passant du milieu au stade tardif de la Formation de l'Âme.
 
 Deux années ne sont rien pour les cultivateurs. Réussir une telle progression en si peu de temps, il n'était pas étonnant que Li Yuanfeng fût sous le choc.
 
@@ -78,7 +78,7 @@ Deux années ne sont rien pour les cultivateurs. Réussir une telle progression 
 
 L'un des Anciens s'écria: « Tu as beaucoup de cran pour oser envahir le Palais Bing Xue de mon Xue Yu! »
 
-« Ceng Niu! » Les yeux de la vieille femme devinrent froids alors qu'elle fixait Wang Lin.
+« Zeng Niu! » Les yeux de la vieille femme devinrent froids alors qu'elle fixait Wang Lin.
 
 L'expression de Wang Lin resta impavide tandis qu'il faisait un pas en avant.
 
@@ -118,7 +118,7 @@ Une série d'explosions fracassantes résonna à travers tout Xue Yu.
 
 Les blocs de glace protégeant Li Yuanfeng se fissurèrent avant de voler en éclats. La puissante onde de choc provoqua également l'effondrement du reste du palais.
 
-La silhouette de Li Yuanfeng jaillit alors que la glace volait en morceaux. Flottant dans les airs, ses cheveux s'agitant sans qu'aucun vent ne souffle, il déclara: « Ceng Niu, aujourd'hui, tu meurs à coup sûr! »
+La silhouette de Li Yuanfeng jaillit alors que la glace volait en morceaux. Flottant dans les airs, ses cheveux s'agitant sans qu'aucun vent ne souffle, il déclara: « Zeng Niu, aujourd'hui, tu meurs à coup sûr! »
 
 Wang Lin leva la tête. Il regarda Li Yuanfeng et dit lentement: « Aujourd'hui, je vais prendre ton âme et la raffiner! »
 

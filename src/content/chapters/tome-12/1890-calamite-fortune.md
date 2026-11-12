@@ -84,7 +84,7 @@ Lorsque cette empreinte apparut, le monde sembla basculer et tout devint flou. W
 
 Il n'y avait ni désespoir ni tristesse en lui; il était calme, avec une simple pointe de regret.
 
-Wang Lin comprit qu'il ne pourrait esquiver ce cataclysme. Il regrettait de ne pas avoir pu ressusciter Li Muwan et de ne pas avoir retrouvé ses amis sur le Continent Astral Immortel.
+Wang Lin comprit qu'il ne pourrait esquiver ce cataclysme. Il regrettait de ne pas avoir pu ressusciter Li Muwan et de ne pas avoir retrouvé ses amis sur le Continent Xian Gang.
 
 Dans un soupir, Wang Lin ferma les yeux. Mais en les fermant, il ne renonça pas à lutter: il invoqua la Perle Défiant le Ciel qui résidait dans son âme, une perle qu'il n'avait pas utilisée depuis longtemps!
 

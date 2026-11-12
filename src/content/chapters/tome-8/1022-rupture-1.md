@@ -6,11 +6,11 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1022 - Break (1)
 slug: rupture-1
 ---
-Tian Yunzi n'était pas le seul à réagir ainsi. Dans un autre royaume à l'intérieur du monde de la bouteille, Maître du Vide, le Junior frère de l'Ancien principal de l'Alliance, Maître Zhong Xuan, se déplaçait sur un nuage vert. Il tenait une pierre de jade violette et verte. Le jade brillait et illuminait tout dans un rayon d'innombrables kilomètres.
+Tian Yunzi n'était pas le seul à réagir ainsi. Dans un autre royaume à l'intérieur du monde de la bouteille, Xu Kongzi, le Junior frère de l'Ancien principal de l'Alliance, Maître Zhong Xuan, se déplaçait sur un nuage vert. Il tenait une pierre de jade violette et verte. Le jade brillait et illuminait tout dans un rayon d'innombrables kilomètres.
 
 Même en étant très loin, on pouvait clairement distinguer cette lumière pourpre et verte.
 
-Maître du Vide n'était pas seul. C'était un cultivateur de très haut niveau et, au cours de cette année, il avait déjà franchi le premier royaume dans lequel il se trouvait. Il avait continué à progresser à travers des dizaines de royaumes dans ce monde contenu dans la bouteille!
+Xu Kongzi n'était pas seul. C'était un cultivateur de très haut niveau et, au cours de cette année, il avait déjà franchi le premier royaume dans lequel il se trouvait. Il avait continué à progresser à travers des dizaines de royaumes dans ce monde contenu dans la bouteille!
 
 La belle femme d'âge moyen et ses quatre disciples étaient derrière lui!
 
@@ -18,43 +18,43 @@ La belle femme d'âge moyen et ses quatre disciples étaient derrière lui!
 
 « Ses effets sont de mauvais augure, mais selon les archives de l'Alliance, cette bouteille était l'outil que Qing Lin utilisait pour collecter l'énergie spirituelle céleste. Il se murmurait également que ce trésor pouvait briser le sceau du monde entourant les quatre systèmes stellaires! »
 
-Maître du Vide parlait tout en contemplant la pierre de jade violette et verte dans sa main.
+Xu Kongzi parlait tout en contemplant la pierre de jade violette et verte dans sa main.
 
 La belle femme d'âge moyen hocha la tête et s'apprêtait à parler lorsque le ciel trembla soudainement. Un changement colossal s'opérait dans les cieux, et même la terre en fut ébranlée.
 
 Au même moment, un cri résonna de toutes parts. C'était comme si ce cri avait déchiré le monde pour s'y engouffrer sans retenue!
 
-Le cri de l'Oiseau Vermillon retentit à travers le monde!
+Le cri de Suzaku retentit à travers le monde!
 
-Dès que la belle femme entendit le cri de l'Oiseau Vermillon, son expression changea radicalement. Non seulement elle, mais aussi la jeune fille en rose, soupçonnée d'être la Sainte de Kun Xu, afficha un visage glacial.
+Dès que la belle femme entendit le cri de Suzaku, son expression changea radicalement. Non seulement elle, mais aussi la jeune fille en rose, soupçonnée d'être la Sainte de Kun Xu, afficha un visage glacial.
 
-Les pupilles du Maître du Vide se rétractèrent soudainement!
+Les pupilles de Xu Kongzi se rétractèrent soudainement!
 
-« Le cri de l'Oiseau Vermillon? L'éveil de l'Oiseau Vermillon!!! Serait-ce le jeune homme au marquage de l'Oiseau Vermillon dont vous parliez? »
+« Le cri de Suzaku? L'éveil de Suzaku!!! Serait-ce le jeune homme au marquage de Suzaku dont vous parliez? »
 
-Le visage de la belle femme était empreint de choc, et une trace d'anxiété apparut sur ses traits lorsqu'elle répondit rapidement: « Lorsque je l'ai vu auparavant, il ne possédait que le marquage de l'Oiseau Vermillon, et il était complètement scellé. Il est impossible qu'il s'éveille en un laps de temps aussi court! »
+Le visage de la belle femme était empreint de choc, et une trace d'anxiété apparut sur ses traits lorsqu'elle répondit rapidement: « Lorsque je l'ai vu auparavant, il ne possédait que le marquage de Suzaku, et il était complètement scellé. Il est impossible qu'il s'éveille en un laps de temps aussi court! »
 
-« L'éveil de l'Oiseau Vermillon... C'est un événement qui ébranle les Quatre Sectes Divines... Les Quatre Sectes Divines... » Une intention meurtrière perça le regard du Maître du Vide. Il ne permettrait à aucune personne possédant un marquage éveillé de se manifester. Il n'oublierait jamais la bataille aussi féroce qu'amère qu'ils avaient menée contre les Quatre Sectes Divines pour le contrôle du Domaine Kun Xu. Si l'Alliance n'avait pas obtenu la plus grande part des héritages et reliques du Royaume Céleste de la Pluie, et si elle n'avait pas bénéficié de l'aide de la Sainte de Kun Xu, le système stellaire actuel de l'Alliance aurait été renommé le Système Stellaire des Quatre Sectes Divines!
+« L'éveil de Suzaku... C'est un événement qui ébranle les Quatre Sectes Divines... Les Quatre Sectes Divines... » Une intention meurtrière perça le regard de Xu Kongzi. Il ne permettrait à aucune personne possédant un marquage éveillé de se manifester. Il n'oublierait jamais la bataille aussi féroce qu'amère qu'ils avaient menée contre les Quatre Sectes Divines pour le contrôle du Domaine Kun Xu. Si l'Alliance n'avait pas obtenu la plus grande part des héritages et reliques du Royaume Céleste de la Pluie, et si elle n'avait pas bénéficié de l'aide de la Sainte de Kun Xu, le système stellaire actuel de l'Alliance aurait été renommé le Système Stellaire des Quatre Sectes Divines!
 
-Malgré une force aussi puissante, l'Alliance ne pouvait toujours pas anéantir complètement les Quatre Sectes Divines. En songeant à la terreur que représentaient les Quatre Saints, l'intention meurtrière dans les yeux du Maître du Vide s'intensifia.
+Malgré une force aussi puissante, l'Alliance ne pouvait toujours pas anéantir complètement les Quatre Sectes Divines. En songeant à la terreur que représentaient les Quatre Saints, l'intention meurtrière dans les yeux de Xu Kongzi s'intensifia.
 
 « Si cette personne parvient à s'éveiller et quitte le Royaume Xian Ling Tian, les Quatre Sectes Divines la traqueront sans aucun doute au plus vite. Ils le ramèneront pour son héritage et le placeront sous une protection stricte! »
 
 « Nous ne pouvons pas permettre cela. S'il n'est pas mort lors de l'éveil, nous devons le détruire ici même! »
 
-Le cri de l'Oiseau Vermillon traversa ce monde de la bouteille avec un élan dévastateur!
+Le cri de Suzaku traversa ce monde de la bouteille avec un élan dévastateur!
 
-Les 99 royaumes du monde contenu dans la bouteille furent submergés par le cri de l'Oiseau Vermillon!
+Les 99 royaumes du monde contenu dans la bouteille furent submergés par le cri de Suzaku!
 
 Dans un désert de sable noir, un homme était assis. Vêtu de noir, il absorbait l'énergie démoniaque infinie qui émanait du désert pour la faire pénétrer dans son corps.
 
 Il était assis là depuis très longtemps. Il avait décidé de s'installer et d'absorber cette énergie démoniaque presque dès l'instant où il était entré.
 
-Une énergie démoniaque dense l'entourait, mais à cet instant précis, le cri de l'Oiseau Vermillon retentit. L'énergie démoniaque autour de l'homme s'effondra soudainement et se dispersa.
+Une énergie démoniaque dense l'entourait, mais à cet instant précis, le cri de Suzaku retentit. L'énergie démoniaque autour de l'homme s'effondra soudainement et se dispersa.
 
 L'homme en noir ouvrit brusquement les yeux et fixa le ciel d'un regard sombre.
 
-Lorsque le cri de l'Oiseau Vermillon résonna, les yeux de l'homme brillèrent intensément et un marquage de dragon apparut entre ses sourcils. C'était la marque d'un dragon noir!
+Lorsque le cri de Suzaku résonna, les yeux de l'homme brillèrent intensément et un marquage de dragon apparut entre ses sourcils. C'était la marque d'un dragon noir!
 
 « Il s'est éveillé? S'il parvient à survivre, il pourra me combattre! »
 
@@ -70,7 +70,7 @@ Les longs cheveux de Situ Nan flottaient étrangement au centre de ce vortex, et
 
 Les yeux de Situ Nan s'illuminèrent et il absorba l'énergie avec frénésie.
 
-Le cri de l'Oiseau Vermillon résonna à travers le monde, provoquant l'effondrement soudain du vortex d'énergie démoniaque autour de Situ Nan.
+Le cri de Suzaku résonna à travers le monde, provoquant l'effondrement soudain du vortex d'énergie démoniaque autour de Situ Nan.
 
 Situ Nan leva brusquement la tête, affichant une expression féroce et impatiente. Cependant, ses yeux s'éclairèrent aussitôt et il se mit à rire.
 
@@ -84,33 +84,33 @@ L'œil droit de Bei Luo s'illumina. Sept étoiles étincelantes, saturées d'én
 
 Les anciens dieux portaient leurs étoiles entre les sourcils, les anciens démons dans l'œil droit, et les anciens diables dans l'œil gauche!
 
-Les sept étoiles de l'ancien démon tournèrent rapidement. Au moment où il fit un pas, le cri de l'Oiseau Vermillon retentit à travers le monde. L'énergie démoniaque autour de Bei Luo fluctua; il s'immobilisa entre deux royaumes, puis leva les yeux.
+Les sept étoiles de l'ancien démon tournèrent rapidement. Au moment où il fit un pas, le cri de Suzaku retentit à travers le monde. L'énergie démoniaque autour de Bei Luo fluctua; il s'immobilisa entre deux royaumes, puis leva les yeux.
 
 « L'Oiseau Vermillon des quatre Grandes Bêtes Divines du royaume scellé... »
 
 Bei Luo réfléchit un instant avant que les étoiles de son œil droit ne disparaissent. Puis, d'un pas, il disparut sans laisser de trace.
 
-Les habitants du monde de la bouteille furent choqués par le cri de l'Oiseau Vermillon, chacun étant emporté par ses propres pensées. Mais en dehors d'eux, quelque chose se passait également pour ceux qui étaient à l'extérieur de la bouteille!
+Les habitants du monde de la bouteille furent choqués par le cri de Suzaku, chacun étant emporté par ses propres pensées. Mais en dehors d'eux, quelque chose se passait également pour ceux qui étaient à l'extérieur de la bouteille!
 
 L'individu baigné d'énergie démoniaque, assis sur le pont, ouvrit soudainement les yeux. Une énergie démoniaque dense se propagea rapidement depuis son corps.
 
 Les ombres hideuses dans la rivière sous le pont commencèrent à trembler, terrifiées par l'expansion de l'énergie émanant de l'homme sur le pont.
 
-La bouteille de jade blanc devant l'individu trembla lorsque les ondes du cri de l'Oiseau Vermillon jaillirent de l'intérieur. Les vibrations atteignirent leur paroxysme et le cri était sur le point de percer la paroi!
+La bouteille de jade blanc devant l'individu trembla lorsque les ondes du cri de Suzaku jaillirent de l'intérieur. Les vibrations atteignirent leur paroxysme et le cri était sur le point de percer la paroi!
 
 « Maudit soit, comment un Oiseau Vermillon d'un royaume scellé a-t-il pu entrer?! »
 
 On entendit un grincement de dents dans l'obscurité du brouillard noir. L'homme leva sa main droite et d'innombrables filaments d'énergie démoniaque apparurent autour de son doigt, se condensant en une ombre démoniaque. D'un geste du doigt, l'ombre fonça en rugissant vers la bouteille et s'y fondit en un instant.
 
-Dans le monde de la bouteille, la mer de flammes qui entourait Wang Lin se précipita vers l'Oiseau Vermillon.
+Dans le monde de la bouteille, la mer de flammes qui entourait Wang Lin se précipita vers Suzaku.
 
 Cet Oiseau Vermillon mesurait environ cent pieds de haut et était d'un rouge éclatant. Lorsqu'il déployait ses ailes, son envergure atteignait des centaines de pieds. Sa queue enflammée lui conférait une majesté absolue!
 
-Plus particulièrement, les yeux de l'Oiseau Vermillon affichaient un regard froid; il était le miroir exact du regard de Wang Lin.
+Plus particulièrement, les yeux de Suzaku affichaient un regard froid; il était le miroir exact du regard de Wang Lin.
 
-La mer de flammes qui recouvrait le monde commença à converger et, en un clin d'œil, fut absorbée par l'Oiseau Vermillon. Il était impossible de dire si l'oiseau recrachait la mer de flammes ou si celle-ci était aspirée par lui.
+La mer de flammes qui recouvrait le monde commença à converger et, en un clin d'œil, fut absorbée par Suzaku. Il était impossible de dire si l'oiseau recrachait la mer de flammes ou si celle-ci était aspirée par lui.
 
-De loin, on voyait la mer de flammes déferler de toutes les directions. Le cri de l'Oiseau Vermillon retentit une fois de plus, empreint cette fois d'un soupçon de joie.
+De loin, on voyait la mer de flammes déferler de toutes les directions. Le cri de Suzaku retentit une fois de plus, empreint cette fois d'un soupçon de joie.
 
 Alors que ce cri résonnait, toutes les flammes couvrant des millions de kilomètres dans le royaume se rassemblèrent vers lui comme possédées.
 
@@ -118,41 +118,41 @@ L'étendue des flammes était tout simplement colossale. La chaleur produite par
 
 La peau craquelée de Wang Lin fut frappée par cette température inimaginable. Sa peau se brisa et tomba sous l'effet de la chaleur, révélant une chair neuve, mais des fissures réapparurent aussitôt.
 
-C'était comme si toutes les flammes s'étaient précipitées dans son corps, portant sa température interne à un degré inconcevable. Si cela s'était produit auparavant, Wang Lin aurait été réduit en cendres, mais depuis l'éveil de l'Oiseau Vermillon, il parvenait à endurer cela.
+C'était comme si toutes les flammes s'étaient précipitées dans son corps, portant sa température interne à un degré inconcevable. Si cela s'était produit auparavant, Wang Lin aurait été réduit en cendres, mais depuis l'éveil de Suzaku, il parvenait à endurer cela.
 
 Ses yeux brillèrent intensément et son énergie originelle circula frénétiquement pour absorber la chaleur. Rapidement, la température de son énergie originelle atteignit un niveau prodigieux!
 
-Une telle chaleur pouvait détruire n'importe quelle chair, aussi résistante soit-elle. C'était là le véritable défi de l'éveil de l'Oiseau Vermillon! Au fil des millénaires, de nombreux éveils avaient eu lieu au sein des Quatre Sectes Divines. Cependant, au moment crucial, la majorité de ceux qui tentaient l'expérience ne supportaient pas la chaleur et finissaient en cendres.
+Une telle chaleur pouvait détruire n'importe quelle chair, aussi résistante soit-elle. C'était là le véritable défi de l'éveil de Suzaku! Au fil des millénaires, de nombreux éveils avaient eu lieu au sein des Quatre Sectes Divines. Cependant, au moment crucial, la majorité de ceux qui tentaient l'expérience ne supportaient pas la chaleur et finissaient en cendres.
 
 Au sein des Quatre Sectes Divines, une antique maxime se transmettait depuis les temps primordiaux. Cette phrase englobait l'essence même des héritages de cette secte!
 
-« Des Quatre Divinités qui s'éveillent: la Tortue Noire est la plus rapide, le Tigre Blanc est le plus féroce, le Dragon Azure est le plus puissant et l'Oiseau Vermillon est le plus difficile! »
+« Des Quatre Divinités qui s'éveillent: la Tortue Noire est la plus rapide, le Tigre Blanc est le plus féroce, le Dragon Azure est le plus puissant et Suzaku est le plus difficile! »
 
 Au sein des Quatre Sectes Divines, les éveils de la Tortue Noire n'étaient pas rares, car leur processus présentait le risque le plus faible. Ceux qui éveillaient le Tigre Blanc étaient souvent d'une férocité extrême; une fois éveillés, ils pouvaient devenir des massacreurs capables d'effrayer les immortels!
 
 Le Dragon Azure était le plus puissant. Ceux qui l'éveillaient étaient rares, mais ils échouaient rarement. Une fois leur éveil accompli, ils finiraient par devenir l'Empereur Divin du Dragon Azure!
 
-Dans les temps anciens, si ce n'était la disparition mystérieuse de l'Empereur Divin du Dragon Azure et le fait que l'Empereur Divin de l'Oiseau Vermillon faisait face à son troisième Fléau Céleste — ce qui l'empêchait d'utiliser pleinement sa culture —, la guerre contre l'Alliance aurait pu avoir un tout autre dénouement!
+Dans les temps anciens, si ce n'était la disparition mystérieuse de l'Empereur Divin du Dragon Azure et le fait que l'Empereur Divin de Suzaku faisait face à son troisième Fléau Céleste — ce qui l'empêchait d'utiliser pleinement sa culture —, la guerre contre l'Alliance aurait pu avoir un tout autre dénouement!
 
 L'Oiseau Vermillon était le plus difficile à éveiller parmi les Quatre Divinités; même le Dragon Azure ne pouvait l'égaler. Ceux qui réussissaient leur éveil et survivaient aux épreuves pour devenir un Empereur Divin étaient bien trop peu nombreux!
 
-Ceux qui possédaient un talent prodigieux et la légendaire constitution de l'Oiseau Vermillon devaient accumuler une puissance de flammes suffisante par leur culture pour activer l'éveil de l'Oiseau Vermillon! Ce n'était qu'à cette condition qu'ils pourraient supporter une chaleur inimaginable sans mourir durant le processus!
+Ceux qui possédaient un talent prodigieux et la légendaire constitution de Suzaku devaient accumuler une puissance de flammes suffisante par leur culture pour activer l'éveil de Suzaku! Ce n'était qu'à cette condition qu'ils pourraient supporter une chaleur inimaginable sans mourir durant le processus!
 
-Quiconque ne possédait pas la constitution de l'Oiseau Vermillon ne pouvait réaliser d'éveil interne et devait compter sur une force externe. Dans toute la longue histoire de la Secte Divine de l'Oiseau Vermillon, nul n'avait jamais réussi par cette méthode!
+Quiconque ne possédait pas la constitution de Suzaku ne pouvait réaliser d'éveil interne et devait compter sur une force externe. Dans toute la longue histoire de la Secte Divine de Suzaku, nul n'avait jamais réussi par cette méthode!
 
 L'éveil de Wang Lin était classé comme un éveil par force externe. À mesure que les flammes s'accumulaient, la chaleur devenait plus intense encore. S'il n'avait pas eu son corps de Dieu Ancien, il serait déjà réduit en poussière!
 
-Personne ne s'était jamais éveillé par une force externe dans toute l'histoire de la Secte Divine de l'Oiseau Vermillon. Cependant, la marque de l'Oiseau Vermillon n'avait jamais été accordée à un Dieu Ancien capable de supporter l'éveil par la seule force de son corps!
+Personne ne s'était jamais éveillé par une force externe dans toute l'histoire de la Secte Divine de Suzaku. Cependant, la marque de Suzaku n'avait jamais été accordée à un Dieu Ancien capable de supporter l'éveil par la seule force de son corps!
 
 Wang Lin endurait actuellement cette chaleur incroyable grâce à son corps de Dieu Ancien Royal à 5 étoiles. Lorsque sa peau se fissurait, une chair nouvelle la remplaçait instantanément. Ce cycle se poursuivait jusqu'à ce que le corps de Dieu Ancien de Wang Lin s'adapte progressivement à cette température extrême!
 
-Les flammes envahirent la zone, et toutes les lueurs du royaume convergèrent vers elles. Tandis que l'Oiseau Vermillon absorbait les flammes, il finit par former une gigantesque sphère de feu!
+Les flammes envahirent la zone, et toutes les lueurs du royaume convergèrent vers elles. Tandis que Suzaku absorbait les flammes, il finit par former une gigantesque sphère de feu!
 
-Au moment où la boule de feu prit forme, elle enveloppa Wang Lin et l'Oiseau Vermillon.
+Au moment où la boule de feu prit forme, elle enveloppa Wang Lin et Suzaku.
 
-À cet instant, l'Oiseau Vermillon poussa un nouveau cri, et son corps rouge jaillit des sourcils de Wang Lin pour s'enrouler autour de lui. Bientôt, il se mua en un tatouage d'un réalisme saisissant qui se propagea sur le torse de Wang Lin!
+À cet instant, Suzaku poussa un nouveau cri, et son corps rouge jaillit des sourcils de Wang Lin pour s'enrouler autour de lui. Bientôt, il se mua en un tatouage d'un réalisme saisissant qui se propagea sur le torse de Wang Lin!
 
-La peau de Wang Lin était alors couverte de craquelures. Associée au tatouage rouge de l'Oiseau Vermillon, son apparence était d'une beauté inattendue! Particulièrement ses yeux, qui brillaient comme des étoiles!
+La peau de Wang Lin était alors couverte de craquelures. Associée au tatouage rouge de Suzaku, son apparence était d'une beauté inattendue! Particulièrement ses yeux, qui brillaient comme des étoiles!
 
 Cependant, nul n'était destiné à contempler ce spectacle. La sphère de feu dévora rapidement Wang Lin et grandit encore.
 
@@ -176,13 +176,13 @@ Tandis que l'énergie démoniaque descendait, elle se rassembla pour former une 
 
 Cependant, elle ressentit immédiatement la chaleur émanant de la sphère. Elle s'interrompit et recula légèrement, puis fixa la boule de feu avec une intention meurtrière encore plus intense dans le regard.
 
-Wang Lin gardait les yeux clos au cœur de l'immense sphère de feu. Le tatouage de l'Oiseau Vermillon sur son torse brillait d'un éclat vif tandis que des quantités massives de flammes étaient absorbées et dévorées par le corps de Wang Lin.
+Wang Lin gardait les yeux clos au cœur de l'immense sphère de feu. Le tatouage de Suzaku sur son torse brillait d'un éclat vif tandis que des quantités massives de flammes étaient absorbées et dévorées par le corps de Wang Lin.
 
 Cela renforçait la constitution de Wang Lin et portait la température à un nouveau sommet. Cela modifia même l'énergie originelle de Wang Lin, laquelle se chargea d'une chaleur terrifiante.
 
 Soudain, les yeux clos de Wang Lin s'ouvrirent brusquement. À l'instant même, toutes les fissures sur sa peau volèrent en éclats, révélant une peau légèrement rouge!
 
-Une tempête inimaginable se déchaîna lorsque Wang Lin ouvrit les yeux! Le tatouage de l'Oiseau Vermillon s'arracha de son corps et se mit à graviter rapidement autour de lui.
+Une tempête inimaginable se déchaîna lorsque Wang Lin ouvrit les yeux! Le tatouage de Suzaku s'arracha de son corps et se mit à graviter rapidement autour de lui.
 
 La gigantesque sphère qui entourait Wang Lin rétrécit à une vitesse prodigieuse pour entrer dans son corps. L'ombre démoniaque réagit aussitôt; l'énergie démoniaque emplit le monde alors qu'elle poursuivait la sphère en pleine contraction!
 
@@ -190,7 +190,7 @@ En un temps record, la boule de feu se rétracta brusquement dans un grondement 
 
 À cet instant, il ne restait plus la moindre trace de flamme dans le royaume où se trouvait Wang Lin!
 
-La silhouette de Wang Lin réapparut une fois la dernière parcelle de flamme absorbée! Sa peau rouge, l'Oiseau Vermillon et ses yeux ardents et éclatants lui donnaient l'apparence même de l'Empereur Divin de l'Oiseau Vermillon!
+La silhouette de Wang Lin réapparut une fois la dernière parcelle de flamme absorbée! Sa peau rouge, Suzaku et ses yeux ardents et éclatants lui donnaient l'apparence même de l'Empereur Divin de Suzaku!
 
 Dès que les flammes se dissipèrent, l'ombre démoniaque s'approcha. Avant même qu'elle ne puisse l'atteindre, une énergie démoniaque infinie se mua en un brouillard noir, cherchant à encercler Wang Lin pour le déchirer en morceaux!
 
@@ -198,7 +198,7 @@ Pourtant, alors que l'ombre démoniaque convergeait, des flammes jaillirent des 
 
 Wang Lin avait dévoré trop de flammes. Les flammes qui jaillissaient de lui étaient les résidus après que son corps eut absorbé ce qu'il pouvait. S'il les gardait en lui, elles finiraient par le blesser; il n'avait d'autre choix que de les libérer!
 
-La chaleur de cette mer de feu différait du « Brûle les Cieux ». Non seulement elle possédait la puissance de cette technique, mais elle contenait également une étincelle de la Flamme Divine de l'Oiseau Vermillon!
+La chaleur de cette mer de feu différait du « Brûle les Cieux ». Non seulement elle possédait la puissance de cette technique, mais elle contenait également une étincelle de la Flamme Divine de Suzaku!
 
 Elle jaillit et s'étendit rapidement en un cercle parfait. La mer de flammes était si vaste qu'elle couvrit le ciel et la terre. En se propageant, l'ombre démoniaque envoyée par l'homme caché dans les brumes noires percuta de front cet océan de feu!
 
@@ -208,7 +208,7 @@ Cependant, il était trop tard!
 
 Dès son retrait, la mer de flammes se projeta comme une vague colérique pour submerger l'ombre démoniaque. Le rugissement de cette ombre résonna dans les flammes avant de se dissiper rapidement. Lorsqu'il ne resta qu'un minuscule fragment, celui-ci parvint enfin à s'extirper de la mer de feu et tenta de fuir!
 
-Hélas, il avait sous-estimé la puissance de cet océan ardent. La chaleur de la mer de flammes, combinée à la Flamme Divine issue de l'éveil de l'Oiseau Vermillon, l'avait rendue plus puissante que le « Brûle les Cieux »!
+Hélas, il avait sous-estimé la puissance de cet océan ardent. La chaleur de la mer de flammes, combinée à la Flamme Divine issue de l'éveil de Suzaku, l'avait rendue plus puissante que le « Brûle les Cieux »!
 
 À cet instant, elle se propagea dans toutes les directions. Ce qu'elle consumait n'était pas seulement le royaume de Wang Lin, mais tous les royaumes contenus dans cette bouteille!
 
@@ -244,7 +244,7 @@ La silhouette de Tian Yunzi apparut dans le ciel effondré. Il contempla, sans u
 
 Ling Tianhou, Situ Nan et Tian Yunzi n'étaient pas les seuls à ressentir la puissance de cette mer de feu. Tous les habitants des 99 royaumes la ressentaient.
 
-Un à un, les royaumes s'effondraient, et de plus en plus de personnes commençaient à apparaître dans l'espace dévasté. Da Tou, les trois frères Chen, le vieillard sur la gourde, l'homme en noir, et même Maître du Vide!
+Un à un, les royaumes s'effondraient, et de plus en plus de personnes commençaient à apparaître dans l'espace dévasté. Da Tou, les trois frères Chen, le vieillard sur la gourde, l'homme en noir, et même Xu Kongzi!
 
 Cependant, cet effondrement ne cessait pas; il continuait de se propager. Cette destruction était infusée du pouvoir de chaque royaume, créant une force que nul ne pouvait stopper. Elle devenait de plus en plus puissante en chargeant vers le dernier royaume du monde de la bouteille!
 

@@ -93,7 +93,7 @@ Le jeune homme afficha un regard malveillant; il sortit un cristal d'énergie c�
 
 Les yeux du cultivateur en robe blanche brillèrent. Son regard passa de l'homme qui s'échappait à Wang Lin, et il vola rapidement vers lui. Wang Lin ne daigna même pas regarder le cristal d'énergie céleste. D'un revers de la main droite, il l'envoya au jeune homme en blanc. Ce dernier fut surpris, puis joignit les mains: « Merci infiniment! Je suis Sima Yun de la Secte Kui Shui. Et vous? »
 
-« Ceng Niu! » lança Wang Lin avant de s'envoler. Il décida de fouiller la zone et de tenter le vortex encore quelques fois. S'il ne trouvait toujours rien, il n'aurait d'autre choix que d'abandonner.
+« Zeng Niu! » lança Wang Lin avant de s'envoler. Il décida de fouiller la zone et de tenter le vortex encore quelques fois. S'il ne trouvait toujours rien, il n'aurait d'autre choix que d'abandonner.
 
 Le jeune homme en blanc cria: « Camarade Ceng, j'ai déjà exploré ce secteur pendant plusieurs jours et il n'y a plus aucune énergie spirituelle céleste ici. J'ignore si vous possédez les localisations de transfert vers d'autres fragments, mais nous pourrions faire un échange. »
 

@@ -32,7 +32,7 @@ L'expression de Liu Jinbiao ne trahit aucune panique; ses yeux brillaient d'un r
 
 Ce regard d'une sérénité glaciale fit trembler l'esprit de l'ancêtre!
 
-« Cette aura et cette pression n'appartiennent qu'à quelqu'un qui a exercé le pouvoir pendant longtemps. Si cet homme est véritablement l'Oiseau Vermillon, il doit être ainsi! »
+« Cette aura et cette pression n'appartiennent qu'à quelqu'un qui a exercé le pouvoir pendant longtemps. Si cet homme est véritablement Suzaku, il doit être ainsi! »
 
 Dans un froid renâclement, la main droite de l'ancêtre s'abattit sur le corps de Liu Jinbiao. Le feu s'engouffra en lui, mais après que les flammes eurent balayé son corps, l'ancêtre fronça les sourcils.
 
@@ -44,9 +44,9 @@ L'ancêtre recueillit ce sang et le condensa en une sphère. Après l'avoir sent
 
 Lorsque le sang atteignit son estomac, il se mua en une puissante force de feu qui explosa à l'intérieur de son corps. Une illusion apparut immédiatement derrière l'ancêtre du Clan Huo Que.
 
-Un oiseau de feu déploya ses ailes et poussa un long cri; devant lui se trouvait un Oiseau Vermillon plus petit. Ce dernier semblait gravement blessé et flou. Après une brève lutte, l'oiseau de feu dévora l'Oiseau Vermillon.
+Un oiseau de feu déploya ses ailes et poussa un long cri; devant lui se trouvait un Oiseau Vermillon plus petit. Ce dernier semblait gravement blessé et flou. Après une brève lutte, l'oiseau de feu dévora Suzaku.
 
-Une fois sa proie consommée, les flammes entourant l'oiseau de feu jaillirent et il commença à se métamorphoser, devenant de plus en plus semblable à l'Oiseau Vermillon originel.
+Une fois sa proie consommée, les flammes entourant l'oiseau de feu jaillirent et il commença à se métamorphoser, devenant de plus en plus semblable à Suzaku originel.
 
 « Magnifique! C'est bel et bien un Oiseau Vermillon!! » L'ancêtre du Clan Huo Que était transporté par l'extase. Il rit tandis que sa main droite se posait sur la tête de Liu Jinbiao.
 
@@ -100,7 +100,7 @@ Wang Lin la réceptionna et la rangea après l'avoir examinée. Il joignit les m
 
 « Veuillez parler, Ancêtre. Tant que le Junior en est capable, je m'exécuterai! » La voix de Wang Lin n'était pas forte, mais elle était empreinte d'une détermination inébranlable.
 
-Le visage du Vieux Oiseau Vermillon s'empourpra tandis qu'il posait sa canne et se frottait les mains. « Ton Oiseau Vermillon s'est éveillé quatre fois, et tu es déjà qualifié pour transmettre la marque de l'Oiseau Vermillon. Ce vieil homme espère que lorsque tu choisiras le septième Oiseau Vermillon... ceci... »
+Le visage du Vieux Oiseau Vermillon s'empourpra tandis qu'il posait sa canne et se frottait les mains. « Ton Oiseau Vermillon s'est éveillé quatre fois, et tu es déjà qualifié pour transmettre la marque de Suzaku. Ce vieil homme espère que lorsque tu choisiras le septième Oiseau Vermillon... ceci... »
 
 Wang Lin regarda l'Ancien, attendant la suite.
 

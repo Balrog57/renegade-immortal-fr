@@ -60,7 +60,7 @@ Gu Dao contemplait la scène, stupéfait. Il voyait l'unique pont existant dans 
 
 « Voici la réponse... » murmura Gu Dao, l'expression complexe.
 
-Wang Lin esquissa un léger sourire et agita sa main droite. Un vortex apparut derrière Gu Dao, abritant à son intérieur le Continent Astral Immortel. Gu Dao resta silencieux un instant, pensif, avant de s'incliner devant Wang Lin et de disparaître dans le vortex.
+Wang Lin esquissa un léger sourire et agita sa main droite. Un vortex apparut derrière Gu Dao, abritant à son intérieur le Continent Xian Gang. Gu Dao resta silencieux un instant, pensif, avant de s'incliner devant Wang Lin et de disparaître dans le vortex.
 
 Une fois Gu Dao parti, Wang Lin prit la main de Li Muwan — qui avait également aperçu la silhouette sans poser de question — pour se diriger vers l'extrémité du pont et s'enfoncer dans l'illusion.
 
@@ -128,7 +128,7 @@ Après leur disparition, la pièce blanche sur le plateau devint progressivement
 
 Wang Lin était parti avec Li Muwan.
 
-Sur le Continent Astral Immortel, personne d'autre que Gu Dao ne savait ce qui s'était produit dans le Royaume Divin Immémorial.
+Sur le Continent Xian Gang, personne d'autre que Gu Dao ne savait ce qui s'était produit dans le Royaume Divin Immémorial.
 
 Wang Lin s'assit sur une montagne paisible au sein du Clan Ancien. Li Muwan s'installa derrière lui et l'observait tendrement. Wang Lin resta ainsi pendant plusieurs jours.
 
@@ -136,11 +136,11 @@ Il semblait attendre quelque chose, Li Muwan l'ignorait et ne souhaitait pas le 
 
 Trois jours passèrent encore. Au crépuscule de ce jour, alors que le ciel déclinait, Wang Lin ouvrit les yeux et contempla le ciel.
 
-À cet instant, un homme vêtu de noir, aux longs cheveux sombres, apparut aux abords du Continent Astral Immortel. Son être était imprégné de massacre et de destruction. Debout à la lisière du continent, ses yeux indifférents se posèrent sur le Clan Ancien, où il vit quelqu'un le regarder.
+À cet instant, un homme vêtu de noir, aux longs cheveux sombres, apparut aux abords du Continent Xian Gang. Son être était imprégné de massacre et de destruction. Debout à la lisière du continent, ses yeux indifférents se posèrent sur le Clan Ancien, où il vit quelqu'un le regarder.
 
 Son apparence était identique à celle de Wang Lin!
 
-Après un instant de réflexion, l'homme en noir s'élança dans le Continent Astral Immortel. Il se changea en un rayon de lumière noire et vola vers le Clan Ancien. Il fonça vers la montagne où se trouvait Wang Lin et s'arrêta devant lui.
+Après un instant de réflexion, l'homme en noir s'élança dans le Continent Xian Gang. Il se changea en un rayon de lumière noire et vola vers le Clan Ancien. Il fonça vers la montagne où se trouvait Wang Lin et s'arrêta devant lui.
 
 En voyant Li Muwan, son regard indifférent s'adoucit.
 

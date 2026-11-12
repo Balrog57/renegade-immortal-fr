@@ -32,21 +32,21 @@ Wang Lin poussa un soupir et enfouit son regret au plus profond de son cœur. Il
 
 Hongdie restait là, le regard perdu dans le ciel, les yeux dénués d'émotion.
 
-La voix de Qian Feng surgit du vide: « Ceng Niu, je n'ai pas le temps de m'occuper de toi aujourd'hui. Puisque tu as trouvé cet endroit, nous nous retrouverons à la montagne spirituelle. »
+La voix de Qian Feng surgit du vide: « Zeng Niu, je n'ai pas le temps de m'occuper de toi aujourd'hui. Puisque tu as trouvé cet endroit, nous nous retrouverons à la montagne spirituelle. »
 
 Wang Lin se retourna brusquement vers une montagne au loin. Une silhouette noire y surgit telle une bourrasque, puis fila à une vitesse fulgurante vers la montagne spirituelle, au centre même de cette zone.
 
 Le regard de Wang Lin se glaça. Il laissa échapper un reniflement glacial et s'apprêta à foncer vers la montagne spirituelle.
 
-« Hongdie, ne voulais-tu pas combattre Ceng Niu à nouveau? Je te donne cette chance aujourd'hui. Tue-le! » La voix de Qian Feng résonna au loin avant qu'il ne disparaisse.
+« Hongdie, ne voulais-tu pas combattre Zeng Niu à nouveau? Je te donne cette chance aujourd'hui. Tue-le! » La voix de Qian Feng résonna au loin avant qu'il ne disparaisse.
 
-« Ceng Niu, c'est une belle occasion de rattraper ton vieil ami, alors prends ton temps. Une fois que j'aurai récupéré mon fragment d'âme, je reviendrai régler mes comptes avec toi. »
+« Zeng Niu, c'est une belle occasion de rattraper ton vieil ami, alors prends ton temps. Une fois que j'aurai récupéré mon fragment d'âme, je reviendrai régler mes comptes avec toi. »
 
 Le vide dans les yeux de Hongdie s'évanouit, remplacé par une soif de combat. Elle se précipita devant Wang Lin pour lui barrer la route et dégaina une longue épée rouge.
 
 Simultanément, une aura puissante émana d'elle. Cette puissance n'était pas inférieure à celle de Wang Lin et était imprégnée d'énergie spirituelle céleste. Bien que son niveau de culture ne soit pas encore celui de la Transformation de l'Âme, elle s'en approchait dangereusement.
 
-« Ceng Niu! » lança Hongdie d'une voix glaciale, tandis que son regard tranchant se fixait sur Wang Lin.
+« Zeng Niu! » lança Hongdie d'une voix glaciale, tandis que son regard tranchant se fixait sur Wang Lin.
 
 Wang Lin fronça légèrement les sourcils. Il n'était pas pressé de trouver Qian Feng et ne s'attendait pas à voir la montagne spirituelle ici. Si l'endroit se trouvait réellement à l'intérieur du Cristal de la Planète de Culture, la montagne spirituelle ne devrait pas exister.
 
@@ -132,4 +132,4 @@ Soudain, la fleur s'ouvrit. Tandis qu'elle épanouissait, une fumée rouge s'en 
 
 Cette figure dégageait un sentiment de fierté impérieuse; elle était exactement la même que Hongdie dont Wang Lin se souvenait.
 
-« Ceng Niu, agis maintenant! » La Hongdie émanant de la fumée rouge, empreinte de dignité, lança un regard vers Wang Lin.
+« Zeng Niu, agis maintenant! » La Hongdie émanant de la fumée rouge, empreinte de dignité, lança un regard vers Wang Lin.

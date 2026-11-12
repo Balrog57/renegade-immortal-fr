@@ -66,7 +66,7 @@ Après avoir rangé son sceau, Wang Lin se tint au sommet de la montagne et fixa
 
 Le sang continuait de couler de la bouche de Yun Kong. Il regarda Wang Lin, l'air vaincu.
 
-« J'ai perdu... » Il ne mentionna ni le fait que Wang Lin portait l'armure d'âme du Taureau Céleste, ni l'existence du trésor de Grand Empyréen. Une défaite était une défaite!
+« J'ai perdu... » Il ne mentionna ni le fait que Wang Lin portait l'armure d'âme du Tian Niu, ni l'existence du trésor de Grand Empyréen. Une défaite était une défaite!
 
 « Mais tu as aussi perdu... » Yun Kong lutta pour se redresser et regarda Wang Lin avec une expression complexe.
 
@@ -102,7 +102,7 @@ L'activation de ces six matrices coûta un prix exorbitant au continent du Démo
 
 Et ces centaines de cultivateurs étaient tous extrêmement puissants. Leur transfert avait épuisé plus de 100 000 ans d'économies du continent du Démon Vert!
 
-Ces individus étaient initialement en embuscade aux diverses frontières du continent du Taureau Céleste, attendant Wang Lin. Cependant, suite à une erreur de prédiction, ils furent contraints de téléporter massivement des troupes ici. Ce n'était là qu'une partie d'entre eux; d'autres arrivaient encore par transfert.
+Ces individus étaient initialement en embuscade aux diverses frontières du Continent Tian Niu, attendant Wang Lin. Cependant, suite à une erreur de prédiction, ils furent contraints de téléporter massivement des troupes ici. Ce n'était là qu'une partie d'entre eux; d'autres arrivaient encore par transfert.
 
 Ces cultivateurs portaient tous des vêtements similaires. Bien que les couleurs diffèrent, le motif solaire et lunaire noir et blanc sur leurs étoffes était identique!
 
@@ -128,4 +128,4 @@ Il ignorait leurs noms, mais il avait gravé leurs visages dans sa mémoire. Ces
 
 « Vous aimez les têtes humaines, n'est-ce pas? Voici le premier cadeau que ma Secte Dao Mo vous offre! » Une voix venimeuse résonna dans l'air.
 
-« Secte Dao Mo... Si je quitte cet endroit aujourd'hui, je reviendrai et j'anéantirai toute votre secte!! » Les yeux de Wang Lin brillèrent d'une lumière rouge monstrueuse, et il fit ce serment dans son cœur. C'était la première fois qu'il ressentait un désir aussi brûlant de détruire une secte sur le Continent Astral Immortel!
+« Secte Dao Mo... Si je quitte cet endroit aujourd'hui, je reviendrai et j'anéantirai toute votre secte!! » Les yeux de Wang Lin brillèrent d'une lumière rouge monstrueuse, et il fit ce serment dans son cœur. C'était la première fois qu'il ressentait un désir aussi brûlant de détruire une secte sur le Continent Xian Gang!

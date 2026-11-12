@@ -114,7 +114,7 @@ Une énergie spirituelle céleste dense emplissait la région, comme si on se tr
 
 Wang Lin acquiesça et fit l'éloge: « Le Temple Céleste du Tonnerre est effectivement le temple le plus puissant du Système Stellaire de Luotian! » Ce genre de compliment était sans risque, et Wang Lin maîtrisait depuis longtemps les règles de la bienséance après ses mille ans de culture.
 
-Le vieil homme sourit et dit: « Les futurs accomplissements de l'ami Xu ne manqueront pas d'être grandioses. Il y aura certainement une place pour vous ici, cher compagnon de culture! »
+Le vieil homme sourit et dit: « Les futurs accomplissements de l'ami Xu ne manqueront pas d'être grandioses. Il y aura certainement une place pour vous ici, cher Daoïste! »
 
 Wang Lin sourit et discuta avec le vieil homme. En regardant devant lui, il vit que la majeure partie du Temple Céleste du Tonnerre était enveloppée d'une fine couche de brume.
 

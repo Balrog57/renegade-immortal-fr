@@ -16,7 +16,7 @@ L'expression de Chen Long changea radicalement. Il se tourna vers Wang Lin, qui 
 
 Les yeux de Wang Lin s'illuminèrent. Sans dire un mot, il recula rapidement. À cet instant, le brouillard violet se contractait avec célérité. S'il tardait trop et se laissait envahir par le gaz pourpre, d'autres dangers pourraient surgir.
 
-Les disciples de la Secte Da Luo Jian battirent également en retraite précipitamment, tandis que Chen Long lançait un appel désespéré: « Compagnon cultivateur Wang! »
+Les disciples de la Secte Da Luo Jian battirent également en retraite précipitamment, tandis que Chen Long lançait un appel désespéré: « Daoïste Wang! »
 
 « Compagnon Chen Long, je n'ai même pas la capacité de me sauver moi-même, alors ne comptez pas sur moi! » répondit Wang Lin en secouant la tête avant de disparaître instantanément dans le brouillard. L'épée céleste de Zhou Yi tournait autour de son corps.
 

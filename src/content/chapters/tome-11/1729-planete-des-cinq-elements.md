@@ -54,7 +54,7 @@ Soudain, Wang Lin vit la Planète des Cinq Éléments, telle une fleur épanouie
 
 Si cette planète ne pouvait être détectée par le Sens Divin et semblait isolée du Kun Xu, c'était parce qu'elle n'appartenait pas au Monde des Grottes.
 
-« Après être arrivés ici, ces cultivateurs étrangers ont utilisé une méthode inconnue pour transplanter une planète provenant du Continent Astral Immortel. » Wang Lin ferma les yeux et s'intégra au Dao Céleste. Lorsqu'il les rouvrit lentement, son regard était empreint d'une clarté absolue.
+« Après être arrivés ici, ces cultivateurs étrangers ont utilisé une méthode inconnue pour transplanter une planète provenant du Continent Xian Gang. » Wang Lin ferma les yeux et s'intégra au Dao Céleste. Lorsqu'il les rouvrit lentement, son regard était empreint d'une clarté absolue.
 
 Wang Lin se leva et fit un pas en avant, laissant la Bête des Limbes en suspension tandis qu'il marchait vers la planète éblouissante.
 

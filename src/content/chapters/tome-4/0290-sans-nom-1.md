@@ -160,6 +160,6 @@ Cette technique permettait de contraindre toute l'énergie spirituelle céleste,
 
 Les yeux de Wang Lin brillèrent alors qu'il serrait le drapeau. Sa confiance pour ce voyage vers le royaume céleste augmenta considérablement.
 
-Quant aux éclairs de la divine rétribution, ils ne vinrent jamais. Wang Lin était exalté; il savait qu'il avait gagné son pari. Le corps de l'Ancien Dieu étant un royaume en soi, la rétribution divine n'avait pu percevoir la présence du drapeau de restriction.
+Quant aux éclairs de la divine rétribution, ils ne vinrent jamais. Wang Lin était exalté; il savait qu'il avait gagné son pari. Le corps de l'Ancien Dieu étant un royaume en soi, la Tribulation Céleste n'avait pu percevoir la présence du drapeau de restriction.
 
 Il prit une profonde inspiration et continua de placer des restrictions. Cependant, il ne put atteindre le second stade de complétion, faute de suffisamment de restrictions purement offensives. C'était là l'une des raisons qui limitaient les drapeaux de restriction à attribut unique.

@@ -84,7 +84,7 @@ L'expression de l'homme changea radicalement. Wang Lin laissa échapper un renif
 
 Les paroles de Wang Lin stupéfiaient tous les membres de la famille Wang. Leurs regards devinrent sombres en fixant l'homme qui venait de s'évanouir.
 
-Après avoir poussé un soupir, Wang Lin tourna son regard vers les cultivateurs environnants. Il joignit les mains et déclara: « Chers compagnons cultivateurs, je vous remercie tous d'avoir pris soin de ma famille Wang au fil des ans! »
+Après avoir poussé un soupir, Wang Lin tourna son regard vers les cultivateurs environnants. Il joignit les mains et déclara: « Chers Daoïstes, je vous remercie tous d'avoir pris soin de ma famille Wang au fil des ans! »
 
 Les cultivateurs acceptèrent ses remerciements avec respect et célérité.
 

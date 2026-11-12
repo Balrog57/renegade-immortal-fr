@@ -12,7 +12,7 @@ En observant le jeune homme qui tirait sur la peau de son visage pour tenter de 
 
 Sous son regard, le jeune homme maintint son sourire et disparut au loin. Le système stellaire s'estompa et s'effondra progressivement devant Wang Lin, mais celui-ci restait pétrifié par le choc.
 
-À l'extérieur, dans la Rivière Invoquée, le visage de l'avatar de Wang Lin était livide. Des nuances bleutées apparaissaient et disparaissaient par intermittence sur son visage.
+À l'extérieur, dans Zhao He, le visage de l'avatar de Wang Lin était livide. Des nuances bleutées apparaissaient et disparaissaient par intermittence sur son visage.
 
 D'innombrables âmes des avatars de Tian Yunzi pénétraient une à une dans l'avatar de Wang Lin, tentant de s'en emparer.
 
@@ -20,7 +20,7 @@ Alors que ces âmes fusionnaient, la voix lugubre de Tian Yunzi résonna dans l'
 
 « Comment peux-tu rivaliser de vitesse avec ce vieil homme? Ce vieil homme peut désormais prendre possession de ton corps. Ton corps originel a-t-il trouvé le mien? »
 
-Plus de mille âmes de Tian Yunzi, provenant de la Rivière Invoquée et du Vide Brillant, avaient déjà fusionné avec l'avatar de Wang Lin. Celles de la Mer Yun et de Luotian approchaient.
+Plus de mille âmes de Tian Yunzi, provenant de Zhao He et de Kun Xu, avaient déjà fusionné avec l'avatar de Wang Lin. Celles de la Mer Yun et de Luotian approchaient.
 
 Alors que l'image du second éveil de Tian Yunzi s'effondrait, Wang Lin vit la scène de son premier éveil!
 
@@ -36,7 +36,7 @@ Les grondements devinrent encore plus intenses. En un instant, la porte vola en 
 
 Cette porte était si vaste que, même après s'être fissurée, elle ne se brisa pas en poussière. Elle se divisa en plusieurs fragments qui furent projetés dans toutes les directions sous l'impact. Ces morceaux étaient si rapides qu'ils disparurent sans laisser de trace.
 
-Une partie de la porte fut projetée loin, dans une région de l'espace qui deviendrait le Vide Brillant. Ce fragment se brisa davantage et déchira l'espace lui-même, plongeant dans les failles spatiales.
+Une partie de la porte fut projetée loin, dans une région de l'espace qui deviendrait le Kun Xu. Ce fragment se brisa davantage et déchira l'espace lui-même, plongeant dans les failles spatiales.
 
 La masse de fragments fusionna avec le vide, rendant l'espace instable et créant une faille spatiale. Les morceaux de la porte restèrent là, immuables pendant d'innombrables années.
 
@@ -84,7 +84,7 @@ En voyant cela, Wang Lin comprit beaucoup de choses. Il comprit pourquoi Lian Da
 
 À cet instant, l'esprit de Wang Lin s'éclaircit.
 
-« Lian Daofei était bel et bien quelqu'un qui agissait selon ses désirs sur le Continent Astral Immortel. Peut-être avait-il réellement un frère au statut très élevé. Tout cela a forgé sa personnalité étrange et arrogante. D'après ce que je comprends, dès qu'il convoitait quelque chose, qu'il s'agisse d'un trésor ou d'une personne, il le volait sans hésiter! »
+« Lian Daofei était bel et bien quelqu'un qui agissait selon ses désirs sur le Continent Xian Gang. Peut-être avait-il réellement un frère au statut très élevé. Tout cela a forgé sa personnalité étrange et arrogante. D'après ce que je comprends, dès qu'il convoitait quelque chose, qu'il s'agisse d'un trésor ou d'une personne, il le volait sans hésiter! »
 
 « S'il ne pouvait pas le voler, il ferait tout son possible, allant jusqu'à exterminer la secte entière de l'autre partie pour satisfaire sa cupidité! C'est aussi cette avidité et ce caractère qui l'ont poussé dans la grotte du Souverain Céleste aux Sept Couleurs pour dérober ce qu'il convoitait. »
 
@@ -102,7 +102,7 @@ Wang Lin ignora son départ et fixa le demi-compas. Il mémorisa chaque détail 
 
 Les plus de quatre-vingt-dix réincarnations de Tian Yunzi prirent fin!
 
-Lorsque Wang Lin ferma les yeux, son rêve prit fin. Il ouvrit les paupières et vit Lanmeng Daozun, Qing Lin et le Maître Hong Shan. Il réalisa que son avatar était sur le point d'être totalement possédé dans la Rivière Invoquée!
+Lorsque Wang Lin ferma les yeux, son rêve prit fin. Il ouvrit les paupières et vit Lanmeng Daozun, Qing Lin et le Maître Hong Shan. Il réalisa que son avatar était sur le point d'être totalement possédé dans Zhao He!
 
 « J'ai trouvé son corps originel. Vous trois, seniors, n'avez pas besoin de m'accompagner. J'espère que vous pourrez m'aider à contrôler mon avatar pour me gagner du temps! » Wang Lin se leva et salua les trois seniors en joignant les mains. Puis, d'un pas décidé, il s'élança vers l'horizon.
 

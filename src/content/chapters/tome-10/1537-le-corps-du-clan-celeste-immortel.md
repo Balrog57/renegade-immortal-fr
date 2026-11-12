@@ -30,19 +30,19 @@ Ce que Wang Lin ignorait, c'est que dans les anciens quatre Royaumes Célestes, 
 
 La lignée à l'intérieur de Wang Lin avait atteint un niveau capable de secouer les cieux!
 
-Cependant, son corps était extrêmement spécial, une chose jamais vue auparavant! Son corps était celui d'un ancien dieu, un héritage de l'Ordre Antique. Pourtant, sa lignée avait été modifiée par ce fou pour devenir celle d'un être céleste!
+Cependant, son corps était extrêmement spécial, une chose jamais vue auparavant! Son corps était celui d'un ancien dieu, un héritage de Dao Gu. Pourtant, sa lignée avait été modifiée par ce fou pour devenir celle d'un être céleste!
 
 Une telle occurrence était tout simplement trop rare!
 
-Deux forces totalement opposées continuaient de se bombarder mutuellement. Bien que la puissance de l'Ordre Antique fût supprimée, le sang céleste ne parvenait pas à la détruire. En conséquence, le corps de Wang Lin demeurait incomplet!
+Deux forces totalement opposées continuaient de se bombarder mutuellement. Bien que la puissance de Dao Gu fût supprimée, le sang céleste ne parvenait pas à la détruire. En conséquence, le corps de Wang Lin demeurait incomplet!
 
 Au cours de ce processus instable, sa partie inférieure du corps alternait entre une récupération rapide et une destruction fulgurante. Son âme originelle était également lucide, mais emprisonnée!
 
 Si cela persistait, Wang Lin deviendrait un mort-vivant, ou serait raffiné pour devenir un trésor suprême du ciel et de la terre!
 
-Ce trésor serait une chose que l'Ordre Antique et les Célestes pourraient tous deux utiliser!
+Ce trésor serait une chose que Dao Gu et les Célestes pourraient tous deux utiliser!
 
-À cet instant, il devait faire un choix. Il devait choisir entre son héritage précédent de l'Ordre Antique et renoncer à cette fortune stupéfiante, ou choisir cette nouvelle fortune et abandonner l'héritage de Dieu Ancien qui l'avait accompagné durant des milliers d'années!
+À cet instant, il devait faire un choix. Il devait choisir entre son héritage précédent de Dao Gu et renoncer à cette fortune stupéfiante, ou choisir cette nouvelle fortune et abandonner l'héritage de Dieu Ancien qui l'avait accompagné durant des milliers d'années!
 
 C'était un dilemme déchirant. Même si Wang Lin voulait choisir, il en était incapable. Son âme originelle ne pouvait plus bouger, car elle s'était, dans une certaine mesure, séparée de son corps!
 
@@ -106,6 +106,6 @@ Dans un rugissement, la main droite du fou s'avança comme pour arracher le scea
 
 Des grondements tonitruants résonnèrent. Le fou cracha une bouchée de sang et fut projeté au loin. Lorsqu'il retomba, il semblait confus et marmonna: « Il me semble que je me souviens... Cela ne peut pas être enseigné... Particulièrement pas aux trois grands clans de la Nation Ancienne, car cela causerait bien des ennuis... Hé, pourquoi ce roi s'inquiète-t-il? Ce roi n'a rien enseigné. La mémoire de ce roi est excellente, et je ne lui ai certainement rien appris... » En pensant ainsi, ses yeux roulèrent et il perdit connaissance.
 
-Le corps de Wang Lin trembla et ses paupières furent agités de spasmes rapides. Son esprit rugissait; il sentait distinctement le mouvement du fou. Au moment précis où l'homme avait pressé sa main, Wang Lin sentit la puissance de l'Ordre Antique qui avait été réprimée éclater comme si elle était devenue folle.
+Le corps de Wang Lin trembla et ses paupières furent agités de spasmes rapides. Son esprit rugissait; il sentait distinctement le mouvement du fou. Au moment précis où l'homme avait pressé sa main, Wang Lin sentit la puissance de Dao Gu qui avait été réprimée éclater comme si elle était devenue folle.
 
 « Espèce de fou!! » Wang Lin ouvrit soudain les yeux!

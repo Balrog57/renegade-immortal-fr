@@ -114,7 +114,7 @@ Wang Lin resta immobile devant le brouillard, le regard froid. Cette voix lui se
 
 Après un bref silence, un rire rauque s'éleva de la brume, faisant onduler les volutes colorées.
 
-« Tu as tant de doutes... Tu te demandes qui je suis, comment j'ai pris l'âme de Li Muwan, comment je l'ai conduite sur le Continent Astral Immortel, et quel est mon dessein derrière tout cela. »
+« Tu as tant de doutes... Tu te demandes qui je suis, comment j'ai pris l'âme de Li Muwan, comment je l'ai conduite sur le Continent Xian Gang, et quel est mon dessein derrière tout cela. »
 
 La voix rauque continua de résonner lentement:
 

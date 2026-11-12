@@ -86,7 +86,7 @@ La raison pour laquelle il était protégé par la Secte Da Hun était égalemen
 
 L'essence du poids est la compréhension de toute masse dans le monde, d'un simple grain de sable jusqu'à un continent entier. Lorsqu'elle s'étend, elle englobe la maîtrise des variations de masse, lui permettant de modifier le poids d'une simple pensée.
 
-Cette essence n'était pas commune sur le Continent Astral Immortel et exigeait un talent exceptionnel. Du Qing ne possédait initialement pas cette aptitude, mais son corps de bois contenait une trace d'essence du poids, ce qui lui avait permis de la comprendre lentement.
+Cette essence n'était pas commune sur le Continent Xian Gang et exigeait un talent exceptionnel. Du Qing ne possédait initialement pas cette aptitude, mais son corps de bois contenait une trace d'essence du poids, ce qui lui avait permis de la comprendre lentement.
 
 Bien qu'invisible une fois manifestée, elle conférait au brasier pourpre de Du Qing une masse colossale!
 
@@ -106,7 +106,7 @@ Tout cela se produisit en un clin d'œil. Après avoir manifesté ses trois esse
 
 Wang Lin, toujours debout sur la tête du dragon de feu, vit ses pupilles se rétracter. D'une pensée, le dragon rugit et recula. Simultanément, les sorts que Wang Lin avait utilisés précédemment s'élancèrent vers Du Qing.
 
-La Lance aux Sept Couleurs, l'Empreinte de l'Esprit Guerrier, l'Ancienne Ombrelle déployée et la Lune Sombre au Ciel Clair dans le vent noir convergèrent tous vers sa cible. C'étaient des sorts célèbres sur le Continent Astral Immortel, et là, Wang Lin déployait toute sa puissance!
+La Lance aux Sept Couleurs, l'Empreinte de l'Esprit Guerrier, l'Ancienne Ombrelle déployée et la Lune Sombre au Ciel Clair dans le vent noir convergèrent tous vers sa cible. C'étaient des sorts célèbres sur le Continent Xian Gang, et là, Wang Lin déployait toute sa puissance!
 
 Grâce à l'existence du dragon de feu, Wang Lin était lié à lui. Le dragon compensant la majeure partie des ondes de choc, Wang Lin pouvait affronter Du Qing!
 

@@ -1,6 +1,6 @@
 ---
 n: 1046
-title: "L'Intention Meurtrière du Maître du Vide"
+title: "L'Intention Meurtrière de Xu Kongzi"
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 1046 - Master Voids Killing Intent
@@ -32,17 +32,17 @@ Cependant, à cet instant précis, un cri retentit.
 
 « Espèce de bête maudite, tu oses?! » Tandis que ce cri résonnait, une ondulation apparut devant la belle femme et se propagea. Celle-ci fut repoussée en arrière, tandis que la silhouette humaine subissait également le contrecoup de l'impact.
 
-Une silhouette bleue surgit de la distance. L'homme paraissait âgé, mais ses yeux brillaient d'un éclat intense. C'était le Maître du Vide!
+Une silhouette bleue surgit de la distance. L'homme paraissait âgé, mais ses yeux brillaient d'un éclat intense. C'était Xu Kongzi!
 
-Le Maître du Vide était lui aussi profondément stupéfait. Il s'était libéré depuis longtemps de la restriction dans laquelle il avait été projeté lors de l'effondrement du Bassin Funéraire Céleste. Il avait erré autour du premier étage pendant un long moment et avait fait des récoltes fort intéressantes. Cependant, lorsque ce rugissement furieux retentit, son esprit vacilla.
+Xu Kongzi était lui aussi profondément stupéfait. Il s'était libéré depuis longtemps de la restriction dans laquelle il avait été projeté lors de l'effondrement du Bassin Funéraire Céleste. Il avait erré autour du premier étage pendant un long moment et avait fait des récoltes fort intéressantes. Cependant, lorsque ce rugissement furieux retentit, son esprit vacilla.
 
 Il suivit rapidement la provenance du bruit et vit la belle femme en danger.
 
 Étant lié à la puissance à laquelle elle appartenait, il ne pouvait rester les bras croisés. Après avoir utilisé un sort pour repousser la silhouette humaine, il enveloppa la belle femme d'un ample mouvement de manche et chargea à travers les restrictions du pavillon grâce à sa puissante culture.
 
-Les restrictions jaillirent violemment au-dessus du pavillon, mais sous l'assaut du Maître du Vide, elles s'effondrèrent immédiatement. Ce dernier emporta la belle femme et fonça en avant.
+Les restrictions jaillirent violemment au-dessus du pavillon, mais sous l'assaut de Xu Kongzi, elles s'effondrèrent immédiatement. Ce dernier emporta la belle femme et fonça en avant.
 
-La silhouette humaine fixa le Maître du Vide, poussa un rugissement et se lança à sa poursuite.
+La silhouette humaine fixa Xu Kongzi, poussa un rugissement et se lança à sa poursuite.
 
 En chemin, Wang Lin franchit rapidement plusieurs restrictions sans jamais les effleurer. Bientôt, il atteignit le brouillard noir au centre de l'étage.
 
@@ -78,13 +78,13 @@ L'homme en noir se rétablit en un instant. Dès qu'il reprit ses esprits, son e
 
 Il savait que son secret avait été exposé un bref instant; il ignorait simplement si Wang Lin l'avait remarqué.
 
-Soudain, un grondement retentit dans la salle. Il était évident que quelqu'un forçait les restrictions pour entrer. Le Maître du Vide entra dans la salle, accompagné de la belle femme.
+Soudain, un grondement retentit dans la salle. Il était évident que quelqu'un forçait les restrictions pour entrer. Xu Kongzi entra dans la salle, accompagné de la belle femme.
 
-Dès son entrée, lui aussi fut surpris par les deux statues, mais il se reprit aussitôt. À moins d'une observation extrêmement minutieuse, personne n'aurait pu remarquer l'hésitation du Maître du Vide.
+Dès son entrée, lui aussi fut surpris par les deux statues, mais il se reprit aussitôt. À moins d'une observation extrêmement minutieuse, personne n'aurait pu remarquer l'hésitation de Xu Kongzi.
 
-Quant à la belle femme qui l'accompagnait, la confusion se lisait dans ses yeux. Toutefois, grâce au soutien du Maître du Vide, elle retrouva rapidement son calme.
+Quant à la belle femme qui l'accompagnait, la confusion se lisait dans ses yeux. Toutefois, grâce au soutien de Xu Kongzi, elle retrouva rapidement son calme.
 
-Dès que le Maître du Vide aperçut Wang Lin, une intention meurtrière envahit son regard. Alors qu'il s'apprêtait à avancer, le rugissement venant de l'extérieur se rapprocha encore.
+Dès que Xu Kongzi aperçut Wang Lin, une intention meurtrière envahit son regard. Alors qu'il s'apprêtait à avancer, le rugissement venant de l'extérieur se rapprocha encore.
 
 Le visage de la belle femme était pâle. En voyant Wang Lin, elle lança brusquement: « Wang Lin, qu'as-tu fait pour que cette chose humanoïde te poursuive ainsi jusqu'ici? »
 
@@ -94,15 +94,15 @@ Wang Lin avait déjà inspecté toute la salle. Bien qu'il n'eût pas trouvé l'
 
 La belle femme répliqua avec colère: « Si ce n'était pas à cause de vous, pourquoi vous êtes-vous précipité ici dès l'instant où vous avez entendu ce rugissement?! »
 
-« Cette chose humanoïde est une bête qui était ensevelie sous le Bassin Funéraire Céleste. En sortant de la restriction, je l'ai croisée. Après avoir combattu et constaté que je n'étais pas de taille, j'ai fui. Aurais-je dû rester et me laisser tuer? » Tandis qu'il parlait, Wang Lin recula encore de quelques pas, se retrouvant presque au pied des statues. Sa main reposait sur son sac, mais son regard ne se posait pas sur la belle femme; il était fixé sur le Maître du Vide.
+« Cette chose humanoïde est une bête qui était ensevelie sous le Bassin Funéraire Céleste. En sortant de la restriction, je l'ai croisée. Après avoir combattu et constaté que je n'étais pas de taille, j'ai fui. Aurais-je dû rester et me laisser tuer? » Tandis qu'il parlait, Wang Lin recula encore de quelques pas, se retrouvant presque au pied des statues. Sa main reposait sur son sac, mais son regard ne se posait pas sur la belle femme; il était fixé sur Xu Kongzi.
 
-La puissance du Maître du Vide exerçait une pression insoutenable sur Wang Lin!
+La puissance de Xu Kongzi exerçait une pression insoutenable sur Wang Lin!
 
-Bien qu'il ait atteint le sommet de l'étape Scruteur du Nirvana et possède un corps de Dieu Ancien, il n'était pas de taille face au Maître du Vide. Après tout, ce dernier était un cultivateur au stade Briseur du Nirvana!
+Bien qu'il ait atteint le sommet de l'étape Scruteur du Nirvana et possède un corps de Dieu Ancien, il n'était pas de taille face à Xu Kongzi. Après tout, ce dernier était un cultivateur au stade Briseur du Nirvana!
 
-La belle femme laissa échapper un renâclement glacial. Elle s'apprêtait à parler, mais le Maître du Vide l'interrompit en faisant un pas vers Wang Lin et dit d'un ton lent: « Junior, que ce soit ta faute ou non, point n'est besoin d'explications. Je vais te donner une chance: sors d'ici et attire cette chose humanoïde loin de nous! »
+La belle femme laissa échapper un renâclement glacial. Elle s'apprêtait à parler, mais Xu Kongzi l'interrompit en faisant un pas vers Wang Lin et dit d'un ton lent: « Junior, que ce soit ta faute ou non, point n'est besoin d'explications. Je vais te donner une chance: sors d'ici et attire cette chose humanoïde loin de nous! »
 
-Bien que les paroles du Maître du Vide semblassent calmes, elles étaient empreintes de pouvoir. À mesure qu'il avançait, une ondulation se propagea entre lui et Wang Lin. Mais il ne s'agissait pas d'une simple onde invisible; plusieurs ondulations invisibles apparurent soudainement.
+Bien que les paroles de Xu Kongzi semblassent calmes, elles étaient empreintes de pouvoir. À mesure qu'il avançait, une ondulation se propagea entre lui et Wang Lin. Mais il ne s'agissait pas d'une simple onde invisible; plusieurs ondulations invisibles apparurent soudainement.
 
 Elles surgirent avec une rapidité fulgurante. Dès leur apparition, elles libérèrent la puissance brute d'un cultivateur Briseur du Nirvana, fonçant à une vitesse inimaginable vers la poitrine de Wang Lin.
 
@@ -114,6 +114,6 @@ Alors que le bouclier était enfoncé, une ondulation pénétra son corps. Elle 
 
 Tout cela se produisit si vite que même la belle femme fut stupéfaite et les pupilles de l'homme en noir se contractèrent.
 
-Voyant le corps de Wang Lin être impitoyablement projeté, le Maître du Vide fut surpris. Bien que cette attaque n'ait pas été portée de toute sa puissance, elle aurait aisément pu terrasser un cultivateur Scruteur du Nirvana!
+Voyant le corps de Wang Lin être impitoyablement projeté, Xu Kongzi fut surpris. Bien que cette attaque n'ait pas été portée de toute sa puissance, elle aurait aisément pu terrasser un cultivateur Scruteur du Nirvana!
 
-Il songea qu'avec un tel coup, l'éventuel Empereur Divin de l'Oiseau Vermillon mourrait à coup sûr, et l'Oiseau Vermillon avec lui.
+Il songea qu'avec un tel coup, l'éventuel Empereur Divin de Suzaku mourrait à coup sûr, et Suzaku avec lui.

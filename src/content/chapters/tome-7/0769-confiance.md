@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 769 - Confidence
 slug: confiance
 ---
-Le dragon de tonnerre ancestral était né du tonnerre. Il scintillait actuellement au sein des nuages de la rétribution divine. Ses pensées résonnaient dans les environs comme le fracas du tonnerre.
+Le dragon de tonnerre ancestral était né du tonnerre. Il scintillait actuellement au sein des nuages de la Tribulation Céleste. Ses pensées résonnaient dans les environs comme le fracas du tonnerre.
 
-Les yeux de Xue Zu s'écarquillèrent soudainement. À l'instant même où l'âme originelle de Wang Lin bougea, tous les nuages sifflèrent et la puissance de la rétribution divine se propagea.
+Les yeux de Xue Zu s'écarquillèrent soudainement. À l'instant même où l'âme originelle de Wang Lin bougea, tous les nuages sifflèrent et la puissance de la Tribulation Céleste se propagea.
 
 Peu après, l'âme originelle du dragon de tonnerre ancestral de Wang Lin apparut parmi les nuages, suivie de près par d'innombrables éclairs.
 
@@ -22,9 +22,9 @@ D'innombrables éclairs se formèrent là où l'âme originelle de Wang Lin avai
 
 « Tu veux obtenir mon corps de sang? Tu te surestimes! » Les yeux de Xue Zu se rétrécirent alors que sa main traçait un sceau, une lumière sanguine recouvrant son corps. La pluie d'éclairs ne pénétra pas cette protection de sang, mais tourbillonna autour d'elle.
 
-Xue Zu fut stupéfait. Son expression changea lorsqu'il réalisa que quelque chose n'allait pas, mais il était trop tard. Les éclairs de la rétribution divine qui poursuivaient Wang Lin s'abattirent désormais avec fureur sur Xue Zu.
+Xue Zu fut stupéfait. Son expression changea lorsqu'il réalisa que quelque chose n'allait pas, mais il était trop tard. Les éclairs de la Tribulation Céleste qui poursuivaient Wang Lin s'abattirent désormais avec fureur sur Xue Zu.
 
-« Wang Lin! » Xue Zu serra les dents alors que la lumière de sang brillait intensément, repoussant immédiatement l'âme originelle de Wang Lin. Cependant, durant ce processus, les éclairs de la rétribution divine continuèrent de tomber. Ils traversèrent l'âme originelle de Wang Lin pour frapper directement Xue Zu. Ce dernier recula précipitamment, voulant quitter ces nuages de rétribution divine.
+« Wang Lin! » Xue Zu serra les dents alors que la lumière de sang brillait intensément, repoussant immédiatement l'âme originelle de Wang Lin. Cependant, durant ce processus, les éclairs de la Tribulation Céleste continuèrent de tomber. Ils traversèrent l'âme originelle de Wang Lin pour frapper directement Xue Zu. Ce dernier recula précipitamment, voulant quitter ces nuages de Tribulation Céleste.
 
 « Xue Zu, votre planète de sang a été détruite, et même votre concubine, Zi Xin, est morte elle aussi! » Le Sens Divin de Wang Lin résonna, rendant l'expression de Xue Zu encore plus lugubre.
 
@@ -32,7 +32,7 @@ Xue Zu fut stupéfait. Son expression changea lorsqu'il réalisa que quelque cho
 
 « Vous étiez ici pour me tuer, mais je me demande si vous savez que votre fille Yao Xixue, une fois ressuscitée, est revenue sur la planète de sang, comme un mouton entrant dans la gueule du tigre! » Depuis que Wang Lin avait vu Xue Zu, il n'avait pas aperçu la moindre trace de Yao Xixue. Même Xue Zu n'aurait sans doute pas pu la protéger de l'effondrement de l'espace de stockage. Wang Lin en déduisit que le scénario le plus probable était que Yao Xixue avait déjà été ressuscitée grâce à l'aide de Xue Zu.
 
-Les paroles de Wang Lin furent comme une rétribution divine invisible frappant le cœur de Xue Zu. Son âme originelle ayant déjà été endommagée auparavant, il fut profondément ébranlé dans cet état instable.
+Les paroles de Wang Lin furent comme une Tribulation Céleste invisible frappant le cœur de Xue Zu. Son âme originelle ayant déjà été endommagée auparavant, il fut profondément ébranlé dans cet état instable.
 
 Yao Xixue était sa faiblesse!
 
@@ -40,7 +40,7 @@ Yao Xixue était sa faiblesse!
 
 Un rire résonna, puis le vide où se trouvait l'âme originelle de Wang Lin se transforma instantanément en d'innombrables éclairs. Le tonnerre chargea Xue Zu de toutes les directions avec une fureur folle. Ils pénétrèrent la lumière sanglante pour s'enfoncer directement dans le corps de Xue Zu.
 
-À cet instant, la rétribution divine s'abattit avec acharnement, mêlant même des éclairs aux sept couleurs. L'âme originelle de Xue Zu poussa un rugissement de démence et voulut s'échapper. Cependant, l'âme originelle de Wang Lin se trouvait désormais à l'intérieur de son corps, et une bataille à mort venait de commencer.
+À cet instant, la Tribulation Céleste s'abattit avec acharnement, mêlant même des éclairs aux sept couleurs. L'âme originelle de Xue Zu poussa un rugissement de démence et voulut s'échapper. Cependant, l'âme originelle de Wang Lin se trouvait désormais à l'intérieur de son corps, et une bataille à mort venait de commencer.
 
 Les deux combattants utilisèrent le corps de Xue Zu comme champ de bataille. À l'origine, l'âme originelle de Xue Zu n'était pas faible. Cependant, il avait perdu la moitié de son âme originelle aux mains d'un vieil homme mystérieux, puis il avait rencontré Wang Lin et avait été gravement blessé à nouveau.
 
@@ -48,9 +48,9 @@ Mais malgré tout cela, son âme originelle demeurait plus puissante que celle d
 
 Toutefois, l'âme originelle de Wang Lin était imprégnée d'énergie originelle et il venait d'atteindre le stade du Yang Corporel. Mais le plus important était que Wang Lin ne cherchait pas à prendre possession du corps de Xue Zu; il se concentrait uniquement sur l'entrave de ce dernier pour l'empêcher de quitter les nuages. Cela lui permettait de mener un combat équilibré.
 
-Xue Zu devait mourir. Si cet homme ne mourait pas, alors ce serait lui qui périrait. Wang Lin le comprenait parfaitement, et c'est pourquoi il était prêt à retenir Xue Zu dans les nuages à tout prix, afin de l'éliminer en utilisant la puissance de la rétribution divine!
+Xue Zu devait mourir. Si cet homme ne mourait pas, alors ce serait lui qui périrait. Wang Lin le comprenait parfaitement, et c'est pourquoi il était prêt à retenir Xue Zu dans les nuages à tout prix, afin de l'éliminer en utilisant la puissance de la Tribulation Céleste!
 
-Cependant, la rétribution divine était sur le point de se dissiper et n'était plus aussi puissante qu'auparavant. Pourtant, chaque éclair tombant sur Xue Zu le faisait frissonner. La force tyrannique de la rétribution divine le blessait d'un côté, tandis qu'une partie était absorbée par l'âme originelle de Wang Lin pour devenir sa propre force.
+Cependant, la Tribulation Céleste était sur le point de se dissiper et n'était plus aussi puissante qu'auparavant. Pourtant, chaque éclair tombant sur Xue Zu le faisait frissonner. La force tyrannique de la Tribulation Céleste le blessait d'un côté, tandis qu'une partie était absorbée par l'âme originelle de Wang Lin pour devenir sa propre force.
 
 Le grondement du tonnerre continua de descendre et les nuages se dissipèrent rapidement. Une puissance dévastatrice commença à se former au sein des nuages qui s'évanouissaient. Alors que le dernier éclair se formait, il aspira instantanément tous les nuages restants et s'abattit dans un fracas assourdissant.
 
@@ -60,17 +60,17 @@ Une crise de mort envahit immédiatement Xue Zu. Entravé par l'âme originelle 
 
 « Sceau de sang! » Le sang se transforma rapidement en un immense sceau qui tomba sur son corps comme un filet. Au moment où le filet se referma, une lueur rouge jaillit entre les sourcils de Xue Zu. Son âme originelle s'élança et apparut en un éclair à l'extérieur des nuages.
 
-« Wang Lin, j'abandonne ce corps de sang. Tu ne pourras pas t'échapper avec le sceau, alors supporte la rétribution divine toi-même! » Empli d'une haine inimaginable, il s'enfuit sans même se retourner.
+« Wang Lin, j'abandonne ce corps de sang. Tu ne pourras pas t'échapper avec le sceau, alors supporte la Tribulation Céleste toi-même! » Empli d'une haine inimaginable, il s'enfuit sans même se retourner.
 
 Cette fois, il était dans un état extrêmement misérable. Il lui manquait plus de la moitié de son âme originelle et avait perdu son corps. S'il ne s'échappait pas maintenant avec son âme brisée, et si Wang Lin ne mourait pas, les conséquences seraient incalculables. Il ressentit même du regret: s'il avait réellement tenu sa promesse, sans chercher à tuer Wang Lin après avoir sauvé Yao Xixue, il ne serait pas dans un état aussi pitoyable.
 
 Cependant, il était désormais trop tard.
 
-L'âme originelle de Wang Lin était verrouillée dans le corps de Xue Zu par le sceau de sang, mais il n'avait aucune intention de s'échapper. Son âme originelle devint extrêmement active au moment où la rétribution divine frappa.
+L'âme originelle de Wang Lin était verrouillée dans le corps de Xue Zu par le sceau de sang, mais il n'avait aucune intention de s'échapper. Son âme originelle devint extrêmement active au moment où la Tribulation Céleste frappa.
 
 Le grondement tonnerreux se propagea rapidement dans toute la zone. Le sceau de sang se brisa et le corps de Xue Zu fut réduit en morceaux. L'âme originelle de Wang Lin fut expulsée, puis se transforma en un ancien dragon de tonnerre qui rugit vers le ciel.
 
-Les nuages se dissipèrent complètement et la rétribution divine disparut.
+Les nuages se dissipèrent complètement et la Tribulation Céleste disparut.
 
 L'âme originelle de Wang Lin ramena les restes du corps de Xue Zu vers le fragment. Ce fragment ne mesurait plus qu'environ mille pieds de large; il ne ressemblait plus à un débris, mais plutôt à un immense sceau.
 

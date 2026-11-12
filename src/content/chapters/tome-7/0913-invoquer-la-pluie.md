@@ -36,11 +36,11 @@ Après avoir détourné les yeux, Maître Yan Leizi marcha vers le vide.
 
 « Ce Xu Mu... n'est pas simple! Quatre pouvoirs sont entremêlés entre ses sourcils. Même avec ma culture, je ne peux en percevoir qu'un seul, et c'est manifestement le plus faible! » songea Maître Yan Leizi tout en progressant parmi les étoiles.
 
-Le pouvoir qu'il avait réussi à identifier balaya ses doutes initiaux, et il laissa échapper un soupir. Il connaissait bien ce pouvoir; pour être exact, il s'agissait de la marque de l'Oiseau Vermillon.
+Le pouvoir qu'il avait réussi à identifier balaya ses doutes initiaux, et il laissa échapper un soupir. Il connaissait bien ce pouvoir; pour être exact, il s'agissait de la marque de Suzaku.
 
 Il fallait atteindre un certain niveau de culture pour pouvoir distinguer cette marque entre les sourcils de Wang Lin.
 
-« Ce Xu Mu n'était pas aussi étrange avant de revenir à l'Alliance, mais après avoir disparu quelques jours, ces phénomènes bizarres sont apparus... La marque de l'Oiseau Vermillon... Cet homme m'a aidé autrefois. Peu importe! » Maître Yan Leizi secoua la tête et disparut avec le vieil homme.
+« Ce Xu Mu n'était pas aussi étrange avant de revenir à l'Alliance, mais après avoir disparu quelques jours, ces phénomènes bizarres sont apparus... La marque de Suzaku... Cet homme m'a aidé autrefois. Peu importe! » Maître Yan Leizi secoua la tête et disparut avec le vieil homme.
 
 La nouvelle du retour de Xu Mu se répandit comme une traînée de poudre. Après tout, Xu Mu était trop célèbre dans le Système Stellaire de Luotian pour que son retour passe inaperçu auprès des cultivateurs locaux.
 

@@ -20,9 +20,9 @@ Les trois forces utilisèrent le corps de Wang Lin comme un champ de bataille. C
 
 Une lueur mystérieuse brilla dans les yeux de Wang Lin. Il s'était éveillé. C’est l'impact même de cet éclair qui l'avait totalement tiré de sa torpeur.
 
-« La rétribution divine... » Wang Lin prit une inspiration glacée. Il se souvenait encore de la rétribution divine de la Terre Yao Ling. Face à elle une nouvelle fois, ses yeux brillèrent d'un éclat vif.
+« La Tribulation Céleste... » Wang Lin prit une inspiration glacée. Il se souvenait encore de la Tribulation Céleste de la Terre Yao Ling. Face à elle une nouvelle fois, ses yeux brillèrent d'un éclat vif.
 
-Dès son éveil, il perçut le chaos qui régnait en lui. Si ce chaos n'était pas résolu au plus vite, son corps exploserait de lui-même, sans même que la rétribution divine ait besoin de le tuer.
+Dès son éveil, il perçut le chaos qui régnait en lui. Si ce chaos n'était pas résolu au plus vite, son corps exploserait de lui-même, sans même que la Tribulation Céleste ait besoin de le tuer.
 
 « Cette rétribution arrive au moment opportun! » Les yeux de Wang Lin s'illuminèrent. C'était la première fois qu'il se réjouissait de l'arrivée d'une telle calamité. Sa main droite pressa le sol et il s'élança dans les airs sans la moindre hésitation.
 
@@ -30,7 +30,7 @@ Depuis l'épée céleste à ses côtés, Xu Liguo poussa immédiatement un cri: 
 
 Alors que Wang Lin s'élevait, il agita sa main droite. L'épée céleste vola vers lui et fut rangée dans son sac de rangement. La montagne céleste fut également mise de côté.
 
-Au moment où il jaillit du fragment, tous les nuages environnants se mirent à bouillonner. Sous ce mouvement violent, une rétribution divine plus intense encore que celle de la Terre Yao Ling apparut!
+Au moment où il jaillit du fragment, tous les nuages environnants se mirent à bouillonner. Sous ce mouvement violent, une Tribulation Céleste plus intense encore que celle de la Terre Yao Ling apparut!
 
 Sous la puissance de ces cieux, Wang Lin eut l'impression qu'une main gigantesque l'écrasait depuis le ciel. Des craquements sinistres résonnaient dans son corps.
 
@@ -60,7 +60,7 @@ Au moment de la percée, Wang Lin sembla ressentir son propre Dao! C'était comm
 
 Un long cri s'échappa de sa bouche, un cri qui perça les nuages et se propagea vers le monde extérieur.
 
-Xue Zu observait les nuages, espérant que Wang Lin soit terrassé par la rétribution divine. Cependant, en entendant ce cri, son expression changea radicalement.
+Xue Zu observait les nuages, espérant que Wang Lin soit terrassé par la Tribulation Céleste. Cependant, en entendant ce cri, son expression changea radicalement.
 
 « Yin Illusoire... » Le visage de Xue Zu s'assombrit et il murmura: « Il semble que la moitié de mon corps de sang contenait assez d'énergie originelle pour qu'il puisse temporairement résister à la rétribution et atteindre le stade Yin Illusoire... Mais cela reste encore... »
 
@@ -88,7 +88,7 @@ Même Tian Yunzi avait mis 300 ans pour traverser ces deux royaumes. Ling Tianho
 
 Cela n'avait rien à voir avec le talent. La raison principale était l'énergie originelle!
 
-À cet instant, Wang Lin progressait inexorablement dans cette voie! La rétribution divine lui servait de nutriments, tandis que le corps de sang et la puissance du vieil homme étaient l'énergie originelle alimentant ce processus!
+À cet instant, Wang Lin progressait inexorablement dans cette voie! La Tribulation Céleste lui servait de nutriments, tandis que le corps de sang et la puissance du vieil homme étaient l'énergie originelle alimentant ce processus!
 
 Xue Zu fixa les nuages devant lui, son intention meurtrière redoublant d'intensité.
 

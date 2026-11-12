@@ -20,7 +20,7 @@ Simultanément, la surface de la Perle Défiant le Ciel se modifia. Une image yi
 
 Wang Lin savait que son domaine de karma avait atteint le stade de la petite perfection, et prenait forme hors de son corps. Cela signifiait qu'il avait véritablement franchi la seconde étape avec son domaine et était devenu un cultivateur Scruteur du Nirvana.
 
-S'il le souhaitait, il pouvait provoquer la descente d'une rétribution divine et, une fois celle-ci passée, atteindre le stade initial de Scruteur du Nirvana!
+S'il le souhaitait, il pouvait provoquer la descente d'une Tribulation Céleste et, une fois celle-ci passée, atteindre le stade initial de Scruteur du Nirvana!
 
 « La seconde étape de la culture comprend les stades Scruteur du Nirvana, Purificateur du Nirvana et Briseur du Nirvana... Ils portent tous le mot Nirvana... D'après ce que j'ai pu observer de la troisième étape, ce n'est qu'en acquérant une compréhension totale du Nirvana et en maîtrisant ses lois que je pourrai enfin atteindre la troisième étape... »
 

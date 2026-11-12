@@ -24,11 +24,11 @@ Un immense rideau de lumière enveloppa la Secte Yun Tian, la dissimulant à nou
 
 Les disciples chanceux qui avaient survécu reçurent tous l'ordre de ne pas sortir. Tous acceptèrent cette directive de bon cœur.
 
-Ils discutaient entre eux. Leurs conversations tournaient essentiellement autour d'un seul nom: « Ceng Niu ».
+Ils discutaient entre eux. Leurs conversations tournaient essentiellement autour d'un seul nom: « Zeng Niu ».
 
 Une fois que Liu Fei et Song Qing eurent fini de donner leurs instructions, ils se regardèrent. Ils pouvaient lire l'excitation et la peur dans les yeux de l'autre.
 
-L'excitation venait du fait que la Secte Yun Tian avait été sauvée et que Wang Lin était le célèbre Ceng Niu.
+L'excitation venait du fait que la Secte Yun Tian avait été sauvée et que Wang Lin était le célèbre Zeng Niu.
 
 La peur, quant à elle, découlait du retour de Wang Lin. Après tout, même maintenant, ils ne pouvaient oublier la scène sanglante dont ils avaient été témoins autrefois.
 
@@ -74,7 +74,7 @@ L'un des Grands Anciens soupira et dit: « Le Maître de la secte... Wan Er a te
 
 Wang Lin le regarda et dit: « Si je me souviens bien, ton nom de famille est Lu? »
 
-Le vieil homme fut ravi. Il répondit respectueusement: « Le Maître de la secte se souvient encore de moi. Je suis Lu Fei. » Après avoir appris que Wang Lin était Ceng Niu, Lu Fei avait décidé de le suivre dans l'espoir d'atteindre lui-même la Formation de l'Âme.
+Le vieil homme fut ravi. Il répondit respectueusement: « Le Maître de la secte se souvient encore de moi. Je suis Lu Fei. » Après avoir appris que Wang Lin était Zeng Niu, Lu Fei avait décidé de le suivre dans l'espoir d'atteindre lui-même la Formation de l'Âme.
 
 Les gens comme lui, bloqués au stade de l'Âme Naissante tardif depuis si longtemps, étaient des pragmatiques. Ils étaient prêts à tout sacrifier pour atteindre la Formation de l'Âme.
 
@@ -88,7 +88,7 @@ Song Qing serra les dents et dit: « Seulement, Wan Er a vécu bien plus longtem
 
 Wang Lin songea. En soignant le corps de Wan Er, il avait remarqué une aura mortelle omniprésente. C'était comme une lampe dont l'huile s'épuisait. On ne pouvait rien y faire; c'était le signe que la vie touchait à sa fin.
 
-« Vous pouvez disposer. » Il se retourna pour regagner la tour. Avant d'entrer, il s'arrêta brusquement: « Aucune rumeur sur le nom de Ceng Niu ne doit sortir de la secte. Trouvez un moyen de gérer les disciples. »
+« Vous pouvez disposer. » Il se retourna pour regagner la tour. Avant d'entrer, il s'arrêta brusquement: « Aucune rumeur sur le nom de Zeng Niu ne doit sortir de la secte. Trouvez un moyen de gérer les disciples. »
 
 Ils acquiescèrent tous rapidement. Une fois Wang Lin entré, les yeux du Grand Ancien Lu Fei brillèrent. Il fixa l'assemblée d'un regard glacial et déclara d'un ton grave: « Écoutez bien. Si l'identité du Maître de la secte est révélée, Hongdie de Suzaku viendra sans aucun doute. Nous ne devons faire aucune négligence. »
 

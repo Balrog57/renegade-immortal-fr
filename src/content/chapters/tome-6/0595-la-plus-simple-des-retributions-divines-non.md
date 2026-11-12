@@ -1,6 +1,6 @@
 ---
 n: 595
-title: "La plus simple des rétributions divines? Non!"
+title: "La plus simple des Tribulations Célestes? Non!"
 book: 6
 bookTitle: Arriving on Tian Yun
 en: "Chapter 595 - The Simplest Divine Retribution No!"
@@ -18,13 +18,13 @@ Une lueur rouge descendit de l'espace. Elle émergeait du vide, et nul n'en conn
 
 Dès que cette lumière rouge commença sa descente, une aura capable de faire trembler toute vie dans l'univers se mit à se propager.
 
-Sur la planète Tian Yun, Tian Yunzi avait les yeux clos, se préparant pour le plan prévu dans deux cents ans. Soudain, il ouvrit les yeux, révélant une lueur mystérieuse alors qu'il fixait l'espace. Son expression changea légèrement et sa main traça un sceau. Après avoir calculé pendant un moment, il fronça les sourcils et murmura: « Une rétribution divine est descendue... Avec l'interférence de la puissance céleste, je ne peux pas tout calculer avec précision. Mais j'ai pu déterminer que la rétribution divine a frappé la Terre Yao Ling et qu'elle a un lien avec ma planète Tian Yun... Étrange! »
+Sur la planète Tian Yun, Tian Yunzi avait les yeux clos, se préparant pour le plan prévu dans deux cents ans. Soudain, il ouvrit les yeux, révélant une lueur mystérieuse alors qu'il fixait l'espace. Son expression changea légèrement et sa main traça un sceau. Après avoir calculé pendant un moment, il fronça les sourcils et murmura: « Une Tribulation Céleste est descendue... Avec l'interférence de la puissance céleste, je ne peux pas tout calculer avec précision. Mais j'ai pu déterminer que la Tribulation Céleste a frappé la Terre Yao Ling et qu'elle a un lien avec ma planète Tian Yun... Étrange! »
 
 Sur la planète Da Luo, au sein de la Secte Da Luo Jian, le Saint de l'Épée Ling Tianhou se tenait près d'un gigantesque fourneau alchimique, les yeux étincelants.
 
 « Cette Pilule de Bonne Fortune Fondamentale nécessite encore quelques pilules auxiliaires... » À cet instant précis, son expression changea brusquement. Il fit un pas et disparut complètement pour réapparaître dans l'espace, au-dessus de la planète. Il observa la lumière rouge avec surprise.
 
-« Une rétribution divine! » Il fronça les sourcils, le visage empreint d'incertitude. Après avoir observé attentivement la disparition de la lumière, il murmura pour lui-même: « La rétribution divine descend sur la Terre Yao Ling... Ce n'est pas bon! Se pourrait-il que quelque chose soit arrivé à Tan Lang?! » Les sourcils de Ling Tianhou se contractèrent.
+« Une Tribulation Céleste! » Il fronça les sourcils, le visage empreint d'incertitude. Après avoir observé attentivement la disparition de la lumière, il murmura pour lui-même: « La Tribulation Céleste descend sur la Terre Yao Ling... Ce n'est pas bon! Se pourrait-il que quelque chose soit arrivé à Tan Lang?! » Les sourcils de Ling Tianhou se contractèrent.
 
 Au même moment, sur une planète très éloignée de Tian Yun, l'astre semblait recouvert de sang. C'était une planète de sang!
 
@@ -32,9 +32,9 @@ Dans un pavillon de sang sur cette planète, un homme aux cheveux et aux sourcil
 
 Sans lever la tête, il ressentit silencieusement l'onde de choc créée par le passage de la puissance céleste. Après un long moment, il referma les yeux.
 
-« La rétribution divine est descendue sur la Terre Yao Ling. Je me demande comment se porte cet enfant, Yao Xixue... »
+« La Tribulation Céleste est descendue sur la Terre Yao Ling. Je me demande comment se porte cet enfant, Yao Xixue... »
 
-Non seulement ces trois-là, mais de nombreux vieux monstres remarquèrent la descente de la rétribution divine.
+Non seulement ces trois-là, mais de nombreux vieux monstres remarquèrent la descente de la Tribulation Céleste.
 
 Rien ne pouvait arrêter la chute de cette lumière rouge. Bien que la porte de la Mer des Esprits Démoniaques Orientale ne fût pas ouverte, la lueur rouge réussit tout de même à la percer.
 
@@ -60,9 +60,9 @@ Autour de la place, tout le monde gardait le silence. En une seule journée, Wan
 
 De loin, ce rouge était infini et semblait recouvrir l'immensité du ciel.
 
-L'expression du jeune homme sur le bateau changea soudainement. Puis il laissa échapper un rire amer: « Il semble que j'aie oublié ce détail, mais ce petit gars est un cultivateur, contrairement à moi. À l'époque, j'avais passé beaucoup de temps dans le lac du dragon et de nombreux Anciens m'avaient aidé. Finalement, en offrant des sacrifices aux anciens démons pendant plusieurs années, j'avais pu dissimuler cette aura défiante pour ne pas provoquer de rétribution divine. »
+L'expression du jeune homme sur le bateau changea soudainement. Puis il laissa échapper un rire amer: « Il semble que j'aie oublié ce détail, mais ce petit gars est un cultivateur, contrairement à moi. À l'époque, j'avais passé beaucoup de temps dans le lac du dragon et de nombreux Anciens m'avaient aidé. Finalement, en offrant des sacrifices aux anciens démons pendant plusieurs années, j'avais pu dissimuler cette aura défiante pour ne pas provoquer de Tribulation Céleste. »
 
-« Cependant, ceci est un test pour cet enfant. S'il parvient à résister à cette rétribution divine, il n'aura plus, du moins au stade Ascendant, d'interférence du Dao des cieux... Et d'après ce que je vois, la puissance de cette rétribution n'est pas si grande... »
+« Cependant, ceci est un test pour cet enfant. S'il parvient à résister à cette Tribulation Céleste, il n'aura plus, du moins au stade Ascendant, d'interférence du Dao des cieux... Et d'après ce que je vois, la puissance de cette rétribution n'est pas si grande... »
 
 Tous les habitants de la Cité Tian Yao remarquèrent le changement dans le ciel, et la foule sur la place fut totalement stupéfaite.
 
@@ -70,15 +70,15 @@ La lumière rouge dans le ciel se condensa rapidement en une multitude de nuages
 
 Alors que Wang Lin se tenait près du tambour démoniaque, il regarda le ciel et exhala longuement.
 
-« Le Dao des cieux ne peut arrêter mon cœur Dao, mais il peut envoyer un châtiment pour effacer mon existence... C'est cela, la rétribution divine. J'ai déjà vu une rétribution divine à Ville de Qilin, dans la Mer Xiu Mo. Comparé à cela, ceci est bien plus puissant... »
+« Le Dao des cieux ne peut arrêter mon cœur Dao, mais il peut envoyer un châtiment pour effacer mon existence... C'est cela, la Tribulation Céleste. J'ai déjà vu une Tribulation Céleste à Ville de Qilin, dans la Mer Xiu Mo. Comparé à cela, ceci est bien plus puissant... »
 
 Les nuages rouges s'amassèrent et, en un instant, des éclairs rouges commencèrent à se former. Si ces éclairs ne tombaient pas ou ne dégageaient pas d'aura, cette scène serait d'une beauté extrême!
 
-Le jeune homme sur le bateau observa l'éclair avant de pousser un soupir de soulagement et de dire doucement: « Il n'existe que deux types de rétributions divines apparaissant sous forme d'éclair. Il ne peut s'agir de la seconde, la légendaire; je suis donc sûr à 90 % qu'il s'agit de la première, la plus simple de toutes. La chance de ce petit Wang Lin est plutôt bonne! »
+Le jeune homme sur le bateau observa l'éclair avant de pousser un soupir de soulagement et de dire doucement: « Il n'existe que deux types de Tribulations Célestes apparaissant sous forme d'éclair. Il ne peut s'agir de la seconde, la légendaire; je suis donc sûr à 90 % qu'il s'agit de la première, la plus simple de toutes. La chance de ce petit Wang Lin est plutôt bonne! »
 
 Wang Lin fixait le ciel. À cet instant, il ignorait tout le reste pour ne se concentrer que sur l'éclair rouge céleste.
 
-« J'ai eu quelques rencontres avec la rétribution divine au cours de mes 700 ans de culture... J'ai attiré la rétribution en raffinant le drapeau restrictif... J'ai changé le destin de Li Muwan et provoqué la descente du messager des cieux... Cette fois, j'ai conservé mes sentiments persistants et décidé de défier les cieux tout en continuant ma culture, ce qui a également attiré la rétribution divine... » Les yeux de Wang Lin étaient calmes, mais empreints d'une détermination inébranlable.
+« J'ai eu quelques rencontres avec la Tribulation Céleste au cours de mes 700 ans de culture... J'ai attiré la rétribution en raffinant le drapeau restrictif... J'ai changé le destin de Li Muwan et provoqué la descente du messager des cieux... Cette fois, j'ai conservé mes sentiments persistants et décidé de défier les cieux tout en continuant ma culture, ce qui a également attiré la Tribulation Céleste... » Les yeux de Wang Lin étaient calmes, mais empreints d'une détermination inébranlable.
 
 Les nuages rouges dans le ciel commencèrent soudainement à bouger et à se condenser frénétiquement. Le ciel ressemblait désormais à une mer rouge dont toutes les vagues convergeaient vers le centre. En un clin d'œil, l'éclair rouge au centre commença à briller intensément, illuminant le ciel et la terre!
 
@@ -94,7 +94,7 @@ L'éclair rouge s'abattit au milieu de cette chute de neige.
 
 Il ne restait qu'un seul son dans ce monde: le grondement représentant la colère céleste!
 
-Il ne restait qu'une seule couleur dans ce monde: le rouge sang de l'éclair de la rétribution divine!
+Il ne restait qu'une seule couleur dans ce monde: le rouge sang de l'éclair de la Tribulation Céleste!
 
 Il ne restait qu'une seule intention meurtrière dans ce monde: celle des cieux, plus puissante que celle que l'on acquiert après avoir massacré dix millions de milliards d'êtres!
 
@@ -106,13 +106,13 @@ Wang Lin ouvrit soudainement les yeux, dégageant une lueur éclatante alors que
 
 À cet instant, Wang Lin était aussi majestueux que le soleil et la lune; ses cheveux et ses vêtements flottaient au vent, et son regard révélait une aura d'indomptabilité. Face à ce spectacle, il était un homme invincible!
 
-D'un mouvement de doigt, le gaz noir autour de lui s'élança vers le ciel. Les innombrables restrictions contenues dans ce gaz formèrent une tornade noire qui vint accueillir la rétribution divine!
+D'un mouvement de doigt, le gaz noir autour de lui s'élança vers le ciel. Les innombrables restrictions contenues dans ce gaz formèrent une tornade noire qui vint accueillir la Tribulation Céleste!
 
 L'éclair rouge descendit et percuta la tornade noire. À cet instant, une explosion inimaginable retentit, faisant trembler la terre entière. Les oreilles d'innombrables personnes de la Cité Tian Yao saignèrent et beaucoup furent assommées par le choc.
 
 Les spectateurs sur la place subirent le même sort. Bien que les généraux démoniaques s'en soient mieux sortis, leur énergie spirituelle démoniaque circulait dans leurs corps sans qu'ils puissent la contrôler. C'était comme si leurs corps allaient imploser sous l'effet du son s'ils n'avaient pas canalisé l'énergie.
 
-Seuls les commandants en chef contemplaient calmement la rétribution divine.
+Seuls les commandants en chef contemplaient calmement la Tribulation Céleste.
 
 La tornade noire, composée d'innombrables restrictions, affronta l'éclair rouge sans aucune hésitation. À cet instant, ce fut comme si une main gigantesque écrasait la tornade, provoquant son effondrement!
 
@@ -128,6 +128,6 @@ Wang Lin se tenait au sommet de cette colline, le tambour démoniaque dans le do
 
 Les cent Doigts de la Mort fusionnèrent en un seul, se transformant en un rayon de lumière noire d'environ trente pieds de diamètre, et chargèrent directement l'éclair rouge!
 
-« J'ose défier les cieux pour continuer ma culture; garder mes sentiments persistants signifie que je souhaite lutter contre le destin. Rétribution divine, même si tu peux détruire mon corps, tu ne pourras jamais détruire mon cœur Dao! » Les yeux de Wang Lin s'illuminèrent et, à cet instant, la lumière de son regard perça l'éclair rouge pour pénétrer directement dans les nuages écarlates.
+« J'ose défier les cieux pour continuer ma culture; garder mes sentiments persistants signifie que je souhaite lutter contre le destin. Tribulation Céleste, même si tu peux détruire mon corps, tu ne pourras jamais détruire mon cœur Dao! » Les yeux de Wang Lin s'illuminèrent et, à cet instant, la lumière de son regard perça l'éclair rouge pour pénétrer directement dans les nuages écarlates.
 
 Un tonnerre encore plus assourdissant retentit dans le ciel, comme s'il répondait au cœur Dao de Wang Lin!

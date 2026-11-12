@@ -66,7 +66,7 @@ Cette silhouette étincelait intensément. À première vue, elle ressemblait à
 
 « Tuer est tuer, à quoi bon tout ce baratin? Aujourd'hui, je tue. Quiconque osera résister mourra! » Wang Lin serra le poing droit et broya la tête de l'ancêtre de la famille Xiang. Il s'élança ensuite dans les airs et pointa l'épée descendante de son doigt!
 
-Ce geste contenait le pouvoir de l'Ordre Antique de Wang Lin, sa culture, ainsi que ses essences de tonnerre et de feu. Un grondement de tonnerre résonna lors de la collision avec l'épée.
+Ce geste contenait le pouvoir de Dao Gu de Wang Lin, sa culture, ainsi que ses essences de tonnerre et de feu. Un grondement de tonnerre résonna lors de la collision avec l'épée.
 
 Un éclat de froideur traversa les yeux de Wang Lin. Après son geste, une lueur sanglante jaillit et l'épée de sang s'élança.
 

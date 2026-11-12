@@ -58,7 +58,7 @@ C'était comme dans une maison de mortels plongée dans la nuit, toute noire à 
 
 Ce lieu de mise à mort, autrefois dissimulé aux puissants du Royaume Intérieur, ne pouvait plus rester caché une fois cette brèche ouverte. Instantanément, elle fut ressentie par les divers puissants cultivateurs du Royaume Intérieur!
 
-Dans la Mer Yun, Maître Hong Shan était en train de raffiner le puissant du Royaume Extérieur capturé dans le Royaume aux Sept Couleurs au sein de la Rivière Invoquée. Il venait de remarquer une anomalie dans l'âme lorsqu'il leva soudainement les yeux vers l'horizon. Son expression changea radicalement.
+Dans la Mer Yun, Maître Hong Shan était en train de raffiner le puissant du Royaume Extérieur capturé dans le Royaume aux Sept Couleurs au sein de Zhao He. Il venait de remarquer une anomalie dans l'âme lorsqu'il leva soudainement les yeux vers l'horizon. Son expression changea radicalement.
 
 « Ce n'est pas bon! » Sans hésiter, Maître Hong Shan écarta la marionnette qu'il manipulait et s'élança. Des ondulations se propagèrent alors qu'il disparaissait à toute allure.
 
@@ -68,27 +68,27 @@ Dans le Royaume Kun Xu, au sein du Royaume Céleste de la Pluie, Qing Lin était
 
 « Le Souverain! » Son visage s'assombrit et sa main droite déchira l'espace devant lui. Il disparut en un instant.
 
-Également dans le Vide Brillant, au sein de la Secte Shi Yin, Maître Nan Yunzi se concentrait sur la fabrication d'un ensemble de drapeaux de formation pour la prochaine grande guerre. Alors qu'il travaillait, il leva brusquement les yeux. Son expression changea lorsqu'il perçut l'aura du sceau, puis il s'élança sans hésiter.
+Également dans le Kun Xu, au sein de la Secte Shi Yin, Maître Nan Yunzi se concentrait sur la fabrication d'un ensemble de drapeaux de formation pour la prochaine grande guerre. Alors qu'il travaillait, il leva brusquement les yeux. Son expression changea lorsqu'il perçut l'aura du sceau, puis il s'élança sans hésiter.
 
-Les puissants cultivateurs de la Rivière Invoquée ressentirent également cette aura et s'activèrent tous avec anxiété.
+Les puissants cultivateurs de Zhao He ressentirent également cette aura et s'activèrent tous avec anxiété.
 
 À Luotian, un individu vêtu de vert marchait silencieusement parmi les étoiles. Il scrutait l'horizon d'un air sombre, comme en quête de quelque chose qu'il ne trouvait pas.
 
-Cet homme était Qing Shui. Il laissa échapper un soupir et s'apprêtait à reprendre sa marche lorsqu'il se retourna soudainement. Son regard se figea vers le Vide Brillant.
+Cet homme était Qing Shui. Il laissa échapper un soupir et s'apprêtait à reprendre sa marche lorsqu'il se retourna soudainement. Son regard se figea vers le Kun Xu.
 
-« Wang Lin! » Après avoir ressenti l'aura imminente dans le Royaume Intérieur, Qing Shui ne songea plus à ses propres affaires. Le froid et l'intention meurtrière envahirent son regard alors qu'il chargeait vers le Vide Brillant.
+« Wang Lin! » Après avoir ressenti l'aura imminente dans le Royaume Intérieur, Qing Shui ne songea plus à ses propres affaires. Le froid et l'intention meurtrière envahirent son regard alors qu'il chargeait vers le Kun Xu.
 
-Dans la Rivière Invoquée, le jeune homme qui s'était échappé lors de la Tribulation Céleste de Wang Lin ne parvenait toujours pas à localiser l'endroit. Il avait décidé de s'asseoir en tailleur dans la zone suspectée pour y réfléchir. Soudain, ses yeux s'illuminèrent et il tourna son regard vers le Vide Brillant.
+Dans Zhao He, le jeune homme qui s'était échappé lors de la Tribulation Céleste de Wang Lin ne parvenait toujours pas à localiser l'endroit. Il avait décidé de s'asseoir en tailleur dans la zone suspectée pour y réfléchir. Soudain, ses yeux s'illuminèrent et il tourna son regard vers le Kun Xu.
 
 « Oh? » Ses yeux se rétrécirent et, dans un fracas d'ondulations, il disparut.
 
-Dans le Royaume Céleste du Tonnerre, un grondement sourd retentit. Le mystérieux Vieux Fantôme Zhan sortit et chargea vers le Vide Brillant.
+Dans le Royaume Céleste du Tonnerre, un grondement sourd retentit. Le mystérieux Vieux Fantôme Zhan sortit et chargea vers le Kun Xu.
 
 De nombreux cultivateurs puissants remarquèrent la rupture du sceau par Maître Âme Écarlate et convergèrent tous de toutes parts.
 
 Tout cela se produisit en un instant. Wang Lin était sur le point d'atteindre la brèche. Voyant Wang Lin s'apprêter à partir, les yeux du Souverain brillèrent d'une lueur mystérieuse. Il ne permettrait pas que son plan échoue, même si tout le Royaume Intérieur avait senti la rupture du sceau. Même si le Vieux Fantôme Zhan ou l'être mystérieux au rugissement d'autrefois pouvaient le sentir instantanément, il n'allait pas laisser Wang Lin s'échapper!
 
-« Rêve Bleu! N'oubliez pas notre accord. Je vous aiderai à récupérer le corps de votre femme. » La voix du Souverain était calme. Simultanément, sa main droite desséchée pointa vers le ciel.
+« Lanmeng! N'oubliez pas notre accord. Je vous aiderai à récupérer le corps de votre femme. » La voix du Souverain était calme. Simultanément, sa main droite desséchée pointa vers le ciel.
 
 À peine eut-il parlé qu'un soupir sembla émaner des cieux. Alors que Wang Lin franchissait la brèche, une lumière bleue se rassembla pour former un écran de lumière bloquant sa progression. Non content de cela, l'éclat bleu jaillit et repoussa violemment Wang Lin vers l'intérieur.
 

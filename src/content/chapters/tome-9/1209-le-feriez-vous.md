@@ -44,7 +44,7 @@ Wang Lin ignorait ce qui se passait dans le Système Stellaire Antique, au-delà
 
 Les os du jeune homme étaient complètement brisés et éparpillés. Il n'en restait que deux fragments, maintenus par les clous aux sept couleurs.
 
-Wang Lin ne prêta aucune attention à cela. Son regard se posa sur l'Oiseau Vermillon blanc et il sentit le feu devenir plus intense encore. Finalement, l'Oiseau Vermillon poussa un cri assourdissant avant de fondre vers le bas pour pénétrer dans l'œil gauche de Wang Lin.
+Wang Lin ne prêta aucune attention à cela. Son regard se posa sur Suzaku blanc et il sentit le feu devenir plus intense encore. Finalement, Suzaku poussa un cri assourdissant avant de fondre vers le bas pour pénétrer dans l'œil gauche de Wang Lin.
 
 À cet instant, une mer de feu apparut autour de Wang Lin, remplissant tout l'espace. Il se déplaça immédiatement pour quitter les lieux. Après avoir traversé la fissure spatiale, il atteignit le sommet de la montagne sous la Restriction Temporelle et s'assit aussitôt.
 
@@ -52,17 +52,17 @@ La lumière aux sept couleurs tomba du ciel, mais elle commença immédiatement 
 
 L'œil gauche de Wang Lin dégageait un feu stupéfiant. Ce feu fut d'abord rouge, puis devint rapidement blanc. Cela fit que l'œil gauche de Wang Lin devint presque entièrement blanc!
 
-L'Oiseau Vermillon était sur le point de s'éveiller pour la troisième fois! Après avoir absorbé la plume à Peng Lai et dévoré l'esprit ancestral de l'oiseau de feu invoqué par le membre du Clan Huo Que, le troisième éveil de l'Oiseau Vermillon était arrivé!
+L'Oiseau Vermillon était sur le point de s'éveiller pour la troisième fois! Après avoir absorbé la plume à Peng Lai et dévoré l'esprit ancestral de l'oiseau de feu invoqué par le membre du Clan Huo Que, le troisième éveil de Suzaku était arrivé!
 
 À ce moment-là, la lumière aux sept couleurs continuait d'être repoussée et une vague de chaleur se propagea, prenant Wang Lin pour centre. La Restriction Temporelle s'était déjà rétablie, mais à cause du sceau, la température devint ici encore plus élevée!
 
 L'armure rouge cramoisi autour de Wang Lin absorba la chaleur émanant de son corps. Des flammes monstrueuses remplirent les environs. Ces flammes brûlantes semblaient défier le ciel lui-même!
 
-L'Oiseau Vermillon était l'être qui contrôlait tout le feu du monde. Nul n'en connaissait l'origine, mais la légende racontait qu'à la naissance du monde, celui-ci contenait cinq éléments, et que l'Oiseau Vermillon était né de l'élément feu!
+L'Oiseau Vermillon était l'être qui contrôlait tout le feu du monde. Nul n'en connaissait l'origine, mais la légende racontait qu'à la naissance du monde, celui-ci contenait cinq éléments, et que Suzaku était né de l'élément feu!
 
 Aujourd'hui, que la légende fût vraie ou non n'avait plus d'importance. L'essentiel était que le Clan Zhu Que existait depuis des temps immémoriaux. Ils étaient nés du feu et ne s'éteignaient jamais!
 
-Ce clan cultivait le pouvoir du feu et portait la marque de l'Oiseau Vermillon sur son corps. Chaque éveil de cette marque signifiait une métamorphose de l'Oiseau Vermillon, représentant le pouvoir dévastateur du feu. Dans l'Antiquité, le premier éveil n'était pas rare, mais avec le passage du temps et la dilution des lignées sanguines, de moins en moins de personnes parvenaient à s'éveiller.
+Ce clan cultivait le pouvoir du feu et portait la marque de Suzaku sur son corps. Chaque éveil de cette marque signifiait une métamorphose de Suzaku, représentant le pouvoir dévastateur du feu. Dans l'Antiquité, le premier éveil n'était pas rare, mais avec le passage du temps et la dilution des lignées sanguines, de moins en moins de personnes parvenaient à s'éveiller.
 
 Il était inutile d'évoquer ceux qui s'éveillaient une seconde fois; c'était déjà une rareté aux temps anciens, et cela l'était encore plus aujourd'hui. Quiconque atteignait un second éveil pouvait impressionner n'importe quel membre du Clan Zhu Que.
 
@@ -72,7 +72,7 @@ Ceux qui s'éveillaient trois fois étaient comme les esprits du feu du monde: i
 
 À cet instant précis, Wang Lin traversait son troisième éveil. La température du feu à l'intérieur de la restriction augmentait sans cesse. L'espace intérieur commençait à se fragmenter, comme s'il ne pouvait supporter la fournaise.
 
-L'armure de l'Oiseau Vermillon semblait fondre; il était comme si elle ne pouvait résister à la chaleur émanant du corps de Wang Lin. L'armure se changea en liquide, mais ne tomba pas. Au lieu de cela, elle fut absorbée par le corps de Wang Lin.
+L'armure de Suzaku semblait fondre; il était comme si elle ne pouvait résister à la chaleur émanant du corps de Wang Lin. L'armure se changea en liquide, mais ne tomba pas. Au lieu de cela, elle fut absorbée par le corps de Wang Lin.
 
 La mer de flammes jaillissant du corps de Wang Lin s'intensifia jusqu'à remplir toute la zone sous la restriction. Au début, le feu était rouge, mais à mesure qu'il brûlait, toutes les flammes à l'intérieur de la restriction devinrent blanches!
 

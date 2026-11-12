@@ -42,7 +42,7 @@ Celui qui avait crié était un jeune homme assis aux côtés du vieil homme. Il
 
 Tout en observant calmement le jeune homme, il continua sa route sans même marquer de pause.
 
-Le regard du jeune homme se remplissait de méfiance alors qu'il se levait pour hurler: « Cher compagnon cultivateur, ne brave pas les règles! Mon maître est arrivé le premier. Une fois que ces aînés de la Transformation de l'Âme seront entrés, ce sera notre tour. Puisque tu es arrivé tard, tu dois rester à la queue leu-leu! »
+Le regard du jeune homme se remplissait de méfiance alors qu'il se levait pour hurler: « Cher Daoïste, ne brave pas les règles! Mon maître est arrivé le premier. Une fois que ces aînés de la Transformation de l'Âme seront entrés, ce sera notre tour. Puisque tu es arrivé tard, tu dois rester à la queue leu-leu! »
 
 Le regard de Wang Lin se posa sur le vieil homme qui portait cette trace d'énergie spirituelle céleste. Vêtu d'une robe noire, il ressemblait à un squelette. Ses yeux dégageaient une lueur fantomatique capable de faire vaciller n'importe quel cœur. Lorsqu'il tourna les yeux vers Wang Lin, son regard devint sérieux, comme s'il avait compris quelque chose.
 
@@ -66,9 +66,9 @@ Parmi les seize cultivateurs de la Transformation de l'Âme présents, le seul a
 
 Un petit singe aux yeux rouges était assis à ses côtés. L'animal se grattait parfois la tête en montrant les dents vers l'entrée.
 
-Au moment où Wang Lin s'assit, l'homme d'âge moyen ouvrit les yeux. Son regard fut calme lorsqu'il fixa Wang Lin et prononça: « Ceng Niu! »
+Au moment où Wang Lin s'assit, l'homme d'âge moyen ouvrit les yeux. Son regard fut calme lorsqu'il fixa Wang Lin et prononça: « Zeng Niu! »
 
-À cet instant, les quinze autres cultivateurs de la Transformation de l'Âme furent frappés de stupeur et reportèrent leurs yeux sur Wang Lin. Le nom de Ceng Niu était célèbre sur la planète Suzaku; presque chaque cultivateur du monde connaissait ce nom. Si sa bataille contre Hongdie n'avait pas attiré l'attention des experts de la Transformation de l'Âme, alors la mort de Li Yuanfeng et celle de l'ancêtre du Clan Ju Mo l'avaient indubitablement fait connaître.
+À cet instant, les quinze autres cultivateurs de la Transformation de l'Âme furent frappés de stupeur et reportèrent leurs yeux sur Wang Lin. Le nom de Zeng Niu était célèbre sur la planète Suzaku; presque chaque cultivateur du monde connaissait ce nom. Si sa bataille contre Hongdie n'avait pas attiré l'attention des experts de la Transformation de l'Âme, alors la mort de Li Yuanfeng et celle de l'ancêtre du Clan Ju Mo l'avaient indubitablement fait connaître.
 
 L'expression de Wang Lin resta imperturbable. Il regarda l'homme d'âge moyen et demanda: « Nous sommes-nous déjà rencontrés? »
 
@@ -76,7 +76,7 @@ L'homme sourit légèrement. Caressant le petit singe à ses côtés, il répond
 
 Wang Lin cessa de parler et ferma les yeux pour se reposer.
 
-Les yeux de l'homme d'âge moyen brillèrent d'un éclat subtil et il eut un sourire ténu. « Le compagnon Ceng Niu possède une volonté exemplaire; vous avez utilisé la méthode de raffinage céleste pour laver vos racines mortelles en une seule fois. Cela vous rend bien plus puissant que ceux qui doivent attendre les stades intermédiaire ou avancé de la Transformation de l'Âme pour le faire. Si quiconque d'autre que nous, experts de la Transformation de l'Âme, observait le compagnon Ceng, il croirait que vous êtes au stade avancé plutôt qu'au stade initial. »
+Les yeux de l'homme d'âge moyen brillèrent d'un éclat subtil et il eut un sourire ténu. « Le compagnon Zeng Niu possède une volonté exemplaire; vous avez utilisé la méthode de raffinage céleste pour laver vos racines mortelles en une seule fois. Cela vous rend bien plus puissant que ceux qui doivent attendre les stades intermédiaire ou avancé de la Transformation de l'Âme pour le faire. Si quiconque d'autre que nous, experts de la Transformation de l'Âme, observait le compagnon Ceng, il croirait que vous êtes au stade avancé plutôt qu'au stade initial. »
 
 « Peu de gens ont utilisé cette méthode pour atteindre la Transformation de l'Âme; il n'est pas étonnant que vous ayez pu terrasser Li Yuanfeng et l'ancêtre du Clan Ju Mo! »
 

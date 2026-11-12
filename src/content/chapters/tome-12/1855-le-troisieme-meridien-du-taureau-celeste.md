@@ -88,7 +88,7 @@ La vallée était vide. À la Prairie Ji Tian, située à plusieurs mois de voya
 
 Une fois la lumière dissipée, Wang Lin tourna le regard vers la Secte Da Hun, l'expression grave.
 
-« Ce réseau de transfert est d'une grande profondeur... » Wang Lin n'était pas surpris que le Continent Astral Immortel possède des réseaux de transfert. Le continent était trop vaste; sans eux, les voyages prendraient un temps infini.
+« Ce réseau de transfert est d'une grande profondeur... » Wang Lin n'était pas surpris que le Continent Xian Gang possède des réseaux de transfert. Le continent était trop vaste; sans eux, les voyages prendraient un temps infini.
 
 « Je me demande s'il existe des réseaux entre les continents. Et même si c'est le cas, ils doivent être extrêmement difficiles à activer! »
 

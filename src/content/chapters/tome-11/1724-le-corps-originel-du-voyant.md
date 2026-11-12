@@ -10,7 +10,7 @@ Le corps originel de Wang Lin traversait les étoiles, se déplaçant à une vit
 
 La main droite de Wang Lin lacérait l'espace devant lui à chaque foulée. Un grondement tonitruant résonnait tandis que le vide se fracturait sous ses pas.
 
-Il s'engouffrait instantanément dans la faille et, lorsqu'il réapparaissait, il avait déjà quitté la Rivière Invoquée!
+Il s'engouffrait instantanément dans la faille et, lorsqu'il réapparaissait, il avait déjà quitté Zhao He!
 
 Grâce à cette méthode prodigieuse, la vitesse de Wang Lin atteignait les limites extrêmes de ce que son corps pouvait supporter!
 
@@ -22,13 +22,13 @@ Seul un Corps Dao Antique, d'innombrables fois plus puissant qu'un corps de Dieu
 
 La tempête destructrice s'abattait sur le corps de Wang Lin, mais ne lui infligeait aucun dommage. Au contraire, la tempête elle-même semblait pousser un gémissement de défaite avant de s'effondrer.
 
-Dans le Vide Brillant, une immense faille surgit de nulle part. Le puissant corps de Wang Lin en émergea. À cet instant, les yeux clos, il balaya les environs de son Sens Divin du Dao Antique.
+Dans le Kun Xu, une immense faille surgit de nulle part. Le puissant corps de Wang Lin en émergea. À cet instant, les yeux clos, il balaya les environs de son Sens Divin du Dao Antique.
 
 Peu après, Wang Lin ouvrit soudainement les yeux et s'élança vers l'horizon.
 
-Il ne s'était écoulé que quelques respirations depuis qu'il s'était éveillé du cycle de réincarnation de Tian Yunzi, dans la Rivière Invoquée.
+Il ne s'était écoulé que quelques respirations depuis qu'il s'était éveillé du cycle de réincarnation de Tian Yunzi, dans Zhao He.
 
-Alors que Wang Lin traversait les failles, dans la Rivière Invoquée, toutes les âmes de Tian Yunzi venues des quatre grands systèmes stellaires arrivèrent autour de l'avatar de Wang Lin. Dès que la dernière âme pénétra dans l'avatar de Wang Lin, celui-ci ouvrit brusquement les yeux.
+Alors que Wang Lin traversait les failles, dans Zhao He, toutes les âmes de Tian Yunzi venues des quatre grands systèmes stellaires arrivèrent autour de l'avatar de Wang Lin. Dès que la dernière âme pénétra dans l'avatar de Wang Lin, celui-ci ouvrit brusquement les yeux.
 
 Son regard était empreint de lutte et de douleur. L'âme de Tian Yunzi était en train de prendre le contrôle de son esprit et de son corps. En raison du sortilège d'Intégration de la Réincarnation, il était impossible pour quiconque d'interférer avec cette possession.
 
@@ -40,7 +40,7 @@ Au moment où l'avatar de Wang Lin parla, la distorsion de son œil droit se dis
 
 « Vous trois n'êtes pas faibles. Puisque vous voulez m'empêcher de partir, je vais vous laisser assister à mon 99e éveil! » L'œil gauche de l'avatar de Wang Lin tressaillit avant de se calmer lentement, dégageant une lueur spectrale. Il s'assit et ferma les yeux.
 
-Le corps originel de Wang Lin ressentait tout ce que son avatar éprouvait. Tandis que l'avatar était possédé, une planète apparut devant le corps originel dans le Vide Brillant.
+Le corps originel de Wang Lin ressentait tout ce que son avatar éprouvait. Tandis que l'avatar était possédé, une planète apparut devant le corps originel dans le Kun Xu.
 
 C'était une planète abandonnée, un véritable désastre. Aucun signe de vie n'y subsistait et l'astre était presque entièrement recouvert de déserts.
 
@@ -80,7 +80,7 @@ Les yeux de Wang Lin se posèrent sur l'objet et brillèrent d'un éclat vif.
 
 « Lequel de nous deux sera le plus rapide? »
 
-Dans la Rivière Invoquée, après que l'avatar de Wang Lin eut fermé les yeux, son visage changea radicalement. En un instant, il ne ressemblait plus à Wang Lin, mais à Tian Yunzi aux cheveux blancs!
+Dans Zhao He, après que l'avatar de Wang Lin eut fermé les yeux, son visage changea radicalement. En un instant, il ne ressemblait plus à Wang Lin, mais à Tian Yunzi aux cheveux blancs!
 
 Cette possession s'apparentait à une dévoration, mais différait de ses méthodes habituelles. Cette absorption était cruciale; il avait donc choisi de dévorer de l'intérieur pour ne laisser aucune place à l'erreur!
 
@@ -92,7 +92,7 @@ C'était son 99e éveil. Une fois éveillé, il pourrait retrouver l'autre amas 
 
 Il connaîtrait les sorts et pourrait croître sans dépendre des autres! Ce ne serait pas exagérer de dire qu'une fois la réincarnation reprise en main et le Dao Céleste devenu complet, le destin des innombrables vies nées dans le monde caverneux serait entre ses mains. Si la vie était manipulée par un Dao Céleste dépourvu de conscience, cela ne poserait pas de problème. Mais si ce Dao Céleste possédait sa propre volonté, ce serait terrifiant!
 
-S'il le désirait, il pourrait même dévorer tous les êtres engendrés par le Dao Céleste. À ce stade, la seule chose qu'il resterait serait ce qui n'est pas né ici: les trois âmes et sept fragments, ainsi que les habitants du Continent Astral Immortel!
+S'il le désirait, il pourrait même dévorer tous les êtres engendrés par le Dao Céleste. À ce stade, la seule chose qu'il resterait serait ce qui n'est pas né ici: les trois âmes et sept fragments, ainsi que les habitants du Continent Xian Gang!
 
 En peu de temps, plus de la moitié de la fusion était accomplie. Quelques respirations plus tard, le processus prit fin et Tian Yunzi ouvrit les yeux!
 

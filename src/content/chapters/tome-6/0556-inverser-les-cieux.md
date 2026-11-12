@@ -34,7 +34,7 @@ L'expression de Yao Xixue était d'une extrême sévérité. Elle venait de cons
 
 « Wang Lin! » cria Yao Xixue, un jade de sang à la main. Une fois le symbole disparu, elle se précipita vers la plateforme, en direction de Wang Lin.
 
-L'expression de Wang Lin demeura sereine. Alors que Yao Xixue s'approchait, son regard se fit glacial; il toucha son sac de rangement pour en sortir l'épée céleste et la tint devant lui. Il déclara calmement: « Compagnon cultivateur Yao, ce symbole doré est apparu trop soudainement pour que je puisse le contrôler. Si vous souhaitez vous battre avec moi pour cette raison, alors je me ferai un plaisir de vous accompagner! »
+L'expression de Wang Lin demeura sereine. Alors que Yao Xixue s'approchait, son regard se fit glacial; il toucha son sac de rangement pour en sortir l'épée céleste et la tint devant lui. Il déclara calmement: « Daoïste Yao, ce symbole doré est apparu trop soudainement pour que je puisse le contrôler. Si vous souhaitez vous battre avec moi pour cette raison, alors je me ferai un plaisir de vous accompagner! »
 
 Le visage de Yao Xixue s'assombrit et une intention meurtrière perça son regard. Elle pensa: « Puisque cet homme est arrivé jusqu'ici, il n'a aucune chance de survivre à moins de pouvoir briser tous les sceaux. Si je me bats avec lui ici, ce serait une perte d'opportunité! »
 
@@ -64,7 +64,7 @@ Le temps s'écoula rapidement, et en un clin d'œil, un mois passa. Durant ce mo
 
 Elle redoutait énormément ces symboles dorés et, pour empêcher Wang Lin de les obtenir, elle décida de faire tout le travail elle-même. Elle ne brisait plus les statues, mais utilisait les jades de sang pour les sceller. C'était la méthode qu'elle avait employée lors de ses trois dernières visites.
 
-Ce jour-là, après avoir scellé la onzième statue et atteint la plateforme contenant la douzième, l'expression de Yao Xixue devint grave. Elle tourna un regard vers Wang Lin et dit: « Compagnon cultivateur Wang, ce douzième sceau est très différent des précédents; il nécessite que nous travaillions ensemble pour le briser. C'est la raison pour laquelle je vous ai demandé de venir! »
+Ce jour-là, après avoir scellé la onzième statue et atteint la plateforme contenant la douzième, l'expression de Yao Xixue devint grave. Elle tourna un regard vers Wang Lin et dit: « Daoïste Wang, ce douzième sceau est très différent des précédents; il nécessite que nous travaillions ensemble pour le briser. C'est la raison pour laquelle je vous ai demandé de venir! »
 
 Wang Lin acquiesça. La plateforme devant eux était radicalement différente des précédentes. Elle ne faisait que la moitié de la taille habituelle et, au centre, il n'y avait aucune statue de pierre, mais une porte de pierre gigantesque! De plus, il n'y avait aucun autre Chemin du Dragon Sacré que celui sur lequel ils se tenaient.
 

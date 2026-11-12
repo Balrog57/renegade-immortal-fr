@@ -56,7 +56,7 @@ Lors de son arrivée la veille, Wang Lin avait remarqué un marché libre sur le
 
 « Il n'y a pas beaucoup de cultivateurs au-dessus du stade de la Transformation de l'Âme là-bas, ce n'est donc pas le meilleur endroit », pensa Wang Lin avant de se diriger vers le jeune homme sous le rocher.
 
-Wang Lin joignit les mains et demanda d'un ton empreint de douceur: « Cher compagnon cultivateur, sauriez-vous s'il existe dans la ville un endroit spécialisé dans les trésors de haut rang? »
+Wang Lin joignit les mains et demanda d'un ton empreint de douceur: « Cher Daoïste, sauriez-vous s'il existe dans la ville un endroit spécialisé dans les trésors de haut rang? »
 
 Le jeune homme ouvrit les yeux. Outre le mépris, une pointe d'impatience transparaissait lorsqu'il répondit froidement: « Le Pavillon Bao He, sur le côté est de la ville! » Puis, il cessa de prêter attention à Wang Lin.
 
@@ -82,7 +82,7 @@ Le pavillon semblait fusionner avec son environnement, offrant un aspect presque
 
 Une pression s'en dégageait, et une couche cachée de restrictions empêchait même l'utilisation du Sens Divin pour inspecter l'intérieur. Wang Lin ne tenta pas de forcer son Sens Divin, n'étant pas particulièrement intéressé par ce pavillon.
 
-Cependant, en entrant, il fronça immédiatement les sourcils. Un homme d'âge moyen sortit du pavillon et lui barra la route. Après l'avoir examiné, il demanda calmement: « Le compagnon cultivateur ignore-t-il les règles de mon Pavillon Bao He? »
+Cependant, en entrant, il fronça immédiatement les sourcils. Un homme d'âge moyen sortit du pavillon et lui barra la route. Après l'avoir examiné, il demanda calmement: « Le Daoïste ignore-t-il les règles de mon Pavillon Bao He? »
 
 L'expression de Wang Lin resta neutre lorsqu'il répondit d'un ton calme: « Oh? Je me demande bien quelles sont ces règles. »
 
@@ -92,11 +92,11 @@ L'homme fut extrêmement surpris par le calme olympien de Wang Lin. Il avait ren
 
 Wang Lin fronça légèrement les sourcils.
 
-L'homme d'âge moyen, remarquant sa réaction, demanda soudainement: « Le compagnon cultivateur possède-t-il ces cent mille pierres spirituelles? »
+L'homme d'âge moyen, remarquant sa réaction, demanda soudainement: « Le Daoïste possède-t-il ces cent mille pierres spirituelles? »
 
 Wang Lin ne possédait pas beaucoup de pierres spirituelles dans son sac de rangement. Après tout, depuis qu'il avait atteint le stade de la Formation de l'Âme, il utilisait principalement des jades célestes.
 
-L'homme sourit: « Le compagnon cultivateur ne remplit pas les conditions pour entrer. Et même si vous entriez, je crains que vous ne puissiez satisfaire la condition pour repartir. Veuillez vous retirer. »
+L'homme sourit: « Le Daoïste ne remplit pas les conditions pour entrer. Et même si vous entriez, je crains que vous ne puissiez satisfaire la condition pour repartir. Veuillez vous retirer. »
 
 « Accepteriez-vous ce trésor? » Les yeux de Wang Lin restèrent calmes alors qu'il fixait l'homme. Il frappa son sac de rangement, et l'épée volante qu'il avait raffinée apparut.
 

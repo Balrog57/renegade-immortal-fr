@@ -8,7 +8,7 @@ slug: art-magique-rapide
 ---
 Une lueur sanglante jaillit. Cette entaille contenait toute la culture de Wang Lin et il utilisa son pouvoir du Dao Antique sans aucune retenue.
 
-Dans les terres célestes du Continent Astral Immortel, Wang Lin était extrêmement prudent avec son pouvoir du Dao Antique. Il ne voulait pas que trop de personnes le reconnaissent, car cela compliquerait ses mouvements dans ces contrées.
+Dans les terres célestes du Continent Xian Gang, Wang Lin était extrêmement prudent avec son pouvoir du Dao Antique. Il ne voulait pas que trop de personnes le reconnaissent, car cela compliquerait ses mouvements dans ces contrées.
 
 Après tout, par ses racines, il appartenait au Dao Antique et n'était pas l'un des êtres célestes. Il devait se montrer prudent sur les terres célestes.
 

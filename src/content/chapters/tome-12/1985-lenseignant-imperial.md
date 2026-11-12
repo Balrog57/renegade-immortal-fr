@@ -50,7 +50,7 @@ Cette silhouette bougea avec une rapidité fulgurante, fusionnant presque avec l
 
 « Vous êtes le premier à sortir d'un monde caverneux... Monde caverneux... Monde caverneux... Que ce soit le clan céleste ou le clan Antique, il existe d'innombrables mondes caverneux!
 
-« À l'origine, personne sur le Continent Astral Immortel ne possédait le sortilège pour ouvrir son propre monde caverneux, pas même l'Ancêtre Céleste ni l'Ancêtre Ancien... Le sortilège permettant de créer son propre monde était une exclusivité de mon clan!
+« À l'origine, personne sur le Continent Xian Gang ne possédait le sortilège pour ouvrir son propre monde caverneux, pas même l'Ancêtre Céleste ni l'Ancêtre Ancien... Le sortilège permettant de créer son propre monde était une exclusivité de mon clan!
 
 « Après que mon clan eut suivi l'Ancêtre Céleste, nous avons répandu ce sortilège pour permettre à toute secte qualifiée de créer son propre monde caverneux!
 
@@ -62,7 +62,7 @@ Cette silhouette bougea avec une rapidité fulgurante, fusionnant presque avec l
 
 « C'est impossible, cela ne s'est jamais produit dans l'histoire de mon clan! » L'Enseignant Impérial devint fébrile en fixant Wang Lin. L'excitation dans ses yeux grandissait de plus en plus.
 
-« On pourrait dire que vous n'appartenez pas au Continent Astral Immortel... On pourrait aussi dire que vous avez été créé par mon clan sur le Continent Astral Immortel... » Tandis qu'il parlait, l'Enseignant Impérial forma un sceau de la main droite et l'agita. Le palais se tordit comme si l'espace lui-même se distordait. Le ciel se dissipa, la terre changea, et le palais disparut instantanément.
+« On pourrait dire que vous n'appartenez pas au Continent Xian Gang... On pourrait aussi dire que vous avez été créé par mon clan sur le Continent Xian Gang... » Tandis qu'il parlait, l'Enseignant Impérial forma un sceau de la main droite et l'agita. Le palais se tordit comme si l'espace lui-même se distordait. Le ciel se dissipa, la terre changea, et le palais disparut instantanément.
 
 Wang Lin remarqua clairement que sa position n'avait pas changé, mais que l'espace s'était métamorphosé. Quelqu'un avait manifestement utilisé un sortilège puissant pour ouvrir une dimension similaire. Ils se trouvaient toujours dans l'enceinte du palais, mais c'était désormais un autre monde!
 
@@ -88,7 +88,7 @@ Le regard de Wang Lin se posa sur le fou comateux et, après une courte réflexi
 
 « Désirez-vous le pouvoir de l'Ancêtre Céleste? » L'Enseignant Impérial fixa Wang Lin, ses yeux brillant d'une lueur étrange.
 
-« L'Ancêtre Céleste possède un pouvoir infini. Si vous me promettez une seule chose, je peux vous aider à hériter de sa puissance. Vous deviendrez l'être le plus puissant du Continent Astral Immortel! »
+« L'Ancêtre Céleste possède un pouvoir infini. Si vous me promettez une seule chose, je peux vous aider à hériter de sa puissance. Vous deviendrez l'être le plus puissant du Continent Xian Gang! »
 
 L'expression de Wang Lin resta de marbre; il n'était nullement ému. Il se contenta de fixer froidement l'Enseignant Impérial.
 

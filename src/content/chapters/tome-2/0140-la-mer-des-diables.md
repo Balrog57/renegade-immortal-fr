@@ -14,7 +14,7 @@ En y réfléchissant, les sourcils de Wang Lin se froncèrent. Le dernier fragme
 
 Il localisa immédiatement Lin Tao et Yang Xiong grâce à son Sens Divin, puis s'éloigna silencieusement avant de voler vers Yang Xiong.
 
-Yang Xiong était l'un des disciples du Sanctuaire du Dieu de la Guerre restés sur le pic pour patrouiller la zone. Il n'osait aucunement se relâcher, gardant une vigilance constante, mais ses yeux ne pouvaient s'empêcher de se tourner vers le sommet de la montagne. Lorsque cette Âme Naissante brisée passa devant lui, il eut la sensation que quelque chose de majeur allait se produire.
+Yang Xiong était l'un des disciples du Temple Zhan Shen restés sur le pic pour patrouiller la zone. Il n'osait aucunement se relâcher, gardant une vigilance constante, mais ses yeux ne pouvaient s'empêcher de se tourner vers le sommet de la montagne. Lorsque cette Âme Naissante brisée passa devant lui, il eut la sensation que quelque chose de majeur allait se produire.
 
 Yang Xiong poussa un soupir en réprimant le poids qui pesait sur son cœur. Alors qu'il s'apprêtait à patrouiller dans la zone nord-ouest, il ressentit soudainement une présence et vola vers la forêt dense du nord. Une fois entré dans les bois, il scruta les environs et dit respectueusement: « Yang Xiong salue le Maître. »
 

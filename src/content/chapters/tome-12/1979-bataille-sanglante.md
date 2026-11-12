@@ -6,19 +6,19 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1979 - Bloody Battle!"
 slug: bataille-sanglante
 ---
-Le Taureau Céleste apparut et repoussa le dragon de glace. Il percuta également de plein fouet les douze personnes qui encerclaient Wang Lin!
+Le Tian Niu apparut et repoussa le dragon de glace. Il percuta également de plein fouet les douze personnes qui encerclaient Wang Lin!
 
 De loin, cette scène ressemblait à un tableau vivant. Si quelqu'un pouvait la peindre, elle serait transmise à travers les âges!
 
-Sur ce tableau se dressait un taureau géant et doré, entouré de douze cultivateurs. Les six personnes situées à gauche et à droite pointaient leurs doigts vers le Taureau Céleste.
+Sur ce tableau se dressait un taureau géant et doré, entouré de douze cultivateurs. Les six personnes situées à gauche et à droite pointaient leurs doigts vers le Tian Niu.
 
 Mais leurs corps tremblèrent et ils crachèrent du sang avant d'être projetés en arrière. Leurs doigts et leurs bras s'écrasèrent dans un amas sanglant!
 
 Les trois personnes devant pressèrent leurs paumes, mais leurs corps explosèrent en un brouillard de sang et ils reculèrent rapidement!
 
-Quant aux trois qui avaient planté leurs épées dans le front du Taureau Céleste, ils tentèrent de battre en retraite, mais leurs lames se brisèrent et ils furent frappés par l'animal. Ils crachèrent du sang et reculèrent précipitamment.
+Quant aux trois qui avaient planté leurs épées dans le front du Tian Niu, ils tentèrent de battre en retraite, mais leurs lames se brisèrent et ils furent frappés par l'animal. Ils crachèrent du sang et reculèrent précipitamment.
 
-Les plus misérables étaient les trois ombres noires. Elles avaient peut-être tenté de posséder Wang Lin, mais à cet instant précis, le Taureau Céleste apparut. Les trois ombres furent englouties par la bête!
+Les plus misérables étaient les trois ombres noires. Elles avaient peut-être tenté de posséder Wang Lin, mais à cet instant précis, le Tian Niu apparut. Les trois ombres furent englouties par la bête!
 
 Le taureau doré rugit et les mains de Wang Lin formèrent un sceau avant de pointer vers l'avant. Le taureau doré chargea et percuta le dragon de glace qui avait été repoussé. Les neuf personnes formant le dragon poussèrent des cris déchirants. Le taureau doré ne s'arrêta pas là; il fonça jusqu'au bout de la rue avant d'exploser!
 
@@ -54,7 +54,7 @@ Wang Lin possédait désormais cinq Veines Magiques et pouvait créer 98 images 
 
 Il avait rapidement fouillé les souvenirs des âmes originelles, mais tout était un flou total. Quelqu'un avait déjà effacé ces traces.
 
-« Cet endroit est scellé. Plus tôt, j'ai tenté d'utiliser la puissance du Taureau Céleste pour briser la restriction, mais elle n'a pas vacillé. Celui qui a tendu ce piège a déjà anticipé toute aide extérieure!
+« Cet endroit est scellé. Plus tôt, j'ai tenté d'utiliser la puissance du Tian Niu pour briser la restriction, mais elle n'a pas vacillé. Celui qui a tendu ce piège a déjà anticipé toute aide extérieure!
 
 « Par conséquent, il ne sert à rien de compter sur le Grand Empyréen Jiu Di. Si j'avais conçu ce piège, je ferais deux préparatifs. Le premier serait de bloquer toutes les auras provenant de cet endroit, et le second serait de trouver quelqu'un pour entraver le Grand Empyréen Jiu Di!
 

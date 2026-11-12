@@ -12,7 +12,7 @@ Personne d'autre au sein de l'Épreuve Humaine ne remarqua ce phénomène; pour 
 
 Wang Lin détourna son regard du ciel et s'assit au sommet de la montagne.
 
-Allumer le feu karmique, créer un brasier à partir d'un seul fil d'obsession. Non pas pour consumer ce monde, mais pour brûler sa propre âme. Utiliser cette méthode périlleuse au moment même où l'âme est sur le point d'être détruite afin de trouver un chemin vers la survie et engendrer le feu karmique. Cela donnerait à l'Oiseau Vermillon une chance de s'éveiller pour la quatrième fois, permettant de passer du royaume du Feu Réel à celui du Feu Éthéré, un exploit extrêmement rare parmi les membres du Clan Zhu Que!
+Allumer le feu karmique, créer un brasier à partir d'un seul fil d'obsession. Non pas pour consumer ce monde, mais pour brûler sa propre âme. Utiliser cette méthode périlleuse au moment même où l'âme est sur le point d'être détruite afin de trouver un chemin vers la survie et engendrer le feu karmique. Cela donnerait à Suzaku une chance de s'éveiller pour la quatrième fois, permettant de passer du royaume du Feu Réel à celui du Feu Éthéré, un exploit extrêmement rare parmi les membres du Clan Zhu Que!
 
 Le Feu Éthéré, source de tous les feux du monde. Qu'il s'agisse du feu de la jalousie, de la colère, de la folie ou d'autres émotions, tout pouvait être utilisé par ceux qui avaient atteint le royaume du Feu Éthéré!
 
@@ -28,7 +28,7 @@ Un cultivateur du Feu Éthéré pouvait s'opposer à des milliers d'adversaires.
 
 L'essence du feu faisait partie des cinq éléments. Ce n'est qu'en devenant un Feu Éthéré que celle-ci pouvait s'affranchir de ces cinq éléments. Si elle parvenait à évoluer davantage en feu Dao et à accomplir l'art de la grande origine, on pourrait alors l'utiliser pour consumer la Porte Kong et ainsi devenir un cultivateur de la troisième étape!
 
-Le regard de Wang Lin était calme. Le Feu Éthéré était difficile à obtenir en raison de la graine de feu nécessaire au quatrième éveil de l'Oiseau Vermillon! Cependant, n'étant pas disposé à brûler ce monde, il devait choisir la voie la plus exigeante.
+Le regard de Wang Lin était calme. Le Feu Éthéré était difficile à obtenir en raison de la graine de feu nécessaire au quatrième éveil de Suzaku! Cependant, n'étant pas disposé à brûler ce monde, il devait choisir la voie la plus exigeante.
 
 Ce chemin était une marche entre la vie et la mort. Wang Lin pouvait encore choisir de quitter cet endroit et d'échouer à l'épreuve.
 

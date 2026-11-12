@@ -92,13 +92,13 @@ Le Shui Daozi projeta cette cloche vers le poing de Wang Lin!
 
 Une énergie spirituelle céleste d'une pureté extrême se répandit à travers le monde. La cloche dorée émit un son cristallin et, au moment où elle rencontra le poing de Wang Lin, une ondulation dorée éclata!
 
-Cette onde contenait un sort du Dao provenant du Royaume Céleste Antique. Dès son apparition, elle se propagea à une vitesse inimaginable depuis cette planète de culture comme épicentre... La Mer Yun, l'Alliance, la Rivière Invoquée et Luotian furent balayées par cette ondulation. C'était comme si tout ce qui était caché dans ces systèmes stellaires était soudainement révélé.
+Cette onde contenait un sort du Dao provenant du Royaume Céleste Antique. Dès son apparition, elle se propagea à une vitesse inimaginable depuis cette planète de culture comme épicentre... La Mer Yun, l'Alliance, Zhao He et Luotian furent balayées par cette ondulation. C'était comme si tout ce qui était caché dans ces systèmes stellaires était soudainement révélé.
 
 La gigantesque Formation de Scellement du Royaume, qui emprisonnait le Royaume Intérieur, apparut pour la première fois depuis des dizaines de milliers d'années!
 
 Dans le Système Stellaire de la Mer Yun, des groupes de cultivateurs voyageaient à travers la brume. Lorsque l'onde dorée se propagea, elle dissipa le brouillard, révélant l'immense formation qui surplombait le système!
 
-Dans le Système Stellaire de la Rivière Invoquée, d'innombrables cultivateurs circulaient dans le système en préparation pour la guerre. À cet instant, l'onde dorée se répandit et fut comme un voile mystérieux que l'on déchire. La Formation de Scellement du Royaume apparut devant eux!
+Dans le Système Stellaire de Zhao He, d'innombrables cultivateurs circulaient dans le système en préparation pour la guerre. À cet instant, l'onde dorée se répandit et fut comme un voile mystérieux que l'on déchire. La Formation de Scellement du Royaume apparut devant eux!
 
 Dans le Système Stellaire de Luotian, des groupes de cultivateurs déplaçaient les planètes de culture. Cependant, à cet instant, ils restèrent tous pétrifiés en contemplant la Formation de Scellement du Royaume sous leurs pieds!
 

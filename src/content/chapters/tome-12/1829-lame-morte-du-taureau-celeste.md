@@ -1,6 +1,6 @@
 ---
 n: 1829
-title: "L'Âme Morte du Taureau Céleste!"
+title: "L'Âme Morte du Tian Niu!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1829 - The Dead Soul of the Heavenly Bull !"
@@ -64,45 +64,45 @@ Sous l'effet de ce sort, les Anciens de la Secte Da Hun reculèrent sans hésite
 
 L'aura mortelle se concentra instantanément, mais ce n'était pas fini. Tandis qu'elle s'accumulait rapidement, Wang Lin sembla entendre un rugissement sourd provenant des profondeurs de la terre.
 
-Ce rugissement était celui du Taureau Céleste!
+Ce rugissement était celui du Tian Niu!
 
-Le Taureau Céleste était scellé sous ce continent. Il se trouvait en réalité dans un état de mort apparente. Son corps formait la terre, son esprit nourrissait tous les êtres vivants, et son âme était réprimée. Cependant, sa volonté indomptable subsistait toujours.
+Le Tian Niu était scellé sous ce continent. Il se trouvait en réalité dans un état de mort apparente. Son corps formait la terre, son esprit nourrissait tous les êtres vivants, et son âme était réprimée. Cependant, sa volonté indomptable subsistait toujours.
 
-À cet instant, le Dao Démoniaque de Wang Lin inversant la vie et la mort, une aura mortelle choquante jaillit du sol. En surgissant, elle sembla plonger le monde dans un brouillard épais. Une fois cette aura fusionnée avec la mer de mort, elle prit la forme d'un Taureau Céleste gigantesque!
+À cet instant, le Dao Démoniaque de Wang Lin inversant la vie et la mort, une aura mortelle choquante jaillit du sol. En surgissant, elle sembla plonger le monde dans un brouillard épais. Une fois cette aura fusionnée avec la mer de mort, elle prit la forme d'un Tian Niu gigantesque!
 
-Le Taureau Céleste arborait une expression féroce et ses yeux étaient injectés de sang. Il poussa un rugissement terrifiant, empreint de son refus de mourir.
+Le Tian Niu arborait une expression féroce et ses yeux étaient injectés de sang. Il poussa un rugissement terrifiant, empreint de son refus de mourir.
 
-Dès l'apparition du Taureau Céleste, toute la Secte Da Hun fut ébranlée. Les Anciens environnants tremblèrent, les yeux remplis d'incrédulité.
+Dès l'apparition du Tian Niu, toute la Secte Da Hun fut ébranlée. Les Anciens environnants tremblèrent, les yeux remplis d'incrédulité.
 
-« Le Taureau Céleste!! »
+« Le Tian Niu!! »
 
-« C'est... est-ce le Taureau Céleste?! Il a pris sa forme!! »
+« C'est... est-ce le Tian Niu?! Il a pris sa forme!! »
 
 « C'est impossible, comment peut-il en être ainsi?! »
 
-Même les vieux monstres qui n'étaient pas sortis et qui observaient via leur Sens Divin furent choqués. Ils quittèrent leurs sommets pour contempler le Taureau Céleste formé par l'aura de mort. Même certains vieux monstres qui pensaient que ce combat ne méritait pas leur attention furent émus.
+Même les vieux monstres qui n'étaient pas sortis et qui observaient via leur Sens Divin furent choqués. Ils quittèrent leurs sommets pour contempler le Tian Niu formé par l'aura de mort. Même certains vieux monstres qui pensaient que ce combat ne méritait pas leur attention furent émus.
 
-Dans la partie la plus profonde de la Secte Da Hun, sur le pic le plus élevé, siégeait un vieil homme. Ce dernier ressemblait trait pour trait au corps véritable de l'Illustre Taureau Vert. C'était son corps originel!
+Dans la partie la plus profonde de la Secte Da Hun, sur le pic le plus élevé, siégeait un vieil homme. Ce dernier ressemblait trait pour trait au corps véritable de l'Illustre Qing Niu. C'était son corps originel!
 
 Ses yeux clos s'ouvrirent soudainement, révélant une rare pointe d'excitation.
 
-« Une âme capable de déclencher le Taureau Céleste... C'est la personne dont l'Ancêtre a parlé!! Il y a d'innombrables années, l'Ancêtre a déplacé toute la Secte Da Hun vers le Continent Tian Niu et a choisi cette veine principale de feu terrestre comme l'un de ses sommets pour attendre une seule personne! »
+« Une âme capable de déclencher le Tian Niu... C'est la personne dont l'Ancêtre a parlé!! Il y a d'innombrables années, l'Ancêtre a déplacé toute la Secte Da Hun vers le Continent Tian Niu et a choisi cette veine principale de feu terrestre comme l'un de ses sommets pour attendre une seule personne! »
 
-« Cette personne peut réveiller le Taureau Céleste... elle vient du monde des grottes... c'est lui!! »
+« Cette personne peut réveiller le Tian Niu... elle vient du monde des grottes... c'est lui!! »
 
-« Il n'est pas issu du Continent Astral Immortel; il vient du monde des grottes. D'une certaine manière, il est très similaire aux 72 bêtes scellées sous les 72 continents! »
+« Il n'est pas issu du Continent Xian Gang; il vient du monde des grottes. D'une certaine manière, il est très similaire aux 72 bêtes scellées sous les 72 continents! »
 
-« Le Taureau Céleste provient de l'extérieur des cieux, et non du Continent Astral Immortel. Cet homme est identique, c'est pourquoi il peut déclencher l'âme du Taureau Céleste!! »
+« Le Tian Niu provient de l'extérieur des cieux, et non du Continent Xian Gang. Cet homme est identique, c'est pourquoi il peut déclencher l'âme du Tian Niu!! »
 
-Au moment où le Taureau Céleste d'aura mortelle apparut, le visage de Yan Luan devint livide. Elle n'avait pas imaginé que ce combat prendrait une telle tournure.
+Au moment où le Tian Niu d'aura mortelle apparut, le visage de Yan Luan devint livide. Elle n'avait pas imaginé que ce combat prendrait une telle tournure.
 
 Un rugissement déchira le monde alors que le taureau d'aura mortelle chargeait Yan Luan, porté par l'océan funeste. Simultanément, l'ombre de sang sur la voie derrière elle leva le pied et fit trois pas!
 
-À chaque pas, le visage de Yan Luan pâlissait davantage tandis que la pression de l'ombre de sang s'intensifiait pour contrer le Taureau Céleste!
+À chaque pas, le visage de Yan Luan pâlissait davantage tandis que la pression de l'ombre de sang s'intensifiait pour contrer le Tian Niu!
 
 Des grondements tonitruants éclatèrent. Bien que le Taureau d'aura mortelle et l'ombre de sang ne fussent pas proches, la pression qu'ils généraient entra en collision. Le monde sembla s'inverser sous l'impact.
 
-L'ombre de sang se distordit puis finit par disparaître; au même moment, le Taureau Céleste d'aura mortelle s'effondra et la brume se dissipa. Ce taureau ne contenait qu'une infime partie de la volonté originale et était loin de la puissance du véritable Taureau Céleste. Néanmoins, il n'en demeurait pas moins redoutable!
+L'ombre de sang se distordit puis finit par disparaître; au même moment, le Tian Niu d'aura mortelle s'effondra et la brume se dissipa. Ce taureau ne contenait qu'une infime partie de la volonté originale et était loin de la puissance du véritable Tian Niu. Néanmoins, il n'en demeurait pas moins redoutable!
 
 « Dieu, Démon, Diable, Ancien Dao Sans Céleste! » murmura Wang Lin en tendant sa main comme une paume. Les trois auras des clans antiques fusionnèrent rapidement en lui. Il forma alors un poing et lança un coup dévastateur.
 

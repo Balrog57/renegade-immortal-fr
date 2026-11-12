@@ -72,7 +72,7 @@ Wang Lin se redressa brusquement, et les bouleversements mondiaux disparurent sa
 
 Il resta là un long moment avant de bouger enfin. Le Dragon Marin Exalté Doré, dont l'admiration pour Wang Lin ne cessait de croître, s'avança, permettant à Wang Lin de poser le pied sur sa tête.
 
-Liu Jinbiao déglutit, regardant lui aussi Wang Lin avec une crainte respectueuse. Cette fascination était la même qu'il avait ressentie dans le monde des grottes; elle n'avait pas changé ici, sur le Continent Astral Immortel. Il grimpa rapidement sur le dos du dragon marin et se tint respectueusement derrière Wang Lin.
+Liu Jinbiao déglutit, regardant lui aussi Wang Lin avec une crainte respectueuse. Cette fascination était la même qu'il avait ressentie dans le monde des grottes; elle n'avait pas changé ici, sur le Continent Xian Gang. Il grimpa rapidement sur le dos du dragon marin et se tint respectueusement derrière Wang Lin.
 
 Sa culture s'était largement rétablie durant ces treize dernières années grâce à ses souvenirs et au fait d'avoir cherché les bonnes grâces du dragon marin pour obtenir son aide.
 
@@ -100,7 +100,7 @@ Après une profonde inspiration, Wang Lin ferma les yeux et son Sens Divin se co
 
 « Cette fois, je dois me faire un nom en un seul mouvement! Cette fois, je dois forcer tous les Exaltés Empyréens à lever les yeux pour me regarder... Cette fois, je serai l'un des Ascendants Empyréens!
 
-« Cette fois, je deviendrai le 49e Ascendant Empyréen! Cette fois, j'utiliserai la puissance de l'armure d'âme du Taureau Céleste! »
+« Cette fois, je deviendrai le 49e Ascendant Empyréen! Cette fois, j'utiliserai la puissance de l'armure d'âme du Tian Niu! »
 
 Le Sens Divin de Wang Lin s'éleva vers les cieux telle une colonne de gaz invisible. Il continua sa montée jusqu'à ce que son esprit frémisse. Lorsque sa vision redevint claire, il reconnut l'Épreuve Empyrée!
 

@@ -94,23 +94,23 @@ Cependant, c'était un processus de longue haleine, car il fallait expérimenter
 
 L'esprit de Wang Lin continua sa progression et il vit une mer de flammes approcher. Un géant Oiseau Vermillon émettant une chaleur extrême menait cette mer de feu.
 
-De vastes fissures apparaissaient dans l'espace par où passait l'Oiseau Vermillon, comme si la réalité pouvait s'effondrer d'un simple contact. Tous les météores qui s'approchaient de lui étaient réduits en cendres.
+De vastes fissures apparaissaient dans l'espace par où passait Suzaku, comme si la réalité pouvait s'effondrer d'un simple contact. Tous les météores qui s'approchaient de lui étaient réduits en cendres.
 
-Si ce n'était pour le fait que l'Oiseau Vermillon évitait les planètes de culture, bien trop de mondes se seraient effondrés sur son passage.
+Si ce n'était pour le fait que Suzaku évitait les planètes de culture, bien trop de mondes se seraient effondrés sur son passage.
 
-Des rayons de flammes suivaient l'Oiseau Vermillon. À l'intérieur de chaque rayon, on trouvait des cultivateurs vêtus de rouge. Parmi eux se trouvaient des hommes et des femmes, ainsi que six Anciens dégageant une aura terrifiante en tête de procession.
+Des rayons de flammes suivaient Suzaku. À l'intérieur de chaque rayon, on trouvait des cultivateurs vêtus de rouge. Parmi eux se trouvaient des hommes et des femmes, ainsi que six Anciens dégageant une aura terrifiante en tête de procession.
 
-De loin, on aurait dit qu'il y avait pas moins de 1 000 cultivateurs derrière l'Oiseau Vermillon, et aucun d'eux n'avait un niveau de culture médiocre!
+De loin, on aurait dit qu'il y avait pas moins de 1 000 cultivateurs derrière Suzaku, et aucun d'eux n'avait un niveau de culture médiocre!
 
 Ces individus se déplaçaient avec rapidité derrière l'oiseau flamboyant!
 
-L'Oiseau Vermillon semblait familier à Wang Lin. Au moment où son esprit le frôla, les yeux ardents de la créature s'illuminèrent et son corps trembla. Un cri puissant de l'Oiseau Vermillon retentit immédiatement!
+L'Oiseau Vermillon semblait familier à Wang Lin. Au moment où son esprit le frôla, les yeux ardents de la créature s'illuminèrent et son corps trembla. Un cri puissant de Suzaku retentit immédiatement!
 
 Une fois l'esprit de Wang Lin passé, la confusion envahit le géant Oiseau Vermillon.
 
 L'oiseau n'était pas le seul troublé. Les cultivateurs derrière lui étaient également perplexes, en particulier les six Anciens qui se regardèrent avec surprise.
 
-Ils ignoraient pourquoi l'Esprit de l'Oiseau Vermillon avait poussé un tel cri. Malgré toutes leurs réflexions, ils ne purent trouver de réponse.
+Ils ignoraient pourquoi l'Esprit de Suzaku avait poussé un tel cri. Malgré toutes leurs réflexions, ils ne purent trouver de réponse.
 
 L'esprit de Wang Lin continua de s'étendre. Au centre de l'Alliance, il y avait un champ d'étoiles rempli de météores pourpre foncé. Dans les profondeurs de ce champ stellaire reposait un autre monde.
 

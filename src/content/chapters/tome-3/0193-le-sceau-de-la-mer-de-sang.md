@@ -84,7 +84,7 @@ Le regard de Wang Lin se posa sur l'homme situé au sommet du pilier céleste. L
 
 Les cultivateurs démoniaques trouvèrent leurs places respectives et fixèrent Wang Lin du regard. Ils étaient tous assis en tailleur, à l'exception de Wang Lin qui était le seul à flotter dans les airs.
 
-Wang Lin balaya la zone du regard. Il y avait au moins mille cultivateurs. Parmi eux, il reconnut Bossu Meng, Duanmu Ji, Wang Qingyue, le Magicien Démon Céleste...
+Wang Lin balaya la zone du regard. Il y avait au moins mille cultivateurs. Parmi eux, il reconnut Meng Tuozi, Duanmu Ji, Wang Qingyue, le Magicien Démon Céleste...
 
 Soudain, une faille apparut dans l'espace adjacent à l'homme aux cheveux rouges. Un homme aux longs cheveux en sortit. Dès son apparition, il regarda Wang Lin avec un air d'extase et dit à l'homme aux cheveux rouges: « Maître, c'est lui, le dévoreur d'âmes. » Puis, il s'installa sur un pilier voisin.
 

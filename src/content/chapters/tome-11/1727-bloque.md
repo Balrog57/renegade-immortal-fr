@@ -16,7 +16,7 @@ Quant aux quatre généraux, ils ne l'avaient pas non plus perçue.
 
 Leurs Sens Divins étaient assez puissants pour couvrir toute la Mer Yun, mais ils ne pouvaient pas voir la Bête des Limbes. Ils n'avaient même pas remarqué Wang Lin, assis sur le dos de la créature.
 
-C'est ainsi que Tian Yunzi avait pu demeurer dans la Rivière Invoquée pendant des centaines d'années sans jamais être détecté.
+C'est ainsi que Tian Yunzi avait pu demeurer dans Zhao He pendant des centaines d'années sans jamais être détecté.
 
 Le corps original de Wang Lin était assis sur le dos de la Bête des Limbes, tandis que son avatar, placé face à lui, condensait ses essences. Les ondulations qui se propageaient à travers la Mer Yun ne pouvaient être dissimulées et furent détectées par les quatre généraux ainsi que par d'autres êtres célestes.
 
@@ -48,7 +48,7 @@ Les yeux de Wang Lin brillèrent et il bougea son corps. Constatant qu'il n'épr
 
 Du point de vue de Wang Lin, Tian Yunzi était un clou qu'il fallait arracher; sinon, il y aurait trop d'imprévus à l'avenir. L'un d'eux pourrait s'avérer fatal.
 
-C'était la vérité. Maintenant que Tian Yunzi avait été détruit par Wang Lin, il ne restait plus qu'un second clou: les êtres célestes de la Secte Gui Yi, venus du Continent Astral Immortel.
+C'était la vérité. Maintenant que Tian Yunzi avait été détruit par Wang Lin, il ne restait plus qu'un second clou: les êtres célestes de la Secte Gui Yi, venus du Continent Xian Gang.
 
 Ces intrus étaient le deuxième clou! Il allait les exposer à la lumière!
 
@@ -104,7 +104,7 @@ Wang Lin fronça les sourcils, fixa froidement l'autre et, après un long silenc
 
 « Daoïste Wang, ne soyez pas en colère. Nous n'avons aucune malveillance, nous trouvons simplement cette bête extrêmement étrange. Elle semble capable d'échapper à tout Sens Divin. Je me demande bien où vous avez trouvé une telle créature? » Le général du Tigre Blanc sourit et fit un pas en avant pour se placer à la droite de Wang Lin.
 
-Simultanément, la Tortue Noire s'avança également pour se positionner à sa gauche. Le général de l'Oiseau Vermillon hésita un instant, mais décida tout de même de bloquer la voie de retraite de Wang Lin.
+Simultanément, la Tortue Noire s'avança également pour se positionner à sa gauche. Le général de Suzaku hésita un instant, mais décida tout de même de bloquer la voie de retraite de Wang Lin.
 
 Peu après, la centaine d'anciens êtres célestes se rapprochèrent silencieusement, encerclant Wang Lin et la Bête des Limbes.
 

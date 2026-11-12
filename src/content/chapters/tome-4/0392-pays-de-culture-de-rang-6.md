@@ -6,45 +6,45 @@ bookTitle: Clean Sweep
 en: Chapter 392- Rank 6 cultivation country
 slug: pays-de-culture-de-rang-6
 ---
-« Même si Yun Quezi m'avait sollicité personnellement, si je ne l'avais pas voulu, je me contenterais d'expulser Liu Mei sans pour autant vous offrir les deux autres cadeaux. » La lueur mystérieuse dans les yeux de Du Tian devint plus intense encore.
+« Même si Yun Quezi m'avait sollicité personnellement, si je ne l'avais pas voulu, je me contenterais d'expulser Liu Mei sans pour autant vous offrir les deux autres cadeaux. » La lueur mystérieuse dans les yeux de Dun Tian devint plus intense encore.
 
-« Que tu sois Ceng Niu ou Wang Lin, cela n'a aucune importance. Depuis que ma Secte Lian Hun est arrivée sur la planète Suzaku, nous avons compté un total de 36 ancêtres de Transformation de l'Âme. Leurs âmes résident toutes dans le drapeau de l'âme. Je suis le 37ème, et mon Senior frère était le 36ème! »
+« Que tu sois Zeng Niu ou Wang Lin, cela n'a aucune importance. Depuis que ma Secte Lian Hun est arrivée sur la planète Suzaku, nous avons compté un total de 36 ancêtres de Transformation de l'Âme. Leurs âmes résident toutes dans le drapeau de l'âme. Je suis le 37ème, et mon Senior frère était le 36ème! »
 
 L'expression de Wang Lin changea. Il leva la tête et fixa les deux anneaux de sang.
 
-Du Tian dit d'une voix lente: « Jeune ami, nul besoin de regarder; mon Senior frère est décédé il y a deux ans, sa longévité étant arrivée à son terme. Même le Suzaku actuel n'en est pas informé. »
+Dun Tian dit d'une voix lente: « Jeune ami, nul besoin de regarder; mon Senior frère est décédé il y a deux ans, sa longévité étant arrivée à son terme. Même le Suzaku actuel n'en est pas informé. »
 
 Wang Lin réfléchit en silence.
 
-La lueur mystérieuse dans les yeux de Du Tian s'intensifia alors qu'il fixait Wang Lin et déclara, mot pour mot: « Jeune ami, j'ai une question à te poser. Es-tu prêt à rejoindre ma Secte Lian Hun, à en devenir le prochain successeur et à jurer sur ton domaine que tu aideras un jour ma Secte à devenir un pays de culture de rang 6?! »
+La lueur mystérieuse dans les yeux de Dun Tian s'intensifia alors qu'il fixait Wang Lin et déclara, mot pour mot: « Jeune ami, j'ai une question à te poser. Es-tu prêt à rejoindre ma Secte Lian Hun, à en devenir le prochain successeur et à jurer sur ton domaine que tu aideras un jour ma Secte à devenir un pays de culture de rang 6?! »
 
 Wang Lin ne répondit pas immédiatement, mais demanda: « Pourquoi moi? »
 
-« Yun Quezi n'est qu'une partie de la raison. La raison principale réside toutefois dans mon Senior frère. Jeune ami Ceng Niu, le domaine de mon frère n'avait aucune capacité offensive, mais il était le seul à posséder un tel don sur toute la planète. Même sur d'autres mondes, c'est extrêmement rare. » Du Tian afficha un regard empreint de respect.
+« Yun Quezi n'est qu'une partie de la raison. La raison principale réside toutefois dans mon Senior frère. Jeune ami Zeng Niu, le domaine de mon frère n'avait aucune capacité offensive, mais il était le seul à posséder un tel don sur toute la planète. Même sur d'autres mondes, c'est extrêmement rare. » Dun Tian afficha un regard empreint de respect.
 
 « Ce domaine est celui de la prescience! Il lui restait initialement cent ans de vie, mais il les a tous consumés pour activer son domaine afin de trouver une voie d'avenir pour ma Secte Lian Hun, et pourtant, il a échoué... »
 
 Wang Lin fronça les sourcils, attendant la fin de son récit. Si le vieil homme commençait à prétendre que le Senior frère avait prédit que Wang Lin serait leur espoir, il ne l'écouterait plus.
 
-Du Tian fixa Wang Lin avec une pointe de folie: « Bien que mon Senior frère soit mort, le moment de son trépas fut aussi celui de ton arrivée aux portes de ma secte! »
+Dun Tian fixa Wang Lin avec une pointe de folie: « Bien que mon Senior frère soit mort, le moment de son trépas fut aussi celui de ton arrivée aux portes de ma secte! »
 
 Wang Lin fut stupéfait.
 
-« C'est peut-être une coïncidence, ou peut-être n'est-ce que l'entêtement de ce vieil homme, mais ma longévité touche à sa fin et je ne peux plus attendre. Je suis prêt à parier que c'est le domaine de mon frère qui t'a conduit ici! » Du Tian laissa échapper un sourire amer. Il savait qu'il ne faisait, en grande partie, que se voiler la vérité.
+« C'est peut-être une coïncidence, ou peut-être n'est-ce que l'entêtement de ce vieil homme, mais ma longévité touche à sa fin et je ne peux plus attendre. Je suis prêt à parier que c'est le domaine de mon frère qui t'a conduit ici! » Dun Tian laissa échapper un sourire amer. Il savait qu'il ne faisait, en grande partie, que se voiler la vérité.
 
 « La Secte Lian Hun n'a personne pour me succéder. Bien que je puisse défier le Suzaku actuel grâce au drapeau de l'âme, une fois que je serai mort, la Secte est finie... Le drapeau sera saisi par le Suzaku et, sans lui, la Secte Lian Hun s'éteindra. »
 
 Wang Lin réfléchit un instant. Il leva la tête et dit: « Si j'accepte, vous me remettrez le drapeau de l'âme. »
 
-Du Tian hocha la tête: « Je te remettrai le drapeau de l'âme lorsque ma vie atteindra son terme. »
+Dun Tian hocha la tête: « Je te remettrai le drapeau de l'âme lorsque ma vie atteindra son terme. »
 
 « Un pays de culture de rang 6... » Wang Lin secoua la tête avec un sourire amer. « Avec mon niveau de culture actuel, c'est bien trop difficile. »
 
-Du Tian soupira: « Ceng Niu, il ne me reste que dix ans à vivre. Durant ces dix années, je peux assurer ta sécurité, mais après cela, tu seras livré à toi-même. Que tu réussisses ou non importe peu, mais retiens mes paroles. Souviens-toi que la Secte Lian Hun ne t'a fait aucun mal et t'a offert le drapeau de l'âme. Cela suffira. »
+Dun Tian soupira: « Zeng Niu, il ne me reste que dix ans à vivre. Durant ces dix années, je peux assurer ta sécurité, mais après cela, tu seras livré à toi-même. Que tu réussisses ou non importe peu, mais retiens mes paroles. Souviens-toi que la Secte Lian Hun ne t'a fait aucun mal et t'a offert le drapeau de l'âme. Cela suffira. »
 
 Wang Lin pesait ses mots. Après un long silence, il hocha la tête: « Je ferai de mon mieux. »
 
-Les yeux de Du Tian s'illuminèrent. Il regarda Wang Lin et éclata de rire. Puis, d'un revers de main sur son sac de rangement, il projeta une pierre de jade dorée vers Wang Lin.
+Les yeux de Dun Tian s'illuminèrent. Il regarda Wang Lin et éclata de rire. Puis, d'un revers de main sur son sac de rangement, il projeta une pierre de jade dorée vers Wang Lin.
 
 « Ma Secte Lian Hun n'est pas portée sur les fioritures. Cette pierre contient le manuel de scellement de l'âme utilisé pour contrôler le drapeau d'un milliard d'âmes. C'est le cœur de notre secte. À partir d'aujourd'hui, tu es le seul disciple central de la Secte Lian Hun. »
 
@@ -54,13 +54,13 @@ Wang Lin prit la pierre de jade, l'examina rapidement avant de la ranger dans so
 
 Wang Lin esquissa un léger sourire: « Aucun problème. Si je n'étais pas capable de me protéger, je ne serais plus en vie aujourd'hui. Ne vous inquiétez pas, Senior. J'ai des affaires personnelles à régler. Je m'assurerai d'être de retour avant que vous ne sortiez de votre culture fermée. »
 
-Du Tian observa Wang Lin. Après une courte réflexion, il acquiesça: « Puisque tu en es si sûr, je n'en dirai pas plus. Tu peux partir. » Sur ce, il disparut dans l'anneau de sang.
+Dun Tian observa Wang Lin. Après une courte réflexion, il acquiesça: « Puisque tu en es si sûr, je n'en dirai pas plus. Tu peux partir. » Sur ce, il disparut dans l'anneau de sang.
 
 Wang Lin joignit respectueusement les mains, puis s'éclipsa pour quitter la Secte Lian Hun.
 
 La vitesse de Wang Lin était celle d'une météorite fendant la nuit. Ses cheveux flottaient au gré du vent et ses yeux brillaient comme des étoiles.
 
-Il ne croyait pas tout ce que Du Tian lui avait raconté; après tout, Wang Lin n'était pas un novice dans le monde de la culture. Il en avait trop vécu et trop vu. Cependant, ce n'était pas le moment de s'interroger. Le jour où Du Tian lui remettrait le drapeau de l'âme, la vérité éclaterait.
+Il ne croyait pas tout ce que Dun Tian lui avait raconté; après tout, Wang Lin n'était pas un novice dans le monde de la culture. Il en avait trop vécu et trop vu. Cependant, ce n'était pas le moment de s'interroger. Le jour où Dun Tian lui remettrait le drapeau de l'âme, la vérité éclaterait.
 
 « Li Yuanfeng! » Une intention meurtrière embrasa son regard alors qu'il accélérait encore sa course.
 

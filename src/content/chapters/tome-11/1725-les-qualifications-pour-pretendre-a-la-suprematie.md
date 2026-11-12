@@ -104,7 +104,7 @@ Lanmeng Daozun et ses compagnons voulurent les poursuivre, mais Wang Lin les en 
 
 La Bête des Limbes ouvrit soudainement sa gueule et chargea. À l'instant même, les 2 999 âmes furent enveloppées par une force d'aspiration colossale. Elles hurlèrent toutes en étant aspirées dans la gueule béante de la bête!
 
-« Senior Lan Meng, Senior Qing Lin et Senior Hong Shan, je dois reformer mon avatar de cultivateur, je ne retournerai donc pas au Royaume Céleste avec vous. Une fois mes affaires réglées, je vous rejoindrai là-bas. Dites à Senior Frère Qing Shui qu'il est préférable qu'il ne sorte pas durant cette période et que j'aurai besoin de son aide à mon retour. »
+« Senior Lanmeng, Senior Qing Lin et Senior Hong Shan, je dois reformer mon avatar de cultivateur, je ne retournerai donc pas au Royaume Céleste avec vous. Une fois mes affaires réglées, je vous rejoindrai là-bas. Dites à Senior Frère Qing Shui qu'il est préférable qu'il ne sorte pas durant cette période et que j'aurai besoin de son aide à mon retour. »
 
 Wang Lin joignit les mains en signe de respect envers les trois, paraissant encore plus las. Il s'assit sur le dos de la Bête des Limbes et disparut lentement dans le lointain.
 

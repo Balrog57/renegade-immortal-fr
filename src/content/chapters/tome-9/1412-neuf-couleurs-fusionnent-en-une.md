@@ -12,17 +12,17 @@ Ce sang contenait l'essence même du feu intérieur du dragon. Il était bien pl
 
 À l'instant où les gouttes touchèrent l'objet, elles furent absorbées par le bâton d'encens et disparurent.
 
-À l'intérieur de l'Épreuve Terrestre, le lotus de feu aux neuf couleurs flottait dans le ciel tandis que Wang Lin siégeait au-dessus. Derrière lui, l'Oiseau Vermillon aux neuf couleurs poussait des cris incessants; on percevait dans ses hurlements une lutte acharnée, comme s'il tentait désespérément de renaître.
+À l'intérieur de l'Épreuve Terrestre, le lotus de feu aux neuf couleurs flottait dans le ciel tandis que Wang Lin siégeait au-dessus. Derrière lui, Suzaku aux neuf couleurs poussait des cris incessants; on percevait dans ses hurlements une lutte acharnée, comme s'il tentait désespérément de renaître.
 
 D'innombrables éclats de lumière se propageaient dans toutes les directions, et la mer de feu s'étendait à travers l'Épreuve Terrestre.
 
 Le regard de Wang Lin était étincelant. Ses mains formèrent un sceau et des flammes apparurent dans son œil gauche. Ce feu aux neuf couleurs commença à pivoter à une vitesse vertigineuse, prenant l'apparence d'un vortex chromatique.
 
-« Neuf couleurs, fusionnez en une! Quatrième éveil de l'Oiseau Vermillon! » L'esprit de Wang Lin était d'une clarté absolue; il avait déjà traversé trois éveils, et sa puissance ignée s'était démultipliée à chaque étape.
+« Neuf couleurs, fusionnez en une! Quatrième éveil de Suzaku! » L'esprit de Wang Lin était d'une clarté absolue; il avait déjà traversé trois éveils, et sa puissance ignée s'était démultipliée à chaque étape.
 
 Cependant, les trois précédents ne faisaient pas le poids face à celui-ci. Ce quatrième éveil était crucial: c'était l'instant précis où le feu corporel se transformerait en Feu Éthéré!
 
-Depuis des temps immémoriaux, trop peu de personnes avaient réussi un quatrième éveil de l'Oiseau Vermillon! Pas plus de cinq!
+Depuis des temps immémoriaux, trop peu de personnes avaient réussi un quatrième éveil de Suzaku! Pas plus de cinq!
 
 L'Oiseau Vermillon de première génération, de deuxième, de troisième et de quatrième génération... hormis eux, seul Wang Lin y parvenait! Bien que l'ancêtre de la troisième étape du Clan Huo Que possédât une once de Feu Éthéré, il n'était pas un véritable Oiseau Vermillon à l'origine; comment aurait-il pu s'éveiller?
 
@@ -46,7 +46,7 @@ Chaque goutte tombant du ciel contenait le feu destructeur du dragon; son arriv�
 
 Au lieu de frapper le sol, les gouttes de sang commencèrent à converger vers Wang Lin, formant rapidement une sphère sanguine autour de lui.
 
-Cette sphère commença à brûler et fut immédiatement absorbée par l'Oiseau Vermillon aux neuf couleurs. La puissance ignée au sein du corps de Wang Lin augmenta brusquement, provoquant un cri assourdissant de la créature céleste.
+Cette sphère commença à brûler et fut immédiatement absorbée par Suzaku aux neuf couleurs. La puissance ignée au sein du corps de Wang Lin augmenta brusquement, provoquant un cri assourdissant de la créature céleste.
 
 Le brasier dans toute l'Épreuve Terrestre s'intensifia.
 
@@ -62,11 +62,11 @@ L'homme soupira et murmura: « Cette personne possède l'aura de quelqu'un que j
 
 Un Feu Éthéré commença à brûler dans l'Épreuve Terrestre. Ce feu ne dégageait aucune chaleur, mais pouvait consumer tout ce qui croisait son chemin. Dès qu'il apparut, il fonça vers Wang Lin.
 
-En un instant, cette monstrueuse flamme éthérée enveloppa Wang Lin et pénétra rapidement dans l'Oiseau Vermillon aux neuf couleurs en pleine lutte.
+En un instant, cette monstrueuse flamme éthérée enveloppa Wang Lin et pénétra rapidement dans Suzaku aux neuf couleurs en pleine lutte.
 
-L'homme d'âge moyen était le maître de Lu Yun, l'Oiseau Vermillon de la cinquième génération, et lui-même Oiseau Vermillon de la quatrième génération!
+L'homme d'âge moyen était le maître de Lu Yun, Suzaku de la cinquième génération, et lui-même Oiseau Vermillon de la quatrième génération!
 
-Il avait éveillé son oiseau et atteint le royaume du Feu Éthéré. Dès que cette force fusionna avec l'Oiseau Vermillon de Wang Lin, un cri noble et majestueux retentit.
+Il avait éveillé son oiseau et atteint le royaume du Feu Éthéré. Dès que cette force fusionna avec Suzaku de Wang Lin, un cri noble et majestueux retentit.
 
 Le feu autour de Wang Lin fut multiplié d'un coup!
 
@@ -102,7 +102,7 @@ Sur la Planète du Grand Empereur, les yeux de l'Ancien Oiseau Vermillon brillè
 
 « Petit compagnon, pour t'aider, ce vieil homme a tout donné. Que tu parviennes à ce quatrième éveil dépendra désormais de ta propre chance! »
 
-Dans l'Épreuve Terrestre, après la pluie de sang, le Feu Éthéré de l'Ancien Oiseau Vermillon s'engouffra et fusionna avec l'Oiseau Vermillon de Wang Lin.
+Dans l'Épreuve Terrestre, après la pluie de sang, le Feu Éthéré de l'Ancien Oiseau Vermillon s'engouffra et fusionna avec Suzaku de Wang Lin.
 
 Cette force provoqua la disparition des flammes indigo, bleues et violettes! À ce stade, sept couleurs avaient déjà fusionné. Seuls le noir et le blanc continuaient de lutter!
 
@@ -118,8 +118,8 @@ Cette tempête noire tournait toujours, mais elle devenait de plus en plus lég�
 
 Les neuf couleurs n'en firent plus qu'une!
 
-Au moment précis de cette fusion ultime, l'Oiseau Vermillon de Wang Lin jaillit. L'oiseau était enveloppé d'un subtil Feu Éthéré et poussa un cri qui fit trembler les cieux!
+Au moment précis de cette fusion ultime, Suzaku de Wang Lin jaillit. L'oiseau était enveloppé d'un subtil Feu Éthéré et poussa un cri qui fit trembler les cieux!
 
-Le quatrième éveil de l'Oiseau Vermillon était accompli!
+Le quatrième éveil de Suzaku était accompli!
 
 « Quatrième éveil, transforme mon feu corporel en Feu Éthéré! » Wang Lin se redressa brusquement. Le lotus de feu aux neuf couleurs sous lui vola en éclats en d'innombrables fragments qui convergèrent vers son Oiseau Vermillon.

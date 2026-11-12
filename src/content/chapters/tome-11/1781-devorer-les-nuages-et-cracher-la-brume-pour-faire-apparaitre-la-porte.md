@@ -26,7 +26,7 @@ La rivière continuait son cours, tandis que les souvenirs de la troisième âme
 
 La Secte Dong Lin était l'un des Neuf Sectes et Treize Factions de cette région. Bien qu'il ne fût pas aussi puissant que la Secte Zi Yang, il était empreint d'un grand mystère; ses disciples sortaient rarement.
 
-Les trois grandes techniques de la secte étaient célèbres sur le Continent Astral Immortel et se transmettaient depuis l'Antiquité.
+Les trois grandes techniques de la secte étaient célèbres sur le Continent Xian Gang et se transmettaient depuis l'Antiquité.
 
 Parmi elles, l'Art Céleste du Dao des Nuages était particulièrement profond. Il se concentrait sur les nuages du monde, aussi éthéré que le Grand Dao lui-même, et l'on y comprenait le Dao à travers les nuages. En s'intégrant aux nuages, on pouvait emprunter leur essence pour lancer les grands sorts du Dao des Nuages!
 
@@ -66,7 +66,7 @@ Wang Lin se leva et s'élança dans les airs. Il quitta le petit cours d'eau pou
 
 Par l'art du mouvement des nuages, il franchissait en un instant des distances sans fin.
 
-Dans le ciel, des nuages sombres recouvrirent la zone. Le tonnerre gronda et la pluie s'abattit sur la plaine en contrebas. Les nuages noirs couvraient une vaste étendue, surplombant une cité qui abritait d'innombrables mortels du Continent Astral Immortel.
+Dans le ciel, des nuages sombres recouvrirent la zone. Le tonnerre gronda et la pluie s'abattit sur la plaine en contrebas. Les nuages noirs couvraient une vaste étendue, surplombant une cité qui abritait d'innombrables mortels du Continent Xian Gang.
 
 Wang Lin siégeait au cœur des nuages sombres. Ses mains formèrent un sceau puis il aspira brusquement vers l'extérieur. Le tonnerre redoubla d'intensité tandis que les éclairs serpentaient sans fin dans la masse nuageuse, et la pluie se mit à tomber plus violemment encore.
 

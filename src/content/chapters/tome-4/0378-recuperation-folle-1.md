@@ -26,9 +26,9 @@ En conséquence, comparé aux cultivateurs ayant atteint le stade de la Transfor
 
 Li Yuanfeng était plus puissant que les cultivateurs au sommet du dernier stade de la Formation de l'Âme, mais bien inférieur aux véritables experts de la Transformation de l'Âme; il n'avait donc aucun moyen de résister à la foudre de Sun Tai.
 
-« Je ne sais pas si Ceng Niu est mort ou non. Même s'il est toujours en vie, mon domaine de thé n'est pas une chose que l'on peut briser aisément. » Li Yuanfeng ricana, le regard glacial.
+« Je ne sais pas si Zeng Niu est mort ou non. Même s'il est toujours en vie, mon domaine de thé n'est pas une chose que l'on peut briser aisément. » Li Yuanfeng ricana, le regard glacial.
 
-« Cette junior, Hongdie, a annoncé qu'elle entrerait en retraite de culture pour cent ans. À sa sortie, elle sera certainement une cultivatrice de la Transformation de l'Âme. Mais à ce moment-là, ma propre durée de vie aura expiré et cela n'aura plus d'importance. Pourquoi l'ancêtre du Clan Ju Mo voulait-il le corps de Ceng Niu? C'est très étrange! Se pourrait-il qu'il y ait quelque chose que j'ignore... » Li Yuanfeng réfléchit un instant, sans toutefois parvenir à en deviner la raison.
+« Cette junior, Hongdie, a annoncé qu'elle entrerait en retraite de culture pour cent ans. À sa sortie, elle sera certainement une cultivatrice de la Transformation de l'Âme. Mais à ce moment-là, ma propre durée de vie aura expiré et cela n'aura plus d'importance. Pourquoi l'ancêtre du Clan Ju Mo voulait-il le corps de Zeng Niu? C'est très étrange! Se pourrait-il qu'il y ait quelque chose que j'ignore... » Li Yuanfeng réfléchit un instant, sans toutefois parvenir à en deviner la raison.
 
 À l'intérieur de Pilu, parmi les nombreuses montagnes occupées par les disciples extérieurs de la Secte Lian Hun, Wang Lin s'éveilla de sa culture.
 
@@ -86,7 +86,7 @@ La prochaine fois que l'homme l'avait revu, il en était au milieu du stade de l
 
 Et maintenant, il avait déjà atteint le sommet du dernier stade de l'Établissement des Fondations. L'homme d'âge mûr se lécha les lèvres, le cœur palpitant. Il ne pouvait s'empêcher de penser que la prochaine fois qu'ils se rencontreraient, cet homme aurait déjà atteint son propre niveau: le début du stade de la Formation du Noyau!
 
-« Soit ce Qing Mu possède un trésor défiant les cieux, soit sa méthode de culture est extrêmement mystérieuse! » L'homme d'âge mûr fixa Wang Lin et sourit. « Qing Mu, je crains que la prochaine fois que nous nous croiserons, je doive t'appeler "compagnon cultivateur". »
+« Soit ce Qing Mu possède un trésor défiant les cieux, soit sa méthode de culture est extrêmement mystérieuse! » L'homme d'âge mûr fixa Wang Lin et sourit. « Qing Mu, je crains que la prochaine fois que nous nous croiserons, je doive t'appeler "Daoïste". »
 
 Wang Lin lui jeta un regard et répondit: « Aucun problème! »
 

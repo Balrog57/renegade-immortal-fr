@@ -82,7 +82,7 @@ Dès qu'un coin de la boussole fut touché par l'aura rouge, il disparut comme s
 
 La boussole trembla violemment. Chi Hu cracha une bouchée de sang et le visage de Hongdie devint anormalement écarlate.
 
-Chi Hu hurla: « Hongdie, agis! Je dois concentrer toute mon attention sur le contrôle de la boussole, je ne peux utiliser aucun sort pour résister! » Son front se couvrit de sueur froide: il regrettait de ne pas avoir écouté les conseils de Ceng Niu. Avec la vitesse de l'engin, pareille catastrophe ne leur serait jamais arrivée.
+Chi Hu hurla: « Hongdie, agis! Je dois concentrer toute mon attention sur le contrôle de la boussole, je ne peux utiliser aucun sort pour résister! » Son front se couvrit de sueur froide: il regrettait de ne pas avoir écouté les conseils de Zeng Niu. Avec la vitesse de l'engin, pareille catastrophe ne leur serait jamais arrivée.
 
 Sans un mot, Hongdie pressa son front et la rose réapparut. Elle arracha rapidement deux pétales et les projeta contre l'aura rouge.
 

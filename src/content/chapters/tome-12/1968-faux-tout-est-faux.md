@@ -90,7 +90,7 @@ En particulier... Les yeux de Wang Lin s'illuminèrent lorsqu'il regarda Tan Lan
 
 « Même après avoir subi un accident lors de la réincarnation, le Grand Empyréen Shuangzi possède encore une telle puissance. Sans cet accident... elle serait la plus puissante des Grands Empyréens du clan céleste. Je me demande comment elle se comparerait au Grand Empyréen Dong Lin... »
 
-« Le plus important est que j'ai négligé le fait qu'au sein de la Secte Yang Pourpre du Grand Empyréen Shuangzi, il existe un lieu connecté au monde des grottes... »
+« Le plus important est que j'ai négligé le fait qu'au sein de la Secte Zi Yang du Grand Empyréen Shuangzi, il existe un lieu connecté au monde des grottes... »
 
 « Hé, Petit Wang Lin, tu dois répondre! Si tu ne parles pas, je vais vraiment demander à mon père de te frapper! » Han Han regarda Wang Lin avec colère.
 
@@ -132,6 +132,6 @@ Wang Lin regarda les deux fillettes jouer au loin, tapotant la tête de Tan Lang
 
 Après tout, un être qui était le premier des Ascendants Empyréens, le numéro un sous les Grands Empyréens, serait difficile à retenir en permanence.
 
-« Senior, retournons à la Secte Yang Pourpre. Vous pourrez partir quand bon vous semble. Vous pouvez aller partout dans la Secte Yang Pourpre, y compris dans le lieu de culture fermée que le Grand Empyréen Shuangzi utilisait avant son accident! » Gu Ya joignit les mains avec un immense respect.
+« Senior, retournons à la Secte Zi Yang. Vous pourrez partir quand bon vous semble. Vous pouvez aller partout dans la Secte Zi Yang, y compris dans le lieu de culture fermée que le Grand Empyréen Shuangzi utilisait avant son accident! » Gu Ya joignit les mains avec un immense respect.
 
 « Allons-y... » Wang Lin regarda en direction de la Secte Dong Lin. C'était comme s'il faisait ses adieux au vieil homme solitaire qui restait là-bas.

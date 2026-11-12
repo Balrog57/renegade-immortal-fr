@@ -15,11 +15,11 @@ L'homme d'âge moyen comprit immédiatement la situation et laissa échapper un 
 
 L'ancêtre du Clan Ju Mo surgit et hurla: « Chi Hu, que fais-tu?! »
 
-Chi Hu s'interposa pour bloquer son ancêtre. Le regard clair, il cria: « Ancêtre, cette boussole stellaire est un cadeau que j'ai fait à Ceng Niu, ce n'est pas quelque chose qu'il a volé! Moi, Chi Hu, suis un homme d'honneur! Ceng Niu m'a sauvé à plusieurs reprises dans le Royaume Céleste et il est mon ami. Comment pourrais-je commettre un acte aussi inhumain?! »
+Chi Hu s'interposa pour bloquer son ancêtre. Le regard clair, il cria: « Ancêtre, cette boussole stellaire est un cadeau que j'ai fait à Zeng Niu, ce n'est pas quelque chose qu'il a volé! Moi, Chi Hu, suis un homme d'honneur! Zeng Niu m'a sauvé à plusieurs reprises dans le Royaume Céleste et il est mon ami. Comment pourrais-je commettre un acte aussi inhumain?! »
 
 L'ancêtre du Clan Ju Mo laissa échapper un rire furieux. Il s'apprêtait à contourner Chi Hu.
 
-Cependant, Chi Hu rugit et l'image de la hache sur son front brilla intensément. Il fit un pas vers son ancêtre et s'écria: « Cette boussole stellaire ne nous sert à rien! Et alors si je l'ai donnée à Ceng Niu? Vous avez déjà pris son épée volante! N'est-ce pas suffisant?! »
+Cependant, Chi Hu rugit et l'image de la hache sur son front brilla intensément. Il fit un pas vers son ancêtre et s'écria: « Cette boussole stellaire ne nous sert à rien! Et alors si je l'ai donnée à Zeng Niu? Vous avez déjà pris son épée volante! N'est-ce pas suffisant?! »
 
 L'ancêtre se retourna brusquement pour fixer Chi Hu. Il tendit la main et Chi Hu sentit immédiatement une force puissante l'immobiliser totalement.
 
@@ -31,7 +31,7 @@ Chi Hu serra les poings en regardant vers la direction où Wang Lin s'était éc
 
 « Frère Ceng, je... j'ai fait de mon mieux... » Chi Hu était envahi par la mélancolie. Il ne pensait pas que Wang Lin survivrait. La raison pour laquelle il était prêt à offenser l'ancêtre était de ne pas se décevoir lui-même.
 
-« Moi, Chi Hu, suis un homme d'honneur! Ceng Niu me considère comme un ami, je ne peux donc pas agir de façon aussi impitoyable. »
+« Moi, Chi Hu, suis un homme d'honneur! Zeng Niu me considère comme un ami, je ne peux donc pas agir de façon aussi impitoyable. »
 
 Wang Lin avait récupéré une partie de son énergie spirituelle grâce à l'aide de Chi Hu et l'utilisait pour fuir. Il grava profondément dans son cœur cette aide de Chi Hu!
 
@@ -65,7 +65,7 @@ Pourtant, au même instant, un coup de tonnerre retentit dans le ciel et une imm
 
 Un reniflement froid émana du cercueil: « La Formation Qiankun de Scellement Démoniaque... Si je ne savais pas où se trouve l'œil de cette formation, il m'aurait été très difficile d'entrer. »
 
-Un vieil homme vêtu d'une robe rouge fixa les trois individus en dessous de lui, les yeux brillants. En voyant l'ancêtre du Clan Ju Mo et l'homme d'âge moyen, son visage s'assombrit et il jura: « Ceng Niu, n'as-tu rien de mieux à faire que de t'attirer des ennuis?! Dites-moi, vous deux, vieux débris, n'avez-vous pas honte de tuer un simple junior en stade de Formation de l'Âme? »
+Un vieil homme vêtu d'une robe rouge fixa les trois individus en dessous de lui, les yeux brillants. En voyant l'ancêtre du Clan Ju Mo et l'homme d'âge moyen, son visage s'assombrit et il jura: « Zeng Niu, n'as-tu rien de mieux à faire que de t'attirer des ennuis?! Dites-moi, vous deux, vieux débris, n'avez-vous pas honte de tuer un simple junior en stade de Formation de l'Âme? »
 
 « La Secte Shi Yin! » L'homme d'âge moyen retira son doigt. Ses yeux pétillèrent alors qu'il fixait le vieillard.
 
@@ -93,7 +93,7 @@ L'ancêtre du Clan Ju Mo fixa Sun Tai et trancha: « J'ai mes propres raisons! �
 
 Il en avait effectivement une. Même si l'homme de Xue Yu n'était pas venu le solliciter, il aurait agi secrètement pour tuer Wang Lin.
 
-Il savait que le vrai nom de Ceng Niu était Wang Lin!
+Il savait que le vrai nom de Zeng Niu était Wang Lin!
 
 Récupérer la boussole stellaire n'était qu'un prétexte pour éliminer Wang Lin. La véritable raison résidait dans l'information rapportée par un membre du clan envoyé il y a 500 ans dans le Pays Zhao pour ouvrir le passage vers le champ de bataille étranger!
 
@@ -109,15 +109,15 @@ Il s'y était donc rendu personnellement pour chercher pendant plusieurs siècle
 
 Il avait fini par laisser l'affaire de côté, empreint de regret, pensant que Wang Lin était mort sans laisser de trace et que la perle défiant le ciel était à nouveau perdue.
 
-Mais tout avait changé avec l'apparition de Ceng Niu. Il avait trouvé les propos de Chi Hu suspects. Après avoir utilisé son autorité d'ancêtre pour le contraindre, Chi Hu lui avait finalement avoué la vérité.
+Mais tout avait changé avec l'apparition de Zeng Niu. Il avait trouvé les propos de Chi Hu suspects. Après avoir utilisé son autorité d'ancêtre pour le contraindre, Chi Hu lui avait finalement avoué la vérité.
 
-L'ancêtre devint instantanément méfiant. Après quelques investigations, il découvrit que Ceng Niu était en réalité Wang Lin!
+L'ancêtre devint instantanément méfiant. Après quelques investigations, il découvrit que Zeng Niu était en réalité Wang Lin!
 
 Il fut alors transporté par la joie, mais à cause de l'influence de Suzaku, il ne pouvait pas agir sans risquer de voir ses espoirs s'effondrer.
 
 Cependant, il avait bien tué l'autre personne au courant de cette affaire: un messager d'un pays de culture de rang 4, en poste dans le Pays Zhao. En fouillant son âme, l'ancêtre avait vu que le messager n'était pas certain de ses informations et ne les avait pas rapportées. Rassuré, il avait décidé d'attendre le moment opportun pour frapper Wang Lin.
 
-Un jour, Li Yuanfeng de Xue Yu était venu lui demander de mettre en place une formation pour aider à tuer Ceng Niu. Il avait immédiatement accepté, en exigeant de récupérer la boussole stellaire.
+Un jour, Li Yuanfeng de Xue Yu était venu lui demander de mettre en place une formation pour aider à tuer Zeng Niu. Il avait immédiatement accepté, en exigeant de récupérer la boussole stellaire.
 
 Ainsi, même si Suzaku enquêtait, c'est Xue Yu qui subirait les répercussions, lui permettant de s'emparer secrètement de la perle défiant le ciel. Et même si Wang Lin mourait, tant qu'il aurait le cadavre, il pourrait utiliser une technique secrète pour localiser l'objet.
 

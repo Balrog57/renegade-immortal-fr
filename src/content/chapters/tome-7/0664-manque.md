@@ -20,7 +20,7 @@ Un jeune érudit était assis à l'intérieur du pavillon. Il tenait un livre an
 
 La culture de cette personne n'était qu'au stade initial de la Formation de l'Âme. Lorsqu'il vit Wang Lin, il ne fit preuve d'aucune arrogance, contrairement à la personne du Pavillon Bao He; au contraire, son accueil fut empreint de simplicité et d'enthousiasme.
 
-Wang Lin esquissa un léger sourire. Il frappa son sac de rangement, et l'épée volante en sortit. Il demanda: « Cher compagnon de culture accepterait-il cette épée? »
+Wang Lin esquissa un léger sourire. Il frappa son sac de rangement, et l'épée volante en sortit. Il demanda: « Cher Daoïste accepterait-il cette épée? »
 
 En regardant l'épée, le jeune homme fronça légèrement les sourcils et afficha un sourire amer. « Cher compagnon, cette épée... Laissez tomber. Me permettez-vous de l'examiner? »
 

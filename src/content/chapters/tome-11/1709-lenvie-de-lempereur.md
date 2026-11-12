@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1709 - Emperor’s Envy !"
 slug: lenvie-de-lempereur
 ---
-À travers les âges, parmi les trois clans du pays antique du Continent Astral Immortel, nul n'avait franchi cette étape! Cela était lié à l'environnement même dans lequel ils avaient grandi. Ils vivaient sous la protection des trois Grands Empyréens, selon les lois des trois empereurs, sous la lumière de leurs ancêtres.
+À travers les âges, parmi les trois clans du pays antique du Continent Xian Gang, nul n'avait franchi cette étape! Cela était lié à l'environnement même dans lequel ils avaient grandi. Ils vivaient sous la protection des trois Grands Empyréens, selon les lois des trois empereurs, sous la lumière de leurs ancêtres.
 
 Ils admiraient l'Ancêtre Ancien avec une ferveur presque religieuse; il était leur ciel!
 
@@ -48,7 +48,7 @@ La séquence se poursuivit jusqu'à ce qu'il atteigne la Tombe Antique du Systè
 
 Comme si elle méditait longuement, le vortex qui était sur le point de s'évanouir gronda une fois de plus et commença à pivoter. Il se reforma lentement, et une lumière sanguine encore plus intense commença à irradier!
 
-Sur le Continent Astral Immortel, dans la cité céleste flottante du clan Dao, près d'un million de membres du clan ancien attendaient. L'homme en robe royale était sur le point de perdre patience, mais il n'osait mot dire.
+Sur le Continent Xian Gang, dans la cité céleste flottante du clan Dao, près d'un million de membres du clan ancien attendaient. L'homme en robe royale était sur le point de perdre patience, mais il n'osait mot dire.
 
 La mince lueur sanguine qui scintillait entre les sourcils de la statue éclata soudainement en une lumière rouge fulgurante. Cette clarté enveloppa le monde, baignant les environs d'un rouge écarlate.
 

@@ -26,7 +26,7 @@ Wang Lin s'étonna intérieurement de la puissance de la flamme avant de regarde
 
 En contemplant le crâne, les yeux de Wang Lin s'illuminèrent. Il décida de se rendre à la ville de Nan Dou pour échanger un fourneau à pilules afin que Li Muwan puisse achever la Pilule du Ciel Lointain. Bien que trois ans se soient écoulés en un clin d'œil, il savait, grâce au lien ténu qui l'unissait à son sang d'essence de l'âme, que Li Muwan n'avait couru aucun danger.
 
-Cependant, face à l'innombrable quantité d'ossements de bêtes gelées, il hésita. La technique de raffinage du Sanctuaire du Dieu de la Guerre exigeait un fourneau de réaction.
+Cependant, face à l'innombrable quantité d'ossements de bêtes gelées, il hésita. La technique de raffinage du Temple Zhan Shen exigeait un fourneau de réaction.
 
 Depuis son premier échec, il n'avait jamais pu mettre la main sur d'autres crânes de bêtes spirituelles. Il avait demandé à Li Muwan de conserver le crâne du dragon car il comptait s'en servir pour fabriquer ce fourneau de réaction. Toutefois, entre sa tentative de fusionner ses trois noyaux froids et l'incertitude de son succès, il ne l'avait pas encore testé. Après tout, en cas d'échec, il lui faudrait énormément d'efforts pour en trouver un autre.
 
@@ -96,7 +96,7 @@ Les fils s'étaient totalement fusionnés avec l'os. Après ces neuf changements
 
 Wang Lin le récupéra et commença son examen.
 
-L'origine de la technique de raffinage du Sanctuaire du Dieu de la Guerre était très mystérieuse. La rumeur voulait qu'elle ait été découverte avec la Technique de la Voie Céleste par l'ancêtre du Sanctuaire. Après avoir pratiqué chacune séparément, les générations suivantes avaient consacré un temps infini à étudier cette technique de raffinage, puis l'avaient classée par catégories pour en tirer une série d'étapes bien ordonnée. Le fourneau de réaction en était une composante, classée selon dix rangs de qualité.
+L'origine de la technique de raffinage du Temple Zhan Shen était très mystérieuse. La rumeur voulait qu'elle ait été découverte avec la Technique de la Voie Céleste par l'ancêtre du Sanctuaire. Après avoir pratiqué chacune séparément, les générations suivantes avaient consacré un temps infini à étudier cette technique de raffinage, puis l'avaient classée par catégories pour en tirer une série d'étapes bien ordonnée. Le fourneau de réaction en était une composante, classée selon dix rangs de qualité.
 
 Plus le rang est élevé, plus le fourneau est performant. Son identification est simple: lors de sa fabrication, le nombre de changements de couleur détermine son rang.
 
@@ -104,13 +104,13 @@ Plus le rang est élevé, plus le fourneau est performant. Son identification es
 
 Cependant, un rang 9 valait mieux que rien. Wang Lin sortit la pierre de jade pour vérifier à nouveau les informations.
 
-Wang Lin l'ignorait, et le jade ne le précisait pas non plus: même le maître du pavillon de raffinage du Sanctuaire du Dieu de la Guerre, un cultivateur de l'Âme Naissante, ne possédait qu'un fourneau de rang 6, et les rares autres fourneaux étaient tous de rang 3 ou inférieur.
+Wang Lin l'ignorait, et le jade ne le précisait pas non plus: même le maître du pavillon de raffinage du Temple Zhan Shen, un cultivateur de l'Âme Naissante, ne possédait qu'un fourneau de rang 6, et les rares autres fourneaux étaient tous de rang 3 ou inférieur.
 
 Si le fourneau de Wang Lin était de rang 9, c'était grâce au cadavre de cette petite bête. Elle était une rare bête désolée au milieu de cette mer de restes de bêtes spirituelles.
 
 Lorsqu'une bête désolée meurt, ses os ne diffèrent guère de ceux d'une bête spirituelle. À moins d'être un expert en la matière, il est difficile de les distinguer.
 
-Une fois son sens divin retiré du jade, Wang Lin se mit à réfléchir. La technique de raffinage du Sanctuaire du Dieu de la Guerre reposait sur trois points clés: l'ajustement, la fusion et l'assemblage. L'ajustement s'apparente à l'ouverture et à la transformation, la fusion est comparable à un bloc de roc, et l'assemblage ressemble à des cornes suspendues.
+Une fois son sens divin retiré du jade, Wang Lin se mit à réfléchir. La technique de raffinage du Temple Zhan Shen reposait sur trois points clés: l'ajustement, la fusion et l'assemblage. L'ajustement s'apparente à l'ouverture et à la transformation, la fusion est comparable à un bloc de roc, et l'assemblage ressemble à des cornes suspendues.
 
 Wang Lin se concentra intensément pour sortir des matériaux de son sac de rangement et les jeter dans le fourneau de réaction. Il s'agissait de composants répertoriés dans le jade; une fois familier avec les inscriptions, il avait pu les identifier dans ses provisions.
 
@@ -156,7 +156,7 @@ Wang Lin saisit l'épée et la frotta doucement. Elle émit un bourdonnement son
 
 Wang Lin prit une profonde inspiration et saisit la sphère. Il serra les dents, donna un ordre, et l'image illusoire de l'épée s'engouffra directement dans la boule.
 
-Le sens divin de Wang Lin se projeta immédiatement pour entourer la sphère. La dernière étape de la technique du Sanctuaire du Dieu de la Guerre, l'assemblage, commençait maintenant.
+Le sens divin de Wang Lin se projeta immédiatement pour entourer la sphère. La dernière étape de la technique du Temple Zhan Shen, l'assemblage, commençait maintenant.
 
 Le temps passa lentement. La sphère s'allongea et se solidifia progressivement. Après une durée indéterminée, un chant de dragon retentit, et une épée volante d'une clarté cristalline apparut devant Wang Lin.
 

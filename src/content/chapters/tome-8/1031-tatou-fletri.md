@@ -60,19 +60,19 @@ Bien qu'il se soignât, il ne coupa pas son Sens Divin. Celui-ci se propageait s
 
 Le temps passa lentement et, en un clin d'œil, sept jours s'écoulèrent. Le huitième jour, Wang Lin ouvrit les yeux, une lueur ardente brillant dans son regard.
 
-Il réfléchit un instant. Dans le silence des profondeurs, Wang Lin se remémora tout ce qui s'était passé dans la Grotte Xian Di, comme l'éveil inattendu de l'Oiseau Vermillon qui avait brisé le monde en bouteille. Sa mémoire se fixa sur le parchemin qui était apparu dans la main du Démon Ancien Bei Luo.
+Il réfléchit un instant. Dans le silence des profondeurs, Wang Lin se remémora tout ce qui s'était passé dans la Grotte Xian Di, comme l'éveil inattendu de Suzaku qui avait brisé le monde en bouteille. Sa mémoire se fixa sur le parchemin qui était apparu dans la main du Démon Ancien Bei Luo.
 
 « Je présume qu'il s'agissait de la Peinture des Montagnes et des Rivières, la Peinture de la Fumée du Désert Solitaire. »
 
 « L'Oiseau Vermillon s'est éveillé à un moment inopportun... Je ne pensais pas que son réveil percerait les quatre-vingt-dix-neuf royaumes pour informer tout le monde. Par conséquent, ils pensent tous que je suis un membre des Quatre Sectes Divines. »
 
-« Bien que je n'aie décelé aucun indice dans le regard de ce Maître du Vide, j'ai eu l'impression qu'une aiguille était braquée sur moi. »
+« Bien que je n'aie décelé aucun indice dans le regard de ce Xu Kongzi, j'ai eu l'impression qu'une aiguille était braquée sur moi. »
 
 « Il y avait aussi cette belle femme d'âge mûr. Elle n'est qu'au stade de Purificateur du Nirvana. Bien qu'elle ait parfaitement dissimulé son regard, j'ai tout de même perçu une trace d'hostilité. »
 
 « De même pour la jeune fille soupçonnée d'être la Sainte Kun Xu. »
 
-Il devait désormais redoubler de prudence dans la Grotte Xian Di. Autrement, il risquait d'attirer sur lui une catastrophe mortelle à cause de l'Éveil de l'Oiseau Vermillon. Wang Lin toucha le tatouage de l'Oiseau Vermillon, l'expression sombre.
+Il devait désormais redoubler de prudence dans la Grotte Xian Di. Autrement, il risquait d'attirer sur lui une catastrophe mortelle à cause de l'Éveil de Suzaku. Wang Lin toucha le tatouage de Suzaku, l'expression sombre.
 
 Ce n'est qu'en repensant à ce qui était arrivé à Ta Shan que son visage changea une nouvelle fois.
 

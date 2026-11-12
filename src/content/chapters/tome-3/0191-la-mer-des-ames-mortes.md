@@ -96,7 +96,7 @@ C'était la seule explication au comportement frénétique des cultivateurs dém
 
 Une pensée traversa son esprit: pour qui tous ces cultivateurs démoniaques travaillaient-ils?
 
-Le retour de Bossu Meng d'entre les morts devait cacher un secret stupéfiant. De même pour la capture de Duanmu et de Wang Qingyue. Plus il analysait la situation, plus l'image globale se dessinait. Il avait le sentiment de percer le mystère.
+Le retour de Meng Tuozi d'entre les morts devait cacher un secret stupéfiant. De même pour la capture de Duanmu et de Wang Qingyue. Plus il analysait la situation, plus l'image globale se dessinait. Il avait le sentiment de percer le mystère.
 
 Wang Lin fixa la Mer de Sang, l'expression sereine. Quelqu'un au sein du corps du Dieu Ancien, capable de contrôler tous ces démoniaques, devait être l'héritier du pouvoir du Dieu Ancien. Il s'agissait sans doute de l'homme aux cheveux roux prisonnier de la Mer de Sang.
 
@@ -178,15 +178,15 @@ Sa main droite déchira le vide, créant une faille dans laquelle il s'engouffra
 
 Une fois apparu, il hésita un instant. Ses mains formèrent des sceaux et projetèrent plusieurs traits de lumière spirituelle tout autour de lui, faisant discrètement apparaître des fissures. Puis il déploya résolument son Sens Divin. Immédiatement, les cultivateurs démoniaques qui le traquaient ressentirent sa présence et chargèrent vers lui.
 
-Bientôt, les démoniaques apparurent un à un autour de Wang Lin, affichant des sourires carnassiers. Parmi eux se trouvait Bossu Meng. En voyant Wang Lin, il laissa poindre un sentiment de dégoût. Sans un mot, sa main droite s'élança pour le saisir.
+Bientôt, les démoniaques apparurent un à un autour de Wang Lin, affichant des sourires carnassiers. Parmi eux se trouvait Meng Tuozi. En voyant Wang Lin, il laissa poindre un sentiment de dégoût. Sans un mot, sa main droite s'élança pour le saisir.
 
 Wang Lin restait impassible et d'un calme olympien. Alors que la main de Meng tendait vers lui, il ricana: « Ne voulez-vous pas briser le sceau de votre maître? »
 
-À ces mots, bien que les visages des cultivateurs démoniaques fussent restés impassibles, leurs yeux trahirent une profonde surprise. Bossu Meng fut frappé de stupeur et interrompit son mouvement.
+À ces mots, bien que les visages des cultivateurs démoniaques fussent restés impassibles, leurs yeux trahirent une profonde surprise. Meng Tuozi fut frappé de stupeur et interrompit son mouvement.
 
 Wang Lin nota cette hésitation. Il avait la confirmation de ses soupçons. Il ne lui restait plus qu'à vérifier que leur maître était bien l'homme aux cheveux roux prisonnier de la Mer de Sang.
 
-Le visage de Bossu Meng devint sombre et incertain. Il laissa échapper un reniflement froid et sa main plongea vers Wang Lin avec une rapidité accrue.
+Le visage de Meng Tuozi devint sombre et incertain. Il laissa échapper un reniflement froid et sa main plongea vers Wang Lin avec une rapidité accrue.
 
 Wang Lin affichait une expression d'acier, immobile. Il avait déjà préparé des pièges ici. Si l'un d'eux tentait de le capturer, une faille proche s'ouvrirait pour l'évacuer. Après tout, ils étaient dans le corps du Dieu Ancien, et personne n'en connaissait mieux les recoins que lui, qui avait reçu une part de l'héritage de mémoire.
 
@@ -196,7 +196,7 @@ Au moment où la main de Meng allait s'abattre sur lui, une voix glaciale retent
 
 « Arrête! »
 
-À l'instant même, Bossu Meng eut l'impression d'être saisi par une main invisible et fut projeté en arrière. Après avoir craché plusieurs bouffées de sang noir, il mit un genou à terre. Aucune rancœur ne marquait son visage lorsqu'il dit respectueusement: « Salutations, Seigneur Duo Mu. »
+À l'instant même, Meng Tuozi eut l'impression d'être saisi par une main invisible et fut projeté en arrière. Après avoir craché plusieurs bouffées de sang noir, il mit un genou à terre. Aucune rancœur ne marquait son visage lorsqu'il dit respectueusement: « Salutations, Seigneur Duo Mu. »
 
 Simultanément, tous les autres cultivateurs démoniaques mirent eux aussi un genou à terre.
 

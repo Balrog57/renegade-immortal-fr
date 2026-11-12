@@ -54,7 +54,7 @@ Miaoyin Daozun fixait l'encens de terre brisé. Ses yeux se plissèrent alors qu
 
 Lanmeng Daozun affichait une expression complexe; il retira son regard et resta silencieux. À ses côtés, Li Qianmei baissa la tête, cachant ainsi son expression à tous.
 
-Le vieux de l'Oiseau Vermillon se gratta la tête avec un sourire amer.
+Le vieux de Suzaku se gratta la tête avec un sourire amer.
 
 « Ce petit gars, qu'a-t-il donc fait... Le changement sur la Planète du Grand Empereur est clairement lié à lui... Combien de secrets ce gamin cache-t-il? C'est incroyable, la première baguette s'est éteinte et la deuxième s'est brisée... Comment l'épreuve peut-elle continuer? Comment sera-t-elle évaluée? »
 
@@ -72,7 +72,7 @@ Diverses pensées traversaient leurs esprits, mais tous les regards convergeaien
 
 Dans l'Épreuve Terrestre, une fois que tout le brouillard magnétique eut quitté le corps de Wang Lin, la Perle Défiant le Ciel disparut progressivement.
 
-L'Épreuve Terrestre retomba dans le calme; seul le Feu Éthéré autour de l'Oiseau Vermillon de Wang Lin brûlait silencieusement.
+L'Épreuve Terrestre retomba dans le calme; seul le Feu Éthéré autour de Suzaku de Wang Lin brûlait silencieusement.
 
 Après un long moment, Wang Lin regarda l'oiseau et inspira profondément. L'Oiseau Vermillon poussa un cri et pénétra dans son œil gauche. Simultanément, le Feu Éthéré enveloppa le corps de Wang Lin. Ce feu était incolore et dégageait une aura de destruction pure.
 
@@ -82,15 +82,15 @@ L'Oiseau Vermillon de la quatrième génération était assis silencieusement su
 
 Cependant, n'étant pas un être ordinaire, il réprima rapidement son choc et fixa silencieusement l'horizon.
 
-Devant lui, le monde se tordit et Wang Lin en émergea. Il apparut à quelques dizaines de pieds de l'Oiseau Vermillon de la quatrième génération et resta là, silencieux lui aussi.
+Devant lui, le monde se tordit et Wang Lin en émergea. Il apparut à quelques dizaines de pieds de Suzaku de la quatrième génération et resta là, silencieux lui aussi.
 
-L'Oiseau Vermillon de la quatrième génération tourna son regard vers Wang Lin et murmura: « Après le quatrième éveil de l'Oiseau Vermillon, le Feu Éthéré doit encore être nourri pendant un certain temps. Garde cela à l'esprit. »
+L'Oiseau Vermillon de la quatrième génération tourna son regard vers Wang Lin et murmura: « Après le quatrième éveil de Suzaku, le Feu Éthéré doit encore être nourri pendant un certain temps. Garde cela à l'esprit. »
 
-Wang Lin afficha une expression complexe face à l'homme d'âge mûr devant lui. Il joignit les mains et demanda: « Le Senior est-il l'Oiseau Vermillon de la quatrième génération? »
+Wang Lin afficha une expression complexe face à l'homme d'âge mûr devant lui. Il joignit les mains et demanda: « Le Senior est-il Suzaku de la quatrième génération? »
 
 « Je le suis », répondit l'homme en hochant la tête.
 
-Wang Lin resta silencieux. Après un long moment, il murmura: « L'Oiseau Vermillon de la cinquième génération a beaucoup fait pour ce junior. Avant de mourir, il n'oubliait jamais d'avoir autrefois accompagné l'Oiseau Vermillon de la quatrième génération comme son petit serviteur chargé des remèdes... »
+Wang Lin resta silencieux. Après un long moment, il murmura: « L'Oiseau Vermillon de la cinquième génération a beaucoup fait pour ce junior. Avant de mourir, il n'oubliait jamais d'avoir autrefois accompagné Suzaku de la quatrième génération comme son petit serviteur chargé des remèdes... »
 
 Une tristesse traversa les yeux de l'homme d'âge mûr qui hocha la tête. Sa voix, empreinte de mélancolie, murmura: « Je sais... »
 
@@ -98,24 +98,24 @@ Wang Lin leva la main droite et fit un geste vers le vide. Une faille s'ouvrit d
 
 Cette statue était formée par le corps du vieux Dieu Empereur Vermillon après sa mort!
 
-« Le vieux Dieu Empereur Vermillon a vécu pour la Secte Divine de l'Oiseau Vermillon. À mon sens, personne n'est plus qualifié pour porter ce nom! » Tandis que Wang Lin contemplait les restes du vieil Empereur, des souvenirs du passé lui traversèrent l'esprit.
+« Le vieux Dieu Empereur Vermillon a vécu pour la Secte Divine de Suzaku. À mon sens, personne n'est plus qualifié pour porter ce nom! » Tandis que Wang Lin contemplait les restes du vieil Empereur, des souvenirs du passé lui traversèrent l'esprit.
 
-« Tandis que le vieux Dieu Empereur s'inquiétait pour la Secte Divine, vous n'étiez pas là, l'Oiseau Vermillon de la deuxième génération n'était pas là... Au sein des Quatre Sectes Divines, l'Empereur Divin Tigre Blanc est mort, l'Empereur Divin Tortue Noire a fait défection et l'Empereur Divin Dragon Azure est resté piégé. Pendant des dizaines de milliers d'années, seul le vieux Dieu Empereur Vermillon a tenu bon. Même dans la mort, il ne pouvait oublier la Secte Divine... Il ne pouvait oublier son maître... Aujourd'hui, le junior a pu voir le Senior, alors je laisserai ses restes ici. Je crois que le vieux Dieu Empereur aurait lui aussi choisi de rester pour accompagner le maître qui l'avait abandonné et n'était jamais revenu. Peut-être est-ce là sa véritable demeure. »
+« Tandis que le vieux Dieu Empereur s'inquiétait pour la Secte Divine, vous n'étiez pas là, Suzaku de la deuxième génération n'était pas là... Au sein des Quatre Sectes Divines, l'Empereur Divin Tigre Blanc est mort, l'Empereur Divin Tortue Noire a fait défection et l'Empereur Divin Dragon Azure est resté piégé. Pendant des dizaines de milliers d'années, seul le vieux Dieu Empereur Vermillon a tenu bon. Même dans la mort, il ne pouvait oublier la Secte Divine... Il ne pouvait oublier son maître... Aujourd'hui, le junior a pu voir le Senior, alors je laisserai ses restes ici. Je crois que le vieux Dieu Empereur aurait lui aussi choisi de rester pour accompagner le maître qui l'avait abandonné et n'était jamais revenu. Peut-être est-ce là sa véritable demeure. »
 
-Wang Lin recula de quelques pas, s'agenouilla devant la statue et effectua trois prosternations. « Vieux Dieu Empereur Vermillon, ce disciple vous a ramené ici depuis la Secte Divine. Je vous ai conduit auprès de l'Oiseau Vermillon de la quatrième génération, votre foyer... Je ne pourrai jamais rendre tout ce que vous avez fait pour moi, mais ma promesse perdurera. »
+Wang Lin recula de quelques pas, s'agenouilla devant la statue et effectua trois prosternations. « Vieux Dieu Empereur Vermillon, ce disciple vous a ramené ici depuis la Secte Divine. Je vous ai conduit auprès de Suzaku de la quatrième génération, votre foyer... Je ne pourrai jamais rendre tout ce que vous avez fait pour moi, mais ma promesse perdurera. »
 
-Une fois levé, Wang Lin regarda l'Oiseau Vermillon de la quatrième génération avec une expression complexe. Il joignit les mains et dit: « Merci, Senior, de m'avoir aidé tout à l'heure. Le junior s'en va. » Sur un soupir, Wang Lin s'éloigna.
+Une fois levé, Wang Lin regarda Suzaku de la quatrième génération avec une expression complexe. Il joignit les mains et dit: « Merci, Senior, de m'avoir aidé tout à l'heure. Le junior s'en va. » Sur un soupir, Wang Lin s'éloigna.
 
-Il pouvait accepter l'Oiseau Vermillon de la deuxième génération, mais il ne pouvait accepter celui de la quatrième... Si ce dernier n'était pas parti, le vieil Empereur aurait déjà accompli son quatrième éveil. Si ce dernier n'était pas parti, le vieil Empereur ne serait pas mort.
+Il pouvait accepter Suzaku de la deuxième génération, mais il ne pouvait accepter celui de la quatrième... Si ce dernier n'était pas parti, le vieil Empereur aurait déjà accompli son quatrième éveil. Si ce dernier n'était pas parti, le vieil Empereur ne serait pas mort.
 
 L'Oiseau Vermillon de la quatrième génération contemplait la dépouille de son disciple, le corps tremblant. Une immense tristesse envahit ses yeux. Il se leva lentement et sa main droite, vacillante, effleura le visage de son disciple.
 
-« Lu Yun... ton maître... t'a fait du tort... » Des larmes coulèrent sur les joues de l'Oiseau Vermillon de la quatrième génération.
+« Lu Yun... ton maître... t'a fait du tort... » Des larmes coulèrent sur les joues de Suzaku de la quatrième génération.
 
 « Le maître savait tout des Quatre Sectes Divines... C'est seulement que je ne pouvais pas revenir... Lorsque je suis arrivé dans le Système Stellaire Antique, quelqu'un a placé un sceau mystérieux en moi... » murmura-t-il. Son apparence sembla vieillir prématurément alors qu'il fixait la dépouille de son disciple, perdu dans ses souvenirs.
 
-« Au fil des ans, j'ai tenté de briser ce sceau, mais sans succès... Même l'ancêtre de la première génération n'a pu le lever... Je ne peux que rester dans l'Épreuve Terrestre, sans pouvoir faire un seul pas à l'extérieur... Si je partais, le sceau éclaterait, me faisant perdre la raison et me plongeant dans la folie... Lu Yun, ce n'est pas que ton maître ne voulait pas revenir, c'est qu'il ne le pouvait pas... » Les larmes de l'Oiseau Vermillon de la quatrième génération tombèrent sur la dépouille de son disciple, chargées d'une tristesse infinie, de souvenirs douloureux et d'un remords sans fin.
+« Au fil des ans, j'ai tenté de briser ce sceau, mais sans succès... Même l'ancêtre de la première génération n'a pu le lever... Je ne peux que rester dans l'Épreuve Terrestre, sans pouvoir faire un seul pas à l'extérieur... Si je partais, le sceau éclaterait, me faisant perdre la raison et me plongeant dans la folie... Lu Yun, ce n'est pas que ton maître ne voulait pas revenir, c'est qu'il ne le pouvait pas... » Les larmes de Suzaku de la quatrième génération tombèrent sur la dépouille de son disciple, chargées d'une tristesse infinie, de souvenirs douloureux et d'un remords sans fin.
 
-« Pas seulement moi, mais l'Oiseau Vermillon de la deuxième génération porte aussi ce sceau en lui. Il peut le réprimer pour ne pas rester prisonnier de l'Épreuve Terrestre, mais il ne peut pas quitter les Terres Déchues... Les Terres Déchues... Les Terres Déchues... C'est là que mon Clan Zhu Que est tombé... Soit nous périssons dans la folie, soit nous en sortons en renversant tout! » murmura amèrement l'Oiseau Vermillon de la quatrième génération, comme s'il expliquait son sort à son disciple... La silhouette de Wang Lin s'éloigna vers le ciel, de plus en plus ténue, jusqu'à disparaître totalement.
+« Pas seulement moi, mais Suzaku de la deuxième génération porte aussi ce sceau en lui. Il peut le réprimer pour ne pas rester prisonnier de l'Épreuve Terrestre, mais il ne peut pas quitter les Terres Déchues... Les Terres Déchues... Les Terres Déchues... C'est là que mon Clan Zhu Que est tombé... Soit nous périssons dans la folie, soit nous en sortons en renversant tout! » murmura amèrement Suzaku de la quatrième génération, comme s'il expliquait son sort à son disciple... La silhouette de Wang Lin s'éloigna vers le ciel, de plus en plus ténue, jusqu'à disparaître totalement.
 
 À l'instant précis où sa silhouette s'effaça, les yeux clos sous l'encens humain s'ouvrirent brusquement!

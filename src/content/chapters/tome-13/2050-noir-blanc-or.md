@@ -16,7 +16,7 @@ Durant toute sa vie, il avait aspiré à ce royaume légendaire, mais il n'avait
 
 « Si le Grand Empyréen Gu Dao est le plus puissant des Grands Empyréens, c'est sans doute parce qu'il a franchi cette étape! Je ne sais pas quand je serai capable de le faire moi non plus... » Jiu Di resta silencieux, l'expression complexe pendant un long moment avant de pousser un profond soupir.
 
-Sur le Mont Empereur, Hai Zi se tenait au sommet de la montagne, vêtue d'une robe blanche. Ses vêtements dansaient au gré du vent et ses yeux étaient empreints d'hésitation et de confusion.
+Sur le Mont Di, Hai Zi se tenait au sommet de la montagne, vêtue d'une robe blanche. Ses vêtements dansaient au gré du vent et ses yeux étaient empreints d'hésitation et de confusion.
 
 Lors de la précédente divination, elle avait ressenti une étrange familiarité. Elle n'en avait pas parlé à Jiu Di, craignant que ce ne soit qu'une illusion.
 

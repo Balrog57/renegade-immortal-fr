@@ -54,7 +54,7 @@ Cependant, Wang Lin remarqua que lorsqu'un groupe de créatures tentait le passa
 
 Les yeux de Wang Lin scintillèrent alors qu'il murmurait: « Sans retour... Sans retour... Cela signifie que dès que l'on fait un pas en avant, on ne peut plus faire marche arrière... » Il médita sur cette pensée sans pour autant poser le pied sur le pont.
 
-Il s'assit en position du lotus près de l'ouvrage et sortit deux sacs de rangement. L'un d'eux était en fil d'or noir; c'était celui qu'il avait dérobé au cadavre mystérieux, dans la grotte du Sanctuaire du Dieu de la Guerre où étaient gravés les arts du Chemin Divin.
+Il s'assit en position du lotus près de l'ouvrage et sortit deux sacs de rangement. L'un d'eux était en fil d'or noir; c'était celui qu'il avait dérobé au cadavre mystérieux, dans la grotte du Temple Zhan Shen où étaient gravés les arts du Chemin Divin.
 
 Malheureusement, une force mystérieuse entravait le sac, empêchant son Sens Divin de pénétrer à l'intérieur pour l'ouvrir. Wang Lin savait que ce sac était imprégné du Sens Divin d'autrui et qu'il devait l'effacer avant de pouvoir l'utiliser.
 
@@ -132,7 +132,7 @@ C'était l'essence de sang qu'il avait condensée par la technique d'affinement 
 
 Cet esprit d'épée n'avait initialement ni forme ni conscience, mais après avoir séjourné dans la mer de conscience de Wang Lin durant tant d'années et suite à sa transformation en dévoreur d'âmes, il avait acquis une étincelle de conscience.
 
-Ce n'est qu'en utilisant la technique d'affinement du Sanctuaire du Dieu de la Guerre pour lui donner un nouveau corps que le transfert de l'esprit de l'épée fut achevé.
+Ce n'est qu'en utilisant la technique d'affinement du Temple Zhan Shen pour lui donner un nouveau corps que le transfert de l'esprit de l'épée fut achevé.
 
 On pouvait dire que cette épée avait énormément servi Wang Lin. D'innombrables vies avaient été fauchées par elle. L'arme avait accumulé une telle intention meurtrière qu'elle pouvait désormais être considérée comme une arme sinistre.
 
@@ -160,7 +160,7 @@ Dès que l'objet tomba, une flamme cyan jaillit. Bien que la vitesse de rotation
 
 Pourtant, il ne fondait toujours pas.
 
-L'objet lancé était une matière d'affinement spéciale du Sanctuaire du Dieu de la Guerre: la Pierre de Sang de Poulet. Lorsqu'elle est stimulée par l'énergie spirituelle, elle génère des températures extrêmes.
+L'objet lancé était une matière d'affinement spéciale du Temple Zhan Shen: la Pierre de Sang de Poulet. Lorsqu'elle est stimulée par l'énergie spirituelle, elle génère des températures extrêmes.
 
 Toutefois, si on en utilise trop, elle finit par abaisser la température au lieu de l'augmenter. C'est pourquoi Wang Lin s'était limité à quelques exemplaires.
 

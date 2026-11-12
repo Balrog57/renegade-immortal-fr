@@ -30,7 +30,7 @@ Cent mille cultivateurs représentaient un nombre colossal, pourtant, cachés da
 
 De nombreuses auras d'essence extrêmement puissantes émanaient des montagnes; elles appartenaient à des cultivateurs de la troisième étape.
 
-« La Secte Da Hun du Continent Astral Immortel... Elle est en effet très puissante. Une seule secte suffit à balayer le Monde des Grottes. » Wang Lin observa la scène avec calme tout en réfléchissant.
+« La Secte Da Hun du Continent Xian Gang... Elle est en effet très puissante. Une seule secte suffit à balayer le Monde des Grottes. » Wang Lin observa la scène avec calme tout en réfléchissant.
 
 Sans son véritable corps d'essence de feu, Wang Lin n'aurait pas provoqué un tel colosse. Cependant, la principale veine de feu terrestre sous la Secte Da Hun était bien trop importante pour lui. Même s'il devait arracher les dents d'un tigre, il devait tenter sa chance.
 

@@ -14,7 +14,7 @@ Cette force était suffisante pour faire trembler toute créature vivante de peu
 
 Wang Lin ignorait les rugissements. Lorsque ce son atteignait ses oreilles, il ne faisait pas trembler son cœur le moins du monde. C'était comme si ce bruit n'était pas digne de faire vibrer son âme, fût-il des milliers de fois plus puissant.
 
-Ayant atteint un tel niveau de culture, oubliez le Continent Astral Immortel; même dans l'immensité de l'espace extérieur, très peu de choses pouvaient encore l'ébranler.
+Ayant atteint un tel niveau de culture, oubliez le Continent Xian Gang; même dans l'immensité de l'espace extérieur, très peu de choses pouvaient encore l'ébranler.
 
 Cependant, les six Grands Empyréens n'étaient pas dans la même situation. Bien qu'ils ne fussent pas autant affectés par ces grondements, ils savaient que beaucoup de personnes derrière eux ne pourraient pas les supporter.
 

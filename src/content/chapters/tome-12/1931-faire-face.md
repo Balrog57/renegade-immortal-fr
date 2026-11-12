@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1931 - Face!"
 slug: faire-face
 ---
-« Âme non issue du Continent Astral Immortel détectée, sceller! » Cette voix antique résonna soudainement dans le cœur de Wang Lin. Elle semblait provenir d'un passé lointain, émanant des profondeurs des âges et répercutant entre les strates des sceaux.
+« Âme non issue du Continent Xian Gang détectée, sceller! » Cette voix antique résonna soudainement dans le cœur de Wang Lin. Elle semblait provenir d'un passé lointain, émanant des profondeurs des âges et répercutant entre les strates des sceaux.
 
 Sans la moindre hésitation, le corps originel de Wang Lin recula tandis que la voix grondait. Tout en se retirant, son corps véritable des cinq éléments se précipita vers le corps véritable de l'essence du tonnerre. Simultanément, le visage gigantesque qui émergeait des couches du sceau tenta d'engloutir le corps véritable de l'essence du tonnerre.
 
@@ -44,15 +44,15 @@ Cette paume ne contenait qu'une fraction du tonnerre de la boucherie, car si ce 
 
 À cet instant, bien que la paume se soit brisée, le tonnerre de la boucherie ne fut pas dissipé; il retourna intact dans le corps de Wang Lin.
 
-Libéré de toute entrave, le visage rugit et chargea vers Wang Lin. Il semblait refuser de céder tant qu'il n'aurait pas dévoré Wang Lin, un cultivateur non issu du Continent Astral Immortel!
+Libéré de toute entrave, le visage rugit et chargea vers Wang Lin. Il semblait refuser de céder tant qu'il n'aurait pas dévoré Wang Lin, un cultivateur non issu du Continent Xian Gang!
 
 En un éclair, il se trouva à moins de cent pieds de lui. Peu importe la distance parcourue par Wang Lin en reculant, le visage, drapé de strates de restrictions, le poursuivait sans relâche!
 
-Sous un autre angle, on aurait pu voir qu'à mesure que Wang Lin reculait, un cou semblait s'étirer depuis l'Arbre de la Mer Montagneuse. Ce cou reliait le visage au sceau et s'était déjà étendu sur plus de mille pieds. Il continuait de s'allonger rapidement à mesure que le visage traquait sa proie.
+Sous un autre angle, on aurait pu voir qu'à mesure que Wang Lin reculait, un cou semblait s'étirer depuis l'Arbre de la Mer Shan Hai. Ce cou reliait le visage au sceau et s'était déjà étendu sur plus de mille pieds. Il continuait de s'allonger rapidement à mesure que le visage traquait sa proie.
 
 De loin, le visage et ce cou ressemblaient à un python gigantesque!
 
-« Âme non issue du Continent Astral Immortel détectée, sceller! » Tandis qu'il poursuivait sa cible, la voix antique résonna une nouvelle fois. Elle semblait habitée par une volonté et une mission précises, empreinte d'une étrangeté indescriptible.
+« Âme non issue du Continent Xian Gang détectée, sceller! » Tandis qu'il poursuivait sa cible, la voix antique résonna une nouvelle fois. Elle semblait habitée par une volonté et une mission précises, empreinte d'une étrangeté indescriptible.
 
 Les yeux de Wang Lin étaient injectés de sang. Depuis qu'il avait atteint la puissance de combat d'un Exalté Empyréen, il n'avait pas affronté un tel danger depuis plus de cinquante ans. Cependant, le temps pressait. Les richesses se trouvent au cœur du péril, et puisqu'il avait pris cette décision, il ne le regretterait pas!
 
@@ -73,7 +73,7 @@ Les ondulations grises entrèrent en collision avec le visage géant. Des craque
 
 Cependant, ce n'était que temporaire. Avant que la pétrification ne soit totale et que la teinte grise ne finisse de se propager, la partie du visage qui avait été touchée en premier commença à se détendre. Elle montrait déjà des signes de régénération!
 
-« Même l'Ancien Dao, Nul Céleste ne peut le détruire complètement. Le visage scellé se régénère rapidement. Il ne lui faudra que quelques respirations pour redevenir intact! » Les pupilles de Wang Lin se contractèrent. S'il choisissait de battre en retraite à cet instant, il était sûr à 80 % de pouvoir s'échapper par la brèche qu'il avait ouverte et retourner dans la Mer Montagneuse. Il pourrait même s'envoler directement hors de la mer!
+« Même l'Ancien Dao, Nul Céleste ne peut le détruire complètement. Le visage scellé se régénère rapidement. Il ne lui faudra que quelques respirations pour redevenir intact! » Les pupilles de Wang Lin se contractèrent. S'il choisissait de battre en retraite à cet instant, il était sûr à 80 % de pouvoir s'échapper par la brèche qu'il avait ouverte et retourner dans la Mer Shan Hai. Il pourrait même s'envoler directement hors de la mer!
 
 Mais Wang Lin refusait de simplement fuir! Une lueur glaciale brilla dans ses yeux. Le sceau l'avait blessé. Bien qu'il soit sûr à 80 % de pouvoir s'échapper, il restait un risque de 20 % que tout bascule. Si cela arrivait, et avec le rétablissement de l'Exalté Empyréen Hai Zi, il se retrouverait dans une position désastreuse, attaqué de toutes parts!
 
@@ -91,7 +91,7 @@ Wang Lin poussa un rugissement. Alors que la tête s'apprêtait à pivoter, il l
 
 Au moment où la lame descendit, les quatre-vingt-dix-sept images formèrent quatre-vingt-dix-sept frappes qui fusionnèrent toutes en Wang Lin! De loin, un total de quatre-vingt-dix-huit lames semblait s'unir, formant un éventail de mort qui s'abattit sur le cou reliant le visage au sceau.
 
-Des grondements tonitruants secouèrent toute la Mer Montagneuse. Le cou montra des signes d'effondrement imminent. Les autres lames suivirent et un fracas terrifiant retentit!
+Des grondements tonitruants secouèrent toute la Mer Shan Hai. Le cou montra des signes d'effondrement imminent. Les autres lames suivirent et un fracas terrifiant retentit!
 
 Le cou reliant le visage fut tranché en deux par la lame!
 

@@ -1,6 +1,6 @@
 ---
 n: 1305
-title: La Rétribution Divine est une Calamité Mais Aussi une Fortune
+title: La Tribulation Céleste est une Calamité Mais Aussi une Fortune
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1305 - Divine Retribution is a Calamity But Also a Fortune
@@ -8,13 +8,13 @@ slug: la-retribution-divine-est-une-calamite-mais-aussi-une-fortune
 ---
 Lorsque l'âme de Wang Lin pénétra dans la Perle Défiant le Ciel et qu'il vit le Seigneur du Royaume Scellé avant d'être envoyé dans le royaume du Dao, celui-ci lui avait annoncé que la Formation du Royaume Scellé serait son ultime lieu de repos!
 
-C'est pour cette raison que Wang Lin gardait une certaine confiance en sa capacité à briser la Formation du Royaume Scellé. C'était là son autre recours, outre le fait de s'appuyer sur le pouvoir de la rétribution divine!
+C'est pour cette raison que Wang Lin gardait une certaine confiance en sa capacité à briser la Formation du Royaume Scellé. C'était là son autre recours, outre le fait de s'appuyer sur le pouvoir de la Tribulation Céleste!
 
 À l'instant même où son sens divin se déploya, la Perle Défiant le Ciel, qui avait disparu au sein de son âme originelle, réapparut soudainement. À l'instant de son apparition, un jade s'en échappa et vola hors du corps de Wang Lin!
 
-Dès que ce jade apparut, les cieux tremblèrent et vacillèrent. Même la rétribution divine des Huit Diagrammes fut ébranlée.
+Dès que ce jade apparut, les cieux tremblèrent et vacillèrent. Même la Tribulation Céleste des Huit Diagrammes fut ébranlée.
 
-À l'intérieur de la formation de la Secte Démon, le Grand Ancien déploya son sens divin. Tout en observant la rétribution divine, il surveillait également Wang Lin, qui subissait l'assaut céleste. Lorsqu'il aperçut le jade, l'homme d'âge mûr fut saisi d'un tressaillement.
+À l'intérieur de la formation de la Secte Démon, le Grand Ancien déploya son sens divin. Tout en observant la Tribulation Céleste, il surveillait également Wang Lin, qui subissait l'assaut céleste. Lorsqu'il aperçut le jade, l'homme d'âge mûr fut saisi d'un tressaillement.
 
 Ses yeux s'écarquillèrent soudainement, révélant un choc indescriptible!
 
@@ -34,11 +34,11 @@ L'apparition de l'arbre provoqua un immense tumulte dans la région de rang 9. A
 
 « Maître... »
 
-Il y avait également ce démon ancien à neuf étoiles qui dévorait secrètement le pouvoir de la rétribution divine; mais à cet instant précis, son expression changea. Il scruta l'horizon, le regard chargé d'incertitude.
+Il y avait également ce démon ancien à neuf étoiles qui dévorait secrètement le pouvoir de la Tribulation Céleste; mais à cet instant précis, son expression changea. Il scruta l'horizon, le regard chargé d'incertitude.
 
 « Seigneur du Royaume Scellé... »
 
-Parmi les étoiles, le Maître de la Secte Brise-Ciel progressait, mais il s'arrêta net. Son visage devint grave alors qu'il fixait l'avant, plongé dans ses pensées.
+Parmi les étoiles, le Maître de la Secte Po Tian progressait, mais il s'arrêta net. Son visage devint grave alors qu'il fixait l'avant, plongé dans ses pensées.
 
 Dans le vide, le visage apparu sur l'arbre dégageait une aura antique. Il contempla son environnement avec nostalgie avant de poser enfin son regard sur la Formation du Royaume Scellé.
 
@@ -66,9 +66,9 @@ Dans la chambre secrète de la Secte Divine, le Shui Daozi tremblait, le front p
 
 Les yeux de l'ombre démoniaque située à l'extérieur de la Secte Fantôme s'illuminèrent et, après une courte réflexion, il hocha la tête. Il scruta le vide vers le Royaume Extérieur, une lueur de haine glaciale brillant dans son regard.
 
-Puis, le visage humain sur le grand arbre fixa profondément Wang Lin et dit doucement: « La rétribution divine est une calamité mais aussi une fortune. En raison des lois du Royaume Céleste Antique, je ne peux t'en dire davantage. Prends soin de toi... La rétribution divine n'est pas un phénomène propre au Royaume Céleste Antique. Même l'Empereur Céleste a sa propre rétribution...
+Puis, le visage humain sur le grand arbre fixa profondément Wang Lin et dit doucement: « La Tribulation Céleste est une calamité mais aussi une fortune. En raison des lois du Royaume Céleste Antique, je ne peux t'en dire davantage. Prends soin de toi... La Tribulation Céleste n'est pas un phénomène propre au Royaume Céleste Antique. Même l'Empereur Céleste a sa propre rétribution...
 
-« La rétribution divine remonte aux temps primordiaux, à l'aube du monde, issue du Dao céleste mort... La rétribution à laquelle tu fais face n'est qu'une petite calamité, ce n'est ni une grande, ni la Rétribution Ji capable de détruire toute vie... » Tandis qu'il parlait, il ferma lentement les yeux et l'arbre gigantesque s'effondra, se dissipant dans le vide.
+« La Tribulation Céleste remonte aux temps primordiaux, à l'aube du monde, issue du Dao céleste mort... La rétribution à laquelle tu fais face n'est qu'une petite calamité, ce n'est ni une grande, ni la Rétribution Ji capable de détruire toute vie... » Tandis qu'il parlait, il ferma lentement les yeux et l'arbre gigantesque s'effondra, se dissipant dans le vide.
 
 Le jade se mua en une lumière cristalline et retomba sur la Formation du Royaume Scellé. Cette dernière brilla intensément et trembla. Les esprits d'artefact apparurent les uns après les autres, comme pour tenter de résister à cette lumière.
 
@@ -76,9 +76,9 @@ Cependant, la puissance contenue dans le jade était d'une étrange nature. Elle
 
 Dès que les fils verts disparurent, les Huit Diagrammes qui étaient figés dans l'air rugirent et foncèrent à nouveau vers Wang Lin.
 
-« La rétribution divine est une calamité mais aussi une fortune... La Rétribution Ji du Ciel... La Rétribution Ji... Le Royaume Ji!!! » Les yeux de Wang Lin s'illuminèrent alors qu'il fixait les Huit Diagrammes. Son regard devint encore plus intense! Il semblait avoir saisi quelque chose, sans toutefois en être certain.
+« La Tribulation Céleste est une calamité mais aussi une fortune... La Rétribution Ji du Ciel... La Rétribution Ji... Le Royaume Ji!!! » Les yeux de Wang Lin s'illuminèrent alors qu'il fixait les Huit Diagrammes. Son regard devint encore plus intense! Il semblait avoir saisi quelque chose, sans toutefois en être certain.
 
-« Avec ton niveau de culture actuel, ne t'encombre pas de comprendre le Royaume Ji... Lorsque tu atteindras le stade du Briseur du Nirvana, peut-être... pourras-tu le comprendre à travers la rétribution divine... » Les paroles de Qing Shui résonnaient encore à ses oreilles.
+« Avec ton niveau de culture actuel, ne t'encombre pas de comprendre le Royaume Ji... Lorsque tu atteindras le stade du Briseur du Nirvana, peut-être... pourras-tu le comprendre à travers la Tribulation Céleste... » Les paroles de Qing Shui résonnaient encore à ses oreilles.
 
 La roue des Huit Diagrammes se referma sur Wang Lin. L'expression de ce dernier changea radicalement et, au moment où la roue allait l'atteindre, une lueur de folie brilla dans ses yeux. Il prit une décision!
 
@@ -94,7 +94,7 @@ Cependant, les Huit Diagrammes étaient d'une nature extrêmement singulière. I
 
 Des craquements secouèrent l'intérieur du corps de Wang Lin, et son corps de dix mille pieds fut recouvert de diagrammes. Le sang jaillissait de chaque pore de sa peau!
 
-Wang Lin affichait une expression féroce alors qu'il levait les yeux vers le vortex dans le vide et rugissait: « Une simple combinaison des Neuf Palais et des Huit Diagrammes ne me tuera pas! Existe-t-il une rétribution divine plus puissante encore? »
+Wang Lin affichait une expression féroce alors qu'il levait les yeux vers le vortex dans le vide et rugissait: « Une simple combinaison des Neuf Palais et des Huit Diagrammes ne me tuera pas! Existe-t-il une Tribulation Céleste plus puissante encore? »
 
 Alors qu'il hurlait, le vortex rugit à son tour et sept rayons de lumière en jaillirent. Ces sept rayons étaient de la lumière stellaire!
 

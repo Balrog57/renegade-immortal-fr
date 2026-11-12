@@ -60,13 +60,13 @@ Wang Lin parvint à percevoir leurs niveaux de culture d'un seul coup d'œil. Le
 
 Ils n'avaient pu entrer que parce qu'ils se trouvaient déjà dans le pays de Suzaku au moment de l'ouverture de la tombe. S'ils étaient arrivés quelques jours plus tard, ils n'auraient jamais eu la chance d'entrer.
 
-Murong Yun examina attentivement Wang Lin et dit: « Compagnon cultivateur, venez-vous d'atteindre le stade de la Formation de l'Âme? »
+Murong Yun examina attentivement Wang Lin et dit: « Daoïste, venez-vous d'atteindre le stade de la Formation de l'Âme? »
 
 La femme regarda Wang Lin avec une pointe de froideur.
 
 Wang Lin sourit légèrement. « C'est exact. Je viens d'atteindre le stade de la Formation de l'Âme. »
 
-Murong Yun l'étudia de nouveau. Après avoir confirmé qu'il était réellement au début du stade de la Formation de l'Âme, il se détendit un peu et dit: « Compagnon cultivateur, cet endroit est bien trop dangereux. Que diriez-vous de faire équipe? Plus nous serons nombreux, plus nous serons en sécurité, et nous aurons plus de chances de récupérer nos fragments d'âme. »
+Murong Yun l'étudia de nouveau. Après avoir confirmé qu'il était réellement au début du stade de la Formation de l'Âme, il se détendit un peu et dit: « Daoïste, cet endroit est bien trop dangereux. Que diriez-vous de faire équipe? Plus nous serons nombreux, plus nous serons en sécurité, et nous aurons plus de chances de récupérer nos fragments d'âme. »
 
 Wang Lin réfléchit un instant et répondit: « À vous entendre, vous semblez très confiant quant à la récupération de votre fragment d'âme. » Tandis qu'il parlait, ses yeux s'illuminèrent sans que personne ne s'en aperçoive.
 
@@ -110,7 +110,7 @@ En pleine fuite, le sens divin du vieil homme balaya les trois personnes, et il 
 
 Wang Lin avait déjà vu ce vieil homme. Il faisait partie des seize cultivateurs de la Transformation de l'Âme présents à l'extérieur du Tombeau Zhu Que. Son niveau de culture se situait au début du stade de la Transformation de l'Âme.
 
-Il ne s'arrêta pas et lança précipitamment: « Compagnons cultivateurs, retirez-vous vite! Cette chose est très étrange! »
+Il ne s'arrêta pas et lança précipitamment: « Daoïstes, retirez-vous vite! Cette chose est très étrange! »
 
 À cet instant précis, Murong Yun jeta un regard désinvolte vers ce qui poursuivait le vieil homme. Son regard était tout à fait ordinaire, mais l'éclair s'arrêta net et laissa échapper un rugissement de mécontentement avant de tournoyer et de s'éloigner.
 
@@ -120,12 +120,12 @@ L'éclair disparut rapidement. Même le vieil homme sur l'épée volante fut stu
 
 Murong Yun avança de quelques mètres. Il joignit les mains et dit: « Junior Murong Yun salue Senior. »
 
-Le vieil homme lança un regard froid à Murong Yun et l'ignora. Son attention se porta sur Wang Lin alors qu'il joignait les mains et disait: « Un grand merci, compagnon cultivateur Ceng! »
+Le vieil homme lança un regard froid à Murong Yun et l'ignora. Son attention se porta sur Wang Lin alors qu'il joignait les mains et disait: « Un grand merci, Daoïste Ceng! »
 
-Après avoir réfléchi un moment, il ne parvint pas à comprendre pourquoi cette chose avait cessé de le poursuivre. Finalement, il pensa que cela était lié à ce Ceng Niu. Après tout, Ceng Niu était très célèbre; il devait posséder des sorts puissants.
+Après avoir réfléchi un moment, il ne parvint pas à comprendre pourquoi cette chose avait cessé de le poursuivre. Finalement, il pensa que cela était lié à ce Zeng Niu. Après tout, Zeng Niu était très célèbre; il devait posséder des sorts puissants.
 
-Au moment où il prononça « compagnon cultivateur Ceng », la femme au visage laid se retourna brusquement et scruta attentivement Wang Lin.
+Au moment où il prononça « Daoïste Ceng », la femme au visage laid se retourna brusquement et scruta attentivement Wang Lin.
 
 Wang Lin sourit légèrement et secoua la tête. « Ce n'est pas moi. »
 
-Les yeux du vieil homme brillèrent un instant et il sourit. « Ne parlons plus de cela. Je suis Mo Yunhai. Le compagnon cultivateur Ceng aurait-il des indices pour pénétrer dans la section intérieure de la tombe? »
+Les yeux du vieil homme brillèrent un instant et il sourit. « Ne parlons plus de cela. Je suis Mo Yunhai. Le Daoïste Ceng aurait-il des indices pour pénétrer dans la section intérieure de la tombe? »

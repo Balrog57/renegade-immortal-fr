@@ -24,7 +24,7 @@ Nombreux sont ceux qui avaient dû s'arrêter à ce seuil, incapables de condens
 
 Mais cette fois, Yun Kong avait pris sa décision et il était pleinement préparé; il n'admettrait aucune erreur!
 
-« Je raffinerai personnellement la Pilule Céleste et briserai la barrière entourant le Continent Tian Niu. Ce faisant, mon nom sera gravé dans l'histoire de tout le Continent Astral Immortel! » Yun Kong sourit, et sous l'effet de la goutte dorée, l'eau devant lui changea radicalement. La mer sembla bouillir et commença à tourbillonner violemment.
+« Je raffinerai personnellement la Pilule Céleste et briserai la barrière entourant le Continent Tian Niu. Ce faisant, mon nom sera gravé dans l'histoire de tout le Continent Xian Gang! » Yun Kong sourit, et sous l'effet de la goutte dorée, l'eau devant lui changea radicalement. La mer sembla bouillir et commença à tourbillonner violemment.
 
 Soudain, elle se contracta, franchissant le seuil des 100 000 pieds pour passer à 50 000, puis 30 000, et enfin 10 000 pieds!
 

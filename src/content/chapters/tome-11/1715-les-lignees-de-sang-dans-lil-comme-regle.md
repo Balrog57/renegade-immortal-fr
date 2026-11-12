@@ -94,7 +94,7 @@ Le visage fantomatique sur la voile demeurait étrange, mais il semblait désorm
 
 Ce Voile Fantôme était désormais son propre trésor!
 
-« Le sort d'illusion de la Secte Da Hun du Continent Astral Immortel est également une forme de restriction. Il fait partie de l'essence même de la restriction. Les restrictions sont illusoires, tout comme les règles. Si vous dites qu'elles existent, elles existent. Mais quand on est assez puissant pour les ignorer, elles cessent d'exister...
+« Le sort d'illusion de la Secte Da Hun du Continent Xian Gang est également une forme de restriction. Il fait partie de l'essence même de la restriction. Les restrictions sont illusoires, tout comme les règles. Si vous dites qu'elles existent, elles existent. Mais quand on est assez puissant pour les ignorer, elles cessent d'exister...
 
 « C'est une illusion... Elle ressemble au vrai et au faux, mais elle en est très différente! Bien que j'aie compris l'essence de la restriction, elle n'est pas complète. Elle ne s'est formée qu'à partir de ma propre compréhension...
 
@@ -108,7 +108,7 @@ Le voyage de Wang Lin fut fructueux. Ses corps du Dao Ancien avaient atteint hui
 
 Plus important encore, il avait entrevu, chez le Daoïste aux Sept Couleurs, une méthode pour rechercher la troisième âme.
 
-Au même moment, sur le Continent Astral Immortel, au sein des terres célestes, une bataille rare faisait rage dans les cieux. Elle était si difficile à détecter que les cultivateurs en dessous n'avaient pas le niveau requis pour la percevoir. Pour la plupart d'entre eux, le ciel était simplement resté brumeux durant ces derniers mois, avec un brouillard semblant tourbillonner sans fin.
+Au même moment, sur le Continent Xian Gang, au sein des terres célestes, une bataille rare faisait rage dans les cieux. Elle était si difficile à détecter que les cultivateurs en dessous n'avaient pas le niveau requis pour la percevoir. Pour la plupart d'entre eux, le ciel était simplement resté brumeux durant ces derniers mois, avec un brouillard semblant tourbillonner sans fin.
 
 « Xuan Luo, tu es bien plus faible qu'autrefois. L'heure de ta réincarnation doit avoir sonné... Je ne sais pas si tu as trouvé un gardien. Si ce n'est pas le cas, je peux t'en offrir un. »
 

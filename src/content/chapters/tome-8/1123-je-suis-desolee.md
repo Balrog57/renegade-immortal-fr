@@ -14,7 +14,7 @@ Il put néanmoins constater que le matériau dont elle était faite n'était pas
 
 « Qu'est-ce que c'est? » L'homme leva la tête et fixa Wang Lin.
 
-Wang Lin déclara calmement: « L'ancien Empereur Divin de l'Oiseau Vermillon a découvert un secret au siège de l'Alliance avant sa mort. Il m'a chargé de le transmettre au Royaume Kun Xu! »
+Wang Lin déclara calmement: « L'ancien Empereur Divin de Suzaku a découvert un secret au siège de l'Alliance avant sa mort. Il m'a chargé de le transmettre au Royaume Kun Xu! »
 
 L'homme hocha la tête, comprenant que cette affaire était grave. Son expression devint plus solennelle encore alors qu'il joignit les mains et dit: « Merci! »
 

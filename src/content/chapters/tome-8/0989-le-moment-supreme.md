@@ -40,7 +40,7 @@ Maître Fu Fengzi, terrifié, endurait la douleur pour se relever et battre en r
 
 Wang Lin agita la main droite et la lumière dorée se dissipa.
 
-Maître Fu Fengzi poussa un soupir et dit respectueusement: « Je me souviendrai de la clémence du Compagnon Cultivateur Wang! J'ai été imprudent en nourrissant l'espoir vain d'un peu de chance, et la perte de mon bras droit m'a fait voir clair en toute chose. Moi, Maître Fu Fengzi, je jure par mon Dao que cela ne se reproduira pas une seconde fois! »
+Maître Fu Fengzi poussa un soupir et dit respectueusement: « Je me souviendrai de la clémence du Daoïste Wang! J'ai été imprudent en nourrissant l'espoir vain d'un peu de chance, et la perte de mon bras droit m'a fait voir clair en toute chose. Moi, Maître Fu Fengzi, je jure par mon Dao que cela ne se reproduira pas une seconde fois! »
 
 Bien qu'il ait admis sa défaite face à Wang Lin, il nourrissait toujours une rancœur. À l'origine, il avait décidé de se rebeller dans la Terre Yao Ling.
 
@@ -54,7 +54,7 @@ De plus, après avoir reçu la clémence deux fois, Maître Fu Fengzi savait qu'
 
 Wang Lin regarda calmement Maître Fu Fengzi. Ils étaient tous deux des hommes sensés, il n'était donc pas nécessaire de multiplier les avertissements. Il se contenta de hocher la tête et laissa l'affaire derrière lui.
 
-« Compagnon Cultivateur Wang, d'après ce que je sais des vieux monstres de la planète Tian Yun, la Terre Yao Ling devrait bientôt s'ouvrir. Cela pourrait arriver dans quelques mois, ou au plus tard dans une demi-année. Nous n'avons pas beaucoup de temps. Je suis gravement blessé et dois me retirer en culture fermée; je ne vous dérangerai donc pas davantage. » Désormais résolu à aider Wang Lin, Maître Fu Fengzi commença progressivement à envisager ce qui pourrait se passer dans la Terre Yao Ling.
+« Daoïste Wang, d'après ce que je sais des vieux monstres de la planète Tian Yun, la Terre Yao Ling devrait bientôt s'ouvrir. Cela pourrait arriver dans quelques mois, ou au plus tard dans une demi-année. Nous n'avons pas beaucoup de temps. Je suis gravement blessé et dois me retirer en culture fermée; je ne vous dérangerai donc pas davantage. » Désormais résolu à aider Wang Lin, Maître Fu Fengzi commença progressivement à envisager ce qui pourrait se passer dans la Terre Yao Ling.
 
 Après avoir salué Wang Lin, Maître Fu Fengzi retourna à son palais pour commencer sa culture.
 

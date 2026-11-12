@@ -110,7 +110,7 @@ Simultanément, une voix glaciale résonna:
 
 « Ceci est un lieu interdit. Si tu fais un pas de plus, peu importe ton origine, ton corps et ton esprit seront anéantis! »
 
-Wang Lin fronça les sourcils, s'arrêta et dit: « Je ne suis pas venu pour combattre. Je viens livrer un jade au Royaume Kun Xu au nom de l'ancien Empereur Divin de l'Oiseau Vermillon! »
+Wang Lin fronça les sourcils, s'arrêta et dit: « Je ne suis pas venu pour combattre. Je viens livrer un jade au Royaume Kun Xu au nom de l'ancien Empereur Divin de Suzaku! »
 
 Les auras autour de lui faiblirent légèrement et la voix glaciale résonna de nouveau:
 

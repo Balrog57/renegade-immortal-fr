@@ -22,7 +22,7 @@ Même lorsqu'un cultivateur du quatrième Fléau Céleste était apparu, le jeun
 
 Les paroles froides et calmes de Wang Lin étaient comme une épée invisible qui transperçait son esprit et lui glaçait le sang!
 
-L'environnement était plongé dans un silence absolu, à l'exception des grondements tonitruants des nuages de la rétribution divine et de la sueur qui dégoulinait du visage du jeune homme chauve. Wang Lin fixa ce dernier et, après quelques instants de silence, fronça les sourcils.
+L'environnement était plongé dans un silence absolu, à l'exception des grondements tonitruants des nuages de la Tribulation Céleste et de la sueur qui dégoulinait du visage du jeune homme chauve. Wang Lin fixa ce dernier et, après quelques instants de silence, fronça les sourcils.
 
 Voyant Wang Lin froncer les sourcils, l'esprit du jeune homme chauve trembla. Il joignit rapidement les mains et s'exclama: « Céleste, je vous en prie, ne soyez pas en colère. Cet habitant du royaume inférieur se nomme Esprit Dispersé. Je n'avais aucune intention malveillante. Je vous en prie... »
 
@@ -56,23 +56,23 @@ Le jeune homme afficha une expression complexe et hocha la tête.
 
 Sans laisser paraître d'émotion, Wang Lin demanda: « Quel endroit? »
 
-« À la fin du monde... » Le jeune homme soupira et agita la main droite. Les nuages de la rétribution divine se dissipèrent instantanément tandis qu'une rune scintillait dans sa paume. Elle s'envola vers l'homme en contrebas et vint se loger entre ses sourcils, dissimulant immédiatement sa culture pour empêcher toute nouvelle rétribution divine.
+« À la fin du monde... » Le jeune homme soupira et agita la main droite. Les nuages de la Tribulation Céleste se dissipèrent instantanément tandis qu'une rune scintillait dans sa paume. Elle s'envola vers l'homme en contrebas et vint se loger entre ses sourcils, dissimulant immédiatement sa culture pour empêcher toute nouvelle Tribulation Céleste.
 
 Une fois cela fait, l'aura entourant le jeune homme se rétracta en son corps et il joignit les mains devant Wang Lin. Puis, il se retourna et s'élança dans le vide, franchissant l'espace pour quitter ce monde.
 
 Les yeux de Wang Lin brillèrent d'intérêt et il s'avança à son tour, traversant le vide aux côtés du jeune homme chauve.
 
-« Ce vieil homme a atteint le stade de la Formation de l'Âme et a compris les lois des cieux dès l'âge de cent ans. Après avoir observé plusieurs rétributions divines, j'ai réalisé que les soi-disant Célestes n'étaient pas ce que nos ancêtres nous avaient décrit... À cause de ce doute, j'avais supprimé ma culture pour ne pas atteindre le sommet du stade de la Formation de l'Âme. Au lieu de cela, je cherchais secrètement la vérité... » Le jeune homme marchait en tête et, à chaque pas, il traversait un monde, s'enfonçant dans les profondeurs des 7 Millions de Mondes.
+« Ce vieil homme a atteint le stade de la Formation de l'Âme et a compris les lois des cieux dès l'âge de cent ans. Après avoir observé plusieurs Tribulations Célestes, j'ai réalisé que les soi-disant Célestes n'étaient pas ce que nos ancêtres nous avaient décrit... À cause de ce doute, j'avais supprimé ma culture pour ne pas atteindre le sommet du stade de la Formation de l'Âme. Au lieu de cela, je cherchais secrètement la vérité... » Le jeune homme marchait en tête et, à chaque pas, il traversait un monde, s'enfonçant dans les profondeurs des 7 Millions de Mondes.
 
 Wang Lin gardait une expression sereine tout en voyageant avec lui à travers les mondes. À cet instant, des capitales mortelles, des pans entiers de l'espace, et même la pluie printanière ou le vent d'automne défilaient sans cesse autour d'eux.
 
-« Malheureusement, bien que mon talent fût excellent, je ne pouvais plus contenir ma culture. À deux cents ans, elle déborda et déclencha la rétribution divine... Le Céleste qui apparut était l'actuel Grand Ancien du Clan Shan Lei...
+« Malheureusement, bien que mon talent fût excellent, je ne pouvais plus contenir ma culture. À deux cents ans, elle déborda et déclencha la Tribulation Céleste... Le Céleste qui apparut était l'actuel Grand Ancien du Clan Shan Lei...
 
 « Son niveau de culture à l'époque n'était que celui d'un Scruteur du Nirvana. J'étais gravement blessé et au bord de la mort; je ne pouvais tout simplement pas résister... Cependant, au lieu de m'achever, il a réduit ma culture à néant avant de partir...
 
 « J'ai d'abord cru que les cieux étaient cléments, et ce n'est que bien des années plus tard que j'ai compris qu'il m'avait laissé la vie sauve pour me donner une chance de continuer ma culture. Ainsi, il y aurait une autre possibilité de faire naître le Tonnerre Spirituel. » La voix du jeune homme était empreinte d'amertume.
 
-« Pourtant, il ne s'attendait pas à ce que non seulement je reconstruise ma culture, mais qu'au cours de cette rétribution divine, j'aie compris les mutations du monde. J'ai utilisé l'existence même des 7 Millions de Mondes pour comprimer ma culture et j'ai trouvé un moyen de la renforcer sans provoquer de rétribution divine! » Tandis qu'il parlait, ses yeux étaient noyés dans la nostalgie.
+« Pourtant, il ne s'attendait pas à ce que non seulement je reconstruise ma culture, mais qu'au cours de cette Tribulation Céleste, j'aie compris les mutations du monde. J'ai utilisé l'existence même des 7 Millions de Mondes pour comprimer ma culture et j'ai trouvé un moyen de la renforcer sans provoquer de Tribulation Céleste! » Tandis qu'il parlait, ses yeux étaient noyés dans la nostalgie.
 
 Wang Lin le regarda et dit calmement: « Vous vous dispersez parmi tous vos avatars. »
 
@@ -90,9 +90,9 @@ Lui et Wang Lin étaient tous deux de puissants cultivateurs. Ils traversaient l
 
 « Je voulais percer le mystère de la légende transmise par nos ancêtres depuis l'Antiquité, leur description et leur désir ardent du Royaume Céleste! Cependant, bien que j'eusse atteint le stade du Purificateur du Nirvana et que mes avatars eux-mêmes possédaient une culture non négligeable, je ne pouvais quitter les 7 Millions de Mondes. Je ne pouvais que voyager en son sein, sans pouvoir entrer dans la voûte étoilée; il existait une barrière invisible que ma culture ne parvenait pas à briser!
 
-« J'ai donc conçu une méthode pour contrôler mes innombrables avatars afin qu'ils franchissent tous le stade de la Formation de l'Âme et déclenchent la rétribution divine! À ce moment-là, j'ai provoqué moi-même une infime partie de cette rétribution!
+« J'ai donc conçu une méthode pour contrôler mes innombrables avatars afin qu'ils franchissent tous le stade de la Formation de l'Âme et déclenchent la Tribulation Céleste! À ce moment-là, j'ai provoqué moi-même une infime partie de cette rétribution!
 
-« Chaque fois que la rétribution divine apparaissait, je l'observais de loin, et avec le temps, j'ai progressivement compris quelque chose. Et ce que j'ai découvert m'a terrassé!
+« Chaque fois que la Tribulation Céleste apparaissait, je l'observais de loin, et avec le temps, j'ai progressivement compris quelque chose. Et ce que j'ai découvert m'a terrassé!
 
 « Je ne pouvais croire que le monde dans lequel j'existais avait été créé par autrui. Je ne pouvais croire que j'étais considéré comme une simple fourmi par les autres, n'existant que pour leur permettre de récolter le Tonnerre Spirituel! »
 

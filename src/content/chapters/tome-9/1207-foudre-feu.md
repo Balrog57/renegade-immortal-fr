@@ -80,7 +80,7 @@ C'était un duel entre deux feux!
 
 Les deux flammes, issues d'une même origine mais maîtrisées par deux êtres distincts, entrèrent en collision en un clin d'œil. Une série de grondements célestes retentit et, dans un fracas assourdissant, le jeune homme marqué par le feu parvint à s'extraire de la tempête. Ses ailes de feu, semblables à celles d'un Oiseau Vermillon, dégageaient des flammes violettes alors qu'il fonçait sur Wang Lin.
 
-« Ni humain, ni Oiseau Vermillon! Rien qu'un habitant déformé du Royaume Extérieur! » Le feu provenant de l'œil gauche de Wang Lin enveloppa tout son corps et l'armure de l'Oiseau Vermillon apparut autour de lui. À cet instant, il ressemblait à un ancien dieu du feu!
+« Ni humain, ni Oiseau Vermillon! Rien qu'un habitant déformé du Royaume Extérieur! » Le feu provenant de l'œil gauche de Wang Lin enveloppa tout son corps et l'armure de Suzaku apparut autour de lui. À cet instant, il ressemblait à un ancien dieu du feu!
 
 En voyant cela, le jeune homme marqué par le feu sombra dans la folie, ses yeux remplis d'incrédulité. Il s'exclama: « L'Armure Sacrée!! »
 
@@ -104,11 +104,11 @@ C'était le véritable Oiseau Vermillon! Dès son apparition, il fixa le gigante
 
 Le géant oiseau de feu noir poussa un cri féroce, mais manifesta une intention évidente de battre en retraite.
 
-« Désormais, votre clan est privé du droit d'user du feu en ma présence! » Tandis que les paroles de Wang Lin résonnaient, l'Oiseau Vermillon et l'oiseau noir entrèrent en collision!
+« Désormais, votre clan est privé du droit d'user du feu en ma présence! » Tandis que les paroles de Wang Lin résonnaient, Suzaku et l'oiseau noir entrèrent en collision!
 
 Un grondement tonitruant retentit et l'oiseau noir s'effondra immédiatement, incapable de résister. C'était comme s'il avait rencontré son ancêtre, ou comme si le faux faisait face au vrai!
 
-Le feu libéré par l'oiseau noir lors de sa chute fut instantanément dévoré par l'Oiseau Vermillon; même son essence spirituelle fut engloutie. À cet instant, tout le feu de ce monde appartenait à Wang Lin!
+Le feu libéré par l'oiseau noir lors de sa chute fut instantanément dévoré par Suzaku; même son essence spirituelle fut engloutie. À cet instant, tout le feu de ce monde appartenait à Wang Lin!
 
 L'Oiseau Vermillon poussa un cri de triomphe. Il était exalté; il montrait les signes d'un troisième éveil! Les flammes autour de son corps brûlaient avec une intensité et une puissance accrues!
 

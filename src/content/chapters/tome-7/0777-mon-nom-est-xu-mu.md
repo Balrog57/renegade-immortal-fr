@@ -78,7 +78,7 @@ Le jeune homme poussa un soupir de soulagement, le cœur battant à tout rompre.
 
 Wang Lin n'accorda aucune attention aux autres personnes situées hors de la zone interdite. Il se détourna et marcha vers la cavité sombre où se trouvait Li Yuan.
 
-À ce moment précis, Tang Yanfeng lança soudainement: « Cher compagnon de culture, veuillez révéler votre nom! »
+À ce moment précis, Tang Yanfeng lança soudainement: « Cher Daoïste, veuillez révéler votre nom! »
 
 « Xu Mu! » La voix de Wang Lin provint de l'intérieur de l'obscurité. Puis, une lumière jaillit de la formation, scellant définitivement l'entrée.
 

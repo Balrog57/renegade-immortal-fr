@@ -68,11 +68,11 @@ Ce sourire était extrêmement étrange. En un instant, une lumière l'enveloppa
 
 Sa voix, telle un coup de tonnerre, retentit à travers toute la Secte Démon. Cela tirailla les cultivateurs de la secte qui étaient tombés dans la léthargie. Cependant, sitôt réveillés, ils sombrèrent de nouveau dans l'engourdissement.
 
-Ce n'étaient pas seulement les membres de la Secte Démon qui disparaissaient. À la Secte Fantôme, à la Secte Divine, à la Secte Brise-Ciel et parmi les bêtes féroces dans la brume, des gens disparaissaient également.
+Ce n'étaient pas seulement les membres de la Secte Démon qui disparaissaient. À la Secte Fantôme, à la Secte Divine, à la Secte Po Tian et parmi les bêtes féroces dans la brume, des gens disparaissaient également.
 
 L'épée de sang encerclait Wang Lin. Il leva les yeux vers le vortex formé par les quatre épées. La voix étrange pénétra aussi son esprit et, puisqu'il était celui qui subissait la divine rétribution, elle résonnait en lui avec une clarté accrue. Pourtant, la voix à ses oreilles n'était pas unique, mais changeait constamment!
 
-Parfois, c'était celle de sa mère ou de son père; parfois Li Muwan ou Wang Ping; parfois même l'ancien Empereur Divin de l'Oiseau Vermillon. Toutes ces voix se succédaient et formaient un ton discordant qui résonnait dans l'esprit de Wang Lin.
+Parfois, c'était celle de sa mère ou de son père; parfois Li Muwan ou Wang Ping; parfois même l'ancien Empereur Divin de Suzaku. Toutes ces voix se succédaient et formaient un ton discordant qui résonnait dans l'esprit de Wang Lin.
 
 « Paramita... » Un éclat de froideur traversa le regard de Wang Lin. Son cœur Dao était puissant, bien plus que celui des cultivateurs ordinaires. Même certains vieux monstres ayant cultivé durant d'innombrables années n'égalèrent pas sa force. Wang Lin avait affronté tant de dangers dans sa vie qu'une simple illusion ne pouvait atteindre son esprit.
 

@@ -104,7 +104,7 @@ Lorsque la Porte Kong apparut pour la seconde fois, les yeux de Wang Lin s'illum
 
 « Essence de feu, par mon nom, Wang Lin, consume la Porte Kong! » À l'instant où il parla, un feu aux neuf couleurs jaillit et envahit la zone.
 
-À cet instant précis, dans Kun Xu, la Mer Yun, Luotian, Rivière Zhao, et même dans le Royaume Extérieur, un feu infini se précipita vers le doigt de Wang Lin tel le tonnerre d'autrefois. Tout ce brasier s'abattit sur la Porte Kong.
+À cet instant précis, dans Kun Xu, la Mer Yun, Luotian, Zhao He, et même dans le Royaume Extérieur, un feu infini se précipita vers le doigt de Wang Lin tel le tonnerre d'autrefois. Tout ce brasier s'abattit sur la Porte Kong.
 
 Il était impossible de décrire la splendeur de ce spectacle. C'était une scène que bien des cultivateurs ne verraient jamais de leur vivant.
 

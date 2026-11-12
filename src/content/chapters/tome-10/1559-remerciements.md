@@ -92,7 +92,7 @@ Le choc se lisait dans les yeux de Wang Lin alors que son corps quittait progres
 
 Alors qu'il s'éloignait, il posa une dernière question: « Êtes-vous le Souverain Céleste?! »
 
-« Je le suis, et je ne le suis pas non plus... » La voix ténue résonna. Wang Lin réapparut à l'intérieur du Système Stellaire du Vide Brillant, puis la faille menant au Royaume aux Sept Couleurs disparut lentement.
+« Je le suis, et je ne le suis pas non plus... » La voix ténue résonna. Wang Lin réapparut à l'intérieur du Système Stellaire de Kun Xu, puis la faille menant au Royaume aux Sept Couleurs disparut lentement.
 
 Son corps retrouva sa liberté, mais ce qui venait de se passer laissa une empreinte profonde en lui. Il semblait vaguement comprendre quelque chose, mais cela ne faisait qu'accroître sa confusion.
 

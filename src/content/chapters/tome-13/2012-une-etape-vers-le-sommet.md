@@ -94,7 +94,7 @@ Cela le renvoyait à lui-même et à son propre passé. Même ce que Wang Lin av
 
 Wang Lin se tenait sur la première marche quand les paroles de son maître résonnèrent à ses oreilles. Son regard devint tranchant. Il n'aimait pas le Mont Gu Dao et il ne respecterait plus jamais le Grand Empyréen Gu Dao!
 
-« Dans ce monde, les forts contrôlent le destin des faibles... La culture du Grand Empyréen Gu Dao est immense et il est l'être le plus puissant du Continent Astral Immortel, c'est pourquoi il peut m'imposer sa volonté... Mais un jour, si moi, Wang Lin, je deviens assez fort pour remplacer Gu Dao, je serai les cieux! » Les yeux de Wang Lin s'illuminèrent et la silhouette du soleil de Grand Empyréen derrière lui brilla. La lumière fusionna avec son corps, le faisant paraître plus imposant encore.
+« Dans ce monde, les forts contrôlent le destin des faibles... La culture du Grand Empyréen Gu Dao est immense et il est l'être le plus puissant du Continent Xian Gang, c'est pourquoi il peut m'imposer sa volonté... Mais un jour, si moi, Wang Lin, je deviens assez fort pour remplacer Gu Dao, je serai les cieux! » Les yeux de Wang Lin s'illuminèrent et la silhouette du soleil de Grand Empyréen derrière lui brilla. La lumière fusionna avec son corps, le faisant paraître plus imposant encore.
 
 Il leva soudainement le pied et fit un pas en avant!
 

@@ -12,7 +12,7 @@ Wang Lin prit une profonde inspiration, le regard résolu. À mesure qu'il gravi
 
 À cet instant, les trois vieillards postés devant le pavillon discutaient entre eux. Une lumière vive jaillit soudainement du Pavillon Cang Pin, devenant de plus en plus éblouissante.
 
-L'ancien de la famille Chen fixa la lueur et déclara calmement: « La chance du compagnon cultivateur Xu est sur le point de se manifester. Je me demande quel genre de sort céleste il parviendra à obtenir au quatrième étage! »
+L'ancien de la famille Chen fixa la lueur et déclara calmement: « La chance du Daoïste Xu est sur le point de se manifester. Je me demande quel genre de sort céleste il parviendra à obtenir au quatrième étage! »
 
 Le cultivateur nommé Lu, dont le corps avait disparu, hocha la tête: « La culture est liée à la fortune, bien que ce lien soit assez faible; il peut néanmoins jouer un rôle à certains moments. Je suppose qu'il obtiendra un sort céleste fort honorable à l'intérieur. »
 
@@ -24,7 +24,7 @@ Au sommet du pavillon, après le premier éclat, quatre autres rayons de lumièr
 
 « Cinq rayons de lumière... Cette personne est en réalité entrée au cinquième étage! » Le cultivateur Lu, privé de son corps, observa les cinq faisceaux avec un air d'incrédulité.
 
-« Il semblerait que nous ayons sous-estimé le compagnon cultivateur Xu. Il est absolument au sommet du stade Corporel Yang, et peut-être même à demi-pas du stade Scruteur du Nirvana. Il a tout juste atteint les critères pour accéder au cinquième étage! » Les yeux du cultivateur nommé Song s'illuminèrent.
+« Il semblerait que nous ayons sous-estimé le Daoïste Xu. Il est absolument au sommet du stade Corporel Yang, et peut-être même à demi-pas du stade Scruteur du Nirvana. Il a tout juste atteint les critères pour accéder au cinquième étage! » Les yeux du cultivateur nommé Song s'illuminèrent.
 
 Le cultivateur Chen reprit lentement: « S'il était au stade Scruteur du Nirvana, il lui serait impossible d'entrer dans le Royaume Céleste du Tonnerre, à moins que... »
 
@@ -166,6 +166,6 @@ Après tout, ils ne pouvaient même pas imaginer la nature du sort qui se trouva
 
 Ils remarquèrent immédiatement que l'état de Wang Lin était anormal. Ils échangèrent un regard où se lisaient la cruauté et la détermination.
 
-« Je suis désolé, compagnon cultivateur Xu, mais plutôt que de vous recommander à ma famille, je préfère obtenir le sort céleste du neuvième étage, surtout vu votre état actuel. Si vous aviez été lucide, j'aurais peut-être hésité, mais face à votre torpeur, c'est une chance offerte par les cieux! » Les yeux du vieil homme Chen brillèrent d'une intention meurtrière.
+« Je suis désolé, Daoïste Xu, mais plutôt que de vous recommander à ma famille, je préfère obtenir le sort céleste du neuvième étage, surtout vu votre état actuel. Si vous aviez été lucide, j'aurais peut-être hésité, mais face à votre torpeur, c'est une chance offerte par les cieux! » Les yeux du vieil homme Chen brillèrent d'une intention meurtrière.
 
 Cessant toute hésitation, les trois hommes s'élancèrent. Ils dégainèrent leurs trésors les plus puissants et lancèrent leurs sorts les plus dévastateurs vers Wang Lin!

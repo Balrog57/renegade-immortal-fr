@@ -26,15 +26,15 @@ Avoir subsisté des temps primordiaux jusqu'à nos jours témoignait d'un pouvoi
 
 À l'exception des planètes de rang 8 et 9 du Système de l'Alliance, Wang Lin connaissait déjà tous ces détails. Lors de son voyage, Li Yuan lui avait exposé l'histoire complète des familles cultivatrices. C'est pourquoi Wang Lin restait si calme face aux quatre grandes familles héritières du Royaume Céleste.
 
-Les deux vieillards qui résistaient au sceau fragmentaire au-dessus du pavillon réfléchirent silencieusement un instant. L'un d'eux esquissa un sourire amer et dit: « Puisque ce Compagnon Cultivateur possède des sorts et des trésors aussi puissants, vous ne pouvez être un simple inconnu. Veuillez nous révéler votre nom! »
+Les deux vieillards qui résistaient au sceau fragmentaire au-dessus du pavillon réfléchirent silencieusement un instant. L'un d'eux esquissa un sourire amer et dit: « Puisque ce Daoïste possède des sorts et des trésors aussi puissants, vous ne pouvez être un simple inconnu. Veuillez nous révéler votre nom! »
 
 Wang Lin répondit avec calme: « Xu Mu! »
 
-Les yeux du vieil homme se plissèrent: « Bien que le Compagnon Cultivateur Xu n'ait pas encore atteint le stade du Scruteur du Nirvana, nous sommes incapables de vous arrêter. Vous avez la qualification pour entrer dans le Pavillon Cang Pin! »
+Les yeux du vieil homme se plissèrent: « Bien que le Daoïste Xu n'ait pas encore atteint le stade du Scruteur du Nirvana, nous sommes incapables de vous arrêter. Vous avez la qualification pour entrer dans le Pavillon Cang Pin! »
 
-À peine eut-il fini sa phrase que le vieil homme à ses côtés fixa Wang Lin et demanda soudainement: « Le Compagnon Cultivateur Xu a-t-il un lien avec la famille Xu de la planète Dong Lin? »
+À peine eut-il fini sa phrase que le vieil homme à ses côtés fixa Wang Lin et demanda soudainement: « Le Daoïste Xu a-t-il un lien avec la famille Xu de la planète Dong Lin? »
 
-Wang Lin regarda calmement l'interlocuteur. L'homme hésita, puis ses yeux s'illuminèrent: « Si le Compagnon Cultivateur n'appartient pas à la famille Xu, alors, en tant que représentant de la famille Chen, je vous invite à devenir un Ancien non familial! »
+Wang Lin regarda calmement l'interlocuteur. L'homme hésita, puis ses yeux s'illuminèrent: « Si le Daoïste n'appartient pas à la famille Xu, alors, en tant que représentant de la famille Chen, je vous invite à devenir un Ancien non familial! »
 
 Les yeux de Wang Lin brillèrent et il esquissa un léger sourire.
 
@@ -44,7 +44,7 @@ Le cultivateur privé de corps laissa échapper un soupir, l'esprit tourmenté. 
 
 Ce qui suivit fut simple: les trois hommes coopérèrent pour ouvrir le pavillon. Les quatre coins tremblèrent lentement tandis que les quatre cornes se rejoignirent progressivement. Un rayon de lumière douce jaillit soudainement, et une porte ovale de lumière apparut à la jonction des cornes.
 
-« Compagnon Cultivateur Xu, ma famille Chen est entrée dans le Pavillon Cang Pin plus d'une centaine de fois. Bien que l'obtention d'un sort céleste dépende de la chance et de la perception de chacun, ce n'est pas totalement aléatoire. Plus vous resterez longtemps, plus le sort céleste que vous obtiendrez à la fin sera précieux. Je vous souhaite de faire une riche récolte! » Celui qui avait invité Wang Lin à devenir Ancien non familial joignit les poings, d'une voix fort sincère.
+« Daoïste Xu, ma famille Chen est entrée dans le Pavillon Cang Pin plus d'une centaine de fois. Bien que l'obtention d'un sort céleste dépende de la chance et de la perception de chacun, ce n'est pas totalement aléatoire. Plus vous resterez longtemps, plus le sort céleste que vous obtiendrez à la fin sera précieux. Je vous souhaite de faire une riche récolte! » Celui qui avait invité Wang Lin à devenir Ancien non familial joignit les poings, d'une voix fort sincère.
 
 Wang Lin hocha légèrement la tête. D'après les souvenirs du vieillard de la famille Yao, il savait que les quatre grandes familles n'avaient pas le pouvoir de tendre des pièges à l'intérieur même du pavillon. De plus, tout ce qui se déroulait était conforme aux souvenirs de Yao. Wang Lin n'hésita plus. Il retira ses trésors magiques, s'avança devant la porte, prit une profonde inspiration et franchit le seuil.
 
@@ -58,7 +58,7 @@ L'Ancien de la famille Chen déclara d'un ton lent: « Peu importe. À quoi bon 
 
 Le vieillard sans corps demanda: « Ancien Chen, comptez-vous vraiment inviter cet homme à devenir un Ancien non familial au sein de votre famille? »
 
-L'Ancien Chen acquiesça: « Cet homme est formidable. La famille Chen a besoin d'un tel talent; par conséquent, mes confrères, ne cherchez pas à rivaliser avec moi! Si cet homme devient réellement un Ancien non familial de la famille Chen, alors faites comme si vous ignoriez ce qui est arrivé au Compagnon Cultivateur Yao! Quant au corps du Compagnon Cultivateur Lu, ma famille le compensera! Compagnon Song, la famille Chen vous offrira également un petit avantage! Bien entendu, tout cela suppose que cet homme accepte de rejoindre notre clan! »
+L'Ancien Chen acquiesça: « Cet homme est formidable. La famille Chen a besoin d'un tel talent; par conséquent, mes confrères, ne cherchez pas à rivaliser avec moi! Si cet homme devient réellement un Ancien non familial de la famille Chen, alors faites comme si vous ignoriez ce qui est arrivé au Daoïste Yao! Quant au corps du Daoïste Lu, ma famille le compensera! Compagnon Song, la famille Chen vous offrira également un petit avantage! Bien entendu, tout cela suppose que cet homme accepte de rejoindre notre clan! »
 
 Tandis qu'ils discutaient, Wang Lin atteignit un espace mystérieux. Les environs étaient noyés dans une brume grise et son Sens Divin ne pouvait s'y étendre. Un murmure indistinct émanait de toutes les directions, atteignant ses oreilles sans qu'il puisse en saisir le sens.
 

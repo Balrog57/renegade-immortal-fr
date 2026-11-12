@@ -22,7 +22,7 @@ Les membres de la secte qui écoutaient ces trois hommes suivirent l'exemple. Il
 
 « Bienvenue, Empereur Divin! » À cet instant, les voix de tous les membres de la secte présents résonnèrent. Le cri de dizaines de milliers de personnes provoqua un rugissement capable de faire trembler la terre.
 
-L'expression de Wang Lin demeura impassible. Bien qu'il fût entouré d'acclamations, il savait que beaucoup parmi cette foule n'étaient pas sincères. Après tout, son niveau de culture n'était pas assez élevé pour subjuguer l'assemblée, mais cela lui importait peu. Le cœur de Wang Lin n'appartenait pas à la Secte Divine de l'Oiseau Vermillon.
+L'expression de Wang Lin demeura impassible. Bien qu'il fût entouré d'acclamations, il savait que beaucoup parmi cette foule n'étaient pas sincères. Après tout, son niveau de culture n'était pas assez élevé pour subjuguer l'assemblée, mais cela lui importait peu. Le cœur de Wang Lin n'appartenait pas à la Secte Divine de Suzaku.
 
 Tandis que Wang Lin était au centre des célébrations, quelques individus éprouvaient des émotions complexes, l'esprit ailleurs.
 
@@ -38,17 +38,17 @@ Outre Ta Shan et Chen Daozi, une autre personne était habitée par des sentimen
 
 « Maudit Wang Lin! Pourquoi n'as-tu pas encore laissé ton Grand-père Xu sortir?! Attends un peu, attends seulement! »
 
-Au cours des deux jours suivants, les anciens des trois autres Sectes Divines vinrent féliciter Wang Lin pour son accession au titre d'Empereur Divin de l'Oiseau Vermillon. La Secte Divine de l'Oiseau Vermillon était en pleine effervescence. Wang Lin se montra très poli envers les anciens des trois autres sectes. Après tout, les Quatre Sectes Divines partageaient un destin commun, et la majorité des anciens présents étaient allés à la Terre Yao Ling. Ayant été témoins des sorts de Wang Lin, ils ne pouvaient naturellement ressentir de dédain face au fait qu'il n'était qu'un cultivateur du stade Scruteur du Nirvana.
+Au cours des deux jours suivants, les anciens des trois autres Sectes Divines vinrent féliciter Wang Lin pour son accession au titre d'Empereur Divin de Suzaku. La Secte Divine de Suzaku était en pleine effervescence. Wang Lin se montra très poli envers les anciens des trois autres sectes. Après tout, les Quatre Sectes Divines partageaient un destin commun, et la majorité des anciens présents étaient allés à la Terre Yao Ling. Ayant été témoins des sorts de Wang Lin, ils ne pouvaient naturellement ressentir de dédain face au fait qu'il n'était qu'un cultivateur du stade Scruteur du Nirvana.
 
 Après les civilités d'usage, des lieux de séjour furent aménagés pour les anciens des trois sectes, lesquels portaient une grande attention à Wang Lin.
 
-En particulier, les trois Grands Anciens de la Secte Divine du Dragon Azure se montrèrent extrêmement respectueux envers lui. Trois ans auparavant, lorsque Wang Lin avait annoncé la nouvelle concernant l'Empereur Divin du Dragon Azure à l'Empereur Divin de l'Oiseau Vermillon, ils avaient également été informés de cette affaire et étaient profondément reconnaissants que Wang Lin leur ait apporté cette nouvelle.
+En particulier, les trois Grands Anciens de la Secte Divine du Dragon Azure se montrèrent extrêmement respectueux envers lui. Trois ans auparavant, lorsque Wang Lin avait annoncé la nouvelle concernant l'Empereur Divin du Dragon Azure à l'Empereur Divin de Suzaku, ils avaient également été informés de cette affaire et étaient profondément reconnaissants que Wang Lin leur ait apporté cette nouvelle.
 
 Une cérémonie grandiose était nécessaire pour l'ascension d'un nouvel Empereur Divin. C'était une tradition des Quatre Sectes Divines que Wang Lin ne pouvait ignorer. La cérémonie fut fixée au sixième jour.
 
-Wang Lin serait normalement très occupé et n'aurait guère le temps de se reposer. Il y avait de nombreux aspects de la Secte Divine de l'Oiseau Vermillon qu'il devait apprendre à connaître. De plus, tous les anciens de la secte ne reconnaissaient pas encore son autorité; ils n'avaient accepté sa position que sur ordre du vieil Empereur Divin.
+Wang Lin serait normalement très occupé et n'aurait guère le temps de se reposer. Il y avait de nombreux aspects de la Secte Divine de Suzaku qu'il devait apprendre à connaître. De plus, tous les anciens de la secte ne reconnaissaient pas encore son autorité; ils n'avaient accepté sa position que sur ordre du vieil Empereur Divin.
 
-Cependant, Wang Lin ne s'attarda pas sur ces formalités. Lorsqu'il accepta de devenir l'Empereur Divin de l'Oiseau Vermillon, ce n'était qu'un accord passé avec le précédent souverain.
+Cependant, Wang Lin ne s'attarda pas sur ces formalités. Lorsqu'il accepta de devenir l'Empereur Divin de Suzaku, ce n'était qu'un accord passé avec le précédent souverain.
 
 Durant les trois années suivantes, le vieil Empereur Divin lui avait transmis sans réserve tout ce qu'il possédait. Bien que cela fît partie du marché, Wang Lin se sentait tenu de lui rendre cette faveur.
 
@@ -74,9 +74,9 @@ Autrement, la seule issue serait d'entraîner les Quatre Sectes Divines dans sa 
 
 Wang Lin s'était cultivé pendant plus de mille ans; il n'était plus le petit cultivateur au stade de la Formation du Noyau. Bien que Tuo Sen fût puissant, Wang Lin n'était pas totalement dépourvu de préparation.
 
-« Si l'Empereur Céleste Qing Lin peut être ressuscité, je me demande comment il se comporterait face à Tuo Sen... » Les yeux de Wang Lin s'illuminèrent tandis qu'il contemplait la montagne. Toutes les planètes de la Secte Divine de l'Oiseau Vermillon étaient perpétuellement embrasées, paraissant d'un rouge éclatant au premier regard.
+« Si l'Empereur Céleste Qing Lin peut être ressuscité, je me demande comment il se comporterait face à Tuo Sen... » Les yeux de Wang Lin s'illuminèrent tandis qu'il contemplait la montagne. Toutes les planètes de la Secte Divine de Suzaku étaient perpétuellement embrasées, paraissant d'un rouge éclatant au premier regard.
 
-« Je sauverai l'Empereur Divin du Dragon Azure en guise de reconnaissance temporaire pour l'aide de l'ancien Empereur Divin. Si je parviens à échapper à la traque de Tuo Sen et à acquérir la puissance nécessaire pour le vaincre, alors je reviendrai pour rendre toute sa gratitude à l'ancien Empereur Divin, préserver la paix de la Secte Divine de l'Oiseau Vermillon et faire renaître sa prospérité d'antan... Mais si je meurs des mains de Tuo Sen... » Wang Lin regarda silencieusement le ciel et esquissa un sourire amer.
+« Je sauverai l'Empereur Divin du Dragon Azure en guise de reconnaissance temporaire pour l'aide de l'ancien Empereur Divin. Si je parviens à échapper à la traque de Tuo Sen et à acquérir la puissance nécessaire pour le vaincre, alors je reviendrai pour rendre toute sa gratitude à l'ancien Empereur Divin, préserver la paix de la Secte Divine de Suzaku et faire renaître sa prospérité d'antan... Mais si je meurs des mains de Tuo Sen... » Wang Lin regarda silencieusement le ciel et esquissa un sourire amer.
 
 « Tuo Sen... Je ne te laisserai pas t'échapper si facilement. Ce monde est imprégné d'avidité. Je me demande combien de personnes seront attirées par la promesse d'un Ancien Dieu à huit étoiles... » Wang Lin afficha un sourire sinistre.
 
@@ -84,7 +84,7 @@ Wang Lin s'était cultivé pendant plus de mille ans; il n'était plus le petit 
 
 Cet ancien n'était pas l'un des six qui s'étaient rendus à la Terre Yao Ling. Wang Lin savait seulement qu'il s'appelait Xu et qu'il se trouvait au stade intermédiaire du Briseur du Nirvana. Il jouissait d'un grand prestige parmi les anciens de ce rang.
 
-Au cours des derniers jours, de nombreux émissaires de l'Alliance étaient venus le féliciter. Wang Lin n'avait naturellement pas reçu ces personnes, car les membres et les anciens de la Secte Divine de l'Oiseau Vermillon s'en chargeaient.
+Au cours des derniers jours, de nombreux émissaires de l'Alliance étaient venus le féliciter. Wang Lin n'avait naturellement pas reçu ces personnes, car les membres et les anciens de la Secte Divine de Suzaku s'en chargeaient.
 
 Quant à Luotian et la Secte Shi Yin, c'était la première fois qu'ils envoyaient quelqu'un. Wang Lin réfléchit un instant à son plan pour affronter Tuo Sen, puis changea d'avis sur sa décision de ne pas rencontrer ces émissaires.
 
@@ -102,7 +102,7 @@ Hormis l'ancien Empereur Divin et les trois Grands Anciens de la Secte Divine du
 
 Pour la première fois, il sentit que Wang Lin était un être d'une profondeur et d'un mystère insondables.
 
-La salle arrière de la Secte Divine de l'Oiseau Vermillon était entièrement bâtie en jade rouge. De loin, elle était saisissante, entourée d'arbres d'un rouge vif; même les sentiers du sol étaient tout rouges. Des vagues de chaleur intense émanaient du bâtiment et se propageaient dans les environs.
+La salle arrière de la Secte Divine de Suzaku était entièrement bâtie en jade rouge. De loin, elle était saisissante, entourée d'arbres d'un rouge vif; même les sentiers du sol étaient tout rouges. Des vagues de chaleur intense émanaient du bâtiment et se propageaient dans les environs.
 
 À cet instant, deux hommes et une femme étaient assis à l'intérieur de la salle.
 
@@ -116,6 +116,6 @@ Toutefois, la femme remarqua immédiatement que dès que cette confusion apparai
 
 Si Wang Lin avait été présent, il aurait instantanément reconnu le vieil homme et le chauve, car il les connaissait.
 
-À ce moment-là, un junior de la Secte Divine de l'Oiseau Vermillon entra pour apporter des fruits et du thé. Après les avoir déposés, il se retira aussitôt.
+À ce moment-là, un junior de la Secte Divine de Suzaku entra pour apporter des fruits et du thé. Après les avoir déposés, il se retira aussitôt.
 
 La belle femme saisit sa tasse et souffla sur le thé. Elle leva les yeux vers le vieillard et sourit: « Je présume que vous êtes Lie Yunzi de Luotian. Cette jeune fille est Li Yingzhi de la Secte Shi Yin. Salutations, Senior. »

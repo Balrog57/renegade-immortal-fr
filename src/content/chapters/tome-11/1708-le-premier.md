@@ -48,7 +48,7 @@ L'homme en robe royale acquiesça, mais son cœur était empli de dédain.
 
 « Hormis mon oncle, personne dans le clan Dao n'a un talent supérieur au mien. Ye Mo n'était pas assez doué, et son héritier ne l'est pas non plus! »
 
-Le temps s'écoulait lentement sur le Continent Astral Immortel. À cet instant, au sein de la faille de la Mer Yun, l'avatar de Wang Lin était assis au bord de l'autel. Il contemplait la goutte de sang formée par son corps original, située au centre de l'autel.
+Le temps s'écoulait lentement sur le Continent Xian Gang. À cet instant, au sein de la faille de la Mer Yun, l'avatar de Wang Lin était assis au bord de l'autel. Il contemplait la goutte de sang formée par son corps original, située au centre de l'autel.
 
 Cette goutte flottait là, immobile et silencieuse, quand soudain un hurlement commença à résonner dans cet espace étrange. Des ondulations surgirent du néant et une aura ancienne et puissante se propagea lentement.
 
@@ -88,13 +88,13 @@ Une fois la quatrième goutte passée, le vortex commença à se dissiper; une f
 
 C'était déjà beaucoup pour lui. Après tout, il avait reçu l'héritage de Ye Mo, et quatre gouttes représentaient sa limite ultime!
 
-Il n'était pas un génie, il n'était pas né sur le Continent Astral Immortel, il n'était qu'une insignifiante créature des cavernes. Il ne pouvait rivaliser avec l'homme en robe royale qui avait obtenu six gouttes et intégré la famille royale. Wang Lin ne possédait rien qui puisse égaler un être aussi béni!
+Il n'était pas un génie, il n'était pas né sur le Continent Xian Gang, il n'était qu'une insignifiante créature des cavernes. Il ne pouvait rivaliser avec l'homme en robe royale qui avait obtenu six gouttes et intégré la famille royale. Wang Lin ne possédait rien qui puisse égaler un être aussi béni!
 
-Il ne pouvait pas non plus se comparer au Grand Empyréen Xuan Luo, l'un des neuf soleils, l'un des neuf êtres les plus puissants du Continent Astral Immortel. Une telle existence légendaire trônait au-dessus de tous, ayant obtenu huit gouttes de sang. Wang Lin ne faisait pas le poids.
+Il ne pouvait pas non plus se comparer au Grand Empyréen Xuan Luo, l'un des neuf soleils, l'un des neuf êtres les plus puissants du Continent Xian Gang. Une telle existence légendaire trônait au-dessus de tous, ayant obtenu huit gouttes de sang. Wang Lin ne faisait pas le poids.
 
 Sa seule force résidait dans sa ténacité, son caractère inflexible et son refus viscéral d'être assujetti. À travers d'innombrables luttes entre la vie et la mort, il était passé du statut de simple mortel vulnérable à celui qu'il était devenu. Avec le recul, un tel parcours était proprement stupéfiant.
 
-Tandis que Wang Lin affrontait des combats acharnés pour obtenir ses ressources, l'homme en robe royale et de nombreux cultivateurs du pays ancien du Continent Astral Immortel cultivaient dans la paix. Sous la protection du Grand Empyréen, ils ne rencontraient que rarement le péril de la mort.
+Tandis que Wang Lin affrontait des combats acharnés pour obtenir ses ressources, l'homme en robe royale et de nombreux cultivateurs du pays ancien du Continent Xian Gang cultivaient dans la paix. Sous la protection du Grand Empyréen, ils ne rencontraient que rarement le péril de la mort.
 
 Tandis que Wang Lin luttait pour sa survie, l'homme en robe royale était protégé par d'innombrables membres de son clan durant sa culture. Quoi qu'il désire, son clan le lui apportait sur un plateau.
 
@@ -102,15 +102,15 @@ Tandis que Wang Lin serrait Li Muwan contre lui en pleurant, luttant désespér�
 
 « Quatre gouttes de sang, est-ce ma limite...? » Le lignage dans le corps de Wang Lin se condensa progressivement. Il observa le vortex qui s'étiolait au-dessus de lui. Il n'était pas satisfait!
 
-Bien qu'il ignorât l'agitation qu'il provoquait sur le Continent Astral Immortel, c'était là son essence même. Il ne se contentait jamais; il voulait que son lignage soit encore plus puissant!
+Bien qu'il ignorât l'agitation qu'il provoquait sur le Continent Xian Gang, c'était là son essence même. Il ne se contentait jamais; il voulait que son lignage soit encore plus puissant!
 
 Rien d'autre que pour sa volonté indomptable, cette volonté qui défiait les cieux!
 
 « Puisque vous reconnaissez mon sang ancien, alors quatre gouttes ne suffiront pas! » Un éclat de froideur traversa le regard de Wang Lin alors qu'il bondissait dans les airs, chargé vers le vortex en pleine dissipation!
 
-Il était différent de tous les anciens du Continent Astral Immortel. Il avait survécu dans le monde des cavernes et, au fond de lui, il n'avait jamais respecté l'Ancêtre Ancien. Il ne vouait aucun culte à une existence aussi éthérée; il ne croyait qu'en sa propre force!
+Il était différent de tous les anciens du Continent Xian Gang. Il avait survécu dans le monde des cavernes et, au fond de lui, il n'avait jamais respecté l'Ancêtre Ancien. Il ne vouait aucun culte à une existence aussi éthérée; il ne croyait qu'en sa propre force!
 
-Sur ce point, personne sur le Continent Astral Immortel, pas même le Grand Empyréen Xuan Luo, ne pouvait lui être comparé. Même ce dernier conservait un immense respect pour l'existence de cet ancêtre.
+Sur ce point, personne sur le Continent Xian Gang, pas même le Grand Empyréen Xuan Luo, ne pouvait lui être comparé. Même ce dernier conservait un immense respect pour l'existence de cet ancêtre.
 
 Mais Wang Lin était différent!
 

@@ -50,9 +50,9 @@ Les disciples envoyés à la cité ancestrale étaient retournés dans leurs sec
 
 La Secte Da Hun.
 
-Après le départ de Wang Lin, l'Illustre Taureau Vert était entré en cultivation isolée, se détournant des affaires mondaines. La gestion de la secte fut confiée aux Anciens. Il ne posa qu'une seule condition : la montagne offerte à Wang Lin devait être préservée et transformée en une terre interdite où nul ne pourrait pénétrer.
+Après le départ de Wang Lin, l'Illustre Qing Niu était entré en cultivation isolée, se détournant des affaires mondaines. La gestion de la secte fut confiée aux Anciens. Il ne posa qu'une seule condition : la montagne offerte à Wang Lin devait être préservée et transformée en une terre interdite où nul ne pourrait pénétrer.
 
-Beaucoup étaient perplexes face à cette décision. Lorsque la renommée de Wang Lin s'étala lors de l'Épreuve Empyréenne, et que les rumeurs concernant l'Ascendant aux cheveux blancs se répandirent, les membres de la Secte Da Hun furent déconcertés. Ce n'est qu'en suivant divers indices qu'ils comprirent que Wang Lin était bel et bien cet Ascendant Empyréen aux cheveux blancs. Ils saisirent alors vaguement le sens des actions de l'Illustre Taureau Vert.
+Beaucoup étaient perplexes face à cette décision. Lorsque la renommée de Wang Lin s'étala lors de l'Épreuve Empyréenne, et que les rumeurs concernant l'Ascendant aux cheveux blancs se répandirent, les membres de la Secte Da Hun furent déconcertés. Ce n'est qu'en suivant divers indices qu'ils comprirent que Wang Lin était bel et bien cet Ascendant Empyréen aux cheveux blancs. Ils saisirent alors vaguement le sens des actions de l'Illustre Qing Niu.
 
 Yan Luan, une ancienne du passé, occupait désormais un poste élevé dans la secte et pouvait décider de questions importantes. Elle aurait pu quitter sa montagne pour s'installer dans les profondeurs de la Secte Da Hun afin d'obtenir une grotte plus luxueuse.
 
@@ -72,17 +72,17 @@ Wang Lin se tenait devant la Secte Da Hun, contemplant ce lieu familier. Lorsqu'
 
 « En fin de compte, son plan consistant à lever le sceau sur son clan et à faire disparaître la lignée de l'Ancêtre Céleste a réussi. Tout cela pour permettre à son dernier membre survivant de gagner sa liberté... »
 
-Wang Lin regarda la Secte Da Hun avec une expression complexe. Il était arrivé sur le Continent Astral Immortel depuis longtemps, mais ce n'est que maintenant qu'il découvrait que ce lointain Continent Tian Niu, insignifiant aux yeux de nombreux puissants, recelait un secret dont les racines remontaient à des temps immémoriaux.
+Wang Lin regarda la Secte Da Hun avec une expression complexe. Il était arrivé sur le Continent Xian Gang depuis longtemps, mais ce n'est que maintenant qu'il découvrait que ce lointain Continent Tian Niu, insignifiant aux yeux de nombreux puissants, recelait un secret dont les racines remontaient à des temps immémoriaux.
 
 Dans un soupir, Wang Lin s'avança vers la Secte Da Hun.
 
-Son niveau de culture actuel étant bien supérieur à celui de l'Illustre Taureau Vert et de tous les membres de la secte, personne ne remarqua son arrivée.
+Son niveau de culture actuel étant bien supérieur à celui de l'Illustre Qing Niu et de tous les membres de la secte, personne ne remarqua son arrivée.
 
 Au sein de la Secte Da Hun, Wang Lin vit Du Qing et Yan Luan, cette dernière se tenant sur la montagne vêtue d'une robe rouge flamboyant. Il aperçut également Fan Shanmeng et Fan Shanlu.
 
 Sans s'arrêter, Wang Lin pénétra dans les profondeurs de la Secte Da Hun. Il se dirigea vers le Pavillon Cang Hun qu'il avait visité autrefois!
 
-Ce pavillon avait dû être ouvert par l'Illustre Taureau Vert à l'époque. Pourtant, aujourd'hui, d'un seul pas, Wang Lin se trouvait déjà devant lui.
+Ce pavillon avait dû être ouvert par l'Illustre Qing Niu à l'époque. Pourtant, aujourd'hui, d'un seul pas, Wang Lin se trouvait déjà devant lui.
 
 C'était un édifice de sept étages enveloppé d'une fine couche de brume. Devant le pavillon trônaient deux grandes statues de bêtes d'un réalisme saisissant.
 
@@ -90,7 +90,7 @@ La porte du pavillon était close et un silence absolu régnait. Trois grands ca
 
 Pavillon Cang Hun!
 
-Ce pavillon semblait comporter sept étages, mais en vérité, il y avait un huitième, un neuvième... et même un dixième! L'Illustre Taureau Vert avait affirmé que même lui ne pouvait accéder au dixième étage. C'était là que reposait l'ancien ancêtre de la Secte Da Hun.
+Ce pavillon semblait comporter sept étages, mais en vérité, il y avait un huitième, un neuvième... et même un dixième! L'Illustre Qing Niu avait affirmé que même lui ne pouvait accéder au dixième étage. C'était là que reposait l'ancien ancêtre de la Secte Da Hun.
 
 L'expression de Wang Lin resta calme alors qu'il levait les yeux vers le sommet de l'édifice. Il était venu chercher une réponse, pour découvrir ce que le génie du Clan Dao Wang lui avait laissé.
 

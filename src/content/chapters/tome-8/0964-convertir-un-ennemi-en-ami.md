@@ -62,7 +62,7 @@ L'homme en robe violette et le vieillard en robe verte lancèrent à Wang Lin de
 
 Peu importe leur arrogance habituelle, face à un Purificateur du Nirvana, ils n'osaient rien laisser paraître. Au contraire, ils cherchaient à se rapprocher de lui.
 
-« Du Jade Violet Liquide? » Cela semblait familier à Wang Lin. Après une courte réflexion, il regarda les trois hommes et hocha la tête. « Dans ce cas, je vais vous causer des ennuis, mes chers compagnons cultivateurs! »
+« Du Jade Violet Liquide? » Cela semblait familier à Wang Lin. Après une courte réflexion, il regarda les trois hommes et hocha la tête. « Dans ce cas, je vais vous causer des ennuis, mes chers Daoïstes! »
 
 Maître Yi Chen rit: « Aucun problème. C'est le destin qui nous permet de faire la connaissance du Camarade Cultivateur Wang Lin. » Il fit un geste de la main droite pour l'inviter à les suivre.
 

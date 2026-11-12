@@ -92,7 +92,7 @@ Alors que le jeune homme parlait, il fit un pas en avant pour charger la planèt
 
 Cependant, tous, y compris le jeune homme, s'arrêtèrent aux abords de la planète. Personne n'y pénétra réellement.
 
-Le jeune homme sourit et lança d'une voix forte: « Chers compagnons cultivateurs, aidez ma famille Yao à détruire cette planète! Ainsi, quels que soient les pièges qu'il a tendus, il sera anéanti avec elle! »
+Le jeune homme sourit et lança d'une voix forte: « Chers Daoïstes, aidez ma famille Yao à détruire cette planète! Ainsi, quels que soient les pièges qu'il a tendus, il sera anéanti avec elle! »
 
 Les cultivateurs environnants acquiescèrent et, sans hésiter, commencèrent l'assaut.
 

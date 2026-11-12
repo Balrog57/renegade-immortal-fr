@@ -36,7 +36,7 @@ C'était un sortilège mystérieux, un sortilège de lignage!
 
 Plus le lignage d'un Céleste est pur, plus il est difficile pour autrui de le débusquer. Même sa localisation générale semble voilée par un brouillard impénétrable.
 
-À cause de cela, le jeune homme de la Rivière Invoquée s'était mépris, croyant qu'un Céleste était descendu. Il ne pouvait voir ce qui se passait au Quartier Général de l'Alliance; il ne ressentait que l'énergie spirituelle céleste fulgurante provenant du Royaume Intérieur.
+À cause de cela, le jeune homme de Zhao He s'était mépris, croyant qu'un Céleste était descendu. Il ne pouvait voir ce qui se passait au Quartier Général de l'Alliance; il ne ressentait que l'énergie spirituelle céleste fulgurante provenant du Royaume Intérieur.
 
 « Le Céleste qui est descendu possède un lignage très pur et doit jouir d'un statut noble. Les Immortels se répartissent en neuf rangs, le plus élevé étant celui de l'or, et au-dessus s'étendent les cieux et la terre de Luo Xuan. Cependant, son niveau de culture n'est pas élevé, ce n'est qu'un Céleste de rang 7... J'ai autrefois connu une grande fortune en obtenant un héritage céleste. Mon niveau actuel est au début du stade de la Tribulation du Vide, ce qui équivaut à un Céleste Terrestre. Si je pouvais obtenir son lignage... » Songeait silencieusement le Vieux Fantôme Zhan.
 
@@ -46,7 +46,7 @@ Pour être plus précis, c'était un monde qui se superposait au Royaume Intéri
 
 C'était une peinture cachée dans une autre peinture. Il fallait déchirer la première pour pouvoir entrevoir la vérité qu'elle recelait.
 
-D'innombrables statues d'anciens dieux, de monstres et de démons anciens parsemaient cette zone. C'était l'endroit que Wang Lin avait traversé lors de sa Tribulation, et c'était aussi le lieu d'origine du jeune homme de la Rivière Invoquée.
+D'innombrables statues d'anciens dieux, de monstres et de démons anciens parsemaient cette zone. C'était l'endroit que Wang Lin avait traversé lors de sa Tribulation, et c'était aussi le lieu d'origine du jeune homme de Zhao He.
 
 C'était ce fameux Royaume Céleste Antique qui, selon les rumeurs du Royaume Intérieur, avait disparu...
 
@@ -68,11 +68,11 @@ Dans la deuxième statue, une autre silhouette dorée s'exclama lentement: « Ti
 
 « Il n'échouera pas, et le résultat se manifestera bientôt... »
 
-Ces quatre statues gigantesques scellaient les quatre grands généraux de l'Empereur Céleste Antique: le Dragon Azure, le Tigre Blanc, l'Oiseau Vermillon et la Tortue Noire!
+Ces quatre statues gigantesques scellaient les quatre grands généraux de l'Empereur Céleste Antique: le Dragon Azure, le Tigre Blanc, Suzaku et la Tortue Noire!
 
-Si Wang Lin avait été là pour voir cela, il aurait été stupéfait. Sa première pensée aurait été la suivante: si le véritable Oiseau Vermillon était scellé ici, alors qui était cette personne se proclamant être de la première génération d'Oiseau Vermillon?
+Si Wang Lin avait été là pour voir cela, il aurait été stupéfait. Sa première pensée aurait été la suivante: si le véritable Oiseau Vermillon était scellé ici, alors qui était cette personne se proclamant être de la première génération de Suzaku?
 
-Système stellaire du Vide Brillant, Quartier Général de l'Alliance. La main droite de Wang Lin pointait vers le ciel et une empreinte de paume géante descendit sur la Peinture des Montagnes et des Rivières.
+Système stellaire de Kun Xu, Quartier Général de l'Alliance. La main droite de Wang Lin pointait vers le ciel et une empreinte de paume géante descendit sur la Peinture des Montagnes et des Rivières.
 
 L'expression de Wang Lin était calme, mais son sérieux était palpable. Lorsque Maître Long Pan venait de s'éveiller, il n'était qu'au stade du Vide du Nirvana, ce qui avait permis à Wang Lin de lui briser les deux bras.
 
@@ -120,7 +120,7 @@ Les grondements tonitruants résonnèrent et le monde vacilla. L'aura de l'homme
 
 Wang Lin eut un sourire colérique et fixa l'homme dans la lumière blanche. Il agita sa main droite et un arc surgit de son corps!
 
-« À quoi sert votre Alliance? Le Royaume Extérieur a envahi les terres et le Royaume Intérieur a subi de lourdes pertes. Les cultivateurs de la Mer Yun ont péri en grand nombre, la Rivière Invoquée est tombée, Luotian est prêt à mourir et le Vide Brillant lutte pour sa survie! Pourtant, votre propre disciple est devenu le chien du Royaume Extérieur et votre Alliance a été occupée par ce même Royaume et transformée en tribu! Sans compter qu'un Royaume aux Sept Couleurs se cache ici!
+« À quoi sert votre Alliance? Le Royaume Extérieur a envahi les terres et le Royaume Intérieur a subi de lourdes pertes. Les cultivateurs de la Mer Yun ont péri en grand nombre, Zhao He est tombée, Luotian est prêt à mourir et le Kun Xu lutte pour sa survie! Pourtant, votre propre disciple est devenu le chien du Royaume Extérieur et votre Alliance a été occupée par ce même Royaume et transformée en tribu! Sans compter qu'un Royaume aux Sept Couleurs se cache ici!
 
 Je suis l'actuel Seigneur du Royaume Scellé. Je suis venu pour détruire le Royaume aux Sept Couleurs, sauver mon Senior Frère Qing Shui et massacrer les cultivateurs du Royaume Extérieur. De quel droit m'interdisez-vous de faire cela?! »
 

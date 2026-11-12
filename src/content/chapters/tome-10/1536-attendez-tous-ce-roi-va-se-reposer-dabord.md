@@ -10,7 +10,7 @@ Chaque fois que le pouvoir de l'Ancien Dieu de Wang Lin atteignait le moment cri
 
 Cette douleur intense aurait suffi à rendre n'importe qui fou. Si Wang Lin avait été inconscient, cela n'aurait pas été si terrible, mais il avait repris connaissance depuis longtemps. Pourtant, à son réveil, son corps était saturé du sang de ce fou.
 
-Ce sang était imprégné d'une puissance extrêmement pure. Wang Lin n'avait jamais vu une telle force de sa vie. Seul le sort « Ancien Dao, aucun Céleste » lancé par Ye Mo, qu'il avait contemplé lorsqu'il siégeait sur le trône dans la Tombe de l'Ordre Antique pouvait rivaliser avec lui en puissance.
+Ce sang était imprégné d'une puissance extrêmement pure. Wang Lin n'avait jamais vu une telle force de sa vie. Seul le sort « Ancien Dao, aucun Céleste » lancé par Ye Mo, qu'il avait contemplé lorsqu'il siégeait sur le trône dans la Tombe de Dao Gu pouvait rivaliser avec lui en puissance.
 
 Cependant, ce pouvoir ne pouvait être maîtrisé par Wang Lin. Il restait tapi au sein de son sang et circulait dans ses veines. Tandis qu'il entrait en conflit avec le pouvoir de l'Ancien Dieu, il fusionnait lentement avec les os et le sang de Wang Lin.
 
@@ -86,9 +86,9 @@ Avant de sombrer dans l'inconscience, il marmonnait encore:
 
 Le corps de Wang Lin était baigné de sang. Ce sang semblait vivant; dès qu'il le toucha, il s'infiltra dans son corps par ses pores.
 
-Cette quantité massive de sang, et plus particulièrement l'essence vitale, provoqua une pression indescriptible au sein du corps de Wang Lin. Le pouvoir de l'Ordre Antique et celui de l'Ancien Dieu de Wang Lin furent écrasés et supplantés, sans toutefois fusionner à grande échelle.
+Cette quantité massive de sang, et plus particulièrement l'essence vitale, provoqua une pression indescriptible au sein du corps de Wang Lin. Le pouvoir de Dao Gu et celui de l'Ancien Dieu de Wang Lin furent écrasés et supplantés, sans toutefois fusionner à grande échelle.
 
-Néanmoins, parce que le pouvoir de l'Ordre Antique était opprimé, le sang versé pénétra directement dans ses os et se fondit avec sa moelle osseuse.
+Néanmoins, parce que le pouvoir de Dao Gu était opprimé, le sang versé pénétra directement dans ses os et se fondit avec sa moelle osseuse.
 
 Cette fusion ne se limita pas à de petites zones comme précédemment; elle fut instantanée et totale. Le corps de Wang Lin trembla et une multitude de points rouges apparurent sur toute sa peau. Son propre sang était violemment expulsé de son corps!
 

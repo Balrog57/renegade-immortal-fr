@@ -1,6 +1,6 @@
 ---
 n: 2062
-title: "Bataille pour la suprématie du Continent Astral Immortel!"
+title: "Bataille pour la suprématie du Continent Xian Gang!"
 book: 13
 bookTitle: Light of the coming end
 en: "Chapter 2062 - Battle for Number One of the Immortal Astral Continent!"
@@ -16,11 +16,11 @@ Son apparence n'avait guère changé depuis quelques mois, mais si l'on regardai
 
 Vêtu d'une longue chemise blanche, il se tenait à l'extérieur du bassin de la vaste mer. Il jeta un dernier regard vers le Clan Ancien, puis, un instant plus tard, il fit volte-face. Il se changea en un rayon de lumière et fonça vers le clan céleste, situé de l'autre côté du vaste bassin!
 
-« Fou, je t'avais juré que je reviendrais au palais de la cité ancestrale pour te sauver! Si tu es prêt à partir avec moi, personne sur le Continent Astral Immortel ne pourra nous arrêter. »
+« Fou, je t'avais juré que je reviendrais au palais de la cité ancestrale pour te sauver! Si tu es prêt à partir avec moi, personne sur le Continent Xian Gang ne pourra nous arrêter. »
 
 « Si tu choisis de devenir l'Empereur Céleste, alors tu seras le véritable Empereur Céleste qui n'est plus en sommeil! »
 
-« De plus, Situ, Qing Shui, Treize, Da Tou, Hongdie... Vous êtes tous sur le Continent Astral Immortel, et puisque aucun de vous ne se trouve dans le Clan Ancien, vous devez tous vous être réincarnés sur les terres du clan céleste. Cette fois, je vous trouverai sans faute! »
+« De plus, Situ, Qing Shui, Treize, Da Tou, Hongdie... Vous êtes tous sur le Continent Xian Gang, et puisque aucun de vous ne se trouve dans le Clan Ancien, vous devez tous vous être réincarnés sur les terres du clan céleste. Cette fois, je vous trouverai sans faute! »
 
 « Et il y a aussi... Li Qianmei... » L'expression de Wang Lin devint complexe. Dans un soupir, il s'élança avec une vélocité bien supérieure à celle d'autrefois, volant à cent fois la vitesse qu'il avait employée pour parcourir cette distance la première fois.
 
@@ -50,7 +50,7 @@ L'expression de Wang Lin resta sereine. Il observa le brouillard recouvrir le ci
 
 La silhouette au cœur du brouillard avança lentement, toujours enveloppée de brume, et répondit d'une voix rauque: « Wang Lin! »
 
-Cette scène revêtait une importance capitale pour le Continent Astral Immortel. C'était la toute première rencontre entre les deux êtres les plus puissants du continent!
+Cette scène revêtait une importance capitale pour le Continent Xian Gang. C'était la toute première rencontre entre les deux êtres les plus puissants du continent!
 
 Ils étaient les deux seuls sur le Continent Astral à avoir un demi-pas dans le stade du Piétinement des Cieux, et c'était la première fois que leurs regards se croisaient.
 
@@ -94,7 +94,7 @@ La silhouette dans le brouillard resta silencieuse un long moment avant que sa v
 
 Wang Lin ne souhaitait pas non plus combattre Gu Dao, car leur relation était complexe. Il n'avait aucune raison de se battre, à moins que Gu Dao ne soit déterminé à le contraindre sans aucune possibilité de négociation.
 
-Wang Lin demanda soudain: « J'ai une question. Avec ton niveau de culture, tu pourrais facilement balayer l'intégralité du Continent Astral Immortel. Pourquoi permets-tu encore l'existence du clan céleste? »
+Wang Lin demanda soudain: « J'ai une question. Avec ton niveau de culture, tu pourrais facilement balayer l'intégralité du Continent Xian Gang. Pourquoi permets-tu encore l'existence du clan céleste? »
 
 Dans le brouillard, Gu Dao réfléchit longuement. C'était une question que beaucoup se posaient au sein du Clan Ancien, tout comme les membres du clan céleste.
 
@@ -108,9 +108,9 @@ En regardant Gu Dao à travers le brouillard, Wang Lin sembla comprendre quelque
 
 « Si tu veux te battre, alors battons-nous! » Wang Lin leva les yeux, le regard brillant d'une lueur intense. Puisque l'affrontement était inévitable, il voulait voir lequel d'eux était le plus puissant!
 
-Ce serait un combat pour la suprématie absolue du Continent Astral Immortel, le premier combat de tout le continent depuis la disparition de l'Ancêtre Céleste et de l'Ancêtre Ancien! Un duel entre les deux êtres au sommet de l'existence!
+Ce serait un combat pour la suprématie absolue du Continent Xian Gang, le premier combat de tout le continent depuis la disparition de l'Ancêtre Céleste et de l'Ancêtre Ancien! Un duel entre les deux êtres au sommet de l'existence!
 
-Gu Dao, l'être le plus puissant du Continent Astral Immortel. Il avait gravi les Ponts du Piétinement des Cieux il y a des éons. Bien qu'il fût bloqué au sixième pont, sa puissance de combat était phénoménale et il était le seul à avoir tué des Grands Empyréens!
+Gu Dao, l'être le plus puissant du Continent Xian Gang. Il avait gravi les Ponts du Piétinement des Cieux il y a des éons. Bien qu'il fût bloqué au sixième pont, sa puissance de combat était phénoménale et il était le seul à avoir tué des Grands Empyréens!
 
 Wang Lin, quant à lui, était une fusion des pouvoirs célestes et anciens. Sa culture n'était pas encore achevée, mais avec seulement deux corps véritables complets, il se trouvait déjà à un demi-pas du Piétinement des Cieux. Il ignorait quel niveau il atteindrait une fois ses essences éthérées totalement complétées!
 

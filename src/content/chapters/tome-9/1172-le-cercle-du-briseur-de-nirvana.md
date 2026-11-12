@@ -106,7 +106,7 @@ Il s'agissait d'une plume rouge et d'une bulle de la taille d'une tête. Une âm
 
 Dès que ces deux objets furent présentés, tous les regards convergèrent vers eux. En voyant la plume rouge, Wang Lin fut secoué, mais il dissimula parfaitement son choc.
 
-« Le premier objet serait la légendaire plume de l'Oiseau Vermillon. Bien qu'il soit difficile de confirmer sa véracité, l'énergie d'origine du feu qu'elle contient est d'une densité rare. Le second objet n'a pas besoin de présentation: c'est une âme de bête semi-brumeuse de rang 12. Je n'ai pas autant de règles que Cang Songzi et j'accepterai tout échange, pourvu que l'objet me plaise. » Une fois son discours achevé, l'homme examina silencieusement l'assemblée.
+« Le premier objet serait la légendaire plume de Suzaku. Bien qu'il soit difficile de confirmer sa véracité, l'énergie d'origine du feu qu'elle contient est d'une densité rare. Le second objet n'a pas besoin de présentation: c'est une âme de bête semi-brumeuse de rang 12. Je n'ai pas autant de règles que Cang Songzi et j'accepterai tout échange, pourvu que l'objet me plaise. » Une fois son discours achevé, l'homme examina silencieusement l'assemblée.
 
 « Malheureusement, ce n'est qu'une demi-bête brumeuse... Quel dommage! » Wu Qing regarda la créature dans la bulle et secoua la tête avec un soupir.
 

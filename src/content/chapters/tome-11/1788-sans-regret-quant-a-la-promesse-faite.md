@@ -8,15 +8,15 @@ slug: sans-regret-quant-a-la-promesse-faite
 ---
 Wang Lin baissa la tête et contempla l'espace familier au-delà de la porte dorée. Il médita en silence.
 
-Les paroles de Xuan Luo résonnaient encore dans ses oreilles, persistant longtemps après leur prononciation. Ces mots lui révélaient les préparatifs pour entrer dans le Continent Astral Immortel ainsi que les conséquences qui en découleraient. Wang Lin comprit.
+Les paroles de Xuan Luo résonnaient encore dans ses oreilles, persistant longtemps après leur prononciation. Ces mots lui révélaient les préparatifs pour entrer dans le Continent Xian Gang ainsi que les conséquences qui en découleraient. Wang Lin comprit.
 
 « Réincarnation... » murmura Wang Lin.
 
-« Peut-être quelques années, peut-être mille ans... Tous ceux qui souhaitent quitter le monde des grottes sans lignée devront passer par là. Après un long moment, ils réapparaîtront quelque part sur le Continent Astral Immortel... »
+« Peut-être quelques années, peut-être mille ans... Tous ceux qui souhaitent quitter le monde des grottes sans lignée devront passer par là. Après un long moment, ils réapparaîtront quelque part sur le Continent Xian Gang... »
 
 « Quand nous nous reverrons dans mille ans, je devrai libérer leurs souvenirs scellés... » Après un long silence, Wang Lin leva les yeux vers Xuan Luo et lui fit une profonde révérence.
 
-Wang Lin comprit vaguement que pour défier ainsi les lois du Continent Astral Immortel, Xuan Luo devait en payer un prix considérable.
+Wang Lin comprit vaguement que pour défier ainsi les lois du Continent Xian Gang, Xuan Luo devait en payer un prix considérable.
 
 « Ce Junior ignore qui décidera de quitter le monde des grottes et combien ils seront. Cependant, quoi qu'il advienne, ce Junior n'oubliera jamais la bonté dont le Senior a fait preuve envers lui aujourd'hui! »
 
@@ -44,7 +44,7 @@ Ces mots parvinrent aux oreilles de Lanmeng Daozun, dont le regard s'assombrit. 
 
 Les yeux de Xuan Luo brillèrent tandis qu'il observait Wang Lin, qui lui rendit son regard. Ayant entendu les paroles de Wang Lin sur l'absence de regret, il hocha la tête.
 
-« Pour lancer le sort de réincarnation et contourner les lois du Continent Astral Immortel, je devrai me préparer un peu. Dans un mois, amène tous ceux qui souhaitent partir, et je lancerai le sort! »
+« Pour lancer le sort de réincarnation et contourner les lois du Continent Xian Gang, je devrai me préparer un peu. Dans un mois, amène tous ceux qui souhaitent partir, et je lancerai le sort! »
 
 « Quant à toi... c'est ton propre choix... » Xuan Luo ne chercha plus à le convaincre. Durant cette période d'épreuve, il avait beaucoup appris sur le caractère de Wang Lin. Une fois que celui-ci avait pris une décision, rien ne pouvait l'en détourner.
 
@@ -56,7 +56,7 @@ Les yeux de Xuan Luo brillèrent tandis qu'il observait Wang Lin, qui lui rendit
 
 Wang Lin fixa profondément Xuan Luo et s'inclina une troisième fois. Il se détourna et partit. Lanmeng Daozun le suivit tout en restant plongé dans ses pensées.
 
-Quant à Tuo Sen, après avoir salué Wang Lin, il marcha machinalement vers l'horizon, son esprit occupé par la question de savoir s'il devait quitter le monde des grottes pour se réincarner sur le Continent Astral Immortel ou non.
+Quant à Tuo Sen, après avoir salué Wang Lin, il marcha machinalement vers l'horizon, son esprit occupé par la question de savoir s'il devait quitter le monde des grottes pour se réincarner sur le Continent Xian Gang ou non.
 
 Le système stellaire infini était d'une beauté sublime, les nébuleuses brillant de mille feux. Pourtant, aux yeux de Wang Lin, il était impossible de dire si elles étaient réelles ou illusoires.
 
@@ -104,9 +104,9 @@ Elle contempla le système stellaire d'un regard serein. Ses yeux n'étaient pas
 
 « Merci de ton aide. »
 
-Le regard de Wang Lin se posa sur l'âme de Yun Na et il dit: « C'est ma promesse envers toi. C'est aussi l'échange pour cette goutte de sang. Cependant, à toi de décider si tu souhaites simplement partir vivre dans le monde des grottes ou rejoindre le Continent Astral Immortel! C'est là que se trouve la véritable Secte Dong Lin et la patrie de ton Maître, le Souverain Céleste aux Sept Couleurs. »
+Le regard de Wang Lin se posa sur l'âme de Yun Na et il dit: « C'est ma promesse envers toi. C'est aussi l'échange pour cette goutte de sang. Cependant, à toi de décider si tu souhaites simplement partir vivre dans le monde des grottes ou rejoindre le Continent Xian Gang! C'est là que se trouve la véritable Secte Dong Lin et la patrie de ton Maître, le Souverain Céleste aux Sept Couleurs. »
 
-« Si tu veux rester ici, alors va-t'en... Mais si tu veux aller sur le Continent Astral Immortel, tu devras subir l'épreuve amère d'une réincarnation de mille ans! »
+« Si tu veux rester ici, alors va-t'en... Mais si tu veux aller sur le Continent Xian Gang, tu devras subir l'épreuve amère d'une réincarnation de mille ans! »
 
 Yun Na écouta calmement les paroles de Wang Lin. Après une courte réflexion, elle contempla le système stellaire paisible et murmura:
 
@@ -124,7 +124,7 @@ Wang Lin avait fait la même promesse à une autre personne. Elle se trouvait da
 
 Cette Fan Shanlu était une femme pitoyable. Elle était la première concubine du Souverain Céleste et la sœur cadette de Fan Shanmeng. Cependant, elle était restée trop longtemps dans le monde des grottes et avait fini par être entraînée dans l'illusion par sa sœur aînée, qui voulait ainsi obtenir le Sang du Serment de Wang Lin.
 
-« Elle est originaire du Continent Astral Immortel, elle n'a donc pas besoin de se réincarner pour partir... » Wang Lin avança et traversa Luotian pour pénétrer dans la Mer Yun. Il s'enfonça dans les profondeurs de la faille où se trouvait Fan Shanlu.
+« Elle est originaire du Continent Xian Gang, elle n'a donc pas besoin de se réincarner pour partir... » Wang Lin avança et traversa Luotian pour pénétrer dans la Mer Yun. Il s'enfonça dans les profondeurs de la faille où se trouvait Fan Shanlu.
 
 Outre le fait de sauver Fan Shanlu, il y avait une chose que Wang Lin avait presque oubliée. Dans le dernier mois précédant son départ, un souvenir lui revint soudainement à l'esprit.
 

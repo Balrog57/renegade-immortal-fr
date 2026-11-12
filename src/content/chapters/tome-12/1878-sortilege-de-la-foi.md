@@ -28,7 +28,7 @@ C'était le sortilège que Wang Lin avait créé pour Li Muwan! Bien que ce sort
 
 Il songea un instant à sa Wan Er au sein du soleil.
 
-Combattre les hommes, combattre les bêtes, combattre la terre, combattre les cieux, combattre le ciel étoilé, combattre toutes choses, combattre le Continent Astral Immortel... Tout cela n'était que la nuit noire, et tout ce que Wang Lin avait accompli visait un seul but!
+Combattre les hommes, combattre les bêtes, combattre la terre, combattre les cieux, combattre le ciel étoilé, combattre toutes choses, combattre le Continent Xian Gang... Tout cela n'était que la nuit noire, et tout ce que Wang Lin avait accompli visait un seul but!
 
 Déchirer les voiles d'obscurité qui masquaient ses yeux pour chercher la lumière par-delà les ténèbres de la nuit!
 
@@ -46,7 +46,7 @@ Lorsque le soleil se manifesta et qu'une aura inexplicable se propagea, l'expres
 
 « C'est... cette aura est... » Le visage de Zhang Daozong devint instantanément livide, et la peur envahit son regard.
 
-Il y avait aussi le vieil homme nommé Zhao. Il fixait le soleil, ressentant l'aura ténue, pourtant légère mais incroyablement tenace, qui s'en dégageait. Il en oublia de respirer. Si l'on lui avait dit que tous les cultivateurs du continent Taureau Céleste allaient périr du jour au lendemain, il n'en aurait pas été aussi terrifié que maintenant.
+Il y avait aussi le vieil homme nommé Zhao. Il fixait le soleil, ressentant l'aura ténue, pourtant légère mais incroyablement tenace, qui s'en dégageait. Il en oublia de respirer. Si l'on lui avait dit que tous les cultivateurs du continent Tian Niu allaient périr du jour au lendemain, il n'en aurait pas été aussi terrifié que maintenant.
 
 « Ce n'est pas possible... C'est impossible... À moins qu'il ne soit une réincarnation... »
 

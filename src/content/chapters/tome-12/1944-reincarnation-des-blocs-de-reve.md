@@ -12,7 +12,7 @@ Il se tenait tel qu'il l'avait été lorsqu'il était entré dans le rêve sur l
 
 C'était comme un enfant ayant quitté son foyer et qui, après des décennies, apercevrait soudain quelque chose de très familier. Peu importe les efforts de l'enfant, il ne parvenait pas à se souvenir de la source de ce sentiment de familiarité.
 
-Wang Lin ferma les yeux et relia ce sentiment familier à la scène du monde des grottes. Son corps devint un fil invisible reliant le monde des grottes au Continent Astral Immortel.
+Wang Lin ferma les yeux et relia ce sentiment familier à la scène du monde des grottes. Son corps devint un fil invisible reliant le monde des grottes au Continent Xian Gang.
 
 « Cette pluie est très familière... Le son de la pluie frappant les dalles de pierre verte est également très familier... » murmura Wang Lin pour lui-même. Après un long moment, il ouvrit les yeux et contempla la montagne, le temple, la place et le fourneau surplombant l'esplanade. Cette scène lui permit de vaguement comprendre quelque chose.
 

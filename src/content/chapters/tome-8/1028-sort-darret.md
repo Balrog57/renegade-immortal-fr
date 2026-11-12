@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1028 - Stop Spell
 slug: sort-darret
 ---
-L'Ancêtre Sainte du Clan Fu Wen remarqua également le léger changement dans le tatouage de l'Oiseau Vermillon de Wang Lin, mais elle n'en eut cure. Elle ne pouvait percevoir l'apparence de Qing Lin, mais elle pouvait clairement le ressentir.
+L'Ancêtre Sainte du Clan Fu Wen remarqua également le léger changement dans le tatouage de Suzaku de Wang Lin, mais elle n'en eut cure. Elle ne pouvait percevoir l'apparence de Qing Lin, mais elle pouvait clairement le ressentir.
 
 Elle était présente en ce lieu depuis des dizaines de milliers d'années; comment pourrait-elle ignorer le Sens Divin laissé ici au sein du sceau? Son unique but était de la maintenir scellée ici éternellement.
 
@@ -16,7 +16,7 @@ Après avoir ressenti l'avatar de Qing Lin, sa haine devint plus intense encore.
 
 Dès l'apparition de cet os, une aura maléfique monstrueuse se manifesta. À l'instant même où cette aura se propageait, la température chuta comme en plein hiver. Tandis que l'aura maléfique s'étendait, des couches de glace commencèrent à recouvrir les environs.
 
-L'énergie originelle de Wang Lin circula rapidement et la chaleur de son Feu Divin de l'Oiseau Vermillon emplit son corps. Cependant, son regard resta verrouillé sur l'os de bête, une immense vague de trouble s'agitant dans son cœur.
+L'énergie originelle de Wang Lin circula rapidement et la chaleur de son Feu Divin de Suzaku emplit son corps. Cependant, son regard resta verrouillé sur l'os de bête, une immense vague de trouble s'agitant dans son cœur.
 
 « La Paire de la Déchéance du Dao? » Wang Lin regarda le dos de sa main droite. L'apparence féroce de la Paire de la Déchéance du Dao y était tracée.
 
@@ -34,7 +34,7 @@ Il ne fallut que quelques instants pour qu'un cristal brillant, de la taille d'u
 
 À l'instant où le cristal apparut, il libéra un éclat fulgurant. D'immenses rayons de lumière jaillirent comme autant d'épées perçant vers l'extérieur, faisant suffoquer l'assistance.
 
-« Quelle méthode de scellement tyrannique. Elle ne consomme pas le moindre fragment de l'avatar de Sens Divin. Au lieu de cela, elle extrait la puissance des lois du sort de l'adversaire pour sceller complètement l'attaque. Même un Senior Frère ne pourrait accomplir cela si aisément! » Maître du Vide haleta, les pupilles rétractées. Bientôt, une trace d'avidité apparut dans son regard.
+« Quelle méthode de scellement tyrannique. Elle ne consomme pas le moindre fragment de l'avatar de Sens Divin. Au lieu de cela, elle extrait la puissance des lois du sort de l'adversaire pour sceller complètement l'attaque. Même un Senior Frère ne pourrait accomplir cela si aisément! » Xu Kongzi haleta, les pupilles rétractées. Bientôt, une trace d'avidité apparut dans son regard.
 
 « Bien que Qing Lin soit très puissant, selon les observations et les informations de l'Alliance, je suis sûr à 90 % qu'il est sur son lit de mort. Si je peux le capturer et le contrôler par une méthode spéciale, alors l'Alliance Xiu Zhen n'aura plus aucun ennemi! »
 
@@ -78,7 +78,7 @@ C'était comme si un bourdonnement s'était installé dans ses oreilles, et les 
 
 « Pourquoi... Pourquoi... »
 
-Wang Lin était stupéfait par la situation; il vit que Situ Nan et les autres étaient dans le même état. Seuls Tian Yunzi, Maître du Vide et l'homme en noir affichaient des expressions sombres sans être affectés.
+Wang Lin était stupéfait par la situation; il vit que Situ Nan et les autres étaient dans le même état. Seuls Tian Yunzi, Xu Kongzi et l'homme en noir affichaient des expressions sombres sans être affectés.
 
 Le son de sa voix forma une tempête qui chargea vers Qing Lin. Ce dernier garda une expression de marbre, leva la main droite et pointa l'avant. À cet instant, la tempête s'interrompit brusquement!
 

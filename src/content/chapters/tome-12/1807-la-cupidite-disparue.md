@@ -28,7 +28,7 @@ Wang Lin s'en aperçut alors qu'il réfléchissait à la manière d'ouvrir son e
 
 Durant ce mois, non seulement Wang Lin méditait sur son espace de stockage, mais il absorbait également l'énergie céleste ambiante pour nourrir son corps. Il étudiait aussi les divergences entre les essences présentes ici et ses propres essences.
 
-Il commença peu à peu à discerner des indices. Les essences éthérées ne posaient aucun problème; que ce soit dans le monde caverneux ou sur le Continent Astral Immortel, rien n'avait changé. Après tout, les essences éthérées étaient issues de la propre compréhension de Wang Lin.
+Il commença peu à peu à discerner des indices. Les essences éthérées ne posaient aucun problème; que ce soit dans le monde caverneux ou sur le Continent Xian Gang, rien n'avait changé. Après tout, les essences éthérées étaient issues de la propre compréhension de Wang Lin.
 
 Cependant, les essences corporelles avaient muté, à l'instar de l'essence du feu. Les essences du tonnerre, du feu et de l'eau, cette dernière ayant atteint le stade de la petite perfection, étaient dans le même cas. Quant aux essences du massacre et de la restriction, elles présentaient quelques changements, mais rien de majeur.
 
@@ -36,7 +36,7 @@ Cependant, les essences corporelles avaient muté, à l'instar de l'essence du f
 
 Il n'était pas un homme indécis. Si l'enjeu de cet espace de stockage n'avait pas été aussi crucial, il n'aurait pas tant hésité. Mais il devait trancher maintenant!
 
-« Même s'il est détruit, je dois récupérer certains objets. La plupart ne sont pas indispensables puisque j'ai la capacité d'en accumuler énormément; je pourrai obtenir de nouveaux trésors sur le Continent Astral Immortel! Et si je suis rapide, l'espace de stockage pourrait ne pas s'effondrer totalement! »
+« Même s'il est détruit, je dois récupérer certains objets. La plupart ne sont pas indispensables puisque j'ai la capacité d'en accumuler énormément; je pourrai obtenir de nouveaux trésors sur le Continent Xian Gang! Et si je suis rapide, l'espace de stockage pourrait ne pas s'effondrer totalement! »
 
 Une fois sa décision prise, Wang Lin ne doutait plus. Sa pleine culture se déploya et se concentra à l'intérieur de la grotte sans aucune fuite. À mesure que sa culture se condensait dans la cavité, l'espace environnant commença à se distordre.
 
@@ -52,7 +52,7 @@ Cette fissure était l'espace de stockage de Wang Lin!
 
 Dès que la faille se manifesta, le sort d'Arrêt concentré sur sa main gauche fut projeté en avant! Après l'avoir utilisé à de multiples reprises, ce sort avait évolué avec sa compréhension. Désormais, il ne se contentait plus d'immobiliser les êtres, il pouvait arrêter le temps, l'espace, les sorts et même les trésors!
 
-Toutefois, Wang Lin ignorait s'il parviendrait à stopper l'effondrement de cet espace qu'il avait transporté du monde caverneux vers le Continent Astral Immortel!
+Toutefois, Wang Lin ignorait s'il parviendrait à stopper l'effondrement de cet espace qu'il avait transporté du monde caverneux vers le Continent Xian Gang!
 
 À l'apparition de la fissure, une lumière spectrale en jaillit et les signes de l'effondrement devinrent visibles. Cependant, la solidification de la grotte qui ralentissait le temps, combinée au sort d'Arrêt, parvint à suspendre la destruction un court instant.
 
@@ -78,19 +78,19 @@ L'épée exsudait une intention meurtrière, tandis que le sceau doré dégageai
 
 En observant l'épée ensanglantée et le sceau doré, les yeux de Wang Lin brillèrent. Il leva la main droite et utilisa la technique de création d'un espace de stockage interne qu'il avait apprise de Kang Ren. Une fissure apparut sur son poignet droit. L'intérieur était plongé dans une obscurité totale et une force de succion en émanait. Elle aspira l'épée et le sceau, puis la fissure disparut du poignet de Wang Lin.
 
-« Ouvrir un espace de stockage par sa propre lignée sanguine... C'est une prouesse que seuls les habitants du Continent Astral Immortel maîtrisent parfaitement. » Wang Lin réfléchit, puis une lueur sanglante jaillit de sa main droite: l'épée apparut, puis disparut aussitôt. Une lumière dorée se répandit ensuite et le sceau réapparut dans sa main droite.
+« Ouvrir un espace de stockage par sa propre lignée sanguine... C'est une prouesse que seuls les habitants du Continent Xian Gang maîtrisent parfaitement. » Wang Lin réfléchit, puis une lueur sanglante jaillit de sa main droite: l'épée apparut, puis disparut aussitôt. Une lumière dorée se répandit ensuite et le sceau réapparut dans sa main droite.
 
 Il répéta l'opération plusieurs fois jusqu'à ce qu'il maîtrise parfaitement le processus. Il devait s'assurer de ne pas ouvrir accidentellement son espace de stockage en plein combat, ce qui causerait des dommages irréversibles. Ce n'est qu'alors qu'il se sentit serein.
 
-« Peu importe si j'ai perdu quelques trésors. Je peux en obtenir d'autres sur le Continent Astral Immortel! » Wang Lin regarda au-delà de la montagne, son regard semblant percer la roche pour atteindre le ciel assombri.
+« Peu importe si j'ai perdu quelques trésors. Je peux en obtenir d'autres sur le Continent Xian Gang! » Wang Lin regarda au-delà de la montagne, son regard semblant percer la roche pour atteindre le ciel assombri.
 
-« Tan Lang doit aussi se trouver sur ce continent... Tant qu'il est là, je ne manquerai pas de richesses! Il me suffira de le rencontrer pour résoudre bien des problèmes... Tan Lang, j'attends avec impatience nos retrouvailles sur le Continent Astral Immortel... » Un léger sourire étira les lèvres de Wang Lin.
+« Tan Lang doit aussi se trouver sur ce continent... Tant qu'il est là, je ne manquerai pas de richesses! Il me suffira de le rencontrer pour résoudre bien des problèmes... Tan Lang, j'attends avec impatience nos retrouvailles sur le Continent Xian Gang... » Un léger sourire étira les lèvres de Wang Lin.
 
 « Pourtant, ce Tan Lang est très étrange. Il est l'un des fragments d'âme du Souverain Céleste aux Sept Couleurs, tout comme Qing Shui et Situ, mais pourquoi n'a-t-il pas eu besoin de se réincarner comme eux pour quitter le monde caverneux?... Même avec l'aide de ce Grand Empyréen, Xuan Luo est également intervenu... Cette affaire demeure inexplicable. » Cette question tourmentait Wang Lin depuis longtemps sans qu'il ne puisse en trouver la réponse.
 
 « Peu importe, je saurai peut-être en plus lors de notre rencontre. Y réfléchir davantage est vain. Je dois d'abord régler le problème du feu terrestre et de mon essence de feu. Du Qing de la Secte Cang Long n'est pas faible; s'il vient à ma rencontre, la bataille sera féroce! »
 
-« Je viens d'arriver sur le Continent Astral Immortel et je ne souhaite pas attirer trop l'attention, mais il semble que je doive désormais me montrer un peu plus flamboyant pour asseoir ma position! » Une lueur froide traversa le regard de Wang Lin.
+« Je viens d'arriver sur le Continent Xian Gang et je ne souhaite pas attirer trop l'attention, mais il semble que je doive désormais me montrer un peu plus flamboyant pour asseoir ma position! » Une lueur froide traversa le regard de Wang Lin.
 
 Dans la capitale impériale du Continent Central des Célestes se dressait un palais luxueux. Ce palais mesurait des centaines de milliers de pieds de haut et ressemblait à une demeure céleste. La lumière dorée qui s'en dégageait était éblouissante; même de très loin, son éclat frappait les yeux.
 

@@ -72,7 +72,7 @@ Ce jour-là, Wang Lin se leva et sortit de la maison. Il disparut pour réappara
 
 À cet instant précis, l'ancêtre de la famille Ran, Xiaoyao Sanren, et Sun Xi apparurent devant lui.
 
-L'expression de l'ancêtre de la famille Ran était sombre alors qu'il regardait Wang Lin et demanda: « Partez-vous, Compagnon Cultivateur Xu? »
+L'expression de l'ancêtre de la famille Ran était sombre alors qu'il regardait Wang Lin et demanda: « Partez-vous, Daoïste Xu? »
 
 L'expression de Xiaoyao Sanren était différente; il dissimulait manifestement sa colère. Seul Sun Xi affichait un sourire amer. Lorsqu'il avait entendu Wang Lin réclamer la carte, il avait eu un mauvais pressentiment, mais il n'imaginait pas que ce Xu Mu ait réellement l'intention de partir.
 
@@ -80,11 +80,11 @@ Wang Lin les regarda froidement et dit calmement: « Je ne briserai pas ma prome
 
 S'ils ne lui avaient pas donné tous ces jades célestes, Wang Lin n'aurait même pas pris la peine de s'expliquer.
 
-Après avoir entendu l'explication de Wang Lin, l'ancêtre de la famille Ran hésita: « J'ignore quelle urgence retient le Compagnon Cultivateur Xu. Nous pourrions peut-être nous charger d'une ou deux de ces affaires à votre place. »
+Après avoir entendu l'explication de Wang Lin, l'ancêtre de la famille Ran hésita: « J'ignore quelle urgence retient le Daoïste Xu. Nous pourrions peut-être nous charger d'une ou deux de ces affaires à votre place. »
 
-Xiaoyao Sanren ajouta d'un ton sérieux: « Ne nous en veuillez pas, Compagnon Cultivateur Xu. Nous vous avons tout donné, et moins de quinze jours plus tard, vous voulez déjà quitter la planète Ran Yun. Nous ne pouvons que nourrir des soupçons. »
+Xiaoyao Sanren ajouta d'un ton sérieux: « Ne nous en veuillez pas, Daoïste Xu. Nous vous avons tout donné, et moins de quinze jours plus tard, vous voulez déjà quitter la planète Ran Yun. Nous ne pouvons que nourrir des soupçons. »
 
-« Compagnon Cultivateur Xu, je crois en votre intégrité, mais cette affaire... » Sun Xi eut un sourire amer.
+« Daoïste Xu, je crois en votre intégrité, mais cette affaire... » Sun Xi eut un sourire amer.
 
 Il était légitime qu'ils réagissent ainsi. Peu importe qui cela aurait été, après avoir cédé la majeure partie de leurs biens, ils auraient eu la même réaction.
 

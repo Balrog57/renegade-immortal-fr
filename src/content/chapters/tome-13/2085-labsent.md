@@ -8,7 +8,7 @@ slug: labsent
 ---
 Quel était donc le Royaume Divin Immémorial?
 
-C'était la question que presque tous les cultivateurs du Continent Astral Immortel se posaient. Même les Grands Empyréens ignoraient quelle était la nature de l'existence du Royaume Divin Immémorial ou d'où il provenait.
+C'était la question que presque tous les cultivateurs du Continent Xian Gang se posaient. Même les Grands Empyréens ignoraient quelle était la nature de l'existence du Royaume Divin Immémorial ou d'où il provenait.
 
 Bien que de nombreuses personnes aient pénétré dans le Royaume Divin Immémorial, nul n'avait pu déterminer la nature exacte de ce lieu.
 
@@ -62,7 +62,7 @@ En un instant, le gaz occulta le ciel couleur de sang. Puis, il se rassembla der
 
 Cette silhouette était d'une hauteur prodigieuse, semblant soutenir le monde entier. De loin, elle portait une robe noire qui dissimulait son visage, mais Wang Lin reconnut immédiatement qu'il s'agissait de la même entité que Tian Yunzi devant lui.
 
-« Wang Lin, bien que tu fusse un cultivateur du Piétinement des Cieux dans ta vie antérieure, ce vieil homme est une existence suprême ici, au sein de la Boussole des Limites. Sur l'ensemble du Continent Astral Immortel, c'est le seul endroit où je peux te dévorer et fusionner avec toi! »
+« Wang Lin, bien que tu fusse un cultivateur du Piétinement des Cieux dans ta vie antérieure, ce vieil homme est une existence suprême ici, au sein de la Boussole des Limites. Sur l'ensemble du Continent Xian Gang, c'est le seul endroit où je peux te dévorer et fusionner avec toi! »
 
 « Ici, ton rêve se distordra, et désormais, je serai toi! » Un rugissement jaillit de la figure colossale, résonnant dans toutes les directions.
 
@@ -70,7 +70,7 @@ Cette silhouette était d'une hauteur prodigieuse, semblant soutenir le monde en
 
 « Il semble que tu n'aies pas encore tout retrouvé. Peu importe. Avant que tu ne meurs, ce vieil homme te fera comprendre la vérité! » Tian Yunzi se leva et fit un pas en arrière pour s'intégrer à la figure géante. La capuche noire qui couvrait son visage bougea, révélant un visage démoniaque.
 
-« Le Continent Astral Immortel n'existe pas; ce n'est qu'une création de ton rêve. En réalité, ce n'est qu'un vide faisant partie du Royaume Ni Chen. »
+« Le Continent Xian Gang n'existe pas; ce n'est qu'une création de ton rêve. En réalité, ce n'est qu'un vide faisant partie du Royaume Ni Chen. »
 
 « Un vide, hein... » Wang Lin médita silencieusement.
 

@@ -10,7 +10,7 @@ Au moment où la troisième âme apparut, tous les regards, à l'exception de ce
 
 « Ceci est une chasse! Vous pouvez être le chasseur, ou je peux l'être... Vous pourriez me tuer pour obtenir la troisième âme, mais quiconque s'aventure ici doit être prêt à être tué par moi...
 
-« Vous portez tous le sang du Continent Astral Immortel et vous vous considérez comme des immortels... Mais dans cette chasse, soit vous mourrez, soit je vis! Je n'ai pas encore tué beaucoup de célestes du Continent Astral Immortel... J'espère que vous pourrez tous rejoindre leurs rangs. Que ce jeu cruel commence maintenant... » La voix calme de Wang Lin était glaciale alors qu'il balayait l'assemblée du regard avec un sourire froid.
+« Vous portez tous le sang du Continent Xian Gang et vous vous considérez comme des immortels... Mais dans cette chasse, soit vous mourrez, soit je vis! Je n'ai pas encore tué beaucoup de célestes du Continent Xian Gang... J'espère que vous pourrez tous rejoindre leurs rangs. Que ce jeu cruel commence maintenant... » La voix calme de Wang Lin était glaciale alors qu'il balayait l'assemblée du regard avec un sourire froid.
 
 Sa main droite se serra devant tout le monde et la troisième âme disparut à nouveau dans son corps. Wang Lin agita sa manche vers la porte!
 
@@ -68,7 +68,7 @@ Ce n'est qu'une fois tout le monde disparu que Xuan Luo émergea du vide. Il obs
 
 Le monde de la grotte était toujours enveloppé de brume, mais les grondements qui l'avaient ébranlé finirent par s'apaiser jusqu'au silence total. À Luotian, la porte du cœur du monde de la grotte restait ouverte, comme si elle attendait tous ceux qui étaient dignes d'y entrer.
 
-Cependant, le cœur de la grotte n'était accessible qu'aux êtres possédant le lignage du Continent Astral Immortel. Pour les autres, la seule option était d'emprunter une âme, à l'instar de Lanmeng Daozun!
+Cependant, le cœur de la grotte n'était accessible qu'aux êtres possédant le lignage du Continent Xian Gang. Pour les autres, la seule option était d'emprunter une âme, à l'instar de Lanmeng Daozun!
 
 Tous les cultivateurs ayant remarqué ce changement attendaient silencieusement que la première personne sorte de la porte. La situation était identique dans les Royaumes Intérieur et Extérieur. Quelques rares individus connaissant le secret de ce lieu, tels que Qing Shui et Situ, observaient la scène depuis le Royaume Céleste.
 
@@ -82,7 +82,7 @@ Derrière la porte, le monde devant Wang Lin était flou. Tout n'était que ruin
 
 Wang Lin portait la troisième âme en lui. Elle était scellée par Xie Qing, ce qui l'empêchait d'entrer dans le cycle de la réincarnation. Grâce à elle, Wang Lin comprenait le cœur de la grotte bien mieux que quiconque. Il prit une profonde inspiration et contempla le fourneau avec une pointe de passion.
 
-« Cet endroit est le cœur de la grotte... C'est aussi là que se trouve la porte vers le Continent Astral Immortel... » Les yeux de Wang Lin s'illuminèrent et il s'élança, rapide comme un rayon de lumière.
+« Cet endroit est le cœur de la grotte... C'est aussi là que se trouve la porte vers le Continent Xian Gang... » Les yeux de Wang Lin s'illuminèrent et il s'élança, rapide comme un rayon de lumière.
 
 Sous ses pieds, parmi les débris, il devinait qu'il s'était agi autrefois d'un royaume féerique rempli de chants d'oiseaux et de parfums de fleurs. Cet endroit était la véritable grotte du Souverain Céleste aux Sept Couleurs, le lieu même où il avait pratiqué sa culture en isolement. On pourrait dire que c'était le centre névralgique de tout le monde de la grotte!
 

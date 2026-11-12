@@ -48,9 +48,9 @@ Percer les septième et huitième étages d'un seul coup, bien que cela fût dé
 
 Les théories abondaient, mais aucune ne correspondait à la vérité.
 
-Les rares personnes au courant de la vérité ne la révéleraient pas facilement. Que ce soient les sœurs Fan Shanmeng ou Fan Shanlu, ou l'Ancien Taureau Vert, aucun n'en parlerait. Même Yan Luan resterait silencieuse, après que Wang Lin eut fissuré son cœur de Dao pour lui faire craindre sa puissance.
+Les rares personnes au courant de la vérité ne la révéleraient pas facilement. Que ce soient les sœurs Fan Shanmeng ou Fan Shanlu, ou l'Ancien Qing Niu, aucun n'en parlerait. Même Yan Luan resterait silencieuse, après que Wang Lin eut fissuré son cœur de Dao pour lui faire craindre sa puissance.
 
-Quant à son identité de cultivateur du Pays Antique, cette information avait été scellée par l'Ancien Taureau Vert, qui avait imposé un ordre de silence.
+Quant à son identité de cultivateur du Pays Antique, cette information avait été scellée par l'Ancien Qing Niu, qui avait imposé un ordre de silence.
 
 Ces trois jours ne suffirent pas à apaiser les rumeurs sur Wang Lin. Au lever du soleil le quatrième jour, Wang Lin ouvrit les yeux au huitième étage du Pavillon Cang Hun.
 
@@ -66,23 +66,23 @@ Pas à pas, il descendit du huitième étage directement au cinquième, puis au 
 
 Il s'envola depuis la faille située à l'extérieur du pavillon et, au moment où il émergea, la déchirure au-dessus du Pic Céleste Vert se referma.
 
-L'Ancien Taureau Vert, resté à l'intérieur du Pic Céleste Vert, regarda Wang Lin partir et poussa un soupir de soulagement. Si Wang Lin était entré au neuvième étage trois cents ans plus tôt, il n'aurait vraiment pas su comment réagir.
+L'Ancien Qing Niu, resté à l'intérieur du Pic Céleste Vert, regarda Wang Lin partir et poussa un soupir de soulagement. Si Wang Lin était entré au neuvième étage trois cents ans plus tôt, il n'aurait vraiment pas su comment réagir.
 
 « Le premier ancêtre avait diviné que Wang Lin entrerait au neuvième étage après trois cents ans de présence ici. Ensuite, le neuvième jour suivant son entrée dans ce neuvième étage, les trois grandes sectes du Continent Lu Mo uniraient leurs forces pour anéantir ma Secte Da Hun et la Secte Gui Yi... »
 
-« Leur but est d'obtenir l'Âme du Taureau Céleste supprimée sous le Continent Tian Niu... » L'estimable Taureau Vert semblait inquiet. Bien qu'il fût au courant de tout à l'avance et qu'il eût fait ses préparatifs, l'incertitude apportée par Wang Lin le rendait mal à l'aise.
+« Leur but est d'obtenir l'Âme du Tian Niu supprimée sous le Continent Tian Niu... » L'estimable Qing Niu semblait inquiet. Bien qu'il fût au courant de tout à l'avance et qu'il eût fait ses préparatifs, l'incertitude apportée par Wang Lin le rendait mal à l'aise.
 
 « Le premier ancêtre créa la Secte Da Hun, et son passé était extrêmement mystérieux. Même les générations d'ancêtres suivantes ignoraient qui il était. Une rumeur disait que le Dao de l'Œil de l'Âme possédait originellement deux parties, et que l'autre s'appelait l'Œil du Dao de l'Âme! »
 
-« On raconte que le premier ancêtre était un disciple de la lignée d'une secte extrêmement puissante et cachée sur le Continent Astral Immortel, mais qu'à son époque, ils étaient deux... »
+« On raconte que le premier ancêtre était un disciple de la lignée d'une secte extrêmement puissante et cachée sur le Continent Xian Gang, mais qu'à son époque, ils étaient deux... »
 
 « Ils héritèrent du Dao de l'Œil de l'Âme et de l'Œil du Dao de l'Âme... Puis, pour une raison inconnue, l'ancêtre renonça au droit de succéder à la lignée. Il partit seul vers le Continent Tian Niu qui venait d'être créé par l'Ancêtre Céleste, puis il fonda la Secte Da Hun ici... »
 
-« Il y avait aussi des rumeurs... » L'estimable Taureau Vert pensa à la dernière rumeur et ne put s'empêcher de trembler. Il regarda vers le lointain, en direction du Continent Central.
+« Il y avait aussi des rumeurs... » L'estimable Qing Niu pensa à la dernière rumeur et ne put s'empêcher de trembler. Il regarda vers le lointain, en direction du Continent Central.
 
 Cette ultime rumeur était un secret que tous les disciples de la Secte Da Hun partageaient. Cette information était si terrifiante qu'on préférait la traiter de simple rumeur!
 
-« La rumeur prétend qu'en la cité impériale, l'art du Dao de la lignée Shang Xuandao de l'Instructeur Impérial s'appelle l'Œil du Dao de l'Âme... » L'estimable Taureau Vert médita en silence, troublé. Après un long moment, il soupira et se mit à cultiver.
+« La rumeur prétend qu'en la cité impériale, l'art du Dao de la lignée Shang Xuandao de l'Instructeur Impérial s'appelle l'Œil du Dao de l'Âme... » L'estimable Qing Niu médita en silence, troublé. Après un long moment, il soupira et se mit à cultiver.
 
 Wang Lin survola la Secte Da Hun. Le secteur était si vaste qu'il était impossible d'en percevoir les limites d'un seul coup d'œil; on ne voyait que des montagnes perçant les cieux les unes après les autres.
 
@@ -98,7 +98,7 @@ Alors qu'il approchait, le regard de Wang Lin balaya Fan Shanmeng sans que son e
 
 Fan Shanmeng baissa la tête et acquiesça. Serrant les dents, elle marcha prudemment vers la montagne brûlante. La vague de chaleur la faisait transpirer abondamment, et il lui fallut un long moment avant de pouvoir supporter la marche. Elle jeta un regard frustré là où Wang Lin s'était rendu, avant de se calmer. Elle commença à nettoyer les grottes selon les ordres de Wang Lin.
 
-Wang Lin retourna dans la grotte au sommet et s'assit. D'un revers de main, il fit apparaître trois boîtes devant lui. C'étaient les trois cadeaux que l'Ancien Taureau Vert lui avait remis.
+Wang Lin retourna dans la grotte au sommet et s'assit. D'un revers de main, il fit apparaître trois boîtes devant lui. C'étaient les trois cadeaux que l'Ancien Qing Niu lui avait remis.
 
 « Cette Secte Da Hun a été bon envers moi; je peux envisager d'y rester quelque temps avant de chercher mon Maître... »
 

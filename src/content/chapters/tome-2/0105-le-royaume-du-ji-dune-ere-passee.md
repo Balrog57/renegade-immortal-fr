@@ -95,7 +95,7 @@ Cette scène interrompit tous les combats. Les spectateurs fixaient avec stupeur
 
 La surprise fut générale. Avant que quiconque ne puisse réagir, Wang Lin était déjà devant eux. Quatre personnes se dressaient sur son chemin. Avant qu'elles ne puissent dire un mot, une lumière bleue les frappa et elles se figèrent, suivant le sort de l'homme au talisman.
 
-À cet instant, la foule s'écarta tandis qu'un disciple en robe blanche joignit les mains: « De quelle secte venez-vous, cher compagnon de culture? Je suis Zhou Quan, disciple de la Secte Yuan Tian. »
+À cet instant, la foule s'écarta tandis qu'un disciple en robe blanche joignit les mains: « De quelle secte venez-vous, cher Daoïste? Je suis Zhou Quan, disciple de la Secte Yuan Tian. »
 
 Wang Lin l'ignora et poursuivit sa route. Peu à peu, les gens s'écartèrent sur son passage. Alors qu'il s'éloignait de plus de trois cents mètres de la foule, un jeune disciple d'une secte démoniaque le fixa et ricana intérieurement: « Tu as tué mon Senior frère. Je ne t'oublierai pas! »
 

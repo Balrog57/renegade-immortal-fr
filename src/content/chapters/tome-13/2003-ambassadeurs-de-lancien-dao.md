@@ -31,7 +31,7 @@ S'il y avait un conflit d'autorité entre l'empereur Ancien et le Grand Empyrée
 
 Cela différait grandement du clan Céleste. Dans ce dernier, Jiu Di avait osé comploter contre l'Empereur Céleste, allant jusqu'à l'assassiner!
 
-Mais dans le clan Ancien, bien que les Grands Empyréens fussent puissants, ils ne blesseraient jamais un empereur Ancien. Cela en raison d'une loi établie par le plus puissant des Grands Empyréens sur le Continent Astral Immortel!
+Mais dans le clan Ancien, bien que les Grands Empyréens fussent puissants, ils ne blesseraient jamais un empereur Ancien. Cela en raison d'une loi établie par le plus puissant des Grands Empyréens sur le Continent Xian Gang!
 
 Il protègerait les trois nations du clan Ancien, ainsi que toute existence capable de devenir l'unique empereur Ancien.
 

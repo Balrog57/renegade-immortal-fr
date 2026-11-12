@@ -36,33 +36,33 @@ Toutes ces fortunes pouvaient sembler insignifiantes prise individuellement, mai
 
 Alors que le trou noir approchait, les 98 Wang Lin apparurent. Ces 98 clones n'utilisèrent pas 98 sorts différents; ils utilisèrent tous le même!
 
-Il exécuta 98 fois de suite la Charge du Taureau Céleste, un sort issu d'un fragment de la mémoire du Taureau Céleste obtenu après avoir revêtu l'armure d'âme du Taureau Céleste et porté sa culture à son sommet grâce à la force de l'âme empruntée!
+Il exécuta 98 fois de suite la Charge du Tian Niu, un sort issu d'un fragment de la mémoire du Tian Niu obtenu après avoir revêtu l'armure d'âme du Tian Niu et porté sa culture à son sommet grâce à la force de l'âme empruntée!
 
-Cette Charge du Taureau Céleste pouvait parfaitement manifester la puissance empruntée.
+Cette Charge du Tian Niu pouvait parfaitement manifester la puissance empruntée.
 
 Les 98 corps levèrent tous les mains, formant des cornes sur leurs têtes. Dans un rugissement continu qui résonna, ils chargèrent en avant!
 
 La terre trembla et le ciel se mua en vide. La lumière du soleil de l'après-midi s'effondra et se dissipa, et les seules choses subsistant au monde étaient l'ancêtre de la Secte Dao Mo, son trou noir et les 98 Wang Lin!
 
-Les 98 clones se dissipèrent jusqu'à ce qu'un seul corps ne subsiste. Celui-ci laissa échapper un rugissement fracassant après avoir déclenché 98 Charges du Taureau Céleste consécutives!
+Les 98 clones se dissipèrent jusqu'à ce qu'un seul corps ne subsiste. Celui-ci laissa échapper un rugissement fracassant après avoir déclenché 98 Charges du Tian Niu consécutives!
 
-Alors que le cri résonnait, l'ombre d'un taureau céleste gigantesque apparut. Cette ombre était si réelle qu'on aurait dit que le corps véritable du Taureau Céleste s'était matérialisé. Une fois apparue, elle poussa un rugissement de Taureau Céleste!
+Alors que le cri résonnait, l'ombre d'un taureau céleste gigantesque apparut. Cette ombre était si réelle qu'on aurait dit que le corps véritable du Tian Niu s'était matérialisé. Une fois apparue, elle poussa un rugissement de Tian Niu!
 
 Cette ombre était entièrement verdâtre et dégageait une aura antique. Elle portait en elle une volonté indomptable et leva la tête. Ses deux grandes cornes noires chargèrent en avant dans un ultime rugissement.
 
-Charge du Taureau Céleste!
+Charge du Tian Niu!
 
-De loin, l'ombre gigantesque du Taureau Céleste enveloppa Wang Lin et percuta le trou noir de ses deux cornes noires.
+De loin, l'ombre gigantesque du Tian Niu enveloppa Wang Lin et percuta le trou noir de ses deux cornes noires.
 
-Si cette scène était une peinture, elle deviendrait un trésor inestimable à travers tout le Continent Astral Immortel.
+Si cette scène était une peinture, elle deviendrait un trésor inestimable à travers tout le Continent Xian Gang.
 
 *Boum, boum, boum, boum!!*
 
 Les 27 sorts à l'intérieur du trou noir furent pulvérisés. Le trou noir lui-même trembla et se désintégra sous l'impact!
 
-L'effondrement du trou noir fit marquer une pause à la tête géante du Taureau Céleste, mais cela ne put l'arrêter. Le Taureau Céleste chargea droit sur l'ancêtre de la Secte Dao Mo.
+L'effondrement du trou noir fit marquer une pause à la tête géante du Tian Niu, mais cela ne put l'arrêter. Le Tian Niu chargea droit sur l'ancêtre de la Secte Dao Mo.
 
-Tout se passa à une vitesse fulgurante. À l'instant même où le trou noir s'effondra, la corne du Taureau Céleste atteignit l'ancêtre de la Secte Dao Mo.
+Tout se passa à une vitesse fulgurante. À l'instant même où le trou noir s'effondra, la corne du Tian Niu atteignit l'ancêtre de la Secte Dao Mo.
 
 L'expression du vieil homme aux cheveux roux changea brusquement. Ses yeux trahirent une rare trace de choc et il recula précipitamment.
 
@@ -72,25 +72,25 @@ L'expression du vieil homme aux cheveux roux changea brusquement. Ses yeux trahi
 
 « C'est presque comparable à un cultivateur Ascendant Empyréen! Il n'a pas fusionné son Dao avec son corps et ces 98 sorts ne forment pas un tout cohérent; ils ont été fusionnés par la force et ne sont pas parfaits, mais malgré cela, je parviens à peine à résister! »
 
-Chaque coup était le résultat d'une fusion de 27 sorts qui percutaient de plein fouet le Taureau Céleste. Cela provoqua l'effondrement des 98 sorts au sein du Taureau un par un.
+Chaque coup était le résultat d'une fusion de 27 sorts qui percutaient de plein fouet le Tian Niu. Cela provoqua l'effondrement des 98 sorts au sein du Taureau un par un.
 
 La collision avec le vortex noir précédent avait déjà fait s'effondrer près de 40 sorts dans le corps du Taureau. Maintenant, sous les attaques du vieil homme aux cheveux roux, plus de 40 autres sorts se désintégrèrent.
 
-Cependant, plus de 10 sorts ne s'étaient pas dissipés et percutèrent violemment l'homme aux cheveux roux. Il cracha du sang et fut repoussé, mais au même instant, Wang Lin créa à nouveau 98 images rémanentes. Dans un rugissement, la seconde Charge du Taureau Céleste surgit!
+Cependant, plus de 10 sorts ne s'étaient pas dissipés et percutèrent violemment l'homme aux cheveux roux. Il cracha du sang et fut repoussé, mais au même instant, Wang Lin créa à nouveau 98 images rémanentes. Dans un rugissement, la seconde Charge du Tian Niu surgit!
 
-Un autre immense Taureau Céleste apparut dans le ciel et chargea en avant.
+Un autre immense Tian Niu apparut dans le ciel et chargea en avant.
 
 « Quelle force et quelle vitesse prodigieuses... Je n'ai même pas pu contenir la première vague que la seconde est déjà là! Son corps doit être d'une robustesse extrême pour supporter un tel déploiement continu de sorts!! »
 
-Le vieil homme aux cheveux roux battit en retraite. Alors que l'ombre du second Taureau Céleste fondait sur lui, une aura de Grand Empyréen jaillit de la robe taoïste violette qu'il portait.
+Le vieil homme aux cheveux roux battit en retraite. Alors que l'ombre du second Tian Niu fondait sur lui, une aura de Grand Empyréen jaillit de la robe taoïste violette qu'il portait.
 
 Cette robe était un présent du Grand Empyréen Dao Yi. En des moments cruciaux, elle pouvait sauver une vie!
 
 Dès que l'aura du Grand Empyréen se manifesta, une ombre vague apparut devant l'ancêtre de la Secte Dao Mo. Cette silhouette était formée par un fragment du Sens Divin du Grand Empyréen Dao Yi.
 
-Cette figure surgit soudainement et bloqua la Charge du Taureau Céleste. Puis, elle pivota brusquement pour asséner un coup de poing à l'attaque!
+Cette figure surgit soudainement et bloqua la Charge du Tian Niu. Puis, elle pivota brusquement pour asséner un coup de poing à l'attaque!
 
-Ce coup semblait d'une banalité extrême, comme s'il était porté par un mortel. Le monde entier sembla s'apaiser, comme si rien ne se passait, et pourtant, le Taureau Céleste s'effondra instantanément. Les 98 sorts en son sein furent tous anéantis.
+Ce coup semblait d'une banalité extrême, comme s'il était porté par un mortel. Le monde entier sembla s'apaiser, comme si rien ne se passait, et pourtant, le Tian Niu s'effondra instantanément. Les 98 sorts en son sein furent tous anéantis.
 
 Lorsque l'ombre du Taureau disparut, Wang Lin fut projeté en arrière sur mille pieds. Son visage était pâle, mais ses yeux brillaient d'une détermination farouche.
 

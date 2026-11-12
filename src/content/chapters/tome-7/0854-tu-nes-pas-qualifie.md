@@ -8,17 +8,17 @@ slug: tu-nes-pas-qualifie
 ---
 À l'instant même où le démon apparut, le corps de Xue Shenzi se figea.
 
-Wang Lin saisit cette opportunité et se retira promptement. Ses mains formèrent rapidement des sceaux, faisant déplacer le fourneau de l'ancien dieu sur mille pieds pour esquiver la foudre de la rétribution divine!
+Wang Lin saisit cette opportunité et se retira promptement. Ses mains formèrent rapidement des sceaux, faisant déplacer le fourneau de l'ancien dieu sur mille pieds pour esquiver la foudre de la Tribulation Céleste!
 
-Ces éclairs de rétribution divine perdirent leur cible mais ne se dissipèrent pas. C'était comme s'ils possédaient une intelligence propre et avaient soudainement changé de direction. La distance de mille pieds ne fut franchie par la foudre qu'en un instant.
+Ces éclairs de Tribulation Céleste perdirent leur cible mais ne se dissipèrent pas. C'était comme s'ils possédaient une intelligence propre et avaient soudainement changé de direction. La distance de mille pieds ne fut franchie par la foudre qu'en un instant.
 
 Bien que cela fût extrêmement rapide pour Wang Lin, il eut tout de même le temps d'utiliser un sort!
 
-« Invoque le Vent! » En pleine crise, le regard de Wang Lin demeurait calme. Cette fois-ci, il ne pouvait compter que sur la rétribution divine, bien que ses chances de survivre fussent infimes!
+« Invoque le Vent! » En pleine crise, le regard de Wang Lin demeurait calme. Cette fois-ci, il ne pouvait compter que sur la Tribulation Céleste, bien que ses chances de survivre fussent infimes!
 
-« Que la rétribution divine devienne encore plus violente! » Wang Lin serra les dents et un vent noir jaillit de sa main droite. Ce vent était si dense qu'il s'enroula autour de lui. Alors que la foudre approchait, le vent noir se mua en un dragon noir qui cracha une rafale de vent glacial.
+« Que la Tribulation Céleste devienne encore plus violente! » Wang Lin serra les dents et un vent noir jaillit de sa main droite. Ce vent était si dense qu'il s'enroula autour de lui. Alors que la foudre approchait, le vent noir se mua en un dragon noir qui cracha une rafale de vent glacial.
 
-Ce vent était capable d'éteindre la flamme de toute vie. Sous l'impact, plusieurs éclairs de la rétribution divine s'effondrèrent. Cependant, certains réussirent à passer et chargèrent vers Wang Lin.
+Ce vent était capable d'éteindre la flamme de toute vie. Sous l'impact, plusieurs éclairs de la Tribulation Céleste s'effondrèrent. Cependant, certains réussirent à passer et chargèrent vers Wang Lin.
 
 Une lueur d'intelligence brilla dans les yeux de Wang Lin; son âme originelle s'élança pour dévorer la foudre. Après avoir englouti trois éclairs, il fut contraint de se retirer.
 
@@ -34,9 +34,9 @@ Boum, boum, boum!
 
 « Sceau de Foudre! » Un rugissement étouffé retentit de l'intérieur du Sceau Céleste. Simultanément, le sceau trembla violemment et la foudre traversa l'artefact comme si elle s'était transformée en une mer d'éclairs. Le corps de Wang Lin fut expulsé avec force, le faisant cracher du sang. Sa main droite tendit et il saisit le Sceau Céleste pour se retirer rapidement.
 
-La foudre à l'intérieur du Sceau Céleste atteignait son apogée. Pourtant, Wang Lin se retira directement vers le nuage de la rétribution divine. Il agita la main et les sceaux dorés brillèrent intensément.
+La foudre à l'intérieur du Sceau Céleste atteignait son apogée. Pourtant, Wang Lin se retira directement vers le nuage de la Tribulation Céleste. Il agita la main et les sceaux dorés brillèrent intensément.
 
-Wang Lin savait qu'il ne pourrait échapper à Xue Shenzi. Bien qu'il ait été blessé par la frappe brise-étoiles de l'ancien dieu, Xue Shenzi n'était pas un adversaire qu'il pouvait affronter. Cependant, en empruntant la puissance de la rétribution divine, il avait peut-être une chance de s'en sortir!
+Wang Lin savait qu'il ne pourrait échapper à Xue Shenzi. Bien qu'il ait été blessé par la frappe brise-étoiles de l'ancien dieu, Xue Shenzi n'était pas un adversaire qu'il pouvait affronter. Cependant, en empruntant la puissance de la Tribulation Céleste, il avait peut-être une chance de s'en sortir!
 
 Le démon qui émergea de Xue Shenzi fixa froidement Wang Lin. Il se rétracta dans le corps de Xue Shenzi, lequel dégagea une lueur démoniaque. D'un seul pas, il avança et tendit la main vers la tête de Wang Lin!
 
@@ -48,7 +48,7 @@ Ce sort le plus puissant, Invoque le Vent, fut utilisé une fois de plus. Le ven
 
 Avant d'atteindre le stade du Scruteur du Nirvana, Wang Lin ne pouvait créer qu'un seul dragon noir. Avec l'augmentation de son niveau de culture, il pouvait désormais en invoquer deux de toute sa puissance. Les deux dragons s'enroulèrent autour de lui avant d'ouvrir la gueule pour projeter des rafales de vent glacial!
 
-Des craquements retentirent dans les environs. Cette bourrasque était si puissante que l'espace environnant commença à se fissurer. Au même moment, la main de Wang Lin forma un sceau et le Sceau Céleste brilla intensément. Un éclair de rétribution divine se forma rapidement et fonça vers Xue Shenzi.
+Des craquements retentirent dans les environs. Cette bourrasque était si puissante que l'espace environnant commença à se fissurer. Au même moment, la main de Wang Lin forma un sceau et le Sceau Céleste brilla intensément. Un éclair de Tribulation Céleste se forma rapidement et fonça vers Xue Shenzi.
 
 Wang Lin frappa son sac de stockage et l'épée céleste apparut dans sa main. À ce stade, il ne se souciait plus de l'énergie originelle et enchaîna les Coups Célestes. Il perdait le compte de ses attaques tant elles s'enchaînaient avec rapidité.
 
@@ -66,7 +66,7 @@ C’est alors que...
 
 Dès que cette voix retentit, un rugissement tonnerre l'accompagna et une vaste étendue d'espace s'effondra. C'était comme si l'espace lui-même ne pouvait supporter la puissance de ce cri.
 
-Non seulement l'espace, mais même le nuage de rétribution divine recula précipitamment!
+Non seulement l'espace, mais même le nuage de Tribulation Céleste recula précipitamment!
 
 Les paroles contenant des lois utilisées par Xue Shenzi étaient manifestement plus faibles que cette voix. La zone de loi qu'il avait créée s'effondra instantanément!
 
@@ -96,7 +96,7 @@ L'expression de Qing Shui demeurait indifférente alors qu'il marchait vers Xue 
 
 L'œil droit de Qing Shui brilla lorsqu'il leva la main droite pour pointer vers le haut. Un vent noir, plusieurs fois plus puissant que celui de Wang Lin, apparut immédiatement. Ce vent était d'une densité dépassant l'imagination et ses rugissements résonnaient parmi les étoiles. En un clin d'œil, six dragons noirs se formèrent à partir de ce vent.
 
-Ces six dragons noirs mesuraient chacun plus de 33 kilomètres de long et semblaient occuper le monde entier. Ils générèrent une pression colossale qui repoussa les nuages de rétribution divine. Cependant, d'autres nuages se rassemblèrent comme s'ils se concentraient pour l'attaque la plus puissante qui soit!
+Ces six dragons noirs mesuraient chacun plus de 33 kilomètres de long et semblaient occuper le monde entier. Ils générèrent une pression colossale qui repoussa les nuages de Tribulation Céleste. Cependant, d'autres nuages se rassemblèrent comme s'ils se concentraient pour l'attaque la plus puissante qui soit!
 
 Un seul regard suffisait à terrifier n'importe qui!
 

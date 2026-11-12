@@ -62,7 +62,7 @@ Ces tatouages étaient d'un rouge sang profond, certains encore reliés à des l
 
 Une silhouette vague émergea lentement des profondeurs du vortex, portée par le rugissement et les tatouages. À mesure que la forme s'élevait, une aura monstrueuse et maléfique se manifesta!
 
-Cette aura était si puissante que le corps de Ling Tianhou en trembla. Cette silhouette floue lui fit frissonner le cuir chevelu! Même Tian Yunzi ne l'avait jamais fait ressentir ainsi; même le Maître du Vide n'en était pas capable!
+Cette aura était si puissante que le corps de Ling Tianhou en trembla. Cette silhouette floue lui fit frissonner le cuir chevelu! Même Tian Yunzi ne l'avait jamais fait ressentir ainsi; même Xu Kongzi n'en était pas capable!
 
 Ce n'était pas une question de niveau de culture, mais un tremblement de l'âme, comme s'il faisait face à son ennemi naturel!
 
@@ -74,11 +74,11 @@ Même Tian Yunzi laissa paraître un signe de choc en apercevant la silhouette!
 
 « C'est... Pourrait-il s'agir... d'elle!!! »
 
-Les pupilles du Maître du Vide se rétractèrent lorsqu'il vit la femme dans le vortex. Il déchaîna toute sa culture sans hésiter, luttant pour tirer la belle femme d'âge moyen et la jeune fille en rose vers le haut.
+Les pupilles de Xu Kongzi se rétractèrent lorsqu'il vit la femme dans le vortex. Il déchaîna toute sa culture sans hésiter, luttant pour tirer la belle femme d'âge moyen et la jeune fille en rose vers le haut.
 
 « C'est elle!!! Ça doit être elle! Elle a donc été scellée ici par l'Empereur Céleste Qing Lin!! Maudit soit-il, la rumeur disait qu'elle était morte, mais l'Empereur Céleste Qing Lin ne l'a pas tuée! »
 
-Le calme du Maître du Vide s'était totalement évaporé. Après avoir identifié cette silhouette vague, il eut l'impression que son âme se dispersait. L'Alliance possédait de nombreuses informations sur le Royaume Céleste et, en tant qu'Ancien de l'Alliance, il détenait des secrets que nul autre ne connaissait.
+Le calme de Xu Kongzi s'était totalement évaporé. Après avoir identifié cette silhouette vague, il eut l'impression que son âme se dispersait. L'Alliance possédait de nombreuses informations sur le Royaume Céleste et, en tant qu'Ancien de l'Alliance, il détenait des secrets que nul autre ne connaissait.
 
 Au moment où la silhouette apparut, l'Ancien Sun luttait contre la force d'aspiration. Mais face à cette aura maléfique, même avec son niveau de culture, il fut impuissant. Son énergie originelle se figea et il fut aspiré par le vortex.
 

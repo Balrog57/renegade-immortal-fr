@@ -34,7 +34,7 @@ En cet instant, les yeux du vieil homme étaient clos; il cultivait paisiblement
 
 « Il ne me faut que trois cents ans de plus pour me rétablir complètement... Ensuite, je pourrai partir d'ici et rentrer... chez moi... » Le vieil homme ouvrit les yeux. Son regard semblait capable de percer le vide pour contempler l'immensité du système stellaire.
 
-Il n'était pas un cultivateur du monde des grottes, mais venait du Continent Astral Immortel, de la Secte Qi Dao... En réalité, il n'était qu'un disciple du Souverain Céleste aux Sept Couleurs.
+Il n'était pas un cultivateur du monde des grottes, mais venait du Continent Xian Gang, de la Secte Qi Dao... En réalité, il n'était qu'un disciple du Souverain Céleste aux Sept Couleurs.
 
 En murmurant, il ressentit une certaine réticence à quitter le monde des grottes, tant il y avait séjourné. Après un instant de réflexion, il laissa échapper un soupir et referma les yeux. Alors qu'il reprenait sa culture, un puissant sens divin balaya les lieux.
 
@@ -66,17 +66,17 @@ Après le départ de Wang Lin, le monde des grottes retrouva son calme. Il se re
 
 Cette puissance pourrait protéger cet endroit pendant des générations, afin que des incidents tels que celui du Maître Chi Hunzi ne se reproduisent plus jamais.
 
-Sur le Continent Astral Immortel, dans les terres du clan céleste, dans le Continent de l'Est, dans le Continent Tian Niu, une montagne était entourée de brume. Ce jour-là, une force puissante jaillit, et une lumière cristalline infinie se répandit dans toutes les directions.
+Sur le Continent Xian Gang, dans les terres du clan céleste, dans le Continent de l'Est, dans le Continent Tian Niu, une montagne était entourée de brume. Ce jour-là, une force puissante jaillit, et une lumière cristalline infinie se répandit dans toutes les directions.
 
 Une fois la lumière dissipée, Wang Lin sortit lentement de la porte du monde des grottes, vêtu d'une robe blanche et arborant des cheveux blancs.
 
-Les trois cents dernières années s'étaient écoulées en un clin d'œil. Wang Lin contempla le monde du Continent Astral Immortel et avança silencieusement.
+Les trois cents dernières années s'étaient écoulées en un clin d'œil. Wang Lin contempla le monde du Continent Xian Gang et avança silencieusement.
 
 « Secte Qi Dao... » murmura-t-il. Avant de partir, il agita sa manche et une bourrasque de vent balaya la Secte Qi Dao. Les ruines se dissipèrent pour laisser place à une puissante secte.
 
 « Cet endroit deviendra le foyer de tous ceux qui sortiront du monde des grottes... » murmura Wang Lin en tendant la main vers les cieux. Instantanément, près de vingt amas de lumière apparurent et se dispersèrent aux quatre vents.
 
-Ces amas de lumière se manifestèrent en de nombreux points du Continent Astral Immortel.
+Ces amas de lumière se manifestèrent en de nombreux points du Continent Xian Gang.
 
 Qing Shui marchait dans le désert lorsqu'il sembla remarquer quelque chose et leva les yeux. Un éclat de lumière entra dans son corps. Son être trembla et, un instant plus tard, il ouvrit les yeux avec un sourire.
 
@@ -104,7 +104,7 @@ Avant même de s'en approcher, il entendait les grondements tonitruants qui agit
 
 Tandis que les trépidations de tonnerre résonnaient à travers le monde, la tempête tournoyait rapidement, générant d'immenses ondulations. Elles ressemblaient à des vagues flottant dans l'air, se percutant sans cesse et semblant s'élancer vers le ciel. Au cœur de la tempête se dressaient neuf piliers gigantesques émettant neuf couleurs de lumière différentes. Cette clarté emplissait toute la tempête et s'y reflétait, créant l'illusion d'un rêve aux neuf couleurs.
 
-Ce rêve portait en lui un mystère qui forçait quiconque à s'y immerger, rendant tout détachement impossible. En raison des rumeurs circulant sur le Royaume Divin Immémorial sur le Continent Astral Immortel, les lieux étaient bondés. Les gens étaient animés par le désir, celui de devenir plus forts.
+Ce rêve portait en lui un mystère qui forçait quiconque à s'y immerger, rendant tout détachement impossible. En raison des rumeurs circulant sur le Royaume Divin Immémorial sur le Continent Xian Gang, les lieux étaient bondés. Les gens étaient animés par le désir, celui de devenir plus forts.
 
 Wang Lin se tint sur le flanc de la tempête et n'hésita pas à la traverser. Il apparut du côté du clan Ancien et s'assit calmement pour attendre l'ouverture du Royaume Divin Immémorial dans quelques mois.
 

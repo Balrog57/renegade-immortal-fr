@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1797 - Strange White Light
 slug: etrange-lumiere-blanche
 ---
-Continent Astral Immortel, Continent de l'Est, la Montagne de la Secte Qi Dao sur le Continent Tian Niu. Xuan Luo était assis devant le pavillon, au sommet d'une montagne noire enveloppée de brume, et cela faisait plusieurs années qu'il attendait.
+Continent Xian Gang, Continent de l'Est, la Montagne de la Secte Qi Dao sur le Continent Tian Niu. Xuan Luo était assis devant le pavillon, au sommet d'une montagne noire enveloppée de brume, et cela faisait plusieurs années qu'il attendait.
 
 Six mois s'étaient écoulés depuis l'échéance des dix ans de l'accord conclu avec Wang Lin, mais Xuan Luo n'était pas parti, bien que la marque rouge entre ses sourcils ait totalement disparu.
 
@@ -14,7 +14,7 @@ La disparition de la lumière rouge signifiait que Wang Lin avait perdu son guid
 
 « A-t-il échoué… » Les yeux de Xuan Luo trahissaient une profonde tristesse, et il ferma les paupières dans un soupir. Il allait attendre encore un peu. Peut-être qu'un miracle se produirait, même si les chances d'un tel miracle étaient infimes.
 
-Dans le vide séparant le monde des grottes du Continent Astral Immortel, Wang Lin portait le cercueil, avançant les cheveux ébouriffés. Il progressait pas à pas. Il n'avait plus de pensées, plus aucune force; la seule chose qui le poussait en avant était sa volonté.
+Dans le vide séparant le monde des grottes du Continent Xian Gang, Wang Lin portait le cercueil, avançant les cheveux ébouriffés. Il progressait pas à pas. Il n'avait plus de pensées, plus aucune force; la seule chose qui le poussait en avant était sa volonté.
 
 Grâce à cette volonté, il utilisait son propre corps pour protéger sa femme et ne renoncerait jamais!
 
@@ -44,7 +44,7 @@ Cette puissance était extrêmement mystérieuse. Elle pouvait aider ses essence
 
 Au cours de ces dix années, Wang Lin n'avait rencontré que deux corps de ce genre.
 
-L'esprit de Wang Lin trembla et ses yeux brillèrent. Il activa sa culture pour résister à la pression des lois du Continent Astral Immortel. Puis, il toucha le cercueil derrière lui pour ressentir la présence de Li Muwan. Wang Lin reprit silencieusement sa marche.
+L'esprit de Wang Lin trembla et ses yeux brillèrent. Il activa sa culture pour résister à la pression des lois du Continent Xian Gang. Puis, il toucha le cercueil derrière lui pour ressentir la présence de Li Muwan. Wang Lin reprit silencieusement sa marche.
 
 Sa vitesse n'était pas rapide, mais il ne s'arrêtait jamais. Il avançait sans changer de direction.
 
@@ -66,7 +66,7 @@ Mais la cruauté de la réalité finit par effacer les derniers vestiges de la c
 
 Il n'y avait plus aucune aura dans son corps, mais même inconscient, il continuait de protéger le cercueil derrière lui. Bien que l'objet fût couvert de fissures, il se serait déjà désintégré sans sa protection.
 
-Un homme et un cercueil flottaient lentement dans le vide. Au moment où Wang Lin sombra dans l'inconscience, la pression des lois du Continent Astral Immortel disparut.
+Un homme et un cercueil flottaient lentement dans le vide. Au moment où Wang Lin sombra dans l'inconscience, la pression des lois du Continent Xian Gang disparut.
 
 Wang Lin ignorait ce changement étrange. Il était comme un mort, et même le sortilège des Trois Vies n'avait plus d'effet sur lui. Tel un cadavre, il flottait désormais dans une autre direction, portant toujours son cercueil.
 
@@ -74,7 +74,7 @@ Il ressemblait à tous ces corps qu'il avait vus dériver éternellement dans ce
 
 Un an, deux ans, trois ans… Une durée indéterminée passa. Les yeux de Wang Lin restaient clos, comme s'il était mort.
 
-Sur le Continent Astral Immortel, au sein de la Secte Qi Dao, Xuan Luo poussa un soupir et se leva. En comptant le temps déjà écoulé, il attendait depuis quinze ans.
+Sur le Continent Xian Gang, au sein de la Secte Qi Dao, Xuan Luo poussa un soupir et se leva. En comptant le temps déjà écoulé, il attendait depuis quinze ans.
 
 Ce n'était pas qu'il ne voulait plus attendre, mais une puissante vague d'énergie céleste, l'empêchant de rester, provenait du lointain. L'énergie n'était pas encore arrivée, mais un grondement de tonnerre résonna déjà dans le ciel. Un soleil doré apparut à l'horizon, et une silhouette s'y tenait debout.
 
@@ -86,7 +86,7 @@ Xuan Luo comprit qu'il devait partir.
 
 Xuan Luo partit. Désormais, plus personne n'attendrait l'arrivée de Wang Lin. Ce dernier flottait toujours dans le vide, mais sa trajectoire avait changé. On ignorait vers où il dérivait; il était devenu l'un de ces corps errants dans le néant.
 
-Plusieurs années passèrent encore. Certains êtres se réincarnaient sur le Continent Astral Immortel. D'autres étaient encore en chemin et pourraient avoir besoin de centaines, voire de mille ans avant de renaître.
+Plusieurs années passèrent encore. Certains êtres se réincarnaient sur le Continent Xian Gang. D'autres étaient encore en chemin et pourraient avoir besoin de centaines, voire de mille ans avant de renaître.
 
 Même Xuan Luo ne comprenait pas pourquoi un tel écart existait.
 
@@ -94,7 +94,7 @@ Cette année-là, un enfant naquit dans une ville mortelle du Continent Xi Zhou�
 
 Si un autre enfant refusait de le suivre, il le frappait ou lui donnait des coups de pied. Il était extrêmement féroce, et ses camarades finirent par avoir peur de lui. Ils commencèrent peu à peu à jouer au jeu du prince selon ses règles.
 
-Sur le Continent Nan du Continent Astral Immortel, un enfant naquit également, à une certaine année. Lui aussi était remarquable. Bien que sa famille ait été brisée dès son plus jeune âge, à dix ans, il était déjà un escroc célèbre dans sa ville.
+Sur le Continent Nan du Continent Xian Gang, un enfant naquit également, à une certaine année. Lui aussi était remarquable. Bien que sa famille ait été brisée dès son plus jeune âge, à dix ans, il était déjà un escroc célèbre dans sa ville.
 
 Cependant, lorsqu'un escroc devient célèbre, ce n'est guère une bonne chose pour lui. En conséquence, cet enfant quitta son foyer prématurément pour exercer son talent d'escroc ailleurs.
 
@@ -102,11 +102,11 @@ Le temps s'écoula lentement, sur une très longue période.
 
 Xuan Luo était depuis longtemps retourné au clan du Dao Antique avec une expression sombre et s'était retiré en culture fermée. Lorsque l'Empereur du Dao Antique vit Xuan Luo revenir seul, il ricana intérieurement. Il finit par oublier pourquoi Xuan Luo était parti chercher quelqu'un.
 
-Il semblait que beaucoup de gens ne pensaient plus à cet homme nommé Wang Lin. Le Continent Astral Immortel était ainsi, et le monde des grottes en était de même. Pourtant, quelques âmes ne pouvaient oublier ce nom dès qu'elles se remémoraient le passé.
+Il semblait que beaucoup de gens ne pensaient plus à cet homme nommé Wang Lin. Le Continent Xian Gang était ainsi, et le monde des grottes en était de même. Pourtant, quelques âmes ne pouvaient oublier ce nom dès qu'elles se remémoraient le passé.
 
-Mu Bingmei était de celles-là. Tang Shan du Continent Astral Immortel l'était aussi, tout comme le nouveau génie de la génération, Yun Yifeng, qui montait en puissance au sein de la Secte Gui Yi, songeait également à Wang Lin.
+Mu Bingmei était de celles-là. Tang Shan du Continent Xian Gang l'était aussi, tout comme le nouveau génie de la génération, Yun Yifeng, qui montait en puissance au sein de la Secte Gui Yi, songeait également à Wang Lin.
 
-Le Roi Moustique n'avait pas non plus oublié Wang Lin. Autrefois, la bête avait été stoppée par lui, puis elle sembla devenir folle en absorbant les lois du Continent Astral Immortel avec ses compagnons.
+Le Roi Moustique n'avait pas non plus oublié Wang Lin. Autrefois, la bête avait été stoppée par lui, puis elle sembla devenir folle en absorbant les lois du Continent Xian Gang avec ses compagnons.
 
 Elle avait subi quatre métamorphoses au cours de ces dernières dizaines d'années! À chaque transformation, le Roi Moustique devenait plusieurs fois plus puissant. La pression environnante s'affaiblissait jusqu'à sembler ne plus exister!
 
@@ -114,4 +114,4 @@ Finalement, après la cinquième métamorphose, le Roi Moustique dégagea une pr
 
 Cette fumée était diffuse, comme si le moustique venait de surgir d'une peinture à l'encre. Cependant, sa férocité avait atteint son apogée.
 
-Par la suite, le Roi Moustique n'absorba plus les lois du Continent Astral Immortel. Son corps se répandit en une brume qui dévora ses neuf compagnons pour fusionner avec eux, avant de s'élancer dans le vide infini. Il allait trouver Wang Lin, retrouver son maître!
+Par la suite, le Roi Moustique n'absorba plus les lois du Continent Xian Gang. Son corps se répandit en une brume qui dévora ses neuf compagnons pour fusionner avec eux, avant de s'élancer dans le vide infini. Il allait trouver Wang Lin, retrouver son maître!

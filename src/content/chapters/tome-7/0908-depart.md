@@ -14,7 +14,7 @@ Wang Lin se leva, joignit les mains et répondit: « J'ai vu certaines scènes. 
 
 Le vieux cultivateur esquissa un léger sourire tout en levant la main droite vers la flamme. Celle-ci vacilla, puis fut capturée dans la paume du vieil homme.
 
-« Cette chose a été formée par l'essence originelle d'un Maître Fu à la Feuille Dorée du clan Fu, qui avait atteint une fois la Grande Perfection. Comprendre cette origine originelle profitera grandement à ta culture. C'est également un test que chacun doit affronter pour devenir un disciple interne de la branche de l'Oiseau Vermillon des Quatre Sectes Divines. Si tu parviens à en saisir l'essence, tu deviendras un disciple interne! »
+« Cette chose a été formée par l'essence originelle d'un Maître Fu à la Feuille Dorée du clan Fu, qui avait atteint une fois la Grande Perfection. Comprendre cette origine originelle profitera grandement à ta culture. C'est également un test que chacun doit affronter pour devenir un disciple interne de la branche de Suzaku des Quatre Sectes Divines. Si tu parviens à en saisir l'essence, tu deviendras un disciple interne! »
 
 Sur ces mots, le vieux cultivateur sembla absorber une trace du pouvoir de cette flamme, et son visage devint légèrement rubescent. Après un long moment, il retrouva son aspect normal et agita ses manches. Wang Lin disparut sur-le-champ.
 
@@ -28,7 +28,7 @@ Le corps de Wang Lin apparut au sommet d'une montagne sur la planète Suzaku, le
 
 « Tout d'abord, je peux confirmer que l'ouverture des deux dernières couches du Clan Xian Yi est l'un de ses objectifs. Je ne sais juste pas s'il a connaissance de la Terre Gu Shen... » Les yeux de Wang Lin s'illuminèrent, puis il partit rapidement.
 
-« L'identité de cet homme est mystérieuse, mais il appartient à la branche de l'Oiseau Vermillon des Quatre Sectes Divines. Cependant, ses paroles recelaient un sens plus profond... Peu importe, les indices sont trop rares pour spéculer davantage. Il est temps de partir. »
+« L'identité de cet homme est mystérieuse, mais il appartient à la branche de Suzaku des Quatre Sectes Divines. Cependant, ses paroles recelaient un sens plus profond... Peu importe, les indices sont trop rares pour spéculer davantage. Il est temps de partir. »
 
 Wang Lin prit sa décision. Il déploya son Sens Divin et localisa Ta Shan et ses compagnons. Après leur avoir envoyé un message, Wang Lin contempla la terre sous ses pieds. Il savait qu'il avait réglé les affaires sur la planète Suzaku et qu'il ne pouvait pas y rester longtemps. Après tout, Tuo Sen était toujours là.
 

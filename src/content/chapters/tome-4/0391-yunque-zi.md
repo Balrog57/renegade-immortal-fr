@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 391 - Yunque Zi
 slug: yunque-zi
 ---
-« Du Tian! »
+« Dun Tian! »
 
 Ces deux mots parvinrent aux oreilles de Wang Lin, son regard se figeant aussitôt. Cependant, il n'avait pas le temps d'y réfléchir pour l'instant; il se concentra exclusivement sur la croissance de l'énergie spirituelle au sein de son corps.
 
@@ -26,19 +26,19 @@ Hongdie n'était plus une menace à ses yeux!
 
 Les yeux de Wang Lin s'illuminèrent. Il observa les âmes environnantes et commença à réfléchir.
 
-Du Tian regarda Wang Lin et rit. « Petit ami Ceng Niu, as-tu absorbé suffisamment de ce troisième cadeau? »
+Dun Tian regarda Wang Lin et rit. « Petit ami Zeng Niu, as-tu absorbé suffisamment de ce troisième cadeau? »
 
 Wang Lin réfléchit un instant. Le fait que cet ancêtre soit disposé à donner autant signifiait qu'il y avait une tâche d'envergure qu'il attendait de Wang Lin. Puisque Wang Lin avait déjà accepté les cadeaux, il ne refuserait pas d'aider; refuser était indigne de lui.
 
 Cependant, avec la personnalité de Wang Lin, puisqu'il avait décidé d'aider, il ne se laisserait pas léser en acceptant ces présents.
 
-« Aîné, je peux absorber autant que possible, n'est-ce pas? » Wang Lin regarda calmement l'ancêtre Du Tian.
+« Aîné, je peux absorber autant que possible, n'est-ce pas? » Wang Lin regarda calmement l'ancêtre Dun Tian.
 
-Le vieil homme rit et répondit avec détermination: « C'est exact. Petit ami Ceng Niu, ce vieux ne sera pas avare pour ce troisième cadeau! »
+Le vieil homme rit et répondit avec détermination: « C'est exact. Petit ami Zeng Niu, ce vieux ne sera pas avare pour ce troisième cadeau! »
 
 Wang Lin hocha la tête et ferma les yeux.
 
-« Ce petit gars est déjà repu; même s'il veut en absorber davantage, il ne devrait plus pouvoir en prendre beaucoup plus... » Pour une raison quelconque, lorsque Du Tian vit Wang Lin fermer les yeux, il eut un pressentiment funeste.
+« Ce petit gars est déjà repu; même s'il veut en absorber davantage, il ne devrait plus pouvoir en prendre beaucoup plus... » Pour une raison quelconque, lorsque Dun Tian vit Wang Lin fermer les yeux, il eut un pressentiment funeste.
 
 « Corps originel... absorbons-en tous les deux! » appela Wang Lin dans son cœur à son corps originel.
 
@@ -54,11 +54,11 @@ L'absorption du corps originel était incomparablement plus puissante que celle 
 
 Les dix fragments d'âme autour de Wang Lin tremblèrent, et le lien entre eux et lui se renforça de multiples plis alors qu'ils ressentaient la puissante force de succion émanant de Wang Lin.
 
-La situation s'était inversée: ce n'étaient plus les fragments d'âme qui injectaient de force l'énergie spirituelle en Wang Lin, mais Wang Lin qui les dévorait activement. Ce changement fit écarquiller les yeux de Du Tian.
+La situation s'était inversée: ce n'étaient plus les fragments d'âme qui injectaient de force l'énergie spirituelle en Wang Lin, mais Wang Lin qui les dévorait activement. Ce changement fit écarquiller les yeux de Dun Tian.
 
 Les muscles de son visage se contractèrent, révélant une expression de douleur et de regret.
 
-Dix respirations; en seulement dix respirations, plus de la moitié de l'énergie spirituelle contenue dans les dix fragments d'âme avait été absorbée. L'expression de Du Tian devint très disgracieuse et il voulut interrompre Wang Lin, mais se remémorant ses propres paroles, il ne put que soupirer. Fort de son niveau de culture, il comprit immédiatement que Ceng Niu possédait un avatar. Ceng Niu absorbait actuellement l'énergie spirituelle de concert avec son avatar.
+Dix respirations; en seulement dix respirations, plus de la moitié de l'énergie spirituelle contenue dans les dix fragments d'âme avait été absorbée. L'expression de Dun Tian devint très disgracieuse et il voulut interrompre Wang Lin, mais se remémorant ses propres paroles, il ne put que soupirer. Fort de son niveau de culture, il comprit immédiatement que Zeng Niu possédait un avatar. Zeng Niu absorbait actuellement l'énergie spirituelle de concert avec son avatar.
 
 Le corps originel à Chu était saturé d'énergie spirituelle. À un moment donné, des lignes dorées commencèrent à émaner de son corps pour l'envelopper. Bientôt, un cocon cristallin se forma.
 
@@ -66,27 +66,27 @@ Le corps originel reposait au sein du cocon tandis qu'une autre étoile apparais
 
 Wang Lin n'était pas un homme cupide. À cet instant, il ouvrit les yeux et cessa d'absorber.
 
-Du Tian poussa un soupir de soulagement. Il agita rapidement le drapeau de plus de dix mètres qu'il tenait, faisant revenir les dix âmes. Il adressa un sourire amer à Wang Lin et dit: « Petit ami Ceng Niu, tu n'as vraiment pas retenu tes efforts. »
+Dun Tian poussa un soupir de soulagement. Il agita rapidement le drapeau de plus de dix mètres qu'il tenait, faisant revenir les dix âmes. Il adressa un sourire amer à Wang Lin et dit: « Petit ami Zeng Niu, tu n'as vraiment pas retenu tes efforts. »
 
 Les yeux de Wang Lin s'illuminèrent. Il se leva, sentant la puissance de l'énergie spirituelle qui coulait dans son corps. Il tourna son regard glacial vers le pays de Xue Yu.
 
 La personnalité de Wang Lin était d'une grande fermeté. Il n'importunait personne s'il était laissé en paix, mais si quelqu'un s'en prenait à lui, il rendrait la pareille dix... cent fois! C'était un homme qui n'oubliait jamais sa vengeance!
 
-« Li Yuanfeng... » La froideur dans les yeux de Wang Lin se dissipa alors qu'il se tournait vers Du Tian et joignit les mains. « Merci, Aîné, pour ces trois cadeaux. Si vous avez besoin que ce junior accomplisse quoi que ce soit, dites-le simplement. Je ferai de mon mieux! »
+« Li Yuanfeng... » La froideur dans les yeux de Wang Lin se dissipa alors qu'il se tournait vers Dun Tian et joignit les mains. « Merci, Aîné, pour ces trois cadeaux. Si vous avez besoin que ce junior accomplisse quoi que ce soit, dites-le simplement. Je ferai de mon mieux! »
 
-En disant cela, Wang Lin signifiait sa profonde gratitude envers Senior Du Tian.
+En disant cela, Wang Lin signifiait sa profonde gratitude envers Senior Dun Tian.
 
-Du Tian esquissa un léger sourire. Son mécontentement précédent s'était totalement évanoui. Il avait tout orchestré pour que Wang Lin lui dise ces mots!
+Dun Tian esquissa un léger sourire. Son mécontentement précédent s'était totalement évanoui. Il avait tout orchestré pour que Wang Lin lui dise ces mots!
 
-« Petit ami Ceng Niu, la raison pour laquelle je t'ai offert ces trois cadeaux est cruciale. Si tu n'étais pas venu dans ma Secte Lian Hun, je serais allé te chercher moi-même. »
+« Petit ami Zeng Niu, la raison pour laquelle je t'ai offert ces trois cadeaux est cruciale. Si tu n'étais pas venu dans ma Secte Lian Hun, je serais allé te chercher moi-même. »
 
-Wang Lin regarda Du Tian et sourit. « Ce junior a déjà entendu la rumeur selon laquelle j'aurais tué un cultivateur de la Formation de l'Âme de la Secte Lian Hun; je suppose donc que l'Aîné me cherche pour m'interroger. »
+Wang Lin regarda Dun Tian et sourit. « Ce junior a déjà entendu la rumeur selon laquelle j'aurais tué un cultivateur de la Formation de l'Âme de la Secte Lian Hun; je suppose donc que l'Aîné me cherche pour m'interroger. »
 
-Du Tian secoua la tête en souriant. « Tout cela n'était qu'un subterfuge. Si je venais te chercher sans raison apparente, cela aurait attiré trop d'attention. Cependant, en propageant la rumeur que tu avais tué un cultivateur de la Formation de l'Âme de ma secte, personne ne s'étonnerait si je commençais à te traquer. »
+Dun Tian secoua la tête en souriant. « Tout cela n'était qu'un subterfuge. Si je venais te chercher sans raison apparente, cela aurait attiré trop d'attention. Cependant, en propageant la rumeur que tu avais tué un cultivateur de la Formation de l'Âme de ma secte, personne ne s'étonnerait si je commençais à te traquer. »
 
 Les yeux de Wang Lin brillèrent. Pour que cet ancêtre soit si prévoyant, quelque chose d'imprévisible allait sans doute se produire.
 
-Du Tian regarda Wang Lin avec une pointe d'appréciation dans le regard. Après un silence, il demanda: « Petit ami, sais-tu pourquoi il y a moins de dix pays de culture de rang 5 sur cette planète, alors que le pays Suzaku la domine depuis si longtemps? »
+Dun Tian regarda Wang Lin avec une pointe d'appréciation dans le regard. Après un silence, il demanda: « Petit ami, sais-tu pourquoi il y a moins de dix pays de culture de rang 5 sur cette planète, alors que le pays Suzaku la domine depuis si longtemps? »
 
 Il ne laissa pas à Wang Lin le temps de répondre. Affichant une mine impuissante, il poursuivit: « Lorsque le pays Suzaku est arrivé sur cette planète, six grandes sectes le composaient. Les disciples de ces six sectes se sont ensuite dispersés pour fonder les divers pays de culture de la planète. Parallèlement, les disciples de cœur de ces six sectes furent autorisés à établir des pays de culture de rang 5. »
 
@@ -94,7 +94,7 @@ Il ne laissa pas à Wang Lin le temps de répondre. Affichant une mine impuissan
 
 Le regard de Wang Lin resta serein. Son expression demeura imperturbable.
 
-Du Tian leva les yeux vers le ciel et déclara calmement: « Les circonstances ont changé et les années ont filé en un clin d'œil. Chaque fois qu'un pays de culture de rang 5 était sur le point d'atteindre le stade de pays de rang 6, il était brutalement rétrogradé à son état initial en une seule nuit. Le pays Suzaku ne permettrait jamais l'émergence d'un autre pays de culture de rang 6 sur la planète Suzaku. »
+Dun Tian leva les yeux vers le ciel et déclara calmement: « Les circonstances ont changé et les années ont filé en un clin d'œil. Chaque fois qu'un pays de culture de rang 5 était sur le point d'atteindre le stade de pays de rang 6, il était brutalement rétrogradé à son état initial en une seule nuit. Le pays Suzaku ne permettrait jamais l'émergence d'un autre pays de culture de rang 6 sur la planète Suzaku. »
 
 « Ma Secte Lian Hun a eu trois occasions d'atteindre le rang 6 au cours de ces innombrables années, mais nous avons été brisés à chaque fois. Aujourd'hui, nous avons perdu notre pays et ne subsistons plus que comme une secte. »
 
@@ -114,22 +114,22 @@ Wang Lin réfléchissait en silence.
 
 « Le Suzaku craint que les pays de culture de rang 5 ne se retournent contre lui pour prendre le pouvoir. Il craint de ne pas pouvoir conserver la planète Suzaku. »
 
-Wang Lin médita sur ces paroles. Après un moment, il regarda Du Tian et dit: « Aîné, quel est le rapport avec moi? Je ne suis qu'un simple junior au stade de la Formation de l'Âme. »
+Wang Lin médita sur ces paroles. Après un moment, il regarda Dun Tian et dit: « Aîné, quel est le rapport avec moi? Je ne suis qu'un simple junior au stade de la Formation de l'Âme. »
 
-Le regard de Du Tian devint solennel. Il fixa Wang Lin et déclara, mot pour mot: « Cela te concerne directement! »
+Le regard de Dun Tian devint solennel. Il fixa Wang Lin et déclara, mot pour mot: « Cela te concerne directement! »
 
 « Oh, vraiment? » Wang Lin leva les yeux vers lui.
 
-Du Tian reprit lentement: « Tu es l'un des quatre candidats choisis par Yun Quezi pour devenir le prochain Suzaku! »
+Dun Tian reprit lentement: « Tu es l'un des quatre candidats choisis par Yun Quezi pour devenir le prochain Suzaku! »
 
 « Yun Quezi? » Wang Lin fronça les sourcils.
 
-Du Tian agita la main et une sculpture en bois apparut dans sa paume. C'était le portrait d'un homme d'une grande beauté, dont le regard semblait presque vivant.
+Dun Tian agita la main et une sculpture en bois apparut dans sa paume. C'était le portrait d'un homme d'une grande beauté, dont le regard semblait presque vivant.
 
 «... C'est lui! » Wang Lin fut stupéfait, son expression devenant étrange. C'était le vieil homme débraillé qui lui avait donné ce chapeau de paille et pour qui il avait sculpté ce portrait à l'époque. La culture de ce vieillard était prodigieuse; il en avait eu les soupçons à l'époque, mais il tenait enfin la réponse.
 
-« Il est Yun Quezi. Il est le Junior frère du Suzaku actuel... » Du Tian observa la sculpture et ajouta: « Cette sculpture a été faite par toi. Elle lui ressemble étrangement... »
+« Il est Yun Quezi. Il est le Junior frère du Suzaku actuel... » Dun Tian observa la sculpture et ajouta: « Cette sculpture a été faite par toi. Elle lui ressemble étrangement... »
 
 « Vous m'avez offert ces trois cadeaux à cause de lui... » L'expression de Wang Lin devint encore plus déconcertée.
 
-« Ce n'est qu'une partie de la vérité... » Du Tian leva le visage, ses yeux brillant d'une lueur mystérieuse.
+« Ce n'est qu'une partie de la vérité... » Dun Tian leva le visage, ses yeux brillant d'une lueur mystérieuse.

@@ -34,11 +34,11 @@ Heureusement, après son apparition, Tuo Sen ne resta pas longtemps dans le Syst
 
 « Tu es trop faible! »
 
-Quant à la Secte Divine de l'Oiseau Vermillon, les flammes éternelles furent éteintes par un simple revers de main de Tuo Sen!
+Quant à la Secte Divine de Suzaku, les flammes éternelles furent éteintes par un simple revers de main de Tuo Sen!
 
 « Ce feu est agaçant à regarder! »
 
-Nul membre de la Secte Divine de l'Oiseau Vermillon n'osa exprimer sa colère.
+Nul membre de la Secte Divine de Suzaku n'osa exprimer sa colère.
 
 Puis, Tuo Sen partit vers le Royaume Kun Xu pour combattre le vieil homme. Après avoir scellé ce dernier entre ses sourcils, il utilisa la Lance Tueuse de Dieux et provoqua l'effondrement du Royaume Kun Xu! Le Royaume Kun Xu, qui avait existé durant d'innombrables années, disparut à jamais, ne devenant qu'un souvenir.
 

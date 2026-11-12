@@ -28,7 +28,7 @@ Après avoir récupéré ces objets, Wang Lin se retourna et disparut. Il ne lai
 
 « S'il n'y a rien d'important, ne me dérangez pas. Si la famille Huan apparaît, j'agirai moi-même. »
 
-Après le départ de Wang Lin, les trois hommes restèrent plongés dans une réflexion silencieuse. Sun Xi, ayant d'autres projets en tête, était naturellement le plus détendu. Il sourit en joignant les mains: « Chers compagnons cultivateurs, j'ai encore des affaires importantes à régler, je vais donc prendre congé. »
+Après le départ de Wang Lin, les trois hommes restèrent plongés dans une réflexion silencieuse. Sun Xi, ayant d'autres projets en tête, était naturellement le plus détendu. Il sourit en joignant les mains: « Chers Daoïstes, j'ai encore des affaires importantes à régler, je vais donc prendre congé. »
 
 L'homme d'âge mûr soupira également et dit: « Je dois retourner chez moi pour préparer des jades célestes, au cas où le compagnon Xu en aurait besoin. »
 

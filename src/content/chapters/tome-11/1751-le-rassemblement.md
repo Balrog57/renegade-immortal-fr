@@ -16,7 +16,7 @@ Bientôt, d'autres plaques apparurent dans la brume et rejoignirent l'esquisse. 
 
 Ce qui se dressait désormais devant Wang Lin était une porte gigantesque!
 
-Cette porte n'était pas celle menant au Continent Astral Immortel, mais celle conduisant au cœur de la caverne. Une fois franchie, on pouvait pénétrer dans le sanctuaire même de la grotte!
+Cette porte n'était pas celle menant au Continent Xian Gang, mais celle conduisant au cœur de la caverne. Une fois franchie, on pouvait pénétrer dans le sanctuaire même de la grotte!
 
 Bien que ce fût la première fois qu'il voyait cette porte, elle ne lui était pas étrangère. Sur l'une des plaques qui la composaient, Wang Lin sentit l'aura du Champ de Bataille Extérieur de la planète Suzaku!
 
@@ -74,7 +74,7 @@ Cette tempête était née de la reformation de la porte, elle-même déclenché
 
 Devant lui se dressait la porte, derrière lui la planète. Outre la porte, son regard se posa sur le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan!
 
-Le Vieux Fantôme Zhan bravait les éléments. En voyant Wang Lin, il sentit clairement la présence de la troisième âme en lui. Il rugit immédiatement: « Wang Lin, remets-moi la troisième âme et je garantirai ta sécurité ainsi que celle de tout le Royaume Céleste! Je t'ouvrirai aussi la voie vers le Continent Astral Immortel! »
+Le Vieux Fantôme Zhan bravait les éléments. En voyant Wang Lin, il sentit clairement la présence de la troisième âme en lui. Il rugit immédiatement: « Wang Lin, remets-moi la troisième âme et je garantirai ta sécurité ainsi que celle de tout le Royaume Céleste! Je t'ouvrirai aussi la voie vers le Continent Xian Gang! »
 
 Les yeux du Daoïste aux Sept Couleurs s'illuminèrent et il prit un ton sinistre: « Wang Lin, si tu remets la troisième âme à ce seigneur, je ressusciterai ta femme! Je ne convoite pas le Dao Céleste, et je te céderai ce monde de caverne. Une fois la troisième âme en ma possession, je partirai et ne reviendrai jamais! »
 
@@ -100,7 +100,7 @@ L'une d'elles observa Wang Lin avec une expression complexe. C'était la troisi�
 
 Les disciples de la Secte Qi Dao, venus de l'Ancien Royaume Céleste dans le Royaume Extérieur, arrivèrent avec les concubines. Ils encerclèrent la zone, les yeux rivés sur Wang Lin.
 
-Bientôt, Zi Xia arriva de la Rivière Zhao He. Après avoir inspecté les lieux, son regard tomba sur Wang Lin, encerclé, et une lueur meurtrière traversa ses yeux.
+Bientôt, Zi Xia arriva de Zhao He He. Après avoir inspecté les lieux, son regard tomba sur Wang Lin, encerclé, et une lueur meurtrière traversa ses yeux.
 
 Elle lui en voulait depuis l'instant où il avait refusé de s'allier à elle; l'intention de tuer avait déjà germé dans son cœur à cette époque. Si elle n'avait pas su qu'elle ne pouvait rivaliser avec lui, elle l'aurait attaqué depuis longtemps. En voyant Wang Lin ainsi acculé, elle laissa échapper un ricanement méprisant.
 

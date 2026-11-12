@@ -68,7 +68,7 @@ Boum!
 
 Sous l'impact, la plaine s'effondra immédiatement, créant un gouffre immense d'où surgit soudainement une silhouette verdâtre.
 
-« Ceng Niu! » Cet homme avait l'apparence d'un quadragénaire, mais ses yeux trahissaient un âge bien plus avancé. Il fixa Wang Lin et cria: « Je n'avais pas l'intention de m'occuper de toi si tôt, mais puisque tu es venu, il est clair que tu cherches la mort! »
+« Zeng Niu! » Cet homme avait l'apparence d'un quadragénaire, mais ses yeux trahissaient un âge bien plus avancé. Il fixa Wang Lin et cria: « Je n'avais pas l'intention de m'occuper de toi si tôt, mais puisque tu es venu, il est clair que tu cherches la mort! »
 
 Sur ces mots, il fit un pas en avant, fondit sur Wang Lin tel un éclair et lança un coup de poing.
 

@@ -14,7 +14,7 @@ Ces objets avaient tous été conçus pour favoriser la résurrection du Scorpio
 
 « Le corps de cette personne est clairement issu du Dao Ancien, mais bien que ce corps soit puissant, il manque de résilience. J'utiliserai cette branche d'arbre céleste vieille de 90 000 ans pour rendre ce corps extrêmement difficile à détruire! » La main gauche du vieil homme en robe verte s'étendit et saisit une branche noire exhalant une aura antique.
 
-Cette branche était extrêmement rare sur le Continent Astral Immortel. Sa famille avait payé un prix exorbitant pour l'acquérir. Sans hésiter, il projeta la branche, imprégnée de la puissance du monde, vers le corps de Wang Lin.
+Cette branche était extrêmement rare sur le Continent Xian Gang. Sa famille avait payé un prix exorbitant pour l'acquérir. Sans hésiter, il projeta la branche, imprégnée de la puissance du monde, vers le corps de Wang Lin.
 
 Lorsqu'elle s'en approcha, la branche explosa en une poudre noire qui enveloppa le corps de Wang Lin. Cette poudre se répandit comme si elle était douée de vie, formant de fins filaments qui pénétrèrent les pores de Wang Lin. Ils se connectèrent entre eux à l'intérieur de son corps pour former un réseau dense.
 
@@ -46,15 +46,15 @@ Malgré sa propre détermination, Wang Lin fut stupéfait par celle du vieil hom
 
 « Une fois que le Seigneur Démon Vert aura été ressuscité, il aura besoin d'un trésor tranchant capable de fendre le monde. Il ne serait pas opportun qu'il soit externe; il doit être un trésor interne pour véritablement impressionner Seigneur Démon Vert. »
 
-« Au fil des âges, mon clan a parcouru le monde pour rassembler plus de 90 000 types de matériaux Yin différents. Nous avons également payé n'importe quel prix pour obtenir un fragment d'âme provenant de vingt des âmes de suppression du Continent Astral Immortel, afin de les raffiner ensemble et de forger cette lame Yin! »
+« Au fil des âges, mon clan a parcouru le monde pour rassembler plus de 90 000 types de matériaux Yin différents. Nous avons également payé n'importe quel prix pour obtenir un fragment d'âme provenant de vingt des âmes de suppression du Continent Xian Gang, afin de les raffiner ensemble et de forger cette lame Yin! »
 
-« Cette lame n'a pas encore subi de Calamité du Continent Astral Immortel. Une fois qu'elle l'aura traversée, elle sera un trésor de rang destructeur qui fera palpiter le cœur d'un Grand Empyréen! » Les yeux du vieil homme brillèrent d'un éclat vif alors qu'il agitait sa main gauche. Une brume glaciale l'enveloppa et s'élança vers Wang Lin. Une lame invisible semblait se tapir au cœur de la brume!
+« Cette lame n'a pas encore subi de Calamité du Continent Xian Gang. Une fois qu'elle l'aura traversée, elle sera un trésor de rang destructeur qui fera palpiter le cœur d'un Grand Empyréen! » Les yeux du vieil homme brillèrent d'un éclat vif alors qu'il agitait sa main gauche. Une brume glaciale l'enveloppa et s'élança vers Wang Lin. Une lame invisible semblait se tapir au cœur de la brume!
 
 La lame ressemblait à une colonne vertébrale incurvée, offrant un spectacle terrifiant!
 
 « Ce trésor ne peut être logé dans aucun espace de stockage. Il ne peut être utilisé qu'au sein même du corps. Le corps de cet homme est destiné à être investi par Seigneur Démon Vert, je vais donc planter cette lame Yin dans son bras droit! »
 
-« Un jour, cette lame sera célèbre sur tout le Continent Astral Immortel! »
+« Un jour, cette lame sera célèbre sur tout le Continent Xian Gang! »
 
 Le vieil homme semblait possédé par la démence alors que la brume se rassemblait rapidement à l'intérieur de Wang Lin. Elle s'engouffra dans sa main droite, qui devint instantanément noire, comme si elle avait été figée par une glace éternelle!
 

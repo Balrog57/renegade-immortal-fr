@@ -12,7 +12,7 @@ Wang Lin sourit amèrement et regarda Situ Nan, figé de stupeur. Il ramassa ens
 
 Et ces concubines impériales célestes que j'ai rencontrées dans le Système Stellaire Antique, ainsi que ce mystérieux Daoïste aux Sept Couleurs...
 
-Tous ces êtres venaient d'un continent appelé Continent Astral Immortel. Ce continent est des dizaines de milliers de fois plus vaste que les Royaumes Intérieur et Extérieur réunis. C'est leur patrie. Nous ne sommes qu'à l'intérieur d'une grotte appartenant au maître de la Secte Qi Dao, le Souverain Céleste aux Sept Couleurs!
+Tous ces êtres venaient d'un continent appelé Continent Xian Gang. Ce continent est des dizaines de milliers de fois plus vaste que les Royaumes Intérieur et Extérieur réunis. C'est leur patrie. Nous ne sommes qu'à l'intérieur d'une grotte appartenant au maître de la Secte Qi Dao, le Souverain Céleste aux Sept Couleurs!
 
 Le ciel que nous voyons est le plafond de cette grotte. La terre que nous voyons est son sol... Les soi-disant Royaumes Intérieur et Extérieur ne sont que les parties interne et externe de cette caverne.
 
@@ -62,7 +62,7 @@ Mais maintenant, la troisième étape est apparue... » Wang Lin posa la cruche 
 
 « J'ai cultivé toute ma vie, mais je ne l'ai jamais pleinement reconnu au fond de mon cœur. Mais aujourd'hui, moi, Wang Lin, j'entrerai dans la troisième étape de ma culture sur la planète Suzaku qui m'a vu naître. Je veux cultiver!
 
-Situ, autrefois, j'étais lassé de la culture, mais après aujourd'hui, cette pensée ne germera plus jamais dans mon cœur. Je veux cultiver, je veux devenir plus fort, je veux quitter ce monde, je veux voir si les habitants du Continent Astral Immortel possèdent réellement trois têtes et six bras!
+Situ, autrefois, j'étais lassé de la culture, mais après aujourd'hui, cette pensée ne germera plus jamais dans mon cœur. Je veux cultiver, je veux devenir plus fort, je veux quitter ce monde, je veux voir si les habitants du Continent Xian Gang possèdent réellement trois têtes et six bras!
 
 Même si je dois mourir neuf fois et retourner à la poussière, qu'importe! » Wang Lin agita la main droite; une cruche posée au sol s'envola jusqu'à sa main. Il se pencha en arrière et en vida la moitié.
 
@@ -100,7 +100,7 @@ Si les cieux entravaient sa marche, il briserait les cieux. Si la terre barrait 
 
 D'un seul pas, dans le flottement de sa robe blanche, Wang Lin atteignit le sommet de sa propre statue. Il se tint là, affrontant le vent et le rougeoiement du couchant, contemplant le monde.
 
-« Compagnons cultivateurs de la planète Suzaku! Êtes-vous prêts à me suivre vers Luotian pour combattre les cultivateurs du Royaume Extérieur? »
+« Daoïstes de la planète Suzaku! Êtes-vous prêts à me suivre vers Luotian pour combattre les cultivateurs du Royaume Extérieur? »
 
 La voix puissante de Wang Lin se mua en une onde monstrueuse qui résonna sur toute la planète Suzaku, et les cultivateurs qui attendaient son signal ouvrirent tous les yeux. Leurs regards brillants reflétaient la même résolution.
 

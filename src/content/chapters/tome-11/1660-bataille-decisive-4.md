@@ -54,7 +54,7 @@ Face à ces cultivateurs du Royaume Extérieur qui s'éparpillaient, même les d
 
 Qing Lin ferma les yeux et son âme originelle s'en éleva. En tant que cultivateur du troisième niveau et Empereur Céleste du Royaume Céleste de la Pluie, la force de son âme originelle était phénoménale. Son âme se transforma en un géant qui avança vers la roue et la poussa sans aucune pitié.
 
-Au même moment, Maître Hong Shan et la femme en violet de la Rivière Invoquée fermèrent les yeux pour libérer leurs âmes originelles. Au loin, Qing Shui ignora ses blessures et son âme originelle s'envola également!
+Au même moment, Maître Hong Shan et la femme en violet de Zhao He fermèrent les yeux pour libérer leurs âmes originelles. Au loin, Qing Shui ignora ses blessures et son âme originelle s'envola également!
 
 Ces quatre âmes originelles gigantesques poussèrent la roue, provoquant un grondement sourd qui la fit lentement pivoter une troisième fois!
 
@@ -68,7 +68,7 @@ Sous ce souffle, tous les cultivateurs restants du Royaume Extérieur, où qu'il
 
 La vieille femme qui avait tenté de tuer Wang Lin frémit et disparut: son âme fut totalement détruite!
 
-Seule la dernière concubine impériale céleste parvint à avoir une longueur d'avance. Lorsque la puissance de la roue balaya la zone, elle ouvrit une brèche dans le vide grâce à un sortilège de survie, issu du Continent Astral Immortel, qu'elle avait préparé. Elle s'engouffra dans la faille et survécut de justesse.
+Seule la dernière concubine impériale céleste parvint à avoir une longueur d'avance. Lorsque la puissance de la roue balaya la zone, elle ouvrit une brèche dans le vide grâce à un sortilège de survie, issu du Continent Xian Gang, qu'elle avait préparé. Elle s'engouffra dans la faille et survécut de justesse.
 
 Tout était terminé!
 

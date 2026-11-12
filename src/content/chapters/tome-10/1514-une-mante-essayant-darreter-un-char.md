@@ -16,7 +16,7 @@ Cependant, cette action fut extrêmement terrifiante pour quiconque, excepté Wa
 
 Même les cultivateurs du troisième niveau reculèrent avec effroi. Pourtant, l'envie et la cupidité brillèrent dans les yeux de certains.
 
-« Si ce vieil homme obtenait l'une de ces bêtes, ma force augmenterait considérablement! » Le vieil homme en noir de la Rivière Invoquée, Zhou De, fixa la Bête des Limbes en se léchant les lèvres.
+« Si ce vieil homme obtenait l'une de ces bêtes, ma force augmenterait considérablement! » Le vieil homme en noir de Zhao He, Zhou De, fixa la Bête des Limbes en se léchant les lèvres.
 
 « Cette Bête des Limbes a dévoré la tempête dorée... C'est... c'est différent des rumeurs! Si cette bête devenait mienne, alors... » Une lueur de cupidité passa dans les yeux de Yun Fengzi.
 
@@ -32,7 +32,7 @@ Cependant, même ce geste fut terrifiant pour les autres cultivateurs. La Bête 
 
 La puissance de cet impact était terrifiante. Le fracas qui en résulta n'était pas moins violent qu'un coup porté de plein fouet par un cultivateur du troisième niveau! Il fallait savoir qu'à Luotian, même Wang Lin avait été repoussé par la pleine puissance de la Bête des Limbes. Cela témoignait de sa force colossale!
 
-Le vieil homme Zhou De, de la Rivière Invoquée, eut le souffle coupé. Toutes ses pensées d'asservir une bête aussi féroce s'évaporèrent instantanément.
+Le vieil homme Zhou De, de Zhao He, eut le souffle coupé. Toutes ses pensées d'asservir une bête aussi féroce s'évaporèrent instantanément.
 
 « Bien que le corps de ce vieil homme ne soit pas faible, il ne pourrait résister à une telle force... Si cette bête agissait ainsi souvent, alors... je devrais changer de corps sans cesse... Ce n'est pas une bête féroce que j'élève, mais un ancêtre! »
 

@@ -1,9 +1,9 @@
 ---
 n: 316
-title: "Ceng Niu, tu oses me tuer!"
+title: "Zeng Niu, tu oses me tuer!"
 book: 4
 bookTitle: Clean Sweep
-en: "Chapter 316 - Ceng Niu, you dare to kill me!"
+en: "Chapter 316 - Zeng Niu, you dare to kill me!"
 slug: ceng-niu-tu-oses-me-tuer
 ---
 Une robe blanche plus blanche que la neige.
@@ -82,7 +82,7 @@ L'effondrement des environs s'accéléra à mesure que les failles spatiales se 
 
 Le corps de Wang Lin fonça vers Hongdie comme un éclair. Chi Hu vit la scène et ouvrit la bouche, mais resta muet. S'échapper vivant était sa priorité absolue.
 
-Wang Lin était d'une rapidité prodigieuse. En un instant, il ne fut plus qu'à moins de cent mètres de Hongdie. Le visage de cette dernière changea brusquement. Bien que sa culture se fût partiellement rétablie, elle avait perdu trop de trésors magiques et ses blessures internes l'empêchaient de maintenir la puissance d'une cultivatrice au stade avancé de la Formation de l'Âme, et sa culture ne cessait de décliner. On pouvait dire qu'elle traversait là le point le plus bas de son existence. Elle ne put que hurler: « Ceng Niu, si tu me tues, Suzaku ne te pardonnera jamais! »
+Wang Lin était d'une rapidité prodigieuse. En un instant, il ne fut plus qu'à moins de cent mètres de Hongdie. Le visage de cette dernière changea brusquement. Bien que sa culture se fût partiellement rétablie, elle avait perdu trop de trésors magiques et ses blessures internes l'empêchaient de maintenir la puissance d'une cultivatrice au stade avancé de la Formation de l'Âme, et sa culture ne cessait de décliner. On pouvait dire qu'elle traversait là le point le plus bas de son existence. Elle ne put que hurler: « Zeng Niu, si tu me tues, Suzaku ne te pardonnera jamais! »
 
 « Haha, Hongdie, de telles menaces ne sont pas dignes d'une fille bénie du ciel. » Wang Lin rit en frappant son sac de rangement, faisant apparaître le drapeau de restriction. Il agita l'étendard et un gaz de restriction s'en échappa, s'enroulant autour de lui comme des dragons maléfiques.
 
@@ -100,7 +100,7 @@ Une immense faille spatiale fut déchirée par la puissance de l'arme.
 
 Wang Lin franchit les 99 mètres d'un bond, pointant sa lance de restriction vers la tête de Hongdie.
 
-« Ceng Niu, tu es devenu fou?! Cet endroit s'effondre! Si tu ne t'échappes pas maintenant, tu ne sortiras jamais d'ici! » L'expression de Hongdie se décomposa. Elle sortit précipitamment une épée volante blanche pour parer l'attaque.
+« Zeng Niu, tu es devenu fou?! Cet endroit s'effondre! Si tu ne t'échappes pas maintenant, tu ne sortiras jamais d'ici! » L'expression de Hongdie se décomposa. Elle sortit précipitamment une épée volante blanche pour parer l'attaque.
 
 Ne pouvant ni esquiver ni se téléporter, elle fut contrainte de bloquer. Derrière elle, une faille; à côté, une autre; elle était encerclée par le vide. Une fois tombée dans ces failles, sans boussole stellaire ni courage de brûler son âme originelle, seule la mort l'attendait.
 
@@ -128,7 +128,7 @@ Les neuf sculptures se muèrent soudainement en neuf marionnettes parcourues de 
 
 Hongdie fut projetée en arrière après avoir utilisé son bracelet pour parer la lance, et cracha une bouchée de sang. L'effondrement des environs s'accéléra encore; le vide commençait déjà à dévorer des pans entiers de la réalité.
 
-« Ceng Niu!!! Je suis une disciple centrale de Suzaku! Si tu me tues, ta mort sera terrible! » Hongdie était terrifiée. Cette fois, elle l'était véritablement.
+« Zeng Niu!!! Je suis une disciple centrale de Suzaku! Si tu me tues, ta mort sera terrible! » Hongdie était terrifiée. Cette fois, elle l'était véritablement.
 
 Alors qu'elle reculait, le domaine temporel se propagea depuis les neuf sculptures de bois. Elle hurla: « Domaine temporel! »
 

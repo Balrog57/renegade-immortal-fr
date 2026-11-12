@@ -52,7 +52,7 @@ Même Tian Yunzi fut stupéfait par ce spectacle. Il avait déjà prévu le rés
 
 Il avait même percé les secrets des multiples pouvoirs situés entre les sourcils de Wang Lin. Trois d'entre eux étaient des choses que lui-même redoutait!
 
-« Bien que j'aie calculé que cet enfant reviendrait, je n'ai pu calculer la raison. S'il a osé revenir sur la planète Tian Yun, c'est qu'il doit avoir un appui solide. La Marque de l'Oiseau Vermillon est l'un de ses soutiens! »
+« Bien que j'aie calculé que cet enfant reviendrait, je n'ai pu calculer la raison. S'il a osé revenir sur la planète Tian Yun, c'est qu'il doit avoir un appui solide. La Marque de Suzaku est l'un de ses soutiens! »
 
 La belle femme fut également frappée de stupeur. La surprise illumina ses yeux et elle vit immédiatement à quel point ces 27 épées étaient extraordinaires.
 
@@ -102,7 +102,7 @@ Instantanément, des rayons de lumière argentée jaillirent de son sac pour s'u
 
 Par ce geste, la vitesse de circulation de son énergie originelle atteignit presque son apogée. D'innombrables Coups Célestes jaillirent et fusionnèrent avec le vortex devant lui. Le vortex entier trembla, se condensa, puis s'élança avec violence.
 
-Wang Lin avait obtenu ces épées dans le Royaume Sha Lu et, en chemin vers la Secte Tian Yun, en avait déjà raffiné 45 en modifiant leur apparence. Seuls les habitants du Royaume Sha Lu pourraient désormais les identifier.
+Wang Lin avait obtenu ces épées dans le Royaume Sha Yu et, en chemin vers la Secte Tian Yun, en avait déjà raffiné 45 en modifiant leur apparence. Seuls les habitants du Royaume Sha Yu pourraient désormais les identifier.
 
 À cet instant, ce vortex d'épées contenant la puissance d'innombrables Coups Célestes entra en collision avec le sortilège de Ling Tianhou. Le monde changea de couleur et sembla s'inverser.
 
@@ -160,6 +160,6 @@ Ils restèrent silencieux un long moment avant que Tian Yunzi ne demande lenteme
 
 « Ce disciple souhaite entrer dans la Terre Yao Ling. » L'expression de Wang Lin était empreinte de respect.
 
-Tian Yunzi, les mains derrière le dos, répondit calmement: « Vous en avez la qualification. Que ce soit en tant que Tonnerre Céleste authentique de Luotian ou comme l'un des membres de la série de l'Oiseau Vermillon des Quatre Sectes Divines. Pour autant que je sache, cette génération de la série de l'Oiseau Vermillon ne compte que trois personnes, vous y compris! »
+Tian Yunzi, les mains derrière le dos, répondit calmement: « Vous en avez la qualification. Que ce soit en tant que Tonnerre Céleste authentique de Luotian ou comme l'un des membres de la série de Suzaku des Quatre Sectes Divines. Pour autant que je sache, cette génération de la série de Suzaku ne compte que trois personnes, vous y compris! »
 
-Wang Lin réfléchit en silence. Il ne savait pas grand-chose sur la série de l'Oiseau Vermillon. Bien qu'il fût touché par ces paroles, son visage ne trahit aucune émotion.
+Wang Lin réfléchit en silence. Il ne savait pas grand-chose sur la série de Suzaku. Bien qu'il fût touché par ces paroles, son visage ne trahit aucune émotion.

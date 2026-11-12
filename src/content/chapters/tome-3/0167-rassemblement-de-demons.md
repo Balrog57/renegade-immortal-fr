@@ -106,4 +106,4 @@ Duanmu Ji rit et répondit: « Seigneur Démon des Six Désirs, je ne vous ai pa
 
 Wang Lin joignit les mains et répondit: « Je vous en remercie! »
 
-L'homme en rouge hocha la tête avant de détourner le regard vers Duanmu Ji: « Il ne manque plus que le Bossu Meng. J'ai entendu dire qu'il avait offensé le Clan Ju Mo, d'un pays de culture de rang 4, il y a trois cents ans et qu'il était pourchassé par les dix grands démons de guerre du clan. J'ignore s'il est encore en vie. »
+L'homme en rouge hocha la tête avant de détourner le regard vers Duanmu Ji: « Il ne manque plus que Meng Tuozi. J'ai entendu dire qu'il avait offensé le Clan Ju Mo, d'un pays de culture de rang 4, il y a trois cents ans et qu'il était pourchassé par les dix grands démons de guerre du clan. J'ignore s'il est encore en vie. »

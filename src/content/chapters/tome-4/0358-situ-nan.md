@@ -10,7 +10,7 @@ slug: situ-nan
 
 Le regard de cet homme était d'une grande vivacité et sa peau semblait glacée. Sa seule présence paraissait engendrer, dans un rayon de 330 mètres, une brise froide capable d'emporter toute chaleur.
 
-En voyant Wang Lin sortir, un éclair de froideur traversa ses yeux. Il joignit les mains et dit: « Ceng Niu, remets-moi les trésors restants de l'éventail à plumes! »
+En voyant Wang Lin sortir, un éclair de froideur traversa ses yeux. Il joignit les mains et dit: « Zeng Niu, remets-moi les trésors restants de l'éventail à plumes! »
 
 Wang Lin jeta un coup d'œil au jeune homme. Son niveau de culture était celui du milieu du stade de la Formation de l'Âme. Wang Lin sortit les deux plumes et les lança sur le côté. Les extrémités des plumes s'enfoncèrent dans une montagne voisine, tandis que leurs pointes dépassantes oscillaient doucement sous l'effet du vent.
 
@@ -24,7 +24,7 @@ Wang Lin rit. Au lieu de reculer, il chargea en avant et lança les deux cloches
 
 Des fissures apparurent immédiatement sur les lames de glace qui finirent par toutes éclater. Tandis que les cloches résonnaient, des craquelures se formèrent même sur la montagne.
 
-L'expression de Liao Fan resta calme. Il avait déjà entendu parler de la puissance de ce Ceng Niu. Sa mission ici n'était pas de récupérer un trésor, mais d'effectuer une reconnaissance.
+L'expression de Liao Fan resta calme. Il avait déjà entendu parler de la puissance de ce Zeng Niu. Sa mission ici n'était pas de récupérer un trésor, mais d'effectuer une reconnaissance.
 
 Une fois au sol, ses mains formèrent un sceau, son regard se fit glacial et il projeta le sceau en avant. Une lumière blanche émana soudainement de son corps pour former une illusion devant lui. Cette illusion n'était pas celle de la fée des neiges que Wang Lin connaissait bien, mais celle d'un vieil homme assis en position de lotus.
 
@@ -42,13 +42,13 @@ C'était rapide comme l'éclair.
 
 Le corps de Wang Lin disparut dans une téléportation et réapparut dans le ciel. Le gaz généré par l'image semblait doué d'une volonté propre et le poursuivit.
 
-« Ceng Niu, si tu n'as que ces moyens, alors meurs aujourd'hui! » Liao Fan fixa Wang Lin et ricana en sortant une horloge de bronze.
+« Zeng Niu, si tu n'as que ces moyens, alors meurs aujourd'hui! » Liao Fan fixa Wang Lin et ricana en sortant une horloge de bronze.
 
 Douze symboles ornaient cette horloge. Ils représentaient les douze mois de Suzaku. Sous eux se trouvaient d'innombrables lignes plus fines représentant chaque jour du mois.
 
 Il frappa l'horloge de la main gauche et elle se mit à tourner. Le symbole représentant le mois d'août commença à briller, puis l'une des petites lignes s'illumina également.
 
-« Nous sommes le 9 août. Ceng Niu, c'est le jour de ta mort! » Alors que Liao Fan achevait sa phrase, il lança l'horloge de bronze en l'air. Une énorme griffe spectrale surgit de l'horloge, abritant deux éclats de lumière dorée.
+« Nous sommes le 9 août. Zeng Niu, c'est le jour de ta mort! » Alors que Liao Fan achevait sa phrase, il lança l'horloge de bronze en l'air. Une énorme griffe spectrale surgit de l'horloge, abritant deux éclats de lumière dorée.
 
 L'expression de Wang Lin resta sereine. Sa main forma un sceau et pointa les deux cloches. Les deux cloches tournoyantes entrèrent soudainement en collision et volèrent en éclats.
 
@@ -66,7 +66,7 @@ De nouvelles ondulations se produisirent et le gaz finit par disparaître.
 
 Wang Lin renifla, toucha son sac de rangement et en sortit l'épée céleste. D'un seul revers, il détruisit la griffe et une fissure apparut sur l'horloge de bronze.
 
-Liao Fan fut également frappé à la poitrine par cette attaque, ce qui le fit cracher du sang. Repoussé de plusieurs pas, le visage pâle, ses yeux révélèrent pourtant une pointe de joie alors qu'il riait: « Ceng Niu, prépare-toi à mourir! »
+Liao Fan fut également frappé à la poitrine par cette attaque, ce qui le fit cracher du sang. Repoussé de plusieurs pas, le visage pâle, ses yeux révélèrent pourtant une pointe de joie alors qu'il riait: « Zeng Niu, prépare-toi à mourir! »
 
 Wang Lin fronça les sourcils. À cet instant précis, un rugissement jaillit de l'intérieur de l'horloge de bronze. De nouvelles fissures apparurent sur l'objet et, soudainement, un bras desséché surgit. Après avoir tremblé une fois, l'horloge de bronze se transforma en fragments de ferraille qui s'effondrèrent au sol.
 

@@ -26,9 +26,9 @@ Wang Lin fixa la sphère de tonnerre jusqu'à ce que sa perception en change vag
 
 Après un moment de réflexion, Wang Lin serra la main droite et la sphère de tonnerre se dispersa en d'innombrables éclairs. À cet instant, des flammes jaillirent de son œil gauche, formant une mer de feu.
 
-Un fantôme d'Oiseau Vermillon apparut au sein de cette mer de flammes.
+Un fantôme de Suzaku apparut au sein de cette mer de flammes.
 
-Wang Lin observa attentivement, et l'Oiseau Vermillon devint transparent. La mer de flammes infinie se transforma en lignes rouges que Wang Lin pouvait désormais voir clairement.
+Wang Lin observa attentivement, et Suzaku devint transparent. La mer de flammes infinie se transforma en lignes rouges que Wang Lin pouvait désormais voir clairement.
 
 « Selon ma compréhension de la culture, pour atteindre le stade du Purificateur du Nirvana, je dois maîtriser complètement une ou plusieurs lois. Je pourrai alors utiliser cette loi pour absorber l'énergie originelle du monde et faire en sorte que l'énergie originelle dans mon corps ne s'épuise jamais.
 

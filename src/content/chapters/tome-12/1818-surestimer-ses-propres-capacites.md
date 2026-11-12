@@ -8,7 +8,7 @@ slug: surestimer-ses-propres-capacites
 ---
 « Cela... Je ne suis allé que sur le Continent Yun Tao, le Continent Kang Yang et le Continent Ning Shen. Ce n'est qu'environ la moitié du continent oriental tout entier. Au sein de ces trois continents, il n'existe aucune veine de tonnerre.
 
-« Je ne connais vraiment pas la réponse à votre question... Mais je peux vous aider à vous renseigner. Peut-être que quelqu'un au sein de la Secte Da Hun le sait. Après tout, la Secte Da Hun est l'une des neuf sectes et treize factions. Leurs disciples partent pour se tester et rapportent souvent leurs découvertes à la secte. Cela fait partie de leur entraînement. » Du Qing secoua la tête. Le Continent Astral Immortel était infini, et peu de personnes avaient parcouru l'intégralité du continent oriental. Du Qing n'avait visité que quatre continents au cours de sa vie, ce qui était déjà extraordinaire.
+« Je ne connais vraiment pas la réponse à votre question... Mais je peux vous aider à vous renseigner. Peut-être que quelqu'un au sein de la Secte Da Hun le sait. Après tout, la Secte Da Hun est l'une des neuf sectes et treize factions. Leurs disciples partent pour se tester et rapportent souvent leurs découvertes à la secte. Cela fait partie de leur entraînement. » Du Qing secoua la tête. Le Continent Xian Gang était infini, et peu de personnes avaient parcouru l'intégralité du continent oriental. Du Qing n'avait visité que quatre continents au cours de sa vie, ce qui était déjà extraordinaire.
 
 Wang Lin hocha la tête et réfléchit. Un instant plus tard, il regarda Du Qing et parla d'un ton très décontracté.
 
@@ -32,7 +32,7 @@ Il réfléchissait encore, et les paroles de Du Qing résonnaient dans son espri
 
 « Je dois aussi former un corps véritable d'essence pour mon essence de tonnerre... Je ne peux pas placer tous mes espoirs dans le bassin de Dong Lin... Après tout, les souvenirs de Sept Couleurs, Su Dao comportent peut-être une part d'exagération...
 
-« Si je veux former mon corps véritable d'essence de tonnerre, j'aurai besoin d'une immense quantité de tonnerre... Puisque le Continent Astral Immortel possède des veines de feu terrestre, il doit nécessairement exister des veines de tonnerre...
+« Si je veux former mon corps véritable d'essence de tonnerre, j'aurai besoin d'une immense quantité de tonnerre... Puisque le Continent Xian Gang possède des veines de feu terrestre, il doit nécessairement exister des veines de tonnerre...
 
 « Cependant, pour l'instant, la priorité est de former mon corps véritable d'essence de feu... Je devrai peut-être me rendre personnellement à la Secte Da Hun... » Wang Lin fronça les sourcils. Pour lui, la Secte Da Hun était un colosse difficile à ébranler.
 
@@ -42,7 +42,7 @@ Il réfléchissait encore, et les paroles de Du Qing résonnaient dans son espri
 
 Bientôt, Wang Lin abandonna l'idée de solliciter la Secte Gui Yi. Il y avait trop d'inconnues, et il n'aimait pas utiliser le nom d'autrui pour manipuler les autres.
 
-« Je dois compter sur moi-même. Bien que ce soit difficile, si je parviens à utiliser la Déformation Spatiale sur le Continent Astral Immortel, alors cela ne devrait pas être impossible... » Wang Lin ferma les yeux et cessa de songer à son corps véritable d'essence. Il commença lentement à chercher des moyens de fusionner avec le monde.
+« Je dois compter sur moi-même. Bien que ce soit difficile, si je parviens à utiliser la Déformation Spatiale sur le Continent Xian Gang, alors cela ne devrait pas être impossible... » Wang Lin ferma les yeux et cessa de songer à son corps véritable d'essence. Il commença lentement à chercher des moyens de fusionner avec le monde.
 
 Ce sort était crucial pour ses actions futures. Une fois qu'il l'aurait maîtrisé à nouveau, ses chances augmenteraient considérablement.
 
@@ -50,13 +50,13 @@ Alors que son Sens Divin se déployait, il s'étendit lentement depuis la grotte
 
 Au mieux, il ne pouvait qu'intégrer une infime parcelle. Cette fraction était insuffisante pour lui permettre de se déplacer loin; elle ne permettait qu'une téléportation sur une courte distance. Ce n'était pas ce que Wang Lin recherchait.
 
-Il semblait y avoir une barrière invisible l'empêchant de pénétrer. C'était la loi du Continent Astral Immortel, une forme de pression. Sous cette contrainte, il était difficile pour le Sens Divin d'une personne de s'y infiltrer.
+Il semblait y avoir une barrière invisible l'empêchant de pénétrer. C'était la loi du Continent Xian Gang, une forme de pression. Sous cette contrainte, il était difficile pour le Sens Divin d'une personne de s'y infiltrer.
 
 Ce n'était pas comme dans le monde des grottes, où il n'existait ni barrière invisible ni pression. Là-bas, tout cultivateur ayant compris la Déformation Spatiale pouvait fusionner avec le monde pour se déplacer.
 
 Mais en raison de cette pression, il ne parvenait pas à fusionner avec le monde pour utiliser la Déformation Spatiale.
 
-Wang Lin comprit vaguement que cette pression ne l'affectait pas uniquement lui, mais qu'elle était omniprésente sur tout le Continent Astral Immortel. C'est pourquoi même avec le niveau de culture de Du Qing, il ne pouvait y parvenir.
+Wang Lin comprit vaguement que cette pression ne l'affectait pas uniquement lui, mais qu'elle était omniprésente sur tout le Continent Xian Gang. C'est pourquoi même avec le niveau de culture de Du Qing, il ne pouvait y parvenir.
 
 « Peut-être qu'une fois que ma culture aura atteint un certain niveau, je pourrai forcer le passage et me déplacer ainsi... » Quelques jours plus tard, malgré de multiples tentatives, Wang Lin n'avait toujours pas réussi.
 
@@ -70,7 +70,7 @@ Du Qing était toujours présent au sein de la Secte Cang Long. Lorsqu'il avait 
 
 Après plusieurs jours d'observation, il comprit soudainement ce que Wang Lin tentait d'accomplir.
 
-« Il essaie de fusionner son Sens Divin avec le monde pour ensuite se déplacer en se fondant en lui... C'est tout simplement impossible... La téléportation est réalisable, mais cette méthode vise manifestement à voyager bien plus loin. Seuls les vieux monstres au sommet de la Tribulation du Vide, qui maîtrisent parfaitement les lois du Continent Astral Immortel et possèdent la force de résister à cette pression, peuvent le faire. » Du Qing secoua la tête et cessa peu à peu d'observer les agissements de Wang Lin.
+« Il essaie de fusionner son Sens Divin avec le monde pour ensuite se déplacer en se fondant en lui... C'est tout simplement impossible... La téléportation est réalisable, mais cette méthode vise manifestement à voyager bien plus loin. Seuls les vieux monstres au sommet de la Tribulation du Vide, qui maîtrisent parfaitement les lois du Continent Xian Gang et possèdent la force de résister à cette pression, peuvent le faire. » Du Qing secoua la tête et cessa peu à peu d'observer les agissements de Wang Lin.
 
 Après un mois, les disciples de la Secte Cang Long n'avaient pas réussi à trouver de veine de feu terrestre en dehors de la portée du Sens Divin de Wang Lin. Même les quatre anciens n'y étaient pas parvenus. Ils continuaient d'élargir leur périmètre de recherche.
 
@@ -108,13 +108,13 @@ Pour être plus précis, il utilisait cette méthode pour stimuler son avatar qu
 
 Après plusieurs jours d'essais, Wang Lin comprit qu'avec son niveau de culture, même en tentant pendant dix ans, cent ans ou davantage, il ne pourrait jamais briser cette pression exercée par le monde.
 
-Cependant, il lui restait un ultime recours: l'avatar grandissant dans le vide! Cet avatar était né au sein des lois du Continent Astral Immortel et pouvait même être considéré comme faisant partie de ces lois. Ainsi, la capacité de son Sens Divin à s'intégrer au monde dépendait de cet avatar.
+Cependant, il lui restait un ultime recours: l'avatar grandissant dans le vide! Cet avatar était né au sein des lois du Continent Xian Gang et pouvait même être considéré comme faisant partie de ces lois. Ainsi, la capacité de son Sens Divin à s'intégrer au monde dépendait de cet avatar.
 
 Toutefois, Wang Lin sentait que son avatar dormait et qu'il ne pourrait être éveillé sans une méthode spéciale. C'est pourquoi, durant ces sept mois, Wang Lin avait continué à déployer son Sens Divin jusqu'à l'épuisement, au point que son Âme Originelle montrait des signes de déclin.
 
 Le dernier jour du septième mois, l'Âme Originelle de Wang Lin s'étiolait faute d'avoir pu récupérer pendant si longtemps. C'est à cet instant précis que ses yeux projetèrent une lumière éclatante.
 
-Quelque part dans le vide séparant le monde des grottes du Continent Astral Immortel, une immense coquille de pierre flottait. À l'intérieur siégeait l'avatar endormi de Wang Lin, et soudain, celui-ci ouvrit les yeux.
+Quelque part dans le vide séparant le monde des grottes du Continent Xian Gang, une immense coquille de pierre flottait. À l'intérieur siégeait l'avatar endormi de Wang Lin, et soudain, celui-ci ouvrit les yeux.
 
 Au moment où l'avatar ouvrit les yeux, Du Qing attendait avec mépris de voir Wang Lin se ridiculiser, mais son expression changea brusquement. Il afficha la même horreur qu'il avait montrée sept mois auparavant!
 

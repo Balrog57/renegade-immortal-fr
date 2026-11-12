@@ -92,7 +92,7 @@ Cette scène, où le sort passait à travers le symbole, ainsi que tous les éch
 
 Après cela, une lueur de cupidité traversa le regard de Zhao Yixuan. Quant à Xu Fei, son expression resta neutre, mais ses pupilles se contractèrent. Seul Murong Zhuo ne montrait aucune avidité, seulement de la stupéfaction.
 
-« Compagnons cultivateurs, continuons! » L'expression de Wang Lin était impassible. Les plus de dix symboles dorés entourés d'insectes tournaient autour de lui, lui conférant une présence terrifiante.
+« Daoïstes, continuons! » L'expression de Wang Lin était impassible. Les plus de dix symboles dorés entourés d'insectes tournaient autour de lui, lui conférant une présence terrifiante.
 
 Le corps de Wang Lin commença sa descente. Murong Zhuo ne dit rien et fit de même. Quant aux femmes, Zhao Yixuan et Xu Fei hésitèrent avant de le suivre, tout en maintenant une distance prudente avec Wang Lin; elles avaient manifestement peur de lui.
 

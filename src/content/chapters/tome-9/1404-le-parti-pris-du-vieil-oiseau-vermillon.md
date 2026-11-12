@@ -32,7 +32,7 @@ Le visage de Maître Simo changea. Il savait que ce vieil homme était le premie
 
 L'intention meurtrière dans les yeux de Maître Simo s'évanouit. Il joignit les mains et dit doucement: « La culture du Senior est transcendante. Le junior... le junior n'est pas de taille. »
 
-« Humph, tu n'oserais pas affronter ce vieil homme, mais tu veux provoquer mon junior? Tu mérites une correction! » Peu importe la façon dont l'Oiseau Vermillon regardait Maître Simo, il le trouvait insupportable. Il laissa échapper un reniflement froid et agita sa main droite.
+« Humph, tu n'oserais pas affronter ce vieil homme, mais tu veux provoquer mon junior? Tu mérites une correction! » Peu importe la façon dont Suzaku regardait Maître Simo, il le trouvait insupportable. Il laissa échapper un reniflement froid et agita sa main droite.
 
 Aucun sort ne sembla jaillir de ce geste, mais l'expression de Grand Maître Yun Luo changea radicalement et elle recula sans hésiter. Les pupilles de Maître Simo se rétractèrent également; il laissa échapper un rugissement en commençant à former des sceaux de mains. Cependant, avant qu'il ne puisse les achever, un grondement tonitruant retentit.
 
@@ -52,37 +52,37 @@ Sous la force de l'impact, Maître Simo laissa échapper un gémissement étouff
 
 Le visage de Grand Maître Yun Luo pâlit alors qu'elle reculait: « Senior, arrêtez, le Conseil Souverain... »
 
-Avant qu'elle ne puisse achever sa phrase, l'Oiseau Vermillon lui lança un regard féroce. « Petite fille, tais-toi! Si tu ne te tais pas, je te giflerai aussi! Ce vieil homme va opprimer les faibles aujourd'hui! »
+Avant qu'elle ne puisse achever sa phrase, Suzaku lui lança un regard féroce. « Petite fille, tais-toi! Si tu ne te tais pas, je te giflerai aussi! Ce vieil homme va opprimer les faibles aujourd'hui! »
 
 Cela força Grand Maître Yun Luo à se mordre la lèvre et à se taire.
 
 Maître Simo venait à peine de stabiliser sa posture que sa vision se troubla.
 
-« Qui es-tu pour oser traiter mon junior de "petit bâtard"? Tu es un bâtard, et toute ta famille est composée de bâtards! » Tandis qu'il parlait, l'Oiseau Vermillon se rapprocha à nouveau et envoya une gifle de la main gauche.
+« Qui es-tu pour oser traiter mon junior de "petit bâtard"? Tu es un bâtard, et toute ta famille est composée de bâtards! » Tandis qu'il parlait, Suzaku se rapprocha à nouveau et envoya une gifle de la main gauche.
 
 Maître Simo poussa un râle étouffé et cracha du sang. Repoussé, la colère monta en lui, mais cette rage ne fit qu'accroître la puissance du feu dans son corps. Il poussa un cri misérable et tenta de réprimer sa rage.
 
 « Si mon junior est un bâtard, cela ne fait-il pas de moi un bâtard aussi? Bon sang, tu oses insulter ce vieil homme? » Le vieil homme fixa Maître Simo et le poursuivit.
 
-« Le junior n'a pas... » L'esprit de Maître Simo trembla; il allait tenter de s'expliquer, mais ses paroles ne furent évidemment pas aussi rapides que l'Oiseau Vermillon. Ce dernier surgit soudainement et lui asséna une gifle de la main droite.
+« Le junior n'a pas... » L'esprit de Maître Simo trembla; il allait tenter de s'expliquer, mais ses paroles ne furent évidemment pas aussi rapides que Suzaku. Ce dernier surgit soudainement et lui asséna une gifle de la main droite.
 
 Le visage de Maître Simo, déjà tuméfié, gonfla davantage et il cracha du sang ainsi que quelques dents. Son corps fut projeté au loin.
 
-« Humph, tu oses insulter ce vieil homme?! » Une lueur meurtrière traversa les yeux de l'Oiseau Vermillon. S'il n'avait pas voulu que Wang Lin utilise Maître Simo pour faire étalage de sa puissance, il ne se serait pas contenté de trois gifles; il lui aurait instantanément pris la vie!
+« Humph, tu oses insulter ce vieil homme?! » Une lueur meurtrière traversa les yeux de Suzaku. S'il n'avait pas voulu que Wang Lin utilise Maître Simo pour faire étalage de sa puissance, il ne se serait pas contenté de trois gifles; il lui aurait instantanément pris la vie!
 
-L'Oiseau Vermillon osait pêcher un dragon et possédait un niveau de culture terrifiant. Bien que Maître Simo fût un cultivateur de la troisième étape, il venait tout juste d'atteindre ce stade. Si c'avait été quelqu'un d'autre, même doté de la culture de l'Oiseau Vermillon, il aurait hésité, car le Conseil Souverain soutenait Maître Simo.
+L'Oiseau Vermillon osait pêcher un dragon et possédait un niveau de culture terrifiant. Bien que Maître Simo fût un cultivateur de la troisième étape, il venait tout juste d'atteindre ce stade. Si c'avait été quelqu'un d'autre, même doté de la culture de Suzaku, il aurait hésité, car le Conseil Souverain soutenait Maître Simo.
 
-Cependant, l'Oiseau Vermillon n'en avait cure. Il n'avait qu'une seule pensée: personne ne pouvait provoquer le Clan Zhu Que! Même si ses adversaires possédaient une culture supérieure à la sienne, il s'en moquait. L'Ancêtre de la première génération s'en chargerait.
+Cependant, Suzaku n'en avait cure. Il n'avait qu'une seule pensée: personne ne pouvait provoquer le Clan Zhu Que! Même si ses adversaires possédaient une culture supérieure à la sienne, il s'en moquait. L'Ancêtre de la première génération s'en chargerait.
 
 Le parti pris du Clan Zhu Que se transmettait de génération en génération.
 
-Wang Lin esquissa un sourire en observant la scène. Il voyait en ce vieil homme l'ombre de Qing Shui et du cinquième Empereur Divin de l'Oiseau Vermillon.
+Wang Lin esquissa un sourire en observant la scène. Il voyait en ce vieil homme l'ombre de Qing Shui et du cinquième Empereur Divin de Suzaku.
 
-La personnalité de Wang Lin était parfois très simple: ceux qui lui étaient bienveillants recevaient des faveurs multipliées plusieurs fois. À l'instar de Situ Nan, Qing Shui, de l'ancien Empereur Divin de l'Oiseau Vermillon ou de Dun Tian... Les cultivateurs qui se disputaient le poste d'Ancien Déchu s'arrêtèrent et reculèrent. Les dizaines de milliers de cultivateurs des Terres Déchues manifestèrent un immense respect, et la dizaine de messagers du Grand Empereur levèrent également les yeux vers le ciel avec déférence.
+La personnalité de Wang Lin était parfois très simple: ceux qui lui étaient bienveillants recevaient des faveurs multipliées plusieurs fois. À l'instar de Situ Nan, Qing Shui, de l'ancien Empereur Divin de Suzaku ou de Dun Tian... Les cultivateurs qui se disputaient le poste d'Ancien Déchu s'arrêtèrent et reculèrent. Les dizaines de milliers de cultivateurs des Terres Déchues manifestèrent un immense respect, et la dizaine de messagers du Grand Empereur levèrent également les yeux vers le ciel avec déférence.
 
 Quant aux autres personnes suspendues dans le ciel, elles restèrent silencieuses.
 
-Après avoir giflé Maître Simo à plusieurs reprises, l'Oiseau Vermillon détourna son regard et retourna aux côtés de Wang Lin. Il ignora totalement Maître Simo, dans un état pitoyable, ainsi que la sombre Grand Maître Yun Luo.
+Après avoir giflé Maître Simo à plusieurs reprises, Suzaku détourna son regard et retourna aux côtés de Wang Lin. Il ignora totalement Maître Simo, dans un état pitoyable, ainsi que la sombre Grand Maître Yun Luo.
 
 « Ce vieil homme est très heureux que vous soyez tous réunis sur la Planète du Grand Empereur. Bien qu'il manque encore quelques vieux briscards, ce n'est pas grave. Puisque tout le monde est présent, je veux que vous soyez tous témoins de l'épreuve de mon troisième Jeune Empereur des Terres Déchues! »
 
@@ -102,11 +102,11 @@ Les yeux du vieillard s'illuminèrent et il laissa échapper un grognement froid
 
 Dans un éclat de lumière, le fragment d'ongle flotta devant Wang Lin.
 
-Les yeux de l'Oiseau Vermillon s'écarquillèrent en entendant l'insulte « vieux oiseau », mais lorsqu'il vit l'ongle, il éclata de rire. « Espèce de petit insecte empoisonné, tu es plutôt généreux! »
+Les yeux de Suzaku s'écarquillèrent en entendant l'insulte « vieux oiseau », mais lorsqu'il vit l'ongle, il éclata de rire. « Espèce de petit insecte empoisonné, tu es plutôt généreux! »
 
 « Prends-le. Cette chose contient le venin de ce petit insecte. C'est une arme redoutable contre tes ennemis! »
 
-Tandis qu'il parlait, l'Oiseau Vermillon leva la main droite et fit un geste vers l'arène. Il cria: « La Sélection des Anciens Délaissés est reportée, et l'épreuve du Jeune Empereur commence! »
+Tandis qu'il parlait, Suzaku leva la main droite et fit un geste vers l'arène. Il cria: « La Sélection des Anciens Délaissés est reportée, et l'épreuve du Jeune Empereur commence! »
 
 Sa voix tonna comme le tonnerre et résonna dans toute l'arène. Le rugissement d'une tortue dragon retentit, et la tortue géante, déjà apparue sous les coups de Wang Lin, surgit de l'arène, sa carapace se reformant plaque après plaque.
 

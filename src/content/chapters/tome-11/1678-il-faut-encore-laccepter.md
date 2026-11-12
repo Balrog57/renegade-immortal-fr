@@ -34,7 +34,7 @@ Le Maître Dao Bleu Rêve paraissait épuisé. Il semblait que même pour lui, a
 
 « Les blessures de Jiutian Mozun sont légèrement moins graves que celles de Miaoyin Daozun, mais son royaume de flammes de Joss a été détruit par moi, ce qui a endommagé son esprit. À l'avenir, il ne sera plus de taille face à vous! »
 
-« Grande Désolation a été le plus durement touché et s'est enfui en utilisant un sort secret. Il ne survivra pas plus de dix ans! » Sur ces mots, il s'assit et ferma les yeux pour cultiver.
+« Da Huang a été le plus durement touché et s'est enfui en utilisant un sort secret. Il ne survivra pas plus de dix ans! » Sur ces mots, il s'assit et ferma les yeux pour cultiver.
 
 L'expression de Li Qianmei était complexe. Elle avait été témoin des trois jours de combat, ayant observé son père lutter et affrontant des dangers mortels.
 

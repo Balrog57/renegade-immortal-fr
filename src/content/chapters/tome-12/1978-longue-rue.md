@@ -28,7 +28,7 @@ Elle savait qu'il n'était pas temps de s'expliquer; les mots étaient inutiles 
 
 Sans la moindre hésitation, l'Exalté Empyréen Hai Zi fit volte-face, lui confiant ses arrières. Elle chargea vers le motif triangulaire!
 
-Wang Lin fit trois pas vers le carré devant lui. À cet instant, le totem de l'âme du Taureau Céleste, sur son visage, se répandit sur tout son corps. Face à cette situation, il utilisa toute sa puissance sans retenue!
+Wang Lin fit trois pas vers le carré devant lui. À cet instant, le totem de l'âme du Tian Niu, sur son visage, se répandit sur tout son corps. Face à cette situation, il utilisa toute sa puissance sans retenue!
 
 D'un seul coup de poing, 98 images rémanentes surgirent. C'était un spectacle saisissant dans cette rue déserte. Ces 98 images lancèrent toutes des coups! Une fois fusionnées au corps de Wang Lin, elles équivalaient à la fusion de 99 sorts!
 
@@ -102,9 +102,9 @@ Neuf autres ombres apparurent plus loin dans la rue. Elles chargèrent sans hés
 
 « C'est donc tout? » Les yeux de Wang Lin, noyés dans le sang, restaient calmes. Une lueur meurtrière traversa son regard et il s'arrêta net alors que le dragon de glace approchait.
 
-Cet arrêt provoqua l'apparition d'un Taureau Céleste gigantesque autour de lui. Cette apparition fut si soudaine qu'elle en était terrifiante. Il semblait presque solide, comme si le véritable Taureau Céleste avait ressuscité!
+Cet arrêt provoqua l'apparition d'un Tian Niu gigantesque autour de lui. Cette apparition fut si soudaine qu'elle en était terrifiante. Il semblait presque solide, comme si le véritable Tian Niu avait ressuscité!
 
-« Mourez tous! » Wang Lin leva la tête; la tête du Taureau Céleste se dressa et percuta de plein fouet le dragon de glace. Le dragon poussa un hurlement lugubre tandis que des fissures se propageaient à une vitesse folle sur son corps avant qu'il ne vole en éclats!!
+« Mourez tous! » Wang Lin leva la tête; la tête du Tian Niu se dressa et percuta de plein fouet le dragon de glace. Le dragon poussa un hurlement lugubre tandis que des fissures se propageaient à une vitesse folle sur son corps avant qu'il ne vole en éclats!!
 
 Les neuf silhouettes apparurent alors que le dragon se brisait. Leurs visages étaient pétrifiés par la peur; ils crachèrent du sang et furent projetés en arrière, livides!
 

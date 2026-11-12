@@ -16,9 +16,9 @@ Par la suite, cinq mille cultivateurs furent répartis en équipes, chacune ayan
 
 Les équipes devaient se disperser et grignoter le territoire alentour en éliminant tout cultivateur croisé sur leur route. Des experts de l'Âme Naissante patrouilleraient aux alentours, prêts à les soutenir à tout moment et à contrer les cultivateurs ennemis du même niveau.
 
-Wang Lin fut affecté à la 8e escouade de la 10e brigade. L'escouade comptait près de trente personnes, issues de diverses sectes. Elle comprenait cinq cultivateurs au stade de l'Établissement des Fondations, tandis que les autres étaient aux 13e ou 14e niveaux de Condensation de Qi environ. Le chef de groupe était un cultivateur au stade de la Formation du Noyau de la Secte Xie Mo. Pour une raison quelconque, Wang Lin était le seul membre du Sanctuaire du Dieu de la Guerre au sein de son unité.
+Wang Lin fut affecté à la 8e escouade de la 10e brigade. L'escouade comptait près de trente personnes, issues de diverses sectes. Elle comprenait cinq cultivateurs au stade de l'Établissement des Fondations, tandis que les autres étaient aux 13e ou 14e niveaux de Condensation de Qi environ. Le chef de groupe était un cultivateur au stade de la Formation du Noyau de la Secte Xie Mo. Pour une raison quelconque, Wang Lin était le seul membre du Temple Zhan Shen au sein de son unité.
 
-Leur mission consistait à aider la 10e brigade à prendre le contrôle d'une veine spirituelle de taille moyenne. En tant que cultivateur de l'Établissement des Fondations du Sanctuaire du Dieu de la Guerre, Wang Lin reçut un trésor de stade Formation du Noyau. Ce trésor n'était pas très puissant: comme ils étaient distribués en grand nombre, la qualité de chacun était médiocre. On aurait pu dire qu'il était assez insignifiant.
+Leur mission consistait à aider la 10e brigade à prendre le contrôle d'une veine spirituelle de taille moyenne. En tant que cultivateur de l'Établissement des Fondations du Temple Zhan Shen, Wang Lin reçut un trésor de stade Formation du Noyau. Ce trésor n'était pas très puissant: comme ils étaient distribués en grand nombre, la qualité de chacun était médiocre. On aurait pu dire qu'il était assez insignifiant.
 
 Avant son départ, Feng Luan ordonna à quelqu'un d'appeler Wang Lin.
 

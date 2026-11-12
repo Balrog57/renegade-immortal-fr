@@ -18,9 +18,9 @@ Il gardait des souvenirs flous de ce qui se trouvait dans la direction d'où ém
 
 « Ce doit être là que se trouve la lignée des Gardiens... » Après une courte réflexion, l'homme d'âge moyen se redressa lentement. Lorsqu'il se leva, une lumière spectrale brilla et une robe noire apparut. La robe recouvrait son visage, ne laissant apparaître que ses cheveux d'une longueur déconcertante qui perçaient le tissu par une méthode spéciale.
 
-Il marcha vers les cieux, ses longs cheveux flottant derrière lui tels un dragon noir. À mesure qu'il s'élevait, sa silhouette se transformait en celle d'un dragon noir, donnant l'impression que cet homme était lui-même une créature mythique. Il vola en direction du Continent Astral Immortel, situé à une distance extrême de cet endroit.
+Il marcha vers les cieux, ses longs cheveux flottant derrière lui tels un dragon noir. À mesure qu'il s'élevait, sa silhouette se transformait en celle d'un dragon noir, donnant l'impression que cet homme était lui-même une créature mythique. Il vola en direction du Continent Xian Gang, situé à une distance extrême de cet endroit.
 
-À sa vitesse, il lui faudrait des centaines d'années pour atteindre le Continent Astral Immortel!
+À sa vitesse, il lui faudrait des centaines d'années pour atteindre le Continent Xian Gang!
 
 ***
 
@@ -104,7 +104,7 @@ Atteignant le sommet du Vide Arcanique, Wang Lin ouvrit les yeux, révélant un 
 
 Peu après, il agita de nouveau la main et le terrifiant corps véritable d'essence du tonnerre s'avança. Il se superposa à Wang Lin et, dans un craquèlement d'éclairs, fusionna avec lui, devenant une partie intégrante de son être.
 
-Dès que le corps véritable du tonnerre fut intégré, le corps de Wang Lin dégagea une aura choquante. Il sentit sa force croître de manière exponentielle. À ce stade, il pouvait affronter des cultivateurs du stade avancé de la Tribulation du Vide, même sans l'armure d'âme du Taureau Céleste!
+Dès que le corps véritable du tonnerre fut intégré, le corps de Wang Lin dégagea une aura choquante. Il sentit sa force croître de manière exponentielle. À ce stade, il pouvait affronter des cultivateurs du stade avancé de la Tribulation du Vide, même sans l'armure d'âme du Tian Niu!
 
 Et cela, sans même utiliser le tonnerre de massacre. S'il employait ce tonnerre terrifiant sans compter le prix, lui-même ignorait à quel point cette puissance serait dévastatrice...
 

@@ -80,6 +80,6 @@ Il avait l'intuition que, du fait qu'il pouvait voir la tour, il était désorma
 
 À cet instant, le regard de Wang Lin devint glacial et se tourna vers l'horizon. C'était la direction de la Secte Dao Mo!
 
-« Secte Dao Mo... Autrefois, j'avais fait la promesse de détruire l'intégralité de la Secte Dao Mo et son Dao. De faire en sorte qu'il n'y ait plus jamais de Secte Dao Mo sur le Continent Astral Immortel! » Wang Lin agita sa manche et la tempête autour de lui tourna avec une intensité accrue, formant une tornade noire qui l'emporta au loin.
+« Secte Dao Mo... Autrefois, j'avais fait la promesse de détruire l'intégralité de la Secte Dao Mo et son Dao. De faire en sorte qu'il n'y ait plus jamais de Secte Dao Mo sur le Continent Xian Gang! » Wang Lin agita sa manche et la tempête autour de lui tourna avec une intensité accrue, formant une tornade noire qui l'emporta au loin.
 
 Le châtiment de la Secte Dao Mo était arrivé!

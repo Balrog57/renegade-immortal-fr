@@ -14,7 +14,7 @@ slug: la-confiance-du-celeste-empereur
 
 « Il permettra à mon corps de recevoir une partie de l'héritage de l'Ancêtre Céleste, puis le fou et moi deviendrons les yeux de l'Ancêtre Céleste. De ce fait, la tête de l'Ancêtre Céleste retrouvera de la vitalité et ne sera plus une simple dépouille. Ce pouvoir appartenait à l'Ancêtre Céleste dès l'origine. Ensuite, alors qu'il sera à l'intérieur de l'œil droit, il utilisera une méthode inconnue pour forcer l'Ancêtre Céleste à prononcer quelques mots!
 
-« Avec cette méthode, il pourra parfaitement lever le sceau sur tout son clan! Après tout, ce sceau est une forme de restriction reconnue par les lois du Continent Astral Immortel. En réalité, lever ce sceau revient à tromper la Loi!
+« Avec cette méthode, il pourra parfaitement lever le sceau sur tout son clan! Après tout, ce sceau est une forme de restriction reconnue par les lois du Continent Xian Gang. En réalité, lever ce sceau revient à tromper la Loi!
 
 « Après tout, la Loi est morte et suit un ensemble de règles immuables. Avec la méthode de l'Enseignant Impérial, il pourrait bel et bien réussir! » Wang Lin n'avait jamais envisagé une manière aussi singulière de lever un sceau. Après en avoir été témoin, il ne put s'empêcher d'admirer la sagacité de l'Enseignant Impérial.
 

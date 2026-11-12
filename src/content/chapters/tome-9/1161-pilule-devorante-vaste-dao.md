@@ -34,15 +34,15 @@ Des souvenirs affluèrent dans l'esprit de Wang Lin, incluant la méthode de cul
 
 Le temps passa lentement. À la tombée de la nuit, Wang Lin retira sa main droite. Il rangea l'âme originelle affaiblie, mais pas encore morte, puis il regarda la pierre de jade en commençant à réfléchir.
 
-Wang Lin découvrit ce qui s'était passé avec la Secte Brise-Ciel il y a 18 000 ans et comprit également le rôle de cette pierre de jade.
+Wang Lin découvrit ce qui s'était passé avec la Secte Po Tian il y a 18 000 ans et comprit également le rôle de cette pierre de jade.
 
-Elle ne contenait ni sorts ni méthodes de culture. Ce n'était qu'un jeton d'identification: la marque du disciple principal de la Secte Brise-Ciel d'il y a 18 000 ans!
+Elle ne contenait ni sorts ni méthodes de culture. Ce n'était qu'un jeton d'identification: la marque du disciple principal de la Secte Po Tian d'il y a 18 000 ans!
 
-Cette personne s'appelait Sima Mo. Sans cet accident, il serait devenu le prochain maître de la Secte Brise-Ciel. C'est lui qui avait pris l'os de bête et un groupe de cultivateurs pour se séparer de la secte et disparaître dans le Système Stellaire de la Mer Yun.
+Cette personne s'appelait Sima Mo. Sans cet accident, il serait devenu le prochain maître de la Secte Po Tian. C'est lui qui avait pris l'os de bête et un groupe de cultivateurs pour se séparer de la secte et disparaître dans le Système Stellaire de la Mer Yun.
 
-Il y a 18 000 ans, la Secte Brise-Ciel, qui était entrée dans la région de rang 9, éprouvait des sentiments très complexes envers ses membres partis. Ils apprirent plus tard que ce groupe avait subi de lourdes pertes et avait totalement disparu. Le maître de la secte à l'époque, qui était le professeur de Sima Mo, avait alors émis un ordre qui dura des dizaines de milliers d'années!
+Il y a 18 000 ans, la Secte Po Tian, qui était entrée dans la région de rang 9, éprouvait des sentiments très complexes envers ses membres partis. Ils apprirent plus tard que ce groupe avait subi de lourdes pertes et avait totalement disparu. Le maître de la secte à l'époque, qui était le professeur de Sima Mo, avait alors émis un ordre qui dura des dizaines de milliers d'années!
 
-« À l'avenir, quiconque reviendra avec le jeton de Sima Mo sera autorisé à entrer dans la Secte Brise-Ciel et deviendra le disciple du maître de la secte de cette génération! »
+« À l'avenir, quiconque reviendra avec le jeton de Sima Mo sera autorisé à entrer dans la Secte Po Tian et deviendra le disciple du maître de la secte de cette génération! »
 
 Cet ordre se répandit dans toute la Mer Yun et attira l'attention de nombreux cultivateurs. Il excita l'intérêt de ceux qui cherchaient une opportunité de s'élever, et beaucoup partirent à la recherche d'indices sur les membres disparus. Cependant, au fil du temps, aucune découverte ne fut faite, et l'affaire finit par s'essouffler.
 

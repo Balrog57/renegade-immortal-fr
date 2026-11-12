@@ -16,7 +16,7 @@ Wang Lin esquissa un sourire fugace et secoua la tête sans répondre. Il contem
 
 « Je n'en dirai pas plus. Frère Du, si le destin le permet, nous nous reverrons. Adieu! » Wang Lin poussa un soupir et disparut d'un pas vers les cieux.
 
-En observant la silhouette de Wang Lin s'éloigner, Du Qing comprit vaguement quelque chose. Il laissa échapper un soupir secret et secoua la tête. Puis, il se transforma en un rayon de lumière pour regagner la Secte Da Hun afin d'annoncer à l'Ancêtre Taureau Vert qu'il avait accompli sa mission.
+En observant la silhouette de Wang Lin s'éloigner, Du Qing comprit vaguement quelque chose. Il laissa échapper un soupir secret et secoua la tête. Puis, il se transforma en un rayon de lumière pour regagner la Secte Da Hun afin d'annoncer à l'Ancêtre Qing Niu qu'il avait accompli sa mission.
 
 Wang Lin fusionna avec le monde et quitta la Secte Qi Dao. Il apparut dans un désert désolé, une contrée peu commune sur le Continent Tian Niu.
 
@@ -42,7 +42,7 @@ Wang Lin ne connaissait que peu de choses sur les armures de la Secte Gui Yi, ma
 
 Cependant, ces armures ne pouvaient rivaliser avec celle contenue dans la sphère, ni par leur apparence, ni par leur aura! Même Wang Lin, malgré ses connaissances limitées, pouvait constater qu'elles n'étaient pas du même rang.
 
-Cette armure humanoïde était probablement une rareté, même au sein de la Secte Gui Yi! Wang Lin ignorait quel prix l'Ancêtre Taureau Vert avait dû payer pour en obtenir une pour lui.
+Cette armure humanoïde était probablement une rareté, même au sein de la Secte Gui Yi! Wang Lin ignorait quel prix l'Ancêtre Qing Niu avait dû payer pour en obtenir une pour lui.
 
 Wang Lin resta silencieux, plongé dans ses pensées.
 
@@ -52,7 +52,7 @@ Wang Lin pouvait ressentir l'aura de la Voile Fantôme principale, celle qui ser
 
 En contemplant cette petite voile, Wang Lin fut envahi par un sentiment indescriptible.
 
-La Voile Fantôme de protection était cruciale pour la Secte Da Hun. Pourtant, l'Ancêtre Taureau Vert la lui avait offerte de manière inattendue.
+La Voile Fantôme de protection était cruciale pour la Secte Da Hun. Pourtant, l'Ancêtre Qing Niu la lui avait offerte de manière inattendue.
 
 Wang Lin ne put que méditer en silence.
 
@@ -62,9 +62,9 @@ La troisième sphère contenait une perle brune. Cette perle était de la même 
 
 Bien que très semblable, cette perle était comme une luciole comparée à la lune éclatante. Comme deux astres que l'on contemple, l'une pouvait devenir le soleil, tandis que l'autre ne resterait qu'une faible lueur stellaire.
 
-Wang Lin ressentit l'aura du Taureau Céleste émanant de cet objet. Bien qu'il n'en connût pas la nature exacte, il avait ses intuitions: elle possédait un lien profond avec le Taureau Céleste.
+Wang Lin ressentit l'aura du Tian Niu émanant de cet objet. Bien qu'il n'en connût pas la nature exacte, il avait ses intuitions: elle possédait un lien profond avec le Tian Niu.
 
-Tout ce qui était lié au Taureau Céleste constituait un trésor inestimable pour le Continent Tian Niu. Un tel objet ne serait jamais donné si facilement, et on n'autoriserait jamais son départ du continent. Pourtant, la perle avait été envoyée à Wang Lin. Bien qu'elle parût légère, elle pesait lourdement sur son cœur.
+Tout ce qui était lié au Tian Niu constituait un trésor inestimable pour le Continent Tian Niu. Un tel objet ne serait jamais donné si facilement, et on n'autoriserait jamais son départ du continent. Pourtant, la perle avait été envoyée à Wang Lin. Bien qu'elle parût légère, elle pesait lourdement sur son cœur.
 
 Enfin, il y avait la quatrième sphère de lumière. Elle renfermait une carapace de tortue brisée, couverte de motifs complexes. À l'œil nu, ils étaient flous, mais lorsqu'il utilisa son Sens Divin, Wang Lin tourna soudain le regard vers la Secte Da Hun.
 
@@ -74,13 +74,13 @@ La carapace contenait la carte intégrale du Continent de l'Est. Elle manquait d
 
 Mais cette carte était d'une importance vitale pour Wang Lin en cet instant!
 
-En plus de la carte, la carapace offrait une description détaillée de la perle du Taureau Céleste, ce qui éclaira grandement l'esprit de Wang Lin.
+En plus de la carte, la carapace offrait une description détaillée de la perle du Tian Niu, ce qui éclaira grandement l'esprit de Wang Lin.
 
-L'Ancêtre Taureau Vert n'avait laissé qu'une seule phrase. Ce n'était pas un message transmis par le Sens Divin, mais une inscription gravée dans la carapace elle-même.
+L'Ancêtre Qing Niu n'avait laissé qu'une seule phrase. Ce n'était pas un message transmis par le Sens Divin, mais une inscription gravée dans la carapace elle-même.
 
 « Bon voyage... Dans trois cents ans, reviens voir la Secte Da Hun... » Il n'y avait aucune explication, ni mention des trois conditions. Cette unique phrase suffisait à clore le karma liant Wang Lin au Continent Tian Niu.
 
-L'expression de Wang Lin devint complexe. Après un long moment, il rangea l'armure humanoïde et la Voile Fantôme. Il prit la Perle du Taureau Céleste et y insuffla l'âme du Taureau Céleste; désormais, il pourrait l'emporter partout avec lui.
+L'expression de Wang Lin devint complexe. Après un long moment, il rangea l'armure humanoïde et la Voile Fantôme. Il prit la Perle du Tian Niu et y insuffla l'âme du Tian Niu; désormais, il pourrait l'emporter partout avec lui.
 
 Enfin, il rangea soigneusement la carapace de tortue et regarda une dernière fois vers la Secte Da Hun. Il joignit les mains et s'inclina avec respect.
 
@@ -112,7 +112,7 @@ Il lui faudrait encore plus de la moitié d'un mois avant de pouvoir utiliser à
 
 Non loin de lui, dans le crépuscule neigeux, une ville mortelle émettait des lueurs diffuses. La fumée s'élevait vers le ciel pour se fondre dans les flocons. C'était une scène empreinte de calme et de beauté.
 
-C'était la première fois que Wang Lin pénétrait dans le monde mortel du Continent Astral Immortel. Bien que cet endroit fût encore éloigné de la Mer Dan, il pouvait être considéré comme un voisin proche, mais n'avait pas été détruit lors de l'effondrement de la Mer Dan.
+C'était la première fois que Wang Lin pénétrait dans le monde mortel du Continent Xian Gang. Bien que cet endroit fût encore éloigné de la Mer Dan, il pouvait être considéré comme un voisin proche, mais n'avait pas été détruit lors de l'effondrement de la Mer Dan.
 
 Aucun mortel n'aurait dû périr lors de l'effondrement de la Mer Dan. Après tout, la légende de cet endroit circulait depuis très longtemps. Que ce soit le Continent Lu Mo ou le Continent Tian Niu, ils avaient tous deux fait de la zone environnante une terre interdite pour les mortels.
 

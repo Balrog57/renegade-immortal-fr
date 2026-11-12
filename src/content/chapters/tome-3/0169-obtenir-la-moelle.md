@@ -16,7 +16,7 @@ Le serpent qui descendait du ciel tordit son corps pour amorcer une rotation et 
 
 Cette fumée était redoutable; dès que les piliers de pierre environnants la touchaient, ils se transformaient en poussière noire et disparaissaient.
 
-La fumée noire rejetée par le serpent fut interceptée par le Bossu Meng. Il toucha l'une des pustules sur son visage et la perça. Une odeur fétide et un liquide noir s'en échappèrent avec une puissance extrême.
+La fumée noire rejetée par le serpent fut interceptée par Meng Tuozi. Il toucha l'une des pustules sur son visage et la perça. Une odeur fétide et un liquide noir s'en échappèrent avec une puissance extrême.
 
 Le corps du bossu disparut soudainement. Lorsqu'il réapparut, il se trouvait déjà devant la fumée noire. Son visage était terrifiant à cet instant alors qu'il ouvrait la bouche pour aspirer tout le nuage sombre. Graduellement, la bosse dans son dos s'étira et grandit. Une fois toute la fumée absorbée, il semblait porter une petite montagne sur le dos.
 
@@ -48,7 +48,7 @@ Alors que la créature serpentine repoussait une fois de plus l'épée noire, el
 
 Le Sens Divin de Wang Lin était resté focalisé sur la créature serpentine tout au long du combat. Lorsqu'elle avait ouvert la gueule, il avait clairement vu un serpent plus petit s'envoler. Ce dernier avait mordu la cloche avant de se retirer prestement.
 
-Les yeux du Bossu Meng brillèrent alors qu'il observait la créature depuis un pilier de pierre au loin. Il se lécha les lèvres, prêt à charger, mais la bête avait déjà refermé sa gueule béante.
+Les yeux de Meng Tuozi brillèrent alors qu'il observait la créature depuis un pilier de pierre au loin. Il se lécha les lèvres, prêt à charger, mais la bête avait déjà refermé sa gueule béante.
 
 Wang Lin remarqua le comportement anormal du bossu. Il se méfiait de tous les présents, et plus particulièrement de cet expert en poisons.
 
@@ -78,11 +78,11 @@ Le corps de la créature s'immobilisa un instant avant de laisser échapper un h
 
 À cet instant, une lueur de froideur traversa les yeux de Wang Lin. C'était le moment qu'il attendait. Il bondit brusquement; l'aspiration du vortex doublait sa vitesse, et il s'engouffra dans la gueule de la créature.
 
-Au même moment, une lumière verte passa à ses côtés: c'était le Bossu Meng qui, observant la scène d'un regard froid depuis la distance, avait eu la même idée. Le bossu fut brièvement surpris par la présence de Wang Lin avant de laisser échapper un léger sourire d'admiration.
+Au même moment, une lumière verte passa à ses côtés: c'était Meng Tuozi qui, observant la scène d'un regard froid depuis la distance, avait eu la même idée. Le bossu fut brièvement surpris par la présence de Wang Lin avant de laisser échapper un léger sourire d'admiration.
 
 Cependant, ce sourire semblait empreint d'une certaine cruauté.
 
-Le Bossu Meng dépassa Wang Lin. Son objectif était l'autre serpent logé dans la gueule de la créature. Voyant cela, Wang Lin changea immédiatement de trajectoire. Il suivit l'œsophage pour s'enfoncer plus profondément; sa cible était la colonne vertébrale de la bête.
+Meng Tuozi dépassa Wang Lin. Son objectif était l'autre serpent logé dans la gueule de la créature. Voyant cela, Wang Lin changea immédiatement de trajectoire. Il suivit l'œsophage pour s'enfoncer plus profondément; sa cible était la colonne vertébrale de la bête.
 
 Li Muwan lui avait dit un jour que, pour ces créatures semblables à des dragons, la partie la plus précieuse n'était pas le noyau, mais la moelle. C'était pour cette moelle que Wang Lin risquait sa vie.
 
@@ -90,11 +90,11 @@ Depuis qu'il avait aperçu la créature, il l'observait secrètement. Selon Li M
 
 Bien qu'il ignorât si cette créature était véritablement un dragon, même dans le cas contraire, elle appartenait à une lignée similaire. S'il parvenait à obtenir la moelle, elle aurait au moins un certain effet.
 
-C'est pour cela qu'il s'était précipité dès que la gueule s'était ouverte une seconde fois. Il savait aussi que le Bossu Meng ferait de même; il avait observé les expressions changeantes du bossu lors de la première ouverture de la gueule.
+C'est pour cela qu'il s'était précipité dès que la gueule s'était ouverte une seconde fois. Il savait aussi que Meng Tuozi ferait de même; il avait observé les expressions changeantes du bossu lors de la première ouverture de la gueule.
 
-Cela renforça sa détermination. Initialement, il craignait d'être suspecté après avoir récupéré la moelle, mais avec la présence du Bossu Meng, tout incident anormal pourrait lui être imputé.
+Cela renforça sa détermination. Initialement, il craignait d'être suspecté après avoir récupéré la moelle, mais avec la présence de Meng Tuozi, tout incident anormal pourrait lui être imputé.
 
-De plus, ils avaient choisi deux trajectoires différentes qui n'avaient aucune chance de se croiser. Le Bossu Meng ne remarquerait pas les actions de Wang Lin, et il ne devrait donc y avoir aucun problème.
+De plus, ils avaient choisi deux trajectoires différentes qui n'avaient aucune chance de se croiser. Meng Tuozi ne remarquerait pas les actions de Wang Lin, et il ne devrait donc y avoir aucun problème.
 
 Et même en cas de complication, ils n'agiraient pas contre lui. Après tout, ces gens ne convoitaient pas la moelle, mais la dépouille de l'Ancien Dieu.
 

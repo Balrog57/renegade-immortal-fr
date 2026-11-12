@@ -44,7 +44,7 @@ Juste au moment où le feu du karma allait l'anéantir, un cri de Oiseau Vermill
 
 Un Oiseau Vermillon apparut au cœur des flammes noires. L'oiseau était immense, et il n'était plus bleu mais noir! C'était comme un phénix noir renaissant au sein du brasier sombre.
 
-Le cri de l'Oiseau Vermillon résonna à travers le monde entier. Il pénétra l'Épreuve Humaine et se propagea depuis le bâton d'encens sur le dos de la tortue. Il ébranla la Planète du Grand Empereur tout entière!
+Le cri de Suzaku résonna à travers le monde entier. Il pénétra l'Épreuve Humaine et se propagea depuis le bâton d'encens sur le dos de la tortue. Il ébranla la Planète du Grand Empereur tout entière!
 
 Miaoyin Daozun, élégant comme un jeune homme, attendait depuis plusieurs jours, mais il n'avait montré aucune impatience. Il venait de sortir une autre pêche et s'apprêtait à la manger quand son corps fut parcouru d'un tremblement. Il fixa le premier bâton d'encens!
 
@@ -60,7 +60,7 @@ Le cri de ce Oiseau Vermillon n'avait effectivement rien d'ordinaire. Il contena
 
 Le visage de la Grande Maîtresse Yun Luo afficha également un choc profond. Sa main droite, dissimulée sous sa manche, s'agita avec une telle rapidité qu'elle créa des images rémanentes. Cependant, ses doigts tremblèrent et les empreintes de ses cinq doigts se déchirèrent, laissant jaillir le sang. C'était comme si une force avait stoppé sa divination! Ou bien la situation actuelle de Wang Lin dépassait les capacités de son pouvoir divinatoire!
 
-Le vieux Oiseau Vermillon laissa paraître une pointe d'excitation et éclata d'un rire. Ses yeux s'illuminèrent. En tant que deuxième génération de l'Oiseau Vermillon, il comprenait parfaitement ce cri. Rien qu'en l'entendant, il pouvait comprendre ce qui se jouait au sein de l'Épreuve Humaine!
+Le vieux Oiseau Vermillon laissa paraître une pointe d'excitation et éclata d'un rire. Ses yeux s'illuminèrent. En tant que deuxième génération de Suzaku, il comprenait parfaitement ce cri. Rien qu'en l'entendant, il pouvait comprendre ce qui se jouait au sein de l'Épreuve Humaine!
 
 « Bon garçon, il a réussi à reformer son Oiseau Vermillon sous le feu du karma!! Après cela viendront les neuf rétributions karmiques. C'est la partie la plus périlleuse! »
 
@@ -76,9 +76,9 @@ L'Oiseau Vermillon noir était formé par l'âme de Wang Lin!
 
 « Le feu du karma est allumé et va consumer le cycle du karma. Aidez mon Oiseau Vermillon à s'éveiller pour la quatrième fois! » L'Oiseau Vermillon noir siffla et chargea vers le ciel. Lorsqu'il atteignit son apogée, un brasier noir jaillit de son corps.
 
-De loin, ce feu ressemblait à une torche géante, dont le cœur était l'Oiseau Vermillon dansant!
+De loin, ce feu ressemblait à une torche géante, dont le cœur était Suzaku dansant!
 
-« Avec mon obsession... » La voix de Wang Lin résonna à travers le monde. Le feu entourant Wang Lin se transforma en une mer de flammes qui s'étendit avec l'Oiseau Vermillon pour centre.
+« Avec mon obsession... » La voix de Wang Lin résonna à travers le monde. Le feu entourant Wang Lin se transforma en une mer de flammes qui s'étendit avec Suzaku pour centre.
 
 En un clin d'œil, tout le ciel fut recouvert par ce feu noir, mais aucune créature vivante dans l'Épreuve Humaine ne put le ressentir!
 
@@ -114,19 +114,19 @@ Le Maître Simo fixait intensément le bâton d'encens humain.
 
 Le visage de la Grande Maîtresse Yun Luo était blême, et une ombre sinistre perçait dans ses yeux.
 
-À l'intérieur de l'Épreuve Humaine, Wang Lin contemplait le ciel, debout sur l'Oiseau Vermillon noir. Son corps dégageait d'infinies flammes noires et il prit une profonde inspiration. Il baissa les yeux vers la silhouette délicate affalée au sol sur le sommet de la montagne et murmura doucement:
+À l'intérieur de l'Épreuve Humaine, Wang Lin contemplait le ciel, debout sur Suzaku noir. Son corps dégageait d'infinies flammes noires et il prit une profonde inspiration. Il baissa les yeux vers la silhouette délicate affalée au sol sur le sommet de la montagne et murmura doucement:
 
 « Je suis Wang Lin! » Après avoir prononcé ses derniers mots à Li Muwan, il redressa soudainement la tête.
 
 « Neuf rétributions karmiques, venez! »
 
-Les neuf rétributions karmiques étaient le châtiment du feu du karma. La première génération de l'Oiseau Vermillon avait failli perdre la vie face à cette épreuve. Sans la protection de l'Empereur Céleste, il aurait péri.
+Les neuf rétributions karmiques étaient le châtiment du feu du karma. La première génération de Suzaku avait failli perdre la vie face à cette épreuve. Sans la protection de l'Empereur Céleste, il aurait péri.
 
-À cet instant, Wang Lin allait affronter les neuf rétributions en tant que sixième génération de l'Oiseau Vermillon, sans personne pour le protéger!
+À cet instant, Wang Lin allait affronter les neuf rétributions en tant que sixième génération de Suzaku, sans personne pour le protéger!
 
 Des feux rouges, orangés, jaunes, verts, indigo, bleus et violets apparurent dans le monde, encadrés par le blanc et le noir. Ces neuf couleurs représentaient les neuf rétributions, chaque couleur marquant un tour. Le cycle commençait et se terminait par le feu noir, formant une boucle parfaite.
 
-S'il parvenait à toutes les franchir, il pourrait enflammer le feu karmique, permettant ainsi à l'Oiseau Vermillon de s'éveiller pour la quatrième fois. Son feu réel se transformerait alors et il entrerait dans le royaume du Feu Éthéré!
+S'il parvenait à toutes les franchir, il pourrait enflammer le feu karmique, permettant ainsi à Suzaku de s'éveiller pour la quatrième fois. Son feu réel se transformerait alors et il entrerait dans le royaume du Feu Éthéré!
 
 Neuf rétributions karmiques, descendez!
 

@@ -34,7 +34,7 @@ Wang Lin ricana. Puisque tous les faux-semblants avaient été déchirés, il n'
 
 Il pénétra dans le 14e palais!
 
-« L'armure de l'âme ne me laisse plus beaucoup de temps. Puisque je veux choquer tout le monde, je dois utiliser l'avatar formé par la loi du Continent Astral Immortel!! Avatar, utilise l'âme comme guide et fusionne!! » La silhouette de Wang Lin disparut dans le 14e palais.
+« L'armure de l'âme ne me laisse plus beaucoup de temps. Puisque je veux choquer tout le monde, je dois utiliser l'avatar formé par la loi du Continent Xian Gang!! Avatar, utilise l'âme comme guide et fusionne!! » La silhouette de Wang Lin disparut dans le 14e palais.
 
 Après l'entrée de Wang Lin dans le 14e palais, tous les cultivateurs en contrebas furent plongés dans le silence. Ce changement fut tout aussi soudain que lorsqu'ils apprirent qu'il avait utilisé l'armure de l'âme pour franchir le 13e palais.
 

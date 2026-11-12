@@ -16,15 +16,15 @@ Une douleur intense irradia entre ses sourcils; c'était comme si une paire de m
 
 Le hurlement de la flèche était d'une acuité extrême. L'intention meurtrière contenue dans ce son fit pâlir tous les cultivateurs présents dans la formation.
 
-La distance de 1 000 pieds était devenue insignifiante. Alors que le rugissement résonnait, la tête de l'Ordre Antique à sept étoiles devant Wang Lin commença à se déformer violemment. C'était comme si une puissance indescriptible convergeait vers lui!
+La distance de 1 000 pieds était devenue insignifiante. Alors que le rugissement résonnait, la tête de Dao Gu à sept étoiles devant Wang Lin commença à se déformer violemment. C'était comme si une puissance indescriptible convergeait vers lui!
 
 Cette flèche avait été décochée pour tuer!
 
-En un instant, la flèche se rapprocha et percuta la tête de l'Ordre Antique. Tandis que le grondement tonitruant résonnait, même la tête de l'Ordre Antique de Wang Lin ne put résister longtemps. La tête fut transpercée et la flèche était sur le point de briser la barrière pour atteindre Wang Lin!
+En un instant, la flèche se rapprocha et percuta la tête de Dao Gu. Tandis que le grondement tonitruant résonnait, même la tête de Dao Gu de Wang Lin ne put résister longtemps. La tête fut transpercée et la flèche était sur le point de briser la barrière pour atteindre Wang Lin!
 
 Le corps de Wang Lin ne s'était pas encore complètement intégré au monde. Alors que la flèche blanche approchait, le sentiment d'une crise de vie ou de mort s'intensifia. Wang Lin afficha un regard déterminé et agita la main!
 
-Les mains de son corps de Dieu Ancestral plongèrent dans la tête de l'Ordre Antique pour saisir la flèche fantôme blanche!
+Les mains de son corps de Dieu Ancestral plongèrent dans la tête de Dao Gu pour saisir la flèche fantôme blanche!
 
 Au moment où ses mains touchèrent la flèche, Wang Lin sentit une force puissante pénétrer son corps. Même son corps de Dieu Ancestral à sept étoiles peinait à contenir cette puissance. Son corps trembla et il cracha du sang. Il fut contraint de rompre sa semi-fusion avec le monde pour reculer.
 

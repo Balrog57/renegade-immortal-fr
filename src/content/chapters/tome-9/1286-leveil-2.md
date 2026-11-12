@@ -72,13 +72,13 @@ La vieille femme ricana. Après un long silence, elle reprit: « Tu veux savoir?
 
 « Je ne sais pas comment vous vous êtes rencontrés, mais savais-tu qu'il y a dix ans, Li Qianmei a renoncé à l'immense opportunité de devenir disciple de la Secte Démon et à l'estime que celle-ci lui portait? Elle fut la première à quitter le champ de bataille, tout cela pour rencontrer quelqu'un à la Secte Éternelle!
 
-« La Secte Démon ne voulait évidemment pas de cela, et même sa propre Secte Brise-Ciel n'était pas satisfaite. Une fois un tel précédent établi, d'autres ne respecteraient plus les règles, naturellement! Ce qu'elle a perdu n'a rien à voir avec toi, et même si tu l'ignorais, cela ne te ferait aucun mal! »
+« La Secte Démon ne voulait évidemment pas de cela, et même sa propre Secte Po Tian n'était pas satisfaite. Une fois un tel précédent établi, d'autres ne respecteraient plus les règles, naturellement! Ce qu'elle a perdu n'a rien à voir avec toi, et même si tu l'ignorais, cela ne te ferait aucun mal! »
 
 Wang Lin était bouleversé. Il ignorait tout de cela. Lorsqu'il avait rencontré Li Qianmei à la Secte Éternelle, elle n'avait jamais mentionné ces faits.
 
 « Savais-tu qu'il y a dix ans, Li Qianmei est retournée dans sa secte sur ordre de son maître? Tu devrais le savoir. Savais-tu qu'après son retour, elle fut immédiatement retenue par son maître et n'eut pas le droit de sortir pendant trois mois? Pourquoi l'avoir enfermée ainsi? Parce qu'une certaine personne traversait une crise de vie ou de mort! Cette vieille femme n'en sait pas beaucoup, mais je présume que tu comprends! »
 
-L'esprit de Wang Lin vacilla. Il était au courant de la situation, mais c'était la première fois qu'il apprenait ce qui s'était réellement passé pour Li Qianmei au sein de la Secte Brise-Ciel.
+L'esprit de Wang Lin vacilla. Il était au courant de la situation, mais c'était la première fois qu'il apprenait ce qui s'était réellement passé pour Li Qianmei au sein de la Secte Po Tian.
 
 « Savais-tu que pour te sauver, Li Qianmei a rompu ses liens avec son maître, qui était pour elle comme un père, au péril de sa vie, pour obtenir une chance de partir? Elle est alors devenue une errante, sans secte et sans foyer!
 
@@ -106,7 +106,7 @@ Il baissa la tête vers le jade autour de son cou. Sa lueur était très faible,
 
 Wang Lin réfléchit un instant et demanda d'une voix feutrée: « Où est-elle...? »
 
-« Où est-elle? Comment la récupération de son sang d'âme auprès de la Secte Démon aurait-elle pu être facile? Elle a quitté le champ de bataille il y a dix ans et n'est pas revenue pendant dix ans. Elle fut également bannie de la Secte Brise-Ciel. Comment la Secte Démon aurait-elle pu ne pas la punir? Si elle voulait son sang d'âme, elle devait en payer le prix!
+« Où est-elle? Comment la récupération de son sang d'âme auprès de la Secte Démon aurait-elle pu être facile? Elle a quitté le champ de bataille il y a dix ans et n'est pas revenue pendant dix ans. Elle fut également bannie de la Secte Po Tian. Comment la Secte Démon aurait-elle pu ne pas la punir? Si elle voulait son sang d'âme, elle devait en payer le prix!
 
 « Pour l'obtenir, elle a promis à la Secte Démon de s'enfoncer dans les zones les plus reculées du champ de bataille des fissures spatiales. Elle doit explorer ces terres infestées de bêtes féroces pour voir s'il existe un passage vers le Royaume Extérieur!
 

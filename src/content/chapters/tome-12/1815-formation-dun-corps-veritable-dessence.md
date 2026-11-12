@@ -14,17 +14,17 @@ Lors de son précédent voyage, bien qu'il fût parti, il avait subi des blessur
 
 Maintenant que ce regret s'était dissipé, ses blessures ne posaient plus de problème.
 
-« Disciple Wang Lin, le Continent Astral Immortel est votre foyer et l'Ancien Dao est votre terre natale. Votre Maître attendra votre retour ici... » Xuan Luo afficha un sourire bienveillant et ferma lentement les yeux pour s'immerger dans sa culture.
+« Disciple Wang Lin, le Continent Xian Gang est votre foyer et l'Ancien Dao est votre terre natale. Votre Maître attendra votre retour ici... » Xuan Luo afficha un sourire bienveillant et ferma lentement les yeux pour s'immerger dans sa culture.
 
-Dans le Continent Tian Niu, Wang Lin était assis à côté de la boule de feu, y projetant des sceaux. Cela rendait l'Oiseau Vermillon à l'intérieur encore plus distinct et son rugissement plus puissant.
+Dans le Continent Tian Niu, Wang Lin était assis à côté de la boule de feu, y projetant des sceaux. Cela rendait Suzaku à l'intérieur encore plus distinct et son rugissement plus puissant.
 
-« Corps véritable d'essence, forme! » Quelques heures plus tard, alors que l'Oiseau Vermillon devenait plus net et que la volonté du feu se renforçait, Wang Lin ouvrit les yeux et poussa un rugissement.
+« Corps véritable d'essence, forme! » Quelques heures plus tard, alors que Suzaku devenait plus net et que la volonté du feu se renforçait, Wang Lin ouvrit les yeux et poussa un rugissement.
 
 Ce cri parvint aux oreilles de Du Qing tel un tonnerre grondant dans son cœur. Il se leva, une peur indescriptible brillant dans ses yeux.
 
 « C'est vraiment un corps véritable d'essence! Il est réellement en train de former son corps véritable d'essence! »
 
-Après l'exclamation de Wang Lin, la boule de feu de dix pieds trembla et l'Oiseau Vermillon à l'intérieur cessa de bouger. Les plumes caudales de l'oiseau commencèrent à brûler et se transformèrent lentement en une paire de jambes humaines.
+Après l'exclamation de Wang Lin, la boule de feu de dix pieds trembla et Suzaku à l'intérieur cessa de bouger. Les plumes caudales de l'oiseau commencèrent à brûler et se transformèrent lentement en une paire de jambes humaines.
 
 Le corps véritable d'essence était en pleine formation!
 
@@ -46,7 +46,7 @@ L'essence de feu manquait. Les yeux de Wang Lin brillèrent; il chargea vers la 
 
 À cet instant, le sens divin de Wang Lin jaillit de sa main, pénétra la terre et se propagea à une vitesse fulgurante. Des milliers de kilomètres, des dizaines de milliers, des centaines de milliers, des millions de kilomètres... jusqu'à l'infini.
 
-C'était la première fois que Wang Lin déployait son sens divin de la sorte sur le Continent Astral Immortel pour couvrir une zone aussi vaste. Pourtant, malgré cela, il ne couvrait même pas 10 % du Continent Tian Niu; il semblait même peiner à atteindre les 5 %.
+C'était la première fois que Wang Lin déployait son sens divin de la sorte sur le Continent Xian Gang pour couvrir une zone aussi vaste. Pourtant, malgré cela, il ne couvrait même pas 10 % du Continent Tian Niu; il semblait même peiner à atteindre les 5 %.
 
 Cependant, cette étendue était infiniment proche de celle du monde des grottes. Dans cette zone, on dénichait 172 veines de feu terrestre secondaires et deux veines enfantines!
 
@@ -68,7 +68,7 @@ Cette volonté du feu était un attribut que Wang Lin avait acquis après avoir 
 
 Des grondements tonitruants résonnèrent tandis que les 172 âmes de dragons de feu s'engouffraient dans la boule de feu. Celle-ci se mit à briller d'un éclat encore plus vif. L'Oiseau Vermillon, qui portait désormais les jambes du corps véritable, poussa un nouveau rugissement.
 
-Le fracas fut assourdissant lorsque les 172 âmes de dragons pénétrèrent dans la boule de feu. Tandis que l'Oiseau Vermillon absorbait ces âmes, les mains du corps véritable d'essence apparurent, accompagnées d'un cri de joie.
+Le fracas fut assourdissant lorsque les 172 âmes de dragons pénétrèrent dans la boule de feu. Tandis que Suzaku absorbait ces âmes, les mains du corps véritable d'essence apparurent, accompagnées d'un cri de joie.
 
 Les quatre membres étaient là! Il ne manquait plus que la tête et le buste pour que le corps véritable d'essence de Wang Lin soit complet! Du Qing trembla et recula. Bien qu'il ne fût qu'un spectateur, il percevait l'immense difficulté de cette formation. Même une essence aussi puissante n'avait pas suffi à achever le processus instantanément.
 
@@ -78,7 +78,7 @@ Cette scène l'effrayait.
 
 « Cet homme possède sept essences... S'il parvient à former des corps véritables pour ses sept essences, alors... » Du Qing haleta, n'osant même pas imaginer la suite.
 
-Wang Lin, essoufflé sur le sommet de la montagne, contemplait la boule de feu et l'Oiseau Vermillon dont les quatre membres étaient formés, mais qui était encore loin d'être complet...
+Wang Lin, essoufflé sur le sommet de la montagne, contemplait la boule de feu et Suzaku dont les quatre membres étaient formés, mais qui était encore loin d'être complet...
 
 « Deux âmes de dragons de feu enfantines, sortez pour moi! » Wang Lin serra les dents et plaqua les deux mains au sol. Des grondements sourds retentirent et un rugissement se fit entendre. Dans le champ de son sens divin, deux fluctuations puissantes surgirent de deux directions opposées.
 

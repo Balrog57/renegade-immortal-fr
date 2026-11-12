@@ -34,7 +34,7 @@ Après un temps indéterminé, les rugissements de l'Empereur Divin du Dragon Az
 
 « J'ai encore gagné... » dit-il en reprenant son souffle. Alors qu'il s'apprêtait à reprendre sa culture, sa tête se redressa brusquement. Un éclair de stupeur passa dans ses yeux. Après un court instant de réflexion, il laissa éclater un rire de jubilation et deux traînées de larmes coulèrent sur ses joues.
 
-« Excellent! Excellent! Vraiment un Empereur Divin digne, choisi par le vieil Oiseau Vermillon. Il a été capable de renaître par le feu et a accompli le troisième éveil de l'Oiseau Vermillon. Je crois qu'il est le premier membre du clan à avoir achevé ce troisième éveil depuis les temps anciens! Bien! Pour que tu obtiennes une telle fortune, il n'a pas été vain que je subisse cette épreuve indicible! »
+« Excellent! Excellent! Vraiment un Empereur Divin digne, choisi par le vieil Oiseau Vermillon. Il a été capable de renaître par le feu et a accompli le troisième éveil de Suzaku. Je crois qu'il est le premier membre du clan à avoir achevé ce troisième éveil depuis les temps anciens! Bien! Pour que tu obtiennes une telle fortune, il n'a pas été vain que je subisse cette épreuve indicible! »
 
 Alors que l'Empereur Divin du Dragon Azure riait, des pas résonnèrent dans le temple. Les quatre anciens entrèrent et leurs voix parvinrent de l'extérieur de la chambre.
 
@@ -54,13 +54,13 @@ Toute la Secte Divine des Quatre se mit en mouvement!
 
 « Les gens du Royaume Extérieur vont bientôt arriver. Reste-t-il assez de temps...? » murmura l'Empereur Divin du Dragon Azure pour lui-même.
 
-Dans le Royaume aux Sept Couleurs, alors que l'Oiseau Vermillon Bleu s'élançait dans les airs, la silhouette de Wang Lin émergea lentement des flammes bleues. Il observa le monde azuré devant lui avec un regard perçant.
+Dans le Royaume aux Sept Couleurs, alors que Suzaku Bleu s'élançait dans les airs, la silhouette de Wang Lin émergea lentement des flammes bleues. Il observa le monde azuré devant lui avec un regard perçant.
 
 « Si mon feu, mon tonnerre et mon intention de combat fusionnent avec mes domaines vrai et faux, mon niveau de culture augmentera une fois de plus. Personne n'atteignant le niveau de culture du Fléau Céleste ne pourra me faire face! Il ne manque plus qu'une occasion! » Wang Lin scruta les profondeurs du Royaume aux Sept Couleurs. Il aperçut une montagne imposante au loin, ainsi que la grotte nichée dans cette paroi, et la scène étrange qui s'y déroulait.
 
 « Planter le Dao pour obtenir le Dao... Une fois le fruit mûr, qui viendra le cueillir...? » Les yeux de Wang Lin s'illuminèrent alors qu'il leva sa main droite pour pointer l'horizon!
 
-Sur ce geste, l'Oiseau Vermillon Bleu poussa un cri et s'élança soudainement. Emportant les flammes bleues qui l'entouraient, il chargea avec fracas. Un grondement tonitruant retentit alors que cet océan de flammes déferlait droit sur le vieil homme aux cheveux blancs!
+Sur ce geste, Suzaku Bleu poussa un cri et s'élança soudainement. Emportant les flammes bleues qui l'entouraient, il chargea avec fracas. Un grondement tonitruant retentit alors que cet océan de flammes déferlait droit sur le vieil homme aux cheveux blancs!
 
 Ce dernier était entouré de neuf fragments d'os de bête qui repoussaient les flammes environnantes, lui permettant de progresser. Cependant, alors qu'il s'approchait, il s'arrêta net et regarda devant lui. Un océan de flammes bleues couvrait le monde et une chaleur intense s'en dégageait. Des craquements sinistres provenaient des neuf fragments d'os entourant le vieillard. Ils semblaient incapables de résister à l'onde de chaleur et étaient sur le point de céder.
 
@@ -80,11 +80,11 @@ L'assaut ne s'arrêta pas là. Des rayons de lumière aux sept couleurs se rejoi
 
 Ces sorts, façonnés par la lumière aux sept couleurs, étaient les techniques des Défieurs. Entre les mains du vieil homme, leur puissance surpassait de loin celle que Cang Songzi avait pu invoquer.
 
-Dès qu'elle apparut, l'épée aux sept couleurs fondit sur sa cible. Elle se transforma en un torrent d'énergie tranchante qui chargea l'Oiseau Vermillon Bleu au cœur des flammes!
+Dès qu'elle apparut, l'épée aux sept couleurs fondit sur sa cible. Elle se transforma en un torrent d'énergie tranchante qui chargea Suzaku Bleu au cœur des flammes!
 
 L'Oiseau Vermillon Bleu poussa un cri et toutes les flammes du monde jaillirent pour percuter l'énergie de l'épée, provoquant un séisme céleste. Au même moment, la figure dans le ciel fit un pas en avant et agita la main. Des filaments d'énergie de massacre apparurent soudainement!
 
-Ces brins de destruction remplirent le ciel et tombèrent comme une pluie sur l'Oiseau Vermillon Bleu. Pourtant, dès que l'oiseau poussa un cri, les filaments de massacre s'effondrèrent un à un! Il semblait que tous les sorts de ce monde devaient se briser devant l'Oiseau Vermillon Bleu!
+Ces brins de destruction remplirent le ciel et tombèrent comme une pluie sur Suzaku Bleu. Pourtant, dès que l'oiseau poussa un cri, les filaments de massacre s'effondrèrent un à un! Il semblait que tous les sorts de ce monde devaient se briser devant Suzaku Bleu!
 
 Wang Lin observa la scène et s'élança. Se transformant en un rayon de lumière bleue, il chargea. Une flamme bleue étincela dans son œil gauche, puis une mer de feu l'enveloppa tandis qu'il fonçait vers la boussole géante.
 

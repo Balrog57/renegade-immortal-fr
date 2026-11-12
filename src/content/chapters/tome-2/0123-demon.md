@@ -54,7 +54,7 @@ En vérité, Wang Lin n'avait rien caché durant tout ce temps. Quiconque avait 
 
 Wang Lin n'avait pas l'intention de les tuer, mais si ces trois-là manquaient d'intelligence, il n'aurait pas d'autre choix. Le fait qu'il ait possédé un corps devait à tout prix rester secret, mais une fois qu'il aurait quitté le champ de bataille étranger, cela serait facile à justifier. Après tout, cinquante ans sont amplement suffisants pour que la personnalité de quelqu'un change.
 
-Une fois devenus les esclaves de Wang Lin, Zhou Zihong, Yang Xiong et Lin Tao se détendirent immédiatement et se postèrent derrière lui. Zhou Zihong le regarda avec une expression complexe. Elle savait qu'elle était très séduisante; au sein du Sanctuaire du Dieu de la Guerre, de nombreux disciples la courtisaient, mais elle les avait tous rejetés.
+Une fois devenus les esclaves de Wang Lin, Zhou Zihong, Yang Xiong et Lin Tao se détendirent immédiatement et se postèrent derrière lui. Zhou Zihong le regarda avec une expression complexe. Elle savait qu'elle était très séduisante; au sein du Temple Zhan Shen, de nombreux disciples la courtisaient, mais elle les avait tous rejetés.
 
 Elle s'était juré qu'avant d'atteindre le stade de la Formation du Noyau, elle ne formerait aucun couple de culture. Mais voilà qu'elle était l'esclave de quelqu'un. Si son maître exigeait qu'elle partage sa couche, elle ne pourrait pas refuser. Cette pensée troublait profondément son cœur.
 

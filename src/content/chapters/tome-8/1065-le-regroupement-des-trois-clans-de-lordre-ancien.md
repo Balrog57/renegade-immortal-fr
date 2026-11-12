@@ -88,7 +88,7 @@ Cet Oiseau Vermillon était doté d'une intelligence. Contre toute attente, il n
 
 Une multitude de cultivateurs suivaient cet Oiseau Vermillon, parmi lesquels se trouvaient six Anciens. Ces derniers portaient tous des robes rouges et dégageaient chacun une aura puissante. Tous étaient des cultivateurs au stade du Briseur du Nirvana!
 
-« Selon les recherches avec l'esprit véritable, c'est ici que se trouve la personne qui s'est éveillée, et c'est aussi le lieu de ce mystérieux sentiment de danger. Ce voyage pourrait être extrêmement périlleux, mais même si je dois tout risquer, je dois protéger celui qui s'est éveillé! » Les six Anciens échangèrent des regards empreints de détermination. Tous les autres membres de la Secte Divine de l'Oiseau Vermillon affichaient la même résolution!
+« Selon les recherches avec l'esprit véritable, c'est ici que se trouve la personne qui s'est éveillée, et c'est aussi le lieu de ce mystérieux sentiment de danger. Ce voyage pourrait être extrêmement périlleux, mais même si je dois tout risquer, je dois protéger celui qui s'est éveillé! » Les six Anciens échangèrent des regards empreints de détermination. Tous les autres membres de la Secte Divine de Suzaku affichaient la même résolution!
 
 Au même moment, une voix majestueuse retentit depuis la planète située au-dessus du vortex, au siège de l'Alliance Xiu Zhen:
 

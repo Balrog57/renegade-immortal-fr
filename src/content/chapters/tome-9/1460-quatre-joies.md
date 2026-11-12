@@ -44,9 +44,9 @@ Wang Lin lui jeta un regard froid sans chercher à s'expliquer. Il agita la main
 
 Cette jeune fille étant proche de Miaoyin Daozun, elle connaissait nombre de ses sorts. Elle possédait sa propre méthode pour déterminer si les informations contenues dans le jade étaient authentiques ou non.
 
-Le visage de la jeune fille pâlit de plus en plus. Il ne lui fut pas difficile de constater que c'était la vérité. Sous l'attaque combinée de Wang Lin et de la Grande Désolation, l'avatar de Miaoyin Daozun, dont la culture était supprimée, n'avait aucune chance de survivre.
+Le visage de la jeune fille pâlit de plus en plus. Il ne lui fut pas difficile de constater que c'était la vérité. Sous l'attaque combinée de Wang Lin et de Da Huang, l'avatar de Miaoyin Daozun, dont la culture était supprimée, n'avait aucune chance de survivre.
 
-Le fait de voir la Grande Désolation posséder l'avatar de Miaoyin Daozun fit disparaître son dernier espoir; elle se mit à trembler. « Ma patience est limitée. Si tu ne réponds pas à ma question, je lancerai une recherche d'âme! » La voix de Wang Lin devint de plus en plus glaciale. Il savait que le Clan Feng Mie cachait quelque chose d'étrange; il n'utilisa donc pas la recherche d'âme directement, mais chercha d'abord à briser sa résistance.
+Le fait de voir Da Huang posséder l'avatar de Miaoyin Daozun fit disparaître son dernier espoir; elle se mit à trembler. « Ma patience est limitée. Si tu ne réponds pas à ma question, je lancerai une recherche d'âme! » La voix de Wang Lin devint de plus en plus glaciale. Il savait que le Clan Feng Mie cachait quelque chose d'étrange; il n'utilisa donc pas la recherche d'âme directement, mais chercha d'abord à briser sa résistance.
 
 La panique dans les yeux de la jeune fille s'intensifia. Elle savait qu'elle n'avait aucune issue. Son maître était déjà mort, scellant ainsi toute voie de retraite.
 
@@ -106,7 +106,7 @@ Les yeux de Wang Lin étaient empreints de joie et sa main droite s'élança ver
 
 Des Feuilles Anciennes!
 
-La joie n'était pas encore retombée qu'une autre survint. L'océan de poison à l'intérieur du Fourneau Impérial s'était dissipé pour se transformer en neuf gouttes de poison qui choqueraient même la Grande Désolation!
+La joie n'était pas encore retombée qu'une autre survint. L'océan de poison à l'intérieur du Fourneau Impérial s'était dissipé pour se transformer en neuf gouttes de poison qui choqueraient même Da Huang!
 
 Chaque goutte était saturée d'innombrables âmes de Flamme Joss et du poison suprême du ciel et de la terre!
 

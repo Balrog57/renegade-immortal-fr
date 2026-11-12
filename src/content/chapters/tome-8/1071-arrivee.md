@@ -28,7 +28,7 @@ Alors que l'Ancien Démon Ta Jia s'élançait, la Terre Yao Ling trembla soudain
 
 Simultanément, l'entité humanoïde aux côtés de Ta Jia lança un regard glacial à l'assemblée et verrouilla sa cible sur Wang Lin. En un éclair, elle chargea Wang Lin, et avant même qu'elle ne soit à portée, des détonations soniques se firent déjà entendre.
 
-L'état du Maître du Vide était extrêmement critique. Bien qu'il se tenât debout, sa respiration était laborieuse. Même à distance, on pouvait l'entendre lutter pour chaque souffle.
+L'état de Xu Kongzi était extrêmement critique. Bien qu'il se tenât debout, sa respiration était laborieuse. Même à distance, on pouvait l'entendre lutter pour chaque souffle.
 
 Ce n'était plus le son d'un être humain; c'était le râle d'une bête.
 
@@ -36,19 +36,19 @@ Plus terrifiant encore, non seulement sa respiration était rauque, mais une sal
 
 Ses yeux étaient exorbités, ses globes injectés de sang semblaient léthargiques mais empreints de folie. Son apparence déjà vieillissante ne ressemblait plus à celle d'un homme; ses traits étaient déformés comme s'il avait sombré dans la démence.
 
-Il fixait également Wang Lin. Son dernier vestige de mémoire était sa haine et son intention meurtrière envers lui. Le Maître du Vide poussa un rugissement et fonça sur Wang Lin, juste après l'entité humanoïde.
+Il fixait également Wang Lin. Son dernier vestige de mémoire était sa haine et son intention meurtrière envers lui. Xu Kongzi poussa un rugissement et fonça sur Wang Lin, juste après l'entité humanoïde.
 
 Tian Yunzi restait calme, son regard suggérant que tout était limpide et normal. C'était comme si ce voyage dans la Grotte Xian Di était entièrement contenu dans ses calculs.
 
 Ling Tianhou gardait la tête basse, luttant contre lui-même. Son expression était complexe, mêlant hébétude et, par-dessus tout, une profonde culpabilité...
 
-L'entité humanoïde et le Maître du Vide furent naturellement interceptés par le Couple Céleste Nuageux. Cependant, tous deux étaient blessés, et la nature étrange de l'entité faisait qu'il était difficile de désigner rapidement un vainqueur.
+L'entité humanoïde et Xu Kongzi furent naturellement interceptés par le Couple Céleste Nuageux. Cependant, tous deux étaient blessés, et la nature étrange de l'entité faisait qu'il était difficile de désigner rapidement un vainqueur.
 
-Le Maître du Vide respirait avec difficulté, et lorsque Wang Wei et Hu Juan tentèrent de le bloquer, il devint encore plus déchaîné. Sa cible était Wang Lin, et quiconque osait s'interposer serait chargé sans égard pour les conséquences.
+Xu Kongzi respirait avec difficulté, et lorsque Wang Wei et Hu Juan tentèrent de le bloquer, il devint encore plus déchaîné. Sa cible était Wang Lin, et quiconque osait s'interposer serait chargé sans égard pour les conséquences.
 
-Au moment où Wang Wei s'approcha, le Maître du Vide poussa un cri et toute la chair de son corps sembla s'agiter de manière grotesque. L'expression de Wang Wei changea et il recula sans hésiter.
+Au moment où Wang Wei s'approcha, Xu Kongzi poussa un cri et toute la chair de son corps sembla s'agiter de manière grotesque. L'expression de Wang Wei changea et il recula sans hésiter.
 
-Cependant, au même instant, le Maître du Vide ouvrit la bouche et cracha une immense quantité de sang noir. Ce sang dégageait une odeur fétide et puissante, et l'homme trembla après avoir vomi. C'était presque tout le sang de son corps!
+Cependant, au même instant, Xu Kongzi ouvrit la bouche et cracha une immense quantité de sang noir. Ce sang dégageait une odeur fétide et puissante, et l'homme trembla après avoir vomi. C'était presque tout le sang de son corps!
 
 Une fois expulsé, ce sang sembla doué d'une volonté propre, formant un filet qui chargea Wang Wei. Tout en reculant, Wang Wei forma un sceau de sa main droite et pointa l'avant. Dans un fracas retentissant, une montagne de glace surgit de nulle part!
 
@@ -58,9 +58,9 @@ La montagne de glace apparut soudainement et bloqua immédiatement le sang noir.
 
 En ce moment de crise, Wang Wei agita la main et une multitude d'icebergs apparurent devant Wang Lin. Puis il chargea vers Hu Juan pour l'aider à contenir l'entité.
 
-Sans obstacle, le Maître du Vide bondit vers Wang Lin, la bouche dégoulinante de salive et de sang noir. Ses yeux étaient injectés de folie. À cet instant, il ne ressemblait plus au Grand Ancien de l'Alliance; il n'était plus qu'une bête hideuse!
+Sans obstacle, Xu Kongzi bondit vers Wang Lin, la bouche dégoulinante de salive et de sang noir. Ses yeux étaient injectés de folie. À cet instant, il ne ressemblait plus au Grand Ancien de l'Alliance; il n'était plus qu'une bête hideuse!
 
-En voyant le Maître du Vide, Wang Lin fut frappé de stupeur. Non pas par l'arrivée de l'homme, mais par les cinq Fléaux Célestes dont il avait tant entendu parler récemment!
+En voyant Xu Kongzi, Wang Lin fut frappé de stupeur. Non pas par l'arrivée de l'homme, mais par les cinq Fléaux Célestes dont il avait tant entendu parler récemment!
 
 « C'est le premier Fléau Céleste... »
 
@@ -68,7 +68,7 @@ Une fois le deuxième stade atteint, la longévité devient presque illimitée. 
 
 Et ce n'était pas que ceux qui n'atteignaient pas le stade du Briseur du Nirvana seraient épargnés. Des calamités encore plus terrifiantes attendaient ceux qui échoueraient à l'atteindre...
 
-À cet instant, le Maître du Vide, la respiration haletante, se précipita vers l'iceberg. Il ouvrit la bouche pour cracher de nouveau, mais il ne restait presque plus de sang. Outre l'odeur infecte, des morceaux de viscères pourries s'en échappèrent.
+À cet instant, Xu Kongzi, la respiration haletante, se précipita vers l'iceberg. Il ouvrit la bouche pour cracher de nouveau, mais il ne restait presque plus de sang. Outre l'odeur infecte, des morceaux de viscères pourries s'en échappèrent.
 
 Au moment où la main géante formée par le brouillard noir de Ta Jia allait frapper, la Concubine Impériale Fleur leva sa main de jade et une sphère apparut instantanément au bout de son doigt.
 
@@ -94,8 +94,8 @@ L'énergie d'origine résidait au cœur de ces neuf sphères, lesquelles flottè
 
 À cet instant, l'endroit où elle se tenait devint le point le plus lumineux du système stellaire.
 
-Simultanément, dans l'espace au-delà de la Terre Yao Ling, alors que l'esprit véritable de l'Oiseau Vermillon et la Secte Divine de l'Oiseau Vermillon continuaient d'assaillir le sceau, celui-ci commença enfin à céder.
+Simultanément, dans l'espace au-delà de la Terre Yao Ling, alors que l'esprit véritable de Suzaku et la Secte Divine de Suzaku continuaient d'assaillir le sceau, celui-ci commença enfin à céder.
 
 Avec lui, tout le ciel de la Terre Yao Ling s'effondra. La voûte céleste se brisa pouce par pouce, comme si le sceau lui-même se désintégrait... pour être remplacée par l'immensité du ciel étoilé...
 
-La Secte Divine de l'Oiseau Vermillon était arrivée!
+La Secte Divine de Suzaku était arrivée!

@@ -6,9 +6,9 @@ bookTitle: Light of the coming end
 en: "Chapter 2064 - Taking a Step to Trample the Heavens!"
 slug: faire-un-pas-pour-pietiner-les-cieux
 ---
-Tous les Grands Empyréens du Continent Astral Immortel furent alertés. Sept rayons de lumière se précipitèrent vers le vaste bassin depuis différentes directions. Les trois rayons provenant du clan Ancien étaient d'une rapidité extrême.
+Tous les Grands Empyréens du Continent Xian Gang furent alertés. Sept rayons de lumière se précipitèrent vers le vaste bassin depuis différentes directions. Les trois rayons provenant du clan Ancien étaient d'une rapidité extrême.
 
-Du côté du clan Céleste, les quatre autres restèrent silencieux en fonçant vers l'avant. Cependant, malgré leur vitesse, il leur faudrait encore une demi-lune pour atteindre le champ de bataille. Après tout, le Continent Astral Immortel était bien trop vaste, et ils ne possédaient pas les niveaux de culture de Wang Lin ou de Gu Dao.
+Du côté du clan Céleste, les quatre autres restèrent silencieux en fonçant vers l'avant. Cependant, malgré leur vitesse, il leur faudrait encore une demi-lune pour atteindre le champ de bataille. Après tout, le Continent Xian Gang était bien trop vaste, et ils ne possédaient pas les niveaux de culture de Wang Lin ou de Gu Dao.
 
 Au centre du vaste bassin, là où la tempête marine faisait rage, un grondement tonnerreux résonna du côté faisant face au clan Ancien. Près de dix mille sphères de brume entourant Wang Lin explosèrent et, après leur disparition, du sang jaillit du coin de sa bouche. Il fut repoussé sur des milliers de pieds, cracha une nouvelle gorgée de sang, et la lumière qui l'enveloppait s'effondra.
 
@@ -62,9 +62,9 @@ Du côté du clan Céleste, près de la vaste mer, Jiu Di et les trois autres Gr
 
 Au centre de la vaste mer, l'ombre lumineuse grandissait rapidement à mesure qu'elle absorbait l'énergie du monde. Elle dépassait déjà les centaines de milliers de pieds de haut et ne cessait de croître. En quelques instants, Wang Lin ne pouvait plus voir que les jambes de cette ombre — le torse avait disparu!
 
-Wang Lin eut le souffle coupé. Il ignorait jusqu'à quelle hauteur l'ombre atteindrait, mais il imaginait que si l'on regardait depuis l'extérieur du Continent Astral Immortel, on y verrait un géant colossal! Elle soutenait le ciel et se dressait sur la terre!
+Wang Lin eut le souffle coupé. Il ignorait jusqu'à quelle hauteur l'ombre atteindrait, mais il imaginait que si l'on regardait depuis l'extérieur du Continent Xian Gang, on y verrait un géant colossal! Elle soutenait le ciel et se dressait sur la terre!
 
-« Ancêtre... » Wang Lin observait l'ombre continuer de s'étendre. Il ne savait pas quelle serait sa taille finale. Peut-être que si elle recevait assez d'énergie, elle deviendrait un système stellaire entier... Elle continuerait de croître jusqu'à ce que toute l'énergie du monde sur le Continent Astral Immortel soit absorbée. Pourtant, sa taille actuelle suffisait déjà à exercer sur Wang Lin une pression indescriptible.
+« Ancêtre... » Wang Lin observait l'ombre continuer de s'étendre. Il ne savait pas quelle serait sa taille finale. Peut-être que si elle recevait assez d'énergie, elle deviendrait un système stellaire entier... Elle continuerait de croître jusqu'à ce que toute l'énergie du monde sur le Continent Xian Gang soit absorbée. Pourtant, sa taille actuelle suffisait déjà à exercer sur Wang Lin une pression indescriptible.
 
 « Monde Ancien... » Wang Lin leva les yeux au ciel et déploya son Sens Divin. Il perçut alors une scène étrange. Les yeux de cette immense ombre lumineuse changèrent: l'un devint le soleil éclatant, l'autre la lune. Le sang qui s'en écoulait se mua progressivement en rivières et en mers. Ses mains se levèrent et, couvrant le ciel, devinrent une voûte d'azur, tandis que son corps s'abattait pour devenir la terre, ses os devenant des chaînes de montagnes.
 

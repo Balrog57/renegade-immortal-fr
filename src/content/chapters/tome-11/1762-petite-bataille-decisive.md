@@ -20,7 +20,7 @@ Il y avait également la sixième concubine et la troisième concubine, qui conn
 
 Quant à la troisième concubine, son expression était froide et son regard complexe. Elle hésita, ne sachant si elle devait partir ou non. Elle était venue ici avec un dessein bien différent de celui des autres. Elle voulait simplement rentrer chez elle!
 
-Sa ville natale et son maître lui manquaient. Elle voulait quitter ce monde caverneux pour retourner sur le Continent Astral Immortel.
+Sa ville natale et son maître lui manquaient. Elle voulait quitter ce monde caverneux pour retourner sur le Continent Xian Gang.
 
 Tout en hésitant, elle mordit sa lèvre inférieure et disparut.
 
@@ -82,7 +82,7 @@ Les yeux du Daoïste aux Sept Couleurs devinrent rouges. À cet instant, il ne s
 
 Le Vieux Fantôme Zhan ne put résister non plus à la tentation; il entra sur la planète presque simultanément au Daoïste aux Sept Couleurs. Les autres cultivateurs hésitèrent, mais finirent par s'approcher également. Ils ne voulaient pas rivaliser, mais ils ne pouvaient renoncer à l'occasion d'observer.
 
-En particulier, le Dragon Azure, la Tortue Noire et l'Oiseau Vermillon chargèrent et investirent le ciel de la planète.
+En particulier, le Dragon Azure, la Tortue Noire et Suzaku chargèrent et investirent le ciel de la planète.
 
 Face à eux tous, bien que le regard de Wang Lin fût calme, son cœur bouillonnait. Ses yeux étaient brûlants d'intention de combat, et il serra plus fermement encore l'Arc Li Guang!
 
@@ -114,4 +114,4 @@ Wang Lin avait appris ce sort auprès du fou: d'abord ouvrir l'ombrelle, puis la
 
 « Fermeture à 60 %! » Wang Lin poussa un rugissement et les veines de son visage se gonflèrent. Il ferma l'ombrelle à un taux sans précédent de 60 %. L'ombrelle se referma brusquement, déclenchant des hurlements de douleur. Cette fois, même les expressions des trois généraux changèrent!
 
-Ils n'auraient jamais imaginé que Wang Lin puisse posséder de tels sorts puissants, si rares que même sur le Continent Astral Immortel!
+Ils n'auraient jamais imaginé que Wang Lin puisse posséder de tels sorts puissants, si rares que même sur le Continent Xian Gang!

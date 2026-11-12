@@ -28,11 +28,11 @@ Wang Lin demanda calmement: « Quelles sont vos exigences? »
 
 « Je n'ai qu'une seule condition. Une fois que vous aurez obtenu l'héritage de l'Ancêtre Céleste et serez devenu le second Ancêtre Céleste, vous pourrez remplacer l'Ancêtre Céleste pour lever le sceau de mon clan. Laissez mon clan libre! » Tandis que l'Enseignant Impérial fixait Wang Lin, ses yeux brillaient d'une étrange lumière.
 
-« Ensuite, mon clan choisira de quitter le Continent Astral Immortel pour l'au-delà du ciel, afin de retourner dans notre patrie. Quant à vous, vous deviendrez la personne la plus puissante du clan céleste. Vous pourrez jouir d'un pouvoir infini tout en restaurant la gloire de l'Ancêtre Céleste!
+« Ensuite, mon clan choisira de quitter le Continent Xian Gang pour l'au-delà du ciel, afin de retourner dans notre patrie. Quant à vous, vous deviendrez la personne la plus puissante du clan céleste. Vous pourrez jouir d'un pouvoir infini tout en restaurant la gloire de l'Ancêtre Céleste!
 
 « Si vous ne me croyez pas, je peux prêter serment. Si je viole ce contrat, que je sois détruit! » Alors que l'Enseignant Impérial parlait, sa dernière phrase, au lieu de s'évanouir, apparut dans les airs sous forme de runes émettant une lueur sombre, qui se condensèrent en un totem complexe. Le totem flotta un instant avant de disparaître.
 
-L'Enseignant Impérial ajouta rapidement: « Ceci est un serment, et la loi du Continent Astral Immortel en est le témoin. Avec votre niveau de culture, vous pouvez naturellement ressentir si ce serment est authentique! »
+L'Enseignant Impérial ajouta rapidement: « Ceci est un serment, et la loi du Continent Xian Gang en est le témoin. Avec votre niveau de culture, vous pouvez naturellement ressentir si ce serment est authentique! »
 
 Wang Lin médita en silence.
 
@@ -58,11 +58,11 @@ Du point de vue de Wang Lin, cette haine ne semblait pas si profonde, mais compt
 
 Le temps s'écoulait lentement. L'Enseignant Impérial attendit amèrement un long moment. Face à l'indifférence de Wang Lin, il ne put s'empêcher de soupirer. Il serra les dents et reprit:
 
-« Si le Daoïste Wang accepte ma proposition, je peux vous offrir toutes les Flammes Joss fournies par tous les mondes caverneux du Continent Astral Immortel. Si le Daoïste Wang les absorbe toutes, les bénéfices seront immenses!
+« Si le Daoïste Wang accepte ma proposition, je peux vous offrir toutes les Flammes Joss fournies par tous les mondes caverneux du Continent Xian Gang. Si le Daoïste Wang les absorbe toutes, les bénéfices seront immenses!
 
 « Peu importe votre niveau de culture, vos sorts ou votre longévité, vous subirez une métamorphose. Après un certain temps, vous aurez la chance d'atteindre un royaume de vide et de destruction! Un tel niveau suffira à vous placer au sommet! » Après avoir terminé son discours, l'Enseignant Impérial porta sa main droite vers son front. Un cristal noir de la taille d'un poing apparut lentement. Il ne dégageait aucune lumière, mais une puissante aura de Flamme Joss s'en dégageait.
 
-« Cet objet est le cœur de toutes les Flammes Joss fournies par les mondes caverneux du Continent Astral Immortel. Grâce à lui, l'ensemble du continent vous alimentera sans cesse en Flammes Joss!
+« Cet objet est le cœur de toutes les Flammes Joss fournies par les mondes caverneux du Continent Xian Gang. Grâce à lui, l'ensemble du continent vous alimentera sans cesse en Flammes Joss!
 
 « L'Ancêtre Céleste est né du vide et, contrairement à ma famille, il ne pouvait pas les absorber lui-même; il était donc nécessaire que mon clan les transforme au préalable. Beaucoup de gens dans ce monde absorbent les Flammes Joss, mais comme elles ne sont pas pures, ils deviennent une source de Flammes Joss pour mon clan une fois l'absorption faite!
 
@@ -86,7 +86,7 @@ L'Enseignant Impérial fut transporté d'excitation en voyant la goutte de sang.
 
 « Daoïste Wang... » L'expression de l'Enseignant Impérial était grave. Il regarda Wang Lin avec une profonde gratitude. Il joignit les mains et s'inclina devant lui pour la seconde fois!
 
-« Mon clan se souviendra de votre grâce! Je vous remercie au nom de tous les membres de mon clan sur le Continent Astral Immortel! »
+« Mon clan se souviendra de votre grâce! Je vous remercie au nom de tous les membres de mon clan sur le Continent Xian Gang! »
 
 L'expression de Wang Lin restait froide alors qu'il marchait lentement vers le bassin. Lorsqu'il fut à proximité, il leva soudainement les yeux vers l'Enseignant Impérial. Ce dernier était toujours empreint de gratitude, et Wang Lin pouvait percevoir l'aura de la mort qui l'entourait. Comme il l'avait affirmé, après avoir perdu le cristal, son temps était compté.
 

@@ -28,7 +28,7 @@ La femme nommée Zhan frappa le sol et secoua son sac de rangement, faisant jail
 
 Xi Zifeng saisit rapidement la soie rouge et fut aussitôt tirée vers l'avant. Les deux hommes firent de même et finirent par rattraper le fragment pour y débarquer.
 
-Ils poussèrent un soupir de soulagement et remarquèrent immédiatement Wang Lin au loin. L'un des hommes regarda Zhan Yun et demanda: « Qui est ce compagnon de culture? »
+Ils poussèrent un soupir de soulagement et remarquèrent immédiatement Wang Lin au loin. L'un des hommes regarda Zhan Yun et demanda: « Qui est ce Daoïste? »
 
 Sans attendre la réponse de Zhan Yun, Xi Zifeng l'examina de plus près et son expression changea radicalement. Elle fit quelques pas en avant, s'inclina et dit respectueusement: « Junior Xi Zifeng salue Senior! Merci, Senior, d'avoir sauvé Junior à deux reprises! »
 
@@ -112,7 +112,7 @@ Il pointa alors le vieil homme en blanc et utilisa le sort céleste « Arrêt »
 
 Wang Lin avança tandis que son doigt se transformait en épée. En passant près du vieillard, il pointa l'espace entre ses sourcils. L'homme cracha un jet de sang et des bruits sourds résonnèrent dans son corps jusqu'à ce qu'il s'effondre, laissant son âme originelle s'échapper dans la terreur. Les yeux de Wang Lin brillèrent alors que sa main se tendait pour capturer l'âme du vieillard.
 
-« Compagnon de culture, arrête-toi! » Un rugissement puissant jaillit du cultivateur en robe bleue. Son corps se déplaça comme un éclair vers Wang Lin. Sa main droite forma un sceau et une épée illusoire s'échappa de son front. L'arme sembla se téléporter pour apparaître soudainement devant Wang Lin, visant à le transpercer impitoyablement.
+« Daoïste, arrête-toi! » Un rugissement puissant jaillit du cultivateur en robe bleue. Son corps se déplaça comme un éclair vers Wang Lin. Sa main droite forma un sceau et une épée illusoire s'échappa de son front. L'arme sembla se téléporter pour apparaître soudainement devant Wang Lin, visant à le transpercer impitoyablement.
 
 Le regard de Wang Lin resta froid alors qu'il écrasait l'âme originelle dans sa main. Il tourna la tête et son troisième œil s'ouvrit instantanément. Une lumière rouge en forme d'éventail se déploya, enveloppant immédiatement l'épée illusoire.
 

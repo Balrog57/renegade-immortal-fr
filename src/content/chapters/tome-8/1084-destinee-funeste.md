@@ -40,7 +40,7 @@ Même l'Ancien Démon Ta Jia sembla percevoir un indice et laissa échapper un h
 
 Wang Lin contemplait l'aura émanant des trois fragments de bois. Il se souvenait parfaitement de cette sensation. Dans son sac, il possédait des cristaux extraits de la blessure à la tête de l'Ancien Dieu à huit étoiles, dans l'abîme d'enterrement des immortels de sa demeure. L'aura de ces cristaux était rigoureusement identique à celle des morceaux de bois!
 
-Voyant l'aura des fragments s'intensifier, les yeux de l'Empereur Divin de l'Oiseau Vermillon se plissèrent. Sans hésiter, il pointa sa main droite en avant et activa lui-même le troisième style du Trésor Sacré de l'Oiseau Vermillon. Il rugit: « Ciel de Feu! »
+Voyant l'aura des fragments s'intensifier, les yeux de l'Empereur Divin de Suzaku se plissèrent. Sans hésiter, il pointa sa main droite en avant et activa lui-même le troisième style du Trésor Sacré de Suzaku. Il rugit: « Ciel de Feu! »
 
 La longue épée laissa échapper un chant d'épée tonitruant et des flammes se déchaînèrent. Les flammes envahirent le ciel, s'engouffrant même par la brèche céleste. En un instant, près de la moitié du champ d'étoiles fut consumée par les flammes.
 
@@ -64,7 +64,7 @@ Cependant, au moment où son véritable esprit apparut, la longue épée brilla 
 
 Le corps de l'Ancien Démon Ta Jia trembla et s'effondra brutalement au sol.
 
-L'âme originelle de l'Empereur Divin de l'Oiseau Vermillon devint floue. Il n'était présent qu'avec son âme originelle, et l'activation du Trésor Sacré avait consumé une immense quantité d'énergie originelle. S'il n'avait utilisé que le premier ou le deuxième style, le coût aurait été minime, mais il était le seul capable de déclencher le troisième. Le prix à payer était cependant colossal, même pour lui.
+L'âme originelle de l'Empereur Divin de Suzaku devint floue. Il n'était présent qu'avec son âme originelle, et l'activation du Trésor Sacré avait consumé une immense quantité d'énergie originelle. S'il n'avait utilisé que le premier ou le deuxième style, le coût aurait été minime, mais il était le seul capable de déclencher le troisième. Le prix à payer était cependant colossal, même pour lui.
 
 Son corps se fit encore plus translucide, mais il fit un geste de la main. La longue épée rouge s'élança, poursuivant Tian Yunzi en pleine retraite.
 
@@ -72,7 +72,7 @@ En un éclair, l'épée se rapprocha et fendit la tête de Tian Yunzi!
 
 À la suite de cette attaque, la Lance du Dragon Azure, la Lame du Tigre Blanc et la Hache de la Tortue Noire apparurent toutes!
 
-Il était évident que l'Empereur Divin de l'Oiseau Vermillon avait une intention meurtrière!
+Il était évident que l'Empereur Divin de Suzaku avait une intention meurtrière!
 
 Le visage de Tian Yunzi devint féroce et sa tête se redressa brusquement. En ce moment de crise absolue, sa main droite atteignit la zone entre ses sourcils et arracha le troisième sceau à moitié!
 
@@ -82,7 +82,7 @@ Des grondements de tonnerre résonnèrent et une onde de choc se propagea. Tian 
 
 La longue épée rouge resta suspendue, immobile, dans les airs.
 
-L'Empereur Divin de l'Oiseau Vermillon médita silencieusement tandis que son corps devenait de plus en plus transparent. En regardant la direction de la fuite de Tian Yunzi, il secoua la tête: « Je vieillis... Si j'avais été dans la force de l'âge, cet Tian Yunzi n'aurait pas pu échapper au deuxième style des Quatre Trésors Sacrés... »
+L'Empereur Divin de Suzaku médita silencieusement tandis que son corps devenait de plus en plus transparent. En regardant la direction de la fuite de Tian Yunzi, il secoua la tête: « Je vieillis... Si j'avais été dans la force de l'âge, cet Tian Yunzi n'aurait pas pu échapper au deuxième style des Quatre Trésors Sacrés... »
 
 Il poussa un soupir en observant l'assemblée. Lorsque son regard finit par se poser sur le vieil homme du Royaume Kun Xu, il dit d'une voix lente: « Vieux ami, allez-vous redevenir l'ennemi de mes Quatre Sectes Divines? »
 
@@ -96,13 +96,13 @@ Le vieil homme soupira en s'élançant vers le ciel. Là-haut, il se retourna po
 
 Mu Bingmei hésita un instant. Elle mordilla sa lèvre inférieure et murmura: « Laissez-moi... le regarder. Est-ce possible... Un seul regard! »
 
-L'Empereur Divin de l'Oiseau Vermillon fut surpris. Son regard balaya Wang Lin, mais il garda le silence.
+L'Empereur Divin de Suzaku fut surpris. Son regard balaya Wang Lin, mais il garda le silence.
 
 Le visage de Wang Lin était d'une pâleur mortelle; ses blessures atteignaient les limites de sa résistance. Son âme originelle montrait des signes de dissipation, et les paroles de Mu Bingmei le firent trembler de douleur. Cette souffrance transparaissait dans ses yeux.
 
-Wang Lin ne se retourna pas et ne répondit pas à Mu Bingmei. Au lieu de cela, il fixa l'Empereur Divin de l'Oiseau Vermillon et demanda: « Me ramenez-vous à la Secte Zhu Que? »
+Wang Lin ne se retourna pas et ne répondit pas à Mu Bingmei. Au lieu de cela, il fixa l'Empereur Divin de Suzaku et demanda: « Me ramenez-vous à la Secte Zhu Que? »
 
-L'Empereur Divin de l'Oiseau Vermillon acquiesça.
+L'Empereur Divin de Suzaku acquiesça.
 
 « Prenez mes amis qui ont été blessés à cause de moi et laissez-les se rétablir... Alors, je pourrai accepter n'importe quelle condition imposée par votre Secte. »
 
@@ -121,7 +121,7 @@ Sur ces mots, les disciples des Quatre Sectes Divines se dispersèrent pour seco
 
 « Ces célestes de l'Alliance veulent ma mort. Je veux leurs âmes originelles! » Une lueur de froideur passa dans les yeux de Wang Lin. Il n'avait jamais fait preuve de clémence envers ceux qui cherchaient à lui nuire; il s'était toujours comporté comme un démon face à eux!
 
-Les célestes environnants n'hésitèrent pas à s'enfuir comme des oiseaux effarouchés. Les yeux de l'Empereur Divin de l'Oiseau Vermillon s'illuminèrent et il approuva: « C'est une affaire simple! » D'un revers de manche, il fit éclater les Trésors Sacrés en quatre fragments qui se dispersèrent pour balayer la zone.
+Les célestes environnants n'hésitèrent pas à s'enfuir comme des oiseaux effarouchés. Les yeux de l'Empereur Divin de Suzaku s'illuminèrent et il approuva: « C'est une affaire simple! » D'un revers de manche, il fit éclater les Trésors Sacrés en quatre fragments qui se dispersèrent pour balayer la zone.
 
 Des cris de détresse retentirent immédiatement.
 

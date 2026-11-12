@@ -28,15 +28,15 @@ Cependant, au moment même où Wang Lin avait retiré son symbole, la brume envi
 
 Après un long moment, le rire de Wang Lin résonna dans la brume. Il regarda le symbole numérique qu'il tenait en main. Il en était désormais certain!
 
-Il pouvait se trouver à l'intérieur du Tombeau de l'Ordre Antique sans marque parce qu'il était un dieu ancien. Cependant, ce symbole pouvait être créé, et il nécessitait la fusion des trois clans anciens!
+Il pouvait se trouver à l'intérieur du Tombeau de Dao Gu sans marque parce qu'il était un dieu ancien. Cependant, ce symbole pouvait être créé, et il nécessitait la fusion des trois clans anciens!
 
 C'était pour cette raison qu'il ne serait pas effacé comme la jeune fille du Clan Feng Mie après avoir retiré le symbole: car, en théorie, il ne devrait pas en posséder!
 
-« Ce symbole n'est qu'une chose que le Tombeau de l'Ordre Antique accorde aux personnes ne faisant pas partie des trois clans pour qu'elles puissent y subsister un court instant! »
+« Ce symbole n'est qu'une chose que le Tombeau de Dao Gu accorde aux personnes ne faisant pas partie des trois clans pour qu'elles puissent y subsister un court instant! »
 
-« Ceci est le Tombeau de l'Ordre Antique, seuls les membres des trois clans de l'Ordre Antique peuvent y entrer. Les autres ont besoin de ce symbole! Une fois que la marque d'un individu disparaît, il est effacé du tombeau! »
+« Ceci est le Tombeau de Dao Gu, seuls les membres des trois clans de Dao Gu peuvent y entrer. Les autres ont besoin de ce symbole! Une fois que la marque d'un individu disparaît, il est effacé du tombeau! »
 
-« La raison pour laquelle les membres du Clan de l'Ordre Antique n'ont pas de symboles, alors que les plateformes exigent des marques pour progresser, est de pousser les membres des trois clans à tuer les intrus pour leur dérober leurs marques… Les intrus ne sont pas des héritiers, ils font partie de l'épreuve! Je suis le seul héritier, et si Tuo Sen est ici, il est lui aussi un héritier! »
+« La raison pour laquelle les membres du Clan de Dao Gu n'ont pas de symboles, alors que les plateformes exigent des marques pour progresser, est de pousser les membres des trois clans à tuer les intrus pour leur dérober leurs marques… Les intrus ne sont pas des héritiers, ils font partie de l'épreuve! Je suis le seul héritier, et si Tuo Sen est ici, il est lui aussi un héritier! »
 
 « Cependant, Tuo Sen est extrêmement arrogant et son esprit est brouillé, il se peut donc qu'il n'y ait pas pensé… » Wang Lin regarda la marque dans sa main et l'appliqua sur la plateforme. Elle fusionna rapidement avec elle.
 
@@ -80,13 +80,13 @@ Il y avait une autre plateforme dans la huitième carte, mais au lieu d'être im
 
 Elle avait également remarqué cette scène étrange, mais ne parvenait pas à en trouver la cause.
 
-« Qui est-ce…? Je possède un sort secret qui me permet d'absorber les runes dispersées dans le Tombeau de l'Ordre Antique pour augmenter le rang de ma plateforme. Comment a-t-il fait pour grimper de deux rangs en si peu de temps… Qui diable est-il? » Alors que la femme en blanc se massait les tempes, la plateforme sous elle trembla. Elle venait d'absorber suffisamment de runes pour atteindre le rang 7!
+« Qui est-ce…? Je possède un sort secret qui me permet d'absorber les runes dispersées dans le Tombeau de Dao Gu pour augmenter le rang de ma plateforme. Comment a-t-il fait pour grimper de deux rangs en si peu de temps… Qui diable est-il? » Alors que la femme en blanc se massait les tempes, la plateforme sous elle trembla. Elle venait d'absorber suffisamment de runes pour atteindre le rang 7!
 
 Ce changement interrompit ses pensées.
 
 Dans la neuvième carte, les turbulences spatiales étaient denses et presque infinies, forçant Tuo Sen à ralentir. L'expression féroce, il avança d'un pas.
 
-« Maudit Tombeau de l'Ordre Antique, maudite Ordre Antique pour avoir rendu cet héritage aussi difficile à obtenir! Ye Mo de l'Ordre Antique, je suis l'un des membres de ton clan. Si tu ne me le donnes pas, à qui comptes-tu bien le donner… »
+« Maudit Tombeau de Dao Gu, maudite Dao Gu pour avoir rendu cet héritage aussi difficile à obtenir! Ye Mo de Dao Gu, je suis l'un des membres de ton clan. Si tu ne me le donnes pas, à qui comptes-tu bien le donner… »
 
 Derrière Tuo Sen, sur une plateforme de rang 7, l'expression de la belle femme devint sérieuse. Elle n'avait plus rien de coquet et regarda derrière elle.
 
@@ -112,4 +112,4 @@ Une plateforme de rang 8, la toute première plateforme de rang 8 parmi tous les
 
 Lorsque la plateforme de rang 8 apparut, la mer de brume tourbillonna violemment et fut repoussée, comme un raz-de-marée. Des grondements tonitruants émanèrent de cette mer agitée et se propagèrent à toutes les zones des cartes.
 
-À cet instant, tous les cultivateurs du Tombeau de l'Ordre Antique ressentirent le changement violent qui s'opérait dans la brume autour d'eux!
+À cet instant, tous les cultivateurs du Tombeau de Dao Gu ressentirent le changement violent qui s'opérait dans la brume autour d'eux!

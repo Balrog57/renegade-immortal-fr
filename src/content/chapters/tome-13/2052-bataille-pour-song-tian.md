@@ -14,11 +14,11 @@ Le gigantesque Soleil de Grand Empyréen, second seulement à celui de Gu Dao, t
 
 « Il n'est même pas encore parvenu au Royaume Divin Immémorial et pourtant... Il est devenu un Grand Empyréen par sa propre force!! » Dans le Continent Bei, Wu Feng resta en transe, les yeux rivés sur le ciel pendant un long moment.
 
-Dans la Secte Yang Pourpre, les deux petites filles étaient transportées par la joie. Elles se tenaient par la main tout en contemplant le firmament.
+Dans la Secte Zi Yang, les deux petites filles étaient transportées par la joie. Elles se tenaient par la main tout en contemplant le firmament.
 
 « Il est devenu un Grand Empyréen... »
 
-Sur le Mont Empereur, dans la cité ancestrale, le Grand Empyréen Jiu Di regardait en direction du clan Ancien. Son cœur trembla, son visage pâlit légèrement et une incertitude l'envahit.
+Sur le Mont Di, dans la cité ancestrale, le Grand Empyréen Jiu Di regardait en direction du clan Ancien. Son cœur trembla, son visage pâlit légèrement et une incertitude l'envahit.
 
 « Lorsqu'il était dans le palais souterrain, il avait déjà formé l'esquisse d'un soleil, puis il a obtenu la tête de l'Ancêtre Céleste... Ce soleil possède trois couleurs: noir, blanc et or. L'or doit provenir de la fusion avec la tête de l'Ancêtre Céleste... »
 

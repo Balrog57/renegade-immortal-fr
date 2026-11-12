@@ -66,4 +66,4 @@ Après un long moment, Wang Lin ouvrit les yeux et se tourna vers l'est, son reg
 
 À cet instant, à Luotian, les quatre généraux volaient en avant. La bête de brume géante secoua la tête et poursuivit sa recherche, ses yeux brillant d'une intensité nouvelle, comme si elle avait décelé une trace. Le Vieux Fantôme Zhan suivait les généraux, l'œil vif; il avait compris le sens du regard de la bête!
 
-Toujours à Luotian, le Daoïste aux Sept Couleurs pénétra depuis la frontière avec la Rivière Invoquée. N'ayant rien trouvé dans le fleuve, il commença à explorer minutieusement Luotian.
+Toujours à Luotian, le Daoïste aux Sept Couleurs pénétra depuis la frontière avec Zhao He. N'ayant rien trouvé dans le fleuve, il commença à explorer minutieusement Luotian.

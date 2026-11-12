@@ -58,7 +58,7 @@ Un grondement tonitruant retentit. L'énergie d'épée vacilla et six de ses cou
 
 Le corps de Wang Lin trembla lorsqu'il sentit une aura déchaînée s'engouffrer dans son bras, le faisant gémir. Sa main gauche forma un sceau et pointa vers le vide, puis il ouvrit la bouche pour laisser s'échapper le Sceau Céleste. Dès son apparition, des âmes de bataille surgirent les unes après les autres!
 
-Maître du Vide, Tian Yunzi et Wu Qing apparurent tous et chargèrent la féroce Âme Naissante sanglante.
+Xu Kongzi, Tian Yunzi et Wu Qing apparurent tous et chargèrent la féroce Âme Naissante sanglante.
 
 En outre, une multitude d'âmes de bataille sortirent du Sceau Céleste: des Célestes, des cultivateurs de Luotian et de l'Alliance. Cela enveloppa immédiatement la zone d'une aura violente.
 

@@ -8,7 +8,7 @@ slug: la-troisieme-transformation-de-sept-couleurs
 ---
 À la surface de la Prairie Ji Tian, Zhang Daozong et le vieil homme nommé Zhao observaient le sol avec suspicion. Ils sentaient clairement une aura puissante jaillir des profondeurs de la terre.
 
-Bien qu'ils ne ressentent qu'une fraction de cette aura, elle suffisait à leur faire rater un battement de cœur. C'était comme si un immense Taureau Céleste s'était éveillé et poussait un rugissement en se précipitant vers le ciel.
+Bien qu'ils ne ressentent qu'une fraction de cette aura, elle suffisait à leur faire rater un battement de cœur. C'était comme si un immense Tian Niu s'était éveillé et poussait un rugissement en se précipitant vers le ciel.
 
 Ils n'étaient pas les seuls à ressentir cela. Les quatre Messagers du Démon Vert affichaient des expressions solennelles en fixant la terre.
 
@@ -18,7 +18,7 @@ Au fil des éons, de nombreux messagers s'étaient succédé, mais après d'inno
 
 Ces neuf personnes étaient les Messagers du Démon Vert du Continent Lu Mo. Ils étaient les héritiers de la volonté du Scorpion du Démon Vert, lequel était opprimé sous le continent!
 
-C'est pour cette raison que leurs perceptions étaient bien plus aiguisées que celles de Zhang Daozong et des autres. Ils savaient clairement que l'aura provenant du sous-sol émanait d'un messager du Taureau Céleste ayant obtenu la reconnaissance de ce dernier.
+C'est pour cette raison que leurs perceptions étaient bien plus aiguisées que celles de Zhang Daozong et des autres. Ils savaient clairement que l'aura provenant du sous-sol émanait d'un messager du Tian Niu ayant obtenu la reconnaissance de ce dernier.
 
 La terre trembla plus violemment encore sous des grondements sourds. L'herbe s'effondra, réduite en une poudre verdâtre. Le vent souleva cette poussière vers le ciel, enveloppant les environs d'un brouillard épais.
 
@@ -36,17 +36,17 @@ Bien que ce miroir fût une illusion, il dégageait une puissante aura démoniaq
 
 Alors que le gaz vert balayait la surface du miroir, un continent apparut. Cette terre ne comptait que peu de montagnes, mais était parsemée de nombreux marais. Même certaines cités mortelles étaient bâties au-dessus de ces marécages, ce qui était très étrange.
 
-Ce continent semblait plus petit que celui du Taureau Céleste, ne représentant qu'environ 70 % de sa taille. Cependant, il était recouvert de marais et la brume qui l'entourait lui donnait un aspect onirique.
+Ce continent semblait plus petit que celui du Tian Niu, ne représentant qu'environ 70 % de sa taille. Cependant, il était recouvert de marais et la brume qui l'entourait lui donnait un aspect onirique.
 
 Le monde à l'intérieur du miroir était le Continent Lu Mo!
 
 Tandis que les quatre Messagers rugissaient, le miroir s'enfonça lentement pour recouvrir le sol entre eux. De cette position, il couvrait toute la Prairie Ji Tian afin de la réprimer.
 
-Au plus profond de la terre, Wang Lin, fusionné avec le Taureau Céleste derrière lui, s'élançait vers la surface. Le palais souterrain restait derrière lui. Il n'avait nullement l'intention de jouer les héros; il ne faisait pas cela pour le continent du Taureau Céleste, mais pour remplir ses trois conditions.
+Au plus profond de la terre, Wang Lin, fusionné avec le Tian Niu derrière lui, s'élançait vers la surface. Le palais souterrain restait derrière lui. Il n'avait nullement l'intention de jouer les héros; il ne faisait pas cela pour le Continent Tian Niu, mais pour remplir ses trois conditions.
 
 Cependant, Wang Lin était raisonnable. Son armure d'âme contenait la culture et le sang de plus de mille cultivateurs restés dans le palais souterrain. Il ne pouvait les abandonner. Il devait au moins assurer leur sécurité avant de partir.
 
-Désormais, il allait surgir des entrailles de la terre pour terrasser trois vieux monstres de stade intermédiaire de la Tribulation du Vide et accomplir la deuxième tâche confiée par l'Ancêtre Taureau Vert!
+Désormais, il allait surgir des entrailles de la terre pour terrasser trois vieux monstres de stade intermédiaire de la Tribulation du Vide et accomplir la deuxième tâche confiée par l'Ancêtre Qing Niu!
 
 Alors qu'il chargeait, le visage de Wang Lin était dissimulé par l'armure noire, ne laissant paraître que ses yeux froids et sa chevelure d'un blanc immaculé. Sa vitesse était prodigieuse; en un éclair, il n'était plus qu'à quelques milliers de pieds de la surface.
 
@@ -54,13 +54,13 @@ Mais à cet instant précis, les yeux de Wang Lin se contractèrent. Il sentit c
 
 Il entrevit vaguement quatre scorpions verts charger avec férocité.
 
-Un sentiment de dégoût et de haine envahit le cœur de Wang Lin envers ces quatre créatures. Il comprit que ce n'était pas son propre ressenti, mais celui de l'âme du Taureau Céleste!
+Un sentiment de dégoût et de haine envahit le cœur de Wang Lin envers ces quatre créatures. Il comprit que ce n'était pas son propre ressenti, mais celui de l'âme du Tian Niu!
 
-Il était évident qu'il y a des éons, avant que le Taureau Céleste et le scorpion ne soient opprimés par l'Ancêtre Céleste, ils s'étaient connus!
+Il était évident qu'il y a des éons, avant que le Tian Niu et le scorpion ne soient opprimés par l'Ancêtre Céleste, ils s'étaient connus!
 
 Ou plutôt, ils étaient de vieux ennemis!
 
-Le regard de Wang Lin s'illumina et il s'arrêta brusquement. L'ombre du Taureau Céleste se condensa dans son corps avant de disparaître sans laisser de trace. Seul Wang Lin demeura sur place.
+Le regard de Wang Lin s'illumina et il s'arrêta brusquement. L'ombre du Tian Niu se condensa dans son corps avant de disparaître sans laisser de trace. Seul Wang Lin demeura sur place.
 
 Sans l'ombre d'une hésitation, Wang Lin leva le pied. Il ne chargea plus vers le haut, mais se dirigea vers l'ouest. D'un seul pas, il se déplaça comme un éclair et disparut. Lorsqu'il réapparut, du gaz vert l'attendait et un féroce scorpion vert fonçait sur lui.
 
@@ -108,6 +108,6 @@ La lance grise fondit sur un scorpion. La créature poussa un hurlement et crach
 
 Des échos tonitruants résonnèrent dans les profondeurs. La terre continua de trembler et une explosion jaillit du sous-sol et une tempête s'éleva vers la surface, provoquant l'effondrement d'une zone de plus de mille kilomètres de diamètre dans la Prairie Ji Tian sous l'impact, projetant d'innombrables mottes de terre et d'herbe vers le ciel.
 
-« Malheureusement, l'armure d'âme ne fait qu'augmenter mon niveau de culture. Elle ne se base pas sur mon propre corps, mais sur l'aura du Taureau Céleste. Si j'étais au début du stade de la Tribulation du Vide, j'aurais neuf essences complètes. Et si je possédais neuf corps d'essence véritables, neuf lances apparaîtraient. Je serais alors certain de détruire les trois scorpions d'un coup! » Wang Lin secoua intérieurement la tête. Cette armure était, après tout, un objet externe. Bien que puissante, elle n'était pas la sienne.
+« Malheureusement, l'armure d'âme ne fait qu'augmenter mon niveau de culture. Elle ne se base pas sur mon propre corps, mais sur l'aura du Tian Niu. Si j'étais au début du stade de la Tribulation du Vide, j'aurais neuf essences complètes. Et si je possédais neuf corps d'essence véritables, neuf lances apparaîtraient. Je serais alors certain de détruire les trois scorpions d'un coup! » Wang Lin secoua intérieurement la tête. Cette armure était, après tout, un objet externe. Bien que puissante, elle n'était pas la sienne.
 
 « Il reste encore deux scorpions. Je vais en profiter pour tester mes autres sorts, afin d'en connaître la puissance réelle et de voir si je dois continuer à les perfectionner! »

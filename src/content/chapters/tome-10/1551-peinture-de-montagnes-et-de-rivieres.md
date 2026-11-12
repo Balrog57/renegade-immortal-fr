@@ -88,7 +88,7 @@ Une sensation de passage du temps s'installa, comme si des millénaires s'écoul
 
 Les vêtements de Wang Lin claquèrent au vent. Il leva la main droite, les yeux brillant d'un éclat doré. Tandis que la peinture continuait son œuvre, d'innombrables ondulations se propagèrent et un rugissement tonitruant retentit au loin. Une empreinte de paume géante apparut soudainement au-dessus de Wang Lin et du tableau!
 
-Les lignes de cette empreinte étaient d'une clarté extrême. Plus choquant encore était l'éclat doré qu'elle émettait et l'énergie spirituelle céleste phénoménale qui se répandait à travers le Vide Brillant!
+Les lignes de cette empreinte étaient d'une clarté extrême. Plus choquant encore était l'éclat doré qu'elle émettait et l'énergie spirituelle céleste phénoménale qui se répandait à travers le Kun Xu!
 
 Cette énergie était d'une pureté absolue, bien plus puissante que le tonnerre et les flammes célestes que Wang Lin avait utilisés précédemment. Elle atteignait un degré terrifiant.
 
@@ -98,11 +98,11 @@ L'empreinte la plus authentique, activée par Wang Lin grâce à sa lignée cél
 
 Le corps céleste, semblable à une âme originelle logée dans le corps de Wang Lin, déversa une quantité massive d'énergie spirituelle céleste dans son bras droit. Cela permit à l'Empreinte de l'Esprit Guerrier d'être saturée d'une puissance divine!
 
-L'apparition d'une énergie aussi pure dans le Système Stellaire du Vide Brillant revenait à verser une goutte d'huile bouillante dans de l'eau claire: l'explosion était inévitable! Depuis la naissance du système, une telle pureté n'avait jamais été observée, et jamais à une si grande échelle!
+L'apparition d'une énergie aussi pure dans le Système Stellaire de Kun Xu revenait à verser une goutte d'huile bouillante dans de l'eau claire: l'explosion était inévitable! Depuis la naissance du système, une telle pureté n'avait jamais été observée, et jamais à une si grande échelle!
 
 Dès que l'Empreinte apparut, cette énergie déclencha une onde de choc monstrueuse qui stupéfia quelques personnes, les plongeant dans l'incrédulité!
 
-Dans la Rivière Invoquée, bien qu'elle soit tombée dans le royaume extérieur, dans les profondeurs du nord, un jeune homme sans aucune marque entre les sourcils marchait d'un pas nonchalant, calculant sur ses doigts.
+Dans Zhao He, bien qu'elle soit tombée dans le royaume extérieur, dans les profondeurs du nord, un jeune homme sans aucune marque entre les sourcils marchait d'un pas nonchalant, calculant sur ses doigts.
 
 « Ah, où est passé cet endroit dont parlait Maître-Oncle Ma? Pourquoi est-ce si difficile à trouver... Il devrait être par ici, mais je ne vois toujours pas l'entrée... » murmura le jeune homme, avant que son expression ne change radicalement. Un tel changement n'était jamais apparu sur son visage depuis son arrivée dans le Royaume Intérieur!
 

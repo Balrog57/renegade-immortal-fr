@@ -92,7 +92,7 @@ Le visage de Fan Shanlu devint livide. Dans ce moment critique, sa main droite t
 
 « Sœur aînée, aide-moi!! »
 
-Sa voix était empreinte d'une immense douleur. À cet instant, les étoiles tremblèrent et une aura exotique surgit de nulle part! Sur le Continent Astral Immortel, il existait une terre glacée couverte de neige éternelle. Un froid si intense qu'il pouvait figer toute vie; même les cultivateurs peinaient à y survivre.
+Sa voix était empreinte d'une immense douleur. À cet instant, les étoiles tremblèrent et une aura exotique surgit de nulle part! Sur le Continent Xian Gang, il existait une terre glacée couverte de neige éternelle. Un froid si intense qu'il pouvait figer toute vie; même les cultivateurs peinaient à y survivre.
 
 Dans ce pays gelé, à l'intérieur d'une montagne de glace, une femme était assise en tailleur. Son apparence était le reflet exact de celle de Fan Shanlu!
 

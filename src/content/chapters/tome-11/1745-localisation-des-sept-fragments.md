@@ -76,7 +76,7 @@ Ce visage poussa un rugissement silencieux et les dévora tous deux.
 
 Au moment où ils furent engloutis, le cœur de Wang Lin et de Qing Shui tressaillit. Un vortex colossal apparut, entraînant leurs âmes et leurs Sens Divins dans les profondeurs du passé antique!
 
-Le monde était en plein chaos; c'était le noyau de la grotte, le centre même de ce monde caverneux où se trouvait la porte de la grotte menant au Continent Astral Immortel!
+Le monde était en plein chaos; c'était le noyau de la grotte, le centre même de ce monde caverneux où se trouvait la porte de la grotte menant au Continent Xian Gang!
 
 À cet instant précis, dans cette zone centrale, dans la véritable demeure de la grotte, le Dao Céleste ouvrit sa gueule et dévora Lian Daofei. Des grondements de tonnerre résonnèrent dans tout le monde caverneux, et c'est à ce moment que Wang Lin fit son apparition.
 

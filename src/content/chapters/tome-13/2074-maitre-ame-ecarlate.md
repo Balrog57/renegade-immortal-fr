@@ -48,9 +48,9 @@ Il fixa les terres du Royaume Céleste avec une expression cruelle.
 
 « Presque tous les êtres puissants du Royaume Intérieur sont concentrés ici, dans le Royaume Céleste. Avant que ma culture ne soit rétablie, je n'étais pas certain de pouvoir briser la formation, mais désormais, elle cédera dans deux jours. Tous ces gens deviendront ma nourriture, et après avoir dévoré leur essence sanguine, mon niveau de culture atteindra le rang d'Exalté Doré! »
 
-« Haha, une fois devenu un Exalté Doré, même en retournant sur le Continent Astral Immortel, je pourrai devenir le Grand Ancien d'une secte et j'aurai même une chance de devenir un Exalté Empyréen! » Les yeux de Chi Hunzi brillaient d'excitation. Il savait qu'il y avait très peu d'Exaltés Empyréens sur le Continent Astral Immortel, tout au plus quelques centaines. Une fois devenu un Exalté Empyréen, il pourrait servir un Grand Empyréen.
+« Haha, une fois devenu un Exalté Doré, même en retournant sur le Continent Xian Gang, je pourrai devenir le Grand Ancien d'une secte et j'aurai même une chance de devenir un Exalté Empyréen! » Les yeux de Chi Hunzi brillaient d'excitation. Il savait qu'il y avait très peu d'Exaltés Empyréens sur le Continent Xian Gang, tout au plus quelques centaines. Une fois devenu un Exalté Empyréen, il pourrait servir un Grand Empyréen.
 
-Et à ce moment-là, en tant que cultivateur au service de l'un des Grands Empyréens, il serait célèbre à travers tout le Continent Astral Immortel.
+Et à ce moment-là, en tant que cultivateur au service de l'un des Grands Empyréens, il serait célèbre à travers tout le Continent Xian Gang.
 
 « Parmi les cinq Grands Empyréens, si je devais me rallier à l'un d'eux, je choisirais en premier l'Empereur Céleste... Malheureusement, il y a bien des êtres puissants sous les ordres de l'Empereur Céleste et il pourrait ne pas vouloir de moi... Cependant, même si je ne peux suivre l'Empereur Céleste, je peux toujours suivre le Grand Empyréen Dao Yi! »
 
@@ -88,7 +88,7 @@ Chi Hunzi sourit et ajouta: « Ce n'est pas nécessaire. Cette Mu Bingmei est la
 
 À cet instant, alors que Chi Hunzi continuait d'utiliser la lumière sanguine pour corroder la formation, une femme en blanc se tenait sur un sommet élevé.
 
-Cette femme était d'une beauté absolue. Oubliez le monde des grottes, personne sur le Continent Astral Immortel ne pouvait égaler sa splendeur. Sa beauté semblait presque surnaturelle, comme si elle n'appartenait pas à ce monde.
+Cette femme était d'une beauté absolue. Oubliez le monde des grottes, personne sur le Continent Xian Gang ne pouvait égaler sa splendeur. Sa beauté semblait presque surnaturelle, comme si elle n'appartenait pas à ce monde.
 
 Le vent soufflait, transportant une odeur de sang. Il souleva ses cheveux et révéla un visage d'une beauté à couper le souffle, d'un calme imperturbable en cet instant. Cependant, au plus profond de cette sérénité se cachaient une confusion et une amertume que nul ne pouvait percevoir. Elle utilisait sa détermination farouche comme une armure pour envelopper la douleur enfouie dans son cœur.
 
@@ -122,4 +122,4 @@ Son sens divin se propagea inconsciemment dans toutes les directions.
 
 « Je me demande à quoi ressemble le Royaume Céleste. Y a-t-il eu de grands changements depuis mon départ... Ces vieux amis et— » Wang Lin s'interrompit brusquement. Il fixa la direction du Royaume Céleste, et le sourire sur son visage fut instantanément remplacé par une froideur glaciale et une intention meurtrière monstrueuse.
 
-C'était la première fois que son intention meurtrière éclatait avec une telle puissance depuis qu'il était devenu l'être le plus puissant du Continent Astral Immortel.
+C'était la première fois que son intention meurtrière éclatait avec une telle puissance depuis qu'il était devenu l'être le plus puissant du Continent Xian Gang.

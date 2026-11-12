@@ -34,7 +34,7 @@ Li Muwan se mordit la lèvre inférieure. Si elle restait absente de chez elle t
 
 Six âmes apparurent lentement autour de la pilule. C'étaient les six alchimistes précédemment sacrifiés par le sang. Elles flottaient autour de la pilule.
 
-L'expression d'Ouyang Zi devint sérieuse; il joignit les mains et cria: « C'est grâce à vous six, compagnons cultivateurs, que ma pilule a pu être créée avec succès. Je ne saurais assez vous remercier. Cette pilule sera nommée la Pilule Esprit des Six Chemins en votre honneur. »
+L'expression d'Ouyang Zi devint sérieuse; il joignit les mains et cria: « C'est grâce à vous six, Daoïstes, que ma pilule a pu être créée avec succès. Je ne saurais assez vous remercier. Cette pilule sera nommée la Pilule Esprit des Six Chemins en votre honneur. »
 
 Dès que ces mots furent prononcés, les six âmes affichèrent une expression de satisfaction. Elles regardèrent la pilule avec un certain regret sur leurs visages avant de disparaître.
 
@@ -98,7 +98,7 @@ Après dix jours, Wang Lin quitta l'espace défiant le ciel. Au moment où il r�
 
 Son corps principal et son avatar étaient à l'étape finale de la fusion. Si un échec survenait ici, tous ces efforts seraient vains. Wang Lin restait d'un calme absolu, totalement absorbé par ce processus de fusion.
 
-Le temps passa lentement. Outre le Royaume Ji, un autre obstacle se dressait devant lui: un fil de rétribution divine. Quant à savoir si l'opération serait un succès, nul ne pouvait en être certain.
+Le temps passa lentement. Outre le Royaume Ji, un autre obstacle se dressait devant lui: un fil de Tribulation Céleste. Quant à savoir si l'opération serait un succès, nul ne pouvait en être certain.
 
 Plus de mille ans d'énergie spirituelle stockée dans les sept Fours à Pilules « Vol de Ciel » étaient lentement aspirées par Wang Lin. Sa tactique d'Ancien Dieu absorbait cette énergie comme un trou noir.
 
@@ -206,7 +206,7 @@ Peu après, Liu Fei et Song Qing entrèrent dans la salle principale, suivis par
 
 À leur entrée, tous les invités cessèrent leurs conversations pour les observer.
 
-Dans la salle, Liu Fei regarda Song Qing. Il sourit et fit quelques pas en retrait. Song Qing acquiesça. Son regard balaya l'assemblée et il déclara: « Chers compagnons cultivateurs, aujourd'hui est un jour de célébration pour ma Secte Yun Tian... »
+Dans la salle, Liu Fei regarda Song Qing. Il sourit et fit quelques pas en retrait. Song Qing acquiesça. Son regard balaya l'assemblée et il déclara: « Chers Daoïstes, aujourd'hui est un jour de célébration pour ma Secte Yun Tian... »
 
 Il ne put achever sa phrase qu'une secousse soudaine fit trembler le sol, tandis qu'une pression monstrueuse émergeait des profondeurs. Sous la force de cette présence écrasante, tous les cultivateurs de l'Âme Naissante dans la salle se levèrent, terrifiés. Ils déployèrent tous leur Sens Divin sous terre pour comprendre ce qui se passait.
 

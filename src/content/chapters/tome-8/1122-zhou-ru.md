@@ -82,19 +82,19 @@ Le garçon, jusque-là d'un naturel paresseux, se figea brusquement. Il se leva 
 
 Ses pupilles se rétractèrent et il lâcha: « Une odeur de sang émane de votre corps! »
 
-Wang Lin avait déjà visité le Royaume Kun Xu autrefois, par son esprit. En sortant de la formation, il regarda le garçon et joignit calmement les mains. « Je vous prie, messire, de transmettre ce message: je suis Wang Lin, et je viens au nom de la Secte Divine de l'Oiseau Vermillon pour livrer une pierre de jade! »
+Wang Lin avait déjà visité le Royaume Kun Xu autrefois, par son esprit. En sortant de la formation, il regarda le garçon et joignit calmement les mains. « Je vous prie, messire, de transmettre ce message: je suis Wang Lin, et je viens au nom de la Secte Divine de Suzaku pour livrer une pierre de jade! »
 
 Le garçon fronça les sourcils, le regard froid: « Vous avez du cran. Cela faisait longtemps que personne n'avait osé s'introduire dans le Royaume Kun Xu. »
 
 En entendant ces mots, Wang Lin soupira et ignora simplement l'individu. Son sens divin se propagea à travers tout le Royaume Kun Xu pour diffuser son message:
 
-« Junior Wang Lin est venu livrer une pierre de jade de la part de l'ancien Empereur Divin de l'Oiseau Vermillon! »
+« Junior Wang Lin est venu livrer une pierre de jade de la part de l'ancien Empereur Divin de Suzaku! »
 
 Les yeux du garçon s'illuminèrent, mais il n'attaqua pas. Il continua d'observer Wang Lin. À cet instant, plusieurs sens divins balayèrent les environs, incluant ceux de cultivateurs du Briseur du Nirvana.
 
 Il y en avait assez pour tuer Wang Lin!
 
-Si Wang Lin avait osé venir dans le Royaume Kun Xu, c'était par confiance. L'ancien Empereur Divin de l'Oiseau Vermillon ne lui ferait aucun mal. Puisqu'il était chargé de livrer cette pierre, celle-ci ne devait naturellement représenter aucun danger pour lui.
+Si Wang Lin avait osé venir dans le Royaume Kun Xu, c'était par confiance. L'ancien Empereur Divin de Suzaku ne lui ferait aucun mal. Puisqu'il était chargé de livrer cette pierre, celle-ci ne devait naturellement représenter aucun danger pour lui.
 
 Wang Lin ne chercha pas à découvrir ce que contenait la pierre. Il savait qu'il valait mieux ignorer certaines choses.
 
@@ -120,4 +120,4 @@ L'homme qui s'était rendu en Terre Yao Ling avec Mu Bingmei n'apparut pas. C'es
 
 Cet homme exhalait une grande majesté. Dès son apparition, les cultivateurs environnants firent preuve d'un immense respect.
 
-Le regard de l'homme balaya Wang Lin tandis qu'il déclarait d'une voix lente: « Il est rare que l'Empereur Divin de l'Oiseau Vermillon vienne rendre visite au Royaume Kun Xu! »
+Le regard de l'homme balaya Wang Lin tandis qu'il déclarait d'une voix lente: « Il est rare que l'Empereur Divin de Suzaku vienne rendre visite au Royaume Kun Xu! »

@@ -1,6 +1,6 @@
 ---
 n: 206
-title: Rétribution Divine
+title: Tribulation Céleste
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 206 - Divine Retribution
@@ -26,7 +26,7 @@ Une vague de soulagement envahit Qiu Siping. Tant que Wang Lin posait des questi
 
 Tous deux étaient au stade avancé de la Formation du Noyau, et pourtant, un tel écart de puissance les séparait. Qiu Siping sourit amèrement intérieurement. Il sentait que la seule raison pour laquelle Wang Lin était plus fort était qu'il possédait un trésor lui permettant d'augmenter sa puissance d'attaque. Autrement, comment aurait-il pu être aussi impuissant face à lui?
 
-En entendant la question de Wang Lin, il répondit promptement: « Cher compagnon cultivateur, c'est une longue histoire. Et si nous nous asseyions pour que je vous la raconte? »
+En entendant la question de Wang Lin, il répondit promptement: « Cher Daoïste, c'est une longue histoire. Et si nous nous asseyions pour que je vous la raconte? »
 
 Wang Lin le regarda et hocha légèrement la tête.
 
@@ -52,13 +52,13 @@ Il voulait que tous ceux qui avaient secrètement aidé la famille Teng soient p
 
 Plus important encore, il voulait arracher l'âme de Teng Huayuan. Il voulait l'écorcher, lui retirer les os, fondre ses tendons et lui trancher la chair: tous les moyens imaginables pour rembourser ces plus de quatre cents ans de souffrance et de haine.
 
-Qiu Siping agita la main droite, faisant apparaître une bouteille de vin et deux coupes. Il se servit personnellement, prit l'une des coupes et en but une gorgée. Il sourit: « Cher compagnon cultivateur, c'est un vin de haute qualité élaboré à partir du fruit Can Yun de la partie nord de la Mer Xiu Mo. Une seule gorgée suffit pour en savourer les arômes longtemps. Pourquoi ne pas l'essayer? »
+Qiu Siping agita la main droite, faisant apparaître une bouteille de vin et deux coupes. Il se servit personnellement, prit l'une des coupes et en but une gorgée. Il sourit: « Cher Daoïste, c'est un vin de haute qualité élaboré à partir du fruit Can Yun de la partie nord de la Mer Xiu Mo. Une seule gorgée suffit pour en savourer les arômes longtemps. Pourquoi ne pas l'essayer? »
 
 Wang Lin n'insista pas pour obtenir une réponse immédiate. Il prit la coupe et l'examina attentivement, comme si le vin recelait quelque chose d'intéressant.
 
 Le liquide de haute qualité dans la coupe affichait une couleur vert jade cristalline. Très magnifique.
 
-Qiu Siping savoura son vin pendant un long moment et, constatant que Wang Lin ne semblait pas s'intéresser à ces futilités, il sourit amèrement: « Cher compagnon cultivateur, si quelqu'un d'autre m'avait posé cette question, je ne lui aurais certainement rien dit. Mais vous êtes différent. Nous sommes tous deux au stade avancé de la Formation du Noyau et nous rêvons tous les deux d'atteindre ce stade élevé et lointain de l'Âme Naissante. »
+Qiu Siping savoura son vin pendant un long moment et, constatant que Wang Lin ne semblait pas s'intéresser à ces futilités, il sourit amèrement: « Cher Daoïste, si quelqu'un d'autre m'avait posé cette question, je ne lui aurais certainement rien dit. Mais vous êtes différent. Nous sommes tous deux au stade avancé de la Formation du Noyau et nous rêvons tous les deux d'atteindre ce stade élevé et lointain de l'Âme Naissante. »
 
 « Quant à ces Âmes Naissantes piégées en état de Gui Xi... l'une d'elles est mon maître! »
 
@@ -82,7 +82,7 @@ Qiu Siping frappa son sac de rangement de la main droite, en sortit quelques mor
 
 Après avoir entendu cela, Wang Lin prit un morceau de jade et le scruta avec son Sens Divin. Après un court instant, il le reposa et en saisit un autre. Finalement, tous les morceaux furent examinés. Les symboles contenus dans ces jades servaient à une restriction de protection; il s'agissait probablement d'une barrière destinée à garder la grotte.
 
-Qiu Siping demanda: « Cher compagnon cultivateur, qu'en pensez-vous? »
+Qiu Siping demanda: « Cher Daoïste, qu'en pensez-vous? »
 
 Wang Lin réfléchit longuement avant de lever la tête. Il regarda Qiu Siping et demanda: « À quel niveau de culture se trouvent ces deux cultivateurs de l'Âme Naissante? »
 
@@ -94,7 +94,7 @@ Cela ne sembla pas déranger Qiu Siping. Il hocha la tête et dit: « C'est comp
 
 L'expression de Wang Lin resta impassible, mais il restait sur ses gardes. À ses yeux, cette mise en scène de Qiu Siping montrait un homme qui savait fort bien tout prendre et tout lâcher.
 
-Mais avec la finesse d'esprit de Wang Lin, comment se serait-il laissé abuser par de simples apparences? Il sourit légèrement, ce qui valait réponse, puis se leva, joignit les mains et dit: « Cher compagnon cultivateur, puisque c'est ainsi, fixons cela à sept jours, à la même heure et au même endroit; je vous donnerai alors ma réponse. »
+Mais avec la finesse d'esprit de Wang Lin, comment se serait-il laissé abuser par de simples apparences? Il sourit légèrement, ce qui valait réponse, puis se leva, joignit les mains et dit: « Cher Daoïste, puisque c'est ainsi, fixons cela à sept jours, à la même heure et au même endroit; je vous donnerai alors ma réponse. »
 
 Qiu Siping sourit. Il hocha la tête et joignit également ses mains.
 
@@ -176,7 +176,7 @@ Il fixa Qiu Siping devant lui, une idée gourmande germant dans son esprit: si s
 
 À cet instant précis, Qiu Siping ralentit soudainement et atterrit au sol. Il scruta les environs. Hormis la brume naturelle de la Mer Xiu Mo, rien ne bougeait.
 
-Une fois posé, il ricana: « Cher compagnon cultivateur, vous vous cachez depuis trop longtemps, autant sortir maintenant! »
+Une fois posé, il ricana: « Cher Daoïste, vous vous cachez depuis trop longtemps, autant sortir maintenant! »
 
 Le démon Xu Liguo fut stupéfait. Il se tenait juste derrière Qiu Siping et fut choqué par ce cri. Il crut avoir été découvert.
 
@@ -184,7 +184,7 @@ Il s'apprêtait à reculer quand il s'arrêta net: Qiu Siping s'était retourné
 
 Le visage de Xu Liguo devint féroce. S'il affrontait Qiu Siping et consommait son noyau, il deviendrait plus fort. Même si le maître posait des questions, il pourrait prétendre que c'était Qiu Siping qui l'avait attaqué en premier. Il devait le dévorer d'abord.
 
-Il s'apprêtait à bondir quand il s'arrêta de nouveau: Qiu Siping se retourna vers une autre direction et cria: « Cher compagnon cultivateur, si vous ne vous montrez pas maintenant, je serai contraint d'agir! »
+Il s'apprêtait à bondir quand il s'arrêta de nouveau: Qiu Siping se retourna vers une autre direction et cria: « Cher Daoïste, si vous ne vous montrez pas maintenant, je serai contraint d'agir! »
 
 Le démon Xu Liguo était perplexe: « Je suis juste là, ne m'as-tu pas vu à l'instant? Pourquoi dis-tu que je ne me montre pas? »
 
@@ -290,11 +290,11 @@ Au sein du nuage rouge, des précipitations gazeuses commencèrent à tomber. D�
 
 À cet instant, dans la partie orientale de la zone intérieure de la Mer Xiu Mo, un homme sortit d'une montagne faite de crânes. Il était imprégné d'une odeur de mort et sa silhouette restait indistincte.
 
-Il leva les yeux vers les nuages comme s'il pouvait voir à travers eux, percevant le nuage rouge. Il grommela: « Rétribution divine? Impossible. Depuis que le monde ancien a été détruit par la catastrophe, il ne devrait plus y avoir de rétribution divine. Tous les cultivateurs actuels trompent les cieux pour cultiver; comment cela pourrait-il provoquer une telle réaction? Se peut-il que des anciens cultivateurs aient survécu? Si tel est le cas, ce seront des suppléments de très haute qualité! » Sur ces mots, son corps se téléporta vers la formation du nuage rouge.
+Il leva les yeux vers les nuages comme s'il pouvait voir à travers eux, percevant le nuage rouge. Il grommela: « Tribulation Céleste? Impossible. Depuis que le monde ancien a été détruit par la catastrophe, il ne devrait plus y avoir de Tribulation Céleste. Tous les cultivateurs actuels trompent les cieux pour cultiver; comment cela pourrait-il provoquer une telle réaction? Se peut-il que des anciens cultivateurs aient survécu? Si tel est le cas, ce seront des suppléments de très haute qualité! » Sur ces mots, son corps se téléporta vers la formation du nuage rouge.
 
 Dans l'extrême ouest de la Mer Xiu Mo se trouvait un bassin rempli d'eau de mer. Comme ce n'était pas encore la saison pour que la brume se transforme en mer, le spectacle était prodigieux.
 
-L'eau commença soudainement à s'agiter violemment. Un homme vêtu d'une robe bleue surgit des profondeurs, provoquant de grandes vagues. Marchant sur l'écume, il flotta lentement vers le ciel. Il fixa les cieux avec un air de choc: « Rétribution divine? Depuis quand de tels événements se produisent-ils dans la Mer Xiu Mo? Cette rétribution devrait attirer tous les vieux monstres qui se cachent. » Un léger sourire étira ses lèvres. Son corps plana au-dessus de l'eau et, d'un geste de la main, il fit s'élever l'eau du bassin dans les airs.
+L'eau commença soudainement à s'agiter violemment. Un homme vêtu d'une robe bleue surgit des profondeurs, provoquant de grandes vagues. Marchant sur l'écume, il flotta lentement vers le ciel. Il fixa les cieux avec un air de choc: « Tribulation Céleste? Depuis quand de tels événements se produisent-ils dans la Mer Xiu Mo? Cette rétribution devrait attirer tous les vieux monstres qui se cachent. » Un léger sourire étira ses lèvres. Son corps plana au-dessus de l'eau et, d'un geste de la main, il fit s'élever l'eau du bassin dans les airs.
 
 La scène était saisissante. L'homme replongea dans les eaux. D'un mouvement de la main, il projeta l'eau vers le nuage rouge avec une force irrésistible.
 

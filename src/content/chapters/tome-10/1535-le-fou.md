@@ -20,7 +20,7 @@ Un cultivateur aux vêtements déchirés et à la barbe broussailleuse était ac
 
 Il avait erré dans cet endroit durant d'innombrables années sans jamais croiser une seconde âme. Il se souvenait qu'il y a un nombre indéterminé d'années, il était également allongé ici, regardant le ciel avec vacuité.
 
-Il avait supplié les cieux de lui accorder un compagnon de culture pour rompre sa solitude.
+Il avait supplié les cieux de lui accorder un Daoïste pour rompre sa solitude.
 
 Il y pensait presque chaque jour, mais cette fois-ci était différente. À l'instant même où une telle pensée lui traversa l'esprit, ses yeux s'écarquillèrent: une lueur jaillit dans le ciel étoilé. Il vit quelque chose tomber des cieux et atterrir de l'autre côté de la planète.
 
@@ -80,7 +80,7 @@ Alors que le fou marmonnait pour lui-même, il ne remarqua pas que le cadavre, q
 
 Une force rejetait ce sang avec frénésie, comme si les deux ne pouvaient coexister. Cependant, au cœur de ce rejet, il y avait un soupçon de fusion... Ce cadavre était Wang Lin!
 
-Le sang du fou ne pouvait absolument pas se fondre avec la puissance de l'Ordre Antique qui résidait en lui. Les deux se dévoraient mutuellement dans une lutte acharnée, comme dans un combat à mort. Cette destruction mutuelle provoqua chez Wang Lin un étrange changement. Ce processus semblait transformer sa lignée... passant d'une condition mortelle à celle d'un véritable être céleste!
+Le sang du fou ne pouvait absolument pas se fondre avec la puissance de Dao Gu qui résidait en lui. Les deux se dévoraient mutuellement dans une lutte acharnée, comme dans un combat à mort. Cette destruction mutuelle provoqua chez Wang Lin un étrange changement. Ce processus semblait transformer sa lignée... passant d'une condition mortelle à celle d'un véritable être céleste!
 
 L'arc de Li Guang n'avait reconnu aucun autre maître depuis la mort de son premier possesseur, et même le Vieux Fantôme Zhan ne pensait pas qu'un nouveau maître puisse émerger. Tandis que cette métamorphose s'opérait en Wang Lin, un changement phénoménal se produisait également dans l'arc de Li Guang!
 

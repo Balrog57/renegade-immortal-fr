@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1464 - Who’s Faster
 slug: qui-est-le-plus-rapide
 ---
-À cet instant, un nombre inconnu de cultivateurs se trouvaient encore à l'intérieur de la Tombe de l'Ordre Antique. Leurs expressions changèrent toutes lorsqu'ils contemplèrent le brouillard violent qui les entourait. Ils étaient en état de stupeur.
+À cet instant, un nombre inconnu de cultivateurs se trouvaient encore à l'intérieur de la Tombe de Dao Gu. Leurs expressions changèrent toutes lorsqu'ils contemplèrent le brouillard violent qui les entourait. Ils étaient en état de stupeur.
 
 La peur de l'inconnu grandissait rapidement.
 
@@ -20,7 +20,7 @@ Loin derrière lui, trois plateformes le poursuivaient, prêtes à se partager s
 
 Ce changement soudain fit pâlir les trois poursuivants. Toutefois, la mer de brouillard fut plus rapide qu'eux et l'onde les balaya instantanément. Les trois poursuivants ainsi que leurs plateformes s'effondrèrent tous.
 
-Des scènes similaires se produisirent partout dans la Tombe de l'Ordre Antique, provoquant un carnage massif. Mais ce qui attendait ceux qui avaient eu la chance de survivre était une surprise de taille!
+Des scènes similaires se produisirent partout dans la Tombe de Dao Gu, provoquant un carnage massif. Mais ce qui attendait ceux qui avaient eu la chance de survivre était une surprise de taille!
 
 Parce que trop de cultivateurs étaient morts dans la mer de brouillard, les runes clignotaient frénétiquement à l'intérieur de la brume. Les survivants commencèrent à s'en emparer comme des fous.
 
@@ -44,7 +44,7 @@ Il était initialement très confiant quant au fait qu'il serait le premier à a
 
 « Je dois découvrir qui est cet individu! Le rang 8... le rang 8... Après l'avoir tué, mes chances augmenteront considérablement! »
 
-« Si je peux percer le secret de sa progression fulgurante, alors le palais terrestre de l'Ordre Antique Ye Mo appartiendra à ce vieillard! »
+« Si je peux percer le secret de sa progression fulgurante, alors le palais terrestre de Dao Gu Ye Mo appartiendra à ce vieillard! »
 
 Au-dessus de la mer de brouillard dans la huitième carte, la femme en blanc affichait également un visage extrêmement sombre. Sa plateforme s'arrêta et, un instant plus tard, elle laissa échapper un froid reniflement. Elle fit exactement la même chose que lui et recula vers la plateforme de rang 8.
 
@@ -60,7 +60,7 @@ Tous les regards étaient désormais braqués sur Wang Lin!
 
 Wang Lin était assis sur la plateforme de 80 000 pieds. Celle-ci émettait une puissante lumière dorée, semblable à celle du soleil. Le brouillard environnant s'agitait autour d'elle et reculait devant lui!
 
-La huitième carte apparut dans l'esprit de Wang Lin. La majeure partie de la Tombe de l'Ordre Antique lui était désormais révélée!
+La huitième carte apparut dans l'esprit de Wang Lin. La majeure partie de la Tombe de Dao Gu lui était désormais révélée!
 
 À cet instant, la voix antique résonna pour la quatrième fois!
 
@@ -74,7 +74,7 @@ Grâce à sa plateforme de rang 8, il pouvait localiser précisément les autres
 
 « Malheureusement, je suis à court de trésors démoniaques anciens. Il n'en reste qu'un seul, ce qui est insuffisant pour atteindre le rang 9... » Après avoir atteint le rang 8, la plateforme était devenue un gouffre sans fond. Wang Lin pressentait que les besoins seraient colossaux!
 
-Selon les lois de la Tombe de l'Ordre Antique, Wang Lin devrait tuer tous ceux qui le poursuivaient, s'emparer de leurs plateformes et les intégrer à la sienne. Ce n'était qu'à ce prix qu'il pourrait porter sa plateforme au rang 9.
+Selon les lois de la Tombe de Dao Gu, Wang Lin devrait tuer tous ceux qui le poursuivaient, s'emparer de leurs plateformes et les intégrer à la sienne. Ce n'était qu'à ce prix qu'il pourrait porter sa plateforme au rang 9.
 
 Cependant, Wang Lin ne comptait pas procéder ainsi. Il ricana en manipulant la plateforme sous ses pieds.
 
@@ -96,7 +96,7 @@ Jiutian Mozun se trouvait également dans la septième carte, le visage extrême
 
 « C'est sûrement parce que la plateforme de rang 8 peut ressentir les autres plateformes avec encore plus de clarté... » Les yeux de Jiutian Mozun s'illuminèrent et il confectionna un sceau manuel. Puis, il appuya violemment sur sa plateforme, la faisant bondir vers l'avant.
 
-La femme en blanc et la belle femme traversaient rapidement la Tombe de l'Ordre Antique, continuant de se rapprocher de Wang Lin.
+La femme en blanc et la belle femme traversaient rapidement la Tombe de Dao Gu, continuant de se rapprocher de Wang Lin.
 
 Il y avait aussi Da Huang. Bien qu'il ne fût que de rang 5, en tant que cultivateur du troisième stade, il possédait des moyens pour accélérer le mouvement de sa plateforme. Il poursuivait lui aussi Wang Lin.
 

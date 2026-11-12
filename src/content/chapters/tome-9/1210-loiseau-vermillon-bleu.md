@@ -36,7 +36,7 @@ Il percevait également l'aura de Wang Lin au cœur de cet océan de flammes.
 
 Le brasier continua de se propager jusqu'à encercler totalement la région extérieure du Royaume aux Sept Couleurs. Certaines bêtes chargèrent en rugissant, semblant ne point craindre le feu. Des créatures semblables à des pythons de feu évoluaient dans les flammes sans aucune gêne, affichant même une certaine morgue envers l'incendie.
 
-Alors que les flammes s'étendaient sur tout le Royaume aux Sept Couleurs, le troisième éveil de l'Oiseau Vermillon commença!
+Alors que les flammes s'étendaient sur tout le Royaume aux Sept Couleurs, le troisième éveil de Suzaku commença!
 
 Tandis que Wang Lin restait assis, sa chair divine ancestrale se dessécha comme si toute l'eau de son corps s'était évaporée. Sa peau sèche semblait vieillir prématurément; c'était une vision terrifiante.
 
@@ -48,9 +48,9 @@ L'esprit de Wang Lin était embrumé. Il avait l'impression de devenir lui-même
 
 Il avait la sensation qu'au moindre retard dans l'évacuation de cette chaleur, il serait réduit en cendres.
 
-C'était un cycle sans fin. Plus il libérait de chaleur, plus elle se régénérait. Ce cycle perdura jusqu'à ce que l'Oiseau Vermillon pousse un cri assourdissant, tel le rugissement féroce d'un être agonisant.
+C'était un cycle sans fin. Plus il libérait de chaleur, plus elle se régénérait. Ce cycle perdura jusqu'à ce que Suzaku pousse un cri assourdissant, tel le rugissement féroce d'un être agonisant.
 
-Wang Lin n'avait pas éprouvé une telle sensation lors des deux éveils précédents. Cette troisième fois était d'une difficulté extrême! Il sentit que la chaleur de son corps brûlait même son âme originelle, ce qui le surprit profondément. Il ne pensait pas que le troisième éveil de l'Oiseau Vermillon serait si radicalement différent.
+Wang Lin n'avait pas éprouvé une telle sensation lors des deux éveils précédents. Cette troisième fois était d'une difficulté extrême! Il sentit que la chaleur de son corps brûlait même son âme originelle, ce qui le surprit profondément. Il ne pensait pas que le troisième éveil de Suzaku serait si radicalement différent.
 
 La chaleur augmenta jusqu'à ce que son corps ne puisse plus la relâcher assez vite. La sensation de brûlure devint plus aiguë et sa peau se craquela davantage. Les fissures finirent par se rejoindre, donnant l'impression que son enveloppe charnelle allait s'effondrer.
 
@@ -102,8 +102,8 @@ Cependant, la sueur perlant sur son front et l'effroi dans ses yeux témoignaien
 
 Au moment où ce cri retentit, un Oiseau Vermillon bleu apparut au milieu des flammes, comme s'il venait de renaître. À son apparition, toutes les flammes bleues du Royaume aux Sept Couleurs semblèrent s'emballer, comme pour l'acclamer!
 
-Sous l'Oiseau Vermillon Bleu, une silhouette gracile s'avança, un pas après l'autre...
+Sous Suzaku Bleu, une silhouette gracile s'avança, un pas après l'autre...
 
-Le troisième éveil de l'Oiseau Vermillon était une véritable renaissance par le feu!
+Le troisième éveil de Suzaku était une véritable renaissance par le feu!
 
-À cet instant, loin de la Mer Yun, dans la zone isolée de l'Alliance où se trouvaient les Quatre Sectes Divines, tous les membres de la Secte Divine de l'Oiseau Vermillon sentirent le feu en leur sein brûler avec frénésie. Pour la première fois, ils perdirent le contrôle de leurs flammes, qui jaillirent de leurs corps pour les envelopper.
+À cet instant, loin de la Mer Yun, dans la zone isolée de l'Alliance où se trouvaient les Quatre Sectes Divines, tous les membres de la Secte Divine de Suzaku sentirent le feu en leur sein brûler avec frénésie. Pour la première fois, ils perdirent le contrôle de leurs flammes, qui jaillirent de leurs corps pour les envelopper.

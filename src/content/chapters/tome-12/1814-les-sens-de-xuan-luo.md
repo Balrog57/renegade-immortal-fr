@@ -32,9 +32,9 @@ Lorsque l'empreinte disparut, Du Qing ressentit secrètement un soulagement. Il 
 
 « Puisque le Daoïste dévore le feu, cette affaire est cruciale; comment pourrais-je partir? Soyez assuré que je vous protégerai et que je ne laisserai personne approcher! » Du Qing ne fut pas intimidé par le regard de Wang Lin. Craignant qu'il ne le croie pas, il pointa le ciel du doigt et reprit:
 
-« Par la loi du Continent Astral Immortel qui surplombe ce monde, j'affirme aujourd'hui que je monterai la garde auprès du Daoïste sans la moindre intention malveillante. Sinon, que le tonnerre céleste détruise mon Dao et mon âme! » Sur ces mots, un rayon de lumière rouge jaillit, portant le serment de Du Qing, avant de s'élancer au loin.
+« Par la loi du Continent Xian Gang qui surplombe ce monde, j'affirme aujourd'hui que je monterai la garde auprès du Daoïste sans la moindre intention malveillante. Sinon, que le tonnerre céleste détruise mon Dao et mon âme! » Sur ces mots, un rayon de lumière rouge jaillit, portant le serment de Du Qing, avant de s'élancer au loin.
 
-C'était le symbole d'un serment sacré sur le Continent Astral Immortel. Peu de gens osaient rompre un tel engagement, car la loi même du Continent Astral Immortel en était le témoin!
+C'était le symbole d'un serment sacré sur le Continent Xian Gang. Peu de gens osaient rompre un tel engagement, car la loi même du Continent Xian Gang en était le témoin!
 
 Wang Lin observa Du Qing d'un regard chargé de sens et dit lentement: « Soit. Puisque vous le souhaitez tant, je vous donnerai l'occasion de m'aider à assurer ma garde. »
 
@@ -46,7 +46,7 @@ Entendant l'accord de Wang Lin, Du Qing retrouva toute sa vigueur. Son expressio
 
 L'expression de Wang Lin resta neutre. Du Qing ne cachait pas ses intentions, et cela était parfaitement limpide pour lui. Tout cela était dû à l'empreinte dorée. Du Qing cherchait manifestement à se rapprocher du Grand Empyréen qui avait doté Wang Lin de ce trésor.
 
-« C'est une bonne chose aussi. Comme c'est ma première fois sur le Continent Astral Immortel, il y a beaucoup de choses que j'ignore. Il y a des secrets qu'une recherche d'âme ne peut révéler, j'ai donc besoin d'un homme comme lui à mes côtés... Et c'est lui qui est venu se coller à moi, sans que je le demande; ainsi, c'est lui qui a un besoin, et je garde l'initiative! » Wang Lin ricana intérieurement et ferma les yeux, se dissimulant lentement au cœur de la boule de feu.
+« C'est une bonne chose aussi. Comme c'est ma première fois sur le Continent Xian Gang, il y a beaucoup de choses que j'ignore. Il y a des secrets qu'une recherche d'âme ne peut révéler, j'ai donc besoin d'un homme comme lui à mes côtés... Et c'est lui qui est venu se coller à moi, sans que je le demande; ainsi, c'est lui qui a un besoin, et je garde l'initiative! » Wang Lin ricana intérieurement et ferma les yeux, se dissimulant lentement au cœur de la boule de feu.
 
 Du Qing respecta strictement son serment et surveilla attentivement les environs. Il était déterminé à faire une démonstration irréprochable pour compenser le malaise précédent.
 
@@ -64,7 +64,7 @@ Au cinquième jour, alors que le soleil se levait pour chasser les ténèbres, l
 
 Le bruit était d'une intensité extrême et, tandis que le fracas persistait, la boule de feu commença à rétrécir jusqu'à n'atteindre plus que cent pieds de large. Au cœur des flammes déchaînées, on pouvait distinguer vaguement la silhouette de Wang Lin, accompagnée d'un Oiseau Vermillon tournoyant autour de lui.
 
-Les cris de l'Oiseau Vermillon résonnaient depuis l'intérieur de la sphère et, à chaque cri, la boule de feu se contractait davantage. Le processus était lent; après plusieurs heures, elle ne mesurait plus que soixante-dix pieds.
+Les cris de Suzaku résonnaient depuis l'intérieur de la sphère et, à chaque cri, la boule de feu se contractait davantage. Le processus était lent; après plusieurs heures, elle ne mesurait plus que soixante-dix pieds.
 
 Cependant, au sein de cette sphère de soixante-dix pieds, une volonté de feu se propageait. Cette volonté enveloppait le monde et semblait prête à entrer en conflit avec la volonté du feu terrestre.
 
@@ -78,7 +78,7 @@ Du Qing contempla la sphère et haleta: « Quelqu'un digne de recevoir un tréso
 
 Ses cheveux blancs flottaient au vent alors qu'il s'asseyait près de la boule de feu. Son expression était d'un grand sérieux; il forma un sceau de ses deux mains et pointa la sphère.
 
-Aussitôt, le cri de l'Oiseau Vermillon à l'intérieur fut assourdissant. La boule de feu de trente pieds se contracta de nouveau jusqu'à n'atteindre plus que dix pieds!
+Aussitôt, le cri de Suzaku à l'intérieur fut assourdissant. La boule de feu de trente pieds se contracta de nouveau jusqu'à n'atteindre plus que dix pieds!
 
 Un Oiseau Vermillon, réduit par de multiples compressions, tournait désormais autour de cette minuscule sphère de dix pieds, d'où jaillissaient des éclats de cris stridents.
 
@@ -90,13 +90,13 @@ Les yeux de Du Qing brillèrent d'une lueur singulière. Il fixa la boule et une
 
 « Une fois qu'un cultivateur possède une essence, il peut accéder à la troisième étape: le Vide du Nirvana. Il peut alors utiliser son essence pour absorber la puissance du monde vaste et devenir invincible! Obtenir une essence corporelle est relativement simple, mais pour atteindre le Vide Arcanique, il faut personnellement comprendre une essence éthérée. »
 
-« Plus on possède d'essences, plus on devient puissant. C'est un savoir universel parmi les cultivateurs du Continent Astral Immortel! »
+« Plus on possède d'essences, plus on devient puissant. C'est un savoir universel parmi les cultivateurs du Continent Xian Gang! »
 
 « Les essences se divisent également en strates: de la formation initiale de l'essence à la condensation d'un trésor d'essence, jusqu'à l'aboutissement final. Chaque étape doit être franchie l'une après l'autre. Cependant, la légende raconte que parmi les génies, certains peuvent aller plus loin après avoir parachevé leur essence: former un Corps Véritable d'Essence! »
 
 « Un Corps Véritable d'Essence est extrêmement rare, et lorsqu'il apparaît, sa puissance dépasse l'entendement! Dans toute ma vie, je n'ai vu que l'Ancien Suprême de la Secte Da Hun posséder un Corps Véritable d'Essence d'Âme, et personne d'autre... Ceci... Ce Daoïste Wang essaie vraiment de former un Corps Véritable d'Essence! » Du Qing regardait Wang Lin avec une incrédulité totale.
 
-Sur le Continent Astral Immortel, les pays antiques étaient divisés en 36 États. Le Pays Dao Gu occupait 12 États. L'État du Ciel abritait la capitale royale.
+Sur le Continent Xian Gang, les pays antiques étaient divisés en 36 États. Le Pays Dao Gu occupait 12 États. L'État du Ciel abritait la capitale royale.
 
 Il existait un lieu parsemé de montagnes verdoyantes et d'une rivière impétueuse. Les feuilles tombaient tandis que le courant rugissait. Au plus profond de la montagne se dressait un imposant autel bleu.
 
@@ -106,4 +106,4 @@ Il s'agissait de Xuan Luo.
 
 Lorsque Wang Lin fit apparaître l'empreinte dorée sur le Continent Tian Niu, Xuan Luo, qui était en culture fermée, ouvrit soudainement les yeux.
 
-« Il arrive... » Un sourire se dessina sur les lèvres de Xuan Luo. Il savait que le disciple qu'il avait choisi ne mourrait pas dans le vide et qu'il atteindrait enfin le Continent Astral Immortel!
+« Il arrive... » Un sourire se dessina sur les lèvres de Xuan Luo. Il savait que le disciple qu'il avait choisi ne mourrait pas dans le vide et qu'il atteindrait enfin le Continent Xian Gang!

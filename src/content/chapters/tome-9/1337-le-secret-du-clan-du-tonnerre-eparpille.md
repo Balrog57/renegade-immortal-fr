@@ -58,15 +58,15 @@ Ces jades contenaient diverses missions confiées par le Clan Shan Lei. Elles in
 
 Le regard de Wang Lin parcourut l'ensemble et finit par se poser sur un jade éclatant. C'était celui-là même que Maître Zhou Tian examinait.
 
-« Se rendre dans les 7 Millions de Mondes, devenir le Dao Céleste et déclencher la rétribution divine... » Au début, Wang Lin n'y prêta aucune attention, mais en y regardant de plus près, il frémit et scruta le texte avec encore plus d'acuité.
+« Se rendre dans les 7 Millions de Mondes, devenir le Dao Céleste et déclencher la Tribulation Céleste... » Au début, Wang Lin n'y prêta aucune attention, mais en y regardant de plus près, il frémit et scruta le texte avec encore plus d'acuité.
 
-« Déclencher la rétribution divine et punir les habitants des 7 Millions de Mondes. Tuer ceux qui ont atteint le sommet du stade de Formation de l'Âme et qui sont sur le point d'ascendre vers le Royaume Céleste. Collecter leur Tonnerre Spirituel... »
+« Déclencher la Tribulation Céleste et punir les habitants des 7 Millions de Mondes. Tuer ceux qui ont atteint le sommet du stade de Formation de l'Âme et qui sont sur le point d'ascendre vers le Royaume Céleste. Collecter leur Tonnerre Spirituel... »
 
 Le jade contenait une quantité massive d'informations. Une fois la lecture terminée, une immense vague de choc déferla dans son esprit; il n'osait y croire.
 
 Dans ce monde, tout possédait un esprit: la végétation, les bêtes, les cultivateurs et bien plus encore. Une fois le sommet du stade de Formation de l'Âme atteint, ils ascendaient vers le Royaume Céleste et devenaient des immortels!
 
-Wang Lin connaissait ce principe; il l'avait appris sur la planète Suzaku. Si le Royaume Céleste de la Pluie n'avait pas été détruit, un cultivateur atteignant le sommet de la Formation de l'Âme devait faire face à la rétribution divine pour ascendre au Royaume Céleste. Le stade de Transformation de l'Âme appartenait, en réalité, à la culture céleste, ce qui expliquait pourquoi les cultivateurs de ce stade avaient besoin de jades célestes pour progresser!
+Wang Lin connaissait ce principe; il l'avait appris sur la planète Suzaku. Si le Royaume Céleste de la Pluie n'avait pas été détruit, un cultivateur atteignant le sommet de la Formation de l'Âme devait faire face à la Tribulation Céleste pour ascendre au Royaume Céleste. Le stade de Transformation de l'Âme appartenait, en réalité, à la culture céleste, ce qui expliquait pourquoi les cultivateurs de ce stade avaient besoin de jades célestes pour progresser!
 
 Il existait un lieu créé par un ancêtre du Clan Shan Lei. Celui-ci était réputé être le plus puissant de toute l'histoire du clan, un cultivateur de la troisième étape qui avait mené le clan à son apogée et eu la chance de fusionner le trésor suprême du clan dans la Formation du Royaume Scellé.
 
@@ -76,13 +76,13 @@ Ce nom impliquait qu'il y avait 7 millions de mondes à l'intérieur! D'innombra
 
 Chaque vie au sein des 7 Millions de Mondes n'était qu'une fourmi pour le Clan Shan Lei. Pour une raison inconnue, ils ne permettaient pas aux cultivateurs de haut niveau de s'y épanouir. Dès qu'un cultivateur atteignait le sommet de la Formation de l'Âme, le Dao Céleste apparaissait et abattait le tonnerre pour le détruire!
 
-Cependant, certains cultivateurs des 7 Millions de Mondes faisaient naître une force étrange en raison de leur talent ou d'une particularité corporelle. Cette force se transformait lors de l'impact de la rétribution divine, formant l'un des six types de tonnerre répertoriés par le Clan Shan Lei... le Tonnerre Spirituel!
+Cependant, certains cultivateurs des 7 Millions de Mondes faisaient naître une force étrange en raison de leur talent ou d'une particularité corporelle. Cette force se transformait lors de l'impact de la Tribulation Céleste, formant l'un des six types de tonnerre répertoriés par le Clan Shan Lei... le Tonnerre Spirituel!
 
-Quiconque parvenait à engendrer ce Tonnerre Spirituel dans les 7 Millions de Mondes traversait la rétribution divine pour entrer dans le Royaume Céleste. D'innombrables légendes se répandaient alors à travers les mondes, et l'admiration pour leur succès se transmettait de génération en génération!
+Quiconque parvenait à engendrer ce Tonnerre Spirituel dans les 7 Millions de Mondes traversait la Tribulation Céleste pour entrer dans le Royaume Céleste. D'innombrables légendes se répandaient alors à travers les mondes, et l'admiration pour leur succès se transmettait de génération en génération!
 
-Pourtant, la vérité était que ces cultivateurs étaient détruits et devenaient eux-mêmes le Tonnerre Spirituel du Clan Shan Lei! Et ce Dao Céleste, cet immortel faisant descendre la rétribution divine, n'était autre qu'un membre du Clan Shan Lei!
+Pourtant, la vérité était que ces cultivateurs étaient détruits et devenaient eux-mêmes le Tonnerre Spirituel du Clan Shan Lei! Et ce Dao Céleste, cet immortel faisant descendre la Tribulation Céleste, n'était autre qu'un membre du Clan Shan Lei!
 
-Pour ces 7 Millions de Mondes, le Dao Céleste et la rétribution divine n'étaient rien d'autre qu'une mission confiée par le Clan dans les différents Temples du Cristal de Tonnerre!
+Pour ces 7 Millions de Mondes, le Dao Céleste et la Tribulation Céleste n'étaient rien d'autre qu'une mission confiée par le Clan dans les différents Temples du Cristal de Tonnerre!
 
 Il fallut un long moment à Wang Lin pour sortir de sa stupéfaction. Il fixa le jade brillant et médita en silence.
 

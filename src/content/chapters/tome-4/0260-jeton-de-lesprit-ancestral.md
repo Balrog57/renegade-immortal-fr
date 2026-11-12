@@ -44,9 +44,9 @@ L'homme en cyan ne répondit plus et se tapota le front. Soudain, une ouverture 
 
 Sa vitesse était telle que Wang Lin ne pouvait absolument pas la parer. Son visage se décomposa. S'il avait déployé le drapeau de restriction, il aurait pu la bloquer, mais il n'aurait pas pu la contenir longtemps.
 
-Cependant, Wang Lin n'avait pas peur. Bien qu'il ne puisse résister à l'épée, si cela devenait un véritable combat, grâce à sa parcelle de rétribution divine, tous les cultivateurs de la Formation de l'Âme se méfieraient de lui, quelle que soit la puissance de leurs techniques.
+Cependant, Wang Lin n'avait pas peur. Bien qu'il ne puisse résister à l'épée, si cela devenait un véritable combat, grâce à sa parcelle de Tribulation Céleste, tous les cultivateurs de la Formation de l'Âme se méfieraient de lui, quelle que soit la puissance de leurs techniques.
 
-Par exemple: face à cette épée volante, si Wang Lin libérait sa rétribution divine, l'homme en cyan serait contraint de rappeler son arme, faute de quoi ils s'entretueraient mutuellement.
+Par exemple: face à cette épée volante, si Wang Lin libérait sa Tribulation Céleste, l'homme en cyan serait contraint de rappeler son arme, faute de quoi ils s'entretueraient mutuellement.
 
 Lorsque l'épée volante arriva à environ trois mètres de Wang Lin, une vague soudaine d'intention meurtrière s'en dégagea. Au sein de cette intention résidait un fragment de domaine mystérieux. Ce domaine était très différent des deux précédents; il semblait porter une parcelle de la puissance céleste. Wang Lin remarqua immédiatement que son énergie spirituelle commençait à faiblir. Si l'on comparait cette énergie spirituelle à quelque chose doté de force vitale, sous ce domaine, cette vitalité s'écoulait à toute vitesse.
 

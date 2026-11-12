@@ -12,7 +12,7 @@ Zou Hai était un disciple central de la Secte Wu Du. Son niveau de culture n'é
 
 À cet instant, son expression était sombre et une lueur bleue brillait dans son œil droit. Bien que cette lumière fût esthétique, elle résultait de la culture d'une technique de poison propre à la Secte Wu Du.
 
-« Le compagnon cultivateur Zou est resté morose durant tout le trajet. Si quelqu'un ignorant la situation vous voyait, il serait bien confus de votre état. » Une voix féminine émana d'un cultivateur vêtu de noir à ses côtés. Ce dernier était un homme, mais son maquillage lui donnait l'apparence correspondant à sa voix.
+« Le Daoïste Zou est resté morose durant tout le trajet. Si quelqu'un ignorant la situation vous voyait, il serait bien confus de votre état. » Une voix féminine émana d'un cultivateur vêtu de noir à ses côtés. Ce dernier était un homme, mais son maquillage lui donnait l'apparence correspondant à sa voix.
 
 Un éclair de froideur passa dans les yeux de Zou Hai alors qu'il fixait le cultivateur en noir: « Zhao Yu, j'ai enduré tes provocations tout au long du voyage. Si tu continues tes sarcasmes, ne me reproche pas de ne plus me retenir! »
 
@@ -60,7 +60,7 @@ Le visage du disciple était livide et son corps tremblait. Une lueur bleue éma
 
 Les yeux de Lu Yanfei devinrent glacials et elle déclara d'une voix lente: « La raison pour laquelle les sectes supérieures sont venues ici est-elle simplement de blesser un disciple de la Secte Gui Yuan? »
 
-Feng Peishan esquissa un sourire et secoua la tête. « Compagnons cultivateurs de la Secte Gui Yuan, nul besoin de s'alarmer. Cette affaire est d'une importance capitale, et toutes les sectes de rang 6 ont dépêché des hommes pour rechercher une seule personne. Cette personne est extrêmement douée pour se dissimuler, et le seul indice réside dans le poison qu'elle porte. Si le compagnon cultivateur Zou a attaqué, c'est parce que ce junior portait une trace de ce poison sur lui. »
+Feng Peishan esquissa un sourire et secoua la tête. « Daoïstes de la Secte Gui Yuan, nul besoin de s'alarmer. Cette affaire est d'une importance capitale, et toutes les sectes de rang 6 ont dépêché des hommes pour rechercher une seule personne. Cette personne est extrêmement douée pour se dissimuler, et le seul indice réside dans le poison qu'elle porte. Si le Daoïste Zou a attaqué, c'est parce que ce junior portait une trace de ce poison sur lui. »
 
 Le regard de Lu Yanfei se fit plus froid encore. Elle pointa sa main droite vers le disciple blessé. Le corps de celui-ci trembla et un vortex apparut. Peu après, son Âme Naissante s'en échappa, révélant un petit serpent rouge à l'intérieur: c'était son esprit de bête spirituelle.
 
@@ -96,7 +96,7 @@ Le visage de Sun Yun était livide. Le regard bleu de Zou Hai dégageait une pre
 
 Zou Hai eut un sourire lugubre et se tourna vers Lu Yanfei.
 
-« Compagnon cultivateur Lu, j'aimerais entendre votre explication! »
+« Daoïste Lu, j'aimerais entendre votre explication! »
 
 Lu Yanfei répondit calmement: « En tant que jeune génération, nous n'avons pas la puissance nécessaire pour dérober une telle herbe dans le nid d'une bête de rang 6. Cependant, cela ne signifie pas que l'Ancien de la secte en est incapable. L'Herbe au Poison de Poisson a été obtenue par mon Grand Oncle-Maître! »
 

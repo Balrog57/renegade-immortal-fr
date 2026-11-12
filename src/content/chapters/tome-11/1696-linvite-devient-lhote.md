@@ -68,7 +68,7 @@ Fan Shanmeng regarda calmement Wang Lin et sourit: « Le Daoïste est donc si s�
 
 Une froideur cachée perçait dans le regard de Fan Shanmeng. Elle devait obtenir le Serment de Sang de Wang Lin. Grâce à cela, elle pourrait solliciter l'aide de son maître et utiliser un sort étrange capable, selon ses certitudes, de transformer Wang Lin en marionnette. Il deviendrait alors une pièce maîtresse pour éliminer le Souverain Céleste aux Sept Couleurs.
 
-« Bien qu'il soit extrêmement prudent, je ne crois pas qu'il puisse prendre le contrôle du Navire Démon des Âmes. Il possède peut-être quelques notions sur les restrictions, mais il n'est, après tout, qu'un simple insecte du monde des grottes, une grenouille au fond de son puits. Comment un être de sa trempe pourrait-il comprendre les restrictions du Continent Astral Immortel?
+« Bien qu'il soit extrêmement prudent, je ne crois pas qu'il puisse prendre le contrôle du Navire Démon des Âmes. Il possède peut-être quelques notions sur les restrictions, mais il n'est, après tout, qu'un simple insecte du monde des grottes, une grenouille au fond de son puits. Comment un être de sa trempe pourrait-il comprendre les restrictions du Continent Xian Gang?
 
 « Cette affaire est ridicule. Je veux voir comment il compte s'y prendre. S'il échoue et refuse toujours de me donner son Serment de Sang, j'aurai d'autres moyens de le traiter! » Une froideur glaciale se cachait dans les yeux de Fan Shanmeng, mais elle afficha un sourire empreint de douceur en regardant Wang Lin.
 
@@ -102,7 +102,7 @@ Ces restrictions étaient toutes distinctes et si densément compactées qu'elle
 
 « Il a brisé la protection des restrictions du pont! Il ne se contente pas de connaître quelques formules, sa maîtrise est extrêmement élevée... » Fan Shanmeng prit une profonde inspiration et son regard envers Wang Lin changea radicalement.
 
-« Peu importe qu'il soit doué en restrictions, qu'importe sa maîtrise! Les restrictions de ce monde des grottes ne sont qu'une partie de celles du Continent Astral Immortel. En seulement trois jours, il ne pourra jamais en prendre le contrôle total! » Fan Shanmeng songea silencieusement tout en ricanant.
+« Peu importe qu'il soit doué en restrictions, qu'importe sa maîtrise! Les restrictions de ce monde des grottes ne sont qu'une partie de celles du Continent Xian Gang. En seulement trois jours, il ne pourra jamais en prendre le contrôle total! » Fan Shanmeng songea silencieusement tout en ricanant.
 
 L'expression de Wang Lin resta imperturbable alors qu'il pointait l'une des restrictions. Des processus de déduction commencèrent à briller dans ses yeux.
 

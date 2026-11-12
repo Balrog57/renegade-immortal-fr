@@ -24,15 +24,15 @@ En hiver, aucun mortel ne venait ici, il n'y avait donc aucune trace de pas... P
 
 C'était un bel homme d'âge moyen, à l'allure droite et imposante. Il contemplait calmement le ciel, une pointe de complexité dans le regard.
 
-« Ma culture... je ne peux plus la réprimer... » L'homme soupira et jeta un regard nostalgique sur la neige environnante, tout en attendant silencieusement l'arrivée de la rétribution divine.
+« Ma culture... je ne peux plus la réprimer... » L'homme soupira et jeta un regard nostalgique sur la neige environnante, tout en attendant silencieusement l'arrivée de la Tribulation Céleste.
 
 Peu après, le monde entra en émoi et les flocons semblèrent soudainement s'effondrer. Un vent violent surgit dans le ciel et balaya la neige. Ce souffle emporta également l'épaisse couche accumulée sur la plaine autour de l'homme.
 
 La neige fut repoussée comme des vagues océaniques, révélant la terre nue en dessous! Cette terre mise à nu était encore plus frappante que la neige qui l'entourait.
 
-Simultanément, des nuages de rétribution divine apparurent et se rassemblèrent rapidement. Une silhouette semblait se tenir à l'intérieur. Cet être dégageait une dense énergie spirituelle céleste et irradiait une aura majestueuse!
+Simultanément, des nuages de Tribulation Céleste apparurent et se rassemblèrent rapidement. Une silhouette semblait se tenir à l'intérieur. Cet être dégageait une dense énergie spirituelle céleste et irradiait une aura majestueuse!
 
-« Cultivateur du royaume inférieur, endure la rétribution divine et deviens un être céleste! » La voix puissante rugit comme le tonnerre depuis les nuages. Pourtant, lorsqu'elle atteignit les oreilles de l'homme d'âge moyen, son expression ne changea pas d'un iota.
+« Cultivateur du royaume inférieur, endure la Tribulation Céleste et deviens un être céleste! » La voix puissante rugit comme le tonnerre depuis les nuages. Pourtant, lorsqu'elle atteignit les oreilles de l'homme d'âge moyen, son expression ne changea pas d'un iota.
 
 L'homme tapota ses vêtements et se leva pour faire face aux nuages. Il les fixa avec un regard complexe, empreint d'une profonde moquerie.
 
@@ -42,7 +42,7 @@ Alors qu'il se moquait, le tonnerre gronda dans les cieux. L'être céleste au s
 
 L'homme d'âge moyen resta immobile et, au moment où l'éclair frappait, il leva la main droite. Le tonnerre s'abattit sur lui et, après un fracas assourdissant, se dissipa. Le visage de l'homme était pâle, mais sa tête restait haute!
 
-Il vit l'être céleste dans les nuages lever une nouvelle fois la main droite, provoquant de nouveaux grondements. La seconde rétribution divine se préparait et frappa un instant plus tard!
+Il vit l'être céleste dans les nuages lever une nouvelle fois la main droite, provoquant de nouveaux grondements. La seconde Tribulation Céleste se préparait et frappa un instant plus tard!
 
 Cependant, à cet instant précis, un changement stupéfiant se produisit.
 
@@ -54,7 +54,7 @@ Dès l'apparition du jeune homme, l'expression de l'être céleste changea radic
 
 « Qui es-tu?! Ce vieil homme était là le premier! »
 
-« Je suis votre rétribution divine. Je suis venu détruire le Dao Céleste et collecter le Tonnerre Spirituel! » Wang Lin leva la main droite et pointa les nuages de rétribution dans le ciel!
+« Je suis votre Tribulation Céleste. Je suis venu détruire le Dao Céleste et collecter le Tonnerre Spirituel! » Wang Lin leva la main droite et pointa les nuages de rétribution dans le ciel!
 
 Le tonnerre gronda et le vieillard dans les nuages trembla. Le tonnerre à l'intérieur de son corps rugissait hors de son contrôle, faisant changer son expression. Cependant, loin de s'enfuir, il chargea avec une férocité inattendue hors des nuages. Ses mains formèrent un sceau et il cracha une perle de tonnerre qui fonça vers Wang Lin.
 
@@ -70,13 +70,13 @@ La main gauche de Wang Lin tenait la perle contenant les cinq Éclairs de Tonner
 
 Tout s'était produit trop vite; cela ne prit qu'un instant. L'homme d'âge moyen était encore sous le choc et n'avait pas repris ses esprits.
 
-L'œil droit de Wang Lin ayant absorbé les cinq éclairs, il flotta dans les airs et dit lentement: « Toi, déploie toute ta culture et poursuis ta rétribution divine! »
+L'œil droit de Wang Lin ayant absorbé les cinq éclairs, il flotta dans les airs et dit lentement: « Toi, déploie toute ta culture et poursuis ta Tribulation Céleste! »
 
 L'homme d'âge moyen prit une profonde inspiration pour réprimer l'inquiétude qui lui nouait le cœur et observa Wang Lin avec intensité. Il libéra toute sa puissance, et sa culture de pointe de la Formation de l'Âme emplit le monde.
 
 Après dix respirations, un nouveau tonnerre jaillit des nuages de rétribution. Une autre brèche s'ouvrit dans le ciel, et une personne en sortit!
 
-« Haha, j'ai enfin trouvé quelqu'un qui subit la rétribution divine! » L'homme qui surgit de la brèche éclata d'un rire sauvage. Cependant, avant même que son rire ne s'éteigne, Wang Lin agita la main droite.
+« Haha, j'ai enfin trouvé quelqu'un qui subit la Tribulation Céleste! » L'homme qui surgit de la brèche éclata d'un rire sauvage. Cependant, avant même que son rire ne s'éteigne, Wang Lin agita la main droite.
 
 L'individu qui venait d'arriver n'eut même pas le temps de comprendre ce qui lui arrivait que son corps explosa...
 

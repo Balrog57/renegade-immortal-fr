@@ -1,6 +1,6 @@
 ---
 n: 1930
-title: "Un esprit qui ne provient pas du Continent Astral Immortel!"
+title: "Un esprit qui ne provient pas du Continent Xian Gang!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1930 - Spirit not of the Immortal Astral Continent!"
@@ -124,6 +124,6 @@ Au moment même où sa main droite saisit l'objet, la force de scellement de l'A
 
 Des ondulations apparurent là où se trouvait le fragment. Elles formèrent un visage gigantesque empreint de majesté, et une force de suppression s'abattit sur le Corps Véritable d'Essence de Tonnerre de Wang Lin.
 
-« Âme non issue du Continent Astral Immortel détectée. Activation du sceau! » Une voix antique résonna sous les mers.
+« Âme non issue du Continent Xian Gang détectée. Activation du sceau! » Une voix antique résonna sous les mers.
 
 « Il y a bel et bien un problème! » Les yeux de Wang Lin s'illuminèrent.

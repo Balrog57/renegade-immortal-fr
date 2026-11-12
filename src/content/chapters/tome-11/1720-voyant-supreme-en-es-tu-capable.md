@@ -28,7 +28,7 @@ La bataille contre Tian Yunzi exigerait souvent de la ruse!
 
 « Sortilège d'Intégration de la Réincarnation. S'il a véritablement maîtrisé ce sort, sa force dépassera l'entendement. Au fil des éons, je n'ai certainement pas été le premier à fusionner avec l'un de ses avatars. Cela signifie que d'autres ont subi le même sort. Tout ce qu'ils possédaient a été copié par Tian Yunzi; si tel est le cas, il doit posséder bien plus d'essences que celles qu'il m'a dérobées! »
 
-« Il doit en posséder une multitude désormais. Si c'est réellement ainsi, ce sortilège d'Intégration de la Réincarnation est tout simplement prodigieux. Mais si cela était vrai, tous les Grands Empyréens du Continent Astral Immortel ne se battraient-ils pas pour l'obtenir? »
+« Il doit en posséder une multitude désormais. Si c'est réellement ainsi, ce sortilège d'Intégration de la Réincarnation est tout simplement prodigieux. Mais si cela était vrai, tous les Grands Empyréens du Continent Xian Gang ne se battraient-ils pas pour l'obtenir? »
 
 « Si cela était une telle réalité, quel intérêt y aurait-il à cultiver le Dao, à apprendre des sorts ou à comprendre des essences? Tant que l'on maîtrise ce sortilège, que l'on soit un Grand Empyréen, issu du Pays Céleste ou de l'Ancien Pays, tous ne seraient que de simples fourmis! »
 
@@ -38,7 +38,7 @@ Le feu, le tonnerre et le karma. Les collisions de ces essences rejouaient dans 
 
 « Aucun indice... » Wang Lin fronça les sourcils et s'arrêta brusquement. Ses yeux brillèrent intensément alors qu'il se plongeait dans ses pensées. Un instant plus tard, son regard devint résolu et il disparut en un éclair.
 
-Dans une autre partie de la Rivière Zhao He, parmi les décombres, Tian Yunzi était assis en tailleur sur un fragment de roche, le regard porté vers l'avant. Il arborait toujours ce sourire énigmatique.
+Dans une autre partie de Zhao He He, parmi les décombres, Tian Yunzi était assis en tailleur sur un fragment de roche, le regard porté vers l'avant. Il arborait toujours ce sourire énigmatique.
 
 « Cette fois, il est arrivé un peu tard... Disciple, comparé à ton Maître, tu es encore bien jeune. »
 

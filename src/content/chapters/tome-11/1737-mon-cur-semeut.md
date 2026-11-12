@@ -8,7 +8,7 @@ slug: mon-cur-semeut
 ---
 Au moment où Wang Lin vit la planète tourner, au neuvième étage de la tour, l'expression sombre sur le visage du vieil homme en robe dorée disparut pour laisser place à un sourire sinistre.
 
-« La Roue du Cœur aux Neuf Cycles. Même sur le Continent Astral Immortel, très peu de gens peuvent la briser. Le point central de cette formation est le cœur. Plus les battements du cœur s'accélèrent, plus elle devient difficile à briser! »
+« La Roue du Cœur aux Neuf Cycles. Même sur le Continent Xian Gang, très peu de gens peuvent la briser. Le point central de cette formation est le cœur. Plus les battements du cœur s'accélèrent, plus elle devient difficile à briser! »
 
 « Vous avez dit que cet homme était très rusé et très intelligent dès la planète Suzaku. De nombreuses années ont passé, et non seulement il n'est pas mort, mais son niveau de culture a considérablement augmenté. Il doit avoir traversé de nombreuses situations de vie ou de mort, et son esprit a été affiné pour ressembler à celui d'un démon! »
 

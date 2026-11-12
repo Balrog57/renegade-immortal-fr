@@ -76,7 +76,7 @@ La femme portait une robe de cour et possédait une beauté digne et sans égale
 
 Le vieil homme regarda les trois individus et demanda calmement: « Pourquoi êtes-vous ici tous les trois? »
 
-Cette femme était Feng Luan, et l'homme au visage érudit n'était autre que son partenaire de culture, Yang Sen. Quant au vieil homme, c'était l'un des ancêtres au stade de l'Âme Naissante du Sanctuaire du Dieu de la Guerre. Son niveau de culture était équivalent à celui de Yang Sen.
+Cette femme était Feng Luan, et l'homme au visage érudit n'était autre que son partenaire de culture, Yang Sen. Quant au vieil homme, c'était l'un des ancêtres au stade de l'Âme Naissante du Temple Zhan Shen. Son niveau de culture était équivalent à celui de Yang Sen.
 
 Yang Sen regarda le vieil homme avec méfiance, car il ne parvenait pas à percer son niveau de culture. Il joignit les mains et demanda: « Cher Daoïste, venez-vous du pays de Xuan Wu? »
 
@@ -94,7 +94,7 @@ Le vieil homme au visage rouge répondit amèrement: « Au moins au stade avanc�
 
 Feng Luan fronça les sourcils et murmura: « Zou Bin, qu'était cette fleur de prunier dorée? »
 
-« Je suppose que vous en avez déjà entendu parler. Il y a trois cents ans, avant d'entrer au Sanctuaire du Dieu de la Guerre, je voyageais à travers la Mer Xiu Mo. Mon stade précoce de l'Âme Naissante suffisait à me protéger, tant que je ne pénétrais pas dans des zones dangereuses. »
+« Je suppose que vous en avez déjà entendu parler. Il y a trois cents ans, avant d'entrer au Temple Zhan Shen, je voyageais à travers la Mer Xiu Mo. Mon stade précoce de l'Âme Naissante suffisait à me protéger, tant que je ne pénétrais pas dans des zones dangereuses. »
 
 « La Mer Xiu Mo compte au total 999 cités, et un peu plus de 300 d'entre elles se trouvent dans la mer intérieure. Parmi ces quelque trois cents cités, sept sont appelées le Pays Qi Mei. »
 

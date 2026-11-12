@@ -8,7 +8,7 @@ slug: changement-epoustouflant
 ---
 Le feu rouge sang emplissait le ciel de l'Épreuve Humaine. Il forma une puissante vague de chaleur qui déferla sur Wang Lin. La puissance contenue dans ce brasier était suffisante pour consumer les cieux eux-mêmes.
 
-Wang Lin se trouvait au cœur des flammes, debout sur le dos de l'Oiseau Vermillon noir. Il ressentait la température cuisante du feu rouge sang et, lorsque la vague de chaleur l'encercla, il éprouva la douleur atroce d'être brûlé.
+Wang Lin se trouvait au cœur des flammes, debout sur le dos de Suzaku noir. Il ressentait la température cuisante du feu rouge sang et, lorsque la vague de chaleur l'encercla, il éprouva la douleur atroce d'être brûlé.
 
 Le premier des neuf châtiments karmiques était rouge. Il représentait l'immense carnage né de l'obsession de Wang Lin. Ce châtiment de carnage déferla et brûla avec violence.
 
@@ -18,7 +18,7 @@ Il avait pourtant surestimé la puissance des neuf châtiments karmiques, mais i
 
 Au sein de ce feu rouge, un instant semblait une éternité. L'Oiseau Vermillon Noir ne put plus résister et son corps se rétracta rapidement. Le feu noir qui recouvrait sa peau vira brusquement au rouge.
 
-S'il devenait totalement rouge, l'Oiseau Vermillon ferait partie intégrante du premier châtiment. Sa puissance augmenterait alors et il dévorerait Wang Lin!
+S'il devenait totalement rouge, Suzaku ferait partie intégrante du premier châtiment. Sa puissance augmenterait alors et il dévorerait Wang Lin!
 
 Wang Lin laissa échapper un rugissement vers le ciel, une pointe de folie brillant dans ses yeux. Le premier châtiment était d'une puissance inattendue et il lui était difficile de résister. Cependant, Wang Lin ne céderait jamais. Il agita les bras et inspira profondément.
 

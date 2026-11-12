@@ -34,7 +34,7 @@ Le temps passa lentement et les cultivateurs de la Secte Divine se dispersèrent
 
 Maître Hong Shan et Maître Nan Yunzi restèrent silencieux après avoir entendu les paroles de Wang Lin. L'inquiétude se lisait dans leurs yeux; la force du Royaume Extérieur était un peu plus grande que ce qu'ils avaient anticipé.
 
-« En piégeant Grande Désolation et deux des cinq maîtres du Système Stellaire Antique, vous avez accompli un immense exploit! Sans votre intervention, la bataille contre le Royaume Extérieur aurait été encore plus difficile! » soupira Maître Hong Shan.
+« En piégeant Da Huang et deux des cinq maîtres du Système Stellaire Antique, vous avez accompli un immense exploit! Sans votre intervention, la bataille contre le Royaume Extérieur aurait été encore plus difficile! » soupira Maître Hong Shan.
 
 « Cette Bête des Limbes semble un peu différente de mes souvenirs. Elle a dévoré la tempête dorée, vous devriez donc l'observer de plus près. Cette cloche dorée avait manifestement été envoyée par le Royaume Céleste Antique pour cette bataille, mais elle a été détruite par le Shui Daozi! »
 
@@ -124,7 +124,7 @@ Une marque se trouvait entre les sourcils de chaque individu. Au milieu de cette
 
 Quatre personnes flottaient au loin. À la tête du groupe se trouvait un vieil homme vêtu d'une robe taoïste. Ses yeux brillaient et la marque entre ses sourcils représentait un serpent noir! C'était Maître Dong Dizi! Bien qu'il ne fût pas l'un des cinq maîtres, il se situait au début du stade du Vide Arcanique!
 
-À ses côtés se tenait un jeune homme très beau, mais aux yeux étroits. Lorsqu'il les plissait, ils devenaient deux lignes dégageant une lueur froide. Une brume enveloppait son corps, lui donnant un aspect étrange, et la marque entre ses sourcils était une brume noire en rotation! Nanzhao Shangren! Bien que son niveau de culture ne fût pas aussi élevé que celui de Grande Désolation — étant seulement au début du stade du Vide Spirituel — sa maîtrise des poisons était tout aussi célèbre!
+À ses côtés se tenait un jeune homme très beau, mais aux yeux étroits. Lorsqu'il les plissait, ils devenaient deux lignes dégageant une lueur froide. Une brume enveloppait son corps, lui donnant un aspect étrange, et la marque entre ses sourcils était une brume noire en rotation! Nanzhao Shangren! Bien que son niveau de culture ne fût pas aussi élevé que celui de Da Huang — étant seulement au début du stade du Vide Spirituel — sa maîtrise des poisons était tout aussi célèbre!
 
 Près d'eux se trouvait l'ancêtre lugubre du Clan Huo Que, fixant la formation avec une soif de sang démente!
 

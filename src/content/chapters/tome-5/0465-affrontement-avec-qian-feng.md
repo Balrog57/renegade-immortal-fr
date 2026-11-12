@@ -66,7 +66,7 @@ L'expression de Qian Feng changea radicalement. Il lança l'éventail vers l'ava
 
 Privés de l'obstacle de l'éventail, les deux âmes primaires se déplacèrent avec une vitesse fulgurante et rattrapèrent Qian Feng. Sous la force de l'attaque, l'âme originelle de Qian Feng fut violemment secouée, manquant de peu d'être expulsée de son corps. Heureusement, dans ce moment critique, le symbole étrange sur sa poitrine s'illumina, activant la Formation du Suzaku et le sauvant de l'assaut des deux âmes primaires.
 
-Le visage de Qian Feng était livide. Il se retourna brusquement et cria: « Ceng Niu, ne me force pas! » En rugissant, il expulsa un rayon de lumière verte qui se mua en un morceau de bois verdoyant.
+Le visage de Qian Feng était livide. Il se retourna brusquement et cria: « Zeng Niu, ne me force pas! » En rugissant, il expulsa un rayon de lumière verte qui se mua en un morceau de bois verdoyant.
 
 Ce bois dégageait une aura étrange, puis grandit soudainement pour atteindre une épaisseur d'environ trente-trois mètres.
 
@@ -100,11 +100,11 @@ Simultanément, Wang Lin abattit sa hache sur le bois vert. D'un seul coup, l'ob
 
 Mais ce n'était pas encore fini. Wang Lin agita le drapeau des âmes d'un milliard, qui se désintégra en une pluie de poussière scintillante pour fusionner avec les fragments d'âmes environnants. En conséquence, ces fragments émettent un pouvoir de scellement. À cet instant, une aura de restriction surpuissante apparut dans la zone délimitée par les fragments, au point de gêner légèrement la téléportation.
 
-Les yeux de Qian Feng furent envahis par la terreur, et il hurla immédiatement: « Ceng Niu, il n'y a pas de haine profonde entre nous! Pourquoi chercher à me tuer?! »
+Les yeux de Qian Feng furent envahis par la terreur, et il hurla immédiatement: « Zeng Niu, il n'y a pas de haine profonde entre nous! Pourquoi chercher à me tuer?! »
 
 Le regard de Wang Lin fut aussi tranchant que l'éclair alors qu'il fixait Qian Feng et répondit lentement, mot après mot: « Je te tue parce que j'ai promis à Hongdie de le faire! »
 
-Qian Feng se mit à rire comme un fou: « Ceng Niu, si tu n'avais pas ce drapeau des âmes d'un milliard, je pourrais t'éliminer facilement! Tu m'as poussé à bout! Si je meurs, je détruirai ton précieux drapeau! »
+Qian Feng se mit à rire comme un fou: « Zeng Niu, si tu n'avais pas ce drapeau des âmes d'un milliard, je pourrais t'éliminer facilement! Tu m'as poussé à bout! Si je meurs, je détruirai ton précieux drapeau! »
 
 Les yeux de Wang Lin devinrent glacials et il murmura: « Accepte ta mort. »
 
@@ -120,4 +120,4 @@ Une épée de fer couverte de rouille qui semblait tout droit sortie du monde mo
 
 Pourtant, les taches de rouille dégageaient une puissante odeur de sang. Cette rouille était manifestement le résultat d'une épée imprégnée de sang depuis longtemps.
 
-« Ceci est un secret laissé par mon ancêtre, le Suzaku de la génération précédente. Même le Suzaku actuel ignore son existence. Ceng Niu, j'ai la formation du Suzaku et, puisque tu ne peux pas la briser, tu ne peux pas me tuer. En revanche, moi, je peux te tuer avec cette épée! »
+« Ceci est un secret laissé par mon ancêtre, le Suzaku de la génération précédente. Même le Suzaku actuel ignore son existence. Zeng Niu, j'ai la formation du Suzaku et, puisque tu ne peux pas la briser, tu ne peux pas me tuer. En revanche, moi, je peux te tuer avec cette épée! »

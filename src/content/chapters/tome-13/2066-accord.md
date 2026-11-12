@@ -10,7 +10,7 @@ Les chants du ciel, de la terre, du vent, du tonnerre, des nuages, de la pluie, 
 
 Les trois signes — le ciel doré et la terre noire, les yeux argentés, et le cri du nouveau-né, qui ressemblait à une mélodie sans en être une!
 
-Les neuf chants et les trois signes faisaient l'objet, depuis des dizaines de milliers d'années, de nombreuses légendes sur le Continent Astral Immortel. Cependant, la racine de presque toutes ces légendes était que, lorsque les neuf chants et les trois signes apparaissaient, l'Ancêtre Céleste ou l'Ancêtre Ancien recevait un héritier.
+Les neuf chants et les trois signes faisaient l'objet, depuis des dizaines de milliers d'années, de nombreuses légendes sur le Continent Xian Gang. Cependant, la racine de presque toutes ces légendes était que, lorsque les neuf chants et les trois signes apparaissaient, l'Ancêtre Céleste ou l'Ancêtre Ancien recevait un héritier.
 
 À cet instant, dans la cité ancestrale céleste et dans les trois cités impériales du clan Ancien, des fissures apparurent sur la statue de l'Ancêtre Céleste et sur celles de l'Ancêtre Ancien. Au centre du vaste bassin, le Grand Empyréen Gu Dao fut le témoin personnel de l'accomplissement de la légende.
 
@@ -32,11 +32,11 @@ Wang Lin comprit vaguement qu'une fois ses essences éthérées accomplies et so
 
 Il ignorait combien de temps s'était écoulé; cela sembla durer une éternité, ou peut-être seulement un instant. Wang Lin ouvrit les yeux et, en levant le regard, il vit le pied issu du sort de Gu Dao. Celui-ci semblait avoir perdu sa capacité à l'entraver alors qu'il descendait.
 
-À quelques centaines de pieds de Wang Lin, il laissa échapper un soupir. Après s'être fusionné avec son avatar dans le vide et avoir provoqué l'apparition des neuf chants et des trois signes, son niveau de culture surpassait toutes les existences du Continent Astral Immortel.
+À quelques centaines de pieds de Wang Lin, il laissa échapper un soupir. Après s'être fusionné avec son avatar dans le vide et avoir provoqué l'apparition des neuf chants et des trois signes, son niveau de culture surpassait toutes les existences du Continent Xian Gang.
 
 Même si l'Ancêtre Céleste et l'Ancêtre Ancien revenaient à la vie, il serait digne de les affronter.
 
-Désormais, sur le Continent Astral Immortel, aux côtés des légendes de l'Ancêtre Céleste et de l'Ancêtre Ancien, on trouverait également les empreintes de Wang Lin.
+Désormais, sur le Continent Xian Gang, aux côtés des légendes de l'Ancêtre Céleste et de l'Ancêtre Ancien, on trouverait également les empreintes de Wang Lin.
 
 Aux yeux de Wang Lin, le sort actuel de Gu Dao n'avait fait qu'effleurer le stade du Piétinement des Cieux. Il réfléchit silencieusement et, alors que le pied géant n'était plus qu'à cent pieds de lui, il pointa du doigt.
 
@@ -54,13 +54,13 @@ Wang Lin fixa l'endroit où Gu Dao s'était volatilisé jusqu'à ce que le broui
 
 Après avoir traversé la tempête, il atteindrait la frontière du clan Céleste et arriverait bientôt au sein même du clan!
 
-Cette bataille prit fin lorsque les deux disparurent. Dans ce combat, Gu Dao avait perdu; ainsi, le titre de plus fort du Continent Astral Immortel n'appartenait plus à Gu Dao, mais à... Wang Lin!
+Cette bataille prit fin lorsque les deux disparurent. Dans ce combat, Gu Dao avait perdu; ainsi, le titre de plus fort du Continent Xian Gang n'appartenait plus à Gu Dao, mais à... Wang Lin!
 
 Cependant, mis à part l'arrivée précipitée des Grands Empyréens, personne d'autre ne savait que cela s'était produit.
 
 Le douzième jour après le départ de Wang Lin, sept rayons de lumière arrivèrent des deux côtés du mur de mer et révélèrent sept personnes.
 
-Ces sept individus étaient les sept Grands Empyréens du Continent Astral Immortel!
+Ces sept individus étaient les sept Grands Empyréens du Continent Xian Gang!
 
 Ils se connaissaient tous, mais bien qu'appartenant à deux camps différents, ils ne souhaitaient pas combattre. Au lieu de cela, ils déployèrent tous leur Sens Divin pour observer la zone et réfléchir en silence.
 
@@ -90,7 +90,7 @@ Quant au Grand Empyréen Shuangzi, les deux fillettes s'étaient depuis longtemp
 
 Le temps passa. Les sept restèrent là pendant la durée d'un bâton d'encens. Ils se regardèrent, rendant l'atmosphère pesante et chargée d'intentions meurtrières.
 
-Alors qu'ils étaient tous plongés dans leurs pensées, Jiu Di prit soudain la parole: « Trois compagnons cultivateurs du clan Ancien, ce vieil homme a une suggestion. »
+Alors qu'ils étaient tous plongés dans leurs pensées, Jiu Di prit soudain la parole: « Trois Daoïstes du clan Ancien, ce vieil homme a une suggestion. »
 
 Après ses paroles, Song Tian et les autres lui jetèrent des regards froids.
 
@@ -130,9 +130,9 @@ Ils virent le sort de Gu Dao et le Pas pour Piétiner les Cieux de Wang Lin. Enf
 
 L'apparence de Gu Dao et ses échanges avec Wang Lin n'étaient pas perceptibles pour les sept spectateurs. Cependant, ce qu'ils avaient vu suffit à leur couper le souffle...
 
-Même une fois la scène terminée, les sept restèrent silencieux pendant un long moment. Ils savaient tous que le Continent Astral Immortel ne serait plus jamais le même!
+Même une fois la scène terminée, les sept restèrent silencieux pendant un long moment. Ils savaient tous que le Continent Xian Gang ne serait plus jamais le même!
 
-L'être le plus puissant du Continent Astral Immortel n'était plus Gu Dao, mais Wang Lin!
+L'être le plus puissant du Continent Xian Gang n'était plus Gu Dao, mais Wang Lin!
 
 Le cœur de Dao Yi trembla. Il était un Grand Empyréen, et pourtant, il ressentait la peur. La force de Wang Lin lui inspirait l'incrédulité, mais par-dessus tout, elle lui inspirait la terreur.
 

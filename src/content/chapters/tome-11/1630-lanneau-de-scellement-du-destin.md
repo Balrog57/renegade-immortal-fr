@@ -40,7 +40,7 @@ Certains furent trop lents et furent frappés par la pression. Ils crachèrent d
 
 La seule personne à l'extérieur des nuages qui n'était pas écrasée par la pression était le Vieux Fantôme Zhan, de l'autre côté. Ses cheveux ondulaient sans vent et ses yeux brillaient d'une lueur étrange alors qu'il fixait les nuages. Pour la première fois, son regard quitta Wang Lin pour se porter sur l'anneau doré.
 
-« L'Anneau de Scellement du Destin! C'est l'objet qu'il avait désigné comme troisième trésor pour devenir la Tribulation Céleste dans ses souvenirs... Ce trésor avait même une certaine renommée sur le Continent Astral Immortel. Malheureusement, il est devenu une Tribulation Céleste, et malheureusement, mon corps... » Le Vieux Fantôme Zhan secoua la tête en soupirant, mais ses yeux s'illuminèrent soudainement.
+« L'Anneau de Scellement du Destin! C'est l'objet qu'il avait désigné comme troisième trésor pour devenir la Tribulation Céleste dans ses souvenirs... Ce trésor avait même une certaine renommée sur le Continent Xian Gang. Malheureusement, il est devenu une Tribulation Céleste, et malheureusement, mon corps... » Le Vieux Fantôme Zhan secoua la tête en soupirant, mais ses yeux s'illuminèrent soudainement.
 
 « Si Wang Lin peut obtenir ce trésor, ses chances d'être le troisième augmenteront considérablement... Cependant, il sera ardu de s'en emparer... »
 

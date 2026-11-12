@@ -8,15 +8,15 @@ slug: lombrelle-souvre-pour-detruire-le-royaume
 ---
 Profitant de cette opportunité qu'il avait créée en faisant échouer le sort de l'homme tapi dans la flamme aux sept couleurs, Wang Lin n'hésita pas à sortir le trésor que le premier Oiseau Vermillon lui avait confié pour tuer le traître, le troisième Oiseau Vermillon!
 
-Après que Wang Lin eut invoqué l'Oiseau Vermillon, le feu dans le ciel commença à tourbillonner violemment!
+Après que Wang Lin eut invoqué Suzaku, le feu dans le ciel commença à tourbillonner violemment!
 
 La mer de feu s'éleva rapidement et un vortex gigantesque apparut au centre, juste au-dessus de la tête de Wang Lin. Ce vortex de feu devint semblable à un trou noir, une porte ouverte sur un monde mystérieux!
 
-Au moment où le trou noir apparut, un cri d'Oiseau Vermillon résonna soudainement à l'intérieur!
+Au moment où le trou noir apparut, un cri de Suzaku résonna soudainement à l'intérieur!
 
-Le cri de l'Oiseau Vermillon était assourdissant. À son apparition, Wang Lin ressentit un choc profond. Son Oiseau Vermillon, éveillé quatre fois, se manifesta et témoigna son respect!
+Le cri de Suzaku était assourdissant. À son apparition, Wang Lin ressentit un choc profond. Son Oiseau Vermillon, éveillé quatre fois, se manifesta et témoigna son respect!
 
-C'était comme si l'Oiseau Vermillon de Wang Lin ressentait une peur instinctive face à ce cri!
+C'était comme si Suzaku de Wang Lin ressentait une peur instinctive face à ce cri!
 
 L'Oiseau Vermillon aux sept couleurs derrière l'homme d'âge mûr leva la tête et poussa un cri. La peur se lisait dans ses yeux, et il n'osait point s'envoler!
 
@@ -24,23 +24,23 @@ Cette scène fut si soudaine que les pupilles de l'homme d'âge mûr se rétract
 
 « Ce vieux fou t'a réellement donné cela pour me tuer!!! »
 
-À la suite du cri fracassant de l'Oiseau Vermillon, une pression terrifiante jaillit du vortex avant de se disperser rapidement. La température grimpa soudainement jusqu'à ce que l'endroit ressemble à un royaume de feu!
+À la suite du cri fracassant de Suzaku, une pression terrifiante jaillit du vortex avant de se disperser rapidement. La température grimpa soudainement jusqu'à ce que l'endroit ressemble à un royaume de feu!
 
 Sous cette pression, une scène terrifiante que Wang Lin n'oublierait jamais se produisit dans la mer de feu céleste!
 
-Un bec gigantesque d'Oiseau Vermillon descendit du vortex. Le simple bec couvrait la majeure partie du ciel, et la pression décupla de façon exponentielle.
+Un bec gigantesque de Suzaku descendit du vortex. Le simple bec couvrait la majeure partie du ciel, et la pression décupla de façon exponentielle.
 
-L'esprit originel de l'Oiseau Vermillon! Cette plume était un trésor inestimable pour le premier Oiseau Vermillon, car il n'en possédait qu'une seule!
+L'esprit originel de Suzaku! Cette plume était un trésor inestimable pour le premier Oiseau Vermillon, car il n'en possédait qu'une seule!
 
 Ce que la plume avait invoqué était un véritable Oiseau Vermillon, issu de la patrie du premier Oiseau Vermillon! Ce n'était pas une créature formée par les cultivateurs du clan, mais un être vivant!
 
-Le bec de l'Oiseau Vermillon descendit brusquement du vortex, provoquant un bombement de la mer de feu, le bec marquant le point le plus bas!
+Le bec de Suzaku descendit brusquement du vortex, provoquant un bombement de la mer de feu, le bec marquant le point le plus bas!
 
 Dans sa descente, le feu bouillonnait!
 
-Sa vitesse était inimaginable. En plongeant, il piqua impitoyablement l'homme d'âge mûr! Durant ce processus, le ciel tout entier semblait s'être transformé en la tête de l'Oiseau Vermillon. Ses yeux étaient emplis de colère, et Wang Lin le reconnut instantanément. Il ressemblait énormément au premier Oiseau Vermillon!
+Sa vitesse était inimaginable. En plongeant, il piqua impitoyablement l'homme d'âge mûr! Durant ce processus, le ciel tout entier semblait s'être transformé en la tête de Suzaku. Ses yeux étaient emplis de colère, et Wang Lin le reconnut instantanément. Il ressemblait énormément au premier Oiseau Vermillon!
 
-Le monde continuait de gronder. Le bec de l'Oiseau Vermillon descendit rapidement et, en un instant, atteignit les mille pieds de la flamme aux sept couleurs. Cela était comparable au doigt d'un Dieu Ancien, mais l'élan était bien plus puissant. Seul un Dieu Ancien adulte d'au moins 8 étoiles utilisant personnellement le sort pourrait égaler cela!
+Le monde continuait de gronder. Le bec de Suzaku descendit rapidement et, en un instant, atteignit les mille pieds de la flamme aux sept couleurs. Cela était comparable au doigt d'un Dieu Ancien, mais l'élan était bien plus puissant. Seul un Dieu Ancien adulte d'au moins 8 étoiles utilisant personnellement le sort pourrait égaler cela!
 
 À l'intérieur de la flamme aux sept couleurs, l'homme d'âge mûr poussa un rugissement et agita la main. Les flammes autour de lui s'élancèrent vers le ciel pour former un autre Oiseau Vermillon qui fonça sur le bec descendant!
 
@@ -52,11 +52,11 @@ Ses paroles ébranlèrent le monde entier. Avec le mot « terre », une étendue
 
 Avec le mot « feu », la mer commença à brûler, recouverte d'une flamme aux sept couleurs. Enfin, avec le dernier mot, « vent », une rafale balaya les flammes.
 
-« Les Quatre Éléments sont vides!! » L'expression de l'homme était féroce alors qu'il projetait ses mains vers l'avant. Un vent puissant se précipita vers le bec de l'Oiseau Vermillon, suivi de près par les flammes, puis par la mer en furie!
+« Les Quatre Éléments sont vides!! » L'expression de l'homme était féroce alors qu'il projetait ses mains vers l'avant. Un vent puissant se précipita vers le bec de Suzaku, suivi de près par les flammes, puis par la mer en furie!
 
 Après la flamme venait la mer déchaînée. Enfin, la terre traversa le corps de l'homme et chargea vers le ciel comme pour colmater le vortex.
 
-Lorsque tout cela se manifesta devant Wang Lin, son esprit fut bouleversé. Que ce soit l'Oiseau Vermillon ou l'homme d'âge mûr, ils possédaient tous deux une puissance que Shui Daozi et Maître Simo ne pouvaient égaler. Si ces deux forces entraient en collision, l'onde de choc serait assez puissante pour détruire cette terre sainte!
+Lorsque tout cela se manifesta devant Wang Lin, son esprit fut bouleversé. Que ce soit Suzaku ou l'homme d'âge mûr, ils possédaient tous deux une puissance que Shui Daozi et Maître Simo ne pouvaient égaler. Si ces deux forces entraient en collision, l'onde de choc serait assez puissante pour détruire cette terre sainte!
 
 Même Wang Lin ne pourrait survivre! À moins qu'il n'utilise un sort d'une puissance similaire pour affronter cette vague de destruction!
 
@@ -76,7 +76,7 @@ Les mains de Wang Lin commencèrent à former des sceaux sans l'ombre d'une hés
 
 Premier souffle!
 
-Le vent de l'homme heurta le bec. Le monde gronda et le vent se brisa! Le bec de l'Oiseau Vermillon trembla, et le grondement de ses flammes résonna bruyamment!
+Le vent de l'homme heurta le bec. Le monde gronda et le vent se brisa! Le bec de Suzaku trembla, et le grondement de ses flammes résonna bruyamment!
 
 Une onde de choc se propagea dans toutes les directions!
 
@@ -84,25 +84,25 @@ Wang Lin acheva la première série de sceaux! Le monde devant lui changea de co
 
 Deuxième souffle!
 
-La flamme aux sept couleurs percuta le bec de l'Oiseau Vermillon et le monde trembla. Le bec vacilla et la flamme aux sept couleurs s'effondra!
+La flamme aux sept couleurs percuta le bec de Suzaku et le monde trembla. Le bec vacilla et la flamme aux sept couleurs s'effondra!
 
 La deuxième onde de choc balaya le monde!
 
 Wang Lin termina la seconde série de sceaux. Des baleines d'ombrelle apparurent sur l'os de feu géant!
 
-Le troisième et le quatrième souffle passèrent instantanément. La mer se déchaîna contre le bec de l'Oiseau Vermillon, percutant celui-ci pour se transformer en une vapeur d'eau infinie. La pointe du bec se brisa, provoquant un cri de l'Oiseau Vermillon qui expulsa une bouffée d'air de son ventre!
+Le troisième et le quatrième souffle passèrent instantanément. La mer se déchaîna contre le bec de Suzaku, percutant celui-ci pour se transformer en une vapeur d'eau infinie. La pointe du bec se brisa, provoquant un cri de Suzaku qui expulsa une bouffée d'air de son ventre!
 
 Cet air s'élança vers la terre réparatrice!
 
-Des grondements tonitruants résonnèrent violemment comme jamais auparavant dans cette terre sainte, devenant la voix même du monde! Le Souverain poussa un rugissement alors que le bec de l'Oiseau Vermillon s'effondrait!
+Des grondements tonitruants résonnèrent violemment comme jamais auparavant dans cette terre sainte, devenant la voix même du monde! Le Souverain poussa un rugissement alors que le bec de Suzaku s'effondrait!
 
 Au moment de son effondrement, la troisième onde de choc se propagea partout. D'innombrables failles déchirèrent l'espace et une énergie violente emplit le monde. La terre sainte du Clan Huo Que commença à s'écrouler sous cette onde de choc!
 
-L'air expulsé par l'Oiseau Vermillon retomba sur la terre, provoquant d'innombrables fissures!
+L'air expulsé par Suzaku retomba sur la terre, provoquant d'innombrables fissures!
 
 Voyant que la terre était sur le point de se désintégrer, le Souverain cracha un flot de sang. Le sang se changea en brume sanguine et propulsa la terre vers le ciel. Après avoir absorbé le sang, la terre cessa de se désintégrer et chargea vers les cieux avec un élan indescriptible!
 
-Des grondements tonitruants retentirent. La grande terre, couverte d'innombrables fissures, fonça directement dans la mer de feu du ciel. Elle recouvrit toute la mer de feu et scella le vortex géant par lequel l'esprit originel de l'Oiseau Vermillon était arrivé!
+Des grondements tonitruants retentirent. La grande terre, couverte d'innombrables fissures, fonça directement dans la mer de feu du ciel. Elle recouvrit toute la mer de feu et scella le vortex géant par lequel l'esprit originel de Suzaku était arrivé!
 
 Le monde trembla et fut déchiré alors que l'onde de choc se propageait, provoquant une désintégration frénétique de tout ce qui l'entourait. Le Souverain toussa du sang, son visage devenant encore plus pâle. Il se retourna vers Wang Lin avec une expression féroce avant de faire un pas en avant!
 
@@ -120,9 +120,9 @@ Des grondements emplirent l'air tandis que l'esprit de bois tremblait. La paume 
 
 Près de deux millions de sceaux entouraient le corps de Wang Lin. Une fois terminés, ils formèrent une tempête de feu et fusionnèrent avec l'armature d'os pour créer une gigantesque Ombrelle Brûlante du Royaume, pas encore ouverte!!
 
-« Ombrelle Brûlante du Royaume!! » Les yeux de Wang Lin étaient injectés de sang. Il utilisa le sort le plus puissant du clan de l'Oiseau Vermillon au moment précis où l'empreinte de la paume allait le frapper!
+« Ombrelle Brûlante du Royaume!! » Les yeux de Wang Lin étaient injectés de sang. Il utilisa le sort le plus puissant du clan de Suzaku au moment précis où l'empreinte de la paume allait le frapper!
 
-Bien qu'il ne l'ait appris que récemment, il était l'Oiseau Vermillon et avait pratiqué les restrictions pendant longtemps; il possédait donc des méthodes pour créer des sceaux rapidement. Cependant, sa compréhension étant encore limitée, sa puissance était manifestement inférieure à la perfection. Pourtant, pour un tel sort, même une puissance moindre restait capable de bouleverser le ciel!
+Bien qu'il ne l'ait appris que récemment, il était Suzaku et avait pratiqué les restrictions pendant longtemps; il possédait donc des méthodes pour créer des sceaux rapidement. Cependant, sa compréhension étant encore limitée, sa puissance était manifestement inférieure à la perfection. Pourtant, pour un tel sort, même une puissance moindre restait capable de bouleverser le ciel!
 
 Il cracha alors un flot de sang. Wang Lin sentit clairement sa vitalité être rapidement absorbée par l'ombrelle antique pour générer la force nécessaire à son ouverture!
 

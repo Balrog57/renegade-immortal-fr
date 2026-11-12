@@ -8,7 +8,7 @@ slug: la-mort-du-divin-empereur
 ---
 Au moment même où l'ancien Divin Empereur projeta son sens divin, Wang Lin, qui était sur le point de pénétrer dans le champ d'étoiles ardent, fut pris d'un frisson. Il leva soudain les yeux et son expression changea radicalement.
 
-En tant qu'Empereur Divin de l'Oiseau Vermillon, ayant lui aussi cultivé les mêmes Neuf Transformations Mystérieuses, il possédait naturellement une méthode spéciale pour communiquer avec l'ancien Divin Empereur. Wang Lin n'hésita pas une seconde: il utilisa le talisman qu'il portait encore sur lui et s'élança dans le champ d'étoiles ardent.
+En tant qu'Empereur Divin de Suzaku, ayant lui aussi cultivé les mêmes Neuf Transformations Mystérieuses, il possédait naturellement une méthode spéciale pour communiquer avec l'ancien Divin Empereur. Wang Lin n'hésita pas une seconde: il utilisa le talisman qu'il portait encore sur lui et s'élança dans le champ d'étoiles ardent.
 
 Sa vitesse était telle que, dès son entrée dans le champ d'étoiles, il fit un pas et disparut en utilisant la Distorsion Spatiale.
 
@@ -46,33 +46,33 @@ Privé de son âme originelle, le corps commença à brûler jusqu'à se transfo
 
 Sa main droite pointait toujours vers l'espace entre ses sourcils.
 
-Wang Lin recula de quelques pas, s'agenouilla sur la pierre et effectua trois prosternations. Wang Lin ne se prosternait de toute sa vie ni devant les cieux ni devant la terre, mais l'ancien Empereur Divin de l'Oiseau Vermillon reçut là trois prosternations de la part de Wang Lin!
+Wang Lin recula de quelques pas, s'agenouilla sur la pierre et effectua trois prosternations. Wang Lin ne se prosternait de toute sa vie ni devant les cieux ni devant la terre, mais l'ancien Empereur Divin de Suzaku reçut là trois prosternations de la part de Wang Lin!
 
-Au moment où le vieil Empereur Divin mourut, presque tous les Anciens de la Secte Divine de l'Oiseau Vermillon ressentirent une immense tristesse. Ils s'envolèrent silencieusement depuis les planètes qu'ils occupaient pour s'agenouiller face au corps de l'ancien Divin Empereur. Des larmes coulèrent de leurs yeux.
+Au moment où le vieil Empereur Divin mourut, presque tous les Anciens de la Secte Divine de Suzaku ressentirent une immense tristesse. Ils s'envolèrent silencieusement depuis les planètes qu'ils occupaient pour s'agenouiller face au corps de l'ancien Divin Empereur. Des larmes coulèrent de leurs yeux.
 
 « Je salue respectueusement le départ du Divin Empereur. Puisse votre voyage être serein... »
 
-« Je prie pour que l'âme du Divin Empereur, dans les cieux, protège notre Secte Divine de l'Oiseau Vermillon... »
+« Je prie pour que l'âme du Divin Empereur, dans les cieux, protège notre Secte Divine de Suzaku... »
 
-Bientôt, non seulement eux, mais tous les membres de la Secte Divine de l'Oiseau Vermillon ressentirent la tristesse qui se propageait à travers le monde. Ils savaient tous que l'ancien Divin Empereur était parti...
+Bientôt, non seulement eux, mais tous les membres de la Secte Divine de Suzaku ressentirent la tristesse qui se propageait à travers le monde. Ils savaient tous que l'ancien Divin Empereur était parti...
 
 Les membres de la secte s'agenouillèrent un à un, les larmes coulant silencieusement sur leurs visages...
 
 « Salutations respectueuses au Divin Empereur... » Un son issu du plus profond du cœur commença à émaner des planètes de culture, devenant de plus en plus puissant.
 
-Même les statues de l'Oiseau Vermillon sur les planètes principales poussèrent des cris de douleur...
+Même les statues de Suzaku sur les planètes principales poussèrent des cris de douleur...
 
 Un Oiseau Vermillon illusoire, très vieux et épuisé, s'échappa du corps de l'ancien Divin Empereur. Il s'envola au loin jusqu'à ne devenir plus rien.
 
-L'Empereur Divin de l'Oiseau Vermillon, autrefois si puissant, qui avait guidé les Quatre Sectes Divines à travers la crise causée par la mort de l'Empereur Divin du Tigre Blanc, la trahison de l'Empereur Divin de la Tortue Noire et la disparition de l'Empereur Divin du Dragon Azure... Après d'innombrables années, le vieil Empereur Divin s'était enfin éteint.
+L'Empereur Divin de Suzaku, autrefois si puissant, qui avait guidé les Quatre Sectes Divines à travers la crise causée par la mort de l'Empereur Divin du Tigre Blanc, la trahison de l'Empereur Divin de la Tortue Noire et la disparition de l'Empereur Divin du Dragon Azure... Après d'innombrables années, le vieil Empereur Divin s'était enfin éteint.
 
-À cet instant, les Anciens des Sectes Divines du Dragon Azure, du Tigre Blanc et de la Tortue Noire ressentirent tous quelque chose. Ils regardèrent silencieusement en direction de la Secte Divine de l'Oiseau Vermillon et s'agenouillèrent. Les membres de ces trois sectes firent de même.
+À cet instant, les Anciens des Sectes Divines du Dragon Azure, du Tigre Blanc et de la Tortue Noire ressentirent tous quelque chose. Ils regardèrent silencieusement en direction de la Secte Divine de Suzaku et s'agenouillèrent. Les membres de ces trois sectes firent de même.
 
 Une aura de deuil enveloppa toute la région orientale de l'Alliance...
 
 La gloire passée s'était envolée avec le vent. La quête sans regret n'appartenait plus qu'au passé. Le présent était plongé dans la tristesse des temps révolus, mais il existerait à jamais... dans les cœurs de tous les membres des Quatre Sectes Divines.
 
-Après le décès de l'ancien Empereur Divin de l'Oiseau Vermillon, Luotian rappela tous ses cultivateurs. Sous le commandement du Maître Yan Leizi, ils se dirigèrent vers la planète Suzaku! Même la seule famille possédant un héritage du monde antique de la culture vint de Luotian pour les rejoindre! Les palais du Temple Céleste du Tonnerre se déplaçaient parmi les cultivateurs, dégageant des vagues de pression écrasantes.
+Après le décès de l'ancien Empereur Divin de Suzaku, Luotian rappela tous ses cultivateurs. Sous le commandement du Maître Yan Leizi, ils se dirigèrent vers la planète Suzaku! Même la seule famille possédant un héritage du monde antique de la culture vint de Luotian pour les rejoindre! Les palais du Temple Céleste du Tonnerre se déplaçaient parmi les cultivateurs, dégageant des vagues de pression écrasantes.
 
 Non seulement eux, mais la Secte Shi Yin envoya presque l'intégralité de ses membres vers la planète Suzaku! De longues processions de disciples portant des cercueils traversaient les étoiles, telle une marche funèbre.
 
@@ -82,7 +82,7 @@ Ces mouvements attirèrent immédiatement l'attention des diverses forces de l'A
 
 De l'autre côté, dans la région orientale des Quatre Sectes Divines, un groupe d'Anciens menait également les membres de leur secte vers la planète Suzaku, afin de masquer les véritables mouvements des Quatre Sectes Divines!
 
-Presque au moment même où toutes les forces arrivèrent sur la planète Suzaku, les 35 Anciens Briseurs du Nirvana des trois autres sectes se rassemblèrent dans la Secte Divine de l'Oiseau Vermillon. Ils étaient assis en formation, le visage grave et le regard empreint d'attente.
+Presque au moment même où toutes les forces arrivèrent sur la planète Suzaku, les 35 Anciens Briseurs du Nirvana des trois autres sectes se rassemblèrent dans la Secte Divine de Suzaku. Ils étaient assis en formation, le visage grave et le regard empreint d'attente.
 
 Ils formèrent un cercle, chacun disposant d'une formation sous lui. Au milieu des 35 individus se trouvait une formation circulaire de dix pieds de large, vide pour l'instant. Cependant, 35 branches reliaient ce centre aux formations situées sous chaque Ancien.
 

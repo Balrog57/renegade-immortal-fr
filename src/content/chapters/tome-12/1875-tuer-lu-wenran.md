@@ -16,7 +16,7 @@ Un grondement tonitruant retentit. Wang Lin, entouré d'innombrables fils noirs,
 
 Le corps de Wang Lin sembla s'animer. Tandis que les innombrables fils s'agitaient, ils se tissèrent rapidement pour former une armure noire. Cette armure recouvrait tout le corps de Wang Lin, y compris son cou et son visage, ne laissant apparaître que ses yeux clos et ses cheveux blancs!
 
-Une ombre gigantesque de Taureau Céleste apparut derrière Wang Lin. Ce taureau dégageait une aura défiant les cieux. Les yeux du taureau étaient également clos.
+Une ombre gigantesque de Tian Niu apparut derrière Wang Lin. Ce taureau dégageait une aura défiant les cieux. Les yeux du taureau étaient également clos.
 
 Le niveau de culture de Wang Lin augmentait à une vitesse folle. Il empruntait la puissance de l'armure d'âme et, bien que ce ne fût que temporaire, cela lui procurait des avantages inimaginables.
 
@@ -66,33 +66,33 @@ Aucune Tribulation de l'Arcane ne survint; c'était extrêmement sûr. L'aura de
 
 Stade initial de la Tribulation du Vide!!
 
-Au moment où Wang Lin atteignit le stade initial de la Tribulation du Vide, il ouvrit soudainement les yeux. L'ombre du Taureau Céleste derrière lui ouvrit également les siennes, révélant un regard féroce, une fureur démesurée et une folie destructrice qui défiait les cieux!
+Au moment où Wang Lin atteignit le stade initial de la Tribulation du Vide, il ouvrit soudainement les yeux. L'ombre du Tian Niu derrière lui ouvrit également les siennes, révélant un regard féroce, une fureur démesurée et une folie destructrice qui défiait les cieux!
 
 Grrraaah!!
 
-L'ombre du Taureau Céleste leva la tête et poussa un rugissement qui se propagea dans le palais souterrain, à travers la terre, toute la Prairie Ji Tian et par-delà le continent!
+L'ombre du Tian Niu leva la tête et poussa un rugissement qui se propagea dans le palais souterrain, à travers la terre, toute la Prairie Ji Tian et par-delà le continent!
 
 En surface, les six cultivateurs du stade médian de la Tribulation du Vide entendirent ce rugissement et leurs expressions changèrent radicalement!
 
-« Le rugissement du Taureau Céleste! »
+« Le rugissement du Tian Niu! »
 
-« Ce doit être le rugissement du Taureau Céleste! Seul lui peut faire trembler mon cœur d'un tel cri! »
+« Ce doit être le rugissement du Tian Niu! Seul lui peut faire trembler mon cœur d'un tel cri! »
 
-« J'ai déjà entendu un son similaire, c'était le rugissement du Démon Vert. Ce doit être le Taureau Céleste!! » Les six sentirent un pressentiment funeste.
+« J'ai déjà entendu un son similaire, c'était le rugissement du Démon Vert. Ce doit être le Tian Niu!! » Les six sentirent un pressentiment funeste.
 
 S'ils réagissaient ainsi, que dire des moins de 2 000 cultivateurs du Continent Lu Mo? Leurs corps tremblaient et la peur se lisait dans leurs yeux. Ce rugissement avait failli provoquer l'effondrement de leurs âmes originelles.
 
-Dans le palais souterrain, les yeux de Wang Lin étaient rouges. Cette rougeur n'était pas due à la folie, mais à l'armure d'âme. Elle provenait du ressentiment transcendant du Taureau Céleste!
+Dans le palais souterrain, les yeux de Wang Lin étaient rouges. Cette rougeur n'était pas due à la folie, mais à l'armure d'âme. Elle provenait du ressentiment transcendant du Tian Niu!
 
 « Tu vas me tuer? » Les yeux rouges de Wang Lin ne montraient aucune émotion; ils étaient d'un froid glacial alors qu'il regardait Lu Wenran qui avait cessé ses assauts et reculait, le visage pâle.
 
 « Tu vas me tuer? » murmura Wang Lin comme si ses souvenirs lui revenaient. Il leva la main droite et fit un geste.
 
-D'un tel mouvement, le monde trembla et la main droite de Wang Lin se transforma en un Taureau Céleste qui chargea Lu Wenran. Dans un fracas, le corps de ce dernier fut projeté en arrière comme un cerf-volant dont on aurait coupé la ficelle.
+D'un tel mouvement, le monde trembla et la main droite de Wang Lin se transforma en un Tian Niu qui chargea Lu Wenran. Dans un fracas, le corps de ce dernier fut projeté en arrière comme un cerf-volant dont on aurait coupé la ficelle.
 
 L'intention meurtrière remplissait les yeux de Wang Lin alors qu'il chargeait, l'armure noire ne laissant paraître que son regard. En une seule enjambée, il apparut devant Lu Wenran. Sans utiliser de sorts, il se contenta de lui asséner un coup de pied!
 
-Au moment où Wang Lin leva le pied droit, l'illusion d'une corne de Taureau Céleste apparut!
+Au moment où Wang Lin leva le pied droit, l'illusion d'une corne de Tian Niu apparut!
 
 Dans un fracas tonitruant, Lu Wenran poussa un cri déchirant et son corps explosa en une brume de sang. Son âme originelle s'échappa précipitamment. Il n'était plus fou; ses pensées avaient été remplacées par la terreur.
 
@@ -100,7 +100,7 @@ Dans un fracas tonitruant, Lu Wenran poussa un cri déchirant et son corps explo
 
 « Je suis un Ancien de la Secte Da Hun, tu ne peux pas me tuer! » Les yeux de Wang Lin étaient glacials alors qu'il le rattrapait. Il fit un geste de la main droite et l'âme originelle de Lu Wenran explosa. Il perdit la moitié inférieure de son corps.
 
-« Je suis le disciple de l'Ancêtre Taureau Vert. Si tu me tues, mon Maître ne te lâchera pas! » Lu Wenran était affaibli après avoir perdu la moitié de son corps, et sa voix n'était plus qu'un souffle. Il reculait frénétiquement, terrorisé.
+« Je suis le disciple de l'Ancêtre Qing Niu. Si tu me tues, mon Maître ne te lâchera pas! » Lu Wenran était affaibli après avoir perdu la moitié de son corps, et sa voix n'était plus qu'un souffle. Il reculait frénétiquement, terrorisé.
 
 Mais Wang Lin fit un autre pas et se rapprocha à nouveau. D'un geste de la main droite, il fit s'effondrer une fois de plus le corps de Lu Wenran, ne laissant qu'une tête sur le point de se dissiper.
 
@@ -120,8 +120,8 @@ Puisque la situation ne pouvait mener qu'à l'un ou l'autre, Wang Lin n'avait au
 
 Son corps pouvait être considéré comme un corps façonné par les essences. Son sang était l'essence de l'eau et ses yeux étaient l'essence du tonnerre et du feu. Son existence même était composée d'essences!
 
-Ce sentiment émanait de l'armure sur son corps. À cet instant, il avait la sensation de n'être plus un simple cultivateur, mais le suprême et féroce Taureau Céleste ayant cultivé dans l'immensité de l'espace pendant des éons!
+Ce sentiment émanait de l'armure sur son corps. À cet instant, il avait la sensation de n'être plus un simple cultivateur, mais le suprême et féroce Tian Niu ayant cultivé dans l'immensité de l'espace pendant des éons!
 
 Wang Lin leva la tête et fixa froidement le sommet du palais souterrain. Une intention meurtrière jaillit de ses yeux.
 
-« Zhang Daozong, je viens! » Wang Lin fusionna avec l'ombre du Taureau Céleste derrière lui et chargea vers les cieux!
+« Zhang Daozong, je viens! » Wang Lin fusionna avec l'ombre du Tian Niu derrière lui et chargea vers les cieux!

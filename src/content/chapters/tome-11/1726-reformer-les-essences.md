@@ -14,7 +14,7 @@ Il semblait que rien n'eût d'importance aux yeux de la Bête des Limbes. Elle �
 
 De même, cette pression provenait de Wang Lin, assis sur le dos de la Bête des Limbes. Bien qu'il restât immobile et silencieux, l'aura qu'il dégageait était celle d'un dieu céleste!
 
-Wang Lin possédait la lignée du Dao Ancien. Cette lignée était assez noble pour rivaliser avec celle du Fou. Bien qu'il fût encore un habitant du monde des grottes, sa lignée lui permettait de regarder de haut la plupart des êtres, même sur le Continent Astral Immortel!
+Wang Lin possédait la lignée du Dao Ancien. Cette lignée était assez noble pour rivaliser avec celle du Fou. Bien qu'il fût encore un habitant du monde des grottes, sa lignée lui permettait de regarder de haut la plupart des êtres, même sur le Continent Xian Gang!
 
 La Bête des Limbes se déplaçait en silence. Plus précisément, elle ne bougeait pas du tout; c'était le monde qui se mouvait. Elle pouvait atteindre n'importe quel lieu en un instant, car tout ici lui appartenait!
 
@@ -28,7 +28,7 @@ C'est pourquoi cette boussole existe.
 
 Chacun recherche ce Dao Céleste. Le Daoïste aux Sept Couleurs, le Vieux Fantôme Zhan et les autres cherchent tous la troisième âme. Outre la fusion avec celle-ci, ils ont probablement tous des plans concernant le Dao Céleste... ainsi que pour obtenir le fragment du Souverain Céleste aux Sept Couleurs.
 
-Par chance, je suis devenu le maître du Dao Céleste... Désormais, je suis le maître du Dao Céleste. J'ignore ce qu'il en est sur le Continent Astral Immortel, mais dans le monde des grottes, personne ne pourra me le ravir!
+Par chance, je suis devenu le maître du Dao Céleste... Désormais, je suis le maître du Dao Céleste. J'ignore ce qu'il en est sur le Continent Xian Gang, mais dans le monde des grottes, personne ne pourra me le ravir!
 
 Ce Dao Céleste doit être complet; il a même pu dévorer Lian Daofei autrefois. Je veux voir qui osera me provoquer et devenir le premier de mes ennemis à être dévoré par le Dao Céleste après d'innombrables années! »
 
@@ -104,7 +104,7 @@ En particulier, ses yeux ressemblaient à des étoiles. Quiconque les fixait tom
 
 Au moment où il rouvrit les yeux, l'essence du Vrai et du Faux se rassembla.
 
-Pendant que Wang Lin reformait les essences de son avatar de cultivateur, la Bête des Limbes dérivait lentement en dessous de lui. Elle avait quitté la Rivière Zhao pour atteindre la Mer Yun.
+Pendant que Wang Lin reformait les essences de son avatar de cultivateur, la Bête des Limbes dérivait lentement en dessous de lui. Elle avait quitté Zhao He pour atteindre la Mer Yun.
 
 À cet instant, dans la Mer Yun, un groupe de personnes traversait le système stellaire.
 

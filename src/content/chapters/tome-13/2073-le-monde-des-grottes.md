@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2073 - Cave World
 slug: le-monde-des-grottes
 ---
-Wang Lin retrouva tous ses vieux amis, à l'exception de Li Qianmei et de Qing Shui. Il leur rendit soit leurs souvenirs, soit les laissa partir en silence et choisir l'oubli. Wang Lin n'avait plus rien qui le liait désormais au Continent Astral Immortel.
+Wang Lin retrouva tous ses vieux amis, à l'exception de Li Qianmei et de Qing Shui. Il leur rendit soit leurs souvenirs, soit les laissa partir en silence et choisir l'oubli. Wang Lin n'avait plus rien qui le liait désormais au Continent Xian Gang.
 
 Avant de se rendre sur le Continent Tian Niu, il alla voir Zhou Yi et Qing Shuang une dernière fois. De loin, il aperçut le sourire radieux de Zhou Yi. Wang Lin sourit à son tour; il se sentait heureux pour elle.
 
@@ -18,27 +18,27 @@ Le Continent Tian Niu, le lieu où il était apparu pour la première fois en so
 
 Ces paysages familiers éveillèrent ses souvenirs. Au centre du Continent Tian Niu, là où les chaînes de montagnes s'étendaient à l'infini, Wang Lin contempla silencieusement la terre en contrebas.
 
-Fixant l'horizon, Wang Lin dit lentement: « Taureau Céleste, autrefois, ton armure d'âme m'a aidé à surmonter plusieurs crises... Moi, Wang Lin, je distingue toujours clairement bienfaits et rancunes, et je n'oublie jamais ceux qui m'ont aidé. Aujourd'hui, je vais lever le sceau laissé par l'Ancêtre Céleste et te permettre de retrouver ta liberté! »
+Fixant l'horizon, Wang Lin dit lentement: « Tian Niu, autrefois, ton armure d'âme m'a aidé à surmonter plusieurs crises... Moi, Wang Lin, je distingue toujours clairement bienfaits et rancunes, et je n'oublie jamais ceux qui m'ont aidé. Aujourd'hui, je vais lever le sceau laissé par l'Ancêtre Céleste et te permettre de retrouver ta liberté! »
 
-« Mais ton corps est déjà devenu la terre et ne peut être restauré. Je vais libérer l'âme de ton sceau pour qu'elle forme une âme originelle, afin que tu puisses quitter le Continent Astral Immortel. En es-tu d'accord? »
+« Mais ton corps est déjà devenu la terre et ne peut être restauré. Je vais libérer l'âme de ton sceau pour qu'elle forme une âme originelle, afin que tu puisses quitter le Continent Xian Gang. En es-tu d'accord? »
 
 Sa voix n'était pas forte et ne se propagea pas dans toutes les directions, mais tandis que ses paroles résonnaient, la terre commença à trembler. Des grondements tonitruants retentirent alors qu'une aura terrestre jaillissait, et une ombre gigantesque apparut au-dessus de la chaîne de montagnes.
 
-L'ombre était celle d'un Taureau Céleste, et son corps était si vaste qu'il semblait pouvoir soutenir le monde entier. Wang Lin paraissait minuscule face à lui, mais l'immense Taureau Céleste afficha une expression de respect et s'agenouilla devant lui.
+L'ombre était celle d'un Tian Niu, et son corps était si vaste qu'il semblait pouvoir soutenir le monde entier. Wang Lin paraissait minuscule face à lui, mais l'immense Tian Niu afficha une expression de respect et s'agenouilla devant lui.
 
-« Merci... Je suis d'accord... » Un bourdonnement résonna, empreint d'excitation et d'aspiration. Il avait été scellé pendant trop longtemps, et cette libération remplissait le Taureau Céleste d'une gratitude infinie envers Wang Lin.
+« Merci... Je suis d'accord... » Un bourdonnement résonna, empreint d'excitation et d'aspiration. Il avait été scellé pendant trop longtemps, et cette libération remplissait le Tian Niu d'une gratitude infinie envers Wang Lin.
 
-« Nul besoin de me remercier. Tu m'as aidé autrefois, je ne fais que te rendre la pareille. » Wang Lin regarda le Taureau Céleste et pointa du doigt. La créature trembla, affichant une expression douloureuse. Une multitude de runes apparut autour de son corps, et les lignes de ces runes semblèrent s'enraciner dans sa chair. Elles se connectèrent toutes pour former un objet semblable à un cœur.
+« Nul besoin de me remercier. Tu m'as aidé autrefois, je ne fais que te rendre la pareille. » Wang Lin regarda le Tian Niu et pointa du doigt. La créature trembla, affichant une expression douloureuse. Une multitude de runes apparut autour de son corps, et les lignes de ces runes semblèrent s'enraciner dans sa chair. Elles se connectèrent toutes pour former un objet semblable à un cœur.
 
 Cet objet battait constamment.
 
-C'était le noyau du sceau du Taureau Céleste.
+C'était le noyau du sceau du Tian Niu.
 
-Contemplant ce cœur fait de fins fils, Wang Lin pointa l'objet du doigt. Toutes les runes autour du Taureau Céleste s'effondrèrent. Une fois la destruction accomplie, l'objet au centre du corps de la créature se mit à trembler sans cesse, puis se contracta soudainement, à une vitesse visible à l'œil nu.
+Contemplant ce cœur fait de fins fils, Wang Lin pointa l'objet du doigt. Toutes les runes autour du Tian Niu s'effondrèrent. Une fois la destruction accomplie, l'objet au centre du corps de la créature se mit à trembler sans cesse, puis se contracta soudainement, à une vitesse visible à l'œil nu.
 
-Un instant plus tard, réduit à la taille d'un ongle, il se transforma en un rayon de lumière fantomatique et s'échappa du corps du Taureau Céleste. Il atterrit dans la main de Wang Lin qui le broya aussitôt.
+Un instant plus tard, réduit à la taille d'un ongle, il se transforma en un rayon de lumière fantomatique et s'échappa du corps du Tian Niu. Il atterrit dans la main de Wang Lin qui le broya aussitôt.
 
-L'âme du Taureau Céleste poussa un rugissement vers les cieux, puis se transforma en ondulations qui parcoururent l'azur. Son âme s'élança vers le firmament et, lorsqu'elle atteignit les confins du monde, elle fit volte-face. Elle s'inclina une dernière fois devant Wang Lin avant de disparaître comme une étoile filante.
+L'âme du Tian Niu poussa un rugissement vers les cieux, puis se transforma en ondulations qui parcoururent l'azur. Son âme s'élança vers le firmament et, lorsqu'elle atteignit les confins du monde, elle fit volte-face. Elle s'inclina une dernière fois devant Wang Lin avant de disparaître comme une étoile filante.
 
 Après le départ de son âme, le Continent Tian Niu sembla différent, bien que ce changement fût difficile à déceler. Wang Lin fixa l'endroit où le Taureau avait disparu, puis se dirigea vers la Secte Qi Dao.
 
@@ -76,11 +76,11 @@ Qing Shui regarda Wang Lin et éclata de rire. Son rire devint de plus en plus s
 
 Ils s'assirent devant la porte et Wang Lin sortit du vin pour partager un verre avec Qing Shui.
 
-Ils oublièrent le passage du temps. Ils buvaient tout en évoquant leurs expériences respectives. Ils souriaient, mais versaient aussi des larmes. Ce duo de frères disciples du monde des grottes se retrouvait enfin sur le Continent Astral Immortel.
+Ils oublièrent le passage du temps. Ils buvaient tout en évoquant leurs expériences respectives. Ils souriaient, mais versaient aussi des larmes. Ce duo de frères disciples du monde des grottes se retrouvait enfin sur le Continent Xian Gang.
 
 Lorsque Wang Lin aborda la question de Hongdie, Qing Shui fut saisi de stupeur. Il but une grande gorgée de vin avec amertume.
 
-« Les affaires du passé, si elles doivent être oubliées, alors qu'elles le soient. Depuis que nous sommes arrivés sur le Continent Astral Immortel, chacun est libre de ses choix. Pourtant, mon choix est de ne pas oublier! »
+« Les affaires du passé, si elles doivent être oubliées, alors qu'elles le soient. Depuis que nous sommes arrivés sur le Continent Xian Gang, chacun est libre de ses choix. Pourtant, mon choix est de ne pas oublier! »
 
 « Peut-être existe-t-il un moyen de ressusciter Han Yan ici... il doit bien y avoir un moyen! » marmonna Qing Shui.
 

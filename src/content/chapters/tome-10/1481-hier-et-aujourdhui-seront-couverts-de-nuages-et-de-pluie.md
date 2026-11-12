@@ -74,7 +74,7 @@ Au moment où l'épée prit forme, Wang Lin pointa deux doigts de sa main droite
 
 Cette simple épée de pluie contenait désormais deux essences complètes ainsi que l'aura de combat ancestrale de Wang Lin. Bien que cette aura ne se soit pas propagée trop loin, elle fut suffisante pour ébranler tout le système stellaire de Luotian!
 
-« Avec une telle épée ici, peu de gens oseront offenser cette planète! » La voix de Wang Lin était calme, mais empreinte d'une autorité incontestable. Même des cultivateurs du Vide Spirituel hésiteraient face à une telle aura. Il ne valait pas la peine de défier quelqu'un capable de maîtriser presque deux essences pour une simple planète de culture... De plus, la pression de l'Ordre Antique était assez terrifiante pour n'importe qui!
+« Avec une telle épée ici, peu de gens oseront offenser cette planète! » La voix de Wang Lin était calme, mais empreinte d'une autorité incontestable. Même des cultivateurs du Vide Spirituel hésiteraient face à une telle aura. Il ne valait pas la peine de défier quelqu'un capable de maîtriser presque deux essences pour une simple planète de culture... De plus, la pression de Dao Gu était assez terrifiante pour n'importe qui!
 
 « Cette épée, une fois que tu l'auras pleinement comprise, sera le cadeau que ton Maître te fera! »
 

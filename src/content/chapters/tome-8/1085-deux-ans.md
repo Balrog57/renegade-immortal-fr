@@ -9,7 +9,7 @@ slug: deux-ans
 
 L'ensemble du système stellaire de l'Alliance retrouva son calme suite aux événements survenus dans la Grotte Xian Di. Bien que la grotte fût exiguë, elle était au cœur d'enjeux colossaux.
 
-L'Alliance Xiu Zhen avait subi de lourdes pertes lors de cette bataille. Maître du Vide était mort, et l'ancien Seigneur Céleste, devenu fou, s'était volatilisé. Ils avaient également perdu un grand nombre de cultivateurs célestes.
+L'Alliance Xiu Zhen avait subi de lourdes pertes lors de cette bataille. Xu Kongzi était mort, et l'ancien Seigneur Céleste, devenu fou, s'était volatilisé. Ils avaient également perdu un grand nombre de cultivateurs célestes.
 
 Peu d'entre eux regagnèrent le quartier général de l'Alliance.
 
@@ -17,7 +17,7 @@ Ces nouvelles se propagèrent comme des flocons de neige. En deux mois, presque 
 
 La plupart ne pouvaient croire que la puissante Alliance Xiu Zhen puisse subir un tel revers. Cependant, au fil du temps, les rumeurs s'intensifièrent. Après trois mois supplémentaires, l'évidence finit par s'imposer.
 
-Ce qui stupéfia davantage les cultivateurs fut le retour des Quatre Sectes Divines! La rumeur prétendait que l'Empereur Divin de l'Oiseau Vermillon était apparu et avait utilisé les Quatre Trésors Sacrés pour blesser gravement l'Ancien de l'Alliance, Tian Yunzi, et sceller l'Empereur Céleste Qing Lin, qui venait de s'éveiller.
+Ce qui stupéfia davantage les cultivateurs fut le retour des Quatre Sectes Divines! La rumeur prétendait que l'Empereur Divin de Suzaku était apparu et avait utilisé les Quatre Trésors Sacrés pour blesser gravement l'Ancien de l'Alliance, Tian Yunzi, et sceller l'Empereur Céleste Qing Lin, qui venait de s'éveiller.
 
 C'était une nouvelle qui ébranlait le ciel. Beaucoup furent frappés par l'incrédulité, habités par une profonde et sourde terreur.
 
@@ -59,7 +59,7 @@ Cette ouverture provoqua une tempête à travers tout le système stellaire de l
 
 Quant aux anciens cultivateurs de l'Alliance qui avaient fondé leurs propres sectes, nul besoin d'en parler: alors que tous observaient le quartier général, celui-ci ne s'en prit pas aux nouvelles sectes et les laissa subsister. En revanche, il publia un ordre de meurtre!
 
-« Tuez Wang Lin! Cet homme fut autrefois membre de Luotian sous l'alias "Xu Mu", nom de daoïste "Maître Démon". Le Céleste du Tonnerre de Luotian! Il est désormais membre de la Secte Divine de l'Oiseau Vermillon des Quatre Sectes Divines. Quiconque s'emparera de son âme originelle obtiendra l'héritage du Royaume Céleste que l'Alliance Xiu Zhen a acquis! »
+« Tuez Wang Lin! Cet homme fut autrefois membre de Luotian sous l'alias "Xu Mu", nom de daoïste "Maître Démon". Le Céleste du Tonnerre de Luotian! Il est désormais membre de la Secte Divine de Suzaku des Quatre Sectes Divines. Quiconque s'emparera de son âme originelle obtiendra l'héritage du Royaume Céleste que l'Alliance Xiu Zhen a acquis! »
 
 En complément de cet ordre, l'Alliance Xiu Zhen émit un décret scellé:
 
@@ -83,4 +83,4 @@ Il était assis là depuis deux ans, sans jamais quitter cet endroit. Il y culti
 
 Le jeune homme tressaillait également, et ses cheveux blancs s'agitaient sans aucun vent. La température intense à l'intérieur de son corps ne cessait de croître.
 
-« Dans la Secte Divine de l'Oiseau Vermillon, chaque génération d'Empereur Divin doit maîtriser les Neuf Transformations Mystérieuses de l'Oiseau Vermillon. Ce sort, hérité des temps primordiaux, est l'un des plus puissants qui existent encore aujourd'hui. »
+« Dans la Secte Divine de Suzaku, chaque génération d'Empereur Divin doit maîtriser les Neuf Transformations Mystérieuses de Suzaku. Ce sort, hérité des temps primordiaux, est l'un des plus puissants qui existent encore aujourd'hui. »

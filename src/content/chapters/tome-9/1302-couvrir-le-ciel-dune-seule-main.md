@@ -14,7 +14,7 @@ Des continents sauvages s'effondraient les uns après les autres. Même la forma
 
 Les innombrables cultivateurs de la Secte Démon tremblaient devant ce tonnerre et n'osaient nullement lui résister. C'était comme s'ils n'étaient que des fourmis face à la puissance céleste, incapables d'encaisser le moindre coup!
 
-« La rétribution divine est ainsi... La rétribution divine est ainsi... » À cet instant, la rétribution divine se grava dans le cœur des cultivateurs, y laissant une empreinte indélébile!
+« La Tribulation Céleste est ainsi... La Tribulation Céleste est ainsi... » À cet instant, la Tribulation Céleste se grava dans le cœur des cultivateurs, y laissant une empreinte indélébile!
 
 S'ils ne parvenaient pas à briser cette empreinte, leur niveau de culture stagnerait pour le reste de leurs jours. En revanche, s'ils réussissaient à la rompre, leur niveau de culture progresserait considérablement!
 
@@ -32,7 +32,7 @@ En un instant, les innombrables éclairs violets qui perçaient les nuages envel
 
 Des grondements tonnerre retentirent!
 
-Cet éclair fonça vers la fissure spatiale. Il portait en lui une intention meurtrière visant à tout détruire lors de sa descente! Cet éclair attira l'attention de tous les cultivateurs. Leurs esprits devinrent vides, et la seule chose qui occupait leurs pensées était cette indescriptible rétribution divine!
+Cet éclair fonça vers la fissure spatiale. Il portait en lui une intention meurtrière visant à tout détruire lors de sa descente! Cet éclair attira l'attention de tous les cultivateurs. Leurs esprits devinrent vides, et la seule chose qui occupait leurs pensées était cette indescriptible Tribulation Céleste!
 
 Cet éclair semblait ne pouvoir être bloqué ni résisté par aucune créature vivante. Juste au moment où il s'abattait sur la fissure spatiale, une silhouette rouge apparut!
 
@@ -44,7 +44,7 @@ Cette silhouette rouge était Wang Lin!
 
 Au moment où le tonnerre s'approchait, la main droite de Wang Lin protégea Li Qianmei tandis que sa main gauche pressa contre l'éclair!
 
-Un homme, d'une seule main et doté de deux yeux indifférents, semblait couvrir le ciel. Au moment où il sortit de la fissure, il parut défier les cieux et la rétribution divine elle-même!
+Un homme, d'une seule main et doté de deux yeux indifférents, semblait couvrir le ciel. Au moment où il sortit de la fissure, il parut défier les cieux et la Tribulation Céleste elle-même!
 
 Des grondements tonnerre retentirent!!
 
@@ -52,11 +52,11 @@ Le tonnerre et la main de Wang Lin entrèrent en collision, créant un son encor
 
 Son corps trembla et sa main gauche eut une légère secousse. Cependant, son expression resta imperturbable, et il serra sans pitié!
 
-« La rétribution divine est inutile contre moi! » Alors qu'il exerçait sa pression, un grondement tonitruant résonna et le tonnerre rugit comme un fou. Une volonté inattendue émana de la main gauche de Wang Lin. Il allait lutter pour prendre le contrôle du tonnerre des cieux!
+« La Tribulation Céleste est inutile contre moi! » Alors qu'il exerçait sa pression, un grondement tonitruant résonna et le tonnerre rugit comme un fou. Une volonté inattendue émana de la main gauche de Wang Lin. Il allait lutter pour prendre le contrôle du tonnerre des cieux!
 
 Tandis que les grondements tonitruants résonnaient, les deux volontés à l'intérieur du tonnerre s'affrontèrent. Le tonnerre explosa soudainement et l'innombrable éclair violet se propagea en prenant Wang Lin pour centre. En un instant, le monde entier sembla se transformer en un domaine de tonnerre!
 
-Les grondements continuèrent. Bien que le tonnerre ait éclaté, Wang Lin n'était plus celui qu'il était autrefois. Face à la rétribution divine, il ne comptait pas seulement l'endurer, mais la briser totalement!
+Les grondements continuèrent. Bien que le tonnerre ait éclaté, Wang Lin n'était plus celui qu'il était autrefois. Face à la Tribulation Céleste, il ne comptait pas seulement l'endurer, mais la briser totalement!
 
 Sa main droite saisit Li Qianmei et il la fit basculer pour qu'elle soit sur son dos. Son énergie originelle forma des cordes pour les attacher ensemble. Une fois cela fait, les mains de Wang Lin formèrent des sceaux et il fit un geste ample. Le domaine de tonnerre, prenant Wang Lin pour centre, rugit une fois de plus!
 
@@ -66,7 +66,7 @@ L'éclair était infini et tourbillonnait autour de Wang Lin. Les gens de la Sec
 
 Les yeux du Grand Ancien de la Secte Démon brillèrent intensément et il prit une profonde inspiration!
 
-Wang Lin pointa les nuages dans le ciel et laissa échapper un rugissement qui fit trembler les cieux: « Brise la rétribution divine pour moi! »
+Wang Lin pointa les nuages dans le ciel et laissa échapper un rugissement qui fit trembler les cieux: « Brise la Tribulation Céleste pour moi! »
 
 Alors que les grondements tonitruants résonnaient, l'éclair devint fou. Il se transforma ensuite en un éclair de 10 000 pieds, imprégné de la volonté de Wang Lin, et fonça vers les nuages.
 
@@ -86,21 +86,21 @@ Ce flash intense fit changer radicalement l'expression de Shui Daozi, qui cracha
 
 Il fixa le vide, hébété, et lâcha un rugissement qui ébranla les cieux!
 
-La Secte Brise-Ciel de rang 9 avait également entendu ce tonnerre et vu les nuages tourbillonnants. Ils déployèrent immédiatement la formation de protection de la secte!
+La Secte Po Tian de rang 9 avait également entendu ce tonnerre et vu les nuages tourbillonnants. Ils déployèrent immédiatement la formation de protection de la secte!
 
-Le Maître de la Secte Brise-Ciel, assis dans sa chambre close, fixait silencieusement le ciel étoilé. Après un long moment, il poussa un soupir et agita ses manches. Il brisa la formation de protection de la secte et chargea à travers les nuages de rétribution divine vers la fissure spatiale de la Secte Démon!
+Le Maître de la Secte Po Tian, assis dans sa chambre close, fixait silencieusement le ciel étoilé. Après un long moment, il poussa un soupir et agita ses manches. Il brisa la formation de protection de la secte et chargea à travers les nuages de Tribulation Céleste vers la fissure spatiale de la Secte Démon!
 
-Outre la Secte Démon, la Secte Divine et la Secte Brise-Ciel, il y avait encore la Secte Fantôme! À cet instant, au plus profond des nuages, se trouvait une planète de culture dont la formation de protection était ouverte. Cependant, une ombre immense planait sur la formation. Cette ombre, haute d'environ 100 000 pieds, possédait une seule corne, telle un dieu démon!
+Outre la Secte Démon, la Secte Divine et la Secte Po Tian, il y avait encore la Secte Fantôme! À cet instant, au plus profond des nuages, se trouvait une planète de culture dont la formation de protection était ouverte. Cependant, une ombre immense planait sur la formation. Cette ombre, haute d'environ 100 000 pieds, possédait une seule corne, telle un dieu démon!
 
 Elle fixait avidement les nuages en dégageant une aura diabolique. Neuf étoiles démoniaques tournaient dans son œil gauche et, à chaque rotation, une force mystérieuse pénétrait son corps.
 
 Les grondements tonitruants se propagèrent au-delà de la région de rang 9 pour atteindre la région de rang 8. Cela fit changer radicalement l'expression des cultivateurs de rang 8. Leurs esprits tremblèrent et ils furent plongés dans une stupeur totale.
 
-À l'extérieur de la fissure spatiale près de la Secte Démon, Wang Lin portait Li Qianmei et leva les yeux vers les nuages violets. Cette rétribution divine était la plus puissante à ce jour! Et elle était extrêmement étrange. Il ne put s'empêcher de repenser au moment où il se trouvait dans le Système Stellaire de l'Alliance, lorsqu'il avait découvert ce monde étrange peuplé de statues d'anciens dieux, de diables et de démons, ainsi que ce jeune homme mystérieux assis sur une statue!
+À l'extérieur de la fissure spatiale près de la Secte Démon, Wang Lin portait Li Qianmei et leva les yeux vers les nuages violets. Cette Tribulation Céleste était la plus puissante à ce jour! Et elle était extrêmement étrange. Il ne put s'empêcher de repenser au moment où il se trouvait dans le Système Stellaire de l'Alliance, lorsqu'il avait découvert ce monde étrange peuplé de statues d'anciens dieux, de diables et de démons, ainsi que ce jeune homme mystérieux assis sur une statue!
 
 Son regard perça les nuages et il vit clairement le pavillon en jade blanc qui émergeait en grande partie de la brèche menant à un autre monde. Il vit également la statue d'une personne assise sur le pavillon et les deux épées de pierre devant elle!
 
-« Cette rétribution divine n'a pas été totalement activée, elle ne suffit donc pas à briser la Formation du Royaume Scellé! »
+« Cette Tribulation Céleste n'a pas été totalement activée, elle ne suffit donc pas à briser la Formation du Royaume Scellé! »
 
 À cet instant précis, l'une des deux épées de pierre devant la statue trembla et libéra un gaz vert. Ce gaz ressemblait à un nuage et se transforma instantanément en une épée verte. Elle dégageait une énergie d'épée indescriptible qui déchirait les cieux alors qu'elle perçait les nuages pour foncer sur Wang Lin!
 

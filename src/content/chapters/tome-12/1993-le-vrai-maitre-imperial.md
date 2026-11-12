@@ -94,7 +94,7 @@ Pourtant, alors qu'il était sur le point de réussir l'absorption du pouvoir de
 
 « Je... suis l'Enseignant Impérial... » L'Exalté Empyréen Hai Zi s'exprima avec une expression complexe. Ses souvenirs s'étaient éveillés, fusionnant avec ceux de sa mère et l'héritage de toutes les générations précédentes d'Enseignants Impériaux.
 
-« La personne qui est morte était le dernier membre de mon clan sur le Continent Astral Immortel, en dehors de moi... » soupira Hai Zi.
+« La personne qui est morte était le dernier membre de mon clan sur le Continent Xian Gang, en dehors de moi... » soupira Hai Zi.
 
 « Qu'est-ce que c'est que ce délire? C'est impossible! Si vous êtes vraiment l'Enseignant Impérial, comment avez-vous pu quitter la cité ancestrale?! Jiu Di, répondez-moi! » L'Empereur Céleste prit une profonde inspiration. Bien qu'il fût sur le point de sombrer dans la démence, il parvint à se calmer par la force de sa volonté!
 
@@ -102,7 +102,7 @@ Pourtant, alors qu'il était sur le point de réussir l'absorption du pouvoir de
 
 « Bien qu'il soit mort, il perfectionna le plan et le transmit. Il trouva également la clé de ce dessein: un individu nommé Wang Lin! Un cultivateur d'un monde caverneux... Seul son corps pouvait être parfaitement possédé par un membre de mon clan pour permettre l'exécution parfaite de ce plan... »
 
-« Quant à savoir pourquoi je peux quitter la cité ancestrale... C'est parce que mon âme appartient au Clan Dao Wang, mais mon corps appartient au Continent Astral Immortel... » dit doucement Hai Zi.
+« Quant à savoir pourquoi je peux quitter la cité ancestrale... C'est parce que mon âme appartient au Clan Dao Wang, mais mon corps appartient au Continent Xian Gang... » dit doucement Hai Zi.
 
 Jiu Di réfléchit un instant puis déclara lentement: « Empereur Céleste, elle est ma fille! »
 

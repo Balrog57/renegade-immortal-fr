@@ -102,9 +102,9 @@ Par conséquent, Chi Hu n'était pas pressé.
 
 Ces deux personnes avaient été choisies après une sélection minutieuse. Non seulement la première était très célèbre, mais elle entretenait également des liens avec son Clan Ju Mo.
 
-Quant à la seconde personne, Ceng Niu, Chi Hu ne parvenait pas à lire en lui. Bien qu'il ne fût qu'au début du stade de la Formation de l'Âme, Chi Hu ressentait tout de même un sentiment de danger émanant de lui.
+Quant à la seconde personne, Zeng Niu, Chi Hu ne parvenait pas à lire en lui. Bien qu'il ne fût qu'au début du stade de la Formation de l'Âme, Chi Hu ressentait tout de même un sentiment de danger émanant de lui.
 
-Après une longue réflexion, il avait décidé d'inviter Ceng Niu. Après tout, plus ils seraient forts, plus leurs chances de succès augmenteraient. Quant à savoir si les deux autres tenteraient de le tuer pour s'emparer des trésors, Chi Hu était certain que sa puissance lui permettrait de s'en sortir sain et sauf.
+Après une longue réflexion, il avait décidé d'inviter Zeng Niu. Après tout, plus ils seraient forts, plus leurs chances de succès augmenteraient. Quant à savoir si les deux autres tenteraient de le tuer pour s'emparer des trésors, Chi Hu était certain que sa puissance lui permettrait de s'en sortir sain et sauf.
 
 Le temps passa lentement. Ce jour-là, la formation devant lui s'illumina soudainement, baignant la zone d'une clarté croissante.
 
@@ -130,7 +130,7 @@ Naturellement, les deux clans restaient en contact; on pouvait dire que le Clan 
 
 « Puisque Xi Zu lui-même l'a constaté, je vous crois et je me joindrai à vous pour ce voyage. Je ne convoite aucun trésor autre que ce cercueil de jade céleste. Il doit être à moi! » La voix de Hongdie était empreinte d'une détermination absolue.
 
-Chi Hu fronça les sourcils, pensant intérieurement que cette Hongdie était bien trop autoritaire. Bien qu'il fût lui aussi intéressé par le cercueil de jade, ces trois épées célestes étaient son véritable objectif. Si l'on n'était que deux, cela aurait pu convenir, mais il ne resterait rien pour Ceng Niu si le butin était partagé entre eux deux.
+Chi Hu fronça les sourcils, pensant intérieurement que cette Hongdie était bien trop autoritaire. Bien qu'il fût lui aussi intéressé par le cercueil de jade, ces trois épées célestes étaient son véritable objectif. Si l'on n'était que deux, cela aurait pu convenir, mais il ne resterait rien pour Zeng Niu si le butin était partagé entre eux deux.
 
 Chi Hu réfléchit un instant avant de dire lentement: « Estimée cultivatrice Hongdie, cette affaire ne se décide pas aussi aisément. Après tout, en plus de nous deux, une troisième personne va se joindre à notre expédition. »
 

@@ -82,7 +82,7 @@ L'âme du scorpion sembla perdre patience après sept jours. Une grande partie d
 
 Elle sembla se détendre et commença la possession. Son âme, à l'intérieur de Wang Lin, se propagea comme une folie vers l'esprit de ce dernier. Lorsqu'elle pénétra dans l'esprit de Wang Lin, elle n'y trouva aucune trace d'âme originelle. Elle fut immédiatement transportée par l'excitation.
 
-Elle avait attendu si longtemps pour cette occasion parfaite. Elle pouvait enfin commencer la possession! Il faut dire que même si le corps d'un cultivateur du Continent Astral Immortel ne possédait pas d'âme originelle, le scorpion ne pourrait pas le posséder car son propriétaire était né ici. Il ne pouvait posséder que le corps d'un cultivateur qui, comme lui, n'était pas originaire de ce monde.
+Elle avait attendu si longtemps pour cette occasion parfaite. Elle pouvait enfin commencer la possession! Il faut dire que même si le corps d'un cultivateur du Continent Xian Gang ne possédait pas d'âme originelle, le scorpion ne pourrait pas le posséder car son propriétaire était né ici. Il ne pouvait posséder que le corps d'un cultivateur qui, comme lui, n'était pas originaire de ce monde.
 
 À cet instant, elle cessa de se retenir et une grande partie de son âme pénétra Wang Lin. La silhouette d'un scorpion commença lentement à se former dans l'esprit de Wang Lin. Une fois totalement formée, la possession serait achevée.
 

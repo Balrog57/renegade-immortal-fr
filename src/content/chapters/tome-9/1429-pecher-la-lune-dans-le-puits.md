@@ -102,7 +102,7 @@ Pêcher la lune dans le puits: ce qu'il pêchait, c'était l'âme!
 
 Sous l'effet de son sort, tous ceux qui étaient reflétés perdaient leurs capacités physiques et leur faculté de parler! Pourtant, les paroles de Wang Lin parvinrent distinctement à ses oreilles.
 
-Aussitôt après avoir parlé, Wang Lin fit un pas en avant et agita la main droite. Une plume d'Oiseau Vermillon apparut dans sa paume!
+Aussitôt après avoir parlé, Wang Lin fit un pas en avant et agita la main droite. Une plume de Suzaku apparut dans sa paume!
 
 D'un geste, la plume dégagea un feu monstrueux qui enveloppa instantanément le ciel. En un regard, la voûte céleste devint une mer de flammes!
 
@@ -110,7 +110,7 @@ Des grondements tonitruants résonnèrent avec fureur, et l'incendie céleste se
 
 L'homme d'âge moyen serra violemment le poing et le Wang Lin qu'il tenait poussa un cri déchirant. Le Wang Lin entre ses mains s'effondra et s'éteignit!
 
-Wang Lin frissonna, le visage pâle, mais il ne flancha pas. Il leva la main droite vers le ciel et commença à hurler le chant que la première génération d'Oiseau Vermillon lui avait transmis: « Je suis la sixième génération de l'Oiseau Vermillon. J'utilise cette plume pour invoquer l'esprit originel de mon clan afin qu'il descende du Royaume Antique! »
+Wang Lin frissonna, le visage pâle, mais il ne flancha pas. Il leva la main droite vers le ciel et commença à hurler le chant que la première génération de Suzaku lui avait transmis: « Je suis la sixième génération de Suzaku. J'utilise cette plume pour invoquer l'esprit originel de mon clan afin qu'il descende du Royaume Antique! »
 
 Le monde trembla et, au moment où les paroles de Wang Lin résonnèrent, l'homme d'âge moyen se redressa brusquement. Ses yeux s'illuminèrent et une voix indifférente retentit:
 

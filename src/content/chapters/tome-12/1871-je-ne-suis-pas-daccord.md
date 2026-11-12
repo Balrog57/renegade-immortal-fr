@@ -6,15 +6,15 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1871 - I Don’t Agree!"
 slug: je-ne-suis-pas-daccord
 ---
-Alors qu'ils discutaient de cette question, Yan Luan réalisa qu'il s'agissait d'une chance inouïe. Invoquer l'âme du Taureau Céleste pour la revêtir comme une armure et obtenir un gain massif de niveau de culture pendant une courte période permettrait d'augmenter considérablement sa puissance et d'acquérir des bénéfices inimaginables.
+Alors qu'ils discutaient de cette question, Yan Luan réalisa qu'il s'agissait d'une chance inouïe. Invoquer l'âme du Tian Niu pour la revêtir comme une armure et obtenir un gain massif de niveau de culture pendant une courte période permettrait d'augmenter considérablement sa puissance et d'acquérir des bénéfices inimaginables.
 
-Cependant, tout le monde ne pouvait y parvenir. Il fallait impérativement établir une connexion avec le Taureau Céleste pour réussir. Plus ce lien était profond, plus l'augmentation du niveau de culture serait terrifiante.
+Cependant, tout le monde ne pouvait y parvenir. Il fallait impérativement établir une connexion avec le Tian Niu pour réussir. Plus ce lien était profond, plus l'augmentation du niveau de culture serait terrifiante.
 
 Bien qu'il s'agisse d'un gain temporaire, il deviendrait bien plus facile d'atteindre ce niveau de culture par la suite.
 
-Une telle opportunité était extrêmement rare. Elle ne pouvait se produire que lorsque le continent entier du Taureau Céleste était menacé et que la Formation des Sept Méridiens du Taureau Céleste était activée.
+Une telle opportunité était extrêmement rare. Elle ne pouvait se produire que lorsque le continent entier du Tian Niu était menacé et que la Formation des Sept Méridiens du Tian Niu était activée.
 
-Plus important encore, l'âme du Taureau Céleste ne pouvait être invoquée qu'un nombre limité de fois. Si elle était invoquée trop souvent, son âme se dissiperait, ce qui affecterait l'ensemble du continent du Taureau Céleste!
+Plus important encore, l'âme du Tian Niu ne pouvait être invoquée qu'un nombre limité de fois. Si elle était invoquée trop souvent, son âme se dissiperait, ce qui affecterait l'ensemble du Continent Tian Niu!
 
 Cela aurait des répercussions sur les mortels et sur les fondations mêmes du continent!
 
@@ -30,9 +30,9 @@ Yan Luan désirait naturellement une telle opportunité. Xu Dongde la convoit é
 
 Les grondements sourds continuaient de résonner au-dessus d'eux. C'était comme la faux de la mort prête à faucher leurs vies à tout instant.
 
-« Daoïstes, veuillez vous asseoir et libérer toute votre culture. Concentrez vos pensées sur le Taureau Céleste et aidez-moi à invoquer l'âme du Taureau Céleste! » Le cœur de Lu Wenran bouillonnait d'excitation. Il attendait cette opportunité depuis si longtemps. Il savait que bien que l'armure d'âme soit dangereuse, le risque n'était pas insurmontable. Surtout, s'il laissait passer sa chance, il devrait attendre des éternités avant la prochaine occasion.
+« Daoïstes, veuillez vous asseoir et libérer toute votre culture. Concentrez vos pensées sur le Tian Niu et aidez-moi à invoquer l'âme du Tian Niu! » Le cœur de Lu Wenran bouillonnait d'excitation. Il attendait cette opportunité depuis si longtemps. Il savait que bien que l'armure d'âme soit dangereuse, le risque n'était pas insurmontable. Surtout, s'il laissait passer sa chance, il devrait attendre des éternités avant la prochaine occasion.
 
-Cette fois, sept personnes au total seraient éligibles pour obtenir l'armure d'âme. Ces sept individus deviendraient légendaires sur le continent du Taureau Céleste!
+Cette fois, sept personnes au total seraient éligibles pour obtenir l'armure d'âme. Ces sept individus deviendraient légendaires sur le Continent Tian Niu!
 
 Après ses paroles, les cultivateurs en contrebas réfléchirent un instant puis s'assirent. Ils n'avaient pas d'autre choix; c'était l'unique voie.
 
@@ -40,15 +40,15 @@ Yan Luan et ses compagnons, derrière Lu Wenran, étaient réticents, mais il é
 
 Il regarda le vieil homme nommé Zhou et hocha la tête.
 
-Le vieil homme nommé Zhou n'osa refuser. Ses mains formèrent rapidement des sceaux et il commença à murmurer une incantation que lui seul pouvait entendre. Sa culture était limitée, et s'il était chargé de cet endroit sans participer pleinement aux combats, c'était précisément parce que son corps facilitait la communication avec l'âme du Taureau Céleste.
+Le vieil homme nommé Zhou n'osa refuser. Ses mains formèrent rapidement des sceaux et il commença à murmurer une incantation que lui seul pouvait entendre. Sa culture était limitée, et s'il était chargé de cet endroit sans participer pleinement aux combats, c'était précisément parce que son corps facilitait la communication avec l'âme du Tian Niu.
 
-Il était semblable aux Messagers du Démon Vert: son identité était celle d'un serviteur du Taureau Céleste!
+Il était semblable aux Messagers du Démon Vert: son identité était celle d'un serviteur du Tian Niu!
 
 Wang Lin était assis à l'intérieur de la grotte. Ses yeux s'illuminèrent, mais il ne fit rien de précipité. Il continua d'attendre!
 
 À l'extérieur de la grotte, le vieil homme nommé Zhou se mordit la langue et cracha du sang. De sa main droite, il saisit le sang pour former un sceau sanguin.
 
-« Ô âme sainte du Taureau Céleste, par mon sang, je guide ton âme pour qu'elle revienne! » L'expression du vieil homme était solennelle lorsqu'il projeta le sceau de sang. Celui-ci libéra une lumière rouge éclatante qui enveloppa tout le palais souterrain.
+« Ô âme sainte du Tian Niu, par mon sang, je guide ton âme pour qu'elle revienne! » L'expression du vieil homme était solennelle lorsqu'il projeta le sceau de sang. Celui-ci libéra une lumière rouge éclatante qui enveloppa tout le palais souterrain.
 
 « Daoïstes, transférez votre culture dans cette lumière sanguine! » cria soudainement le vieil homme nommé Zhou.
 
@@ -66,15 +66,15 @@ Dès que ce son retentit, le palais souterrain trembla. En l'entendant, les visa
 
 Même les expressions de Yan Luan et de ses compagnons changèrent à l'audition de ce cri.
 
-C'était le rugissement du Taureau Céleste!
+C'était le rugissement du Tian Niu!
 
-Lu Wenran ne put plus contenir son excitation. Fixant l'espace étrange au cœur du vortex, il se mit à rire en écoutant le rugissement du Taureau Céleste.
+Lu Wenran ne put plus contenir son excitation. Fixant l'espace étrange au cœur du vortex, il se mit à rire en écoutant le rugissement du Tian Niu.
 
 Son exaltation intérieure avait atteint un paroxysme. Ses yeux brillaient de désir et d'avidité. Il comprenait qu'il ne tarderait pas à obtenir cette explosion de puissance qui lui serait d'un secours immense à l'avenir!
 
-Dans la grotte, Wang Lin fixait le vortex dans le ciel. Il écoutait le rugissement du Taureau Céleste. Ce cri ne lui était pas étranger!
+Dans la grotte, Wang Lin fixait le vortex dans le ciel. Il écoutait le rugissement du Tian Niu. Ce cri ne lui était pas étranger!
 
-La première étape pour invoquer l'âme du Taureau Céleste consistait à tracer l'empreinte sanguine. La seconde consistait à utiliser la culture de plus de mille cultivateurs pour ouvrir un vortex vers le Taureau Céleste scellé!
+La première étape pour invoquer l'âme du Tian Niu consistait à tracer l'empreinte sanguine. La seconde consistait à utiliser la culture de plus de mille cultivateurs pour ouvrir un vortex vers le Tian Niu scellé!
 
 « Daoïstes, prélevez 495 grammes de sang, ni plus ni moins, et concentrez-les sur votre index droit! » Le vieil homme nommé Zhou agita sa main droite et une plaie apparut au bout de son doigt. La quantité exacte de sang s'en échappa.
 
@@ -82,15 +82,15 @@ Simultanément, les mille cultivateurs levèrent la main droite. À ce stade, il
 
 Cette masse de sang se condensa pour former une chaîne qui s'élança vers le vortex. Après avoir pénétré dans les profondeurs du tourbillon, elle tira violemment.
 
-Le rugissement du Taureau Céleste résonna de nouveau. La chaîne de sang semblait tenter d'extirper l'âme du Taureau Céleste.
+Le rugissement du Tian Niu résonna de nouveau. La chaîne de sang semblait tenter d'extirper l'âme du Tian Niu.
 
 Le cri devint encore plus puissant et Lu Wenran fut transporté par l'excitation. Il se lécha les lèvres, le regard empreint d'une convoitise monstrueuse.
 
-« Ceci est à moi; cela m'appartient, Lu Wenran! Avec l'armure d'âme du Taureau Céleste, je pourrai me frayer un chemin par le massacre. Bien que cette puissance ne soit que temporaire, je ne rendrai pas cette armure si facilement! » Lu Wenran fixait le vortex avec ferveur. Il avait attendu ce jour pendant une éternité!
+« Ceci est à moi; cela m'appartient, Lu Wenran! Avec l'armure d'âme du Tian Niu, je pourrai me frayer un chemin par le massacre. Bien que cette puissance ne soit que temporaire, je ne rendrai pas cette armure si facilement! » Lu Wenran fixait le vortex avec ferveur. Il avait attendu ce jour pendant une éternité!
 
-S'il avait ciblé Wang Lin, c'était à cause de l'attitude de l'Ancêtre Taureau Vert envers ce dernier, ce qui l'avait fait se sentir menacé. Le fait qu'ils aient tous deux été envoyés ici avait poussé Lu Wenran à agir ainsi.
+S'il avait ciblé Wang Lin, c'était à cause de l'attitude de l'Ancêtre Qing Niu envers ce dernier, ce qui l'avait fait se sentir menacé. Le fait qu'ils aient tous deux été envoyés ici avait poussé Lu Wenran à agir ainsi.
 
-La chaîne rouge continua de tirer, et le rugissement du Taureau Céleste devint plus limpide encore. Une silhouette de taureau commençait à être extraite.
+La chaîne rouge continua de tirer, et le rugissement du Tian Niu devint plus limpide encore. Une silhouette de taureau commençait à être extraite.
 
 Cependant, la chaîne montra bientôt des signes de rupture. Voyant cela, une lueur glaciale passa dans les yeux de Lu Wenran.
 
@@ -98,7 +98,7 @@ Cependant, la chaîne montra bientôt des signes de rupture. Voyant cela, une lu
 
 Le vieil homme nommé Zhou sourit amèrement intérieurement. Il serra les dents et joignit les mains en signe de respect vers Yan Luan et son groupe.
 
-« Le Taureau Céleste ne sort pas... Je demande aux chers aînés de libérer leurs âmes originelles pour m'aider à faire venir l'âme! » Après avoir parlé, le vieil homme toucha son front et son âme originelle s'en échappa. Elle vola vers le vortex pour saisir la chaîne.
+« Le Tian Niu ne sort pas... Je demande aux chers aînés de libérer leurs âmes originelles pour m'aider à faire venir l'âme! » Après avoir parlé, le vieil homme toucha son front et son âme originelle s'en échappa. Elle vola vers le vortex pour saisir la chaîne.
 
 Sous le regard rouge et menaçant de Lu Wenran, les trois cultivateurs au stade initial de la Tribulation du Vide issus des sectes proches de la Prairie Ji Tian s'assirent et fermèrent les yeux. Ils se sentaient impuissants alors que leurs âmes originelles s'envolaient pour prêter main-forte au vieil homme Zhou.
 
@@ -106,9 +106,9 @@ Sous le regard rouge et menaçant de Lu Wenran, les trois cultivateurs au stade 
 
 Yan Luan soupira et n'hésita plus. Les deux s'assirent et leurs âmes originelles jaillirent pour saisir la chaîne rouge. Grâce à la puissance de cinq cultivateurs de la Tribulation du Vide et au guidage du vieil homme Zhou, tous tirèrent de toutes leurs forces.
 
-Le Taureau Céleste, à l'intérieur du vortex, poussa un rugissement qui déchira les cieux. Il résonna dans le palais, dans la terre et jusqu'à la surface!
+Le Tian Niu, à l'intérieur du vortex, poussa un rugissement qui déchira les cieux. Il résonna dans le palais, dans la terre et jusqu'à la surface!
 
-Alors que ce cri retentissait, une silhouette gigantesque de Taureau Céleste fut extraite du vortex. Une pression terrifiante enveloppa toute la zone!
+Alors que ce cri retentissait, une silhouette gigantesque de Tian Niu fut extraite du vortex. Une pression terrifiante enveloppa toute la zone!
 
 Dès l'apparition de cette silhouette, elle brilla d'un éclat intense, captivant tous les regards des cultivateurs en contrebas. Sous leurs yeux, la silhouette se contracta rapidement pour se transformer en une armure flottant dans les airs!
 
@@ -116,7 +116,7 @@ L'armure était d'un noir profond et dégageait une puissante aura d'âme!
 
 Au moment où l'armure apparut, les âmes originelles de Yan Luan et de ses compagnons retournèrent dans leurs corps, et ils affichèrent des expressions complexes. Lu Wenran, lui, éclata de rire en chargeant vers l'armure.
 
-« L'armure d'âme du troisième méridien du Taureau Céleste m'appartient, Lu Wenran! »
+« L'armure d'âme du troisième méridien du Tian Niu m'appartient, Lu Wenran! »
 
 Cependant, juste au moment où Lu Wenran allait s'en emparer, un rayon de lumière fondit sur l'armure depuis une grotte située non loin de là!
 

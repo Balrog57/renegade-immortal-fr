@@ -24,9 +24,9 @@ L'aura de feu ne s'arrêta pas; elle se propagea lentement dans toutes les direc
 
 C'était là le pouvoir capable de dévaster un royaume!
 
-L'onde de choc destructrice créée par la collision entre le bec de l'Oiseau Vermillon et le Souverain heurta la puissance de l'aura de feu. D'innombrables grondements éclatèrent tandis que l'onde de choc s'effondrait, anéantie par l'aura de feu!
+L'onde de choc destructrice créée par la collision entre le bec de Suzaku et le Souverain heurta la puissance de l'aura de feu. D'innombrables grondements éclatèrent tandis que l'onde de choc s'effondrait, anéantie par l'aura de feu!
 
-« L'Ancienne Ombrelle Brûlante du Royaume!! » Le visage du Souverain était pâle. Il était gravement blessé, puis il avait commis une erreur de calcul avec "Pêcher la Lune dans le Puits". Après cela, il avait été gravement blessé par l'esprit originel de l'Oiseau Vermillon et l'avait scellé, puis il avait vu Wang Lin utiliser la terrifiante Ancienne Ombrelle Brûlante du Royaume!
+« L'Ancienne Ombrelle Brûlante du Royaume!! » Le visage du Souverain était pâle. Il était gravement blessé, puis il avait commis une erreur de calcul avec "Pêcher la Lune dans le Puits". Après cela, il avait été gravement blessé par l'esprit originel de Suzaku et l'avait scellé, puis il avait vu Wang Lin utiliser la terrifiante Ancienne Ombrelle Brûlante du Royaume!
 
 À cet instant, il était plus affaibli qu'auparavant! Avec une expression féroce, le Souverain forma un sceau des deux mains, qu'il posa sur ses épaules. Dans un rugissement, il tira violemment vers l'extérieur!
 
@@ -34,7 +34,7 @@ Une douleur intense envahit son corps alors qu'il arrachait l'armure qui avait d
 
 « Comment l'Ancienne Ombrelle Brûlante du Royaume pourrait-elle être si facile à ouvrir? Cette armure m'a été donnée par mon Maître, c'est un trésor des temps les plus reculés, elle est amplement suffisante pour rivaliser avec une ombrelle pas encore entièrement ouverte! Paume de la Suppression Universelle! » rugit le Souverain, tandis que l'immense paume formée par l'armure fonçait sur Wang Lin!
 
-Elle était d'une rapidité extrême et semblait couvrir tout le ciel, égalant presque la taille du bec de l'Oiseau Vermillon. En balayant le firmament, elle s'apprêtait à percuter l'ombrelle antique.
+Elle était d'une rapidité extrême et semblait couvrir tout le ciel, égalant presque la taille du bec de Suzaku. En balayant le firmament, elle s'apprêtait à percuter l'ombrelle antique.
 
 Des grondements tonitruants retentirent frénétiquement alors que la paume transperçait le feu. Celle-ci se dissipait rapidement tout en bombardant l'ombrelle.
 
@@ -120,7 +120,7 @@ Le front de l'Ancien Dieu révélait clairement huit étoiles en rotation!
 
 Le Souverain n'eut aucun temps pour esquiver avant que le poing de l'Ancien Dieu ne le percute comme une météorite.
 
-Le visage du Souverain pâlit et il cracha du sang; il était gravement blessé. Son corps fut projeté en arrière dans un grognement étouffé. Ce coup fit resurgir toutes les blessures qu'il avait subies du bec de l'Oiseau Vermillon, de l'Ancienne Ombrelle Brûlante du Royaume, ainsi que celles datant de dizaines de milliers d'années!
+Le visage du Souverain pâlit et il cracha du sang; il était gravement blessé. Son corps fut projeté en arrière dans un grognement étouffé. Ce coup fit resurgir toutes les blessures qu'il avait subies du bec de Suzaku, de l'Ancienne Ombrelle Brûlante du Royaume, ainsi que celles datant de dizaines de milliers d'années!
 
 Dans un ultime éclat, l'Ancien Dieu se dissipa, redevint le gantelet et disparut dans le bras droit de Wang Lin.
 

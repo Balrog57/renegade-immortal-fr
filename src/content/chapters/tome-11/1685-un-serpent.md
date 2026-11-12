@@ -22,7 +22,7 @@ Simultanément, sa queue battait la pierre spirituelle en rythme. Le millier de 
 
 « Le Dragon Céleste révèle le Dao... Le Dragon Céleste est puissant... »
 
-Ce dragon rouge était le dragon de feu qui avait failli être vidé de son sang par la deuxième génération de l'Oiseau Vermillon dans la Terre Déchue. Cette deuxième génération avait confié le dragon à Wang Lin, mais le dragon s'était échappé. Compte tenu de l'ouverture de l'ancienne tombe, Wang Lin ne s'était pas soucié de ce dragon.
+Ce dragon rouge était le dragon de feu qui avait failli être vidé de son sang par la deuxième génération de Suzaku dans la Terre Déchue. Cette deuxième génération avait confié le dragon à Wang Lin, mais le dragon s'était échappé. Compte tenu de l'ouverture de l'ancienne tombe, Wang Lin ne s'était pas soucié de ce dragon.
 
 Désormais, des centaines d'années s'étaient écoulées. Juste au moment où Wang Lin allait totalement oublier cette affaire, ce pitoyable dragon de feu réapparut dans son Sens Divin.
 
@@ -84,7 +84,7 @@ Après avoir poussé ce cri, il se retourna précipitamment. Il s'inclina, les m
 
 Cependant, alors qu'il battait en retraite, il s'arrêta net. Cette fois, il était véritablement sur le point de pleurer: une silhouette aux cheveux blancs apparut devant lui. Wang Lin fit un pas en avant et regarda le dragon de feu avec un sourire qui n'en était pas un.
 
-« C'est vous!! » Le dragon de feu vit Wang Lin et fut pétrifié. Il y avait une raison pour laquelle la deuxième génération de l'Oiseau Vermillon l'avait traité de « dragon idiot ». En voyant Wang Lin, il se souvint de la faiblesse passée de ce dernier et en oublia totalement le Sens Divin qui le faisait trembler.
+« C'est vous!! » Le dragon de feu vit Wang Lin et fut pétrifié. Il y avait une raison pour laquelle la deuxième génération de Suzaku l'avait traité de « dragon idiot ». En voyant Wang Lin, il se souvint de la faiblesse passée de ce dernier et en oublia totalement le Sens Divin qui le faisait trembler.
 
 « Maudit soit! Tu oses aussi arrêter ce dragon? Tu as bu mon sang autrefois. Aujourd'hui, ce dragon veut que tu paies! » Le dragon foudroya Wang Lin du regard et ouvrit la gueule. Une gigantesque boule de feu jaillit, dévorant tout sur son passage, y compris Wang Lin.
 

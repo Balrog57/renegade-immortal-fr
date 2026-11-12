@@ -8,7 +8,7 @@ slug: cur-de-la-nuit
 ---
 Le vieil homme nommé Zhou n'avait jamais considéré Wang Lin comme digne de respect. Bien que Wang Lin fût un Ancien, son niveau de culture était trop faible. Il supposait qu'il avait utilisé des relations pour obtenir ce statut.
 
-Ce genre de situation n'était pas rare dans les sectes à travers le Continent Astral Immortel. Beaucoup de personnes aux faibles niveaux de culture occupaient la position d'Ancien; elles n'étaient pas valorisées par la secte et ne servaient qu'à faire bonne figure.
+Ce genre de situation n'était pas rare dans les sectes à travers le Continent Xian Gang. Beaucoup de personnes aux faibles niveaux de culture occupaient la position d'Ancien; elles n'étaient pas valorisées par la secte et ne servaient qu'à faire bonne figure.
 
 Une fois que ce genre de personne entrait sur le champ de bataille, elle révélait sa véritable nature. Le vieil homme nommé Zhou méprisait ces individus. Bien que son expression ne le montre pas, ses paroles froides le trahissaient.
 

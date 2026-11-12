@@ -100,7 +100,7 @@ Un puits se trouvait au centre du palais, et un homme en robe noire se tenait à
 
 Il baissa la tête vers le puits, rendant son expression illisible. Après un long moment, il leva sa main droite desséchée et pinça délicatement une flamme. Le chandelier s'éteignit et une fumée s'éleva. La fumée l'enveloppa, le dissimulant dans les ténèbres.
 
-« Lui... pourquoi est-il si difficile à tuer... Rêve Bleu m'a arrêté la première fois... La deuxième fois était un piège mortel, mais finalement, Maître... Maître s'est réellement manifesté! »
+« Lui... pourquoi est-il si difficile à tuer... Lanmeng m'a arrêté la première fois... La deuxième fois était un piège mortel, mais finalement, Maître... Maître s'est réellement manifesté! »
 
 « Maître a perdu la raison, il a réellement sauvé Wang Lin, malgré son tempérament... » Une voix rauque résonna dans l'obscurité avant de se déformer progressivement. C'était comme si le Souverain ne pouvait masquer la panique dans sa voix.
 
@@ -108,7 +108,7 @@ Il baissa la tête vers le puits, rendant son expression illisible. Après un lo
 
 Le corps du Souverain sous sa robe noire sembla trembler. Il leva la tête et poussa un rugissement dans la salle vide du palais.
 
-La Rivière Invoquée avait été entièrement occupée par les cultivateurs du Royaume Extérieur. Dans la région sud, de nombreuses planètes brisées dérivaient avec des fragments rocheux autour d'elles. L'une d'elles mesurait environ cent pieds de large.
+Zhao He avait été entièrement occupée par les cultivateurs du Royaume Extérieur. Dans la région sud, de nombreuses planètes brisées dérivaient avec des fragments rocheux autour d'elles. L'une d'elles mesurait environ cent pieds de large.
 
 Ce rocher était creux, et un vieil homme vêtu de blanc y était assis. Ce vieil homme dégageait une aura céleste et une goutte de sang se trouvait entre ses sourcils. Cette goutte semblait avoir fusionné complètement avec lui, ce qui était saisissant. Il ouvrit lentement les yeux et leva la main droite. Après un court calcul, son regard révéla une lumière étrange.
 
@@ -116,7 +116,7 @@ Ce rocher était creux, et un vieil homme vêtu de blanc y était assis. Ce viei
 
 Il était Tian Yunzi, qui avait disparu depuis de nombreuses années!
 
-Dans le Vide Brillant, Wang Lin se trouvait au cœur des nuages infinis, là où seul celui qui subit la Tribulation Céleste peut se trouver. Sa robe blanche flottait et son regard était serein. Les mains derrière le dos, il leva les yeux vers le ciel.
+Dans le Kun Xu, Wang Lin se trouvait au cœur des nuages infinis, là où seul celui qui subit la Tribulation Céleste peut se trouver. Sa robe blanche flottait et son regard était serein. Les mains derrière le dos, il leva les yeux vers le ciel.
 
 Les nuages au-dessus de lui tourbillonnaient, laissant entrevoir d'innombrables serpents argentés s'agitant à l'intérieur. Un vortex, semblable à une gueule béante, se forma.
 

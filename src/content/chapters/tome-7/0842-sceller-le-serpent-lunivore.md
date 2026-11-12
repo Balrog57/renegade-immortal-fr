@@ -40,7 +40,7 @@ Les yeux de Maître Yan Leizi devinrent injectés de sang. Il poussa un rugissem
 
 À cet instant, le Domaine Nord entier trembla, comme si l'espace lui-même était sur le point de s'effondrer!
 
-« Compagnons cultivateurs, aidez-moi à sceller cette bête! » La voix de Maître Yan Leizi tonna comme le tonnerre. Ses bras s'écartèrent et les veines de son visage saillirent alors qu'il déployait toute sa puissance!
+« Daoïstes, aidez-moi à sceller cette bête! » La voix de Maître Yan Leizi tonna comme le tonnerre. Ses bras s'écartèrent et les veines de son visage saillirent alors qu'il déployait toute sa puissance!
 
 Une trace de "Retour aux Origines" émana du corps de Maître Yan Leizi. Bien que ce ne fût qu'une étincelle, elle suffit à plonger le Serpent aux yeux de lune dans la panique!
 

@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 135 - The Wind Changes
 slug: le-vent-tourne
 ---
-Wang Lin n'hésita pas à utiliser la Technique de l'Évasion Terrestre pour se diriger vers le Sanctuaire du Dieu de la Guerre. En progressant, il découvrit des bêtes de feu partout. Plus il avançait, plus il s'inquiétait.
+Wang Lin n'hésita pas à utiliser la Technique de l'Évasion Terrestre pour se diriger vers le Temple Zhan Shen. En progressant, il découvrit des bêtes de feu partout. Plus il avançait, plus il s'inquiétait.
 
 Il changea rapidement de direction. Rencontrer Lin Tao n'était plus son objectif; il se dirigea plutôt vers la frontière du pays en utilisant les informations issues des souvenirs de Ma Liang. Il ne pouvait plus rester à Huo Fen.
 
@@ -58,13 +58,13 @@ Finalement, à force de trop se téléporter, l'épée volante commença à se d
 
 Wang Lin réalisa que ce n'était pas une solution viable sur le long terme alors que les bêtes se multipliaient. Malgré ses réserves de liquide spirituel, s'il venait à en manquer et qu'il ne pouvait plus se régénérer assez vite, il mourrait.
 
-Il serra les dents et changea de trajectoire. Il ne se dirigea plus vers Xuan Wu, mais vers le Sanctuaire du Dieu de la Guerre. Il ne croyait pas que ce sanctuaire avait été anéanti par ces premières bêtes. S'il avait été lui-même l'ancêtre du Sanctuaire, il aurait certainement choisi de migrer en bloc, et une telle chose ne se faisait pas sur un coup de tête : cela prendrait forcément du temps.
+Il serra les dents et changea de trajectoire. Il ne se dirigea plus vers Xuan Wu, mais vers le Temple Zhan Shen. Il ne croyait pas que ce sanctuaire avait été anéanti par ces premières bêtes. S'il avait été lui-même l'ancêtre du Sanctuaire, il aurait certainement choisi de migrer en bloc, et une telle chose ne se faisait pas sur un coup de tête : cela prendrait forcément du temps.
 
-Et même s'ils étaient déjà partis, ils ne pouvaient aller trop vite : une migration de toute la secte impliquait beaucoup trop de monde. Or il n'était resté en retraite dans la grotte que huit jours; même si les bêtes de feu étaient apparues dès le premier jour de sa retraite, le Sanctuaire du Dieu de la Guerre n'aurait pas pu déménager aussi vite.
+Et même s'ils étaient déjà partis, ils ne pouvaient aller trop vite : une migration de toute la secte impliquait beaucoup trop de monde. Or il n'était resté en retraite dans la grotte que huit jours; même si les bêtes de feu étaient apparues dès le premier jour de sa retraite, le Temple Zhan Shen n'aurait pas pu déménager aussi vite.
 
 Ce n'étaient là que des suppositions. Ce qui l'avait poussé à cette décision, c'étaient les Essences de Sang de l'Âme qui lui indiquaient la position approximative de Yang Xiong et de Lin Tao.
 
-Dès que Wang Lin changea de cap, les bêtes de feu se rapprochèrent. Elles crachèrent de la lave sur lui, manquant de peu de le toucher à plusieurs reprises. Il serra les dents et accéléra encore plus vers le Sanctuaire du Dieu de la Guerre.
+Dès que Wang Lin changea de cap, les bêtes de feu se rapprochèrent. Elles crachèrent de la lave sur lui, manquant de peu de le toucher à plusieurs reprises. Il serra les dents et accéléra encore plus vers le Temple Zhan Shen.
 
 Peu après, il perçut une aura puissante au loin. En déployant son Sens Divin, il poussa aussitôt un soupir de soulagement : une armée de plus de dix mille cultivateurs progressait lentement au loin.
 
@@ -78,9 +78,9 @@ L'armée ne ralentit pas. Plusieurs milliers d'éclats d'épées s'élancèrent 
 
 Avant même que Wang Lin n'entre dans l'armée, plus d'une dizaine d'éclats d'épées jaillirent des rangs et s'arrêtèrent à cent pieds devant lui. La personne au centre était une jeune femme d'apparence ordinaire, mais une intention meurtrière pesante émanait d'entre ses sourcils. Elle lança un regard de haine aux bêtes de feu derrière Wang Lin puis lui dit d'une voix claire: « Camarade cultivateur, de quelle secte es-tu? Déclame ton nom, et vite! »
 
-Wang Lin, l'air encore tremblant de peur, joignit précipitamment les poings et répondit: « Je suis Ma Liang, disciple du Sanctuaire du Dieu de la Guerre. »
+Wang Lin, l'air encore tremblant de peur, joignit précipitamment les poings et répondit: « Je suis Ma Liang, disciple du Temple Zhan Shen. »
 
-La femme le regarda froidement: « Qingxuan, emmène-le dans les rangs du Sanctuaire du Dieu de la Guerre pour vérifier son identité. S'il n'est pas un disciple, tue-le. »
+La femme le regarda froidement: « Qingxuan, emmène-le dans les rangs du Temple Zhan Shen pour vérifier son identité. S'il n'est pas un disciple, tue-le. »
 
 Un jeune homme s'élança et fit un signe de tête à Wang Lin, l'invitant à le suivre vers l'armée. Wang Lin salua brièvement la jeune femme, poings joints, sans se soucier de son ton, avant de suivre le jeune homme.
 
@@ -94,7 +94,7 @@ Comparé à l'effondrement du champ de bataille étranger, on sentait ici en plu
 
 Wang Lin ne put s'empêcher d'entrer en transe devant tant de grandeur. Lorsqu'il reprit ses esprits, il était déjà arrivé au centre de l'armée avec le jeune homme.
 
-Qingxuan cria: « L'éclaireur de la Secte Luo He, Qingxuan, a ramené le disciple Ma Liang du Sanctuaire du Dieu de la Guerre! Que les camarades cultivateurs du Sanctuaire vérifient son identité afin que je puisse faire mon rapport! »
+Qingxuan cria: « L'éclaireur de la Secte Luo He, Qingxuan, a ramené le disciple Ma Liang du Temple Zhan Shen! Que les camarades cultivateurs du Sanctuaire vérifient son identité afin que je puisse faire mon rapport! »
 
 L'expression de Wang Lin resta impassible. Ce jour-là, la femme de l'Âme Naissante ne s'en était pas prise à lui et ses paroles laissaient entendre une certaine volonté de le recruter. Mais même sans cela, Wang Lin serait venu ici; c'était son seul refuge face à la poursuite des bêtes de feu.
 

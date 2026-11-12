@@ -102,7 +102,7 @@ Après tout, Wang Lin ne pouvait utiliser le sort de Stase sur lui sans subir un
 
 « Sixième embuscade! » Wang Lin esquissa un sourire sinistre, mais ce sourire était fragile, et le sang continuait de couler de sa bouche, lui donnant un air sombre et lugubre.
 
-La main gauche de Wang Lin frappa le sol. La méthode de contrôle de la force utilisée par le Tigre Blanc, apprise de la deuxième génération d'Oiseau Vermillon, fit vibrer la terre. Cette vibration stimula les Poissons-Œil mutants endormis dans les profondeurs du sol!
+La main gauche de Wang Lin frappa le sol. La méthode de contrôle de la force utilisée par le Tigre Blanc, apprise de la deuxième génération de Suzaku, fit vibrer la terre. Cette vibration stimula les Poissons-Œil mutants endormis dans les profondeurs du sol!
 
 Au même moment, le cercle de sang tracé par Wang Lin s'éleva dans les airs et les restrictions se dissipèrent. L'odeur du sang et l'énergie originelle ne furent plus cachées et éclatèrent avec violence.
 

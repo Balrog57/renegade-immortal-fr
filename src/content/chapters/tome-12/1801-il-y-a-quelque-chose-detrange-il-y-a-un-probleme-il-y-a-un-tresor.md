@@ -74,9 +74,9 @@ Pourtant, la question restait sans réponse. Et ceux qui détenaient la vérité
 
 Le temps passa, et l'agitation finit par s'estomper, laissant la rumeur s'enraciner dans les cœurs. Peut-être qu'un jour, ils découvriraient enfin l'identité de cet homme...
 
-La Secte Cang Long était une secte de niveau intermédiaire, dont le territoire couvrait moins de la moitié du Domaine Stellaire Kun Xu. Du point de vue d'un cultivateur de monde caverneux, elle n'était pas aussi vaste que le Temple Céleste du Tonnerre ou l'Alliance Xiu Zhen, mais elle demeurait un colosse. En revanche, sur le Continent Astral Immortel, elle était considérée comme moyenne.
+La Secte Cang Long était une secte de niveau intermédiaire, dont le territoire couvrait moins de la moitié du Domaine Stellaire Kun Xu. Du point de vue d'un cultivateur de monde caverneux, elle n'était pas aussi vaste que le Temple Céleste du Tonnerre ou l'Alliance Xiu Zhen, mais elle demeurait un colosse. En revanche, sur le Continent Xian Gang, elle était considérée comme moyenne.
 
-On racontait que le Continent Astral Immortel comptait 30 000 sectes célestes. Nul ne savait si cela était vrai, mais chaque secte était effectivement unique. Le nom de « Secte Cang Long » laissait supposer un lien avec les dragons, mais les méthodes de culture de ses disciples n'en avaient rien à voir.
+On racontait que le Continent Xian Gang comptait 30 000 sectes célestes. Nul ne savait si cela était vrai, mais chaque secte était effectivement unique. Le nom de « Secte Cang Long » laissait supposer un lien avec les dragons, mais les méthodes de culture de ses disciples n'en avaient rien à voir.
 
 Les disciples de la Secte Cang Long excellaient dans l'art de créer des marionnettes pour les assister au combat. Ils devaient souvent affiner leurs propres marionnettes de vie avant de pouvoir s'aventurer à l'extérieur. Ces marionnettes possédaient leurs propres rangs et pouvoirs.
 

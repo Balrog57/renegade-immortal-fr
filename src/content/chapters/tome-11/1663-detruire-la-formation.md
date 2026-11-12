@@ -28,7 +28,7 @@ De plus, comme il n'avait pas absorbé de Flammes Joss, ses essences ne posséda
 
 Si la huitième essence apparaissait et parvenait à sa complétion, il pourrait atteindre le sommet de Vide Spirituel!
 
-Avec neuf essences, il pourrait franchir le stade Vide Arcanique! Alors, les neuf fusionneraient pour n'en former qu'une seule. S'il avait la sagesse et la fortune nécessaires pour fusionner toutes ses essences et les transformer en une puissance appelée la Puissance du Vide sur le Continent Astral Immortel, il pourrait affronter la calamité du troisième stade. Une fois cette épreuve survécue, il deviendrait un Grand Exalté de la Tribulation du Vide!
+Avec neuf essences, il pourrait franchir le stade Vide Arcanique! Alors, les neuf fusionneraient pour n'en former qu'une seule. S'il avait la sagesse et la fortune nécessaires pour fusionner toutes ses essences et les transformer en une puissance appelée la Puissance du Vide sur le Continent Xian Gang, il pourrait affronter la calamité du troisième stade. Une fois cette épreuve survécue, il deviendrait un Grand Exalté de la Tribulation du Vide!
 
 La différence entre un Exalté de la Tribulation du Vide et un Vide Arcanique résidait dans une calamité de vie ou de mort. Le succès signifiait la vie, l'échec signifiait la mort. À travers les âges, il n'y avait eu aucune exception; c'était un gouffre que chacun devait affronter!
 
@@ -36,7 +36,7 @@ Cette calamité était appelée la Tribulation Arcane. Elle se divisait en neuf 
 
 Même un être aussi puissant que le Souverain n'avait traversé que trois Tribulations Arcanes et n'avait pas eu le courage d'affronter la quatrième.
 
-Lan Meng Daozun n'avait même pas surmonté la première et stagnait au sommet du Vide Arcanique. Il ne craignait pas la mort, mais il ne parvenait pas à trancher ses attachements : il lui restait une dernière chose à accomplir et il ne pouvait supporter le regret de l'échec.
+Lanmeng Daozun n'avait même pas surmonté la première et stagnait au sommet du Vide Arcanique. Il ne craignait pas la mort, mais il ne parvenait pas à trancher ses attachements : il lui restait une dernière chose à accomplir et il ne pouvait supporter le regret de l'échec.
 
 Au cours d'innombrables centaines de millions d'années, de nombreux talents étaient nés dans le Royaume Intérieur. Certains avaient atteint le troisième stade, mais à ce jour, une seule personne avait traversé huit Tribulations Arcanes tout en conservant son identité de cultivateur de grotte. Une seule de plus, et il aurait pu être considéré comme un Exalté!
 
@@ -44,11 +44,11 @@ Il s'agissait du Vieux Fantôme Zhan! À l'époque, il avait échoué à sa cinq
 
 Cette fortune céleste avait provoqué une explosion de sa culture, lui permettant d'endurer les épreuves jusqu'à la huitième Tribulation Arcane, avant de s'arrêter devant la neuvième.
 
-Ceux qui atteignaient le stade de la Tribulation du Vide sur le Continent Astral Immortel étaient considérés comme des Grands Exaltés! C'était un niveau de culture au sommet du troisième stade, et si l'on parvenait à faire ce pas légendaire, on piétinerait les cieux!
+Ceux qui atteignaient le stade de la Tribulation du Vide sur le Continent Xian Gang étaient considérés comme des Grands Exaltés! C'était un niveau de culture au sommet du troisième stade, et si l'on parvenait à faire ce pas légendaire, on piétinerait les cieux!
 
 Le Souverain Céleste aux Sept Couleurs était un Grand Exalté de la Tribulation du Vide, bien que son niveau ne fût pas au sommet, mais au stade intermédiaire!
 
-Bien qu'il ne fût qu'au stade intermédiaire, cela lui avait permis d'acquérir une certaine renommée sur le Continent Astral Immortel et de fonder sa propre secte: la Secte Qi Dao!
+Bien qu'il ne fût qu'au stade intermédiaire, cela lui avait permis d'acquérir une certaine renommée sur le Continent Xian Gang et de fonder sa propre secte: la Secte Qi Dao!
 
 Wang Lin n'en connaissait qu'une partie, et à cet instant il n'avait pas le temps d'y songer. Il ouvrit les yeux et se leva, contemplant les étoiles. Il n'était pas grand, mais l'aura qu'il dégageait laissait croire qu'il pouvait soutenir la voûte céleste. Le dos tourné vers le Royaume Intérieur, il inspirait un sentiment de sécurité indicible, tel un protège-poignet béni par un Dieu Ancien.
 

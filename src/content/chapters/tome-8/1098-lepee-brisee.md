@@ -60,7 +60,7 @@ En conséquence, une tempête colossale s'abattit sur la région sud!
 
 Elle ne put s'empêcher de paniquer. Si ce jade était authentique, tout irait bien; mais elle n'en était pas sûre. Si le contenu du jade s'avérait faux, elle devrait en assumer des conséquences inimaginables. Après tout, c'était elle qui l'avait rapporté.
 
-« Aucun problème. L'Empereur Divin de l'Oiseau Vermillon t'a dit de l'apporter ici. Étant donné son statut, il y a 70 % de chances que ce soit vrai. Les Quatre Sectes Divines ne diffuseraient pas de fausses nouvelles aussi facilement. Cela reviendrait à provoquer inutilement ma Secte Shi Yin, Luo Tian et le reste des forces de l'Alliance! »
+« Aucun problème. L'Empereur Divin de Suzaku t'a dit de l'apporter ici. Étant donné son statut, il y a 70 % de chances que ce soit vrai. Les Quatre Sectes Divines ne diffuseraient pas de fausses nouvelles aussi facilement. Cela reviendrait à provoquer inutilement ma Secte Shi Yin, Luo Tian et le reste des forces de l'Alliance! »
 
 « Cependant, je devrai personnellement me rendre aux Quatre Sectes Divines! »
 
@@ -70,7 +70,7 @@ De même, lorsque Mo Zhi retourna dans le pays de Chu Yun, les trois jades furen
 
 Les membres de la Secte Shi Yin cessèrent tout commerce avec les autres forces et regagnèrent précipitamment leur secte. Ces changements étranges ne manquèrent pas d'attirer l'attention des cultivateurs de l'Alliance.
 
-L'homme à l'origine de tout cela, Wang Lin, restait sereinement au sein de la Secte Divine de l'Oiseau Vermillon. Il était assis au bord du volcan et cultivait calmement.
+L'homme à l'origine de tout cela, Wang Lin, restait sereinement au sein de la Secte Divine de Suzaku. Il était assis au bord du volcan et cultivait calmement.
 
 Un grand crapaud trônait à ses côtés. Des éclairs continuaient de jaillir autour de l'animal dans un crépitement constant. Le crapaud tonnerre semblait capable de supporter la chaleur extrême de cet endroit.
 
@@ -82,7 +82,7 @@ L'esprit de Wang Lin était extraordinaire, bien qu'il utilisât rarement la rus
 
 Il avait ouvertement diffusé la nouvelle concernant le dieu ancien, et tout le monde savait que Wang Lin devait comploter quelque chose. Quiconque possédait un minimum d'intelligence pouvait le voir clairement.
 
-Si Wang Lin n'était pas devenu l'Empereur Divin de l'Oiseau Vermillon en diffusant cette information, cela n'aurait eu aucun effet. Au contraire, il se serait attiré un péril mortel. Que ce soit la Secte Shi Yin ou Luo Tian, ils l'auraient d'abord capturé pour l'interroger.
+Si Wang Lin n'était pas devenu l'Empereur Divin de Suzaku en diffusant cette information, cela n'aurait eu aucun effet. Au contraire, il se serait attiré un péril mortel. Que ce soit la Secte Shi Yin ou Luo Tian, ils l'auraient d'abord capturé pour l'interroger.
 
 Cependant, à présent, ni la Secte Shi Yin ni Luo Tian ne feraient ce choix. Après tout, il existait une troisième force avec laquelle ils ne pourraient jamais s'entendre: les cultivateurs de l'Alliance! De plus, les mystères entourant les Quatre Sectes Divines et leur ancien statut d'hégémon du système suffisaient à dissuader quiconque. Ils savaient que le prix de la guerre serait trop élevé!
 
@@ -92,7 +92,7 @@ De même, Wang Lin savait que son identité de dieu ancien n'était plus un secr
 
 Wang Lin refusait de croire qu'il n'avait pas suscité de soupçons ou de spéculations.
 
-C'était aussi l'une des raisons principales pour lesquelles il avait accepté si facilement de suivre l'ancien Empereur Divin de l'Oiseau Vermillon. Sans cela, avec ses blessures graves, il lui aurait été difficile de faire le moindre pas. Il aurait été traqué jour et nuit et, tôt ou tard, il aurait été capturé.
+C'était aussi l'une des raisons principales pour lesquelles il avait accepté si facilement de suivre l'ancien Empereur Divin de Suzaku. Sans cela, avec ses blessures graves, il lui aurait été difficile de faire le moindre pas. Il aurait été traqué jour et nuit et, tôt ou tard, il aurait été capturé.
 
 C'est pour cette raison que sa diffusion de la nouvelle concernant Tuo Sen était d'autant plus crédible. De plus, nul besoin de mentir: une fois arrivés au Domaine de l'Ancien Dieu sur la planète Suzaku, ils sauraient immédiatement si cela était vrai ou non!
 

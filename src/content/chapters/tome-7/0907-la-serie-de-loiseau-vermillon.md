@@ -1,6 +1,6 @@
 ---
 n: 907
-title: "La Série de l'Oiseau Vermillon"
+title: "La Série de Suzaku"
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 907 - Vermillion Bird Series
@@ -52,7 +52,7 @@ Il regarda le vieux cultivateur et dit calmement: « La Secte Heng Yue était la
 
 « Diverses circonstances m'ont forcé dans cette situation! » Wang Lin fixa le vieux cultivateur avec un regard limpide.
 
-Le regard du vieil homme semblait pouvoir transpercer le cœur de Wang Lin. Après un long moment, son expression s'adoucit: « Ce vieil homme se moque de ton identité dans le Système Stellaire de Luotian ou du nombre de sectes que tu rejoins. La seule chose dont tu dois te souvenir est que, bien que tu sois un cultivateur du Système Stellaire de l'Alliance, tu es un enfant de la planète Suzaku! Tu es un disciple de la Branche de l'Oiseau Vermillon des Quatre Sectes Divines! Tant que tu t'en souviendras, je serai toujours ton maître de secte! »
+Le regard du vieil homme semblait pouvoir transpercer le cœur de Wang Lin. Après un long moment, son expression s'adoucit: « Ce vieil homme se moque de ton identité dans le Système Stellaire de Luotian ou du nombre de sectes que tu rejoins. La seule chose dont tu dois te souvenir est que, bien que tu sois un cultivateur du Système Stellaire de l'Alliance, tu es un enfant de la planète Suzaku! Tu es un disciple de la Branche de Suzaku des Quatre Sectes Divines! Tant que tu t'en souviendras, je serai toujours ton maître de secte! »
 
 Wang Lin hocha la tête, le visage serein.
 
@@ -86,7 +86,7 @@ C'était une quantité colossale et chaotique d'informations, comme si elles ét
 
 Les poissons du Yin et du Yang apparurent dans son esprit. En tournoyant, ils balayèrent toutes les pensées parasites. Enfin, une scène qui bouleversa Wang Lin se manifesta!
 
-À ce moment-là, la silhouette de l'ancien cultivateur apparut aux côtés de Wang Lin. Il l'observa avec admiration et murmura: « Pas mal. Ce petit gars était sur le point d'acquérir une compréhension de ce niveau d'origine primordiale. Après observation, je pourrai le laisser entrer dans la Série de l'Oiseau Vermillon! »
+À ce moment-là, la silhouette de l'ancien cultivateur apparut aux côtés de Wang Lin. Il l'observa avec admiration et murmura: « Pas mal. Ce petit gars était sur le point d'acquérir une compréhension de ce niveau d'origine primordiale. Après observation, je pourrai le laisser entrer dans la Série de Suzaku! »
 
 À cet instant, Wang Lin était immergé dans un ciel étoilé. Il voyait d'innombrables êtres célestes maniant divers trésors magiques. Devant eux s'étendaient des talismans jaunes de dizaines, de centaines, voire de milliers de pieds de long!
 

@@ -30,7 +30,7 @@ Yan Luan et ses compagnons fixèrent l'endroit où Wang Lin avait disparu, les t
 
 Le lendemain du départ de Wang Lin, tous les cultivateurs accompagnant Yan Luan sortirent du palais souterrain et quittèrent la Prairie Ji Tian, abandonnant les lieux pour se diriger vers l'endroit indiqué par Ouyang Zhen, en plus d'un millier de traînées de lumière.
 
-La défense du troisième méridien du Taureau Céleste était terminée.
+La défense du troisième méridien du Tian Niu était terminée.
 
 La Secte Gui Yi était l'une des deux puissances majeures du Continent Tian Niu, ainsi que l'une des neuf sectes et treize factions du Continent de l'Est. Bien qu'elle ne fût pas la plus forte, elle n'était pas pour autant la plus faible.
 
@@ -46,13 +46,13 @@ Au cœur de l'éclat de la formation, une silhouette aux cheveux et aux vêtemen
 
 Plus d'une dizaine de cultivateurs environnants portaient tous les robes de la Secte Gui Yi et attendaient que Wang Lin produise son jade d'identification. En cette période de guerre, s'il ne pouvait le présenter, ils l'exécuteraient sur-le-champ.
 
-Lorsque la silhouette de Wang Lin devint parfaitement nette, les cultivateurs virent le tatouage du Taureau Céleste sur son visage. Les expressions de l'assistance changèrent instantanément et ils reculèrent de quelques pas. Ils ressentaient clairement l'aura de l'âme du Taureau qui les faisait trembler; une aura qu'ils avaient déjà perçue hier chez deux autres individus.
+Lorsque la silhouette de Wang Lin devint parfaitement nette, les cultivateurs virent le tatouage du Tian Niu sur son visage. Les expressions de l'assistance changèrent instantanément et ils reculèrent de quelques pas. Ils ressentaient clairement l'aura de l'âme du Taureau qui les faisait trembler; une aura qu'ils avaient déjà perçue hier chez deux autres individus.
 
-« Nous saluons le Messager du Taureau Céleste! Puis-je demander de quel méridien vous émanez, Messager? Et de quelle secte? » L'homme d'âge moyen, si froid quelques instants plus tôt, devint immédiatement poli. Les cultivateurs alentour joignirent également leurs mains avec empressement.
+« Nous saluons le Messager du Tian Niu! Puis-je demander de quel méridien vous émanez, Messager? Et de quelle secte? » L'homme d'âge moyen, si froid quelques instants plus tôt, devint immédiatement poli. Les cultivateurs alentour joignirent également leurs mains avec empressement.
 
-Ils éprouvaient un respect profond pour un Messager du Taureau Céleste capable de garder l'un des méridiens. Bien qu'ils constatassent que le niveau de culture de Wang Lin n'était pas élevé, ils pensaient, comme Ouyang Zhen, qu'une telle personne devait posséder quelque chose d'extraordinaire pour pouvoir repousser l'attaque du Continent Lu Mo.
+Ils éprouvaient un respect profond pour un Messager du Tian Niu capable de garder l'un des méridiens. Bien qu'ils constatassent que le niveau de culture de Wang Lin n'était pas élevé, ils pensaient, comme Ouyang Zhen, qu'une telle personne devait posséder quelque chose d'extraordinaire pour pouvoir repousser l'attaque du Continent Lu Mo.
 
-« Secte Da Hun, Wang Lin. Troisième méridien du Taureau Céleste, Prairie Ji Tian. » Wang Lin leur adressa un salut respectueux.
+« Secte Da Hun, Wang Lin. Troisième méridien du Tian Niu, Prairie Ji Tian. » Wang Lin leur adressa un salut respectueux.
 
 « Noble Messager, je vous en prie! Le Maître de la secte a envoyé un ordre: tous les messagers doivent se rendre au grand hall. » L'homme d'âge moyen leva la main pour accueillir Wang Lin.
 
@@ -64,15 +64,15 @@ Ce changement soudain attira l'attention de Wang Lin et des autres cultivateurs.
 
 À l'intérieur de la formation, la silhouette d'une femme sortit lentement. On ne pouvait distinguer clairement ses traits, mais sa silhouette était d'une beauté saisissante; un simple regard suffisait à faire bondir le cœur.
 
-Peu après, l'apparence de la femme se précisa. Elle portait des vêtements violets. Elle paraissait jeune et d'une grande beauté, dégageant une sérénité qui lui donnait l'allure d'une déesse. Sur le côté droit de son visage gracieux figurait également un tatouage du Taureau Céleste. Loin de ternir sa beauté, ce tatouage lui conférait une aura mystérieuse.
+Peu après, l'apparence de la femme se précisa. Elle portait des vêtements violets. Elle paraissait jeune et d'une grande beauté, dégageant une sérénité qui lui donnait l'allure d'une déesse. Sur le côté droit de son visage gracieux figurait également un tatouage du Tian Niu. Loin de ternir sa beauté, ce tatouage lui conférait une aura mystérieuse.
 
-« Tang Jia de la Secte Xiu Sheng. Sixième méridien du Taureau Céleste, Chaîne de Montagnes Cang Ming », dit doucement la femme en balayant l'assemblée du regard. Son regard s'arrêta un instant sur Wang Lin, mais elle resta impassible.
+« Tang Jia de la Secte Xiu Sheng. Sixième méridien du Tian Niu, Chaîne de Montagnes Cang Ming », dit doucement la femme en balayant l'assemblée du regard. Son regard s'arrêta un instant sur Wang Lin, mais elle resta impassible.
 
 En voyant cette femme, les yeux de Wang Lin se plissèrent. Il l'observa attentivement, sentant une familiarité qu'il n'arrivait pas à identifier. Tang Jia fronça légèrement les sourcils sous ce regard et lui jeta un coup d'œil calme.
 
 « Daoïste, de quel méridien venez-vous? » Sa voix était cristalline et mélodieuse.
 
-« Troisième méridien du Taureau Céleste », répondit lentement Wang Lin. Il continuait de l'observer, cherchant à comprendre pourquoi elle lui semblait si familière. Il était certain que cette femme n'était pas une réincarnation venue du monde des cavernes.
+« Troisième méridien du Tian Niu », répondit lentement Wang Lin. Il continuait de l'observer, cherchant à comprendre pourquoi elle lui semblait si familière. Il était certain que cette femme n'était pas une réincarnation venue du monde des cavernes.
 
 Cependant, son insistance était impolie envers la femme. Celle-ci fronça les sourcils et regarda Wang Lin avec une pointe de dégoût. Elle le fixa froidement et demanda doucement: « Daoïste, auriez-vous déjà rencontré Tang Jia? »
 
@@ -86,9 +86,9 @@ Bientôt, tout le monde atteignit la Secte Gui Yi et pénétra dans la formation
 
 Une heure plus tard, Wang Lin aperçut une immense place où une cloche colossale était retournée, dégageant des vagues de pression.
 
-Deux cultivateurs étaient assis sous cette cloche. L'un était un vieil homme aux cheveux blancs et au visage sombre qui semblait ignorer tout ce qui l'entourait. Sur le côté droit de son visage, le tatouage du Taureau Céleste brillait, émanant l'aura de l'âme du Taureau.
+Deux cultivateurs étaient assis sous cette cloche. L'un était un vieil homme aux cheveux blancs et au visage sombre qui semblait ignorer tout ce qui l'entourait. Sur le côté droit de son visage, le tatouage du Tian Niu brillait, émanant l'aura de l'âme du Taureau.
 
-L'autre était un jeune homme à l'expression nonchalante, mais si l'on regardait de près, on pouvait percevoir une étincelle dans ses yeux. Malgré son air paresseux, il devenait une personne tout autre dès que son expression se faisait sérieuse. Un tatouage du Taureau Céleste brillait également sur le côté droit de son visage.
+L'autre était un jeune homme à l'expression nonchalante, mais si l'on regardait de près, on pouvait percevoir une étincelle dans ses yeux. Malgré son air paresseux, il devenait une personne tout autre dès que son expression se faisait sérieuse. Un tatouage du Tian Niu brillait également sur le côté droit de son visage.
 
 À l'arrivée de Tang Jia, le jeune homme tourna la tête sans lui accorder la moindre importance. Cependant, un instant plus tard, son expression se décomposa, révélant un choc profond. Il se leva brusquement et fixa Tang Jia.
 

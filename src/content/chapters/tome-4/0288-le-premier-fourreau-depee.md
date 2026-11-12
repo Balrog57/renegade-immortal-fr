@@ -112,6 +112,6 @@ Il marmonna: « Avec l'apparition du Chaudron de la Pluie, l'ouverture de la por
 
 « Peu importe. Je m'en occuperai plus tard. S'il n'existe vraiment aucun moyen de les ressusciter, alors je leur trouverai un lieu parmi les mortels, où ils pourront réintégrer le cycle de la réincarnation. Ce lien d'affection de cette vie prend ainsi fin... »
 
-À cet instant, Wang Lin devait encore raffiner un autre drapeau de restriction. Il ne restait qu'une pierre d'encre; il devait donc l'utiliser avec précaution pour ne pas l'endommager. Wang Lin avait tenté de réparer le drapeau de restriction brisé, mais sans succès. Celui-ci ne pouvait désormais servir qu'à invoquer la rétribution divine.
+À cet instant, Wang Lin devait encore raffiner un autre drapeau de restriction. Il ne restait qu'une pierre d'encre; il devait donc l'utiliser avec précaution pour ne pas l'endommager. Wang Lin avait tenté de réparer le drapeau de restriction brisé, mais sans succès. Celui-ci ne pouvait désormais servir qu'à invoquer la Tribulation Céleste.
 
 « En plus de tout cela, bien que j'aie atteint le stade de Formation de l'Âme, je possède beaucoup trop peu de trésors magiques. La porte céleste pourrait s'ouvrir à tout moment, je dois donc être prêt. Je dois obtenir cette énergie spirituelle céleste! »

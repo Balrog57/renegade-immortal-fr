@@ -144,7 +144,7 @@ Wang Lin, imperturbable, sortit son drapeau de restriction brisé et ricana: « 
 
 « Un drapeau de restriction! » Les yeux du vieil homme s'illuminèrent en fixant le petit drapeau dans la main de Wang Lin. Il prit une profonde inspiration.
 
-« Il ne lui manque qu'une seule restriction pour compléter un ensemble de 99. Cet homme ne ment pas; une fois l'ensemble de 99 atteint, cela attirera la foudre de la rétribution divine... mais ici, ce sera la foudre de la rétribution céleste, encore plus puissante... Une fois qu'elle apparaîtra, personne ne survivra, lui compris. » Le vieil homme laissa transparaître une trace de crainte sur son visage et retira précipitamment sa main.
+« Il ne lui manque qu'une seule restriction pour compléter un ensemble de 99. Cet homme ne ment pas; une fois l'ensemble de 99 atteint, cela attirera la foudre de la Tribulation Céleste... mais ici, ce sera la foudre de la rétribution céleste, encore plus puissante... Une fois qu'elle apparaîtra, personne ne survivra, lui compris. » Le vieil homme laissa transparaître une trace de crainte sur son visage et retira précipitamment sa main.
 
 Wang Lin resta calme et s'arrêta à l'entrée du tunnel, observant les quatre individus de loin.
 

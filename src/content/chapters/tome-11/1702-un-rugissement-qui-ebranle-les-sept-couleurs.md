@@ -50,9 +50,9 @@ Wang Lin vit de ses propres yeux la troisième âme foncer dans la carte stellai
 
 « Le Domaine Intérieur! La troisième âme est allée dans le Domaine Intérieur! » Les yeux de Wang Lin brillèrent d'une lueur étrange. La troisième âme disparut en un éclair après être entrée dans le Domaine Intérieur. Le Daoïste aux Sept Couleurs laissa échapper un rugissement et ses mains formèrent un sceau. La carte stellaire commença à s'étendre rapidement, et la troisième âme qui avait disparu fut de nouveau repérée!
 
-La troisième âme perça la Mer Yun actuelle et vola vers la Rivière Zhao.
+La troisième âme perça la Mer Yun actuelle et vola vers Zhao He.
 
-Peut-être s'arrêterait-elle dans la Rivière Zhao, ou peut-être traverserait-elle un autre système stellaire. Il ne tarderait pas pour que Wang Lin sache où la troisième âme était partie se réincarner!
+Peut-être s'arrêterait-elle dans Zhao He, ou peut-être traverserait-elle un autre système stellaire. Il ne tarderait pas pour que Wang Lin sache où la troisième âme était partie se réincarner!
 
 Cependant, de la même manière, si Wang Lin pouvait la voir, le Daoïste aux Sept Couleurs le pouvait aussi. Le Daoïste était transporté par l'excitation. Bien qu'il ignorât si tout ceci était réel ou si les événements se déroulaient exactement comme autrefois, c'était une chance!
 

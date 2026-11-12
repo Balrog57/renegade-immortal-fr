@@ -50,7 +50,7 @@ De retour auprès de Wang Lin et Hongdie.
 
 La rose rouge étincelante dégageait un charme délicat. L'image de Hongdie était l'étincelle de Sens Divin qu'elle avait gardée cachée. C'était sa véritable essence.
 
-Elle regarda Wang Lin, les yeux empreints de fierté, et murmura: « Ceng Niu, agis maintenant... tue-moi... une vie privée de conscience ne vaut pas la peine d'être vécue. Moi, Hongdie, je préférerais mourir plutôt que de vivre ainsi... »
+Elle regarda Wang Lin, les yeux empreints de fierté, et murmura: « Zeng Niu, agis maintenant... tue-moi... une vie privée de conscience ne vaut pas la peine d'être vécue. Moi, Hongdie, je préférerais mourir plutôt que de vivre ainsi... »
 
 Les souvenirs de Hongdie défilèrent dans l'esprit de Wang Lin tandis qu'elle parlait.
 
@@ -94,7 +94,7 @@ La rose n'était plus qu'un pistil privé de ses pétales. Lorsque la hache la p
 
 « Hongdie, tu affronteras une épreuve dans ta vie! Ce sera une épreuve de vie ou de mort. Si tu la surmontes, le reste de ton existence sera paisible. Si tu échoues, tout sera perdu. Ta Maîtresse a consacré l'effort de toute sa vie à prédire ce présage pour toi, alors sois prudente... »
 
-« Hongdie, je crains que ton épreuve ne soit liée à Ceng Niu. Il ne peut pas être laissé en vie! »
+« Hongdie, je crains que ton épreuve ne soit liée à Zeng Niu. Il ne peut pas être laissé en vie! »
 
 Hongdie était couverte de sang et sa vision devint écarlate.
 

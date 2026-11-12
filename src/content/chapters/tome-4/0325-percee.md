@@ -78,7 +78,7 @@ Le visage de Chi Hu devint sombre et inquiétant. Après une courte réflexion, 
 
 L'expression de Wang Lin était très austère. Il ne s'attendait pas à ce que le cadavre et les épées célestes convergent vers lui; il était devenu la cible de toutes les convoitises.
 
-À cet instant, un Ancien vêtu d'une robe noire s'avança: « Cher compagnon cultivateur, si vous nous remettez l'une des épées célestes, les huit membres de la Secte Hun Yuan vous protégeront! »
+À cet instant, un Ancien vêtu d'une robe noire s'avança: « Cher Daoïste, si vous nous remettez l'une des épées célestes, les huit membres de la Secte Hun Yuan vous protégeront! »
 
 Sept personnes apparurent derrière lui, le regard brillant de cupidité. Ils ne ralentirent pas leur marche et continuèrent d'avancer vers lui.
 

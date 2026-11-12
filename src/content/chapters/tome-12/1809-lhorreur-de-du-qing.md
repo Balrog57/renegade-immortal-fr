@@ -14,7 +14,7 @@ Les restrictions disparurent sans laisser de trace. Même si quelqu'un remarquai
 
 Une fois cela accompli, Wang Lin sortit de la grotte et se tint dans les airs. Le ciel était limpide, sans le moindre nuage, d'une beauté saisissante.
 
-Inhalant l'aura du Continent Astral Immortel, Wang Lin s'élança rapidement vers l'horizon.
+Inhalant l'aura du Continent Xian Gang, Wang Lin s'élança rapidement vers l'horizon.
 
 Il était d'une rapidité extrême, disparaissant au loin tel un rayon de lumière. Sa vitesse surpassait celle de ses précédents déplacements; à cet instant, il volait à pleine puissance, parcourant plus de 10 000 kilomètres en un éclair.
 
@@ -42,13 +42,13 @@ Il devina vaguement que personne n'avait jamais tenté d'absorber le feu du Cont
 
 S'ils atteignaient un certain niveau de culture et que leur essence était assez puissante, ils pourraient peut-être devenir des rois du feu. Mais en fin de compte, cela différait radicalement de ce que Wang Lin entreprenait.
 
-Wang Lin n'était pas originaire du Continent Astral Immortel et ne comprenait pas le feu de cette terre. Faute d'avoir obtenu la reconnaissance du feu local, il subirait naturellement un rejet.
+Wang Lin n'était pas originaire du Continent Xian Gang et ne comprenait pas le feu de cette terre. Faute d'avoir obtenu la reconnaissance du feu local, il subirait naturellement un rejet.
 
 C'était comme suivre la volonté des cieux tout en les défiant. Mais c'était précisément pour cela qu'après avoir dévoré l'âme d'une ramification de la veine de feu terrestre, l'essence de feu de Wang Lin avait prodigieusement augmenté!
 
-« Xuan Luo disait qu'aucun habitant du monde des grottes n'avait jamais réussi à s'en extraire par sa propre force. Je ne suis pas réincarné dans le Continent Astral Immortel, je n'ai pas grandi ici! »
+« Xuan Luo disait qu'aucun habitant du monde des grottes n'avait jamais réussi à s'en extraire par sa propre force. Je ne suis pas réincarné dans le Continent Xian Gang, je n'ai pas grandi ici! »
 
-« Le Continent Astral Immortel n'est pas un lieu dangereux pour moi, c'est un trésor! » Les yeux de Wang Lin s'illuminèrent alors qu'il progressait vers une autre chaîne de montagnes.
+« Le Continent Xian Gang n'est pas un lieu dangereux pour moi, c'est un trésor! » Les yeux de Wang Lin s'illuminèrent alors qu'il progressait vers une autre chaîne de montagnes.
 
 La montagne était d'un vert luxuriant, sans aucune trace de feu. Pourtant, grâce à son essence de feu, Wang Lin scruta les profondeurs et sentit un dragon de feu gigantesque sommeiller sous la roche.
 
@@ -80,15 +80,15 @@ Lorsque le dragon s'effondra, il se mua en une mer de flammes et tenta de se ref
 
 Cependant, Wang Lin ne lui laissa aucune chance. Il fit un pas en avant et une lueur ardente brilla dans son œil gauche. Un Oiseau Vermillon apparut dans son regard et chargea le dragon de feu.
 
-« Âme du feu terrestre, tu ne connais toujours pas ta place! » Alors que l'Oiseau Vermillon dévorait sa proie, la voix puissante de Wang Lin résonna à travers le monde.
+« Âme du feu terrestre, tu ne connais toujours pas ta place! » Alors que Suzaku dévorait sa proie, la voix puissante de Wang Lin résonna à travers le monde.
 
-Le corps du dragon trembla et sa tête brisée fut absorbée par l'Oiseau Vermillon. À mesure que l'absorption progressait, la terre tremblait et les couleurs du monde se transformaient. Le dragon entier se changea en une mer de feu que l'Oiseau Vermillon engloutit!
+Le corps du dragon trembla et sa tête brisée fut absorbée par Suzaku. À mesure que l'absorption progressait, la terre tremblait et les couleurs du monde se transformaient. Le dragon entier se changea en une mer de feu que Suzaku engloutit!
 
-Après avoir absorbé deux âmes de feu terrestre, le corps de l'Oiseau Vermillon s'était étendu sur des centaines de milliers de pieds, semblant recouvrir la voûte céleste.
+Après avoir absorbé deux âmes de feu terrestre, le corps de Suzaku s'était étendu sur des centaines de milliers de pieds, semblant recouvrir la voûte céleste.
 
-Le brasier rugissait, poussant l'Oiseau Vermillon à pousser un cri qui fit trembler les cieux.
+Le brasier rugissait, poussant Suzaku à pousser un cri qui fit trembler les cieux.
 
-Ce cri se propagea sous forme d'ondulations dont l'Oiseau Vermillon était le centre. Wang Lin avança et se tint sur la tête de la créature, son corps enveloppé par une mer de flammes.
+Ce cri se propagea sous forme d'ondulations dont Suzaku était le centre. Wang Lin avança et se tint sur la tête de la créature, son corps enveloppé par une mer de flammes.
 
 L'Oiseau Vermillon poussa un nouveau cri et chargea immédiatement. De loin, on aurait dit un nuage de feu en pleine ascension!
 

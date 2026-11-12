@@ -12,9 +12,9 @@ Saisissant cette opportunité, il s'enfuit, tremblant de tous ses membres. Son e
 
 Son cuir chevelu était engourdi et son cœur était rongé par la peur. Il avait toujours porté une épine dans son cœur, une douleur née lorsqu'il avait poursuivi une cultivatrice près de la frontière entre la Mer Xiu Mo et le pays de Huo Fen. Il avait alors rencontré un junior qui avait sauvé cette femme avant de s'enfuir dans la Mer Xiu Mo.
 
-À l'origine, il ne s'en serait aucunement soucié, mais au fil du temps, à mesure que le nom de « Ceng Niu » gagnait en renommée, il en eut le frisson. Il avait reconnu Ceng Niu comme étant ce junior qui avait sauvé la cultivatrice et s'était enfui dans la Mer Xiu Mo!
+À l'origine, il ne s'en serait aucunement soucié, mais au fil du temps, à mesure que le nom de « Zeng Niu » gagnait en renommée, il en eut le frisson. Il avait reconnu Zeng Niu comme étant ce junior qui avait sauvé la cultivatrice et s'était enfui dans la Mer Xiu Mo!
 
-Ce qui le glaça davantage fut la série d'événements qui suivirent. Ce Ceng Niu avait brillé lors de la guerre entre le Clan Xian Yi et le pays de Suzaku. Par la suite, il apprit que la position actuelle de Suzaku avait été offerte à Zhou Wutai par Ceng Niu, qui n'était autre que Wang Lin. Tout cela l'avait rendu extrêmement méfiant, et ce n'est qu'après le départ de Wang Lin de la planète Suzaku qu'il s'était enfin détendu.
+Ce qui le glaça davantage fut la série d'événements qui suivirent. Ce Zeng Niu avait brillé lors de la guerre entre le Clan Xian Yi et le pays de Suzaku. Par la suite, il apprit que la position actuelle de Suzaku avait été offerte à Zhou Wutai par Zeng Niu, qui n'était autre que Wang Lin. Tout cela l'avait rendu extrêmement méfiant, et ce n'est qu'après le départ de Wang Lin de la planète Suzaku qu'il s'était enfin détendu.
 
 Cependant, il n'aurait jamais imaginé croiser la route de Wang Lin aujourd'hui!
 

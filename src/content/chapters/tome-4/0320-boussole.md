@@ -76,9 +76,9 @@ Wang Lin sourit. « C'est vrai. Cependant, j'aurai besoin de cette boussole pour
 
 Chi Hu fixa Wang Lin, se demandant secrètement si ce dernier disait la vérité ou s'il mentait. Finalement, il rit soudainement et cessa de réfléchir. Que les paroles de Wang Lin fussent vraies ou mensongères, le sens restait identique.
 
-« Si Ceng Niu essaie de me forcer ou de me tromper, même si je lui donne la boussole, je ne serais pas heureux. Et si cela arrive et que je sors d'ici vivant, je trouverai un moyen de me venger. Cependant, sa façon de parler est empreinte de sincérité. Il me considère véritablement comme un ami. »
+« Si Zeng Niu essaie de me forcer ou de me tromper, même si je lui donne la boussole, je ne serais pas heureux. Et si cela arrive et que je sors d'ici vivant, je trouverai un moyen de me venger. Cependant, sa façon de parler est empreinte de sincérité. Il me considère véritablement comme un ami. »
 
-« De plus, la culture de Ceng Niu est terrifiante. Il a aussi reçu le cristal Ascendant de Zhou Yi, ce qui fait de lui la personne de ma génération la plus susceptible d'atteindre le stade Ascendant. Si je me lie d'amitié avec lui maintenant, il pourrait aider mon clan à l'avenir. »
+« De plus, la culture de Zeng Niu est terrifiante. Il a aussi reçu le cristal Ascendant de Zhou Yi, ce qui fait de lui la personne de ma génération la plus susceptible d'atteindre le stade Ascendant. Si je me lie d'amitié avec lui maintenant, il pourrait aider mon clan à l'avenir. »
 
 Pensant cela, il dit avec un certain regret: « Frère Ceng, puisque vous me considérez comme un ami, comment pourrais-je être avare? Si vous deviez essayer de l'emprunter plus tard, avec le tempérament des vieux sages chez moi, ils ne vous la prêteraient jamais facilement. Autant vous l'offrir dès aujourd'hui! »
 
@@ -108,11 +108,11 @@ Chi Hu restait extrêmement vigilant, son sens divin déployé. Il pouvait remar
 
 Chi Hu ne regardait absolument pas les sceaux et les techniques utilisés par Wang Lin. Il maintenait une zone de protection de 66 mètres autour de celui-ci où son sens divin n'intervenait pas.
 
-« Puisque Ceng Niu a de bonnes intentions et me fait confiance, comment pourrais-je, moi Chi Hu, qui me targue d'être un homme d'honneur, le laisser inquiet? De plus, ce cristal Ascendant est un cadeau de Zhou Yi, il doit donc comporter des restrictions. Même si je l'obtenais, cela m'attirerait bien des ennuis à l'avenir. La famille Ceng compte de nombreux membres puissants, je ne peux pas provoquer un tel désastre pour mon clan. De plus, même en utilisant le trésor secret de mon clan, j'estime n'avoir que 50 % de chances de gagner; il vaut donc mieux ne pas agir pour l'instant. »
+« Puisque Zeng Niu a de bonnes intentions et me fait confiance, comment pourrais-je, moi Chi Hu, qui me targue d'être un homme d'honneur, le laisser inquiet? De plus, ce cristal Ascendant est un cadeau de Zhou Yi, il doit donc comporter des restrictions. Même si je l'obtenais, cela m'attirerait bien des ennuis à l'avenir. La famille Ceng compte de nombreux membres puissants, je ne peux pas provoquer un tel désastre pour mon clan. De plus, même en utilisant le trésor secret de mon clan, j'estime n'avoir que 50 % de chances de gagner; il vaut donc mieux ne pas agir pour l'instant. »
 
 Sun Tai les observait à distance, hors de leur portée de détection.
 
-« Ce Ceng Niu sait même réparer une boussole stellaire. Il n'est pas simple! Si j'agis maintenant, je suis sûr à 70 % de pouvoir le maîtriser avant qu'il ne puisse faire quoi que ce soit. Cependant, si j'agis sans une certitude de 100 %, cela pourrait me coûter quelque chose que je ne peux pas me permettre de perdre... Difficile... Difficile... Ce sceau d'esclave est tout simplement trop puissant; pouvoir détruire mon âme par une simple pensée... C'est bien trop dangereux pour moi de prendre ce risque. »
+« Ce Zeng Niu sait même réparer une boussole stellaire. Il n'est pas simple! Si j'agis maintenant, je suis sûr à 70 % de pouvoir le maîtriser avant qu'il ne puisse faire quoi que ce soit. Cependant, si j'agis sans une certitude de 100 %, cela pourrait me coûter quelque chose que je ne peux pas me permettre de perdre... Difficile... Difficile... Ce sceau d'esclave est tout simplement trop puissant; pouvoir détruire mon âme par une simple pensée... C'est bien trop dangereux pour moi de prendre ce risque. »
 
 Ses yeux trahissaient une hésitation. Après un long moment, il laissa échapper un soupir et renonça à ce pari. Cette troisième âme était son âme principale; à moins d'une nécessité absolue, cela ne valait pas le risque.
 

@@ -34,15 +34,15 @@ L'homme âgé se tint devant la jeune fille. Très prudent, il répondit respect
 
 Wang Lin eut un léger sourire et dit: « Raconte-moi tout ce qui s'est passé. »
 
-Avant que l'homme ne puisse prendre la parole, la jeune fille derrière lui s'exclama immédiatement: « Le plus important est, bien sûr, cet individu nommé Ceng Niu! »
+Avant que l'homme ne puisse prendre la parole, la jeune fille derrière lui s'exclama immédiatement: « Le plus important est, bien sûr, cet individu nommé Zeng Niu! »
 
-« Ceng Niu? » Wang Lin fut surpris. Il se frotta le nez et comprit instantanément de quoi il s'agissait.
+« Zeng Niu? » Wang Lin fut surpris. Il se frotta le nez et comprit instantanément de quoi il s'agissait.
 
-Ignorant le regard réprobateur de son maître, la jeune fille poursuivit avec empressement: « C'est exact! La chose la plus marquante à Suzaku actuellement est Ceng Niu. Hongdie a perdu un bras à cause de lui! »
+Ignorant le regard réprobateur de son maître, la jeune fille poursuivit avec empressement: « C'est exact! La chose la plus marquante à Suzaku actuellement est Zeng Niu. Hongdie a perdu un bras à cause de lui! »
 
-Wang Lin réfléchit un instant avant d'esquisser un sourire discret. Il s'y attendait, et l'annonce ne le choqua guère. Au lieu de cela, il demanda nonchalamment: « À quoi ressemble ce Ceng Niu? Est-il recherché par Suzaku? »
+Wang Lin réfléchit un instant avant d'esquisser un sourire discret. Il s'y attendait, et l'annonce ne le choqua guère. Au lieu de cela, il demanda nonchalamment: « À quoi ressemble ce Zeng Niu? Est-il recherché par Suzaku? »
 
-La jeune fille s'apprêtait à répondre quand son maître l'interrompit. L'homme âgé scruta attentivement Wang Lin et déclara: « Senior, Suzaku n'a émis aucun ordre d'arrestation pour Ceng Niu. »
+La jeune fille s'apprêtait à répondre quand son maître l'interrompit. L'homme âgé scruta attentivement Wang Lin et déclara: « Senior, Suzaku n'a émis aucun ordre d'arrestation pour Zeng Niu. »
 
 Wang Lin eut un petit rire. Il dévisagea la jeune fille au-delà de l'homme, sortit une fiole de pilules de son sac, la lui lança et sourit: « Cette petite est franche et spontanée, pas mal du tout, bien mieux que ton maître. Cette fiole de pilules t'aidera à atteindre le stade de la Formation du Noyau. C'est mon cadeau pour toi. » Sur ces mots, Wang Lin disparut.
 

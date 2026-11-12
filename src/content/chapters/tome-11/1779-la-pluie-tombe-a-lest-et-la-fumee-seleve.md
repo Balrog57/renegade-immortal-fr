@@ -46,11 +46,11 @@ En contemplant son reflet dans la rivière, Wang Lin gardait une expression étr
 
 « Après être entré dans la cinquième fleur, formée par les souvenirs du Souverain aux Sept Couleurs, je suis devenu lui... » Wang Lin détourna le regard et leva les yeux vers le ciel. À ses oreilles, le son des cloches de la grande salle commença à résonner de nouveau.
 
-« Continent Astral Immortel... Cet endroit est le Continent Astral Immortel. Je ne m'attendais pas à fouler le sol du Continent Astral Immortel par l'intermédiaire des souvenirs du Souverain aux Sept Couleurs. » Wang Lin leva les yeux vers les neuf soleils et esquissa un sourire amer.
+« Continent Xian Gang... Cet endroit est le Continent Xian Gang. Je ne m'attendais pas à fouler le sol du Continent Xian Gang par l'intermédiaire des souvenirs du Souverain aux Sept Couleurs. » Wang Lin leva les yeux vers les neuf soleils et esquissa un sourire amer.
 
 Ce monde appartenait au Souverain aux Sept Couleurs; il était façonné par ses souvenirs. On pourrait dire que tout ici n'était qu'une illusion, mais tout ce qu'elle contenait s'était réellement produit et avait existé à l'époque.
 
-« Les sectes du Continent Astral Immortel ne sont pas comparables à celles du monde de la grotte... » Wang Lin toucha la robe dao qu'il portait. La protection qu'elle offrait pouvait bloquer l'attaque à pleine puissance d'un cultivateur Ascendant.
+« Les sectes du Continent Xian Gang ne sont pas comparables à celles du monde de la grotte... » Wang Lin toucha la robe dao qu'il portait. La protection qu'elle offrait pouvait bloquer l'attaque à pleine puissance d'un cultivateur Ascendant.
 
 « Cependant, comment trouver la vraie porte... Peut-être que seule la troisième âme le sait... Mon apparence actuelle est également due à cette troisième âme, mais je sens que je ne me suis pas encore totalement intégré à elle... »
 
@@ -92,7 +92,7 @@ Le jeune homme porta la main à son cou et haleta pour reprendre son souffle. Il
 
 Le sentier de montagne était sinueux, chaque pas donnant l'impression de marcher sur des nuages. Tandis que Wang Lin montait vers le sommet, le vent faisait flotter ses longs cheveux. L'odeur de la terre pénétra son cœur, lui apportant un grand confort.
 
-« Avec l'énergie céleste qui nourrit toute vie, davantage d'êtres sont aptes à cultiver leur essence céleste. Même l'herbe et les arbres acquièrent une âme. Il existe même des bêtes féroces qui se transforment en humains... » Bien que Wang Lin sût que cette énergie et cette odeur n'étaient qu'une illusion, cela signifiait que le véritable Continent Astral Immortel devait être ainsi.
+« Avec l'énergie céleste qui nourrit toute vie, davantage d'êtres sont aptes à cultiver leur essence céleste. Même l'herbe et les arbres acquièrent une âme. Il existe même des bêtes féroces qui se transforment en humains... » Bien que Wang Lin sût que cette énergie et cette odeur n'étaient qu'une illusion, cela signifiait que le véritable Continent Xian Gang devait être ainsi.
 
 C'était un monde radicalement différent du monde de la grotte.
 

@@ -18,7 +18,7 @@ Si l'équilibre pouvait être maintenu, tout irait bien. Mais si cet équilibre 
 
 À moins que le clan Ancien ne battât en retraite, n'osant plus combattre hors de la portée de Gu Dao!
 
-Nul ne savait quand le Royaume Divin Immémorial était apparu; il semblait être encore plus ancien que le Continent Astral Immortel. Même l'Ancêtre Céleste et l'Ancêtre Ancien, nés du vide, ne connaissaient pas tout de ce Royaume Divin Immémorial.
+Nul ne savait quand le Royaume Divin Immémorial était apparu; il semblait être encore plus ancien que le Continent Xian Gang. Même l'Ancêtre Céleste et l'Ancêtre Ancien, nés du vide, ne connaissaient pas tout de ce Royaume Divin Immémorial.
 
 Wang Lin était assis au bord de la tempête marine, contemplant la porte formée par d'immenses piliers. La porte était fermée hermétiquement et allait bientôt s'ouvrir.
 
@@ -38,13 +38,13 @@ Les trois éclats de lumière se rapprochèrent instantanément pour prendre la 
 
 Le Grand Empyréen Ancien Ji resta également silencieux, songeur, avant de joindre respectueusement les mains devant Wang Lin.
 
-Ils avaient appris, il y a trois cents ans, que l'être le plus puissant du Continent Astral Immortel n'était plus le Grand Empyréen Gu Dao, mais cet homme nommé Wang Lin qui se tenait devant eux.
+Ils avaient appris, il y a trois cents ans, que l'être le plus puissant du Continent Xian Gang n'était plus le Grand Empyréen Gu Dao, mais cet homme nommé Wang Lin qui se tenait devant eux.
 
 Après avoir été témoins de cette bataille trois siècles plus tôt, ils s'étaient rendus au mont Gu Dao pour interroger personnellement le Grand Empyréen Gu Dao. Ils avaient reçu la même réponse que celle qu'ils avaient constatée de leurs propres yeux.
 
 Xuan Luo était bien plus âgé qu'autrefois, mais un sourire étirait ses lèvres. Il regarda son ancien disciple et ressentit une pointe de fierté en voyant Wang Lin devenir si puissant.
 
-Il s'apprêtait à joindre les mains avec Song Tian. Après tout, sur le Continent Astral Immortel, la force imposait le respect.
+Il s'apprêtait à joindre les mains avec Song Tian. Après tout, sur le Continent Xian Gang, la force imposait le respect.
 
 Cependant, au moment même de leur arrivée, Wang Lin se leva. Si Song Tian et le Grand Empyréen Ancien Ji étaient seuls, il n'aurait pas agi ainsi. Mais en présence de Xuan Luo, Wang Lin n'hésita pas à s'incliner devant ce dernier en premier.
 
@@ -52,15 +52,15 @@ Cependant, au moment même de leur arrivée, Wang Lin se leva. Si Song Tian et l
 
 En voyant cela, Song Tian et le Grand Empyréen Ancien Ji furent stupéfaits. Ils avaient vu trop de relations maître-disciple où le disciple finissait par trahir son mentor. Trop de fois, le disciple devenait plus puissant et cessait de respecter son maître; même quand il le faisait, ce n'était qu'en apparence.
 
-Pourtant, la sincérité de Wang Lin était palpable pour eux deux. En tant qu'être le plus puissant du Continent Astral Immortel, il était normal que Xuan Luo s'incline devant Wang Lin. De toute façon, ils avaient rompu leur lien maître-disciple au palais Dao Ancien.
+Pourtant, la sincérité de Wang Lin était palpable pour eux deux. En tant qu'être le plus puissant du Continent Xian Gang, il était normal que Xuan Luo s'incline devant Wang Lin. De toute façon, ils avaient rompu leur lien maître-disciple au palais Dao Ancien.
 
-Wang Lin regarda Xuan Luo, son maître, qui paraissait vieilli. Comment pourrait-il demander à son maître de s'incliner devant lui? Même s'il était le plus fort du Continent Astral Immortel et qu'il pourrait l'être encore davantage à l'avenir, il ne pouvait se montrer ingrat.
+Wang Lin regarda Xuan Luo, son maître, qui paraissait vieilli. Comment pourrait-il demander à son maître de s'incliner devant lui? Même s'il était le plus fort du Continent Xian Gang et qu'il pourrait l'être encore davantage à l'avenir, il ne pouvait se montrer ingrat.
 
 Xuan Luo ouvrit la bouche comme pour dire quelque chose, mais finit par sourire et hocha la tête vers Wang Lin.
 
 Grâce au respect dont Wang Lin fit preuve envers Xuan Luo durant les jours suivants, Song Tian et le Grand Empyréen Ancien Ji traitèrent ce dernier différemment. Ils auraient dû être ses égaux, mais ils lui témoignaient désormais une certaine déférence.
 
-Le simple fait que Wang Lin, l'être le plus puissant du Continent Astral Immortel ayant vaincu Gu Dao, l'appelle « Maître », suffisait à tout changer.
+Le simple fait que Wang Lin, l'être le plus puissant du Continent Xian Gang ayant vaincu Gu Dao, l'appelle « Maître », suffisait à tout changer.
 
 Quinze jours avant l'ouverture du Royaume Divin Immémorial, un changement radical survint dans la tempête marine. Son grondement tonitruant fut multiplié en un instant et devint assourdissant. Le fracas était tel qu'il pouvait tuer les mortels, et même certains cultivateurs plus faibles ne pouvaient l'endurer. Ceux qui en subissaient les effets légers finissaient avec des blessures au cœur et au corps, tandis que les cas les plus graves voyaient leur organisme exploser.
 

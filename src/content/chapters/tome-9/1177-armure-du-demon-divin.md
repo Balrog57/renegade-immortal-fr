@@ -32,7 +32,7 @@ Le départ de Li Qianmei et l'étalage de ses cheveux bleus révélèrent son id
 
 Elle n'était pas obligée de le faire, mais elle l'avait fait.
 
-Le génie de la Secte Brise-Ciel de rang 9, Li Qianmei, s'était assise aux côtés de Wang Lin et avait même reçu une peinture de sa part. Ce geste fut vu par tous les cultivateurs environnants.
+Le génie de la Secte Po Tian de rang 9, Li Qianmei, s'était assise aux côtés de Wang Lin et avait même reçu une peinture de sa part. Ce geste fut vu par tous les cultivateurs environnants.
 
 Li Qianmei avait utilisé cette méthode pour apporter la réponse à la question de savoir si Wang Lin était un membre de la Secte Divine.
 

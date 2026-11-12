@@ -24,7 +24,7 @@ Et ce qui avait été pêché, c’était la planète Suzaku et Wang Lin lui-mê
 
 La concubine impériale céleste qui n'avait pas péri se tenait hébétée entre eux deux. Elle recula de quelques pas, plongée dans le silence.
 
-L'homme en robe noire sembla sourire et dit d'une voix rauque: « Si Rêve Bleu n'avait pas eu pitié de vous, vous seriez déjà devenu le pion de ce vieil homme. » Il referma ensuite la main droite, et la flèche trembla avant de se dissiper dans sa main.
+L'homme en robe noire sembla sourire et dit d'une voix rauque: « Si Lanmeng n'avait pas eu pitié de vous, vous seriez déjà devenu le pion de ce vieil homme. » Il referma ensuite la main droite, et la flèche trembla avant de se dissiper dans sa main.
 
 Il redoutait la puissance de cette flèche, c'est pourquoi il avait retardé son apparition. Il avait attendu que Wang Lin utilise l'arme pour se révéler.
 

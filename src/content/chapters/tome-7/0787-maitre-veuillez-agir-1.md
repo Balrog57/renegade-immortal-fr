@@ -14,7 +14,7 @@ En voyant cet étrange individu foncer vers la porte céleste, nul n'osa s'inter
 
 D'un geste du doigt, il projeta les lames vers l'inconnu aux cheveux blancs.
 
-« Compagnons cultivateurs, agissez! Empêchez cet homme d'atteindre la porte, sinon aucun d'entre nous ne pourra s'échapper! »
+« Daoïstes, agissez! Empêchez cet homme d'atteindre la porte, sinon aucun d'entre nous ne pourra s'échapper! »
 
 Derrière l'homme en robe dorée, plusieurs cultivateurs serrèrent les dents. Ils sortirent tous leurs trésors et se ruèrent à la charge.
 

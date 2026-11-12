@@ -32,7 +32,7 @@ Du Qing avait passé plusieurs Tribulations Arcaniques, mais il les avait affron
 
 Néanmoins, plus on progressait, plus l'épreuve devenait une lutte entre la vie et la mort, finissant par se transformer en un véritable cauchemar. Une fois entré dans le stade de la Tribulation Arcanique, même si l'on ne souhaitait pas les affronter, elles finiraient par survenir. Elles devenaient alors un signe de mort imminente.
 
-Sur le Continent Astral Immortel, quelqu'un avait calculé les probabilités et, bien que ce ne fût pas une certitude, la première Tribulation Arcanique présentait 10 % de chances de mort. Ce chiffre augmentait jusqu'à la neuvième étape, où les chances de mourir atteignaient 90 %.
+Sur le Continent Xian Gang, quelqu'un avait calculé les probabilités et, bien que ce ne fût pas une certitude, la première Tribulation Arcanique présentait 10 % de chances de mort. Ce chiffre augmentait jusqu'à la neuvième étape, où les chances de mourir atteignaient 90 %.
 
 Sur cette base, surmonter neuf Tribulations Arcaniques d'un coup nécessitait non seulement une force colossale, mais aussi une part considérable de chance.
 
@@ -90,7 +90,7 @@ Par ce mouvement, son Corps Véritable des Cinq Éléments s'activa. Une ombre s
 
 Au moment où le Corps Véritable des Cinq Éléments émergea, Wang Lin s'assit sur la queue du gigantesque scorpion. Il fit un geste de la main droite et une cruche de vin apparut dans sa paume. Cette cruche, remplie d'un alcool fort du monde mortel, venait du Continent Tian Niu. Il porta la cruche à ses lèvres et prit une longue gorgée.
 
-Sa silhouette dégageait une profonde mélancolie alors qu'il restait assis là, ses cheveux blancs flottant au vent. Son apparence rappelait celle de l'homme d'âge moyen en robe noire, assis sur cette statue brisée loin du Continent Astral Immortel.
+Sa silhouette dégageait une profonde mélancolie alors qu'il restait assis là, ses cheveux blancs flottant au vent. Son apparence rappelait celle de l'homme d'âge moyen en robe noire, assis sur cette statue brisée loin du Continent Xian Gang.
 
 Seul, mélancolique et indifférent.
 

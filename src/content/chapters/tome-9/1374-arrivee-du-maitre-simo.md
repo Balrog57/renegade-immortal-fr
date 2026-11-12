@@ -8,31 +8,31 @@ slug: arrivee-du-maitre-simo
 ---
 Dès que le vieil homme sortit le Cristal de Mutation de Feu Déchaîné, Wang Lin le reconnut. Il l'avait déjà vu auparavant et avait même passé plusieurs années à se soigner grâce à lui.
 
-Dans le Système Stellaire de l'Alliance, au plus profond de l'espace ardent de la Secte Divine de l'Oiseau Vermillon, flottait une grande pierre blanche. C'était là que l'ancien Empereur Divin cultivait.
+Dans le Système Stellaire de l'Alliance, au plus profond de l'espace ardent de la Secte Divine de Suzaku, flottait une grande pierre blanche. C'était là que l'ancien Empereur Divin cultivait.
 
 Le Cristal de Mutation de Feu Déchaîné des Terres Déchues était exactement le même que cette pierre blanche!
 
-« Se pourrait-il que le Grand Empereur soit lié à la Secte Zhu Que... » Wang Lin n'éprouvait pas beaucoup d'affection pour la Secte Zhu Que. Cependant, il devait énormément à l'ancien Empereur Divin de l'Oiseau Vermillon, et c'était une dette de gratitude que Wang Lin ne pouvait tout simplement pas oublier.
+« Se pourrait-il que le Grand Empereur soit lié à la Secte Zhu Que... » Wang Lin n'éprouvait pas beaucoup d'affection pour la Secte Zhu Que. Cependant, il devait énormément à l'ancien Empereur Divin de Suzaku, et c'était une dette de gratitude que Wang Lin ne pouvait tout simplement pas oublier.
 
 L'esprit du vieil Empereur Divin et ses dizaines de milliers d'années de dévouement silencieux remplissaient le cœur de Wang Lin de respect. Aux yeux de ce dernier, le vieil Empereur Divin était du même genre que le Seigneur du Domaine Scellé. La seule différence était que l'un gardait les Quatre Sectes Divines, tandis que l'autre gardait tout le Royaume Intérieur.
 
 Ce qui excitait tant Wang Lin était ce que le vieil Empereur Divin lui avait confié avant de retourner au néant.
 
-« Je m'appelle Lu Yun, et je suis né dans le monde antique des raffineurs de Qi. Je suis devenu l'apprenti alchimiste de la quatrième génération de l'Empereur Divin de l'Oiseau Vermillon. Je suis reconnaissant envers le quatrième Empereur de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 372 ans, j'ai accompli certains exploits en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de ma Secte Divine de l'Oiseau Vermillon...
+« Je m'appelle Lu Yun, et je suis né dans le monde antique des raffineurs de Qi. Je suis devenu l'apprenti alchimiste de la quatrième génération de l'Empereur Divin de Suzaku. Je suis reconnaissant envers le quatrième Empereur de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 372 ans, j'ai accompli certains exploits en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de ma Secte Divine de Suzaku...
 
-À l'âge de 11 463 ans, le Clan Fu Wen est venu du monde extérieur et a semé le chaos dans le ciel et la terre. Ma Secte Divine de l'Oiseau Vermillon a aidé le Royaume Céleste à combattre le Clan Fu Wen! Par la suite, le quatrième Empereur Divin est parti avec les trois autres Empereurs Divins pour rejoindre le monde extérieur. Avant leur départ, j'ai été désigné comme le cinquième Empereur Divin de l'Oiseau Vermillon! »
+À l'âge de 11 463 ans, le Clan Fu Wen est venu du monde extérieur et a semé le chaos dans le ciel et la terre. Ma Secte Divine de Suzaku a aidé le Royaume Céleste à combattre le Clan Fu Wen! Par la suite, le quatrième Empereur Divin est parti avec les trois autres Empereurs Divins pour rejoindre le monde extérieur. Avant leur départ, j'ai été désigné comme le cinquième Empereur Divin de Suzaku! »
 
 Le regard de Wang Lin restait fixé sur le petit Cristal de Mutation de Feu Déchaîné, et ses yeux s'illuminèrent.
 
-« Le vieil Empereur Divin a dit que la quatrième génération de l'Empereur Divin est partie avec les trois autres vers le Monde Extérieur, puis il n'a plus jamais eu de leurs nouvelles... Et le Grand Empereur des Terres Déchues possède un objet de la Secte Divine de l'Oiseau Vermillon... Se pourrait-il que la quatrième génération de l'Empereur Divin soit venue dans ces Terres Déchues à cette époque?
+« Le vieil Empereur Divin a dit que la quatrième génération de l'Empereur Divin est partie avec les trois autres vers le Monde Extérieur, puis il n'a plus jamais eu de leurs nouvelles... Et le Grand Empereur des Terres Déchues possède un objet de la Secte Divine de Suzaku... Se pourrait-il que la quatrième génération de l'Empereur Divin soit venue dans ces Terres Déchues à cette époque?
 
 En observant la chronologie, cela ne semble pas cohérent... » Wang Lin réprima son excitation initiale et commença à réfléchir. Après un long moment, il n'était toujours pas certain et laissa échapper un profond soupir.
 
-« Je le saurai tôt ou tard. Je ne m'attendais pas à ce qu'un tel secret puisse être découvert ici, dans les Terres Déchues... Si cet endroit est réellement lié au quatrième Empereur Divin de l'Oiseau Vermillon, alors je pourrai peut-être accomplir mon quatrième éveil ici! Mon feu passera de l'état de feu réel à celui de feu éthéré, capable d'attiser la colère de tous mes ennemis et de les faire s'immoler eux-mêmes!
+« Je le saurai tôt ou tard. Je ne m'attendais pas à ce qu'un tel secret puisse être découvert ici, dans les Terres Déchues... Si cet endroit est réellement lié au quatrième Empereur Divin de Suzaku, alors je pourrai peut-être accomplir mon quatrième éveil ici! Mon feu passera de l'état de feu réel à celui de feu éthéré, capable d'attiser la colère de tous mes ennemis et de les faire s'immoler eux-mêmes!
 
 Le moment venu, même si mon essence de feu n'est pas complète, l'écart avec mon feu réel actuel sera celui du ciel et de la terre! Autrefois, je ne pouvais pas percer ce cristal, mais maintenant, après mon troisième éveil, je peux faire jaillir de ce cristal, en un instant, une force destructrice capable d'anéantir le ciel et la terre! » Wang Lin agita sa main droite et rangea le cristal dans son espace de stockage.
 
-Il y avait également une statue de pierre dans son espace de stockage. Il s'agissait de la statue formant le corps du vieil Empereur Divin de l'Oiseau Vermillon. Elle maintenait la pose d'un doigt pointé entre ses sourcils.
+Il y avait également une statue de pierre dans son espace de stockage. Il s'agissait de la statue formant le corps du vieil Empereur Divin de Suzaku. Elle maintenait la pose d'un doigt pointé entre ses sourcils.
 
 Son Sens Divin balaya la statue. Après un instant de réflexion, son regard se tourna vers la marionnette.
 

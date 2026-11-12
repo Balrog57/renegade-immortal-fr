@@ -34,7 +34,7 @@ Tout ceci n'était que la première étape.
 
 La véritable calamité atteindrait son apogée au cours des trois prochaines années, ou juste après. Cet événement pourrait anéantir totalement les Royaumes Intérieur et Extérieur.
 
-Après tout, du point de vue de ces êtres du Continent Astral Immortel, même si tous les habitants de la grotte mouraient, cela n'aurait aucune importance. Tant que le Dao Céleste subsisterait, des êtres sensibles apparaîtraient. Puis, après cent millions d'années, d'innombrables formes de vie surgiraient, et parmi elles, des cultivateurs du troisième niveau lutteraient pour accroître leur puissance!
+Après tout, du point de vue de ces êtres du Continent Xian Gang, même si tous les habitants de la grotte mouraient, cela n'aurait aucune importance. Tant que le Dao Céleste subsisterait, des êtres sensibles apparaîtraient. Puis, après cent millions d'années, d'innombrables formes de vie surgiraient, et parmi elles, des cultivateurs du troisième niveau lutteraient pour accroître leur puissance!
 
 Cependant, Wang Lin n'était pas disposé à laisser faire une telle chose. Il avait son propre plan, une idée folle. L'esprit ainsi occupé, il poussa la roue des trois essences à travers le système stellaire.
 

@@ -34,11 +34,11 @@ Une telle figure ne pouvait que attirer l'attention de tous les Grands Empyréen
 
 Une fois cette nouvelle révélée, tous ceux au sein du clan céleste qui avaient entendu parler de Wang Lin furent plongés dans la confusion. Cela déclencha une nouvelle tempête de rumeurs.
 
-Durant l'année écoulée, Wang Lin était resté au sein de la Secte Yang Pourpre sans jamais en partir. De nombreux Ascendants Empyréens s'étaient précipités, peu importe la distance, pour le rencontrer et débattre du Dao avec lui.
+Durant l'année écoulée, Wang Lin était resté au sein de la Secte Zi Yang sans jamais en partir. De nombreux Ascendants Empyréens s'étaient précipités, peu importe la distance, pour le rencontrer et débattre du Dao avec lui.
 
-Ceux qui venaient et repartaient repartaient grandement admiratifs, habités par un respect croissant. Cependant, certains choisirent de rester dans la Secte Yang Pourpre; il semblait que leurs échanges avec Wang Lin leur avaient apporté une immense récolte spirituelle.
+Ceux qui venaient et repartaient repartaient grandement admiratifs, habités par un respect croissant. Cependant, certains choisirent de rester dans la Secte Zi Yang; il semblait que leurs échanges avec Wang Lin leur avaient apporté une immense récolte spirituelle.
 
-La Secte Yang Pourpre avait de nouveau attiré tous les regards grâce à Wang Lin!
+La Secte Zi Yang avait de nouveau attiré tous les regards grâce à Wang Lin!
 
 Les rumeurs concernant Wang Lin s'étaient lentement propagées dans les 36 pays du clan Ancien par divers moyens au fil de l'année. L'apparition du 49e Ascendant Empyréen était d'une importance capitale pour le clan Ancien, sans parler du fait que ce nouvel Ascendant Empyréen remplaçait Ming Dao en tant que plus puissant sous les Grands Empyréens!
 
@@ -70,7 +70,7 @@ Après la disparition de l'Ancêtre Ancien et de l'Ancêtre Céleste, une guerre
 
 Mais alors que la guerre atteignait son paroxysme et que les Célestes avaient envahi la moitié du territoire du clan Ancien, le Grand Empyréen Gu Dao sortit de sa méditation de porte close. Il se rendit seul chez les Célestes et, devant d'innombrables témoins, affronta deux Grands Empyréens célestes simultanément. À la fin, il tua les deux et, sur le chemin du retour, bien qu'attaqué en embuscade par un autre Grand Empyréen céleste, il parvint également à l'éliminer!
 
-Après cette bataille, le Grand Empyréen Gu Dao ébranla le Continent Astral Immortel! Ce combat força les Célestes à battre en retraite, mettant fin à la guerre.
+Après cette bataille, le Grand Empyréen Gu Dao ébranla le Continent Xian Gang! Ce combat força les Célestes à battre en retraite, mettant fin à la guerre.
 
 Des années plus tard, parce que Gu Dao était toujours en vie, il demeurait un moyen de dissuasion majeur pour le clan céleste. Même avec un Grand Empyréen de plus, ils n'osaient toujours pas envahir le clan Ancien.
 
@@ -114,13 +114,13 @@ Des ondulations se propagèrent à la surface du bassin tandis que l'Empereur C�
 
 L'Empereur Céleste sourit alors qu'il disparaissait de la chambre souterraine.
 
-La Secte Yang Pourpre du Continent de l'Est était le lieu où se trouvait Wang Lin, celui qui avait ébranlé tout le clan céleste. Actuellement, c'était l'hiver; de gros flocons, pareils à des plumes d'oie, tombaient et recouvraient la secte d'un manteau argenté.
+La Secte Zi Yang du Continent de l'Est était le lieu où se trouvait Wang Lin, celui qui avait ébranlé tout le clan céleste. Actuellement, c'était l'hiver; de gros flocons, pareils à des plumes d'oie, tombaient et recouvraient la secte d'un manteau argenté.
 
-Hormis les moments où d'autres Ascendants Empyréens venaient débattre du Dao, il avait passé toute cette année en un seul endroit: une zone interdite de la Secte Yang Pourpre.
+Hormis les moments où d'autres Ascendants Empyréens venaient débattre du Dao, il avait passé toute cette année en un seul endroit: une zone interdite de la Secte Zi Yang.
 
 C'était le Domaine Si Shou.
 
-Il en avait eu une vague perception autrefois, mais depuis son arrivée à la Secte Yang Pourpre, l'endroit avait beaucoup changé. Wang Lin avait passé la majeure partie de l'année assis au bord du Domaine Si Shou.
+Il en avait eu une vague perception autrefois, mais depuis son arrivée à la Secte Zi Yang, l'endroit avait beaucoup changé. Wang Lin avait passé la majeure partie de l'année assis au bord du Domaine Si Shou.
 
 Il sentait qu'une barrière invisible se dressait devant lui, et qu'au-delà se trouvait un lieu qui lui était familier: sa patrie, celle qui lui manquait tant... Il y avait là les gens qu'il connaissait, la terre qu'il aimait, le ciel étoilé et les planètes de culture.
 

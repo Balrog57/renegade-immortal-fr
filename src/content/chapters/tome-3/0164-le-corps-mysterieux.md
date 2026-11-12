@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 164 - The Mysterious Corpse
 slug: le-corps-mystérieux
 ---
-Parmi les quatre grandes sectes, le Sanctuaire du Dieu de la Guerre, la Secte Luo He et la Secte Xie Mo étaient seules à rester sur le pic principal. Quant à la Secte Shi Yin, après un bref séjour initial, elle avait quitté la montagne dès que le pays de culture de rang 4 eut éliminé les bêtes de feu, pour regagner l'intérieur de Huo Fen.
+Parmi les quatre grandes sectes, le Temple Zhan Shen, la Secte Luo He et la Secte Xie Mo étaient seules à rester sur le pic principal. Quant à la Secte Shi Yin, après un bref séjour initial, elle avait quitté la montagne dès que le pays de culture de rang 4 eut éliminé les bêtes de feu, pour regagner l'intérieur de Huo Fen.
 
 Ce mouvement déconcerta de nombreuses personnes. Bien que les bêtes de feu aient été nettoyées, l'énergie spirituelle y était devenue trop violente pour la culture. En conséquence, le pays entier était devenu une zone morte pour les cultivateurs.
 
@@ -26,7 +26,7 @@ Zhao Chuanliang se montrait très respectueux. Des lueurs de peur apparaissaient
 
 « Si je t'accorde quelques jours, alors qui m'en accordera à moi? L'âme numéro 4876 est un disciple de la Secte Tian Gang du pays de culture de rang 4 Tian Gang, et la branche dont je suis responsable, moi Chen, se trouve elle aussi à Tian Gang. Ils sont déjà venus réclamer leur homme. Selon mes calculs, l'âme numéro 4876 aurait déjà dû achever la fusion de sa possession. Qui vais-je leur remettre? »
 
-Zhao Chuanliang maudit intérieurement. Son visage trahissait une panique évidente et il s'empressa de dire: « Shang Zong, j'ai déjà trouvé quelques indices et j'ai découvert où l'âme numéro 4876 a disparu. D'après l'analyse des preuves, il semble qu'un disciple du Sanctuaire du Dieu de la Guerre nommé Ma Liang soit impliqué. J'ai reçu des nouvelles indiquant qu'il est apparu récemment à Xuan Wu, j'ai donc envoyé des hommes là-bas. Si vous me donnez dix jours, je serai certainement capable de découvrir la vérité. »
+Zhao Chuanliang maudit intérieurement. Son visage trahissait une panique évidente et il s'empressa de dire: « Shang Zong, j'ai déjà trouvé quelques indices et j'ai découvert où l'âme numéro 4876 a disparu. D'après l'analyse des preuves, il semble qu'un disciple du Temple Zhan Shen nommé Ma Liang soit impliqué. J'ai reçu des nouvelles indiquant qu'il est apparu récemment à Xuan Wu, j'ai donc envoyé des hommes là-bas. Si vous me donnez dix jours, je serai certainement capable de découvrir la vérité. »
 
 Le visage de l'être à l'intérieur du cristal se détendit légèrement alors qu'il regardait Zhao Chuanliang en soupirant. « Chuanliang, je t'accorde dix jours car c'est "ce" corps. Cependant, si tu n'as toujours aucun résultat dans dix jours, ne me reproche pas de signaler cela à la division du pays de culture de rang 5. Avec leur façon de fonctionner, ils annuleront certainement l'unique choix qui t'est offert une fois ton corps pris. »
 
@@ -60,9 +60,9 @@ Il tenta d'étendre son Sens Divin, mais une couche de protection sur les portes
 
 Il bondit devant l'une des portes de miroir d'eau des parois alentour et y plongea la main, ressentant une sensation de fraîcheur. Quand son bras fut enfoncé à moitié, sa main toucha un mur de pierre.
 
-Wang Lin retira sa main et commença à réfléchir. Il sortit rapidement le jade contenant les méthodes de raffinage du Sanctuaire du Dieu de la Guerre et commença à les parcourir.
+Wang Lin retira sa main et commença à réfléchir. Il sortit rapidement le jade contenant les méthodes de raffinage du Temple Zhan Shen et commença à les parcourir.
 
-Les trois étapes principales de la méthode de raffinage du Sanctuaire du Dieu de la Guerre étaient l'extraction, la fusion et la solidification. Tout raffinage de trésor magique suivait ce processus. Wang Lin trouva rapidement une technique appelée « raffinage inverse » dans le jade.
+Les trois étapes principales de la méthode de raffinage du Temple Zhan Shen étaient l'extraction, la fusion et la solidification. Tout raffinage de trésor magique suivait ce processus. Wang Lin trouva rapidement une technique appelée « raffinage inverse » dans le jade.
 
 Le raffinage inverse servait initialement aux cultivateurs pour échanger des méthodes d'affinage: il consistait à déconstruire à rebours le trésor magique de l'autre, en partant de l'étape de solidification, jusqu'à le ramener à son état initial.
 
@@ -108,7 +108,7 @@ Wang Lin retira son Sens Divin après cet examen minutieux. Ce qu'il avait vu le
 
 Il le regarda un instant avant de le rejeter dans le fourneau, qui se remit à tourner. Son regard passa ensuite à la pièce suivante. Après avoir ouvert plus de dix autres portes de la même manière, son expression devint de plus en plus troublée.
 
-Wang Lin murmura pour lui-même: « Que diable fabrique le Sanctuaire du Dieu de la Guerre? Cet endroit est-il une tombe? » Chaque pièce de pierre ne contenait rien d'autre qu'un cadavre.
+Wang Lin murmura pour lui-même: « Que diable fabrique le Temple Zhan Shen? Cet endroit est-il une tombe? » Chaque pièce de pierre ne contenait rien d'autre qu'un cadavre.
 
 Il commença à réfléchir tout en explorant les lieux. Il ouvrait rapidement les portes, vérifiait l'intérieur, puis remettait les noyaux spirituels en place pour restaurer l'état normal des portes. Après avoir inspecté chaque salle, il finit par trouver une anomalie.
 
@@ -120,7 +120,7 @@ Alors qu'il s'apprêtait à sortir, il remarqua un sac de tissu noir brodé de f
 
 Une fois hors de la pièce, il observa le fourneau de réaction. La rotation avait ralenti et le noyau spirituel s'était transformé en un liquide limpide. Sans hésiter, Wang Lin y plongea la main. Il en préleva la plus grande partie, la pétrit entre ses mains, y imprima une formule spirituelle et la lança contre la paroi extérieure de la première chambre qu'il avait ouverte. Celle-ci retrouva instantanément son état initial.
 
-Il affichait alors une expression indécise. Ce sac de stockage semblait bien différent de ceux qu'il connaissait. Cependant, il se trouvait sur les terres du Sanctuaire du Dieu de la Guerre. Ils lui avaient permis d'étudier le Chemin Divin; il serait difficile de justifier le vol d'un objet ici.
+Il affichait alors une expression indécise. Ce sac de stockage semblait bien différent de ceux qu'il connaissait. Cependant, il se trouvait sur les terres du Temple Zhan Shen. Ils lui avaient permis d'étudier le Chemin Divin; il serait difficile de justifier le vol d'un objet ici.
 
 Si les salles contenaient des matériaux de raffinage, il n'aurait pas hésité, mais seule cette salle était singulière. Soudain, une intuition le frappa: et si tous les cadavres de ces pièces servaient en fait de ressources de culture pour la personne dans la salle anormale?
 
@@ -128,7 +128,7 @@ Une pensée supplémentaire le traversa: le gaz noir entrant dans le corps de ce
 
 Le visage de Wang Lin se remplit d'effroi. Il était désormais convaincu à 90 % que sa théorie était juste. Cette personne pratiquait une technique occulte en utilisant les cadavres des centaines de salles environnantes comme réserve.
 
-Wang Lin commença à suspecter que cet individu n'était pas un membre du Sanctuaire du Dieu de la Guerre. Il est probable que le Sanctuaire ignore même son existence, sans quoi l'Ancien au visage rouge ne serait pas si nonchalant, et surtout, il n'aurait pas laissé Wang Lin seul ici.
+Wang Lin commença à suspecter que cet individu n'était pas un membre du Temple Zhan Shen. Il est probable que le Sanctuaire ignore même son existence, sans quoi l'Ancien au visage rouge ne serait pas si nonchalant, et surtout, il n'aurait pas laissé Wang Lin seul ici.
 
 Bien sûr, une intention malveillante de l'Ancien était possible, mais après réflexion, la mort de Wang Lin n'apporterait aucun bénéfice au Sanctuaire. Il n'y avait aucune raison d'engager de tels efforts pour cela.
 
@@ -146,7 +146,7 @@ L'Ancien le regarda et dit d'une voix profonde: « Tu es resté sept jours à l'
 
 Wang Lin secoua la tête avec un sourire amer. « Le Chemin Divin est bien trop étrange. Je n'arrêtais pas d'oublier ce que je lisais et je n'ai pu le comprendre. Senior, je voudrais vous demander: qu'y a-t-il exactement dans ces salles de pierre scellées par les portes de miroir d'eau? Pouvez-vous me le dire? »
 
-L'Ancien au visage rouge répondit simplement: « Tous les ancêtres du Sanctuaire du Dieu de la Guerre sont placés dans une salle de pierre après leur mort. »
+L'Ancien au visage rouge répondit simplement: « Tous les ancêtres du Temple Zhan Shen sont placés dans une salle de pierre après leur mort. »
 
 Le visage de Wang Lin resta impassible, mais son cœur trembla. Sa supposition était confirmée. Il joignit les mains et dit: « Ce junior ne vous dérangera plus. Adieu! »
 

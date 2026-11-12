@@ -104,7 +104,7 @@ La main droite de Wang Lin s'étira dans le vide et saisit le parchemin des main
 
 « Un cadeau pour toi! », dit Wang Lin en lui tendant la peinture.
 
-Li Qianmei resta pensive. Après un long moment, elle sourit et accepta le présent. Elle se leva, mordillant sa lèvre inférieure, et murmura: « Si jamais tu trouves l'homme que ma Secte Brise-Ciel cherche, transmets-lui ce message: la Secte Brise-Ciel l'accueille. »
+Li Qianmei resta pensive. Après un long moment, elle sourit et accepta le présent. Elle se leva, mordillant sa lèvre inférieure, et murmura: « Si jamais tu trouves l'homme que ma Secte Po Tian cherche, transmets-lui ce message: la Secte Po Tian l'accueille. »
 
 Une fois ses paroles prononcées, elle ne regarda plus Wang Lin et s'élança telle un papillon dansant. Ses cheveux noirs se transformèrent soudainement en une magnifique teinte bleue et elle disparut progressivement sous les yeux des cultivateurs. Elle tenait toujours la peinture contre elle.
 

@@ -6,9 +6,9 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 421 - Soul Transformation
 slug: transformation-de-lame
 ---
-Wang Lin était assis en position du lotus à l'intérieur de la grotte et sortit le sac que Du Tian lui avait donné. Après l'avoir parcouru de son sens divin, son expression devint étrange.
+Wang Lin était assis en position du lotus à l'intérieur de la grotte et sortit le sac que Dun Tian lui avait donné. Après l'avoir parcouru de son sens divin, son expression devint étrange.
 
-Il savait que Du Tian avait amassé une grande quantité de jades célestes, mais il ne les avait jamais vus de ses propres yeux et n'en connaissait pas le nombre exact. Chaque fois que les sectes remettaient des jades célestes, Du Tian les rangeait instantanément dans ce sac.
+Il savait que Dun Tian avait amassé une grande quantité de jades célestes, mais il ne les avait jamais vus de ses propres yeux et n'en connaissait pas le nombre exact. Chaque fois que les sectes remettaient des jades célestes, Dun Tian les rangeait instantanément dans ce sac.
 
 En les découvrant maintenant, il ne put s'empêcher d'être frappé par la stupeur.
 
@@ -74,7 +74,7 @@ Ce processus de transmutation dura un temps indéterminé. Durant toute cette p�
 
 Puis, un jour, son corps commença à exhaler un parfum. Cette fragrance était enivrante, comme si une herbe spirituelle venait d'être déterrée.
 
-Le parfum s'échappa de la grotte, faisant briller les yeux de Du Tian. Un éclat d'admiration passa dans son regard et il soupira: « La première étape de la Transformation de l'Âme — la condensation du corps — est achevée. Place maintenant à la seconde: la condensation de l'âme originelle. »
+Le parfum s'échappa de la grotte, faisant briller les yeux de Dun Tian. Un éclat d'admiration passa dans son regard et il soupira: « La première étape de la Transformation de l'Âme — la condensation du corps — est achevée. Place maintenant à la seconde: la condensation de l'âme originelle. »
 
 Il exécuta un sceau manuel, et une lumière noire enveloppa immédiatement la grotte pour empêcher la fragrance de se propager.
 
@@ -82,7 +82,7 @@ Il exécuta un sceau manuel, et une lumière noire enveloppa immédiatement la g
 
 « Je ne crains pas non plus les bêtes. La formation de protection de la Secte peut les tenir à distance. Aucune bête capable de me faire reculer n'a encore été repérée sur toute la planète Suzaku. »
 
-Cette épreuve périlleuse pour atteindre le stade de la Transformation de l'Âme n'était rien pour Wang Lin sous la protection de Du Tian, mais elle représentait une menace mortelle pour les cultivateurs marginaux ou les faibles sectes.
+Cette épreuve périlleuse pour atteindre le stade de la Transformation de l'Âme n'était rien pour Wang Lin sous la protection de Dun Tian, mais elle représentait une menace mortelle pour les cultivateurs marginaux ou les faibles sectes.
 
 Lors de cette transformation, l'âme originelle est expulsée, laissant le corps sans défense. Si des démons ou des âmes puissantes rôdent, ils peuvent aisément posséder ou dévorer l'enveloppe.
 
@@ -98,25 +98,25 @@ Un sentiment d'un confort absolu envahit l'âme de Wang Lin. Il sentait l'énerg
 
 Le processus pour rendre une âme originelle corporelle est extrêmement long.
 
-À l'extérieur de la grotte, les yeux de Du Tian brillèrent alors qu'il agissait de sa main droite. Une âme primaire dorée et pourpre s'élança, captura une âme noire errante et la traîna dans le drapeau d'âmes.
+À l'extérieur de la grotte, les yeux de Dun Tian brillèrent alors qu'il agissait de sa main droite. Une âme primaire dorée et pourpre s'élança, captura une âme noire errante et la traîna dans le drapeau d'âmes.
 
-Du Tian grommela: « C'est déjà la dix-neuvième. Malheureusement, ce ne sont que des fragments d'âmes de Formation de l'Âme. S'il y en avait une de Transformation de l'Âme, le drapeau gagnerait une nouvelle âme primaire. »
+Dun Tian grommela: « C'est déjà la dix-neuvième. Malheureusement, ce ne sont que des fragments d'âmes de Formation de l'Âme. S'il y en avait une de Transformation de l'Âme, le drapeau gagnerait une nouvelle âme primaire. »
 
 Soudain, une lumière dorée et pourpre surgit au loin. La formation de protection ne l'arrêta pas, et elle chargea directement vers la grotte.
 
-Les yeux de Du Tian s'illuminèrent et il laissa échapper un rire. Il avait délibérément configuré la formation pour ne pas bloquer les âmes; c'était ainsi qu'elles parvenaient à entrer.
+Les yeux de Dun Tian s'illuminèrent et il laissa échapper un rire. Il avait délibérément configuré la formation pour ne pas bloquer les âmes; c'était ainsi qu'elles parvenaient à entrer.
 
-« Bien, viens! » s'exclama Du Tian en se relevant d'un bond pour intercepter l'âme dorée et pourpre.
+« Bien, viens! » s'exclama Dun Tian en se relevant d'un bond pour intercepter l'âme dorée et pourpre.
 
-La lumière vira brusquement pour esquiver la main de Du Tian et fonça vers la grotte.
+La lumière vira brusquement pour esquiver la main de Dun Tian et fonça vers la grotte.
 
-Voyant que le fragment d'âme allait pénétrer dans la caverne, Du Tian se déplaça avec célérité et apparut instantanément devant lui. Il ricana: « Hélas, tu n'as pas encore atteint le stade de la Transformation de l'Âme; tu n'es qu'à la limite. Tu ne t'échapperas pas! » Sa main traça un sceau et un vortex gigantesque se matérialisa.
+Voyant que le fragment d'âme allait pénétrer dans la caverne, Dun Tian se déplaça avec célérité et apparut instantanément devant lui. Il ricana: « Hélas, tu n'as pas encore atteint le stade de la Transformation de l'Âme; tu n'es qu'à la limite. Tu ne t'échapperas pas! » Sa main traça un sceau et un vortex gigantesque se matérialisa.
 
-Du Tian hurla: « Vortex d'Âme! » Le fragment d'âme poussa un cri de terreur et tenta de reculer, mais Du Tian avait déjà une longueur d'avance. « Capture! » ordonna-t-il.
+Dun Tian hurla: « Vortex d'Âme! » Le fragment d'âme poussa un cri de terreur et tenta de reculer, mais Dun Tian avait déjà une longueur d'avance. « Capture! » ordonna-t-il.
 
 Une force de succion impétueuse émana du vortex, entraînant le fragment d'âme doré et pourpre vers son centre.
 
-Du Tian esquissa un sourire, mais à cet instant précis, un fracas assourdissant retentit provenant de la formation de protection de la Secte Lian Hun. La formation trembla avant de s'effondrer totalement.
+Dun Tian esquissa un sourire, mais à cet instant précis, un fracas assourdissant retentit provenant de la formation de protection de la Secte Lian Hun. La formation trembla avant de s'effondrer totalement.
 
 Le tonnerre de cette explosion résonna dans toute la secte. Même les trois montagnes principales furent secouées, des pans entiers de roche s'effondrant tandis que des fissures béantes apparaissaient, terrifiant les disciples.
 
@@ -124,4 +124,4 @@ Dans le ciel, une silhouette drapée de rouge apparut. Elle dégageait une aura 
 
 À cet instant, le ciel perdit toutes ses couleurs; seule cette silhouette semblait exister.
 
-« Zhu Quezi! » L'expression de Du Tian devint livide. N'ayant plus le temps de s'amuser avec ce fragment d'âme, il agita le Étendard de l'Âme pour l'emmagasiner précipitamment.
+« Zhu Quezi! » L'expression de Dun Tian devint livide. N'ayant plus le temps de s'amuser avec ce fragment d'âme, il agita le Étendard de l'Âme pour l'emmagasiner précipitamment.

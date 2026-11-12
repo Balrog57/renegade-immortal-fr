@@ -6,9 +6,9 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 2001 - Sea
 slug: la-mer
 ---
-Le Continent Astral Immortel comprenait les cinq grands continents du clan céleste ainsi que 72 continents mineurs, occupant ainsi plus de 50 % de sa superficie totale. Le reste, soit près de 50 %, était constitué à 40 % des 36 pays du clan Ancien, tandis que les 10 % restants composaient l'océan infini qui séparait les clans Céleste et Ancien.
+Le Continent Xian Gang comprenait les cinq grands continents du clan céleste ainsi que 72 continents mineurs, occupant ainsi plus de 50 % de sa superficie totale. Le reste, soit près de 50 %, était constitué à 40 % des 36 pays du clan Ancien, tandis que les 10 % restants composaient l'océan infini qui séparait les clans Céleste et Ancien.
 
-Cette mer était la plus vaste du Continent Astral Immortel. Elle était agitée par des vagues déchaînées et enveloppée d'un brouillard perpétuel. Il était impossible pour les mortels de la traverser, et même les cultivateurs n'ayant pas atteint un niveau de culture très élevé ne pouvaient espérer la franchir.
+Cette mer était la plus vaste du Continent Xian Gang. Elle était agitée par des vagues déchaînées et enveloppée d'un brouillard perpétuel. Il était impossible pour les mortels de la traverser, et même les cultivateurs n'ayant pas atteint un niveau de culture très élevé ne pouvaient espérer la franchir.
 
 Cette mer constituait une barrière naturelle rendant périlleux tout voyage entre les terres des Célestes et celles des Anciens.
 
@@ -38,7 +38,7 @@ Malgré le froid mordant, le jeune homme avait le front perlant de sueur, dégag
 
 Le craquement des pas sur la neige était étouffé par le hurlement du vent. Les trois lignes de traces laissées derrière eux furent bientôt effacées. Seules leurs voix parvenaient à percer le tumulte des éléments.
 
-« C'est toujours ton Grand-père Xu qui est le plus malin. Dans le monde des grottes comme sur le Continent Astral Immortel, rien ne change! Petit Jinbiao, tu rêves de prendre la place de ton Grand-père Xu, mais tu n'arrives même pas à tenir la cadence! » Le jeune homme, emmitouflé dans ses épaisse couches de coton, affichait un air fier. Il essuya la sueur de son visage pour faire étalage de sa bravoure.
+« C'est toujours ton Grand-père Xu qui est le plus malin. Dans le monde des grottes comme sur le Continent Xian Gang, rien ne change! Petit Jinbiao, tu rêves de prendre la place de ton Grand-père Xu, mais tu n'arrives même pas à tenir la cadence! » Le jeune homme, emmitouflé dans ses épaisse couches de coton, affichait un air fier. Il essuya la sueur de son visage pour faire étalage de sa bravoure.
 
 « Quelle chaleur... quelle chaleur étouffante! Je n'en peux plus, c'est insupportable! Jinbiao, tu n'as pas chaud? Comment se fait-il que je brûle ainsi? »
 

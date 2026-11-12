@@ -46,7 +46,7 @@ Hongdie était assise sur une feuille de lotus dans les montagnes arrières de l
 
 Le regard de Hongdie devint glacial et elle murmura: « Il est venu... »
 
-Wang Lin apparut lentement sur l'autel, suivi par Feng Yushan. Ce dernier poussa un soupir de soulagement. Puisque Ceng Niu était là, il pouvait enfin aller rapporter la nouvelle au Mont Suzaku.
+Wang Lin apparut lentement sur l'autel, suivi par Feng Yushan. Ce dernier poussa un soupir de soulagement. Puisque Zeng Niu était là, il pouvait enfin aller rapporter la nouvelle au Mont Suzaku.
 
 Une autre personne se tenait sur l'autel aux côtés de Wang Lin et Feng Yushan.
 
@@ -56,9 +56,9 @@ Elle se tenait là, silencieuse, le regard posé sur Wang Lin.
 
 En voyant la femme, Feng Yushan s'inclina rapidement et respectueusement: « Salutations, troisième Senior sœur. »
 
-La femme hocha doucement sa jolie tête et demanda: « Est-ce bien le cultivateur Ceng Niu? »
+La femme hocha doucement sa jolie tête et demanda: « Est-ce bien le cultivateur Zeng Niu? »
 
-Wang Lin observa la femme. Sa beauté ne l'intimidait guère. Il joignit les mains et répondit: « Je suis Ceng Niu. »
+Wang Lin observa la femme. Sa beauté ne l'intimidait guère. Il joignit les mains et répondit: « Je suis Zeng Niu. »
 
 « Cher cultivateur Ceng, cette jeune fille est une disciple de la Secte Ren Dao Xian. Mon nom de famille est Bai et mon prénom est Xue. » La femme sourit. Sa peau était aussi blanche que la neige et deux mèches de ses longs cheveux noirs, longs d'un mètre, retombaient sur sa poitrine. Le reste de sa chevelure était relevé en un chignon au sommet de sa tête.
 
@@ -78,7 +78,7 @@ Une fois que Wang Lin fut installé sur la grue, celle-ci poussa un cri, battit 
 
 Feng Yushan regarda la grue avec envie avant de quitter l'autel pour s'envoler vers le Mont Suzaku.
 
-Bai Xue jetait parfois des regards furtifs à Wang Lin. Au cours des dernières années, le nom de Ceng Niu était devenu célèbre. En voyant Wang Lin, elle ne put s'empêcher d'éprouver une pointe de déception. Elle était certaine que ce Ceng Niu possédait un talent hors du commun, mais en le voyant ainsi, il paraissait extrêmement ordinaire.
+Bai Xue jetait parfois des regards furtifs à Wang Lin. Au cours des dernières années, le nom de Zeng Niu était devenu célèbre. En voyant Wang Lin, elle ne put s'empêcher d'éprouver une pointe de déception. Elle était certaine que ce Zeng Niu possédait un talent hors du commun, mais en le voyant ainsi, il paraissait extrêmement ordinaire.
 
 Après un long silence, Bai Xue demanda doucement: « Cher cultivateur Ceng, quelle est votre certitude quant à votre combat contre Hongdie? »
 
@@ -94,7 +94,7 @@ Il réfléchit un instant et demanda: « Chère cultivatrice Bai Xue, quelles so
 
 La voix de Bai Xue était mélodieuse. Après ses explications, Wang Lin eut une vision globale du pays.
 
-« La sœur cadette Hongdie est une disciple de la Secte Tian Yu. » Sur ces mots, Bai Xue soupira en regardant Ceng Niu. D'après ce qu'elle avait entendu de son maître, il semblait que le Mont Suzaku souhaitait que cet homme rejoigne sa secte après le combat.
+« La sœur cadette Hongdie est une disciple de la Secte Tian Yu. » Sur ces mots, Bai Xue soupira en regardant Zeng Niu. D'après ce qu'elle avait entendu de son maître, il semblait que le Mont Suzaku souhaitait que cet homme rejoigne sa secte après le combat.
 
 Le regard de Wang Lin resta calme et il garda le silence.
 

@@ -16,11 +16,11 @@ La chaleur circulait dans tout son organisme, comme si une vie nouvelle avait é
 
 À l'instant même où son énergie originelle progressait, le feu intérieur se déchaîna et pulsa en lui. Son corps commença même à brûler, jusqu'à ses cheveux, et une chaleur intense s'échappait de ses pores. C'était une scène absolument stupéfiante!
 
-Ce feu devint de plus en plus ardent, faisant apparaître la marque de l'Oiseau Vermillon dans son œil gauche. Un feu bleu jaillit de sa pupille et fusionna avec la chaleur qui bouillonnait en lui.
+Ce feu devint de plus en plus ardent, faisant apparaître la marque de Suzaku dans son œil gauche. Un feu bleu jaillit de sa pupille et fusionna avec la chaleur qui bouillonnait en lui.
 
-Un cri de l'Oiseau Vermillon résonna alors qu'un oiseau de feu bleu s'envolait de son œil gauche. Il s'enroula autour de Wang Lin, semblant trouver une immense sérénité dans cette union.
+Un cri de Suzaku résonna alors qu'un oiseau de feu bleu s'envolait de son œil gauche. Il s'enroula autour de Wang Lin, semblant trouver une immense sérénité dans cette union.
 
-Ce ne fut que un bâton d'encens plus tard que l'Oiseau Vermillon retourna dans l'œil gauche de Wang Lin et que la chaleur interne commença à refluer.
+Ce ne fut que un bâton d'encens plus tard que Suzaku retourna dans l'œil gauche de Wang Lin et que la chaleur interne commença à refluer.
 
 Wang Lin prit une profonde inspiration et s'exclama: « Quel vin excellent! »
 
@@ -76,17 +76,17 @@ Le vieil homme agita sa canne pour maintenir le dragon en place. La bête, qui a
 
 À l'instant où le vieil homme leva la main gauche, l'esprit de Wang Lin vacilla et ses pupilles se contractèrent de stupeur. Il vit distinctement quelque chose apparaître derrière l'homme... un gigantesque Oiseau Vermillon!
 
-Sa taille surpassait de loin celle de l'Oiseau Vermillon de Wang Lin et il couvrait le ciel tout entier. Une aura antique émanait de ce géant, enveloppé de flammes éthérées!
+Sa taille surpassait de loin celle de Suzaku de Wang Lin et il couvrait le ciel tout entier. Une aura antique émanait de ce géant, enveloppé de flammes éthérées!
 
 Le Feu Éthéré!
 
 Dès son apparition, l'oiseau poussa un cri qui fit trembler les cieux!
 
-Wang Lin était pétrifié par la scène. La taille de l'Oiseau Vermillon, l'intensité des flammes et sa puissance surpassaient de loin celles de l'ancien Empereur Divin de l'Oiseau Vermillon. Il n'y avait aucune comparaison possible!
+Wang Lin était pétrifié par la scène. La taille de Suzaku, l'intensité des flammes et sa puissance surpassaient de loin celles de l'ancien Empereur Divin de Suzaku. Il n'y avait aucune comparaison possible!
 
 C'était la différence entre un jeune oiseau et son ancêtre primordial!
 
-La main gauche du vieil homme s'abattit brusquement; au moment de l'impact, le gigantesque Oiseau Vermillon bougea pour fusionner avec sa main. En un instant, l'oiseau devint un avec le bras de l'homme. De loin, on ne distinguait plus la main du vieil homme, mais seulement le bec acéré de l'Oiseau Vermillon!
+La main gauche du vieil homme s'abattit brusquement; au moment de l'impact, le gigantesque Oiseau Vermillon bougea pour fusionner avec sa main. En un instant, l'oiseau devint un avec le bras de l'homme. De loin, on ne distinguait plus la main du vieil homme, mais seulement le bec acéré de Suzaku!
 
 En un clin d'œil, ce bec perça une protubérance sur le crâne du dragon, projetant un jet de sang brûlant.
 
@@ -110,9 +110,9 @@ Après avoir dévoré le sang de dragon, le feu intérieur de Wang Lin devint mo
 
 Le vieil homme resta debout près de lui et l'examina, affichant un sourire satisfait.
 
-« Je pensais ne plus jamais revoir un cadet... L'éveil de l'Oiseau Vermillon de cet enfant n'est qu'à un pas du Feu Éthéré; ce petit n'est pas ordinaire! »
+« Je pensais ne plus jamais revoir un cadet... L'éveil de Suzaku de cet enfant n'est qu'à un pas du Feu Éthéré; ce petit n'est pas ordinaire! »
 
-« Il devrait être la sixième génération d'Oiseau Vermillon de mon clan... Pas mal, vraiment pas mal! » Plus il l'observait, plus sa joie grandissait. Il s'accroupit même pour lui pincer les joues, puis tapota soigneusement le corps de Wang Lin.
+« Il devrait être la sixième génération de Suzaku de mon clan... Pas mal, vraiment pas mal! » Plus il l'observait, plus sa joie grandissait. Il s'accroupit même pour lui pincer les joues, puis tapota soigneusement le corps de Wang Lin.
 
 « Oui, c'est définitivement un membre de mon Clan Zhu Que et non une création de notre ennemi. Cependant, le corps de ce petit est en fait celui d'un Dieu Ancien... Haha, pas mal, pas mal du tout! » L'excitation brillait dans les yeux du vieil homme.
 

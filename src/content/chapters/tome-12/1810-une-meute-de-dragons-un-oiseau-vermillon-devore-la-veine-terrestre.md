@@ -20,7 +20,7 @@ Du Qing la suivit dans les airs.
 
 Un grondement de tonnerre résonna à travers la terre du Continent Tian Niu, puis un gigantesque Oiseau Vermillon couvert de flammes surgit. Le monde parut se distordre et la terre se dessécha, comme prête à s'effondrer.
 
-Les cheveux blancs de Wang Lin flottaient alors qu'il se tenait sur la tête de l'Oiseau Vermillon, les yeux brillant d'un éclat intense.
+Les cheveux blancs de Wang Lin flottaient alors qu'il se tenait sur la tête de Suzaku, les yeux brillant d'un éclat intense.
 
 Cela faisait un demi-mois qu'il avait dévoré la deuxième âme de feu terrestre. Durant cette période, Wang Lin n'avait pas perdu une seule seconde; il progressait à un rythme effréné. Chaque fois qu'il rencontrait une veine de feu terrestre, il en absorbait l'âme.
 
@@ -32,11 +32,11 @@ Wang Lin savait depuis longtemps que quelqu'un le poursuivait. Bien qu'il n'eût
 
 Cette personne devait être l'ancêtre de la Secte Cang Long, Du Qing, l'expert de la Tribulation du Vide!
 
-L'analyse était simple. Oser le poursuivre ainsi et sur une telle durée signifiait que cet individu avait pleine confiance en sa propre puissance. Parmi tous ceux que Wang Lin avait provoqués depuis son arrivée sur le Continent Astral Immortel, seul l'ancêtre de la Secte Cang Long possédait une telle force.
+L'analyse était simple. Oser le poursuivre ainsi et sur une telle durée signifiait que cet individu avait pleine confiance en sa propre puissance. Parmi tous ceux que Wang Lin avait provoqués depuis son arrivée sur le Continent Xian Gang, seul l'ancêtre de la Secte Cang Long possédait une telle force.
 
 « D'après les souvenirs de Kang Ren, l'ancêtre est au début du stade de la Tribulation du Vide... Mais si cela est vrai ou non, ce n'est pas à Kang Ren de le savoir! Il a peut-être effectivement traversé neuf Tribulations Arcanes pour atteindre le début de la Tribulation du Vide, ou il pourrait encore être au stade de la Tribulation Arcane! » Wang Lin ne se fierait évidemment pas uniquement aux souvenirs de Kang Ren pour juger du niveau de culture de Du Qing.
 
-Les yeux de Wang Lin s'illuminèrent et l'Oiseau Vermillon sous lui poussa un rugissement assourdissant. Plus il dévorait de veines de feu terrestre, plus l'Oiseau Vermillon devenait rapide. Bien qu'il ne pût égaler le Roi des Moustiques, sa vitesse approchait celle de Wang Lin.
+Les yeux de Wang Lin s'illuminèrent et Suzaku sous lui poussa un rugissement assourdissant. Plus il dévorait de veines de feu terrestre, plus Suzaku devenait rapide. Bien qu'il ne pût égaler le Roi des Moustiques, sa vitesse approchait celle de Wang Lin.
 
 L'Oiseau Vermillon laissa échapper un cri et disparut sans laisser de trace. Une demi-journée plus tard, un rayon de lumière se rapprocha et Du Qing apparut. Il poursuivait depuis quinze jours, se rapprochant sans cesse de Wang Lin, mais son humeur devenait de plus en plus sombre.
 
@@ -50,7 +50,7 @@ Il hésita un instant avant de pousser un rugissement vers le ciel. Il allait pr
 
 « J'ai déclaré au monde que j'étais au début du stade de la Tribulation du Vide, mais en vérité, je n'en suis qu'à ma septième Tribulation Arcane. Néanmoins, mon corps de bois de feu violet possède une force bien supérieure à celle des cultivateurs ordinaires. Mon corps physique est semblable à celui des gens de l'ancien pays. Je ne crois pas être incapable de l'affronter! Même si son niveau de culture est comparable au mien, son corps ne pourra pas être aussi puissant! » Du Qing semblait avoir retrouvé confiance dans ce rugissement. Il chargea encore plus vite, guidé par la grue de fumée.
 
-Après sept jours, l'Oiseau Vermillon sous Wang Lin était devenu encore plus gigantesque. En volant, il semblait couvrir le ciel tout entier. Au cours des six derniers jours, il avait absorbé trois âmes de dragon de feu terrestre supplémentaires!
+Après sept jours, Suzaku sous Wang Lin était devenu encore plus gigantesque. En volant, il semblait couvrir le ciel tout entier. Au cours des six derniers jours, il avait absorbé trois âmes de dragon de feu terrestre supplémentaires!
 
 Les 14 âmes de feu terrestre avaient considérablement accru la puissance du feu de Wang Lin. Il était deux fois plus puissant que lorsqu'il se trouvait dans le monde des grottes!
 
@@ -92,11 +92,11 @@ L'âme du dragon était féroce; des quantités massives de flammes se répandir
 
 Les environs furent scellés par les flammes, et la fumée noire consuma tout l'air respirable. Simultanément, l'espace lui-même commença à se distordre, rendant tout flou.
 
-Seul le gigantesque dragon de feu s'approchait, ses yeux féroces révélant une nature tyrannique alors qu'il fondait sur l'Oiseau Vermillon de Wang Lin.
+Seul le gigantesque dragon de feu s'approchait, ses yeux féroces révélant une nature tyrannique alors qu'il fondait sur Suzaku de Wang Lin.
 
 Wang Lin laissa échapper un reniflement froid. Bien que cette branche enfantée fût puissante, équivalente à un cultivateur du stade intermédiaire du Vide Arcanique, elle ne suffisait pas à faire reculer Wang Lin. Sa main droite traça un sceau et pointa vers le dragon de feu.
 
-« Seize âmes de branches de veine de feu terrestre, apparaissez en mon nom! » À l'instant où les mots de Wang Lin résonnèrent, seize dragons de feu apparurent autour de l'Oiseau Vermillon et se précipitèrent contre le dragon de feu adverse.
+« Seize âmes de branches de veine de feu terrestre, apparaissez en mon nom! » À l'instant où les mots de Wang Lin résonnèrent, seize dragons de feu apparurent autour de Suzaku et se précipitèrent contre le dragon de feu adverse.
 
 C'est à ce moment précis qu'un rayon de lumière fendit la distance. Du Qing avait enfin rattrapé son retard!
 
@@ -112,6 +112,6 @@ S'il s'était agi d'une veine ordinaire, elle n'aurait pas eu le pouvoir d'affec
 
 L'expression de Du Qing changea radicalement. Son regard se posa sur le nuage de flammes au loin. Il put contempler cette scène étrange: seize dragons de feu et un Oiseau Vermillon dévorant un dragon de feu dissimulé au cœur des flammes!
 
-Il y avait aussi une silhouette aux cheveux blancs debout sur la tête de l'Oiseau Vermillon. Ses vêtements blancs étaient extrêmement frappants au milieu du brasier. Bien que Du Qing n'en vît que le dos, il eut l'illusion de contempler une montagne!
+Il y avait aussi une silhouette aux cheveux blancs debout sur la tête de Suzaku. Ses vêtements blancs étaient extrêmement frappants au milieu du brasier. Bien que Du Qing n'en vît que le dos, il eut l'illusion de contempler une montagne!
 
 « C'est lui! » Les yeux de Du Qing s'illuminèrent.

@@ -46,7 +46,7 @@ Wang Lin leva la main droite et retira son chapeau de bambou, révélant ses che
 
 Lorsque Wang Lin ôta son chapeau, un murmure de stupeur parcourut la foule. Tous les regards convergèrent vers lui.
 
-Au cours de cette année, les rumeurs concernant Wang Lin avaient balayé le Continent Astral Immortel. Ces rumeurs avaient agi comme une tempête sur la cité ancestrale; quiconque était au courant les avait entendues maintes fois!
+Au cours de cette année, les rumeurs concernant Wang Lin avaient balayé le Continent Xian Gang. Ces rumeurs avaient agi comme une tempête sur la cité ancestrale; quiconque était au courant les avait entendues maintes fois!
 
 Le Manoir Li était l'un des quatre rois de la cité ancestrale. Presque toute la famille s'était imprégnée du nom « Wang Lin » à force d'entendre parler de lui.
 
@@ -74,7 +74,7 @@ Il s'était humilié, mais personne au Manoir Li ne ressentit d'opprobre; ils es
 
 Cet homme était convoité par les Grands Empyréens eux-mêmes. Bien que le Manoir Li fût l'un des quatre rois de la cité ancestrale et plus puissant que la plupart des sectes, il ne pouvait toujours pas résister à un seul coup de Wang Lin.
 
-Si eux blessaient Wang Lin, un Grand Empyréen interviendrait; mais si Wang Lin les tuait, il y avait de fortes chances que les Grands Empyréens n'interviennent pas... C'était là le fossé qui séparait les forts des faibles sur le Continent Astral Immortel. L'Ascendant Empyréen Ming Dao quittait rarement le palais, mais lorsqu'il le faisait, nul n'osait lui manquer de respect!
+Si eux blessaient Wang Lin, un Grand Empyréen interviendrait; mais si Wang Lin les tuait, il y avait de fortes chances que les Grands Empyréens n'interviennent pas... C'était là le fossé qui séparait les forts des faibles sur le Continent Xian Gang. L'Ascendant Empyréen Ming Dao quittait rarement le palais, mais lorsqu'il le faisait, nul n'osait lui manquer de respect!
 
 Même les quatre rois devaient témoigner un immense respect à l'Ascendant Empyréen Ming Dao. Après tout, il était pressenti pour devenir le futur sixième soleil!
 
@@ -116,7 +116,7 @@ Après une hésitation, l'homme renifla avec mépris dans son cœur, mais n'osa 
 
 Wang Lin n'écouta pas les détails; il comprit simplement que l'Empereur Céleste lui ordonnait de se présenter dans sept jours, à l'aube, devant le Temple Xian Dao du palais impérial pour la cérémonie de titre!
 
-Wang Lin avait appris à la Secte Yang Pourpre que chaque Ascendant Empyréen recevait personnellement son titre de la part des Empereurs Célestes successifs. C'était une formalité, un symbole.
+Wang Lin avait appris à la Secte Zi Yang que chaque Ascendant Empyréen recevait personnellement son titre de la part des Empereurs Célestes successifs. C'était une formalité, un symbole.
 
 Lors de la cérémonie, il existait une possibilité d'être défié, mais par le passé, cela était généralement ignoré. Après tout, les Ascendants Empyréens recevaient la reconnaissance de l'ombre de l'Ancêtre Céleste, et peu de gens se sentaient assez oisifs pour s'y risquer.
 

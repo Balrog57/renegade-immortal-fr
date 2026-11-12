@@ -80,7 +80,7 @@ Les yeux de Wang Lin s'illuminèrent tandis que divers plans complexes se dessin
 
 « Troisième âme, qui es-tu donc... » Wang Lin médita silencieusement, et ses pensées devinrent progressivement plus claires.
 
-« Ce n'est qu'en trouvant la troisième âme que je pourrai atteindre la porte et l'ouvrir pour emmener tout le monde vers le Continent Astral Immortel... » Wang Lin ferma les yeux et, après un long moment, les rouvrit. Son regard était calme; il ne pensait plus à ces choses. Il s'apprêtait à observer la Voile Fantôme.
+« Ce n'est qu'en trouvant la troisième âme que je pourrai atteindre la porte et l'ouvrir pour emmener tout le monde vers le Continent Xian Gang... » Wang Lin ferma les yeux et, après un long moment, les rouvrit. Son regard était calme; il ne pensait plus à ces choses. Il s'apprêtait à observer la Voile Fantôme.
 
 Cependant, à cet instant précis, l'expression de Wang Lin devint soudainement grave, comme si le tonnerre avait grondé dans son esprit. Il regarda au loin et son visage s'assombrit progressivement.
 
@@ -90,7 +90,7 @@ Cependant, à cet instant précis, l'expression de Wang Lin devint soudainement 
 
 « Ses complots étaient prodigieux, et il m'a tendu des pièges à maintes reprises. Maintenant qu'il est caché, comment ai-je pu l'oublier? » L'expression de Wang Lin devint sombre.
 
-« Le Souverain Céleste aux Sept Couleurs a été divisé en trois âmes et sept fragments. Quant aux sept fragments, je sais seulement que Qing Shui est l'un d'eux. Pour les six autres, j'ai mes hypothèses. Tian Yunzi... Est-il l'un des sept fragments ou... la troisième âme! » Les yeux de Wang Lin brillèrent. Il se rappela que la troisième âme avait traversé la Rivière Invoquée pour entrer dans Kun Xu.
+« Le Souverain Céleste aux Sept Couleurs a été divisé en trois âmes et sept fragments. Quant aux sept fragments, je sais seulement que Qing Shui est l'un d'eux. Pour les six autres, j'ai mes hypothèses. Tian Yunzi... Est-il l'un des sept fragments ou... la troisième âme! » Les yeux de Wang Lin brillèrent. Il se rappela que la troisième âme avait traversé Zhao He pour entrer dans Kun Xu.
 
 « Si la troisième âme s'est retrouvée à Kun Xu, alors il est fort probable qu'il s'agisse de Tian Yunzi... S'il est vraiment la troisième âme, ce serait bien trop facile à trouver... Est-ce lui ou non... » Wang Lin fronça les sourcils. Il n'avait jamais pu percer le mystère de Tian Yunzi. Dès l'instant où Wang Lin était devenu son disciple, une crainte avait germé en lui. Elle ne faisait que croître à mesure que Tian Yunzi devenait plus mystérieux.
 

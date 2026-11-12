@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2031 - Filled With Rage (10)
 slug: empli-de-rage-10
 ---
-Wang Lin dit doucement: « Maître... si nous devions tout recommencer, le Disciple choisirait toujours de suivre Maître jusqu'au Continent Astral Immortel sans la moindre hésitation... »
+Wang Lin dit doucement: « Maître... si nous devions tout recommencer, le Disciple choisirait toujours de suivre Maître jusqu'au Continent Xian Gang sans la moindre hésitation... »
 
 La tristesse dans les yeux de Xuan Luo s'intensifia. Il comprenait Wang Lin.
 

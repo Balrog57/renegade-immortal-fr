@@ -8,23 +8,23 @@ slug: resistance
 ---
 Cependant, ce qui le choqua, ce fut non seulement que le corps de Wang Lin ne s'effondra pas, mais qu'il ne mourut même pas instantanément. Le bouclier qui était apparu soudainement avait annulé 70 % de sa puissance.
 
-Pourtant, les 30 % restants suffisaient à tuer ce Wang Lin, et ce qui stupéfia Maître du Vide, c'est que cette fraction de 30 % n'avait fait que lui faire cracher du sang. Wang Lin n'était que gravement blessé, il n'était pas mort!
+Pourtant, les 30 % restants suffisaient à tuer ce Wang Lin, et ce qui stupéfia Xu Kongzi, c'est que cette fraction de 30 % n'avait fait que lui faire cracher du sang. Wang Lin n'était que gravement blessé, il n'était pas mort!
 
 Wang Lin flottait dans les airs alors que des ondes de choc ravageaient son corps et s'acharnaient sur son âme originelle. Bien que l'âme originelle de Wang Lin fût protégée par l'Armure de Cuir du Dieu Ancien, les vibrations rendirent tout de même son âme originelle terne. Il cracha une nouvelle et large bouchée de sang et son corps fut violemment projeté en arrière.
 
-La douleur qui émanait de son corps prouvait que, malgré son corps de dieu ancien, il était gravement blessé. Pourtant, le regard de Wang Lin demeurait calme alors qu'il fixait Maître du Vide.
+La douleur qui émanait de son corps prouvait que, malgré son corps de dieu ancien, il était gravement blessé. Pourtant, le regard de Wang Lin demeurait calme alors qu'il fixait Xu Kongzi.
 
 Lorsqu'il fut projeté à nouveau, il atterrit au centre du champ de vision des deux statues de la salle.
 
-« Tu n'es pas mort? Je vais t'en remettre une! » Une intention meurtrière apparut dans les yeux de Maître du Vide. Il pressentait vaguement une anomalie dans l'endroit où Wang Lin s'était posé. Il leva sa main droite et la frappa impitoyablement vers lui!
+« Tu n'es pas mort? Je vais t'en remettre une! » Une intention meurtrière apparut dans les yeux de Xu Kongzi. Il pressentait vaguement une anomalie dans l'endroit où Wang Lin s'était posé. Il leva sa main droite et la frappa impitoyablement vers lui!
 
-Dans son esprit, il était certain que cette attaque achèverait Wang Lin. Un grondement retentit dans la salle lorsque Maître du Vide attaqua. Une tempête de sable jaune surgit et se précipita sur Wang Lin.
+Dans son esprit, il était certain que cette attaque achèverait Wang Lin. Un grondement retentit dans la salle lorsque Xu Kongzi attaqua. Une tempête de sable jaune surgit et se précipita sur Wang Lin.
 
-L'expression de Wang Lin resta sereine, empreinte même d'une pointe de dérision. Il savait qu'il n'était pas de taille face à Maître du Vide. Il avait senti que cet homme nourrissait de mauvaises intentions à son égard dès le Bassin Funéraire Céleste. Après avoir appris son éveil de l'Oiseau Vermillon, Wang Lin était sûr à 80 % que cet homme cherchait sa mort.
+L'expression de Wang Lin resta sereine, empreinte même d'une pointe de dérision. Il savait qu'il n'était pas de taille face à Xu Kongzi. Il avait senti que cet homme nourrissait de mauvaises intentions à son égard dès le Bassin Funéraire Céleste. Après avoir appris son éveil de Suzaku, Wang Lin était sûr à 80 % que cet homme cherchait sa mort.
 
-Maintenant qu'ils étaient si proches dans cette salle, Maître du Vide ne pourrait plus dissimuler ses intentions meurtrières. Wang Lin comprenait qu'il était vain de résister avec sa force actuelle. Heureusement, il avait vaguement repéré l'entrée du deuxième étage. Il s'était simplement servi de l'attaque pour être projeté à cet endroit précis. De plus, il avait mis en place une formation mortelle durant ce court intervalle. Sa cible: Maître du Vide!
+Maintenant qu'ils étaient si proches dans cette salle, Xu Kongzi ne pourrait plus dissimuler ses intentions meurtrières. Wang Lin comprenait qu'il était vain de résister avec sa force actuelle. Heureusement, il avait vaguement repéré l'entrée du deuxième étage. Il s'était simplement servi de l'attaque pour être projeté à cet endroit précis. De plus, il avait mis en place une formation mortelle durant ce court intervalle. Sa cible: Xu Kongzi!
 
-Si les autres ne le cherchaient pas, il ne les chercherait pas non plus! Si Maître du Vide n'avait pas attaqué, Wang Lin n'aurait pas activé cette formation mortelle. Mais puisque l'adversaire avait frappé, Wang Lin ne resterait pas les bras croisés!
+Si les autres ne le cherchaient pas, il ne les chercherait pas non plus! Si Xu Kongzi n'avait pas attaqué, Wang Lin n'aurait pas activé cette formation mortelle. Mais puisque l'adversaire avait frappé, Wang Lin ne resterait pas les bras croisés!
 
 « Même si je ne peux pas te tuer, je dois te laisser une impression indélébile! »
 
@@ -32,19 +32,19 @@ La main de Wang Lin traça le même sceau que celui des deux statues. À cet ins
 
 Les deux rayons de lumière violette jaillirent et encerclèrent Wang Lin, formant un vortex. Le corps de Wang Lin fut aspiré vers le tourbillon.
 
-Cependant, Maître du Vide avait cultivé pendant très longtemps; il possédait une intuition puissante et réalisa immédiatement que l'endroit où Wang Lin était tombé était suspect. Il ajouta donc instantanément une attaque. La tempête de sable générée par son sort se précipita vers Wang Lin à l'intérieur du vortex.
+Cependant, Xu Kongzi avait cultivé pendant très longtemps; il possédait une intuition puissante et réalisa immédiatement que l'endroit où Wang Lin était tombé était suspect. Il ajouta donc instantanément une attaque. La tempête de sable générée par son sort se précipita vers Wang Lin à l'intérieur du vortex.
 
 Si Wang Lin se laissait emporter par la vitesse du vortex, la tempête le rattraperait et il mourrait avant même d'avoir pu entrer.
 
-Maître du Vide chargea vers lui.
+Xu Kongzi chargea vers lui.
 
-Une lueur de froideur traversa les yeux de Wang Lin. Au moment où la tempête de sable se refermait sur lui, son troisième œil s'ouvrit. Le troisième œil était le sort le plus puissant de Wang Lin, une technique qu'il n'utilisait jamais à la légère. Cependant, face à l'approche de Maître du Vide et devant cette crise de vie ou de mort, il l'ouvrit sans hésitation.
+Une lueur de froideur traversa les yeux de Wang Lin. Au moment où la tempête de sable se refermait sur lui, son troisième œil s'ouvrit. Le troisième œil était le sort le plus puissant de Wang Lin, une technique qu'il n'utilisait jamais à la légère. Cependant, face à l'approche de Xu Kongzi et devant cette crise de vie ou de mort, il l'ouvrit sans hésitation.
 
-« Maître du Vide!!! » Une intention meurtrière inonda les yeux de Wang Lin alors qu'il poussait un rugissement. Le troisième œil vertical s'ouvrit et la lumière rouge qui en émanait se déploya telle un éventail.
+« Xu Kongzi!!! » Une intention meurtrière inonda les yeux de Wang Lin alors qu'il poussait un rugissement. Le troisième œil vertical s'ouvrit et la lumière rouge qui en émanait se déploya telle un éventail.
 
-À l'instant où le troisième œil de Wang Lin s'ouvrit, l'expression calme de Maître du Vide changea pour la première fois! Ce ne fut pas un simple changement; ce fut comme si son monde entier venait d'être bouleversé!
+À l'instant où le troisième œil de Wang Lin s'ouvrit, l'expression calme de Xu Kongzi changea pour la première fois! Ce ne fut pas un simple changement; ce fut comme si son monde entier venait d'être bouleversé!
 
-« Origine Source!!! » Les yeux de Maître du Vide furent remplis d'incrédulité, avant d'être envahis par l'extase. À cet instant, il en oublia la Secte Divine de l'Oiseau Vermillon et l'Alliance Xiu Zhen. La seule chose qui importait devant lui était l'Origine Source qui jaillissait du troisième œil de Wang Lin.
+« Origine Source!!! » Les yeux de Xu Kongzi furent remplis d'incrédulité, avant d'être envahis par l'extase. À cet instant, il en oublia la Secte Divine de Suzaku et l'Alliance Xiu Zhen. La seule chose qui importait devant lui était l'Origine Source qui jaillissait du troisième œil de Wang Lin.
 
 Non seulement le sien, mais même l'expression de l'homme en noir changea radicalement. Il fixait Wang Lin, les yeux brillants d'incrédulité.
 
@@ -54,18 +54,18 @@ L'Origine Source sature la lumière rouge, laquelle percuta la tempête de sable
 
 Wang Lin ressentit une douleur entre ses sourcils. Il ne lui restait plus beaucoup d'Origine Source, et celle-ci se dissipait promptement face à la tempête de sable. Cependant, il ne la retira pas; au contraire, le regard chargé d'intention meurtrière, il laissa l'Origine Source jaillir de son troisième œil.
 
-Wang Lin savait parfaitement à quel point l'Origine Source était cruciale pour ceux qui cherchaient la troisième étape; il savait donc que Maître du Vide mordrait à l'hameçon!
+Wang Lin savait parfaitement à quel point l'Origine Source était cruciale pour ceux qui cherchaient la troisième étape; il savait donc que Xu Kongzi mordrait à l'hameçon!
 
-La lumière rouge en éventail, qui ne couvrait d'abord que trente pieds, s'étendit considérablement et la tempête de sable s'effondra aussitôt. L'Origine Source jaillit de l'éclat rouge et fonça droit sur Maître du Vide.
+La lumière rouge en éventail, qui ne couvrait d'abord que trente pieds, s'étendit considérablement et la tempête de sable s'effondra aussitôt. L'Origine Source jaillit de l'éclat rouge et fonça droit sur Xu Kongzi.
 
-L'expression de Maître du Vide vacilla, mais l'avidité dans ses yeux devint plus ardente encore. Il aurait pu esquiver, mais il refusait de renoncer à une occasion, qui ne se présente qu'une fois en plusieurs dizaines de milliers d'années, de ressentir personnellement l'Origine Source.
+L'expression de Xu Kongzi vacilla, mais l'avidité dans ses yeux devint plus ardente encore. Il aurait pu esquiver, mais il refusait de renoncer à une occasion, qui ne se présente qu'une fois en plusieurs dizaines de milliers d'années, de ressentir personnellement l'Origine Source.
 
-À cause de cette hésitation, la lumière rouge du troisième œil de Wang Lin encercla Maître du Vide. À cet instant, le corps de Maître du Vide sembla se détacher couche après couche, devenant semi-transparent.
+À cause de cette hésitation, la lumière rouge du troisième œil de Wang Lin encercla Xu Kongzi. À cet instant, le corps de Xu Kongzi sembla se détacher couche après couche, devenant semi-transparent.
 
-« Origine Source... Origine Source!! » Les yeux de Maître du Vide étaient transpercés par l'avidité, et son Sens Divin se déploya pour observer l'Origine Source. Il en oublia totalement qu'il était en plein combat, car Wang Lin était devenu insignifiant à ses yeux. Il était certain de pouvoir comprendre cette Origine Source et, une fois cela fait... Son vieux cœur ressentit soudainement comme s'il retrouvait la vigueur de sa jeunesse, et son visage devint encore plus agité.
+« Origine Source... Origine Source!! » Les yeux de Xu Kongzi étaient transpercés par l'avidité, et son Sens Divin se déploya pour observer l'Origine Source. Il en oublia totalement qu'il était en plein combat, car Wang Lin était devenu insignifiant à ses yeux. Il était certain de pouvoir comprendre cette Origine Source et, une fois cela fait... Son vieux cœur ressentit soudainement comme s'il retrouvait la vigueur de sa jeunesse, et son visage devint encore plus agité.
 
 Il n'aurait jamais rêvé rencontrer la légendaire Origine Source dont la rumeur disait qu'elle était la clé pour atteindre la troisième étape, et cela lui arrivait alors qu'il ne faisait que tenter d'éradiquer une menace potentielle!
 
-Le corps de Wang Lin sombra lentement dans le vortex violet, mais l'intention meurtrière dans ses yeux s'intensifia. Il avait déjà disposé la formation mortelle, et Maître du Vide y était entré. Désormais, il ne restait plus qu'à agir!
+Le corps de Wang Lin sombra lentement dans le vortex violet, mais l'intention meurtrière dans ses yeux s'intensifia. Il avait déjà disposé la formation mortelle, et Xu Kongzi y était entré. Désormais, il ne restait plus qu'à agir!
 
 Il frappa son sac de rangement; un fourreau d'épée apparut dans sa main, et à l'intérieur se trouvait une épée de fer! Les yeux de Wang Lin devinrent glacials alors qu'il saisissait la poignée de l'arme.

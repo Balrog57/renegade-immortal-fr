@@ -112,7 +112,7 @@ L'homme arborait une expression hideuse, son visage marqué par de nombreuses pu
 
 Soudain, l'homme ouvrit les yeux, révélant un regard froid et indifférent. À cet instant, une fumée apparut devant lui et prit la forme d'une grue de nuage.
 
-« Appel au Compagnon Cultivateur Zhou De de Zhao He. Je suis prêt à vous offrir un esprit dao de rang 6 si vous m'aidez une fois! »
+« Appel au Daoïste Zhou De de Zhao He. Je suis prêt à vous offrir un esprit dao de rang 6 si vous m'aidez une fois! »
 
 La voix du Shui Daozi émana de la grue et résonna dans toute la planète.
 
@@ -134,7 +134,7 @@ Le prêteur fronça les sourcils. Alors qu'il s'apprêtait à parler, son expres
 
 Une grue de nuage apparut devant lui.
 
-« Appel au Compagnon Cultivateur Yun Fengzi de Zhao He. Je vous offrirai le Sort d'Arrêt du Seigneur du Royaume Scellé si vous m'aidez une fois! » La voix du Shui Daozi résonna dans l'esprit de l'homme.
+« Appel au Daoïste Yun Fengzi de Zhao He. Je vous offrirai le Sort d'Arrêt du Seigneur du Royaume Scellé si vous m'aidez une fois! » La voix du Shui Daozi résonna dans l'esprit de l'homme.
 
 L'œil de ce dernier brilla tandis qu'il se frottait le menton, plongé dans sa réflexion.
 

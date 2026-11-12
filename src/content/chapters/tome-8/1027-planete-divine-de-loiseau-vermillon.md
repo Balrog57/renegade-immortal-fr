@@ -1,6 +1,6 @@
 ---
 n: 1027
-title: "Planète Divine de l'Oiseau Vermillon"
+title: "Planète Divine de Suzaku"
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 1027 - Vermillion Bird Divine Planet
@@ -44,23 +44,23 @@ Les végétaux capables de survivre dans de telles conditions n'avaient rien de 
 
 Cet endroit possédait une énergie spirituelle semblable à celle des planètes de culture ordinaires, mais l'énergie ici était imprégnée d'un poison de feu. Si un mortel en inhalait ne serait-ce qu'une bouffée, son corps entier, jusqu'à la moelle de ses os, se transformerait instantanément en cendres noires.
 
-Même les cultivateurs ne pouvaient supporter longtemps ce poison de feu. Ce champ stellaire était nommé la Terre Zhu Que, et ces neuf planètes étaient les Planètes Divines de l'Oiseau Vermillon!
+Même les cultivateurs ne pouvaient supporter longtemps ce poison de feu. Ce champ stellaire était nommé la Terre Zhu Que, et ces neuf planètes étaient les Planètes Divines de Suzaku!
 
 La première Planète Divine était la plus vénérée! Dans sa partie méridionale se dressait une statue géante rouge sombre, qui s'élevait jusqu'aux cieux: celle d'un Oiseau Vermillon prenant son envol!
 
-Sa queue, déployée comme une flamme vive, couvrait cinq kilomètres de terrain. Si la queue était déjà si imposante, il était inutile de mentionner la taille du corps de l'Oiseau Vermillon!
+Sa queue, déployée comme une flamme vive, couvrait cinq kilomètres de terrain. Si la queue était déjà si imposante, il était inutile de mentionner la taille du corps de Suzaku!
 
 Il occupait des centaines de kilomètres, et cet immense oiseau pouvait être facilement aperçu depuis l'espace!
 
-Les yeux de l'Oiseau Vermillon étaient formés de pur feu. Toutes les deux heures, deux épais filaments de flammes descendaient du ciel pour pénétrer dans ses yeux.
+Les yeux de Suzaku étaient formés de pur feu. Toutes les deux heures, deux épais filaments de flammes descendaient du ciel pour pénétrer dans ses yeux.
 
-Cette statue n'était pas unique. Les huit autres planètes arboraient exactement la même effigie. C'était le symbole suprême de la Secte Divine de l'Oiseau Vermillon!
+Cette statue n'était pas unique. Les huit autres planètes arboraient exactement la même effigie. C'était le symbole suprême de la Secte Divine de Suzaku!
 
 Des dizaines de personnes vêtues de robes cramoisies étaient assises autour de la statue. Parmi elles, hommes et femmes absorbaient les flammes environnantes.
 
-La queue de l'Oiseau Vermillon était divisée en trois parties, et sur chacune d'elles siégeait un vieil homme. Leurs mains formaient des sceaux tandis qu'ils entonnaient une étrange incantation. Chaque plume de la statue émettait un feu qui était absorbé par les cultivateurs alentour.
+La queue de Suzaku était divisée en trois parties, et sur chacune d'elles siégeait un vieil homme. Leurs mains formaient des sceaux tandis qu'ils entonnaient une étrange incantation. Chaque plume de la statue émettait un feu qui était absorbé par les cultivateurs alentour.
 
-Il s'agissait d'une culture quotidienne obligatoire au sein de la Secte Divine de l'Oiseau Vermillon, où ils empruntaient le pouvoir de la statue sacrée pour absorber l'essence du feu. Outre ces quelques dizaines de cultivateurs près de la statue, des centaines d'autres se trouvaient plus loin.
+Il s'agissait d'une culture quotidienne obligatoire au sein de la Secte Divine de Suzaku, où ils empruntaient le pouvoir de la statue sacrée pour absorber l'essence du feu. Outre ces quelques dizaines de cultivateurs près de la statue, des centaines d'autres se trouvaient plus loin.
 
 Et si l'on regardait encore plus loin, on découvrait une multitude de cultivateurs utilisant la statue comme centre de leur pratique. Des dizaines près de l'effigie, puis des centaines, des milliers, et même des dizaines de milliers de cultivateurs plus éloignés!
 
@@ -74,19 +74,19 @@ Même les trois anciens sur la queue sortirent de leur transe. L'un d'eux se lev
 
 Cependant, à cet instant précis, un changement stupéfiant survint!
 
-La Statue Sacrée de l'Oiseau Vermillon trembla et son corps, jusque-là terne, explosa soudainement en flammes! Elle projeta une puissante lueur rouge.
+La Statue Sacrée de Suzaku trembla et son corps, jusque-là terne, explosa soudainement en flammes! Elle projeta une puissante lueur rouge.
 
-Les flammes de la statue continuèrent de croître jusqu'à devenir gigantesques. Les expressions des trois anciens changèrent radicalement et ils s'envolèrent instantanément de la statue. L'un d'eux rugit: « Disciples de la Secte Divine de l'Oiseau Vermillon, reculez! Reculez vite! »
+Les flammes de la statue continuèrent de croître jusqu'à devenir gigantesques. Les expressions des trois anciens changèrent radicalement et ils s'envolèrent instantanément de la statue. L'un d'eux rugit: « Disciples de la Secte Divine de Suzaku, reculez! Reculez vite! »
 
 Les deux autres anciens agitèrent leurs manches, créant une bourrasque de vent qui projeta les dizaines de disciples proches de la statue dans les airs. Les visages des disciples se décomposèrent et ils battirent en retraite sans hésiter.
 
-En un instant, tous les membres de la Secte Divine de l'Oiseau Vermillon s'éloignèrent de la statue. Vu d'en haut, ce mouvement de retrait ressemblait à une marée descendante.
+En un instant, tous les membres de la Secte Divine de Suzaku s'éloignèrent de la statue. Vu d'en haut, ce mouvement de retrait ressemblait à une marée descendante.
 
 Les flammes de la Statue Sacrée devinrent encore plus féroces, jaillissant dans les airs pour recouvrir le ciel! Les flammes denses se propagèrent en ondes circulaires.
 
 Ce phénomène n'était pas isolé. La même scène se produisait sur les huit autres planètes! Ce changement soudain bouleversa la plupart des membres de la secte. Cependant, certains anciens réagirent différemment: leurs corps se mirent à trembler de manière incontrôlable. Ce n'était pas de la peur, mais de l'excitation!
 
-« La Transformation de l'Oiseau Vermillon... La Transformation de l'Oiseau Vermillon!! Je ne pensais jamais assister à la Transformation de l'Oiseau Vermillon de mon vivant! » Un vieillard aux cheveux blancs leva les yeux vers le ciel en riant. Son regard, empreint d'une sagesse ancestrale, était fixé sur la statue.
+« La Transformation de Suzaku... La Transformation de Suzaku!! Je ne pensais jamais assister à la Transformation de Suzaku de mon vivant! » Un vieillard aux cheveux blancs leva les yeux vers le ciel en riant. Son regard, empreint d'une sagesse ancestrale, était fixé sur la statue.
 
 Il n'était pas le seul. Tous ceux qui connaissaient ce phénomène contemplaient le ciel avec exaltation. Peu de personnes parmi les neuf planètes savaient ce que c'était, mais celles qui le savaient possédaient une culture puissante!
 
@@ -94,9 +94,9 @@ Sur la première planète, une terre à l'est était recouverte de flammes rouge
 
 Dès son apparition, la mer de feu environnante commença à converger vers lui. Dans les scintillements des flammes, on pouvait distinguer un vieil homme couvert de rides. Il fixa le ciel, stupéfait, son corps secoué par un frisson.
 
-« Transformation de l'Oiseau Vermillon! » Inconsciemment, deux larmes coulèrent de ses yeux et il éclata d'un rire fou. « C'est bel et bien la Transformation de l'Oiseau Vermillon!! »
+« Transformation de Suzaku! » Inconsciemment, deux larmes coulèrent de ses yeux et il éclata d'un rire fou. « C'est bel et bien la Transformation de Suzaku!! »
 
-Cette scène se répétait sur les huit autres Planètes Divines de l'Oiseau Vermillon!
+Cette scène se répétait sur les huit autres Planètes Divines de Suzaku!
 
 La Statue Sacrée libéra des flammes denses qui, après avoir poussé vers l'extérieur, s'inversèrent brusquement. Toutes les flammes dispersées commencèrent à refluer vers la statue.
 
@@ -114,23 +114,23 @@ Alors que le pilier de feu grondait, il traversa les nuages, les vents violents 
 
 Au moment où il jaillit, huit autres piliers de flammes surgirent des huit autres planètes une fois leurs statues respectives gorgées d'énergie! Bientôt, les neuf piliers se rejoignirent au centre du système des neuf planètes!
 
-À l'instant où ils convergèrent, un cri d'Oiseau Vermillon, d'innombrables fois plus retentissant et plus puissant que celui que Wang Lin avait produit dans le monde-bouteille, résonna à travers tout le champ stellaire embrasé!
+À l'instant où ils convergèrent, un cri de Suzaku, d'innombrables fois plus retentissant et plus puissant que celui que Wang Lin avait produit dans le monde-bouteille, résonna à travers tout le champ stellaire embrasé!
 
 Apparaissant avec ce cri, un Oiseau Vermillon de la taille d'une planète se manifesta. C'était comme s'il n'était pas apparu depuis des éons. Les flammes naturelles que tous les cultivateurs de l'Alliance redoutaient commencèrent à converger vers ce point!
 
 Les vibrations provoquées par cet événement firent trembler tout le champ stellaire dans un grondement assourdissant!
 
-C'était la Transformation de l'Oiseau Vermillon! La première depuis leur défaite face à l'Alliance! Cet événement revêtait une importance capitale pour la Secte Divine de l'Oiseau Vermillon!
+C'était la Transformation de Suzaku! La première depuis leur défaite face à l'Alliance! Cet événement revêtait une importance capitale pour la Secte Divine de Suzaku!
 
-Cela signifiait qu'un membre de la Lignée de l'Oiseau Vermillon avait éveillé sa Marque et pourrait potentiellement devenir le prochain Empereur Divin de l'Oiseau Vermillon. C'était l'unique moyen pour que la Transformation se produise et invoque le véritable esprit de l'Oiseau Vermillon, disparu depuis des dizaines de milliers d'années!
+Cela signifiait qu'un membre de la Lignée de Suzaku avait éveillé sa Marque et pourrait potentiellement devenir le prochain Empereur Divin de Suzaku. C'était l'unique moyen pour que la Transformation se produise et invoque le véritable esprit de Suzaku, disparu depuis des dizaines de milliers d'années!
 
 À cet instant, neuf individus enveloppés de rayons rouge pourpre s'élancèrent depuis les neuf planètes; chacun d'eux était au stade de Briseur du Nirvana. Ils étaient venus pour cette Transformation!
 
-Lorsque les neuf se rapprochèrent de l'esprit de l'Oiseau Vermillon, celui-ci poussa un autre cri. Ce cri se mua en d'innombrables ondulations qui parcoururent le champ stellaire, poussant avec lui des masses colossales de flammes.
+Lorsque les neuf se rapprochèrent de l'esprit de Suzaku, celui-ci poussa un autre cri. Ce cri se mua en d'innombrables ondulations qui parcoururent le champ stellaire, poussant avec lui des masses colossales de flammes.
 
-Simultanément, l'esprit de l'Oiseau Vermillon tourna rapidement sur lui-même pour devenir une sphère de feu géante. Les flammes commencèrent à s'entrelacer, puis une image apparut!
+Simultanément, l'esprit de Suzaku tourna rapidement sur lui-même pour devenir une sphère de feu géante. Les flammes commencèrent à s'entrelacer, puis une image apparut!
 
-L'individu dans l'image avait de longs cheveux flottants et le tatouage de l'Oiseau Vermillon couvrait son corps. Il dégageait une chaleur immense et, de loin, il ressemblait lui-même à un Oiseau Vermillon!
+L'individu dans l'image avait de longs cheveux flottants et le tatouage de Suzaku couvrait son corps. Il dégageait une chaleur immense et, de loin, il ressemblait lui-même à un Oiseau Vermillon!
 
 C'était Wang Lin!
 
@@ -142,11 +142,11 @@ Dès que la scène apparut, la femme tourna soudainement le regard. Ses yeux vid
 « L'Ancêtre Sainte du Clan Fu Wen, Qiu Yao! »
 « Et l'homme devant elle... pourrait-il être l'Empereur Céleste Qing Lin?! »
 
-Maître du Vide, Tian Yunzi et tous les autres apparurent également dans l'image!
+Xu Kongzi, Tian Yunzi et tous les autres apparurent également dans l'image!
 
-« Maître du Vide et Tian Yunzi sont là aussi! »
-« Cette personne a traversé l'Éveil de l'Oiseau Vermillon dans un lieu si périlleux... Maître du Vide est une figure clé de l'Alliance. Il ne permettra certainement pas à ma Secte Zhu Que d'avoir un tel éveil! »
-« Cependant, je n'ai jamais vu celui qui s'est éveillé. Comment a-t-il obtenu la Lignée de l'Oiseau Vermillon? »
+« Xu Kongzi et Tian Yunzi sont là aussi! »
+« Cette personne a traversé l'Éveil de Suzaku dans un lieu si périlleux... Xu Kongzi est une figure clé de l'Alliance. Il ne permettra certainement pas à ma Secte Zhu Que d'avoir un tel éveil! »
+« Cependant, je n'ai jamais vu celui qui s'est éveillé. Comment a-t-il obtenu la Lignée de Suzaku? »
 
 Les neuf personnes observaient la scène au cœur de la sphère de feu. À cet instant précis, un puissant Sens Divin émana des profondeurs du système stellaire embrasé. Cette présence était si forte qu'elle fit même marquer un temps d'arrêt aux flammes du système!
 
@@ -156,10 +156,10 @@ Après que ce Sens Divin eut balayé les lieux, les neuf individus manifestèren
 
 « Ainsi soit fait, par ordre de l'Empereur Divin! »
 
-« Ce vieil homme ne dispose plus de beaucoup de temps, car mes blessures d'autrefois se sont aggravées. Cet enfant est l'espoir de ma Secte Divine de l'Oiseau Vermillon... Vous êtes les plus proches, alors, coûte que coûte, vous devez assurer sa sécurité! »
+« Ce vieil homme ne dispose plus de beaucoup de temps, car mes blessures d'autrefois se sont aggravées. Cet enfant est l'espoir de ma Secte Divine de Suzaku... Vous êtes les plus proches, alors, coûte que coûte, vous devez assurer sa sécurité! »
 
-À ce moment précis, à l'intérieur de la Grotte Xian Di, alors que Qing Lin apparaissait, Wang Lin sentit une chaleur intense dans son tatouage de l'Oiseau Vermillon. Il n'eut même pas le temps de vérifier quand plusieurs regards se posèrent sur lui.
+À ce moment précis, à l'intérieur de la Grotte Xian Di, alors que Qing Lin apparaissait, Wang Lin sentit une chaleur intense dans son tatouage de Suzaku. Il n'eut même pas le temps de vérifier quand plusieurs regards se posèrent sur lui.
 
-Une intention meurtrière jaillit du Maître du Vide. Il avait immédiatement remarqué le changement du tatouage sur le corps de Wang Lin.
+Une intention meurtrière jaillit de Xu Kongzi. Il avait immédiatement remarqué le changement du tatouage sur le corps de Wang Lin.
 
 « La Secte Zhu Que a remarqué son éveil! »

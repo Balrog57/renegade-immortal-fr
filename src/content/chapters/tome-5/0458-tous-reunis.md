@@ -97,10 +97,10 @@ L'homme masqué tourna également la tête vers Wang Lin. Ses yeux passèrent de
 Wang Lin avait l'air d'un désastre. Ses vêtements étaient extrêmement usés. Plus tôt, alors qu'il montait la montagne, le second effondrement s'était produit. Il avait eu beaucoup de mal avec les failles qui surgissaient partout; il avait finalement dû creuser un trou sur le flanc de la montagne et n'avait pas osé en sortir avant que les secousses ne cessent. S'il était resté en plein ciel, il serait mort.
 
 « Frère Wang... »
-« Ceng Niu! »
+« Zeng Niu! »
 « Wang Lin! »
 
-Trois appels distincts s'élevèrent de différentes personnes au sommet. Celui qui l'appela "frère Wang" était naturellement Zhou Wutai. Celui qui cria "Ceng Niu" était Qian Feng, et la dernière voix, plus ancienne, était celle de Yun Quezi.
+Trois appels distincts s'élevèrent de différentes personnes au sommet. Celui qui l'appela "frère Wang" était naturellement Zhou Wutai. Celui qui cria "Zeng Niu" était Qian Feng, et la dernière voix, plus ancienne, était celle de Yun Quezi.
 
 Wang Lin regarda calmement tout le monde jusqu'à ce que son regard se pose finalement sur Yun Quezi. C'était la première fois qu'il le rencontrait depuis leur départ précédent. L'aspect désordonné d'autrefois avait disparu; l'actuel Yun Quezi était semblable à Zhu Quezi.
 

@@ -66,7 +66,7 @@ Wang Lin ignorait tout ce qui se passait à l'extérieur pendant ces longs mois,
 
 Et cette essence d'eau était une essence corporelle. Elle présenterait le même problème que son essence de feu: la fusion et la dévoration de la volonté.
 
-Cependant, l'essence d'eau de Wang Lin n'avait atteint auparavant qu'une petite complétion; après l'avoir fusionnée avec l'essence d'eau du Continent Astral Immortel, le rejet n'était pas trop violent. Il pouvait l'endurer.
+Cependant, l'essence d'eau de Wang Lin n'avait atteint auparavant qu'une petite complétion; après l'avoir fusionnée avec l'essence d'eau du Continent Xian Gang, le rejet n'était pas trop violent. Il pouvait l'endurer.
 
 Le temps passa de nouveau et dix-huit jours supplémentaires s'écoulèrent. Wang Lin avait achevé son huitième cycle. Après ces huit cycles, la goutte d'eau était si minuscule que, sans un examen attentif, on ne pourrait même pas la voir.
 

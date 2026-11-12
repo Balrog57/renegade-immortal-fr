@@ -22,7 +22,7 @@ Tout cela fit de lui le premier ancien dieu à subir la première épreuve dès 
 
 L'épreuve qu'un ancien dieu de 8 étoiles avait franchie sans difficulté représentait pour Wang Lin une question de vie ou de mort.
 
-La première épreuve consistait en une destruction corporelle continue. Autrefois, au sein de la Secte Divine de l'Oiseau Vermillon, la moitié inférieure de Wang Lin n'était plus que des os noirs. Désormais, après son arrivée dans le Système Stellaire de la Mer Yun, cela s'était intensifié: tout ce qui se trouvait sous sa poitrine était devenu osseux.
+La première épreuve consistait en une destruction corporelle continue. Autrefois, au sein de la Secte Divine de Suzaku, la moitié inférieure de Wang Lin n'était plus que des os noirs. Désormais, après son arrivée dans le Système Stellaire de la Mer Yun, cela s'était intensifié: tout ce qui se trouvait sous sa poitrine était devenu osseux.
 
 Ce n'était que le début, l'avènement de la première épreuve. Le corps continuerait à se désagréger jusqu'à ce qu'il ne reste plus ni chair ni sang. Alors, la première épreuve prendrait fin et les deux cataclysmes approcheraient.
 

@@ -24,7 +24,7 @@ Toutefois, Wang Lin ne croyait pas que Lie Yunzi n'ait pas de plan de secours, m
 
 Sur ces mots, il fit un pas et chargea droit vers le géant.
 
-La femme en robe de palais esquissa un sourire gracieux. Malgré l'imminence du combat, elle restait d'un calme olympien. Elle écarta une mèche de cheveux derrière son oreille et sourit à Wang Lin: « Cher compagnon de culture Xu, soyez prudent. »
+La femme en robe de palais esquissa un sourire gracieux. Malgré l'imminence du combat, elle restait d'un calme olympien. Elle écarta une mèche de cheveux derrière son oreille et sourit à Wang Lin: « Cher Daoïste Xu, soyez prudent. »
 
 Lorsque Wang Lin quitta le bois géant et sortit de sa zone d'influence, il fut assailli par le chaos des batailles environnantes. À mesure que le membre du Clan Ju Mo approchait, il pouvait entendre les détonations soniques provoquées par sa charge.
 
@@ -66,7 +66,7 @@ Après une explosion fracassante, le membre du Clan Ju Mo vola en éclats, provo
 
 Le visage de Wang Lin devint légèrement pâle et il recula vers le bois géant comme s'il était blessé. En réalité, terrasser un membre du Clan Ju Mo de 10 000 pieds n'était absolument pas difficile pour Wang Lin, qui possédait le corps d'un Ancien Dieu!
 
-La femme en robe de palais sur le bois géant sourit: « J'admire les sorts du compagnon de culture Xu. Ce sort qui vous permet de raffermir instantanément votre corps est particulièrement impressionnant. »
+La femme en robe de palais sur le bois géant sourit: « J'admire les sorts du Daoïste Xu. Ce sort qui vous permet de raffermir instantanément votre corps est particulièrement impressionnant. »
 
 Lie Yunzi ouvrit les yeux, laissant transparaître son admiration sans toutefois parler. Il pointa le second Parchemin de Bataille et y injecta son Sens Divin.
 

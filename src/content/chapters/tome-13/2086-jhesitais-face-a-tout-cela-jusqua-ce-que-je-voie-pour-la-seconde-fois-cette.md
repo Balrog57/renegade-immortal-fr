@@ -36,7 +36,7 @@ Des caractères étaient gravés sur ce crâne, émettant une lueur froide et un
 
 « J'ai gardé vos paroles en mémoire et, fort de mon expérience, j'ai conçu une méthode lorsque j'ai vu cette silhouette hurlante dans le temple ancestral de Shi Antique!
 
-« Lorsque j'ai conçu ce plan et que je l'ai mis en œuvre, j'étais hésitant. Mon existence était-elle réelle ou n'était-ce qu'un rêve? Le Continent Astral Immortel existait-il vraiment?
+« Lorsque j'ai conçu ce plan et que je l'ai mis en œuvre, j'étais hésitant. Mon existence était-elle réelle ou n'était-ce qu'un rêve? Le Continent Xian Gang existait-il vraiment?
 
 « Jusqu'à ce que je voie ce crâne... » murmura Wang Lin.
 
@@ -52,7 +52,7 @@ Wang Lin fixa calmement Tian Yunzi.
 
 « Je lui ai donné de l'autonomie, j'ai offert la liberté à mon avatar!
 
-« Après cela, tout est devenu limpide. La soi-disant vie antérieure était en réalité l'avatar de massacre que j'avais envoyé dans le passé. Vous prétendez que le Continent Astral Immortel est une illusion — je peux vous dire dès maintenant qu'il n'est ni un rêve, ni une illusion!
+« Après cela, tout est devenu limpide. La soi-disant vie antérieure était en réalité l'avatar de massacre que j'avais envoyé dans le passé. Vous prétendez que le Continent Xian Gang est une illusion — je peux vous dire dès maintenant qu'il n'est ni un rêve, ni une illusion!
 
 « Moi, Wang Lin, je ne me suis pas réincarné. Je suis né sur la planète Suzaku et j'ai atteint le stade actuel. Je suis moi-même!
 
@@ -62,7 +62,7 @@ Wang Lin fixa calmement Tian Yunzi.
 
 « Le Sens Divin m'a clairement révélé que, dans le passé, l'avatar de massacre avait inversé le monde et emprunté une boussole. Cette boussole était la clé pour ressusciter Wan Er.
 
-« Il a placé la boussole sur le Continent Astral Immortel et y est entré à plusieurs reprises. Cependant, à chaque fois, il se dissipait rapidement après y être entré.
+« Il a placé la boussole sur le Continent Xian Gang et y est entré à plusieurs reprises. Cependant, à chaque fois, il se dissipait rapidement après y être entré.
 
 « Ce n'est que lorsqu'il est arrivé, une dernière fois et tel une réincarnation, dans le Royaume Divin Immémorial qu'il a pu accomplir la tâche que je lui avais assignée: il a brisé la boussole avant de se dissiper. Cela a rendu la boussole incomplète et a libéré l'esprit du trésor qui y résidait!
 

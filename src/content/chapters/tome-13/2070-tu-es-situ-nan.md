@@ -46,7 +46,7 @@ Les gardes déposèrent silencieusement plusieurs cruches de vin près de Wang L
 
 « Pour que Monsieur vienne ici en toute discrétion, cela signifie que même si les soldats s'interposaient, ils ne pourraient pas vous arrêter; alors, à quoi bon? » répondit le vieux général en saisissant une cruche, brisant le sceau et buvant à grandes encolures.
 
-Le sourire de Wang Lin s'élargit. Il était véritablement heureux. On pouvait dire que depuis son arrivée sur le Continent Astral Immortel, les instants de pur bonheur étaient devenus rares. Ce sentiment différait de celui d'avoir retrouvé les fragments de l'âme de Li Muwan ou d'être aux côtés de Xuan Luo; c'était cette sensation indescriptible de retrouver un vieil ami.
+Le sourire de Wang Lin s'élargit. Il était véritablement heureux. On pouvait dire que depuis son arrivée sur le Continent Xian Gang, les instants de pur bonheur étaient devenus rares. Ce sentiment différait de celui d'avoir retrouvé les fragments de l'âme de Li Muwan ou d'être aux côtés de Xuan Luo; c'était cette sensation indescriptible de retrouver un vieil ami.
 
 Cette émotion lui procurait une paix et une joie immenses.
 
@@ -64,13 +64,13 @@ Le temps s'écoula et l'aube approcha. Les soldats étaient restés de garde pre
 
 Wang Lin hocha la tête sans mot dire, continuant de boire.
 
-Le temps fila jusqu'à l'aurore. L'obscurité se dissipa et le soleil commença à poindre dans le ciel. Wang Lin et le vieux général avaient bu tout au long de la nuit. Wang Lin lui raconta ses périples sur le Continent Astral Immortel: le Continent Tian Niu, le Continent Lu Mo, la cité ancestrale... Il évoqua même tout ce qui s'était passé au sein du clan Ancien.
+Le temps fila jusqu'à l'aurore. L'obscurité se dissipa et le soleil commença à poindre dans le ciel. Wang Lin et le vieux général avaient bu tout au long de la nuit. Wang Lin lui raconta ses périples sur le Continent Xian Gang: le Continent Tian Niu, le Continent Lu Mo, la cité ancestrale... Il évoqua même tout ce qui s'était passé au sein du clan Ancien.
 
 Lorsqu'il mentionna avoir trouvé les fragments de l'âme de Li Muwan, des larmes coulèrent. Et quand il parla de l'assassinat de l'Empereur Dao Gu et du prix d'une vie payé pour la grâce de son maître, son visage s'assombrit.
 
 Il raconta tout, jusqu'au moment où il quitta le clan Ancien pour retourner auprès du clan céleste.
 
-Le vieux général écoutait chaque mot. Il ne parvenait pas à imaginer l'identité de cet homme. Si ses propos étaient vrais, il devait être un personnage stupéfiant sur le Continent Astral Immortel!
+Le vieux général écoutait chaque mot. Il ne parvenait pas à imaginer l'identité de cet homme. Si ses propos étaient vrais, il devait être un personnage stupéfiant sur le Continent Xian Gang!
 
 Pourtant, pourquoi être apparu ainsi en pleine nuit pour boire et discuter... Dans l'esprit du vieux général, cet homme devenait peu à peu familier. C'était comme si une sensation de reconnaissance tapie dans les tréfonds de sa mémoire refaisait surface.
 
@@ -92,7 +92,7 @@ La voix de Wang Lin résonna dans la tente. Le vieux général écoutait, la con
 
 Le temps passa. Alors que le matin était là et que le soleil brillait de mille feux, le récit de Wang Lin continuait.
 
-« Li Qianmei, Situ Nan, Qing Shui... Ils ont tous été réincarnés sur le Continent Astral Immortel. J'ai laissé ma marque en eux, et c'est le seul moyen de les retrouver. » Wang Lin prit une gorgée de vin en souriant au vieux général.
+« Li Qianmei, Situ Nan, Qing Shui... Ils ont tous été réincarnés sur le Continent Xian Gang. J'ai laissé ma marque en eux, et c'est le seul moyen de les retrouver. » Wang Lin prit une gorgée de vin en souriant au vieux général.
 
 Le vieil homme resta silencieux, plongé dans ses pensées. Son corps trembla et, après un long moment, il ouvrit soudainement les yeux.
 
@@ -106,7 +106,7 @@ Wang Lin le regarda et hocha lentement la tête.
 
 Il ne pensait pas qu'un cultivateur immortel viendrait tromper un mortel comme lui!
 
-« Ainsi, je me suis déjà réincarné plusieurs fois sur le Continent Astral Immortel, et cette fois-ci, je suis Si Nan, le grand général du pays Wu Xuan... » Le vieux général riait de plus belle, les larmes aux yeux. Il y croyait, mais c'était précisément cette certitude qui rendait la chose si difficile à accepter.
+« Ainsi, je me suis déjà réincarné plusieurs fois sur le Continent Xian Gang, et cette fois-ci, je suis Si Nan, le grand général du pays Wu Xuan... » Le vieux général riait de plus belle, les larmes aux yeux. Il y croyait, mais c'était précisément cette certitude qui rendait la chose si difficile à accepter.
 
 « Parmi les 500 000 soldats dehors, beaucoup me suivent depuis la génération de leurs grands-pères. Leurs grands-pères sont morts, puis leurs pères m'ont suivi. Même si beaucoup de ces pères sont morts, ils continuent de me suivre.
 
@@ -114,7 +114,7 @@ Maintenant, tu me dis que je suis Situ Nan. Je suis ce Situ Nan qui voulait deve
 
 « Réincarnation... Réincarnation... Une seule réincarnation comporte tant de liens. Je me suis réincarné plusieurs fois... » Le vieux général resta assis, fixant Wang Lin d'un regard complexe, son rire se muant en amertume.
 
-« Je suis désolé... C'était mon propre choix à l'époque. J'ai choisi de me réincarner sur le Continent Astral Immortel, et cela n'a rien à voir avec toi. »
+« Je suis désolé... C'était mon propre choix à l'époque. J'ai choisi de me réincarner sur le Continent Xian Gang, et cela n'a rien à voir avec toi. »
 
 Wang Lin resta silencieux, continuant de boire son vin.
 

@@ -94,7 +94,7 @@ Les deux cultivateurs au stade avancé de la Tribulation du Vide n'étaient pas 
 
 « Je ferai en sorte que la Secte Dao Mo... » La Lame Yin grandissait rapidement, mais elle ne s'arrêtait pas; elle continuait de croître!
 
-« Disparaisse du Continent Astral Immortel. Que toute la secte soit détruite, que son Dao soit anéanti et que son nom s'efface à jamais! » La Lame Yin mesurait désormais près de trente pieds de long, dépassant même la taille de Wang Lin. Il leva sa main droite et le soleil se refléta sur la lame, émettant une lumière blanche et glaciale. Une énergie Yin monstrueuse enveloppa alors Wang Lin!
+« Disparaisse du Continent Xian Gang. Que toute la secte soit détruite, que son Dao soit anéanti et que son nom s'efface à jamais! » La Lame Yin mesurait désormais près de trente pieds de long, dépassant même la taille de Wang Lin. Il leva sa main droite et le soleil se refléta sur la lame, émettant une lumière blanche et glaciale. Une énergie Yin monstrueuse enveloppa alors Wang Lin!
 
 Dès que la Lame Yin apparut, Wang Lin chargea vers les cultivateurs en contrebas. Sa vitesse était plus fulgurante que l'éclair. Il n'avait nul besoin de recourir à de grands sorts, car il comptait utiliser cette lame pour massacrer l'intégralité de la secte!
 

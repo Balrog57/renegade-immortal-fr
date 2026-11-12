@@ -88,7 +88,7 @@ Wang Lin leva sa main droite et pointa du doigt. Face à quiconque manipule le f
 
 En s'élançant, la lumière bleue vacilla et se métamorphosa en un immense Oiseau Vermillon bleu. L'oiseau poussa un cri et chargea le mille-pattes.
 
-Le mille-pattes poussa immédiatement un rugissement; sa partie supérieure se redressa telle un serpent pour faire face à l'Oiseau Vermillon. Le feu autour de lui se condensa frénétiquement pour former une force monstrueuse à l'extérieur de son corps, avant de percuter l'oiseau qui approchait à grande vitesse.
+Le mille-pattes poussa immédiatement un rugissement; sa partie supérieure se redressa telle un serpent pour faire face à Suzaku. Le feu autour de lui se condensa frénétiquement pour former une force monstrueuse à l'extérieur de son corps, avant de percuter l'oiseau qui approchait à grande vitesse.
 
 Un grondement assourdissant résonna à travers le Royaume Luan Shou Wu, et le sens des bêtes de plusieurs spécimens de rang 12 se dirigea instantanément vers ce point. Cependant, à cet instant précis, une aura d'une puissance telle qu'elle choqua même Wang Lin émana des profondeurs du Royaume et supprima les autres bêtes de rang 12!
 

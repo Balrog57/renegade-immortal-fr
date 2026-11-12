@@ -130,25 +130,25 @@ Après avoir rangé l'objet, il regarda la grotte avec regret. Il en sortit, fit
 
 Wang Lin ne se retourna pas et prit son envol vers l'est.
 
-D'après les souvenirs de Ma Liang, le Sanctuaire du Dieu de la Guerre se situait à l'est. Wang Lin avait pris sa décision. Puisqu'il n'avait pu localiser Zhao dans la mémoire de Ma Liang, il devait aller consulter la carte conservée au Pavillon Cang Jing du Sanctuaire du Dieu de la Guerre.
+D'après les souvenirs de Ma Liang, le Temple Zhan Shen se situait à l'est. Wang Lin avait pris sa décision. Puisqu'il n'avait pu localiser Zhao dans la mémoire de Ma Liang, il devait aller consulter la carte conservée au Pavillon Cang Jing du Temple Zhan Shen.
 
 Par ailleurs, son épée verte, raffinée avec du sang, n'était plus qu'un simple morceau de métal dont la puissance avait considérablement diminué. Face à des cultivateurs de l'Établissement des Fondations, elle n'était pas nécessaire. Cependant, face à un cultivateur de la Formation du Noyau, contre lequel le Royaume Ji serait sans effet, ce morceau de métal pourrait lui sauver la vie.
 
-Il devait donc apprendre à raffiner des trésors. C'était une autre raison pour laquelle il devait retourner au Sanctuaire du Dieu de la Guerre, car ils y possédaient une forge de raffinage.
+Il devait donc apprendre à raffiner des trésors. C'était une autre raison pour laquelle il devait retourner au Temple Zhan Shen, car ils y possédaient une forge de raffinage.
 
 De plus, il devait trouver un lieu de Yin extrême, sans quoi il resterait bloqué au stade intermédiaire de l'Établissement des Fondations. Seul un lieu de Yin extrême lui permettrait de former les trois noyaux froids, d'atteindre le stade avancé de l'Établissement des Fondations, puis de former son noyau.
 
 Wang Lin décida de ne pas abandonner la culture de la Méthode d'Ascension des Enfers. Après tout, Situ Nan lui avait dit qu'une fois les trois noyaux froids formés et fusionnés, il aurait de fortes chances d'entrer dans le stade de la Formation du Noyau.
 
-Pendant qu'il récupérait sa culture, faute de liquide spirituel Yin glacial, il n'avait pu pratiquer, au stade de l'Établissement des Fondations, que la technique inférieure du Chemin Divin du Sanctuaire du Dieu de la Guerre, tirée des souvenirs de Ma Liang. Cependant, l'énergie spirituelle issue de ce Chemin Divin n'avait aucun attribut et, du simple point de vue de la qualité, elle était bien inférieure à l'énergie spirituelle Yin glaciale.
+Pendant qu'il récupérait sa culture, faute de liquide spirituel Yin glacial, il n'avait pu pratiquer, au stade de l'Établissement des Fondations, que la technique inférieure du Chemin Divin du Temple Zhan Shen, tirée des souvenirs de Ma Liang. Cependant, l'énergie spirituelle issue de ce Chemin Divin n'avait aucun attribut et, du simple point de vue de la qualité, elle était bien inférieure à l'énergie spirituelle Yin glaciale.
 
 Mais elle l'emportait par sa durée: si l'énergie spirituelle Yin glaciale était comme une épée invincible, celle du Chemin Divin était comme un fil de soie souple pouvant s'enrouler autour d'un doigt.
 
-Le Sanctuaire du Dieu de la Guerre se trouvait sur une montagne perçant les cieux dans la partie orientale de Huo Fen. La montagne, enveloppée de nuages, regorgeait de bêtes spirituelles. Derrière le pic principal se trouvaient quatre pics secondaires un peu moins hauts, qui abritaient les lieux de culture des quatre halls annexes du Sanctuaire.
+Le Temple Zhan Shen se trouvait sur une montagne perçant les cieux dans la partie orientale de Huo Fen. La montagne, enveloppée de nuages, regorgeait de bêtes spirituelles. Derrière le pic principal se trouvaient quatre pics secondaires un peu moins hauts, qui abritaient les lieux de culture des quatre halls annexes du Sanctuaire.
 
-En tant que première des quatre grandes sectes du pays de Huo Fen, le Sanctuaire du Dieu de la Guerre comptait plus de 3 000 disciples. Même en excluant les serviteurs de la secte extérieure, il restait plus de 2 300 disciples de la secte intérieure.
+En tant que première des quatre grandes sectes du pays de Huo Fen, le Temple Zhan Shen comptait plus de 3 000 disciples. Même en excluant les serviteurs de la secte extérieure, il restait plus de 2 300 disciples de la secte intérieure.
 
-Ce jour-là, sur un pic isolé situé à mille kilomètres du Sanctuaire du Dieu de la Guerre, Zhou Zihong, Yang Xiong et Lin Tao attendaient. Trois jours auparavant, ils avaient soudainement senti leurs âmes vaciller lorsque Wang Lin leur avait envoyé un message via l'essence de sang de leur âme. Il leur avait ordonné d'apporter quelques objets. L'heure convenue était depuis longtemps passée, mais les trois n'osaient pas partir.
+Ce jour-là, sur un pic isolé situé à mille kilomètres du Temple Zhan Shen, Zhou Zihong, Yang Xiong et Lin Tao attendaient. Trois jours auparavant, ils avaient soudainement senti leurs âmes vaciller lorsque Wang Lin leur avait envoyé un message via l'essence de sang de leur âme. Il leur avait ordonné d'apporter quelques objets. L'heure convenue était depuis longtemps passée, mais les trois n'osaient pas partir.
 
 Parmi eux, Lin Tao était le plus terrifié et cherchait désespérément ses mots.
 
@@ -184,7 +184,7 @@ Yang Xiong et Zhou Zihong n'allaient pas beaucoup mieux; ils ne faisaient que r�
 
 Wang Lin retira son Sens Divin du Royaume Ji. Ce n'est qu'à ce moment que le sentiment de danger disparut. Les trois poussèrent un soupir de soulagement, puis Yang Xiong et Zhou Zihong s'inclinèrent pour saluer Wang Lin.
 
-En s'inclinant, une trace d'amertume traversa le visage de Yang Xiong tandis qu'il serrait un talisman de jade dans sa main droite. Il était venu avec deux intentions. La première consistait à tromper Wang Lin pour qu'il retourne au Sanctuaire du Dieu de la Guerre afin de demander aux anciens de l'aider à reprendre l'essence de sang de leur âme. La seconde, si Wang Lin refusait de partir, consistait à transmettre secrètement sa position via le talisman de jade. Au Sanctuaire, son Junior frère possédait un autre talisman de jade; il suffisait d'y injecter une onde d'énergie spirituelle pour que celui de son cadet s'illumine, et celui-ci, suivant ses instructions, le remettrait aussitôt à leur Maître.
+En s'inclinant, une trace d'amertume traversa le visage de Yang Xiong tandis qu'il serrait un talisman de jade dans sa main droite. Il était venu avec deux intentions. La première consistait à tromper Wang Lin pour qu'il retourne au Temple Zhan Shen afin de demander aux anciens de l'aider à reprendre l'essence de sang de leur âme. La seconde, si Wang Lin refusait de partir, consistait à transmettre secrètement sa position via le talisman de jade. Au Sanctuaire, son Junior frère possédait un autre talisman de jade; il suffisait d'y injecter une onde d'énergie spirituelle pour que celui de son cadet s'illumine, et celui-ci, suivant ses instructions, le remettrait aussitôt à leur Maître.
 
 Mais il venait de comprendre à quel point son idée était stupide. S'il avait agi ainsi, il aurait été le premier à mourir.
 
@@ -204,7 +204,7 @@ Le corps de Yang Xiong trembla et son visage pâlit instantanément. En voyant W
 
 Wang Lin ne le regarda plus et se tourna vers Zhou Zihong. Cette dernière serra les dents, leva son joli visage et dit: « Senior, ce Chemin Divin est très étrange. Bien que je l'aie consulté une fois il y a six mois, je n'en ai gardé aucune impression après coup; il m'est donc impossible d'en faire une copie. En réalité, Senior n'a pas besoin de passer par un tel détour. Dès que vous serez de retour à la secte, avec le statut de Ma Liang revenu du champ de bataille étranger, vous aurez naturellement qualité pour l'étudier. »
 
-Le Chemin Divin était ce qui intéressait le plus Wang Lin dans les souvenirs de Ma Liang. Ma Liang rêvait de l'étudier. Pour une raison obscure, le Sanctuaire du Dieu de la Guerre était très strict concernant l'étude du Chemin Divin par ses propres disciples, tandis que les personnes extérieures n'avaient qu'à payer des pierres spirituelles à intervalles réguliers pour y accéder.
+Le Chemin Divin était ce qui intéressait le plus Wang Lin dans les souvenirs de Ma Liang. Ma Liang rêvait de l'étudier. Pour une raison obscure, le Temple Zhan Shen était très strict concernant l'étude du Chemin Divin par ses propres disciples, tandis que les personnes extérieures n'avaient qu'à payer des pierres spirituelles à intervalles réguliers pour y accéder.
 
 Cependant, pour les disciples du Sanctuaire, il fallait soit avoir atteint la Formation du Noyau, soit avoir apporté une contribution majeure à la secte. Ce n'est qu'après avoir rempli l'une de ces conditions qu'ils pouvaient l'étudier sous la supervision d'un Ancien.
 

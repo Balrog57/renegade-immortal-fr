@@ -42,7 +42,7 @@ Wang Lin fronça les sourcils. Il ne s'enfonça pas profondément, mais contourn
 
 Les yeux de Wang Lin se rétrécirent. Il connaissait très bien cette voix. C'était Tan Lang!
 
-« Sauvez-moi, cher compagnon cultivateur, je possède de nombreux trésors. Si vous me sauvez, je vous les donnerai tous. »
+« Sauvez-moi, cher Daoïste, je possède de nombreux trésors. Si vous me sauvez, je vous les donnerai tous. »
 
 Dans la zone d'absorption et d'excrétion du Serpent aux yeux de lune, le corps de Tan Lang était extrêmement maigre. Il avait perdu une grande partie de sa chair, de son essence sanguine et de son énergie spirituelle céleste pour contrer la force d'absorption du lieu au cours des cent dernières années.
 
@@ -78,7 +78,7 @@ Grâce à son intelligence, Tan Lang avait naturellement déduit qu'il s'agissai
 
 C'était la première fois depuis cent ans qu'il percevait quelqu'un à l'extérieur. L'excitation qu'il ressentait était indescriptible.
 
-« Compagnon cultivateur, sauvez-moi! Ce vieil homme vous jure que les récompenses seront immenses! » Tan Lang continuait d'envoyer des messages par Sens Divin.
+« Daoïste, sauvez-moi! Ce vieil homme vous jure que les récompenses seront immenses! » Tan Lang continuait d'envoyer des messages par Sens Divin.
 
 Wang Lin ne répondit pas. Au lieu de cela, il fit volte-face pour partir.
 

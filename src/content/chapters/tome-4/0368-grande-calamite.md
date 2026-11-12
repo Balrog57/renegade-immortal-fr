@@ -40,7 +40,7 @@ Wang Lin stabilisa son corps en plein vol. Il regarda autour de lui et son visag
 
 Un homme d'âge moyen se tenait devant lui, entouré de tables, de chaises et d'un service à thé.
 
-L'homme d'âge moyen était assis sur une chaise; il saisit une tasse, en prit une gorgée et dit: « Jeune Ceng Niu, je suis Li Yuanfeng, le maître de secte de Xue Yu. Je suis venu ici pour prendre ta vie pour Hongdie! »
+L'homme d'âge moyen était assis sur une chaise; il saisit une tasse, en prit une gorgée et dit: « Jeune Zeng Niu, je suis Li Yuanfeng, le maître de secte de Xue Yu. Je suis venu ici pour prendre ta vie pour Hongdie! »
 
 « Vieux monstre de la Transformation de l'Âme! » Il fut capable d'identifier le niveau de culture de l'homme d'un seul regard. Son expression s'obscurcit davantage. Sans la moindre hésitation, il tenta de déchirer une faille spatiale pour s'échapper avec la boussole stellaire.
 
@@ -58,7 +58,7 @@ La boussole stellaire était inutile et la téléportation l'était tout autant.
 
 Wang Lin fit un pas en arrière pour tenter de s'éloigner rapidement.
 
-L'homme d'âge moyen se servit nonchalamment une autre tasse, souffla doucement sur le thé, en prit une gorgée, posa la tasse et se leva. Il secoua la tête: « D'ordinaire, je n'agis pas, mais quand je le fais, je ne baisse pas ma garde sous prétexte que ma cible est au stade de la Formation de l'Âme. Ceng Niu, tu vas certainement mourir cette fois! »
+L'homme d'âge moyen se servit nonchalamment une autre tasse, souffla doucement sur le thé, en prit une gorgée, posa la tasse et se leva. Il secoua la tête: « D'ordinaire, je n'agis pas, mais quand je le fais, je ne baisse pas ma garde sous prétexte que ma cible est au stade de la Formation de l'Âme. Zeng Niu, tu vas certainement mourir cette fois! »
 
 Il s'élança à la poursuite de Wang Lin.
 
@@ -74,7 +74,7 @@ Ils portaient tous des robes noires et leurs visages étaient dissimulés. L'ind
 
 « Un autre cultivateur de la Transformation de l'Âme! » Le cœur de Wang Lin se serra d'amertume.
 
-À ce moment précis, l'homme d'âge moyen arriva. Il s'arrêta à 330 mètres de Wang Lin et déclara: « Inutile de fuir, Ceng Niu. Aujourd'hui est le jour de ta mort! »
+À ce moment précis, l'homme d'âge moyen arriva. Il s'arrêta à 330 mètres de Wang Lin et déclara: « Inutile de fuir, Zeng Niu. Aujourd'hui est le jour de ta mort! »
 
 Sur ces mots, il leva la main droite et pointa Wang Lin du doigt. Un tourbillon surgit soudainement et chargea vers lui.
 
@@ -96,7 +96,7 @@ Le visage de Wang Lin était aussi livide que celui d'un cadavre. De nouvelles b
 
 L'homme en robe noire tendit la main et saisit l'épée céleste de Wang Lin. Il commenta: « C'est une belle épée. Elle contient même un esprit d'épée. Pas mal! »
 
-L'homme d'âge moyen eut un léger sourire: « Cette épée est à toi, mais ce petit drapeau capable d'attirer la rétribution divine m'appartient. »
+L'homme d'âge moyen eut un léger sourire: « Cette épée est à toi, mais ce petit drapeau capable d'attirer la Tribulation Céleste m'appartient. »
 
 Le vieil homme en robe noire rit: « Très bien. La boussole stellaire appartenait originellement à mon clan, je vais donc la récupérer! »
 
@@ -108,7 +108,7 @@ D'un air sombre, il fixa le vieil homme en robe noire et lâcha: « Le Clan Ju M
 
 L'homme retira son masque, révélant un Ancien aux cheveux gris, dont les yeux brillaient comme la lumière lunaire.
 
-Il regarda Wang Lin en riant: « Jeune Ceng Niu, ce vieux est bel et bien du Clan Ju Mo. Dans le Royaume Céleste, tu as dérobé la boussole stellaire à notre jeune chef de clan Chi Hu, je suis donc ici pour la reprendre aujourd'hui. J'espère que tu ne m'en voudras pas. »
+Il regarda Wang Lin en riant: « Jeune Zeng Niu, ce vieux est bel et bien du Clan Ju Mo. Dans le Royaume Céleste, tu as dérobé la boussole stellaire à notre jeune chef de clan Chi Hu, je suis donc ici pour la reprendre aujourd'hui. J'espère que tu ne m'en voudras pas. »
 
 Le regard de Wang Lin était sombre. Sa main droite tremblait alors qu'il sortait des pilules de son sac pour les avaler devant les deux cultivateurs de la Transformation de l'Âme. Puis, il dit calmement: « Deux vieux monstres de la Transformation de l'Âme se sont déplacés simultanément pour me tuer... Je n'oublierai jamais cet honneur! »
 
@@ -122,7 +122,7 @@ Plusieurs couches de gaz furent pulvérisées, mais elles réussirent à stopper
 
 Les yeux de l'homme d'âge moyen s'illuminèrent lorsqu'il vit le drapeau dans la main de Wang Lin: « Quel remarquable petit drapeau. Je devrai l'étudier avec soin! »
 
-De son point de vue, Ceng Niu était condamné. Il était impossible que deux cultivateurs de la Transformation de l'Âme ne parviennent pas à abattre un simple cultivateur de la Formation de l'Âme.
+De son point de vue, Zeng Niu était condamné. Il était impossible que deux cultivateurs de la Transformation de l'Âme ne parviennent pas à abattre un simple cultivateur de la Formation de l'Âme.
 
 Le visage de Wang Lin devint encore plus pâle et une pointe de désespoir envahit son cœur. Son corps originel ne pourrait certainement pas arriver à temps. Même en faisant abstraction de la distance, son corps originel ne pourrait pas intervenir sans risquer une mort certaine.
 
@@ -142,7 +142,7 @@ Le regard de Chi Hu était d'un calme olympien alors qu'il volait vers Wang Lin.
 
 « Chi Hu! » En tenant le drapeau de restriction, les yeux de Wang Lin trahirent un sentiment complexe.
 
-« Ceng Niu, accepte ta mort! » cria Chi Hu, bien que ses yeux brillent d'une lueur mystérieuse. Sa paume projeta une onde d'énergie spirituelle.
+« Zeng Niu, accepte ta mort! » cria Chi Hu, bien que ses yeux brillent d'une lueur mystérieuse. Sa paume projeta une onde d'énergie spirituelle.
 
 En voyant le regard de Chi Hu, le cœur de Wang Lin manqua un battement.
 

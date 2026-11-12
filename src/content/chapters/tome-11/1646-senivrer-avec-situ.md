@@ -8,7 +8,7 @@ slug: senivrer-avec-situ
 ---
 Après une journée, Wang Lin quitta l'Ancien Royaume Céleste, fort de la promesse des quatre généraux.
 
-L'Ancien Royaume Céleste ne pouvait être entré ou quitté que par la faille créée par la Tribulation Céleste. Cette faille faisait partie du sceau de l'Ancien Royaume Céleste; quiconque venait du Continent Astral Immortel et possédait la lignée d'un être céleste aurait grand peine à s'échapper par elle, à moins que tous ne s'unissent pour propulser une seule personne vers l'extérieur, comme ils l'avaient fait pour le Seigneur du Royaume Scellé.
+L'Ancien Royaume Céleste ne pouvait être entré ou quitté que par la faille créée par la Tribulation Céleste. Cette faille faisait partie du sceau de l'Ancien Royaume Céleste; quiconque venait du Continent Xian Gang et possédait la lignée d'un être céleste aurait grand peine à s'échapper par elle, à moins que tous ne s'unissent pour propulser une seule personne vers l'extérieur, comme ils l'avaient fait pour le Seigneur du Royaume Scellé.
 
 Peut-être la Perle Défiant le Ciel était-elle ici l'élément le plus crucial!
 
@@ -26,7 +26,7 @@ Lorsqu'ils virent apparaître la silhouette de Wang Lin, des acclamations éclat
 
 En écoutant leurs cris, Wang Lin sombra davantage dans ses pensées. Il ressentait une vague confusion.
 
-« Seigneur du Royaume Scellé... Le précédent Seigneur du Royaume Scellé n'était qu'un pion du Souverain Céleste. Il n'était pas originaire du Royaume Intérieur, il venait du Continent Astral Immortel et possédait la lignée d'un être céleste... Il n'était pas venu dans le Royaume Intérieur pour aider, mais pour mettre en place un plan au profit du Souverain Céleste... C'était un homme inflexible. Peut-être qu'au fil des ans, il a éprouvé de la compassion pour les habitants d'ici et que tout cela est arrivé... »
+« Seigneur du Royaume Scellé... Le précédent Seigneur du Royaume Scellé n'était qu'un pion du Souverain Céleste. Il n'était pas originaire du Royaume Intérieur, il venait du Continent Xian Gang et possédait la lignée d'un être céleste... Il n'était pas venu dans le Royaume Intérieur pour aider, mais pour mettre en place un plan au profit du Souverain Céleste... C'était un homme inflexible. Peut-être qu'au fil des ans, il a éprouvé de la compassion pour les habitants d'ici et que tout cela est arrivé... »
 
 « Cependant, en fin de compte, il n'appartenait pas à ce lieu, il était un étranger... »
 

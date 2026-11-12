@@ -10,7 +10,7 @@ Jiu Di regarda l'Empereur Céleste et expliqua l'origine de tout cela: « Ce pla
 
 « Lorsque le précédent Empereur Céleste est décédé, et que vous avez pris le trône, l'ancien Maître Impérial m'a trouvé. Selon le plan, nous nous sommes mariés et avons eu une fille.
 
-« Cette petite fille possède un corps issu du Continent Astral Immortel, mais l'âme du Clan Dao Wang... À l'origine, cela ne pouvait se produire sous le sceau de l'Ancêtre Céleste, car la puissance du sceau était trop grande!
+« Cette petite fille possède un corps issu du Continent Xian Gang, mais l'âme du Clan Dao Wang... À l'origine, cela ne pouvait se produire sous le sceau de l'Ancêtre Céleste, car la puissance du sceau était trop grande!
 
 « Cependant, à ce moment-là, l'Ancêtre Céleste était mort depuis de nombreuses années et le sceau s'affaiblissait. Le génie du Clan Dao Wang a alors élaboré un plan qui, pour réussir, exigeait que l'ensemble du Clan Dao Wang sacrifie ses âmes pour lutter contre la puissance du sceau.
 
@@ -82,7 +82,7 @@ Shuangzi réfléchit en silence. Comment ne pas avoir percé à jour leurs inten
 
 « Shuangzi, les yeux de l'Ancêtre Céleste ne formaient autrefois qu'une seule entité. Si vous les absorbez, cela inversera l'incident survenu lors de votre réincarnation et augmentera même votre puissance! Cela vous permettra également de vous séparer et de fusionner à tout moment, au lieu de consumer votre force de Yang Pourpre pour maintenir cet état de fusion!
 
-« Wu Feng, ce vieil homme peut confirmer que les oreilles de l'Ancêtre Céleste perçoivent le son du Dao et la trace des lois du Continent Astral Immortel. Je vous promets de vous les donner. Fusionnez-les avec votre Dao et vous pourrez atteindre le sommet du Dao martial!
+« Wu Feng, ce vieil homme peut confirmer que les oreilles de l'Ancêtre Céleste perçoivent le son du Dao et la trace des lois du Continent Xian Gang. Je vous promets de vous les donner. Fusionnez-les avec votre Dao et vous pourrez atteindre le sommet du Dao martial!
 
 « Dao Yi, le crâne de l'Ancêtre Céleste est né du vide, et au fil d'innombrables années, l'essence de sa puissance s'y est accumulée. Je vous promets de vous le donner. Avec lui, votre corps et votre âme ne feront plus qu'un!
 
@@ -102,7 +102,7 @@ L'Empereur Céleste sombra dans une profonde réflexion.
 
 Au sol, à l'intérieur de l'œil droit terne de la tête de l'Ancêtre Céleste, les yeux de Wang Lin s'illuminèrent tandis qu'il dissimulait son aura. Il avait tout entendu. Ce voyage au palais avait été semé d'embûches. Wang Lin en avait pressenti une partie, mais pas la totalité.
 
-« Le Très Respecté Taureau Vert de la Secte Da Hun m'a dit de revenir dans 300 ans pour monter au dernier étage... Le fondateur de la Secte Da Hun m'a laissé quelque chose...
+« Le Très Respecté Qing Niu de la Secte Da Hun m'a dit de revenir dans 300 ans pour monter au dernier étage... Le fondateur de la Secte Da Hun m'a laissé quelque chose...
 
 « L'ancêtre de la Secte Da Hun, le génie du Clan Dao Wang. Après m'avoir utilisé pour lever le sceau sur leur clan, que me laissera-t-il... » Wang Lin affichait une expression complexe.
 

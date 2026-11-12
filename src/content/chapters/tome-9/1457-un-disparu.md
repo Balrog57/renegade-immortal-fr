@@ -12,7 +12,7 @@ Une plateforme de 60 000 pieds s'étendait ici, parsemée d'une multitude de cr�
 
 Un vieil homme était assis au centre de cette plateforme, imprégné d'une odeur de sang.
 
-L'homme vêtait du noir et la moitié de ses cheveux était blanche. Son visage oscillait rapidement entre la jeunesse et la vieillesse. Entre ses sourcils se trouvait une marque en forme de lune, mais ce n'était pas celle du Clan Dévorant la Lune; elle ressemblait plutôt à un sceau démoniaque!
+L'homme vêtait du noir et la moitié de ses cheveux était blanche. Son visage oscillait rapidement entre la jeunesse et la vieillesse. Entre ses sourcils se trouvait une marque en forme de lune, mais ce n'était pas celle du Clan Yue Shi; elle ressemblait plutôt à un sceau démoniaque!
 
 Si l'avatar de Miaoyin Daozun n'avait pas été possédé, il aurait été stupéfait et extrêmement prudent. Cet homme était l'un des cinq maîtres qui avaient été gravement blessés dans les Terres Déchues auparavant: Jiutian Mozun.
 
@@ -64,9 +64,9 @@ Sur la cinquième carte, Wang Lin était pensif. Il s'apprêtait à retirer son 
 
 Cette voix résonna dans l'esprit de Wang Lin. À l'instant même où elle s'estompait, l'esprit de Wang Lin sembla fusionner avec le Tombeau Ancien. À ses côtés, il pouvait clairement percevoir quatre auras ténues!
 
-« L'Ordre Antique Ye Mo... » L'esprit de Wang Lin fut secoué. C'était la deuxième fois qu'il entendait ce nom. La première fois, c'était par l'Oiseau Vermillon de la première génération! Il se souvenait parfaitement des paroles de celui-ci:
+« L'Dao Gu Ye Mo... » L'esprit de Wang Lin fut secoué. C'était la deuxième fois qu'il entendait ce nom. La première fois, c'était par Suzaku de la première génération! Il se souvenait parfaitement des paroles de celui-ci:
 
-« Ce vieil homme ne connaît pas grand-chose à la culture des Dieux Anciens, mais à mon époque, le pouvoir des Dieux Anciens faisait trembler les cieux. À l'époque, bien que Ye Mo de l'Ordre Antique ne figurât pas parmi les Souverains Célestes, sa culture suffisait à faire redouter de lui un Souverain Céleste... »
+« Ce vieil homme ne connaît pas grand-chose à la culture des Dieux Anciens, mais à mon époque, le pouvoir des Dieux Anciens faisait trembler les cieux. À l'époque, bien que Ye Mo de Dao Gu ne figurât pas parmi les Souverains Célestes, sa culture suffisait à faire redouter de lui un Souverain Céleste... »
 
 Wang Lin médita longuement, puis ses yeux brillèrent d'un éclat vif.
 

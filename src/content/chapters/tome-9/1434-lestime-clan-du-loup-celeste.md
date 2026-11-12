@@ -18,7 +18,7 @@ Cette aura, particulièrement tyrannique, fondit sur Wang Lin.
 
 Sans la moindre hésitation, Wang Lin fit volte-face. D'un revers de main, il fit apparaître un ongle dans sa paume! Cet ongle était d'un noir profond et dégageait une lueur sinistre, d'où s'échappaient même des hurlements plaintifs.
 
-Cet ongle, un poison violent, lui avait été offert par l'Illustre Grande Désolation, par égard pour le Vieux Oiseau Vermillon!
+Cet ongle, un poison violent, lui avait été offert par l'Illustre Da Huang, par égard pour le Vieux Oiseau Vermillon!
 
 Wang Lin lança l'ongle sans attendre. En un battement de cils, l'objet se transforma en une bourrasque de vent noir et percuta la paume géante.
 

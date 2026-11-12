@@ -76,7 +76,7 @@ Wang Lin pointa le doigt en avant et ordonna: « Piège! »
 
 De nouvelles nappes de gaz de restriction jaillirent pour renforcer l'enceinte. Chaque fois que le vieil homme Hu déchirait une couche, de nouvelles se superposaient instantanément.
 
-Wang Lin cria: « Compagnon cultivateur Hu, n'êtes-vous toujours pas lucide?! »
+Wang Lin cria: « Daoïste Hu, n'êtes-vous toujours pas lucide?! »
 
 Sa voix tonna comme le tonnerre, traversant le gaz pour atteindre les oreilles du vieil homme. Ce dernier cessa immédiatement ses assauts et son regard trahit une lutte intérieure, mais à cet instant précis, les tatouages dans ses yeux brillèrent, rendant son regard de nouveau rouge sang, bien que son expression fût devenue étrange.
 
@@ -96,7 +96,7 @@ Wang Lin leva les yeux vers l'horizon en attendant que le vieil homme retrouve s
 
 Un demi-bâton d'encens plus tard, le vieil homme Hu ouvrit les yeux. Son regard était redevenu clair. Il se leva, joignit les mains et dit: « Merci, frère Wang! » Bien qu'il paraisse serein, il éprouvait désormais une crainte encore plus profonde pour Wang Lin. Si l'épée de ce dernier avait descendu d'un centimètre de plus, il serait mort sur le coup.
 
-Bien que cela fût dû au fait qu'il ne résistait pas et n'utilisait aucun trésor magique, cette sensation de vie ou de mort était désormais gravée dans son âme. Le vieil homme Hu pensa: « La réputation ne ment pas. Il n'est pas étonnant que le nom de Ceng Niu soit devenu si célèbre. Il est véritablement redoutable. »
+Bien que cela fût dû au fait qu'il ne résistait pas et n'utilisait aucun trésor magique, cette sensation de vie ou de mort était désormais gravée dans son âme. Le vieil homme Hu pensa: « La réputation ne ment pas. Il n'est pas étonnant que le nom de Zeng Niu soit devenu si célèbre. Il est véritablement redoutable. »
 
 Wang Lin sourit simplement: « Ce n'est rien. »
 

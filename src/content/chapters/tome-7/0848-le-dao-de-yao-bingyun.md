@@ -26,9 +26,9 @@ Atteindre l'étape Scruteur du Nirvana avec seulement un peu plus de 1 000 ans d
 
 Lorsqu'il était encore sur la planète Suzaku, nul n'aurait pu prévoir qu'il irait aussi loin!
 
-L'expression de Wang Lin était calme. À son réveil, il n'avait libéré qu'une fraction de sa culture et cela avait déjà provoqué un tel bouleversement. Il pouvait imaginer qu'au moment où il franchirait l'étape, la rétribution divine arriverait instantanément.
+L'expression de Wang Lin était calme. À son réveil, il n'avait libéré qu'une fraction de sa culture et cela avait déjà provoqué un tel bouleversement. Il pouvait imaginer qu'au moment où il franchirait l'étape, la Tribulation Céleste arriverait instantanément.
 
-« La rétribution divine est quelque peu étrange. Compte tenu de ce qui s'est passé lorsque j'ai traversé tout ce karma, je dois rester prudent et ne pas faire preuve de négligence! » Le regard de Wang Lin devint glacial. Puisqu'il refusait de céder aux cieux lorsqu'il avait atteint le stade d'Ascendant, chaque fois que son niveau de culture augmentait, il était réprimé par la rétribution divine.
+« La Tribulation Céleste est quelque peu étrange. Compte tenu de ce qui s'est passé lorsque j'ai traversé tout ce karma, je dois rester prudent et ne pas faire preuve de négligence! » Le regard de Wang Lin devint glacial. Puisqu'il refusait de céder aux cieux lorsqu'il avait atteint le stade d'Ascendant, chaque fois que son niveau de culture augmentait, il était réprimé par la Tribulation Céleste.
 
 La puissance de cette rétribution était plus redoutable et étrange qu'auparavant!
 

@@ -108,7 +108,7 @@ Il vit le monde qu'il avait entrevu par le passé. C'était un univers infini so
 
 Ces statues étaient des Dieux Anciens, des Diables Anciens et des Démons Anciens.
 
-Une sensation de véritable énergie céleste imprégnait les lieux. Bien qu'elle ne fût pas puissante, elle différait nettement de l'énergie céleste extérieure à la faille. C'était l'aura du Continent Astral Immortel.
+Une sensation de véritable énergie céleste imprégnait les lieux. Bien qu'elle ne fût pas puissante, elle différait nettement de l'énergie céleste extérieure à la faille. C'était l'aura du Continent Xian Gang.
 
 Sous le regard de Wang Lin, un jeune homme se tenait debout sur une statue de Démon Ancien. Ce jeune homme avait les cheveux blancs, portait des robes blanches et affichait un regard glacial. Les mains derrière le dos, il contemplait le ciel.
 

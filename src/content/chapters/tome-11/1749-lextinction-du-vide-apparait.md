@@ -80,7 +80,7 @@ Wang Lin attachait de l'importance aux liens!
 
 « À ce moment-là, la troisième âme s'éveillera complètement après mon décès. Elle ouvrira le cœur du monde caverneux, s'y rendra et en ouvrira la porte. Le Maître pourra alors quitter le monde caverneux... »
 
-« Les deux autres sceaux sont des préparatifs pour le Maître. Au moment où la porte du monde caverneux menant au Continent Astral Immortel sera poussée, en empruntant la force du Continent Astral Immortel qui s'engouffrera soudain, le Maître pourra utiliser cette puissance et la combiner avec ces deux sceaux pour sceller la deuxième et la troisième âme! »
+« Les deux autres sceaux sont des préparatifs pour le Maître. Au moment où la porte du monde caverneux menant au Continent Xian Gang sera poussée, en empruntant la force du Continent Xian Gang qui s'engouffrera soudain, le Maître pourra utiliser cette puissance et la combiner avec ces deux sceaux pour sceller la deuxième et la troisième âme! »
 
 « Alors, tout s'apaisera... » Tandis qu'il parlait, Xie Qing commença à tousser. Il cracha une bouffée de sang qui éclaboussa les orchidées devant lui. Le rouge macula les fleurs, créant un spectacle saisissant.
 
@@ -92,7 +92,7 @@ Soudain, il leva les yeux vers le ciel. Son expression devint féroce alors qu'i
 
 « Moi, Wang Lin, j'ai arraché mon propre destin à la Tribulation Céleste et je suis devenu le maître du Dao Céleste. Mais pourquoi ne puis-je toujours pas décider de ma propre destinée? Pourquoi suis-je forcé de faire face à un tel dilemme?! »
 
-« Cieux! Que vous soyez les cieux du monde caverneux ou ceux du Continent Astral Immortel, voyez-vous cela?! Si les cieux sont si impitoyables, alors moi, Wang Lin, je jure de détruire les cieux de mon vivant!! » Les veines du visage de Wang Lin saillirent et il parut possédé par la folie en rugissant. Son corps irradia une aura puissante. Cette aura, semblable à de la fumée, se rassembla rapidement pour former une épée illusoire. Cette lame dégageait une présence terrifiante capable de briser les cieux!
+« Cieux! Que vous soyez les cieux du monde caverneux ou ceux du Continent Xian Gang, voyez-vous cela?! Si les cieux sont si impitoyables, alors moi, Wang Lin, je jure de détruire les cieux de mon vivant!! » Les veines du visage de Wang Lin saillirent et il parut possédé par la folie en rugissant. Son corps irradia une aura puissante. Cette aura, semblable à de la fumée, se rassembla rapidement pour former une épée illusoire. Cette lame dégageait une présence terrifiante capable de briser les cieux!
 
 À cet instant, l'expression du Grand Empyréen Xuan Luo changea radicalement pour la première fois depuis son entrée dans le monde caverneux! Il fixa l'épée illusoire entourant Wang Lin — que lui seul pouvait percevoir — et fut stupéfait.
 

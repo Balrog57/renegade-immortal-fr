@@ -12,11 +12,11 @@ Sans l'intervention de ces trois-là, le renversement de la Roue du Cœur aux Ne
 
 Wang Lin apparut dans ce ciel distordu et balaya calmement le sol du regard. Il vit les centaines de cultivateurs inconscients, Na Duo, le vieil homme au bras droit brisé, ainsi que trois hommes d'âge moyen à l'aura sombre qui le fixaient.
 
-Bien que ces trois individus parussent d'âge mûr, leurs auras antiques révélaient qu'ils avaient vécu depuis bien trop longtemps. Leurs vêtements singuliers indiquaient qu'ils n'étaient pas des cultivateurs du monde des grottes, mais du Continent Astral Immortel!
+Bien que ces trois individus parussent d'âge mûr, leurs auras antiques révélaient qu'ils avaient vécu depuis bien trop longtemps. Leurs vêtements singuliers indiquaient qu'ils n'étaient pas des cultivateurs du monde des grottes, mais du Continent Xian Gang!
 
 Après avoir balayé la scène du regard, Wang Lin resta impassible et agita sa manche avant de joindre les mains en signe de salut.
 
-« Je suis Wang Lin, du monde des grottes. Je viens à votre rencontre, vous les cultivateurs du Continent Astral Immortel, pour vous saluer en ma qualité d'hôte! Avez-vous tous bien vécu durant ces innombrables années? »
+« Je suis Wang Lin, du monde des grottes. Je viens à votre rencontre, vous les cultivateurs du Continent Xian Gang, pour vous saluer en ma qualité d'hôte! Avez-vous tous bien vécu durant ces innombrables années? »
 
 Les paroles de Wang Lin firent chanceler l'expression du vieil homme en robe dorée. Son esprit étant déjà meurtri par la formation, ce choc provoqua un filet de sang au coin de sa bouche.
 
@@ -66,7 +66,7 @@ Cependant, à cet instant précis, une aura puissante émana du quatrième étag
 
 Ce jeune homme paraissait ordinaire, mais ses yeux brillaient d'une lueur étrange. C'était le même qui était sorti de la faille spatiale lors de la Tribulation Céleste de Wang Lin!
 
-Ce jeune homme cherchait quelque chose dans la Rivière Invoquée, mais des années auparavant, il était revenu, impuissant, pour s'isoler en culture secrète au quatrième étage. Il était désormais contraint de sortir par Wang Lin!
+Ce jeune homme cherchait quelque chose dans Zhao He, mais des années auparavant, il était revenu, impuissant, pour s'isoler en culture secrète au quatrième étage. Il était désormais contraint de sortir par Wang Lin!
 
 Il connaissait Wang Lin, et Wang Lin l'avait déjà rencontré!
 
@@ -92,9 +92,9 @@ Après être apparues, les étoiles se transformèrent en Ancien Dieu, Ancien D�
 
 L'expression du jeune homme était calme depuis le début, et elle le resta. Face à une telle sérénité, Wang Lin considéra que cet adversaire était extrêmement fort!
 
-Wang Lin ignorait que ce jeune homme nommé Yun Yifeng était très célèbre au sein de la Secte Gui Yi sur le Continent Astral Immortel. Il était classé troisième parmi les disciples centraux!
+Wang Lin ignorait que ce jeune homme nommé Yun Yifeng était très célèbre au sein de la Secte Gui Yi sur le Continent Xian Gang. Il était classé troisième parmi les disciples centraux!
 
-Il avait suivi son oncle de secte et les autres dans le monde des grottes et, après d'innombrables années, il s'y était perfectionné pour y acquérir de grandes épreuves et de grandes opportunités. Une fois de retour sur le Continent Astral Immortel, il serait tel un fils glorieux du ciel, capable de briguer la première place parmi les disciples centraux!
+Il avait suivi son oncle de secte et les autres dans le monde des grottes et, après d'innombrables années, il s'y était perfectionné pour y acquérir de grandes épreuves et de grandes opportunités. Une fois de retour sur le Continent Xian Gang, il serait tel un fils glorieux du ciel, capable de briguer la première place parmi les disciples centraux!
 
 Avec son statut de premier disciple de la Secte Gui Yi, son nom se répandrait à travers les neuf sectes et les treize factions, jusque parmi les clans immortels!
 

@@ -32,9 +32,9 @@ Le dragon azur entre les mains de Wang Lin s'affaiblit instantanément et sa lum
 
 Un dragon azur était sculpté sur ce fragment. Le relief était si réaliste que les mortels en seraient stupéfaits s'ils l'avaient vu.
 
-Tenant le fragment, Wang Lin l'examina avec soin. Il y décelait une aura similaire à celle de la marque de l'Oiseau Vermillon entre ses sourcils.
+Tenant le fragment, Wang Lin l'examina avec soin. Il y décelait une aura similaire à celle de la marque de Suzaku entre ses sourcils.
 
-« Les Quatre Sectes Divines possèdent l'Oiseau Vermillon, la Tortue Noire, le Dragon Azur et le Tigre Blanc. Cela pourrait-il appartenir à la Secte Divine du Dragon Azur? » Après réflexion, il rangea le fragment dans son sac et son regard se posa sur le petit bouclier de lumière azur.
+« Les Quatre Sectes Divines possèdent Suzaku, la Tortue Noire, le Dragon Azur et le Tigre Blanc. Cela pourrait-il appartenir à la Secte Divine du Dragon Azur? » Après réflexion, il rangea le fragment dans son sac et son regard se posa sur le petit bouclier de lumière azur.
 
 Privé du dragon, l'aura d'Ancien Dieu emplissait le bouclier, bien qu'elle ne fût pas flagrante. Wang Lin fronça les sourcils en l'examinant attentivement, puis ses yeux se rétrécirent.
 
@@ -78,7 +78,7 @@ Au loin, les trois frères Chen avaient déjà remarqué la scène et accouraien
 
 « C'est un bouclier. Je présume que c'est un objet défensif. Cependant, ce trésor est bien trop immense! Regardez l'esprit de trésor qui en émane; il perce les cieux. Je n'ai jamais vu un esprit de trésor semblable! »
 
-« Notre compagnon cultivateur Wang vient probablement d'acquérir ce trésor et est en train de le raffiner! »
+« Notre Daoïste Wang vient probablement d'acquérir ce trésor et est en train de le raffiner! »
 
 Les trois frères Chen murmurèrent entre eux, parvenant à deviner une partie de la vérité.
 

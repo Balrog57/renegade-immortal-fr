@@ -66,7 +66,7 @@ Faute d'informations, il ne pouvait pas se permettre de perdre l'armure d'âme. 
 
 « Il y a un problème ici! La Secte Gui Yi connaît mon identité, sait que je viens du monde des grottes et connaît mon lien avec Xuan Luo, et pourtant... » Wang Lin ne comprenait pas, et il n'avait pas le temps de comprendre. Entre abandonner l'armure et affronter l'inconnu, ou garder l'armure et se battre, il choisit sans hésiter la seconde option!
 
-Au moment où la main géante se refermait, le tatouage du Taureau Céleste sur le côté droit du visage de Wang Lin libéra une lumière noire infinie, stupéfiant Yun Yifeng, Tang Jia et Bian Yun. La lueur noire enveloppa instantanément tout le corps de Wang Lin pour se transformer en d'innombrables filaments noirs. Ils prirent la forme d'une armure noire qui lui enveloppait même le visage; seuls ses cheveux blancs flottaient sans qu'aucun vent ne soufflât.
+Au moment où la main géante se refermait, le tatouage du Tian Niu sur le côté droit du visage de Wang Lin libéra une lumière noire infinie, stupéfiant Yun Yifeng, Tang Jia et Bian Yun. La lueur noire enveloppa instantanément tout le corps de Wang Lin pour se transformer en d'innombrables filaments noirs. Ils prirent la forme d'une armure noire qui lui enveloppait même le visage; seuls ses cheveux blancs flottaient sans qu'aucun vent ne soufflât.
 
 Le niveau de culture de Wang Lin bondit soudainement du stade avancé du Vide Spirituel au stade précoce de la Tribulation du Vide dès qu'il revêtit l'armure. Il leva la main droite et utilisa l'Empreinte de l'Esprit Guerrier. L'immense empreinte démoniaque à six doigts apparut et percuta de plein fouet la gigantesque main noire.
 
@@ -74,21 +74,21 @@ Des grondements de tonnerre résonnèrent sur la place de la Secte Gui Yi alors 
 
 Avec son niveau de culture actuel, après avoir été frappé par les vestiges de la main noire, le visage de Wang Lin pâlit et du sang jaillit du coin de sa bouche tandis qu'il reculait rapidement.
 
-« Wang Lin a trahi le Continent Tian Niu! Émettez l'Ordre de l'Âme! Tous les cultivateurs du Continent Tian Niu peuvent le tuer sur-le-champ! Quiconque l'exécutera sera récompensé par l'armure d'élément feu, le drapeau secondaire de la Voile Fantôme de la Secte Da Hun et une Perle de Taureau Céleste! »
+« Wang Lin a trahi le Continent Tian Niu! Émettez l'Ordre de l'Âme! Tous les cultivateurs du Continent Tian Niu peuvent le tuer sur-le-champ! Quiconque l'exécutera sera récompensé par l'armure d'élément feu, le drapeau secondaire de la Voile Fantôme de la Secte Da Hun et une Perle de Tian Niu! »
 
 Alors qu'il était repoussé, Wang Lin entendit ces mots. Il serra les dents, envahi par une émotion indescriptible. Il avait le sentiment diffus que ces trois objets étaient, à l'origine, ses propres récompenses...
 
-À la suite de cette annonce, l'expression de Bian Yun changea radicalement, révélant un regard d'incrédulité. Sans hésiter, le tatouage du Taureau Céleste sur le côté droit de son visage s'illumina et enveloppa tout son corps, formant la même armure d'âme que celle de Wang Lin. Son niveau de culture augmenta considérablement, passant du stade intermédiaire de la Tribulation du Vide au stade avancé. En un éclair, il se lança à la poursuite de Wang Lin!
+À la suite de cette annonce, l'expression de Bian Yun changea radicalement, révélant un regard d'incrédulité. Sans hésiter, le tatouage du Tian Niu sur le côté droit de son visage s'illumina et enveloppa tout son corps, formant la même armure d'âme que celle de Wang Lin. Son niveau de culture augmenta considérablement, passant du stade intermédiaire de la Tribulation du Vide au stade avancé. En un éclair, il se lança à la poursuite de Wang Lin!
 
-S'il était si déterminé, c'était à cause de la Perle de Taureau Céleste!
+S'il était si déterminé, c'était à cause de la Perle de Tian Niu!
 
-Les Perles de Taureau Céleste avaient été découvertes par la Secte Da Hun et la Secte Gui Yi il y a d'innombrables années, lors de l'ouverture des sept méridiens du Taureau Céleste. Il n'en existait que sept. Elles possédaient de multiples usages: la création de trésors, la manipulation du temps, ou encore la possibilité pour les cultivateurs d'y entrer pour cultiver.
+Les Perles de Tian Niu avaient été découvertes par la Secte Da Hun et la Secte Gui Yi il y a d'innombrables années, lors de l'ouverture des sept méridiens du Tian Niu. Il n'en existait que sept. Elles possédaient de multiples usages: la création de trésors, la manipulation du temps, ou encore la possibilité pour les cultivateurs d'y entrer pour cultiver.
 
-Cependant, ce n'étaient pas là leurs fonctions les plus cruciales. L'usage le plus important était que ces perles pouvaient stocker l'âme du Taureau Céleste. Cela permettait à celui qui portait l'armure d'âme de conserver une existence distincte et de ne pas perdre ses capacités en s'éloignant trop du Continent Tian Niu.
+Cependant, ce n'étaient pas là leurs fonctions les plus cruciales. L'usage le plus important était que ces perles pouvaient stocker l'âme du Tian Niu. Cela permettait à celui qui portait l'armure d'âme de conserver une existence distincte et de ne pas perdre ses capacités en s'éloignant trop du Continent Tian Niu.
 
-Grâce à la Perle de Taureau Céleste, on pouvait porter l'armure n'importe où sur le Continent Astral Immortel, même dans le Pays Ancien, car cette perle était l'âme même du Taureau Céleste!
+Grâce à la Perle de Tian Niu, on pouvait porter l'armure n'importe où sur le Continent Xian Gang, même dans le Pays Ancien, car cette perle était l'âme même du Tian Niu!
 
-Wang Lin n'avait jamais entendu parler de la Perle de Taureau Céleste auparavant; sinon, il aurait été stupéfait de découvrir qu'elle ressemblait étrangement à un objet qu'il possédait déjà!
+Wang Lin n'avait jamais entendu parler de la Perle de Tian Niu auparavant; sinon, il aurait été stupéfait de découvrir qu'elle ressemblait étrangement à un objet qu'il possédait déjà!
 
 Sur les sept perles existantes, la Secte Gui Yi en détenait trois et la Secte Da Hun quatre. Au fil des âges, elles n'avaient jamais servi de récompenses, mais constituaient la structure même de la Terre Sainte de culture des deux sectes.
 

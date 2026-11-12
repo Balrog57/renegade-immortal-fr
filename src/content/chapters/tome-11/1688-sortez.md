@@ -104,7 +104,7 @@ Les Célestes dorés s'élancèrent en rugissant. L'un d'eux afficha une express
 
 « Espèce de misérable cultivateur, tu as la malchance de te trouver devant notre porte. Ce Céleste va t'absorber pour faire de toi des Flammes Joss! »
 
-« Simple cultivateur du Continent Astral Immortel, vulgaire disciple de la Secte Qi Dao, oses-tu te prétendre un Céleste?! » Wang Lin ouvrit les yeux et une lumière dorée en jaillit.
+« Simple cultivateur du Continent Xian Gang, vulgaire disciple de la Secte Qi Dao, oses-tu te prétendre un Céleste?! » Wang Lin ouvrit les yeux et une lumière dorée en jaillit.
 
 Cette lueur dorée était issue de la condensation de la puissance d'une goutte de sang du Corps Céleste Immortel. Cette lumière contenait une lignée céleste d'une pureté absolue!
 

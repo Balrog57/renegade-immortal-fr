@@ -86,7 +86,7 @@ Wang Lin s'approcha lentement et pressa sa main droite sur le front du jeune hom
 
 Wang Lin retira sa main et poussa un soupir.
 
-À cet instant, les flammes de l'Oiseau Vermillon atteignirent un nouveau sommet. Tandis que le feu brûlait, il continua de croître vers le troisième éveil!
+À cet instant, les flammes de Suzaku atteignirent un nouveau sommet. Tandis que le feu brûlait, il continua de croître vers le troisième éveil!
 
 À l'extérieur de la majestueuse formation qui scellait cette zone se trouvait le vaste système stellaire connu sous le nom de Système Stellaire Antique, ou le Royaume Extérieur!
 
@@ -98,7 +98,7 @@ Cependant, au moment où le membre portant la marque d'éclair mourut et que Wan
 
 Les visages de chacun changèrent et ils se précipitèrent. Au moment où ils déployèrent leur Sens Divin, la foudre éternelle disparut soudainement sans laisser de trace, comme si elle avait été arrachée... Après dix respirations, elle réapparut, mais cette scène provoqua une panique et une terreur infinies au sein du clan.
 
-Dans le Système Stellaire Antique, il y avait aussi la zone du Clan Huo Que... Cet endroit ressemblait beaucoup à la Secte Divine de l'Oiseau Vermillon, où toute la région était en flammes.
+Dans le Système Stellaire Antique, il y avait aussi la zone du Clan Huo Que... Cet endroit ressemblait beaucoup à la Secte Divine de Suzaku, où toute la région était en flammes.
 
 De même, d'innombrables statues d'oiseaux vermillions étaient érigées sur les temples. Cependant, ces oiseaux étaient noirs, comme s'ils étaient des oiseaux de feu.
 

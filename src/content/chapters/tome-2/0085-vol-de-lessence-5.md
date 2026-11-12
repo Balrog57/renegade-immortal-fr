@@ -60,7 +60,7 @@ Le petit être se débattit en criant: « Arrière-grand-père, sauve-moi! » La
 
 Sans un mot, Wang Lin tapa sur son sac de rangement et en sortit une gourde d'eau spirituelle. Il versa l'eau sur le fil qui, soudainement, devint aussi épais qu'un pouce sous la force de sa traction.
 
-Cette fois, malgré l'éclat de la lumière jaune, le petit être ne put plus résister. Il fut arraché de la zone d'un mètre. Dès qu'il franchit cette limite, la lumière jaune se mua en un nuage de gaz jaunâtre, formant une silhouette indistincte à l'intérieur. Bien que la forme fût floue, une voix retentit: « Cher compagnon de culture, je vous en prie, arrêtez! Nous pouvons discuter de cela. »
+Cette fois, malgré l'éclat de la lumière jaune, le petit être ne put plus résister. Il fut arraché de la zone d'un mètre. Dès qu'il franchit cette limite, la lumière jaune se mua en un nuage de gaz jaunâtre, formant une silhouette indistincte à l'intérieur. Bien que la forme fût floue, une voix retentit: « Cher Daoïste, je vous en prie, arrêtez! Nous pouvons discuter de cela. »
 
 Wang Lin fut surpris, mais Situ Nan intervint rapidement: « Ne t'en fais pas, il s'agit d'un avatar illusionnaire d'un cultivateur de l'Âme Naissante. C'est différent d'un avatar physique car il ne peut ni attaquer, ni te voir, ni même connaître ton emplacement exact. Il ne permet que d'entendre ses paroles. De plus, si cet avatar est si flou, c'est que cette personne se trouve très loin. Quant à sa présence ici, il semble qu'il porte un attachement profond pour Teng Li, car il a laissé cette parcelle de sens divin auprès de lui. »
 

@@ -33,7 +33,7 @@ Il convient de noter que l'un des vieillards, vêtu d'une robe jaune, dégageait
 
 À cet instant, il affichait une expression sérieuse, sans la moindre fausseté. Cependant, des lueurs d'amusement y perçaient par moments, mais nul ne pouvait les déceler.
 
-« Depuis que le Compagnon Cultivateur Wang Lin m'a cédé la position de Zhu Quezi, j'ai juré de vivre et de mourir avec la planète Suzaku. Aujourd'hui, l'ennemi est devant nous. Même si je dois être détruit, je ne reculerai pas d'un seul pas! »
+« Depuis que le Daoïste Wang Lin m'a cédé la position de Zhu Quezi, j'ai juré de vivre et de mourir avec la planète Suzaku. Aujourd'hui, l'ennemi est devant nous. Même si je dois être détruit, je ne reculerai pas d'un seul pas! »
 
 Deux cultivateurs Ascendants se tenaient derrière Zhou Wutai. C'étaient deux vieillards qui, si Wang Lin avait été présent, aurait pu les reconnaître. Les deux laissèrent échapper un soupir, se regardèrent et affichèrent des regards fermes. Il n'y avait aucune issue. Ce n'était pas une simple guerre, mais une bataille entre deux systèmes stellaires! Ils l'avaient appris après avoir reçu les informations de l'Alliance Xiu Zhen. Heureusement, ils s'étaient préparés, sans quoi ils seraient sans aucun doute morts.
 

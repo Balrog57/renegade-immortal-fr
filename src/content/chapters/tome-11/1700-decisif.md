@@ -8,7 +8,7 @@ slug: decisif
 ---
 Wang Lin arracha la voile au visage spectral. Il l'examina attentivement; le visage semblait le fixer en retour.
 
-La raison pour laquelle Fan Shanmeng avait pu utiliser son Illusion Véritable de l'Âme et atteindre un niveau d'illusion double, alors qu'elle se trouvait loin sur le Continent Astral Immortel, résidait dans cette voile.
+La raison pour laquelle Fan Shanmeng avait pu utiliser son Illusion Véritable de l'Âme et atteindre un niveau d'illusion double, alors qu'elle se trouvait loin sur le Continent Xian Gang, résidait dans cette voile.
 
 Wang Lin se souvenait parfaitement de la façon dont il avait contemplé ce visage spectral avant d'entrer dans l'illusion dans l'illusion. Après cela, il s'était retrouvé totalement piégé jusqu'à ce qu'il brise le sort; et lorsqu'il avait rouvert les yeux, il fixait toujours ce même visage.
 
@@ -32,11 +32,11 @@ Fan Shanlu réfléchit longuement avant de secouer la tête. Elle leva la main e
 
 Wang Lin réfléchit un instant, puis joignit les mains en signe de respect envers Fan Shanlu. Alors qu'il s'apprêtait à partir, les paroles étouffées de la jeune femme résonnèrent:
 
-« Ma sœur aînée est si désespérée de se venger que même moi, j'ai été utilisée... Nous pouvons coopérer, et je ferai de mon mieux pour vous aider. Je n'ai qu'une seule requête: lorsque vous ouvrirez la porte du Continent Astral Immortel, emmenez-moi avec vous... Je veux rentrer chez moi... »
+« Ma sœur aînée est si désespérée de se venger que même moi, j'ai été utilisée... Nous pouvons coopérer, et je ferai de mon mieux pour vous aider. Je n'ai qu'une seule requête: lorsque vous ouvrirez la porte du Continent Xian Gang, emmenez-moi avec vous... Je veux rentrer chez moi... »
 
 « Il est très difficile d'ouvrir cette grotte. Il faut que la troisième âme apparaisse : elle seule possède les souvenirs et sait où se trouve le Dao Céleste. Ce n'est qu'en invoquant le Dao Céleste que vous pourrez entrer dans la demeure du Souverain Céleste, dans le monde de la grotte de la Secte Qi Dao... »
 
-« La demeure du Souverain Céleste fut le théâtre de la grande guerre d'autrefois. Bien qu'elle soit en ruines, il s'y trouve une porte qui mène au Continent Astral Immortel. Ouvrir cette porte revient à ouvrir la grotte. »
+« La demeure du Souverain Céleste fut le théâtre de la grande guerre d'autrefois. Bien qu'elle soit en ruines, il s'y trouve une porte qui mène au Continent Xian Gang. Ouvrir cette porte revient à ouvrir la grotte. »
 
 Wang Lin s'arrêta. Après un moment de réflexion, il se tourna vers la mélancolique Fan Shanlu et hocha la tête.
 

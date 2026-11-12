@@ -10,7 +10,7 @@ Le moral de Wang Lin était quelque peu pesant. La scène du vieil Empereur Divi
 
 Alors que Wang Lin avançait, presque tous les cultivateurs des planètes qu’il croisait s'envolaient pour l'acclamer. Les cris de « Divin Empereur! » faisaient trembler le ciel.
 
-Ces clameurs exprimaient l'enthousiasme et les attentes que tous les membres de la Secte Divine de l'Oiseau Vermillon avaient nourris pendant d'innombrables années.
+Ces clameurs exprimaient l'enthousiasme et les attentes que tous les membres de la Secte Divine de Suzaku avaient nourris pendant d'innombrables années.
 
 De plus en plus de cultivateurs suivaient Wang Lin. En particulier, les plus jeunes le regardaient avec une profonde révérence. À mesure qu'il progressait, toujours plus de membres de la Secte Zhu Que se mettaient en marche derrière lui.
 
@@ -24,14 +24,14 @@ Le sourire de Wang Lin s'élargit. Les blessures de Situ Nan avaient guéri et s
 
 La femme en argent et Maître Fu Fengzi suivirent Situ Nan. La femme en argent restait silencieusement dans l'ombre de Wang Lin. Quant à Maître Fu Fengzi, bien que son expression fût empreinte de respect, la joie qui brillait dans ses yeux venait du plus profond de son cœur.
 
-Enfin, lorsque Wang Lin atteignit la dernière planète de la Secte Divine de l'Oiseau Vermillon, le nombre de membres du secteur était suffisant pour occulter le ciel.
+Enfin, lorsque Wang Lin atteignit la dernière planète de la Secte Divine de Suzaku, le nombre de membres du secteur était suffisant pour occulter le ciel.
 
 « Divin Empereur! »
 « Divin Empereur! »
 
 Les rugissements tonitruants qui résonnèrent remplacèrent tout autre son dans la voûte étoilée.
 
-La planète principale finale de la Secte Divine de l'Oiseau Vermillon était également celle où se trouvait Ren Tao. À cet instant, en entendant les membres de la secte acclamer son rival à ses côtés, son expression devint encore plus sombre. Il fixa Wang Lin d'un regard venimeux.
+La planète principale finale de la Secte Divine de Suzaku était également celle où se trouvait Ren Tao. À cet instant, en entendant les membres de la secte acclamer son rival à ses côtés, son expression devint encore plus sombre. Il fixa Wang Lin d'un regard venimeux.
 
 Près de lui, Liao Yun regardait Ren Tao avec dédain. Il s'élança dans les airs vers Wang Lin, qui était entouré d'une foule immense, et dit respectueusement: « Liao Yun salue le Divin Empereur! » Il était empreint de révérence. Personne ne connaissait mieux Wang Lin que ceux qui s'étaient rendus sur la Terre Yao Ling, et il en faisait partie.
 
@@ -45,11 +45,11 @@ Les visages sombres de Ren Tao, des quelques anciens et des autres fidèles, for
 
 Ren Tao redressa brusquement la tête pour fixer Wang Lin, qui souriait avec la foule, et hurla: « Wang Lin, je te défie! » Il n'avait pas le choix. Si Wang Lin poursuivait ainsi, il n'aurait plus aucune chance de devenir le Divin Empereur.
 
-Au sein de la Secte Divine de l'Oiseau Vermillon, le Divin Empereur était le Ciel même! Quiconque osait s'opposer à lui devenait l'ennemi de toute la secte. Cependant, il existait une loi au sein de la Secte qui donnait à Ren Tao l'audace de défier Wang Lin!
+Au sein de la Secte Divine de Suzaku, le Divin Empereur était le Ciel même! Quiconque osait s'opposer à lui devenait l'ennemi de toute la secte. Cependant, il existait une loi au sein de la Secte qui donnait à Ren Tao l'audace de défier Wang Lin!
 
 Ce rugissement traversa les étoiles et imposa immédiatement le silence. Tous les regards se tournèrent vers Ren Tao.
 
-Certains anciens de la Secte Divine de l'Oiseau Vermillon étaient présents. Leur tâche consistait à aider Wang Lin à assumer sereinement son rôle de Divin Empereur; ils ne toléreraient aucun signe de rébellion.
+Certains anciens de la Secte Divine de Suzaku étaient présents. Leur tâche consistait à aider Wang Lin à assumer sereinement son rôle de Divin Empereur; ils ne toléreraient aucun signe de rébellion.
 
 C'était un ordre impératif donné par le vieux Divin Empereur!
 
@@ -59,7 +59,7 @@ Les trois vieillards derrière Ren Tao firent un pas en avant pour l'entourer, p
 
 « Ren Tao, oses-tu?! Allez-vous tous les trois vous opposer ouvertement au commandement du vieil empereur? » Un grand homme s'avança de la foule. C'était l'un des anciens du stade Briseur du Nirvana qui s'était trouvé sur la Terre Yao Ling.
 
-« Ancien Zhou, les lois de ma Secte Divine de l'Oiseau Vermillon stipulent que lorsqu'un Divin Empereur transmet son titre au suivant, tous les membres ont le droit de contester sa position. N'est-ce pas vrai? »
+« Ancien Zhou, les lois de ma Secte Divine de Suzaku stipulent que lorsqu'un Divin Empereur transmet son titre au suivant, tous les membres ont le droit de contester sa position. N'est-ce pas vrai? »
 
 « Idiot téméraire! » Un éclair de froideur passa dans les yeux de l'Ancien Zhou. Il ricana mais n'intervint pas et recula de quelques pas.
 
@@ -83,9 +83,9 @@ S'il y avait une différence, c'était que ce corps puissant permettrait à l'en
 
 Il n'était même pas nécessaire d'évoquer la Nuit Déchirée, qu'il ne pouvait utiliser qu'en des occasions spéciales. Wang Lin ignorait que sa technique de la Nuit Déchirée s'était propagée partout au cours de ces trois années, déclenchant une tempête colossale au sein de l'Alliance.
 
-Non seulement la Nuit Déchirée avait tué Maître du Vide, mais deux avatars de Tian Yunzi avaient été éliminés et un autre gravement blessé. Un tel palmarès avait permis à Wang Lin de devenir un cultivateur de premier rang du jour au lendemain!
+Non seulement la Nuit Déchirée avait tué Xu Kongzi, mais deux avatars de Tian Yunzi avaient été éliminés et un autre gravement blessé. Un tel palmarès avait permis à Wang Lin de devenir un cultivateur de premier rang du jour au lendemain!
 
-« Quoi qu'il en soit, tu es un membre de la Secte Divine de l'Oiseau Vermillon, je t'accorderai donc une mort par les flammes! » Wang Lin agita sa main droite et, à cet instant, un corps spirituel fantomatique apparut derrière lui.
+« Quoi qu'il en soit, tu es un membre de la Secte Divine de Suzaku, je t'accorderai donc une mort par les flammes! » Wang Lin agita sa main droite et, à cet instant, un corps spirituel fantomatique apparut derrière lui.
 
 « Neuf Transformations Mystérieuses! » Dès l'apparition de cet esprit, une agitation immense parcourut les membres de la secte. Des regards encore plus exaltés se tournèrent vers Wang Lin!
 
@@ -121,7 +121,7 @@ Mais alors que son âme originelle tentait de fuir, un rugissement tonitruant et
 
 Tout fut fini en un éclair. Les spectateurs n'avaient vu que Wang Lin pointer deux fois le doigt avant que Ren Tao ne succombe!
 
-Du début à la fin, Wang Lin était resté calme. Il n'était pas déçu par les Neuf Transformations Mystérieuses. Un sortilège qui ne peut être cultivé que par chaque génération de Divin Empereur de l'Oiseau Vermillon devait absolument être puissant!
+Du début à la fin, Wang Lin était resté calme. Il n'était pas déçu par les Neuf Transformations Mystérieuses. Un sortilège qui ne peut être cultivé que par chaque génération de Divin Empereur de Suzaku devait absolument être puissant!
 
 « C'était peut-être plus efficace que prévu, car cela a fusionné avec le tonnerre... »
 

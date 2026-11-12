@@ -56,11 +56,11 @@ La terre dans un rayon de 50 000 kilomètres vola en éclats!
 
 Le démon antique derrière Wang Lin toucha le sol au même instant que lui; cependant, son corps semblait être devenu légèrement flou!
 
-La puissance des cieux était irréversible, et les démons antiques appartenaient à la seconde forme de vie capable de défier les cieux pour cultiver. Ils avaient affronté la rétribution divine d'innombrables fois, et leurs corps se régénéraient en un instant.
+La puissance des cieux était irréversible, et les démons antiques appartenaient à la seconde forme de vie capable de défier les cieux pour cultiver. Ils avaient affronté la Tribulation Céleste d'innombrables fois, et leurs corps se régénéraient en un instant.
 
 Le nuage rouge disparut du ciel, mais au moment même de sa disparition, un rayon de lumière rouge d'environ cent pieds de large descendit soudainement des hauteurs!
 
-Cette lumière rouge était bien plus puissante que les éclairs de la rétribution divine précédente; elles n'étaient même pas du même niveau! Toutefois, la cible de ce rayon n'était pas Wang Lin, mais le fantôme du démon antique derrière lui!
+Cette lumière rouge était bien plus puissante que les éclairs de la Tribulation Céleste précédente; elles n'étaient même pas du même niveau! Toutefois, la cible de ce rayon n'était pas Wang Lin, mais le fantôme du démon antique derrière lui!
 
 Le démon antique et Wang Lin levèrent tous deux la tête, et une lueur démoniaque jaillit soudainement des yeux du démon antique!
 
@@ -82,7 +82,7 @@ Lorsque le démon antique disparut, Wang Lin fit un pas en avant et s'évanouit 
 
 Tandis qu'une brise légère soufflait, les cinq vieillards sortirent des ruines et se regardèrent.
 
-L'un d'eux s'écria: « Maudite rétribution divine! Yun Dun, espèce de gamin, viens ici! »
+L'un d'eux s'écria: « Maudite Tribulation Céleste! Yun Dun, espèce de gamin, viens ici! »
 
 « Yun Dun, ramène ton cul ici! »
 
@@ -116,7 +116,7 @@ Wang Lin traça des symboles en suivant les informations laissées sur le jeton.
 
 Il retourna une fois de plus sur les plateformes reliées par les dragons vénérés. Dès son apparition, il se précipita vers la grotte.
 
-Une fois la rétribution divine passée, Wang Lin remarqua immédiatement que son domaine avait atteint sa complétion et fusionnait lentement avec son énergie spirituelle céleste. Cette découverte le frappa de stupeur!
+Une fois la Tribulation Céleste passée, Wang Lin remarqua immédiatement que son domaine avait atteint sa complétion et fusionnait lentement avec son énergie spirituelle céleste. Cette découverte le frappa de stupeur!
 
 L'épreuve de vie ou de mort de l'Ascendant: entendre le Dao au matin, mourir le soir!
 
@@ -128,7 +128,7 @@ Cette grotte était sans aucun doute le meilleur endroit pour atteindre le stade
 
 Wang Lin se déplaçait à une vitesse fulgurante, passant devant les plateformes une à une avant d'arriver enfin devant la grotte. En un éclair, il pénétra dans l'antre familière.
 
-Wang Lin se précipita directement vers le pavillon où il avait trouvé la cruche de vin. Arrivé sur place, il s'assit rapidement en position du lotus et prit une profonde inspiration avant de tapoter son sac de rangement. Il ne restait plus beaucoup de jades célestes dans son sac; après tout, il en avait utilisé une grande quantité contre la rétribution divine!
+Wang Lin se précipita directement vers le pavillon où il avait trouvé la cruche de vin. Arrivé sur place, il s'assit rapidement en position du lotus et prit une profonde inspiration avant de tapoter son sac de rangement. Il ne restait plus beaucoup de jades célestes dans son sac; après tout, il en avait utilisé une grande quantité contre la Tribulation Céleste!
 
 Wang Lin secoua le sac et tous les jades célestes s'envolèrent instantanément. Le sol du pavillon fut recouvert de jades, formant une petite montagne.
 
@@ -150,4 +150,4 @@ Alors que Wang Lin atteignait le stade de l'Ascendant, la Cité Tian Yao entama 
 
 Dans la tour noire située sur un champ de bataille ancien à une distance indéterminée, deux lueurs fantomatiques apparurent dans le casque de l'armure noire trônant au sommet de la tour.
 
-« Même le démon antique est apparu pour t'aider à résister à la rétribution divine… Si je t'absorbais ainsi, ce serait un gâchis… Mais après avoir manqué cette chance, j'ignore combien de temps je devrai encore attendre… Bien que le pouvoir d'un Ascendant ne soit pas immense, je ne peux me permettre de le laisser filer! »
+« Même le démon antique est apparu pour t'aider à résister à la Tribulation Céleste… Si je t'absorbais ainsi, ce serait un gâchis… Mais après avoir manqué cette chance, j'ignore combien de temps je devrai encore attendre… Bien que le pouvoir d'un Ascendant ne soit pas immense, je ne peux me permettre de le laisser filer! »

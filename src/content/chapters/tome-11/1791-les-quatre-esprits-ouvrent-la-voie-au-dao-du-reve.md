@@ -14,15 +14,15 @@ L'ouverture était extrêmement profonde, et nul ne savait où elle menait. À p
 
 Les yeux de Xuan Luo s'illuminèrent et il agita le fouet une fois de plus. Il porta neuf coups successifs, chaque assaut provoquant un grondement tonitruant; le fouet du dragon s'étendit alors sur des centaines de milliers de pieds. Finalement, l'arme s'engouffra dans la porte et perça le chaos, utilisant son propre corps pour tracer un chemin!
 
-Cette route menait au Continent Astral Immortel; elle était semblable au sentier de la réincarnation!
+Cette route menait au Continent Xian Gang; elle était semblable au sentier de la réincarnation!
 
-« Lorsque vous vous réincarnez, en plus de défier les lois du Continent Astral Immortel, vous courez le risque de vous perdre. N'oubliez pas de suivre le dragon, et vous serez sur la voie de la réincarnation! » Les paroles de Xuan Luo résonnèrent alors qu'il formait un sceau de ses mains avant de les écarter brusquement.
+« Lorsque vous vous réincarnez, en plus de défier les lois du Continent Xian Gang, vous courez le risque de vous perdre. N'oubliez pas de suivre le dragon, et vous serez sur la voie de la réincarnation! » Les paroles de Xuan Luo résonnèrent alors qu'il formait un sceau de ses mains avant de les écarter brusquement.
 
 « Deuxième esprit, Démon de la Montagne, apparais au nom de ton vieil ancêtre! » Les mains de Xuan Luo bougèrent et une illusion surgit devant lui.
 
 C'était un monde de neige, dominé par une montagne glacée perçant les cieux! La montagne était si haute qu'elle semblait infinie. Recouverte d'un blanc immaculé, elle aurait pu terrifier quiconque la contemplerait.
 
-« La réincarnation comporte des illusions qui enferment les âmes. Cette montagne est un démon, une ancienne montagne du Continent Astral Immortel que j'ai moi-même raffinée. J'y ai rassemblé d'innombrables âmes de montagne jusqu'à ce qu'elle devienne un démon céleste! »
+« La réincarnation comporte des illusions qui enferment les âmes. Cette montagne est un démon, une ancienne montagne du Continent Xian Gang que j'ai moi-même raffinée. J'y ai rassemblé d'innombrables âmes de montagne jusqu'à ce qu'elle devienne un démon céleste! »
 
 « Cela protégera vos âmes contre la dispersion! » Xuan Luo agita sa main droite et la montagne enneigée s'élança vers la porte. Des craquements résonnèrent alors que le chemin tracé par le dragon se retrouvait figé sous la glace blanche, s'étendant à l'infini.
 
@@ -30,13 +30,13 @@ Le chemin de la réincarnation était désormais protégé par la montagne ennei
 
 « Troisième esprit, Céleste de l'Épée, je t'invoque! » Xuan Luo agita sa main gauche et une fente apparut entre ses sourcils. Une épée de la taille d'une paume s'en échappa.
 
-« J'ai raffiné 99 999 planètes brisées aux confins du Continent Astral Immortel pour forger cette épée. Ensuite, pour éveiller l'esprit de l'épée, j'ai fait irruption dans le clan des Célestiels pour massacrer autant de Célestiels, et j'ai raffiné leurs âmes pour achever cette lame! »
+« J'ai raffiné 99 999 planètes brisées aux confins du Continent Xian Gang pour forger cette épée. Ensuite, pour éveiller l'esprit de l'épée, j'ai fait irruption dans le clan des Célestiels pour massacrer autant de Célestiels, et j'ai raffiné leurs âmes pour achever cette lame! »
 
 « Cette épée est féroce; dès qu'elle apparaît, les Célestiels tremblent de peur! Aujourd'hui, je l'envoie pour vous escorter sur le chemin de la réincarnation! Elle assurera votre sécurité tout au long du voyage! » Xuan Luo agita sa main gauche et l'épée dégagea une aura redoutable en s'élançant vers la porte, entourée d'une énergie tranchante et terrifiante.
 
-Ce sentier avait le dragon pour route, la montagne enneigée comme garde et l'épée féroce, au qi tranchant sans fin, pour guider le passage. Bien que le trajet fût long, hormis les lois du Continent Astral Immortel, tous les autres obstacles avaient été levés, réduisant considérablement les risques de la réincarnation!
+Ce sentier avait le dragon pour route, la montagne enneigée comme garde et l'épée féroce, au qi tranchant sans fin, pour guider le passage. Bien que le trajet fût long, hormis les lois du Continent Xian Gang, tous les autres obstacles avaient été levés, réduisant considérablement les risques de la réincarnation!
 
-« Quatrième esprit, Démon du Vent, apparais devant moi! » Les préparatifs de Xuan Luo ne s'arrêtèrent pas là. La réincarnation ne se déroulant pas sur le Continent Astral Immortel, l'enjeu majeur était de résister aux lois de ce dernier.
+« Quatrième esprit, Démon du Vent, apparais devant moi! » Les préparatifs de Xuan Luo ne s'arrêtèrent pas là. La réincarnation ne se déroulant pas sur le Continent Xian Gang, l'enjeu majeur était de résister aux lois de ce dernier.
 
 Tout en parlant, Xuan Luo mordit la pointe de sa langue et cracha son précieux sang essentiel. Le sang était rouge, mais dès qu'il apparut, il vira au noir. Ce sang sombre s'agita, dégageant une fumée noire qui prit instantanément la forme d'une silhouette entourée de brume devant Xuan Luo.
 
@@ -90,7 +90,7 @@ Qing Lin laissa échapper un long soupir et s'avança. Il fut le premier à marc
 
 « Grand frère Zhou, veuillez patienter un instant. J'essaierai de vous aider pour votre affaire lorsque vous vous réincarnerez. » Les paroles de Wang Lin résonnèrent dans l'esprit de Zhou Yi.
 
-« Wang Lin, nous nous reverrons sur le Continent Astral Immortel! » Qing Lin semblait serein. Il se retourna et joignit les mains en signe de respect vers Wang Lin. Pourtant, la mélancolie dans ses yeux trahissait sa véritable émotion.
+« Wang Lin, nous nous reverrons sur le Continent Xian Gang! » Qing Lin semblait serein. Il se retourna et joignit les mains en signe de respect vers Wang Lin. Pourtant, la mélancolie dans ses yeux trahissait sa véritable émotion.
 
 Qing Lin fit volte-face et s'enfonça dans la brume miroitante. L'expression de Qing Shuang était glaciale, comme si rien au monde ne pouvait l'atteindre. Cependant, avant de franchir le brouillard, elle marqua un arrêt et jeta un regard vers Zhou Yi.
 
@@ -106,7 +106,7 @@ Zhou Yi acquiesça amèrement et joignit les mains vers Wang Lin. Il marcha vers
 
 Le quatrième à partir fut Qing Shui. Il s'approcha de Wang Lin et lui adressa un sourire.
 
-« Junior Frère, je t'attendrai sur le Continent Astral Immortel. Si tu trouves ma fille la première, prends soin d'elle pour moi. » Qing Shui sourit en regardant Hongdie; son amour paternel était manifeste.
+« Junior Frère, je t'attendrai sur le Continent Xian Gang. Si tu trouves ma fille la première, prends soin d'elle pour moi. » Qing Shui sourit en regardant Hongdie; son amour paternel était manifeste.
 
 Les yeux de Hongdie devinrent rouges et les larmes coulèrent. Elle fit quelques pas vers la porte, comme pour dire quelque chose, mais elle se mordit la lèvre inférieure et resta silencieuse.
 

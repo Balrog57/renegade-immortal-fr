@@ -46,7 +46,7 @@ Une fois que les paroles de Maître Yi Xing eurent dissipé le brouillard dans s
 
 « Combiné à ce qu'il a dit sur les changements de climat, cela signifie que la personne dont il avait peur était Tian Yunzi. La personne qui l'a rendu ainsi était probablement aussi Tian Yunzi! »
 
-« C'est la véritable raison pour laquelle il m'a demandé de quitter la Secte Tian Yun! » Wang Lin se leva soudainement, joignit les mains en signe de respect envers les trois frères Chen et déclara: « Trois compagnons cultivateurs, j'ai une affaire urgente à régler, je ne vous dérangerai plus! » Après avoir parlé, il attrapa Xu Liguo et le jeta dans son sac. Puis, d'un pas, il disparut.
+« C'est la véritable raison pour laquelle il m'a demandé de quitter la Secte Tian Yun! » Wang Lin se leva soudainement, joignit les mains en signe de respect envers les trois frères Chen et déclara: « Trois Daoïstes, j'ai une affaire urgente à régler, je ne vous dérangerai plus! » Après avoir parlé, il attrapa Xu Liguo et le jeta dans son sac. Puis, d'un pas, il disparut.
 
 Les trois frères Chen restèrent profondément perplexes. Après avoir réfléchi un instant, ils ne purent en trouver la raison.
 

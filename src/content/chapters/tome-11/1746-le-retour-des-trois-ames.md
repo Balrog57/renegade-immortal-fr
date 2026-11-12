@@ -62,7 +62,7 @@ C'était la deuxième fois qu'il la traquait. Cette fois, il n'y avait ni Daoïs
 
 Wang Lin sentait que l'identité et la localisation de la troisième âme étaient sur le point d'être révélées!
 
-La troisième âme traversa la Rivière Invoquée et atteignit le Système Stellaire Kun Xu. Elle ralentit dans le Système Stellaire Kun Xu, comme si elle cherchait un lieu pour se réincarner.
+La troisième âme traversa Zhao He et atteignit le Système Stellaire Kun Xu. Elle ralentit dans le Système Stellaire Kun Xu, comme si elle cherchait un lieu pour se réincarner.
 
 Wang Lin la suivait, utilisant toute sa vitesse pour espérer la rattraper. Il observa la troisième âme, mais elle était nuageuse, dépourvue de toute silhouette intérieure. Elle était manifestement différente des deux autres âmes; avant de se réincarner, elle n'avait aucune apparence!
 

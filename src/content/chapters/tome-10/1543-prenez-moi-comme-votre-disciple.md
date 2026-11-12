@@ -76,7 +76,7 @@ Sans hésiter, il récita le chant de l'Ombrelle Brûlante du Royaume et lui tra
 
 L'expression de Wang Lin resta imperturbable, mais son rythme cardiaque s'accéléra. Il mémorisa chaque détail sans rien omettre, confirmant les formules dans son esprit.
 
-Plus il vérifiait, plus il devenait sérieux. Ce chant était d'une précision extrême. C'était un sort du Grand Dao que même le Maître de l'Oiseau Vermillon n'avait pu qu'apprendre en secret, sans jamais le maîtriser pleinement.
+Plus il vérifiait, plus il devenait sérieux. Ce chant était d'une précision extrême. C'était un sort du Grand Dao que même le Maître de Suzaku n'avait pu qu'apprendre en secret, sans jamais le maîtriser pleinement.
 
 Toutefois, ce sort du Dao n'était pas une chose que l'on apprenait instantanément; il exigerait de nombreuses années de culture en porte close et une profonde compréhension.
 

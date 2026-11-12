@@ -12,27 +12,27 @@ La main géante se transforma en d'innombrables lignes noires. Elles planèrent 
 
 En raison de l'existence du Royaume Ji, Wang Lin devint le premier dévoreur d'âmes à passer du monde de la décomposition au monde des vivants. Bien que son sens divin n'ait été raffiné qu'en une simple parcelle de Sens Divin du Royaume Ji, l'essence d'un dévoreur d'âmes demeurait en lui.
 
-Huo Fen, pays de culture de rang 3, se situait dans la partie sud de la planète Suzaku, près de la Mer Xiu Mo. Huo Fen ne comptait que quatre sectes : le Sanctuaire du Dieu de la Guerre, la Secte Démon, la Secte Luo He et la Secte Shi Yin.
+Huo Fen, pays de culture de rang 3, se situait dans la partie sud de la planète Suzaku, près de la Mer Xiu Mo. Huo Fen ne comptait que quatre sectes : le Temple Zhan Shen, la Secte Démon, la Secte Luo He et la Secte Shi Yin.
 
-Ce jour-là, au sommet du volcan Fentian, au centre de Huo Fen, un groupe de personnes du Sanctuaire du Dieu de la Guerre se tenait sur un immense réseau de transfert.
+Ce jour-là, au sommet du volcan Fentian, au centre de Huo Fen, un groupe de personnes du Temple Zhan Shen se tenait sur un immense réseau de transfert.
 
-Les six experts de l'Âme Naissante du Sanctuaire du Dieu de la Guerre assuraient à la secte la première place de Huo Fen. Lors du combat pour le droit d'accéder au champ de bataille étranger, le Sanctuaire du Dieu de la Guerre avait écrasé la concurrence et obtenu l'unique jeton d'accès.
+Les six experts de l'Âme Naissante du Temple Zhan Shen assuraient à la secte la première place de Huo Fen. Lors du combat pour le droit d'accéder au champ de bataille étranger, le Temple Zhan Shen avait écrasé la concurrence et obtenu l'unique jeton d'accès.
 
 La personne qui dirigeait le groupe n'était pas un cultivateur de l'Âme Naissante, mais un Ancien du stade initial de Formation du Noyau nommé Huo Hongfei. Peut-être était-ce dû au fait que sa méthode de culture était le Chemin Divin, car malgré ses plus de 200 ans, il ne paraissait pas vieux du tout; au physique avenant et à l'allure distinguée, il ressemblait plutôt à un homme d'âge mûr d'une quarantaine d'années.
 
-Le Chemin Divin est la méthode de culture suprême du Sanctuaire du Dieu de la Guerre. Seuls ceux qui ont atteint le stade de l'Établissement des Fondations peuvent pratiquer cette méthode, laquelle est censée faciliter l'accès au stade de la Formation du Noyau. Quant à son fonctionnement exact, les profanes l'ignoraient.
+Le Chemin Divin est la méthode de culture suprême du Temple Zhan Shen. Seuls ceux qui ont atteint le stade de l'Établissement des Fondations peuvent pratiquer cette méthode, laquelle est censée faciliter l'accès au stade de la Formation du Noyau. Quant à son fonctionnement exact, les profanes l'ignoraient.
 
-Mais puisque tous les cultivateurs de la Formation du Noyau et de l'Âme Naissante du Sanctuaire du Dieu de la Guerre avaient toujours été les premiers de Huo Fen, cette méthode devait nécessairement posséder une particularité.
+Mais puisque tous les cultivateurs de la Formation du Noyau et de l'Âme Naissante du Temple Zhan Shen avaient toujours été les premiers de Huo Fen, cette méthode devait nécessairement posséder une particularité.
 
-Si le Chemin Divin offrait un tel avantage, il n'était pas surprenant que d'autres tentent de le dérober; cependant, malgré les tentatives des autres sectes, elles en étaient incapables car le Sanctuaire du Dieu de la Guerre était tout simplement trop puissant.
+Si le Chemin Divin offrait un tel avantage, il n'était pas surprenant que d'autres tentent de le dérober; cependant, malgré les tentatives des autres sectes, elles en étaient incapables car le Temple Zhan Shen était tout simplement trop puissant.
 
-Comme le dit le proverbe : « les brigands gardent la mémoire trois ans, les voleurs convoitent dix ans ». Face à ces convoitises incessantes, le Sanctuaire du Dieu de la Guerre finit par renoncer à les combattre et décida d'organiser une assemblée générale tous les 20 ans pour permettre au public de contempler le Chemin Divin, ouvert à tout cultivateur de l'Établissement des Fondations, avec ou sans secte. Bien entendu, chacun devait verser une certaine quantité de pierres spirituelles pour l'observer, et la compréhension du texte restait à la discrétion de chacun.
+Comme le dit le proverbe : « les brigands gardent la mémoire trois ans, les voleurs convoitent dix ans ». Face à ces convoitises incessantes, le Temple Zhan Shen finit par renoncer à les combattre et décida d'organiser une assemblée générale tous les 20 ans pour permettre au public de contempler le Chemin Divin, ouvert à tout cultivateur de l'Établissement des Fondations, avec ou sans secte. Bien entendu, chacun devait verser une certaine quantité de pierres spirituelles pour l'observer, et la compréhension du texte restait à la discrétion de chacun.
 
-De la sorte, le Sanctuaire du Dieu de la Guerre n'avait plus à s'en soucier. Ils y gagnaient également d'importants revenus, ce qui les rendait très satisfaits de cette situation.
+De la sorte, le Temple Zhan Shen n'avait plus à s'en soucier. Ils y gagnaient également d'importants revenus, ce qui les rendait très satisfaits de cette situation.
 
 La méthode du Chemin Divin ne comptait pas cent mots. Chaque mot était complexe et peu de gens parvenaient à en saisir le sens.
 
-En vérité, ce que cultivait Huo Hongfei était une méthode créée il y a plus de mille ans par un membre extrêmement talentueux du Sanctuaire après avoir consacré la moitié de sa vie à étudier le Chemin Divin. Non seulement cette technique était puissante, mais elle permettait également de conserver une apparence jeune après une longue pratique, ce qui la rendait très prisée des disciples du Sanctuaire du Dieu de la Guerre.
+En vérité, ce que cultivait Huo Hongfei était une méthode créée il y a plus de mille ans par un membre extrêmement talentueux du Sanctuaire après avoir consacré la moitié de sa vie à étudier le Chemin Divin. Non seulement cette technique était puissante, mais elle permettait également de conserver une apparence jeune après une longue pratique, ce qui la rendait très prisée des disciples du Temple Zhan Shen.
 
 Aux côtés de Huo Hongfei se tenait un groupe de personnes. La plus remarquable était une jeune femme à la silhouette gracieuse. Ses yeux étaient ceux d'un phénix et son visage délicat rappelait celui d'une fée. Elle gardait la bouche légèrement entrouverte tandis qu'elle parlait à un jeune homme grand et séduisant à ses côtés, une pointe de tendresse dans le regard.
 
@@ -72,7 +72,7 @@ Lin Tao hésita un instant et murmura: « Mon Junior frère Ma Liang est encore 
 
 Huo Hongfei haussa les sourcils et demanda avec une pointe de surprise: « Ma Liang? Est-il lui aussi l'un des rares survivants chanceux? »
 
-À ces mots, les expressions des disciples du Sanctuaire du Dieu de la Guerre devinrent étranges. Surtout celle de la belle jeune femme qui s'exclama: « Ma Liang n'est pas mort? »
+À ces mots, les expressions des disciples du Temple Zhan Shen devinrent étranges. Surtout celle de la belle jeune femme qui s'exclama: « Ma Liang n'est pas mort? »
 
 L'expression de Zhou Zihong était indéchiffrable. Elle regarda la jeune femme et dit: « Junior sœur, tu peux te détendre. Durant ces années sur le champ de bataille étranger, sa personnalité a changé. Celui qu'il est aujourd'hui ne te dérangera plus. »
 
@@ -90,7 +90,7 @@ Soudain, un froid glacial envahit tout le monde à l'instant où cette personne 
 
 C'était comme si l'individu devant eux était un bloc de givre sombre vieux de dix mille ans, capable de geler l'âme même. Cette sensation était extrêmement oppressante.
 
-Les disciples du Sanctuaire du Dieu de la Guerre furent les premiers à ressentir la nature tyrannique du Royaume Ji. Ils ne purent s'empêcher de reprendre une profonde inspiration. Même Huo Hongfei sentit ses pupilles se contracter, saisi d'effroi.
+Les disciples du Temple Zhan Shen furent les premiers à ressentir la nature tyrannique du Royaume Ji. Ils ne purent s'empêcher de reprendre une profonde inspiration. Même Huo Hongfei sentit ses pupilles se contracter, saisi d'effroi.
 
 La jeune femme, Xu Si, frissonna, totalement confuse. Bien que cet homme ressemblât à Ma Liang, son aura était radicalement différente de celle qu'il avait autrefois.
 

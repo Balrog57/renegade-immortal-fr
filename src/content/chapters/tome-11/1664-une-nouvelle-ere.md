@@ -114,4 +114,4 @@ Wang Lin avait détruit la Formation de Scellement du Royaume!
 
 À travers les âges, il était le premier à accomplir un tel exploit. Le premier à avoir l'audace de briser la Formation de Scellement du Royaume après avoir massacré les envahisseurs du Royaume Extérieur!
 
-Son nom était destiné à être transmis pendant des centaines de millions d'années dans ce monde de culture, car il était le Seigneur du Royaume Scellé. Non pas le Seigneur du Royaume Scellé de la Secte Qi Dao, ni celui soumis au Souverain Céleste aux Sept Couleurs, mais le Seigneur du Royaume Scellé des cultivateurs du Royaume Intérieur. Il allait mener les cultivateurs du Royaume Intérieur hors de cette prison et ébranler le Continent Astral Immortel!
+Son nom était destiné à être transmis pendant des centaines de millions d'années dans ce monde de culture, car il était le Seigneur du Royaume Scellé. Non pas le Seigneur du Royaume Scellé de la Secte Qi Dao, ni celui soumis au Souverain Céleste aux Sept Couleurs, mais le Seigneur du Royaume Scellé des cultivateurs du Royaume Intérieur. Il allait mener les cultivateurs du Royaume Intérieur hors de cette prison et ébranler le Continent Xian Gang!

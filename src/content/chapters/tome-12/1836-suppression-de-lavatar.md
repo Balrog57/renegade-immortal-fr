@@ -12,7 +12,7 @@ Il baissa la tête et son regard balaya le sol. Finalement, ses yeux se posèren
 
 Si le regard de Wang Lin s'était attardé un instant de plus, son sens divin aurait été balayé.
 
-Elle n'avait jamais éprouvé une telle sensation auparavant. Bien que l'Ancien Taureau Vert fût capable de tels exploits, cette aura était différente pour Yan Luan.
+Elle n'avait jamais éprouvé une telle sensation auparavant. Bien que l'Ancien Qing Niu fût capable de tels exploits, cette aura était différente pour Yan Luan.
 
 À cet instant précis, du point de vue de Yan Luan, ce Wang Lin n'était plus le même homme qu'elle avait rencontré!
 
@@ -24,21 +24,21 @@ Quel que soit leur niveau de culture, qu'il s'agisse des plus jeunes disciples, 
 
 Tout cela était dû au regard terrifiant de Wang Lin!
 
-L'Ancien Taureau Vert se trouvait également dans sa grotte du Pic du Ciel Vert. Après que Wang Lin eut jeté un regard à Yan Luan, il tourna immédiatement les yeux vers lui. Lorsque le regard de l'Estimé Taureau Vert croisa celui de Wang Lin, son expression changea radicalement. Son corps trembla et une vapeur verte jaillit derrière lui pour former son corps véritable d'essence.
+L'Ancien Qing Niu se trouvait également dans sa grotte du Pic du Ciel Vert. Après que Wang Lin eut jeté un regard à Yan Luan, il tourna immédiatement les yeux vers lui. Lorsque le regard de l'Estimé Qing Niu croisa celui de Wang Lin, son expression changea radicalement. Son corps trembla et une vapeur verte jaillit derrière lui pour former son corps véritable d'essence.
 
-Le regard de Wang Lin disparut bientôt, mais l'Estimé Taureau Vert sentait encore son cœur palpiter, les yeux emplis de choc. Ce regard était impitoyable, indifférent, comme si le monde entier n'était qu'une poussière sous ses pieds et devait lui rendre culte!
+Le regard de Wang Lin disparut bientôt, mais l'Estimé Qing Niu sentait encore son cœur palpiter, les yeux emplis de choc. Ce regard était impitoyable, indifférent, comme si le monde entier n'était qu'une poussière sous ses pieds et devait lui rendre culte!
 
-L'Ancien Taureau Vert n'avait jamais visité la cité impériale du clan Dao Antique. S'il avait vu, dans l'immense cité flottant dans les airs, la statue de l'Ancêtre Ancien qui soutenait presque le ciel, il aurait ressenti une étrange familiarité.
+L'Ancien Qing Niu n'avait jamais visité la cité impériale du clan Dao Antique. S'il avait vu, dans l'immense cité flottant dans les airs, la statue de l'Ancêtre Ancien qui soutenait presque le ciel, il aurait ressenti une étrange familiarité.
 
 L'aura de l'immense ombre de Wang Lin dans le ciel était d'une similitude frappante avec celle de l'Ancêtre Ancien, malgré quelques nuances dans les détails.
 
-« Ceci... ceci est... Que lui est-il arrivé... Cet homme n'est certainement pas Wang Lin! Qui est-il?! » Le visage de l'Estimé Taureau Vert était livide alors qu'il s'élançait hors de la grotte. Il se tint à l'extérieur, l'expression grave.
+« Ceci... ceci est... Que lui est-il arrivé... Cet homme n'est certainement pas Wang Lin! Qui est-il?! » Le visage de l'Estimé Qing Niu était livide alors qu'il s'élançait hors de la grotte. Il se tint à l'extérieur, l'expression grave.
 
-Dans le ciel, l'ombre gigantesque de Wang Lin retira son regard et ferma les yeux. L'Estimé Taureau Vert ignorait le secret de Wang Lin et ne savait pas qu'il s'agissait toujours de lui. Pourtant, cette aura écrasante provenait de l'avatar de Wang Lin!
+Dans le ciel, l'ombre gigantesque de Wang Lin retira son regard et ferma les yeux. L'Estimé Qing Niu ignorait le secret de Wang Lin et ne savait pas qu'il s'agissait toujours de lui. Pourtant, cette aura écrasante provenait de l'avatar de Wang Lin!
 
 Dès que Wang Lin ferma les yeux, il leva le pied et fit un pas avec calme. Lorsque son pied toucha la marche, un grondement de tonnerre résonna. L'illusion des escaliers trembla comme si elle ne pouvait supporter son poids.
 
-C'était comme si le pas de Wang Lin émergeait directement du vide lointain. Oubliez le Pavillon Cang Hun, il semblait que même la Secte Da Hun ou le Continent entier du Taureau Céleste ne pourraient supporter un tel pas!
+C'était comme si le pas de Wang Lin émergeait directement du vide lointain. Oubliez le Pavillon Cang Hun, il semblait que même la Secte Da Hun ou le Continent entier du Tian Niu ne pourraient supporter un tel pas!
 
 Alors que le fracas tonitruant résonnait, Wang Lin fit un autre pas. Il ne s'arrêtait pas, mais ne se précipitait pas non plus. D'un calme olympien, il gravissait les marches comme s'il était chez lui.
 
@@ -46,7 +46,7 @@ La troisième marche, la quatrième, la cinquième... Tous les membres de la Sec
 
 Il avait gravi ces 15 marches sans la moindre pause, comme si les restrictions imposées par l'escalier n'avaient aucune importance pour lui.
 
-Cette scène fit pâlir les disciples de la Secte Da Hun. Elle stupéfia tous les vieux monstres en culture fermée. L'Ancien Taureau Vert eut un souffle coupé!
+Cette scène fit pâlir les disciples de la Secte Da Hun. Elle stupéfia tous les vieux monstres en culture fermée. L'Ancien Qing Niu eut un souffle coupé!
 
 Le sens divin de Yan Luan, logé dans la disciple, frémit et elle faillit perdre le contrôle. Elle serra les poings si fort que ses ongles s'enfoncèrent dans sa chair, faisant perler le sang.
 
@@ -66,7 +66,7 @@ Une pression céleste jaillit de son regard et enveloppa la terre en contrebas. 
 
 « Son regard était tout simplement trop terrifiant. Je n'ai jamais rencontré un tel regard chez aucun cultivateur! »
 
-Au Pic du Ciel Vert, l'Ancien Taureau Vert regardait l'illusion disparaître lentement. Son expression changeait sans cesse jusqu'à devenir profondément complexe.
+Au Pic du Ciel Vert, l'Ancien Qing Niu regardait l'illusion disparaître lentement. Son expression changeait sans cesse jusqu'à devenir profondément complexe.
 
 Dans le Pavillon Cang Hun, Yan Luan, qui se trouvait au sixième étage, perdit toute couleur. Son corps tremblait alors qu'elle restait immobile devant l'entrée des escaliers menant au septième étage.
 
@@ -82,7 +82,7 @@ Le craquement des pas résonna dans le Pavillon Cang Hun. Wang Lin descendit len
 
 Les pupilles de Yan Luan se rétractèrent lorsqu'elle vit le pied droit de Wang Lin se poser sur l'escalier. De sa position, elle ne pouvait pas voir son visage, seulement ce pied. Lorsque celui-ci toucha la marche, Yan Luan eut l'impression de se tenir entre ciel et terre, face à un soleil immense et vaste.
 
-« Êtes-vous sûre de vouloir rompre ce pari? » Wang Lin descendait lentement, sa voix empreinte d'une majesté absolue. Ses paroles semblaient outrepasser les restrictions du lieu et transcender les lois du Continent Astral Immortel pour s'abattre sur la Secte Da Hun.
+« Êtes-vous sûre de vouloir rompre ce pari? » Wang Lin descendait lentement, sa voix empreinte d'une majesté absolue. Ses paroles semblaient outrepasser les restrictions du lieu et transcender les lois du Continent Xian Gang pour s'abattre sur la Secte Da Hun.
 
 Au fur et à mesure qu'il descendait, ses jambes et son corps apparurent progressivement sous ses yeux.
 

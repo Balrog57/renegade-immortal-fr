@@ -24,7 +24,7 @@ Au moment de sa délivrance, il fut envahi par une joie indicible. Il sentait qu
 
 C'est pourquoi il voulait prendre possession de Wang Lin!
 
-De son point de vue, toute vie sur le Continent Astral Immortel était une illusion et seul Wang Lin était réel. Selon ses analyses, une fois qu'il aurait réussi à s'emparer de Wang Lin, il atteindrait la culture du « Piétinement des Cieux » et obtiendrait une véritable liberté.
+De son point de vue, toute vie sur le Continent Xian Gang était une illusion et seul Wang Lin était réel. Selon ses analyses, une fois qu'il aurait réussi à s'emparer de Wang Lin, il atteindrait la culture du « Piétinement des Cieux » et obtiendrait une véritable liberté.
 
 Il ne pourrait plus être piégé dans la boussole en tant qu'esprit précieux, même s'il sentait que, outre son rôle d'esprit, il était aussi le gardien de cet artefact.
 

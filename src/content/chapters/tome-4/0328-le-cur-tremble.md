@@ -102,13 +102,13 @@ Li Muwan secoua la tête: « C'est impossible. Même si cela pouvait aider, cela
 
 Song Qing dit amèrement: « Maître, nous pouvons solliciter l'aide du Clan Ju Mo. Ce cultivateur étranger a fait fuir leur messager, ils sont donc contraints d'agir. Il nous suffit de tenir bon jusqu'à là. »
 
-« Le Clan Ju Mo... » murmura doucement Li Muwan en secouant la tête. « Ils ne nous voient que comme des outils pour l'alchimie... De plus, l'affaire entre Ceng Niu et le jeune maître du clan les tient dans un étau; ils n'auront probablement pas le temps de se soucier de nous. »
+« Le Clan Ju Mo... » murmura doucement Li Muwan en secouant la tête. « Ils ne nous voient que comme des outils pour l'alchimie... De plus, l'affaire entre Zeng Niu et le jeune maître du clan les tient dans un étau; ils n'auront probablement pas le temps de se soucier de nous. »
 
-Liu Fei ajouta: « Ceng Niu! Hélas, si cet homme n'existait pas, le Clan Ju Mo ne nous aurait pas abandonnés ainsi. »
+Liu Fei ajouta: « Zeng Niu! Hélas, si cet homme n'existait pas, le Clan Ju Mo ne nous aurait pas abandonnés ainsi. »
 
-Song Qing lança avec ironie: « Si seulement Ceng Niu pouvait venir dans mon pays, ce désastre serait résolu. » Il ne disait cela que pour se moquer de lui-même; il n'envisageait même pas une chance infime que cela arrive.
+Song Qing lança avec ironie: « Si seulement Zeng Niu pouvait venir dans mon pays, ce désastre serait résolu. » Il ne disait cela que pour se moquer de lui-même; il n'envisageait même pas une chance infime que cela arrive.
 
-Liu Fei eut un sourire amer. « Ceng Niu est un aîné capable d'arracher un bras à Hongdie. Je crains qu'il n'ait même jamais entendu parler de Chu. »
+Liu Fei eut un sourire amer. « Zeng Niu est un aîné capable d'arracher un bras à Hongdie. Je crains qu'il n'ait même jamais entendu parler de Chu. »
 
 Li Muwan murmura: « Vous pouvez partir et transmettre mes dernières volontés aux deux Grands Anciens en méditation de porte close. Une fois que je vous aurai rendu vos essences de sang, fuyez cet endroit... »
 

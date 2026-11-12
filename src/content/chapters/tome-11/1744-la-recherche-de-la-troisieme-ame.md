@@ -72,25 +72,25 @@ Le Vieux Fantôme Zhan suivait derrière. En fixant la bête, ses yeux brillère
 
 « Il semble que la troisième âme soit dans Luotian! J'ai passé le plus clair de mon temps dans Luotian. Si la troisième âme s'y trouve vraiment, alors ce sera une personne ou une bête... »
 
-De l'autre côté de Luotian se trouvait le Vide Brillant. Une lueur aux sept couleurs y roulait comme un nuage de brume. Devant ce nuage, le Daoïste aux Sept Couleurs fronçait les sourcils en observant une goutte de sang cristallin dans sa main.
+De l'autre côté de Luotian se trouvait le Kun Xu. Une lueur aux sept couleurs y roulait comme un nuage de brume. Devant ce nuage, le Daoïste aux Sept Couleurs fronçait les sourcils en observant une goutte de sang cristallin dans sa main.
 
-Il avait exploré tout le Vide Brillant, à l'exception de la planète des Cinq Éléments. Il avait inspecté chaque pouce du système stellaire, chaque planète et chaque grain de poussière, mais n'avait trouvé aucun indice.
+Il avait exploré tout le Kun Xu, à l'exception de la planète des Cinq Éléments. Il avait inspecté chaque pouce du système stellaire, chaque planète et chaque grain de poussière, mais n'avait trouvé aucun indice.
 
 Tout en réfléchissant, le Daoïste aux Sept Couleurs leva la tête.
 
-Il avait vu la troisième âme voler vers le Vide Brillant à travers l'illusion dans l'illusion au sein de la faille de la Mer Yun. Il ignorait simplement si la troisième âme s'était arrêtée dans le Vide Brillant ou si elle l'avait traversé.
+Il avait vu la troisième âme voler vers le Kun Xu à travers l'illusion dans l'illusion au sein de la faille de la Mer Yun. Il ignorait simplement si la troisième âme s'était arrêtée dans le Kun Xu ou si elle l'avait traversé.
 
 Car au moment critique, Wang Lin avait interrompu son illusion, le forçant à se réveiller.
 
 Pensant à cela, le Daoïste aux Sept Couleurs devint encore plus sombre, et sa haine envers Wang Lin s'intensifia.
 
-« Même sans l'illusion, avec tout le sang que j'ai collecté durant toutes les guerres entre les Royaumes Intérieur et Extérieur, je finirai par trouver la troisième âme! Si elle n'est pas dans le Vide Brillant, j'irai chercher dans la Rivière Invoquée! Je fouillerai tous les systèmes stellaires s'il le faut. Je ne crois pas que la troisième âme puisse quitter le monde des grottes! » Le Daoïste aux Sept Couleurs affichait une expression sinistre alors qu'il volait vers la Rivière Invoquée.
+« Même sans l'illusion, avec tout le sang que j'ai collecté durant toutes les guerres entre les Royaumes Intérieur et Extérieur, je finirai par trouver la troisième âme! Si elle n'est pas dans le Kun Xu, j'irai chercher dans Zhao He! Je fouillerai tous les systèmes stellaires s'il le faut. Je ne crois pas que la troisième âme puisse quitter le monde des grottes! » Le Daoïste aux Sept Couleurs affichait une expression sinistre alors qu'il volait vers Zhao He.
 
 Tout en avançant, il gardait les yeux fixés sur le sang dans sa main. L'aspect du sang n'avait pas changé, mais le Daoïste savait que ce précieux liquide contenait l'essence de la vie des habitants du monde des grottes. S'il entrait en contact avec des êtres de ce monde, il resterait inerte; mais s'il rencontrait la réincarnation de quelque chose venant de l'extérieur du monde des grottes, il brillerait intensément.
 
 Toutefois, la portée de cette goutte était limitée et elle était unique, ce qui risquait de lui faire perdre énormément de temps. Mais après avoir attendu si longtemps, le temps passé n'avait plus d'importance.
 
-Arrivé à la Rivière Invoquée, le Daoïste aux Sept Couleurs commença ses recherches avec une rigueur extrême.
+Arrivé à Zhao He, le Daoïste aux Sept Couleurs commença ses recherches avec une rigueur extrême.
 
 Avec une telle méthode, la troisième âme ne pourrait absolument pas se cacher. Ce n'était plus qu'une question de temps avant que le plus grand secret du monde des grottes ne soit révélé!
 

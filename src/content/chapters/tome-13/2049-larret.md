@@ -10,7 +10,7 @@ Wang Lin détourna son regard de la scène où l'on piétinait le ciel. La derni
 
 Cependant, même avec son niveau de culture, il ne pouvait toujours pas percevoir clairement le Royaume Divin Immémorial. C'était comme si ce royaume se trouvait bien au-delà des capacités actuelles de Wang Lin.
 
-Wang Lin fixa la mer déchaînée et, après un long moment, ferma les yeux. À l'instant même où il les ferma, son regard disparut du Continent Astral Immortel.
+Wang Lin fixa la mer déchaînée et, après un long moment, ferma les yeux. À l'instant même où il les ferma, son regard disparut du Continent Xian Gang.
 
 Lorsqu'il rouvrit les yeux, il se trouvait toujours dans cet endroit inconnu, sur l'immense deuxième pont. Pourtant, en baissant les yeux, il constata qu'il était presque arrivé de l'autre côté, bien qu'il fût toujours sur le second pont.
 
@@ -100,7 +100,7 @@ Wang Lin observa ce pont et, après une courte réflexion, leva le pied. Cependa
 
 Simultanément, le quatrième pont trembla soudainement devant lui et se fragmenta en d'innombrables éclats de lumière. Ces particules se précipitèrent vers lui, formant un vortex gigantesque qui engloutit la silhouette de Wang Lin.
 
-Au moment où il fut dévoré, sur la terre du clan Ancien du Continent Astral Immortel, dans le pays de Luo Hou, l'un des douze pays de la lignée Shi Antique, dans la chambre secrète du palais du Prince Ji Du, Wang Lin ouvrit brusquement les yeux.
+Au moment où il fut dévoré, sur la terre du clan Ancien du Continent Xian Gang, dans le pays de Luo Hou, l'un des douze pays de la lignée Shi Antique, dans la chambre secrète du palais du Prince Ji Du, Wang Lin ouvrit brusquement les yeux.
 
 Ses yeux restèrent empreints d'une profonde confusion pendant un long moment. Son corps véritable d'essence de massacre s'était totalement intégré à son propre corps; il n'y avait plus d'ombre superposée.
 

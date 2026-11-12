@@ -98,7 +98,7 @@ Alors qu'ils discutaient, le rideau de lumière se mit soudain à gronder et à 
 
 Une silhouette vague apparut dans le vide sombre à l'extérieur du rideau. Cette forme flottait là, observant Wang Lin et l'Exalté Empyréen Hai Zi avec une aura féroce.
 
-« Âme non issue du Continent Astral Immortel détectée, sceller! » murmura la silhouette pour elle-même.
+« Âme non issue du Continent Xian Gang détectée, sceller! » murmura la silhouette pour elle-même.
 
 Tandis que le rideau rétrécissait, l'Exalté Empyréen Hai Zi leva les yeux et aperçut vaguement la forme obscure à l'extérieur.
 

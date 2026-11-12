@@ -18,7 +18,7 @@ La porte était close et non ouverte.
 
 « Le Piétinement du Ciel... Suis-je en train de piétiner le ciel en ce moment même... » Wang Lin ne pouvait plus ressentir sa propre existence alors qu'il contemplait la terre en contrebas. Il médita silencieusement tout en tournant son regard vers la direction du clan céleste. Les 72 continents se transformèrent soudainement en 72 bêtes féroces et monstrueuses hurlant vers les cieux.
 
-Cela incluait le Taureau Céleste, le Scorpion Démon Vert et de nombreuses bêtes scellées qu'il avait vues dans l'Épreuve Empyréenne. Les bêtes semblèrent remarquer le regard de Wang Lin et poussèrent toutes un rugissement. Wang Lin pouvait clairement ressentir leur peur, mais il percevait aussi une autre intention derrière cette crainte.
+Cela incluait le Tian Niu, le Scorpion Démon Vert et de nombreuses bêtes scellées qu'il avait vues dans l'Épreuve Empyréenne. Les bêtes semblèrent remarquer le regard de Wang Lin et poussèrent toutes un rugissement. Wang Lin pouvait clairement ressentir leur peur, mais il percevait aussi une autre intention derrière cette crainte.
 
 Au moment même où Wang Lin pénétrait dans ce royaume légendaire après la Tribulation du Vide, les 72 continents du clan céleste commencèrent à trembler. Ces secousses s'intensifièrent et furent ressenties par tous les cultivateurs. Tous étaient confus, ne comprenant pas ce qui se produisait.
 
@@ -26,11 +26,11 @@ Cependant, sur chaque continent possédant un temple de suppression, le temple �
 
 Les secousses devinrent encore plus violentes, attirant l'attention des puissants du clan céleste. Ils s'envolèrent dans les airs, stupéfaits, et scrutèrent la terre pour voir les âmes respectives de leurs continents montrer des signes d'instabilité. Le sol trembla violemment, et la scène incroyable de leur apparition se produisit.
 
-Sur le continent du Taureau Céleste, un gigantesque Taureau Céleste apparut, enveloppant tout le continent, hurlant vers le ciel. Ses yeux étaient emplis d'excitation et de peur, mais surtout d'une supplication!
+Sur le Continent Tian Niu, un gigantesque Tian Niu apparut, enveloppant tout le continent, hurlant vers le ciel. Ses yeux étaient emplis d'excitation et de peur, mais surtout d'une supplication!
 
 Il implorait l'existence étrange qu'il sentait dans les cieux de lui accorder la liberté!
 
-À l'instar du Taureau Céleste, de plus en plus des 72 âmes supprimées au sein du clan céleste apparurent l'une après l'autre. Même certaines de celles que l'on croyait mortes se manifestèrent. Bien que leurs silhouettes fussent floues, leur supplication terrifiée vers le ciel était tout aussi bouleversante.
+À l'instar du Tian Niu, de plus en plus des 72 âmes supprimées au sein du clan céleste apparurent l'une après l'autre. Même certaines de celles que l'on croyait mortes se manifestèrent. Bien que leurs silhouettes fussent floues, leur supplication terrifiée vers le ciel était tout aussi bouleversante.
 
 Presque tous les cultivateurs du clan céleste furent témoins de cette scène qui déchirait le firmament. Ils étaient plongés dans la panique et le désarroi. La terre tremblait de plus belle tandis que les âmes apparues continuaient de rugir; on aurait dit qu'une calamité était sur le point de s'abattre!
 
@@ -44,7 +44,7 @@ Simultanément, dans le Continent Bei, Wu Feng observait le géant de glace avec
 
 Dans la Secte Yang Violet, les Grands Empyréens Shuangzi s'élancèrent, observèrent la terre et froncèrent les sourcils.
 
-Dans la Cité Ancestrale, le Grand Empyréen Jiu Di se tenait au sommet du Mont Empereur. Il regarda la terre et son expression resta impassible, mais la contraction de ses pupilles trahissait son choc.
+Dans la Cité Ancestrale, le Grand Empyréen Jiu Di se tenait au sommet du Mont Di. Il regarda la terre et son expression resta impassible, mais la contraction de ses pupilles trahissait son choc.
 
 Derrière Jiu Di, Hai Zi ouvrit les yeux. « Il n'y a aucun problème avec le palais souterrain, et Lian Daofei dort toujours. Il continue de supprimer les 72 âmes. »
 
@@ -58,9 +58,9 @@ Ses yeux s'illuminèrent alors qu'elle mordait le bout de sa langue pour cracher
 
 Cette fois, le corps de Hai Zi trembla et elle chancela, le visage livide. Ses yeux étaient empreints d'incrédulité.
 
-« Ils ont senti un regard de piétinement du ciel qui les contemplait depuis au-dessus du Continent Astral Immortel!! »
+« Ils ont senti un regard de piétinement du ciel qui les contemplait depuis au-dessus du Continent Xian Gang!! »
 
-« Quoi?! » L'expression de Jiu Di changea radicalement et il ne put plus masquer ses émotions. Il leva brusquement les yeux vers le ciel, sentant ses cheveux se hérisser. Hormis l'immensité céleste, il ne voyait rien, mais il pouvait imaginer un regard scrutant le Continent Astral Immortel à cet instant précis, peut-être même en le fixant lui.
+« Quoi?! » L'expression de Jiu Di changea radicalement et il ne put plus masquer ses émotions. Il leva brusquement les yeux vers le ciel, sentant ses cheveux se hérisser. Hormis l'immensité céleste, il ne voyait rien, mais il pouvait imaginer un regard scrutant le Continent Xian Gang à cet instant précis, peut-être même en le fixant lui.
 
 « Le Piétinement du Ciel... Ceci... Ceci... » Le corps de Jiu Di trembla et sa culture sembla perdre tout contrôle. Il passa d'un vieil homme à un homme d'âge mûr, avant de redevenir un vieillard. Cela suffisait à démontrer le choc qui l'habitait.
 
@@ -70,7 +70,7 @@ Il les voyait, mais ils ne pouvaient ressentir son existence. Lorsque Wang Lin s
 
 Il vit Hai Zi... Il vit Lian Daofei, qui s'était transformé en une montagne sous le palais.
 
-Au sommet du Mont Empereur, le visage de Jiu Di devint livide; puis il s'élança dans le ciel et s'inclina. « Le junior Zhou Luojiu salue le Senior. Si le Senior a la moindre requête, le junior obéira à ses ordres! »
+Au sommet du Mont Di, le visage de Jiu Di devint livide; puis il s'élança dans le ciel et s'inclina. « Le junior Zhou Luojiu salue le Senior. Si le Senior a la moindre requête, le junior obéira à ses ordres! »
 
 Depuis qu'il était devenu un Grand Empyréen, il ne s'était jamais incliné ainsi devant quiconque. Pourtant, en cet instant, envahi par la peur, il s'inclina respectueusement vers les cieux.
 
@@ -80,7 +80,7 @@ Il ne reçut aucune réponse jusqu'à ce que les cris des 72 âmes ne se muent e
 
 En entendant cela, Jiu Di resta incliné le temps de brûler un bâton d'encens avant de se redresser et de redescendre, le visage pâle.
 
-Wang Lin retira son regard du clan céleste. En voyant le Taureau Céleste et Lian Daofei, il eut l'envie de les sauver, mais il en était incapable.
+Wang Lin retira son regard du clan céleste. En voyant le Tian Niu et Lian Daofei, il eut l'envie de les sauver, mais il en était incapable.
 
 Tout en méditant silencieusement, il tourna son attention vers le clan Ancien. En regardant dans cette direction, il constata qu'une agitation similaire à celle du clan céleste secouait le clan Ancien.
 
@@ -100,7 +100,7 @@ Wang Lin vit tout cela, et son regard finit par se poser sur le Mont Gu Dao. Il 
 
 Un soupir émana de la silhouette. Elle ouvrit les yeux, d'un calme absolu. Lorsqu'elle leva les yeux vers le ciel, elle sembla percevoir le regard de Wang Lin.
 
-Au moment où leurs regards se croisèrent, Wang Lin sentit que l'être le plus puissant du Continent Astral Immortel l'avait bel et bien vu.
+Au moment où leurs regards se croisèrent, Wang Lin sentit que l'être le plus puissant du Continent Xian Gang l'avait bel et bien vu.
 
 La silhouette dans la brume dit lentement: « Tu as enfin atteint ce niveau... Sur quel pont te trouves-tu désormais? »
 
@@ -118,6 +118,6 @@ La silhouette dans la brume murmura: « Je l'ignore... À travers les âges, nul
 
 « Quel genre d'endroit est donc ce Pont du Piétinement du Ciel? » demanda Wang Lin, cherchant à dissiper son doute.
 
-« Le Continent Astral Immortel est vaste... Mais au-delà de lui, il existe bien d'autres continents. D'après ce que je comprends, le Pont du Piétinement du Ciel est un chemin commun à tous les êtres vivants. » Le Grand Empyréen Gu Dao soupira. Une pointe de confusion perçait dans ses paroles; peut-être même lui n'en était-il pas certain.
+« Le Continent Xian Gang est vaste... Mais au-delà de lui, il existe bien d'autres continents. D'après ce que je comprends, le Pont du Piétinement du Ciel est un chemin commun à tous les êtres vivants. » Le Grand Empyréen Gu Dao soupira. Une pointe de confusion perçait dans ses paroles; peut-être même lui n'en était-il pas certain.
 
 Wang Lin médita en silence, puis retira lentement son regard.

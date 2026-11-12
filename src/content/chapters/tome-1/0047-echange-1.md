@@ -36,13 +36,13 @@ De retour chez lui, Wang Lin songea aux paroles de Situ Nan. Il ne croyait pas s
 
 Trois jours plus tard, l'échange entre la Secte Heng Yue et la Secte Xuan Dao commença officiellement.
 
-C'était une tradition séculaire entre les deux sectes, il n'y eut donc pas de grand déploiement de faste. Le lieu fut fixé sur le pic secondaire de la montagne Heng Yue, le Pic des Pins.
+C'était une tradition séculaire entre les deux sectes, il n'y eut donc pas de grand déploiement de faste. Le lieu fut fixé sur le pic secondaire de la montagne Heng Yue, le Pic Cang Song.
 
-Un pont de pierre voûté reliait les deux sommets de la montagne. Wang Lin avait déjà aperçu le Pic des Pins de loin, mais n'avait jamais pu l'observer clairement à cause des nuages.
+Un pont de pierre voûté reliait les deux sommets de la montagne. Wang Lin avait déjà aperçu le Pic Cang Song de loin, mais n'avait jamais pu l'observer clairement à cause des nuages.
 
-Le Pic des Pins était l'un des lieux cruciaux de la Secte Heng Yue. Sa densité d'énergie spirituelle y était élevée, semblable à celle de la montagne arriére, et c'était là que deux ancêtres de la Formation du Noyau se retiraient en isolement toute l'année.
+Le Pic Cang Song était l'un des lieux cruciaux de la Secte Heng Yue. Sa densité d'énergie spirituelle y était élevée, semblable à celle de la montagne arriére, et c'était là que deux ancêtres de la Formation du Noyau se retiraient en isolement toute l'année.
 
-Au sommet du Pic des Pins se trouvait une vaste plateforme de pierre préparée pour cet échange. Elle était entourée de huit grands piliers de jade blanc sur lesquels était densément gravée l'histoire glorieuse de la Secte Heng Yue d'il y a cinq cents ans.
+Au sommet du Pic Cang Song se trouvait une vaste plateforme de pierre préparée pour cet échange. Elle était entourée de huit grands piliers de jade blanc sur lesquels était densément gravée l'histoire glorieuse de la Secte Heng Yue d'il y a cinq cents ans.
 
 Dès l'arrivée, une aura majestueuse émana des piliers de jade et se transforma instantanément en une intention meurtrière écrasante, glaciale jusqu'aux os, qui saisissait l'âme.
 
@@ -50,7 +50,7 @@ Dès l'arrivée, une aura majestueuse émana des piliers de jade et se transform
 
 Derrière lui, tous les disciples de la Secte Xuan Dao furent frappés de stupeur. À cet instant, l'intention meurtrière leur donna l'impression d'être sur un champ de bataille. Ils se sentirent presque écrasés par cette pression, jusqu'à ce que l'Ancien Ouyang la disperse.
 
-« Camarade cultivateur Ouyang, il s'agit d'un trésor créé personnellement par notre ancêtre. Dans un rayon de trois cent trente mètres autour des piliers de jade blanc, tout disciple n'appartenant pas à la Secte Heng Yue sera soumis à une intention meurtrière. Je présume que l'Ancien Ouyang comprend cela, alors veuillez nous excuser », dit Huang Long d'un visage calme. Ses deux mains changèrent de sceaux tandis qu'il récitait une formule, et de douces gerbes de lumière jaillirent des piliers de jade blanc. Comme repoussés par deux grandes mains, les nuages qui couvraient le Pic des Pins se dissipèrent rapidement. L'intention meurtrière disparut également.
+« Camarade cultivateur Ouyang, il s'agit d'un trésor créé personnellement par notre ancêtre. Dans un rayon de trois cent trente mètres autour des piliers de jade blanc, tout disciple n'appartenant pas à la Secte Heng Yue sera soumis à une intention meurtrière. Je présume que l'Ancien Ouyang comprend cela, alors veuillez nous excuser », dit Huang Long d'un visage calme. Ses deux mains changèrent de sceaux tandis qu'il récitait une formule, et de douces gerbes de lumière jaillirent des piliers de jade blanc. Comme repoussés par deux grandes mains, les nuages qui couvraient le Pic Cang Song se dissipèrent rapidement. L'intention meurtrière disparut également.
 
 Derrière lui, tous les disciples internes piaffaient d'impatience.
 

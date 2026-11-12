@@ -36,7 +36,7 @@ Des grondements sourds retentirent alors que l'ombre noire levait sa longue lanc
 
 Les yeux de Wang Lin s'illuminèrent. Il ignorait qui était cet homme, mais d'après sa position, il comprit qu'il s'agissait de l'un des quatre manoirs royaux!
 
-L'ombre noire dégageait une puissance colossale et s'approchait comme pour fendre le ciel. Wang Lin ne recula pas. Le totem du Taureau Céleste sur son visage s'étendit instantanément en armure d'âme sur tout son corps, et il décocha un coup de poing.
+L'ombre noire dégageait une puissance colossale et s'approchait comme pour fendre le ciel. Wang Lin ne recula pas. Le totem du Tian Niu sur son visage s'étendit instantanément en armure d'âme sur tout son corps, et il décocha un coup de poing.
 
 Ce coup percuta la lance de l'ombre noire dans un fracas tonitruant!
 
@@ -48,25 +48,25 @@ Le puissant gaz noir se rassembla et, loin de simplement restaurer l'ombre, il s
 
 L'expression de Wang Lin devint plus sérieuse face à cette charge. Il plaça ses deux mains sur sa tête et se pencha légèrement en arrière avant de basculer vers l'avant, tel un coup de tête!
 
-Charge du Taureau Céleste!
+Charge du Tian Niu!
 
-Une gigantesque ombre de Taureau Céleste apparut derrière Wang Lin. Le taureau poussa un rugissement et ses deux cornes massives entrèrent en collision avec l'ombre noire.
+Une gigantesque ombre de Tian Niu apparut derrière Wang Lin. Le taureau poussa un rugissement et ses deux cornes massives entrèrent en collision avec l'ombre noire.
 
 Boum, boum, boum, boum!
 
-L'ombre noire et le destrier s'effondrèrent, incapables de résister à une telle force, se désintégrant instantanément. Le Taureau Céleste perça l'ombre en décomposition et fonça droit vers le Maître Impérial Shang Xuandao!
+L'ombre noire et le destrier s'effondrèrent, incapables de résister à une telle force, se désintégrant instantanément. Le Tian Niu perça l'ombre en décomposition et fonça droit vers le Maître Impérial Shang Xuandao!
 
-Tout cela semblait être une coïncidence. Alors que le Taureau Céleste s'avançait, le Maître resta serein. Sa main droite bougea comme s'il pratiquait la divination, puis il pointa un doigt vers l'avant.
+Tout cela semblait être une coïncidence. Alors que le Tian Niu s'avançait, le Maître resta serein. Sa main droite bougea comme s'il pratiquait la divination, puis il pointa un doigt vers l'avant.
 
-Ce geste toucha le Taureau Céleste, qui se mit à trembler violemment.
+Ce geste toucha le Tian Niu, qui se mit à trembler violemment.
 
-Le Maître Impérial ouvrit lentement la bouche, et aussitôt, le Taureau Céleste disparut. « Le Néant est une forme de Grand Dao. Parce qu'il y a l'existence, elle devient néant une fois perdue. »
+Le Maître Impérial ouvrit lentement la bouche, et aussitôt, le Tian Niu disparut. « Le Néant est une forme de Grand Dao. Parce qu'il y a l'existence, elle devient néant une fois perdue. »
 
 Parce qu'il existait, une fois disparu, il devenait néant. Ce qui venait de se produire illustrait parfaitement ses paroles.
 
 Les pupilles de Wang Lin se contractèrent violemment. À cet instant, il ressentit une fluctuation terrifiante émanant du Maître Impérial. C'était un degré d'illumination du Dao d'une hauteur extrême.
 
-Le Taureau Céleste se dissipa, tout comme l'ombre noire que le vieil homme avait créée au prix de sa force vitale. Ce dernier semblait avoir énormément vieilli; il esquissa un sourire amer et joignit les mains en signe de salut vers Wang Lin. Sans dire un mot, il redescendit au sol pour rejoindre les siens.
+Le Tian Niu se dissipa, tout comme l'ombre noire que le vieil homme avait créée au prix de sa force vitale. Ce dernier semblait avoir énormément vieilli; il esquissa un sourire amer et joignit les mains en signe de salut vers Wang Lin. Sans dire un mot, il redescendit au sol pour rejoindre les siens.
 
 « Le second... » Le Maître Impérial sourit devant le Temple Xian Dao. Cependant, juste après avoir parlé, il fronça les sourcils.
 

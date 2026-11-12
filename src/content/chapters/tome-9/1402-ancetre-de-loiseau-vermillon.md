@@ -1,6 +1,6 @@
 ---
 n: 1402
-title: "Ancêtre de l'Oiseau Vermillon"
+title: "Ancêtre de Suzaku"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1402 - Vermillion Bird Ancestor
@@ -28,7 +28,7 @@ Le ciel changea de couleur et les nuages se dispersèrent. L'essence de la foudr
 
 C'était la deuxième essence de Wang Lin!
 
-« Quel prodige. Non seulement il possède l'essence de feu issue de ses multiples éveils de l'Oiseau Vermillon, mais il possède aussi cette essence de foudre! Je l'avais remarqué auparavant, mais en la voyant ainsi, je ne peux m'empêcher d'être surpris! Cette essence de foudre est complète, elle aussi! Elle est à un stade où elle peut défier la Porte Kong! Comment a-t-il pu la cultiver? Aurait-il vraiment dévoré un ancien dragon de la foudre? » Le vieil homme prit une profonde inspiration.
+« Quel prodige. Non seulement il possède l'essence de feu issue de ses multiples éveils de Suzaku, mais il possède aussi cette essence de foudre! Je l'avais remarqué auparavant, mais en la voyant ainsi, je ne peux m'empêcher d'être surpris! Cette essence de foudre est complète, elle aussi! Elle est à un stade où elle peut défier la Porte Kong! Comment a-t-il pu la cultiver? Aurait-il vraiment dévoré un ancien dragon de la foudre? » Le vieil homme prit une profonde inspiration.
 
 Cependant, à cet instant précis, une autre lueur jaillit du sommet du crâne de Wang Lin. Les yeux du vieil homme s'écarquillèrent, révélant une pointe d'excitation.
 
@@ -58,7 +58,7 @@ Le vieil homme fixa les cinq essences différentes flottant au-dessus de Wang Li
 
 Le clair de lune était intense et la brise légère continuait de souffler, faisant bruisser la végétation. La nuit passa lentement et l'aube finit par se lever, dissipant l'obscurité et le froid nocturnes.
 
-Après une nuit de culture, l'essence de feu dans le corps de Wang Lin était devenue bien plus forte. Cependant, il restait une barrière au quatrième éveil de l'Oiseau Vermillon que Wang Lin ne parvenait pas encore à franchir.
+Après une nuit de culture, l'essence de feu dans le corps de Wang Lin était devenue bien plus forte. Cependant, il restait une barrière au quatrième éveil de Suzaku que Wang Lin ne parvenait pas encore à franchir.
 
 La Sélection des Anciens Délaissés avait déjà commencé à l'aube.
 
@@ -68,15 +68,15 @@ Wang Lin expulsa une bouffée d'air vicié. Cet air était noir et, lorsqu'il to
 
 Dès que Wang Lin ouvrit les yeux, il vit le vieil homme. Il réfléchit un instant avant de se lever. Il s'inclina respectueusement et dit: « Le cadet Wang Lin salue... l'Ancêtre de la quatrième génération... »
 
-Le vieil homme regarda Wang Lin avec une lueur étrange dans les yeux. Il toussa sèchement, dissimula cette expression et sourit: « Ce vieil homme n'est pas l'Oiseau Vermillon de la quatrième génération. »
+Le vieil homme regarda Wang Lin avec une lueur étrange dans les yeux. Il toussa sèchement, dissimula cette expression et sourit: « Ce vieil homme n'est pas Suzaku de la quatrième génération. »
 
-Wang Lin fut surpris un instant en le regardant, puis une pensée lui traversa l'esprit: « Vous... seriez-vous... l'Oiseau Vermillon de la première génération? »
+Wang Lin fut surpris un instant en le regardant, puis une pensée lui traversa l'esprit: « Vous... seriez-vous... Suzaku de la première génération? »
 
-Le vieil homme rit et secoua la tête. « Ce vieil homme n'est pas l'Oiseau Vermillon de la première génération, mais le deuxième! Le temps a passé et les choses sont complexes. L'Oiseau Vermillon de la quatrième génération est également présent. Tu es le deuxième membre du clan que je vois après lui. »
+Le vieil homme rit et secoua la tête. « Ce vieil homme n'est pas Suzaku de la première génération, mais le deuxième! Le temps a passé et les choses sont complexes. L'Oiseau Vermillon de la quatrième génération est également présent. Tu es le deuxième membre du clan que je vois après lui. »
 
 Wang Lin resta silencieux un moment, puis demanda avec hésitation: « Êtes-vous le Grand Empereur? »
 
-« Je suis comme toi, un Jeune Empereur! » Le vieil homme sourit. Voyant Wang Lin plongé dans ses pensées, il expliqua: « Ce vieil homme et le petit de la quatrième génération, nous sommes tous deux des Jeunes Empereurs! Quant au Grand Empereur des Terres Déchues, ce n'est qu'un nom utilisé par les étrangers. Pour le clan de l'Oiseau Vermillon, il n'a qu'un seul nom: l'Ancêtre de l'Oiseau Vermillon de la première génération! Il est également l'un des quatre généraux les plus puissants sous l'ancien Empereur Céleste! »
+« Je suis comme toi, un Jeune Empereur! » Le vieil homme sourit. Voyant Wang Lin plongé dans ses pensées, il expliqua: « Ce vieil homme et le petit de la quatrième génération, nous sommes tous deux des Jeunes Empereurs! Quant au Grand Empereur des Terres Déchues, ce n'est qu'un nom utilisé par les étrangers. Pour le clan de Suzaku, il n'a qu'un seul nom: l'Ancêtre de Suzaku de la première génération! Il est également l'un des quatre généraux les plus puissants sous l'ancien Empereur Céleste! »
 
 L'esprit de Wang Lin trembla et il leva soudainement les yeux.
 

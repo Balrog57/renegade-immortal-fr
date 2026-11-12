@@ -52,9 +52,9 @@ La pièce fut enveloppée par cet arôme, dont la puissance se faisait sentir ju
 
 Il ne restait plus rien dans la théière après ces trois tasses.
 
-Les deux personnes s'approchèrent rapidement, saisirent les tasses et burent. Cependant, la vieille femme avait manifestement l'esprit ailleurs. Sans se soucier de la chaleur, elle vida sa tasse d'un trait et déclara: « Maître de secte, nous avons fini notre thé; veuillez maintenant tuer ce Ceng Niu. »
+Les deux personnes s'approchèrent rapidement, saisirent les tasses et burent. Cependant, la vieille femme avait manifestement l'esprit ailleurs. Sans se soucier de la chaleur, elle vida sa tasse d'un trait et déclara: « Maître de secte, nous avons fini notre thé; veuillez maintenant tuer ce Zeng Niu. »
 
-Le cœur de l'homme d'âge moyen se serra en voyant la vieille femme gaspiller ce thé précieux, et il répondit: « Ce Ceng Niu n'est qu'un moins que rien. Si le Mont Suzaku n'avait pas envoyé un message ordonnant de ne pas s'en prendre à lui, quelqu'un l'aurait déjà tué. »
+Le cœur de l'homme d'âge moyen se serra en voyant la vieille femme gaspiller ce thé précieux, et il répondit: « Ce Zeng Niu n'est qu'un moins que rien. Si le Mont Suzaku n'avait pas envoyé un message ordonnant de ne pas s'en prendre à lui, quelqu'un l'aurait déjà tué. »
 
 La vieille femme leva la tête et répliqua: « Mais il a osé arracher un bras à Hongdie! Rappelez-vous, Hongdie est l'espoir de Xue Yu. Maître de secte, vous n'avez atteint le stade de la Transformation de l'Âme que grâce à elle! »
 
@@ -64,7 +64,7 @@ Le regard de l'homme d'âge moyen devint glacial et il dit lentement à la vieil
 
 La vieille femme resta longtemps silencieuse, puis dit: « Je vous en prie, Maître de secte, agissez! »
 
-L'homme d'âge moyen prit sa tasse, en but une gorgée et reprit: « Ce Ceng Niu possède un crapaud tonnerre, une paire de cloches, un petit drapeau capable de créer d'innombrables restrictions, une épée volante capable de briser n'importe quelle défense et, en plus de tout cela, Liao Fan a pu confirmer qu'il maîtrise les techniques de l'ancien Dao des Enfers. Ces choses ne sont même pas les plus importantes. Ce qui compte par-dessus tout, c'est que Ceng Niu possède un petit drapeau contenant une aura capable de tout détruire. »
+L'homme d'âge moyen prit sa tasse, en but une gorgée et reprit: « Ce Zeng Niu possède un crapaud tonnerre, une paire de cloches, un petit drapeau capable de créer d'innombrables restrictions, une épée volante capable de briser n'importe quelle défense et, en plus de tout cela, Liao Fan a pu confirmer qu'il maîtrise les techniques de l'ancien Dao des Enfers. Ces choses ne sont même pas les plus importantes. Ce qui compte par-dessus tout, c'est que Zeng Niu possède un petit drapeau contenant une aura capable de tout détruire. »
 
 La vieille femme fut stupéfaite: « Il semble que le Maître de secte ait enquêté sur cet homme. »
 
@@ -88,9 +88,9 @@ L'homme d'âge moyen esquissa un léger sourire et demanda: « Connais-tu son do
 
 « D'après Hongdie, le domaine de cet homme est la vie et la mort; le cycle de la réincarnation. Quelqu'un capable de comprendre un tel domaine ne peut être sous-estimé, même s'il n'est qu'au stade de la Formation de l'Âme. » Les yeux de l'homme d'âge moyen trahirent une pointe d'émotion.
 
-La vieille femme se mit à réfléchir et poussa un soupir. La raison pour laquelle elle voulait tuer Ceng Niu était que, lorsque Hongdie était jeune, elle avait tiré un présage pour celle-ci. Dans son futur, Hongdie devait faire face à une calamité!
+La vieille femme se mit à réfléchir et poussa un soupir. La raison pour laquelle elle voulait tuer Zeng Niu était que, lorsque Hongdie était jeune, elle avait tiré un présage pour celle-ci. Dans son futur, Hongdie devait faire face à une calamité!
 
-Elle craignait que cette calamité ne soit Ceng Niu!
+Elle craignait que cette calamité ne soit Zeng Niu!
 
 Le temps s'écoula et, en un clin d'œil, cinq années passèrent.
 
@@ -106,7 +106,7 @@ Wang Lin avait passé ces cinq dernières années à consolider son énergie spi
 
 Wang Lin savait qu'il avait atteint un goulot d'étranglement. S'il ne réussissait pas à le briser, sa culture resterait éternellement bloquée ici.
 
-Le nombre de challengers avait considérablement diminué au cours de ces cinq ans, mais la renommée de Ceng Niu n'avait fait que croître. Il était devenu un sujet de conversation récurrent parmi les nombreux cultivateurs.
+Le nombre de challengers avait considérablement diminué au cours de ces cinq ans, mais la renommée de Zeng Niu n'avait fait que croître. Il était devenu un sujet de conversation récurrent parmi les nombreux cultivateurs.
 
 Aujourd'hui marquait le jour du rendez-vous décennal avec Suzaku pour le combat contre Hongdie.
 
@@ -126,7 +126,7 @@ Après tout, Hongdie était trop célèbre. L'Alliance des Quatre Sectes avait �
 
 Par conséquent, la plupart des cultivateurs connaissaient le nom de Hongdie.
 
-L'apparition soudaine de Ceng Niu, en piétinant Hongdie, l'avait rendu encore plus célèbre.
+L'apparition soudaine de Zeng Niu, en piétinant Hongdie, l'avait rendu encore plus célèbre.
 
 Désormais, l'affrontement entre les deux était devenu le centre d'attention de toute la planète. Celui qui l'emporterait recevrait une immense fortune.
 

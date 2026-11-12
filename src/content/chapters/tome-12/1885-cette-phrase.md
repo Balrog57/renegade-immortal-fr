@@ -6,11 +6,11 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1885 - That Sentence!"
 slug: cette-phrase
 ---
-Le Taureau Céleste chargea vers le soleil avec une fureur déchaînée. Le niveau de culture de Bian Yun était très élevé grâce à l'armure de l'âme, mais après que le Taureau Céleste se fut précipité vers le soleil, son propre niveau de culture chuta considérablement. Il retomba du stade avancé de la Tribulation du Vide au stade intermédiaire.
+Le Tian Niu chargea vers le soleil avec une fureur déchaînée. Le niveau de culture de Bian Yun était très élevé grâce à l'armure de l'âme, mais après que le Tian Niu se fut précipité vers le soleil, son propre niveau de culture chuta considérablement. Il retomba du stade avancé de la Tribulation du Vide au stade intermédiaire.
 
-Ce sort consistait en réalité à abandonner brièvement l'armure qu'il portait : il l'avait jetée, la transformant en une véritable âme de Taureau Céleste, pour briser la nuit résiduelle de Nuit Brisée!
+Ce sort consistait en réalité à abandonner brièvement l'armure qu'il portait : il l'avait jetée, la transformant en une véritable âme de Tian Niu, pour briser la nuit résiduelle de Nuit Brisée!
 
-Tout cela se produisit en un éclair. Le Taureau Céleste percuta violemment le soleil dans un fracas de tonnerre. Wang Lin cracha du sang; lorsque Nuit Brisée s'effondra, il fut projeté en arrière sur des milliers de pieds.
+Tout cela se produisit en un éclair. Le Tian Niu percuta violemment le soleil dans un fracas de tonnerre. Wang Lin cracha du sang; lorsque Nuit Brisée s'effondra, il fut projeté en arrière sur des milliers de pieds.
 
 Quant à Bian Yun, il semblait avoir vieilli de mille ans et du sang coulait de sa bouche alors qu'il reculait. Cependant, comment Wang Lin pouvait-il le laisser s'échapper? Ignorant ses blessures, il se précipita vers Bian Yun. Il comptait profiter de la dissipation de l'armure de l'âme pour l'exterminer.
 

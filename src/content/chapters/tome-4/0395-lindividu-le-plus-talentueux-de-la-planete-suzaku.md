@@ -14,7 +14,7 @@ Les sphères de glace continuaient de pleuvoir sur lui; il ripostait par des cou
 
 D'innombrables fissures supplémentaires parcoururent le sol de Xue Yu à cet instant.
 
-L'expression de Li Yuanfeng devint féroce alors qu'il hurlait: « Ceng Niu, meurs! »
+L'expression de Li Yuanfeng devint féroce alors qu'il hurlait: « Zeng Niu, meurs! »
 
 Sous la force des impacts des boules de glace, le corps de Wang Lin fut projeté au sol tel un météore, creusant un cratère gigantesque dans la terre.
 
@@ -80,7 +80,7 @@ Sur ces mots, il tendit sa main droite et une faille spatiale apparut. Des vague
 
 Li Yuanfeng commença à lutter. Bien qu'il fût égoïste, il était né à Xue Yu et entretenait un attachement émotionnel profond envers sa patrie.
 
-Après un court instant, il esquissa un sourire amer. Il ignorait s'il parviendrait à blesser Ceng Niu, mais Xue Yu disparaîtrait indubitablement de la planète.
+Après un court instant, il esquissa un sourire amer. Il ignorait s'il parviendrait à blesser Zeng Niu, mais Xue Yu disparaîtrait indubitablement de la planète.
 
 Son regard se fit solennel. Il fixa Wang Lin, prit une profonde inspiration et dit: « Ce vieil homme admet sa défaite, mais le pays de Xue Yu n'a rien à voir là-dedans. Si tu acceptes d'épargner son peuple, ce vieil homme te permettra de me punir comme bon te semble. »
 
@@ -116,7 +116,7 @@ Deux marques furent imprimées sur le front des cultivateurs: l'une légère et 
 
 Une fois sa tâche accomplie, Wang Lin frappa son sac de rangement et la bête moustique apparut pour l'emporter au loin.
 
-À la suite de ce combat, la nouvelle de la réapparition de Ceng Niu se propagea comme une traînée de poudre. Sa place de plus puissant sous le stade de la Transformation de l'Âme était désormais gravée dans le marbre; beaucoup étaient même convaincus qu'il avait déjà atteint ce niveau.
+À la suite de ce combat, la nouvelle de la réapparition de Zeng Niu se propagea comme une traînée de poudre. Sa place de plus puissant sous le stade de la Transformation de l'Âme était désormais gravée dans le marbre; beaucoup étaient même convaincus qu'il avait déjà atteint ce niveau.
 
 Nul ne doutait de sa puissance: il avait vaincu le cultivateur de Transformation de l'Âme Li Yuanfeng, scellé tous les experts de la Formation de l'Âme de Xue Yu et contraint un pays de culture de rang 5 à rétrograder au rang 3.
 
@@ -126,7 +126,7 @@ Ces événements laissèrent tous ceux qui en entendirent parler dans un état d
 
 À ses côtés, un homme se tenait respectueusement. Ce dernier avait le visage large et de grandes oreilles; si Wang Lin avait été présent, il l'aurait immédiatement reconnu.
 
-« Ce Ceng Niu est vraiment redoutable pour avoir terrassé un cultivateur de Transformation de l'Âme. Il n'est pas simple du tout; ce vieil homme avait vraiment vu juste à l'époque, haha! » Le vieillard se frotta le menton et dit à son compagnon: « Ceng Niu t'a aidé à faire de Xue Yu un pays de rang 3, tu devrais lui rendre la pareille. Prends mon chapeau de paille et va affronter Liu Mei. Même si tu ne fais pas son poids, tu pourras au moins t'enfuir. Vérifie jusqu'à quel stade son Domaine Impitoyable des Mille Illusions a progressé. »
+« Ce Zeng Niu est vraiment redoutable pour avoir terrassé un cultivateur de Transformation de l'Âme. Il n'est pas simple du tout; ce vieil homme avait vraiment vu juste à l'époque, haha! » Le vieillard se frotta le menton et dit à son compagnon: « Zeng Niu t'a aidé à faire de Xue Yu un pays de rang 3, tu devrais lui rendre la pareille. Prends mon chapeau de paille et va affronter Liu Mei. Même si tu ne fais pas son poids, tu pourras au moins t'enfuir. Vérifie jusqu'à quel stade son Domaine Impitoyable des Mille Illusions a progressé. »
 
 L'homme aux grandes oreilles acquiesça respectueusement. Il tourna le regard vers Xue Yu, affichant une expression de mélancolie et de nostalgie.
 
@@ -134,14 +134,14 @@ Une fois l'homme parti, le vieil homme se leva et rangea les pièces de bronze. 
 
 Il prit une profonde inspiration et disparut.
 
-« Quel casse-tête... Parmi les quatre que j'ai choisis, cette Zi Xin est la plus problématique. Pourquoi a-t-elle dû s'immiscer dans les affaires de Ceng Niu pour finir aspirée dans une faille spatiale?! Si ce n'était pas parce qu'elle est destinée à être la faille dans le Cœur Dao de Qian Feng, ce vieil homme ne perdrait pas son temps à vouloir la sauver! »
+« Quel casse-tête... Parmi les quatre que j'ai choisis, cette Zi Xin est la plus problématique. Pourquoi a-t-elle dû s'immiscer dans les affaires de Zeng Niu pour finir aspirée dans une faille spatiale?! Si ce n'était pas parce qu'elle est destinée à être la faille dans le Cœur Dao de Qian Feng, ce vieil homme ne perdrait pas son temps à vouloir la sauver! »
 
 « Qian Feng... Qian Feng... ah, ce garçon est l'individu le plus talentueux que ce vieil homme ait rencontré de toute sa vie. Même le talent de Hongdie est inférieur au sien. »
 
-« La nouvelle du combat entre Ceng Niu et Li Yuanfeng a parcouru toute la planète Suzaku. Forcer un pays de rang 5 à devenir un pays de rang 3 est un événement majeur. Presque chaque cultivateur de la planète en est informé. »
+« La nouvelle du combat entre Zeng Niu et Li Yuanfeng a parcouru toute la planète Suzaku. Forcer un pays de rang 5 à devenir un pays de rang 3 est un événement majeur. Presque chaque cultivateur de la planète en est informé. »
 
-À cet instant, dans la zone interdite de l'arrière-montagne du Mont Suzaku, au pays de Suzaku, Qian Feng broya le jade de transmission sonore qu'il tenait en main. Ses yeux brillèrent et, après un silence, il murmura: « Ceng Niu... tuer Li Yuanfeng n'est rien. Ce n'était qu'un déchet qui avait atteint la Transformation de l'Âme par la force. Si tu parviens à terrasser l'ancêtre du Clan Ju Mo, alors seulement, tu seras à peine digne d'être mon adversaire... »
+À cet instant, dans la zone interdite de l'arrière-montagne du Mont Suzaku, au pays de Suzaku, Qian Feng broya le jade de transmission sonore qu'il tenait en main. Ses yeux brillèrent et, après un silence, il murmura: « Zeng Niu... tuer Li Yuanfeng n'est rien. Ce n'était qu'un déchet qui avait atteint la Transformation de l'Âme par la force. Si tu parviens à terrasser l'ancêtre du Clan Ju Mo, alors seulement, tu seras à peine digne d'être mon adversaire... »
 
 Derrière lui, Hongdie se tenait silencieusement, le regard vide de toute vie.
 
-Qian Feng se retourna et la fixa avec un sourire malicieux. « Sans-Cœur, veux-tu affronter Ceng Niu à nouveau? C'était le vœu le plus cher de ton âme avant qu'elle ne disparaisse. »
+Qian Feng se retourna et la fixa avec un sourire malicieux. « Sans-Cœur, veux-tu affronter Zeng Niu à nouveau? C'était le vœu le plus cher de ton âme avant qu'elle ne disparaisse. »

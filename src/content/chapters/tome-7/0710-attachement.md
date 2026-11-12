@@ -38,7 +38,7 @@ Ce qui choqua le plus Qian Kuizi fut la Bête du Tonnerre sous Wang Lin. Cette c
 
 Qian Kuizi pensa: « À l'époque, je supposais que cet homme occupait un rang élevé au sein du Temple Céleste du Tonnerre. Il semble que ma conjecture ait soixante-dix pour cent de chances d'être vraie! »
 
-Wang Lin esquissa un léger sourire et dit: « Cela me convient fort bien. Compagnon cultivateur Qian Kuizi, je suis ici pour solliciter quelques Fruits d'Ascension Céleste. »
+Wang Lin esquissa un léger sourire et dit: « Cela me convient fort bien. Daoïste Qian Kuizi, je suis ici pour solliciter quelques Fruits d'Ascension Céleste. »
 
 Qian Kuizi réfléchit silencieusement. Bien que les Fruits d'Ascension Céleste fussent cruciaux pour accéder au Royaume Céleste du Tonnerre, obtenir le soutien d'un messager du Temple Céleste du Tonnerre était bien plus important.
 

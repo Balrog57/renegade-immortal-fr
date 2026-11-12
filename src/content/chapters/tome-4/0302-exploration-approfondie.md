@@ -30,25 +30,25 @@ Wang Lin agita le drapeau de restriction et la brume noire disparut dans les par
 
 Peu de temps après, une silhouette émergea du mur que Wang Lin observait. Dès qu'il apparut, l'homme se montra extrêmement prudent en fixant Wang Lin du regard.
 
-Après l'avoir observé attentivement à plusieurs reprises, il laissa échapper un rire: « Compagnon cultivateur, je crois que nous sommes les deux seuls survivants dans ce Temple Xian Shou effondré. »
+Après l'avoir observé attentivement à plusieurs reprises, il laissa échapper un rire: « Daoïste, je crois que nous sommes les deux seuls survivants dans ce Temple Xian Shou effondré. »
 
 Wang Lin eut un petit rire étouffé. Il réalisa que cet homme savait qu'il le suivait. Cela laissait penser que ce dernier cachait peut-être encore son véritable niveau de culture.
 
-Wang Lin demanda calmement: « Cet endroit est déjà effondré. Pourquoi ce compagnon cultivateur vient-il à ma rencontre au lieu de chercher une issue? »
+Wang Lin demanda calmement: « Cet endroit est déjà effondré. Pourquoi ce Daoïste vient-il à ma rencontre au lieu de chercher une issue? »
 
-Le sixième Junior frère regarda autour de lui et, sans avancer, répondit: « Le compagnon cultivateur nous a suivis tout le long. Je suppose que vous avez également aperçu la nourriture pour bêtes célestes. »
+Le sixième Junior frère regarda autour de lui et, sans avancer, répondit: « Le Daoïste nous a suivis tout le long. Je suppose que vous avez également aperçu la nourriture pour bêtes célestes. »
 
 Wang Lin sourit légèrement, esquiva la question et demanda: « Que voulez-vous dire par là? »
 
-Les yeux du sixième Junior frère s'illuminèrent d'une expression mystérieuse: « Ne vous inquiétez pas, compagnon cultivateur. Mon nom est Sun Lei. Je n'ai aucune crainte à vous l'avouer: je ne fais pas réellement partie de la Secte Da Luo. Je m'y suis simplement infiltré. »
+Les yeux du sixième Junior frère s'illuminèrent d'une expression mystérieuse: « Ne vous inquiétez pas, Daoïste. Mon nom est Sun Lei. Je n'ai aucune crainte à vous l'avouer: je ne fais pas réellement partie de la Secte Da Luo. Je m'y suis simplement infiltré. »
 
 Wang Lin resta silencieux.
 
 Tout en parlant, Sun Lei fit un pas en avant et, alors qu'il s'apprêtait à en faire d'autres, il vit l'ombre d'un sourire sur le visage de Wang Lin et s'arrêta net.
 
-Wang Lin dit calmement: « Si ce compagnon cultivateur fait un pas de plus, je serai contraint d'agir. »
+Wang Lin dit calmement: « Si ce Daoïste fait un pas de plus, je serai contraint d'agir. »
 
-Sun Lei réfléchit un instant et sourit: « Compagnon cultivateur, je ne vais pas tourner autour du pot. Dans la grotte contenant la nourriture pour bêtes célestes se trouvent trois objets. Le premier est un jade céleste, le deuxième est une épée céleste, et le troisième est un morceau de métal doré. Combien avez-vous réussi à en obtenir plus tôt? »
+Sun Lei réfléchit un instant et sourit: « Daoïste, je ne vais pas tourner autour du pot. Dans la grotte contenant la nourriture pour bêtes célestes se trouvent trois objets. Le premier est un jade céleste, le deuxième est une épée céleste, et le troisième est un morceau de métal doré. Combien avez-vous réussi à en obtenir plus tôt? »
 
 Wang Lin répondit avec calme: « Cette ligne noire est revenue trop vite, je n'en ai donc obtenu aucun. »
 
@@ -62,11 +62,11 @@ De plus, après cet échange et en voyant le calme olympien de l'inconnu, Sun Le
 
 En outre, un autre facteur l'empêchait d'agir: il ressentait un sentiment de danger émanant des murs environnants, une sensation qui s'intensifiait dès qu'il faisait un pas en avant.
 
-Pensant à cela, il afficha un sourire et dit: « Compagnon cultivateur, ce jade céleste est formé d'énergie céleste accumulée pendant des milliers d'années; il est considéré comme inestimable. Cependant, comparé à lui, l'épée céleste est bien plus précieuse. Je ne l'ai examinée que brièvement tout à l'heure, je ne connais donc pas ses attributs, mais elle ne peut être ordinaire. À cela s'ajoute ce morceau de métal. Je suppose qu'il s'agit d'un type de trésor protecteur. »
+Pensant à cela, il afficha un sourire et dit: « Daoïste, ce jade céleste est formé d'énergie céleste accumulée pendant des milliers d'années; il est considéré comme inestimable. Cependant, comparé à lui, l'épée céleste est bien plus précieuse. Je ne l'ai examinée que brièvement tout à l'heure, je ne connais donc pas ses attributs, mais elle ne peut être ordinaire. À cela s'ajoute ce morceau de métal. Je suppose qu'il s'agit d'un type de trésor protecteur. »
 
 Wang Lin hocha silencieusement la tête.
 
-Plus Wang Lin se montrait impassible, plus Sun Lei le pensait puissant. Convaincu que Wang Lin savait déjà tout cela, il reprit rapidement: « Compagnon cultivateur, si l'un de nous agissait seul, il serait très difficile de s'emparer des trésors de la nourriture pour bêtes célestes. En revanche, si nous faisons équipe, nos chances d'obtenir ces trésors augmenteront considérablement. »
+Plus Wang Lin se montrait impassible, plus Sun Lei le pensait puissant. Convaincu que Wang Lin savait déjà tout cela, il reprit rapidement: « Daoïste, si l'un de nous agissait seul, il serait très difficile de s'emparer des trésors de la nourriture pour bêtes célestes. En revanche, si nous faisons équipe, nos chances d'obtenir ces trésors augmenteront considérablement. »
 
 Wang Lin esquissa un sourire et demanda: « Oh? Et pourquoi devrais-je vous aider? »
 
@@ -88,9 +88,9 @@ Wang Lin secoua la tête: « Les deux autres objets ne m'intéressent pas non pl
 
 Sun Lei prit une profonde inspiration pour réprimer sa colère. Plus Wang Lin agissait ainsi, plus il paraissait évident qu'il cachait sa puissance. Comment Wang Lin oserait-il lui parler de la sorte s'il n'en était pas capable?
 
-Wang Lin regarda calmement Sun Lei et dit lentement: « Compagnon cultivateur Sun, vous voulez que je vous aide à récupérer l'épée céleste en échange de deux objets qui pourraient même ne pas être accessibles. Croyez-vous que j'ai trois ans? »
+Wang Lin regarda calmement Sun Lei et dit lentement: « Daoïste Sun, vous voulez que je vous aide à récupérer l'épée céleste en échange de deux objets qui pourraient même ne pas être accessibles. Croyez-vous que j'ai trois ans? »
 
-Sun Lei prit une grande inspiration, fixa Wang Lin et demanda: « Compagnon cultivateur, que voulez-vous? » Il était lui aussi las de ces paroles creuses. Si Wang Lin refusait de coopérer, il tenterait sa chance seul.
+Sun Lei prit une grande inspiration, fixa Wang Lin et demanda: « Daoïste, que voulez-vous? » Il était lui aussi las de ces paroles creuses. Si Wang Lin refusait de coopérer, il tenterait sa chance seul.
 
 Wang Lin dit avec nonchalance: « J'ai remarqué qu'avant d'arriver ici, vous sembliez déjà pressentir les failles qui se trouvaient dans les airs... »
 
@@ -102,7 +102,7 @@ Wang Lin prit le jade, le rangea après l'avoir inspecté, puis dit: « Vous êt
 
 Wang Lin fronça les sourcils.
 
-Sun Lei serra les dents et dit: « Compagnon cultivateur, je ne peux pas vous donner cette gourde, mais si vous m'aidez à obtenir l'épée céleste, je peux vous offrir un morceau de bois purificateur. Bien que son efficacité soit moindre que celle de la gourde, il possède la même capacité d'absorption de l'énergie spirituelle céleste. »
+Sun Lei serra les dents et dit: « Daoïste, je ne peux pas vous donner cette gourde, mais si vous m'aidez à obtenir l'épée céleste, je peux vous offrir un morceau de bois purificateur. Bien que son efficacité soit moindre que celle de la gourde, il possède la même capacité d'absorption de l'énergie spirituelle céleste. »
 
 Sur ces mots, il sortit avec douleur un morceau de bois blanc et le montra à Wang Lin avant de le ranger.
 
@@ -112,7 +112,7 @@ Après réflexion, Wang Lin acquiesça: « Très bien, donnez-moi ce bois purifi
 
 Sun Lei acquiesça: « C'est bien naturel. Toutefois, je ne peux pas vous le remettre maintenant. Il ne sera pas trop tard pour vous le donner une fois arrivés à l'entrée de la grotte. Je dois également rester sur mes gardes. »
 
-Les yeux de Wang Lin s'illuminèrent. Il agita ses manches et dit: « Compagnon cultivateur, montrez-moi le chemin! »
+Les yeux de Wang Lin s'illuminèrent. Il agita ses manches et dit: « Daoïste, montrez-moi le chemin! »
 
 Sans un mot, Sun Lei se dirigea vers l'une des grottes qui ne s'étaient pas encore effondrées. Les deux hommes marchèrent vers la grotte en maintenant une certaine distance. Il était évident qu'aucun d'eux ne se faisait confiance, et chacun restait sur ses gardes face à l'autre.
 

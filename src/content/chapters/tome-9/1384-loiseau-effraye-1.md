@@ -22,7 +22,7 @@ Il est évident que le Grand Empereur a changé d'avis. Son plan initial était 
 
 Wang Lin médita encore un instant avant de s'arrêter net. Une possibilité lui vint à l'esprit!
 
-« Je possède cinq essences dans mon corps et le Grand Empereur jouit d'une immense culture; il a peut-être percé mon secret... Ou alors, il a vu l'essence du feu dans le cristal de feu. Si le Grand Empereur est réellement lié aux Quatre Sectes Divines, il devrait pouvoir deviner d'un seul coup d'œil que je possède l'Oiseau Vermillon!
+« Je possède cinq essences dans mon corps et le Grand Empereur jouit d'une immense culture; il a peut-être percé mon secret... Ou alors, il a vu l'essence du feu dans le cristal de feu. Si le Grand Empereur est réellement lié aux Quatre Sectes Divines, il devrait pouvoir deviner d'un seul coup d'œil que je possède Suzaku!
 
 Peut-être que ces deux hypothèses sont les véritables raisons de son revirement! Cependant, ce ne sont que des spéculations. Je ne sais pas si l'une d'elles est vraie.
 

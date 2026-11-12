@@ -80,16 +80,16 @@ Le pouvoir d'un Ancien Dieu à 9 étoiles était inimaginable et leur corps extr
 
 « Une autre méthode. » En regardant le crâne sous lui, une hypothèse audacieuse traversa son esprit.
 
-« Supposons que le cultivateur aux sept couleurs soit l'Empereur Céleste Antique. Avant d'obtenir le Compas Défiant, il aurait volé le Dao Céleste et, pour une raison quelconque, aurait eu besoin de le fortifier. Constatant qu'il était trop difficile de le nourrir avec des esprits de Dao, il aurait tendu un piège! » Le regard de Wang Lin devint plus intense alors qu'il poursuivait son analyse. Il se souvenait que la première génération de l'Oiseau Vermillon avait mentionné des Anciens Dieux dans sa terre natale. Bien qu'ils ne fussent pas les souverains, ils pouvaient tenir tête, avec audace, même aux souverains de son monde.
+« Supposons que le cultivateur aux sept couleurs soit l'Empereur Céleste Antique. Avant d'obtenir le Compas Défiant, il aurait volé le Dao Céleste et, pour une raison quelconque, aurait eu besoin de le fortifier. Constatant qu'il était trop difficile de le nourrir avec des esprits de Dao, il aurait tendu un piège! » Le regard de Wang Lin devint plus intense alors qu'il poursuivait son analyse. Il se souvenait que la première génération de Suzaku avait mentionné des Anciens Dieux dans sa terre natale. Bien qu'ils ne fussent pas les souverains, ils pouvaient tenir tête, avec audace, même aux souverains de son monde.
 
-Le premier Oiseau Vermillon avait cité un nom: l'Ordre Antique Ye Mo.
+Le premier Oiseau Vermillon avait cité un nom: Dao Gu Ye Mo.
 
-« Pourquoi "Ordre Antique" et non "Ancien Dieu Ye Mo", "Ancien Diable" ou "Ancien Démon"? Est-ce que ce titre permet de déterminer que Ye Mo n'était ni dieu, ni diable, ni démon, mais un membre de l'Ordre Antique? »
+« Pourquoi "Dao Gu" et non "Ancien Dieu Ye Mo", "Ancien Diable" ou "Ancien Démon"? Est-ce que ce titre permet de déterminer que Ye Mo n'était ni dieu, ni diable, ni démon, mais un membre de Dao Gu? »
 
-« Lorsque j'ai atteint le stade Ascendant dans la Terre Yao Ling, l'Ancien Démon Ta Jia avait affirmé que l'Ordre Antique constituait la première génération d'êtres défiant le ciel, qu'ils étaient morts en combattant le Dao Céleste, puis qu'ils avaient engendré trois clans, la seconde génération de cultivateurs combattant le Dao Céleste. »
+« Lorsque j'ai atteint le stade Ascendant dans la Terre Yao Ling, l'Ancien Démon Ta Jia avait affirmé que Dao Gu constituait la première génération d'êtres défiant le ciel, qu'ils étaient morts en combattant le Dao Céleste, puis qu'ils avaient engendré trois clans, la seconde génération de cultivateurs combattant le Dao Céleste. »
 
 « Il y avait aussi ce messager des cieux apparu à la fin de la vie de Wan Er. C'était manifestement un Ancien Dieu scellé. Et il y eut ce messager dans le Clan Shan Lei. Quand je lui ai tranché un bras, avant de partir, il a percé ma véritable nature d'Ancien Dieu et a dit que j'appartenais au clan qui a trahi le Vide et anéanti le Dao. » La respiration de Wang Lin devint saccadée; il commençait à entrevoir une vérité.
 
-« Trahir le Vide, anéantir le Dao... le Dao Céleste est mort. Le messager des cieux m'a désigné comme celui du clan ayant anéanti le Dao. La réponse est presque là! Mais qui est donc ce "Vide"? Serait-ce le cultivateur aux sept couleurs, l'Empereur Céleste Antique, le maître de la première génération de l'Oiseau Vermillon, un Immortel Vénérable? »
+« Trahir le Vide, anéantir le Dao... le Dao Céleste est mort. Le messager des cieux m'a désigné comme celui du clan ayant anéanti le Dao. La réponse est presque là! Mais qui est donc ce "Vide"? Serait-ce le cultivateur aux sept couleurs, l'Empereur Céleste Antique, le maître de la première génération de Suzaku, un Immortel Vénérable? »
 
 « Cependant, si c'était vrai, bien des choses resteraient incohérentes. Pourquoi un Ancien Dieu serait-il le messager des cieux? Le Dao Céleste est mort, mais qu'est-ce que c'est réellement? Non pas son corps physique, mais quelle est sa nature et quel est son lien avec ce firmament étoilé? La culture, la culture... Et si nous ne faisions que cultiver ce Dao Céleste qui, peut-être, est déjà mort? » Une profonde confusion embrasa le regard de Wang Lin.

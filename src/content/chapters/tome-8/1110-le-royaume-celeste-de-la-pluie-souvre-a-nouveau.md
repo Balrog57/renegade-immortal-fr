@@ -16,7 +16,7 @@ Xu Liguo cessa immédiatement de parler, mais son corps d'épée trembla tandis 
 
 Après avoir écarté Xu Liguo, Wang Lin fit un pas de côté et disparut.
 
-Ta Shan était toujours assis sur une planète de culture quelque part au sein de la Secte Divine de l'Oiseau Vermillon. Plusieurs peaux de bêtes reposaient à ses côtés, et il continuait d'y infuser, avec son sang, la puissance des tatouages.
+Ta Shan était toujours assis sur une planète de culture quelque part au sein de la Secte Divine de Suzaku. Plusieurs peaux de bêtes reposaient à ses côtés, et il continuait d'y infuser, avec son sang, la puissance des tatouages.
 
 Alors qu'il dessinait, la main droite de Ta Shan trembla et il leva la tête. Wang Lin était apparu sans qu'il s'en aperçoive et le regardait calmement.
 
@@ -50,7 +50,7 @@ Situ Nan était déjà arrivé près des 35 Anciens et se tenait derrière l'un 
 
 Situ Nan siégeait là, l'expression grave, mais sa décision était prise. S'il parvenait à éliminer ce poison, il traînerait Wang Lin sur la planète Feng Luan pour se venger! Il comptait leur rendre au décuple, voire au centuple, toutes les souffrances qu'il avait dû endurer de la part des cultivatrices de la planète Feng Luan!
 
-Certaines planètes abandonnées de la Secte Divine de l'Oiseau Vermillon n'étaient pas propices à la vie. Elles étaient saturées de gaz toxiques, et les flammes rendaient le poison encore plus intense.
+Certaines planètes abandonnées de la Secte Divine de Suzaku n'étaient pas propices à la vie. Elles étaient saturées de gaz toxiques, et les flammes rendaient le poison encore plus intense.
 
 À cet instant, Wang Lin apparut près de l'une de ces planètes désolées. Aucune plante n'y poussait et presque toute forme de vie s'était éteinte. Il n'y avait qu'un désert noir dégageant une chaleur étouffante.
 
@@ -100,13 +100,13 @@ L'expression de Wang Wei devint sérieuse et il hocha la tête. « Au fil des an
 
 Wang Lin réfléchit silencieusement avant de leur révéler comment l'ancien Empereur Divin avait pris le Cristal du Royaume Céleste de la Pluie. Wang Wei devint grave après avoir entendu cela, et même Hu Juan cessa de jouer dans l'eau. Elle mit ses chaussures et rejoignit Wang Wei.
 
-Les deux se regardèrent, et Wang Wei déclara: « Nous deux nous souviendrons de la bienveillance de l'ancien Empereur Divin de l'Oiseau Vermillon. Si l'Empereur Divin du Dragon Azure est réellement piégé dans le Royaume Céleste de la Pluie, nous l'aiderons à être secouru pour rendre au vieil Empereur sa faveur d'avoir obtenu le Cristal du Royaume Céleste de la Pluie. »
+Les deux se regardèrent, et Wang Wei déclara: « Nous deux nous souviendrons de la bienveillance de l'ancien Empereur Divin de Suzaku. Si l'Empereur Divin du Dragon Azure est réellement piégé dans le Royaume Céleste de la Pluie, nous l'aiderons à être secouru pour rendre au vieil Empereur sa faveur d'avoir obtenu le Cristal du Royaume Céleste de la Pluie. »
 
 Wang Lin acquiesça. Wang Wei et Hu Juan se préparèrent et, accompagnés de Zhou Yi, partirent avec Wang Lin.
 
 Quant au corps de Qing Lin, Wang Wei le portait avec lui.
 
-Sur la formation située sur la planète principale de l'Oiseau Vermillon, tout le monde attendait en silence. À cet instant, quatre rayons de lumière convergèrent vers la formation, révélant Wang Lin, Wang Wei et leur suite.
+Sur la formation située sur la planète principale de Suzaku, tout le monde attendait en silence. À cet instant, quatre rayons de lumière convergèrent vers la formation, révélant Wang Lin, Wang Wei et leur suite.
 
 Wang Lin s'installa au centre de la formation sans perdre un instant. Ses yeux brillèrent et il cria: « Activez la formation! » Sur ce commandement, sa main droite plongea dans le vide et une fissure apparut. Un cristal débordant d'énergie spirituelle céleste en jaillit!
 
@@ -116,7 +116,7 @@ Dès que l'éclat atteignit une intensité critique, la lumière commença à se
 
 En un instant, le cristal brilla d'un éclat fulgurant, et une quantité inimaginable d'énergie spirituelle céleste envahit la zone. Un pilier d'énergie spirituelle jaillit vers les cieux, propageant des ondes de choc dans toutes les directions.
 
-Un grondement de tonnerre retentit alors que la porte du Royaume Céleste de la Pluie apparaissait lentement au-dessus de la planète de la Secte Divine de l'Oiseau Vermillon! À cet instant, tous les cultivateurs ayant atteint un certain niveau de culture ressentirent cette fluctuation. Les plus expérimentés comprirent immédiatement: le Royaume Céleste de la Pluie venait de s'ouvrir!
+Un grondement de tonnerre retentit alors que la porte du Royaume Céleste de la Pluie apparaissait lentement au-dessus de la planète de la Secte Divine de Suzaku! À cet instant, tous les cultivateurs ayant atteint un certain niveau de culture ressentirent cette fluctuation. Les plus expérimentés comprirent immédiatement: le Royaume Céleste de la Pluie venait de s'ouvrir!
 
 Au même moment, les chaudrons de pluie apparurent à travers tout le Système Stellaire de l'Alliance. Cependant, Luotian, la Secte Shi Yin et les diverses forces de l'Alliance s'étaient déjà rassemblés autour de la planète Suzaku. Bien que stupéfaits, ils n'avaient pas le temps de s'en inquiéter.
 

@@ -18,7 +18,7 @@ Alors que la jeune femme volait à toute allure, elle se rapprochait de plus en 
 
 La jeune femme haleta et son corps trembla. Sa main droite, dissimulée dans sa manche, frémit inconsciemment. Ce tremblement n'était pas moins intense que lorsqu'il avait sorti le trésor du Grand Empyréen. En réalité, c'était bien pire! Après tout, elle n'avait jamais vu de Grand Empyréen, mais elle avait déjà contemplé un véritable corps d'essence à plusieurs reprises!
 
-L'ancêtre de la Secte Da Hun, le Très Respecté Taureau Vert, possédait également un véritable corps d'essence. Cette jeune femme savait parfaitement la difficulté de parvenir à une telle prouesse et la puissance qu'elle conférait. Elle pensait n'en voir qu'un seul dans sa vie. Elle ne s'attendait pas à en découvrir un second, totalement différent, ici même!
+L'ancêtre de la Secte Da Hun, le Très Respecté Qing Niu, possédait également un véritable corps d'essence. Cette jeune femme savait parfaitement la difficulté de parvenir à une telle prouesse et la puissance qu'elle conférait. Elle pensait n'en voir qu'un seul dans sa vie. Elle ne s'attendait pas à en découvrir un second, totalement différent, ici même!
 
 « Pas étonnant qu'il m'ait détournée... Pas étonnant qu'il ait voulu s'aventurer si profondément dans la veine de feu terrestre... Pas étonnant qu'il soit venu ici malgré la possession d'un trésor de Grand Empyréen... »
 
@@ -46,21 +46,21 @@ Un sentiment de terreur indescriptible émana de son corps et se propagea partou
 
 Le corps de Wang Lin sembla se figer, et même ses pensées parurent ralentir. Wang Lin n'avait jamais vu une créature aussi terrifiante de sa vie. L'aura de cette bête n'était en rien inférieure à celle de Xuan Luo!
 
-« Le Taureau Céleste! » Ces deux mots surgirent soudainement dans l'esprit de Wang Lin, accompagnés des rumeurs et des légendes concernant le Continent Tian Niu.
+« Le Tian Niu! » Ces deux mots surgirent soudainement dans l'esprit de Wang Lin, accompagnés des rumeurs et des légendes concernant le Continent Tian Niu.
 
 L'Ancêtre Céleste avait tué un taureau venu d'au-delà des cieux et transformé son corps en continent. Son âme fut scellée ici, donnant ainsi son nom au Continent Tian Niu. Des mortels s'y installèrent et des cultivateurs y fondèrent des sectes. Après d'innombrables années, ce lieu devint l'un des 72 continents du clan céleste, le Continent Tian Niu du Continent de l'Est!
 
-Le cœur de Wang Lin trembla. À l'instant même où cette légende lui revint en mémoire, une lumière dorée brilla au-dessus du Taureau Céleste. Tandis que la clarté dorée enveloppait le ciel, une silhouette vêtue d'une robe impériale et portant une couronne apparut.
+Le cœur de Wang Lin trembla. À l'instant même où cette légende lui revint en mémoire, une lumière dorée brilla au-dessus du Tian Niu. Tandis que la clarté dorée enveloppait le ciel, une silhouette vêtue d'une robe impériale et portant une couronne apparut.
 
 Dès l'apparition de cette figure, l'espace lui-même trembla. Une énergie céleste indescriptible surgit et entra en collision avec l'aura glaciale. Le monde vacilla sous ce spectacle grandiose.
 
 « L'Ancêtre Céleste! » Wang Lin n'avait pas besoin de deviner. D'après les légendes, il pouvait affirmer que cette personne dont on ne percevait pas le visage était le légendaire Ancêtre Céleste lui-même!
 
-« Se pourrait-il qu'après avoir dévoré la volonté de l'âme du dragon, ce faible rugissement venu des profondeurs m'ait ramené à l'époque où l'Ancêtre Céleste scella le Taureau Céleste? »
+« Se pourrait-il qu'après avoir dévoré la volonté de l'âme du dragon, ce faible rugissement venu des profondeurs m'ait ramené à l'époque où l'Ancêtre Céleste scella le Tian Niu? »
 
-« Mais on racontait que le Taureau Céleste était d'élément feu, alors pourquoi est-il de glace? » Le cœur de Wang Lin tressaillit devant cette vision.
+« Mais on racontait que le Tian Niu était d'élément feu, alors pourquoi est-il de glace? » Le cœur de Wang Lin tressaillit devant cette vision.
 
-Une fois la figure impériale apparue, le Taureau Céleste rugit à nouveau. Des craquements se firent entendre tandis que la glace se propageait rapidement sur lui et sur tout le ciel étoilé.
+Une fois la figure impériale apparue, le Tian Niu rugit à nouveau. Des craquements se firent entendre tandis que la glace se propageait rapidement sur lui et sur tout le ciel étoilé.
 
 Aux yeux de Wang Lin, cette force terrifiante était telle que, sans parler de lui, même un Souverain Céleste aux Sept Couleurs, au sommet de sa puissance, ne pourrait y résister. Peut-être seul Xuan Luo pourrait tenter de l'affronter de plein fouet!
 
@@ -68,21 +68,21 @@ Alors que la glace scellait le ciel, l'homme à la robe impériale leva sa main,
 
 « Dao des Huit Extrêmes, Dao du Feu Extrême! »
 
-Dès que ces mots furent prononcés, un filet de fumée verte jaillit des doigts de l'être impérial. La fumée tourbillonna autour de ses doigts, formant neuf anneaux, avant de s'élancer vers le Taureau Céleste dans les cieux.
+Dès que ces mots furent prononcés, un filet de fumée verte jaillit des doigts de l'être impérial. La fumée tourbillonna autour de ses doigts, formant neuf anneaux, avant de s'élancer vers le Tian Niu dans les cieux.
 
-Les neuf anneaux de fumée grandirent durant leur ascension, atteignant bientôt une taille presque infinie. Ils percutèrent violemment le Taureau Céleste.
+Les neuf anneaux de fumée grandirent durant leur ascension, atteignant bientôt une taille presque infinie. Ils percutèrent violemment le Tian Niu.
 
 Le premier anneau heurta l'aura glaciale du taureau, la dissipant instantanément. Le deuxième anneau pénétra la glace pour atteindre le corps de la bête. Puis, les sept anneaux restants frappèrent l'un après l'autre.
 
-Le Taureau Céleste se débattit et rugit, mais fut incapable de se libérer des cercles de fumée. Lorsque le neuvième anneau toucha sa cible, toute l'aura glaciale du taureau disparut sans laisser de trace. À la place, un feu monstrueux jaillit, transformant le Taureau Céleste en une créature de flammes!
+Le Tian Niu se débattit et rugit, mais fut incapable de se libérer des cercles de fumée. Lorsque le neuvième anneau toucha sa cible, toute l'aura glaciale du taureau disparut sans laisser de trace. À la place, un feu monstrueux jaillit, transformant le Tian Niu en une créature de flammes!
 
 « Pour avoir osé envahir mon clan céleste, voici ton châtiment: que ton corps devienne la terre, que ton esprit nourrisse tous les êtres, que tes os deviennent des veines, et que ton âme soit réprimée à travers d'innombrables années, jusqu'à l'Astral Immortel! »
 
-Le Taureau Céleste poussa un rugissement déchirant et son corps descendit pour former un continent infini. D'innombrables montagnes surgirent soudainement du sol, les os de la bête se transformèrent en veines, et un feu sans fin apparut tandis que ces veines devenaient des veines de feu terrestre!
+Le Tian Niu poussa un rugissement déchirant et son corps descendit pour former un continent infini. D'innombrables montagnes surgirent soudainement du sol, les os de la bête se transformèrent en veines, et un feu sans fin apparut tandis que ces veines devenaient des veines de feu terrestre!
 
-Au fond de la terre, l'âme du Taureau Céleste fut ainsi emprisonnée. Seul un rugissement de révolte parvenait parfois des profondeurs, mais personne ne semblait pouvoir l'entendre!
+Au fond de la terre, l'âme du Tian Niu fut ainsi emprisonnée. Seul un rugissement de révolte parvenait parfois des profondeurs, mais personne ne semblait pouvoir l'entendre!
 
-Après avoir été témoin de tout cela, la vision de Wang Lin se brouilla. Lorsqu'elle redevint nette, il était de retour dans la veine de feu terrestre. Un instant, il eut encore l'impression d'entendre le cri du Taureau Céleste résonner sous terre.
+Après avoir été témoin de tout cela, la vision de Wang Lin se brouilla. Lorsqu'elle redevint nette, il était de retour dans la veine de feu terrestre. Un instant, il eut encore l'impression d'entendre le cri du Tian Niu résonner sous terre.
 
 La confusion n'avait pas encore quitté ses yeux que les plumes du véritable corps d'essence de Wang Lin changèrent brusquement pour devenir une chevelure noire. Son véritable corps d'essence était sur le point de s'achever.
 

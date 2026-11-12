@@ -78,7 +78,7 @@ Peu de gens auraient pu rester aussi impassibles face à un regard aussi saisiss
 
 « Je ne demande pas la permission, je vous informe. » Li Qianmei fit volte-face et s'éloigna.
 
-« Une marée de bêtes plus massive est imminente! Si tu pars maintenant, tu feras honte à ta Secte Brise-Ciel! » La silhouette floue sembla froncer les sourcils, sa voix instable résonnant dans l'air.
+« Une marée de bêtes plus massive est imminente! Si tu pars maintenant, tu feras honte à ta Secte Po Tian! » La silhouette floue sembla froncer les sourcils, sa voix instable résonnant dans l'air.
 
 Li Qianmei ne répondit pas et sortit de la salle.
 

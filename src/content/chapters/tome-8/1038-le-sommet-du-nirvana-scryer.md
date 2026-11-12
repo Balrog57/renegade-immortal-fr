@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1038 - Peak of Nirvana Scryer
 slug: le-sommet-du-nirvana-scryer
 ---
-L'antique Secte Divine de l'Oiseau Vermillon semblait n'être plus qu'un mythe. Ces quatre mots n'existaient même plus dans l'esprit de certains cultivateurs.
+L'antique Secte Divine de Suzaku semblait n'être plus qu'un mythe. Ces quatre mots n'existaient même plus dans l'esprit de certains cultivateurs.
 
 Les Quatre Grandes Sectes Divines s'étaient évanouies depuis bien trop longtemps. Leur gloire passée était devenue un simple souvenir, et ce souvenir lui-même s'effaçait progressivement avec le passage du temps.
 
@@ -16,13 +16,13 @@ Les Quatre Grandes Sectes étaient encore plus puissantes et mystérieuses que l
 
 En conséquence, ils avaient formé une alliance avec l'Alliance Xiu Zhen. Après de multiples complots, ils parvinrent à mener les Quatre Grandes Sectes vers leur point de faiblesse le plus critique.
 
-L'Empereur Divin du Dragon Azure, le plus puissant d'entre eux, disparut, et la nouvelle de l'entrée de l'Empereur Divin de l'Oiseau Vermillon — le plus craint de tous — dans son troisième Fléau Céleste fut divulguée. Cela plongea les Quatre Grandes Sectes dans une crise sans précédent!
+L'Empereur Divin du Dragon Azure, le plus puissant d'entre eux, disparut, et la nouvelle de l'entrée de l'Empereur Divin de Suzaku — le plus craint de tous — dans son troisième Fléau Céleste fut divulguée. Cela plongea les Quatre Grandes Sectes dans une crise sans précédent!
 
 Néanmoins, les Quatre Grandes Sectes étaient encore assez fortes pour lutter contre l'Alliance Xiu Zhen et ne craignaient pas le Royaume Kun Xu. Après tout, pour diverses raisons, le Royaume Kun Xu ne pouvait intervenir qu'en secret. Même s'ils s'étaient manifestés ouvertement, les Quatre Grandes Sectes auraient pu activer les Quatre Trésors Divins pour mener bataille.
 
 Cependant, au moment le plus crucial de l'affrontement entre les Quatre Grandes Sectes et l'Alliance, un événement cataclysmique se produisit, causant finalement le déclin définitif des Quatre Grandes Sectes!
 
-L'Empereur Divin de la Tortue Noire, ses trois principaux disciples ainsi qu'une majorité de sa secte trahirent les Quatre Grandes Sectes! Non seulement cela, mais durant cette trahison, il lança une attaque surprise contre l'Empereur Divin de l'Oiseau Vermillon. Bien qu'il ait finalement échoué, il provoqua l'éruption du troisième Fléau Céleste que l'Empereur Divin de l'Oiseau Vermillon était en train de réprimer.
+L'Empereur Divin de la Tortue Noire, ses trois principaux disciples ainsi qu'une majorité de sa secte trahirent les Quatre Grandes Sectes! Non seulement cela, mais durant cette trahison, il lança une attaque surprise contre l'Empereur Divin de Suzaku. Bien qu'il ait finalement échoué, il provoqua l'éruption du troisième Fléau Céleste que l'Empereur Divin de Suzaku était en train de réprimer.
 
 Une telle chose était absolument inconcevable pour les Quatre Grandes Sectes, qui reposaient sur des héritages de lignée sanguine. La trahison de l'Empereur Divin de la Tortue Noire et d'une grande partie de sa secte infligea un bouleversement inimaginable à cette guerre.
 
@@ -32,13 +32,13 @@ Jusqu'à ce jour, personne n'a su pourquoi l'Empereur Divin de la Tortue Noire, 
 
 La trahison de l'Empereur Divin de la Tortue Noire renforça l'Alliance Xiu Zhen. Cette bataille ébranla tout le système stellaire et laissa des cadavres ensanglantés partout sur son passage.
 
-Pourtant, l'Alliance Xiu Zhen sous-estima encore les Quatre Grandes Sectes. Suite à la trahison, l'Empereur Divin de l'Oiseau Vermillon risqua d'échouer lors de son troisième Fléau Céleste et inonda les étoiles d'une mer de flammes. Il se divisa ensuite en dix avatars et lança une contre-attaque effrénée.
+Pourtant, l'Alliance Xiu Zhen sous-estima encore les Quatre Grandes Sectes. Suite à la trahison, l'Empereur Divin de Suzaku risqua d'échouer lors de son troisième Fléau Céleste et inonda les étoiles d'une mer de flammes. Il se divisa ensuite en dix avatars et lança une contre-attaque effrénée.
 
 Cette bataille fut une tragédie. Les rares cultivateurs qui survécurent frémissaient à chaque fois qu'ils s'en remémoraient.
 
 En fin de compte, les Quatre Grandes Sectes furent vaincues. Le Royaume Kun Xu rompit la promesse faite il y a des millénaires de ne pas s'impliquer dans le conflit et rejoignit ouvertement le combat. Leur intention initiale était d'anéantir totalement les Quatre Grandes Sectes.
 
-Cependant, même eux sous-estimèrent les Quatre Grandes Sectes. L'Empereur Divin de l'Oiseau Vermillon perdit huit de ses avatars et son corps original faillit s'effondrer, ne laissant derrière lui qu'une trace de volonté.
+Cependant, même eux sous-estimèrent les Quatre Grandes Sectes. L'Empereur Divin de Suzaku perdit huit de ses avatars et son corps original faillit s'effondrer, ne laissant derrière lui qu'une trace de volonté.
 
 La Secte Divine du Dragon Azure subit de lourdes pertes; un ou deux membres seulement sur dix survécurent! La Secte Divine de la Tortue Noire fut presque anéantie!
 
@@ -52,9 +52,9 @@ Dès lors, les Quatre Grandes Sectes disparurent sans laisser de trace. Durant c
 
 Cependant, l'apparition d'un oiseau vermillon de plusieurs centaines de li de large parmi les étoiles signalait clairement que les Quatre Grandes Sectes allaient une fois de plus surgir dans le système stellaire!
 
-En chemin, même les météores qui croisaient sa route furent réduits en cendres par l'Oiseau Vermillon. Cela choqua de nombreux cultivateurs de l'Alliance, qui commencèrent à spéculer.
+En chemin, même les météores qui croisaient sa route furent réduits en cendres par Suzaku. Cela choqua de nombreux cultivateurs de l'Alliance, qui commencèrent à spéculer.
 
-Même Luotian obtint immédiatement des informations sur l'apparition de l'Oiseau Vermillon. Lorsque le Maître Yan Leizi apprit la nouvelle, il se mit aussitôt à rire.
+Même Luotian obtint immédiatement des informations sur l'apparition de Suzaku. Lorsque le Maître Yan Leizi apprit la nouvelle, il se mit aussitôt à rire.
 
 La guerre que Luotian avait mise en suspens venait de reprendre à grande échelle. Ils utilisèrent la région nord comme base pour lancer leur offensive.
 
@@ -68,7 +68,7 @@ La grotte où il se trouvait n'était pas vaste, et d'innombrables fissures appa
 
 Avant que le moindre gravier ne puisse l'atteindre, une lueur argentée surgissait. C'était le cadavre féminin argenté qui pulvérisait tout sur son passage.
 
-Une énergie originelle infinie émanait des âmes originelles dévorées par Wang Lin, et cette énergie se rassemblait follement au cœur de son âme originelle. Si cela s'était produit avant l'éveil de l'Oiseau Vermillon et que son énergie ne contenait pas la flamme sacrée, il aurait peut-être déjà réussi sa percée.
+Une énergie originelle infinie émanait des âmes originelles dévorées par Wang Lin, et cette énergie se rassemblait follement au cœur de son âme originelle. Si cela s'était produit avant l'éveil de Suzaku et que son énergie ne contenait pas la flamme sacrée, il aurait peut-être déjà réussi sa percée.
 
 Cependant, l'énergie originelle de Wang Lin était imprégnée de flammes; l'énergie qu'il dévorait devait donc être transformée. Elle était raffinée à l'intérieur même de son âme originelle.
 
@@ -96,15 +96,15 @@ Après avoir atteint la deuxième étape, il fallait scruter les Lois. Plus la c
 
 Les yeux de Wang Lin brillèrent. N'ayant pas le temps de s'examiner, il se contenta de dévorer toutes les âmes originelles restantes en lui. À cet instant, son énergie de stade avancé du Scruteur du Nirvana fut transmutée par les flammes et devint bien plus puissante.
 
-L'énergie originelle dans son corps continua sa transformation, et la température corporelle de Wang Lin s'éleva progressivement. Le tatouage de l'Oiseau Vermillon jaillit de son corps pour tournoyer autour de lui.
+L'énergie originelle dans son corps continua sa transformation, et la température corporelle de Wang Lin s'éleva progressivement. Le tatouage de Suzaku jaillit de son corps pour tournoyer autour de lui.
 
-Les cris de l'Oiseau Vermillon résonnèrent. Les yeux de Wang Lin s'illuminèrent, avant qu'il ne commence à froncer les sourcils.
+Les cris de Suzaku résonnèrent. Les yeux de Wang Lin s'illuminèrent, avant qu'il ne commence à froncer les sourcils.
 
 — Encore un tout petit peu...
 
 Tandis qu'il méditait, le corps de Wang Lin vacilla et son avatar s'en extirpa. Il y avait désormais deux Wang Lin. Le corps original se rassit et, du fait de sa séparation avec l'avatar, une intention meurtrière monstrueuse emplit la zone.
 
-L'avatar affichait un visage calme. Après avoir quitté le corps original, il sortit de la grotte. Il flotta dans les airs tandis que l'Oiseau Vermillon planait rapidement au-dessus de lui. Wang Lin prit une grande inspiration et l'énergie originelle dans son corps atteignit son apogée. Une sphère de flammes s'alluma dans son œil gauche, tandis que son œil droit contenait une sphère de tonnerre bleu.
+L'avatar affichait un visage calme. Après avoir quitté le corps original, il sortit de la grotte. Il flotta dans les airs tandis que Suzaku planait rapidement au-dessus de lui. Wang Lin prit une grande inspiration et l'énergie originelle dans son corps atteignit son apogée. Une sphère de flammes s'alluma dans son œil gauche, tandis que son œil droit contenait une sphère de tonnerre bleu.
 
 Puis, son âme originelle jaillit d'entre ses sourcils. Le rugissement antique du dragon de tonnerre, capable de commander à tout le tonnerre du monde, résonna dans le gouffre.
 

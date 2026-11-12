@@ -46,7 +46,7 @@ Son regard fit naître un frisson dans le cœur de Fan Shanmeng. Elle réalisa s
 
 Fan Shanmeng réfléchit silencieusement. Elle ressentit une profonde crainte envers ce cultivateur du monde des grottes qu'elle méprisait initialement.
 
-« Être aussi rusé à son âge... S'il était quelqu'un sur le Continent Astral Immortel, il serait certainement célèbre... »
+« Être aussi rusé à son âge... S'il était quelqu'un sur le Continent Xian Gang, il serait certainement célèbre... »
 
 Wang Lin observa Fan Shanmeng un instant avant de détourner les yeux.
 

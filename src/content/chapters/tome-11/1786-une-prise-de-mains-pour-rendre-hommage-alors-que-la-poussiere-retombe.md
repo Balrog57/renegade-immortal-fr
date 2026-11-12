@@ -30,7 +30,7 @@ Alors que Wang Lin fixait la porte, ses yeux trahissaient plus de 2 000 ans de m
 
 La porte s'était enfin ouverte, elle était enfin apparue!
 
-Wang Lin avait attendu ce jour pendant une éternité. Depuis qu'il avait appris que ce monde n'était qu'une caverne, il imaginait le moment où il pourrait ouvrir la porte vers le monde réel. Vers le Continent Astral Immortel!
+Wang Lin avait attendu ce jour pendant une éternité. Depuis qu'il avait appris que ce monde n'était qu'une caverne, il imaginait le moment où il pourrait ouvrir la porte vers le monde réel. Vers le Continent Xian Gang!
 
 En contemplant cette porte dorée, il sembla entrer en transe. Plus de 2 000 ans de souvenirs défilèrent dans son esprit. Il était passé du statut d'enfant d'un village de montagne à celui qu'il était aujourd'hui, celui qui ouvrait la porte du monde caverne.
 
@@ -52,13 +52,13 @@ Il se souvenait encore de l'époque où Yun Yifeng n'était qu'un jeune homme de
 
 « Rentrons à la maison... » soupira le vieil homme nommé Ma.
 
-« Rentrer à la maison... » Yun Yifeng regarda la porte dorée. Lui aussi, d'ordinaire si calme, était ému et ressentait un mélange de sentiments complexes. Il était confus, ne sachant plus si le Continent Astral Immortel était son véritable foyer ou si la Planète des Cinq Éléments dans ce monde caverne l'était...
+« Rentrer à la maison... » Yun Yifeng regarda la porte dorée. Lui aussi, d'ordinaire si calme, était ému et ressentait un mélange de sentiments complexes. Il était confus, ne sachant plus si le Continent Xian Gang était son véritable foyer ou si la Planète des Cinq Éléments dans ce monde caverne l'était...
 
 Derrière le vieil homme nommé Ma se tenaient les deux hommes d'âge moyen de la Planète des Cinq Éléments. Ils fixaient la porte avec cette même perplexité qu'ils ne parvenaient pas à exprimer.
 
-Il y avait aussi la Tortue Noire et l'Oiseau Vermillon. En regardant la porte, une amertume leur serra le cœur. Ils se remémorèrent la Secte Qi Dao et le temps passé avec le Souverain Céleste aux Sept Couleurs.
+Il y avait aussi la Tortue Noire et Suzaku. En regardant la porte, une amertume leur serra le cœur. Ils se remémorèrent la Secte Qi Dao et le temps passé avec le Souverain Céleste aux Sept Couleurs.
 
-Désormais, ils allaient retourner sur le Continent Astral Immortel, mais la Secte Qi Dao avait probablement disparu depuis longtemps.
+Désormais, ils allaient retourner sur le Continent Xian Gang, mais la Secte Qi Dao avait probablement disparu depuis longtemps.
 
 Contrairement à ceux qui n'appartenaient pas au monde caverne, les yeux de Lanmeng Daozun étaient empreints d'une hésitation cachée. Bien qu'il sache déjà beaucoup de choses et comprenne que le monde n'est qu'une caverne, se retrouver face à la porte le laissait sans voix.
 
@@ -72,7 +72,7 @@ Le regard de Wang Lin se détacha enfin de la porte après un long moment. Il co
 
 Tout était revenu à l'état précédant son entrée dans le Bassin Dong Lin.
 
-Bien que Wang Lin sût que cela arriverait, il ressentit une légère fluctuation dans son cœur, qu'il réprima aussitôt. Il était désormais animé par l'attente de découvrir le véritable Bassin Dong Lin sur le Continent Astral Immortel.
+Bien que Wang Lin sût que cela arriverait, il ressentit une légère fluctuation dans son cœur, qu'il réprima aussitôt. Il était désormais animé par l'attente de découvrir le véritable Bassin Dong Lin sur le Continent Xian Gang.
 
 « Des différends peuvent exister entre nous, et peut-être devrions-nous nous battre à mort... Mais maintenant que la porte est ouverte, tous nos griefs s'effacent! »
 
@@ -84,7 +84,7 @@ Le souvenir des 2 000 dernières années jusqu'à cet instant où la porte s'ouv
 
 Et il n'était pas le seul. Lanmeng Daozun avait aidé par amour pour sa fille et en avait été blessé. Tuo Sen et Wang Lin étaient à la fois ennemis et alliés; il l'avait aidé lors d'un moment crucial et était lui aussi épuisé.
 
-Qu'il s'agisse de Tang Shan, de la Tortue Noire, de l'Oiseau Vermillon ou des cultivateurs de la Planète des Cinq Éléments, tous étaient las. L'intensité des combats menés au cœur du monde caverne avait été sans précédent!
+Qu'il s'agisse de Tang Shan, de la Tortue Noire, de Suzaku ou des cultivateurs de la Planète des Cinq Éléments, tous étaient las. L'intensité des combats menés au cœur du monde caverne avait été sans précédent!
 
 Le vieil homme nommé Ma, de la Planète des Cinq Éléments, fut le premier à s'avancer après avoir médité. Il regarda Wang Lin d'un air complexe et, après un long silence, prit la parole.
 
@@ -94,7 +94,7 @@ Wang Lin hocha la tête et répondit calmement: « Merci, Senior, pour votre aid
 
 Yun Yifeng, derrière le vieil homme nommé Ma, observa les environs avec nostalgie. Finalement, il se tourna vers Wang Lin et joignit les mains.
 
-« Frère Wang, prenez soin de vous. Notre combat n'est pas terminé. Nous déciderons du vainqueur sur le Continent Astral Immortel! »
+« Frère Wang, prenez soin de vous. Notre combat n'est pas terminé. Nous déciderons du vainqueur sur le Continent Xian Gang! »
 
 « Daoïste Yun, prenez soin de vous également. » Wang Lin regarda Yun Yifeng. Cet homme était très rusé, et Wang Lin avait commencé à percer son jeu dans ce monde caverneux. Le regard de Wang Lin se posa ensuite sur les deux autres cultivateurs d'âge moyen de la Planète des Cinq Éléments. Se souvenant de quelque chose, il agita la main au loin.
 
@@ -118,7 +118,7 @@ Le Général Tigre Blanc fut surpris, les yeux brillants de gratitude. Il s'incl
 
 « Merci. »
 
-Les trois se transformèrent en trois traînées de lumière et volèrent vers la porte dorée tandis que Wang Lin restait pensif. Ils disparurent dans l'ouverture pour retourner sur le Continent Astral Immortel.
+Les trois se transformèrent en trois traînées de lumière et volèrent vers la porte dorée tandis que Wang Lin restait pensif. Ils disparurent dans l'ouverture pour retourner sur le Continent Xian Gang.
 
 La troisième concubine, Tang Shan, mordit sa lèvre inférieure et s'avança vers la porte dorée. À plusieurs centaines de pieds de celle-ci, elle s'arrêta et regarda Wang Lin.
 

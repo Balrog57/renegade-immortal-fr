@@ -32,7 +32,7 @@ Une silhouette floue se tenait debout sur ce char de tonnerre. La figure portait
 
 Aussitôt, un gaz blanc s'éleva du ciel tandis qu'un gaz noir jaillissait de la terre. Ces deux émanations formèrent un vortex devant Wang Lin.
 
-Les auras de la vie et de la mort émanaient du tourbillon. Wang Lin avait déjà constaté que les essences éthérées n'étaient nullement affectées par le Continent Astral Immortel. Les auras de la mort et de la vie, deux forces qui ne devraient jamais coexister, fusionnaient en parfaite harmonie.
+Les auras de la vie et de la mort émanaient du tourbillon. Wang Lin avait déjà constaté que les essences éthérées n'étaient nullement affectées par le Continent Xian Gang. Les auras de la mort et de la vie, deux forces qui ne devraient jamais coexister, fusionnaient en parfaite harmonie.
 
 « Essence éthérée! Cet homme... cet homme est comme moi: deux essences corporelles et une éthérée! » L'expression de Du Qing devint livide. C'était déjà la limite de ce qu'il avait prévu; il pensait que Wang Lin ne possédait qu'une seule essence corporelle et une seule éthérée.
 
@@ -56,7 +56,7 @@ L'autre essence contenait le karma. Le Karma était un Grand Dao, d'une complexi
 
 Face à cette aura meurtrière, Du Qing recula encore de plusieurs pas. Il ne regardait plus Wang Lin avec simple crainte, mais avec une pure terreur!
 
-« Massacre... L'essence du massacre!! C'est l'essence du massacre!! Tu possèdes réellement l'essence du massacre!! » Du Qing manqua de hurler. Sur le Continent Astral Immortel, l'essence du massacre était encore plus rare que son essence du poids. Même avec une seule essence, celle du massacre suffisait pour s'ériger en souverain!
+« Massacre... L'essence du massacre!! C'est l'essence du massacre!! Tu possèdes réellement l'essence du massacre!! » Du Qing manqua de hurler. Sur le Continent Xian Gang, l'essence du massacre était encore plus rare que son essence du poids. Même avec une seule essence, celle du massacre suffisait pour s'ériger en souverain!
 
 La formation de l'essence du massacre signifiait que les mains de celui qui la possédait étaient trempées dans le sang. Il fallait avoir mis fin à d'innombrables vies pour qu'elle puisse émerger. Du moins, c'était ce que croyait Du Qing.
 
@@ -96,7 +96,7 @@ Elle était de nature à rendre fou quiconque la percevrait et la comprendrait!
 
 La puissance intrinsèque de ce trésor était secondaire; sa véritable fonction était d'intimider. Elle pouvait ébranler n'importe qui! Oubliez Du Qing, même la Secte Da Hun, la Secte Gui Yi et toutes les puissantes sectes du Continent Tian Niu trembleraient de peur en ressentant l'aura de cette empreinte dorée!
 
-Car à moins qu'un Grand Empyréen n'ait personnellement remis ce trésor à quelqu'un, celui-ci s'effondrerait instantanément entre les mains d'autrui. C'était une vérité universelle sur le Continent Astral Immortel!
+Car à moins qu'un Grand Empyréen n'ait personnellement remis ce trésor à quelqu'un, celui-ci s'effondrerait instantanément entre les mains d'autrui. C'était une vérité universelle sur le Continent Xian Gang!
 
 Ces trésors, qui n'auraient pas dû exister et ne se matérialisent qu'après avoir été façonnés par l'un des neuf Grands Empyréens des Neuf Soleils, étaient le plus souvent offerts par ceux-ci à leurs disciples les plus proches. C'était leur manière de signifier au monde que nul ne pouvait toucher à cette personne!
 

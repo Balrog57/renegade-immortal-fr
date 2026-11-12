@@ -42,7 +42,7 @@ Il s'agissait de la première et de la septième!
 
 « Dans la faille de la Mer Yun, cette femme qui a conclu un accord avec moi est très probablement aussi une concubine impériale céleste. Je ne sais juste pas si elle est la première ou la septième! » Une pensée traversa l'esprit de Wang Lin.
 
-« La cinquième sœur que tu as scellée possède une grande valeur pour moi. Remets-la-moi. » Le ton de Zi Xia était empreint d'une autorité indiscutable. Il était évident qu'elle avait toujours joui d'un statut élevé, même sur le Continent Astral Immortel, et elle s'exprimait ainsi par pur réflexe.
+« La cinquième sœur que tu as scellée possède une grande valeur pour moi. Remets-la-moi. » Le ton de Zi Xia était empreint d'une autorité indiscutable. Il était évident qu'elle avait toujours joui d'un statut élevé, même sur le Continent Xian Gang, et elle s'exprimait ainsi par pur réflexe.
 
 Wang Lin fronça les sourcils. Voyant qu'elle avait tant apporté au Royaume Intérieur, il pesa le pour et le contre, prêt à céder la cinquième concubine.
 
@@ -72,7 +72,7 @@ Cependant, le rire et le rejet de Wang Lin ramenèrent brusquement Zi Xia à la 
 
 « L'ancien Seigneur du Royaume Scellé ne t'a-t-il rien dit sur sa mission, ni sur ses origines? »
 
-« Le Continent Astral Immortel, la Secte Qi Dao. Bien sûr que je le sais! » Wang Lin fixa froidement Zi Xia. S'il n'avait pas tenu compte de l'aide qu'elle avait apportée au Royaume Intérieur, quels qu'aient été ses objectifs, il l'aurait déjà chassée sans même s'en soucier, cette femme égarée.
+« Le Continent Xian Gang, la Secte Qi Dao. Bien sûr que je le sais! » Wang Lin fixa froidement Zi Xia. S'il n'avait pas tenu compte de l'aide qu'elle avait apportée au Royaume Intérieur, quels qu'aient été ses objectifs, il l'aurait déjà chassée sans même s'en soucier, cette femme égarée.
 
 À ces mots, le visage de Zi Xia se décomposa. Elle recula instinctivement de plus de cent pieds, le visage marqué par la stupeur.
 
@@ -82,13 +82,13 @@ La femme pâlit mortellement et recula de plusieurs pas, son expression changean
 
 « Puisque tu sais tout cela, pourquoi ne pas t'allier à moi? Nous pourrions faire équipe pour éveiller le Souverain Céleste. Une fois qu'il sera réveillé, il nous accordera une fortune inestimable... »
 
-« Le Souverain Céleste aux Sept Couleurs est considéré comme puissant même sur le Continent Astral Immortel. Une fois éveillé, je pourrai lui demander de faire de toi son disciple. Tu pourras alors quitter cette grotte, rejoindre la Secte Qi Dao et obtenir l'identité d'un cultivateur du Continent Astral Immortel. Le Continent Astral Immortel est le véritable monde; il vaut bien plus de dix mille fois ce monde de caverne... »
+« Le Souverain Céleste aux Sept Couleurs est considéré comme puissant même sur le Continent Xian Gang. Une fois éveillé, je pourrai lui demander de faire de toi son disciple. Tu pourras alors quitter cette grotte, rejoindre la Secte Qi Dao et obtenir l'identité d'un cultivateur du Continent Xian Gang. Le Continent Xian Gang est le véritable monde; il vaut bien plus de dix mille fois ce monde de caverne... »
 
-« Nous en tirerons tout le mérite. Le Souverain Céleste t'accordera une culture puissante pour que tu puisses prendre ta place sur le Continent Astral Immortel. Tu y acquerras même une certaine renommée. Là-bas est le véritable Royaume Céleste. Même ton niveau de culture augmentera considérablement... »
+« Nous en tirerons tout le mérite. Le Souverain Céleste t'accordera une culture puissante pour que tu puisses prendre ta place sur le Continent Xian Gang. Tu y acquerras même une certaine renommée. Là-bas est le véritable Royaume Céleste. Même ton niveau de culture augmentera considérablement... »
 
 Wang Lin resta impassible, regardant la femme en violet avec une indifférence totale. Ses paroles n'avaient eu aucun effet sur lui.
 
-« Le Souverain Céleste aux Sept Couleurs et sa partenaire Dao peuvent-ils se comparer aux Neuf Soleils du Continent Astral Immortel? L'un des piliers de puissance du Continent Astral Immortel... Quelle plaisanterie! Il n'est qu'un suzerain de sa propre région. Même votre Secte Qi Dao n'est qu'une infime secte sur le Continent Astral Immortel. Je crains que vous n'ayez d'autres intentions en cherchant à l'éveiller. »
+« Le Souverain Céleste aux Sept Couleurs et sa partenaire Dao peuvent-ils se comparer aux Neuf Soleils du Continent Xian Gang? L'un des piliers de puissance du Continent Xian Gang... Quelle plaisanterie! Il n'est qu'un suzerain de sa propre région. Même votre Secte Qi Dao n'est qu'une infime secte sur le Continent Xian Gang. Je crains que vous n'ayez d'autres intentions en cherchant à l'éveiller. »
 
 « Tu... Tu connais donc les Neuf Soleils?! » L'expression de Zi Xia se mua en une incrédulité totale. Ses yeux se plissèrent soudainement lorsqu'elle repensa à la manière dont Wang Lin avait manié l'Arc de Li Guang et au rugissement du Souverain.
 
@@ -96,13 +96,13 @@ Wang Lin resta impassible, regardant la femme en violet avec une indifférence t
 
 Cette dernière, l'esprit ébranlé, fut saisie d'effroi et son visage se décomposa. Elle recula prestement et ne dit plus un mot, se transformant en un rayon de lumière violette qui s'évanouit rapidement.
 
-« Le Souverain Céleste aux Sept Couleurs... Je trouverai un moyen de le réveiller. Cependant, ce ne sera pas pour la fortune, mais pour... le tuer!! Le tuer, et cette grotte n'aura plus de maître. Alors, je m'emparerai du Dao Céleste et j'emmènerai les habitants de cette grotte vers le Continent Astral Immortel! »
+« Le Souverain Céleste aux Sept Couleurs... Je trouverai un moyen de le réveiller. Cependant, ce ne sera pas pour la fortune, mais pour... le tuer!! Le tuer, et cette grotte n'aura plus de maître. Alors, je m'emparerai du Dao Céleste et j'emmènerai les habitants de cette grotte vers le Continent Xian Gang! »
 
 « J'ai été un cultivateur défiant le ciel toute ma vie. Si je dois agir, ce sera selon mes propres termes. Comment pourrais-je me faire le chien de quelqu'un, supplier pour ma survie ou pour qu'on m'aide à sortir d'ici? »
 
 « Même si je ne pars pas et que je finis par mourir sous les coups du Souverain Céleste, je resterai un homme qui a marché contre les cieux! » Wang Lin sourit. Il ne prononça pas ces mots à voix haute, mais ils résonnaient dans son cœur.
 
-Son regard se porta sur la direction prise par la femme en violet, sans même poser de question concernant le Cercueil Évitant les Cieux. Il n'en avait pas besoin. S'il parvenait à quitter cet endroit pour rejoindre le Continent Astral Immortel, il saurait tout, y compris la méthode pour ressusciter Wan Er.
+Son regard se porta sur la direction prise par la femme en violet, sans même poser de question concernant le Cercueil Évitant les Cieux. Il n'en avait pas besoin. S'il parvenait à quitter cet endroit pour rejoindre le Continent Xian Gang, il saurait tout, y compris la méthode pour ressusciter Wan Er.
 
 Toutefois, en cas d'échec, poser la question serait inutile. Mourir aux côtés de Wan Er serait alors le dernier élan de courage d'un homme.
 

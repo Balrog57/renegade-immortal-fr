@@ -44,7 +44,7 @@ Quant à sa culture, il la déguisa délibérément en un stade intermédiaire d
 
 Au moment de sa disparition, trois silhouettes apparurent dans le ciel. Leurs visages étaient presque impossibles à distinguer; seule la couleur de leurs vêtements changeait: noir, blanc et rouge.
 
-L'homme vêtu de noir affichait une expression sérieuse alors qu'il scrutait la ville: « Ce compagnon de culture de l'Âme Naissante ne semble pas vouloir se montrer. Peu importe, tant qu'il ne cause pas d'ennuis, je n'ai aucune raison d'en chercher avec lui. »
+L'homme vêtu de noir affichait une expression sérieuse alors qu'il scrutait la ville: « Ce Daoïste de l'Âme Naissante ne semble pas vouloir se montrer. Peu importe, tant qu'il ne cause pas d'ennuis, je n'ai aucune raison d'en chercher avec lui. »
 
 Les deux autres échangèrent un regard et disparurent.
 

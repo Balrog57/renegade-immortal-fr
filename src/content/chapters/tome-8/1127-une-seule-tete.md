@@ -54,7 +54,7 @@ Le tonnerre incessant fut figé à l'intérieur, et même les flammes dévorante
 
 Si cela s'était arrêté là, cela n'aurait pas été assez impressionnant, mais cette énergie froide semblait capable de créer de la glace partout. Wang Lin sentit clairement le froid converger vers lui de toutes parts; il remarqua que de la glace commençait à apparaître tout autour de lui.
 
-Ayant combattu toute sa vie, Wang Lin était extrêmement expérimenté et ne paniqua nullement. Son corps s'illumina d'un éclat rouge et l'armure de l'Oiseau Vermillon apparut autour de lui. Une fois l'armure déployée, l'Oiseau Vermillon blanc l'entoura et poussa un cri, et des flammes blanches s'élevèrent de tout le corps de Wang Lin. Wang Lin chargea et percuta directement la glace qui se formait.
+Ayant combattu toute sa vie, Wang Lin était extrêmement expérimenté et ne paniqua nullement. Son corps s'illumina d'un éclat rouge et l'armure de Suzaku apparut autour de lui. Une fois l'armure déployée, Suzaku blanc l'entoura et poussa un cri, et des flammes blanches s'élevèrent de tout le corps de Wang Lin. Wang Lin chargea et percuta directement la glace qui se formait.
 
 Des sons de craquements retentirent dans le vide. Avant même que la glace ne puisse toucher Wang Lin, elle fondait déjà. Cela lui permit de traverser la couche de glace qui se refermait sur lui.
 

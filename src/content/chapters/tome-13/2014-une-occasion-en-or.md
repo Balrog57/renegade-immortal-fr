@@ -112,6 +112,6 @@ Au moment où son pied toucha le sol, les bruits de son corps luttant contre la 
 
 « Le pouvoir ancien existe grâce à ma lignée, et ma culture céleste grâce à mes essences, mais ils ne pouvaient jamais s'intégrer… Dans le monde des grottes, j'ai tenté de les fusionner, mais ils se rejetaient l'un l'autre… Finalement, je ne pouvais que les maintenir séparés.
 
-« Mais en ce moment, il n'y a pas de meilleur endroit que celui-ci pour m'aider à fusionner les pouvoirs célestes et anciens! Le Grand Empyréen Gu Dao est l'être le plus puissant du Continent Astral Immortel. Sa pression est l'aide ultime pour leur fusion! »
+« Mais en ce moment, il n'y a pas de meilleur endroit que celui-ci pour m'aider à fusionner les pouvoirs célestes et anciens! Le Grand Empyréen Gu Dao est l'être le plus puissant du Continent Xian Gang. Sa pression est l'aide ultime pour leur fusion! »
 
 Wang Lin était déterminé à poursuivre son ascension, car lors des 200 premières marches, il avait pressenti l'opportunité de fusionner sa culture ancienne et céleste. C'était pour lui une occasion en or!

@@ -22,7 +22,7 @@ Sur la planète des Cinq Éléments, le neuvième étage de la tour irradiait un
 
 D'importantes quantités de sang s'écoulaient de son bras droit pour perler sur le sol.
 
-« Un membre du Clan Ancien... la puissance de son corps appartient au Clan Dao Gu! Il ne semble pas être un descendant issu des 3 000 gouttes de sang de Ye Mo; un descendant de Ye Mo ne pourrait être aussi puissant que lui! Cette personne n'est probablement pas de cette grotte, elle provient du Continent Astral Immortel! Maudit soit, quelqu'un d'autre est ici en plus de ma Secte Gui Yi! » Les pupilles du vieil homme se rétractèrent et ses yeux se remplirent de douleur. Il regarda sa main droite avec horreur.
+« Un membre du Clan Ancien... la puissance de son corps appartient au Clan Dao Gu! Il ne semble pas être un descendant issu des 3 000 gouttes de sang de Ye Mo; un descendant de Ye Mo ne pourrait être aussi puissant que lui! Cette personne n'est probablement pas de cette grotte, elle provient du Continent Xian Gang! Maudit soit, quelqu'un d'autre est ici en plus de ma Secte Gui Yi! » Les pupilles du vieil homme se rétractèrent et ses yeux se remplirent de douleur. Il regarda sa main droite avec horreur.
 
 « Quel coup de pied vicieux... Si ce n'était pas pour l'armure, mon bras aurait été broyé et mon corps aurait même explosé... »
 
@@ -98,7 +98,7 @@ Le métal n'est pas comme le bois. Le bois peut être souple, c'est pourquoi Wan
 
 Des grondements tonitruants éclatèrent, et ces sons violents devinrent la seule réalité existante, persistant un long moment.
 
-Sur la planète des Cinq Éléments, au neuvième étage de la tour, après que Na Duo eut révélé tout ce qu'il savait sur Wang Lin, le vieil homme restait sombre. Il refusait toujours de croire que Wang Lin ne provenait pas du Continent Astral Immortel.
+Sur la planète des Cinq Éléments, au neuvième étage de la tour, après que Na Duo eut révélé tout ce qu'il savait sur Wang Lin, le vieil homme restait sombre. Il refusait toujours de croire que Wang Lin ne provenait pas du Continent Xian Gang.
 
 Alors qu'il s'apprêtait à parler, il tourna soudain le regard vers l'extérieur de la tour. Son expression se chargea d'une intention meurtrière.
 
@@ -106,7 +106,7 @@ Alors qu'il s'apprêtait à parler, il tourna soudain le regard vers l'extérieu
 
 Na Duo hésita et demanda: « Ancêtre, notre formation la plus puissante, la Roue du Cœur aux Neuf Cycles, pourra-t-elle arrêter cet homme? »
 
-« La Roue du Cœur aux Neuf Cycles... neuf respirations pour un cycle. Plus le cœur bat vite, plus elle tourne... Il est difficile de le dire. Cette formation peut être aussi complexe que simple. C'est l'une des formations de protection de la Secte Gui Yi sur le Continent Astral Immortel.
+« La Roue du Cœur aux Neuf Cycles... neuf respirations pour un cycle. Plus le cœur bat vite, plus elle tourne... Il est difficile de le dire. Cette formation peut être aussi complexe que simple. C'est l'une des formations de protection de la Secte Gui Yi sur le Continent Xian Gang.
 
 « Bien que cette formation n'ait que 40 % de la puissance de la grande formation de la Secte Gui Yi, tant qu'il ne parvient pas à percer son mystère dès le début et que la roue du cœur tourne ne serait-ce qu'un peu, il ne pourra pas briser cette formation!
 

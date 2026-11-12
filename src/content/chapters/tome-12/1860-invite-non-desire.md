@@ -20,7 +20,7 @@ Après un temps indéterminé, Wang Lin ouvrit lentement les yeux, et ceux-ci s'
 
 Wang Lin avait désormais une compréhension profonde du danger que représentait l'élimination d'un cultivateur de la Tribulation du Vide, tout comme il était difficile pour les autres de le tuer lui-même. Liu Zhiyuan possédait de nombreux sorts et trésors qu'il n'avait jamais eu l'occasion d'utiliser. Le timing de Wang Lin avait été d'une cruauté impitoyable; autrement, le résultat aurait pu être tout autre.
 
-« Dix de stade initial de la Tribulation du Vide, trois de stade intermédiaire de la Tribulation du Vide... La tâche que l'Ancêtre Taureau Vert m'a confiée est fort ardue... » songea silencieusement Wang Lin. En réalité, lorsqu'il avait accepté les trois conditions, il avait déjà mesuré l'ampleur du défi.
+« Dix de stade initial de la Tribulation du Vide, trois de stade intermédiaire de la Tribulation du Vide... La tâche que l'Ancêtre Qing Niu m'a confiée est fort ardue... » songea silencieusement Wang Lin. En réalité, lorsqu'il avait accepté les trois conditions, il avait déjà mesuré l'ampleur du défi.
 
 S'il avait accepté, c'était parce que Wang Lin refusait de lui rester redevable pour ces trois cadeaux! Le simple don de l'essence d'eau équivalait à lui offrir une essence entièrement nouvelle!
 
@@ -34,7 +34,7 @@ Ces trois cadeaux étaient précieux, et puisqu'il les avait acceptés, il devai
 
 « Il reste encore neuf cultivateurs de stade initial de la Tribulation du Vide à éliminer... Si j'ai pu en tuer un, je peux certainement en tuer neuf autres! Le plus crucial est d'abattre les trois de stade intermédiaire de la Tribulation du Vide. Même si j'explose les 30 millions d'âmes dao, cela ne pourra en tuer qu'un seul... Quant aux deux restants... » Wang Lin fronça les sourcils, mais il ne recula pas. Une lueur froide traversa son regard.
 
-« L'Ancêtre Taureau Vert m'a imposé ces trois conditions en pensant que je ne serais pas capable de les remplir rapidement. Il pense que cela prendra du temps... Cependant, je ne souhaite pas m'enliser dans le conflit entre le Continent Tian Niu et le Continent Lu Mo. Je dois remplir ces conditions au plus vite afin de rompre mes liens avec la Secte Da Hun, puis quitter cet endroit! » Wang Lin baissa les yeux vers le sol de la grotte, qui se fondait dans l'obscurité.
+« L'Ancêtre Qing Niu m'a imposé ces trois conditions en pensant que je ne serais pas capable de les remplir rapidement. Il pense que cela prendra du temps... Cependant, je ne souhaite pas m'enliser dans le conflit entre le Continent Tian Niu et le Continent Lu Mo. Je dois remplir ces conditions au plus vite afin de rompre mes liens avec la Secte Da Hun, puis quitter cet endroit! » Wang Lin baissa les yeux vers le sol de la grotte, qui se fondait dans l'obscurité.
 
 À cet instant précis, Wang Lin leva soudainement la tête et regarda hors de la grotte. Son regard semblait transpercer la roche pour scruter l'extérieur. À ce moment-là, les palais souterrains étaient silencieux; seuls quelques bruits de respiration se faisaient entendre. Une faible lueur émanait des pierres lunaires disposées ici.
 

@@ -1,6 +1,6 @@
 ---
 n: 1707
-title: "Les attentes du Continent Astral Immortel"
+title: "Les attentes du Continent Xian Gang"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1707 - Expectations from the Immortal Astral Contient
@@ -50,13 +50,13 @@ Il avait reçu de Wang Lin les souvenirs de Tu Si. Après des années de fusion,
 
 Mais à cet instant, il ouvrit brusquement les yeux et ses pupilles se rétractèrent.
 
-Sur le Continent Astral Immortel, l'est et le sud appartenaient aux êtres célestes, tandis que l'ouest et le nord appartenaient aux Anciens. Le continent étant si vaste, de nombreux cultivateurs ou membres de la Race Ancienne n'avaient jamais quitté leur propre pays.
+Sur le Continent Xian Gang, l'est et le sud appartenaient aux êtres célestes, tandis que l'ouest et le nord appartenaient aux Anciens. Le continent étant si vaste, de nombreux cultivateurs ou membres de la Race Ancienne n'avaient jamais quitté leur propre pays.
 
-Dans la partie nord du Continent Astral Immortel se trouvait une cité flottante gigantesque. Sa seule envergure égalait celle du Monde des Grottes; il était impossible d'en percevoir les limites!
+Dans la partie nord du Continent Xian Gang se trouvait une cité flottante gigantesque. Sa seule envergure égalait celle du Monde des Grottes; il était impossible d'en percevoir les limites!
 
 L'espace sous la cité était plongé dans une obscurité totale, un lieu privé de toute lumière solaire: c'était la prison du pays ancien pour les captifs célestes. Grâce à cette cité agissant comme un outil de suppression, de nombreux cultivateurs de lignée céleste y étaient emprisonnés.
 
-Au centre de cette cité antique trônait une statue immense. Elle était si colossale qu'elle semblait soutenir la voûte céleste du Continent Astral Immortel. Même à une distance considérable, on pouvait l'apercevoir.
+Au centre de cette cité antique trônait une statue immense. Elle était si colossale qu'elle semblait soutenir la voûte céleste du Continent Xian Gang. Même à une distance considérable, on pouvait l'apercevoir.
 
 La statue représentait un homme d'âge moyen dont l'expression majestueuse surplombait la terre. Son regard dégageait une telle supériorité qu'il semblait mépriser toute chose. À ses yeux, que valaient le ciel, la terre ou les êtres célestes?
 
@@ -104,7 +104,7 @@ Le jeune homme réfléchit longuement avant de répondre: « L'héritier de Ye M
 
 C'était l'héritier de Ye Mo!
 
-S'il réussit, et s'il parvient à rejoindre le Continent Astral Immortel, j'envisagerai de le prendre pour mon unique disciple! Atteindre un tel stade dans le Monde des Grottes pour ensuite en sortir signifie qu'il deviendra un être d'une puissance immense! Un pilier pour notre clan Dao! Après ma réincarnation, il pourra aider à protéger le clan Dao! J'espère qu'il réussira! » dit lentement Xuan Luo en fixant la statue.
+S'il réussit, et s'il parvient à rejoindre le Continent Xian Gang, j'envisagerai de le prendre pour mon unique disciple! Atteindre un tel stade dans le Monde des Grottes pour ensuite en sortir signifie qu'il deviendra un être d'une puissance immense! Un pilier pour notre clan Dao! Après ma réincarnation, il pourra aider à protéger le clan Dao! J'espère qu'il réussira! » dit lentement Xuan Luo en fixant la statue.
 
 Le temps s'étira. Huit jours, neuf jours... jusqu'à ce que treize jours s'écoulent!
 

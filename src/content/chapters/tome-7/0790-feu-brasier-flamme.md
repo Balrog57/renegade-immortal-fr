@@ -70,7 +70,7 @@ Cependant, lorsqu'il vit les flammes, il eut le souffle coupé. Le choc qui l'ha
 
 Tang Yanfeng murmura pour lui-même: « Lui... Qui diable est-il?! »
 
-Shengong Hu ricana en regardant Tang Yanfeng et dit calmement: « Cher compagnon de culture Tang, vous souvenez-vous encore de la façon dont vous m'avez raillé devant la porte céleste? Vous voyez, l'homme qui se tient devant vous est la raison pour laquelle j'ai accepté d'être blâmé par ma famille et isolé par les membres du Temple Céleste du Tonnerre! »
+Shengong Hu ricana en regardant Tang Yanfeng et dit calmement: « Cher Daoïste Tang, vous souvenez-vous encore de la façon dont vous m'avez raillé devant la porte céleste? Vous voyez, l'homme qui se tient devant vous est la raison pour laquelle j'ai accepté d'être blâmé par ma famille et isolé par les membres du Temple Céleste du Tonnerre! »
 
 Tang Yanfeng resta stupéfait, les yeux rivés sur la silhouette au sein des flammes, incapable de prononcer un mot pendant un long moment.
 

@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1826 - Terrifying Avatar!"
 slug: avatar-terrifiant
 ---
-« Dao des Huit Extrêmes, Dao du Feu Extrême! » C'était le sort puissant que l'Ancêtre Céleste avait utilisé pour sceller le Taureau Céleste. La partie du Sens Divin de Wang Lin restée dans son véritable corps d'essence venait tout juste de quitter l'illusion, mais il était encore en état de transe. Même une fois fusionné avec son corps originel, il restait sous l'emprise de cette torpeur, et la seule chose qui occupait son esprit était le sort du Dao du Feu Extrême utilisé par l'Ancêtre Céleste!
+« Dao des Huit Extrêmes, Dao du Feu Extrême! » C'était le sort puissant que l'Ancêtre Céleste avait utilisé pour sceller le Tian Niu. La partie du Sens Divin de Wang Lin restée dans son véritable corps d'essence venait tout juste de quitter l'illusion, mais il était encore en état de transe. Même une fois fusionné avec son corps originel, il restait sous l'emprise de cette torpeur, et la seule chose qui occupait son esprit était le sort du Dao du Feu Extrême utilisé par l'Ancêtre Céleste!
 
 Lorsque Wang Lin parla, l'ombre de son véritable corps d'essence apparut. De loin, on aurait dit que deux Wang Lin se tenaient là, l'un derrière l'autre. C'était une vision très étrange.
 
@@ -24,9 +24,9 @@ Elle sentit distinctement les lignées de sang dans son corps trembler. Ce chang
 
 Les pupilles de la jeune femme se rétractèrent et ses mains formèrent un sceau sans l'ombre d'une hésitation. Les 36 000 pores de son corps libérèrent un gaz noir qui l'enveloppa, avant de se transformer en une armée de 36 000 visages fantomatiques. Cette légion de spectres se précipita vers Wang Lin pour tenter d'intercepter ce sort qui la terrifiait.
 
-Presque au moment où le gaz vert apparut sur le doigt droit de Wang Lin, dans le vide séparant le Continent Astral Immortel du monde des grottes, l'avatar de Wang Lin logé dans la coquille de pierre ouvrit les yeux. Il leva également sa main droite, une lueur de déduction dans le regard, et un gaz vert apparut autour de son doigt. Ce gaz fit soudainement un tour complet autour de son doigt!
+Presque au moment où le gaz vert apparut sur le doigt droit de Wang Lin, dans le vide séparant le Continent Xian Gang du monde des grottes, l'avatar de Wang Lin logé dans la coquille de pierre ouvrit les yeux. Il leva également sa main droite, une lueur de déduction dans le regard, et un gaz vert apparut autour de son doigt. Ce gaz fit soudainement un tour complet autour de son doigt!
 
-Simultanément, au plus profond de la veine de feu terrestre, le gaz vert sur les doigts de Wang Lin et de son véritable corps d'essence sembla percevoir une force issue des lois omniprésentes du Continent Astral Immortel et se condensa aussitôt. Alors que l'armée des 36 000 visages fantomatiques convergeait, le gaz vert fit un tour complet autour du doigt!
+Simultanément, au plus profond de la veine de feu terrestre, le gaz vert sur les doigts de Wang Lin et de son véritable corps d'essence sembla percevoir une force issue des lois omniprésentes du Continent Xian Gang et se condensa aussitôt. Alors que l'armée des 36 000 visages fantomatiques convergeait, le gaz vert fit un tour complet autour du doigt!
 
 À cet instant, un anneau de fumée verte jaillit du doigt de Wang Lin. Il s'étendit et fonça vers l'armée spectrale. Un anneau de fumée ardente apparut également au bout du doigt de son véritable corps d'essence et s'élança en avant.
 
@@ -78,9 +78,9 @@ C'était son plus grand atout!
 
 Le Dao des Huit Extrêmes de l'Ancêtre Céleste n'était pas une technique que Wang Lin pouvait maîtriser d'un simple regard à son niveau actuel. Seul un Grand Empyréen pourrait sans doute accomplir une telle prouesse.
 
-S'il pouvait l'utiliser, c'était grâce à son avatar. C'était lui qui avait compris le sort après que le corps original de Wang Lin l'ait observé, et cette compréhension avait été transmise au corps originel. Cela permettait à Wang Lin d'utiliser ce sort ultime qui avait jadis scellé le Taureau Céleste!
+S'il pouvait l'utiliser, c'était grâce à son avatar. C'était lui qui avait compris le sort après que le corps original de Wang Lin l'ait observé, et cette compréhension avait été transmise au corps originel. Cela permettait à Wang Lin d'utiliser ce sort ultime qui avait jadis scellé le Tian Niu!
 
-Avec neuf anneaux, ce sort pourrait sceller le Taureau Céleste; il pourrait même sceller un Grand Empyréen!!
+Avec neuf anneaux, ce sort pourrait sceller le Tian Niu; il pourrait même sceller un Grand Empyréen!!
 
 Toutefois, son avatar actuel était encore loin d'atteindre une telle maîtrise.
 

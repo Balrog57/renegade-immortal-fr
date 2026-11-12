@@ -30,7 +30,7 @@ Bien que Wang Lin eût pu choisir de ne pas partir, rester caché n'était pas d
 
 Avec un ricanement, il fixa les près de cent points verts sur sa boussole, une lueur d'intention meurtrière brillant dans ses yeux.
 
-Ces gens venaient pour le tuer, mais ils ignoraient que la raison pour laquelle Wang Lin était sorti était de remplir rapidement les trois missions confiées par l'Ancêtre Taureau Vert.
+Ces gens venaient pour le tuer, mais ils ignoraient que la raison pour laquelle Wang Lin était sorti était de remplir rapidement les trois missions confiées par l'Ancêtre Qing Niu.
 
 « Deux des quatre directions sont occupées par des cultivateurs au stade intermédiaire de la Tribulation du Vide... Les deux autres ont des cultivateurs au stade initial de la Tribulation du Vide... Puisque Liu Zhiyuan est mort, il ne reste que six cultivateurs de la Tribulation du Vide sur le Continent Lu Mo. S'ils en envoient cinq maintenant, c'est qu'ils savent que j'ai la boussole et qu'ils ont deviné que j'ai tué Liu Zhiyuan! » Wang Lin fit un pas vers la droite et, dans un écho de rides spatiales, il disparut.
 

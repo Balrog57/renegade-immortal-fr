@@ -112,6 +112,6 @@ Un Oiseau Vermillon colossal, dont les ailes s'étendaient sur plusieurs centain
 
 Cet Oiseau Vermillon était composé de feu pur, et sa chaleur prodigieuse pouvait être ressentie de très loin. Cette chaleur allait bouleverser tous les cultivateurs.
 
-Partout où l'Oiseau Vermillon passait, les pupilles des cultivateurs alentour se rétractèrent et ils s'empressèrent de fuir pour l'éviter. Ils n'osaient absolument pas s'en approcher. Tout cultivateur puissant doté d'une certaine connaissance du monde sentit soudainement un nom ancien exploser dans son esprit en apercevant l'oiseau!
+Partout où Suzaku passait, les pupilles des cultivateurs alentour se rétractèrent et ils s'empressèrent de fuir pour l'éviter. Ils n'osaient absolument pas s'en approcher. Tout cultivateur puissant doté d'une certaine connaissance du monde sentit soudainement un nom ancien exploser dans son esprit en apercevant l'oiseau!
 
-« La Secte Divine de l'Oiseau Vermillon!! »
+« La Secte Divine de Suzaku!! »

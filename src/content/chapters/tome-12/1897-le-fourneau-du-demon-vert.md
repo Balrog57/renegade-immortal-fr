@@ -100,6 +100,6 @@ Durant cette décennie, l'homme aux vêtements verts ne quitta pas le bord du fo
 
 Même si trois rayons de lumière traversaient ce brouillard que nul n'avait foulé depuis un siècle, l'homme ne s'en souciait plus.
 
-Ces trois rayons progressaient avec une prudence extrême. Wang Lin les reconnut: c'étaient les trois autres détenteurs de l'armure d'âme du Taureau Céleste!
+Ces trois rayons progressaient avec une prudence extrême. Wang Lin les reconnut: c'étaient les trois autres détenteurs de l'armure d'âme du Tian Niu!
 
 Le plan du Maître de la Secte Gui Yi, retardé de plus de cent ans pour une raison inconnue, venait de reprendre son cours!

@@ -20,7 +20,7 @@ Wang Lin prit une gorgée de vin de fruits et se replongea dans sa sculpture. À
 
 Il réfléchit longuement, puis poussa un soupir. Le couteau disparut de sa main. De sa main gauche, il jeta nonchalamment l'œuvre inachevée dans une grande caisse qui contenait déjà plus d'une dizaine de sculptures incomplètes.
 
-Si l'on regardait attentivement ces pièces, on y reconnaîtrait diverses personnes et bêtes spirituelles: le Bossu Meng, l'Empereur Ancien, le Seigneur Démon des Six Désirs, des bêtes spirituelles de haut rang, et même des bêtes désolées...
+Si l'on regardait attentivement ces pièces, on y reconnaîtrait diverses personnes et bêtes spirituelles: Meng Tuozi, l'Empereur Ancien, le Seigneur Démon des Six Désirs, des bêtes spirituelles de haut rang, et même des bêtes désolées...
 
 Bien que ces sculptures représentaient des sujets variés, elles avaient un point commun: toutes mettaient en scène des êtres ou des créatures dépassant le niveau de Formation de l'Âme.
 

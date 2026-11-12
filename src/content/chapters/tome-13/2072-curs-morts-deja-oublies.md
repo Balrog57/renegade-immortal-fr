@@ -84,7 +84,7 @@ Les paroles de cette figure retentirent une fois de plus à ses oreilles:
 
 « Ciel et terre!! Quel est l'intérêt d'être au sommet des cieux et de la terre?! Quel intérêt y a-t-il à être adoré par tous?! Quel sens donner à la récitation infinie des écritures?! Si le monde est ainsi, pourquoi ne pas le détruire?! Si toute vie est ainsi, pourquoi ne pas disparaître?! Si les écritures sont ainsi, pourquoi ne pas y mettre fin?! Puisqu'il en est ainsi, j'utiliserai ma propre méthode pour forcer le ciel à fermer les yeux, pour plonger la terre dans le sommeil, pour inverser le cours de la rivière des enfers, pour arrêter la réincarnation et faire que la voûte céleste... soit à jamais sans pensée!!! »
 
-Wang Lin marmonna ces paroles tandis qu'elles tourbillonnaient dans son esprit. Cette voix devint de plus en plus assourdissante, jusqu'à ce que le ciel se déchire, que la terre tremble et qu'une tempête s'abatte sur le Continent Astral Immortel.
+Wang Lin marmonna ces paroles tandis qu'elles tourbillonnaient dans son esprit. Cette voix devint de plus en plus assourdissante, jusqu'à ce que le ciel se déchire, que la terre tremble et qu'une tempête s'abatte sur le Continent Xian Gang.
 
 Sur le Continent de l'Est du clan céleste, dans la partie sud-ouest du continent Lin Hua, se trouvait une cité immense. Elle ressemblait à une bête géante assoupie, dégageant une aura majestueuse.
 

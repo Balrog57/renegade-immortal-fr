@@ -56,9 +56,9 @@ Il se trouvait dans un système stellaire!
 
 Ce système était lumineux et parsemé de nébuleuses, mais il régnait un silence absolu, sans aucune trace de vie. Le sens divin de Wang Lin se propagea graduellement à travers le système. Sa taille était comparable à celle du Kun Xu, et les planètes étaient peu nombreuses. Il y avait au total neuf planètes, mais aucune force vitale n'en émanait. Elles étaient désertes!
 
-Grâce aux souvenirs de la troisième âme, Wang Lin savait que les 300 mondes détruits se divisaient grossièrement en trois types. Le premier était celui où le Souverain Céleste aux Sept Couleurs stockait les bêtes célestes qu'il avait rapportées du Continent Astral Immortel. Au fil des éons, celles-ci étaient soit mortes, soit avaient muté pour devenir extrêmement puissantes.
+Grâce aux souvenirs de la troisième âme, Wang Lin savait que les 300 mondes détruits se divisaient grossièrement en trois types. Le premier était celui où le Souverain Céleste aux Sept Couleurs stockait les bêtes célestes qu'il avait rapportées du Continent Xian Gang. Au fil des éons, celles-ci étaient soit mortes, soit avaient muté pour devenir extrêmement puissantes.
 
-Le deuxième type contenait des groupes de mortels capturés sur le Continent Astral Immortel. Il les avait laissés se reproduire ici afin de les observer sur le long terme, tentant ainsi d'utiliser cette méthode pour percer le secret du Dao Céleste.
+Le deuxième type contenait des groupes de mortels capturés sur le Continent Xian Gang. Il les avait laissés se reproduire ici afin de les observer sur le long terme, tentant ainsi d'utiliser cette méthode pour percer le secret du Dao Céleste.
 
 Quant au troisième type, ces mondes étaient dépourvus d'habitants, de bêtes et de toute forme de vie. Même les lois de ces mondes n'étaient pas fixées. Une fois qu'un ennemi s'y introduisait, le Souverain Céleste aux Sept Couleurs pouvait établir des lois sur mesure pour l'affronter.
 

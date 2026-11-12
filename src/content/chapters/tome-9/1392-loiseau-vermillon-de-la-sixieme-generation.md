@@ -68,9 +68,9 @@ Xu Liguo était totalement stupéfait. Il ne pouvait dire s'il s'agissait du mê
 
 « Ceci... Vous... » À peine Xu Liguo eut-il ouvert la bouche que Liu Jinbiao lui lança un regard glacial. Ce simple coup d'œil fit frissonner le cuir chevelu de Xu Liguo, qui recula inconsciemment de quelques pas.
 
-« Ce vieil homme est l'Oiseau Vermillon de la sixième génération de la Secte Divine de l'Oiseau Vermillon! Je suis venu dans le Système Stellaire Antique à la recherche de l'Oiseau Vermillon de la quatrième génération. J'ai été blessé par une formation et je ne suis toujours pas remis de mes graves blessures! » déclara Liu Jinbiao, dégageant une majesté suprême. Une telle aura ne pouvait appartenir qu'à quelqu'un ayant occupé une position de pouvoir dominant la vie et la mort de dizaines de milliers d'êtres pendant des éons.
+« Ce vieil homme est Suzaku de la sixième génération de la Secte Divine de Suzaku! Je suis venu dans le Système Stellaire Antique à la recherche de Suzaku de la quatrième génération. J'ai été blessé par une formation et je ne suis toujours pas remis de mes graves blessures! » déclara Liu Jinbiao, dégageant une majesté suprême. Une telle aura ne pouvait appartenir qu'à quelqu'un ayant occupé une position de pouvoir dominant la vie et la mort de dizaines de milliers d'êtres pendant des éons.
 
-À cet instant, il avait depuis longtemps oublié qu'il n'était qu'un escroc. Sa mémoire avait changé et il croyait fermement être le maître de la Secte Divine de l'Oiseau Vermillon, l'Oiseau Vermillon de la sixième génération!
+À cet instant, il avait depuis longtemps oublié qu'il n'était qu'un escroc. Sa mémoire avait changé et il croyait fermement être le maître de la Secte Divine de Suzaku, Suzaku de la sixième génération!
 
 Même si un puissant cultivateur pratiquait une recherche d'âme sur lui, il ne trouverait aucune faille; tous les souvenirs obtenus seraient réels!
 
@@ -78,7 +78,7 @@ Liu Jinbiao s'avança froidement.
 
 À ce moment, la voix de Wang Lin retentit depuis la boule de feu bleue dans la grotte.
 
-« Xu Liguo, sers l'Oiseau Vermillon de la sixième génération et obéis à tous ses ordres. Si tu lui désobéis, j'effacerai ton existence! »
+« Xu Liguo, sers Suzaku de la sixième génération et obéis à tous ses ordres. Si tu lui désobéis, j'effacerai ton existence! »
 
 Le corps de Xu Liguo trembla et il hocha précipitamment la tête avant de suivre Liu Jinbiao. Les restrictions de la grotte s'ouvrirent automatiquement, permettant aux deux de sortir.
 

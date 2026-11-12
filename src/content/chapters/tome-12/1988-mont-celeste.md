@@ -82,15 +82,15 @@ Il mordit une nouvelle fois sa langue et, dans un rugissement, son corps commen�
 
 Le corps de l'Enseignant Impérial tremblait et sa respiration devint rauque. Son visage était extrêmement pâle, enveloppé par l'ombre de la mort.
 
-Voyant l'état de l'Enseignant Impérial, Wang Lin serra les dents et poussa la puissance de l'armure d'âme du Taureau Céleste à son paroxysme. Ses cheveux s'agitèrent sans vent alors que son Dao antique et sa culture céleste fusionnaient; il lança alors un coup de poing vers Ming Dao!
+Voyant l'état de l'Enseignant Impérial, Wang Lin serra les dents et poussa la puissance de l'armure d'âme du Tian Niu à son paroxysme. Ses cheveux s'agitèrent sans vent alors que son Dao antique et sa culture céleste fusionnaient; il lança alors un coup de poing vers Ming Dao!
 
-Ce coup représentait le summum de la puissance de Wang Lin. En frappant, quatre-vingt-dix-neuf images rémanentes se condensèrent pour former le corps véritable d'un Taureau Céleste, qui s'abattit sur Ming Dao.
+Ce coup représentait le summum de la puissance de Wang Lin. En frappant, quatre-vingt-dix-neuf images rémanentes se condensèrent pour former le corps véritable d'un Tian Niu, qui s'abattit sur Ming Dao.
 
 Le corps de Ming Dao frémit; il n'était plus qu'un squelette. Le peu de chair et de sang qui lui restait explosa une fois de plus. Désormais, le corps de Ming Dao n'était plus que d'ossements!
 
 Ses os étaient totalement noirs, mais au centre de son corps palpitait une sphère de lumière dorée de la taille d'un poing, émettant un éclat infini. C'était là son héritage de l'Ancêtre Céleste!
 
-L'explosion de la chair et du sang ne put stopper ni l'homme de sang formé par l'essence vitale de l'Enseignant Impérial, ni le sort issu de l'armure du Taureau Céleste de Wang Lin. Des grondements tonitruants secouèrent l'espace, et Ming Dao sembla sur le point de rompre.
+L'explosion de la chair et du sang ne put stopper ni l'homme de sang formé par l'essence vitale de l'Enseignant Impérial, ni le sort issu de l'armure du Tian Niu de Wang Lin. Des grondements tonitruants secouèrent l'espace, et Ming Dao sembla sur le point de rompre.
 
 Cependant, à cet instant précis, un rugissement émanant de l'âme résonna à travers le monde depuis le squelette de Ming Dao:
 

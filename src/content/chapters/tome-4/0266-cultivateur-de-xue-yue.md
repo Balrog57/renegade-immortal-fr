@@ -8,7 +8,7 @@ slug: cultivateur-de-xue-yue
 ---
 Wang Lin agita la main et la porte s'ouvrit silencieusement. Une haute silhouette enveloppée d'une cape de pluie entra. L'homme était recouvert d'une épaisse couche de neige. Il ne prononça pas un mot en pénétrant dans la pièce.
 
-Wang Lin jeta un regard à l'inconnu et dit: « Nous ne nous sommes pas vus depuis plus de dix ans. Cher compagnon cultivateur, je suis ravi de te voir en bonne santé. »
+Wang Lin jeta un regard à l'inconnu et dit: « Nous ne nous sommes pas vus depuis plus de dix ans. Cher Daoïste, je suis ravi de te voir en bonne santé. »
 
 L'homme laissa échapper un rire. Il retira sa cape, révélant un visage empreint de dignité. Ses oreilles étaient son trait le plus remarquable. C'était le cultivateur aux grandes oreilles, Zhou Wutai.
 

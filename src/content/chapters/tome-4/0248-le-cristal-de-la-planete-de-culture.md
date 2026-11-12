@@ -6,21 +6,21 @@ bookTitle: Clean Sweep
 en: Chapter 248 - The Cultivation Planet Crystal
 slug: le-cristal-de-la-planete-de-culture
 ---
-Le jeune homme au regard maléfique fixa Wang Lin et dit lentement: « La rétribution divine... Je ne peux pas croire qu'une planète aussi insignifiante puisse posséder un trésor aussi prodigieux. »
+Le jeune homme au regard maléfique fixa Wang Lin et dit lentement: « La Tribulation Céleste... Je ne peux pas croire qu'une planète aussi insignifiante puisse posséder un trésor aussi prodigieux. »
 
-Wang Lin le dévisagea. Ce n'est que lorsque l'inconnu tourna son regard vers la rétribution divine et laissa paraître une expression de peur qu'il se détendit légèrement.
+Wang Lin le dévisagea. Ce n'est que lorsque l'inconnu tourna son regard vers la Tribulation Céleste et laissa paraître une expression de peur qu'il se détendit légèrement.
 
-Si le jeune homme s'était montré indifférent face à la rétribution divine, cela signifiait que Wang Lin ne pourrait que se cacher dans l'espace de la perle défiant les cieux, ce qui n'était guère une option souhaitable.
+Si le jeune homme s'était montré indifférent face à la Tribulation Céleste, cela signifiait que Wang Lin ne pourrait que se cacher dans l'espace de la perle défiant les cieux, ce qui n'était guère une option souhaitable.
 
-Le jeune homme au regard maléfique ressentait également une grande frustration. Il n'aurait jamais imaginé rencontrer la puissance d'une rétribution divine ici. S'il avait été à pleine puissance, cela n'aurait pas été un problème majeur; il aurait eu l'assurance de pouvoir détruire cette parcelle de rétribution divine.
+Le jeune homme au regard maléfique ressentait également une grande frustration. Il n'aurait jamais imaginé rencontrer la puissance d'une Tribulation Céleste ici. S'il avait été à pleine puissance, cela n'aurait pas été un problème majeur; il aurait eu l'assurance de pouvoir détruire cette parcelle de Tribulation Céleste.
 
-Mais pour l'instant, il n'avait récupéré que 30 % de sa force. Il n'était qu'un cultivateur au début du stade de la Transformation de l'Âme. Par conséquent, bien qu'il puisse se défendre contre la rétribution divine, il en sortirait certainement blessé. Si sa culture chutait en dessous du stade de la Transformation de l'Âme, il ne pourrait plus partir et devrait trouver un autre endroit pour entamer une nouvelle convalescence.
+Mais pour l'instant, il n'avait récupéré que 30 % de sa force. Il n'était qu'un cultivateur au début du stade de la Transformation de l'Âme. Par conséquent, bien qu'il puisse se défendre contre la Tribulation Céleste, il en sortirait certainement blessé. Si sa culture chutait en dessous du stade de la Transformation de l'Âme, il ne pourrait plus partir et devrait trouver un autre endroit pour entamer une nouvelle convalescence.
 
 Toutes ces inquiétudes provenaient du fait que le niveau de culture minimum requis pour utiliser le Disque des Étoiles était celui de la Transformation de l'Âme.
 
 Cependant, ce n'était pas la raison principale. La véritable cause était qu'à l'intérieur de la matrice de transfert, il avait ressenti une puissance qui l'avait profondément ébranlé. C'était une force qui lui était très familière.
 
-Le jeune homme au regard maléfique laissa échapper un grognement. Il détourna les yeux de la rétribution divine pour fixer Wang Lin: « Cadet, remets-moi le sac de rangement et je laisserai tomber cette affaire », dit-il.
+Le jeune homme au regard maléfique laissa échapper un grognement. Il détourna les yeux de la Tribulation Céleste pour fixer Wang Lin: « Cadet, remets-moi le sac de rangement et je laisserai tomber cette affaire », dit-il.
 
 « Est-ce là ce que l'Aîné désire? » Le regard de Wang Lin était grave alors qu'il fixait l'homme et sortit un sac de rangement.
 
@@ -32,7 +32,7 @@ Après avoir mûrement réfléchi, Wang Lin lança résolument le sac de rangeme
 
 Le jeune homme maléfique attrapa le sac. Après l'avoir scanné avec son Sens Divin, son expression s'adoucit. Il regarda Wang Lin, le visage impassible, ne montrant ni colère ni joie.
 
-Wang Lin fixa le jeune homme. Il plaça la foudre de la rétribution divine devant lui et déclara: « Aîné, le cadet a déjà rendu le sac de rangement, je vais donc prendre congé. » Sur ces mots, il recula prudemment.
+Wang Lin fixa le jeune homme. Il plaça la foudre de la Tribulation Céleste devant lui et déclara: « Aîné, le cadet a déjà rendu le sac de rangement, je vais donc prendre congé. » Sur ces mots, il recula prudemment.
 
 Le jeune homme au regard maléfique observa Wang Lin. Soudain, ses yeux se mirent à briller. Deux faisceaux de lumière colorée jaillirent de son regard vers Wang Lin à une vitesse inimaginable.
 
@@ -42,13 +42,13 @@ Tout en reculant, Wang Lin sortit l'étendard de restriction. La dernière restr
 
 L'expression du jeune homme maléfique changea radicalement et il cria: « Arrête! Jeune ami, ne sois pas téméraire! » Sur ces mots, il recula et fixa l'étendard de restriction avec effroi.
 
-Il eut un sourire amer. Une simple parcelle de rétribution divine ne ferait que diminuer son niveau de culture, sans le tuer. Au pire, elle le contraindrait à une culture en vase clos pendant un millier d'années.
+Il eut un sourire amer. Une simple parcelle de Tribulation Céleste ne ferait que diminuer son niveau de culture, sans le tuer. Au pire, elle le contraindrait à une culture en vase clos pendant un millier d'années.
 
-Mais en voyant l'étendard de restriction, il comprit pourquoi ce cadet possédait une parcelle de rétribution divine. Bien qu'il ignorât la nature exacte de cet étendard, il devina immédiatement qu'il s'agissait d'un trésor magique capable de convoquer la rétribution divine.
+Mais en voyant l'étendard de restriction, il comprit pourquoi ce cadet possédait une parcelle de Tribulation Céleste. Bien qu'il ignorât la nature exacte de cet étendard, il devina immédiatement qu'il s'agissait d'un trésor magique capable de convoquer la Tribulation Céleste.
 
 Il possédait lui-même quelques armes de ce type et connaissait leur puissance. S'il laissait ce gamin continuer, il n'en sortirait pas avec une simple blessure nécessitant du repos; il pourrait perdre à jamais la chance de recouvrer sa culture.
 
-Wang Lin avait encore un peu de sang au coin de la bouche lorsqu'il fixa le jeune homme maléfique. À cet instant précis, d'une simple pensée, la dernière restriction se poserait sur l'étendard. S'il abandonnait l'étendard et utilisait la parcelle de rétribution divine comme guide, il était certain de pouvoir diriger une partie de sa puissance vers le jeune homme maléfique.
+Wang Lin avait encore un peu de sang au coin de la bouche lorsqu'il fixa le jeune homme maléfique. À cet instant précis, d'une simple pensée, la dernière restriction se poserait sur l'étendard. S'il abandonnait l'étendard et utilisait la parcelle de Tribulation Céleste comme guide, il était certain de pouvoir diriger une partie de sa puissance vers le jeune homme maléfique.
 
 Wang Lin fixa l'inconnu et dit: « J'ai déjà rendu le sac de rangement sans même y toucher. Pourquoi l'Aîné revient-il sur sa parole? »
 
@@ -58,7 +58,7 @@ L'expression de Wang Lin resta neutre, mais son cœur était en plein tumulte al
 
 Le jeune homme maléfique scruta Wang Lin et affirma: « Je devrais avoir raison. Ce que tu as utilisé à l'instant, c'était bien le Royaume Ji! » Ses sentiments étaient désormais très complexes. Wang Lin ne cessait de lui réserver des surprises.
 
-Sur cette planète presque dénuée de tout, non seulement ce gamin possédait une parcelle de rétribution divine et un trésor capable de l'invoquer, mais il maîtrisait également le Royaume Ji.
+Sur cette planète presque dénuée de tout, non seulement ce gamin possédait une parcelle de Tribulation Céleste et un trésor capable de l'invoquer, mais il maîtrisait également le Royaume Ji.
 
 C'était ce Royaume Ji qui avait totalement dissipé son intention de tuer.
 
@@ -66,7 +66,7 @@ Le jeune homme maléfique prit une profonde inspiration, affichant une expressio
 
 Wang Lin resta calme. Après un moment de silence, il dit: « Si l'Aîné n'a rien d'autre à ajouter, alors le cadet prend congé. » Il recula de nouveau avec prudence.
 
-Si le jeune homme faisait le moindre mouvement, Wang Lin activerait la rétribution divine sans hésiter.
+Si le jeune homme faisait le moindre mouvement, Wang Lin activerait la Tribulation Céleste sans hésiter.
 
 Le jeune homme maléfique hésita un instant avant de demander: « Ne souhaites-tu pas que ton Royaume Ji franchisse son goulot d'étranglement? »
 
@@ -100,7 +100,7 @@ Le jeune homme maléfique regarda Wang Lin, tapota son sac de rangement et en so
 
 Le disque s'engouffra dans la brèche. Celle-ci se referma rapidement, ne laissant aucune trace.
 
-Wang Lin se considérait très chanceux que cet homme n'ait pas insisté sur l'affaire du sac de rangement. Que ce soit l'étendard de restriction ou la parcelle de rétribution divine, ces deux éléments étaient ses armes ultimes, la seconde étant la plus précieuse. C'étaient des ressources qu'il ne voulait utiliser qu'en dernier recours.
+Wang Lin se considérait très chanceux que cet homme n'ait pas insisté sur l'affaire du sac de rangement. Que ce soit l'étendard de restriction ou la parcelle de Tribulation Céleste, ces deux éléments étaient ses armes ultimes, la seconde étant la plus précieuse. C'étaient des ressources qu'il ne voulait utiliser qu'en dernier recours.
 
 Il fixa l'endroit où la brèche avait disparu et un désir puissant envahit son cœur. Lorsqu'il était enfant, il rêvait de voler dans le ciel; désormais, il aspirait à voyager parmi les étoiles.
 

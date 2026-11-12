@@ -66,7 +66,7 @@ Les yeux de Wang Lin brillèrent alors qu'il contemplait l'eau qui l'entourait. 
 
 « Il serait très facile de quitter cet endroit, et même de tuer ce Général de l'Eau. Cependant, c'est une opportunité unique. En s'appuyant sur son armure, le Général de l'Eau a créé l'essence de l'eau. Cette force est en train de muter sous mes yeux; si je parviens à la comprendre, je n'aurai plus sept essences, mais huit! »
 
-Comme Wang Lin l'avait pressenti, une telle occasion était extrêmement rare, d'autant plus que l'essence contrôlée par le Général de l'Eau n'était pas ordinaire. Elle avait été forgée par la Secte Gui Yi sur le Continent Astral Immortel via une méthode spéciale, issue d'une compréhension absolue de l'élément aqueux.
+Comme Wang Lin l'avait pressenti, une telle occasion était extrêmement rare, d'autant plus que l'essence contrôlée par le Général de l'Eau n'était pas ordinaire. Elle avait été forgée par la Secte Gui Yi sur le Continent Xian Gang via une méthode spéciale, issue d'une compréhension absolue de l'élément aqueux.
 
 C'était comme si toute la vérité était exposée devant lui. C'était bien plus clair que les enseignements qu'un maître pourrait transmettre à son disciple!
 

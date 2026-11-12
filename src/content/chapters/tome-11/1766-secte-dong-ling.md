@@ -74,7 +74,7 @@ Les 300 mondes détruits constituaient la première fleur, et ce monde gelé ét
 
 Les fameuses Huit Portes étaient cachées dans la dernière fleur. Wang Lin avait appris de la troisième âme que la clé pour ouvrir cette ultime fleur résidait dans les souvenirs de la troisième âme.
 
-Parmi les huit portes, sept étaient de faux-semblants et une seule était réelle. Cette porte menait au Continent Astral Immortel. Si elles se trouvaient sur la dernière fleur, c'était parce que la cinquième fleur servait de sceau à la porte.
+Parmi les huit portes, sept étaient de faux-semblants et une seule était réelle. Cette porte menait au Continent Xian Gang. Si elles se trouvaient sur la dernière fleur, c'était parce que la cinquième fleur servait de sceau à la porte.
 
 Contemplant la deuxième fleur gelée, Wang Lin hésita, puis ses yeux s'emplirent de détermination. Son corps fusionna avec la fleur et il disparut lentement dans la glace.
 
@@ -122,7 +122,7 @@ Les yeux de Wang Lin s'illuminèrent et il demanda lentement: « Que cet endroit
 
 « Ceci est la deuxième fleur des Cinq Fleurs et Huit Portes. Tout ici a été créé par Maître, y compris moi, car je contiens une goutte du sang du cœur de Ye Mo.
 
-« Ceci est la Secte Dong Lin, façonnée à partir des souvenirs de Maître. Elle est l'exacte réplique de la Secte Dong Lin sur le Continent Astral Immortel.
+« Ceci est la Secte Dong Lin, façonnée à partir des souvenirs de Maître. Elle est l'exacte réplique de la Secte Dong Lin sur le Continent Xian Gang.
 
 « Mon maître est le Souverain Céleste aux Sept Couleurs. Dans sa jeunesse, il était un disciple de la Secte Dong Lin, mais il en fut expulsé pour une raison quelconque. Il a ensuite créé ce lieu pour se souvenir de son ancienne secte.
 

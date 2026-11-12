@@ -6,17 +6,17 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1635 - Controlling Fate
 slug: controler-le-destin
 ---
-« Quelle vie intéressante, quel ciel fascinant, quelle création prodigieuse! Mais après tout, qu'est-ce que cela change? Puisque moi, Wang Lin, je peux pénétrer dans l’Ancien Royaume Céleste et briser la Tribulation Céleste pour découvrir comment elle fut créée, alors un jour, je serais capable de sortir de cette grotte. Je pourrais entrer dans le Continent Astral Immortel et voir à quel point les grands cultivateurs qui s'y trouvent sont puissants!
+« Quelle vie intéressante, quel ciel fascinant, quelle création prodigieuse! Mais après tout, qu'est-ce que cela change? Puisque moi, Wang Lin, je peux pénétrer dans l’Ancien Royaume Céleste et briser la Tribulation Céleste pour découvrir comment elle fut créée, alors un jour, je serais capable de sortir de cette grotte. Je pourrais entrer dans le Continent Xian Gang et voir à quel point les grands cultivateurs qui s'y trouvent sont puissants!
 
 « De quels droits se permettent-ils d'élever des êtres sensibles en captivité? De quels droits se croient-ils maîtres d'autres êtres?
 
-« Ce n'est pas étonnant que l'Oiseau Vermillon de la première génération ait dit qu'il ne pouvait emmener qu'un nombre limité de personnes dans sa ville natale. C'est parce qu'en dehors de lui, tous les autres ne sont pas originaires du Continent Astral Immortel. Ils ne sont que des cultivateurs nés dans cette grotte!
+« Ce n'est pas étonnant que Suzaku de la première génération ait dit qu'il ne pouvait emmener qu'un nombre limité de personnes dans sa ville natale. C'est parce qu'en dehors de lui, tous les autres ne sont pas originaires du Continent Xian Gang. Ils ne sont que des cultivateurs nés dans cette grotte!
 
 « Ce n'est pas étonnant qu'il ait dit que quelqu'un dans sa ville natale pourrait ressusciter Li Muwan, mais que lui ne le pouvait pas. Ce n'est pas étonnant... Ce n'est pas étonnant...
 
-« Si le Daoïste Esprit Dispersé peut sortir son peuple des 7 Millions de Mondes, alors moi, Wang Lin, je peux faire de même. Je veux voir à quel point les habitants du Continent Astral Immortel peuvent être puissants!
+« Si le Daoïste Esprit Dispersé peut sortir son peuple des 7 Millions de Mondes, alors moi, Wang Lin, je peux faire de même. Je veux voir à quel point les habitants du Continent Xian Gang peuvent être puissants!
 
-« Quand je sortirai de cette grotte pour entrer dans le Continent Astral Immortel, je veux voir si je peux déclencher un bain de sang. Voir si moi, simple cultivateur né dans une grotte, je peux faire plier les puissants cultivateurs du Continent Astral Immortel à mes pieds! » Wang Lin riait comme un fou. Il n'était pas surpris par ce qui s'était passé aujourd'hui, car il nourrissait des spéculations à ce sujet depuis un certain temps. Cependant, il ne voulait pas y croire, il refusait de l'admettre. Il s'était même menti à lui-même pour ne pas y penser.
+« Quand je sortirai de cette grotte pour entrer dans le Continent Xian Gang, je veux voir si je peux déclencher un bain de sang. Voir si moi, simple cultivateur né dans une grotte, je peux faire plier les puissants cultivateurs du Continent Xian Gang à mes pieds! » Wang Lin riait comme un fou. Il n'était pas surpris par ce qui s'était passé aujourd'hui, car il nourrissait des spéculations à ce sujet depuis un certain temps. Cependant, il ne voulait pas y croire, il refusait de l'admettre. Il s'était même menti à lui-même pour ne pas y penser.
 
 Pourtant, aujourd'hui, il avait tout vu clair. Qu'importe s'il connaissait la vérité? Il restait Wang Lin, il restait un cultivateur défiant le ciel. Il allait toujours ressusciter Li Muwan, et il allait toujours affronter le monde seul.
 

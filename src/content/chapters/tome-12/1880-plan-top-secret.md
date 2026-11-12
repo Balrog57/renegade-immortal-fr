@@ -40,7 +40,7 @@ Un jour, alors que quelques centaines de cultivateurs formaient un petit marché
 
 Le grondement ne provenait pas de la Prairie Ji Tian, mais de bien plus loin. Bien qu'il eût parcouru une distance inconnue, il plongea le monde dans une pénombre oppressante. Le tumulte se propagea instantanément au-dessus d'eux, dégageant une aura de sang et de férocité que l'on ne pouvait voir, mais que l'on ressentait viscéralement.
 
-Les centaines de cultivateurs furent saisis d'effroi. Ils ignoraient la cause de ce fracas. Certains aperçurent vaguement, à l'horizon du monde, un Taureau Céleste couvert de sang poussant un rugissement de détresse. Ce grondement qui ébranlait la terre était le cri du Taureau Céleste; s'il persistait, c'était parce que la créature semblait fuir dans la douleur.
+Les centaines de cultivateurs furent saisis d'effroi. Ils ignoraient la cause de ce fracas. Certains aperçurent vaguement, à l'horizon du monde, un Tian Niu couvert de sang poussant un rugissement de détresse. Ce grondement qui ébranlait la terre était le cri du Tian Niu; s'il persistait, c'était parce que la créature semblait fuir dans la douleur.
 
 Toutefois, moins de quelques dizaines de cultivateurs avaient pu entrevoir confusément cette scène; parmi ces centaines de personnes, tous restèrent silencieux.
 
@@ -52,13 +52,13 @@ Par conséquent, Wang Lin resta seul dans le palais souterrain. Durant ces trois
 
 Wang Lin avait également étudié sa technique de Nuit Brisée. Malheureusement, sans l'armure de l'âme, la Nuit Brisée n'était plus un sort de foi.
 
-Au moment où le rugissement résonna à travers la prairie, Wang Lin sortit de sa méditation pour la première fois en trois mois. Une douleur fulgurante lui transperça le cœur et se propagea dans tout son corps, le couvrant de sueur froide. Le tatouage du Taureau Céleste sur le côté droit de son visage commença à brûler, dégageant un sentiment indicible de tristesse et de colère.
+Au moment où le rugissement résonna à travers la prairie, Wang Lin sortit de sa méditation pour la première fois en trois mois. Une douleur fulgurante lui transperça le cœur et se propagea dans tout son corps, le couvrant de sueur froide. Le tatouage du Tian Niu sur le côté droit de son visage commença à brûler, dégageant un sentiment indicible de tristesse et de colère.
 
-Cette tristesse émanait de l'âme du Taureau Céleste!
+Cette tristesse émanait de l'âme du Tian Niu!
 
-Le cœur de Wang Lin trembla. Entendant le grondement sourd, il leva les yeux vers la surface. Sa vision se troubla et il sembla percevoir des images fugaces. Il vit une chaîne de montagnes infinie peuplée de milliers de cultivateurs. Après des mois de lutte, il n'en restait plus que quelques centaines. Parmi eux, un homme portait une armure noire complète et dégageait l'aura de l'âme du Taureau Céleste.
+Le cœur de Wang Lin trembla. Entendant le grondement sourd, il leva les yeux vers la surface. Sa vision se troubla et il sembla percevoir des images fugaces. Il vit une chaîne de montagnes infinie peuplée de milliers de cultivateurs. Après des mois de lutte, il n'en restait plus que quelques centaines. Parmi eux, un homme portait une armure noire complète et dégageait l'aura de l'âme du Tian Niu.
 
-Il était évident que cette personne, tout comme Wang Lin, avait été reconnue par le Taureau Céleste et qu'elle avait reçu pour mission de garder l'un des sept méridiens.
+Il était évident que cette personne, tout comme Wang Lin, avait été reconnue par le Tian Niu et qu'elle avait reçu pour mission de garder l'un des sept méridiens.
 
 Wang Lin observa cet homme traverser un massacre après l'autre. Finalement, celui-ci fut frappé neuf fois de suite par une main rouge descendue du ciel. L'armure de l'individu s'effondra et il rendit l'âme. La main rouge trembla puis se métamorphosa en un vieil homme aux cheveux roux. Ce dernier arborait une expression sombre et se tenait dans les airs tel le souverain des cieux et de la terre, vénéré par tous les cultivateurs du Continent Lu Mo en contrebas!
 
@@ -66,7 +66,7 @@ Wang Lin ne pouvait ressentir son aura à travers ces visions, mais le fait que 
 
 Après la mort du gardien, toute la chaîne de montagnes s'effondra et se désagrégea, transformant ce relief infini en un gouffre de mort. Dans cet effondrement, une partie de la barrière invisible formée par les sept méridiens se brisa. Elle n'était plus complète!
 
-La vision de Wang Lin s'obscurcit et il reprit ses esprits. Il réfléchit silencieusement un instant. Ce qu'il venait de voir était invisible pour les autres; seuls ceux possédant l'armure de l'âme du Taureau Céleste pouvaient le détecter. L'un des sept méridiens du Taureau Céleste venait de s'effondrer.
+La vision de Wang Lin s'obscurcit et il reprit ses esprits. Il réfléchit silencieusement un instant. Ce qu'il venait de voir était invisible pour les autres; seuls ceux possédant l'armure de l'âme du Tian Niu pouvaient le détecter. L'un des sept méridiens du Tian Niu venait de s'effondrer.
 
 Il fallut plusieurs heures pour que ce rugissement violent ne se dissipe dans le lointain. Ce développement soudain laissa tous les cultivateurs de la prairie avec le pressentiment qu'un malheur imminent se préparait. Les spéculations allaient bon train, mais tous sentaient qu'un événement majeur se profilait.
 
@@ -82,4 +82,4 @@ Alors qu'il joignait les mains, Wang Lin ouvrit soudainement les yeux dans le pa
 
 En voyant Wang Lin, le vieil homme fut stupéfait. Il ne s'attendait manifestement pas à ce que le détenteur de l'armure ait un niveau de culture aussi bas, mais il n'osa point le mépriser. Après tout, avoir été capable de protéger cet endroit prouvait que Wang Lin possédait quelque chose d'exceptionnel.
 
-« Les premier, deuxième et septième méridiens du Taureau Céleste ont été détruits par le Continent Lu Mo. Trois propriétaires d'armures de l'âme sont tombés... Ouyang est venu sur ordre pour informer le propriétaire de l'armure du troisième méridien qu'il doit utiliser une formation de téléportation pour retourner immédiatement à la Secte Gui Yi en vue d'un plan top secret! »
+« Les premier, deuxième et septième méridiens du Tian Niu ont été détruits par le Continent Lu Mo. Trois propriétaires d'armures de l'âme sont tombés... Ouyang est venu sur ordre pour informer le propriétaire de l'armure du troisième méridien qu'il doit utiliser une formation de téléportation pour retourner immédiatement à la Secte Gui Yi en vue d'un plan top secret! »

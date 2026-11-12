@@ -86,7 +86,7 @@ Le ciel se rétablit, et peu à peu, le monde entier retrouva son aspect origine
 
 Le regard de Wang Lin resta un instant suspendu sur la montagne dorée avant qu'il ne se détourne. Se souvenant du serment qu'il avait prêté, il s'éclipsa brusquement!
 
-Après avoir quitté le palais interdit pour traverser le palais souterrain effondré, Wang Lin fit un pas en avant et disparut sans laisser de trace. Lorsqu'il réapparut, il se trouvait sur le Continent Astral Immortel, dans le palais impérial de la cité ancestrale de la province centrale du clan céleste.
+Après avoir quitté le palais interdit pour traverser le palais souterrain effondré, Wang Lin fit un pas en avant et disparut sans laisser de trace. Lorsqu'il réapparut, il se trouvait sur le Continent Xian Gang, dans le palais impérial de la cité ancestrale de la province centrale du clan céleste.
 
 Le palais était en ruines; à première vue, seule la statue se dressait là, solitaire. C'était celle de l'Ancêtre Céleste, les bras tendus vers le ciel comme s'il lançait un sortilège.
 

@@ -90,9 +90,9 @@ L'expression de Wang Lin ne changea pas sous les regards de tous alors que Lei J
 
 Ling Tianhou fixa Wang Lin, une trace de crainte dans les yeux. Il ne pourrait jamais oublier ce rayon de lumière. S'il n'avait pas fui rapidement en supposant que l'autre lueur avait absorbé suffisamment d'énergie originelle, il ne serait pas debout aujourd'hui.
 
-Sa façon de percevoir Wang Lin avait changé; il n'avait aucune intention de le provoquer. Il sourit et secoua la tête: « Le compagnon de culture Wang est trop poli. Nul besoin de m'appeler "aîné", appelez simplement ce vieil homme Ling Tianhou. »
+Sa façon de percevoir Wang Lin avait changé; il n'avait aucune intention de le provoquer. Il sourit et secoua la tête: « Le Daoïste Wang est trop poli. Nul besoin de m'appeler "aîné", appelez simplement ce vieil homme Ling Tianhou. »
 
-Ses paroles provoquèrent un tollé parmi les cultivateurs. Des regards d'incrédulité se tournèrent vers Wang Lin. Ling Tianhou était un puissant cultivateur dont la renommée n'était surpassée que par celle de Tian Yunzi. Très peu de personnes étaient dignes d'être appelées « compagnon de culture » par lui. Ce simple terme prononcé par Ling Tianhou choqua les esprits!
+Ses paroles provoquèrent un tollé parmi les cultivateurs. Des regards d'incrédulité se tournèrent vers Wang Lin. Ling Tianhou était un puissant cultivateur dont la renommée n'était surpassée que par celle de Tian Yunzi. Très peu de personnes étaient dignes d'être appelées « Daoïste » par lui. Ce simple terme prononcé par Ling Tianhou choqua les esprits!
 
 Tian Yunzi regarda Wang Lin. Du début à la fin, son expression ne changea pas, comme si l'incident d'il y a plusieurs mois n'avait jamais eu lieu. Il hocha légèrement la tête et dit lentement: « Ce n'est rien. »
 

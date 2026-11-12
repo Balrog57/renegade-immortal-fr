@@ -50,11 +50,11 @@ Poursuite!
 
 Le regard de Wang Lin devint glacial; il leva son épée et la traqua!
 
-Le visage de Hongdie était sombre. La bataille d'aujourd'hui était bien plus éprouvante que celle qu'ils avaient menée dans le Royaume Céleste. Elle n'aurait jamais imaginé que ce Ceng Niu aurait acquis une telle puissance en seulement quelques décennies.
+Le visage de Hongdie était sombre. La bataille d'aujourd'hui était bien plus éprouvante que celle qu'ils avaient menée dans le Royaume Céleste. Elle n'aurait jamais imaginé que ce Zeng Niu aurait acquis une telle puissance en seulement quelques décennies.
 
-En repensant au Royaume Céleste, lorsqu'elle avait déployé toute sa force pour l'éliminer, Ceng Niu ne pouvait que fuir, incapable de lui opposer la moindre résistance. Plus tard, elle n'avait été contrainte que parce qu'il possédait un trésor capable de faire s'effondrer le Royaume Céleste. Elle n'avait jamais considéré Wang Lin comme un adversaire de taille.
+En repensant au Royaume Céleste, lorsqu'elle avait déployé toute sa force pour l'éliminer, Zeng Niu ne pouvait que fuir, incapable de lui opposer la moindre résistance. Plus tard, elle n'avait été contrainte que parce qu'il possédait un trésor capable de faire s'effondrer le Royaume Céleste. Elle n'avait jamais considéré Wang Lin comme un adversaire de taille.
 
-Dans son cœur, ce Ceng Niu n'était pas son égal. Il était faible; un insecte, un marchepied né pour se soumettre aux puissants.
+Dans son cœur, ce Zeng Niu n'était pas son égal. Il était faible; un insecte, un marchepied né pour se soumettre aux puissants.
 
 Elle avait tué bon nombre de cultivateurs comme Wang Lin lorsque l'Alliance des Quatre Sectes avait balayé les derniers survivants de ses ennemis. Même à Suzaku, elle avait conservé cette mentalité.
 
@@ -64,11 +64,11 @@ Pourtant, cette fierté s'était effondrée lorsque Wang Lin lui avait tranché 
 
 Elle était résolue à le tuer pour restaurer l'intégrité de son cœur dao. Elle avait même sorti le trésor national de Xue Yu, le Dieu de Glace, pour l'anéantir.
 
-Même son Senior frère avait secrètement emprunté le trésor principal de la Secte Tian Yu, le Fouet Kunji, afin de lui offrir et de gagner ses faveurs. À l'origine, elle n'avait pas voulu utiliser le Fouet Kunji. Elle pensait qu'avec le Dieu de Glace et son trésor personnel, tuer Ceng Niu serait aussi facile que de prendre un bonbon à un enfant.
+Même son Senior frère avait secrètement emprunté le trésor principal de la Secte Tian Yu, le Fouet Kunji, afin de lui offrir et de gagner ses faveurs. À l'origine, elle n'avait pas voulu utiliser le Fouet Kunji. Elle pensait qu'avec le Dieu de Glace et son trésor personnel, tuer Zeng Niu serait aussi facile que de prendre un bonbon à un enfant.
 
 Cependant, ayant entendu tant de rumeurs sur le Fouet Kunji, elle avait été tentée et n'avait pas refusé l'offre. Elle l'avait caché dans le Dieu de Glace pour s'en servir comme d'une arme secrète.
 
-Mais à présent, après tant d'échanges, leur combat atteignait son point culminant. Les trésors de ce Ceng Niu étaient infinis, bien au-delà de ce qu'elle avait pu concevoir.
+Mais à présent, après tant d'échanges, leur combat atteignait son point culminant. Les trésors de ce Zeng Niu étaient infinis, bien au-delà de ce qu'elle avait pu concevoir.
 
 Surtout cette bête spirituelle; elle était d'une férocité inouïe. Si la bête n'avait pas manqué de force sur la durée, elle était certaine que, face à ses assauts répétés, elle aurait perdu sans le Fouet Kunji.
 
@@ -80,7 +80,7 @@ Elle n'avait vécu une telle fuite que deux fois dans sa vie: la première fois 
 
 Wang Lin la poursuivait de près, l'expression sombre. Observant la silhouette qui se téléportait sans cesse devant lui, il lança: « Hongdie, où est passée ta fierté? La fille céleste de Suzaku doit-elle fuir devant moi, un simple cultivateur au milieu de la Formation de l'Âme? »
 
-« Ceng Niu!! Si je ne te tue pas, je ne m'appelle pas Hongdie! Technique de l'avatar! » Bien que Wang Lin la provoquât, son orgueil l'obligeait à lutter.
+« Zeng Niu!! Si je ne te tue pas, je ne m'appelle pas Hongdie! Technique de l'avatar! » Bien que Wang Lin la provoquât, son orgueil l'obligeait à lutter.
 
 Un changement soudain survint.
 
@@ -92,7 +92,7 @@ Un avatar ressemblant trait pour trait à Hongdie apparut, avec la seule différ
 
 L'avatar de Hongdie ouvrit les yeux, d'un calme olympien. Si la véritable Hongdie était froide et impitoyable, cet avatar ne manifestait aucune émotion et restait d'une sérénité absolue.
 
-Depuis le géant, la véritable Hongdie lança, les yeux emplis de haine: « Ceng Niu, même si je dois renoncer pour un temps à la Transformation de l'Âme, je jure de te tuer! »
+Depuis le géant, la véritable Hongdie lança, les yeux emplis de haine: « Zeng Niu, même si je dois renoncer pour un temps à la Transformation de l'Âme, je jure de te tuer! »
 
 Cet avatar était une entité qu'elle avait cultivée pour faciliter son passage vers la Transformation de l'Âme. À moins d'une nécessité absolue, elle ne l'aurait jamais invoqué.
 

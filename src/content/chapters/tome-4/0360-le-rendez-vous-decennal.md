@@ -40,7 +40,7 @@ Wang Lin, assis sous la pagode, observait le tigre malmené et esquissa un lége
 
 Dès que Zhou Ru l'eut repéré, elle avait ordonné à Tie Yan de le capturer. Elle l'avait nommé Petit Blanc.
 
-« Camarade cultivateur Ceng Niu, le rendez-vous décennal est arrivé à échéance. Je viens, sur ordre du Mont Suzaku, vous remettre la lettre de défi. » La voix de Feng Yushan résonna de l'extérieur de la vallée.
+« Camarade cultivateur Zeng Niu, le rendez-vous décennal est arrivé à échéance. Je viens, sur ordre du Mont Suzaku, vous remettre la lettre de défi. » La voix de Feng Yushan résonna de l'extérieur de la vallée.
 
 Le regard de Wang Lin passa de Zhou Ru vers l'extérieur de la vallée. Après un instant, il se leva.
 

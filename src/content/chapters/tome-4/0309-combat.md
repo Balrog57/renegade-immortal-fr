@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 309 - Fight
 slug: combat
 ---
-Chi Hu dit: « Ceng Niu. Tout comme toi et moi, il vient également de la planète Suzaku. »
+Chi Hu dit: « Zeng Niu. Tout comme toi et moi, il vient également de la planète Suzaku. »
 
 « De la planète Suzaku? » Hongdie fut surprise en repensant aux quatre autres.
 
@@ -88,9 +88,9 @@ La puissance combinée de l'effondrement du ciel et de la déchirure de la terre
 
 « Tu es ingrate, sans cœur, injuste et infidèle! Quel genre de Dao cultives-tu donc?! Ton cœur Dao est instable! Je veux voir comment ton niveau de culture évoluera à l'avenir! »
 
-Même Chi Hu recula involontairement de quelques pas, les yeux écarquillés par le choc. Il ne s'attendait pas à ce que Ceng Niu possède une technique aussi terrifiante.
+Même Chi Hu recula involontairement de quelques pas, les yeux écarquillés par le choc. Il ne s'attendait pas à ce que Zeng Niu possède une technique aussi terrifiante.
 
-« L'union d'un homme et de son trésor magique! » Chi Hu était stupéfait. Ses yeux brillèrent d'intérêt, mais il réprima rapidement son envie de combattre. « Cet homme doit être un génie de la famille Ceng. Si c'était moi, à moins d'utiliser le trésor que ma famille m'a confié, il me serait difficile d'échapper à un tel désastre. Cependant, cette Hongdie est au stade avancé de la Formation de l'Âme... ce Ceng Niu est vraiment remarquable; il sait qu'il doit d'abord briser le cœur Dao de Hongdie. Ce Ceng Niu n'est vraiment pas de taille ordinaire. »
+« L'union d'un homme et de son trésor magique! » Chi Hu était stupéfait. Ses yeux brillèrent d'intérêt, mais il réprima rapidement son envie de combattre. « Cet homme doit être un génie de la famille Ceng. Si c'était moi, à moins d'utiliser le trésor que ma famille m'a confié, il me serait difficile d'échapper à un tel désastre. Cependant, cette Hongdie est au stade avancé de la Formation de l'Âme... ce Zeng Niu est vraiment remarquable; il sait qu'il doit d'abord briser le cœur Dao de Hongdie. Ce Zeng Niu n'est vraiment pas de taille ordinaire. »
 
 Hongdie était trop jeune, après tout. Comparée à un vieux monstre comme Wang Lin, qui avait vécu plus de 400 ans et percé les mystères de la nature humaine, sa force mentale était bien inférieure à celle de ce dernier. Les paroles de Wang Lin frappaient directement son cœur. Une lueur de rage apparut sur son visage alors qu'elle continuait de reculer.
 
@@ -100,7 +100,7 @@ L'intention de tuer embrasa les yeux de Hongdie. En tant que génie de Xue Yu, e
 
 De plus, le Pays de Zhu Que lui accordait une attention particulière, ce qui l'avait rendue quelque peu orgueilleuse.
 
-Le javelot de Wang Lin la terrifiait. Ce n'était pas tant sa puissance brute, mais l'énergie mystérieuse qui le composait; elle ressemblait presque à un éclat de foudre de la Rétribution Divine!
+Le javelot de Wang Lin la terrifiait. Ce n'était pas tant sa puissance brute, mais l'énergie mystérieuse qui le composait; elle ressemblait presque à un éclat de foudre de la Tribulation Céleste!
 
 Mais elle demeurait une cultivatrice au stade avancé de la Formation de l'Âme. À cet instant, ses yeux brillèrent et ses mains formèrent des sceaux. Elle pointa soudainement son front et cracha une bouchée de sang. Un rayon de lumière rouge jaillit de ce sang.
 
@@ -134,6 +134,6 @@ Chi Hu cria: « Hongdie! »
 
 Les yeux de Wang Lin s'illuminèrent; il frappa son sac de stockage et un autre drapeau de restriction apparut aussitôt. Le drapeau quitta sa main pour s'élancer dans les airs.
 
-« Rétribution Divine! » À moins d'une nécessité absolue, Wang Lin ne souhaitait pas attirer la foudre de la rétribution divine. Un tel événement provoquerait inévitablement l'effondrement du fragment, et il ignorait s'il aurait la chance de s'en échapper cette fois-ci.
+« Tribulation Céleste! » À moins d'une nécessité absolue, Wang Lin ne souhaitait pas attirer la foudre de la Tribulation Céleste. Un tel événement provoquerait inévitablement l'effondrement du fragment, et il ignorait s'il aurait la chance de s'en échapper cette fois-ci.
 
 Le drapeau de restriction s'éleva vers le ciel et se transforma en un nuage de brume noire qui enveloppa tout dans un rayon de 5 kilomètres.

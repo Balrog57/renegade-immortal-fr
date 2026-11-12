@@ -24,7 +24,7 @@ De loin, la scène était saisissante. Le fourneau vert s'effondrait encore, dis
 
 C'est à cet instant que des ondulations résonnèrent et que trois rayons de lumière convergèrent. Pourtant, lorsqu'ils révélèrent leur présence, les trois hommes tremblèrent de stupeur face au spectacle qui s'offrait à eux!
 
-Les trois arrivants étaient les autres détenteurs de l'armure d'âme du Taureau Céleste aux côtés de Wang Lin: Yun Yifeng, Tang Jia et le vieil homme Bian Yun!
+Les trois arrivants étaient les autres détenteurs de l'armure d'âme du Tian Niu aux côtés de Wang Lin: Yun Yifeng, Tang Jia et le vieil homme Bian Yun!
 
 Après cent ans, ils étaient venus au Temple Lu Mo Xie pour une raison inconnue. Le voyage vers le temple avait été extrêmement ardu, mais une fois sur place, le chemin s'était révélé sans encombre. Ils n'avaient rien rencontré et avaient atteint la partie la plus profonde du sanctuaire.
 
@@ -102,6 +102,6 @@ Ainsi, on pouvait dire que l'ancien à la robe verte avait tout donné à Wang L
 
 Les yeux de Wang Lin s'illuminèrent. Son niveau de culture montrait des signes d'augmentation. Il prit une profonde inspiration, l'excitation brillant dans son regard!
 
-« Cette fois, voyons jusqu'où ma culture peut s'élever!! Mon niveau était trop bas auparavant. J'espère pouvoir m'imposer au sommet du Continent Astral Immortel après cela!! »
+« Cette fois, voyons jusqu'où ma culture peut s'élever!! Mon niveau était trop bas auparavant. J'espère pouvoir m'imposer au sommet du Continent Xian Gang après cela!! »
 
 « Et la Secte Dao Mo... je n'ai jamais oublié le serment que j'ai prêté durant ces cent ans!! » Wang Lin était empreint d'une intention meurtrière. Lorsqu'il ferma les yeux, il voyait voler puis retomber autour de lui des têtes familières. Toutes appartenaient à des gens qu'il avait connus dans la Prairie Ji Tian.

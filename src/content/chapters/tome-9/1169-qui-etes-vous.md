@@ -44,7 +44,7 @@ Dans la Mer Yun, la majorité des cultivateurs n'avaient jamais vu de planète d
 
 Pourtant, pour Wang Lin, une planète de culture n'avait rien d'extraordinaire. Il était né sur une planète de culture, il avait accepté son maître sur une planète de culture et, à Luotian, il possédait même sa propre planète de culture.
 
-Sans parler du vaste champ d'étoiles au sein de la Secte Divine de l'Oiseau Vermillon.
+Sans parler du vaste champ d'étoiles au sein de la Secte Divine de Suzaku.
 
 Les cultivateurs de la Secte Bao Yu affichaient une certaine fierté car ils possédaient une véritable planète de culture. Mais face à Wang Lin, leur orgueil était dérisoire.
 

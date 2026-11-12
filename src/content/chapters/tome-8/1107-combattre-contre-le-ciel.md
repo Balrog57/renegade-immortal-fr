@@ -16,7 +16,7 @@ Les yeux de Wang Lin s'illuminèrent alors qu'il agita sa main droite, projetant
 
 En un instant, une flamme apparut dans son œil gauche et une armure de feu rougeoyante se matérialisa autour de lui. De loin, on aurait dit que Wang Lin était revêtu de flammes.
 
-Son manteau blanc flottait derrière lui avec ses cheveux blancs, et l'Oiseau Vermillon blanc ornait son armure. Wang Lin chargea droit vers les flammes célestes.
+Son manteau blanc flottait derrière lui avec ses cheveux blancs, et Suzaku blanc ornait son armure. Wang Lin chargea droit vers les flammes célestes.
 
 Il plongea instantanément au cœur des flammes divines, et celles qui s'approchaient de lui furent immédiatement absorbées par son armure. L'Oiseau Vermillon surgit de l'armure et poussa un cri strident.
 

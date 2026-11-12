@@ -80,7 +80,7 @@ Wang Lin poussa un soupir. Ce fou lui avait apporté une immense fortune, mais i
 
 Le diable antique qu'il avait obtenu dans la tombe antique apparut devant lui.
 
-Le corps de ce diable antique était déjà pétrifié, mais lorsque Wang Lin obtint l'héritage de l'Ordre Antique, il fut restauré en chair. Les six étoiles démoniaques tournaient dans son œil droit, mais ce corps n'ayant plus d'âme, il n'était encore qu'un cadavre.
+Le corps de ce diable antique était déjà pétrifié, mais lorsque Wang Lin obtint l'héritage de Dao Gu, il fut restauré en chair. Les six étoiles démoniaques tournaient dans son œil droit, mais ce corps n'ayant plus d'âme, il n'était encore qu'un cadavre.
 
 Wang Lin fixa le diable antique aux six étoiles. Il avait initialement prévu de condenser une âme de diable antique pour en faire son avatar, mais face au danger du rejet interne, il changea d'avis.
 
@@ -92,7 +92,7 @@ Instantanément, les six étoiles pénétrèrent dans l'œil droit de Wang Lin p
 
 Au moment où les étoiles entrèrent en lui, Wang Lin prit une profonde inspiration. Sa main forma un sceau et son corps trembla. Les sept étoiles dorées d'Ancien Dieu entre ses sourcils brillèrent intensément. Des rayons de lumière dorée semblèrent pénétrer dans son œil droit avant de fusionner rapidement avec les six étoiles démoniaques!
 
-Le fou, qui s'était reculé, observa la scène. Il se frotta les yeux en marmonnant: « Prendre l'Ancien Dieu pour racine et l'Ancien Diable pour branche... C'est la lignée de l'Ordre Antique, l'un des trois grands clans royaux de l'Ancienne Nation... »
+Le fou, qui s'était reculé, observa la scène. Il se frotta les yeux en marmonnant: « Prendre l'Ancien Dieu pour racine et l'Ancien Diable pour branche... C'est la lignée de Dao Gu, l'un des trois grands clans royaux de l'Ancienne Nation... »
 
 « Les trois grands clans de l'Ancienne Nation: le Ji Gu a le démon pour racine, le Shi Gu a le diable pour racine... Étrange, il est clairement un membre de mon clan céleste et il possède le corps immortel que seul mon grand frère et moi possédons. Comment un cultivateur de l'Ancienne Nation peut-il en avoir un? Étrange, si étrange... Hmph! Quel insolent a osé donner un corps céleste immortel à un cultivateur de l'Ancienne Nation?! Si mon grand frère apprenait cela, il serait hors de lui! »
 

@@ -14,9 +14,9 @@ Le Shui Daozi était terrifié par les essences qui émanaient du corps de Wang 
 
 Il avait brisé sa vitalité pour comprendre sa première essence: l'essence de la vie et de la mort. Il avait brisé ses étoiles de Dieu Antique pour comprendre sa deuxième essence: l'essence du karma. Il avait détruit son étoile de la loi pour comprendre sa troisième essence: l'essence du vrai et du faux!
 
-Cependant, au sein de son corps qui ne s'était pas encore dissipé, brûlait encore le feu de l'Oiseau Vermillon!
+Cependant, au sein de son corps qui ne s'était pas encore dissipé, brûlait encore le feu de Suzaku!
 
-Ce feu de l'Oiseau Vermillon avait déjà subi trois métamorphoses. Chaque métamorphose avait considérablement accru sa compréhension du feu. La troisième métamorphose avait permis à Wang Lin de devenir le maître du feu de ce monde, et sa maîtrise du feu avait atteint un degré terrifiant!
+Ce feu de Suzaku avait déjà subi trois métamorphoses. Chaque métamorphose avait considérablement accru sa compréhension du feu. La troisième métamorphose avait permis à Wang Lin de devenir le maître du feu de ce monde, et sa maîtrise du feu avait atteint un degré terrifiant!
 
 Tous les sorts de feu devaient s'incliner devant lui!
 

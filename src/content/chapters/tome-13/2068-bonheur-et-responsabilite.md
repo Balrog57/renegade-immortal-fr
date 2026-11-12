@@ -118,7 +118,7 @@ Après le départ de Wang Lin, le fou ouvrit les yeux et fixa l'endroit où Wang
 
 « J'ai été confus toute une vie... J'ai été fou toute une vie... Pourtant, je suis toujours un descendant de l'Ancêtre Céleste... Maintenant que Lian Daozhen est mort, si je pars, le clan céleste n'aura plus... aucun empereur. »
 
-« Je veux quitter ce lieu, quitter le Continent Astral Immortel, mais puisque je possède l'héritage de l'Ancêtre Céleste, je dois avoir la force d'en assumer le poids... C'est ma responsabilité. »
+« Je veux quitter ce lieu, quitter le Continent Xian Gang, mais puisque je possède l'héritage de l'Ancêtre Céleste, je dois avoir la force d'en assumer le poids... C'est ma responsabilité. »
 
 « J'ai trouvé la compréhension durant mon sommeil. » Le fou se redressa, révélant une rare trace de détermination tandis qu'il marmonnait amèrement pour lui-même.
 

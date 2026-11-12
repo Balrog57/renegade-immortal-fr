@@ -40,11 +40,11 @@ Le regard de Wang Lin restait calme tandis qu'il observait froidement le rideau 
 
 « C'est un peu plus intéressant ainsi... Cependant, ce niveau est insuffisant! »
 
-Wang Lin leva la main droite et pointa le ciel. Les sept étoiles du Dieu Ancien entre ses sourcils se mirent à pivoter. Une puissante énergie de Dieu Ancien — ou pour être plus précis, une énergie de l'Ordre Antique — jaillit du corps de Wang Lin!
+Wang Lin leva la main droite et pointa le ciel. Les sept étoiles du Dieu Ancien entre ses sourcils se mirent à pivoter. Une puissante énergie de Dieu Ancien — ou pour être plus précis, une énergie de Dao Gu — jaillit du corps de Wang Lin!
 
-Dès l'apparition de cette aura, l'espace lui-même se distordit et d'innombrables fissures spatiales apparurent. C'était comme si la réalité ne pouvait supporter l'aura de l'Ordre Antique!
+Dès l'apparition de cette aura, l'espace lui-même se distordit et d'innombrables fissures spatiales apparurent. C'était comme si la réalité ne pouvait supporter l'aura de Dao Gu!
 
-L'Ordre Antique était une existence bien supérieure aux Dieux Anciens! Car les Dieux Anciens étaient issus de l'Ordre Antique! Tandis que cette aura se propageait, un gigantesque fantôme apparut derrière Wang Lin!
+L'Dao Gu était une existence bien supérieure aux Dieux Anciens! Car les Dieux Anciens étaient issus de Dao Gu! Tandis que cette aura se propageait, un gigantesque fantôme apparut derrière Wang Lin!
 
 Ce fantôme était flou et ne représentait qu'une tête. Une tête dépourvue d'œil gauche!
 
@@ -56,7 +56,7 @@ Lorsque le Maître Lu Fu vit cette tête géante, ses pupilles se rétractèrent
 
 « Ceci... ceci est quoi?! Un Dieu Ancien? Un Démon Ancien? Un Diable Ancien? »
 
-Peu de gens connaissaient l'existence de l'Ordre Antique. C'était la première fois que le Maître Lu Fu en faisait la rencontre!
+Peu de gens connaissaient l'existence de Dao Gu. C'était la première fois que le Maître Lu Fu en faisait la rencontre!
 
 L'expression de Wang Lin demeura sereine alors qu'il levait la main droite pour former lentement un poing. En abaissant sa main, il lança avec une apparente douceur un coup de poing vers le rideau de lumière!
 
@@ -74,7 +74,7 @@ Les strates du rideau continuaient de s'écrouler, incapables d'arrêter le coup
 
 La formation fut déchirée, révélant le vortex formé par la rotation des dizaines de planètes. Le vortex fut frappé par les fragments de la formation, provoquant des fracas assourdissants. De larges fissures apparurent sur ces planètes, donnant l'impression qu'elles allaient s'effondrer à tout instant.
 
-Cependant, cela ne s'arrêta pas là. Le Tremblement Divin de Wang Lin était un coup dévastateur créé grâce à son nouveau pouvoir de Dieu Ancien à sept étoiles, obtenu via l'héritage de l'Ordre Antique!
+Cependant, cela ne s'arrêta pas là. Le Tremblement Divin de Wang Lin était un coup dévastateur créé grâce à son nouveau pouvoir de Dieu Ancien à sept étoiles, obtenu via l'héritage de Dao Gu!
 
 La formation de lumière n'était qu'une simple feuille de papier balayée par un seul coup. Elle ne put même pas amortir 10 % de la puissance de l'impact!
 
@@ -106,7 +106,7 @@ L'ombre de sang était floue, rendant son apparence impossible à distinguer. Ce
 
 L'ombre de sang chargea vers le poing!
 
-Elle laissa échapper un rugissement qui fit trembler les cieux et percuta l'impact de l'Ordre Antique de Wang Lin!
+Elle laissa échapper un rugissement qui fit trembler les cieux et percuta l'impact de Dao Gu de Wang Lin!
 
 Un fracas violent résonna à travers la planète Dong Lin. Il se propagea dans toutes les directions, dépassant Wang Lin pour s'étendre dans tout le domaine oriental!
 

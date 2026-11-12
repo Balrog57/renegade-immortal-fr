@@ -84,15 +84,15 @@ Après cela, le visage du vieil homme pâlit et il se retira prestement. Il rugi
 
 Le brouillard surgit soudainement et des marques numériques apparurent entre les sourcils du Serpent aux yeux de lune et des deux autres, avant qu'ils ne soient aspirés. Le vieil homme s'échappa rapidement de la zone d'influence. Il réapparut sur une planète de culture lointaine et se mit à cultiver.
 
-Il y avait aussi le vieil homme vêtu de peaux de bêtes que le Vieux Suzaku appelait l'Illustre Grande Désolation. Il observait le brouillard, les yeux brillants. Ne possédant aucun avatar, il n'osait pas entrer, avec sa propre culture affaiblie, dans cette tombe où chance et mort coexistent. Tout en reculant, sa main tendue cherchait constamment dans le vide. Peu importe la distance, il saisissait un cultivateur pour le projeter dans la brume.
+Il y avait aussi le vieil homme vêtu de peaux de bêtes que le Vieux Suzaku appelait l'Illustre Da Huang. Il observait le brouillard, les yeux brillants. Ne possédant aucun avatar, il n'osait pas entrer, avec sa propre culture affaiblie, dans cette tombe où chance et mort coexistent. Tout en reculant, sa main tendue cherchait constamment dans le vide. Peu importe la distance, il saisissait un cultivateur pour le projeter dans la brume.
 
 Ces cultivateurs mouraient tous misérablement, transformés en squelettes. Cependant, le huitième homme trembla mais ne mourut pas; une marque numérique apparut entre ses sourcils!
 
-Ce cultivateur était un vieil homme au visage pâle, comme s'il luttait contre une longue maladie. À l'instant où la marque apparut, un éclair de froideur traversa les yeux de l'Illustre Grande Désolation. Une portion de son âme originelle poursuivit le vieillard aspiré. Elle s'engouffra dans son corps pour commencer à le posséder.
+Ce cultivateur était un vieil homme au visage pâle, comme s'il luttait contre une longue maladie. À l'instant où la marque apparut, un éclair de froideur traversa les yeux de l'Illustre Da Huang. Une portion de son âme originelle poursuivit le vieillard aspiré. Elle s'engouffra dans son corps pour commencer à le posséder.
 
 Le corps du vieil homme trembla puis disparut dans la brume dans un cri déchirant.
 
-L'Illustre Grande Désolation, le visage légèrement pâle, quitta la zone de brouillard.
+L'Illustre Da Huang, le visage légèrement pâle, quitta la zone de brouillard.
 
 Les grands cultivateurs de la troisième étape déployèrent chacun leurs pouvoirs, qu'il serait trop long de détailler un à un. Le brouillard en ébullition, après s'être étendu sur des dizaines de millions de kilomètres, ne s'arrêta pas et se propagea de nouveau, sans fin apparente!
 

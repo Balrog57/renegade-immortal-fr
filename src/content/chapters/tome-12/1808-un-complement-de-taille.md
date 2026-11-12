@@ -40,7 +40,7 @@ Wang Lin se trouvait actuellement dans la grotte qu'il avait creusée au cœur d
 
 La mer de feu brûlait avec intensité, se transformant lentement en un oiseau vermillon géant derrière lui. L'oiseau vermillon tournait autour de Wang Lin, faisant rage davantage encore dans la mer de flammes.
 
-Le Cercueil d'Évitement Céleste qu'il portait sur son dos depuis son arrivée sur le Continent Astral Immortel avait été placé dans le nouvel espace de stockage qu'il avait ouvert dans son propre corps. À cet instant, sa main traça un sceau et les flammes environnantes se changèrent en sept dragons de feu qui se précipitèrent dans son œil gauche.
+Le Cercueil d'Évitement Céleste qu'il portait sur son dos depuis son arrivée sur le Continent Xian Gang avait été placé dans le nouvel espace de stockage qu'il avait ouvert dans son propre corps. À cet instant, sa main traça un sceau et les flammes environnantes se changèrent en sept dragons de feu qui se précipitèrent dans son œil gauche.
 
 Ils furent absorbés instantanément par son œil gauche, y formant une empreinte en forme de feu.
 
@@ -48,11 +48,11 @@ L'empreinte scintilla, projetant une lueur éclatante dans la grotte désormais 
 
 « Ma propre essence de feu est déjà formée et s'avère même plus puissante que lorsqu'elle était dans le monde des grottes... Mais elle est incompatible avec le feu terrestre de ce Continent Tian Niu... »
 
-« Je dois trancher entre ces deux feux... Sinon, si je rencontre une autre personne possédant une essence de feu, elle verra immédiatement que quelque chose ne va pas. De plus, le feu terrestre ici est trop différent, ce qui me place en position de faiblesse! » Wang Lin était sur le Continent Astral Immortel depuis plus d'un mois, et il en ressentait déjà les divergences.
+« Je dois trancher entre ces deux feux... Sinon, si je rencontre une autre personne possédant une essence de feu, elle verra immédiatement que quelque chose ne va pas. De plus, le feu terrestre ici est trop différent, ce qui me place en position de faiblesse! » Wang Lin était sur le Continent Xian Gang depuis plus d'un mois, et il en ressentait déjà les divergences.
 
 Dans le monde des grottes, il pouvait contrôler tout le feu du monde. Il y était comme l'empereur des flammes et n'avait jamais à se soucier de la consommation de son essence. Tant qu'il respirait, il pouvait rapidement la reconstituer.
 
-Cependant, la situation différait sur le Continent Astral Immortel. Non seulement il était un étranger, mais son essence de feu l'était aussi. Il lui serait très difficile de restaurer son pouvoir igné.
+Cependant, la situation différait sur le Continent Xian Gang. Non seulement il était un étranger, mais son essence de feu l'était aussi. Il lui serait très difficile de restaurer son pouvoir igné.
 
 Ce n'était pas un problème face à des adversaires plus faibles, mais contre des êtres puissants, cela pourrait s'avérer fatal! Dans la Secte Cang Long, bien qu'il ait semblé simple pour Wang Lin d'extraire l'âme du feu terrestre, la tâche ne l'était pas tant que cela.
 
@@ -60,7 +60,7 @@ Il n'avait pas réellement besoin d'extraire cette âme pour quitter la Secte Ca
 
 La force de rejet était extrêmement puissante. Sous la manipulation forcée de Wang Lin, le dragon de feu avait tenté de se rebeller après son départ de la secte. Finalement, sous la pression de Wang Lin, le dragon s'était dissipé dans la terre.
 
-« Le rejet du feu ici est très fort. Puisque le feu du Continent Astral Immortel ne me reconnaît pas, je n'ai pas besoin qu'il me reconnaisse. Je vais le supprimer et l'absorber pour me renforcer! » Les yeux de Wang Lin brillèrent d'un éclat froid. Dans un reniflement méprisant, il ferma les yeux. Son âme originelle s'élança dans son œil gauche et se mua en un oiseau vermillon qui s'en échappa.
+« Le rejet du feu ici est très fort. Puisque le feu du Continent Xian Gang ne me reconnaît pas, je n'ai pas besoin qu'il me reconnaisse. Je vais le supprimer et l'absorber pour me renforcer! » Les yeux de Wang Lin brillèrent d'un éclat froid. Dans un reniflement méprisant, il ferma les yeux. Son âme originelle s'élança dans son œil gauche et se mua en un oiseau vermillon qui s'en échappa.
 
 L'oiseau vermillon, façonné par l'âme originelle de Wang Lin, emplit la grotte d'une chaleur torride avant de disparaître sous terre.
 
@@ -76,11 +76,11 @@ La température de cette onde était capable de faire fondre tous les trésors e
 
 Un éclair de froideur traversa le regard de Wang Lin. Ce rugissement ressemblait à un défi — la collision de deux types de feu distincts lorsqu'ils se rencontraient.
 
-Alors que l'écho du rugissement résonnait, l'Oiseau Vermillon formé par Wang Lin poussa un cri strident. Ce fut le cri de l'Oiseau Vermillon: un hurlement perçant qui devint une épée acérée perçant les entrailles du sol en direction de la source du fracas!
+Alors que l'écho du rugissement résonnait, Suzaku formé par Wang Lin poussa un cri strident. Ce fut le cri de Suzaku: un hurlement perçant qui devint une épée acérée perçant les entrailles du sol en direction de la source du fracas!
 
 Wang Lin se déplaçait avec une rapidité fulgurante dans les profondeurs. Il ne fallut pas longtemps pour qu'il franchisse des distances incommensurables et atteigne bientôt la source du tumulte!
 
-C'était un dragon de feu de plusieurs centaines de milliers de pieds de long, irradiant d'une lueur rouge et entouré d'une aura violente. Ce dragon était enroulé sur lui-même, fixant l'Oiseau Vermillon de Wang Lin. À l'approche de ce dernier, il poussa un nouveau rugissement.
+C'était un dragon de feu de plusieurs centaines de milliers de pieds de long, irradiant d'une lueur rouge et entouré d'une aura violente. Ce dragon était enroulé sur lui-même, fixant Suzaku de Wang Lin. À l'approche de ce dernier, il poussa un nouveau rugissement.
 
 La scène était saisissante. Dans ce monde souterrain, le dragon et l'oiseau vermillon se faisaient face. Le rugissement et le cri entrèrent en collision, déclenchant une bataille de flammes titanesque!
 
@@ -88,25 +88,25 @@ Si un Sens Divin balayait les lieux, il aurait perçu cette scène, mais à l'œ
 
 Cette immense veine de feu *était* le dragon qui rugissait contre Wang Lin! Ce dragon était l'âme même de cette branche de la veine ignée!
 
-De même, si l'on observait l'Oiseau Vermillon de Wang Lin à l'œil nu, on n'y verrait pas un oiseau, mais seulement un feu provenant d'ailleurs, une flamme incapable de se mêler au feu local!
+De même, si l'on observait Suzaku de Wang Lin à l'œil nu, on n'y verrait pas un oiseau, mais seulement un feu provenant d'ailleurs, une flamme incapable de se mêler au feu local!
 
 Dans ce monde, il n'existait qu'un seul concept pour le feu! Les flammes pouvaient parfois en être la représentation, mais elles ne remplaceraient jamais l'essence même du « Feu »!
 
 Le feu est impérieux. Il ne peut coexister avec un autre; il ne peut que fusionner pour n'en former qu'un seul!
 
-Le dragon de feu rugit et chargea. Un feu dense enveloppa son corps pour percuter l'Oiseau Vermillon de Wang Lin, ouvrant sa gueule pour le dévorer.
+Le dragon de feu rugit et chargea. Un feu dense enveloppa son corps pour percuter Suzaku de Wang Lin, ouvrant sa gueule pour le dévorer.
 
-Les yeux de l'Oiseau Vermillon brillèrent sans la moindre hésitation. La simple âme d'une branche de veine de feu n'était pas digne de faire reculer Wang Lin. L'oiseau poussa un sifflement et chargea droit dans la gueule du dragon!
+Les yeux de Suzaku brillèrent sans la moindre hésitation. La simple âme d'une branche de veine de feu n'était pas digne de faire reculer Wang Lin. L'oiseau poussa un sifflement et chargea droit dans la gueule du dragon!
 
-« Tout le feu de ce monde doit obéir à mon commandement et me vénérer comme son maître! Même le feu du Continent Astral Immortel doit se soumettre! » Le Sens Divin de Wang Lin résonna sous terre, empreint de la nature dominante du feu.
+« Tout le feu de ce monde doit obéir à mon commandement et me vénérer comme son maître! Même le feu du Continent Xian Gang doit se soumettre! » Le Sens Divin de Wang Lin résonna sous terre, empreint de la nature dominante du feu.
 
-Le dragon de feu dévora l'Oiseau Vermillon mais afficha une expression de douleur. Son corps se tordit et des flammes jaillirent de ses propres flancs. L'Oiseau Vermillon apparut lentement à l'intérieur du dragon, grandissant jusqu'à l'envelopper totalement avant de devenir parfaitement distinct.
+Le dragon de feu dévora Suzaku mais afficha une expression de douleur. Son corps se tordit et des flammes jaillirent de ses propres flancs. L'Oiseau Vermillon apparut lentement à l'intérieur du dragon, grandissant jusqu'à l'envelopper totalement avant de devenir parfaitement distinct.
 
 Une fois manifeste, il continua d'absorber le feu provenant du dragon. À mesure qu'il se renforçait, les rugissements du dragon s'affaiblissaient. Cependant, alors qu'il était absorbé, le dragon se débattit avec une violence accrue.
 
 À la surface, dans les cent mille montagnes où se trouvait Wang Lin, des grondements tonnants secouèrent la terre. La terre trembla et se fendit, laissant jaillir des flammes qui consumaient tout sur leur passage.
 
-Le processus ne dura pas longtemps. Après l'équivalent du temps d'un bâton d'encens, le feu qui jaillissait du sol se rétracta brusquement et disparut dans les fissures pour retourner dans les profondeurs. Le dragon avait cessé de lutter et l'Oiseau Vermillon était enfin pleinement manifesté. Il ouvrit les yeux, révélant un regard glacial.
+Le processus ne dura pas longtemps. Après l'équivalent du temps d'un bâton d'encens, le feu qui jaillissait du sol se rétracta brusquement et disparut dans les fissures pour retourner dans les profondeurs. Le dragon avait cessé de lutter et Suzaku était enfin pleinement manifesté. Il ouvrit les yeux, révélant un regard glacial.
 
 « Après avoir absorbé l'âme d'une branche de la veine de feu, mon essence de feu s'est considérablement renforcée! » L'Oiseau Vermillon se changea en une mer de flammes et chargea vers la surface, retournant dans l'œil gauche de Wang Lin.
 

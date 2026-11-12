@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1413 - Change To The Heaven Defying Bead!"
 slug: changement-vers-la-perle-defiant-le-ciel
 ---
-Au moment où l'Oiseau Vermillon traversait son quatrième éveil, tout le feu de l'Épreuve Terrestre marqua un bref temps d'arrêt, puis commença à converger de toutes parts. En un clin d'œil, il fusionna intégralement dans le corps de l'Oiseau Vermillon.
+Au moment où Suzaku traversait son quatrième éveil, tout le feu de l'Épreuve Terrestre marqua un bref temps d'arrêt, puis commença à converger de toutes parts. En un clin d'œil, il fusionna intégralement dans le corps de Suzaku.
 
-Les fragments du lotus de feu aux neuf couleurs formèrent une armure aux neuf couleurs autour de l'Oiseau Vermillon. Puis la mer de feu déferla et, en un instant, fut entièrement absorbée par lui.
+Les fragments du lotus de feu aux neuf couleurs formèrent une armure aux neuf couleurs autour de Suzaku. Puis la mer de feu déferla et, en un instant, fut entièrement absorbée par lui.
 
 De loin, il ne ressemblait plus à un Oiseau Vermillon, mais à un esprit de feu éternel! Le feu qui emplissait son corps, à l'intérieur comme à l'extérieur, avait déjà atteint le sommet du feu corporel et n'avait plus qu'une étape à franchir pour atteindre le royaume du Feu Éthéré!
 
-L'esprit de feu de l'Oiseau Vermillon sembla se distordre sous les rugissements des flammes; il traversait sa phase finale de transformation. Ce processus pouvait être long ou court, mais il ne devait en aucun cas être perturbé. Si une telle interruption survenait, cette opportunité unique dans une vie s'évanouirait et le quatrième éveil serait annulé, sans aucune possibilité de le recommencer!
+L'esprit de feu de Suzaku sembla se distordre sous les rugissements des flammes; il traversait sa phase finale de transformation. Ce processus pouvait être long ou court, mais il ne devait en aucun cas être perturbé. Si une telle interruption survenait, cette opportunité unique dans une vie s'évanouirait et le quatrième éveil serait annulé, sans aucune possibilité de le recommencer!
 
 C'était un moment extrêmement critique pour Wang Lin!
 
@@ -130,4 +130,4 @@ Le corps de Wang Lin était devenu comme un tamis alors que l'immense masse de b
 
 Sous la poussée de la force magnétique, tous les feux corporels s'effondrèrent pour se transformer en Feu Éthéré. Cependant, sous l'effet de ce flux magnétique déchaîné, le feu subit une mutation bizarre!
 
-Si l'ancêtre de la première génération de l'Oiseau Vermillon avait été témoin d'un tel changement, il en aurait été lui-même stupéfait!
+Si l'ancêtre de la première génération de Suzaku avait été témoin d'un tel changement, il en aurait été lui-même stupéfait!

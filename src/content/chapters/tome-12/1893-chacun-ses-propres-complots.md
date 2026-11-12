@@ -76,7 +76,7 @@ Après une longue attente, le corps d'essence de tonnerre ne montrait toujours a
 
 Tandis qu'il hurlait, les Messagers du Démon Vert aux côtés de l'homme arborèrent des regards féroces et chargèrent Wang Lin de part et d'autre. En s'approchant, leurs mains formèrent des sceaux et leur culture de milieu du stade de la Tribulation du Vide explosa. Deux scorpions verts géants apparurent, sifflant et rugissant alors qu'ils se précipitaient sur lui.
 
-Cela ne ressemblait plus du tout à un test; il semblait bien qu'ils voulaient réellement la mort de Wang Lin. À cet instant, le seul choix de Wang Lin était d'étendre son esprit dans le corps véritable, d'y ancrer sa volonté et d'activer l'armure d'âme du Taureau Céleste pour les éliminer tous les trois avant de fuir prestement.
+Cela ne ressemblait plus du tout à un test; il semblait bien qu'ils voulaient réellement la mort de Wang Lin. À cet instant, le seul choix de Wang Lin était d'étendre son esprit dans le corps véritable, d'y ancrer sa volonté et d'activer l'armure d'âme du Tian Niu pour les éliminer tous les trois avant de fuir prestement.
 
 Les paroles du vieil homme avaient été soudaines; n'importe qui aurait réagi ainsi. Pourtant, le cœur de Wang Lin tressaillit un instant avant de retrouver son calme. Il était tel un puits antique: son esprit restait parfaitement imperturbable.
 

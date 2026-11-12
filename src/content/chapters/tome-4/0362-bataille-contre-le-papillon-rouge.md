@@ -78,9 +78,9 @@ Bien que les deux combattants ne fussent qu'au stade de la Formation de l'Âme, 
 
 Hongdie était le génie de Xue Yu et, à Suzaku, passait pour la plus douée de tous. Elle avait atteint le stade avancé de la Formation de l'Âme en seulement cent ans et comptait parmi les candidates les plus susceptibles d'atteindre le stade Ascendant.
 
-Ceng Niu, d'origine inconnue, avait réussi à obtenir un chaudron de pluie et à entrer dans le Royaume Céleste. Puis, il lui avait arraché un bras à Hongdie, devenant instantanément célèbre.
+Zeng Niu, d'origine inconnue, avait réussi à obtenir un chaudron de pluie et à entrer dans le Royaume Céleste. Puis, il lui avait arraché un bras à Hongdie, devenant instantanément célèbre.
 
-Si cela avait été tout, l'événement n'aurait pas suscité autant d'intérêt, mais ce Ceng Niu n'était qu'au début du stade de la Formation de l'Âme lorsqu'il était entré dans le Royaume Céleste. Il avait réussi à lutter contre une cultivatrice au stade avancé de la Formation de l'Âme et lui avait même pris un bras. Par conséquent, il était devenu une légende.
+Si cela avait été tout, l'événement n'aurait pas suscité autant d'intérêt, mais ce Zeng Niu n'était qu'au début du stade de la Formation de l'Âme lorsqu'il était entré dans le Royaume Céleste. Il avait réussi à lutter contre une cultivatrice au stade avancé de la Formation de l'Âme et lui avait même pris un bras. Par conséquent, il était devenu une légende.
 
 Désormais, c'était leur second combat, et l'attention de tous était rivée sur eux.
 
@@ -134,7 +134,7 @@ Les environs étaient d'un calme plat et aucune lumière ne filtrait du ciel. Un
 
 De gigantesques arbres antiques poussaient çà et là. À 33 mètres de lui, un python à motifs rouges, gros comme un seau, laissait pendre sa tête d'une fourche d'arbre et le fixait froidement en tirant la langue.
 
-Un cri retentit depuis le ciel: « Ceng Niu! »
+Un cri retentit depuis le ciel: « Zeng Niu! »
 
 Wang Lin s'élança dans les airs et vit un rayon de lumière rouge foncer vers lui. Avant même qu'elle n'atteigne sa cible, une aura glaciale s'était déjà propagée.
 
@@ -146,7 +146,7 @@ Le regard de Wang Lin s'aiguisa et il recula.
 
 Un éclat de lumière rouge apparut au sommet de la sculpture de glace, et Hongdie en émergea. Ses yeux étaient froids alors qu'elle fixait Wang Lin et exhala un éclat brillant qui se mua en une rose de glace flottant devant elle.
 
-Elle avait résolu de ne pas s'engager dans un long combat contre Ceng Niu. Elle utiliserait la méthode la plus rapide pour l'éliminer.
+Elle avait résolu de ne pas s'engager dans un long combat contre Zeng Niu. Elle utiliserait la méthode la plus rapide pour l'éliminer.
 
 Alors que le géant de glace lançait son coup, Hongdie arracha un pétale de rose et le projeta en avant. Le pétale oscillait comme un navire sur une mer déchaînée.
 
@@ -160,4 +160,4 @@ Le choc colossal fit reculer le géant de glace d'un pas. Des fissures apparuren
 
 La main de Wang Lin trembla. Le poing formé par la restriction se brisa et, lorsque les vibrations atteignirent le drapeau de restriction, celui-ci se fissura à son tour.
 
-« Voici un trésor que mon pays de Xue Yu a affiné pendant cinq cents ans: le Dieu de Glace! Ceng Niu, tu vas mourir sans aucun doute! » Les yeux de Hongdie devinrent encore plus glacials tandis qu'elle bougeait la main, et le pétale de rose flottant commença soudainement à se métamorphoser.
+« Voici un trésor que mon pays de Xue Yu a affiné pendant cinq cents ans: le Dieu de Glace! Zeng Niu, tu vas mourir sans aucun doute! » Les yeux de Hongdie devinrent encore plus glacials tandis qu'elle bougeait la main, et le pétale de rose flottant commença soudainement à se métamorphoser.

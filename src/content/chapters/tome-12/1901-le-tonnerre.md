@@ -101,13 +101,13 @@ En d'autres termes, il deviendrait l'équivalent d'un demi-Grand Empyréen!
 
 Une telle puissance ferait de lui un être sans limite, que personne ne pourrait comploter contre lui ou manipuler avec aisance!
 
-Car lui, Wang Lin, allait devenir la dixième personne la plus puissante du Continent Astral Immortel!
+Car lui, Wang Lin, allait devenir la dixième personne la plus puissante du Continent Xian Gang!
 
-Tandis que Wang Lin fusionnait ses essences en contemplant les trois dernières, à l'extérieur du Continent Lu Mo, hors du Continent de l'Est, au-delà des terres célestes... hors du Continent Astral Immortel...
+Tandis que Wang Lin fusionnait ses essences en contemplant les trois dernières, à l'extérieur du Continent Lu Mo, hors du Continent de l'Est, au-delà des terres célestes... hors du Continent Xian Gang...
 
-Si le Continent Astral Immortel était le monde, alors il existait un vide semblable à l'espace au-delà de ce monde.
+Si le Continent Xian Gang était le monde, alors il existait un vide semblable à l'espace au-delà de ce monde.
 
-Dans un lieu extrêmement éloigné du Continent Astral Immortel se trouvait un autre continent. Ce dernier ne pouvait rivaliser avec le Continent Astral; il ne faisait même pas un dixième de sa taille et n'abritait aucune trace de vie.
+Dans un lieu extrêmement éloigné du Continent Xian Gang se trouvait un autre continent. Ce dernier ne pouvait rivaliser avec le Continent Astral; il ne faisait même pas un dixième de sa taille et n'abritait aucune trace de vie.
 
 On n'y voyait que des ruines de mort. C'était comme si une multitude d'êtres y avaient vécu, avant de périr tous dans une catastrophe.
 

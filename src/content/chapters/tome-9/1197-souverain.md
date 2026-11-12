@@ -70,7 +70,7 @@ Ces deux individus étaient des résidents du monde extérieur! Si la Perle Déf
 
 « Ce Monde aux Sept Couleurs est lié à Tian Yunzi ainsi qu'au Souverain… Notamment ces clous aux sept couleurs qui peuvent rendre fou et pousser à massacrer tout être vivant… Le Senior Frère Qing Shui a dit qu'avant l'effondrement du Royaume Céleste, il était en culture fermée lorsqu'il est soudainement devenu fou. Lui-même ignore pourquoi… Tout cela est lié à cette folie! »
 
-« De plus, le vieux Grand Empereur Divin de l'Oiseau Vermillon a dit qu'après que le Senior Frère Qing Shui se soit rendu à l'Alliance Xiu Zhen, il était redevenu fou… Quel secret se cache derrière tout cela? Cela doit être lié à ce Souverain! »
+« De plus, le vieux Grand Empereur Divin de Suzaku a dit qu'après que le Senior Frère Qing Shui se soit rendu à l'Alliance Xiu Zhen, il était redevenu fou… Quel secret se cache derrière tout cela? Cela doit être lié à ce Souverain! »
 
 « Tian Yunzi, Qing Shui, Sima Mo, Souverain… » Wang Lin médita silencieusement.
 

@@ -110,7 +110,7 @@ Sur la Planète du Grand Empereur, le vieux Oiseau Vermillon craignait que l'âm
 
 « Je ne suis pas disposé! » Wang Lin leva la tête. Un feu brûlait dans ses yeux alors qu'il contemplait le vortex céleste.
 
-« Entrer dans cet endroit sous forme d'âme pour affiner mon essence, pour effacer la dernière trace de ma mortalité... Transformer cela en une force de combustion; puisque c'est une combustion de l'âme, les flammes de ce monde pourront se fondre dans mon âme et y semer une flamme d'âme impérissable, en offrande au quatrième éveil de l'Oiseau Vermillon! »
+« Entrer dans cet endroit sous forme d'âme pour affiner mon essence, pour effacer la dernière trace de ma mortalité... Transformer cela en une force de combustion; puisque c'est une combustion de l'âme, les flammes de ce monde pourront se fondre dans mon âme et y semer une flamme d'âme impérissable, en offrande au quatrième éveil de Suzaku! »
 
 « Pourtant, brûler mes sentiments de mortel comme prix est une chose que je ne peux faire! » Wang Lin leva les yeux vers le ciel.
 

@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 394 - The weakest soul transformation and the real Wang Lin
 slug: la-transformation-de-lame-la-plus-faible-et-le-véritable-wang-lin
 ---
-Li Yuanfeng prit une profonde inspiration et dit lentement: « Ceng Niu, n'implique pas les autres dans notre combat. Tous, partez! Éloignez-vous à plus de 5 000 kilomètres. Personne n'est autorisé à approcher. »
+Li Yuanfeng prit une profonde inspiration et dit lentement: « Zeng Niu, n'implique pas les autres dans notre combat. Tous, partez! Éloignez-vous à plus de 5 000 kilomètres. Personne n'est autorisé à approcher. »
 
 Les cultivateurs de la Formation de l'Âme de Xue Yu reculèrent tous. Leur arrivée avait été impétueuse, mais ils devaient repartir ainsi. Ce contraste frappant fit naître en beaucoup d'entre eux une amertume profonde et une crainte immense envers Wang Lin.
 
@@ -62,7 +62,7 @@ Li Yuanfeng recula une fois de plus. Les fissures sur le géant de glace s'accen
 
 « Brise-toi! » rugit Wang Lin, avant de charger soudainement pour percuter la poitrine du géant.
 
-Une série de craquements retentit au sein du colosse de glace. Des fragments tombèrent jusqu'à ce que son corps entier s'effondre. Li Yuanfeng recracha une bouchée de sang en étant projeté en arrière. Ses yeux étaient injectés de sang lorsqu'il hurla: « Ceng Niu, si ce n'était pas parce que mes blessures ne sont pas encore guéries, comment pourrais-je te laisser m'humilier ainsi!? Peu importe. Je vais risquer une chute de mon niveau de culture pour te tuer aujourd'hui! »
+Une série de craquements retentit au sein du colosse de glace. Des fragments tombèrent jusqu'à ce que son corps entier s'effondre. Li Yuanfeng recracha une bouchée de sang en étant projeté en arrière. Ses yeux étaient injectés de sang lorsqu'il hurla: « Zeng Niu, si ce n'était pas parce que mes blessures ne sont pas encore guéries, comment pourrais-je te laisser m'humilier ainsi!? Peu importe. Je vais risquer une chute de mon niveau de culture pour te tuer aujourd'hui! »
 
 Outre leurs domaines, les cultivateurs de la Transformation de l'Âme pouvaient également utiliser l'énergie spirituelle céleste.
 
@@ -92,7 +92,7 @@ Une pensée lui traversa l'esprit, puis les trois étoiles apparurent rapidement
 
 La tête de cette figure perçait les cieux tandis que ses pieds reposaient sur le sol. Dès qu'elle apparut, la figure tendit les deux mains, saisit le parchemin suspendu dans le ciel et déploya les bras pour le dérouler.
 
-Cette scène bizarre laissa Li Yuanfeng pétrifié, le regard fixé vers le ciel. Il resta muet pendant un long moment. Bien qu'il sût que le domaine de Ceng Niu était lié à la vie et à la mort, l'apparition soudaine de cette entité fit trembler son cœur.
+Cette scène bizarre laissa Li Yuanfeng pétrifié, le regard fixé vers le ciel. Il resta muet pendant un long moment. Bien qu'il sût que le domaine de Zeng Niu était lié à la vie et à la mort, l'apparition soudaine de cette entité fit trembler son cœur.
 
 « Quel... quel est ce domaine!?! »
 
@@ -128,7 +128,7 @@ Li Yuanfeng fixa Wang Lin et esquissa un sourire féroce. Sa main forma un sceau
 
 Mais ces sphères de glace contenaient le pouvoir de briser les cieux et la terre.
 
-« Ceng Niu, accepte ta mort! » hurla Li Yuanfeng en poussant ses mains vers l'avant. À cet instant, toutes les sphères de glace tremblèrent et foncèrent sur Wang Lin.
+« Zeng Niu, accepte ta mort! » hurla Li Yuanfeng en poussant ses mains vers l'avant. À cet instant, toutes les sphères de glace tremblèrent et foncèrent sur Wang Lin.
 
 Les âmes et les restrictions ne purent ralentir ces projectiles. Dès qu'elles touchèrent les sphères, elles disparurent dans un nuage de fumée.
 
@@ -146,6 +146,6 @@ Le corps de Wang Lin recula brusquement. Son poing droit tremblait légèrement.
 
 « De même pour l'épée céleste; si elle est imprégnée d'énergie céleste, elle deviendra bien plus redoutable qu'auparavant! » À cet instant, Wang Lin brûlait d'envie d'atteindre le stade de la Transformation de l'Âme. Ses yeux brillaient d'une intensité fulgurante.
 
-« Ceng Niu, meurs! » Les yeux de Li Yuanfeng étaient injectés de sang, ses veines saillantes et son expression féroce. Pourtant, son corps tremblait: c'était le signe qu'il épuisait excessivement l'énergie spirituelle céleste.
+« Zeng Niu, meurs! » Les yeux de Li Yuanfeng étaient injectés de sang, ses veines saillantes et son expression féroce. Pourtant, son corps tremblait: c'était le signe qu'il épuisait excessivement l'énergie spirituelle céleste.
 
 Après tout, il n'avait pas atteint la Transformation de l'Âme par une progression normale; il l'avait forcée. La quantité d'énergie spirituelle céleste qu'il pouvait réellement manipuler restait donc très limitée.

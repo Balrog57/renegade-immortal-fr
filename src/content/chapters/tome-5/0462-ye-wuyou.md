@@ -54,13 +54,13 @@ Il n'y avait qu'une seule condition: être capable de résister à la puissance 
 
 Qian Feng était lui aussi dans un état lamentable. Heureusement, tant que l'on quittait la zone, l'attaque cessait.
 
-Le visage de Qian Feng était féroce lorsqu'il rugit: « Ceng Niu!!! Je jure que je te déchirerai en morceaux! Si je viole ce serment, je mourrai une mort atroce! »
+Le visage de Qian Feng était féroce lorsqu'il rugit: « Zeng Niu!!! Je jure que je te déchirerai en morceaux! Si je viole ce serment, je mourrai une mort atroce! »
 
 Liu Mei fixait silencieusement la mer, l'expression sombre. Voyant que Qian Feng continuait de maudire et de rugir, elle fronça les sourcils: « Tais-toi! Si tu n'avais pas eu ces intentions malveillantes et si nous avions vraiment travaillé ensemble tous les trois, nous serions déjà à l'intérieur du palais au lieu d'être ici. »
 
 Qian Feng eut un regard féroce. Il lança un regard de rage à Liu Mei et dit: « Crois-tu que je n'ai pas remarqué comment vous deux flirtiez en vous lançant des regards? Junior sœur, n'oublie pas ce que tu m'as promis! »
 
-Liu Mei le regarda froidement: « Avec Yun Quezi ici, il sera difficile pour Ceng Niu de récupérer son fragment d'âme. Yun Quezi ne le laissera pas réussir si facilement. »
+Liu Mei le regarda froidement: « Avec Yun Quezi ici, il sera difficile pour Zeng Niu de récupérer son fragment d'âme. Yun Quezi ne le laissera pas réussir si facilement. »
 
 Qian Feng prit une profonde inspiration, retrouva un calme précaire, toucha son sac de rangement et déclara: « Le vieil homme m'a donné quelque chose destiné à être utilisé contre le drapeau des âmes d'un milliard. Puisqu'il peut affecter ce drapeau, il devrait avoir un effet sur les cultivateurs Ascendants également. Une fois que Yun Quezi sera sorti, j'utiliserai ceci. Je ne veux que mon fragment d'âme, mais s'il refuse toujours de me le rendre, je n'aurai d'autre choix que de tout donner! »
 

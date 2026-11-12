@@ -8,7 +8,7 @@ slug: impossible-de-se-tromper
 ---
 Le Souverain apparut à un instant précis. Il surgit au moment même où Wang Lin bandait l'arc pour la deuxième fois. Le Souverain avait déjà le sentiment qu'il devait tuer Wang Lin!
 
-Compte tenu de son niveau de culture, il était déjà entré dans le stade de la Tribulation Arcane; ainsi, hormis quelques individus exceptionnels, personne n'était son adversaire! Quant à son statut, bien qu'il ne fût qu'un esclave sur le Continent Astral Immortel, aux yeux des étrangers il était placé sous la protection de princes et de marquis, et même les êtres les plus puissants devaient lui témoigner un certain respect.
+Compte tenu de son niveau de culture, il était déjà entré dans le stade de la Tribulation Arcane; ainsi, hormis quelques individus exceptionnels, personne n'était son adversaire! Quant à son statut, bien qu'il ne fût qu'un esclave sur le Continent Xian Gang, aux yeux des étrangers il était placé sous la protection de princes et de marquis, et même les êtres les plus puissants devaient lui témoigner un certain respect.
 
 Dans ce monde caverneux, il était le chef des Cinq Maîtres du Royaume Extérieur. Il avait joui d'un rang prestigieux durant d'innombrables années et était vénéré comme un dieu par une multitude de cultivateurs. Il était habitué à dominer les autres.
 

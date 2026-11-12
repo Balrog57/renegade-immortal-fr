@@ -88,7 +88,7 @@ Alors que Wang Lin s'apprêtait à le poursuivre, une intention meurtrière surg
 
 Derrière la femme, Qing Lin suivait rapidement. Il était évident que les trois s'étaient affrontés auparavant, mais la concubine impériale céleste avait réussi à échapper à leur attaque pour poursuivre Wang Lin.
 
-Plus loin encore, la femme en violet de la Rivière Invoquée se déchaînait telle une démone, ayant déjà tué plusieurs cultivateurs du Vide du Nirvana. Elle combattait les deux derniers survivants.
+Plus loin encore, la femme en violet de Zhao He se déchaînait telle une démone, ayant déjà tué plusieurs cultivateurs du Vide du Nirvana. Elle combattait les deux derniers survivants.
 
 Une vieille femme du Vide Arcanique du Royaume Extérieur lui faisait face! La dernière des trois concubines impériales célestes affrontait Maître Hong Shan. Ce dernier n'était manifestement pas de taille, mais il parvenait tant bien que mal à la contenir.
 
@@ -110,7 +110,7 @@ Dès que la porte de pierre fut en place, le temps s'écoula à une vitesse effr
 
 La sueur perla sur le front de Wang Lin alors qu'il siégeait au sommet du Fourneau de l'Empereur. Ses yeux étaient totalement rouges et il poussa un rugissement:
 
-« Senior Qing Lin, Maître Hong Shan, et Senior de la Rivière Invoquée! Vous trois, retenez les deux derniers cultivateurs du Vide Arcanique pour me donner le temps nécessaire à l'établissement des Formations de la Vie et de la Mort, du Karma, ainsi que du Vrai et du Faux!! »
+« Senior Qing Lin, Maître Hong Shan, et Senior de Zhao He! Vous trois, retenez les deux derniers cultivateurs du Vide Arcanique pour me donner le temps nécessaire à l'établissement des Formations de la Vie et de la Mort, du Karma, ainsi que du Vrai et du Faux!! »
 
 Les trois compagnons acquiescèrent d'un signe de tête. Ils commencèrent à unir leurs forces pour contenir les deux derniers cultivateurs du Vide Arcanique afin d'empêcher toute interruption dans le travail de Wang Lin.
 

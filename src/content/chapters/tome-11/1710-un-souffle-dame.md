@@ -28,7 +28,7 @@ Ils contemplèrent la lumière violette et démoniaque émanant du Sang d'Âme a
 
 Les débats firent écho alors que tous restaient bouleversés par cette goutte de Sang d'Âme. Heureusement, cet endroit avait été scellé par le Grand Empyréen Xuan Luo qui, de sa puissance immense, empêcha quiconque de divulguer ce qui s'était produit ici.
 
-Faute de quoi, cette nouvelle aurait provoqué une onde de choc monumentale sur le Continent Astral Immortel. Les clans Ji et Shi ne tarderaient pas à venir enquêter dès qu'ils en auraient appris connaissance, ce qui pourrait même déclencher un conflit.
+Faute de quoi, cette nouvelle aurait provoqué une onde de choc monumentale sur le Continent Xian Gang. Les clans Ji et Shi ne tarderaient pas à venir enquêter dès qu'ils en auraient appris connaissance, ce qui pourrait même déclencher un conflit.
 
 Il faut dire que l'apparition de la dixième goutte de Sang d'Âme était d'une importance capitale pour le pays ancestral. Si Wang Lin parvenait à obtenir deux gouttes supplémentaires, il pourrait disperser son essence sanguine et fonder un quatrième clan ancien, à l'instar des trois fils de l'Ancêtre Ancien!
 

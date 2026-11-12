@@ -34,7 +34,7 @@ Le cultivateur aux grandes oreilles examina attentivement chaque sculpture avant
 
 Il les observa longuement, puis esquissa un sourire. Il ne se comportait nullement comme un étranger. D'un revers de manche, il s'installa face à Wang Lin.
 
-« Cher compagnon cultivateur, me permettriez-vous de partager un verre? » demanda-t-il en sortant délicatement une coupe.
+« Cher Daoïste, me permettriez-vous de partager un verre? » demanda-t-il en sortant délicatement une coupe.
 
 Wang Lin le regarda et lança le pichet de vin vers lui. Le cultivateur aux grandes oreilles attrapa le récipient et se servit. En buvant, une lueur étrange brilla dans ses yeux: « Délicieux! »
 

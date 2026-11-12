@@ -20,9 +20,9 @@ Le ciel du Royaume Céleste était limpide et la lumière du soleil émanait d'u
 
 La montagne où se trouvait Wang Lin était plongée dans un grand calme. À l’abri de la Voile Fantôme, il resta longtemps les yeux levés vers le ciel...
 
-« Wan Er... Bientôt, je partirai pour le Continent Astral Immortel... Là-bas, je trouverai un moyen de te réveiller... Fais-moi confiance, fais-moi confiance... Comme je te l'ai promis autrefois, même si le Ciel veut ta mort, je te reprendrai! » Dans ce silence environnant, son cœur était à la fois serein et mélancolique.
+« Wan Er... Bientôt, je partirai pour le Continent Xian Gang... Là-bas, je trouverai un moyen de te réveiller... Fais-moi confiance, fais-moi confiance... Comme je te l'ai promis autrefois, même si le Ciel veut ta mort, je te reprendrai! » Dans ce silence environnant, son cœur était à la fois serein et mélancolique.
 
-Wang Lin sentait vaguement qu’il ne lui restait plus beaucoup de temps dans le monde des cavernes. Bientôt, il devrait probablement quitter cet endroit pour rejoindre le lointain Continent Astral Immortel.
+Wang Lin sentait vaguement qu’il ne lui restait plus beaucoup de temps dans le monde des cavernes. Bientôt, il devrait probablement quitter cet endroit pour rejoindre le lointain Continent Xian Gang.
 
 Au cours de sa vie, Wang Lin avait parcouru de nombreux lieux étrangers, et la solitude l'avait accompagné tout au long de ses voyages. Bien qu'il eût été seul, Li Muwan avait été à ses côtés, rendant son isolement un peu plus léger et supportable.
 

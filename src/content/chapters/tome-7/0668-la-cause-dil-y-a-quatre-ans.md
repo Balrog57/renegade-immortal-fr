@@ -84,7 +84,7 @@ L'expression de Wang Lin resta imperturbable alors qu'il fixait le deuxième ét
 
 Sun Xi ne s'en offusqua pas et ajouta: « Le problème, c'est que ces pilules étaient un peu compromettantes. Nous avons trouvé un jeton de la famille Huan de la planète Qianhuan dans le sac du cultivateur tué par l'Ancêtre de la famille Ran... »
 
-Wang Lin tourna la tête vers Sun Xi et dit d'un ton neutre: « Cher compagnon cultivateur Sun, je n'apprécie guère les récits. »
+Wang Lin tourna la tête vers Sun Xi et dit d'un ton neutre: « Cher Daoïste Sun, je n'apprécie guère les récits. »
 
 Sun Xi eut un léger sourire: « Frère Xu, si je ne vous avais pas raconté cette histoire, quelqu'un d'autre l'aurait fait. Cette ville appartient à ma famille Sun, et pourtant la pilule est vendue aux enchères ici. Je pense qu'avec votre sagesse, vous en comprenez la raison. »
 

@@ -24,7 +24,7 @@ La tête de l'Ancêtre Céleste rétrécissait rapidement sous la pénétration 
 
 À mesure qu'elle diminuait, le soleil tricolore de Wang Lin devenait plus brillant et plus solide. Une fois que la tête serait totalement fondue et absorbée par le soleil tricolore, celui-ci deviendrait un véritable soleil de Grand Empyréen, et Wang Lin deviendrait un véritable Grand Empyréen!
 
-Il serait le deuxième Grand Empyréen le plus puissant du Continent Astral Immortel après le Grand Empyréen Gu Dao!
+Il serait le deuxième Grand Empyréen le plus puissant du Continent Xian Gang après le Grand Empyréen Gu Dao!
 
 Au loin, le démon ancien imprégné du Sens Divin de Song Tian haleta avant de reprendre ses esprits. Il refusait de croire ce qu'il voyait, mais la réalité s'imposait à lui; il n'avait d'autre choix que de l'accepter. À cet instant, son cœur trembla et, sans hésiter, il commença à battre en retraite.
 
@@ -70,17 +70,17 @@ Cette aura était invisible, seul Wang Lin pouvait la ressentir. Dès qu'elle to
 
 Elle fut intégralement absorbée par le soleil tricolore de Wang Lin. Après cette absorption, le soleil devint un objet corporel!
 
-Wang Lin acheva son soleil de Grand Empyréen et l'envoya dans le ciel du Continent Astral Immortel pour qu'il devienne le dixième soleil. C'était le symbole de sa véritable ascension en tant que Grand Empyréen. Auparavant, Wang Lin ne pouvait être considéré comme un véritable Grand Empyréen!
+Wang Lin acheva son soleil de Grand Empyréen et l'envoya dans le ciel du Continent Xian Gang pour qu'il devienne le dixième soleil. C'était le symbole de sa véritable ascension en tant que Grand Empyréen. Auparavant, Wang Lin ne pouvait être considéré comme un véritable Grand Empyréen!
 
 Une fois son soleil de Grand Empyréen totalement formé, Wang Lin leva les deux mains et le regard vers les cieux. Ce soleil tricolore semblait soutenu par une force invisible et s'éleva lentement dans l'azur.
 
-En voyant son propre soleil foncer vers le point le plus haut du firmament, Wang Lin se souvint soudain de l'époque où une trace de son Sens Divin était entrée sur le Continent Astral Immortel et avait découvert cette étrange scène de neuf soleils dans le ciel.
+En voyant son propre soleil foncer vers le point le plus haut du firmament, Wang Lin se souvint soudain de l'époque où une trace de son Sens Divin était entrée sur le Continent Xian Gang et avait découvert cette étrange scène de neuf soleils dans le ciel.
 
 « Grand Empyréen... » murmura Wang Lin en regardant son propre soleil libérer une puissante explosion de lumière tricolore.
 
 À cet instant, alors que Wang Lin propulsait son soleil dans les cieux, cela affecta les soleils de tous les autres Grands Empyréens!
 
-Au sein du Clan Céleste, dans la Secte Dao Yi, sur le Continent Bei, dans la Secte Yang Pourpre et au Mont Empereur, chaque soleil de Grand Empyréen respectif s'éleva et brilla intensément.
+Au sein du Clan Céleste, dans la Secte Dao Yi, sur le Continent Bei, dans la Secte Zi Yang et au Mont Di, chaque soleil de Grand Empyréen respectif s'éleva et brilla intensément.
 
 Peu après, dans le palais impérial de la cité ancestrale, un soleil doré apparut, formant le cinquième soleil du Clan Céleste!
 
@@ -88,13 +88,13 @@ Simultanément, dans le Clan Ancien, le soleil de Xuan Luo apparut au-dessus du 
 
 Et le soleil de Song Tian apparut lui aussi, échappant à tout contrôle, pour s'envoler vers les cieux.
 
-Le dernier à paraître fut celui du Grand Empyréen Gu Dao. À cet instant, dix soleils apparurent soudainement au-dessus du Continent Astral Immortel!
+Le dernier à paraître fut celui du Grand Empyréen Gu Dao. À cet instant, dix soleils apparurent soudainement au-dessus du Continent Xian Gang!
 
 Les neuf autres soleils n'étaient pas apparus par volonté de leurs propriétaires, mais parce qu'ils avaient été attirés par le soleil de Wang Lin.
 
 Aucun Grand Empyréen ne fut surpris. Hormis lors de l'héritage du pouvoir par l'Empereur Céleste, c'était un signe céleste qui se manifestait chaque fois qu'un être devenait un Grand Empyréen!
 
-Et à ce moment-là, puisque tous les soleils de Grand Empyréen étaient présents dans le ciel, l'énergie du Continent Astral Immortel entra en ébullition. Cela permit aux autres Grands Empyréens de ressentir distinctement l'aura du nouveau venu!
+Et à ce moment-là, puisque tous les soleils de Grand Empyréen étaient présents dans le ciel, l'énergie du Continent Xian Gang entra en ébullition. Cela permit aux autres Grands Empyréens de ressentir distinctement l'aura du nouveau venu!
 
 Il existait une différence de taille flagrante entre les dix soleils. Le plus imposant était celui du Grand Empyréen Gu Dao — son soleil était presque équivalent à la somme des huit autres, à l'exception du soleil tricolore de Wang Lin.
 

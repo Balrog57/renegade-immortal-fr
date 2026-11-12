@@ -28,7 +28,7 @@ Après avoir réfléchi un instant, Wang Lin fit glisser sa main sur le miroir d
 
 L'animal fut déconcerté, mais poussa rapidement quelques cris de rage. La moustique fixa Wang Lin, sa bouche redevenant rouge. Cependant, elle n'osa pas l'attaquer. Après un court instant, elle fit demi-tour pour s'enfuir.
 
-Un éclair passa dans les yeux de Wang Lin et il lança: « Tu comptes fuir? » Sur ces mots, il agita la main droite et un petit drapeau apparut dans sa paume. Une puissante intention meurtrière émanait de l'objet. C'était le drapeau de restriction d'attribut unique. Il s'agissait du trésor le plus puissant de Wang Lin; même lui n'osait pas le raffiner jusqu'au premier niveau de complétion, car si le drapeau atteignait ce stade, la rétribution divine frapperait et, sans la protection du brouillard de la Mer Xiu Mo, il y avait de fortes chances que l'artefact soit réduit en poussière.
+Un éclair passa dans les yeux de Wang Lin et il lança: « Tu comptes fuir? » Sur ces mots, il agita la main droite et un petit drapeau apparut dans sa paume. Une puissante intention meurtrière émanait de l'objet. C'était le drapeau de restriction d'attribut unique. Il s'agissait du trésor le plus puissant de Wang Lin; même lui n'osait pas le raffiner jusqu'au premier niveau de complétion, car si le drapeau atteignait ce stade, la Tribulation Céleste frapperait et, sans la protection du brouillard de la Mer Xiu Mo, il y avait de fortes chances que l'artefact soit réduit en poussière.
 
 En conséquence, il s'était arrêté à 98 groupes de restrictions.
 

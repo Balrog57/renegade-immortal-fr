@@ -8,7 +8,7 @@ slug: mu-bingmei
 ---
 À cet instant, Ta Jia ouvrit les bras et l'illusion d'un croissant de lune apparut derrière lui. Puis, d'un seul « Enterrement Lunaire », les trésors du Vide devant les cinq anciens s'effondrèrent. Ils furent repoussés violemment et recrachèrent des traînées de sang.
 
-Le géant de flammes, formé par près de cent disciples de la Secte Divine de l'Oiseau Vermillon, se désintégra sous le sort, et les quelque cent âmes originelles retournèrent dans leurs corps.
+Le géant de flammes, formé par près de cent disciples de la Secte Divine de Suzaku, se désintégra sous le sort, et les quelque cent âmes originelles retournèrent dans leurs corps.
 
 Ils toussèrent tous un large flot de sang.
 

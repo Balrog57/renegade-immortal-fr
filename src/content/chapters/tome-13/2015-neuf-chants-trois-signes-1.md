@@ -114,8 +114,8 @@ C'était le son du tonnerre. Des grondements tonnants résonnèrent de toutes pa
 
 Le tonnerre résonna et fusionna avec le chant du vent. Le souffle et la foudre se mêlèrent, comme si dix mille chevaux chargeaient à travers le ciel doré et la terre noire!
 
-« À la naissance de l'Ancêtre Ancien, neuf chants l'accompagnèrent. Si les neuf chants apparaissent tous, ils peuvent composer une chanson de naissance... Depuis les temps anciens, la rumeur dit que lorsque les neuf chants et les trois signes se manifestent sur le Continent Astral Immortel, le successeur de l'Ancêtre Céleste et de l'Ancêtre Ancien apparaîtra... » Xuan Luo regarda Wang Lin. Il eut soudain l'impression de ne plus rien comprendre à son disciple...
+« À la naissance de l'Ancêtre Ancien, neuf chants l'accompagnèrent. Si les neuf chants apparaissent tous, ils peuvent composer une chanson de naissance... Depuis les temps anciens, la rumeur dit que lorsque les neuf chants et les trois signes se manifestent sur le Continent Xian Gang, le successeur de l'Ancêtre Céleste et de l'Ancêtre Ancien apparaîtra... » Xuan Luo regarda Wang Lin. Il eut soudain l'impression de ne plus rien comprendre à son disciple...
 
 « Dans le monde des grottes, j'ai aussi vu chez lui... des yeux argentés... »
 
-« Ce n'est qu'une rumeur qui parcourt le Continent Astral Immortel... Serait-ce lui? » Xuan Luo sombra dans une transe, peinant à croire à tout ce qui venait de se produire.
+« Ce n'est qu'une rumeur qui parcourt le Continent Xian Gang... Serait-ce lui? » Xuan Luo sombra dans une transe, peinant à croire à tout ce qui venait de se produire.

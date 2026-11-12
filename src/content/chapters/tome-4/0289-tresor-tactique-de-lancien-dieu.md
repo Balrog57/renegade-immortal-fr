@@ -46,7 +46,7 @@ Au cours des dernières décennies, la guerre n'avait eu aucun répit dans la Me
 
 L'objectif de Wang Lin était la terre de l'Ancien Dieu située dans les Étoiles Brisées du Chaos, au sein de la Mer Xiu Mo. Après avoir obtenu l'héritage de la mémoire, il possédait une technique lui permettant d'entrer et de sortir de cet endroit à sa guise.
 
-Wang Lin réfléchit longuement. C'était le seul endroit où il pourrait achever le drapeau de restriction sans déclencher la rétribution divine qui aurait détruit l'objet. En outre, le lieu regorgeait de bêtes spirituelles et même de bêtes désolées; Wang Lin souhaitait en capturer une.
+Wang Lin réfléchit longuement. C'était le seul endroit où il pourrait achever le drapeau de restriction sans déclencher la Tribulation Céleste qui aurait détruit l'objet. En outre, le lieu regorgeait de bêtes spirituelles et même de bêtes désolées; Wang Lin souhaitait en capturer une.
 
 Il voulait tout mettre en œuvre pour se préparer à l'ouverture du royaume céleste de la Pluie. Il avait même prévu de visiter le champ de bataille étranger afin de rassembler suffisamment d'âmes errantes et de démons.
 
@@ -84,7 +84,7 @@ Le nuage rouge s'était dissipé; le vieil homme, toujours sur le dos de la tort
 
 Le regard de Wang Lin restait serein. Après avoir réfléchi un moment, il trouva un endroit pour s'asseoir. Bien qu'il ait fermé les yeux pour feindre la culture, son sens divin demeurait en alerte. Il voulait découvrir le véritable objectif du vieil homme. Si celui-ci comptait aussi entrer dans la terre de l'Ancien Dieu, Wang Lin n'y pénétrerait pas en premier, mais attendrait que le vieil homme soit entré.
 
-Le vieil homme regarda à nouveau Wang Lin et dit soudainement: « Puisque ce compagnon cultivateur est également présent, je suppose que vous êtes ici pour collecter du Feu d'Aurore. Que diriez-vous de pénétrer ensemble? »
+Le vieil homme regarda à nouveau Wang Lin et dit soudainement: « Puisque ce Daoïste est également présent, je suppose que vous êtes ici pour collecter du Feu d'Aurore. Que diriez-vous de pénétrer ensemble? »
 
 L'expression de Wang Lin ne changea pas, mais son cœur tressaillit en se demandant ce qu'était ce Feu d'Aurore. Rien dans les souvenirs de Tu Si ni dans son propre parcours de culture ne mentionnait une telle chose; il n'en avait jamais entendu parler.
 

@@ -110,7 +110,7 @@ Cette méthode permettait aux puissants cultivateurs de la Secte Dong Lin de dé
 
 C'était une terre sombre et infinie. Le ciel était terne, comme au crépuscule, quand poussière et brume sont soulevées. Il s'agissait d'une faille spatiale créée par la Secte Dong Lin.
 
-L'endroit imitait une zone du Continent Astral Immortel.
+L'endroit imitait une zone du Continent Xian Gang.
 
 Lorsque Wang Lin apparut, il se trouvait sur une plaine couverte d'herbes aussi hautes qu'un homme. L'endroit où il venait de surgir était exactement le même que dans les souvenirs de Sept-Couleurs.
 

@@ -10,7 +10,7 @@ Dès que Qingxuan eut fini de parler, l'expression de la cultivatrice qui se ten
 
 Cette femme n'était autre que la Junior sœur de Ma Liang, Xu Si, celle qui hantait ses pensées jusque sur le champ de bataille étranger.
 
-Elle salua Qingxuan, puis tourna un regard glacial et méprisant vers Wang Lin en déclarant: « D'où vient cet être maléfique? Comment ose-t-il prétendre être un disciple du Sanctuaire du Dieu de la Guerre? Senior frère Qingxuan, je vous en prie, aidez-moi à éliminer cet individu! » Sur ces mots, elle frappa son sac de rangement, et une aiguille de plume noire d'environ deux pouces apparut dans sa main. D'un mouvement fluide du poignet, les aiguilles de plume s'abattirent sur Wang Lin comme une pluie torrentielle.
+Elle salua Qingxuan, puis tourna un regard glacial et méprisant vers Wang Lin en déclarant: « D'où vient cet être maléfique? Comment ose-t-il prétendre être un disciple du Temple Zhan Shen? Senior frère Qingxuan, je vous en prie, aidez-moi à éliminer cet individu! » Sur ces mots, elle frappa son sac de rangement, et une aiguille de plume noire d'environ deux pouces apparut dans sa main. D'un mouvement fluide du poignet, les aiguilles de plume s'abattirent sur Wang Lin comme une pluie torrentielle.
 
 Les aiguilles grossirent au vent, striées de filaments de lumière grise, et se changèrent en une véritable averse noire qui, comme portée par le vent, couvrit le ciel avant de pleuvoir sur Wang Lin.
 
@@ -22,7 +22,7 @@ Le visage magnifique de la jeune femme pâlit instantanément et un filet de san
 
 À cet instant précis, trois lueurs d'épée surgirent du milieu de l'armée de cultivateurs. Lorsqu'elles atteignirent le groupe, elles révélèrent trois jeunes hommes, parmi lesquels se trouvait Yang Xiong.
 
-Il jeta un regard à la femme, puis se tourna vers Qingxuan: « Merci de votre peine, frère Qingxuan. Le Junior Ma Liang est bel et bien un disciple du Sanctuaire du Dieu de la Guerre. Merci de l'avoir guidé jusqu'ici. »
+Il jeta un regard à la femme, puis se tourna vers Qingxuan: « Merci de votre peine, frère Qingxuan. Le Junior Ma Liang est bel et bien un disciple du Temple Zhan Shen. Merci de l'avoir guidé jusqu'ici. »
 
 Qingxuan les observa avec insistance. Il laissa échapper un petit rire, secoua la tête et s'éloigna. Après avoir fait quelques pas, il se retourna et vit Yang Xiong faire preuve d'un immense respect envers Ma Liang. Cela le surprit. Après avoir réfléchi un instant, il changea de direction pour se diriger vers la Secte He Tu.
 
@@ -68,17 +68,17 @@ Peu après, une bête de feu après l'autre vit apparaître ces taches rouges su
 
 Les créatures transformées s'envolèrent dans les airs pour poursuivre l'armée des cultivateurs. De plus en plus de bêtes de feu mutantes rejoignirent la traque, créant un spectacle terrifiant.
 
-Quant à l'armée de cultivateurs, parmi les dix membres de l'Âme Naissante revenant du combat, quatre rejoignirent le groupe du Sanctuaire du Dieu de la Guerre. L'un des vieillards aux cheveux gris balaya le chariot du regard et fixa Wang Lin. Sa voix était glaciale lorsqu'il demanda: « Est-ce ce junior qui a attiré les bêtes de feu ici? »
+Quant à l'armée de cultivateurs, parmi les dix membres de l'Âme Naissante revenant du combat, quatre rejoignirent le groupe du Temple Zhan Shen. L'un des vieillards aux cheveux gris balaya le chariot du regard et fixa Wang Lin. Sa voix était glaciale lorsqu'il demanda: « Est-ce ce junior qui a attiré les bêtes de feu ici? »
 
 Wang Lin fixa le vieillard d'un regard froid et hocha la tête.
 
 L'homme laissa échapper quelques grognements méprisants, puis sa main gigantesque se tendit vers Wang Lin. Le visage de Feng Luan s'assombrit légèrement lorsqu'elle frappa le char du phénix aux cinq couleurs. Un phénix aux cinq couleurs apparut et poussa un cri perçant. Il battit des ailes et une onde annulaire multicolore se propagea.
 
-L'homme retira sa main. Il fixa la femme et cria avec colère: « Feng Luan, que fais-tu? Non seulement cet individu s'est emparé du corps d'un disciple de notre Sanctuaire du Dieu de la Guerre, mais il a aussi attiré les bêtes de feu! Tu sais pourtant que plus de mille disciples de Huo Fen sont morts dans cette bataille! »
+L'homme retira sa main. Il fixa la femme et cria avec colère: « Feng Luan, que fais-tu? Non seulement cet individu s'est emparé du corps d'un disciple de notre Temple Zhan Shen, mais il a aussi attiré les bêtes de feu! Tu sais pourtant que plus de mille disciples de Huo Fen sont morts dans cette bataille! »
 
 Feng Luan afficha un regard déterminé et trancha: « Tant que je serai là, tu ne pourras pas le tuer. »
 
-Zhou Jin fixa Feng Luan d'un air sombre. Après une courte réflexion, il déclara: « Cet individu n'est pas Ma Liang, il n'est donc pas un disciple de mon Sanctuaire du Dieu de la Guerre. Je veux bien ne pas le tuer, mais il n'est pas du Sanctuaire du Dieu de la Guerre et ne peut donc pas rester ici. »
+Zhou Jin fixa Feng Luan d'un air sombre. Après une courte réflexion, il déclara: « Cet individu n'est pas Ma Liang, il n'est donc pas un disciple de mon Temple Zhan Shen. Je veux bien ne pas le tuer, mais il n'est pas du Temple Zhan Shen et ne peut donc pas rester ici. »
 
 Feng Luan se tourna vers Wang Lin et demanda: « Wang Lin, es-tu prêt à devenir mon disciple honorifique? »
 

@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1843 - Breakthrough!"
 slug: percee
 ---
-Ils étaient trois généraux: l'Oiseau Vermillon, le Tigre Blanc et la Tortue Noire, sortis du monde des grottes. Ils étaient arrivés sur le Continent Astral Immortel il y a de nombreuses années et avaient constaté que la Secte Qi Dao n'existait plus. Ils avaient alors choisi de partir pour devenir des cultivateurs errants.
+Ils étaient trois généraux: Suzaku, le Tigre Blanc et la Tortue Noire, sortis du monde des grottes. Ils étaient arrivés sur le Continent Xian Gang il y a de nombreuses années et avaient constaté que la Secte Qi Dao n'existait plus. Ils avaient alors choisi de partir pour devenir des cultivateurs errants.
 
 Ils avaient déjà connu la célébrité et leur heure de gloire. Cependant, ils approchaient de la fin de leur existence; ils étaient simplement las et aspiraient au repos.
 
@@ -18,7 +18,7 @@ Lorsque ces paroles parvinrent à ses oreilles, le visage pâle du Tigre Blanc e
 
 « Il est inutile que vous parliez. Comment pourrais-je m'échapper seul?! Nous sommes entrés dans le monde des grottes ensemble et, si la mort de Dragon Azure était compréhensible, n'avions-nous pas convenu de rester ici jusqu'à notre dernier souffle? N'avions-nous pas promis de trouver trois juniors talentueux pour transmettre notre Dao... »
 
-« Nous n'avons encore rien accompli, alors comment pourrais-je vivre en m'enfuyant seul?! » Le Tigre Blanc poussa un rugissement alors qu'il s'élançait, portant la Tortue Noire et l'Oiseau Vermillon.
+« Nous n'avons encore rien accompli, alors comment pourrais-je vivre en m'enfuyant seul?! » Le Tigre Blanc poussa un rugissement alors qu'il s'élançait, portant la Tortue Noire et Suzaku.
 
 Derrière eux, un jeune homme au visage de jade blanc les poursuivait lentement, un éventail à la main. Le nommé Qian affichait un regard venimeux et laissa échapper un rire glacial tout en poursuivant sa course.
 

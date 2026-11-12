@@ -84,7 +84,7 @@ C'est à ce moment précis, alors que le Bassin Funéraire Céleste allait dispa
 
 Alors que les paroles venimeuses de Qiu Yao résonnaient, le Bassin Funéraire Céleste s'effondra. D'innombrables âmes furent déchiquetées, se transformant en une puissance destructrice qui s'engouffra dans le vortex. Après l'entrée d'une force de destruction incommensurable, un changement terrifiant se produisit.
 
-Le vortex jaillit soudainement, se muant en un immense tourbillon capable de tout anéantir sur son passage, et s'élança droit vers le ciel. À cet instant, l'expression du Maître du Vide changea; il saisit la belle femme d'âge moyen ainsi que la jeune fille, suspectée d'être la Sainte du Vide Brillant, et s'enfuit.
+Le vortex jaillit soudainement, se muant en un immense tourbillon capable de tout anéantir sur son passage, et s'élança droit vers le ciel. À cet instant, l'expression de Xu Kongzi changea; il saisit la belle femme d'âge moyen ainsi que la jeune fille, suspectée d'être la Sainte de Kun Xu, et s'enfuit.
 
 Tian Yunzi et ses compagnons firent de même. En un instant, tout le monde se dispersa comme des oiseaux.
 
@@ -112,7 +112,7 @@ Alors que l'onde de choc se propageait, le lieu fut envahi par un rugissement as
 
 Tous furent contraints à la dispersion par l'effondrement du Bassin Funéraire Céleste!
 
-Même le Maître du Vide pâlit sous l'effet de ses blessures. Il ne prit même pas la peine de protéger la belle femme ou la jeune fille, lui-même projeté par l'onde de choc. Il percuta une restriction à l'intérieur de la grotte et disparut.
+Même Xu Kongzi pâlit sous l'effet de ses blessures. Il ne prit même pas la peine de protéger la belle femme ou la jeune fille, lui-même projeté par l'onde de choc. Il percuta une restriction à l'intérieur de la grotte et disparut.
 
 Quant à la belle femme et à la jeune fille en rose, elles furent également dispersées; chacune toucha une restriction différente et s'évanouit sans laisser de trace.
 

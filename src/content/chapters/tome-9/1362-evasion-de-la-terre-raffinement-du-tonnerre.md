@@ -62,13 +62,13 @@ Dans son élan, la puissance du Dieu Ancien gronda dans son corps et sa culture 
 
 À son cri, le feu bleu se propagea immédiatement, couvrant toute la zone d'une mer de flammes en un instant!
 
-« Tonnerre! » L'œil droit de Wang Lin brilla, tout comme sa marque de tonnerre. Le dragon géant sous lui s'enroula autour de lui, et l'Oiseau Vermillon et le dragon se croisèrent. Un sortilège terrifiant de tonnerre et de feu apparut!
+« Tonnerre! » L'œil droit de Wang Lin brilla, tout comme sa marque de tonnerre. Le dragon géant sous lui s'enroula autour de lui, et Suzaku et le dragon se croisèrent. Un sortilège terrifiant de tonnerre et de feu apparut!
 
 « Bataille!!! » rugit Wang Lin alors que l'Épée de Sang surgissait, atteignant instantanément mille pieds de long. Wang Lin s'en saisit fermement!
 
 Au moment où il empoigna l'Épée de Sang, la silhouette du Dieu Ancien leva les mains. Dans un éclat de lumière écarlate, une épée de sang longue de plusieurs dizaines de milliers de pieds apparut dans ses mains!
 
-À cet instant, la puissance du Dieu Ancien de Wang Lin pénétra dans l'Épée de Sang. La mer de feu bleu se déversa dans l'arme; même l'Oiseau Vermillon bleu devint une partie intégrante de l'Épée de Sang!
+À cet instant, la puissance du Dieu Ancien de Wang Lin pénétra dans l'Épée de Sang. La mer de feu bleu se déversa dans l'arme; même Suzaku bleu devint une partie intégrante de l'Épée de Sang!
 
 Simultanément, le dragon de tonnerre s'engouffra soudainement dans le corps de Wang Lin. Son corps fut tel un trou noir, absorbant la totalité du dragon. Puis, il redirigea toute la puissance du dragon vers l'Épée de Sang!
 

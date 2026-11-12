@@ -64,7 +64,7 @@ Quant à Wang Lin, il ressemblait à un érudit fragile, une proie facile. Les y
 
 Hongdie avait l'impression de connaître ce visage d'érudit, mais elle ne parvenait pas à s'en souvenir. Elle scruta également l'inconnu pour tenter de déceler la nature de ses techniques. Le jeune homme assoiffé de sang et le vieil homme aux cheveux blancs regardèrent aussi; après tout, Wang Lin venait du Suzaku, tout comme eux.
 
-L'individu se tint sur la plateforme de Wang Lin et dit froidement: « Cher compagnon de culture, veuillez quitter cette plateforme pour en trouver une autre. » Bien que sa voix fût glaciale, ses échecs successifs avaient considérablement entamé son arrogance.
+L'individu se tint sur la plateforme de Wang Lin et dit froidement: « Cher Daoïste, veuillez quitter cette plateforme pour en trouver une autre. » Bien que sa voix fût glaciale, ses échecs successifs avaient considérablement entamé son arrogance.
 
 Le regard de Wang Lin resta calme; il ne dit mot. Il fit un geste de la main et un bracelet se détacha de son poignet pour se transformer en un immense crapaud.
 

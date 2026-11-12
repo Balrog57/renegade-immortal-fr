@@ -64,9 +64,9 @@ Certains Ascendants, amis entre eux, communiquaient par le biais de leur sens di
 
 Wang Lin méditait silencieusement au cœur de cette brume.
 
-« Le Taureau Céleste est apparu parmi les neuf esprits du 12e palais... Je pouvais sentir que franchir le 12e palais marquait la limite de l'armure de l'âme... »
+« Le Tian Niu est apparu parmi les neuf esprits du 12e palais... Je pouvais sentir que franchir le 12e palais marquait la limite de l'armure de l'âme... »
 
-« L'armure de l'âme n'est pas omnipotente. Elle peut élever mon niveau de culture et accroître ma puissance de combat, mais à mesure que ma culture progresse, son efficacité diminue progressivement. Après tout, elle ne peut que me rapprocher infiniment du Taureau Céleste... »
+« L'armure de l'âme n'est pas omnipotente. Elle peut élever mon niveau de culture et accroître ma puissance de combat, mais à mesure que ma culture progresse, son efficacité diminue progressivement. Après tout, elle ne peut que me rapprocher infiniment du Tian Niu... »
 
 « Cependant, en vérité, l'écart subsiste. »
 

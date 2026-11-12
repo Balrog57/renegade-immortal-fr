@@ -32,7 +32,7 @@ Chaque fois que ce bruit résonnait, d'innombrables ondulations apparaissaient d
 
 Cela pouvait être comparé au tonnerre. Ce fracas puissant était le résultat de cette force extrême frappant la barrière spatiale!
 
-Les cheveux blancs de Maître Yan Leizi flottaient au vent alors qu'il hurlait: « Compagnons cultivateurs, aidez-moi! »
+Les cheveux blancs de Maître Yan Leizi flottaient au vent alors qu'il hurlait: « Daoïstes, aidez-moi! »
 
 Les yeux des vieux monstres installés sur les tapis de prière brillèrent intensément, y compris ceux du Dieu Sanguin. Ils s'envolèrent tous dans les airs et s'assirent avant de déployer leurs divers sorts. Ces sortilèges furent projetés dans le vortex, multipliant sa puissance par plusieurs fois.
 

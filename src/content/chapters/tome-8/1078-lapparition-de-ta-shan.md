@@ -26,17 +26,17 @@ Il leva ensuite sa main droite et pointa l'horizon. L'ombre d'un Oiseau Vermillo
 
 Un instant plus tard, plusieurs silhouettes jaillirent de la lumière émeraude. Les trois premiers avaient les cheveux blancs et les traits marqués par le poids des années. Derrière eux suivaient de près six anciens.
 
-« Salutations, Empereur Divin de l'Oiseau Vermillon! » Après que les neuf vieillards furent sortis du brouillard vert et eurent aperçu l'homme d'âge moyen, ils manifestèrent leur respect en joignant les mains.
+« Salutations, Empereur Divin de Suzaku! » Après que les neuf vieillards furent sortis du brouillard vert et eurent aperçu l'homme d'âge moyen, ils manifestèrent leur respect en joignant les mains.
 
-« L'Éveilleur de l'Oiseau Vermillon est apparu; je dois emprunter l'ancien artefact sacré de votre Secte Divine du Dragon Azure. Et je demande à vous tous de me suivre! » L'homme d'âge moyen était l'âme originelle de l'Empereur Divin de l'Oiseau Vermillon. Pour s'assurer que rien ne tourne mal lors de ce voyage, il s'était déjà rendu auprès des Sectes Divines de la Tortue Noire et du Tigre Blanc. La Secte Divine du Dragon Azure était le dernier.
+« L'Éveilleur de Suzaku est apparu; je dois emprunter l'ancien artefact sacré de votre Secte Divine du Dragon Azure. Et je demande à vous tous de me suivre! » L'homme d'âge moyen était l'âme originelle de l'Empereur Divin de Suzaku. Pour s'assurer que rien ne tourne mal lors de ce voyage, il s'était déjà rendu auprès des Sectes Divines de la Tortue Noire et du Tigre Blanc. La Secte Divine du Dragon Azure était le dernier.
 
-Les neuf anciens de la Secte Divine du Dragon Azure se regardèrent sans longtemps hésiter. L'un des trois anciens en tête hocha respectueusement la tête: « Nous obéirons aux ordres de l'Empereur Divin de l'Oiseau Vermillon! »
+Les neuf anciens de la Secte Divine du Dragon Azure se regardèrent sans longtemps hésiter. L'un des trois anciens en tête hocha respectueusement la tête: « Nous obéirons aux ordres de l'Empereur Divin de Suzaku! »
 
-Quant à ce qui se tramait dans la Terre Yao Ling, grâce à l'autodestruction de l'un des six anciens de la Secte Divine de l'Oiseau Vermillon, Wang Lin avait pu échapper à Tian Yunzi. Ses yeux étaient injectés de sang et une douleur fulgurante lui transperçait le cœur en raison de ses blessures.
+Quant à ce qui se tramait dans la Terre Yao Ling, grâce à l'autodestruction de l'un des six anciens de la Secte Divine de Suzaku, Wang Lin avait pu échapper à Tian Yunzi. Ses yeux étaient injectés de sang et une douleur fulgurante lui transperçait le cœur en raison de ses blessures.
 
-Au loin, les cinq autres anciens de la Secte Divine de l'Oiseau Vermillon arrivèrent trop tard pour porter secours. Ils n'étaient pas au sommet du stade de Briseur du Nirvana; la plupart se situaient aux premiers ou milieux stades, et ils peinaient déjà à affronter l'Ancien Démon Ta Jia. Le moindre instant d'inattention les exposait à de graves blessures.
+Au loin, les cinq autres anciens de la Secte Divine de Suzaku arrivèrent trop tard pour porter secours. Ils n'étaient pas au sommet du stade de Briseur du Nirvana; la plupart se situaient aux premiers ou milieux stades, et ils peinaient déjà à affronter l'Ancien Démon Ta Jia. Le moindre instant d'inattention les exposait à de graves blessures.
 
-Ces cinq anciens étaient entourés de flammes et de trésors magiques. Il ne s'agissait pas là d'objets ordinaires, mais de trésors du Vide accumulés par la Secte Divine de l'Oiseau Vermillon durant d'innombrables années. Bien qu'ils fussent inférieurs aux trésors du Pseudo-Vide du Nirvana, la manière dont les cinq les utilisaient avec le géant de flammes, aidés par la Concubine Impériale des Fleurs qui avait contourné la créature humanoïde pour se joindre au combat contre l'Ancien Démon, leur permettait de tenir tête au démon ancien. Cependant, dès que ce dernier utilisait ses sorts, il était évident qu'ils étaient désavantagés.
+Ces cinq anciens étaient entourés de flammes et de trésors magiques. Il ne s'agissait pas là d'objets ordinaires, mais de trésors du Vide accumulés par la Secte Divine de Suzaku durant d'innombrables années. Bien qu'ils fussent inférieurs aux trésors du Pseudo-Vide du Nirvana, la manière dont les cinq les utilisaient avec le géant de flammes, aidés par la Concubine Impériale des Fleurs qui avait contourné la créature humanoïde pour se joindre au combat contre l'Ancien Démon, leur permettait de tenir tête au démon ancien. Cependant, dès que ce dernier utilisait ses sorts, il était évident qu'ils étaient désavantagés.
 
 L'expression de Tian Yunzi demeurait sereine. Après avoir arraché la marque entre ses sourcils, une aura puissante émanait de lui. Il s'approcha lentement de Wang Lin.
 

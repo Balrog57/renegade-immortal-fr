@@ -6,11 +6,11 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1076 - The Decisive Battle Begins
 slug: le-debut-de-la-bataille-decisive
 ---
-Le tatouage blanc de l'Oiseau Vermillon sur son armure écarlate et ses cheveux blancs conféraient à Wang Lin une aura singulière. Bien qu'il fusionnât avec l'esprit véritable de l'Oiseau Vermillon, imprégné d'une puissante énergie originelle de feu, il ne pouvait masquer la pâleur de son visage.
+Le tatouage blanc de Suzaku sur son armure écarlate et ses cheveux blancs conféraient à Wang Lin une aura singulière. Bien qu'il fusionnât avec l'esprit véritable de Suzaku, imprégné d'une puissante énergie originelle de feu, il ne pouvait masquer la pâleur de son visage.
 
 Nuit Brisée était extrêmement puissant, mais il n'avait qu'une compréhension infime de la loi d'origine. L'utiliser par la force lui avait infligé de graves conséquences.
 
-L'effet de ce sortilège était sans précédent en raison de l'apparition de la loi d'origine, de l'esprit véritable de l'Oiseau Vermillon, du second éveil de Wang Lin et de sa contre-attaque désespérée. Tous ces éléments avaient permis d'atteindre un paroxysme. C'était une prouesse qu'il ne pourrait reproduire, et même s'il y parvenait, elle ne serait pas aussi dévastatrice.
+L'effet de ce sortilège était sans précédent en raison de l'apparition de la loi d'origine, de l'esprit véritable de Suzaku, du second éveil de Wang Lin et de sa contre-attaque désespérée. Tous ces éléments avaient permis d'atteindre un paroxysme. C'était une prouesse qu'il ne pourrait reproduire, et même s'il y parvenait, elle ne serait pas aussi dévastatrice.
 
 Son âme originelle était encore affaiblie, et il devait composer avec l'épée de sang de Tian Yunzi aux robes grises, issue de son attaque désespérée. Bien que la partie de l'épée située à l'extérieur de son corps ait disparu, la lame demeurait en lui, comme si elle lui avait transpercé le cœur, et avait pénétré son âme originelle.
 
@@ -18,17 +18,17 @@ Son âme originelle était encore affaiblie, et il devait composer avec l'épée
 
 Si Wang Lin n'avait pas possédé le corps d'un dieu ancien, d'une résilience extrême, cette blessure fatale l'aurait tué. Cependant, même avec un corps de dieu ancien à 5 étoiles, la douleur ne s'apaisait pas. L'épée de sang logée en lui contenait une énergie de massacre glaciale. Cette énergie n'était pas ordinaire; elle constituait la racine même de tous les sorts de Tian Yunzi aux robes grises!
 
-Cette douleur intense ne fit pas chanceler Wang Lin. Au contraire, il serra les dents sans laisser échapper le moindre gémissement. Son regard dépassa les membres de la Secte Divine de l'Oiseau Vermillon pour se poser sur Tian Yunzi et l'Ancien Démon Ta Jia.
+Cette douleur intense ne fit pas chanceler Wang Lin. Au contraire, il serra les dents sans laisser échapper le moindre gémissement. Son regard dépassa les membres de la Secte Divine de Suzaku pour se poser sur Tian Yunzi et l'Ancien Démon Ta Jia.
 
 L'énergie originelle de feu dans son corps l'empêchait normalement de ressentir le froid. Mais, en raison de la faiblesse de son âme originelle, il avait l'impression d'être plongé dans un monde de neige, le corps recouvert de glace.
 
-Le vieil homme qui avait crié auparavant joignit les mains en signe de respect envers Wang Lin: « Nous sommes le premier groupe de la Secte Divine de l'Oiseau Vermillon venu vous montrer la voie. Ensuite, presque toute ma secte arrivera successivement pour assurer votre sécurité absolue! »
+Le vieil homme qui avait crié auparavant joignit les mains en signe de respect envers Wang Lin: « Nous sommes le premier groupe de la Secte Divine de Suzaku venu vous montrer la voie. Ensuite, presque toute ma secte arrivera successivement pour assurer votre sécurité absolue! »
 
-« La Secte Divine de l'Oiseau Vermillon... » Wang Lin regarda le vieil homme et hocha la tête. Ce simple geste fit irradier une pointe de douleur dans sa poitrine, mais il l'endura. Peu importe les raisons de leur venue, Wang Lin n'oublierait pas leur aide.
+« La Secte Divine de Suzaku... » Wang Lin regarda le vieil homme et hocha la tête. Ce simple geste fit irradier une pointe de douleur dans sa poitrine, mais il l'endura. Peu importe les raisons de leur venue, Wang Lin n'oublierait pas leur aide.
 
-Pourtant, bien qu'entouré par les membres de la Secte Divine de l'Oiseau Vermillon, il ne ressentait aucune sécurité. Non loin de là, le regard de l'Ancien Démon Ta Jia les balaya d'une expression sinistre et extrêmement étrange.
+Pourtant, bien qu'entouré par les membres de la Secte Divine de Suzaku, il ne ressentait aucune sécurité. Non loin de là, le regard de l'Ancien Démon Ta Jia les balaya d'une expression sinistre et extrêmement étrange.
 
-La Concubine Impériale des Fleurs, Situ Nan, Wang Wei, Hu Juan et les autres se dirigèrent vers la Secte Divine de l'Oiseau Vermillon, traçant une ligne de démarcation nette entre eux et Tian Yunzi ainsi que l'Ancien Démon Ta Jia.
+La Concubine Impériale des Fleurs, Situ Nan, Wang Wei, Hu Juan et les autres se dirigèrent vers la Secte Divine de Suzaku, traçant une ligne de démarcation nette entre eux et Tian Yunzi ainsi que l'Ancien Démon Ta Jia.
 
 « Ceux qui devaient arriver sont presque tous là... » Ta Jia se lécha les lèvres. Ses yeux étaient injectés de sang alors qu'il fixait Wang Lin, encerclé par la foule. Il devait tuer cet homme!
 
@@ -54,13 +54,13 @@ Presque instantanément, le sol sur cinquante kilomètres se brisa et s'éleva v
 
 L'expression de Wang Lin était sombre. La terre continuait de trembler et la zone, sur cinquante kilomètres à la ronde, était enveloppée d'un brouillard noir et blanc qui entravait tant la vue que le Sens Divin.
 
-L'Ancien Démon Ta Jia se déplaça avec une rapidité fulgurante. Les six anciens du niveau Briseur du Nirvana de la Secte Divine de l'Oiseau Vermillon devinrent graves et s'élancèrent promptement. Leurs mains formèrent des sceaux, faisant jaillir une mer de flammes qui balaya l'espace devant eux.
+L'Ancien Démon Ta Jia se déplaça avec une rapidité fulgurante. Les six anciens du niveau Briseur du Nirvana de la Secte Divine de Suzaku devinrent graves et s'élancèrent promptement. Leurs mains formèrent des sceaux, faisant jaillir une mer de flammes qui balaya l'espace devant eux.
 
 Ta Jia ricana et fit tournoyer la lame qu'il tenait. L'énergie tranchante fendit l'air et repoussa la mer de feu; sous cette pression, les flammes furent littéralement scindées en deux!
 
 Les avatars de Tian Yunzi convergèrent également. Wang Wei et Hu Juan serrèrent les dents et chargèrent. La Concubine Impériale des Fleurs soupira et partit pour les affronter.
 
-Simultanément, les quelque cent disciples de la Secte Divine de l'Oiseau Vermillon n'attendirent aucun ordre. Ils s'assirent tous en position de lotus. Leurs mains tracèrent des sceaux et, en un instant, toutes leurs âmes originelles jaillirent.
+Simultanément, les quelque cent disciples de la Secte Divine de Suzaku n'attendirent aucun ordre. Ils s'assirent tous en position de lotus. Leurs mains tracèrent des sceaux et, en un instant, toutes leurs âmes originelles jaillirent.
 
 Dès que leurs âmes originelles apparurent, une chaleur intense se fit sentir. Ce qui stupéfia Da Tou et les autres, fut qu'aussitôt manifestées, ces âmes commencèrent à fusionner.
 
@@ -68,7 +68,7 @@ Il faut savoir que l'âme originelle est l'essence même de la culture d'un indi
 
 Pourtant, ces cent âmes fusionnèrent rapidement pour former un géant de flammes de plusieurs centaines de pieds de haut. Le géant poussa un rugissement et chargea l'Ancien Démon Ta Jia!
 
-En voyant cela, les pupilles de Wang Lin se contractèrent. Une pointe de curiosité envers la Secte Divine de l'Oiseau Vermillon naquit en lui.
+En voyant cela, les pupilles de Wang Lin se contractèrent. Une pointe de curiosité envers la Secte Divine de Suzaku naquit en lui.
 
 Les six grands cultivateurs Briseurs de Nirvana et le géant de feu formé par les âmes des disciples affrontaient l'Ancien Démon Ta Jia. Wang Wei, Hu Juan et la Concubine Impériale des Fleurs combattirent les six avatars de Tian Yunzi. Sur le flanc, Maître Fu Fengzi, Situ Nan — qui réprimait de force son poison —, Da Tou et les autres utilisaient leurs sorts pour prêter main-forte. En un instant, la bataille devint d'une intensité extrême.
 
@@ -96,4 +96,4 @@ Sans hésiter, la main droite de Wang Lin plongea dans le vide et une lumière c
 
 À sa parole, la lumière cristalline brilla d'un éclat vif et des cris lugubres s'élevèrent soudainement de l'âme de ceux qui ne pouvaient entrer dans le cycle de la réincarnation. Elles jaillirent du Sceau Céleste des 18 Enfers pour se précipiter vers les éclats de lumière. Ces derniers prirent une consistance presque tangible, dégageant des effluves d'énergie Yin.
 
-Le plus terrifiant fut de voir l'âme du Maître du Vide surgir de la 18e couche de l'enfer! Les yeux injectés de sang, il poussa un rugissement bestial et chargea l'être sans tête.
+Le plus terrifiant fut de voir l'âme de Xu Kongzi surgir de la 18e couche de l'enfer! Les yeux injectés de sang, il poussa un rugissement bestial et chargea l'être sans tête.

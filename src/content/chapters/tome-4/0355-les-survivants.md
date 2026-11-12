@@ -106,7 +106,7 @@ Une pointe de panique traversa les yeux du vieil homme alors qu'il saisissait la
 
 Le corps original poursuivait sa traque.
 
-« Cher compagnon cultivateur, nous ne nous connaissons même pas; pourquoi agir ainsi?! » La voix du vieil homme était étranglée par la peur. Il était déjà terrifié par la puissance des coups de cet homme.
+« Cher Daoïste, nous ne nous connaissons même pas; pourquoi agir ainsi?! » La voix du vieil homme était étranglée par la peur. Il était déjà terrifié par la puissance des coups de cet homme.
 
 Hormis le guerrier du Clan Xian Yi, il n'avait jamais rencontré un tel cultivateur. D'un seul coup de poing, il pouvait détruire des trésors magiques; d'un simple pas, il créait des déchirures spatiales. Tout cela terrifiait le vieillard.
 

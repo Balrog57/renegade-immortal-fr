@@ -72,7 +72,7 @@ Cette aura de mort balaya le monde, brisant l'état de stase causé par la press
 
 Ce crâne ne ressemblait pas à celui d'un adulte, mais à celui d'un nourrisson!
 
-« Cela ne provient pas du Royaume Divin Immémorial. Il y a très longtemps, lorsque j'ai quitté le Continent Astral Immortel, je l'ai trouvé sur un continent flottant en ruines.
+« Cela ne provient pas du Royaume Divin Immémorial. Il y a très longtemps, lorsque j'ai quitté le Continent Xian Gang, je l'ai trouvé sur un continent flottant en ruines.
 
 « Au moment où je m'en suis emparé, le continent a disparu... Cet objet contient une trace de pouvoir que je ne saisis pas, mais j'ai le vague sentiment que si je parviens à absorber cette puissance, je pourrais peut-être briser les limites des Grands Empyréens pour devenir une existence comparable à l'Ancêtre Céleste...
 

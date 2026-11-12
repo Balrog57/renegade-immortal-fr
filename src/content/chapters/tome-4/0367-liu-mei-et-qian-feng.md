@@ -60,9 +60,9 @@ L'homme assis dans le bassin de flammes ouvrit les yeux. L'aura maléfique qui l
 
 Les yeux de l'homme brillèrent et il demanda: « Hongdie? Mais elle est la fille céleste de Xue Yu... » En prononçant ces mots, il se lécha les lèvres avec un visage empreint de dédain.
 
-Le vieil homme répondit lentement: « Son domaine impitoyable a fait une percée lors de son combat contre Ceng Niu; il est sur le point d'atteindre sa première complétion, bien qu'elle ne s'en soit pas encore rendu compte. Une fois que tu l'auras dévorée, tu posséderas le domaine impitoyable! Par conséquent, tes chances d'atteindre le stade Ascendant augmenteront davantage. J'ai cherché cette fille pendant de longues années avant de la trouver, puis je l'ai élevée jusqu'à aujourd'hui. »
+Le vieil homme répondit lentement: « Son domaine impitoyable a fait une percée lors de son combat contre Zeng Niu; il est sur le point d'atteindre sa première complétion, bien qu'elle ne s'en soit pas encore rendu compte. Une fois que tu l'auras dévorée, tu posséderas le domaine impitoyable! Par conséquent, tes chances d'atteindre le stade Ascendant augmenteront davantage. J'ai cherché cette fille pendant de longues années avant de la trouver, puis je l'ai élevée jusqu'à aujourd'hui. »
 
-L'homme se leva. En faisant ce mouvement, une brume blanche s'échappa de son corps. Ses yeux affichèrent un regard malveillant tandis qu'il murmurait: « Ceng Niu... Je me demande s'il peut encaisser un seul coup utilisant seulement 10 % de ma culture avec son niveau actuel! »
+L'homme se leva. En faisant ce mouvement, une brume blanche s'échappa de son corps. Ses yeux affichèrent un regard malveillant tandis qu'il murmurait: « Zeng Niu... Je me demande s'il peut encaisser un seul coup utilisant seulement 10 % de ma culture avec son niveau actuel! »
 
 Le vieil homme soupira. « C'est un peu regrettable pour Hongdie. Cette fille... Ah, je vieillis et je ne peux plus supporter certaines choses... Laisse tomber, vas-y. »
 
@@ -70,7 +70,7 @@ L'homme esquissa un léger sourire: « Ancêtre, vous dites toujours que c'est r
 
 Sur ces mots, son corps s'estompa lentement jusqu'à disparaître.
 
-Dans une chambre, Hongdie cultivait les yeux clos pour se rétablir. Elle ouvrit soudainement les yeux et murmura: « Ceng Niu, la prochaine fois, je te tuerai! »
+Dans une chambre, Hongdie cultivait les yeux clos pour se rétablir. Elle ouvrit soudainement les yeux et murmura: « Zeng Niu, la prochaine fois, je te tuerai! »
 
 Une voix douce résonna soudainement dans la pièce. « Je vais exaucer ton vœu. »
 
@@ -102,7 +102,7 @@ L'Ancien déclara: « Tu as créé mille avatars pour cultiver au sein de divers
 
 Liu Mei réfléchit un instant et répondit: « Cette disciple en a un vague souvenir, mais ce n'est pas très clair. »
 
-« Ce Ceng Niu est Wang Lin! »
+« Ce Zeng Niu est Wang Lin! »
 
 Aucun signe de choc ne passa dans les yeux de Liu Mei. Elle se contenta d'acquiescer sans dire un mot.
 
@@ -110,7 +110,7 @@ Aucun signe de choc ne passa dans les yeux de Liu Mei. Elle se contenta d'acquie
 
 Liu Mei resta pensive.
 
-Le vieil homme regarda Liu Mei et reprit: « Tu sors dès aujourd'hui de ta culture en ermitage. Ce Ceng Niu devrait arriver sous peu; entre en contact avec lui. Utilise toutes les méthodes possibles pour marquer son cœur dao. Sers-toi de cet homme comme d'un fourneau pour aider ton domaine à atteindre sa pleine complétion. Lorsque le fourneau se brisera, tu prendras le contrôle de son domaine de la vie et de la mort. Ainsi, tu auras plus de chances que Feng Er de revendiquer le titre de Suzaku! »
+Le vieil homme regarda Liu Mei et reprit: « Tu sors dès aujourd'hui de ta culture en ermitage. Ce Zeng Niu devrait arriver sous peu; entre en contact avec lui. Utilise toutes les méthodes possibles pour marquer son cœur dao. Sers-toi de cet homme comme d'un fourneau pour aider ton domaine à atteindre sa pleine complétion. Lorsque le fourneau se brisera, tu prendras le contrôle de son domaine de la vie et de la mort. Ainsi, tu auras plus de chances que Feng Er de revendiquer le titre de Suzaku! »
 
 Liu Mei soupira. Elle se mordit la lèvre inférieure et se tut.
 
@@ -120,7 +120,7 @@ Liu Mei murmura: « La disciple obéit! »
 
 Le vieil homme leva la tête et regarda au loin. Ses yeux semblaient capables de percer la grotte pour voir jusqu'à un pays de culture de rang 1, où un vieillard était en train de manger une cuisse de poulet.
 
-« Junior frère, parmi les quatre personnes que tu as choisies, Ceng Niu est la plus faible; je suppose que cela ne te dérangera pas! »
+« Junior frère, parmi les quatre personnes que tu as choisies, Zeng Niu est la plus faible; je suppose que cela ne te dérangera pas! »
 
 « Je vais entrer en culture de méditation prolongée. J'espère qu'à mon retour, tu auras déjà réussi. » Après un long moment, le vieil homme détourna son regard et disparut dans un éclair de lumière rouge.
 

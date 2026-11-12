@@ -18,7 +18,7 @@ Il possédait désormais neuf essences: vie et mort, karma, vrai et faux, restri
 
 Le Vide Spirituel et le Vide Arcanique ne différaient que d'un seul mot, mais l'écart entre les deux était aussi vaste que le ciel et la terre! Atteindre le stade du Vide Arcanique exigeait de comprendre les cieux et de posséder au moins une essence éthérée.
 
-Une fois qu'il aurait atteint le stade du Vide Arcanique, il entrerait dans le rang des puissants. Hormis des entités comme les neuf sectes et les treize factions, un cultivateur du Vide Arcanique était toujours considéré comme très puissant sur le Continent Astral Immortel. Plus important encore, après avoir atteint ce stade, on pouvait lancer certains sorts mystérieux. Bien qu'ils ne fussent pas d'une grande utilité pour Wang Lin, atteindre le Vide Arcanique constituerait une étape majeure de sa culture!
+Une fois qu'il aurait atteint le stade du Vide Arcanique, il entrerait dans le rang des puissants. Hormis des entités comme les neuf sectes et les treize factions, un cultivateur du Vide Arcanique était toujours considéré comme très puissant sur le Continent Xian Gang. Plus important encore, après avoir atteint ce stade, on pouvait lancer certains sorts mystérieux. Bien qu'ils ne fussent pas d'une grande utilité pour Wang Lin, atteindre le Vide Arcanique constituerait une étape majeure de sa culture!
 
 Les neuf essences dans son corps continuèrent de pivoter et son niveau de culture au sommet du Vide Spirituel augmenta soudainement. La vitesse de cette progression était terrifiante et, en un clin d'œil, une illusion apparut au-dessus de Wang Lin.
 

@@ -104,7 +104,7 @@ Wang Lin murmura doucement en sortant lentement de l'eau.
 
 Ses paroles étaient d'un calme désinvolte, mais elles plongèrent le Général de l'Eau dans une terreur profonde.
 
-À cet instant, à l'extérieur des cinq anneaux, le Grand Empyréen Xuan Luo, jeune homme aux cheveux noirs qui était apparu auparavant dans le Monde des Grottes, venu du Continent Astral Immortel, se tenait là, le regard calme, observant la scène.
+À cet instant, à l'extérieur des cinq anneaux, le Grand Empyréen Xuan Luo, jeune homme aux cheveux noirs qui était apparu auparavant dans le Monde des Grottes, venu du Continent Xian Gang, se tenait là, le regard calme, observant la scène.
 
 En entendant les paroles de Wang Lin, le Grand Empyréen Xuan Luo esquissa un sourire satisfait.
 

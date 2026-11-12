@@ -58,7 +58,7 @@ Le visage de l'homme âgé s'illumina et, d'un geste de la main, le vin dans les
 
 Wang Lin était resté silencieux durant tout ce temps. Il ne parvenait absolument pas à discerner le niveau de culture de cet homme et, n'étant pas porté sur la conversation, il jugea préférable de laisser Qiu Siping gérer l'échange.
 
-De plus, Wang Lin s'interrogeait sur la raison pour laquelle cet homme les avait arrêtés. Il soupçonnait que cela soit lié à la rétribution divine ou à sa récente frénésie meurtrière. Bien sûr, il était possible que l'homme recherche Qiu Siping, mais à voir son expression, Wang Lin eut le sentiment que la véritable cible n'était pas Qiu Siping, mais lui-même.
+De plus, Wang Lin s'interrogeait sur la raison pour laquelle cet homme les avait arrêtés. Il soupçonnait que cela soit lié à la Tribulation Céleste ou à sa récente frénésie meurtrière. Bien sûr, il était possible que l'homme recherche Qiu Siping, mais à voir son expression, Wang Lin eut le sentiment que la véritable cible n'était pas Qiu Siping, mais lui-même.
 
 L'homme âgé ouvrit la bouteille, en renifla l'arôme et dit: « Un excellent vin de fruits Can Yun. Pas mal. Petit gars, tu me plais bien. Dis-moi, veux-tu devenir mon disciple? »
 
@@ -272,7 +272,7 @@ En le ramassant et en l'ouvrant, son corps trembla. Il s'installa à une table p
 
 « Dans le monde de la culture, un changement de puissance spirituelle peut engendrer ce que l'on nomme le Royaume Ji. J'ai étudié ce phénomène durant de nombreuses années et j'ai laissé mes recherches pour les générations futures. »
 
-« Cette force mystérieuse, le Royaume Ji, est selon moi une forme de rétribution divine! Seule la rétribution divine pourrait tuer instantanément un cultivateur de même niveau! »
+« Cette force mystérieuse, le Royaume Ji, est selon moi une forme de Tribulation Céleste! Seule la Tribulation Céleste pourrait tuer instantanément un cultivateur de même niveau! »
 
 « Beaucoup pensent que l'évolution finale du Royaume Ji est le stade de l'Âme Naissante, mais après lecture de certains textes historiques, j'ai découvert un phénomène fascinant. »
 

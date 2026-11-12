@@ -14,7 +14,7 @@ Les vêtements de Yang Xiong étaient trempés de sueur froide. Une légère bri
 
 Zhou Zihong lança un regard calme à Yang Xiong avant de partir.
 
-Wang Lin volait sans but dans le ciel, plongé dans ses pensées. Peu de temps après, son regard s'illumina. Quoi qu'il arrive, il ne pouvait pas se rendre à ce Sanctuaire du Dieu de la Guerre. Sans même parler de savoir si Zhou, Yang et Lin tramaient quelque complot, le seul secret de sa possession ne pouvait absolument pas être dissimulé devant un cultivateur de l'Âme Naissante.
+Wang Lin volait sans but dans le ciel, plongé dans ses pensées. Peu de temps après, son regard s'illumina. Quoi qu'il arrive, il ne pouvait pas se rendre à ce Temple Zhan Shen. Sans même parler de savoir si Zhou, Yang et Lin tramaient quelque complot, le seul secret de sa possession ne pouvait absolument pas être dissimulé devant un cultivateur de l'Âme Naissante.
 
 Il était fort probable que l'ancêtre de l'Âme Naissante du Sanctuaire avait déjà découvert, à partir d'indices infimes, qu'il avait possédé Ma Liang. En y pensant, il ressentit soudainement une pointe de crainte; son visage s'assombrit et sa vitesse augmenta.
 
@@ -38,7 +38,7 @@ La femme esquissa un sourire gracieux et répondit d'une voix suave: « Le nom d
 
 Wang Lin hocha la tête sans hésiter et déclara avec détermination: « Très bien. Une fois que je serai à mille kilomètres, je rendrai l'essence sanguine de l'âme. Autrement, même si Senior intervient, je ferai tout pour détruire l'essence sanguine. »
 
-La femme regarda Wang Lin et dit: « Jeune ami n'a pas besoin d'être aussi nerveux. J'ai déjà entendu parler de vous par Zihong. C'est grâce à votre aide que les trois ont pu retourner en toute sécurité au Sanctuaire du Dieu de la Guerre. Rien que pour cela, cela compense la possession de Ma Liang. En faisant abstraction de tout le reste, parce que vous avez sauvé Zihong, je peux vous pardonner tout ce qui s'est passé. »
+La femme regarda Wang Lin et dit: « Jeune ami n'a pas besoin d'être aussi nerveux. J'ai déjà entendu parler de vous par Zihong. C'est grâce à votre aide que les trois ont pu retourner en toute sécurité au Temple Zhan Shen. Rien que pour cela, cela compense la possession de Ma Liang. En faisant abstraction de tout le reste, parce que vous avez sauvé Zihong, je peux vous pardonner tout ce qui s'est passé. »
 
 Wang Lin fut surpris et scruta attentivement les yeux de la femme. Il vit qu'elle ne semblait pas mentir. Après une courte réflexion, il dit: « Veuillez ne pas me blâmer, Senior. Veuillez attendre que je sois à mille kilomètres avant que je ne rende l'essence sanguine de l'âme. »
 
@@ -94,9 +94,9 @@ Wang Lin ricana intérieurement et déclara avec détermination: « Très bien, 
 
 Le cœur de Sun Youcai fit un bond. Il ne s'attendait pas à ce que Wang Lin accepte si facilement. Il avait préparé une foule de répliques qui devaient maintenant être inutiles. Cependant, il réagit promptement: « Aucun problème. C'est moi qui me suis servi de vous le premier pour échapper à mes ennemis. Je me charge de tout! Comment dois-je vous appeler? »
 
-« Je m'appelle Ma Liang. Je suis un disciple du Sanctuaire du Dieu de la Guerre. » Wang Lin esquissa un sourire discret. Aux yeux de Sun Youcai, ce sourire paraissait empreint de naïveté, mais seul Wang Lin en connaissait la vérité.
+« Je m'appelle Ma Liang. Je suis un disciple du Temple Zhan Shen. » Wang Lin esquissa un sourire discret. Aux yeux de Sun Youcai, ce sourire paraissait empreint de naïveté, mais seul Wang Lin en connaissait la vérité.
 
-Sun Youcai afficha un sourire malicieux. Il regarda autour de lui et murmura: « Frère Ma, j'ai entendu dire que votre Sanctuaire du Dieu de la Guerre possède une beauté nommée Zhou Ziwei. Notre jeune chef de secte l'a vue il y a six mois et en a été totalement envoûté. Puisque vous venez de là-bas, est-elle vraiment si belle? »
+Sun Youcai afficha un sourire malicieux. Il regarda autour de lui et murmura: « Frère Ma, j'ai entendu dire que votre Temple Zhan Shen possède une beauté nommée Zhou Ziwei. Notre jeune chef de secte l'a vue il y a six mois et en a été totalement envoûté. Puisque vous venez de là-bas, est-elle vraiment si belle? »
 
 Wang Lin fut surpris et demanda: « Zhou Ziwei? Parlez-vous de Senior sœur Zhou Zihong? »
 

@@ -110,6 +110,6 @@ Wang Lin savait que, peu importe ses efforts, il ne pourrait jamais échapper à
 
 C'était là l'arme la plus puissante dont il disposait actuellement.
 
-Au moment où il lança le fil de rétribution divine, il vida entièrement une fiole de pilules dans sa bouche.
+Au moment où il lança le fil de Tribulation Céleste, il vida entièrement une fiole de pilules dans sa bouche.
 
 Le jeune homme au visage maléfique apparut à trente-trois mètres de Wang Lin. En voyant le fil que ce dernier tenait à la main, son expression devint troublée.

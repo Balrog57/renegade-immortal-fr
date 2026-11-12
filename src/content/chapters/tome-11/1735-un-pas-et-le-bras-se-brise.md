@@ -18,9 +18,9 @@ En revanche, les essences corporelles étaient plus simples à obtenir. Les esse
 
 Les essences étaient ardues à parfaire, et créer la graine était encore plus complexe. Si Wang Lin n'avait pas dévoré la moitié de l'ancien dragon de tonnerre et l'Éternel Tonnerre du Clan Shan Lei, la graine de tonnerre ne serait jamais apparue.
 
-Il en allait de même pour l'essence du feu. S'il n'avait pas éveillé l'Oiseau Vermillon à maintes reprises, il n'aurait jamais obtenu la graine de feu.
+Il en allait de même pour l'essence du feu. S'il n'avait pas éveillé Suzaku à maintes reprises, il n'aurait jamais obtenu la graine de feu.
 
-Désormais, cette goutte de l'univers était comparable au dragon de tonnerre ancien ou à l'Éternel Tonnerre, voire à l'éveil de l'Oiseau Vermillon: elle offrait à Wang Lin la graine de l'eau!
+Désormais, cette goutte de l'univers était comparable au dragon de tonnerre ancien ou à l'Éternel Tonnerre, voire à l'éveil de Suzaku: elle offrait à Wang Lin la graine de l'eau!
 
 C'était ce qui excitait le plus Wang Lin. Rien n'est gratuit sans labeur; tout doit s'obtenir étape par étape.
 

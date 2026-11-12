@@ -64,13 +64,13 @@ Cet individu faisait partie du Dao Céleste, et bien qu'il ait été détruit pa
 
 L'écriture et l'aura ici ne sont pas identiques à celles de la stèle du Royaume aux Sept Couleurs : elles ont été laissées par deux personnes différentes. Cependant, l'apparence même de cette pierre brouillait la compréhension qu'avait Wang Lin du monde des grottes.
 
-« Monde des grottes… Continent Astral Immortel… Secte Dong Lin… La seule chose qui relie ces trois lieux est le Souverain Céleste aux Sept Couleurs! Mais son âme fut divisée en trois et détruite par moi… La troisième âme est Su Dao… Je suis même venu à la Secte Dong Lin dans cette illusion, à l'époque…
+« Monde des grottes… Continent Xian Gang… Secte Dong Lin… La seule chose qui relie ces trois lieux est le Souverain Céleste aux Sept Couleurs! Mais son âme fut divisée en trois et détruite par moi… La troisième âme est Su Dao… Je suis même venu à la Secte Dong Lin dans cette illusion, à l'époque…
 
 « Mais pourquoi… Pourquoi cette inscription est-elle apparue ici? Cette stèle, pourquoi le monde des grottes possède-t-il également cette stèle? Que se passe-t-il réellement… » Tandis que Wang Lin fixait la pierre, la confusion se lisait dans ses yeux.
 
 « Qui a détruit la Secte Dong Lin et laissé cette stèle ici?
 
-« L'écriture et l'aura appartiennent à Tian Yunzi, mais comment est-il arrivé sur le Continent Astral Immortel et pourquoi a-t-il détruit la Secte Dong Lin?!
+« L'écriture et l'aura appartiennent à Tian Yunzi, mais comment est-il arrivé sur le Continent Xian Gang et pourquoi a-t-il détruit la Secte Dong Lin?!
 
 « Et le Souverain Céleste aux Sept Couleurs… Je pensais qu’il était mort, mais… est-il vraiment mort?
 

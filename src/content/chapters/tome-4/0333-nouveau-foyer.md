@@ -70,11 +70,11 @@ Li Muwan sourit. En les recevant, elle fut très surprise: « Des recettes de pi
 
 Wang Lin sourit: « Puisque tu as emporté ton fourneau à pilules, tu pourras les essayer quand tu auras un moment de libre. »
 
-Les yeux de Li Muwan s'illuminèrent. Dans son état actuel, elle était d'une beauté captivante. Elle regarda Wang Lin et sourit: « Je voulais te demander pourquoi ton apparence avait encore changé. Et aussi, comment es-tu devenu Ceng Niu? »
+Les yeux de Li Muwan s'illuminèrent. Dans son état actuel, elle était d'une beauté captivante. Elle regarda Wang Lin et sourit: « Je voulais te demander pourquoi ton apparence avait encore changé. Et aussi, comment es-tu devenu Zeng Niu? »
 
 Wang Lin raconta en détail à Li Muwan ce qui lui était arrivé au cours des cent dernières années. Cela fit écarquiller les yeux de la jeune femme.
 
-Elle dit avec inquiétude: « Si cette Hongdie découvre que tu es Ceng Niu, elle viendra certainement te chercher. »
+Elle dit avec inquiétude: « Si cette Hongdie découvre que tu es Zeng Niu, elle viendra certainement te chercher. »
 
 Le regard de Wang Lin se fit intense. Il répondit calmement: « Quant à Hongdie, avec ma culture actuelle, il ne me faut que quelques années de plus pour atteindre le stade intermédiaire de la Formation de l'Âme. Je suis sûr à 70 % de pouvoir la repousser à nouveau le moment venu! »
 

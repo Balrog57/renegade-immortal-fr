@@ -52,7 +52,7 @@ Li Shan poussa un soupir et dit: « La technique du Senior frère Sun Hao est bi
 
 Tous les disciples de la Secte Xuan Dao éclatèrent de rire, et des railleries fusèrent de toutes parts. Même les disciples de la Secte Heng Yue furent tentés par le rire, mais ils s'en abstinrent de peur d'offenser les Anciens.
 
-Huang Long, furieux, d'un revers de manche, fit lever une bourrasque qui chassa l'odeur et projeta le stupéfait Sun Hao du Pic des Pins vers le Pic Heng Yue.
+Huang Long, furieux, d'un revers de manche, fit lever une bourrasque qui chassa l'odeur et projeta le stupéfait Sun Hao du Pic Cang Song vers le Pic Heng Yue.
 
 L'Ancien Ouyang sourit et dit: « Ce Sun Hao a mal maîtrisé sa technique, nous ignorons donc sa véritable force. Appelons cela un match nul. » En terminant sa phrase, il adressa un regard approbateur à Li Shan.
 

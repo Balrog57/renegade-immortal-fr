@@ -14,7 +14,7 @@ Cependant, le prix à payer était bien trop lourd. L'effondrement des 30 millio
 
 « Peu importe. Bien que cette gourde fût extrêmement puissante, ce n'était qu'une force extérieure. Tant que je survis à cette crise, j'obtiendrai un jour des trésors encore plus redoutables! »
 
-« Zhang Daozong, je ne t'oublierai pas! » L'expression de Wang Lin était très sombre. Ce qui venait de se produire représentait la situation la plus périlleuse qu'il ait connue depuis son arrivée sur le Continent Astral Immortel.
+« Zhang Daozong, je ne t'oublierai pas! » L'expression de Wang Lin était très sombre. Ce qui venait de se produire représentait la situation la plus périlleuse qu'il ait connue depuis son arrivée sur le Continent Xian Gang.
 
 Le moindre moment d'inattention, et il serait déjà mort.
 
@@ -24,7 +24,7 @@ Plus tôt, si Lu Wenran avait retardé le scellement du palais souterrain, Wang 
 
 Mais l'égoïsme de Lu Wenran avait placé Wang Lin dans une situation critique!
 
-« Lu Wenran! » Les yeux de Wang Lin étaient injectés de sang, brûlant d'une intention meurtrière. Lorsqu'il était arrivé sur le Continent Astral Immortel, il n'avait aucun sentiment d'appartenance; les gens et les lieux lui semblaient tous étrangers.
+« Lu Wenran! » Les yeux de Wang Lin étaient injectés de sang, brûlant d'une intention meurtrière. Lorsqu'il était arrivé sur le Continent Xian Gang, il n'avait aucun sentiment d'appartenance; les gens et les lieux lui semblaient tous étrangers.
 
 Il ne détestait pas les habitants de ce monde; chacun était simplement absorbé par ses propres desseins.
 
@@ -106,9 +106,9 @@ Le vieil homme nommé Zhou, tremblant, accéléra le débit de ses paroles.
 
 « Voici la situation: bien que six vieux monstres de la Tribulation du Vide soient à l'extérieur, le troisième méridien possède encore un atout ultime. Une fois activé, nous pourrons riposter, nous frayer un chemin et garantir la sécurité de tous pour l'évacuation. »
 
-« Ne paniquez donc pas. Cette méthode nécessite que chacun utilise la totalité de sa culture pour invoquer l'âme du Taureau Céleste et la transformer en une armure d'âme. Une fois l'armure revêtue, l'esprit du Taureau Céleste prendra possession de votre corps, et votre puissance atteindra un niveau terrifiant en un temps record! » lança précipitamment le vieil homme Zhou.
+« Ne paniquez donc pas. Cette méthode nécessite que chacun utilise la totalité de sa culture pour invoquer l'âme du Tian Niu et la transformer en une armure d'âme. Une fois l'armure revêtue, l'esprit du Tian Niu prendra possession de votre corps, et votre puissance atteindra un niveau terrifiant en un temps record! » lança précipitamment le vieil homme Zhou.
 
-À ces mots, la respiration des mille cultivateurs devint erratique. Ils n'avaient jamais entendu parler d'une telle chose. Certains doutaient de l'existence même du Taureau Céleste, mais il semblait que cette créature existait bel et bien, et que son armure pouvait accroître énormément la puissance de celui qui la portait.
+À ces mots, la respiration des mille cultivateurs devint erratique. Ils n'avaient jamais entendu parler d'une telle chose. Certains doutaient de l'existence même du Tian Niu, mais il semblait que cette créature existait bel et bien, et que son armure pouvait accroître énormément la puissance de celui qui la portait.
 
 « Comme revêtir cette armure comporte des risques non négligeables, les cultivateurs de la Tribulation du Vide ont convenu que l'Ancien Lu, qui possède le niveau de culture et la contribution les plus élevés, en serait le porteur. » Tandis que le vieil homme Zhou parlait, dans une grotte lointaine, Wang Lin ouvrit les yeux, dont le regard brillait d'une étrange lueur.
 

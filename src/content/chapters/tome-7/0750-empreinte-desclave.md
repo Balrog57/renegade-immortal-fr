@@ -84,7 +84,7 @@ Il y a quelques années, je me suis infiltré sous une fausse identité au sein 
 
 Sur ces mots, la main droite de Li Yuan s'élança et saisit immédiatement Ge Hong. Il lui agrippa le front; les yeux de la jeune femme étaient remplis de désespoir. Elle voulut dire quelque chose, mais resta muette.
 
-Wang Lin fronça les sourcils et dit calmement: « Cher compagnon de culture Li, les querelles entre votre famille et les Ge ne me concernent pas. Pourquoi m'avez-vous amené ici? »
+Wang Lin fronça les sourcils et dit calmement: « Cher Daoïste Li, les querelles entre votre famille et les Ge ne me concernent pas. Pourquoi m'avez-vous amené ici? »
 
 Li Yuan se tourna vers Wang Lin et répondit avec calme: « J'ai observé le combat du frère Xu contre ce cultivateur de l'Yin Illusoire grâce à mes restrictions. L'un des sorts du frère Xu est extrêmement précieux pour moi. Soyez sans crainte, je ne vous demanderai pas votre aide gratuitement. Une fois cette affaire conclue, je vous offrirai la Restriction des 18 Pruniers dans son intégralité, ainsi que la Restriction d'Annihilation de ma famille en compensation! Pour l'instant, je demande au frère Xu de ne pas s'impatienter, car je dois d'abord offrir un sacrifice aux âmes de mes ancêtres! »
 

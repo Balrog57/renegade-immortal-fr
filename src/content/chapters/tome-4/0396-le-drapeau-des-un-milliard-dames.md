@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 396 - One billion soul soul flag
 slug: le-drapeau-des-un-milliard-dames
 ---
-Alors que la nouvelle de l'affrontement entre Ceng Niu et Xue Yu se répandait sur la planète, Ceng Niu disparut une fois de plus.
+Alors que la nouvelle de l'affrontement entre Zeng Niu et Xue Yu se répandait sur la planète, Zeng Niu disparut une fois de plus.
 
 Après avoir quitté Xue Yu, Wang Lin trouva immédiatement un lieu isolé avant de placer les deux membres dans la perle défiant le ciel.
 
@@ -64,9 +64,9 @@ La nuit, les trois montagnes de la Secte Lian Hun ressemblaient à trois épées
 
 Les neuf anneaux brillèrent, puis un homme d'âge moyen se matérialisa. En voyant Wang Lin, il afficha une expression complexe avant de soupirer: « Moi, Ouyang Tian, je salue le jeune maître de la secte. »
 
-« Jeune maître de la secte... » Les yeux de Wang Lin brillèrent. Il comprit que Du Tian avait dû informer ces cultivateurs de la Formation de l'Âme de leurs échanges.
+« Jeune maître de la secte... » Les yeux de Wang Lin brillèrent. Il comprit que Dun Tian avait dû informer ces cultivateurs de la Formation de l'Âme de leurs échanges.
 
-Wang Lin joignit les mains et dit: « Compagnon cultivateur Ouyang, je souhaite voir l'Ancien. »
+Wang Lin joignit les mains et dit: « Daoïste Ouyang, je souhaite voir l'Ancien. »
 
 Ouyang Tian secoua la tête: « L'Ancien est déjà entré en culture de méditation intensive; à moins qu'il ne s'agisse d'une affaire extrêmement urgente, il ne doit pas être dérangé. Cependant, l'Ancien avait pressenti votre venue et a préparé deux objets pour vous. »
 
@@ -74,9 +74,9 @@ Sur ces mots, son expression se fit plus tourmentée encore alors qu'il lançait
 
 Wang Lin attrapa calmement le sac. Après l'avoir inspecté, son visage prit une teinte étrange.
 
-Ouyang Tian eut un sourire amer: « Le jeune maître est le successeur désigné par l'Ancien Du Tian lui-même. Je suis à la Secte Lian Hun depuis 700 ans et je n'ai jamais vu l'Ancien offrir une telle chose, bien qu'il ne s'agisse pas du drapeau principal, mais d'un sous-drapeau illusionnaire. »
+Ouyang Tian eut un sourire amer: « Le jeune maître est le successeur désigné par l'Ancien Dun Tian lui-même. Je suis à la Secte Lian Hun depuis 700 ans et je n'ai jamais vu l'Ancien offrir une telle chose, bien qu'il ne s'agisse pas du drapeau principal, mais d'un sous-drapeau illusionnaire. »
 
-Plus tôt, Du Tian l'avait convoqué pour lui ordonner de remettre ce sac à Wang Lin dès son arrivée. Discrètement, il avait vérifié son contenu et ce qu'il y avait découvert l'avait terrassé. S'il n'avait pas été consumé par sa loyauté indéfectible envers la Secte et son respect pour Du Tian, la cupidité l'aurait emporté.
+Plus tôt, Dun Tian l'avait convoqué pour lui ordonner de remettre ce sac à Wang Lin dès son arrivée. Discrètement, il avait vérifié son contenu et ce qu'il y avait découvert l'avait terrassé. S'il n'avait pas été consumé par sa loyauté indéfectible envers la Secte et son respect pour Dun Tian, la cupidité l'aurait emporté.
 
 Il n'y avait que deux objets dans le sac. Un morceau de jade et un drapeau d'âme.
 
@@ -88,7 +88,7 @@ L'expression d'Ouyang Tian devint plus complexe encore. Il secoua la tête dans 
 
 « Le pouvoir de lignée du Clan Ju Mo est extrêmement puissant, mais leur patriarche vient à peine d'atteindre le stade de la Transformation de l'Âme; il ne peut donc pas l'utiliser pleinement. Il ne peut s'en servir que pour téléporter quelqu'un dans le vide, au-delà de Suzaku. » Wang Lin n'avait pas quitté la Secte Lian Hun mais s'était assis au sommet de la Montagne de l'Affinement, le regard étincelant.
 
-À l'intérieur du jade, Du Tian avait consigné une description très détaillée du pouvoir de lignée du Clan Ju Mo.
+À l'intérieur du jade, Dun Tian avait consigné une description très détaillée du pouvoir de lignée du Clan Ju Mo.
 
 Wang Lin prit une grande inspiration. Il toucha le sac que Ouyang Tian lui avait remis et, aussitôt, une lumière pourpre et dorée s'en échappa. Cette lueur était si vive qu'elle se mua instantanément en un drapeau de plus de dix mètres de haut qui ondulait sans aucun vent.
 
@@ -98,9 +98,9 @@ Plusieurs lueurs pourpres et dorées étaient visibles sur le drapeau, comme si 
 
 « Le drapeau des un milliard d'âmes! » Wang Lin prit une profonde inspiration en fixant l'objet.
 
-C'était le second objet que l'Ancien Du Tian avait placé dans le sac, celui-là même qui avait provoqué l'expression si complexe d'Ouyang Tian. Wang Lin était revenu pour emprunter un trésor à l'Ancien afin de pouvoir abattre le patriarche du Clan Ju Mo et reprendre l'épée céleste.
+C'était le second objet que l'Ancien Dun Tian avait placé dans le sac, celui-là même qui avait provoqué l'expression si complexe d'Ouyang Tian. Wang Lin était revenu pour emprunter un trésor à l'Ancien afin de pouvoir abattre le patriarche du Clan Ju Mo et reprendre l'épée céleste.
 
-Cependant, ce n'était pas le véritable drapeau; le vrai se trouvait aux côtés de Du Tian durant sa méditation. Celui-ci était un sous-drapeau issu du principal. Il ne contenait qu'un tiers de la puissance du véritable artefact et ne pouvait être utilisé que deux fois avant de disparaître.
+Cependant, ce n'était pas le véritable drapeau; le vrai se trouvait aux côtés de Dun Tian durant sa méditation. Celui-ci était un sous-drapeau issu du principal. Il ne contenait qu'un tiers de la puissance du véritable artefact et ne pouvait être utilisé que deux fois avant de disparaître.
 
 Malgré cela, ce sous-drapeau était inestimable. Les yeux de Wang Lin brillèrent et il s'en saisit. Au moment du contact, son âme originelle trembla et se projeta hors de son corps pour pénétrer dans le drapeau d'âme. Aussitôt, il eut la sensation de basculer dans l'enfer des Asuras.
 
@@ -108,7 +108,7 @@ Il voyait une mer d'âmes se précipiter vers lui pour le noyer. Des vagues de h
 
 Malgré la puissance de son corps, il eut la sensation que sa chair et ses os se séparaient sous une telle force. Ce qui le choqua le plus fut de voir son âme originelle montrer des signes d'effondrement. Il ne pouvait même pas résister à une seule attaque!
 
-Sa main droite, tenant le drapeau, trembla. Les yeux de Wang Lin étincelèrent et il recouvra rapidement sa concentration pour activer la technique de scellement de l'âme que Du Tian lui avait transmise.
+Sa main droite, tenant le drapeau, trembla. Les yeux de Wang Lin étincelèrent et il recouvra rapidement sa concentration pour activer la technique de scellement de l'âme que Dun Tian lui avait transmise.
 
 Le drapeau des un milliard d'âmes était le trésor suprême de la Secte Lian Hun. À l'échelle de la planète entière, il pouvait être considéré comme l'un des plus grands artefacts existants. Ce trésor, à l'instar du char de guerre et de l'épée céleste, exigeait une méthode unique, héritée des générations précédentes, pour être maîtrisé.
 

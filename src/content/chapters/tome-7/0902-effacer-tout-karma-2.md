@@ -38,7 +38,7 @@ Ce jour-là, alors qu'il cultivait, il ouvrit soudainement les yeux et son corps
 
 « Frère Chi Hu, cela faisait longtemps. »
 
-« Ceng Niu! » Chi Hu afficha une expression amère en regardant Wang Lin et resta incapable de prononcer un mot pendant un long moment.
+« Zeng Niu! » Chi Hu afficha une expression amère en regardant Wang Lin et resta incapable de prononcer un mot pendant un long moment.
 
 « Ne mentionne plus les choses du passé. » En parlant, Wang Lin frappa son sac de rangement; une grande quantité de jades célestes s'en échappa, formant une petite colline. Simultanément, il sortit une petite fiole contenant le sang de Lei Ji.
 

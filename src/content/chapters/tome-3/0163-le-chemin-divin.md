@@ -16,7 +16,7 @@ Une sensation de fraîcheur rafraîchissante envahit son corps dès qu'il traver
 
 Wang Lin y plongea la main et la sensation de fraîcheur réapparut.
 
-Le vieil homme au visage rouge dit calmement: « Ceci est la porte du miroir d'eau créée par la méthode de raffinage de mon Sanctuaire du Dieu de la Guerre. Sans le jade pour l'ouvrir, il est impossible d'entrer, à moins d'avoir atteint le stade de la Formation de l'Âme. »
+Le vieil homme au visage rouge dit calmement: « Ceci est la porte du miroir d'eau créée par la méthode de raffinage de mon Temple Zhan Shen. Sans le jade pour l'ouvrir, il est impossible d'entrer, à moins d'avoir atteint le stade de la Formation de l'Âme. »
 
 En entendant les mots « méthode de raffinage », une émotion remua dans le cœur de Wang Lin avant qu'il ne suive l'homme au visage rouge.
 
@@ -26,7 +26,7 @@ Voyant Wang Lin fixer ces portes, le vieil homme déclara: « Il y a au total 36
 
 Wang Lin observa la pièce un instant avant de détourner le regard. Ils étaient arrivés dans la salle centrale. Devant eux se trouvait une étagère à quatre niveaux, sur laquelle reposaient diverses tablettes spirituelles. À l'exception du niveau supérieur qui ne contenait qu'une seule tablette, les autres étages en étaient bien garnis.
 
-Le regard de Wang Lin se posa sur la tablette du sommet. On pouvait y lire: « Ancêtre fondateur du Sanctuaire du Dieu de la Guerre — Gong Mo ».
+Le regard de Wang Lin se posa sur la tablette du sommet. On pouvait y lire: « Ancêtre fondateur du Temple Zhan Shen — Gong Mo ».
 
 « L'Ancêtre Gong est le fondateur de mon Sanctuaire et celui qui a découvert le Chemin Divin. » Le vieil homme au visage rouge s'inclina devant la tablette avant de se tourner vers Wang Lin.
 

@@ -12,17 +12,17 @@ Chi Hu ne pouvait détecter que de très faibles fluctuations d'énergie spiritu
 
 Ces centaines de membres du clan affichaient tous des expressions amères, mêlées de choc. Bien qu'ils en aient déjà été informés, le subir eux-mêmes leur laissait un goût de défaite bien amer.
 
-Chi Hu regarda Wang Lin avec une expression complexe et demanda d'une voix forte: « Ceng Niu, me considères-tu, Chi Hu, comme ton ami? »
+Chi Hu regarda Wang Lin avec une expression complexe et demanda d'une voix forte: « Zeng Niu, me considères-tu, Chi Hu, comme ton ami? »
 
 Wang Lin regarda Chi Hu et hocha la tête. « Je n'ai pas beaucoup d'amis dans ma vie, mais toi, Chi Hu, tu peux être considéré comme l'un d'eux! »
 
-Chi Hu fixa Wang Lin et répliqua mot pour mot: « Ceng Niu, si tu me considères, Chi Hu, comme ton ami, alors quitte immédiatement le Clan Ju Mo! »
+Chi Hu fixa Wang Lin et répliqua mot pour mot: « Zeng Niu, si tu me considères, Chi Hu, comme ton ami, alors quitte immédiatement le Clan Ju Mo! »
 
 Wang Lin réfléchit un instant. Après un moment, il dit lentement: « Chi Hu, sais-tu pourquoi je n'ai pas encore tué une seule personne au sein du Clan Ju Mo? Si ce n'était pas pour toi, je ne les aurais pas épargnés. »
 
 Alors que les deux parlaient, d'autres membres du clan arrivèrent et les encerclèrent. Ils créèrent une aura oppressante qui se refermait lentement sur eux.
 
-Le cœur de Chi Hu était lourd d'amertume. Il afficha un visage tendu et dit: « Ceng Niu, tu... »
+Le cœur de Chi Hu était lourd d'amertume. Il afficha un visage tendu et dit: « Zeng Niu, tu... »
 
 Wang Lin regarda Chi Hu et soupira doucement. « Chi Hu, dis-moi où se trouve l'ancêtre du Clan Ju Mo et j'irai le trouver. Quant aux autres membres, je ne leur ferai aucun mal. »
 
@@ -36,7 +36,7 @@ Leur apparition fut accompagnée d'une puissante pression spirituelle.
 
 Wang Lin jeta un coup d'œil vers eux. Les trois étaient au sommet du stade avancé de la Formation de l'Âme. Ils possédaient également des traces d'énergie spirituelle céleste en eux; ils étaient clairement sur le point de franchir l'étape de la Transformation de l'Âme.
 
-L'un des anciens pourpres déclara d'un ton lugubre: « Ceng Niu, je suis Tian Mu, le Grand Ancien du Clan Ju Mo. Je te défie en duel! »
+L'un des anciens pourpres déclara d'un ton lugubre: « Zeng Niu, je suis Tian Mu, le Grand Ancien du Clan Ju Mo. Je te défie en duel! »
 
 Le regard de Wang Lin était glacial. Il fixa l'ancien et dit: « Tu n'en es pas digne! » Sur ce, il se tourna de nouveau vers Chi Hu pour attendre sa réponse.
 
@@ -52,7 +52,7 @@ Dans un fracas assourdissant, le vieil homme fut repoussé de plus de dix mètre
 
 Wang Lin n'avait même pas bougé. Il regarda le vieillard et reprit: « Tu n'en es toujours pas digne! »
 
-Chi Hu dit amèrement: « Je ne sais pas où se trouve l'ancêtre. Ceng Niu, retiens ton coup; mon Clan Ju Mo n'est pas ton ennemi. »
+Chi Hu dit amèrement: « Je ne sais pas où se trouve l'ancêtre. Zeng Niu, retiens ton coup; mon Clan Ju Mo n'est pas ton ennemi. »
 
 Wang Lin réfléchit. Après un long moment, il leva les yeux vers le ciel, puis pointa Chi Hu du doigt. « Chi Hu, dis à ton ancêtre de me rendre mon épée volante et je partirai immédiatement! »
 
@@ -100,7 +100,7 @@ Une pointe de tristesse apparut dans les yeux de Wang Lin. Il vit la lutte inté
 
 Dans un rayon de 33 kilomètres, lui et Chi Hu étaient les seuls à rester debout. Tous les autres étaient assis en tailleur, chantant ce chant singulier.
 
-Chi Hu regarda Wang Lin avec une expression complexe et dit amèrement: « Ceng Niu, je suis désolé! Cependant, l'ancêtre est l'espoir de notre clan, et en tant que Jeune Maître de Secte, c'est mon devoir... Même avec le corps de l'ancêtre, il ne peut supporter huit assauts de la formation du Passage Céleste. Ton corps n'est pas aussi robuste que celui des membres de mon clan; tu n'as aucune chance de survie... »
+Chi Hu regarda Wang Lin avec une expression complexe et dit amèrement: « Zeng Niu, je suis désolé! Cependant, l'ancêtre est l'espoir de notre clan, et en tant que Jeune Maître de Secte, c'est mon devoir... Même avec le corps de l'ancêtre, il ne peut supporter huit assauts de la formation du Passage Céleste. Ton corps n'est pas aussi robuste que celui des membres de mon clan; tu n'as aucune chance de survie... »
 
 Il leva sa main droite et pointa Wang Lin.
 

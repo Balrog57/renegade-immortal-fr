@@ -6,19 +6,19 @@ bookTitle: Clean Sweep
 en: Chapter 310 - Overlapping Fragments
 slug: fragments-superposes
 ---
-Soudain, des grondements tonitruants emplirent l'espace dans un rayon de cinq kilomètres. Wang Lin prit une profonde inspiration, ses mains s'activant pour parachever une restriction qu'il avait formée entre ses paumes. Il n'avait plus qu'à la lancer dans les airs pour porter le drapeau de restriction à quatre-vingt-dix-neuf groupes, déclenchant ainsi la foudre de la rétribution divine.
+Soudain, des grondements tonitruants emplirent l'espace dans un rayon de cinq kilomètres. Wang Lin prit une profonde inspiration, ses mains s'activant pour parachever une restriction qu'il avait formée entre ses paumes. Il n'avait plus qu'à la lancer dans les airs pour porter le drapeau de restriction à quatre-vingt-dix-neuf groupes, déclenchant ainsi la foudre de la Tribulation Céleste.
 
 L'expression de Hongdie changea radicalement. Elle fixa la restriction dans la main de Wang Lin, puis l'objet noir qui flottait dans le ciel. Un sentiment de danger imminent la submergea, une sensation qu'elle n'avait jamais éprouvée auparavant.
 
 Elle eut le pressentiment que si elle le laissait placer cette restriction, le désastre serait inévitable aujourd'hui.
 
-À cet instant, le visage de Chi Hu pâlit alors qu'il levait les yeux vers l'objet noir suspendu dans le ciel. Il soupira intérieurement: « Ce Ceng Niu n'a toujours pas utilisé toute sa puissance. Il semble que cet objet noir soit son véritable trésor de survie. »
+À cet instant, le visage de Chi Hu pâlit alors qu'il levait les yeux vers l'objet noir suspendu dans le ciel. Il soupira intérieurement: « Ce Zeng Niu n'a toujours pas utilisé toute sa puissance. Il semble que cet objet noir soit son véritable trésor de survie. »
 
 Chi Hu cria: « Compagne cultivatrice Hongdie, vous êtes tous les deux mes invités. Si vous insistez pour continuer l'attaque, cela me pousserait à l'injustice! Je me rangerai naturellement aux côtés du frère Ceng pour riposter. De plus, si je survis pour revenir, je rapporterai sans faute tout ceci à Xi Zu! »
 
 Sur ces mots, une illusion apparut derrière Chi Hu. Il s'agissait d'un géant de plus de trente mètres de haut qui fixait Hongdie de ses yeux glacials.
 
-Hongdie ne put s'empêcher d'hésiter. Elle songea que la technique de Ceng Niu n'était guère simple. L'illusion derrière Chi Hu s'était déjà solidifiée; si elle poursuivait le combat, ce fragment risquait fort de s'effondrer. Après un court instant d'indécision, elle pointa le ciel et ordonna aux pétales de la fleur de s'arrêter.
+Hongdie ne put s'empêcher d'hésiter. Elle songea que la technique de Zeng Niu n'était guère simple. L'illusion derrière Chi Hu s'était déjà solidifiée; si elle poursuivait le combat, ce fragment risquait fort de s'effondrer. Après un court instant d'indécision, elle pointa le ciel et ordonna aux pétales de la fleur de s'arrêter.
 
 « Très bien, Chi Hu. Pour toi, je ne tuerai pas cet homme aujourd'hui, mais ce cercueil de jade doit m'appartenir! »
 
@@ -32,7 +32,7 @@ Le visage de Hongdie devint instantanément livide.
 
 Chi Hu joignit les mains et déclara: « Frère Ceng, je prends la décision. Tout ce que nous obtiendrons cette fois sera partagé équitablement entre nous trois. Qu'en dis-tu? »
 
-« Très bien, je m'en remets au frère Chi Hu, alors », répondit Wang Lin avec un sourire discret. En vérité, il aurait préféré ne pas utiliser la foudre de la rétribution divine si possible. Il n'en possédait qu'une seule et, compte tenu de la structure de ce fragment, il lui serait difficile, même à lui, de s'échapper. En somme, cela lui serait préjudiciable également.
+« Très bien, je m'en remets au frère Chi Hu, alors », répondit Wang Lin avec un sourire discret. En vérité, il aurait préféré ne pas utiliser la foudre de la Tribulation Céleste si possible. Il n'en possédait qu'une seule et, compte tenu de la structure de ce fragment, il lui serait difficile, même à lui, de s'échapper. En somme, cela lui serait préjudiciable également.
 
 De plus, Wang Lin était convaincu que la meilleure occasion de tuer cette femme serait une fois de retour sur Suzaku, loin de toutes ces contraintes.
 
@@ -40,7 +40,7 @@ Chi Hu se tourna vers Hongdie: « Hongdie, je vous prie de ranger votre trésor.
 
 Hongdie laissa échapper un léger reniflement avant d'agiter sa main droite, faisant disparaître la fleur et son pétale.
 
-Elle fixa Wang Lin et lança: « Ceng Niu, oses-tu me défier une fois que nous serons de retour sur Suzaku? »
+Elle fixa Wang Lin et lança: « Zeng Niu, oses-tu me défier une fois que nous serons de retour sur Suzaku? »
 
 Wang Lin rit: « Je serai ravi de t'accompagner! »
 
@@ -48,9 +48,9 @@ Wang Lin écrasa la restriction dans sa main, et le brouillard noir se mua en un
 
 Hongdie regarda profondément Wang Lin. Elle ne put s'empêcher d'admettre que cet homme avait la capacité de lutter contre elle.
 
-Chi Hu se détendit secrètement tout en souriant amèrement intérieurement. S'il avait su que ces deux-là avaient un passif, il ne les aurait jamais invités ensemble. Hongdie était une force prévisible, mais Ceng Niu pouvait affronter un cultivateur au stade avancé de la Formation de l'Âme alors qu'il n'était qu'au début de ce même stade. Il n'était pas simple. Un tel individu brillerait certainement sur Suzaku et pourrait même être pris comme disciple par une puissance de l'endroit.
+Chi Hu se détendit secrètement tout en souriant amèrement intérieurement. S'il avait su que ces deux-là avaient un passif, il ne les aurait jamais invités ensemble. Hongdie était une force prévisible, mais Zeng Niu pouvait affronter un cultivateur au stade avancé de la Formation de l'Âme alors qu'il n'était qu'au début de ce même stade. Il n'était pas simple. Un tel individu brillerait certainement sur Suzaku et pourrait même être pris comme disciple par une puissance de l'endroit.
 
-Chi Hu prit une profonde inspiration et joignit les mains: « Très bien, Hongdie et frère Ceng Niu, veuillez me suivre. L'emplacement indiqué dans le jade est encore loin d'ici. » Sur ces mots, il fit volte-face et s'envola.
+Chi Hu prit une profonde inspiration et joignit les mains: « Très bien, Hongdie et frère Zeng Niu, veuillez me suivre. L'emplacement indiqué dans le jade est encore loin d'ici. » Sur ces mots, il fit volte-face et s'envola.
 
 Hongdie ne daigna même pas regarder Wang Lin; elle se mua en un nuage rouge et rattrapa Chi Hu, refusant manifestement de rester à la traîne.
 
@@ -58,7 +58,7 @@ Wang Lin afficha une expression moqueuse en les suivant.
 
 Il pensa secrètement: « En fin de compte, son esprit et son cœur sont trop instables. Bien qu'atteindre la Formation de l'Âme en cent ans soit un véritable miracle, elle souffre encore de nombreux maux. Son cœur est trop faible. Ce n'est qu'une question de vitesse; quelle est la différence entre être devant ou derrière? »
 
-« Si je la combats avec mon niveau de culture actuel, à moins d'utiliser le drapeau de restriction pour déclencher la foudre de la rétribution divine, je n'ai aucune chance de l'emporter. Mon domaine de la vie et de la mort peine à affecter un domaine impitoyable presque achevé. Cependant, si j'atteins le stade intermédiaire de la Formation de l'Âme, grâce au contrôle que j'aurai sur mon domaine, je serai en mesure de l'influencer. À ce moment-là, même sans déclencher la foudre divine, j'aurais 70 % de chances de la vaincre. »
+« Si je la combats avec mon niveau de culture actuel, à moins d'utiliser le drapeau de restriction pour déclencher la foudre de la Tribulation Céleste, je n'ai aucune chance de l'emporter. Mon domaine de la vie et de la mort peine à affecter un domaine impitoyable presque achevé. Cependant, si j'atteins le stade intermédiaire de la Formation de l'Âme, grâce au contrôle que j'aurai sur mon domaine, je serai en mesure de l'influencer. À ce moment-là, même sans déclencher la foudre divine, j'aurais 70 % de chances de la vaincre. »
 
 Le domaine de la vie et de la mort de Wang Lin était dérivé du cycle de la réincarnation des cieux, mais comme il n'était qu'au début de la Formation de l'Âme, il ne pouvait en déployer toute la puissance. Après tout, il venait à peine de commencer à comprendre les lois célestes.
 

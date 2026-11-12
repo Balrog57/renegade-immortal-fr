@@ -10,7 +10,7 @@ Chaque fois que Wang Lin utilisait l'Arsenal Magique, il admirait profondément 
 
 Ce sort défiait déjà les cieux et avait vaguement l'esprit d'agir au nom du Ciel!
 
-À cet instant, l'âme du Maître du Vide jaillit, imprégnée d'une intention meurtrière. Même l'être sans tête paraissait pâle en comparaison avec l'intention meurtrière du Maître du Vide. Il était mort avec un immense ressentiment; c'était un cultivateur au sommet du stade de Briseur du Nirvana qui traversait son premier Fléau Céleste. La puissance de son âme était absolument terrifiante!
+À cet instant, l'âme de Xu Kongzi jaillit, imprégnée d'une intention meurtrière. Même l'être sans tête paraissait pâle en comparaison avec l'intention meurtrière de Xu Kongzi. Il était mort avec un immense ressentiment; c'était un cultivateur au sommet du stade de Briseur du Nirvana qui traversait son premier Fléau Céleste. La puissance de son âme était absolument terrifiante!
 
 Une fois projetée, son âme entra en combat contre l'être sans tête. D'innombrables autres âmes vinrent prêter main-forte, renversant instantanément la situation.
 
@@ -28,7 +28,7 @@ Le python n'était pas le seul à fondre sur sa proie; une autre créature l'acc
 
 Après le qilin noir, cinq autres êtres sans tête surgirent. C'était comme si des créatures infinies vivaient au sein de ce chaos.
 
-Ces cinq sans-tête suivirent de près le qilin. Ils encerclèrent le Maître du Vide et entamèrent l'assaut.
+Ces cinq sans-tête suivirent de près le qilin. Ils encerclèrent Xu Kongzi et entamèrent l'assaut.
 
 Les yeux de Wang Lin s'illuminèrent. Il voulut invoquer les avatars de Tian Yunzi qui se trouvaient dans le dix-huitième niveau de l'enfer. Cependant, une pensée traversa son esprit alors qu'il fixait Tian Yunzi en ricanant.
 
@@ -68,7 +68,7 @@ Sa main droite ne s'arrêta pas et saisit l'oiseau Vermillon blanc. Simultanéme
 
 « Personne ne pourra te sauver! »
 
-Les six anciens de la Secte Divine de l'Oiseau Vermillon poussèrent des rugissements pour intervenir, mais l'Ancien Démon Ta Jia était trop puissant. Leur nombre était déjà insuffisant, et même avec le géant de flammes, ils perdaient pied. Trois des anciens crachèrent du sang, le regard sombre; ils étaient manifestement gravement blessés.
+Les six anciens de la Secte Divine de Suzaku poussèrent des rugissements pour intervenir, mais l'Ancien Démon Ta Jia était trop puissant. Leur nombre était déjà insuffisant, et même avec le géant de flammes, ils perdaient pied. Trois des anciens crachèrent du sang, le regard sombre; ils étaient manifestement gravement blessés.
 
 Ils n'étaient pas loin, mais il leur était impossible de secourir Wang Lin!
 
@@ -92,13 +92,13 @@ Même un être aussi puissant que Tian Yunzi ne put s'empêcher de trembler, et 
 
 C'était comme si un équilibre subtil avait été rompu par le pouvoir de l'Origine Source!
 
-Alors que le corps de Tian Yunzi était contraint à l'arrêt, l'un des six anciens de la Secte Divine de l'Oiseau Vermillon afficha une folie déterminée. Leur tâche était d'assurer la sécurité de Wang Lin, mais celui-ci se trouvait dans une situation de vie ou de mort. Si Wang Lin mourait sous leurs yeux, cela reviendrait à anéantir tout espoir pour la Secte Divine de l'Oiseau Vermillon.
+Alors que le corps de Tian Yunzi était contraint à l'arrêt, l'un des six anciens de la Secte Divine de Suzaku afficha une folie déterminée. Leur tâche était d'assurer la sécurité de Wang Lin, mais celui-ci se trouvait dans une situation de vie ou de mort. Si Wang Lin mourait sous leurs yeux, cela reviendrait à anéantir tout espoir pour la Secte Divine de Suzaku.
 
 Ceux qui n'appartenaient pas à la secte ne pourraient jamais comprendre la douleur et la frustration accumulées pendant des dizaines de milliers d'années. À cet instant, le vieil homme esquissa un sourire amer et ouvrit les bras. La folie embrasa son regard alors qu'il commençait à détruire son âme d'origine!
 
 L'autodestruction d'un cultivateur du niveau Briseur du Nirvana!
 
-Cette autodestruction fut tellurique, créant une aura de pure destruction. Ce vieil homme était prêt à tout sacrifier, bien que Wang Lin ignore même son nom. Pour l'espoir de la Secte Divine de l'Oiseau Vermillon, il choisissait sa propre fin!
+Cette autodestruction fut tellurique, créant une aura de pure destruction. Ce vieil homme était prêt à tout sacrifier, bien que Wang Lin ignore même son nom. Pour l'espoir de la Secte Divine de Suzaku, il choisissait sa propre fin!
 
 Un grondement assourdissant retentit alors que son corps fut déchiré. Son âme d'origine transporta un impact inimaginable qui balaya tout sur son passage. Les yeux de Tian Yunzi s'illuminèrent et sa main droite se porta vers le milieu de son front. Soudain, trois marques apparurent entre ses sourcils!
 
@@ -116,6 +116,6 @@ L'aura émanant de son corps fit pousser un cri de stupeur à l'assistance. Mêm
 
 C'étaient les vestiges du Royaume Céleste de la Pluie. Ce vieillard en robe blanche était le Seigneur Céleste, second seulement au Seigneur Céleste Qing Shuang. En même temps, il était un Ancien de l'Alliance; sa puissance se situait juste en dessous de celle du Maître Zhong Xuan!
 
-De l'autre côté, une silhouette illusoire glissait à travers les étoiles. Bien que ses mouvements parussent lents, il franchissait en réalité des distances incommensurables d'un seul pas. C'était l'âme d'origine de l'Empereur Divin de l'Oiseau Vermillon.
+De l'autre côté, une silhouette illusoire glissait à travers les étoiles. Bien que ses mouvements parussent lents, il franchissait en réalité des distances incommensurables d'un seul pas. C'était l'âme d'origine de l'Empereur Divin de Suzaku.
 
 Deux autres personnes convergeaient vers la Terre Yao Ling. Il s'agissait du vieil homme du Royaume Kun Xu et... de Mu Bingmei!

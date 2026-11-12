@@ -60,7 +60,7 @@ Ce n'était pas la première fois qu'il procédait ainsi; la première fois, il 
 
 Le temps passa. Le temps ne laissait aucune trace et, sans que rien ne soit ressenti, les années s'écoulèrent une à une.
 
-Lorsque le Royaume Divin Immémorial apparut, les courants sous-jacents qui traversaient le Continent Astral Immortel devinrent plus silencieux. Cependant, cela ne fit qu'accentuer la pression qui enveloppait désormais l'intégralité du continent.
+Lorsque le Royaume Divin Immémorial apparut, les courants sous-jacents qui traversaient le Continent Xian Gang devinrent plus silencieux. Cependant, cela ne fit qu'accentuer la pression qui enveloppait désormais l'intégralité du continent.
 
 Les sectes des divers clans célestes s'étaient tues, instaurant un rare moment de paix. Toutes rassemblaient leurs forces en prévision de l'ouverture du Royaume Divin Immémorial.
 

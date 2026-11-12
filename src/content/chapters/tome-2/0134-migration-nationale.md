@@ -82,7 +82,7 @@ Wang Lin esquissa un sourire amer en contemplant la perle. Celle-ci avait déjà
 
 Wang Lin brûlait d'envie de découvrir la puissance que cette perle déploierait une fois les cinq éléments réunis. Pour l'instant, sa seule capacité semblait être de donner accès à un espace onirique. Cependant, comment un trésor ayant causé la perte du corps du plus grand expert de la planète Suzaku, Situ Nan, pouvait-il être aussi simple?
 
-En fixant la perle, le regard de Wang Lin vacilla. Il la remit dans son front. Ensuite, il secoua son sac de stockage et un jade en sortit. Son sens divin pénétra l'objet. Ce jade contenait la technique d'affinage que Yang Xiong lui avait copiée du Sanctuaire du Dieu de la Guerre.
+En fixant la perle, le regard de Wang Lin vacilla. Il la remit dans son front. Ensuite, il secoua son sac de stockage et un jade en sortit. Son sens divin pénétra l'objet. Ce jade contenait la technique d'affinage que Yang Xiong lui avait copiée du Temple Zhan Shen.
 
 Durant tout ce temps, Wang Lin n'avait pas trouvé le moment de vérifier ce jade. Il pouvait enfin l'étudier en paix.
 
@@ -92,7 +92,7 @@ Parallèlement, les disciples des diverses sectes remarquèrent les bêtes de fe
 
 Les quatre grandes sectes étaient très accoutumées à sceller les volcans et n'avaient qu'une vague connaissance des bêtes de feu. Cependant, ce genre de choses relevait des secrets que seuls les cultivateurs de l'Âme Naissante pouvaient connaître.
 
-À cet instant, dans la salle principale du Sanctuaire du Dieu de la Guerre, quatre hommes et deux femmes étaient assis, fronçant silencieusement les sourcils.
+À cet instant, dans la salle principale du Temple Zhan Shen, quatre hommes et deux femmes étaient assis, fronçant silencieusement les sourcils.
 
 L'un des vieillards à gauche prit la parole d'une voix sombre: « Que pense chacun de cette affaire? »
 
@@ -120,11 +120,11 @@ Il restait encore quatre jours avant les retrouvailles prévues avec Lin Tao. Wa
 
 Après avoir rangé le jade, il agita la main et le morceau de métal sortit immédiatement de son sac. Il fit un tour autour de sa tête avant de se stabiliser devant lui. À force d'être utilisé ces derniers temps, le morceau de métal avait rétréci de moitié. Ses bords étaient noircis, sans doute par les vols à haute vitesse qui l'avaient fait fondre à plusieurs reprises.
 
-Wang Lin réfléchit un instant, puis referma ses mains. Lorsqu'il les rouvrit, de fines lignes d'énergie spirituelle serpentaient entre ses paumes. C'était la première étape de la technique de raffinage du Sanctuaire du Dieu de la Guerre.
+Wang Lin réfléchit un instant, puis referma ses mains. Lorsqu'il les rouvrit, de fines lignes d'énergie spirituelle serpentaient entre ses paumes. C'était la première étape de la technique de raffinage du Temple Zhan Shen.
 
 Cette méthode différait des techniques traditionnelles; on pouvait dire qu'elle suivait sa propre voie. Elle n'impliquait ni le feu spirituel pour le raffinage, ni moule, cuisson et formations ajoutées, ni simple fusion de matériaux. C'était un système singulier, libre comme un cheval céleste galopant dans le ciel.
 
-Ce système spécial exigeait trois étapes: ajuster, fondre et unir. Le Sanctuaire du Dieu de la Guerre requérait également un outil crucial appelé fourneau réactionnel, mentionné à maintes reprises dans le jade.
+Ce système spécial exigeait trois étapes: ajuster, fondre et unir. Le Temple Zhan Shen requérait également un outil crucial appelé fourneau réactionnel, mentionné à maintes reprises dans le jade.
 
 Le rôle du fourneau réactionnel était de stimuler les divers éléments de chaque matériau. Ce n'est qu'après avoir réussi à créer un tel fourneau que l'on pouvait être considéré comme ayant franchi la première étape.
 
@@ -132,7 +132,7 @@ Les mains de Wang Lin s'activaient avec rapidité, augmentant le nombre de fils 
 
 Une fois ce fin tissu d'énergie créé, il agita les mains et l'objet flotta dans les airs. Les yeux de Wang Lin s'illuminèrent alors qu'il se remémorait la fabrication du fourneau réactionnel. Il y avait une exigence particulièrement difficile: utiliser le crâne d'une bête spirituelle comme corps du fourneau.
 
-Wang Lin ignorait que cette seule condition avait empêché la plupart des raffineurs du Sanctuaire du Dieu de la Guerre d'aller plus loin, toute leur vie.
+Wang Lin ignorait que cette seule condition avait empêché la plupart des raffineurs du Temple Zhan Shen d'aller plus loin, toute leur vie.
 
 Il prit une grande inspiration et frappa son sac de stockage. Un tronçon de cadavre de serpent, épais comme un seau d'eau et relié à la tête, en sortit.
 
@@ -180,7 +180,7 @@ Dès cet instant, tout le pays de Huo Fen sombra dans le chaos. Les premiers tou
 
 Vinrent ensuite les familles de cultivateurs, petites et grandes, qui tournèrent leurs regards vers les quatre grandes sectes pour savoir si elles allaient combattre ou s'enfuir.
 
-Les cultivateurs de l'Âme Naissante des quatre sectes se réunirent au Sanctuaire du Dieu de la Guerre. Après avoir rapporté l'affaire au pays de culture supérieur, ils ordonnèrent sans hésiter la migration. Tous les disciples au dehors regagnèrent aussitôt leurs sectes, et la migration de tout le pays commença.
+Les cultivateurs de l'Âme Naissante des quatre sectes se réunirent au Temple Zhan Shen. Après avoir rapporté l'affaire au pays de culture supérieur, ils ordonnèrent sans hésiter la migration. Tous les disciples au dehors regagnèrent aussitôt leurs sectes, et la migration de tout le pays commença.
 
 Après tout, nul ne savait quand un pays de culture de rang 4 viendrait, et les quatre grandes sectes n'osaient pas parier là-dessus. Si elles ne partaient pas vite, même une fois les bêtes de feu détruites, Huo Fen subirait de lourdes pertes de puissance et risquerait fort de retomber au rang 2.
 

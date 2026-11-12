@@ -40,7 +40,7 @@ Au moment où il pénétra dans la Formation de Scellement du Royaume, le mot bl
 
 La structure trembla. Avant même que les esprits de la formation ne puissent apparaître, une large fissure se creusa et la corde de l'arc s'engouffra dans le Royaume Intérieur.
 
-Ceux qui se trouvaient au plus près de la Formation de Scellement du Royaume n'étaient pas les cultivateurs de la Rivière Invoquée ou de Luotian, mais les dizaines de milliers d'envahisseurs du Royaume Extérieur piégés par les Feuilles Anciennes de Wang Lin.
+Ceux qui se trouvaient au plus près de la Formation de Scellement du Royaume n'étaient pas les cultivateurs de Zhao He ou de Luotian, mais les dizaines de milliers d'envahisseurs du Royaume Extérieur piégés par les Feuilles Anciennes de Wang Lin.
 
 À cet instant, la corde de l'arc balaya la zone scellée par les Feuilles Anciennes. Il n'y eut aucun cri de détresse, car tout fut trop rapide. Ce n'est qu'une fois le passage de la corde terminé que les dizaines de milliers de cultivateurs du Royaume Extérieur s'effondrèrent. La corde de l'arc était une force qu'ils ne pouvaient supporter: ils furent tranchés en deux!
 
@@ -78,7 +78,7 @@ Sa vision se brouilla. Le prix pour obtenir cet arc était trop lourd. Alors qu'
 
 Pour contrôler cet arc, il fallait lui offrir sa propre force vitale. Autrement, même en le tenant, on ne pourrait jamais le bander!
 
-Tandis que Wang Lin ressentait l'aura obstinée de l'arc, la douleur intense le fit cracher du sang. Seul son buste subsistait. Hormis lors de son entrée dans la Tombe de l'Ordre Antique, une telle blessure était rare.
+Tandis que Wang Lin ressentait l'aura obstinée de l'arc, la douleur intense le fit cracher du sang. Seul son buste subsistait. Hormis lors de son entrée dans la Tombe de Dao Gu, une telle blessure était rare.
 
 La Bête des Limbes dormait depuis qu'il avait dévoré la tempête dorée, mais il restait lié à Wang Lin. Cette douleur atroce pénétra son esprit et provoqua le réveil de la Bête des Limbes à cet instant même!
 
@@ -94,7 +94,7 @@ Cette tempête était assez puissante pour détruire un système stellaire, et p
 
 Tandis que des grondements tonitruants résonnaient, la tempête dorée percuta la Formation de Scellement du Royaume et explosa vers l'extérieur. Une force destructrice surgit soudainement!
 
-Les visages des cultivateurs de la Rivière Invoquée, de Luotian et de la Mer Yun pâlirent. Les yeux du Maître Hong Shan et de ses compagnons devinrent rouges. Ils utilisèrent désespérément leurs sorts pour déplacer de force ces dizaines de milliers de cultivateurs. En un clin d'œil, plus aucun cultivateur du Royaume Intérieur ne resta sur ce champ de bataille!
+Les visages des cultivateurs de Zhao He, de Luotian et de la Mer Yun pâlirent. Les yeux du Maître Hong Shan et de ses compagnons devinrent rouges. Ils utilisèrent désespérément leurs sorts pour déplacer de force ces dizaines de milliers de cultivateurs. En un clin d'œil, plus aucun cultivateur du Royaume Intérieur ne resta sur ce champ de bataille!
 
 Tous les cultivateurs du Royaume Intérieur furent évacués par le Maître Hong Shan et ses pairs. Même eux disparurent en un instant.
 

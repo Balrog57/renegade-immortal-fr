@@ -109,7 +109,7 @@ Les yeux de Lu Wenran brillèrent d'une intention meurtrière délirante. Voyant
 
 « Peu importe la force de ton corps ou le trésor qui te protège! Meurs, meurs, MEURS! » En un pas, Lu Wenran se retrouva à moins de 500 pieds de Wang Lin!
 
-Au second pas, il n'était plus qu'à 100 pieds. Il leva la main, prêt à porter le coup fatal. À cet instant précis, l'armure de l'âme du Taureau Céleste se transforma en d'innombrables filaments noirs qui filèrent à une vitesse fulgurante, frôlant Lu Wenran sans s'arrêter, pour atteindre Wang Lin.
+Au second pas, il n'était plus qu'à 100 pieds. Il leva la main, prêt à porter le coup fatal. À cet instant précis, l'armure de l'âme du Tian Niu se transforma en d'innombrables filaments noirs qui filèrent à une vitesse fulgurante, frôlant Lu Wenran sans s'arrêter, pour atteindre Wang Lin.
 
 Tout cela se produisit en un éclair. En un instant, Wang Lin fut entouré d'une multitude de filaments noirs et une aura puissante explosa. Lorsque cette onde frappa Lu Wenran, il cracha du sang, ses yeux remplis d'une terreur et d'un regret profonds!
 

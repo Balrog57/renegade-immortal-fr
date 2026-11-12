@@ -46,7 +46,7 @@ Un impact assourdissant retentit; le vieil homme poussa un cri déchirant avant 
 
 « Impossible... Autrefois, Maître a instauré la Tribulation Céleste pour empêcher l'apparition de cultivateurs défiant les cieux. Grâce à elle, aucun cultivateur du troisième pas ne peut émerger. C'est impossible! »
 
-« Sans parler de chez Maître... même dans les grottes des nombreux grands puissants du Continent Astral Immortel, je n'ai jamais entendu dire qu'une fourmi des royaumes inférieurs ait atteint le troisième pas en tant que cultivateur défiant les cieux. Ceci est... »
+« Sans parler de chez Maître... même dans les grottes des nombreux grands puissants du Continent Xian Gang, je n'ai jamais entendu dire qu'une fourmi des royaumes inférieurs ait atteint le troisième pas en tant que cultivateur défiant les cieux. Ceci est... »
 
 Le vieil homme essuya son sang et se retourna soudainement avec un sourire sinistre, la folie brillant dans ses yeux. Il était un Céleste et possédait donc, de toute évidence, des moyens de se sauver dans une situation désespérée. Il était un survivant de cette grande guerre; quiconque avait survécu à ce conflit ne saurait être faible!
 

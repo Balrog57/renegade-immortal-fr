@@ -48,7 +48,7 @@ L'Empereur de l'Ancien Dao sourit et tourna un regard glacial vers le vieil homm
 
 Le vieil homme hocha précipitamment la tête, couvert de sueur. On ignorait si celle-ci provenait du rugissement de l'Empereur ou de la terreur inspirée par le regard de Wang Lin.
 
-« Wang Lin, c'est bien cela? J'ai beaucoup entendu parler de ton nom, surtout en tant qu'Ascendant Empyréen aux Cheveux Blancs qui a ébranlé le Continent Astral Immortel! Lorsque j'ai appris ton existence, j'ai regretté qu'un tel génie ne soit pas né dans l'Ancien Dao! »
+« Wang Lin, c'est bien cela? J'ai beaucoup entendu parler de ton nom, surtout en tant qu'Ascendant Empyréen aux Cheveux Blancs qui a ébranlé le Continent Xian Gang! Lorsque j'ai appris ton existence, j'ai regretté qu'un tel génie ne soit pas né dans l'Ancien Dao! »
 
 « Mais aujourd'hui, je suis comblé de joie! »
 

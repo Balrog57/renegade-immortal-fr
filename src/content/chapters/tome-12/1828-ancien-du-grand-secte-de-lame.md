@@ -12,19 +12,19 @@ Ces quatre caractères jaillirent dans l'esprit de Wang Lin comme des éclairs d
 
 L'expression de Wang Lin devint incertaine tandis qu'il contemplait la stèle de pierre du pont brisé, puis son regard se glaça progressivement.
 
-« Intéressant... Je ne m'attendais pas à une telle découverte sur le Continent Astral Immortel... Une divination capable de calculer le flux du temps. Cette méthode est véritablement fascinante... »
+« Intéressant... Je ne m'attendais pas à une telle découverte sur le Continent Xian Gang... Une divination capable de calculer le flux du temps. Cette méthode est véritablement fascinante... »
 
 « La Secte Da Hun est-elle liée à mon destin? » songea Wang Lin un instant.
 
-« J'ignore ce que je pourrais rencontrer si je me téléporte encore quelques fois, mais il est inutile d'essayer! Que ce soit le Très Respecté Taureau Vert ou un puissant ancêtre d'une époque révolue, quelqu'un a prédit ma venue à la Secte Da Hun et mon intention d'absorber la veine principale de feu terrestre... »
+« J'ignore ce que je pourrais rencontrer si je me téléporte encore quelques fois, mais il est inutile d'essayer! Que ce soit le Très Respecté Qing Niu ou un puissant ancêtre d'une époque révolue, quelqu'un a prédit ma venue à la Secte Da Hun et mon intention d'absorber la veine principale de feu terrestre... »
 
 « Le fait qu'ils m'attendent ici signifie qu'ils cherchent à nouer une relation avec moi... » Wang Lin réfléchit un instant, puis esquissa soudain un sourire.
 
-« Ce plan est très facile à briser, mais pourquoi le ferais-je? La Secte Da Hun veut que je devienne un Ancien, et de mon côté, je compte utiliser la Secte Da Hun pour en apprendre davantage sur le Continent Astral Immortel! » Wang Lin fit un pas en arrière. Des ondulations se propagèrent et il disparut.
+« Ce plan est très facile à briser, mais pourquoi le ferais-je? La Secte Da Hun veut que je devienne un Ancien, et de mon côté, je compte utiliser la Secte Da Hun pour en apprendre davantage sur le Continent Xian Gang! » Wang Lin fit un pas en arrière. Des ondulations se propagèrent et il disparut.
 
 La neige bleue tombait sur la Montagne Céleste comme si elle ne connaissait point de lassitude. La neige des cimes était frappée par les rayons du soleil, dont la lumière se diffusait pour créer une sensation indescriptible, liant la terre aux cieux.
 
-Le véritable corps d'essence du Très Respecté Taureau Vert était assis dans la neige. Ses cheveux ne bougeaient nullement sous le vent, ce qui paraissait très étrange.
+Le véritable corps d'essence du Très Respecté Qing Niu était assis dans la neige. Ses cheveux ne bougeaient nullement sous le vent, ce qui paraissait très étrange.
 
 Devant lui, un bâton d'encens sculpté dans la neige fondait lentement. Il n'en restait qu'une infime partie; il ne tarderait pas à disparaître totalement.
 
@@ -34,19 +34,19 @@ Au moment même où l'encens de neige finit de fondre, un vortex se forma et Wan
 
 Dès qu'il posa le pied sur le sommet de la montagne, l'encens de neige disparut totalement.
 
-« Tu es revenu. » Le véritable corps d'essence du Très Respecté Taureau Vert ouvrit les yeux et sourit.
+« Tu es revenu. » Le véritable corps d'essence du Très Respecté Qing Niu ouvrit les yeux et sourit.
 
-« Voici le Dao de l'Œil de l'Âme. » Le Très Respecté Taureau Vert leva la main droite et saisit le vide. Un jade pourpre apparut dans sa paume, dégageant une aura antique, comme s'il avait existé depuis des éons.
+« Voici le Dao de l'Œil de l'Âme. » Le Très Respecté Qing Niu leva la main droite et saisit le vide. Un jade pourpre apparut dans sa paume, dégageant une aura antique, comme s'il avait existé depuis des éons.
 
 D'un geste, il lança le jade vers Wang Lin sans même attendre de réponse.
 
 Wang Lin attrapa l'objet et l'examina avec son Sens Divin, avant de le ranger calmement.
 
-« Allons-y, nous retournons à la Secte Da Hun. » Le Très Respecté Taureau Vert se leva et épousseta la neige de son véritable corps d'essence. Il fit un pas en avant et un nuage de trois pieds de haut apparut sous ses pieds.
+« Allons-y, nous retournons à la Secte Da Hun. » Le Très Respecté Qing Niu se leva et épousseta la neige de son véritable corps d'essence. Il fit un pas en avant et un nuage de trois pieds de haut apparut sous ses pieds.
 
-Ce nuage gazeux ressemblait à un tourbillon d'air en mouvement rapide. Le Très Respecté Taureau Vert s'y appuya et s'élança avec célérité.
+Ce nuage gazeux ressemblait à un tourbillon d'air en mouvement rapide. Le Très Respecté Qing Niu s'y appuya et s'élança avec célérité.
 
-L'expression de Wang Lin resta sereine lorsqu'il fit un pas en avant. Il ne se fondit pas dans le monde, mais se transforma en un rayon de lumière pour suivre le Très Respecté Taureau Vert. Tous deux se déplacèrent à une vitesse fulgurante et disparurent à l'horizon.
+L'expression de Wang Lin resta sereine lorsqu'il fit un pas en avant. Il ne se fondit pas dans le monde, mais se transforma en un rayon de lumière pour suivre le Très Respecté Qing Niu. Tous deux se déplacèrent à une vitesse fulgurante et disparurent à l'horizon.
 
 La Secte Da Hun comptait de nombreux sommets principaux. La montagne rouge reliée à la veine principale de feu terrestre n'était que l'un d'entre eux. Vu d'en haut, on pouvait contempler une succession infinie de montagnes et de pics perçant les cieux. Certains étaient enveloppés d'une brume épaisse et d'une atmosphère extrêmement lugubre.
 
@@ -62,17 +62,17 @@ Les cent mille disciples de la Secte Da Hun résidaient dans ces vallées et pra
 
 La jeune femme qui possédait cette montagne s'appelait Yan Luan. Elle paraissait sombre, les cheveux légèrement ébouriffés. Une colère latente brûlait en elle, prête à éclater à tout moment.
 
-Dès que Wang Lin et le Très Respecté Taureau Vert apparurent à l'horizon, Yan Luan tourna les yeux vers eux. Son regard se glaça et son visage se couvrit d'une intention meurtrière.
+Dès que Wang Lin et le Très Respecté Qing Niu apparurent à l'horizon, Yan Luan tourna les yeux vers eux. Son regard se glaça et son visage se couvrit d'une intention meurtrière.
 
 « Disciples de la Montagne Yan Mai, écoutez mon ordre! Suivez le Maître pour traquer et tuer le voleur qui a détruit mon pic! » Yan Luan se transforma en un rayon de lumière et s'élança, suivie par plus d'une douzaine de disciples centraux, parmi lesquels Fan Shanmeng et Fan Shanlu.
 
-À première vue, ce groupe de maîtres et de disciples n'était composé que de femmes, toutes d'une grande beauté. Elles prirent la forme d'un phénix en volant vers l'avant pour faire face à Wang Lin et au Très Respecté Taureau Vert.
+À première vue, ce groupe de maîtres et de disciples n'était composé que de femmes, toutes d'une grande beauté. Elles prirent la forme d'un phénix en volant vers l'avant pour faire face à Wang Lin et au Très Respecté Qing Niu.
 
 Après être retourné à la Secte Da Hun, l'expression de Wang Lin resta inchangée, bien que ses émotions fussent très différentes. Lors de sa première entrée, il s'était faufilé; cette fois, il passait par la grande porte.
 
-Il n'avait pas échangé un mot avec le Très Respecté Taureau Vert durant le trajet. En apercevant la Secte Da Hun, le Très Respecté était sur le point de parler quand il fronça soudainement les sourcils. Wang Lin remarqua également le phénix géant qui surgissait de la secte. Cette jeune femme était magnifique, mais empreinte d'une soif de sang effrayante. C'était bien la femme qui avait traqué Wang Lin jusque dans la veine principale de feu terrestre!
+Il n'avait pas échangé un mot avec le Très Respecté Qing Niu durant le trajet. En apercevant la Secte Da Hun, le Très Respecté était sur le point de parler quand il fronça soudainement les sourcils. Wang Lin remarqua également le phénix géant qui surgissait de la secte. Cette jeune femme était magnifique, mais empreinte d'une soif de sang effrayante. C'était bien la femme qui avait traqué Wang Lin jusque dans la veine principale de feu terrestre!
 
-« Petit voleur, tu as détruit ma montagne. Je ne laisserai pas passer cela! » La jeune femme ne laissa aucun répit au Très Respecté Taureau Vert pour s'exprimer. Avec son niveau de culture, comment aurait-elle pu ignorer la situation? L'Ancêtre avait ramené Wang Lin, non comme un prisonnier, mais plutôt comme un invité.
+« Petit voleur, tu as détruit ma montagne. Je ne laisserai pas passer cela! » La jeune femme ne laissa aucun répit au Très Respecté Qing Niu pour s'exprimer. Avec son niveau de culture, comment aurait-elle pu ignorer la situation? L'Ancêtre avait ramené Wang Lin, non comme un prisonnier, mais plutôt comme un invité.
 
 Elle s'était exprimée immédiatement afin que, même face à l'Ancêtre, celui-ci soit contraint de lui fournir des explications. Après tout, elle était une Ancienne de la Secte Da Hun.
 
@@ -118,6 +118,6 @@ Lorsque Wang Lin avait utilisé ce sort contre le Vieux Fantôme Zhan, celui-ci 
 
 « Il est issu des pays Antiques! »
 
-Le Très Respecté Taureau Vert fronça les sourcils et agita la main droite dans un soupir. Une force puissante enveloppa la zone, dissimulant l'aura du Dao Antique de Wang Lin pour que les autres ne puissent plus la percevoir.
+Le Très Respecté Qing Niu fronça les sourcils et agita la main droite dans un soupir. Une force puissante enveloppa la zone, dissimulant l'aura du Dao Antique de Wang Lin pour que les autres ne puissent plus la percevoir.
 
 « Sort Démoniaque, Montagne de Feux de Signal! » Tandis que Wang Lin se tenait là, ses cheveux blancs flottaient au vent, lui conférant une allure majestueuse. Il ouvrit la main pour former une paume et l'abattit d'un geste.

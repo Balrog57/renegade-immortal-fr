@@ -10,7 +10,7 @@ Le bracelet libéra une immense quantité de lumière blanche qui se concentra p
 
 Ce vortex révéla un lieu semblable à un autel, situé à Suzaku.
 
-« Ceng Niu, je me souviendrai de toi! Oui, c'est bien toi!! C'est toi qui m'as forcée à sacrifier un niveau de culture pour utiliser ce bracelet. Je ne l'oublierai pas! On se reverra sur la planète Suzaku! » La haine dans la voix de Hongdie était intense alors qu'elle reculait précipitamment pour s'élancer vers le trou noir.
+« Zeng Niu, je me souviendrai de toi! Oui, c'est bien toi!! C'est toi qui m'as forcée à sacrifier un niveau de culture pour utiliser ce bracelet. Je ne l'oublierai pas! On se reverra sur la planète Suzaku! » La haine dans la voix de Hongdie était intense alors qu'elle reculait précipitamment pour s'élancer vers le trou noir.
 
 Le Bracelet de Paix Ouverte, outre ses capacités ordinaires, possédait une fonction supplémentaire: ouvrir un portail depuis le Royaume Céleste vers Suzaku afin de permettre à l'utilisateur de rentrer en toute sécurité.
 

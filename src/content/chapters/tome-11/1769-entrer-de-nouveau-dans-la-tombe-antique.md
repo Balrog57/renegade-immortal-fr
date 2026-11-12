@@ -114,7 +114,7 @@ S'il existait une personne dont la connaissance de ce lieu était presque égale
 
 C'était ici qu'elle avait rencontré Wang Lin. Finalement, elle avait été libérée grâce à l'aide de ce dernier et n'avait pas été scellée ici. Elle aimait la solitude et ne savait guère communiquer avec autrui. Lorsqu'elle fut contrainte de devenir la concubine du Souverain aux Sept Couleurs, elle n'avait accepté que pour le salut de sa secte.
 
-Elle n'avait que peu d'amis sur le Continent Astral Immortel. Même au sein de la Secte Tian Men, elle passait le plus clair de son temps à cultiver. De par sa personnalité, elle restait toujours isolée parmi les autres concubines.
+Elle n'avait que peu d'amis sur le Continent Xian Gang. Même au sein de la Secte Tian Men, elle passait le plus clair de son temps à cultiver. De par sa personnalité, elle restait toujours isolée parmi les autres concubines.
 
 On pouvait dire que Wang Lin était la première personne à l'avoir réellement aidée dans sa vie. Ce sentiment inédit lui causait une confusion mêlée d'émotion qu'elle ne parvenait pas à nommer.
 

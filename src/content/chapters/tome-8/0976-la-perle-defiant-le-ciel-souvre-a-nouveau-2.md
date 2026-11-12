@@ -56,7 +56,7 @@ Ling Tianhou cracha une large bouchée de sang, mais il accéléra encore davant
 
 La flamme avait la forme d'un Oiseau Vermillon noir!
 
-Ling Tianhou serra les dents avec acharnement pour charger l'Oiseau Vermillon, mais alors qu'il approchait de la flamme, la main géante se referma doucement sur lui!
+Ling Tianhou serra les dents avec acharnement pour charger Suzaku, mais alors qu'il approchait de la flamme, la main géante se referma doucement sur lui!
 
 À cet instant, le corps de Ling Tianhou trembla. Il sentit une force puissante émaner de toutes les directions, le verrouillant sur place.
 

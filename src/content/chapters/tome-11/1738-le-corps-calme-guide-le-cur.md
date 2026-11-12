@@ -42,9 +42,9 @@ Le temps passa. Le quatrième, le cinquième et le sixième souffle du neuvième
 
 En particulier, l'homme en robe dorée était livide et murmurait des paroles incohérentes. Il ne pouvait croire ce qu'il voyait. Cela dépassait son imagination et ses attentes; dans son esprit, c'était une impossibilité absolue.
 
-Il n'appartenait pas au Monde des Grottes; il venait de la Secte Gui Yi, sur le Continent Astral Immortel. Il connaissait trop bien la terreur et la puissance de la Roue du Cœur aux Neuf Cycles. Cette formation était célèbre sur le Continent Astral Immortel!
+Il n'appartenait pas au Monde des Grottes; il venait de la Secte Gui Yi, sur le Continent Xian Gang. Il connaissait trop bien la terreur et la puissance de la Roue du Cœur aux Neuf Cycles. Cette formation était célèbre sur le Continent Xian Gang!
 
-Il n'aurait jamais pensé qu'un cultivateur d'un monde de grottes puisse montrer des signes de rupture de la formation en si peu de temps. Bien que la formation ici fût bien plus faible que celle du Continent Astral Immortel, il s'agissait bel et bien d'une véritable Roue du Cœur aux Neuf Cycles!
+Il n'aurait jamais pensé qu'un cultivateur d'un monde de grottes puisse montrer des signes de rupture de la formation en si peu de temps. Bien que la formation ici fût bien plus faible que celle du Continent Xian Gang, il s'agissait bel et bien d'une véritable Roue du Cœur aux Neuf Cycles!
 
 « C'est impossible... Même s'il était capable de comprendre la formation, elle avait déjà atteint le neuvième cycle. Le temps est limité, il est impossible qu'il parvienne à arrêter complètement la roue avant l'arrivée du neuvième souffle! » L'homme en robe dorée serra les poings et marmonna ces mots avec incrédulité.
 

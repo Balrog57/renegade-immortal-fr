@@ -16,15 +16,15 @@ C'était la 16e marche!
 
 « Plus que trois... Ma volonté ne cédera même pas devant les cieux, pourquoi devrais-je reculer?! » L'essence de vie et de mort de Wang Lin, logée dans les essences éthérées au milieu de son front, jaillit de son corps.
 
-Les essences éthérées n'étaient pas affectées par le Continent Astral Immortel. Dès qu'elles jaillirent, Wang Lin posa le pied sur la 17e marche!
+Les essences éthérées n'étaient pas affectées par le Continent Xian Gang. Dès qu'elles jaillirent, Wang Lin posa le pied sur la 17e marche!
 
-« Ma volonté a percé le monde des grottes et le Continent Astral Immortel. Je suis le premier à quitter le monde des grottes! Même s'il s'agit de la volonté d'un cultivateur au milieu du stade de la Tribulation du Vide, quelles sont vos qualifications pour me forcer à reculer?! » L'essence véritable et fausse de Wang Lin explosa devant lui. Son corps n'était plus qu'une illusion et, alors qu'il changeait rapidement, il atteignit la 18e marche!
+« Ma volonté a percé le monde des grottes et le Continent Xian Gang. Je suis le premier à quitter le monde des grottes! Même s'il s'agit de la volonté d'un cultivateur au milieu du stade de la Tribulation du Vide, quelles sont vos qualifications pour me forcer à reculer?! » L'essence véritable et fausse de Wang Lin explosa devant lui. Son corps n'était plus qu'une illusion et, alors qu'il changeait rapidement, il atteignit la 18e marche!
 
 Cette scène fut vue par tous les disciples de la Secte Da Hun et fit trembler leurs cœurs. En voyant cela, le visage de Yan Luan devint instantanément livide.
 
 Même les vieux monstres de la Secte Da Hun, d'ordinaire en culture retirée, sortirent pour observer la scène de leurs propres yeux.
 
-« Ma volonté ne peut être détruite par la Tribulation Céleste. J'ai repris mon propre destin des mains de la Tribulation Céleste. Je suis venu sur le Continent Astral Immortel non pas pour me soumettre, mais pour me maîtriser moi-même! Je suis venu sur le Continent Astral Immortel non pas pour obéir, mais pour marcher au-dessus des cieux! » Les yeux de Wang Lin brillèrent tandis que son essence karmique jaillissait. Son pied se posa sur la 19e marche et il pénétra au septième étage!
+« Ma volonté ne peut être détruite par la Tribulation Céleste. J'ai repris mon propre destin des mains de la Tribulation Céleste. Je suis venu sur le Continent Xian Gang non pas pour me soumettre, mais pour me maîtriser moi-même! Je suis venu sur le Continent Xian Gang non pas pour obéir, mais pour marcher au-dessus des cieux! » Les yeux de Wang Lin brillèrent tandis que son essence karmique jaillissait. Son pied se posa sur la 19e marche et il pénétra au septième étage!
 
 Au moment où son pied toucha le sol, l'illusion surplombant la Secte Da Hun brilla intensément. Autour d'eux, tout était silencieux. Tous les disciples de la secte levèrent les yeux vers l'illusion avec respect.
 
@@ -34,7 +34,7 @@ Tous ceux qui n'avaient pas une bonne opinion de lui tremblèrent intérieuremen
 
 « Désormais, le septième étage n'est plus un lieu où seuls cinq individus, aux côtés de l'Ancêtre, peuvent entrer. Il y en a maintenant un de plus... » Alors que le silence régnait, un soupir parvint de loin.
 
-Au même instant, au Pic Qing Tian, l'Estimé Taureau Vert réfléchissait. Il était toujours assis là, sans avoir levé les yeux, mais son regard était grave.
+Au même instant, au Pic Qing Tian, l'Estimé Qing Niu réfléchissait. Il était toujours assis là, sans avoir levé les yeux, mais son regard était grave.
 
 « Il... est réellement entré au septième étage... L'Ancêtre avait prédit que cet homme entrerait au septième étage dans trois ans, au huitième dans 30 ans et au neuvième dans 300 ans afin d'apporter la plus grande fortune à ma Secte Da Hun! »
 
@@ -72,7 +72,7 @@ Wang Lin ne répondit pas immédiatement et prit un instant pour réfléchir.
 
 « Tant que tu parviens à entrer au huitième étage, tu peux le prendre! Es-tu prêt à parier?! » La voix de Yan Luan était perçante et résonna dans tout le Pavillon Cang Hun.
 
-Les pas de Wang Lin s'arrêtèrent alors qu'il ressentait les fluctuations d'âme provenant du sixième étage. Il manquait actuellement de trésors. S'il voulait asseoir sa position sur le Continent Astral Immortel, outre sa propre force, les trésors étaient essentiels.
+Les pas de Wang Lin s'arrêtèrent alors qu'il ressentait les fluctuations d'âme provenant du sixième étage. Il manquait actuellement de trésors. S'il voulait asseoir sa position sur le Continent Xian Gang, outre sa propre force, les trésors étaient essentiels.
 
 « Si je parviens à l'obtenir, j'aurai un atout majeur capable de menacer les cultivateurs du milieu de la Tribulation du Vide... » Wang Lin songea, son regard balayant l'escalier menant au huitième étage.
 
@@ -100,7 +100,7 @@ En entendant les paroles de Wang Lin, Yan Luan commença à ressentir un regret 
 
 « D'accord, je parie avec toi! Je ne crois pas que tu puisses franchir le septième et le huitième étage d'affilée! » Yan Luan serra les dents.
 
-Wang Lin rit et, d'un revers de manche, se dirigea vers l'escalier menant au huitième étage. L'esprit de Wang Lin et l'avatar dans le vide formèrent une connexion. Cette liaison ignorait toutes les restrictions de la Secte Da Hun et même les innombrables barrières du Pavillon Cang Hun. Même les lois du Continent Astral Immortel ne pouvaient entraver la puissance qui affluait vers lui.
+Wang Lin rit et, d'un revers de manche, se dirigea vers l'escalier menant au huitième étage. L'esprit de Wang Lin et l'avatar dans le vide formèrent une connexion. Cette liaison ignorait toutes les restrictions de la Secte Da Hun et même les innombrables barrières du Pavillon Cang Hun. Même les lois du Continent Xian Gang ne pouvaient entraver la puissance qui affluait vers lui.
 
 Les yeux de Wang Lin brillèrent et, en sept pas, il atteignit l'escalier du huitième étage. D'un seul mouvement, il avança.
 
@@ -118,7 +118,7 @@ La silhouette de Wang Lin réapparut sur les marches. Cette chevelure blanche ch
 
 « C'est un événement rarissime, même sur des centaines d'années! Je vais assister à quelqu'un qui tente de franchir les septième et huitième étages d'un seul coup! »
 
-Un tumulte éclata alors que les anciens en culture retirée tournaient tous leurs regards avec des expressions graves. Au Pic Qing Tian, l'Estimé Taureau Vert ne put plus maintenir son calme. Il se leva, son expression changeant sans cesse; il ne pouvait plus cacher le choc qui agitait son cœur.
+Un tumulte éclata alors que les anciens en culture retirée tournaient tous leurs regards avec des expressions graves. Au Pic Qing Tian, l'Estimé Qing Niu ne put plus maintenir son calme. Il se leva, son expression changeant sans cesse; il ne pouvait plus cacher le choc qui agitait son cœur.
 
 « Il va au huitième étage!! Atteindre le septième étage avec trois ans d'avance est une chose, mais entrer au huitième étage 30 ans prématurément est... » L'Ancien ne savait pas si cela serait bénéfique ou néfaste pour la Secte Da Hun. Cependant, ce décalage par rapport à la divination de l'Ancêtre originel lui causait un profond malaise.
 

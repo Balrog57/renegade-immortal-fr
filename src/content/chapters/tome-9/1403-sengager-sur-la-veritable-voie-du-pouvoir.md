@@ -20,9 +20,9 @@ Les yeux de Wang Lin s'illuminèrent alors qu'il fixait la surface du lac, tenta
 
 Voyant Wang Lin ainsi, le vieil homme fut d'autant plus ravi et ne le dérangea pas. Il voulait tester la finesse de sa compréhension et voir si Wang Lin parviendrait à saisir le sens profond de cette technique.
 
-« À l'époque où je l'ai apprise de l'Ancêtre, je n'avais pas pu en saisir la signification par moi-même. Même l'incroyable descendant de la quatrième génération de l'Oiseau Vermillon n'avait pu qu'en comprendre les contours, sans jamais en saisir le cœur. Ce n'est que lorsque l'Ancêtre nous l'eut expliqué que nous avons soudainement réalisé sa véritable essence. Voyons ce que fera la sixième génération. »
+« À l'époque où je l'ai apprise de l'Ancêtre, je n'avais pas pu en saisir la signification par moi-même. Même l'incroyable descendant de la quatrième génération de Suzaku n'avait pu qu'en comprendre les contours, sans jamais en saisir le cœur. Ce n'est que lorsque l'Ancêtre nous l'eut expliqué que nous avons soudainement réalisé sa véritable essence. Voyons ce que fera la sixième génération. »
 
-« Cependant, le talent de cet enfant ne peut être comparé à celui de la quatrième génération. Son niveau de culture actuel doit être le fruit de rencontres fortuites, ou peut-être est-ce dû à ce disciple dont la quatrième génération de l'Oiseau Vermillon avait parlé. »
+« Cependant, le talent de cet enfant ne peut être comparé à celui de la quatrième génération. Son niveau de culture actuel doit être le fruit de rencontres fortuites, ou peut-être est-ce dû à ce disciple dont la quatrième génération de Suzaku avait parlé. »
 
 « Autrement, il n'aurait aucun moyen d'atteindre ce niveau de culture terrifiant, frôlant les limites du Feu Éthéré, en seulement un peu plus de 2 000 ans de culture. Même l'Ancêtre n'aurait pu accomplir cela à son âge. » Soudain, le vieil homme songea aux cinq essences de Wang Lin et marqua une pause.
 
@@ -50,7 +50,7 @@ C'est pour cette raison que la perception de la force chez Wang Lin différait r
 
 L'expression du vieil homme devint sérieuse, trahissant une pointe de choc. Il ne s'attendait pas à ce que Wang Lin saisisse l'essence de ce sort par lui-même!
 
-« Le talent de cet enfant n'a rien à voir avec celui de la quatrième génération de l'Oiseau Vermillon; la différence est abyssale. Cette illumination est terrifiante... Il a réussi à utiliser sa compréhension pour compenser son manque de talent, atteignant ainsi le même degré de maîtrise que la quatrième génération! Pas étonnant qu'il possède cinq essences. Il semble que ce ne fût pas un hasard... » Le vieil homme prit une profonde inspiration et regarda Wang Lin avec admiration. Il s'apprêtait à lui expliquer la suite, car à ses yeux, Wang Lin avait atteint sa limite et ne pourrait pas creuser davantage.
+« Le talent de cet enfant n'a rien à voir avec celui de la quatrième génération de Suzaku; la différence est abyssale. Cette illumination est terrifiante... Il a réussi à utiliser sa compréhension pour compenser son manque de talent, atteignant ainsi le même degré de maîtrise que la quatrième génération! Pas étonnant qu'il possède cinq essences. Il semble que ce ne fût pas un hasard... » Le vieil homme prit une profonde inspiration et regarda Wang Lin avec admiration. Il s'apprêtait à lui expliquer la suite, car à ses yeux, Wang Lin avait atteint sa limite et ne pourrait pas creuser davantage.
 
 Cependant, avant qu'il ne puisse parler, les yeux de Wang Lin s'illuminèrent et il déclara lentement: « Ce n'est là que l'aspect secondaire... »
 

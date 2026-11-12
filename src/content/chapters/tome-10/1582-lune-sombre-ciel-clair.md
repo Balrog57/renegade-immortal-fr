@@ -50,7 +50,7 @@ Tout cela ne suffisait pas à résister à la Concubine Impériale Céleste. Wan
 
 Lune Sombre, Ciel Clair!
 
-Wang Lin n'avait vu que ce sort une seule fois, utilisé par le Seigneur Céleste Qing Shui dans le Royaume aux Sept Couleurs, au sein de la Rivière Invoquée. Ils étaient frères apprentis et avaient tous deux cultivé les six sorts de Bai Fan.
+Wang Lin n'avait vu que ce sort une seule fois, utilisé par le Seigneur Céleste Qing Shui dans le Royaume aux Sept Couleurs, au sein de Zhao He. Ils étaient frères apprentis et avaient tous deux cultivé les six sorts de Bai Fan.
 
 Wang Lin n'était pas aussi habile que Qing Shui pour utiliser *Lune Sombre, Ciel Clair* à sa guise. Cependant, il pouvait forcer l'activation du sort en utilisant tous les sorts qui le précédaient.
 

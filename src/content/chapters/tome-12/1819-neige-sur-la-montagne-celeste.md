@@ -62,11 +62,11 @@ Une peur viscérale envers Wang Lin grandit en lui. Cela n'avait rien à voir av
 
 Dans la grotte, Wang Lin tapota ses vêtements pour en chasser le froid, puis s'assit. Après sept mois, il avait enfin éveillé son avatar dans le vide.
 
-Dès l'éveil de l'avatar, Wang Lin ressentit une compréhension indescriptible émanant du vide lointain. La barrière invisible qui l'entravait se desserra soudainement. C'était comme si la loi du Continent Astral Immortel qui l'arrêtait avait disparu.
+Dès l'éveil de l'avatar, Wang Lin ressentit une compréhension indescriptible émanant du vide lointain. La barrière invisible qui l'entravait se desserra soudainement. C'était comme si la loi du Continent Xian Gang qui l'arrêtait avait disparu.
 
 Toutes sortes d'illuminations jaillirent dans son esprit. Cela semblait clair, mais avec le recul, c'était encore très vague. Wang Lin savait que cela était dû au fait que son avatar était encore en pleine croissance.
 
-Une fois l'avatar parvenu à maturité, Wang Lin comprendrait parfaitement toutes les lois du Continent Astral Immortel.
+Une fois l'avatar parvenu à maturité, Wang Lin comprendrait parfaitement toutes les lois du Continent Xian Gang.
 
 Simultanément, la puissante pression se délesta comme de la glace qui fond. D'innombrables fissures semblèrent apparaître et le sens divin de Wang Lin fusionna immédiatement avec le monde, au lieu de tenter de s'y frayer un chemin par la force.
 

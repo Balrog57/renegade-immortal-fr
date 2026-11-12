@@ -82,11 +82,11 @@ Ce qui s'était passé dans le monde des grottes faisait désormais partie de sa
 
 Wang Lin s'assit. Après avoir écouté ses explications et observé ses réactions, il se détendit légèrement. Il restait néanmoins prudent: si Fan Shanlu manifestait la moindre intention suspecte, il attaquerait sans hésiter.
 
-« Tu es toujours aussi prudent... Mais c'est une bonne chose; il faut savoir l'être sur le Continent Astral Immortel pour survivre... » sourit Fan Shanlu en le regardant.
+« Tu es toujours aussi prudent... Mais c'est une bonne chose; il faut savoir l'être sur le Continent Xian Gang pour survivre... » sourit Fan Shanlu en le regardant.
 
-« Il y a trois ans, j'ai rencontré Yun Yifeng de la Secte Gui Yi et je lui ai parlé de toi. En principe, tu aurais dû arriver sur le Continent Astral Immortel il y a longtemps, mais nous n'avions toujours pas eu de tes nouvelles. Peut-être qu'un incident s'est produit ou que tu te trouvais dans un lieu très reculé. Je ne m'attendais pas à te retrouver ici aujourd'hui. » Fan Shanlu cligna des yeux en riant.
+« Il y a trois ans, j'ai rencontré Yun Yifeng de la Secte Gui Yi et je lui ai parlé de toi. En principe, tu aurais dû arriver sur le Continent Xian Gang il y a longtemps, mais nous n'avions toujours pas eu de tes nouvelles. Peut-être qu'un incident s'est produit ou que tu te trouvais dans un lieu très reculé. Je ne m'attendais pas à te retrouver ici aujourd'hui. » Fan Shanlu cligna des yeux en riant.
 
-« Il y a eu quelques imprévus en chemin, je suis donc un peu en retard. Je suis heureux de te voir », répondit Wang Lin avec un sourire. Rencontrer une connaissance sur le Continent Astral Immortel était rare, et cela lui procura une sensation de chaleur intérieure.
+« Il y a eu quelques imprévus en chemin, je suis donc un peu en retard. Je suis heureux de te voir », répondit Wang Lin avec un sourire. Rencontrer une connaissance sur le Continent Xian Gang était rare, et cela lui procura une sensation de chaleur intérieure.
 
 En vérité, Fan Shanlu ressentait la même chose. Après tout, elle avait passé la majeure partie de sa vie dans cette grotte. Son lien avec la Secte Da Hun n'était que nominal et lui semblait désormais très ténu.
 
@@ -108,7 +108,7 @@ En entendant cela, l'expression de Fan Shanlu s'adoucit et elle secoua la tête 
 
 L'expression de Wang Lin resta sérieuse. Il se leva et joignit les mains en signe de gratitude envers Fan Shanlu. « Merci infiniment! »
 
-« Il n'y a pas lieu de me remercier, c'est moi qui te dois des remerciements. Sans toi, je n'aurais jamais pu revenir sur le Continent Astral Immortel. » Fan Shanlu se leva à son tour.
+« Il n'y a pas lieu de me remercier, c'est moi qui te dois des remerciements. Sans toi, je n'aurais jamais pu revenir sur le Continent Xian Gang. » Fan Shanlu se leva à son tour.
 
 « Cette affaire ne doit pas traîner, nous devons y aller. Je vais devoir te demander de rester caché en moi... » En prononçant ces mots, elle rougit.
 

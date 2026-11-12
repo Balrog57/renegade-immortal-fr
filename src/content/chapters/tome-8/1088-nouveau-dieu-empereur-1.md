@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1088 - New Divine Emperor (1)
 slug: nouveau-dieu-empereur-1
 ---
-Wang Lin flottait parmi les étoiles, entouré de flammes. L'onde de chaleur se propageait à travers tout le champ stellaire et enveloppait la Secte Divine de l'Oiseau Vermillon.
+Wang Lin flottait parmi les étoiles, entouré de flammes. L'onde de chaleur se propageait à travers tout le champ stellaire et enveloppait la Secte Divine de Suzaku.
 
 Sur son bras droit, il ne restait plus que sept tatouages de feu. La fleur de feu qui venait de s'épanouir se trouvait à l'extérieur de son corps, tandis qu'une dense énergie d'origine du feu pénétrait en lui.
 
@@ -32,7 +32,7 @@ Tandis qu'il rugissait, une lueur écarlate émana de lui et une armure cramoisi
 
 À l'instant où l'armure apparut, l'inimaginable énergie d'origine dans le corps de Wang Lin sembla trouver un refuge en s'engouffrant dans l'armure. Cela fit briller cette protection écarlate avec une intensité accrue.
 
-L'Empereur Divin de l'Oiseau Vermillon observait Wang Lin avec anticipation et tension, sa main droite levée dans les airs. Si Wang Lin ne parvenait pas à endurer cela, il interviendrait immédiatement. Bien que cela le décevrait, ce membre du clan qui s'était éveillé deux fois était plus important que la Première Transformation.
+L'Empereur Divin de Suzaku observait Wang Lin avec anticipation et tension, sa main droite levée dans les airs. Si Wang Lin ne parvenait pas à endurer cela, il interviendrait immédiatement. Bien que cela le décevrait, ce membre du clan qui s'était éveillé deux fois était plus important que la Première Transformation.
 
 « Je suis trop impatient. Son talent est ordinaire; le forcer ainsi pourrait lui nuire... Hélas. » Il avait déjà pris sa décision: dès que Wang Lin montrerait qu'il ne pouvait plus tenir, il viendrait à son aide sans attendre.
 
@@ -44,7 +44,7 @@ Le cinquième tatouage, le quatrième tatouage, le troisième tatouage!
 
 Il activa quatre tatouages presque simultanément. À cet instant, une quantité d'énergie équivalente à quatre fois la sienne jaillit, provoquant un grondement fracassant qui fit trembler les cieux et résonna à travers tout le champ stellaire!
 
-L'action insensée de Wang Lin fit se rétracter les pupilles de l'Empereur Divin de l'Oiseau Vermillon. Il voyait bien que Wang Lin portait en lui une détermination impitoyable.
+L'action insensée de Wang Lin fit se rétracter les pupilles de l'Empereur Divin de Suzaku. Il voyait bien que Wang Lin portait en lui une détermination impitoyable.
 
 « Cet homme n'a cultivé que depuis un peu plus de mille ans et a pourtant pu atteindre ce niveau. S'être éveillé deux fois n'était pas un accident. Sa cruauté et sa combativité sont les clés de tout ceci! »
 
@@ -52,13 +52,13 @@ L'apport de quatre fois sa capacité d'énergie d'origine, s'ajoutant à l'éner
 
 Un Oiseau Vermillon blanc jaillit instantanément du sommet de son crâne et poussa aussitôt son cri. La masse colossale d'énergie d'origine se déversa aussitôt dans l'oiseau, le faisant croître jusqu'à ce qu'il couvre le ciel.
 
-Cet Oiseau Vermillon avait été capturé par Tian Yunzi, mais depuis l'arrivée de l'Empereur Divin de l'Oiseau Vermillon, comment pouvait-il laisser cet homme s'emparer de l'esprit de l'Oiseau Vermillon?
+Cet Oiseau Vermillon avait été capturé par Tian Yunzi, mais depuis l'arrivée de l'Empereur Divin de Suzaku, comment pouvait-il laisser cet homme s'emparer de l'esprit de Suzaku?
 
 Alors que le Oiseau Vermillon se manifestait, Wang Lin endura la douleur atroce qui le ravageait et poussa un rugissement en levant sa main gauche pour pointer l'un des deux derniers tatouages de feu!
 
 En un instant, ce tatouage se mua en énergie d'origine et pénétra rapidement dans son corps. À cet instant, Wang Lin eut la sensation que tout son être brûlait, comme s'il était raffiné à l'intérieur d'un fourneau céleste naturel.
 
-Wang Lin ignorait que les membres de la Secte Divine de l'Oiseau Vermillon observaient tous l'ascension d'un nouvel Empereur Divin grâce à leurs sens divins par une méthode spéciale! Des personnes familières regardaient également la scène.
+Wang Lin ignorait que les membres de la Secte Divine de Suzaku observaient tous l'ascension d'un nouvel Empereur Divin grâce à leurs sens divins par une méthode spéciale! Des personnes familières regardaient également la scène.
 
 Lei Ji et Da Tou étaient sur un sommet montagneux. Ils cessèrent leur culture pour lever les yeux vers le ciel. Tous deux pressentaient vaguement que Wang Lin était tel un phénix dans le brasier, en pleine renaissance.
 
@@ -90,7 +90,7 @@ Durant ces trois années, ce jeune homme était resté là à protéger la statu
 
 « Professeur... » C'était Treize!
 
-Sur la planète où se trouvait la Secte Lian Hun, un vieil homme était assis sur les remparts d'une cité de la Secte Divine de l'Oiseau Vermillon. Il tenait une cruche de vin et buvait avec une expression amère. Il en était ainsi depuis trois ans.
+Sur la planète où se trouvait la Secte Lian Hun, un vieil homme était assis sur les remparts d'une cité de la Secte Divine de Suzaku. Il tenait une cruche de vin et buvait avec une expression amère. Il en était ainsi depuis trois ans.
 
 Le grondement tonitruant et la lueur cramoisie qui embrasait le ciel le firent lever la tête. Mais après un bref regard, il la baissa et continua de boire.
 
@@ -110,7 +110,7 @@ Il y avait un autre endroit au sein de ce champ stellaire ardent. Bien que la ch
 
 « Wang l'Étoile funeste, si tu pousses ton Grand-père Xu à bout, je me battrai jusqu'à la mort! »
 
-Les jurons et les supplications misérables ne s'étaient jamais interrompus durant ces trois années. Parfois, des cris de douleur déchiraient l'air. Cela faisait que, chaque fois qu'un disciple de la Secte Divine de l'Oiseau Vermillon passait par là, il faisait un détour pour éviter ce bruit agaçant.
+Les jurons et les supplications misérables ne s'étaient jamais interrompus durant ces trois années. Parfois, des cris de douleur déchiraient l'air. Cela faisait que, chaque fois qu'un disciple de la Secte Divine de Suzaku passait par là, il faisait un détour pour éviter ce bruit agaçant.
 
 Au centre du cyclone siégeait un homme. Entouré de flammes, il devait constamment utiliser des sorts pour les repousser. Le moindre instant d'inattention le condamnerait à être consumé.
 

@@ -22,7 +22,7 @@ Leurs coups utilisaient des méthodes différentes, mais tous deux reposaient su
 
 *Si je ne peux pas te détruire d'un seul coup, alors je te frapperai quatre-vingt-dix-neuf fois consécutives. Il n'y a aucune technique, et peu importe ta résistance, tu seras réduit en miettes par ces quatre-vingt-dix-neuf coups!*
 
-Le coup de Wang Lin utilisait le sort de la Tortue Noire qu'il avait appris de la deuxième génération de l'Oiseau Vermillon sur la Planète du Grand Empereur. Il fusionna la force de rebond dans son poing afin que cette puissance puisse éclater d'un seul coup!
+Le coup de Wang Lin utilisait le sort de la Tortue Noire qu'il avait appris de la deuxième génération de Suzaku sur la Planète du Grand Empereur. Il fusionna la force de rebond dans son poing afin que cette puissance puisse éclater d'un seul coup!
 
 Pour simplifier, le coup de Wang Lin traitait Tuo Sen comme la surface de l'eau. Son impact créa une puissante force de rebond sur Tuo Sen. Wang Lin emprunta alors habilement cette force pour l'utiliser comme sa propre attaque. Son coup ne contenait pas seulement sa propre puissance, mais aussi celle qu'il avait dérobée à Tuo Sen!
 

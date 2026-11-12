@@ -92,7 +92,7 @@ Wang Lin agita la main droite et les Cristaux de Mutation de Feu Déchaîné qu'
 
 « Ces cristaux ne pourront pas éveiller mon Oiseau Vermillon pour la quatrième fois, mais avec ma maîtrise du feu, je peux en faire des trésors. Leur force destructrice ne sera pas inférieure à celle de la Pilule d'Effondrement du Dragon que je viens de raffiner! »
 
-Wang Lin n'hésita pas à utiliser le sortilège de fusion. Un motif d'Oiseau Vermillon apparut vaguement dans son œil gauche, rendant les flammes encore plus ardentes!
+Wang Lin n'hésita pas à utiliser le sortilège de fusion. Un motif de Suzaku apparut vaguement dans son œil gauche, rendant les flammes encore plus ardentes!
 
 « Cinquième niveau de Fléau Céleste, et alors? Si vous venez avec votre avatar, je vous ferai périr ici même! Si vous venez avec votre corps originel en utilisant votre culture de la troisième étape, je ne crois pas que vous survivrez. Après tout, un cultivateur de la troisième étape peut aisément détruire toute la Terre Déchue! Même si personne ne l'arrête, je n'aurai qu'à fuir. L'appât est déjà posé auprès du Clan Huo Que, ils viendront naturellement à ma rencontre! »
 

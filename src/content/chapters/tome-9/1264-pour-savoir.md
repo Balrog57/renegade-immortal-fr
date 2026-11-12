@@ -20,7 +20,7 @@ Wang Lin détourna son regard de Mu Bingmei, l'expression sereine. Les sentiment
 
 Wang Lin dit calmement: « Beaucoup de choses dans ce monde sont difficiles à prédire. »
 
-Le visage de Mu Bingmei affichait une beauté éblouissante sous la lune. Cette splendeur était empreinte d'un tempérament noble, une aura qu'elle avait naturellement acquise en tant que Sainte du Vide Brillant durant toutes ces années.
+Le visage de Mu Bingmei affichait une beauté éblouissante sous la lune. Cette splendeur était empreinte d'un tempérament noble, une aura qu'elle avait naturellement acquise en tant que Sainte de Kun Xu durant toutes ces années.
 
 Aucune femme rencontrée par Wang Lin dans sa vie ne pouvait se comparer à Mu Bingmei. Elle était comme une fée qui n'aurait jamais dû exister dans ce monde, mais qui y était descendue par accident.
 
@@ -58,7 +58,7 @@ Il n'avait jamais imaginé que le réveil de Tuo Sen déclencherait une telle te
 
 Les vagues dans l'esprit de Wang Lin finirent par se calmer. Il s'était déjà préparé mentalement à l'apparition de Tuo Sen, mais les paroles de Mu Bingmei le laissèrent tout de même stupéfait.
 
-« En tant que Sainte du Vide Brillant, je possède l'héritage du Royaume Kun Xu. Il y a des dizaines de milliers d'années, une ancienne Sainte du Vide Brillant entretenait des liens avec la Secte Divine. Le Grand Ancien de la Secte Divine lui devait une faveur, j'ai donc utilisé une technique secrète pour fuir ici. Je veux me rendre à la Secte Divine et utiliser leur puissance pour m'aider à me rétablir... » La voix de Mu Bingmei devint basse, puis elle se mit soudainement à trembler.
+« En tant que Sainte de Kun Xu, je possède l'héritage du Royaume Kun Xu. Il y a des dizaines de milliers d'années, une ancienne Sainte de Kun Xu entretenait des liens avec la Secte Divine. Le Grand Ancien de la Secte Divine lui devait une faveur, j'ai donc utilisé une technique secrète pour fuir ici. Je veux me rendre à la Secte Divine et utiliser leur puissance pour m'aider à me rétablir... » La voix de Mu Bingmei devint basse, puis elle se mit soudainement à trembler.
 
 Ce qui faisait trembler son corps, c'était Wang Lin!
 
@@ -112,7 +112,7 @@ Alors qu'il venait de comprendre la situation, un rugissement furieux résonna �
 
 C'était déjà le neuvième clan antique qu'il détruisait. Il ne parvenait toujours pas à trouver la moindre trace de Wang Lin dans le Système Stellaire Antique, ce qui rendait Tuo Sen presque fou!
 
-Cependant, à l'instant même où il anéantissait ce clan, son esprit trembla. Il sentit distinctement l'empreinte qu'il avait laissée sur la Sainte du Vide Brillant détecter l'aura de Wang Lin!
+Cependant, à l'instant même où il anéantissait ce clan, son esprit trembla. Il sentit distinctement l'empreinte qu'il avait laissée sur la Sainte de Kun Xu détecter l'aura de Wang Lin!
 
 Cette découverte rendit le visage de Tuo Sen affreux, et une tempête éclata en lui.
 

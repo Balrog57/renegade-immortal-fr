@@ -102,7 +102,7 @@ Devant lui, le passage formé par la lueur sombre couvrant les huit portes resta
 
 *Rugissement!!* Les soldats en armure noire situés dans le passage qui avait été repoussé de 100 000 pieds poussèrent un troisième rugissement. La lumière noire s'étendit et prit la forme d'un tigre noir qui, dans le palais, devant Wang Lin, bondit sur lui en rugissant.
 
-« Reculez tous! » Les yeux de Wang Lin brillèrent et le totem de l'âme du Taureau Céleste sur son visage se répandit instantanément sur tout son corps. Il lança alors un coup de poing de la main droite, et l'armure d'âme disparut de son corps.
+« Reculez tous! » Les yeux de Wang Lin brillèrent et le totem de l'âme du Tian Niu sur son visage se répandit instantanément sur tout son corps. Il lança alors un coup de poing de la main droite, et l'armure d'âme disparut de son corps.
 
 Lorsque ce coup percuta sa cible, le monde trembla et l'ombre du tigre se désintégra. Le passage noir formé par les huit portes restantes s'effondra avec la lumière noire. Les 100 000 soldats en armure noire crachèrent tous du sang et furent projetés en arrière, sans qu'aucun ne succombe.
 

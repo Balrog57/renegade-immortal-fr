@@ -64,7 +64,7 @@ L'expression de Lu Fei et Tie Yan changea instantanément. Ils reculèrent rapid
 
 « Asseyez-vous! » dit doucement Wang Lin avec un léger sourire.
 
-Le vieil homme regarda Li Muwan et sourit: « Depuis notre séparation d'alors, compagnon cultivateur, vous allez bien. Je me demande combien de fils de flamme vous avez pu obtenir. »
+Le vieil homme regarda Li Muwan et sourit: « Depuis notre séparation d'alors, Daoïste, vous allez bien. Je me demande combien de fils de flamme vous avez pu obtenir. »
 
 Wang Lin fut stupéfait. Lors de leur rencontre passée, il portait un chapeau de paille pour ne pas révéler sa véritable identité. Le vieil homme devait posséder une méthode spéciale pour reconnaître Wang Lin d'un seul regard. Wang Lin sourit et répondit: « L'ouverture était trop étroite, je n'en ai donc pas obtenu beaucoup. »
 
@@ -78,7 +78,7 @@ Pendant que le vieil homme aux cheveux blancs et Wang Lin discutaient, l'enchèr
 
 Li Muwan s'assit tranquillement aux côtés de Wang Lin, observant parfois l'encan avec un sourire.
 
-Les yeux du vieil homme s'illuminèrent: « Compagnon cultivateur, vous me semblez très familier. Hormis notre rencontre près des Étoiles Brisées du Chaos, nous avons dû nous croiser par le passé. »
+Les yeux du vieil homme s'illuminèrent: « Daoïste, vous me semblez très familier. Hormis notre rencontre près des Étoiles Brisées du Chaos, nous avons dû nous croiser par le passé. »
 
 Lorsqu'il était entré dans la pièce et avait reconnu Wang Lin comme le cultivateur rencontré près des Étoiles Brisées du Chaos, il avait été confus. En regardant Wang Lin, il ressentait une familiarité troublante, mais malgré ses efforts, il ne parvenait pas à s'en souvenir.
 
@@ -100,7 +100,7 @@ Wang Lin sourit: « Cela fait si longtemps que je crains que vous n'ayez oublié
 
 Le visage de Qiu Siping se décomposa. Il prit une grande inspiration et s'exclama: « Wang Lin! Vous... vous avez atteint la Formation de l'Âme! »
 
-Wang Lin hocha la tête, puis regarda le vieil homme aux cheveux blancs avec un sourire: « Le compagnon cultivateur Hu s'en souvient-il? »
+Wang Lin hocha la tête, puis regarda le vieil homme aux cheveux blancs avec un sourire: « Le Daoïste Hu s'en souvient-il? »
 
 Les yeux du vieillard étaient remplis d'incrédulité. Il fixa Wang Lin longuement avant de laisser échapper un sourire amer: « Je m'en souviens. Je n'arrive pas à croire que le cultivateur de la Formation du Noyau de l'époque ait atteint la Formation de l'Âme... »
 
@@ -114,7 +114,7 @@ Au stade de la Formation du Noyau, il ne pouvait battre Wang Lin.
 Au stade de l'Âme Naissante, il ne pouvait toujours pas le battre.
 Et maintenant qu'il avait atteint le sommet du stade avancé de l'Âme Naissante, il découvrait que Wang Lin était déjà au stade de la Formation de l'Âme.
 
-Le vieil homme aux cheveux blancs rit: « J'ai été imprudent à l'époque; j'espère que le compagnon cultivateur Wang ne m'en tiendra pas rigueur! » Puis, changeant brusquement de sujet, il demanda: « Je me demande quel trésor amène le compagnon Wang ici? »
+Le vieil homme aux cheveux blancs rit: « J'ai été imprudent à l'époque; j'espère que le Daoïste Wang ne m'en tiendra pas rigueur! » Puis, changeant brusquement de sujet, il demanda: « Je me demande quel trésor amène le compagnon Wang ici? »
 
 Wang Lin sourit: « Une recette de pilule de rang 6! »
 

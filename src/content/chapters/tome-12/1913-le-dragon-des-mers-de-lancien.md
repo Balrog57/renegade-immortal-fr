@@ -16,7 +16,7 @@ L'Édit Impérial!!
 
 L'édit de l'Empereur Céleste était extrêmement rare et n'apparaissait que très peu, peut-être une fois tous les dizaines de milliers d'années. Cet édit représentait la majesté irrésistible de l'Empereur Céleste sur le Continent Central. On pourrait sans exagération parler de la puissance des cieux elle-même!
 
-Sur le Continent Astral Immortel, l'Empereur Céleste possédait le lignage de l'Ancêtre Céleste et était une existence suprême parmi les êtres célestes. Bien qu'il ne soit que le dirigeant nominal de tous les êtres célestes, il n'était pas une entité à laquelle une simple secte, une faction ou un continent puisse résister.
+Sur le Continent Xian Gang, l'Empereur Céleste possédait le lignage de l'Ancêtre Céleste et était une existence suprême parmi les êtres célestes. Bien qu'il ne soit que le dirigeant nominal de tous les êtres célestes, il n'était pas une entité à laquelle une simple secte, une faction ou un continent puisse résister.
 
 Grâce à leur lignage, au fil des éons, ils n'étaient pas seulement l'empereur de nom, mais aussi le symbole de tout le clan céleste. À moins de projeter de trahir les êtres célestes, il fallait obéir à l'édit impérial!
 
@@ -98,7 +98,7 @@ Le sceau recelait une force destructrice colossale. En se resserrant sur l'eau, 
 
 Cependant, alors que le sceau atteignait la moitié du lac, un rugissement jaillit des profondeurs! Un dragon marin bleu foncé surgit des eaux!
 
-C'était un dragon marin, une créature d'un bleu profond mesurant bien cent mille pieds de long! Le dragon marin était une bête céleste du Continent Astral Immortel. Il paraissait féroce et dégageait une énergie céleste dense!
+C'était un dragon marin, une créature d'un bleu profond mesurant bien cent mille pieds de long! Le dragon marin était une bête céleste du Continent Xian Gang. Il paraissait féroce et dégageait une énergie céleste dense!
 
 Ce dragon avait vécu durant des âges. Il exhalait une aura antique et sa tête différait de celle des autres dragons. La rangée d'épines sur son dos le rendait encore plus terrifiant!
 

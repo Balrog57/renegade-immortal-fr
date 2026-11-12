@@ -12,7 +12,7 @@ Tout cela se produisit avec la rapidité de l'éclair. Il ne fallut qu'un instan
 
 L'expression de Liu Zhiyuan changea radicalement. Il sentit clairement les fluctuations d'un cultivateur du début du stade de la Tribulation du Vide dans le brouillard noir. Ses yeux trahirent une lueur de terreur. Il comprit immédiatement qu'il s'agissait d'une marionnette. Sans hésiter, il recula et agita sa manche; sept lotus noirs apparurent devant lui et entrèrent en collision avec Yi Si.
 
-Les grondements tonitruants attirèrent l'attention des six combattants au loin. L'expression des trois compagnons de Liu Zhiyuan changea et ils voulurent s'approcher, mais ils furent stoppés par les trois cultivateurs du Continent Tian Niu. Occupés au combat, ils n'avaient pas le temps de déployer leur Sens Divin pour voir ce qui se passait, mais la situation jouait manifestement en faveur du camp du Taureau Céleste!
+Les grondements tonitruants attirèrent l'attention des six combattants au loin. L'expression des trois compagnons de Liu Zhiyuan changea et ils voulurent s'approcher, mais ils furent stoppés par les trois cultivateurs du Continent Tian Niu. Occupés au combat, ils n'avaient pas le temps de déployer leur Sens Divin pour voir ce qui se passait, mais la situation jouait manifestement en faveur du camp du Tian Niu!
 
 Les sept lotus noirs se désintégrèrent. Yi Si poussa un rugissement, son corps couvert de blessures, mais sa langue perça les sept lotus et vint frapper la poitrine de Liu Zhiyuan.
 

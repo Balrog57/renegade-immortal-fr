@@ -30,7 +30,7 @@ Après avoir analysé les cartes, Wang Lin en déduisit que Zhao devait se trouv
 
 Alors qu'il volait, son expression changea soudainement et un sourire étira ses lèvres. En utilisant son Sens Divin, semblable à celui de la Formation de l'Âme, il parvint à débusquer un vieil ami.
 
-Depuis l'apparition de la rétribution divine dans la Mer Xiu Mo, le brouillard qui la recouvrait avait totalement disparu. Après plusieurs années de pluie noire, la Mer Xiu Mo était désormais exposée aux yeux de tous. Son ancien voile de mystère s'était évanoui sans laisser de trace.
+Depuis l'apparition de la Tribulation Céleste dans la Mer Xiu Mo, le brouillard qui la recouvrait avait totalement disparu. Après plusieurs années de pluie noire, la Mer Xiu Mo était désormais exposée aux yeux de tous. Son ancien voile de mystère s'était évanoui sans laisser de trace.
 
 Dans les 999 cités et les vastes étendues sauvages de la Mer Xiu Mo vivaient de nombreux individus odieux. Beaucoup d'entre eux, recherchés par différents pays, cherchaient refuge dans cette région.
 
@@ -122,7 +122,7 @@ Qiu Siping fut le plus réactif de tous. Étant au début du stade de l'Âme Nai
 
 L'homme nommé Li fit quelques pas en arrière. Il rangea son trésor et adopta une attitude très respectueuse. Même la jeune fille, d'ordinaire intrépide, devint soumise et se tint silencieusement aux côtés de l'homme.
 
-« Cher compagnon de culture Qiu, cela faisait longtemps! »
+« Cher Daoïste Qiu, cela faisait longtemps! »
 
 Qiu Siping fut stupéfait. Il demanda: « Senior, vous me connaissez? »
 
@@ -140,4 +140,4 @@ Qiu Siping laissa échapper un sourire amer. Une lueur froide passa dans ses yeu
 
 Les fils étaient d'une rapidité extrême. Mais au moment où ils allaient les rattraper, une lumière verte apparut derrière les deux fuyards et emprisonna les fils. Lorsque la lueur verte disparut, les deux individus avaient déjà disparu sans laisser de trace.
 
-Le visage de Qiu Siping était très sombre. Bien qu'il détestât Wang Lin de tout son être, il prit une profonde inspiration et dit: « Cher compagnon de culture, cela faisait longtemps. »
+Le visage de Qiu Siping était très sombre. Bien qu'il détestât Wang Lin de tout son être, il prit une profonde inspiration et dit: « Cher Daoïste, cela faisait longtemps. »

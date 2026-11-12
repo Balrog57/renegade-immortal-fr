@@ -72,7 +72,7 @@ Cependant, il comprit que tout ceci n'était qu'une illusion. Le bassin Dong Lin
 
 Pourtant, cela donnait un espoir à Wang Lin; cela lui faisait réaliser l'importance cruciale du bassin Dong Lin!
 
-« Si je peux atteindre le Continent Astral Immortel, je devrai me rendre au bassin Dong Lin! » Une voix résonnait follement dans son esprit. Il savait que même si son être actuel était une illusion, son niveau de culture s'était multiplié plusieurs fois!
+« Si je peux atteindre le Continent Xian Gang, je devrai me rendre au bassin Dong Lin! » Une voix résonnait follement dans son esprit. Il savait que même si son être actuel était une illusion, son niveau de culture s'était multiplié plusieurs fois!
 
 Mais ce n'était pas terminé. Un changement encore plus stupéfiant survint alors qu'il ne restait que 20 % d'eau dans le bassin. Wang Lin n'avait pas seulement sept essences, il en possédait une huitième!
 
@@ -94,7 +94,7 @@ Le bassin Dong Lin, dernier vestige de ce monde dévasté, s'effondra totalement
 
 Au moment même où le monde s'écroulait, l'aura de l'une des huit portes augmenta brusquement, écrasant les sept autres!
 
-C'était la vraie porte, celle qui menait au Continent Astral Immortel!
+C'était la vraie porte, celle qui menait au Continent Xian Gang!
 
 Wang Lin leva soudainement les yeux. Alors que le Vieux Fantôme Zhan se rapprochait, Wang Lin bondit. Des craquements retentirent dans son corps. Bien que cette puissance et ce haut niveau de culture fussent illusoires, ils venaient d'ouvrir la voie à un avenir radieux pour lui!
 
@@ -112,8 +112,8 @@ Dès qu'il fut à portée de la porte, il n'hésita pas une seconde pour lever l
 
 La porte trembla dans un grondement de tonnerre. Une brèche apparut et le battant commença à pivoter!
 
-Au-delà de l'ouverture se trouvait le Continent Astral Immortel, le vaste monde réel!
+Au-delà de l'ouverture se trouvait le Continent Xian Gang, le vaste monde réel!
 
 Wang Lin était le premier occupant de la grotte à atteindre cet endroit depuis que la porte avait été scellée. Il était impossible de décrire son émotion. Peut-être le Daoïste Esprit Dispersé avait-il ressenti la même chose lorsqu'il quitta les Sept Millions de Mondes pour apparaître dans l'Ancien Système Stellaire.
 
-À l'instant où la porte s'ouvrit, une déferlante d'aura pure du Continent Astral Immortel jaillit vers lui!
+À l'instant où la porte s'ouvrit, une déferlante d'aura pure du Continent Xian Gang jaillit vers lui!

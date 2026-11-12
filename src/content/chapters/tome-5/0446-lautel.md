@@ -40,7 +40,7 @@ Sur ce, il emporta Murong Yun et accéléra soudainement, disparaissant au loin.
 
 Les yeux de Wang Lin s'illuminèrent. Il agita sa main droite et la femme laide fut immédiatement enveloppée par une puissance mystérieuse. Wang Lin s'envola à son tour en l'emportant avec lui.
 
-« Senior est-il Ceng Niu? » La femme se trouvait à côté de Wang Lin, et un soupçon de son parfum parvint jusqu'à ses narines.
+« Senior est-il Zeng Niu? » La femme se trouvait à côté de Wang Lin, et un soupçon de son parfum parvint jusqu'à ses narines.
 
 Wang Lin répondit calmement: « C'est bien moi. »
 

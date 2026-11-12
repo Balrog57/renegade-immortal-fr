@@ -44,7 +44,7 @@ Boum!
 
 Les yeux du géant s'obscurcirent et il s'effondra lentement au sol. Hongdie prit une profonde inspiration et pressa ses doigts contre son front. Elle émergea ensuite du géant de glace pour flotter dans les airs. Son corps actuel était extrêmement affaibli: son trésor de vie était détruit, son avatar de domaine détruit, son âme originelle gravement blessée et le géant de glace anéanti. En cet instant, elle était aussi vulnérable qu'elle l'avait été dans le Royaume Céleste.
 
-Mais elle semblait avoir atteint une forme d'illumination et n'éprouvait plus le besoin de combattre. Elle sentait qu'une fois ce sentiment pleinement assimilé, tuer ce Ceng Niu serait aussi simple que de lever la main.
+Mais elle semblait avoir atteint une forme d'illumination et n'éprouvait plus le besoin de combattre. Elle sentait qu'une fois ce sentiment pleinement assimilé, tuer ce Zeng Niu serait aussi simple que de lever la main.
 
 D'innombrables fissures apparurent sur le géant alors qu'il s'écrasait au sol. Toute la glace fondit, révélant un fouet d'un blanc pur.
 
@@ -58,7 +58,7 @@ L'expression de Hongdie changea et elle cria: « Oses-tu?! »
 
 Le visage de Hongdie était sombre. Après une brève hésitation, elle lâcha prise, recula pour esquiver l'énergie de l'épée et lança un ricanement méprisant à Wang Lin.
 
-« Ceng Niu, ce Fouet Kunji porte un sceau posé par la Secte Tian Yu. Même si tu le voles, tu seras incapable de l'utiliser! »
+« Zeng Niu, ce Fouet Kunji porte un sceau posé par la Secte Tian Yu. Même si tu le voles, tu seras incapable de l'utiliser! »
 
 Alors qu'elle parlait, la ligne noire sur le front de Hongdie s'estompa lentement jusqu'à disparaître sans laisser de trace.
 
@@ -100,7 +100,7 @@ Une onde de choc invisible se propagea soudainement, ralentissant un instant les
 
 La vitesse de Wang Lin était fulgurante. Il saisit immédiatement l'esprit de métal et, d'un seul pas, maîtrisa l'esprit de bois. Puis, ignorant les deux autres esprits, il se lança à la poursuite de Hongdie.
 
-Hongdie était à plus de 330 mètres lorsque son visage pâlit. Elle ne s'attendait pas à ce que Ceng Niu possède encore un trésor aussi puissant après un tel combat. Une amertume profonde l'envahit. Quoi qu'il en coûte, elle devait tuer cet homme aujourd'hui. Il lui fallait d'abord épuiser tous les trésors de cet homme, puis, grâce à une réserve d'énergie spirituelle supérieure à celle de Wang Lin, le tuer d'un seul coup!
+Hongdie était à plus de 330 mètres lorsque son visage pâlit. Elle ne s'attendait pas à ce que Zeng Niu possède encore un trésor aussi puissant après un tel combat. Une amertume profonde l'envahit. Quoi qu'il en coûte, elle devait tuer cet homme aujourd'hui. Il lui fallait d'abord épuiser tous les trésors de cet homme, puis, grâce à une réserve d'énergie spirituelle supérieure à celle de Wang Lin, le tuer d'un seul coup!
 
 Ses yeux s'assombrirent et elle ordonna: « Esprit de métal, explose! »
 
@@ -130,7 +130,7 @@ D'un geste nonchalant de la main droite, il repoussa Wang Lin à plus de 33 mèt
 
 Cette puissance était hors de sa portée, sans oublier qu'il était lourdement blessé.
 
-« Ceng Niu, tu as gagné! Rends-toi à la Montagne Suzaku pour recevoir tes ordres et on s'occupera de toi. Après cela, tu seras un disciple invité de Suzaku. En tant que tel, Suzaku pourra t'accorder un vœu. Une fois ton choix fait, tu n'auras qu'à venir à la Montagne Suzaku pour l'exprimer. » Gongsun Po saisit les trois esprits et les réintégra en Hongdie.
+« Zeng Niu, tu as gagné! Rends-toi à la Montagne Suzaku pour recevoir tes ordres et on s'occupera de toi. Après cela, tu seras un disciple invité de Suzaku. En tant que tel, Suzaku pourra t'accorder un vœu. Une fois ton choix fait, tu n'auras qu'à venir à la Montagne Suzaku pour l'exprimer. » Gongsun Po saisit les trois esprits et les réintégra en Hongdie.
 
 Cependant, alors que l'esprit de bois s'approchait, Wang Lin serra les dents, abattit son épée céleste et le trancha en deux. Il transforma rapidement la moitié de l'esprit de bois en un cristal vert qu'il rangea aussitôt dans son sac.
 

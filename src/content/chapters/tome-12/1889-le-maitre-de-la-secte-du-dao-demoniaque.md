@@ -110,7 +110,7 @@ Ce n'était pas qu'ils n'avaient jamais affronté de puissants cultivateurs, mai
 
 Ce prix pourrait être la destruction d'une secte entière! Un coût si lourd qu'il réduirait les neuf sectes et treize factions en huit sectes et treize factions!
 
-Au moment où Wang Lin posa le pied sur le Continent Meng Tu, le reste de son armure d'âme retourna sous la forme du Tatouage du Taureau Céleste sur le côté droit de son visage. Une immense faiblesse l'envahit, mais il la réprima de toutes ses forces.
+Au moment où Wang Lin posa le pied sur le Continent Meng Tu, le reste de son armure d'âme retourna sous la forme du Tatouage du Tian Niu sur le côté droit de son visage. Une immense faiblesse l'envahit, mais il la réprima de toutes ses forces.
 
 Il lui restait encore l'armure élémentaire terrestre en forme humaine de la Secte Gui Yi. Bien qu'elle fût partiellement brisée, elle lui offrait toujours une protection puissante.
 

@@ -30,7 +30,7 @@ Wang Lin recula également sous l'impact, le visage légèrement pâle. Cependan
 
 C'était là la bataille la plus acharnée que Wang Lin ait jamais menée sans utiliser l'Arc Li Guang! Il ne combattait pas un simple cultivateur ou une créature du Royaume Extérieur, il affrontait l'un des quatre généraux sous les ordres du Souverain Céleste: le Général Tigre Blanc!
 
-Le Général Tigre Blanc avait vécu durant des ères immémoriales. Il n'appartenait ni au Royaume Intérieur, ni au Royaume Extérieur; il venait du mystérieux Continent Astral Immortel. C'était un être céleste, un véritable être céleste!
+Le Général Tigre Blanc avait vécu durant des ères immémoriales. Il n'appartenait ni au Royaume Intérieur, ni au Royaume Extérieur; il venait du mystérieux Continent Xian Gang. C'était un être céleste, un véritable être céleste!
 
 Sa lignée contenait l'énergie céleste, ce qui le plaçait à un niveau d'existence bien supérieur à celui de Wang Lin!
 
@@ -40,7 +40,7 @@ Tandis que Wang Lin reculait, la tête antique et les ombres des trois clans anc
 
 Wang Lin était au stade intermédiaire du Vide Spirituel, mais grâce à son corps de Dieu Ancien et ses sorts, il pouvait affronter des cultivateurs du début du stade du Vide Arcanique. Même si le niveau de culture de l'ennemi dépassait ce stade, il pouvait toujours dégainer l'Arc Li Guang. La puissance d'une seule flèche de cet arc suffisait à ébranler le monde!
 
-Le corps du vieil homme au Tigre Blanc fut écrasé contre la statue; bien que son expression fût féroce, une profonde terreur perçait dans ses yeux. Pourtant, cette peur ne suffit pas à lui faire battre en retraite. Il était le Général Tigre Blanc, un habitant du Continent Astral Immortel et l'un des quatre grands généraux du Souverain Céleste aux Sept Couleurs!
+Le corps du vieil homme au Tigre Blanc fut écrasé contre la statue; bien que son expression fût féroce, une profonde terreur perçait dans ses yeux. Pourtant, cette peur ne suffit pas à lui faire battre en retraite. Il était le Général Tigre Blanc, un habitant du Continent Xian Gang et l'un des quatre grands généraux du Souverain Céleste aux Sept Couleurs!
 
 Il avait vécu d'innombrables batailles et connu le cataclysme survenu jadis dans la grotte. Il possédait sa fierté, et il ne permettrait pas à une fourmi d'un royaume inférieur de le vaincre.
 
@@ -70,7 +70,7 @@ Le vortex possédait une force d'aspiration effrayante et, avec la puissance du 
 
 C'était là le sort du Général Tigre Blanc: "Si l'on monte sur un tigre, il est difficile d'en descendre". C'était à la fois un sort et un sceau!
 
-« Esprit du Tigre Blanc, saisis l'âme de cet homme et scelle-la sous la grotte, sous les sept montagnes célestes du Continent Astral Immortel! » Le vieil homme au visage féroce agita les bras en poussant un rugissement féroce.
+« Esprit du Tigre Blanc, saisis l'âme de cet homme et scelle-la sous la grotte, sous les sept montagnes célestes du Continent Xian Gang! » Le vieil homme au visage féroce agita les bras en poussant un rugissement féroce.
 
 Alors que sa voix résonnait, un hurlement de tigre fracassant jaillit du vortex. Un tigre féroce de plusieurs centaines de pieds de long s'en échappa.
 
@@ -80,7 +80,7 @@ En surgissant du vortex, sa forme continuait de se déformer et sa majesté gran
 
 Si Wang Lin était emporté, il serait scellé tout en bas de cette grotte, sous les Royaumes Intérieurs et Extérieurs, jusqu'à ce que mort s'ensuive!
 
-Wang Lin n'avait jamais vu ce sort auparavant. C'était une technique qui n'appartenait pas à ce monde; elle provenait du Continent Astral Immortel. L'expression de Wang Lin devint sombre et, alors que la gueule du tigre se refermait, il leva la main gauche pour la plaquer contre la mâchoire de la bête.
+Wang Lin n'avait jamais vu ce sort auparavant. C'était une technique qui n'appartenait pas à ce monde; elle provenait du Continent Xian Gang. L'expression de Wang Lin devint sombre et, alors que la gueule du tigre se refermait, il leva la main gauche pour la plaquer contre la mâchoire de la bête.
 
 « Quel sort remarquable! Aujourd'hui, je ne descendrai pas de ce tigre. Puisque tu veux me sceller, voyons si c'est ce tigre qui m'emprisonne ou si c'est moi qui le domine! » Les yeux de Wang Lin s'illuminèrent, mais il n'utilisa aucun sortilège. Il ferma les yeux et, lorsqu'il les rouvrit, son aura avait changé. L'aura d'un grand érudit se dégagea de son corps.
 
@@ -92,7 +92,7 @@ Aux yeux de Wang Lin, cet esprit de tigre n'était pas une bête céleste créé
 
 « Oses-tu me dévorer?! » demanda Wang Lin d'une voix lente avant d'ouvrir brusquement les yeux. Il fixa l'esprit du tigre, dégageant une pression immense sans pour autant paraître colérique. Il possédait l'aura d'un érudit qui ne craignait même pas le Ciel; comment pourrait-il craindre ce petit tigre?
 
-L'esprit du tigre, enroulé autour de lui, trembla et une lueur de terreur apparut dans ses yeux. Un flux incontrôlable de pensées traversa son esprit, comme s'il avait traversé d'innombrables réincarnations et cycles de karma; il vit son ancêtre, le Tigre Blanc, agenouillé en adoration devant les cieux sur le Continent Astral Immortel, à l'aube du monde.
+L'esprit du tigre, enroulé autour de lui, trembla et une lueur de terreur apparut dans ses yeux. Un flux incontrôlable de pensées traversa son esprit, comme s'il avait traversé d'innombrables réincarnations et cycles de karma; il vit son ancêtre, le Tigre Blanc, agenouillé en adoration devant les cieux sur le Continent Xian Gang, à l'aube du monde.
 
 Il ne comprenait pas l'origine de ces pensées, mais il ressentit une peur qui émanait de son âme même!
 

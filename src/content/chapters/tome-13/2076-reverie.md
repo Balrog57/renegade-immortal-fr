@@ -40,11 +40,11 @@ En voyant l'expression de Wang Lin, le cœur de Lanmeng Daozun sombra et son vis
 
 « Que s'est-il passé... Wang Lin, dis-moi! »
 
-« Je n'ai pas pu la retrouver après sa réincarnation... » dit amèrement Wang Lin. Bien qu'il fût l'être le plus puissant du Continent Astral Immortel, il restait respectueux envers Lanmeng Daozun car celui-ci l'avait aidé par le passé et était le père de Li Qianmei.
+« Je n'ai pas pu la retrouver après sa réincarnation... » dit amèrement Wang Lin. Bien qu'il fût l'être le plus puissant du Continent Xian Gang, il restait respectueux envers Lanmeng Daozun car celui-ci l'avait aidé par le passé et était le père de Li Qianmei.
 
 Lanmeng Daozun ferma les yeux et murmura pour lui-même: « Tu ne l'as pas retrouvée... »
 
-« Elle est allée sur le Continent Astral Immortel à cause de toi, et tu ne l'as pas retrouvée... Tu ne l'as pas retrouvée... » Lanmeng Daozun ouvrit les yeux et se mit à rire. Un rire empreint de déception et de colère.
+« Elle est allée sur le Continent Xian Gang à cause de toi, et tu ne l'as pas retrouvée... Tu ne l'as pas retrouvée... » Lanmeng Daozun ouvrit les yeux et se mit à rire. Un rire empreint de déception et de colère.
 
 À ce moment précis, un grondement sourd retentit dans le ciel couleur sang. Les nombreuses fissures célestes montraient des signes d'effondrement et un rire arrogant s'éleva d'en haut.
 
@@ -58,7 +58,7 @@ En particulier, lorsqu'il vit le mépris dans les yeux de Xu Liguo et Liu Jinbia
 
 Non loin de là, Treize regardait le ciel avec indifférence, bien qu'une lueur de froideur brille dans ses yeux.
 
-« Sa marque a disparu, elle devrait donc avoir recouvré ses souvenirs... Je l'ai cherchée longtemps, sans succès. Pourtant, je sens qu'elle se trouve quelque part sur le Continent Astral Immortel, dans un recoin quelconque, qu'elle connaît mon existence et sait que je la cherche... » Wang Lin ignora les grondements célestes pour s'adresser amèrement à Lanmeng Daozun.
+« Sa marque a disparu, elle devrait donc avoir recouvré ses souvenirs... Je l'ai cherchée longtemps, sans succès. Pourtant, je sens qu'elle se trouve quelque part sur le Continent Xian Gang, dans un recoin quelconque, qu'elle connaît mon existence et sait que je la cherche... » Wang Lin ignora les grondements célestes pour s'adresser amèrement à Lanmeng Daozun.
 
 « Dès qu'elle laissera échapper un soupçon de son aura, je pourrai la détecter... Même si je suis revenu dans le monde des grottes, je peux toujours ressentir sa présence... » murmura Wang Lin. Li Qianmei était spéciale pour lui. Bien qu'elle ne fût pas comme Li Muwan, elle était la deuxième femme à avoir marqué son cœur.
 
@@ -116,7 +116,7 @@ Le brasier céleste disparut instantanément après le départ de Treize. Le cie
 
 « Tu es donc revenu dans le monde des grottes! Mais même si tu es de retour, tu n'es qu'une fourmi face à ce vieil homme! » Ce vieil homme était Maître Chi Hunzi. Aussitôt, il fonça vers Wang Lin tel un rayon de lumière.
 
-De son point de vue, la culture de Wang Lin n'était qu'un nuage de brume; il pensait que ce dernier dissimulait son véritable niveau grâce à des trésors, une pratique courante sur le Continent Astral Immortel. Il était absolument confiant en sa culture de Tribulation du Vide.
+De son point de vue, la culture de Wang Lin n'était qu'un nuage de brume; il pensait que ce dernier dissimulait son véritable niveau grâce à des trésors, une pratique courante sur le Continent Xian Gang. Il était absolument confiant en sa culture de Tribulation du Vide.
 
 Wang Lin regarda calmement Maître Chi Hunzi se précipiter vers lui.
 

@@ -62,7 +62,7 @@ Cependant, cette confusion se dissipa instantanément lorsqu'il vit Wang Lin.
 
 Wang Lin afficha lui aussi un sourire radieux. Il rit en regardant Liu Jinbiao et lui tendit la cruche de vin.
 
-« Bois une gorgée pour célébrer notre rencontre sur le Continent Astral Immortel. »
+« Bois une gorgée pour célébrer notre rencontre sur le Continent Xian Gang. »
 
 De sa main tremblante, Liu Jinbiao saisit la cruche et but une grande gorgée. Le vin épicé descendit dans son ventre et réchauffa son corps. Cela lui rendit l'esprit vif.
 
@@ -78,7 +78,7 @@ Liu Jinbiao regarda la cruche qu'il tenait en murmurant: « J'ai longtemps cru q
 
 « Je ne suis pas ton maître. Avant ta réincarnation, tu étais libre, et tu l'es toujours après elle », répondit Wang Lin en secouant la tête.
 
-« Ce… Ce Continent Astral Immortel est trop dangereux. Il vaudrait mieux suivre le Maître… » Liu Jinbiao esquissa un sourire amer.
+« Ce… Ce Continent Xian Gang est trop dangereux. Il vaudrait mieux suivre le Maître… » Liu Jinbiao esquissa un sourire amer.
 
 Wang Lin éclata de rire en regardant Liu Jinbiao, son rire étant plus joyeux que jamais.
 

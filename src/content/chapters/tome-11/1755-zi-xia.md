@@ -12,7 +12,7 @@ Le vortex commença à disparaître un instant plus tard, et la silhouette floue
 
 Même les cultivateurs auraient été tentés de la prendre pour leur propre fourneau de culture.
 
-Cette femme était Zi Xia, de la Rivière Zhao He, la septième concubine! Contrairement à ses sœurs, elle était extrêmement loyale envers le Souverain Céleste aux Sept Couleurs et avait même réprimandé Wang Lin. Si elle n'avait pas craint son Arc Li Guang, après avoir senti que les pensées de Wang Lin différaient des siennes, elle aurait voulu le tuer.
+Cette femme était Zi Xia, de Zhao He He, la septième concubine! Contrairement à ses sœurs, elle était extrêmement loyale envers le Souverain Céleste aux Sept Couleurs et avait même réprimandé Wang Lin. Si elle n'avait pas craint son Arc Li Guang, après avoir senti que les pensées de Wang Lin différaient des siennes, elle aurait voulu le tuer.
 
 Cette femme n'était pas faible. Avant que Wang Lin ne maîtrise l'essence de la restriction, ce combat aurait été ardu; mais avec l'Arc Li Guang en main, elle le redoutait fortement. Cependant, maintenant qu'il possédait l'essence de la restriction, que sa lignée du Dao Antique était plus puissante et qu'il disposait du bras droit de Ye Mo ainsi que de la loi qu'il avait établie, la situation était totalement inversée. Même sans l'Arc Li Guang, il avait le pouvoir de tuer cette septième concubine!
 
@@ -68,7 +68,7 @@ Voyant que Wang Lin était sur le point de disparaître, Zi Xia, toujours à l'i
 
 « Pourtant, cet homme est très rusé. Est-il vraiment blessé, ou simule-t-il sa blessure...? » L'expression de Zi Xia changeait constamment, toujours incertaine. Au moment où Wang Lin allait disparaître, il avait montré cette trace d'empressement. C'était comme une réaction corporelle inconsciente lorsqu'on tente de réprimer des blessures internes.
 
-« S'il est vraiment blessé, c'est une opportunité en or! Si je peux le tuer et prendre la troisième âme, que je l'offre au Daoïste aux Sept Couleurs ou au Vieux Fantôme Zhan, ce sera un immense mérite. À l'avenir, j'aurai ma place, même sur le Continent Astral Immortel... » Zi Xia serra les dents, prête à renoncer à son départ, mais elle hésitait encore. Elle agita la main droite et une brume pourpre apparut. Une épée violette en jaillit et fonça vers Wang Lin.
+« S'il est vraiment blessé, c'est une opportunité en or! Si je peux le tuer et prendre la troisième âme, que je l'offre au Daoïste aux Sept Couleurs ou au Vieux Fantôme Zhan, ce sera un immense mérite. À l'avenir, j'aurai ma place, même sur le Continent Xian Gang... » Zi Xia serra les dents, prête à renoncer à son départ, mais elle hésitait encore. Elle agita la main droite et une brume pourpre apparut. Une épée violette en jaillit et fonça vers Wang Lin.
 
 « Je vais tenter le coup une dernière fois! Si sa réaction est trop évidente, alors quelque chose ne va pas! » Les yeux de Zi Xia s'illuminèrent tandis qu'elle fixait l'horizon.
 

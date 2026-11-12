@@ -24,7 +24,7 @@ Au sommet de la Montagne de l'Affinement de l'Âme, Wang Lin ouvrit les yeux. Ri
 
 « Ancêtre du Clan Ju Mo, vous ne pourrez pas échapper à cette calamité! » Les yeux de Wang Lin s'illuminèrent et il disparut de la Secte Lian Hun.
 
-Après le départ de Wang Lin, un soupir s'éleva de l'anneau de sang où Du Tian pratiquait sa culture en méditation fermée.
+Après le départ de Wang Lin, un soupir s'éleva de l'anneau de sang où Dun Tian pratiquait sa culture en méditation fermée.
 
 Wang Lin apparut rapidement près de l'ancien réseau de transfert, l'ouvrit et disparut de Pilu.
 
@@ -40,11 +40,11 @@ Après tout, on est au plus bas de sa puissance lors d'une possession. C'est pou
 
 Ce jour-là, Chi Hu était assis dans le troisième palais, un morceau de jade à la main. Son visage était pâle et empreint de confusion.
 
-« Ceng Niu a tué Li Yuanfeng de Xue Yu. D'après ce que je sais de lui, je pense que sa prochaine cible sera forcément l'ancêtre... S'il vient, c'est qu'il est certain de son coup... Que dois-je faire... »
+« Zeng Niu a tué Li Yuanfeng de Xue Yu. D'après ce que je sais de lui, je pense que sa prochaine cible sera forcément l'ancêtre... S'il vient, c'est qu'il est certain de son coup... Que dois-je faire... »
 
 « Bien que l'ancêtre ait tort, il est l'espoir du Clan Ju Mo; tout ce qu'il a fait l'était pour le futur de notre clan. »
 
-« Mais Ceng Niu me considère comme un ami... Ah! »
+« Mais Zeng Niu me considère comme un ami... Ah! »
 
 Chi Hu secoua amèrement la tête, les yeux perdus dans ses pensées.
 
@@ -56,7 +56,7 @@ C'était la solution trouvée par Wang Lin pour contrer le pouvoir de la lignée
 
 C'était comme s'attacher une corde de sécurité: même en cas de téléportation, il ne serait pas projeté trop loin et pourrait retrouver son chemin.
 
-Cette formation provenait du jade que Du Tian lui avait laissé. Wang Lin l'étudia et y apporta des modifications pour la rendre encore plus complexe.
+Cette formation provenait du jade que Dun Tian lui avait laissé. Wang Lin l'étudia et y apporta des modifications pour la rendre encore plus complexe.
 
 Il lui fallut trois mois pour achever l'installation de cette formation, utilisant même un jade céleste comme source d'énergie. Il disposa ensuite d'innombrables restrictions autour de la zone pour la protéger.
 
@@ -80,27 +80,27 @@ Outre ces individus, une multitude d'autres arrivaient en volant.
 
 À cet instant, un vieil homme apparut de nulle part et tous les autres membres du clan s'écartèrent pour lui laisser le passage.
 
-Le vieil homme s'arrêta à 330 mètres de Wang Lin. Il fronça les sourcils et cria: « Compagnon cultivateur, qui êtes-vous? »
+Le vieil homme s'arrêta à 330 mètres de Wang Lin. Il fronça les sourcils et cria: « Daoïste, qui êtes-vous? »
 
-Le regard de Wang Lin fut comme un éclair lorsqu'il fixa le vieillard et lâcha: « Ceng Niu! »
+Le regard de Wang Lin fut comme un éclair lorsqu'il fixa le vieillard et lâcha: « Zeng Niu! »
 
 À l'instant même où ces deux mots furent prononcés, un silence de mort tomba sur les environs. Les yeux de presque tous les membres du Clan Ju Mo s'emplirent de terreur.
 
-« Ceng Niu... c'est lui qui a vaincu Hongdie! »
+« Zeng Niu... c'est lui qui a vaincu Hongdie! »
 
-« C'est le Ceng Niu qui a tué Li Yuanfeng, qui a fait tomber le pays de Xue Yu du rang 5 au rang 3 et qui a scellé tous les cultivateurs de la Formation de l'Âme de Xue Yu! »
+« C'est le Zeng Niu qui a tué Li Yuanfeng, qui a fait tomber le pays de Xue Yu du rang 5 au rang 3 et qui a scellé tous les cultivateurs de la Formation de l'Âme de Xue Yu! »
 
 « Le numéro un des cultivateurs sous le stade de la Transformation de l'Âme! »
 
 « La rumeur dit qu'il a déjà atteint le stade de la Transformation de l'Âme, sans quoi il n'aurait jamais pu tuer Li Yuanfeng. »
 
-Même le vieillard qui avait pris la parole prit une profonde inspiration. Il regarda Ceng Niu et demanda lentement: « Camarade cultivateur Ceng Niu, que cherchez-vous auprès de l'ancêtre de mon clan? »
+Même le vieillard qui avait pris la parole prit une profonde inspiration. Il regarda Zeng Niu et demanda lentement: « Camarade cultivateur Zeng Niu, que cherchez-vous auprès de l'ancêtre de mon clan? »
 
 Les yeux de Wang Lin étaient glacials lorsqu'il répondit: « Tuer! »
 
-L'expression du vieillard se décomposa. Il laissa échapper un rire furieux en pointant Wang Lin du doigt: « On m'avait dit que tu étais arrogant. Maintenant que je te vois, je constate que c'est vrai! Ceng Niu, mon Clan Ju Mo n'est pas Xue Yu; comment pourrions-nous te laisser massacrer qui bon te semble? Aujourd'hui, sans même que l'ancêtre ait besoin de se montrer, mon clan va te tuer! »
+L'expression du vieillard se décomposa. Il laissa échapper un rire furieux en pointant Wang Lin du doigt: « On m'avait dit que tu étais arrogant. Maintenant que je te vois, je constate que c'est vrai! Zeng Niu, mon Clan Ju Mo n'est pas Xue Yu; comment pourrions-nous te laisser massacrer qui bon te semble? Aujourd'hui, sans même que l'ancêtre ait besoin de se montrer, mon clan va te tuer! »
 
-Sur ces mots, le vieillard frappa son sac de rangement et un jeton noir en émergea. Il brandit le jeton et hurla: « En ma qualité d'Ancien du Clan Ju Mo, j'ordonne à tous les membres du clan de tuer Ceng Niu à tout prix! »
+Sur ces mots, le vieillard frappa son sac de rangement et un jeton noir en émergea. Il brandit le jeton et hurla: « En ma qualité d'Ancien du Clan Ju Mo, j'ordonne à tous les membres du clan de tuer Zeng Niu à tout prix! »
 
 À l'instant même, le jeton se changea en poussière et une puissance mystérieuse se propagea instantanément dans tout le territoire.
 
@@ -152,7 +152,7 @@ L'Ancien cracha du sang et fut projeté en arrière de plus de dix mètres avant
 
 À cet instant, deux brins de gaz gris les rattrapèrent et pénétrèrent dans leurs corps.
 
-« Ceng Niu, arrête! » À ce moment-là, une voix empreinte de douleur retentit au loin.
+« Zeng Niu, arrête! » À ce moment-là, une voix empreinte de douleur retentit au loin.
 
 Wang Lin leva la tête et la froideur sur son visage s'atténua légèrement.
 

@@ -30,9 +30,9 @@ Le visage de l'Exalté Empyréen Hai Zi était livide; elle ouvrit la bouche pou
 
 « Exalté Empyréen Hai Zi, votre identité, outre celle de disciple du Grand Empyréen Jiu Di, doit aussi être liée à la secte de l'Enseignant Impérial. N'est-ce pas le cas?
 
-« Dans la Mer de Montagnes d'autrefois, la paume brisée n'a pas perdu la raison. Elle a choisi de vous attaquer parce que vous êtes comme moi — ni l'un ni l'autre n'appartient au Continent Astral Immortel. Je viens du monde des cavernes, et vous... vous venez de l'extérieur du Continent Astral Immortel...
+« Dans la Mer de Montagnes d'autrefois, la paume brisée n'a pas perdu la raison. Elle a choisi de vous attaquer parce que vous êtes comme moi — ni l'un ni l'autre n'appartient au Continent Xian Gang. Je viens du monde des cavernes, et vous... vous venez de l'extérieur du Continent Xian Gang...
 
-« Ce qui signifie que la secte de l'Enseignant Impérial provient de l'extérieur du Continent Astral Immortel... » dit calmement le Wang Lin aux cheveux noirs, chaque mot rendant le visage de l'Exalté Empyréen Hai Zi encore plus pâle. Elle mordit sa lèvre inférieure et resta silencieuse un long moment avant de lever les yeux vers Wang Lin.
+« Ce qui signifie que la secte de l'Enseignant Impérial provient de l'extérieur du Continent Xian Gang... » dit calmement le Wang Lin aux cheveux noirs, chaque mot rendant le visage de l'Exalté Empyréen Hai Zi encore plus pâle. Elle mordit sa lèvre inférieure et resta silencieuse un long moment avant de lever les yeux vers Wang Lin.
 
 « Mon corps originel a encore le cœur un peu trop tendre... Il aurait dû s'en douter, mais il a choisi de ne pas y croire. » Le Wang Lin aux cheveux noirs secoua la tête. Son regard était impitoyable lorsqu'il leva sa paume et l'abattit violemment sur l'Exalté Empyréen Hai Zi.
 
@@ -102,7 +102,7 @@ Wang Lin n'utilisa aucun moyen pour réprimer de force le massacre qui occupait 
 
 Le noir et le blanc restèrent éternellement ancrés en Wang Lin.
 
-Wang Lin soupira. Il n'avait plus l'intention de poursuivre Hai Zi. D'un revers de main, il saisit le fragment d'épée, ramassa l'armure d'âme du Taureau Céleste et s'éloigna vers l'horizon.
+Wang Lin soupira. Il n'avait plus l'intention de poursuivre Hai Zi. D'un revers de main, il saisit le fragment d'épée, ramassa l'armure d'âme du Tian Niu et s'éloigna vers l'horizon.
 
 « Il est temps de partir... Tout ce qui concerne ce clan céleste, que ce soit ses secrets ou ses origines, je ne veux plus y penser. »
 

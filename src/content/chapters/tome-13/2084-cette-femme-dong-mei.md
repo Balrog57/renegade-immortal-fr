@@ -98,7 +98,7 @@ Lorsque le continent Astral Immortel reprit ses droits, les neuf piliers du bass
 
 Une fois la porte disparue, le vortex résiduel gronda sans fin. L'océan infini qui avait été englouti se déversa à nouveau dans le bassin. L'eau retomba dans un fracas de tonnerre. Plusieurs heures plus tard, le vaste bassin redevint une mer infinie où les vagues s'entrechoquaient. Les grondements cessèrent, remplacés par le murmure régulier de l'océan.
 
-Tout revint à la normale. Le clan Céleste et le clan Antique retrouvèrent leur état initial. Tout reprit son cours, y compris pour les deux silhouettes se trouvant dans une cour élégante de la ville de Pierre Noire, au sein du clan Shi Antique.
+Tout revint à la normale. Le clan Céleste et le clan Antique retrouvèrent leur état initial. Tout reprit son cours, y compris pour les deux silhouettes se trouvant dans une cour élégante de la Ville Hei Shi, au sein du clan Shi Antique.
 
 La demeure n'était pas vaste et l'intérieur restait simple, mais elle dégageait une atmosphère chaleureuse. Sur le lit reposait une vieille femme. Son visage était sillonné de rides, mais on devinait encore la beauté de sa jeunesse.
 

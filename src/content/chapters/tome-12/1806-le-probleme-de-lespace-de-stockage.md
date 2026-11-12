@@ -44,13 +44,13 @@ Cette scène terrorisa tous les disciples de la Secte Cang Long; aucun n'osa plu
 
 « Diffusez un avis sur tout le Continent Tian Niu. Quiconque osera protéger cet homme en paiera le prix! »
 
-Wang Lin traversait rapidement le ciel du Continent Astral Immortel. Son Sens Divin s'étendait tandis qu'il s'adaptait lentement à ce monde étranger.
+Wang Lin traversait rapidement le ciel du Continent Xian Gang. Son Sens Divin s'étendait tandis qu'il s'adaptait lentement à ce monde étranger.
 
 « Avec mon niveau de culture, je pourrais couvrir la majeure partie du monde des grottes avec mon Sens Divin, mais ici, celui-ci semble être supprimé par une loi invisible. Il n'est que la moitié de sa puissance habituelle...
 
 « Ce n'est manifestement pas un cas isolé; tout le monde subit la même chose! » Wang Lin en tira cette conclusion car aucune onde de Sens Divin provenant de la Secte Cang Long ne s'était propagée pour le localiser.
 
-« La Déformation Spatiale a également perdu son effet sur le Continent Astral Immortel... » Wang Lin fronça les sourcils et tenta l'opération à plusieurs reprises, mais il ne parvint pas à fusionner avec le monde.
+« La Déformation Spatiale a également perdu son effet sur le Continent Xian Gang... » Wang Lin fronça les sourcils et tenta l'opération à plusieurs reprises, mais il ne parvint pas à fusionner avec le monde.
 
 « Cela ne doit pas m'être propre. Même si l'Ancêtre de la Secte Cang Long est au stade initial de la Tribulation du Vide, tout comme Sept-Couleurs et le Vieux Fantôme Zhan, il n'a pas pu revenir à temps. Il est clair qu'il ne peut pas utiliser la Déformation Spatiale! »
 
@@ -58,7 +58,7 @@ Tout en réfléchissant, Wang Lin progressait à une vitesse fulgurante dans les
 
 Le monde des grottes était illusoire, tandis que cet endroit était réel!
 
-Il pouvait fusionner avec le monde des grottes, mais pas avec celui du Continent Astral Immortel. Par conséquent, il ne pouvait utiliser la Déformation Spatiale.
+Il pouvait fusionner avec le monde des grottes, mais pas avec celui du Continent Xian Gang. Par conséquent, il ne pouvait utiliser la Déformation Spatiale.
 
 « Il doit exister une méthode pour y parvenir, mais le niveau de culture requis doit être plus élevé », songea Wang Lin en silence.
 
@@ -72,13 +72,13 @@ Il venait d'arriver, tout lui était étranger. Heureusement, il avait fouillé 
 
 « Le Continent Tian Niu est vaste, il équivaut à plusieurs dizaines de mondes caverneux. Voyager sans Déformation Spatiale est bien trop lent... Aller d'ici jusqu'aux trente-six États de l'Ancien Pays prendrait des centaines d'années, même à pleine vitesse. »
 
-Wang Lin fronça les sourcils. Le Continent Astral Immortel était tout simplement colossal...
+Wang Lin fronça les sourcils. Le Continent Xian Gang était tout simplement colossal...
 
 « Peu importe. Quoi qu'il en soit, je dois me rendre à la Secte Qi Dao pour voir. Si le Maître n'est pas là, alors peu importe le temps que cela prendra, je devrai rejoindre le Clan Dao Gu, car je lui en ai fait la promesse!
 
 « C'est mon objectif à long terme. Avant cela, je dois me rendre à la Secte Dong Lin. Je dois utiliser tous les moyens pour accéder au Bassin de Dong Lin! » En pensant aux mystères du Bassin de Dong Lin, son cœur se mit à battre la chamade.
 
-« Cependant, avant cela, je dois encore résoudre le problème de l'espace de stockage. Je me demande comment vont le fou et la femme en argent... » Wang Lin savait que ces deux individus possédaient des lignées du Continent Astral Immortel; ainsi, même si l'espace de stockage se brisait, ils s'en sortiraient.
+« Cependant, avant cela, je dois encore résoudre le problème de l'espace de stockage. Je me demande comment vont le fou et la femme en argent... » Wang Lin savait que ces deux individus possédaient des lignées du Continent Xian Gang; ainsi, même si l'espace de stockage se brisait, ils s'en sortiraient.
 
 Tout en méditant, il fendait les airs tel un rayon de lumière. Ce mode de vol reposant uniquement sur sa culture était une chose que Wang Lin trouvait pénible après un certain temps.
 
@@ -94,7 +94,7 @@ D'un revers de main, Wang Lin fit disparaître l'intérieur de la montagne pour 
 
 Il s'assit au cœur de la montagne et ses mains formèrent des sceaux. D'innombrables restrictions apparurent pour recouvrir la montagne. Ne pouvant sortir aucun trésor, il ne pouvait que compter sur ces restrictions pour dissimuler son aura.
 
-Après avoir scellé la montagne et instauré des défenses, Wang Lin ne posa pas le Cercueil d'Évitement Céleste mais le maintint sur son dos. Le Continent Astral Immortel n'était pas comparable au monde des grottes; de nombreux cultivateurs puissants rôdaient ici, et il devait rester vigilant pour éviter tout accident.
+Après avoir scellé la montagne et instauré des défenses, Wang Lin ne posa pas le Cercueil d'Évitement Céleste mais le maintint sur son dos. Le Continent Xian Gang n'était pas comparable au monde des grottes; de nombreux cultivateurs puissants rôdaient ici, et il devait rester vigilant pour éviter tout accident.
 
 Ce n'est qu'en le portant sur son dos qu'il se sentait en sécurité.
 
@@ -106,7 +106,7 @@ Ce n'est qu'en le portant sur son dos qu'il se sentait en sécurité.
 
 Wang Lin resta assis et leva sa main droite. Il hésita. Il ne pouvait deviner les conséquences de l'ouverture de son espace de stockage dans ce monde.
 
-« Mon espace de stockage a été ouvert dans le monde des grottes. J'aurais pu l'ouvrir dans le vide, mais il y aurait eu des interférences. Après tout, le vide est toujours lié au monde des grottes... Mais maintenant que je suis sur le Continent Astral Immortel, que faire... » Wang Lin ressentit une migraine. Il regarda sa main droite et fit un geste.
+« Mon espace de stockage a été ouvert dans le monde des grottes. J'aurais pu l'ouvrir dans le vide, mais il y aurait eu des interférences. Après tout, le vide est toujours lié au monde des grottes... Mais maintenant que je suis sur le Continent Xian Gang, que faire... » Wang Lin ressentit une migraine. Il regarda sa main droite et fit un geste.
 
 Une faille apparut devant lui, mais à l'instant même où elle se forma, elle s'effondra en éclats de lumière avant qu'il ne puisse rien en extraire.
 

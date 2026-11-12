@@ -44,9 +44,9 @@ L'homme en robe rouge dit: « Junior frère, mon nom est Du Jian. » Après une 
 
 Wang Lin joignit les mains: « Salutations, Senior frère Du. »
 
-Du Jian sourit et désigna l'homme en noir: « Frère Wang, voici Murong Zhuo de la Secte Mo. Quant à ces deux-là, ce sont des compagnons de culture de la Secte Fu Yun. »
+Du Jian sourit et désigna l'homme en noir: « Frère Wang, voici Murong Zhuo de la Secte Mo. Quant à ces deux-là, ce sont des Daoïstes de la Secte Fu Yun. »
 
-L'homme vêtu de noir, Murong Zhuo, observa attentivement Wang Lin avant de joindre les mains: « Compagnon de culture Wang, je suis Murong Zhuo, disciple de la quatrième génération de la Secte Mo! »
+L'homme vêtu de noir, Murong Zhuo, observa attentivement Wang Lin avant de joindre les mains: « Daoïste Wang, je suis Murong Zhuo, disciple de la quatrième génération de la Secte Mo! »
 
 Lorsque Murong Zhuo eut fini de parler, Du Jian et les deux femmes furent stupéfaits. Ils n'avaient jamais vu Murong Zhuo prononcer plus de cinq mots d'un trait; son identité de solitaire était profondément ancrée dans leurs esprits.
 

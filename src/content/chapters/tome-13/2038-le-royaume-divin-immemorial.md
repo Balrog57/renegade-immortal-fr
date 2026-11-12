@@ -12,7 +12,7 @@ Les yeux de Wang Lin s'illuminèrent, mais il ne dit mot et poursuivit ses actio
 
 Lorsqu'il l'abattit, Wang Lin laissa échapper un rugissement et un fracas tonitruant résonna tout autour de lui!
 
-Si cette formation se trouvait dans un espace différent de celui du Continent Astral Immortel, toutes les attaques précédentes de Wang Lin auraient été inutiles. C'était comme si la formation était intangible — il pouvait la voir, mais ne pouvait la toucher.
+Si cette formation se trouvait dans un espace différent de celui du Continent Xian Gang, toutes les attaques précédentes de Wang Lin auraient été inutiles. C'était comme si la formation était intangible — il pouvait la voir, mais ne pouvait la toucher.
 
 La formation était située ici afin d'absorber l'aura de mort provenant du palais. Cela signifiait que, bien qu'elle résidât dans un espace distinct, les deux dimensions se chevauchaient en ce point précis.
 
@@ -20,7 +20,7 @@ Wang Lin avait déjà vu ce genre de sortilège par le passé. Dans le Palais C�
 
 En cet instant, il brûlait son soleil de Grand Empyréen en échange du pouvoir nécessaire pour briser le vide. Il comptait utiliser la puissance de son corps et sa culture pour forcer la barrière et pénétrer dans cet espace.
 
-Ce sortilège ressemblait à celui permettant de sortir du monde caverneux pour entrer directement sur le Continent Astral Immortel. C'était comme franchir la frontière entre deux mondes, une prouesse difficile même pour les Grands Empyréens, à moins qu'une entrée n'ait été préalablement créée, comme au Palais Céleste. Cependant, Wang Lin tentait ici de forcer le passage, ce qui s'avérait extrêmement ardu.
+Ce sortilège ressemblait à celui permettant de sortir du monde caverneux pour entrer directement sur le Continent Xian Gang. C'était comme franchir la frontière entre deux mondes, une prouesse difficile même pour les Grands Empyréens, à moins qu'une entrée n'ait été préalablement créée, comme au Palais Céleste. Cependant, Wang Lin tentait ici de forcer le passage, ce qui s'avérait extrêmement ardu.
 
 L'expression de l'Ancien Maître Impérial Dao changea face aux actions déchaînées de Wang Lin!
 
@@ -46,7 +46,7 @@ L'illusion ressemblait à une image reflétant les terres du clan céleste!
 
 Sur les terres du clan céleste, sur le Continent Mer et Montagne, quelques cultivateurs éparpillés contemplaient la mer avec stupeur. Le niveau de l'océan sembla chuter, puis un immense pilier noir, large de cent mille pieds et d'une longueur insondable, jaillit soudainement des profondeurs. Il s'élança vers le ciel avant de disparaître.
 
-Wang Lin vit la scène à l'intérieur du vortex. Il ne comprit pas sa signification, mais il sentit ses cheveux se hérisser, comme si une chose capable de bouleverser tout le Continent Astral Immortel venait d'apparaître!
+Wang Lin vit la scène à l'intérieur du vortex. Il ne comprit pas sa signification, mais il sentit ses cheveux se hérisser, comme si une chose capable de bouleverser tout le Continent Xian Gang venait d'apparaître!
 
 Il prit une profonde inspiration et, sans hésiter, frappa violemment de son pied droit pour tenter de briser le filet imminent et pénétrer l'espace de la formation. Cependant, le filet renforcé dégagea une puissance infinie qui empêcha Wang Lin de le rompre. En conséquence, des grondements tonitruants résonnèrent lors de son impact.
 

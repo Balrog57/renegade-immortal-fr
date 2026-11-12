@@ -10,9 +10,9 @@ Wang Lin méditait en silence, profondément inquiet. Personne ne pouvait empêc
 
 « Je connais votre relation avec Qing Shui. Une fois que vous aurez maîtrisé la première transformation, lorsque j'irai chercher le Cristal du Royaume Céleste de la Pluie, je pourrais trouver des nouvelles de lui... » L'homme âgé regardait Wang Lin d'un regard bienveillant.
 
-Ce jeune homme était son espoir, l'espoir de la Secte Divine de l'Oiseau Vermillon. Pour cet enfant, il était prêt à tout!
+Ce jeune homme était son espoir, l'espoir de la Secte Divine de Suzaku. Pour cet enfant, il était prêt à tout!
 
-« Lors de la crise dans la Terre Yao Ling, il n'a pas oublié ses amis. Maintenant qu'il est en sécurité, il n'oublie toujours pas Qing Shui. Un tel homme suffit à me rassurer pour lui confier la Secte Divine de l'Oiseau Vermillon et lui transmettre tous mes sorts... »
+« Lors de la crise dans la Terre Yao Ling, il n'a pas oublié ses amis. Maintenant qu'il est en sécurité, il n'oublie toujours pas Qing Shui. Un tel homme suffit à me rassurer pour lui confier la Secte Divine de Suzaku et lui transmettre tous mes sorts... »
 
 L'homme hocha discrètement la tête tandis qu'il levait sa main droite pour pointer le dos de Wang Lin. Son énergie originelle se déversa sans cesse dans le corps du jeune homme, enveloppant son âme originelle pour pénétrer la graine de feu qui siégeait en lui.
 
@@ -28,15 +28,15 @@ La prolongation du conflit permit à la Secte Shi Yin d'être accueillie favorab
 
 Seuls le Royaume Kun Xu et les Quatre Sectes Divines jouissaient de la paix, comme s'ils étaient coupés du reste du monde.
 
-Au fil de cette année, le niveau de culture de Wang Lin progressait de plus en plus vite. Les grondements de tonnerre émanant de son corps se faisaient de plus en plus fréquents, résonnant à travers toute la Secte Divine de l'Oiseau Vermillon. Bien que beaucoup ne l'aient pas vu, tous le connaissaient.
+Au fil de cette année, le niveau de culture de Wang Lin progressait de plus en plus vite. Les grondements de tonnerre émanant de son corps se faisaient de plus en plus fréquents, résonnant à travers toute la Secte Divine de Suzaku. Bien que beaucoup ne l'aient pas vu, tous le connaissaient.
 
-Tous les membres du clan savaient que ce Wang Lin, dont le corps dégageait ces éclats de tonnerre, était leur futur Empereur Divin, l'espoir de la Secte Divine de l'Oiseau Vermillon. Cependant, là où il y a des hommes, il y a des disputes et des luttes de pouvoir.
+Tous les membres du clan savaient que ce Wang Lin, dont le corps dégageait ces éclats de tonnerre, était leur futur Empereur Divin, l'espoir de la Secte Divine de Suzaku. Cependant, là où il y a des hommes, il y a des disputes et des luttes de pouvoir.
 
-La Secte Divine de l'Oiseau Vermillon n'échappait pas à cette règle. Tout le monde ne reconnaissait pas Wang Lin; en réalité, beaucoup s'opposèrent à lui. En particulier, trois individus furent sélectionnés parmi une multitude de prétendants élevés pour devenir le prochain Empereur Divin. Leurs cœurs étaient rongés par l'amertume. Même certains cultivateurs plus âgés étaient mécontents des arrangements de l'Empereur Divin.
+La Secte Divine de Suzaku n'échappait pas à cette règle. Tout le monde ne reconnaissait pas Wang Lin; en réalité, beaucoup s'opposèrent à lui. En particulier, trois individus furent sélectionnés parmi une multitude de prétendants élevés pour devenir le prochain Empereur Divin. Leurs cœurs étaient rongés par l'amertume. Même certains cultivateurs plus âgés étaient mécontents des arrangements de l'Empereur Divin.
 
 Toutefois, la puissance de l'Empereur Divin était trop immense pour que ces gens osassent la désobéissance.
 
-Pendant trois ans, durant plus de mille jours et nuits, Wang Lin ne cessa jamais sa culture. L'Empereur Divin de l'Oiseau Vermillon ne cessait de lui transmettre sa propre énergie originelle de feu, s'ajoutant à la chaleur de la pierre sur laquelle ils reposaient tous deux.
+Pendant trois ans, durant plus de mille jours et nuits, Wang Lin ne cessa jamais sa culture. L'Empereur Divin de Suzaku ne cessait de lui transmettre sa propre énergie originelle de feu, s'ajoutant à la chaleur de la pierre sur laquelle ils reposaient tous deux.
 
 Cela permit à la culture de Wang Lin de devenir encore plus raffinée. Son âme originelle était déjà rétablie. La graine de feu en lui avait absorbé toute cette chaleur et semblait prête à fondre. Elle libéra une puissante vague d'énergie originelle de feu à travers le corps de Wang Lin, et sept tatouages de feu scintillèrent sur son bras droit.
 
@@ -50,19 +50,19 @@ Wang Lin poussa un long soupir et dit lentement: « C'est la huitième fois... �
 
 Au cours de ces trois années, Wang Lin avait vécu cela huit fois. Chaque fois que l'énergie originelle atteignait un pic et qu'il était sur le point d'exploser, il compressait rapidement ladite énergie, ce qui lui permettait d'en supporter davantage.
 
-Lors des quatre premières fois, l'Empereur Divin de l'Oiseau Vermillon avait aidé Wang Lin à sceller l'énergie. Les fois suivantes, Wang Lin s'en était chargé seul.
+Lors des quatre premières fois, l'Empereur Divin de Suzaku avait aidé Wang Lin à sceller l'énergie. Les fois suivantes, Wang Lin s'en était chargé seul.
 
 Au moment où son énergie originelle fut maîtrisée, un huitième tatouage de feu apparut aux côtés des sept déjà présents sur son bras droit. Les huit tatouages formaient un cercle; il n'en manquait plus qu'un seul pour le compléter.
 
 « La première transformation des Neuf Transformations Mystérieuses requiert neuf vies de culture. Tu dois continuer à absorber l'énergie originelle du feu jusqu'à ce que neuf tatouages se forment. Ces neuf tatouages représentent neuf vies de culture. Tu empruntes la puissance de ces neuf existences pour voiler le ciel, puis tu absorbes toute cette force en une seule unité pour achever la première transformation! »
 
-« La transformation ne changera pas ta nature, elle te rendra plus fort. Elle te permettra de libérer une puissance extrême une fois accomplie. Ce n'est que lorsque tu l'auras fait que je me sentirai assez serein pour te laisser devenir l'Empereur Divin et entreprendre mon voyage vers l'Alliance Xiu Zhen. » La voix du vieil Empereur Divin de l'Oiseau Vermillon résonna derrière lui.
+« La transformation ne changera pas ta nature, elle te rendra plus fort. Elle te permettra de libérer une puissance extrême une fois accomplie. Ce n'est que lorsque tu l'auras fait que je me sentirai assez serein pour te laisser devenir l'Empereur Divin et entreprendre mon voyage vers l'Alliance Xiu Zhen. » La voix du vieil Empereur Divin de Suzaku résonna derrière lui.
 
 « Cependant, ce vieil homme ne dispose plus de beaucoup de temps; je sens l'ombre de la mort approcher. Je dois accélérer ta neuvième absorption. Ce processus sera extrêmement douloureux, mais tu dois l'endurer. Es-tu d'accord? »
 
 Wang Lin réfléchit en silence. Après un long moment, il hocha la tête, le regard déterminé.
 
-« Bien! » L'admiration de l'Empereur Divin s'intensifia, avant d'être rapidement suivie de regret. Il murmura doucement: « Si seulement mon avatar t'avait offert la marque de l'Oiseau Vermillon à l'époque, et si ton éveil avait été un peu plus précoce... Hélas. »
+« Bien! » L'admiration de l'Empereur Divin s'intensifia, avant d'être rapidement suivie de regret. Il murmura doucement: « Si seulement mon avatar t'avait offert la marque de Suzaku à l'époque, et si ton éveil avait été un peu plus précoce... Hélas. »
 
 L'Empereur Divin secoua la tête et ne dit rien de plus. Il prit une profonde inspiration, puis frappa de sa main la pierre sous eux. Dans un bruit sourd, son corps fut projeté en l'air et il se retrouva suspendu tête la première, face à Wang Lin. Ses deux mains formèrent alors un sceau qui s'activa soudainement.
 
@@ -76,13 +76,13 @@ Le temps passa et les rugissements de Wang Lin devinrent plus puissants encore. 
 
 Wang Lin ne pouvait ni échapper à cette souffrance, ni l'étouffer. Il devait constamment contrôler l'énergie qui gonflait en lui pour maintenir sa circulation, sous peine d'exploser instantanément.
 
-L'Empereur Divin de l'Oiseau Vermillon n'agissait ainsi que par nécessité. Il sentait la mort le guetter; il savait qu'il ne lui restait plus que trois mois à vivre. Dans trois mois, le troisième Fléau Céleste éclaterait et il mourrait sans aucun doute!
+L'Empereur Divin de Suzaku n'agissait ainsi que par nécessité. Il sentait la mort le guetter; il savait qu'il ne lui restait plus que trois mois à vivre. Dans trois mois, le troisième Fléau Céleste éclaterait et il mourrait sans aucun doute!
 
 Cette douleur intense rendit les rugissements de Wang Lin capables de briser les cieux. Au septième jour, l'énergie originelle atteignit une fois de plus son paroxysme. L'Empereur Divin semblait encore plus vieilli, une aura de mort émanant de lui alors qu'il s'effondrait derrière Wang Lin.
 
 « Que vaut la mort? » Le visage de l'Empereur était livide, mais ses yeux brillaient d'anticipation en fixant Wang Lin.
 
-Il ne craignait pas la mort; il craignait de mourir pour rien! Il craignait que la Secte Divine de l'Oiseau Vermillon n'ait aucun successeur et qu'elle disparaisse avec lui! Il aurait alors failli à ses ancêtres, failli à toute sa secte!
+Il ne craignait pas la mort; il craignait de mourir pour rien! Il craignait que la Secte Divine de Suzaku n'ait aucun successeur et qu'elle disparaisse avec lui! Il aurait alors failli à ses ancêtres, failli à toute sa secte!
 
 « Cela doit réussir! » À cet instant, Wang Lin représentait tout son espoir, la seule chose qui pourrait lui permettre de rire de joie, même dans l'agonie.
 
@@ -98,8 +98,8 @@ Pourtant, au moment où il ferma les yeux, la main droite de Wang Lin s'immobili
 
 Le huitième tatouage sur son bras droit commença à brûler et s'éleva dans les airs. C'était comme une fleur de feu s'épanouissant au milieu de ce champ stellaire incandescent. Le corps de Wang Lin fut projeté en l'air et, dans un rugissement qui fit trembler la terre, la fleur flamboyante fonça vers lui. Elle pénétra son corps avec frénésie, semblant aspirer tout le feu du système stellaire.
 
-À cet instant, le champ stellaire où résidait la Secte Divine de l'Oiseau Vermillon commença à bouillonner! Toutes les créatures de ce domaine furent ébranlées et levèrent les yeux...
+À cet instant, le champ stellaire où résidait la Secte Divine de Suzaku commença à bouillonner! Toutes les créatures de ce domaine furent ébranlées et levèrent les yeux...
 
-« La première transformation des Neuf Transformations Mystérieuses! » L'émotion sur les visages des Anciens de la Secte Divine de l'Oiseau Vermillon fut tout aussi vive que lorsqu'ils avaient découvert l'Éveil de l'Oiseau Vermillon!
+« La première transformation des Neuf Transformations Mystérieuses! » L'émotion sur les visages des Anciens de la Secte Divine de Suzaku fut tout aussi vive que lorsqu'ils avaient découvert l'Éveil de Suzaku!
 
-L'Éveil de l'Oiseau Vermillon ne faisait pas forcément de quelqu'un l'Empereur Divin, mais la première transformation des Neuf Transformations Mystérieuses, elle, en faisait à coup sûr un! C'était aussi le symbole du passage de relais entre deux générations d'Empereurs Divins!
+L'Éveil de Suzaku ne faisait pas forcément de quelqu'un l'Empereur Divin, mais la première transformation des Neuf Transformations Mystérieuses, elle, en faisait à coup sûr un! C'était aussi le symbole du passage de relais entre deux générations d'Empereurs Divins!

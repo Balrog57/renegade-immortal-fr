@@ -66,7 +66,7 @@ Cette douleur était telle que même son corps physique puissant et sa culture d
 
 Au son de cette voix, le dragon de mer lutta pour ouvrir les yeux, aveuglé par le soleil levant. Il vit Wang Lin émerger de la lumière, puis sombra soudainement dans une transe.
 
-« Grand Empyréen... » Aux yeux du dragon, le soleil derrière Wang Lin était véritablement un astre. Le dixième soleil du Continent Astral Immortel!
+« Grand Empyréen... » Aux yeux du dragon, le soleil derrière Wang Lin était véritablement un astre. Le dixième soleil du Continent Xian Gang!
 
 Cette silhouette sous l'astre, cette puissance de foi colossale... c'était un Grand Empyréen!
 

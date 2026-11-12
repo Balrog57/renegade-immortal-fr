@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1970 - The Celestial Clan’s Number One City!"
 slug: la-ville-numero-un-du-clan-celeste
 ---
-Alors que la neige tombait, deux silhouettes descendirent l'une après l'autre de la Secte Yang Pourpre: Wang Lin et Liu Jinbiao.
+Alors que la neige tombait, deux silhouettes descendirent l'une après l'autre de la Secte Zi Yang: Wang Lin et Liu Jinbiao.
 
 Wang Lin avait cultivé en silence durant une année entière, imprégné de l'aura de sa patrie qui lui manquait tant. Durant cette période, son essence de bois avait atteint la perfection et était sur le point de former un véritable corps d'essence.
 
@@ -20,11 +20,11 @@ Il n'en avait saisi qu'un infime fragment. C'était comme s'il venait d'ouvrir l
 
 « Atteindre le rang d'Exalté Doré ne sera pas difficile... le plus ardu sera les essences éthérées... La cité impériale est le lieu que l'Ancêtre Céleste a laissé derrière lui. Peut-être pourrai-je y trouver l'aura de l'épée de l'Ancêtre Céleste... » Wang Lin fit face au vent et à la neige en avançant.
 
-Se rendre de la Secte Yang Pourpre du Continent de l'Est à la cité impériale du Continent Central représentait un voyage extrêmement long. Pour des cultivateurs ordinaires, même en volant à pleine vitesse, cela prendrait une éternité, à moins d'utiliser des formations de téléportation.
+Se rendre de la Secte Zi Yang du Continent de l'Est à la cité impériale du Continent Central représentait un voyage extrêmement long. Pour des cultivateurs ordinaires, même en volant à pleine vitesse, cela prendrait une éternité, à moins d'utiliser des formations de téléportation.
 
 La silhouette de Wang Lin fut enveloppée par le vent et la neige. Il fut progressivement recouvert par les flocons alors qu'il utilisait la Distorsion Spatiale pour quitter le Continent de l'Est avec Liu Jinbiao et le dragon marin.
 
-Derrière eux, à la Secte Yang Pourpre, se tenaient Gu Ya et deux petites filles. Elles regardaient au loin, le regard empreint de mélancolie.
+Derrière eux, à la Secte Zi Yang, se tenaient Gu Ya et deux petites filles. Elles regardaient au loin, le regard empreint de mélancolie.
 
 « Est-ce qu'il reviendra...? » L'esprit de Wa Wa était quelque peu abattu.
 
@@ -68,13 +68,13 @@ Parmi eux s'élevaient quatre rois, couronnés comme les plus puissants de chaqu
 
 En outre, il existait une puissance transcendante capable de rivaliser avec le pouvoir impérial: la montagne située entre les villes de l'ouest et de l'est. Cette montagne portait le nom d'Empereur!
 
-Le Mont Empereur!
+Le Mont Di!
 
 Une montagne, un homme, un Grand Empyréen Jiu Di; ensemble, ils faisaient en sorte que la Cité Ancestrale entière, le palais et des millions de montagnes semblent étouffer sous leur présence.
 
-Concernant la mystérieuse Secte Dao Mo, beaucoup supposaient que sa raison d'être était de contenir le Mont Empereur, qui semblait lui-même opprimer le pouvoir impérial!
+Concernant la mystérieuse Secte Dao Mo, beaucoup supposaient que sa raison d'être était de contenir le Mont Di, qui semblait lui-même opprimer le pouvoir impérial!
 
-C'était une structure de pouvoir interne à la Cité Ancestrale que peu d'étrangers connaissaient aussi en détail; seuls les Grands Empyréens pouvaient en percevoir clairement les rouages. Après avoir passé un an dans la Secte Yang Pourpre, Wang Lin souhaitait se rendre à la Cité Ancestrale. Le Grand Empyréen Shuangzi avait utilisé le sort de fusion d'âmes pour extraire ses souvenirs de la cité afin de les transmettre à Wang Lin.
+C'était une structure de pouvoir interne à la Cité Ancestrale que peu d'étrangers connaissaient aussi en détail; seuls les Grands Empyréens pouvaient en percevoir clairement les rouages. Après avoir passé un an dans la Secte Zi Yang, Wang Lin souhaitait se rendre à la Cité Ancestrale. Le Grand Empyréen Shuangzi avait utilisé le sort de fusion d'âmes pour extraire ses souvenirs de la cité afin de les transmettre à Wang Lin.
 
 Les cinq grands continents du clan céleste étaient divisés en 72 continents plus petits. Les quatre saisons y étaient également légèrement différentes. Plusieurs mois s'étaient déjà écoulés lorsque les vents glacés et la neige venus du Continent de l'Est recouvrirent le Continent Central.
 

@@ -56,7 +56,7 @@ Nanzhao Shangren était bien plus rapide que le vieil homme en bleu. Il se chang
 
 Alors qu'il n'était plus qu'à 2 000 pieds, Nanzhao Shangren surgit derrière Wang Lin. L'expression sombre, il fixa ce dernier du regard. Il agita la main et une fumée de poison multicolore apparut!
 
-Cette fumée aux cinq couleurs était le poison essentiel à la vie de Nanzhao Shangren. Il l'avait raffiné pendant d'innombrables années à partir de tous les poisons qu'il avait collectés. C'était son trésor le plus précieux, comparable au poison de la Grande Désolation!
+Cette fumée aux cinq couleurs était le poison essentiel à la vie de Nanzhao Shangren. Il l'avait raffiné pendant d'innombrables années à partir de tous les poisons qu'il avait collectés. C'était son trésor le plus précieux, comparable au poison de Da Huang!
 
 « Junior Wang Lin, ce combat est terminé! » Une lueur froide brilla dans les yeux de Nanzhao Shangren tandis qu'il tendait sa main droite. À moins de 1 000 pieds de Wang Lin, la fumée multicolore derrière lui jaillit et se transforma en cinq tornades!
 
@@ -70,7 +70,7 @@ Au moment même où il se matérialisa, neuf gouttes de poison apparurent devant
 
 À la vue du poison, les pupilles de Nanzhao Shangren se rétractèrent.
 
-« Le poison de la Grande Désolation! Si c'était la Grande Désolation elle-même qui l'utilisait, cela pourrait être une menace, mais tu oses sortir cette chose obtenue par des moyens inconnus? »
+« Le poison de Da Huang! Si c'était Da Huang elle-même qui l'utilisait, cela pourrait être une menace, mais tu oses sortir cette chose obtenue par des moyens inconnus? »
 
 Nanzhao Shangren ricana en se rapprochant avec ses cinq tornades. Il était à moins de 500 pieds de Wang Lin!
 
@@ -80,9 +80,9 @@ Ce poison éthéré prit rapidement la forme d'une immense paume qui percuta de 
 
 La fumée aux cinq couleurs était composée de poisons divers et terrifiants. Cependant, au contact de la goutte de poison, elle réagit comme si elle avait rencontré un venin encore plus puissant et fut dévorée. Une tornade se dissipa instantanément dans l'océan toxique. Avant que Nanzhao Shangren ne puisse réagir avec horreur, deux autres tornades s'effondrèrent!
 
-« Ce n'est pas le poison de la Grande Désolation!! » L'expression de Nanzhao Shangren changea radicalement. Il avait côtoyé les poisons toute sa vie et connaissait tous les venins de ce monde. Pourtant, les trois gouttes qui s'étaient muées en cet océan étaient un poison qu'il n'avait jamais vu auparavant!
+« Ce n'est pas le poison de Da Huang!! » L'expression de Nanzhao Shangren changea radicalement. Il avait côtoyé les poisons toute sa vie et connaissait tous les venins de ce monde. Pourtant, les trois gouttes qui s'étaient muées en cet océan étaient un poison qu'il n'avait jamais vu auparavant!
 
-Ce poison ressemblait énormément à celui de la Grande Désolation, mais avec une étrange différence. C'était cette nuance qui avait empêché Nanzhao Shangren de réaliser sa terreur jusqu'à ce qu'il soit confronté à lui.
+Ce poison ressemblait énormément à celui de Da Huang, mais avec une étrange différence. C'était cette nuance qui avait empêché Nanzhao Shangren de réaliser sa terreur jusqu'à ce qu'il soit confronté à lui.
 
 Tout se passa en un éclair. Les cinq tornades de poison s'effondrèrent et furent absorbées par l'océan toxique. Puis, cet océan chargea vers Nanzhao Shangren telle une vague monstrueuse, pareille à un fleuve stellaire!
 
@@ -92,7 +92,7 @@ Un cri déchirant retentit de l'intérieur de la masse toxique. Le corps évanes
 
 Ses yeux se remplirent d'une peur inimaginable et il recula comme un fou, cherchant désespérément à échapper à cet océan de poison.
 
-« Quel genre de poison est-ce là?! Même la Grande Désolation ne pourrait raffiner une telle chose!! » L'expression de Nanzhao Shangren était pitoyable alors qu'il fuyait. Mais en un instant à peine, ses jambes se liquéfièrent en une eau sanglante. Même ses os fondirent!
+« Quel genre de poison est-ce là?! Même Da Huang ne pourrait raffiner une telle chose!! » L'expression de Nanzhao Shangren était pitoyable alors qu'il fuyait. Mais en un instant à peine, ses jambes se liquéfièrent en une eau sanglante. Même ses os fondirent!
 
 Des cris atroces, capables d'ébranler l'esprit, résonnèrent à travers les étoiles avant de devenir un cri de détresse terrifiant!
 

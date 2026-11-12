@@ -44,7 +44,7 @@ C'était la terre sacrée de presque tous les cultivateurs de l'Alliance!
 
 L'esprit de Wang Lin pénétra dans le Royaume Kun Xu, un endroit où très peu de cultivateurs étaient qualifiés pour entrer. Au plus profond du royaume, un vieil homme était assis. Il méditait près d'un lac lorsqu'il ouvrit soudainement les yeux et regarda au loin.
 
-« Quel compagnon cultivateur est donc venu dans mon Royaume Kun Xu? Veuillez vous manifester! »
+« Quel Daoïste est donc venu dans mon Royaume Kun Xu? Veuillez vous manifester! »
 
 Le vieil homme fut le premier à remarquer la présence de Wang Lin. Bien que sa voix fût calme, elle était imprégnée d'un pouvoir de loi infini. C'était comme si les lois entourant ce vieil homme pouvaient changer selon ses désirs.
 
@@ -106,7 +106,7 @@ Au siège de l'Alliance Xiu Zhen, sur la planète flottante au-dessus du vortex:
 
 « Qui est-il?! »
 
-Dans la mer de flammes, l'Oiseau Vermillon poussa un autre cri et se mit en mouvement, encore plus rapidement.
+Dans la mer de flammes, Suzaku poussa un autre cri et se mit en mouvement, encore plus rapidement.
 
 Parmi les étoiles, une silhouette mince vêtue de vert progressait. Cette personne affichait une expression indifférente. Elle marchait à travers le cosmos, sa cible étant le siège de l'Alliance Xiu Zhen.
 

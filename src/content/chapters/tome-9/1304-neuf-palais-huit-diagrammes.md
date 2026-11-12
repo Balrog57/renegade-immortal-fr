@@ -8,7 +8,7 @@ slug: neuf-palais-huit-diagrammes
 ---
 La montagne de nuages ressemblait à un voile de brume qui enveloppait la Formation du Royaume Scellé et pesait sur Wang Lin. Des grondements tonnerreux résonnaient et le visage de Wang Lin devint encore plus pâle, mais son expression resta imperturbable. Il fixait la montagne de nuages tout en s'appuyant contre la formation, immobile!
 
-« J'ai vu le pouvoir de la rétribution divine à maintes reprises et j'ai survécu à chacune d'elles. La rétribution d'aujourd'hui est étrange, mais elle ne pourra toujours pas me détruire! Mon cœur de dao ne peut être brisé, donc mon esprit ne peut mourir. Mon corps est aussi immuable que le Mont Tai, et même les cieux ne pourront m'empêcher d'accomplir mon dao! » La voix de Wang Lin était calme et lente.
+« J'ai vu le pouvoir de la Tribulation Céleste à maintes reprises et j'ai survécu à chacune d'elles. La rétribution d'aujourd'hui est étrange, mais elle ne pourra toujours pas me détruire! Mon cœur de dao ne peut être brisé, donc mon esprit ne peut mourir. Mon corps est aussi immuable que le Mont Tai, et même les cieux ne pourront m'empêcher d'accomplir mon dao! » La voix de Wang Lin était calme et lente.
 
 Ses mains formèrent un sceau et l'épée de sang tourna autour de lui en émettant des sifflements stridents. La lumière sanglante enveloppa Wang Lin. La montagne de nuages rugit en s'abattant sur lui, mais Wang Lin fit un geste de la main. Une ombre de Dieu Ancien apparut autour de lui; au même instant, sa main droite se serra en un poing pour frapper la montagne, tandis que sa main gauche pressait la Formation du Royaume Scellé!
 
@@ -32,9 +32,9 @@ Le tonnerre s'enroula autour de la lance dans un déluge de craquements. La lanc
 
 La montagne de nuages trembla et s'effondra. Les nuages furent repoussés, révélant les quatre épées en rotation!
 
-Le corps de Wang Lin ressentait également un immense inconfort. Après avoir transféré l'attaque dans la formation, il était blessé. Il cracha une bouchée de sang, mais son regard resta ferme. Il observa froidement la formation et la rétribution divine s'affronter.
+Le corps de Wang Lin ressentait également un immense inconfort. Après avoir transféré l'attaque dans la formation, il était blessé. Il cracha une bouchée de sang, mais son regard resta ferme. Il observa froidement la formation et la Tribulation Céleste s'affronter.
 
-Que ce soit la Formation du Royaume Scellé ou la rétribution divine, ces deux choses étaient détestées par Wang Lin. Il se souvenait encore de ce qu'il avait vu à l'intérieur du Royaume aux Sept Couleurs. À travers les âges, la Formation du Royaume Scellé avait été souillée par le sang de trop nombreux cultivateurs du Royaume Intérieur. Même maintenant, Wang Lin pouvait encore entendre leurs rugissements d'injustice.
+Que ce soit la Formation du Royaume Scellé ou la Tribulation Céleste, ces deux choses étaient détestées par Wang Lin. Il se souvenait encore de ce qu'il avait vu à l'intérieur du Royaume aux Sept Couleurs. À travers les âges, la Formation du Royaume Scellé avait été souillée par le sang de trop nombreux cultivateurs du Royaume Intérieur. Même maintenant, Wang Lin pouvait encore entendre leurs rugissements d'injustice.
 
 « Je refuse que cela soit! Je refuse que cela soit! Un jour viendra où une future génération de cultivateurs brisera cette formation et causera l'extinction de tous vous, les étrangers! Des rivières de sang couleront dans votre Royaume Extérieur! »
 
@@ -68,7 +68,7 @@ Simultanément, neuf points blancs apparurent sur le corps de Wang Lin. Ces neuf
 
 À l'arrivée des neuf palais, les neuf points provoquèrent une douleur insupportable. C'était comme si neuf clous avaient transpercé son corps. Cela aurait suffi à le rendre fou.
 
-Le corps de Wang Lin trembla et il poussa un rugissement en fixant les neuf palais. La douleur devint encore plus intense! Cependant, cette souffrance ne fit qu'attiser sa volonté indomptable. Il avait été un cultivateur défiant le ciel toute sa vie. Les cieux ne pouvaient le faire plier et le destin ne pouvait lui imposer l'obéissance, et encore moins cette rétribution divine!
+Le corps de Wang Lin trembla et il poussa un rugissement en fixant les neuf palais. La douleur devint encore plus intense! Cependant, cette souffrance ne fit qu'attiser sa volonté indomptable. Il avait été un cultivateur défiant le ciel toute sa vie. Les cieux ne pouvaient le faire plier et le destin ne pouvait lui imposer l'obéissance, et encore moins cette Tribulation Céleste!
 
 Dès l'instant où il avait choisi de devenir un cultivateur défiant le ciel, il était voué à lutter contre les cieux et à se battre contre le destin! À cet instant, des craquements retentirent dans son corps et celui-ci commença à gonfler!
 
@@ -84,7 +84,7 @@ Le corps de Wang Lin trembla et des grondements tonnerreux résonnèrent fréné
 
 De la même manière, les cinq planètes brillèrent. Dès qu'elles disparurent, elles chargèrent dans les cinq points de sang effondrés de Wang Lin! Les palais se déplacèrent à l'intérieur du corps de Wang Lin, causant une destruction sans fin, et convergèrent vers le dernier palais dans sa poitrine. Une fois condensés, le Sceau des Neuf Palais serait complet!
 
-Les planètes formées par les neuf palais n'étaient pas de véritables planètes de culture et ne contenaient aucune forme de vie. C'étaient neuf météorites gigantesques raffinées au fil d'innombrables années, devenues une partie même de la rétribution divine!
+Les planètes formées par les neuf palais n'étaient pas de véritables planètes de culture et ne contenaient aucune forme de vie. C'étaient neuf météorites gigantesques raffinées au fil d'innombrables années, devenues une partie même de la Tribulation Céleste!
 
 La douleur intense dans le corps de Wang Lin manqua de faire s'effondrer son âme originelle. Ses rugissements devinrent plus violents tandis que les étoiles du Dieu Ancien entre ses sourcils tournaient rapidement. Son expression devint encore plus féroce!
 
@@ -92,7 +92,7 @@ La douleur intense dans le corps de Wang Lin manqua de faire s'effondrer son âm
 
 Des grondements tonnerreux retentirent et les neuf points de sang sur son corps bougèrent. Les météorites à l'intérieur de lui s'arrêtèrent brusquement, incapables de converger vers le dernier palais!
 
-Cependant, la rétribution divine n'en avait pas fini. La foudre violette, les quatre épées colorées, l'Appel de Paramita, la montagne de nuages... tout cela n'était que le début. La rétribution divine était infinie, sans commencement ni fin, jusqu'à ce que la rétribution infinie s'achève!
+Cependant, la Tribulation Céleste n'en avait pas fini. La foudre violette, les quatre épées colorées, l'Appel de Paramita, la montagne de nuages... tout cela n'était que le début. La Tribulation Céleste était infinie, sans commencement ni fin, jusqu'à ce que la rétribution infinie s'achève!
 
 Après les neuf palais vinrent les Huit Diagrammes!
 

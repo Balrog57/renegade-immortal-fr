@@ -36,9 +36,9 @@ Wang Lin murmura pour lui-même: « Âme Naissante... Âme Naissante... même av
 
 Mais choisir cette méthode s'avérait en réalité assez difficile. Pour l'instant, toutes les techniques dont il disposait provenaient d'ennemis qu'il avait éliminés. Bien que certaines fussent compatibles avec un cultivateur de la Formation du Noyau, elles étaient toutes trop disparates, rendant tout choix complexe.
 
-Cependant, ce n'était pas là l'enjeu principal. Son véritable but était de sélectionner une méthode qui maximiserait ses chances de former son Âme Naissante. En y songeant, ses yeux s'illuminèrent: d'après les souvenirs de Ma Liang, le Chemin Divin du Sanctuaire du Dieu de la Guerre semblait posséder une telle propriété.
+Cependant, ce n'était pas là l'enjeu principal. Son véritable but était de sélectionner une méthode qui maximiserait ses chances de former son Âme Naissante. En y songeant, ses yeux s'illuminèrent: d'après les souvenirs de Ma Liang, le Chemin Divin du Temple Zhan Shen semblait posséder une telle propriété.
 
-Pourtant, ce qui déconcertait Wang Lin était le suivant: si le Sanctuaire du Dieu de la Guerre possédait réellement une telle méthode, entre l'avidité des habitants de leur propre pays et celle des nations de rang 4 ou 5, personne ne l'aurait laissé sans surveillance.
+Pourtant, ce qui déconcertait Wang Lin était le suivant: si le Temple Zhan Shen possédait réellement une telle méthode, entre l'avidité des habitants de leur propre pays et celle des nations de rang 4 ou 5, personne ne l'aurait laissé sans surveillance.
 
 Or, selon les souvenirs de Ma Liang, le Chemin Divin du Sanctuaire n'avait jamais suscité l'intérêt des puissances de culture supérieures. Cela troublait Wang Lin.
 

@@ -60,7 +60,7 @@ Le Maître Yan Leizi comptait parmi les trois!
 
 Le Maître Yan Leizi esquissa un sourire et dit lentement: « Je ne pensais pas que ce petit gars les mènerait jusqu'à la bête lunaire. Cependant, s'il n'avait pas agi ainsi, il n'aurait pas attiré mon attention. »
 
-« Chers compagnons cultivateurs, j'ai planifié cela depuis de nombreuses années, et cette bête lunaire fait partie de mon dessein. Je vous ai conduits ici pour que vous puissiez constater la puissance de la bête. »
+« Chers Daoïstes, j'ai planifié cela depuis de nombreuses années, et cette bête lunaire fait partie de mon dessein. Je vous ai conduits ici pour que vous puissiez constater la puissance de la bête. »
 
 « Maintenant que vous l'avez vue, que pensez-vous de mon plan? » Le Maître Yan Leizi détourna son regard et sourit.
 
@@ -86,7 +86,7 @@ Les yeux du Maître Yan Leizi brillèrent et il éclata de rire. « Les 108 Cél
 
 L'homme d'âge moyen qui s'était tu soudainement dit froidement: « D'après nos enquêtes, ce Xu Mu vient du Système Stellaire de l'Alliance. Maître Yan Leizi, vous lui accordez tant d'importance; n'avez-vous pas peur qu'il nous trahisse une fois de retour chez lui? »
 
-Le regard du Maître Yan Leizi devint glacial. Il fixa l'homme et sourit: « Compagnon cultivateur Gong Sun, je suis moi aussi originaire du Système Stellaire de l'Alliance. N'avez-vous pas peur que, bien que j'aie organisé tout ceci, je finisse par vous trahir une fois revenu là-bas? »
+Le regard du Maître Yan Leizi devint glacial. Il fixa l'homme et sourit: « Daoïste Gong Sun, je suis moi aussi originaire du Système Stellaire de l'Alliance. N'avez-vous pas peur que, bien que j'aie organisé tout ceci, je finisse par vous trahir une fois revenu là-bas? »
 
 L'homme en violet le regarda froidement, puis détourna les yeux sans poser davantage de questions.
 

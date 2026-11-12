@@ -28,7 +28,7 @@ Elle traversa la grotte et la montagne pour percer les cieux. Aucun observateur 
 
 On racontait que ces sceaux avaient été transmis par l'Ancêtre Céleste!
 
-Le Sens Divin de Wang Lin continua de s'élever jusqu'à briser le vide. Il était tel une épée céleste prête à fendre la voûte du Continent Astral Immortel!
+Le Sens Divin de Wang Lin continua de s'élever jusqu'à briser le vide. Il était tel une épée céleste prête à fendre la voûte du Continent Xian Gang!
 
 Au moment où son Sens Divin atteignit son apogée, des grondements tonitruants résonnèrent dans l'esprit de Wang Lin. Il eut l'impression que le ciel s'était transformé en un vortex géant aspirant sa conscience.
 

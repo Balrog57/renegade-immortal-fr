@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1796 - Powerful Will!"
 slug: une-volonte-puissante
 ---
-Wang Lin évoluait dans le vide imprégné des lois du Continent Astral Immortel depuis six ans désormais. Sur le Continent Astral Immortel, tout était paisible et la guerre n'existait pas; les frictions entre les Races Anciennes et Célestes étaient minimes.
+Wang Lin évoluait dans le vide imprégné des lois du Continent Xian Gang depuis six ans désormais. Sur le Continent Xian Gang, tout était paisible et la guerre n'existait pas; les frictions entre les Races Anciennes et Célestes étaient minimes.
 
 Au cours de cette année, plusieurs génies brillèrent à travers les 72 continents célestes. L’un d’eux se nommait Yun Yifeng!
 
@@ -16,7 +16,7 @@ Cette même année, certains cultivateurs du monde des grottes s'étaient discr�
 
 Peu de choses se passèrent dans les 36 États des Pays Anciens et au sein des trois clans cette année-là; ils traversèrent cette période avec calme.
 
-Chaque continent du Continent Astral Immortel était aussi vaste que des dizaines de mondes des grottes réunis. C'était une étendue immense, et de nombreux cultivateurs ordinaires n'avaient jamais quitté leur propre continent.
+Chaque continent du Continent Xian Gang était aussi vaste que des dizaines de mondes des grottes réunis. C'était une étendue immense, et de nombreux cultivateurs ordinaires n'avaient jamais quitté leur propre continent.
 
 En particulier, il existait la Rivière Céleste séparant les Races Anciennes et Célestes. Cette rivière abritait une force mystérieuse et de nombreuses bêtes puissantes y résidaient. Seuls des monstres antiques, aussi vieux que le monde lui-même, osaient s'y aventurer, et même eux n'en pénétraient pas les profondeurs. C'était la première barrière si l'un des deux camps souhaitait envahir l'autre!
 
@@ -24,15 +24,15 @@ L'année passa ainsi, tranquillement.
 
 Parmi les 72 continents du clan Céleste, l'un des neuf plus éloignés de la Rivière Céleste était le Continent Tian Niu! Si ce continent devait être réduit d'innombrables fois, on y percevrait vaguement la forme d'un taureau.
 
-C'est ainsi qu'il fut nommé le Taureau Céleste.
+C'est ainsi qu'il fut nommé le Tian Niu.
 
-Ce continent était reculé, loin de la Capitale Impériale située sur le Continent Ming Céleste. Depuis fort longtemps, il était considéré comme un continent périphérique. Il se trouvait dans la partie orientale du Continent Astral Immortel et, avec les huit autres continents, formait le Continent de l'Est!
+Ce continent était reculé, loin de la Capitale Impériale située sur le Continent Ming Céleste. Depuis fort longtemps, il était considéré comme un continent périphérique. Il se trouvait dans la partie orientale du Continent Xian Gang et, avec les huit autres continents, formait le Continent de l'Est!
 
 Le Continent de l'Est comptait neuf sectes et treize factions, la Secte Zi Yang en étant la meneuse. La Secte Dong Lin était la plus mystérieuse. En outre, la Secte Gui Yi, la Secte Da Hun et d'autres encore composaient les vingt et une sectes les plus célèbres du Continent de l'Est.
 
 Outre ces neuf sectes et treize factions, il existait des sectes plus modestes, mais elles ne pouvaient rivaliser avec les géants que représentaient ces vingt et une sectes. Sans parler de la rumeur selon laquelle la Secte Zi Yang abritait l'un des neuf soleils.
 
-Le Continent Tian Niu était sous l'influence de la Secte Da Hun et de la Secte Gui Yi. La Secte Qi Dao avait été fondée dans un recoin isolé du secteur du Taureau Céleste.
+Le Continent Tian Niu était sous l'influence de la Secte Da Hun et de la Secte Gui Yi. La Secte Qi Dao avait été fondée dans un recoin isolé du secteur du Tian Niu.
 
 Là se trouvait une chaîne de montagnes noires recouverte de forêts. Un voile de brume toxique enveloppait les monts, où oiseaux et bêtes se faisaient rares.
 
@@ -40,7 +40,7 @@ Au cœur de cette chaîne montagneuse se dressait un pic solitaire. Les vapeurs 
 
 C'était également là que l'on apparaissait après avoir quitté le monde des grottes.
 
-Yun Yifeng, Fan Shanlu, ou quiconque sortait du monde des grottes avec ses lignées du Continent Astral Immortel réapparaissait en ce lieu. Ils contemplaient leur patrie, à la fois familière et étrangère, avant de partir.
+Yun Yifeng, Fan Shanlu, ou quiconque sortait du monde des grottes avec ses lignées du Continent Xian Gang réapparaissait en ce lieu. Ils contemplaient leur patrie, à la fois familière et étrangère, avant de partir.
 
 Un jour de la sixième année, si le regard pouvait percer l'épaisse couche de brume, on entrevoyait les divers pavillons de la Secte Qi Dao. Parmi eux se dressait un immense pavillon qui servait de salle principale à la secte. C'était aussi l'endroit où le Souverain Céleste aux Sept Couleurs pratiquait autrefois sa culture en isolement.
 
@@ -56,11 +56,11 @@ Xuan Luo contempla le pavillon de la Secte Qi Dao dissimulé dans la brume et s'
 
 « Il reste moins de quatre ans. Disciple, ton Enseignant a fait tout ce qu'il pouvait... Désormais, tout dépendra de toi... » Xuan Luo ferma lentement les yeux, et entre ses sourcils jaillit une lueur rouge. Cette lumière servait de guide pour que Wang Lin ne s'égare pas.
 
-Dans le vide séparant les mondes des grottes du Continent Astral Immortel, le visage de Wang Lin était d'une pâleur mortelle. Les deux mains formant des sceaux, il faisait circuler son Pouvoir de Dao Antique dans tout son corps pour résister à la pression démente qui l'assaillait de toutes parts.
+Dans le vide séparant les mondes des grottes du Continent Xian Gang, le visage de Wang Lin était d'une pâleur mortelle. Les deux mains formant des sceaux, il faisait circuler son Pouvoir de Dao Antique dans tout son corps pour résister à la pression démente qui l'assaillait de toutes parts.
 
 Cette pression était déjà d'une puissance indescriptible; sans la bête moustique qui continuait d'avancer, Wang Lin aurait déjà succombé. Même le roi moustique se déplaçait beaucoup plus lentement et peinait sous la charge. Parfois, il laissait échapper un hurlement silencieux.
 
-Les yeux de Wang Lin étaient injectés de sang. Les essences de son corps étaient épuisées et ratatinées, sans possibilité de les régénérer. La seule façon de résister aux lois du Continent Astral Immortel était d'utiliser son corps de Dao Antique.
+Les yeux de Wang Lin étaient injectés de sang. Les essences de son corps étaient épuisées et ratatinées, sans possibilité de les régénérer. La seule façon de résister aux lois du Continent Xian Gang était d'utiliser son corps de Dao Antique.
 
 Cela faisait plus d'un an qu'il n'avait pas vu de cadavre. Il semblait extrêmement rare que quelqu'un parvienne aussi loin.
 
@@ -76,7 +76,7 @@ Avec un sourire amer, Wang Lin lutta pour lever la main droite et la poser sur l
 
 Cependant, il n'était pas né ici. Peut-être s'adapterait-il pleinement après d'innombrables années, mais pour l'instant, il ne pouvait pénétrer les profondeurs du vide.
 
-Le roi moustique était trop épuisé pour forcer le passage. Il devait fusionner avec davantage de lois du Continent Astral Immortel et subir d'innombrables transformations évolutives pour atteindre l'état de ses ancêtres.
+Le roi moustique était trop épuisé pour forcer le passage. Il devait fusionner avec davantage de lois du Continent Xian Gang et subir d'innombrables transformations évolutives pour atteindre l'état de ses ancêtres.
 
 « Ne viens pas avec moi, tu deviendrais fou... Puisque c'est ta demeure, reste ici... Tu m'as accompagné pendant plus de 2 000 ans. Aujourd'hui, tu peux... partir... »
 

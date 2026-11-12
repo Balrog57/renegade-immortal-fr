@@ -18,11 +18,11 @@ C'était comme si une bourrasque puissante s'abattait sur lui. La véritable for
 
 Même d'autres cultivateurs du troisième pas au stade initial du Vide du Nirvana seraient incapables de poursuivre leur progression après avoir subi un tel cri strident!
 
-Cependant, Wang Lin n'avait pas encore atteint le troisième pas. Il était devenu un dieu antique à sept étoiles grâce à l'héritage de l'Ordre Antique; il pouvait donc résister à la puissance d'un cultivateur du troisième pas en s'appuyant sur la force de son corps!
+Cependant, Wang Lin n'avait pas encore atteint le troisième pas. Il était devenu un dieu antique à sept étoiles grâce à l'héritage de Dao Gu; il pouvait donc résister à la puissance d'un cultivateur du troisième pas en s'appuyant sur la force de son corps!
 
 La vigueur de sa chair avait atteint un niveau terrifiant. En entendant le cri strident de Maître Lu Fu, les yeux de Wang Lin s'illuminèrent!
 
-« Dans ce monde, aucun cri ne peut égaler le rugissement d'un dieu antique, et plus encore celui de l'Ordre Antique! Peu importe que vous soyez au troisième pas! » Les sept étoiles divines antiques entre les sourcils de Wang Lin tournèrent rapidement. Sous leur rotation, la puissance du dieu antique emplit son corps, et la gigantesque tête de l'Ordre Antique apparut derrière lui, de toutes pièces.
+« Dans ce monde, aucun cri ne peut égaler le rugissement d'un dieu antique, et plus encore celui de Dao Gu! Peu importe que vous soyez au troisième pas! » Les sept étoiles divines antiques entre les sourcils de Wang Lin tournèrent rapidement. Sous leur rotation, la puissance du dieu antique emplit son corps, et la gigantesque tête de Dao Gu apparut derrière lui, de toutes pièces.
 
 Dès que la tête se manifesta, Wang Lin ouvrit la bouche et laissa échapper un rugissement assourdissant vers le vortex à l'intérieur de la formation!
 
@@ -30,7 +30,7 @@ GRAAAH!!
 
 Ce rugissement se propagea instantanément, écrasant le cri strident de Maître Lu Fu. Il forma une onde sonore monstrueuse qui balaya tout sur son passage!
 
-Il ne pouvait rivaliser avec le rugissement de cette existence mystérieuse de la tombe antique, transmis par la bouche de Wang Lin, qui avait blessé d'innombrables cultivateurs du troisième pas et repoussé le Souverain. Cependant, le rugissement de l'Ordre Antique de Wang Lin avait malgré tout gagné une certaine ampleur!
+Il ne pouvait rivaliser avec le rugissement de cette existence mystérieuse de la tombe antique, transmis par la bouche de Wang Lin, qui avait blessé d'innombrables cultivateurs du troisième pas et repoussé le Souverain. Cependant, le rugissement de Dao Gu de Wang Lin avait malgré tout gagné une certaine ampleur!
 
 Le grondement fit trembler l'espace entre Wang Lin et Maître Lu Fu. C'était comme si les deux hommes s'étaient lancé des attaques invisibles. Le domaine stellaire vacilla et les innombrables cultivateurs environnants crachèrent du sang, reculant frénétiquement une fois de plus.
 
@@ -38,7 +38,7 @@ Au plus profond du vortex de la formation, Maître Yan Leizi et ses compagnons �
 
 Maître Lu Fu, assis devant eux, vit son expression changer. Il sentit clairement un impact inimaginable se précipiter vers lui, une force voulant détruire tout ce qui lui résistait.
 
-Son cri fut immédiatement balayé par le rugissement de l'Ordre Antique. Ses vêtements et ses cheveux gris flottèrent violemment sous la pression. Bien que son visage ait changé, une lueur de froideur passa dans ses yeux.
+Son cri fut immédiatement balayé par le rugissement de Dao Gu. Ses vêtements et ses cheveux gris flottèrent violemment sous la pression. Bien que son visage ait changé, une lueur de froideur passa dans ses yeux.
 
 Toutefois, derrière cette froideur, il ne put dissimuler une pointe de choc!
 

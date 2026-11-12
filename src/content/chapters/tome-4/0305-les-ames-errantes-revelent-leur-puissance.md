@@ -64,7 +64,7 @@ Sa chair se désintégra lentement pour ne laisser qu'un squelette, tandis que l
 
 Les yeux de Wang Lin brillèrent d'une lueur particulière. Sous son commandement, les âmes environnantes revinrent vers lui et disparurent dans son front.
 
-À cet instant, l'homme du Clan Ju Mo laissa échapper un rire. Il fit quelques pas en avant et demanda: « Cher compagnon de culture, que s'est-il passé pour que vous en arriviez à un tel état, au point qu'un simple cultivateur de l'Âme Naissante ose convoiter votre personne? »
+À cet instant, l'homme du Clan Ju Mo laissa échapper un rire. Il fit quelques pas en avant et demanda: « Cher Daoïste, que s'est-il passé pour que vous en arriviez à un tel état, au point qu'un simple cultivateur de l'Âme Naissante ose convoiter votre personne? »
 
 Wang Lin le regarda et répondit calmement: « Un fragment du royaume céleste s'est effondré. »
 

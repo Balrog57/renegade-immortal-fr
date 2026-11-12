@@ -108,7 +108,7 @@ Elle portait une robe d'un blanc immaculé, ornée de neuf fleurs de mandara bro
 
 Ses cheveux noirs et soyeux retombaient négligemment derrière sa tête. Trois épingles en cristal violet clair maintenaient sa coiffure, ne laissant que deux mèches d'un violet éclatant pour osciller doucement au gré de la brise. Sous son œil gauche, trois fins accessoires d'un violet pâle, aussi délicats que des ailes de cigale, attiraient le regard. La lumière qui jouait sur eux la rendait aussi sublime qu'une peinture.
 
-« Cher compagnon de culture, bienvenue dans la boutique du clan Shang! » La voix de la femme était aussi mélodieuse que le chant d'un oiseau.
+« Cher Daoïste, bienvenue dans la boutique du clan Shang! » La voix de la femme était aussi mélodieuse que le chant d'un oiseau.
 
 Sa beauté était absolue, mais ce qui captiva l'attention de Wang Lin fut le fin accessoire sous son œil gauche. Avec sa perspicacité, il comprit immédiatement qu'il s'agissait d'un trésor magique!
 

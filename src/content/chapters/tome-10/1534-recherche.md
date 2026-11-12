@@ -46,7 +46,7 @@ Sans la Formation de Scellement du Royaume, une fois la tempête passée, l'endr
 
 La Secte Gui avait également envoyé une grande quantité de cultivateurs pour se poster ici. Quant à la Secte Divine, sous la direction de Mu Bingmei, elle avait mis en place des formations puissantes et établi un blocus en prévision de la seconde bataille qui allait bientôt éclater.
 
-Les cultivateurs de la Rivière Invoquée avaient laissé une partie de leur groupe stationnée ici, à l'extérieur du vortex de brume, avec la belle femme d'âge mûr comme chef, avant de s'y installer.
+Les cultivateurs de Zhao He avaient laissé une partie de leur groupe stationnée ici, à l'extérieur du vortex de brume, avec la belle femme d'âge mûr comme chef, avant de s'y installer.
 
 Les cultivateurs de Luotian avaient également laissé une partie des leurs. Le reste était retourné chez lui pour se préparer au second affrontement!
 
@@ -56,7 +56,7 @@ Cette femme était très belle mais aussi extrêmement froide. La froideur de so
 
 Lors de la première bataille, le Grand Maître Yun Luo avait stupéfié Maître Hong Shan et les autres. C'était à cause d'elle que l'armée du Royaume Intérieur avait été extrêmement passive; ils n'avaient même pas pu déployer de formation.
 
-La capacité du Grand Maître Yun Luo à déployer ses troupes et à pratiquer la divination avait laissé une impression profonde sur le Grand Maître Hong Shan et ses compagnons! Si le Seigneur du Royaume Scellé n'avait pas tué son avatar, alors même avec l'arrivée des renforts de la Rivière Invoquée et de Luotian, ils auraient subi de lourdes pertes!
+La capacité du Grand Maître Yun Luo à déployer ses troupes et à pratiquer la divination avait laissé une impression profonde sur le Grand Maître Hong Shan et ses compagnons! Si le Seigneur du Royaume Scellé n'avait pas tué son avatar, alors même avec l'arrivée des renforts de Zhao He et de Luotian, ils auraient subi de lourdes pertes!
 
 Très peu de grandes guerres avaient eu lieu au sein du Royaume Intérieur. Au fil des dizaines de milliers d'années, ils avaient lentement perdu l'habitude de ce type de combat. Cette bataille fut une leçon, mais elle permit aussi à Maître Hong Shan et aux autres de comprendre que, même avec un niveau de culture élevé, une armée sans chef n'était qu'un tas de sable!
 

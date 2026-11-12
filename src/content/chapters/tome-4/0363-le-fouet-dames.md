@@ -20,7 +20,7 @@ Le regard de Hongdie devint plus glacial encore tandis qu'elle arrachait un autr
 
 Hongdie ne s'arrêta pas là et arracha un nouveau pétale. Elle se mordit la langue et cracha une bouffée de sang. Le sang tomba sur le pétale, y faisant apparaître des motifs de sang. En un éclair, il se mua en neuf longues épées rouges d'où jaillissaient des éclats d'épée, et les neuf épées s'élancèrent frénétiquement vers Wang Lin.
 
-« Trois pétales! Ceng Niu, je veux voir si tu es capable de survivre à cela! » Hongdie frappa le géant de glace sur lequel elle se tenait. Le colosse poussa un rugissement et asséna un coup de poing juste derrière les épées volantes.
+« Trois pétales! Zeng Niu, je veux voir si tu es capable de survivre à cela! » Hongdie frappa le géant de glace sur lequel elle se tenait. Le colosse poussa un rugissement et asséna un coup de poing juste derrière les épées volantes.
 
 À chaque pas du géant, une crevasse béante s'ouvrait dans le sol. D'innombrables arbres s'écroulèrent et les vibrations provoquèrent de multiples fractures dans la terre.
 
@@ -42,7 +42,7 @@ Cependant, au moment même où il réapparut, le poing du géant de glace surgit
 
 Le corps de Wang Lin fut projeté violemment. Les neuf épées le transpercèrent frénétiquement alors qu'il volait dans les airs, avant que le pétale géant ne l'enveloppe, ne laissant aucune fente.
 
-Une intention meurtrière envahit les yeux de Hongdie qui hurla: « Ceng Niu, accepte ta mort! »
+Une intention meurtrière envahit les yeux de Hongdie qui hurla: « Zeng Niu, accepte ta mort! »
 
 Sa main gauche traça un sceau et pointa le pétale. Bientôt, des bruits d'explosions retentirent de l'intérieur de la fleur.
 
@@ -62,7 +62,7 @@ Hongdie fixa Wang Lin et pointa la rose dont il ne restait que six pétales. Ell
 
 De sa main droite, il frappa la pierre, et les symboles se mirent à briller.
 
-Le visage de Hongdie pâlit tandis qu'une légère fumée noire émergeait de son front. Elle s'écria: « Ceng Niu, qu'est-ce que c'est que ça!?! »
+Le visage de Hongdie pâlit tandis qu'une légère fumée noire émergeait de son front. Elle s'écria: « Zeng Niu, qu'est-ce que c'est que ça!?! »
 
 « Ce n'est qu'un bras! » L'expression de Wang Lin resta imperturbable alors qu'il frappait la pierre. Des éclats de roche tombèrent, révélant un bras sombre et desséché.
 
@@ -70,13 +70,13 @@ Tenant le membre dans sa main, il esquissa un sourire sinistre. « Hongdie, ce b
 
 Le corps de Hongdie trembla tandis qu'elle fixait l'objet. Elle se tourna soudainement vers Wang Lin, la froideur de son regard atteignant son paroxysme.
 
-« Ceng Niu, espèce de scélérat! »
+« Zeng Niu, espèce de scélérat! »
 
 Les yeux de Wang Lin brillèrent et il éclata d'un rire sonore. Puis, son regard s'assombrit brusquement: « Un scélérat? Dans le royaume céleste, il n'y avait aucune haine entre nous. Je ne t'avais jamais importunée. Pourtant, tu as tenté de me tuer à maintes reprises. Même maintenant, j'ignore toujours pourquoi tu voulais ma mort. Il n'y aurait donc que toi qui aies le droit de me tuer, et moi je ne pourrais pas résister? »
 
 Le visage de Hongdie était sombre. Sans aucune hésitation, elle pointa la rose et les six pétales restants se dispersèrent.
 
-Wang Lin laissa échapper un reniflement méprisant. D'un geste vif, il frappa son sac de rangement et un drapeau noir apparut dans sa main. C'était ce drapeau qui n'attendait qu'une seule restriction de plus pour invoquer la foudre de la rétribution divine.
+Wang Lin laissa échapper un reniflement méprisant. D'un geste vif, il frappa son sac de rangement et un drapeau noir apparut dans sa main. C'était ce drapeau qui n'attendait qu'une seule restriction de plus pour invoquer la foudre de la Tribulation Céleste.
 
 Sa main gauche s'agita devant lui. Une restriction apparut et il l'appliqua sur le drapeau. La restriction trembla et une lumière aveuglante jaillit de l'étendard.
 
@@ -90,7 +90,7 @@ Quant aux six pétales transformés en femmes, ils furent également stoppés ne
 
 Tous ceux qui observaient le combat à l'extérieur furent frappés de stupeur. Les quatre anciens assis dans le cercle intérieur ouvrirent brusquement les yeux, leurs regards verrouillés sur les nuages écarlates.
 
-« La Rétribution Divine! » Les yeux de Gong Sunpo s'illuminèrent.
+« La Tribulation Céleste! » Les yeux de Gong Sunpo s'illuminèrent.
 
 « Six retournent en un! » Hongdie changea d'expression et pressa rapidement des sceaux. Les six femmes en rouge fusionnèrent avec elle, faisant apparaître derrière elle six magnifiques silhouettes rouges.
 
@@ -108,13 +108,13 @@ Dans une explosion retentissante, l'énergie de l'épée s'effondra. L'éclair r
 
 Profitant de cette hésitation, Wang Lin hurla: « Drapeau de restriction, disperse-toi! »
 
-Le drapeau trembla violemment alors qu'une quantité massive de gaz de restriction s'en dégageait. Le processus continua jusqu'à ce que le drapeau tombe en poussière et disparaisse. Cependant, le gaz libéré atteignit Hongdie presque instantanément et l'enveloppa. Une grande partie du gaz avait également pénétré le corps du géant de glace. Bien que ce gaz ne fût pas létal, il servait de balise pour la foudre de la rétribution divine.
+Le drapeau trembla violemment alors qu'une quantité massive de gaz de restriction s'en dégageait. Le processus continua jusqu'à ce que le drapeau tombe en poussière et disparaisse. Cependant, le gaz libéré atteignit Hongdie presque instantanément et l'enveloppa. Une grande partie du gaz avait également pénétré le corps du géant de glace. Bien que ce gaz ne fût pas létal, il servait de balise pour la foudre de la Tribulation Céleste.
 
 Le géant frappa violemment le sol. À chaque coup, une partie du gaz se dissipait, mais la quantité était telle qu'il continuait de saturer le corps du colosse.
 
 Hongdie s'apprêtait à se téléporter quand son visage se décomposa.
 
-« Au moment où la rétribution divine frappe, tous les déplacements instantanés sont scellés! Hongdie, accepte ta mort! » Les yeux de Wang Lin brillèrent d'un éclat sinistre.
+« Au moment où la Tribulation Céleste frappe, tous les déplacements instantanés sont scellés! Hongdie, accepte ta mort! » Les yeux de Wang Lin brillèrent d'un éclat sinistre.
 
 L'éclair rouge frappa enfin. Dès que le gaz de restriction toucha la foudre, il se dissipa. L'éclair s'abattit sur Hongdie, qui était prise au piège dans cet environnement saturé.
 
@@ -124,7 +124,7 @@ Le visage de Hongdie devint livide et elle serra les dents. À l'instant où l'�
 
 « Explosez! »
 
-L'une des figures rouges explosa au contact de la foudre, mais cela fut insuffisant pour stopper la rétribution divine.
+L'une des figures rouges explosa au contact de la foudre, mais cela fut insuffisant pour stopper la Tribulation Céleste.
 
 La voix de Hongdie se brisa dans un cri: « Explosez! Explosez! »
 

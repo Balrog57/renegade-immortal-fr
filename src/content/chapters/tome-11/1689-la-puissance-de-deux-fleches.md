@@ -16,7 +16,7 @@ Dès l'apparition de la flèche, le monde changea de couleur et trembla. Le Cél
 
 « Cet arc est très familier... Cet arc... l'arc Li Guang!!! » À l'instant où le Céleste reconnut l'arme, son expression changea radicalement. La peur et l'incrédulité envahirent ses yeux alors qu'il poussait un cri de terreur et reculait frénétiquement.
 
-Il connaissait cet arc et la puissance de sa flèche. C'était un trésor redoutable capable d'ébranler les cœurs jusqu'à son monde natal, sur le Continent Astral Immortel. Il possédait une capacité destructrice terrifiante!
+Il connaissait cet arc et la puissance de sa flèche. C'était un trésor redoutable capable d'ébranler les cœurs jusqu'à son monde natal, sur le Continent Xian Gang. Il possédait une capacité destructrice terrifiante!
 
 À ce moment précis, il comprit soudainement que cet homme était resté assis ici précisément pour attendre leur apparition. Cet homme attendait l'ouverture du Royaume Céleste Antique pour utiliser cet arc et les massacrer!
 
@@ -42,7 +42,7 @@ Ce sifflement hurlant était assez puissant pour briser les cieux. La puissance 
 
 Le Céleste qui comptait tuer Wang Lin n'eut nulle part où se réfugier. Il hurla alors que son corps volait en éclats sous l'impact de la flèche. Son âme originelle fut instantanément éteinte!
 
-Il n'était pas le premier cultivateur du Continent Astral Immortel que Wang Lin tuait, et il ne serait pas le dernier!
+Il n'était pas le premier cultivateur du Continent Xian Gang que Wang Lin tuait, et il ne serait pas le dernier!
 
 Alors qu'elle fonçait, la flèche s'étendit jusqu'à atteindre des dizaines de milliers de pieds de long, et elle continuait de croître! Les dizaines de Célestes qui étaient sortis devinrent livides. Face à la vitesse de la flèche, ils n'étaient que des nourrissons tentant de fuir.
 

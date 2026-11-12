@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1212 - Sealing Extermination Clan
 slug: le-clan-de-lextermination-scellee
 ---
-Wang Lin n'avait aucune certitude de pouvoir affronter un cultivateur au stade avancé du Briseur du Nirvana. En temps normal, il aurait choisi de battre en retraite, mais après le troisième éveil de l'Oiseau Vermillon, une chance s'offrait à lui! De plus, après avoir absorbé le tonnerre du membre du Clan Shan Lei, son propre pouvoir de foudre s'était considérablement amélioré.
+Wang Lin n'avait aucune certitude de pouvoir affronter un cultivateur au stade avancé du Briseur du Nirvana. En temps normal, il aurait choisi de battre en retraite, mais après le troisième éveil de Suzaku, une chance s'offrait à lui! De plus, après avoir absorbé le tonnerre du membre du Clan Shan Lei, son propre pouvoir de foudre s'était considérablement amélioré.
 
 Plus important encore, il avait assimilé le domaine de combat de Zhan Xingye. Bien qu'il ne l'ait pas fusionné et n'en ait que partiellement compris la nature, cela lui donnait la détermination nécessaire pour combattre ce cultivateur au stade avancé du Briseur du Nirvana!
 
@@ -14,17 +14,17 @@ La phrase de Zhan Xingye résonnait dans l'esprit de Wang Lin: « Les cultivateu
 
 Wang Lin flotta dans les airs; des flammes bleues jaillirent de son œil gauche pour remonter vers ses sourcils!
 
-« J'ai abandonné mon domaine de vie et de mort. En cet instant, les flammes remplaceront mon esprit et mon Dao. En cet instant, je suis les flammes. Je suis l'Oiseau Vermillon qui s'est éveillé trois fois! » Les flammes bleues se rassemblèrent frénétiquement entre les sourcils de Wang Lin, et un tatouage bleu apparut soudainement!
+« J'ai abandonné mon domaine de vie et de mort. En cet instant, les flammes remplaceront mon esprit et mon Dao. En cet instant, je suis les flammes. Je suis Suzaku qui s'est éveillé trois fois! » Les flammes bleues se rassemblèrent frénétiquement entre les sourcils de Wang Lin, et un tatouage bleu apparut soudainement!
 
 À l'instant où le tatouage se manifesta, Wang Lin n'était plus un simple cultivateur; il était devenu un immortel de feu, le souverain de toutes les flammes!
 
 Son apparence ressemblait désormais étroitement à celle d'un membre du Clan Huo Que. La seule différence résidait dans le fait que le tatouage entre les sourcils de Wang Lin était bleu, tandis que celui du Clan Huo Que était rouge!
 
-Le tatouage de feu bleu brûlait entre ses sourcils. Wang Lin poussa un rugissement et l'Oiseau Vermillon Bleu laissa échapper un cri de joie! L'oiseau s'envola vers le ciel pour s'engouffrer dans le tatouage situé entre les sourcils de Wang Lin!
+Le tatouage de feu bleu brûlait entre ses sourcils. Wang Lin poussa un rugissement et Suzaku Bleu laissa échapper un cri de joie! L'oiseau s'envola vers le ciel pour s'engouffrer dans le tatouage situé entre les sourcils de Wang Lin!
 
-Il semblait que l'Oiseau Vermillon soit devenu l'âme originelle de Wang Lin. À cet instant, son âme originelle réintégra ce corps!
+Il semblait que Suzaku soit devenu l'âme originelle de Wang Lin. À cet instant, son âme originelle réintégra ce corps!
 
-Puis, une nouvelle armure se matérialisa autour de lui. C'était une armure en forme d'Oiseau Vermillon, entièrement bleue. Revêtu de cette parure, Wang Lin ressemblait à un noble Oiseau Vermillon!
+Puis, une nouvelle armure se matérialisa autour de lui. C'était une armure en forme de Suzaku, entièrement bleue. Revêtu de cette parure, Wang Lin ressemblait à un noble Oiseau Vermillon!
 
 « J'ordonne au feu du monde de converger! » rugit Wang Lin. Toutes les flammes bleues qui emplissaient le Royaume aux Sept Couleurs commencèrent à se rassembler comme pour saluer leur seigneur!
 

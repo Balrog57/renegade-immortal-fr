@@ -72,7 +72,7 @@ Cependant, pour le Royaume Extérieur, ce fut un coup terrible. Jusqu'à présen
 
 L'expression du Souverain était sombre et une froideur glaciale émanait de son regard. Sa peur de Wang Lin surpassait celle de l'être qui l'avait contraint à quitter le Royaume Intérieur d'un simple rugissement.
 
-« Miaoyin Daozun, Jiutian Mozun et la Grande Désolation sont tous piégés dans la Terre Gu Shen avec la quatrième concubine... Si ces trois-là parviennent à sortir, ils pourraient être en mesure d'absorber ces tirs! » Le Souverain se leva, prêt à partir, puis s'arrêta. Ses yeux s'illuminèrent; il leva la main droite et un jade apparut.
+« Miaoyin Daozun, Jiutian Mozun et Da Huang sont tous piégés dans la Terre Gu Shen avec la quatrième concubine... Si ces trois-là parviennent à sortir, ils pourraient être en mesure d'absorber ces tirs! » Le Souverain se leva, prêt à partir, puis s'arrêta. Ses yeux s'illuminèrent; il leva la main droite et un jade apparut.
 
 Il y déposa une parcelle de son Sens Divin, puis le lança. Le jade disparut sans laisser de trace.
 
@@ -90,7 +90,7 @@ Le visage du Souverain était maussade, une étincelle de froideur dans les yeux
 
 Lorsqu'il réapparut, il se trouvait sur le Mont Bleu du Clan Lan Si. Le Souverain flottait là, écoutant une mélodie mélancolique. Après un long moment, il agita sa manche et s'adressa à la cabane au sommet de la montagne.
 
-« Vieil ami Lan Meng, savez-vous ce qui s'est passé dans le Royaume Intérieur? »
+« Vieil ami Lanmeng, savez-vous ce qui s'est passé dans le Royaume Intérieur? »
 
 La musique du zither résonna encore un moment avant de s'apaiser. La voix de Lanmeng Daozun s'éleva de l'habitation.
 
@@ -100,7 +100,7 @@ La musique du zither résonna encore un moment avant de s'apaiser. La voix de La
 
 Un silence s'installa dans la cabane.
 
-Le Souverain était certain que Lan Meng ne refuserait pas. Après avoir parlé, il fit volte-face et disparut sans laisser de trace.
+Le Souverain était certain que Lanmeng ne refuserait pas. Après avoir parlé, il fit volte-face et disparut sans laisser de trace.
 
 Lorsqu'il réapparut, il se tenait près d'une faille du Système Stellaire Antique. Il n'y pénétra pas, mais ses yeux brillèrent et son puissant Sens Divin se déploya.
 

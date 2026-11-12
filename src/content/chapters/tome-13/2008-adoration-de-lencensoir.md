@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2008 - Worshiping the Incense Stove
 slug: adoration-de-lencensoir
 ---
-L'Ancien Dao était situé au sud-ouest du Continent Astral Immortel. Les douze pays étaient comparables à une province du clan céleste, bien qu'ils fussent légèrement plus vastes.
+L'Ancien Dao était situé au sud-ouest du Continent Xian Gang. Les douze pays étaient comparables à une province du clan céleste, bien qu'ils fussent légèrement plus vastes.
 
 Si l'on ne disposait pas de la capacité de plier l'espace et que l'on devait se déplacer par le simple vol, il faudrait de nombreuses années pour parcourir une telle distance. Cependant, le clan Ancien possédait des dieux anciens géants, des démons anciens géants et des diables anciens géants. Ces existences semi-vivantes pouvaient déchirer le ciel, réduisant ainsi considérablement le temps de voyage.
 
