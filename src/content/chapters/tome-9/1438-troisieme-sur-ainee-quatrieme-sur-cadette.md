@@ -30,7 +30,7 @@ Le silence retomba sur le palais, troublé seulement par le crépitement des bou
 
 La lumière bleue à l'intérieur du puits se dissipa progressivement.
 
-« Cher Cultivateur, pourriez-vous m'aider? »
+« Cher Daoïste, pourriez-vous m'aider? »
 
 À l'extérieur de la faille menant à la Tombe de l'Ordre Ancien, au cœur des brumes, le pas de Wang Lin ne faiblit pas d'un iota face à cette phrase ou à cette voix mélodieuse.
 
@@ -86,7 +86,7 @@ L'érudit ricana, recula pour s'éloigner dans une autre direction, et sa voix r
 
 Un éclair de froideur passa dans les yeux de l'érudit en robe blanche, qui s'éloigna dans un reniflement méprisant.
 
-Dès que Wang Lin pénétra dans la faille de la Tombe de l'Ordre Ancien, il ressentit une force de téléportation. Avant même de pouvoir discerner ses environs, il esquiva en diagonale sur plusieurs toises, ses mains formant des sceaux pour déployer un bouclier autour de lui.
+Dès que Wang Lin pénétra dans la faille de la Tombe de l'Ordre Ancien, il ressentit une force de téléportation. Avant même de pouvoir discerner ses environs, il esquiva en diagonale sur plusieurs dizaines de pieds, ses mains formant des sceaux pour déployer un bouclier autour de lui.
 
 C'était sa prudence. Après tout, c'était la Tombe de l'Ordre Ancien, et de nombreux cultivateurs y étaient entrés avant lui; il devait être vigilant.
 

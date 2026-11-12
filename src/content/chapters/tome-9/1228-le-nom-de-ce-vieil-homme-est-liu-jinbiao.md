@@ -20,7 +20,7 @@ Cette méthode brutale servait à garantir que les sectes de rang 8 continuent d
 
 La rumeur disait que la Secte Brise-Ciel et la Secte Fantôme s'étaient élevées de cette manière même.
 
-Il y avait au total cinq sectes dans la région de rang 8: la Secte Éternelle, la Secte Ying Feng, la Secte Hong Tu, la Secte Répondant aux Cieux et la Secte de l'Âme Silencieuse. La Secte Gui Yuan et la Secte Zi Dao appartenaient à la grande secte de rang 8, la Secte Éternelle.
+Il y avait au total cinq sectes dans la région de rang 8: la Secte Éternelle, la Secte Ying Feng, la Secte Hong Tu, la Secte Ying Tian et la Secte Ji Hun. La Secte Gui Yuan et la Secte Zi Dao appartenaient à la grande secte de rang 8, la Secte Éternelle.
 
 Ce festival sacré n'était pas une bataille chaotique et totale. Les sectes étaient divisées par régions, et les plus puissantes des régions de rang quatre à sept étaient sélectionnées. Bien sûr, elles pouvaient également défier des sectes de rang supérieur; ce fut le cas il y a 1 000 ans, lorsque la Secte Zi Dao défia une secte de rang 6. Bien qu'elles aient échoué, leur défaite fut glorieuse, car elle avait attiré l'attention de la Secte Éternelle de rang 8.
 
@@ -34,7 +34,7 @@ Une part de cette puissance servait d'étalage devant la secte de rang 9. Si le 
 
 Chaque secte de rang 8 commençait ses préparatifs très tôt pour cette compétition capitale. Les trois représentants choisis pour ce combat majeur étaient déjà désignés. Bien qu'ils ne soient pas ramenés à la secte principale, ils recevaient le même traitement que les disciples centraux, et des membres de la secte principale se déplaçaient personnellement pour les instruire.
 
-Depuis que la Secte Brise-Ciel avait quitté la région de rang 8, dix-sept compétitions avaient eu lieu, entre victoires et défaites dispersées parmi les sectes. Cependant, il y a 10 000 ans, avec l'ascension de la Secte de l'Âme Silencieuse, celle-ci avait remporté neuf victoires consécutives. Ce cycle marquait la 18e compétition depuis le départ de la Secte Brise-Ciel. Si la Secte de l'Âme Silencieuse l'emportait à nouveau, son passage au rang 9 ne serait qu'une question de temps.
+Depuis que la Secte Brise-Ciel avait quitté la région de rang 8, dix-sept compétitions avaient eu lieu, entre victoires et défaites dispersées parmi les sectes. Cependant, il y a 10 000 ans, avec l'ascension de la Secte Ji Hun, celle-ci avait remporté neuf victoires consécutives. Ce cycle marquait la 18e compétition depuis le départ de la Secte Brise-Ciel. Si la Secte Ji Hun l'emportait à nouveau, son passage au rang 9 ne serait qu'une question de temps.
 
 La compétition sacrée de la Mer Yun, qui se tenait tous les 1 000 ans, était un événement animé durant plusieurs mois. De nombreuses cités et marchés commerciaux s'installaient dans la région de rang 8. On y trouvait souvent des escrocs profitant de l'occasion pour s'enrichir.
 
@@ -44,7 +44,7 @@ Les sectes escroquées, soucieuses de leur face, ne le dénonçaient jamais ouve
 
 Ces sectes allaient de toute façon disparaître, alors comment pourraient-elles causer le moindre problème à l'escroc? Même si elles tentaient de prévenir quelqu'un, même si on les croyait, on finirait par s'en moquer; autant s'en tenir au silence.
 
-La Secte Tian Gang était une faible branche de rang 5, dont la secte principale était la Secte Répondant aux Cieux de rang 8. Sa situation ressemblait à celle de la Secte Gui Yuan: elle finissait toujours dernière. Si elle échouait encore, il lui serait difficile d'échapper à la dissolution.
+La Secte Tian Gang était une faible branche de rang 5, dont la secte principale était la Secte Ying Tian de rang 8. Sa situation ressemblait à celle de la Secte Gui Yuan: elle finissait toujours dernière. Si elle échouait encore, il lui serait difficile d'échapper à la dissolution.
 
 « La compétition aura lieu dans un mois et nous serons transférés dans la région de rang 8. Outre ma Secte Tian Gang, la secte principale possède trois autres branches ici. Ma secte finit toujours dernière. Cette fois... hélas. » Trois anciens étaient assis dans la salle de la Secte Tian Gang. À cet instant, ils fronçaient les sourcils, leurs visages empreints d'impuissance, de confusion et d'une pointe de rancœur.
 
@@ -62,11 +62,11 @@ Face à cette puissance, les expressions des trois anciens changèrent radicalem
 
 Simultanément, une voix arrogante émana du jade et résonna dans la salle.
 
-« Zhu Yunming, né sur le continent de la Mer Céleste. Tu as commencé ta culture à l'âge de sept ans en entrant dans la Secte Tian Gang. 200 ans pour atteindre le stade de la Formation du Noyau et plus de 600 ans pour atteindre le stade de l'Âme Naissante... Désormais, après des millénaires de culture, tu as atteint le début du stade du Scruteur du Nirvana et tu es le maître de la Secte Tian Gang. »
+« Zhu Yunming, né sur le continent Tian Hai. Tu as commencé ta culture à l'âge de sept ans en entrant dans la Secte Tian Gang. 200 ans pour atteindre le stade de la Formation du Noyau et plus de 600 ans pour atteindre le stade de l'Âme Naissante... Désormais, après des millénaires de culture, tu as atteint le début du stade du Scruteur du Nirvana et tu es le maître de la Secte Tian Gang. »
 
-« Luo Conggang, né sur le continent de la Mer Céleste. Ton père est Luo Haitao... Tu as utilisé une quantité massive de pilules pour augmenter ta culture par la force, t'arrêtant au début du stade du Scruteur du Nirvana. »
+« Luo Conggang, né sur le continent Tian Hai. Ton père est Luo Haitao... Tu as utilisé une quantité massive de pilules pour augmenter ta culture par la force, t'arrêtant au début du stade du Scruteur du Nirvana. »
 
-« Zhou Chen, tu n'es pas né sur le continent de la Mer Céleste, mais sur celui de Zhou Wu. Tu as rejoint la Secte Tian Gang à mi-parcours... et voilà que tu es bloqué au stade du Yang Corporel depuis 735 ans! »
+« Zhou Chen, tu n'es pas né sur le continent Tian Hai, mais sur celui de Zhou Wu. Tu as rejoint la Secte Tian Gang à mi-parcours... et voilà que tu es bloqué au stade du Yang Corporel depuis 735 ans! »
 
 « Ce vieil homme a-t-il prononcé un seul mensonge? »
 

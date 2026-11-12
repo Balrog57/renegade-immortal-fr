@@ -56,15 +56,15 @@ Le ciel était un cercle. Même en s'en échappant, d'innombrables cercles invis
 
 Le Daoïste Esprit Dispersé finit par calmer l'agitation de son cœur. Il se tourna vers Wang Lin et joignit les mains avec une sincérité profonde.
 
-« Je n'oublierai jamais l'aide que vous m'avez apportée, cher compagnon de culture. Mon Clan Céleste tout entier s'en souviendra pour des générations. Quel que soit votre souhait, rien de ce que mon Clan Céleste n'oserait refuser! » Après ses paroles, les quelques millions d'âmes sauvées fixèrent Wang Lin avec exaltation. Leurs yeux brillaient de gratitude et tous joignirent les mains en signe de respect.
+« Je n'oublierai jamais l'aide que vous m'avez apportée, Daoïste. Mon Clan Céleste tout entier s'en souviendra pour des générations. Quel que soit votre souhait, rien de ce que mon Clan Céleste n'oserait refuser! » Après ses paroles, les quelques millions d'âmes sauvées fixèrent Wang Lin avec exaltation. Leurs yeux brillaient de gratitude et tous joignirent les mains en signe de respect.
 
 « Mon Clan Céleste irait au feu et à l'eau, sans jamais désobéir! »
 
 Le Daoïste Esprit Dispersé agita la main, et des éclairs jaillirent de sa paume. Des dizaines de milliers de foudres spirituels volèrent vers Wang Lin.
 
-« Voici ce que je vous ai promis, cher compagnon! »
+« Voici ce que je vous ai promis, Daoïste! »
 
-Wang Lin garda un visage impassible tandis qu'il les recueillait d'un geste de la main. C'était son dû, bien que chaque éclair représentât la vie d'un cultivateur subissant une rétribution divine.
+Wang Lin garda un visage impassible tandis qu'il les recueillait d'un geste de la main. C'était son dû, bien que chaque éclair représentât la vie d'un cultivateur subissant la Tribulation Céleste.
 
 « Le tonnerre éternel du Clan Shan Lei a été affaibli à l'instant. Je vais attaquer le clan et dévorer ce tonnerre éternel. Que comptez-vous faire? » Le regard de Wang Lin se posa sur le Daoïste Esprit Dispersé.
 
@@ -88,7 +88,7 @@ Un éclat de froideur passa dans les yeux de Wang Lin tandis qu'il accélérait.
 
 Son essence de tonnerre était si puissante qu'elle attirait naturellement les éclairs environnants. De plus en plus de tonnerre s'accumulait!
 
-Un instant plus tard, la foudre entourant Wang Lin ressemblait à un lac de tonnerre, dégageant une puissance colossale. Même la rétribution divine n'était pas aussi redoutable!
+Un instant plus tard, la foudre entourant Wang Lin ressemblait à un lac de tonnerre, dégageant une puissance colossale. Même la Tribulation Céleste n'était pas aussi redoutable!
 
 À cet instant, Wang Lin dominait un tonnerre capable de faire trembler les cieux. S'il avait été vu, les spectateurs auraient été stupéfaits; même les cultivateurs du troisième stade en auraient eu le souffle coupé!
 

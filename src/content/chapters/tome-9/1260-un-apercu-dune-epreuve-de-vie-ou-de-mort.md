@@ -60,19 +60,19 @@ Cependant, elle n'aurait jamais pu imaginer l'immense onde de choc qui serait d�
 
 Bien que le battement d'ailes d'un papillon semble gracieux et léger, nul ne sait quelle tempête il peut engendrer!
 
-« Ce vieil homme admet sa défaite. Je n'ai jamais vu de sorts semblables à ceux du Confrère Lu de toute ma vie. Je crois que le Confrère possède une compréhension profonde du Dao. Ce vieil homme vous admire! » Le vieil homme aux cheveux blancs fit quelques pas en arrière, puis son expression redevint normale. Il regardait désormais Wang Lin comme un égal.
+« Ce vieil homme admet sa défaite. Je n'ai jamais vu de sorts semblables à ceux du Daoïste Lu de toute ma vie. Je crois que le Daoïste possède une compréhension profonde du Dao. Ce vieil homme vous admire! » Le vieil homme aux cheveux blancs fit quelques pas en arrière, puis son expression redevint normale. Il regardait désormais Wang Lin comme un égal.
 
-Le visage de Wang Lin était extrêmement pâle, mais il resta calme. Joignant les mains, il dit: « Le Confrère est trop aimable. »
+Le visage de Wang Lin était extrêmement pâle, mais il resta calme. Joignant les mains, il dit: « Le Daoïste est trop aimable. »
 
-À cet instant, un rire s'éleva des gradins. C'était le Maître de la Secte Éternelle qui, souriant, se leva. Il s'approcha de Wang Lin, à quelques dizaines de pieds, et reprit: « Pourquoi le Confrère Lu fait-il preuve d'une telle modestie? Tout le monde a été témoin de ce qui s'est produit aujourd'hui. Même ce vieil homme admire les sorts du Confrère Lu. »
+À cet instant, un rire s'éleva des gradins. C'était le Maître de la Secte Éternelle qui, souriant, se leva. Il s'approcha de Wang Lin, à quelques dizaines de pieds, et reprit: « Pourquoi le Daoïste Lu fait-il preuve d'une telle modestie? Tout le monde a été témoin de ce qui s'est produit aujourd'hui. Même ce vieil homme admire les sorts du Daoïste Lu. »
 
 Wang Lin sourit et joignit les mains, mais garda le silence.
 
-Le vieil homme aux cheveux blancs regarda le Maître de la Secte Éternelle et dit doucement: « Avec le Confrère Lu appartenant à la Secte Gui Yuan, il serait inapproprié qu'ils restent dans la région de rang 5. »
+Le vieil homme aux cheveux blancs regarda le Maître de la Secte Éternelle et dit doucement: « Avec le Daoïste Lu appartenant à la Secte Gui Yuan, il serait inapproprié qu'ils restent dans la région de rang 5. »
 
 En tant que Grand Ancien de la Secte Éternelle, il s'était consacré à la culture sans jamais se soucier des affaires mondaines. Le fait qu'il demande la promotion d'une secte démontrait sa volonté de se lier d'amitié avec Wang Lin et de compenser leur tentative de le tester et de lui donner une leçon.
 
-Le Maître de la Secte Éternelle sourit et hocha la tête. « L'Ancien Liu a raison. Le Confrère Lu vient de la Secte Gui Yuan, il serait donc déplacé qu'ils demeurent dans la région de rang 5. Confrère Lu, que diriez-vous de transférer la Secte Gui Yuan vers la région de rang 7? »
+Le Maître de la Secte Éternelle sourit et hocha la tête. « L'Ancien Liu a raison. Le Daoïste Lu vient de la Secte Gui Yuan, il serait donc déplacé qu'ils demeurent dans la région de rang 5. Daoïste Lu, que diriez-vous de transférer la Secte Gui Yuan vers la région de rang 7? »
 
 L'expression de Wang Lin resta neutre tandis qu'il joignait les mains en souriant. « Si vous faites cela, je vous en remercie tous les deux. »
 
@@ -80,15 +80,15 @@ Le Maître de la Secte Éternelle agita ses manches et sourit chaleureusement. �
 
 « Je peux participer à la compétition de rang 8, mais je suis gravement blessé et j'ai besoin de vous demander un objet pour m'aider à récupérer. Si vous pouvez me l'accorder, alors je donnerai naturellement tout ce que j'ai lors de la compétition! » Wang Lin, impassible, sourit en regardant le Maître de la Secte Éternelle.
 
-En entendant les paroles de Wang Lin, même le Grand Ancien fut intrigué et demanda: « Oh? Que désire le Confrère Lu? »
+En entendant les paroles de Wang Lin, même le Grand Ancien fut intrigué et demanda: « Oh? Que désire le Daoïste Lu? »
 
-« Le Confrère peut poser la question, il n'y a aucun mal. Tant que cela est en mon pouvoir, oubliez la compétition de rang 8; même s'il n'y avait pas de compétition, je donnerais ce qu'il faut au Confrère Lu pour l'aider à guérir », répondit le Maître de la Secte Éternelle avec un sourire.
+« Le Daoïste peut poser la question, il n'y a aucun mal. Tant que cela est en mon pouvoir, oubliez la compétition de rang 8; même s'il n'y avait pas de compétition, je donnerais ce qu'il faut au Daoïste Lu pour l'aider à guérir », répondit le Maître de la Secte Éternelle avec un sourire.
 
 Les yeux de Wang Lin brillèrent et ses lèvres bougèrent pour envoyer un message par Sens Divin aux deux hommes.
 
 Après avoir entendu le message, les expressions des deux hommes changèrent. Ils se regardèrent et commencèrent à réfléchir.
 
-« Confrère Lu, ce n'est pas ici que nous devrions discuter. Maintenant que la compétition est terminée, que diriez-vous d'aller au siège de la secte pour parler? » Le Maître semblait inquiet de quelque chose en joignant les mains.
+« Daoïste Lu, ce n'est pas ici que nous devrions discuter. Maintenant que la compétition est terminée, que diriez-vous d'aller au siège de la secte pour parler? » Le Maître semblait inquiet de quelque chose en joignant les mains.
 
 Wang Lin s'inclina avec un sourire. « Puisque le Maître le demande, je suivrai naturellement votre suggestion. »
 

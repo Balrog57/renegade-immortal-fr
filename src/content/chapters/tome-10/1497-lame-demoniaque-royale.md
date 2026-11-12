@@ -120,6 +120,6 @@ Les yeux de Wang Lin brillèrent, mais il ne prêta aucune attention au démon. 
 
 « Ainsi, c'est pour cela que vous m'avez empêché d'accomplir mon karma. »
 
-Maître Lu Fu réfléchit et dit: « En effet. Compagnon Cultivateur a capturé ce démon, mais ce vieil homme doit encore se préparer au combat, je ne vous raccompagnerai donc pas! »
+Maître Lu Fu réfléchit et dit: « En effet. Le Daoïste a capturé ce démon, mais ce vieil homme doit encore se préparer au combat, je ne vous raccompagnerai donc pas! »
 
 Bien que Wang Lin possède deux cultivateurs de la troisième étape comme esclaves, Maître Lu Fu restait lui-même un cultivateur de la troisième étape. Il avait sa propre fierté et, malgré son choc, il était incapable de s'abaisser ainsi!

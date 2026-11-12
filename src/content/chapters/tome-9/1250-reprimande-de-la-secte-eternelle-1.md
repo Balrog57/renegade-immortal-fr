@@ -1,24 +1,24 @@
 ---
 n: 1250
-title: Réprimande de la Secte Éternelle (1)
+title: Réprimande de la Secte Wu Ji (1)
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1250 - Rebuking the Everlasting Secte (1)
 slug: reprimande-de-la-secte-eternelle-1
 ---
-Les paroles de Mu Bingmei étaient douces, comme si elle se remémorait le passé. Une pointe de mélancolie et une humeur inexplicable s'insinuèrent lentement dans l'esprit de tous les membres de la Secte Éternelle.
+Les paroles de Mu Bingmei étaient douces, comme si elle se remémorait le passé. Une pointe de mélancolie et une humeur inexplicable s'insinuèrent lentement dans l'esprit de tous les membres de la Secte Wu Ji.
 
 La femme nommée Wang Shanshan cligna des yeux et sourit. « Petite sœur veut vraiment rencontrer quelqu'un que Grande Sœur Mu admire à ce point. »
 
 Mu Bingmei secoua la tête et dit doucement: « J'ai bien peur qu'il n'en soit rien. Après son départ, j'ignore où il est allé. Depuis notre séparation, il s'est éloigné jusqu'aux confins du ciel. Les chances qu'il vienne dans la Mer Yun sont minimes. »
 
-L'homme d'âge moyen de la Secte Éternelle était manifestement un haut dignitaire, sans quoi il ne siégerait pas aux côtés du Maître de la Secte. Après l'avoir entendue, il déclara calmement: « En écoutant la cultivatrice Mu, ma curiosité est également piquée. Cet homme est-il vraiment aussi talentueux qu'elle le prétend? Je me demande quel est son nom. J'espère que la cultivatrice Mu pourra me le révéler afin que, si l'occasion se présente un jour, je ne la laisse pas passer. »
+L'homme d'âge moyen de la Secte Wu Ji était manifestement un haut dignitaire, sans quoi il ne siégerait pas aux côtés du Maître de la Secte. Après l'avoir entendue, il déclara calmement: « En écoutant la Daoïste Mu, ma curiosité est également piquée. Cet homme est-il vraiment aussi talentueux qu'elle le prétend? Je me demande quel est son nom. J'espère que la Daoïste Mu pourra me le révéler afin que, si l'occasion se présente un jour, je ne la laisse pas passer. »
 
 Cette remarque était quelque peu impolie. Mu Bingmei fronça les sourcils et, lançant un regard froid à l'homme d'âge moyen, répondit avec calme: « Il n'est pas nécessaire de connaître son nom. Le rencontrer pourrait bien ne pas être une chance pour vous! »
 
-L'homme d'âge moyen rit, nullement offensé, et secoua la tête. « Un simple cultivateur du début du stade Purificateur du Nirvana... J'espérais seulement connaître son nom afin que, si je le croise, je puisse lui offrir une opportunité grandiose. Cependant, puisque la cultivatrice Mu refuse de le dire, passons! »
+L'homme d'âge moyen rit, nullement offensé, et secoua la tête. « Un simple cultivateur du début du stade Purificateur du Nirvana... J'espérais seulement connaître son nom afin que, si je le croise, je puisse lui offrir une opportunité grandiose. Cependant, puisque la Daoïste Mu refuse de le dire, passons! »
 
-Le Maître de la Secte Éternelle, le vieil homme vêtu de blanc, paraissait serein, mais il était intérieurement mécontent. Il jeta un regard à l'homme d'âge moyen, mais finit par garder le silence.
+Le Maître de la Secte Wu Ji, le vieil homme vêtu de blanc, paraissait serein, mais il était intérieurement mécontent. Il jeta un regard à l'homme d'âge moyen, mais finit par garder le silence.
 
 Wang Shanshan, faisant preuve de finesse, sourit pour détourner l'attention. « Maître de la Secte, j'ai entendu dire que Grande Sœur Li est également présente. Je me demande où elle se trouve. »
 
@@ -26,7 +26,7 @@ Puis, Wang Shanshan expliqua à Mu Bingmei: « Grande Sœur Li est l'un des gén
 
 Même l'expression de Mu Bingmei changea légèrement en entendant cela, et elle hocha la tête.
 
-« La cultivatrice Li entretient un lien avec la secte affiliée de notre Secte Éternelle, la Secte Gui Yuan; c'est pourquoi elle n'est pas ici, mais se trouve auprès d'eux », expliqua le vieil homme, tout aussi perplexe.
+« La Daoïste Li entretient un lien avec la secte affiliée de notre Secte Wu Ji, la Secte Gui Yuan; c'est pourquoi elle n'est pas ici, mais se trouve auprès d'eux », expliqua le vieil homme, tout aussi perplexe.
 
 « La Secte Gui Yuan? Quel est le rang de cette secte affiliée? » Wang Shanshan était stupéfaite. Elle n'avait jamais entendu parler de cette secte auparavant.
 
@@ -36,21 +36,21 @@ L'expression de Feng Hai devint étrange alors qu'il se levait pour saluer Wang 
 
 À vrai dire, il n'était pas étonnant qu'ils soient perplexes. Li Qianmei était célèbre, et il était inattendu qu'elle soit proche d'une secte de rang 5. Et ce n'étaient pas de simples connaissances, puisqu'elle était prête à tuer un cultivateur d'une secte de rang 7 pour eux.
 
-Après avoir lâché une toux sèche, Feng Hai esquissa un sourire amer. « Maître de la Secte, ce vieil homme ignore lui aussi les détails précis. Dès l'instant où la cultivatrice Li est arrivée, elle a directement demandé à trouver la Secte Gui Yuan de rang 5. À ce moment-là, Lu Yingjie de la Secte Xian Yin et Zhao Long, de la Secte Recherchant la Montagne, avaient des différends privés avec la Secte Gui Yuan. La cultivatrice Li a alors attaqué, détruisant le corps du cultivateur Zhao et manquant de tuer Lu Yingjie. »
+Après avoir lâché une toux sèche, Feng Hai esquissa un sourire amer. « Maître de la Secte, ce vieil homme ignore lui aussi les détails précis. Dès l'instant où la Daoïste Li est arrivée, elle a directement demandé à trouver la Secte Gui Yuan de rang 5. À ce moment-là, Lu Yingjie de la Secte Xian Yin et Zhao Long, de la Secte Xun Luan, avaient des différends privés avec la Secte Gui Yuan. La Daoïste Li a alors attaqué, détruisant le corps du cultivateur Zhao et manquant de tuer Lu Yingjie. »
 
 « Tout cela semble lié à une personne nommée "Lu" au sein de la Secte Gui Yuan! »
 
-Une fois ses paroles terminées, la curiosité s'empara de tous les membres de la Secte Éternelle. Wang Shanshan sourit: « Grande Sœur Li est une personne calme qui se met rarement en colère. Si elle a attaqué, c'est qu'il devait y avoir une raison. Ancien Feng, qui est cet homme nommé Lu? »
+Une fois ses paroles terminées, la curiosité s'empara de tous les membres de la Secte Wu Ji. Wang Shanshan sourit: « Grande Sœur Li est une personne calme qui se met rarement en colère. Si elle a attaqué, c'est qu'il devait y avoir une raison. Ancien Feng, qui est cet homme nommé Lu? »
 
 Feng Hai hocha la tête et répondit: « Cet individu nommé Lu est effectivement mystérieux. Ce vieil homme a mené une enquête secrète et a découvert que cette personne appartient à la génération des aînés de la Secte Gui Yuan et qu'il est un parent de Lu Yanfei. En vérifiant les registres, j'ai effectivement trouvé quelqu'un nommé Lu Zihao au sein de la Secte Gui Yuan! »
 
-« Il était obsédé par l'alchimie et est parti il y a de nombreuses années en quête d'herbes médicinales. On n'a plus eu de nouvelles de lui depuis lors. J'ignore comment il a rencontré la cultivatrice Li, mais elle semble l'admirer grandement... »
+« Il était obsédé par l'alchimie et est parti il y a de nombreuses années en quête d'herbes médicinales. On n'a plus eu de nouvelles de lui depuis lors. J'ignore comment il a rencontré la Daoïste Li, mais elle semble l'admirer grandement... »
 
-« Lu Yuncong semble également très proche de cet homme. Il s'est avancé pour défendre la Secte Gui Yuan, prêt à offenser la Secte Xian Yin et la Secte Recherchant la Montagne. À l'écouter, la compréhension du Dao de ce Lu Zihao serait bien supérieure à la sienne, et Lu Yuncong l'admire profondément. Il semblerait même qu'il ait déjà éclairé Lu Yuncong par le passé. »
+« Lu Yuncong semble également très proche de cet homme. Il s'est avancé pour défendre la Secte Gui Yuan, prêt à offenser la Secte Xian Yin et la Secte Xun Luan. À l'écouter, la compréhension du Dao de ce Lu Zihao serait bien supérieure à la sienne, et Lu Yuncong l'admire profondément. Il semblerait même qu'il ait déjà éclairé Lu Yuncong par le passé. »
 
 « Lu Yuncong a affirmé que si Lu Zihao participait à la compétition, oubliez la première place parmi les sectes de rang 5; il pourrait être le numéro un parmi les sectes de rang 6 à lui seul. Il a également déclaré que Lu Zihao pourrait tuer Lu Yingjie aussi facilement qu'on écrase une fourmi! »
 
-« La raison pour laquelle la cultivatrice Li n'a pas achevé Lu Yingjie est qu'il ne croyait pas ces paroles et voulait affronter Lu Zihao. Ainsi, la cultivatrice Li lui a laissé cette chance. »
+« La raison pour laquelle la Daoïste Li n'a pas achevé Lu Yingjie est qu'il ne croyait pas ces paroles et voulait affronter Lu Zihao. Ainsi, la Daoïste Li lui a laissé cette chance. »
 
 Après son récit, un silence immédiat s'installa. Les personnes présentes étaient toutes de très haut rang au sein de la secte. Ils appréciaient Lu Yuncong et souhaitaient le former. Cependant, en entendant par Feng Hai à quel point Lu Yuncong admirait Lu Zihao, leur attention se détourna vers ce mystérieux Lu Zihao.
 
@@ -58,7 +58,7 @@ Pendant ce temps, lors de la compétition, Lu Yuncong n'avait fait que six pas e
 
 Cette scène imposa immédiatement le sérieux à tous les spectateurs, qui commencèrent à s'interroger. Il était évident que les pas de Lu Yuncong étaient intégrés à son domaine et semblaient fusionner avec le monde lui-même.
 
-Le Maître de la secte qui s'opposait à Lu Yuncong sourit amèrement et joignit les mains. « Ce vieil homme reconnaît sa défaite. Tu es véritablement digne d'être l'élite de notre Secte Éternelle. Je me soumets de bon cœur. » Sur ce, il salua la tribune et quitta rapidement les lieux.
+Le Maître de la secte qui s'opposait à Lu Yuncong sourit amèrement et joignit les mains. « Ce vieil homme reconnaît sa défaite. Tu es véritablement digne d'être l'élite de notre Secte Wu Ji. Je me soumets de bon cœur. » Sur ce, il salua la tribune et quitta rapidement les lieux.
 
 La compétition de rang 5 touchait à sa fin et, en raison de la présence de Li Qianmei, la Secte Gui Yuan n'était pas encore montée sur scène. Désormais, elle était la seule à attendre son tour.
 
@@ -70,7 +70,7 @@ Le visage de Lu Yanfei était pâle tandis qu'elle se mordait la lèvre inférie
 
 Une fois debout, elle regarda les membres de sa secte, comprenant ses trois Senior Frère et sa disciple. Après un soupir, elle glissa comme un papillon vers la plateforme.
 
-« Maître... » Les yeux de Xu Yun étaient embués de larmes en voyant Lu Yanfei s'éloigner. Elle ignorait quel serait le destin de la Secte Gui Yuan après cela. Peut-être seraient-ils réellement dissous...
+« Maître... » Les yeux de Sun Yun étaient embués de larmes en voyant Lu Yanfei s'éloigner. Elle ignorait quel serait le destin de la Secte Gui Yuan après cela. Peut-être seraient-ils réellement dissous...
 
 À cet instant, la foule autour de l'arène se tut et fixa la scène. Tous avaient entendu ce qui s'était passé et attendaient de voir si cette personne mystérieuse de la Secte Gui Yuan ferait son apparition.
 
@@ -84,9 +84,9 @@ Lu Yuncong regarda Lu Yanfei avec un regard complexe.
 
 L'environnement était plongé dans un silence absolu. Cette compétition de la Secte Gui Yuan n'aurait normalement attiré aucun intérêt, mais grâce à cette personne mystérieuse, elle captivait désormais chaque cultivateur. Même les sectes de rang 6 et 7 avaient les yeux rivés sur ce combat.
 
-« Cher compagnon cultivateur, je sollicite votre enseignement. » Sur l'arène, Lu Yanfei affichait un regard ferme en s'inclinant légèrement vers Lu Yuncong.
+« Daoïste Lu, je sollicite votre enseignement. » Sur l'arène, Lu Yanfei affichait un regard ferme en s'inclinant légèrement vers Lu Yuncong.
 
-Lu Yuncong réfléchit un instant avant de se tourner vers le Maître et les Anciens de la Secte Éternelle. Il joignit les mains et sa voix, bien que claire, fit vibrer l'air, trahissant son niveau de culture de Purificateur du Nirvana.
+Lu Yuncong réfléchit un instant avant de se tourner vers le Maître et les Anciens de la Secte Wu Ji. Il joignit les mains et sa voix, bien que claire, fit vibrer l'air, trahissant son niveau de culture de Purificateur du Nirvana.
 
 « Seniors de la secte principale, ce disciple ne souhaite pas affronter la Secte Gui Yuan. Cette situation est injuste! »
 
@@ -102,6 +102,6 @@ Le visage de Lu Yuncong pâlit légèrement. Avec son niveau de culture, il n'é
 
 « Ce Lu Yuncong est vraiment digne des éloges de Maître; c'est un homme de caractère », pensa Wang Shanshan, observant avec intérêt la silhouette droite et extraordinaire du jeune homme.
 
-« Lu Yuncong et Lu Yanfei, avancez tous deux! » Celui qui venait de parler n'était ni Feng Hai, ni aucun des Anciens de la Secte Éternelle, mais le vieil homme en blanc, le Maître de la Secte Éternelle!
+« Lu Yuncong et Lu Yanfei, avancez tous deux! » Celui qui venait de parler n'était ni Feng Hai, ni aucun des Anciens de la Secte Wu Ji, mais le vieil homme en blanc, le Maître de la Secte Wu Ji!
 
 Désormais, il portait un immense intérêt à ce mystérieux Lu Zihao!

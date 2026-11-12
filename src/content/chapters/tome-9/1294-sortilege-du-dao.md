@@ -40,7 +40,7 @@ Cette personne était d'une rapidité inouïe. D'un seul pas, elle se téléport
 
 Une fois le deuxième pas posé, elle apparut aux côtés des trois membres de la Secte Démon et effectua un troisième pas. Sa vitesse était telle que nul ne pouvait la suivre alors qu'elle pénétrait dans la faille spatiale pour surgir devant Wang Lin.
 
-« Cher cultivateur, ne soyez pas si pressé. Laisse ce vieil homme voir si tu es digne de pénétrer dans les profondeurs de cette faille! »
+« Daoïste, ne soyez pas si pressé. Laisse ce vieil homme voir si tu es digne de pénétrer dans les profondeurs de cette faille! »
 
 Alors que l'individu approchait, une voix douce résonna, faisant vibrer l'intérieur comme l'extérieur de la faille spatiale. Tandis qu'il avançait, sa main droite s'abattit sur Wang Lin, qui se tenait au sommet de la tête du Dragon des Neuf Abîmes!
 
@@ -88,7 +88,7 @@ L'individu trembla et cracha du sang. Il battit en retraite précipitamment pour
 
 Une lueur glaciale brilla dans les yeux de Wang Lin alors qu'il poursuivait l'homme hors de la faille. Sa main gauche était pressée contre ses sourcils, comme s'il s'apprêtait à en arracher quelque chose!
 
-En voyant ce geste, l'expression de l'homme changea encore et il cria avec précipitation: « Cher cultivateur, arrête!! Cher cultivateur, arrête!! Ce vieil homme a été imprudent! »
+En voyant ce geste, l'expression de l'homme changea encore et il cria avec précipitation: « Daoïste, arrête!! Daoïste, arrête!! Ce vieil homme a été imprudent! »
 
 Il s'arrêta devant les trois membres de la Secte Démon et retrouva sa forme de vieil homme aux cheveux blancs. Il joignit ensuite les mains en signe de respect envers Wang Lin.
 
@@ -96,11 +96,11 @@ Wang Lin sortit de la faille, fixa le vieil homme, puis baissa sa main gauche.
 
 Derrière lui, les trois membres de la Secte Démon s'inclinèrent: « Salutations, Ancien. »
 
-Le vieil homme hocha légèrement la tête, puis regarda Wang Lin avec un choc immense dans les yeux. Il joignit ses mains et dit: « Ce cultivateur est extrêmement puissant; ce vieil homme n'est pas de taille, surtout face à ton épée de sang. Ce trésor... » L'Ancien secoua la tête avec un sourire amer. L'effroi que ce trésor lui avait inspiré était indescriptible.
+Le vieil homme hocha légèrement la tête, puis regarda Wang Lin avec un choc immense dans les yeux. Il joignit ses mains et dit: « Daoïste, ta culture est extrêmement puissante; ce vieil homme n'est pas de taille, surtout face à ton épée de sang. Ce trésor... » L'Ancien secoua la tête avec un sourire amer. L'effroi que ce trésor lui avait inspiré était indescriptible.
 
 Wang Lin le fixa froidement. Sans dire un mot, il détourna son regard et s'élança à nouveau dans la faille. À l'intérieur, le Dragon des Neuf Abîmes, terrifié, n'osait pas s'enfuir.
 
-Le vieil homme observa le dos de Wang Lin et dit: « Cher cultivateur, c'est ce vieil homme qui a été impoli. Je crois que tu es venu sauver Li Qianmei. C'est moi qui l'avais repérée pour qu'elle rejoigne la Secte Démon, et c'est aussi moi qui l'ai autorisée à partir. » Il agita alors sa main droite et un jade vola vers Wang Lin.
+Le vieil homme observa le dos de Wang Lin et dit: « Daoïste, c'est ce vieil homme qui a été impoli. Je crois que tu es venu sauver Li Qianmei. C'est moi qui l'avais repérée pour qu'elle rejoigne la Secte Démon, et c'est aussi moi qui l'ai autorisée à partir. » Il agita alors sa main droite et un jade vola vers Wang Lin.
 
 « Cette faille est immense. Si tu cherches au hasard, il sera très difficile de trouver Li Qianmei. Ce jade contient une carte où j'ai marqué sa position. Avec ta vitesse, tu pourras peut-être la rattraper. »
 

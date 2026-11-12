@@ -1,6 +1,6 @@
 ---
 n: 1349
-title: "Bataille au clan du Tonnerre Éparpillé! (3)"
+title: "Bataille au Clan Shan Lei! (3)"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: "Chapter 1349 - Battle at the Scatter Thunder Clan! (3)"
@@ -12,13 +12,13 @@ Bien que les dragons de tonnerre restants ne se soient pas effondrés, la pressi
 
 À ce moment précis, l'âme originelle du dragon de tonnerre antique de Wang Lin se précipita dans le lac de tonnerre. Il se retourna soudainement pour faire face à l'Ancien en chef et reprit rapidement sa forme humaine.
 
-« Moi, Wang Lin, suis venu réclamer le tonnerre éternel et détruire votre clan du Tonnerre Dispersé! » Wang Lin répéta lentement ce qu'il avait déjà déclaré, tandis que son âme originelle se retirait dans le lac de tonnerre.
+« Moi, Wang Lin, suis venu réclamer le tonnerre éternel et détruire votre Clan Shan Lei! » Wang Lin répéta lentement ce qu'il avait déjà déclaré, tandis que son âme originelle se retirait dans le lac de tonnerre.
 
 Les yeux de l'Ancien en chef s'illuminèrent et il ricana en s'avançant dans le lac de tonnerre. Le lac, qui bouillonnait et grondait jusque-là, devint soudainement silencieux dès que l'Ancien y pénétra, comme si une force invisible l'avait écrasé.
 
 Le sens divin de l'Ancien se déploya dans le lac de tonnerre, et les éclairs au sein de son sens divin s'apaisèrent, l'entourant comme s'ils obéissaient à leur maître.
 
-« Est-ce là ton allié? Ce vieil homme veut voir comment cet allié t'aidera à détruire mon clan du Tonnerre Dispersé! » La voix puissante de l'Ancien résonna dans toutes les directions.
+« Est-ce là ton allié? Ce vieil homme veut voir comment cet allié t'aidera à détruire mon Clan Shan Lei! » La voix puissante de l'Ancien résonna dans toutes les directions.
 
 Cependant, alors qu'il venait de parler, une voix froide s'éleva lentement du lointain.
 
@@ -42,9 +42,9 @@ Au début, le poing ne mesurait que cent pieds de large, mais à mesure que Wang
 
 Ce poing de cent mille pieds était entièrement constitué de tonnerre. C'était une vision terrifiante qui aurait plongé n'importe quel spectateur dans l'effroi!
 
-Le grondement se rapprocha soudainement, se propageant dans toutes les directions. Même les membres du clan du Tonnerre Dispersé sur les seize planètes pouvaient entendre ce fracas tonitruant qui donnait l'impression que le monde s'effondrait!
+Le grondement se rapprocha soudainement, se propageant dans toutes les directions. Même les membres du Clan Shan Lei sur les seize planètes pouvaient entendre ce fracas tonitruant qui donnait l'impression que le monde s'effondrait!
 
-L'expression de l'Ancien en chef devint très grave. Bien qu'il fût conscient que l'autre devait être confiant pour l'attirer ici, il était l'être le plus puissant sous le troisième niveau et se trouvait sur le territoire du clan du Tonnerre Dispersé; il ne comptait donc pas se laisser impressionner!
+L'expression de l'Ancien en chef devint très grave. Bien qu'il fût conscient que l'autre devait être confiant pour l'attirer ici, il était l'être le plus puissant sous le troisième niveau et se trouvait sur le territoire du Clan Shan Lei; il ne comptait donc pas se laisser impressionner!
 
 Pourtant, à l'instant où il vit ce poing géant de tonnerre, son esprit vacilla!
 
@@ -52,7 +52,7 @@ Pourtant, à l'instant où il vit ce poing géant de tonnerre, son esprit vacill
 
 Le fracas du tonnerre faisait trembler le ciel, et Wang Lin marchait derrière lui. Il continuait de frapper, et le poing de foudre grandit encore pour atteindre deux cent mille pieds!
 
-Il semblait désormais remplacer la voûte céleste elle-même alors qu'il fonçait sur l'Ancien en chef du clan du Tonnerre Dispersé!
+Il semblait désormais remplacer la voûte céleste elle-même alors qu'il fonçait sur l'Ancien en chef du Clan Shan Lei!
 
 « Vieux bâtard, oses-tu m'affronter?! » Wang Lin se rapprocha et lança son ultime coup de poing! Avec ce coup, il activa toute la puissance de Dieu Antique résidant dans son corps. Les étoiles entre ses sourcils tournèrent frénétiquement, libérant des quantités massives d'énergie divine antique!
 
@@ -62,7 +62,7 @@ L'Ancien en chef recula de quelques pas et agita la main droite et la claqua sur
 
 « Quel puissant coup de poing de tonnerre. Ce vieil homme va te combattre! » Au moment où sa main toucha la marque du clan entre ses sourcils, celle-ci brilla intensément et un trésor s'en échappa!
 
-Ce trésor était un ancien miroir vert arborant une marque de tonnerre au dos. Cette marque était identique au tonnerre éternel du clan du Tonnerre Dispersé!
+Ce trésor était un ancien miroir vert arborant une marque de tonnerre au dos. Cette marque était identique au tonnerre éternel du Clan Shan Lei!
 
 « Miroir de Massacre de la Foudre, brise tout pour moi! » rugit l'Ancien en lançant le miroir. Un grondement sourd émana de l'objet, qui grandit de multiples fois!
 
@@ -70,7 +70,7 @@ En un clin d'œil, il se transforma en un miroir de cent mille pieds devant l'An
 
 Lorsque le poing de tonnerre de Wang Lin arriva, un poing de foudre de taille identique apparut à l'intérieur du miroir!
 
-Ce Miroir de Massacre de la Foudre était l'un des trésors principaux du clan du Tonnerre Dispersé. Tout sortilège inférieur au troisième niveau y était immédiatement copié, et sa puissance n'était pas moindre que l'original. Il pouvait contrer n'importe quel sort!
+Ce Miroir de Massacre de la Foudre était l'un des trésors principaux du Clan Shan Lei. Tout sortilège inférieur au troisième niveau y était immédiatement copié, et sa puissance n'était pas moindre que l'original. Il pouvait contrer n'importe quel sort!
 
 Ce trésor était déjà capable de défier les cieux; comparé à la Flèche du Pseudo-Vide du Nirvana de rang 9 de l'Estimé Xuan Bao, ce miroir était un trésor du Pseudo-Vide du Nirvana de rang 2. Il surpassait de loin un simple trésor du Vide et se rapprochait infiniment d'un trésor du Nirvana!
 
@@ -86,7 +86,7 @@ Le fracas était apocalyptique et une puissante onde de choc se propagea folleme
 
 L'expression de Wang Lin était féroce alors qu'il se plaçait derrière son propre coup pour continuer ses assauts. Ses coups faisaient gronder le poing de tonnerre encore plus fort, mais la copie du poing s'intensifiait également!
 
-Le bruit des impacts se répandit dans tout le clan du Tonnerre Dispersé et résonna même au-delà de ses frontières!
+Le bruit des impacts se répandit dans tout le Clan Shan Lei et résonna même au-delà de ses frontières!
 
 « Brise-toi! Brise-toi! Brise-toi! » rugit Wang Lin. Il fit un pas en avant et la puissance de Dieu Antique en lui se condensa avec une intensité folle. Ses étoiles divines antiques tournaient si vite qu'elles devenaient invisibles alors qu'il poursuivait ses coups de poing.
 
@@ -104,7 +104,7 @@ La lumière sanguine fulgura avant de revenir aux côtés de Wang Lin. Ce dernie
 
 Il plongea soudainement sur lui!
 
-L'Ancien en chef du clan du Tonnerre Dispersé poussa un rugissement de rage et cracha une bouffée d'énergie qui percuta le coup, provoquant un nouveau fracas tonitruant!
+L'Ancien en chef du Clan Shan Lei poussa un rugissement de rage et cracha une bouffée d'énergie qui percuta le coup, provoquant un nouveau fracas tonitruant!
 
 Tandis que ce son assourdissant résonnait, Wang Lin trembla et fut repoussé de plusieurs pas, tandis que son poing de tonnerre se dissipait!
 

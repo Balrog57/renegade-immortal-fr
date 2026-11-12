@@ -1,6 +1,6 @@
 ---
 n: 1434
-title: "L'Estimé Clan Feng Tian Lang"
+title: "Clan Feng Tian Lang"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1434 - Esteemed Heavenly Wolf
@@ -48,7 +48,7 @@ Une fois l'Ancienne Feuille disparue de la faille au-dessus de la planète aband
 
 C'était un homme massif d'une trentaine de pieds de haut. Le torse nu, il affichait une expression féroce et un regard impitoyable. Entre ses sourcils se trouvait une marque: celle d'un loup vert sauvage!
 
-Sous les ordres du Conseil Souverain, il appartenait à l'un des quatre clans redoutables du Système Stellaire Antique: l'Estimé Clan Feng Tian Lang!
+Sous les ordres du Conseil Souverain, il appartenait à l'un des quatre clans redoutables du Système Stellaire Antique: le Clan Feng Tian Lang!
 
 Il n'était pas seul; une jeune fille était assise sur son épaule. Vêtue de rouge, elle possédait une beauté charmante. Son visage délicat rappelait la douceur d'une pêche et ses sourcils étaient d'une élégance rare. Un simple geste de sa main suffisait à envoûter les esprits.
 
@@ -72,7 +72,7 @@ Cependant, au moment où le trou noir s'ouvrait, l'Ancienne Feuille vint s'y fra
 
 « Scelle! » Le commandement indifférent de Wang Lin résonna, tandis que ses yeux s'illuminaient. Il entrevit brièvement la jeune fille sur l'épaule du colosse, et le marquage entre ses sourcils le glaça! Wang Lin disparut alors en silence.
 
-Des rugissements furieux et des grondements de tonnerre s'échappèrent du trou noir, mais l'Ancienne Feuille resta immobile! Un instant plus tard, un autre trou noir apparut non loin de la feuille, et le guerrier du clan du Loup Céleste en sortit. Il se retourna d'un air sombre pour contempler l'objet.
+Des rugissements furieux et des grondements de tonnerre s'échappèrent du trou noir, mais l'Ancienne Feuille resta immobile! Un instant plus tard, un autre trou noir apparut non loin de la feuille, et le guerrier du Clan Feng Tian Lang en sortit. Il se retourna d'un air sombre pour contempler l'objet.
 
 Sous son regard, la feuille se mua en lumière cristalline et se dissipa.
 
@@ -92,7 +92,7 @@ L'homme resta silencieux, fixant froidement la demoiselle.
 
 L'homme médita un instant en silence. Sans mot dire, il fit un pas en avant.
 
-« Nord-ouest, 2 798 461 kilomètres! Tiens, c'est l'une des branches de votre clan du Loup Céleste. »
+« Nord-ouest, 2 798 461 kilomètres! Tiens, c'est l'une des branches de votre Clan Feng Tian Lang. »
 
 L'homme massif laissa échapper un grognement et déchira l'espace devant lui pour disparaître.
 
@@ -104,7 +104,7 @@ D'un coup d'œil, on pouvait voir la projection illusoire d'une tête de loup sc
 
 Il poussa un grognement et chargea les six planètes. Soudain, son corps expulsa une brume de sang qui finit par l'envelopper entièrement. C'était comme si sa chair, son âme d'origine et son esprit s'étaient tous fondus dans cette brume rouge dévorante!
 
-Le brouillard sanguin s'étendit instantanément sur plus de 100 000 pieds, rugissant alors qu'il envahissait la branche du clan du Loup Céleste!
+Le brouillard sanguin s'étendit instantanément sur plus de 100 000 pieds, rugissant alors qu'il envahissait la branche du Clan Feng Tian Lang!
 
 La formation scintilla violemment, mais fut incapable d'endiguer l'invasion. La brume de Wang Lin s'engouffra dans l'une des planètes de culture.
 
@@ -114,8 +114,8 @@ Tous les cultivateurs ayant atteint un certain niveau furent pris au piège par 
 
 La brume rouge se propagea rapidement vers les autres planètes. Normalement, ces cris déchirants ne pouvaient pas se propager dans l'espace, mais là, tant de voix s'unirent qu'elles résonnèrent à travers les étoiles!
 
-Ces six planètes étaient une nouvelle branche du clan du Loup Céleste, peuplée uniquement de cultivateurs et dépourvue de mortels. Sous le passage de la brume rouge, la majeure partie d'entre eux fut exterminée!
+Ces six planètes étaient une nouvelle branche du Clan Feng Tian Lang, peuplée uniquement de cultivateurs et dépourvue de mortels. Sous le passage de la brume rouge, la majeure partie d'entre eux fut exterminée!
 
-Un trou noir apparut parmi les astres, et l'homme massif du clan du Loup Céleste en sortit. Dès son apparition, les hurlements plaintifs lui percutèrent les tympans. Son corps trembla et une intention meurtrière monstrueuse s'alluma dans ses yeux.
+Un trou noir apparut parmi les astres, et l'homme massif du Clan Feng Tian Lang en sortit. Dès son apparition, les hurlements plaintifs lui percutèrent les tympans. Son corps trembla et une intention meurtrière monstrueuse s'alluma dans ses yeux.
 
 Dans un rugissement, il chargea, donnant l'impression de faire effondrer le ciel! Derrière lui, la projection d'un loup vert gigantesque se manifesta!

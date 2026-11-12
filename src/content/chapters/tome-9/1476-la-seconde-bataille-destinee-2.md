@@ -14,7 +14,7 @@ L'ombre de Tu Si empreinte de sagesse trembla également, son bras gauche se fra
 
 La collision des deux ombres de Dieux Antiques créa une force capable de briser les cieux. Une immense fissure apparut dans le palais, formant un gouffre colossal entre les deux Dieux Antiques!
 
-Tandis que les grondements tonitruants résonnaient au cœur de cette bataille du destin, le coup de Tuo Sen percuta Wang Lin. Lorsque leurs poings se rencontrèrent, les yeux de ce dernier brillèrent. D'innombrables ondulations apparurent entre leurs mains! Chaque onde recelait une force terrifiante!
+Tandis que les grondements tonitruants résonnaient au cœur de cette bataille du destin, le coup de Tuo Sen percuta Wang Lin. Lorsque leurs poings se rencontrèrent, les yeux de Tuo Sen brillèrent. D'innombrables ondulations apparurent entre leurs mains! Chaque onde recelait une force terrifiante!
 
 Leurs coups utilisaient des méthodes différentes, mais tous deux reposaient sur la puissance brute!
 
@@ -72,7 +72,7 @@ Le corps de Diable Ancien qui n'avait pas été détruit reposait à ses côtés
 
 Alors que Wang Lin continuait d'absorber l'aura d'héritage par la force, du sang jaillit de son œil gauche, lui infligeant une douleur atroce!
 
-Parce que Li Guang avait abattu d'une flèche l'œil gauche de Ye Mo, l'héritage de l'Ordre Antique était incomplet. Plus Wang Lin absorbait d'aura, plus la douleur dans son œil gauche s'intensifiait!
+Parce que Li Guang avait abattu d'une flèche l'œil gauche de Ye Mo, l'héritage de Dao Gu était incomplet. Plus Wang Lin absorbait d'aura, plus la douleur dans son œil gauche s'intensifiait!
 
 C'était comme s'il devenait Ye Mo et que son propre œil gauche se désintégrait! Sa vision se brouillait rapidement, comme s'il était en train de perdre l'usage de cet œil!
 

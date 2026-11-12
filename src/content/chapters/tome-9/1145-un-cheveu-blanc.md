@@ -1,6 +1,6 @@
 ---
 n: 1145
-title: Un Cheveu Blanc
+title: Un Poil
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1145 - One Strand of Hair
@@ -38,7 +38,7 @@ Son âme originelle s'effondra. À cet instant, il sentit son cœur cogner viole
 
 Dans la brume sanglante sous l'arc-en-ciel, la silhouette aux cheveux blancs s'était gravée dans leurs cœurs.
 
-Xu Yun fixa la silhouette et trembla légèrement. Elle mordit sa lèvre inférieure, ses yeux brillant d'une lueur étrange.
+Sun Yun fixa la silhouette et trembla légèrement. Elle mordit sa lèvre inférieure, ses yeux brillant d'une lueur étrange.
 
 Lu Di était mort. Son corps s'était effondré et son âme originelle avait disparu, tout comme celle de son oncle. Dans la main de Wang Lin reposaient un lotus noir épanoui et une sacoche de rangement.
 
@@ -48,7 +48,7 @@ Après tout, au sein de la région de rang 5, la Secte Zi Dao était assez puiss
 
 Cependant, toutes ces menaces étaient vaines face à Wang Lin. Un simple Lu Yuncong ou une simple Secte Zi Dao n'étaient pas dignes, aux yeux de Wang Lin, de constituer une menace pour son existence!
 
-Qu'il s'agisse du Céleste du Tonnerre de Luotian, de l'Empereur Divin de l'Oiseau Vermillon, de l'héritier d'une génération plus tard de l'Empereur Céleste Bai Fan, du jeune frère d'apprentissage du Seigneur Céleste Qing Shui ou du disciple de l'Empereur Céleste Qing Shuang récemment éveillé, chacun de ces titres pesait bien plus lourd que tout ce que la Secte Zi Dao pouvait offrir.
+Qu'il s'agisse du Céleste du Tonnerre de Luotian, du Maître de la Secte Sainte Suzaku de l'Alliance, de l'héritier d'une génération plus tard de l'Empereur Céleste Bai Fan, du Junior frère du Seigneur Céleste Qing Shui ou du disciple de l'Empereur Céleste Qing Shuang récemment éveillé, chacun de ces titres pesait bien plus lourd que tout ce que la Secte Zi Dao pouvait offrir.
 
 Les plus de 1 000 ans d'expérience de culture de Wang Lin n'avaient rien à voir avec le talent d'un génie comme Lu Yuncong. La menace de la Secte Zi Dao était une plaisanterie; elle ne valait même pas un poil du corps de Tuo Sen!
 
@@ -64,7 +64,7 @@ Le silence tomba sur les environs, et la respiration de chacun devint pesante. L
 
 « Lui... Qui est-il?! »
 
-« Pourquoi ce senior a-t-il aidé la Secte Gui Yuan? »
+« Pourquoi ce Senior a-t-il aidé la Secte Gui Yuan? »
 
 « Pour tuer instantanément Song Wude... Quel est son niveau de culture? »
 
@@ -72,25 +72,25 @@ Le silence tomba sur les environs, et la respiration de chacun devint pesante. L
 
 Son visage rayonnant était comme une fleur éclose; il y avait une grâce et une beauté indicibles dans sa joie.
 
-Ses trois frères aînés fixaient d'un regard pensif l'endroit où Wang Lin avait disparu. Ils méditaient en silence, mais le choc qui les habitait les empêchait de retrouver leur calme.
+Ses trois Senior frères fixaient d'un regard pensif l'endroit où Wang Lin avait disparu. Ils méditaient en silence, mais le choc qui les habitait les empêchait de retrouver leur calme.
 
 Après un bref silence, les disciples directs des anciens éclatèrent en acclamations. Ils se tournèrent vers l'arc-en-ciel et regagnèrent la Secte Gui Yuan aux côtés des quatre anciens.
 
 « La Secte Zi Dao ne restera pas sans rien faire lorsqu'ils apprendront la mort de Song Wude et de Lu Di... » Tandis que les quatre anciens avançaient, l'un d'eux réprima son choc et projeta ses pensées vers les trois autres.
 
-« Avant la mort du Maître, il a mentionné "le nord" et "les cheveux blancs". Ce senior a les cheveux blancs; il est peut-être l'homme dont le Maître parlait. Peut-être que notre Secte Gui Yuan n'est pas encore à son déclin! »
+« Avant la mort du Maître, il a mentionné "le nord" et "les cheveux blancs". Ce Senior a les cheveux blancs; il est peut-être l'homme dont le Maître parlait. Peut-être que notre Secte Gui Yuan n'est pas encore à son déclin! »
 
-« Cependant, qui est ce senior? Fait-il partie de notre Secte? J'ai scruté les 31 mortels, mais je n'ai rien trouvé. »
+« Cependant, qui est ce Senior? Fait-il partie de notre Secte? J'ai scruté les 31 mortels, mais je n'ai rien trouvé. »
 
 « S'il a été disposé à nous aider une fois, il le sera une seconde fois! » Le sens divin de Lu Yanfei était résolu, ce qui poussa les trois autres à la réflexion.
 
-« Chercher est inutile. Puisque ce senior ne souhaite pas être découvert, laissons les choses suivre leur cours naturel. » Les yeux de Lu Yanfei étaient brillants et elle sourit de nouveau. Sa main droite effleura sa sacoche de rangement pour y envoyer une force destinée à détruire une vieille peinture.
+« Chercher est inutile. Puisque ce Senior ne souhaite pas être découvert, laissons les choses suivre leur cours naturel. » Les yeux de Lu Yanfei étaient brillants et elle sourit de nouveau. Sa main droite effleura sa sacoche de rangement pour y envoyer une force destinée à détruire une vieille peinture.
 
-Peu de temps après, les membres de la Secte Gui Yuan furent de retour au sein de leur secte. Ils se dispersèrent, animés par l'excitation. Lu Yanfei ne retourna pas à son pavillon de la montagne sud, mais se rendit dans la cour des herbes avec Xu Yun.
+Peu de temps après, les membres de la Secte Gui Yuan furent de retour au sein de leur secte. Ils se dispersèrent, animés par l'excitation. Lu Yanfei ne retourna pas à son pavillon de la montagne sud, mais se rendit dans la cour des herbes avec Sun Yun.
 
-Les deux femmes étaient d'un charme remarquable. Lorsqu'elles se tenaient ensemble, le spectacle était absolument saisissant. Certains disciples les aperçurent de loin et restèrent en transe un instant. Cependant, au souvenir du statut de Lu Yanfei, ils s'éveillèrent promptement pour aller les saluer, mais furent éconduits par Xu Yun. Il était clair qu'elles ne souhaitaient pas être importunées.
+Les deux femmes étaient d'un charme remarquable. Lorsqu'elles se tenaient ensemble, le spectacle était absolument saisissant. Certains disciples les aperçurent de loin et restèrent en transe un instant. Cependant, au souvenir du statut de Lu Yanfei, ils s'éveillèrent promptement pour aller les saluer, mais furent éconduits par Sun Yun. Il était clair qu'elles ne souhaitaient pas être importunées.
 
-« Maître, il... il vit juste ici. » Le cœur de Xu Yun battait la chamade alors qu'elle s'adressait à son maître.
+« Maître, il... il vit juste ici. » Le cœur de Sun Yun battait la chamade alors qu'elle s'adressait à son maître.
 
 Au sein du brouillard stellaire du domaine de rang 5, se trouvait un continent pourpre plus de trois fois plus vaste que le continent de Mo Luo. De loin, il ressemblait à une bête féroce enroulée qui fixait froidement le ciel.
 

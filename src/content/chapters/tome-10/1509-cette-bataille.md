@@ -30,15 +30,15 @@ Les paroles du Shui Daozi étaient empreintes de droiture! Wang Lin était le ch
 
 Très peu de personnes connaissaient Wang Lin. L'incrédulité de quelques rares individus était insignifiante face à un tel mouvement!
 
-Dans le Système Stellaire de la Rivière Invoquée, sur une planète saturée d'énergie spirituelle, se dressait une montagne qui perçait les nuages. Au sommet, une femme vêtue de pourpre était assise. Son corps était illusoire et on ne pouvait distinguer ses traits. Ses cheveux soyeux s'étendaient jusqu'à sa taille et retombaient en cascade.
+Dans le Système Stellaire de Zhao He, sur une planète saturée d'énergie spirituelle, se dressait une montagne qui perçait les nuages. Au sommet, une femme vêtue de pourpre était assise. Son corps était illusoire et on ne pouvait distinguer ses traits. Ses cheveux soyeux s'étendaient jusqu'à sa taille et retombaient en cascade.
 
 Elle avait les yeux fermés, mais à cet instant, elle les ouvrit lentement. Ses yeux étaient aussi brillants que des étoiles, mais une pointe de mélancolie s'y nichait.
 
 « Wang Lin... Le pion du Souverain... »
 
-Dans la Rivière Invoquée, un homme vêtu de vert se déplaçait parmi les étoiles. D'un air paresseux, il bâilla et marmonna en avançant:
+Dans Zhao He, un homme vêtu de vert se déplaçait parmi les étoiles. D'un air paresseux, il bâilla et marmonna en avançant:
 
-« Cette chose dont l'Oncle-Maître Ma a parlé devrait être dans la Rivière Invoquée, mais où exactement... »
+« Cette chose dont l'Oncle-Maître Ma a parlé devrait être dans Zhao He, mais où exactement... »
 
 Juste à ce moment, l'expression du jeune homme changea comme s'il avait ressenti quelque chose, et une expression étrange apparut sur son visage.
 
@@ -88,7 +88,7 @@ Lu Yanfei faisait partie des captifs, mais elle restait silencieuse et très cal
 
 Sans Lu Zihao ou sans Wang Lin, la Secte Gui Yuan n'existerait pas aujourd'hui!
 
-Au sein de la Secte Brise-Ciel, le maître de secte traîna son vieux corps et contempla sa secte avec une expression complexe. Puis il se calma progressivement et s'envola vers la Secte Divine.
+Au sein de la Secte Po Tian, le maître de secte traîna son vieux corps et contempla sa secte avec une expression complexe. Puis il se calma progressivement et s'envola vers la Secte Divine.
 
 À l'intérieur de la Secte Divine, Mu Bingmei ouvrit les yeux au sein de la formation. Elle agita ensuite sa main semblable à du jade. Une pilule apparut dans sa paume. Shui Daozi l'avait aidée à restaurer sa culture il y a des centaines d'années, mais le prix était de consommer cette pilule au moment opportun!
 

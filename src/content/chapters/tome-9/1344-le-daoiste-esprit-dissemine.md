@@ -38,21 +38,21 @@ C'était comme si une âme capable de secouer les cieux sommeillait en cet homme
 
 Sous l'aura protectrice, les yeux du jeune homme chauve devinrent soudainement plus limpides et empreints de sagesse. Tandis que Wang Lin se rapprochait, il dit d'une voix douce:
 
-« Si Compagnon Cultivateur souhaite toujours obtenir le Tonnerre Spirituel... je vous en prie, écoutez-moi! »
+« Si le Daoïste souhaite toujours obtenir le Tonnerre Spirituel... je vous en prie, écoutez-moi! »
 
 Les yeux de Wang Lin s'éclairèrent et il s'arrêta net dans les airs, fixant froidement le jeune homme. Auparavant, le regard de cet homme paraissait immature, mais il semblait désormais contenir des millénaires d'expérience.
 
 Le jeune homme chauve reprit lentement: « Le nom de ce vieil homme est Esprit Dispersé. J'ai vécu des dizaines de milliers d'années. J'ai atteint le quatrième Fléau Céleste...
 
-« Ce vieil homme possède 971 avatars comme celui-ci, Compagnon Cultivateur, et chacun d'eux contient ma volonté. Grâce à ces avatars, je peux me déplacer dans l'espace tel les cultivateurs du Clan Shan Lei sans être remarqué par quiconque.
+« Ce vieil homme possède 971 avatars comme celui-ci, Daoïste, et chacun d'eux contient ma volonté. Grâce à ces avatars, je peux me déplacer dans l'espace tel les cultivateurs du Clan Shan Lei sans être remarqué par quiconque.
 
-« Je vous ai suivi secrètement sans malveillance, car je voulais solliciter votre aide et conclure un accord! Si Compagnon Cultivateur est intéressé, cela nous sera bénéfique à tous les deux! » dit lentement le jeune homme en regardant Wang Lin.
+« Je vous ai suivi secrètement sans malveillance, car je voulais solliciter votre aide et conclure un accord! Si le Daoïste est intéressé, cela nous sera bénéfique à tous les deux! » dit lentement le jeune homme en regardant Wang Lin.
 
 Wang Lin resta impassible et demanda calmement: « Vous connaissez le Clan Shan Lei? »
 
 Le jeune homme afficha une expression complexe et hocha la tête.
 
-« Compagnon Cultivateur peut-il me suivre quelque part? Je vous dirai tout en chemin. »
+« Le Daoïste peut-il me suivre quelque part? Je vous dirai tout en chemin. »
 
 Sans laisser paraître d'émotion, Wang Lin demanda: « Quel endroit? »
 

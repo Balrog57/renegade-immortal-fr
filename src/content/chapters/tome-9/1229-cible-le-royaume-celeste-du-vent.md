@@ -16,7 +16,7 @@ Tout en réfléchissant, Wang Lin se remémora tout ce qui s'était passé dans 
 
 « Sept personnes sont parties et je suis le seul à être revenu... Quand j'y suis allé, je n'étais qu'au stade initial de la Purification du Nirvana, et maintenant... » Bien que Wang Lin parût épuisé, ses yeux brillaient lorsqu'il murmura: « Je suis à un demi-pas du stade Briseur du Nirvana! »
 
-Tout ce que Wang Lin avait vécu dans le Royaume aux Sept Couleurs défilait un par un dans son esprit. Le squelette de Zhan Xingye, la grotte de Sima Mo, le troisième réveil de l'Oiseau Vermillon, l'absorption de la foudre du Royaume Extérieur, les Perdus, les Éclairés, ce parchemin taoïste dont il ignorait s'il était réel ou non, le fait qu'il eût presque découvert le secret de Tian Yunzi, la vision des Imitations des Perles Défiant le Ciel, et l'apprentissage de l'existence des Défiants.
+Tout ce que Wang Lin avait vécu dans le Royaume aux Sept Couleurs défilait un par un dans son esprit. Le squelette de Zhan Xingye, la grotte de Sima Mo, les trois réveils de Suzaku, l'absorption de la foudre du Royaume Extérieur, les Perdus, les Éclairés, ce parchemin taoïste dont il ignorait s'il était réel ou non, le fait qu'il eût presque découvert le secret de Tian Yunzi, la vision des Imitations des Perles Défiant le Ciel, et l'apprentissage de l'existence des Défiants.
 
 Il avait combattu Cang Songzi et avait obtenu le clou aux sept couleurs. Il avait combattu le vieil homme aux cheveux blancs et avait dévoré le fruit taoïste. La Perle Défiant le Ciel s'était activée, blessant gravement le gardien des fleurs. Plus important encore, son niveau de culture avait augmenté et la bête moustique avait subi une métamorphose!
 
@@ -58,9 +58,9 @@ Wang Lin lui avait promis de le sortir du Royaume aux Sept Couleurs. Bien qu'il 
 
 Tout en réfléchissant, le sens divin de Wang Lin se déploya et pénétra lentement dans l'âme floue de Chen Tianjun.
 
-« Camarade cultivateur Chen, nous avons quitté le Royaume aux Sept Couleurs. » Le message de Wang Lin résonna au cœur de l'âme originelle du jeune homme.
+« Daoïste Chen, nous avons quitté le Royaume aux Sept Couleurs. » Le message de Wang Lin résonna au cœur de l'âme originelle du jeune homme.
 
-« Merci, Camarade... Je vous en prie... Aidez-moi une dernière fois... Renvoyez-moi à la Secte Yi Shou. Mon maître pourra me sauver. » L'âme de Chen Tianjun était trop faible; après avoir transmis ce message, elle devint encore plus évanescente.
+« Merci, Daoïste... Je vous en prie... Aidez-moi une dernière fois... Renvoyez-moi à la Secte Yi Shou. Mon maître pourra me sauver. » L'âme de Chen Tianjun était trop faible; après avoir transmis ce message, elle devint encore plus évanescente.
 
 « Très bien! » acquiesça Wang Lin, avant de ranger l'âme de Chen Tianjun dans son espace de stockage. Son regard se posa ensuite sur la deuxième âme originelle: la vieille femme en vert.
 
@@ -72,7 +72,7 @@ Bien que son âme n'eût pas été gravement blessée, sa méthode de culture av
 
 Wang Lin resta silencieux, fixant froidement l'âme originelle de la vieille femme.
 
-Le silence qui régnait autour d'eux devint une pression invisible pesant sur l'âme de la femme. Elle afficha une expression amère et murmura: « Camarade cultivateur Lu, je suis prête à sacrifier ma Restriction de Vie et de Mort en échange de ma vie... Si vous ne me croyez pas, fouillez mon âme, mais je vous demande de me laisser partir vivante. Après tout, nous n'avons aucune grande rancune l'un envers l'autre... » Elle était sincère; en vérité, elle n'avait plus le cœur à chercher vengeance. Au début, elle pensait avoir percé à jour la force de Wang Lin, mais elle ne s'attendait pas à ce qu'il survive à l'attaque d'un cultivateur bien au-dessus de leur niveau!
+Le silence qui régnait autour d'eux devint une pression invisible pesant sur l'âme de la femme. Elle afficha une expression amère et murmura: « Daoïste Lu, je suis prête à sacrifier ma Restriction de Vie et de Mort en échange de ma vie... Si vous ne me croyez pas, fouillez mon âme, mais je vous demande de me laisser partir vivante. Après tout, nous n'avons aucune grande rancune l'un envers l'autre... » Elle était sincère; en vérité, elle n'avait plus le cœur à chercher vengeance. Au début, elle pensait avoir percé à jour la force de Wang Lin, mais elle ne s'attendait pas à ce qu'il survive à l'attaque d'un cultivateur bien au-dessus de leur niveau!
 
 Cette réalisation avait fait trembler son esprit et l'avait plongée dans la peur; elle ne souhaitait plus que survivre. Le Royaume aux Sept Couleurs était devenu pour elle un véritable cauchemar.
 
@@ -82,7 +82,7 @@ Un instant plus tard, Wang Lin leva la main droite et une bourrasque de vent pro
 
 Ce n'est que lorsqu'elle fut à des dizaines de milliers de kilomètres que le vent se dissipa. La vieille femme, encore plus impressionnée, s'inclina en direction de Wang Lin avant de poursuivre sa route.
 
-La dernière âme originelle était celle de Maître Nuage-Âme. Puisque Wang Lin l'avait accepté comme esclave, il ne lui traiterait pas mal. Cependant, ce n'était pas le moment de l'aider à guérir. D'un revers de manche, Wang Lin rangea son âme dans son espace de stockage. Il réfléchit un instant avant de sortir une Imitation de Perle Défiant le Ciel.
+La dernière âme originelle était celle de Yun Hunzi. Puisque Wang Lin l'avait accepté comme esclave, il ne lui traiterait pas mal. Cependant, ce n'était pas le moment de l'aider à guérir. D'un revers de manche, Wang Lin rangea son âme dans son espace de stockage. Il réfléchit un instant avant de sortir une Imitation de Perle Défiant le Ciel.
 
 Il en prit une et y plongea son sens divin. Comme il s'y attendait, dès que la perle quitta le Royaume aux Sept Couleurs, elle devint inutile.
 

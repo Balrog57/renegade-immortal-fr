@@ -10,13 +10,13 @@ Wang Lin accordait une importance capitale à ceux qui l'avaient aidé!
 
 Même si le monde se dégradait sous le poids du temps, la bonté de Qing Shui ne s'effacerait jamais! Wang Lin n'oubliait jamais ceux qui lui avaient tendu la main.
 
-Cette affection n'avait rien de sentimental: grâce à un seul sort, Qing Shui avait reconnu Wang Lin comme un frère cadet d'une génération différente et lui avait enseigné l'intégralité de ses techniques. Il avait également été un pilier inébranlable pour Wang Lin lorsque ce dernier était encore faible!
+Cette affection n'avait rien de sentimental: grâce à un seul sort, Qing Shui avait reconnu Wang Lin comme un Junior frère d'une génération différente et lui avait enseigné l'intégralité de ses techniques. Il avait également été un pilier inébranlable pour Wang Lin lorsque ce dernier était encore faible!
 
-« Tu es mon frère cadet, je ne laisserai personne te faire du mal! » Cette simple phrase suffisait à réchauffer le cœur de Wang Lin pendant des millénaires.
+« Tu es mon Junior frère, je ne laisserai personne te faire du mal! » Cette simple phrase suffisait à réchauffer le cœur de Wang Lin pendant des millénaires.
 
-À l'époque, Wang Lin avait dû s'enfuir, terrifié, car il n'avait pas la puissance nécessaire pour sauver Qing Shui. Il avait alors pris une décision: tant qu'il y aurait une chance, il se rendrait à l'Alliance Xiu Zhen pour secourir son frère aîné!
+À l'époque, Wang Lin avait dû s'enfuir, terrifié, car il n'avait pas la puissance nécessaire pour sauver Qing Shui. Il avait alors pris une décision: tant qu'il y aurait une chance, il se rendrait à l'Alliance Xiu Zhen pour secourir son Senior frère!
 
-Bai Fan était un étranger pour Wang Lin et celui-ci ne le reconnaissait pas comme son maître. Cependant, dans son cœur, Wang Lin considérait Qing Shui comme son frère aîné... son frère pour la vie!
+Bai Fan était un étranger pour Wang Lin et celui-ci ne le reconnaissait pas comme son maître. Cependant, dans son cœur, Wang Lin considérait Qing Shui comme son Senior frère... son Senior frère pour la vie!
 
 La vie de Qing Shui avait été tragique; il n'avait connu que l'amertume. Sa femme était morte par sa main et tous ses proches avaient été massacrés par lui durant sa folie. Finalement, Bai Fan l'avait scellé, mais son maître, pris de pitié, avait conservé son âme : malgré le sceau, une chance de survie subsistait.
 

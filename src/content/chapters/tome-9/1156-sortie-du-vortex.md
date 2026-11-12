@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1156 - Leaving the Vortex
 slug: sortie-du-vortex
 ---
-Tenant l'épée de fer rouillée, Wang Lin recula tandis que Noble Argent chargeait. D'un geste de la main gauche, Wang Lin projeta les âmes de Maître Vide et de Tian Yunzi vers l'avant.
+Tenant l'épée de fer rouillée, Wang Lin recula tandis que Qian Guizhong chargeait. D'un geste de la main gauche, Wang Lin projeta les âmes de Xu Kongzi et de Tian Yunzi vers l'avant.
 
 Ces deux âmes de combat étaient les atouts les plus puissants de Wang Lin, après la faible source originelle qu'il lui restait. Accompagné de cette épée de fer, il engageait désormais toute sa puissance.
 
@@ -14,57 +14,57 @@ Après tout, la situation n'était plus comparable à celle de la grotte de Qing
 
 En cet instant, n'ayant que son avatar de cultivateur, il serait extrêmement difficile pour Wang Lin de tuer ce cultivateur!
 
-D'autant plus qu'actuellement, sa jambe droite n'était qu'un carnage sanglant, transpercée par la lumière blanche de Noble Argent. Une énergie originelle contenant une forme de loi ravageait également son corps.
+D'autant plus qu'actuellement, sa jambe droite n'était qu'un carnage sanglant, transpercée par la lumière blanche de Qian Guizhong. Une énergie originelle contenant une forme de loi ravageait également son corps.
 
 Sans l'Armure de Cuir d'Ancien Dieu protégeant son âme originelle, celle-ci se serait déjà effondrée. Heureusement, le corps de Wang Lin n'était pas ordinaire; après avoir été raffiné dans la Secte Divine de l'Oiseau Vermillon, il contenait les lois du feu et de la foudre.
 
-Grâce à cela, il ne subissait que des blessures au lieu de mourir sous les sorts de Noble Argent! Ayant traversé de nombreux périls durant sa vie de cultivateur, Wang Lin connaissait naturellement le danger que représentaient les cultivateurs du niveau Briseur du Nirvana.
+Grâce à cela, il ne subissait que des blessures au lieu de mourir sous les sorts de Qian Guizhong! Ayant traversé de nombreux périls durant sa vie de cultivateur, Wang Lin connaissait naturellement le danger que représentaient les cultivateurs du niveau Briseur du Nirvana.
 
-Wang Lin n'avait pas de temps à perdre en réflexions; il devait mettre fin à ce combat et tenter de tuer ce cultivateur Briseur du Nirvana! D'un mouvement de sa main gauche, Maître Vide et Tian Yunzi se précipitèrent sur Noble Argent.
+Wang Lin n'avait pas de temps à perdre en réflexions; il devait mettre fin à ce combat et tenter de tuer ce cultivateur Briseur du Nirvana! D'un mouvement de sa main gauche, Xu Kongzi et Tian Yunzi se précipitèrent sur Qian Guizhong.
 
-Face à ces deux âmes puissantes, même Noble Argent se montra extrêmement prudent. Dans toute sa vie de culture, il n'avait jamais vu un cultivateur du niveau Purificateur du Nirvana posséder des sorts capables de menacer des Briseurs de Nirvana.
+Face à ces deux âmes puissantes, même Qian Guizhong se montra extrêmement prudent. Dans toute sa vie de culture, il n'avait jamais vu un cultivateur du niveau Purificateur du Nirvana posséder des sorts capables de menacer des Briseurs de Nirvana.
 
-L'âme de Tian Yunzi semblait presque avoir sombré dans la folie, formant frénétiquement des sceaux pour lancer des sorts. Ces derniers étaient souvent flous et immatériels, mais ils dirigeaient les lois du monde vers Noble Argent.
+L'âme de Tian Yunzi semblait presque avoir sombré dans la folie, formant frénétiquement des sceaux pour lancer des sorts. Ces derniers étaient souvent flous et immatériels, mais ils dirigeaient les lois du monde vers Qian Guizhong.
 
-Il y avait aussi l'âme de Maître Vide. Ayant atteint son premier Fléau Céleste avant de mourir, il agita ses manches et une tempête de tonnerre surgit pour contrer le sort de Noble Argent.
+Il y avait aussi l'âme de Xu Kongzi. Ayant atteint son premier Fléau Céleste avant de mourir, il agita ses manches et une tempête de tonnerre surgit pour contrer le sort de Qian Guizhong.
 
-Si Wang Lin n'avait pas eu la contrainte du temps, il aurait pu utiliser Maître Vide et Tian Yunzi pour épuiser et broyer Noble Argent. Cependant, il manquait de temps et d'énergie originelle céleste pour maintenir ces deux âmes puissantes.
+Si Wang Lin n'avait pas eu la contrainte du temps, il aurait pu utiliser Xu Kongzi et Tian Yunzi pour épuiser et broyer Qian Guizhong. Cependant, il manquait de temps et d'énergie originelle céleste pour maintenir ces deux âmes puissantes.
 
 L'Arsenal Magique était celui de ses sorts qui consommait le plus d'énergie originelle céleste!
 
-Tandis que Maître Vide et Tian Yunzi harcelaient Noble Argent, Wang Lin leva sa main droite et fixa l'épée de fer. Il trancha l'air impitoyablement, libérant un rayon d'énergie d'épée capable de faire trembler la terre. Cette énergie se mua en l'illusion d'une épée gigantesque qui s'abattit sur Noble Argent.
+Tandis que Xu Kongzi et Tian Yunzi harcelaient Qian Guizhong, Wang Lin leva sa main droite et fixa l'épée de fer. Il trancha l'air impitoyablement, libérant un rayon d'énergie d'épée capable de faire trembler la terre. Cette énergie se mua en l'illusion d'une épée gigantesque qui s'abattit sur Qian Guizhong.
 
 Mais ce n'était pas fini. Wang Lin ferma les yeux et abandonna le contrôle de l'épée de fer, la laissant agir par elle-même. L'arme bougeait comme si la main de Wang Lin y était fusionnée, et une autre entaille fut décochée.
 
 Des éclats de lumière tracèrent des arcs à travers la brume, chaque éclat représentant un rayon d'énergie d'épée! Chaque frappe consommait une quantité massive d'énergie originelle du corps de Wang Lin.
 
-L'énergie d'épée s'entremêla pour former une fleur. De loin, ces rayons incurvés continuaient d'apparaître jusqu'à ce qu'une fleur de lames se dessine devant Noble Argent.
+L'énergie d'épée s'entremêla pour former une fleur. De loin, ces rayons incurvés continuaient d'apparaître jusqu'à ce qu'une fleur de lames se dessine devant Qian Guizhong.
 
 En un clin d'œil, treize coups d'épée tombèrent! Wang Lin maniait son bras les yeux clos, l'épée obéissant à sa volonté propre. Une aura d'une intensité terrifiante émana de lui, comme si le monde entier allait être anéanti par cette lame!
 
-Tout cela se produisit en un instant. Noble Argent, entravé par Maître Vide et Tian Yunzi, formait désespérément des sceaux pour lancer divers sorts et trésors, mais son visage était livide. Bien qu'il sût que l'épée de fer était un trésor du niveau Pseudo-Nirvana Vide, il existait une immense différence de puissance entre les trésors de ce rang.
+Tout cela se produisit en un instant. Qian Guizhong, entravé par Xu Kongzi et Tian Yunzi, formait désespérément des sceaux pour lancer divers sorts et trésors, mais son visage était livide. Bien qu'il sût que l'épée de fer était un trésor du niveau Pseudo-Nirvana Vide, il existait une immense différence de puissance entre les trésors de ce rang.
 
 Ce qu'il n'avait pas pu imaginer, c'était la puissance brute de l'énergie d'épée! À cet instant, bien qu'il voie l'énergie converger vers lui, il était incapable de l'esquiver. Il poussa un rugissement et tenta de se libérer des deux âmes qui le retenaient.
 
 C'est alors que Wang Lin ouvrit les yeux. Le visage pâle, il retira l'épée de fer pour ensuite déclencher six frappes consécutives!
 
-Au total, dix-neuf coups furent portés, consommant près de 60 % de l'énergie originelle de Wang Lin. Puis, il recula. L'illusion de dix-neuf épées gigantesques apparut soudainement autour de Noble Argent. Avec sa force actuelle, Wang Lin aurait pu en lancer davantage, mais les conséquences auraient dépassé ses prévisions; il interrompit donc de force le mouvement de l'épée. À son niveau de culture, il pouvait contrôler l'arme jusqu'au dix-neuvième coup, mais au-delà, il n'aurait pu s'arrêter même s'il l'avait voulu, et ne l'aurait utilisée que jusqu'à l'épuisement total de ses forces.
+Au total, dix-neuf coups furent portés, consommant près de 60 % de l'énergie originelle de Wang Lin. Puis, il recula. L'illusion de dix-neuf épées gigantesques apparut soudainement autour de Qian Guizhong. Avec sa force actuelle, Wang Lin aurait pu en lancer davantage, mais les conséquences auraient dépassé ses prévisions; il interrompit donc de force le mouvement de l'épée. À son niveau de culture, il pouvait contrôler l'arme jusqu'au dix-neuvième coup, mais au-delà, il n'aurait pu s'arrêter même s'il l'avait voulu, et ne l'aurait utilisée que jusqu'à l'épuisement total de ses forces.
 
-« Tranche! » hurla Wang Lin, et les dix-neuf épées géantes chutèrent instantanément. Elles s'enchaînèrent en une série de coups continus, chargeant droit sur Noble Argent!
+« Tranche! » hurla Wang Lin, et les dix-neuf épées géantes chutèrent instantanément. Elles s'enchaînèrent en une série de coups continus, chargeant droit sur Qian Guizhong!
 
-La vitesse était inimaginable. Noble Argent fut incapable de résister aux dix-neuf entailles de l'épée du Pseudo-Nirvana Vide. Un grondement tonitruant retentit alors que les lames pénétraient son corps.
+La vitesse était inimaginable. Qian Guizhong fut incapable de résister aux dix-neuf entailles de l'épée du Pseudo-Nirvana Vide. Un grondement tonitruant retentit alors que les lames pénétraient son corps.
 
 Son corps trembla et fut instantanément découpé en dix-neuf morceaux. Le sang jaillit de toutes parts!
 
-Un rugissement misérable s'éleva alors que le corps de Noble Argent s'effondrait. Étant un cultivateur Briseur du Nirvana, son âme originelle s'échappa de sa tête. Il saisit son trésor plumeau et s'enfuit à toute vitesse.
+Un rugissement misérable s'éleva alors que le corps de Qian Guizhong s'effondrait. Étant un cultivateur Briseur du Nirvana, son âme originelle s'échappa de sa tête. Il saisit son trésor plumeau et s'enfuit à toute vitesse.
 
-Il était envahi par une terreur indicible; il était presque certain que ce cultivateur aux cheveux blancs connaissait l'affaire de la Secte Brise-Ciel et de la recette de pilule. La mort de Shi Luoxing était, selon lui, étroitement liée à cet homme.
+Il était envahi par une terreur indicible; il était presque certain que ce cultivateur aux cheveux blancs connaissait l'affaire de la Secte Po Tian et de la recette de pilule. La mort de Shi Luoxing était, selon lui, étroitement liée à cet homme.
 
-« De quelle secte vient cet individu pour posséder de tels trésors? Serait-il... quelqu'un de la région de rang 8?! » Pensant cela, Noble Argent fut frappé par un choc immense. Son âme originelle fuyait comme une folle. Il devait absolument en informer sa secte!
+« De quelle secte vient cet individu pour posséder de tels trésors? Serait-il... quelqu'un de la région de rang 8?! » Pensant cela, Qian Guizhong fut frappé par un choc immense. Son âme originelle fuyait comme une folle. Il devait absolument en informer sa secte!
 
 Il comprit également que la seconde vague de sa secte n'était plus très loin; il lui suffisait de tenir encore un peu!
 
-Le visage de Wang Lin était livide. Au moment où l'âme originelle de Noble Argent s'échappait, une flamme jaillit de son œil gauche. Une flamme monstrueuse se déploya autour de lui, formant une mer de feu. Pour qui regarderait de près, on y verrait neuf couches de flammes!
+Le visage de Wang Lin était livide. Au moment où l'âme originelle de Qian Guizhong s'échappait, une flamme jaillit de son œil gauche. Une flamme monstrueuse se déploya autour de lui, formant une mer de feu. Pour qui regarderait de près, on y verrait neuf couches de flammes!
 
 Les Neuf Transformations Mystérieuses!
 
@@ -72,21 +72,21 @@ Dès que les neuf couches apparurent, elles se contractèrent violemment autour 
 
 À cet instant, son corps disparut pour laisser place à un oiseau vermillon blanc de plusieurs centaines de pieds de large. Cet oiseau vermillon blanc, c'était Wang Lin!
 
-D'un battement d'ailes, Wang Lin rattrapa Noble Argent dans une traînée de flammes et percuta violemment son âme originelle!
+D'un battement d'ailes, Wang Lin rattrapa Qian Guizhong dans une traînée de flammes et percuta violemment son âme originelle!
 
-Les pupilles de l'âme de Noble Argent se rétractèrent dans un cri. Il sentit la mort approcher et il était trop tard pour réfléchir. La folie embrasa son regard alors qu'il tentait une ultime action, une aura destructrice émanant de son âme.
+Les pupilles de l'âme de Qian Guizhong se rétractèrent dans un cri. Il sentit la mort approcher et il était trop tard pour réfléchir. La folie embrasa son regard alors qu'il tentait une ultime action, une aura destructrice émanant de son âme.
 
 Dans ce moment de péril, il choisit l'autodestruction de son âme originelle, mais à son niveau de culture, il pouvait en contrôler l'ampleur. Ses bras explosèrent soudainement en un tourbillon pour tenter d'emprisonner l'oiseau vermillon. Le trésor plumeau qu'il tenait explosa également en d'innombrables lignes blanches qui chargèrent l'oiseau.
 
-Cependant, cela ne put stopper l'oiseau vermillon avant l'impact. Les flammes enveloppèrent l'âme originelle de Noble Argent.
+Cependant, cela ne put stopper l'oiseau vermillon avant l'impact. Les flammes enveloppèrent l'âme originelle de Qian Guizhong.
 
-Des cris déchirants retentirent alors que l'âme de Noble Argent s'affaiblissait. Il recula désespérément, enveloppé de flammes, pour tenter de s'échapper.
+Des cris déchirants retentirent alors que l'âme de Qian Guizhong s'affaiblissait. Il recula désespérément, enveloppé de flammes, pour tenter de s'échapper.
 
-En fuyant, ses mains formèrent des sceaux et des runes mystérieuses apparurent autour de lui. L'âme d'un python géant se matérialisa devant lui. Au moment où elle apparut, Noble Argent aspira brusquement, provoquant l'effondrement instantané de l'âme du python.
+En fuyant, ses mains formèrent des sceaux et des runes mystérieuses apparurent autour de lui. L'âme d'un python géant se matérialisa devant lui. Au moment où elle apparut, Qian Guizhong aspira brusquement, provoquant l'effondrement instantané de l'âme du python.
 
-Après avoir absorbé l'âme de son esprit de bête, Noble Argent s'enfuit comme un possédé sans même se retourner.
+Après avoir absorbé l'âme de son esprit de bête, Qian Guizhong s'enfuit comme un possédé sans même se retourner.
 
-L'oiseau vermillon disparut et Wang Lin réapparut. Sa poitrine était un carnage et l'on distinguait vaguement des fils blancs qui se faufilaient dans sa chair. Il fixa l'âme fuyante de Noble Argent, et son intention meurtrière redoubla d'intensité.
+L'oiseau vermillon disparut et Wang Lin réapparut. Sa poitrine était un carnage et l'on distinguait vaguement des fils blancs qui se faufilaient dans sa chair. Il fixa l'âme fuyante de Qian Guizhong, et son intention meurtrière redoubla d'intensité.
 
 « Âme de Tian Yunzi, fusionne avec mon sens divin! » Wang Lin n'utilisa pas le sort d'Arrêt, mais forma un sceau avant de pointer vers l'âme de Tian Yunzi. Les yeux de l'âme scintillèrent et se transformèrent en un rayon de lumière qui pénétra le corps de Wang Lin.
 
@@ -94,15 +94,15 @@ Le corps de Wang Lin trembla et son regard devint soudainement d'un calme absolu
 
 Après avoir obtenu la fortune de Qing Lin, Wang Lin avait eu une illumination concernant les sorts de Bai Fan. Ayant atteint la limite de l'Arsenal Magique, il pouvait désormais fusionner l'âme avec lui-même!
 
-Ignorant Noble Argent qui s'échappait, Wang Lin ferma lentement les yeux. Simultanément, il leva sa main gauche et pointa vers le lointain!
+Ignorant Qian Guizhong qui s'échappait, Wang Lin ferma lentement les yeux. Simultanément, il leva sa main gauche et pointa vers le lointain!
 
 Instantanément, une tempête éclata au loin, la brume tourbillonnant violemment tandis que des ondulations jaunes se propageaient. Au centre de ces ondes, une paume gigantesque apparut soudainement, l'index levé et les autres doigts repliés en un poing.
 
 Le Doigt du Destin Céleste!
 
-Wang Lin utilisa sa propre puissance et l'âme de Tian Yunzi comme guide. Le Doigt du Destin Céleste descendit sur le Système Stellaire de la Mer Yun. Il progressait avec une célérité et un élan inimaginables vers Noble Argent. Malgré tous ses efforts, il fut incapable d'esquiver le doigt qui finit par l'écraser.
+Wang Lin utilisa sa propre puissance et l'âme de Tian Yunzi comme guide. Le Doigt du Destin Céleste descendit sur le Système Stellaire de la Mer Yun. Il progressait avec une célérité et un élan inimaginables vers Qian Guizhong. Malgré tous ses efforts, il fut incapable d'esquiver le doigt qui finit par l'écraser.
 
-Alors que le Doigt du Destin Céleste balayait tout sur son passage, l'âme de Noble Argent s'effondra en une multitude de particules de lumière. Le Doigt du Destin Céleste disparut avec lui.
+Alors que le Doigt du Destin Céleste balayait tout sur son passage, l'âme de Qian Guizhong s'effondra en une multitude de particules de lumière. Le Doigt du Destin Céleste disparut avec lui.
 
 Le silence retomba totalement. Depuis le premier assaut de Wang Lin jusqu'à cet instant, seule une fraction infime de temps s'était écoulée. Wang Lin avait tout emporté et s'était déjà éclipsé vers l'horizon.
 
@@ -112,9 +112,9 @@ Un éclair de froideur passa dans ses yeux alors qu'il changeait de direction po
 
 Cinq jours plus tard, lorsque le continent de Mo Luo apparut enfin, Wang Lin poussa un soupir de soulagement. Il avait choisi sa trajectoire après avoir calculé la direction d'arrivée des cultivateurs; en traçant un immense arc de cercle, il avait eu la chance d'éviter tout nouveau conflit et de sortir enfin du tourbillon des querelles.
 
-Wang Lin ignorait que peu après la mort de Noble Argent, le décès de Shi Luoxing fut révélé aux autres sectes. L'espace entourant ce continent sauvage fut immédiatement scellé hermétiquement.
+Wang Lin ignorait que peu après la mort de Qian Guizhong, le décès de Shi Luoxing fut révélé aux autres sectes. L'espace entourant ce continent sauvage fut immédiatement scellé hermétiquement.
 
-La mort de Noble Argent choqua la Secte Hua Qing. Tout en scellant la zone, ils cherchèrent le meurtrier avec acharnement, mais Wang Lin était déjà loin.
+La mort de Qian Guizhong choqua la Secte Hua Qing. Tout en scellant la zone, ils cherchèrent le meurtrier avec acharnement, mais Wang Lin était déjà loin.
 
 Les cultivateurs de la région de rang 6 trouvèrent naturellement le squelette et les fragments de crâne dans la vallée où se trouvait Shi Luoxing, et tous visèrent la Secte Wu Du. Face aux regards belliqueux de toutes les sectes, la Secte Wu Du fut incapable de se justifier.
 
@@ -122,13 +122,13 @@ Un courant souterrain commença à s'agiter dans la région de rang 5.
 
 De retour sur le continent de Mo Luo, Wang Lin se transforma en un rayon de lumière et se dirigea vers la Secte Gui Yuan. Il savait que la région de rang 5 allait sombrer dans le chaos. Les cultivateurs du rang 6 allaient intensifier leurs recherches, et à ce moment-là, son identité au sein de la Secte Gui Yuan deviendrait cruciale.
 
-Le retour de Wang Lin ne suscita pas trop d'attention au sein de la Secte Gui Yuan. Il apparut instantanément dans la cour des herbes de la cour sud. Dès son arrivée, il vit Xu Yun assise devant la maison, dont l'expression était frappée de stupeur.
+Le retour de Wang Lin ne suscita pas trop d'attention au sein de la Secte Gui Yuan. Il apparut instantanément dans la cour des herbes de la cour sud. Dès son arrivée, il vit Sun Yun assise devant la maison, dont l'expression était frappée de stupeur.
 
-« Tu... » Xu Yun allait parler, mais Wang Lin ne lui prêta aucune attention et d'un geste de la main droite fit apparaître une quantité massive d'herbes, formant rapidement une petite montagne entre eux.
+« Tu... » Sun Yun allait parler, mais Wang Lin ne lui prêta aucune attention et d'un geste de la main droite fit apparaître une quantité massive d'herbes, formant rapidement une petite montagne entre eux.
 
 « Je te rends tes herbes! » lança Wang Lin avant de pénétrer dans la maison.
 
-Xu Yun regarda l'amas d'herbes devant elle et eut le souffle coupé. Grâce à ses connaissances, elle comprit que beaucoup de ces plantes étaient extrêmement rares, et que leur valeur dépassait de loin celle des herbes que Wang Lin avait consommées.
+Sun Yun regarda l'amas d'herbes devant elle et eut le souffle coupé. Grâce à ses connaissances, elle comprit que beaucoup de ces plantes étaient extrêmement rares, et que leur valeur dépassait de loin celle des herbes que Wang Lin avait consommées.
 
 Elle resta stupéfaite un long moment avant de reprendre ses esprits et de pousser un soupir de soulagement. Après le départ de Wang Lin, elle subissait les réprimandes quotidiennes de son maître et était très inquiète. Elle craignait que, si le Senior Ceng Niu ne revenait pas, elle soit tenue pour responsable de la ruine de la secte lors de l'arrivée de la Secte Zi Dao.
 

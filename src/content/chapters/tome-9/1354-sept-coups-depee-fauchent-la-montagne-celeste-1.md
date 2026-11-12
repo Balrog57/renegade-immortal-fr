@@ -42,7 +42,7 @@ L'Ancien affichait une expression extrêmement grave; grâce à son intelligence
 
 En entrant dans les 7 Millions de Mondes, il était tombé dans le piège de l'autre! Cependant, sa culture était colossale, n'étant surpassée que par les cultivateurs de la troisième étape. Bien qu'il sût que Wang Lin devait être préparé, il ne paniqua pas. Il observa le Daoïste Esprit Dispersé en fronçant légèrement les sourcils.
 
-« C'est toi! Cette fourmi d'autrefois. Si je ne t'avais pas laissé la vie sauve, tu aurais péri sous la tribulation divine! » Bien que l'Ancien parût imperturbable, il était profondément choqué intérieurement. Il reconnut cet homme et ne pouvait imaginer comment un tel individu avait pu apparaître parmi les insectes des 7 Millions de Mondes pour atteindre un tel niveau de culture. Pourtant, personne dans le Clan Shan Lei ne s'en était aperçu auparavant!
+« C'est toi! Cette fourmi d'autrefois. Si je ne t'avais pas laissé la vie sauve, tu aurais péri sous la Tribulation Céleste! » Bien que l'Ancien parût imperturbable, il était profondément choqué intérieurement. Il reconnut cet homme et ne pouvait imaginer comment un tel individu avait pu apparaître parmi les insectes des 7 Millions de Mondes pour atteindre un tel niveau de culture. Pourtant, personne dans le Clan Shan Lei ne s'en était aperçu auparavant!
 
 Une telle chose dépassait l'entendement, et il ne comprenait pas comment cela avait été possible. Mais désormais qu'il l'avait découvert, il devait impérativement tuer cet homme!
 

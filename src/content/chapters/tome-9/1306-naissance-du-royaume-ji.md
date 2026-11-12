@@ -8,17 +8,17 @@ slug: naissance-du-royaume-ji
 ---
 Les Sept Étoiles, les Six Directions et les Cinq Éléments fusionnèrent. Ce pouvoir pouvait tout détruire! Le visage de Wang Lin était pâle, mais ses yeux devenaient de plus en plus brillants!
 
-Il saisit vaguement le sens des paroles du Seigneur du Royaume Scellé. La rétribution divine était une calamité, mais aussi une fortune!
+Il saisit vaguement le sens des paroles du Seigneur du Royaume Scellé. La Tribulation Céleste était une calamité, mais aussi une fortune!
 
 « Neuf est la limite. Il y a les Neuf Palais, les Huit Diagrammes, les Sept Étoiles, les Six Directions et les Cinq Éléments; il existe donc sûrement quatre, trois et deux! J'ignore ce que sont le quatre et le trois, mais le deux est indubitablement le Yin et le Yang! »
 
-« De neuf à deux, après avoir traversé diverses phases de changement, ils se transformeront en un seul! Et si l'Un de cette rétribution était le Ji?! » Le cœur de Wang Lin battait la chamade, mais il n'en était pas certain. Cependant, il devait lutter et résister jusqu'au bout pour voir si c'était là ce royaume Ji qu'il désirait tant; il refusait d'abandonner!
+« De neuf à deux, après avoir traversé diverses phases de changement, ils se transformeront en un seul! Et si l'Un de cette Tribulation Céleste était le Ji?! » Le cœur de Wang Lin battait la chamade, mais il n'en était pas certain. Cependant, il devait lutter et résister jusqu'au bout pour voir si c'était là ce royaume Ji qu'il désirait tant; il refusait d'abandonner!
 
-À cet instant, les Sept Étoiles convergèrent soudainement, et l'expression du Grand Ancien de la Secte Démon changea. Bien que le Maître de Secte n'ait rien dit sur la personne faisant face à la rétribution divine, à en juger par ses derniers mots et le jade, la relation entre cet individu et le Maître de Secte ne pouvait être ordinaire.
+À cet instant, les Sept Étoiles convergèrent soudainement, et l'expression du Grand Ancien de la Secte Démon changea. Bien que le Maître de Secte n'ait rien dit sur la personne faisant face à la Tribulation Céleste, à en juger par ses derniers mots et le jade, la relation entre cet individu et le Maître de Secte ne pouvait être ordinaire.
 
 Ses yeux s'illuminèrent et il s'apprêta à s'avancer pour aider Wang Lin à résister à la calamité des Sept Étoiles!
 
-« Senior, vous n'avez pas besoin d'intervenir. Je résisterai seul à cette rétribution divine! » La voix de Wang Lin résonna à travers le vide. Le Grand Ancien de la Secte Démon marqua un temps d'arrêt, tandis que les Sept Étoiles se rapprochaient!
+« Senior, vous n'avez pas besoin d'intervenir. Je résisterai seul à cette Tribulation Céleste! » La voix de Wang Lin résonna à travers le vide. Le Grand Ancien de la Secte Démon marqua un temps d'arrêt, tandis que les Sept Étoiles se rapprochaient!
 
 Les Sept Étoiles descendirent avec une intention meurtrière monstrueuse et sept rayons de lumière s'abattirent sur Wang Lin. Un grondement de tonnerre retentit et il fut couvert de sang. Son âme originelle trembla et il fut repoussé. Il devint mortellement pâle par la suite, mais il releva péniblement la tête et se mit à rire.
 
@@ -42,11 +42,11 @@ Simultanément, les empreintes de métal, de bois, d'eau et de terre frappèrent
 
 « Feu et tonnerre des Huit Diagrammes, défendez mon corps! » Alors que Wang Lin rugissait, l'empreinte des Huit Diagrammes qui avait pénétré son corps surgit. Les diagrammes de feu et de tonnerre se libérèrent et commencèrent à résister aux empreintes de paumes!
 
-Après avoir introduit ces deux diagrammes dans son corps, il les avait cachés. En les faisant jaillir maintenant, il prit la rétribution divine au dépourvu! Grâce à l'étonnante régénération du dieu ancien, à sa puissante culture et à l'aide des deux diagrammes et de l'empreinte de feu des Cinq Éléments, il parvint à contrer l'effondrement des Cinq Éléments!
+Après avoir introduit ces deux diagrammes dans son corps, il les avait cachés. En les faisant jaillir maintenant, il prit la Tribulation Céleste au dépourvu! Grâce à l'étonnante régénération du dieu ancien, à sa puissante culture et à l'aide des deux diagrammes et de l'empreinte de feu des Cinq Éléments, il parvint à contrer l'effondrement des Cinq Éléments!
 
 Il n'était pas mort après avoir subi les Neuf Palais, les Huit Diagrammes, les Sept Étoiles, les Six Directions et les Cinq Éléments!
 
-Wang Lin essuya le sang au coin de ses lèvres et rugit face au vortex de la rétribution divine: « Y en a-t-il d'autres?! »
+Wang Lin essuya le sang au coin de ses lèvres et rugit face au vortex de la Tribulation Céleste: « Y en a-t-il d'autres?! »
 
 « Quatre Divinités... Infini... » Une voix vague, dénuée de toute émotion, résonna à travers le monde comme pour répondre à Wang Lin.
 
@@ -54,7 +54,7 @@ Tandis que l'écho de cette voix se propageait, des rugissements de bêtes jaill
 
 Une intention meurtrière se propagea alors qu'un Tigre Blanc chargeait en rugissant, et une Tortue Noire fit également son apparition!
 
-Les Quatre Esprits de la Rétribution Divine!
+Les Quatre Esprits de la Tribulation Céleste!
 
 « C'étaient donc les Quatre Divinités! Oiseau Vermillon, reviens! » Les yeux de Wang Lin brillèrent et il sourit en pointant l'Oiseau Vermillon. La créature trembla et poussa un cri. Elle se libéra des trois autres pour charger vers Wang Lin.
 
@@ -76,11 +76,11 @@ Si Wang Lin pouvait éveiller l'Oiseau Vermillon une quatrième fois pour attein
 
 Le feu le plus puissant au monde est celui de la colère. Tout le monde le possède, et il est invisible. Si l'on ne parvient pas à le maîtriser, on meurt sans aucun doute!
 
-À cet instant, après avoir absorbé les différents feux de la rétribution divine, Wang Lin atteindrait son quatrième éveil. Il n'avait besoin que d'un peu plus pour franchir le stade du feu corporel et entrer dans celui du feu éthéré!
+À cet instant, après avoir absorbé les différents feux de la Tribulation Céleste, Wang Lin atteindrait son quatrième éveil. Il n'avait besoin que d'un peu plus pour franchir le stade du feu corporel et entrer dans celui du feu éthéré!
 
 L'Oiseau Vermillon autour de lui poussa un cri et pénétra dans son corps. Il nourrissait sa chair et réparait son âme originelle, donnant à Wang Lin la force nécessaire pour résister à l'arrivée des trois autres esprits!
 
-Cependant, la rétribution divine n'était pas achevée et devenait de plus en plus puissante. À ce moment, la voix vague résonna une nouvelle fois. Elle était froide et impitoyable, dépourvue de toute émotion!
+Cependant, la Tribulation Céleste n'était pas achevée et devenait de plus en plus puissante. À ce moment, la voix vague résonna une nouvelle fois. Elle était froide et impitoyable, dépourvue de toute émotion!
 
 « Trois Talents... Infini... »
 
@@ -104,7 +104,7 @@ Simultanément, la lumière des Trois Talents convergea vers Wang Lin. C'était 
 
 À cet instant, le diagramme Yin et Yang s'abattit sur Wang Lin et recouvrit tout son corps.
 
-Des grondements tonnerreux éclatèrent. Le corps de dieu ancien à six étoiles de Wang Lin ne put supporter cette puissance destructrice. Son corps était un carnage sanglant, mais Li Qianmei n'était nullement blessée. Cette rétribution divine ne visait que Wang Lin et ignorait tous les autres!
+Des grondements tonnerreux éclatèrent. Le corps de dieu ancien à six étoiles de Wang Lin ne put supporter cette puissance destructrice. Son corps était un carnage sanglant, mais Li Qianmei n'était nullement blessée. Cette Tribulation Céleste ne visait que Wang Lin et ignorait tous les autres!
 
 « Une rétribution... Les rétributions infinies commencent... » Alors que le corps de Wang Lin était sur le point de s'effondrer, la voix vague résonna une ultime fois. Le vide sembla avoir été anéanti, et des vagues de lumière apparurent de nulle part.
 
@@ -112,6 +112,6 @@ Les Neuf Palais, les Huit Diagrammes, les Sept Étoiles, les Six Directions, les
 
 C'était le Ji!
 
-Bien que Wang Lin fût gravement blessé, son cœur de Dao, sa volonté du Dao et ses domaines étaient toujours là. Puis, un changement soudain se produisit! Dans son corps, du Neuf Palais aux Deux Rites, les formes apparurent de manière inattendue... de manière inattendue, elles apparurent aussi dans son corps, à l'image de la rétribution divine!
+Bien que Wang Lin fût gravement blessé, son cœur de Dao, sa volonté du Dao et ses domaines étaient toujours là. Puis, un changement soudain se produisit! Dans son corps, du Neuf Palais aux Deux Rites, les formes apparurent de manière inattendue... de manière inattendue, elles apparurent aussi dans son corps, à l'image de la Tribulation Céleste!
 
 Le Ji était lui aussi né à l'intérieur de son corps!

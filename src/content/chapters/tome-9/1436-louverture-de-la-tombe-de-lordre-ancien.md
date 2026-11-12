@@ -78,13 +78,13 @@ Des scènes similaires se produisaient dans ce brouillard qui s'étendait sur de
 
 Dans la partie occidentale, une créature gigantesque de la taille d'une planète de culture se trouvait là: le Serpent aux yeux de lune! Sur son dos siégeait le vieil homme au tatouage Yin et Yang. Il observa la brume et ses yeux s'illuminèrent, car il avait lui aussi percé le mystère du brouillard. Sa main traça rapidement un sceau et pointa entre ses sourcils. Trois fragments de son âme originelle s'envolèrent!
 
-Elles s'engouffrèrent dans Wudong Chan, Ji Xiantian et le Serpent aux yeux de lune.
+Elles s'engouffrèrent dans Wu Dongchan, Ji Xiantian et le Serpent aux yeux de lune.
 
-Après cela, le visage du vieil homme pâlit et il se retira prestement. Il rugit: « Wudong Chan, Ji Xiantian et Serpent aux yeux de lune! Vous trois entrerez dans la Tombe de l'Ordre Ancien! »
+Après cela, le visage du vieil homme pâlit et il se retira prestement. Il rugit: « Wu Dongchan, Ji Xiantian et Serpent aux yeux de lune! Vous trois entrerez dans la Tombe de l'Ordre Ancien! »
 
 Le brouillard surgit soudainement et des marques numériques apparurent entre les sourcils du Serpent aux yeux de lune et des deux autres, avant qu'ils ne soient aspirés. Le vieil homme s'échappa rapidement de la zone d'influence. Il réapparut sur une planète de culture lointaine et se mit à cultiver.
 
-Il y avait aussi le vieil homme vêtu de peaux de bêtes que le Vieux Oiseau Vermillon appelait l'Illustre Grande Désolation. Il observait le brouillard, les yeux brillants. Ne possédant aucun avatar, il n'osait pas entrer, avec sa propre culture affaiblie, dans cette tombe où chance et mort coexistent. Tout en reculant, sa main tendue cherchait constamment dans le vide. Peu importe la distance, il saisissait un cultivateur pour le projeter dans la brume.
+Il y avait aussi le vieil homme vêtu de peaux de bêtes que le Vieux Suzaku appelait l'Illustre Grande Désolation. Il observait le brouillard, les yeux brillants. Ne possédant aucun avatar, il n'osait pas entrer, avec sa propre culture affaiblie, dans cette tombe où chance et mort coexistent. Tout en reculant, sa main tendue cherchait constamment dans le vide. Peu importe la distance, il saisissait un cultivateur pour le projeter dans la brume.
 
 Ces cultivateurs mouraient tous misérablement, transformés en squelettes. Cependant, le huitième homme trembla mais ne mourut pas; une marque numérique apparut entre ses sourcils!
 

@@ -12,9 +12,9 @@ Wang Lin fronça les sourcils. Les paroles de l'Oiseau Vermillon de la première
 
 « Votre culture est trop chaotique. Tout d'abord, votre corps de Dieu Ancien... Dieu Ancien, Dieu Ancien... Je ne m'attendais pas à ce qu'un membre de mon clan Oiseau Vermillon devienne un Dieu Ancien! » Une étrange lueur brilla dans les yeux de l'Oiseau Vermillon de la première génération alors qu'il contemplait l'épée de sang devant lui.
 
-« Ce vieil homme ne sait pas grand-chose sur la culture des Dieux Anciens, mais à mon époque, leur pouvoir faisait trembler les cieux. À l'époque, bien que Ye Mo de l'Ordre Antique ne figurât pas parmi les Souverains Célestes, sa culture suffisait à leur inspirer de la crainte... »
+« Ce vieil homme ne sait pas grand-chose sur la culture des Dieux Anciens, mais à mon époque, leur pouvoir faisait trembler les cieux. À l'époque, bien que Dao Gu Ye Mo ne figurât pas parmi les Souverains Célestes, sa culture suffisait à leur inspirer de la crainte... »
 
-« L'Ordre Antique? » Wang Lin fut stupéfait en regardant l'Oiseau Vermillon de la première génération.
+« Dao Gu? » Wang Lin fut stupéfait en regardant l'Oiseau Vermillon de la première génération.
 
 « En raison de ma promesse d'autrefois, je ne peux rien vous dire de plus; ne m'interrogez donc pas davantage. Si l'occasion se présente, vous trouverez la réponse perdue dans le temps. » L'expression de l'Oiseau Vermillon de la première génération semblait abattue.
 

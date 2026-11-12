@@ -40,7 +40,7 @@ Wang Lin prit une profonde inspiration et ferma les yeux. À cet instant, une fl
 
 Les observateurs extérieurs ne pouvaient voir cette flamme, mais la douleur de son âme en proie aux flammes fit trembler Wang Lin lui-même. Il serra les dents et endura la combustion de son âme et de ses obsessions jusqu'à l'autodestruction.
 
-« J'entrerai dans le Dao avec cette obsession, et même la rétribution divine ne pourra me détruire. Qui pourrait m'arrêter?! » Wang Lin redressa soudainement la tête et ouvrit les yeux. La flamme brûlait avec éclat en lui, bien que personne à l'extérieur ne pût la voir.
+« J'entrerai dans le Dao avec cette obsession, et même la Tribulation Céleste ne pourra me détruire. Qui pourrait m'arrêter?! » Wang Lin redressa soudainement la tête et ouvrit les yeux. La flamme brûlait avec éclat en lui, bien que personne à l'extérieur ne pût la voir.
 
 Le temps s'écoulait lentement au sein de l'Épreuve Humaine. La fréquence des visites de Li Muwan au sommet de la montagne avait progressivement augmenté. Chaque fois que Wang Lin la voyait, la douleur de son âme brûlante devenait plusieurs fois plus vive, mais il ne laissait rien paraître. La douceur dans ses yeux était aussi profonde qu'un lac.
 

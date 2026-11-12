@@ -10,23 +10,23 @@ Le soleil se leva tôt ce matin-là, et sa lumière dispersa les ténèbres. Le 
 
 Les beignets sortant de l'huile bouillante, les pains blancs s'échappant de leurs paniers à vapeur et le tofu, accompagnés d'autres collations, faisaient de cette rue un lieu particulièrement vivant.
 
-Le stand de Ceng Shuishan vendait du vin. Bien que ce fût le matin, le vin de la famille Ceng était léger et rafraîchissant. Le consommer à l'aube ne rendait pas ivre; au contraire, il procurait une sensation de vitalité qui le rendait très prisé.
+Le stand de Zeng Shuishan vendait du vin. Bien que ce fût le matin, le vin de la famille Zeng était léger et rafraîchissant. Le consommer à l'aube ne rendait pas ivre; au contraire, il procurait une sensation de vitalité qui le rendait très prisé.
 
-Ceng Shuishan, un homme d'une cinquantaine d'années, se tenait sur le côté avec sa pipe, observant ses commis s'affairer avec diligence. Un sourire apparut sur son visage marqué par les rides.
+Zeng Shuishan, un homme d'une cinquantaine d'années, se tenait sur le côté avec sa pipe, observant ses commis s'affairer avec diligence. Un sourire apparut sur son visage marqué par les rides.
 
-Un homme d'âge moyen, qui venait de s'acheter une cruche de vin, la secoua avant de prendre une longue gorgée. Il sourit au vieux Ceng et dit: « Oncle Ceng, votre vin n'est plus aussi savoureux qu'autrefois. Manquez-vous d'ingrédients? »
+Un homme d'âge moyen, qui venait de s'acheter une cruche de vin, la secoua avant de prendre une longue gorgée. Il sourit au vieux Zeng et dit: « Oncle Zeng, votre vin n'est plus aussi savoureux qu'autrefois. Manquez-vous d'ingrédients? »
 
-Les yeux du vieux Ceng s'écarquillèrent alors qu'il tirait sur sa pipe et renifla: « Balivernes! Le vin de ma famille Ceng... »
+Les yeux du vieux Zeng s'écarquillèrent alors qu'il tirait sur sa pipe et renifla: « Balivernes! Le vin de ma famille Zeng... »
 
-Avant qu'il n'ait pu terminer, l'homme d'âge moyen éclata de rire. « Le vin de votre famille Ceng se transmet depuis mille ans. On raconte même qu'un immortel l'avait goûté et loué. Oncle Ceng, vous répétez cela presque tous les jours. Je dois aller travailler, je n'ai pas le temps d'écouter vos longs discours. » L'homme reprit son vin avec un sourire et partit.
+Avant qu'il n'ait pu terminer, l'homme d'âge moyen éclata de rire. « Le vin de votre famille Zeng se transmet depuis mille ans. On raconte même qu'un immortel l'avait goûté et loué. Oncle Zeng, vous répétez cela presque tous les jours. Je dois aller travailler, je n'ai pas le temps d'écouter vos longs discours. » L'homme reprit son vin avec un sourire et partit.
 
-Le vieux Ceng tira une grande bouffée de sa pipe et grommela: « Que sait un petit morveux? Le vin de ma famille Ceng a bel et bien été bu par un immortel pendant plus de soixante ans, il y a plus de mille ans! »
+Le vieux Zeng tira une grande bouffée de sa pipe et grommela: « Que sait un petit morveux? Le vin de ma famille Zeng a bel et bien été bu par un immortel pendant plus de soixante ans, il y a plus de mille ans! »
 
-Il possédait encore quelques sculptures sur bois vieilles de plus de mille ans. Elles représentaient l'ancêtre de la première génération de la famille Ceng dans la ville de Nuage Flottant, ainsi qu'un immortel au visage flou.
+Il possédait encore quelques sculptures sur bois vieilles de plus de mille ans. Elles représentaient l'ancêtre de la première génération de la famille Zeng dans la ville de Nuage Flottant, ainsi qu'un immortel au visage flou.
 
-Une légende se transmettait de génération en génération au sein de leur lignée. Elle racontait que la famille Ceng n'était pas originaire de la ville de Nuage Flottant, mais qu'elle s'y était installée lors d'une catastrophe causée par une tempête de neige. La rumeur disait que leur ancêtre avait vécu avec cet immortel pendant plus de soixante ans et que ce dernier fut le bienfaiteur qui les avait aidés à s'établir ici.
+Une légende se transmettait de génération en génération au sein de leur lignée. Elle racontait que la famille Zeng n'était pas originaire de la ville de Nuage Flottant, mais qu'elle s'y était installée lors d'une catastrophe causée par une tempête de neige. La rumeur disait que leur ancêtre avait vécu avec cet immortel pendant plus de soixante ans et que ce dernier fut le bienfaiteur qui les avait aidés à s'établir ici.
 
-« L'ancêtre Ceng Daniu vécut jusqu'à l'âge de 137 ans. Même avant de mourir, il se souvenait encore de cet immortel. Cette histoire est transmise depuis des générations, comment pourrait-elle être fausse? » Le vieux Ceng plissa les yeux et tapota sa pipe contre le sol, l'air extrêmement fier.
+« L'ancêtre Zeng Daniu vécut jusqu'à l'âge de 137 ans. Même avant de mourir, il se souvenait encore de cet immortel. Cette histoire est transmise depuis des générations, comment pourrait-elle être fausse? » Le vieux Zeng plissa les yeux et tapota sa pipe contre le sol, l'air extrêmement fier.
 
 Cependant, il se frotta rapidement les yeux pour scruter le ciel, et sa bouche s'entrouvrit de stupeur.
 

@@ -100,7 +100,7 @@ Mais en cet instant, le jade du Classement émit une ondulation violente. Cela n
 
 Presque tous les cultivateurs du Clan Shan Lei sortirent leur propre jade pour consulter les résultats.
 
-La première place était toujours occupée par Maître Spruce, mais son score était passé de 1 900 007 000 à 2 400 009 000!
+La première place était toujours occupée par Yun Shanzi, mais son score était passé de 1 900 007 000 à 2 400 009 000!
 
 Alors que les membres du clan parcouraient la liste, les plus avisés examinèrent le bas du classement et virent immédiatement le nouveau venu qui avait provoqué ce remous!
 

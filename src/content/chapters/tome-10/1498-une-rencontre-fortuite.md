@@ -8,11 +8,11 @@ slug: une-rencontre-fortuite
 ---
 Wang Lin joignit ses mains devant Maître Lu Fu et sourit.
 
-« Lorsque la bataille contre le Royaume Extérieur commencera, je vous rendrai le service d'aujourd'hui. J'espère que le camarade cultivateur Lu Fu ne m'en voudra pas. »
+« Lorsque la bataille contre le Royaume Extérieur commencera, je vous rendrai le service d'aujourd'hui. J'espère que le Daoïste Lu Fu ne m'en voudra pas. »
 
 L'attitude de Wang Lin restait constante; il ne profita pas de la situation pour humilier Maître Lu Fu. Ce dernier réfléchit silencieusement un instant, puis poussa un soupir. Il força un sourire et joignit ses mains face à Wang Lin.
 
-« Le fait qu’un camarade cultivateur comme vous possède une culture aussi puissante est une bénédiction pour le Royaume Intérieur. Ce vieil homme s'avoue vaincu, mais il est seulement perplexe sur un point. Ces deux-là... ces deux cultivateurs du troisième niveau sont originaires de... » Maître Lu Fu ne termina pas sa phrase et se contenta de désigner l'horizon du doigt.
+« Le fait qu’un Daoïste comme vous possède une culture aussi puissante est une bénédiction pour le Royaume Intérieur. Ce vieil homme s'avoue vaincu, mais il est seulement perplexe sur un point. Ces deux-là... ces deux cultivateurs du troisième niveau sont originaires de... » Maître Lu Fu ne termina pas sa phrase et se contenta de désigner l'horizon du doigt.
 
 Wang Lin sourit et hocha la tête.
 
@@ -42,13 +42,13 @@ Après tout, Wang Lin n'était pas encore devenu un véritable cultivateur du tr
 
 « Je n'ai jamais entendu parler du clan Ling Dong, mais le clan du Loup Céleste est une puissance du Royaume Extérieur. Ce Wang Lin n'est vraiment pas simple! Ce qu'il a accompli là-bas doit être phénoménal! » Maître Lu Fu admirait rarement qui que ce soit, mais en cet instant, il ressentit une profonde admiration pour Wang Lin!
 
-Toute la morosité qui l'habitait disparut et il joignit les mains. « Le camarade cultivateur Wang est-il allé dans le Royaume Extérieur? »
+Toute la morosité qui l'habitait disparut et il joignit les mains. « Le Daoïste Wang est-il allé dans le Royaume Extérieur? »
 
 « Je viens tout juste d'en revenir. » Wang Lin remarqua le changement d'attitude de Maître Lu Fu. Ce n'était pas un homme déraisonnable et il n'y avait aucune rancune entre eux. Bien qu'il fût plus fort et possédât deux serviteurs du troisième niveau, il ne ferait preuve d'aucune arrogance; il préférait traiter les autres avec politesse.
 
 « Bien, très bien! Plus tôt, dans le système stellaire de la Mer Yun, la Secte Démon et la Secte Shen ont émis simultanément un ordre scellé. Conformément à l'édit posthume du Seigneur du Royaume Scellé, un message a été transmis aux quatre systèmes stellaires: le Royaume Extérieur montre à nouveau des signes d'invasion de notre monde! Plusieurs cultivateurs du troisième niveau du Royaume Intérieur ont collaboré pour ouvrir la barrière entre les quatre grands systèmes stellaires, ils ne sont donc plus séparés!
 
-« Les quatre grands systèmes stellaires se préparent désormais à la bataille contre le Royaume Extérieur! Ce vieil homme déteste le Royaume Extérieur de toutes ses fibres. Lors de la première invasion, ce vieil homme n'était qu'un petit seigneur céleste du Royaume Céleste du Tonnerre et avait personnellement assisté à cette bataille tragique... Puisque le camarade cultivateur revient tout juste du Royaume Extérieur, vous devez avoir une connaissance approfondie de celui-ci. Ces seules informations nous permettront de comprendre les changements survenus dans le Royaume Extérieur au cours des dizaines de milliers d'années! »
+« Les quatre grands systèmes stellaires se préparent désormais à la bataille contre le Royaume Extérieur! Ce vieil homme déteste le Royaume Extérieur de toutes ses fibres. Lors de la première invasion, ce vieil homme n'était qu'un petit seigneur céleste du Royaume Céleste du Tonnerre et avait personnellement assisté à cette bataille tragique... Puisque le Daoïste revient tout juste du Royaume Extérieur, vous devez avoir une connaissance approfondie de celui-ci. Ces seules informations nous permettront de comprendre les changements survenus dans le Royaume Extérieur au cours des dizaines de milliers d'années! »
 
 La plupart des cultivateurs du Royaume Intérieur ignoraient l'existence de la Formation de Scellement du Royaume. Seule une infime minorité en était informée, mais ils n'osaient pas sortir. Durant des dizaines de milliers d'années, toutes les informations avaient été bloquées, ce qui serait fatal pour la guerre imminente!
 
@@ -56,7 +56,7 @@ Les paroles de Wang Lin dissipèrent toute tension et Maître Lu Fu éclata de r
 
 Wang Lin sourit et dit: « J'ai effectivement quelques informations sur le Royaume Extérieur. »
 
-« Le camarade cultivateur Wang est-il occupé? Sinon, nous pourrions discuter un moment. Ce vieil homme possède encore du bon vin du Royaume Céleste que je n'ai pas envie de boire seul. Que diriez-vous de partager un verre avec moi? » Maître Lu Fu rit et fit un geste vers Wang Lin.
+« Le Daoïste Wang est-il occupé? Sinon, nous pourrions discuter un moment. Ce vieil homme possède encore du bon vin du Royaume Céleste que je n'ai pas envie de boire seul. Que diriez-vous de partager un verre avec moi? » Maître Lu Fu rit et fit un geste vers Wang Lin.
 
 Il semblait avoir oublié qu'il n'allait pas raccompagner Wang Lin.
 
@@ -78,7 +78,7 @@ Une multitude d'ombres célestes apparurent et s'inclinèrent devant Wang Lin.
 
 Toutes ces illusions étaient si grandioses qu'il était difficile de les décrire avec des mots. Cela révélait l'intention de Maître Lu Fu: la révérence de ces innombrables célestes était sa façon de présenter ses excuses à Wang Lin pour avoir tenté de l'entraver.
 
-« Camarade Wang Lin, par ici! » Le rire de Maître Lu Fu résonna et Wang Lin joignit les mains en retour. Tous deux pénétrèrent ensemble dans le vortex.
+« Daoïste Wang Lin, par ici! » Le rire de Maître Lu Fu résonna et Wang Lin joignit les mains en retour. Tous deux pénétrèrent ensemble dans le vortex.
 
 Des montagnes célestes apparurent, remplissant rapidement le vortex. Puis, au centre, un lac fantomatique se matérialisa. De nombreuses célestes s'y amusaient. La brume s'élevait, et leurs silhouettes se dessinaient à travers elle, les rendant extrêmement charmantes.
 
@@ -94,17 +94,17 @@ Wang Lin saisit sa propre coupe et l'examina avec son Sens Divin avant de boire.
 
 Wang Lin s'exclama: « Quel excellent vin! »
 
-« Camarade Wang, ce vieil homme souhaite savoir quelles expériences vous avez vécues dans le Royaume Extérieur. Pouvez-vous nous en faire part? » Maître Lu Fu posa sa coupe et sourit.
+« Daoïste Wang, ce vieil homme souhaite savoir quelles expériences vous avez vécues dans le Royaume Extérieur. Pouvez-vous nous en faire part? » Maître Lu Fu posa sa coupe et sourit.
 
 Wang Lin sourit et évoqua brièvement quelques événements survenus dans le Royaume Extérieur.
 
-Le calme de Wang Lin fit briller les yeux de Maître Lu Fu. Cela fut particulièrement vrai lorsqu'il parla de la destruction du Clan Tonnerre Dispersé, des sept millions de mondes et de sa rencontre avec le Daoïste Esprit Dispersé.
+Le calme de Wang Lin fit briller les yeux de Maître Lu Fu. Cela fut particulièrement vrai lorsqu'il parla de la destruction du Clan Shan Lei, des sept millions de mondes et de sa rencontre avec le Daoïste Esprit Dispersé.
 
 Maître Lu Fu but une coupe de vin, son regard devenant sérieux.
 
 « Sept millions de mondes... Quel homme admirable, ce Daoïste Esprit Dispersé! Bien qu'il n'ait pas atteint le troisième niveau, ses actes défient les cieux! »
 
-Ling Dong et Zhou Jin savaient que la destruction du Clan Tonnerre Dispersé était liée à Wang Lin, mais ignoraient les détails. En entendant cela, ils furent tous deux profondément émus.
+Ling Dong et Zhou Jin savaient que la destruction du Clan Shan Lei était liée à Wang Lin, mais ignoraient les détails. En entendant cela, ils furent tous deux profondément émus.
 
 Sous un autre angle, la situation paraissait totalement différente. Zhou Jin et Ling Dong se regardèrent et réfléchirent en silence.
 
@@ -112,7 +112,7 @@ Maître Yan Leizi et Lie Yunzi entendirent également les paroles de Wang Lin. I
 
 Maître Yan Leizi hésita un instant avant de joindre ses mains: « Senior Wang Lin, avez-vous revu le Daoïste Esprit Dispersé par la suite? »
 
-Wang Lin secoua la tête. Après la destruction du Clan Tonnerre Dispersé, il avait été traqué et avait dû fuir précipitamment, n'ayant plus eu aucun contact avec le Daoïste Esprit Dispersé.
+Wang Lin secoua la tête. Après la destruction du Clan Shan Lei, il avait été traqué et avait dû fuir précipitamment, n'ayant plus eu aucun contact avec le Daoïste Esprit Dispersé.
 
 Puis Wang Lin parla de la poursuite menée par le Conseil Souverain dans le Royaume Extérieur. Ces récits palpitants firent briller les yeux de Maître Lu Fu. Il comprit que toutes les expériences de Wang Lin étaient authentiques, et il réalisa qu'il avait dû être incroyablement fort pour survivre à un tel calvaire.
 

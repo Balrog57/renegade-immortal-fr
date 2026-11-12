@@ -20,7 +20,7 @@ Après avoir constaté la présence du Clan Huo Que dans les Terres Déchues, Wa
 
 Le vieil homme du Clan Huo Que entra au deuxième étage et s'assit nonchalamment. Ses yeux s'illuminèrent et il commença à observer Wang Lin. Bien qu'il paraisse calme, il était extrêmement vigilant.
 
-Il connaissait naturellement le Patriarche du Scorpion Noir et savait quel devrait être son niveau de culture. Pourtant, même un homme de son rang n'était pas qualifié pour s'asseoir et se tenait là, tel un serviteur.
+Il connaissait naturellement le Patriarche du Clan An Xie et savait quel devrait être son niveau de culture. Pourtant, même un homme de son rang n'était pas qualifié pour s'asseoir et se tenait là, tel un serviteur.
 
 Cela rendait Wang Lin profondément mystérieux à ses yeux.
 
@@ -66,7 +66,7 @@ La femme charmante s'inclina respectueusement, puis sortit un morceau de jade qu
 
 Le mur commença immédiatement à onduler avant de devenir transparent, révélant clairement l'intérieur. Derrière la paroi, trois pierres blanches de la taille d'un poing tournaient lentement sur elles-mêmes.
 
-La femme baissa la tête et murmura: « Senior, mon Clan Long Jia ne dispose pas de beaucoup de Cristaux de Mutation de Feu Déchaîné à vendre; il ne reste que ces trois pièces... À l'origine, le Compagnon de Culture He était venu les échanger en premier. Puisque le Senior les convoite également, cela complique la tâche de ce junior. »
+La femme baissa la tête et murmura: « Senior, mon Clan Long Jia ne dispose pas de beaucoup de Cristaux de Mutation de Feu Déchaîné à vendre; il ne reste que ces trois pièces... À l'origine, le Daoïste He était venu les échanger en premier. Puisque le Senior les convoite également, cela complique la tâche de ce junior. »
 
 Le vieil homme du Clan Huo Que regarda les trois pierres blanches et soupira intérieurement. Il joignit les mains: « Puisque le Senior les désire, comment ce junior oserait-il rivaliser? »
 
@@ -80,7 +80,7 @@ Wang Lin demanda lentement: « Est-ce suffisant pour les cristaux? »
 
 La femme prit une profonde inspiration, scruta de nouveau les pilules, puis hocha la tête: « C'est suffisant! »
 
-À cet instant précis, le vieil homme du Clan Huo Que intervint: « Compagnon de Culture Zhao, ce vieux pourrait-il examiner ces pilules? » Bien que son expression restât calme, son cœur était en plein tumulte. En voyant les pilules, il ressentit une aura qui ébranla ses fondations.
+À cet instant précis, le vieil homme du Clan Huo Que intervint: « Daoïste Zhao, ce vieux pourrait-il examiner ces pilules? » Bien que son expression restât calme, son cœur était en plein tumulte. En voyant les pilules, il ressentit une aura qui ébranla ses fondations.
 
 La femme regarda le vieil homme avec hésitation. Cependant, voyant Wang Lin rester immobile, les yeux clos comme s'il n'en avait cure, elle acquiesça et lui tendit une pilule.
 
@@ -98,7 +98,7 @@ La femme hocha la tête rapidement, prit les trois pilules et descendit précipi
 
 Wang Lin n'était pas pressé. Un instant plus tard, des pas résonnèrent et la femme remonta, suivie par un homme d'âge moyen. Ce dernier, aux cheveux violets, portait une robe daoïste et dégageait une pression imposante sans pour autant manifester de colère. La femme charmante le suivait avec un profond respect.
 
-Dès l'apparition de l'homme, le Patriarche du Scorpion Noir, resté derrière Wang Lin, s'approcha de lui et murmura: « Le jeune maître du Clan Long Jia. Étrange, il jouit d'un statut très élevé et se montre rarement ici. »
+Dès l'apparition de l'homme, le Patriarche du Clan An Xie, resté derrière Wang Lin, s'approcha de lui et murmura: « Le jeune maître du Clan Long Jia. Étrange, il jouit d'un statut très élevé et se montre rarement ici. »
 
 Une fois arrivé au deuxième étage, l'homme rit. Sans même accorder un regard au vieil homme du Clan Huo Que, il joignit les mains devant Wang Lin: « J'accepte les pilules du Senior. Voici les trois Cristaux de Mutation de Feu Déchaîné. »
 

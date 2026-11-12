@@ -54,7 +54,7 @@ Obtenir des informations était crucial pour décrocher un siège d'Ancien. Apr�
 
 Le nom de Tan Lang était extrêmement célèbre. Le fait qu'il aide le Clan Yun Dun suffisait à attirer l'attention de tous les autres clans.
 
-« Ce vieil homme a entendu dire que le Compagnon Cultivateur Tan Lang est devenu un Ancien honorifique du Clan Yun Dun. Le Compagnon Cultivateur Tan Lang m'a aidé autrefois, je voulais donc lui rendre visite. Maître Yun Dun, pourquoi le Compagnon Cultivateur Tan Lang n'est-il pas venu? » La personne qui prit la parole était un vieil homme vêtu d'une robe pourpre. Son visage était pâle, mais sa voix était puissante.
+« Ce vieil homme a entendu dire que le Daoïste Tan Lang est devenu un Ancien honorifique du Clan Yun Dun. Le Daoïste Tan Lang m'a aidé autrefois, je voulais donc lui rendre visite. Maître Yun Dun, pourquoi le Daoïste Tan Lang n'est-il pas venu? » La personne qui prit la parole était un vieil homme vêtu d'une robe pourpre. Son visage était pâle, mais sa voix était puissante.
 
 Trois arcs marquaient son front, semblables à des ondes de l'eau.
 
@@ -66,9 +66,9 @@ Le vieil homme qui venait de parler vit cette scène, et ses pupilles se contrac
 
 L'expression de Wang Lin resta calme et il hocha légèrement la tête.
 
-« Qui ose prononcer le nom de ce vieil homme?! » lança froidement le Patriarche des Cours d'Eau, le 13ème Ancien Déchu. Son regard fut comme un éclair, se posant sur Wang Lin et le Patriarche du Clan An Xie.
+« Qui ose prononcer le nom de ce vieil homme?! » lança froidement le Patriarche du Clan Chuan He, le 13ème Ancien Déchu. Son regard fut comme un éclair, se posant sur Wang Lin et le Patriarche du Clan An Xie.
 
-Les yeux du Patriarche des Cours d'Eau s'illuminèrent et il ajouta lentement: « Petit scorpion, pourquoi n'es-tu pas venu te prosterner devant ce vieil homme? » Cependant, son regard restait verrouillé sur Wang Lin.
+Les yeux du Patriarche du Clan Chuan He s'illuminèrent et il ajouta lentement: « Petit scorpion, pourquoi n'es-tu pas venu te prosterner devant ce vieil homme? » Cependant, son regard restait verrouillé sur Wang Lin.
 
 L'expression du Patriarche du Clan An Xie changea radicalement. Exiger qu'il s'agenouille devant tout le monde était une insulte monumentale!
 
@@ -76,7 +76,7 @@ Le tumulte attira l'attention des cultivateurs environnants, qui tous se tournè
 
 L'homme d'âge moyen du Clan Hun She sourit et secoua la tête: « Petit scorpion, même si tu veux grimper les échelons, tu devrais faire attention à ceux que tu choisis de suivre. Mais je ne peux t'en blâmer, les scorpions qui ne savent que se cacher sous terre sont forcément myopes. »
 
-« Quoi, tu ne viens toujours pas? C'est bien. Toi, viens ici et agenouille-toi! » Le 13ème Ancien Déchu, le Patriarche des Cours d'Eau, désigna directement Wang Lin du doigt.
+« Quoi, tu ne viens toujours pas? C'est bien. Toi, viens ici et agenouille-toi! » Le 13ème Ancien Déchu, le Patriarche du Clan Chuan He, désigna directement Wang Lin du doigt.
 
 Après qu'il eut parlé, l'expression du Patriarche du Clan An Xie se détendit pour laisser place à une pointe de dérision. Non seulement lui, mais le Patriarche du Clan Yun Dun leva également la tête, ses yeux brillant d'une moquerie mêlée à un profond sentiment de fierté cachée.
 
@@ -86,7 +86,7 @@ Les yeux du 13ème Ancien Déchu s'illuminèrent. Il vit la manière dont le Pat
 
 En tant que 13ème Ancien Déchu, il devait faire une démonstration de force pour assurer sa réélection. Bien que le Clan An Xie fût petit, le Clan Yun Dun ne l'était pas. Avec la réputation de Tan Lang, ils étaient l'outil idéal pour étaler sa puissance.
 
-D'après ce que le vieil homme savait, Wang Lin était un envoyé de Tan Lang; utiliser Wang Lin pour s'imposer revenait donc à utiliser Tan Lang lui-même! Pourtant, la moquerie dans les yeux des Patriarches des Scorpions Noirs et de l'Évasion Nuageuse lui donna le pressentiment que quelque chose n'allait pas.
+D'après ce que le vieil homme savait, Wang Lin était un envoyé de Tan Lang; utiliser Wang Lin pour s'imposer revenait donc à utiliser Tan Lang lui-même! Pourtant, la moquerie dans les yeux des Patriarches du Clan An Xie et du Clan Yun Dun lui donna le pressentiment que quelque chose n'allait pas.
 
 « Cet homme doit être l'envoyé de Tan Lang. Bien que Tan Lang soit puissant, je suis un Ancien Déchu, il n'y a aucune raison de craindre quoi que ce soit! »
 
@@ -102,7 +102,7 @@ Les anciens et les patriarches étaient de vieux renards; ils devinaient plus ou
 
 À leur tête se trouvait un jeune homme, accompagné d'anciens ayant atteint le stade du Fléau Céleste. Ils arrivèrent avec un élan puissant et se placèrent aux côtés du groupe de Wang Lin.
 
-Le jeune homme s'avança rapidement vers Wang Lin, s'inclina profondément et joignit les mains dans un geste de respect extrême: « Le Junior Patriarche du Dragon Blindé salue le Senior! »
+Le jeune homme s'avança rapidement vers Wang Lin, s'inclina profondément et joignit les mains dans un geste de respect extrême: « Le Patriarche du Clan Long Jia salue le Senior! »
 
 Derrière lui, plus de mille cultivateurs du Clan Long Jia regardèrent tous Wang Lin avec respect et une pointe de crainte. Ils joignirent les mains en chœur: « Salutations, Senior! »
 

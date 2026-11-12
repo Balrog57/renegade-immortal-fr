@@ -8,7 +8,7 @@ slug: pas-de-soucis-quant-aux-consequences
 ---
 Qing Lin regarda Wang Lin et dit lentement: « Le Maître a été gravement blessé à l'époque et a dû affronter Bei Luo et Ta Jia par la suite. Finalement, Ta Jia a envahi mon corps et me tourmente jusqu'à aujourd'hui... »
 
-« Bien que je ne sois pas à bout de forces, j'ai besoin de me retirer en culture pour guérir. J'ai également appris l'état du Système Stellaire du Vide Brillant par ton frère aîné Wang Wei. Il est plongé dans un chaos total... »
+« Bien que je ne sois pas à bout de forces, j'ai besoin de me retirer en culture pour guérir. J'ai également appris l'état du Domaine Stellaire Kun Xu par ton Senior frère Wang Wei. Il est plongé dans un chaos total... »
 
 « Ce nouveau Royaume Céleste de la Pluie deviendra une terre pour mes disciples. Le sceau de la porte du Royaume Céleste de la Pluie vient d'être activé. Désormais, plus personne d'autre ne pourra y entrer. »
 

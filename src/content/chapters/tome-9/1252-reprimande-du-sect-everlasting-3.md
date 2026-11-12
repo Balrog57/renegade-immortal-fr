@@ -26,7 +26,7 @@ Les deux femmes se croisèrent un instant, Wang Shanshan faisant office d'interm
 
 Mu Bingmei fixa Li Qianmei longuement avant de détourner les yeux et de dire d'une voix douce mais glaciale: « Dame Li est en effet d'une beauté naturelle, et votre culture est extraordinaire. »
 
-Li Qianmei était quelque peu confuse de voir cette étrange et belle femme la dévisager ainsi. Au moment où le regard de Mu Bingmei se détourna, Li Qianmei répondit doucement: « En termes de beauté, je ne peux vraiment pas rivaliser avec la Compagnonne Cultivatrice Mu. »
+Li Qianmei était quelque peu confuse de voir cette étrange et belle femme la dévisager ainsi. Au moment où le regard de Mu Bingmei se détourna, Li Qianmei répondit doucement: « En termes de beauté, je ne peux vraiment pas rivaliser avec la Daoïste Mu. »
 
 Les membres de la Secte Éternelle étaient de plus en plus exaltés par la compétition. Cependant, ce qu'ils attendaient, c'était l'individu dont les deux Anciens avaient parlé.
 
@@ -68,7 +68,7 @@ Lâchant un soupir, Lu Yanfei vola tel un papillon vers l'arène. Elle y atterri
 
 « Même s'il ne vient pas, je dois mener ce combat jusqu'au bout! »
 
-C'était une affaire privée de la Secte Éternelle, Li Qianmei n'avait donc aucune raison d'intervenir. Elle observa silencieusement la silhouette de Lu Yanfei. Cependant, si la Secte Gui Yuan devait être dissoute, elle s'était juré de ramener tous ses membres à la Secte Brise-Ciel.
+C'était une affaire privée de la Secte Éternelle, Li Qianmei n'avait donc aucune raison d'intervenir. Elle observa silencieusement la silhouette de Lu Yanfei. Cependant, si la Secte Gui Yuan devait être dissoute, elle s'était juré de ramener tous ses membres à la Secte Po Tian.
 
 Dès que Lu Yuncong et Lu Yanfei atteignirent l'arène, un silence s'installa et tous les regards se tournèrent vers eux. À cause d'une seule personne de la Secte Gui Yuan, ils avaient captivé l'attention générale. Pour la première fois, une si petite secte était remarquée par les innombrables cultivateurs présents.
 
@@ -78,11 +78,11 @@ Tous les regards n'étaient pas bienveillants. C'était le cas de Lu Yingjie, de
 
 « Cet homme ridicule... Étiez-vous tous si certains qu'il viendrait? Je veux voir si cet individu est aussi incroyable que vous le prétendez! » Lu Yingjie serra les poings.
 
-Plus loin encore, au sein de la Secte Recherchant la Montagne, l'atmosphère était lugubre. Zhao Long avait perdu son corps et ne possédait plus que son âme originelle. Il flottait, l'air abattu, aux côtés du Maître de la Secte et du Grand Ancien, mais son regard venimeux surpassait de loin celui de Lu Yingjie.
+Plus loin encore, au sein de la Secte Xun Luan, l'atmosphère était lugubre. Zhao Long avait perdu son corps et ne possédait plus que son âme originelle. Il flottait, l'air abattu, aux côtés du Maître de la Secte et du Grand Ancien, mais son regard venimeux surpassait de loin celui de Lu Yingjie.
 
 « Frère Zhao peut être rassuré, je ne laisserai pas passer cela! S'il ne vient pas, il aura de la chance; mais s'il vient, je le tuerai sur-le-champ! »
 
-« Même si Li Qianmei tente de m'arrêter, elle n'est qu'une personne seule; elle ne représente pas la Secte Brise-Ciel! Nous ne l'offenserons pas, mais cet homme mystérieux nommé Lu doit mourir! »
+« Même si Li Qianmei tente de m'arrêter, elle n'est qu'une personne seule; elle ne représente pas la Secte Po Tian! Nous ne l'offenserons pas, mais cet homme mystérieux nommé Lu doit mourir! »
 
 Ce qui s'était passé sur la tribune était trop loin pour être entendu; seuls les membres de la Secte Éternelle en étaient informés. Ils n'avaient perçu qu'une image vague, sans pouvoir distinguer clairement les détails.
 
@@ -90,7 +90,7 @@ Yuan Fei, du rang 6, fixait également les deux combattants avec un sourire mép
 
 Lu Yanfei se tenait là, calme, bien qu'un sentiment de solitude l'envahisse. Elle se souciait peu des innombrables regards posés sur elle, mais la personne qu'elle attendait depuis cent ans n'était toujours pas là.
 
-Elle leva la tête vers le ciel. Des larmes brillaient dans ses yeux, mais ne coulèrent pas. Elle se tourna vers Lu Yuncong et dit doucement: « Compagnon Cultivateur Lu, je vous prie de m'accorder vos conseils. »
+Elle leva la tête vers le ciel. Des larmes brillaient dans ses yeux, mais ne coulèrent pas. Elle se tourna vers Lu Yuncong et dit doucement: « Daoïste Lu, je vous prie de m'accorder vos conseils. »
 
 Lu Yuncong détourna également son regard du ciel, comme s'il attendait lui aussi. Il regarda Lu Yanfei et déclara: « Je ne me retiendrai pas dans ce combat. Soyez prudente! »
 

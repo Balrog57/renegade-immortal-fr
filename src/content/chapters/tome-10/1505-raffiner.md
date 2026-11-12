@@ -68,9 +68,9 @@ Bien que la Bête des Limbes soit devenue éthérée et se soit enfuie rapidemen
 
 Wang Lin percevait clairement que ses sceaux sur son corps et son âme se dissipaient rapidement. Bientôt, ils disparaîtraient totalement et son lien avec la créature serait rompu!
 
-Le tonnerre gronda et une flamme aux neuf couleurs jaillit de son œil gauche. Au même instant, un fantôme d'Oiseau Vermillon apparut derrière lui et poussa un cri perçant!
+Le tonnerre gronda et une flamme aux neuf couleurs jaillit de son œil gauche. Au même instant, un fantôme de Suzaku apparut derrière lui et poussa un cri perçant!
 
-L'apparition de l'Oiseau Vermillon signifiait que Wang Lin avait déployé toute l'essence du feu contenue dans son corps. Après avoir fusionné avec la tempête de flammes aux neuf couleurs, l'Oiseau Vermillon s'élança vers les 800 millions de pieds d'espace en contrebas.
+L'apparition de Suzaku signifiait que Wang Lin avait déployé toute l'essence du feu contenue dans son corps. Après avoir fusionné avec la tempête de flammes aux neuf couleurs, Suzaku s'élança vers les 800 millions de pieds d'espace en contrebas.
 
 En un éclair, le monde devint une mer de feu! Le tonnerre habitait le feu et le feu habitait le tonnerre. L'aura du Fourneau de l'Empereur commença à raffiner ces 800 millions de pieds de domaine stellaire!
 

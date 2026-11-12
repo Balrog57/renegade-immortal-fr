@@ -56,7 +56,7 @@ Wang Lin sourit. Il n'avait jamais vu une telle expression sur le visage de Li M
 
 Li Muwan prit rapidement la fuite et descendit la montagne. Ce n'est qu'une fois hors de la montagne qu'elle se détendit et regarda une dernière fois le sommet.
 
-« Ma Senior Sister avait dit que tous ces vieux monstres ont des manies bizarres, certains aiment même cultiver dans des fours de culture... Il m'a fait mourir de peur! Ce vieux monstre est apparu sans un bruit et m'a emmenée au sommet. Humph, si je n'avais pas réagi vite en mentionnant mon Maître, j'aurais pu être en danger... Pourtant, ce vieux monstre avait l'air très jeune et ne semblait pas méchant... Je réfléchis peut-être trop. »
+« Ma Senior sœur avait dit que tous ces vieux monstres ont des manies bizarres, certains aiment même cultiver dans des fours de culture... Il m'a fait mourir de peur! Ce vieux monstre est apparu sans un bruit et m'a emmenée au sommet. Humph, si je n'avais pas réagi vite en mentionnant mon Maître, j'aurais pu être en danger... Pourtant, ce vieux monstre avait l'air très jeune et ne semblait pas méchant... Je réfléchis peut-être trop. »
 
 Après avoir marmonné ces mots, Li Muwan partit rapidement.
 
@@ -120,7 +120,7 @@ C'était la terre de son âme. Bien que le vieux Oiseau Vermillon fût puissant,
 
 Au moment même où son cri s'éteignait, la voix de Wang Lin pénétra dans le vortex.
 
-« Durant toute ma vie, je n'ai jamais abandonné les sentiments qui habitent mon cœur. Au stade Ascendant, j'ai choisi de déclencher la rétribution divine plutôt que de renoncer à eux. Brûler ce monde n'est pas l'unique moyen de créer la graine de feu immortel dans mon âme! »
+« Durant toute ma vie, je n'ai jamais abandonné les sentiments qui habitent mon cœur. Au stade Ascendant, j'ai choisi de déclencher la Tribulation Céleste plutôt que de renoncer à eux. Brûler ce monde n'est pas l'unique moyen de créer la graine de feu immortel dans mon âme! »
 
 « Si les cieux exigent que je brûle ce monde, alors je défierai les cieux. Je suivrai ma propre voie et, au lieu de consumer ce monde, j'utiliserai mon âme pour créer le feu du karma! »
 

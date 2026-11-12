@@ -32,7 +32,7 @@ Ces intentions du Dao étaient infinies; en affluant, elles soulevèrent toute l
 
 Alors que Wang Lin agitait sa main droite, les intentions du Dao formèrent un vortex gigantesque. Cela força le vieil homme à reprendre une expression sérieuse et à interrompre sa main géante.
 
-« Je contemple le Dao et mon esprit s'est égaré par mégarde. Je n'avais nullement l'intention de perturber la culture de ce Compagnon Cultivateur! » Le corps de Wang Lin était entouré d'intentions du Dao infinies, tandis que des intentions encore plus chaotiques s'accumulaient pour protéger son image mentale.
+« Je contemple le Dao et mon esprit s'est égaré par mégarde. Je n'avais nullement l'intention de perturber la culture de ce Daoïste! » Le corps de Wang Lin était entouré d'intentions du Dao infinies, tandis que des intentions encore plus chaotiques s'accumulaient pour protéger son image mentale.
 
 Les pupilles du vieil homme se rétractèrent alors qu'il fixait la silhouette illusoire de Wang Lin. Il n'avait jamais vu un sort mental capable de condenser une telle quantité d'intentions du Dao chaotique.
 

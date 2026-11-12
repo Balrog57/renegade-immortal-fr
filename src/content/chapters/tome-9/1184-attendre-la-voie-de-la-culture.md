@@ -56,25 +56,25 @@ La peur ne quittait pas les yeux de Cang Songzi lorsqu'il répondit d'une voix r
 
 « Cang Songzi, qu'est-ce que cet endroit, au juste?! » La vieille femme en vert affichait une expression sombre en fixant Cang Songzi. Étant restée juste à côté du garçon, elle avait vécu la scène avec une clarté absolue.
 
-« Le compagnon cultivateur Duanmu n'a pas écouté les conseils, hélas. » Le vieil homme nommé Pang, dont l'effroi persistait, secoua la tête.
+« Le Daoïste Duanmu n'a pas écouté les conseils, hélas. » Le vieil homme nommé Pang, dont l'effroi persistait, secoua la tête.
 
 « Je ne sais pas ce que c'est. J'appelle cet endroit le Royaume aux Sept Couleurs! Et cet homme en robe grise s'appelle le Perdu, j'en suis certain.
 
-« Dans le Royaume aux Sept Couleurs, les Perdus ne sont pas nombreux. S'ils apparaissent, tant que vous ne déployez pas votre sens divin et que vous ne bougez pas, il n'y a aucun danger. Mais si vous bougez, vous finirez comme le compagnon cultivateur Duanmu! » déclara Cang Songzi d'un ton solennel.
+« Dans le Royaume aux Sept Couleurs, les Perdus ne sont pas nombreux. S'ils apparaissent, tant que vous ne déployez pas votre sens divin et que vous ne bougez pas, il n'y a aucun danger. Mais si vous bougez, vous finirez comme le Daoïste Duanmu! » déclara Cang Songzi d'un ton solennel.
 
 Wang Lin se leva. Il regarda Cang Songzi et dit calmement: « Il n'y avait pas tant de Perdus ici auparavant, mais depuis votre venue, leur nombre a augmenté. »
 
 La vieille femme en vert ricana sans toutefois prendre la parole.
 
-L'expression de Chen Tianjun était sombre alors qu'il fixait Cang Songzi et ajouta lentement: « Compagnon cultivateur Cang Songzi, vous êtes déjà venu ici deux fois. Avez-vous laissé quelques personnes devenir de nouveaux Perdus à chaque voyage? »
+L'expression de Chen Tianjun était sombre alors qu'il fixait Cang Songzi et ajouta lentement: « Daoïste Cang Songzi, vous êtes déjà venu ici deux fois. Avez-vous laissé quelques personnes devenir de nouveaux Perdus à chaque voyage? »
 
 Le visage de Cang Songzi s'assombrit et il resta silencieux un long moment. Puis, il hocha la tête et dit amèrement: « Cet homme en gris était un ami qui m'accompagnait lors de ma première venue. Il a été emporté par un Perdu. »
 
 Chen Tianjun laissa échapper un froid renâclement: « Venir ici était une erreur. Je renonce! » Sur ces mots, il fit demi-tour et repartit d'où ils venaient, disparaissant sans laisser de trace.
 
-Cang Songzi ne chercha pas à l'arrêter. Après le départ de Chen Tianjun, il reprit lentement: « Sans moi pour guider la voie, il sera incapable de rentrer. Je ne pensais pas que nous rencontrerions un Perdu si tôt. Compagnons cultivateurs Lu et Zhao, je connais une grotte de culture située entre les régions intérieure et extérieure de ce Royaume aux Sept Couleurs.
+Cang Songzi ne chercha pas à l'arrêter. Après le départ de Chen Tianjun, il reprit lentement: « Sans moi pour guider la voie, il sera incapable de rentrer. Je ne pensais pas que nous rencontrerions un Perdu si tôt. Daoïstes Lu et Zhao, je connais une grotte de culture située entre les régions intérieure et extérieure de ce Royaume aux Sept Couleurs.
 
-« Vous connaissez tous le propriétaire de cette grotte. C'était le disciple principal de la Secte Brise-Ciel il y a 18 000 ans: Sima Mo! »
+« Vous connaissez tous le propriétaire de cette grotte. C'était le disciple principal de la Secte Po Tian il y a 18 000 ans: Sima Mo! »
 
 L'expression de la vieille femme en vert resta de marbre, comme si elle ne l'avait pas entendu.
 
@@ -88,19 +88,19 @@ Wang Lin l'attrapa et l'examina avec son sens divin avant de le passer à la vie
 
 « J'ai trouvé ce jade ici par le passé, c'est pourquoi j'en suis si sûr », expliqua calmement Cang Songzi. Cependant, voyant que leurs expressions n'avaient pas changé et qu'ils n'acceptaient pas de poursuivre l'exploration, il fronça les sourcils.
 
-« Compagnon cultivateur Zhao, à partir de maintenant, le compagnon Pang et moi vous donnerons toutes nos parts sur les bêtes féroces que nous abattrons. De plus, je vous promets que vous pourrez choisir dix objets en priorité dans l'endroit dont je vous ai parlé. »
+« Daoïste Zhao, à partir de maintenant, le Daoïste Pang et moi vous donnerons toutes nos parts sur les bêtes féroces que nous abattrons. De plus, je vous promets que vous pourrez choisir dix objets en priorité dans l'endroit dont je vous ai parlé. »
 
 La vieille femme en vert hésita et demanda: « Quel est votre degré de confiance pour pénétrer dans ce lieu? »
 
-Cang Songzi réfléchit un instant et répondit: « Avec l'aide de vous deux, compagnons Lu et Zhao, j'ai 60 % de chances de réussir. »
+Cang Songzi réfléchit un instant et répondit: « Avec l'aide de vous deux, Daoïstes Lu et Zhao, j'ai 60 % de chances de réussir. »
 
 « D'accord! » La vieille femme en vert ferma les yeux un instant puis hocha la tête.
 
-Cang Songzi regarda Wang Lin et dit: « L'endroit dont je parlais avec le compagnon Zhao se trouve dans la partie intérieure de ce Royaume aux Sept Couleurs. Bien que périlleux, la récolte y sera plus abondante. D'après les indices que j'ai recueillis, de nombreuses âmes de bêtes de rang 8 à 13 y sont scellées. J'ai préparé suffisamment d'herbes pour produire une grande quantité de pilules, si le temps nous le permet. Si le compagnon cultivateur Lu accepte, vous pourrez également choisir dix objets en priorité. »
+Cang Songzi regarda Wang Lin et dit: « L'endroit dont je parlais avec le Daoïste Zhao se trouve dans la partie intérieure de ce Royaume aux Sept Couleurs. Bien que périlleux, la récolte y sera plus abondante. D'après les indices que j'ai recueillis, de nombreuses âmes de bêtes de rang 8 à 13 y sont scellées. J'ai préparé suffisamment d'herbes pour produire une grande quantité de pilules, si le temps nous le permet. Si le Daoïste Lu accepte, vous pourrez également choisir dix objets en priorité. »
 
 Wang Lin songeait en silence. Il savait qu'il était impossible que l'objectif de Cang Songzi soit aussi simple; compte tenu de sa ruse, cet homme ne révélerait jamais ses véritables intentions.
 
-Cang Songzi reprit: « Compagnon cultivateur Lu, je peux vous emmener dans quelques lieux sûrs peuplés de bêtes de brume pour récolter tous les cristaux d'origine qui s'y trouvent. De plus, je ne prendrai pas la moindre chose dans la grotte de Sima Mo. »
+Cang Songzi reprit: « Daoïste Lu, je peux vous emmener dans quelques lieux sûrs peuplés de bêtes de brume pour récolter tous les cristaux d'origine qui s'y trouvent. De plus, je ne prendrai pas la moindre chose dans la grotte de Sima Mo. »
 
 « Récoltons d'abord les cristaux d'origine », dit Wang Lin en regardant Cang Songzi.
 
@@ -114,7 +114,7 @@ Il prit une profonde inspiration et projeta délicatement cette poussière vers 
 
 À cet instant précis, un rugissement jaillit du brouillard et une créature ressemblant à une tortue passa la tête. Elle aspira la poussière de jade céleste.
 
-Cang Songzi sortit d'autres jades célestes qu'il réduisit en poudre et murmura doucement: « Compagnon cultivateur Pang. »
+Cang Songzi sortit d'autres jades célestes qu'il réduisit en poudre et murmura doucement: « Daoïste Pang. »
 
 Le vieil homme nommé Pang, ayant déjà collaboré maintes fois avec Cang Songzi, se précipita avec habileté dans la brume. La bête de brume à l'allure de tortue tourna la tête, hésitante, mais une nouvelle pluie de poussière de jade céleste l'atteignit. L'animal la dévora aussitôt.
 
@@ -130,6 +130,6 @@ Il ne cessa de disperser cette poudre qu'après avoir reculé de plus de 10 000 
 
 En utilisant la même méthode, ils trompèrent davantage de bêtes féroces et obtinrent près de 20 000 cristaux d'origine en retour. Cang Songzi s'arrêta alors pour revenir vers le passage étroit.
 
-« Sur le chemin du retour, je récolterai plus de cristaux d'origine pour le compagnon Lu en empruntant un autre sentier. D'après mes expériences passées, nous devrions atteindre un total de 60 000 à 70 000 cristaux. »
+« Sur le chemin du retour, je récolterai plus de cristaux d'origine pour le Daoïste Lu en empruntant un autre sentier. D'après mes expériences passées, nous devrions atteindre un total de 60 000 à 70 000 cristaux. »
 
 « Éveillé, prisonnier de la Voie du Ciel, tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la profonde prison. Attendez la Voie de la Culture... » Les informations gravées sur le jade près du squelette résonnèrent dans l'esprit de Wang Lin. Il observa le Royaume aux Sept Couleurs et hocha silencieusement la tête.

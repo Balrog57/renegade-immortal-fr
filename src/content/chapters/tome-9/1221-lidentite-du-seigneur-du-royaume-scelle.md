@@ -48,7 +48,7 @@ Dans le système stellaire situé sous le Royaume Céleste du Tonnerre, une femm
 
 Au même instant, sur une planète de culture du système stellaire sous le Royaume Céleste du Tonnerre, un jeune homme dormait sur une montagne. Son corps trembla alors qu'il redressait la tête pour regarder au loin. Après un long moment, il se gratta la tête.
 
-« Ce vieux a failli mourir de peur. Je croyais que c'étaient ces vieux débris descendant du domaine céleste pour me capturer, mais pourquoi cette aura me semble-t-elle si familière... » Ce jeune homme était celui qui s'était échappé de la fissure lors de la rétribution divine de Wang Lin!
+« Ce vieux a failli mourir de peur. Je croyais que c'étaient ces vieux débris descendant du domaine céleste pour me capturer, mais pourquoi cette aura me semble-t-elle si familière... » Ce jeune homme était celui qui s'était échappé de la fissure lors de la Tribulation Céleste de Wang Lin!
 
 Au moment où la porte formée par la Perle Défiant le Ciel s'ouvrit, une personne en sortit lentement.
 

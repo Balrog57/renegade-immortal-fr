@@ -26,7 +26,7 @@ L'homme d'âge mûr nommé Zhou fixait Wang Lin au cœur du tonnerre, ses yeux b
 
 Un tel sort capable de dissimuler son aura choqua profondément Zhou. Il ne s'agissait pas seulement d'un sortilège, mais du fait que le niveau de culture de cet homme surpassait de loin le sien!
 
-Le vieil homme qui avait conduit ses disciples dans le Domaine Luan Shou Wu était le plus calme pour l'instant, car il était le seul à avoir déjà vu Wang Lin. Il poussa un soupir: « Lorsque j'ai rencontré le Frère Lu autrefois, je ne pensais pas que nous appartenions à la même secte. Je m'appelle Wu Jiangping. Salutations, Camarade Cultivateur! »
+Le vieil homme qui avait conduit ses disciples dans le Domaine Luan Shou Wu était le plus calme pour l'instant, car il était le seul à avoir déjà vu Wang Lin. Il poussa un soupir: « Lorsque j'ai rencontré le Frère Lu autrefois, je ne pensais pas que nous appartenions à la même secte. Je m'appelle Wu Jiangping. Salutations, Daoïste! »
 
 Le vieil homme qui avait aperçu la silhouette de Wang Lin affichait une expression grave. Auparavant, il n'avait pas cru ce qu'on lui racontait, mais désormais, il était convaincu: cet homme possédait le pouvoir de balayer les régions de rang 6 et 7!
 
@@ -50,9 +50,9 @@ Même ses compagnons de la Secte Xian Yin étaient terrifiés.
 
 « Il… Il est… Il est si puissant. Quand Lu Yuncong a dit qu'il pourrait me tuer comme une fourmi, il disait la vérité! » Lu Yingjie était dévasté; son visage était livide et son esprit en plein chaos.
 
-Non seulement lui, mais la Secte Recherchant la Montagne s'était également tue. Zhao Long fixait la figure dans le ciel, l'expression changée radicalement. Ses pupilles se rétractèrent et son esprit devint vide.
+Non seulement lui, mais la Secte Xun Luan s'était également tue. Zhao Long fixait la figure dans le ciel, l'expression changée radicalement. Ses pupilles se rétractèrent et son esprit devint vide.
 
-Le Maître de la Secte et le Grand Ancien de la Secte Recherchant la Montagne étaient d'une pâleur mortelle. Dès qu'ils virent Wang Lin, ils le reconnurent immédiatement comme l'homme qui les avait contraints à déplacer leur continent et à lui rendre respectueusement les honneurs, à son arrivée comme à son départ.
+Le Maître de la Secte et le Grand Ancien de la Secte Xun Luan étaient d'une pâleur mortelle. Dès qu'ils virent Wang Lin, ils le reconnurent immédiatement comme l'homme qui les avait contraints à déplacer leur continent et à lui rendre respectueusement les honneurs, à son arrivée comme à son départ.
 
 « C'est… C'est… C'est lui!!! » Les deux hommes se regardèrent, partageant la même terreur dans leurs yeux.
 
@@ -68,7 +68,7 @@ Certains vieux monstres avaient personnellement aperçu la silhouette de Wang Li
 
 « La rumeur dit que trois briseurs de Nirvana ont tenté de l'arrêter, mais qu'ils furent tous contraints de battre en retraite, gravement blessés! »
 
-« Ce n'étaient pas trois. Mon frère aîné a vu sept briseurs de Nirvana attaquer simultanément. Mais cet homme a utilisé un seul sort pour en tuer quatre et en blesser trois! Même un continent sauvage s'est effondré sous son attaque! »
+« Ce n'étaient pas trois. Mon Senior frère a vu sept briseurs de Nirvana attaquer simultanément. Mais cet homme a utilisé un seul sort pour en tuer quatre et en blesser trois! Même un continent sauvage s'est effondré sous son attaque! »
 
 Un vacarme commença, mais un grondement tonitruant traversa soudain le ciel, imposant le silence à tous. Le tonnerre qui grondait dans les cieux convergea vers le corps de Wang Lin jusqu'à ce qu'il n'en reste plus aucune trace.
 
@@ -88,9 +88,9 @@ Il détourna le regard après un moment de choc pour observer Lu Yuncong, dont l
 
 Wang Lin esquissa un mince sourire, mais son expression se glaça et il demanda doucement: « Frère Lu, j'ai une question à vous poser! Lu Yanfei est blessée. Qui a fait cela? »
 
-Lu Yuncong n'hésita pas et pointa la Secte Xian Yin: « Lu Yingjie de la Secte Xian Yin! » Puis il désigna la Secte Recherchant la Montagne.
+Lu Yuncong n'hésita pas et pointa la Secte Xian Yin: « Lu Yingjie de la Secte Xian Yin! » Puis il désigna la Secte Xun Luan.
 
-« Zhao Long de la Secte Recherchant la Montagne! Ils avaient des pensées impures envers Mademoiselle Lu! »
+« Zhao Long de la Secte Xun Luan! Ils avaient des pensées impures envers Mademoiselle Lu! »
 
 Wang Lin hocha la tête et se tourna vers la Secte Xian Yin. Une lueur de froideur traversa son regard alors qu'il s'élançait dans les airs pour charger la secte adverse.
 
@@ -108,7 +108,7 @@ Tous les cultivateurs sur les plateformes environnantes tombèrent dans un silen
 
 « Secte principale, aidez-nous! » Le front du maître de Lu Yingjie était couvert de sueur et ses yeux brillaient de terreur alors qu'il hurlait vers les membres de la Secte Éternelle.
 
-Feng Hai hésita un instant avant de joindre les mains pour parler: « Camarade Cultivateur Lu, je vous en prie… »
+Feng Hai hésita un instant avant de joindre les mains pour parler: « Daoïste Lu, je vous en prie… »
 
 Mais Wang Lin agita la main et l'interrompit brutalement!
 
@@ -122,4 +122,4 @@ Le sang éclaboussa partout. Les corps de Lu Yingjie et de son maître volèrent
 
 « Tuer Lu Yingjie est aussi facile qu'écraser une fourmi. » Les paroles que Lu Yuncong avait prononcées quelques jours plus tôt résonnaient maintenant comme un vent glacial d'hiver!
 
-Wang Lin se retourna et fixa la Secte Recherchant la Montagne. Il fit un pas vers eux!
+Wang Lin se retourna et fixa la Secte Xun Luan. Il fit un pas vers eux!

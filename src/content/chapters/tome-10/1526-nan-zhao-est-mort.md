@@ -22,11 +22,11 @@ Wang Lin avait accompli tout cela par sa propre force. Il avait remporté ce pre
 
 La mort du Shui Daozi ne comptait pour rien, ce n'était que l'assassinat d'un esclave. Cependant, la mort de l'ancêtre du Clan Huo Que était différente. C'était un exploit guerrier majeur, celui d'avoir tué un général adverse!
 
-Ce fut la lueur la plus éclatante pour les cultivateurs de la Mer Yun qui avaient subi de lourdes pertes! Les 100 000 cultivateurs du Royaume Extérieur commencèrent à battre en retraite en silence. Outre la peur, une forme de crainte respectueuse se lisait dans leurs yeux. Même le garçon au regard froid et la concubine impériale céleste, les yeux étincelants, regardaient Wang Lin!
+Ce fut la lueur la plus éclatante pour les cultivateurs de la Mer Yun qui avaient subi de lourdes pertes! Les 100 000 cultivateurs du Royaume Extérieur commencèrent à battre en retraite en silence. Outre la peur, une forme de crainte respectueuse se lisait dans leurs yeux. Même Han Yi et la concubine impériale céleste, les yeux étincelants, regardaient Wang Lin!
 
 Le rire tonitruant de Maître Hong Shan résonna soudainement!
 
-« Le Seigneur du Royaume Scellé a tué un cultivateur du troisième niveau du Royaume Extérieur, nous n'avons pas perdu cette bataille! » Tandis que son rire résonnait, il agita ses manches. Une lumière rouge jaillit de son corps et il chargea vers l'individu au regard froid, piégeant les autres cultivateurs de troisième niveau avec lui!
+« Le Seigneur du Royaume Scellé a tué un cultivateur du troisième niveau du Royaume Extérieur, nous n'avons pas perdu cette bataille! » Tandis que son rire résonnait, il agita ses manches. Une lumière rouge jaillit de son corps et il chargea vers Han Yi, piégeant les autres cultivateurs de troisième niveau avec lui!
 
 Maître Nan Yunzi éclata également de rire tout en bloquant la concubine impériale céleste pour l'affronter!
 
@@ -38,9 +38,9 @@ Le visage du Grand Maître Yun Luo était extrêmement pâle alors qu'elle recul
 
 « Arrêtez-le!! » hurla le Grand Maître Yun Luo pour la première fois lors de cette bataille. Sa voix, empreinte d'une peur infinie, semblait déformée.
 
-De nombreux cultivateurs du troisième niveau combattaient Maître Hong Shan. Le garçon au regard froid possédait un niveau de culture similaire, et il agita sa main droite, créant une aura glaciale. Cette aura affecta Nanzhao Shangren et le libéra de la suppression de Maître Hong Shan.
+De nombreux cultivateurs du troisième niveau combattaient Maître Hong Shan. Han Yi possédait un niveau de culture similaire, et il agita sa main droite, créant une aura glaciale. Cette aura affecta Nanzhao Shangren et le libéra de la suppression de Maître Hong Shan.
 
-« Tuez le Seigneur du Royaume Scellé! » rugit le garçon au regard froid! Il vit que le moral des cultivateurs du Royaume Extérieur vacillait. Ce qui venait de se passer n'avait pas seulement brisé leur intention de combat, cela avait également propagé une peur intense.
+« Tuez le Seigneur du Royaume Scellé! » rugit Han Yi! Il vit que le moral des cultivateurs du Royaume Extérieur vacillait. Ce qui venait de se passer n'avait pas seulement brisé leur intention de combat, cela avait également propagé une peur intense.
 
 Une telle situation était fatale lors d'une grande bataille, et il ne pouvait laisser les choses ainsi. Si Wang Lin parvenait réellement à s'enfoncer dans l'armée pour tuer le Grand Maître Yun Luo, alors même s'ils finissaient par gagner, ce serait en réalité une défaite!
 

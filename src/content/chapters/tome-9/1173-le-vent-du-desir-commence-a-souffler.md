@@ -76,7 +76,7 @@ Les pupilles de la vieille femme en vert, qui venait d'acquérir l'âme de la b�
 
 Cang Songzi souriait toujours en observant la scène. Il n'était pas surpris que Wang Lin dispose de tant de jades célestes; le simple dépôt versé à Ouyang Long comptait déjà des milliers de jades. Cela témoignait déjà de son audace et de sa détermination.
 
-Le vieil homme en noir s'apprêtait à rire et à parler, mais Wu Qing l'interrompit par un éclat de rire: « Trente-cinq mille jades célestes. Cher cultivateur Lu, ce n'est pas que ce vieil homme souhaite rivaliser avec vous. Je le fais car cet objet me sera d'une grande utilité. »
+Le vieil homme en noir s'apprêtait à rire et à parler, mais Wu Qing l'interrompit par un éclat de rire: « Trente-cinq mille jades célestes. Cher Daoïste Lu, ce n'est pas que ce vieil homme souhaite rivaliser avec vous. Je le fais car cet objet me sera d'une grande utilité. »
 
 « Quarante mille », fronça les sourcils Wang Lin.
 
@@ -90,7 +90,7 @@ La belle femme fronça les sourcils. Elle n'était pas seule: tous les vieux mon
 
 Même Cang Songzi laissa paraître un soupçon d'insatisfaction.
 
-« Puisque le cultivateur Wu souhaite rivaliser avec moi jusqu'au bout... » Wang Lin ne se mit pas en colère; il sourit et fixa Wu Qing d'un regard profond.
+« Puisque le Daoïste Wu souhaite rivaliser avec moi jusqu'au bout... » Wang Lin ne se mit pas en colère; il sourit et fixa Wu Qing d'un regard profond.
 
 « Je n'en veux plus. » Après avoir dit cela, il ferma simplement les yeux pour contenir l'intention meurtrière qui bouillonnait en lui.
 
@@ -104,13 +104,13 @@ L'enchère prit fin peu de temps après, et chacun quitta les lieux un à un. Qu
 
 À cet instant, Wang Lin et Cang Songzi étaient les seuls restés. Quant à Ouyang Long, il était parti avec les autres vieux monstres.
 
-« C'était la première fois que Wu Qing était invité par ce vieil homme. Je ne m'attendais pas à un tel comportement. C'est ma faute pour ne pas avoir reconnu sa vraie nature; cela pourrait causer des ennuis au cultivateur », dit Cang Songzi en secouant la tête, visiblement contrarié par l'acte de Wu Qing.
+« C'était la première fois que Wu Qing était invité par ce vieil homme. Je ne m'attendais pas à un tel comportement. C'est ma faute pour ne pas avoir reconnu sa vraie nature; cela pourrait causer des ennuis au Daoïste », dit Cang Songzi en secouant la tête, visiblement contrarié par l'acte de Wu Qing.
 
 « Ce n'est rien », répondit Wang Lin, imperturbable.
 
-Cang Songzi réfléchit un instant et proposa: « Voici ce que je suggère: le cultivateur peut séjourner dans la ville principale quelque temps. Une fois l'enchère terminée, moi et quelques-uns de mes vieux amis partirons. Nous pourrons vous accompagner afin que Wu Qing n'ose plus nourrir de pensées malveillantes à votre égard. »
+Cang Songzi réfléchit un instant et proposa: « Voici ce que je suggère: le Daoïste peut séjourner dans la ville principale quelque temps. Une fois l'enchère terminée, moi et quelques-uns de mes vieux amis partirons. Nous pourrons vous accompagner afin que Wu Qing n'ose plus nourrir de pensées malveillantes à votre égard. »
 
-Sans attendre la réponse de Wang Lin, le visage de Cang Songzi se fit grave: « Le cultivateur souhaite échanger cinq mille cristaux d'origine. Est-ce bien exact? »
+Sans attendre la réponse de Wang Lin, le visage de Cang Songzi se fit grave: « Le Daoïste souhaite échanger cinq mille cristaux d'origine. Est-ce bien exact? »
 
 Wang Lin acquiesça sans mot dire.
 

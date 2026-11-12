@@ -14,7 +14,7 @@ Ces installations n'étaient pas rares dans la cité.
 
 L'un des vieillards était l'oncle-maître de Yang Yu, tandis que l'autre arborait un visage rougeoyant.
 
-Le vieil homme aux robes vertes sourit: « Cher cultivateur Lu, je ne me suis pas présenté. Je suis Tang Lihai, ancien du rang 6 de la Secte Mo Cong. »
+Le vieil homme aux robes vertes sourit: « Cher Daoïste Lu, je ne me suis pas présenté. Je suis Tang Lihai, ancien du rang 6 de la Secte Mo Cong. »
 
 « Ce vieux est Wu Qing, également de la Secte Mo Cong. » La voix du vieil homme au visage rouge résonna comme une cloche, faisant vibrer tout le troisième étage.
 
@@ -24,17 +24,17 @@ Li Qianmei s'assit rapidement sur le côté, jouant avec sa coupe de vin. Cepend
 
 Tang Lihai et Wu Qing connaissaient naturellement son identité, mais comme elle avait changé la couleur de ses cheveux, il était évident qu'elle ne souhaitait pas être reconnue. Ils ne dirent rien, se contentant de lui adresser un signe de respect.
 
-« Aujourd'hui, c'est moi qui ai manqué de prudence, j'espère donc que cher cultivateur Lu ne m'en voudra pas. » Tang Lihai leva sa coupe vers Wang Lin.
+« Aujourd'hui, c'est moi qui ai manqué de prudence, j'espère donc que cher Daoïste Lu ne m'en voudra pas. » Tang Lihai leva sa coupe vers Wang Lin.
 
 L'expression de Wang Lin resta neutre tandis qu'il levait la sienne pour l'honorer, mais il ne but pas et reposa aussitôt son verre.
 
-Tang Lihai rit: « J'ai entendu par le disciple Zhao Yu que les sorts de cher cultivateur Lu étaient prodigieux. Après les avoir vus aujourd'hui, je constate qu'ils sont véritablement extraordinaires. Je souhaite devenir l'ami du frère Lu. »
+Tang Lihai rit: « J'ai entendu par le disciple Zhao Yu que les sorts de cher Daoïste Lu étaient prodigieux. Après les avoir vus aujourd'hui, je constate qu'ils sont véritablement extraordinaires. Je souhaite devenir l'ami du frère Lu. »
 
 « Aucun problème. Mon intention était également de nouer des liens avec la Secte Mo Cong. » Wang Lin attendait patiemment la suite. Il ne croyait pas qu'ils fussent venus uniquement pour se lier d'amitié.
 
 Les deux commencèrent à discuter, mais Tang Lihai n'aborda toujours pas le véritable but de leur visite. Il sondait secrètement Wang Lin, tout en craignant la relation qui le liait à Li Qianmei.
 
-Wu Qing écouta un long moment avant de laisser paraître une pointe d'impatience. Il saisit une coupe et la frappa brusquement sur la table. Il fixa Wang Lin et déclara: « Cher cultivateur Lu, je ne suis pas doué pour les discours détournés. Je suis venu aujourd'hui vous demander si vous seriez prêt à devenir un ancien extérieur. »
+Wu Qing écouta un long moment avant de laisser paraître une pointe d'impatience. Il saisit une coupe et la frappa brusquement sur la table. Il fixa Wang Lin et déclara: « Cher Daoïste Lu, je ne suis pas doué pour les discours détournés. Je suis venu aujourd'hui vous demander si vous seriez prêt à devenir un ancien extérieur. »
 
 « Si vous acceptez, ma Secte Mo Cong vous accueillera avec de grands présents! Même si vous refusez, après aujourd'hui, nous trois pourrons être considérés comme des connaissances. Pour nous, les cultivateurs, ceux que nous appelons "chers cultivateurs" peuvent être considérés comme des amis! »
 
@@ -42,7 +42,7 @@ En entendant les paroles de Wu Qing, Tang Lihai afficha un sourire amer en regar
 
 Wang Lin réfléchit un instant et dit lentement: « Je dois y réfléchir. Que diriez-vous de ceci: je vous donnerai une réponse avant de quitter Peng Lai. »
 
-Tang Lihai rit en hochant la tête: « C'est tout à fait normal. Cher cultivateur, veuillez bien y réfléchir. Nous attendrons votre réponse. »
+Tang Lihai rit en hochant la tête: « C'est tout à fait normal. Cher Daoïste, veuillez bien y réfléchir. Nous attendrons votre réponse. »
 
 Après avoir discuté de cette affaire, Wang Lin se leva et prit congé. Il partit avec Li Qianmei.
 
@@ -100,13 +100,13 @@ Sitôt entrés dans la cité, ils atteignirent le centre. L'homme s'arrêta deva
 
 Wang Lin hocha la tête et projeta son Sens Divin vers l'avant avant d'entrer. À peine eut-il franchi le seuil qu'un rire sonore retentit. C'était Ouyang Long qui descendait les marches en joignant les mains devant Wang Lin.
 
-« J'ai fait attendre cher cultivateur. Vous avez simplement demandé trop de choses, ce qui a nécessité un certain temps de préparation. » Ouyang Long était d'un enthousiasme débordant; il semblait être une personne totalement différente de celle qu'il avait été trois jours auparavant.
+« J'ai fait attendre cher Daoïste. Vous avez simplement demandé trop de choses, ce qui a nécessité un certain temps de préparation. » Ouyang Long était d'un enthousiasme débordant; il semblait être une personne totalement différente de celle qu'il avait été trois jours auparavant.
 
 Wang Lin joignit les mains et sourit: « Aucun problème. » Il comprenait parfaitement pourquoi Ouyang Long agissait ainsi. Les actions de Wang Lin au marché n'avaient pas seulement choqué la Secte Mo Cong, mais aussi la puissance qui soutenait Ouyang Long.
 
-« Venez, venez, ce vieux va vous conduire dans un endroit particulier. Notre échange s'y déroulera, et il y aura aussi quelques divertissements. Peut-être que cher cultivateur souhaitera parier un peu et gagner gros. » Ouyang Long affichait un sourire, mais il n'osait pas sous-estimer ce jeune homme vêtu de blanc. Trois jours plus tôt, cet individu avait réussi à le trouver pour passer une commande d'une telle envergure. Il était évident qu'il avait percé son identité, ce qui prouvait qu'il n'était pas un être ordinaire. Et ce qui s'était passé au marché par la suite l'avait véritablement stupéfié.
+« Venez, venez, ce vieux va vous conduire dans un endroit particulier. Notre échange s'y déroulera, et il y aura aussi quelques divertissements. Peut-être que cher Daoïste souhaitera parier un peu et gagner gros. » Ouyang Long affichait un sourire, mais il n'osait pas sous-estimer ce jeune homme vêtu de blanc. Trois jours plus tôt, cet individu avait réussi à le trouver pour passer une commande d'une telle envergure. Il était évident qu'il avait percé son identité, ce qui prouvait qu'il n'était pas un être ordinaire. Et ce qui s'était passé au marché par la suite l'avait véritablement stupéfié.
 
-« Je vais vous encombrer, cher cultivateur Ouyang. » Wang Lin resta poli en suivant Ouyang Long jusqu'au pied du pavillon. Son Sens Divin était déployé avec prudence. Tout ce qu'il découvrait le frappait de stupeur, mais il n'en laissa rien paraître.
+« Je vais vous encombrer, cher Daoïste Ouyang. » Wang Lin resta poli en suivant Ouyang Long jusqu'au pied du pavillon. Son Sens Divin était déployé avec prudence. Tout ce qu'il découvrait le frappait de stupeur, mais il n'en laissa rien paraître.
 
 Le bas du pavillon était totalement creux et menait de manière inattendue à une plateforme de pierre de près de 100 000 pieds de large. De nombreux cultivateurs y étaient assis, et les rugissements de bêtes féroces parvenaient jusqu'à eux.
 
@@ -124,9 +124,9 @@ Ils progressèrent rapidement jusqu'au bout du passage. Devant eux se tenaient d
 
 Ouyang Long regarda Wang Lin, réfléchit un instant et dit: « L'enchère d'aujourd'hui est organisée par mon oncle-maître, qui a invité quelques autres cultivateurs à participer. On peut considérer cela comme une petite vente privée. Si un objet vous intéresse, vous pouvez également faire une offre. Mon oncle-maître entamera notre transaction une fois l'enchère terminée. »
 
-« Cher cultivateur, je suis encore perplexe sur un point. J'espère que vous pourrez lever mon doute. »
+« Cher Daoïste, je suis encore perplexe sur un point. J'espère que vous pourrez lever mon doute. »
 
-« Je vous en prie, parlez, cher cultivateur Ouyang. » Wang Lin hocha la tête.
+« Je vous en prie, parlez, cher Daoïste Ouyang. » Wang Lin hocha la tête.
 
 « Comment avez-vous découvert mon identité? » Ouyang Long fixa Wang Lin du regard. Si quelqu'un l'avait présenté, cela aurait été une chose, mais cet homme l'avait trouvé de manière inattendue alors qu'il se trouvait à son propre stand privé. De plus, il savait avec certitude qu'il possédait davantage de cristaux originels et avait subtilement révélé son identité.
 

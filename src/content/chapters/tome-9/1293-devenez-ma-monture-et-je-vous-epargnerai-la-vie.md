@@ -70,7 +70,7 @@ Quant aux crânes formés par le brouillard noir, ils tremblaient comme s'ils fa
 
 Debout devant la faille, Wang Lin observa les crânes frémissants, ses yeux brillant d'une lueur intense.
 
-« Des Diables du Monde Huang Quan? » Au début de sa vie, il était devenu un dévoreur d'âmes sur le champ de bataille étranger de la planète Suzaku et avait consumé une multitude de Diables. À cet instant, il reconnut l'aura de ces créatures dans ces crânes!
+« Des Diables du Monde Ji Mie? » Au début de sa vie, il était devenu un dévoreur d'âmes sur le champ de bataille étranger de la planète Suzaku et avait consumé une multitude de Diables. À cet instant, il reconnut l'aura de ces créatures dans ces crânes!
 
 Il n'y en avait pas beaucoup ici, mais il y en avait tout de même un nombre non négligeable. Les yeux de Wang Lin s'illuminèrent; il ouvrit la bouche et aspira. Un vortex gigantesque sembla se former devant lui. Les crânes, incapables de résister, s'effondrèrent les uns après les autres, se transformant en un gaz noir qui fut aspiré par Wang Lin.
 
@@ -104,7 +104,7 @@ Wang Lin détourna les yeux. Il n'avait pas le temps d'attendre patiemment l'ouv
 
 Il allait arracher de force cette ouverture qui ne demandait qu'à s'élargir lentement!
 
-« Cher cultivateur, arrêtez! Un Dragon des Neuf Abîmes se trouve à l'intérieur, et il est extrêmement puissant. S'il sort ainsi, le carnage sera immense. J'espère que vous attendrez que nous ayons déployé une formation avant de l'ouvrir! » s'exclama l'un des membres de la Secte Démon depuis le brouillard bleu.
+« Daoïste, arrêtez! Un Dragon des Neuf Abîmes se trouve à l'intérieur, et il est extrêmement puissant. S'il sort ainsi, le carnage sera immense. J'espère que vous attendrez que nous ayons déployé une formation avant de l'ouvrir! » s'exclama l'un des membres de la Secte Démon depuis le brouillard bleu.
 
 Les trois se précipitèrent vers la faille!
 

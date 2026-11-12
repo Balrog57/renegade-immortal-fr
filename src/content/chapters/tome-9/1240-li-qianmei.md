@@ -18,7 +18,7 @@ Si une secte de rang 5 les défiait deux fois, la Secte Xian Yin perdrait la fac
 
 Un éclair de froideur passa dans les yeux de Lu Yuncong. Il pouvait naturellement percer à jour la personnalité de Lu Yingjie, mais plus il le voyait, moins il l'appréciait.
 
-« S'il vient, tu le découvriras! » La voix de Lu Yuncong était glaciale. Outre la compétition, la raison principale de sa venue à la Secte Éternelle était de revoir Wang Lin.
+« S'il vient, tu le découvriras! » La voix de Lu Yuncong était glaciale. Outre la compétition, la raison principale de sa venue à la Secte Wu Ji était de revoir Wang Lin.
 
 Par conséquent, il accordait une attention particulière à la Secte Gui Yuan.
 
@@ -48,13 +48,13 @@ L'homme d'âge moyen nommé Zhao se posta aux côtés de Lu Yingjie et hocha lé
 
 « Puisque cet homme a affirmé que cette personne peut vous tuer comme on écrase une fourmi, alors vous devriez accepter ce défi. Je souhaite également voir si ce mystérieux Lu est réel ou s'il ne fait qu'étaler de vaines paroles », dit lentement l'homme d'âge moyen d'une voix aussi féminine que d'ordinaire.
 
-Lu Yingjie esquissa un sourire et acquiesça: « Puisqu'il en est ainsi, je brûle d'envie de voir la puissance de ce mystérieux Lu. Cependant, si cet homme n'apparaît pas ou s'il n'est pas aussi fort que ce qu'affirme le Compagnon Cultivateur Lu, que devrons-nous faire? Senior Zhao, nous vous prions de nous guider. »
+Lu Yingjie esquissa un sourire et acquiesça: « Puisqu'il en est ainsi, je brûle d'envie de voir la puissance de ce mystérieux Lu. Cependant, si cet homme n'apparaît pas ou s'il n'est pas aussi fort que ce qu'affirme le Daoïste Lu, que devrons-nous faire? Senior Zhao, nous vous prions de nous guider. »
 
 L'homme d'âge moyen nommé Zhao regarda Lu Yuncong et dit d'un ton sombre: « Si tel est le cas, je serai naturellement le témoin. Ce n'est pas une mince affaire; comment peut-on proférer de tels mots en l'air? »
 
 L'expression de Lu Yuncong resta sombre et il garda le silence un long moment. Bien que la Secte Xun Luan ne fût pas la plus puissante des sectes de rang 7, Senior Zhao était un Ancien des affaires extérieures ayant d'excellentes relations privées avec la Secte Xian Yin. S'il s'en mêlait, il pourrait faire grand bruit autour de cette affaire.
 
-Lu Yanfei se mordit la lèvre inférieure en voyant que Lu Yuncong se trouvait dans une position embarrassante. Un instant plus tard, elle dit doucement: « Cette affaire n'a rien à voir avec le Compagnon Cultivateur Lu. C'est un différend qui concerne notre Secte Gui Yuan. Si... »
+Lu Yanfei se mordit la lèvre inférieure en voyant que Lu Yuncong se trouvait dans une position embarrassante. Un instant plus tard, elle dit doucement: « Cette affaire n'a rien à voir avec le Daoïste Lu. C'est un différend qui concerne notre Secte Gui Yuan. Si... »
 
 Avant que Lu Yanfei ne puisse achever sa phrase, les yeux de l'homme d'âge moyen nommé Zhao devinrent glacials et se fixèrent sur elle. Ce regard était tel une paire d'épées s'élançant pour percuter ses propres yeux.
 
@@ -70,17 +70,17 @@ Zhao Long afficha un sourire sinistre et laissa échapper un rire rauque avant d
 
 L'endroit où ils se trouvaient n'était qu'une goutte d'eau dans l'océan comparé à la vaste plateforme où se déroulait la compétition. À cet instant, un rayon de lumière blanche fonça vers la planète où se trouvaient les plateformes de combat. Cette lumière traversa le ciel en provoquant une série de grondements tonitruants. Avant même son approche, elle avait déjà capté l'attention des cultivateurs environnants.
 
-L'aura d'un cultivateur de niveau Briseur du Nirvana émanait de cette lueur blanche. Plusieurs silhouettes s'élancèrent depuis la Secte Éternelle pour l'accueillir.
+L'aura d'un cultivateur de niveau Briseur du Nirvana émanait de cette lueur blanche. Plusieurs silhouettes s'élancèrent depuis la Secte Wu Ji pour l'accueillir.
 
 Alors que la lumière blanche approchait, elle ralentit, permettant à tous les observateurs de distinguer une femme à l'intérieur. Ils aperçurent également des cheveux bleus qui n'appartenaient qu'à une seule personne dans toute la Mer Yun!
 
 Li Qianmei!
 
-De la Secte Brise-Ciel de rang 9!
+De la Secte Po Tian de rang 9!
 
 Un tumulte soudain éclata alors que plus de cent mille cultivateurs présents reconnurent instantanément l'identité de la femme aux cheveux bleus!
 
-« Il s'agit de Li Qianmei de la Secte Brise-Ciel! Je ne pensais pas que la compétition de la Secte Éternelle attirerait sa présence! »
+« Il s'agit de Li Qianmei de la Secte Po Tian! Je ne pensais pas que la compétition de la Secte Wu Ji attirerait sa présence! »
 
 « Les rumeurs disaient qu'elle combattait la marée de bêtes à la Secte Démon. Il est inattendu qu'elle l'ait quittée pour venir ici! »
 
@@ -90,21 +90,21 @@ Les murmures se propagèrent sur toute la plateforme avec l'apparition de Li Qia
 
 Lu Yingjie vit également Li Qianmei, perchée haut dans le ciel, et ses yeux s'illuminèrent. Il connaissait Li Qianmei; elle lui avait autrefois posé trois questions.
 
-Même Zhao Long, aux côtés de Lu Yingjie, devint sérieux en levant les yeux. Il respectait Li Qianmei, issue de la Secte Brise-Ciel de rang 9. Que ce soit son niveau de culture ou sa secte, il n'était pas de son rang.
+Même Zhao Long, aux côtés de Lu Yingjie, devint sérieux en levant les yeux. Il respectait Li Qianmei, issue de la Secte Po Tian de rang 9. Que ce soit son niveau de culture ou sa secte, il n'était pas de son rang.
 
-L'homme chargé de la compétition aujourd'hui était un vieil homme nommé Feng Hai, accompagné de six autres Anciens de la Secte Éternelle. Ayant senti la présence de Li Qianmei, il s'élança immédiatement avec les Anciens et une dizaine de disciples. Ils furent suivis par plusieurs centaines de membres responsables de l'événement.
+L'homme chargé de la compétition aujourd'hui était un vieil homme nommé Feng Hai, accompagné de six autres Anciens de la Secte Wu Ji. Ayant senti la présence de Li Qianmei, il s'élança immédiatement avec les Anciens et une dizaine de disciples. Ils furent suivis par plusieurs centaines de membres responsables de l'événement.
 
 Ce groupe imposant vint saluer l'arrivée de Li Qianmei.
 
-« C'est un immense honneur pour notre Secte Éternelle que le Compagnon Cultivateur Li nous fasse l'honneur de sa présence. Je m'appelle Feng Hai. » Feng Hai sourit, très enthousiaste, en joignant les mains.
+« C'est un immense honneur pour notre Secte Wu Ji que le Daoïste Li nous fasse l'honneur de sa présence. Je m'appelle Feng Hai. » Feng Hai sourit, très enthousiaste, en joignant les mains.
 
 Les six Anciens derrière lui sourirent également et s'inclinèrent respectueusement. Les disciples affichaient tous des expressions déférentes, regardant Li Qianmei avec un mélange d'admiration et de crainte.
 
-Outre ce groupe, plus de dix rayons de lumière convergeaient depuis les confins de la planète. Il s'agissait d'un autre noyau dirigeant de la Secte Éternelle, témoignant de l'importance capitale accordée à Li Qianmei.
+Outre ce groupe, plus de dix rayons de lumière convergeaient depuis les confins de la planète. Il s'agissait d'un autre noyau dirigeant de la Secte Wu Ji, témoignant de l'importance capitale accordée à Li Qianmei.
 
-« Je suppose que le Compagnon Cultivateur Li revient tout juste de la marée de bêtes. Je vous prie de me suivre vers un lieu préparé par la Secte Éternelle pour votre repos. J'imagine que le Maître de la Secte a également été informé de votre arrivée. C'est un grand honneur que vous ayez accepté de venir. » Feng Hai joignit les mains tandis que son rire résonnait.
+« Je suppose que le Daoïste Li revient tout juste de la marée de bêtes. Je vous prie de me suivre vers un lieu préparé par la Secte Wu Ji pour votre repos. J'imagine que le Maître de la Secte a également été informé de votre arrivée. C'est un grand honneur que vous ayez accepté de venir. » Feng Hai joignit les mains tandis que son rire résonnait.
 
-Bien qu'elle soit devenue le centre de toutes les attentions, Li Qianmei restait sereine. Elle ne déploya pas précipitamment son Sens Divin pour inspecter les lieux, mais observa d'abord l'assemblée avant de poser son regard sur Feng Hai. Elle dit doucement: « Le repos n'est pas une priorité. Compagnon Cultivateur Feng, la Secte Gui Yuan de rang 5 est-elle présente à cette compétition? »
+Bien qu'elle soit devenue le centre de toutes les attentions, Li Qianmei restait sereine. Elle ne déploya pas précipitamment son Sens Divin pour inspecter les lieux, mais observa d'abord l'assemblée avant de poser son regard sur Feng Hai. Elle dit doucement: « Le repos n'est pas une priorité. Daoïste Feng, la Secte Gui Yuan de rang 5 est-elle présente à cette compétition? »
 
 « La Secte Gui Yuan? » Feng Hai fut surpris. Un disciple s'approcha immédiatement pour lui glisser un mot à l'oreille.
 

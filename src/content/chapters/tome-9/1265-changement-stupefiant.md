@@ -42,13 +42,13 @@ Le Royaume Kun Xu avait été détruit, et elle seule en subsistait. Dès cet in
 
 Sa conversation avec Wang Lin avait dénoué les attaches mortelles de son cœur. Elle enfouit ce souvenir au plus profond de son âme et le scella.
 
-Li Qianmei allait également partir. Elle avait reçu un appel urgent de son maître. Le message de jade ne précisait pas la nature du problème, mais d'un ton sévère, il ordonnait à Li Qianmei d'utiliser la formation de transfert de la Secte Éternelle pour regagner la Secte Brise-Ciel!
+Li Qianmei allait également partir. Elle avait reçu un appel urgent de son maître. Le message de jade ne précisait pas la nature du problème, mais d'un ton sévère, il ordonnait à Li Qianmei d'utiliser la formation de transfert de la Secte Éternelle pour regagner la Secte Po Tian!
 
 On aurait dit que la tempête approchait.
 
-Li Qianmei ne pouvait désobéir aux ordres de son maître. La Secte Brise-Ciel lui avait tout donné et son maître l'avait élevée. Bien qu'il n'en eût pas dicté la raison, elle ne l'avait jamais vu employer des paroles aussi brusques.
+Li Qianmei ne pouvait désobéir aux ordres de son maître. La Secte Po Tian lui avait tout donné et son maître l'avait élevée. Bien qu'il n'en eût pas dicté la raison, elle ne l'avait jamais vu employer des paroles aussi brusques.
 
-Elle n'eut que le temps de dire adieu, avec sa sérénité habituelle, avant d'entrer dans la formation de transfert de la Secte Éternelle. Après plusieurs transferts successifs, elle atteignit la Secte Brise-Ciel.
+Elle n'eut que le temps de dire adieu, avec sa sérénité habituelle, avant d'entrer dans la formation de transfert de la Secte Éternelle. Après plusieurs transferts successifs, elle atteignit la Secte Po Tian.
 
 Son cœur était troublé. Elle ignorait pourquoi son maître avait envoyé une telle requête empreinte d'anxiété. Dans ses souvenirs, son maître avait toujours été calme; il n'avait jamais agi ainsi. Elle ne savait pas pourquoi, mais elle pressentait que le malheur approchait.
 
@@ -72,13 +72,13 @@ Il laissa échapper un reniflement glacial et remit le jade aux deux Grands Anci
 
 Le Grand Ancien qui avait combattu Wang Lin serra les dents et rugit comme un vent glacial: « Quelle arrogance de la part de la Secte Divine!! »
 
-« D'un seul mot, la Secte Divine annule la grande compétition qui opposait les sectes de rang 8 depuis des dizaines de milliers d'années. Je me demande ce qui a bien pu rendre la Secte Divine si fou pour qu'il en arrive là! Ma Secte Éternelle s'est préparée durant de longues années, et maintenant, avec la présence du camarade cultivateur Lu, nous aurions facilement pu décrocher la première place. Nous aurions pu effacer toute la honte des compétitions passées. De quel droit la Secte Divine l'annule-t-il?! » Un autre Grand Ancien ricana, les yeux injectés de colère.
+« D'un seul mot, la Secte Divine annule la grande compétition qui opposait les sectes de rang 8 depuis des dizaines de milliers d'années. Je me demande ce qui a bien pu rendre la Secte Divine si fou pour qu'il en arrive là! Ma Secte Éternelle s'est préparée durant de longues années, et maintenant, avec la présence du Daoïste Lu, nous aurions facilement pu décrocher la première place. Nous aurions pu effacer toute la honte des compétitions passées. De quel droit la Secte Divine l'annule-t-il?! » Un autre Grand Ancien ricana, les yeux injectés de colère.
 
 Pourtant, un sentiment d'injustice et d'impuissance surpassait cette rage. Ils étaient tous des cultivateurs puissants et la Secte Éternelle n'était pas une petite secte. Pourtant, par ce simple jade de la Secte Divine, ils devaient accepter l'humiliation!
 
 Le Maître de la Secte resta silencieux très longtemps, avant de paraître soudainement épuisé. Il poussa un soupir et secoua la tête. « Puisque la Secte Divine a ordonné l'annulation de la compétition, il doit en avoir des raisons. Des raisons qui nous échappent. »
 
-Tout en éprouvant de l'amertume, le Maître de la Secte regarda Wang Lin et joignit les mains. « Camarade cultivateur Lu, la compétition de rang 8 a été annulée par la Secte Divine; nous n'avons plus besoin de nous y rendre. Je dois convoquer et en discuter avec le reste des anciens. Que diriez-vous de ramener la Secte Gui Yuan dans la région de rang 5 et de préparer leur transfert vers la région de rang 7? »
+Tout en éprouvant de l'amertume, le Maître de la Secte regarda Wang Lin et joignit les mains. « Daoïste Lu, la compétition de rang 8 a été annulée par la Secte Divine; nous n'avons plus besoin de nous y rendre. Je dois convoquer et en discuter avec le reste des anciens. Que diriez-vous de ramener la Secte Gui Yuan dans la région de rang 5 et de préparer leur transfert vers la région de rang 7? »
 
 L'expression de Wang Lin resta calme, mais il ressentit un frisson, comme si un événement cataclysmique était sur le point de s'abattre. Après une courte réflexion, ses yeux s'illuminèrent: « Puis-je examiner le jade de la Secte Divine? »
 
@@ -94,7 +94,7 @@ Choqué, Wang Lin retira son Sens Divin. Il rendit le jade à la Secte Éternell
 
 Les membres de la Secte Éternelle étaient tous partagés par des sentiments complexes. Beaucoup étaient furieux, mais impuissants, contraints à l'acceptation.
 
-« Li Qianmei a répondu à la convocation de la Secte Brise-Ciel et est partie précipitamment... Mu Bingmei est partie tout aussi précipitamment, et ni l'une ni l'autre ne connaissait la raison. Ces événements isolés ne sont pas suspects, mais l'annulation simultanée de la compétition de rang 8 par la Secte Divine... Tout cela est trop étrange! »
+« Li Qianmei a répondu à la convocation de la Secte Po Tian et est partie précipitamment... Mu Bingmei est partie tout aussi précipitamment, et ni l'une ni l'autre ne connaissait la raison. Ces événements isolés ne sont pas suspects, mais l'annulation simultanée de la compétition de rang 8 par la Secte Divine... Tout cela est trop étrange! »
 
 « Se pourrait-il qu'un événement majeur se prépare dans la Mer Yun? » Wang Lin fronça les sourcils, profondément perplexe.
 
@@ -106,7 +106,7 @@ Wang Lin avait le vague pressentiment que le malheur approchait. Cette sensation
 
 Cette fois, il ne fusionnait pas avec Tian Yunzi pour combattre un ennemi, mais pour emprunter sa puissance afin de forcer la prédiction de l'inconnu!
 
-Au même moment, dans la Secte Brise-Ciel de rang 9, dès que Li Qianmei regagna la secte, son visage changea radicalement. Sa sérénité disparut totalement face au choc de ce qu'elle découvrit.
+Au même moment, dans la Secte Po Tian de rang 9, dès que Li Qianmei regagna la secte, son visage changea radicalement. Sa sérénité disparut totalement face au choc de ce qu'elle découvrit.
 
 Trois des dix Grands Anciens étaient assis autour de la formation de transfert où elle venait d'apparaître. La formation n'avait plus sa fonction de transfert; elle était devenue une formation de scellement! Son maître était sorti de sa culture en ermitage de près de dix mille ans et était assis en tailleur à l'extérieur de la formation. Dès que Li Qianmei apparut, ses yeux s'illuminèrent et il la fixa intensément!
 

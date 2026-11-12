@@ -1,12 +1,12 @@
 ---
 n: 1175
-title: Membre du Secteur Divin
+title: Membre de la Secte Divine
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1175 - Member of the God Secte
 slug: membre-du-secteur-divin
 ---
-Le visage de l'homme d'âge moyen était pâle et il affichait une expression amère en regardant Wang Lin s'approcher. Il réfléchit un instant, puis joignit les mains. « Shang Qi, de la Secte Mo Cong, salue le camarade cultivateur. »
+Le visage de l'homme d'âge moyen était pâle et il affichait une expression amère en regardant Wang Lin s'approcher. Il réfléchit un instant, puis joignit les mains. « Shang Qi, de la Secte Mo Cong, salue le Daoïste. »
 
 Wang Lin ne parla pas et observa froidement l'homme devant lui. Cet individu se situait au stade intermédiaire du Briseur du Nirvana. Wang Lin s'était toujours demandé s'il serait capable de combattre un expert de ce niveau après avoir fusionné avec son corps original.
 
@@ -66,37 +66,37 @@ S'il s'agissait d'une imposture, ce n'était pas grave: ils ne perdraient au plu
 
 Ce jour-là, après avoir congédié les cultivateurs de la Secte Dao Fa, le vieil homme décharné vêtu de noir, l'ancien propriétaire de la plume, vint le voir. Ce dernier ne mentionna aucunement les événements passés et paraissait calme. Au fond de lui, il craignait Wang Lin. Après tout, Wu Qing avait été tué avec une facilité déconcertante, et lui-même, au stade précoce du Briseur du Nirvana, se montrait donc très prudent.
 
-Après les civilités d'usage, le vieil homme joignit les mains. « Camarade cultivateur Lu, je ne me suis pas encore présenté. Je m'appelle Du De. Je n'appartiens à aucune secte et je suis un simple cultivateur indépendant dans la région de rang 6. C'est un honneur de rencontrer le camarade cultivateur Lu ici, à Peng Lai. »
+Après les civilités d'usage, le vieil homme joignit les mains. « Daoïste Lu, je ne me suis pas encore présenté. Je m'appelle Du De. Je n'appartiens à aucune secte et je suis un simple cultivateur indépendant dans la région de rang 6. C'est un honneur de rencontrer le Daoïste Lu ici, à Peng Lai. »
 
-Wang Lin sourit et dit lentement: « Le camarade cultivateur Du est aussi libre que les nuages, sans qu'aucune secte ne puisse l'entraver. Je vous envie. »
+Wang Lin sourit et dit lentement: « Le Daoïste Du est aussi libre que les nuages, sans qu'aucune secte ne puisse l'entraver. Je vous envie. »
 
 Le vieil homme en noir eut un sourire amer et secoua la tête. « Ce vieux cherche la paix et le calme, c'est pourquoi je n'ai rejoint aucune secte. Je ne suis venu à Peng Lai que sur l'invitation d'un vieil ami. Après la grande vente aux enchères dans deux jours, je repartirai. Si vous venez dans la région de rang 6 à l'avenir, n'hésitez pas à visiter ma grotte. »
 
-Wang Lin hocha la tête. Il observa le vieil homme et réfléchit un instant. La culture de cet homme ayant atteint un tel niveau, il était naturellement très perspicace. « Si le camarade cultivateur Lu a quelque chose à dire, autant le dire franchement. »
+Wang Lin hocha la tête. Il observa le vieil homme et réfléchit un instant. La culture de cet homme ayant atteint un tel niveau, il était naturellement très perspicace. « Si le Daoïste Lu a quelque chose à dire, autant le dire franchement. »
 
-Wang Lin regarda l'homme en noir et demanda lentement: « Je me demande où le camarade cultivateur Du a obtenu cette plume d'Oiseau Vermillon? »
+Wang Lin regarda l'homme en noir et demanda lentement: « Je me demande où le Daoïste Du a obtenu cette plume d'Oiseau Vermillon? »
 
 « Cela... » Le vieil homme réfléchit un instant avant de répondre: « Je l'ai trouvée sur un continent sauvage de la région de rang 6. Les étrangers n'en ont pas connaissance, je ne l'ai découverte que par hasard. Toutes les bêtes féroces qui s'y trouvent sont liées au feu et c'est un endroit dangereux; je ne m'y suis donc pas aventuré très loin. » Après avoir parlé, il sortit une pierre de jade, y injecta son sens divin, puis la remit à Wang Lin.
 
-« Si le camarade cultivateur Lu est intéressé, vous pouvez l'examiner. Mais n'y pénétrez pas trop profondément. D'après mes observations, une bête féroce de rang 11 s'y trouve! »
+« Si le Daoïste Lu est intéressé, vous pouvez l'examiner. Mais n'y pénétrez pas trop profondément. D'après mes observations, une bête féroce de rang 11 s'y trouve! »
 
 Wang Lin prit la pierre et l'examina avec son sens divin. Il joignit ensuite les mains au vieil homme. Ils discutèrent encore un peu avant que ce dernier ne reparte.
 
 Au cours des deux jours restants, Wang Lin avait subtilement fait circuler la nouvelle selon laquelle il cherchait à acquérir des cartes stellaires. Rapidement, les gens commencèrent à en proposer, et en seulement deux jours, presque toutes les cartes de la ville avaient été rassemblées. Une fois vérifiées avec soin, ces cartes finirent entre les mains de Cang Songzi. Ce dernier se rendit à l'auberge où logeait Wang Lin et, après avoir échangé quelques mots, sortit un sac rempli de parchemins.
 
-« J'ai entendu dire que le camarade cultivateur Lu s'intéressait aux cartes stellaires, j'ai donc chargé des gens d'en collecter. Cependant, il y a trop de fausses informations, je ne saurais dire lesquelles sont exactes. Le camarade cultivateur devra les examiner avec attention. »
+« J'ai entendu dire que le Daoïste Lu s'intéressait aux cartes stellaires, j'ai donc chargé des gens d'en collecter. Cependant, il y a trop de fausses informations, je ne saurais dire lesquelles sont exactes. Le Daoïste devra les examiner avec attention. »
 
-Après avoir pris le sac, Wang Lin sourit et joignit les mains. « Merci, camarade cultivateur Cang Songzi. Cela m'évite bien des tracas. »
+Après avoir pris le sac, Wang Lin sourit et joignit les mains. « Merci, Daoïste Cang Songzi. Cela m'évite bien des tracas. »
 
-Après un moment de discussion, Cang Songzi regarda Wang Lin et demanda soudainement: « Je me demande si le camarade cultivateur Lu aura des affaires urgentes à régler après la vente aux enchères de demain? »
+Après un moment de discussion, Cang Songzi regarda Wang Lin et demanda soudainement: « Je me demande si le Daoïste Lu aura des affaires urgentes à régler après la vente aux enchères de demain? »
 
-Wang Lin le regarda et secoua la tête. « Camarade Cang Songzi, allez droit au but. »
+Wang Lin le regarda et secoua la tête. « Daoïste Cang Songzi, allez droit au but. »
 
 Cang Songzi réfléchit et dit: « Je connais un lieu secret qui pourrait contenir quelque chose qui vous intéresse. » En parlant, il fixa Wang Lin. Ne constatant aucun changement dans l'expression de ce dernier, il sortit une pierre de jade et la lui tendit.
 
 Wang Lin accepta le jade. Il ne l'examina pas, mais regarda Cang Songzi avec un sourire qui n'en était pas un.
 
-Cang Songzi toussa sèchement: « Pour faire court, je vois que le camarade cultivateur Lu échange de nombreux cristaux d'origine. Si vous m'aidez à pénétrer dans ce lieu, je vous offrirai 10 000 cristaux d'origine en récompense! »
+Cang Songzi toussa sèchement: « Pour faire court, je vois que le Daoïste Lu échange de nombreux cristaux d'origine. Si vous m'aidez à pénétrer dans ce lieu, je vous offrirai 10 000 cristaux d'origine en récompense! »
 
 Wang Lin balaya calmement la pierre de jade avec son sens divin et ferma les yeux. La pièce resta silencieuse. Cang Songzi ne montra aucune impatience et attendit la réponse.
 

@@ -1,6 +1,6 @@
 ---
 n: 1375
-title: "Première rencontre avec le Moineau de Feu"
+title: "Première rencontre avec Huo Que"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1375 - First Encounter With Fire Sparrow
@@ -62,7 +62,7 @@ Maître Simo sourit, les yeux brillants, tandis qu'il regardait au loin. Une sil
 
 « Senior Simo, cela fait bien des années que nous ne nous sommes pas vus, et vous avez toujours autant de prestance! » rit le vieil homme tandis que l'énergie originelle enveloppait son corps. Il dégageait l'aura d'un cultivateur au quatrième niveau du Fléau Céleste.
 
-Maître Simo rit à son tour et joignit les mains: « Camarade cultivateur Sun, cela fait quelques siècles que nous ne nous sommes pas croisés. Je viens vous importuner de nouveau. »
+Maître Simo rit à son tour et joignit les mains: « Daoïste Sun, cela fait quelques siècles que nous ne nous sommes pas croisés. Je viens vous importuner de nouveau. »
 
 « Comment la venue d'un Senior pourrait-elle être une nuisance? Nous nous connaissons depuis longtemps. Sans vos conseils, Senior Simo, je serais déjà mort au troisième niveau du Fléau Céleste. Senior Simo, veuillez me suivre dans ma grotte! » rit le vieil homme. Il était le neuvième Ancien Déchu et, d'ordinaire, ne se souciait guère des affaires mondaines. Il était en culture fermée lorsqu'il reçut le message de Maître Simo et sortit immédiatement.
 
@@ -94,15 +94,15 @@ Le pavillon paraissait très ancien. Alors qu'ils entraient, une femme d'une tre
 
 Son regard balaya Wang Lin, et une pointe de choc traversa ses yeux.
 
-Le Patriarche du Scorpion Noir sourit en joignant les mains: « Aujourd'hui, je ne suis ici qu'en compagnie de ce camarade cultivateur. »
+Le Patriarche du Scorpion Noir sourit en joignant les mains: « Aujourd'hui, je ne suis ici qu'en compagnie de ce Daoïste. »
 
-La femme sourit et observa attentivement Wang Lin. Elle se pencha légèrement: « Camarade cultivateur, veuillez me suivre à l'étage. Si vous avez besoin de quoi que ce soit, n'hésitez pas à demander. »
+La femme sourit et observa attentivement Wang Lin. Elle se pencha légèrement: « Daoïste, veuillez me suivre à l'étage. Si vous avez besoin de quoi que ce soit, n'hésitez pas à demander. »
 
 Wang Lin resta impassible et salua légèrement la tête avant de la suivre à l'étage. Le second niveau était restreint, doté de quelques sièges raffinés. Wang Lin s'assit et fixa la femme du regard.
 
 Le Patriarche du Scorpion Noir resta debout derrière lui.
 
-Voyant cela, une lueur étrange, très bien dissimulée, passa dans les yeux de la femme. Elle baissa la tête et demanda doucement: « Que désire le camarade cultivateur? »
+Voyant cela, une lueur étrange, très bien dissimulée, passa dans les yeux de la femme. Elle baissa la tête et demanda doucement: « Que désire le Daoïste? »
 
 « Des Cristaux de Mutation de Feu Déchaîné! » déclara lentement Wang Lin, son regard quittant la femme pour se porter vers l'entrée du second étage, une étincelle brillant dans ses yeux.
 
@@ -114,6 +114,6 @@ L'individu portait une robe rouge flamboyant et avait les cheveux blancs en bata
 
 Une marque de feu trônait entre ses sourcils! Elle était si vive qu'elle paraissait réellement ardente. Lorsqu'il atteignit le second étage, son regard croisa celui de Wang Lin.
 
-« Camarade cultivateur, il vaut mieux céder les Cristaux de Mutation de Feu Déchaîné à cet ancien. »
+« Daoïste, il vaut mieux céder les Cristaux de Mutation de Feu Déchaîné à cet ancien. »
 
 Wang Lin esquissa un sourire.

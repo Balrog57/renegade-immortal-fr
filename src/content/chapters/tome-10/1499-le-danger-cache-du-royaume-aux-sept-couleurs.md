@@ -38,7 +38,7 @@ Alors que Wang Lin évoquait le Royaume aux sept couleurs et mentionnait son hyp
 
 Le Maître Yan Leizi sentit son esprit vaciller. Ce que Wang Lin révélait sur le Royaume aux sept couleurs lui rappelait des événements terrifiants du passé.
 
-Le Maître Lu Fu, bouleversé, se leva soudainement. Il joignit les mains en signe de respect devant Wang Lin et dit: « Camarade cultivateur Wang, cette affaire est trop grave. L'existence même du Royaume aux sept couleurs est comme une tumeur parasite dans notre Royaume Intérieur. Une fois que le Royaume Extérieur aura envahi nos terres, je crains que ce royaume n'apporte un désastre inimaginable à notre monde! »
+Le Maître Lu Fu, bouleversé, se leva soudainement. Il joignit les mains en signe de respect devant Wang Lin et dit: « Daoïste Wang, cette affaire est trop grave. L'existence même du Royaume aux sept couleurs est comme une tumeur parasite dans notre Royaume Intérieur. Une fois que le Royaume Extérieur aura envahi nos terres, je crains que ce royaume n'apporte un désastre inimaginable à notre monde! »
 
 « Absorber toute l'intention du Dao des cultivateurs de mon Royaume Intérieur... quelle méthode redoutable! Ce vieil homme doit immédiatement se rendre à la Secte Démon dans la Mer Yun pour qu'ils mobilisent toutes les forces afin d'éliminer les six autres Royaumes aux sept couleurs! » L'expression du Maître Lu Fu était extrêmement grave. Il percevait clairement le péril imminent. Sans l'alerte de Wang Lin, cela aurait causé une catastrophe sans précédent lors de l'invasion du Royaume Extérieur!
 
@@ -50,7 +50,7 @@ Wang Lin hocha la tête. Il était revenu pour informer le Royaume Intérieur de
 
 Après avoir entendu parler du Royaume aux sept couleurs, le Maître Yan Leizi resta silencieux. Son visage était sombre et incertain tandis que les pièces du puzzle du passé s'assemblaient dans son esprit.
 
-Wang Lin remarqua ce changement. Il regarda le Maître Yan Leizi et demanda: « Camarade cultivateur Yan Leizi, savez-vous où se trouvent les autres Royaumes aux sept couleurs? »
+Wang Lin remarqua ce changement. Il regarda le Maître Yan Leizi et demanda: « Daoïste Yan Leizi, savez-vous où se trouvent les autres Royaumes aux sept couleurs? »
 
 À ces mots, le Maître Lu Fu tourna immédiatement le regard vers lui. Ayant également remarqué l'altération de l'expression du Maître Yan Leizi, il attendait sa réponse.
 
@@ -62,11 +62,11 @@ L'expression de Wang Lin se fit solennelle et il hocha la tête.
 
 Le Maître Yan Leizi poursuivit: « Alors, il doit y avoir un Royaume aux sept couleurs au siège même de l'Alliance! »
 
-Une lueur de froideur traversa le regard du Maître Lu Fu. Il joignit les mains devant Wang Lin: « Camarade cultivateur Wang, je ne peux rester vous divertir davantage aujourd'hui. Je dois me rendre à la Secte Démon au plus vite... »
+Une lueur de froideur traversa le regard du Maître Lu Fu. Il joignit les mains devant Wang Lin: « Daoïste Wang, je ne peux rester vous divertir davantage aujourd'hui. Je dois me rendre à la Secte Démon au plus vite... »
 
 Wang Lin se leva et dit calmement: « Je m'occuperai du Royaume aux sept couleurs au siège de l'Alliance! »
 
-« Très bien. Puisque le camarade cultivateur Wang Lin s'en charge, alors ce Royaume aux sept couleurs sera certainement anéanti! » acquiesça le Maître Lu Fu.
+« Très bien. Puisque le Daoïste Wang Lin s'en charge, alors ce Royaume aux sept couleurs sera certainement anéanti! » acquiesça le Maître Lu Fu.
 
 Le banquet fut bref, mais le choc ressenti par le Maître Lu Fu et ses compagnons était tout aussi puissant que celui de la bataille précédente. Après avoir pris congé, le Maître Lu Fu agita sa manche et disparut parmi les étoiles.
 

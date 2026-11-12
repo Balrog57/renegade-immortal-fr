@@ -72,7 +72,7 @@ Un seul mouvement pour tuer mille personnes!
 
 Wang Lin était un tigre féroce protégeant son domaine, et il chargea!
 
-Le tatouage de tonnerre planait au-dessus de lui, et la foudre descendait telle une punition divine sur les cultivateurs en contrebas. Des cris déchirants résonnèrent!
+Le tatouage de tonnerre planait au-dessus de lui, et la foudre descendait telle une Tribulation Céleste sur les cultivateurs en contrebas. Des cris déchirants résonnèrent!
 
 Pourtant, ce massacre ne suffisait pas à forcer ces dizaines de milliers de cultivateurs du Royaume Extérieur à battre en retraite. Au contraire, cela les rendit plus féroces encore. À cet instant, ces cultivateurs déchaînés et brûlants savaient qu'ils allaient mourir, alors ils choisirent l'autodestruction!
 
@@ -112,7 +112,7 @@ Grâce à la présence du Seigneur du Royaume Scellé, l'équilibre penchait en 
 
 Parmi ces plus de dix tribus se trouvaient 80 000 individus, dont deux cultivateurs du troisième stade. Ces deux derniers chargèrent vers l'ouverture!
 
-L'ancêtre des Moineaux de Feu et Nanzhao Shangren se rapprochèrent. Si Wang Lin n'avait eu affaire qu'à deux personnes du niveau de l'ancêtre du Clan Huo Que, il aurait pu les retarder. Cependant, Nanzhao Shangren était au stade du Vide Spirituel!
+L'ancêtre du Clan Huo Que et Nanzhao Shangren se rapprochèrent. Si Wang Lin n'avait eu affaire qu'à deux personnes du niveau de l'ancêtre du Clan Huo Que, il aurait pu les retarder. Cependant, Nanzhao Shangren était au stade du Vide Spirituel!
 
 Lui seul suffisait à tuer Wang Lin! Sans parler du fait qu'il possédait des sorts de poison aussi célèbres que ceux de la Grande Désolation!
 

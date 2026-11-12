@@ -30,7 +30,7 @@ Puis, une nouvelle armure se matérialisa autour de lui. C'était une armure en 
 
 À peine eut-il parlé que le monde trembla soudainement, tandis que les flammes bleues convergeaient de toutes les directions vers lui! De haut, on aurait pu voir clairement cette mer de feu se précipiter avec une rapidité fulgurante vers Wang Lin, l'atteignant presque instantanément!
 
-Cette scène fit pousser un cri d'effroi chez le vieil homme aux cheveux blancs. Il forma un sceau de sa main et projeta tous les sorts des Défis. D'innombrables sortilèges couvrirent le ciel pour fondre sur Wang Lin.
+Cette scène fit pousser un cri d'effroi chez le vieil homme aux cheveux blancs. Il forma un sceau de sa main et projeta tous les sorts des Défieurs. D'innombrables sortilèges couvrirent le ciel pour fondre sur Wang Lin.
 
 Cependant, au moment où les sorts atteignirent leur cible, la mer de flammes avait fini de converger. Wang Lin était devenu un vortex de feu, absorbant toutes les flammes bleues du monde. Un grondement sourd retentit alors que ces sortilèges entraient en collision avec l'incendie!
 
@@ -40,7 +40,7 @@ Un fracas tonitruant retentit à travers le monde. Il était difficile de décri
 
 « Feu des cieux et de la terre, écoutez mon commandement et incinérez tout! » La voix de Wang Lin était calme, mais cette sérénité semblait contenir une chaleur capable de consumer l'âme. Dès qu'il parla, la lumière bleue entre ses sourcils brilla intensément et le feu jaillit!
 
-Une mer de feu bleu se propagea avec Wang Lin au centre. Tous les sorts des Défis furent anéantis par les flammes. Même l'expression du vieil homme aux cheveux blancs changea radicalement et il fut contraint de reculer. Il forma un sceau pour résister, mais à ce moment-là, des craquements sinistres provinrent des neuf os de bêtes qui l'entouraient; ils ne purent supporter la puissance du feu et se brisèrent.
+Une mer de feu bleu se propagea avec Wang Lin au centre. Tous les sorts des Défieurs furent anéantis par les flammes. Même l'expression du vieil homme aux cheveux blancs changea radicalement et il fut contraint de reculer. Il forma un sceau pour résister, mais à ce moment-là, des craquements sinistres provinrent des neuf os de bêtes qui l'entouraient; ils ne purent supporter la puissance du feu et se brisèrent.
 
 Dès que les os disparurent, le feu bleu se précipita vers le vieil homme comme pour le dévorer. Ce dernier afficha un regard féroce et leva sa main droite vers ses sourcils. Soudain, une fente s'ouvrit entre ses deux yeux!
 

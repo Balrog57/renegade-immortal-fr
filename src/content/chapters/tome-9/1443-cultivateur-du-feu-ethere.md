@@ -62,9 +62,9 @@ Un cultivateur extrêmement corpulent agita son boulier et dit avec un sourire n
 
 « Tue une seule proie de trop et tu mourras ici! Personne ne pourra te sauver! » lança froidement, en s'avançant, un homme maigre vêtu de noir qui gardait les yeux obstinément fermés.
 
-L'homme en pourpre, escorté d'un poisson féroce, rugit: « Bien que ce compagnon soit puissant, si tu provoques la colère de tous, retire-toi de notre groupe et va affronter la mort. Si tu ne pars pas, ce seigneur fera rouler ton cadavre! »
+L'homme en pourpre, escorté d'un poisson féroce, rugit: « Bien que ce Daoïste soit puissant, si tu provoques la colère de tous, retire-toi de notre groupe et va affronter la mort. Si tu ne pars pas, ce seigneur fera rouler ton cadavre! »
 
-La voix lugubre d'une vieille femme en vert, le visage couvert de pustules, résonna: « Ce compagnon est bien trop téméraire. La fortune ici est à la portée de tous. Mais si ta cupidité devient excessive, même cette vieille femme ne pourra plus le supporter. Si tu deviens trop gourmand, je te tuerai moi-même. Peu importe ta puissance, tu périras si tu ne sais pas obéir! »
+La voix lugubre d'une vieille femme en vert, le visage couvert de pustules, résonna: « Ce Daoïste est bien trop téméraire. La fortune ici est à la portée de tous. Mais si ta cupidité devient excessive, même cette vieille femme ne pourra plus le supporter. Si tu deviens trop gourmand, je te tuerai moi-même. Peu importe ta puissance, tu périras si tu ne sais pas obéir! »
 
 « Ta culture est élevée, mais agir avec si peu de mesure, gaspiller ta culture et y laisser la vie est d'une stupidité sans nom... Hélas, quel dommage! Qu'un être aussi avide et stupide existe dans ce monde. Te crois-tu un cultivateur du troisième pas? » L'homme d'âge moyen tenant une cruche de vin dans la main gauche secoua la tête. Il prit une gorgée, puis chargea les bêtes féroces.
 

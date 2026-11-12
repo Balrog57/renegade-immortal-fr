@@ -38,9 +38,9 @@ En regardant les disciples de la Secte Gui Yuan s'éloigner, Wang Lin prit une p
 
 D'un geste de la main droite, il fit apparaître son espace de stockage. Deux épées courtes en sortirent. Il les avait obtenues dans le Royaume aux Sept Couleurs. Un sceau marquait chacune d'elles, et il ne les avait jamais brisés. Face à cette crise, il décida de les ouvrir par la force pour accroître sa puissance.
 
-Tandis que Wang Lin se préparait à affronter la calamité de vie ou de mort, loin de là, dans la région de rang 9, au sein de la Secte Brise-Ciel, Li Qianmei se trouvait piégée par une formation dressée par trois Anciens de la Punition. Li Qianmei regarda son maître et dit doucement: « Maître, ne voulez-vous pas que Qianmei parte? Pouvez-vous m'en donner la raison? »
+Tandis que Wang Lin se préparait à affronter la calamité de vie ou de mort, loin de là, dans la région de rang 9, au sein de la Secte Po Tian, Li Qianmei se trouvait piégée par une formation dressée par trois Anciens de la Punition. Li Qianmei regarda son maître et dit doucement: « Maître, ne voulez-vous pas que Qianmei parte? Pouvez-vous m'en donner la raison? »
 
-Le maître de Li Qianmei, le chef de la Secte Brise-Ciel, resta silencieux. Il semblait avoir perdu toute étincelle de vie, n'étant plus qu'une enveloppe vide.
+Le maître de Li Qianmei, le chef de la Secte Po Tian, resta silencieux. Il semblait avoir perdu toute étincelle de vie, n'étant plus qu'une enveloppe vide.
 
 Li Qianmei baissa la tête et reprit: « Maître, Qianmei a grandi à vos côtés, et c'est vous qui m'avez enseigné la voie de la culture et m'avez donné mon niveau actuel. Alors que la bataille fait rage à la Secte Démon, Qianmei ne demande rien de plus que de retourner sur le champ de bataille. »
 
@@ -60,7 +60,7 @@ Le maître de Li Qianmei soupira avant de contempler sa disciple la plus précie
 
 Avant qu'il ne puisse achever sa phrase, l'un des trois Anciens joignit les mains et intervint: « Je demande au Maître de la secte de bien y réfléchir! »
 
-« Je sais ce que je fais! » Le chef de la Secte Brise-Ciel lança un regard glacial à l'Ancien qui venait de prendre la parole.
+« Je sais ce que je fais! » Le chef de la Secte Po Tian lança un regard glacial à l'Ancien qui venait de prendre la parole.
 
 « Li Qianmei, connais-tu une personne nommée Lu Zihao? » Le regard du chef de secte se posa sur elle.
 

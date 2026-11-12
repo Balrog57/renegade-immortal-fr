@@ -52,19 +52,19 @@ L'expression de Wang Lin était calme; il ne daigna même pas regarder l'extéri
 
 Le maître de la Secte Éternelle, absorbé par les paroles de Wang Lin, laissa échapper un sourire amer. Ce que Wang Lin venait de dire semblait vide de sens, tout en paraissant pourtant signifiant. En somme, c'était très étrange.
 
-À ce moment-là, voyant le regard de Wang Lin dirigé vers l'extérieur, il toussa et dit: « Remettez-les au camarade cultivateur Lu pour examen. »
+À ce moment-là, voyant le regard de Wang Lin dirigé vers l'extérieur, il toussa et dit: « Remettez-les au Daoïste Lu pour examen. »
 
 Les deux hommes à l'extérieur du pavillon hochèrent respectueusement la tête et entrèrent, s'arrêtant devant Wang Lin. Ils sortirent avec déférence six petits fanions et les tendirent à Wang Lin. Ce dernier les inspecta de son Sens Divin et découvrit immédiatement que chaque fanion contenait une âme d'Yin extrême d'une pureté absolue!
 
 Souriant, Wang Lin se leva et s'adressa au maître de la Secte et au Grand Ancien. Il joignit les mains en disant: « Je vous remercie tous les deux, je vous suis très reconnaissant! »
 
-Le maître de la Secte se leva et sourit. « Le camarade cultivateur Lu est trop courtois. La compétition des sectes de rang 8 aura lieu dans cinq jours. J'espère que le camarade cultivateur Lu donnera tout ce qu'il a pour aider la Secte Éternelle à remporter la victoire! »
+Le maître de la Secte se leva et sourit. « Le Daoïste Lu est trop courtois. La compétition des sectes de rang 8 aura lieu dans cinq jours. J'espère que le Daoïste Lu donnera tout ce qu'il a pour aider la Secte Éternelle à remporter la victoire! »
 
 Le Grand Ancien se leva également et joignit les mains, souriant.
 
 Wang Lin hocha la tête d'un air serein. « Soyez rassurés, je ferai de mon mieux! J'ai quitté la Secte Gui Yuan depuis cent ans, je ne vous dérangerai donc plus et j'irai retrouver mes juniors. »
 
-Le sourire du maître de la Secte s'élargit encore: « Le frère Lu se soucie également de ses juniors, ce vieil homme ne vous retiendra pas. Sun De, raccompagne le camarade cultivateur Lu là où se trouve la Secte Gui Yuan! »
+Le sourire du maître de la Secte s'élargit encore: « Le frère Lu se soucie également de ses juniors, ce vieil homme ne vous retiendra pas. Sun De, raccompagne le Daoïste Lu là où se trouve la Secte Gui Yuan! »
 
 L'un des disciples ayant apporté les âmes d'Yin extrême répondit promptement.
 

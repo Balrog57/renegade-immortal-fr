@@ -1,6 +1,6 @@
 ---
 n: 1127
-title: La mort de l'avatar
+title: Une seule tête
 book: 8
 bookTitle: "Alliance's Secret"
 en: The Death of the Avatar
@@ -20,13 +20,13 @@ Cette fois, c'était de la véritable fureur!
 
 Alors que le rugissement résonnait, même le vortex où se trouvait Wang Lin devint instable. Le Ji Qiong atteignit le vortex en un instant et chargea au moment précis où Wang Lin disparaissait.
 
-La première épreuve de la Terre Gu Shen était divisée en épreuves de métal, de bois, d'eau, de feu et de terre. Autrefois, il avait pénétré dans l'épreuve de la terre et pris le risque de tuer Bossu Meng. Cette fois, il entrait dans l'épreuve du métal.
+La première épreuve de la Terre Gu Shen était divisée en épreuves de métal, de bois, d'eau, de feu et de terre. Autrefois, il avait pénétré dans l'épreuve de la terre et pris le risque de tuer Meng Tuozi. Cette fois, il entrait dans l'épreuve du métal.
 
 Lorsqu'il sortit du vortex, ce qui apparut devant lui fut un cimetière d'épées! Des lames brisées étaient plantées partout dans le sol. D'un seul coup d'œil, ce monde sans fin était totalement recouvert d'épées, et il était impossible de les compter.
 
 Une puissante mélancolie émanait des lames, qui dégageaient une aura de solitude.
 
-Wang Lin n'eut pas le temps d'observer son environnement et chargea immédiatement. Simultanément, son œil droit s'illumina et le tonnerre enveloppa son corps. De loin, Wang Lin semblait faire renaître son ancien titre de Céleste du Tonnerre.
+Wang Lin n'eut pas le temps d'observer son environnement et chargea immédiatement. Simultanément, son œil droit s'illumina et le tonnerre enveloppa son corps. De loin, Wang Lin semblait faire renaître son ancien titre d'Immortel du Tonnerre.
 
 Sans la moindre hésitation, il fonça en avant, puis pointa la main derrière lui. Le tonnerre qui l'entourait sembla trouver une ouverture et fut projeté dans son sillage.
 
@@ -34,7 +34,7 @@ Sans la moindre hésitation, il fonça en avant, puis pointa la main derrière l
 
 Un grondement de tonnerre résonna à travers le cimetière d'épées lors de l'impact. Le Ji Qiong poussa un rugissement et ignora l'assaut électrique. Les dix-sept paires d'yeux rouges fixèrent Wang Lin alors qu'il se lançait à sa poursuite.
 
-Cependant, la puissance du tonnerre de Wang Lin ne pouvait être sous-estimée. Lorsque la foudre frappa le Ji Qiong, elle l'empêcha de prendre de la vitesse. C'était comme si le Ji Qiong subissait une divine rétribution et que Wang Lin était le messager des cieux!
+Cependant, la puissance du tonnerre de Wang Lin ne pouvait être sous-estimée. Lorsque la foudre frappa le Ji Qiong, elle l'empêcha de prendre de la vitesse. C'était comme si le Ji Qiong traversait une Tribulation Céleste et que Wang Lin était le messager des cieux!
 
 Tandis qu'il volait, les mains de Wang Lin formèrent rapidement des sceaux. Le tonnerre jaillit du vide et crépita entre ses doigts avant de frapper le Ji Qiong.
 

@@ -72,13 +72,13 @@ Cette sphère contenait une quantité colossale d'énergie originelle. En tourna
 
 Il poussa ses mains en avant et un sifflement s'échappa de la sphère, comme un appel. Simultanément, la voix du vieil homme résonna dans le monde:
 
-« Invoquez, les Défis! »
+« Invoque, Défieur! »
 
 À l'instant où sa voix retentit, une lumière aux sept couleurs perça les flammes bleues pour lutter contre elles. Une figure illusoire apparut dans cet éclat chromatique, suivie d'une boussole géante qui occupa le ciel.
 
 L'assaut ne s'arrêta pas là. Des rayons de lumière aux sept couleurs se rejoignirent pour former une épée monumentale. Elle oscilla violemment, comme prête à trancher l'océan de flammes en deux.
 
-Ces sorts, façonnés par la lumière aux sept couleurs, étaient les techniques des Défis. Entre les mains du vieil homme, leur puissance surpassait de loin celle que Cang Songzi avait pu invoquer.
+Ces sorts, façonnés par la lumière aux sept couleurs, étaient les techniques des Défieurs. Entre les mains du vieil homme, leur puissance surpassait de loin celle que Cang Songzi avait pu invoquer.
 
 Dès qu'elle apparut, l'épée aux sept couleurs fondit sur sa cible. Elle se transforma en un torrent d'énergie tranchante qui chargea l'Oiseau Vermillon Bleu au cœur des flammes!
 
@@ -96,8 +96,8 @@ Flottant dans les airs, la main gauche de Wang Lin forma un sceau et pointa vers
 
 Tout cela se joua en un instant. À l'instant même où le vieillard lançait ses sorts, la contre-attaque de Wang Lin les pulvérisait tous. Simultanément, son intention meurtrière se verrouilla sur l'adversaire.
 
-Le vieil homme regarda Wang Lin avec une expression grave. Sa main droite pointa vers le ciel et il hurla: « En tant que gardien du Royaume aux Sept Couleurs, j'ordonne à tous les Défis d'apparaître! »
+Le vieil homme regarda Wang Lin avec une expression grave. Sa main droite pointa vers le ciel et il hurla: « En tant que gardien du Royaume aux Sept Couleurs, j'ordonne à tous les Défieurs d'apparaître! »
 
 Alors que le vieillard rugissait, la lumière aux sept couleurs sembla entrer en transe et perça la mer de flammes. Des dizaines de figures illusoires surgirent de toutes parts. Il y avait des jeunes et des vieux, des hommes et des femmes parmi ces silhouettes, mais chacune dégageait une aura terrifiante. Tous fixèrent Wang Lin et, presque aussitôt, d'innombrables sorts apparurent autour de ces dizaines d'individus. Chacun de ces sorts était comparable au Doigt du Destin Céleste, et tous furent projetés vers Wang Lin.
 
-« Peu importe la puissance de ton feu, tu n'es qu'un cultivateur du stade Purificateur du Nirvana, incapable de résister aux sorts des Défis... Ton pouvoir igné est certes impressionnant, mais ce vieil homme possède les trésors offerts par le Souverain. Ton feu ne pourra jamais briser ces trésors », déclara le vieil homme d'une voix calme.
+« Peu importe la puissance de ton feu, tu n'es qu'un cultivateur du stade Purificateur du Nirvana, incapable de résister aux sorts des Défieurs... Ton pouvoir igné est certes impressionnant, mais ce vieil homme possède les trésors offerts par le Souverain. Ton feu ne pourra jamais briser ces trésors », déclara le vieil homme d'une voix calme.

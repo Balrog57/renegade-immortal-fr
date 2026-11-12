@@ -40,7 +40,7 @@ Le jade imprégné de son intention meurtrière se fondit dans le monde. Mais le
 
 Il agita la main droite et le troisième jade disparut.
 
-« Maître de la Secte Brise-Ciel, viens vite à la Secte Divine: devant ce vieil homme, je t'accorderai la mort. Si tu ne viens pas, la Secte Brise-Ciel sera anéantie! »
+« Maître de la Secte Po Tian, viens vite à la Secte Divine: devant ce vieil homme, je t'accorderai la mort. Si tu ne viens pas, la Secte Po Tian sera anéantie! »
 
 Le quatrième jade fusionna avec l'univers.
 
@@ -50,7 +50,7 @@ Le cinquième jade se désintégra pour fusionner avec le vide, emportant un sou
 
 Après avoir lancé ces cinq ordres consécutifs, l'inquiétude du Shui Daozi s'était un peu dissipée. Pourtant, le malaise persistait, et il saisit le sixième jade. Un instant plus tard, une intention meurtrière brûla dans ses yeux.
 
-« Mer Yun, Rivière Invoquée, Luotian et l'Alliance. Ce vieil homme est l'Ancien en chef de la Secte Divine et le serviteur du Seigneur du Royaume Scellé. Depuis des dizaines de milliers d'années, j'ai veillé sur la Secte Divine et j'ai accompli de grands mérites lors de la seconde guerre contre le Royaume Extérieur!
+« Mer Yun, Zhao He, Luotian et l'Alliance. Ce vieil homme est l'Ancien en chef de la Secte Divine et le serviteur du Seigneur du Royaume Scellé. Depuis des dizaines de milliers d'années, j'ai veillé sur la Secte Divine et j'ai accompli de grands mérites lors de la seconde guerre contre le Royaume Extérieur!
 
 « Aujourd'hui, ce vieil homme a reçu des informations précises: un cultivateur de l'Alliance nommé Wang Lin est un pion du Souverain du Royaume Extérieur! Cet individu s'est bien caché et a également obtenu le trésor suprême de mon maître issu du Royaume Céleste Antique, la Perle Défiant le Ciel. Il a séduit la Secte Démon, mais il ne pourra échapper à ce vieil homme!
 
@@ -102,7 +102,7 @@ La teinte sanglante du ciel se dissipa peu à peu, retrouvant son aspect normal.
 
 « Une fois Wang Lin éliminé, je pourrai échanger cette cloche contre de grands mérites. Le Souverain me comblera de Flammes Joss infinies! » Quant à fusionner la cloche avec la Formation de Scellement du Royaume pour gagner cent ans, le Shui Daozi n'en avait jamais eu l'intention!!
 
-Dans le Système Stellaire de la Rivière Invoquée, sous le Royaume Céleste du Tonnerre, se trouvait un immense vortex. Ce vortex existait depuis des éons et constituait une terre interdite au sein de la Rivière Invoquée. Tout cultivateur s'en approchant voyait toute sa force primordiale aspirée et mourait piégé en son sein.
+Dans le Système Stellaire de Zhao He, sous le Royaume Céleste du Tonnerre, se trouvait un immense vortex. Ce vortex existait depuis des éons et constituait une terre interdite au sein de Zhao He. Tout cultivateur s'en approchant voyait toute sa force primordiale aspirée et mourait piégé en son sein.
 
 Au plus profond du vortex se nichait une planète de culture. Cette dernière, de petite taille, était entièrement noire.
 
@@ -112,7 +112,7 @@ L'homme arborait une expression hideuse, son visage marqué par de nombreuses pu
 
 Soudain, l'homme ouvrit les yeux, révélant un regard froid et indifférent. À cet instant, une fumée apparut devant lui et prit la forme d'une grue de nuage.
 
-« Appel au Compagnon Cultivateur Zhou De de la Rivière Invoquée. Je suis prêt à vous offrir un esprit dao de rang 6 si vous m'aidez une fois! »
+« Appel au Compagnon Cultivateur Zhou De de Zhao He. Je suis prêt à vous offrir un esprit dao de rang 6 si vous m'aidez une fois! »
 
 La voix du Shui Daozi émana de la grue et résonna dans toute la planète.
 
@@ -120,7 +120,7 @@ Les yeux du vieil homme s'illuminèrent. Il leva la main, saisit la grue nuageus
 
 « Le Shui Daozi est toujours aussi avare. Pour offrir un esprit dao de rang 6 à ce vieux, je me demande quel genre d'ennemi il a bien pu rencontrer... L'aider une fois... soit! »
 
-Dans la Rivière Invoquée, sur une planète à moitié abandonnée située dans l'une des capitales mortelles, se trouvait un prêteur sur gages dont le propriétaire était un homme d'âge moyen au visage serein. Malgré ses traits paisibles, tout le monde savait que cet homme marchandait jusqu'au dernier sou!
+Dans Zhao He, sur une planète à moitié abandonnée située dans l'une des capitales mortelles, se trouvait un prêteur sur gages dont le propriétaire était un homme d'âge moyen au visage serein. Malgré ses traits paisibles, tout le monde savait que cet homme marchandait jusqu'au dernier sou!
 
 Ce jour-là, il était assis dans sa boutique, tenant un jade entre ses mains. Tout en l'examinant avec soin, il observait attentivement la personne venue vendre son bien.
 
@@ -134,7 +134,7 @@ Le prêteur fronça les sourcils. Alors qu'il s'apprêtait à parler, son expres
 
 Une grue de nuage apparut devant lui.
 
-« Appel au Compagnon Cultivateur Maître Bord-des-Nuages de la Rivière Invoquée. Je vous offrirai le Sort d'Arrêt du Seigneur du Royaume Scellé si vous m'aidez une fois! » La voix du Shui Daozi résonna dans l'esprit de l'homme.
+« Appel au Compagnon Cultivateur Yun Fengzi de Zhao He. Je vous offrirai le Sort d'Arrêt du Seigneur du Royaume Scellé si vous m'aidez une fois! » La voix du Shui Daozi résonna dans l'esprit de l'homme.
 
 L'œil de ce dernier brilla tandis qu'il se frottait le menton, plongé dans sa réflexion.
 

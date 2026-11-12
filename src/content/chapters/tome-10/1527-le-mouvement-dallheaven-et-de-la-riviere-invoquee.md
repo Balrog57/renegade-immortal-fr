@@ -1,6 +1,6 @@
 ---
 n: 1527
-title: "Le mouvement de Luotian et de la Rivière Invoquée!"
+title: "Le mouvement de Luotian et de Zhao He!"
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1527 - Allheaven and Summoned River Move!"
@@ -110,4 +110,4 @@ Les renforts de Luotian étaient arrivés!
 
 Encore plus loin, des éclairs surgirent de nulle part. Ils déchirèrent le vide et se rapprochèrent à une vitesse fulgurante. Ce n'étaient pas quelques éclairs, mais une multitude infinie!
 
-Les renforts de la Rivière Invoquée étaient arrivés!
+Les renforts de Zhao He étaient arrivés!

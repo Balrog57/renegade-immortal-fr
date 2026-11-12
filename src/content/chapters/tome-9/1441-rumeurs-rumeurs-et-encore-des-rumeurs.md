@@ -69,7 +69,7 @@ Parmi les 28 plateformes, trois étaient vides. Une aura glaciale émanait des s
 
 Des bêtes humanoïdes rôdaient dans la brume. D'un simple coup d'œil, il était impossible d'en dénombrer le nombre! Elles étaient partout!
 
-La vieille femme qui avait semé la confusion parla d'une voix rauque: « Compagnons cultivateurs, peu importe nos clans respectifs, le fait que nous soyons réunis ici signifie que nos destins sont liés. Pour l'instant, j'espère que personne ne se retiendra face à ces créatures... Cette vieille femme a consulté des archives anciennes et connaît un peu cette tombe antique. Nous ne sommes qu'à la périphérie extérieure; nous devons réussir ce test pour être qualifiés afin d'entrer dans la tombe... »
+La vieille femme qui avait semé la confusion parla d'une voix rauque: « Daoïstes, peu importe nos clans respectifs, le fait que nous soyons réunis ici signifie que nos destins sont liés. Pour l'instant, j'espère que personne ne se retiendra face à ces créatures... Cette vieille femme a consulté des archives anciennes et connaît un peu cette tombe antique. Nous ne sommes qu'à la périphérie extérieure; nous devons réussir ce test pour être qualifiés afin d'entrer dans la tombe... »
 
 Alors que sa voix résonnait, les bêtes humanoïdes poussèrent des rugissements de folie et chargèrent hors du brouillard vers les 25 cultivateurs répartis sur les plateformes! La scène était terrifiante: elles étaient des milliers!
 

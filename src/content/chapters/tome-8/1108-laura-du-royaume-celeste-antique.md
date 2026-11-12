@@ -6,25 +6,25 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1108 - Aura of the Ancient Celestial Realm
 slug: laura-du-royaume-celeste-antique
 ---
-De loin, on aurait dit que Wang Lin était dévoré par le brouillard de sang, puis tout s'apaisa. Les bêtes-moustiques volaient nerveusement avec leurs compagnons. Ils observaient les nuages de la rétribution divine mais n'osaient pas s'en approcher, car cette rétribution n'était pas une épreuve qu'ils pouvaient endurer pour le moment.
+De loin, on aurait dit que Wang Lin était dévoré par le brouillard de sang, puis tout s'apaisa. Les bêtes-moustiques volaient nerveusement avec leurs compagnons. Ils observaient les nuages de la Tribulation Céleste mais n'osaient pas s'en approcher, car cette Tribulation Céleste n'était pas une épreuve qu'ils pouvaient endurer pour le moment.
 
-Le temps passa lentement. Juste au moment où l'impatience poussait les bêtes-moustiques à charger vers les nuages de la rétribution divine, un rugissement tonitruant retentit de l'intérieur du brouillard rouge!
+Le temps passa lentement. Juste au moment où l'impatience poussait les bêtes-moustiques à charger vers les nuages de la Tribulation Céleste, un rugissement tonitruant retentit de l'intérieur du brouillard rouge!
 
 Tandis que le brouillard rouge grondait, des éclairs jaillirent et une mer de flammes fit rage. Une silhouette écarlate surgit du brouillard de sang. C'était Wang Lin!
 
-Le visage de Wang Lin était pâle, mais une intention meurtrière brûlait dans son expression féroce alors qu'il s'élançait hors du brouillard rouge, visant droit vers les nuages de la rétribution divine. Il franchit l'espace de 10 000 pieds en un instant et chargea au cœur des nuages!
+Le visage de Wang Lin était pâle, mais une intention meurtrière brûlait dans son expression féroce alors qu'il s'élançait hors du brouillard rouge, visant droit vers les nuages de la Tribulation Céleste. Il franchit l'espace de 10 000 pieds en un instant et chargea au cœur des nuages!
 
-Dès qu'il pénétra dans la rétribution divine, il sentit immédiatement la puissance des cieux. Il projeta ses deux mains en avant, provoquant la collision du feu et du tonnerre, créant ainsi une aura destructrice qui ébranlait le ciel.
+Dès qu'il pénétra dans la Tribulation Céleste, il sentit immédiatement la puissance des cieux. Il projeta ses deux mains en avant, provoquant la collision du feu et du tonnerre, créant ainsi une aura destructrice qui ébranlait le ciel.
 
-Un fracas assourdissant retentit soudainement; alors que le feu et le tonnerre s'entrechoquaient, les immenses nuages de la rétribution divine commencèrent à se rétracter rapidement.
+Un fracas assourdissant retentit soudainement; alors que le feu et le tonnerre s'entrechoquaient, les immenses nuages de la Tribulation Céleste commencèrent à se rétracter rapidement.
 
-Le tonnerre et les flammes emplirent l'intégralité des nuages. L'impact puissant força la rétribution divine à se contracter frénétiquement, et le rugissement provenant de l'intérieur devint encore plus terrifiant.
+Le tonnerre et les flammes emplirent l'intégralité des nuages. L'impact puissant força la Tribulation Céleste à se contracter frénétiquement, et le rugissement provenant de l'intérieur devint encore plus terrifiant.
 
 En un instant, les nuages commencèrent à s'effondrer sous l'effet du grondement intense. C'était comme si une paire de mains gigantesques déchirait la voûte céleste. Wang Lin sentit clairement la force de déchirement qui tentait de mettre son corps en pièces. Il s'apprêtait à s'en extraire quand ses pupilles se contractèrent.
 
 Bien qu'entouré par les nuages, Wang Lin vit nettement une fissure spatiale de cent pieds non loin de lui!
 
-Une brume dense s'échappait de la fissure, comme si celle-ci était la source même de la rétribution divine.
+Une brume dense s'échappait de la fissure, comme si celle-ci était la source même de la Tribulation Céleste.
 
 Après une brève hésitation, Wang Lin se dirigea vers la fissure spatiale. Quelques instants plus tard, il fut à ses côtés. Ce qui était étrange, c'est qu'il ne ressentait aucune force de déchirement à proximité de la faille, ce qui le rendit d'autant plus prudent.
 
@@ -42,23 +42,23 @@ Si cela avait été tout, cela n'aurait pas suffi à bouleverser Wang Lin. Cepen
 
 Un jeune homme vêtu d'une robe daoïste était assis en tailleur sur la tête de l'une des statues de diables anciens. Il tenait un miroir à la main et fronçait les sourcils, plongé dans ses calculs.
 
-« L'entrée de la rétribution divine dont l'oncle-maître Ma a parlé devrait se trouver ici... »
+« L'entrée de la Tribulation Céleste dont l'oncle-maître Ma a parlé devrait se trouver ici... »
 
 À cet instant précis, le jeune homme leva soudainement la tête. Ses yeux étaient empreints d'extase. En regardant vers le ciel, il avait manifestement détecté le Sens Divin de Wang Lin. Ses yeux s'illuminèrent et un rayon de lumière vert-noir jaillit vers les cieux.
 
-Wang Lin n'hésita pas une seconde à couper ce fragment de son Sens Divin. Il se précipita immédiatement pour traverser le feu et le tonnerre des nuages de la rétribution divine. Il s'en extirpa et fonça vers les bêtes moustiques.
+Wang Lin n'hésita pas une seconde à couper ce fragment de son Sens Divin. Il se précipita immédiatement pour traverser le feu et le tonnerre des nuages de la Tribulation Céleste. Il s'en extirpa et fonça vers les bêtes moustiques.
 
-Au moment où il sortit de la rétribution, son expression changea: il sentit que son fragment de Sens Divin avait été détruit. Sans prendre le temps de réfléchir, il agita la main pour ranger toutes les bêtes moustiques dans son espace de stockage, tout en récupérant le talisman jaune sur le dos de l'une d'elles.
+Au moment où il sortit de la Tribulation Céleste, son expression changea: il sentit que son fragment de Sens Divin avait été détruit. Sans prendre le temps de réfléchir, il agita la main pour ranger toutes les bêtes moustiques dans son espace de stockage, tout en récupérant le talisman jaune sur le dos de l'une d'elles.
 
 Il accomplit ces gestes sans aucune pause, plaça ensuite le talisman jaune sur lui et s'élança. Un tourbillon se forma autour de lui, sa vitesse augmenta drastiquement et il s'enfuit.
 
-Peu après, Wang Lin laissa derrière lui les grondements de la rétribution divine. Les nuages continuaient de se rétracter jusqu'à sembler avoir disparu.
+Peu après, Wang Lin laissa derrière lui les grondements de la Tribulation Céleste. Les nuages continuaient de se rétracter jusqu'à sembler avoir disparu.
 
 Pourtant, en regardant de près, on aurait vu que les nuages ne s'étaient pas dissipés; ils s'étaient condensés en un rayon de lumière vert-noir.
 
-Dès l'apparition de cette lueur, une aura qui n'appartenait pas à ce monde se manifesta. L'isolement créé par la rétribution divine se dissipa instantanément.
+Dès l'apparition de cette lueur, une aura qui n'appartenait pas à ce monde se manifesta. L'isolement créé par la Tribulation Céleste se dissipa instantanément.
 
-«... J'ai accidentellement aidé à dissiper les quatre formes restantes de la rétribution divine, les plus puissantes... Peu importe, je suis enfin sorti de cet endroit maudit, alors il était juste de l'aider. » Des paroles exaltées s'échappèrent de la lumière vert-noir, avant qu'elle ne disparaisse sans laisser de trace.
+«... J'ai accidentellement aidé à dissiper les quatre formes restantes de la Tribulation Céleste, les plus puissantes... Peu importe, je suis enfin sorti de cet endroit maudit, alors il était juste de l'aider. » Des paroles exaltées s'échappèrent de la lumière vert-noir, avant qu'elle ne disparaisse sans laisser de trace.
 
 Au même moment, dans la région occidentale de l'Alliance, un vieil homme était assis sur la prairie d'une planète de culture très commune. Vêtu de noir, il était d'un calme imperturbable, comme si rien au monde ne pouvait troubler sa sérénité.
 
@@ -70,7 +70,7 @@ Il leva sa main droite pour cueillir une pousse, mais sa main trembla soudaineme
 
 Si Maître Yan Leizi avait vu l'expression du vieil homme, il aurait été profondément choqué. Cet homme qu'il respectait tant était toujours resté calme et n'avait jamais montré une telle expression!
 
-Le vieil homme agita ses manches et son corps devint transparent avant de disparaître. Nul ne connaissait son niveau de culture ou le sortilège utilisé, mais lorsqu'il réapparut, il se trouvait précisément là où Wang Lin avait subi la rétribution divine!
+Le vieil homme agita ses manches et son corps devint transparent avant de disparaître. Nul ne connaissait son niveau de culture ou le sortilège utilisé, mais lorsqu'il réapparut, il se trouvait précisément là où Wang Lin avait subi la Tribulation Céleste!
 
 La distance parcourue était absolument inconcevable; même la Distorsion Spatiale ne permettrait pas de franchir une telle distance en un seul mouvement!
 
@@ -98,7 +98,7 @@ Un demi-bâton d'encens plus tard, Wang Lin retira son Sens Divin et sourit.
 
 « La structure de ce Système d'Étoiles de la Mer Yun est radicalement différente de celle de l'Alliance et de Luotian, elle me convient parfaitement... De plus, ce Royaume Céleste du Vent est en fait rempli de bêtes moustiques... Je ne pensais pas que la barrière entourant la Mer Yun serait la plus faible des quatre systèmes stellaires. Il suffira d'une formation spéciale pour la briser. » Les yeux de Wang Lin brillèrent alors qu'il regardait l'âme originelle dans sa main, avant de la ranger soigneusement dans son espace de stockage.
 
-« Je peux utiliser cette âme originelle comme guide en employant le sortilège du Frère Senior Qing Shui. Maintenant, il ne me manque que la formation. Heureusement, les matériaux nécessaires pour celle-ci ne sont pas trop difficiles à trouver. Il me suffit de comprendre pleinement la structure pour pouvoir en créer une. Si tout ce que j'ai préparé pour Tuo Sen s'avère insuffisant, alors le Système d'Étoiles de la Mer Yun sera mon ultime recours! »
+« Je peux utiliser cette âme originelle comme guide en employant le sortilège de Senior frère Qing Shui. Maintenant, il ne me manque que la formation. Heureusement, les matériaux nécessaires pour celle-ci ne sont pas trop difficiles à trouver. Il me suffit de comprendre pleinement la structure pour pouvoir en créer une. Si tout ce que j'ai préparé pour Tuo Sen s'avère insuffisant, alors le Système d'Étoiles de la Mer Yun sera mon ultime recours! »
 
 Wang Lin réfléchit un instant avant de se lever et de prendre une profonde inspiration. Il regarda la Secte Divine de l'Oiseau Vermillon et murmura: « Très bien, il ne me reste plus qu'à attendre que le vieux Empereur Divin revienne avec le Cristal du Royaume Céleste de la Pluie... Luotian, la Secte Shi Yin et les forces de l'Alliance ont tous supposé que j'avais envoyé les jades pour pouvoir pêcher en eau trouble... »
 

@@ -158,7 +158,7 @@ L'homme d'âge moyen du Clan An Xie apparut et regarda froidement la direction d
 
 Le visage de Zhong Dahong était d'une pâleur extrême. Cette épreuve lui avait appris que cet endroit était bien plus dangereux que le Clan Shan Lei.
 
-« Les pilules ont attiré trop l'attention, hélas... J'ai mal agi. Non seulement j'ai blessé le Compagnon Cultivateur Zhang, mais j'ai failli provoquer une catastrophe. » Zhong Dahong vola à toute vitesse vers la grotte de Wang Lin.
+« Les pilules ont attiré trop l'attention, hélas... J'ai mal agi. Non seulement j'ai blessé le Daoïste Zhang, mais j'ai failli provoquer une catastrophe. » Zhong Dahong vola à toute vitesse vers la grotte de Wang Lin.
 
 « La culture! Si j'avais eu un niveau plus élevé, comme celui de Xu Liguo, cela ne se serait pas passé ainsi! Moi, Zhong Dahong, je dois devenir fort! » Il serra les dents, l'esprit rempli d'incertitude. Deux heures plus tard, la montagne où se trouvait la grotte de Wang Lin apparut au bout de son regard.
 

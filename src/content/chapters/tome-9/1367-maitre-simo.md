@@ -42,7 +42,7 @@ Non seulement lui, mais le vieillard en robe taoïste dont l'âme originelle ava
 
 De même, dans la partie ouest de la planète, un groupe de cultivateurs vêtus de blanc avait fouillé toute la région sans rien trouver. Juste au moment où ils s'apprêtaient à partir, l'expression du chef, un homme d'âge moyen, changea et il changea brusquement de direction sans hésiter.
 
-Dans un domaine stellaire brumeux du Système Stellaire Antique vivait l'un des grands clans du Système Stellaire Antique, le Clan Brumeux. Au cœur de ce domaine se trouvait une planète bleue abritant un lac aussi calme qu'un miroir. C'était un spectacle d'une grande beauté.
+Dans un domaine stellaire brumeux du Système Stellaire Antique vivait l'un des grands clans du Système Stellaire Antique, le Clan Piao Miao. Au cœur de ce domaine se trouvait une planète bleue abritant un lac aussi calme qu'un miroir. C'était un spectacle d'une grande beauté.
 
 Une île trônait au centre du lac, sur laquelle étaient édifiés deux ou trois pavillons élégants. Ils étaient entourés d'une profusion de fleurs exhalant un parfum agréable. Le vent créait des rides à la surface de l'eau et transportait la fragrance des fleurs au loin.
 

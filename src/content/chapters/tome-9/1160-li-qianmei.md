@@ -32,9 +32,9 @@ La barrière protectrice entourant le continent de Mo Luo fut réparée et tout 
 
 À cet instant, devant la cour des herbes de la cour sud, Li Xiangdong, Lu Yanfei et les deux autres anciens se tenaient là. Bien qu'ils fussent présents depuis un long moment, ils ne manifestaient aucune impatience.
 
-Tous les cultivateurs de la cour sud avaient été relogés dans les trois autres cours. Hormis Xu Yun, qui se tenait aux côtés de Lu Yanfei, aucun autre disciple n'était resté sur place.
+Tous les cultivateurs de la cour sud avaient été relogés dans les trois autres cours. Hormis Sun Yun, qui se tenait aux côtés de Lu Yanfei, aucun autre disciple n'était resté sur place.
 
-« Ces herbes... ont-elles toutes été rapportées par le Grand Oncle-Maître? » Le regard de Li Xiangdong se posa sur les plantes dans la cour. En voyant Xu Yun acquiescer, son expression devint exaltée.
+« Ces herbes... ont-elles toutes été rapportées par le Grand Oncle-Maître? » Le regard de Li Xiangdong se posa sur les plantes dans la cour. En voyant Sun Yun acquiescer, son expression devint exaltée.
 
 Pendant ce temps, profondément sous terre, sous la cour, Wang Lin était assis, son corps original faisant face au sien, cultivant en silence.
 
@@ -66,11 +66,11 @@ Tout en réfléchissant, le regard de Wang Lin se posa sur les cinq personnes à
 
 Sa voix était paisible, mais empreinte d'une trace de majesté. Dès que ses paroles atteignirent les oreilles des cinq individus, ils prirent une grande inspiration. Tendus mais pleins de respect, ils pénétrèrent à l'intérieur.
 
-Xu Yun était encore plus nerveuse en suivant Lu Yanfei.
+Sun Yun était encore plus nerveuse en suivant Lu Yanfei.
 
 Dès que Li Xiangdong et ses compagnons furent entrés, ils s'inclinèrent respectueusement: « Ce disciple salue le Grand Oncle-Maître. Nous ignorions votre retour et avons négligé de vous saluer. Nous vous prions de nous punir. »
 
-Après une brève conversation, chacun repartit. Xu Yun ne pouvait plus résider ici et retourna au pavillon sud avec Lu Yanfei. La cour sud était désormais une zone restreinte où aucun disciple n'était autorisé à pénétrer.
+Après une brève conversation, chacun repartit. Sun Yun ne pouvait plus résider ici et retourna au pavillon sud avec Lu Yanfei. La cour sud était désormais une zone restreinte où aucun disciple n'était autorisé à pénétrer.
 
 Simultanément, sur ordre de Wang Lin, d'importantes quantités de pilules de haute qualité et de recettes leur furent envoyées. Cependant, aucune de ces pilules ne retint l'attention de Wang Lin. Après examen, il ne conserva que les recettes et fit débarrasser les pilules.
 
@@ -100,13 +100,13 @@ La prairie était plongée dans un silence absolu, seuls quelques petits êtres 
 
 Une femme se trouvait à l'intérieur de ce rayon. Elle était magnifique, mais arborait une couleur de cheveux singulière: une chevelure d'un bleu profond. Dans toute la Mer Yun, une seule personne possédait cette parure!
 
-Il s'agissait de Li Qianmei, de la Secte Brise-Ciel de rang 9!
+Il s'agissait de Li Qianmei, de la Secte Po Tian de rang 9!
 
 Elle commença sa culture à l'âge de cinq ans, atteignit l'Établissement des Fondations à sept ans, la Formation du Noyau à 19 ans, l'Âme Naissante à 26 ans, la Formation de l'Âme à 37 ans, la Transformation de l'Âme à 45 ans et l'Ascendant à 61 ans. Après cent ans de culture, elle atteignit le sommet du stade Yin Illusoire.
 
-Puis, toute la Secte Brise-Ciel consacra ses efforts à sa progression. Après plus de 400 ans, elle atteignit le sommet du stade Scruteur du Nirvana. Puis, trois cents ans plus tard, elle devint une cultivatrice au milieu du stade Purificateur du Nirvana.
+Puis, toute la Secte Po Tian consacra ses efforts à sa progression. Après plus de 400 ans, elle atteignit le sommet du stade Scruteur du Nirvana. Puis, trois cents ans plus tard, elle devint une cultivatrice au milieu du stade Purificateur du Nirvana.
 
-Après 500 ans d'entraînement extérieur, elle devint la plus jeune cultivatrice Briseur du Nirvana de la Secte Brise-Ciel! À ce jour, après plus de 1 200 ans de culture, elle avait atteint le stade avancé du Briseur du Nirvana.
+Après 500 ans d'entraînement extérieur, elle devint la plus jeune cultivatrice Briseur du Nirvana de la Secte Po Tian! À ce jour, après plus de 1 200 ans de culture, elle avait atteint le stade avancé du Briseur du Nirvana.
 
 Dans la Mer Yun, le nom de « Li Qianmei » était une légende!
 

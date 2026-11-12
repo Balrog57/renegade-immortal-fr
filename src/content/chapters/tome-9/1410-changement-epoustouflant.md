@@ -56,7 +56,7 @@ Plus choquant encore, derrière le feu jaune surgit une lueur verte fantomatique
 
 Trois couleurs de feu étaient apparues simultanément! Trois châtiments frappaient en même temps!
 
-C'était là la véritable terreur des neuf châtiments karmiques. Ce n'était pas comme la rétribution divine, qui laissait une lueur d'espoir et un répit entre chaque assaut. C'était un châtiment destructeur, conçu pour tuer dès son apparition!
+C'était là la véritable terreur des neuf châtiments karmiques. Ce n'était pas comme la Tribulation Céleste, qui laissait une lueur d'espoir et un répit entre chaque assaut. C'était un châtiment destructeur, conçu pour tuer dès son apparition!
 
 Les trois châtiments couvraient le ciel de l'Épreuve Humaine. À l'extérieur, le premier bâton d'encens réagissait pour refléter la situation: des fumées orange, jaune et verte s'élevaient en tourbillons au-dessus du bâton.
 

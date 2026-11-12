@@ -1,6 +1,6 @@
 ---
 n: 1223
-title: Changement de taille
+title: Changement soudain
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1223 - Shocking Change
@@ -36,7 +36,7 @@ La Restriction Temporelle ondula, mais à cet instant, les yeux de Wang Lin s'il
 
 Simultanément, l'étoile formée par la loi de Wang Lin scintilla. Un grondement assourdissant secoua les lieux alors que la pierre sous son poing se fendait et s'effondrait!
 
-Chen Tianjun fut témoin de cette scène. Il eut un souffle coupé et regarda Wang Lin avec admiration. Même Maître Nuage-Âme, à l'extérieur de la vallée, en fut témoin et sentit son esprit trembler.
+Chen Tianjun fut témoin de cette scène. Il eut un souffle coupé et regarda Wang Lin avec admiration. Même Yun Hunzi, à l'extérieur de la vallée, en fut témoin et sentit son esprit trembler.
 
 Dès qu'il eut ouvert la roche, Wang Lin sentit clairement qu'il était bien plus puissant qu'auparavant. Cette sensation était des plus agréables...
 
@@ -94,7 +94,7 @@ Il en sortit l'arme et l'examina avec soin. Elle portait un sceau identique à c
 
 Après réflexion, Wang Lin comprit qu'il n'était pas encore temps de lever le sceau. Il rangea la courte épée et sortit de la grotte.
 
-Contemplant le ciel obscur, il murmura: « Partons! » Sur ce, il se mit en mouvement et emmena Chen Tianjun hors de la vallée. Maître Nuage-Âme les suivit alors qu'ils fonçaient vers les confins du Royaume aux Sept Couleurs.
+Contemplant le ciel obscur, il murmura: « Partons! » Sur ce, il se mit en mouvement et emmena Chen Tianjun hors de la vallée. Yun Hunzi les suivit alors qu'ils fonçaient vers les confins du Royaume aux Sept Couleurs.
 
 Les trois silhouettes progressèrent rapidement sous la conduite de Wang Lin, quand soudain une aura apparut au loin. C'était la vieille femme en vert. Elle semblait hésitante et n'osait s'approcher, préférant les suivre de loin.
 

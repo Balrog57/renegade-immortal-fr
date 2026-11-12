@@ -34,7 +34,7 @@ Tandis que la femme était terrifiée, Wang Lin ramassa le noyau noir, le regard
 
 Wang Lin vit progressivement le cours de sa vie. Il découvrit qu'il y a des éons, ce scorpion n'était que de rang 7 lorsqu'elle avait rencontré une femme par hasard. Cette dernière avait pointé le scorpion de sa main droite pour y laisser une marque et lui avait dit:
 
-« Quelle petite bête intelligente. Je te nomme Sang Pourpre. Deviens l'un de mes généraux de bêtes, aide-moi à guérir et protège-moi. »
+« Quelle petite bête intelligente. Je te nomme Zi Xue. Deviens l'un de mes généraux de bêtes, aide-moi à guérir et protège-moi. »
 
 La silhouette de la femme était floue, impossible à distinguer clairement. Dans les souvenirs du scorpion, elle manifestait un respect infini envers cette femme.
 
@@ -66,7 +66,7 @@ Wang Lin approchait progressivement de la sortie en suivant la carte contenue da
 
 Pourtant, Wang Lin avait déjà vu la Formation du Royaume Scellé et il n'était guère confiant quant à sa capacité à l'ouvrir!
 
-« La rétribution divine ne s'est pas manifestée à l'intérieur de la fissure, mais je sens qu'elle tombera dès que je serai sorti. Peut-être que... avec la puissance de la rétribution divine, pourrai-je briser la Formation du Royaume Scellé! » Les yeux de Wang Lin s'illuminèrent et il vola encore plus vite.
+« La Tribulation Céleste ne s'est pas manifestée à l'intérieur de la fissure, mais je sens qu'elle tombera dès que je serai sorti. Peut-être que... avec la puissance de la Tribulation Céleste, pourrai-je briser la Formation du Royaume Scellé! » Les yeux de Wang Lin s'illuminèrent et il vola encore plus vite.
 
 Cependant, alors qu'il avait parcouru plus de la moitié du chemin et approchait de l'issue, une voix douce flotta vers lui.
 

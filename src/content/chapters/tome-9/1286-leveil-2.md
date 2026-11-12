@@ -62,7 +62,7 @@ Voyant l'expression de Wang Lin, la vieille femme réprima sa terreur. Elle esqu
 
 La vieille femme se retourna brusquement, prête à partir!
 
-Wang Lin sembla pressentir quelque chose et s'exclama rapidement: « Compagnon cultivateur, je vous en prie, ne partez pas si vite! »
+Wang Lin sembla pressentir quelque chose et s'exclama rapidement: « Daoïste, je vous en prie, ne partez pas si vite! »
 
 À mesure qu'il parlait, les lois du monde semblèrent altérées. La vieille femme en blanc tressaillit, découvrant avec stupeur qu'elle ne pouvait plus s'éloigner. Elle fixa Wang Lin et dit d'un ton sombre: « Tu es puissant et pourrais me tuer sans effort. Maintenant, tu m'empêches de partir. Quel est le sens de tout cela? »
 
@@ -102,7 +102,7 @@ Il baissa la tête vers le jade autour de son cou. Sa lueur était très faible,
 
 « Sais-tu où elle se trouve en ce moment? » La voix de la vieille femme était empreinte de chagrin.
 
-« Tu ne le sais pas... tu ne peux imaginer les conditions qu'elle a acceptées à la Secte Démon pour récupérer son sang d'âme. Comment pourrais-tu le savoir? Si je n'avais pas vu grandir cette enfant, si je n'étais pas sa sœur aînée et si je ne l'avais pas forcée à tout me dire à la Secte Démon, moi non plus je ne le saurais pas... »
+« Tu ne le sais pas... tu ne peux imaginer les conditions qu'elle a acceptées à la Secte Démon pour récupérer son sang d'âme. Comment pourrais-tu le savoir? Si je n'avais pas vu grandir cette enfant, si je n'étais pas sa Senior sœur et si je ne l'avais pas forcée à tout me dire à la Secte Démon, moi non plus je ne le saurais pas... »
 
 Wang Lin réfléchit un instant et demanda d'une voix feutrée: « Où est-elle...? »
 

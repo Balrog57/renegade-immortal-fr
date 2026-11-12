@@ -32,7 +32,7 @@ Juste au moment où il sombrait dans le désespoir, Wang Lin fit un pas en avant
 
 Aux yeux du fou, Wang Lin était devenu l'unique pilier sur lequel il pouvait compter.
 
-« Ce roi vous récompensera! Ce roi vous donnera Xiao Hong, ce roi vous donnera Petit Argent, ce roi vous donnera cette petite fille aux sept couleurs. Le palais arrière de ce roi compte quarante mille beautés, je vous les donnerai toutes! »
+« Ce roi vous récompensera! Ce roi vous donnera Xiao Hong, ce roi vous donnera Xiao Yin, ce roi vous donnera cette petite fille aux sept couleurs. Le palais arrière de ce roi compte quarante mille beautés, je vous les donnerai toutes! »
 
 Wang Lin ne répondit pas et leva la main droite. Il envoya un message spirituel qui fit sursauter la Bête des Limbes. Avec son intelligence limitée, elle ne comprit pas l'intention de Wang Lin et se mit à réfléchir d'un air hébété.
 

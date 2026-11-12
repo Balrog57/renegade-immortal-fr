@@ -32,7 +32,7 @@ Tout cela se produisit en un éclair. La jeune fille fut de nouveau encerclée p
 
 En cet instant fugace, la jeune fille avait traversé la vie et la mort, et une sueur froide trempait ses vêtements. Avant qu'elle ne retrouve ses esprits, la force d'aspiration l'enveloppa. Elle se débattit avec terreur alors qu'elle était aspirée dans les profondeurs du brouillard.
 
-Il y avait aussi le colosse de l'Estimé Clan Feng Tian Lang. Il avait été aspiré dans le brouillard un instant avant la jeune fille!
+Il y avait aussi le colosse du Clan Feng Tian Lang. Il avait été aspiré dans le brouillard un instant avant la jeune fille!
 
 Wang Lin vit clairement toute la scène. Ses yeux s'illuminèrent, et le spectacle de cette mort suivie d'une résurrection ébranla son esprit!
 
@@ -68,7 +68,7 @@ Wang Lin se déplaça avec l'agilité d'un poisson et chargea en avant. Il déci
 
 Wang Lin accélérait sans cesse, mais son expression devenait de plus en plus prudente. Bien qu'il ne fît pas chaque pas avec lenteur, il s'en approchait. Sa prudence lui avait permis de survivre à de nombreuses situations de vie ou de mort.
 
-La seule chose pouvant être qualifiée d'imprudence était son plan pour comploter contre le Souverain. Cette idée n'avait aucune raison d'être là; elle était apparue soudainement après sa discussion avec le premier Oiseau Vermillon.
+La seule chose pouvant être qualifiée d'imprudence était son plan pour comploter contre le Souverain. Cette idée n'avait aucune raison d'être là; elle était apparue soudainement après sa discussion avec le premier Suzaku.
 
 Dans son cœur, il avait concocté de multiples raisons et excuses pour agir ainsi. Il était même entré dans l'âme de Tian Yunzi pour diviner ses chances. Il s'était également fait une promesse: si le Souverain était réellement là et que ses blessures graves s'étaient un peu rétablies, il utiliserait le jade pour battre en retraite vers le Royaume Intérieur.
 
@@ -106,7 +106,7 @@ Neuf statues étranges et chauves entouraient son corps. Chacune affichait une e
 
 L'érudit ne portait aucune marque numérique entre les sourcils non plus! Lorsqu'il vit Wang Lin, son visage fatigué trahit sa surprise. Wang Lin gardait un visage impassible, mais son cœur était agité de grandes vagues. Il savait à quel point le brouillard était puissant, et pourtant, cet homme était arrivé ici. Sans dire un mot, Wang Lin se retourna et fit un pas vers la faille pour entrer dans la Tombe de l'Ordre Ancien!
 
-« Cher compagnon cultivateur, pourriez-vous m'aider? » Une voix féminine très agréable s'échappa de l'érudit.
+« Cher Daoïste, pourriez-vous m'aider? » Une voix féminine très agréable s'échappa de l'érudit.
 
 Dans le Système Stellaire Antique, au sein d'un domaine stellaire sans fin, un palais gigantesque flottait parmi les étoiles. Ce domaine semblait caché, impossible à débusquer.
 

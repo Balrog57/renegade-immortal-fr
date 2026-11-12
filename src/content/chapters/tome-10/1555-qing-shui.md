@@ -74,7 +74,7 @@ Même l'expression de Wang Lin changea face à cette aura de massacre. Elle éta
 
 Un fracas assourdissant retentit et du sang jaillit du coin de la bouche de Wang Lin, le forçant à reculer. Cependant, il ne quitta pas Qing Shui des yeux, la tristesse dans son regard s'intensifiant.
 
-« Senior Frère Qing Shui!! C'est moi, Wang Lin! Je suis ton frère cadet, Wang Lin!! » Wang Lin se mordit la lèvre inférieure et hurla vers le Qing Shui dément.
+« Senior Frère Qing Shui!! C'est moi, Wang Lin! Je suis ton Junior frère, Wang Lin!! » Wang Lin se mordit la lèvre inférieure et hurla vers le Qing Shui dément.
 
 L'ombre de sang se dissipa sous l'assaut du feu et du tonnerre dorés. L'impact repoussa les cheveux de Qing Shui, révélant ses yeux et son visage.
 

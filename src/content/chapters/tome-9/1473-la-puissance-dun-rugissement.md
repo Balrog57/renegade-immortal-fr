@@ -28,13 +28,13 @@ Ce Sens Divin était imprégné d'une aura si dominante qu'on aurait dit l'Emper
 
 Dans la septième carte, un vieil homme vêtu de lin se trouvait là. Ses lèvres étaient scellées par trois aiguilles et son visage marqué par une expression cruelle.
 
-Grande Désolation, qui était entré avec son corps originel, se précipitait à travers le tombeau antique. Sa culture du Vide Arcanique jaillissait tandis qu'il fonçait dans les couloirs. Rien ne pouvait l'arrêter!
+Da Huang, qui était entré avec son corps originel, se précipitait à travers le tombeau antique. Sa culture du Vide Arcanique jaillissait tandis qu'il fonçait dans les couloirs. Rien ne pouvait l'arrêter!
 
 Il avança rapidement, franchissant une carte en seulement cinq pas! Soudain, il s'arrêta net et ses yeux s'illuminèrent!
 
-Le Sens Divin de Wang Lin, fusionné avec le tombeau antique, venait de balayer les lieux. La main de Grande Désolation forma un sceau et s'élança comme s'il voulait saisir le Sens Divin qui l'effrayait.
+Le Sens Divin de Wang Lin, fusionné avec le tombeau antique, venait de balayer les lieux. La main de Da Huang forma un sceau et s'élança comme s'il voulait saisir le Sens Divin qui l'effrayait.
 
-Cependant, au moment où sa main droite toucha l'onde, il ressentit une force colossale. Un grondement de tonnerre résonna alors que Grande Désolation était forcé de reculer. Son expression changea instantanément et son esprit trembla!
+Cependant, au moment où sa main droite toucha l'onde, il ressentit une force colossale. Un grondement de tonnerre résonna alors que Da Huang était forcé de reculer. Son expression changea instantanément et son esprit trembla!
 
 « Qui êtes-vous, Votre Excellence?! »
 
@@ -64,7 +64,7 @@ La femme en blanc ne se détendit qu'une fois l'onde disparue, le visage légèr
 
 Wang Lin était assis dans le palais, et son Sens Divin se propageait hors de son contrôle. Il voyait tous les cultivateurs du Système Stellaire Antique à l'intérieur du tombeau antique. Il vit la femme charmante et l'avatar de Jiutian Mozun!
 
-À mesure que son Sens Divin s'étendait, il aperçut Grande Désolation, le corps originel de Jiutian Mozun, Miaoyin Daozun, et enfin la femme en blanc!
+À mesure que son Sens Divin s'étendait, il aperçut Da Huang, le corps originel de Jiutian Mozun, Miaoyin Daozun, et enfin la femme en blanc!
 
 Poussant encore plus loin, son Sens Divin atteignit la faille spatiale menant au Système Stellaire Antique.
 
@@ -134,7 +134,7 @@ Le rugissement sortit de la bouche de Wang Lin et fit trembler tout le tombeau a
 
 La soie se déchira! La femme charmante poussa un cri déchirant alors que son corps s'effondrait et que son Âme Originelle s'envolait. Elle utilisa une méthode inconnue pour survivre de justesse, après que son Âme Originelle eut subi plusieurs effondrements.
 
-Grande Désolation, Jiutian Mozun et Miaoyin Daozun crachèrent tous du sang tandis que leurs corps s'effondraient. Même les cultivateurs du Vide Arcanique n'étaient pas de taille pour résister à un tel rugissement!
+Da Huang, Jiutian Mozun et Miaoyin Daozun crachèrent tous du sang tandis que leurs corps s'effondraient. Même les cultivateurs du Vide Arcanique n'étaient pas de taille pour résister à un tel rugissement!
 
 Cependant, en tant que cultivateurs du Vide Arcanique, ils possédaient tous des sorts de survie. Après avoir survécu à cette onde de choc, ils sortirent tous des corps physiques de rechange qu'ils avaient raffinés. Leurs yeux étaient empreints d'une terreur monstrueuse et ils n'osaient plus avancer. Sans hésiter, ils entreprirent de fuir ce tombeau antique!
 

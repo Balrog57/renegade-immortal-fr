@@ -28,11 +28,11 @@ Le jeune maître du Clan Long Jia réfléchit un instant, puis ses yeux s'illumi
 
 Les pupilles du jeune maître se rétractèrent, puis il acquiesça: « 10 000 Pilules d'Effondrement du Dragon suffisent pour menacer des cultivateurs du premier niveau de Fléau Céleste. » Il agita la main droite et une lueur jaillit. Les pilules tombèrent les unes après les autres, formant une petite montagne.
 
-Wang Lin agita sa manche et, après avoir collecté les 10 000 pilules, il laissa derrière lui 100 pilules d'âme. Il se leva et partit; le Patriarche du Scorpion Noir se leva promptement pour le suivre.
+Wang Lin agita sa manche et, après avoir collecté les 10 000 pilules, il laissa derrière lui 100 pilules d'âme. Il se leva et partit; le Patriarche du Clan An Xie se leva promptement pour le suivre.
 
-Une fois sorti du pavillon, Wang Lin afficha un sourire narquois. Il se tourna vers le Patriarche du Scorpion Noir et ordonna: « Retournez d'abord au Clan An Xie, j'ai des affaires personnelles à régler. »
+Une fois sorti du pavillon, Wang Lin afficha un sourire narquois. Il se tourna vers le Patriarche du Clan An Xie et ordonna: « Retournez d'abord au Clan An Xie, j'ai des affaires personnelles à régler. »
 
-Le Patriarche du Scorpion Noir hocha la tête. Craignant de poser des questions, il partit rapidement.
+Le Patriarche du Clan An Xie hocha la tête. Craignant de poser des questions, il partit rapidement.
 
 L'expression de Wang Lin resta calme. Il marchait lentement dans la cité du Clan Long Jia. Il avait posé l'appât et attendait maintenant que sa cible morde.
 

@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1182 - Seven-Colored Realm
 slug: le-royaume-aux-sept-couleurs
 ---
-L'affaire de Maître Nuage-Âme fut mise de côté et ne fut plus mentionnée. Le vieil homme nommé Pang se lamentait intérieurement; il restait sur ses gardes, car il venait d'offenser Wang Lin. En repensant aux paroles glaciales de Wang Lin, il ne put s'empêcher de frissonner.
+L'affaire de Yun Hunzi fut mise de côté et ne fut plus mentionnée. Le vieil homme nommé Pang se lamentait intérieurement; il restait sur ses gardes, car il venait d'offenser Wang Lin. En repensant aux paroles glaciales de Wang Lin, il ne put s'empêcher de frissonner.
 
 Cang Songzi déclara d'un ton grave: « Ne déployez pas votre sens divin trop loin, sinon vous attirerez les bêtes féroces des environs. Bien que nous ne soyons que dans la région extérieure, on y trouve des bêtes de brume de rang 12. De plus, ne volez pas à plus de mille pieds de hauteur! »
 
@@ -14,7 +14,7 @@ Wang Lin observa la lumière aux sept couleurs qui baignait le ciel et réfléch
 
 « Qu'est-ce que cet endroit, au juste? » demanda Chen Tianjun, de la Secte Yi Shou.
 
-Cang Songzi leva la tête et répondit lentement: « Le Royaume aux Sept Couleurs. C'est ainsi que je l'appelle. La région extérieure de ce lieu est saturée de bêtes de brume. C'est là que je puise tous mes cristaux d'origine. Je suis venu ici à plusieurs reprises, mais il m'est impossible de pénétrer dans la région intérieure. Il y subsiste des vestiges d'êtres anciens. D'après mes observations, on y trouve des célestes et des individus très étranges. » Il pointa l'horizon tout en poursuivant son récit. « Compagnons cultivateurs, suivez-moi et ne vous écartez pas. Ce lieu est extrêmement dangereux; le moindre manque de vigilance pourrait vous coûter la vie. » Sur ces mots, il descendit de l'autel et s'avança en tête.
+Cang Songzi leva la tête et répondit lentement: « Le Royaume aux Sept Couleurs. C'est ainsi que je l'appelle. La région extérieure de ce lieu est saturée de bêtes de brume. C'est là que je puise tous mes cristaux d'origine. Je suis venu ici à plusieurs reprises, mais il m'est impossible de pénétrer dans la région intérieure. Il y subsiste des vestiges d'êtres anciens. D'après mes observations, on y trouve des célestes et des individus très étranges. » Il pointa l'horizon tout en poursuivant son récit. « Daoïstes, suivez-moi et ne vous écartez pas. Ce lieu est extrêmement dangereux; le moindre manque de vigilance pourrait vous coûter la vie. » Sur ces mots, il descendit de l'autel et s'avança en tête.
 
 Tous suivirent de près Cang Songzi, progressant avec prudence. Ce dernier restait d'une grande gravité tout au long du trajet, suivant un itinéraire précis depuis l'autel vers la plaine. Ils finirent par pénétrer dans une zone montagneuse noyée dans la brume.
 
@@ -34,7 +34,7 @@ Wang Lin resta silencieux tout au long du périple, mais ses yeux brillaient d'u
 
 En regardant le chemin parcouru, ils avaient déjà avancé de plus de cinq kilomètres. Ils n'avaient pas encore franchi la chaîne de montagnes qui se dressait devant eux, et nul ne pouvait savoir ce qui se cachait au-delà. Dans ce royaume aux sept couleurs, la nuit n'existait pas; seule la lumière multicolore emplissait le ciel.
 
-Cang Songzi ralentit progressivement jusqu'à s'arrêter net. Il se frotta les tempes et dit: « Compagnon cultivateur Duanmu, la pilule de réincarnation n'est plus très loin. Cependant, une bête féroce de rang 12 garde le site; si vous prétendez la prendre, cela pourrait devenir problématique. »
+Cang Songzi ralentit progressivement jusqu'à s'arrêter net. Il se frotta les tempes et dit: « Daoïste Duanmu, la pilule de réincarnation n'est plus très loin. Cependant, une bête féroce de rang 12 garde le site; si vous prétendez la prendre, cela pourrait devenir problématique. »
 
 Devant lui se trouvait un passage étroit, bordé par des parois montagneuses lugubres. Par intermittence, quelques pierres roulaient dans le vide, brisant le silence pesant qui régnait partout ailleurs.
 
@@ -47,24 +47,24 @@ Heureusement, la vigilance de Wang Lin fut sans faille. Il se mordit la langue p
 « Quelle pilule puissante! » s'exclama l'un d'eux.
 « C'est bel et bien la pilule de réincarnation! » Le jeune homme nommé Duanmu prit une profonde inspiration, s'abandonnant à la fragrance.
 
-« Le compagnon cultivateur Duanmu pratique le cycle de réincarnation du soleil et de la lune. Ce qu'il doit accomplir, c'est sa propre réincarnation. Il doit traverser neuf cycles pour parfaire son Dao. Cependant, la voie du Ciel ne laisse aucune trace, et la réussite est ardue. La rumeur veut qu'autrefois, dans le monde ancien de la culture, il existait une pilule de réincarnation dotée de la puissance du ciel et de la terre, permettant d'entrer dans ce cycle pour comprendre le Dao. Mais cette recette a disparu depuis longtemps, et seule la moitié de la recette subsiste. Il est impossible de raffiner une véritable pilule; nous ne pouvons que condenser une certaine énergie de réincarnation! » expliqua lentement Cang Songzi.
+« Le Daoïste Duanmu pratique le cycle de réincarnation du soleil et de la lune. Ce qu'il doit accomplir, c'est sa propre réincarnation. Il doit traverser neuf cycles pour parfaire son Dao. Cependant, la voie du Ciel ne laisse aucune trace, et la réussite est ardue. La rumeur veut qu'autrefois, dans le monde ancien de la culture, il existait une pilule de réincarnation dotée de la puissance du ciel et de la terre, permettant d'entrer dans ce cycle pour comprendre le Dao. Mais cette recette a disparu depuis longtemps, et seule la moitié de la recette subsiste. Il est impossible de raffiner une véritable pilule; nous ne pouvons que condenser une certaine énergie de réincarnation! » expliqua lentement Cang Songzi.
 
-Les yeux de Duanmu s'illuminèrent et il fixa Cang Songzi d'un regard tranchant: « Le compagnon Cang Songzi est très érudit. Je présume que vous avez fait les préparatifs nécessaires avant de venir me chercher. »
+Les yeux de Duanmu s'illuminèrent et il fixa Cang Songzi d'un regard tranchant: « Le Daoïste Cang Songzi est très érudit. Je présume que vous avez fait les préparatifs nécessaires avant de venir me chercher. »
 
 Cang Songzi sourit sans répondre.
 « Si ce n'était pour ce qui se trouve dans la brume, près du squelette, vous n'auriez pas été aussi aimable de m'inviter », rétorqua Duanmu en désignant le brouillard.
 
-« C'est exact. Le sort de Réincarnation de la Grande Liberté du compagnon Duanmu nous sera fort utile pour la suite du voyage. Nous vous aiderons à obtenir cette pilule, et en échange, vous nous ouvrirez la voie », admit franchement Cang Songzi avec calme.
+« C'est exact. Le sort de Réincarnation de la Grande Liberté du Daoïste Duanmu nous sera fort utile pour la suite du voyage. Nous vous aiderons à obtenir cette pilule, et en échange, vous nous ouvrirez la voie », admit franchement Cang Songzi avec calme.
 
 « D'accord! » Le jeune homme réfléchit un instant en observant la pilule dans les restes du squelette, puis son visage se fit sévère.
 
-Cang Songzi reprit d'une voix grave: « Il s'agit d'un dragon de rang 12, l'équivalent d'un cultivateur Briseur du Nirvana au sommet. Mais une bête féroce reste une bête féroce. Si nous coopérons étroitement, avec l'aide du sort de réincarnation du compagnon Duanmu, ce n'est pas impossible! »
+Cang Songzi reprit d'une voix grave: « Il s'agit d'un dragon de rang 12, l'équivalent d'un cultivateur Briseur du Nirvana au sommet. Mais une bête féroce reste une bête féroce. Si nous coopérons étroitement, avec l'aide du sort de réincarnation du Daoïste Duanmu, ce n'est pas impossible! »
 
 Chen Tianjun se lécha les lèvres: « Je veux l'âme de ce dragon! »
 La vieille femme en vert ajouta: « Le corps du dragon me revient! »
 Les yeux de Wang Lin brillèrent et il déclara calmement: « Je veux tous les cristaux d'origine présents dans la brume! » Après ces déclarations, leurs regards se tournèrent tous vers Cang Songzi.
 
-Ce dernier sourit: « Très bien. Le compagnon Pang et moi n'avons que faire de ces choses. Nous voulons simplement passer. »
+Ce dernier sourit: « Très bien. Le Daoïste Pang et moi n'avons que faire de ces choses. Nous voulons simplement passer. »
 
 Une lueur froide traversa le regard du jeune homme qui prit une grande inspiration. Ses mains formèrent un sceau et ses cheveux s'agitèrent comme sous l'effet d'un vent invisible. Ses yeux s'illuminèrent, laissant apparaître les symboles du soleil et de la lune dans chacun de ses globes oculaires. Il poussa alors un rugissement, pointant sa main gauche entre ses sourcils et sa main droite vers l'avant.
 

@@ -18,7 +18,7 @@ Ils volèrent à toute allure, et quelques jours plus tard, la brume devint enco
 
 « Peu de gens connaissent ce continent sauvage, et même ceux qui en ont vent ne découvriront jamais le secret que j'y ai caché. » Cang Songzi sourit, le regard empreint de nostalgie en contemplant la terre.
 
-« Cher cultivateur Pang, je vous confie une tâche: trouvez tous les cultivateurs sur ce continent sauvage et... tuez-les tous! » lança Cang Songzi à l'adresse du vieil homme au visage balafré.
+« Daoïste Pang, je vous confie une tâche: trouvez tous les cultivateurs sur ce continent sauvage et... tuez-les tous! » lança Cang Songzi à l'adresse du vieil homme au visage balafré.
 
 L'homme nommé Pang hocha la tête puis disparut. Son sens divin se propagea à travers le continent sauvage pour poursuivre sa traque. Il élimina chaque cultivateur qu'il croisa, sans égard pour leur niveau de culture ou leur secte.
 
@@ -26,7 +26,7 @@ Wang Lin observa le continent sauvage sous ses pieds. Il avait le pressentiment 
 
 Les yeux de la vieille femme en vert s'illuminèrent également tandis qu'elle scrutait les environs avec gravité.
 
-Maître Nuage-Âme regarda Wang Lin en ricanant intérieurement. Le secret de ce continent sauvage ne pouvait être perçu que si l'on y avait vécu durant de longues années.
+Yun Hunzi regarda Wang Lin en ricanant intérieurement. Le secret de ce continent sauvage ne pouvait être perçu que si l'on y avait vécu durant de longues années.
 
 Le jeune garçon fronça également les sourcils en observant les lieux, mais nul ne savait ce qu'il pensait. Seul Chen Tianjun restait impassible, assis là, cultivant les yeux clos.
 
@@ -104,8 +104,8 @@ Sous l'impact du continent, la fissure parut être déchirée de force et s'éla
 
 « Allez! » cria Cang Songzi en se précipitant vers la faille. Les autres suivirent le mouvement, utilisant toute leur vitesse pour pénétrer dans l'ouverture.
 
-À ce moment précis, les deux seuls restés à l'extérieur étaient Maître Nuage-Âme et Wang Lin. Maître Nuage-Âme lança un regard glacial à Wang Lin, lequel laissa échapper un ricanement intérieur avant de se diriger droit vers la faille. Cependant, juste au moment où il allait s'y engouffrer, une lueur froide traversa le regard de Wang Lin et il se retourna brusquement!
+À ce moment précis, les deux seuls restés à l'extérieur étaient Yun Hunzi et Wang Lin. Yun Hunzi lança un regard glacial à Wang Lin, lequel laissa échapper un ricanement intérieur avant de se diriger droit vers la faille. Cependant, juste au moment où il allait s'y engouffrer, une lueur froide traversa le regard de Wang Lin et il se retourna brusquement!
 
-Les yeux de Maître Nuage-Âme se contractèrent. Au moment où Wang Lin fit volte-face, sa main droite plongea dans le vide et une épée de fer apparut soudainement dans sa paume!
+Les yeux de Yun Hunzi se contractèrent. Au moment où Wang Lin fit volte-face, sa main droite plongea dans le vide et une épée de fer apparut soudainement dans sa paume!
 
 Elle était couverte de rouille, mais c'était une lame qui dégageait une aura capable d'ébranler les cieux!

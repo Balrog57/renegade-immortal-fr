@@ -8,9 +8,9 @@ slug: la-gloire-dil-y-a-10-ans
 ---
 Un réseau de transfert se trouvait sur un continent de la région de rang 6. Plus de dix cultivateurs étaient assis autour, parmi lesquels un homme et une femme qui conversaient. La femme esquissait parfois un sourire, lançant à l'homme un regard séducteur.
 
-« Je ne te crois absolument pas. Si Lu Zihao était aussi puissant que tu le prétends, au point de pouvoir tuer l'ancien Maître de notre secte, l'Ancien et le disciple aîné, la Secte Éternelle l'aurait certainement protégé. Comment aurait-il pu mourir? »
+« Je ne te crois absolument pas. Si Lu Zihao était aussi puissant que tu le prétends, au point de pouvoir tuer l'ancien Maître de notre secte, l'Ancien et le grand Senior frère, la Secte Éternelle l'aurait certainement protégé. Comment aurait-il pu mourir? »
 
-« Jeune sœur, tout ce que je dis est vrai. On racontait que Lu Zihao avait offensé la Secte Divine et qu'ils le traquaient. Il est mort dans la région de rang 5! » l'homme éclata de rire.
+« Junior sœur, tout ce que je dis est vrai. On racontait que Lu Zihao avait offensé la Secte Divine et qu'ils le traquaient. Il est mort dans la région de rang 5! » l'homme éclata de rire.
 
 « Lu Zihao était considéré comme un génie de la Mer Yun. Malheureusement, il était arrogant et a provoqué la Secte Divine… » Alors que l'homme parlait, le réseau de transfert qu'ils gardaient s'activa, émettant une lueur éblouissante.
 
@@ -84,11 +84,11 @@ Une seule personne, une seule paume. La puissance d'un seul geste avait ébranl�
 
 Il n'y avait aucune possibilité de refus. Ses paroles descendirent comme une volonté divine sur toute la Secte Xian Yin. L'esprit de chaque cultivateur trembla; aucun n'osa désobéir!
 
-Le front du nouveau Maître de secte de la Musique Céleste était couvert de sueur. Il regardait Wang Lin avec un mélange de crainte et de respect. Il avait été témoin de la splendeur de Wang Lin à la Secte Éternelle et avait vu de ses propres yeux mourir le précédent Maître de secte.
+Le front du nouveau Maître de la Secte Xian Yin était couvert de sueur. Il regardait Wang Lin avec un mélange de crainte et de respect. Il avait été témoin de la splendeur de Wang Lin à la Secte Éternelle et avait vu de ses propres yeux mourir le précédent Maître de secte.
 
 « Cet homme a pu tuer instantanément le Maître de secte et l'Ancien en chef il y a dix ans, et même la Secte Divine n'a pu l'arrêter. Aujourd'hui, dix ans plus tard, il revient encore plus terrifiant qu'auparavant. On ne doit absolument pas provoquer un tel être! » Le Maître de secte n'hésita pas une seconde et lança une série d'ordres. Toute la Secte Xian Yin se mit à l'œuvre pour activer le réseau de transfert vers la Secte Éternelle!
 
-Wang Lin avait choisi ces deux réseaux de transfert pour une raison précise. Le réseau de la Secte de l'Âme Marine était bidirectionnel, il n'était donc pas nécessaire que l'autre partie l'active pour l'utiliser.
+Wang Lin avait choisi ces deux réseaux de transfert pour une raison précise. Le réseau de la Secte Hai Hun était bidirectionnel, il n'était donc pas nécessaire que l'autre partie l'active pour l'utiliser.
 
 En tant que secte de rang 6, la Secte Xian Yin avait le droit d'ouvrir le réseau de transfert sans la permission de la Secte Éternelle en cas d'imprévu.
 
@@ -100,7 +100,7 @@ Il y a dix ans, la renommée de Wang Lin avait, à mesure que les témoins de l'
 
 Après avoir récupéré la sacoche contenant tous les cristaux d'origine, Wang Lin entra dans la formation avec la vieille femme. Cette dernière était profondément bouleversée par tout ce spectacle. Elle avait passé tout son temps sur le champ de bataille de la Secte Démon et ignorait ce qui s'était passé dix ans auparavant. En voyant la scène, elle n'en croyait pas ses yeux.
 
-Elle pouvait voir que les Anciens et le Maître de secte de la Musique Céleste regardaient Wang Lin avec une terreur indicible. C'était comme s'ils tentaient d'éloigner une divinité colérique.
+Elle pouvait voir que les Anciens et le Maître de la Secte Xian Yin regardaient Wang Lin avec une terreur indicible. C'était comme s'ils tentaient d'éloigner une divinité colérique.
 
 Elle s'inquiétait pour les cristaux d'origine, mais en voyant la Secte Xian Yin remettre la sacoche à Wang Lin, elle eut un sourire amer. La manière dont ils offraient leurs richesses était telle qu'on aurait dit que Wang Lin était le Maître de leur propre secte. Sur un seul mot de lui, ils avaient rassemblé l'intégralité de leurs cristaux.
 

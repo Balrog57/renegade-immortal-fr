@@ -12,7 +12,7 @@ Lu Yanfei aimait le rouge, et presque tout le monde à la Secte Gui Yuan le sava
 
 À cet instant, Lu Yanfei portait une robe rouge, ses cheveux longs et libres dans son dos. Elle restait assise en silence, le visage encore pâle, empreint d'une tristesse qui ne s'était pas encore dissipée. Cela la rendait belle, avec en plus une pointe de grâce touchante.
 
-Cependant, même ses trois frères aînés n'étaient pas dignes d'apprécier une telle scène, car leurs niveaux de culture étaient inférieurs à ceux de Lu Yanfei.
+Cependant, même ses trois Senior frères n'étaient pas dignes d'apprécier une telle scène, car leurs niveaux de culture étaient inférieurs à ceux de Lu Yanfei.
 
 Lu Yanfei, au sommet du stade Scruteur du Nirvana, était la beauté numéro un de la Secte Gui Yuan et jouissait d'une grande renommée dans le domaine de rang 5. Beaucoup d'hommes nourrissaient des désirs pour elle, mais en raison de la culture de son maître, un expert au sommet du stade Purificateur du Nirvana, personne n'osait rien entreprendre. Cependant, maintenant que son maître était mort, la Secte Gui Yuan se trouvait dans son état le plus vulnérable.
 
@@ -80,7 +80,7 @@ En pensant au jade violet entre les mains de son maître, Xu Yun ressentit une a
 
 Une fois Xu Yun partie, Wang Lin eut un léger sourire en observant les herbes avant de pénétrer dans sa propre demeure. Il constata que la pièce était exiguë: outre un lit, il n'y avait qu'une table en bois sur laquelle reposait une lampe à huile.
 
-S'étirant, il s'allongea sur le lit et regarda le plafond de bois, affichant une expression détendue. Cela faisait très longtemps qu'il n'avait pas connu une telle facilité. Que ce soit au village de l'Eau du Nord ou dans son lieu actuel, les deux endroits lui avaient offert une rare tranquillité d'esprit.
+S'étirant, il s'allongea sur le lit et regarda le plafond de bois, affichant une expression détendue. Cela faisait très longtemps qu'il n'avait pas connu une telle facilité. Que ce soit au village Bei Shui ou dans son lieu actuel, les deux endroits lui avaient offert une rare tranquillité d'esprit.
 
 À son niveau de culture, outre la pratique elle-même, les facteurs les plus cruciaux étaient la compréhension du Dao et des lois. Allongé là, Wang Lin se sentait serein et saisissait vaguement certaines idées.
 

@@ -22,11 +22,11 @@ Cependant, cette révélation brutale eut un impact violent sur Lie Yunzi. Son c
 
 « Sa force est déjà comparable à celle d'un cultivateur du troisième pas. Maintenant, avec cet esclave en plus, il... sa puissance atteint déjà le sommet dans les quatre grands domaines stellaires du Royaume Intérieur!! »
 
-Dieu de Sang était totalement abasourdi. Il n'osait croire ce qu'il voyait. En principe, compte tenu de son âge et de son niveau de culture, une pensée aussi enfantine ne devrait pas lui traverser l'esprit, mais il ne pouvait s'en empêcher.
+Xue Shenzi était totalement abasourdi. Il n'osait croire ce qu'il voyait. En principe, compte tenu de son âge et de son niveau de culture, une pensée aussi enfantine ne devrait pas lui traverser l'esprit, mais il ne pouvait s'en empêcher.
 
 « Une hallucination... Ce doit être une hallucination... Un cultivateur du troisième pas si rare que tous les cultivateurs admirent, comment un tel être pourrait-il accepter de devenir l'esclave de quelqu'un d'autre... C'est impossible!! »
 
-Cependant, le raisonnement de Dieu de Sang fut interrompu par une autre spéculation qui provoqua une immense onde de choc dans son esprit.
+Cependant, le raisonnement de Xue Shenzi fut interrompu par une autre spéculation qui provoqua une immense onde de choc dans son esprit.
 
 « S'il n'est pas consentant, se pourrait-il que Wang Lin l'ait forcé... Cela devrait être impossible. Bien que sa puissance soit comparable à celle d'un cultivateur du troisième pas, comment pourrait-il contraindre un tel être... C'est un cultivateur du troisième pas, le troisième pas! Dans Luotian, ce vieil homme n'a vu que Maître Lu Fu... »
 
@@ -70,7 +70,7 @@ Des grondements tonitruants éclatèrent de toutes parts. Les cultivateurs qui a
 
 Ces voix s'unirent rapidement. C'était le cri de dizaines de milliers de cultivateurs, un rugissement qu'ils lâchaient alors qu'ils étaient sur le point de s'effondrer, afin de se redresser et de porter Luotian vers le haut!
 
-Leurs voix ressemblaient à une inondation dévastatrice! Elles fusionnèrent avec la tempête pour former un momentum indescriptible. De faibles Flammes Joss s'élevaient également des têtes des cultivateurs en direction de Maître Lu Fu!
+Leurs voix ressemblaient à une inondation dévastatrice! Elles fusionnèrent avec la tempête pour former un élan indescriptible. De faibles Flammes Joss s'élevaient également des têtes des cultivateurs en direction de Maître Lu Fu!
 
 Maître Lu Fu laissa échapper un rire vers le ciel, puis pointa la formation planétaire d'un air grave. Soudain, une lance de dix mille pieds de long surgit du vortex au cœur de la formation!
 

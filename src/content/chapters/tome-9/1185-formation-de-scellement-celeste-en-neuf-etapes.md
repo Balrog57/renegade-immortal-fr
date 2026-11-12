@@ -38,11 +38,11 @@ Après un long moment, les fluctuations se dissipèrent et la brume se calma. C'
 
 « Je crains que Chen Tianjun ne soit mort. Il n'a pas écouté nos conseils et il méritait sa fin! Ce Royaume aux Sept Couleurs n'est pas un lieu où l'on peut circuler à la légère, le chemin change à chaque fois. À moins de connaître parfaitement cet endroit, on ne peut ni y entrer ni en sortir comme bon nous semble », ricana le vieil homme nommé Pang avec une pointe de moquerie dans les yeux.
 
-« Bien, mettons de côté le cas de Chen Tianjun. Camarade cultivatrice Zhao, j'ai vérifié et il semble qu'il y ait des restrictions sur la voie. Quant à la manière de les briser, j'ai besoin de votre aide, Camarade Zhao. » Cang Songzi fit quelques pas en arrière et joignit les mains en signe de respect envers la vieille femme.
+« Bien, mettons de côté le cas de Chen Tianjun. Daoïste Zhao, j'ai vérifié et il semble qu'il y ait des restrictions sur la voie. Quant à la manière de les briser, j'ai besoin de votre aide, Daoïste Zhao. » Cang Songzi fit quelques pas en arrière et joignit les mains en signe de respect envers la vieille femme.
 
 La vieille femme en vert avait déjà inspecté le chemin et hocha silencieusement la tête.
 
-« Malheureusement, le camarade Duanmu a été emporté par le Perdu. S'il était encore parmi nous, il aurait pu utiliser son Dao pour stabiliser temporairement les restrictions et aider la Camarade Zhao », soupira Cang Songzi en secouant la tête.
+« Malheureusement, le Daoïste Duanmu a été emporté par le Perdu. S'il était encore parmi nous, il aurait pu utiliser son Dao pour stabiliser temporairement les restrictions et aider la Daoïste Zhao », soupira Cang Songzi en secouant la tête.
 
 « La plupart des restrictions ici sont des formes que je n'ai jamais vues auparavant. Je n'ai pas grande confiance en ma capacité à les briser », déclara la vieille femme en s'avançant vers l'extrémité du chemin.
 
@@ -94,7 +94,7 @@ La vieille femme en vert sortit quelques pilules qu'elle avala. Elle commença �
 
 Cang Songzi réfléchit. Après un long moment, il serra les dents et fit un geste de la main. Une armure démoniaque noire apparut autour de lui. L'énergie démoniaque envahit l'espace, donnant à Cang Songzi l'apparence d'un dieu démon.
 
-« Je veux voir combien de pas je peux accomplir avec ma culture et cette armure! Camarade cultivatrice Zhao, ouvrez-la pour moi! » Cang Songzi n'avait plus le choix. Il était arrivé si loin qu'il ne pouvait se résoudre à abandonner. Il bondit en avant et se précipita vers la roche.
+« Je veux voir combien de pas je peux accomplir avec ma culture et cette armure! Daoïste Zhao, ouvrez-la pour moi! » Cang Songzi n'avait plus le choix. Il était arrivé si loin qu'il ne pouvait se résoudre à abandonner. Il bondit en avant et se précipita vers la roche.
 
 La vieille femme en vert forma un sceau et pointa l'avant. Une restriction s'élança pour atterrir sur la roche devant Cang Songzi. Les ondulations réapparurent et la pierre devint de nouveau transparente.
 

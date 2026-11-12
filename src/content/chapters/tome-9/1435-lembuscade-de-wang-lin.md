@@ -8,13 +8,13 @@ slug: lembuscade-de-wang-lin
 ---
 Ce loup vert mesurait 100 000 pieds de large. Bien qu’il fût petit à l’échelle de l’espace, sa présence suffisait à terrifier quiconque le voyait de près.
 
-Un monstrueux brouillard rouge commença à se condenser sur la dernière des six planètes de culture du clan de l'Estimé Loup Céleste. La silhouette de Wang Lin apparut alors.
+Un monstrueux brouillard rouge commença à se condenser sur la dernière des six planètes de culture du Clan Feng Tian Lang. La silhouette de Wang Lin apparut alors.
 
 Une lueur rouge traversa ses yeux tandis que les blessures de son âme originelle se rétablissaient légèrement. D’un regard indifférent, il projeta sa main vers les six planètes de culture!
 
 À cet instant, les restrictions que Wang Lin avait laissées sur les six planètes entrèrent en éruption et l'une d'elles s'effondra. La puissance de la déflagration secoua tout le domaine stellaire!
 
-Ce n'était pas une planète de culture abandonnée: elle regorgeait d'énergie spirituelle et le clan de l'Estimé Loup Céleste avait mis énormément d'efforts à l'obtenir. L'effondrement d'une telle planète ne pouvait être comparé à celui d'une planète déserte ordinaire.
+Ce n'était pas une planète de culture abandonnée: elle regorgeait d'énergie spirituelle et le Clan Feng Tian Lang avait mis énormément d'efforts à l'obtenir. L'effondrement d'une telle planète ne pouvait être comparé à celui d'une planète déserte ordinaire.
 
 Ce qui s'effondrait n'était pas seulement les montagnes et la terre, mais aussi la puissante énergie spirituelle! Des grondements tonitruants résonnèrent alors que la planète de culture était déchirée. L'impact colossal se mua en une tempête qui se propagea rapidement.
 
@@ -74,7 +74,7 @@ Un éclair de lumière rouge perça son front à une vitesse inimaginable. L'arm
 
 Propre et précis!
 
-Cette scène fit rétrécir les pupilles de l'homme du clan de l'Estimé Loup Céleste. Son esprit trembla et une peur profonde envahit son cœur.
+Cette scène fit rétrécir les pupilles de l'homme du Clan Feng Tian Lang. Son esprit trembla et une peur profonde envahit son cœur.
 
 « Il est clairement un cultivateur du Feu Éthéré, mais il ne l'a pas utilisé. Il a attendu ce moment précis pour provoquer mes émotions, puis a profité de l'instant où je supprime le feu pour ôter la vie à la servante de Miaoyin Daozun avec cette épée qu'il avait cachée dans les planètes!
 
@@ -108,7 +108,7 @@ C'était la première fois qu'elle vivait une telle expérience!
 
 « C'est l'emplacement de la Tombe de l'Ordre Ancien!! Pourquoi a-t-il choisi de s'enfuir là-bas?! »
 
-L'homme du clan de l'Estimé Loup Céleste déchira silencieusement le vide et s'y engouffra. Après son départ, la faille se referma lentement et le domaine stellaire retrouva son calme, ne laissant derrière lui que les planètes effondrées dont la tempête de débris continuait de se propager... À l'extérieur de la faille de la Tombe de l'Ordre Ancien, un épais brouillard se déployait. Une puissance terrifiante régnait au sein de cette brume, et même les cultivateurs de la troisième étape n'oseraient s'y aventurer imprudemment.
+L'homme du Clan Feng Tian Lang déchira silencieusement le vide et s'y engouffra. Après son départ, la faille se referma lentement et le domaine stellaire retrouva son calme, ne laissant derrière lui que les planètes effondrées dont la tempête de débris continuait de se propager... À l'extérieur de la faille de la Tombe de l'Ordre Ancien, un épais brouillard se déployait. Une puissance terrifiante régnait au sein de cette brume, et même les cultivateurs de la troisième étape n'oseraient s'y aventurer imprudemment.
 
 Ce brouillard s'étendait sur 100 000 kilomètres, et en périphérie se trouvaient de nombreux cultivateurs du Système Stellaire Antique.
 

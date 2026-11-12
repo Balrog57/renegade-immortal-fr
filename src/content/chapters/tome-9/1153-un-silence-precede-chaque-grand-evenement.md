@@ -58,7 +58,7 @@ Cependant, parmi les cendres, reposaient un jade et un fragment d'os animal de l
 
 Une pointe d'excitation traversa le regard de Wang Lin alors qu'il tendait la main pour saisir les objets. Son sens divin inspecta d'abord le jade, et son expression changea radicalement!
 
-« Secte Brise-Ciel, rang 8!! » Wang Lin prit une profonde inspiration avant de se calmer pour examiner le fragment d'os. Malgré sa grande force mentale, il sentit son rythme cardiaque s'accélérer.
+« Secte Po Tian, rang 8!! » Wang Lin prit une profonde inspiration avant de se calmer pour examiner le fragment d'os. Malgré sa grande force mentale, il sentit son rythme cardiaque s'accélérer.
 
 Ses yeux étaient empreints d'incrédulité face au fragment d'os qu'il tenait. Il resta muet durant un long moment.
 

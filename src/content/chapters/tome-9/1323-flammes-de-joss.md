@@ -10,7 +10,7 @@ Le royaume de 10 000 pieds se rétracta dans le corps de Wang Lin, mais celui-ci
 
 Tout en réfléchissant, son corps vacilla et il disparut. Il réapparut sur la montagne et s'assit. Il resta hébété un instant, trouvant encore difficile de croire ce qui venait de se produire.
 
-Après sept minutes, Wang Lin ferma les yeux et projeta son esprit à l'intérieur de son corps. Au-dessus de son âme originelle flottait une sphère tourbillonnante, et à l'intérieur se trouvait le Monde Hu Feng Huan Yu!
+Après un demi-bâton d'encens, Wang Lin ferma les yeux et projeta son esprit à l'intérieur de son corps. Au-dessus de son âme originelle flottait une sphère tourbillonnante, et à l'intérieur se trouvait le Monde Hu Feng Huan Yu!
 
 Bien que le Monde Hu Feng Huan Yu ne couvrait que 10 000 pieds lorsqu'il était à l'extérieur de son corps, il était sans limites une fois à l'intérieur! À cet instant, de nombreux continents flottaient dans ce royaume, tous formés par l'effondrement du Sceau Céleste...
 
@@ -32,9 +32,9 @@ Ces âmes de guerriers étaient toutes des personnes qu'il avait tuées, mais el
 
 Le Sceau Céleste était formé d'un fragment du Royaume Céleste du Tonnerre. Ce dernier avait été créé il y a des éons par le Seigneur du Royaume Scellé afin d'empêcher la Formation du Royaume Scellé d'absorber les Flammes Joss du Royaume Intérieur, permettant ainsi à ces dernières d'apparaître dans le Royaume Intérieur.
 
-Bien que les quatre Royaumes Célestes fussent détruits, ils constituaient les meilleurs matériaux pour produire des Flammes Joss! Toutefois, cela seul n'aurait pas suffi; mais ce fragment avait également subi la rétribution divine. C'était comme si le Ciel lui-même avait raffiné ce fragment pour en faire un trésor destiné à Wang Lin!
+Bien que les quatre Royaumes Célestes fussent détruits, ils constituaient les meilleurs matériaux pour produire des Flammes Joss! Toutefois, cela seul n'aurait pas suffi; mais ce fragment avait également subi la Tribulation Céleste. C'était comme si le Ciel lui-même avait raffiné ce fragment pour en faire un trésor destiné à Wang Lin!
 
-L'élément permettant la naissance des Flammes Joss avait été une fois de plus affiné par la rétribution divine.
+L'élément permettant la naissance des Flammes Joss avait été une fois de plus affiné par la Tribulation Céleste.
 
 Wang Lin avait involontairement utilisé cet objet pour son Arsenal Magique. En employant son domaine de vie et de mort, il avait créé dix-huit couches d'enfer qui absorbaient toutes les âmes des personnes qu'il avait tuées afin qu'elles ne puissent entrer dans le cycle de la réincarnation. Au fil du temps, le pouvoir de générer des Flammes Joss à partir des fragments avait comblé ces dix-huit couches d'enfer.
 
@@ -58,11 +58,11 @@ Contemplant cette moitié d'os, les étoiles du dieu ancien de Wang Lin apparure
 
 « Tuo Sen a utilisé un sort extrêmement puissant pour permettre à ses étoiles de dévorer le doigt. Il peut même dévorer des cultivateurs de la troisième étape pour renforcer ses étoiles... Cependant, il y a une volonté dans cette aura antique, il lui serait donc certainement difficile de la dévorer... Mais cela ne signifie pas que je n'ai aucun moyen de l'absorber... » Les yeux de Wang Lin brillèrent alors qu'il leva sa main droite et plongea à nouveau dans son espace de stockage.
 
-Dans un éclat de lumière, le Fouet Kunji apparut, emportant avec lui l'âme originelle du vieil homme aux cheveux blancs du Clan Dévorant la Lune, pour venir se placer devant Wang Lin.
+Dans un éclat de lumière, le Fouet Kunji apparut, emportant avec lui l'âme originelle du vieil homme aux cheveux blancs du Clan Yue Shi, pour venir se placer devant Wang Lin.
 
 Le vieil homme avait les yeux clos. La marque en croissant de lune entre ses sourcils brillait faiblement, résistant au Fouet Kunji.
 
-« Puisque le Clan Dévorant la Lune possédait l'os de doigt du dieu ancien, ils doivent avoir une méthode pour l'utiliser... » Le regard de Wang Lin se posa sur l'âme originelle du vieillard.
+« Puisque le Clan Yue Shi possédait l'os de doigt du dieu ancien, ils doivent avoir une méthode pour l'utiliser... » Le regard de Wang Lin se posa sur l'âme originelle du vieillard.
 
 Le niveau de culture de cet homme était extrêmement élevé, presque comparable à celui de l'Empereur Divin du Dragon Azure, qui s'était échappé jadis du Royaume Yu Zhi Xian Jie, et frôlant le quatrième Fléau Céleste. Si Wang Lin l'avait rencontré seul, il n'aurait pas été son égal.
 
@@ -74,7 +74,7 @@ Pourtant, ce vieillard était d'une puissance inouïe, et son âme originelle s'
 
 Fixant l'âme originelle du vieil homme, Wang Lin forma un sceau de ses mains et pointa du doigt. Le Fouet Kunji émit immédiatement une lueur d'or sombre et se rétracta. L'âme originelle du vieillard trembla et son visage se crispa de douleur. Il ouvrit les yeux et lança un regard glacial à Wang Lin.
 
-« Tu n'es qu'un dieu ancien à six étoiles. Mon Clan Dévorant la Lune en a tué bien des semblables. Même si tu as capturé mon âme originelle, que peux-tu espérer? Elle s'est déjà matérialisée; elle ne peut ni mourir, ni être détruite! » Le vieillard ricana et ferma les yeux. Il cessa de prêter attention à Wang Lin pour tenter d'utiliser son énergie originelle. Cependant, grâce au Fouet Kunji, tout était scellé.
+« Tu n'es qu'un dieu ancien à six étoiles. Mon Clan Yue Shi en a tué bien des semblables. Même si tu as capturé mon âme originelle, que peux-tu espérer? Elle s'est déjà matérialisée; elle ne peut ni mourir, ni être détruite! » Le vieillard ricana et ferma les yeux. Il cessa de prêter attention à Wang Lin pour tenter d'utiliser son énergie originelle. Cependant, grâce au Fouet Kunji, tout était scellé.
 
 Wang Lin resta silencieux et agita la main droite. Dans un éclat de lumière sanglante, l'Épée de Sang apparut. Sans la moindre pitié, il poignarda l'âme originelle du vieillard avec l'épée.
 
@@ -104,7 +104,7 @@ L'âme originelle du vieil homme aux cheveux blancs était désormais totalement
 
 Au moment même de sa mort, l'âme du vieil homme apparut sur un continent à l'intérieur du Monde Hu Feng Huan Yu. Il s'y assit, dégageant une quantité phénoménale d'aura blanc laiteux...
 
-« Le Clan Dévorant la Lune est extrêmement vaste. Le groupe que Tuo Sen et moi avons détruit n'était qu'une branche. Dans le Système Stellaire Antique, le Clan Dévorant la Lune possède encore trois autres branches... Et dans la branche située plein est, il existe un ancêtre du Clan Dévorant la Lune. Cette personne est... un cultivateur de la troisième étape! »
+« Le Clan Yue Shi est extrêmement vaste. Le groupe que Tuo Sen et moi avons détruit n'était qu'une branche. Dans le Système Stellaire Antique, le Clan Yue Shi possède encore trois autres branches... Et dans la branche située plein est, il existe un ancêtre du Clan Yue Shi. Cette personne est... un cultivateur de la troisième étape! »
 
 « Ce vieil homme n'avait jamais vu le Souverain de sa vie. Il savait seulement qu'il y a fort longtemps, le Souverain avait fui le Royaume Intérieur gravement blessé et s'était réfugié dans un lieu mystérieux pour guérir! »
 

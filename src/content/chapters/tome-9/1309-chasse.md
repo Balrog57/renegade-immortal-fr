@@ -62,7 +62,7 @@ Son corps trembla violemment et il cracha un flot de sang. Le brouillard noir qu
 
 La main droite de Tuo Sen marqua une pause, et ses yeux brillèrent d'une lueur étrange!
 
-« Rétribution Divine du Royaume Ji!! »
+« Royaume Ji de la Tribulation Céleste!! »
 
 Son expression changea. Incapable de détruire les éclairs rouges à l'intérieur de lui, il les laissa continuer leur œuvre destructrice. Toutefois, le dommage restait minime comparé à l'incroyable capacité de régénération d'un Dieu Ancien. Mais Tuo Sen étant déjà blessé, cela constituait un danger latent.
 

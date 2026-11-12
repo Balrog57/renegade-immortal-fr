@@ -30,7 +30,7 @@ Tuo Sen n'avait jamais prononcé de « merci » de sa vie. Ces mots n'existaient
 
 Sa fierté et son arrogance étaient inscrites dans ses os!
 
-« L'héritage de la mémoire de Tu Si... Une fois complet, se réveillera-t-il? Disparaîtras-tu? Je l'ignore... » Wang Lin n'avait pris qu'une partie de l'héritage de l'Ordre Antique, mais il était unique. Personne d'autre que lui ne pourrait plus l'obtenir.
+« L'héritage de la mémoire de Tu Si... Une fois complet, se réveillera-t-il? Disparaîtras-tu? Je l'ignore... » Wang Lin n'avait pris qu'une partie de l'héritage de Dao Gu, mais il était unique. Personne d'autre que lui ne pourrait plus l'obtenir.
 
 Si un jour la culture de Wang Lin atteignait un stade lui permettant d'en supporter davantage, il reviendrait pour continuer... Après avoir prononcé ces dernières paroles, Wang Lin agita la main. Ling Dong et Zhou Jin, stupéfaits par ce qu'ils venaient de voir, furent rangés dans le Fourneau Impérial par Wang Lin. Il mit également le corps du démon ancien dans son espace de stockage.
 
@@ -44,13 +44,13 @@ Ce qui se trouvait derrière le filet ne pouvait voir l'intérieur du palais, ma
 
 Cette ombre noire était de forme ovale et d'une taille colossale. D'innombrables tentacules ondulaient tandis que des quantités massives d'aura de Dieu Antique jaillissaient de sa gueule pour attaquer le filet!
 
-C'était le Serpent Regardant la Lune!!
+C'était Wang Yue!!
 
-Deux cultivateurs siégeaient à la tête du Serpent Regardant la Lune: Ji Xiantian et Wu Dongchan! Ils étaient extrêmement prudents, comme en état d'alerte face à l'imprévisible.
+Deux cultivateurs siégeaient à la tête de Wang Yue: Ji Xiantian et Wu Dongchan! Ils étaient extrêmement prudents, comme en état d'alerte face à l'imprévisible.
 
-Ils n'avaient pas besoin de plateformes, car le Serpent Regardant la Lune leur permettait de se déplacer dans la tombe comme Tuo Sen. Ils s'apprêtaient à utiliser la créature pour forcer l'entrée du palais.
+Ils n'avaient pas besoin de plateformes, car Wang Yue leur permettait de se déplacer dans la tombe comme Tuo Sen. Ils s'apprêtaient à utiliser la créature pour forcer l'entrée du palais.
 
-Toutefois, les restrictions entourant le palais étaient trop puissantes. Selon leurs analyses, même le Serpent Regardant la Lune mettrait un temps considérable pour les dissoudre.
+Toutefois, les restrictions entourant le palais étaient trop puissantes. Selon leurs analyses, même Wang Yue mettrait un temps considérable pour les dissoudre.
 
 Bien qu'anxieux, ils ne pouvaient qu'attendre nerveusement.
 
@@ -60,11 +60,11 @@ Des grondements de tonnerre résonnèrent et une immense fissure se propagea dan
 
 La puissance du vent était irrésistible. Ils poussèrent des cris déchirants et crachèrent du sang. Avant même d'avoir pu apercevoir Wang Lin ou l'origine du souffle, ils furent aspirés dans l'espace de stockage de Wang Lin.
 
-Même le corps gigantesque du Serpent Regardant la Lune fut repoussé par la rafale. Ses yeux ternes s'éclaircirent et le sceau visible sur son front brilla violemment.
+Même le corps gigantesque de Wang Yue fut repoussé par la rafale. Ses yeux ternes s'éclaircirent et le sceau visible sur son front brilla violemment.
 
-Wang Lin sortit de la fissure et, sans hésiter, agita les bras. Le Serpent Regardant la Lune trembla tandis qu'une gigantesque faille spatiale se forma derrière lui, l'aspirant dans l'espace de stockage de Wang Lin.
+Wang Lin sortit de la fissure et, sans hésiter, agita les bras. Wang Yue trembla tandis qu'une gigantesque faille spatiale se forma derrière lui, l'aspirant dans l'espace de stockage de Wang Lin.
 
-« Luo Chen... doit encore être à l'intérieur de ce serpent... » Luo Chen avait aidé Wang Lin par le passé. Après avoir mûrement réfléchi, Wang Lin rangea le Serpent Regardant la Lune et disparut.
+« Luo Chen... doit encore être à l'intérieur de Wang Yue... » Luo Chen avait aidé Wang Lin par le passé. Après avoir mûrement réfléchi, Wang Lin rangea Wang Yue et disparut.
 
 Le palais n'était plus qu'un amas de ruines brisées. À cet instant, seul Tuo Sen, abasourdi, demeurait dans les lieux. Il ne ressentait aucune joie face à cet héritage, seulement de l'hésitation et de la confusion.
 
@@ -88,7 +88,7 @@ Après être apparu, la main droite de Wang Lin s'étira vers le vide. La neuvi�
 
 Un grondement tonitruant émana de la brèche, laissant entrevoir l'angle d'un gigantesque pavillon doré.
 
-« Le Palais Terrestre... » Les yeux de Wang Lin brillèrent. Ayant hérité d'une partie des souvenirs de l'Ordre Antique, il connaissait le procédé pour obtenir le Palais Terrestre laissé par Ye Mo.
+« Le Palais Terrestre... » Les yeux de Wang Lin brillèrent. Ayant hérité d'une partie des souvenirs de Dao Gu, il connaissait le procédé pour obtenir le Palais Terrestre laissé par Ye Mo.
 
 Ce pavillon colossal possédait trois fenêtres et sa porte était hermétiquement scellée. Pourtant, Wang Lin distinguait clairement trois silhouettes assises à l'intérieur.
 

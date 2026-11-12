@@ -22,7 +22,7 @@ Au même instant, des éclairs jaillirent de l'œil droit de Wang Lin, brillant 
 
 « Personne sous le troisième pas ne peut résister à un seul coup de cette épée! Puisque tu ne peux quitter ta terre natale, je te donne cette arme pour te protéger! Si quiconque ose te manquer de respect, tranche-le avec elle! » Wang Lin fit un geste de la main droite et l'épée vola vers le corps de Xi Zifeng, devenant son trésor de vie!
 
-« Ma... Maître fera une dernière chose pour toi... Tu as un Senior Frère sur la planète Qing Ling. Si tu as besoin d'aide, présente cette épée pour t'identifier... Xi Zifeng... » Wang Lin regarda la femme devant lui.
+« Ma... Maître fera une dernière chose pour toi... Tu as un Senior frère sur la planète Qing Ling. Si tu as besoin d'aide, présente cette épée pour t'identifier... Xi Zifeng... » Wang Lin regarda la femme devant lui.
 
 La femme mordit sa lèvre inférieure et leva silencieusement la tête vers lui. Leurs regards se rencontrèrent, et dans ses yeux résidaient huit cents ans d'un amour profondément enfoui... Wang Lin resta silencieux un instant, le regard empreint de gravité. Il poussa un soupir avant de se détourner et de s'éloigner.
 
@@ -85,7 +85,7 @@ L'homme s'empara d'elle, prêt à l'utiliser pour sa culture avec une expression
 Après un fracas de tonnerre, ses yeux s'écarquillèrent et son corps s'effondra. Son sang macula la femme qui, soudainement, retrouva toute sa lucidité.
 
 Planète Shui Luo, famille Qian.
-Planète Brise-Ciel, famille Sun.
+Planète Po Kong, famille Sun.
 Planète Xun Ling, famille Li.
 
 Des éclairs d'énergie d'épée frappèrent tous ces lieux, exécutant ceux qui avaient autrefois humilié Xi Zifeng!

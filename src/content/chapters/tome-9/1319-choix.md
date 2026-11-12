@@ -14,7 +14,7 @@ Lorsqu'il se tenait au sommet de la montagne, celle-ci semblait disparaître. Lo
 
 Lorsqu'il se tenait parmi les étoiles, toute la lumière stellaire devait l'éviter. Partout où il se trouvait, il était la montagne, il était le ciel et il était les étoiles!
 
-« La plupart de mes sorts sont de ma propre création. Il y en a neuf: six sorts célestes et trois sorts du Dao, auxquels s'ajoute un sort de vie et de mort. Je peux tous vous les transmettre. Êtes-vous prêt à les apprendre? »
+« La plupart de mes sorts sont de ma propre création. J'ai neuf sorts divins, six sorts d'Immortel, trois techniques du Dao, et un sort de vie et de mort. Je peux tous vous les transmettre. Êtes-vous prêt à les apprendre? »
 
 Wang Lin resta silencieux.
 

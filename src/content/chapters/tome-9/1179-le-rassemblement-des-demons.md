@@ -8,7 +8,7 @@ slug: le-rassemblement-des-demons
 ---
 « Briseur du Nirvana de stade intermédiaire! » Lorsque Wang Lin s'approcha, il observa le vieil homme coiffé d'une couronne et ressentit l'intention meurtrière monstrueuse qui émanait de lui. Cet homme utilisait également les âmes pour ses sorts; c'était manifestement un célèbre cultivateur maléfique de la Mer Yun.
 
-À ce moment-là, alors que Maître Nuage-Âme agita ses manches, une marée infinie de fragments d'âmes chargea vers Wang Lin pour le dévorer.
+À ce moment-là, alors que Yun Hunzi agita ses manches, une marée infinie de fragments d'âmes chargea vers Wang Lin pour le dévorer.
 
 Les yeux de Wang Lin s'illuminèrent. Sa main droite se serra en un poing et il lança un coup fulgurant. Une force puissante apparut et percuta ces fragments d'âmes.
 
@@ -16,23 +16,23 @@ Un grondement tonitruant résonna et la brume stellaire environnante fut repouss
 
 Le corps de Wang Lin vacilla et il recula de cinq pas. Chaque pas qu'il faisait faisait trembler la terre et laissait de profondes empreintes. Après ces cinq pas, son visage était légèrement pâle alors qu'il fixait Cang Songzi et s'écria: « Cang Songzi, quel est le sens de tout cela?! »
 
-Cang Songzi rit en se levant et agita la main. Une lueur dorée jaillit et se transforma soudainement en des milliers d'épées volantes. Ces épées s'assemblèrent avec un déclic pour former un rideau de lames, stoppant net l'assaut des fragments d'âmes de Maître Nuage-Âme.
+Cang Songzi rit en se levant et agita la main. Une lueur dorée jaillit et se transforma soudainement en des milliers d'épées volantes. Ces épées s'assemblèrent avec un déclic pour former un rideau de lames, stoppant net l'assaut des fragments d'âmes de Yun Hunzi.
 
-« Maître Nuage-Âme, le Cher Cultivateur Lu est un invité d'honneur que j'ai convié. J'espère que vous ferez preuve de considération envers ce vieil homme! »
+« Yun Hunzi, le Daoïste Lu est un invité d'honneur que j'ai convié. J'espère que vous ferez preuve de considération envers ce vieil homme! »
 
-Maître Nuage-Âme, portant sa couronne, lança un regard glacial à Wang Lin et afficha un sourire hypocrite. « Vous vous cachez bien, mais vous possédez bel et bien des sorts de Briseur du Nirvana. » Tandis qu'il parlait, sa main droite s'étendit et les innombrables fragments d'âmes se rassemblèrent. Ils se transformèrent en neuf flammes d'âmes gigantesques derrière lui, émettant des crépitements tandis qu'elles brûlaient.
+Yun Hunzi, portant sa couronne, lança un regard glacial à Wang Lin et afficha un sourire hypocrite. « Vous vous cachez bien, mais vous possédez bel et bien des sorts de Briseur du Nirvana. » Tandis qu'il parlait, sa main droite s'étendit et les innombrables fragments d'âmes se rassemblèrent. Ils se transformèrent en neuf flammes d'âmes gigantesques derrière lui, émettant des crépitements tandis qu'elles brûlaient.
 
-« Cher Cultivateur Lu, Maître Nuage-Âme ne fait que tester votre force et n'a aucune intention malveillante. Ne vous offensez pas, je vous prie. » Cang Songzi sourit et joignit les mains.
+« Daoïste Lu, Yun Hunzi ne fait que tester votre force et n'a aucune intention malveillante. Ne vous offensez pas, je vous prie. » Cang Songzi sourit et joignit les mains.
 
 L'expression de Wang Lin était sombre et il garda le silence. Il s'assit non loin d'eux et fixa l'horizon, le visage impassible, rendant impossible pour quiconque de deviner ses pensées.
 
-Cang Songzi ricana intérieurement. Lui et Maître Nuage-Âme échangèrent des regards subtils avant de se détourner rapidement.
+Cang Songzi ricana intérieurement. Lui et Yun Hunzi échangèrent des regards subtils avant de se détourner rapidement.
 
-Maître Nuage-Âme transmit sa pensée à Cang Songzi: « Cet homme a bien la capacité de tuer Wu Qing, mais il subsiste un fossé entre lui et les cultivateurs Briseur du Nirvana de stade intermédiaire comme nous. Si j'attaque seul, je peux le tuer en dix respirations! Si nous unissons nos forces, nous pouvons l'éliminer instantanément! »
+Yun Hunzi transmit sa pensée à Cang Songzi: « Cet homme a bien la capacité de tuer Wu Qing, mais il subsiste un fossé entre lui et les cultivateurs Briseur du Nirvana de stade intermédiaire comme nous. Si j'attaque seul, je peux le tuer en dix respirations! Si nous unissons nos forces, nous pouvons l'éliminer instantanément! »
 
 Cang Songzi ferma les yeux et répondit par message: « Ce qui m'effraie le plus n'est pas son identité potentielle de membre de la Secte Divine. C'est qu'il est manifestement un cultivateur Purificateur du Nirvana, et pourtant ses sorts ont même pu tuer Wu Qing. Il cache clairement son niveau de culture. Si je ne connais pas sa véritable puissance, cela pourrait compromettre nos plans. Cependant, après avoir vu votre combat, je suis rassuré. Mais cet homme est extrêmement rusé; pendant le trajet, trouvez une occasion de le tester encore quelques fois! »
 
-Les yeux de Maître Nuage-Âme brillèrent d'assentiment.
+Les yeux de Yun Hunzi brillèrent d'assentiment.
 
 Wang Lin baissa la tête tandis qu'il restait assis, afin que personne ne puisse déceler l'éclat de froideur dans son regard. Bien qu'il ait semblé utiliser toute sa force, il se retenait en réalité. Il serait imprudent de révéler sa véritable puissance devant ces vieux monstres.
 
@@ -76,7 +76,7 @@ Tout en réfléchissant, le regard de Wang Lin passa sur le garçon. Celui-ci é
 
 Après un instant de réflexion, le garçon dit à Cang Songzi: « Si nous ne partons pas maintenant, quelqu'un d'autre doit-il encore venir? »
 
-« Il en manque toujours une... » Avant que Cang Songzi n'ait pu achever sa phrase, il leva soudainement la tête vers le lointain. Presque simultanément, le garçon et Maître Nuage-Âme levèrent aussi les yeux.
+« Il en manque toujours une... » Avant que Cang Songzi n'ait pu achever sa phrase, il leva soudainement la tête vers le lointain. Presque simultanément, le garçon et Yun Hunzi levèrent aussi les yeux.
 
 Wang Lin sentit nettement la terre trembler légèrement. Il regarda et vit une silhouette imposante s'approcher du continent sauvage à travers la brume. La silhouette se rapprochait de plus en plus jusqu'à révéler un homme grand et robuste vêtu de pourpre.
 
@@ -92,11 +92,11 @@ Personne ne le vit faire le moindre mouvement, mais dès qu'il prit la parole, l
 
 L'homme robuste dévora la pilule et dit calmement: « Je suis arrivé tôt, alors j'en ai profité pour raffiner les bêtes féroces d'ici. »
 
-« Secte Yi Shou! » L'expression de Maître Nuage-Âme devint sérieuse et il joignit les mains en signe de respect envers l'homme. « Je me demande de quel Daoïste de la Secte Yi Shou il s'agit? Je suis Maître Nuage-Âme, et j'ai des liens anciens avec le Daoïste Bu Tianzi de votre secte. »
+« Secte Yi Shou! » L'expression de Yun Hunzi devint sérieuse et il joignit les mains en signe de respect envers l'homme. « Je me demande de quel Daoïste de la Secte Yi Shou il s'agit? Je suis Yun Hunzi, et j'ai des liens anciens avec le Daoïste Bu Tianzi de votre secte. »
 
 L'expression du garçon devint également grave, et il joignit les mains à son tour.
 
-« Bu Tianzi est mon Senior. Je suis Chen Tianjun. » La voix de l'homme robuste était calme, teintée d'une pointe de fierté.
+« Bu Tianzi est mon Senior frère. Je suis Chen Tianjun. » La voix de l'homme robuste était calme, teintée d'une pointe de fierté.
 
 « Cet homme est un Briseur du Nirvana de stade précoce... Mais s'il impose la prudence à ces vieux monstres de stade intermédiaire, ce n'est pas seulement à cause du nom de sa secte; plus important encore, les sorts de cette Secte Yi Shou ont quelque chose d'étrange. De plus, il a affirmé être arrivé alors que personne ne l'avait remarqué. Il y a là une anomalie! » Wang Lin détourna le regard de l'homme robuste.
 
@@ -104,7 +104,7 @@ L'expression du garçon devint également grave, et il joignit les mains à son 
 
 Chen Tianjun hocha légèrement la tête et dit: « Cang Songzi, j'ai été convoqué par la région de rang 9 et je dois retourner d'urgence à la secte pour partir avec mes condisciples. Je n'ai pas beaucoup de temps, alors hâtez-vous! »
 
-Cang Songzi acquiesça, balaya l'assemblée du regard et déclara: « Je vous suis très reconnaissant d'être venus. Nous obtiendrons tous quelque chose lors de ce voyage. Aucun de vous ne repartira les mains vides. » Il marqua une pause avant de regarder Wang Lin: « Cher Cultivateur Lu, en plus des cristaux d'origine, vous pourrez également choisir quelques trésors en signe de ma gratitude! »
+Cang Songzi acquiesça, balaya l'assemblée du regard et déclara: « Je vous suis très reconnaissant d'être venus. Nous obtiendrons tous quelque chose lors de ce voyage. Aucun de vous ne repartira les mains vides. » Il marqua une pause avant de regarder Wang Lin: « Daoïste Lu, en plus des cristaux d'origine, vous pourrez également choisir quelques trésors en signe de ma gratitude! »
 
 Wang Lin acquiesça silencieusement.
 
@@ -112,6 +112,6 @@ Wang Lin acquiesça silencieusement.
 
 L'Ancien nommé Pang le suivit de près, ainsi que la vieille femme en vert. Chen Tianjun, de la Secte Yi Shou, s'avança, et deux volutes de gaz noir se transformèrent en deux créatures semblables à des aigles pour le suivre.
 
-« Cher Cultivateur Lu, par ici. » Maître Nuage-Âme regarda Wang Lin avec un sourire qui n'en était pas un.
+« Daoïste Lu, par ici. » Yun Hunzi regarda Wang Lin avec un sourire qui n'en était pas un.
 
-L'expression de Wang Lin resta calme tandis qu'il s'élançait. Maître Nuage-Âme volait à l'arrière, jetant des regards froids sur lui. Les six individus formèrent six rayons de lumière traversant l'espace, avec Cang Songzi en tête de cortège.
+L'expression de Wang Lin resta calme tandis qu'il s'élançait. Yun Hunzi volait à l'arrière, jetant des regards froids sur lui. Les six individus formèrent six rayons de lumière traversant l'espace, avec Cang Songzi en tête de cortège.

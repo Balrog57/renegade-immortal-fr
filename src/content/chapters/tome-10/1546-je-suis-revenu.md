@@ -14,7 +14,7 @@ Privé de la présence du fou qui le suivait habituellement, la vitesse de Wang 
 
 Au premier pas, il apparut dans une zone peuplée de planètes de culture et de cultivateurs. Personne ne remarqua sa présence! La plupart ne ressentirent qu'une légère ondulation qui apparut puis disparut instantanément.
 
-Maître Lu Fu comptait parmi ces cultivateurs. Le Vide Brillant abritait très peu de cultivateurs du troisième niveau, et ceux qui maîtrisaient les formations anciennes étaient encore plus rares. Maître Hong Shan l'avait invité ici pour y disposer des formations.
+Maître Lu Fu comptait parmi ces cultivateurs. Le système stellaire Kun Xu abritait très peu de cultivateurs du troisième niveau, et ceux qui maîtrisaient les formations anciennes étaient encore plus rares. Maître Hong Shan l'avait invité ici pour y disposer des formations.
 
 Lui-même ne sentit qu'un trouble dans sa vision, comme si quelqu'un venait de passer. Ses yeux se plissèrent immédiatement.
 
@@ -22,9 +22,9 @@ Lui-même ne sentit qu'un trouble dans sa vision, comme si quelqu'un venait de p
 
 Wang Lin aperçut également Maître Lu Fu, mais le temps pressait; il ne s'arrêta pas et fit son deuxième pas!
 
-À ce deuxième pas, il atteignit une zone proche du centre du Vide Brillant. Cette zone était assez déserte, et bientôt, des failles spatiales apparurent telles des cicatrices.
+À ce deuxième pas, il atteignit une zone proche du centre de Kun Xu. Cette zone était assez déserte, et bientôt, des failles spatiales apparurent telles des cicatrices.
 
-On aurait dit qu'une bataille titanesque avait eu lieu ici des années auparavant! Le combat avait été si féroce qu'il avait provoqué l'effondrement de l'espace. C'est en raison de ces effondrements que d'innombrables failles spatiales étaient apparues, comme si cette zone avait été coupée du système stellaire du Vide Brillant. Ces déchirures rendaient également très difficile la couverture de la zone par le Sens Divin.
+On aurait dit qu'une bataille titanesque avait eu lieu ici des années auparavant! Le combat avait été si féroce qu'il avait provoqué l'effondrement de l'espace. C'est en raison de ces effondrements que d'innombrables failles spatiales étaient apparues, comme si cette zone avait été coupée du système stellaire Kun Xu. Ces déchirures rendaient également très difficile la couverture de la zone par le Sens Divin.
 
 Conjuguées aux ondulations qui saturaient l'espace, il était impossible pour le Sens Divin de percevoir quoi que ce soit. C'était devenu une zone où le Sens Divin était inutile!
 

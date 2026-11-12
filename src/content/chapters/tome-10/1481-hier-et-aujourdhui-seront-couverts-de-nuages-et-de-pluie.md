@@ -104,7 +104,7 @@ Les cultivateurs qui le suivaient toussaient également du sang. Leurs yeux éta
 
 Alors qu'ils étaient terrifiés par l'énergie de l'épée sur Qing Ling, une distorsion apparut au-dessus de Xie Qing, qui méditait en tailleur, et un homme en sortit.
 
-Il s'agissait d'un vieil homme vêtu d'une robe taoïste: Maître Lu Fu!
+Il s'agissait d'un vieil homme vêtu d'une robe daoïste: Maître Lu Fu!
 
 Il ne souhaitait pas affronter Wang Lin immédiatement. Ayant ressenti cette énergie d'épée, il était venu ici discrètement après le départ de ce dernier. Flottant dans les airs, il fronça les sourcils et réfléchit un instant, avant de pointer du doigt l'immense épée de pluie plantée dans la montagne.
 

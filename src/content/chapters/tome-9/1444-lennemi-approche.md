@@ -24,7 +24,7 @@ Il était fort probable que sa propre chair soit consumée avant même qu'il ne 
 
 Le regard de Wang Lin devint progressivement plus froid alors qu'il fixait l'homme. Une pointe d'intention meurtrière brillait dans ses yeux.
 
-Le cultivateur obèse était couvert de sueur et son cœur battait la chamade. Il avait l'impression qu'un feu brûlait à l'intérieur de son corps. La bouche sèche, il agita précipitamment la main droite pour sortir une écaille grande comme une paume. Il la tendit rapidement en disant amèrement: « Ce petit a effectivement dit cela, et j'espère que le Compagnon Cultivateur pourra me pardonner. Voici ce que j'ai obtenu sur la plateforme; j'espère que le Compagnon Cultivateur l'acceptera comme excuse. »
+Le cultivateur obèse était couvert de sueur et son cœur battait la chamade. Il avait l'impression qu'un feu brûlait à l'intérieur de son corps. La bouche sèche, il agita précipitamment la main droite pour sortir une écaille grande comme une paume. Il la tendit rapidement en disant amèrement: « Ce petit a effectivement dit cela, et j'espère que le Daoïste pourra me pardonner. Voici ce que j'ai obtenu sur la plateforme; j'espère que le Daoïste l'acceptera comme excuse. »
 
 La main droite de Wang Lin s'étendit et l'écaille atterrit dans sa paume. Il l'examina un instant avant de la ranger. Puis, son regard quitta le cultivateur obèse pour se poser sur une autre personne.
 
@@ -34,7 +34,7 @@ Lorsque le cultivateur obèse vit que Wang Lin ne le visait plus, il se sentit s
 
 Un instant plus tard, le cultivateur en noir joignit les mains en signe de salut devant Wang Lin et agita la main droite. Une épée noire jaillit vers lui, imprégnée d'une énergie démoniaque.
 
-Le cultivateur en noir dit doucement: « J'ai été téméraire auparavant; j'espère que le Compagnon Cultivateur ne m'en tiendra pas rigueur. »
+Le cultivateur en noir dit doucement: « J'ai été téméraire auparavant; j'espère que le Daoïste ne m'en tiendra pas rigueur. »
 
 Wang Lin saisit l'épée et observa l'homme. Il trouva ce cultivateur très intéressant. Ses fluctuations émotionnelles n'étaient pas fortes, mais il semblait y avoir une puissance mystérieuse scellée entre ses sourcils. Il avait le sentiment que ce sceau se briserait dès qu'il ouvrirait les yeux.
 

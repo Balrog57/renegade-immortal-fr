@@ -22,17 +22,17 @@ Le visage de Maître du Vide était d'une pâleur mortelle. Il avait déjà ét�
 
 Malgré son expression féroce, ses yeux ne fixaient ni Wang Lin ni Zhou Yi, mais restaient verrouillés sur Tian Yunzi.
 
-L'expression de Tian Yunzi demeura impassible; le regard de Maître du Vide ne lui causait aucun malaise. Il dit calmement: « Cher compagnon de culture Maître du Vide, je n'oserais vous porter secours que si vous étiez réduit à un tel état. » Sur ce, Tian Yunzi tourna un sourire vers Wang Wei et Hu Juan. « J'espère que le Couple du Nuage Céleste me fera cette faveur. Et si nous oubliions nos griefs personnels aujourd'hui pour nous concentrer sur l'ascension vers l'étage suivant? »
+L'expression de Tian Yunzi demeura impassible; le regard de Maître du Vide ne lui causait aucun malaise. Il dit calmement: « Daoïste Maître du Vide, je n'oserais vous porter secours que si vous étiez réduit à un tel état. » Sur ce, Tian Yunzi tourna un sourire vers Wang Wei et Hu Juan. « J'espère que le Couple du Nuage Céleste me fera cette faveur. Et si nous oubliions nos griefs personnels aujourd'hui pour nous concentrer sur l'ascension vers l'étage suivant? »
 
 L'expression de Ling Tianhou devint sombre. Comment ne pouvait-il pas voir que Tian Yunzi était intervenu secrètement? Il se déplaça silencieusement aux côtés de Maître du Vide et lança un regard glacial à Wang Lin et son groupe.
 
 Il y avait aussi ce vieil homme assis sur une gourde, dont l'expression indifférente semblait observer tout le monde. Cependant, sa position indiquait clairement qu'il prendrait le parti de Tian Yunzi et de Maître du Vide.
 
-Simultanément, la jeune fille soupçonnée d'être la Sainte du Vide Brillant se leva et s'approcha de Maître du Vide. Son regard magnifique balaya la salle avant de se poser sur Wang Lin, et elle dit doucement: « Cher compagnon Wang, mettons cette affaire de côté pour l'instant. Une fois que vous aurez quitté ces lieux, mon Royaume Kun Xu ne s'impliquera pas dans ce conflit. »
+Simultanément, la jeune fille soupçonnée d'être la Sainte du Vide Brillant se leva et s'approcha de Maître du Vide. Son regard magnifique balaya la salle avant de se poser sur Wang Lin, et elle dit doucement: « Daoïste Wang, mettons cette affaire de côté pour l'instant. Une fois que vous aurez quitté ces lieux, mon Royaume Kun Xu ne s'impliquera pas dans ce conflit. »
 
 Hormis l'homme en noir, tous avaient clairement choisi un camp. Le regard de Wang Lin jeta un éclair et il joignit les mains devant Wang Wei: « Mon affaire ne compte pas. Je laisserai le Senior décider de la suite. »
 
-Bien que Wang Wei n'eût pas apprécié l'attaque soudaine de Wang Lin, il acquiesça en voyant que celui-ci savait faire preuve de retenue. Son regard se posa sur Tian Yunzi et ses alliés, et il déclara calmement: « Très bien. Laissons de côté nos querelles personnelles pour l'instant! Les trois derniers étages sont semés d'embûches; je vous prie donc, chers compagnons, de ne pas vous retenir. Une fois transférés au septième étage, retrouvons-nous au centre. »
+Bien que Wang Wei n'eût pas apprécié l'attaque soudaine de Wang Lin, il acquiesça en voyant que celui-ci savait faire preuve de retenue. Son regard se posa sur Tian Yunzi et ses alliés, et il déclara calmement: « Très bien. Laissons de côté nos querelles personnelles pour l'instant! Les trois derniers étages sont semés d'embûches; je vous prie donc, chers Daoïstes, de ne pas vous retenir. Une fois transférés au septième étage, retrouvons-nous au centre. »
 
 Après la déclaration de Wang Wei, Tian Yunzi et son groupe sourirent en hochant la tête. Hu Juan se leva et s'approcha de la tablette de pierre. Elle posa sa main semblable à du jade sur la tablette et exerça une légère pression. Une lumière pourpre jaillit de l'artefact, accompagné de grondements sourds comme si la pierre elle-même tremblait.
 
@@ -78,7 +78,7 @@ Contemplant le volcan imposant, Wang Lin ferma les yeux et déploya son Sens Div
 
 Sa main immergée dans le magma le confortait profondément. Son énergie d'origine s'agita en lui pour former un vortex. Une force d'aspiration émana du corps de Wang Lin, utilisant sa main droite comme un pont; l'énergie d'origine de feu de la lave fut alors doucement aspirée dans son organisme.
 
-« J'ai déjà maîtrisé les trois premiers des six sorts de l'Empereur Céleste Bai Fan. Cependant, selon le Senior Frère Qing Shui, les trois derniers contiennent l'essence véritable du pouvoir de Bai Fan, et le premier d'entre eux est l'Effondrement de la Montagne! Dans le Domaine Sha Yu, j'ai vu Qing Shui l'utiliser, et c'était très similaire à une éruption volcanique... » Wang Lin méditait tout en absorbant cette énergie, les yeux fixés sur le volcan majestueux.
+« J'ai déjà maîtrisé les trois premiers des six sorts de l'Empereur Céleste Bai Fan. Cependant, selon le Senior Frère Qing Shui, les trois derniers contiennent l'essence véritable du pouvoir de Bai Fan, et le premier d'entre eux est l'Effondrement de la Montagne! Dans le Royaume Sha Yu, j'ai vu Qing Shui l'utiliser, et c'était très similaire à une éruption volcanique... » Wang Lin méditait tout en absorbant cette énergie, les yeux fixés sur le volcan majestueux.
 
 À sa droite, l'homme en noir portant le dragon noir caché ne pénétra pas non plus dans le volcan; il s'assit et plongea sa main gauche dans la lave d'une crevasse. Tout comme Wang Lin, il absorbait l'énergie d'origine du feu, jetant parfois des regards empreints de crainte et d'hostilité vers lui.
 

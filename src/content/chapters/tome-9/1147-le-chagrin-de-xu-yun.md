@@ -1,9 +1,9 @@
 ---
 n: 1147
-title: Le chagrin de Xu Yun
+title: Le chagrin de Sun Yun
 book: 9
 bookTitle: Peak of the Cloud Sea
-en: Chapter 1147 - Xu Yuns Heartache
+en: Chapter 1147 - Sun Yuns Heartache
 slug: le-chagrin-de-xu-yun
 ---
 Tenant le petit drapeau doré, Wang Lin ferma lentement les yeux. Son regard brilla tandis qu'il méditait.
@@ -36,13 +36,13 @@ Après avoir retiré son sens divin, le regard de Wang Lin se posa sur le troisi
 
 Le temps s'écoula lentement et la saison des pluies s'estompa, laissant le soleil régner sur le continent de Mo Luo. Wang Lin semblait s'être accoutumé à la vie au sein de la Secte Gui Yuan et passait tout son temps à étudier l'alchimie.
 
-Xu Yun se montrait très respectueuse envers cet homme nommé Ceng Niu qui vivait à ses côtés. Bien que Wang Lin ne l'ait pas encore avoué, l'intuition féminine de Xu Yun lui murmurait que Ceng Niu n'était autre que l'homme aux cheveux blancs.
+Sun Yun se montrait très respectueuse envers cet homme nommé Zeng Niu qui vivait à ses côtés. Bien que Wang Lin ne l'ait pas encore avoué, l'intuition féminine de Sun Yun lui murmurait que Zeng Niu n'était autre que l'homme aux cheveux blancs.
 
 Chaque fois qu'elle songeait à la silhouette de Wang Lin et à la grâce de ce seul doigt, elle se sentait tendue. À cet instant, elle observait Wang Lin avec perplexité.
 
-« Ceci est de l'Herbe Ning Sui. C'est un ingrédient pour la création de pilules. La plupart des pilules de ma Secte Gui Yuan nécessitent cela... » Lorsqu'un cultivateur de la Mer Yun atteignait un certain niveau de culture, il acquérait une compréhension certaine de l'alchimie, étroitement liée aux méthodes de la Mer Yun. Ce qui la déconcertait, c'était que Ceng Niu semblait ignorer tout ce qui était pourtant considéré comme du bon sens.
+« Ceci est de l'Herbe Ning Sui. C'est un ingrédient pour la création de pilules. La plupart des pilules de ma Secte Gui Yuan nécessitent cela... » Lorsqu'un cultivateur de la Mer Yun atteignait un certain niveau de culture, il acquérait une compréhension certaine de l'alchimie, étroitement liée aux méthodes de la Mer Yun. Ce qui la déconcertait, c'était que Zeng Niu semblait ignorer tout ce qui était pourtant considéré comme du bon sens.
 
-Pour que Wang Lin puisse affiner des pilules, il devait d'abord mémoriser les noms et les propriétés de toutes les herbes. Certaines plantes qu'il connaissait de l'Alliance portaient des noms différents ici; Xu Yun était donc devenue la cible privilégiée des interrogations de Wang Lin.
+Pour que Wang Lin puisse affiner des pilules, il devait d'abord mémoriser les noms et les propriétés de toutes les herbes. Certaines plantes qu'il connaissait de l'Alliance portaient des noms différents ici; Sun Yun était donc devenue la cible privilégiée des interrogations de Wang Lin.
 
 « Ceci est de l'Herbe Nuage d'Encre, un composant essentiel de la Pilule de Carence de Nuage. »
 
@@ -50,29 +50,29 @@ L'expression de Wang Lin restait froide et calme. Il avait utilisé un temps tr�
 
 Wang Lin inspecta les alentours et demanda: « Y a-t-il de la Fleur de Brume? » Le jade qu'il avait vu dans le temple taoïste indiquait que pour affiner une Pilule de Séparation de l'Âme de rang 6 ou supérieur, outre l'âme d'une bête féroce, trois herbes encore plus cruciales étaient nécessaires. L'une d'elles était la Fleur de Brume.
 
-« La Fleur de Brume ne pousse que sur les continents sauvages enveloppés par le brouillard stellaire des domaines stellaires extérieurs. La rumeur veut que plus le brouillard est dense, plus on trouve de Fleurs de Brume. Dans la Secte Gui Yuan, je n'en connais que trois exemplaires séchés, et ils sont tous chez l'Oncle-Maître Li. » Après avoir expliqué cela, Xu Yun ajouta:
+« La Fleur de Brume ne pousse que sur les continents sauvages enveloppés par le brouillard stellaire des domaines stellaires extérieurs. La rumeur veut que plus le brouillard est dense, plus on trouve de Fleurs de Brume. Dans la Secte Gui Yuan, je n'en connais que trois exemplaires séchés, et ils sont tous chez l'Oncle-Maître Li. » Après avoir expliqué cela, Sun Yun ajouta:
 
 « Le talent alchimique de l'Oncle-Maître Li est considéré comme inégalé dans toute la Secte Gui Yuan. »
 
-Wang Lin hocha la tête et cessa de prêter attention à Xu Yun. Au lieu de cela, il rassembla quelques herbes selon la méthode d'alchimie qu'il gardait en mémoire et retourna dans sa demeure.
+Wang Lin hocha la tête et cessa de prêter attention à Sun Yun. Au lieu de cela, il rassembla quelques herbes selon la méthode d'alchimie qu'il gardait en mémoire et retourna dans sa demeure.
 
-En voyant Wang Lin emporter ces herbes, le cœur de Xu Yun se serra, mais elle n'osa pas le laisser paraître. Alors que Wang Lin regagnait sa chambre, elle s'exclama précipitamment: « Ceci... Cela nécessite que vous alliez dans la salle d'alchimie de la cour est. Non seulement on y trouve un fourneau, mais il y a aussi du feu terrestre et des formations de protection. Ainsi, même si le fourneau explose, il n'y aura aucun danger. »
+En voyant Wang Lin emporter ces herbes, le cœur de Sun Yun se serra, mais elle n'osa pas le laisser paraître. Alors que Wang Lin regagnait sa chambre, elle s'exclama précipitamment: « Ceci... Cela nécessite que vous alliez dans la salle d'alchimie de la cour est. Non seulement on y trouve un fourneau, mais il y a aussi du feu terrestre et des formations de protection. Ainsi, même si le fourneau explose, il n'y aura aucun danger. »
 
 « Ce n'est pas nécessaire. » Wang Lin ne se retourna même pas en entrant dans la pièce.
 
-Ce n'est qu'une fois Wang Lin parti que Xu Yun frappa du pied, bouillonnante de mécontentement. La plupart des herbes de ce jardin avaient été récoltées au prix de grands efforts. Certaines lui avaient été offertes par son maître après qu'il les eut dénichées en explorant de dangereux continents sauvages. On pouvait dire que la majorité de ces plantes étaient la propriété privée de Xu Yun et de son maître.
+Ce n'est qu'une fois Wang Lin parti que Sun Yun frappa du pied, bouillonnante de mécontentement. La plupart des herbes de ce jardin avaient été récoltées au prix de grands efforts. Certaines lui avaient été offertes par son maître après qu'il les eut dénichées en explorant de dangereux continents sauvages. On pouvait dire que la majorité de ces plantes étaient la propriété privée de Sun Yun et de son maître.
 
-Les disciples de la secte le savaient tous et n'osaient pas venir ici pour cueillir des herbes. Xu Yun accordait une valeur immense à ce jardin. Pourtant, elle était impuissante face à Wang Lin qui les emportait ainsi sans même l'écouter, s'apprêtant à raffiner sans utiliser la salle d'alchimie. Surtout quand on savait qu'il ignorait encore le nom de certaines plantes, il était évident que c'était sa toute première tentative.
+Les disciples de la secte le savaient tous et n'osaient pas venir ici pour cueillir des herbes. Sun Yun accordait une valeur immense à ce jardin. Pourtant, elle était impuissante face à Wang Lin qui les emportait ainsi sans même l'écouter, s'apprêtant à raffiner sans utiliser la salle d'alchimie. Surtout quand on savait qu'il ignorait encore le nom de certaines plantes, il était évident que c'était sa toute première tentative.
 
-Si la pilule explosait, non seulement la maison serait détruite, mais le jardin lui-même en subirait les conséquences. Xu Yun frappa le sol de frustration, mais n'osa pas s'avancer pour l'interrompre.
+Si la pilule explosait, non seulement la maison serait détruite, mais le jardin lui-même en subirait les conséquences. Sun Yun frappa le sol de frustration, mais n'osa pas s'avancer pour l'interrompre.
 
-« Hmph, s'il refuse d'aller dans la salle d'alchimie, c'est qu'il doit avoir son propre fourneau. Il ne sait que s'appuyer sur sa culture élevée pour intimider une junior comme moi. Quel tyran! » Plus Xu Yun y pensait, plus sa colère grandissait. Elle finit par s'asseoir dehors pour attendre. Si la pilule explosait, elle ferait de son mieux pour protéger les herbes. Une grande partie de l'affection qu'elle portait autrefois à Wang Lin s'était évaporée.
+« Hmph, s'il refuse d'aller dans la salle d'alchimie, c'est qu'il doit avoir son propre fourneau. Il ne sait que s'appuyer sur sa culture élevée pour intimider une junior comme moi. Quel tyran! » Plus Sun Yun y pensait, plus sa colère grandissait. Elle finit par s'asseoir dehors pour attendre. Si la pilule explosait, elle ferait de son mieux pour protéger les herbes. Une grande partie de l'affection qu'elle portait autrefois à Wang Lin s'était évaporée.
 
 « Arrogant, quel arrogant! » En repensant au visage de Wang Lin, sa colère redoublait.
 
-« Bien que l'alchimie ait un lien avec la culture, cela n'influe pas tant sur le résultat. Ce qui importe, c'est l'expérience et d'innombrables tentatives. Quel que soit le niveau de culture, le taux de réussite lors d'un premier essai ne peut être élevé! » Xu Yun fronça les sourcils, tentant de se calmer tout en restant en garde, impuissante.
+« Bien que l'alchimie ait un lien avec la culture, cela n'influe pas tant sur le résultat. Ce qui importe, c'est l'expérience et d'innombrables tentatives. Quel que soit le niveau de culture, le taux de réussite lors d'un premier essai ne peut être élevé! » Sun Yun fronça les sourcils, tentant de se calmer tout en restant en garde, impuissante.
 
-Wang Lin ne se souciait guère du mécontentement de Xu Yun. De retour dans sa chambre, il s'assit et agita la main. Toutes les herbes qu'il avait cueillies flottèrent dans l'air. Son œil gauche s'illumina et des flammes commencèrent immédiatement à y brûler.
+Wang Lin ne se souciait guère du mécontentement de Sun Yun. De retour dans sa chambre, il s'assit et agita la main. Toutes les herbes qu'il avait cueillies flottèrent dans l'air. Son œil gauche s'illumina et des flammes commencèrent immédiatement à y brûler.
 
 L'alchimie ne nécessite pas forcément de fourneau! Un fourneau sert avant tout à empêcher les principes médicinaux de s'échapper et à mieux condenser la chaleur pour que la pilule prenne forme.
 
@@ -100,8 +100,8 @@ Dès que la main de Wang Lin quitta la sphère, la pilule inachevée trembla et 
 
 Cependant, celle-ci fut contenue par la boule de feu qui l'enveloppait. On entendit quelques bruits étouffés, mais la sphère ne rompit pas.
 
-« Une explosion de pilule! » Dehors, Xu Yun entendit les sons sourds et se leva brusquement, le cœur battant. Pourtant, après avoir attendu un moment, l'explosion ne vint pas. Elle ne vit que Wang Lin sortir d'un air sombre, emportant encore plus d'herbes avec lui.
+« Une explosion de pilule! » Dehors, Sun Yun entendit les sons sourds et se leva brusquement, le cœur battant. Pourtant, après avoir attendu un moment, l'explosion ne vint pas. Elle ne vit que Wang Lin sortir d'un air sombre, emportant encore plus d'herbes avec lui.
 
-Xu Yun finit par réagir et frappa le sol de rage. Elle aurait voulu exiger justice auprès de Wang Lin, mais en repensant à son expression austère de tout à l'heure, elle fut saisie de crainte. Elle ne put que se plaindre intérieurement:
+Sun Yun finit par réagir et frappa le sol de rage. Elle aurait voulu exiger justice auprès de Wang Lin, mais en repensant à son expression austère de tout à l'heure, elle fut saisie de crainte. Elle ne put que se plaindre intérieurement:
 
 « Quel tyran! Hmph, cette pilule finira par exploser, c'est certain! »

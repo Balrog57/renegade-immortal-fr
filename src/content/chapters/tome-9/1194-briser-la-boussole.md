@@ -30,7 +30,7 @@ La boussole devait être détruite, sans quoi elle continuerait de traquer Wang 
 
 Alors que sa main gauche agrippait le trident, la folie dans son regard s'intensifia. Il savait qu'il ne lui restait plus beaucoup de temps avant de perdre connaissance. Ses blessures s'aggravant, il risquait de sombrer à tout instant. Il devait briser cette boussole et trouver un endroit pour se soigner.
 
-Le temps pressait. Wang Lin prit une profonde inspiration, l'intention de combat embrasant son regard. Le feu envahit son œil gauche et l'armure du Vermillon apparut autour de lui. Simultanément, la foudre éclata dans son œil droit, transformant la zone de dix mille pieds autour de lui en un lac de tonnerre.
+Le temps pressait. Wang Lin prit une profonde inspiration, l'intention de combat embrasant son regard. Le feu envahit son œil gauche et l'armure de Suzaku apparut autour de lui. Simultanément, la foudre éclata dans son œil droit, transformant la zone de dix mille pieds autour de lui en un lac de tonnerre.
 
 Le tonnerre grondait tandis que les éclairs serpentaient sur le sol. Sur dix mille pieds, la terre résonnait de coups sourds sous la progression fulgurante de la foudre, et de nombreux gravats se soulevaient pour flotter dans la lumière électrique. Les vestiges de son pouvoir d'Ancien Dieu contournèrent son bras droit pour se rassembler frénétiquement dans sa main gauche et couler dans le trident.
 
@@ -48,7 +48,7 @@ Sa vitesse devint de plus en plus fulgurante. Dès que les innombrables runes ap
 
 « Neuf Transformations Mystérieuses! » Les yeux de Wang Lin devinrent injectés de sang alors qu'il se divisait soudainement en neuf parties avant de fusionner à nouveau en une seule. Une aura bien plus puissante que la précédente descendit sur son corps au sein de ce Royaume aux Sept Couleurs!
 
-Le cri du Vermillon résonna et la silhouette de Wang Lin devint éblouissante alors qu'il percutait la boussole. Un fracas assourdissant retentit. La boussole en rotation trembla et commença à s'effondrer. D'abord de simples fissures apparurent, puis elles se propagèrent jusqu'à recouvrir l'objet entier.
+Le cri de Suzaku résonna et la silhouette de Wang Lin devint éblouissante alors qu'il percutait la boussole. Un fracas assourdissant retentit. La boussole en rotation trembla et commença à s'effondrer. D'abord de simples fissures apparurent, puis elles se propagèrent jusqu'à recouvrir l'objet entier.
 
 Puis, dans un grand fracas, elle vola en éclats!
 
@@ -84,11 +84,11 @@ Cependant, le rugissement et la sensation que son lien avec l'objet avait été 
 
 « Même avec des blessures aussi graves, il a réussi à briser le sort de la boussole... » Pour la première fois, Cang Songzi éprouva de la crainte envers Wang Lin.
 
-La montagne où se trouvait Cang Songzi n'était pas le véritable centre du Royaume aux Sept Couleurs comme il l'avait prétendu. Plus profondément encore, à la lisière du véritable centre, se trouvait une vallée plongée dans les brumes. Le Maître Nuage-Âme y était assis, le visage pâle, n'osant pas bouger d'un pouce.
+La montagne où se trouvait Cang Songzi n'était pas le véritable centre du Royaume aux Sept Couleurs comme il l'avait prétendu. Plus profondément encore, à la lisière du véritable centre, se trouvait une vallée plongée dans les brumes. Yun Hunzi y était assis, le visage pâle, n'osant pas bouger d'un pouce.
 
 Le sens divin de Wang Lin devenait flou alors qu'il progressait rapidement. Il serra les dents pour maintenir un semblant de lucidité. Sa vision s'obscurcit progressivement tandis qu'il se précipitait dans une vallée déserte, vers une grotte abandonnée. Il eut seulement le temps d'ouvrir son espace de stockage pour laisser sortir la femme en argent et Xu Liguo avant de s'effondrer au sol, inconscient.
 
-Xu Liguo avait accompli sa tâche lorsque Wang Lin tuait Noble Argent et avait été mis de côté par ce dernier. Maintenant qu'il était là, il s'apprêtait à se vanter, mais il vit immédiatement que les yeux de Wang Lin étaient clos et que son visage était d'un gris cendré. Ses yeux ne purent s'empêcher de dévier.
+Xu Liguo avait accompli sa tâche lorsque Wang Lin tuait Qian Guizhong et avait été mis de côté par ce dernier. Maintenant qu'il était là, il s'apprêtait à se vanter, mais il vit immédiatement que les yeux de Wang Lin étaient clos et que son visage était d'un gris cendré. Ses yeux ne purent s'empêcher de dévier.
 
 Cependant, à cet instant précis, un reniflement froid retentit. Le corps de Xu Liguo trembla et il afficha aussitôt une expression de flatterie. Il savait déjà la puissance de cette femme-cadavre d'argent; il n'oserait pas l'offenser.
 

@@ -38,7 +38,7 @@ Un coup de tonnerre retentit et une fissure gigantesque apparut devant Shui Daoz
 
 Tout ce qu'elle croisait était coupé en deux! En un instant, elle atteignit la lance et la balaya impitoyablement.
 
-Rumble, rumble, rumble, rumble!
+Boum, boum, boum, boum!
 
 Alors que les grondements tonnerraient, le dernier continent sauvage sur lequel se trouvait Wang Lin s'effondra en d'innombrables fragments. Son visage était pâle et le sang jaillissait de plusieurs parties de son corps; il était couvert de sang.
 
@@ -68,7 +68,7 @@ Tandis qu'il avançait, sa main gauche forma un sceau et pointa vers le ciel. *I
 
 *Invoquer la Pluie* apparut également. Les gouttes de pluie, scintillant comme des cristaux, se transformèrent en épées de glace qui jaillirent.
 
-Simultanément, l'*Arsenal Magique* s'activa et l'*Empreinte Céleste de Scellement* vola hors de la bouche de Wang Lin. D'innombrables âmes de bataille apparurent dans une série de rugissements lugubres. Elles chargèrent Shui Daozi sous la direction du Maître du Vide et de Tian Yunzi.
+Simultanément, l'*Arsenal Magique* s'activa et l'*Empreinte Céleste de Scellement* vola hors de la bouche de Wang Lin. D'innombrables âmes de bataille apparurent dans une série de rugissements lugubres. Elles chargèrent Shui Daozi sous la direction du Xu Kongzi et de Tian Yunzi.
 
 *Effondrement de la Montagne* se manifesta également alors que Wang Lin avançait, ses pas résonnant comme des tonnerres. Des volcans illusoires entrèrent en éruption les uns après les autres, libérant une puissance destructrice capable de briser le ciel!
 
@@ -80,7 +80,7 @@ Un choc retentit, suivi d'un impact qui ébranla les cieux. Dès que Shui Daozi 
 
 Shui Daozi ferma les yeux et les rouvrit aussitôt. En un court laps de temps, il répéta ce mouvement plusieurs fois!
 
-Rumble, rumble, rumble, rumble!
+Boum, boum, boum, boum!
 
 Ce sort sans nom fit s'effondrer brusquement certaines des sept lumières, n'en laissant que trois. Elle n'était plus qu'à moins de cent pieds. Vu sa vitesse, on ne pouvait même pas qualifier cela d'instantané.
 

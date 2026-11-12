@@ -22,7 +22,7 @@ Une faille était apparue dans son cœur de dao à cause de Liu Mei. Elle aurait
 
 Pourtant, elle ignorait ce qui se produirait une fois qu'elle verrait Wang Ping. Son cœur de dao pourrait redevenir complet, ou s'effondrer totalement...
 
-Si sa vie lui appartenait, elle aurait emprunté ce chemin sans hésiter, que celui-ci fût juste ou non. Mais en tant que Sainte du Vide Brillant, la majeure partie de son existence n'appartenait pas à elle-même.
+Si sa vie lui appartenait, elle aurait emprunté ce chemin sans hésiter, que celui-ci fût juste ou non. Mais en tant que Sainte du Royaume Kun Xu, la majeure partie de son existence n'appartenait pas à elle-même.
 
 « Que tout cela... se termine ainsi... » Mu Bingmei mordit sa lèvre inférieure et se détourna lentement. Sa silhouette paraissait plus solitaire encore que celle de Wang Lin.
 

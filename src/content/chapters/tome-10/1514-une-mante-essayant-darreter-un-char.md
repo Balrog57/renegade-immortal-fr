@@ -18,7 +18,7 @@ Même les cultivateurs du troisième niveau reculèrent avec effroi. Pourtant, l
 
 « Si ce vieil homme obtenait l'une de ces bêtes, ma force augmenterait considérablement! » Le vieil homme en noir de la Rivière Invoquée, Zhou De, fixa la Bête des Limbes en se léchant les lèvres.
 
-« Cette Bête des Limbes a dévoré la tempête dorée... C'est... c'est différent des rumeurs! Si cette bête devenait mienne, alors... » Une lueur de cupidité passa dans les yeux de Maître Bord-des-Nuages.
+« Cette Bête des Limbes a dévoré la tempête dorée... C'est... c'est différent des rumeurs! Si cette bête devenait mienne, alors... » Une lueur de cupidité passa dans les yeux de Yun Fengzi.
 
 « Avec une telle bête à ses côtés, même sans être un cultivateur du troisième niveau, on suffirait à devenir célèbre! » Les autres cultivateurs des Sectes des Fantômes et des Démons contemplaient tous la Bête des Limbes. Bien qu'ils fussent horrifiés par elle, la créature exerçait également sur eux une attraction irrésistible!
 
@@ -36,7 +36,7 @@ Le vieil homme Zhou De, de la Rivière Invoquée, eut le souffle coupé. Toutes 
 
 « Bien que le corps de ce vieil homme ne soit pas faible, il ne pourrait résister à une telle force... Si cette bête agissait ainsi souvent, alors... je devrais changer de corps sans cesse... Ce n'est pas une bête féroce que j'élève, mais un ancêtre! »
 
-Les yeux de Maître Bord-des-Nuages s'écarquillèrent et il prit une profonde inspiration. Il secoua la tête avec un sourire amer en pensant: « Ce vieil homme ne peut pas se permettre d'élever cette bête. Si elle devenait joyeuse un jour et me frappait en plein combat, je... » Le regard de Maître Bord-des-Nuages se remplit de terreur à l'idée des conséquences.
+Les yeux de Yun Fengzi s'écarquillèrent et il prit une profonde inspiration. Il secoua la tête avec un sourire amer en pensant: « Ce vieil homme ne peut pas se permettre d'élever cette bête. Si elle devenait joyeuse un jour et me frappait en plein combat, je... » Le regard de Yun Fengzi se remplit de terreur à l'idée des conséquences.
 
 Non seulement ces deux-là, mais tous ceux qui avaient convoité la Bête des Limbes furent frappés de stupeur. Ce choc n'était pas moindre que lorsqu'ils virent la bête dévorer la tempête dorée.
 

@@ -20,7 +20,7 @@ Wang Lin n'avait pas le temps de trop réfléchir. Il savait seulement qu'il dev
 
 À cet instant, il s'approcha de la montagne et salua, poing dans la paume, le ciel et la terre.
 
-« Je vais emprunter cette montagne, mais je vous rembourserai certainement à l'avenir. Je suis prêt à payer n'importe quel prix! J'espère que mes frères de culture de la Secte Éternelle pourront m'aider cette fois! » Sur ces mots, Wang Lin fit un pas en avant et se posa sur la montagne.
+« Je vais emprunter cette montagne, mais je vous rembourserai certainement à l'avenir. Je suis prêt à payer n'importe quel prix! J'espère que les Daoïstes de la Secte Éternelle pourront m'aider cette fois! » Sur ces mots, Wang Lin fit un pas en avant et se posa sur la montagne.
 
 Il n'hésita pas une seconde. Dès que ses pieds touchèrent le sol, toute sa puissance de dieu ancien s'activa. En un éclair, la montagne sembla s'éveiller et une aura antique en jaillit.
 
@@ -64,7 +64,7 @@ C'était comme si Wang Lin était leur véritable maître, le souverain de tout 
 
 Le visage de l'homme en noir se décomposa. Il agita ses manches pour percuter les sphères de foudre. Un grondement tonitruant qui secoua l'univers entier retentit!
 
-« Cher collègue cultivateur Lu, ma Secte Éternelle a été bon envers vous. Autrefois, vous vouliez l'Extrême Yin, et ce vieil homme vous l'a donné. Vous avez anéanti la Secte Xian Yin et je n'ai pas poursuivi l'affaire. J'ai même fait de la Secte Gui Yuan une secte de domaine stellaire de septième rang! Même si vous avez disparu ces dix dernières années et que l'on disait vous mort, ce vieil homme a continué de traiter la Secte Gui Yuan avec égard! Vous réapparaissez et, alors que vous auriez dû être un invité de marque, voilà que vous voulez prendre la montagne de ma Secte Éternelle!! Pensez-vous être digne de défier ma Secte Éternelle?! » Le Maître de la Secte Éternelle fixait Wang Lin, ses paroles tonnant comme l'orage!
+« Daoïste Lu, ma Secte Éternelle a été bon envers vous. Autrefois, vous vouliez l'Extrême Yin, et ce vieil homme vous l'a donné. Vous avez anéanti la Secte Xian Yin et je n'ai pas poursuivi l'affaire. J'ai même fait de la Secte Gui Yuan une secte de domaine stellaire de septième rang! Même si vous avez disparu ces dix dernières années et que l'on disait vous mort, ce vieil homme a continué de traiter la Secte Gui Yuan avec égard! Vous réapparaissez et, alors que vous auriez dû être un invité de marque, voilà que vous voulez prendre la montagne de ma Secte Éternelle!! Pensez-vous être digne de défier ma Secte Éternelle?! » Le Maître de la Secte Éternelle fixait Wang Lin, ses paroles tonnant comme l'orage!
 
 Wang Lin réfléchit silencieusement en observant le Maître de la Secte. Après un long moment, il dit lentement: « Je dois une immense faveur à la Secte Éternelle et je rendrai certainement ce qui se trouve dans cette montagne à l'avenir! Pour certaines raisons, je dois l'emporter avec moi! Un jour, je reviendrai ici faire amende honorable! »
 

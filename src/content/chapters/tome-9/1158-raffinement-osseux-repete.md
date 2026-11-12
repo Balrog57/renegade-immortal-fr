@@ -1,6 +1,6 @@
 ---
 n: 1158
-title: Raffinement osseux répété
+title: Recondensation des os divins
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1158 - Repeated Bone Refinement

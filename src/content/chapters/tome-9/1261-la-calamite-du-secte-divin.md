@@ -44,7 +44,7 @@ Heureusement, le maître de la secte et l'Ancien ne s'en soucièrent guère. Apr
 
 Une fois assis, des disciples de la Secte Éternelle apportèrent le thé avant de se retirer respectueusement.
 
-Le maître de la Secte Éternelle réfléchit un instant et dit: « Ma Secte Éternelle possède effectivement quelques-unes des âmes Yin extrêmes dont parle le camarade cultivateur Lu. Cependant, la plupart d'entre elles sont dispersées et cultivées par nos sectes affiliées. Elles n'appartiennent même pas à ma Secte Éternelle; elles nous ont été confiées par la Secte Divine. Et elle n'en a pas donné qu'à nous: les autres sectes de la région de rang 8 en ont aussi reçu quelques-unes. Ils ne nous les ont données que pour que nous les cultivions en leur nom. »
+Le maître de la Secte Éternelle réfléchit un instant et dit: « Ma Secte Éternelle possède effectivement quelques-unes des âmes Yin extrêmes dont parle le Daoïste Lu. Cependant, la plupart d'entre elles sont dispersées et cultivées par nos sectes affiliées. Elles n'appartiennent même pas à ma Secte Éternelle; elles nous ont été confiées par la Secte Divine. Et elle n'en a pas donné qu'à nous: les autres sectes de la région de rang 8 en ont aussi reçu quelques-unes. Ils ne nous les ont données que pour que nous les cultivions en leur nom. »
 
 Wang Lin prit une gorgée de thé tout en dissimulant son trouble. Il sentait que plus il resterait ici, mieux ce serait pour lui, mais il craignait aussi que s'il prolongeait son séjour, quelqu'un ne finisse par remarquer quelque chose.
 
@@ -54,13 +54,13 @@ En particulier, un expert au stade du Fléau Céleste posséderait une perceptio
 
 « Quel genre d'épée est cachée sous cette montagne, et quel Ancien Dieu Royal de quelques étoiles était prêt à sacrifier sa propre étoile pour forger un tel objet?! » Wang Lin reposa sa tasse et resta silencieux.
 
-« Les âmes Yin extrêmes dont le camarade cultivateur Lu a besoin sont effectivement utiles pour la guérison, mais... » Voyant le silence de Wang Lin, le maître de la secte et le Grand Ancien échangèrent un regard. L'Ancien hésita un instant avant de dire: « Puisque le camarade cultivateur Lu en a besoin pour guérir, je pense qu'il est acceptable d'y accéder... »
+« Les âmes Yin extrêmes dont le Daoïste Lu a besoin sont effectivement utiles pour la guérison, mais... » Voyant le silence de Wang Lin, le maître de la secte et le Grand Ancien échangèrent un regard. L'Ancien hésita un instant avant de dire: « Puisque le Daoïste Lu en a besoin pour guérir, je pense qu'il est acceptable d'y accéder... »
 
 Ce n'était pas que les deux hommes doutaient des intentions de Wang Lin, mais les âmes Yin et Yang étaient toutes deux bénéfiques pour la récupération. De plus, ils pouvaient clairement voir les blessures de l'homme.
 
 Par conséquent, même s'ils nourrissaient des doutes, ceux-ci n'étaient pas trop profonds. Ils avaient vu les sorts de Wang Lin et le trouvaient très mystérieux; peut-être que des pilules ne suffiraient pas à guérir quelqu'un de son rang.
 
-Le maître de la secte réfléchit encore et dit lentement: « Qu'importe. Depuis que la Secte Divine a distribué ces âmes Yin extrêmes, il ne les a jamais réclamées, et un stock considérable s'est accumulé. Il ne devrait pas poser de problème d'en offrir quelques-unes au camarade cultivateur Lu, et la Secte Divine n'en saura rien. »
+Le maître de la secte réfléchit encore et dit lentement: « Qu'importe. Depuis que la Secte Divine a distribué ces âmes Yin extrêmes, il ne les a jamais réclamées, et un stock considérable s'est accumulé. Il ne devrait pas poser de problème d'en offrir quelques-unes au Daoïste Lu, et la Secte Divine n'en saura rien. »
 
 Par ses paroles, il signifiait à Wang Lin que sa demande n'était pas anodine: il était en train de lui céder un tribut destiné à la Secte Divine.
 
@@ -72,7 +72,7 @@ Tandis qu'il parlait, l'aura de l'Ancien Dieu pénétra son corps avec une force
 
 Le maître de la Secte Éternelle hocha la tête en souriant à Wang Lin. Sa main plongea dans le vide et en sortit un morceau de jade. Il y grava un message, puis le jade commença à brûler lorsqu'il le lança. L'objet s'envola instantanément au loin.
 
-« Camarade cultivateur Lu, attendez ici un instant. J'ai déjà ordonné que l'on vous apporte des âmes Yin extrêmes. »
+« Daoïste Lu, attendez ici un instant. J'ai déjà ordonné que l'on vous apporte des âmes Yin extrêmes. »
 
 Wang Lin acquiesça et reprit sa tasse de thé. Il attendait précisément cette réponse du maître de la secte. Même si celui-ci avait voulu qu'il parte, il aurait trouvé un moyen de rester encore un peu.
 

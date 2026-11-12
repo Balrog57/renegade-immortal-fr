@@ -64,13 +64,13 @@ Le temps passa lentement. Une heure plus tard, une silhouette sortit péniblemen
 
 Alors qu'il riait comme un possédé, sa morgue s'accentua. Il regarda la brume avec avidité, lécha ses lèvres et agita la main. Neuf morceaux de jade apparurent dans sa paume.
 
-« Restriction de l'Âme Ancienne, Restriction Temporelle! Bien que je ne puisse les briser, je peux les suspendre pendant vingt secondes! »
+« Restriction de l'Âme Ancienne, Restriction Temporelle! Bien que je ne puisse les briser, je peux les suspendre pendant vingt respirations! »
 
 Le savant agita sa main droite et les neuf jades émirent une lueur spectrale. Ils formèrent un cercle et furent projetés vers la brume rouge. Les rugissements devinrent plus violents, mais ils s'étouffèrent soudain sous l'effet de la lumière fantomatique des jades. L'homme entra dans le cercle formé par les pierres, puis sa main déchira une ouverture dans les restrictions désormais inertes. Ses yeux brillaient de cupidité alors qu'il s'apprêtait à franchir la faille qu'il venait d'ouvrir.
 
 Cependant, à cet instant précis, un cri de détresse retentit dans le monde: « Impossible... il reste une restriction active... j'avais pourtant arrêté toutes les restrictions... » Le savant recula précipitamment. Son visage était ensanglanté et son corps se décomposait à vue d'œil. En un clin d'œil, après seulement trente pieds de retraite, il ne fut plus qu'un cadavre putréfié.
 
-Le temps s'écoula et les vingt secondes passèrent en un instant. La lumière spectrale des jades se dissipa rapidement et la brume rouge montra de nouveau des signes d'activité. Bientôt, elle redevint pleinement active.
+Le temps s'écoula et les vingt respirations passèrent en un instant. La lumière spectrale des jades se dissipa rapidement et la brume rouge montra de nouveau des signes d'activité. Bientôt, elle redevint pleinement active.
 
 Un bâton d'encens se consuma et le cadavre ouvrit les yeux. Son apparence changea brusquement pour redevenir celle du savant d'âge moyen.
 

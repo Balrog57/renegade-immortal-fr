@@ -98,7 +98,7 @@ Le grondement tonitruant et la lueur cramoisie qui embrasait le ciel le firent l
 
 « Ling Er, apporte-moi encore du vin! » Le vieil homme jeta la cruche par-dessus le rempart.
 
-Derrière lui se tenait une très belle jeune fille qui se mordillait la lèvre inférieure. Lorsqu'elle était arrivée ici, Maître Yi Chen était déjà dans cet état. Son cœur se serra d'amertume alors qu'elle s'éloignait silencieusement.
+Derrière lui se tenait une très belle jeune fille qui se mordillait la lèvre inférieure. Lorsqu'elle était arrivée ici, Chen Daozi était déjà dans cet état. Son cœur se serra d'amertume alors qu'elle s'éloignait silencieusement.
 
 « Je suis désolé... Deuxième frère, troisième frère... » La voix douloureuse du vieil homme continuait de parvenir à ses oreilles.
 

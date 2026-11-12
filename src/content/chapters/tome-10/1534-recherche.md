@@ -36,7 +36,7 @@ Le nombre massif de morts avait causé l'effondrement de la plupart des sectes d
 
 Les quelques milliers de survivants de la Mer Yun assumèrent la charge d'éduquer les générations futures. Ils rassemblèrent les diverses sectes d'autrefois pour former les dix futures sectes de la Mer Yun!
 
-Heureusement, les Sectes Divine, Démoniaque et Fantôme n'avaient pas révélé l'essentiel de leur puissance, mais elles parvenaient à peine à maintenir la situation actuelle dans la Mer Yun.
+Heureusement, les Sectes Divine, Démoniaque et Gui n'avaient pas révélé l'essentiel de leur puissance, mais elles parvenaient à peine à maintenir la situation actuelle dans la Mer Yun.
 
 En raison de l'instabilité causée par cette bataille, toute la Mer Yun était devenue erratique. Des failles spatiales étaient apparues partout, rendant tout vol à travers la Mer Yun extrêmement périlleux.
 
@@ -44,13 +44,13 @@ La Secte Démon avait envoyé près de 70 % de ses cultivateurs pour stationner 
 
 Sans la Formation de Scellement du Royaume, une fois la tempête passée, l'endroit, malgré ses vortex et ses trous noirs, constituait désormais la porte d'entrée vers le Royaume Intérieur!
 
-La Secte Fantôme avait également envoyé une grande quantité de cultivateurs pour se poster ici. Quant à la Secte Divine, sous la direction de Mu Bingmei, elle avait mis en place des formations puissantes et établi un blocus en prévision de la seconde bataille qui allait bientôt éclater.
+La Secte Gui avait également envoyé une grande quantité de cultivateurs pour se poster ici. Quant à la Secte Divine, sous la direction de Mu Bingmei, elle avait mis en place des formations puissantes et établi un blocus en prévision de la seconde bataille qui allait bientôt éclater.
 
 Les cultivateurs de la Rivière Invoquée avaient laissé une partie de leur groupe stationnée ici, à l'extérieur du vortex de brume, avec la belle femme d'âge mûr comme chef, avant de s'y installer.
 
 Les cultivateurs de Luotian avaient également laissé une partie des leurs. Le reste était retourné chez lui pour se préparer au second affrontement!
 
-Le Système Stellaire de Vide Brillant, qui n'était jamais apparu lors de cette bataille, envoya 10 000 cultivateurs une fois le combat terminé. Ils étaient menés par une femme vêtue d'une robe bleu aquatique et s'établirent à l'extérieur du vortex de brume.
+Le Système Stellaire de Kun Xu, qui n'était jamais apparu lors de cette bataille, envoya 10 000 cultivateurs une fois le combat terminé. Ils étaient menés par une femme vêtue d'une robe bleu aquatique et s'établirent à l'extérieur du vortex de brume.
 
 Cette femme était très belle mais aussi extrêmement froide. La froideur de son regard donnait à tous les cultivateurs gravitant autour du vortex l'impression de faire face à un iceberg.
 
@@ -60,7 +60,7 @@ La capacité du Grand Maître Yun Luo à déployer ses troupes et à pratiquer l
 
 Très peu de grandes guerres avaient eu lieu au sein du Royaume Intérieur. Au fil des dizaines de milliers d'années, ils avaient lentement perdu l'habitude de ce type de combat. Cette bataille fut une leçon, mais elle permit aussi à Maître Hong Shan et aux autres de comprendre que, même avec un niveau de culture élevé, une armée sans chef n'était qu'un tas de sable!
 
-La femme à la robe bleu aquatique avait été amenée ici par Maître Nan Yunzi du Système Stellaire de Vide Brillant. Elle était non seulement la meneuse des cultivateurs de Vide Brillant, mais aussi le commandant en chef de tous les cultivateurs du Royaume Intérieur présents sur place!
+La femme à la robe bleu aquatique avait été amenée ici par Maître Nan Yunzi du Système Stellaire de Kun Xu. Elle était non seulement la meneuse des cultivateurs de Kun Xu, mais aussi le commandant en chef de tous les cultivateurs du Royaume Intérieur présents sur place!
 
 Après cette bataille, le nom de « Seigneur du Royaume Scellé Wang Lin » s'était propagé dans tout le Royaume Intérieur. Presque toutes les régions connaissaient les exploits du Seigneur du Royaume Scellé lors de ce combat!
 
@@ -118,6 +118,6 @@ Les bêtes-moustiques cherchaient également Wang Lin. Elles étaient légion et
 
 Tout cultivateur croisant ce groupe de moustiques s'arrêtait pour leur rendre hommage.
 
-Dans le Système Stellaire de Vide Brillant, ou celui de l'Alliance, il existait une zone chaotique parsemée de débris rocheux dans la région septentrionale. À cet instant, un morceau de gravier de la taille d'un poing flottait là.
+Dans le Système Stellaire de Kun Xu, ou celui de l'Alliance, il existait une zone chaotique parsemée de débris rocheux dans la région septentrionale. À cet instant, un morceau de gravier de la taille d'un poing flottait là.
 
 Ce fragment de roche était criblé de trous communiquant avec l'intérieur… La Bête des Limbes qui s'était transformée en graine s'y cachait. Terrifiée par la tempête destructrice, elle avait perdu tout courage. Fidèle à sa nature, elle était prête à rester tapie ici jusqu'à sa mort. Le monde extérieur était trop terrifiant, trop terrifiant...

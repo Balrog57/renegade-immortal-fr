@@ -98,7 +98,7 @@ Ces âmes mortes ne pouvaient être raffinées en pilules, car l'alchimie exigea
 
 Une vieille femme était assise au sommet de l'un des huit crânes. Elle n'était qu'un amas d'os, aussi hideuse qu'un spectre en colère. Si un mortel la voyait, il en mourrait de terreur. Elle ouvrit les yeux, et son regard dégageait une intention sinistre.
 
-— Compagnon cultivateur Shi, il ne vous reste que quatre de vos dix-neuf disciples. Pourquoi continuer à gaspiller leurs vies? Si vous me remettez cet objet, cette vieille femme s'en ira immédiatement.
+— Daoïste Shi, il ne vous reste que quatre de vos dix-neuf disciples. Pourquoi continuer à gaspiller leurs vies? Si vous me remettez cet objet, cette vieille femme s'en ira immédiatement.
 
 Une voix lugubre résonna dans toute la vallée, pénétrant clairement les oreilles des cinq personnes. Les visages des quatre jeunes devinrent livides alors qu'ils regardaient silencieusement leur maître.
 
@@ -110,6 +110,6 @@ Le visage de Shi Luoxing se crispa alors qu'il ouvrait lentement les yeux. Son r
 
 Toutefois, avant qu'il ne puisse dissiper ce venin mystérieux, il fut intercepté par cette vieille femme de la Secte Wu Du. Elle avait utilisé la formation de sa secte pour le piéger dans la vallée. Il avait déjà envoyé un message secret à sa propre secte, mais il faudrait du temps avant que les renforts n'arrivent.
 
-— Compagnon cultivateur Shi, même si votre Secte Hua Qing envoie des renforts, cela sera inutile! D'après ce que cette vieille femme sait, au sein de la région de rang 6, outre ma Secte Wu Du, les sectes du Pic Spirituel, des Sorts Daoïstes, de l'Évasion et de la Collection Démoniaque sont déjà sur les talons et convoitent ce que vous détenez!
+— Daoïste Shi, même si votre Secte Hua Qing envoie des renforts, cela sera inutile! D'après ce que cette vieille femme sait, au sein de la région de rang 6, outre ma Secte Wu Du, les sectes Yue Hun, Dao Fa, Dun Xing et Mo Cong sont déjà sur les talons et convoitent ce que vous détenez!
 
-— Le jade de la Secte Brise-Ciel de la région de rang 8 et la recette légendaire d'une pilule du Vide du Nirvana!
+— Le jade de la Secte Po Tian de la région de rang 8 et la recette légendaire d'une pilule du Vide du Nirvana!

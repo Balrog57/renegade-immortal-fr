@@ -1,6 +1,6 @@
 ---
 n: 1491
-title: Appeler un compagnon cultivateur
+title: Appeler un Daoïste
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: Chapter 1491 - Call One Fellow Cultivator
@@ -62,9 +62,9 @@ La terreur se lut dans ses yeux et, tout comme Maître Yan Leizi, il contempla W
 
 « Atteindre un tel niveau de culture en seulement quelques centaines d'années... aurait-il pu comprendre tous les parchemins de la famille Zhan? Heureusement, notre haine n'est pas profonde et je lui avais donné tous les parchemins à l'époque. Sinon, je crains que même Maître Lu Fu ne puisse l'arrêter aujourd'hui! Il... il est devenu si puissant!! »
 
-Dieu de Sang ressentait une terreur encore plus vive. Son cuir chevelu picotait et il était presque terrifié à en perdre la raison! Il savait qu'il avait trop offensé Wang Lin. En voyant l'homme de ses propres yeux et en subissant le choc du rugissement, il ne put s'empêcher de trembler.
+Xue Shenzi ressentait une terreur encore plus vive. Son cuir chevelu picotait et il était presque terrifié à en perdre la raison! Il savait qu'il avait trop offensé Wang Lin. En voyant l'homme de ses propres yeux et en subissant le choc du rugissement, il ne put s'empêcher de trembler.
 
-En tant qu'ancêtre de la famille Yao, en tant que Dieu de Sang de Luotian, il était extrêmement hautain. Il avait rarement connu l'état de tremblement, mais à présent, il avait véritablement peur!
+En tant qu'ancêtre de la famille Yao, en tant que Xue Shenzi de Luotian, il était extrêmement hautain. Il avait rarement connu l'état de tremblement, mais à présent, il avait véritablement peur!
 
 La force de Wang Lin lui inspirait une crainte telle qu'il se sentait impuissant. En voyant l'expression de Maître Lu Fu vaciller, le désespoir l'envahit. Pourtant, une infime lueur d'espoir subsistait dans son cœur:
 
@@ -72,39 +72,39 @@ La force de Wang Lin lui inspirait une crainte telle qu'il se sentait impuissant
 
 Alors que le rugissement s'estompait, Wang Lin fit un pas en avant. À chaque foulée, le tonnerre résonnait de nouveau, créant une pression écrasante sur le vortex!
 
-Maître Lu Fu prit une profonde inspiration, mais il ne se leva pas. Il fixa Wang Lin et déclara lentement: « Depuis notre rencontre sur la planète Suzaku, le niveau de culture de ce compagnon cultivateur a considérablement augmenté. Ce vieil homme ne peut qu'être impressionné! »
+Maître Lu Fu prit une profonde inspiration, mais il ne se leva pas. Il fixa Wang Lin et déclara lentement: « Depuis notre rencontre sur la planète Suzaku, le niveau de culture de ce Daoïste a considérablement augmenté. Ce vieil homme ne peut qu'être impressionné! »
 
 Sa voix émana du vortex.
 
-« La bataille sur la planète Suzaku semble dater d'hier. L'épée du compagnon Lu Fu est toujours aussi fulgurante! » Wang Lin ne s'arrêta pas et continua sa marche avec calme. Après avoir parlé, il regarda Maître Yan Leizi et joignit les mains en signe de salut.
+« La bataille sur la planète Suzaku semble dater d'hier. L'épée du Daoïste Lu Fu est toujours aussi fulgurante! » Wang Lin ne s'arrêta pas et continua sa marche avec calme. Après avoir parlé, il regarda Maître Yan Leizi et joignit les mains en signe de salut.
 
-« Compagnon Yan Leizi, comment allez-vous? Je suis de passage à Luotian pour régler quelques vieux comptes, j'espère que vous pourrez me pardonner. » Le Senior d'autrefois était devenu un compagnon cultivateur. Ce n'était pas par volonté de Wang Lin, mais parce que l'actuel Maître Yan Leizi ne pouvait supporter qu'on l'appelle encore « Senior ».
+« Daoïste Yan Leizi, comment allez-vous? Je suis de passage à Luotian pour régler quelques vieux comptes, j'espère que vous pourrez me pardonner. » Le Senior d'autrefois était devenu un Daoïste. Ce n'était pas par volonté de Wang Lin, mais parce que l'actuel Maître Yan Leizi ne pouvait supporter qu'on l'appelle encore « Senior ».
 
-Bien que les mots de Wang Lin fussent « compagnon cultivateur », Maître Yan Leizi ressentit une pointe de gloire mêlée d'amertume. Il se leva prestement et rendit le salut.
+Bien que les mots de Wang Lin fussent « Daoïste », Maître Yan Leizi ressentit une pointe de gloire mêlée d'amertume. Il se leva prestement et rendit le salut.
 
 « Luotian est la demeure du Senior, il n'est nul besoin de parler de pardon. »
 
 Wang Lin esquissa un léger sourire et continua de progresser vers le vortex.
 
-« Sur la planète Suzaku, nous avions fait équipe et entretenions une certaine camaraderie. Normalement, je devrais être heureux de vous voir, compagnon cultivateur, mais pourquoi avez-vous tué onze de ceux qui aidaient à l'installation de la formation? » Les yeux de Maître Lu Fu se plissèrent, une lueur glaciale les traversant.
+« Sur la planète Suzaku, nous avions fait équipe et entretenions une certaine camaraderie. Normalement, je devrais être heureux de vous voir, Daoïste, mais pourquoi avez-vous tué onze de ceux qui aidaient à l'installation de la formation? » Les yeux de Maître Lu Fu se plissèrent, une lueur glaciale les traversant.
 
-L'expression de Wang Lin resta neutre. Il leva la main pour désigner Dieu de Sang, aux côtés de Maître Lu Fu, et dit lentement: « J'ai naturellement mes propres raisons pour les avoir tués. Il n'y a pas de querelle entre nous, et je n'ai aucune intention de vous combattre. Je ne veux que cette personne! »
+L'expression de Wang Lin resta neutre. Il leva la main pour désigner Xue Shenzi, aux côtés de Maître Lu Fu, et dit lentement: « J'ai naturellement mes propres raisons pour les avoir tués. Il n'y a pas de querelle entre nous, et je n'ai aucune intention de vous combattre. Je ne veux que cette personne! »
 
-L'esprit de Dieu de Sang vacilla et tout le sang quitta son visage. C'était comme si toute sa vitalité avait été tranchée par le simple geste du doigt de Wang Lin.
+L'esprit de Xue Shenzi vacilla et tout le sang quitta son visage. C'était comme si toute sa vitalité avait été tranchée par le simple geste du doigt de Wang Lin.
 
 Wang Lin s'arrêta à mille pieds du vortex. L'homme devant lui était l'ancêtre de Luotian, une force majeure dans la lutte contre le Royaume Extérieur. Sur la planète Suzaku, ils avaient collaboré un court instant. Bien que Wang Lin ne se soucie guère de son rang, il entendait lui témoigner le respect dû à un cultivateur du troisième pas.
 
 L'expression de Maître Lu Fu devint sombre et une hésitation perla dans ses yeux.
 
-« Maître Lu Fu, Senior!! Seul Junior peut vous emmener dans cet endroit... » Le visage de Dieu de Sang était livide, empreint de désespoir. Mais alors qu'il parlait, Maître Lu Fu l'interrompit.
+« Maître Lu Fu, Senior!! Seul Junior peut vous emmener dans cet endroit... » Le visage de Xue Shenzi était livide, empreint de désespoir. Mais alors qu'il parlait, Maître Lu Fu l'interrompit.
 
 « Ce vieil homme prendra sa propre décision! »
 
-Maître Lu Fu se leva et joignit les mains vers Wang Lin. Il dit lentement: « Compagnon Wang Lin, pourriez-vous accorder une faveur à ce vieil homme et laisser cet homme partir? Ce vieil homme vous en sera redevable! »
+Maître Lu Fu se leva et joignit les mains vers Wang Lin. Il dit lentement: « Daoïste Wang Lin, pourriez-vous accorder une faveur à ce vieil homme et laisser cet homme partir? Ce vieil homme vous en sera redevable! »
 
 Wang Lin regarda Maître Lu Fu. Un instant plus tard, il secoua la tête.
 
-« Cette personne m'est d'une grande utilité. J'espère que le compagnon ne me bloquera pas! »
+« Cette personne m'est d'une grande utilité. J'espère que le Daoïste ne me bloquera pas! »
 
 Le visage de Maître Lu Fu s'assombrit. Bien qu'il fût prudent, l'arrogance d'un cultivateur du troisième pas était gravée dans ses os. Durant des dizaines de milliers d'années, il avait agi selon ses désirs à Luotian, et personne n'avait jamais osé le contredire. Il estimait déjà s'abaisser en proposant cela, et même faire un pas en arrière en devenant redevable envers Wang Lin.
 

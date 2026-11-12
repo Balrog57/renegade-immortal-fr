@@ -18,9 +18,9 @@ L'estimable Ling Dong et Zhou Jin retournèrent se tenir derrière Wang Lin. L'e
 
 Les pensées de l'estimable Ling Dong étaient les plus simples. Il avait été totalement affiné par Wang Lin, et le sceau était profondément ancré en lui. Il regarda calmement devant lui.
 
-« Zhou De, du Système Stellaire de la Rivière Invoquée, salue le Seigneur du Royaume Scellé! » L'homme âgé en noir sourit amèrement en joignant les mains devant Wang Lin.
+« Zhou De, du Système Stellaire Zhao He, salue le Seigneur du Royaume Scellé! » L'homme âgé en noir sourit amèrement en joignant les mains devant Wang Lin.
 
-« Bord-des-Nuages, du Système Stellaire de la Rivière Invoquée, salue le Seigneur du Royaume Scellé. Ce qui s'est passé plus tôt était un malentendu, j'espère que le Seigneur du Royaume Scellé ne nous en tiendra pas rigueur. » L'homme d'âge moyen sourit amèrement en joignant les mains.
+« Yun Fengzi, du Système Stellaire Zhao He, salue le Seigneur du Royaume Scellé. Ce qui s'est passé plus tôt était un malentendu, j'espère que le Seigneur du Royaume Scellé ne nous en tiendra pas rigueur. » L'homme d'âge moyen sourit amèrement en joignant les mains.
 
 « Ce vieil homme est Maître Hong Shan. J'avais conclu un accord avec le Seigneur du Royaume Scellé. Maintenant que vous avez tué cet esclave et sauvé la Mer Yun, vous êtes qualifié pour être le Seigneur du Royaume Scellé de cette génération! Cependant, l'invasion du Royaume Extérieur est imminente, et il sera difficile de résister avec nos seules forces, mais nous devons nous battre! Vous avez deux cultivateurs du troisième pas à vos côtés ainsi que votre propre force, mais cela reste insuffisant! »
 
@@ -28,7 +28,7 @@ Les pensées de l'estimable Ling Dong étaient les plus simples. Il avait été 
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 
-L'homme âgé de la Secte Shi Yin déclara lentement: « Ce vieil homme est Maître Nan Yunzi. À vrai dire, vous êtes vous aussi un cultivateur du Vide Brillant. J'ai appris par le camarade cultivateur Hong Shan que vous vous étiez rendu dans le Royaume Extérieur. Quelle est la puissance du Royaume Extérieur? »
+L'homme âgé de la Secte Shi Yin déclara lentement: « Ce vieil homme est Maître Nan Yunzi. À vrai dire, vous êtes vous aussi un cultivateur de Kun Xu. J'ai appris par le camarade cultivateur Hong Shan que vous vous étiez rendu dans le Royaume Extérieur. Quelle est la puissance du Royaume Extérieur? »
 
 Le temps passa lentement et les cultivateurs de la Secte Divine se dispersèrent progressivement. La Mer Yun reprit ses intenses préparatifs de guerre.
 
@@ -38,7 +38,7 @@ Maître Hong Shan et Maître Nan Yunzi restèrent silencieux après avoir entend
 
 « Cette Bête des Limbes semble un peu différente de mes souvenirs. Elle a dévoré la tempête dorée, vous devriez donc l'observer de plus près. Cette cloche dorée avait manifestement été envoyée par le Royaume Céleste Antique pour cette bataille, mais elle a été détruite par le Shui Daozi! »
 
-« De plus, il y a les Royaumes aux Sept Couleurs mentionnés par Maître Lu Fu. Puisque vous en faites vous-même la demande, vous pouvez vous occuper immédiatement de celui qui se trouve au siège de l'Alliance dans le Système Stellaire du Vide Brillant. Quant aux autres, nous les rechercherons méticuleusement pour les détruire! » ajouta Maître Nan Yunzi d'un ton grave.
+« De plus, il y a les Royaumes aux Sept Couleurs mentionnés par Maître Lu Fu. Puisque vous en faites vous-même la demande, vous pouvez vous occuper immédiatement de celui qui se trouve au siège de l'Alliance dans le Système Stellaire Kun Xu. Quant aux autres, nous les rechercherons méticuleusement pour les détruire! » ajouta Maître Nan Yunzi d'un ton grave.
 
 « Quant à Tai Aluo, la moitié de votre sceau peut être levée. Une fois la guerre contre le Royaume Extérieur terminée, l'autre moitié pourra l'être! » Le regard de Maître Hong Shan se posa sur l'homme pieds nus.
 
@@ -58,27 +58,27 @@ La brume dissipée réapparut progressivement, mais elle n'était plus aussi den
 
 Wang Lin apparut parmi les étoiles et marcha silencieusement vers l'avant. Avoir tué le Shui Daozi avait apaisé une grande partie de son cœur. Désormais, il allait rentrer chez lui!
 
-En regardant vers sa terre natale, le visage de Wang Lin s'adoucit progressivement. Ni Luotian ni la Mer Yun n'étaient sa maison. Il n'avait qu'un seul foyer, et c'était le Système Stellaire du Vide Brillant!
+En regardant vers sa terre natale, le visage de Wang Lin s'adoucit progressivement. Ni Luotian ni la Mer Yun n'étaient sa maison. Il n'avait qu'un seul foyer, et c'était le Système Stellaire Kun Xu!
 
-« Senior Frère Qing Shui, je n'avais pas la force de vous sauver autrefois, mais aujourd'hui, me voilà! » Wang Lin fit un pas en avant et chargea vers le Système Stellaire du Vide Brillant!
+« Senior Frère Qing Shui, je n'avais pas la force de vous sauver autrefois, mais aujourd'hui, me voilà! » Wang Lin fit un pas en avant et chargea vers le Système Stellaire Kun Xu!
 
 Cependant, à cet instant précis, un changement fracassant se produisit dans le Système Stellaire de la Mer Yun!
 
-À l'extérieur de la Formation de Scellement du Royaume, plusieurs rayons d'énergie d'épée fulgurants foncèrent vers le domaine stellaire occupé par les membres restants du Clan Dévorant la Lune! Avant que l'énergie de l'épée ne les atteigne, un grondement tonitruant résonna, entendu par toutes les branches du Clan Dévorant la Lune.
+À l'extérieur de la Formation de Scellement du Royaume, plusieurs rayons d'énergie d'épée fulgurants foncèrent vers le domaine stellaire occupé par les membres restants du Clan Yue Shi! Avant que l'énergie de l'épée ne les atteigne, un grondement tonitruant résonna, entendu par toutes les branches du Clan Yue Shi.
 
 Lorsqu'ils levèrent la tête, l'énergie de l'épée explosa, enveloppant toute la zone. Une voix antique résonna à travers le monde:
 
-« Le Conseil Souverain convoque tous les membres du Clan Dévorant la Lune, en y engageant toutes leurs forces, pour se rassembler dans la partie orientale de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
+« Le Conseil Souverain convoque tous les membres du Clan Yue Shi, en y engageant toutes leurs forces, pour se rassembler dans la partie orientale de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
 
-Tous les cultivateurs du Clan Dévorant la Lune furent ébranlés. Après un instant de silence, un rugissement parcourut tout le clan. Ils avaient attendu ce jour depuis bien trop longtemps!
+Tous les cultivateurs du Clan Yue Shi furent ébranlés. Après un instant de silence, un rugissement parcourut tout le clan. Ils avaient attendu ce jour depuis bien trop longtemps!
 
-Système Stellaire Antique, Clan de l'Âme Céleste. À cet instant, un rayon d'énergie d'épée similaire arriva et la voix antique résonna:
+Système Stellaire Antique, Clan Hun Tian. À cet instant, un rayon d'énergie d'épée similaire arriva et la voix antique résonna:
 
-« Le Conseil Souverain convoque le Clan de l'Âme Céleste pour se rassembler à l'extérieur de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
+« Le Conseil Souverain convoque le Clan Hun Tian pour se rassembler à l'extérieur de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
 
 « Le Conseil Souverain convoque le Clan Tai Yun pour la première bataille contre le Royaume Intérieur! »
 
-« Le Conseil Souverain convoque les vestiges du Clan Huo Que pour se rassembler dans la partie est de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
+« Le Conseil Souverain convoque les vestiges du Clan Huo Shi pour se rassembler dans la partie est de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
 
 « Le Conseil Souverain convoque le Clan Long Mo pour se rassembler dans la partie est de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
 
@@ -112,7 +112,7 @@ Ces messages résonnèrent dans tout le Système Stellaire Antique, stimulant un
 
 Pillez tout ce que vous désirez, tout ce dont vous avez besoin, et prenez toutes les cultivatrices que vous convoitez pour en faire vos fours de culture! Pillez! Pillez! Pillez!
 
-« Il existe un individu parmi les fourmis du Royaume Intérieur nommé Wang Lin. Par des moyens vils, il a massacré le Clan Shan Lei, détruit une branche du Clan Dévorant la Lune et tué d'innombrables cultivateurs du Royaume Extérieur! »
+« Il existe un individu parmi les fourmis du Royaume Intérieur nommé Wang Lin. Par des moyens vils, il a massacré le Clan Shan Lei, détruit une branche du Clan Yue Shi et tué d'innombrables cultivateurs du Royaume Extérieur! »
 
 « Lorsque le classement du Système Stellaire Antique sera ouvert, la liste des cibles à abattre du Royaume Extérieur le sera aussi, et cet homme en occupe provisoirement la tête. Quiconque tuera Wang Lin recevra le crédit pour avoir éliminé dix mille cultivateurs! »
 

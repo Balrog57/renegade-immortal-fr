@@ -40,7 +40,7 @@ Les cultivateurs du Clan Shan Lei en charge des lieux froncèrent les sourcils, 
 
 « Laisse tomber. Je comptais justement le persuader de ne pas entrer dans les 7 Millions de Mondes. Il y avait une intention meurtrière manifeste dans les yeux du Maître Zhou Tian. Cet enfant ne pouvait pas la voir, mais nous, nous l'avons perçue clairement. Une fois qu'il y sera entré, je crains qu'il ne soit confronté à une crise de vie ou de mort! »
 
-« C'est dommage pour la requête du Compagnon Cultivateur Hao Ran. D'après ses paroles, il semblait beaucoup apprécier cet homme. »
+« C'est dommage pour la requête du Daoïste Hao Ran. D'après ses paroles, il semblait beaucoup apprécier cet homme. »
 
 « Cette affaire ne nous concerne pas. Que sa vie ou sa mort soit décidée par le destin! »
 

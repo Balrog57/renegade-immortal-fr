@@ -58,13 +58,13 @@ En foulant ce désert noir, on pouvait sentir les traces de poison mêlées à l
 
 Devant Wang Lin se trouvait un ravin. Vu d'en haut, il était d'un noir absolu, et les vagues de chaleur faisaient flotter ses cheveux blancs au gré du vent.
 
-Wang Lin joignit les mains et dit: « Wang Lin salue les deux Anciens du Couple Céleste Nuageux! »
+Wang Lin joignit les mains et dit: « Wang Lin salue les deux Seniors du Couple Céleste Nuageux! »
 
 Dès que sa voix retentit, un rayon d'énergie d'épée jaillit du ravin et fonça vers lui. Wang Lin ne recula pas; il sourit en observant l'énergie s'approcher.
 
 L'énergie d'épée se rapprocha et prit forme humaine. L'individu ressemblait à un homme d'âge mûr, très beau mais au teint un peu pâle. Lorsqu'il regarda Wang Lin, il afficha lui aussi un sourire.
 
-« Wang Lin, les deux Anciens savaient déjà que tu viendrais. Viens avec moi. » Cet homme était Zhou Yi!
+« Wang Lin, les deux Seniors savaient déjà que tu viendrais. Viens avec moi. » Cet homme était Zhou Yi!
 
 Il n'était pas nécessaire de discuter de leur relation. Dans un sourire partagé, ils descendirent tous deux dans le ravin.
 
@@ -84,7 +84,7 @@ Une petite rivière coulait vers une destination inconnue, bordée de plusieurs 
 
 Wang Wei était assis au bord de l'eau, souriant à son amante, Hu Juan, qui se trouvait de l'autre côté. Cette dernière se comportait comme une enfant, les pieds dans la rivière, faisant parfois jaillir des éclaboussures.
 
-Une fois que Wang Lin et Zhou Yi eurent franchi la barrière, Wang Lin joignit les mains et dit respectueusement: « Le junior Wang Lin salue les deux Anciens. »
+Une fois que Wang Lin et Zhou Yi eurent franchi la barrière, Wang Lin joignit les mains et dit respectueusement: « Le junior Wang Lin salue les deux Seniors. »
 
 Wang Wei regarda Wang Lin en souriant: « Dis-moi pourquoi tu m'as demandé de tendre une embuscade à Lie Yunzi; sinon, je ne te laisserai pas partir si facilement! »
 

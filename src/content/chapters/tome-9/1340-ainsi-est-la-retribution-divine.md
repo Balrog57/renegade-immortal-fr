@@ -90,7 +90,7 @@ Le grondement assourdissant secoua les cieux, faisant trembler le monde et dispe
 
 Pourtant, il ne désespéra pas. Son regard restait indomptable. Ses mains formèrent un sceau et, dans un rugissement, il déploya une immense barrière de protection pour se préparer à la seconde rétribution divine!
 
-Tandis que Wang Lin observait la scène, son esprit vacillait. Il ne parvint pas à se calmer pendant un long moment. À ce moment-là, un jeune homme en noir, l'un des nouveaux venus, demanda: « Compagnon cultivateur, pourquoi ne pas le tuer directement avec une seule rétribution divine au lieu d'augmenter progressivement sa puissance? »
+Tandis que Wang Lin observait la scène, son esprit vacillait. Il ne parvint pas à se calmer pendant un long moment. À ce moment-là, un jeune homme en noir, l'un des nouveaux venus, demanda: « Daoïstes, pourquoi ne pas le tuer directement avec une seule rétribution divine au lieu d'augmenter progressivement sa puissance? »
 
 À l'instant où cette question fut posée, les yeux de Wang Lin brillèrent d'une lueur étrange. La rétribution qu'il avait connue était identique: le premier coup n'était souvent pas le plus fort, et la puissance croissait graduellement!
 

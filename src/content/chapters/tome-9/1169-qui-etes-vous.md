@@ -104,7 +104,7 @@ L'endroit était très vivant et les bruits de marchandage emplissaient la ville
 
 Cela faisait très longtemps que Wang Lin n'avait pas visité un marché de ce genre. En traversant la cité, son regard se posa sur un étal non loin de là.
 
-« Compagnon Cultivateur, je n'ai pas autant de jades célestes. Et si j'ajoutais une pilule? » Un vieil homme était assis derrière l'étal. Il affichait une expression sombre en faisant face à un homme d'âge moyen.
+« Daoïste, je n'ai pas autant de jades célestes. Et si j'ajoutais une pilule? » Un vieil homme était assis derrière l'étal. Il affichait une expression sombre en faisant face à un homme d'âge moyen.
 
 Ces mots provenaient de l'homme d'âge moyen.
 
@@ -118,15 +118,15 @@ Dans la Mer Yun, les cultivateurs pouvaient librement échanger des jades céles
 
 Trois cultivateurs suivirent la voix. L'homme en tête avait environ trente ans. Il portait une chemise verte et était plutôt beau. D'une silhouette svelte, ses yeux brillaient d'étonnement alors qu'il s'approchait. Les deux compagnons qui le suivaient étaient également très séduisants. Leurs cultures fluctuaient, révélant qu'ils n'étaient pas de faibles combattants.
 
-Li Qianmei fronça légèrement les sourcils mais se détendit rapidement en disant: « Ainsi, c'est le Compagnon Cultivateur Yang. »
+Li Qianmei fronça légèrement les sourcils mais se détendit rapidement en disant: « Ainsi, c'est le Daoïste Yang. »
 
 L'homme en vert s'approcha et, sans même accorder un regard à Wang Lin, sourit à Qianmei. « Depuis notre séparation il y a quelques mois, je n'ai cessé de penser à toi. Le ciel a été touché et me permet de te retrouver ici. Qianmei, cet endroit est bruyant; que dirais-tu d'aller dans la ville intérieure? » La voix de l'homme était douce et empreinte d'un certain charme.
 
-« Merci pour votre gentillesse, Compagnon Cultivateur Yang, mais je vous prie de m'excuser. » La voix de Li Qianmei était calme, mais glaciale.
+« Merci pour votre gentillesse, Daoïste Yang, mais je vous prie de m'excuser. » La voix de Li Qianmei était calme, mais glaciale.
 
 « Qianmei, tu... » L'homme en vert fit quelques pas de plus, s'apprêtant à poursuivre.
 
-« Compagnon Cultivateur Yang, surveillez votre langage! "Qianmei" n'est pas un nom que vous pouvez prononcer ainsi! » Li Qianmei fronça les sourcils, manifestant sa colère. Ce Yang Yu était l'une des personnes qu'elle avait interrogées, et elle n'était pas satisfaite de ses réponses.
+« Daoïste Yang, surveillez votre langage! "Qianmei" n'est pas un nom que vous pouvez prononcer ainsi! » Li Qianmei fronça les sourcils, manifestant sa colère. Ce Yang Yu était l'une des personnes qu'elle avait interrogées, et elle n'était pas satisfaite de ses réponses.
 
 Yang Yu haussa les sourcils. Il avait naturellement remarqué la présence de Wang Lin aux côtés de Li Qianmei. S'il n'osait pas provoquer Li Qianmei, il se moquait éperdument du reste du monde.
 

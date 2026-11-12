@@ -52,9 +52,9 @@ Il avait franchi le sommet du stade Purificateur du Nirvana pour entrer dans le 
 
 L'aura à l'intérieur de son corps se propagea soudainement, devenant plus forte et plus sauvage. Tout cela se produisit en un éclair: Wang Lin franchit le stade initial du Briseur du Nirvana pour entrer directement dans le stade intermédiaire!
 
-Si cette faille spatiale n'avait pas été si étrange qu'elle empêchait la descente de la rétribution divine, celle-ci serait apparue instantanément. Et elle aurait été d'innombrables fois plus puissante qu'auparavant!
+Si cette faille spatiale n'avait pas été si étrange qu'elle empêchait la descente de la Tribulation Céleste, celle-ci serait apparue instantanément. Et elle aurait été d'innombrables fois plus puissante qu'auparavant!
 
-Ce serait là la plus terrible rétribution divine qu'il ait jamais eu à affronter!
+Ce serait là la plus terrible Tribulation Céleste qu'il ait jamais eu à affronter!
 
 Au moment où sa culture atteignit le stade intermédiaire du Briseur du Nirvana, une lueur de froideur passa dans les yeux de Wang Lin. Il fit un pas en avant et, à cet instant, le vortex d'énergie originelle autour de lui balaya ses environs avec un impact indescriptible.
 
@@ -118,4 +118,4 @@ Pourtant, à cet instant précis, un sifflement aigu retentit dans le vide. Neuf
 
 Ce n'était pas une entité solide, mais une illusion. Devant cette ombre se tenait une femme vêtue de noir, arborant un tatouage de scorpion sur le visage. Elle avançait d'un regard sombre, du sang coulant du coin de sa bouche. Elle fixait Wang Lin.
 
-« Je suis Sang Pourpre, sous les ordres de l'ancienne Concubine Impériale. Qui es-tu? »
+« Je suis Zi Xue, sous les ordres de l'ancienne Concubine Impériale. Qui es-tu? »

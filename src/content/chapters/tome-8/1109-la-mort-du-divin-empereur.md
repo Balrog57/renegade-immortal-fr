@@ -20,9 +20,9 @@ Une aura de mort émanait de l'ancien Divin Empereur. Wang Lin n'avait même pas
 
 L'ancien Divin Empereur leva la tête. Une lueur subsistait dans ses yeux qui ne crachaient plus que du sang noir.
 
-« Ton Senior Frère, Qing Shui, est bel et bien au siège de l'Alliance Xiu Zhen. Il y a quelques années, l'activation de la grande formation de l'Alliance Xiu Zhen était directement liée à lui... Il n'est pas mort... mais... il est devenu fou! »
+« Ton Senior frère Qing Shui, est bel et bien au siège de l'Alliance Xiu Zhen. Il y a quelques années, l'activation de la grande formation de l'Alliance Xiu Zhen était directement liée à lui... Il n'est pas mort... mais... il est devenu fou! »
 
-« L'Alliance Xiu Zhen cache un secret capable de faire trembler les cieux depuis d'innombrables années. Lorsque Maître Zhong Xuan et les autres se sont rendus dans le Royaume Céleste de la Pluie pour la première fois, ils n'ont pas seulement obtenu la plupart des héritages, ils ont aussi découvert des choses mystérieuses. Ils les étudient depuis toutes ces années... »
+« L'Alliance Xiu Zhen cache un secret capable de faire trembler les cieux depuis d'innombrables années. Lorsque Xuan Chongzi et les autres se sont rendus dans le Royaume Céleste de la Pluie pour la première fois, ils n'ont pas seulement obtenu la plupart des héritages, ils ont aussi découvert des choses mystérieuses. Ils les étudient depuis toutes ces années... »
 
 « Je crains que même le Royaume Kun Xu n'en sache rien. Ces choses mystérieuses sont trop importantes; elles pourraient affecter les quatre Royaumes Célestes! »
 

@@ -94,7 +94,7 @@ L'homme assis était un homme d'âge moyen. Son visage était livide, sans aucun
 
 « Stade avancé du Purificateur du Nirvana! » Les yeux de Wang Lin brillèrent. Un poison assez puissant pour tuer un tel cultivateur était comparable au poison du Septième Ciel!
 
-« Compagnon cultivateur est-il également venu pour le jade et la recette de pilule? Je ne connais pas votre secte, mais je crois que ces deux objets sont indispensables pour vous. Même si je ne vous les donne pas, je suppose que vous avez un moyen d'ouvrir mon espace de stockage. Peu importe... je vous laisse ces deux objets, mais je vous en prie, tuez-moi pour que je cesse de souffrir de ce Ver Mille Pourpre. » L'amertume se lisait sur le visage de l'homme tandis qu'il implorait.
+« Daoïste est-il également venu pour le jade et la recette de pilule? Je ne connais pas votre secte, mais je crois que ces deux objets sont indispensables pour vous. Même si je ne vous les donne pas, je suppose que vous avez un moyen d'ouvrir mon espace de stockage. Peu importe... je vous laisse ces deux objets, mais je vous en prie, tuez-moi pour que je cesse de souffrir de ce Ver Mille Pourpre. » L'amertume se lisait sur le visage de l'homme tandis qu'il implorait.
 
 Wang Lin réfléchit silencieusement en observant les quatre cadavres au sol, puis l'homme d'âge moyen, avant de hocher la tête.
 

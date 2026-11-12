@@ -112,4 +112,4 @@ Le Couple du Nuage Céleste et cet étrange homme chauve lui donnaient l'impress
 
 Il n'osait ni bouger, ni reculer. Il était la cible des regards de tous les occupants de la salle. Le moindre mouvement de sa part risquait de déclencher l'assaut général.
 
-« Je suis l'Ancien de l'Alliance Xiu Zhen, le Maître du Vide, le frère cadet du Grand Ancien, le Maître Zhong Xuan. Que signifie tout cela? » Le Maître du Vide s'efforça de reprendre contenance et invoqua même l'autorité de l'Alliance Xiu Zhen.
+« Je suis l'Ancien de l'Alliance Xiu Zhen, le Maître du Vide, le Junior frère du Grand Ancien, le Maître Zhong Xuan. Que signifie tout cela? » Le Maître du Vide s'efforça de reprendre contenance et invoqua même l'autorité de l'Alliance Xiu Zhen.

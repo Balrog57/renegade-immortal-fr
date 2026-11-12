@@ -6,25 +6,25 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1324 - Leaving the Blue Silk Clan
 slug: quitter-le-clan-de-la-soie-bleue
 ---
-Le clan d'esclaves des dieux anciens, le Clan Dévorant la Lune!
+Le clan d'esclaves des dieux anciens, le Clan Yue!
 
-Après avoir trahi les dieux anciens, ce clan s'était nommé lui-même « Yueshi » (Lune Dévorante). Le caractère « dévorer » soulignait le cœur dévoreur de dieux du Clan Dévorant la Lune. Dès lors, il n'y eut plus de simple Clan Dévorant la Lune, mais le clan Yueshi!
+Après avoir trahi les dieux anciens, ce clan s'était nommé lui-même « Yue Shi ». Le caractère « Shi » (dévorer) soulignait le cœur dévoreur de dieux du Clan Yue. Dès lors, il n'y eut plus de simple Clan Yue, mais le Clan Yue Shi!
 
-Lorsque le Clan Dévorant la Lune trahit les dieux anciens, il reçoit l'aide d'un groupe mystérieux. Les sorts de ces individus étaient extrêmement impressionnants et totalement différents de ceux des habitants du Système Stellaire Antique. Ils étaient également très habiles dans l'utilisation des sceaux.
+Lorsque le Clan Yue Shi trahit les dieux anciens, il reçoit l'aide d'un groupe mystérieux. Les sorts de ces individus étaient extrêmement impressionnants et totalement différents de ceux des habitants du Système Stellaire Antique. Ils étaient également très habiles dans l'utilisation des sceaux.
 
-Ce n'est que grâce à leur aide que le Clan Dévorant la Lune trouva la confiance et la volonté nécessaires pour trahir les dieux anciens!
+Ce n'est que grâce à leur aide que le Clan Yue Shi trouva la confiance et la volonté nécessaires pour trahir les dieux anciens!
 
-Cependant, même aujourd'hui, le Clan Dévorant la Lune n'a pas été en mesure de deviner l'identité de ce groupe mystérieux de cultivateurs. Même l'ancêtre de la troisième étape du Clan Dévorant la Lune n'en savait pas grand-chose.
+Cependant, même aujourd'hui, le Clan Yue Shi n'a pas été en mesure de deviner l'identité de ce groupe mystérieux de cultivateurs. Même l'ancêtre de la troisième étape du Clan Yue Shi n'en savait pas grand-chose.
 
 La rumeur disait que les cultivateurs mystérieux apparus soudainement semblaient avoir eu des contacts avec de nombreux clans, tout en n'ayant que peu de liens avec les concubines impériales antiques...
 
-Le caractère « dévorer » du nom du clan avait été inspiré par ces gens, qui avaient aussi transmis au Clan Dévorant la Lune un sort étrange et insondable qui leur permettait d'absorber le pouvoir des dieux anciens!
+Le caractère « dévorer » du nom du clan avait été inspiré par ces gens, qui avaient aussi transmis au Clan Yue Shi un sort étrange et insondable qui leur permettait d'absorber le pouvoir des dieux anciens!
 
 Wang Lin commença à réfléchir. Il avait fouillé la mémoire du vieil homme et avait obtenu ce sort, mais il n'était pas complet. Ce sort s'appelait le « Sort de l'Esprit Azur des Nuages ». Tout le monde ne pouvait pas le cultiver, car il nécessitait ce qu'on appelait des « graines d'esprit »!
 
-Les mystérieux individus avaient laissé certaines graines d'esprit dans les corps des membres du Clan Dévorant la Lune. Elles agissaient comme des parasites qui croissaient à l'intérieur des membres du clan.
+Les mystérieux individus avaient laissé certaines graines d'esprit dans les corps des membres du Clan Yue Shi. Elles agissaient comme des parasites qui croissaient à l'intérieur des membres du clan.
 
-Le Clan Dévorant la Lune utilisait ce Sort de l'Esprit Azur des Nuages pour dévorer les dieux anciens morts durant la guerre, s'en servant ainsi pour ériger son clan au rang de l'un des grands clans du Système Stellaire Antique.
+Le Clan Yue Shi utilisait ce Sort de l'Esprit Azur des Nuages pour dévorer les dieux anciens morts durant la guerre, s'en servant ainsi pour ériger son clan au rang de l'un des grands clans du Système Stellaire Antique.
 
 Tout en méditant, l'expression de Wang Lin devint sombre. Plus il apprenait, plus il trouvait la situation étrange. C'était comme si un voile recouvrait le monde; s'il ne parvenait pas à lever ce voile, il ne pourrait jamais tout voir.
 
@@ -56,7 +56,7 @@ Dans une autre partie du Système Stellaire Antique, la femme en blanc apparut. 
 
 Mais comme auparavant, au moment même où elles surgirent, elles tremblèrent violemment. Cette fois, elle leva la main droite et fit un geste. Les ondulations furent tranchées net en leur milieu, puis éclatèrent!
 
-Au moment de leur rupture, l'énergie d'origine contenue dans cette aura jaillit comme une tempête, formant un vortex géant de dizaines de milliers de pieds de large. L'énergie d'origine se déchaîna; aucun sort de téléportation ne pouvait plus fonctionner à l'intérieur de ce vortex!
+Au moment de leur rupture, l'énergie d'origine contenue dans cette aura jaillit comme une tempête, formant un vortex géant de plusieurs centaines de milliers de pieds de large. L'énergie d'origine se déchaîna; aucun sort de téléportation ne pouvait plus fonctionner à l'intérieur de ce vortex!
 
 Dès que les ondulations se brisèrent et que le vortex apparut, la silhouette de Wang Lin surgit du vide. Ses cinq essences étaient dissimulées dans ses yeux, lui permettant de percevoir la femme en blanc à l'intérieur du vortex!
 

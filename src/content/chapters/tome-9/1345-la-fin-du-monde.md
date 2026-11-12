@@ -40,7 +40,7 @@ Devant elle, les cultivateurs n'étaient que poussière.
 
 Le jeune homme murmura doucement: « Je me suis enfui jusqu'ici, au bout des 7 Millions de Mondes, à la fin du monde... Ici, mon désir d'évasion s'est effondré. Je devais affronter la réalité, la vérité! »
 
-« Je n'ai plus fui. J'ai choisi de les affronter, j'ai choisi de résister! Je suis retourné dans les 7 Millions de Mondes et j'ai fondé la Secte de l'Esprit Dispersé. Chaque avatar est un Daoïste Esprit Dispersé qui propage les idéaux de ma secte, et ils contrôlent la majorité des cultivateurs des 7 Millions de Mondes! »
+« Je n'ai plus fui. J'ai choisi de les affronter, j'ai choisi de résister! Je suis retourné dans les 7 Millions de Mondes et j'ai fondé la Secte San Ling. Chaque avatar est un Daoïste Esprit Dispersé qui propage les idéaux de ma secte, et ils contrôlent la majorité des cultivateurs des 7 Millions de Mondes! »
 
 « Je leur ai enseigné la méthode de culture qui leur permettrait d'atteindre le stade de la Formation de l'Âme le plus rapidement possible. J'ai cultivé comme un fou, créant avatar après avatar. Des dizaines de milliers d'années plus tard, j'ai atteint le stade que vous, les êtres célestes, appelez le "Quatrième Fléau Céleste"! » Le jeune homme se tourna vers Wang Lin.
 

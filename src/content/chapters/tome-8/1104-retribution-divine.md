@@ -1,6 +1,6 @@
 ---
 n: 1104
-title: Rétribution Divine
+title: Tribulation Céleste
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 1104 - Divine Retribution
@@ -20,7 +20,7 @@ La colère qui bouillonnait dans le cœur de Wang Lin se manifesta sous la forme
 
 Ainsi, l'homme et la bête progressèrent rapidement à travers le système stellaire. Après un demi-bâton d'encens, Wang Lin fronça les sourcils. La bête-moustique, blessée, était lente; s'ils continuaient à ce rythme, qui savait combien de temps il leur faudrait pour retrouver ceux qui avaient dérobé les bêtes-moustiques?
 
-De plus, Wang Lin sentait progressivement la rétribution divine approcher. Le sceau qu'il avait posé grâce aux Neuf Transformations Mystérieuses commençait à se relâcher.
+De plus, Wang Lin sentait progressivement la Tribulation Céleste approcher. Le sceau qu'il avait posé grâce aux Neuf Transformations Mystérieuses commençait à se relâcher.
 
 Après tout, ils se trouvaient dans l'espace profond. Contrairement au champ stellaire de la Secte Divine de l'Oiseau Vermillon, où seule l'énergie originelle du feu régnait après des millénaires de combustion, l'énergie originelle ici était extrêmement hétérogène. Et bien que sa culture fût scellée, l'énergie originelle pénétrait tout de même son corps, transformant lentement ses méridiens.
 
@@ -82,9 +82,9 @@ Wang Lin ne perdit plus de temps. Il leva la main droite vers le ciel, prit une 
 
 Alors que cette énergie dense pénétrait son être, des bruits de craquements résonnèrent en lui. Simultanément, une force titanesque commença à s'accumuler parmi les étoiles.
 
-Des nuages de rétribution divine commencèrent à s'amonceler au-dessus du champ stellaire jonché de débris. En un instant, ils couvrirent l'intégralité de la zone. Au même moment, la puissance des cieux descendit de ces nuages sur le champ de ruines, isolant cet espace du reste du système stellaire.
+Des nuages de Tribulation Céleste commencèrent à s'amonceler au-dessus du champ stellaire jonché de débris. En un instant, ils couvrirent l'intégralité de la zone. Au même moment, la puissance des cieux descendit de ces nuages sur le champ de ruines, isolant cet espace du reste du système stellaire.
 
 « Ceci... C'est... »
-« La rétribution divine!!! »
+« La Tribulation Céleste!!! »
 
-Les yeux des deux anciens en pourpre s'écarquillèrent, envahis par l'incrédulité et la terreur. Bien qu'ils fussent des cultivateurs du Purificateur du Nirvana, ils ne connaissaient que peu de choses sur la rétribution divine; s'ils purent la reconnaître, c'est uniquement parce qu'ils en avaient été témoins dans le système stellaire de la Mer Yun avant d'arriver ici.
+Les yeux des deux anciens en pourpre s'écarquillèrent, envahis par l'incrédulité et la terreur. Bien qu'ils fussent des cultivateurs du Purificateur du Nirvana, ils ne connaissaient que peu de choses sur la Tribulation Céleste; s'ils purent la reconnaître, c'est uniquement parce qu'ils en avaient été témoins dans le système stellaire de la Mer Yun avant d'arriver ici.

@@ -48,7 +48,7 @@ Alors que les bêtes s'effondraient, ces tatouages flottèrent au-dessus des con
 
 Au moment où le tonnerre apparut, un rugissement retentit. La bête de tonnerre formée par le Char de Guerre Divin était apparue! Dès son apparition, Wang Lin agita la main droite et toutes les fioritures que Maître Yan Leizi avait ajoutées s'effondrèrent, lui rendant sa forme puissante d'autrefois.
 
-*Roar!*
+*Rrrraaah!*
 
 La bête de tonnerre poussa un rugissement et son regard devint d'une intensité redoutable. Ayant déjà acquis une intelligence, elle savait que Wang Lin faisait face à une crise.
 

@@ -72,11 +72,11 @@ Wang Lin regarda Li Qianmei. Après une courte réflexion, il demanda d'une voix
 
 Sa question n'avait rien d'inapproprié. Dans la Mer Yun, la brume stellaire créait des barrières entre les cultivateurs, empêchant la diffusion large des informations. La région de rang 9, située bien au-delà, demeurait une existence énigmatique.
 
-Les archives de la Secte Gui Yuan n'offraient qu'une description sommaire de la région de rang 9, mentionnant seulement l'existence d'une Secte Divine. Wang Lin n'avait découvert l'existence de la Secte Brise-Ciel qu'après avoir obtenu le jade et fouillé les souvenirs de la Vieille Poisonneuse. Après tout, une secte de rang 5 ne pouvait en savoir plus qu'une secte de rang 6.
+Les archives de la Secte Gui Yuan n'offraient qu'une description sommaire de la région de rang 9, mentionnant seulement l'existence d'une Secte Divine. Wang Lin n'avait découvert l'existence de la Secte Po Tian qu'après avoir obtenu le jade et fouillé les souvenirs de la Vieille Poisonneuse. Après tout, une secte de rang 5 ne pouvait en savoir plus qu'une secte de rang 6.
 
 Li Qianmei entendit Wang Lin et, après un instant de réflexion, lui répondit.
 
-« Il y a au total quatre sectes dans la région de rang 9: la Secte Divine, la Secte Fantôme, la Secte Démon et la Secte Brise-Ciel. La Secte Brise-Ciel, à laquelle j'appartiens, est la plus faible, tandis que la Secte Divine est la plus puissante! La Secte Fantôme est la plus mystérieuse! Quant à la Secte Démon... » Li Qianmei marqua une hésitation et murmura:
+« Il y a au total quatre sectes dans la région de rang 9: la Secte Divine, la Secte Fantôme, la Secte Démon et la Secte Po Tian. La Secte Po Tian, à laquelle j'appartiens, est la plus faible, tandis que la Secte Divine est la plus puissante! La Secte Fantôme est la plus mystérieuse! Quant à la Secte Démon... » Li Qianmei marqua une hésitation et murmura:
 
 « La Secte Démon est située dans la partie la plus profonde de la région de rang 9, et il est extrêmement difficile pour les cultivateurs d'y pénétrer. Toutes les bêtes féroces les plus puissantes s'y rassemblent. La Secte Démon ne se mêle presque pas des affaires du monde et rares sont ceux qui en sortent. Mon Maître disait qu'il existe là-bas des bêtes terrifiantes capables de prendre forme humaine... Cependant, avec la présence de la Secte Divine, la Secte Démon ne peut guère agir! »
 
@@ -84,7 +84,7 @@ Li Qianmei entendit Wang Lin et, après un instant de réflexion, lui répondit.
 
 Li Qianmei hocha la tête et répondit doucement: « Les bêtes féroces peuvent comprendre les cieux et cultiver le Dao, alors pourquoi ne pourraient-elles pas cultiver une forme humaine? Cependant, elles sont très rares.
 
-« Il existe des choses que vous et la grande majorité des cultivateurs ignorez. Même ma Secte Brise-Ciel n'a découvert certains de ces secrets qu'après avoir pénétré dans la région de rang 9. »
+« Il existe des choses que vous et la grande majorité des cultivateurs ignorez. Même ma Secte Po Tian n'a découvert certains de ces secrets qu'après avoir pénétré dans la région de rang 9. »
 
 Le visage de Li Qianmei devint grave. Après un silence, elle murmura: « Il y a fort longtemps, il n'y avait qu'une seule secte dans la région de rang 9 de la Mer Yun. C'était la Secte Divine!
 
@@ -96,7 +96,7 @@ Le visage de Li Qianmei devint grave. Après un silence, elle murmura: « Il y a
 
 La voix de Li Qianmei était mélodieuse, mais le contenu de ses paroles était terrifiant. Le regard de Wang Lin se fit sérieux. Il n'aurait jamais imaginé que le Système Stellaire de la Mer Yun cachait un secret aussi vertigineux.
 
-« La Secte Divine s'en inquiétait. Elle craignait la Secte Démon et l'invasion des bêtes féroces. C'est pourquoi elle a d'abord favorisé l'ascension de la Secte Fantôme, experte en sorts de capture d'âmes, pour en faire une secte de rang 9. Ensuite, elle a élevé ma Secte Brise-Ciel au rang 9 également. Tout cela afin de se préparer à une seconde éruption qui pourrait survenir à tout moment! » Après avoir fini, elle regarda Wang Lin et ajouta doucement:
+« La Secte Divine s'en inquiétait. Elle craignait la Secte Démon et l'invasion des bêtes féroces. C'est pourquoi elle a d'abord favorisé l'ascension de la Secte Fantôme, experte en sorts de capture d'âmes, pour en faire une secte de rang 9. Ensuite, elle a élevé ma Secte Po Tian au rang 9 également. Tout cela afin de se préparer à une seconde éruption qui pourrait survenir à tout moment! » Après avoir fini, elle regarda Wang Lin et ajouta doucement:
 
 « Cette affaire est d'une importance capitale. J'espère que le frère Lu ne la répétera pas. »
 

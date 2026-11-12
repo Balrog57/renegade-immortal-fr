@@ -8,19 +8,19 @@ slug: ceux-qui-nuisent-aux-autres-se-nuisent-constamment-eux-memes
 ---
 La Secte Wu Du de rang 6 était considérée comme une force relativement puissante parmi les sectes de ce niveau; elle était l'égale de la Secte Hua Qing. De nombreuses frictions existaient entre les deux sectes, et elles se livraient à de constantes joutes.
 
-Zhou Hai était un disciple central de la Secte Wu Du. Son niveau de culture n'était pas aussi élevé que celui de la Vieille Femme Poisonneuse, se situant seulement au début du stade de la Purification du Nirvana. Cependant, il était un membre influent de la Secte Wu Du, et la secte lui accordait une importance considérable.
+Zou Hai était un disciple central de la Secte Wu Du. Son niveau de culture n'était pas aussi élevé que celui de la Vieille Femme Poisonneuse, se situant seulement au début du stade de la Purification du Nirvana. Cependant, il était un membre influent de la Secte Wu Du, et la secte lui accordait une importance considérable.
 
 À cet instant, son expression était sombre et une lueur bleue brillait dans son œil droit. Bien que cette lumière fût esthétique, elle résultait de la culture d'une technique de poison propre à la Secte Wu Du.
 
-« Le compagnon cultivateur Zhou est resté morose durant tout le trajet. Si quelqu'un ignorant la situation vous voyait, il serait bien confus de votre état. » Une voix féminine émana d'un cultivateur vêtu de noir à ses côtés. Ce dernier était un homme, mais son maquillage lui donnait l'apparence correspondant à sa voix.
+« Le compagnon cultivateur Zou est resté morose durant tout le trajet. Si quelqu'un ignorant la situation vous voyait, il serait bien confus de votre état. » Une voix féminine émana d'un cultivateur vêtu de noir à ses côtés. Ce dernier était un homme, mais son maquillage lui donnait l'apparence correspondant à sa voix.
 
-Un éclair de froideur passa dans les yeux de Zhou Hai alors qu'il fixait le cultivateur en noir: « Zhao Yu, j'ai enduré tes provocations tout au long du voyage. Si tu continues tes sarcasmes, ne me reproche pas de ne plus me retenir! »
+Un éclair de froideur passa dans les yeux de Zou Hai alors qu'il fixait le cultivateur en noir: « Zhao Yu, j'ai enduré tes provocations tout au long du voyage. Si tu continues tes sarcasmes, ne me reproche pas de ne plus me retenir! »
 
 « La Secte Wu Du est donc bien puissante. Je veux voir si votre secte oserait affronter ma Secte Mo Cong! » Le cultivateur en noir sourit, mais ce sourire était d'une froideur extrême.
 
-La lueur bleue de l'œil droit de Zhou Hai s'intensifia, mais à cet instant précis, un reniflement glacial retentit près d'eux.
+La lueur bleue de l'œil droit de Zou Hai s'intensifia, mais à cet instant précis, un reniflement glacial retentit près d'eux.
 
-« Cela suffit! Nous sommes trois représentants de nos sectes respectives pour traquer le traître de la Secte Wu Du. Nous ne pouvons nous battre entre nous! » L'homme qui venait de parler était un homme d'âge moyen au milieu du stade de la Purification du Nirvana. Après son intervention, Zhou Hai et Zhao Yu se lancèrent des regards hostiles avant de laisser échapper des reniflements froids et de réprimer l'énergie originelle qu'ils s'apprêtaient à déchaîner.
+« Cela suffit! Nous sommes trois représentants de nos sectes respectives pour traquer le traître de la Secte Wu Du. Nous ne pouvons nous battre entre nous! » L'homme qui venait de parler était un homme d'âge moyen au milieu du stade de la Purification du Nirvana. Après son intervention, Zou Hai et Zhao Yu se lancèrent des regards hostiles avant de laisser échapper des reniflements froids et de réprimer l'énergie originelle qu'ils s'apprêtaient à déchaîner.
 
 Cet homme d'âge moyen était un disciple central de la première secte de rang 6, la Secte Dao Fa. En raison de la Vieille Femme Poisonneuse, il était extrêmement difficile pour la Secte Wu Du de justifier la situation. Finalement, ils avaient payé un lourd tribut pour clore l'affaire. Ils avaient également dû envoyer des disciples centraux en guise d'otages sous prétexte de rechercher la Vieille Femme Poisonneuse; la véritable raison était de surveiller les membres de la Secte Wu Du.
 
@@ -28,7 +28,7 @@ Si la Vieille Femme Poisonneuse n'était pas retrouvée rapidement, la Secte Wu 
 
 Des disciples de chaque secte suivaient leur sillage. Tous se transformèrent en rayons de lumière et descendirent à travers la barrière entourant le continent de Mo Luo.
 
-« Zhou Hai, Zhao Yu, suivez-moi à la Secte Gui Yuan. Vous autres, disciples, éparpillez-vous sur le continent de Mo Luo et fouillez chaque parcelle. Ne manquez aucun recoin. Si vous trouvez quoi que ce soit, signalez-le immédiatement! » La voix de l'homme d'âge moyen était calme, mais elle portait une autorité incontestable.
+« Zou Hai, Zhao Yu, suivez-moi à la Secte Gui Yuan. Vous autres, disciples, éparpillez-vous sur le continent de Mo Luo et fouillez chaque parcelle. Ne manquez aucun recoin. Si vous trouvez quoi que ce soit, signalez-le immédiatement! » La voix de l'homme d'âge moyen était calme, mais elle portait une autorité incontestable.
 
 Les disciples environnants hochèrent rapidement la tête et se dispersèrent pour entamer leurs recherches. Ils avaient l'habitude de procéder ainsi chaque fois qu'ils atteignaient un nouveau continent.
 
@@ -44,7 +44,7 @@ L'homme d'âge moyen joignit ses mains à son tour: « Je suis Feng Peishan, de 
 
 « Je ne pensais pas rencontrer une telle beauté ici! » Le cultivateur en noir à l'allure féminine regarda Lu Yanfei avec un sourire. « Petite beauté, je suis Zhao Yu, de la Secte Mo Cong. »
 
-« Zhou Hai, de la Secte Wu Du! » L'expression de Zhou Hai demeurait sombre tandis que son œil droit dégageait une lueur bleue qui balaya les cultivateurs de la Secte Gui Yuan.
+« Zou Hai, de la Secte Wu Du! » L'expression de Zou Hai demeurait sombre tandis que son œil droit dégageait une lueur bleue qui balaya les cultivateurs de la Secte Gui Yuan.
 
 Li Xiangdong inspira profondément et échangea un regard sérieux avec les deux anciens à ses côtés. Ces trois sectes détenaient près de 40 % de la puissance de la région de rang 6. Elles étaient si dominantes qu'une simple pensée de leur part suffirait à anéantir la Secte Gui Yuan.
 
@@ -52,29 +52,29 @@ Si leurs chefs étaient déjà dans cet état, que dire de leurs disciples. Tous
 
 Li Xiangdong réprima ses pensées et esquissa un sourire de circonstance: « J'ignore les raisons qui amènent les sectes supérieures ici. Si la Secte Gui Yuan peut vous être utile, elle fera de son mieux pour vous assister. »
 
-Zhou Hai laissa échapper un reniflement froid, s'avança et se posta devant un disciple de la Secte Gui Yuan. Sa main bougea avec la rapidité de l'éclair et frappa le jeune homme. Le corps du disciple trembla et il cracha du sang avant d'être projeté au loin.
+Zou Hai laissa échapper un reniflement froid, s'avança et se posta devant un disciple de la Secte Gui Yuan. Sa main bougea avec la rapidité de l'éclair et frappa le jeune homme. Le corps du disciple trembla et il cracha du sang avant d'être projeté au loin.
 
-Cette scène soudaine provoqua un changement radical dans les expressions des cultivateurs de la Secte Gui Yuan. Xu Yun, le regard chargé de colère, se précipita vers le disciple pour soutenir son corps.
+Cette scène soudaine provoqua un changement radical dans les expressions des cultivateurs de la Secte Gui Yuan. Sun Yun, le regard chargé de colère, se précipita vers le disciple pour soutenir son corps.
 
 Le visage du disciple était livide et son corps tremblait. Une lueur bleue émanait de ses traits alors qu'il souffrait d'une douleur intense, incapable même de hurler.
 
 Les yeux de Lu Yanfei devinrent glacials et elle déclara d'une voix lente: « La raison pour laquelle les sectes supérieures sont venues ici est-elle simplement de blesser un disciple de la Secte Gui Yuan? »
 
-Feng Peishan esquissa un sourire et secoua la tête. « Compagnons cultivateurs de la Secte Gui Yuan, nul besoin de s'alarmer. Cette affaire est d'une importance capitale, et toutes les sectes de rang 6 ont dépêché des hommes pour rechercher une seule personne. Cette personne est extrêmement douée pour se dissimuler, et le seul indice réside dans le poison qu'elle porte. Si le compagnon cultivateur Zhou a attaqué, c'est parce que ce junior portait une trace de ce poison sur lui. »
+Feng Peishan esquissa un sourire et secoua la tête. « Compagnons cultivateurs de la Secte Gui Yuan, nul besoin de s'alarmer. Cette affaire est d'une importance capitale, et toutes les sectes de rang 6 ont dépêché des hommes pour rechercher une seule personne. Cette personne est extrêmement douée pour se dissimuler, et le seul indice réside dans le poison qu'elle porte. Si le compagnon cultivateur Zou a attaqué, c'est parce que ce junior portait une trace de ce poison sur lui. »
 
 Le regard de Lu Yanfei se fit plus froid encore. Elle pointa sa main droite vers le disciple blessé. Le corps de celui-ci trembla et un vortex apparut. Peu après, son Âme Naissante s'en échappa, révélant un petit serpent rouge à l'intérieur: c'était son esprit de bête spirituelle.
 
 Cependant, le petit serpent était affaibli, au bord de la mort. Même l'Âme Naissante du disciple semblait presque transparente.
 
-L'expression de Zhou Hai resta sombre. Après avoir jeté un regard sur l'Âme Naissante, il passa outre. Ses yeux brillèrent de nouveau d'un bleu intense alors qu'il balayait les disciples restants de la Secte Gui Yuan. Un instant plus tard, il fit un pas et se dirigea droit sur Xu Yun, qui soutenait le disciple!
+L'expression de Zou Hai resta sombre. Après avoir jeté un regard sur l'Âme Naissante, il passa outre. Ses yeux brillèrent de nouveau d'un bleu intense alors qu'il balayait les disciples restants de la Secte Gui Yuan. Un instant plus tard, il fit un pas et se dirigea droit sur Sun Yun, qui soutenait le disciple!
 
-Le visage de Xu Yun changea. Avec son niveau de culture, elle était incapable de résister. À cet instant, une intention meurtrière jaillit des yeux de Lu Yanfei qui chargea. Sa main droite traça un sceau avant d'être projetée en un mouvement: une rafale de vent s'élança vers Zhou Hai.
+Le visage de Sun Yun changea. Avec son niveau de culture, elle était incapable de résister. À cet instant, une intention meurtrière jaillit des yeux de Lu Yanfei qui chargea. Sa main droite traça un sceau avant d'être projetée en un mouvement: une rafale de vent s'élança vers Zou Hai.
 
-Zhou Hai ricana et son œil droit brilla d'un bleu éclatant. Sept marques bleues apparurent autour de lui. Il ignora totalement le vent et avança sans la moindre hésitation.
+Zou Hai ricana et son œil droit brilla d'un bleu éclatant. Sept marques bleues apparurent autour de lui. Il ignora totalement le vent et avança sans la moindre hésitation.
 
-Un grondement tonitruant retentit lorsque le vent s'effondra à l'approche de Zhou Hai. Rien ne put l'arrêter. En un instant, il se retrouva face à Xu Yun.
+Un grondement tonitruant retentit lorsque le vent s'effondra à l'approche de Zou Hai. Rien ne put l'arrêter. En un instant, il se retrouva face à Sun Yun.
 
-L'intention meurtrière de Lu Yanfei s'intensifia. Xu Yun était sa disciple, et elle refusait de rester impuissante face à une telle agression. Elle perdit patience et s'apprêta à attaquer. Même Li Xiangdong et les deux autres anciens étaient préoccupés; après tout, Xu Yun n'était plus une simple disciple ordinaire, mais une disciple centrale de la Secte Gui Yuan.
+L'intention meurtrière de Lu Yanfei s'intensifia. Sun Yun était sa disciple, et elle refusait de rester impuissante face à une telle agression. Elle perdit patience et s'apprêta à attaquer. Même Li Xiangdong et les deux autres anciens étaient préoccupés; après tout, Sun Yun n'était plus une simple disciple ordinaire, mais une disciple centrale de la Secte Gui Yuan.
 
 C'est alors que Feng Peishan, de la Secte Dao Fa, les yeux brillants, poussa un cri!
 
@@ -90,22 +90,22 @@ La terre en trembla légèrement et les nuages furent repoussés.
 
 Zhao Yu afficha un regard de dédain envers la Secte Gui Yuan. Son regard balaya les pavillons de la montagne avant qu'il ne fronce les sourcils en observant la cour sud de la Secte Gui Yuan.
 
-À ce moment, Zhou Hai fixa la pâle Xu Yun et dit d'une voix sombre: « Petite, tu portes l'odeur de l'Herbe au Poison de Poisson. Cette herbe ne croît que dans le nid d'une bête de rang 6, nulle part ailleurs. Il serait impossible pour les membres de la Secte Gui Yuan de s'en procurer, et pourtant l'odeur est encore fraîche. Où l'as-tu trouvée? »
+À ce moment, Zou Hai fixa la pâle Sun Yun et dit d'une voix sombre: « Petite, tu portes l'odeur de l'Herbe au Poison de Poisson. Cette herbe ne croît que dans le nid d'une bête de rang 6, nulle part ailleurs. Il serait impossible pour les membres de la Secte Gui Yuan de s'en procurer, et pourtant l'odeur est encore fraîche. Où l'as-tu trouvée? »
 
-Le visage de Xu Yun était livide. Le regard bleu de Zhou Hai dégageait une pression si puissante que l'esprit de la jeune fille en fut ébranlé. Elle mordit sa lèvre inférieure et chercha le regard de son maître non loin de là.
+Le visage de Sun Yun était livide. Le regard bleu de Zou Hai dégageait une pression si puissante que l'esprit de la jeune fille en fut ébranlé. Elle mordit sa lèvre inférieure et chercha le regard de son maître non loin de là.
 
-Zhou Hai eut un sourire lugubre et se tourna vers Lu Yanfei.
+Zou Hai eut un sourire lugubre et se tourna vers Lu Yanfei.
 
 « Compagnon cultivateur Lu, j'aimerais entendre votre explication! »
 
 Lu Yanfei répondit calmement: « En tant que jeune génération, nous n'avons pas la puissance nécessaire pour dérober une telle herbe dans le nid d'une bête de rang 6. Cependant, cela ne signifie pas que l'Ancien de la secte en est incapable. L'Herbe au Poison de Poisson a été obtenue par mon Grand Oncle-Maître! »
 
-« Votre Grand Oncle-Maître? » Les yeux de Zhou Hai s'illuminèrent d'une pointe de mépris tandis que son Sens Divin se déployait. Il baissa la tête vers la cour sud de la Secte Gui Yuan et chargea directement vers elle.
+« Votre Grand Oncle-Maître? » Les yeux de Zou Hai s'illuminèrent d'une pointe de mépris tandis que son Sens Divin se déployait. Il baissa la tête vers la cour sud de la Secte Gui Yuan et chargea directement vers elle.
 
 Il fut d'une rapidité fulgurante pour atteindre la cour sud, zone interdite de la Secte Gui Yuan. Dès qu'il y pénétra, son corps trembla et le choc se lut dans ses yeux. La cour sud semblait appartenir à un autre monde. Il ressentit une aura provenant de ce jardin pourtant ordinaire qui fit vaciller son esprit.
 
-C'était comme si une bête surpuissante vivait dans cette enceinte. La simple aura dégagée suffisait à glacer le sang de Zhou Hai!
+C'était comme si une bête surpuissante vivait dans cette enceinte. La simple aura dégagée suffisait à glacer le sang de Zou Hai!
 
-« Ceux qui nuisent aux autres se nuisent constamment eux-mêmes! » Une voix froide, sombre et dénuée d'émotion passa comme un souffle de vent. Dès que ces mots atteignirent les oreilles de Zhou Hai, son expression changea radicalement pour devenir livide. Un sentiment de danger imminent enveloppa son corps et il n'hésita pas à reculer, voulant s'enfuir de cette terrifiante cour sud.
+« Ceux qui nuisent aux autres se nuisent constamment eux-mêmes! » Une voix froide, sombre et dénuée d'émotion passa comme un souffle de vent. Dès que ces mots atteignirent les oreilles de Zou Hai, son expression changea radicalement pour devenir livide. Un sentiment de danger imminent enveloppa son corps et il n'hésita pas à reculer, voulant s'enfuir de cette terrifiante cour sud.
 
-Pourtant, à cet instant précis, Zhou Hai ressentit une force inimaginable frapper sa poitrine, comme si une montagne s'écrasait sur lui. Il cracha un flot de sang en étant projeté en arrière. Des craquements résonnèrent dans son corps tandis qu'il était expulsé; les vêtements sur son torse furent réduits en lambeaux, révélant une empreinte de paume noire sur sa peau!
+Pourtant, à cet instant précis, Zou Hai ressentit une force inimaginable frapper sa poitrine, comme si une montagne s'écrasait sur lui. Il cracha un flot de sang en étant projeté en arrière. Des craquements résonnèrent dans son corps tandis qu'il était expulsé; les vêtements sur son torse furent réduits en lambeaux, révélant une empreinte de paume noire sur sa peau!

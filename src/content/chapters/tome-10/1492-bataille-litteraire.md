@@ -8,9 +8,9 @@ slug: bataille-litteraire
 ---
 S'il n'y avait ni vendetta mortelle ni volonté de tuer entre les cultivateurs du troisième niveau, même s'ils devaient s'affronter, ils conserveraient toujours un respect mutuel. Après tout, parmi la vaste population de ce monde, bien trop peu pouvaient atteindre le troisième niveau.
 
-Maître Lu Fu était un cultivateur du troisième niveau depuis longtemps et n'avait aucun différend avec Wang Lin. Actuellement, ils étaient en confrontation en raison du Dieu de Sang, mais il ne s'agissait que d'une simple opposition.
+Maître Lu Fu était un cultivateur du troisième niveau depuis longtemps et n'avait aucun différend avec Wang Lin. Actuellement, ils étaient en confrontation en raison de Xue Shenzi, mais il ne s'agissait que d'une simple opposition.
 
-Maître Lu Fu ne chercherait pas à offenser excessivement Wang Lin à cause du Dieu de Sang. À ses yeux, Wang Lin n'était plus seulement son égal, il possédait même un léger avantage.
+Maître Lu Fu ne chercherait pas à offenser excessivement Wang Lin à cause de Xue Shenzi. À ses yeux, Wang Lin n'était plus seulement son égal, il possédait même un léger avantage.
 
 Cependant, il restait convaincu d'avoir plus d'expérience que lui, ayant atteint le troisième niveau il y a des dizaines de milliers d'années; il n'avait donc pas peur.
 
@@ -20,9 +20,9 @@ Puisque Maître Lu Fu s'obstinait, Wang Lin n'avait rien contre l'idée de lui d
 
 Le regard de Maître Lu Fu eut un éclair, et il fixa le point entre les sourcils de Wang Lin. Il perçut une intention de combat monstrueuse qui fit se rétracter ses pupilles, et il changea rapidement d'avis.
 
-« Cher Compagnon Cultivateur Wang Lin, le système stellaire Luotian ne peut supporter un combat entre nous deux à pleine puissance. Une fois que la Formation de Scellement du Royaume sera déclenchée, cela n'en vaudra pas la peine... Que diriez-vous d'une Bataille Littéraire, en deux manches gagnantes! »
+« Daoïste Wang Lin, le système stellaire Luotian ne peut supporter un combat entre nous deux à pleine puissance. Une fois que la Formation de Scellement du Royaume sera déclenchée, cela n'en vaudra pas la peine... Que diriez-vous d'une Bataille Littéraire, en trois manches! »
 
-« Si vous gagnez, je remettrai personnellement le Dieu de Sang, mais si vous perdez, vous devrez partir immédiatement! Vous ne serez pas autorisé à entrer dans Luotian sans mon approbation! »
+« Si vous gagnez, je remettrai personnellement Xue Shenzi, mais si vous perdez, vous devrez partir immédiatement! Vous ne serez pas autorisé à entrer dans Luotian sans mon approbation! »
 
 « Osez-vous affronter ce vieil homme dans une Bataille Littéraire? » Maître Lu Fu sentait que même s'il combattait Wang Lin, cela se solderait par un match nul, les menant à une impasse.
 
@@ -50,7 +50,7 @@ C'est pour cela qu'il avait proposé le Pacte de la Bataille Littéraire. Voyant
 
 « Cet homme est jeune et n'a pas cultivé très longtemps. Bien que son niveau soit tel, il doit manquer de maîtrise dans d'autres domaines! » Maître Lu Fu avait atteint le troisième niveau il y a des dizaines de milliers d'années. Étant resté bloqué au stade initial du Vide du Nirvana par manque de Flammes Joss, il s'était lancé dans l'exploration du raffinage, de l'alchimie et des restrictions. Il était extrêmement confiant.
 
-Maître Lu Fu dit lentement: « Cher Compagnon, veuillez choisir ce que vous souhaitez raffiner pour la première bataille! »
+Maître Lu Fu dit lentement: « Daoïste, veuillez choisir ce que vous souhaitez raffiner pour la première bataille! »
 
 « Le raffinage d'un trésor conviendra. » Wang Lin regarda profondément Maître Lu Fu.
 
@@ -102,6 +102,6 @@ Après ces manipulations, Maître Lu Fu laissa échapper un rugissement. Les vor
 
 L'arbre de centaines de milliers de pieds trembla et se rétracta brutalement. Il fut compressé jusqu'à n'atteindre que cent pieds. Son aura choquante se déploya, faisant trembler l'espace lui-même!
 
-« Ce trésor sera nommé l'Arbre de Luotian. Qu'en pense le Compagnon Cultivateur? » Maître Lu Fu affichait un regard fier, teinté d'un profond soulagement. Il avait utilisé Luotian comme racine, les cultivateurs comme sang, sa propre essence comme noyau et sa culture pour le comprimer. Bien que ce ne fût pas le trésor le plus puissant, réussir un tel raffinage en si peu de temps le laissait très satisfait!
+« Ce trésor sera nommé l'Arbre de Luotian. Qu'en pense le Daoïste? » Maître Lu Fu affichait un regard fier, teinté d'un profond soulagement. Il avait utilisé Luotian comme racine, les cultivateurs comme sang, sa propre essence comme noyau et sa culture pour le comprimer. Bien que ce ne fût pas le trésor le plus puissant, réussir un tel raffinage en si peu de temps le laissait très satisfait!
 
 En particulier, l'effort requis pour sacrifier cette part de sang et d'énergie essentielle lui avait coûté cher, mais pour remporter cette Bataille Littéraire, il avait tout donné.

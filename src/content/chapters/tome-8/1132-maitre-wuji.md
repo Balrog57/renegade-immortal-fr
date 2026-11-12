@@ -22,7 +22,7 @@ Tout cela se produisit en un instant. Le jeune homme ne fut confus qu'un bref mo
 
 « Je... Qu'est-ce qui m'arrive? » La vision du jeune homme était floue, comme si un voile de brume obstruait son regard. Il leva lentement la main pour se frotter les yeux, espérant dissiper ce brouillard.
 
-Ce geste sembla porter ses fruits, car il regagna un bref instant de clarté. Il vit les cultivateurs autour de lui reculer, leurs yeux empreints de peur et d'effroi. Il vit que la Junior Sister avec qui il s'était secrètement promis l'un à l'autre affichait elle aussi une expression terrifiée; toute la tendresse qu'elle manifestait autrefois avait disparu.
+Ce geste sembla porter ses fruits, car il regagna un bref instant de clarté. Il vit les cultivateurs autour de lui reculer, leurs yeux empreints de peur et d'effroi. Il vit que la Junior sœur avec qui il s'était secrètement promis l'un à l'autre affichait elle aussi une expression terrifiée; toute la tendresse qu'elle manifestait autrefois avait disparu.
 
 Ce qu'il vit en dernier fut sa main droite, celle qu'il avait utilisée pour se frotter les yeux, et il fut saisi d'horreur. C'était une main couverte de rides et de taches séniles.
 

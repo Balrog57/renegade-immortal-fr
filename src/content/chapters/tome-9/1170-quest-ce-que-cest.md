@@ -16,7 +16,7 @@ Après avoir détourné le regard, Wang Lin ne daigna même pas regarder l'homme
 
 Le vieil homme au stand restait calme et observait Wang Lin.
 
-« Cher compagnon cultivateur, de combien de cristaux originels disposez-vous? » demanda Wang Lin avec une nonchalance apparente, tout en jetant un œil à un pendentif de jade attaché à la ceinture du vieillard.
+« Daoïste, de combien de cristaux originels disposez-vous? » demanda Wang Lin avec une nonchalance apparente, tout en jetant un œil à un pendentif de jade attaché à la ceinture du vieillard.
 
 Le visage du vieil homme se crispa légèrement avant qu'il ne sourie. « Pas beaucoup, seulement un; cependant, je ne cherche que des jades célestes et rien d'autre. »
 
@@ -30,7 +30,7 @@ Il effaça son sens divin du sac et le lança au vieil homme. Puis Wang Lin dit 
 
 Le vieil homme attrapa le sac de rangement et l'examina attentivement avec son sens divin. Il regarda ensuite Wang Lin d'un air suggestif avant de réfléchir silencieusement, puis de ranger son stand. Il déclara: « Je vous retrouverai d'ici trois jours. » Une fois ses paroles prononcées, il s'apprêta à partir, mais marqua une pause pour regarder Wang Lin et lui envoya un message.
 
-« Cher compagnon cultivateur est décisif. Mon nom est Ouyang Long. Je considérerai cher compagnon comme mon ami! Cet homme en vert est Yang Yu, le troisième disciple du maître de la Secte Mo Cong, une secte de rang 6. Cher compagnon, soyez prudent dans vos rapports avec lui. »
+« Daoïste, vous agissez avec décision. Mon nom est Ouyang Long. Je vous considérerai comme mon ami! Cet homme en vert est Yang Yu, le troisième disciple du maître de la Secte Mo Cong, une secte de rang 6. Daoïste, soyez prudent dans vos rapports avec lui. »
 
 Après avoir envoyé ce message, le vieil homme partit rapidement sans même demander comment contacter Wang Lin. Wang Lin ne posa pas non plus de question à ce sujet.
 
@@ -100,7 +100,7 @@ En se déplaçant, l'ombre arriva devant Yang Yu et pointa son doigt vers lui. C
 
 « Pourquoi me cherchez-vous? » demanda Wang Lin calmement en observant le vieillard.
 
-Le vieil homme ne manifesta aucune émotion; il observa Wang Lin un moment avant de sourire. « Le compagnon cultivateur Lu est en effet très intelligent. Ce vieux avait ses raisons et s'est montré brusque tout à l'heure; j'espère que vous ne m'en voudrez pas. Que diriez-vous de trouver un endroit pour discuter, afin que je puisse réparer mes torts? »
+Le vieil homme ne manifesta aucune émotion; il observa Wang Lin un moment avant de sourire. « Le Daoïste Lu est en effet très intelligent. Ce vieux avait ses raisons et s'est montré brusque tout à l'heure; j'espère que vous ne m'en voudrez pas. Que diriez-vous de trouver un endroit pour discuter, afin que je puisse réparer mes torts? »
 
 L'expression de Wang Lin resta imperturbable. Après une courte réflexion, il hocha la tête. Wang Lin était déjà aussi rusé que le diable; dès l'apparition de Yang Yu, il avait remarqué que celui-ci le fixait avec insistance. Puis Yang Yu était arrivé en faisant semblant de rattraper Qianmei.
 
@@ -112,7 +112,7 @@ En analysant ces indices et grâce à l'avertissement d'Ouyang Long, Wang Lin co
 
 Quoi qu'il en soit, dans le monde de la culture, les forts sont respectés. Manifester son niveau de culture ne servait pas seulement de moyen de dissuasion, cela lui permettait aussi d'obtenir le respect dû. Fort de cette conviction, Wang Lin avait choisi d'attaquer instantanément.
 
-En entendant le vieil homme l'appeler « Compagnon cultivateur Lu », Wang Lin fut encore plus certain de sa direction.
+En entendant le vieil homme l'appeler « Daoïste Lu », Wang Lin fut encore plus certain de sa direction.
 
 Li Qianmei n'avait cultivé que depuis peu de temps et ne possédait ni le vécu ni l'expérience des joutes d'esprit que Wang Lin avait acquise dans l'Alliance en affrontant de vieux monstres durant des années. Elle n'avait pas perçu cet indice subtil avant que Wang Lin ne dise: « Faites sortir votre seigneur. » Les yeux de Li Qianmei s'illuminèrent comme si elle venait de comprendre quelque chose.
 

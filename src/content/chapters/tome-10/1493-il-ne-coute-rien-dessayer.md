@@ -40,7 +40,7 @@ Le rire du Maître Lu Fu fit vibrer les étoiles. La fierté qui transparaissait
 
 À la suite des paroles de Wang Lin, les dizaines de milliers de cultivateurs poussèrent un cri d'acclamation unanime, et leur dévotion envers le Maître Lu Fu devint plus fervente encore. Si ce dernier leur demandait de charger dans une montagne de lames ou une mer de feu, ils s'y précipiteraient sans la moindre hésitation!
 
-Le Maître Lu Fu regarda Wang Lin et dit avec lenteur: « Le trésor de ce vieil homme est achevé. Je demande à notre camarade cultivateur de l'affiner; je veux voir quel genre de trésor vous saurez créer! »
+Le Maître Lu Fu regarda Wang Lin et dit avec lenteur: « Le trésor de ce vieil homme est achevé. Je demande à le Daoïste de l'affiner; je veux voir quel genre de trésor vous saurez créer! »
 
 « Les cultivateurs de Luotian possèdent assez d'intention de bataille, mais il leur manque une intention de tuer... l'odeur du sang. » Wang Lin leva la main droite et tendit doucement le geste vers la formation en contrebas.
 
@@ -74,7 +74,7 @@ L'intention meurtrière redoubla d'intensité, faisant trembler les étoiles!
 
 « Dans la Mer Yun, le brouillard de sang me suivait et l'intention de tuer était dissimulée partout... » Les dizaines de milliers de cultivateurs du Temple Céleste du Tonnerre reculèrent, le visage blême. Ils fixaient Wang Lin avec une terreur indescriptible.
 
-« Dans le Royaume aux Sept Couleurs, les fruits du Dao et l'intention de tuer... » L'expression du Maître Yan Leizi et de son groupe changea radicalement. Lorsque le Dieu de Sang ressentit cette intention meurtrière, il cracha du sang.
+« Dans le Royaume aux Sept Couleurs, les fruits du Dao et l'intention de tuer... » L'expression du Maître Yan Leizi et de son groupe changea radicalement. Lorsque Xue Shenzi ressentit cette intention meurtrière, il cracha du sang.
 
 « Dans le Système Stellaire Antique du Royaume Extérieur, l'aura meurtrière de l'art immortel dévoreur de sang... » Le domaine stellaire trembla tandis qu'une lueur sanglante l'illuminait. La propagation se poursuivit, et d'innombrables cultivateurs de Luotian furent saisis de stupeur par cette intention meurtrière.
 
@@ -98,7 +98,7 @@ L'expression du Maître Lu Fu devint extrêmement grave. À mesure que le crista
 
 Les dizaines de milliers de cultivateurs furent terrifiés par cette intention meurtrière. C'était comme si la fin du monde approchait. Ils poussèrent des cris et reculèrent à nouveau!
 
-Le vortex derrière le Maître Lu Fu s'interrompit net. Le Dieu de Sang pâlit et continua sa retraite. Lie Yunzi recula lui aussi, les yeux écarquillés par l'effroi. Il ne pouvait faire autrement: aux yeux de Lie Yunzi, le Maître Lu Fu n'affrontait pas Wang Lin, mais une montagne de cadavres et une mer de sang!
+Le vortex derrière le Maître Lu Fu s'interrompit net. Xue Shenzi pâlit et continua sa retraite. Lie Yunzi recula lui aussi, les yeux écarquillés par l'effroi. Il ne pouvait faire autrement: aux yeux de Lie Yunzi, le Maître Lu Fu n'affrontait pas Wang Lin, mais une montagne de cadavres et une mer de sang!
 
 Le Maître Yan Leizi resta silencieux, observant Wang Lin avec une expression complexe.
 

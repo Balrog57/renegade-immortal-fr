@@ -40,7 +40,7 @@ Les cheveux en bataille du fou et ses yeux égarés fixaient l'empreinte avec st
 
 Après avoir prononcé ces mots trois fois, l'empreinte se rétracta rapidement. En rétrécissant, elle montra des signes d'instabilité, comme si elle échappait au contrôle de son utilisateur. Finalement, elle percuta la planète. Le monde entier trembla, projetant le fou dans les airs.
 
-Au loin, une immense empreinte de paume était gravée dans la terre. Elle mesurait des dizaines de milliers de pieds de large et ressemblait à un gouffre titanesque!
+Au loin, une immense empreinte de paume était gravée dans la terre. Elle mesurait des centaines de milliers de pieds de large et ressemblait à un gouffre titanesque!
 
 « Si vous pouvez créer un tel abîme avec ce sort, alors j'admettrai qu'il est bon », dit lentement Wang Lin, laissant transparaître une pointe de mépris.
 

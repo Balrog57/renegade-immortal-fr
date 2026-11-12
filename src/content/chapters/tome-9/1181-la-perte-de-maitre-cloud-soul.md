@@ -1,6 +1,6 @@
 ---
 n: 1181
-title: La perte de Maître Nuage-Âme
+title: La perte de Yun Hunzi
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1181 - Master Cloud Soul is Lost
@@ -12,51 +12,51 @@ Wang Lin avait secrètement observé le garçon nommé Duanmu. C'était un être
 
 Quant à Chen Tianjun, il n'entretenait pas de liens privilégiés avec Cang Songzi. Il devait avoir ses propres desseins.
 
-Les seuls qui jouissaient d'une relation étroite avec Cang Songzi étaient deux personnes: le vieil homme nommé Pang, et l'autre, Maître Nuage-Âme!
+Les seuls qui jouissaient d'une relation étroite avec Cang Songzi étaient deux personnes: le vieil homme nommé Pang, et l'autre, Yun Hunzi!
 
-Selon l'analyse de Wang Lin, c'était grâce à Maître Nuage-Âme que Cang Songzi avait pu inviter tout le monde avec autant de sérénité. Après tout, avec leur coopération et le soutien du vieil homme Pang, cette équipe était devenue invincible parmi eux!
+Selon l'analyse de Wang Lin, c'était grâce à Yun Hunzi que Cang Songzi avait pu inviter tout le monde avec autant de sérénité. Après tout, avec leur coopération et le soutien du vieil homme Pang, cette équipe était devenue invincible parmi eux!
 
-Par conséquent, détruire Maître Nuage-Âme reviendrait à trancher l'un des bras de Cang Songzi! Maître Nuage-Âme avait des intentions malveillantes et l'observait depuis tout ce temps. Wang Lin décida de frapper le premier pour ne pas leur laisser la chance de s'allier!
+Par conséquent, détruire Yun Hunzi reviendrait à trancher l'un des bras de Cang Songzi! Yun Hunzi avait des intentions malveillantes et l'observait depuis tout ce temps. Wang Lin décida de frapper le premier pour ne pas leur laisser la chance de s'allier!
 
 Le moment était idéal pour l'attaque!
 
 « Stade intermédiaire du Briseur du Nirvana! » En songeant à l'affrontement contre un tel cultivateur, Wang Lin ressentit une pointe d'excitation. L'épée de fer en main, il abattit son arme sans la moindre pitié!
 
-La puissance d'un Trésor Pseudo-Vide du Nirvana était capable de faire trembler les cieux. À cet instant, un rayon monstrueux d'énergie d'épée fonça vers Maître Nuage-Âme!
+La puissance d'un Trésor Pseudo-Vide du Nirvana était capable de faire trembler les cieux. À cet instant, un rayon monstrueux d'énergie d'épée fonça vers Yun Hunzi!
 
-L'expression de Maître Nuage-Âme changea brusquement. Il n'était pas loin de Wang Lin et se trouvait très près de la faille aux sept couleurs. N'ayant pas le temps de réfléchir alors que l'énergie d'épée approchait à une vitesse fulgurante, il poussa un rugissement et ses mains formèrent un sceau. Les flammes d'âme qui l'entouraient s'élancèrent pour contrer l'assaut de Wang Lin!
+L'expression de Yun Hunzi changea brusquement. Il n'était pas loin de Wang Lin et se trouvait très près de la faille aux sept couleurs. N'ayant pas le temps de réfléchir alors que l'énergie d'épée approchait à une vitesse fulgurante, il poussa un rugissement et ses mains formèrent un sceau. Les flammes d'âme qui l'entouraient s'élancèrent pour contrer l'assaut de Wang Lin!
 
 Les flammes d'âme percutèrent l'énergie d'épée dans un fracas tonitruant, mais elles s'effondrèrent aussitôt. Elles furent incapables d'empêcher l'énergie d'épée de transpercer sa défense.
 
-Face à cette crise, les yeux de Maître Nuage-Âme s'écarquillèrent de rage. Au moment ultime, il se mordit la langue et cracha un jet de sang essentiel. Ce sang se mua en un crâne qui dévora le rayon d'énergie d'épée.
+Face à cette crise, les yeux de Yun Hunzi s'écarquillèrent de rage. Au moment ultime, il se mordit la langue et cracha un jet de sang essentiel. Ce sang se mua en un crâne qui dévora le rayon d'énergie d'épée.
 
-Un fracas assourdissant secoua l'espace alors que le corps de Maître Nuage-Âme tremblait et que son visage pâlissait. Ses yeux étaient empreints de choc, mais il demeurait, après tout, un cultivateur du stade intermédiaire du Briseur du Nirvana; l'énergie d'épée de Wang Lin ne put donc pas le blesser mortellement. L'impact projeta Wang Lin en arrière de quelques pas, son âme originelle trembla, et il vacilla vers la faille.
+Un fracas assourdissant secoua l'espace alors que le corps de Yun Hunzi tremblait et que son visage pâlissait. Ses yeux étaient empreints de choc, mais il demeurait, après tout, un cultivateur du stade intermédiaire du Briseur du Nirvana; l'énergie d'épée de Wang Lin ne put donc pas le blesser mortellement. L'impact projeta Wang Lin en arrière de quelques pas, son âme originelle trembla, et il vacilla vers la faille.
 
-« Tu cherches la mort, Junior! » rugit Maître Nuage-Âme en s'élançant. Sa vitesse était prodigieuse et il rejoignit Wang Lin en un instant.
+« Tu cherches la mort, Junior! » rugit Yun Hunzi en s'élançant. Sa vitesse était prodigieuse et il rejoignit Wang Lin en un instant.
 
 Wang Lin n'eut pas le temps de laisser son épée de fer achever son assaut. Une lueur glaciale passa dans ses yeux. Ce n'était pas une surprise; un cultivateur du stade intermédiaire du Briseur du Nirvana ne tombait pas facilement. Son but était de le blesser! Tout cela n'était qu'une préparation pour la suite!
 
-Alors que Wang Lin reculait, sur le point de s'engouffrer totalement dans la faille, Maître Nuage-Âme se rapprocha et avait déjà commencé à s'engager dans la faille. Il leva la main, prêt à lancer un sort, mais à cet instant précis, Wang Lin esquissa un sourire qui n'en était pas un. Il ouvrit la bouche et hurla: « Immobile! »
+Alors que Wang Lin reculait, sur le point de s'engouffrer totalement dans la faille, Yun Hunzi se rapprocha et avait déjà commencé à s'engager dans la faille. Il leva la main, prêt à lancer un sort, mais à cet instant précis, Wang Lin esquissa un sourire qui n'en était pas un. Il ouvrit la bouche et hurla: « Immobile! »
 
-L'énergie d'origine céleste qui bouillonnait en lui jaillit avec frénésie pour se transformer en un Sort de Stase qui enveloppa Maître Nuage-Âme. En un clin d'œil, le corps de ce dernier se figea!
+L'énergie d'origine céleste qui bouillonnait en lui jaillit avec frénésie pour se transformer en un Sort de Stase qui enveloppa Yun Hunzi. En un clin d'œil, le corps de ce dernier se figea!
 
-Avec son niveau de culture, il ne lui faudrait qu'un instant pour briser les fils invisibles du sort de stase, mais ce délai était suffisant. Au moment où Wang Lin pénétra dans la faille, un rayon d'énergie d'épée fendit l'air vers la tête de Maître Nuage-Âme. Simultanément, un coup de poing chargé de la puissance d'un Dieu Ancien fut projeté contre lui.
+Avec son niveau de culture, il ne lui faudrait qu'un instant pour briser les fils invisibles du sort de stase, mais ce délai était suffisant. Au moment où Wang Lin pénétra dans la faille, un rayon d'énergie d'épée fendit l'air vers la tête de Yun Hunzi. Simultanément, un coup de poing chargé de la puissance d'un Dieu Ancien fut projeté contre lui.
 
-L'énergie d'épée fondit sur lui. Maître Nuage-Âme parvint à se libérer du Sort de Stase juste à temps pour esquiver, mais il poussa un gémissement de douleur alors que le sang jaillissait de son bras droit. L'énergie d'épée lui avait tranché le membre!
+L'énergie d'épée fondit sur lui. Yun Hunzi parvint à se libérer du Sort de Stase juste à temps pour esquiver, mais il poussa un gémissement de douleur alors que le sang jaillissait de son bras droit. L'énergie d'épée lui avait tranché le membre!
 
-Au même instant, le coup de poing du Dieu Ancien atteignit sa cible. Bien que Maître Nuage-Âme l'ait bloqué avec un sort, la force de l'impact dévia violemment son corps sur le côté.
+Au même instant, le coup de poing du Dieu Ancien atteignit sa cible. Bien que Yun Hunzi l'ait bloqué avec un sort, la force de l'impact dévia violemment son corps sur le côté.
 
 La terreur s'empara de ses yeux. On ne pouvait pas se déplacer arbitrairement lors d'une transition à travers une faille. Un tel mouvement risquait de provoquer une téléportation immédiate vers un lieu totalement différent lors du passage entre les deux royaumes!
 
 Wang Lin avait traversé de nombreuses failles spatiales. Bien qu'il n'ait jamais exploré cette faille aux sept couleurs auparavant, il en avait conclu que toutes les brèches entre deux royaumes fonctionnaient ainsi. Et comme cette faille était instable, sa certitude n'en était que plus grande!
 
-Son objectif n'était pas de tenter de tuer un Briseur du Nirvana au stade intermédiaire, mais bien de blesser Maître Nuage-Âme pour altérer son point de transfert au moment où il pénétrerait dans la faille!
+Son objectif n'était pas de tenter de tuer un Briseur du Nirvana au stade intermédiaire, mais bien de blesser Yun Hunzi pour altérer son point de transfert au moment où il pénétrerait dans la faille!
 
 Tout s'était déroulé en un éclair, avec une rapidité inimaginable. En franchissant la faille, la vision de Wang Lin se brouilla et son âme originelle subit le contrecoup violent de l'usage du Sort de Stase, mais il parvint à le réprimer par la force. Lorsqu'il retrouva la vue, il se trouvait dans un monde étrange.
 
 Le ciel et la terre existaient ici, mais le firmament irradiait une lueur aux sept couleurs qui teignait également le sol. Cependant, ce monde n'était pas limpide, mais enveloppé d'un brouillard épais. Seules quelques rares zones en étaient épargnées.
 
-Wang Lin ne prit pas le temps d'examiner les environs. Ses yeux s'animèrent alors qu'il inspectait les autres personnes téléportées ici. Maître Nuage-Âme n'était pas là! En constatant cela, Wang Lin se détendit légèrement. Il avait tenté un pari risqué, et il venait de gagner! Son acte avait été extrêmement périlleux. Maître Nuage-Âme n'était pas préparé, et son sort avait été interrompu par la stase. Si le sort de l'autre avait été lancé, les choses ne se seraient pas terminées si vite.
+Wang Lin ne prit pas le temps d'examiner les environs. Ses yeux s'animèrent alors qu'il inspectait les autres personnes téléportées ici. Yun Hunzi n'était pas là! En constatant cela, Wang Lin se détendit légèrement. Il avait tenté un pari risqué, et il venait de gagner! Son acte avait été extrêmement périlleux. Yun Hunzi n'était pas préparé, et son sort avait été interrompu par la stase. Si le sort de l'autre avait été lancé, les choses ne se seraient pas terminées si vite.
 
 Tous se trouvaient sur une sorte d'autel d'à peine mille pieds de large. Le vieil homme nommé Pang observa les alentours en songeant au passé. C'était sa troisième visite ici. La première fois, beaucoup de leurs compagnons étaient morts. La deuxième, une partie des survivants avait encore péri. Aujourd'hui, incluant lui-même, ils n'étaient plus que trois.
 
@@ -66,15 +66,15 @@ Chen Tianjun, de la Secte Yi Shou, manifesta une vive excitation dès son arriv�
 
 Seule la vieille femme en vert fronça légèrement les sourcils; nul ne savait à quoi elle pensait.
 
-L'expression de Cang Songzi était exaltée, mais son regard devint aussitôt grave. Il tourna les yeux vers Wang Lin et demanda: « Camarade cultivateur Lu, où est passé Maître Nuage-Âme? »
+L'expression de Cang Songzi était exaltée, mais son regard devint aussitôt grave. Il tourna les yeux vers Wang Lin et demanda: « Daoïste Lu, où est passé Yun Hunzi? »
 
 Wang Lin resta impassible et fronça les sourcils: « Comment pourrais-je le savoir? »
 
-« Maître Nuage-Âme était derrière vous, et vous étiez les derniers à entrer. Un accident s'est-il produit à l'extérieur? » Cang Songzi marqua un temps d'arrêt. La joie de son retour s'était évanouie avec la disparition de Maître Nuage-Âme, laissant place à un sombre pressentiment.
+« Yun Hunzi était derrière vous, et vous étiez les derniers à entrer. Un accident s'est-il produit à l'extérieur? » Cang Songzi marqua un temps d'arrêt. La joie de son retour s'était évanouie avec la disparition de Yun Hunzi, laissant place à un sombre pressentiment.
 
 Wang Lin répondit calmement: « J'ignore si un accident a eu lieu dehors, mais lorsque je suis entré dans la faille, rien ne s'est passé. »
 
-Le vieil homme nommé Pang fixa Wang Lin et déclara d'une voix lente: « Camarade cultivateur Lu, j'ai remarqué que le camarade Nuage-Âme n'était pas loin de vous. Il est inconcevable que vous soyez entré et que lui ait disparu! »
+Le vieil homme nommé Pang fixa Wang Lin et déclara d'une voix lente: « Daoïste Lu, j'ai remarqué que le Daoïste Yun Hunzi n'était pas loin de vous. Il est inconcevable que vous soyez entré et que lui ait disparu! »
 
 Le visage de Cang Songzi s'assombrit tandis qu'il dévisageait Wang Lin. La colère bouillonnait déjà dans son cœur.
 
@@ -84,29 +84,29 @@ La vieille femme en vert observa Wang Lin, mais garda le silence.
 
 Chen Tianjun fronça les sourcils. Il fit abstraction de la scène pour contempler la brume au loin, une excitation fiévreuse dans le regard.
 
-« Le camarade cultivateur Pang devrait peser ses mots. À tenir des propos aussi inconsidérés, vous pourriez attirer un malheur funeste! » ricana Wang Lin en lançant un regard sévère au vieil homme.
+« Le Daoïste Pang devrait peser ses mots. À tenir des propos aussi inconsidérés, vous pourriez attirer un malheur funeste! » ricana Wang Lin en lançant un regard sévère au vieil homme.
 
 Le vieil homme nommé Pang tressaillit. En repensant à la mort de Wu Qing, il regretta amèrement ses paroles. Il reporta ensuite son attention sur Cang Songzi.
 
-« Camarade cultivateur Lu, je demande des explications! » lança Cang Songzi en fixant Wang Lin. Il savait que Maître Nuage-Âme surveillait ce jeune homme vêtu de blanc; désormais qu'il manquait à l'appel, ce dernier était le suspect numéro un!
+« Daoïste Lu, je demande des explications! » lança Cang Songzi en fixant Wang Lin. Il savait que Yun Hunzi surveillait ce jeune homme vêtu de blanc; désormais qu'il manquait à l'appel, ce dernier était le suspect numéro un!
 
-« Quelle plaisanterie! » Wang Lin éclata d'un rire de colère. Il regarda Cang Songzi avec indifférence et ricana: « Maître Nuage-Âme est au stade intermédiaire du Briseur du Nirvana, et je ne suis pas son égal. Vous exigez des explications de ma part, mais c'est une chose que je suis incapable de vous donner! »
+« Quelle plaisanterie! » Wang Lin éclata d'un rire de colère. Il regarda Cang Songzi avec indifférence et ricana: « Yun Hunzi est au stade intermédiaire du Briseur du Nirvana, et je ne suis pas son égal. Vous exigez des explications de ma part, mais c'est une chose que je suis incapable de vous donner! »
 
-« Maître Nuage-Âme a des jambes et un cerveau; pourquoi viendrait-il me rendre compte de ses déplacements? Ridicule! Si vous cherchez un prétexte pour combattre, alors je vous accompagnerai jusqu'au bout! » Une lueur glaciale traversa les yeux de Wang Lin, sa voix était tranchante comme une lame.
+« Yun Hunzi a des jambes et un cerveau; pourquoi viendrait-il me rendre compte de ses déplacements? Ridicule! Si vous cherchez un prétexte pour combattre, alors je vous accompagnerai jusqu'au bout! » Une lueur glaciale traversa les yeux de Wang Lin, sa voix était tranchante comme une lame.
 
-Le garçon nommé Duanmu observa Wang Lin avant de s'adresser à Cang Songzi d'un ton vif: « Intéressant. Cependant, Cang Songzi, les paroles du camarade Lu sont très logiques. Maître Nuage-Âme a des jambes et un cerveau; peut-être ne souhaitait-il pas entrer, ou préférait-il ne pas nous accompagner et a choisi une autre voie. »
+Le garçon nommé Duanmu observa Wang Lin avant de s'adresser à Cang Songzi d'un ton vif: « Intéressant. Cependant, Cang Songzi, les paroles du Daoïste Lu sont très logiques. Yun Hunzi a des jambes et un cerveau; peut-être ne souhaitait-il pas entrer, ou préférait-il ne pas nous accompagner et a choisi une autre voie. »
 
-Cang Songzi fronça intensément les sourcils. Le doute l'habitait également. Avec le niveau de culture de Maître Nuage-Âme, à moins que ce dénommé Lu ne cache une puissance bien supérieure, il était impossible qu'il ait pu éliminer Maître Nuage-Âme en si peu de temps!
+Cang Songzi fronça intensément les sourcils. Le doute l'habitait également. Avec le niveau de culture de Yun Hunzi, à moins que ce dénommé Lu ne cache une puissance bien supérieure, il était impossible qu'il ait pu éliminer Yun Hunzi en si peu de temps!
 
-Son regard balaya Wang Lin. Il refusait de croire que Maître Nuage-Âme avait péri, d'autant plus que ce dernier, tout comme lui, connaissait parfaitement cet endroit. Ils étaient tous deux déjà venus deux fois...
+Son regard balaya Wang Lin. Il refusait de croire que Yun Hunzi avait péri, d'autant plus que ce dernier, tout comme lui, connaissait parfaitement cet endroit. Ils étaient tous deux déjà venus deux fois...
 
-« Serait-il possible... que Maître Nuage-Âme ait trouvé une autre méthode d'entrée et utilisé un moyen spécial pour se téléporter ailleurs? Bien que cela soit envisageable, il est aussi possible que ce cultivateur Lu l'ait combattu, provoquant sa téléportation forcée. Mais si tel était le cas, comment ce dénommé Lu a-t-il pu se téléporter ici en toute sécurité... »
+« Serait-il possible... que Yun Hunzi ait trouvé une autre méthode d'entrée et utilisé un moyen spécial pour se téléporter ailleurs? Bien que cela soit envisageable, il est aussi possible que ce cultivateur Lu l'ait combattu, provoquant sa téléportation forcée. Mais si tel était le cas, comment ce dénommé Lu a-t-il pu se téléporter ici en toute sécurité... »
 
-L'incertitude pesait sur le cœur de Cang Songzi, mais il dut la réprimer. Il regarda Wang Lin et joignit les mains: « J'ai été imprudent dans mes propos. J'espère que le camarade cultivateur Lu ne m'en tiendra pas rigueur. »
+L'incertitude pesait sur le cœur de Cang Songzi, mais il dut la réprimer. Il regarda Wang Lin et joignit les mains: « J'ai été imprudent dans mes propos. J'espère que le Daoïste Lu ne m'en tiendra pas rigueur. »
 
 Wang Lin laissa échapper un reniflement méprisant. Il joignit ses mains en retour, mais resta muet.
 
-Pendant ce temps, dans une vallée noyée sous une brume dense au cœur de ce monde aux sept couleurs, Maître Nuage-Âme était assis, le visage livide, scrutant nerveusement les environs. Le sang ne coulait plus de son bras droit, mais la terreur transparaissait sous son expression.
+Pendant ce temps, dans une vallée noyée sous une brume dense au cœur de ce monde aux sept couleurs, Yun Hunzi était assis, le visage livide, scrutant nerveusement les environs. Le sang ne coulait plus de son bras droit, mais la terreur transparaissait sous son expression.
 
 « Maudit... J'ai été téléporté ici!! » Son cœur tremblait tandis qu'il se léchait les lèvres desséchées. Il fixa la brume épaisse à l'entrée de la vallée.
 

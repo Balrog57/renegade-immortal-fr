@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1356 - Seven Sword Chops the Heavenly Mountain (3)
 slug: sept-coups-depee-contre-la-montagne-celeste-3
 ---
-Les yeux du Daoïste Esprit Dispersé étaient empreints de tristesse, comme s'il ne voulait pas activer cette formation, mais il le devait. Il n'avait jamais rien imposé à quiconque; ses enseignements taoïstes s'étaient diffusés au fil des âges auprès d'innombrables cultivateurs et mortels...
+Les yeux du Daoïste Esprit Dispersé étaient empreints de tristesse, comme s'il ne voulait pas activer cette formation, mais il le devait. Il n'avait jamais rien imposé à quiconque; ses enseignements du Dao s'étaient diffusés au fil des âges auprès d'innombrables cultivateurs et mortels...
 
 « Le monde dans lequel nous vivons est une illusion. Le Royaume Céleste dont on nous a parlé est un mensonge. Nous devons briser ce monde ensemble pour découvrir la vérité, pour sortir de cette existence et devenir de véritables... êtres humains! Tel est mon Dao! »
 
@@ -18,9 +18,9 @@ Jeunes et vieux, hommes et femmes, tous sortirent et s'assirent. Ils ne pouvaien
 
 Les cultivateurs des 7 Millions de Mondes sortirent tous de leurs sectes respectives. Ils fixèrent le ciel avec détermination avant de s'asseoir, libérant une volonté plus puissante encore!
 
-« Nous ne sommes pas des cultivateurs stupides, nous ne sommes pas des êtres qui permettraient à autrui de nous détruire par la rétribution divine; nous avons chair et sang, nous connaissons la joie et la tristesse. Cultiver pour devenir un être céleste est le Grand Dao, et nous voulons atteindre le Royaume Céleste. Cependant, ce Royaume Céleste est faux et impitoyable, alors nous allons le détruire et devenir nous-mêmes des êtres célestes! »
+« Nous ne sommes pas des cultivateurs stupides, nous ne sommes pas des êtres qui permettraient à autrui de nous détruire par la Tribulation Céleste; nous avons chair et sang, nous connaissons la joie et la tristesse. Cultiver pour devenir un être céleste est le Grand Dao, et nous voulons atteindre le Royaume Céleste. Cependant, ce Royaume Céleste est faux et impitoyable, alors nous allons le détruire et devenir nous-mêmes des êtres célestes! »
 
-D'innombrables cultivateurs au sommet de la Formation de l'Âme, dont la culture avait été scellée par le Daoïste Esprit Dispersé pour ne pas attirer la rétribution divine, sortirent de leurs cachettes. Ils contemplèrent le ciel d'un regard farouche, et leur puissance de volonté explosa!
+D'innombrables cultivateurs au sommet de la Formation de l'Âme, dont la culture avait été scellée par le Daoïste Esprit Dispersé pour ne pas attirer la Tribulation Céleste, sortirent de leurs cachettes. Ils contemplèrent le ciel d'un regard farouche, et leur puissance de volonté explosa!
 
 « Nous sommes des humains, pas du bétail destiné à l'abattoir. Nous sommes des cultivateurs, pas des outils que le Royaume Céleste utilise pour collecter le Tonnerre Spirituel! Le Royaume Céleste s'effondrera et le monde se brisera. Nous voulons sortir de cette cage! »
 
@@ -78,7 +78,7 @@ Une épée cristalline commença à se condenser au cœur de cette tempête. Dè
 
 Cette épée mesurait sept pieds de long pour trois pouces de large. Elle était radieuse et dégageait une lueur éblouissante!
 
-« Cher compagnon cultivateur, ce vieil homme a utilisé les vies des 7 Millions de Mondes et le monde lui-même pour créer cette formation. Elle scellera ce monde tout en condensant cette épée qui tranche le ciel. Prends cette épée, c'est comme tenir mes 7 Millions de Mondes, et porte sept coups pour terrasser le Grand Ancien. C'est là que résident mes 70 % de certitude! »
+« Daoïste, ce vieil homme a utilisé les vies des 7 Millions de Mondes et le monde lui-même pour créer cette formation. Elle scellera ce monde tout en condensant cette épée qui tranche le ciel. Prends cette épée, c'est comme tenir mes 7 Millions de Mondes, et porte sept coups pour terrasser le Grand Ancien. C'est là que résident mes 70 % de certitude! »
 
 L'épée de sept pieds brilla et vola vers Wang Lin. Ce dernier leva la main et l'épée vint se loger dans sa paume. En la tenant, Wang Lin sentit clairement la folie inimaginable qui l'habitait!
 

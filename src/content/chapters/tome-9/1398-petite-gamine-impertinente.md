@@ -20,7 +20,7 @@ Il y avait aussi le 13e Ancien Déchu. Son expression changea radicalement et il
 
 « Dès que j'ai vu le Clan Long Jia, j'aurais dû m'en douter. Le neuvième Ancien Déchu a été dépouillé de son titre pour avoir offensé cette personne!! Je... J'ai osé m'en servir pour asseoir mon autorité... »
 
-Le Patriarche des Cours d'Eau tremblait, léchant ses lèvres desséchées. Une panique sourde envahissait son cœur.
+Le Patriarche du Clan Chuan He tremblait, léchant ses lèvres desséchées. Une panique sourde envahissait son cœur.
 
 Le messager commença à expliquer respectueusement: « J'ai fait attendre le Jeune Empereur. L'ouverture de ce passage est un processus long, c’est pourquoi cela a pris du temps. »
 
@@ -62,7 +62,7 @@ Ceux qui chargeaient l'homme s'arrêtèrent net et reculèrent derrière Wang Li
 
 L'homme du Clan Hun She pâlit davantage en entendant ces paroles; un désespoir encore plus profond envahit ses yeux. Ces mots étaient bien pires que la mort. Certes, sa mort n'aurait coûté qu'une vie, mais bien qu'il soit sauvé, il venait de devenir le paria de tout son clan. L'homme joignit les mains et sourit amèrement: « Merci, Jeune Empereur, pour votre clémence. »
 
-L'attention de Wang Lin se détourna de lui pour se poser sur le Patriarche des Cours d'Eau, le 13e Ancien Déchu.
+L'attention de Wang Lin se détourna de lui pour se poser sur le Patriarche du Clan Chuan He, le 13e Ancien Déchu.
 
 Le cœur de ce dernier rata un battement et son visage devint livide.
 
@@ -70,13 +70,13 @@ Wang Lin pointa le 13e Ancien Déchu du doigt et dit lentement au messager: « D
 
 Le messager hésita un instant, mais face à la froideur qui brillait dans les yeux de Wang Lin, il acquiesça.
 
-« Le Clan Chuan He perd également sa place dans la Sélection des Anciens Délaissés! » Après avoir parlé, Wang Lin tourna son regard vers le Patriarche de l'Évasion Nuageuse, non loin de là, et ajouta: « Brisez-vous un bras, et que cela ne se reproduise plus! »
+« Le Clan Chuan He perd également sa place dans la Sélection des Anciens Délaissés! » Après avoir parlé, Wang Lin tourna son regard vers le Patriarche du Clan Yun Dun, non loin de là, et ajouta: « Brisez-vous un bras, et que cela ne se reproduise plus! »
 
-Le Patriarche de l'Évasion Nuageuse sentit la sueur perler sur son front. Il savait que Wang Lin était puissant; il avait délibérément poussé le 13e Ancien Déchu à provoquer ce dernier, sans s'attendre à ce que Wang Lin remarque son manège.
+Le Patriarche du Clan Yun Dun sentit la sueur perler sur son front. Il savait que Wang Lin était puissant; il avait délibérément poussé le 13e Ancien Déchu à provoquer ce dernier, sans s'attendre à ce que Wang Lin remarque son manège.
 
 À cet instant, il serra les dents, sa main droite prit la forme d'une épée et il pointa son épaule gauche sans hésiter. Dans un craquement sinistre, tous les méridiens de son bras gauche furent brisés.
 
-Le visage du Patriarche de l'Évasion Nuageuse était d'une pâleur mortelle lorsqu'il murmura: « Merci, Jeune Empereur, pour votre clémence. Ce Junior reconnaît sa faute. »
+Le visage du Patriarche du Clan Yun Dun était d'une pâleur mortelle lorsqu'il murmura: « Merci, Jeune Empereur, pour votre clémence. Ce Junior reconnaît sa faute. »
 
 Wang Lin se détourna et entra calmement dans le passage.
 

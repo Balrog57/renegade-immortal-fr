@@ -38,7 +38,7 @@ Cependant, Wang Lin se tenait justement dans la brèche de la Formation de Scell
 
 « Vous avez tous tué des dizaines de milliers de mes cultivateurs de la Mer Yun du Royaume Intérieur. Comment pourrais-je vous laisser entrer et sortir à votre guise? » Une lueur glaciale passa dans les yeux de Wang Lin, et il ne recula pas d'un pouce!
 
-Les cultivateurs de Luotian, ceux de la Rivière Invoquée, les milliers de survivants de la Mer Yun, l'océan empoisonné hurlant et les dizaines de milliers de bêtes moustiques chargèrent tous les cultivateurs du Royaume Extérieur en pleine retraite!
+Les cultivateurs de Luotian, ceux de Zhao He, les milliers de survivants de la Mer Yun, l'océan empoisonné hurlant et les dizaines de milliers de bêtes moustiques chargèrent tous les cultivateurs du Royaume Extérieur en pleine retraite!
 
 Tandis que des grondements faisaient écho, encore plus de cultivateurs du Royaume Extérieur périrent. Le désespoir fit éclater une forme de folie en eux, et ils chargèrent vers la faille où se trouvait Wang Lin. Ils voulaient fuir, ils voulaient retourner au Système d'Étoiles Anciennes!
 
@@ -52,13 +52,13 @@ Ils continuaient de s'approcher tandis que le Feu Éthéré de Wang Lin faisait 
 
 Il se tenait là, tel une porte scellant les cieux. Nul ne pouvait passer!
 
-Le jeune homme au regard froid, la concubine impériale céleste et les derniers cultivateurs du troisième niveau du Royaume Extérieur étaient également anxieux. Cependant, bloqués par le Maître Hong Shan et son groupe, ils ne pouvaient rien faire!
+Han Yi, la concubine impériale céleste et les derniers cultivateurs du troisième niveau du Royaume Extérieur étaient également anxieux. Cependant, bloqués par le Maître Hong Shan et son groupe, ils ne pouvaient rien faire!
 
 Cette bataille était bien plus tragique que tout ce que Wang Lin avait vu de sa vie. Même avec son cœur de massacre, il ressentait une profonde tristesse.
 
 Il leva la main droite et l'agita, projetant plus de dix Feuilles Anciennes vers les cultivateurs du Royaume Extérieur. Ces feuilles formèrent plus de dix couches de sceaux, empêchant ces dizaines de milliers d'envahisseurs de s'échapper!
 
-Les yeux des cultivateurs de Luotian, des cultivatrices de la Rivière Invoquée et des milliers de membres de la Mer Yun étaient rougis par le carnage. Leurs pertes et leurs blessures étaient également lourdes. Sans l'océan empoisonné et les bêtes moustiques, cette bataille aurait été encore plus éprouvante pour eux.
+Les yeux des cultivateurs de Luotian, des cultivatrices de Zhao He et des milliers de membres de la Mer Yun étaient rougis par le carnage. Leurs pertes et leurs blessures étaient également lourdes. Sans l'océan empoisonné et les bêtes moustiques, cette bataille aurait été encore plus éprouvante pour eux.
 
 « Je veux que tous ceux qui viennent du Royaume Extérieur... meurent! Aucun d'entre vous ne partira! » Les paroles de Wang Lin étaient empreintes de détermination. Une fois les Feuilles Anciennes déployées, sa main droite forma rapidement des sceaux et d'innombrables restrictions apparurent.
 
@@ -78,7 +78,7 @@ La puissance d'un cultivateur à la grande perfection du sommet du Vide Arcaniqu
 
 Personne ne pouvait contraindre le Souverain à changer d'avis. Miaoyin Daozun ne le pouvait pas, Jiutian Mozun non plus, mais Lanmeng le pouvait!
 
-Le Maître Hong Shan, qui combattait le jeune homme au regard froid, devint lui aussi grave. Le nom de Lanmeng Daozun était trop célèbre pour être ignoré!
+Le Maître Hong Shan, qui combattait Han Yi, devint lui aussi grave. Le nom de Lanmeng Daozun était trop célèbre pour être ignoré!
 
 La main droite de Wang Lin marqua un temps d'arrêt tandis qu'il observait l'homme d'âge mûr. Le fracas du massacre résonnait encore à ses oreilles. Après un long moment, il secoua la tête.
 

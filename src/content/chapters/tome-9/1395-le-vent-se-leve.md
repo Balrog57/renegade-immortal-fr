@@ -102,7 +102,7 @@ L'homme d'âge moyen tendit négligemment la main pour saisir la goutte de sang 
 
 « C'est exact, l'essence contenue dans ce sang ne peut être trompeuse, c'est bien le Sang de l'Oiseau Vermillon!! L'Oiseau Vermillon!! » L'homme d'âge moyen était transporté par l'excitation et tendit sa main gauche vers le vide.
 
-Le patriarche des Moineaux de Feu s'apprêtait à quitter les profondeurs, le visage empreint de remords. Il poussa un soupir lorsqu'un grondement retentit soudain derrière lui. Il se retourna et ses pupilles se rétractèrent lorsqu'une gigantesque paume de feu le saisit.
+Le patriarche du Clan Huo Que s'apprêtait à quitter les profondeurs, le visage empreint de remords. Il poussa un soupir lorsqu'un grondement retentit soudain derrière lui. Il se retourna et ses pupilles se rétractèrent lorsqu'une gigantesque paume de feu le saisit.
 
 En un éclair, la main ramena le vieil homme au bord de la mer de flammes violettes.
 
@@ -112,4 +112,4 @@ En entendant cela, l'homme d'âge moyen éclata de rire. L'extase brillait dans 
 
 « Bien, bien, bien! Tu es digne d'avoir été choisi par moi pour être le patriarche du clan, excellent travail!! Envoie immédiatement tous les membres du clan pour trouver la source de ce sang dans les Terres Déchues, coûte que coûte!! »
 
-Le patriarche des Moineaux de Feu hocha rapidement la tête et s'apprêta à partir. Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il réprimait son excitation. Il ajouta: « Il ne m'est pas commode de me rendre dans les Terres Déchues, je vous attendrai donc à l'extérieur pour vous accueillir. De plus, soyez prudents une fois sur place et vérifiez s'il ne s'agit pas d'un piège! »
+Le patriarche du Clan Huo Que hocha rapidement la tête et s'apprêta à partir. Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il réprimait son excitation. Il ajouta: « Il ne m'est pas commode de me rendre dans les Terres Déchues, je vous attendrai donc à l'extérieur pour vous accueillir. De plus, soyez prudents une fois sur place et vérifiez s'il ne s'agit pas d'un piège! »

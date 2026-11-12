@@ -46,7 +46,7 @@ Les yeux de la vieille femme se rétrécirent. Elle fixa le bois noir et laissa 
 
 Cang Songzi ne s'expliqua pas et demanda simplement: « Quelle est votre confiance avec ceci? »
 
-La vieille femme détourna le regard pour calculer, puis répondit: « 40 %. S'il y avait l'Empreinte de l'Esprit Guerrier, ce serait 50 %, mais malheureusement... »
+La vieille femme détourna le regard pour calculer, puis répondit: « 40 %. S'il y avait le Sceau d'Asservissement des Esprits, ce serait 50 %, mais malheureusement... »
 
 Cang Songzi hésita un instant avant d'extraire un autre objet de son espace de stockage. C'était un cristal éclatant qui semblait abriter du sang frais en son sein. À son apparition, une aura destructrice capable de déchirer les cieux se propagea.
 
@@ -90,6 +90,6 @@ En voyant cela, la belle femme écarquilla les yeux et prit une grande inspirati
 
 « Brise! » rugit Cang Songzi, tentant de donner tout ce qu'il avait.
 
-Le pendentif de jade fonça dans la fissure et s'effondra brusquement. Un impact bien plus violent que les précédents surgit, créant une tempête qui affecta la brume sur plusieurs kilomètres. Malgré les craquements, l'écran de lumière noire ne céda pas totalement, mais la fissure atteignit désormais cent pieds de large. Bien qu'elle se régénérât, le processus était ralenti.
+Le pendentif de jade fonça dans la fissure et s'effondra brusquement. Un impact bien plus violent que les précédents surgit, créant une tempête qui affecta la brume sur plusieurs dizaines de milliers de pieds. Malgré les craquements, l'écran de lumière noire ne céda pas totalement, mais la fissure atteignit désormais cent pieds de large. Bien qu'elle se régénérât, le processus était ralenti.
 
 Cang Songzi s'élança et se précipita dans la brèche, ignorant la femme. La jeune femme, les yeux brillants, suivit immédiatement son mouvement. Peu après, un rayon de lumière perça la brume: c'était Wang Lin. Il observa la fissure sans s'y engouffrer aussitôt; après avoir disposé d'une grande quantité de restrictions à l'extérieur, il se précipita lui aussi dans l'ouverture!

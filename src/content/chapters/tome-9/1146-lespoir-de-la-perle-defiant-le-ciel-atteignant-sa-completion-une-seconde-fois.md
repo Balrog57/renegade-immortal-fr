@@ -48,9 +48,9 @@ La silhouette de l'homme d'âge moyen s'arrêta net et le calme dans ses yeux vo
 
 Continent de Mo Luo, Secte Gui Yuan.
 
-Lu Yanfei regardait silencieusement la demeure ordinaire. Après avoir hésité, elle entra dans la cour. Xu Yun la suivait, très tendue; elle pouvait distinctement entendre les battements rapides de son cœur.
+Lu Yanfei regardait silencieusement la demeure ordinaire. Après avoir hésité, elle entra dans la cour. Sun Yun la suivait, très tendue; elle pouvait distinctement entendre les battements rapides de son cœur.
 
-La porte de Wang Lin était close. Lu Yanfei et Xu Yun se tinrent devant le seuil en silence.
+La porte de Wang Lin était close. Lu Yanfei et Sun Yun se tinrent devant le seuil en silence.
 
 Après un long moment, Lu Yanfei mordit sa lèvre inférieure et demanda doucement: « Senior est-il là? »
 
@@ -60,9 +60,9 @@ En vérité, il y a fort longtemps dans le Système Stellaire de l'Alliance, une
 
 Lu Yanfei laissa échapper un sourire d'une grande beauté. Elle s'inclina vers la maison et dit doucement: « Maître avait un oncle-maître nommé Lu Zihao. Selon Maître, le Grand Oncle-maître Lu Zihao était obsédé par le Dao. Hormis lors de sa disparition, il n'avait jamais quitté le continent de Mo Luo. Il ne se rendait même jamais à la secte principale et n'avait guère d'amis. Avec le temps, plus personne au sein de la Secte Gui Yuan ne l'a jamais vu. »
 
-« Même mes trois frères apprentis aînés ne l'ont jamais vu. Je n'ai vu qu'un portrait de lui, que Maître m'a montré. Il me l'a confié… car ce Grand Oncle-maître Lu est un ancêtre de ma famille Lu. Ce portrait était très ancien et en lambeaux. En revenant à l'instant, il a été détruit. »
+« Même mes trois Seniors frères ne l'ont jamais vu. Je n'ai vu qu'un portrait de lui, que Maître m'a montré. Il me l'a confié… car ce Grand Oncle-maître Lu est un ancêtre de ma famille Lu. Ce portrait était très ancien et en lambeaux. En revenant à l'instant, il a été détruit. »
 
-Après avoir dit cela, Lu Yanfei s'éloigna respectueusement avec un sourire. Xu Yun était confuse par les paroles de sa maîtresse; elle ne comprenait pas pourquoi elle avait tenu ce discours.
+Après avoir dit cela, Lu Yanfei s'éloigna respectueusement avec un sourire. Sun Yun était confuse par les paroles de sa maîtresse; elle ne comprenait pas pourquoi elle avait tenu ce discours.
 
 Wang Lin, assis sur son lit, fixait le lotus noir dans sa main droite. Il leva la tête et ses yeux brillèrent intensément. Son regard semblait pouvoir traverser les murs pour se poser sur Lu Yanfei qui s'éloignait.
 
@@ -70,7 +70,7 @@ Le corps de Lu Yanfei trembla, mais elle ne s'arrêta pas. Elle maintint son cal
 
 « Quelle femme intelligente! » Wang Lin détourna le regard. À part leur échange sur la montagne, ils n'avaient eu aucun autre contact. Pourtant, cette femme avait été capable d'une analyse aussi remarquable en se basant uniquement sur le récit de sa disciple, leur conversation passée et le fait qu'il ait tué Song Wude et Lu Di.
 
-Xu Yun ne comprenait pas ses paroles, mais avec l'esprit sagace de Wang Lin, il comprit parfaitement. Lu Yanfei était certaine qu'il était l'homme aux cheveux blancs. Dans son esprit, pour quelqu'un de son niveau de culture, se cacher dans la Secte Gui Yuan signifiait soit chercher quelque chose ici, soit fuir des ennemis.
+Sun Yun ne comprenait pas ses paroles, mais avec l'esprit sagace de Wang Lin, il comprit parfaitement. Lu Yanfei était certaine qu'il était l'homme aux cheveux blancs. Dans son esprit, pour quelqu'un de son niveau de culture, se cacher dans la Secte Gui Yuan signifiait soit chercher quelque chose ici, soit fuir des ennemis.
 
 Cependant, Lu Yanfei ne voyait rien que Wang Lin puisse convoiter, elle fut donc convaincue qu'il fuyait ses ennemis. Par conséquent, si Wang Lin voulait rester à la Secte Gui Yuan, il lui fallait une identité pour n'éveiller aucun soupçon. Ce que Lu Yanfei venait de faire, c'était de lui offrir cette identité. Quant aux ennemis de Wang Lin, elle choisissait évidemment d'ignorer leur existence.
 

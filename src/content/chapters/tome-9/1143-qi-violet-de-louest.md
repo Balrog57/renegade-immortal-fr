@@ -10,23 +10,23 @@ La saison des pluies dura plusieurs mois, comme si elle ne devait jamais s'arrê
 
 En un clin d'œil, Wang Lin était déjà à la Secte Gui Yuan depuis dix jours.
 
-Xu Yun était déjà revenue de chez sa maîtresse, et durant ce temps, elle avait secrètement enquêté sur les trente et un mortels ramenés du Nord, sans rien trouver. Elle avait également observé Wang Lin, mais n'avait rien remarqué d'anormal.
+Sun Yun était déjà revenue de chez sa maîtresse, et durant ce temps, elle avait secrètement enquêté sur les trente et un mortels ramenés du Nord, sans rien trouver. Elle avait également observé Wang Lin, mais n'avait rien remarqué d'anormal.
 
 Même sa maîtresse, Lu Yanfei, prenait cette affaire au sérieux. Elle avait même utilisé des sorts pour tenter de trouver des indices, mais sans aucun résultat.
 
 La silhouette aux cheveux blancs ne s'était pas dissipée avec le temps, elle était devenue encore plus profonde. La nuit, elle s'éveillait de sa culture, et la silhouette blanche ainsi que ce doigt gracieux apparaissaient inconsciemment dans son esprit.
 
-« Qui est-il exactement... » Cette question hantait toujours Xu Yun.
+« Qui est-il exactement... » Cette question hantait toujours Sun Yun.
 
-Cet après-midi-là, Xu Yun poussa la porte et quelques gouttes de pluie s'écrasèrent sur son visage. Elle fronça les sourcils en levant sa main semblable au jade pour essuyer l'humidité. Son apparence était rafraîchissante, empreinte d'un certain charme, alors qu'elle sortait.
+Cet après-midi-là, Sun Yun poussa la porte et quelques gouttes de pluie s'écrasèrent sur son visage. Elle fronça les sourcils en levant sa main semblable au jade pour essuyer l'humidité. Son apparence était rafraîchissante, empreinte d'un certain charme, alors qu'elle sortait.
 
-Les gouttes de pluie semblaient heurter une protection invisible lorsqu'elles s'approchaient à moins de cinq pieds d'elle, avant de s'écouler sur les côtés. En traversant la cour, Xu Yun observa les diverses herbes avant de porter son regard vers la demeure de Wang Lin.
+Les gouttes de pluie semblaient heurter une protection invisible lorsqu'elles s'approchaient à moins de cinq pieds d'elle, avant de s'écouler sur les côtés. En traversant la cour, Sun Yun observa les diverses herbes avant de porter son regard vers la demeure de Wang Lin.
 
-La première personne qu'elle soupçonnait était Wang Lin! Pourtant, durant ces derniers jours, ce jeune homme nommé Ceng Niu s'était comporté comme un véritable mortel, si l'on excepte son grand sang-froid et son calme.
+La première personne qu'elle soupçonnait était Wang Lin! Pourtant, durant ces derniers jours, ce jeune homme nommé Zeng Niu s'était comporté comme un véritable mortel, si l'on excepte son grand sang-froid et son calme.
 
 Elle ne parvenait pas à en trouver la raison, mais elle marcha inconsciemment vers la maison de Wang Lin et resta un instant devant l'entrée. Elle arqua les sourcils et poussa la porte.
 
-« Je vous ai laissé ici pour prendre soin des herbes. Durant ces jours, l'avez-vous fait une seule fois? » Xu Yun fixa Wang Lin, qui lisait un rouleau de bois assis près d'une petite table. Pour une raison quelconque, chaque fois qu'elle voyait Wang Lin, elle peinait à contrôler ses émotions et perdait le calme qu'une cultivatrice de l'Yin Illusoire devrait posséder.
+« Je vous ai laissé ici pour prendre soin des herbes. Durant ces jours, l'avez-vous fait une seule fois? » Sun Yun fixa Wang Lin, qui lisait un rouleau de bois assis près d'une petite table. Pour une raison quelconque, chaque fois qu'elle voyait Wang Lin, elle peinait à contrôler ses émotions et perdait le calme qu'une cultivatrice de l'Yin Illusoire devrait posséder.
 
 Wang Lin posa le rouleau de bois qu'il avait emprunté à la Secte Gui Yuan. Il ne contenait aucune information précieuse; c'était un document que tous les nouveaux disciples pouvaient consulter. Il relatait l'histoire du continent de Mo Luo et offrait une brève introduction de la Mer Yun.
 
@@ -34,31 +34,31 @@ Ces rouleaux permettaient aux nouveaux disciples de mieux comprendre la Mer Yun.
 
 Pendant sa lecture, Wang Lin n'était pas totalement concentré; il réfléchissait également à l'alchimie et aux bêtes spirituelles.
 
-Il regarda calmement Xu Yun. Assis là, il demanda simplement: « Une seule herbe est-elle morte? »
+Il regarda calmement Sun Yun. Assis là, il demanda simplement: « Une seule herbe est-elle morte? »
 
-Xu Yun fut surprise. Les herbes étaient un peu plus luxuriantes qu'auparavant. Même certaines racines qu'elle avait déjà abandonnées avaient étrangement survécu.
+Sun Yun fut surprise. Les herbes étaient un peu plus luxuriantes qu'auparavant. Même certaines racines qu'elle avait déjà abandonnées avaient étrangement survécu.
 
 Wang Lin ne dit plus rien. Il reprit son rouleau et continua sa lecture.
 
-Plus il restait calme, plus Xu Yun fronçait les sourcils. Dès qu'elle entra, un parfum se diffusa dans la petite pièce. Wang Lin connaissait cette odeur; lorsque Xu Yun pratiquait sa culture auparavant, il avait déjà senti ce parfum corporel.
+Plus il restait calme, plus Sun Yun fronçait les sourcils. Dès qu'elle entra, un parfum se diffusa dans la petite pièce. Wang Lin connaissait cette odeur; lorsque Sun Yun pratiquait sa culture auparavant, il avait déjà senti ce parfum corporel.
 
-Xu Yun fixa Wang Lin et dit froidement: « Le fait que les herbes ne meurent pas n'a rien à voir avec vous. C'est parce qu'il y a une abondance d'énergie spirituelle ici et que ces herbes sont principalement de l'élément eau; elles peuvent donc absorber l'énergie originelle de la pluie. »
+Sun Yun fixa Wang Lin et dit froidement: « Le fait que les herbes ne meurent pas n'a rien à voir avec vous. C'est parce qu'il y a une abondance d'énergie spirituelle ici et que ces herbes sont principalement de l'élément eau; elles peuvent donc absorber l'énergie originelle de la pluie. »
 
-« Oh. » Wang Lin hocha la tête nonchalamment sans même regarder Xu Yun. Il se remit à lire le rouleau qu'il tenait en main.
+« Oh. » Wang Lin hocha la tête nonchalamment sans même regarder Sun Yun. Il se remit à lire le rouleau qu'il tenait en main.
 
-« Ceng Niu! » Devant l'attitude de Wang Lin, Xu Yun lui lança un regard noir de ses beaux yeux.
+« Zeng Niu! » Devant l'attitude de Wang Lin, Sun Yun lui lança un regard noir de ses beaux yeux.
 
-Wang Lin fronça les sourcils, reposa à nouveau le rouleau et fixa froidement Xu Yun.
+Wang Lin fronça les sourcils, reposa à nouveau le rouleau et fixa froidement Sun Yun.
 
-Xu Yun était prête à l'invective, mais lorsqu'elle croisa soudainement le regard de Wang Lin, elle en eut le souffle coupé et avala ses mots. Elle fut saisie par la surprise.
+Sun Yun était prête à l'invective, mais lorsqu'elle croisa soudainement le regard de Wang Lin, elle en eut le souffle coupé et avala ses mots. Elle fut saisie par la surprise.
 
 « Ma tâche est d'empêcher les herbes de mourir. Si rien n'est arrivé, je vous prie de ne pas me déranger », dit calmement Wang Lin, avant de détourner les yeux vers son rouleau.
 
-Le cœur de Xu Yun trembla sans raison sous le regard de Wang Lin.
+Le cœur de Sun Yun trembla sans raison sous le regard de Wang Lin.
 
 « Est-ce lui... »
 
-Xu Yun réfléchit un instant en lançant un regard profond à Wang Lin. Elle mordit ensuite sa lèvre inférieure et quitta la pièce.
+Sun Yun réfléchit un instant en lançant un regard profond à Wang Lin. Elle mordit ensuite sa lèvre inférieure et quitta la pièce.
 
 Tard dans la nuit, la lampe à huile sur la table était allumée. Dehors, l'obscurité régnait, seul le bruit de la pluie se mêlait aux grondements du tonnerre qui suivait les averses.
 

@@ -54,11 +54,11 @@ La flamme de la taille d'un ongle entre ses sourcils brilla avec une violence ac
 
 Dans le Système Stellaire de la Mer Yun, dans un village mortel sur un continent flottant, une fillette de sept ou huit ans boudait en poussant un garçon endormi à côté d'elle.
 
-« Petite Lan, laisse-moi dormir encore un peu. Hier soir, je suis allé avec Petit Tiger et les autres voler des œufs chez les Xu, je suis épuisé... »
+« Petite Lan, laisse-moi dormir encore un peu. Hier soir, je suis allé avec Huzi et les autres voler des œufs chez les Xu, je suis épuisé... »
 
 Le garçon était un peu plus âgé, huit ou neuf ans environ. Après avoir ouvert ses yeux ensommeillés pour marmonner quelques mots, il se rendormit.
 
-Le temps sembla s'écouler et les années passèrent... « Grand Frère, Tiger m'a harcelée aujourd'hui. Il... Il m'a embrassée en cachette! » Sur un sentier du village, un adolescent et une adolescente marchaient sous le soleil couchant.
+Le temps sembla s'écouler et les années passèrent... « Grand Frère, Huzi m'a harcelée aujourd'hui. Il... Il m'a embrassée en cachette! » Sur un sentier du village, un adolescent et une adolescente marchaient sous le soleil couchant.
 
 Le garçon portait un panier de plantes médicinales dans son dos. En marchant, il bâillait.
 
@@ -66,7 +66,7 @@ La jeune fille à ses côtés portait une robe fleurie et semblait avoir treize 
 
 Elle fixa le garçon et s'exclama bruyamment: « Grand Frère, est-ce que tu m'écoutes?! »
 
-« J'ai entendu, j'ai entendu. Petite Lan, Père et Mère ne sont plus là. La tante de Tiger a été bonne avec nous cette année. Tiger n'est pas une mauvaise personne et tu n'es plus une enfant. Pourquoi ne pas l'épouser? » Le garçon bâilla en regardant sa petite sœur.
+« J'ai entendu, j'ai entendu. Petite Lan, Père et Mère ne sont plus là. La tante de Huzi a été bonne avec nous cette année. Huzi n'est pas une mauvaise personne et tu n'es plus une enfant. Pourquoi ne pas l'épouser? » Le garçon bâilla en regardant sa petite sœur.
 
 « Toi!! Comment peux-tu être un frère pareil?! Je parie que c'est comme pour la Grande Sœur Hong Hong, tu veux que j'épouse son petit frère pour avoir une chance avec elle! Je ne veux pas d'un frère comme toi! » La jeune fille frappa du pied en fixant le garçon.
 
@@ -80,13 +80,13 @@ Le corps du jeune homme était mince; il n'était pas grand et son teint était 
 
 Au fil des ans, la jeune fille avait compris que même si son frère ne le disait jamais, il avait été très bon envers elle. Dès qu'elle désirait quelque chose, son frère faisait tout son possible pour l'obtenir.
 
-Le jeune homme sourit. Ses dents étaient d'une grande blancheur et son esprit semblait bien plus vif. Après avoir entendu les paroles de la jeune fille, sa main droite caressa les cheveux de sa sœur et il dit doucement: « Ne réfléchis pas trop, ton frère n'est pas si fragile. Le rêve de ton grand frère est de devenir un immortel. Une fois que toi et Tiger serez mariés, je partirai chercher une secte pour m'y joindre! »
+Le jeune homme sourit. Ses dents étaient d'une grande blancheur et son esprit semblait bien plus vif. Après avoir entendu les paroles de la jeune fille, sa main droite caressa les cheveux de sa sœur et il dit doucement: « Ne réfléchis pas trop, ton frère n'est pas si fragile. Le rêve de ton grand frère est de devenir un immortel. Une fois que toi et Huzi serez mariés, je partirai chercher une secte pour m'y joindre! »
 
-Le visage de la jeune fille rougit et elle murmura: « Tiger est très agaçant. Je lui ai déjà dit que si la Grande Sœur Hong Hong ne t'épouse pas, alors je n'épouserai pas Tiger non plus! »
+Le visage de la jeune fille rougit et elle murmura: « Huzi est très agaçant. Je lui ai déjà dit que si la Grande Sœur Hong Hong ne t'épouse pas, alors je n'épouserai pas Huzi non plus! »
 
 Le jeune homme sourit, le regard tendre. Il murmura: « Tu as grandi et tu seras bientôt une femme, alors ne fais plus de caprices d'enfant. Le rêve de ton frère est vraiment de devenir un immortel. Je ne veux pas passer le reste de ma vie dans cet endroit monotone... » Il leva la tête vers le ciel sombre.
 
-« Ma vie, celle de Sima Mo, ne sera pas ordinaire... Petite Lan, attends ton grand frère. Quand j'aurai réussi, je reviendrai pour que toi et Tiger puissiez vivre éternellement. Peut-être aurais-je même quelques neveux d'ici là. Haha. » Le jeune homme semblait heureux.
+« Ma vie, celle de Sima Mo, ne sera pas ordinaire... Petite Lan, attends ton grand frère. Quand j'aurai réussi, je reviendrai pour que toi et Huzi puissiez vivre éternellement. Peut-être aurais-je même quelques neveux d'ici là. Haha. » Le jeune homme semblait heureux.
 
 La jeune fille regarda le jeune homme devant elle. Depuis la mort de leurs parents, son frère était devenu son ciel, son protecteur. Ses yeux s'embuèrent de larmes tandis qu'elle baissait la tête et murmurait: « Grand Frère réussira certainement. Petite Lan attendra ton retour. »
 

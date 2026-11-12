@@ -42,7 +42,7 @@ Telle était sa fierté: la fierté d'un cultivateur défiant les cieux et la di
 
 Parmi les innombrables clans du monde antique, lequel pouvait égaler le clan des Dieux Anciens?
 
-Comme le Clan Dévorant la Lune. Wang Lin avait appris de Ling Er qu'ils n'étaient que les serviteurs des Dieux Anciens. Si le Clan Dévorant la Lune était ainsi, alors ce clan de la marque de foudre, qui semblait également appartenir au Royaume Extérieur, devait lui aussi se soumettre!
+Comme le Clan Yue Shi. Wang Lin avait appris de Ling Er qu'ils n'étaient que les serviteurs des Dieux Anciens. Si le Clan Yue Shi était ainsi, alors ce clan de la marque de foudre, qui semblait également appartenir au Royaume Extérieur, devait lui aussi se soumettre!
 
 Wang Lin ouvrit les yeux et révéla un regard d'une tyrannie absolue. Il laissa échapper un froid reniflement et sa main droite s'abattit sur la tête de la statue de pierre. Un grondement tonnerre retentit, mais la statue ne s'effondra pas. Au contraire, un éclair assourdissant jaillit vers le ciel avant de se transformer en un dragon de foudre qui chargea Wang Lin!
 

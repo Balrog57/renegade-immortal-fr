@@ -12,7 +12,7 @@ Wang Lin méditait en silence, profondément inquiet. Personne ne pouvait empêc
 
 Ce jeune homme était son espoir, l'espoir de la Secte Divine de l'Oiseau Vermillon. Pour cet enfant, il était prêt à tout!
 
-« Lors de la crise dans les Terres des Esprits Démoniaques, il n'a pas oublié ses amis. Maintenant qu'il est en sécurité, il n'oublie toujours pas Qing Shui. Un tel homme suffit à me rassurer pour lui confier la Secte Divine de l'Oiseau Vermillon et lui transmettre tous mes sorts... »
+« Lors de la crise dans la Terre Yao Ling, il n'a pas oublié ses amis. Maintenant qu'il est en sécurité, il n'oublie toujours pas Qing Shui. Un tel homme suffit à me rassurer pour lui confier la Secte Divine de l'Oiseau Vermillon et lui transmettre tous mes sorts... »
 
 L'homme hocha discrètement la tête tandis qu'il levait sa main droite pour pointer le dos de Wang Lin. Son énergie originelle se déversa sans cesse dans le corps du jeune homme, enveloppant son âme originelle pour pénétrer la graine de feu qui siégeait en lui.
 

@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1105 - Mountain Crumbles
 slug: leffondrement-des-montagnes
 ---
-Le nuage de la rétribution divine se rassemblait à une vitesse fulgurante, bien plus rapide que tous les nuages auxquels Wang Lin avait été confronté auparavant. En un clin d'œil, les nuages recouvrirent le champ stellaire.
+Le nuage de la Tribulation Céleste se rassemblait à une vitesse fulgurante, bien plus rapide que tous les nuages auxquels Wang Lin avait été confronté auparavant. En un clin d'œil, les nuages recouvrirent le champ stellaire.
 
 Un grondement assourdissant, capable d'ébranler tout le champ stellaire, résonna du haut des cieux, et un éclair rouge jaillit du centre des nuages. Cet éclair était aussi épais qu'un seau, et tous les débris sur son passage se désintégrèrent instantanément.
 
@@ -14,17 +14,17 @@ De nombreuses fissures spatiales apparurent, comme si l'espace lui-même était 
 
 Cet éclair rouge était d'une rapidité extrême. À peine s'était-il imprimé dans la rétine des deux anciens vêtus de pourpre qu'il chargea directement vers Wang Lin.
 
-« Cet homme... Cet homme a en fait utilisé une méthode inconnue pour attirer la rétribution divine devant nous? » murmura l'un des anciens en pourpre, comme s'il ne pouvait croire ce qu'il venait de voir.
+« Cet homme... Cet homme a en fait utilisé une méthode inconnue pour attirer la Tribulation Céleste devant nous? » murmura l'un des anciens en pourpre, comme s'il ne pouvait croire ce qu'il venait de voir.
 
 L'éclair rouge descendit avec un élan terrifiant, provoquant des ondulations dans l'air, et frappa de plein fouet la tête de Wang Lin. L'expression de celui-ci ne changea absolument pas sous l'impact. Il leva sa main droite et la serra sans pitié.
 
 En un instant, l'éclair fulminant s'effondra sous la pression de Wang Lin et se transforma en d'innombrables arcs électriques qui se dispersèrent autour de lui.
 
-Cette scène fit haleter les deux anciens en pourpre. Leurs yeux étaient empreints de choc et d'incrédulité. À cet instant, les trois jeunes arrivèrent et virent Wang Lin écraser l'éclair de la rétribution divine. Leur cuir chevelu picota et ils furent presque terrassés par la peur.
+Cette scène fit haleter les deux anciens en pourpre. Leurs yeux étaient empreints de choc et d'incrédulité. À cet instant, les trois jeunes arrivèrent et virent Wang Lin écraser l'éclair de la Tribulation Céleste. Leur cuir chevelu picota et ils furent presque terrassés par la peur.
 
 L'un d'eux se mit à trembler, la terreur atteignant son apogée dans ses yeux.
 
-Le visage de Wang Lin demeurait impassible. Ce genre d'éclair de rétribution divine était véritablement insignifiant pour lui. Après avoir aisément écrasé le premier éclair, il fit un geste de sa main droite, et les décharges dispersées furent rapidement aspirées vers sa paume.
+Le visage de Wang Lin demeurait impassible. Ce genre d'éclair de Tribulation Céleste était véritablement insignifiant pour lui. Après avoir aisément écrasé le premier éclair, il fit un geste de sa main droite, et les décharges dispersées furent rapidement aspirées vers sa paume.
 
 En un clin d'œil, une lueur rouge apparut autour de la main de Wang Lin, et un éclair s'agita à l'intérieur de cette lumière. Alors que le regard glacial de Wang Lin balayait les environs, ceux qui se trouvaient derrière l'écran de lumière verte sentirent un pressentiment funeste. Wang Lin projeta la lueur rouge qu'il tenait vers l'écran protecteur.
 
@@ -32,27 +32,27 @@ La lueur se mua en un éclair rouge et percuta violemment l'écran de lumière v
 
 « Il... Il n'est pas un cultivateur ordinaire! »
 
-La résistance de cet écran de lumière verte dépassait les attentes de Wang Lin; même un éclair de la rétribution divine ne suffisait pas à le briser.
+La résistance de cet écran de lumière verte dépassait les attentes de Wang Lin; même un éclair de la Tribulation Céleste ne suffisait pas à le briser.
 
-« Si un seul ne suffit pas, j'en utiliserai dix! Si dix ne suffisent pas, j'en utiliserai cent! » lança Wang Lin, une intention meurtrière embrasant son regard. Au-dessus de lui, les nuages de la rétribution divine grondèrent et un autre éclair rouge tomba.
+« Si un seul ne suffit pas, j'en utiliserai dix! Si dix ne suffisent pas, j'en utiliserai cent! » lança Wang Lin, une intention meurtrière embrasant son regard. Au-dessus de lui, les nuages de la Tribulation Céleste grondèrent et un autre éclair rouge tomba.
 
-Ce n'était pas un éclair isolé; la foudre sembla se lier pour former une traînée continue. Au total, neuf éclairs de la rétribution divine chargèrent vers Wang Lin.
+Ce n'était pas un éclair isolé; la foudre sembla se lier pour former une traînée continue. Au total, neuf éclairs de la Tribulation Céleste chargèrent vers Wang Lin.
 
 L'expression de Wang Lin resta neutre, mais une trace de folie perçait dans ses yeux. Il sourit et bondit dans les airs. Loin de chercher à esquiver, il chargea droit contre la foudre divine.
 
-Simultanément, un vortex apparut entre les sourcils de Wang Lin; son âme originelle de l'ancien dragon du tonnerre en jaillit et poussa un rugissement face aux éclairs de la rétribution divine.
+Simultanément, un vortex apparut entre les sourcils de Wang Lin; son âme originelle de l'ancien dragon du tonnerre en jaillit et poussa un rugissement face aux éclairs de la Tribulation Céleste.
 
-Le rugissement de l'ancien dragon du tonnerre forçait toute foudre et tout éclair à obéir! Pourtant, Wang Lin était le seul à oser rugir ainsi face à la rétribution divine des cieux.
+Le rugissement de l'ancien dragon du tonnerre forçait toute foudre et tout éclair à obéir! Pourtant, Wang Lin était le seul à oser rugir ainsi face à la Tribulation Céleste des cieux.
 
-Les neuf éclairs en pleine descente hésitèrent devant le rugissement de l'âme originelle du dragon de tonnerre antique. Wang Lin s'élança au cœur des neuf décharges et l'éclair dans son œil gauche scintilla. Les neuf éclairs de la rétribution divine furent aspirés vers son œil gauche, comme si une force de succion colossale en émanait.
+Les neuf éclairs en pleine descente hésitèrent devant le rugissement de l'âme originelle du dragon de tonnerre antique. Wang Lin s'élança au cœur des neuf décharges et l'éclair dans son œil gauche scintilla. Les neuf éclairs de la Tribulation Céleste furent aspirés vers son œil gauche, comme si une force de succion colossale en émanait.
 
 Le grondement se poursuivit tandis que les éclairs s'engouffraient dans son œil gauche jusqu'à être totalement absorbés. À cet instant, la foudre emplissait son corps et des craquements sinistres résonnaient. Des arcs électriques dansaient autour de lui, lui donnant l'apparence d'un céleste du tonnerre!
 
-Wang Lin leva la tête vers les nuages de la rétribution divine et hurla: « Est-ce là toute la puissance dont vous disposez?! »
+Wang Lin leva la tête vers les nuages de la Tribulation Céleste et hurla: « Est-ce là toute la puissance dont vous disposez?! »
 
 À cet instant, il ignorait le choc qu'avait provoqué son absorption de la foudre divine chez les spectateurs en contrebas. Les trois jeunes étaient pétrifiés de terreur. Ils n'auraient jamais pu rêver qu'ils avaient provoqué un adversaire aussi terrifiant.
 
-« Absorber... Il absorbe l'éclair de la rétribution divine... » Les visages des deux anciens en pourpre devinrent livides. Toute trace de fierté avait disparu, laissant place à une stupeur totale. Ils étaient désormais convaincus que ce jeune homme aux cheveux blancs dissimulait son véritable niveau de culture.
+« Absorber... Il absorbe l'éclair de la Tribulation Céleste... » Les visages des deux anciens en pourpre devinrent livides. Toute trace de fierté avait disparu, laissant place à une stupeur totale. Ils étaient désormais convaincus que ce jeune homme aux cheveux blancs dissimulait son véritable niveau de culture.
 
 En voyant Wang Lin dévorer les neuf éclairs, une sueur froide perla sur leurs fronts. L'un d'eux se retourna et rugit: « Vite! Terminez la formation, dépêchez-vous! »
 
@@ -60,27 +60,27 @@ Les quelque cent cultivateurs au loin n'étaient pas en première ligne, mais il
 
 Les anciens en pourpre revinrent également en hâte. Délaissant leur statut, ils se mirent à aider activement à la construction de la formation.
 
-« Vite, nous devons quitter ce maudit système stellaire de l'Alliance! Comment le système de l'Alliance peut-il abriter quelqu'un capable de... capable d'absorber la rétribution divine?! »
+« Vite, nous devons quitter ce maudit système stellaire de l'Alliance! Comment le système de l'Alliance peut-il abriter quelqu'un capable de... capable d'absorber la Tribulation Céleste?! »
 
-Le nuage de la rétribution divine se rassembla de nouveau et une pression écrasante s'abattit. À cet instant, un éclair violet d'une épaisseur de cent pieds descendit. Il était si puissant que, dès sa sortie, il déchira l'espace pour pénétrer le vide. Cependant, il jaillit du vide à seulement trois pouces de Wang Lin et fonça droit entre ses sourcils.
+Le nuage de la Tribulation Céleste se rassembla de nouveau et une pression écrasante s'abattit. À cet instant, un éclair violet d'une épaisseur de cent pieds descendit. Il était si puissant que, dès sa sortie, il déchira l'espace pour pénétrer le vide. Cependant, il jaillit du vide à seulement trois pouces de Wang Lin et fonça droit entre ses sourcils.
 
 Wang Lin poussa un rugissement et ne recula pas d'un pouce. Au contraire, il ouvrit les bras et saisit l'éclair violet de cent pieds de large.
 
 Malgré les grondements tonitruants, le corps de Wang Lin resta immobile. De vastes résidus électriques l'entouraient et crépitaient sans relâche.
 
-Mais cela ne s'arrêta pas là. La rétribution divine sembla s'enflammer de rage, et une pluie d'éclairs violets bombarda Wang Lin. Bientôt, la foudre se concentra en une sphère de près de mille pieds de large devant lui!
+Mais cela ne s'arrêta pas là. La Tribulation Céleste sembla s'enflammer de rage, et une pluie d'éclairs violets bombarda Wang Lin. Bientôt, la foudre se concentra en une sphère de près de mille pieds de large devant lui!
 
 Le corps de Wang Lin était progressivement repoussé par cette puissance, mais une lueur de folie brillait sur son visage.
 
 Wang Lin rugit: « Encore un peu! »
 
-Les nuages de la rétribution divine, qui s'étendaient sur plusieurs centaines de milliers de milles au-dessus du champ stellaire, laissèrent échapper un cri semblable à celui d'un humain, et à cet instant, un éclair aux sept couleurs descendit!
+Les nuages de la Tribulation Céleste, qui s'étendaient sur plusieurs centaines de milliers de milles au-dessus du champ stellaire, laissèrent échapper un cri semblable à celui d'un humain, et à cet instant, un éclair aux sept couleurs descendit!
 
 Dès son apparition, l'éclair aux sept couleurs se divisa en sept trajectoires distinctes. Ils s'abattirent sur Wang Lin avec une puissance inimaginable.
 
 Le fracas résonna alors que Wang Lin continuait de reculer. La sphère d'éclairs devant lui avait dépassé plusieurs milliers de pieds de large, et l'énergie qu'elle renfermait était phénoménale. Bien que Wang Lin commande tout le tonnerre et la foudre, il commençait à éprouver des difficultés à contenir cette force.
 
-Voyant la rétribution divine s'agiter de nouveau et les éclats de lumière septicolores apparaître, Wang Lin passa à l'action. Il projeta sans ménagement cette sphère d'éclairs contre l'écran de lumière verte, provoquant les cris de terreur de tous ceux qui se trouvaient à l'intérieur!
+Voyant la Tribulation Céleste s'agiter de nouveau et les éclats de lumière septicolores apparaître, Wang Lin passa à l'action. Il projeta sans ménagement cette sphère d'éclairs contre l'écran de lumière verte, provoquant les cris de terreur de tous ceux qui se trouvaient à l'intérieur!
 
 Cette sphère, chargée d'une quantité incommensurable de foudre divine et d'une puissance capable de déchirer les cieux, s'écrasa sur l'écran sous le contrôle de Wang Lin. Les visages des deux anciens en pourpre devinrent totalement blancs et leurs pupilles se rétractèrent.
 
@@ -100,9 +100,9 @@ La bête-moustique, comprenant que la situation dégénérait, s'enfuit promptem
 
 En un clin d'œil, les restes du champ stellaire disparurent sans laisser de trace. Hormis la zone centrale, il ne restait plus un seul fragment de débris!
 
-Wang Lin s'élança, porté par une intention meurtrière et une colère noire face à la blessure infligée à la bête-moustique. À ce moment précis, le nuage de la rétribution divine entra en action. Des centaines d'éclairs aux sept couleurs jaillirent du nuage pour fondre sur Wang Lin.
+Wang Lin s'élança, porté par une intention meurtrière et une colère noire face à la blessure infligée à la bête-moustique. À ce moment précis, le nuage de la Tribulation Céleste entra en action. Des centaines d'éclairs aux sept couleurs jaillirent du nuage pour fondre sur Wang Lin.
 
-À la suite de ces éclairs colorés, une mer de flammes apparut. C'était la première fois que cette rétribution divine de feu descendait pour consumer tout ce qui se trouvait sur son passage.
+À la suite de ces éclairs colorés, une mer de flammes apparut. C'était la première fois que cette Tribulation Céleste de feu descendait pour consumer tout ce qui se trouvait sur son passage.
 
 C'est alors que la formation créée par les débris finit par s'ouvrir. Elle brilla d'un éclat stellaire et une aura puissante se propagea lentement.
 

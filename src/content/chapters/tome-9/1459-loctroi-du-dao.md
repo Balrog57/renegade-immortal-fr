@@ -10,7 +10,7 @@ slug: loctroi-du-dao
 
 « Un être comme l’Empereur Céleste Antique n'agirait que s'il était sûr à 100 % de son coup, il a donc dû réussir… Cependant, comment le Dao Céleste a-t-il pu être détruit en fin de compte?
 
-« De plus, dans le Système Stellaire de l’Alliance, lorsque je subissais ma rétribution divine, j'ai involontairement ouvert une faille spatiale menant à un monde étrange. Il y avait là de nombreuses statues de dieux anciens, de démons anciens et d’anciens diables… Cet endroit est-il lié à l’Ancien Tombeau, et est-il lié à Qicai Daoren?
+« De plus, dans le Système Stellaire de l’Alliance, lorsque je subissais ma Tribulation Céleste, j'ai involontairement ouvert une faille spatiale menant à un monde étrange. Il y avait là de nombreuses statues de dieux anciens, de démons anciens et d’anciens diables… Cet endroit est-il lié à l’Ancien Tombeau, et est-il lié à Qicai Daoren?
 
 « De plus, presque chaque génération de l'Oiseau Vermillon a été scellée. Tout semble pointer vers le Maître du Souverain… Qui est donc le Maître du Souverain?
 

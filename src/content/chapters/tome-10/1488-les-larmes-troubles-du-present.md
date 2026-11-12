@@ -34,13 +34,13 @@ Près de cent cultivateurs chargèrent tous vers l'avant; des lignes argentées 
 
 Seul un vieil homme soupira en passant devant Xi Zifeng. Il sortit une fiole de pilules et la lui tendit rapidement.
 
-« Compagne cultivatrice Xi Zi, ce vieil homme avait également été ramené du Royaume Céleste du Tonnerre par lui autrefois... » murmura le vieil homme en passant à ses côtés.
+« Daoïste Xi Zi, ce vieil homme avait également été ramené du Royaume Céleste du Tonnerre par lui autrefois... » murmura le vieil homme en passant à ses côtés.
 
 Xi Zifeng prit silencieusement les pilules, empreinte de gratitude. La fiole contenait des pilules précieuses capables d'accélérer sa convalescence. Au cours des 800 dernières années, sa famille et ses amis l'avaient moins aidée que ces personnes qui avaient été sauvées par Wang Lin dans le Royaume Céleste du Tonnerre. Sans eux, le chemin de Xi Zifeng aurait été bien plus ardu.
 
 « Pourquoi restes-tu là plantée? Viens ici et déplace cette planète. Un déchet reste un déchet; tu avais un si beau visage, mais il a fallu que tu le détruises. Si tu avais accepté ma requête, tu n'en serais pas arrivée là aujourd'hui! » ricana l'homme d'âge moyen du Temple Céleste du Tonnerre.
 
-Le vieil homme qui lui avait donné les pilules ne put plus se retenir et répliqua: « Seigneur Messager, la compagne cultivatrice Xi Zi a également rejoint le Temple Céleste du Tonnerre. Bien que sa culture soit limitée, elle possède le même statut que nous. Elle a déjà dévié plusieurs planètes de leur trajectoire tout en étant blessée. Pourquoi la forcez-vous à continuer? Laissez-la se remettre un peu! »
+Le vieil homme qui lui avait donné les pilules ne put plus se retenir et répliqua: « Seigneur Messager, la Daoïste Xi Zi a également rejoint le Temple Céleste du Tonnerre. Bien que sa culture soit limitée, elle possède le même statut que nous. Elle a déjà dévié plusieurs planètes de leur trajectoire tout en étant blessée. Pourquoi la forcez-vous à continuer? Laissez-la se remettre un peu! »
 
 Les yeux de l'homme d'âge moyen s'illuminèrent et il fixa le vieil homme.
 
@@ -48,7 +48,7 @@ Les yeux de l'homme d'âge moyen s'illuminèrent et il fixa le vieil homme.
 
 Le vieil homme n'était qu'au stade initial du Scruteur du Nirvana; il ressentit une pression écrasante sous le regard de l'homme d'âge moyen. Pourtant, il serra les dents et railla:
 
-« Vous savez aussi que la compagne cultivatrice Xi Zi l'aimait. Lorsqu'il était là, osiez-vous agir ainsi? »
+« Vous savez aussi que la Daoïste Xi Zi l'aimait. Lorsqu'il était là, osiez-vous agir ainsi? »
 
 Après ces paroles, l'homme d'âge moyen afficha un regard féroce et son esprit vacilla. Il savait parfaitement de qui il s'agissait. Il se souvenait encore de tout ce qui s'était passé lors de la bataille pour le titre céleste. À l'époque, lui n'était qu'au stade du Yang Corporel, et cet homme était déjà une existence qu'il devait regarder avec déférence.
 

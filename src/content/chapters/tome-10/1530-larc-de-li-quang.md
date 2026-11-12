@@ -8,15 +8,15 @@ slug: larc-de-li-quang
 ---
 Dao Yi Li Guang!
 
-L'arc qui abattit l'œil gauche de l'Ordre Antique!
+L'arc qui abattit l'œil gauche de Dao Gu!
 
-Un trésor surnaturel capable de faire trembler les cieux, considéré comme le summum de la création. Il avait même percé les puissants sorts taoïstes de l'Ordre Antique. Un arc redoutable qui lui avait arraché ses sentiments pour sa patrie et volé la moitié de ses souvenirs!
+Un trésor surnaturel capable de faire trembler les cieux, considéré comme le summum de la création. Il avait même percé les puissants sorts taoïstes de Dao Gu. Un arc redoutable qui lui avait arraché ses sentiments pour sa patrie et volé la moitié de ses souvenirs!
 
-Lorsque Wang Lin s'était assis sur le trône dans la tombe de l'Ordre Antique et qu'il était entré dans cet état onirique, il avait personnellement contemplé la puissance de l'arc Li Guang!
+Lorsque Wang Lin s'était assis sur le trône dans la tombe de Dao Gu et qu'il était entré dans cet état onirique, il avait personnellement contemplé la puissance de l'arc Li Guang!
 
 Cette flèche suffisait à ébranler le vide. Aux yeux de Wang Lin, même la Formation de Scellement du Royaume s'effondrerait devant une telle puissance, sans aucune capacité de résistance!
 
-Cet arc n'appartenait pas à ce monde! C'était un trésor primordial provenant de la terre natale de l'Ordre Antique!
+Cet arc n'appartenait pas à ce monde! C'était un trésor primordial provenant de la terre natale de Dao Gu!
 
 C'était le trésor le plus puissant que Wang Lin ait jamais vu, après la Perle Défiant le Ciel et l'aiguille de boussole du Pays Déchu!
 
@@ -34,9 +34,9 @@ La gravité de l'expression de Wang Lin apaisa son esprit, lui permettant d'entr
 
 Heureusement, cet arc n'avait pas de flèche!
 
-L'unique flèche avait disparu dans le néant après avoir emporté l'œil gauche de l'Ordre Antique. Nul ne savait si cette flèche terrifiante existait encore, ni où elle se trouvait!
+L'unique flèche avait disparu dans le néant après avoir emporté l'œil gauche de Dao Gu. Nul ne savait si cette flèche terrifiante existait encore, ni où elle se trouvait!
 
-Wang Lin songea que s'il pouvait trouver la flèche, il pourrait retrouver la trace de l'œil gauche de l'Ordre Antique!
+Wang Lin songea que s'il pouvait trouver la flèche, il pourrait retrouver la trace de l'œil gauche de Dao Gu!
 
 Cependant, à moins que cette flèche ne soit dans un lieu désert, quelqu'un l'aurait forcément récupérée pour se faire un nom dans tout le firmament. Elle pourrait même provoquer une calamité alors que les hommes se déchireraient pour s'en emparer, tout comme la Perle Défiant le Ciel! Pourtant, jusqu'à présent, Wang Lin n'avait rien entendu concernant cette flèche dans aucun mythe ou légende ancienne.
 
@@ -54,7 +54,7 @@ En voyant cet arc, un rugissement monstrueux jaillit de son corps. Il recula d'u
 
 Simultanément, Wang Lin leva brusquement la main; ses sept étoiles antiques tournèrent frénétiquement avant de jaillir de son front. Les sept étoiles pivotèrent devant lui, dégageant une puissante aura d'Ancien Dieu!
 
-Alors que l'aura d'Ancien Dieu se répandait, la tête de l'Ordre Antique apparut instantanément devant Wang Lin!
+Alors que l'aura d'Ancien Dieu se répandait, la tête de Dao Gu apparut instantanément devant Wang Lin!
 
 Tout cela se produisit en un éclair; Wang Lin avait tout préparé à la seconde même où il allait partir! Sa réaction fut si rapide que même le jeune homme en blanc fut stupéfait. Puis, une lueur de froideur traversa son regard.
 
@@ -70,7 +70,7 @@ Les cultivateurs à l'intérieur de la Formation de Scellement du Royaume, qu'il
 
 Certains cultivateurs des deux camps, déjà gravement blessés, ne purent supporter le choc. Ils crachèrent du sang, leurs âmes d'origine s'effondrèrent et ils rendirent l'âme instantanément!
 
-Le rugissement de la flèche força Maître Hong Shan, Maître Nan Yunzi et les autres cultivateurs de la troisième étape à interrompre leur combat. Ils levèrent les yeux, le visage marqué par la stupeur. Seules la concubine impériale céleste et Rêve Pourpre de la Rivière Invoquée laissèrent paraître une pointe de peur en apercevant l'arc!
+Le rugissement de la flèche força Maître Hong Shan, Maître Nan Yunzi et les autres cultivateurs de la troisième étape à interrompre leur combat. Ils levèrent les yeux, le visage marqué par la stupeur. Seules la concubine impériale céleste et Zi Meng de Zhao He laissèrent paraître une pointe de peur en apercevant l'arc!
 
 « Cet arc!! »
 

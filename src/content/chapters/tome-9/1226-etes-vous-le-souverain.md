@@ -14,7 +14,7 @@ Mais dès que ce mouvement fut suspendu, la lumière verte se rapprocha et la ha
 
 De nouveaux grondements tonitruants déchirèrent à nouveau le monde. Dans cette bataille, Wang Lin avait presque tout utilisé: tous ses sorts et deux trésors du Pseudo Vide du Nirvana, qui volèrent en éclats! Les grondements furent encore plus assourdissants et un impact plus puissant que celui de l'effondrement de l'auriculaire se propagea.
 
-Le corps de Maître Nuage-Âme ne put plus le supporter et explosa. Son âme originelle s'échappa, dans un état misérable, confus et lugubre.
+Le corps de Yun Hunzi ne put plus le supporter et explosa. Son âme originelle s'échappa, dans un état misérable, confus et lugubre.
 
 L'index, au centre de l'impact, ne s'était toujours pas effondré, mais d'innombrables fissures le parcouraient déjà. Le doigt pressait impitoyablement vers Wang Lin!
 
@@ -38,7 +38,7 @@ Au moment où Wang Lin ordonna l'effondrement, le Fourneau du Dieu Antique émit
 
 Le fracas fit trembler l'âme originelle de Wang Lin, endommageant son esprit. Soudain, le puissant index s'effondra!
 
-Ce ne fut pas comme l'auriculaire qui n'avait été qu'à moitié brisé, mais un effondrement total en gravats. L'esprit de Wang Lin était affaibli, mais son intention de combat devint plus intense encore. Repoussé par l'explosion, il essuya le sang au coin de sa bouche et recueillit l'âme originelle mourante de Maître Nuage-Âme au milieu du chaos.
+Ce ne fut pas comme l'auriculaire qui n'avait été qu'à moitié brisé, mais un effondrement total en gravats. L'esprit de Wang Lin était affaibli, mais son intention de combat devint plus intense encore. Repoussé par l'explosion, il essuya le sang au coin de sa bouche et recueillit l'âme originelle mourante de Yun Hunzi au milieu du chaos.
 
 À cet instant, il était le seul être vivant dans le Royaume aux Sept Couleurs!
 

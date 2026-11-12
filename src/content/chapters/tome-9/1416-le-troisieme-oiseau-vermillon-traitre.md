@@ -42,9 +42,9 @@ Ce vieil homme était l'un des cinq maîtres, le corps original de Miaoyin Daozu
 
 Au même moment, à l'extérieur des Terres Déchues, une bête gigantesque et ovoïde, de la taille d'une planète de culture et agitant d'innombrables tentacules, s'approchait lentement. Le vieil homme assis sur son dos, au visage Yin et Yang, avait les yeux clos, mais il les ouvrit soudainement, se leva d'un bond et scruta l'horizon avec une lueur étrange.
 
-« C'est... » Avant qu'il ne puisse finir sa réflexion, le serpent aux yeux de lune sous lui trembla soudainement et fixa le lointain. Des éclats de peur et d'excitation brillèrent dans ses yeux alors qu'il ouvrait la gueule pour pousser un rugissement fracassant.
+« C'est... » Avant qu'il ne puisse finir sa réflexion, Wang Yue sous lui trembla soudainement et fixa le lointain. Des éclats de peur et d'excitation brillèrent dans ses yeux alors qu'il ouvrait la gueule pour pousser un rugissement fracassant.
 
-Le vieil homme au visage Yin et Yang hésita un instant avant de changer de direction, guidant le serpent aux yeux de lune vers la localisation de la Tombe de l'Ordre Antique.
+Le vieil homme au visage Yin et Yang hésita un instant avant de changer de direction, guidant Wang Yue vers la localisation de la Tombe de l'Ordre Antique.
 
 Sur la Planète du Grand Empereur, les dizaines de milliers de cultivateurs avaient tous les yeux rivés sur l'encens céleste quand l'expression du jeune homme changea brusquement. Sans hésiter, il joignit les mains devant le Vieux Oiseau Vermillon et sourit: « Amis, j'ai une autre affaire à régler, je ne resterai donc pas pour la cérémonie. Adieu! »
 

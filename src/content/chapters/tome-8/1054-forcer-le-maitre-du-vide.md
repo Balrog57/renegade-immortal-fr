@@ -18,7 +18,7 @@ Même l'ancien démon Bei Luo esquissa un sourire, ses yeux empreints de dérisi
 
 De plus, bien qu'il ait été piégé dans la Terre Yao Ling durant toutes ces années, il avait beaucoup appris sur l'Alliance Xiu Zhen grâce aux cultivateurs qui venaient ici. En réalité, il en connaissait les détails mieux que la plupart des gens.
 
-« Votre frère aîné, le Maître Zhong Xuan, était déjà un homme redoutable avant l'effondrement du Royaume Céleste et était considéré comme l'un des plus puissants cultivateurs. Lors de l'effondrement, il fut parmi les premiers, aux côtés de l'Empereur Divin du Dragon Azure des Quatre Sectes Divines, à risquer sa vie pour piller le Royaume Céleste.
+« Votre Senior frère, le Maître Zhong Xuan, était déjà un homme redoutable avant l'effondrement du Royaume Céleste et était considéré comme l'un des plus puissants cultivateurs. Lors de l'effondrement, il fut parmi les premiers, aux côtés de l'Empereur Divin du Dragon Azure des Quatre Sectes Divines, à risquer sa vie pour piller le Royaume Céleste.
 
 « En fin de compte, il utilisa une méthode inconnue pour s'emparer de la majeure partie des héritages du Royaume Céleste, et ce n'est qu'alors que l'Alliance Xiu Zhen fut établie! Moi, Bei Luo, j'admire réellement un tel homme, mais vous... » Bei Luo secoua la tête, le regard moqueur.
 
@@ -30,7 +30,7 @@ Forcer quelqu'un de son rang et de sa culture à tenir un tel discours était l'
 
 L'homme en noir aux côtés du Maître du Vide s'avança et s'assit, montrant clairement qu'il ne participerait pas au conflit. Seule la belle femme resta debout près du Maître du Vide, le visage blême.
 
-Le regard froid de Wang Wei se détourna du Maître du Vide. Bien que tuer cet homme ne soit pas difficile, cela s'avérerait problématique car il était encore un cultivateur du Briseur du Nirvana. Malgré ses blessures graves, en tant que frère cadet du Maître Zhong Xuan, il possédait sans doute encore des sorts et des trésors. Pour l'instant, sauver son maître était la priorité de Wang Wei; il n'était pas nécessaire de précipiter sa vengeance pour Wang Lin.
+Le regard froid de Wang Wei se détourna du Maître du Vide. Bien que tuer cet homme ne soit pas difficile, cela s'avérerait problématique car il était encore un cultivateur du Briseur du Nirvana. Malgré ses blessures graves, en tant que Junior frère du Maître Zhong Xuan, il possédait sans doute encore des sorts et des trésors. Pour l'instant, sauver son maître était la priorité de Wang Wei; il n'était pas nécessaire de précipiter sa vengeance pour Wang Lin.
 
 Voyant que l'affaire allait se résoudre calmement, le Maître du Vide sentit son cœur s'apaiser. Pourtant, à cet instant précis, Wang Lin se leva. Les pupilles du Maître du Vide se rétractèrent brusquement alors qu'il fixait le jeune homme.
 

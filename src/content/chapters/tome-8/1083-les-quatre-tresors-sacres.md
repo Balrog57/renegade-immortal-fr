@@ -123,6 +123,6 @@ Désormais, en les voyant de leurs propres yeux, ils furent profondément ébran
 
 Mu Bingmei observa les Quatre Bêtes Divines en fronçant les sourcils. Cependant, après avoir jeté un regard vers Wang Lin, son expression devint d'une grande complexité et elle ne prêta plus attention aux Trésors Sacrés.
 
-Le vieil homme du Vide Brillant fixait le ciel, une pointe de crainte dans le regard. Il savait que ces Quatre Trésors Sacrés n'étaient pas parfaits et qu'ils comportaient un défaut. Ce défaut résidait dans le Trésor Sacré de la Tortue Noire.
+Le vieil homme du Royaume Kun Xu fixait le ciel, une pointe de crainte dans le regard. Il savait que ces Quatre Trésors Sacrés n'étaient pas parfaits et qu'ils comportaient un défaut. Ce défaut résidait dans le Trésor Sacré de la Tortue Noire.
 
-« Le véritable Trésor Sacré de la Tortue Noire devrait être entre les mains de l'Alliance Xiu Zhen... Entre les mains de l'ancien Empereur Divin de la Tortue Noire... » Les yeux du vieil homme du Vide Brillant s'illuminèrent.
+« Le véritable Trésor Sacré de la Tortue Noire devrait être entre les mains de l'Alliance Xiu Zhen... Entre les mains de l'ancien Empereur Divin de la Tortue Noire... » Les yeux du vieil homme du Royaume Kun Xu s'illuminèrent.

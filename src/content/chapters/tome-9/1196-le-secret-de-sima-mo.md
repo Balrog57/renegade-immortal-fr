@@ -98,11 +98,11 @@ Wang Lin observa silencieusement le squelette, ses pupilles se contractant. Les 
 
 Il s'approcha lentement, s'accroupit et l'examina avec soin. Puis il ramassa le premier jade et y projeta son sens divin.
 
-«... Je ne pensais pas revenir ici... Autrefois, mon Oncle-Maître, mes compagnons de secte et moi avons trouvé cette mystérieuse faille spatiale à sa demande... Cette faille était étrange, mais elle regorgeait d'une lumière septicolore. C'était magnifique... Ma Sœur Junior aimait tant les arcs-en-ciel, et je lui avais promis d'en rapporter de quoi les suspendre partout dans sa chambre...
+«... Je ne pensais pas revenir ici... Autrefois, mon Oncle-Maître, mes compagnons de secte et moi avons trouvé cette mystérieuse faille spatiale à sa demande... Cette faille était étrange, mais elle regorgeait d'une lumière septicolore. C'était magnifique... Ma Junior sœur aimait tant les arcs-en-ciel, et je lui avais promis d'en rapporter de quoi les suspendre partout dans sa chambre...
 
 « Nous sommes entrés dans la faille et avons basculé dans ce cauchemar horrible... Mais à l'époque, je n'avais rien vu venir...
 
-« Nous avons atteint les profondeurs de ce lieu et avons découvert une existence terrifiante. Ce secret pourrait ébranler le monde entier de la culture. Pas seulement la Mer Yun, mais aussi Luotian, la Rivière Invoquée et le Vide Brillant!
+« Nous avons atteint les profondeurs de ce lieu et avons découvert une existence terrifiante. Ce secret pourrait ébranler le monde entier de la culture. Pas seulement la Mer Yun, mais aussi Luotian, Zhao He et Kun Xu!
 
 « Cependant, il était trop tard... Nous avons détruit notre propre espoir de nos propres mains... Nous sommes des pécheurs... Le Maître nous a expulsés de la secte. Je sais qu'il n'avait pas d'autre choix. Je suis parti avec mes compagnons et je me suis perdu dans les brumes de la Mer Yun. En contemplant ce brouillard, j'ai ressenti la peur... à cause de ce secret...
 

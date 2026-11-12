@@ -24,7 +24,7 @@ Tout Luotian fut stupéfait par ce spectacle. Les groupes de cultivateurs dépla
 
 Dans une zone éloignée de la planète Dong Lin, là où se déroulaient les préparatifs principaux de Luotian, plus de 600 planètes s'étaient rassemblées pour former la formation. Au plus profond du vortex, le Maître Lu Fu regardait au loin.
 
-À ses côtés, le Maître Yan Leizi, le Dieu de Sang et Lie Yunzi étaient pâles. Ils ressentaient la lumière infinie émanant de la planète Dong Lin.
+À ses côtés, le Maître Yan Leizi, Xue Shenzi et Lie Yunzi étaient pâles. Ils ressentaient la lumière infinie émanant de la planète Dong Lin.
 
 « La formation de la planète Dong Lin nous vient de l'Antiquité. Des rumeurs disent que la famille Lu a entretenu un esprit de formation pendant des dizaines de milliers d'années. Une fois activée et les esprits invoqués, sa puissance serait terrifiante. Je me demande si Wang Lin pourra la briser... »
 

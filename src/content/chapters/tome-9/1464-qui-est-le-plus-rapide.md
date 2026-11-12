@@ -24,7 +24,7 @@ Des scènes similaires se produisirent partout dans la Tombe de l'Ordre Antique,
 
 Parce que trop de cultivateurs étaient morts dans la mer de brouillard, les runes clignotaient frénétiquement à l'intérieur de la brume. Les survivants commencèrent à s'en emparer comme des fous.
 
-Personne ne pouvait rivaliser avec Grande Désolation. Ses runes avaient déjà atteint un nombre considérable et, après en avoir dérobé quelques-unes de plus, une nouvelle plateforme de rang 5 venait de naître!
+Personne ne pouvait rivaliser avec Da Huang. Ses runes avaient déjà atteint un nombre considérable et, après en avoir dérobé quelques-unes de plus, une nouvelle plateforme de rang 5 venait de naître!
 
 Une fois devenue une plateforme de rang 5, il perçut les autres plateformes, et son expression changea.
 
@@ -64,9 +64,9 @@ La huitième carte apparut dans l'esprit de Wang Lin. La majeure partie de la To
 
 À cet instant, la voix antique résonna pour la quatrième fois!
 
-« Des trois palais, Ciel, Terre et Homme, le palais céleste contient mon héritage. Une fois que la culture des membres de mon clan aura atteint ses limites, ils pourront recevoir l'héritage, retourner à l'Antique et accomplir le Dao... Ensuite, quittez ce monde et retournez vers le monde natal de ce seigneur, retrouvez son clan... » Lorsque la voix se dissipa, Wang Lin sentit avec une clarté accrue que trois plateformes de rang 7 convergeaient rapidement vers lui. Il sentit également qu'au niveau de la cinquième carte, une nouvelle plateforme de rang 5 venait de naître. Wang Lin devina immédiatement que l'occupant de cette plateforme était Grande Désolation!
+« Des trois palais, Ciel, Terre et Homme, le palais céleste contient mon héritage. Une fois que la culture des membres de mon clan aura atteint ses limites, ils pourront recevoir l'héritage, retourner à l'Antique et accomplir le Dao... Ensuite, quittez ce monde et retournez vers le monde natal de ce seigneur, retrouvez son clan... » Lorsque la voix se dissipa, Wang Lin sentit avec une clarté accrue que trois plateformes de rang 7 convergeaient rapidement vers lui. Il sentit également qu'au niveau de la cinquième carte, une nouvelle plateforme de rang 5 venait de naître. Wang Lin devina immédiatement que l'occupant de cette plateforme était Da Huang!
 
-Au même moment, Grande Désolation se précipitait également vers lui.
+Au même moment, Da Huang se précipitait également vers lui.
 
 « Ma plateforme a progressé de trois rangs en moins d'une journée, je dois donc les avoir effrayés... Maintenant, ils viennent pour obtenir des réponses et me tuer. » L'expression de Wang Lin resta imperturbable et il laissa échapper un ricanement.
 
@@ -98,7 +98,7 @@ Jiutian Mozun se trouvait également dans la septième carte, le visage extrême
 
 La femme en blanc et la belle femme traversaient rapidement la Tombe de l'Ordre Antique, continuant de se rapprocher de Wang Lin.
 
-Il y avait aussi Grande Désolation. Bien qu'il ne fût que de rang 5, en tant que cultivateur du troisième stade, il possédait des moyens pour accélérer le mouvement de sa plateforme. Il poursuivait lui aussi Wang Lin.
+Il y avait aussi Da Huang. Bien qu'il ne fût que de rang 5, en tant que cultivateur du troisième stade, il possédait des moyens pour accélérer le mouvement de sa plateforme. Il poursuivait lui aussi Wang Lin.
 
 Dans la septième carte, Wang Lin ouvrit soudainement les yeux. Il sentit clairement deux auras converger vers lui: l'une venant de la droite et l'autre de la gauche, toutes deux chargeant droit sur lui.
 

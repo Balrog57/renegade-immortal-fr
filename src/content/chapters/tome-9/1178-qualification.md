@@ -32,7 +32,7 @@ Le jeune en jaune dévisagea Cang Songzi. Après un long moment, il laissa écha
 
 L'expression de Cang Songzi resta neutre tandis qu'il saluait Wang Lin d'une inclinaison des mains. Il lança ensuite un sac et tendit la main vers l'armure. L'armure vola dans sa paume et, après l'avoir examinée de plus près, il afficha un sourire.
 
-« Camarade cultivateur Lu, le dépôt se trouve également dans le sac. Un total de 80 000 cristaux d'origine. Partons-nous? »
+« Daoïste Lu, le dépôt se trouve également dans le sac. Un total de 80 000 cristaux d'origine. Partons-nous? »
 
 Wang Lin attrapa le sac, l'examina de son Sens Divin avant de le ranger discrètement. Cang Songzi possédait un haut niveau de culture et se révélait très rusé. C'était aussi un homme impitoyable.
 
@@ -46,9 +46,9 @@ Après avoir quitté Peng Lai, Wang Lin et Cang Songzi progressèrent à une vit
 
 La brume stellaire au loin se mit à tourbillonner, et Li Qianmei, aux cheveux bleus, en sortit lentement avec un sourire.
 
-Wang Lin s'arrêta pour réfléchir. Il se tourna vers Cang Songzi et dit lentement: « Camarade cultivateur Cang Songzi, allez-y d'abord. Je vous rattraperai un peu plus tard. »
+Wang Lin s'arrêta pour réfléchir. Il se tourna vers Cang Songzi et dit lentement: « Daoïste Cang Songzi, allez-y d'abord. Je vous rattraperai un peu plus tard. »
 
-Cang Songzi sourit et tendit un jade à Wang Lin. Puis il rit et ajouta: « Le camarade cultivateur Lu peut se rendre à l'endroit indiqué sur la carte. Ce vieil homme et quelques vieux amis vous y attendront. »
+Cang Songzi sourit et tendit un jade à Wang Lin. Puis il rit et ajouta: « Le Daoïste Lu peut se rendre à l'endroit indiqué sur la carte. Ce vieil homme et quelques vieux amis vous y attendront. »
 
 Sur ce, il regarda Li Qianmei, joignit les mains et disparut dans la brume. Il ne craignait pas que Wang Lin ne vienne pas le rejoindre.
 
@@ -114,7 +114,7 @@ Non loin de Peng Lai, dans la région de rang 5, se trouvait un minuscule contin
 
 « Cang Songzi, cet endroit est le plus secret parmi nous. Pourquoi voulez-vous faire venir cet homme nommé Lu? » demanda un vieil homme au visage balafré. C'était le même qu'il avait croisé lors de la réunion privée de Cang Songzi.
 
-Cang Songzi, d'un air serein, répondit: « Cet homme peut utiliser l'Empreinte de l'Esprit Guerrier. Sa présence augmentera mes chances de succès de 20 %! De plus, je devrai solliciter le sortilège du camarade cultivateur Zhao pour nous guider. Une fois la tâche accomplie, conformément à notre accord, le camarade cultivateur Zhao pourra choisir en premier trois des objets obtenus! »
+Cang Songzi, d'un air serein, répondit: « Cet homme peut utiliser l'Empreinte de l'Esprit Guerrier. Sa présence augmentera mes chances de succès de 20 %! De plus, je devrai solliciter le sortilège du Daoïste Zhao pour nous guider. Une fois la tâche accomplie, conformément à notre accord, le Daoïste Zhao pourra choisir en premier trois des objets obtenus! »
 
 Le regard de Cang Songzi se posa sur une autre personne, également familière à Wang Lin: une vieille femme vêtue de vert.
 
@@ -126,9 +126,9 @@ Dès son apparition, une odeur de sang entêtante envahit l'air. D'innombrables 
 
 « Cang Songzi, j'ai croisé quelques ennemis en chemin, ce qui explique mon retard. » Le visage du vieil homme était pâle, mais ses yeux brillaient d'une lueur sinistre.
 
-« Maître Nuage-Âme! » Les yeux de l'homme balafré se plissèrent à la vue de la couronne.
+« Yun Hunzi! » Les yeux de l'homme balafré se plissèrent à la vue de la couronne.
 
-Le visage du vieillard couronné eut un tressaillement avant d'afficher un sourire sombre. « Camarade cultivateur Pang, nous nous revoyons. » Puis il tourna son regard vers la vieille femme, pour enfin le fixer sur Cang Songzi.
+Le visage du vieillard couronné eut un tressaillement avant d'afficher un sourire sombre. « Daoïste Pang, nous nous revoyons. » Puis il tourna son regard vers la vieille femme, pour enfin le fixer sur Cang Songzi.
 
 « Cang Songzi, ne sommes-nous que quatre? »
 
@@ -136,8 +136,8 @@ Cang Songzi se lécha les lèvres et répondit lentement: « Il y en a trois de 
 
 Une robe blanche, des cheveux noirs flottants et un regard indifférent. Wang Lin sortit de la brume et fixa les quatre individus.
 
-« Un junior du Purificateur du Nirvana? Cang Songzi, voulez-vous impliquer un junior du Purificateur du Nirvana dans cette affaire? » Maître Nuage-Âme fronça les sourcils.
+« Un junior du Purificateur du Nirvana? Cang Songzi, voulez-vous impliquer un junior du Purificateur du Nirvana dans cette affaire? » Yun Hunzi fronça les sourcils.
 
 « Ce n'est pas un junior du Purificateur du Nirvana! » sourit Cang Songzi.
 
-« Oh? » Les yeux de Maître Nuage-Âme s'illuminèrent. Alors que Wang Lin s'approchait, il agita sa main droite et d'innombrables fragments d'âmes foncèrent sur lui.
+« Oh? » Les yeux de Yun Hunzi s'illuminèrent. Alors que Wang Lin s'approchait, il agita sa main droite et d'innombrables fragments d'âmes foncèrent sur lui.

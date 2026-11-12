@@ -54,7 +54,7 @@ Tandis que l'Estimé Ling Dong méditait, un vieil homme vêtu de vert s'avança
 
 L'Estimé Ling Dong répondit: « Si tu parviens à briser la restriction, tu pourras prétendre à tous les autres trésors, hormis l'esprit dao! De plus, tu pourras te saisir de la majeure partie des richesses que ces petits cultivateurs ont obtenues sur les plateformes. »
 
-Les yeux du vieil homme en vert pétillèrent d'extase: « Soyez assuré, ce vieux bonhomme étudie les restrictions depuis l'enfance. D'autres n'oseront peut-être pas l'affirmer, mais il n'est aucune restriction qu'il ne puisse briser! Même le collègue cultivateur Xiao Jing n'est pas mon égal! »
+Les yeux du vieil homme en vert pétillèrent d'extase: « Soyez assuré, ce vieux bonhomme étudie les restrictions depuis l'enfance. D'autres n'oseront peut-être pas l'affirmer, mais il n'est aucune restriction qu'il ne puisse briser! Même le Daoïste Xiao Jing n'est pas mon égal! »
 
 Son regard se tourna vers l'érudit. Ce dernier esquissa un sourire et joignit les mains: « Ce que le Senior Gao affirme est exact; je ne suis qu'un novice comparé à vous, Senior. »
 

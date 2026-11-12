@@ -74,7 +74,7 @@ Elle sourit, mais ce sourire était empreint de mort... « Je sais que tu m'as t
 
 « Je sais qu'il n'y aura rien entre nous. À cause de l'existence de Ping Er, nous ne pourrons être que les plus familiers des étrangers... Je sais... Je sais... »
 
-« Je n'étais pas obligée de prendre cette pilule, mais je suis fatiguée... La destruction du Vide Brillant, la destruction de mon foyer. Je suis la seule survivante, et je ne peux plus le supporter... Même si ma culture se rétablit, et alors? Et alors si je suis la Sainte... Je veux juste voir mon enfant, mais je ne peux pas... »
+« Je n'étais pas obligée de prendre cette pilule, mais je suis fatiguée... La destruction de Kun Xu, la destruction de mon foyer. Je suis la seule survivante, et je ne peux plus le supporter... Même si ma culture se rétablit, et alors? Et alors si je suis la Sainte... Je veux juste voir mon enfant, mais je ne peux pas... »
 
 « Notre relation est un destin funeste, une épine dans ton cœur... Tu ne le diras pas, mais je le sais... »
 
@@ -90,7 +90,7 @@ Des grondements tonitruants retentirent et une force inimaginable s'engouffra da
 
 Le Shui Daozi, serviteur du Seigneur du Royaume Scellé, Grand Ancien de la Secte Divine et cultivateur de la troisième étape du Système Stellaire de la Mer Yun, était mort!!
 
-Au moment de son trépas, un chant complexe s'échappa des lèvres de Wang Lin. Presque personne ne put en saisir le sens; seul le démon ancien à neuf étoiles de la Secte Fantôme, en train de disparaître, fut profondément bouleversé en l'entendant!
+Au moment de son trépas, un chant complexe s'échappa des lèvres de Wang Lin. Presque personne ne put en saisir le sens; seul le démon ancien à neuf étoiles de la Secte Gui, en train de disparaître, fut profondément bouleversé en l'entendant!
 
 « Le Sort de Transformation de Vie de l'Ordre Ancien!! C'est le Sort de Transformation de Vie de l'Ordre Ancien!! Ce fameux sort dont les rumeurs disent que les ancêtres ne pouvaient l'utiliser que trois fois dans leur vie!! »
 
@@ -118,6 +118,6 @@ Ces ondes de rugissements balayèrent les restes de la mort sanglante du Shui Da
 
 « Les cultivateurs de la Secte Divine saluent le Seigneur du Royaume Scellé! » Ayant été témoins de tout ce qui s'était produit, les membres de la Secte Divine joignirent les mains, l'expression complexe.
 
-« Les cultivateurs de la Secte Fantôme de la Mer Yun saluent le Seigneur du Royaume Scellé! » L'estimé Grand Vide de la Secte Fantôme joignit les mains à son tour.
+« Les cultivateurs de la Secte Gui de la Mer Yun saluent le Seigneur du Royaume Scellé! » L'estimé Da Xu de la Secte Gui joignit les mains à son tour.
 
 « Les cultivateurs de la Mer Yun saluent le Seigneur du Royaume Scellé! » Des salutations éclatèrent de toutes parts, et une multitude de cultivateurs rendirent leurs hommages!

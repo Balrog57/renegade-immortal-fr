@@ -46,7 +46,7 @@ Le sceau de l'âme était une fois de plus achevé!
 
 Cependant, ce n'était pas encore terminé. Parmi les trois sceaux, il restait celui de la chair et du corps! Wang Lin pressa l'âme, qui retourna alors dans le corps de la Bête des Limbes.
 
-Simultanément, Wang Lin s'enfonça et emprunta la puissance du domaine stellaire de 800 millions de pieds qu'il avait raffiné. Avant que la Bête des Limbes ne puisse ouvrir la gueule de son propre chef, Wang Lin la saisit fermement, et toute sa puissance de Dieu Ancien se déversa dans ses mains.
+Simultanément, Wang Lin s'enfonça et emprunta la puissance du domaine stellaire de 80 millions de pieds qu'il avait raffiné. Avant que la Bête des Limbes ne puisse ouvrir la gueule de son propre chef, Wang Lin la saisit fermement, et toute sa puissance de Dieu Ancien se déversa dans ses mains.
 
 Il l'écarta sans aucune pitié!
 

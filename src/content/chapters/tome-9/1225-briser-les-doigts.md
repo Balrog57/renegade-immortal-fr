@@ -8,7 +8,7 @@ slug: briser-les-doigts
 ---
 Alors qu'il chargeait, l'anneau que Wang Lin avait obtenu de Pang Decai brilla, et des rayons de lumière l'enveloppèrent. La clarté tournait avec frénésie, formant une tempête autour de lui. Wang Lin fonça vers la paume gigantesque façonnée par le Royaume aux Sept Couleurs.
 
-Maître Nuage-Âme hésita un instant, puis serra les dents et chargea à la suite de Wang Lin.
+Yun Hunzi hésita un instant, puis serra les dents et chargea à la suite de Wang Lin.
 
 Quant à la vieille femme en vert, elle était trop blessée. Sans réfléchir, elle s'éleva dans les airs dans une tentative désespérée d'échapper à la paume.
 
@@ -54,7 +54,7 @@ Les sons de la glace qui se brise résonnèrent à travers le Royaume aux Sept C
 
 Même le petit doigt ne fit que tressaillir, malgré les assauts répétés des dragons noirs et de l'effondrement de la glace.
 
-Les yeux de Wang Lin étaient injectés de sang. Après avoir utilisé l'effondrement de la glace, il ne s'arrêta pas. Il agita sa main gauche, ouvrit la bouche, et le Sceau Céleste s'envola. Une multitude d'âmes de bataille apparurent, bien que l'âme de Tian Yunzi soit absente. Les autres suivirent Maître du Vide et chargèrent le petit doigt en poussant des cris lugubres.
+Les yeux de Wang Lin étaient injectés de sang. Après avoir utilisé l'effondrement de la glace, il ne s'arrêta pas. Il agita sa main gauche, ouvrit la bouche, et le Sceau Céleste s'envola. Une multitude d'âmes de bataille apparurent, bien que l'âme de Tian Yunzi soit absente. Les autres suivirent Xu Kongzi et chargèrent le petit doigt en poussant des cris lugubres.
 
 Wang Lin se donnait corps et âme. Après avoir déployé son Arsenal Magique, sa main gauche traça un sceau tandis qu'il pointait le sol et hurlait:
 
@@ -74,7 +74,7 @@ Les six volcans entrèrent immédiatement en collision avec le doigt dans un fra
 
 D'innombrables âmes de bataille convergèrent et explosèrent soudainement, créant des impacts dévastateurs. L'épée de massacre transperça le doigt avant de se briser en une infinité de filaments d'énergie qui s'engouffrèrent dans la masse.
 
-La terre trembla si violemment que Maître Nuage-Âme en cracha du sang et que l'âme originelle de la vieille femme en vert faillit se dissiper. Ce rugissement qui ébranlait les cieux résonna dans tout le royaume.
+La terre trembla si violemment que Yun Hunzi en cracha du sang et que l'âme originelle de la vieille femme en vert faillit se dissiper. Ce rugissement qui ébranlait les cieux résonna dans tout le royaume.
 
 L'auriculaire formé par la montagne s'effondra soudainement!
 
@@ -82,7 +82,7 @@ Dans un fracas de bris, d'innombrables fissures apparurent alors que la partie s
 
 Le visage de Wang Lin devint livide et il cracha du sang. La lumière qui le protégeait vola en éclats et l'anneau de Pang Decai se brisa! Le corps de Wang Lin fut immédiatement projeté en arrière par la violence du choc.
 
-Maître Nuage-Âme se trouvait derrière Wang Lin. Wang Lin étant placé devant lui, il avait pu absorber une partie de la pression. Néanmoins, son âme originelle tremblait, ses méridiens s'étaient brisés et ses os étaient tous fracturés; il n'était plus qu'un amas sanglant.
+Yun Hunzi se trouvait derrière Wang Lin. Wang Lin étant placé devant lui, il avait pu absorber une partie de la pression. Néanmoins, son âme originelle tremblait, ses méridiens s'étaient brisés et ses os étaient tous fracturés; il n'était plus qu'un amas sanglant.
 
 La vieille femme en vert, étant restée à distance, ne fut que peu affectée par l'onde de choc. Elle avait volé vers le haut et s'était échappée par pur hasard, bien que le choc ait failli provoquer l'effondrement de son corps.
 

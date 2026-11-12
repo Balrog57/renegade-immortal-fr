@@ -40,17 +40,17 @@ Le vieil homme hésita un instant avant de murmurer: « Selon les enquêtes, c'e
 
 Le vieil homme fut interdit. Après une réflexion approfondie, il questionna: « Pourrait-il y avoir quelqu'un d'autre? »
 
-« Si c'était vraiment la Vieille Poisonneuse, pourquoi la Secte Wu Du existe-t-elle encore? » Les yeux de l'homme d'âge moyen brillèrent de sagesse. Il reprit lentement: « Comment cette Vieille Poisonneuse pourrait-elle résister à l'autodestruction de Shi Luoxing, compte tenu de son niveau de culture, et ne laisser aucune trace sous de telles recherches? Et comment aurait-elle pu tuer le Noble Argent de la Secte Hua Qing tout en s'échappant? »
+« Si c'était vraiment la Vieille Poisonneuse, pourquoi la Secte Wu Du existe-t-elle encore? » Les yeux de l'homme d'âge moyen brillèrent de sagesse. Il reprit lentement: « Comment cette Vieille Poisonneuse pourrait-elle résister à l'autodestruction de Shi Luoxing, compte tenu de son niveau de culture, et ne laisser aucune trace sous de telles recherches? Et comment aurait-elle pu tuer Qian Guizhong de la Secte Hua Qing tout en s'échappant? »
 
-« Le Noble Argent de la Secte Hua Qing était un cultivateur au stade Briseur du Nirvana. Qui aurait pu le tuer dans le court laps de temps précédant l'arrivée de la seconde vague de cultivateurs de la Secte Hua Qing? »
+« Qian Guizhong de la Secte Hua Qing était un cultivateur au stade Briseur du Nirvana. Qui aurait pu le tuer dans le court laps de temps précédant l'arrivée de la seconde vague de cultivateurs de la Secte Hua Qing? »
 
 Le vieil homme inspira brusquement et son esprit vacilla. Il lui fallut un long moment pour reprendre ses esprits, les yeux empreints de terreur.
 
-« Le Noble Argent de la Secte Hua Qing a été tué! » Il ignorait manifestement cette affaire.
+« Qian Guizhong de la Secte Hua Qing a été tué! » Il ignorait manifestement cette affaire.
 
-« La Vieille Poisonneuse ne peut pas avoir fait ça. Seule la personne qui a réellement obtenu le jade et la recette pourrait posséder une telle force. Cette personne a dû être contrainte de tuer le Noble Argent. On peut supposer qu'en quittant les terres sauvages, elle a croisé le Noble Argent; éveillant les soupçons de celui-ci, elle a été forcée d'attaquer. » L'homme d'âge moyen afficha un regard mêlant admiration et estime.
+« La Vieille Poisonneuse ne peut pas avoir fait ça. Seule la personne qui a réellement obtenu le jade et la recette pourrait posséder une telle force. Cette personne a dû être contrainte de tuer Qian Guizhong. On peut supposer qu'en quittant les terres sauvages, elle a croisé Qian Guizhong; éveillant les soupçons de celui-ci, elle a été forcée d'attaquer. » L'homme d'âge moyen afficha un regard mêlant admiration et estime.
 
-« Il possède des méthodes cruelles, une détermination implacable, et il a exécuté le Noble Argent avec une précision chirurgicale. De plus, avant cela, cette personne a rapidement rejeté la suspicion sur la Vieille Poisonneuse, créant ainsi un voile de confusion pour gagner du temps. En agissant ainsi, il a suffi de tromper les sectes de rang 6 pour s'échapper avant que leur blocus ne soit établi. Même si j'avais été à sa place, je crains que je n'aurais pu accomplir tout cela. »
+« Il possède des méthodes cruelles, une détermination implacable, et il a exécuté Qian Guizhong avec une précision chirurgicale. De plus, avant cela, cette personne a rapidement rejeté la suspicion sur la Vieille Poisonneuse, créant ainsi un voile de confusion pour gagner du temps. En agissant ainsi, il a suffi de tromper les sectes de rang 6 pour s'échapper avant que leur blocus ne soit établi. Même si j'avais été à sa place, je crains que je n'aurais pu accomplir tout cela. »
 
 « Plus important encore, le stratagème de cette personne est d'une profondeur abyssale. J'ignore s'il a une autre raison de discréditer la Vieille Poisonneuse. S'il a réellement percé la vérité avant de lui faire porter le chapeau, alors l'esprit de cet individu est celui d'un démon! » L'estime dans les yeux de l'homme d'âge moyen s'intensifia.
 
@@ -60,7 +60,7 @@ Sans même se retourner, l'homme sembla lire clairement le doute sur le visage d
 
 « Ce dont ils ont besoin, c'est d'une explication! Une explication pour les régions de rang 7, 8, ou même 9... »
 
-Le vieil homme sembla soudain réaliser la situation et fut envahi par l'incrédulité. Sa poitrine se soulevait violemment tandis qu'il s'exclamait: « C'est donc pour cela qu'ils ont laissé la Secte Wu Du exister et qu'ils sont convaincus que c'était la Vieille Poisonneuse! Même la mort du Noble Argent sera perçue comme l'œuvre d'un puissant cultivateur de la Secte Wu Du! »
+Le vieil homme sembla soudain réaliser la situation et fut envahi par l'incrédulité. Sa poitrine se soulevait violemment tandis qu'il s'exclamait: « C'est donc pour cela qu'ils ont laissé la Secte Wu Du exister et qu'ils sont convaincus que c'était la Vieille Poisonneuse! Même la mort de Qian Guizhong sera perçue comme l'œuvre d'un puissant cultivateur de la Secte Wu Du! »
 
 L'homme d'âge moyen sourit, puis parla à voix basse, comme dans un monologue.
 

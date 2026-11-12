@@ -70,7 +70,7 @@ Sous cette obscurité, une silhouette illusoire se condensa et marcha vers Wang 
 
 « Prendre l'argent de quelqu'un et éliminer son désastre. Shui Daozi, n'oublie pas ta promesse, je ne t'aiderai qu'une seule fois! » La silhouette prit rapidement forme pour devenir un vieil homme vêtu de noir!
 
-Le visage du vieil homme était couvert de protubérances et d'une hideuse apparence. Toutefois, comparé à la Grande Désolation d'autrefois, il restait bien loin. À cet instant, il fit un pas en avant et se retrouva instantanément à moins de mille pieds de Wang Lin.
+Le visage du vieil homme était couvert de protubérances et d'une hideuse apparence. Toutefois, comparé à Da Huang d'autrefois, il restait bien loin. À cet instant, il fit un pas en avant et se retrouva instantanément à moins de mille pieds de Wang Lin.
 
 « Jeune ami, j'espère que tu coopéreras pour me permettre d'obtenir un esprit Dao de rang 6... » Bien que ce vieil homme paraisse calme, il était extrêmement vigilant. Il était secrètement choqué par la puissance de la paume de Wang Lin.
 

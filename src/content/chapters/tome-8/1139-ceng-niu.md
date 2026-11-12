@@ -26,17 +26,17 @@ Des rayons de lumière emplissaient le ciel, semblant tracer un chemin à traver
 
 Quant aux mortels, ils restaient pour la plupart près de leur foyer, profitant de la chaleur de leur demeure. Ils jetaient parfois un regard par la fenêtre; c'était une existence monotone, mais chaleureuse.
 
-Le Village de l'Eau du Nord portait bien son nom. Situé dans la partie nord du continent de Mo Luo, il se trouvait à moins de 500 kilomètres de la jungle de Bingu. Les habitants survivaient principalement grâce à l'agriculture, bien que des équipes de chasseurs s'activent aux abords de la jungle.
+Le Village Bei Shui (« Eau du Nord ») portait bien son nom. Situé dans la partie nord du continent de Mo Luo, il se trouvait à moins de 500 kilomètres de la jungle de Bin Gu. Les habitants survivaient principalement grâce à l'agriculture, bien que des équipes de chasseurs s'activent aux abords de la jungle.
 
 La saison des pluies était aussi celle où apparaissaient les crapauds d'eau. Pour les mortels du continent de Mo Luo, c'était un mets d'une saveur exquise; dans les grandes cités, leur prix était souvent élevé, mais la demande dépassait toujours l'offre.
 
-Chaque saison des pluies, les villageois de l'Eau du Nord organisaient un groupe d'hommes expérimentés pour se rendre dans la jungle afin de capturer des crapauds d'eau. Durant ces mois de pluie, ils s'y rendaient quatre ou cinq fois. À chaque retour, ils transportaient de grands sacs remplis de crapauds vivants.
+Chaque saison des pluies, les villageois de Bei Shui organisaient un groupe d'hommes expérimentés pour se rendre dans la jungle afin de capturer des crapauds d'eau. Durant ces mois de pluie, ils s'y rendaient quatre ou cinq fois. À chaque retour, ils transportaient de grands sacs remplis de crapauds vivants.
 
 Lorsque les villageois revenaient, leurs familles sortaient toutes les accueillir en imperméable. Même les enfants regardaient avec enthousiasme leurs pères, frères, oncles ou grands-pères lorsqu'ils rapportaient ces sacs; une atmosphère de joie régnait alors.
 
-Cependant, lorsque les villageois de l'Eau du Nord revinrent de la jungle cette fois-ci, en plus des sacs de crapauds, ils ramenèrent également un homme. C'était un jeune homme très ordinaire, à l'allure très mince. Semblant incapable de supporter le froid, il portait l'imperméable qu'un villageois lui avait offert. Il se tenait là, silencieux, l'expression étrange. Une pointe de mélancolie et de nostalgie émanait de lui tandis qu'il contemplait silencieusement le village devant lui.
+Cependant, lorsque les villageois de Bei Shui revinrent de la jungle cette fois-ci, en plus des sacs de crapauds, ils ramenèrent également un homme. C'était un jeune homme très ordinaire, à l'allure très mince. Semblant incapable de supporter le froid, il portait l'imperméable qu'un villageois lui avait offert. Il se tenait là, silencieux, l'expression étrange. Une pointe de mélancolie et de nostalgie émanait de lui tandis qu'il contemplait silencieusement le village devant lui.
 
-« Petit frère Ceng, voici notre Village de l'Eau du Nord. Tu peux vivre ici quelque temps jusqu'à la fin de la saison des pluies. Ensuite, tu n'auras qu'à suivre le sentier de montagne pour rejoindre la Cité Chun. » Un homme corpulent en imperméable passa le sac de crapauds à un autre et sourit à Wang Lin.
+« Petit frère Ceng, voici notre Village Bei Shui. Tu peux vivre ici quelque temps jusqu'à la fin de la saison des pluies. Ensuite, tu n'auras qu'à suivre le sentier de montagne pour rejoindre la Cité Chun. » Un homme corpulent en imperméable passa le sac de crapauds à un autre et sourit à Wang Lin.
 
 Wang Lin esquissa un sourire, joignit les mains et exprima sa gratitude.
 
@@ -50,7 +50,7 @@ Après quelques verres, les hommes corpulents éclatèrent de rire. L'un d'eux, 
 
 Wang Lin sourit, saisit le pichet sur la table et prit une longue gorgée avant d'essuyer sa bouche en disant: « Ce vin n'est pas assez fort. »
 
-Les hommes autour applaudirent à cette remarque. L'hôte qui permettait à Wang Lin de loger chez lui rit de bon cœur. « Femme, va chercher les trois pichets de vin du Village de l'Eau du Nord que le vieux a laissés autrefois! Je veux que le frère Ceng sache que nous avons du vin de caractère! »
+Les hommes autour applaudirent à cette remarque. L'hôte qui permettait à Wang Lin de loger chez lui rit de bon cœur. « Femme, va chercher les trois pichets de vin du Village Bei Shui que le vieux a laissés autrefois! Je veux que le frère Ceng sache que nous avons du vin de caractère! »
 
 La femme de l'homme corpulent secoua la tête et rentra dans la maison. Deux jeunes suivirent, et bientôt, trois pichets furent apportés.
 
@@ -66,11 +66,11 @@ Il aimait cette existence paisible et appréciait la joie de vivre du village. P
 
 Les cultivateurs de la Secte Gui Yuan arrivèrent dans la partie nord du continent de Mo Luo. Ils cherchèrent sans relâche, et emmenèrent un à un les mortels aptes à la culture. Certains étaient jeunes, d'autres d'âge mûr. Quant aux anciens aux cheveux blancs, ils les examinèrent également, mais aucun n'était qualifié. Même s'il y en avait eu, à cet âge ils ne pourraient rien accomplir avant de mourir.
 
-Ce jour-là, un cultivateur arriva au Village de l'Eau du Nord. Il paraissait n'avoir pas plus de vingt ans, mais il se trouvait déjà au stade de l'Établissement des Fondations. À son âge et avec un tel niveau de culture, il pouvait être considéré comme un prodige parmi la jeune génération.
+Ce jour-là, un cultivateur arriva au Village Bei Shui. Il paraissait n'avoir pas plus de vingt ans, mais il se trouvait déjà au stade de l'Établissement des Fondations. À son âge et avec un tel niveau de culture, il pouvait être considéré comme un prodige parmi la jeune génération.
 
 L'expression de ce cultivateur était si glaciale qu'elle effraya immédiatement les villageois. Ils sortirent tous de leurs maisons, tremblant sous la pluie. Les habitants du continent de Mo Luo connaissaient la nature des cultivateurs; ils comprenaient que si cet homme s'emportait, il ne lui faudrait qu'un instant pour tous les massacrer.
 
-Zhao Yu fronça les sourcils en observant la foule de mortels. La pluie rebondissait à quelques centimètres de lui, préservant la propreté de ses vêtements.
+Zhao Yu fronça les sourcils en observant la foule de mortels. La pluie rebondissait à trois pouces de lui, préservant la propreté de ses vêtements.
 
 Les villageois étaient trempés et le froid mordant envahissait leurs corps. Les adultes tenaient bon, mais les enfants, grelottants, se serraient contre leurs parents.
 
@@ -92,4 +92,4 @@ Dans la nuit pluvieuse, Wang Lin marchait en tête et Zhao Yu suivait derrière.
 
 Les activités de la Secte Gui Yuan durèrent près d'un mois, et ils rassemblèrent 31 mortels de la partie nord du continent de Mo Luo. Parmi eux, 17 étaient des adolescents et les autres des jeunes adultes. Tous furent envoyés à la Secte Gui Yuan dans l'est du continent de Mo Luo, pour s'installer dans le bassin entouré d'une chaîne de montagnes circulaire.
 
-Les quatre Grands Anciens de la Secte Gui Yuan accordèrent une grande importance à ces 31 individus, qui furent répartis entre eux. Parmi les sept personnes choisies par la seule femme de l'ordre, la Grande Ancienne Lu Yanfei, se trouvait un jeune homme nommé Ceng Niu, originaire du Village de l'Eau du Nord.
+Les quatre Grands Anciens de la Secte Gui Yuan accordèrent une grande importance à ces 31 individus, qui furent répartis entre eux. Parmi les sept personnes choisies par la seule femme de l'ordre, la Grande Ancienne Lu Yanfei, se trouvait un jeune homme nommé Ceng Niu, originaire du Village Bei Shui.

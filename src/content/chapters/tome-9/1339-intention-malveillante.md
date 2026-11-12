@@ -96,23 +96,23 @@ Malgré cela, certains gardaient toujours l'idée de dérober ces éclats aux no
 
 À ce moment précis, trois cultivateurs fixèrent cet éclat de tonnerre avec convoitise.
 
-Tandis que Wang Lin observait l'éclair, un homme d'âge moyen s'approcha. Il affichait un sourire et semblait être au milieu du stade Ascendant. « Cher Compagnon Cultivateur, je suis Zhang Jingyun. Ce doit être votre première fois dans les 7 Millions de Mondes. »
+Tandis que Wang Lin observait l'éclair, un homme d'âge moyen s'approcha. Il affichait un sourire et semblait être au milieu du stade Ascendant. « Cher Daoïste, je suis Zhang Jingyun. Ce doit être votre première fois dans les 7 Millions de Mondes. »
 
 Wang Lin leva les yeux. D'un revers de main, le Tonnerre Spirituel disparut. Il regarda le cultivateur devant lui et hocha la tête.
 
-« Nous appartenons au même clan. C'est ma deuxième visite dans les 7 Millions de Mondes, je m'y connais donc un peu. Que diriez-vous de former un groupe? Je pourrais vous présenter à quelques personnes. Ce serait plus pratique pour tout le monde de se déplacer ainsi. Qu'en pensez-vous, cher Compagnon? » L'homme d'âge moyen paraissait sincère et son expression était douce.
+« Nous appartenons au même clan. C'est ma deuxième visite dans les 7 Millions de Mondes, je m'y connais donc un peu. Que diriez-vous de former un groupe? Je pourrais vous présenter à quelques personnes. Ce serait plus pratique pour tout le monde de se déplacer ainsi. Qu'en pensez-vous, cher Daoïste? » L'homme d'âge moyen paraissait sincère et son expression était douce.
 
 Pourtant, aux yeux de Wang Lin, ce visage regorgeait de failles. Après tout, Wang Lin était un vieux monstre ayant vécu deux mille ans, et cet homme n'avait manifestement pas la même profondeur.
 
-Wang Lin esquissa un sourire et observa longuement l'homme. Il joignit les mains et dit: « Je vous en remercie alors, cher Compagnon. »
+Wang Lin esquissa un sourire et observa longuement l'homme. Il joignit les mains et dit: « Je vous en remercie alors, cher Daoïste. »
 
-L'homme d'âge moyen devint soudainement prudent sous le regard de Wang Lin. Il eut l'impression que ses secrets avaient été perçus. Cependant, après avoir scruté Wang Lin sans rien remarquer de suspect, il sourit de nouveau. « Aucun problème. Nous sommes du même clan, nous devons nous soutenir. Quel est votre nom, cher Compagnon? »
+L'homme d'âge moyen devint soudainement prudent sous le regard de Wang Lin. Il eut l'impression que ses secrets avaient été perçus. Cependant, après avoir scruté Wang Lin sans rien remarquer de suspect, il sourit de nouveau. « Aucun problème. Nous sommes du même clan, nous devons nous soutenir. Quel est votre nom, cher Daoïste? »
 
 Wang Lin répondit avec un sourire: « Yu Fei! »
 
-« Yu Fei? Ce nom me semble familier... » L'homme réfléchit un instant, puis ses yeux brillèrent d'une lueur étrange. Il joignit les mains et rit: « Alors c'est bien vous, le Compagnon Yu Fei, celui qui vient d'intégrer le Classement du Tonnerre Dispersé! »
+« Yu Fei? Ce nom me semble familier... » L'homme réfléchit un instant, puis ses yeux brillèrent d'une lueur étrange. Il joignit les mains et rit: « Alors c'est bien vous, le Daoïste Yu Fei, celui qui vient d'intégrer le Classement du Tonnerre Dispersé! »
 
-L'homme ajouta quelques mots, pensant avoir percé à jour Wang Lin, puis reprit: « Compagnon Yu, ce n'est pas ici qu'il faut discuter, et la formation menant aux 7 Millions de Mondes est sur le point de s'ouvrir. Que diriez-vous d'y aller? »
+L'homme ajouta quelques mots, pensant avoir percé à jour Wang Lin, puis reprit: « Daoïste Yu, ce n'est pas ici qu'il faut discuter, et la formation menant aux 7 Millions de Mondes est sur le point de s'ouvrir. Que diriez-vous d'y aller? »
 
 Après l'accord de Wang Lin, l'homme le guida à travers la foule. De nombreux cultivateurs, témoins de la scène, secouèrent discrètement la tête.
 

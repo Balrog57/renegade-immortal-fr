@@ -32,7 +32,7 @@ Trois fragments d'écorce apparurent au sein du vortex. Tian Yunzi les saisit et
 
 C'était comme si une puissance s'apprêtait à s'éveiller au cœur des bois pour jaillir avec fracas. Lorsque cette puissance se propagea, la stupeur fut générale!
 
-Le vieil homme du Vide Brillant plissa les yeux, observant Tian Yunzi avec une lueur mystérieuse.
+Le vieil homme du Royaume Kun Xu plissa les yeux, observant Tian Yunzi avec une lueur mystérieuse.
 
 « Le Dao de cet Tian Yunzi... Il ne s'agit donc pas de la destinée céleste; il emprunte la destinée céleste pour forger sa propre mer du Dao. Cet homme a réellement réussi à cultiver le Dao selon ce principe et à bâtir un tel domaine. Il a presque entrevu le Dao... »
 
@@ -48,7 +48,7 @@ Une aura similaire à celle des morceaux de bois surgit de l'épée, mais avec u
 
 Lorsque le doigt de l'Empereur Divin pointa vers le bas, l'épée trancha l'espace pour percuter les trois fragments de bois.
 
-Rumble, rumble, rumble!
+Boum, boum, boum !
 
 Un vacarme assourdissant fut suivi d'une puissante onde de choc. Les trois morceaux de bois s'effondrèrent instantanément, et le vortex aux sept couleurs qui les soutenait fut lui aussi déchiré.
 
@@ -84,9 +84,9 @@ La longue épée rouge resta suspendue, immobile, dans les airs.
 
 L'Empereur Divin de l'Oiseau Vermillon médita silencieusement tandis que son corps devenait de plus en plus transparent. En regardant la direction de la fuite de Tian Yunzi, il secoua la tête: « Je vieillis... Si j'avais été dans la force de l'âge, cet Tian Yunzi n'aurait pas pu échapper au deuxième style des Quatre Trésors Sacrés... »
 
-Il poussa un soupir en observant l'assemblée. Lorsque son regard finit par se poser sur le vieil homme du Vide Brillant, il dit d'une voix lente: « Vieux ami, allez-vous redevenir l'ennemi de mes Quatre Sectes Divines? »
+Il poussa un soupir en observant l'assemblée. Lorsque son regard finit par se poser sur le vieil homme du Royaume Kun Xu, il dit d'une voix lente: « Vieux ami, allez-vous redevenir l'ennemi de mes Quatre Sectes Divines? »
 
-Le vieil homme du Vide Brillant réfléchit un instant. Il observa l'Ancien Démon Ta Jia, désormais scellé, puis les Trésors Sacrés qui flottaient encore là.
+Le vieil homme du Royaume Kun Xu réfléchit un instant. Il observa l'Ancien Démon Ta Jia, désormais scellé, puis les Trésors Sacrés qui flottaient encore là.
 
 Avec sa puissance, s'il décidait d'agir, la seule chose dont il devrait craindre était les Trésors Sacrés...
 

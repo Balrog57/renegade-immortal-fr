@@ -68,9 +68,9 @@ Le deuxième objet était une armure brisée. Elle exhalait une aura antique, co
 
 Le troisième objet était une pilule. Entièrement noire, elle ne dégageait aucun parfum de médicament. Au lieu de cela, elle émanait une aura terrifiante qui retint le regard de Wang Lin un instant.
 
-« Le premier objet est l'Épée de Cristal Sanguin. J'ai tué près de mille bêtes féroces de rang 8 et j'ai utilisé tout leur sang pour la raffiner. J'ai également sollicité l'illumination de Senior Dao Ye lors de sa création, ce qui a considérablement accru sa puissance. La ligne de sang à l'intérieur contient un poison étrange; ainsi, en plus de blesser le corps, elle empoisonne jusqu'à l'âme originelle. »
+« Le premier objet est l'Épée de Cristal Sanguin. J'ai tué près de mille bêtes féroces de rang 8 et j'ai utilisé tout leur sang pour la raffiner. J'ai également sollicité l'illumination de Senior Dao Yezi lors de sa création, ce qui a considérablement accru sa puissance. La ligne de sang à l'intérieur contient un poison étrange; ainsi, en plus de blesser le corps, elle empoisonne jusqu'à l'âme originelle. »
 
-« Senior Dao Ye l'a illuminée? » La belle jeune femme en robe fleurie agita la main et l'épée de cristal sanguin vola vers elle. Après un examen attentif, elle relâcha l'arme qui retourna flotter dans les airs.
+« Senior Dao Yezi l'a illuminée? » La belle jeune femme en robe fleurie agita la main et l'épée de cristal sanguin vola vers elle. Après un examen attentif, elle relâcha l'arme qui retourna flotter dans les airs.
 
 « Le deuxième objet contient un ensemble de sorts, mais il est brisé, ce qui rend toute culture impossible. Quel dommage. Quant au troisième objet, tout dépendra de votre perspicacité, chers cultivateurs. Si vous souhaitez l'acquérir, vous devrez respecter ma règle: je n'accepte que les jades célestes. » Le vieil homme sourit en contemplant l'assemblée.
 
@@ -90,11 +90,11 @@ Cang Songzi secoua la tête et répondit lentement: « Cent fois ce prix! »
 
 L'homme d'âge moyen resta silencieux un instant avant de sourire. Après avoir entendu le prix, il fut conforté dans sa propre spéculation. Il rangea la pilule et hocha la tête à Cang Songzi.
 
-Cang Songzi sourit, son regard se posant sur Wang Lin, puis il rit: « Ce cultivateur est-il intéressé? »
+Cang Songzi sourit, son regard se posant sur Wang Lin, puis il rit: « Ce Daoïste est-il intéressé? »
 
 Wang Lin leva les yeux avec un air d'hésitation. Après une courte réflexion, il dit: « Cette chose est inutile, mais je suis attiré par les raretés. J'offre donc 100 jades célestes. »
 
-Cang Songzi réfléchit un instant et agita la main dans un éclat de rire: « Je n'avais pas l'intention de la vendre; je voulais surtout voir si l'un d'entre vous la reconnaîtrait. Puisque ce cultivateur l'apprécie, je vais vous l'offrir. »
+Cang Songzi réfléchit un instant et agita la main dans un éclat de rire: « Je n'avais pas l'intention de la vendre; je voulais surtout voir si l'un d'entre vous la reconnaîtrait. Puisque ce Daoïste l'apprécie, je vais vous l'offrir. »
 
 Wang Lin joignit les mains pour le remercier et rangea le fragment.
 

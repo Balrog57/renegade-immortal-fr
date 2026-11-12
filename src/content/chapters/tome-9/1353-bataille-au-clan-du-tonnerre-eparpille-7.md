@@ -46,7 +46,7 @@ Pourtant, un puissant sentiment de crise éclata dans son cœur. Il sentit vague
 
 « Je ne peux pas le laisser continuer. Je dois l'arrêter, sinon ce sera une catastrophe pour mon Clan Shan Lei! » L'expression du Grand Ancien devint hideuse alors qu'il reprenait ses esprits. Il poussa un rugissement et se précipita vers Wang Lin.
 
-Cependant, juste au moment où il allait le rattraper, le totem de foudre formé par l'âme originelle de Wang Lin se rétracta pour venir se loger entre ses sourcils. Son âme originelle retourna dans son corps dans un grondement sourd. Chaque fibre de ses muscles, chaque centimètre de ses os et même ses organes internes furent imprégnés du pouvoir de la foudre!
+Cependant, juste au moment où il allait le rattraper, le totem de foudre formé par l'âme originelle de Wang Lin se rétracta pour venir se loger entre ses sourcils. Son âme originelle retourna dans son corps dans un grondement sourd. Chaque fibre de ses muscles, chaque pouce de ses os et même ses organes internes furent imprégnés du pouvoir de la foudre!
 
 C'était comme s'il s'était réincarné en tonnerre!
 

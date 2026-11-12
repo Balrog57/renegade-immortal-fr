@@ -1,6 +1,6 @@
 ---
 n: 1331
-title: "Pour l'Aîné"
+title: "Pour Senior"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1331 - For Senior
@@ -24,7 +24,7 @@ Il ressentit un vague sentiment de crise.
 
 « Puisque ce Qi Zhi a pu devenir un vieux monstre de l'Âme Naissante, on ne peut le sous-estimer. Les simples restrictions à l'entrée de la grotte ne sont pas banales. » Il interrompit le cultivateur de la Formation du Noyau et dit d'une voix sombre:
 
-« Camarade Qi, je suis Qiu Dehai, l'un des quatre Grands Anciens de la Secte Tian Lei. Si je suis ici aujourd'hui, c'est parce que notre Maître de Secte est sur le point d'intégrer les Classements du Tonnerre Dispersé. Je demande au Camarade Qi de bien vouloir faire don de quelques trésors magiques et de pilules. » Sa voix était lugubre; il avait insufflé toute sa culture de mi-stade de l'Âme Naissante dans ses paroles pour les laisser glisser jusqu'à la grotte.
+« Daoïste Qi, je suis Qiu Dehai, l'un des quatre Grands Anciens de la Secte Tian Lei. Si je suis ici aujourd'hui, c'est parce que notre Maître de Secte est sur le point d'intégrer les Classement Shan Lei. Je demande au Daoïste Qi de bien vouloir faire don de quelques trésors magiques et de pilules. » Sa voix était lugubre; il avait insufflé toute sa culture de mi-stade de l'Âme Naissante dans ses paroles pour les laisser glisser jusqu'à la grotte.
 
 À peine sa voix eut-elle fini de résonner que la porte de la grotte gronda et s'ouvrit. Quelque chose fut projeté dehors: c'était Qi Zhi, plongé dans le coma.
 
@@ -40,7 +40,7 @@ Il n'avait jamais ressenti cela, si ce n'est chez son propre Maître de Secte. P
 
 Ce qui lui glaçait davantage le sang était la pression émanant de cet homme. Cette aura était d'une force extrême et, sous son influence, il sentit l'énergie spirituelle dans son corps se figer. Ces paroles froides semblaient contenir une force déchirante capable de le lacérer de l'intérieur.
 
-Le front couvert de sueur froide, Qiu Dehai déglutit difficilement. Il recula lentement en joignant les mains: « Ce vieil homme ne connaît pas ce Qi Zhi, c'est la première fois qu'il le rencontre. Puisque le Camarade était là le premier, alors ce vieil homme s'en va. Tout ceci n'est qu'un malentendu, un simple malentendu! » Il réprima les tremblements de son âme naissante et battit en retraite avec précaution. Il sentait que cet homme était trop puissant pour lui; il valait mieux l'abandonner et retourner à la secte.
+Le front couvert de sueur froide, Qiu Dehai déglutit difficilement. Il recula lentement en joignant les mains: « Ce vieil homme ne connaît pas ce Qi Zhi, c'est la première fois qu'il le rencontre. Puisque le Daoïste était là le premier, alors ce vieil homme s'en va. Tout ceci n'est qu'un malentendu, un simple malentendu! » Il réprima les tremblements de son âme naissante et battit en retraite avec précaution. Il sentait que cet homme était trop puissant pour lui; il valait mieux l'abandonner et retourner à la secte.
 
 Les trois cultivateurs de la Formation du Noyau ressentirent également que quelque chose clochait. Ils reculèrent dans la terreur, s'apprêtant à fuir les lieux.
 
@@ -96,7 +96,7 @@ Wang Lin marchait calmement derrière eux. En chemin, les appels à l'aide de Qi
 
 Une montagne apparut au loin. Elle n'était pas imposante, mais elle était enveloppée de nuages. Des marches de pierre serpentaient depuis le sommet. Quelques bâtiments couronnaient la montagne; cela ressemblait fort à une secte.
 
-Lorsque les quatre cultivateurs terrifiés amenèrent Wang Lin sur place, Qiu Dehai s'exclama d'une voix tremblante: « Ai... Aîné... Voici... Voici la Secte Tian Lei... »
+Lorsque les quatre cultivateurs terrifiés amenèrent Wang Lin sur place, Qiu Dehai s'exclama d'une voix tremblante: « Sen... Senior... Voici... Voici la Secte Tian Lei... »
 
 Tout au long du trajet, ils avaient été forcés de courir à perdre haleine, leur énergie spirituelle presque épuisée. Entre la panique et l'effroi, leurs esprits avaient été torturés durant tout le voyage.
 
@@ -104,11 +104,11 @@ Wang Lin observa la montagne et agita sa main droite. Une bourrasque de vent sur
 
 La secte entière fut plongée dans un silence de mort. Certains cultivateurs plus faibles qui méditaient sur la place restèrent sans voix en voyant les quatre Grands Anciens être ainsi jetés au sol.
 
-« Aîné, Aîné, vous êtes enfin arrivé!! » Dans ce silence pesant, un homme surgit soudainement. Il était mince et d'apparence ordinaire, mais il se trouvait au début du stade de la Formation de l'Âme. Ses yeux brillaient d'une excitation pure alors qu'il fixait Wang Lin.
+« Senior, Senior, vous êtes enfin arrivé!! » Dans ce silence pesant, un homme surgit soudainement. Il était mince et d'apparence ordinaire, mais il se trouvait au début du stade de la Formation de l'Âme. Ses yeux brillaient d'une excitation pure alors qu'il fixait Wang Lin.
 
-« Depuis que j'ai aperçu l'Aîné, mon cœur ne peut plus trouver le repos. Votre culture est transcendante et votre style est inégalable. En cet instant fugace, j'ai eu l'impression de vous avoir vu il y a d'innombrables cycles de réincarnation. Je ne pouvais m'empêcher de vouloir contempler votre présence un peu plus longtemps avant la fin de ma vie. À chaque regard, l'énergie spirituelle dans mon corps s'anime d'elle-même et ma culture augmente, comme si j'avais dévoré une infinité de fruits du tonnerre. Seul un être tel que vous possède une telle capacité. Même les Anciens du Clan Shan Lei, même le Chef du Clan, ne sauraient vous égaler à votre âge.
+« Depuis que j'ai aperçu Senior, mon cœur ne peut plus trouver le repos. Votre culture est transcendante et votre style est inégalable. En cet instant fugace, j'ai eu l'impression de vous avoir vu il y a d'innombrables cycles de réincarnation. Je ne pouvais m'empêcher de vouloir contempler votre présence un peu plus longtemps avant la fin de ma vie. À chaque regard, l'énergie spirituelle dans mon corps s'anime d'elle-même et ma culture augmente, comme si j'avais dévoré une infinité de fruits du tonnerre. Seul un être tel que vous possède une telle capacité. Même les Anciens du Clan Shan Lei, même le Chef du Clan, ne sauraient vous égaler à votre âge.
 
-« Aîné, ce Junior ne demande rien et est prêt à vous remettre tout ce qu'il a collecté. Je souhaite seulement que l'Aîné me permette de rester à ses côtés pour pouvoir l'observer souvent et être témoin de son ascension. Laissez-moi être votre serviteur, laissez-moi ouvrir la voie, travailler jour et nuit pour vous, laissez-moi massacrer tous vos ennemis, laissez-moi dédier ma vie à l'Aîné jusqu'à mon dernier souffle!!! »
+« Senior, ce Junior ne demande rien et est prêt à vous remettre tout ce qu'il a collecté. Je souhaite seulement que Senior me permette de rester à ses côtés pour pouvoir l'observer souvent et être témoin de son ascension. Laissez-moi être votre serviteur, laissez-moi ouvrir la voie, travailler jour et nuit pour vous, laissez-moi massacrer tous vos ennemis, laissez-moi dédier ma vie à Senior jusqu'à mon dernier souffle!!! »
 
 Même avec sa culture, Wang Lin ne put s'empêcher d'être surpris par les paroles de cet homme chétif, et il ne put s'empêcher de penser à Xu Liguo.
 

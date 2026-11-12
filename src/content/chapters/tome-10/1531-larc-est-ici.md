@@ -112,7 +112,7 @@ Le cultivateur en blanc, devenu un vieillard, était plongé dans l'incrédulit�
 
 Cependant, alors qu'il prenait congé, une énergie démoniaque jaillit du Système Stellaire de la Mer Yun. Cette énergie était d'une rapidité extrême, égalant celle de la flèche précédente!
 
-Alors que l'énergie se propageait, le démon ancien de la Secte Fantôme apparut sous forme de fantôme près de la Formation de Scellement du Royaume. Les neuf étoiles dans son œil gauche tourbillonnaient. Ses yeux brillaient d'avidité alors qu'il fixait l'arc entre les mains du vieillard. Toutefois, son corps n'était qu'une projection; son véritable corps n'était pas là. Bien qu'il possédât neuf étoiles dans l'œil, ce n'était qu'une simple illusion.
+Alors que l'énergie se propageait, le démon ancien de la Secte Gui apparut sous forme de fantôme près de la Formation de Scellement du Royaume. Les neuf étoiles dans son œil gauche tourbillonnaient. Ses yeux brillaient d'avidité alors qu'il fixait l'arc entre les mains du vieillard. Toutefois, son corps n'était qu'une projection; son véritable corps n'était pas là. Bien qu'il possédât neuf étoiles dans l'œil, ce n'était qu'une simple illusion.
 
 Souriant, il se rapprocha du cultivateur en blanc et le griffa sans pitié!
 

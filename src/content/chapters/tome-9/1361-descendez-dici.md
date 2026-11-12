@@ -108,6 +108,6 @@ Une voix étouffée sortit du vortex, et même tout le Système Stellaire Antiqu
 
 À cet instant, les innombrables habitants du Système Stellaire Antique entendirent cette voix!
 
-Au sein du Clan Lan Si sur le Mont Bleu, Li Qianmei regarda calmement vers l'horizon. De la confusion et une lutte intérieure brillaient dans ses yeux. C'était comme si... un souvenir qu'elle ne pouvait ni rompre ni oublier s'éveillait lentement.
+Au sein du Clan Lan Si sur le Mont Lan, Li Qianmei regarda calmement vers l'horizon. De la confusion et une lutte intérieure brillaient dans ses yeux. C'était comme si... un souvenir qu'elle ne pouvait ni rompre ni oublier s'éveillait lentement.
 
 À ses côtés, Lanmeng Daozun poussa un soupir et cessa de jouer de la cithare. Il était sur le point de parler quand son expression changea soudainement. Il se précipita hors de la demeure, le regard froid, fixant l'immensité du ciel étoilé!

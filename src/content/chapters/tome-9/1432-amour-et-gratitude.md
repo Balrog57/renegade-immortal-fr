@@ -64,11 +64,11 @@ Zhou Yi avait été épris d'amour toute sa vie; rien ne pouvait effacer son obs
 
 « Moi, Zhou Yi, je ne veux faire qu'une seule chose dans ma vie: accompagner Qing Shuang jusqu'à la fin des temps... »
 
-Le frère Qing Shui avait un visage froid mais un cœur chaleureux. Une fois qu'il eut décidé que Wang Lin était le disciple de la lignée de Bai Fan, il fut prêt à tout pour s'assurer que personne ne lui fasse de mal!
+Senior frère Qing Shui avait un visage froid mais un cœur chaleureux. Une fois qu'il eut décidé que Wang Lin était le disciple de la lignée de Bai Fan, il fut prêt à tout pour s'assurer que personne ne lui fasse de mal!
 
-« Puisqu'il est mon frère cadet, personne ne peut lui nuire. Si vous lui blessez ne serait-ce qu'un doigt, je vous réclamerai la vie! »
+« Puisqu'il est mon Junior frère, personne ne peut lui nuire. Si vous lui blessez ne serait-ce qu'un doigt, je vous réclamerai la vie! »
 
-La folie de Qing Shui, qui l'avait poussé à tuer sa femme, était le fruit des complots du Royaume Extérieur et exprimait toute sa douleur et son indignation. S'il découvrait que le frère cadet qu'il avait autrefois protégé était devenu l'esclave de la cause de son malheur, comment se sentirait-il... Il y avait aussi la cinquième génération d'Oiseau Vermillon. Bien qu'au terme de sa vie, il était toujours prêt à aider Wang Lin à se rétablir. Il lui avait même légué la Secte Divine de l'Oiseau Vermillon. Son regard bienveillant resterait à jamais gravé dans le cœur de Wang Lin.
+La folie de Qing Shui, qui l'avait poussé à tuer sa femme, était le fruit des complots du Royaume Extérieur et exprimait toute sa douleur et son indignation. S'il découvrait que le Junior frère qu'il avait autrefois protégé était devenu l'esclave de la cause de son malheur, comment se sentirait-il... Il y avait aussi la cinquième génération d'Oiseau Vermillon. Bien qu'au terme de sa vie, il était toujours prêt à aider Wang Lin à se rétablir. Il lui avait même légué la Secte Divine de l'Oiseau Vermillon. Son regard bienveillant resterait à jamais gravé dans le cœur de Wang Lin.
 
 « Ce vieil homme, Lu Yun, a vécu toute sa vie pour la Secte Divine de l'Oiseau Vermillon... Même si je vais bientôt mourir, je peux désormais mourir avec le sourire... Tu es excellent, prends soin de la Secte Divine de l'Oiseau Vermillon pour moi. »
 
@@ -84,7 +84,7 @@ Il y avait encore tant de gens, tant de personnes... Comment Wang Lin pourrait-i
 
 Le Maître Simo d'aujourd'hui était l'avenir de Wang Lin!
 
-Pour ressusciter sa sœur, le Maître Simo avait abandonné la Secte Brise-Ciel et tous ses frères de secte. Il avait même sacrifié sa propre âme pour devenir le chien du Souverain et avait tué sur ordre de celui-ci. Sur un simple signe du Souverain, même s'il s'agissait de son propre maître, il aurait levé le couperet tout en versant des larmes!
+Pour ressusciter sa sœur, le Maître Simo avait abandonné la Secte Po Tian et tous ses frères de secte. Il avait même sacrifié sa propre âme pour devenir le chien du Souverain et avait tué sur ordre de celui-ci. Sur un simple signe du Souverain, même s'il s'agissait de son propre maître, il aurait levé le couperet tout en versant des larmes!
 
 S'il n'avait pas vu les souvenirs du Maître Simo, le choix de Wang Lin aurait été encore plus déchirant.
 

@@ -42,7 +42,7 @@ Maître Yan Leizi du Temple Céleste du Tonnerre; Lie Yunzi, qui avait été gra
 
 Outre ces trois-là, le dernier était Xiang Yundong!
 
-Xiang Yundong était celui qui avait conduit Wang Lin sur la planète Dong Lin et qui l'avait fait passer par le sortilège Qixi, grâce auquel l'ancêtre de la famille Xiang avait trompé ce dernier, lui aspirant ainsi presque toute sa force vitale!
+Xiang Yundong était celui qui avait conduit Wang Lin sur la planète ancestrale de la famille Xiang et qui l'avait fait passer par le sortilège Qixi, grâce auquel l'ancêtre de la famille Xiang avait trompé ce dernier, lui aspirant ainsi presque toute sa force vitale!
 
 Maître Yan Leizi suivait Maître Lu Fu depuis le plus longtemps. En voyant l'expression du vieil homme changer, il fut stupéfait. Après une brève hésitation, il joignit les mains et demanda respectueusement: « Senior, que se passe-t-il? »
 
@@ -82,7 +82,7 @@ Des grondements tonitruants éclatèrent alors qu'une foudre monstrueuse jaillis
 
 Dans un fracas assourdissant, le miroir vola en éclats. L'expression de Maître Lu Fu changea et il agita ses manches pour repousser l'onde de choc!
 
-Cependant, un tonnerre infini s'éleva dans les cieux, créant des grondements incessants qui secouèrent tous les cultivateurs aux alentours! Pour eux, le tonnerre recouvrait les étoiles comme si un châtiment divin descendait sur le monde!
+Cependant, un tonnerre infini s'éleva dans les cieux, créant des grondements incessants qui secouèrent tous les cultivateurs aux alentours! Pour eux, le tonnerre recouvrait les étoiles comme si une Tribulation Céleste descendait sur le monde!
 
 Maître Yan Leizi cracha du sang et se retira précipitamment. Ses yeux étaient écarquillés d'incrédulité. À cet instant, une voix rugissait frénétiquement dans son cœur:
 

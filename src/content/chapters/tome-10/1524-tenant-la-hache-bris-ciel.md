@@ -40,7 +40,7 @@ L'espace gronda et une immense faille spatiale s'ouvrit. Une aura ancienne en ja
 
 Chaque éclair avait une épaisseur de cent pieds, bombardant l'ennemi avec acharnement après que Wang Lin eut libéré son essence de tonnerre!
 
-Une tempête de feu surgit de nulle part, formant un vortex gigantesque. Un Oiseau Vermillon s'y trouvait et fondit sur les cultivateurs du Royaume Extérieur en poussant un cri strident!
+Une tempête de feu surgit de nulle part, formant un vortex gigantesque. Un Suzaku s'y trouvait et fondit sur les cultivateurs du Royaume Extérieur en poussant un cri strident!
 
 Les grondements tonitruants secouèrent le domaine stellaire! Une seule personne stoppa l'armée du Royaume Extérieur qui poursuivait! Une seule personne fit cesser la charge de l'ennemi!
 

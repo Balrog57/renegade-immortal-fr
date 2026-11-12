@@ -1,6 +1,6 @@
 ---
 n: 1330
-title: Classement du Tonnerre Éparpillé
+title: Classement Shan Lei
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1330 - Scatter Thunder Ranking
@@ -72,9 +72,9 @@ Ce jade abritait une formation toujours active, vaguement fusionnée avec le mon
 
 Cette liste comptait au total 800 noms, chacun associé à un nombre représentant les cristaux de tonnerre possédés. Il y avait manifestement bien plus de 800 personnes dans le Clan Shan Lei, mais seuls les 800 premiers figuraient sur cette liste!
 
-Wang Lin regarda le premier nom et fronça les sourcils. « 1 900 007 000... » La personne en tête de liste s'appelait Yunshanzi.
+Wang Lin regarda le premier nom et fronça les sourcils. « 1 970 000 000... » La personne en tête de liste s'appelait Yunshanzi.
 
-« 1 300 009 000... » Le second était nommé Furong.
+« 1 390 000 000... » Le second était nommé Furong.
 
 Après un examen rapide, il nota que même le 800e nom possédait plus de 400 000 cristaux de tonnerre. Quant au vieil homme de la grotte, il n'en avait que 70 000, ce qui était insignifiant.
 
@@ -98,6 +98,6 @@ Le vieil homme de l'Âme Naissante intermédiaire hocha la tête, imperturbable,
 
 Les yeux des trois cultivateurs de la Formation du Noyau pétillèrent de joie. Celui qui avait parlé exprima rapidement sa gratitude dans un rire: « Oncle pourra certainement échanger ces trésors contre une multitude de cristaux de tonnerre. Votre statut à la Secte Tian Lei s'en trouvera grandement élevé! »
 
-Le cultivateur de l'Âme Naissante intermédiaire regarda le subordonné et ajouta doucement: « Je n'utiliserai pas ces cristaux pour moi-même, je les remettrai au Maître de la Secte. Le Maître de ma Secte est très proche du Classement du Tonnerre Dispersé. Bientôt, il y figurera! »
+Le cultivateur de l'Âme Naissante intermédiaire regarda le subordonné et ajouta doucement: « Je n'utiliserai pas ces cristaux pour moi-même, je les remettrai au Maître de la Secte. Le Maître de ma Secte est très proche du Classement Shan Lei. Bientôt, il y figurera! »
 
 À ces paroles, les trois cultivateurs de la Formation du Noyau furent stupéfaits et leur respect envers lui devint immense.

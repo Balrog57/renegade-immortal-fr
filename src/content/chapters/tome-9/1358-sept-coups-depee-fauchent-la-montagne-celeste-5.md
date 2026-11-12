@@ -20,7 +20,7 @@ En un instant, une quantité infinie d'âmes tourmentées sembla être invoquée
 
 C'était l'épée de la rancœur envers les immortels!
 
-Il était forgé par les âmes de tous les cultivateurs morts lors des tribulations divines dans les 7 Millions de Mondes. Bien qu'ils fussent décédés, leur ressentiment persistait. Au moment de leur agonie, ils avaient tout compris. Ils vouaient une haine farouche aux êtres célestes et au Royaume Céleste lui-même!
+Il était forgé par les âmes de tous les cultivateurs morts lors des Tribulations Célestes dans les 7 Millions de Mondes. Bien qu'ils fussent décédés, leur ressentiment persistait. Au moment de leur agonie, ils avaient tout compris. Ils vouaient une haine farouche aux êtres célestes et au Royaume Céleste lui-même!
 
 À cet instant, le sixième coup réveilla toutes ces âmes qui s'étaient accumulées durant d'innombrables années. Elles allaient dévorer les êtres célestes pour venger leur sort!
 

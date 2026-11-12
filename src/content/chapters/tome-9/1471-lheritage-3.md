@@ -64,7 +64,7 @@ Frappé par cette puissance colossale, il fut contraint de reculer de plusieurs 
 
 Cette statue noire était le Dieu Démon du clan Ling Dong. Elle poussa un rugissement tandis que ses bras se déployaient pour presser Wang Lin à travers le vide.
 
-Le visage de Zhou Jin, du clan du Loup Céleste, pâlit également et des craquements provinrent de sa main droite. Ses os se transformèrent en poudre et son bras droit s'effondra. Il recula de quelques pas en crachant du sang, puis poussa un rugissement, faisant apparaître un fantôme de loup rouge derrière lui.
+Le visage de Zhou Jin, du clan Feng Tian Lang, pâlit également et des craquements provinrent de sa main droite. Ses os se transformèrent en poudre et son bras droit s'effondra. Il recula de quelques pas en crachant du sang, puis poussa un rugissement, faisant apparaître un fantôme de loup rouge derrière lui.
 
 Le loup sanguinaire hurla et bondit par-dessus Zhou Jin pour aider à contenir la force émanant du corps de Wang Lin!
 
@@ -86,7 +86,7 @@ Le corps de Tuo Sen continuait de s'étendre pour atteindre des dizaines de mill
 
 Tuo Sen ne remarqua pas l'existence de Wang Lin dans ses rugissements. Une excitation sauvage se lisait sur son visage féroce.
 
-« Maudit Ordre Ancien, cet héritage appartient à ce Dieu. Dans tout le ciel étoilé, nul autre que ce Dieu n'est qualifié pour le recevoir. Pourtant, vous dressez tous ces obstacles! Êtes-vous devenus stupides?! »
+« Maudit Dao Gu, cet héritage appartient à ce Dieu. Dans tout le ciel étoilé, nul autre que ce Dieu n'est qualifié pour le recevoir. Pourtant, vous dressez tous ces obstacles! Êtes-vous devenus stupides?! »
 
 Les yeux de Wang Lin étaient injectés de sang. À cet instant, sa moitié inférieure s'était effondrée et il ne lui restait que le haut du corps. Cependant, Wang Lin s'en moquait. Tant qu'il pouvait conserver l'aura en lui et devenir un Dieu Ancien à sept étoiles, tout pourrait être restauré!
 
@@ -98,7 +98,7 @@ La force de rejet, déjà cent fois supérieure, augmenta soudainement encore. B
 
 Cette force colossale jaillit directement vers l'extérieur. Le corps de Wang Lin trembla et il cracha une importante quantité de sang. Son expression devint féroce, comme s'il avait sombré dans la démence!
 
-« Puisque l'Ordre Ancien Ye Mo a pu siéger sur ce trône, pourquoi moi, Wang Lin, ne le pourrais-je pas? Je siégerai ici!! Essayez donc de m'en empêcher!! »
+« Puisque Dao Gu Ye Mo a pu siéger sur ce trône, pourquoi moi, Wang Lin, ne le pourrais-je pas? Je siégerai ici!! Essayez donc de m'en empêcher!! »
 
 La force de rejet était comme un tsunami déferlant sur le corps de Wang Lin, et elle s'engouffra également dans les fantômes invoqués par Ling Dong et Zhou Jin. Cette force inimaginable frappa les statues, les faisant trembler avant qu'elles ne volent en éclats. Ling Dong cracha du sang et fut projeté hors de la plateforme!
 

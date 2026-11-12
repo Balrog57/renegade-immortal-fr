@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1396 - Waves Surges
 slug: vagues-de-deferlement
 ---
-La planète des Scorpions Noirs était toujours enveloppée d'une couche d'énergie démoniaque. De loin, elle paraissait extrêmement étrange, et même les créatures de la planète commençaient à s'agiter.
+La planète du Clan An Xie était toujours enveloppée d'une couche d'énergie démoniaque. De loin, elle paraissait extrêmement étrange, et même les créatures de la planète commençaient à s'agiter.
 
 Ce jour-là, il ne restait que six jours avant la Sélection des Anciens Délaissés, et l'énergie démoniaque qui drapait la planète commença à changer. Cette énergie gronda bruyamment et se contracta rapidement, affluant en masse vers l'intérieur de la planète!
 

@@ -52,15 +52,15 @@ Ce spectacle lui infligea une douleur si intense qu'il manqua de s'effondrer. To
 
 La plupart des maisons alentour avaient été réduites en cendres. Seul le luxueux palanquin était intact. Par comparaison avec les décombres, sa couleur éclatante était d'un contraste saisissant et tragique!
 
-Le jeune homme se mordit la lèvre inférieure. Tremblant d'une panique indescriptible, il pénétra dans la maison brûlée jouxtant le palanquin. Un corps gisait là: c'était Tiger... À ses côtés se trouvait le cadavre nu d'une femme. C'était la sœur de Tiger, Hong Hong... Le jeune homme faillit s'écrouler alors qu'il s'enfonçait plus profondément dans la pièce. Il vit sa... petite sœur... La demeure calcinée n'avait plus que quelques poutres debout, et un morceau de soie blanche, noué autour du cou d'un corps féminin misérable, pendait à l'une d'elles... Ses vêtements étaient en désordre et le sang s'écoulait de ses sept orifices. Ses yeux semblaient encore empreints de confusion, fixant l'horizon comme si elle attendait un être cher... En voyant cela, le jeune homme cracha une bouchée de sang.
+Le jeune homme se mordit la lèvre inférieure. Tremblant d'une panique indescriptible, il pénétra dans la maison brûlée jouxtant le palanquin. Un corps gisait là: c'était Huzi... À ses côtés se trouvait le cadavre nu d'une femme. C'était la sœur de Huzi, Hong Hong... Le jeune homme faillit s'écrouler alors qu'il s'enfonçait plus profondément dans la pièce. Il vit sa... petite sœur... La demeure calcinée n'avait plus que quelques poutres debout, et un morceau de soie blanche, noué autour du cou d'un corps féminin misérable, pendait à l'une d'elles... Ses vêtements étaient en désordre et le sang s'écoulait de ses sept orifices. Ses yeux semblaient encore empreints de confusion, fixant l'horizon comme si elle attendait un être cher... En voyant cela, le jeune homme cracha une bouchée de sang.
 
 « Petite sœur! » Son cri déchirant résonna dans la nuit de ce village désolé et funeste! Il persista longtemps... « Ne pleure pas, Petite Lan, sois sage. Grand frère ne dormira plus. Je t'apporterai cette orchidée pourpre, d'accord? Alors, ne pleure plus. »
 
 « Petite Lan, voilà plusieurs centaines de fois que tu me demandes où sont partis Maman et Papa... Ne t'ai-je pas dit qu'ils étaient partis très loin... Ils nous regarderont de là-bas, ils verront Lan Lan grandir, ils te verront te marier... Ne pleure pas... »
 
-« Euh... Puisque tu n'aimes pas Tiger, alors laisse tomber. Grand frère ne court pas après la grande sœur de Tiger comme tu le prétends... »
+« Euh... Puisque tu n'aimes pas Huzi, alors laisse tomber. Grand frère ne court pas après la grande sœur de Huzi comme tu le prétends... »
 
-« Le rêve de Grand frère est de devenir un Immortel! Petite Lan, attends ton Grand frère. Quand j'aurai réussi, je reviendrai vous aider, toi et Tiger, à vivre éternellement! »
+« Le rêve de Grand frère est de devenir un Immortel! Petite Lan, attends ton Grand frère. Quand j'aurai réussi, je reviendrai vous aider, toi et Huzi, à vivre éternellement! »
 
 « Quand tu te marieras, Grand frère te préparera une dot magnifique pour que tu sois la plus belle des mariées. »
 
@@ -78,13 +78,13 @@ En quittant le village, il se retourna et sortit la soie blanche. Une voix aussi
 
 Le jeune homme se mordit la lèvre jusqu'au sang, laissant quelques gouttes tomber sur la soie blanche. En s'étendant, elles formèrent une tache semblable à une fleur de prunier... « Le Gang des Chevaux... » Une haine monstrueuse brilla dans ses yeux alors qu'il s'éloignait vers l'horizon... « Grand frère, je t'attendrai... »
 
-Le temps passa, et en un éclair, des décennies s'écoulèrent... Le talent du jeune homme dépassait tout ce qu'il avait pu imaginer. Bien qu'il ne fût pas le plus exceptionnel, il était néanmoins stupéfiant. Il avait rejoint la Secte Brise-Ciel et, porté par une détermination hors du commun, il devint le plus brillant de la génération junior!
+Le temps passa, et en un éclair, des décennies s'écoulèrent... Le talent du jeune homme dépassait tout ce qu'il avait pu imaginer. Bien qu'il ne fût pas le plus exceptionnel, il était néanmoins stupéfiant. Il avait rejoint la Secte Po Tian et, porté par une détermination hors du commun, il devint le plus brillant de la génération junior!
 
 Au sein du Gang des Chevaux, plus de mille quatre cents membres furent massacrés en une seule nuit pluvieuse; aucun ne fut épargné... Même les chevaux furent abattus. Environ sept ou huit vieillards subirent les supplices les plus atroces avant de mourir. Leur douleur n'était pas celle d'une mort ordinaire; ils hurlèrent pendant près de quinze jours avant de rendre l'âme.
 
 Leurs âmes avaient été extraites et soumises à un raffinage cruel, les empêchant d'entrer dans le cycle de la réincarnation... Pourtant, Sima Mo ressentait toujours une douleur semblable à des aiguilles transperçant son cœur. Le principal coupable qui avait outragé sa petite sœur était mort de maladie des années auparavant. Grâce à la recherche d'âme, il avait découvert que ce dernier n'avait pas vraiment souffert avant de mourir, et il refusait de laisser cela ainsi!
 
-Après son retour à la secte, cent années supplémentaires passèrent... Sima Mo avait atteint le stade de l'Âme Naissante et était devenu le plus puissant de sa génération. Il attira l'attention du Maître de la Secte Brise-Ciel et fut accepté comme son disciple.
+Après son retour à la secte, cent années supplémentaires passèrent... Sima Mo avait atteint le stade de l'Âme Naissante et était devenu le plus puissant de sa génération. Il attira l'attention du Maître de la Secte Po Tian et fut accepté comme son disciple.
 
 En hiver, Sima Mo descendit de la montagne une nouvelle fois. Utilisant un sort pour calculer la réincarnation du coupable, il déclencha un massacre!
 
@@ -92,7 +92,7 @@ Quelle haine pouvait pousser un homme à traquer un coupable jusque dans ses vie
 
 Le temps passa... Wang Lin vit tout cela à travers les souvenirs de Maître Simo. Il resta silencieux, plongé en pleine réflexion.
 
-Il vit également ce qui se passerait des dizaines de milliers d'années plus tard, quand Maître Simo verrait ses compagnons de secte périr dans le Royaume aux Sept Couleurs. Son corps serait frappé par le clou aux sept couleurs et il serait emmené par le Souverain... « Moi, Sima Mo, bien que banni de la Secte Brise-Ciel, je reste un membre du Royaume Intérieur. Comment pourrais-je devenir le chien du Royaume Extérieur? Comment pourrais-je tout abandonner simplement pour survivre et céder à la tentation d'atteindre la troisième étape? »
+Il vit également ce qui se passerait des dizaines de milliers d'années plus tard, quand Maître Simo verrait ses compagnons de secte périr dans le Royaume aux Sept Couleurs. Son corps serait frappé par le clou aux sept couleurs et il serait emmené par le Souverain... « Moi, Sima Mo, bien que banni de la Secte Po Tian, je reste un membre du Royaume Intérieur. Comment pourrais-je devenir le chien du Royaume Extérieur? Comment pourrais-je tout abandonner simplement pour survivre et céder à la tentation d'atteindre la troisième étape? »
 
 « Si je dois mourir, alors que je meure! »
 

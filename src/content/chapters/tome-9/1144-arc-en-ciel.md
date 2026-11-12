@@ -14,7 +14,7 @@ Un grondement de tonnerre retentit alors que la bête spirituelle noire géante 
 
 Tandis que le jeune homme riait, la bête spirituelle noire sous ses pieds chargea à une vitesse inimaginable vers la Secte Gui Yuan, située à l'est du continent.
 
-« Le jeune maître du Dao Pourpre est arrivé. Pourquoi la Secte Gui Yuan ne vient-elle pas l'accueillir?! » Une voix vieille et lugubre résonna, suivant le rugissement du tonnerre de la bête. L'unique secte du continent, la Secte Gui Yuan, entendit ces paroles avec une clarté absolue. Le vieil homme savait que son jeune maître aimait agir de manière dominante en public. Normalement, il n'aurait pas agi ainsi, mais en cet instant, le destin de la Secte Gui Yuan reposait entre ses mains. Il choisit donc d'accompagner l'arrogance du jeune maître. D'un revers de main, le vieil homme projeta une bourrasque de vent pourpre.
+« Le jeune maître de la Secte Zi Dao est arrivé. Pourquoi la Secte Gui Yuan ne vient-elle pas l'accueillir?! » Une voix vieille et lugubre résonna, suivant le rugissement du tonnerre de la bête. L'unique secte du continent, la Secte Gui Yuan, entendit ces paroles avec une clarté absolue. Le vieil homme savait que son jeune maître aimait agir de manière dominante en public. Normalement, il n'aurait pas agi ainsi, mais en cet instant, le destin de la Secte Gui Yuan reposait entre ses mains. Il choisit donc d'accompagner l'arrogance du jeune maître. D'un revers de main, le vieil homme projeta une bourrasque de vent pourpre.
 
 Toute la pluie qui tombait fut repoussée. C'était comme si les précipitations devaient s'arrêter partout où passait cette rafale! Même les éclairs furent déchirés par le souffle du vent, se dispersant tels des fleurs épanouies.
 
@@ -34,7 +34,7 @@ Pourtant, même s'ils ne pouvaient plus le tolérer, que pouvaient-ils faire? Os
 
 Derrière les quatre grands anciens de la Secte Gui Yuan, leurs disciples directs les suivaient. Ils volaient vers l'ouest, animés par la panique, la détermination ou la colère.
 
-Xu Yun comptait parmi eux. Son visage témoignait de sa volonté de mourir. Cependant, pour une raison inconnue, alors qu'elle volait, deux silhouettes apparurent dans son esprit.
+Sun Yun comptait parmi eux. Son visage témoignait de sa volonté de mourir. Cependant, pour une raison inconnue, alors qu'elle volait, deux silhouettes apparurent dans son esprit.
 
 L'une avait les cheveux noirs, était très svelte et d'allure ordinaire, mais demeurait toujours aussi calme que l'eau. L'autre, vêtu de blanc, avait les cheveux blancs, et d'un simple mouvement de doigt, il pouvait faire s'effondrer le monde!
 
@@ -56,7 +56,7 @@ Le vieil homme à ses côtés hocha la tête. Juste au moment où il s'apprêtai
 
 Il vit des ondulations apparaître dans le vide et une puissante force du ciel et de la terre se répandre. Un homme aux cheveux blancs sortit de ces ondulations!
 
-L'homme aux cheveux blancs arborait une expression glaciale, et dès son apparition, une intention meurtrière monstrueuse envahit le monde. La bête spirituelle noire s'arrêta net et l'expression du vieil homme changea. Le jeune homme en pourpre fronça les sourcils et allait hurler quand le vieil homme se posta devant lui. Ce dernier fixa Wang Lin d'un regard sérieux et dit: « Je suis Song Wude, de la Secte Zi Dao. Ce Compagnon Cultivateur pourrait-il me faire l'honneur de me laisser passer? »
+L'homme aux cheveux blancs arborait une expression glaciale, et dès son apparition, une intention meurtrière monstrueuse envahit le monde. La bête spirituelle noire s'arrêta net et l'expression du vieil homme changea. Le jeune homme en pourpre fronça les sourcils et allait hurler quand le vieil homme se posta devant lui. Ce dernier fixa Wang Lin d'un regard sérieux et dit: « Je suis Song Wude, de la Secte Zi Dao. Ce Daoïste pourrait-il me faire l'honneur de me laisser passer? »
 
 En entendant les paroles du vieil homme, le jeune homme en pourpre fut stupéfait et examina attentivement Wang Lin.
 

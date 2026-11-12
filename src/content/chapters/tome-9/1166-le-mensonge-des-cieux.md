@@ -22,11 +22,11 @@ C'est à ce moment que les paroles de Li Qianmei retentirent. Sa voix était dou
 
 Wang Lin observa calmement Li Qianmei. La culture de cette femme était insondable. Bien qu'elle dissimulât son niveau, Wang Lin pouvait percevoir qu'elle se situait au stade du Briseur du Nirvana.
 
-« Qui est ce compagnon de culture? » Les yeux de Wang Lin restaient calmes, mais son esprit s'activait.
+« Qui est ce Daoïste? » Les yeux de Wang Lin restaient calmes, mais son esprit s'activait.
 
 Une brise légère souffla, faisant flotter quelques mèches de cheveux devant le visage de Li Qianmei. Elle les écarta derrière son oreille, regarda Wang Lin et dit doucement:
 
-« Secte Brise-Ciel, Li Qianmei! »
+« Secte Po Tian, Li Qianmei! »
 
 L'esprit de Wang Lin fut troublé, mais son expression ne changea pas lorsqu'il répondit lentement: « Pourquoi la Daoïste Li est-elle venue ici? »
 

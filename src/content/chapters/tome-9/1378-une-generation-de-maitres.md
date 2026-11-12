@@ -42,7 +42,7 @@ Il osait affronter les cieux, lutter contre le destin et combattre le Dao!
 
 C'était Wang Lin! Il avait arraché la vie de Li Muwan au Dao Céleste, jouant une chance de survie au cœur du danger. Il possédait le royaume capable de condenser les Flammes Joss mais avait renoncé à s'élever par une force extérieure, ne comptant que sur ses cinq essences pour déclencher la Grande Porte Kong. Il avait emprunté un chemin vers le Dao que bien peu avaient foulé depuis toujours!
 
-Il avait conduit le peuple des 7 Millions de Mondes à briser le ciel et la terre pour retourner dans l'espace stellaire! Il avait tué le Grand Ancien du Clan Shan Lei malgré un niveau de culture inférieur! Il avait utilisé sa propre puissance pour venir dans l'Ancien Système Stellaire afin de ramener Li Qianmei chez elle!
+Il avait conduit les sept millions d'habitants du monde à briser le ciel et la terre pour retourner dans l'espace stellaire! Il avait tué le Grand Ancien du Clan Shan Lei malgré un niveau de culture inférieur! Il avait utilisé sa propre puissance pour venir dans l'Ancien Système Stellaire afin de ramener Li Qianmei chez elle!
 
 Il avait semé le chaos dans l'Ancien Système Stellaire et était traqué par l'ensemble de ce dernier. Avec tout ce qu'il avait accompli, même Qing Lin d'autrefois ne pouvait que soupirer, sachant qu'il n'était pas son égal.
 
@@ -122,7 +122,7 @@ Ce blanc ressemblait à une toile de peinture! D'innombrables ombres y dessinaie
 
 « Je suis le pinceau, un seul trait pour briser le ciel. Accomplissez mon Dao Briseur de Ciel! » Le Maître Simo agita sa main droite telle un pinceau. Le monde se métamorphosa sous ses mouvements, comme s'il façonnait son propre univers!
 
-Les pupilles de Wang Lin se rétractèrent. Lorsqu'il avait discuté du Dao avec Li Qianmei, ils avaient également abordé la question des sorts, et il avait récupéré le jade de Sima Mo. Il s'était aussi rendu dans la grotte de Sima Mo au sein du Royaume aux Sept Couleurs. Tout cela lui avait permis de savoir qu'il existait au sein de la Secte Brise-Ciel une technique divine nommée le Dao Briseur de Ciel!
+Les pupilles de Wang Lin se rétractèrent. Lorsqu'il avait discuté du Dao avec Li Qianmei, ils avaient également abordé la question des sorts, et il avait récupéré le jade de Sima Mo. Il s'était aussi rendu dans la grotte de Sima Mo au sein du Royaume aux Sept Couleurs. Tout cela lui avait permis de savoir qu'il existait au sein de la Secte Po Tian une technique divine nommée le Dao Briseur de Ciel!
 
 Seuls les Maîtres de Secte successifs et le disciple aîné pouvaient la pratiquer! Il était d'une puissance incommensurable!
 

@@ -78,15 +78,15 @@ Deux cultivatrices du Clan Yun Dun massaient les épaules de Zhong Dahong. Se se
 
 « Ce n'est pas que ce vieux vous méprise, mais avec vos niveaux de culture, sans même parler de mon Maître, même moi je ne vous considère pas comme une menace. Un simple revers suffit pour vous écraser comme des fourmis! » Zhong Dahong leva le menton et les réprimanda avec dédain.
 
-Les cultivateurs de l'Évasion Nuageuse acquiescèrent tous. Même les plus hautains n'osaient plus rien répliquer alors que tout leur clan risquait la destruction.
+Les cultivateurs du Clan Yun Dun acquiescèrent tous. Même les plus hautains n'osaient plus rien répliquer alors que tout leur clan risquait la destruction.
 
-Le patriarche et les anciens de l'Évasion Nuageuse se tenaient respectueusement aux côtés de Zhong Dahong, affichant des sourires flatteurs et hochant la tête sans cesse.
+Le patriarche et les anciens du Clan Yun Dun se tenaient respectueusement aux côtés de Zhong Dahong, affichant des sourires flatteurs et hochant la tête sans cesse.
 
-« Seigneur, veuillez nous pardonner. Je ne connaissais pas votre identité. J'espère que vous direz du bien de nous, et en retour, je vous offrirai un présent généreux. » Le patriarche de l'Évasion Nuageuse ressentait une profonde amertume. Son niveau de culture était nettement supérieur; il aurait pu tuer Zhong Dahong d'un seul doigt, des centaines de fois, mais il devait désormais le servir avec les plus grands égards.
+« Seigneur, veuillez nous pardonner. Je ne connaissais pas votre identité. J'espère que vous direz du bien de nous, et en retour, je vous offrirai un présent généreux. » Le patriarche du Clan Yun Dun ressentait une profonde amertume. Son niveau de culture était nettement supérieur; il aurait pu tuer Zhong Dahong d'un seul doigt, des centaines de fois, mais il devait désormais le servir avec les plus grands égards.
 
 Zhong Dahong savourait le massage des cultivatrices. Il laissa échapper un reniflement et dit fièrement: « Puisque vous reconnaissez votre erreur, je devrais vous donner une chance de vous repentir, mais... »
 
-Le patriarche de l'Évasion Nuageuse s'avança rapidement et agita la main pour sortir une bouteille de jade. Le cœur serré, il serra les dents et la lui tendit.
+Le patriarche du Clan Yun Dun s'avança rapidement et agita la main pour sortir une bouteille de jade. Le cœur serré, il serra les dents et la lui tendit.
 
 « Ce n'est qu'un modeste présent, j'espère que Seigneur l'acceptera. »
 
@@ -100,6 +100,6 @@ Zhong Dahong la saisit et l'examina. La joie illumina ses yeux lorsqu'il la rang
 
 À cet instant, toute l'arrogance qu'il montrait devant le Clan Yun Dun avait disparu, remplacée par une flatterie constante.
 
-C'était la première fois que les cultivateurs de l'Évasion Nuageuse assistaient à un tel spectacle et ils en restèrent stupéfaits. Même le patriarche, qui venait d'offrir le présent, était pétrifié. Il ne pouvait imaginer comment quelqu'un pouvait changer si radicalement en un instant.
+C'était la première fois que les cultivateurs du Clan Yun Dun assistaient à un tel spectacle et ils en restèrent stupéfaits. Même le patriarche, qui venait d'offrir le présent, était pétrifié. Il ne pouvait imaginer comment quelqu'un pouvait changer si radicalement en un instant.
 
-« Dépêchez-vous, faites place! Pourquoi restez-vous là? Ne bloquez pas le passage de mon Maître! » Zhong Dahong se précipita vers Wang Lin et écarta les cultivateurs de l'Évasion Nuageuse, y compris le patriarche, comme s'il avait totalement oublié la joie d'avoir reçu son cadeau.
+« Dépêchez-vous, faites place! Pourquoi restez-vous là? Ne bloquez pas le passage de mon Maître! » Zhong Dahong se précipita vers Wang Lin et écarta les cultivateurs du Clan Yun Dun, y compris le patriarche, comme s'il avait totalement oublié la joie d'avoir reçu son cadeau.

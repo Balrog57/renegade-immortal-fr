@@ -42,23 +42,23 @@ Wang Lin fixa l'épée un instant et son œil droit étincela. La seconde âme o
 
 À cet instant, Wang Lin forma un sceau complexe et expulsa un artefact: le Sceau Céleste des 18 Enfers!
 
-« Arsenal Magique, Maître du Vide, Tian Yunzi, apparaissez! » Après avoir lancé l'invocation, il agita la main droite et des éclats de lumière entourèrent le Sceau Céleste des 18 Enfers. Ces éclats se rassemblèrent rapidement pour former les silhouettes de deux âmes!
+« Arsenal Magique, Xu Kongzi, Tian Yunzi, apparaissez! » Après avoir lancé l'invocation, il agita la main droite et des éclats de lumière entourèrent le Sceau Céleste des 18 Enfers. Ces éclats se rassemblèrent rapidement pour former les silhouettes de deux âmes!
 
-C'étaient Maître du Vide et Tian Yunzi, formés par la fusion de leurs deux avatars!
+C'étaient Xu Kongzi et Tian Yunzi, formés par la fusion de leurs deux avatars!
 
 Dès l'apparition de ces deux âmes captives, elles se précipitèrent sur l'épée brisée. Elles encerclèrent l'arme avec la seconde âme originelle de Wang Lin pour accélérer son affinage! Simultanément, Wang Lin leva sa main gauche et pressa le volcan. La terre commença à gronder, la fumée noire s'intensifia et une vague de chaleur jaillit soudainement des entrailles du volcan.
 
 De la lave rougeja également avec cette onde thermique. Mais d'un geste de la main gauche, Wang Lin fit couler le magma comme de l'eau pour entourer l'épée brisée. Il forma une sphère de magma de cent pieds de large, faisant grimper la température intérieure à un niveau extrême.
 
-Cette fois, Wang Lin était prêt à tout pour affiner totalement cette épée de massacre de Tian Yunzi en robe grise. Il utilisait sa seconde âme originelle, Maître du Vide, Tian Yunzi, l'énergie originelle du feu planétaire et enfin la lave pour créer une enveloppe destinée à accélérer le processus.
+Cette fois, Wang Lin était prêt à tout pour affiner totalement cette épée de massacre de Tian Yunzi en robe grise. Il utilisait sa seconde âme originelle, Xu Kongzi, Tian Yunzi, l'énergie originelle du feu planétaire et enfin la lave pour créer une enveloppe destinée à accélérer le processus.
 
-Wang Lin se tenait sous cette sphère de cent pieds tout en contrôlant l'énergie originelle du feu qui y pénétrait. Le temps s'écoula lentement; vingt-quatre heures s'étaient déjà écoulées depuis le début de l'opération.
+Wang Lin se tenait sous cette sphère de cent pieds tout en contrôlant l'énergie originelle du feu qui y pénétrait. Le temps s'écoula lentement; douze périodes de deux heures s'étaient déjà écoulées depuis le début de l'opération.
 
 Wang Lin ne pouvait maintenir cette méthode d'affinage intense très longtemps. Si cela perdurait, non seulement son énergie originelle ne pourrait plus suivre, mais il consumerait également l'énergie originelle céleste obtenue en dévorant les âmes originelles de dizaines de Célestes.
 
-Après vingt-quatre heures, les yeux de Wang Lin brillèrent d'un éclat vif et il poussa un rugissement. D'un revers de main, il fit éclater la sphère de magma en une multitude de débris brûlants. À cet instant, l'épée brisée ne put plus résister à la chaleur extrême et fondit complètement. La seconde âme originelle de Wang Lin dévora l'acier fondu et retourna dans son corps.
+Après douze périodes de deux heures, les yeux de Wang Lin brillèrent d'un éclat vif et il poussa un rugissement. D'un revers de main, il fit éclater la sphère de magma en une multitude de débris brûlants. À cet instant, l'épée brisée ne put plus résister à la chaleur extrême et fondit complètement. La seconde âme originelle de Wang Lin dévora l'acier fondu et retourna dans son corps.
 
-Les âmes du Maître du Vide et de Tian Yunzi regagnèrent également le Sceau Céleste des 18 Enfers.
+Les âmes de Xu Kongzi et de Tian Yunzi regagnèrent également le Sceau Céleste des 18 Enfers.
 
 Wang Lin ferma les yeux pour cultiver un instant. Une épée rouge commença lentement à se condenser devant sa seconde âme originelle. Elle dégageait une puissance de massacre terrifiante qui, à la moindre pensée, s'apprêtait à jaillir.
 

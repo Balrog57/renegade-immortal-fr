@@ -1,6 +1,6 @@
 ---
 n: 1322
-title: Les flammes d'encens des disciples
+title: Changement Soudain
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: The Disciples' Incense Flames
@@ -46,7 +46,7 @@ Lanmeng Daozun avait aidé Wang Lin à créer cela. C'était parfait, sans la mo
 
 « Arsenal Magique! » Wang Lin ouvrit la bouche et cracha le Sceau Céleste. Un rugissement tonitruant résonna tandis que Wang Lin agitait ses manches. Dans un éclat de lumière, d'innombrables âmes de combat apparurent.
 
-Des vagues de hurlements lugubres résonnèrent dans le ciel. Ces âmes guerrières dégageaient toutes une aura féroce. Beaucoup appartenaient au Système Stellaire Antique. Outre les centaines de cultivateurs à l'extérieur de la Formation de Scellement, il y avait un grand nombre de membres du Clan Dévorant la Lune et tous les autres que Wang Lin avait dévorés en chemin!
+Des vagues de hurlements lugubres résonnèrent dans le ciel. Ces âmes guerrières dégageaient toutes une aura féroce. Beaucoup appartenaient au Système Stellaire Antique. Outre les centaines de cultivateurs à l'extérieur de la Formation de Scellement, il y avait un grand nombre de membres du Clan Yue Shi et tous les autres que Wang Lin avait dévorés en chemin!
 
 Les cultivateurs du Système Stellaire Antique portaient tous une marque clignotant entre leurs sourcils. Qu'ils apparaissent ainsi sous forme d'âmes de combat offrait une scène terrifiante à quiconque la contemplait!
 
@@ -94,7 +94,7 @@ Dès que le sceau apparut, une puissante force de rejet surgit, très semblable 
 
 Une pointe d'hésitation traversa le regard de Wang Lin. Alors qu'il hésitait, d'autres fissures se formèrent et les innombrables âmes à l'intérieur poussèrent des cris lugubres, comme si elles précipitaient la fin du monde!
 
-Ce Sceau Céleste, composé d'un fragment du Royaume Céleste du Tonnerre et affiné par la rétribution divine, était presque indestructible. Pourtant, sous cette force de rejet, il se fissurait et semblait sur le point de s'effondrer.
+Ce Sceau Céleste, composé d'un fragment du Royaume Céleste du Tonnerre et affiné par la Tribulation Céleste, était presque indestructible. Pourtant, sous cette force de rejet, il se fissurait et semblait sur le point de s'effondrer.
 
 Cela choqua profondément Wang Lin! Il sentait clairement que la force de rejet causant l'effondrement du sceau n'était pas extrêmement puissante, mais qu'il existait une sorte de limite. Cette limite empêchait le Sceau Céleste d'exister ici, et encore moins de fusionner!
 

@@ -32,7 +32,7 @@ L'apparition de Wang Lin attira immédiatement l'attention des deux camps. Lorsq
 
 Les membres de la Secte Shi Yin remarquèrent également Wang Lin, mais ils ne connaissaient manifestement pas son ancienne identité. Le jeune homme en noir lança un regard glacial à Wang Lin et fit un signe de la main. Immédiatement, deux disciples de la Secte Shi Yin s'élancèrent vers lui.
 
-L'un d'eux joignit les mains et déclara: « Camarade cultivateur, ma Secte Shi Yin a été la première à combattre cet ancien raffineur de Qi. Veuillez vous retirer! »
+L'un d'eux joignit les mains et déclara: « Daoïste, ma Secte Shi Yin a été la première à combattre cet ancien raffineur de Qi. Veuillez vous retirer! »
 
 Bien que ses paroles fussent polies, son regard était empreint d'hostilité. Ses compagnons affichaient la même froideur.
 

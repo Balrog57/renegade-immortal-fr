@@ -12,7 +12,7 @@ Wang Lin le regarda avec indifférence, tandis que les flammes autour de lui red
 
 Cet individu était d'une arrogance extrême, se vantant fièrement d'être le Dao Céleste devant les habitants du Royaume Scellé comme Wang Lin. Wang Lin avait été stupéfait à l'époque, mais plus il en apprenait sur le passé, plus son regard devenait glacial envers le jeune homme.
 
-Le clan esclave des anciens dieux. Celui qui était protégé par les anciens dieux depuis les temps primordiaux: le Clan Dévorant la Lune!
+Le clan esclave des anciens dieux. Celui qui était protégé par les anciens dieux depuis les temps primordiaux: le Clan Yue Shi!
 
 Alors que Wang Lin laissait échapper un reniflement glacial, sa main droite se serra en un poing et il lança un coup fulgurant. La puissance d'un ancien dieu déferla à travers le vide dans un grondement tonnerreux, comme si elle pouvait anéantir le monde. Elle convergea rapidement vers le jeune homme.
 
@@ -46,11 +46,11 @@ Une silhouette ensanglantée fut expulsée. C'était le jeune homme, couvert de 
 
 La vue du jeune homme était trouble, mais il lutta pour réciter un sort extrêmement complexe. Simultanément, ses mains formèrent un sceau et il pointa l'espace entre ses sourcils.
 
-« Sort de la Lune Interdit, Colère Divine! » Ce jeune homme savait que son Clan Dévorant la Lune possédait un ancien sort interdit. Il ne devait l'utiliser qu'en dernier recours, car cela était humiliant pour son clan!
+« Sort de la Lune Interdit, Colère Divine! » Ce jeune homme savait que son Clan Yue Shi possédait un ancien sort interdit. Il ne devait l'utiliser qu'en dernier recours, car cela était humiliant pour son clan!
 
 Alors qu'il rugissait, il s'agenouilla au sol. Wang Lin se rapprocha. Ses mains traçaient un sceau étrange et il commença à pratiquer une adoration.
 
-« Prêtez la puissance des âmes des dieux aux membres de mon Clan Dévorant la Lune! »
+« Prêtez la puissance des âmes des dieux aux membres de mon Clan Yue Shi! »
 
 À l'instant où sa voix résonna, une puissance colossale d'ancien dieu émana du jeune homme. L'espace derrière lui se tordit et l'ombre d'un ancien dieu de plusieurs milliers de pieds de haut apparut!
 
@@ -66,7 +66,7 @@ Les yeux de Wang Lin se remplirent de tristesse en contemplant l'ombre de l'anci
 
 La langue des anciens dieux sortit de la bouche de Wang Lin, se propageant comme des ondulations: « Le clan que tu protèges a trahi mon clan des anciens dieux. En tant qu'ancien dieu royal, je vous ordonne à tous de vous disperser! »
 
-L'ombre de l'ancien dieu s'interrompit. Ses yeux se remplirent de confusion, puis de libération, alors qu'il disparaissait progressivement... Cela faisait bien longtemps qu'un ancien dieu royal n'était pas apparu parmi les anciens dieux. L'âme d'ancien dieu qui protégeait le Clan Dévorant la Lune n'était qu'une infime parcelle de volonté... Autrefois, c'était un ancien dieu royal qui avait décidé de protéger le clan esclave Dévorant la Lune, et l'ensemble du clan des anciens dieux l'avait suivi sans hésiter pendant une éternité. Même avec le passage du temps et leur propre mort, cette volonté persistante continuait de les abriter.
+L'ombre de l'ancien dieu s'interrompit. Ses yeux se remplirent de confusion, puis de libération, alors qu'il disparaissait progressivement... Cela faisait bien longtemps qu'un ancien dieu royal n'était pas apparu parmi les anciens dieux. L'âme d'ancien dieu qui protégeait le Clan Yue Shi n'était qu'une infime parcelle de volonté... Autrefois, c'était un ancien dieu royal qui avait décidé de protéger le clan esclave Dévorant la Lune, et l'ensemble du clan des anciens dieux l'avait suivi sans hésiter pendant une éternité. Même avec le passage du temps et leur propre mort, cette volonté persistante continuait de les abriter.
 
 Cela aurait duré jusqu'à ce qu'un autre ancien dieu royal apparaisse pour donner l'ordre d'arrêter. C'était la seule façon de résoudre cet ancien pacte!
 
@@ -74,7 +74,7 @@ Aujourd'hui, à cet instant précis, les paroles de Wang Lin étaient la volont�
 
 Le jeune homme fut totalement stupéfait. Avec son expérience, comment aurait-il pu connaître un tel secret? Il l'ignorait, et c'est pour cela qu'il avait été assez stupide pour emprunter le pouvoir des anciens dieux devant un ancien dieu royal tel que Wang Lin!
 
-« Désormais, les anciens dieux ne protégeront plus le Clan Dévorant la Lune, ils le détruiront! » Ce furent les derniers mots que le jeune homme entendit. Wang Lin avança et envoya un coup de pied. Un fracas résonna dans le corps du jeune homme alors que tous ses os se brisaient, sans que sa chair ne se désintègre pour autant. Au lieu de cela, il fut projeté vers le squelette situé sous la tablette de pierre par la force du coup.
+« Désormais, les anciens dieux ne protégeront plus le Clan Yue Shi, ils le détruiront! » Ce furent les derniers mots que le jeune homme entendit. Wang Lin avança et envoya un coup de pied. Un fracas résonna dans le corps du jeune homme alors que tous ses os se brisaient, sans que sa chair ne se désintègre pour autant. Au lieu de cela, il fut projeté vers le squelette situé sous la tablette de pierre par la force du coup.
 
 Dans un choc brutal, son corps percuta le squelette et ses épaules furent transpercées par les deux clous aux sept couleurs! Un cri déchirant s'échappa du jeune homme alors que son corps se retrouvait cloué par ces deux clous. La douleur de voir son Dao aspiré et son âme constamment broyée était une épreuve qu'aucun être ordinaire ne pouvait endurer.
 
@@ -108,4 +108,4 @@ Tout le Clan Huo Que fut sous le choc!
 
 Au moment où les statues s'écroulèrent, un vieil homme leva les yeux vers le ciel et murmura pour lui-même: « La légende ancienne disait que lorsqu'ils reviendraient, tous les faux oiseaux vermillions s'effondreraient... »
 
-Simultanément, parmi les sept puissants clans, un événement terrifiant se produisit au sein du Clan Dévorant la Lune. C'était un changement qui terrifia tous ses membres!
+Simultanément, parmi les sept puissants clans, un événement terrifiant se produisit au sein du Clan Yue Shi. C'était un changement qui terrifia tous ses membres!

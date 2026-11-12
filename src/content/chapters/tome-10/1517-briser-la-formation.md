@@ -26,11 +26,11 @@ Un hurlement d'intention meurtrière enveloppa tout le domaine stellaire!
 
 « C'est le Clan Shi Jian! »
 
-« Les gardes du Palais Tian Fa du Conseil Zhang Zun sont issus du Clan Shi Jian! »
+« Les gardes du Palais Tian Fa du Conseil Souverain sont issus du Clan Shi Jian! »
 
 « La rumeur dit que chaque membre du Clan Shi Jian possède un pouvoir terrifiant. Ils cultivent également le Coup Briseur d'Âme, une technique d'une puissance incroyable! »
 
-« Le Clan Shi Jian est apparu. Il doit s'agir du Palais Tian Fa du Conseil Zhang Zun! Je ne m'attendais pas à ce que le Conseil Souverain mobilise l'un des quatre palais dès la première bataille! »
+« Le Clan Shi Jian est apparu. Il doit s'agir du Palais Tian Fa du Conseil Souverain! Je ne m'attendais pas à ce que le Conseil Souverain mobilise l'un des quatre palais dès la première bataille! »
 
 Le grand palais noir s'approcha lentement, propageant une pression de plus en plus pesante. Les 90 000 cultivateurs s'inclinèrent tous face à l'édifice.
 

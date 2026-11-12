@@ -68,9 +68,9 @@ Si l'oiseau venait à se poser au bord de la rivière et apercevait le poisson, 
 
 Elle ne dit pas à Wang Lin que son image était devenue plus claire que jamais dans son cœur. Elle ne lui dit pas qu'elle avait risqué sa vie, alors qu'elle était gravement blessée, pour récupérer le stylo doré. Elle ne lui dit pas quel poids elle portait pour pouvoir venir ici!
 
-Son corps fragile ne pouvait supporter une telle pression. Seuls les morts quittent le champ de bataille de la Secte Démon… Pourtant, elle avait enduré la pression de la Secte Brise-Ciel, celle de la Secte Démon et cent ans de combat, pour finalement décider de tout quitter à mi-chemin afin de rencontrer un homme qui lui était si loin.
+Son corps fragile ne pouvait supporter une telle pression. Seuls les morts quittent le champ de bataille de la Secte Démon… Pourtant, elle avait enduré la pression de la Secte Po Tian, celle de la Secte Démon et cent ans de combat, pour finalement décider de tout quitter à mi-chemin afin de rencontrer un homme qui lui était si loin.
 
-Elle ne lui dit pas non plus que son départ provoquait de vives voix de mécontentement au sein de la Secte Brise-Ciel, ni les condamnations qu'elle subissait à la Secte Démon…
+Elle ne lui dit pas non plus que son départ provoquait de vives voix de mécontentement au sein de la Secte Po Tian, ni les condamnations qu'elle subissait à la Secte Démon…
 
 Elle ne lui dit pas non plus que partir signifiait renoncer à l'opportunité d'intégrer véritablement la Secte Démon pour y recevoir ses enseignements.
 
@@ -78,7 +78,7 @@ Elle ne disait rien, et Wang Lin n'en savait rien…
 
 « Quand j'étais petite, j'ai compris que j'étais différente des autres. Mes cheveux sont bleus; personne dans la Mer Yun n'a cette couleur… Je me souviens encore comment mes compagnons de jeu se moquaient de moi enfant… » dit doucement Li Qianmei, une amertume dans les yeux en évoquant son passé.
 
-« J'ai cultivé très durement, et Maître a raffiné de nombreux élixirs pour moi. Grâce à eux, j'ai pu atteindre mon niveau de culture actuel… Ma culture m'a été donnée par mon maître, par la Secte Brise-Ciel… Je dois aller sur le champ de bataille, c'est mon destin. »
+« J'ai cultivé très durement, et Maître a raffiné de nombreux élixirs pour moi. Grâce à eux, j'ai pu atteindre mon niveau de culture actuel… Ma culture m'a été donnée par mon maître, par la Secte Po Tian… Je dois aller sur le champ de bataille, c'est mon destin. »
 
 Li Qianmei ne relâcha pas sa main emmêlée dans l'herbe. Au contraire, elle la tira dans un léger craquement, pour que les tiges restent enlacées autour de ses doigts.
 

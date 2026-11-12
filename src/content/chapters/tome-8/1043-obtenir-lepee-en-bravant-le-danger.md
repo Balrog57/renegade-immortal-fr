@@ -52,7 +52,7 @@ Elle avait séjourné si longtemps dans la glace qu'au moment même où celle-ci
 
 Simultanément, une odeur de chair putride emplit l'air. La tête de l'Ancien Dieu se décomposa rapidement pour ne devenir bientôt qu'un crâne gigantesque!
 
-Ce crâne était d'un noir absolu et une brume rouge d'une trentaine de mètres oscillait continuellement à l'intérieur. L'origine des lignes rouges résidait dans cette brume, et certaines de ces lignes étaient encore enroulées autour de l'épée de fer.
+Ce crâne était d'un noir absolu et une brume rouge d'environ cent pieds oscillait continuellement à l'intérieur. L'origine des lignes rouges résidait dans cette brume, et certaines de ces lignes étaient encore enroulées autour de l'épée de fer.
 
 Dès que la glace s'effondra, Wang Lin se changea en un trait de lumière et s'élança. Il saisit directement l'épée de fer.
 

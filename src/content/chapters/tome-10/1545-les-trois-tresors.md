@@ -14,7 +14,7 @@ Wang Lin était déjà habitué aux délires du fou et ne prêtait aucune attent
 
 L'aura de son foyer.
 
-« Enfin... je suis rentré chez moi... » Les yeux de Wang Lin étaient empreints de mélancolie. Il avait un foyer, dans le Vide Brillant, sur la planète Suzaku. Cependant, il ne lui restait plus de famille, seulement des âmes errantes...
+« Enfin... je suis rentré chez moi... » Les yeux de Wang Lin étaient empreints de mélancolie. Il avait un foyer, à Kun Xu, sur la planète Suzaku. Cependant, il ne lui restait plus de famille, seulement des âmes errantes...
 
 Il ignorait lui-même pourquoi il ressentait ce besoin de rentrer. Ce n'était pas seulement pour Qing Shui, Situ Nan ou d'autres; mais au fond de son cœur, même après des millénaires d'errance, une force étrange l'empêchait de rompre tout lien.
 
@@ -32,7 +32,7 @@ Il marchait très lentement, le regard perdu parmi les étoiles. Tout lui sembla
 
 Il ne comprenait pas pourquoi il se sentait plus accablé que lorsqu'il était revenu de Luotian. Peut-être avait-il trop vécu et été allé trop loin cette fois...
 
-« Ne fais pas ça. Si tu es dans cet état, ce roi sera triste lui aussi... Ce roi ressent aussi la nostalgie du pays. Xiao Hong, Petit Argent, où êtes-vous passés, espèces de garnements? Pourquoi ne venez-vous pas trouver ce roi? Le pays me manque, je veux rentrer chez moi... » Le fou suivait Wang Lin, lentement imprégné par les émotions de ce dernier, finissant lui aussi par sombrer dans la déprime.
+« Ne fais pas ça. Si tu es dans cet état, ce roi sera triste lui aussi... Ce roi ressent aussi la nostalgie du pays. Xiao Hong, Xiao Yin, où êtes-vous passés, espèces de garnements? Pourquoi ne venez-vous pas trouver ce roi? Le pays me manque, je veux rentrer chez moi... » Le fou suivait Wang Lin, lentement imprégné par les émotions de ce dernier, finissant lui aussi par sombrer dans la déprime.
 
 Cependant, l'humeur du fou changea brusquement. Il ne lui fallut pas longtemps pour oublier sa tristesse et retrouver son excitation. Il rugit en manipulant les rochers environnants, s'amusant comme jamais.
 

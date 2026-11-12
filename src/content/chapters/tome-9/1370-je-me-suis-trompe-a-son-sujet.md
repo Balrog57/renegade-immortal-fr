@@ -60,7 +60,7 @@ Lanmeng Daozun fixa ces visions et les examina minutieusement. Son expression de
 
 Li Qianmei secoua la tête et dit doucement: « Je n'ai pas retrouvé tous mes souvenirs, seulement quelques fragments. Si je l'avais vraiment oublié, il aurait été préférable que nous ne nous rencontrions plus jamais. Mais puisque je me souviens de certaines choses, je ne lâcherai pas prise... Quand ma mémoire sera restaurée, j'irai le retrouver. »
 
-Dans le domaine stellaire du clan Brumeux, la femme qui avait deviné la position de Wang Lin cultivait sur l'île située au centre du lac lorsque celui-ci activa la Porte Kong.
+Dans le domaine stellaire du Clan Piao Miao, la femme qui avait deviné la position de Wang Lin cultivait sur l'île située au centre du lac lorsque celui-ci activa la Porte Kong.
 
 Les nombreuses fleurs et plantes flétrirent et s'effondrèrent instantanément. Le lac entourant l'île devint violent, formant un vortex autour de celle-ci. Les yeux de la femme s'ouvrirent soudainement, révélant une lumière mystérieuse et terrifiante.
 

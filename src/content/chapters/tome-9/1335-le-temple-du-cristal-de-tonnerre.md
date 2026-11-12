@@ -36,9 +36,9 @@ C'était là un point où Xu Liguo manquait par rapport à Dahong. Wang Lin n'av
 
 En conséquence, Dahong était devenu encore plus hardi. Sans même attendre les ordres de Wang Lin, dès qu'ils croisaient une cible propice au pillage, il chargeait violemment pour revenir avec une montagne d'objets à échanger, remettant tout à Wang Lin sans rien garder pour lui-même.
 
-« Maître, le domaine du Temple Lei Jing est proche, nous ne pouvons plus voler de biens ici. Durant les trois jours de commerce, tout conflit est interdit dans la zone du Temple. C'est une mesure de protection. Plus tôt, nous n'avons pas pris une ligne droite pour éviter certains cultivateurs puissants. Je sais que la culture de Maître est capable de faire trembler les cieux, mais le Temple n'est ouvert que trois jours; il vaut mieux éviter les ennuis inutiles. Nous pourrons régler leurs comptes au retour », dit Dahong. Au fil des jours, il était passé de l'appellation « Aîné » à celle de « Maître ».
+« Maître, le domaine du Temple Lei Jing est proche, nous ne pouvons plus voler de biens ici. Durant les trois jours de commerce, tout conflit est interdit dans la zone du Temple. C'est une mesure de protection. Plus tôt, nous n'avons pas pris une ligne droite pour éviter certains cultivateurs puissants. Je sais que la culture de Maître est capable de faire trembler les cieux, mais le Temple n'est ouvert que trois jours; il vaut mieux éviter les ennuis inutiles. Nous pourrons régler leurs comptes au retour », dit Dahong. Au fil des jours, il était passé de l'appellation « Senior » à celle de « Maître ».
 
-Ces deux termes portaient des significations bien distinctes. Dahong estimait qu'« Aîné » le faisait toujours passer pour un étranger. En appelant Wang Lin « Maître », comme le faisait Xu Liguo, il avait l'impression de faire partie de la famille. Wang Lin n'avait pas refusé ce changement.
+Ces deux termes portaient des significations bien distinctes. Dahong estimait que « Senior » le faisait toujours passer pour un étranger. En appelant Wang Lin « Maître », comme le faisait Xu Liguo, il avait l'impression de faire partie de la famille. Wang Lin n'avait pas refusé ce changement.
 
 Une fois entrés dans le périmètre du Temple, la densité de cultivateurs augmenta et des traînées de lumière sillonnèrent le ciel. Dahong restait extrêmement vigilant. Bien que les combats y soient interdits, la présence de tant de puissants le rendait nerveux. Certains voyageaient en groupe; plus de dix personnes survolaient les lieux avec arrogance, obligeant les autres à s'écarter rapidement.
 
@@ -54,7 +54,7 @@ C'était un homme d'âge moyen vêtu de noir, portant une couronne taoïste, les
 
 « On raconte que ce vieux monstre ne quitte jamais le Mont Wuyi sans raison. Il doit préparer quelque chose de grandiose! »
 
-« Bien sûr, le Roi Diable Noir occupe le 766e rang du Classement du Tonnerre Dispersé. Après ses échanges, il pourrait bien grimper de quelques places. »
+« Bien sûr, le Roi Diable Noir occupe le 766e rang du Classement Shan Lei. Après ses échanges, il pourrait bien grimper de quelques places. »
 
 Les cultivateurs environnants joignirent respectueusement les mains et commencèrent à murmurer dès que l'homme eut passé.
 
@@ -78,19 +78,19 @@ Un rire résonna dans le vide, et les nuages se rétractèrent pour ne former qu
 
 Dès l'apparition du vieil homme, la stupeur saisit les cultivateurs à l'extérieur du passage. Sans un mot, ils joignirent leurs mains pour le saluer avec déférence.
 
-« Salutations, Senior Zhou Tian... »
+« Salutations, Senior Zhou Tianzi... »
 
-Même les deux gardiens en rouge devinrent respectueux. Ils s'inclinèrent et dirent: « Ce junior salue le Senior Zhou Tian. Le Senior est certainement venu viser une place dans le top 10 du Classement du Tonnerre Dispersé. »
+Même les deux gardiens en rouge devinrent respectueux. Ils s'inclinèrent et dirent: « Ce junior salue le Senior Zhou Tianzi. Le Senior est certainement venu viser une place dans le top 10 du Classement Shan Lei. »
 
 Le vieil homme rit en joignant les mains. « Je ne peux pas atteindre le top 10, mais je me contenterai avec plaisir du top 30. » Sur ces mots, il lança deux pilules dans les mains des gardiens avant de pénétrer dans le passage. Tandis qu'il avançait, la foule s'écartait sur son passage. Les deux gardiens, ravis par les pilules reçues, saluèrent respectueusement l'homme de dos.
 
 Sans trahir ses pensées, Wang Lin observa le vieil homme s'éloigner. Une fois celui-ci passé, les murmures reprirent:
 
-« Les cultivateurs de la seconde étape viennent généralement le dernier jour. Je ne m'attendais pas à ce que le Senior Zhou Tian vienne dès le premier jour. »
+« Les cultivateurs de la seconde étape viennent généralement le dernier jour. Je ne m'attendais pas à ce que le Senior Zhou Tianzi vienne dès le premier jour. »
 
 « Hélas... je me demande quand j'éveillerai ma marque de clan pour obtenir une puissance telle que la sienne. C'est peut-être impossible pour moi. »
 
-« Ce n'est pas impossible. Les rumeurs disent que le Senior Zhou Tian a fait une rencontre chanceuse dans sa jeunesse. La vie est faite de hauts et de bas; peut-être aurons-nous notre tour un jour. »
+« Ce n'est pas impossible. Les rumeurs disent que le Senior Zhou Tianzi a fait une rencontre chanceuse dans sa jeunesse. La vie est faite de hauts et de bas; peut-être aurons-nous notre tour un jour. »
 
 Tandis qu'ils murmuraient, Wang Lin et Dahong entrèrent dans le passage. Les deux gardiens les regardèrent sans rien remarquer de spécial et les laissèrent passer, ne voyant en eux que des êtres insignifiants.
 

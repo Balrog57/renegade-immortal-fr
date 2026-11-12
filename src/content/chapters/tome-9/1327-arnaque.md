@@ -52,13 +52,13 @@ Wang Lin était revenu à son état normal, sa main droite serrant fermement la 
 
 N'ayant pas le temps de fouiller son âme, Wang Lin était réticent à l'abandonner. Alors que l'aura blanche laiteuse s'apprêtait à la réduire à néant, un éclair de lumière sanglante jaillit et l'épée de sang transperça la femme. Il détruisit son âme originelle avant que l'aura ne puisse le faire!
 
-C'était ainsi qu'il dérobait l'âme du cycle des réincarnations et volait les Flammes Joss de la Concubine Bleue!
+C'était ainsi qu'il dérobait l'âme du cycle des réincarnations et volait les Flammes Joss de la Concubine Lan!
 
 Au moment où la femme en blanc trembla une dernière fois avant de mourir complètement, l'âme d'une femme apparut dans son Monde Hu Feng Huan Yu. Une puissante Flamme Joss émana de son âme et fut absorbée par Wang Lin!
 
 Après la mort de la femme en blanc, sa chair fondit en une mare de sang. Cependant, un fil doré s'en échappa et fonça vers le vide!
 
-Ce fil doré était formé par l'avatar de projection que la Concubine Bleue avait nourri! Maintenant que la femme en blanc était morte, le fil doré allait percer le vide pour retourner vers la Concubine Bleue en pleine convalescence!
+Ce fil doré était formé par l'avatar de projection que la Concubine Lan avait nourri! Maintenant que la femme en blanc était morte, le fil doré allait percer le vide pour retourner vers la Concubine Lan en pleine convalescence!
 
 Wang Lin leva soudainement la tête et abattit son épée de sang sur le fil doré. Pourtant, l'indestructible épée de sang passa à travers le fil sans lui infliger la moindre blessure!
 

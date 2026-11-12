@@ -6,35 +6,35 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1148 - Wild Continent
 slug: continent-sauvage
 ---
-Les paroles de Xu Yun s'étaient avérées exactes. En l'espace de trois jours seulement, Wang Lin avait tenté seize raffinages et avait échoué à chaque fois, sauf le dernier. À chaque échec, il cherchait silencieusement la cause avant de récolter davantage d'herbes.
+Les paroles de Sun Yun s'étaient avérées exactes. En l'espace de trois jours seulement, Wang Lin avait tenté seize raffinages et avait échoué à chaque fois, sauf le dernier. À chaque échec, il cherchait silencieusement la cause avant de récolter davantage d'herbes.
 
-En contemplant le jardin qui était encore luxuriant trois jours auparavant et qui était désormais presque dénué de vie, les yeux de Xu Yun ne purent s'empêcher de rougir. Ce jardin lui avait coûté énormément d'efforts; même lorsqu'elle raffinait elle-même des pilules, elle faisait preuve d'une prudence extrême et n'utilisait jamais trop d'herbes.
+En contemplant le jardin qui était encore luxuriant trois jours auparavant et qui était désormais presque dénué de vie, les yeux de Sun Yun ne purent s'empêcher de rougir. Ce jardin lui avait coûté énormément d'efforts; même lorsqu'elle raffinait elle-même des pilules, elle faisait preuve d'une prudence extrême et n'utilisait jamais trop d'herbes.
 
 Pourtant, en seulement trois jours, la quasi-totalité des plantes avait disparu. Bien que l'explosion de pilule qu'elle redoutait ne s'était jamais produite, elle aurait préféré qu'une telle explosion détruise la majeure partie du jardin plutôt que de subir une telle torture.
 
-En jetant un regard sur la demeure qu'elle détestait tant, toute trace de bienveillance envers Wang Lin s'était évanouie. Xu Yun ne put plus le supporter, poussa brusquement la porte et se précipita à l'intérieur. Elle y vit Wang Lin assis, tenant une pilule parfaitement formée.
+En jetant un regard sur la demeure qu'elle détestait tant, toute trace de bienveillance envers Wang Lin s'était évanouie. Sun Yun ne put plus le supporter, poussa brusquement la porte et se précipita à l'intérieur. Elle y vit Wang Lin assis, tenant une pilule parfaitement formée.
 
-Ce qui exaspéra Xu Yun au plus haut point, c'est que Ceng Niu souriait en contemplant la pilule. Ce sourire fit bouillir le sang de la jeune femme.
+Ce qui exaspéra Sun Yun au plus haut point, c'est que Zeng Niu souriait en contemplant la pilule. Ce sourire fit bouillir le sang de la jeune femme.
 
-« Ceng Niu! » Xu Yun grinça des dents et prit une profonde inspiration. Se remémorant ses propres spéculations sur son niveau de culture, elle réprima sa rage et s'efforça de rester calme...
+« Zeng Niu! » Sun Yun grinça des dents et prit une profonde inspiration. Se remémorant ses propres spéculations sur son niveau de culture, elle réprima sa rage et s'efforça de rester calme...
 
-Après avoir ramené une mèche de cheveux derrière son oreille, Xu Yun dit d'une voix douce: « Ceng Niu, félicitations pour ce raffinage. Puis-je la voir? »
+Après avoir ramené une mèche de cheveux derrière son oreille, Sun Yun dit d'une voix douce: « Zeng Niu, félicitations pour ce raffinage. Puis-je la voir? »
 
 Après quinze échecs, presque toutes les herbes du jardin avaient été consumées pour cette unique pilule. L'âme de bête s'était fusionnée avec la pilule plus de dix fois, et la douleur de ces va-et-vient était pire que la mort. L'âme de bête voulait absolument que Wang Lin réussisse afin que ses souffrances cessent enfin.
 
 Wang Lin regarda la pilule dans sa main avec émotion. La fusion d'une âme de bête avec une pilule exigeait une attention méticuleuse à de nombreux détails. Ces subtilités n'étaient pas expliquées dans le jade; il devait les découvrir par l'expérience.
 
-À cet instant, en entendant les paroles de Xu Yun, Wang Lin toucha inconsciemment son nez. Son regard passa du corps gracieux de la jeune femme au jardin presque stérile et, malgré son prestige de plus de mille ans, il ressentit une pointe d'embarras.
+À cet instant, en entendant les paroles de Sun Yun, Wang Lin toucha inconsciemment son nez. Son regard passa du corps gracieux de la jeune femme au jardin presque stérile et, malgré son prestige de plus de mille ans, il ressentit une pointe d'embarras.
 
-D'un revers de la main droite, Wang Lin lança la pilule vers Xu Yun. Alors qu'il s'apprêtait à parler, il fut interrompu par un cri.
+D'un revers de la main droite, Wang Lin lança la pilule vers Sun Yun. Alors qu'il s'apprêtait à parler, il fut interrompu par un cri.
 
-Les yeux de Xu Yun s'écarquillèrent en fixant la pilule, incapable de contenir plus longtemps la colère qui lui déchirait le cœur. À cet instant, toutes les pensées de silhouette aux cheveux blancs, de doigt gracieux ou de puissant senior furent balayées. Durant ces trois jours, elle avait regardé impuissante les herbes qu'elle avait mis tant de temps à cultiver — des herbes qu'elle ne se résolvait pas à utiliser elle-même — être arrachées une à une.
+Les yeux de Sun Yun s'écarquillèrent en fixant la pilule, incapable de contenir plus longtemps la colère qui lui déchirait le cœur. À cet instant, toutes les pensées de silhouette aux cheveux blancs, de doigt gracieux ou de puissant senior furent balayées. Durant ces trois jours, elle avait regardé impuissante les herbes qu'elle avait mis tant de temps à cultiver — des herbes qu'elle ne se résolvait pas à utiliser elle-même — être arrachées une à une.
 
 Au final, il n'avait raffiné qu'une pilule de rang 3. Une pilule de rang 3 était précieuse et nécessaire à un cultivateur du Corps Yang, mais toutes les herbes de son jardin auraient dû suffire à raffiner une pilule de rang 4. Si l'Oncle-Maître Li s'en était chargé, il y aurait même eu une chance de produire une pilule de rang 5.
 
-« Ceng Niu!!! Rends-moi mes herbes!!! » Les yeux de Xu Yun étaient injectés de sang et elle s'apprêtait à demander justice à Wang Lin. Cependant, lorsqu'elle leva la tête, elle découvrit que la pièce était vide: Ceng Niu avait disparu.
+« Zeng Niu!!! Rends-moi mes herbes!!! » Les yeux de Sun Yun étaient injectés de sang et elle s'apprêtait à demander justice à Wang Lin. Cependant, lorsqu'elle leva la tête, elle découvrit que la pièce était vide: Zeng Niu avait disparu.
 
-La silhouette de Wang Lin apparut dans le ciel au-dessus du continent de Mo Luo. Il toucha une fois de plus son nez et afficha un sourire amer tandis que la voix de Xu Yun résonnait encore à ses oreilles.
+La silhouette de Wang Lin apparut dans le ciel au-dessus du continent de Mo Luo. Il toucha une fois de plus son nez et afficha un sourire amer tandis que la voix de Sun Yun résonnait encore à ses oreilles.
 
 « Laisse tomber. Ce n'est qu'un simple jardin d'herbes... » Wang Lin secoua la tête et s'élança dans les cieux tel un rayon de lumière, disparaissant à l'horizon.
 
@@ -90,7 +90,7 @@ Wang Lin tapota la tête de sa monture et pointa l'horizon. Le Roi Moustique vio
 
 Dès leur entrée, de nombreuses ombres jaillirent des décombres. Elles étaient au moins plusieurs dizaines, rugissant toutes en chargeant les moustiques.
 
-Grâce à sa perspicacité et à son sens divin, Wang Lin identifia immédiatement qu'il s'agissait de singes noirs. Ils étaient exactement identiques à ceux qui se trouvaient dans la pilule que Xu Yun avait consommée.
+Grâce à sa perspicacité et à son sens divin, Wang Lin identifia immédiatement qu'il s'agissait de singes noirs. Ils étaient exactement identiques à ceux qui se trouvaient dans la pilule que Sun Yun avait consommée.
 
 « Laissez les âmes! » La voix de Wang Lin résonna calmement dans la ruine. Les bêtes moustiques et les singes n'étaient pas du tout de même niveau, et le combat fut bref. Les singes périrent les uns après les autres, laissant derrière eux une puissante odeur de sang.
 

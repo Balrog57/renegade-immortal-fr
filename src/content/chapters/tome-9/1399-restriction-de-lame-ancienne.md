@@ -24,7 +24,7 @@ Wang Lin se détourna. Sans un regard pour la femme ou Maître Simo, il s'enfon�
 
 Tout en progressant, le regard de Wang Lin devint vif. Ce qu'il avait infligé au Clan Chuan He et au Clan Hun She n'était qu'un test destiné au Grand Empereur. Ce dernier était bien trop mystérieux; après lui avoir soudainement accordé de nombreux bénéfices, il ne pouvait s'empêcher de rester prudent.
 
-Pour déceler les desseins de l'autre partie, il devait la mettre à l'épreuve. La situation avec le Clan Long Jia, quelques mois auparavant, suivait la même logique, tout comme celle des clans des Cours d'Eau et du Serpent de l'Âme. Ce n'était qu'en sondant sans cesse les limites de son interlocuteur que Wang Lin pourrait découvrir sa véritable nature!
+Pour déceler les desseins de l'autre partie, il devait la mettre à l'épreuve. La situation avec le Clan Long Jia, quelques mois auparavant, suivait la même logique, tout comme celle des Clans Chuan He et Hun She. Ce n'était qu'en sondant sans cesse les limites de son interlocuteur que Wang Lin pourrait découvrir sa véritable nature!
 
 « Il a dépouillé deux Anciens Délaissés de leurs titres, il m'a laissé choisir le patriarche du Clan Long Jia, et il m'a même permis de révoquer les droits de deux clans à participer à la Sélection des Anciens Délaissés. Tout cela ne dépasse pas ses propres limites... Peut-être que le Conseil des Déchus n'a aucune importance pour le Grand Empereur! » Wang Lin réfléchit un instant, les yeux brillants. Il lança soudain une directive au messager qui le suivait:
 

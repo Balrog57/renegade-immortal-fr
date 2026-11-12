@@ -44,9 +44,9 @@ Wang Lin avait appris tout cela en fouillant l'âme de l'ancêtre de la famille 
 
 « J'ai déjà transmis mon avertissement, alors ne vous en prenez pas à moi! »
 
-« Sur les quatre affaires, deux sont résolues. Place à la troisième... Le Dieu de Sang de la famille Yao! » Wang Lin paraissait calme, mais l'intention meurtrière dans ses yeux ne s'était pas encore dissipée.
+« Sur les quatre affaires, deux sont résolues. Place à la troisième... Xue Shenzi de la famille Yao! » Wang Lin paraissait calme, mais l'intention meurtrière dans ses yeux ne s'était pas encore dissipée.
 
-« Le Dieu de Sang m'a poursuivi autrefois. Si ce n'était pas pour le Frère Qing Shui, mon avatar serait mort. Comment pourrais-je oublier? De plus, le Dieu de Sang possède un ancien démon en lui... Mon avatar de démon antique a besoin de puissance de démon antique à présent... Par ailleurs, bien que je n'aie pas fait de promesse à cette fille de la famille Yao, j'en ai fait une dans son rêve, ce qui a laissé derrière elle du karma... Il est temps que je m'occupe de cela. » Wang Lin disparut au loin.
+« Xue Shenzi m'a poursuivi autrefois. Si ce n'était pas pour le Senior frère Qing Shui, mon avatar serait mort. Comment pourrais-je oublier? de plus, Xue Shenzi possède un ancien démon en lui... Mon avatar de démon antique a besoin de puissance de démon antique à présent... Par ailleurs, bien que je n'aie pas fait de promesse à cette fille de la famille Yao, j'en ai fait une dans son rêve, ce qui a laissé derrière elle du karma... Il est temps que je m'occupe de cela. » Wang Lin disparut au loin.
 
 La planète Dong Lin était brisée et toutes les familles de la planète s'étaient effondrées. Les échos des combats sur Dong Lin se propagèrent, et la nouvelle fut rapidement connue des cultivateurs de Luotian.
 

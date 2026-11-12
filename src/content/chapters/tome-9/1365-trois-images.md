@@ -16,9 +16,9 @@ Il était impossible de distinguer les nuages dans l'obscurité, mais les éclai
 
 Un vent glacial se mêlait à la pluie. Ce vent hurlant faisait tomber les gouttes en biais. Les grappes de feuilles mouillées, suspendues sous les avant-toits de chaque maison, commençaient à trembler violemment. Certaines n'étaient pas assez solidement attachées et les cordes rompaient, projetant les feuillages dans le vent comme des embarcations solitaires sur un océan déchaîné.
 
-Certains furent projetés vers le ciel, où ils tournoyaient avant de disparaître dans les ténèbres. D'autres tombèrent au sol, dans l'eau boueuse. Ils tentaient de s'envoler à nouveau sous l'effet du vent, mais un pied chaussé d'une botte taoïste les écrasait aussitôt, les enfonçant dans la fange... ils ne s'en libéreraient plus jamais.
+Certains furent projetés vers le ciel, où ils tournoyaient avant de disparaître dans les ténèbres. D'autres tombèrent au sol, dans l'eau boueuse. Ils tentaient de s'envoler à nouveau sous l'effet du vent, mais un pied chaussé d'une botte daoïste les écrasait aussitôt, les enfonçant dans la fange... ils ne s'en libéreraient plus jamais.
 
-À cet instant, le tonnerre se mit à gronder et la foudre illumina la ville. Pendant ce bref instant, on put apercevoir un vieil homme vêtu d'une robe taoïste, debout au milieu de la rue, les mains derrière le dos et les yeux brillant comme des torches!
+À cet instant, le tonnerre se mit à gronder et la foudre illumina la ville. Pendant ce bref instant, on put apercevoir un vieil homme vêtu d'une robe daoïste, debout au milieu de la rue, les mains derrière le dos et les yeux brillant comme des torches!
 
 Sous son pied droit, il écrasait encore une feuille, dont une moitié dépassait, ballottée par le vent et se débattant dans l'eau boueuse...
 
@@ -46,7 +46,7 @@ Pourtant, à cet instant précis, Wang Lin ouvrit soudainement les yeux, qui se 
 
 Après cela, Wang Lin ferma les yeux et fit abstraction du monde extérieur. Il se replongea dans sa culture pour entamer l'étape finale de la dévoration du tonnerre éternel.
 
-Sous la pluie, le vieil homme en robe taoïste scruta lentement les habitations. Lorsque son regard passa devant la demeure de Wang Lin, il ne lui accorda même pas une attention particulière. Il vit simplement la demeure se dissiper, avec le lettré qui s'y trouvait, tandis qu'apparaissaient les silhouettes de tous ceux qui y avaient jadis habité.
+Sous la pluie, le vieil homme en robe daoïste scruta lentement les habitations. Lorsque son regard passa devant la demeure de Wang Lin, il ne lui accorda même pas une attention particulière. Il vit simplement la demeure se dissiper, avec le lettré qui s'y trouvait, tandis qu'apparaissaient les silhouettes de tous ceux qui y avaient jadis habité.
 
 Après un long moment, le vieil homme eut fini de scanner tout le côté ouest de la ville. N'ayant rien trouvé, il forma calmement un sceau, pointa ses doigts entre ses sourcils et poussa un rugissement.
 

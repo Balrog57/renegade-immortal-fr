@@ -76,7 +76,7 @@ Le visage de Liu Jinbiao s'illumina d'une joie éphémère avant de se figer ins
 
 « Cependant, la plupart des gens que j'ai croisés n'osaient pas s'aventurer trop loin dans le deuxième royaume. Après tout, ce stade est extrêmement dangereux pour nous! Le danger vient de nous-mêmes! Lorsqu'on se trompe totalement soi-même, on risque de s'égarer et d'oublier qui l'on est. On peut devenir un homme de bien, un scélérat, ou même un fou! »
 
-« Il y avait aussi des aînés qui se sont trop enfoncés dans ce deuxième royaume au point d'en oublier qu'ils étaient des escrocs. Chaque fois que je pense à eux, mon cœur se serre de tristesse! »
+« Il y avait aussi des Seniors qui se sont trop enfoncés dans ce deuxième royaume au point d'en oublier qu'ils étaient des escrocs. Chaque fois que je pense à eux, mon cœur se serre de tristesse! »
 
 « Lamentable, lamentable! » Liu Jinbiao, transporté par son propre discours, en oubliait sa condition de prisonnier. Il y avait une certaine noblesse dans ses paroles qui laissa Xu Liguo bouche bée. Ce dernier se moqua: « Ne serais-tu pas simplement un escroc? Tu en parles comme si c'était une voie de cultivation... »
 

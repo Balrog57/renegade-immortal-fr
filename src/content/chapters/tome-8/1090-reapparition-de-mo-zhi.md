@@ -16,7 +16,7 @@ Cependant, en raison de la puissance des Quatre Sectes Divines et d'autres raiso
 
 L'apparition d'un nouvel Empereur Divin suffisait à provoquer une immense fluctuation de l'énergie originelle. Pour les puissants cultivateurs, c'était un phénomène qu'ils pouvaient aisément ressentir.
 
-À cet instant précis, alors que Wang Lin achevait sa première transformation, l'énergie originelle de tout le Système Stellaire de l'Alliance commença à onduler, prenant pour centre la Secte Zhu Que.
+À cet instant précis, alors que Wang Lin achevait sa première transformation, l'énergie originelle de tout le Système Stellaire de l'Alliance commença à onduler, prenant pour centre la Secte Divine de l'Oiseau Vermillon.
 
 Luotian occupait les régions occidentales et septentrionales du Système Stellaire de l'Alliance. Les messagers du Temple Céleste du Tonnerre étaient partout. Après avoir annexé avec succès ces deux régions, le Temple Céleste du Tonnerre y exerçait désormais une domination suprême.
 

@@ -44,11 +44,11 @@ Cependant, l'homme et la femme crachèrent du sang et reculèrent frénétiqueme
 
 « Ils sont enfin dispersés! » Tuo Sen était prêt à détruire une étoile entière pour les diviser. Maintenant qu'ils étaient isolés, il n'avait plus rien à craindre. Il fit un pas en avant avec un sourire carnassier. Son corps devint incroyablement colossal, provoquant un grondement sourd. Il arriva immédiatement aux côtés de l'homme au stade du Vide du Nirvana, tandis que les étoiles restantes entre ses sourcils tournèrent pour former un vortex projeté vers ce dernier!
 
-L'expression du vieil homme au stade du Vide Spirituel changea radicalement et il rugit promptement: « Maître Simo, reculez! » Des ondulations semblables à celles de l'eau apparurent dans l'espace autour de lui alors qu'il fonçait vers Maître Simo, lequel était encerclé par le vortex formé par les étoiles de l'Ancien Dieu.
+L'expression du vieil homme au stade du Vide Spirituel changea radicalement et il rugit promptement: « Si Mozi, reculez! » Des ondulations semblables à celles de l'eau apparurent dans l'espace autour de lui alors qu'il fonçait vers Si Mozi, lequel était encerclé par le vortex formé par les étoiles de l'Ancien Dieu.
 
-Maître Simo était un homme d'âge moyen dont les yeux brillaient. Au moment où les étoiles se refermèrent sur lui, sa main forma un sceau et il commença à murmurer: « Prisonnier du Dao du Ciel. Tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la prison profonde. Toute vie doit marcher éternellement vers l'avant et résoudre l'ère moderne. Échapper à la volonté céleste et obtenir le chemin de la vie. Sceller la volonté des cieux. Graver les jours sombres. Attendre le chemin de la culture... »
+Si Mozi était un homme d'âge moyen dont les yeux brillaient. Au moment où les étoiles se refermèrent sur lui, sa main forma un sceau et il commença à murmurer: « Prisonnier du Dao du Ciel. Tous les êtres sensibles doivent endurer d'innombrables calamités. Une seule pensée suffit pour quitter la prison profonde. Toute vie doit marcher éternellement vers l'avant et résoudre l'ère moderne. Échapper à la volonté céleste et obtenir le chemin de la vie. Sceller la volonté des cieux. Graver les jours sombres. Attendre le chemin de la culture... »
 
-Sa voix était étrange, et dès qu'il commença ses incantations, l'expression de Tuo Sen changea. Sa main droite forma un poing qu'il lança vers le vieil homme du Vide Spirituel qui approchait. Contre toute attente, Tuo Sen épargna Maître Simo, croisa le vieil homme pour s'élancer vers l'autre cultivateur du troisième niveau.
+Sa voix était étrange, et dès qu'il commença ses incantations, l'expression de Tuo Sen changea. Sa main droite forma un poing qu'il lança vers le vieil homme du Vide Spirituel qui approchait. Contre toute attente, Tuo Sen épargna Si Mozi, croisa le vieil homme pour s'élancer vers l'autre cultivateur du troisième niveau.
 
 Il s'agissait d'une femme. Elle avait été blessée par l'onde de choc de l'étoile brisée de Tuo Sen. Alors qu'elle reculait, ses pupilles se rétractèrent en percevant l'arrivée imminente de l'adversaire.
 
@@ -58,7 +58,7 @@ Tout cela se produisit en un éclair. Après avoir emprisonné cette femme, Tuo 
 
 « Ce Dieu possède encore quelques étoiles qui n'ont pas été brisées. Je vous attends, venez donc me poursuivre tous les deux! » Bien que Tuo Sen fût parti, sa voix lugubre résonnait encore à travers les étoiles.
 
-Le vieil homme du Vide Spirituel regarda Maître Simo. Un étrange sourire apparut au coin de leurs lèvres, teinté d'une pointe d'envie. Puis, ils se transformèrent en deux rayons de lumière et s'éloignèrent rapidement.
+Le vieil homme du Vide Spirituel regarda Si Mozi. Un étrange sourire apparut au coin de leurs lèvres, teinté d'une pointe d'envie. Puis, ils se transformèrent en deux rayons de lumière et s'éloignèrent rapidement.
 
 « Cette personne pourchassée par Tuo Sen dégageait également l'aura d'un Ancien Dieu. C'est aussi un Ancien Dieu royal... »
 
@@ -70,7 +70,7 @@ Le vieil homme du Vide Spirituel regarda Maître Simo. Un étrange sourire appar
 
 Alors qu'ils galopaient, ils envoyaient tous deux des messages par Sens Divin, mais avant que le vieil homme du Vide Spirituel n'ait pu achever sa phrase, son expression changea et il se tut.
 
-Maître Simo, à ses côtés, regarda également devant lui.
+Si Mozi, à ses côtés, regarda également devant lui.
 
 Une femme apparut progressivement devant eux. Vêtue de blanc, elle avait une apparence vaporeuse. Elle s'avançait silencieusement, comme capable de franchir des distances infinies d'un seul pas.
 
@@ -84,11 +84,11 @@ Le vieil homme au stade du Vide Spirituel regarda la lumière blanche, les yeux 
 
 Il semblait que la femme en blanc était la seule chose qui subsistait dans ce monde. Une rivière d'étoiles semblait se dissiper sous ses pas alors qu'elle marchait vers la zone où Tuo Sen poursuivait sa proie.
 
-Wang Lin continuait de progresser vers le Clan Dévorant la Lune, utilisant la Distorsion Spatiale en s'appuyant sur les souvenirs de l'emplacement du clan. Son expression était sombre; les fluctuations de l'aura de l'Ancien Dieu lui avaient laissé quelques spéculations.
+Wang Lin continuait de progresser vers le Clan Yue, utilisant la Distorsion Spatiale en s'appuyant sur les souvenirs de l'emplacement du clan. Son expression était sombre; les fluctuations de l'aura de l'Ancien Dieu lui avaient laissé quelques spéculations.
 
 Cependant, ce n'était pas le moment de trop réfléchir. Après avoir utilisé la Distorsion Spatiale à plusieurs reprises, il atteignit un domaine stellaire baigné d'une douce lumière lunaire. La lueur provenait des planètes environnantes et se répandait dans le vide, créant un spectacle d'une beauté extrême, semblable à un royaume onirique.
 
-« C'est ici! » Un éclat de froideur passa dans les yeux de Wang Lin. Le Clan Dévorant la Lune était là!
+« C'est ici! » Un éclat de froideur passa dans les yeux de Wang Lin. Le Clan Yue était là!
 
 À cet instant précis, un rugissement tonitruant retentit derrière lui. Sans se retourner, Wang Lin chargea en avant et déploya son Sens Divin. Rapidement, il identifia une zone saturée d'aura d'Ancien Dieu!
 
@@ -96,7 +96,7 @@ Cependant, ce n'était pas le moment de trop réfléchir. Après avoir utilisé 
 
 Une fissure spatiale s'ouvrit et Tuo Sen en sortit, épuisé.
 
-C'était très bizarre: ce vacarme violent n'attira absolument pas l'attention du Clan Dévorant la Lune; tout restait parfaitement silencieux.
+C'était très bizarre: ce vacarme violent n'attira absolument pas l'attention du Clan Yue; tout restait parfaitement silencieux.
 
 La voix de Tuo Sen tonna comme le tonnerre: « Tu ne peux pas échapper! » Ses yeux étaient glacials lorsqu'il lança un coup de poing vers Wang Lin de sa main droite.
 

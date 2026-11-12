@@ -93,7 +93,7 @@ Cette pulsion devint de plus en plus forte, atteignant instantanément son parox
 
 Ses cheveux blancs volaient en arrière sous la force du choc. Il n'était plus qu'à moins de 10 000 pieds!
 
-« Je suis un Dieu Ancien, je suis le Dao Ancien! » La tête de Wang Lin se redressa brusquement et il agita sa main droite. Le gant du Dieu Ancien apparut. Face à cette crise, Wang Lin choisit d'utiliser ce sort salvateur sans la moindre hésitation!
+« Je suis un Dieu Ancien, je suis Dao Gu! » La tête de Wang Lin se redressa brusquement et il agita sa main droite. Le gant du Dieu Ancien apparut. Face à cette crise, Wang Lin choisit d'utiliser ce sort salvateur sans la moindre hésitation!
 
 Alors que des grondements tonitruants résonnaient, un géant Dieu Ancien surgit devant Wang Lin et utilisa son dos pour bloquer la paume qui semblait être l'effondrement même du ciel!
 
@@ -107,7 +107,7 @@ Un autre fracas tonitruant éclata lorsque le poing du Dieu Ancien entra en coll
 
 Le Dieu Ancien sembla pousser un soupir avant de se dissiper progressivement. Il redevint un gant sur le bras droit de Wang Lin. Un craquement sec retentit et plusieurs nouvelles fissures apparurent sur l'armure!
 
-Alors que le coup du Dieu Ancien avait repoussé la paume sombre, Wang Lin chargea en avant. Il ferma le poing et lança une attaque! La tête fantomatique du Dao Ancien apparut et fusionna avec ce coup!
+Alors que le coup du Dieu Ancien avait repoussé la paume sombre, Wang Lin chargea en avant. Il ferma le poing et lança une attaque! La tête fantomatique de Dao Gu apparut et fusionna avec ce coup!
 
 « Brise pour moi!! » cria Wang Lin. Son corps sembla ne faire qu'un avec ce coup de poing. Un éclair de foudre et des flammes dévorantes jaillirent alors qu'il s'élançait comme une météorite. Il percuta à nouveau la paume sombre!
 

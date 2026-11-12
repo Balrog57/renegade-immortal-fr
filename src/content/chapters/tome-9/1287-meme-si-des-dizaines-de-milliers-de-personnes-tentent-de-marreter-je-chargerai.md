@@ -54,7 +54,7 @@ La vieille femme en blanc regarda Wang Lin, stupéfaite. Cette vitesse fulgurant
 
 Elle ressentit également la détermination de Wang Lin à travers cette vitesse! C'était une aura qu'on ne pourrait arrêter, même si des dizaines de milliers de personnes se dressaient devant lui!
 
-« Il n'y a pas de formations de transfert dans les régions de rang 3 ou inférieur. La Secte de l'Âme Marine de rang 4 possède une formation de transfert vers la Secte Xian Yin de rang 6, qui est une branche de la Secte Éternelle. Ils ont une formation vers la Secte Éternelle de rang 8... »
+« Il n'y a pas de formations de transfert dans les régions de rang 3 ou inférieur. La Secte Hai Hun de rang 4 possède une formation de transfert vers la Secte Xian Yin de rang 6, qui est une branche de la Secte Éternelle. Ils ont une formation vers la Secte Éternelle de rang 8... »
 
 « La Secte Éternelle possède également une formation de transfert pour atteindre la région de rang 9 à la vitesse la plus rapide possible! Une fois que nous serons dans la région de rang 9, je vous dirai où se trouve la Secte Démon! »
 
@@ -70,27 +70,27 @@ La région de rang 2 était vaste, mais grâce à la vitesse de Wang Lin, le bro
 
 La région de rang 2 défila en un éclair sous l'impulsion de Wang Lin. Un fracas assourdissant retentit et une immense faille apparut. Cette déchirure faillit scinder la région de rang 2 en deux!
 
-À cette vitesse, Wang Lin franchit la région de rang 2 puis celle de rang 3. Il pénétra dans la région de rang 4 et atterrit sur le continent où se trouvait la Secte de l'Âme Marine!
+À cette vitesse, Wang Lin franchit la région de rang 2 puis celle de rang 3. Il pénétra dans la région de rang 4 et atterrit sur le continent où se trouvait la Secte Hai Hun!
 
-La Secte de l'Âme Marine était une branche de la Secte de l'Âme Silencieuse. Puisque la Secte de l'Âme Silencieuse était la plus puissante secte de rang 8, la Secte de l'Âme Marine avait toujours été dominante dans la région de rang 4; rarement osait-on les provoquer.
+La Secte Hai Hun était une branche de la Secte Ji Hun. Puisque la Secte Ji Hun était la plus puissante secte de rang 8, la Secte Hai Hun avait toujours été dominante dans la région de rang 4; rarement osait-on les provoquer.
 
 Le maître de la secte était un cultivateur au sommet du stade Scruteur du Nirvana. Il était assez puissant pour dominer toute la région de rang 4!
 
-À cet instant, il faisait nuit sur le continent de la Secte de l'Âme Marine. Tous les cultivateurs étaient en pleine culture, et même le maître de la secte était assis dans sa chambre secrète. Soudain, un grondement tonitruant retentit et le continent entier trembla.
+À cet instant, il faisait nuit sur le continent de la Secte Hai Hun. Tous les cultivateurs étaient en pleine culture, et même le maître de la secte était assis dans sa chambre secrète. Soudain, un grondement tonitruant retentit et le continent entier trembla.
 
-Ce tremblement n'était pas violent, mais il suffit à réveiller tous les cultivateurs. Le maître de la Secte de l'Âme Marine ouvrit les yeux et quitta précipitamment sa chambre secrète. Les anciens de la Secte de l'Âme Marine accoururent également.
+Ce tremblement n'était pas violent, mais il suffit à réveiller tous les cultivateurs. Le maître de la Secte Hai Hun ouvrit les yeux et quitta précipitamment sa chambre secrète. Les anciens de la Secte Hai Hun accoururent également.
 
 Dès leur apparition, ils virent la formation de protection briller intensément. Ils restèrent stupéfaits en regardant la barrière s'effondrer sous la force de mains gigantesques qui la déchiraient. Une silhouette pénétra sur le continent dès que la protection fut anéantie!
 
 Avant qu'ils ne puissent dire un mot, une voix aussi glaciale qu'une glace éternelle résonna à travers le monde. Elle était terrifiante!
 
-« Ouvrez la formation de transfert et apportez-moi tous vos cristaux d'origine. Sinon... mourez! » Sur ces mots, un jeune homme aux cheveux blancs apparut, l'expression sombre. Il n'avait dit qu'une seule chose, mais le sens de ses paroles terrifia les membres de la Secte de l'Âme Marine!
+« Ouvrez la formation de transfert et apportez-moi tous vos cristaux d'origine. Sinon... mourez! » Sur ces mots, un jeune homme aux cheveux blancs apparut, l'expression sombre. Il n'avait dit qu'une seule chose, mais le sens de ses paroles terrifia les membres de la Secte Hai Hun!
 
-Le maître de la Secte de l'Âme Marine trembla. Bien qu'il ne puisse percevoir le niveau de culture de cet individu, déchirer la formation de protection de la sorte n'était pas une mince affaire. Après avoir entendu ces mots, il joignit les mains et s'apprêta à parler. Cependant, son regard croisa celui de Wang Lin. Son esprit vacilla et il cracha du sang, son visage devenant instantanément livide.
+Le maître de la Secte Hai Hun trembla. Bien qu'il ne puisse percevoir le niveau de culture de cet individu, déchirer la formation de protection de la sorte n'était pas une mince affaire. Après avoir entendu ces mots, il joignit les mains et s'apprêta à parler. Cependant, son regard croisa celui de Wang Lin. Son esprit vacilla et il cracha du sang, son visage devenant instantanément livide.
 
-Wang Lin n'avait rien fait; c'était simplement que le maître de la Secte de l'Âme Marine était trop faible. En rencontrant le regard de Wang Lin, son esprit s'était déstabilisé au point de se blesser lui-même. Cela n'avait rien à voir avec Wang Lin!
+Wang Lin n'avait rien fait; c'était simplement que le maître de la Secte Hai Hun était trop faible. En rencontrant le regard de Wang Lin, son esprit s'était déstabilisé au point de se blesser lui-même. Cela n'avait rien à voir avec Wang Lin!
 
-« Oui! » Le maître de la Secte de l'Âme Marine répondit respectueusement et s'élança sans hésiter. Il emmena les anciens sous le choc pour ouvrir la formation de transfert et remit solennellement tous les cristaux d'origine.
+« Oui! » Le maître de la Secte Hai Hun répondit respectueusement et s'élança sans hésiter. Il emmena les anciens sous le choc pour ouvrir la formation de transfert et remit solennellement tous les cristaux d'origine.
 
 Il ne doutait pas que s'il tardait ou s'il hésitait un seul instant, l'autre commencerait à massacrer tout le monde!
 
@@ -98,7 +98,7 @@ Il sentait que l'homme devant lui n'était pas un simple cultivateur, mais une b
 
 L'ouverture de la formation de transfert allait prendre du temps. À cet instant, tous les anciens s'assirent pour accélérer le processus, car le dieu de la boucherie les observait froidement d'en haut.
 
-Wang Lin n'avait pas le temps d'attendre. Même si le maître de la Secte de l'Âme Marine l'ouvrait personnellement, cela prendrait une heure. Il ne pouvait attendre aussi longtemps.
+Wang Lin n'avait pas le temps d'attendre. Même si le maître de la Secte Hai Hun l'ouvrait personnellement, cela prendrait une heure. Il ne pouvait attendre aussi longtemps.
 
 Alors que la formation s'activait lentement, Wang Lin fit un pas en avant et pressa sa main droite vers le sol!
 
@@ -106,8 +106,8 @@ Le monde trembla tandis que toute l'énergie d'origine de la région convergeait
 
 Wang Lin utilisa cette méthode, qui endommagerait gravement la formation, pour l'ouvrir instantanément. Il s'engouffra à l'intérieur et la vieille femme le suivit.
 
-Après avoir emporté les cristaux d'origine préparés par la Secte de l'Âme Marine, Wang Lin et la vieille dame disparurent dans la formation.
+Après avoir emporté les cristaux d'origine préparés par la Secte Hai Hun, Wang Lin et la vieille dame disparurent dans la formation.
 
 Dès qu'ils eurent disparu, des bruits de craquements provenant de la formation se firent entendre. Plusieurs fissures apparurent et elle s'effondra soudainement.
 
-« Je dois partir, je suis pressé. J'ai détruit votre formation et pris vos cristaux d'origine. À l'avenir, je vous les rendrai au décuple! » La voix de Wang Lin résonna dans les oreilles des cultivateurs de la Secte de l'Âme Marine.
+« Je dois partir, je suis pressé. J'ai détruit votre formation et pris vos cristaux d'origine. À l'avenir, je vous les rendrai au décuple! » La voix de Wang Lin résonna dans les oreilles des cultivateurs de la Secte Hai Hun.

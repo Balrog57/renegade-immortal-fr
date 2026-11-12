@@ -16,9 +16,9 @@ Un vortex gigantesque tournait silencieusement devant Wang Lin. À chaque rotati
 
 En contemplant ce gouffre cyclonique, Wang Lin se remémora le passé. À l'époque, il n'avait pu pénétrer en ces lieux, ou du moins, il n'en était pas qualifié.
 
-C'était le sommet du Système Stellaire du Vide Brillant, à l'époque où il n'était qu'un simple cultivateur sur la planète Suzaku. Le siège de l'Alliance Xiu Zhen!
+C'était le sommet du Système Stellaire Kun Xu, à l'époque où il n'était qu'un simple cultivateur sur la planète Suzaku. Le siège de l'Alliance Xiu Zhen!
 
-L'Alliance Xiu Zhen d'autrefois régnait sur le Système Stellaire du Vide Brillant, et son pouvoir s'étendait à travers tout le système! Cependant, suite à la bataille contre Luotian et au départ de Qing Shui, l'Alliance s'était effondrée. Le siège s'était alors scellé de l'intérieur.
+L'Alliance Xiu Zhen d'autrefois régnait sur le Système Stellaire Kun Xu, et son pouvoir s'étendait à travers tout le système! Cependant, suite à la bataille contre Luotian et au départ de Qing Shui, l'Alliance s'était effondrée. Le siège s'était alors scellé de l'intérieur.
 
 Wang Lin se tenait là, observant le quartier général de l'Alliance en murmurant des paroles que lui seul pouvait entendre.
 
@@ -34,7 +34,7 @@ Ce vortex de scellement remontait à la haute Antiquité. Il avait été acquis 
 
 Une fois activé, il ne s'arrêtait jamais; il puisait constamment dans l'énergie du monde pour accroître sa force!
 
-Lors de la bataille d'il y a dix ans, bien que les cultivateurs du Royaume Intérieur se fussent répartis entre les divers Royaumes aux Sept Couleurs, nombre d'entre eux étaient tout de même venus ici. Même avec Maître Lu Fu et un grand cultivateur de la Rivière Invoquée agissant en même temps, ils n'avaient pu que ralentir le vortex, sans jamais parvenir à l'arrêter.
+Lors de la bataille d'il y a dix ans, bien que les cultivateurs du Royaume Intérieur se fussent répartis entre les divers Royaumes aux Sept Couleurs, nombre d'entre eux étaient tout de même venus ici. Même avec Maître Lu Fu et un grand cultivateur de la Rivière Zhao He agissant en même temps, ils n'avaient pu que ralentir le vortex, sans jamais parvenir à l'arrêter.
 
 Lorsque Maître Yan Leizi vit que le geste désinvolte de Wang Lin avait provoqué un grondement tel que le vortex semblait sur le point de céder, il fut terrifié.
 

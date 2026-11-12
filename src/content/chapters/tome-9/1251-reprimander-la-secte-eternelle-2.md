@@ -32,7 +32,7 @@ Lu Yuncong hocha la tête, les yeux empreints de nostalgie, et répondit: « Il 
 
 Dès qu'il eut prononcé ces mots, non seulement les personnes sur l'estrade furent surprises, mais tous ceux qui écoutaient en furent également stupéfaits.
 
-« Ce maudit fils était un scélérat, sa mort n'était donc pas une tragédie. Cependant, en tant que père, je voulais voir celui qui l'avait tué, alors je me suis rendu à la Secte Gui Yuan... En chemin, j'ai rencontré le camarade cultivateur Li, et nous avons fait route ensemble... »
+« Ce maudit fils était un scélérat, sa mort n'était donc pas une tragédie. Cependant, en tant que père, je voulais voir celui qui l'avait tué, alors je me suis rendu à la Secte Gui Yuan... En chemin, j'ai rencontré le Daoïste Li, et nous avons fait route ensemble... »
 
 Lu Yuncong commença à relater tout ce qui s'était passé lors de sa rencontre avec Wang Lin. Il inclut également les trois questions de Li Qianmei et la manière dont Wang Lin y avait répondu. La réponse comparant le ciel à un cercle émut toute l'assistance!
 
@@ -50,7 +50,7 @@ En entendant cela, tous comprirent pourquoi Li Qianmei était venue en aide à l
 
 « Lu Yanfei, cet homme est-il vraiment l'ancêtre de votre Secte Gui Yuan? » La question vint de l'homme en robe blanche, le Maître de la Secte Éternelle.
 
-C'était la première fois que Lu Yanfei était interrogée ainsi, mais elle n'hésita pas et répondit doucement: « Oui, mon Oncle-Maître a erré à travers le monde pour revenir sauver la Secte Gui Yuan. Il s'était installé... Mais après avoir discuté du Dao avec le camarade cultivateur Lu et les autres, il est reparti. Ses traces sont aujourd'hui inconnues. »
+C'était la première fois que Lu Yanfei était interrogée ainsi, mais elle n'hésita pas et répondit doucement: « Oui, mon Oncle-Maître a erré à travers le monde pour revenir sauver la Secte Gui Yuan. Il s'était installé... Mais après avoir discuté du Dao avec le Daoïste Lu et les autres, il est reparti. Ses traces sont aujourd'hui inconnues. »
 
 « Un tel cultivateur doit errer dans le monde pour comprendre le Dao. Sa personnalité doit l'inciter à se détourner des affaires mondaines; c'est ainsi qu'il a pu atteindre une telle compréhension du Dao. » C'était l'homme d'âge mûr nommé Zhou qui parlait, avec un certain regret.
 
@@ -62,7 +62,7 @@ C'était la première fois que Lu Yanfei était interrogée ainsi, mais elle n'h
 
 La compétition des sectes de rang 6 commença officiellement. Sur la plateforme, les sectes de rang 6 passèrent à l'attaque les unes après les autres et les grondements ne cessaient pas. Cependant, cela ne put attirer l'attention des dizaines de milliers de cultivateurs qui observaient alentour, car tous les regards étaient encore rivés sur les gradins de la Secte Éternelle.
 
-« Camarade Mu, vous avez tout entendu également. Comment ce Lu Zihao se compare-t-il à cette personne dont vous parliez? » L'homme nommé Zhou lança un sourire en s'adressant à elle.
+« Daoïste Mu, vous avez tout entendu également. Comment ce Lu Zihao se compare-t-il à cette personne dont vous parliez? » L'homme nommé Zhou lança un sourire en s'adressant à elle.
 
 Tandis que Mu Bingmei écoutait les paroles de Lu Yuncong, elle réfléchissait en silence. Un sentiment étrange l'envahissait... Il semblait que ce Lu Zihao dont parlait Lu Yuncong lui était très familier.
 

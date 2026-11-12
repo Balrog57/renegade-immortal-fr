@@ -56,15 +56,15 @@ Des milliers de bêtes rouges et des centaines de bleues... C'était la premièr
 
 Un grondement tonitruant monta de l'essaim, entremêlé aux cris d'effroi de Song Luohai.
 
-« Je reconnais mes torts! Camarade cultivateur, ayez pitié! Camarade cultivateur, je vous en supplie! Je suis un Ancien de la Secte de l'Âme Silencieuse! Si vous me laissez partir, je vous le rendrai au centuple! » Sa voix n'était plus qu'un mélange d'angoisse et de supplications désespérées.
+« Je reconnais mes torts! Daoïste, ayez pitié! Daoïste, je vous en supplie! Je suis un Ancien de la Secte de l'Âme Silencieuse! Si vous me laissez partir, je vous le rendrai au centuple! » Sa voix n'était plus qu'un mélange d'angoisse et de supplications désespérées.
 
 L'expression de Wang Lin resta sereine. Il émit un ordre, faisant pousser un cri au roi moustique, et l'assaut de l'essaim redoubla de sauvagerie!
 
 ***
 
-À cet instant, dans la région de rang 8 où se trouvait la Secte Éternelle, trois planètes de culture étaient présentes. La compétition se déroulait sur la deuxième planète et avait commencé il y a plusieurs jours.
+À cet instant, dans la région de rang 8 où se trouvait la Secte Wu Ji, trois planètes de culture étaient présentes. La compétition se déroulait sur la deuxième planète et avait commencé il y a plusieurs jours.
 
-L'ensemble de la Secte Éternelle bouillonnait d'activité lors de cette compétition qui n'avait lieu que tous les mille ans. Une foule immense s'entassait, occupant la totalité de la planète.
+L'ensemble de la Secte Wu Ji bouillonnait d'activité lors de cette compétition qui n'avait lieu que tous les mille ans. Une foule immense s'entassait, occupant la totalité de la planète.
 
 Certains puissants cultivateurs du secteur avaient même été invités pour assister à l'événement, renforçant l'effervescence. Des cultivateurs solitaires étaient également venus observer ce grand spectacle.
 
@@ -82,7 +82,7 @@ Une voix frivole retentit non loin de là. « Serait-ce la beauté Lu, celle que
 
 Peu après, un homme d'âge moyen vêtu de bleu s'avança avec un sourire mielleux. Dès son apparition, certains le reconnurent et, leurs visages changeant instantanément, ils s'éclipsèrent rapidement. Cela rendit l'espace occupé par la Secte Gui Yuan encore plus désolé et vulnérable aux regards.
 
-Se sentant ainsi observés, les membres de la Secte Gui Yuan pâlirent et restèrent muets. Xu Yun se mordit la lèvre si fort qu'elle manqua de saigner.
+Se sentant ainsi observés, les membres de la Secte Gui Yuan pâlirent et restèrent muets. Sun Yun se mordit la lèvre si fort qu'elle manqua de saigner.
 
 Cet homme d'âge moyen n'était pas seul; deux Anciens aux cheveux blancs le suivaient. Leurs regards étaient aussi tranchants que la foudre, et quiconque croisait leur vue sentait son esprit vaciller.
 
@@ -92,20 +92,20 @@ Cet homme d'âge moyen n'était pas seul; deux Anciens aux cheveux blancs le sui
 
 « En particulier, ce Lu Yingjie pratique une méthode de culture extrêmement cruelle et nécessite souvent un grand nombre de fours de culture. Même les plus puissants ne semblent pouvoir échapper à son emprise. »
 
-« Les rumeurs sur ce Lu Yingjie sont légion. On raconte qu'il aurait un lien de parenté avec l'Ancien Lu de la Secte Éternelle... L'Ancien Lu est au sommet du stade Briseur du Nirvana; avec un tel soutien, il n'est pas étonnant que Lu Yingjie se montre si arrogant. »
+« Les rumeurs sur ce Lu Yingjie sont légion. On raconte qu'il aurait un lien de parenté avec l'Ancien Lu de la Secte Wu Ji... L'Ancien Lu est au sommet du stade Briseur du Nirvana; avec un tel soutien, il n'est pas étonnant que Lu Yingjie se montre si arrogant. »
 
 Le corps de Lu Yanfei trembla et son regard devint glacial lorsqu'elle se tourna vers l'homme en bleu. Ce dernier était plutôt beau et dégageait une aura virile.
 
 « La Secte Gui Yuan n'est pas dissous et ne le sera pas », déclara calmement Lu Yanfei avant de faire volte-face pour partir.
 
-Lu Yingjie sourit et dit d'un ton suave: « Compagnon cultivateur Lu, ne m'en voulez pas. Je n'ai fait que répéter ce que j'ai entendu concernant les fours de culture, je ne faisais que taquiner. Cependant, mes intentions sont bonnes. Si la Secte Gui Yuan devait disparaître, Lady Lu aurait au moins un endroit convenable où se réfugier. »
+Lu Yingjie sourit et dit d'un ton suave: « Daoïste Lu, ne m'en voulez pas. Je n'ai fait que répéter ce que j'ai entendu concernant les fours de culture, je ne faisais que taquiner. Cependant, mes intentions sont bonnes. Si la Secte Gui Yuan devait disparaître, Demoiselle Lu aurait au moins un endroit convenable où se réfugier. »
 
-« Oublie la dissolution de la Secte Gui Yuan! Même s'il venait à disparaître, ma Secte Zi Dao les accueillerait tous! » Ces paroles glaciales vinrent d'une autre direction alors qu'un homme vêtu de violet s'avançait. Il lança un regard froid à Lu Yingjie avant de se tourner vers Lu Yanfei et de joindre poliment les mains. « Salutations, Compagnon cultivateur Lu. »
+« Oublie la dissolution de la Secte Gui Yuan! Même s'il venait à disparaître, ma Secte Zi Dao les accueillerait tous! » Ces paroles glaciales vinrent d'une autre direction alors qu'un homme vêtu de violet s'avançait. Il lança un regard froid à Lu Yingjie avant de se tourner vers Lu Yanfei et de joindre poliment les mains. « Salutations, Daoïste Lu. »
 
 Lu Yanfei fut surprise.
 
-« Compagnon cultivateur Lu, ne vous en préoccupez guère. Bien que le Frère Lu et moi ne nous soyons rencontrés qu'une seule fois, cette nuit de débat sur le Dao est un souvenir que je n'oublierai jamais. S'il revient, non seulement la Secte Gui Yuan ne sera pas dissous, mais il est possible qu'il devienne la première branche de secte. » Lu Yuncong afficha un air de mélancolie nostalgique.
+« Daoïste Lu, ne vous en préoccupez guère. Bien que le Frère Lu et moi ne nous soyons rencontrés qu'une seule fois, cette nuit de débat sur le Dao est un souvenir que je n'oublierai jamais. S'il revient, non seulement la Secte Gui Yuan ne sera pas dissous, mais il est possible qu'il devienne la première branche de secte. » Lu Yuncong afficha un air de mélancolie nostalgique.
 
-« Ainsi, le Compagnon cultivateur Lu affectionne également la Secte Gui Yuan et souhaite rivaliser avec moi. Je me demande simplement qui est ce "Frère Lu" dont vous parlez. Serait-ce moi? » Lu Yingjie esquissa un sourire indéchiffrable. On ne pouvait dire s'il était joyeux ou irrité; ses paroles étaient aussi légères que des nuages.
+« Ainsi, le Daoïste Lu affectionne également la Secte Gui Yuan et souhaite rivaliser avec moi. Je me demande simplement qui est ce "Frère Lu" dont vous parlez. Serait-ce moi? » Lu Yingjie esquissa un sourire indéchiffrable. On ne pouvait dire s'il était joyeux ou irrité; ses paroles étaient aussi légères que des nuages.
 
 Lu Yuncong fronça les sourcils et, sans aucune retenue, rugit: « Tais-toi! Pour qui te prends-tu pour oser mentionner le Frère Lu? S'il était ici, il pourrait t'écraser aussi facilement qu'une fourmi! »

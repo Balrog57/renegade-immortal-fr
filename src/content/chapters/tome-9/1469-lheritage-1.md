@@ -110,7 +110,7 @@ Une douleur intense déferla sur l'esprit de Wang Lin telle une marée, comme si
 
 « Dao Ji Li Guang a abattu mon œil gauche. Mon œil gauche contenait la moitié de mes souvenirs et mes pensées pour ma terre natale... »
 
-La voix qu'il avait entendue auparavant résonna de nouveau dans son esprit. Sous l'effet de cette douleur atroce, il sembla s'oublier lui-même pour devenir totalement l'Ordre Ancien Ye Mo!
+La voix qu'il avait entendue auparavant résonna de nouveau dans son esprit. Sous l'effet de cette douleur atroce, il sembla s'oublier lui-même pour devenir totalement Dao Gu Ye Mo!
 
 « Rendez-moi mon œil gauche! » rugit-il. Tandis que son cri résonnait, l'aura de la tête se précipita en avant. La technique septicolore s'effondra et l'aura frappa l'homme au parapluie. Celui-ci afficha un sourire amer alors que son corps perdait toute vitalité pour se transformer en pierre. Même l'ombrelle fut pétrifiée.
 

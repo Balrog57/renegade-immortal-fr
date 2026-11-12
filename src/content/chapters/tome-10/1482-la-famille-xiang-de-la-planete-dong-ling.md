@@ -68,7 +68,7 @@ La famille Xiang était tel un béhémoth assoupi. Dès son réveil, elle ébran
 
 C'est pour cette raison que Xiang Yundong, représentant de la famille Xiang, avait été choisi parmi les quatre disciples ayant appris un sortilège du Dao auprès de Maître Lu Fu, malgré sa culture manifestement insuffisante!
 
-Le choix des quatre personnes par Maître Lu Fu cachait une signification profonde, qu'il s'agisse du Dieu de Sang, de Lie Yunzi ou de Maître Yan Leizi!
+Le choix des quatre personnes par Maître Lu Fu cachait une signification profonde, qu'il s'agisse du Xue Shenzi, de Lie Yunzi ou de Maître Yan Leizi!
 
 Une rumeur circulait parmi certains vieux monstres. Elle concernait la famille Xiang, mais personne ne savait si elle était vraie ou fausse. Peut-être seul Maître Lu Fu pourrait-il l'authentifier!
 
@@ -80,7 +80,7 @@ Cette famille de culture antique existait depuis bien avant l'effondrement du Ro
 
 Elle restait extrêmement discrète, et ses membres n'étaient pratiquement pas apparus au cours des dizaines de milliers d'années passées. Bien que Wang Lin fût présent à Luotian lorsque Maître Lu Fu déclencha la guerre contre l'Alliance, cette famille mystérieuse n'avait envoyé qu'un seul ordre et une seule personne.
 
-L'ordre consistait à conférer le titre d'Immortel véritable. La personne envoyée était le neuvième Ancien, celui qui avait cherché à s'emparer de l'essence lunaire dans le corps du Serpent aux yeux de lune: Maître Yi Mu.
+L'ordre consistait à conférer le titre d'Immortel véritable. La personne envoyée était le neuvième Ancien, celui qui avait cherché à s'emparer de l'essence lunaire dans le corps du Serpent aux yeux de lune: Yi Muzi.
 
 Les trois familles de la planète Dong Lin furent mobilisées sous l'Ordre de Sang de la famille Xiang. À cet instant, la planète entière était prête pour la guerre.
 

@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1163 - Please Forgive Us
 slug: veuillez-nous-pardonner
 ---
-Les vêtements sur sa poitrine étaient déchirés et imprégnés d'une brume de sang, créant un contraste saisissant avec l'empreinte de paume noire. Le corps de Zhou Hai fut projeté hors de la cour sud, tandis que des filaments de vitalité s'échappaient de la marque sombre. En un instant, son corps se rétracta jusqu'à ne ressembler qu'à un squelette.
+Les vêtements sur sa poitrine étaient déchirés et imprégnés d'une brume de sang, créant un contraste saisissant avec l'empreinte de paume noire. Le corps de Zou Hai fut projeté hors de la cour sud, tandis que des filaments de vitalité s'échappaient de la marque sombre. En un instant, son corps se rétracta jusqu'à ne ressembler qu'à un squelette.
 
 La vitalité qui apparut sembla être mue par une puissance invisible et pénétra le disciple blessé de la Secte Gui Yuan. Son corps trembla tandis que la lumière bleue disparaissait, le ramenant à son état normal.
 
-Le corps de Zhou Hai s'écrasa au sol avec fracas, le visage livide. Ses membres continuaient de convulser et la terreur emplissait ses yeux.
+Le corps de Zou Hai s'écrasa au sol avec fracas, le visage livide. Ses membres continuaient de convulser et la terreur emplissait ses yeux.
 
 L'environnement était plongé dans un silence absolu, d'un calme terrifiant!
 
@@ -18,9 +18,9 @@ Zhao Yu, de la Secte Mo Cong, haleta, le choc se lisant dans son regard. Il fixa
 
 En repensant à ses paroles frivoles où il avait taquiné Lu Yanfei, il sentit son cuir chevelu picoter. Ce n'était pas qu'il convoitait Lu Yanfei, c'était simplement sa nature. De plus, toutes les sectes de rang 5 qu'ils avaient rencontrées s'étaient montrées très polies et respectueuses, les laissant agir à leur guise, comme si on pouvait les malmener.
 
-« La Secte Gui Yuan possède un cultivateur aussi puissant?! » Les pupilles de Feng Peishan se rétractèrent et son expression devint grave. Quelqu'un capable de blesser Zhou Hai si facilement devait être un vieux monstre redoutable.
+« La Secte Gui Yuan possède un cultivateur aussi puissant?! » Les pupilles de Feng Peishan se rétractèrent et son expression devint grave. Quelqu'un capable de blesser Zou Hai si facilement devait être un vieux monstre redoutable.
 
-« Qui vous a donné le droit de blesser les membres de ma Secte Gui Yuan?! » Ces paroles glaciales résonnèrent à travers le monde. Elles ne contenaient pas de loi, et n'étaient pas aussi fracassantes que les propos de Feng Peishan, mais ces mots simples étaient comme des lames acérées s'enfonçant dans les cœurs de Feng Peishan, Zhou Hai et Zhao Yu.
+« Qui vous a donné le droit de blesser les membres de ma Secte Gui Yuan?! » Ces paroles glaciales résonnèrent à travers le monde. Elles ne contenaient pas de loi, et n'étaient pas aussi fracassantes que les propos de Feng Peishan, mais ces mots simples étaient comme des lames acérées s'enfonçant dans les cœurs de Feng Peishan, Zou Hai et Zhao Yu.
 
 Tout comme le silence qui les entourait, ces paroles dégageaient une pression terrifiante.
 
@@ -36,15 +36,15 @@ Leur Secte Dao Fa se concentrait précisément sur le concept de « Dao ». Dans
 
 « Quand il se tient là, il EST le Dao! » Feng Peishan recula inconsciemment de quelques pas, songeant aux paroles que le Grand Ancien avait prononcées autrefois.
 
-« Toi? » Wang Lin marcha calmement vers Zhou Hai qui luttait encore. Il baissa les yeux comme s'il contemplait une fourmi!
+« Toi? » Wang Lin marcha calmement vers Zou Hai qui luttait encore. Il baissa les yeux comme s'il contemplait une fourmi!
 
-Le corps de Zhou Hai trembla. Lorsqu'il croisa malgré lui le regard de Wang Lin, ses convulsions redoublèrent de violence. Il sombra dans une illusion, comme si la personne qui l'avait blessé était le monde lui-même, et qu'il n'était qu'une existence dérisoire au sein de ce monde.
+Le corps de Zou Hai trembla. Lorsqu'il croisa malgré lui le regard de Wang Lin, ses convulsions redoublèrent de violence. Il sombra dans une illusion, comme si la personne qui l'avait blessé était le monde lui-même, et qu'il n'était qu'une existence dérisoire au sein de ce monde.
 
 Son cœur battait à tout rompre et son esprit était embrumé. Bien qu'il ne puisse percevoir le niveau de culture de l'individu devant lui, il sentait en cet instant qu'aucun des Anciens, ni même le chef de sa propre secte, ne pourrait jamais lui inspirer une telle terreur.
 
 Wang Lin détourna son regard et leva les yeux vers Zhao Yu de la Secte Mo Cong, demandant calmement: « Ou est-ce toi? »
 
-Zhao Yu se lécha nerveusement les lèvres. Il regarda Zhou Hai qui se débattait au sol, puis Wang Lin. Son expression devint soudainement empreinte de respect.
+Zhao Yu se lécha nerveusement les lèvres. Il regarda Zou Hai qui se débattait au sol, puis Wang Lin. Son expression devint soudainement empreinte de respect.
 
 « Le Junior Zhao Yu, de la Secte Mo Cong, salue le Senior. » Ce dernier joignit immédiatement les mains avec une déférence extrême pour masquer sa peur. Cependant, il n'osa pas lever les yeux vers Wang Lin.
 
@@ -62,7 +62,7 @@ Feng Peishan ne s'essuya pas le coin de la bouche et dit d'un ton amer: « Cela 
 
 L'expression de Wang Lin resta neutre, puis il tourna son regard vers Zhao Yu.
 
-Zhao Yu esquissa un sourire de détresse. Si Feng Peishan n'osait pas provoquer cet homme, comment pourrait-il en avoir le courage? De plus, il n'avait même pas vu comment cette personne avait attaqué et blessé si gravement Zhou Hai. Même s'il avait tenté de résister, cela aurait été inutile.
+Zhao Yu esquissa un sourire de détresse. Si Feng Peishan n'osait pas provoquer cet homme, comment pourrait-il en avoir le courage? De plus, il n'avait même pas vu comment cette personne avait attaqué et blessé si gravement Zou Hai. Même s'il avait tenté de résister, cela aurait été inutile.
 
 Zhao Yu serra les dents, leva sa main droite et frappa impitoyablement sa poitrine. Il toussa du sang en reculant de quelques pas, les mains jointes: « Veuillez ne pas être en colère, Senior. »
 
@@ -76,29 +76,29 @@ Wang Lin dit calmement: « Vous pouvez continuer vos recherches. »
 
 « À vos ordres. » Feng Peishan eut un sourire amer. Il savait que leurs actes avaient déjà offensé le Grand Oncle-Maître de la Secte Gui Yuan. La seule raison pour laquelle il ne les avait pas tués était sa préoccupation pour les sectes dont ils provenaient.
 
-« Si notre secte apprend que nous avons offensé un vieux monstre possédant un domaine Dao, il sera difficile d'éviter la punition. Même notre secte n'offenserait pas si facilement un cultivateur aussi puissant. Sans parler du fait qu'il a blessé Zhou Hai d'un simple geste; s'il avait voulu le tuer, Zhou Hai serait déjà mort. » En soupirant, Feng Peishan se remémora les paroles de son maître avant son départ.
+« Si notre secte apprend que nous avons offensé un vieux monstre possédant un domaine Dao, il sera difficile d'éviter la punition. Même notre secte n'offenserait pas si facilement un cultivateur aussi puissant. Sans parler du fait qu'il a blessé Zou Hai d'un simple geste; s'il avait voulu le tuer, Zou Hai serait déjà mort. » En soupirant, Feng Peishan se remémora les paroles de son maître avant son départ.
 
 Son maître lui avait dit qu'il existait de nombreuses personnes au-dessus de lui et que de nombreux vieux monstres étaient cachés dans l'ombre. Certains vivaient forcément dans des sectes de rang 5. Beaucoup de ces sectes possédaient des héritages anciens, et certains de leurs membres, bien que partis autrefois, pouvaient posséder une puissance capable de secouer les cieux. Bien que ces individus ne soient pas célèbres, il fallait être extrêmement prudent s'ils étaient croisés.
 
 C'était pour cette raison qu'il convenait d'expliquer les choses poliment et de ne pas les offenser lors de cette fouille.
 
-Feng Peishan partit respectueusement, mais après réflexion, il continua à explorer minutieusement le continent de Mo Luo. N'ayant rien trouvé, tous les disciples se rassemblèrent et partirent avec lui, tout en aidant Zhou Hai à se déplacer.
+Feng Peishan partit respectueusement, mais après réflexion, il continua à explorer minutieusement le continent de Mo Luo. N'ayant rien trouvé, tous les disciples se rassemblèrent et partirent avec lui, tout en aidant Zou Hai à se déplacer.
 
-Ce n'est qu'une fois la barrière franchie que Feng Peishan et Zhao Yu poussèrent un soupir de soulagement. Quant à Zhou Hai, il avait avalé quelques pilules et s'était rétabli suffisamment pour voler. Son visage était toujours pâle et une peur résiduelle hantait ses yeux.
+Ce n'est qu'une fois la barrière franchie que Feng Peishan et Zhao Yu poussèrent un soupir de soulagement. Quant à Zou Hai, il avait avalé quelques pilules et s'était rétabli suffisamment pour voler. Son visage était toujours pâle et une peur résiduelle hantait ses yeux.
 
-Feng Peishan demanda: « Camarade cultivateur Zhou, veuillez essayer de décrire en détail comment ce Senior a attaqué après votre entrée dans la cour sud. »
+Feng Peishan demanda: « Camarade cultivateur Zou, veuillez essayer de décrire en détail comment ce Senior a attaqué après votre entrée dans la cour sud. »
 
-Zhou Hai ressentait encore un effroi profond. Après un moment de silence, il répondit: « La culture de ce Senior est au moins au stade intermédiaire du Briseur du Nirvana ou supérieur. Je ne l'ai pas vu attaquer. Dès que je suis entré dans la cour sud, j'ai senti une énergie d'origine inimaginable se concentrer en une paume qui s'est abattue sur ma poitrine. » En disant cela, il regarda son torse; l'empreinte de la paume était toujours noire.
+Zou Hai ressentait encore un effroi profond. Après un moment de silence, il répondit: « La culture de ce Senior est au moins au stade intermédiaire du Briseur du Nirvana ou supérieur. Je ne l'ai pas vu attaquer. Dès que je suis entré dans la cour sud, j'ai senti une énergie d'origine inimaginable se concentrer en une paume qui s'est abattue sur ma poitrine. » En disant cela, il regarda son torse; l'empreinte de la paume était toujours noire.
 
 Zhao Yu demanda soudainement: « S'agit-il d'une attaque empoisonnée? »
 
-Zhou Hai secoua la tête: « Ce Senior ne présentait aucun signe d'utilisation de poison, ce ne peut donc pas être la Vieille Poisonneuse. De plus, elle n'a pas une telle puissance. J'ai également observé discrètement les membres de la Secte Gui Yuan. Leur révérence et leur sentiment de gloire n'étaient pas feints; cette personne était bel et bien leur Grand Oncle-Maître. »
+Zou Hai secoua la tête: « Ce Senior ne présentait aucun signe d'utilisation de poison, ce ne peut donc pas être la Vieille Poisonneuse. De plus, elle n'a pas une telle puissance. J'ai également observé discrètement les membres de la Secte Gui Yuan. Leur révérence et leur sentiment de gloire n'étaient pas feints; cette personne était bel et bien leur Grand Oncle-Maître. »
 
-« C'est vrai. » Feng Peishan hocha la tête et ajouta: « Si cette personne était réellement liée à la Vieille Poisonneuse ou connaissait l'affaire du jade et de la recette, il serait resté caché sans intervenir. Avec sa culture, ce serait un jeu d'enfant. Il n'aurait pas blessé Zhou Hai ni forcé Zhao Yu et moi à payer un tel prix. »
+« C'est vrai. » Feng Peishan hocha la tête et ajouta: « Si cette personne était réellement liée à la Vieille Poisonneuse ou connaissait l'affaire du jade et de la recette, il serait resté caché sans intervenir. Avec sa culture, ce serait un jeu d'enfant. Il n'aurait pas blessé Zou Hai ni forcé Zhao Yu et moi à payer un tel prix. »
 
-Zhao Yu acquiesça. En repensant aux événements, il dit: « Ce Grand Oncle-Maître de la Secte Gui Yuan est trop puissant. Même dans une région de rang 6, il serait une figure de proue. Heureusement qu'il ne l'a blessé que sans le tuer. Sinon... » Il laissa sa phrase en suspens en regardant Zhou Hai.
+Zhao Yu acquiesça. En repensant aux événements, il dit: « Ce Grand Oncle-Maître de la Secte Gui Yuan est trop puissant. Même dans une région de rang 6, il serait une figure de proue. Heureusement qu'il ne l'a blessé que sans le tuer. Sinon... » Il laissa sa phrase en suspens en regardant Zou Hai.
 
-Zhou Hai resta silencieux, le cœur glacé par la peur.
+Zou Hai resta silencieux, le cœur glacé par la peur.
 
 « Plus tôt, en venant ici, nous avons vu les membres de la Secte Zi Dao se diriger vers la Secte Gui Yuan; il semble y avoir une rancœur entre eux. On dirait que Lu Yuncong va tomber sur un os! » Zhao Yu sourit, semblant presque se réjouir du malheur d'autrui.
 

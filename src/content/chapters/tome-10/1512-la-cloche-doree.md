@@ -38,11 +38,11 @@ De l'autre côté, le vieil homme en noir qui combattait l'Estimé Ling Dong fut
 
 Il y avait aussi l'homme d'âge moyen qui luttait contre Zhou Jin; il était terrifié. Zhou Jin était tout aussi puissant que lui, mais possédait bien plus de flammes Joss. En conséquence, il n'était pas de taille et fut contraint de battre en retraite, devant même utiliser des trésors pour résister.
 
-« Ce n'est pas rentable, pas rentable du tout! Offenser un homme qui tient des cultivateurs du troisième pas en esclavage, tout cela pour le sort d'arrêt de l'esprit... Moi, Maître Bord-des-Nuages, je suis perdant dans cette affaire! »
+« Ce n'est pas rentable, pas rentable du tout! Offenser un homme qui tient des cultivateurs du troisième pas en esclavage, tout cela pour le sort d'arrêt de l'esprit... Moi, Yun Fengzi, je suis perdant dans cette affaire! »
 
 Une lueur d'intention meurtrière traversa le regard calme de Wang Lin. Il s'avança vers le Shui Daozi, prêt à asséner son second coup!
 
-À cet instant précis, le Shui Daozi essuya le sang au coin de sa bouche et renonça à utiliser le Maître de la Secte Brise-Ciel pour détruire le Dao Cœur de Wang Lin. Le Saint Démon de la Secte Fantôme ne semblait pas non plus se soucier de ses centaines de millions de disciples et de leurs flammes Joss et ne montrait aucun signe d'intervention. Le Shui Daozi leva les yeux et rugit:
+À cet instant précis, le Shui Daozi essuya le sang au coin de sa bouche et renonça à utiliser le Maître de la Secte Po Mie pour détruire le Dao Cœur de Wang Lin. Le Saint Démon de la Secte Gui ne semblait pas non plus se soucier de ses centaines de millions de disciples et de leurs flammes Joss et ne montrait aucun signe d'intervention. Le Shui Daozi leva les yeux et rugit:
 
 « Tai Aluo!! »
 
@@ -54,7 +54,7 @@ Aucune fluctuation d'énergie originelle n'émanait de son corps et son apparenc
 
 « Le cultivateur de la Métamorphose, Tai Aluo, salue le Seigneur du Royaume Scellé de cette génération. »
 
-Le corps de Wang Lin marqua un temps d'arrêt et il tourna le regard. Ce qu'il vit fit se contracter ses pupilles. L'apparence de cet homme était trop étrange. Wang Lin avait déjà remarqué Zhou De et Maître Bord-des-Nuages, mais il n'avait pas perçu cet individu.
+Le corps de Wang Lin marqua un temps d'arrêt et il tourna le regard. Ce qu'il vit fit se contracter ses pupilles. L'apparence de cet homme était trop étrange. Wang Lin avait déjà remarqué Zhou De et Yun Fengzi, mais il n'avait pas perçu cet individu.
 
 « Un cultivateur de la Métamorphose... » Wang Lin ne dit rien, observant calmement l'homme aux pieds nus.
 

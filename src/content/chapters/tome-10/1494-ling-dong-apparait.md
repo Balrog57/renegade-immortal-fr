@@ -8,7 +8,7 @@ slug: ling-dong-apparait
 ---
 « Osez-vous accepter le deuxième combat d'intention Dao? » L'expression du Maître Lu Fu était sombre et sa voix résonna à travers les étoiles.
 
-« J'en ai assez de cette Bataille Littéraire. » Wang Lin secoua la tête et son regard se posa sur le Dieu de Sang au visage pâle qui se tenait derrière le Maître Lu Fu. Il comptait contourner le Maître Lu Fu pour capturer directement le Dieu de Sang!
+« J'en ai assez de cette Bataille Littéraire. » Wang Lin secoua la tête et son regard se posa sur Xue Shenzi au visage pâle qui se tenait derrière le Maître Lu Fu. Il comptait contourner le Maître Lu Fu pour capturer directement Xue Shenzi!
 
 Le Maître Lu Fu, déjà furieux à cause du premier combat, éclata d'un rire de rage face à l'action de Wang Lin. Il agita la main et toute sa puissance de cultivateur de la troisième étape au stade initial du Vide du Nirvana éclata. Il se tenait là comme s'il trônait au-dessus des étoiles!
 

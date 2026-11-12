@@ -84,7 +84,7 @@ Bien que cette pierre de montagne fût rare, elle n'avait provoqué qu'un léger
 
 Dès l'apparition de ce gaz noir, les expressions de certains cultivateurs changèrent et ils se figèrent. Parmi eux figuraient le vieil homme au visage balafré, le lettré en blanc et sa compagnie.
 
-« Je demande au collègue cultivateur Lu de lever le sceau afin que nous puissions mieux l'examiner. » Le vieil homme joignit les mains vers Wang Lin, soulignant que cet objet appartenait à Wang Lin.
+« Je demande au Daoïste Lu de lever le sceau afin que nous puissions mieux l'examiner. » Le vieil homme joignit les mains vers Wang Lin, soulignant que cet objet appartenait à Wang Lin.
 
 Wang Lin observa attentivement l'expression du vieillard. Après une courte réflexion, sa main droite pointa l'armure et une restriction jaillit vers le gaz noir. Ce dernier sembla bouillir en tourbillonnant violemment tandis que les couches de restrictions se dissipaient. Finalement, toutes les entraves disparurent et le gaz noir perdit son aspect flou. Il se contracta rapidement pour former une armure noire, dégageant une énergie démoniaque monstrueuse.
 
@@ -104,7 +104,7 @@ Le vieil homme balafré eut un souffle court et murmura: « L'Armure Démoniaque
 
 Les cultivateurs présents étaient tous des experts érudits, puissants et dotés d'une grande force mentale. Pourtant, à cet instant précis, leur volonté vacilla devant cette armure!
 
-L'Ancien de la Secte des Sorts Dao joignit les mains vers Wang Lin: « Collègue cultivateur Lu, souhaitez-vous vraiment vendre cela? »
+L'Ancien de la Secte des Sorts Dao joignit les mains vers Wang Lin: « Daoïste Lu, souhaitez-vous vraiment vendre cela? »
 
 Sa question plongea immédiatement l'assemblée dans le silence. Tous les regards se tournèrent vers Wang Lin.
 

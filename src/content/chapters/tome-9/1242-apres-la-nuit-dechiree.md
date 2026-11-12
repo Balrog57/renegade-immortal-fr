@@ -24,7 +24,7 @@ Le Royaume Céleste de la Pluie lui avait laissé l'impression d'être gravement
 
 Le Royaume Céleste du Tonnerre différait de celui de la Pluie car il était moins dévasté. Bien qu'il fût également en ruines, il pouvait encore y ressentir la puissance et la majesté du royaume d'antan.
 
-Cependant, que ce soit le Royaume Yu Zhi Xian Jie ou celui du Tonnerre, aucun ne pouvait absolument rivaliser avec le Royaume Céleste du Vent. À cause des bêtes-moustiques, les cultivateurs venaient rarement ici après l'effondrement, ce qui avait permis au royaume de rester extrêmement intact. Seul le vent résonnait, solitaire, à travers son étendue.
+Cependant, que ce soit le Royaume Céleste de la Pluie ou celui du Tonnerre, aucun ne pouvait absolument rivaliser avec le Royaume Céleste du Vent. À cause des bêtes-moustiques, les cultivateurs venaient rarement ici après l'effondrement, ce qui avait permis au royaume de rester extrêmement intact. Seul le vent résonnait, solitaire, à travers son étendue.
 
 L'ensemble du Royaume Céleste du Vent dégageait pour Wang Lin un sentiment de désolation et de solitude infinies, comme si cet endroit avait été oublié durant des éternités. Seuls les gémissements du vent accompagnaient ce lieu.
 

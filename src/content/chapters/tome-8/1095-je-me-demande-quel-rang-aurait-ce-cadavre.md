@@ -34,17 +34,17 @@ Qing Shui se trouvait très probablement au sein de l'Alliance, sans compter la 
 
 Lie Yunzi réprima une fois de plus sa colère et demanda: « Que voulez-vous encore? »
 
-Wang Lin répondit lentement: « Les dix Lou Fu! »
+Wang Lin répondit lentement: « Les dix Luo Fu! »
 
 « Vous...! » Des craquements sinistres émanèrent du corps de Lie Yunzi. Sa rage avait atteint son paroxysme. Son corps tremblait alors qu'il luttait pour reprendre son calme. Il finit par laisser échapper un profond soupir.
 
-« Après vous en avoir donné une dernière fois, il ne me reste plus que six Lou Fu! Je n'en ai plus d'autres, c'est tout ce que je peux vous offrir! » Lie Yunzi serra les dents.
+« Après vous en avoir donné une dernière fois, il ne me reste plus que six Luo Fu! Je n'en ai plus d'autres, c'est tout ce que je peux vous offrir! » Lie Yunzi serra les dents.
 
 Wang Lin sourit et hocha la tête. « Six feront l'affaire! Vous devrez aussi me donner le jade contenant les instructions pour les contrôler. »
 
-Lie Yunzi ferma les yeux et tendit la main vers le vide. Six Lou Fu, exhalant une odeur de sang, s'envolèrent, accompagnés d'un morceau de jade.
+Lie Yunzi ferma les yeux et tendit la main vers le vide. Six Luo Fu, exhalant une odeur de sang, s'envolèrent, accompagnés d'un morceau de jade.
 
-Wang Lin agita ses manches et les six Lou Fu furent aspirés dans son sac de rangement. Il saisit ensuite le jade et, après l'avoir inspecté, le rangea.
+Wang Lin agita ses manches et les six Luo Fu furent aspirés dans son sac de rangement. Il saisit ensuite le jade et, après l'avoir inspecté, le rangea.
 
 « Je m'en vais! » Lie Yunzi se retourna pour partir. Il ne pouvait plus supporter de rester au sein de la Secte Divine de l'Oiseau Vermillon.
 
@@ -76,7 +76,7 @@ Lie Yunzi n'eut même pas le temps de déployer un sort ou un trésor.
 
 Il cracha un flot de sang et son corps s'effondra. Son âme originelle, pétrifiée par le choc et la terreur, tenta de fuir. Voyant que l'attaque ne cessait pas, Lie Yunzi paniqua. Sa main droite s'élança et une sphère de sang d'un diamètre de cent pieds apparut.
 
-C'était une boule de sang Lou Fu!
+C'était une boule de sang Luo Fu!
 
 Dès qu'elle fut formée, Lie Yunzi hurla: « Explose! »
 

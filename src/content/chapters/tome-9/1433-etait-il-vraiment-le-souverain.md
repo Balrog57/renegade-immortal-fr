@@ -12,7 +12,7 @@ Lanmeng Daozun l'avait déjà poussé à choisir une première fois, et l'Oiseau
 
 Plus important encore, s'il n'était pas entré dans la mémoire du Maître Simo pour y découvrir un homme ayant vécu une vie similaire mais ayant choisi un chemin différent, Wang Lin aurait peut-être choisi de rester... pour devenir l'esclave du Souverain... Les paroles du Souverain avaient touché le point faible de Wang Lin!
 
-Après avoir quitté le clan des Moineaux de Feu, l'effondrement de la terre sainte avait déclenché un incendie dévastateur qui se propageait dans toutes les directions. Le brasier détruisit près de la moitié des tribus du clan des Moineaux de Feu, et une flamme monstrueuse brillait derrière Wang Lin alors qu'il s'éloignait.
+Après avoir quitté le Clan Huo Que, l'effondrement de la terre sainte avait déclenché un incendie dévastateur qui se propageait dans toutes les directions. Le brasier détruisit près de la moitié des tribus du Clan Huo Que, et une flamme monstrueuse brillait derrière Wang Lin alors qu'il s'éloignait.
 
 Des grondements tonitruants résonnèrent au loin, ébranlant le domaine stellaire, mais Wang Lin ne sortit pas de sa torpeur. Son cœur semblait déchiré et une douleur lancinante imprégnait son corps.
 
@@ -66,7 +66,7 @@ La culture de cet homme fluctuait, tantôt haute, tantôt basse. Il avait pu s'o
 
 « Sa culture est liée au feu et il possède l'Oiseau Vermillon aux sept couleurs. Il devrait être le traître du troisième Oiseau Vermillon... Mais est-il vraiment le Souverain...? » La raison pour laquelle Wang Lin avait supposé que le troisième Oiseau Vermillon était le Souverain était que ce dernier demeurait la figure la plus mystérieuse du Système Stellaire Antique. Personne ne savait à quel clan il appartenait!
 
-De plus, dans les Terres des Esprits Démoniaques, Wang Lin avait rencontré un individu qui s'était avéré être le disciple du Souverain! Cet homme utilisait des sorts de feu! Ce sort n'était pas celui d'un cultivateur ordinaire; il était manifeste que cet homme touchait aux limites de l'essence du feu.
+De plus, dans les Terre Yao Ling, Wang Lin avait rencontré un individu qui s'était avéré être le disciple du Souverain! Cet homme utilisait des sorts de feu! Ce sort n'était pas celui d'un cultivateur ordinaire; il était manifeste que cet homme touchait aux limites de l'essence du feu.
 
 Tout cela menait Wang Lin à une conclusion logique. En combinant ces indices, il avait déterminé que le traître du troisième Oiseau Vermillon était le Souverain! C'était pour cette raison que le Conseil du Souverain connaissait la vérité sur les Terres Déchues et n'osait point agir!
 

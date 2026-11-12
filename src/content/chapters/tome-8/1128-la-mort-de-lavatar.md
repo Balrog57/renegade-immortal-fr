@@ -68,7 +68,7 @@ Si Wang Lin n'avait pas été dévoré, il aurait clairement vu que neuf des dix
 
 La lumière violette disparut lentement avec l'empreinte de main, comme si elle n'avait jamais existé.
 
-La prudence dans les yeux des dix-sept têtes s'estompa progressivement. À cet instant, une masse de chair commença à bouger près de son cou, et bientôt, une branche d'environ trois cents mètres de long se déploya. Il y avait une tête au bout de la branche!
+La prudence dans les yeux des dix-sept têtes s'estompa progressivement. À cet instant, une masse de chair commença à bouger près de son cou, et bientôt, une branche d'environ mille pieds de long se déploya. Il y avait une tête au bout de la branche!
 
 Cette tête ressemblait à Wang Lin!
 

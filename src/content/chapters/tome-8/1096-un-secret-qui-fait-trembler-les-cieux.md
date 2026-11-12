@@ -18,7 +18,7 @@ Wang Lin prit une gorgée de thé et répondit nonchalamment: « C'est exact. »
 
 La belle femme réfléchit un instant, puis regarda Wang Lin avec une pointe de respect: « Je ne peux pas prendre de décision pour le moment, mais, Empereur Divin, je vous prie de m'accorder sept jours. Je vous donnerai certainement une réponse dans sept jours! »
 
-Wang Lin posa sa tasse et sourit. « La cultivatrice Li n'a pas à s'inquiéter. J'ai trouvé ce cadavre par accident, mais je n'ai pu le récupérer. C'est pourquoi j'ai sollicité l'aide de la cultivatrice Li pour l'identifier. »
+Wang Lin posa sa tasse et sourit. « Daoïste Li n'a pas à s'inquiéter. J'ai trouvé ce cadavre par accident, mais je n'ai pu le récupérer. C'est pourquoi j'ai sollicité l'aide de Daoïste Li pour l'identifier. »
 
 La belle femme était très rusée; maintenant qu'elle avait retrouvé son calme, elle comprit naturellement que Wang Lin ne s'était pas simplement résigné à abandonner ce jade. Cela cachait une intention plus profonde. De plus, Wang Lin avait déjà préparé ces jades: il en avait offert un à Lie Yunzi, puis un autre à elle!
 
@@ -26,7 +26,7 @@ Après avoir hésité, elle dit prudemment: « Je crains de ne pas pouvoir assis
 
 Wang Lin ne chercha pas à la retenir et laissa Li Yingzhi quitter la salle. Elle se transforma en un rayon de lumière et disparut rapidement.
 
-Wang Lin détourna le regard du point où la femme avait disparu. Il avait déjà lancé l'appât; il ne lui restait plus qu'à voir si Luotian et la Secte Shi Yin mordraient à l'hameçon.
+Wang Lin détourna le regard du point où la femme avait disparu. Il avait déjà lancé l'appât; il ne lui restait plus qu'à voir si Luo Tian et la Secte Shi Yin mordraient à l'hameçon.
 
 « Ils seront certainement tentés! » Wang Lin se retourna vers Mo Zhi avec un sourire. Il se leva, et son armure ainsi que sa cape disparurent. Vêtu d'une robe blanche, il joignit les mains en signe de respect envers Mo Zhi: « Frère Mo, de nombreuses années ont passé depuis notre dernière rencontre. Vous avez toujours l'air aussi éblouissant! »
 
@@ -93,6 +93,6 @@ En même temps, je découvris que les premiers Empereurs et membres des Quatre S
 
 Cette planète est toujours sous le contrôle de ma Secte Divine de l'Oiseau Vermillon, et les trois autres sectes n'y ont jamais objecté, car peu de gens en étaient informés. Afin de prévenir tout incident futur, cela fut devenu le secret le plus profond au sein des Quatre Sectes depuis la première génération d'Empereurs. Même l'Empereur Céleste Qing Lin l'ignorait.
 
-Après que les quatre Empereurs Divins eurent pris le contrôle du Système Stellaire du Vide Brillant, ils créèrent de nombreuses planètes similaires. En multipliant ces mondes pour égarer les esprits, presque personne ne put identifier la planète originelle. De plus, la première génération d'Empereurs utilisa diverses méthodes pour la dissimuler, garantissant qu'elle ne soit jamais véritablement découverte.
+Après que les quatre Empereurs Divins eurent pris le contrôle du Domaine Stellaire Kun Xu, ils créèrent de nombreuses planètes similaires. En multipliant ces mondes pour égarer les esprits, presque personne ne put identifier la planète originelle. De plus, la première génération d'Empereurs utilisa diverses méthodes pour la dissimuler, garantissant qu'elle ne soit jamais véritablement découverte.
 
 Puis, après des milliers d'années, un phénomène étrange se produisit dans le Royaume Céleste. À cet instant, toutes les créatures du monde furent saisies d'une brève confusion, comme coupées de toute perception, et plongées dans le chaos. »

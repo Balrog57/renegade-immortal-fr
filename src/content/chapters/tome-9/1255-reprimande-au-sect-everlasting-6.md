@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1255 - Rebuking the Everlasting Secte (6)
 slug: reprimande-au-sect-everlasting-6
 ---
-La Secte Nuage Vert de rang 7 s'était classé troisième parmi les sectes de rang 7 lors de la dernière compétition. Les sorts de cette secte étaient axés sur le changement et l'imprévisibilité. C'était une organisation vaste, comptant plus de 7 000 membres, et au fil des millénaires, elle avait engendré de nombreux cultivateurs puissants.
+La Secte Qing Yun de rang 7 s'était classé troisième parmi les sectes de rang 7 lors de la dernière compétition. Les sorts de cette secte étaient axés sur le changement et l'imprévisibilité. C'était une organisation vaste, comptant plus de 7 000 membres, et au fil des millénaires, elle avait engendré de nombreux cultivateurs puissants.
 
 Ces cultivateurs d'élite étaient souvent choisis par la Secte Éternelle pour être formés.
 
@@ -20,7 +20,7 @@ On pouvait dire que la Secte Éternelle avait investi des efforts colossaux pour
 
 Alors qu'il avançait, les murmures s'élevèrent dans la foule.
 
-Bien que Yun Shan ne paraisse pas vieux, il cultivait depuis des millénaires. Il arriva devant Wang Lin avec calme et joignit les mains: « Cher compagnon cultivateur Lu, veuillez me donner vos conseils! »
+Bien que Yun Shan ne paraisse pas vieux, il cultivait depuis des millénaires. Il arriva devant Wang Lin avec calme et joignit les mains: « Daoïste Lu, veuillez me donner vos conseils! »
 
 Une fois ses mots prononcés, ses yeux brillèrent intensément et sa culture de Briseur du Nirvana de stade avancé éclata. Un vortex se forma autour de lui, prenant sa position comme centre pour balayer l'extérieur. De loin, on pouvait vaguement distinguer un immense tourbillon en rotation lente.
 
@@ -82,7 +82,7 @@ Le visage de Yun Shan était livide lorsqu'il atterrit sur la plateforme à 10 0
 
 Il recula une fois de plus, ne s'arrêtant que lorsqu'il eut parcouru mille pieds supplémentaires. Il cracha une nouvelle bouchée de sang qui s'écrasa au sol. Le spectacle était saisissant!
 
-« Merci, Compagnon Cultivateur, pour votre retenue », dit Yun Shan après un instant de réflexion, en joignant les mains devant Wang Lin avant de partir en chancelant.
+« Merci, Daoïste, pour votre retenue », dit Yun Shan après un instant de réflexion, en joignant les mains devant Wang Lin avant de partir en chancelant.
 
 L'environnement plongea dans un silence de mort. L'expression de Wang Lin restait calme, comme si ce combat n'avait eu aucune importance. Il avait effectivement retenu ses coups, sans quoi la dernière attaque aurait pulvérisé le corps de son adversaire.
 
@@ -106,9 +106,9 @@ L'ancien qui cultivait le feu regarda Wang Lin avec une pointe de crainte. Lui q
 
 Le regard de Wang Lin était serein alors qu'il scrutait le ciel et déclara lentement: « Aujourd'hui, je veux combattre. Qui m'accompagnera? »
 
-« Du Lin, de la Vallée Zi Song de rang 7, combattra le Compagnon Cultivateur Lu! »
+« Du Lin, de la Vallée Zi Song de rang 7, combattra le Daoïste Lu! »
 
-« Je suis Yin Yue, de la Secte Ciel Yin de rang 7. Veuillez me donner vos conseils! »
+« Je suis Yin Yue, de la Secte Tian Yin de rang 7. Veuillez me donner vos conseils! »
 
 Une voix d'homme et une voix de femme s'élevèrent simultanément. L'une venait du sud et l'autre de l'est, convergeant vers l'arène. Cependant, en se voyant, elles ne purent s'empêcher de marquer un temps d'arrêt.
 

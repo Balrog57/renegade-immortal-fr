@@ -20,7 +20,7 @@ Au même instant, Tuo Sen vit distinctement la septième étoile qui émergeait 
 
 Personne ne connaissait mieux le corps de dieu ancien de Wang Lin que Tuo Sen. En voyant cela, il comprit instantanément la situation. Il réalisa que Wang Lin était en train de recevoir l'héritage qui lui appartenait originellement!!
 
-« Tu as pris mon héritage de mémoire et maintenant tu vas voler mon héritage d'Ordre Ancien!! » Les yeux de Tuo Sen étaient injectés de sang; malgré ses blessures, il chargea comme un fou alors que la dix-huitième respiration s'abattait.
+« Tu as pris mon héritage de mémoire et maintenant tu vas voler mon héritage de Dao Gu!! » Les yeux de Tuo Sen étaient injectés de sang; malgré ses blessures, il chargea comme un fou alors que la dix-huitième respiration s'abattait.
 
 Il se déplaçait avec une rapidité extrême et allait immédiatement franchir le filet qu'il avait brisé. Il était sur le point d'entrer!
 
@@ -40,7 +40,7 @@ Des grondements de tonnerre résonnèrent et trois des 20 feuilles s'effondrère
 
 Ling Dong serra les dents et chargea, faisant fi de ses blessures. Ses mains formèrent des sceaux et une mer pourpre monstrueuse jaillit, contenant d'innombrables âmes de Flammes Joss. Cette vague impétueuse se précipita vers l'avant!
 
-Zhou Jin, du clan du Loup Céleste, bondit également dans les airs et rugit en agitant la main: « Meute de loups, adorez la lune! »
+Zhou Jin, du clan Feng Tian Lang, bondit également dans les airs et rugit en agitant la main: « Meute de loups, adorez la lune! »
 
 Alors qu'il parlait, des loups illusoires apparurent autour de lui. En un éclair, des centaines de milliers de loups surgirent, envahissant le monde.
 
@@ -70,7 +70,7 @@ Seuls les cadavres des membres des trois clans de l'Ordre Ancien, réduits de mo
 
 Tuo Sen était devenu fou!
 
-Il laissa échapper un cri féroce! Wang Lin avait volé son héritage de mémoire, et maintenant il allait lui voler son héritage d'Ordre Ancien; comment ne pas sombrer dans la démence? Même au prix de blessures graves, il allait reprendre ce qu'il considérait comme le sien!
+Il laissa échapper un cri féroce! Wang Lin avait volé son héritage de mémoire, et maintenant il allait lui voler son héritage de Dao Gu; comment ne pas sombrer dans la démence? Même au prix de blessures graves, il allait reprendre ce qu'il considérait comme le sien!
 
 Maintenant que Ling Dong et Zhou Jin ne pouvaient plus l'entraver, ses deux bras s'engouffrèrent dans la brèche laissée par les Feuilles Anciennes. Il les déchira et s'apprêtait à charger à l'intérieur!
 
@@ -96,7 +96,7 @@ Une tête entière fut reconstituée, donnant l'impression que Wang Lin renaissa
 
 Le cou, la poitrine, l'abdomen, les bras et tout le haut du corps de Wang Lin apparurent. Ses os se formèrent d'abord, suivis de sa chair et de ses organes!
 
-Chaque fibre musculaire était saturée de puissance de dieu ancien. Chaque centimètre d'os exhalait une puissante aura divine ancienne!
+Chaque fibre musculaire était saturée de puissance de dieu ancien. Chaque pouce d'os exhalait une puissante aura divine ancienne!
 
 Lorsque les étoiles de dieu ancien de Wang Lin achevèrent leur troisième rotation, son corps inférieur apparut soudainement. Le nouveau corps de Dieu Ancien de Wang Lin ne mesurait pas des milliers de pieds, mais... dix mille pieds!!
 
@@ -110,7 +110,7 @@ Les yeux de Wang Lin s'ouvrirent brusquement. Son corps resta assis sur le trôn
 
 Les sept étoiles tournèrent lentement avant d'accélérer brutalement tandis que la puissance du dieu ancien remplissait son être. Wang Lin sentit qu'il pourrait pulvériser une planète d'un seul coup de poing!
 
-De plus, à cet instant précis, le coup le plus puissant de la Tortue Noire, enseigné sur la Planète du Grand Empereur par la deuxième génération de l'Oiseau Vermillon, surgit dans son esprit. La compréhension de la maîtrise de la force inonda sa conscience!
+De plus, à cet instant précis, le coup le plus puissant de la Tortue Noire, enseigné sur la Planète du Grand Empereur par la deuxième génération de Suzaku, surgit dans son esprit. La compréhension de la maîtrise de la force inonda sa conscience!
 
 Des scènes de pouvoirs divins issus de l'héritage jaillirent du trône!! Ces sorts étaient tels des fragments de Sens Divin, et ils devinrent ses propres souvenirs!
 
@@ -120,7 +120,7 @@ Cette connexion était extrêmement étrange. Même Wang Lin ne pouvait la compr
 
 C'est grâce à ce lien que le trône sembla se transformer en une plateforme. Tandis qu'il y était assis, la cartographie complète des trois couches de l'ancienne tombe apparut dans son esprit!
 
-Son Sens Divin fut amplifié des dizaines de milliers de fois par le trône via une méthode mystérieuse. Il pouvait ressentir une volonté à l'intérieur de cette tombe! C'étaient les vestiges de la volonté de l'Ordre Ancien Ye Mo!
+Son Sens Divin fut amplifié des dizaines de milliers de fois par le trône via une méthode mystérieuse. Il pouvait ressentir une volonté à l'intérieur de cette tombe! C'étaient les vestiges de la volonté de Dao Gu Ye Mo!
 
 Le Sens Divin de Wang Lin fut magnifié, puis fusionna avec cette volonté. Son Sens Divin se projeta soudainement hors du palais.
 
@@ -134,4 +134,4 @@ Le corps de la femme s'immobilisa soudainement tandis que les turbulences spatia
 
 Ce Sens Divin était d'une puissance telle qu'elle en eut le vertige. Elle resta stupéfaite un long moment avant de reprendre ses esprits. La terreur envahit son regard!
 
-« C'est... De quel Sens Divin s'agit-il?! Se pourrait-il que l'Ordre Ancien Ye Mo n'ait pas été tué par le Souverain Céleste?! »
+« C'est... De quel Sens Divin s'agit-il?! Se pourrait-il que Dao Gu Ye Mo n'ait pas été tué par le Souverain Céleste?! »

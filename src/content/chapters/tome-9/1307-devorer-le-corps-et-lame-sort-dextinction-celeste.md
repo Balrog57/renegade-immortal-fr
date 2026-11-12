@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1307 - Devour the Body and Soul, Heaven Extinction Spell!"
 slug: devorer-le-corps-et-lame-sort-dextinction-celeste
 ---
-L'infinie divine rétribution commença!
+L'infinie Tribulation Céleste commença!
 
 Les Neuf Palais se transformèrent en neuf météores et formèrent un motif complexe. À l'intérieur des Huit Diagrammes, une lueur jaillit tandis qu'ils pivotaient! Au cœur de ces Huit Diagrammes résidaient les Sept Étoiles, libérant une aura meurtrière effroyable!
 
@@ -16,13 +16,13 @@ Au cœur des Cinq Éléments rugissaient les Quatre Divinités. À chaque rotati
 
 Profondément enfouie dans les Quatre Divinités, la lumière monstrueuse des Trois Talents illuminait le vide. Et au centre des Trois Talents, les Deux Rites apparurent!
 
-Les Deux Rites étaient le Yin et le Yang, formant un diagramme qui tournait lentement. Cela entraîna la rotation de toutes les couches externes. Elles tournèrent de plus en plus vite, jusqu'à devenir un flou indistinct. Ce qui était étrange, c'est que les huit couches de la divine rétribution tournaient à des vitesses différentes. Des Deux Rites aux Neuf Palais, les huit types de rétributions formèrent huit vortex rotatifs dont les vitesses divergeaient, avant de fusionner ensemble!
+Les Deux Rites étaient le Yin et le Yang, formant un diagramme qui tournait lentement. Cela entraîna la rotation de toutes les couches externes. Elles tournèrent de plus en plus vite, jusqu'à devenir un flou indistinct. Ce qui était étrange, c'est que les huit couches de la Tribulation Céleste tournaient à des vitesses différentes. Des Deux Rites aux Neuf Palais, les huit types de Tribulations Célestes formèrent huit vortex rotatifs dont les vitesses divergeaient, avant de fusionner ensemble!
 
 Alors que des grondements tonitruants résonnaient au sein du diagramme Yin et Yang en rotation, une explosion de lumière sans couleur éclata. Mais elle portait en elle la sensation du Royaume Ji, l'ultime de toutes choses entre ciel et terre, l'ultime de tous les êtres vivants!
 
 Le Royaume Ji!
 
-Simultanément, le corps de Wang Lin se mit à pivoter. Toutes les divines rétributions dans son corps reflétaient celles de l'extérieur et tournaient en harmonie. Au centre du diagramme Yin et Yang, le Royaume Ji naquit!
+Simultanément, le corps de Wang Lin se mit à pivoter. Toutes les Tribulations Célestes dans son corps reflétaient celles de l'extérieur et tournaient en harmonie. Au centre du diagramme Yin et Yang, le Royaume Ji naquit!
 
 À l'instant même où le Royaume Ji vit le jour, le corps de Wang Lin cessa de s'effondrer et son âme originelle cessa de se dissiper. Tout s'immobilisa et Wang Lin ouvrit les yeux!
 
@@ -34,21 +34,21 @@ Un rouge sang!
 
 La lumière rouge dans ses yeux devint encore plus intense, et une intention meurtrière monstrueuse se propagea. Le Royaume Ji descendit!
 
-Par un immense sacrifice et avec la détermination d'un homme prêt à mourir, il affronta l'infinie divine rétribution. Après que son corps eut absorbé toutes les rétributions, le Royaume Ji renaquit. Wang Lin avait enfin retrouvé le Royaume Ji qu'il avait perdu il y a si longtemps!
+Par un immense sacrifice et avec la détermination d'un homme prêt à mourir, il affronta l'infinie Tribulation Céleste. Après que son corps eut absorbé toutes les Tribulations Célestes, le Royaume Ji renaquit. Wang Lin avait enfin retrouvé le Royaume Ji qu'il avait perdu il y a si longtemps!
 
 À cet instant précis, le Royaume Ji formé par les Neuf Palais et les Deux Rites dans le vide se transforma en éclairs rouges et fonça droit sur Wang Lin.
 
-Au moment où l'attaque arriva, Wang Lin laissa échapper un rire; des éclairs rouges jaillirent de ses yeux pour venir se poser dans sa main droite. Puis, il saisit le Royaume Ji issu de la divine rétribution.
+Au moment où l'attaque arriva, Wang Lin laissa échapper un rire; des éclairs rouges jaillirent de ses yeux pour venir se poser dans sa main droite. Puis, il saisit le Royaume Ji issu de la Tribulation Céleste.
 
-Dès que l'aura destructrice pénétra son corps, il s'appuya contre la Formation du Royaume Scellé. Il utilisa son corps, extrêmement familier avec le Royaume Ji, comme un médium pour transférer la puissance de la rétribution divine sur la Formation du Royaume Scellé.
+Dès que l'aura destructrice pénétra son corps, il s'appuya contre la Formation du Royaume Scellé. Il utilisa son corps, extrêmement familier avec le Royaume Ji, comme un médium pour transférer la puissance de la Tribulation Céleste sur la Formation du Royaume Scellé.
 
 La formation gronda et les esprits d'artefact apparurent pour riposter. À cet instant, une multitude de fils verts surgit et les enchevêtra, empêchant les esprits d'artefact de se manifester!
 
-Le Royaume Ji provenant de la divine rétribution traversa le corps de Wang Lin et s'engouffra dans la formation avec frénésie. Alors que le corps de Wang Lin était repoussé, la formation agissait comme un filet que Wang Lin était en train d'étirer!
+Le Royaume Ji provenant de la Tribulation Céleste traversa le corps de Wang Lin et s'engouffra dans la formation avec frénésie. Alors que le corps de Wang Lin était repoussé, la formation agissait comme un filet que Wang Lin était en train d'étirer!
 
 Les yeux de Wang Lin libérèrent des éclairs rouges, puis sa main droite frappa la Formation du Royaume Scellé. Le Royaume Ji né à l'intérieur de son corps s'échappa et fonça sur la formation.
 
-Cette attaque contenait deux Royaumes de Ji. Celui de la divine rétribution et celui de Wang Lin se combinèrent pour créer un impact inimaginable.
+Cette attaque contenait deux Royaumes de Ji. Celui de la Tribulation Céleste et celui de Wang Lin se combinèrent pour créer un impact inimaginable.
 
 À ce moment-là, la quantité de fils verts à l'intérieur de la Formation du Royaume Scellé augmenta. Ils se propagèrent comme des ondulations, causant une destruction massive de la formation.
 
@@ -74,7 +74,7 @@ L'expression de Wang Lin fut féroce alors qu'il rugissait face au rayon de la h
 
 Au moment où l'énergie de la hache se rapprocha, elle trembla comme si elle luttait. Pourtant, en fin de compte, elle passa en trombe et pénétra la poitrine de Wang Lin!
 
-Le sang jaillit partout et une entaille béante apparut sur sa poitrine. Son visage devint livide et il cracha du sang. Il était déjà gravement blessé par la divine rétribution, et l'impact de la hache aggravait son état. Son âme originelle s'était effondrée et même son corps ne parvenait pas à se régénérer à cause de l'aura d'Ancien Dieu contenue dans la hache!
+Le sang jaillit partout et une entaille béante apparut sur sa poitrine. Son visage devint livide et il cracha du sang. Il était déjà gravement blessé par la Tribulation Céleste, et l'impact de la hache aggravait son état. Son âme originelle s'était effondrée et même son corps ne parvenait pas à se régénérer à cause de l'aura d'Ancien Dieu contenue dans la hache!
 
 Le sang continuait de couler et tous ses organes commençaient à se briser. Sa vision se brouillait, mais il fixa la Formation du Royaume Scellé tout en titubant en arrière.
 

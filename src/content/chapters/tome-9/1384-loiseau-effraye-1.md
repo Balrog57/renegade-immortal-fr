@@ -66,4 +66,4 @@ Cependant, avant qu'il n'ait pu achever sa phrase, un reniflement glacial descen
 
 « Bruyant! » Ce mot, d'une froideur absolue, étouffa instantanément tous les autres sons. Au même moment, une silhouette s'avança parmi le groupe des mille cultivateurs!
 
-Dès l'apparition de cet individu, sa culture s'activa et une odeur nauséabonde se dégagea de son corps. Cette puanteur était si puissante qu'en se propageant, elle fit reculer précipitamment le Patriarche du Scorpion Noir qui s'écria: « Tan Lang! »
+Dès l'apparition de cet individu, sa culture s'activa et une odeur nauséabonde se dégagea de son corps. Cette puanteur était si puissante qu'en se propageant, elle fit reculer précipitamment le Patriarche du Clan An Xie qui s'écria: « Tan Lang! »

@@ -32,13 +32,13 @@ Du point de vue de Dahong, parmi tous ses sorts, cet art invincible était son v
 
 À l'ordre de Wang Lin, il forma rapidement un sceau et frappa la marque entre ses sourcils. Dans un éclair, une multitude d'objets échangeables contre des cristaux de tonnerre jaillirent jusqu'à former une petite montagne.
 
-« Aîné, voici tout ce que le junior a rassemblé au fil des années. Bien qu'il n'y ait rien d'extrêmement précieux, la quantité est importante. Le junior estime que cela devrait valoir environ 50 000 cristaux de tonnerre. » Après avoir parlé, il observa attentivement l'expression de Wang Lin. En voyant celui-ci froncer les sourcils, il fut saisi d'effroi, contracta les mâchoires et reprit précipitamment:
+« Senior, voici tout ce que le junior a rassemblé au fil des années. Bien qu'il n'y ait rien d'extrêmement précieux, la quantité est importante. Le junior estime que cela devrait valoir environ 50 000 cristaux de tonnerre. » Après avoir parlé, il observa attentivement l'expression de Wang Lin. En voyant celui-ci froncer les sourcils, il fut saisi d'effroi, contracta les mâchoires et reprit précipitamment:
 
-« Aîné, le junior possède également quelques trésors à offrir à l'Aîné! » Tout en parlant, sa main droite frappa de nouveau sa marque et trois autres objets volèrent hors de lui.
+« Senior, le junior possède également quelques trésors à offrir à Senior! » Tout en parlant, sa main droite frappa de nouveau sa marque et trois autres objets volèrent hors de lui.
 
 Le premier était une branche aussi épaisse qu'un bras, parcourue d'éclairs tonitruants. Le deuxième était une pilule émettant une lueur verte. Le troisième était un miroir antique.
 
-« Ces trois objets sont des choses que le junior a spécialement préparées pour l'Aîné. Ces trois seuls peuvent être échangés contre 10 000 cristaux de tonnerre. »
+« Ces trois objets sont des choses que le junior a spécialement préparées pour Senior. Ces trois seuls peuvent être échangés contre 10 000 cristaux de tonnerre. »
 
 Wang Lin regarda Dahong avec un sourire qui n'en était pas un. Son regard fit frissonner Dahong jusqu'à la moelle et, juste au moment où celui-ci allait parler, Wang Lin agita ses manches, faisant disparaître tout le butin destiné aux cristaux de tonnerre.
 
@@ -66,19 +66,19 @@ Wang Lin esquissa un sourire énigmatique tout en alternant son regard entre Xu 
 
 Sur ces mots, Wang Lin envoya un message mental à Xu Liguo lui signifiant son ordre. En l'entendant, le corps de ce dernier se mit à trembler. Il tremblait d'excitation et, une fois les ordres de Wang Lin terminés, il leva les yeux avec enthousiasme en riant:
 
-« Personne n'est meilleur que votre Grand-pè... Erreur, Petit Xu! Maître, soyez tranquille, plusieurs milliards de cristaux de tonnerre, laissez cela à moi! »
+« Personne n'est meilleur que votre Grand-pè... Erreur, Petit Xu! Maître, soyez tranquille, des dizaines de milliards de cristaux de tonnerre, laissez cela à moi! »
 
-Le mauvais pressentiment de Dahong s'intensifia. Il fit rapidement quelques pas en avant, fixa Wang Lin avec respect et dit: « Aîné, le junior n'a pas fini de parler. Le junior possède encore un trésor pouvant être échangé contre 10 000 cristaux de tonnerre! Seul un être tel que l'Aîné peut posséder une telle merveille! » Après avoir parlé, il frappa à nouveau sa marque et, dans un éclair, une épée volante jaillit, dégageant une aura glaciale.
+Le mauvais pressentiment de Dahong s'intensifia. Il fit rapidement quelques pas en avant, fixa Wang Lin avec respect et dit: « Senior, le junior n'a pas fini de parler. Le junior possède encore un trésor pouvant être échangé contre 10 000 cristaux de tonnerre! Seul un être tel que Senior peut posséder une telle merveille! » Après avoir parlé, il frappa à nouveau sa marque et, dans un éclair, une épée volante jaillit, dégageant une aura glaciale.
 
 Wang Lin esquissa un sourire, hocha légèrement la tête et rangea l'épée volante.
 
 Xu Liguo observa les alentours, puis fixa Dahong. Il n'avait pas prêté attention à la foule auparavant, mais il sentit immédiatement que quelque chose clochait.
 
-« Cet individu dégage une légère odeur d'impudence... Cependant, il est loin de faire le poids face à votre Grand-père Xu. Quand le Grand-père Xu flattait ce démon, vous en étiez encore à téter! » Xu Liguo afficha un sourire bienveillant en regardant Dahong. « Quel est ton nom, compagnon cultivateur? »
+« Cet individu dégage une légère odeur d'impudence... Cependant, il est loin de faire le poids face à votre Grand-père Xu. Quand le Grand-père Xu flattait ce démon, vous en étiez encore à téter! » Xu Liguo afficha un sourire bienveillant en regardant Dahong. « Quel est ton nom, Daoïste? »
 
-Dahong répondit avec le même sourire et joignit les mains: « Je suis Zhong Dahong. Zhong comme le grand Zhong, et Rouge comme le grand rouge! »
+Dahong répondit avec le même sourire et joignit les mains: « Je suis Zhong Dahong. Zhong comme le grand Zhong, et Hong comme le grand Hong! »
 
-Leurs regards se percutèrent à cet instant. Le sourire de Xu Liguo resta imperturbable alors qu'il détournait les yeux. Juste avant qu'il ne puisse parler, Dahong prit les devants avec un air flatteur: « Aîné, la Secte Tian Lei compte de nombreux membres. Permettez-moi d'aller rassembler leurs biens échangeables contre des cristaux de tonnerre pour vous les offrir. »
+Leurs regards se percutèrent à cet instant. Le sourire de Xu Liguo resta imperturbable alors qu'il détournait les yeux. Juste avant qu'il ne puisse parler, Dahong prit les devants avec un air flatteur: « Senior, la Secte Tian Lei compte de nombreux membres. Permettez-moi d'aller rassembler leurs biens échangeables contre des cristaux de tonnerre pour vous les offrir. »
 
 Après avoir dit cela, il se retourna et rugit vers les membres de la secte qui restaient stupéfaits par la scène.
 
@@ -90,7 +90,7 @@ Les yeux de Wang Lin s'illuminèrent et il fit un geste de la main. La pilule at
 
 « Je te donne cette pilule. Désormais, tu m'aideras à collecter des objets pour les échanger contre des cristaux de tonnerre! » dit doucement Wang Lin. Il n'avait pas l'intention d'échanger ses propres pilules, car cela renforcerait le Clan Shan Lei. Au lieu de cela, il allait utiliser Dahong pour soutirer les trésors des membres du clan afin de les convertir en cristaux!
 
-Dahong prit une profonde inspiration, serra la pilule et déclara immédiatement: « Aîné, soyez assuré que le junior fera de son mieux! »
+Dahong prit une profonde inspiration, serra la pilule et déclara immédiatement: « Senior, soyez assuré que le junior fera de son mieux! »
 
 Xu Liguo fixa Dahong avec hostilité. Bien qu'il ne se soucie guère de la pilule, ce Dahong lui était insupportable à regarder, et son regard devint venimeux.
 

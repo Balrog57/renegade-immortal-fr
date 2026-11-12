@@ -34,7 +34,7 @@ Un autre homme partageait ce même sentiment. Assis sur le mur d'une cité et en
 
 Contrastant avec l'effervescence qui entourait Wang Lin, ce vieil homme paraissait très morne, comme indifférent à tout. Derrière lui, Ling Er l'accompagnait en silence.
 
-Outre Ta Shan et Maître Yi Chen, une autre personne était habitée par des sentiments contradictoires: Xu Liguo. Enveloppé de flammes, il continuait de maudire sans jamais se lasser.
+Outre Ta Shan et Chen Daozi, une autre personne était habitée par des sentiments contradictoires: Xu Liguo. Enveloppé de flammes, il continuait de maudire sans jamais se lasser.
 
 « Maudit Wang Lin! Pourquoi n'as-tu pas encore laissé ton Grand-père Xu sortir?! Attends un peu, attends seulement! »
 
@@ -118,4 +118,4 @@ Si Wang Lin avait été présent, il aurait instantanément reconnu le vieil hom
 
 À ce moment-là, un junior de la Secte Divine de l'Oiseau Vermillon entra pour apporter des fruits et du thé. Après les avoir déposés, il se retira aussitôt.
 
-La belle femme saisit sa tasse et souffla sur le thé. Elle leva les yeux vers le vieillard et sourit: « Je présume que vous êtes Lie Yunzi de Luotian. Cette jeune fille est Li Yingzhi de la Secte Shi Yin. Salutations, Aîné. »
+La belle femme saisit sa tasse et souffla sur le thé. Elle leva les yeux vers le vieillard et sourit: « Je présume que vous êtes Lie Yunzi de Luotian. Cette jeune fille est Li Yingzhi de la Secte Shi Yin. Salutations, Senior. »

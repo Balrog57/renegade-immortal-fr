@@ -1,28 +1,28 @@
 ---
 n: 1528
-title: "Les Cultivatrices de la Rivière Invoquée!"
+title: "Les Cultivatrices de Zhao He!"
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1528 - Female Cultivators from the Summoned River!"
 slug: les-cultivatrices-du-fleuve-invoque
 ---
-Les cultivateurs de la Rivière Invoquée se tenaient sur des éclairs. Certains en transportaient un seul, d'autres plus de dix, et certains même des centaines de cultivateurs. Ces guerriers de la Rivière Invoquée, qui n'avaient jamais été vus auparavant dans les trois autres systèmes stellaires, faisaient leur apparition de la manière la plus stupéfiante qui soit.
+Les cultivateurs de Zhao He se tenaient sur des éclairs. Certains en transportaient un seul, d'autres plus de dix, et certains même des centaines de cultivateurs. Ces guerriers de Zhao He, qui n'avaient jamais été vus auparavant dans les trois autres systèmes stellaires, faisaient leur apparition de la manière la plus stupéfiante qui soit.
 
 Les éclairs projetaient des grondements tonitruants. Ils étaient si rapides qu'il était impossible de les suivre à l'œil nu! Leurs vêtements étaient singuliers; ils ressemblaient à des uniformes militaires, et bien qu'ils ne soient pas identiques, on aurait dit qu'ils provenaient de nations différentes.
 
 Une chose était particulièrement surprenante: la majorité d'entre eux étaient des femmes!
 
-C'était un phénomène extrêmement rare dans Luotian, la Mer Yun et l'Alliance! Parmi les dizaines de milliers de cultivateurs de la Rivière Invoquée, seuls quelques milliers étaient des hommes!
+C'était un phénomène extrêmement rare dans Luotian, la Mer Yun et l'Alliance! Parmi les dizaines de milliers de cultivateurs de Zhao He, seuls quelques milliers étaient des hommes!
 
-Les cultivateurs de la Rivière Invoquée affichaient tous une expression grave; ils étaient déterminés et empreints d'une intention meurtrière! Bien qu'elles fussent des femmes, leur soif de sang n'avait rien à envier aux hommes en cet instant!
+Les cultivateurs de Zhao He affichaient tous une expression grave; ils étaient déterminés et empreints d'une intention meurtrière! Bien qu'elles fussent des femmes, leur soif de sang n'avait rien à envier aux hommes en cet instant!
 
 Une cultivatrice à l'allure de lettrée, vêtue d'une longue tunique, se tenait sur un éclair en forme de dragon. Ses cheveux flottaient au vent, révélant un visage d'une grande beauté. À ses côtés, une superbe femme d'âge mûr suivait silencieusement le mouvement sur un autre éclair!
 
 Du côté de Luotian, une multitude de cultivateurs surgit à travers les ondulations, accompagnée des planètes de culture. Ils venaient de diverses familles, mais ils étaient unis par un seul but! Le Maître Lu Fu, en tête, chargeait avec une expression sombre. D'un revers de manche, il fit jaillir son épée brisée!
 
-À cet instant, ils n'étaient plus des cultivateurs de la Rivière Invoquée ou de Luotian; ils étaient tous les membres des cultivateurs du Royaume Intérieur!
+À cet instant, ils n'étaient plus des cultivateurs de Zhao He ou de Luotian; ils étaient tous les membres des cultivateurs du Royaume Intérieur!
 
-L'arrivée des renforts de Luotian et de la Rivière Invoquée galvanisa les quelques milliers de cultivateurs restants de la Mer Yun. Ils n'avaient déjà plus peur de la mort, et l'arrivée de ces alliés les rendit encore plus ardents!
+L'arrivée des renforts de Luotian et de Zhao He galvanisa les quelques milliers de cultivateurs restants de la Mer Yun. Ils n'avaient déjà plus peur de la mort, et l'arrivée de ces alliés les rendit encore plus ardents!
 
 Quant aux cultivateurs du Royaume Extérieur, bien qu'ils fussent plus nombreux, leurs cœurs étaient ébranlés. Tandis que l'océan empoisonné et les bêtes moustiques attaquaient, des cris de détresse résonnaient et ils se dispersèrent rapidement.
 
@@ -30,9 +30,9 @@ En conséquence, ce fut une véritable déroute! Le rugissement de Wang Lin fut 
 
 « L'ancêtre du Clan Huo Que est mort! Le cultivateur de la troisième étape Nanzhao Shangren est mort! Le Grand Maître Yun Luo du Conseil Souverain est mort! Le prochain, c'est toi! » Les yeux de Wang Lin étaient injectés de sang alors qu'il avançait en brandissant sa hache. Des grondements tonitruants faisaient vibrer l'air et les cadavres jonchaient le vide!
 
-Le Maître Nan Yunzi combattait la concubine impériale céleste quand, à cet instant, la jeune femme de la Rivière Invoquée, vêtue comme un homme, s'approcha, entourée d'éclairs crépitants.
+Le Maître Nan Yunzi combattait la concubine impériale céleste quand, à cet instant, la jeune femme de Zhao He, vêtue comme un homme, s'approcha, entourée d'éclairs crépitants.
 
-« Cher cultivateur Nan Yunzi, laissez cette personne à Rêve Pourpre », dit doucement la lettrée. Elle agita sa main semblable au jade et s'élança dans le champ de bataille.
+« Daoïste Nan Yunzi, laissez cette personne à Zi Meng », dit doucement la lettrée. Elle agita sa main semblable au jade et s'élança dans le champ de bataille.
 
 Le Maître Nan Yunzi sourit et se retira, détournant son regard de la concubine impériale céleste. Il emmena Ling Dong et Zhou Jin avec lui pour commencer à réparer la Formation de Scellement du Royaume.
 
@@ -40,11 +40,11 @@ Le Maître Nan Yunzi sourit et se retira, détournant son regard de la concubine
 
 La femme au visage de savante resta calme et déclara d'une voix douce: « Ma sœur sera bientôt là, patientez encore un instant. »
 
-Du côté du Maître Hong Shan, la belle femme d'âge mûr de la Rivière Invoquée et le Maître Lu Fu rejoignirent la bataille, allégeant quelque peu le fardeau du Maître Hong Shan. Cependant, le garçon au regard froid devint sombre.
+Du côté du Maître Hong Shan, la belle femme d'âge mûr de Zhao He et le Maître Lu Fu rejoignirent la bataille, allégeant quelque peu le fardeau du Maître Hong Shan. Cependant, Han Yi devint sombre.
 
-L'assaut combiné de Luotian et de la Rivière Invoquée infligea des pertes encore plus lourdes à l'armée du Royaume Extérieur déjà en déroute. Les cris déchirants de l'agonie semblaient résonner pour l'éternité!
+L'assaut combiné de Luotian et de Zhao He infligea des pertes encore plus lourdes à l'armée du Royaume Extérieur déjà en déroute. Les cris déchirants de l'agonie semblaient résonner pour l'éternité!
 
-Bien que la plupart des cultivateurs de la Rivière Invoquée fussent des femmes, leurs attaques étaient d'une férocité extrême. Spécialisées dans la vitesse, elles fusaient à travers le champ de bataille sur leurs éclairs, lançant leurs assauts les plus dévastateurs!
+Bien que la plupart des cultivateurs de Zhao He fussent des femmes, leurs attaques étaient d'une férocité extrême. Spécialisées dans la vitesse, elles fusaient à travers le champ de bataille sur leurs éclairs, lançant leurs assauts les plus dévastateurs!
 
 À Luotian, des grondements tonitruants résonnaient au sein de la formation composée de plus de 900 planètes. Des fantômes de planètes surgissaient et percutaient les cultivateurs du Royaume Extérieur!
 
@@ -58,13 +58,13 @@ La mort de l'ancêtre du Clan Huo Que avait ébranlé leur foi! Le cri déchiran
 
 « Cette guerre... nous l'avons perdue... » Les cultivateurs du Royaume Extérieur s'enfuirent dans la panique, fuyant frénétiquement. Ils voulaient désespérément quitter le Royaume Intérieur. Pour eux, les défenseurs étaient des déments qui ne se souciaient ni de leur vie ni de leur mort, cherchant seulement à en emporter un de plus avec eux!
 
-L'océan de poison rugissait, les bêtes moustiques sifflaient, et les cultivateurs de la Mer Yun attaquaient sans égard pour leur propre vie. Les forces de Luotian chargeaient tandis que celles de la Rivière Invoquée fondaient sur l'ennemi tels des éclairs. Le tout formait un immense filet de boucherie!
+L'océan de poison rugissait, les bêtes moustiques sifflaient, et les cultivateurs de la Mer Yun attaquaient sans égard pour leur propre vie. Les forces de Luotian chargeaient tandis que celles de Zhao He fondaient sur l'ennemi tels des éclairs. Le tout formait un immense filet de boucherie!
 
 Wang Lin leva la Hache Brise-Ciel et chargea. À chaque coup de sa hache, des vies s'éteignaient. Ses vêtements blancs étaient désormais trempés de sang. Puis, Wang Lin se mua en un nuage de brume et fonça dans la mêlée. Cette brume, large de plus de 100 000 pieds, enveloppa une multitude de cultivateurs dont la force vitale fut instantanément aspirée, les transformant en eau sanglante.
 
 C'était la contre-attaque!
 
-Tout comme les cultivateurs de la Mer Yun avaient été massacrés, les forces du Royaume Intérieur lançaient leur ultime offensive dans cette bataille tragique! Sous le choc des troupes de Luotian et de la Rivière Invoquée, le Royaume Extérieur subissait des pertes toujours plus lourdes. Les bêtes moustiques et l'océan de poison agissaient comme une tempête dévorant tout ce qu'elle touchait. Sur les quelque 100 000 cultivateurs du Royaume Extérieur venus, moins de 80 000 subsistaient encore!
+Tout comme les cultivateurs de la Mer Yun avaient été massacrés, les forces du Royaume Intérieur lançaient leur ultime offensive dans cette bataille tragique! Sous le choc des troupes de Luotian et de Zhao He, le Royaume Extérieur subissait des pertes toujours plus lourdes. Les bêtes moustiques et l'océan de poison agissaient comme une tempête dévorant tout ce qu'elle touchait. Sur les quelque 100 000 cultivateurs du Royaume Extérieur venus, moins de 80 000 subsistaient encore!
 
 C'est alors que la troisième armée du Système Stellaire Antique arriva. Elle apparut aux abords de la Formation de Scellement du Royaume et s'apprêtait à forcer le passage! Deux cultivateurs de la troisième étape, au stade intermédiaire du Vide du Nirvana, menaient la marche. Ils s'apprêtaient à faire entrer près de 50 000 hommes. Si ces renforts arrivaient, les troupes en déroute retrouveraient la volonté de lutter!
 

@@ -6,21 +6,21 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1209 - Would You
 slug: le-feriez-vous
 ---
-En tant que l'un des sept grands clans du Système Stellaire Antique, le Clan Dévorant la Lune contrôlait un vaste champ stellaire. Leur ancêtre avait autrefois accompli de grands mérites, conférant au Clan Dévorant la Lune un statut extrêmement élevé. De plus, trois d'entre eux étaient devenus des Anciens du Conseil Souverain, ce qui leur avait permis de connaître d'innombrables années de gloire.
+En tant que l'un des sept grands clans du Système Stellaire Antique, le Clan Yue Shi contrôlait un vaste champ stellaire. Leur ancêtre avait autrefois accompli de grands mérites, conférant au Clan Yue Shi un statut extrêmement élevé. De plus, trois d'entre eux étaient devenus des Anciens du Conseil Souverain, ce qui leur avait permis de connaître d'innombrables années de gloire.
 
-Dans la partie nord du territoire du Clan Dévorant la Lune, il existait une terre interdite où nul n'était autorisé à pénétrer. Cette zone était protégée par de lourdes mesures de sécurité, et seuls certains membres du clan pouvaient y accéder pour cultiver.
+Dans la partie nord du territoire du Clan Yue Shi, il existait une terre interdite où nul n'était autorisé à pénétrer. Cette zone était protégée par de lourdes mesures de sécurité, et seuls certains membres du clan pouvaient y accéder pour cultiver.
 
 Neuf statues gigantesques trônaient dans ce lieu interdit. Il s'agissait de statues de neuf anciens dieux! Chaque statue était surmontée d'un vieil homme assis en méditation; ils tenaient des sceaux étranges et semblaient absorber de force le pouvoir des anciens dieux contenu dans les statues.
 
-Depuis l'Antiquité, après avoir trahi les anciens dieux, le Clan Dévorant la Lune avait toujours cherché un moyen de s'approprier leur puissance et prendre leur place. Ils espéraient un jour laver l'humiliation du passé et faire des anciens dieux les esclaves du Clan Dévorant la Lune!
+Depuis l'Antiquité, après avoir trahi les anciens dieux, le Clan Yue Shi avait toujours cherché un moyen de s'approprier leur puissance et prendre leur place. Ils espéraient un jour laver l'humiliation du passé et faire des anciens dieux les esclaves du Clan Yue Shi!
 
-Afin d'y parvenir, l'ensemble du Clan Dévorant la Lune avait déployé tous ses efforts et mené des recherches pendant d'innombrables années avant de finalement trouver une méthode pour dévorer les anciens dieux!
+Afin d'y parvenir, l'ensemble du Clan Yue Shi avait déployé tous ses efforts et mené des recherches pendant d'innombrables années avant de finalement trouver une méthode pour dévorer les anciens dieux!
 
 Cependant, cette méthode comportait de graves failles et de grands dangers. Jusqu'à ce jour, personne n'avait réussi.
 
-Les neuf anciens assis sur les statues des anciens dieux étaient les membres les plus talentueux du Clan Dévorant la Lune et possédaient une puissance terrifiante. C'était la seule raison pour laquelle on leur permettait de tenter de cultiver en ce lieu.
+Les neuf anciens assis sur les statues des anciens dieux étaient les membres les plus talentueux du Clan Yue Shi et possédaient une puissance terrifiante. C'était la seule raison pour laquelle on leur permettait de tenter de cultiver en ce lieu.
 
-Tout se déroulait dans le calme. Cet endroit était d'un calme absolu, semblable au royaume des morts. Pourtant, à cet instant, le jeune homme du Clan Dévorant la Lune invoqua l'ombre de l'ancien dieu dans le Royaume aux Sept Couleurs, et Wang Lin, en tant qu'ancien dieu royal, donna l'ordre d'annuler l'ancien pacte!
+Tout se déroulait dans le calme. Cet endroit était d'un calme absolu, semblable au royaume des morts. Pourtant, à cet instant, le jeune homme du Clan Yue Shi invoqua l'ombre de l'ancien dieu dans le Royaume aux Sept Couleurs, et Wang Lin, en tant qu'ancien dieu royal, donna l'ordre d'annuler l'ancien pacte!
 
 Des grondements tonitruants émanèrent des neuf statues et des fissures les parcoururent. Ce changement soudain tirailla les neuf cultivateurs hors de leur méditation. Ils étaient choqués, terrifiés et plongés dans la confusion; ils n'avaient aucune idée de ce qui se passait!
 
@@ -32,15 +32,15 @@ Voyant que les sept statues restantes s'effondraient également, leurs expressio
 
 « Faites tout ce qui est nécessaire pour empêcher ces statues esclaves de s'effondrer! » Une voix tonitruante balaya l'espace, portée par un Sens Divin inimaginable. Un vieil homme dégageant une aura ancestrale et vêtu d'une robe lunaire arriva de loin. D'un revers de main, il couvrit le ciel de clair de lune.
 
-Le Clan Dévorant la Lune faisait preuve d'une arrogance extrême en osant qualifier les anciens dieux d'esclaves. Bien que les anciens dieux ne fussent pas réellement leurs esclaves, le désir du clan était flagrant!
+Le Clan Yue Shi faisait preuve d'une arrogance extrême en osant qualifier les anciens dieux d'esclaves. Bien que les anciens dieux ne fussent pas réellement leurs esclaves, le désir du clan était flagrant!
 
 Plusieurs auras puissantes se précipitèrent depuis lointain.
 
-« Que s'est-il passé exactement?! » C'était la question terrifiante qui traversait le cœur de chaque membre du Clan Dévorant la Lune arrivé sur les lieux.
+« Que s'est-il passé exactement?! » C'était la question terrifiante qui traversait le cœur de chaque membre du Clan Yue Shi arrivé sur les lieux.
 
 Le vieil homme à la robe lunaire leva les yeux vers le vide et dit, les dents serrées: « Un ancien dieu royal a annulé l'ancien pacte! » Cependant, enfouie au plus profond de son regard, une peur et une panique grandissantes commençaient à poindre...
 
-Wang Lin ignorait ce qui se passait dans le Système Stellaire Antique, au-delà du Royaume Scellé. Les lamentations s'atténuèrent progressivement jusqu'à disparaître totalement. Le corps du jeune homme du Clan Dévorant la Lune se changea en sang qui s'écoula du squelette de Zhan Xingye jusqu'au sol.
+Wang Lin ignorait ce qui se passait dans le Système Stellaire Antique, au-delà du Royaume Scellé. Les lamentations s'atténuèrent progressivement jusqu'à disparaître totalement. Le corps du jeune homme du Clan Yue Shi se changea en sang qui s'écoula du squelette de Zhan Xingye jusqu'au sol.
 
 Les os du jeune homme étaient complètement brisés et éparpillés. Il n'en restait que deux fragments, maintenus par les clous aux sept couleurs.
 

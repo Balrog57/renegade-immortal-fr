@@ -26,7 +26,7 @@ L'arrivée de Wang Lin attira immédiatement l'attention de l'assemblée. Tous l
 
 Li Qianmei remarqua le regard de Wang Lin et eut un léger rire. Ses yeux brillaient comme des étoiles.
 
-Peu après l'entrée de Wang Lin sur la place, un Ancien vêtu de rouge entra, accompagné de quatre hommes d'âge moyen. En voyant Wang Lin, il laissa échapper un rire sonore: « C'est un honneur pour mon humble Secte Bao Yu que le Compagnon Cultivateur Lu vienne assister à mes enchères. »
+Peu après l'entrée de Wang Lin sur la place, un Ancien vêtu de rouge entra, accompagné de quatre hommes d'âge moyen. En voyant Wang Lin, il laissa échapper un rire sonore: « C'est un honneur pour mon humble Secte Bao Yu que le Daoïste Lu vienne assister à mes enchères. »
 
 Wang Lin connaissait cet Ancien; il faisait partie des personnes qui l'avaient rendu visite ces deux derniers jours au nom de la Secte Bao Yu.
 
@@ -36,15 +36,15 @@ Le vieil homme en rouge se montra très poli. Il n'osait sous-estimer ce jeune h
 
 Il avait ensuite rapporté ses observations au Maître de la Secte. Après une longue réflexion, celui-ci avait envoyé un ordre: aucun disciple de la secte ne devait offenser cet homme sur Peng Lai.
 
-« Qu'il appartienne ou non à la Secte Divine n'a aucune importance pour ma Secte Bao Yu. Le simple fait qu'il ait pu tuer Wu Qing si aisément suffit à lui valoir notre respect. » L'Ancien en rouge discuta un moment avec Wang Lin avant de lever les yeux vers le ciel. Il lui sourit et ajouta: « Compagnon Cultivateur Lu, les enchères vont bientôt commencer. Si vous avez des objets à proposer, dépêchez-vous. »
+« Qu'il appartienne ou non à la Secte Divine n'a aucune importance pour ma Secte Bao Yu. Le simple fait qu'il ait pu tuer Wu Qing si aisément suffit à lui valoir notre respect. » L'Ancien en rouge discuta un moment avec Wang Lin avant de lever les yeux vers le ciel. Il lui sourit et ajouta: « Daoïste Lu, les enchères vont bientôt commencer. Si vous avez des objets à proposer, dépêchez-vous. »
 
 Wang Lin réfléchit un instant. Il possédait effectivement quelques objets qu'il souhaitait mettre en vente pour obtenir autant de cristaux d'origine que possible. Après un moment, il sourit: « Très bien. J'ai justement deux trésors que je souhaite mettre aux enchères. »
 
-« Oh? Les trésors que le Compagnon Cultivateur Lu accepte de vendre ne doivent pas être ordinaires », manifesta l'Ancien avec une pointe d'intérêt.
+« Oh? Les trésors que le Daoïste Lu accepte de vendre ne doivent pas être ordinaires », manifesta l'Ancien avec une pointe d'intérêt.
 
 Sans dire un mot, Wang Lin leva la main droite. Une fissure s'ouvrit dans son espace de stockage et deux objets, entourés d'une lueur noire, volèrent vers l'Ancien. Les yeux du vieil homme s'illuminèrent. Voyant que des sceaux protégeaient les trésors, il ne prit pas la liberté de les examiner avec son Sens Divin. Il permit à tous les regards de se poser sur eux afin que chacun puisse bien distinguer leur forme avant de les ranger.
 
-Wang Lin regarda l'Ancien avec un sourire qui n'en était guère un et lui adressa une salutation. L'Ancien toussa légèrement et dit doucement: « Ce vieil homme va d'abord remettre ces deux objets à l'Ancien responsable des enchères. Soyez sans crainte, Compagnon Cultivateur Lu. » Sur ces mots, il salua et partit.
+Wang Lin regarda l'Ancien avec un sourire qui n'en était guère un et lui adressa une salutation. L'Ancien toussa légèrement et dit doucement: « Ce vieil homme va d'abord remettre ces deux objets à l'Ancien responsable des enchères. Soyez sans crainte, Daoïste Lu. » Sur ces mots, il salua et partit.
 
 « Cet Ancien est un homme intéressant », pensa Wang Lin en suivant du regard le départ de l'homme.
 

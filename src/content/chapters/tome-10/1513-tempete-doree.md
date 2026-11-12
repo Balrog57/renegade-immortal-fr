@@ -32,7 +32,7 @@ Bien que la cloche fût fragile, la puissance qu'elle renfermait était inimagin
 
 Cependant, en cet instant, le Shui Daozi utilisait toute cette puissance pour attaquer Wang Lin!
 
-Si cette force explosait, oubliez Wang Lin: même le vieil homme en noir, Zhou De; l'homme d'âge moyen, Bord-des-Nuages; l'Estimé Ling Dong; Zhou Jin; toute la Secte Divine et l'intégralité du Système Stellaire de la Mer Yun seraient détruits!
+Si cette force explosait, oubliez Wang Lin: même le vieil homme en noir, Zhou De; l'homme d'âge moyen, Yun Fengzi; l'Estimé Ling Dong; Zhou Jin; toute la Secte Divine et l'intégralité du Système Stellaire de la Mer Yun seraient détruits!
 
 Personne ne survivrait. Seul le propriétaire de la cloche dorée, le Shui Daozi, pourrait rester indemne!
 
@@ -58,7 +58,7 @@ Sur la planète de culture, dans la Secte Divine, l'homme en rouge apparut derri
 
 Peu après, à l'opposé de lui, le vieil homme de la Secte Shi Yin de l'Alliance apparut également. L'expression sérieuse, il forma des sceaux de ses deux mains et les pressa vers l'avant!
 
-Zhou De et Maître Bord-des-Nuages étaient livides. Ignorant leurs propres combats, ils se précipitèrent. Leurs mains bougeaient frénétiquement dans une tentative désespérée d'endiguer cette explosion de puissance!
+Zhou De et Yun Fengzi étaient livides. Ignorant leurs propres combats, ils se précipitèrent. Leurs mains bougeaient frénétiquement dans une tentative désespérée d'endiguer cette explosion de puissance!
 
 Ling Dong et Zhou Jin arrivèrent également sous les ordres de Wang Lin. Six cultivateurs de la troisième étape allaient tenter d'arrêter cette tempête terrifiante!!
 
@@ -72,9 +72,9 @@ Au sein même de la Secte Divine, les Anciens qui étaient du côté du Shui Dao
 
 Il y avait aussi Tai Aluo, flottant là, dont l'expression changea radicalement. Sa longue chevelure s'agitant, il pressa ses deux mains vers l'avant pour résister à la tempête!
 
-À cet instant, le monde se distordit et les membres de la Secte Fantôme arrivèrent. L'Estimé Grand Vide de la Secte Fantôme affichait une expression sombre et rejoignit immédiatement les autres pour contenir la tempête.
+À cet instant, le monde se distordit et les membres de la Secte Gui arrivèrent. L'Estimé Da Xu de la Secte Gui affichait une expression sombre et rejoignit immédiatement les autres pour contenir la tempête.
 
-Dès l'arrivée de l'Estimé Grand Vide, une énergie démoniaque monstrueuse se propagea et un visage géant apparut dans le ciel!
+Dès l'arrivée de l'Estimé Da Xu, une énergie démoniaque monstrueuse se propagea et un visage géant apparut dans le ciel!
 
 Ce visage était celui d'un ancien démon! Neuf étoiles de démons anciens apparurent dans son œil gauche et s'envolèrent. Ces neuf étoiles se dispersèrent dans neuf directions, tentant de sceller la tempête!
 

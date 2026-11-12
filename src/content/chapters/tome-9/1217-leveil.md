@@ -28,7 +28,7 @@ Une fois son carnage terminé, il partit en ne laissant qu'une seule phrase:
 
 « Vous êtes tous trop faibles. »
 
-Aucun des cultivateurs de Luotian n'osa le poursuivre, pas même Maître Lufu, qui se terrait de peur. Il s'était enfui loin du Système Stellaire de l'Alliance et n'osait plus y poser le pied!
+Aucun des cultivateurs de Luotian n'osa le poursuivre, pas même Maître Lu Fu, qui se terrait de peur. Il s'était enfui loin du Système Stellaire de l'Alliance et n'osait plus y poser le pied!
 
 Heureusement, après son apparition, Tuo Sen ne resta pas longtemps dans le Système Stellaire de l'Alliance. Il se dirigea d'abord vers les Quatre Sectes Divines. Fort de sa puissance de Dieu Ancien, combinée au point stellaire entre ses sourcils, il parvint à blesser gravement l'Empereur Divin du Dragon Azure en un seul coup. Il fit s'effondrer le champ stellaire des Quatre Sectes Divines, y laissant d'innombrables fissures dans tout l'est, qui empêchaient toute intrusion! Cependant, Tuo Sen ne tua pas l'Empereur Divin du Dragon Azure et lança une nouvelle fois:
 
@@ -84,7 +84,7 @@ Au cœur d'un brouillard, dans la Mer Yun, se trouvait un continent sauvage. Mu 
 
 « Wang Lin, je me demande si tu vas bien... » Dans la grotte d'un continent sauvage de la Mer Yun, Mu Bingmei ouvrit lentement ses beaux yeux et regarda devant elle. Un sentiment de solitude qu'elle n'avait jamais éprouvé jusqu'alors envahit son cœur. Elle ressentait un froid intense dans ce lieu étranger où elle cultivait en solitaire. Le froid semblait envelopper son corps et la grotte; en écoutant le vent glacial souffler à l'extérieur, elle se sentait encore plus glacée.
 
-Le Royaume aux Sept Couleurs était plongé dans les ténèbres depuis plus de cent ans, depuis que toutes les lumières colorées avaient disparu. Une force mystérieuse enveloppait la montagne où l'âme originelle et l'âme de Wang Lin s'étaient volatilisées, rendant toute intrusion impossible. Maître Nuage-Âme avait tenté de forcer le passage, mais en vain. Il n'avait pu que trouver une grotte à proximité et contempler silencieusement ce monde obscur pendant cent ans.
+Le Royaume aux Sept Couleurs était plongé dans les ténèbres depuis plus de cent ans, depuis que toutes les lumières colorées avaient disparu. Une force mystérieuse enveloppait la montagne où l'âme originelle et l'âme de Wang Lin s'étaient volatilisées, rendant toute intrusion impossible. Yun Hunzi avait tenté de forcer le passage, mais en vain. Il n'avait pu que trouver une grotte à proximité et contempler silencieusement ce monde obscur pendant cent ans.
 
 Chen Tianjun et la vieille femme en vert ressentaient également le passage du temps dans cette obscurité.
 

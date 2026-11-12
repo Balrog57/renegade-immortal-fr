@@ -14,17 +14,17 @@ Le changement intérieur provoqua également un bouleversement à l'extérieur.
 
 Dès l'apparition de la faille, la brume fut aspirée vers elle. Celle-ci semblait exercer une force d'aspiration colossale, engloutissant tout sur son passage. En un éclair, plus de la moitié fut absorbée, et le reste continuait d'être rapidement happé par la faille.
 
-Non loin de la Tombe de l'Ordre Antique, sur une planète de culture desséchée et morte, le corps principal de Grande Désolation, dont l'âme divisée venait d'être anéantie, ouvrit les yeux. Son visage était pâle et son regard empreint d'une cruauté sans nom. Durant sa vie, il ne cultiva que pour lui-même et aimait rompre ses promesses, mais tous ceux qui connaissaient cette habitude étaient morts, ce qui évitait que sa réputation ne se propage.
+Non loin de la Tombe de l'Ordre Antique, sur une planète de culture desséchée et morte, le corps principal de Da Huang Shangren, dont l'âme divisée venait d'être anéantie, ouvrit les yeux. Son visage était pâle et son regard empreint d'une cruauté sans nom. Durant sa vie, il ne cultiva que pour lui-même et aimait rompre ses promesses, mais tous ceux qui connaissaient cette habitude étaient morts, ce qui évitait que sa réputation ne se propage.
 
-Bien qu'il eût entretenu une certaine amitié avec la deuxième génération de l'Oiseau Vermillon, comment cela pouvait-il rivaliser avec les bénéfices? C'était en raison de son tempérament qu'il n'avait aucun véritable ami après des dizaines de milliers d'années de culture. Il laissa échapper un reniflement froid et son corps disparut. Il réapparut aussitôt devant la brume qui était aspirée avec rapidité.
+Bien qu'il eût entretenu une certaine amitié avec le Suzaku de deuxième génération, comment cela pouvait-il rivaliser avec les bénéfices? C'était en raison de son tempérament qu'il n'avait aucun véritable ami après des dizaines de milliers d'années de culture. Il laissa échapper un reniflement froid et son corps disparut. Il réapparut aussitôt devant la brume qui était aspirée avec rapidité.
 
 Son corps flottait dans la brume comme une montagne immobile tandis qu'il fixait le tumulte d'un regard glacial. Après avoir réfléchi un instant, une lueur de détermination brilla dans ses yeux.
 
-« Il n'y a aucune limite au niveau de culture de ceux qui peuvent entrer... » Grande Désolation songea un moment, puis chargea sans hésitation dans la faille.
+« Il n'y a aucune limite au niveau de culture de ceux qui peuvent entrer... » Da Huang Shangren songea un moment, puis chargea sans hésitation dans la faille.
 
 Au moment où la faille commença à absorber la brume, un océan violet apparut au loin, comme dans l'illusion, parmi des étoiles infinies. Ses vagues rugissaient. Dans les profondeurs de l'océan siégeait un vieil homme. À cet instant, il ouvrit les yeux et une lueur froide y jaillit.
 
-« Grande Désolation a osé voler mon avatar, et cet individu a osé ruiner... mon plan! En ce moment même, un bouleversement se produit dans la tombe et la restriction qui pesait sur la culture des arrivants a disparu... » Le vieil homme réfléchit un instant puis agita la main. Les vagues déferlèrent devant lui et une porte gigantesque, façonnée par l'océan lui-même, apparut!
+« Da Huang Shangren a osé voler mon avatar, et cet individu a osé ruiner... mon plan! En ce moment même, un bouleversement se produit dans la tombe et la restriction qui pesait sur la culture des arrivants a disparu... » Le vieil homme réfléchit un instant puis agita la main. Les vagues déferlèrent devant lui et une porte gigantesque, façonnée par l'océan lui-même, apparut!
 
 Le vieil homme se leva et franchit le seuil de la porte. Sa silhouette surgit à l'extérieur de la Tombe de l'Ordre Antique. À cet instant, l'espace devant lui se distordit, semblant se diviser en neuf mondes. Une personne sortit de cette distorsion!
 
@@ -32,15 +32,15 @@ Il s'agissait d'un homme d'âge mûr au visage sombre. Dès son apparition, ses 
 
 « Puisque vous, Jiutian Mozun, pouvez venir, alors ce vieil homme le peut aussi », répondit Miaoyin Daozun d'une voix rauque. Les deux se dévisagèrent puis cessèrent de parler pour fixer la faille qui dévorait la brume.
 
-Après un moment, Miaoyin Daozun dit soudainement: « Le Vieux Poison Grande Désolation est déjà entré... »
+Après un moment, Miaoyin Daozun dit soudainement: « Le Vieux Poison Da Huang est déjà entré... »
 
 Jiutian Mozun fronça les sourcils et demanda: « Pourrait-il s'agir d'un piège? »
 
 « Ce ne devrait pas être le cas... Quelqu'un capable de tendre un piège dans la Tombe de l'Ordre Antique ferait-il une chose pareille? » Les deux se regardèrent, le regard empreint de détermination.
 
-« Grande Désolation doit être scellé! »
+« Da Huang doit être scellé! »
 
-« Je peux vous aider à sceller Grande Désolation, mais je prendrai 60 % de ses trésors! »
+« Je peux vous aider à sceller Da Huang, mais je prendrai 60 % de ses trésors! »
 
 « C'est entendu, mais ce petit gars est à moi! »
 
@@ -62,7 +62,7 @@ Miaoyin Daozun regarda l'homme en robe noire et demanda: « Divinez-vous qu'un a
 
 Jiutian Mozun sourit et joignit les mains en signe de respect: « Il semble que vos blessures soient presque guéries. Si un accident survient, nous ne manquerons pas de vous solliciter. » Sans aucune hésitation, Jiutian Mozun s'élança dans la faille. Celle-ci resta là, flottante. La silhouette floue en noir resta immobile et poussa un long soupir après un long moment.
 
-« J'espère que rien ne se passera... Deux des cinq maîtres: Vide Arcanique Grande Désolation, Zhou Jin, ainsi que les deux concubines de l'Immortel Vénérable de la haute antiquité. Ils représentent 30 % de la puissance de mon Système Stellaire Antique... Tous sont entrés dans la Tombe de l'Ordre Antique... Je suis inquiet... »
+« J'espère que rien ne se passera... Deux des cinq maîtres: Da Huang du Vide Arcanique, Zhou Jin, ainsi que les deux concubines de l'Immortel Vénérable de la haute antiquité. Ils représentent 30 % de la puissance de mon Système Stellaire Antique... Tous sont entrés dans la Tombe de l'Ordre Antique... Je suis inquiet... »
 
 À l'intérieur de la Tombe de l'Ordre Antique, les deux bras gigantesques avaient balayé l'espace et détruit la première plateforme de rang 9, tout en ouvrant une faille vers un autre monde.
 

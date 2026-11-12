@@ -74,33 +74,33 @@ Cette scène étrange troubla l'esprit de Wang Lin, mais il ne laissa paraître 
 
 Chen Tianjun venait d'assister au massacre de Cang Songzi par Wang Lin. Lorsque celui-ci tourna les yeux vers lui, son visage devint livide. Instinctivement, il recula de quelques pas et joignit les mains en signe de respect devant Wang Lin.
 
-« La puissance du frère Lu est capable de faire trembler le ciel. Je vous admire! Cang Songzi était un être malfaisant pour nous avoir entraînés ici. Que le compagnon de culture Lu l'ait tué est aussi son destin. Il le méritait; le compagnon Lu a bien agi! »
+« La puissance du frère Lu est capable de faire trembler le ciel. Je vous admire! Cang Songzi était un être malfaisant pour nous avoir entraînés ici. Qu'il soit mort de la main du Daoïste Lu est aussi son destin. Il le méritait; le Daoïste Lu a bien agi! »
 
 Wang Lin s'approcha de Chen Tianjun et lui rendit un léger salut.
 
 Chen Tianjun regarda Wang Lin avec prudence et expliqua avant même que celui-ci ne pose la moindre question: « Je suis parti plus tôt, mais après avoir suivi le chemin initial vers l'autel, j'ai découvert que je ne pouvais pas quitter ce Royaume aux Sept Couleurs. J'ai ensuite rencontré une bête féroce et j'ai été gravement blessé. J'ai trouvé cet endroit pour commencer à guérir. »
 
-L'expression de Wang Lin resta calme alors qu'il disait lentement: « Échapper à une bête de rang 12 n'a pas dû être facile pour le compagnon Chen. »
+L'expression de Wang Lin resta calme alors qu'il disait lentement: « Échapper à une bête de rang 12 n'a pas dû être facile pour le Daoïste Chen. »
 
 Nerveux, Chen Tianjun répondit rapidement: « Ma méthode de culture est particulière. J'ai une bonne connaissance des bêtes féroces, ce qui m'a permis de m'échapper de justesse. »
 
 Wang Lin n'avait aucun différend avec ce Chen Tianjun et ne souhaitait pas se battre pour des trésors. Il joignit les mains et s'apprêta à partir.
 
-« Compagnon Lu, attendez! J'ai une chose à vous demander. » Chen Tianjun hésitait encore, mais voyant Wang Lin s'éloigner, il serra les dents et prit son parti.
+« Daoïste Lu, attendez! J'ai une chose à vous demander. » Chen Tianjun hésitait encore, mais voyant Wang Lin s'éloigner, il serra les dents et prit son parti.
 
 « Qu'est-ce donc? » demanda Wang Lin en le regardant.
 
-« Lorsque le compagnon Lu a fouillé l'âme de Cang Songzi... avez-vous... avez-vous trouvé une méthode pour partir? » Chen Tianjun le regardait avec une pointe d'appréhension.
+« Lorsque le Daoïste Lu a fouillé l'âme de Cang Songzi... avez-vous... avez-vous trouvé une méthode pour partir? » Chen Tianjun le regardait avec une pointe d'appréhension.
 
 Wang Lin réfléchit silencieusement un instant, puis acquiesça.
 
-Chen Tianjun poussa un soupir de soulagement et devint encore plus respectueux. Il joignit sincèrement les mains: « Je vous en prie, aidez-moi, compagnon Lu. Tant que vous pouvez me sortir d'ici, j'accepterai n'importe quelle condition, pourvu que je puisse quitter cet endroit maudit! »
+Chen Tianjun poussa un soupir de soulagement et devint encore plus respectueux. Il joignit sincèrement les mains: « Je vous en prie, aidez-moi, Daoïste Lu. Tant que vous pouvez me sortir d'ici, j'accepterai n'importe quelle condition, pourvu que je puisse quitter cet endroit maudit! »
 
 Le regard de Wang Lin balaya le visage de Chen Tianjun avant qu'il ne secoue la tête: « Je ne prévois pas de partir de sitôt. »
 
-Chen Tianjun hésita et murmura: « Ce n'est pas un problème. Emmenez-moi simplement quand le compagnon Lu partira. Il n'y a pas d'urgence. Si vous avez besoin que je fasse quoi que ce soit, demandez-le moi. »
+Chen Tianjun hésita et murmura: « Ce n'est pas un problème. Emmenez-moi simplement quand le Daoïste Lu partira. Il n'y a pas d'urgence. Si vous avez besoin que je fasse quoi que ce soit, demandez-le moi. »
 
-Après avoir fini de parler, voyant que l'expression de Wang Lin demeurait impassible, comme s'il n'acceptait pas sa proposition, il se précipita: « Compagnon Lu, grâce à ma connaissance des bêtes féroces et aux sorts de ma Secte Yi Shou, je peux vous aider à rassembler des cristaux d'origine auprès des innombrables bêtes de brume qui peuplent ces lieux. J'ai grossièrement calculé qu'il y a sans doute plusieurs centaines de bêtes de brume et une quantité incalculable de cristaux d'origine. Si le compagnon promet de me sortir d'ici, je prendrai le risque de tous les récolter! Une fois partis, il y aura également une grande récompense à la clé! »
+Après avoir fini de parler, voyant que l'expression de Wang Lin demeurait impassible, comme s'il n'acceptait pas sa proposition, il se précipita: « Daoïste Lu, grâce à ma connaissance des bêtes féroces et aux sorts de ma Secte Yi Shou, je peux vous aider à rassembler des cristaux d'origine auprès des innombrables bêtes de brume qui peuplent ces lieux. J'ai grossièrement calculé qu'il y a sans doute plusieurs centaines de bêtes de brume et une quantité incalculable de cristaux d'origine. Si le Daoïste promet de me sortir d'ici, je prendrai le risque de tous les récolter! Une fois partis, il y aura également une grande récompense à la clé! »
 
 Wang Lin fut tenté. Après avoir pesé le pour et le contre, il hocha la tête et remit un morceau de jade à Chen Tianjun.
 
@@ -116,7 +116,7 @@ Wang Lin regagna la grotte située dans la vallée et sortit une grande quantit�
 
 « Il y a également cette vieille femme en vert avec sa Restriction de la Vie et de la Mort, ainsi que la Restriction Temporelle de Sima Mo... »
 
-Dans l'immensité des étoiles, il existait un système stellaire bien plus vaste que Luotian, Vide Brillant, Rivière Invoquée ou Mer Yun. Même en combinant ces quatre systèmes, ils ne pourraient égaler ce vaste ensemble stellaire.
+Dans l'immensité des étoiles, il existait un système stellaire bien plus vaste que Luo Tian, Kun Xu, Zhao He ou Mer Yun. Même en combinant ces quatre systèmes, ils ne pourraient égaler ce vaste ensemble stellaire.
 
 C'était ce que les habitants du royaume scellé appelaient le royaume extérieur...
 

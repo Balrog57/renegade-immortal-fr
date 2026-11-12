@@ -30,7 +30,7 @@ La sphère était devenue invisible à l'œil nu. Seul le Sens Divin permettait 
 
 « Une compression de 30 000 fois est la limite de ce corps. Si je tente d'intensifier davantage, ce corps s'effondrera instantanément. » Wang Lin agita la main droite et la particule formée par la sphère compressée disparut silencieusement.
 
-« Dahong est un membre du Clan Shan Lei, il n'y a donc aucun mal à ce qu'il agisse. Quant à Xu Liguo, il n'est pas un cultivateur mais un esprit d'épée; je vais le laisser s'amuser. Le Clan Shan Lei réside au sein du lac de tonnerre, où les non-membres ne peuvent absolument pas pénétrer, ils ne sont donc pas sur leurs gardes face aux étrangers. »
+« Dahong est un membre du Clan Shan Lei, il n'y a donc aucun mal à ce qu'il agisse. Quant à Xu Liguo, il n'est pas un cultivateur mais un esprit d'épée; je vais le laisser s'amuser. Le Clan Shan Lei est protégé par le domaine de tonnerre extérieur, où les non-membres ne peuvent absolument pas pénétrer, ils ne sont donc pas sur leurs gardes face aux étrangers. »
 
 « Je n'ai pas besoin de rester trop discret... » Les yeux de Wang Lin s'illuminèrent et il cessa ses pensées. Il ferma les yeux et commença à étudier la marque du Clan Shan Lei.
 
@@ -78,22 +78,22 @@ C'était comme si, même un cultivateur Ascendant, devait passer sur son corps p
 
 Peu après avoir pris cette pose, l'appel de Wang Lin résonna dans son esprit. Il devint immédiatement alerte et se retourna. Il épousseta d'abord soigneusement ses vêtements avant de pénétrer dans la salle avec une mine flatteuse.
 
-Dès qu'il entra, avant même de voir Wang Lin, Dahong s'exclama avec enthousiasme: « Le jeune Dahong a rassemblé une grande quantité d'objets pouvant être échangés contre des cristaux de tonnerre pour l'Aîné! » Tout en parlant, il entra dans la salle principale et toucha sa marque. Les objets qu'il avait collectés durant ces derniers mois s'envolèrent pour former une petite montagne.
+Dès qu'il entra, avant même de voir Wang Lin, Dahong s'exclama avec enthousiasme: « Le jeune Dahong a rassemblé une grande quantité d'objets pouvant être échangés contre des cristaux de tonnerre pour Senior! » Tout en parlant, il entra dans la salle principale et toucha sa marque. Les objets qu'il avait collectés durant ces derniers mois s'envolèrent pour former une petite montagne.
 
-Tout plein d'entrain, il prit une grande inspiration et dit avec excitation: « Ce petit n'a pas vu l'Aîné depuis plusieurs mois. Maintenant que je suis devant vous, je me sens immédiatement revigoré! Le simple fait de respirer l'air que l'Aîné cultive me donne l'impression que mon niveau de culture a augmenté! Je regrette seulement de ne pas pouvoir suivre l'Aîné en permanence. Cependant, servir les ordres de l'Aîné est un immense honneur pour Dahong. J'aimerais pouvoir me diviser en de nombreux avatars pour rassembler des choses plus rapidement! »
+Tout plein d'entrain, il prit une grande inspiration et dit avec excitation: « Ce petit n'a pas vu Senior depuis plusieurs mois. Maintenant que je suis devant vous, je me sens immédiatement revigoré! Le simple fait de respirer l'air que Senior cultive me donne l'impression que mon niveau de culture a augmenté! Je regrette seulement de ne pas pouvoir suivre Senior en permanence. Cependant, servir les ordres de Senior est un immense honneur pour Dahong. J'aimerais pouvoir me diviser en de nombreux avatars pour rassembler des choses plus rapidement! »
 
 L'expression de Wang Lin resta neutre tandis qu'il observait Dahong. D'un geste de la main, il rangea tout ce qui servirait à l'échange des cristaux.
 
 « Pas mal. Voici une récompense pour toi. » Wang Lin fit un mouvement du doigt et une pilule atterrit dans la main de Dahong.
 
-Dahong baissa la tête, secoué par l'émotion. Il ne put cacher son excitation et s'écria rapidement: « C’est l'honneur de ce petit disciple d'agir pour l'Aîné. L'Aîné est aussi éclatant que le soleil et la lune; même sans récompense, ce petit serait ravi d'aider l'Aîné! »
+Dahong baissa la tête, secoué par l'émotion. Il ne put cacher son excitation et s'écria rapidement: « C’est l'honneur de ce petit disciple d'agir pour Senior. Senior est aussi éclatant que le soleil et la lune; même sans récompense, ce petit serait ravi d'aider Senior! »
 
-« Aîné, il ne reste que quelques jours avant les échanges de cristaux. Le Temple Lei Jing ouvrira bientôt. Devrions-nous partir dès maintenant pour en obtenir? »
+« Senior, il ne reste que quelques jours avant les échanges de cristaux. Le Temple Lei Jing ouvrira bientôt. Devrions-nous partir dès maintenant pour en obtenir? »
 
 Wang Lin réfléchit un instant, puis regarda Dahong avec un sourire qui n'en était guère un, avant d'acquiescer.
 
 En voyant l'accord de Wang Lin, Dahong fut transporté par l'excitation. Il avait délibérément choisi de revenir avant Xu Liguo afin de se retrouver seul avec Wang Lin pour utiliser son art invincible. Il avait aussi décidé d'emmener Wang Lin au Temple Lei Jing pour que Xu Liguo ne puisse pas le trouver à son retour.
 
-« Humph, humph! Moi, Dahong, je suis sur le point de lancer ma guerre contre Xu Liguo. Je ne crois pas être incapable de le battre! Tant que l'Aîné m'accepte, que sont ces simples cristaux de tonnerre? Si je reste aux côtés de l'Aîné, je gagnerai énormément de bénéfices! Il semble que l'Aîné ait l'intention d'intégrer le Classement Tonnerre Dispersé. Une fois que l'Aîné aura gravi les échelons, ce sera aussi le jour où je me ferai un nom! Peut-être y aura-t-il une place pour moi, Dahong, au sein du Clan Shan Lei! »
+« Humph, humph! Moi, Dahong, je suis sur le point de lancer ma guerre contre Xu Liguo. Je ne crois pas être incapable de le battre! Tant que Senior m'accepte, que sont ces simples cristaux de tonnerre? Si je reste aux côtés de Senior, je gagnerai énormément de bénéfices! Il semble que Senior ait l'intention d'intégrer le Classement Shan Lei. Une fois que Senior aura gravi les échelons, ce sera aussi le jour où je me ferai un nom! Peut-être y aura-t-il une place pour moi, Dahong, au sein du Clan Shan Lei! »
 
 Dahong avait de l'ambition. C’était là sa plus grande différence avec Xu Liguo.

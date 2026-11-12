@@ -12,7 +12,7 @@ slug: le-chaos-cause-par-tuo-sen
 
 « Le nouvel Empereur Divin Dragon Azure n'a pas écouté mes conseils et est allé inspecter le Royaume Céleste. Après cela, il n'est jamais revenu... »
 
-« Plusieurs centaines d'années ont passé. En raison de l'effondrement du Royaume Céleste, le Système Stellaire du Vide Brillant est devenu chaotique. C'est alors qu'une organisation appelée l'Alliance Xiu Zhen a fait son apparition, avec l'ombre du Royaume Kun Xu derrière elle. »
+« Plusieurs centaines d'années ont passé. En raison de l'effondrement du Royaume Céleste, le Domaine Stellaire Kun Xu est devenu chaotique. C'est alors qu'une organisation appelée l'Alliance Xiu Zhen a fait son apparition, avec l'ombre du Royaume Kun Xu derrière elle. »
 
 « Cette Alliance Xiu Zhen a utilisé une méthode inconnue pour s'emparer de la majorité des héritages du Royaume Céleste de la Pluie. J'avais initialement l'intention d'aller m'enquérir de la trace de l'Empereur Divin Dragon Azure, mais mon troisième Fléau Céleste était arrivé bien avant l'heure. J'ai dû entrer en culture en vase clos, mais c'est précisément à ce moment-là que l'Alliance Xiu Zhen a lancé son attaque contre les Quatre Sectes Divines... »
 
@@ -20,11 +20,11 @@ slug: le-chaos-cause-par-tuo-sen
 
 « L'Empereur Divin Tigre Blanc est mort au combat, et même son cadavre a été pillé... »
 
-« Ce qui était ridicule, c'est que bien que l'Alliance Xiu Zhen ait subi de lourdes pertes, elle ignorait la cause de cette guerre. Elle pensait toujours qu'il s'agissait d'une lutte pour la domination du Système Stellaire du Vide Brillant! »
+« Ce qui était ridicule, c'est que bien que l'Alliance Xiu Zhen ait subi de lourdes pertes, elle ignorait la cause de cette guerre. Elle pensait toujours qu'il s'agissait d'une lutte pour la domination du Domaine Stellaire Kun Xu! »
 
-« Ce qu'elle ignorait, c'est qu'il ne s'agissait pas d'une bataille pour devenir le souverain du Système Stellaire du Vide Brillant. Le Royaume Kun Xu avait poussé par un moyen inconnu l'Empereur Divin Tortue Noire à nous trahir, puis il avait découvert le secret de mes Quatre Sectes Divines! »
+« Ce qu'elle ignorait, c'est qu'il ne s'agissait pas d'une bataille pour devenir le souverain du Domaine Stellaire Kun Xu. Le Royaume Kun Xu avait poussé par un moyen inconnu l'Empereur Divin Tortue Noire à nous trahir, puis il avait découvert le secret de mes Quatre Sectes Divines! »
 
-« Cependant, le Royaume Kun Xu ne connaissait que l'existence du secret; il ignorait l'emplacement de cette planète de culture. Le Système Stellaire du Vide Brillant était trop vaste, et il était tout simplement impossible de trouver une seule planète de culture au hasard. De plus, la planète avait été transformée par les quatre premiers Empereurs Divins, il était donc impossible d'y déceler quoi que ce soit d'anormal. »
+« Cependant, le Royaume Kun Xu ne connaissait que l'existence du secret; il ignorait l'emplacement de cette planète de culture. Le Domaine Stellaire Kun Xu était trop vaste, et il était tout simplement impossible de trouver une seule planète de culture au hasard. De plus, la planète avait été transformée par les quatre premiers Empereurs Divins, il était donc impossible d'y déceler quoi que ce soit d'anormal. »
 
 « Selon l'accord des quatre premiers Empereurs Divins, seule chaque génération de l'Empereur Divin Oiseau Vermillon peut connaître la position exacte de la planète! »
 
@@ -104,7 +104,7 @@ Il ne fallut pas longtemps pour que tous les Anciens présents puissent voir le 
 
 L'un des vieillards réfléchit un instant et dit lentement: « Nous ignorons si ceci est vrai ou s'il s'agit d'un mensonge... »
 
-« Si une telle personne parvient à s'échapper, ce sera une catastrophe pour tout le Système Stellaire de l'Alliance. Bien que cela ne nous concerne pas directement, si les informations contenues dans ce jade sont vraies, alors mon Luotian perdrait tous les espaces stellaires qu'il occupe dans l'Alliance. Nous devrions immédiatement retourner à Luotian et renforcer nos protections... Si cette personne pénètre à Luotian... » Les yeux de l'Ancien étaient remplis de terreur.
+« Si une telle personne parvient à s'échapper, ce sera une catastrophe pour tout le Système Stellaire de l'Alliance. Bien que cela ne nous concerne pas directement, si les informations contenues dans ce jade sont vraies, alors mon Luo Tian perdrait tous les espaces stellaires qu'il occupe dans l'Alliance. Nous devrions immédiatement retourner à Luo Tian et renforcer nos protections... Si cette personne pénètre à Luo Tian... » Les yeux de l'Ancien étaient remplis de terreur.
 
 « Cela est probablement faux! Une telle personne ne peut pas exister. Le contenu prétend que même nous, cultivateurs au stade du Briseur du Nirvana, serions gravement blessés, voire tués, d'un simple geste du doigt. C'est absurde! » Certains, refusant d'y croire, laissèrent échapper des reniflements méprisants.
 
@@ -118,4 +118,4 @@ L'étrange réaction du Maître Yan Leizi ne surprit aucun des Anciens; au contr
 
 Un instant plus tard, l'expression du Maître Yan Leizi changea une nouvelle fois. Tourné vers l'ouest, il joignit les mains et dit respectueusement: « À vos ordres! » Ses yeux devinrent sévères alors qu'il balayait la foule du regard: « Cessez toutes les hostilités avec l'Alliance et convoquez ici tous les cultivateurs au stade du Scruteur du Nirvana ou au-dessus. Attendez mon commandement après mon retour des Quatre Sectes Divines! »
 
-La même scène se produisit au sein de la Secte Shi Yin. Seule une différence subsistait: comparé à Luotian, le jade que Li Yingzhi avait rapporté avait plongé la Secte Shi Yin dans une frénésie absolue face à son contenu!
+La même scène se produisit au sein de la Secte Shi Yin. Seule une différence subsistait: comparé à Luo Tian, le jade que Li Yingzhi avait rapporté avait plongé la Secte Shi Yin dans une frénésie absolue face à son contenu!

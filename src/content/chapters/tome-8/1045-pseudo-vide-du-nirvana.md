@@ -78,17 +78,17 @@ Dans le coin nord-est du premier étage, l'homme en noir portant la marque cach�
 
 Face à lui, de l'autre côté du pavillon, se tenait une autre personne: une belle femme d'âge moyen. Elle fixait l'homme en noir à travers la structure, son expression extrêmement sombre.
 
-« Cher compagnon de culture, ce n'est qu'une simple restriction; pourquoi devez-vous me la voler? » La voix de la femme était un peu rauque mais très mélodieuse.
+« Daoïste, ce n'est qu'une simple restriction; pourquoi devez-vous me la voler? » La voix de la femme était un peu rauque mais très mélodieuse.
 
 Elle avait été projetée dans une restriction lors de l'effondrement du Bassin Funéraire Céleste. Heureusement, celle-ci n'était pas très puissante et elle en était sortie rapidement. Elle avait ensuite aperçu le brouillard noir et, après réflexion, s'était avancée prudemment.
 
-Elle ne se souciait guère de la jeune fille en rose qu'elle avait emmenée avec elle. Grâce au trésor que la sœur aînée de la jeune fille lui avait confié, elle ne devrait courir aucun danger.
+Elle ne se souciait guère de la jeune fille en rose qu'elle avait emmenée avec elle. Grâce au trésor que la grande Senior sœur de la jeune fille lui avait confié, elle ne devrait courir aucun danger.
 
 Cependant, les restrictions dans la Grotte Xian Di étaient trop nombreuses. En chemin, elle avait affronté de multiples périls avant d'atteindre cet endroit après un voyage épuisant. En voyant le pavillon, elle avait immédiatement remarqué sa particularité.
 
 Alors qu'elle s'apprêtait à examiner la structure de plus près, l'homme en noir apparut de l'autre côté.
 
-« Puisqu'il ne s'agit que d'une restriction ordinaire, alors, cher compagnon, vous devriez simplement me la laisser. » Une pointe de sarcasme perçait dans le regard de l'homme. Il fit un pas en avant, prêt à entrer dans le pavillon.
+« Puisqu'il ne s'agit que d'une restriction ordinaire, alors, Daoïste, vous devriez simplement me la laisser. » Une pointe de sarcasme perçait dans le regard de l'homme. Il fit un pas en avant, prêt à entrer dans le pavillon.
 
 Une lueur d'intention meurtrière traversa les yeux de la belle femme et elle chargea immédiatement, ne laissant derrière elle qu'une image rémanente.
 
@@ -124,7 +124,7 @@ En voyant Wang Lin, l'homme en noir esquissa un sourire étrange. C'est la belle
 
 Wang Lin les observa attentivement. Il avait manifestement percé le secret du pavillon. En réalité, la carte indiquait bien la présence d'un réseau de transfert vers un espace de stockage à l'intérieur de ce pavillon. Même sans la carte, Wang Lin pouvait en voir l'existence.
 
-La femme réfléchit un instant en observant Wang Lin, puis dit lentement: « Le compagnon Wang est également ici. Que diriez-vous que nous partions tous les trois ensemble pour partager en trois les trésors que nous trouverons? »
+La femme réfléchit un instant en observant Wang Lin, puis dit lentement: « Le Daoïste Wang est également ici. Que diriez-vous que nous partions tous les trois ensemble pour partager en trois les trésors que nous trouverons? »
 
 Juste au moment où Wang Lin s'apprêtait à répondre, le sol trembla et un rugissement furieux retentit au loin.
 

@@ -16,7 +16,7 @@ Des vagues d'énergie spirituelle se propageaient à travers l'averse. Wang Lin 
 
 Le bruit de ses pas s'enfonçant dans la boue se mêlait au clapotis de la pluie sur son parapluie. Wang Lin écoutait ce son tout en ressentant l'énergie originelle du monde. Il éprouvait un sentiment de sérénité tandis qu'il avançait lentement.
 
-La séance de culture de Xu Yun n'était pas terminée. Elle cultivait toujours silencieusement, tentant de franchir le stade de l'Yin Illusoire pour atteindre celui du Yang Corporel. Elle n'avait pas remarqué le départ de Wang Lin, mais même si elle n'avait pas été plongée dans sa culture, elle n'aurait pas non plus perçu son départ.
+La séance de culture de Sun Yun n'était pas terminée. Elle cultivait toujours silencieusement, tentant de franchir le stade de l'Yin Illusoire pour atteindre celui du Yang Corporel. Elle n'avait pas remarqué le départ de Wang Lin, mais même si elle n'avait pas été plongée dans sa culture, elle n'aurait pas non plus perçu son départ.
 
 Depuis son arrivée à la Secte Gui Yuan, Wang Lin n'avait pas caché son niveau de culture. Étant donné son statut actuel, il ne ressentait nul besoin de le dissimuler. Cependant, sans utiliser aucun sort, personne ne pouvait deviner qu'il était un cultivateur, car nul ne pouvait percer sa culture.
 
@@ -40,17 +40,17 @@ L'expression de Wang Lin resta neutre lorsqu'il se retourna pour découvrir une 
 
 Cette femme était très délicate, mais en ce jour de pluie et de tonnerre, elle dégageait un sentiment de solitude et d'impuissance. Cette fragilité touchante qui transparaissait en elle n'échappa pas aux yeux de Wang Lin.
 
-Wang Lin dit calmement: « Je m'appelle Ceng Niu. »
+Wang Lin dit calmement: « Je m'appelle Zeng Niu. »
 
-La femme en rouge regarda froidement Wang Lin et fronça les sourcils. Le nom de « Ceng Niu » lui était totalement inconnu. Si elle n'avait pas vu que Wang Lin n'était qu'un simple mortel, elle l'aurait déjà chassé de la montagne.
+La femme en rouge regarda froidement Wang Lin et fronça les sourcils. Le nom de « Zeng Niu » lui était totalement inconnu. Si elle n'avait pas vu que Wang Lin n'était qu'un simple mortel, elle l'aurait déjà chassé de la montagne.
 
-« Ceng Niu? » La femme se souvint qu'un des trente et un mortels ramenés du nord portait ce nom. Cependant, cet homme était d'un calme trop absolu, une chose qui ne pouvait être simulée.
+« Zeng Niu? » La femme se souvint qu'un des trente et un mortels ramenés du nord portait ce nom. Cependant, cet homme était d'un calme trop absolu, une chose qui ne pouvait être simulée.
 
 « Partez d'ici », dit froidement la femme. Après tout, elle était une puissante cultivatrice et n'aurait naturellement pas agi contre un mortel. Bien qu'irritée, elle maintint son calme.
 
 Wang Lin sourit soudainement et passa devant la femme en rouge. Il reprit sa route, s'apprêtant à partir.
 
-La femme en rouge se retourna pour observer Wang Lin. Son calme l'étonnait. Il fallait dire que dans toute la Secte Gui Yuan, hormis son maître, chaque disciple était extrêmement nerveux et respectueux. Même ses trois frères aînés montraient un certain respect en raison de son niveau de culture supérieur.
+La femme en rouge se retourna pour observer Wang Lin. Son calme l'étonnait. Il fallait dire que dans toute la Secte Gui Yuan, hormis son maître, chaque disciple était extrêmement nerveux et respectueux. Même ses trois Senior frères montraient un certain respect en raison de son niveau de culture supérieur.
 
 Sans parler des mortels, cet homme devant elle était étrangement serein.
 
@@ -86,7 +86,7 @@ Les nuages sombres s'éloignèrent et le ciel se dégagea. Un arc-en-ciel éclat
 
 Lu Yanfei se mordit la lèvre, une pointe d'amertume marquant son beau visage.
 
-« Le plus ridicule est que mes trois frères aînés n'ont pas osé intervenir et ont tacitement consenti à cette affaire... Ils veulent que je me sacrifie pour apporter la paix à la Secte Gui Yuan. Cependant, pensent-ils vraiment que la Secte Gui Yuan sera en sécurité une fois que j'appartiendrai à Lu Hai... »
+« Le plus ridicule est que mes trois Senior frères n'ont pas osé intervenir et ont tacitement consenti à cette affaire... Ils veulent que je me sacrifie pour apporter la paix à la Secte Gui Yuan. Cependant, pensent-ils vraiment que la Secte Gui Yuan sera en sécurité une fois que j'appartiendrai à Lu Hai... »
 
 Deux larmes coulèrent des yeux de Lu Yanfei, glissèrent le long de ses joues et tombèrent au sol, se mêlant à la pluie. Elle regarda silencieusement l'arc-en-ciel à l'horizon et murmura: « Un arc-en-ciel apparaît toujours après la pluie, mais... l'arc-en-ciel de ma Secte Gui Yuan est sombre... »
 
@@ -96,7 +96,7 @@ Elle regarda dans la direction où Wang Lin s'était éloigné.
 
 « Le cœur de cet homme est au niveau de ceux de ma génération. S'il emprunte le chemin de la culture, il accomplira certainement de grandes choses à l'avenir... Malheureusement... »
 
-Wang Lin descendit la montagne et entra dans la cour, toujours sous son parapluie. Xu Yun était encore en pleine culture lorsque Wang Lin rentra dans la maison, et ses yeux s'illuminèrent.
+Wang Lin descendit la montagne et entra dans la cour, toujours sous son parapluie. Sun Yun était encore en pleine culture lorsque Wang Lin rentra dans la maison, et ses yeux s'illuminèrent.
 
 « Je savais déjà, d'après les souvenirs de Zhao Yu, que ce Système d'Étoiles de la Mer Yun serait très différent des deux royaumes de la Pluie et du Tonnerre. Maintenant que j'ai écouté l'Ancien de la Secte Gui Yuan, il semble qu'une majorité de cultivateurs utilisent des bêtes spirituelles... Leur alchimie est également unique! L'immense mer d'étoiles n'est que brume stellaire, et dans cette brume se trouve un monde appartenant aux bêtes spirituelles... »
 
@@ -112,14 +112,14 @@ Il ne pouvait oublier que, sans le Cristal Ascendant de Zhou Yi, il aurait été
 
 « Se pourrait-il qu'il existe... des pilules pour aider à comprendre un domaine! » À cette pensée, le cœur de Wang Lin manqua un battement et il prit une profonde inspiration.
 
-À cet instant précis, son expression changea et son regard sembla traverser sa propre demeure pour se poser sur Xu Yun.
+À cet instant précis, son expression changea et son regard sembla traverser sa propre demeure pour se poser sur Sun Yun.
 
-À ce moment-là, Xu Yun ouvrit les yeux et cracha du sang. Son visage était livide. Elle avait échoué une fois de plus à franchir le stade du Yang Corporel...
+À ce moment-là, Sun Yun ouvrit les yeux et cracha du sang. Son visage était livide. Elle avait échoué une fois de plus à franchir le stade du Yang Corporel...
 
-Cet échec avait blessé son âme originelle. Xu Yun se mordit la lèvre avec un regard résolu. Elle frappa son sac de rangement et en sortit une pilule enrobée de cire.
+Cet échec avait blessé son âme originelle. Sun Yun se mordit la lèvre avec un regard résolu. Elle frappa son sac de rangement et en sortit une pilule enrobée de cire.
 
 Elle écrasa la cire sans hésiter, révélant une pilule noire. Dès son apparition, la pilule libéra une riche énergie originelle, imprégnée d'une faible force d'âme.
 
-« Pilule de Mort de Séparation de l'Âme... » Xu Yun serra les dents, prête à l'avaler. À cet instant, une voix calme retentit:
+« Pilule de Mort de Séparation de l'Âme... » Sun Yun serra les dents, prête à l'avaler. À cet instant, une voix calme retentit:
 
 « Arrête! »
